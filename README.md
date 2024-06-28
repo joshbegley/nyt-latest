@@ -10,6 +10,10 @@ https://nytimes.com/2024/06/28/arts/labour-party-culture.html
 `An unsteady debate performance by President Biden has scrambled the thinking among some donors about whether the party needs to find an alternative.`\
 https://nytimes.com/2024/06/28/business/dealbook/biden-debate-donors.html
 
+**The Athletic FC: USMNT now need 'game of their lives'; a retro kick-off trend at Euros**\
+`Today in The Athletic FC: USMNT face a battle to qualify for Copa America last eight after Panama loss. Plus: why teams go long at kick-off`\
+https://nytimes.com/athletic/5599487/2024/06/28/the-athletic-fc-usmnt-need-game-of-their-lives/
+
 **USC football recruiting: Thoughts on Trojans' setbacks, strategy after decommitments**\
 `USC’s 2025 class is exiting June in worse shape than it entered the month. There’s no argument about that.`\
 https://nytimes.com/athletic/5598952/2024/06/28/usc-football-recruiting-decommitments/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5598630/2024/06/28/warriors-mike-dunleavy-jr-draft-
 **Chelsea submit offer to sign Kiernan Dewsbury-Hall**\
 `Chelsea have submitted an offer to sign Kiernan Dewsbury-Hall from Leicester City.`\
 https://nytimes.com/athletic/5599597/2024/06/28/chelsea-kiernan-dewsbury-hall/
-
-**How fast could a human being throw a fastball? 106 mph, 110 mph — even 125 mph?**\
-`The average four-seam fastball has increased in velocity every season since we started tracking it. What's the upper limit?`\
-https://nytimes.com/athletic/5571107/2024/06/28/mlb-pitcher-fastball-top-speed/
 
