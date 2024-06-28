@@ -1,3 +1,7 @@
+**Supreme Court Ruling Reflects Challenges of Jan. 6 Prosecutions**\
+`In finding that prosecutors misused an obstruction law to charge rioters, the justices highlighted the lack of an established legal blueprint for addressing an attack on the foundations of democracy.`\
+https://nytimes.com/2024/06/28/us/politics/supreme-court-ruling-reflects-challenges-of-jan-6-prosecutions.html
+
 **She Needed an Emergency Abortion. Doctors in Idaho Put Her on a Plane.**\
 `In states that have banned abortion, hospitals have struggled to treat pregnant women facing health risks. A Supreme Court decision this week did not help.`\
 https://nytimes.com/2024/06/28/us/emergency-abortion-idaho-mother.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/28/us/politics/senate-republicans-biden-debate.html
 **Student Loan Payments Paused for 3 Million in SAVE Program**\
 `The Education Department said it would put the borrowers in forbearance while it recalculated their payments to comply with recent court rulings.`\
 https://nytimes.com/2024/06/28/business/student-loans-payments-save-biden.html
-
-**After Biden’s Debate Disaster, an Uncertain Path**\
-`Also, the Supreme Court ruled that prosecutors overstepped in Jan. 6 case. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/06/28/briefing/biden-debate-disaster-supreme-court-jan-6.html
 
