@@ -1,3 +1,19 @@
+**“Every legal scholar wanted it that way.”**\
+`By Elizabeth Dias`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/every-legal-scholar-wanted-it-that-way
+
+**Canadiens hit the biggest weekend of their offseason and Jeff Gorton is optimistic**\
+`Canadiens executive vice-president of hockey operations Jeff Gorton remains bullish on their ability to significantly improve at the draft.`\
+https://nytimes.com/athletic/5598593/2024/06/27/canadiens-nhl-draft-2024-jeff-gorton/
+
+**“First of all, the Supreme Court just approved the abortion pill, and I agree with the decision to have done that. And I will not block it.”**\
+`By Abbie VanSickle`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/first-of-all-the-supreme-court-just-approved-the-abortion-pill-and-i-agree-with-the-decision-to-have-done-that-and-i-will-not-bl
+
+**Messi misses Argentina training, status remains in doubt for Peru**\
+`Lionel Messi was absent from Argentina’s evening training session on Thursday in Miami ahead of their final group-stage game at Copa America.`\
+https://nytimes.com/athletic/5598626/2024/06/27/lionel-messi-injury-argentina-copa-america/
+
 **‘N/A’ Review: For Nancy Pelosi and A.O.C., It’s a House Divided**\
 `Is moral leadership possible without parliamentary power? Two very familiar congresswomen battle it out onstage.`\
 https://nytimes.com/2024/06/27/theater/n-a-review-nancy-pelosi-aoc.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5598198/2024/06/27/nhl-free-agent-big-board-draft/
 **“Not going to drive them higher.”**\
 `By Ana Swanson`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/not-going-to-drive-them-higher
-
-**“He’s destroying Medicare because all of these people are coming in. They’re putting them on Medicare. They’re putting them on Social Security. They’re going to destroy Social Security. This man is going to single-handedly destroy Social Security.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/hes-destroying-medicare-because-all-of-these-people-are-coming-in-theyre-putting-them-on-medicare-theyre-putting-them-on-social-
-
-**“The economy collapsed, there were no jobs.”**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/economy-collapsed-there-were-no-jobs
-
-**“I was getting out of Afghanistan.”**\
-`By David E. Sanger`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/i-was-getting-out-of-afghanistan
-
-**“He’s the only president other than Herbert Hoover who’s lost more jobs than he had when he began.”**\
-`By Angelo Fichera`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/hes-the-only-president-other-than-herbert-hoover-whos-lost-more-jobs-than-he-had-when-he-began
 
