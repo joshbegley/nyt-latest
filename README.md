@@ -1,3 +1,11 @@
+**First the Debate, Then a Supreme Court Ruling: Trump’s Big 24 Hours**\
+`Successive successes reinvigorated Donald Trump’s campaign a month after he became the first major party nominee convicted of a felony.`\
+https://nytimes.com/2024/06/28/us/politics/trump-debate-supreme-court.html
+
+**Reopen N.Y.C. Libraries on Sundays? Yes. Free 3-K for All? Not Quite.**\
+`Mayor Eric Adams and the City Council reached a $112 billion budget deal that restored some unpopular cuts to key programs.`\
+https://nytimes.com/2024/06/28/nyregion/budget-libraries-3k-adams.html
+
 **Could Democrats Replace Biden at the Top of the Presidential Ticket?**\
 `While it is possible, it would most likely lead to political upheaval in the party unless the president decides to step aside on his own terms.`\
 https://nytimes.com/2024/06/28/us/politics/replace-biden.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/28/us/politics/biden-trump-immigration.html
 **Fearful and Doubting Biden, Democrats Face an Uncertain Path Forward**\
 `A range of despairing Democrats began to reconsider their nominee after his rough debate showing, but there was no agreement on how, or whether, to urge him to step off the ticket.`\
 https://nytimes.com/2024/06/28/us/politics/biden-democrats-nominee-2024-election.html
-
-**The Supreme Court Thinks That by Arguing More, We Can Be Less Divided**\
-`Everyone in our system, including judges and members of Congress, will be nudged to do their proper constitutional work.`\
-https://nytimes.com/2024/06/28/opinion/supreme-court-chevron-congress.html
-
-**New Jersey Tells Trump’s Golf Clubs to Show They Deserve Liquor Licenses**\
-`The state said that former President Donald J. Trump’s felony convictions may mean he does not have the moral character to serve drinks.`\
-https://nytimes.com/2024/06/28/nyregion/trump-golf-clubs-liquor-licenses.html
 
