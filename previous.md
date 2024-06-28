@@ -28,7 +28,7 @@ https://nytimes.com/2024/06/28/opinion/kamala-harris-biden-debate.html
 
 **Conservative Christian Activists See Opportunity in Supreme Court Ruling**\
 `The decision overturning a precedent known as Chevron deference was celebrated by those who would target medication abortion and rights for transgender people.`\
-https://nytimes.com/2024/06/28/us/politics/conservative-christian-activists-see-chevron-as-major-win-to-push-their-causes.html
+https://nytimes.com/2024/06/28/us/politics/abortion-chevron-ruling.html
 
 **Social Conservatives Push Trump on the G.O.P.’s Anti-Abortion Platform**\
 `Leaders of the anti-abortion movement sent a letter to Donald J. Trump amid worries he may try to weaken the anti-abortion language in the party platform.`\

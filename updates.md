@@ -1,3 +1,7 @@
+**Conservative Christian Activists See Opportunity in Supreme Court Ruling**\
+`The decision overturning a precedent known as Chevron deference was celebrated by those who would target medication abortion and rights for transgender people.`\
+https://nytimes.com/2024/06/28/us/politics/abortion-chevron-ruling.html
+
 **Outside ‘Jittery Joe’s,’ the Biden campaign pushes donors for calm.**\
 `By Shane Goldmacher`\
 https://nytimes.com/live/2024/06/28/us/trump-biden-debate/outside-jittery-joes-the-biden-campaign-pushes-donors-for-calm
