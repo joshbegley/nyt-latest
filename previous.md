@@ -1,3 +1,11 @@
+**Brittany Was Once Barren Ground for France’s Far Right. No More.**\
+`The region along the northwest coast has few immigrants and little crime or unemployment, but the far right National Rally has made inroads saying that all three are coming.`\
+https://nytimes.com/2024/06/28/world/europe/france-brittany-far-right.html
+
+**Germany's Rudiger fit to face Denmark in last 16**\
+`Antonio Rudiger is set to start for Germany against Denmark on Saturday night.`\
+https://nytimes.com/athletic/5599458/2024/06/28/antonio-rudiger-fit-germany-denamark/
+
 **Vikings mailbag: When should we expect J.J. McCarthy to start at QB?**\
 `How soon could the rookie QB start for the Vikings? How will Darnold's play affect the situation? And could the team trade for a DT?`\
 https://nytimes.com/athletic/5597722/2024/06/28/vikings-mailbag-jj-mccarthy-sam-darnold/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5593515/2024/06/28/wayne-rooney-jude-bellingham/
 **Key Debate Moments: A Night of Stumbles and Falsehoods, and More**\
 `Plus, Bronny James joins his dad at the Lakers.`\
 https://nytimes.com/2024/06/28/podcasts/debate-takeaways.html
-
-**The Connections Companion No. 384, June 29, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/06/28/crosswords/connections-companion-384.html
-
-**Democrats worry about Biden’s performance, and try to clean up. Here’s the latest.**\
-`By Lisa Lerer`\
-https://nytimes.com/live/2024/06/28/us/trump-biden-debate/democrats-worry-about-bidens-performance-and-try-to-clean-up-heres-the-latest
 

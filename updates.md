@@ -1,3 +1,11 @@
+**Brittany Was Once Barren Ground for France’s Far Right. No More.**\
+`The region along the northwest coast has few immigrants and little crime or unemployment, but the far right National Rally has made inroads saying that all three are coming.`\
+https://nytimes.com/2024/06/28/world/europe/france-brittany-far-right.html
+
+**Germany's Rudiger fit to face Denmark in last 16**\
+`Antonio Rudiger is set to start for Germany against Denmark on Saturday night.`\
+https://nytimes.com/athletic/5599458/2024/06/28/antonio-rudiger-fit-germany-denamark/
+
 **Vikings mailbag: When should we expect J.J. McCarthy to start at QB?**\
 `How soon could the rookie QB start for the Vikings? How will Darnold's play affect the situation? And could the team trade for a DT?`\
 https://nytimes.com/athletic/5597722/2024/06/28/vikings-mailbag-jj-mccarthy-sam-darnold/
