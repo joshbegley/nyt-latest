@@ -1,3 +1,7 @@
+**The group that was cut out of hosting this year’s debates will be watching.**\
+`By Tim Balk`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/the-group-that-was-cut-out-of-hosting-this-years-debates-will-be-watching
+
 **Avalanche's Nathan MacKinnon wins Hart Trophy as NHL's MVP**\
 `LAS VEGAS — The Colorado Avalanche’s Nathan MacKinnon won his first career Hart Trophy, finishing ahead of leading point-getter Nikita Kucherov and Connor McDavid for the NHL&#8217;s MVP award.`\
 https://nytimes.com/athletic/5597749/2024/06/27/nathan-mackinnon-nhl-mvp-hart-trophy/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/27/world/americas/bolivia-coup-attempt-luis-arce.htm
 **Biden Ended the Trump Crime Wave**\
 `Homicides, which surged during 2020, have been plunging.`\
 https://nytimes.com/2024/06/27/opinion/biden-trump-debate-crime.html
-
-**Why Do India and China Keep Fighting Over This Desolate Terrain?**\
-`Long-running battles in the Himalayas may foretell a more dangerous conflict.`\
-https://nytimes.com/2024/06/27/magazine/india-china-border.html
 
