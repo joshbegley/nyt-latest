@@ -1,3 +1,11 @@
+**The ruling is likely to stymie public health initiatives, experts said.**\
+`By Teddy Rosenbluth and Roni Caryn Rabin`\
+https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/chevron-deference-public-health
+
+**Los Angeles Homeless Count Drops for the First Time in Seven Years**\
+`The reduction was a sign of progress for Mayor Karen Bass, who started an aggressive new program to move people off the streets in 2022.`\
+https://nytimes.com/2024/06/28/us/los-angeles-homeless-count.html
+
 **Prosecutors in Menendez Bribery Trial Rest Their Case**\
 `After seven weeks of trial, lawyers for Senator Robert Menendez are expected to begin calling witnesses on Monday to rebut the government’s case.`\
 https://nytimes.com/2024/06/28/nyregion/robert-menendez-bribery-trial.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/28/opinion/letters/biden-trump-debate.html
 **One by One, Biden’s Closest Media Allies Defect After the Debate**\
 `The MSNBC host Joe Scarborough, the CNN contributor Van Jones and other pundits who have long supported the president are now urging him to drop out.`\
 https://nytimes.com/2024/06/28/us/politics/biden-media-allies-debate.html
-
-**Kamala Harris Could Win This Election. Let Her.**\
-`The vice president is the obvious path out of the mess Joe Biden has created.`\
-https://nytimes.com/2024/06/28/opinion/kamala-harris-biden-debate.html
-
-**Conservative Christian Activists See Opportunity in Supreme Court Ruling**\
-`The decision overturning a precedent known as Chevron deference was celebrated by those who would target medication abortion and rights for transgender people.`\
-https://nytimes.com/2024/06/28/us/politics/abortion-chevron-ruling.html
 
