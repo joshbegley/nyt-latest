@@ -1,3 +1,23 @@
+**'It's a snoozefest': What Europe thinks of Gareth Southgate's England**\
+`England fans seem to be losing faith in their football manager... and sentiments are not much kinder on the continent`\
+https://nytimes.com/athletic/5592848/2024/06/28/gareth-southgate-england-view-europe/
+
+**Trump’s debate performance: Relentless attacks and falsehoods.**\
+`By Michael Gold`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/trumps-debate-performance-relentless-attacks-and-falsehoods
+
+**A settled line-up and Musiala on fire, but a notable lack of width - assessing Germany so far**\
+`The hosts have impressed at these Euros and have much to be happy about, but if they are to go all the way, there are the areas to improve`\
+https://nytimes.com/athletic/5597237/2024/06/28/germany-euro-2024-analysis/
+
+**"Football fans brought 'Freed from Desire' back - that's some sort of justice for me"**\
+`Gala has dedicated her life to the music world - but after decades in the wilderness football fans have made her a household name`\
+https://nytimes.com/athletic/5589600/2024/06/28/football-fans-gala-freed-from-desire-interview/
+
+**Does money need to be sent? Do deals need to be done? How June 30 PSR deadline really works**\
+`The PSR deadline for many clubs is this weekend, but what does June 30 actually mean for Premier League sides?`\
+https://nytimes.com/athletic/5596136/2024/06/28/psr-premier-league-june-30/
+
 **Euro 2024: Our ranking of all the games in Germany this summer**\
 `There are 51 games at Euro 2024 - The Athletic is ranking them all. Which one is going to finish top?`\
 https://nytimes.com/athletic/5586408/2024/06/28/euro-2024-ranking-all-games/
