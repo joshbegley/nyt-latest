@@ -1,3 +1,15 @@
+**‘N/A’ Review: For Nancy Pelosi and A.O.C., It’s a House Divided**\
+`Is moral leadership possible without parliamentary power? Two very familiar congresswomen battle it out onstage.`\
+https://nytimes.com/2024/06/27/theater/n-a-review-nancy-pelosi-aoc.html
+
+**“More people died under his administration — even though we had largely fixed it — more people died under his administration than our administration, and we were right in the middle of it.”**\
+`By Noah Weiland`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/more-people-died-under-his-administration-even-though-we-had-largely-fixed-it-more-people-died-under-his-administration-than-our
+
+**“This is something that everybody wanted.”**\
+`By Kate Zernike`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/this-is-something-that-everybody-wanted
+
 **“We have 1,000 trillionaires in America — I mean billionaires in America — and what’s happening, they’re in a situation where they in fact pay 8.2 percent in taxes.”**\
 `By Angelo Fichera`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/we-have-1000-trillionaires-in-america-i-mean-billionaires-in-america-and-whats-happening-theyre-in-a-situation-where-they-in-fac
