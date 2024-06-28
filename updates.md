@@ -1,3 +1,7 @@
+**Los Angeles Homeless Count Drops for the First Time in 6 Years**\
+`The reduction was a sign of progress for Mayor Karen Bass, who started an aggressive new program to move people off the streets in 2022.`\
+https://nytimes.com/2024/06/28/us/los-angeles-homeless-count.html
+
 **Girl Groupers Gone (Successfully!) Solo**\
 `With two new albums from members of Fifth Harmony out now, a look back at other pop singers who took off on their own.`\
 https://nytimes.com/2024/06/28/arts/music/amplifier-newsletter-girl-groupers-gone-solo.html
