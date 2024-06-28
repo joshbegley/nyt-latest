@@ -1,3 +1,7 @@
+**7.2-Magnitude Earthquake Strikes Off Peru**\
+`Peruvian authorities issued a tsunami alert after the quake struck off the coast near the southern city of Arequipa.`\
+https://nytimes.com/2024/06/28/world/americas/peru-earthquake.html
+
 **Offstage, a Band of Biden Defenders Braves a Sea of Trump Swagger**\
 `Supporters of both candidates were at the debate to sell their version of reality. One group seemed to have an easier time with it.`\
 https://nytimes.com/2024/06/28/us/politics/presidential-debate-scene.html
