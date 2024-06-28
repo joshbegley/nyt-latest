@@ -1,3 +1,11 @@
+**First the Debate, Then a Supreme Court Ruling: Trump’s Big 24 Hours**\
+`Successive successes reinvigorated Donald Trump’s campaign a month after he became the first major party nominee convicted of a felony.`\
+https://nytimes.com/2024/06/28/us/politics/trump-debate-supreme-court.html
+
+**Reopen N.Y.C. Libraries on Sundays? Yes. Free 3-K for All? Not Quite.**\
+`Mayor Eric Adams and the City Council reached a $112 billion budget deal that restored some unpopular cuts to key programs.`\
+https://nytimes.com/2024/06/28/nyregion/budget-libraries-3k-adams.html
+
 **Could Democrats Replace Biden at the Top of the Presidential Ticket?**\
 `While it is possible, it would most likely lead to political upheaval in the party unless the president decides to step aside on his own terms.`\
 https://nytimes.com/2024/06/28/us/politics/replace-biden.html
