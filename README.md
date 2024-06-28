@@ -1,3 +1,19 @@
+**Amid Perilous Times, Iran Holds Vote to Pick a President**\
+`Whoever is chosen will have to cope with a cratering economy, regional strife and deep divisions and discord at home.`\
+https://nytimes.com/2024/06/28/world/middleeast/iran-president-election.html
+
+**‘It’s Frightening’: Democratic Voters Worried by Biden’s Struggles in Debate**\
+`Democrats found President Biden’s performance disconcerting, while Republicans were in a jubilant mood.`\
+https://nytimes.com/2024/06/28/us/biden-trump-debate-voter-reaction.html
+
+**Chelsea's Guiu deal is a no-lose situation - but can they make it a win?**\
+`Signing a player like Guiu for £5.1m is as stress-free as it gets. Chelsea hope he succeeds, but there will be no regret if he does not`\
+https://nytimes.com/athletic/5596495/2024/06/28/chelsea-transfers-marc-guiu/
+
+**Keep Kudus, sign a striker, choose a captain - Lopetegui's to-do list at West Ham**\
+`The new West Ham coach will set out his agenda for his reign on Monday — there is much work to do before Premier League season starts`\
+https://nytimes.com/athletic/5514646/2024/06/28/julen-lopetegui-west-ham-kudus-striker/
+
 **Six Takeaways From the First Presidential Debate**\
 `In a testy, personal clash, President Biden failed to ease worries about his age, Donald Trump forcefully made his case (with wild claims and exaggerations) and the moderators held their fact-checking fire.`\
 https://nytimes.com/2024/06/28/us/politics/presidential-debate-takeaways-biden-trump.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5597237/2024/06/28/germany-euro-2024-analysis/
 **"Football fans brought 'Freed from Desire' back - that's some sort of justice for me"**\
 `Gala has dedicated her life to the music world - but after decades in the wilderness football fans have made her a household name`\
 https://nytimes.com/athletic/5589600/2024/06/28/football-fans-gala-freed-from-desire-interview/
-
-**Does money need to be sent? Do deals need to be done? How June 30 PSR deadline really works**\
-`The PSR deadline for many clubs is this weekend, but what does June 30 actually mean for Premier League sides?`\
-https://nytimes.com/athletic/5596136/2024/06/28/psr-premier-league-june-30/
-
-**Euro 2024: Our ranking of all the games in Germany this summer**\
-`There are 51 games at Euro 2024 - The Athletic is ranking them all. Which one is going to finish top?`\
-https://nytimes.com/athletic/5586408/2024/06/28/euro-2024-ranking-all-games/
-
-**Euro 2024 group stage analysed: Fast starts, back threes and why so many own goals?**\
-`Mark Carey analyses the tactical trends from the from the opening two weeks of the European Championship in Germany`\
-https://nytimes.com/athletic/5596235/2024/06/28/euro-2024-group-stage-analysed/
-
-**Why Britain’s Murky Election Betting Scandal Is Causing Outrage**\
-`The embattled Conservative Party is embroiled in investigations over whether some of its own staff members used insider knowledge to bet on the timing of the general election.`\
-https://nytimes.com/2024/06/28/world/europe/uk-election-betting-scandal.html
 
