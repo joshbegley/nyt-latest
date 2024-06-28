@@ -1,3 +1,15 @@
+**'Finally ripping off the band-aid': Breaking down USWNT's Olympic roster and Alex Morgan's snub**\
+`Meg Linehan and Tamerra Griffin discuss the USWNT's Olympic roster`\
+https://nytimes.com/athletic/5598139/2024/06/28/breaking-down-uswnts-olympic-roster-and-alex-morgans-snub/
+
+**Why Some People Don’t Talk About Money With Their Partner**\
+`A new report finds that people stressed about their finances are often worried that discussing it will lead to an argument. But experts say conversations can help.`\
+https://nytimes.com/2024/06/28/your-money/finances-budget-relationships-partner.html
+
+**L.A. County Aims to Eliminate Medical Debt for 150,000 Residents**\
+`The county is investing $5 million to partner with a nonprofit and wipe out $500 million in debt for residents. The program is expected to start later this year.`\
+https://nytimes.com/2024/06/28/us/la-county-medical-debt.html
+
 **Summer Reading Contest, Week 4: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by July 5 at 9 a.m. Eastern. This week’s winners will be announced by July 17.`\
 https://nytimes.com/2024/06/28/learning/summer-reading-contest-week-4-what-got-your-attention-in-the-times-this-week.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5599487/2024/06/28/the-athletic-fc-usmnt-need-game-
 **USC football recruiting: Thoughts on Trojans' setbacks, strategy after decommitments**\
 `USC’s 2025 class is exiting June in worse shape than it entered the month. There’s no argument about that.`\
 https://nytimes.com/athletic/5598952/2024/06/28/usc-football-recruiting-decommitments/
-
-**Wife’s Ex-Boyfriend and Fear of Poverty at Center of Menendez’s Defense**\
-`Senator Robert Menendez’s lawyers are expected to call witnesses who will describe his childhood and the rocky start to his relationship with his wife.`\
-https://nytimes.com/2024/06/28/nyregion/robert-menendez-bribery-trial-defense.html
-
-**We fact-checked both candidates’ statements. Here’s what we found.**\
-`By The New York Times`\
-https://nytimes.com/live/2024/06/28/us/trump-biden-debate/we-fact-checked-both-candidates-statements-heres-what-we-found
-
-**Princess Anne Returns Home From the Hospital**\
-`Anne, the younger sister of King Charles III, suffered a concussion and other injuries in an accident at her country residence, palace officials said.`\
-https://nytimes.com/2024/06/28/world/europe/princess-anne-home-hospital-accident.html
 
