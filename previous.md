@@ -1,3 +1,7 @@
+**What USMNT needs to qualify for Copa America quarterfinals**\
+`The USMNT suffered a shock defeat to Panama at Copa America on Thursday.`\
+https://nytimes.com/athletic/5598412/2024/06/27/are-the-usmnt-out-of-copa-america-permutations-after-panama-defeat/
+
 **The group that was cut out of hosting this year’s debates will be watching.**\
 `By Tim Balk`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/the-group-that-was-cut-out-of-hosting-this-years-debates-will-be-watching
@@ -5,6 +9,10 @@ https://nytimes.com/live/2024/06/27/us/biden-trump-debate/the-group-that-was-cut
 **Avalanche's Nathan MacKinnon wins Hart Trophy as NHL's MVP**\
 `LAS VEGAS — The Colorado Avalanche’s Nathan MacKinnon won his first career Hart Trophy, finishing ahead of leading point-getter Nikita Kucherov and Connor McDavid for the NHL&#8217;s MVP award.`\
 https://nytimes.com/athletic/5597749/2024/06/27/nathan-mackinnon-nhl-mvp-hart-trophy/
+
+**USMNT 1-2 Panama: 10-man U.S.'s Copa America hopes in the balance**\
+`A wild night in Atlanta leaves the USMNT's Copa America campaign in a precarious position `\
+https://nytimes.com/athletic/5598040/2024/06/27/usmnt-panama-copa-america/
 
 **A look back at memorable presidential debate moments.**\
 `By Simon J. Levien`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5598295/2024/06/27/canucks-tyler-myers-contract/
 **MAGA Is Not Getting Everything It Wants From the Supreme Court**\
 `The Trumpist right is presenting aggressive legal theories that fail again and again.`\
 https://nytimes.com/2024/06/27/opinion/supreme-court-murthy-missouri-social-media.html
-
-**Bolivia’s President Confronts a Coup Attempt — and His Onetime Mentor**\
-`After facing down the general who tried to oust him, President Luis Arce is battling a more formidable figure, Evo Morales, a former president who wants to reclaim power.`\
-https://nytimes.com/2024/06/27/world/americas/bolivia-coup-attempt-luis-arce.html
-
-**Biden Ended the Trump Crime Wave**\
-`Homicides, which surged during 2020, have been plunging.`\
-https://nytimes.com/2024/06/27/opinion/biden-trump-debate-crime.html
 
