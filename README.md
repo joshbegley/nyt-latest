@@ -1,3 +1,7 @@
+**Southampton offer Walker-Peters plus cash for West Ham's Flynn Downes**\
+`Southampton are in discussions with West Ham United regarding a deal for Flynn Downes, with Kyle Walker-Peters in line to move in the opposite direction as part of a separate transaction.`\
+https://nytimes.com/athletic/5599557/2024/06/28/kyle-walker-peters-west-ham/
+
 **She Wants to Save the Arts in Britain (if She Can Get Elected)**\
 `The Labour lawmaker Thangam Debbonaire has a plan to turn Britain’s ailing cultural sector around. Will she get to implement it?`\
 https://nytimes.com/2024/06/28/arts/labour-party-culture.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5599597/2024/06/28/chelsea-kiernan-dewsbury-hall/
 **How fast could a human being throw a fastball? 106 mph, 110 mph — even 125 mph?**\
 `The average four-seam fastball has increased in velocity every season since we started tracking it. What's the upper limit?`\
 https://nytimes.com/athletic/5571107/2024/06/28/mlb-pitcher-fastball-top-speed/
-
-**England XI to face Slovakia: Mainoo? Shaw? Foden at No 10? Our writers' picks**\
-`England are into the knockout stages but there remain questions over their best line-up – what should Southgate do?`\
-https://nytimes.com/athletic/5596908/2024/06/28/england-lineup-slovakia-foden-shaw/
 
