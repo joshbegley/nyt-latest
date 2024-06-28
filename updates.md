@@ -1,3 +1,11 @@
+**USC football recruiting: Thoughts on Trojans' setbacks, strategy after decommitments**\
+`USC’s 2025 class is exiting June in worse shape than it entered the month. There’s no argument about that.`\
+https://nytimes.com/athletic/5598952/2024/06/28/usc-football-recruiting-decommitments/
+
+**England XI to face Slovakia: Mainoo? Shaw? Foden at No 10? Our writers' picks**\
+`England are into the knockout stages but there remain questions over their best line-up – what should Southgate do?`\
+https://nytimes.com/athletic/5596908/2024/06/28/england-lineup-slovakia-foden-shaw/
+
 **She Wants to Save the Arts in Britain (if She Can Get Elected)**\
 `The Labour lawmaker Thangam Debbonaire has a plan to turn Britain’s ailing cultural sector around. Will she get to implement it?`\
 https://nytimes.com/2024/06/28/arts/labour-party-culture.html
