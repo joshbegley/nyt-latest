@@ -1,3 +1,11 @@
+**Wordle Review No. 1,106, June 29, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/28/crosswords/wordle-review-1106.html
+
+**Read the Court’s Decision to Overrule the Chevron Doctrine**\
+`The ruling sweeps aside a legal precedent that required courts to defer to the expertise of federal administrators in carrying out laws passed by Congress.`\
+https://nytimes.com/interactive/2024/06/28/us/supreme-court-chevron-decision.html
+
 **At Euro 2024, a Very England Fight Misses the Point**\
 `A back and forth over the pundit’s one-word analysis of his country’s performances rests on a misconception about the media’s role.`\
 https://nytimes.com/2024/06/28/world/europe/gary-lineker-england-euro-2024.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/28/arts/television/presidential-debate-biden-trump.h
 **Iowa Supreme Court Allows Six-Week Abortion Ban to Take Effect**\
 `Republican lawmakers passed the restrictions last year, but a lower court blocked enforcement of the law.`\
 https://nytimes.com/2024/06/28/us/iowa-supreme-court-abortion-ban.html
-
-**Wimbledon draw: Nightmare half for Swiatek? Are Djokovic and Murray ready?**\
-`The stage is set for SW19, where the women's world No 1 has a tricky start and Djokovic and Murray are racing to make their first rounds`\
-https://nytimes.com/athletic/5599399/2024/06/28/wimbledon-draw-2024-swiatek-djokovic-murra/
-
-**The Winners of Our 7th Annual Student Podcast Contest**\
-`We invited teenagers to create an original five-minute podcast about almost anything. Here are the finalists selected from over 1,100 submissions.`\
-https://nytimes.com/2024/06/28/learning/the-winners-of-our-7th-annual-student-podcast-contest.html
 

@@ -1,3 +1,11 @@
+**Wordle Review No. 1,106, June 29, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/28/crosswords/wordle-review-1106.html
+
+**Read the Court’s Decision to Overrule the Chevron Doctrine**\
+`The ruling sweeps aside a legal precedent that required courts to defer to the expertise of federal administrators in carrying out laws passed by Congress.`\
+https://nytimes.com/interactive/2024/06/28/us/supreme-court-chevron-decision.html
+
 **At Euro 2024, a Very England Fight Misses the Point**\
 `A back and forth over the pundit’s one-word analysis of his country’s performances rests on a misconception about the media’s role.`\
 https://nytimes.com/2024/06/28/world/europe/gary-lineker-england-euro-2024.html
