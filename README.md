@@ -1,3 +1,11 @@
+**Weah apologizes to USMNT team-mates after red card vs Panama**\
+`Tim Weah apologized to his USMNT team-mates after his red card in the shock Copa America defeat to Panama.`\
+https://nytimes.com/athletic/5598200/2024/06/27/tim-weah-red-card-usmnt/
+
+**Tracking the Attacks in the First Presidential Debate**\
+`See how much time Biden and Trump spend attacking each other in the first presidential debate.`\
+https://nytimes.com/interactive/2024/06/27/us/politics/trump-biden-presidential-debate-tracker.html
+
 **Calder Trophy runner-up, a possible extension on the way, Wild's Brock Faber looks forward to big sophomore year**\
 `Faber, especially in his home state, is humbled by the accolades he receives and the spotlight he gets.`\
 https://nytimes.com/athletic/5546942/2024/06/27/wild-brock-faber-contract-calder-trophy/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/27/us/biden-trump-debate/a-look-back-at-memorab
 **Blackhawks' Connor Bedard wins Calder Trophy**\
 `He became the ninth Blackhawks player to win the Calder as the league’s top rookie Thursday night.`\
 https://nytimes.com/athletic/5598066/2024/06/27/connor-bedard-calder-trophy-blackhawks/
-
-**Schools Police Chief Indicted in Uvalde Shooting Response**\
-`The indictment, which comes more than two years after the massacre at Robb Elementary School, is the first set of criminal charges to stem from the attack.`\
-https://nytimes.com/2024/06/27/us/uvalde-shooting-pete-arredondo-indicted.html
-
-**This Is the First Presidential Debate Without an In-Person Audience Since 1960**\
-`John F. Kennedy and Richard M. Nixon were the last presidential candidates to debate with no live audience during a general election.`\
-https://nytimes.com/2024/06/27/us/politics/biden-trump-debate-no-audience.html
 
