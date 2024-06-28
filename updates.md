@@ -1,3 +1,15 @@
+**“I was getting out of Afghanistan.”**\
+`By David E. Sanger`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/i-was-getting-out-of-afghanistan
+
+**“He’s the only president other than Herbert Hoover who’s lost more jobs than he had when he began.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/hes-the-only-president-other-than-herbert-hoover-whos-lost-more-jobs-than-he-had-when-he-began
+
+**“The jobs went down, and then they bounced back. And he’s taking credit for bounce-back jobs.”**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/the-jobs-went-down-and-then-they-bounced-back-and-hes-taking-credit-for-bounce-back-jobs
+
 **“I gave you the largest cut in history.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/i-gave-you-the-largest-cut-in-history
