@@ -1,3 +1,15 @@
+**A Woman Sleeping With Her Stepson? This Director Knows It May Shock.**\
+`The French filmmaker Catherine Breillat has been exploring relationships between girls and older men since the 1970s. Her latest, “Last Summer,” flips the script.`\
+https://nytimes.com/2024/06/28/movies/catherine-breillat-last-summer.html
+
+**Join Us: The Loopholes of Hawaii’s Pay-to-Play Law**\
+`A joint investigation examined the role money plays in politics in Hawaii. Hear how journalists put the story together in a livestreamed event on July 10.`\
+https://nytimes.com/2024/06/28/us/honolulu-civil-beat-event.html
+
+**What is Chevron deference anyway?**\
+`By David Leonhardt`\
+https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/what-is-chevron-deference-anyway
+
 **Where Can Sondheim’s Operatic Musicals Find a Home?**\
 `Jonathan Tunick, Stephen Sondheim’s longtime collaborator, unveiled a grand orchestration of “A Little Night Music” that deserves more than a concert.`\
 https://nytimes.com/2024/06/28/theater/a-little-night-music-sondheim-lincoln-center.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/28/us/supreme-court-jan-6-obstruction.html
 **Read the Court’s Ruling on Jan. 6 Obstruction**\
 `The court ruled in favor of a former police officer seeking to throw out an obstruction charge for participating in the riot on the Capitol on Jan. 6, 2021.`\
 https://nytimes.com/interactive/2024/06/28/us/jan-6-ruling.html
-
-**Dress Your Chicken in Mustard and Mayonnaise**\
-`The cloaked breast meat is insulated from the heat of the grill and made tender by the acidity of the mustard.`\
-https://nytimes.com/2024/06/28/dining/grilled-chicken-breasts.html
-
-**Mikhail Baryshnikov on Leaving Everything Behind**\
-`Fifty years ago, Baryshnikov defected from the Soviet Union. He discusses that day, the war in Ukraine and the challenges facing Russian artists today.`\
-https://nytimes.com/2024/06/28/arts/dance/mikhail-baryshnikov-50th-anniversary-of-defection.html
-
-**Five International Movies to Stream Now**\
-`This month’s selections include a Japanese serial-killer thriller, a Pride Month pick from Sri Lanka, a Malaysian drama about undocumented street hustlers and more.`\
-https://nytimes.com/2024/06/28/movies/international-movies-streaming.html
 
