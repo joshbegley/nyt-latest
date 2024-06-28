@@ -1,3 +1,7 @@
+**A Raspy Biden Melts Down in Prime Time**\
+`President Biden needed to calm concerns about his age and mental acuity. Instead, he inflamed them, raising questions about whether he could carry on as the Democratic nominee.`\
+https://nytimes.com/2024/06/27/us/politics/biden-debate-performance.html
+
 **Who Won the Debate? Biden Stumbles Left Trump on Top**\
 `A halting debate performance by President Biden left Democratic strategists reeling, raising questions about his fitness to stay in the race.`\
 https://nytimes.com/2024/06/27/us/politics/biden-trump-debate-who-won.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/27/us/politics/biden-trump-age-golf.html
 **“He wants to get rid of the A.C.A. again, and they’re going to try again.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/he-wants-to-get-rid-of-the-aca-again-and-theyre-going-to-try-again
-
-**“And what he’s done to the Black population is horrible, including the fact that for 10 years he called them superpredators.”**\
-`By Angelo Fichera`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate-fact-check/and-what-hes-done-to-the-black-population-is-horrible-including-the-fact-that-for-10-years-he-called-them-superpredators
 
