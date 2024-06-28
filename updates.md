@@ -1,3 +1,7 @@
+**How to fix Brazil: 'Dirty movement', Endrick as a No 9 and a midfield rejig**\
+`The drab draw with Costa Rica on Monday presented several tactical problems, but there are answers at hand...`\
+https://nytimes.com/athletic/5597087/2024/06/28/brazil-copa-america-tactics/
+
 **The Panama game was an important test for this USMNT generation - and one it failed**\
 `How can the US expect to outfox bigger names if it frequently fails against opponents it knows best?`\
 https://nytimes.com/athletic/5599151/2024/06/28/usmnt-generation-failed-panama-copa-america/

@@ -2,6 +2,10 @@
 `How can the US expect to outfox bigger names if it frequently fails against opponents it knows best?`\
 https://nytimes.com/athletic/5599151/2024/06/28/usmnt-generation-failed-panama-copa-america/
 
+**How to fix Brazil: 'Dirty movement', Endrick as a No 9 and a midfield rejig**\
+`The drab draw with Costa Rica on Monday presented several tactical problems, but there are answers at hand...`\
+https://nytimes.com/athletic/5597087/2024/06/28/brazil-copa-america-tactics/
+
 **U.S. Allies Watch the Debate With Shaking Heads and a Question: What Now?**\
 `Across Asia, there was little talk about winning, and more concern about American stability — both domestically and on crucial foreign policy issues.`\
 https://nytimes.com/2024/06/28/world/asia/biden-trump-debate-allies.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/28/nyregion/nyc-homeless-older-people.html
 **7.2-Magnitude Earthquake Strikes Off Peru**\
 `A tsunami alert was lifted about an hour after the quake struck off the coast of the southern region of Arequipa. There were reports of minor injuries and some damage.`\
 https://nytimes.com/2024/06/28/world/americas/peru-earthquake.html
-
-**Offstage, a Band of Biden Defenders Braves a Sea of Trump Swagger**\
-`Supporters of both candidates were at the debate to sell their version of reality. One group seemed to have an easier time with it.`\
-https://nytimes.com/2024/06/28/us/politics/presidential-debate-scene.html
 
