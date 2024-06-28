@@ -1,3 +1,11 @@
+**Fearful and Doubting Biden, Democrats Face an Uncertain Path Forward**\
+`A range of despairing Democrats began to reconsider their nominee after his rough debate showing, but there was no agreement on how, or whether, to urge him to step off the ticket.`\
+https://nytimes.com/2024/06/28/us/politics/biden-democrats-nominee-2024-election.html
+
+**The Supreme Court Thinks That by Arguing More, We Can Be Less Divided**\
+`Everyone in our system, including judges and members of Congress, will be nudged to do their proper constitutional work.`\
+https://nytimes.com/2024/06/28/opinion/supreme-court-chevron-congress.html
+
 **New Jersey Tells Trump’s Golf Clubs to Show They Deserve Liquor Licenses**\
 `The state said that former President Donald J. Trump’s felony convictions may mean he does not have the moral character to serve drinks.`\
 https://nytimes.com/2024/06/28/nyregion/trump-golf-clubs-liquor-licenses.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/28/arts/music/amplifier-newsletter-girl-groupers-gon
 **Learn the Secrets to Perfect Pasta Every Time**\
 `In the latest installment of her YouTube series, the cookbook author and chef Sohla El-Waylly will teach you how to tame that pantry workhorse.`\
 https://nytimes.com/article/pasta.html
-
-**Leading Democrats Vouch for Biden, but Concede a ‘Bad Night’**\
-`The president’s surrogates acknowledged his struggles in the debate but said that one night did not reflect his successes, or the dangers of a second Trump term.`\
-https://nytimes.com/2024/06/28/us/politics/biden-debate-pelosi-hakeem-jeffries.html
-
-**Utah geared up for a fight in anticipation of the court’s ruling.**\
-`By Christina Jewett`\
-https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/utah-geared-up-for-a-fight-in-anticipation-of-the-courts-ruling
 
