@@ -1,3 +1,11 @@
+**Judge John Hodgman on Speaking Like a Local While Traveling**\
+`Should this father be trying to communicate in the language of the places he visits if it’s embarrassing his son?`\
+https://nytimes.com/2024/06/28/magazine/judge-john-hodgman-on-speaking-like-a-local-while-traveling.html
+
+**Weakening Regulatory Agencies Will Be a Key Legacy of the Roberts Court**\
+`Two rulings this week by the Republican-appointed majority add to its steady pursuit of enfeebling the ability of the administrative state to impose rules on powerful business interests.`\
+https://nytimes.com/2024/06/28/us/politics/supreme-court-regulatory-agencies.html
+
 **6 Paperbacks to Read This Week**\
 `Selected paperbacks from the Book Review, including titles by Darrin Bell, Maggie Smith, David Friend and more.`\
 https://nytimes.com/interactive/2024/06/28/books/review/new-paperbacks-bell.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/25/opinion/thepoint/voters-must-decide-who-shou
 **Before LeBron and Bronny, These Fathers and Sons Made Sports History**\
 `The Los Angeles Lakers are poised to have the first father-son N.B.A. duo in league history. But other dads and sons have played pro sports together as well.`\
 https://nytimes.com/2024/06/28/sports/basketball/father-son-lebron-bronny-james-lakers.html
-
-**Trump’s use of ‘Palestinian’ as an insult raises alarms for some.**\
-`By Liam Stack`\
-https://nytimes.com/live/2024/06/28/us/trump-biden-debate/trumps-use-of-palestinian-as-an-insult-raises-alarms-for-some
-
-**Driver Is Convicted of Killing of 8 People in Texas**\
-`A jury convicted the driver of eight counts of intoxication manslaughter after he plowed into a crowd of migrants in Brownsville, Texas, last year. He faces up to 20 years in prison on each count.`\
-https://nytimes.com/2024/06/28/us/texas-george-alvarez-migrants-guilty.html
 
