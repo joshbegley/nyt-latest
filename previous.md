@@ -1,3 +1,11 @@
+**Downballot Republicans Seize on Biden’s Halting Debate Performance**\
+`Facing resilient Democratic incumbents, G.O.P. House and Senate nominees highlighted their opponents’ support for President Biden after he faltered in the presidential debate.`\
+https://nytimes.com/2024/06/28/us/politics/senate-republicans-biden-debate.html
+
+**Student Loan Payments Paused for 3 Million in SAVE Program**\
+`The Education Department said it would put the borrowers in forbearance while it recalculated their payments to comply with recent court rulings.`\
+https://nytimes.com/2024/06/28/business/student-loans-payments-save-biden.html
+
 **After Biden’s Debate Disaster, an Uncertain Path**\
 `Also, the Supreme Court ruled that prosecutors overstepped in Jan. 6 case. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/06/28/briefing/biden-debate-disaster-supreme-court-jan-6.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/28/us/politics/democrats-biden-debate-supreme-court.
 **Paul Sperry, Tenor Who Specialized in American Song, Dies at 90**\
 `He carved out a niche by singing songs by living composers from his own country, and was praised by critics at home and abroad.`\
 https://nytimes.com/2024/06/28/arts/music/paul-sperry-dead.html
-
-**The Best Engagement Gifts**\
-`Take the guesswork out of the present.`\
-https://nytimes.com/interactive/2024/06/28/smarter-living/wirecutter/engagement-gifts.html
-
-**Voters Must Decide Who Should Be the King of America’s Nuclear Monarchy**\
-`The president controls the deadliest weapon arsenal known to man.`\
-https://nytimes.com/live/2024/06/25/opinion/thepoint/voters-must-decide-who-should-be-the-king-of-americas-nuclear-monarchy
 

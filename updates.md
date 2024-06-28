@@ -1,3 +1,11 @@
+**Downballot Republicans Seize on Biden’s Halting Debate Performance**\
+`Facing resilient Democratic incumbents, G.O.P. House and Senate nominees highlighted their opponents’ support for President Biden after he faltered in the presidential debate.`\
+https://nytimes.com/2024/06/28/us/politics/senate-republicans-biden-debate.html
+
+**Student Loan Payments Paused for 3 Million in SAVE Program**\
+`The Education Department said it would put the borrowers in forbearance while it recalculated their payments to comply with recent court rulings.`\
+https://nytimes.com/2024/06/28/business/student-loans-payments-save-biden.html
+
 **After Biden’s Debate Disaster, an Uncertain Path**\
 `Also, the Supreme Court ruled that prosecutors overstepped in Jan. 6 case. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/06/28/briefing/biden-debate-disaster-supreme-court-jan-6.html
