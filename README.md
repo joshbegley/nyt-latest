@@ -1,3 +1,11 @@
+**Doris Allen, Analyst Who Saw the Tet Offensive Coming, Is Dead at 97**\
+`Her warning of a big buildup of enemy troops poised to attack South Vietnam in 1968 was ignored, a major U.S. Army intelligence failure during the war.`\
+https://nytimes.com/2024/06/28/world/asia/doris-allen-dead.html
+
+**To Serve His Country, President Biden Should Leave the Race**\
+`The president’s inadequate performance in the debate made it clear he is not the man he was four years ago.`\
+https://nytimes.com/2024/06/28/opinion/biden-election-debate-trump.html
+
 **Downballot Republicans Seize on Biden’s Halting Debate Performance**\
 `Facing resilient Democratic incumbents, G.O.P. House and Senate nominees highlighted their opponents’ support for President Biden after he faltered in the presidential debate.`\
 https://nytimes.com/2024/06/28/us/politics/senate-republicans-biden-debate.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/25/opinion/thepoint/how-biden-should-withdraw
 **Supreme Court Rejects Bannon’s Appeal to Delay Prison Sentence**\
 `Stephen Bannon will have to begin serving four months in prison on Monday, after the court turned aside his request to remain free while he appeals his conviction for contempt of Congress.`\
 https://nytimes.com/2024/06/28/us/politics/steve-bannon-supreme-court-appeal.html
-
-**A Dark Day for Democrats**\
-`The combination of President Biden’s debate performance and adverse Supreme Court rulings left Democrats reeling and in despair with elections not far off.`\
-https://nytimes.com/2024/06/28/us/politics/democrats-biden-debate-supreme-court.html
-
-**Paul Sperry, Tenor Who Specialized in American Song, Dies at 90**\
-`He carved out a niche by singing songs by living composers from his own country, and was praised by critics at home and abroad.`\
-https://nytimes.com/2024/06/28/arts/music/paul-sperry-dead.html
 
