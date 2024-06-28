@@ -1,40 +1,40 @@
-**What we're hearing about the Canucks' draft plans and free agency priorities**\
-`The Canucks have the intention and flexibility required to further remake their roster this upcoming weekend.`\
-https://nytimes.com/athletic/5598536/2024/06/27/canucks-nhl-draft-jake-guentzel/
+**Why Britain’s Murky Election Betting Scandal Is Causing Outrage**\
+`The embattled Conservative Party is embroiled in investigations over whether some of its own staff members used insider knowledge to bet on the timing of the general election.`\
+https://nytimes.com/2024/06/28/world/europe/uk-election-betting-scandal.html
 
-**A Raspy Biden Struggles in Prime Time**\
-`President Biden needed to calm concerns about his age and mental acuity. Instead, he inflamed them, raising questions about whether he could carry on as the Democratic nominee.`\
-https://nytimes.com/2024/06/27/us/politics/biden-debate-performance.html
+**Iran’s Presidential Candidates: Who Are They?**\
+`Four of the six candidates selected by officials to run in Iran’s special presidential election are still in the running after the president died in a helicopter crash last month.`\
+https://nytimes.com/2024/06/28/world/middleeast/irans-presidential-candidates.html
 
-**Who Won the Debate? Biden Stumbles Left Trump on Top**\
-`A halting debate performance by President Biden left Democratic strategists reeling, raising questions about his fitness to stay in the race.`\
-https://nytimes.com/2024/06/27/us/politics/biden-trump-debate-who-won.html
+**Biden to Protect Hundreds of Thousands of Haitians From Deportation**\
+`The plan giving temporary protected status to people from the Caribbean island who arrived after November 2022 comes amid a flurry of recent immigration moves by the president.`\
+https://nytimes.com/2024/06/28/us/politics/biden-haitians-deportation.html
 
-**“During my four years, I had the best environmental numbers ever.”**\
-`By Coral Davenport`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/during-my-four-years-i-had-the-best-environmental-numbers-ever
+**Quotation of the Day: Small Circle of Advisors Led Macron to Gamble**\
+`Quotation of the Day for Friday, June 28, 2024.`\
+https://nytimes.com/2024/06/28/pageoneplus/quotation-of-the-day-small-circle-of-advisors-led-macron-to-gamble.html
 
-**Part of Roof Collapses at India’s Busiest Airport After Heavy Rains**\
-`At least six people were injured when parts of the roof caved in and crushed vehicles at Indira Gandhi airport in New Delhi, according to local reports. All domestic departures were suspended.`\
-https://nytimes.com/2024/06/27/world/asia/india-delhi-airport-roof-collapse.html
+**A Perfect Match, Except for God and Dogs**\
+`What happens when deal breakers don’t break the deal?`\
+https://nytimes.com/2024/06/28/style/modern-love-muslim-marriage-perfect-match-god-and-dogs.html
 
-**President Biden, I’ve Seen Enough**\
-`He must withdraw from the race.`\
-https://nytimes.com/2024/06/25/opinion/joe-biden-drop-out.html
+**Corrections: June 28, 2024**\
+`Corrections that appeared in print on Friday, June 28, 2024.`\
+https://nytimes.com/2024/06/28/pageoneplus/corrections-june-28-2024.html
 
-**“Mexico is working with us to make sure they don’t have the technology to be able to put it together.”**\
-`By Emiliano Rodríguez Mega`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/mexico-is-working-with-us-to-make-sure-they-dont-have-the-technology-to-be-able-to-put-it-together
+**A Proposal in the Offing? Not so Fast.**\
+`Stephanie Fleischman expected to become engaged when Zach Kuperman planned a trip to Italy, but there were several other surprises along the way.`\
+https://nytimes.com/2024/06/28/style/stephanie-fleischman-zach-kuperman-wedding.html
 
-**“He wants to get rid of Social Security. He thinks that there’s plenty to cut in Social Security. He’s wanted to cut Social Security and Medicare both times.”**\
-`By Angelo Fichera`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/he-wants-to-get-rid-of-social-security-he-thinks-that-theres-plenty-to-cut-in-social-security-hes-wanted-to-cut-social-security-
+**Outside the Campus Cafeteria, It Was Love at First Sight**\
+`Lucie Lott felt and Lalo Fabregas did a triple take the first time they saw each other. He almost canceled their first date for fear of falling in love.`\
+https://nytimes.com/2024/06/28/style/lucie-lott-lalo-fabregas-wedding.html
 
-**A Fumbling Performance, and a Panicking Party**\
-`President Biden’s shaky, halting debate performance has top Democrats talking about replacing him on the ticket.`\
-https://nytimes.com/2024/06/27/us/politics/biden-debate-democrats.html
+**Sparks Flew All Over the World**\
+`Aggie Lal and Jacob Riglin first met as travel influencers in Thailand, got together in California and got back together in Bali (thanks, in part, to rescued puppies).`\
+https://nytimes.com/2024/06/28/style/aggie-lal-jacob-riglin-wedding.html
 
-**Asked About Their Ages, Biden Deflects and Trump Brags About His Golf Skills**\
-`Age has loomed over the 2024 campaign, and neither candidate’s answer might have been enough to push aside voters’ qualms.`\
-https://nytimes.com/2024/06/27/us/politics/biden-trump-age-golf.html
+**A Tennis Ball to the Head Was Just the Start of Their Love Story**\
+`Eric Rothman had a funny way of asking Courtney DiGia to prom. Ultimately, it worked out for them.`\
+https://nytimes.com/2024/06/28/style/courtney-digia-eric-rothman-wedding.html
 
