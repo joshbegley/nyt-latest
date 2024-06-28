@@ -1,3 +1,19 @@
+**One Way to Make Russia Pay for Ukraine? Take Its Money.**\
+`U.S. and E.U. leaders are divided over how far to go in the economic war against Vladimir Putin.`\
+https://nytimes.com/2024/06/28/opinion/russia-ukraine-sanctions.html
+
+**Why Conservatives Shouldn’t Be Doomers**\
+`A late-Soviet debate night doesn’t mean we’re in late-Soviet America.`\
+https://nytimes.com/2024/06/28/opinion/conservative-doomers.html
+
+**Racist and Homophobic Comments Unsettle U.K. Election Campaign**\
+`Prime Minister Rishi Sunak denounced a slur used against him by a man campaigning for Reform U.K., the anti-immigration party led by Nigel Farage.`\
+https://nytimes.com/2024/06/28/world/europe/racist-homophobic-reform-uk.html
+
+**On Immigration, Biden Offers a Muted, Muddled Message**\
+`Former President Donald J. Trump continued to spread fear of immigrants, while the president did not define any broader strategy on the issue.`\
+https://nytimes.com/2024/06/28/us/politics/biden-trump-immigration.html
+
 **Fearful and Doubting Biden, Democrats Face an Uncertain Path Forward**\
 `A range of despairing Democrats began to reconsider their nominee after his rough debate showing, but there was no agreement on how, or whether, to urge him to step off the ticket.`\
 https://nytimes.com/2024/06/28/us/politics/biden-democrats-nominee-2024-election.html
