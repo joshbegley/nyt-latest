@@ -1,3 +1,23 @@
+**Carlos Rodón was a disaster once again. Where do the Yankees go from here?**\
+`Rodón isn't going to turn into a junkballer, but he acknowledged the sequencing needs to improve.`\
+https://nytimes.com/athletic/5598515/2024/06/28/yankees-carlos-rodon-disaster-again/
+
+**Amid Perilous Times, Iran Holds Vote to Pick a President**\
+`Whoever is chosen will have to cope with a cratering economy, regional strife and deep divisions and discord at home.`\
+https://nytimes.com/2024/06/28/world/middleeast/iran-president-election.html
+
+**‘It’s Frightening’: Democratic Voters Worried by Biden’s Struggles in Debate**\
+`Democrats found President Biden’s performance disconcerting, while Republicans were in a jubilant mood.`\
+https://nytimes.com/2024/06/28/us/biden-trump-debate-voter-reaction.html
+
+**Chelsea's Guiu deal is a no-lose situation - but can they make it a win?**\
+`Signing a player like Guiu for £5.1m is as stress-free as it gets. Chelsea hope he succeeds, but there will be no regret if he does not`\
+https://nytimes.com/athletic/5596495/2024/06/28/chelsea-transfers-marc-guiu/
+
+**Keep Kudus, sign a striker, choose a captain - Lopetegui's to-do list at West Ham**\
+`The new West Ham coach will set out his agenda for his reign on Monday — there is much work to do before Premier League season starts`\
+https://nytimes.com/athletic/5514646/2024/06/28/julen-lopetegui-west-ham-kudus-striker/
+
 **Six Takeaways From the First Presidential Debate**\
 `In a testy, personal clash, President Biden failed to ease worries about his age, Donald Trump forcefully made his case (with wild claims and exaggerations) and the moderators held their fact-checking fire.`\
 https://nytimes.com/2024/06/28/us/politics/presidential-debate-takeaways-biden-trump.html
