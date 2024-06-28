@@ -1,3 +1,15 @@
+**“I was getting out of Afghanistan.”**\
+`By David E. Sanger`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/i-was-getting-out-of-afghanistan
+
+**“He’s the only president other than Herbert Hoover who’s lost more jobs than he had when he began.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/hes-the-only-president-other-than-herbert-hoover-whos-lost-more-jobs-than-he-had-when-he-began
+
+**“The jobs went down, and then they bounced back. And he’s taking credit for bounce-back jobs.”**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/the-jobs-went-down-and-then-they-bounced-back-and-hes-taking-credit-for-bounce-back-jobs
+
 **“I gave you the largest cut in history.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/i-gave-you-the-largest-cut-in-history
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5598200/2024/06/27/tim-weah-red-card-usmnt/
 **Tracking the Attacks in the First Presidential Debate**\
 `See how much time Biden and Trump spend attacking each other in the first presidential debate.`\
 https://nytimes.com/interactive/2024/06/27/us/politics/trump-biden-presidential-debate-tracker.html
-
-**Calder Trophy runner-up, a possible extension on the way, Wild's Brock Faber looks forward to big sophomore year**\
-`Faber, especially in his home state, is humbled by the accolades he receives and the spotlight he gets.`\
-https://nytimes.com/athletic/5546942/2024/06/27/wild-brock-faber-contract-calder-trophy/
-
-**Uber and Lyft Agree to Give Massachusetts Drivers Minimum Pay**\
-`The deal, which includes a $175 million settlement with the state, keeps the drivers classified as independent contractors, not employees.`\
-https://nytimes.com/2024/06/27/technology/uber-lyft-massachusetts-settlement.html
-
-**What USMNT needs to qualify for Copa America quarterfinals**\
-`The USMNT suffered a shock defeat to Panama at Copa America on Thursday to leave their chances of progression beyond the group in doubt.`\
-https://nytimes.com/athletic/5598412/2024/06/27/usmnt-copa-america-out-permutations/
 
