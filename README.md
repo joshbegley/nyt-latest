@@ -31,7 +31,7 @@ https://nytimes.com/live/2024/06/27/us/biden-trump-debate/a-look-back-at-memorab
 https://nytimes.com/athletic/5598066/2024/06/27/connor-bedard-calder-trophy-blackhawks/
 
 **Schools Police Chief Indicted in Uvalde Shooting Response**\
-`A grand jury indicted the former chief of police for schools in Uvalde, Texas, for his role in the delayed response to a gunman who killed 19 students and two teachers in 2022.`\
+`The indictment, which comes more than two years after the massacre at Robb Elementary School, is the first set of criminal charges to stem from the attack.`\
 https://nytimes.com/2024/06/27/us/uvalde-shooting-pete-arredondo-indicted.html
 
 **This Is the First Presidential Debate Without an In-Person Audience Since 1960**\
