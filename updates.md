@@ -1,3 +1,11 @@
+**The Bible in Public Schools? Oklahoma Pushes Limits of Long Tradition.**\
+`The Bible has a deep history in American classrooms, but the state’s provocative superintendent wants to broadly expand its influence.`\
+https://nytimes.com/2024/06/28/education/bible-schools-classrooms.html
+
+**In Ukraine, Biden’s debate performance fuels uncertainty about American support.**\
+`In the aftermath, commentators said the government in Kyiv should start reaching out to Donald J. Trump’s camp.`\
+https://nytimes.com/live/2024/06/28/us/trump-biden-debate/in-ukraine-bidens-debate-performance-fuels-uncertainty-about-american-support
+
 **Weather System in the Atlantic Could Become First Hurricane of the Season**\
 `Forecasters expect the system to become a tropical storm as it approaches the Caribbean, likely named Beryl.`\
 https://nytimes.com/article/tropical-storm-beryl-hurricane.html

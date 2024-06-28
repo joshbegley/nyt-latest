@@ -1,3 +1,11 @@
+**The Bible in Public Schools? Oklahoma Pushes Limits of Long Tradition.**\
+`The Bible has a deep history in American classrooms, but the state’s provocative superintendent wants to broadly expand its influence.`\
+https://nytimes.com/2024/06/28/education/bible-schools-classrooms.html
+
+**In Ukraine, Biden’s debate performance fuels uncertainty about American support.**\
+`In the aftermath, commentators said the government in Kyiv should start reaching out to Donald J. Trump’s camp.`\
+https://nytimes.com/live/2024/06/28/us/trump-biden-debate/in-ukraine-bidens-debate-performance-fuels-uncertainty-about-american-support
+
 **Weather System in the Atlantic Could Become First Hurricane of the Season**\
 `Forecasters expect the system to become a tropical storm as it approaches the Caribbean, likely named Beryl.`\
 https://nytimes.com/article/tropical-storm-beryl-hurricane.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/28/briefing/biden-debate-disaster-supreme-court-jan-
 **Judge John Hodgman on Speaking Like a Local While Traveling**\
 `Should this father be trying to communicate in the language of the places he visits if it’s embarrassing his son?`\
 https://nytimes.com/2024/06/28/magazine/judge-john-hodgman-on-speaking-like-a-local-while-traveling.html
-
-**Weakening Regulatory Agencies Will Be a Key Legacy of the Roberts Court**\
-`Two rulings this week by the Republican-appointed majority add to its steady pursuit of enfeebling the ability of the administrative state to impose rules on powerful business interests.`\
-https://nytimes.com/2024/06/28/us/politics/supreme-court-regulatory-agencies.html
-
-**6 Paperbacks to Read This Week**\
-`Selected paperbacks from the Book Review, including titles by Darrin Bell, Maggie Smith, David Friend and more.`\
-https://nytimes.com/interactive/2024/06/28/books/review/new-paperbacks-bell.html
 
