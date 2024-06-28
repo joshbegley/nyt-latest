@@ -1,3 +1,11 @@
+**Businesses Cheer Their New Freedom to Violate Regulations**\
+`Conservative justices take a big step in their campaign to shrink government oversight.`\
+https://nytimes.com/live/2024/06/25/opinion/thepoint/supreme-court-chevron-regulations
+
+**Obama Defends Biden: ‘Bad Debate Nights Happen’**\
+`The former president faced a similar crisis of confidence in his re-election campaign after a bad debate performance in 2012, and he defended his former running mate in a social media post.`\
+https://nytimes.com/2024/06/28/us/politics/obama-biden-debate.html
+
 **What does it mean when Israel authorizes an illegal settlement?**\
 `Israel says it will legalize five West Bank settlements previously considered illegal, as the government accelerates what critics call a slow-motion annexation of land meant for a Palestinian state.`\
 https://nytimes.com/live/2024/06/28/world/israel-gaza-war-hamas/israel-legalize-settlements-explainer
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/28/us/emergency-abortion-idaho-mother.html
 **The Bible in Public Schools? Oklahoma Pushes Limits of Long Tradition.**\
 `The Bible has a deep history in American classrooms, but the state’s provocative superintendent wants to broadly expand its influence.`\
 https://nytimes.com/2024/06/28/education/bible-schools-classrooms.html
-
-**In Ukraine, Biden’s debate performance fuels uncertainty about American support.**\
-`In the aftermath, commentators said the government in Kyiv should start reaching out to Donald J. Trump’s camp.`\
-https://nytimes.com/live/2024/06/28/us/trump-biden-debate/in-ukraine-bidens-debate-performance-fuels-uncertainty-about-american-support
-
-**Weather System in the Atlantic Could Become First Hurricane of the Season**\
-`Forecasters expect the system to become a tropical storm as it approaches the Caribbean, likely named Beryl.`\
-https://nytimes.com/article/tropical-storm-beryl-hurricane.html
 
