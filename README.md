@@ -6,6 +6,10 @@ https://nytimes.com/live/2024/06/27/us/biden-trump-debate/the-group-that-was-cut
 `LAS VEGAS — The Colorado Avalanche’s Nathan MacKinnon won his first career Hart Trophy, finishing ahead of leading point-getter Nikita Kucherov and Connor McDavid for the NHL&#8217;s MVP award.`\
 https://nytimes.com/athletic/5597749/2024/06/27/nathan-mackinnon-nhl-mvp-hart-trophy/
 
+**USMNT 1-2 Panama: Takeaways from a loss that complicates the U.S.'s path forward**\
+`A wild night in Atlanta leaves the USMNT's Copa America campaign in a precarious position `\
+https://nytimes.com/athletic/5598040/2024/06/27/usmnt-panama-copa-america/
+
 **A look back at memorable presidential debate moments.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/a-look-back-at-memorable-presidential-debate-moments
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/27/opinion/supreme-court-murthy-missouri-social-medi
 **Bolivia’s President Confronts a Coup Attempt — and His Onetime Mentor**\
 `After facing down the general who tried to oust him, President Luis Arce is battling a more formidable figure, Evo Morales, a former president who wants to reclaim power.`\
 https://nytimes.com/2024/06/27/world/americas/bolivia-coup-attempt-luis-arce.html
-
-**Biden Ended the Trump Crime Wave**\
-`Homicides, which surged during 2020, have been plunging.`\
-https://nytimes.com/2024/06/27/opinion/biden-trump-debate-crime.html
 
