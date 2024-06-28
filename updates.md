@@ -1,3 +1,15 @@
+**What we're hearing about the Canucks' draft plans and free agency priorities**\
+`The Canucks have the intention and flexibility required to further remake their roster this upcoming weekend.`\
+https://nytimes.com/athletic/5598536/2024/06/27/canucks-nhl-draft-jake-guentzel/
+
+**A Raspy Biden Melts Down in Prime Time**\
+`President Biden needed to calm concerns about his age and mental acuity. Instead, he inflamed them, raising questions about whether he could carry on as the Democratic nominee.`\
+https://nytimes.com/2024/06/27/us/politics/biden-debate-performance.html
+
+**Who Won the Debate? Biden Stumbles Left Trump on Top**\
+`A halting debate performance by President Biden left Democratic strategists reeling, raising questions about his fitness to stay in the race.`\
+https://nytimes.com/2024/06/27/us/politics/biden-trump-debate-who-won.html
+
 **“During my four years, I had the best environmental numbers ever.”**\
 `By Coral Davenport`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/during-my-four-years-i-had-the-best-environmental-numbers-ever

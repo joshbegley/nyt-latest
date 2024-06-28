@@ -1,3 +1,15 @@
+**What we're hearing about the Canucks' draft plans and free agency priorities**\
+`The Canucks have the intention and flexibility required to further remake their roster this upcoming weekend.`\
+https://nytimes.com/athletic/5598536/2024/06/27/canucks-nhl-draft-jake-guentzel/
+
+**A Raspy Biden Melts Down in Prime Time**\
+`President Biden needed to calm concerns about his age and mental acuity. Instead, he inflamed them, raising questions about whether he could carry on as the Democratic nominee.`\
+https://nytimes.com/2024/06/27/us/politics/biden-debate-performance.html
+
+**Who Won the Debate? Biden Stumbles Left Trump on Top**\
+`A halting debate performance by President Biden left Democratic strategists reeling, raising questions about his fitness to stay in the race.`\
+https://nytimes.com/2024/06/27/us/politics/biden-trump-debate-who-won.html
+
 **“During my four years, I had the best environmental numbers ever.”**\
 `By Coral Davenport`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/during-my-four-years-i-had-the-best-environmental-numbers-ever
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/27/us/politics/biden-debate-democrats.html
 **Asked About Their Ages, Biden Deflects and Trump Brags About His Golf Skills**\
 `Age has loomed over the 2024 campaign, and neither candidate’s answer might have been enough to push aside voters’ qualms.`\
 https://nytimes.com/2024/06/27/us/politics/biden-trump-age-golf.html
-
-**“He wants to get rid of the A.C.A. again, and they’re going to try again.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/he-wants-to-get-rid-of-the-aca-again-and-theyre-going-to-try-again
-
-**“And what he’s done to the Black population is horrible, including the fact that for 10 years he called them superpredators.”**\
-`By Angelo Fichera`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate-fact-check/and-what-hes-done-to-the-black-population-is-horrible-including-the-fact-that-for-10-years-he-called-them-superpredators
-
-**“Even from a medical standpoint, right to try: where we can try space-age materials instead of going to Asia or going to Europe and trying to get, when you’re terminally ill, now you can go and you can get something, you sign a document. They’ve been trying to get it for 42 years. But you know, what we did for the military was incredible, choice for our soldiers, where our soldiers, instead of waiting for three months to see a doctor, can go out and get themselves fixed up and readied up, and take care of themselves. And they’re living and that’s why I had the highest approval rating of the history of the V.A.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/even-from-a-medical-standpoint-right-to-try-where-we-can-try-space-age-materials-instead-of-going-to-asia-or-going-to-europe-and
 
