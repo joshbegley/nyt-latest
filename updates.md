@@ -1,3 +1,7 @@
+**President Biden Is My Friend. He Must Bow Out of the Race.**\
+`Donald Trump is too grave a threat to America. Democrats need a nominee who can unite the country and articulate a compelling vision for it.`\
+https://nytimes.com/2024/06/28/opinion/joe-biden-tom-friedman.html
+
 **Biden Cannot Go on Like This**\
 `Democrats must grapple with his disastrous debate.`\
 https://nytimes.com/2024/06/28/opinion/presidential-debate-trump-biden-2024.html

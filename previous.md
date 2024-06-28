@@ -1,3 +1,7 @@
+**President Biden Is My Friend. He Must Bow Out of the Race.**\
+`Donald Trump is too grave a threat to America. Democrats need a nominee who can unite the country and articulate a compelling vision for it.`\
+https://nytimes.com/2024/06/28/opinion/joe-biden-tom-friedman.html
+
 **Biden Cannot Go on Like This**\
 `Democrats must grapple with his disastrous debate.`\
 https://nytimes.com/2024/06/28/opinion/presidential-debate-trump-biden-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/28/opinion/presidential-debate-winner-loser.html
 **Harris Defends Biden’s Debate Performance, but Acknowledges ‘a Slow Start’**\
 `In a tense interview, Vice President Kamala Harris defended President Biden’s record in office and downplayed the moments during the debate where he faltered.`\
 https://nytimes.com/2024/06/28/us/politics/kamala-harris-biden-debate.html
-
-**Friday Briefing**\
-`Biden stumbled in the first 2024 debate.`\
-https://nytimes.com/2024/06/28/briefing/trump-biden-debate-france-election.html
 
