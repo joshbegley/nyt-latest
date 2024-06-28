@@ -1,3 +1,11 @@
+**Prosecutors in Menendez Bribery Trial Rest Their Case**\
+`After seven weeks of trial, lawyers for Senator Robert Menendez are expected to begin calling witnesses on Monday to rebut the government’s case.`\
+https://nytimes.com/2024/06/28/nyregion/robert-menendez-bribery-trial.html
+
+**Towa Bird’s Bouncy Revenge Rock, and 10 More New Songs**\
+`Hear tracks by Camila Cabello, Wilco, Xavi and others.`\
+https://nytimes.com/2024/06/28/arts/music/playlist-camila-cabello-noah-kahan-towa-bird.html
+
 **Conservative Christian Activists See Opportunity in Supreme Court Ruling**\
 `The decision overturning a precedent known as Chevron deference was celebrated by those who would target medication abortion and rights for transgender people.`\
 https://nytimes.com/2024/06/28/us/politics/abortion-chevron-ruling.html

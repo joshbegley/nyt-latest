@@ -1,3 +1,11 @@
+**Prosecutors in Menendez Bribery Trial Rest Their Case**\
+`After seven weeks of trial, lawyers for Senator Robert Menendez are expected to begin calling witnesses on Monday to rebut the government’s case.`\
+https://nytimes.com/2024/06/28/nyregion/robert-menendez-bribery-trial.html
+
+**Towa Bird’s Bouncy Revenge Rock, and 10 More New Songs**\
+`Hear tracks by Camila Cabello, Wilco, Xavi and others.`\
+https://nytimes.com/2024/06/28/arts/music/playlist-camila-cabello-noah-kahan-towa-bird.html
+
 **Outside ‘Jittery Joe’s,’ the Biden campaign pushes donors for calm.**\
 `By Shane Goldmacher`\
 https://nytimes.com/live/2024/06/28/us/trump-biden-debate/outside-jittery-joes-the-biden-campaign-pushes-donors-for-calm
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/28/opinion/kamala-harris-biden-debate.html
 **Conservative Christian Activists See Opportunity in Supreme Court Ruling**\
 `The decision overturning a precedent known as Chevron deference was celebrated by those who would target medication abortion and rights for transgender people.`\
 https://nytimes.com/2024/06/28/us/politics/abortion-chevron-ruling.html
-
-**Social Conservatives Push Trump on the G.O.P.’s Anti-Abortion Platform**\
-`Leaders of the anti-abortion movement sent a letter to Donald J. Trump amid worries he may try to weaken the anti-abortion language in the party platform.`\
-https://nytimes.com/2024/06/28/us/politics/trump-abortion-letter.html
-
-**Democrats, anticipating Chevron’s demise, gave E.P.A. more power in recent climate law.**\
-`By Coral Davenport`\
-https://nytimes.com/2024/06/28/us/politics/democrats-anticipating-chevrons-demise-gave-epa-more-power-in-recent-climate-law.html
 
