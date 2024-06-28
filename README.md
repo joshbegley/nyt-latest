@@ -22,7 +22,7 @@ https://nytimes.com/2024/06/28/learning/word-of-the-day-imperative.html
 `Being the only physician around for hundreds of miles isn’t always bad. “It’s quite liberating to be like, ‘I’m the best person here for the job’,” said one doctor.`\
 https://nytimes.com/2024/06/28/world/australia/remote-doctors.html
 
-**President Biden Is My Friend. He Must Bow Out of the Race.**\
+**Joe Biden Is a Good Man and a Good President. He Must Bow Out of the Race.**\
 `Donald Trump is too grave a threat to America. Democrats need a nominee who can unite the country and articulate a compelling vision for it.`\
 https://nytimes.com/2024/06/28/opinion/joe-biden-tom-friedman.html
 
