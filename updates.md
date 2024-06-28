@@ -1,3 +1,7 @@
+**‘This Was a Disaster for America’: Our Columnists on the Presidential Debate**\
+`12 writers assess who won and lost the debate and distill what stood out to them.`\
+https://nytimes.com/2024/06/28/opinion/presidential-debate-winner-loser.html
+
 **Harris Defends Biden’s Debate Performance, but Acknowledges ‘a Slow Start’**\
 `In a tense interview, Vice President Kamala Harris defended President Biden’s record in office and downplayed the moments during the debate where he faltered.`\
 https://nytimes.com/2024/06/28/us/politics/kamala-harris-biden-debate.html
