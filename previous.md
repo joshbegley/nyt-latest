@@ -1,3 +1,11 @@
+**Overturning the Chevron decision has been a major goal of the conservative legal movement.**\
+`The Supreme Court heard oral arguments yesterday on one of the biggest cases of the current term.`\
+https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/overturning-the-chevron-decision-has-been-a-major-goal-of-the-conservative-legal-movement
+
+**A Visual History of the Harlem Renaissance**\
+`The Harlem Renaissance changed the world. We’ve gathered dozens of images, many that we’ve never published, showing the people and the art that they created.`\
+https://nytimes.com/interactive/2024/arts/harlem-renaissance-100-anniversary.html
+
 **The ruling will embolden challenges against financial regulators.**\
 `By Stacy Cowley and Emily Flitter`\
 https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/the-ruling-will-embolden-challenges-against-financial-regulators
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/27/us/biden-trump-debate/in-mexico-city-debate-
 **The oversight of food, drugs and tobacco is expected to be a target.**\
 `By Christina Jewett`\
 https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/the-oversight-of-food-drugs-and-tobacco-is-expected-to-be-a-target
-
-**What does the law at issue in the case actually say?**\
-`By Adam Liptak`\
-https://nytimes.com/live/2024/06/28/us/supreme-court-jan-6/what-does-the-law-at-issue-in-the-case-actually-say
-
-**Here’s What the Court’s Chevron Ruling Could Mean in Everyday Terms**\
-`The decision is expected to prompt a rush of litigation challenging regulations across the entire federal government, from food safety to the environment.`\
-https://nytimes.com/2024/06/28/us/politics/chevron-deference-decision-meaning.html
 

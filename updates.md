@@ -1,3 +1,11 @@
+**Overturning the Chevron decision has been a major goal of the conservative legal movement.**\
+`The Supreme Court heard oral arguments yesterday on one of the biggest cases of the current term.`\
+https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/overturning-the-chevron-decision-has-been-a-major-goal-of-the-conservative-legal-movement
+
+**A Visual History of the Harlem Renaissance**\
+`The Harlem Renaissance changed the world. We’ve gathered dozens of images, many that we’ve never published, showing the people and the art that they created.`\
+https://nytimes.com/interactive/2024/arts/harlem-renaissance-100-anniversary.html
+
 **The ruling will embolden challenges against financial regulators.**\
 `By Stacy Cowley and Emily Flitter`\
 https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/the-ruling-will-embolden-challenges-against-financial-regulators
