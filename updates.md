@@ -1,3 +1,11 @@
+**Michael Jackson Died With $500 Million in Debt**\
+`Jackson owed about $40 million to the tour promoter A.E.G. in 2009, his estate’s executors said in a court filing. They said all the debts have been eliminated.`\
+https://nytimes.com/2024/06/28/arts/michael-jackson-debt.html
+
+**Diplo, D.J. and Music Producer, Is Accused in Lawsuit of ‘Revenge Porn’**\
+`A woman accused Diplo of distributing intimate images and videos of her without her consent; his lawyer likened her suit to others “in search of a meritless payday.”`\
+https://nytimes.com/2024/06/28/arts/diplo-lawsuit-revenge-porn.html
+
 **First the Debate, Then a Supreme Court Ruling: Trump’s Big 24 Hours**\
 `Successive successes reinvigorated Donald Trump’s campaign a month after he became the first major party nominee convicted of a felony.`\
 https://nytimes.com/2024/06/28/us/politics/trump-debate-supreme-court.html
