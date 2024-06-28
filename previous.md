@@ -1,3 +1,7 @@
+**Summer Reading Contest, Week 4: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by July 5 at 9 a.m. Eastern. This week’s winners will be announced by July 17.`\
+https://nytimes.com/2024/06/28/learning/summer-reading-contest-week-4-what-got-your-attention-in-the-times-this-week.html
+
 **The Fed’s Preferred Inflation Measure Cools, Welcome News**\
 `The economy appears to be downshifting and price gains are moderating, as Federal Reserve officials creep closer to beating inflation.`\
 https://nytimes.com/2024/06/28/business/economy/federal-reserve-inflation-cools.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/28/us/trump-biden-debate/we-fact-checked-both-c
 **Princess Anne Returns Home From the Hospital**\
 `Anne, the younger sister of King Charles III, suffered a concussion and other injuries in an accident at her country residence, palace officials said.`\
 https://nytimes.com/2024/06/28/world/europe/princess-anne-home-hospital-accident.html
-
-**Kawakami: Warriors' Mike Dunleavy Jr. is ready for the big move, if it's available**\
-`Mike Dunleavy on lining up a big trade: "This stuff evolves, it changes so quickly. But the one thing I know is we're in position to do it."`\
-https://nytimes.com/athletic/5598630/2024/06/28/warriors-mike-dunleavy-jr-draft-trade-free-agency/
 
