@@ -2,7 +2,7 @@
 `Follow our Olympics coverage in the lead-up to the Paris Games.`\
 https://nytimes.com/athletic/5587698/2024/06/28/team-usa-olympics-medal-count-paris/
 
-**Deaths Linked to Japanese Supplement Suddenly Rises to 80**\
+**Deaths Linked to Japanese Supplement Suddenly Rise to 80**\
 `The case, involving a supplement intended to reduce cholesterol, has put attention on how companies are allowed to self-report claims about their products.`\
 https://nytimes.com/2024/06/28/business/kobayashi-pharmaceutical-supplement-deaths.html
 
