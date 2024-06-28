@@ -1,3 +1,23 @@
+**“They will take the life of a child in the eighth month, ninth month, even after birth.”**\
+`By Kate Zernike`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/they-will-take-the-life-of-a-child-in-the-eighth-month-ninth-month-even-after-birth
+
+**“I went to the World War II cemetery — World War I cemetery he refused to go to. He was standing with his four-star general, and he told me he said, ‘I don’t want to go in there because they’re a bunch of losers and suckers.’”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/i-went-to-the-world-war-ii-cemetery-world-war-i-cemetery-he-refused-to-go-to-he-was-standing-with-his-four-star-general-and-he-t
+
+**“Just take a look at where they are living. They are living in luxury hotels in New York City and other places.”**\
+`By Miriam Jordan`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/just-take-a-look-at-where-they-are-living-they-are-living-in-luxury-hotels-in-new-york-city-and-other-places
+
+**“He allowed millions of people to come in here from prisons, jails, and mental institutions — to come into our country and destroy our country.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/he-allowed-millions-of-people-to-come-in-here-from-prisons-jails-and-mental-institutions-to-come-into-our-country-and-destroy-ou
+
+**Biden begins the debate stammering and sounding raspy, and MAGA world quickly pounces.**\
+`By Kellen Browning`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/biden-hoarse-debate-raspy-voice
+
 **“Every legal scholar wanted it that way.”**\
 `By Elizabeth Dias`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/every-legal-scholar-wanted-it-that-way
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5598626/2024/06/27/lionel-messi-injury-argentina-co
 **‘N/A’ Review: For Nancy Pelosi and A.O.C., It’s a House Divided**\
 `Is moral leadership possible without parliamentary power? Two very familiar congresswomen battle it out onstage.`\
 https://nytimes.com/2024/06/27/theater/n-a-review-nancy-pelosi-aoc.html
-
-**“More people died under his administration — even though we had largely fixed it — more people died under his administration than our administration, and we were right in the middle of it.”**\
-`By Noah Weiland`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/more-people-died-under-his-administration-even-though-we-had-largely-fixed-it-more-people-died-under-his-administration-than-our
-
-**“This is something that everybody wanted.”**\
-`By Kate Zernike`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/this-is-something-that-everybody-wanted
-
-**“We have 1,000 trillionaires in America — I mean billionaires in America — and what’s happening, they’re in a situation where they in fact pay 8.2 percent in taxes.”**\
-`By Angelo Fichera`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/we-have-1000-trillionaires-in-america-i-mean-billionaires-in-america-and-whats-happening-theyre-in-a-situation-where-they-in-fac
-
-**NHL free-agent big board: Expanding to 75 top targets a night before the Draft**\
-`LAS VEGAS — They’ve barely had time to recover from the Stanley Cup celebrations in South Florida, and already it’s time to get down to business.`\
-https://nytimes.com/athletic/5598198/2024/06/27/nhl-free-agent-big-board-draft/
-
-**“Not going to drive them higher.”**\
-`By Ana Swanson`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/not-going-to-drive-them-higher
 

@@ -1,3 +1,7 @@
+**“We’re no longer respected as a country. They don’t respect our leadership. They don’t respect the United States anymore.”**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/were-no-longer-respected-as-a-country-they-dont-respect-our-leadership-they-dont-respect-the-united-states-anymore
+
 **“They will take the life of a child in the eighth month, ninth month, even after birth.”**\
 `By Kate Zernike`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/they-will-take-the-life-of-a-child-in-the-eighth-month-ninth-month-even-after-birth
@@ -14,7 +18,7 @@ https://nytimes.com/live/2024/06/27/us/biden-trump-debate/just-take-a-look-at-wh
 `By Linda Qiu`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/he-allowed-millions-of-people-to-come-in-here-from-prisons-jails-and-mental-institutions-to-come-into-our-country-and-destroy-ou
 
-**Biden begins the debate stammering and sounding raspy, and MAGA world quickly pounces.**\
+**Biden begins the debate hesitant and sounding raspy, and MAGA world quickly pounces.**\
 `By Kellen Browning`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/biden-hoarse-debate-raspy-voice
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/27/us/biden-trump-debate/first-of-all-the-supre
 **Messi misses Argentina training, status remains in doubt for Peru**\
 `Lionel Messi was absent from Argentina’s evening training session on Thursday in Miami ahead of their final group-stage game at Copa America.`\
 https://nytimes.com/athletic/5598626/2024/06/27/lionel-messi-injury-argentina-copa-america/
-
-**‘N/A’ Review: For Nancy Pelosi and A.O.C., It’s a House Divided**\
-`Is moral leadership possible without parliamentary power? Two very familiar congresswomen battle it out onstage.`\
-https://nytimes.com/2024/06/27/theater/n-a-review-nancy-pelosi-aoc.html
 

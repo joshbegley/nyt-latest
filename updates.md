@@ -1,3 +1,23 @@
+**“They will take the life of a child in the eighth month, ninth month, even after birth.”**\
+`By Kate Zernike`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/they-will-take-the-life-of-a-child-in-the-eighth-month-ninth-month-even-after-birth
+
+**“I went to the World War II cemetery — World War I cemetery he refused to go to. He was standing with his four-star general, and he told me he said, ‘I don’t want to go in there because they’re a bunch of losers and suckers.’”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/i-went-to-the-world-war-ii-cemetery-world-war-i-cemetery-he-refused-to-go-to-he-was-standing-with-his-four-star-general-and-he-t
+
+**“Just take a look at where they are living. They are living in luxury hotels in New York City and other places.”**\
+`By Miriam Jordan`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/just-take-a-look-at-where-they-are-living-they-are-living-in-luxury-hotels-in-new-york-city-and-other-places
+
+**“He allowed millions of people to come in here from prisons, jails, and mental institutions — to come into our country and destroy our country.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/he-allowed-millions-of-people-to-come-in-here-from-prisons-jails-and-mental-institutions-to-come-into-our-country-and-destroy-ou
+
+**Biden begins the debate stammering and sounding raspy, and MAGA world quickly pounces.**\
+`By Kellen Browning`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/biden-hoarse-debate-raspy-voice
+
 **“Every legal scholar wanted it that way.”**\
 `By Elizabeth Dias`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/every-legal-scholar-wanted-it-that-way
