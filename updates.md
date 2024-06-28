@@ -1,3 +1,7 @@
+**Joe Biden Is a Good Man and a Good President. He Must Bow Out of the Race.**\
+`Donald Trump is too grave a threat to America. Democrats need a nominee who can unite the country and articulate a compelling vision for it.`\
+https://nytimes.com/2024/06/28/opinion/joe-biden-tom-friedman.html
+
 **7.2-Magnitude Earthquake Strikes Off Peru**\
 `Peruvian authorities issued a tsunami alert after the quake struck off the coast near the southern city of Arequipa.`\
 https://nytimes.com/2024/06/28/world/americas/peru-earthquake.html
