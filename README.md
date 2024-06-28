@@ -1,4 +1,4 @@
-**Biden Cannot Go On Like This**\
+**Biden Cannot Go on Like This**\
 `Democrats must grapple with his disastrous debate.`\
 https://nytimes.com/2024/06/28/opinion/presidential-debate-trump-biden-2024.html
 
