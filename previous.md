@@ -1,5 +1,9 @@
+**Uber and Lyft Agree to Give Massachusetts Drivers Minimum Pay**\
+`The deal, which includes a $175 million settlement with the state, keeps the drivers classified as independent contractors, not employees.`\
+https://nytimes.com/2024/06/27/technology/uber-lyft-massachusetts-settlement.html
+
 **What USMNT needs to qualify for Copa America quarterfinals**\
-`The USMNT suffered a shock defeat to Panama at Copa America on Thursday.`\
+`The USMNT suffered a shock defeat to Panama at Copa America on Thursday to leave their chances of progression beyond the group in doubt.`\
 https://nytimes.com/athletic/5598412/2024/06/27/usmnt-copa-america-out-permutations/
 
 **The group that was cut out of hosting this year’s debates will be watching.**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/27/us/politics/biden-trump-debate-no-audience.html
 **Canucks re-sign Tyler Myers to 3-year contract**\
 `Myers, a 34-year-old blueliner, was intent on remaining in Vancouver.`\
 https://nytimes.com/athletic/5598295/2024/06/27/canucks-tyler-myers-contract/
-
-**MAGA Is Not Getting Everything It Wants From the Supreme Court**\
-`The Trumpist right is presenting aggressive legal theories that fail again and again.`\
-https://nytimes.com/2024/06/27/opinion/supreme-court-murthy-missouri-social-media.html
 

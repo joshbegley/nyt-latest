@@ -1,3 +1,11 @@
+**Uber and Lyft Agree to Give Massachusetts Drivers Minimum Pay**\
+`The deal, which includes a $175 million settlement with the state, keeps the drivers classified as independent contractors, not employees.`\
+https://nytimes.com/2024/06/27/technology/uber-lyft-massachusetts-settlement.html
+
+**What USMNT needs to qualify for Copa America quarterfinals**\
+`The USMNT suffered a shock defeat to Panama at Copa America on Thursday to leave their chances of progression beyond the group in doubt.`\
+https://nytimes.com/athletic/5598412/2024/06/27/usmnt-copa-america-out-permutations/
+
 **What USMNT needs to qualify for Copa America quarterfinals**\
 `The USMNT suffered a shock defeat to Panama at Copa America on Thursday.`\
 https://nytimes.com/athletic/5598412/2024/06/27/usmnt-copa-america-out-permutations/
