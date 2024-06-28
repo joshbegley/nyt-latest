@@ -1,3 +1,7 @@
+**The Panama game was an important test for this USMNT generation - and one it failed**\
+`How can the US expect to outfox bigger names if it frequently fails against opponents it knows best?`\
+https://nytimes.com/athletic/5599151/2024/06/28/usmnt-generation-failed-panama-copa-america/
+
 **U.S. Allies Watch the Debate With Shaking Heads and a Question: What Now?**\
 `Across Asia, there was little talk about winning, and more concern about American stability — both domestically and on crucial foreign policy issues.`\
 https://nytimes.com/2024/06/28/world/asia/biden-trump-debate-allies.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/28/world/americas/peru-earthquake.html
 **Offstage, a Band of Biden Defenders Braves a Sea of Trump Swagger**\
 `Supporters of both candidates were at the debate to sell their version of reality. One group seemed to have an easier time with it.`\
 https://nytimes.com/2024/06/28/us/politics/presidential-debate-scene.html
-
-**At One Post-Debate Party, President Biden Found a Jubilant Reception**\
-`Supporters who gathered at an Atlanta hotel cheered President Biden’s performance even as Democratic leaders elsewhere were voicing concern and distress.`\
-https://nytimes.com/2024/06/28/us/biden-debate-watch-party.html
 
