@@ -1,3 +1,11 @@
+**For Trump, the Debate Was Another Chapter in the Rewriting of Jan. 6**\
+`It was the biggest stage yet for his effort to rewrite the story of Jan. 6, 2021.`\
+https://nytimes.com/2024/06/28/us/politics/trump-debate-jan-6.html
+
+**There Are ‘No Conversations’ About Replacing Biden, Campaign Official Says**\
+`The official also said President Biden was committed to attending the next presidential debate in September.`\
+https://nytimes.com/2024/06/28/us/politics/biden-campaign-replace-democrats.html
+
 **Businesses Cheer Their New Freedom to Violate Regulations**\
 `Conservative justices take a big step in their campaign to shrink government oversight.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/supreme-court-chevron-regulations
