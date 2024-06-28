@@ -1,3 +1,7 @@
+**‘This Was a Disaster for America’: Our Columnists on the Presidential Debate**\
+`12 writers assess who won and lost the debate and distill what stood out to them.`\
+https://nytimes.com/2024/06/28/opinion/presidential-debate-winner-loser.html
+
 **Harris Defends Biden’s Debate Performance, but Acknowledges ‘a Slow Start’**\
 `In a tense interview, Vice President Kamala Harris defended President Biden’s record in office and downplayed the moments during the debate where he faltered.`\
 https://nytimes.com/2024/06/28/us/politics/kamala-harris-biden-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/28/us/politics/presidential-debate-takeaways-biden-t
 **Six former Man Utd players on the one issue Ten Hag needs to fix**\
 `Lee Sharpe, Jaap Stam and other ex-Man Utd players on what's gone wrong at their former club and how to fix it...`\
 https://nytimes.com/athletic/5589606/2024/06/28/man-utd-former-players-diagnose-club-biggest-problems/
-
-**'It's a snoozefest': What Europe thinks of Gareth Southgate's England**\
-`England fans seem to be losing faith in their football manager... and sentiments are not much kinder on the continent`\
-https://nytimes.com/athletic/5592848/2024/06/28/gareth-southgate-england-view-europe/
 
