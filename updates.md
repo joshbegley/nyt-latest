@@ -1,3 +1,7 @@
+**Texas Supreme Court Upholds Ban on Gender Transition Care for Minors**\
+`The all-Republican court voted 8 to 1 to leave in effect a law enacted last year during a wave of legislation targeting transgender rights.`\
+https://nytimes.com/2024/06/28/us/texas-transgender-ban-minors.html
+
 **Which Joe Biden Is the Real One?**\
 `He can still give a good speech, but that may not be enough.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-speech-carolina
