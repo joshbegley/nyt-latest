@@ -1,3 +1,23 @@
+**Offstage, a Band of Biden Defenders Braves a Sea of Trump Swagger**\
+`Supporters of both candidates were at the debate to sell their version of reality. One group seemed to have an easier time with it.`\
+https://nytimes.com/2024/06/28/us/politics/presidential-debate-scene.html
+
+**At One Post-Debate Party, President Biden Found a Jubilant Reception**\
+`Supporters who gathered at an Atlanta hotel cheered President Biden’s performance even as Democratic leaders elsewhere were voicing concern and distress.`\
+https://nytimes.com/2024/06/28/us/biden-debate-watch-party.html
+
+**Life inside and outside the England bubble - Tension, criticism and how players really feel**\
+`Alan Shearer on being criticised by Gary Lineker as a player, the reality of life in camp, how players feel and why England are struggling`\
+https://nytimes.com/athletic/5597454/2024/06/28/alan-shearer-criticism-england-bubble/
+
+**Word of the Day: imperative**\
+`This word has appeared in 390 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/06/28/learning/word-of-the-day-imperative.html
+
+**No Appendix, No Problem. Australia’s Remote Doctors Tell All.**\
+`Being the only physician around for hundreds of miles isn’t always bad. “It’s quite liberating to be like, ‘I’m the best person here for the job’,” said one doctor.`\
+https://nytimes.com/2024/06/28/world/australia/remote-doctors.html
+
 **President Biden Is My Friend. He Must Bow Out of the Race.**\
 `Donald Trump is too grave a threat to America. Democrats need a nominee who can unite the country and articulate a compelling vision for it.`\
 https://nytimes.com/2024/06/28/opinion/joe-biden-tom-friedman.html
