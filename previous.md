@@ -1,3 +1,11 @@
+**6 Paperbacks to Read This Week**\
+`Selected paperbacks from the Book Review, including titles by Darrin Bell, Maggie Smith, David Friend and more.`\
+https://nytimes.com/interactive/2024/06/28/books/review/new-paperbacks-bell.html
+
+**How the Democrats Should Replace Biden**\
+`By Jonathan Alter`\
+https://nytimes.com/live/2024/06/25/opinion/thepoint/how-biden-should-withdraw
+
 **Supreme Court Rejects Bannon’s Appeal to Delay Prison Sentence**\
 `Stephen Bannon will have to begin serving four months in prison on Monday, after the court turned aside his request to remain free while he appeals his conviction for contempt of Congress.`\
 https://nytimes.com/2024/06/28/us/politics/steve-bannon-supreme-court-appeal.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/28/us/trump-biden-debate/trumps-use-of-palestin
 **Driver Is Convicted of Killing of 8 People in Texas**\
 `A jury convicted the driver of eight counts of intoxication manslaughter after he plowed into a crowd of migrants in Brownsville, Texas, last year. He faces up to 20 years in prison on each count.`\
 https://nytimes.com/2024/06/28/us/texas-george-alvarez-migrants-guilty.html
-
-**My Mom Failed to Warn Me About an Abuser. Should I Tell My Dad?**\
-`The magazine’s Ethicist columnist on cycles of abuse and a heartbreaking family secret.`\
-https://nytimes.com/2024/06/28/magazine/mom-dad-abuser-warning-ethics.html
-
-**‘Is It Too Late?’ Four Writers on What Democrats Should Do About Biden.**\
-`None of the options ensure victory against Trump — and some of them could badly split the party.`\
-https://nytimes.com/2024/06/28/opinion/biden-democrats-debate.html
 

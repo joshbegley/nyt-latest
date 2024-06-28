@@ -1,3 +1,11 @@
+**6 Paperbacks to Read This Week**\
+`Selected paperbacks from the Book Review, including titles by Darrin Bell, Maggie Smith, David Friend and more.`\
+https://nytimes.com/interactive/2024/06/28/books/review/new-paperbacks-bell.html
+
+**How the Democrats Should Replace Biden**\
+`By Jonathan Alter`\
+https://nytimes.com/live/2024/06/25/opinion/thepoint/how-biden-should-withdraw
+
 **Supreme Court Rejects Bannon’s Appeal to Delay Prison Sentence**\
 `Stephen Bannon will have to begin serving four months in prison on Monday, after the court turned aside his request to remain free while he appeals his conviction for contempt of Congress.`\
 https://nytimes.com/2024/06/28/us/politics/steve-bannon-supreme-court-appeal.html
