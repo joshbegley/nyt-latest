@@ -2,7 +2,7 @@
 `The decision is expected to prompt a rush of litigation challenging regulations across the entire federal government, from food safety to the environment.`\
 https://nytimes.com/2024/06/28/us/politics/chevron-deference-decision-meaning.html
 
-**The Court Forces Homeless People to Stay Awake or Be Arrested**\
+**The Court Forces America’s Homeless to Stay Awake or Be Arrested**\
 `It sets a devastating precedent.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/homelessness-supreme-court
 
