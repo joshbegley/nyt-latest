@@ -1,40 +1,40 @@
-**NBA free agency: Isaiah Hartenstein tops a not-so-strong group of centers**\
-`As the final positional stop on our free agency tour, the center position unquestionably offers the least.`\
-https://nytimes.com/athletic/5585200/2024/06/28/nba-free-agency-best-available-centers-isaiah-hartenstein-nic-claxton/
+**Hoot, Howl and Sneeze: 6 Picture Books for Maximum Read-Aloud Joy**\
+`From silly rhymes to lively sound effects to stealthily-building suspense, these old standbys and new classics have something for everyone.`\
+https://nytimes.com/2024/06/28/books/review/best-read-aloud-picture-books.html
 
-**The Panama game was an important test for this USMNT generation - and one it failed**\
-`How can the US expect to outfox bigger names if it frequently fails against opponents it knows best?`\
-https://nytimes.com/athletic/5599151/2024/06/28/usmnt-generation-failed-panama-copa-america/
+**How Fast Food Is Getting Faster**\
+`Retailers like Chick-fil-A are opening smaller, takeout-focused outposts with little or no seating to complement their traditional locations.`\
+https://nytimes.com/2024/06/28/realestate/takeout-only-locations.html
 
-**How to fix Brazil: 'Dirty movement', Endrick as a No 9 and a midfield rejig**\
-`The drab draw with Costa Rica on Monday presented several tactical problems, but there are answers at hand...`\
-https://nytimes.com/athletic/5597087/2024/06/28/brazil-copa-america-tactics/
+**Three People in a One-Bedroom Apartment? They Found a Clever Solution.**\
+`Co-op rules meant they couldn’t add a second bedroom, so they came up with an elegant workaround.`\
+https://nytimes.com/2024/06/28/realestate/small-apartment-maximize-space-design.html
 
-**U.S. Allies Watch the Debate With Shaking Heads and a Question: What Now?**\
-`Across Asia, there was little talk about winning, and more concern about American stability — both domestically and on crucial foreign policy issues.`\
-https://nytimes.com/2024/06/28/world/asia/biden-trump-debate-allies.html
+**For an Aquatic Veterinarian, It’s Never ‘Just a Fish’**\
+`Stress, ovarian cancer, buoyancy disorders: Every pet has its troubles, and needs a good doctor who makes house calls.`\
+https://nytimes.com/2024/06/28/science/fish-veterinarian-health.html
 
-**The USMNT are in danger of blowing their big moment**\
-`The summer began with great expectations for Gregg Berhalter and his players, but they are in danger of falling well short`\
-https://nytimes.com/athletic/5599095/2024/06/28/usmnt-copa-america-pressure/
+**Time Traveling Through London With an Impressionist Painter**\
+`A writer used Camille Pissarro’s paintings of suburban London and a ‘lost’ railway as a lens for exploring the city’s history — and settling an arcane mystery.`\
+https://nytimes.com/2024/06/28/travel/pissarro-london-impressionism-monet.html
 
-**Facing Trump’s Misleading Attacks, Biden Appears Shaky**\
-`President Biden struggled through his first debate of the 2024 campaign against Donald J. Trump, meandering and mumbling through answers as the former president pressed his case for a second term with limited resistance from his rival.`\
-https://nytimes.com/video/us/politics/100000009544967/facing-trumps-misleading-attacks-biden-appears-shaky.html
+**Devils NHL Draft guide: Picks, best fits and analysis**\
+`What to expect from the Devils at the 2024 NHL Draft.`\
+https://nytimes.com/athletic/5597194/2024/06/28/devils-nhl-draft-picks-grades-2024/
 
-**A Storied Harlem Church Has a New Leader. Its Members Have Questions.**\
-`Behind the opaque process that just selected the next pastor at Abyssinian Baptist Church.`\
-https://nytimes.com/2024/06/28/nyregion/abyssinian-baptist-church-kevin-johnson.html
+**Alex Morgan's top five USWNT moments**\
+`Morgan has had many memorable moments that have cemented her as a global soccer icon – these are her top five`\
+https://nytimes.com/athletic/5596641/2024/06/28/alex-morgan-top-uswnt-moments-olympics-soccer/
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/06/28/crosswords/spelling-bee-forum.html
+**MLB trade deadline watch: Rays may have arms to move; which teams are eyeing struggling Cubs**\
+`Could Cody Bellinger’s name be popular at the deadline? Are the Mets leaning buyer or seller?`\
+https://nytimes.com/athletic/5598819/2024/06/28/mlb-trade-deadline-watch-rays-pitching/
 
-**The 84-Year-Old Visionary With One Answer for Two Real Estate Crises**\
-`While his peers were building Modernist towers, the architect Joseph Pell Lombardi devoted his life to restoring beautiful old buildings.`\
-https://nytimes.com/2024/06/28/nyregion/joseph-pell-lombardi-real-estate-office-apartments.html
+**UFC 303 predictions, odds: Pereira and Procházka meet in light heavyweight rematch**\
+`Brett Appley previews three fights on the UFC 303 card, including the main event between Alex Pereira and Jiří Procházka.`\
+https://nytimes.com/athletic/5595419/2024/06/28/ufc-303-predictions-odds-alex-pereira-and-jiri-prochazka-meet-in-light-heavyweight-rematch/
 
-**Over 65, With No Place to Call Home**\
-`The number of older people living in homeless shelters in New York City is growing quickly, in an unheralded sign of the affordable housing crisis.`\
-https://nytimes.com/2024/06/28/nyregion/nyc-homeless-older-people.html
+**Canadiens NHL Draft guide: Picks, best fits and analysis**\
+`What to expect from the Canadiens at the 2024 NHL Draft.`\
+https://nytimes.com/athletic/5597173/2024/06/28/canadiens-nhl-draft-picks-grades-2024/
 
