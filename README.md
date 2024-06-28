@@ -1,3 +1,7 @@
+**Southampton in talks with Martin over new contract**\
+`Southampton are in talks with Russell Martin over a new contract after he led them back to the Premier League at the first time of asking.`\
+https://nytimes.com/athletic/5597346/2024/06/28/russell-martin-southampton-contract/
+
 **Team USA has dominated Summer Olympics medal table. Will it continue in Paris?**\
 `Follow our Olympics coverage in the lead-up to the Paris Games.`\
 https://nytimes.com/athletic/5587698/2024/06/28/team-usa-olympics-medal-count-paris/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5596879/2024/06/28/athletic-friday-football-quiz-10
 **A Halting Performance**\
 `Both candidates affirmed voter fears — about President Biden’s age and Donald Trump’s character.`\
 https://nytimes.com/2024/06/28/briefing/a-halting-performance.html
-
-**Spain's Lamine Yamal passes school exams during Euro 2024**\
-`Barcelona winger and Spain international Lamine Yamal, 16, has successfully passed his school exams.`\
-https://nytimes.com/athletic/5599265/2024/06/28/lamine-yamal-spain-euro-2024/
 
