@@ -1,3 +1,11 @@
+**Girl Groupers Gone (Successfully!) Solo**\
+`With two new albums from members of Fifth Harmony out now, a look back at other pop singers who took off on their own.`\
+https://nytimes.com/2024/06/28/arts/music/amplifier-newsletter-girl-groupers-gone-solo.html
+
+**Learn the Secrets to Perfect Pasta Every Time**\
+`In the latest installment of her YouTube series, the cookbook author and chef Sohla El-Waylly will teach you how to tame that pantry workhorse.`\
+https://nytimes.com/article/pasta.html
+
 **Leading Democrats Vouch for Biden, but Concede a ‘Bad Night’**\
 `The president’s surrogates acknowledged his struggles in the debate but said that one night did not reflect his successes, or the dangers of a second Trump term.`\
 https://nytimes.com/2024/06/28/us/politics/biden-debate-pelosi-hakeem-jeffries.html
