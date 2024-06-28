@@ -1,3 +1,7 @@
+**The ruling will embolden challenges against financial regulators.**\
+`By Stacy Cowley and Emily Flitter`\
+https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/the-ruling-will-embolden-challenges-against-financial-regulators
+
 **U.S. Presses to Avert Wider War Between Israel and Hezbollah in Lebanon**\
 `A recent flurry of diplomacy aims to head off a conflict that could pit the United States directly against Iran.`\
 https://nytimes.com/2024/06/28/us/politics/israel-hezbollah-lebanon-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/28/us/supreme-court-jan-6/what-does-the-law-at-
 **Here’s What the Court’s Chevron Ruling Could Mean in Everyday Terms**\
 `The decision is expected to prompt a rush of litigation challenging regulations across the entire federal government, from food safety to the environment.`\
 https://nytimes.com/2024/06/28/us/politics/chevron-deference-decision-meaning.html
-
-**The Court Forces America’s Homeless to Stay Awake or Be Arrested**\
-`It sets a devastating precedent.`\
-https://nytimes.com/live/2024/06/25/opinion/thepoint/homelessness-supreme-court
 
