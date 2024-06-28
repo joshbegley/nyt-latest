@@ -1,3 +1,7 @@
+**Asked About Their Ages, Biden Deflects and Trump Brags About His Golf Skills**\
+`Age has loomed over the 2024 campaign, and neither candidate’s answer might have been enough to push aside voters’ qualms.`\
+https://nytimes.com/2024/06/27/us/politics/biden-trump-age-golf.html
+
 **Officer Found Guilty of Murdering Man Outside Washington State Grocery Store**\
 `The conviction is the first under a state law that eases the prosecution of police officials.`\
 https://nytimes.com/2024/06/27/us/washington-police-murder-guilty.html
