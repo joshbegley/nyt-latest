@@ -1,3 +1,7 @@
+**After Biden’s Debate Disaster, an Uncertain Path**\
+`Also, the Supreme Court ruled that prosecutors overstepped in Jan. 6 case. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/06/28/briefing/biden-debate-disaster-supreme-court-jan-6.html
+
 **Judge John Hodgman on Speaking Like a Local While Traveling**\
 `Should this father be trying to communicate in the language of the places he visits if it’s embarrassing his son?`\
 https://nytimes.com/2024/06/28/magazine/judge-john-hodgman-on-speaking-like-a-local-while-traveling.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/28/smarter-living/wirecutter/engagement-
 **Voters Must Decide Who Should Be the King of America’s Nuclear Monarchy**\
 `The president controls the deadliest weapon arsenal known to man.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/voters-must-decide-who-should-be-the-king-of-americas-nuclear-monarchy
-
-**Before LeBron and Bronny, These Fathers and Sons Made Sports History**\
-`The Los Angeles Lakers are poised to have the first father-son N.B.A. duo in league history. But other dads and sons have played pro sports together as well.`\
-https://nytimes.com/2024/06/28/sports/basketball/father-son-lebron-bronny-james-lakers.html
 

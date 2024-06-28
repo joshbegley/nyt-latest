@@ -1,3 +1,7 @@
+**After Biden’s Debate Disaster, an Uncertain Path**\
+`Also, the Supreme Court ruled that prosecutors overstepped in Jan. 6 case. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/06/28/briefing/biden-debate-disaster-supreme-court-jan-6.html
+
 **Judge John Hodgman on Speaking Like a Local While Traveling**\
 `Should this father be trying to communicate in the language of the places he visits if it’s embarrassing his son?`\
 https://nytimes.com/2024/06/28/magazine/judge-john-hodgman-on-speaking-like-a-local-while-traveling.html
