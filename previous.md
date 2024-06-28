@@ -1,3 +1,15 @@
+**In Mexico City, debate watchers pay close attention to talk of immigration.**\
+`By James Wagner`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/in-mexico-city-debate-watchers-pay-close-attention-to-talk-of-immigration
+
+**The oversight of food, drugs and tobacco is expected to be a target.**\
+`By Christina Jewett`\
+https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/the-oversight-of-food-drugs-and-tobacco-is-expected-to-be-a-target
+
+**What does the law at issue in the case actually say?**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/06/28/us/supreme-court-jan-6/what-does-the-law-at-issue-in-the-case-actually-say
+
 **Here’s What the Court’s Chevron Ruling Could Mean in Everyday Terms**\
 `The decision is expected to prompt a rush of litigation challenging regulations across the entire federal government, from food safety to the environment.`\
 https://nytimes.com/2024/06/28/us/politics/chevron-deference-decision-meaning.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/28/us/honolulu-civil-beat-event.html
 **What is Chevron deference anyway?**\
 `By David Leonhardt`\
 https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/what-is-chevron-deference-anyway
-
-**Where Can Sondheim’s Operatic Musicals Find a Home?**\
-`Jonathan Tunick, Stephen Sondheim’s longtime collaborator, unveiled a grand orchestration of “A Little Night Music” that deserves more than a concert.`\
-https://nytimes.com/2024/06/28/theater/a-little-night-music-sondheim-lincoln-center.html
-
-**Here’s the latest on the decision.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/heres-the-latest-on-the-decision
-
-**Before the ruling, prosecutors and some judges adjusted their approach to the charge in Jan. 6 cases.**\
-`Federal judges have agreed to release about 10 defendants who were serving prison terms because of their convictions under an obstruction law.`\
-https://nytimes.com/live/2024/06/28/us/supreme-court-jan-6/before-the-ruling-prosecutors-and-some-judges-adjusted-their-approach-to-the-charge-in-jan-6-cases
 
