@@ -1,3 +1,11 @@
+**Biden Brushes Off Concerns About His Performance: ‘It’s Hard to Debate a Liar’**\
+`During brief remarks to reporters after his showdown with former President Donald J. Trump, Mr. Biden said he felt he “did well” but noted that he had a sore throat.`\
+https://nytimes.com/2024/06/28/us/politics/biden-sore-throat-debate.html
+
+**Jon Stewart Is a Little Stressed Out About That Debate**\
+`Hosting a live “Daily Show” after the Biden-Trump spectacle, Stewart said he needed “to call a real estate agent in New Zealand.”`\
+https://nytimes.com/2024/06/28/arts/television/jon-stewart-debate-trump-biden.html
+
 **Wildfires Sparked by 1,000 Lightning Strikes Spread in California**\
 `The group of fires prompted an evacuation as they burned more than 10,000 acres east of Fresno after a lightening storm struck the region.`\
 https://nytimes.com/2024/06/28/us/fresno-california-wildfire.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/28/briefing/trump-biden-debate-france-election.html
 **Carlos Rodón was a disaster once again. Where do the Yankees go from here?**\
 `Rodón isn't going to turn into a junkballer, but he acknowledged the sequencing needs to improve.`\
 https://nytimes.com/athletic/5598515/2024/06/28/yankees-carlos-rodon-disaster-again/
-
-**Amid Perilous Times, Iran Holds Vote to Pick a President**\
-`Whoever is chosen will have to cope with a cratering economy, regional strife and deep divisions and discord at home.`\
-https://nytimes.com/2024/06/28/world/middleeast/iran-president-election.html
-
-**‘It’s Frightening’: Democratic Voters Worried by Biden’s Struggles in Debate**\
-`Democrats found President Biden’s performance disconcerting, while Republicans were in a jubilant mood. Swing voters were flummoxed.`\
-https://nytimes.com/2024/06/28/us/biden-trump-debate-voter-reaction.html
 
