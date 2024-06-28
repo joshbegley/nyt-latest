@@ -1,3 +1,11 @@
+**Was the NBA Draft's two-day format a success?**\
+`The second round was for TV only. There were no fans, and the most intriguing prospects didn't show up.`\
+https://nytimes.com/athletic/5598411/2024/06/27/nba-draft-two-day-format/
+
+**“They’re taking Black jobs and they’re taking Hispanic jobs. And you haven’t seen it yet.”**\
+`By Miriam Jordan`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/theyre-taking-black-jobs-and-theyre-taking-hispanic-jobs-and-you-havent-seen-it-yet
+
 **“The fraud and everything else was ridiculous.”**\
 `By Alexandra Berzon`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/the-fraud-and-everything-else-was-ridiculous

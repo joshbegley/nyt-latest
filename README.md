@@ -1,3 +1,11 @@
+**“Even from a medical standpoint, right to try: where we can try space-age materials instead of going to Asia or going to Europe and trying to get, when you’re terminally ill, now you can go and you can get something, you sign a document. They’ve been trying to get it for 42 years. But you know, what we did for the military was incredible, choice for our soldiers, where our soldiers, instead of waiting for three months to see a doctor, can go out and get themselves fixed up and readied up, and take care of themselves. And they’re living and that’s why I had the highest approval rating of the history of the V.A.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/even-from-a-medical-standpoint-right-to-try-where-we-can-try-space-age-materials-instead-of-going-to-asia-or-going-to-europe-and
+
+**Uruguay 5-0 Bolivia takeaways: A big win puts Uruguay in control of Group C**\
+`Uruguay show why they should be considered one of the tournament favorites after two matches. `\
+https://nytimes.com/athletic/5598674/2024/06/27/uruguay-bolivia-copa-america/
+
 **Was the NBA Draft's two-day format a success?**\
 `The second round was for TV only. There were no fans, and the most intriguing prospects didn't show up.`\
 https://nytimes.com/athletic/5598411/2024/06/27/nba-draft-two-day-format/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5598683/2024/06/27/sf-giants-luke-jackson-camilo-do
 **Tight debate rules are spotlighting Biden’s stumbles.**\
 `By Michael C. Bender`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/tight-debate-rules-are-spotlighting-bidens-stumbles
-
-**“It’s not only the 18 million people that I believe is even low because they, the gotaways — they don’t even talk about gotaways.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/its-not-only-the-18-million-people-that-i-believe-is-even-low-because-they-the-gotaways-they-dont-even-talk-about-gotaways
-
-**“He gets paid by China.”**\
-`By Kenneth P. Vogel`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/he-gets-paid-by-china
 
