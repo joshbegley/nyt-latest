@@ -1,4 +1,4 @@
-**The Bible in Public Schools? Oklahoma Pushes Limits on Long Tradition.**\
+**The Bible in Public Schools? Oklahoma Pushes Limits of Long Tradition.**\
 `The Bible has a deep history in American classrooms, but the state’s provocative superintendent wants to broadly expand its influence.`\
 https://nytimes.com/2024/06/28/education/bible-schools-classrooms.html
 
