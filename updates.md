@@ -1,3 +1,7 @@
+**“During my four years, I had the best environmental numbers ever.”**\
+`By Coral Davenport`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/during-my-four-years-i-had-the-best-environmental-numbers-ever
+
 **Part of Roof Collapses at India’s Busiest Airport After Heavy Rains**\
 `At least six people were injured when parts of the roof caved in and crushed vehicles at Indira Gandhi airport in New Delhi, according to local reports. All domestic departures were suspended.`\
 https://nytimes.com/2024/06/27/world/asia/india-delhi-airport-roof-collapse.html
