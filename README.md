@@ -6,6 +6,10 @@ https://nytimes.com/2024/06/28/arts/labour-party-culture.html
 `An unsteady debate performance by President Biden has scrambled the thinking among some donors about whether the party needs to find an alternative.`\
 https://nytimes.com/2024/06/28/business/dealbook/biden-debate-donors.html
 
+**USC football recruiting: Thoughts on Trojans' setbacks, strategy after decommitments**\
+`USC’s 2025 class is exiting June in worse shape than it entered the month. There’s no argument about that.`\
+https://nytimes.com/athletic/5598952/2024/06/28/usc-football-recruiting-decommitments/
+
 **Wife’s Ex-Boyfriend and Fear of Poverty at Center of Menendez’s Defense**\
 `Senator Robert Menendez’s lawyers are expected to call witnesses who will describe his childhood and the rocky start to his relationship with his wife.`\
 https://nytimes.com/2024/06/28/nyregion/robert-menendez-bribery-trial-defense.html
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/5599597/2024/06/28/chelsea-kiernan-dewsbury-hall/
 `The average four-seam fastball has increased in velocity every season since we started tracking it. What's the upper limit?`\
 https://nytimes.com/athletic/5571107/2024/06/28/mlb-pitcher-fastball-top-speed/
 
-**Southampton in talks with Martin over new contract**\
-`Southampton are in talks with Russell Martin over a new contract after he led them back to the Premier League at the first time of asking.`\
-https://nytimes.com/athletic/5597346/2024/06/28/russell-martin-southampton-contract/
-
-**Team USA has dominated Summer Olympics medal table. Will it continue in Paris?**\
-`Follow our Olympics coverage in the lead-up to the Paris Games.`\
-https://nytimes.com/athletic/5587698/2024/06/28/team-usa-olympics-medal-count-paris/
+**England XI to face Slovakia: Mainoo? Shaw? Foden at No 10? Our writers' picks**\
+`England are into the knockout stages but there remain questions over their best line-up – what should Southgate do?`\
+https://nytimes.com/athletic/5596908/2024/06/28/england-lineup-slovakia-foden-shaw/
 
