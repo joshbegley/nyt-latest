@@ -1,3 +1,11 @@
+**Kamala Harris Could Win This Election. Let Her.**\
+`The vice president is the obvious path out of the mess Joe Biden has created.`\
+https://nytimes.com/2024/06/28/opinion/kamala-harris-biden-debate.html
+
+**Conservative Christian activists see Chevron as major win to push their causes.**\
+`By Elizabeth Dias`\
+https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/conservative-christian-activists-see-chevron-as-major-win-to-push-their-causes
+
 **Social Conservatives Push Trump on the G.O.P.’s Anti-Abortion Platform**\
 `Leaders of the anti-abortion movement sent a letter to Donald J. Trump amid worries he may try to weaken the anti-abortion language in the party platform.`\
 https://nytimes.com/2024/06/28/us/politics/trump-abortion-letter.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/28/us/politics/israel-hezbollah-lebanon-iran.html
 **Dutch Olympic Organizers Defend Participation of Athlete Convicted of Rape**\
 `Steven van de Velde, a beach volleyball player, spent time in prison for the 2014 rape of a 12-year-old girl. His inclusion on the Olympic team has caused a stir in the international news media.`\
 https://nytimes.com/2024/06/28/world/europe/steven-van-de-velde-dutch-volleyball-olympics.html
-
-**Trump dodges climate issues, saying, ‘We had H2O, we had the best.’**\
-`By Lisa Friedman`\
-https://nytimes.com/live/2024/06/28/us/trump-biden-debate/trump-climate-presidential-debate
-
-**Justices Thomas and Alito Ignored Calls for Recusal in Jan. 6 Case**\
-`Experts in legal ethics have said that the activities of the justices’ wives raised serious questions about their impartiality.`\
-https://nytimes.com/2024/06/28/us/politics/justices-thomas-and-alito-recuse.html
 

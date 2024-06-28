@@ -1,3 +1,11 @@
+**Kamala Harris Could Win This Election. Let Her.**\
+`The vice president is the obvious path out of the mess Joe Biden has created.`\
+https://nytimes.com/2024/06/28/opinion/kamala-harris-biden-debate.html
+
+**Conservative Christian activists see Chevron as major win to push their causes.**\
+`By Elizabeth Dias`\
+https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/conservative-christian-activists-see-chevron-as-major-win-to-push-their-causes
+
 **Social Conservatives Push Trump on the G.O.P.’s Anti-Abortion Platform**\
 `Leaders of the anti-abortion movement sent a letter to Donald J. Trump amid worries he may try to weaken the anti-abortion language in the party platform.`\
 https://nytimes.com/2024/06/28/us/politics/trump-abortion-letter.html
