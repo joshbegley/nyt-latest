@@ -1,3 +1,15 @@
+**At Euro 2024, a Very England Fight Misses the Point**\
+`A back and forth over the pundit’s one-word analysis of his country’s performances rests on a misconception about the media’s role.`\
+https://nytimes.com/2024/06/28/world/europe/gary-lineker-england-euro-2024.html
+
+**‘Take a deep breath’: Biden donors react to the president’s debate performance.**\
+`By Theodore Schleifer`\
+https://nytimes.com/live/2024/06/28/us/trump-biden-debate/take-a-deep-breath-biden-donors-react-to-the-presidents-debate-performance
+
+**Supreme Court Overrules Chevron Doctrine, Imperiling an Array of Federal Rules**\
+`The foundational 1984 decision required courts to defer to agencies’ reasonable interpretations of ambiguous statutes, underpinning regulations on health care, safety and the environment.`\
+https://nytimes.com/2024/06/28/us/supreme-court-chevron-ruling.html
+
 **What I’m Reading: Tunneling to the Past**\
 `Looking for answers, or an escape, in a fraught world.`\
 https://nytimes.com/2024/06/28/world/europe/interpreter-books-reading-wars.html
