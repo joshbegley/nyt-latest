@@ -1,3 +1,15 @@
+**“He wants to get rid of Social Security. He thinks that there’s plenty to cut in Social Security. He’s wanted to cut Social Security and Medicare both times.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/he-wants-to-get-rid-of-social-security-he-thinks-that-theres-plenty-to-cut-in-social-security-hes-wanted-to-cut-social-security-
+
+**A Fumbling Performance, and a Panicking Party**\
+`President Biden’s shaky, halting debate performance has top Democrats talking about replacing him on the ticket.`\
+https://nytimes.com/2024/06/27/us/politics/biden-debate-democrats.html
+
+**Asked About Their Ages, Biden Deflects and Trump Brags About His Golf Skills**\
+`Age has loomed over the 2024 campaign, and neither candidate’s answer might have been enough to push aside voters’ qualms.`\
+https://nytimes.com/2024/06/27/us/politics/biden-trump-age-golf.html
+
 **“He wants to get rid of the A.C.A. again, and they’re going to try again.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/he-wants-to-get-rid-of-the-aca-again-and-theyre-going-to-try-again
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/06/27/us/biden-trump-debate/theyre-taking-black-jo
 **“The fraud and everything else was ridiculous.”**\
 `By Alexandra Berzon`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/the-fraud-and-everything-else-was-ridiculous
-
-**How Would You Rate the Presidential Debate?**\
-`Times Opinion wants to hear your takeaways. We may publish your thoughts in a future article.`\
-https://nytimes.com/2024/06/27/opinion/rate-presidential-debate.html
-
-**Cubs takeaways from the West Coast: Trade deadline, Shota Imanaga's All-Star bid and more**\
-`Plus Javier Assad has been shut down and the Cubs left 33 runners stranded in San Francisco.`\
-https://nytimes.com/athletic/5598717/2024/06/27/cubs-takeaways-shota-imanaga-javier-assad/
-
-**“No indictments, no political opponents stuff, because it’s the only way he thinks he can win.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/06/27/us/biden-trump-debate/no-indictments-no-political-opponents-stuff-because-its-the-only-way-he-thinks-he-can-win
 

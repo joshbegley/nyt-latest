@@ -1,3 +1,15 @@
+**“He wants to get rid of Social Security. He thinks that there’s plenty to cut in Social Security. He’s wanted to cut Social Security and Medicare both times.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/he-wants-to-get-rid-of-social-security-he-thinks-that-theres-plenty-to-cut-in-social-security-hes-wanted-to-cut-social-security-
+
+**A Fumbling Performance, and a Panicking Party**\
+`President Biden’s shaky, halting debate performance has top Democrats talking about replacing him on the ticket.`\
+https://nytimes.com/2024/06/27/us/politics/biden-debate-democrats.html
+
+**Asked About Their Ages, Biden Deflects and Trump Brags About His Golf Skills**\
+`Age has loomed over the 2024 campaign, and neither candidate’s answer might have been enough to push aside voters’ qualms.`\
+https://nytimes.com/2024/06/27/us/politics/biden-trump-age-golf.html
+
 **“He wants to get rid of the A.C.A. again, and they’re going to try again.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/he-wants-to-get-rid-of-the-aca-again-and-theyre-going-to-try-again
