@@ -1,3 +1,7 @@
+**Outside ‘Jittery Joe’s,’ the Biden campaign pushes donors for calm.**\
+`By Shane Goldmacher`\
+https://nytimes.com/live/2024/06/28/us/trump-biden-debate/outside-jittery-joes-the-biden-campaign-pushes-donors-for-calm
+
 **House G.O.P. Begins Push on Hard-Right Spending Bills, Teeing Up Future Battles**\
 `The Republican-led House loaded its funding measures with provisions that have no chance of becoming law, as both parties look toward a bigger fight later this year, most likely after the elections.`\
 https://nytimes.com/2024/06/28/us/politics/house-republicans-spending-bills.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/28/us/politics/trump-abortion-letter.html
 **Democrats, anticipating Chevron’s demise, gave E.P.A. more power in recent climate law.**\
 `By Coral Davenport`\
 https://nytimes.com/2024/06/28/us/politics/democrats-anticipating-chevrons-demise-gave-epa-more-power-in-recent-climate-law.html
-
-**5 International Shows Worth Watching, From Kafka to a Human Kaiju**\
-`The return of “Babylon Berlin” was the international TV news of the week, but here are five other recent series to check out.`\
-https://nytimes.com/2024/06/28/arts/television/review-kafka-shoresy.html
 
