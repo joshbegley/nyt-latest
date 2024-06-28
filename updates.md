@@ -1,3 +1,7 @@
+**A Halting Performance**\
+`Both candidates affirmed voter fears — about President Biden’s age and Donald Trump’s character.`\
+https://nytimes.com/2024/06/28/briefing/a-halting-performance.html
+
 **Spain's Lamine Yamal passes school exams during Euro 2024**\
 `Barcelona winger and Spain international Lamine Yamal, 16, has successfully passed his school exams.`\
 https://nytimes.com/athletic/5599265/2024/06/28/lamine-yamal-spain-euro-2024/
