@@ -1,3 +1,7 @@
+**Wimbledon draw: Nightmare half for Swiatek? Are Djokovic and Murray ready?**\
+`The stage is set for SW19, where the women's world No 1 has a tricky start and Djokovic and Murray are racing to make their first rounds`\
+https://nytimes.com/athletic/5599399/2024/06/28/wimbledon-draw-2024-swiatek-djokovic-murra/
+
 **The Winners of Our 7th Annual Student Podcast Contest**\
 `We invited teenagers to create an original five-minute podcast about almost anything. Here are the finalists selected from over 1,100 submissions.`\
 https://nytimes.com/2024/06/28/learning/the-winners-of-our-7th-annual-student-podcast-contest.html

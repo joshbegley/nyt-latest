@@ -1,3 +1,7 @@
+**Wimbledon draw: Nightmare half for Swiatek? Are Djokovic and Murray ready?**\
+`The stage is set for SW19, where the women's world No 1 has a tricky start and Djokovic and Murray are racing to make their first rounds`\
+https://nytimes.com/athletic/5599399/2024/06/28/wimbledon-draw-2024-swiatek-djokovic-murra/
+
 **The Winners of Our 7th Annual Student Podcast Contest**\
 `We invited teenagers to create an original five-minute podcast about almost anything. Here are the finalists selected from over 1,100 submissions.`\
 https://nytimes.com/2024/06/28/learning/the-winners-of-our-7th-annual-student-podcast-contest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/28/business/economy/federal-reserve-inflation-cools.
 **Southampton offer Walker-Peters plus cash for West Ham's Flynn Downes**\
 `Southampton are in discussions with West Ham United regarding a deal for Flynn Downes, with Kyle Walker-Peters in line to move in the opposite direction as part of a separate transaction.`\
 https://nytimes.com/athletic/5599557/2024/06/28/kyle-walker-peters-west-ham/
-
-**She Wants to Save the Arts in Britain (if She Can Get Elected)**\
-`The Labour lawmaker Thangam Debbonaire has a plan to turn Britain’s ailing cultural sector around. Will she get to implement it?`\
-https://nytimes.com/2024/06/28/arts/labour-party-culture.html
 
