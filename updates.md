@@ -1,3 +1,11 @@
+**‘Is It Too Late?’ Four Writers on What Democrats Should Do About Biden.**\
+`None of the options ensure victory against Trump — and some of them could badly split the party.`\
+https://nytimes.com/2024/06/28/opinion/biden-democrats-debate.html
+
+**Book Club: Let’s Talk About ‘Headshot,’ by Rita Bullwinkel**\
+`Bullwinkel’s debut novel sheds light on the culture of youth women’s boxing through an ensemble cast of complicated characters. It packs a punch.`\
+https://nytimes.com/2024/06/28/books/review/book-club-headshot-rita-bullwinkel.html
+
 **Texas Supreme Court Upholds Ban on Gender Transition Care for Minors**\
 `The all-Republican court voted 8 to 1 to leave in effect a law enacted last year during a wave of legislation targeting transgender rights.`\
 https://nytimes.com/2024/06/28/us/texas-transgender-ban-minors.html

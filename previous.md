@@ -1,3 +1,11 @@
+**‘Is It Too Late?’ Four Writers on What Democrats Should Do About Biden.**\
+`None of the options ensure victory against Trump — and some of them could badly split the party.`\
+https://nytimes.com/2024/06/28/opinion/biden-democrats-debate.html
+
+**Book Club: Let’s Talk About ‘Headshot,’ by Rita Bullwinkel**\
+`Bullwinkel’s debut novel sheds light on the culture of youth women’s boxing through an ensemble cast of complicated characters. It packs a punch.`\
+https://nytimes.com/2024/06/28/books/review/book-club-headshot-rita-bullwinkel.html
+
 **Texas Supreme Court Upholds Ban on Gender Transition Care for Minors**\
 `The all-Republican court voted 8 to 1 to leave in effect a law enacted last year during a wave of legislation targeting transgender rights.`\
 https://nytimes.com/2024/06/28/us/texas-transgender-ban-minors.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/28/nyregion/budget-libraries-3k-adams.html
 **Could Democrats Replace Biden at the Top of the Presidential Ticket?**\
 `While it is possible, it would most likely lead to political upheaval in the party unless the president decides to step aside on his own terms.`\
 https://nytimes.com/2024/06/28/us/politics/replace-biden.html
-
-**Biden’s ‘Hard Night’ at Debate Surprises Voters Who Had High Expectations**\
-`Poll respondents who had thought the president would perform well expressed disappointment. ‘His communication fell down,’ one voter said.`\
-https://nytimes.com/2024/06/28/us/elections/biden-debate-poll-expectations.html
-
-**Biden Vows to ‘Get Back Up’ After Poor Debate Performance**\
-`During a rally in North Carolina, President Biden attempted to minimize concerns about his fitness for office by reassuring the crowd that he’s up for the job.`\
-https://nytimes.com/video/us/elections/100000009546451/biden-confronts-doubters.html
 
