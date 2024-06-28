@@ -1,3 +1,11 @@
+**Judge John Hodgman on Speaking Like a Local While Traveling**\
+`Should this father be trying to communicate in the language of the places he visits if it’s embarrassing his son?`\
+https://nytimes.com/2024/06/28/magazine/judge-john-hodgman-on-speaking-like-a-local-while-traveling.html
+
+**Weakening Regulatory Agencies Will Be a Key Legacy of the Roberts Court**\
+`Two rulings this week by the Republican-appointed majority add to its steady pursuit of enfeebling the ability of the administrative state to impose rules on powerful business interests.`\
+https://nytimes.com/2024/06/28/us/politics/supreme-court-regulatory-agencies.html
+
 **6 Paperbacks to Read This Week**\
 `Selected paperbacks from the Book Review, including titles by Darrin Bell, Maggie Smith, David Friend and more.`\
 https://nytimes.com/interactive/2024/06/28/books/review/new-paperbacks-bell.html
