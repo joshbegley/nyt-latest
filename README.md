@@ -1,7 +1,3 @@
-**Officer Found Guilty of Murdering Man Outside Washington State Grocery Store**\
-`The conviction is the first under a state law that eases the prosecution of police officials.`\
-https://nytimes.com/2024/06/27/us/washington-police-murder-guilty.html
-
 **What we're hearing about the Canucks' draft plans and free agency priorities**\
 `The Canucks have the intention and flexibility required to further remake their roster this upcoming weekend.`\
 https://nytimes.com/athletic/5598536/2024/06/27/canucks-nhl-draft-jake-guentzel/
@@ -37,4 +33,8 @@ https://nytimes.com/live/2024/06/27/us/biden-trump-debate/he-wants-to-get-rid-of
 **A Fumbling Performance, and a Panicking Party**\
 `President Biden’s shaky, halting debate performance has top Democrats talking about replacing him on the ticket.`\
 https://nytimes.com/2024/06/27/us/politics/biden-debate-democrats.html
+
+**Asked About Their Ages, Biden Deflects and Trump Brags About His Golf Skills**\
+`Age has loomed over the 2024 campaign, and neither candidate’s answer might have been enough to push aside voters’ qualms.`\
+https://nytimes.com/2024/06/27/us/politics/biden-trump-age-golf.html
 
