@@ -1,6 +1,14 @@
+**Team USA has dominated Summer Olympics medal table. Will it continue in Paris?**\
+`Follow our Olympics coverage in the lead-up to the Paris Games.`\
+https://nytimes.com/athletic/5587698/2024/06/28/team-usa-olympics-medal-count-paris/
+
 **Deaths Linked to Japanese Supplement Suddenly Rises to 80**\
 `The case, involving a supplement intended to reduce cholesterol, has put attention on how companies are allowed to self-report claims about their products.`\
 https://nytimes.com/2024/06/28/business/kobayashi-pharmaceutical-supplement-deaths.html
+
+**Why the Lakers set out to make history by drafting Bronny James at No. 55**\
+`There wasn't much risk for the team in drafting LeBron James' son in the second round.`\
+https://nytimes.com/athletic/5597946/2024/06/28/bronny-james-lakers-development-draft/
 
 **Oilers 2024 NHL Draft preview: What do they need to add?**\
 `Here's a look at what you can expect from the Oilers draft table this weekend.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/28/briefing/a-halting-performance.html
 **Spain's Lamine Yamal passes school exams during Euro 2024**\
 `Barcelona winger and Spain international Lamine Yamal, 16, has successfully passed his school exams.`\
 https://nytimes.com/athletic/5599265/2024/06/28/lamine-yamal-spain-euro-2024/
-
-**Brittany Was Once Barren Ground for France’s Far Right. No More.**\
-`The region along the northwest coast has few immigrants and little crime or unemployment, but the far-right National Rally has made inroads saying that all three are coming.`\
-https://nytimes.com/2024/06/28/world/europe/france-brittany-far-right.html
-
-**Germany's Rudiger fit to face Denmark in last 16**\
-`Antonio Rudiger is set to start for Germany against Denmark on Saturday night.`\
-https://nytimes.com/athletic/5599458/2024/06/28/antonio-rudiger-fit-germany-denmark/
 
