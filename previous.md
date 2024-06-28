@@ -1,3 +1,15 @@
+**‘It was painful’: Biden supporters react to the debate with anxiety and alarm**\
+`By The New York Times`\
+https://nytimes.com/live/2024/06/28/us/trump-biden-debate/it-was-painful-biden-supporters-react-to-the-debate-with-anxiety-and-alarm
+
+**Young People Demand Change Ahead of Britain’s Election**\
+`Many young people feel disillusioned by politics in the United Kingdom, as the country readies for a pivotal general election after 14 years of Conservative governments.`\
+https://nytimes.com/video/world/europe/100000009538410/young-voters-voices-uk-election.html
+
+**‘I Know I’m Not a Young Man’: Biden Confronts Doubters During Forceful Rally**\
+`President Biden tried to minimize concerns about his fitness for office, saying he would not be running if he didn’t think he was up to the job.`\
+https://nytimes.com/2024/06/28/us/politics/biden-rally-debate.html
+
 **Girl Groupers Gone (Successfully!) Solo**\
 `With two new albums from members of Fifth Harmony out now, a look back at other pop singers who took off on their own.`\
 https://nytimes.com/2024/06/28/arts/music/amplifier-newsletter-girl-groupers-gone-solo.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/28/us/los-angeles-homeless-count.html
 **Prosecutors in Menendez Bribery Trial Rest Their Case**\
 `After seven weeks of trial, lawyers for Senator Robert Menendez are expected to begin calling witnesses on Monday to rebut the government’s case.`\
 https://nytimes.com/2024/06/28/nyregion/robert-menendez-bribery-trial.html
-
-**Towa Bird’s Bouncy Revenge Rock, and 10 More New Songs**\
-`Hear tracks by Camila Cabello, Wilco, Xavi and others.`\
-https://nytimes.com/2024/06/28/arts/music/playlist-camila-cabello-noah-kahan-towa-bird.html
-
-**Outside ‘Jittery Joe’s,’ the Biden campaign pushes donors for calm.**\
-`By Shane Goldmacher`\
-https://nytimes.com/live/2024/06/28/us/trump-biden-debate/outside-jittery-joes-the-biden-campaign-pushes-donors-for-calm
-
-**House G.O.P. Begins Push on Hard-Right Spending Bills, Teeing Up Future Battles**\
-`The Republican-led House loaded its funding measures with provisions that have no chance of becoming law, as both parties look toward a bigger fight later this year, most likely after the elections.`\
-https://nytimes.com/2024/06/28/us/politics/house-republicans-spending-bills.html
 

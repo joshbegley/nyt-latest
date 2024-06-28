@@ -1,3 +1,15 @@
+**‘It was painful’: Biden supporters react to the debate with anxiety and alarm**\
+`By The New York Times`\
+https://nytimes.com/live/2024/06/28/us/trump-biden-debate/it-was-painful-biden-supporters-react-to-the-debate-with-anxiety-and-alarm
+
+**Young People Demand Change Ahead of Britain’s Election**\
+`Many young people feel disillusioned by politics in the United Kingdom, as the country readies for a pivotal general election after 14 years of Conservative governments.`\
+https://nytimes.com/video/world/europe/100000009538410/young-voters-voices-uk-election.html
+
+**‘I Know I’m Not a Young Man’: Biden Confronts Doubters During Forceful Rally**\
+`President Biden tried to minimize concerns about his fitness for office, saying he would not be running if he didn’t think he was up to the job.`\
+https://nytimes.com/2024/06/28/us/politics/biden-rally-debate.html
+
 **Los Angeles Homeless Count Drops for the First Time in 6 Years**\
 `The reduction was a sign of progress for Mayor Karen Bass, who started an aggressive new program to move people off the streets in 2022.`\
 https://nytimes.com/2024/06/28/us/los-angeles-homeless-count.html
