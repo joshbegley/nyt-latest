@@ -1,3 +1,15 @@
+**Biden vs. Trump: A Wrenching Debate**\
+`Readers are disturbed by “problematic performances” by both candidates, and some urge the president to bow out.`\
+https://nytimes.com/2024/06/28/opinion/letters/biden-trump-debate.html
+
+**One by One, Biden’s Closest Media Allies Defect After the Debate**\
+`The MSNBC host Joe Scarborough, the CNN contributor Van Jones and other pundits who have long supported the president are now urging him to drop out.`\
+https://nytimes.com/2024/06/28/us/politics/biden-media-allies-debate.html
+
+**Democrats, anticipating Chevron’s demise, gave E.P.A. more power in recent climate law.**\
+`By Coral Davenport`\
+https://nytimes.com/2024/06/28/us/politics/democrats-anticipating-chevrons-demise-gave-epa-more-power-in-recent-climate-law.html
+
 **Kamala Harris Could Win This Election. Let Her.**\
 `The vice president is the obvious path out of the mess Joe Biden has created.`\
 https://nytimes.com/2024/06/28/opinion/kamala-harris-biden-debate.html

@@ -1,3 +1,11 @@
+**Biden vs. Trump: A Wrenching Debate**\
+`Readers are disturbed by “problematic performances” by both candidates, and some urge the president to bow out.`\
+https://nytimes.com/2024/06/28/opinion/letters/biden-trump-debate.html
+
+**One by One, Biden’s Closest Media Allies Defect After the Debate**\
+`The MSNBC host Joe Scarborough, the CNN contributor Van Jones and other pundits who have long supported the president are now urging him to drop out.`\
+https://nytimes.com/2024/06/28/us/politics/biden-media-allies-debate.html
+
 **Kamala Harris Could Win This Election. Let Her.**\
 `The vice president is the obvious path out of the mess Joe Biden has created.`\
 https://nytimes.com/2024/06/28/opinion/kamala-harris-biden-debate.html
@@ -12,7 +20,7 @@ https://nytimes.com/2024/06/28/us/politics/trump-abortion-letter.html
 
 **Democrats, anticipating Chevron’s demise, gave E.P.A. more power in recent climate law.**\
 `By Coral Davenport`\
-https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/democrats-anticipating-chevrons-demise-gave-epa-more-power-in-recent-climate-law
+https://nytimes.com/2024/06/28/us/politics/democrats-anticipating-chevrons-demise-gave-epa-more-power-in-recent-climate-law.html
 
 **5 International Shows Worth Watching, From Kafka to a Human Kaiju**\
 `The return of “Babylon Berlin” was the international TV news of the week, but here are five other recent series to check out.`\
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/arts/harlem-renaissance-100-anniversary.htm
 **The ruling will embolden challenges against financial regulators.**\
 `By Stacy Cowley and Emily Flitter`\
 https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/the-ruling-will-embolden-challenges-against-financial-regulators
-
-**U.S. Presses to Avert Wider War Between Israel and Hezbollah in Lebanon**\
-`A recent flurry of diplomacy aims to head off a conflict that could pit the United States directly against Iran.`\
-https://nytimes.com/2024/06/28/us/politics/israel-hezbollah-lebanon-iran.html
-
-**Dutch Olympic Organizers Defend Participation of Athlete Convicted of Rape**\
-`Steven van de Velde, a beach volleyball player, spent time in prison for the 2014 rape of a 12-year-old girl. His inclusion on the Olympic team has caused a stir in the international news media.`\
-https://nytimes.com/2024/06/28/world/europe/steven-van-de-velde-dutch-volleyball-olympics.html
 
