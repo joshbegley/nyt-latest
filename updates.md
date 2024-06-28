@@ -1,3 +1,11 @@
+**New Jersey Orders Trump’s Clubs to Show They Deserve Liquor Licenses**\
+`The state said that former President Donald J. Trump’s felony convictions may mean he does not have the moral character to serve drinks.`\
+https://nytimes.com/2024/06/28/nyregion/trump-golf-clubs-liquor-licenses.html
+
+**Regulatory Agencies Suffered Their Latest Blow in Chevron Ruling**\
+`The Supreme Court’s conservative majority has made it easier to sue agencies and get their rules struck down.`\
+https://nytimes.com/2024/06/28/us/politics/scotus-chevron-agencies.html
+
 **The Supreme Court Gives a Hand to Hundreds of Jan. 6 Rioters**\
 `The decision could also affect the indictment against Trump.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/supreme-court-jan6-rioters
