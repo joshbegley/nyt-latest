@@ -1,3 +1,7 @@
+**U.S. Allies Watch the Debate With Shaking Heads and a Question: What Now?**\
+`Across Asia, there was little talk about winning, and more concern about American stability — both domestically and on crucial foreign policy issues.`\
+https://nytimes.com/2024/06/28/world/asia/biden-trump-debate-allies.html
+
 **The USMNT are in danger of blowing their big moment**\
 `The summer began with great expectations for Gregg Berhalter and his players, but they are in danger of falling well short`\
 https://nytimes.com/athletic/5599095/2024/06/28/usmnt-copa-america-pressure/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/28/us/politics/presidential-debate-scene.html
 **At One Post-Debate Party, President Biden Found a Jubilant Reception**\
 `Supporters who gathered at an Atlanta hotel cheered President Biden’s performance even as Democratic leaders elsewhere were voicing concern and distress.`\
 https://nytimes.com/2024/06/28/us/biden-debate-watch-party.html
-
-**Life inside and outside the England bubble - Tension, criticism and how players really feel**\
-`Alan Shearer on being criticised by Gary Lineker as a player, the reality of life in camp, how players feel and why England are struggling`\
-https://nytimes.com/athletic/5597454/2024/06/28/alan-shearer-criticism-england-bubble/
 
