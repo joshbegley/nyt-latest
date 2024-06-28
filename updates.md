@@ -1,3 +1,11 @@
+**Stolen 37 Years Ago, Theodore Roosevelt’s Watch Finally Returns Home**\
+`The watch, which was stolen in 1987, was returned Thursday to Sagamore Hill National Historic Site on Long Island.`\
+https://nytimes.com/2024/06/27/nyregion/theodore-roosevelt-watch-long-island.html
+
+**Jets' Connor Hellebuyck wins Vezina Trophy**\
+`Hellebuyck joins an elite group of goaltenders who have won the award twice.`\
+https://nytimes.com/athletic/5590146/2024/06/27/connor-hellebuyck-vezina-trophy-winnipeg-jets/
+
 **Weah apologizes to USMNT team-mates after red card vs Panama**\
 `Tim Weah apologized to his USMNT team-mates after his red card in the shock Copa America defeat to Panama.`\
 https://nytimes.com/athletic/5598200/2024/06/27/tim-weah-red-card-usmnt/
