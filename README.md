@@ -1,3 +1,19 @@
+**One Way to Make Russia Pay for Ukraine? Take Its Money.**\
+`U.S. and E.U. leaders are divided over how far to go in the economic war against Vladimir Putin.`\
+https://nytimes.com/2024/06/28/opinion/russia-ukraine-sanctions.html
+
+**Why Conservatives Shouldn’t Be Doomers**\
+`A late-Soviet debate night doesn’t mean we’re in late-Soviet America.`\
+https://nytimes.com/2024/06/28/opinion/conservative-doomers.html
+
+**Racist and Homophobic Comments Unsettle U.K. Election Campaign**\
+`Prime Minister Rishi Sunak denounced a slur used against him by a man campaigning for Reform U.K., the anti-immigration party led by Nigel Farage.`\
+https://nytimes.com/2024/06/28/world/europe/racist-homophobic-reform-uk.html
+
+**On Immigration, Biden Offers a Muted, Muddled Message**\
+`Former President Donald J. Trump continued to spread fear of immigrants, while the president did not define any broader strategy on the issue.`\
+https://nytimes.com/2024/06/28/us/politics/biden-trump-immigration.html
+
 **Fearful and Doubting Biden, Democrats Face an Uncertain Path Forward**\
 `A range of despairing Democrats began to reconsider their nominee after his rough debate showing, but there was no agreement on how, or whether, to urge him to step off the ticket.`\
 https://nytimes.com/2024/06/28/us/politics/biden-democrats-nominee-2024-election.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/06/25/opinion/thepoint/supreme-court-jan6-rioters
 **‘It was painful’: Biden supporters react to the debate with anxiety and alarm**\
 `By The New York Times`\
 https://nytimes.com/live/2024/06/28/us/trump-biden-debate/it-was-painful-biden-supporters-react-to-the-debate-with-anxiety-and-alarm
-
-**Young People Demand Change Ahead of Britain’s Election**\
-`Many young people feel disillusioned by politics in the United Kingdom, as the country readies for a pivotal general election after 14 years of Conservative governments.`\
-https://nytimes.com/video/world/europe/100000009538410/young-voters-voices-uk-election.html
-
-**‘I Know I’m Not a Young Man’: Biden Confronts Doubters During Forceful Rally**\
-`President Biden tried to minimize concerns about his fitness for office, saying he would not be running if he didn’t think he was up to the job.`\
-https://nytimes.com/2024/06/28/us/politics/biden-rally-debate.html
-
-**Girl Groupers Gone (Successfully!) Solo**\
-`With two new albums from members of Fifth Harmony out now, a look back at other pop singers who took off on their own.`\
-https://nytimes.com/2024/06/28/arts/music/amplifier-newsletter-girl-groupers-gone-solo.html
-
-**Learn the Secrets to Perfect Pasta Every Time**\
-`In the latest installment of her YouTube series, the cookbook author and chef Sohla El-Waylly will teach you how to tame that pantry workhorse.`\
-https://nytimes.com/article/pasta.html
 
