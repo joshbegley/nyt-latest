@@ -1,3 +1,7 @@
+**The USMNT are in danger of blowing their big moment**\
+`The summer began with great expectations for Gregg Berhalter and his players, but they are in danger of falling well short`\
+https://nytimes.com/athletic/5599095/2024/06/28/usmnt-copa-america-pressure/
+
 **Facing Trump’s Misleading Attacks, Biden Appears Shaky**\
 `President Biden struggled through his first debate of the 2024 campaign against Donald J. Trump, meandering and mumbling through answers as the former president pressed his case for a second term with limited resistance from his rival.`\
 https://nytimes.com/video/us/politics/100000009544967/facing-trumps-misleading-attacks-biden-appears-shaky.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/28/us/biden-debate-watch-party.html
 **Life inside and outside the England bubble - Tension, criticism and how players really feel**\
 `Alan Shearer on being criticised by Gary Lineker as a player, the reality of life in camp, how players feel and why England are struggling`\
 https://nytimes.com/athletic/5597454/2024/06/28/alan-shearer-criticism-england-bubble/
-
-**Word of the Day: imperative**\
-`This word has appeared in 390 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/06/28/learning/word-of-the-day-imperative.html
 

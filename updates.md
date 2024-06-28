@@ -1,3 +1,7 @@
+**The USMNT are in danger of blowing their big moment**\
+`The summer began with great expectations for Gregg Berhalter and his players, but they are in danger of falling well short`\
+https://nytimes.com/athletic/5599095/2024/06/28/usmnt-copa-america-pressure/
+
 **Facing Trump’s Misleading Attacks, Biden Appears Shaky**\
 `President Biden struggled through his first debate of the 2024 campaign against Donald J. Trump, meandering and mumbling through answers as the former president pressed his case for a second term with limited resistance from his rival.`\
 https://nytimes.com/video/us/politics/100000009544967/facing-trumps-misleading-attacks-biden-appears-shaky.html
