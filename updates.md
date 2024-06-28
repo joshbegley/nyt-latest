@@ -1,3 +1,7 @@
+**Putin Vows to Make New Nuclear Missiles and to Weigh Placing Them Near NATO Nations**\
+`The announcement appeared to be the Russian leader’s latest attempt to raise the stakes in his conflict with the West, coming less than two weeks after his visit to North Korea.`\
+https://nytimes.com/2024/06/28/world/europe/russia-nuclear-missiles-nato.html
+
 **Supreme Court Ruling Reflects Challenges of Jan. 6 Prosecutions**\
 `In finding that prosecutors misused an obstruction law to charge rioters, the justices highlighted the lack of an established legal blueprint for addressing an attack on the foundations of democracy.`\
 https://nytimes.com/2024/06/28/us/politics/supreme-court-jan-6-prosecution.html
