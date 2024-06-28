@@ -1,3 +1,7 @@
+**The Winners of Our 7th Annual Student Podcast Contest**\
+`We invited teenagers to create an original five-minute podcast about almost anything. Here are the finalists selected from over 1,100 submissions.`\
+https://nytimes.com/2024/06/28/learning/the-winners-of-our-7th-annual-student-podcast-contest.html
+
 **Maps: 7.2-Magnitude Earthquake Shakes Peru**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/06/28/world/americas/peru-earthquake-map.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5599557/2024/06/28/kyle-walker-peters-west-ham/
 **She Wants to Save the Arts in Britain (if She Can Get Elected)**\
 `The Labour lawmaker Thangam Debbonaire has a plan to turn Britain’s ailing cultural sector around. Will she get to implement it?`\
 https://nytimes.com/2024/06/28/arts/labour-party-culture.html
-
-**Democratic Donors’ Big Question: What’s Plan B?**\
-`An unsteady debate performance by President Biden has scrambled the thinking among some donors about whether the party needs to find an alternative.`\
-https://nytimes.com/2024/06/28/business/dealbook/biden-debate-donors.html
 

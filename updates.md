@@ -1,3 +1,7 @@
+**The Winners of Our 7th Annual Student Podcast Contest**\
+`We invited teenagers to create an original five-minute podcast about almost anything. Here are the finalists selected from over 1,100 submissions.`\
+https://nytimes.com/2024/06/28/learning/the-winners-of-our-7th-annual-student-podcast-contest.html
+
 **Maps: 7.2-Magnitude Earthquake Shakes Peru**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/06/28/world/americas/peru-earthquake-map.html
