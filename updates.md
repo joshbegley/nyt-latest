@@ -1,3 +1,7 @@
+**Facing Trump’s Misleading Attacks, Biden Appears Shaky**\
+`President Biden struggled through his first debate of the 2024 campaign against Donald J. Trump, meandering and mumbling through answers as the former president pressed his case for a second term with limited resistance from his rival.`\
+https://nytimes.com/video/us/politics/100000009544967/facing-trumps-misleading-attacks-biden-appears-shaky.html
+
 **7.2-Magnitude Earthquake Strikes Off Peru**\
 `Peruvian authorities issued a tsunami alert after the quake struck off the coast of the southern region of Arequipa.`\
 https://nytimes.com/2024/06/28/world/americas/peru-earthquake.html

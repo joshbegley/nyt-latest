@@ -1,3 +1,7 @@
+**Facing Trump’s Misleading Attacks, Biden Appears Shaky**\
+`President Biden struggled through his first debate of the 2024 campaign against Donald J. Trump, meandering and mumbling through answers as the former president pressed his case for a second term with limited resistance from his rival.`\
+https://nytimes.com/video/us/politics/100000009544967/facing-trumps-misleading-attacks-biden-appears-shaky.html
+
 **A Storied Harlem Church Has a New Leader. Its Members Have Questions.**\
 `Behind the opaque process that just selected the next pastor at Abyssinian Baptist Church.`\
 https://nytimes.com/2024/06/28/nyregion/abyssinian-baptist-church-kevin-johnson.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5597454/2024/06/28/alan-shearer-criticism-england-b
 **Word of the Day: imperative**\
 `This word has appeared in 390 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/06/28/learning/word-of-the-day-imperative.html
-
-**No Appendix, No Problem. Australia’s Remote Doctors Tell All.**\
-`Being the only physician around for hundreds of miles isn’t always bad. “It’s quite liberating to be like, ‘I’m the best person here for the job’,” said one doctor.`\
-https://nytimes.com/2024/06/28/world/australia/remote-doctors.html
 
