@@ -1,3 +1,7 @@
+**Spain's Lamine Yamal passes school exams during Euro 2024**\
+`Barcelona winger and Spain international Lamine Yamal, 16, has successfully passed his school exams.`\
+https://nytimes.com/athletic/5599265/2024/06/28/lamine-yamal-spain-euro-2024/
+
 **Germany's Rudiger fit to face Denmark in last 16**\
 `Antonio Rudiger is set to start for Germany against Denmark on Saturday night.`\
 https://nytimes.com/athletic/5599458/2024/06/28/antonio-rudiger-fit-germany-denmark/
