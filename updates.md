@@ -1,3 +1,7 @@
+**She Thought She Caught a Man Cheating, So She Posted on TikTok**\
+`A woman took a sneaky video of a man and woman on a plane, claiming that she was witnessing an extramarital affair.`\
+https://nytimes.com/2024/06/28/style/tiktok-plane-privacy.html
+
 **In Mexico City, debate watchers pay close attention to talk of immigration.**\
 `By James Wagner`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/in-mexico-city-debate-watchers-pay-close-attention-to-talk-of-immigration

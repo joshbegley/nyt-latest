@@ -1,3 +1,7 @@
+**She Thought She Caught a Man Cheating, So She Posted on TikTok**\
+`A woman took a sneaky video of a man and woman on a plane, claiming that she was witnessing an extramarital affair.`\
+https://nytimes.com/2024/06/28/style/tiktok-plane-privacy.html
+
 **In Mexico City, debate watchers pay close attention to talk of immigration.**\
 `By James Wagner`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/in-mexico-city-debate-watchers-pay-close-attention-to-talk-of-immigration
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/28/movies/catherine-breillat-last-summer.html
 **Join Us to Hear About the Loopholes of Hawaii’s Pay-to-Play Law**\
 `A joint investigation examined the role money plays in politics in Hawaii. Hear how journalists put the story together in a livestreamed event on July 10.`\
 https://nytimes.com/2024/06/28/us/honolulu-civil-beat-event.html
-
-**What is Chevron deference anyway?**\
-`By David Leonhardt`\
-https://nytimes.com/live/2024/06/28/us/supreme-court-chevron/what-is-chevron-deference-anyway
 
