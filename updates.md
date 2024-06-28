@@ -1,3 +1,7 @@
+**Schools Police Chief Indicted in Uvalde Shooting Response**\
+`The indictment, which comes more than two years after the massacre at Robb Elementary School, is the first set of criminal charges to stem from the attack.`\
+https://nytimes.com/2024/06/27/us/uvalde-shooting-pete-arredondo-indicted.html
+
 **Calder Trophy runner-up, a possible extension on the way, Wild's Brock Faber looks forward to big sophomore year**\
 `Faber, especially in his home state, is humbled by the accolades he receives and the spotlight he gets.`\
 https://nytimes.com/athletic/5546942/2024/06/27/wild-brock-faber-contract-calder-trophy/
