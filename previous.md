@@ -1,4 +1,4 @@
-**Biden Cannot Go On Like This**\
+**Biden Cannot Go on Like This**\
 `Democrats must grapple with his disastrous debate.`\
 https://nytimes.com/2024/06/28/opinion/presidential-debate-trump-biden-2024.html
 
@@ -11,7 +11,7 @@ https://nytimes.com/2024/06/28/us/politics/biden-sore-throat-debate.html
 https://nytimes.com/2024/06/28/arts/television/jon-stewart-debate-trump-biden.html
 
 **Wildfires Sparked by 1,000 Lightning Strikes Spread in California**\
-`The group of fires prompted an evacuation as they burned more than 10,000 acres east of Fresno after a lightening storm struck the region.`\
+`The group of fires prompted an evacuation as they burned more than 10,000 acres east of Fresno after a lightning storm struck the region.`\
 https://nytimes.com/2024/06/28/us/fresno-california-wildfire.html
 
 **Dana Bash and Jake Tapper Let Candidates Be the ‘Stars of the Show’**\
