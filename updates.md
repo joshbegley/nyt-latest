@@ -1,3 +1,15 @@
+**Six Takeaways From the First Presidential Debate**\
+`In a testy, personal clash, President Biden failed to ease worries about his age, Donald Trump forcefully made his case (with wild claims and exaggerations) and the moderators held their fact-checking fire.`\
+https://nytimes.com/2024/06/28/us/politics/presidential-debate-takeaways-biden-trump.html
+
+**Six former Man Utd players on the one issue Ten Hag needs to fix**\
+`Lee Sharpe, Jaap Stam and other ex-Man Utd players on what's gone wrong at their former club and how to fix it...`\
+https://nytimes.com/athletic/5589606/2024/06/28/man-utd-former-players-diagnose-club-biggest-problems/
+
+**Trump’s Debate Performance: Relentless Attacks and Falsehoods**\
+`The former president’s remarks onstage, repeated often on the campaign trail, were striking with his opponent standing a few feet away.`\
+https://nytimes.com/2024/06/27/us/politics/trump-debate-performance-falsehoods.html
+
 **Trump’s debate performance: Relentless attacks and falsehoods.**\
 `By Michael Gold`\
 https://nytimes.com/2024/06/27/us/politics/trumps-debate-performance-relentless-attacks-and-falsehoods.html
