@@ -1,3 +1,7 @@
+**“What I’ve done, since I’ve changed the law, what’s happened? I’ve changed it in a way that now you’re in a situation where there are 40 percent fewer people coming across the border illegally. It’s better than when he left office.”**\
+`By Hamed Aleaziz`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/what-ive-done-since-ive-changed-the-law-whats-happened-ive-changed-it-in-a-way-that-now-youre-in-a-situation-where-there-are-40-
+
 **“Black unemployment is the lowest level it’s been in a long, long time.”**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/black-unemployment-is-the-lowest-level-its-been-in-a-long-long-time
