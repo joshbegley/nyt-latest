@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`Biden stumbled in the first 2024 debate.`\
+https://nytimes.com/2024/06/28/briefing/trump-biden-debate-france-election.html
+
 **Carlos Rodón was a disaster once again. Where do the Yankees go from here?**\
 `Rodón isn't going to turn into a junkballer, but he acknowledged the sequencing needs to improve.`\
 https://nytimes.com/athletic/5598515/2024/06/28/yankees-carlos-rodon-disaster-again/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5592848/2024/06/28/gareth-southgate-england-view-eu
 **Trump’s Debate Performance: Relentless Attacks and Falsehoods**\
 `The former president’s remarks onstage, repeated often on the campaign trail, were striking with his opponent standing a few feet away.`\
 https://nytimes.com/2024/06/27/us/politics/trump-debate-performance-falsehoods.html
-
-**A settled line-up and Musiala on fire, but a notable lack of width - assessing Germany so far**\
-`The hosts have impressed at these Euros and have much to be happy about, but if they are to go all the way, there are the areas to improve`\
-https://nytimes.com/athletic/5597237/2024/06/28/germany-euro-2024-analysis/
 
