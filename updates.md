@@ -1,3 +1,11 @@
+**A Dark Day for Democrats**\
+`The combination of President Biden’s debate performance and adverse Supreme Court rulings left Democrats reeling and in despair with elections not far off.`\
+https://nytimes.com/2024/06/28/us/politics/democrats-biden-debate-supreme-court.html
+
+**Paul Sperry, Tenor Who Specialized in American Song, Dies at 90**\
+`He carved out a niche by singing songs by living composers from his own country, and was praised by critics at home and abroad.`\
+https://nytimes.com/2024/06/28/arts/music/paul-sperry-dead.html
+
 **The Best Engagement Gifts**\
 `Take the guesswork out of the present.`\
 https://nytimes.com/interactive/2024/06/28/smarter-living/wirecutter/engagement-gifts.html
