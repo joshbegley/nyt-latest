@@ -1,3 +1,7 @@
+**NBA free agency: Isaiah Hartenstein tops a not-so-strong group of centers**\
+`As the final positional stop on our free agency tour, the center position unquestionably offers the least.`\
+https://nytimes.com/athletic/5585200/2024/06/28/nba-free-agency-best-available-centers-isaiah-hartenstein-nic-claxton/
+
 **The Panama game was an important test for this USMNT generation - and one it failed**\
 `How can the US expect to outfox bigger names if it frequently fails against opponents it knows best?`\
 https://nytimes.com/athletic/5599151/2024/06/28/usmnt-generation-failed-panama-copa-america/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/28/nyregion/joseph-pell-lombardi-real-estate-office-
 **Over 65, With No Place to Call Home**\
 `The number of older people living in homeless shelters in New York City is growing quickly, in an unheralded sign of the affordable housing crisis.`\
 https://nytimes.com/2024/06/28/nyregion/nyc-homeless-older-people.html
-
-**7.2-Magnitude Earthquake Strikes Off Peru**\
-`A tsunami alert was lifted about an hour after the quake struck off the coast of the southern region of Arequipa. There were reports of minor injuries and some damage.`\
-https://nytimes.com/2024/06/28/world/americas/peru-earthquake.html
 
