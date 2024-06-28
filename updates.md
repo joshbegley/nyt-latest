@@ -1,3 +1,7 @@
+**Supreme Court Ruling Reflects Challenges of Jan. 6 Prosecutions**\
+`In finding that prosecutors misused an obstruction law to charge rioters, the justices highlighted the lack of an established legal blueprint for addressing an attack on the foundations of democracy.`\
+https://nytimes.com/2024/06/28/us/politics/supreme-court-ruling-reflects-challenges-of-jan-6-prosecutions.html
+
 **She Needed an Emergency Abortion. Doctors in Idaho Put Her on a Plane.**\
 `In states that have banned abortion, hospitals have struggled to treat pregnant women facing health risks. A Supreme Court decision this week did not help.`\
 https://nytimes.com/2024/06/28/us/emergency-abortion-idaho-mother.html
