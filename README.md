@@ -1,3 +1,11 @@
+**Euro 2024: Our ranking of all the games in Germany this summer**\
+`There are 51 games at Euro 2024 - The Athletic is ranking them all. Which one is going to finish top?`\
+https://nytimes.com/athletic/5586408/2024/06/28/euro-2024-ranking-all-games/
+
+**Euro 2024 group stage analysed: Fast starts, back threes and why so many own goals?**\
+`Mark Carey analyses the tactical trends from the from the opening two weeks of the European Championship in Germany`\
+https://nytimes.com/athletic/5596235/2024/06/28/euro-2024-group-stage-analysed/
+
 **Why Britain’s Murky Election Betting Scandal Is Causing Outrage**\
 `The embattled Conservative Party is embroiled in investigations over whether some of its own staff members used insider knowledge to bet on the timing of the general election.`\
 https://nytimes.com/2024/06/28/world/europe/uk-election-betting-scandal.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/28/style/stephanie-fleischman-zach-kuperman-wedding.
 **Outside the Campus Cafeteria, It Was Love at First Sight**\
 `Lucie Lott felt and Lalo Fabregas did a triple take the first time they saw each other. He almost canceled their first date for fear of falling in love.`\
 https://nytimes.com/2024/06/28/style/lucie-lott-lalo-fabregas-wedding.html
-
-**Sparks Flew All Over the World**\
-`Aggie Lal and Jacob Riglin first met as travel influencers in Thailand, got together in California and got back together in Bali (thanks, in part, to rescued puppies).`\
-https://nytimes.com/2024/06/28/style/aggie-lal-jacob-riglin-wedding.html
-
-**A Tennis Ball to the Head Was Just the Start of Their Love Story**\
-`Eric Rothman had a funny way of asking Courtney DiGia to prom. Ultimately, it worked out for them.`\
-https://nytimes.com/2024/06/28/style/courtney-digia-eric-rothman-wedding.html
 
