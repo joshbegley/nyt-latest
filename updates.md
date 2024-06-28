@@ -1,3 +1,11 @@
+**Supreme Court Upholds Ban on Sleeping Outdoors in Homelessness Case**\
+`In a case likely to have broad ramifications throughout the West, the court found an Oregon city’s penalties did not violate the Constitution’s prohibition on “cruel and unusual punishment.”`\
+https://nytimes.com/2024/06/28/us/politics/supreme-court-homelessness.html
+
+**Read the document: What the Iowa Supreme Court said**\
+`The Iowa Supreme Court ruled that the state’s six-week abortion ban could be enforced. Read its ruling here.`\
+https://nytimes.com/interactive/2024/06/28/us/iowa-supreme-court-abortion-ruling.html
+
 **Iowa Supreme Court Allows Six-Week Abortion Ban to Take Effect**\
 `Republican lawmakers passed the restrictions last year, but a lower court blocked enforcement of the law.`\
 https://nytimes.com/2024/06/28/us/iowa-supreme-court-abortion-ban.html
