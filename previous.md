@@ -1,3 +1,7 @@
+**Iowa Supreme Court Allows Six-Week Abortion Ban to Take Effect**\
+`Republican lawmakers passed the restrictions last year, but a lower court blocked enforcement of the law.`\
+https://nytimes.com/2024/06/28/us/iowa-abortion-ruling.html
+
 **Wimbledon draw: Nightmare half for Swiatek? Are Djokovic and Murray ready?**\
 `The stage is set for SW19, where the women's world No 1 has a tricky start and Djokovic and Murray are racing to make their first rounds`\
 https://nytimes.com/athletic/5599399/2024/06/28/wimbledon-draw-2024-swiatek-djokovic-murra/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/28/learning/summer-reading-contest-week-4-what-got-y
 **The Fed’s Preferred Inflation Measure Cools, Welcome News**\
 `The economy appears to be downshifting and price gains are moderating, as Federal Reserve officials creep closer to beating inflation.`\
 https://nytimes.com/2024/06/28/business/economy/federal-reserve-inflation-cools.html
-
-**Southampton offer Walker-Peters plus cash for West Ham's Flynn Downes**\
-`Southampton are in discussions with West Ham United regarding a deal for Flynn Downes, with Kyle Walker-Peters in line to move in the opposite direction as part of a separate transaction.`\
-https://nytimes.com/athletic/5599557/2024/06/28/kyle-walker-peters-west-ham/
 

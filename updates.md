@@ -1,3 +1,7 @@
+**Iowa Supreme Court Allows Six-Week Abortion Ban to Take Effect**\
+`Republican lawmakers passed the restrictions last year, but a lower court blocked enforcement of the law.`\
+https://nytimes.com/2024/06/28/us/iowa-abortion-ruling.html
+
 **Wimbledon draw: Nightmare half for Swiatek? Are Djokovic and Murray ready?**\
 `The stage is set for SW19, where the women's world No 1 has a tricky start and Djokovic and Murray are racing to make their first rounds`\
 https://nytimes.com/athletic/5599399/2024/06/28/wimbledon-draw-2024-swiatek-djokovic-murra/
