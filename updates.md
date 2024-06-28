@@ -1,3 +1,19 @@
+**A Storied Harlem Church Has a New Leader. Its Members Have Questions.**\
+`Behind the opaque process that just selected the next pastor at Abyssinian Baptist Church.`\
+https://nytimes.com/2024/06/28/nyregion/abyssinian-baptist-church-kevin-johnson.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/28/crosswords/spelling-bee-forum.html
+
+**The 84-Year-Old Visionary With One Answer for Two Real Estate Crises**\
+`While his peers were building Modernist towers, the architect Joseph Pell Lombardi devoted his life to restoring beautiful old buildings.`\
+https://nytimes.com/2024/06/28/nyregion/joseph-pell-lombardi-real-estate-office-apartments.html
+
+**Over 65, With No Place to Call Home**\
+`The number of older people living in homeless shelters in New York City is growing quickly, in an unheralded sign of the affordable housing crisis.`\
+https://nytimes.com/2024/06/28/nyregion/nyc-homeless-older-people.html
+
 **Joe Biden Is a Good Man and a Good President. He Must Bow Out of the Race.**\
 `Donald Trump is too grave a threat to America. Democrats need a nominee who can unite the country and articulate a compelling vision for it.`\
 https://nytimes.com/2024/06/28/opinion/joe-biden-tom-friedman.html

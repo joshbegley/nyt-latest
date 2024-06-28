@@ -1,3 +1,19 @@
+**A Storied Harlem Church Has a New Leader. Its Members Have Questions.**\
+`Behind the opaque process that just selected the next pastor at Abyssinian Baptist Church.`\
+https://nytimes.com/2024/06/28/nyregion/abyssinian-baptist-church-kevin-johnson.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/28/crosswords/spelling-bee-forum.html
+
+**The 84-Year-Old Visionary With One Answer for Two Real Estate Crises**\
+`While his peers were building Modernist towers, the architect Joseph Pell Lombardi devoted his life to restoring beautiful old buildings.`\
+https://nytimes.com/2024/06/28/nyregion/joseph-pell-lombardi-real-estate-office-apartments.html
+
+**Over 65, With No Place to Call Home**\
+`The number of older people living in homeless shelters in New York City is growing quickly, in an unheralded sign of the affordable housing crisis.`\
+https://nytimes.com/2024/06/28/nyregion/nyc-homeless-older-people.html
+
 **7.2-Magnitude Earthquake Strikes Off Peru**\
 `Peruvian authorities issued a tsunami alert after the quake struck off the coast near the southern city of Arequipa.`\
 https://nytimes.com/2024/06/28/world/americas/peru-earthquake.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/28/learning/word-of-the-day-imperative.html
 **No Appendix, No Problem. Australia’s Remote Doctors Tell All.**\
 `Being the only physician around for hundreds of miles isn’t always bad. “It’s quite liberating to be like, ‘I’m the best person here for the job’,” said one doctor.`\
 https://nytimes.com/2024/06/28/world/australia/remote-doctors.html
-
-**Joe Biden Is a Good Man and a Good President. He Must Bow Out of the Race.**\
-`Donald Trump is too grave a threat to America. Democrats need a nominee who can unite the country and articulate a compelling vision for it.`\
-https://nytimes.com/2024/06/28/opinion/joe-biden-tom-friedman.html
-
-**Biden Cannot Go on Like This**\
-`Democrats must grapple with his disastrous debate.`\
-https://nytimes.com/2024/06/28/opinion/presidential-debate-trump-biden-2024.html
-
-**Biden Brushes Off Concerns About His Performance: ‘It’s Hard to Debate a Liar’**\
-`During brief remarks to reporters after his showdown with former President Donald J. Trump, Mr. Biden said he felt he “did well” but noted that he had a sore throat.`\
-https://nytimes.com/2024/06/28/us/politics/biden-sore-throat-debate.html
-
-**Jon Stewart Is a Little Stressed Out About That Debate**\
-`Hosting a live “Daily Show” after the Biden-Trump spectacle, Stewart said he needed “to call a real estate agent in New Zealand.”`\
-https://nytimes.com/2024/06/28/arts/television/jon-stewart-debate-trump-biden.html
 
