@@ -4,7 +4,7 @@ https://nytimes.com/2024/06/28/arts/television/presidential-debate-biden-trump.h
 
 **Iowa Supreme Court Allows Six-Week Abortion Ban to Take Effect**\
 `Republican lawmakers passed the restrictions last year, but a lower court blocked enforcement of the law.`\
-https://nytimes.com/2024/06/28/us/iowa-abortion-ruling.html
+https://nytimes.com/2024/06/28/us/iowa-supreme-court-abortion-ban.html
 
 **Wimbledon draw: Nightmare half for Swiatek? Are Djokovic and Murray ready?**\
 `The stage is set for SW19, where the women's world No 1 has a tricky start and Djokovic and Murray are racing to make their first rounds`\
