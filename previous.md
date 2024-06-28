@@ -1,3 +1,11 @@
+**Braves trade scenarios: Bowden assesses 4 proposals to fill key needs**\
+`The Braves need to address two areas before the deadline: corner outfielder and starting pitcher. Jim Bowden evaluates four such proposals. `\
+https://nytimes.com/athletic/5597696/2024/06/28/braves-mlb-trade-deadline-proposals/
+
+**Bo Goes into the Royals Hall of Fame: Jackson's legendary moments live on in Kansas City**\
+`On Saturday, the Royals will induct Jackson into their Hall of Fame. The highlights from his time in KC are plenty and worth remembering.`\
+https://nytimes.com/athletic/5597401/2024/06/28/bo-jackson-royals-hall-fame/
+
 **Stream These 9 Movies Before They Leave Netflix in July**\
 `A bunch of major titles are leaving for U.S. subscribers this month, including films by George Lucas and Ang Lee. See them while you can.`\
 https://nytimes.com/2024/06/28/movies/netflix-expiring-july.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/06/28/briefing/trump-jamaal-bowman-kenya-qu
 **Make Something With Your Hands (Even if It’s Hideous)**\
 `Creating stuff is good for your brain.`\
 https://nytimes.com/2024/06/28/well/mind/hand-crafts-creation-art.html
-
-**Couture Fit for a ‘Lion King’**\
-`A new Balmain collection pays homage to the Disney film on a milestone anniversary. Plus, a preppy designer makes a comeback.`\
-https://nytimes.com/2024/06/28/style/balmain-lion-king-collection.html
-
-**What’s the Best Way to Assess the Quality of Fine Jewelry Online?**\
-`We asked a group of experts to share their strategies. Among the essentials: asking questions and understanding the difference among makers.`\
-https://nytimes.com/2024/06/28/fashion/how-to-buy-fine-jewelry-online.html
 

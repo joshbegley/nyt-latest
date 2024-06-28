@@ -1,3 +1,11 @@
+**Braves trade scenarios: Bowden assesses 4 proposals to fill key needs**\
+`The Braves need to address two areas before the deadline: corner outfielder and starting pitcher. Jim Bowden evaluates four such proposals. `\
+https://nytimes.com/athletic/5597696/2024/06/28/braves-mlb-trade-deadline-proposals/
+
+**Bo Goes into the Royals Hall of Fame: Jackson's legendary moments live on in Kansas City**\
+`On Saturday, the Royals will induct Jackson into their Hall of Fame. The highlights from his time in KC are plenty and worth remembering.`\
+https://nytimes.com/athletic/5597401/2024/06/28/bo-jackson-royals-hall-fame/
+
 **Stream These 9 Movies Before They Leave Netflix in July**\
 `A bunch of major titles are leaving for U.S. subscribers this month, including films by George Lucas and Ang Lee. See them while you can.`\
 https://nytimes.com/2024/06/28/movies/netflix-expiring-july.html
