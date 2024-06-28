@@ -1,3 +1,11 @@
+**Michael Jackson Died With $500 Million in Debt**\
+`Jackson owed about $40 million to the tour promoter A.E.G. in 2009, his estate’s executors said in a court filing. They said all the debts have been eliminated.`\
+https://nytimes.com/2024/06/28/arts/michael-jackson-debt.html
+
+**Diplo, D.J. and Music Producer, Is Accused in Lawsuit of ‘Revenge Porn’**\
+`A woman accused Diplo of distributing intimate images and videos of her without her consent; his lawyer likened her suit to others “in search of a meritless payday.”`\
+https://nytimes.com/2024/06/28/arts/diplo-lawsuit-revenge-porn.html
+
 **First the Debate, Then a Supreme Court Ruling: Trump’s Big 24 Hours**\
 `Successive successes reinvigorated Donald Trump’s campaign a month after he became the first major party nominee convicted of a felony.`\
 https://nytimes.com/2024/06/28/us/politics/trump-debate-supreme-court.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/28/opinion/conservative-doomers.html
 **Racist and Homophobic Comments Unsettle U.K. Election Campaign**\
 `Prime Minister Rishi Sunak denounced a slur used against him by a man campaigning for Reform U.K., the anti-immigration party led by Nigel Farage.`\
 https://nytimes.com/2024/06/28/world/europe/racist-homophobic-reform-uk.html
-
-**On Immigration, Biden Offers a Muted, Muddled Message**\
-`Former President Donald J. Trump continued to spread fear of immigrants, while the president did not define any broader strategy on the issue.`\
-https://nytimes.com/2024/06/28/us/politics/biden-trump-immigration.html
-
-**Fearful and Doubting Biden, Democrats Face an Uncertain Path Forward**\
-`A range of despairing Democrats began to reconsider their nominee after his rough debate showing, but there was no agreement on how, or whether, to urge him to step off the ticket.`\
-https://nytimes.com/2024/06/28/us/politics/biden-democrats-nominee-2024-election.html
 
