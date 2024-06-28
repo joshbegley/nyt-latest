@@ -1,6 +1,6 @@
 **What USMNT needs to qualify for Copa America quarterfinals**\
 `The USMNT suffered a shock defeat to Panama at Copa America on Thursday.`\
-https://nytimes.com/athletic/5598412/2024/06/27/are-the-usmnt-out-of-copa-america-permutations-after-panama-defeat/
+https://nytimes.com/athletic/5598412/2024/06/27/usmnt-copa-america-out-permutations/
 
 **The group that was cut out of hosting this year’s debates will be watching.**\
 `By Tim Balk`\
