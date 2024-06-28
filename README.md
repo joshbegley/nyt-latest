@@ -1,3 +1,7 @@
+**Braves trade scenarios: Bowden assesses 4 proposals to fill key needs**\
+`The Braves need to address two areas before the deadline: corner outfielder and starting pitcher. Jim Bowden evaluates four such proposals. `\
+https://nytimes.com/athletic/5597696/2024/06/28/braves-mlb-trade-deadline-proposals/
+
 **Bo Goes into the Royals Hall of Fame: Jackson's legendary moments live on in Kansas City**\
 `On Saturday, the Royals will induct Jackson into their Hall of Fame. The highlights from his time in KC are plenty and worth remembering.`\
 https://nytimes.com/athletic/5597401/2024/06/28/bo-jackson-royals-hall-fame/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/06/28/briefing/trump-jamaal-bowman-kenya-qu
 **Make Something With Your Hands (Even if It’s Hideous)**\
 `Creating stuff is good for your brain.`\
 https://nytimes.com/2024/06/28/well/mind/hand-crafts-creation-art.html
-
-**Couture Fit for a ‘Lion King’**\
-`A new Balmain collection pays homage to the Disney film on a milestone anniversary. Plus, a preppy designer makes a comeback.`\
-https://nytimes.com/2024/06/28/style/balmain-lion-king-collection.html
 
