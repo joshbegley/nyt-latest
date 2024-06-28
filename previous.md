@@ -1,3 +1,19 @@
+**Wildfires Sparked by 1,000 Lightning Strikes Spread in California**\
+`The group of fires prompted an evacuation as they burned more than 10,000 acres east of Fresno after a lightening storm struck the region.`\
+https://nytimes.com/2024/06/28/us/fresno-california-wildfire.html
+
+**Dana Bash and Jake Tapper Let Candidates Be the ‘Stars of the Show’**\
+`The anchors mostly receded into the background on Thursday night. That was exactly what CNN leadership had in mind.`\
+https://nytimes.com/2024/06/28/business/media/dana-bash-jake-tapper-debate-moderators.html
+
+**Women Must Be Invited to Shape Afghanistan’s Future**\
+`The international community must insist on reversing the restriction of Afghan women’s and girls’ rights and on women’s meaningful participation in decision making.`\
+https://nytimes.com/2024/06/28/opinion/afghanistan-women-rights.html
+
+**Clippers get younger in draft, then make final case to retain veteran stars**\
+`With the 46th pick in the NBA Draft, the Clippers selected University of Minnesota small forward Cam Christie.`\
+https://nytimes.com/athletic/5598816/2024/06/28/clippers-nba-draft-cam-christie/
+
 **‘This Was a Disaster for America’: Our Columnists on the Presidential Debate**\
 `12 writers assess who won and lost the debate and distill what stood out to them.`\
 https://nytimes.com/2024/06/28/opinion/presidential-debate-winner-loser.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/28/world/middleeast/iran-president-election.html
 **‘It’s Frightening’: Democratic Voters Worried by Biden’s Struggles in Debate**\
 `Democrats found President Biden’s performance disconcerting, while Republicans were in a jubilant mood. Swing voters were flummoxed.`\
 https://nytimes.com/2024/06/28/us/biden-trump-debate-voter-reaction.html
-
-**Chelsea's Guiu deal is a no-lose situation - but can they make it a win?**\
-`Signing a player like Guiu for £5.1m is as stress-free as it gets. Chelsea hope he succeeds, but there will be no regret if he does not`\
-https://nytimes.com/athletic/5596495/2024/06/28/chelsea-transfers-marc-guiu/
-
-**Keep Kudus, sign a striker, choose a captain - Lopetegui's to-do list at West Ham**\
-`The new West Ham coach will set out his agenda for his reign on Monday — there is much work to do before Premier League season starts`\
-https://nytimes.com/athletic/5514646/2024/06/28/julen-lopetegui-west-ham-kudus-striker/
-
-**Six Takeaways From the First Presidential Debate**\
-`In a testy, personal clash, President Biden failed to ease worries about his age, Donald Trump forcefully made his case (with wild claims and exaggerations) and the moderators held their fact-checking fire.`\
-https://nytimes.com/2024/06/28/us/politics/presidential-debate-takeaways-biden-trump.html
-
-**Six former Man Utd players on the one issue Ten Hag needs to fix**\
-`Lee Sharpe, Jaap Stam and other ex-Man Utd players on what's gone wrong at their former club and how to fix it...`\
-https://nytimes.com/athletic/5589606/2024/06/28/man-utd-former-players-diagnose-club-biggest-problems/
 

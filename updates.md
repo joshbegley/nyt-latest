@@ -1,3 +1,19 @@
+**Wildfires Sparked by 1,000 Lightning Strikes Spread in California**\
+`The group of fires prompted an evacuation as they burned more than 10,000 acres east of Fresno after a lightening storm struck the region.`\
+https://nytimes.com/2024/06/28/us/fresno-california-wildfire.html
+
+**Dana Bash and Jake Tapper Let Candidates Be the ‘Stars of the Show’**\
+`The anchors mostly receded into the background on Thursday night. That was exactly what CNN leadership had in mind.`\
+https://nytimes.com/2024/06/28/business/media/dana-bash-jake-tapper-debate-moderators.html
+
+**Women Must Be Invited to Shape Afghanistan’s Future**\
+`The international community must insist on reversing the restriction of Afghan women’s and girls’ rights and on women’s meaningful participation in decision making.`\
+https://nytimes.com/2024/06/28/opinion/afghanistan-women-rights.html
+
+**Clippers get younger in draft, then make final case to retain veteran stars**\
+`With the 46th pick in the NBA Draft, the Clippers selected University of Minnesota small forward Cam Christie.`\
+https://nytimes.com/athletic/5598816/2024/06/28/clippers-nba-draft-cam-christie/
+
 **‘This Was a Disaster for America’: Our Columnists on the Presidential Debate**\
 `12 writers assess who won and lost the debate and distill what stood out to them.`\
 https://nytimes.com/2024/06/28/opinion/presidential-debate-winner-loser.html
