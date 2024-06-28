@@ -1,3 +1,7 @@
+**What does it mean when Israel authorizes an illegal settlement?**\
+`Israel says it will legalize five West Bank settlements previously considered illegal, as the government accelerates what critics call a slow-motion annexation of land meant for a Palestinian state.`\
+https://nytimes.com/live/2024/06/28/world/israel-gaza-war-hamas/israel-legalize-settlements-explainer
+
 **Putin Vows to Make New Nuclear Missiles and to Weigh Placing Them Near NATO Nations**\
 `The announcement appeared to be the Russian leader’s latest attempt to raise the stakes in his conflict with the West, coming less than two weeks after his visit to North Korea.`\
 https://nytimes.com/2024/06/28/world/europe/russia-nuclear-missiles-nato.html
