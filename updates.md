@@ -1,3 +1,11 @@
+**Maps: 7.2-Magnitude Earthquake Shakes Peru**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/06/28/world/americas/peru-earthquake-map.html
+
+**The Best President of My Adult Life Needs to Withdraw**\
+`Kamala Harris would be a strong successor.`\
+https://nytimes.com/live/2024/06/25/opinion/thepoint/krugman-biden-must-withdraw
+
 **'Finally ripping off the band-aid': Breaking down USWNT's Olympic roster and Alex Morgan's snub**\
 `Meg Linehan and Tamerra Griffin discuss the USWNT's Olympic roster`\
 https://nytimes.com/athletic/5598139/2024/06/28/breaking-down-uswnts-olympic-roster-and-alex-morgans-snub/

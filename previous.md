@@ -1,3 +1,11 @@
+**Maps: 7.2-Magnitude Earthquake Shakes Peru**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/06/28/world/americas/peru-earthquake-map.html
+
+**The Best President of My Adult Life Needs to Withdraw**\
+`Kamala Harris would be a strong successor.`\
+https://nytimes.com/live/2024/06/25/opinion/thepoint/krugman-biden-must-withdraw
+
 **'Finally ripping off the band-aid': Breaking down USWNT's Olympic roster and Alex Morgan's snub**\
 `Meg Linehan and Tamerra Griffin discuss the USWNT's Olympic roster`\
 https://nytimes.com/athletic/5598139/2024/06/28/breaking-down-uswnts-olympic-roster-and-alex-morgans-snub/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/28/arts/labour-party-culture.html
 **Democratic Donors’ Big Question: What’s Plan B?**\
 `An unsteady debate performance by President Biden has scrambled the thinking among some donors about whether the party needs to find an alternative.`\
 https://nytimes.com/2024/06/28/business/dealbook/biden-debate-donors.html
-
-**The Athletic FC: USMNT now need 'game of their lives'; a retro kick-off trend at Euros**\
-`Today in The Athletic FC: USMNT face a battle to qualify for Copa America last eight after Panama loss. Plus: why teams go long at kick-off`\
-https://nytimes.com/athletic/5599487/2024/06/28/the-athletic-fc-usmnt-need-game-of-their-lives/
-
-**USC football recruiting: Thoughts on Trojans' setbacks, strategy after decommitments**\
-`USC’s 2025 class is exiting June in worse shape than it entered the month. There’s no argument about that.`\
-https://nytimes.com/athletic/5598952/2024/06/28/usc-football-recruiting-decommitments/
 
