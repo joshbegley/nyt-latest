@@ -1,3 +1,11 @@
+**Which Joe Biden Is the Real One?**\
+`He can still give a good speech, but that may not be enough.`\
+https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-speech-carolina
+
+**Leaders in Their Prime Debate Substance in Detail (No, Not in the U.S.)**\
+`The debates between contenders to be U.K. prime minister showed that Britain’s political culture, and the leaders who have emerged from it, are far removed from those across the ocean.`\
+https://nytimes.com/2024/06/28/world/europe/uk-us-debate-contrast.html
+
 **Michael Jackson Died With $500 Million in Debt**\
 `Jackson owed about $40 million to the tour promoter A.E.G. in 2009, his estate’s executors said in a court filing. They said all the debts have been eliminated.`\
 https://nytimes.com/2024/06/28/arts/michael-jackson-debt.html

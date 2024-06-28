@@ -1,3 +1,11 @@
+**Which Joe Biden Is the Real One?**\
+`He can still give a good speech, but that may not be enough.`\
+https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-speech-carolina
+
+**Leaders in Their Prime Debate Substance in Detail (No, Not in the U.S.)**\
+`The debates between contenders to be U.K. prime minister showed that Britain’s political culture, and the leaders who have emerged from it, are far removed from those across the ocean.`\
+https://nytimes.com/2024/06/28/world/europe/uk-us-debate-contrast.html
+
 **Michael Jackson Died With $500 Million in Debt**\
 `Jackson owed about $40 million to the tour promoter A.E.G. in 2009, his estate’s executors said in a court filing. They said all the debts have been eliminated.`\
 https://nytimes.com/2024/06/28/arts/michael-jackson-debt.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/elections/100000009546451/biden-confronts-doubters.
 **One Way to Make Russia Pay for Ukraine? Take Its Money.**\
 `U.S. and E.U. leaders are divided over how far to go in the economic war against Vladimir Putin.`\
 https://nytimes.com/2024/06/28/opinion/russia-ukraine-sanctions.html
-
-**Why Conservatives Shouldn’t Be Doomers**\
-`A late-Soviet debate night doesn’t mean we’re in late-Soviet America.`\
-https://nytimes.com/2024/06/28/opinion/conservative-doomers.html
-
-**Racist and Homophobic Comments Unsettle U.K. Election Campaign**\
-`Prime Minister Rishi Sunak denounced a slur used against him by a man campaigning for Reform U.K., the anti-immigration party led by Nigel Farage.`\
-https://nytimes.com/2024/06/28/world/europe/racist-homophobic-reform-uk.html
 
