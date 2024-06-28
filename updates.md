@@ -1,3 +1,11 @@
+**“He wants to get rid of the A.C.A. again, and they’re going to try again.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate/he-wants-to-get-rid-of-the-aca-again-and-theyre-going-to-try-again
+
+**“And what he’s done to the Black population is horrible, including the fact that for 10 years he called them superpredators.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/06/27/us/biden-trump-debate-fact-check/and-what-hes-done-to-the-black-population-is-horrible-including-the-fact-that-for-10-years-he-called-them-superpredators
+
 **“Even from a medical standpoint, right to try: where we can try space-age materials instead of going to Asia or going to Europe and trying to get, when you’re terminally ill, now you can go and you can get something, you sign a document. They’ve been trying to get it for 42 years. But you know, what we did for the military was incredible, choice for our soldiers, where our soldiers, instead of waiting for three months to see a doctor, can go out and get themselves fixed up and readied up, and take care of themselves. And they’re living and that’s why I had the highest approval rating of the history of the V.A.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/06/27/us/biden-trump-debate/even-from-a-medical-standpoint-right-to-try-where-we-can-try-space-age-materials-instead-of-going-to-asia-or-going-to-europe-and
