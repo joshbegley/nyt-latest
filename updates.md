@@ -1,3 +1,7 @@
+**Orlando Cepeda, Baseball Slugger Known as the Baby Bull, Dies at 86**\
+`Only the second Puerto Rican native elected to the Hall of Fame, he hit 379 home runs but later served time in prison on a drug-smuggling charge.`\
+https://nytimes.com/2024/06/29/sports/orlando-cepeda-dead.html
+
 **Jill Biden Could Make or Break Biden’s Campaign. She Says She’s All In.**\
 `If President Biden seriously considered departing the race, the first lady would be the most important figure other than Mr. Biden himself in reaching that decision.`\
 https://nytimes.com/2024/06/28/us/politics/jill-biden-says-she-reassured-the-president-in-the-moments-after-a-dismal-debate.html
