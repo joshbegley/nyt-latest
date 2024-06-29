@@ -1,3 +1,7 @@
+**With Macron and Biden Vulnerable, So Is Europe**\
+`The U.S. presidential debate and Sunday’s snap election in France have emboldened nationalist forces that could challenge NATO and undo the defense of Ukraine.`\
+https://nytimes.com/2024/06/29/world/europe/macron-biden-france-elections.html
+
 **Biden? Trump? The Politics of Talking About It at the Office.**\
 `Some companies have banned political discussions at work, but that might be easier said than done.`\
 https://nytimes.com/2024/06/29/business/dealbook/biden-trump-the-politics-of-talking-about-it-at-the-office.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/29/opinion/presidential-debate-rate-readers.html
 **The Ghastly vs. the Ghostly**\
 `Do the Democrats really want to stop Trump? What are they prepared to do?`\
 https://nytimes.com/2024/06/29/opinion/biden-debate-president-exit.html
-
-**Are Liberal Policies Hurting the West Coast?**\
-`Readers discuss a column by Nicholas Kristof.`\
-https://nytimes.com/2024/06/29/opinion/liberals-west-coast.html
 
