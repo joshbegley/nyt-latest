@@ -10,13 +10,13 @@ https://nytimes.com/2024/06/29/world/europe/britain-young-voters.html
 `North and South Korea are waging a balloon war, launching payloads that ferry trash or propaganda across the border. Some of the content is tech-savvy while others offer clues about life in North Korea.`\
 https://nytimes.com/card/2024/06/29/world/asia/balloon-south-korea
 
-**Corrections: June 29, 2024**\
-`Corrections that appeared in print on Saturday, June 29, 2024.`\
-https://nytimes.com/2024/06/28/pageoneplus/corrections-june-29-2024.html
-
 **Quote of the Day: The Vanishing Islands That Failed to Vanish**\
 `Quotation of the Day for Saturday, June 29, 2024.`\
 https://nytimes.com/2024/06/28/pageoneplus/quote-of-the-day-the-vanishing-islands-that-failed-to-vanish.html
+
+**Corrections: June 29, 2024**\
+`Corrections that appeared in print on Saturday, June 29, 2024.`\
+https://nytimes.com/2024/06/28/pageoneplus/corrections-june-29-2024.html
 
 **Tracking Tropical Storm Beryl**\
 `See the likely path and wind arrival times for Beryl.`\
