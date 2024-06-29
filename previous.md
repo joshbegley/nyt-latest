@@ -1,3 +1,11 @@
+**What’s a ‘Black Job?’ Trump’s Anti-Immigration Remarks Are Met With Derision**\
+`Donald J. Trump accused immigrants of stealing “Black jobs” and “Hispanic jobs” during Thursday’s debate, prompting criticism from Democrats and other social media users.`\
+https://nytimes.com/2024/06/28/us/politics/black-job-trump-immigration.html
+
+**How a Trump-Beating, #MeToo Legal Legend Lost Her Firm**\
+`Roberta Kaplan’s work as a lawyer made her a hero to the left. But behind the scenes, she was known for her poor treatment of colleagues.`\
+https://nytimes.com/2024/06/28/business/roberta-robbie-kaplan.html
+
 **Biden Administration Opposes Surgery for Transgender Minors**\
 `The statement followed a report in The Times that a federal health official had urged the removal of age minimums from treatment guidelines for transgender minors.`\
 https://nytimes.com/2024/06/28/health/transgender-surgery-biden.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/28/us/politics/biden-campaign-replace-democrats.html
 **Businesses Cheer Their New Freedom to Violate Regulations**\
 `Conservative justices take a big step in their campaign to shrink government oversight.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/supreme-court-chevron-regulations
-
-**Obama Defends Biden: ‘Bad Debate Nights Happen’**\
-`The former president faced a similar crisis of confidence in his re-election campaign after a bad debate performance in 2012, and he defended his former running mate in a social media post.`\
-https://nytimes.com/2024/06/28/us/politics/obama-biden-debate.html
-
-**What does it mean when Israel authorizes an illegal settlement?**\
-`Israel says it will legalize five West Bank settlements previously considered illegal, as the government accelerates what critics call a slow-motion annexation of land meant for a Palestinian state.`\
-https://nytimes.com/live/2024/06/28/world/israel-gaza-war-hamas/israel-legalize-settlements-explainer
 

@@ -1,3 +1,11 @@
+**What’s a ‘Black Job?’ Trump’s Anti-Immigration Remarks Are Met With Derision**\
+`Donald J. Trump accused immigrants of stealing “Black jobs” and “Hispanic jobs” during Thursday’s debate, prompting criticism from Democrats and other social media users.`\
+https://nytimes.com/2024/06/28/us/politics/black-job-trump-immigration.html
+
+**How a Trump-Beating, #MeToo Legal Legend Lost Her Firm**\
+`Roberta Kaplan’s work as a lawyer made her a hero to the left. But behind the scenes, she was known for her poor treatment of colleagues.`\
+https://nytimes.com/2024/06/28/business/roberta-robbie-kaplan.html
+
 **Biden Administration Opposes Surgery for Transgender Minors**\
 `The statement followed a report in The Times that a federal health official had urged the removal of age minimums from treatment guidelines for transgender minors.`\
 https://nytimes.com/2024/06/28/health/transgender-surgery-biden.html
