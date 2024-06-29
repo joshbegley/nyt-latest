@@ -1,3 +1,7 @@
+**Oklahoma Law Criminalizing Immigrants Without Legal Status Is Blocked**\
+`The ruling by a federal judge is the latest setback for G.O.P.-controlled states that have passed their own laws on immigration.`\
+https://nytimes.com/2024/06/29/us/oklahoma-immigration-law-judge.html
+
 **Ann Lurie, Nurse Who Became a Prominent Philanthropist, Is Dead at 79**\
 `A former hippie who chafed at wealth, she married a Chicago real estate titan and, after his death, donated hundreds of millions in her adopted city and beyond.`\
 https://nytimes.com/2024/06/29/us/ann-lurie-dead.html
