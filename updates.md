@@ -1,3 +1,15 @@
+**Motorcycles and Mayhem in Ukraine’s East**\
+`In the latest tactic for storming trenches, Russians use motorcycles and dune buggies to speed across open space, often into a hail of gunfire.`\
+https://nytimes.com/2024/06/29/world/europe/ukraine-russia-war-donbas.html
+
+**Eddie Murphy Is Ready to Look Back**\
+`David Marchese talks to the comedy legend about navigating the minefield of fame, “Family Feud” and changing Hollywood forever.`\
+https://nytimes.com/2024/06/29/magazine/eddie-murphy-interview.html
+
+**Reformist Reaches Runoff in Iran’s Presidential Election**\
+`Candidates in the campaign to fill the seat of President Ebrahim Raisi, who died in a helicopter crash, showed notable candor about the country’s mounting problems.`\
+https://nytimes.com/2024/06/29/world/middleeast/iran-election-masoud-pezeshkian-saeed-jalili.html
+
 **Memo Reveals Trump’s Plan to Slash the Size of the G.O.P. Platform**\
 `In another sign of Donald J. Trump’s grip on the Republican Party, his team wants the party’s platform to be a succinct pro-Trump document, not an “unnecessarily verbose treatise.”`\
 https://nytimes.com/2024/06/29/us/politics/trump-gop-platform.html
