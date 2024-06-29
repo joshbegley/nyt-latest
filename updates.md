@@ -1,3 +1,19 @@
+**Facial Recognition Led to Wrongful Arrests. So Detroit Is Making Changes.**\
+`The Detroit Police Department arrested three people after bad facial recognition matches, a national record. But it’s adopting new policies that even the A.C.L.U. endorses.`\
+https://nytimes.com/2024/06/29/technology/detroit-facial-recognition-false-arrests.html
+
+**How an Emergency Room Doctor Spends His Sundays (in Costume)**\
+`Dr. Alex Arroyo, a director of pediatric medicine in Brooklyn, gets to live out his “Star Wars” dreams, practice jujitsu and make a big mess while cooking for his family.`\
+https://nytimes.com/2024/06/29/nyregion/sunday-routine-brooklyn-doctor-costume.html
+
+**7 Deaths, 5 Hours: Drug Overdoses Surge in Western New York**\
+`Rising cocaine use and a drug supply tainted by fentanyl have become a deadly combination in Erie County, which includes Buffalo.`\
+https://nytimes.com/2024/06/29/nyregion/7-deaths-5-hours-drug-overdoses-surge-in-western-new-york.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/29/crosswords/spelling-bee-forum.html
+
 **Orlando Cepeda, Baseball Slugger Known as the Baby Bull, Dies at 86**\
 `Only the second Puerto Rican native elected to the Hall of Fame, he hit 379 home runs but later served time in prison on a drug-smuggling charge.`\
 https://nytimes.com/2024/06/29/sports/orlando-cepeda-dead.html
