@@ -26,8 +26,8 @@ https://nytimes.com/interactive/2024/weather/maps-beryl.html
 `President Biden’s stumbling performance at the debate has spurred interest in replacements. Here’s a roster of some possible backup candidates.`\
 https://nytimes.com/2024/06/28/us/politics/joe-biden-democrats-nomination-gavin-newsom-whitmer.html
 
-**Jill Biden says she reassured the president in the moments after a dismal debate.**\
-`By Katie Rogers`\
+**Jill Biden Could Make or Break Biden’s Campaign. So Far, She’s All In.**\
+`The first lady does not want her husband’s long political career to end on a stage in Atlanta, across the podium from a man they both revile.`\
 https://nytimes.com/live/2024/06/28/us/trump-biden-debate/jill-biden-says-she-reassured-the-president-in-the-moments-after-a-dismal-debate
 
 **Down During Difficult Times?**\
