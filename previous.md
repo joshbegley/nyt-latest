@@ -1,3 +1,7 @@
+**51.3 Million Viewers Tuned In for Shaky Biden and Boisterous Trump**\
+`It was the smallest TV audience for a presidential debate since 2004, but CNN’s telecast was still among the highest-rated programs of the year.`\
+https://nytimes.com/2024/06/28/business/media/debate-ratings-trump-biden.html
+
 **Biden’s Debate Rattles Even the Most Faithful Democrats**\
 `The most loyal, longstanding Democratic voters were perhaps the most shaken by President Biden’s performance. Some blamed the national party.`\
 https://nytimes.com/2024/06/28/us/local-democrats-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/28/world/israel-gaza-war-hamas/israel-legalize-
 **Putin Vows to Make New Nuclear Missiles and to Weigh Placing Them Near NATO Nations**\
 `The announcement appeared to be the Russian leader’s latest attempt to raise the stakes in his conflict with the West, coming less than two weeks after his visit to North Korea.`\
 https://nytimes.com/2024/06/28/world/europe/russia-nuclear-missiles-nato.html
-
-**Astronauts Are Not Stuck on the I.S.S., NASA and Boeing Officials Say**\
-`Butch Wilmore and Suni Williams will spend additional weeks in orbit as teams on the ground study malfunctioning thrusters on the Starliner spacecraft.`\
-https://nytimes.com/2024/06/28/science/boeing-starliner-nasa-astronauts.html
 
