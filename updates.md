@@ -1,5 +1,9 @@
 **Biden heads to New York and New Jersey, hoping to reassure supporters after a dismal debate perfomance.**\
 `By Chris Cameron`\
+https://nytimes.com/live/2024/06/29/us/biden-trump-election-debate/biden-heads-to-new-york-and-new-jersey-hoping-to-reassure-supporters-after-a-dismal-debate-perfomance
+
+**Biden heads to New York and New Jersey, hoping to reassure supporters after a dismal debate perfomance.**\
+`By Chris Cameron`\
 https://nytimes.com/2024/06/29/us/politics/biden-heads-to-new-york-and-new-jersey-hoping-to-reassure-supporters-after-a-dismal-debate-perfomance.html
 
 **The Imperial Supreme Court**\
