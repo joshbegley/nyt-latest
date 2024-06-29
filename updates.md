@@ -1,3 +1,7 @@
+**Biden Administration Opposes Surgery for Transgender Minors**\
+`The statement followed a report in The Times that a federal health official had urged the removal of age minimums from treatment guidelines for transgender minors.`\
+https://nytimes.com/2024/06/28/health/transgender-surgery-biden.html
+
 **51.3 Million Viewers Tuned In for Shaky Biden and Boisterous Trump**\
 `It was the smallest TV audience for a presidential debate since 2004, but CNN’s telecast was still among the highest-rated programs of the year.`\
 https://nytimes.com/2024/06/28/business/media/debate-ratings-trump-biden.html

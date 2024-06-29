@@ -1,3 +1,7 @@
+**Biden Administration Opposes Surgery for Transgender Minors**\
+`The statement followed a report in The Times that a federal health official had urged the removal of age minimums from treatment guidelines for transgender minors.`\
+https://nytimes.com/2024/06/28/health/transgender-surgery-biden.html
+
 **51.3 Million Viewers Tuned In for Shaky Biden and Boisterous Trump**\
 `It was the smallest TV audience for a presidential debate since 2004, but CNN’s telecast was still among the highest-rated programs of the year.`\
 https://nytimes.com/2024/06/28/business/media/debate-ratings-trump-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/28/us/politics/obama-biden-debate.html
 **What does it mean when Israel authorizes an illegal settlement?**\
 `Israel says it will legalize five West Bank settlements previously considered illegal, as the government accelerates what critics call a slow-motion annexation of land meant for a Palestinian state.`\
 https://nytimes.com/live/2024/06/28/world/israel-gaza-war-hamas/israel-legalize-settlements-explainer
-
-**Putin Vows to Make New Nuclear Missiles and to Weigh Placing Them Near NATO Nations**\
-`The announcement appeared to be the Russian leader’s latest attempt to raise the stakes in his conflict with the West, coming less than two weeks after his visit to North Korea.`\
-https://nytimes.com/2024/06/28/world/europe/russia-nuclear-missiles-nato.html
 
