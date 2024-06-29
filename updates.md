@@ -1,3 +1,7 @@
+**Biden’s Debate Rattles Even the Most Faithful Democrats**\
+`The most loyal, longstanding Democratic voters were perhaps the most shaken by President Biden’s performance. Some blamed the national party.`\
+https://nytimes.com/2024/06/28/us/local-democrats-biden.html
+
 **4 Killed After Minivan Crashes Into Long Island Nail Salon**\
 `Officials did not immediately say what caused the crash, in Deer Park. Nine people were also injured.`\
 https://nytimes.com/2024/06/28/nyregion/long-island-deerpark-salon-crash.html

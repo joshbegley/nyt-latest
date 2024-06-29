@@ -1,3 +1,7 @@
+**Biden’s Debate Rattles Even the Most Faithful Democrats**\
+`The most loyal, longstanding Democratic voters were perhaps the most shaken by President Biden’s performance. Some blamed the national party.`\
+https://nytimes.com/2024/06/28/us/local-democrats-biden.html
+
 **4 Killed After Minivan Crashes Into Long Island Nail Salon**\
 `Officials did not immediately say what caused the crash, in Deer Park. Nine people were also injured.`\
 https://nytimes.com/2024/06/28/nyregion/long-island-deerpark-salon-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/28/world/europe/russia-nuclear-missiles-nato.html
 **Astronauts Are Not Stuck on the I.S.S., NASA and Boeing Officials Say**\
 `Butch Wilmore and Suni Williams will spend additional weeks in orbit as teams on the ground study malfunctioning thrusters on the Starliner spacecraft.`\
 https://nytimes.com/2024/06/28/science/boeing-starliner-nasa-astronauts.html
-
-**In An Unpredictable Debate, a Tussle Over Golf Was Par for the Course**\
-`Bickering about their golf handicaps in Thursday’s presidential debate was panned as a petty exercise between two aging men trying vainly to outdo one another.`\
-https://nytimes.com/2024/06/28/us/politics/debate-trump-biden-golf.html
 
