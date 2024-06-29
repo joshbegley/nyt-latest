@@ -1,3 +1,7 @@
+**Who Might Replace Biden on the Top of the Ticket?**\
+`President Biden’s stumbling performance at the debate has spurred interest in replacements. Here’s a roster of some possible backup candidates.`\
+https://nytimes.com/2024/06/28/us/politics/joe-biden-democrats-nomination-gavin-newsom-whitmer.html
+
 **Jill Biden says she reassured the president in the moments after a dismal debate.**\
 `By Katie Rogers`\
 https://nytimes.com/live/2024/06/28/us/trump-biden-debate/jill-biden-says-she-reassured-the-president-in-the-moments-after-a-dismal-debate
