@@ -1,3 +1,11 @@
+**Too Much Winning? Even Trump’s Fans Are Uneasy After Biden’s Weak Debate.**\
+`In Virginia, Donald Trump and his supporters reveled in the moment, and mused about a shadowy Democratic plan to shift candidates.`\
+https://nytimes.com/2024/06/29/us/politics/trump-youngkin-virginia-rally.html
+
+**Thousands protest in Israel, calling for Netanyahu’s ouster and the return of the hostages.**\
+`By Anjana Sankar`\
+https://nytimes.com/live/2024/06/29/world/israel-gaza-war-hamas/thousands-protest-in-israel-calling-for-netanyahus-ouster-and-the-return-of-the-hostages
+
 **Oklahoma Law Criminalizing Immigrants Without Legal Status Is Blocked**\
 `The ruling by a federal judge is the latest setback for G.O.P.-controlled states that have passed their own laws on immigration.`\
 https://nytimes.com/2024/06/29/us/oklahoma-immigration-law-judge.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/29/insider/a-history-of-shade-illuminated-in-the-tim
 **An Atlantic Beach Pie State of Mind**\
 `A seven-ingredient summer dessert that tastes like a vacation.`\
 https://nytimes.com/2024/06/29/dining/atlantic-beach-pie.html
-
-**Biden heads to New York and New Jersey, hoping to reassure supporters after a dismal debate performance.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/06/29/us/biden-trump-election-debate/biden-heads-to-new-york-and-new-jersey-hoping-to-reassure-supporters-after-a-dismal-debate-perfomance
-
-**Your Hologram Doctor Will See You Now**\
-`A Texas hospital is experimenting with hologram technology for doctors to see patients. Some health care experts wonder if it’s beneficial.`\
-https://nytimes.com/2024/06/29/health/texas-telehealth-hologram-doctor.html
 
