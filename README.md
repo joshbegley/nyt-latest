@@ -1,3 +1,7 @@
+**The World of Luxury Fruit: Does a $156 Melon Taste Sweeter?**\
+`Fruit may be a staple. It can also be a status symbol prized for flavor, rarity and appearance.`\
+https://nytimes.com/2024/06/29/us/the-world-of-luxury-fruit-does-a-156-melon-taste-sweeter.html
+
 **Motorcycles and Mayhem in Ukraine’s East**\
 `In the latest tactic for storming trenches, Russians use motorcycles and dune buggies to speed across open space, often into a hail of gunfire.`\
 https://nytimes.com/2024/06/29/world/europe/ukraine-russia-war-donbas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/29/health/bird-flu-dairy-cows-infection.html
 **Andy Murray, Battling Injuries and Age, Is Bidding Farewell to Wimbledon**\
 `He is the last British man to have won this very English tournament. He did it twice, along with grabbing two Olympic golds.`\
 https://nytimes.com/2024/06/29/sports/tennis/wimbledon-andy-murray-retirement.html
-
-**The Digital World Is a Powder Keg. Julian Assange Lit the Fuse.**\
-`In his brazen quest for total transparency, the WikiLeaks founder paved the way for a world in which no secret is safe and no institution trusted.`\
-https://nytimes.com/2024/06/29/world/australia/julian-assange-hacking-leaks.html
 
