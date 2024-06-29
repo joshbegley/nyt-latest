@@ -1,6 +1,6 @@
 **Biden heads to New York and New Jersey, hoping to reassure supporters after a dismal debate perfomance.**\
 `By Chris Cameron`\
-https://nytimes.com/2024/06/29/us/politics/biden-heads-to-new-york-and-new-jersey-hoping-to-reassure-supporters-after-a-dismal-debate-perfomance.html
+https://nytimes.com/live/2024/06/29/us/biden-trump-election-debate/biden-heads-to-new-york-and-new-jersey-hoping-to-reassure-supporters-after-a-dismal-debate-perfomance
 
 **Your Hologram Doctor Will See You Now**\
 `A Texas hospital is experimenting with hologram technology for doctors to see patients. Some health care experts wonder if it’s beneficial.`\
