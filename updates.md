@@ -1,3 +1,7 @@
+**Mulling Reparations, California Sets Aside $12 Million as a Start**\
+`Direct cash payments are not imminent, but under the state’s new budget, the money could go toward other reparations-related proposals pending in the Legislature.`\
+https://nytimes.com/2024/06/29/us/california-budget-reparations.html
+
 **Misstated**\
 `Ginny Too’s crossword debut will unite us in merriment.`\
 https://nytimes.com/2024/06/29/crosswords/daily-puzzle-2024-06-30.html
