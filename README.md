@@ -1,3 +1,15 @@
+**Motorcycles and Mayhem in Ukraine’s East**\
+`In the latest tactic for storming trenches, Russians use motorcycles and dune buggies to speed across open space, often into a hail of gunfire.`\
+https://nytimes.com/2024/06/29/world/europe/ukraine-russia-war-donbas.html
+
+**Eddie Murphy Is Ready to Look Back**\
+`David Marchese talks to the comedy legend about navigating the minefield of fame, “Family Feud” and changing Hollywood forever.`\
+https://nytimes.com/2024/06/29/magazine/eddie-murphy-interview.html
+
+**Reformist Reaches Runoff in Iran’s Presidential Election**\
+`Candidates in the campaign to fill the seat of President Ebrahim Raisi, who died in a helicopter crash, showed notable candor about the country’s mounting problems.`\
+https://nytimes.com/2024/06/29/world/middleeast/iran-election-masoud-pezeshkian-saeed-jalili.html
+
 **Memo Reveals Trump’s Plan to Slash the Size of the G.O.P. Platform**\
 `In another sign of Donald J. Trump’s grip on the Republican Party, his team wants the party’s platform to be a succinct pro-Trump document, not an “unnecessarily verbose treatise.”`\
 https://nytimes.com/2024/06/29/us/politics/trump-gop-platform.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/29/sports/tennis/wimbledon-andy-murray-retirement.ht
 **The Digital World Is a Powder Keg. Julian Assange Lit the Fuse.**\
 `In his brazen quest for total transparency, the WikiLeaks founder paved the way for a world in which no secret is safe and no institution trusted.`\
 https://nytimes.com/2024/06/29/world/australia/julian-assange-hacking-leaks.html
-
-**A Spin Doctor to the Rich and Corrupt Spills His Secrets**\
-`In “All the Worst Humans,” Phil Elwood recounts a career spent engineering headlines for some of the world’s villains.`\
-https://nytimes.com/2024/06/29/books/review/all-the-worst-humans-phil-elwood.html
-
-**I’m Dying Over Your Goth Garden**\
-`Black flowers, spiky branches, poisonous plants — gorgeous, ghastly gardens are sprouting up across the country.`\
-https://nytimes.com/2024/06/29/style/goth-gothic-garden.html
-
-**How to Invest in This Fraught Election Year**\
-`With one big caveat, our columnist says most people are likely to be better off if they forget about politics when it comes to investing for the long haul.`\
-https://nytimes.com/2024/06/29/business/invest-trump-biden-election.html
 
