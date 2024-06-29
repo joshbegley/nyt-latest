@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Beryl**\
+`See the likely path and wind arrival times for Beryl.`\
+https://nytimes.com/interactive/2024/weather/maps-beryl.html
+
 **Who Might Replace Biden on the Top of the Ticket?**\
 `President Biden’s stumbling performance at the debate has spurred interest in replacements. Here’s a roster of some possible backup candidates.`\
 https://nytimes.com/2024/06/28/us/politics/joe-biden-democrats-nomination-gavin-newsom-whitmer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/28/us/politics/harris-biden-debate.html
 **What’s a ‘Black Job’? Trump’s Anti-Immigration Remarks Are Met With Derision**\
 `Donald J. Trump accused immigrants of stealing “Black jobs” and “Hispanic jobs” during Thursday’s debate, prompting criticism from Democrats and other social media users.`\
 https://nytimes.com/2024/06/28/us/politics/black-job-trump-immigration.html
-
-**How a Trump-Beating, #MeToo Legal Legend Lost Her Firm**\
-`Roberta Kaplan’s work as a lawyer made her a hero to the left. But behind the scenes, she was known for her poor treatment of colleagues.`\
-https://nytimes.com/2024/06/28/business/roberta-robbie-kaplan.html
 

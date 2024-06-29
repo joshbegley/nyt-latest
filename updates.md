@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Beryl**\
+`See the likely path and wind arrival times for Beryl.`\
+https://nytimes.com/interactive/2024/weather/maps-beryl.html
+
 **Who Might Replace Biden on the Top of the Ticket?**\
 `President Biden’s stumbling performance at the debate has spurred interest in replacements. Here’s a roster of some possible backup candidates.`\
 https://nytimes.com/2024/06/28/us/politics/joe-biden-democrats-nomination-gavin-newsom-whitmer.html
