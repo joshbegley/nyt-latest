@@ -1,3 +1,7 @@
+**Mulling Reparations, California Sets Aside $12 Million as a Start**\
+`Direct cash payments are not imminent, but under the state’s new budget, the money could go toward other reparations-related proposals pending in the Legislature.`\
+https://nytimes.com/2024/06/29/us/california-budget-reparations.html
+
 **Misstated**\
 `Ginny Too’s crossword debut will unite us in merriment.`\
 https://nytimes.com/2024/06/29/crosswords/daily-puzzle-2024-06-30.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/29/nyregion/utica-police-teen-shooting.html
 **Long Island Man Charged in Crash That Killed Four People at Nail Salon**\
 `The police say the man was driving while intoxicated and ran his S.U.V. into the salon, killing four people and injuring 10. His own injuries were not life-threatening.`\
 https://nytimes.com/2024/06/29/nyregion/deer-park-fatal-crash.html
-
-**A History of ‘Shade,’ Illuminated in The Times’s Pages**\
-`A brief account of the evolution of the word shade, whether you’re seeking it this summer … or throwing it.`\
-https://nytimes.com/2024/06/29/insider/a-history-of-shade-illuminated-in-the-timess-pages.html
 
