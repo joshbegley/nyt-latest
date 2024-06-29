@@ -1,3 +1,7 @@
+**Your Hologram Doctor Will See You Now**\
+`A Texas hospital is experimenting with hologram technology for doctors to see patients. Some health care experts wonder if it’s beneficial.`\
+https://nytimes.com/2024/06/29/health/texas-telehealth-holograms.html
+
 **With Macron and Biden Vulnerable, So Is Europe**\
 `The U.S. presidential debate and Sunday’s snap election in France have emboldened nationalist forces that could challenge NATO and undo the defense of Ukraine.`\
 https://nytimes.com/2024/06/29/world/europe/macron-biden-france-elections.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/29/opinion/israel-gaza-west-bank.html
 **‘Is This Seriously the Best We Have?’: Readers Discuss the Debate**\
 `Readers share their biggest takeaways from the presidential debate.`\
 https://nytimes.com/2024/06/29/opinion/presidential-debate-rate-readers.html
-
-**The Ghastly vs. the Ghostly**\
-`Do the Democrats really want to stop Trump? What are they prepared to do?`\
-https://nytimes.com/2024/06/29/opinion/biden-debate-president-exit.html
 

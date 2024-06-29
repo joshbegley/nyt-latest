@@ -1,3 +1,7 @@
+**Your Hologram Doctor Will See You Now**\
+`A Texas hospital is experimenting with hologram technology for doctors to see patients. Some health care experts wonder if it’s beneficial.`\
+https://nytimes.com/2024/06/29/health/texas-telehealth-holograms.html
+
 **The Dramatic Dangers of a Second Biden Administration**\
 `A second Biden term would be unusually dangerous for the country in a very significant way.`\
 https://nytimes.com/2024/06/29/opinion/biden-trump-debate-danger.html
