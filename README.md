@@ -1,3 +1,15 @@
+**Years Later, Philippines Reckons With Duterte’s Brutal Drug War**\
+`A president’s vow to fight drugs unleashed violence and fostered a culture of impunity. But the crimes are finally getting a look, including from the International Criminal Court.`\
+https://nytimes.com/2024/06/29/world/asia/philippines-drug-war-duterte-justice.html
+
+**‘The Whole Country Is Falling to Bits’: Britain’s Young Voters Are Frustrated**\
+`Many young people in the northern English cities of Liverpool and Manchester say they feel disillusioned by politics.`\
+https://nytimes.com/2024/06/29/world/europe/britain-young-voters.html
+
+**The Clues Inside North and South Korea’s Balloons **\
+`North and South Korea are waging a balloon war, launching payloads that ferry trash or propaganda across the border. Some of the content is tech-savvy while others offer clues about life in North Korea.`\
+https://nytimes.com/card/2024/06/29/world/asia/balloon-south-korea
+
 **Corrections: June 29, 2024**\
 `Corrections that appeared in print on Saturday, June 29, 2024.`\
 https://nytimes.com/2024/06/28/pageoneplus/corrections-june-29-2024.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/06/28/crosswords/daily-puzzle-2024-06-29.html
 **4 Missouri Prison Guards Charged With Murder in Death of a Black Prisoner**\
 `The man, Othel Moore Jr., died of positional asphyxiation on Dec. 8 of last year at the Jefferson City Correctional Center in what the medical examiner’s office called a homicide.`\
 https://nytimes.com/2024/06/28/us/missouri-prison-guards-murder.html
-
-**Martin Mull, Comic Actor Who Starred in ‘Mary Hartman,’ Dies at 80**\
-`Mr. Mull was also known for his roles in “Clue,” “Roseanne” and “Veep.”`\
-https://nytimes.com/2024/06/28/arts/television/martin-mull-dead.html
-
-**A Gleeful Trump, Fresh From the Debate, Rallies in Virginia**\
-`A day after his falsehoods largely went unchecked amid an unsteady debate performance by President Biden, former President Donald J. Trump argued that the president was unfit for office.`\
-https://nytimes.com/2024/06/28/us/politics/trump-rally-virginia-debate.html
-
-**The White House Brushed Off Questions About Biden’s Age. Then the Debate Happened.**\
-`President Biden’s allies can no longer wave away concerns about his capacity after his unsteady performance at Thursday’s debate as worries among Democrats grow.`\
-https://nytimes.com/2024/06/28/us/politics/biden-debate-age-white-house.html
 
