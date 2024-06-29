@@ -1,3 +1,7 @@
+**Long Island Man Charged in Crash That Killed Four People at Nail Salon**\
+`The police say the man was driving while intoxicated and ran his S.U.V. into the salon, killing four people and injuring 10. His own injuries were not life-threatening.`\
+https://nytimes.com/2024/06/29/nyregion/deer-park-fatal-crash.html
+
 **The Vast Blur of a Trump Rally**\
 `No focus, no substance, no news.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/trump-rally-virginia
