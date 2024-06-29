@@ -1,5 +1,5 @@
 **Oklahoma Law Criminalizing Immigrants Without Legal Status Is Blocked**\
-`The ruling is the latest setback for G.O.P.-controlled states that have passed their own laws on immigration.`\
+`The ruling by a federal judge is the latest setback for G.O.P.-controlled states that have passed their own laws on immigration.`\
 https://nytimes.com/2024/06/29/us/oklahoma-immigration-law-judge.html
 
 **Ann Lurie, Nurse Who Became a Prominent Philanthropist, Is Dead at 79**\
