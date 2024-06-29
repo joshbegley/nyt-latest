@@ -1,3 +1,7 @@
+**Children of Dave**\
+`Boen Wang goes back to a day that changed the course of his family’s story.`\
+https://nytimes.com/2024/06/29/podcasts/this-american-life-children-of-dave-nyt-audio-boen-wang.html
+
 **A New Home for the Story of the Boats That Shaped Canada**\
 `After a last-minute setback, the Canadian Canoe Museum has finally opened its new building in Ontario.`\
 https://nytimes.com/2024/06/29/world/canada/canoe-museum-new-building.html
