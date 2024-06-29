@@ -1,3 +1,7 @@
+**Down During Difficult Times?**\
+`Adrian Johnson and Rafael Musa collaborate on an uplifting themeless crossword.`\
+https://nytimes.com/2024/06/28/crosswords/daily-puzzle-2024-06-29.html
+
 **4 Missouri Prison Guards Charged With Murder in Death of a Black Prisoner**\
 `The man, Othel Moore Jr., died of positional asphyxiation on Dec. 8 of last year at the Jefferson City Correctional Center in what the medical examiner’s office called a homicide.`\
 https://nytimes.com/2024/06/28/us/missouri-prison-guards-murder.html
