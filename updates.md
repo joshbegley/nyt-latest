@@ -1,3 +1,7 @@
+**Martin Mull, Comic Actor Who Starred in ‘Mary Hartman,’ Dies at 80**\
+`Mr. Mull was also known for his roles in “Clue,” “Roseanne” and “Veep.”`\
+https://nytimes.com/2024/06/28/arts/television/martin-mull-dead.html
+
 **A Gleeful Trump, Fresh From the Debate, Rallies in Virginia**\
 `A day after his falsehoods largely went unchecked amid an unsteady debate performance by President Biden, former President Donald J. Trump argued that the president was unfit for office.`\
 https://nytimes.com/2024/06/28/us/politics/trump-rally-virginia-debate.html
