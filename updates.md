@@ -1,3 +1,15 @@
+**Years Later, Philippines Reckons With Duterte’s Brutal Drug War**\
+`A president’s vow to fight drugs unleashed violence and fostered a culture of impunity. But the crimes are finally getting a look, including from the International Criminal Court.`\
+https://nytimes.com/2024/06/29/world/asia/philippines-drug-war-duterte-justice.html
+
+**‘The Whole Country Is Falling to Bits’: Britain’s Young Voters Are Frustrated**\
+`Many young people in the northern English cities of Liverpool and Manchester say they feel disillusioned by politics.`\
+https://nytimes.com/2024/06/29/world/europe/britain-young-voters.html
+
+**The Clues Inside North and South Korea’s Balloons **\
+`North and South Korea are waging a balloon war, launching payloads that ferry trash or propaganda across the border. Some of the content is tech-savvy while others offer clues about life in North Korea.`\
+https://nytimes.com/card/2024/06/29/world/asia/balloon-south-korea
+
 **Corrections: June 29, 2024**\
 `Corrections that appeared in print on Saturday, June 29, 2024.`\
 https://nytimes.com/2024/06/28/pageoneplus/corrections-june-29-2024.html
