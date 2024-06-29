@@ -1,3 +1,7 @@
+**Jill Biden Could Make or Break Biden’s Campaign. She Says She’s All In.**\
+`If President Biden seriously considered departing the race, the first lady would be the most important figure other than Mr. Biden himself in reaching that decision.`\
+https://nytimes.com/2024/06/28/us/politics/jill-biden-says-she-reassured-the-president-in-the-moments-after-a-dismal-debate.html
+
 **Jill Biden Could Make or Break Biden’s Campaign. So Far, She’s All In.**\
 `If President Biden seriously considered departing the race, the first lady would be the most important figure other than Mr. Biden himself in reaching that decision.`\
 https://nytimes.com/2024/06/28/us/politics/jill-biden-says-she-reassured-the-president-in-the-moments-after-a-dismal-debate.html

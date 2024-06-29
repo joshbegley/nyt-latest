@@ -26,7 +26,7 @@ https://nytimes.com/interactive/2024/weather/maps-beryl.html
 `President Biden’s stumbling performance at the debate has spurred interest in replacements. Here’s a roster of some possible backup candidates.`\
 https://nytimes.com/2024/06/28/us/politics/joe-biden-democrats-nomination-gavin-newsom-whitmer.html
 
-**Jill Biden Could Make or Break Biden’s Campaign. So Far, She’s All In.**\
+**Jill Biden Could Make or Break Biden’s Campaign. She Says She’s All In.**\
 `If President Biden seriously considered departing the race, the first lady would be the most important figure other than Mr. Biden himself in reaching that decision.`\
 https://nytimes.com/2024/06/28/us/politics/jill-biden-says-she-reassured-the-president-in-the-moments-after-a-dismal-debate.html
 
