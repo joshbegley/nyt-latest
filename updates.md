@@ -1,3 +1,7 @@
+**Biden heads to New York and New Jersey, hoping to reassure supporters after a dismal debate performance.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/06/29/us/biden-trump-election-debate/biden-heads-to-new-york-and-new-jersey-hoping-to-reassure-supporters-after-a-dismal-debate-perfomance
+
 **A History of ‘Shade,’ Illuminated in The Times’s Pages**\
 `A brief account of the evolution of the word shade, whether you’re seeking it this summer … or throwing it.`\
 https://nytimes.com/2024/06/29/insider/a-history-of-shade-illuminated-in-the-timess-pages.html
