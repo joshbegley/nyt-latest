@@ -1,3 +1,7 @@
+**In Her Crisp Defense of Biden, Harris Builds a Case for Herself**\
+`Vice President Kamala Harris tried to calm Democratic fears as her allies wondered what could be next for her.`\
+https://nytimes.com/2024/06/28/us/politics/harris-biden-debate.html
+
 **What’s a ‘Black Job?’ Trump’s Anti-Immigration Remarks Are Met With Derision**\
 `Donald J. Trump accused immigrants of stealing “Black jobs” and “Hispanic jobs” during Thursday’s debate, prompting criticism from Democrats and other social media users.`\
 https://nytimes.com/2024/06/28/us/politics/black-job-trump-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/28/us/politics/trump-debate-jan-6.html
 **There Are ‘No Conversations’ About Replacing Biden, Campaign Official Says**\
 `The official also said President Biden was committed to attending the next presidential debate in September.`\
 https://nytimes.com/2024/06/28/us/politics/biden-campaign-replace-democrats.html
-
-**Businesses Cheer Their New Freedom to Violate Regulations**\
-`Conservative justices take a big step in their campaign to shrink government oversight.`\
-https://nytimes.com/live/2024/06/25/opinion/thepoint/supreme-court-chevron-regulations
 
