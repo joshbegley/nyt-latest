@@ -10,13 +10,13 @@ https://nytimes.com/2024/06/29/world/europe/britain-young-voters.html
 `North and South Korea are waging a balloon war, launching payloads that ferry trash or propaganda across the border. Some of the content is tech-savvy while others offer clues about life in North Korea.`\
 https://nytimes.com/card/2024/06/29/world/asia/balloon-south-korea
 
-**Corrections: June 29, 2024**\
-`Corrections that appeared in print on Saturday, June 29, 2024.`\
-https://nytimes.com/2024/06/28/pageoneplus/corrections-june-29-2024.html
-
 **Quote of the Day: The Vanishing Islands That Failed to Vanish**\
 `Quotation of the Day for Saturday, June 29, 2024.`\
 https://nytimes.com/2024/06/28/pageoneplus/quote-of-the-day-the-vanishing-islands-that-failed-to-vanish.html
+
+**Corrections: June 29, 2024**\
+`Corrections that appeared in print on Saturday, June 29, 2024.`\
+https://nytimes.com/2024/06/28/pageoneplus/corrections-june-29-2024.html
 
 **Tracking Tropical Storm Beryl**\
 `See the likely path and wind arrival times for Beryl.`\
@@ -26,8 +26,8 @@ https://nytimes.com/interactive/2024/weather/maps-beryl.html
 `President Biden’s stumbling performance at the debate has spurred interest in replacements. Here’s a roster of some possible backup candidates.`\
 https://nytimes.com/2024/06/28/us/politics/joe-biden-democrats-nomination-gavin-newsom-whitmer.html
 
-**Jill Biden says she reassured the president in the moments after a dismal debate.**\
-`By Katie Rogers`\
+**Jill Biden Could Make or Break Biden’s Campaign. So Far, She’s All In.**\
+`The first lady does not want her husband’s long political career to end on a stage in Atlanta, across the podium from a man they both revile.`\
 https://nytimes.com/live/2024/06/28/us/trump-biden-debate/jill-biden-says-she-reassured-the-president-in-the-moments-after-a-dismal-debate
 
 **Down During Difficult Times?**\

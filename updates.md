@@ -1,3 +1,7 @@
+**Jill Biden Could Make or Break Biden’s Campaign. So Far, She’s All In.**\
+`The first lady does not want her husband’s long political career to end on a stage in Atlanta, across the podium from a man they both revile.`\
+https://nytimes.com/live/2024/06/28/us/trump-biden-debate/jill-biden-says-she-reassured-the-president-in-the-moments-after-a-dismal-debate
+
 **Years Later, Philippines Reckons With Duterte’s Brutal Drug War**\
 `A president’s vow to fight drugs unleashed violence and fostered a culture of impunity. But the crimes are finally getting a look, including from the International Criminal Court.`\
 https://nytimes.com/2024/06/29/world/asia/philippines-drug-war-duterte-justice.html
