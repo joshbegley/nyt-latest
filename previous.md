@@ -1,3 +1,7 @@
+**13-Year-Old Boy Shot and Killed by Police After Chase**\
+`Officers in Utica, N.Y., believed the boy had brandished a handgun. The police chief said on Saturday that it was a pellet gun.`\
+https://nytimes.com/2024/06/29/nyregion/utica-police-teen-shooting.html
+
 **Long Island Man Charged in Crash That Killed Four People at Nail Salon**\
 `The police say the man was driving while intoxicated and ran his S.U.V. into the salon, killing four people and injuring nine. His own injuries were not life-threatening.`\
 https://nytimes.com/2024/06/29/nyregion/deer-park-fatal-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/29/books/read-like-wind-book-recommendations-karaoke
 **Democrats: Stop Panicking**\
 `The president had a bad night, but the fundamentals of this race have not changed.`\
 https://nytimes.com/2024/06/29/opinion/democrats-panic-joe-biden.html
-
-**Finding Belonging on the Sidelines of Pride**\
-`An alternative photographic history of the Pride march shows that real belonging starts in the crowd, where people find refuge and community.`\
-https://nytimes.com/2024/06/29/opinion/pride-march-parade-crowd.html
 
