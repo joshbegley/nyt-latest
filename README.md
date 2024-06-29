@@ -1,3 +1,19 @@
+**Facial Recognition Led to Wrongful Arrests. So Detroit Is Making Changes.**\
+`The Detroit Police Department arrested three people after bad facial recognition matches, a national record. But it’s adopting new policies that even the A.C.L.U. endorses.`\
+https://nytimes.com/2024/06/29/technology/detroit-facial-recognition-false-arrests.html
+
+**How an Emergency Room Doctor Spends His Sundays (in Costume)**\
+`Dr. Alex Arroyo, a director of pediatric medicine in Brooklyn, gets to live out his “Star Wars” dreams, practice jujitsu and make a big mess while cooking for his family.`\
+https://nytimes.com/2024/06/29/nyregion/sunday-routine-brooklyn-doctor-costume.html
+
+**7 Deaths, 5 Hours: Drug Overdoses Surge in Western New York**\
+`Rising cocaine use and a drug supply tainted by fentanyl have become a deadly combination in Erie County, which includes Buffalo.`\
+https://nytimes.com/2024/06/29/nyregion/7-deaths-5-hours-drug-overdoses-surge-in-western-new-york.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/29/crosswords/spelling-bee-forum.html
+
 **Orlando Cepeda, Baseball Slugger Known as the Baby Bull, Dies at 86**\
 `Only the second Puerto Rican native elected to the Hall of Fame, he hit 379 home runs but later served time in prison on a drug-smuggling charge.`\
 https://nytimes.com/2024/06/29/sports/orlando-cepeda-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/28/pageoneplus/quote-of-the-day-the-vanishing-island
 **Corrections: June 29, 2024**\
 `Corrections that appeared in print on Saturday, June 29, 2024.`\
 https://nytimes.com/2024/06/28/pageoneplus/corrections-june-29-2024.html
-
-**Tracking Tropical Storm Beryl**\
-`See the likely path and wind arrival times for Beryl.`\
-https://nytimes.com/interactive/2024/weather/maps-beryl.html
-
-**Who Might Replace Biden on the Top of the Ticket?**\
-`President Biden’s stumbling performance at the debate has spurred interest in replacements. Here’s a roster of some possible backup candidates.`\
-https://nytimes.com/2024/06/28/us/politics/joe-biden-democrats-nomination-gavin-newsom-whitmer.html
-
-**Jill Biden Could Make or Break Biden’s Campaign. She Says She’s All In.**\
-`If President Biden seriously considered departing the race, the first lady would be the most important figure other than Mr. Biden himself in reaching that decision.`\
-https://nytimes.com/2024/06/28/us/politics/jill-biden-says-she-reassured-the-president-in-the-moments-after-a-dismal-debate.html
-
-**Down During Difficult Times?**\
-`Adrian Johnson and Rafael Musa collaborate on an uplifting themeless crossword.`\
-https://nytimes.com/2024/06/28/crosswords/daily-puzzle-2024-06-29.html
 
