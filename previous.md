@@ -1,3 +1,11 @@
+**Corrections: June 29, 2024**\
+`Corrections that appeared in print on Saturday, June 29, 2024.`\
+https://nytimes.com/2024/06/28/pageoneplus/corrections-june-29-2024.html
+
+**Quote of the Day: The Vanishing Islands That Failed to Vanish**\
+`Quotation of the Day for Saturday, June 29, 2024.`\
+https://nytimes.com/2024/06/28/pageoneplus/quote-of-the-day-the-vanishing-islands-that-failed-to-vanish.html
+
 **Tracking Tropical Storm Beryl**\
 `See the likely path and wind arrival times for Beryl.`\
 https://nytimes.com/interactive/2024/weather/maps-beryl.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/28/us/politics/trump-rally-virginia-debate.html
 **The White House Brushed Off Questions About Biden’s Age. Then the Debate Happened.**\
 `President Biden’s allies can no longer wave away concerns about his capacity after his unsteady performance at Thursday’s debate as worries among Democrats grow.`\
 https://nytimes.com/2024/06/28/us/politics/biden-debate-age-white-house.html
-
-**In Her Crisp Defense of Biden, Harris Builds a Case for Herself**\
-`Vice President Kamala Harris tried to calm Democratic fears as her allies wondered what could be next for her.`\
-https://nytimes.com/2024/06/28/us/politics/harris-biden-debate.html
-
-**What’s a ‘Black Job’? Trump’s Anti-Immigration Remarks Are Met With Derision**\
-`Donald J. Trump accused immigrants of stealing “Black jobs” and “Hispanic jobs” during Thursday’s debate, prompting criticism from Democrats and other social media users.`\
-https://nytimes.com/2024/06/28/us/politics/black-job-trump-immigration.html
 

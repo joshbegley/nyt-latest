@@ -1,3 +1,11 @@
+**Corrections: June 29, 2024**\
+`Corrections that appeared in print on Saturday, June 29, 2024.`\
+https://nytimes.com/2024/06/28/pageoneplus/corrections-june-29-2024.html
+
+**Quote of the Day: The Vanishing Islands That Failed to Vanish**\
+`Quotation of the Day for Saturday, June 29, 2024.`\
+https://nytimes.com/2024/06/28/pageoneplus/quote-of-the-day-the-vanishing-islands-that-failed-to-vanish.html
+
 **Tracking Tropical Storm Beryl**\
 `See the likely path and wind arrival times for Beryl.`\
 https://nytimes.com/interactive/2024/weather/maps-beryl.html
