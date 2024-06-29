@@ -1,3 +1,11 @@
+**A History of ‘Shade,’ Illuminated in The Times’s Pages**\
+`A brief account of the evolution of the word shade, whether you’re seeking it this summer … or throwing it.`\
+https://nytimes.com/2024/06/29/insider/a-history-of-shade-illuminated-in-the-timess-pages.html
+
+**An Atlantic Beach Pie State of Mind**\
+`A seven-ingredient summer dessert that tastes like a vacation.`\
+https://nytimes.com/2024/06/29/dining/atlantic-beach-pie.html
+
 **Biden heads to New York and New Jersey, hoping to reassure supporters after a dismal debate perfomance.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/06/29/us/biden-trump-election-debate/biden-heads-to-new-york-and-new-jersey-hoping-to-reassure-supporters-after-a-dismal-debate-perfomance
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/29/opinion/pride-march-parade-crowd.html
 **The Imperial Supreme Court**\
 `The court swept aside a precedent that endangers countless regulations — and transfers power from the executive branch to Congress and the courts.`\
 https://nytimes.com/2024/06/29/opinion/supreme-court-chevron-loper.html
-
-**The Dramatic Dangers of a Second Biden Administration**\
-`A second Biden term would be unusually dangerous for the country in a very significant way.`\
-https://nytimes.com/2024/06/29/opinion/biden-trump-debate-danger.html
-
-**A Message From the West Bank: ‘We Are Coming to Horrible Days’**\
-`With Israel possibly winding down its war in Gaza, we should be paying more attention to the crisis building in the more populous West Bank.`\
-https://nytimes.com/2024/06/29/opinion/israel-gaza-west-bank.html
 
