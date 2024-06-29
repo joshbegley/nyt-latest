@@ -1,3 +1,7 @@
+**Memo Reveals Trump’s Plan to Slash the Size of the G.O.P. Platform**\
+`In another sign of Donald J. Trump’s grip on the Republican Party, his team wants the party’s platform to be a succinct pro-Trump document, not an “unnecessarily verbose treatise.”`\
+https://nytimes.com/2024/06/29/us/politics/trump-gop-platform.html
+
 **Major Democratic Donors Ask Themselves: What to Do About Biden?**\
 `Some floated interventions and wondered about how to reach Jill Biden. Others hoped the president would bow out of the race on his own. Many came to terms with the low chances that he will do so.`\
 https://nytimes.com/2024/06/29/us/politics/biden-donors-democrats.html

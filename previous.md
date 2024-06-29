@@ -1,3 +1,7 @@
+**Memo Reveals Trump’s Plan to Slash the Size of the G.O.P. Platform**\
+`In another sign of Donald J. Trump’s grip on the Republican Party, his team wants the party’s platform to be a succinct pro-Trump document, not an “unnecessarily verbose treatise.”`\
+https://nytimes.com/2024/06/29/us/politics/trump-gop-platform.html
+
 **Major Democratic Donors Ask Themselves: What to Do About Biden?**\
 `Some floated interventions and wondered about how to reach Jill Biden. Others hoped the president would bow out of the race on his own. Many came to terms with the low chances that he will do so.`\
 https://nytimes.com/2024/06/29/us/politics/biden-donors-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/29/style/goth-gothic-garden.html
 **How to Invest in This Fraught Election Year**\
 `With one big caveat, our columnist says most people are likely to be better off if they forget about politics when it comes to investing for the long haul.`\
 https://nytimes.com/2024/06/29/business/invest-trump-biden-election.html
-
-**The Broad Appeal of the Elsa Dress**\
-`Wearing a costume from “Frozen” in daily life has become a pastime for many children who identify with the character, regardless of gender.`\
-https://nytimes.com/2024/06/29/style/elsa-dress-frozen.html
 
