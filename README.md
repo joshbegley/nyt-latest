@@ -16,7 +16,7 @@ https://nytimes.com/live/2024/06/29/us/biden-trump-election-debate/biden-heads-t
 
 **Your Hologram Doctor Will See You Now**\
 `A Texas hospital is experimenting with hologram technology for doctors to see patients. Some health care experts wonder if it’s beneficial.`\
-https://nytimes.com/2024/06/29/health/texas-telehealth-holograms.html
+https://nytimes.com/2024/06/29/health/texas-telehealth-hologram-doctor.html
 
 **With Macron and Biden Vulnerable, So Is Europe**\
 `The U.S. presidential debate and Sunday’s snap election in France have emboldened nationalist forces that could challenge NATO and undo the defense of Ukraine.`\
