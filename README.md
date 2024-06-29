@@ -1,3 +1,7 @@
+**Martin Mull, Comic Actor Who Starred in ‘Mary Hartman,’ Dies at 80**\
+`Mr. Mull was also known for his roles in “Clue,” “Roseanne” and “Veep.”`\
+https://nytimes.com/2024/06/28/arts/television/martin-mull-dead.html
+
 **A Gleeful Trump, Fresh From the Debate, Rallies in Virginia**\
 `A day after his falsehoods largely went unchecked amid an unsteady debate performance by President Biden, former President Donald J. Trump argued that the president was unfit for office.`\
 https://nytimes.com/2024/06/28/us/politics/trump-rally-virginia-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/28/us/local-democrats-biden.html
 **4 Killed After Minivan Crashes Into Long Island Nail Salon**\
 `Officials did not immediately say what caused the crash, in Deer Park. Nine people were also injured.`\
 https://nytimes.com/2024/06/28/nyregion/long-island-deerpark-salon-crash.html
-
-**Two Appearances, Two Starkly Different Bidens**\
-`A day after a shaky debate performance that led to talk of a new Democratic candidate, President Biden was forceful and confident while speaking to supporters.`\
-https://nytimes.com/2024/06/28/us/politics/biden-debate-north-carolina-rally.html
 
