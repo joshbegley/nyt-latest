@@ -1,3 +1,7 @@
+**4 Killed After Minivan Crashes Into Long Island Nail Salon**\
+`Officials did not immediately say what caused the crash, in Deer Park. Nine people were also injured.`\
+https://nytimes.com/2024/06/28/nyregion/long-island-deerpark-salon-crash.html
+
 **Two Appearances, Two Starkly Different Bidens**\
 `A day after a shaky debate performance that led to talk of a new Democratic candidate, President Biden was forceful and confident while speaking to supporters.`\
 https://nytimes.com/2024/06/28/us/politics/biden-debate-north-carolina-rally.html

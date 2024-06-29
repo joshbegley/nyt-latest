@@ -1,3 +1,7 @@
+**4 Killed After Minivan Crashes Into Long Island Nail Salon**\
+`Officials did not immediately say what caused the crash, in Deer Park. Nine people were also injured.`\
+https://nytimes.com/2024/06/28/nyregion/long-island-deerpark-salon-crash.html
+
 **Two Appearances, Two Starkly Different Bidens**\
 `A day after a shaky debate performance that led to talk of a new Democratic candidate, President Biden was forceful and confident while speaking to supporters.`\
 https://nytimes.com/2024/06/28/us/politics/biden-debate-north-carolina-rally.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/28/science/boeing-starliner-nasa-astronauts.html
 **In An Unpredictable Debate, a Tussle Over Golf Was Par for the Course**\
 `Bickering about their golf handicaps in Thursday’s presidential debate was panned as a petty exercise between two aging men trying vainly to outdo one another.`\
 https://nytimes.com/2024/06/28/us/politics/debate-trump-biden-golf.html
-
-**Jill Biden’s Dress Makes a Post-Debate Statement**\
-`At a rally in North Carolina, the first lady’s frock said it all.`\
-https://nytimes.com/2024/06/28/style/jill-biden-dress-debate.html
 
