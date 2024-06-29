@@ -1,3 +1,11 @@
+**Biden heads to New York and New Jersey, hoping to reassure supporters after a dismal debate perfomance.**\
+`By Chris Cameron`\
+https://nytimes.com/2024/06/29/us/politics/biden-heads-to-new-york-and-new-jersey-hoping-to-reassure-supporters-after-a-dismal-debate-perfomance.html
+
+**The Imperial Supreme Court**\
+`The court swept aside a precedent that endangers countless regulations — and transfers power from the executive branch to Congress and the courts.`\
+https://nytimes.com/2024/06/29/opinion/supreme-court-chevron-loper.html
+
 **Your Hologram Doctor Will See You Now**\
 `A Texas hospital is experimenting with hologram technology for doctors to see patients. Some health care experts wonder if it’s beneficial.`\
 https://nytimes.com/2024/06/29/health/texas-telehealth-holograms.html

@@ -1,3 +1,7 @@
+**Biden heads to New York and New Jersey, hoping to reassure supporters after a dismal debate perfomance.**\
+`By Chris Cameron`\
+https://nytimes.com/2024/06/29/us/politics/biden-heads-to-new-york-and-new-jersey-hoping-to-reassure-supporters-after-a-dismal-debate-perfomance.html
+
 **Your Hologram Doctor Will See You Now**\
 `A Texas hospital is experimenting with hologram technology for doctors to see patients. Some health care experts wonder if it’s beneficial.`\
 https://nytimes.com/2024/06/29/health/texas-telehealth-holograms.html
@@ -22,7 +26,7 @@ https://nytimes.com/2024/06/29/opinion/democrats-panic-joe-biden.html
 `An alternative photographic history of the Pride march shows that real belonging starts in the crowd, where people find refuge and community.`\
 https://nytimes.com/2024/06/29/opinion/pride-march-parade-crowd.html
 
-**Conservatives Took Another Big Step to Consolidate Power in the Supreme Court**\
+**The Imperial Supreme Court**\
 `The court swept aside a precedent that endangers countless regulations — and transfers power from the executive branch to Congress and the courts.`\
 https://nytimes.com/2024/06/29/opinion/supreme-court-chevron-loper.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/29/opinion/biden-trump-debate-danger.html
 **A Message From the West Bank: ‘We Are Coming to Horrible Days’**\
 `With Israel possibly winding down its war in Gaza, we should be paying more attention to the crisis building in the more populous West Bank.`\
 https://nytimes.com/2024/06/29/opinion/israel-gaza-west-bank.html
-
-**‘Is This Seriously the Best We Have?’: Readers Discuss the Debate**\
-`Readers share their biggest takeaways from the presidential debate.`\
-https://nytimes.com/2024/06/29/opinion/presidential-debate-rate-readers.html
 
