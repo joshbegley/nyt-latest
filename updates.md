@@ -1,3 +1,7 @@
+**A Gleeful Trump, Fresh From the Debate, Rallies in Virginia**\
+`A day after his falsehoods largely went unchecked amid an unsteady debate performance by President Biden, former President Donald J. Trump argued that the president was unfit for office.`\
+https://nytimes.com/2024/06/28/us/politics/trump-rally-virginia-debate.html
+
 **The White House Brushed Off Questions About Biden’s Age. Then the Debate Happened.**\
 `President Biden’s allies can no longer wave away concerns about his capacity after his unsteady performance at Thursday’s debate as worries among Democrats grow.`\
 https://nytimes.com/2024/06/28/us/politics/biden-debate-age-white-house.html
