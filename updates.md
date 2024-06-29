@@ -1,3 +1,7 @@
+**Misstated**\
+`Ginny Too’s crossword debut will unite us in merriment.`\
+https://nytimes.com/2024/06/29/crosswords/daily-puzzle-2024-06-30.html
+
 **Too Much Winning? Even Trump’s Fans Are Uneasy After Biden’s Weak Debate.**\
 `In Virginia, Donald Trump and his supporters reveled in the moment, and mused about a shadowy Democratic plan to shift candidates.`\
 https://nytimes.com/2024/06/29/us/politics/trump-youngkin-virginia-rally.html
