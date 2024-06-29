@@ -1,3 +1,7 @@
+**Biden’s debate cleanup tour starts at an L.G.B.T.Q. fund-raiser in Manhattan.**\
+`By Liam Stack and Olivia Bensimon`\
+https://nytimes.com/live/2024/06/29/us/biden-trump-election-debate/biden-lgbtq-fund-raiser
+
 **13-Year-Old Boy Shot and Killed by Police After Chase**\
 `Officers in Utica, N.Y., believed the boy had brandished a handgun. The police chief said on Saturday that it was a pellet gun.`\
 https://nytimes.com/2024/06/29/nyregion/utica-police-teen-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/29/business/dealbook/biden-trump-the-politics-of-tal
 **2 Books to Make You Love Karaoke, or at Least Respect It**\
 `In a memoir and a novel, the characters deal with grief by singing in front of strangers.`\
 https://nytimes.com/2024/06/29/books/read-like-wind-book-recommendations-karaoke.html
-
-**Democrats: Stop Panicking**\
-`The president had a bad night, but the fundamentals of this race have not changed.`\
-https://nytimes.com/2024/06/29/opinion/democrats-panic-joe-biden.html
 
