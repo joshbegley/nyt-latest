@@ -1,3 +1,7 @@
+**Long Island Man Charged in Crash That Killed Four People at Nail Salon**\
+`The police say the man was driving while intoxicated and ran his S.U.V. into the salon, killing four people and injuring nine. His own injuries were not life-threatening.`\
+https://nytimes.com/2024/06/29/nyregion/deer-park-fatal-crash.html
+
 **A History of ‘Shade,’ Illuminated in The Times’s Pages**\
 `A brief account of the evolution of the word shade, whether you’re seeking it this summer … or throwing it.`\
 https://nytimes.com/2024/06/29/insider/a-history-of-shade-illuminated-in-the-timess-pages.html
@@ -12,7 +16,7 @@ https://nytimes.com/live/2024/06/29/us/biden-trump-election-debate/biden-heads-t
 
 **Your Hologram Doctor Will See You Now**\
 `A Texas hospital is experimenting with hologram technology for doctors to see patients. Some health care experts wonder if it’s beneficial.`\
-https://nytimes.com/2024/06/29/health/texas-telehealth-holograms.html
+https://nytimes.com/2024/06/29/health/texas-telehealth-hologram-doctor.html
 
 **With Macron and Biden Vulnerable, So Is Europe**\
 `The U.S. presidential debate and Sunday’s snap election in France have emboldened nationalist forces that could challenge NATO and undo the defense of Ukraine.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/29/opinion/democrats-panic-joe-biden.html
 **Finding Belonging on the Sidelines of Pride**\
 `An alternative photographic history of the Pride march shows that real belonging starts in the crowd, where people find refuge and community.`\
 https://nytimes.com/2024/06/29/opinion/pride-march-parade-crowd.html
-
-**The Imperial Supreme Court**\
-`The court swept aside a precedent that endangers countless regulations — and transfers power from the executive branch to Congress and the courts.`\
-https://nytimes.com/2024/06/29/opinion/supreme-court-chevron-loper.html
 
