@@ -1,3 +1,7 @@
+**4 Missouri Prison Guards Charged With Murder in Death of a Black Prisoner**\
+`The man, Othel Moore, Jr., died of positional asphyxiation on Dec. 8 of last year at the Jefferson City Correctional Center in what the medical examiner’s office called a homicide.`\
+https://nytimes.com/2024/06/28/us/missouri-prison-guards-murder.html
+
 **Martin Mull, Comic Actor Who Starred in ‘Mary Hartman,’ Dies at 80**\
 `Mr. Mull was also known for his roles in “Clue,” “Roseanne” and “Veep.”`\
 https://nytimes.com/2024/06/28/arts/television/martin-mull-dead.html
@@ -14,7 +18,7 @@ https://nytimes.com/2024/06/28/us/politics/biden-debate-age-white-house.html
 `Vice President Kamala Harris tried to calm Democratic fears as her allies wondered what could be next for her.`\
 https://nytimes.com/2024/06/28/us/politics/harris-biden-debate.html
 
-**What’s a ‘Black Job?’ Trump’s Anti-Immigration Remarks Are Met With Derision**\
+**What’s a ‘Black Job’? Trump’s Anti-Immigration Remarks Are Met With Derision**\
 `Donald J. Trump accused immigrants of stealing “Black jobs” and “Hispanic jobs” during Thursday’s debate, prompting criticism from Democrats and other social media users.`\
 https://nytimes.com/2024/06/28/us/politics/black-job-trump-immigration.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/28/business/media/debate-ratings-trump-biden.html
 **Biden’s Debate Rattles Even the Most Faithful Democrats**\
 `The most loyal, longstanding Democratic voters were perhaps the most shaken by President Biden’s performance. Some blamed the national party.`\
 https://nytimes.com/2024/06/28/us/local-democrats-biden.html
-
-**4 Killed After Minivan Crashes Into Long Island Nail Salon**\
-`Officials did not immediately say what caused the crash, in Deer Park. Nine people were also injured.`\
-https://nytimes.com/2024/06/28/nyregion/long-island-deerpark-salon-crash.html
 
