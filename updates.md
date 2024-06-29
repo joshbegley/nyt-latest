@@ -1,3 +1,7 @@
+**The Vast Blur of a Trump Rally**\
+`No focus, no substance, no news.`\
+https://nytimes.com/live/2024/06/25/opinion/thepoint/trump-rally-virginia
+
 **Biden’s debate cleanup tour starts at an L.G.B.T.Q. fund-raiser in Manhattan.**\
 `By Liam Stack and Olivia Bensimon`\
 https://nytimes.com/live/2024/06/29/us/biden-trump-election-debate/biden-lgbtq-fund-raiser
