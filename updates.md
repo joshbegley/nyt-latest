@@ -1,3 +1,7 @@
+**Ann Lurie, Nurse Who Became a Prominent Philanthropist, Is Dead at 79**\
+`A former hippie who chafed at wealth, she married a Chicago real estate titan and, after his death, donated hundreds of millions in her adopted city and beyond.`\
+https://nytimes.com/2024/06/29/us/ann-lurie-dead.html
+
 **Long Island Man Charged in Crash That Killed Four People at Nail Salon**\
 `The police say the man was driving while intoxicated and ran his S.U.V. into the salon, killing four people and injuring 10. His own injuries were not life-threatening.`\
 https://nytimes.com/2024/06/29/nyregion/deer-park-fatal-crash.html

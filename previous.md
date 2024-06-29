@@ -1,3 +1,7 @@
+**Ann Lurie, Nurse Who Became a Prominent Philanthropist, Is Dead at 79**\
+`A former hippie who chafed at wealth, she married a Chicago real estate titan and, after his death, donated hundreds of millions in her adopted city and beyond.`\
+https://nytimes.com/2024/06/29/us/ann-lurie-dead.html
+
 **The Vast Blur of a Trump Rally**\
 `No focus, no substance, no news.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/trump-rally-virginia
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/29/health/texas-telehealth-hologram-doctor.html
 **With Macron and Biden Vulnerable, So Is Europe**\
 `The U.S. presidential debate and Sunday’s snap election in France have emboldened nationalist forces that could challenge NATO and undo the defense of Ukraine.`\
 https://nytimes.com/2024/06/29/world/europe/macron-biden-france-elections.html
-
-**Biden? Trump? The Politics of Talking About It at the Office.**\
-`Some companies have banned political discussions at work, but that might be easier said than done.`\
-https://nytimes.com/2024/06/29/business/dealbook/biden-trump-the-politics-of-talking-about-it-at-the-office.html
 
