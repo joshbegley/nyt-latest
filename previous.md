@@ -1,3 +1,7 @@
+**2 Books to Make You Love Karaoke, or at Least Respect It**\
+`In a memoir and a novel, the characters deal with grief by singing in front of strangers.`\
+https://nytimes.com/2024/06/29/books/read-like-wind-book-recommendations-karaoke.html
+
 **Democrats: Stop Panicking**\
 `The president had a bad night, but the fundamentals of this race have not changed.`\
 https://nytimes.com/2024/06/29/opinion/democrats-panic-joe-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/29/opinion/liberals-west-coast.html
 **How to Like Yourself More**\
 `Taking time to enumerate nice things about yourself each day may sound terminally conceited, but in practice the results can be pretty transformative.`\
 https://nytimes.com/2024/06/29/briefing/how-to-like-yourself-more.html
-
-**Children of Dave**\
-`Boen Wang goes back to a day that changed the course of his family’s story.`\
-https://nytimes.com/2024/06/29/podcasts/this-american-life-children-of-dave-nyt-audio-boen-wang.html
 
