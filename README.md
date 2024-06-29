@@ -26,7 +26,7 @@ https://nytimes.com/2024/06/29/opinion/democrats-panic-joe-biden.html
 `An alternative photographic history of the Pride march shows that real belonging starts in the crowd, where people find refuge and community.`\
 https://nytimes.com/2024/06/29/opinion/pride-march-parade-crowd.html
 
-**Conservatives Took Another Big Step to Consolidate Power in the Supreme Court**\
+**The Imperial Supreme Court**\
 `The court swept aside a precedent that endangers countless regulations — and transfers power from the executive branch to Congress and the courts.`\
 https://nytimes.com/2024/06/29/opinion/supreme-court-chevron-loper.html
 
