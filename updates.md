@@ -1,3 +1,7 @@
+**Biden? Trump? The Politics of Talking About It at the Office.**\
+`Some companies have banned political discussions at work, but that might be easier said than done.`\
+https://nytimes.com/2024/06/29/business/dealbook/biden-trump-the-politics-of-talking-about-it-at-the-office.html
+
 **2 Books to Make You Love Karaoke, or at Least Respect It**\
 `In a memoir and a novel, the characters deal with grief by singing in front of strangers.`\
 https://nytimes.com/2024/06/29/books/read-like-wind-book-recommendations-karaoke.html
