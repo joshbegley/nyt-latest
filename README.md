@@ -1,3 +1,7 @@
+**Defendants Acquitted in Panama Papers Money-Laundering Trial**\
+`The case focused on the law firm at the heart of the 2016 scandal, in which leaked documents revealed a vast network of offshore tax havens.`\
+https://nytimes.com/2024/06/29/world/americas/panama-papers-defendants-acquitted.html
+
 **Facial Recognition Led to Wrongful Arrests. So Detroit Is Making Changes.**\
 `The Detroit Police Department arrested three people after bad facial recognition matches, a national record. But it’s adopting new policies that even the A.C.L.U. endorses.`\
 https://nytimes.com/2024/06/29/technology/detroit-facial-recognition-false-arrests.html
@@ -33,8 +37,4 @@ https://nytimes.com/card/2024/06/29/world/asia/balloon-south-korea
 **Quote of the Day: The Vanishing Islands That Failed to Vanish**\
 `Quotation of the Day for Saturday, June 29, 2024.`\
 https://nytimes.com/2024/06/28/pageoneplus/quote-of-the-day-the-vanishing-islands-that-failed-to-vanish.html
-
-**Corrections: June 29, 2024**\
-`Corrections that appeared in print on Saturday, June 29, 2024.`\
-https://nytimes.com/2024/06/28/pageoneplus/corrections-june-29-2024.html
 
