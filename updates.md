@@ -1,3 +1,7 @@
+**Jill Biden says she reassured the president in the moments after a dismal debate.**\
+`By Katie Rogers`\
+https://nytimes.com/live/2024/06/28/us/trump-biden-debate/jill-biden-says-she-reassured-the-president-in-the-moments-after-a-dismal-debate
+
 **Down During Difficult Times?**\
 `Adrian Johnson and Rafael Musa collaborate on an uplifting themeless crossword.`\
 https://nytimes.com/2024/06/28/crosswords/daily-puzzle-2024-06-29.html
