@@ -22,7 +22,7 @@ https://nytimes.com/2024/06/29/opinion/pride-march-parade-crowd.html
 `The court swept aside a precedent that endangers countless regulations — and transfers power from the executive branch to Congress and the courts.`\
 https://nytimes.com/2024/06/29/opinion/supreme-court-chevron-loper.html
 
-**Forget Defeating Trump. Biden Needs to Spare the Country Four More Years of Himself.**\
+**The Dramatic Dangers of a Second Biden Administration**\
 `A second Biden term would be unusually dangerous for the country in a very significant way.`\
 https://nytimes.com/2024/06/29/opinion/biden-trump-debate-danger.html
 
