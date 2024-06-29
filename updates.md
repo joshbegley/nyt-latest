@@ -1,3 +1,7 @@
+**The World of Luxury Fruit: Does a $156 Melon Taste Sweeter?**\
+`Fruit may be a staple. It can also be a status symbol prized for flavor, rarity and appearance.`\
+https://nytimes.com/2024/06/29/us/the-world-of-luxury-fruit-does-a-156-melon-taste-sweeter.html
+
 **Motorcycles and Mayhem in Ukraine’s East**\
 `In the latest tactic for storming trenches, Russians use motorcycles and dune buggies to speed across open space, often into a hail of gunfire.`\
 https://nytimes.com/2024/06/29/world/europe/ukraine-russia-war-donbas.html
