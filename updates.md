@@ -1,3 +1,7 @@
+**The White House Brushed Off Questions About Biden’s Age. Then the Debate Happened.**\
+`President Biden’s allies can no longer wave away concerns about his capacity after his unsteady performance at Thursday’s debate as worries among Democrats grow.`\
+https://nytimes.com/2024/06/28/us/politics/biden-debate-age-white-house.html
+
 **In Her Crisp Defense of Biden, Harris Builds a Case for Herself**\
 `Vice President Kamala Harris tried to calm Democratic fears as her allies wondered what could be next for her.`\
 https://nytimes.com/2024/06/28/us/politics/harris-biden-debate.html
