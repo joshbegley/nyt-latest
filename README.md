@@ -1,3 +1,7 @@
+**Monday Briefing: The French far right appeared to triumph**\
+`Also, Iran’s election heads to a runoff and Japanese researchers help robots smile.`\
+https://nytimes.com/2024/06/30/briefing/french-election-far-right.html
+
 **Nevada Residents Will Vote on Abortion Rights in November**\
 `A measure seeking to protect abortion access in the State Constitution will appear on the ballot. It is one of nearly a dozen such initiatives that could shape other races this election.`\
 https://nytimes.com/2024/06/30/us/nevada-abortion-rights-vote.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/30/nyregion/nyc-pride-parade.html
 **Review: ‘Robeson’ Illuminates a Titanic Artist and Activist**\
 `Davóne Tines plays Paul Robeson in a solo show on Little Island that weaves together the words and music of this American hero to tell his story.`\
 https://nytimes.com/2024/06/30/arts/music/review-robeson-little-island.html
-
-**Can Japan’s First Same-Sex Dating Reality Show Change Hearts and Minds?**\
-`Producers of “The Boyfriend” on Netflix hope it will encourage broader acceptance of the L.G.B.T.Q. community in Japan, which still has not legalized same-sex unions.`\
-https://nytimes.com/2024/06/30/world/asia/the-boyfriend-netflix.html
 
