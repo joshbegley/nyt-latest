@@ -1,3 +1,11 @@
+**In Boston, All Aboard Googly-Eyed Trains**\
+`Organizers of a plan to adorn some trains with googly eyes said that if the trains could not be reliable, they could at least make commuters smile.`\
+https://nytimes.com/2024/06/30/us/boston-t-train-googly-eyes.html
+
+**Clyburn and Graham lead the Sunday show surrogate surge by spinning the debate.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/06/30/us/biden-trump-election/clyburn-graham-cnn
+
 **Should Biden Heed Calls to Drop Out?**\
 `Readers offer a range of views after an editorial that called on the president to leave the race after his poor debate performance.`\
 https://nytimes.com/2024/06/30/opinion/joe-biden-election-campaign.html
