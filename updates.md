@@ -1,3 +1,7 @@
+**Biden’s Family Tells Him to Keep Fighting as They Huddle at Camp David**\
+`President Biden is trying to figure out how to tamp down Democratic anxiety after last week’s disastrous debate performance.`\
+https://nytimes.com/2024/06/30/us/politics/biden-debate-anxious-democrats.html
+
 **As the U.N.’s relief chief steps down, Gaza’s aid woes are piling up.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/06/30/world/israel-gaza-war-hamas/as-the-uns-relief-chief-steps-down-gazas-aid-woes-are-piling-up
