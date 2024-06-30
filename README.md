@@ -1,3 +1,7 @@
+**Chicken Soup for the Soul Entertainment Files for Bankruptcy**\
+`The parent company of Redbox, which rents movies through kiosks, filed for Chapter 11 bankruptcy protection on Friday.`\
+https://nytimes.com/2024/06/30/business/chicken-soup-for-soul-bankruptcy.html
+
 **Monday Briefing: The French far right appeared to triumph**\
 `Also, Iran’s election heads to a runoff and Japanese researchers help robots smile.`\
 https://nytimes.com/2024/06/30/briefing/french-election-far-right.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/30/world/europe/france-elections.html
 **A Wave of Pride Lights Up New York City**\
 `The New York City Pride March, now in its 54th year, attracted tens of thousands in Manhattan. It was interrupted by pro-Palestinian demonstrators.`\
 https://nytimes.com/2024/06/30/nyregion/nyc-pride-parade.html
-
-**Review: ‘Robeson’ Illuminates a Titanic Artist and Activist**\
-`Davóne Tines plays Paul Robeson in a solo show on Little Island that weaves together the words and music of this American hero to tell his story.`\
-https://nytimes.com/2024/06/30/arts/music/review-robeson-little-island.html
 
