@@ -1,3 +1,7 @@
+**U.S. Said to Seek Boeing Guilty Plea to Avoid Trial in 737 Max Crashes**\
+`The Justice Department told victims’ families that it would propose a nearly $244 million fine and three years of company oversight to settle a fraud charge.`\
+https://nytimes.com/2024/06/30/business/boeing-max-justice-department.html
+
 **Small Plane With 5 Aboard Crashes in Rural Upstate New York**\
 `The plane crashed around 2 p.m. on Sunday in Delaware County, N.Y., the Federal Aviation Administration said. Multiple crews were searching for the aircraft.`\
 https://nytimes.com/2024/06/30/nyregion/plane-crash-delaware-county-catskills.html

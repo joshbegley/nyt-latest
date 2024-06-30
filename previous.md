@@ -23,7 +23,7 @@ https://nytimes.com/2024/06/30/briefing/french-election-far-right.html
 https://nytimes.com/2024/06/30/us/nevada-abortion-rights-vote.html
 
 **U.S. Said to Seek Boeing Guilty Plea to Avoid Trial in 737 Max Crashes**\
-`The Justice Department told victims’ families that it would propose a $243 million fine and three years of company oversight to settle a fraud charge.`\
+`The Justice Department told victims’ families that it would propose a nearly $244 million fine and three years of company oversight to settle a fraud charge.`\
 https://nytimes.com/2024/06/30/business/boeing-max-justice-department.html
 
 **Iranians Say Elections Bring Little Change, So Why Vote?**\
