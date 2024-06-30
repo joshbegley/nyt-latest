@@ -1,3 +1,7 @@
+**Review: ‘Robeson’ Illuminates a Titanic Artist and Activist**\
+`Davóne Tines plays Paul Robeson in a solo show on Little Island that weaves together the words and music of this American hero to tell his story.`\
+https://nytimes.com/2024/06/30/arts/music/review-robeson-little-island.html
+
 **Can Japan’s First Same-Sex Dating Reality Show Change Hearts and Minds?**\
 `Producers of “The Boyfriend” on Netflix hope it will encourage broader acceptance of the L.G.B.T.Q. community in Japan, which still has not legalized same-sex unions.`\
 https://nytimes.com/2024/06/30/world/asia/the-boyfriend-netflix.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-debate-cognitive-decl
 **Scientists in Japan Give Robots a Fleshy Face and a Smile**\
 `Researchers at the University of Tokyo published findings on a method of attaching artificial skin to robot faces to protect machinery and mimic human expressiveness.`\
 https://nytimes.com/2024/06/30/science/japan-robots-human-face.html
-
-**The Future of Eating Out Is Lining Up**\
-`Money-strapped millennials, inflation and the tough economics of the restaurant business have birthed a wait-in-line dining culture.`\
-https://nytimes.com/2024/06/30/opinion/restaurant-eating-out-lines.html
 
