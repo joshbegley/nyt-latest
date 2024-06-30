@@ -1,3 +1,7 @@
+**Four Takeaways From Iran’s Presidential Election**\
+`The results from Friday’s election, which drew record-low turnout for a presidential race, will force a runoff on July 5 between a reformist and an ultraconservative.`\
+https://nytimes.com/2024/06/30/world/middleeast/iran-election-takeaways.html
+
 **The Angst and the Joy of Celebrating Pride Month in a Small Town**\
 `In New York’s suburban and rural communities, where L.G.B.T.Q. people can feel more isolated, Pride events often hold special meaning.`\
 https://nytimes.com/2024/06/30/nyregion/small-town-pride-parades.html

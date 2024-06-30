@@ -1,3 +1,7 @@
+**Four Takeaways From Iran’s Presidential Election**\
+`The results from Friday’s election, which drew record-low turnout for a presidential race, will force a runoff on July 5 between a reformist and an ultraconservative.`\
+https://nytimes.com/2024/06/30/world/middleeast/iran-election-takeaways.html
+
 **The Angst and the Joy of Celebrating Pride Month in a Small Town**\
 `In New York’s suburban and rural communities, where L.G.B.T.Q. people can feel more isolated, Pride events often hold special meaning.`\
 https://nytimes.com/2024/06/30/nyregion/small-town-pride-parades.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/30/pageoneplus/corrections-june-30-2024.html
 **In the Basque Country, Muted Cheers for Spain’s Soccer Team**\
 `The region has long seen itself as distinct from its country and disinterested in the national team. Can a Euro 2024 squad studded with Basque stars turn heads?`\
 https://nytimes.com/2024/06/30/world/europe/euro-2024-spain-basque.html
-
-**France’s Snap Elections: What to Watch For**\
-`French voters are heading to the polls after President Emmanuel Macron called for unexpected parliamentary elections that could put the country on a new course.`\
-https://nytimes.com/2024/06/30/world/europe/france-election-what-to-watch.html
 
