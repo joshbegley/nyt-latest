@@ -1,3 +1,23 @@
+**This Isn’t All Joe Biden’s Fault**\
+`What is the Democratic Party for if not for dealing with a situation like this?`\
+https://nytimes.com/2024/06/30/opinion/biden-debate-convention.html
+
+**The Supreme Court Puts the Pro-Life Movement to the Test**\
+`Rarely has a case had less legal meaning and greater moral weight.`\
+https://nytimes.com/2024/06/30/opinion/moyle-idaho-abortion-emtala.html
+
+**The Pride March Doesn’t Have a Place for Me**\
+`The intolerance in the LGBTQ+ community for nuanced views of the war in Gaza is not what the rainbow flag stands for.`\
+https://nytimes.com/2024/06/30/opinion/pride-march-lgbtq-gaza.html
+
+**How to Help Americans Eat Less Junk Food**\
+`It’s time to use warning labels to steer people away from food that’s bad for them.`\
+https://nytimes.com/2024/06/30/opinion/food-warning-labels-ultra-processed-food.html
+
+**The Connections Companion No. 386, July 1, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/06/30/crosswords/connections-companion-386.html
+
 **India Wins Cricket World Cup, Stamping Its Domination of the Sport**\
 `In India, cricket has become immensely profitable and a destination for the world’s best players. But a tournament victory had eluded it for many years.`\
 https://nytimes.com/2024/06/30/world/asia/india-wins-cricket-world-cup.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/06/30/movies/inside-out-2-anxiety-character.html
 **Want to Be Trump’s Running Mate? Make Sure He Knows About Your Donors.**\
 `Vice-presidential hopefuls are posturing as part of a bid to highlight their ties to the rich.`\
 https://nytimes.com/2024/06/30/us/politics/trump-vice-president-donors.html
-
-**On the Jersey Shore, There’s a Flag for Everything**\
-`A Supreme Court justice’s political flag shined a light on a longstanding shore tradition of flying flags — so many flags — to celebrate colleges, sports teams and more.`\
-https://nytimes.com/2024/06/30/style/jersey-shore-flags.html
-
-**Quotation of the Day: For Emergency Abortion, Idaho Doctors Flew Her Away**\
-`Quotation of the Day for Sunday, June 30, 2024.`\
-https://nytimes.com/2024/06/30/pageoneplus/quotation-of-the-day-for-emergency-abortion-idaho-doctors-flew-her-away.html
-
-**The World’s Next Big Drag Queen Is Brazilian**\
-`Pabllo Vittar has become an A-list pop star and L.G.B.T.Q. activist in Brazil. Can she conquer the world?`\
-https://nytimes.com/2024/06/30/world/americas/the-worlds-next-big-drag-queen-is-brazilian.html
-
-**Racing to Retake a Beloved Trip, Before Dementia Takes Everything**\
-`My dad always remembered his childhood journey through Europe. Now, with Alzheimer’s claiming his memories, we tried to recreate it.`\
-https://nytimes.com/2024/06/30/magazine/dementia-alzheimers-reminiscence-therapy.html
-
-**What Happened When an Orchestra Said Goodbye to All-Male Concerts**\
-`This season, the Deutsches Symphonie-Orchester Berlin experimented with programming works by female composers at every performance. Results were mixed.`\
-https://nytimes.com/2024/06/30/arts/music/deutsches-symphonie-orchester-berlin-women-composers.html
 
