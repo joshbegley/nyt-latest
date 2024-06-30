@@ -1,3 +1,7 @@
+**Iranians Say Elections Bring Little Change, So Why Vote?**\
+`In Tehran, many Iranians said they didn’t see the point in voting in Friday’s first-round presidential election since all the candidates had been vetted by the government.`\
+https://nytimes.com/2024/06/30/world/middleeast/iran-election-president-voters.html
+
 **Biden’s Family Tells Him to Keep Fighting as They Huddle at Camp David**\
 `President Biden is trying to figure out how to tamp down Democratic anxiety after last week’s disastrous debate performance.`\
 https://nytimes.com/2024/06/30/us/politics/biden-debate-anxious-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/30/dining/skirt-steak-recipe.html
 **Taliban Talks With U.N. Go On Despite Alarm Over Exclusion of Women**\
 `The meeting is the first between the Taliban and a United Nations-led conference of  global envoys who are seeking to engage the Afghan government on critical issues.`\
 https://nytimes.com/2024/06/30/world/middleeast/afghanistan-un-taliban-talks-women.html
-
-**Russia Maintains Punishing Pace of Deadly Strikes on Ukrainian Cities**\
-`A barrage on Vilniansk, a town in the south, killed seven, including three children, as attacks across Ukraine in the past few days have left dozens dead, according to local authorities.`\
-https://nytimes.com/2024/06/30/world/europe/russia-missile-strikes-ukraine-war.html
 
