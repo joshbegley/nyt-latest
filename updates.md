@@ -1,3 +1,7 @@
+**Mildred Thornton Stahlman, Pioneer in Neonatal Care, Dies at 101**\
+`She developed one of the first modern intensive care units for premature babies, helping newborns to breathe with lifesaving new treatments.`\
+https://nytimes.com/2024/06/30/science/mildred-thornton-stahlman-dead.html
+
 **French Far Right Wins Big in First Round of Voting, Polls Suggest**\
 `A surprise decision by President Emmanuel Macron to hold a snap election appears to have backfired badly, giving the National Rally a decisive victory, early projections showed.`\
 https://nytimes.com/2024/06/30/world/europe/france-elections.html
