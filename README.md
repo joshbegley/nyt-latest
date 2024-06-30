@@ -1,5 +1,5 @@
 **Should Biden Heed Calls to Drop Out?**\
-`Readers offer opposing views on an editorial that called on the president to leave the race after his poor debate performance.`\
+`Readers offer a range of views after an editorial that called on the president to leave the race after his poor debate performance.`\
 https://nytimes.com/2024/06/30/opinion/joe-biden-election-campaign.html
 
 **The ‘Bad Debate’ Nonsense**\
