@@ -1,3 +1,7 @@
+**Justice Department to Offer Boeing Plea Deal Over 737 Max Crashes**\
+`A lawyer for the families of the victims of those crashes in 2018 and 2019 said the tentative deal fell short of what the families had sought.`\
+https://nytimes.com/2024/06/30/business/boeing-max-justice-department.html
+
 **A Wave of Pride Lights Up New York City**\
 `The New York City Pride March, now in its 54th year, attracted tens of thousands in Manhattan. It was interrupted by pro-Palestinian demonstrators.`\
 https://nytimes.com/2024/06/30/nyregion/nyc-pride-parade.html
