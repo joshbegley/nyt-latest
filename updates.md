@@ -1,3 +1,11 @@
+**Nothing to See Here? White House Portrays Biden’s Debate Performance as a Blip**\
+`Critics of the approach say it risks making President Biden and his campaign seem woefully out of touch with the voters they need to win.`\
+https://nytimes.com/2024/06/30/us/politics/biden-debate-trump-reaction.html
+
+**French Far Right Scores Big in a First Round of Voting, Polling Suggests**\
+`A surprise decision by President Emmanuel Macron to hold a snap election appears to have backfired badly, giving the National Rally a decisive victory, early returns showed.`\
+https://nytimes.com/2024/06/30/world/europe/france-elections.html
+
 **French Far Right Scores Big in a First Round of Voting, Polling Suggests**\
 `A surprise decision by the President Emmanuel Macron to hold a snap election appears to have backfired badly, giving the National Rally a decisive victory, early returns showed.`\
 https://nytimes.com/2024/06/30/world/europe/france-elections.html

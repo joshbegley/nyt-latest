@@ -1,5 +1,9 @@
+**Nothing to See Here? White House Portrays Biden’s Debate Performance as a Blip**\
+`Critics of the approach say it risks making President Biden and his campaign seem woefully out of touch with the voters they need to win.`\
+https://nytimes.com/2024/06/30/us/politics/biden-debate-trump-reaction.html
+
 **French Far Right Scores Big in a First Round of Voting, Polling Suggests**\
-`A surprise decision by the President Emmanuel Macron to hold a snap election appears to have backfired badly, giving the National Rally a decisive victory, early returns showed.`\
+`A surprise decision by President Emmanuel Macron to hold a snap election appears to have backfired badly, giving the National Rally a decisive victory, early returns showed.`\
 https://nytimes.com/2024/06/30/world/europe/france-elections.html
 
 **A Wave of Pride Lights Up New York City**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/30/us/boston-t-train-googly-eyes.html
 **Clyburn and Graham lead the Sunday show surrogate surge by spinning the debate.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/06/30/us/biden-trump-election/clyburn-graham-cnn
-
-**Should Biden Heed Calls to Drop Out?**\
-`Readers offer a range of views after an editorial that called on the president to leave the race after his poor debate performance.`\
-https://nytimes.com/2024/06/30/opinion/joe-biden-election-campaign.html
 
