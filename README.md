@@ -1,3 +1,7 @@
+**Nevada Residents Will Vote on Abortion Rights in November**\
+`A measure seeking to protect abortion access in the State Constitution will appear on the ballot. It is one of nearly a dozen such initiatives that could shape other races this election.`\
+https://nytimes.com/2024/06/30/us/nevada-abortion-rights-vote.html
+
 **Justice Department Is Said to Offer Boeing Plea Deal Over 737 Max Crashes**\
 `A lawyer for the families of the victims of those crashes in 2018 and 2019 said the tentative deal fell short of what the families had sought.`\
 https://nytimes.com/2024/06/30/business/boeing-max-justice-department.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/30/arts/music/review-robeson-little-island.html
 **Can Japan’s First Same-Sex Dating Reality Show Change Hearts and Minds?**\
 `Producers of “The Boyfriend” on Netflix hope it will encourage broader acceptance of the L.G.B.T.Q. community in Japan, which still has not legalized same-sex unions.`\
 https://nytimes.com/2024/06/30/world/asia/the-boyfriend-netflix.html
-
-**Skirt Steak, Long Sunday**\
-`Under a drizzle of minted, parsleyed dressing punched up with capers and salted with feta, skirt steak with salsa verde is one of summer’s great feeds.`\
-https://nytimes.com/2024/06/30/dining/skirt-steak-recipe.html
 
