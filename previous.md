@@ -1,3 +1,7 @@
+**A Wave of Pride Lights Up New York City**\
+`The New York City Pride March, now in its 54th year, attracted tens of thousands in Manhattan on Sunday.`\
+https://nytimes.com/2024/06/30/nyregion/nyc-pride-parade.html
+
 **Review: ‘Robeson’ Illuminates a Titanic Artist and Activist**\
 `Davóne Tines plays Paul Robeson in a solo show on Little Island that weaves together the words and music of this American hero to tell his story.`\
 https://nytimes.com/2024/06/30/arts/music/review-robeson-little-island.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/30/opinion/joe-biden-election-campaign.html
 **The ‘Bad Debate’ Nonsense**\
 `Biden’s problems are far more serious than a single night’s poor performance.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-debate-cognitive-decline
-
-**Scientists in Japan Give Robots a Fleshy Face and a Smile**\
-`Researchers at the University of Tokyo published findings on a method of attaching artificial skin to robot faces to protect machinery and mimic human expressiveness.`\
-https://nytimes.com/2024/06/30/science/japan-robots-human-face.html
 
