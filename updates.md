@@ -1,3 +1,7 @@
+**Taliban Talks With U.N. Go On Despite Alarm Over Exclusion of Women**\
+`The meeting is the first between the Taliban and a United Nations-led conference of  global envoys who are seeking to engage the Afghan government on critical issues.`\
+https://nytimes.com/2024/06/30/world/middleeast/afghanistan-un-taliban-talks-women.html
+
 **Russia Maintains Punishing Pace of Deadly Strikes on Ukrainian Cities**\
 `A barrage on Vilniansk, a town in the south, killed seven, including three children, as attacks across Ukraine in the past few days have left dozens dead, according to local authorities.`\
 https://nytimes.com/2024/06/30/world/europe/russia-missile-strikes-ukraine-war.html
