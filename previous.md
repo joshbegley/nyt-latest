@@ -1,3 +1,19 @@
+**Anything Can Happen, and Usually Does, on ‘Watch What Happens Live’**\
+`With Andy Cohen, Hillary Clinton will do shots and Oscar-winners gush about reality stars — all savvy promotion for Bravo’s outrageous TV universe.`\
+https://nytimes.com/2024/06/30/arts/television/watch-what-happens-live-anniversary.html
+
+**Jailhouse Correspondence Gives Bernie Madoff the ‘Final Word’**\
+`The journalist Richard Behar communicated extensively with the disgraced financier. His rigorous if irreverent book acknowledges his subject’s humanity.`\
+https://nytimes.com/2024/06/30/books/review/madoff-the-final-word-richard-behar.html
+
+**The Great Air-Conditioner Glow Up**\
+`As climate change brings hotter summers, AC manufacturers are positioning sleek window units as lifestyle accessories. Some of them are less effective than they are stylish.`\
+https://nytimes.com/2024/06/30/style/ac-unit-window-climate-change.html
+
+**4 Great Fictional Detectives**\
+`The books in this month’s column have something in common: unforgettable main characters.`\
+https://nytimes.com/2024/06/30/books/review/new-crime-novels.html
+
 **Four Takeaways From Iran’s Presidential Election**\
 `The results from Friday’s election, which drew record-low turnout for a presidential race, will force a runoff on July 5 between a reformist and an ultraconservative.`\
 https://nytimes.com/2024/06/30/world/middleeast/iran-election-takeaways.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/06/30/us/navy-seals-brain-damage-suicide.html
 **How Science Went to the Dogs (and Cats)**\
 `Pets were once dismissed as trivial scientific subjects. Today, companion animal science is hot.`\
 https://nytimes.com/2024/06/30/science/pets-research-dogs-cats.html
-
-**How Blast Waves Can Injure the Brain**\
-`A growing number of scientists suggest that troops are getting brain injuries from firing heavy weapons. An old party trick involving a beer bottle explains the physics of what happens when a blast wave hits the brain, and the damage it can cause.`\
-https://nytimes.com/video/us/100000009504123/how-blast-waves-can-injure-the-brain.html
-
-**Who Owns the ‘Victorious Youth’?**\
-`There is widespread agreement, even in museums, that questionable pieces in collections should be returned. But returned to whom?`\
-https://nytimes.com/2024/06/30/opinion/museum-statue-looted-culture.html
-
-**Corrections: June 30, 2024**\
-`Corrections that appeared in print on Sunday, June 30, 2024.`\
-https://nytimes.com/2024/06/30/pageoneplus/corrections-june-30-2024.html
-
-**In the Basque Country, Muted Cheers for Spain’s Soccer Team**\
-`The region has long seen itself as distinct from its country and disinterested in the national team. Can a Euro 2024 squad studded with Basque stars turn heads?`\
-https://nytimes.com/2024/06/30/world/europe/euro-2024-spain-basque.html
 

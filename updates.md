@@ -1,3 +1,19 @@
+**Anything Can Happen, and Usually Does, on ‘Watch What Happens Live’**\
+`With Andy Cohen, Hillary Clinton will do shots and Oscar-winners gush about reality stars — all savvy promotion for Bravo’s outrageous TV universe.`\
+https://nytimes.com/2024/06/30/arts/television/watch-what-happens-live-anniversary.html
+
+**Jailhouse Correspondence Gives Bernie Madoff the ‘Final Word’**\
+`The journalist Richard Behar communicated extensively with the disgraced financier. His rigorous if irreverent book acknowledges his subject’s humanity.`\
+https://nytimes.com/2024/06/30/books/review/madoff-the-final-word-richard-behar.html
+
+**The Great Air-Conditioner Glow Up**\
+`As climate change brings hotter summers, AC manufacturers are positioning sleek window units as lifestyle accessories. Some of them are less effective than they are stylish.`\
+https://nytimes.com/2024/06/30/style/ac-unit-window-climate-change.html
+
+**4 Great Fictional Detectives**\
+`The books in this month’s column have something in common: unforgettable main characters.`\
+https://nytimes.com/2024/06/30/books/review/new-crime-novels.html
+
 **Four Takeaways From Iran’s Presidential Election**\
 `The results from Friday’s election, which drew record-low turnout for a presidential race, will force a runoff on July 5 between a reformist and an ultraconservative.`\
 https://nytimes.com/2024/06/30/world/middleeast/iran-election-takeaways.html
