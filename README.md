@@ -1,3 +1,7 @@
+**Should Biden Heed Calls to Drop Out?**\
+`Readers offer opposing views after the president’s poor debate performance.`\
+https://nytimes.com/2024/06/30/opinion/joe-biden-election-campaign.html
+
 **The ‘Bad Debate’ Nonsense**\
 `Biden’s problems are far more serious than a single night’s poor performance.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-debate-cognitive-decline
