@@ -1,3 +1,7 @@
+**Small Plane With 5 Aboard Crashes in Rural Upstate New York**\
+`The plane crashed around 2 p.m. on Sunday in Delaware County, N.Y., the Federal Aviation Administration said. Multiple crews were searching for the aircraft.`\
+https://nytimes.com/2024/06/30/nyregion/plane-crash-delaware-county-catskills.html
+
 **Mildred Thornton Stahlman, Pioneer in Neonatal Care, Dies at 101**\
 `She developed one of the first modern intensive care units for premature babies, helping newborns to breathe with lifesaving new treatments.`\
 https://nytimes.com/2024/06/30/science/mildred-thornton-stahlman-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/30/us/politics/biden-debate-anxious-democrats.html
 **As the U.N.’s relief chief steps down, Gaza’s aid woes are piling up.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/06/30/world/israel-gaza-war-hamas/as-the-uns-relief-chief-steps-down-gazas-aid-woes-are-piling-up
-
-**Nothing to See Here? White House Portrays Biden’s Debate Performance as a Blip**\
-`Critics of the approach say it risks making President Biden and his campaign seem woefully out of touch with the voters they need to win.`\
-https://nytimes.com/2024/06/30/us/politics/biden-debate-trump-reaction.html
 

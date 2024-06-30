@@ -1,3 +1,7 @@
+**Small Plane With 5 Aboard Crashes in Rural Upstate New York**\
+`The plane crashed around 2 p.m. on Sunday in Delaware County, N.Y., the Federal Aviation Administration said. Multiple crews were searching for the aircraft.`\
+https://nytimes.com/2024/06/30/nyregion/plane-crash-delaware-county-catskills.html
+
 **Mildred Thornton Stahlman, Pioneer in Neonatal Care, Dies at 101**\
 `She developed one of the first modern intensive care units for premature babies, helping newborns to breathe with lifesaving new treatments.`\
 https://nytimes.com/2024/06/30/science/mildred-thornton-stahlman-dead.html
