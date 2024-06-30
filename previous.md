@@ -1,4 +1,4 @@
-**Justice Department to Offer Boeing Plea Deal Over 737 Max Crashes**\
+**Justice Department Is Said to Offer Boeing Plea Deal Over 737 Max Crashes**\
 `A lawyer for the families of the victims of those crashes in 2018 and 2019 said the tentative deal fell short of what the families had sought.`\
 https://nytimes.com/2024/06/30/business/boeing-max-justice-department.html
 
