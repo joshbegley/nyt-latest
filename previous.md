@@ -1,3 +1,7 @@
+**France’s Snap Elections: What to Watch For**\
+`French voters are heading to the polls after President Emmanuel Macron called for unexpected parliamentary elections that could put the country on a new course.`\
+https://nytimes.com/2024/06/30/world/europe/france-election-what-to-watch.html
+
 **Mulling Reparations, California Sets Aside $12 Million as a Start**\
 `Direct cash payments are not imminent, but under the state’s new budget, the money could go toward other reparations-related proposals pending in the Legislature.`\
 https://nytimes.com/2024/06/29/us/california-budget-reparations.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/29/us/biden-trump-election-debate/biden-lgbtq-f
 **13-Year-Old Boy Shot and Killed by Police After Chase**\
 `Officers in Utica, N.Y., believed the boy had brandished a handgun. The police chief said on Saturday that it was a pellet gun.`\
 https://nytimes.com/2024/06/29/nyregion/utica-police-teen-shooting.html
-
-**Long Island Man Charged in Crash That Killed Four People at Nail Salon**\
-`The police say the man was driving while intoxicated and ran his S.U.V. into the salon, killing four people and injuring 10. His own injuries were not life-threatening.`\
-https://nytimes.com/2024/06/29/nyregion/deer-park-fatal-crash.html
 
