@@ -1,3 +1,11 @@
+**Can Japan’s First Same-Sex Dating Reality Show Change Hearts and Minds?**\
+`Producers of “The Boyfriend” on Netflix hope it will encourage broader acceptance of the L.G.B.T.Q. community in Japan, which still has not legalized same-sex unions.`\
+https://nytimes.com/2024/06/30/world/asia/the-boyfriend-netflix.html
+
+**Skirt Steak, Long Sunday**\
+`Under a drizzle of minted, parsleyed dressing punched up with capers and salted with feta, skirt steak with salsa verde is one of summer’s great feeds.`\
+https://nytimes.com/2024/06/30/dining/skirt-steak-recipe.html
+
 **Taliban Talks With U.N. Go On Despite Alarm Over Exclusion of Women**\
 `The meeting is the first between the Taliban and a United Nations-led conference of  global envoys who are seeking to engage the Afghan government on critical issues.`\
 https://nytimes.com/2024/06/30/world/middleeast/afghanistan-un-taliban-talks-women.html
