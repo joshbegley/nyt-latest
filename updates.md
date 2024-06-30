@@ -1,3 +1,7 @@
+**As the U.N.’s relief chief steps down, Gaza’s aid woes are piling up.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/06/30/world/israel-gaza-war-hamas/as-the-uns-relief-chief-steps-down-gazas-aid-woes-are-piling-up
+
 **Democrats Roll Out a Post-Debate Playbook to Help Biden Recover**\
 `Surrogates on Sunday made the case for the president, who spent the weekend reassuring donors and supporters, with a message focused on his record and that of Donald J. Trump.`\
 https://nytimes.com/2024/06/30/us/politics/clyburn-graham-cnn.html

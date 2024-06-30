@@ -1,3 +1,7 @@
+**As the U.N.’s relief chief steps down, Gaza’s aid woes are piling up.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/06/30/world/israel-gaza-war-hamas/as-the-uns-relief-chief-steps-down-gazas-aid-woes-are-piling-up
+
 **Nothing to See Here? White House Portrays Biden’s Debate Performance as a Blip**\
 `Critics of the approach say it risks making President Biden and his campaign seem woefully out of touch with the voters they need to win.`\
 https://nytimes.com/2024/06/30/us/politics/biden-debate-trump-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/30/world/europe/russia-missile-strikes-ukraine-war.h
 **In Boston, All Aboard Googly-Eyed Trains**\
 `Organizers of a plan to adorn some trains with googly eyes said that if the trains could not be reliable, they could at least make commuters smile.`\
 https://nytimes.com/2024/06/30/us/boston-t-train-googly-eyes.html
-
-**Democrats Roll Out a Post-Debate Playbook to Help Biden Recover**\
-`Surrogates on Sunday made the case for the president, who spent the weekend reassuring donors and supporters, with a message focused on his record and that of Donald J. Trump.`\
-https://nytimes.com/2024/06/30/us/politics/clyburn-graham-cnn.html
 
