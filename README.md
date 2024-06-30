@@ -36,5 +36,5 @@ https://nytimes.com/2024/06/30/us/boston-t-train-googly-eyes.html
 
 **Democrats Roll Out a Post-Debate Playbook to Help Biden Recover**\
 `Surrogates on Sunday made the case for the president, who spent the weekend reassuring donors and supporters, with a message focused on his record and that of Donald J. Trump.`\
-https://nytimes.com/live/2024/06/30/us/biden-trump-election/clyburn-graham-cnn
+https://nytimes.com/2024/06/30/us/politics/clyburn-graham-cnn.html
 
