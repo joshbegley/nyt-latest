@@ -1,3 +1,7 @@
+**Russia Maintains Punishing Pace of Deadly Strikes on Ukrainian Cities**\
+`A barrage on Vilniansk, a town in the south, killed seven, including three children, as attacks across Ukraine in the past few days have left dozens dead, according to local authorities.`\
+https://nytimes.com/2024/06/30/world/europe/russia-missile-strikes-ukraine-war.html
+
 **In Boston, All Aboard Googly-Eyed Trains**\
 `Organizers of a plan to adorn some trains with googly eyes said that if the trains could not be reliable, they could at least make commuters smile.`\
 https://nytimes.com/2024/06/30/us/boston-t-train-googly-eyes.html
