@@ -14,8 +14,8 @@ https://nytimes.com/2024/06/30/briefing/french-election-far-right.html
 `A measure seeking to protect abortion access in the State Constitution will appear on the ballot. It is one of nearly a dozen such initiatives that could shape other races this election.`\
 https://nytimes.com/2024/06/30/us/nevada-abortion-rights-vote.html
 
-**Justice Department Is Said to Offer Boeing Plea Deal Over 737 Max Crashes**\
-`A lawyer for the families of the victims of those crashes in 2018 and 2019 said the tentative deal fell short of what the families had sought.`\
+**U.S. Said to Seek Boeing Guilty Plea to Avoid Trial in 737 Max Crashes**\
+`The Justice Department told victims’ families that it would propose a $243 million fine and three years of company oversight to settle a fraud charge.`\
 https://nytimes.com/2024/06/30/business/boeing-max-justice-department.html
 
 **Iranians Say Elections Bring Little Change, So Why Vote?**\
