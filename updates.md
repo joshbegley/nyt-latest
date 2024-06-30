@@ -1,3 +1,7 @@
+**Democrats Roll Out a Post-Debate Playbook to Help Biden Recover**\
+`Surrogates on Sunday made the case for the president, who spent the weekend reassuring donors and supporters, with a message focused on his record and that of Donald J. Trump.`\
+https://nytimes.com/2024/06/30/us/politics/clyburn-graham-cnn.html
+
 **Nothing to See Here? White House Portrays Biden’s Debate Performance as a Blip**\
 `Critics of the approach say it risks making President Biden and his campaign seem woefully out of touch with the voters they need to win.`\
 https://nytimes.com/2024/06/30/us/politics/biden-debate-trump-reaction.html
