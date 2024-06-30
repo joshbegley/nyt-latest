@@ -1,3 +1,7 @@
+**Chicken Soup for the Soul Entertainment Files for Bankruptcy**\
+`The parent company of Redbox, which rents movies through kiosks, filed for Chapter 11 bankruptcy protection on Friday.`\
+https://nytimes.com/2024/06/30/business/chicken-soup-for-soul-bankruptcy.html
+
 **Monday Briefing: The French far right appeared to triumph**\
 `Also, Iran’s election heads to a runoff and Japanese researchers help robots smile.`\
 https://nytimes.com/2024/06/30/briefing/french-election-far-right.html
