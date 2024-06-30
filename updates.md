@@ -1,3 +1,7 @@
+**The Science of Dogs**\
+`We explore a boom in research into our furry friends.`\
+https://nytimes.com/2024/06/30/briefing/dogs-research.html
+
 **This Isn’t All Joe Biden’s Fault**\
 `What is the Democratic Party for if not for dealing with a situation like this?`\
 https://nytimes.com/2024/06/30/opinion/biden-debate-convention.html
