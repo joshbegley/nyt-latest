@@ -1,3 +1,7 @@
+**Who Owns the ‘Victorious Youth’?**\
+`There is widespread agreement, even in museums, that questionable pieces in collections should be returned. But returned to whom?`\
+https://nytimes.com/2024/06/30/opinion/museum-statue-looted-culture.html
+
 **Corrections: June 30, 2024**\
 `Corrections that appeared in print on Sunday, June 30, 2024.`\
 https://nytimes.com/2024/06/30/pageoneplus/corrections-june-30-2024.html

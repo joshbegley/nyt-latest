@@ -1,3 +1,7 @@
+**Who Owns the ‘Victorious Youth’?**\
+`There is widespread agreement, even in museums, that questionable pieces in collections should be returned. But returned to whom?`\
+https://nytimes.com/2024/06/30/opinion/museum-statue-looted-culture.html
+
 **Corrections: June 30, 2024**\
 `Corrections that appeared in print on Sunday, June 30, 2024.`\
 https://nytimes.com/2024/06/30/pageoneplus/corrections-june-30-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/29/us/oklahoma-immigration-law-judge.html
 **Ann Lurie, Nurse Who Became a Prominent Philanthropist, Is Dead at 79**\
 `A former hippie who chafed at wealth, she married a Chicago real estate titan and, after his death, donated hundreds of millions in her adopted city and beyond.`\
 https://nytimes.com/2024/06/29/us/ann-lurie-dead.html
-
-**The Vast Blur of a Trump Rally**\
-`No focus, no substance, no news.`\
-https://nytimes.com/live/2024/06/25/opinion/thepoint/trump-rally-virginia
 
