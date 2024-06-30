@@ -1,3 +1,7 @@
+**U.S. Said to Seek Boeing Guilty Plea to Avoid Trial in 737 Max Crashes**\
+`The Justice Department told victims’ families that it would propose a $243 million fine and three years of company oversight to settle a fraud charge.`\
+https://nytimes.com/2024/06/30/business/boeing-max-justice-department.html
+
 **Wheel Rotator**\
 `Margi Stevenson makes her New York Times debut.`\
 https://nytimes.com/2024/06/30/crosswords/daily-puzzle-2024-07-01.html
