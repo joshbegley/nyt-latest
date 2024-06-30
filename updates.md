@@ -1,3 +1,5 @@
+**The Gaza health ministry warns that a fuel shortage could shut down hospitals, and other news.**\
+
 **Biden’s Debate Performance Raises Alarm in Israel**\
 `Israelis expressed growing concern that President Biden’s shaky showing in the debate could spur on the country’s Middle Eastern foes at a critical time for American leadership in the region.`\
 https://nytimes.com/live/2024/06/30/world/israel-gaza-war-hamas
