@@ -1,3 +1,7 @@
+**Justice Department to Offer Boeing Plea Deal Over 737 Max Crashes**\
+`A lawyer for the families of the victims of those crashes in 2018 and 2019 said the tentative deal fell short of what the families had sought.`\
+https://nytimes.com/2024/06/30/business/boeing-max-justice-department.html
+
 **Iranians Say Elections Bring Little Change, So Why Vote?**\
 `In Tehran, many Iranians said they didn’t see the point in voting in Friday’s first-round presidential election since all the candidates had been vetted by the government.`\
 https://nytimes.com/2024/06/30/world/middleeast/iran-election-president-voters.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/30/world/asia/the-boyfriend-netflix.html
 **Skirt Steak, Long Sunday**\
 `Under a drizzle of minted, parsleyed dressing punched up with capers and salted with feta, skirt steak with salsa verde is one of summer’s great feeds.`\
 https://nytimes.com/2024/06/30/dining/skirt-steak-recipe.html
-
-**Taliban Talks With U.N. Go On Despite Alarm Over Exclusion of Women**\
-`The meeting is the first between the Taliban and a United Nations-led conference of  global envoys who are seeking to engage the Afghan government on critical issues.`\
-https://nytimes.com/2024/06/30/world/middleeast/afghanistan-un-taliban-talks-women.html
 
