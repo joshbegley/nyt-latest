@@ -1,3 +1,15 @@
+**Biden’s Debate Performance Raises Alarm in Israel**\
+`Israelis expressed growing concern that President Biden’s shaky showing in the debate could spur on the country’s Middle Eastern foes at a critical time for American leadership in the region.`\
+https://nytimes.com/live/2024/06/30/world/israel-gaza-war-hamas
+
+**Israelis fear Iran and its proxies might try to exploit Biden’s apparent weakness.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/06/30/world/israel-gaza-war-hamas/israelis-fear-iran-and-its-proxies-might-try-to-exploit-bidens-apparent-weakness
+
+**At Least 18 People Killed in Multiple Suicide Bombings in Nigeria**\
+`Officials said that three female attackers had detonated explosive devices at a wedding and at a funeral in a city once ruled by Boko Haram. So far, no group has claimed responsibility.`\
+https://nytimes.com/2024/06/30/world/africa/suicide-bombings-nigeria.html
+
 **The Science of Dogs**\
 `We explore a boom in research into our furry friends.`\
 https://nytimes.com/2024/06/30/briefing/dogs-research.html
