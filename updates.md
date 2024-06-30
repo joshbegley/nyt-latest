@@ -1,3 +1,7 @@
+**Iranians Say Elections Bring Little Change, So Why Vote?**\
+`In Tehran, many Iranians said they didn’t see the point in voting in Friday’s first-round presidential election since all the candidates had been vetted by the government.`\
+https://nytimes.com/2024/06/30/world/middleeast/iran-election-president-voters.html
+
 **A Wave of Pride Lights Up New York City**\
 `The New York City Pride March, now in its 54th year, attracted tens of thousands in Manhattan. It was interrupted at one point by pro-Palestinian demonstrators.`\
 https://nytimes.com/2024/06/30/nyregion/nyc-pride-parade.html
