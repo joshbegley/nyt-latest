@@ -1,3 +1,7 @@
+**Monday Briefing: The French far right appeared to triumph**\
+`Also, Iran’s election heads to a runoff and Japanese researchers help robots smile.`\
+https://nytimes.com/2024/06/30/briefing/french-election-far-right.html
+
 **Nevada Residents Will Vote on Abortion Rights in November**\
 `A measure seeking to protect abortion access in the State Constitution will appear on the ballot. It is one of nearly a dozen such initiatives that could shape other races this election.`\
 https://nytimes.com/2024/06/30/us/nevada-abortion-rights-vote.html
