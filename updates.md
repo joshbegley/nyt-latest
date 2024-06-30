@@ -1,3 +1,7 @@
+**A Wave of Pride Lights Up New York City**\
+`The New York City Pride March, now in its 54th year, attracted tens of thousands in Manhattan. It was interrupted at one point by pro-Palestinian demonstrators.`\
+https://nytimes.com/2024/06/30/nyregion/nyc-pride-parade.html
+
 **Biden’s Family Tells Him to Keep Fighting as They Huddle at Camp David**\
 `President Biden is trying to figure out how to tamp down Democratic anxiety after last week’s disastrous debate performance.`\
 https://nytimes.com/2024/06/30/us/politics/biden-debate-anxious-democrats.html
