@@ -34,7 +34,7 @@ https://nytimes.com/2024/06/30/world/europe/russia-missile-strikes-ukraine-war.h
 `Organizers of a plan to adorn some trains with googly eyes said that if the trains could not be reliable, they could at least make commuters smile.`\
 https://nytimes.com/2024/06/30/us/boston-t-train-googly-eyes.html
 
-**Clyburn and Graham lead the Sunday show surrogate surge by spinning the debate.**\
-`By Maggie Astor`\
+**Democrats Roll Out a Post-Debate Playbook to Help Biden Recover**\
+`Surrogates on Sunday made the case for the president, who spent the weekend reassuring donors and supporters, with a message focused on his record and that of Donald J. Trump.`\
 https://nytimes.com/live/2024/06/30/us/biden-trump-election/clyburn-graham-cnn
 
