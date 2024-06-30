@@ -1,3 +1,7 @@
+**India Wins Cricket World Cup, Stamping Its Domination of the Sport**\
+`In India, cricket has become immensely profitable and a destination for the world’s best players. But a tournament victory had eluded it for many years.`\
+https://nytimes.com/2024/06/30/world/asia/india-wins-cricket-world-cup.html
+
 **48 Hours to Fix a 90-Minute Mess: Inside the Biden Camp’s Post-Debate Frenzy**\
 `With countless calls and a rush of campaign events, the president’s team began a damage-control effort to pressure and plead with anxious Democratic lawmakers, surrogates, activists and donors.`\
 https://nytimes.com/2024/06/30/us/politics/biden-campaign-debate-scramble.html

@@ -1,3 +1,7 @@
+**India Wins Cricket World Cup, Stamping Its Domination of the Sport**\
+`In India, cricket has become immensely profitable and a destination for the world’s best players. But a tournament victory had eluded it for many years.`\
+https://nytimes.com/2024/06/30/world/asia/india-wins-cricket-world-cup.html
+
 **48 Hours to Fix a 90-Minute Mess: Inside the Biden Camp’s Post-Debate Frenzy**\
 `With countless calls and a rush of campaign events, the president’s team began a damage-control effort to pressure and plead with anxious Democratic lawmakers, surrogates, activists and donors.`\
 https://nytimes.com/2024/06/30/us/politics/biden-campaign-debate-scramble.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/30/magazine/dementia-alzheimers-reminiscence-therapy
 **What Happened When an Orchestra Said Goodbye to All-Male Concerts**\
 `This season, the Deutsches Symphonie-Orchester Berlin experimented with programming works by female composers at every performance. Results were mixed.`\
 https://nytimes.com/2024/06/30/arts/music/deutsches-symphonie-orchester-berlin-women-composers.html
-
-**Anything Can Happen, and Usually Does, on ‘Watch What Happens Live’**\
-`With Andy Cohen, Hillary Clinton will do shots and Oscar-winners gush about reality stars — all savvy promotion for Bravo’s outrageous TV universe.`\
-https://nytimes.com/2024/06/30/arts/television/watch-what-happens-live-anniversary.html
 
