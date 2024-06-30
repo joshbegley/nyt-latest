@@ -1,3 +1,7 @@
+**Corrections: June 30, 2024**\
+`Corrections that appeared in print on Sunday, June 30, 2024.`\
+https://nytimes.com/2024/06/30/pageoneplus/corrections-june-30-2024.html
+
 **In the Basque Country, Muted Cheers for Spain’s Soccer Team**\
 `The region has long seen itself as distinct from its country and disinterested in the national team. Can a Euro 2024 squad studded with Basque stars turn heads?`\
 https://nytimes.com/2024/06/30/world/europe/euro-2024-spain-basque.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/29/us/ann-lurie-dead.html
 **The Vast Blur of a Trump Rally**\
 `No focus, no substance, no news.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/trump-rally-virginia
-
-**Biden’s debate cleanup tour starts at an L.G.B.T.Q. fund-raiser in Manhattan.**\
-`By Liam Stack and Olivia Bensimon`\
-https://nytimes.com/live/2024/06/29/us/biden-trump-election-debate/biden-lgbtq-fund-raiser
 
