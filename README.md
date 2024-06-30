@@ -1,3 +1,7 @@
+**The Science of Dogs**\
+`We explore a boom in research into our furry friends.`\
+https://nytimes.com/2024/06/30/briefing/dogs-research.html
+
 **This Isn’t All Joe Biden’s Fault**\
 `What is the Democratic Party for if not for dealing with a situation like this?`\
 https://nytimes.com/2024/06/30/opinion/biden-debate-convention.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/30/business/kevin-costner-horizon-box-office.html
 **What Does Anxiety Look Like? How Pixar Created the ‘Inside Out 2’ Villain**\
 `The breakout character was initially envisioned as a monster. But when the filmmakers saw it wasn’t working, they found their way to a softer antagonist.`\
 https://nytimes.com/2024/06/30/movies/inside-out-2-anxiety-character.html
-
-**Want to Be Trump’s Running Mate? Make Sure He Knows About Your Donors.**\
-`Vice-presidential hopefuls are posturing as part of a bid to highlight their ties to the rich.`\
-https://nytimes.com/2024/06/30/us/politics/trump-vice-president-donors.html
 
