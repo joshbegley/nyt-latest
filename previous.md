@@ -19,7 +19,7 @@ https://nytimes.com/2024/06/30/us/politics/biden-debate-trump-reaction.html
 https://nytimes.com/2024/06/30/world/europe/france-elections.html
 
 **A Wave of Pride Lights Up New York City**\
-`The New York City Pride March, now in its 54th year, attracted tens of thousands in Manhattan. It was interrupted at one point by pro-Palestinian demonstrators.`\
+`The New York City Pride March, now in its 54th year, attracted tens of thousands in Manhattan. It was interrupted by pro-Palestinian demonstrators.`\
 https://nytimes.com/2024/06/30/nyregion/nyc-pride-parade.html
 
 **Review: ‘Robeson’ Illuminates a Titanic Artist and Activist**\
