@@ -1,3 +1,7 @@
+**French Far Right Scores Big in a First Round of Voting, Polling Suggests**\
+`A surprise decision by the President Emmanuel Macron to hold a snap election appears to have backfired badly, giving the National Rally a decisive victory, early returns showed.`\
+https://nytimes.com/2024/06/30/world/europe/france-elections.html
+
 **A Wave of Pride Lights Up New York City**\
 `The New York City Pride March, now in its 54th year, attracted tens of thousands in Manhattan on Sunday.`\
 https://nytimes.com/2024/06/30/nyregion/nyc-pride-parade.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/30/us/biden-trump-election/clyburn-graham-cnn
 **Should Biden Heed Calls to Drop Out?**\
 `Readers offer a range of views after an editorial that called on the president to leave the race after his poor debate performance.`\
 https://nytimes.com/2024/06/30/opinion/joe-biden-election-campaign.html
-
-**The ‘Bad Debate’ Nonsense**\
-`Biden’s problems are far more serious than a single night’s poor performance.`\
-https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-debate-cognitive-decline
 
