@@ -1,40 +1,40 @@
+**48 Hours to Fix a 90-Minute Mess: Inside the Biden Camp’s Post-Debate Frenzy**\
+`With countless calls and a rush of campaign events, the president’s team began a damage-control effort to pressure and plead with anxious Democratic lawmakers, surrogates, activists and donors.`\
+https://nytimes.com/2024/06/30/us/politics/biden-campaign-debate-scramble.html
+
+**Costner’s Costly ‘Horizon’ Bites Box Office Dust**\
+`“Horizon: An American Saga — Chapter 1” was a distant third at theaters in North America this weekend, as “Inside Out 2” and “A Quiet Place: Day One” dominated.`\
+https://nytimes.com/2024/06/30/business/kevin-costner-horizon-box-office.html
+
+**What Does Anxiety Look Like? How Pixar Created the ‘Inside Out 2’ Villain**\
+`The breakout character was initially envisioned as a monster. But when the filmmakers saw it wasn’t working, they found their way to a softer antagonist.`\
+https://nytimes.com/2024/06/30/movies/inside-out-2-anxiety-character.html
+
+**Want to Be Trump’s Running Mate? Make Sure He Knows About Your Donors.**\
+`Vice-presidential hopefuls are posturing as part of a bid to highlight their ties to the rich.`\
+https://nytimes.com/2024/06/30/us/politics/trump-vice-president-donors.html
+
+**On the Jersey Shore, There’s a Flag for Everything**\
+`A Supreme Court justice’s political flag shined a light on a longstanding shore tradition of flying flags — so many flags — to celebrate colleges, sports teams and more.`\
+https://nytimes.com/2024/06/30/style/jersey-shore-flags.html
+
+**Quotation of the Day: For Emergency Abortion, Idaho Doctors Flew Her Away**\
+`Quotation of the Day for Sunday, June 30, 2024.`\
+https://nytimes.com/2024/06/30/pageoneplus/quotation-of-the-day-for-emergency-abortion-idaho-doctors-flew-her-away.html
+
+**The World’s Next Big Drag Queen Is Brazilian**\
+`Pabllo Vittar has become an A-list pop star and L.G.B.T.Q. activist in Brazil. Can she conquer the world?`\
+https://nytimes.com/2024/06/30/world/americas/the-worlds-next-big-drag-queen-is-brazilian.html
+
+**Racing to Retake a Beloved Trip, Before Dementia Takes Everything**\
+`My dad always remembered his childhood journey through Europe. Now, with Alzheimer’s claiming his memories, we tried to recreate it.`\
+https://nytimes.com/2024/06/30/magazine/dementia-alzheimers-reminiscence-therapy.html
+
+**What Happened When an Orchestra Said Goodbye to All-Male Concerts**\
+`This season, the Deutsches Symphonie-Orchester Berlin experimented with programming works by female composers at every performance. Results were mixed.`\
+https://nytimes.com/2024/06/30/arts/music/deutsches-symphonie-orchester-berlin-women-composers.html
+
 **Anything Can Happen, and Usually Does, on ‘Watch What Happens Live’**\
 `With Andy Cohen, Hillary Clinton will do shots and Oscar-winners gush about reality stars — all savvy promotion for Bravo’s outrageous TV universe.`\
 https://nytimes.com/2024/06/30/arts/television/watch-what-happens-live-anniversary.html
-
-**Jailhouse Correspondence Gives Bernie Madoff the ‘Final Word’**\
-`The journalist Richard Behar communicated extensively with the disgraced financier. His rigorous if irreverent book acknowledges his subject’s humanity.`\
-https://nytimes.com/2024/06/30/books/review/madoff-the-final-word-richard-behar.html
-
-**The Great Air-Conditioner Glow Up**\
-`As climate change brings hotter summers, AC manufacturers are positioning sleek window units as lifestyle accessories. Some of them are less effective than they are stylish.`\
-https://nytimes.com/2024/06/30/style/ac-unit-window-climate-change.html
-
-**4 Great Fictional Detectives**\
-`The books in this month’s column have something in common: unforgettable main characters.`\
-https://nytimes.com/2024/06/30/books/review/new-crime-novels.html
-
-**Four Takeaways From Iran’s Presidential Election**\
-`The results from Friday’s election, which drew record-low turnout for a presidential race, will force a runoff on July 5 between a reformist and an ultraconservative.`\
-https://nytimes.com/2024/06/30/world/middleeast/iran-election-takeaways.html
-
-**The Angst and the Joy of Celebrating Pride Month in a Small Town**\
-`In New York’s suburban and rural communities, where L.G.B.T.Q. people can feel more isolated, Pride events often hold special meaning.`\
-https://nytimes.com/2024/06/30/nyregion/small-town-pride-parades.html
-
-**‘He Talked About Wanting to Be a Doctor and Ate His Chopped Cheese’**\
-`Stopping for food in the Bronx, a windy day on Third Avenue and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2024/06/30/nyregion/metropolitan-diary.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/06/30/crosswords/spelling-bee-forum.html
-
-**Pattern of Brain Damage Is Pervasive in Navy SEALs Who Died by Suicide**\
-`A military lab found distinctive damage from repeated blast exposure in every brain it tested, but Navy SEAL leaders were kept in the dark about the pattern.`\
-https://nytimes.com/2024/06/30/us/navy-seals-brain-damage-suicide.html
-
-**How Science Went to the Dogs (and Cats)**\
-`Pets were once dismissed as trivial scientific subjects. Today, companion animal science is hot.`\
-https://nytimes.com/2024/06/30/science/pets-research-dogs-cats.html
 
