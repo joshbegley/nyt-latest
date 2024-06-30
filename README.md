@@ -1,3 +1,7 @@
+**Mildred Thornton Stahlman, Pioneer in Neonatal Care, Dies at 101**\
+`She developed one of the first modern intensive care units for premature babies, helping newborns to breathe with lifesaving new treatments.`\
+https://nytimes.com/2024/06/30/science/mildred-thornton-stahlman-dead.html
+
 **Wheel Rotator**\
 `Margi Stevenson makes her New York Times debut.`\
 https://nytimes.com/2024/06/30/crosswords/daily-puzzle-2024-07-01.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/30/world/israel-gaza-war-hamas/as-the-uns-relie
 **Nothing to See Here? White House Portrays Biden’s Debate Performance as a Blip**\
 `Critics of the approach say it risks making President Biden and his campaign seem woefully out of touch with the voters they need to win.`\
 https://nytimes.com/2024/06/30/us/politics/biden-debate-trump-reaction.html
-
-**French Far Right Wins Big in First Round of Voting, Polls Suggest**\
-`A surprise decision by President Emmanuel Macron to hold a snap election appears to have backfired badly, giving the National Rally a decisive victory, early projections showed.`\
-https://nytimes.com/2024/06/30/world/europe/france-elections.html
 
