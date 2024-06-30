@@ -1,3 +1,7 @@
+**Wheel Rotator**\
+`Margi Stevenson makes her New York Times debut.`\
+https://nytimes.com/2024/06/30/crosswords/daily-puzzle-2024-07-01.html
+
 **Chicken Soup for the Soul Entertainment Files for Bankruptcy**\
 `The parent company of Redbox, which rents movies through kiosks, filed for Chapter 11 bankruptcy protection on Friday.`\
 https://nytimes.com/2024/06/30/business/chicken-soup-for-soul-bankruptcy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/30/us/politics/biden-debate-trump-reaction.html
 **French Far Right Scores Big in a First Round of Voting, Polling Suggests**\
 `A surprise decision by President Emmanuel Macron to hold a snap election appears to have backfired badly, giving the National Rally a decisive victory, early returns showed.`\
 https://nytimes.com/2024/06/30/world/europe/france-elections.html
-
-**A Wave of Pride Lights Up New York City**\
-`The New York City Pride March, now in its 54th year, attracted tens of thousands in Manhattan. It was interrupted by pro-Palestinian demonstrators.`\
-https://nytimes.com/2024/06/30/nyregion/nyc-pride-parade.html
 
