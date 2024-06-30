@@ -1,3 +1,7 @@
+**French Far Right Wins Big in First Round of Voting, Polls Suggest**\
+`A surprise decision by President Emmanuel Macron to hold a snap election appears to have backfired badly, giving the National Rally a decisive victory, early projections showed.`\
+https://nytimes.com/2024/06/30/world/europe/france-elections.html
+
 **U.S. Said to Seek Boeing Guilty Plea to Avoid Trial in 737 Max Crashes**\
 `The Justice Department told victims’ families that it would propose a $243 million fine and three years of company oversight to settle a fraud charge.`\
 https://nytimes.com/2024/06/30/business/boeing-max-justice-department.html
