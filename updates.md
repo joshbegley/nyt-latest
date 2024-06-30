@@ -1,3 +1,7 @@
+**In the Basque Country, Muted Cheers for Spain’s Soccer Team**\
+`The region has long seen itself as distinct from its country and disinterested in the national team. Can a Euro 2024 squad studded with Basque stars turn heads?`\
+https://nytimes.com/2024/06/30/world/europe/euro-2024-spain-basque.html
+
 **France’s Snap Elections: What to Watch For**\
 `French voters are heading to the polls after President Emmanuel Macron called for unexpected parliamentary elections that could put the country on a new course.`\
 https://nytimes.com/2024/06/30/world/europe/france-election-what-to-watch.html
