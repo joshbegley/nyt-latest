@@ -1,3 +1,27 @@
+**The Angst and the Joy of Celebrating Pride Month in a Small Town**\
+`In New York’s suburban and rural communities, where L.G.B.T.Q. people can feel more isolated, Pride events often hold special meaning.`\
+https://nytimes.com/2024/06/30/nyregion/small-town-pride-parades.html
+
+**‘He Talked About Wanting to Be a Doctor and Ate His Chopped Cheese’**\
+`Stopping for food in the Bronx, a windy day on Third Avenue and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/06/30/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/30/crosswords/spelling-bee-forum.html
+
+**Pattern of Brain Damage Is Pervasive in Navy SEALs Who Died by Suicide**\
+`A military lab found distinctive damage from repeated blast exposure in every brain it tested, but Navy SEAL leaders were kept in the dark about the pattern.`\
+https://nytimes.com/2024/06/30/us/navy-seals-brain-damage-suicide.html
+
+**How Science Went to the Dogs (and Cats)**\
+`Pets were once dismissed as trivial scientific subjects. Today, companion animal science is hot.`\
+https://nytimes.com/2024/06/30/science/pets-research-dogs-cats.html
+
+**How Blast Waves Can Injure the Brain**\
+`A growing number of scientists suggest that troops are getting brain injuries from firing heavy weapons. An old party trick involving a beer bottle explains the physics of what happens when a blast wave hits the brain, and the damage it can cause.`\
+https://nytimes.com/video/us/100000009504123/how-blast-waves-can-injure-the-brain.html
+
 **Who Owns the ‘Victorious Youth’?**\
 `There is widespread agreement, even in museums, that questionable pieces in collections should be returned. But returned to whom?`\
 https://nytimes.com/2024/06/30/opinion/museum-statue-looted-culture.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/06/30/world/europe/euro-2024-spain-basque.html
 **France’s Snap Elections: What to Watch For**\
 `French voters are heading to the polls after President Emmanuel Macron called for unexpected parliamentary elections that could put the country on a new course.`\
 https://nytimes.com/2024/06/30/world/europe/france-election-what-to-watch.html
-
-**Mulling Reparations, California Sets Aside $12 Million as a Start**\
-`Direct cash payments are not imminent, but under the state’s new budget, the money could go toward other reparations-related proposals pending in the Legislature.`\
-https://nytimes.com/2024/06/29/us/california-budget-reparations.html
-
-**Misstated**\
-`Ginny Too’s crossword debut will unite us in merriment.`\
-https://nytimes.com/2024/06/29/crosswords/daily-puzzle-2024-06-30.html
-
-**Too Much Winning? Even Trump’s Fans Are Uneasy After Biden’s Weak Debate.**\
-`In Virginia, Donald Trump and his supporters reveled in the moment, and mused about a shadowy Democratic plan to shift candidates.`\
-https://nytimes.com/2024/06/29/us/politics/trump-youngkin-virginia-rally.html
-
-**Thousands protest in Israel, calling for Netanyahu’s ouster and the return of the hostages.**\
-`By Anjana Sankar`\
-https://nytimes.com/live/2024/06/29/world/israel-gaza-war-hamas/thousands-protest-in-israel-calling-for-netanyahus-ouster-and-the-return-of-the-hostages
-
-**Oklahoma Law Criminalizing Immigrants Without Legal Status Is Blocked**\
-`The ruling by a federal judge is the latest setback for G.O.P.-controlled states that have passed their own laws on immigration.`\
-https://nytimes.com/2024/06/29/us/oklahoma-immigration-law-judge.html
-
-**Ann Lurie, Nurse Who Became a Prominent Philanthropist, Is Dead at 79**\
-`A former hippie who chafed at wealth, she married a Chicago real estate titan and, after his death, donated hundreds of millions in her adopted city and beyond.`\
-https://nytimes.com/2024/06/29/us/ann-lurie-dead.html
 

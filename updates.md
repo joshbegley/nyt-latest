@@ -1,3 +1,27 @@
+**The Angst and the Joy of Celebrating Pride Month in a Small Town**\
+`In New York’s suburban and rural communities, where L.G.B.T.Q. people can feel more isolated, Pride events often hold special meaning.`\
+https://nytimes.com/2024/06/30/nyregion/small-town-pride-parades.html
+
+**‘He Talked About Wanting to Be a Doctor and Ate His Chopped Cheese’**\
+`Stopping for food in the Bronx, a windy day on Third Avenue and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/06/30/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/06/30/crosswords/spelling-bee-forum.html
+
+**Pattern of Brain Damage Is Pervasive in Navy SEALs Who Died by Suicide**\
+`A military lab found distinctive damage from repeated blast exposure in every brain it tested, but Navy SEAL leaders were kept in the dark about the pattern.`\
+https://nytimes.com/2024/06/30/us/navy-seals-brain-damage-suicide.html
+
+**How Science Went to the Dogs (and Cats)**\
+`Pets were once dismissed as trivial scientific subjects. Today, companion animal science is hot.`\
+https://nytimes.com/2024/06/30/science/pets-research-dogs-cats.html
+
+**How Blast Waves Can Injure the Brain**\
+`A growing number of scientists suggest that troops are getting brain injuries from firing heavy weapons. An old party trick involving a beer bottle explains the physics of what happens when a blast wave hits the brain, and the damage it can cause.`\
+https://nytimes.com/video/us/100000009504123/how-blast-waves-can-injure-the-brain.html
+
 **Who Owns the ‘Victorious Youth’?**\
 `There is widespread agreement, even in museums, that questionable pieces in collections should be returned. But returned to whom?`\
 https://nytimes.com/2024/06/30/opinion/museum-statue-looted-culture.html
