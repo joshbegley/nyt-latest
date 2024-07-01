@@ -1,3 +1,7 @@
+**Ozy Media Founder Takes the Stand to Deny Fraud Allegations**\
+`Carlos Watson was questioned after Ozy investors, former employees and bankers testified for the prosecution in his trial.`\
+https://nytimes.com/2024/07/01/business/media/ozy-media-carlos-watson-testimony.html
+
 **Clarence Thomas Raised Another Issue: Was Jack Smith Legally Appointed?**\
 `In his concurrence to the immunity decision, the justice questioned whether there was a legal basis for naming the special counsel — a topic also being explored by the judge in the documents case.`\
 https://nytimes.com/2024/07/01/us/politics/clarence-thomas-special-counsel-appointment.html

@@ -1,3 +1,7 @@
+**Ozy Media Founder Takes the Stand to Deny Fraud Allegations**\
+`Carlos Watson was questioned after Ozy investors, former employees and bankers testified for the prosecution in his trial.`\
+https://nytimes.com/2024/07/01/business/media/ozy-media-carlos-watson-testimony.html
+
 **Clarence Thomas Raised Another Issue: Was Jack Smith Legally Appointed?**\
 `In his concurrence to the immunity decision, the justice questioned whether there was a legal basis for naming the special counsel — a topic also being explored by the judge in the documents case.`\
 https://nytimes.com/2024/07/01/us/politics/clarence-thomas-special-counsel-appointment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/us/politics/trump-supreme-court-immunity.html
 **The Problem in Plain Sight**\
 `Voters worried about Biden’s age long before Washington Democrats were willing to talk about it.`\
 https://nytimes.com/2024/07/01/us/politics/biden-age-democrats.html
-
-**Biden Will Give Remarks on the Supreme Court’s Immunity Ruling**\
-`President Biden’s appearance will be closely watched after his debate performance in Atlanta raised questions about his acuity.`\
-https://nytimes.com/2024/07/01/us/politics/biden-address-trump-supreme-court.html
 
