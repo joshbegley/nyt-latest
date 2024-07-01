@@ -1,3 +1,7 @@
+**Doctors describe moving hundreds of patients from a hospital in the new evacuation zone.**\
+`By Ang Li and Ephrat Livni`\
+https://nytimes.com/live/2024/07/01/world/israel-gaza-war-hamas/doctors-describe-moving-hundreds-of-patients-from-a-hospital-in-the-new-evacuation-zone
+
 **Trump Amplifies Calls to Jail Top Elected Officials, Invokes Military Tribunals**\
 `A post that Mr. Trump circulated on Sunday called for Liz Cheney to be prosecuted by a military court reserved for enemy combatants and war criminals.`\
 https://nytimes.com/2024/07/01/us/politics/trump-liz-cheney-treason-jail.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/business/dealbook/barry-diller-paramount.html
 **Marathon Heat Wave Expected to Bake California Through Holiday Weekend**\
 `Across the state, the mercury is rising and may stay high for a week, if not longer.`\
 https://nytimes.com/2024/07/01/weather/heat-wave-california.html
-
-**Some Antidepressants May Cause More Weight Gain Than Others**\
-`A new study tracked weight changes associated with eight popular drugs.`\
-https://nytimes.com/2024/07/01/well/mind/antidepressants-weight-gain.html
 
