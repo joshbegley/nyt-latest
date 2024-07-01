@@ -1,3 +1,7 @@
+**Some Antidepressants May Cause More Weight Gain Than Others**\
+`A new study tracked weight changes associated with eight popular drugs.`\
+https://nytimes.com/2024/07/01/well/mind/antidepressants-weight-gain.html
+
 **Alert Level Raised at U.S. Bases in Europe Over Russian Threats**\
 `Officials said there was no specific intelligence about possible Russian attacks on American bases, but Moscow has made vague threats over Ukraine’s use of long-range weapons on its territory.`\
 https://nytimes.com/2024/07/01/us/politics/us-bases-alert-level-russia.html
