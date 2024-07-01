@@ -1,3 +1,15 @@
+**The Center Collapses in France, Leaving Macron Marooned**\
+`Squeezed by the far-right National Rally party and the left, President Emmanuel Macron faces a country that may prove ungovernable.`\
+https://nytimes.com/2024/07/01/world/europe/macron-election-national-rally.html
+
+**Chocolate Prices Have Spiked. Why Are Cocoa Farmers Still So Poor?**\
+`A destructive market dynamic discourages production.`\
+https://nytimes.com/2024/07/01/opinion/cocoa-farmers-chocolate-prices.html
+
+**What Post-Debate Polls Reveal About Replacing Biden**\
+`Which Democratic candidate would stand the best chance of winning a crucial group of voters over?`\
+https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-debate-polls
+
 **Jury Near Boston Deadlocks in Murder Case Against Karen Read**\
 `The jurors said they were “deeply divided” over whether Ms. Read killed her boyfriend, a Boston police officer, after a night out drinking.`\
 https://nytimes.com/2024/07/01/us/karen-read-murder-trial.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/01/dining/caesar-salad.html
 **A Guide to Ismail Kadare’s Books**\
 `Kadare received the inaugural International Booker Prize in 2005. In his books, the prolific Albanian author offered a window into the psychology of oppression. Here’s where to start.`\
 https://nytimes.com/2024/07/01/books/booksupdate/ismail-kadare-best-books-albania.html
-
-**Bannon Reports to Federal Prison After Conviction for Defying Congress**\
-`The Trump adviser was sentenced to four months for refusing to honor a subpoena from a committee investigating the Jan. 6 Capitol riot. He rallied supporters in his last minutes of freedom.`\
-https://nytimes.com/2024/07/01/nyregion/steve-bannon-prison-jan-6.html
-
-**Republicans Respond to Supreme Court Immunity Ruling With Triumph, and Democrats With Dismay**\
-`Republicans praised the ruling as a rejection of what they characterized as Democrats’ using the government against Mr. Trump for political purposes, while Democrats expressed fear for the future of American democracy.`\
-https://nytimes.com/2024/07/01/us/politics/trump-immunity-republicans-democrats-reaction.html
-
-**Why Beryl Is a Bad Sign for This Year’s Hurricane Season**\
-`The storm grew very quickly after it formed, reflecting hot ocean conditions that could bring more dangerous hurricanes.`\
-https://nytimes.com/2024/07/01/weather/hurricane-beryl-size.html
 
