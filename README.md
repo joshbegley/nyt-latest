@@ -1,3 +1,7 @@
+**Clarence Thomas Raised Another Issue: Was Jack Smith Legally Appointed?**\
+`In his concurrence to the immunity decision, the justice questioned whether there was a legal basis for naming the special counsel — a topic also being explored by the judge in the documents case.`\
+https://nytimes.com/2024/07/01/us/politics/clarence-thomas-special-counsel-appointment.html
+
 **Hurricane Beryl Hits the Caribbean**\
 `Hurricane Beryl made landfall on Monday bringing heavy rains, floods, and destruction across the Caribbean this week as a Category 4 storm.`\
 https://nytimes.com/video/world/100000009549802/beryl-hurricane.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/us/politics/biden-age-democrats.html
 **Biden Will Give Remarks on the Supreme Court’s Immunity Ruling**\
 `President Biden’s appearance will be closely watched after his debate performance in Atlanta raised questions about his acuity.`\
 https://nytimes.com/2024/07/01/us/politics/biden-address-trump-supreme-court.html
-
-**The Supreme Court Granted Trump Substantial Immunity**\
-`Also, the Biden campaign is scrambling to reassure donors. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2024/07/01/briefing/supreme-court-immunity-biden-campaign-donors.html
 
