@@ -1,3 +1,7 @@
+**Vehement Dissent From Supreme Court’s Liberal Wing Laments Vast Expansion of Presidential Power**\
+`The three Democratic appointees railed against the ruling that former President Donald J. Trump has some immunity for his official actions, declaring that their colleagues had made the president into “a king above the law.”`\
+https://nytimes.com/2024/07/01/us/politics/supreme-court-liberals-presidential-immunity.html
+
 **Thomas and Alito took part in the case, despite calls for their recusal.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/07/01/us/trump-immunity-supreme-court/thomas-and-alito-took-part-in-the-case-despite-calls-for-their-recusal
