@@ -1,3 +1,7 @@
+**Word of the Day: corroboration**\
+`This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/07/01/learning/word-of-the-day-corroboration.html
+
 **Wordle Review No. 1,108, July 1, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/01/crosswords/wordle-review-1108.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/01/upshot/pandemic-children-school-perfo
 **‘Interview With the Vampire’: Ben Daniels on That Bloody Season 2 Finale**\
 `“He has an energy that’s fun to hate,” the British actor said of his swaggering vampire character in AMC’s series-length Anne Rice adaptation.`\
 https://nytimes.com/2024/06/30/arts/television/interview-with-the-vampire-ben-daniels.html
-
-**‘House of the Dragon’ Season 2, Episode 3 Recap: Let’s Talk**\
-`Rhaenyra acts on a risky hope that cooler heads might prevail. But are there really any cool heads left?`\
-https://nytimes.com/2024/06/30/arts/television/house-of-the-dragon-recap-episode-3.html
 
