@@ -1,3 +1,7 @@
+**Hunter Biden Sues Fox News Over a Series That Included His Nude Photos**\
+`The president’s son has argued that the network violated a New York law by showing the explicit images without his permission.`\
+https://nytimes.com/2024/07/01/business/media/hunter-biden-fox-lawsuit.html
+
 **We Counted 22,252 Cars to See How Much Congestion Pricing Might Have Made This Morning**\
 `A year’s worth of tolls is hard to picture. But what about an hour’s worth?`\
 https://nytimes.com/interactive/2024/07/01/upshot/congestion-pricing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/us/karen-read-murder-trial.html
 **Trump Sentencing Recommendation Is Expected From Manhattan D.A.**\
 `District Attorney Alvin L. Bragg’s submission may remain confidential until the judge levies his punishment on July 11.`\
 https://nytimes.com/2024/07/01/nyregion/trump-sentence-hush-money.html
-
-**The Trump Decision Reveals Deep Rot in the System**\
-`Instead of delivering a judgment many months ago and allowing the trial to proceed, the justices gave Trump the gift of delay piled upon delay.`\
-https://nytimes.com/2024/07/01/opinion/supreme-court-trump-immunity.html
 
