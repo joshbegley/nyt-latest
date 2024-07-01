@@ -1,3 +1,7 @@
+**Chinese Rocket Accidentally Launches During Test, Then Crashes**\
+`The commercial company Space Pioneer said the accident occurred because of a structural failure in the connection between the rocket and its testing platform.`\
+https://nytimes.com/2024/07/01/world/asia/china-rocket-launch-crash.html
+
 **France’s Far Right Makes Big Gains in First Round of Voting**\
 `France’s National Rally leader Marine Le Pen asked voters for an “absolute majority” as her party appeared to hold a strong lead during the first round of snap elections.`\
 https://nytimes.com/video/world/europe/100000009548810/france-election-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/learning/word-of-the-day-corroboration.html
 **Wordle Review No. 1,108, July 1, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/01/crosswords/wordle-review-1108.html
-
-**What’s on TV This Week: Shark Week and Macy’s Firework Show**\
-`Discovery airs its annual lineup of ocean terrors. And NBC airs the annual firework show in New York City.`\
-https://nytimes.com/2024/07/01/arts/television/whats-on-tv-this-week-shark-week-and-macys-firework-show.html
 

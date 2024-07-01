@@ -1,3 +1,7 @@
+**Chinese Rocket Accidentally Launches During Test, Then Crashes**\
+`The commercial company Space Pioneer said the accident occurred because of a structural failure in the connection between the rocket and its testing platform.`\
+https://nytimes.com/2024/07/01/world/asia/china-rocket-launch-crash.html
+
 **France’s Far Right Makes Big Gains in First Round of Voting**\
 `France’s National Rally leader Marine Le Pen asked voters for an “absolute majority” as her party appeared to hold a strong lead during the first round of snap elections.`\
 https://nytimes.com/video/world/europe/100000009548810/france-election-takeaways.html
