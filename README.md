@@ -1,3 +1,7 @@
+**For South Africa’s Cabinet, Bigger May Not Mean Better**\
+`To accommodate a broad and diverse alliance of parties, President Cyril Ramaphosa increased the size of his executive team. Now the challenge is getting a diverse group of politicians to agree.`\
+https://nytimes.com/2024/07/01/world/africa/south-africa-largest-cabinet-cyril-ramaphosa.html
+
 **Read the Supreme Court’s Ruling on Immunity**\
 `The court rules that former presidents have absolute immunity for core constitutional powers, and are also entitled to at least a presumption of immunity for official acts.`\
 https://nytimes.com/interactive/2024/07/01/us/scotus-immunity.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/01/us/trump-immunity-supreme-court/heres-what-t
 **Here’s the latest on the ruling.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/07/01/us/trump-immunity-supreme-court/heres-the-latest-on-the-remaining-day-of-the-courts-term
-
-**Here’s a look inside the Supreme Court.**\
-`By Abbie VanSickle and Amir Hamja`\
-https://nytimes.com/live/2024/07/01/us/trump-immunity-supreme-court/heres-a-look-inside-the-supreme-court
 
