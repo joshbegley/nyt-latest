@@ -1,3 +1,11 @@
+**Ruling Further Slows Trump Election Case but Opens Door to Airing of Evidence**\
+`The Supreme Court’s immunity decision directed the trial court to hold hearings on what portions of the indictment can survive — a possible chance for prosecutors to set out their case in public before Election Day.`\
+https://nytimes.com/2024/07/01/us/politics/supreme-court-immunity-trump-jan-6.html
+
+**How to Get Voters the Facts They Need Without a Trump Jan. 6 Trial**\
+`An evidentiary hearing in federal court could lay out previously undisclosed information.`\
+https://nytimes.com/2024/07/01/opinion/supreme-court-immunity-trump.html
+
 **Here’s How to Avoid Hating Your Wedding Photos**\
 `A series of TikTok videos about a bride’s dissatisfaction with her photos spurred online discussions, with pros offering advice on how to hire a photographer.`\
 https://nytimes.com/2024/07/01/style/sepia-bride-tiktok-wedding-photography.html
