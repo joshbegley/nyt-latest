@@ -1,3 +1,15 @@
+**National Portrait Gallery Buys Dolley Madison Photo for $456,000**\
+`The portrait of the first lady, which was likely taken in 1846, will be part of an exhibition for the nation’s semiquincentennial.`\
+https://nytimes.com/2024/07/01/arts/design/dolley-madison-photo-national-portrait-gallery.html
+
+**Anticipation and Family Members of Some Justices Filled the Court for the Momentous Decision**\
+`The final day of the current Supreme Court term included some of the most eagerly awaited decisions.`\
+https://nytimes.com/2024/07/01/us/politics/supreme-court-justice-family-immunity.html
+
+**The Supreme Court Helps Trump — and Future Presidents — Dodge Accountability**\
+`The rule of law is perhaps entirely in the hands of the American people.`\
+https://nytimes.com/2024/06/25/opinion/trump-immunity-ruling-scotus.html
+
 **Flash Flooding After New Mexico Wildfires Highlights Climate Risks**\
 `Flooding in Ruidoso, N.M., over the weekend showed how wildfire damage, worsening under climate change, can put people at even greater risk than the fires themselves.`\
 https://nytimes.com/2024/07/01/climate/new-mexico-fire-floods.html
