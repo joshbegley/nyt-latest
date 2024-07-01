@@ -1,3 +1,11 @@
+**Meta’s Ad-Free Subscription Violates Competition Law, E.U. Says**\
+`Regulators said the subscription service introduced last year is a “pay or consent” method to collect personal data and bolster advertising.`\
+https://nytimes.com/2024/07/01/business/eu-meta-facebook-instagram-ads-privacy.html
+
+**‘Starlight Express’ Review: The Gravy Train Rolls On**\
+`Nostalgia will undoubtedly lure many to a London revival of the Andrew Lloyd Webber musical. It has more in common with a theme park than with theater, our critic writes.`\
+https://nytimes.com/2024/07/01/theater/starlight-express-review-london.html
+
 **Inside California’s New Budget of Nearly $300 Billion**\
 `The budget includes $12 million for reparations measures for the state’s Black residents.`\
 https://nytimes.com/2024/07/01/us/california-budget.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/01/arts/music/shania-twain-glastonbury.html
 **The Week After the Debate**\
 `Where does President Biden’s campaign go from here?`\
 https://nytimes.com/2024/07/01/briefing/biden-campaign-debate.html
-
-**Far Right’s Surge in France Lays Bare Deep Divisions**\
-`Many expressed shock that Marine Le Pen’s nationalist party was so close to power after the first round of a snap election.`\
-https://nytimes.com/2024/07/01/world/europe/france-snap-election-reaction.html
-
-**Ismail Kadare, Whose Novels Brought Albania’s Plight to the World, Dies at 88**\
-`He was compared to Orwell and Kafka, and walked a political tightrope with works of veiled criticism for his totalitarian state.`\
-https://nytimes.com/2024/07/01/obituaries/ismail-kadare-dead.html
 
