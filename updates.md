@@ -1,3 +1,7 @@
+**France’s Far Right Makes Big Gains in First Round of Voting**\
+`France’s National Rally leader Marine Le Pen asked voters for an “absolute majority” as her party appeared to hold a strong lead during the first round of snap elections.`\
+https://nytimes.com/video/world/europe/100000009548810/france-election-takeaways.html
+
 **One Neighborhood’s ‘Bizarre Culture War’ Over Bike Lanes**\
 `A kerfuffle erupts over sharing the street in Queens, New York, where new bike lanes have replaced some parking spaces in residential areas.`\
 https://nytimes.com/2024/07/01/nyregion/street-wars-bike-lanes-queens.html

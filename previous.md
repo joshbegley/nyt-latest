@@ -1,3 +1,7 @@
+**France’s Far Right Makes Big Gains in First Round of Voting**\
+`France’s National Rally leader Marine Le Pen asked voters for an “absolute majority” as her party appeared to hold a strong lead during the first round of snap elections.`\
+https://nytimes.com/video/world/europe/100000009548810/france-election-takeaways.html
+
 **One Neighborhood’s ‘Bizarre Culture War’ Over Bike Lanes**\
 `A kerfuffle erupts over sharing the street in Queens, New York, where new bike lanes have replaced some parking spaces in residential areas.`\
 https://nytimes.com/2024/07/01/nyregion/street-wars-bike-lanes-queens.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/crosswords/wordle-review-1108.html
 **What’s on TV This Week: Shark Week and Macy’s Firework Show**\
 `Discovery airs its annual lineup of ocean terrors. And NBC airs the annual firework show in New York City.`\
 https://nytimes.com/2024/07/01/arts/television/whats-on-tv-this-week-shark-week-and-macys-firework-show.html
-
-**Boeing Agrees to Buy Spirit AeroSystems, a Longtime Supplier**\
-`The multibillion-dollar deal will reverse a decision the plane maker made two decades ago to outsource production of key parts to independent suppliers.`\
-https://nytimes.com/2024/07/01/business/boeing-spirit-aerosystems-acquisition.html
 
