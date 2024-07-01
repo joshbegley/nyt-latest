@@ -1,3 +1,7 @@
+**Vehement Dissent From Supreme Court’s Liberal Wing Laments Vast Expansion of Presidential Power**\
+`The three Democratic appointees railed against the ruling that former President Donald J. Trump has some immunity for his official actions, declaring that their colleagues had made the president into “a king above the law.”`\
+https://nytimes.com/2024/07/01/us/politics/supreme-court-liberals-presidential-immunity.html
+
 **USA Today’s Top Editor Abruptly Steps Down**\
 `Terence Samuel, a veteran journalist, had been in the role for a year.`\
 https://nytimes.com/2024/07/01/business/media/usa-today-terence-samuel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/dining/summer-ground-turkey-recipe.html
 **Supreme Court Says Trump Is Partly Shielded From Prosecution**\
 `The practical effect of the ruling raises the likelihood of further delay of the case against the former president on charges of plotting to subvert the 2020 election.`\
 https://nytimes.com/2024/07/01/us/politics/supreme-court-trump-immunity.html
-
-**For South Africa’s Cabinet, Bigger May Not Mean Better**\
-`To accommodate a broad and diverse alliance of parties, President Cyril Ramaphosa increased the size of his executive team. Now the challenge is getting a diverse group of politicians to agree.`\
-https://nytimes.com/2024/07/01/world/africa/south-africa-largest-cabinet-cyril-ramaphosa.html
 
