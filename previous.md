@@ -1,8 +1,12 @@
+**Ukraine Says It Foiled Another Russian Plot to Topple the Government**\
+`While the viability of the plan was not immediately clear, officials said it was a reminder that the Kremlin remained determined to bring down President Volodymyr Zelensky.`\
+https://nytimes.com/2024/07/01/world/europe/ukraine-coup-plot.html
+
 **In taking up Trump’s immunity claim, the Supreme Court bolstered his delay strategy.**\
 `By Alan Feuer`\
 https://nytimes.com/live/2024/07/01/us/trump-immunity-supreme-court/in-taking-up-trumps-immunity-claim-the-supreme-court-bolstered-his-delay-strategy
 
-**Stephen K. Bannon Plans to Record His Podcast, Then Report to Prison**\
+**Stephen K. Bannon Plans to Record His Podcast and Then Report to Prison**\
 `The recording will be his last for four months, but the longtime adviser to Donald J. Trump has no intention of surrendering his influence.`\
 https://nytimes.com/2024/07/01/us/politics/stephen-k-bannon-plans-to-record-his-podcast-then-report-to-prison.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/us/california-budget.html
 **Wordle Review No. 1,109, July 2, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/01/crosswords/wordle-review-1109.html
-
-**What Will Biden Donors Do Now?**\
-`Some wealthy supporters have offered positive assessments of the president after his disastrous debate, but others worry that the ticket is on the path to defeat.`\
-https://nytimes.com/2024/07/01/business/dealbook/democratic-donors-biden-trump.html
 
