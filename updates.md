@@ -1,3 +1,11 @@
+**Young Thug’s Gang Trial Is Paused Because of Judge’s Secret Meeting**\
+`The much-delayed case was halted indefinitely to determine whether the judge should recuse himself after meeting with an uncooperative witness.`\
+https://nytimes.com/2024/07/01/arts/music/young-thug-ysl-gang-trial-paused.html
+
+**Here’s What to Know About France’s Snap Election**\
+`The far-right National Rally won big in the first round of voting. Just how big will not be clear until after runoffs are held on July 7.`\
+https://nytimes.com/2024/07/01/world/europe/france-election-national-rally.html
+
 **Ruling Further Slows Trump Election Case but Opens Door to Airing of Evidence**\
 `The Supreme Court’s immunity decision directed the trial court to hold hearings on what portions of the indictment can survive — a possible chance for prosecutors to set out their case in public before Election Day.`\
 https://nytimes.com/2024/07/01/us/politics/supreme-court-immunity-trump-jan-6.html
