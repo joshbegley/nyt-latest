@@ -6,7 +6,7 @@ https://nytimes.com/2024/07/01/climate/new-mexico-fire-floods.html
 `The final day of the current Supreme Court term included some of the most eagerly awaited decisions.`\
 https://nytimes.com/2024/07/01/us/politics/anticipation-and-family-members-of-some-justices-filled-the-court-for-the-momentous-decision.html
 
-**The Supreme Court Shields Trump — and Future Presidents — From Accountability**\
+**The Supreme Court Helps Trump — and Future Presidents — Dodge Accountability**\
 `The rule of law is perhaps entirely in the hands of the American people.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/trump-immunity-ruling-scotus
 
