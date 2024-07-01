@@ -1,3 +1,7 @@
+**Hurricane Beryl Flattens Grenada’s Carriacou Island**\
+`Officials said the Category 4 storm caused “extreme” damage there and on the neighboring island of Petite Martinique as it made landfall Monday.`\
+https://nytimes.com/2024/07/01/world/americas/hurricane-beryl-grenada-carriacou.html
+
 **Tuesday Briefing: Top Court Gives Trump Significant Immunity**\
 `Plus, what’s next for France.`\
 https://nytimes.com/2024/07/01/briefing/supreme-court-immunity-donald-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/us/elections/polls-president-michigan.html
 **Election 2024 Polls: Georgia**\
 `Our polling averages track the latest trends in the presidential race, using data from national and battleground state polls.`\
 https://nytimes.com/interactive/2024/us/elections/polls-president-georgia.html
-
-**Shay Youngblood, Influential Black Author and Playwright, Dies at 64**\
-`She wrote memorably about her upbringing by a circle of maternal elders and the life lessons they imparted, and of her yearning for the mother she lost.`\
-https://nytimes.com/2024/07/01/books/shay-youngblood-dead.html
 
