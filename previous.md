@@ -1,3 +1,7 @@
+**A Perfect Summertime Recipe for Ground Turkey**\
+`Cybelle Tondu’s new recipe for turkey, shiitake and cashew lettuce cups is full of soy and oyster sauce-y notes, with sweet hoisin sauce for dipping.`\
+https://nytimes.com/2024/07/01/dining/summer-ground-turkey-recipe.html
+
 **Supreme Court Says Trump Is Partly Shielded From Prosecution**\
 `The practical effect of the ruling raises the possibility of further delay of the case against the former president on charges of plotting to subvert the 2020 election.`\
 https://nytimes.com/2024/07/01/us/politics/supreme-court-trump-immunity.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/01/us/trump-immunity-supreme-court/in-taking-up
 **Stephen Bannon Plans to Record His Podcast and Then Report to Prison**\
 `The recording will be his last for four months, but the longtime adviser to Donald J. Trump has no intention of surrendering his influence.`\
 https://nytimes.com/2024/07/01/us/politics/stephen-k-bannon-plans-to-record-his-podcast-then-report-to-prison.html
-
-**Here’s what the court has previously said about presidential immunity.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2024/07/01/us/trump-immunity-supreme-court/heres-what-the-court-has-previously-said-about-presidential-immunity
 
