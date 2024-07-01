@@ -11,7 +11,7 @@ https://nytimes.com/2024/06/30/arts/television/house-of-the-dragon-recap-episode
 https://nytimes.com/2024/06/30/nyregion/utica-police-teen-shooting.html
 
 **Soma Golden Behr, 84, Dies; Inspired Enterprising Journalism at The Times**\
-`The first woman to serve as the paper’s national editor, she focused on issues of race, class and poverty and rose to assistant managing editor.`\
+`The first woman to serve as the paper’s national editor, she focused on issues of race, class and poverty and rose to the newsroom’s top echelon.`\
 https://nytimes.com/2024/06/30/business/media/soma-golden-behr-dead.html
 
 **Small Plane With 5 Aboard Crashes in Rural Upstate New York**\
