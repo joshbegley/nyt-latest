@@ -1,3 +1,7 @@
+**Here’s what we know about Palestinians detained in Israel.**\
+`By Aaron Boxerman and Myra Noveck`\
+https://nytimes.com/live/2024/07/01/world/israel-gaza-war-hamas/heres-what-we-know-about-palestinians-detained-in-israel
+
 **Vehement Dissent From Supreme Court’s Liberal Wing Laments Vast Expansion of Presidential Power**\
 `The three Democratic appointees railed against the ruling that former President Donald J. Trump has some immunity for his official actions, declaring that their colleagues had made the president into “a king above the law.”`\
 https://nytimes.com/2024/07/01/us/politics/supreme-court-liberals-presidential-immunity.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/us/politics/biden-campaign-donors-debate.html
 **A Perfect Summertime Recipe for Ground Turkey**\
 `Cybelle Tondu’s new recipe for turkey, shiitake and cashew lettuce cups is full of soy and oyster sauce-y notes, with sweet hoisin sauce for dipping.`\
 https://nytimes.com/2024/07/01/dining/summer-ground-turkey-recipe.html
-
-**Supreme Court Says Trump Is Partly Shielded From Prosecution**\
-`The practical effect of the ruling raises the likelihood of further delay of the case against the former president on charges of plotting to subvert the 2020 election.`\
-https://nytimes.com/2024/07/01/us/politics/supreme-court-trump-immunity.html
 
