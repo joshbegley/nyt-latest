@@ -1,3 +1,11 @@
+**In taking up Trump’s immunity claim, the Supreme Court bolstered his delay strategy.**\
+`By Alan Feuer`\
+https://nytimes.com/live/2024/07/01/us/trump-immunity-supreme-court/in-taking-up-trumps-immunity-claim-the-supreme-court-bolstered-his-delay-strategy
+
+**Stephen K. Bannon Plans to Record His Podcast, Then Report to Prison**\
+`The recording will be his last for four months, but the longtime adviser to Donald J. Trump has no intention of surrendering his influence.`\
+https://nytimes.com/2024/07/01/us/politics/stephen-k-bannon-plans-to-record-his-podcast-then-report-to-prison.html
+
 **Here’s what the court has previously said about presidential immunity.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/07/01/us/trump-immunity-supreme-court/heres-what-the-court-has-previously-said-about-presidential-immunity
