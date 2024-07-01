@@ -1,3 +1,7 @@
+**Tropical Storm Chris Forms Off Eastern Mexico**\
+`The tropical cyclone, the third named storm in the Atlantic season, was expected to weaken quickly after making landfall early Monday.`\
+https://nytimes.com/2024/07/01/weather/tropical-storm-chris-forms-off-eastern-mexico.html
+
 **Four Takeaways From France’s Snap Election**\
 `It was a big day for the far-right National Rally. Just how big will not be clear until a second round of voting is over.`\
 https://nytimes.com/2024/07/01/world/europe/france-election-takeaways.html
