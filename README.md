@@ -1,3 +1,7 @@
+**The Trump Decision Reveals Deep Rot in the System**\
+`Instead of delivering a judgment many months ago and allowing the trial to proceed, the justices gave Trump the gift of delay piled upon delay.`\
+https://nytimes.com/2024/07/01/opinion/supreme-court-trump-immunity.html
+
 **Contentious Court Rulings: Immunity, Regulation and the Homeless**\
 `Readers discuss some of the major decisions at the end of the court’s term.`\
 https://nytimes.com/2024/07/01/opinion/letters/supreme-court-immunity-regulation-homeless.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/arts/design/dolley-madison-photo-national-portrai
 **Flash Flooding After New Mexico Wildfires Highlights Climate Risks**\
 `Flooding in Ruidoso, N.M., over the weekend showed how wildfire damage, worsening under climate change, can put people at even greater risk than the fires themselves.`\
 https://nytimes.com/2024/07/01/climate/new-mexico-fire-floods.html
-
-**Anticipation and Family Members of Some Justices Filled the Court for the Momentous Decision**\
-`The final day of the current Supreme Court term included some of the most eagerly awaited decisions.`\
-https://nytimes.com/2024/07/01/us/politics/supreme-court-justice-family-immunity.html
 
