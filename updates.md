@@ -1,3 +1,7 @@
+**The Trump Decision Reveals Deep Rot in the System**\
+`Instead of delivering a judgment many months ago and allowing the trial to proceed, the justices gave Trump the gift of delay piled upon delay.`\
+https://nytimes.com/2024/07/01/opinion/supreme-court-trump-immunity.html
+
 **Contentious Court Rulings: Immunity, Regulation and the Homeless**\
 `Readers discuss some of the major decisions at the end of the court’s term.`\
 https://nytimes.com/2024/07/01/opinion/letters/supreme-court-immunity-regulation-homeless.html
