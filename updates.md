@@ -1,3 +1,11 @@
+**‘Interview With the Vampire’: Ben Daniels on That Bloody Season 2 Finale**\
+`“He has an energy that’s fun to hate,” the British actor said of his swaggering vampire character in AMC’s series-length Anne Rice adaptation.`\
+https://nytimes.com/2024/06/30/arts/television/interview-with-the-vampire-ben-daniels.html
+
+**Soma Golden Behr, Longtime Senior Editor at The Times, Dies at 84**\
+`She was the first woman to serve as the paper’s national editor. She rose to assistant managing editor, generating ideas for prizewinning articles.`\
+https://nytimes.com/2024/06/30/business/media/soma-golden-behr-dead.html
+
 **‘House of the Dragon’ Season 2, Episode 3 Recap: Let’s Talk**\
 `Rhaenyra acts on a risky hope that cooler heads might prevail. But are there really any cool heads left?`\
 https://nytimes.com/2024/06/30/arts/television/house-of-the-dragon-recap-episode-3.html

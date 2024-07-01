@@ -1,3 +1,7 @@
+**‘Interview With the Vampire’: Ben Daniels on That Bloody Season 2 Finale**\
+`“He has an energy that’s fun to hate,” the British actor said of his swaggering vampire character in AMC’s series-length Anne Rice adaptation.`\
+https://nytimes.com/2024/06/30/arts/television/interview-with-the-vampire-ben-daniels.html
+
 **‘House of the Dragon’ Season 2, Episode 3 Recap: Let’s Talk**\
 `Rhaenyra acts on a risky hope that cooler heads might prevail. But are there really any cool heads left?`\
 https://nytimes.com/2024/06/30/arts/television/house-of-the-dragon-recap-episode-3.html
@@ -7,7 +11,7 @@ https://nytimes.com/2024/06/30/arts/television/house-of-the-dragon-recap-episode
 https://nytimes.com/2024/06/30/nyregion/utica-police-teen-shooting.html
 
 **Soma Golden Behr, Longtime Senior Editor at The Times, Dies at 84**\
-`She was the first woman to serve as the paper’s national editor, and she rose to assistant managing editor, generating ideas for prizewinning articles.`\
+`She was the first woman to serve as the paper’s national editor. She rose to assistant managing editor, generating ideas for prizewinning articles.`\
 https://nytimes.com/2024/06/30/business/media/soma-golden-behr-dead.html
 
 **Small Plane With 5 Aboard Crashes in Rural Upstate New York**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/30/briefing/french-election-far-right.html
 **Nevada Residents Will Vote on Abortion Rights in November**\
 `A measure seeking to protect abortion access in the State Constitution will appear on the ballot. It is one of nearly a dozen such initiatives that could shape other races this election.`\
 https://nytimes.com/2024/06/30/us/nevada-abortion-rights-vote.html
-
-**U.S. Said to Seek Boeing Guilty Plea to Avoid Trial in 737 Max Crashes**\
-`The Justice Department told victims’ families that it would propose a nearly $244 million fine and three years of company oversight to settle a fraud charge.`\
-https://nytimes.com/2024/06/30/business/boeing-max-justice-department.html
 
