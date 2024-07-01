@@ -1,3 +1,7 @@
+**Some Antidepressants May Cause More Weight Gain Than Others**\
+`A new study tracked weight changes associated with eight popular drugs.`\
+https://nytimes.com/2024/07/01/well/mind/antidepressants-weight-gain.html
+
 **Alert Level Raised at U.S. Bases in Europe Over Russian Threats**\
 `Officials said there was no specific intelligence about possible Russian attacks on American bases, but Moscow has made vague threats over Ukraine’s use of long-range weapons on its territory.`\
 https://nytimes.com/2024/07/01/us/politics/us-bases-alert-level-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/opinion/supreme-court-presidential-immunity-trump
 **Female Suicide Bombers: A Terrorist Group’s Hidden Weapon**\
 `Suicide bombers killed at least 32 people in three attacks in a Nigerian city once controlled by Boko Haram. Women, said experts, are more likely to go unnoticed when carrying out terrorist attacks.`\
 https://nytimes.com/2024/07/01/world/africa/nigeria-female-suicide-bombers.html
-
-**In a Staring Contest With Democratic Voters, Joe Biden Hasn’t Blinked**\
-`Around Mr. Biden, a siege mentality has set in post-debate, one at odds with the persistent concerns of voters who view him as too old to be effective.`\
-https://nytimes.com/2024/07/01/us/politics/biden-debate-performance.html
 
