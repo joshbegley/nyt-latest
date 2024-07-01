@@ -10,8 +10,8 @@ https://nytimes.com/2024/06/30/arts/television/house-of-the-dragon-recap-episode
 `An officer in Utica, N.Y., fatally shot the boy, Nyah Mway, after he brandished what the officer believed was a gun. At a community meeting, residents called the killing “an injustice.”`\
 https://nytimes.com/2024/06/30/nyregion/utica-police-teen-shooting.html
 
-**Soma Golden Behr, Longtime Senior Editor at The Times, Dies at 84**\
-`She was the first woman to serve as the paper’s national editor. She rose to assistant managing editor, generating ideas for prizewinning articles.`\
+**Soma Golden Behr, 84, Dies; Inspired Enterprising Journalism at The Times**\
+`The first woman to serve as the paper’s national editor, she focused on issues of race, class and poverty in rising to assistant managing editor.`\
 https://nytimes.com/2024/06/30/business/media/soma-golden-behr-dead.html
 
 **Small Plane With 5 Aboard Crashes in Rural Upstate New York**\
