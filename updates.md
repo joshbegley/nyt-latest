@@ -1,3 +1,7 @@
+**As Inflation Soars, Myanmar Shop Owners Are Jailed for Hiking Wages**\
+`Myanmar’s junta, facing a growing popular rebellion, has plunged the country into economic crisis, reversing gains from a decade of civilian leadership.`\
+https://nytimes.com/2024/07/01/world/asia/myanmar-junta-inflation-arrests.html
+
 **Word of the Day: corroboration**\
 `This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/07/01/learning/word-of-the-day-corroboration.html

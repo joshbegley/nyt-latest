@@ -1,3 +1,7 @@
+**As Inflation Soars, Myanmar Shop Owners Are Jailed for Hiking Wages**\
+`Myanmar’s junta, facing a growing popular rebellion, has plunged the country into economic crisis, reversing gains from a decade of civilian leadership.`\
+https://nytimes.com/2024/07/01/world/asia/myanmar-junta-inflation-arrests.html
+
 **Word of the Day: corroboration**\
 `This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/07/01/learning/word-of-the-day-corroboration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/business/china-cash-for-clunkers.html
 **The Youngest Pandemic Children Are Now in School, and Struggling**\
 `Teachers this year saw the effects of the pandemic’s stress and isolation on young students: Some can barely speak, sit still or even hold a pencil.`\
 https://nytimes.com/interactive/2024/07/01/upshot/pandemic-children-school-performance.html
-
-**‘Interview With the Vampire’: Ben Daniels on That Bloody Season 2 Finale**\
-`“He has an energy that’s fun to hate,” the British actor said of his swaggering vampire character in AMC’s series-length Anne Rice adaptation.`\
-https://nytimes.com/2024/06/30/arts/television/interview-with-the-vampire-ben-daniels.html
 
