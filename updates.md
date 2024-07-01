@@ -1,3 +1,7 @@
+**Soma Golden Behr, 84, Dies; Inspired Enterprising Journalism at The Times**\
+`The first woman to serve as the paper’s national editor, she focused on issues of race, class and poverty and rose to assistant managing editor.`\
+https://nytimes.com/2024/06/30/business/media/soma-golden-behr-dead.html
+
 **‘Interview With the Vampire’: Ben Daniels on That Bloody Season 2 Finale**\
 `“He has an energy that’s fun to hate,” the British actor said of his swaggering vampire character in AMC’s series-length Anne Rice adaptation.`\
 https://nytimes.com/2024/06/30/arts/television/interview-with-the-vampire-ben-daniels.html
