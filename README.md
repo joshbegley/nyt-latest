@@ -3,7 +3,7 @@
 https://nytimes.com/2024/07/01/world/asia/china-rocket-launch-crash.html
 
 **France’s Far Right Makes Big Gains in First Round of Voting**\
-`France’s National Rally leader Marine Le Pen asked voters for an “absolute majority” as her party appeared to hold a strong lead during the first round of snap elections.`\
+`France’s National Rally leader Marine Le Pen asked voters for an “absolute majority” as her party held a strong lead during the first round of snap elections.`\
 https://nytimes.com/video/world/europe/100000009548810/france-election-takeaways.html
 
 **One Neighborhood’s ‘Bizarre Culture War’ Over Bike Lanes**\
