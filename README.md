@@ -8,7 +8,7 @@ https://nytimes.com/2024/07/01/arts/music/shania-twain-glastonbury.html
 
 **The Week After the Debate**\
 `Where does President Biden’s campaign go from here?`\
-https://nytimes.com/2024/07/01/briefing/the-week-after-the-debate.html
+https://nytimes.com/2024/07/01/briefing/biden-campaign-debate.html
 
 **Far Right’s Surge in France Lays Bare Deep Divisions**\
 `Many expressed shock that Marine Le Pen’s nationalist party was so close to power after the first round of a snap election.`\
