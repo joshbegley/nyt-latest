@@ -1,7 +1,3 @@
-**A Major Part of Biden’s Student Loan Repayment Plan Is Restored**\
-`Federal appellate judges ruled that the Biden administration’s new student loan repayment plan could continue to operate as legal challenges to the program work their way through the courts.`\
-https://nytimes.com/2024/07/01/business/save-student-loan-biden.html
-
 **The Supreme Court Gives a Free Pass to Trump and Future Presidents**\
 `In a step toward monarchy, the bedrock principle that presidents are not above the law has been set aside.`\
 https://nytimes.com/2024/07/01/opinion/supreme-court-presidential-immunity-trump.html
@@ -37,4 +33,8 @@ https://nytimes.com/interactive/2024/us/elections/polls-president-wisconsin.html
 **Election 2024 Polls: Pennsylvania**\
 `See the latest election polls and polling averages for Pennsylvania.`\
 https://nytimes.com/interactive/2024/us/elections/polls-president-pennsylvania.html
+
+**Election 2024 Polls: North Carolina**\
+`See the latest election polls and polling averages for North Carolina.`\
+https://nytimes.com/interactive/2024/us/elections/polls-president-north-carolina.html
 
