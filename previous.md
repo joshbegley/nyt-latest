@@ -1,3 +1,15 @@
+**House Republicans Sue Garland for Audio of Biden Interviews With Special Counsel**\
+`The lawsuit aims to force the release of recordings of the president’s conversation with an investigator who concluded he was a “well-meaning, elderly man with a poor memory” and “diminished faculties.”`\
+https://nytimes.com/2024/07/01/us/politics/house-republicans-garland-biden-audio.html
+
+**Chinese Rocket Accidentally Launches and Crashes During Test**\
+`Videos posted by Chinese news media and on social media appeared to show the rocket climbing before it lost power and plunged, exploding in a nearby hill.`\
+https://nytimes.com/video/world/asia/100000009549779/china-rocket-launch-crash.html
+
+**Highlights of the Supreme Court Ruling on Presidential Immunity**\
+`Key excerpts from the decision reveal how the court’s conservative majority views the power of the nation’s leader.`\
+https://nytimes.com/2024/07/01/us/politics/supreme-court-immunity-ruling-highlights.html
+
 **The Center Collapses in France, Leaving Macron Marooned**\
 `Squeezed by the far-right National Rally party and the left, President Emmanuel Macron faces a country that may prove ungovernable.`\
 https://nytimes.com/2024/07/01/world/europe/macron-election-national-rally.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/01/opinion/supreme-court-trump-immunity.html
 **Contentious Court Rulings: Immunity, Regulation and the Homeless**\
 `Readers discuss some of the major decisions at the end of the court’s term.`\
 https://nytimes.com/2024/07/01/opinion/letters/supreme-court-immunity-regulation-homeless.html
-
-**Debris Found in North Carolina Came From SpaceX Dragon, NASA Says**\
-`An object found on a hiking trail west of Asheville, N.C., had traveled to the International Space Station, the space agency said.`\
-https://nytimes.com/2024/07/01/science/space-debris-north-carolina-spacex.html
-
-**The Century-Long Saga of the Caesar Salad**\
-`The world-famous salad is the pride of Tijuana, Mexico. But 100 years later, no one can agree on who created it.`\
-https://nytimes.com/2024/07/01/dining/caesar-salad.html
-
-**A Guide to Ismail Kadare’s Books**\
-`Kadare received the inaugural International Booker Prize in 2005. In his books, the prolific Albanian author offered a window into the psychology of oppression. Here’s where to start.`\
-https://nytimes.com/2024/07/01/books/booksupdate/ismail-kadare-best-books-albania.html
 
