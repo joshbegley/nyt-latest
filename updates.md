@@ -1,3 +1,7 @@
+**Soma Golden Behr, Longtime Senior Editor at The Times, Dies at 84**\
+`She was the first woman to serve as the paper’s national editor, and she rose to assistant managing editor, generating ideas for prizewinning articles.`\
+https://nytimes.com/2024/06/30/business/media/soma-golden-behr-dead.html
+
 **Utica Residents Grill Mayor After Police Killing of 13-Year-Old Boy**\
 `An officer in Utica, N.Y., fatally shot the boy, Nyah Mway, after he brandished what the officer believed was a gun. At a community meeting, residents called the killing “an injustice.”`\
 https://nytimes.com/2024/06/30/nyregion/utica-police-teen-shooting.html

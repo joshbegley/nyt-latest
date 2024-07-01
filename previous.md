@@ -4,7 +4,7 @@ https://nytimes.com/2024/06/30/nyregion/utica-police-teen-shooting.html
 
 **Soma Golden Behr, Longtime Senior Editor at The Times, Dies at 84**\
 `She was the first woman to serve as the paper’s national editor, and she rose to assistant managing editor, generating ideas for prizewinning articles.`\
-https://nytimes.com/2024/06/30/obituaries/soma-golden-behr-dead.html
+https://nytimes.com/2024/06/30/business/media/soma-golden-behr-dead.html
 
 **Small Plane With 5 Aboard Crashes in Rural Upstate New York**\
 `The plane crashed around 2 p.m. on Sunday in Delaware County, N.Y., the Federal Aviation Administration said. Multiple crews were searching for the aircraft.`\
