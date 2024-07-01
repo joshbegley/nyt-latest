@@ -1,3 +1,15 @@
+**Flash Flooding After New Mexico Wildfires Highlights Climate Risks**\
+`Flooding in Ruidoso, N.M., over the weekend showed how wildfire damage, worsening under climate change, can put people at even greater risk than the fires themselves.`\
+https://nytimes.com/2024/07/01/climate/new-mexico-fire-floods.html
+
+**Anticipation and Family Members of Some Justices Filled the Court for the Momentous Decision**\
+`The final day of the current Supreme Court term included some of the most eagerly awaited decisions.`\
+https://nytimes.com/2024/07/01/us/politics/anticipation-and-family-members-of-some-justices-filled-the-court-for-the-momentous-decision.html
+
+**The Supreme Court Shields Trump — and Future Presidents — From Accountability**\
+`The rule of law is perhaps entirely in the hands of the American people.`\
+https://nytimes.com/live/2024/06/25/opinion/thepoint/trump-immunity-ruling-scotus
+
 **Trump Organization Signs Up to Put Its Brand on a New Saudi Tower**\
 `The residential high-rise tower in Jeddah is the latest of several developments that the former president’s company has planned for the Middle East.`\
 https://nytimes.com/2024/07/01/us/politics/trump-organization-saudi-arabia-tower.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/01/us/trump-immunity-supreme-court/thomas-and-a
 **‘It’s a Cuban Thing’: Menendez’s Sister Says Their Parents Also Hid Cash**\
 `Senator Robert Menendez’s sister testified that their father stored cash in a grandfather clock in Havana, Cuba.`\
 https://nytimes.com/2024/07/01/nyregion/robert-menendez-bribery-trial-cash-gold.html
-
-**This Is Not Jill Biden’s Problem to Solve**\
-`It’s noteworthy and arguably sexist that the women in his life are supposed to clean house here.`\
-https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-step-down-jill-biden
-
-**Car Plows Into Pedestrians in South Korea, Killing Nine**\
-`The deadly crash occurred near a busy intersection in front of city hall in central Seoul.`\
-https://nytimes.com/2024/07/01/world/asia/seoul-korea-accident.html
-
-**Biden Campaign Will Try to Reassure Big Donors**\
-`President Biden’s top campaign official is scheduled to hold a crucial call on Monday to convince donors that the president can beat former President Donald J. Trump.`\
-https://nytimes.com/2024/07/01/us/politics/biden-campaign-donors-debate.html
 
