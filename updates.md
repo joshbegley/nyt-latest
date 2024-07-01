@@ -1,3 +1,7 @@
+**Review: ‘Dämon: El Funeral de Bergman’ Brings Electricity to Avignon**\
+`The Spanish director and performer Angélica Liddell elicited a standing ovation at the Avignon Festival in spite of her attacks on critics.`\
+https://nytimes.com/2024/07/01/theater/review-liddell-avignon-festival.html
+
 **A Culture War Erupted Over U.K. Stately Homes. Who Won?**\
 `A battle over the history of Britain’s prized country houses offers a window into the national mood before a pivotal election.`\
 https://nytimes.com/2024/07/01/world/europe/uk-national-trust.html
