@@ -1,3 +1,15 @@
+**Israel Frees Gaza Hospital Chief Held Without Charges for 7 Months**\
+`Rights groups denounced the detention of Al-Shifa Hospital’s director and thousands of other Gazans without trial, while Israeli leaders faulted his release as a government failure.`\
+https://nytimes.com/2024/07/01/world/middleeast/gaza-israel-shifa-hospital.html
+
+**France’s Far Right Is Bad. But Not as Hypocritical as MAGA.**\
+`They share anti-immigrant prejudices, but not all the same policy priorities.`\
+https://nytimes.com/2024/07/01/opinion/france-election-macron-maga.html
+
+**How Did the Debate Affect the Race? Quality Polls Are Not Yet Available**\
+`Some surveys indicate a slight dip for President Biden, but too few have been released to provide a sharp picture of the post-debate national mood.`\
+https://nytimes.com/2024/07/01/us/elections/debate-polls-biden-trump.html
+
 **Ozy Media Founder Takes the Stand to Deny Fraud Allegations**\
 `Carlos Watson was questioned after Ozy investors, former employees and bankers testified for the prosecution in his trial.`\
 https://nytimes.com/2024/07/01/business/media/ozy-media-carlos-watson-testimony.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/01/well/mind/antidepressants-weight-gain.html
 **Alert Level Raised at U.S. Bases in Europe Over Russian Threats**\
 `Officials said there was no specific intelligence about possible Russian attacks on American bases, but Moscow has made vague threats over Ukraine’s use of long-range weapons on its territory.`\
 https://nytimes.com/2024/07/01/us/politics/us-bases-alert-level-russia.html
-
-**Giuliani Seeks to Alter Bankruptcy to Speed Asset Sale but Keep Future Income**\
-`The former New York mayor and Trump lawyer asked a bankruptcy court to shift from a Chapter 11 filing to a Chapter 7 filing under which his assets would be sold by a trustee.`\
-https://nytimes.com/2024/07/01/us/politics/giuliani-bankruptcy-court-creditors.html
-
-**What the Supreme Court’s Immunity Decision Means for Trump**\
-`The decision most likely delays Donald Trump’s Jan. 6 case past the election, and if he wins in November, people close to him expect the Justice Department to drop the charges.`\
-https://nytimes.com/2024/07/01/us/politics/trump-supreme-court-immunity.html
-
-**The Problem in Plain Sight**\
-`Voters worried about Biden’s age long before Washington Democrats were willing to talk about it.`\
-https://nytimes.com/2024/07/01/us/politics/biden-age-democrats.html
 
