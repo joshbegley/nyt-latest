@@ -1,3 +1,11 @@
+**Ruling Further Slows Trump Election Case but Opens Door to Airing of Evidence**\
+`The Supreme Court’s immunity decision directed the trial court to hold hearings on what portions of the indictment can survive — a possible chance for prosecutors to set out their case in public before Election Day.`\
+https://nytimes.com/2024/07/01/us/politics/supreme-court-immunity-trump-jan-6.html
+
+**How to Get Voters the Facts They Need Without a Trump Jan. 6 Trial**\
+`An evidentiary hearing in federal court could lay out previously undisclosed information.`\
+https://nytimes.com/2024/07/01/opinion/supreme-court-immunity-trump.html
+
 **Here’s How to Avoid Hating Your Wedding Photos**\
 `A series of TikTok videos about a bride’s dissatisfaction with her photos spurred online discussions, with pros offering advice on how to hire a photographer.`\
 https://nytimes.com/2024/07/01/style/sepia-bride-tiktok-wedding-photography.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/01/us/politics/supreme-court-immunity-ruling-highlig
 **The Center Collapses in France, Leaving Macron Marooned**\
 `Squeezed by the far-right National Rally party and the left, President Emmanuel Macron faces a country that may prove ungovernable.`\
 https://nytimes.com/2024/07/01/world/europe/macron-election-national-rally.html
-
-**Chocolate Prices Have Spiked. Why Are Cocoa Farmers Still So Poor?**\
-`A destructive market dynamic discourages production.`\
-https://nytimes.com/2024/07/01/opinion/cocoa-farmers-chocolate-prices.html
-
-**What Post-Debate Polls Reveal About Replacing Biden**\
-`Which Democratic candidate would stand the best chance of winning a crucial group of voters over?`\
-https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-debate-polls
 
