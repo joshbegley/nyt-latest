@@ -1,3 +1,11 @@
+**Supreme Court Says Trump Is Partly Shielded From Prosecution**\
+`The practical effect of the ruling raises the possibility of further delay of the case against the former president on charges of plotting to subvert the 2020 election.`\
+https://nytimes.com/2024/07/01/us/politics/supreme-court-trump-immunity.html
+
+**For South Africa’s Cabinet, Bigger May Not Mean Better**\
+`To accommodate a broad and diverse alliance of parties, President Cyril Ramaphosa increased the size of his executive team. Now the challenge is getting a diverse group of politicians to agree.`\
+https://nytimes.com/2024/07/01/world/africa/south-africa-largest-cabinet-cyril-ramaphosa.html
+
 **Stephen Bannon Plans to Record His Podcast and Then Report to Prison**\
 `The recording will be his last for four months, but the longtime adviser to Donald J. Trump has no intention of surrendering his influence.`\
 https://nytimes.com/2024/07/01/us/politics/stephen-k-bannon-plans-to-record-his-podcast-then-report-to-prison.html

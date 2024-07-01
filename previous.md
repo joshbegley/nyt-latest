@@ -1,3 +1,11 @@
+**Supreme Court Says Trump Is Partly Shielded From Prosecution**\
+`The practical effect of the ruling raises the possibility of further delay of the case against the former president on charges of plotting to subvert the 2020 election.`\
+https://nytimes.com/2024/07/01/us/politics/supreme-court-trump-immunity.html
+
+**For South Africa’s Cabinet, Bigger May Not Mean Better**\
+`To accommodate a broad and diverse alliance of parties, President Cyril Ramaphosa increased the size of his executive team. Now the challenge is getting a diverse group of politicians to agree.`\
+https://nytimes.com/2024/07/01/world/africa/south-africa-largest-cabinet-cyril-ramaphosa.html
+
 **Read the Supreme Court’s Ruling on Immunity**\
 `The court rules that former presidents have absolute immunity for core constitutional powers, and are also entitled to at least a presumption of immunity for official acts.`\
 https://nytimes.com/interactive/2024/07/01/us/scotus-immunity.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/01/us/politics/stephen-k-bannon-plans-to-record-his-
 **Here’s what the court has previously said about presidential immunity.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/07/01/us/trump-immunity-supreme-court/heres-what-the-court-has-previously-said-about-presidential-immunity
-
-**Here’s the latest on the ruling.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2024/07/01/us/trump-immunity-supreme-court/heres-the-latest-on-the-remaining-day-of-the-courts-term
-
-**Here’s a look inside the Supreme Court.**\
-`By Abbie VanSickle and Amir Hamja`\
-https://nytimes.com/live/2024/07/01/us/trump-immunity-supreme-court/heres-a-look-inside-the-supreme-court
 
