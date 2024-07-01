@@ -1,3 +1,7 @@
+**Marathon Heat Wave Expected to Bake Parts of the West Through Holiday Weekend**\
+`Across interior California, the mercury is rising and may stay high for a week, if not longer.`\
+https://nytimes.com/2024/07/01/weather/heat-wave-california.html
+
 **Some Antidepressants May Cause More Weight Gain Than Others**\
 `A new study tracked weight changes associated with eight popular drugs.`\
 https://nytimes.com/2024/07/01/well/mind/antidepressants-weight-gain.html
