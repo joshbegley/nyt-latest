@@ -1,3 +1,7 @@
+**The Connections Companion No. 387, July 2, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/01/crosswords/connections-companion-387.html
+
 **Review: ‘Dämon: El Funeral de Bergman’ Brings Electricity to Avignon**\
 `The Spanish director and performer Angélica Liddell elicited a standing ovation at the Avignon Festival in spite of her attacks on critics.`\
 https://nytimes.com/2024/07/01/theater/review-liddell-avignon-festival.html

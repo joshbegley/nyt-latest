@@ -1,3 +1,11 @@
+**Trump Awaits Immunity Ruling, and the French Far Right Wins Big**\
+`Plus, Hurricane Beryl threatens the Caribbean.`\
+https://nytimes.com/2024/07/01/podcasts/supreme-court-immunity-france-election.html
+
+**Will Biden Withdraw?**\
+`Democratic worries about the president’s age have surged after Thursday’s debate.`\
+https://nytimes.com/2024/07/01/podcasts/the-daily/biden-debate.html
+
 **The Connections Companion No. 387, July 2, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/01/crosswords/connections-companion-387.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/06/25/opinion/thepoint/tipsheet-biden-trump
 **Bill Maher: Why I Want an Open Convention**\
 `An open convention wouldn’t be a disaster for the Democrats. It might even help them win.`\
 https://nytimes.com/2024/07/01/opinion/bill-maher-open-convention.html
-
-**The Road to a Crisis: How Democrats Let Biden Glide to Renomination**\
-`An 81-year-old candidate and no Plan B. “How did we get here?” one leading Democrat asks. The answer is complicated.`\
-https://nytimes.com/2024/07/01/us/politics/biden-democrats-renomination.html
-
-**Will One Bad Debate Night Mean One Bad Election Day?**\
-`Americans are owed better from the Democratic Party.`\
-https://nytimes.com/2024/07/01/opinion/biden-debate-trump-election.html
 
