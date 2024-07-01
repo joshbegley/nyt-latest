@@ -1,3 +1,7 @@
+**Inside California’s New Budget of Nearly $300 Billion**\
+`The budget includes $12 million for reparations measures for the state’s Black residents.`\
+https://nytimes.com/2024/07/01/us/california-budget.html
+
 **Wordle Review No. 1,109, July 2, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/01/crosswords/wordle-review-1109.html

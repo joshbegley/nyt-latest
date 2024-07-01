@@ -1,3 +1,7 @@
+**Inside California’s New Budget of Nearly $300 Billion**\
+`The budget includes $12 million for reparations measures for the state’s Black residents.`\
+https://nytimes.com/2024/07/01/us/california-budget.html
+
 **Wordle Review No. 1,109, July 2, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/01/crosswords/wordle-review-1109.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/world/europe/france-snap-election-reaction.html
 **Ismail Kadare, Whose Novels Brought Albania’s Plight to the World, Dies at 88**\
 `He was compared to Orwell and Kafka, and walked a political tightrope with works of veiled criticism for his totalitarian state.`\
 https://nytimes.com/2024/07/01/obituaries/ismail-kadare-dead.html
-
-**Trump Awaits Immunity Ruling, and the French Far Right Wins Big**\
-`Plus, Hurricane Beryl threatens the Caribbean.`\
-https://nytimes.com/2024/07/01/podcasts/supreme-court-immunity-france-election.html
 
