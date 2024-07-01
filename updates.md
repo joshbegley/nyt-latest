@@ -1,3 +1,7 @@
+**Here’s what we know about Palestinians detained in Israel.**\
+`By Aaron Boxerman and Myra Noveck`\
+https://nytimes.com/live/2024/07/01/world/israel-gaza-war-hamas/heres-what-we-know-about-palestinians-detained-in-israel
+
 **Vehement Dissent From Supreme Court’s Liberal Wing Laments Vast Expansion of Presidential Power**\
 `The three Democratic appointees railed against the ruling that former President Donald J. Trump has some immunity for his official actions, declaring that their colleagues had made the president into “a king above the law.”`\
 https://nytimes.com/2024/07/01/us/politics/supreme-court-liberals-presidential-immunity.html
