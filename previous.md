@@ -1,3 +1,7 @@
+**Biden Campaign Will Try to Reassure Big Donors**\
+`President Biden’s top campaign official is scheduled to hold a crucial call on Monday to convince donors that the president can beat former President Donald J. Trump.`\
+https://nytimes.com/2024/07/01/us/politics/biden-campaign-donors-debate.html
+
 **A Perfect Summertime Recipe for Ground Turkey**\
 `Cybelle Tondu’s new recipe for turkey, shiitake and cashew lettuce cups is full of soy and oyster sauce-y notes, with sweet hoisin sauce for dipping.`\
 https://nytimes.com/2024/07/01/dining/summer-ground-turkey-recipe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/world/europe/ukraine-coup-plot.html
 **In taking up Trump’s immunity claim, the Supreme Court bolstered his delay strategy.**\
 `By Alan Feuer`\
 https://nytimes.com/live/2024/07/01/us/trump-immunity-supreme-court/in-taking-up-trumps-immunity-claim-the-supreme-court-bolstered-his-delay-strategy
-
-**Stephen Bannon Plans to Record His Podcast and Then Report to Prison**\
-`The recording will be his last for four months, but the longtime adviser to Donald J. Trump has no intention of surrendering his influence.`\
-https://nytimes.com/2024/07/01/us/politics/stephen-k-bannon-plans-to-record-his-podcast-then-report-to-prison.html
 
