@@ -1,3 +1,7 @@
+**Tropical Storm Chris Makes Landfall in Eastern Mexico**\
+`The tropical cyclone, the third named storm in the Atlantic season, was expected to dissipate on Monday.`\
+https://nytimes.com/2024/07/01/weather/tropical-storm-chris-mexico.html
+
 **Wordle Review No. 1,108, July 1, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/01/crosswords/wordle-review-1108.html

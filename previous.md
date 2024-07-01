@@ -14,8 +14,8 @@ https://nytimes.com/2024/07/01/business/boeing-spirit-aerosystems-acquisition.ht
 `Elections in France and Iran.`\
 https://nytimes.com/2024/07/01/briefing/france-iran-election-biden.html
 
-**Tropical Storm Chris Forms Off Eastern Mexico**\
-`The tropical cyclone, the third named storm in the Atlantic season, was expected to weaken quickly after making landfall early Monday.`\
+**Tropical Storm Chris Makes Landfall in Eastern Mexico**\
+`The tropical cyclone, the third named storm in the Atlantic season, was expected to dissipate on Monday.`\
 https://nytimes.com/2024/07/01/weather/tropical-storm-chris-mexico.html
 
 **Four Takeaways From France’s Snap Election**\
