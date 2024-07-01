@@ -1,3 +1,19 @@
+**A Culture War Erupted Over U.K. Stately Homes. Who Won?**\
+`A battle over the history of Britain’s prized country houses offers a window into the national mood before a pivotal election.`\
+https://nytimes.com/2024/07/01/world/europe/uk-national-trust.html
+
+**Signs of Life Appear in TV Show Purchases**\
+`Netflix and Amazon are driving a small bump in the market for TV shows after a major slowdown.`\
+https://nytimes.com/2024/07/01/business/media/netflix-amazon-tv-show-purchases.html
+
+**What Drives Trump Also Limits Him**\
+`Mr. Trump keeps being the person we know — statically supported by somewhere between 44 and 49 percent of people on any given day, with or without enthusiasm.`\
+https://nytimes.com/2024/07/01/opinion/donald-trump-limits.html
+
+**How Can I Stay Cool and Look Chic in the Heat?**\
+`As temperatures rise, a reader wonders how to dress for sweaty summers while maintaining a sense of style.`\
+https://nytimes.com/2024/07/01/style/heat-fashion-hot-weather.html
+
 **A Crucial Week Ahead for Trump’s Case and Biden’s Future**\
 `The president is still in the race. The picture of what voters think about that may become clearer this week.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/tipsheet-biden-trump
@@ -21,20 +37,4 @@ https://nytimes.com/2024/07/01/opinion/july-4-fireworks-america.html
 **At 94, June Squibb Is Scaling the Box Office in ‘Thelma’ and ‘Inside Out 2’**\
 `Still ambitious, she’s also starring in Scarlett Johansson’s directing debut. “I have always had this sense that I am going to get what I wanted.”`\
 https://nytimes.com/2024/07/01/movies/june-squibb-inside-out-2-thelma.html
-
-**Brooke Shields Has Worn Many Hats. Now She’s a Labor Boss.**\
-`The model-turned-actress-turned-businesswoman is the new president of Actors’ Equity. In an interview, she explained what she’s doing there.`\
-https://nytimes.com/2024/07/01/theater/brooke-shields-actors-equity.html
-
-**6 Beaches to Love This July 4 (and All Summer Long)**\
-`From Hawaii to Rhode Island, here are some of our favorite shores on which to enjoy some hard-earned R & R this Independence Day holiday.`\
-https://nytimes.com/2024/07/01/travel/beach-summer-vacation-travel.html
-
-**The Best Movies and TV Shows Coming to Disney+, Max, Hulu, Apple TV+ and More in July**\
-`“Sausage Party: Foodtopia,” “Lady in the Lake,” “Love Lies Bleeding” and “Those About to Die” arrive, and “Snowpiercer” returns.`\
-https://nytimes.com/2024/07/01/arts/july-streaming-movies-tv-shows.html
-
-**A.I. ‘Friend’ for Public School Students Falls Flat**\
-`Los Angeles schools hired a start-up to build an A.I. chatbot for parents and students. A few months later, the company collapsed.`\
-https://nytimes.com/2024/07/01/us/ai-chatbot-los-angeles-schools.html
 
