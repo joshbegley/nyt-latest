@@ -1,3 +1,7 @@
+**Trump Amplifies Calls to Jail Top Elected Officials, Invokes Military Tribunals**\
+`A post that Mr. Trump circulated on Sunday called for Liz Cheney to be prosecuted by a military court reserved for enemy combatants and war criminals.`\
+https://nytimes.com/2024/07/01/us/politics/trump-liz-cheney-treason-jail.html
+
 **Israel Frees Gaza Hospital Chief Held Without Charges for 7 Months**\
 `Rights groups denounced the detention of Al-Shifa Hospital’s director and thousands of other Gazans without trial, while Israeli leaders faulted his release as a government failure.`\
 https://nytimes.com/2024/07/01/world/middleeast/gaza-israel-shifa-hospital.html
