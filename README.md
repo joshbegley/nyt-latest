@@ -1,3 +1,7 @@
+**Car Plows Into Pedestrians in South Korea, Killing Nine**\
+`The deadly crash occurred near a busy intersection in front of city hall in central Seoul.`\
+https://nytimes.com/2024/07/01/world/asia/seoul-korea-accident.html
+
 **Biden Campaign Will Try to Reassure Big Donors**\
 `President Biden’s top campaign official is scheduled to hold a crucial call on Monday to convince donors that the president can beat former President Donald J. Trump.`\
 https://nytimes.com/2024/07/01/us/politics/biden-campaign-donors-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/us/supreme-court-statute-limitations.html
 **Ukraine Says It Foiled Another Russian Plot to Topple the Government**\
 `While the viability of the plan was not immediately clear, officials said it was a reminder that the Kremlin remained determined to bring down President Volodymyr Zelensky.`\
 https://nytimes.com/2024/07/01/world/europe/ukraine-coup-plot.html
-
-**In taking up Trump’s immunity claim, the Supreme Court bolstered his delay strategy.**\
-`By Alan Feuer`\
-https://nytimes.com/live/2024/07/01/us/trump-immunity-supreme-court/in-taking-up-trumps-immunity-claim-the-supreme-court-bolstered-his-delay-strategy
 
