@@ -1,3 +1,7 @@
+**The Week After the Debate**\
+`Where does President Biden’s campaign go from here?`\
+https://nytimes.com/2024/07/01/briefing/the-week-after-the-debate.html
+
 **Far Right’s Surge in France Lays Bare Deep Divisions**\
 `Many expressed shock that Marine Le Pen’s nationalist party was so close to power after the first round of a snap election.`\
 https://nytimes.com/2024/07/01/world/europe/france-snap-election-reaction.html
