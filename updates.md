@@ -1,3 +1,7 @@
+**‘It’s a Cuban Thing’: Menendez’s Sister Says Their Parents Also Hid Cash**\
+`Senator Robert Menendez’s sister testified that their father stored cash in a grandfather clock in Havana, Cuba.`\
+https://nytimes.com/2024/07/01/nyregion/robert-menendez-bribery-trial-cash-gold.html
+
 **Why Is This Jill Biden’s Fault?**\
 `It’s noteworthy and arguably sexist that the women in his life are supposed to clean house here.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-step-down-jill-biden
