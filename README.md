@@ -1,3 +1,7 @@
+**The Connections Companion No. 387, July 2, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/01/crosswords/connections-companion-387.html
+
 **Review: ‘Dämon: El Funeral de Bergman’ Brings Electricity to Avignon**\
 `The Spanish director and performer Angélica Liddell elicited a standing ovation at the Avignon Festival in spite of her attacks on critics.`\
 https://nytimes.com/2024/07/01/theater/review-liddell-avignon-festival.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/us/politics/biden-democrats-renomination.html
 **Will One Bad Debate Night Mean One Bad Election Day?**\
 `Americans are owed better from the Democratic Party.`\
 https://nytimes.com/2024/07/01/opinion/biden-debate-trump-election.html
-
-**Want to Do Something Patriotic This Year? Ditch the Fireworks.**\
-`It would be so easy to find a new and less harmful way to celebrate the founding of a nation.`\
-https://nytimes.com/2024/07/01/opinion/july-4-fireworks-america.html
 
