@@ -1,3 +1,7 @@
+**Biden’s New Post-Debate Ad: ‘When You Get Knocked Down, You Get Back Up’**\
+`The ad doesn’t show footage of the president’s halting debate showing, focusing instead on his energetic appearance at a rally the next day.`\
+https://nytimes.com/2024/07/01/us/politics/biden-debate-ad.html
+
 **Shania Twain, Officially a ‘Legend’**\
 `The Glastonbury Festival’s coveted “Legend’s Slot,” at 3:45 p.m. Sunday, was hers and she said she was ready for the “most extraordinary party of my career.”`\
 https://nytimes.com/2024/07/01/arts/music/shania-twain-glastonbury.html
