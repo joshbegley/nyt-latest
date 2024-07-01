@@ -1,3 +1,7 @@
+**Car Plows Into Pedestrians in South Korea, Killing Nine**\
+`The deadly crash occurred near a busy intersection in front of city hall in central Seoul.`\
+https://nytimes.com/2024/07/01/world/asia/seoul-korea-accident.html
+
 **Biden Campaign Will Try to Reassure Big Donors**\
 `President Biden’s top campaign official is scheduled to hold a crucial call on Monday to convince donors that the president can beat former President Donald J. Trump.`\
 https://nytimes.com/2024/07/01/us/politics/biden-campaign-donors-debate.html
