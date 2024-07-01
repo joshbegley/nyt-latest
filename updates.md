@@ -1,3 +1,5 @@
+**Ultra-Orthodox Jews protest an Israeli court ruling, and other news.**\
+
 **Quotation of the Day: Biden Campaign Spends Days Cleaning Up a 90-Minute Mess**\
 `Quotation of the Day for Monday, July 1, 2024.`\
 https://nytimes.com/2024/07/01/pageoneplus/quotation-of-the-day-biden-campaign-spends-days-cleaning-up-a-90-minute-mess.html
