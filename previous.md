@@ -1,3 +1,7 @@
+**Why Is This Jill Biden’s Fault?**\
+`It’s noteworthy and arguably sexist that the women in his life are supposed to clean house here.`\
+https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-step-down-jill-biden
+
 **Car Plows Into Pedestrians in South Korea, Killing Nine**\
 `The deadly crash occurred near a busy intersection in front of city hall in central Seoul.`\
 https://nytimes.com/2024/07/01/world/asia/seoul-korea-accident.html
@@ -11,7 +15,7 @@ https://nytimes.com/2024/07/01/us/politics/biden-campaign-donors-debate.html
 https://nytimes.com/2024/07/01/dining/summer-ground-turkey-recipe.html
 
 **Supreme Court Says Trump Is Partly Shielded From Prosecution**\
-`The practical effect of the ruling raises the possibility of further delay of the case against the former president on charges of plotting to subvert the 2020 election.`\
+`The practical effect of the ruling raises the likelihood of further delay of the case against the former president on charges of plotting to subvert the 2020 election.`\
 https://nytimes.com/2024/07/01/us/politics/supreme-court-trump-immunity.html
 
 **For South Africa’s Cabinet, Bigger May Not Mean Better**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/arts/music/omar-apollo-god-said-no-review.html
 **Supreme Court Extends Time Frame for Challenges to Regulations**\
 `The ruling could amplify the impact of a separate decision overturning the Chevron doctrine, which had required courts to defer to executive agencies’ interpretations of statutes.`\
 https://nytimes.com/2024/07/01/us/supreme-court-statute-limitations.html
-
-**Ukraine Says It Foiled Another Russian Plot to Topple the Government**\
-`While the viability of the plan was not immediately clear, officials said it was a reminder that the Kremlin remained determined to bring down President Volodymyr Zelensky.`\
-https://nytimes.com/2024/07/01/world/europe/ukraine-coup-plot.html
 

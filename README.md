@@ -1,3 +1,7 @@
+**‘It’s a Cuban Thing’: Menendez’s Sister Says Their Parents Also Hid Cash**\
+`Senator Robert Menendez’s sister testified that their father stored cash in a grandfather clock in Havana, Cuba.`\
+https://nytimes.com/2024/07/01/nyregion/robert-menendez-bribery-trial-cash-gold.html
+
 **Why Is This Jill Biden’s Fault?**\
 `It’s noteworthy and arguably sexist that the women in his life are supposed to clean house here.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-step-down-jill-biden
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/us/supreme-court-free-speech-social-media.html
 **Omar Apollo’s Exquisite Heartache**\
 `His second album, “God Said No,” delves into a breakup with all its complications, transformed into pensive alt-R&B.`\
 https://nytimes.com/2024/07/01/arts/music/omar-apollo-god-said-no-review.html
-
-**Supreme Court Extends Time Frame for Challenges to Regulations**\
-`The ruling could amplify the impact of a separate decision overturning the Chevron doctrine, which had required courts to defer to executive agencies’ interpretations of statutes.`\
-https://nytimes.com/2024/07/01/us/supreme-court-statute-limitations.html
 

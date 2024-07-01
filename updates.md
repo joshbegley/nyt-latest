@@ -1,3 +1,11 @@
+**Why Is This Jill Biden’s Fault?**\
+`It’s noteworthy and arguably sexist that the women in his life are supposed to clean house here.`\
+https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-step-down-jill-biden
+
+**Supreme Court Says Trump Is Partly Shielded From Prosecution**\
+`The practical effect of the ruling raises the likelihood of further delay of the case against the former president on charges of plotting to subvert the 2020 election.`\
+https://nytimes.com/2024/07/01/us/politics/supreme-court-trump-immunity.html
+
 **Car Plows Into Pedestrians in South Korea, Killing Nine**\
 `The deadly crash occurred near a busy intersection in front of city hall in central Seoul.`\
 https://nytimes.com/2024/07/01/world/asia/seoul-korea-accident.html
