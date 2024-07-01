@@ -1,3 +1,7 @@
+**Omar Apollo’s Exquisite Heartache**\
+`His second album, “God Said No,” delves into a breakup with all its complications, transformed into pensive alt-R&B.`\
+https://nytimes.com/2024/07/01/arts/music/omar-apollo-god-said-no-review.html
+
 **Apollo Omar’s Exquisite Heartache**\
 `His second album, “God Said No,” delves into a breakup with all its complications, transformed into pensive alt-R&B.`\
 https://nytimes.com/2024/07/01/arts/music/apollo-omar-god-said-no-review.html
