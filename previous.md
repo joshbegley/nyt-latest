@@ -1,3 +1,11 @@
+**Bannon Reports to Federal Prison After Conviction for Defying Congress**\
+`The Trump adviser was sentenced to four months for refusing to honor a subpoena from a committee investigating the Jan. 6 Capitol riot. He rallied supporters in his last minutes of freedom.`\
+https://nytimes.com/2024/07/01/nyregion/steve-bannon-prison-jan-6.html
+
+**Republicans Respond to Supreme Court Immunity Ruling With Triumph, and Democrats With Dismay**\
+`Republicans praised the ruling as a rejection of what they characterized as Democrats’ using the government against Mr. Trump for political purposes, while Democrats expressed fear for the future of American democracy.`\
+https://nytimes.com/2024/07/01/us/politics/trump-immunity-republicans-democrats-reaction.html
+
 **Why Beryl Is a Bad Sign for This Year’s Hurricane Season**\
 `The storm grew very quickly after it formed, reflecting hot ocean conditions that could bring more dangerous hurricanes.`\
 https://nytimes.com/2024/07/01/weather/hurricane-beryl-size.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/01/world/israel-gaza-war-hamas/heres-what-we-kn
 **Vehement Dissent From Supreme Court’s Liberal Wing Laments Vast Expansion of Presidential Power**\
 `The three Democratic appointees railed against the ruling that former President Donald J. Trump has some immunity for his official actions, declaring that their colleagues had made the president into “a king above the law.”`\
 https://nytimes.com/2024/07/01/us/politics/supreme-court-liberals-presidential-immunity.html
-
-**USA Today’s Top Editor Abruptly Steps Down**\
-`Terence Samuel, a veteran journalist, had been in the role for a year.`\
-https://nytimes.com/2024/07/01/business/media/usa-today-terence-samuel.html
-
-**How Much Do You Know About the American Revolution?**\
-`This short quiz tests your knowledge of certain Revolutionary War events and books about the era.`\
-https://nytimes.com/interactive/2024/07/01/books/review/american-revolution-quiz.html
 
