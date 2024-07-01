@@ -1,3 +1,11 @@
+**Read the Supreme Court’s Ruling on Immunity**\
+`The court rules that former presidents have absolute immunity for core constitutional powers, and are also entitled to at least a presumption of immunity for official acts.`\
+https://nytimes.com/interactive/2024/07/01/us/scotus-immunity.html
+
+**Supreme Court Declines to Rule on Tech Platforms’ Free Speech Rights**\
+`The justices returned both cases, which concerned state laws that supporters said were aimed at “Silicon Valley censorship,” to lower courts. Critics had said the laws violated the sites’ First Amendment rights.`\
+https://nytimes.com/2024/07/01/us/supreme-court-free-speech-social-media.html
+
 **Omar Apollo’s Exquisite Heartache**\
 `His second album, “God Said No,” delves into a breakup with all its complications, transformed into pensive alt-R&B.`\
 https://nytimes.com/2024/07/01/arts/music/omar-apollo-god-said-no-review.html
@@ -22,19 +30,11 @@ https://nytimes.com/2024/07/01/us/politics/stephen-k-bannon-plans-to-record-his-
 `By Adam Liptak`\
 https://nytimes.com/live/2024/07/01/us/trump-immunity-supreme-court/heres-what-the-court-has-previously-said-about-presidential-immunity
 
-**Here’s a look inside the Supreme Court.**\
-`By Abbie VanSickle and Amir Hamja`\
-https://nytimes.com/live/2024/07/01/us/trump-immunity-supreme-court/heres-a-look-inside-the-supreme-court
-
-**Here’s the latest on the remaining day of the court’s term.**\
+**Here’s the latest on the ruling.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/07/01/us/trump-immunity-supreme-court/heres-the-latest-on-the-remaining-day-of-the-courts-term
 
-**Meta’s Ad-Free Subscription Violates Competition Law, E.U. Says**\
-`Regulators said the subscription service introduced last year is a “pay or consent” method to collect personal data and bolster advertising.`\
-https://nytimes.com/2024/07/01/business/eu-meta-facebook-instagram-ads-privacy.html
-
-**‘Starlight Express’ Review: The Gravy Train Rolls On**\
-`Nostalgia will undoubtedly lure many to a London revival of the Andrew Lloyd Webber musical. It has more in common with a theme park than with theater, our critic writes.`\
-https://nytimes.com/2024/07/01/theater/starlight-express-review-london.html
+**Here’s a look inside the Supreme Court.**\
+`By Abbie VanSickle and Amir Hamja`\
+https://nytimes.com/live/2024/07/01/us/trump-immunity-supreme-court/heres-a-look-inside-the-supreme-court
 
