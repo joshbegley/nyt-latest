@@ -1,3 +1,7 @@
+**Biden’s New Post-Debate Ad: ‘When You Get Knocked Down, You Get Back Up’**\
+`The ad doesn’t show footage of the president’s halting debate showing, focusing instead on his energetic appearance at a rally the next day.`\
+https://nytimes.com/2024/07/01/us/politics/biden-debate-ad.html
+
 **Shania Twain, Officially a ‘Legend’**\
 `The Glastonbury Festival’s coveted “Legend’s Slot,” at 3:45 p.m. Sunday, was hers and she said she was ready for the “most extraordinary party of my career.”`\
 https://nytimes.com/2024/07/01/arts/music/shania-twain-glastonbury.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/theater/review-liddell-avignon-festival.html
 **A Culture War Erupted Over U.K. Stately Homes. Who Won?**\
 `A battle over the history of Britain’s prized country houses offers a window into the national mood before a pivotal election.`\
 https://nytimes.com/2024/07/01/world/europe/uk-national-trust.html
-
-**Signs of Life Appear in TV Show Purchases**\
-`Netflix and Amazon are driving a small bump in the market for TV shows after a major slowdown.`\
-https://nytimes.com/2024/07/01/business/media/netflix-amazon-tv-show-purchases.html
 
