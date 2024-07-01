@@ -1,3 +1,7 @@
+**The Week After the Debate**\
+`Where does President Biden’s campaign go from here?`\
+https://nytimes.com/2024/07/01/briefing/the-week-after-the-debate.html
+
 **Far Right’s Surge in France Lays Bare Deep Divisions**\
 `Many expressed shock that Marine Le Pen’s nationalist party was so close to power after the first round of a snap election.`\
 https://nytimes.com/2024/07/01/world/europe/france-snap-election-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/business/media/netflix-amazon-tv-show-purchases.h
 **What Drives Trump Also Limits Him**\
 `Mr. Trump keeps being the person we know — statically supported by somewhere between 44 and 49 percent of people on any given day, with or without enthusiasm.`\
 https://nytimes.com/2024/07/01/opinion/donald-trump-limits.html
-
-**How Can I Stay Cool and Look Chic in the Heat?**\
-`As temperatures rise, a reader wonders how to dress for sweaty summers while maintaining a sense of style.`\
-https://nytimes.com/2024/07/01/style/heat-fashion-hot-weather.html
 
