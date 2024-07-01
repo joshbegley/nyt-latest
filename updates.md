@@ -1,3 +1,7 @@
+**Far Right’s Surge in France Lays Bare Deep Divisions**\
+`Many expressed shock that Marine Le Pen’s nationalist party was so close to power after the first round of a snap election.`\
+https://nytimes.com/2024/07/01/world/europe/france-snap-election-reaction.html
+
 **Ismail Kadare, Whose Novels Brought Albania’s Plight to the World, Dies at 88**\
 `He was compared to Orwell and Kafka, and walked a political tightrope with works of veiled criticism for his totalitarian state.`\
 https://nytimes.com/2024/07/01/obituaries/ismail-kadare-dead.html
