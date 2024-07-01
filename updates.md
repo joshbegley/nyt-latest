@@ -1,3 +1,7 @@
+**Apollo Omar’s Exquisite Heartache**\
+`His second album, “God Said No,” delves into a breakup with all its complications, transformed into pensive alt-R&B.`\
+https://nytimes.com/2024/07/01/arts/music/apollo-omar-god-said-no-review.html
+
 **Supreme Court Extends Time Frame for Challenges to Regulations**\
 `The ruling could amplify the impact of a separate decision overturning the Chevron doctrine, which had required courts to defer to executive agencies’ interpretations of statutes.`\
 https://nytimes.com/2024/07/01/us/supreme-court-statute-limitations.html
