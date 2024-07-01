@@ -1,3 +1,11 @@
+**Trump Awaits Immunity Ruling, and the French Far Right Wins Big**\
+`Plus, Hurricane Beryl threatens the Caribbean.`\
+https://nytimes.com/2024/07/01/podcasts/supreme-court-immunity-france-election.html
+
+**Will Biden Withdraw?**\
+`Democratic worries about the president’s age have surged after Thursday’s debate.`\
+https://nytimes.com/2024/07/01/podcasts/the-daily/biden-debate.html
+
 **The Connections Companion No. 387, July 2, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/01/crosswords/connections-companion-387.html
