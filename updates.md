@@ -1,3 +1,11 @@
+**Boeing Agrees to Buy Spirit AeroSystems, a Longtime Supplier**\
+`The multibillion-dollar deal will reverse a decision the plane maker made two decades ago to outsource production of key parts to independent suppliers.`\
+https://nytimes.com/2024/07/01/business/boeing-spirit-aerosystems-acquisition.html
+
+**Monday Briefing**\
+`Elections in France and Iran.`\
+https://nytimes.com/2024/07/01/briefing/france-iran-election-biden.html
+
 **Tropical Storm Chris Forms Off Eastern Mexico**\
 `The tropical cyclone, the third named storm in the Atlantic season, was expected to weaken quickly after making landfall early Monday.`\
 https://nytimes.com/2024/07/01/weather/tropical-storm-chris-mexico.html

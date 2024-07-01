@@ -1,3 +1,11 @@
+**Boeing Agrees to Buy Spirit AeroSystems, a Longtime Supplier**\
+`The multibillion-dollar deal will reverse a decision the plane maker made two decades ago to outsource production of key parts to independent suppliers.`\
+https://nytimes.com/2024/07/01/business/boeing-spirit-aerosystems-acquisition.html
+
+**Monday Briefing**\
+`Elections in France and Iran.`\
+https://nytimes.com/2024/07/01/briefing/france-iran-election-biden.html
+
 **Tropical Storm Chris Forms Off Eastern Mexico**\
 `The tropical cyclone, the third named storm in the Atlantic season, was expected to weaken quickly after making landfall early Monday.`\
 https://nytimes.com/2024/07/01/weather/tropical-storm-chris-mexico.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/30/nyregion/utica-police-teen-shooting.html
 **Soma Golden Behr, 84, Dies; Inspired Enterprising Journalism at The Times**\
 `The first woman to serve as the paper’s national editor, she focused on issues of race, class and poverty, drawing prizes, and rose to the newsroom’s top echelon.`\
 https://nytimes.com/2024/06/30/business/media/soma-golden-behr-dead.html
-
-**Small Plane With 5 Aboard Crashes in Rural Upstate New York**\
-`The plane crashed around 2 p.m. on Sunday in Delaware County, N.Y., the Federal Aviation Administration said. Multiple crews were searching for the aircraft.`\
-https://nytimes.com/2024/06/30/nyregion/plane-crash-delaware-county-catskills.html
-
-**Mildred Thornton Stahlman, Pioneer in Neonatal Care, Dies at 101**\
-`She developed one of the first modern intensive care units for premature babies, helping newborns to breathe with lifesaving new treatments.`\
-https://nytimes.com/2024/06/30/science/mildred-thornton-stahlman-dead.html
 
