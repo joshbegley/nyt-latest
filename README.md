@@ -1,3 +1,7 @@
+**Far Right’s Surge in France Lays Bare Deep Divisions**\
+`Many expressed shock that Marine Le Pen’s nationalist party was so close to power after the first round of a snap election.`\
+https://nytimes.com/2024/07/01/world/europe/france-snap-election-reaction.html
+
 **Ismail Kadare, Whose Novels Brought Albania’s Plight to the World, Dies at 88**\
 `He was compared to Orwell and Kafka, and walked a political tightrope with works of veiled criticism for his totalitarian state.`\
 https://nytimes.com/2024/07/01/obituaries/ismail-kadare-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/opinion/donald-trump-limits.html
 **How Can I Stay Cool and Look Chic in the Heat?**\
 `As temperatures rise, a reader wonders how to dress for sweaty summers while maintaining a sense of style.`\
 https://nytimes.com/2024/07/01/style/heat-fashion-hot-weather.html
-
-**A Crucial Week Ahead for Trump’s Case and Biden’s Future**\
-`The president is still in the race. The picture of what voters think about that may become clearer this week.`\
-https://nytimes.com/live/2024/06/25/opinion/thepoint/tipsheet-biden-trump
 
