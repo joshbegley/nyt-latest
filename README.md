@@ -1,3 +1,7 @@
+**Trump Amplifies Calls to Jail Top Elected Officials, Invokes Military Tribunals**\
+`A post that Mr. Trump circulated on Sunday called for Liz Cheney to be prosecuted by a military court reserved for enemy combatants and war criminals.`\
+https://nytimes.com/2024/07/01/us/politics/trump-liz-cheney-treason-jail.html
+
 **Israel Frees Gaza Hospital Chief Held Without Charges for 7 Months**\
 `Rights groups denounced the detention of Al-Shifa Hospital’s director and thousands of other Gazans without trial, while Israeli leaders faulted his release as a government failure.`\
 https://nytimes.com/2024/07/01/world/middleeast/gaza-israel-shifa-hospital.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/weather/heat-wave-california.html
 **Some Antidepressants May Cause More Weight Gain Than Others**\
 `A new study tracked weight changes associated with eight popular drugs.`\
 https://nytimes.com/2024/07/01/well/mind/antidepressants-weight-gain.html
-
-**Alert Level Raised at U.S. Bases in Europe Over Russian Threats**\
-`Officials said there was no specific intelligence about possible Russian attacks on American bases, but Moscow has made vague threats over Ukraine’s use of long-range weapons on its territory.`\
-https://nytimes.com/2024/07/01/us/politics/us-bases-alert-level-russia.html
 
