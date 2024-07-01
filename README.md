@@ -1,3 +1,7 @@
+**Marathon Heat Wave Expected to Bake Parts of the West Through Holiday Weekend**\
+`Across interior California, the mercury is rising and may stay high for a week, if not longer.`\
+https://nytimes.com/2024/07/01/weather/heat-wave-california.html
+
 **Some Antidepressants May Cause More Weight Gain Than Others**\
 `A new study tracked weight changes associated with eight popular drugs.`\
 https://nytimes.com/2024/07/01/well/mind/antidepressants-weight-gain.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/business/save-student-loan-biden.html
 **The Supreme Court Gives a Free Pass to Trump and Future Presidents**\
 `In a step toward monarchy, the bedrock principle that presidents are not above the law has been set aside.`\
 https://nytimes.com/2024/07/01/opinion/supreme-court-presidential-immunity-trump.html
-
-**Female Suicide Bombers: A Terrorist Group’s Hidden Weapon**\
-`Suicide bombers killed at least 32 people in three attacks in a Nigerian city once controlled by Boko Haram. Women, said experts, are more likely to go unnoticed when carrying out terrorist attacks.`\
-https://nytimes.com/2024/07/01/world/africa/nigeria-female-suicide-bombers.html
 
