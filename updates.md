@@ -1,3 +1,15 @@
+**Flash Flooding After New Mexico Wildfires Highlights Climate Risks**\
+`Flooding in Ruidoso, N.M., over the weekend showed how wildfire damage, worsening under climate change, can put people at even greater risk than the fires themselves.`\
+https://nytimes.com/2024/07/01/climate/new-mexico-fire-floods.html
+
+**Anticipation and Family Members of Some Justices Filled the Court for the Momentous Decision**\
+`The final day of the current Supreme Court term included some of the most eagerly awaited decisions.`\
+https://nytimes.com/2024/07/01/us/politics/anticipation-and-family-members-of-some-justices-filled-the-court-for-the-momentous-decision.html
+
+**The Supreme Court Helps Trump — and Future Presidents — Dodge Accountability**\
+`The rule of law is perhaps entirely in the hands of the American people.`\
+https://nytimes.com/live/2024/06/25/opinion/thepoint/trump-immunity-ruling-scotus
+
 **Trump Organization Signs Up to Put Its Brand on a New Saudi Tower**\
 `The residential high-rise tower in Jeddah is the latest of several developments that the former president’s company has planned for the Middle East.`\
 https://nytimes.com/2024/07/01/us/politics/trump-organization-saudi-arabia-tower.html
