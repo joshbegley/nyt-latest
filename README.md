@@ -1,3 +1,7 @@
+**The Supreme Court Gives a Free Pass to Trump and Future Presidents**\
+`In a step toward monarchy, the bedrock principle that presidents are not above the law has been set aside.`\
+https://nytimes.com/2024/07/01/opinion/supreme-court-presidential-immunity-trump.html
+
 **Female Suicide Bombers: a Terrorist Group’s Hidden Weapon**\
 `Suicide bombers killed at least 32 people in three attacks in a Nigerian city once controlled by Boko Haram. Women, said experts, are more likely to go unnoticed when carrying out terrorist attacks.`\
 https://nytimes.com/2024/07/01/world/africa/nigeria-female-suicide-bombers.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/us/elections/polls-president-pennsylvania.h
 **Election 2024 Polls: North Carolina**\
 `See the latest election polls and polling averages for North Carolina.`\
 https://nytimes.com/interactive/2024/us/elections/polls-president-north-carolina.html
-
-**Election 2024 Polls: Nevada**\
-`See the latest election polls and polling averages for Nevada.`\
-https://nytimes.com/interactive/2024/us/elections/polls-president-nevada.html
 
