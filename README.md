@@ -1,3 +1,7 @@
+**Why Beryl Is a Bad Sign for This Year’s Hurricane Season**\
+`The storm grew very quickly after it formed, reflecting hot ocean conditions that could bring more dangerous hurricanes.`\
+https://nytimes.com/2024/07/01/weather/hurricane-beryl-size.html
+
 **National Portrait Gallery Buys Dolley Madison Photo for $456,000**\
 `The portrait of the first lady, which was likely taken in 1846, will be part of an exhibition for the nation’s semiquincentennial.`\
 https://nytimes.com/2024/07/01/arts/design/dolley-madison-photo-national-portrait-gallery.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/business/media/usa-today-terence-samuel.html
 **How Much Do You Know About the American Revolution?**\
 `This short quiz tests your knowledge of certain Revolutionary War events and books about the era.`\
 https://nytimes.com/interactive/2024/07/01/books/review/american-revolution-quiz.html
-
-**Thomas and Alito took part in the case, despite calls for their recusal.**\
-`By Adam Liptak`\
-https://nytimes.com/live/2024/07/01/us/trump-immunity-supreme-court/thomas-and-alito-took-part-in-the-case-despite-calls-for-their-recusal
 
