@@ -1,3 +1,7 @@
+**Wordle Review No. 1,109, July 2, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/01/crosswords/wordle-review-1109.html
+
 **What Will Biden Donors Do Now?**\
 `Some wealthy supporters have offered positive assessments of the president after his disastrous debate, but others worry that the ticket is on the path to defeat.`\
 https://nytimes.com/2024/07/01/business/dealbook/democratic-donors-biden-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/obituaries/ismail-kadare-dead.html
 **Trump Awaits Immunity Ruling, and the French Far Right Wins Big**\
 `Plus, Hurricane Beryl threatens the Caribbean.`\
 https://nytimes.com/2024/07/01/podcasts/supreme-court-immunity-france-election.html
-
-**Will Biden Withdraw?**\
-`Democratic worries about the president’s age have surged after Thursday’s debate.`\
-https://nytimes.com/2024/07/01/podcasts/the-daily/biden-debate.html
 
