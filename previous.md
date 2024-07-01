@@ -1,3 +1,11 @@
+**What Will Biden Donors Do Now?**\
+`Some wealthy supporters have offered positive assessments of the president after his disastrous debate, but others worry that the ticket is on the path to defeat.`\
+https://nytimes.com/2024/07/01/business/dealbook/democratic-donors-biden-trump.html
+
+**The release of the director of Al-Shifa Hospital after seven months of detention draws an outcry in Israel.**\
+`By Hiba Yazbek`\
+https://nytimes.com/live/2024/07/01/world/israel-gaza-war-hamas/the-release-of-the-director-of-al-shifa-hospital-after-seven-months-of-detention-draws-an-outcry-in-israel
+
 **Tracking Tropical Depression Chris**\
 `See the likely path and wind arrival times for Chris.`\
 https://nytimes.com/interactive/2024/weather/storm-chris-maps.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/01/podcasts/supreme-court-immunity-france-election.h
 **Will Biden Withdraw?**\
 `Democratic worries about the president’s age have surged after Thursday’s debate.`\
 https://nytimes.com/2024/07/01/podcasts/the-daily/biden-debate.html
-
-**The Connections Companion No. 387, July 2, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/01/crosswords/connections-companion-387.html
-
-**Review: ‘Dämon: El Funeral de Bergman’ Brings Electricity to Avignon**\
-`The Spanish director and performer Angélica Liddell elicited a standing ovation at the Avignon Festival in spite of her attacks on critics.`\
-https://nytimes.com/2024/07/01/theater/review-liddell-avignon-festival.html
 

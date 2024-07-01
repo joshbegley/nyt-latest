@@ -1,3 +1,11 @@
+**What Will Biden Donors Do Now?**\
+`Some wealthy supporters have offered positive assessments of the president after his disastrous debate, but others worry that the ticket is on the path to defeat.`\
+https://nytimes.com/2024/07/01/business/dealbook/democratic-donors-biden-trump.html
+
+**The release of the director of Al-Shifa Hospital after seven months of detention draws an outcry in Israel.**\
+`By Hiba Yazbek`\
+https://nytimes.com/live/2024/07/01/world/israel-gaza-war-hamas/the-release-of-the-director-of-al-shifa-hospital-after-seven-months-of-detention-draws-an-outcry-in-israel
+
 **Tracking Tropical Depression Chris**\
 `See the likely path and wind arrival times for Chris.`\
 https://nytimes.com/interactive/2024/weather/storm-chris-maps.html
