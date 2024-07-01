@@ -1,3 +1,7 @@
+**Quotation of the Day: Biden Campaign Spends Days Cleaning Up a 90-Minute Mess**\
+`Quotation of the Day for Monday, July 1, 2024.`\
+https://nytimes.com/2024/07/01/pageoneplus/quotation-of-the-day-biden-campaign-spends-days-cleaning-up-a-90-minute-mess.html
+
 **Chinese Rocket Accidentally Launches During Test, Then Crashes**\
 `The commercial company Space Pioneer said the accident occurred because of a structural failure in the connection between the rocket and its testing platform.`\
 https://nytimes.com/2024/07/01/world/asia/china-rocket-launch-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/world/asia/myanmar-junta-inflation-arrests.html
 **Word of the Day: corroboration**\
 `This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/07/01/learning/word-of-the-day-corroboration.html
-
-**Wordle Review No. 1,108, July 1, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/01/crosswords/wordle-review-1108.html
 

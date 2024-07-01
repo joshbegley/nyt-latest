@@ -1,3 +1,7 @@
+**Quotation of the Day: Biden Campaign Spends Days Cleaning Up a 90-Minute Mess**\
+`Quotation of the Day for Monday, July 1, 2024.`\
+https://nytimes.com/2024/07/01/pageoneplus/quotation-of-the-day-biden-campaign-spends-days-cleaning-up-a-90-minute-mess.html
+
 **France’s Far Right Makes Big Gains in First Round of Voting**\
 `France’s National Rally leader Marine Le Pen asked voters for an “absolute majority” as her party held a strong lead during the first round of snap elections.`\
 https://nytimes.com/video/world/europe/100000009548810/france-election-takeaways.html
