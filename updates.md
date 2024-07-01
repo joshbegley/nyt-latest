@@ -1,4 +1,8 @@
 **Soma Golden Behr, 84, Dies; Inspired Enterprising Journalism at The Times**\
+`The first woman to serve as the paper’s national editor, she focused on issues of race, class and poverty, drawing prizes, and rose to the newsroom’s top echelon.`\
+https://nytimes.com/2024/06/30/business/media/soma-golden-behr-dead.html
+
+**Soma Golden Behr, 84, Dies; Inspired Enterprising Journalism at The Times**\
 `The first woman to serve as the paper’s national editor, she focused on issues of race, class and poverty and rose to assistant managing editor.`\
 https://nytimes.com/2024/06/30/business/media/soma-golden-behr-dead.html
 
