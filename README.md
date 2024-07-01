@@ -1,3 +1,11 @@
+**In a Staring Contest With Democratic Voters, Joe Biden Hasn’t Blinked**\
+`Around Mr. Biden, a siege mentality has set in post-debate, one at odds with the persistent concerns of voters who view him as too old to be effective.`\
+https://nytimes.com/2024/07/01/us/politics/biden-debate-performance.html
+
+**Hurricane Beryl Flattens Grenada’s Carriacou Island**\
+`Officials said the Category 4 storm caused “extreme” damage there and on the neighboring island of Petite Martinique as it made landfall Monday.`\
+https://nytimes.com/2024/07/01/world/americas/hurricane-beryl-grenada-carriacou.html
+
 **Tuesday Briefing: Top Court Gives Trump Significant Immunity**\
 `Plus, what’s next for France.`\
 https://nytimes.com/2024/07/01/briefing/supreme-court-immunity-donald-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/us/elections/polls-president-nevada.html
 **Election 2024 Polls: Michigan**\
 `See the latest election polls and polling averages for Michigan.`\
 https://nytimes.com/interactive/2024/us/elections/polls-president-michigan.html
-
-**Election 2024 Polls: Georgia**\
-`See the latest election polls and polling averages for Georgia.`\
-https://nytimes.com/interactive/2024/us/elections/polls-president-georgia.html
-
-**Shay Youngblood, Influential Black Author and Playwright, Dies at 64**\
-`She wrote memorably about her upbringing by a circle of maternal elders and the life lessons they imparted, and of her yearning for the mother she lost.`\
-https://nytimes.com/2024/07/01/books/shay-youngblood-dead.html
 
