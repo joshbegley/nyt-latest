@@ -1,3 +1,11 @@
+**Utica Residents Grill Mayor After Police Killing of 13-Year-Old Boy**\
+`An officer in Utica, N.Y., fatally shot the boy, Nyah Mway, after he brandished what the officer believed was a gun. At a community meeting, residents called the killing “an injustice.”`\
+https://nytimes.com/2024/06/30/nyregion/utica-police-teen-shooting.html
+
+**Soma Golden Behr, Longtime Senior Editor at The Times, Dies at 84**\
+`She was the first woman to serve as the paper’s national editor, and she rose to assistant managing editor, generating ideas for prizewinning articles.`\
+https://nytimes.com/2024/06/30/obituaries/soma-golden-behr-dead.html
+
 **Small Plane With 5 Aboard Crashes in Rural Upstate New York**\
 `The plane crashed around 2 p.m. on Sunday in Delaware County, N.Y., the Federal Aviation Administration said. Multiple crews were searching for the aircraft.`\
 https://nytimes.com/2024/06/30/nyregion/plane-crash-delaware-county-catskills.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/06/30/business/boeing-max-justice-department.html
 **Iranians Say Elections Bring Little Change, So Why Vote?**\
 `In Tehran, many Iranians said they didn’t see the point in voting in Friday’s first-round presidential election since all the candidates had been vetted by the government.`\
 https://nytimes.com/2024/06/30/world/middleeast/iran-election-president-voters.html
-
-**Biden’s Family Tells Him to Keep Fighting as They Huddle at Camp David**\
-`President Biden is trying to figure out how to tamp down Democratic anxiety after last week’s disastrous debate performance.`\
-https://nytimes.com/2024/06/30/us/politics/biden-debate-anxious-democrats.html
-
-**As the U.N.’s relief chief steps down, Gaza’s aid woes are piling up.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/06/30/world/israel-gaza-war-hamas/as-the-uns-relief-chief-steps-down-gazas-aid-woes-are-piling-up
 
