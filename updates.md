@@ -1,3 +1,7 @@
+**Stephen Bannon Plans to Record His Podcast and Then Report to Prison**\
+`The recording will be his last for four months, but the longtime adviser to Donald J. Trump has no intention of surrendering his influence.`\
+https://nytimes.com/2024/07/01/us/politics/stephen-k-bannon-plans-to-record-his-podcast-then-report-to-prison.html
+
 **Read the Supreme Court’s Ruling on Immunity**\
 `The court rules that former presidents have absolute immunity for core constitutional powers, and are also entitled to at least a presumption of immunity for official acts.`\
 https://nytimes.com/interactive/2024/07/01/us/scotus-immunity.html
