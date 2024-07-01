@@ -1,3 +1,7 @@
+**Thomas and Alito took part in the case despite calls for their recusal.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/07/01/us/trump-immunity-supreme-court/thomas-and-alito-took-part-in-the-case-despite-calls-for-their-recusal
+
 **‘It’s a Cuban Thing’: Menendez’s Sister Says Their Parents Also Hid Cash**\
 `Senator Robert Menendez’s sister testified that their father stored cash in a grandfather clock in Havana, Cuba.`\
 https://nytimes.com/2024/07/01/nyregion/robert-menendez-bribery-trial-cash-gold.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/01/us/scotus-immunity.html
 **Supreme Court Declines to Rule on Tech Platforms’ Free Speech Rights**\
 `The justices returned both cases, which concerned state laws that supporters said were aimed at “Silicon Valley censorship,” to lower courts. Critics had said the laws violated the sites’ First Amendment rights.`\
 https://nytimes.com/2024/07/01/us/supreme-court-free-speech-social-media.html
-
-**Omar Apollo’s Exquisite Heartache**\
-`His second album, “God Said No,” delves into a breakup with all its complications, transformed into pensive alt-R&B.`\
-https://nytimes.com/2024/07/01/arts/music/omar-apollo-god-said-no-review.html
 

@@ -1,3 +1,7 @@
+**Thomas and Alito took part in the case despite calls for their recusal.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/07/01/us/trump-immunity-supreme-court/thomas-and-alito-took-part-in-the-case-despite-calls-for-their-recusal
+
 **This Is Not Jill Biden’s Problem to Solve**\
 `It’s noteworthy and arguably sexist that the women in his life are supposed to clean house here.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-step-down-jill-biden
