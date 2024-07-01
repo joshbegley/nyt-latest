@@ -1,3 +1,7 @@
+**A Guide to Ismail Kadare’s Books**\
+`Kadare received the inaugural International Booker Prize in 2005. In his books, the prolific Albanian author offered a window into the psychology of oppression. Here’s where to start.`\
+https://nytimes.com/2024/07/01/books/booksupdate/ismail-kadare-best-books-albania.html
+
 **Bannon Reports to Federal Prison After Conviction for Defying Congress**\
 `The Trump adviser was sentenced to four months for refusing to honor a subpoena from a committee investigating the Jan. 6 Capitol riot. He rallied supporters in his last minutes of freedom.`\
 https://nytimes.com/2024/07/01/nyregion/steve-bannon-prison-jan-6.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/us/politics/trump-organization-saudi-arabia-tower
 **Here’s what we know about Palestinians detained in Israel.**\
 `By Aaron Boxerman and Myra Noveck`\
 https://nytimes.com/live/2024/07/01/world/israel-gaza-war-hamas/heres-what-we-know-about-palestinians-detained-in-israel
-
-**Vehement Dissent From Supreme Court’s Liberal Wing Laments Vast Expansion of Presidential Power**\
-`The three Democratic appointees railed against the ruling that former President Donald J. Trump has some immunity for his official actions, declaring that their colleagues had made the president into “a king above the law.”`\
-https://nytimes.com/2024/07/01/us/politics/supreme-court-liberals-presidential-immunity.html
 

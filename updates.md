@@ -1,3 +1,7 @@
+**A Guide to Ismail Kadare’s Books**\
+`Kadare received the inaugural International Booker Prize in 2005. In his books, the prolific Albanian author offered a window into the psychology of oppression. Here’s where to start.`\
+https://nytimes.com/2024/07/01/books/booksupdate/ismail-kadare-best-books-albania.html
+
 **Bannon Reports to Federal Prison After Conviction for Defying Congress**\
 `The Trump adviser was sentenced to four months for refusing to honor a subpoena from a committee investigating the Jan. 6 Capitol riot. He rallied supporters in his last minutes of freedom.`\
 https://nytimes.com/2024/07/01/nyregion/steve-bannon-prison-jan-6.html
