@@ -1,3 +1,7 @@
+**We Counted 22,252 Cars to See How Much Congestion Pricing Might Have Made This Morning**\
+`A year’s worth of tolls is hard to picture. But what about an hour’s worth?`\
+https://nytimes.com/interactive/2024/07/01/upshot/congestion-pricing.html
+
 **House Republicans Sue Garland for Audio of Biden Interviews With Special Counsel**\
 `The lawsuit aims to force the release of recordings of the president’s conversation with an investigator who concluded he was a “well-meaning, elderly man with a poor memory” and “diminished faculties.”`\
 https://nytimes.com/2024/07/01/us/politics/house-republicans-garland-biden-audio.html
@@ -23,7 +27,7 @@ https://nytimes.com/2024/07/01/opinion/cocoa-farmers-chocolate-prices.html
 https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-debate-polls
 
 **Jury Near Boston Deadlocks in Murder Case Against Karen Read**\
-`The jurors said they were “deeply divided” over whether Ms. Read killed her boyfriend, a Boston police officer, after a night out drinking.`\
+`The jurors said they were “deeply divided” over whether Ms. Read killed her boyfriend, a Boston police officer; prosecutors said they would try the case again.`\
 https://nytimes.com/2024/07/01/us/karen-read-murder-trial.html
 
 **Trump Sentencing Recommendation Is Expected From Manhattan D.A.**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/nyregion/trump-sentence-hush-money.html
 **The Trump Decision Reveals Deep Rot in the System**\
 `Instead of delivering a judgment many months ago and allowing the trial to proceed, the justices gave Trump the gift of delay piled upon delay.`\
 https://nytimes.com/2024/07/01/opinion/supreme-court-trump-immunity.html
-
-**Contentious Court Rulings: Immunity, Regulation and the Homeless**\
-`Readers discuss some of the major decisions at the end of the court’s term.`\
-https://nytimes.com/2024/07/01/opinion/letters/supreme-court-immunity-regulation-homeless.html
 
