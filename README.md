@@ -1,3 +1,7 @@
+**Shay Youngblood, Influential Black Author and Playwright, Dies at 64**\
+`She wrote memorably about her upbringing by a circle of maternal elders and the life lessons they imparted, and of her yearning for the mother she lost.`\
+https://nytimes.com/2024/07/01/books/shay-youngblood-dead.html
+
 **Young Thug’s Gang Trial Is Paused Because of Judge’s Secret Meeting**\
 `The much-delayed case was halted indefinitely to determine whether the judge should recuse himself after meeting with an uncooperative witness.`\
 https://nytimes.com/2024/07/01/arts/music/young-thug-ysl-gang-trial-paused.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/01/upshot/congestion-pricing.html
 **House Republicans Sue Garland for Audio of Biden Interviews With Special Counsel**\
 `The lawsuit aims to force the release of recordings of the president’s conversation with an investigator who concluded he was a “well-meaning, elderly man with a poor memory” and “diminished faculties.”`\
 https://nytimes.com/2024/07/01/us/politics/house-republicans-garland-biden-audio.html
-
-**Chinese Rocket Accidentally Launches and Crashes During Test**\
-`Videos posted by Chinese news media and on social media appeared to show the rocket climbing before it lost power and plunged, exploding in a nearby hill.`\
-https://nytimes.com/video/world/asia/100000009549779/china-rocket-launch-crash.html
 
