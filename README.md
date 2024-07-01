@@ -1,3 +1,7 @@
+**Tropical Storm Chris Forms Off Eastern Mexico**\
+`The tropical cyclone, the third named storm in the Atlantic season, was expected to weaken quickly after making landfall early Monday.`\
+https://nytimes.com/2024/07/01/weather/tropical-storm-chris-forms-off-eastern-mexico.html
+
 **Four Takeaways From France’s Snap Election**\
 `It was a big day for the far-right National Rally. Just how big will not be clear until a second round of voting is over.`\
 https://nytimes.com/2024/07/01/world/europe/france-election-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/30/nyregion/plane-crash-delaware-county-catskills.ht
 **Mildred Thornton Stahlman, Pioneer in Neonatal Care, Dies at 101**\
 `She developed one of the first modern intensive care units for premature babies, helping newborns to breathe with lifesaving new treatments.`\
 https://nytimes.com/2024/06/30/science/mildred-thornton-stahlman-dead.html
-
-**Wheel Rotator**\
-`Margi Stevenson makes her New York Times debut.`\
-https://nytimes.com/2024/06/30/crosswords/daily-puzzle-2024-07-01.html
 
