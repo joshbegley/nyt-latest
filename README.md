@@ -1,3 +1,11 @@
+**Here’s How to Avoid Hating Your Wedding Photos**\
+`A series of TikTok videos about a bride’s dissatisfaction with her photos spurred online discussions, with pros offering advice on how to hire a photographer.`\
+https://nytimes.com/2024/07/01/style/sepia-bride-tiktok-wedding-photography.html
+
+**Israeli officials exchange barbs amid an uproar over the release of Al-Shifa hospital’s director.**\
+`By Ephrat Livni and Hiba Yazbek`\
+https://nytimes.com/live/2024/07/01/world/israel-gaza-war-hamas/israeli-officials-exchange-barbs-amid-an-uproar-over-the-release-of-al-shifa-hospitals-director
+
 **Hunter Biden Sues Fox News Over a Series That Included His Nude Photos**\
 `The president’s son has argued that the network violated a New York law by showing the explicit images without his permission.`\
 https://nytimes.com/2024/07/01/business/media/hunter-biden-fox-lawsuit.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/01/opinion/cocoa-farmers-chocolate-prices.html
 **What Post-Debate Polls Reveal About Replacing Biden**\
 `Which Democratic candidate would stand the best chance of winning a crucial group of voters over?`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-debate-polls
-
-**Jury Near Boston Deadlocks in Murder Case Against Karen Read**\
-`The jurors said they were “deeply divided” over whether Ms. Read killed her boyfriend, a Boston police officer; prosecutors said they would try the case again.`\
-https://nytimes.com/2024/07/01/us/karen-read-murder-trial.html
-
-**Trump Sentencing Recommendation Is Expected From Manhattan D.A.**\
-`District Attorney Alvin L. Bragg’s submission may remain confidential until the judge levies his punishment on July 11.`\
-https://nytimes.com/2024/07/01/nyregion/trump-sentence-hush-money.html
 
