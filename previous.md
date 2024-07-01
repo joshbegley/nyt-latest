@@ -1,3 +1,15 @@
+**Here’s what the court has previously said about presidential immunity.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/07/01/us/trump-immunity-supreme-court/heres-what-the-court-has-previously-said-about-presidential-immunity
+
+**Here’s a look inside the Supreme Court.**\
+`By Abbie VanSickle and Amir Hamja`\
+https://nytimes.com/live/2024/07/01/us/trump-immunity-supreme-court/heres-a-look-inside-the-supreme-court
+
+**Here’s the latest on the remaining day of the court’s term.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/07/01/us/trump-immunity-supreme-court/heres-the-latest-on-the-remaining-day-of-the-courts-term
+
 **Meta’s Ad-Free Subscription Violates Competition Law, E.U. Says**\
 `Regulators said the subscription service introduced last year is a “pay or consent” method to collect personal data and bolster advertising.`\
 https://nytimes.com/2024/07/01/business/eu-meta-facebook-instagram-ads-privacy.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/01/world/israel-gaza-war-hamas/the-release-of-t
 **Tracking Tropical Depression Chris**\
 `See the likely path and wind arrival times for Chris.`\
 https://nytimes.com/interactive/2024/weather/storm-chris-maps.html
-
-**Biden’s New Post-Debate Ad: ‘When You Get Knocked Down, You Get Back Up’**\
-`The ad doesn’t show footage of the president’s halting debate showing, focusing instead on his energetic appearance at a rally the next day.`\
-https://nytimes.com/2024/07/01/us/politics/biden-debate-ad.html
-
-**Shania Twain, Officially a ‘Legend’**\
-`The Glastonbury Festival’s coveted “Legend’s Slot,” at 3:45 p.m. Sunday, was hers and she said she was ready for the “most extraordinary party of my career.”`\
-https://nytimes.com/2024/07/01/arts/music/shania-twain-glastonbury.html
-
-**The Week After the Debate**\
-`Where does President Biden’s campaign go from here?`\
-https://nytimes.com/2024/07/01/briefing/biden-campaign-debate.html
 
