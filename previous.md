@@ -1,3 +1,7 @@
+**Trump Sentencing Recommendation Is Expected From Manhattan D.A.**\
+`District Attorney Alvin L. Bragg’s submission may remain confidential until the judge levies his punishment on July 11.`\
+https://nytimes.com/2024/07/01/nyregion/trump-sentence-hush-money.html
+
 **The Trump Decision Reveals Deep Rot in the System**\
 `Instead of delivering a judgment many months ago and allowing the trial to proceed, the justices gave Trump the gift of delay piled upon delay.`\
 https://nytimes.com/2024/07/01/opinion/supreme-court-trump-immunity.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/weather/hurricane-beryl-size.html
 **National Portrait Gallery Buys Dolley Madison Photo for $456,000**\
 `The portrait of the first lady, which was likely taken in 1846, will be part of an exhibition for the nation’s semiquincentennial.`\
 https://nytimes.com/2024/07/01/arts/design/dolley-madison-photo-national-portrait-gallery.html
-
-**Flash Flooding After New Mexico Wildfires Highlights Climate Risks**\
-`Flooding in Ruidoso, N.M., over the weekend showed how wildfire damage, worsening under climate change, can put people at even greater risk than the fires themselves.`\
-https://nytimes.com/2024/07/01/climate/new-mexico-fire-floods.html
 

@@ -1,3 +1,7 @@
+**Jury Near Boston Deadlocks in Murder Case Against Karen Read**\
+`The jurors said they were “deeply divided” over whether Ms. Read killed her boyfriend, a Boston police officer, after a night out drinking.`\
+https://nytimes.com/2024/07/01/us/jury-deadlocks-murder-karen-read.html
+
 **Trump Sentencing Recommendation Is Expected From Manhattan D.A.**\
 `District Attorney Alvin L. Bragg’s submission may remain confidential until the judge levies his punishment on July 11.`\
 https://nytimes.com/2024/07/01/nyregion/trump-sentence-hush-money.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/us/politics/trump-immunity-republicans-democrats-
 **Why Beryl Is a Bad Sign for This Year’s Hurricane Season**\
 `The storm grew very quickly after it formed, reflecting hot ocean conditions that could bring more dangerous hurricanes.`\
 https://nytimes.com/2024/07/01/weather/hurricane-beryl-size.html
-
-**National Portrait Gallery Buys Dolley Madison Photo for $456,000**\
-`The portrait of the first lady, which was likely taken in 1846, will be part of an exhibition for the nation’s semiquincentennial.`\
-https://nytimes.com/2024/07/01/arts/design/dolley-madison-photo-national-portrait-gallery.html
 

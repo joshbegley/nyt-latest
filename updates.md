@@ -1,3 +1,7 @@
+**Trump Sentencing Recommendation Is Expected From Manhattan D.A.**\
+`District Attorney Alvin L. Bragg’s submission may remain confidential until the judge levies his punishment on July 11.`\
+https://nytimes.com/2024/07/01/nyregion/trump-sentence-hush-money.html
+
 **The Trump Decision Reveals Deep Rot in the System**\
 `Instead of delivering a judgment many months ago and allowing the trial to proceed, the justices gave Trump the gift of delay piled upon delay.`\
 https://nytimes.com/2024/07/01/opinion/supreme-court-trump-immunity.html
