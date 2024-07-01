@@ -1,3 +1,7 @@
+**The Century-Long Saga of the Caesar Salad**\
+`The world-famous salad is the pride of Tijuana, Mexico. But 100 years later, no one can agree on who created it.`\
+https://nytimes.com/2024/07/01/dining/caesar-salad.html
+
 **A Guide to Ismail Kadare’s Books**\
 `Kadare received the inaugural International Booker Prize in 2005. In his books, the prolific Albanian author offered a window into the psychology of oppression. Here’s where to start.`\
 https://nytimes.com/2024/07/01/books/booksupdate/ismail-kadare-best-books-albania.html

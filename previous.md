@@ -1,3 +1,7 @@
+**The Century-Long Saga of the Caesar Salad**\
+`The world-famous salad is the pride of Tijuana, Mexico. But 100 years later, no one can agree on who created it.`\
+https://nytimes.com/2024/07/01/dining/caesar-salad.html
+
 **A Guide to Ismail Kadare’s Books**\
 `Kadare received the inaugural International Booker Prize in 2005. In his books, the prolific Albanian author offered a window into the psychology of oppression. Here’s where to start.`\
 https://nytimes.com/2024/07/01/books/booksupdate/ismail-kadare-best-books-albania.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/25/opinion/trump-immunity-ruling-scotus.html
 **Trump Organization Signs Up to Put Its Brand on a New Saudi Tower**\
 `The residential high-rise tower in Jeddah is the latest of several developments that the former president’s company has planned for the Middle East.`\
 https://nytimes.com/2024/07/01/us/politics/trump-organization-saudi-arabia-tower.html
-
-**Here’s what we know about Palestinians detained in Israel.**\
-`By Aaron Boxerman and Myra Noveck`\
-https://nytimes.com/live/2024/07/01/world/israel-gaza-war-hamas/heres-what-we-know-about-palestinians-detained-in-israel
 
