@@ -1,3 +1,15 @@
+**Four Takeaways From France’s Snap Election**\
+`It was a big day for the far-right National Rally. Just how big will not be clear until a second round of voting is over.`\
+https://nytimes.com/2024/07/01/world/europe/france-election-takeaways.html
+
+**China Dangled Rebates to Lure People to Spend. It’s Not Enough.**\
+`China’s leaders vowed to kick-start spending by offering subsidies for households to buy cars and appliances. But many consumers aren’t biting.`\
+https://nytimes.com/2024/07/01/business/china-cash-for-clunkers.html
+
+**The Youngest Pandemic Children Are Now in School, and Struggling**\
+`Teachers this year saw the effects of the pandemic’s stress and isolation on young students: Some can barely speak, sit still or even hold a pencil.`\
+https://nytimes.com/interactive/2024/07/01/upshot/pandemic-children-school-performance.html
+
 **Soma Golden Behr, 84, Dies; Inspired Enterprising Journalism at The Times**\
 `The first woman to serve as the paper’s national editor, she focused on issues of race, class and poverty, drawing prizes, and rose to the newsroom’s top echelon.`\
 https://nytimes.com/2024/06/30/business/media/soma-golden-behr-dead.html
