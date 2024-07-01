@@ -1,3 +1,7 @@
+**Word of the Day: corroboration**\
+`This word has appeared in 24 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/07/01/learning/word-of-the-day-corroboration.html
+
 **Tropical Storm Chris Makes Landfall in Eastern Mexico**\
 `The tropical cyclone, the third named storm in the Atlantic season, was expected to dissipate on Monday.`\
 https://nytimes.com/2024/07/01/weather/tropical-storm-chris-mexico.html
