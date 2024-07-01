@@ -1,3 +1,15 @@
+**Hurricane Beryl Hits the Caribbean**\
+`Hurricane Beryl made landfall on Monday bringing heavy rains, floods, and destruction across the Caribbean this week as a Category 4 storm.`\
+https://nytimes.com/video/world/100000009549802/beryl-hurricane.html
+
+**Barry Diller Explores Bid to Take Control of Paramount**\
+`Mr. Diller, a digital media pioneer, lost a bidding war for Paramount Pictures decades ago. Now, he’s making a run at its parent company.`\
+https://nytimes.com/2024/07/01/business/dealbook/barry-diller-paramount.html
+
+**Marathon Heat Wave Expected to Bake California Through Holiday Weekend**\
+`Across the state, the mercury is rising and may stay high for a week, if not longer.`\
+https://nytimes.com/2024/07/01/weather/heat-wave-california.html
+
 **Marathon Heat Wave Expected to Bake Parts of the West Through Holiday Weekend**\
 `Across interior California, the mercury is rising and may stay high for a week, if not longer.`\
 https://nytimes.com/2024/07/01/weather/heat-wave-california.html
