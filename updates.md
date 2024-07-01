@@ -1,3 +1,15 @@
+**Read the Supreme Court’s Ruling on Immunity**\
+`The court rules that former presidents have absolute immunity for core constitutional powers, and are also entitled to at least a presumption of immunity for official acts.`\
+https://nytimes.com/interactive/2024/07/01/us/scotus-immunity.html
+
+**Supreme Court Declines to Rule on Tech Platforms’ Free Speech Rights**\
+`The justices returned both cases, which concerned state laws that supporters said were aimed at “Silicon Valley censorship,” to lower courts. Critics had said the laws violated the sites’ First Amendment rights.`\
+https://nytimes.com/2024/07/01/us/supreme-court-free-speech-social-media.html
+
+**Here’s the latest on the ruling.**\
+`By Adam Liptak`\
+https://nytimes.com/live/2024/07/01/us/trump-immunity-supreme-court/heres-the-latest-on-the-remaining-day-of-the-courts-term
+
 **Omar Apollo’s Exquisite Heartache**\
 `His second album, “God Said No,” delves into a breakup with all its complications, transformed into pensive alt-R&B.`\
 https://nytimes.com/2024/07/01/arts/music/omar-apollo-god-said-no-review.html
