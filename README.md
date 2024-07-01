@@ -12,7 +12,7 @@ https://nytimes.com/2024/07/01/us/politics/supreme-court-justice-family-immunity
 
 **The Supreme Court Helps Trump — and Future Presidents — Dodge Accountability**\
 `The rule of law is perhaps entirely in the hands of the American people.`\
-https://nytimes.com/live/2024/06/25/opinion/thepoint/trump-immunity-ruling-scotus
+https://nytimes.com/2024/06/25/opinion/trump-immunity-ruling-scotus.html
 
 **Trump Organization Signs Up to Put Its Brand on a New Saudi Tower**\
 `The residential high-rise tower in Jeddah is the latest of several developments that the former president’s company has planned for the Middle East.`\
