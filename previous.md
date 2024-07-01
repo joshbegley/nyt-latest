@@ -1,3 +1,7 @@
+**Trump Organization Signs Up to Put Its Brand on a New Saudi Tower**\
+`The residential high-rise tower in Jeddah is the latest of several developments that the former president’s company has planned for the Middle East.`\
+https://nytimes.com/2024/07/01/us/politics/trump-organization-saudi-arabia-tower.html
+
 **Here’s what we know about Palestinians detained in Israel.**\
 `By Aaron Boxerman and Myra Noveck`\
 https://nytimes.com/live/2024/07/01/world/israel-gaza-war-hamas/heres-what-we-know-about-palestinians-detained-in-israel
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/world/asia/seoul-korea-accident.html
 **Biden Campaign Will Try to Reassure Big Donors**\
 `President Biden’s top campaign official is scheduled to hold a crucial call on Monday to convince donors that the president can beat former President Donald J. Trump.`\
 https://nytimes.com/2024/07/01/us/politics/biden-campaign-donors-debate.html
-
-**A Perfect Summertime Recipe for Ground Turkey**\
-`Cybelle Tondu’s new recipe for turkey, shiitake and cashew lettuce cups is full of soy and oyster sauce-y notes, with sweet hoisin sauce for dipping.`\
-https://nytimes.com/2024/07/01/dining/summer-ground-turkey-recipe.html
 

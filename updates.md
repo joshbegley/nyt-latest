@@ -1,3 +1,7 @@
+**Trump Organization Signs Up to Put Its Brand on a New Saudi Tower**\
+`The residential high-rise tower in Jeddah is the latest of several developments that the former president’s company has planned for the Middle East.`\
+https://nytimes.com/2024/07/01/us/politics/trump-organization-saudi-arabia-tower.html
+
 **Here’s what we know about Palestinians detained in Israel.**\
 `By Aaron Boxerman and Myra Noveck`\
 https://nytimes.com/live/2024/07/01/world/israel-gaza-war-hamas/heres-what-we-know-about-palestinians-detained-in-israel
