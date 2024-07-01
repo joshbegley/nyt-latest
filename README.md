@@ -1,4 +1,4 @@
-**Tracking Tropical Storm Chris**\
+**Tracking Tropical Depression Chris**\
 `See the likely path and wind arrival times for Chris.`\
 https://nytimes.com/interactive/2024/weather/storm-chris-maps.html
 
