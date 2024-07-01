@@ -1,3 +1,7 @@
+**Debris Found in North Carolina Came From SpaceX Dragon, NASA Says**\
+`An object found on a hiking trail west of Asheville, N.C., had traveled to the International Space Station, the space agency said.`\
+https://nytimes.com/2024/07/01/science/space-debris-north-carolina-spacex.html
+
 **The Century-Long Saga of the Caesar Salad**\
 `The world-famous salad is the pride of Tijuana, Mexico. But 100 years later, no one can agree on who created it.`\
 https://nytimes.com/2024/07/01/dining/caesar-salad.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/us/politics/supreme-court-justice-family-immunity
 **The Supreme Court Helps Trump — and Future Presidents — Dodge Accountability**\
 `The rule of law is perhaps entirely in the hands of the American people.`\
 https://nytimes.com/2024/06/25/opinion/trump-immunity-ruling-scotus.html
-
-**Trump Organization Signs Up to Put Its Brand on a New Saudi Tower**\
-`The residential high-rise tower in Jeddah is the latest of several developments that the former president’s company has planned for the Middle East.`\
-https://nytimes.com/2024/07/01/us/politics/trump-organization-saudi-arabia-tower.html
 
