@@ -1,3 +1,7 @@
+**Shania Twain, Officially a ‘Legend’**\
+`The Glastonbury Festival’s coveted “Legend’s Slot,” at 3:45 p.m. Sunday, was hers and she said she was ready for the “most extraordinary party of my career.”`\
+https://nytimes.com/2024/07/01/arts/music/shania-twain-glastonbury.html
+
 **The Week After the Debate**\
 `Where does President Biden’s campaign go from here?`\
 https://nytimes.com/2024/07/01/briefing/the-week-after-the-debate.html
