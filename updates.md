@@ -1,3 +1,7 @@
+**Female Suicide Bombers: a Terrorist Group’s Hidden Weapon**\
+`Suicide bombers killed at least 32 people in three attacks in a Nigerian city once controlled by Boko Haram. Women, said experts, are more likely to go unnoticed when carrying out terrorist attacks.`\
+https://nytimes.com/2024/07/01/world/africa/nigeria-female-suicide-bombers.html
+
 **In a Staring Contest With Democratic Voters, Joe Biden Hasn’t Blinked**\
 `Around Mr. Biden, a siege mentality has set in post-debate, one at odds with the persistent concerns of voters who view him as too old to be effective.`\
 https://nytimes.com/2024/07/01/us/politics/biden-debate-performance.html
