@@ -1,3 +1,11 @@
+**Meta’s Ad-Free Subscription Violates Competition Law, E.U. Says**\
+`Regulators said the subscription service introduced last year is a “pay or consent” method to collect personal data and bolster advertising.`\
+https://nytimes.com/2024/07/01/business/eu-meta-facebook-instagram-ads-privacy.html
+
+**‘Starlight Express’ Review: The Gravy Train Rolls On**\
+`Nostalgia will undoubtedly lure many to a London revival of the Andrew Lloyd Webber musical. It has more in common with a theme park than with theater, our critic writes.`\
+https://nytimes.com/2024/07/01/theater/starlight-express-review-london.html
+
 **Inside California’s New Budget of Nearly $300 Billion**\
 `The budget includes $12 million for reparations measures for the state’s Black residents.`\
 https://nytimes.com/2024/07/01/us/california-budget.html
