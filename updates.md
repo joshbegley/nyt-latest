@@ -1,3 +1,11 @@
+**Alert Level Raised at U.S. Bases in Europe Over Russian Threats**\
+`Officials said there was no specific intelligence about possible Russian attacks on American bases, but Moscow has made vague threats over Ukraine’s use of long-range weapons on its territory.`\
+https://nytimes.com/2024/07/01/us/politics/us-bases-alert-level-russia.html
+
+**Giuliani Seeks to Alter Bankruptcy to Speed Asset Sale but Keep Future Income**\
+`The former New York mayor and Trump lawyer asked a bankruptcy court to shift from a Chapter 11 filing to a Chapter 7 filing under which his assets would be sold by a trustee.`\
+https://nytimes.com/2024/07/01/us/politics/giuliani-bankruptcy-court-creditors.html
+
 **What the Supreme Court’s Immunity Decision Means for Trump**\
 `The decision most likely delays Donald Trump’s Jan. 6 case past the election, and if he wins in November, people close to him expect the Justice Department to drop the charges.`\
 https://nytimes.com/2024/07/01/us/politics/trump-supreme-court-immunity.html
