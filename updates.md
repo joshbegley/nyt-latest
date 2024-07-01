@@ -1,3 +1,7 @@
+**The Week After the Debate**\
+`Where does President Biden’s campaign go from here?`\
+https://nytimes.com/2024/07/01/briefing/biden-campaign-debate.html
+
 **Biden’s New Post-Debate Ad: ‘When You Get Knocked Down, You Get Back Up’**\
 `The ad doesn’t show footage of the president’s halting debate showing, focusing instead on his energetic appearance at a rally the next day.`\
 https://nytimes.com/2024/07/01/us/politics/biden-debate-ad.html
