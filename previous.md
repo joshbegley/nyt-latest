@@ -1,3 +1,7 @@
+**‘House of the Dragon’ Season 2, Episode 3 Recap: Let’s Talk**\
+`Rhaenyra acts on a risky hope that cooler heads might prevail. But are there really any cool heads left?`\
+https://nytimes.com/2024/06/30/arts/television/house-of-the-dragon-recap-episode-3.html
+
 **Utica Residents Grill Mayor After Police Killing of 13-Year-Old Boy**\
 `An officer in Utica, N.Y., fatally shot the boy, Nyah Mway, after he brandished what the officer believed was a gun. At a community meeting, residents called the killing “an injustice.”`\
 https://nytimes.com/2024/06/30/nyregion/utica-police-teen-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/30/us/nevada-abortion-rights-vote.html
 **U.S. Said to Seek Boeing Guilty Plea to Avoid Trial in 737 Max Crashes**\
 `The Justice Department told victims’ families that it would propose a nearly $244 million fine and three years of company oversight to settle a fraud charge.`\
 https://nytimes.com/2024/06/30/business/boeing-max-justice-department.html
-
-**Iranians Say Elections Bring Little Change, So Why Vote?**\
-`In Tehran, many Iranians said they didn’t see the point in voting in Friday’s first-round presidential election since all the candidates had been vetted by the government.`\
-https://nytimes.com/2024/06/30/world/middleeast/iran-election-president-voters.html
 
