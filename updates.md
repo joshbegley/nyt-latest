@@ -1,3 +1,7 @@
+**Jury Near Boston Deadlocks in Murder Case Against Karen Read**\
+`The jurors said they were “deeply divided” over whether Ms. Read killed her boyfriend, a Boston police officer, after a night out drinking.`\
+https://nytimes.com/2024/07/01/us/karen-read-murder-trial.html
+
 **Trump Sentencing Recommendation Is Expected From Manhattan D.A.**\
 `District Attorney Alvin L. Bragg’s submission may remain confidential until the judge levies his punishment on July 11.`\
 https://nytimes.com/2024/07/01/nyregion/trump-sentence-hush-money.html
