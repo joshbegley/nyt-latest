@@ -1,3 +1,7 @@
+**Ismail Kadare, Whose Novels Brought Albania’s Plight to the World, Dies at 88**\
+`He was compared to Orwell and Kafka, and walked a political tightrope with works of veiled criticism for his totalitarian state.`\
+https://nytimes.com/2024/07/01/obituaries/ismail-kadare-dead.html
+
 **Trump Awaits Immunity Ruling, and the French Far Right Wins Big**\
 `Plus, Hurricane Beryl threatens the Caribbean.`\
 https://nytimes.com/2024/07/01/podcasts/supreme-court-immunity-france-election.html
