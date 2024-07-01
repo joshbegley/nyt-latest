@@ -1,3 +1,11 @@
+**USA Today’s Top Editor Abruptly Steps Down**\
+`Terence Samuel, a veteran journalist, had been in the role for a year.`\
+https://nytimes.com/2024/07/01/business/media/usa-today-terence-samuel.html
+
+**How Much Do You Know About the American Revolution?**\
+`This short quiz tests your knowledge of certain Revolutionary War events and books about the era.`\
+https://nytimes.com/interactive/2024/07/01/books/review/american-revolution-quiz.html
+
 **Thomas and Alito took part in the case despite calls for their recusal.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/07/01/us/trump-immunity-supreme-court/thomas-and-alito-took-part-in-the-case-despite-calls-for-their-recusal
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/01/us/politics/supreme-court-trump-immunity.html
 **For South Africa’s Cabinet, Bigger May Not Mean Better**\
 `To accommodate a broad and diverse alliance of parties, President Cyril Ramaphosa increased the size of his executive team. Now the challenge is getting a diverse group of politicians to agree.`\
 https://nytimes.com/2024/07/01/world/africa/south-africa-largest-cabinet-cyril-ramaphosa.html
-
-**Read the Supreme Court’s Ruling on Immunity**\
-`The court rules that former presidents have absolute immunity for core constitutional powers, and are also entitled to at least a presumption of immunity for official acts.`\
-https://nytimes.com/interactive/2024/07/01/us/scotus-immunity.html
-
-**Supreme Court Declines to Rule on Tech Platforms’ Free Speech Rights**\
-`The justices returned both cases, which concerned state laws that supporters said were aimed at “Silicon Valley censorship,” to lower courts. Critics had said the laws violated the sites’ First Amendment rights.`\
-https://nytimes.com/2024/07/01/us/supreme-court-free-speech-social-media.html
 

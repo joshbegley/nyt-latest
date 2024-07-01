@@ -1,3 +1,11 @@
+**USA Today’s Top Editor Abruptly Steps Down**\
+`Terence Samuel, a veteran journalist, had been in the role for a year.`\
+https://nytimes.com/2024/07/01/business/media/usa-today-terence-samuel.html
+
+**How Much Do You Know About the American Revolution?**\
+`This short quiz tests your knowledge of certain Revolutionary War events and books about the era.`\
+https://nytimes.com/interactive/2024/07/01/books/review/american-revolution-quiz.html
+
 **Thomas and Alito took part in the case despite calls for their recusal.**\
 `By Adam Liptak`\
 https://nytimes.com/live/2024/07/01/us/trump-immunity-supreme-court/thomas-and-alito-took-part-in-the-case-despite-calls-for-their-recusal
