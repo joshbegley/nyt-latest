@@ -27,7 +27,7 @@ https://nytimes.com/2024/07/01/opinion/cocoa-farmers-chocolate-prices.html
 https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-debate-polls
 
 **Jury Near Boston Deadlocks in Murder Case Against Karen Read**\
-`The jurors said they were “deeply divided” over whether Ms. Read killed her boyfriend, a Boston police officer, after a night out drinking.`\
+`The jurors said they were “deeply divided” over whether Ms. Read killed her boyfriend, a Boston police officer; prosecutors said they would try the case again.`\
 https://nytimes.com/2024/07/01/us/karen-read-murder-trial.html
 
 **Trump Sentencing Recommendation Is Expected From Manhattan D.A.**\
