@@ -1,3 +1,7 @@
+**Wordle Review No. 1,108, July 1, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/01/crosswords/wordle-review-1108.html
+
 **What’s on TV This Week: Shark Week and Macy’s Firework Show**\
 `Discovery airs its annual lineup of ocean terrors. And NBC airs the annual firework show in New York City.`\
 https://nytimes.com/2024/07/01/arts/television/whats-on-tv-this-week-shark-week-and-macys-firework-show.html

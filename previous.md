@@ -1,3 +1,7 @@
+**Wordle Review No. 1,108, July 1, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/01/crosswords/wordle-review-1108.html
+
 **What’s on TV This Week: Shark Week and Macy’s Firework Show**\
 `Discovery airs its annual lineup of ocean terrors. And NBC airs the annual firework show in New York City.`\
 https://nytimes.com/2024/07/01/arts/television/whats-on-tv-this-week-shark-week-and-macys-firework-show.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/06/30/arts/television/interview-with-the-vampire-ben-da
 **‘House of the Dragon’ Season 2, Episode 3 Recap: Let’s Talk**\
 `Rhaenyra acts on a risky hope that cooler heads might prevail. But are there really any cool heads left?`\
 https://nytimes.com/2024/06/30/arts/television/house-of-the-dragon-recap-episode-3.html
-
-**Utica Residents Grill Mayor After Police Killing of 13-Year-Old Boy**\
-`An officer in Utica, N.Y., fatally shot the boy, Nyah Mway, after he brandished what the officer believed was a gun. At a community meeting, residents called the killing “an injustice.”`\
-https://nytimes.com/2024/06/30/nyregion/utica-police-teen-shooting.html
 
