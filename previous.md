@@ -1,3 +1,15 @@
+**What the Supreme Court’s Immunity Decision Means for Trump**\
+`The decision most likely delays Donald Trump’s Jan. 6 case past the election, and if he wins in November, people close to him expect the Justice Department to drop the charges.`\
+https://nytimes.com/2024/07/01/us/politics/trump-supreme-court-immunity.html
+
+**The Problem in Plain Sight**\
+`Voters worried about Biden’s age long before Washington Democrats were willing to talk about it.`\
+https://nytimes.com/2024/07/01/us/politics/biden-age-democrats.html
+
+**Biden Will Give Remarks on the Supreme Court’s Immunity Ruling**\
+`President Biden’s appearance will be closely watched after his debate performance in Atlanta raised questions about his acuity.`\
+https://nytimes.com/2024/07/01/us/politics/biden-address-trump-supreme-court.html
+
 **The Supreme Court Granted Trump Substantial Immunity**\
 `Also, the Biden campaign is scrambling to reassure donors. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/07/01/briefing/supreme-court-immunity-biden-campaign-donors.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/01/world/americas/hurricane-beryl-grenada-carriacou.
 **Tuesday Briefing: Top Court Gives Trump Significant Immunity**\
 `Plus, what’s next for France.`\
 https://nytimes.com/2024/07/01/briefing/supreme-court-immunity-donald-trump.html
-
-**Abortion Rights Supporters Put a Winning Strategy to the Test in Arkansas**\
-`Organizers have until Friday to collect enough signatures to put abortion access on the ballot this fall in a state where conservative and evangelical values run deep.`\
-https://nytimes.com/2024/07/01/us/politics/arkansas-abortion-ballot-measure.html
-
-**Election 2024 Polls: Arizona**\
-`See the latest election polls and polling averages for Arizona.`\
-https://nytimes.com/interactive/2024/us/elections/polls-president-arizona.html
-
-**Election 2024 Polls: Wisconsin**\
-`See the latest election polls and polling averages for Wisconsin.`\
-https://nytimes.com/interactive/2024/us/elections/polls-president-wisconsin.html
 
