@@ -1,3 +1,7 @@
+**What’s on TV This Week: Shark Week and Macy’s Firework Show**\
+`Discovery airs its annual lineup of ocean terrors. And NBC airs the annual firework show in New York City.`\
+https://nytimes.com/2024/07/01/arts/television/whats-on-tv-this-week-shark-week-and-macys-firework-show.html
+
 **Boeing Agrees to Buy Spirit AeroSystems, a Longtime Supplier**\
 `The multibillion-dollar deal will reverse a decision the plane maker made two decades ago to outsource production of key parts to independent suppliers.`\
 https://nytimes.com/2024/07/01/business/boeing-spirit-aerosystems-acquisition.html
