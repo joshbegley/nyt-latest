@@ -1,3 +1,7 @@
+**Shay Youngblood, Influential Black Author and Playwright, Dies at 64**\
+`She wrote memorably about her upbringing by a circle of maternal elders and the life lessons they imparted, and of her yearning for the mother she lost.`\
+https://nytimes.com/2024/07/01/books/shay-youngblood-dead.html
+
 **Young Thug’s Gang Trial Is Paused Because of Judge’s Secret Meeting**\
 `The much-delayed case was halted indefinitely to determine whether the judge should recuse himself after meeting with an uncooperative witness.`\
 https://nytimes.com/2024/07/01/arts/music/young-thug-ysl-gang-trial-paused.html
