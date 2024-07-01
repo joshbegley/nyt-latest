@@ -1,3 +1,7 @@
+**Hurricane Beryl Flattens Grenada’s Carriacou Island**\
+`Officials said the Category 4 storm caused “extreme” damage there and on the neighboring island of Petite Martinique as it made landfall Monday.`\
+https://nytimes.com/2024/07/01/world/americas/hurricane-beryl-grenada-carriacou.html
+
 **Tuesday Briefing: Top Court Gives Trump Significant Immunity**\
 `Plus, what’s next for France.`\
 https://nytimes.com/2024/07/01/briefing/supreme-court-immunity-donald-trump.html
