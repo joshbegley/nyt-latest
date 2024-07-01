@@ -1,3 +1,7 @@
+**Contentious Court Rulings: Immunity, Regulation and the Homeless**\
+`Readers discuss some of the major decisions at the end of the court’s term.`\
+https://nytimes.com/2024/07/01/opinion/letters/supreme-court-immunity-regulation-homeless.html
+
 **Debris Found in North Carolina Came From SpaceX Dragon, NASA Says**\
 `An object found on a hiking trail west of Asheville, N.C., had traveled to the International Space Station, the space agency said.`\
 https://nytimes.com/2024/07/01/science/space-debris-north-carolina-spacex.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/climate/new-mexico-fire-floods.html
 **Anticipation and Family Members of Some Justices Filled the Court for the Momentous Decision**\
 `The final day of the current Supreme Court term included some of the most eagerly awaited decisions.`\
 https://nytimes.com/2024/07/01/us/politics/supreme-court-justice-family-immunity.html
-
-**The Supreme Court Helps Trump — and Future Presidents — Dodge Accountability**\
-`The rule of law is perhaps entirely in the hands of the American people.`\
-https://nytimes.com/2024/06/25/opinion/trump-immunity-ruling-scotus.html
 

@@ -1,3 +1,7 @@
+**Contentious Court Rulings: Immunity, Regulation and the Homeless**\
+`Readers discuss some of the major decisions at the end of the court’s term.`\
+https://nytimes.com/2024/07/01/opinion/letters/supreme-court-immunity-regulation-homeless.html
+
 **Debris Found in North Carolina Came From SpaceX Dragon, NASA Says**\
 `An object found on a hiking trail west of Asheville, N.C., had traveled to the International Space Station, the space agency said.`\
 https://nytimes.com/2024/07/01/science/space-debris-north-carolina-spacex.html
