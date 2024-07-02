@@ -1,3 +1,7 @@
+**At 100, the Intergalactic Jazz Hero Marshall Allen Is Still on a Mission**\
+`The Sun Ra Arkestra saxophonist, who remains captivated by the power of sound, is an inspiring onstage presence.`\
+https://nytimes.com/2024/07/02/arts/music/marshall-allen-sun-ra-arkestra.html
+
 **In a Volatile Term, a Fractured Supreme Court Remade America**\
 `Amid signs of dysfunction and disarray, Chief Justice John Roberts reasserted his authority, while the influence of Justices Clarence Thomas and Samuel Alito waned.`\
 https://nytimes.com/2024/07/02/us/politics/supreme-court-term-decisions.html
