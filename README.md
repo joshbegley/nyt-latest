@@ -1,3 +1,7 @@
+**Severe Turbulence on Air Europa Flight Fractures Necks and Skulls**\
+`Four passengers were in intensive care after the flight from Spain to Uruguay hit turbulence that injured dozens. The plane made an emergency landing in Brazil.`\
+https://nytimes.com/2024/07/01/world/americas/air-europa-flight-turbulence.html
+
 **June Leaf, Artist Who Explored the Female Form, Dies at 94**\
 `Womanly power was a recurring theme of her work, expressed in idiosyncratic sculpture and paintings that did not align with prevailing trends.`\
 https://nytimes.com/2024/07/01/arts/june-leaf-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/style/jill-biden-vogue-cover.html
 **Doctors describe moving hundreds of patients from a hospital in the new evacuation zone.**\
 `By Ang Li and Ephrat Livni`\
 https://nytimes.com/live/2024/07/01/world/israel-gaza-war-hamas/doctors-describe-moving-hundreds-of-patients-from-a-hospital-in-the-new-evacuation-zone
-
-**Trump Amplifies Calls to Jail Top Elected Officials, Invokes Military Tribunals**\
-`A post that Mr. Trump circulated on Sunday called for Liz Cheney to be prosecuted by a military court reserved for enemy combatants and war criminals.`\
-https://nytimes.com/2024/07/01/us/politics/trump-liz-cheney-treason-jail.html
 
