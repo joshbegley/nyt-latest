@@ -24,7 +24,7 @@ https://nytimes.com/athletic/5610431/2024/07/02/nhl-free-agency-best-players-ava
 
 **How Media Outlets on the Left and Right Covered the Trump Immunity Decision**\
 `Liberal outlets criticized the ruling as a biased move from a conservative Supreme Court. Conservative commentators admonished Democrats for opposing it.`\
-https://nytimes.com/2024/07/02/business/media/partisan-coverage-supreme-court-trump-immunity.html
+https://nytimes.com/2024/07/02/business/media/supreme-court-trump-immunity-media-coverage.html
 
 **Study Finds Alaskan Ice Field Melting at an ‘Incredibly Worrying’ Pace**\
 `The speed of decline in the Juneau Ice Field, an expanse of 1,050 interconnected glaciers, has doubled in recent decades, scientists discovered.`\
