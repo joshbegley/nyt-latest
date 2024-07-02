@@ -1,3 +1,11 @@
+**'The more I get injured, the more I learn about myself': Bianca Andreescu takes it in her stride**\
+`Bianca Andreescu's return to her best tennis started with thinking about it as little as possible`\
+https://nytimes.com/athletic/5588622/2024/07/02/bianca-andreescu-interview-tennis-injuries/
+
+**Johnston: Inside Lightning-Stamkos split — reminder that in NHL, business trumps brotherhood**\
+`The Lightning on Tuesday signed Victor Hedman to a contract for the same term and salary as the one Stamkos signed in Nashville.`\
+https://nytimes.com/athletic/5612549/2024/07/02/lightning-stamkos-hedman-contracts/
+
 **Yes, the Starliner Is Stuck in Space**\
 `This isn’t how the new era of space was billed.`\
 https://nytimes.com/live/2024/07/02/opinion/thepoint/yes-the-starliner-is-stuck-in-space
