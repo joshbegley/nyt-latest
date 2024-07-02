@@ -1,3 +1,7 @@
+**A Jewish Teen’s Diary Recounts Pain and Resilience in a Nazi Ghetto**\
+`In an online exhibition, the YIVO Institute for Jewish Research will explore the account of Yitskhok Rudashevski. He was 13 when the Germans took over Vilnius, Lithuania.`\
+https://nytimes.com/2024/07/02/arts/jewish-teen-yitskhok-rudashevski-nazi.html
+
 **Wolves confirm signing of Brazilian defender Lima**\
 `Wolverhampton Wanderers have completed the signing of Brazilian defender Pedro Lima from Sport Recife.`\
 https://nytimes.com/athletic/5612153/2024/07/02/pedro-lima-wolves-transfer/
