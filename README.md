@@ -1,3 +1,11 @@
+**Paramount and Skydance Are Said to Resume Merger Talks**\
+`Just weeks after the two media companies scuttled their talks about a potential deal, they have resumed their conversations.`\
+https://nytimes.com/2024/07/02/business/media/paramount-skydance-merger-talks.html
+
+**Ex-49er Tashaun Gipson suspended 6 games**\
+`Gipson, 33, spent the past two seasons with the San Francisco 49ers and started in the Super Bowl against the Kansas City Chiefs.`\
+https://nytimes.com/athletic/5612621/2024/07/02/tashaun-gipson-suspension-nfl/
+
 **Julián Castro, a 2020 Opponent of Biden, Says He Should Step Aside**\
 `Mr. Castro, who was criticized for remarks questioning Mr. Biden’s memory in a 2020 primary debate, said Democrats should find a different candidate.`\
 https://nytimes.com/2024/07/02/us/politics/julian-castro-biden-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5611598/2024/07/02/penguins-vladimir-tarasenko-stev
 **Lloyd: Cavs' gamble on Donovan Mitchell pays off, and city of Cleveland is the big winner**\
 `Mitchell's decision to stay and sign a 3-year, $150 million extension means the Cavs won their trade with Utah (after taking a huge risk).`\
 https://nytimes.com/athletic/5612490/2024/07/02/donovan-mitchell-cleveland-cavaliers-cavs-extension/
-
-**Meloni Condemns Fascist Nostalgia Amid Scandal in Her Party’s Youth Wing**\
-`A news report used a hidden camera to show members of the youth arm of Brothers of Italy glorifying fascism.`\
-https://nytimes.com/2024/07/02/world/europe/meloni-political-party-youth-wing-facism.html
-
-**Turkey's Orkun Kokcu out of Euro 2024 quarter-final through suspension**\
-`Turkey midfielder Orkun Kokcu will miss his side’s European Championship quarter-final against the Netherlands through suspension.`\
-https://nytimes.com/athletic/5612568/2024/07/02/orkun-kokcu-turkey-netherlands-euro-2024/
 
