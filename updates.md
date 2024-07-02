@@ -1,3 +1,7 @@
+**Presidential Immunity**\
+`What the Supreme Court’s ruling means for Donald Trump, and how it may reshape presidential power for years to come.`\
+https://nytimes.com/2024/07/02/briefing/presidential-immunity-supreme-court-trump-biden.html
+
 **North Korea’s New Must-Have Accessory: The Kim Jong-un Pin**\
 `With the introduction of the pin, Mr. Kim is said to be elevating his personality cult to the level once reserved for his father and grandfather.`\
 https://nytimes.com/2024/07/02/world/asia/north-korea-kim-jong-un-pin.html
