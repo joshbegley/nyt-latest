@@ -1,3 +1,7 @@
+**The Briefing: Romania 0 Netherlands 3 - Stylish Dutch through to quarter-finals as Gakpo chases Golden Boot**\
+`Our writers break down the key moments from the last 16 tie between Romania and the Netherlands in Munich`\
+https://nytimes.com/athletic/5610917/2024/07/02/romania-netherlands-euro-2024-result-analysis/
+
 **Burnley in advanced talks to appoint Scott Parker as new manager**\
 `Burnley are in advanced talks to appoint Scott Parker as their new manager.`\
 https://nytimes.com/athletic/5611966/2024/07/02/burnley-in-advanced-talks-to-appoint-scott-parker-as-new-manager/

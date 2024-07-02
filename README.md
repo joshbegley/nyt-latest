@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5610917/2024/07/02/romania-netherlands-euro-2024-re
 https://nytimes.com/2024/07/02/us/politics/lloyd-doggett-biden-withdraw.html
 
 **Inside the VAR review of Uruguay's winning goal against the USMNT**\
-`The lines on a screen that determined the U.S.' Copa America fate `\
+`The lines on a screen that determined the host nation's Copa America fate `\
 https://nytimes.com/athletic/5611624/2024/07/02/uruguays-controversial-winning-goal-usmnt-explained/
 
 **How Tom Hanks’s Son Spawned a Hateful Meme Online**\
