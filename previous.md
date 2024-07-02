@@ -1,3 +1,7 @@
+**Dozens Killed in Stampede at Religious Event in North India**\
+`Victims from a stampede at a religious event in the northern state of Uttar Pradesh in India were taken to a local hospital.`\
+https://nytimes.com/video/world/asia/100000009551124/india-stampede-religious-event.html
+
 **Elon Musk’s Politics May Be Pushing Some Buyers Away From Tesla**\
 `The Tesla chief executive’s polarizing statements have alienated some potential customers and may be partly responsible for a recent slump in sales.`\
 https://nytimes.com/2024/07/02/business/elon-musk-politics-tesla-sales.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/02/briefing/presidential-immunity-supreme-court-trum
 **North Korea’s New Must-Have Accessory: The Kim Jong-un Pin**\
 `With the introduction of the pin, Mr. Kim is said to be elevating his personality cult to the level once reserved for his father and grandfather.`\
 https://nytimes.com/2024/07/02/world/asia/north-korea-kim-jong-un-pin.html
-
-**Trump Wins Broad Immunity**\
-`What the Supreme Court decision means for the former president, and for the presidency itself.`\
-https://nytimes.com/2024/07/02/podcasts/the-daily/trump-immunity.html
 

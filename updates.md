@@ -1,3 +1,7 @@
+**Dozens Killed in Stampede at Religious Event in North India**\
+`Victims from a stampede at a religious event in the northern state of Uttar Pradesh in India were taken to a local hospital.`\
+https://nytimes.com/video/world/asia/100000009551124/india-stampede-religious-event.html
+
 **Stampede at Religious Gathering in Northern India Kills at Least 50**\
 `The crush happened in hot and crowded conditions in Uttar Pradesh State, and a medical official said the death toll could rise.`\
 https://nytimes.com/2024/07/02/world/asia/india-stampede-religious-event.html
