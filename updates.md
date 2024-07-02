@@ -38,6 +38,11 @@ https://nytimes.com/athletic/5612243/2024/07/02/blackhawks-artyom-levshunov-nhl-
 `\
 https://nytimes.com/athletic/5612243/2024/07/02/blackhawks-artyom-levshunov-nhl-michigan-state/
 
+**Turn pro or return to school? Blackhawks, Artyom Levshunov have a decision to make**\
+`Dissecting the pros and cons of Levshunov signing and turning pro right away or delaying that for at least a year and returning to college.
+`\
+https://nytimes.com/athletic/5612243/2024/07/02/blackhawks-artyom-levshunov-nhl-michigan-state/
+
 **Clark vs. Taurasi draws major WNBA audience on ESPN**\
 `The Fever-Mercury game peaked at 2.7 million viewers.`\
 https://nytimes.com/athletic/5612447/2024/07/02/fever-mercury-caitlin-clark-diana-taurasi/
