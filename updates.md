@@ -1,3 +1,7 @@
+**Orban, a Staunch Russia Ally and E.U. Agitator, Visits Ukraine**\
+`Prime Minister Viktor Orban of Hungary, who has resisted European military and financial aid for Ukraine, traveled to the country to meet with President Volodymyr Zelensky.`\
+https://nytimes.com/2024/07/02/world/europe/orban-hungary-ukraine-zelensky.html
+
 **7,300 Migrants to Get Food Debit Cards as New York City Expands Program**\
 `City officials said a pilot program had reduced the costs of feeding migrants, and that fraud prevention measures were ensuring that the cards were being used properly.`\
 https://nytimes.com/2024/07/02/nyregion/migrant-debit-cards.html
