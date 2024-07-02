@@ -1,3 +1,7 @@
+**‘Mom, I’m Sorry’: The Week 2 Winner of Our Summer Reading Contest**\
+`Kathryne Hong, 16, writes about how reading a piece on sexism in medicine changed how she understood her mother’s physical distress.`\
+https://nytimes.com/2024/07/02/learning/mom-im-sorry-the-week-2-winner-of-our-summer-reading-contest.html
+
 **Should a Gusher of Donations Calm Democrats?**\
 `President Biden’s campaign said it had raised $127 million last month, but big donors are still anxious after his debate performance.`\
 https://nytimes.com/2024/07/02/business/dealbook/biden-donations-calm-democrats.html
