@@ -1,3 +1,23 @@
+**7,300 Migrants to Get Food Debit Cards as New York City Expands Program**\
+`City officials said a pilot program had reduced the costs of feeding migrants, and that fraud prevention measures were ensuring that the cards were being used properly.`\
+https://nytimes.com/2024/07/02/nyregion/migrant-debit-cards.html
+
+**Where to Watch July 4 Fireworks Around New York City**\
+`Fireworks are coming back to the Hudson River for the first time in more than 10 years.`\
+https://nytimes.com/2024/07/02/nyregion/watch-fireworks-around-new-york.html
+
+**What Christine Left Behind**\
+`Christine Fields’s family was tight-knit. But after she died in childbirth, grief and the prospect of a multimillion-dollar settlement threatened to tear it apart.`\
+https://nytimes.com/2024/07/02/nyregion/christine-fields-woodhull-childbirth-death.html
+
+**With Unusual Stories, He Finds a Curious Audience**\
+`Thanks to a beat without boundaries, Steven Kurutz can follow trends wherever they take him.`\
+https://nytimes.com/2024/07/02/insider/steven-kurutz-reporting.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/02/crosswords/spelling-bee-forum.html
+
 **North Korea’s Latest Missile Test Suggests Arms Race With South**\
 `The North said it tested a missile with a “super-large warhead” on Monday. The South has similar missiles, meant to target underground bunkers.`\
 https://nytimes.com/2024/07/02/world/asia/north-korea-missile-test.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/07/02/pageoneplus/corrections-july-2-2024.html
 **Quotation of the Day: She Learned How to Use a New Prosthetic Limb, and It Learned From Her**\
 `Quotation of the Day for Tuesday, July 2, 2024.`\
 https://nytimes.com/2024/07/02/pageoneplus/quotation-of-the-day-she-learned-how-to-use-a-new-prosthetic-limb-and-it-learned-from-her.html
-
-**From Courtroom to Downing Street: Keir Starmer, Low-Key Lawyer, Is on Cusp of Power**\
-`The Labour leader still struggles with the “performative side” of British politics, even as he has pulled his party to the center.`\
-https://nytimes.com/2024/07/02/world/europe/keir-starmer-uk-election.html
-
-**Tuesday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2024/07/02/briefing/trump-ruling-france-gaza.html
-
-**Severe Turbulence on Air Europa Flight Fractures Necks and Skulls**\
-`Four passengers were in intensive care after the flight from Spain to Uruguay hit turbulence that injured dozens. The plane made an emergency landing in Brazil.`\
-https://nytimes.com/2024/07/01/world/americas/air-europa-flight-turbulence.html
-
-**June Leaf, Artist Who Explored the Female Form, Dies at 94**\
-`Womanly power was a recurring theme of her work, expressed in idiosyncratic sculpture and paintings that did not align with prevailing trends.`\
-https://nytimes.com/2024/07/01/arts/june-leaf-dead.html
-
-**Tried to Buy Time**\
-`Josh Goodman sees things clearly.`\
-https://nytimes.com/2024/07/01/crosswords/daily-puzzle-2024-07-02.html
 
