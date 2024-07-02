@@ -1,3 +1,11 @@
+**Should a Gusher of Donations Calm Democrats?**\
+`President Biden’s campaign said it had raised $127 million last month, but big donors are still anxious after his debate performance.`\
+https://nytimes.com/2024/07/02/business/dealbook/biden-donations-calm-democrats.html
+
+**German Court Fines Far-Right Politician for Using Nazi Phrase, Again**\
+`In his ruling against Björn Höcke, the judge said it was “essential that we counter the danger of old Nazi-era symbols from becoming acceptable again.”`\
+https://nytimes.com/2024/07/02/world/europe/germany-court-fine-nazi-phrase-afd.html
+
 **Presidential Immunity**\
 `What the Supreme Court’s ruling means for Donald Trump, and how it may reshape presidential power for years to come.`\
 https://nytimes.com/2024/07/02/briefing/presidential-immunity-supreme-court-trump-biden.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/02/world/middleeast/israel-military-gaza-cease-fire.
 **The Remasters: No One Needs a Watch**\
 `Did you know the wristwatch was designed and created for women? In this episode, Zoe Abelson discusses the evolving world of watches with three of the industry’s biggest hitters: the founder of Dimepiece, Brynn Wallner; Wei Koh, founder of Revolution Watch and The Rake magazine; and Yoni Ben-Yehuda, head of watches at Material Good.`\
 https://nytimes.com/paidpost/audemars-piguet/the-remasters/the-remasters-no-one-needs-a-watch.html
-
-**Biden Campaign, Aiming to Show Post-Debate Stability, Unveils June Fund-Raising Sum**\
-`The campaign, in a release weeks before the federal filing deadline, said it had raised $127 million in June together with the Democratic Party.`\
-https://nytimes.com/2024/07/02/us/politics/biden-campaign-finance.html
-
-**Biden Administration to Announce First National Heat Protections for Workers**\
-`The proposed regulation comes as a punishing heat wave descends on California and Oregon.`\
-https://nytimes.com/2024/07/02/climate/heat-biden-workers-protection.html
 

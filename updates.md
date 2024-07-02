@@ -1,3 +1,11 @@
+**Should a Gusher of Donations Calm Democrats?**\
+`President Biden’s campaign said it had raised $127 million last month, but big donors are still anxious after his debate performance.`\
+https://nytimes.com/2024/07/02/business/dealbook/biden-donations-calm-democrats.html
+
+**German Court Fines Far-Right Politician for Using Nazi Phrase, Again**\
+`In his ruling against Björn Höcke, the judge said it was “essential that we counter the danger of old Nazi-era symbols from becoming acceptable again.”`\
+https://nytimes.com/2024/07/02/world/europe/germany-court-fine-nazi-phrase-afd.html
+
 **Presidential Immunity**\
 `What the Supreme Court’s ruling means for Donald Trump, and how it may reshape presidential power for years to come.`\
 https://nytimes.com/2024/07/02/briefing/presidential-immunity-supreme-court-trump-biden.html
