@@ -1,3 +1,7 @@
+**Elon Musk’s Politics May Be Pushing Some Buyers Away From Tesla**\
+`The Tesla chief executive’s polarizing statements have alienated some potential customers and may be partly responsible for a recent slump in sales.`\
+https://nytimes.com/2024/07/02/business/elon-musk-politics-tesla-sales.html
+
 **As Israel prepares to focus on ‘targeted raids,’ it is telling people to leave a large swath of Gaza.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/07/02/world/israel-gaza-war-hamas/as-israel-prepares-to-focus-on-targeted-raids-it-is-telling-people-to-leave-a-large-swath-of-gaza
