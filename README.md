@@ -1,3 +1,7 @@
+**A Jewish Teen’s Diary Recounts Pain and Resilience in a Nazi Ghetto**\
+`In an online exhibition, the YIVO Institute for Jewish Research will explore the account of Yitskhok Rudashevski. He was 13 when the Germans took over Vilnius, Lithuania.`\
+https://nytimes.com/2024/07/02/arts/jewish-teen-yitskhok-rudashevski-nazi.html
+
 **Wolves confirm signing of Brazilian defender Lima**\
 `Wolverhampton Wanderers have completed the signing of Brazilian defender Pedro Lima from Sport Recife.`\
 https://nytimes.com/athletic/5612153/2024/07/02/pedro-lima-wolves-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/02/world/europe/evan-gershkovich-russia-detention-un
 **Bruins offseason depth chart 1.0: Nearly complete save for one big ticket**\
 `After signing big tickets Elias Lindholm and Nikita Zadorov on Monday, the Bruins mostly appear to have a set roster for 2024-25.`\
 https://nytimes.com/athletic/5611720/2024/07/02/bruins-offseason-depth-chart-swayman/
-
-**An All ‘Independence’ Playlist for the Fourth of July**\
-`Listen to songs by Martina McBride, Destiny’s Child, Kelly Clarkson and more.`\
-https://nytimes.com/2024/07/02/arts/music/amplifier-newsletter-independence-songs.html
 
