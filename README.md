@@ -1,3 +1,7 @@
+**'The more I get injured, the more I learn about myself': Bianca Andreescu takes it in her stride**\
+`Bianca Andreescu's return to her best tennis started with thinking about it as little as possible`\
+https://nytimes.com/athletic/5588622/2024/07/02/bianca-andreescu-interview-tennis-injuries/
+
 **Yes, the Starliner Is Stuck in Space**\
 `This isn’t how the new era of space was billed.`\
 https://nytimes.com/live/2024/07/02/opinion/thepoint/yes-the-starliner-is-stuck-in-space
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/02/business/media/paramount-skydance-merger-talks.ht
 **Ex-49er Tashaun Gipson suspended 6 games**\
 `Gipson, 33, spent the past two seasons with the San Francisco 49ers and started in the Super Bowl against the Kansas City Chiefs.`\
 https://nytimes.com/athletic/5612621/2024/07/02/tashaun-gipson-suspension-nfl/
-
-**Julián Castro, a 2020 Opponent of Biden, Says He Should Step Aside**\
-`Mr. Castro, who was criticized for remarks questioning Mr. Biden’s memory in a 2020 primary debate, said Democrats should find another candidate.`\
-https://nytimes.com/2024/07/02/us/politics/julian-castro-biden-election.html
 
