@@ -1,3 +1,7 @@
+**Powell Cites ‘Real Progress’ as Central Bankers Assess Inflation Fight**\
+`Jerome H. Powell, the Fed chair, and Christine Lagarde, the European Central Bank chief, sounded optimistic about recent inflation data but reiterated the need for more confidence for rate cuts.`\
+https://nytimes.com/2024/07/02/business/fed-ecb-inflation-rates.html
+
 **Hollinger: NBA's apron era marks end of exceptionalism + free-agency winners, losers**\
 `The new CBA is making it impossible for teams like the Clippers, Warriors and Lakers to spend their way out of their mistakes.`\
 https://nytimes.com/athletic/5610578/2024/07/02/nba-free-agency-winners-losers-apron-era/
@@ -12,7 +16,7 @@ https://nytimes.com/2024/07/02/us/affirmative-action-lawsuit.html
 
 **A Democratic Senator criticized the Biden campaign over its debate pushback.**\
 `Senator Peter Welch of Vermont said that the campaign should acknowledge concerns about President Biden’s poor debate performance, not dismiss them.`\
-https://nytimes.com/live/2024/07/02/us/biden-trump-election/peter-welch-biden-debate
+https://nytimes.com/2024/07/02/us/politics/peter-welch-biden-debate.html
 
 **Even now, Klay Thompson is the star the Mavs never could sign before**\
 `Dallas has long struck out in its quest to sign free agents. But Klay Thompson is different — and so is this franchise.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/02/business/student-loan-nonpayment.html
 **The Bounce: Why Celtics ownership is selling at the perfect time**\
 `Zach Harper and Shams Charania catch you up on leaguewide news.`\
 https://nytimes.com/athletic/5611177/2024/07/02/celtics-ownership-sale-paul-george-76ers-thunder-clippers-shai-gilgeous-alexander-the-bounce/
-
-**Man City set to complete Savio transfer on five-year contract**\
-`Manchester City are set to sign Savinho, also known as Savio, on a five-year-contract.`\
-https://nytimes.com/athletic/5611695/2024/07/02/savio-man-city-transfer-news/
 
