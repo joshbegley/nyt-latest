@@ -1,3 +1,11 @@
+**Broncos mailbag: Submit questions for beat writer Nick Kosmider**\
+`What's on your mind as training camp and the preseason approach?`\
+https://nytimes.com/athletic/5612173/2024/07/02/submit-questions-broncos-mailbag-2/
+
+**Blues acquire Radek Faksa, Mathieu Joseph for future considerations from Stars, Senators**\
+`The Blues are acquiring forwards Radek Faksa (Dallas) and Mathieu Joseph (Ottawa) in trades, shoring up their bottom-six forwards. `\
+https://nytimes.com/athletic/5612063/2024/07/02/blues-trades-radek-faksa-mathieu-joseph/
+
 **A Jewish Teen’s Diary Recounts Pain and Resilience in a Nazi Ghetto**\
 `In an online exhibition, the YIVO Institute for Jewish Research will explore the account of Yitskhok Rudashevski. He was 13 when the Germans took over Vilnius, Lithuania.`\
 https://nytimes.com/2024/07/02/arts/jewish-teen-yitskhok-rudashevski-nazi.html
