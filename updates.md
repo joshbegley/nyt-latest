@@ -1,3 +1,7 @@
+**Wolves confirm signing of Brazilian defender Lima**\
+`Wolverhampton Wanderers have completed the signing of Brazilian defender Pedro Lima from Sport Recife.`\
+https://nytimes.com/athletic/5612153/2024/07/02/pedro-lima-wolves-transfer/
+
 **Marianne Williamson Calls for Open Convention to Decide Democratic Nomination**\
 `The self-help author is again trying to revive her own bid, despite losing the nomination to President Biden in March.`\
 https://nytimes.com/2024/07/02/us/politics/marianne-williamson-biden-democratic-nomination.html
