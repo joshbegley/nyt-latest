@@ -1,3 +1,11 @@
+**Israeli Generals, Low on Munitions, Want a Truce in Gaza**\
+`Israel’s military leadership wants a cease-fire with Hamas in case a bigger war breaks out in Lebanon, security officials say. It has also concluded that a truce would be the swiftest way to free hostages.`\
+https://nytimes.com/2024/07/02/world/middleeast/israel-military-gaza-cease-fire.html
+
+**The Remasters: No One Needs a Watch**\
+`Did you know the wristwatch was designed and created for women? In this episode, Zoe Abelson discusses the evolving world of watches with three of the industry’s biggest hitters: the founder of Dimepiece, Brynn Wallner; Wei Koh, founder of Revolution Watch and The Rake magazine; and Yoni Ben-Yehuda, head of watches at Material Good.`\
+https://nytimes.com/paidpost/audemars-piguet/the-remasters/the-remasters-no-one-needs-a-watch.html
+
 **Biden Campaign, Aiming to Show Post-Debate Stability, Unveils June Fund-Raising Sum**\
 `The campaign, in a release weeks before the federal filing deadline, said it had raised $127 million in June together with the Democratic Party.`\
 https://nytimes.com/2024/07/02/us/politics/biden-campaign-finance.html

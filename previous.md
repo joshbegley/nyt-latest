@@ -1,3 +1,11 @@
+**Israeli Generals, Low on Munitions, Want a Truce in Gaza**\
+`Israel’s military leadership wants a cease-fire with Hamas in case a bigger war breaks out in Lebanon, security officials say. It has also concluded that a truce would be the swiftest way to free hostages.`\
+https://nytimes.com/2024/07/02/world/middleeast/israel-military-gaza-cease-fire.html
+
+**The Remasters: No One Needs a Watch**\
+`Did you know the wristwatch was designed and created for women? In this episode, Zoe Abelson discusses the evolving world of watches with three of the industry’s biggest hitters: the founder of Dimepiece, Brynn Wallner; Wei Koh, founder of Revolution Watch and The Rake magazine; and Yoni Ben-Yehuda, head of watches at Material Good.`\
+https://nytimes.com/paidpost/audemars-piguet/the-remasters/the-remasters-no-one-needs-a-watch.html
+
 **Biden Campaign, Aiming to Show Post-Debate Stability, Unveils June Fund-Raising Sum**\
 `The campaign, in a release weeks before the federal filing deadline, said it had raised $127 million in June together with the Democratic Party.`\
 https://nytimes.com/2024/07/02/us/politics/biden-campaign-finance.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/02/opinion/joe-biden-lyndon-johnson-1968.html
 **Is America a City on a Hill or a Nation on the Precipice?**\
 `The messy, fascinating history of American exceptionalism has taken a strange turn.`\
 https://nytimes.com/2024/07/02/opinion/american-exceptionalism-reagan-biden-trump.html
-
-**Your Get-Out-of-Jail-Free Card Is Ready, Sir**\
-`The Nixonian theory of presidential power is now enshrined as constitutional law.`\
-https://nytimes.com/2024/07/02/opinion/supreme-court-presidential-immunity.html
-
-**The Supreme Court Creates a Lawless Presidency**\
-`It is increasingly clear that this court sees itself as something other than a participant in our democratic system.`\
-https://nytimes.com/2024/07/02/opinion/supreme-court-immunity-trump.html
 
