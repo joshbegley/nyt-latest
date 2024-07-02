@@ -1,3 +1,7 @@
+**The Uproar Over the Immunity Ruling**\
+`Lawyers and other readers discuss the landmark Supreme Court decision. Also: A ruling on corruption; doctors and abortion bans; religion in public schools.`\
+https://nytimes.com/2024/07/02/opinion/supreme-court-immunity-ruling-trump.html
+
 **MLB scouting notebook: Three under-the-radar trade candidates, and a Julio Rodríguez statistical deep dive**\
 `Andrea Arcadipane takes a close-up look at three trade deadline targets and also looks into reasons for Julio Rodríguez's struggles in 2024.`\
 https://nytimes.com/athletic/5611795/2024/07/02/mlb-scouting-notebook-trade-candidates-julio-rodriguez/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5609240/2024/07/02/penguins-nhl-draft-picks-highlig
 **USMNT's Copa America exit raises major questions. But is Pulisic the one to answer them?**\
 `As the best player on his nation’s roster, focus was always going to eventually fall on the AC Milan midfielder and U.S. captain`\
 https://nytimes.com/athletic/5610620/2024/07/02/pulisic-usmnt-copa-america-uruguay-elimination/
-
-**Nearly Half of Student Loan Borrowers Are Not Yet Paying Their Monthly Bill**\
-`Millions of people are overdue on their federal loans or still have them paused — and court rulings keep upending collection efforts.`\
-https://nytimes.com/2024/07/02/business/student-loan-nonpayment.html
 
