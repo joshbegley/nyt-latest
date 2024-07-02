@@ -1,3 +1,7 @@
+**North Korea’s New Must-Have Accessory: The Kim Jong-un Pin**\
+`With the introduction of the pin, Mr. Kim is said to be elevating his personality cult to the level once reserved for his father and grandfather.`\
+https://nytimes.com/2024/07/02/world/asia/north-korea-kim-jong-un-pin.html
+
 **Trump Wins Broad Immunity**\
 `What the Supreme Court decision means for the former president, and for the presidency itself.`\
 https://nytimes.com/2024/07/02/podcasts/the-daily/trump-immunity.html
