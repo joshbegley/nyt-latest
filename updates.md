@@ -1,3 +1,7 @@
+**June Leaf, Artist Who Explored the Female Form, Dies at 94**\
+`Womanly power was a recurring theme of her work, expressed in idiosyncratic sculpture and paintings that did not align with prevailing trends.`\
+https://nytimes.com/2024/07/01/arts/june-leaf-dead.html
+
 **Tried to Buy Time**\
 `Josh Goodman sees things clearly.`\
 https://nytimes.com/2024/07/01/crosswords/daily-puzzle-2024-07-02.html
