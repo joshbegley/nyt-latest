@@ -1,3 +1,7 @@
+**Unlicensed Therapist Used Wife’s Credentials to See Patients, Records Show**\
+`State records from investigations in Florida and Tennessee accuse Peggy Randolph of allowing her wife to use her licenses to see patients online. The scheme came to light after the wife died.`\
+https://nytimes.com/2024/07/02/us/social-worker-therapy-scam.html
+
 **Austria 1 Turkey 2: Missiles fall, records tumble - and the save of the tournament?**\
 `All the big talking points from the last 16 clash in Leipzig`\
 https://nytimes.com/athletic/5610923/2024/07/02/austria-turkey-euro-2024-analysis/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5612243/2024/07/02/blackhawks-artyom-levshunov-nhl-
 **Macron’s Rivals Say They’ll Fix France’s Economy, but Economists Are Skeptical**\
 `The far-right National Rally party and the left-wing New Popular Front are focusing on a cost-of-living crisis to woo voters, but their plans risk worsening France’s soaring deficit.`\
 https://nytimes.com/2024/07/02/business/france-economy-macron-national-rally.html
-
-**France’s Far-Right Party Has a Plan: Big on Ideas but Short on Details**\
-`Although the party, National Rally, has changed since its early days of overt racism and antisemitism, its basic philosophy remains: Immigrants are a threat to the country’s safety and economy,`\
-https://nytimes.com/2024/07/02/world/europe/france-national-rally-policies.html
 
