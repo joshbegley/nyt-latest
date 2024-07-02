@@ -31,7 +31,7 @@ https://nytimes.com/2024/07/02/world/middleeast/hezbollah-israel-blinken.html
 https://nytimes.com/2024/07/02/opinion/tariffs-trump-china-taxes.html
 
 **Swedish Grandparents Can Be Paid to Babysit Under New Law**\
-`The Nordic country’s generous social services system now allows parents to transfer a  portion of paid leave days to other non-parent caregivers.`\
+`The Nordic country’s generous social services system now allows parents to transfer a portion of paid leave days to other non-parent caregivers.`\
 https://nytimes.com/2024/07/02/world/europe/swedish-grandparents-parental-leave.html
 
 **Backing Biden, Pelosi Calls Questions About Debate Performance ‘Legitimate’**\
