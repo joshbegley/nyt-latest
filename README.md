@@ -1,3 +1,7 @@
+**Trump Continues to Delay Naming a Running Mate, Amid Biden Debate Fallout**\
+`Donald J. Trump has not named a running mate this week. He appears eager to avoid stepping on the controversy swirling around President Biden in the debate’s aftermath.`\
+https://nytimes.com/2024/07/02/us/politics/trump-vp-debate.html
+
 **Biden’s Lapses Are Increasingly Common, According to Some of Those in the Room**\
 `People who have spent time with President Biden over the last few months or so said the lapses appear to have grown more frequent, more pronounced and, after Thursday’s debate, more worrisome.`\
 https://nytimes.com/2024/07/02/us/politics/biden-lapses.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5612173/2024/07/02/submit-questions-broncos-mailbag
 **Blues acquire Radek Faksa, Mathieu Joseph for future considerations from Stars, Senators**\
 `The Blues are acquiring forwards Radek Faksa (Dallas) and Mathieu Joseph (Ottawa) in trades, shoring up their bottom-six forwards. `\
 https://nytimes.com/athletic/5612063/2024/07/02/blues-trades-radek-faksa-mathieu-joseph/
-
-**A Jewish Teen’s Diary Recounts Pain and Resilience in a Nazi Ghetto**\
-`In an online exhibition, the YIVO Institute for Jewish Research will explore the account of Yitskhok Rudashevski. He was 13 when the Germans took over Vilnius, Lithuania.`\
-https://nytimes.com/2024/07/02/arts/jewish-teen-yitskhok-rudashevski-nazi.html
 
