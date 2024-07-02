@@ -1,3 +1,11 @@
+**Cuomo, in New Ad, Accuses Pro-Palestinian Activists of Supporting Hamas**\
+`The one-minute commercial, which was created by a group formed by former Gov. Andrew M. Cuomo, seeks to bring attention to atrocities linked to Hamas.`\
+https://nytimes.com/2024/07/02/nyregion/cuomo-israel-hamas-ad.html
+
+**Swedish Grandparents Can Be Paid to Babysit Under New Law**\
+`The Nordic country’s generous social services system now allows parents to transfer a portion of paid leave days to other non-parent caregivers.`\
+https://nytimes.com/2024/07/02/world/europe/swedish-grandparents-parental-leave.html
+
 **Broncos mailbag: Submit questions for beat writer Nick Kosmider**\
 `What's on your mind as training camp and the preseason approach?`\
 https://nytimes.com/athletic/5612173/2024/07/02/submit-questions-broncos-mailbag-2/

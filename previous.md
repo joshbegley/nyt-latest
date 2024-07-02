@@ -1,3 +1,7 @@
+**Cuomo, in New Ad, Accuses Pro-Palestinian Activists of Supporting Hamas**\
+`The one-minute commercial, which was created by a group formed by former Gov. Andrew M. Cuomo, seeks to bring attention to atrocities linked to Hamas.`\
+https://nytimes.com/2024/07/02/nyregion/cuomo-israel-hamas-ad.html
+
 **Broncos mailbag: Submit questions for beat writer Nick Kosmider**\
 `What's on your mind as training camp and the preseason approach?`\
 https://nytimes.com/athletic/5612173/2024/07/02/submit-questions-broncos-mailbag-2/
@@ -27,14 +31,10 @@ https://nytimes.com/2024/07/02/world/middleeast/hezbollah-israel-blinken.html
 https://nytimes.com/2024/07/02/opinion/tariffs-trump-china-taxes.html
 
 **Swedish Grandparents Can Be Paid to Babysit Under New Law**\
-`The Nordic country’s generous social services system now allows parents to transfer a  portion of paid leave days to other non-parent caregivers.`\
+`The Nordic country’s generous social services system now allows parents to transfer a portion of paid leave days to other non-parent caregivers.`\
 https://nytimes.com/2024/07/02/world/europe/swedish-grandparents-parental-leave.html
 
 **Backing Biden, Pelosi Calls Questions About Debate Performance ‘Legitimate’**\
 `The former speaker said Trump told lies during the exchange, and it is fair to ask of both candidates: “Is this an episode or is this a condition?”`\
 https://nytimes.com/2024/07/02/us/politics/biden-debate-pelosi.html
-
-**Burnley in advanced talks to appoint Scott Parker as new manager**\
-`Burnley are in advanced talks to appoint Scott Parker as their new manager.`\
-https://nytimes.com/athletic/5611966/2024/07/02/burnley-in-advanced-talks-to-appoint-scott-parker-as-new-manager/
 
