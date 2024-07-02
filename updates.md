@@ -1,3 +1,7 @@
+**Breaking Down the Supreme Court’s Ruling on Trump’s Immunity**\
+`The Supreme Court’s decision to grant presidents immunity from prosecution over official actions is an extraordinary expansion of executive power.`\
+https://nytimes.com/video/us/politics/100000009550277/breaking-down-the-supreme-courts-ruling-on-trumps-immunity.html
+
 **Grilled Hot Dogs, Honey Mustard Potato Salad and Berry Sheet Cake**\
 `Alexa, play “The Stars and Stripes Forever.”`\
 https://nytimes.com/2024/07/02/dining/july-4th-food.html

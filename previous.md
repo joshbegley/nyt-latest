@@ -1,3 +1,7 @@
+**Breaking Down the Supreme Court’s Ruling on Trump’s Immunity**\
+`The Supreme Court’s decision to grant presidents immunity from prosecution over official actions is an extraordinary expansion of executive power.`\
+https://nytimes.com/video/us/politics/100000009550277/breaking-down-the-supreme-courts-ruling-on-trumps-immunity.html
+
 **Grilled Hot Dogs, Honey Mustard Potato Salad and Berry Sheet Cake**\
 `Alexa, play “The Stars and Stripes Forever.”`\
 https://nytimes.com/2024/07/02/dining/july-4th-food.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5610578/2024/07/02/nba-free-agency-winners-losers-a
 **How Uruguay's masterly man-marking shut the USMNT out of the Copa America**\
 `In what turned out to be a must-win game for them, the United States' inability to break down Uruguay's defence was ruinous `\
 https://nytimes.com/athletic/5610738/2024/07/02/usmnt-uruguay-tactical-analysis/
-
-**Lawsuit Challenges Affirmative Action in Hiring at Northwestern Law School**\
-`The complaint was filed a year after the Supreme Court struck down the use of racial and gender preferences in college admissions.`\
-https://nytimes.com/2024/07/02/us/affirmative-action-lawsuit.html
 
