@@ -1,3 +1,11 @@
+**Biden’s Lapses Have Increased, According to Some Insiders**\
+`Also, Donald Trump’s sentencing was delayed until September. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/07/02/briefing/president-biden-trump-sentencing-summer-vacations.html
+
+**Cody Gakpo is Netherlands' player of the Euros, can Arne Slot replicate it for Liverpool?**\
+`Cody Gakpo is Euro 2024's joint top-scorer playing off the left and doing it brilliantly, will Liverpool take note?`\
+https://nytimes.com/athletic/5609224/2024/07/02/cody-gakpo-player-of-euros/
+
 **Penguins' pursuit of Vladimir Tarasenko, Steve Mears leaves for Columbus and schedule release**\
 `The Penguins have had contact with free-agent forward Vladimir Tarasenko.`\
 https://nytimes.com/athletic/5611598/2024/07/02/penguins-vladimir-tarasenko-steve-mears-schedule/

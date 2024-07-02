@@ -1,3 +1,11 @@
+**Biden’s Lapses Have Increased, According to Some Insiders**\
+`Also, Donald Trump’s sentencing was delayed until September. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/07/02/briefing/president-biden-trump-sentencing-summer-vacations.html
+
+**Cody Gakpo is Netherlands' player of the Euros, can Arne Slot replicate it for Liverpool?**\
+`Cody Gakpo is Euro 2024's joint top-scorer playing off the left and doing it brilliantly, will Liverpool take note?`\
+https://nytimes.com/athletic/5609224/2024/07/02/cody-gakpo-player-of-euros/
+
 **Penguins' pursuit of Vladimir Tarasenko, Steve Mears leaves for Columbus and schedule release**\
 `The Penguins have had contact with free-agent forward Vladimir Tarasenko.`\
 https://nytimes.com/athletic/5611598/2024/07/02/penguins-vladimir-tarasenko-steve-mears-schedule/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5610923/2024/07/02/austria-turkey-euro-2024-analysi
 **Thousands Flee in Gaza as Israel Orders More Evacuations**\
 `The Israeli military says its campaign will soon become less intense, but Palestinians were once again racing to escape the fighting in southern Gaza, including Khan Younis.`\
 https://nytimes.com/2024/07/02/world/middleeast/gaza-evacuations-israel.html
-
-**Juventus in advanced talks to sign Khephren Thuram from Nice**\
-`Nice midfielder Khephren Thuram is in advanced talks to join Juventus on a five-year contract in a deal worth €20million (£16.`\
-https://nytimes.com/athletic/5612422/2024/07/02/khephren-thuram-nice-juventus-transfer-news/
-
-**U.S. Awards $504 Million for ‘Tech Hubs’ in Overlooked Regions**\
-`Biden administration officials hope the money will help propel technological innovation in areas that have historically received less government funding.`\
-https://nytimes.com/2024/07/02/us/politics/504-million-tech-hubs-overlooked-regions.html
 
