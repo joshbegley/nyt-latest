@@ -1,3 +1,7 @@
+**Robert Towne, Screenwriter of ‘Chinatown’ and More, Dies at 89**\
+`Celebrated for his mastery of dialogue, he also contributed (though without credit) to the scripts of “Bonnie and Clyde” and “The Godfather.”`\
+https://nytimes.com/2024/07/02/movies/robert-towne-dead.html
+
 **New Haitian Leader Visits Washington Seeking Additional Support**\
 `Haiti’s newly selected prime minister, Garry Conille, met with Democrats on Capitol Hill as well as Biden administration officials, seeking more help to combat the unrest in his country.`\
 https://nytimes.com/2024/07/02/us/politics/garry-conille-haiti-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/02/us/politics/biden-2024-presidential-race.html
 **Johnston: Inside Lightning-Stamkos split — reminder that in NHL, business trumps brotherhood**\
 `The Lightning on Tuesday signed Victor Hedman to a contract for the same term and salary as the one Stamkos signed in Nashville.`\
 https://nytimes.com/athletic/5612549/2024/07/02/lightning-stamkos-hedman-contracts/
-
-**Euro 2024 day 19 - Turkey march into last eight, Gakpo stars again, and who throws a shoe?**\
-`Liverpool forward Gakpo goes level in race for golden boot, Turkey march on, and a goalkeeper has to kick a shoe out of his way in Munich`\
-https://nytimes.com/athletic/5612269/2024/07/02/turkey-gakpo-shoe-malen-euro-2024/
 

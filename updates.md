@@ -1,3 +1,7 @@
+**Robert Towne, Screenwriter of ‘Chinatown’ and More, Dies at 89**\
+`Celebrated for his mastery of dialogue, he also contributed (though without credit) to the scripts of “Bonnie and Clyde” and “The Godfather.”`\
+https://nytimes.com/2024/07/02/movies/robert-towne-dead.html
+
 **New Haitian Leader Visits Washington Seeking Additional Support**\
 `Haiti’s newly selected prime minister, Garry Conille, met with Democrats on Capitol Hill as well as Biden administration officials, seeking more help to combat the unrest in his country.`\
 https://nytimes.com/2024/07/02/us/politics/garry-conille-haiti-democrats.html
