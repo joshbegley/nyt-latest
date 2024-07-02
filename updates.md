@@ -1,3 +1,11 @@
+**Grilled Hot Dogs, Honey Mustard Potato Salad and Berry Sheet Cake**\
+`Alexa, play “The Stars and Stripes Forever.”`\
+https://nytimes.com/2024/07/02/dining/july-4th-food.html
+
+**Brazil name women's football squad for Paris Olympics**\
+`Brazil have named their 22-player women’s football training squad for the 2024 Olympics.`\
+https://nytimes.com/athletic/5611897/2024/07/02/brazil-soccer-olympics-squad/
+
 **The Many Challenges at Guantánamo Bay, Encapsulated in One Case**\
 `The sentencing trial of an insurgent commander put a spotlight on the state of affairs at the wartime prison.`\
 https://nytimes.com/2024/07/02/us/politics/guantanamo-war-crimes-case.html
