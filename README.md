@@ -1,3 +1,7 @@
+**Elon Musk’s Politics May Be Pushing Some Buyers Away From Tesla**\
+`The Tesla chief executive’s polarizing statements have alienated some potential customers and may be partly responsible for a recent slump in sales.`\
+https://nytimes.com/2024/07/02/business/elon-musk-politics-tesla-sales.html
+
 **As Israel prepares to focus on ‘targeted raids,’ it is telling people to leave a large swath of Gaza.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/07/02/world/israel-gaza-war-hamas/as-israel-prepares-to-focus-on-targeted-raids-it-is-telling-people-to-leave-a-large-swath-of-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/02/world/asia/north-korea-kim-jong-un-pin.html
 **Trump Wins Broad Immunity**\
 `What the Supreme Court decision means for the former president, and for the presidency itself.`\
 https://nytimes.com/2024/07/02/podcasts/the-daily/trump-immunity.html
-
-**What’s Next for Trump Charges, and Israeli Generals Want a Truce**\
-`Plus, NASA says astronauts aren’t stuck in space.`\
-https://nytimes.com/2024/07/02/podcasts/trump-charges-israel-truce.html
 
