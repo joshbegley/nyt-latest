@@ -1,3 +1,7 @@
+**Bruce Bastian, a Founder of WordPerfect, Is Dead at 76**\
+`A favorite of early personal computer users, his company was eventually overtaken by Microsoft Word. He later came out as gay and became an L.G.B.T.Q. activist.`\
+https://nytimes.com/2024/07/02/business/bruce-bastian-dead.html
+
 **Bergwijn forced off with 'physical issues' in Netherlands win vs Romania - Koeman**\
 `Netherlands forward Steven Bergwijn was forced off at half time after suffering &#8220;physical issues&#8221; during his side&#8217;s European Championship last-16 victory over Romania, his coach Ronald Koeman has said.`\
 https://nytimes.com/athletic/5612299/2024/07/02/steven-bergwijn-injury-netherlands-euro-2024/

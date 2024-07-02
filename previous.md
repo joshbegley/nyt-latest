@@ -1,3 +1,7 @@
+**Bruce Bastian, a Founder of WordPerfect, Is Dead at 76**\
+`A favorite of early personal computer users, his company was eventually overtaken by Microsoft Word. He later came out as gay and became an L.G.B.T.Q. activist.`\
+https://nytimes.com/2024/07/02/business/bruce-bastian-dead.html
+
 **Bergwijn forced off with 'physical issues' in Netherlands win vs Romania - Koeman**\
 `Netherlands forward Steven Bergwijn was forced off at half time after suffering &#8220;physical issues&#8221; during his side&#8217;s European Championship last-16 victory over Romania, his coach Ronald Koeman has said.`\
 https://nytimes.com/athletic/5612299/2024/07/02/steven-bergwijn-injury-netherlands-euro-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/02/arts/television/netflix-new-movies-shows-july.htm
 **Trump Continues to Delay Naming a Running Mate, Amid Biden Debate Fallout**\
 `Donald J. Trump has not named a running mate this week. He appears eager to avoid stepping on the controversy swirling around President Biden in the debate’s aftermath.`\
 https://nytimes.com/2024/07/02/us/politics/trump-vp-debate.html
-
-**Biden’s Lapses Are Increasingly Common, According to Some of Those in the Room**\
-`People who have spent time with President Biden over the last few months or so said the lapses appear to have grown more frequent, more pronounced and, after Thursday’s debate, more worrisome.`\
-https://nytimes.com/2024/07/02/us/politics/biden-lapses.html
 
