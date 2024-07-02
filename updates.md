@@ -1,3 +1,19 @@
+**Trump Wins Broad Immunity**\
+`What the Supreme Court decision means for the former president, and for the presidency itself.`\
+https://nytimes.com/2024/07/02/podcasts/the-daily/trump-immunity.html
+
+**What’s Next for Trump Charges, and Israeli Generals Want a Truce**\
+`Plus, NASA says astronauts aren’t stuck in space.`\
+https://nytimes.com/2024/07/02/podcasts/trump-charges-israel-truce.html
+
+**Wordle Review No. 1,110, July 3, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/02/crosswords/wordle-review-1110.html
+
+**The Connections Companion No. 388, July 3, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/02/crosswords/connections-companion-388.html
+
 **Israeli Generals, Low on Munitions, Want a Truce in Gaza**\
 `Israel’s military leadership wants a cease-fire with Hamas in case a bigger war breaks out in Lebanon, security officials say. It has also concluded that a truce would be the swiftest way to free hostages.`\
 https://nytimes.com/2024/07/02/world/middleeast/israel-military-gaza-cease-fire.html
