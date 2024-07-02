@@ -1,3 +1,27 @@
+**A Horror Story Starring the Monstrous Men of Camelot**\
+`Maureen Callahan’s lurid “Ask Not” paints the Kennedys as mad, bad and dangerous for women to know.`\
+https://nytimes.com/2024/07/02/books/review/maureen-callahan-ask-not.html
+
+**Andrew Scott Is Always Captivating. Here’s How He Does It.**\
+`The star of “Ripley” and “All of Us Strangers” has become one of our most reliably excellent actors.`\
+https://nytimes.com/2024/07/02/arts/television/andrew-scott-best-roles.html
+
+**Why Does Humidity Make Me So Miserable?**\
+`Heat is only part of the picture. Here’s why humid air makes us irritable and exhausted — and how you can cope.`\
+https://nytimes.com/2024/07/02/humidity-heat-exhaustion-weather.html
+
+**A.I. Begins Ushering In an Age of Killer Robots**\
+`Driven by the war with Russia, many Ukrainian companies are working on a major leap forward in the weaponization of consumer technology.`\
+https://nytimes.com/2024/07/02/technology/ukraine-war-ai-weapons.html
+
+**My Unlikely Path From Jail to Journalism**\
+`While serving a sentence for burglary, I enrolled in a college journalism class. When I interviewed my correctional officer, my world broadened.`\
+https://nytimes.com/2024/07/02/insider/mario-koran-wisconsin-jail.html
+
+**Israel Strikes Southern Gaza After Ordering Evacuations**\
+`Israeli forces fired at areas of Khan Younis from which a rocket barrage had been launched a day earlier, the military said.`\
+https://nytimes.com/live/2024/07/02/world/israel-gaza-war-hamas
+
 **What to Know About the Netherlands’ New Far-Right Government**\
 `The country has sworn in its first far-right government and is trying a new approach after nearly 14 years of Mark Rutte’s leadership. That could have broad implications for the nation and its standing in Europe.`\
 https://nytimes.com/2024/07/02/world/europe/netherlands-government-wilders-rutte.html
