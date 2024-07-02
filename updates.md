@@ -1,3 +1,7 @@
+**A Major Heat Wave Will Bake California This Week**\
+`Several cities in the state will top 110 degrees over the next few days.`\
+https://nytimes.com/2024/07/02/us/california-heat-wave.html
+
 **Stampede at Religious Gathering in Northern India Kills Dozens**\
 `Many women and children were among the dead, and the number of fatalities could rise, a medical official said.`\
 https://nytimes.com/2024/07/02/world/asia/india-stampede-religious-event.html

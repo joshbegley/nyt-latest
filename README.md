@@ -1,3 +1,7 @@
+**As Israel prepares to focus on ‘targeted raids,’ it is telling people to leave a large swath of Gaza.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/07/02/world/israel-gaza-war-hamas/as-israel-prepares-to-focus-on-targeted-raids-it-is-telling-people-to-leave-a-large-swath-of-gaza
+
 **A Major Heat Wave Will Bake California This Week**\
 `Several cities in the state will top 110 degrees over the next few days.`\
 https://nytimes.com/2024/07/02/us/california-heat-wave.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/02/podcasts/the-daily/trump-immunity.html
 **What’s Next for Trump Charges, and Israeli Generals Want a Truce**\
 `Plus, NASA says astronauts aren’t stuck in space.`\
 https://nytimes.com/2024/07/02/podcasts/trump-charges-israel-truce.html
-
-**Wordle Review No. 1,110, July 3, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/02/crosswords/wordle-review-1110.html
 
