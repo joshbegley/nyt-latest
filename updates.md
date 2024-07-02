@@ -1,3 +1,7 @@
+**4 Objects That Explain the History of Carnegie Hall**\
+`A new podcast explores an array of items from the 133-year-old hall’s archive, like Ella Fitzgerald’s glasses and an opening-night ticket.`\
+https://nytimes.com/2024/07/02/arts/music/carnegie-hall-podcast.html
+
 **Dozens Killed in Stampede at Religious Event in North India**\
 `Victims from a stampede at a religious event in the northern state of Uttar Pradesh in India were taken to a local hospital.`\
 https://nytimes.com/video/world/asia/100000009551124/india-stampede-religious-event.html

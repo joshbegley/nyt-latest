@@ -1,3 +1,7 @@
+**4 Objects That Explain the History of Carnegie Hall**\
+`A new podcast explores an array of items from the 133-year-old hall’s archive, like Ella Fitzgerald’s glasses and an opening-night ticket.`\
+https://nytimes.com/2024/07/02/arts/music/carnegie-hall-podcast.html
+
 **Dozens Killed in Stampede at Religious Event in North India**\
 `Victims from a stampede at a religious event in the northern state of Uttar Pradesh in India were taken to a local hospital.`\
 https://nytimes.com/video/world/asia/100000009551124/india-stampede-religious-event.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/02/world/europe/germany-court-fine-nazi-phrase-afd.h
 **Presidential Immunity**\
 `What the Supreme Court’s ruling means for Donald Trump, and how it may reshape presidential power for years to come.`\
 https://nytimes.com/2024/07/02/briefing/presidential-immunity-supreme-court-trump-biden.html
-
-**North Korea’s New Must-Have Accessory: The Kim Jong-un Pin**\
-`With the introduction of the pin, Mr. Kim is said to be elevating his personality cult to the level once reserved for his father and grandfather.`\
-https://nytimes.com/2024/07/02/world/asia/north-korea-kim-jong-un-pin.html
 
