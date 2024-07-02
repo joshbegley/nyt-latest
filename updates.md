@@ -1,3 +1,7 @@
+**Acknowledging Debate Debacle, Biden Says He ‘Fell Asleep on the Stage’**\
+`President Biden blamed his international travel schedule for his disjointed performance, calling it “not an excuse but an explanation.”`\
+https://nytimes.com/2024/07/02/us/politics/biden-debate.html
+
 **Robert Towne, Screenwriter of ‘Chinatown’ and More, Dies at 89**\
 `Celebrated for his mastery of dialogue, he also contributed (though without credit) to the scripts of “Bonnie and Clyde” and “The Godfather.”`\
 https://nytimes.com/2024/07/02/movies/robert-towne-dead.html
