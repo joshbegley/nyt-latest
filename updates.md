@@ -1,3 +1,7 @@
+**Cody Gakpo is Netherlands' player of the Euros, can Arne Slot replicate it for Liverpool?**\
+`Cody Gakpo is Euro 2024's joint top-scorer playing off the left and doing it brilliantly. Will Liverpool take note?`\
+https://nytimes.com/athletic/5609224/2024/07/02/cody-gakpo-player-of-euros/
+
 **Euro 2024 day 19 - Turkey march into last eight, Gakpo stars again, and who throws a shoe, honestly?**\
 `Liverpool forward Gakpo goes level in race for golden boot, Turkey march on, and a goalkeeper has to kick a shoe out of his way in Munich`\
 https://nytimes.com/athletic/5612269/2024/07/02/turkey-gakpo-shoe-malen-euro-2024/

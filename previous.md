@@ -31,7 +31,7 @@ https://nytimes.com/athletic/5611694/2024/07/02/wimbledon-djokovic-knee-tiebreak
 https://nytimes.com/2024/07/02/briefing/president-biden-trump-sentencing-summer-vacations.html
 
 **Cody Gakpo is Netherlands' player of the Euros, can Arne Slot replicate it for Liverpool?**\
-`Cody Gakpo is Euro 2024's joint top-scorer playing off the left and doing it brilliantly, will Liverpool take note?`\
+`Cody Gakpo is Euro 2024's joint top-scorer playing off the left and doing it brilliantly. Will Liverpool take note?`\
 https://nytimes.com/athletic/5609224/2024/07/02/cody-gakpo-player-of-euros/
 
 **Penguins' pursuit of Vladimir Tarasenko, Steve Mears leaves for Columbus and schedule release**\
