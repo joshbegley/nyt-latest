@@ -1,3 +1,7 @@
+**Supreme Court’s Immunity Ruling Adds Major Hurdle for Georgia Trump Case**\
+`Determining which of the alleged acts that Donald Trump is being prosecuted for in the state were official conduct, and which were not, could delay the case for months.`\
+https://nytimes.com/2024/07/02/us/georgia-trump-case-immunity.html
+
 **Yale’s New President Pushed Policing as Head of Stony Brook University**\
 `In her four years at the state university, Maurie McInnis drew criticism from faculty members who said some of her decisions violated academic freedom.`\
 https://nytimes.com/2024/07/02/us/politics/yale-maurie-mcinnis-police-protest-stony-brook.html
