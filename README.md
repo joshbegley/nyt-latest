@@ -1,3 +1,7 @@
+**‘Mom, I’m Sorry’: The Week 2 Winner of Our Summer Reading Contest**\
+`Kathryne Hong, 16, writes about how reading a piece on sexism in medicine changed how she understood her mother’s physical distress.`\
+https://nytimes.com/2024/07/02/learning/mom-im-sorry-the-week-2-winner-of-our-summer-reading-contest.html
+
 **Should a Gusher of Donations Calm Democrats?**\
 `President Biden’s campaign said it had raised $127 million last month, but big donors are still anxious after his debate performance.`\
 https://nytimes.com/2024/07/02/business/dealbook/biden-donations-calm-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/02/crosswords/connections-companion-388.html
 **Israeli Generals, Low on Munitions, Want a Truce in Gaza**\
 `Israel’s military leadership wants a cease-fire with Hamas in case a bigger war breaks out in Lebanon, security officials say. It has also concluded that a truce would be the swiftest way to free hostages.`\
 https://nytimes.com/2024/07/02/world/middleeast/israel-military-gaza-cease-fire.html
-
-**The Remasters: No One Needs a Watch**\
-`Did you know the wristwatch was designed and created for women? In this episode, Zoe Abelson discusses the evolving world of watches with three of the industry’s biggest hitters: the founder of Dimepiece, Brynn Wallner; Wei Koh, founder of Revolution Watch and The Rake magazine; and Yoni Ben-Yehuda, head of watches at Material Good.`\
-https://nytimes.com/paidpost/audemars-piguet/the-remasters/the-remasters-no-one-needs-a-watch.html
 
