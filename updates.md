@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/5612243/2024/07/02/blackhawks-artyom-levshunov-nhl-michigan-state/
 
+**Turn pro or return to school? Blackhawks, Artyom Levshunov have a decision to make**\
+`Dissecting the pros and cons of Levshunov signing and turning pro right away or delaying that for at least a year and returning to college.
+`\
+https://nytimes.com/athletic/5612243/2024/07/02/blackhawks-artyom-levshunov-nhl-michigan-state/
+
 **Austria 1 Turkey 2: Missiles fall, records tumble - and the save of the tournament?**\
 `All the big talking points from the last 16 clash in Leipzig`\
 https://nytimes.com/athletic/5610923/2024/07/02/austria-turkey-euro-2024-analysis/
