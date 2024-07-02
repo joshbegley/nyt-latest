@@ -1,3 +1,7 @@
+**Stampede at Religious Gathering in Northern India Kills Dozens**\
+`Many women and children were among the dead, and the number of fatalities could rise, a medical official said.`\
+https://nytimes.com/2024/07/02/world/asia/india-stampede-religious-event.html
+
 **‘Mom, I’m Sorry’: The Week 2 Winner of Our Summer Reading Contest**\
 `Kathryne Hong, 16, writes about how reading a piece on sexism in medicine changed how she understood her mother’s physical distress.`\
 https://nytimes.com/2024/07/02/learning/mom-im-sorry-the-week-2-winner-of-our-summer-reading-contest.html

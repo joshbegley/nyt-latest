@@ -1,3 +1,7 @@
+**Stampede at Religious Gathering in Northern India Kills Dozens**\
+`Many women and children were among the dead, and the number of fatalities could rise, a medical official said.`\
+https://nytimes.com/2024/07/02/world/asia/india-stampede-religious-event.html
+
 **‘Mom, I’m Sorry’: The Week 2 Winner of Our Summer Reading Contest**\
 `Kathryne Hong, 16, writes about how reading a piece on sexism in medicine changed how she understood her mother’s physical distress.`\
 https://nytimes.com/2024/07/02/learning/mom-im-sorry-the-week-2-winner-of-our-summer-reading-contest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/02/crosswords/wordle-review-1110.html
 **The Connections Companion No. 388, July 3, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/02/crosswords/connections-companion-388.html
-
-**Israeli Generals, Low on Munitions, Want a Truce in Gaza**\
-`Israel’s military leadership wants a cease-fire with Hamas in case a bigger war breaks out in Lebanon, security officials say. It has also concluded that a truce would be the swiftest way to free hostages.`\
-https://nytimes.com/2024/07/02/world/middleeast/israel-military-gaza-cease-fire.html
 
