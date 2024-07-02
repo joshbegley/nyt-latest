@@ -1,3 +1,7 @@
+**Judge Orders Biden Administration to Resume Permits for Gas Exports**\
+`President Biden had paused new natural gas export terminals to assess their effects on the climate, economy and national security. A federal judge disagreed.`\
+https://nytimes.com/2024/07/01/climate/federal-judge-biden-gas-exports.html
+
 **There’s No Reason to Resign Ourselves to Biden**\
 `The president’s team should stop gaslighting us.`\
 https://nytimes.com/2024/07/01/opinion/biden-replacement-white-house.html
