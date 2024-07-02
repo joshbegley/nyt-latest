@@ -1,3 +1,7 @@
+**North Korea’s New Must-Have Accessory: The Kim Jong-un Pin**\
+`With the introduction of the pin, Mr. Kim is said to be elevating his personality cult to the level once reserved for his father and grandfather.`\
+https://nytimes.com/2024/07/02/world/asia/north-korea-kim-jong-un-pin.html
+
 **Trump Wins Broad Immunity**\
 `What the Supreme Court decision means for the former president, and for the presidency itself.`\
 https://nytimes.com/2024/07/02/podcasts/the-daily/trump-immunity.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/02/climate/heat-biden-workers-protection.html
 **Etsy vs. Sex**\
 `The online marketplace is putting in place a new safety-oriented policy, banning the sale of “mature” products, including vintage Playboys and many sex toys.`\
 https://nytimes.com/2024/07/02/style/etsy-sex-toys-ban.html
-
-**‘The Bear’ Season 3: Tastes Great, Less Fulfilling**\
-`It’s still TV’s best and most beautiful series about work and creation. But the new season is a tease.`\
-https://nytimes.com/2024/07/02/arts/television/review-the-bear-season-3.html
 
