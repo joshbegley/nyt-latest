@@ -1,3 +1,7 @@
+**Immunity Ruling Escalates Long Rise of Presidential Power**\
+`Beyond Donald J. Trump, the decision adds to the seemingly one-way ratchet of executive authority.`\
+https://nytimes.com/2024/07/01/us/politics/immunity-president-supreme-court.html
+
 **Judge Orders Biden Administration to Resume Permits for Gas Exports**\
 `President Biden had paused new natural gas export terminals to assess their effects on the climate, economy and national security. A federal judge disagreed.`\
 https://nytimes.com/2024/07/01/climate/federal-judge-biden-gas-exports.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/opinion/france-election-macron-maga.html
 **How Did the Debate Affect the Race? Quality Polls Are Not Yet Available**\
 `Some surveys indicate a slight dip for President Biden, but too few have been released to provide a sharp picture of the post-debate national mood.`\
 https://nytimes.com/2024/07/01/us/elections/debate-polls-biden-trump.html
-
-**Ozy Media Founder Takes the Stand to Deny Fraud Allegations**\
-`Carlos Watson was questioned after Ozy investors, former employees and bankers testified for the prosecution in his trial.`\
-https://nytimes.com/2024/07/01/business/media/ozy-media-carlos-watson-testimony.html
 
