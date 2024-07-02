@@ -15,7 +15,7 @@ https://nytimes.com/2024/07/02/business/media/paramount-skydance-merger-talks.ht
 https://nytimes.com/athletic/5612621/2024/07/02/tashaun-gipson-suspension-nfl/
 
 **Julián Castro, a 2020 Opponent of Biden, Says He Should Step Aside**\
-`Mr. Castro, who was criticized for remarks questioning Mr. Biden’s memory in a 2020 primary debate, said Democrats should find a different candidate.`\
+`Mr. Castro, who was criticized for remarks questioning Mr. Biden’s memory in a 2020 primary debate, said Democrats should find another candidate.`\
 https://nytimes.com/2024/07/02/us/politics/julian-castro-biden-election.html
 
 **Senators signing Shane Pinto to 2-year contract**\
