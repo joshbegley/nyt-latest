@@ -1,3 +1,7 @@
+**New Haitian Leader Visits Washington Seeking Additional Support**\
+`Haiti’s newly selected prime minister, Garry Conille, met with Democrats on Capitol Hill as well as Biden administration officials, seeking more help to combat the unrest in his country.`\
+https://nytimes.com/2024/07/02/us/politics/garry-conille-haiti-democrats.html
+
 **Lloyd Doggett, a Texas Progressive, Cracks the Democratic Dam for Biden**\
 `The veteran congressman, once a prominent voice for his party’s left flank on Capitol Hill, said aloud what some Democrats have privately whispered in the days since the president’s debate performance.`\
 https://nytimes.com/2024/07/02/us/who-is-lloyd-doggett-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5612549/2024/07/02/lightning-stamkos-hedman-contrac
 **Euro 2024 day 19 - Turkey march into last eight, Gakpo stars again, and who throws a shoe?**\
 `Liverpool forward Gakpo goes level in race for golden boot, Turkey march on, and a goalkeeper has to kick a shoe out of his way in Munich`\
 https://nytimes.com/athletic/5612269/2024/07/02/turkey-gakpo-shoe-malen-euro-2024/
-
-**Paramount and Skydance Are Said to Resume Merger Talks**\
-`Just weeks after the two media companies scuttled their talks about a potential deal, they have resumed their conversations.`\
-https://nytimes.com/2024/07/02/business/media/paramount-skydance-merger-talks.html
 
