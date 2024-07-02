@@ -1,3 +1,19 @@
+**Yes, the Starliner Is Stuck in Space**\
+`This isn’t how the new era of space was billed.`\
+https://nytimes.com/live/2024/07/02/opinion/thepoint/yes-the-starliner-is-stuck-in-space
+
+**What Would a Better Israeli Prime Minister Do?**\
+`The leaders who brought Israel into crisis won’t be able to bring it out of it.`\
+https://nytimes.com/2024/07/02/opinion/israel-netanyahu.html
+
+**‘Beverly Hills Cop: Axel F’ Review: It’s Busted**\
+`Eddie Murphy struggles to revive the moribund action-comedy franchise.`\
+https://nytimes.com/2024/07/02/movies/beverly-hills-cop-axel-f-review.html
+
+**To adapt to new CBA, Bucks went young in draft. How quickly can they develop?**\
+`Part of the Bucks’ plan this summer? Get younger. “The balance is intentional,” general manager Jon Horst said.`\
+https://nytimes.com/athletic/5612055/2024/07/02/bucks-aj-johnson-tyler-smith-nba-draft/
+
 **The Historical Echo Biden Has Tried to Suppress**\
 `Democrats have rebuffed comparisons between 2024 and 1968. Recent events show they have more to do.`\
 https://nytimes.com/2024/07/02/us/politics/biden-2024-presidential-race.html
