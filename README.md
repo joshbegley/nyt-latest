@@ -1,6 +1,6 @@
 **Supreme Court to Hear Case on Texas Law Restricting Access to Porn**\
 `The law, meant to shield minors from sexual materials on the internet by requiring adults to prove they are at least 18, was challenged on First Amendment grounds.`\
-https://nytimes.com/2024/07/02/us/supreme-court-texas-law-porn.html
+https://nytimes.com/2024/07/02/us/supreme-court-texas-porn-law.html
 
 **Southampton reach agreement in principle for signing of Peterborough's Edwards**\
 `Southampton have reached an agreement in principle with Peterborough United for the signing of central defender Ronnie Edwards.`\

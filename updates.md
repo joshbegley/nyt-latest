@@ -1,3 +1,11 @@
+**Supreme Court to Hear Case on Texas Law Restricting Access to Porn**\
+`The law, meant to shield minors from sexual materials on the internet by requiring adults to prove they are at least 18, was challenged on First Amendment grounds.`\
+https://nytimes.com/2024/07/02/us/supreme-court-texas-law-porn.html
+
+**Southampton reach agreement in principle for signing of Peterborough's Edwards**\
+`Southampton have reached an agreement in principle with Peterborough United for the signing of central defender Ronnie Edwards.`\
+https://nytimes.com/athletic/5611782/2024/07/02/ronnie-edwards-southampton-transfer/
+
 **The Windup: First in the AL and the MLB Draft**\
 `Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
 https://nytimes.com/athletic/5611713/2024/07/02/cleveland-guardians-draft-astros-rotation-the-windup/
