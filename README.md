@@ -1,6 +1,10 @@
+**Inside the VAR review of Uruguay's winning goal against the USMNT**\
+`The lines on a screen that determined the U.S.' Copa America fate `\
+https://nytimes.com/athletic/5611624/2024/07/02/uruguays-controversial-winning-goal-usmnt-explained/
+
 **How Tom Hanks’s Son Spawned a Hateful Meme Online**\
 `When Chet Hanks first used the phrase “white boy summer,” it seemed to be done ironically. Now it has been appropriated around the world by white supremacists and other hate groups.`\
-https://nytimes.com/2024/07/02/business/media/how-tom-hankss-son-spawned-a-hateful-meme-online.html
+https://nytimes.com/2024/07/02/business/media/chet-hanks-racist-meme.html
 
 **Novak Djokovic braces for bigger tests - of his knee and of his tennis**\
 `The seven-time champion eased himself into SW19 — and right now, that's all he can hope to do`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5611777/2024/07/02/nhl-free-agency-predators-stamko
 **Canada's Buchanan taken to hospital after lower leg injury**\
 `Canada winger Tajon Buchanan has been taken to hospital after sustaining a leg injury in training.`\
 https://nytimes.com/athletic/5611971/2024/07/02/tajon-buchanan-canada-injury/
-
-**Did You Serve on a War Crimes Jury at Guantánamo Bay? We Want to Know.**\
-`The Times is looking for officers who were selected to serve on military commissions panels at Camp Justice to discuss the experience, within guidelines set by the court.`\
-https://nytimes.com/2024/07/02/us/politics/did-you-serve-on-a-war-crimes-jury-at-guantanamo-bay-we-want-to-know.html
 
