@@ -1,7 +1,3 @@
-**Johnston: Inside the Lightning-Stamkos split — a reminder that in the NHL, business trumps brotherhood**\
-`The Lightning on Tuesday signed Victor Hedman to a contract for the same term and salary as the one Stamkos signed in Nashville.`\
-https://nytimes.com/athletic/5612549/2024/07/02/lightning-stamkos-hedman-contracts/
-
 **Euro 2024 day 19 - Turkey march into last eight, Gakpo stars again, and who throws a shoe, honestly?**\
 `Liverpool forward Gakpo goes level in race for golden boot, Turkey march on, and a goalkeeper has to kick a shoe out of his way in Munich`\
 https://nytimes.com/athletic/5612269/2024/07/02/turkey-gakpo-shoe-malen-euro-2024/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/07/02/briefing/president-biden-trump-sentencing-summer-
 **Cody Gakpo is Netherlands' player of the Euros, can Arne Slot replicate it for Liverpool?**\
 `Cody Gakpo is Euro 2024's joint top-scorer playing off the left and doing it brilliantly. Will Liverpool take note?`\
 https://nytimes.com/athletic/5609224/2024/07/02/cody-gakpo-player-of-euros/
+
+**Penguins' pursuit of Vladimir Tarasenko, Steve Mears leaves for Columbus and schedule release**\
+`The Penguins have had contact with free-agent forward Vladimir Tarasenko.`\
+https://nytimes.com/athletic/5611598/2024/07/02/penguins-vladimir-tarasenko-steve-mears-schedule/
 
