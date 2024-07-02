@@ -1,3 +1,7 @@
+**There’s No Reason to Resign Ourselves to Biden**\
+`The president’s team should stop gaslighting us.`\
+https://nytimes.com/2024/07/01/opinion/biden-replacement-white-house.html
+
 **Supreme Court’s Immunity Decision Sets ‘Dangerous Precedent,’ Biden Says**\
 `President Biden spoke after the Supreme Court’s ruling that former President Donald J. Trump is entitled to substantial immunity from prosecution on charges of trying to overturn the 2020 election.`\
 https://nytimes.com/video/us/politics/100000009550750/biden-scotus-trump-immunity.html
