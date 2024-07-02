@@ -1,3 +1,11 @@
+**Grilled Hot Dogs, Honey Mustard Potato Salad and Berry Sheet Cake**\
+`Alexa, play “The Stars and Stripes Forever.”`\
+https://nytimes.com/2024/07/02/dining/july-4th-food.html
+
+**Brazil name women's football squad for Paris Olympics**\
+`Brazil have named their 22-player women’s football training squad for the 2024 Olympics.`\
+https://nytimes.com/athletic/5611897/2024/07/02/brazil-soccer-olympics-squad/
+
 **The Many Challenges at Guantánamo Bay, Encapsulated in One Case**\
 `The sentencing trial of an insurgent commander put a spotlight on the state of affairs at the wartime prison.`\
 https://nytimes.com/2024/07/02/us/politics/guantanamo-war-crimes-case.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5610738/2024/07/02/usmnt-uruguay-tactical-analysis/
 **Lawsuit Challenges Affirmative Action in Hiring at Northwestern Law School**\
 `The complaint was filed a year after the Supreme Court struck down the use of racial and gender preferences in college admissions.`\
 https://nytimes.com/2024/07/02/us/affirmative-action-lawsuit.html
-
-**Democratic Senator Criticizes Biden Campaign Over Its Debate Pushback**\
-`Senator Peter Welch of Vermont said that the campaign should acknowledge concerns about President Biden’s poor debate performance, not dismiss them.`\
-https://nytimes.com/2024/07/02/us/politics/peter-welch-biden-debate.html
-
-**Even now, Klay Thompson is the star the Mavs never could sign before**\
-`Dallas has long struck out in its quest to sign free agents. But Klay Thompson is different — and so is this franchise.`\
-https://nytimes.com/athletic/5610052/2024/07/02/klay-thompson-mavericks-signing-free-agent/
 
