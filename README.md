@@ -1,3 +1,7 @@
+**At 100, the Intergalactic Jazz Hero Marshall Allen Is Still on a Mission**\
+`The Sun Ra Arkestra saxophonist, who remains captivated by the power of sound, is an inspiring onstage presence.`\
+https://nytimes.com/2024/07/02/arts/music/marshall-allen-sun-ra-arkestra.html
+
 **In a Volatile Term, a Fractured Supreme Court Remade America**\
 `Amid signs of dysfunction and disarray, Chief Justice John Roberts reasserted his authority, while the influence of Justices Clarence Thomas and Samuel Alito waned.`\
 https://nytimes.com/2024/07/02/us/politics/supreme-court-term-decisions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/02/learning/mom-im-sorry-the-week-2-winner-of-our-su
 **Should a Gusher of Donations Calm Democrats?**\
 `President Biden’s campaign said it had raised $127 million last month, but big donors are still anxious after his debate performance.`\
 https://nytimes.com/2024/07/02/business/dealbook/biden-donations-calm-democrats.html
-
-**German Court Fines Far-Right Politician for Using Nazi Phrase, Again**\
-`In his ruling against Björn Höcke, the judge said it was “essential that we counter the danger of old Nazi-era symbols from becoming acceptable again.”`\
-https://nytimes.com/2024/07/02/world/europe/germany-court-fine-nazi-phrase-afd.html
 
