@@ -1,3 +1,7 @@
+**Trump Continues to Delay Naming a Running Mate, Amid Biden Debate Fallout**\
+`Donald J. Trump has not named a running mate this week. He appears eager to avoid stepping on the controversy swirling around President Biden in the debate’s aftermath.`\
+https://nytimes.com/2024/07/02/us/politics/trump-vp-debate.html
+
 **Biden’s Lapses Are Increasingly Common, According to Some of Those in the Room**\
 `People who have spent time with President Biden over the last few months or so said the lapses appear to have grown more frequent, more pronounced and, after Thursday’s debate, more worrisome.`\
 https://nytimes.com/2024/07/02/us/politics/biden-lapses.html
