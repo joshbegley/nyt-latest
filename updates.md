@@ -1,5 +1,9 @@
 **Meloni Condemns Fascist Nostalgia Amid Scandal in Her Party’s Youth Wing**\
 `A news report used a hidden camera to show members of the youth arm of Brothers of Italy glorifying fascism.`\
+https://nytimes.com/2024/07/02/world/europe/meloni-political-party-youth-wing-facism.html
+
+**Meloni Condemns Fascist Nostalgia Amid Scandal in Her Party’s Youth Wing**\
+`A news report used a hidden camera to show members of the youth arm of Brothers of Italy glorifying fascism.`\
 https://nytimes.com/2024/07/02/world/europe/meloni-condemns-fascist-nostalgia-amid-scandal-in-her-partys-youth-wing.html
 
 **Turkey's Orkun Kokcu out of Euro 2024 quarter-final through suspension**\

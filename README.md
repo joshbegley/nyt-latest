@@ -1,3 +1,11 @@
+**Penguins' pursuit of Vladimir Tarasenko, Steve Mears leaves for Columbus and schedule release**\
+`The Penguins have had contact with free-agent forward Vladimir Tarasenko.`\
+https://nytimes.com/athletic/5611598/2024/07/02/penguins-vladimir-tarasenko-steve-mears-schedule/
+
+**Lloyd: Cavs' gamble on Donovan Mitchell pays off, and city of Cleveland is the big winner**\
+`Mitchell's decision to stay and sign a 3-year, $150 million extension means the Cavs won their trade with Utah (after taking a huge risk).`\
+https://nytimes.com/athletic/5612490/2024/07/02/donovan-mitchell-cleveland-cavaliers-cavs-extension/
+
 **Meloni Condemns Fascist Nostalgia Amid Scandal in Her Party’s Youth Wing**\
 `A news report used a hidden camera to show members of the youth arm of Brothers of Italy glorifying fascism.`\
 https://nytimes.com/2024/07/02/world/europe/meloni-political-party-youth-wing-facism.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5612422/2024/07/02/khephren-thuram-nice-juventus-tr
 **U.S. Awards $504 Million for ‘Tech Hubs’ in Overlooked Regions**\
 `Biden administration officials hope the money will help propel technological innovation in areas that have historically received less government funding.`\
 https://nytimes.com/2024/07/02/us/politics/504-million-tech-hubs-overlooked-regions.html
-
-**Wednesday Briefing: President Biden’s Lapses Increase**\
-`Plus, Israel’s generals want a truce.`\
-https://nytimes.com/2024/07/02/briefing/biden-lapses-israel-general.html
-
-**With Fists and Knives, Mobs Attack Syrian Refugees in Turkey**\
-`As economic woes grow in Turkey, groups of men have targeted Syrian refugees there. In response, fighters across the border in northern Syria have confronted Turkish soldiers.`\
-https://nytimes.com/2024/07/02/world/middleeast/syrian-refugees-turkey-attacks.html
 
