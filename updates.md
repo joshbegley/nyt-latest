@@ -1,3 +1,7 @@
+**What to Know About the Netherlands’ New Far-Right Government**\
+`The country has sworn in its first far-right government and is trying a new approach after nearly 14 years of Mark Rutte’s leadership. That could have broad implications for the nation and its standing in Europe.`\
+https://nytimes.com/2024/07/02/world/europe/netherlands-government-wilders-rutte.html
+
 **Orban, a Staunch Russia Ally and E.U. Agitator, Visits Ukraine**\
 `Prime Minister Viktor Orban of Hungary, who has resisted European military and financial aid for Ukraine, traveled to the country to meet with President Volodymyr Zelensky.`\
 https://nytimes.com/2024/07/02/world/europe/orban-hungary-ukraine-zelensky.html
