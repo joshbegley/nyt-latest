@@ -1,3 +1,7 @@
+**In a Volatile Term, a Fractured Supreme Court Remade America**\
+`Amid signs of dysfunction and disarray, Chief Justice John Roberts reasserted his authority, while the influence of Justices Clarence Thomas and Samuel Alito waned.`\
+https://nytimes.com/2024/07/02/us/politics/supreme-court-term-decisions.html
+
 **4 Objects That Explain the History of Carnegie Hall**\
 `A new podcast explores an array of items from the 133-year-old hall’s archive, like Ella Fitzgerald’s glasses and an opening-night ticket.`\
 https://nytimes.com/2024/07/02/arts/music/carnegie-hall-podcast.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/02/business/dealbook/biden-donations-calm-democrats.
 **German Court Fines Far-Right Politician for Using Nazi Phrase, Again**\
 `In his ruling against Björn Höcke, the judge said it was “essential that we counter the danger of old Nazi-era symbols from becoming acceptable again.”`\
 https://nytimes.com/2024/07/02/world/europe/germany-court-fine-nazi-phrase-afd.html
-
-**Presidential Immunity**\
-`What the Supreme Court’s ruling means for Donald Trump, and how it may reshape presidential power for years to come.`\
-https://nytimes.com/2024/07/02/briefing/presidential-immunity-supreme-court-trump-biden.html
 
