@@ -1,3 +1,7 @@
+**Now what? How the Clippers will navigate the post-Paul George era**\
+`After failing to re-sign their All-Star small forward, the Clippers will move to Plan B, which might look a lot like 2021-22.`\
+https://nytimes.com/athletic/5610716/2024/07/02/paul-george-era-over-clippers-now-what/
+
 **At 100, the Intergalactic Jazz Hero Marshall Allen Is Still on a Mission**\
 `The Sun Ra Arkestra saxophonist, who remains captivated by the power of sound, is an inspiring onstage presence.`\
 https://nytimes.com/2024/07/02/arts/music/marshall-allen-sun-ra-arkestra.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/02/world/asia/india-stampede-religious-event.html
 **‘Mom, I’m Sorry’: The Week 2 Winner of Our Summer Reading Contest**\
 `Kathryne Hong, 16, writes about how reading a piece on sexism in medicine changed how she understood her mother’s physical distress.`\
 https://nytimes.com/2024/07/02/learning/mom-im-sorry-the-week-2-winner-of-our-summer-reading-contest.html
-
-**Should a Gusher of Donations Calm Democrats?**\
-`President Biden’s campaign said it had raised $127 million last month, but big donors are still anxious after his debate performance.`\
-https://nytimes.com/2024/07/02/business/dealbook/biden-donations-calm-democrats.html
 

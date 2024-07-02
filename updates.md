@@ -1,3 +1,7 @@
+**Now what? How the Clippers will navigate the post-Paul George era**\
+`After failing to re-sign their All-Star small forward, the Clippers will move to Plan B, which might look a lot like 2021-22.`\
+https://nytimes.com/athletic/5610716/2024/07/02/paul-george-era-over-clippers-now-what/
+
 **At 100, the Intergalactic Jazz Hero Marshall Allen Is Still on a Mission**\
 `The Sun Ra Arkestra saxophonist, who remains captivated by the power of sound, is an inspiring onstage presence.`\
 https://nytimes.com/2024/07/02/arts/music/marshall-allen-sun-ra-arkestra.html
