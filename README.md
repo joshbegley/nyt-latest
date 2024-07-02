@@ -1,3 +1,7 @@
+**Did You Serve on a War Crimes Jury at Guantánamo Bay? We Want to Know.**\
+`The Times is looking for officers who were selected to serve on military commissions panels at Camp Justice to discuss the experience, within guidelines set by the court.`\
+https://nytimes.com/2024/07/02/us/politics/did-you-serve-on-a-war-crimes-jury-at-guantanamo-bay-we-want-to-know.html
+
 **Utah State football coach Blake Anderson placed on administrative leave**\
 `Defensive coordinator Nate Dreiling was named the interim head coach.`\
 https://nytimes.com/athletic/5611882/2024/07/02/blake-anderson-utah-state-administrative-leave/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/02/us/politics/guantanamo-war-crimes-case.html
 **Sargent 'upset and frustrated' after USMNT's Copa America exit**\
 `Josh Sargent admitted he was “shocked, upset and frustrated” by the USMNT’s Copa America group stage exit which has left it “easy to say bad things” about the team.`\
 https://nytimes.com/athletic/5611919/2024/07/02/josh-sargent-usmnt-copa-america-exit/
-
-**The Uproar Over the Immunity Ruling**\
-`Lawyers and other readers discuss the landmark Supreme Court decision. Also: A ruling on corruption; doctors and abortion bans; religion in public schools.`\
-https://nytimes.com/2024/07/02/opinion/supreme-court-immunity-ruling-trump.html
 
