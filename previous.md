@@ -1,3 +1,23 @@
+**Marianne Williamson Calls for Open Convention to Decide Democratic Nomination**\
+`The self-help author is again trying to revive her own bid, despite losing the nomination to President Biden in March.`\
+https://nytimes.com/2024/07/02/us/politics/marianne-williamson-biden-democratic-nomination.html
+
+**Blinken Says Hezbollah Attacks Have Cost Israel Sovereignty in North**\
+`The secretary of state’s comments underscored the stakes of cross-border tensions that threaten to bring a larger regional war alongside the conflict in Gaza.`\
+https://nytimes.com/2024/07/02/world/middleeast/hezbollah-israel-blinken.html
+
+**Who Pays Tariffs? And How Do We Know?**\
+`Thanks to Donald Trump, we don’t have to speculate.`\
+https://nytimes.com/2024/07/02/opinion/tariffs-trump-china-taxes.html
+
+**Swedish Grandparents Can Be Paid to Babysit Under New Law**\
+`The Nordic country’s generous social services system now allows parents to transfer a  portion of paid leave days to other non-parent caregivers.`\
+https://nytimes.com/2024/07/02/world/europe/swedish-grandparents-parental-leave.html
+
+**Backing Biden, Pelosi Calls Questions About Debate Performance ‘Legitimate’**\
+`The former speaker said Trump told lies during the exchange, and it is fair to ask of both candidates: “Is this an episode or is this a condition?”`\
+https://nytimes.com/2024/07/02/us/politics/biden-debate-pelosi.html
+
 **Burnley in advanced talks to appoint Scott Parker as new manager**\
 `Burnley are in advanced talks to appoint Scott Parker as their new manager.`\
 https://nytimes.com/athletic/5611966/2024/07/02/burnley-in-advanced-talks-to-appoint-scott-parker-as-new-manager/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/07/02/arts/music/amplifier-newsletter-independence-song
 **The Briefing: Romania 0 Netherlands 3 - Stylish Dutch through to quarter-finals as Gakpo chases Golden Boot**\
 `Our writers break down the key moments from the last-16 tie between Romania and the Netherlands in Munich`\
 https://nytimes.com/athletic/5610917/2024/07/02/romania-netherlands-euro-2024-result-analysis/
-
-**As Democratic Anxiety Rises, Doggett Calls on Biden to Withdraw**\
-`Lloyd Doggest, a Texas progressive, was the first sitting Democrat in Congress to publicly call on the president to stand aside, but he gave voice to private concerns that have simmered for days.`\
-https://nytimes.com/2024/07/02/us/politics/lloyd-doggett-biden-withdraw.html
-
-**Inside the VAR review of Uruguay's winning goal against the USMNT**\
-`The lines on a screen that determined the host nation's Copa America fate `\
-https://nytimes.com/athletic/5611624/2024/07/02/uruguays-controversial-winning-goal-usmnt-explained/
-
-**How Tom Hanks’s Son Spawned a Hateful Meme Online**\
-`When Chet Hanks first used the phrase “white boy summer,” it seemed to be done ironically. Now it has been appropriated around the world by white supremacists and other hate groups.`\
-https://nytimes.com/2024/07/02/business/media/chet-hanks-racist-meme.html
-
-**Novak Djokovic braces for bigger tests - of his knee and of his tennis**\
-`The seven-time champion eased himself into SW19 — and right now, that's all he can hope to do`\
-https://nytimes.com/athletic/5611877/2024/07/02/djokovic-wimbledon-knee-surgery/
-
-**Trump Wastes No Time in Exploiting the Court’s Immunity Ruling**\
-`Delaying his sentencing past the convention shields the public from the seriousness of his crimes.`\
-https://nytimes.com/live/2024/06/25/opinion/thepoint/trump-sentencing-convention-immunity
 
