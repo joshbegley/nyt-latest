@@ -1,3 +1,11 @@
+**Burnley in advanced talks to appoint Scott Parker as new manager**\
+`Burnley are in advanced talks to appoint Scott Parker as their new manager.`\
+https://nytimes.com/athletic/5611966/2024/07/02/burnley-in-advanced-talks-to-appoint-scott-parker-as-new-manager/
+
+**U.N. Panel Adds to Chorus Calling for Release of Evan Gershkovich**\
+`The U.N. Working Group on Arbitrary Detentions said the Wall Street Journal reporter was being punished for covering the war in Ukraine.`\
+https://nytimes.com/2024/07/02/world/europe/evan-gershkovich-russia-detention-un.html
+
 **Bruins offseason depth chart 1.0: Nearly complete save for one big ticket**\
 `After signing big tickets Elias Lindholm and Nikita Zadorov on Monday, the Bruins mostly appear to have a set roster for 2024-25.`\
 https://nytimes.com/athletic/5611720/2024/07/02/bruins-offseason-depth-chart-swayman/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5611877/2024/07/02/djokovic-wimbledon-knee-surgery/
 **Trump Wastes No Time in Exploiting the Court’s Immunity Ruling**\
 `Delaying his sentencing past the convention shields the public from the seriousness of his crimes.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/trump-sentencing-convention-immunity
-
-**New Drug Approved for Early Alzheimer’s**\
-`The drug, Kisunla, made by Eli Lilly, is the latest in a new class of treatments that could modestly slow cognitive decline in initial stages of the disease but also carry safety risks.`\
-https://nytimes.com/2024/07/02/health/alzheimers-treatment-kisunla-donanemab.html
-
-**Mayer, Salas, Crews, Clark highlight Futures Game rosters**\
-`The 2024 All-Star Futures Game will take place on Sat., July 13 and will include a hitting skills competition for the first time.`\
-https://nytimes.com/athletic/5611905/2024/07/02/2024-futures-game-rosters-marcelo-mayer/
 
