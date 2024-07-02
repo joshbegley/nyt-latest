@@ -1,3 +1,15 @@
+**Conservative Media Finds It Hard Not to Gloat**\
+`Many conservative commentators have said President Biden’s performance during the debate was a sweeping validation of the alarm bells they’d been ringing for years about his age.`\
+https://nytimes.com/2024/07/02/business/media/conservative-media-president-biden-debate.html
+
+**Biden Will Sit for Interview on Friday With ABC News**\
+`The interview, with the anchor George Stephanopoulos, will be the president’s first in-depth appearance with a journalist since last week’s debate.`\
+https://nytimes.com/2024/07/02/us/politics/biden-abc-news-interview.html
+
+**A Seismic Supreme Court Decision**\
+`Here’s how the end of the Chevron doctrine could affect climate regulation.`\
+https://nytimes.com/2024/07/02/climate/supreme-court-climate-chevron.html
+
 **Cuomo, in New Ad, Accuses Pro-Palestinian Activists of Supporting Hamas**\
 `The one-minute commercial, which was created by a group formed by former Gov. Andrew M. Cuomo, seeks to bring attention to atrocities linked to Hamas.`\
 https://nytimes.com/2024/07/02/nyregion/cuomo-israel-hamas-ad.html
