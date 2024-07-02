@@ -1,3 +1,11 @@
+**Meloni Condemns Fascist Nostalgia Amid Scandal in Her Party’s Youth Wing**\
+`A news report used a hidden camera to show members of the youth arm of Brothers of Italy glorifying fascism.`\
+https://nytimes.com/2024/07/02/world/europe/meloni-condemns-fascist-nostalgia-amid-scandal-in-her-partys-youth-wing.html
+
+**Turkey's Orkun Kokcu out of Euro 2024 quarter-final through suspension**\
+`Turkey midfielder Orkun Kokcu will miss his side’s European Championship quarter-final against the Netherlands through suspension.`\
+https://nytimes.com/athletic/5612568/2024/07/02/orkun-kokcu-turkey-netherlands-euro-2024/
+
 **Clark vs. Taurasi draws major WNBA audience on ESPN**\
 `The Fever-Mercury game peaked at 2.7 million viewers.`\
 https://nytimes.com/athletic/5612447/2024/07/02/fever-mercury-caitlin-clark-diana-taurasi/
@@ -29,13 +37,4 @@ https://nytimes.com/2024/07/02/briefing/biden-lapses-israel-general.html
 **With Fists and Knives, Mobs Attack Syrian Refugees in Turkey**\
 `As economic woes grow in Turkey, groups of men have targeted Syrian refugees there. In response, fighters across the border in northern Syria have confronted Turkish soldiers.`\
 https://nytimes.com/2024/07/02/world/middleeast/syrian-refugees-turkey-attacks.html
-
-**Rudy’s Been Disbarred. Now Bar Him From New York.**\
-`Florida can keep him.`\
-https://nytimes.com/live/2024/06/25/opinion/thepoint/rudy-giuliani-disbarred
-
-**Turn pro or return to school? Blackhawks, Artyom Levshunov have a decision to make**\
-`Dissecting the pros and cons of Levshunov signing and turning pro right away or delaying that for at least a year and returning to college.
-`\
-https://nytimes.com/athletic/5612243/2024/07/02/blackhawks-artyom-levshunov-nhl-michigan-state/
 

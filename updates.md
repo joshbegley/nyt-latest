@@ -1,3 +1,11 @@
+**Meloni Condemns Fascist Nostalgia Amid Scandal in Her Party’s Youth Wing**\
+`A news report used a hidden camera to show members of the youth arm of Brothers of Italy glorifying fascism.`\
+https://nytimes.com/2024/07/02/world/europe/meloni-condemns-fascist-nostalgia-amid-scandal-in-her-partys-youth-wing.html
+
+**Turkey's Orkun Kokcu out of Euro 2024 quarter-final through suspension**\
+`Turkey midfielder Orkun Kokcu will miss his side’s European Championship quarter-final against the Netherlands through suspension.`\
+https://nytimes.com/athletic/5612568/2024/07/02/orkun-kokcu-turkey-netherlands-euro-2024/
+
 **Turn pro or return to school? Blackhawks, Artyom Levshunov have a decision to make**\
 `Dissecting the pros and cons of Levshunov signing and turning pro right away or delaying that for at least a year and returning to college.
 `\
