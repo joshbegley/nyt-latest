@@ -1,3 +1,7 @@
+**Tried to Buy Time**\
+`Josh Goodman sees things clearly.`\
+https://nytimes.com/2024/07/01/crosswords/daily-puzzle-2024-07-02.html
+
 **Two More Democratic Lawmakers Express Concern About Biden After Debate**\
 `Senator Sheldon Whitehouse of Rhode Island said he was “horrified" by the debate. Representative Debbie Dingell said “the campaign needs to listen to us.”`\
 https://nytimes.com/2024/07/01/us/politics/democratic-lawmakers-concerns-biden-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/us/politics/trump-liz-cheney-treason-jail.html
 **Israel Frees Gaza Hospital Chief Held Without Charges for 7 Months**\
 `Rights groups denounced the detention of Al-Shifa Hospital’s director and thousands of other Gazans without trial, while Israeli leaders faulted his release as a government failure.`\
 https://nytimes.com/2024/07/01/world/middleeast/gaza-israel-shifa-hospital.html
-
-**France’s Far Right Is Bad. But Not as Hypocritical as MAGA.**\
-`They share anti-immigrant prejudices, but not all the same policy priorities.`\
-https://nytimes.com/2024/07/01/opinion/france-election-macron-maga.html
 

@@ -1,3 +1,7 @@
+**Tried to Buy Time**\
+`Josh Goodman sees things clearly.`\
+https://nytimes.com/2024/07/01/crosswords/daily-puzzle-2024-07-02.html
+
 **Two More Democratic Lawmakers Express Concern About Biden After Debate**\
 `Senator Sheldon Whitehouse of Rhode Island said he was “horrified" by the debate. Representative Debbie Dingell said “the campaign needs to listen to us.”`\
 https://nytimes.com/2024/07/01/us/politics/democratic-lawmakers-concerns-biden-debate.html
