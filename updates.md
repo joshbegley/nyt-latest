@@ -1,3 +1,7 @@
+**Supreme Court Won’t Hear Cases on High-Powered Rifles and Disarming Felons**\
+`The court, which issued two major decisions on guns in the term that ended Monday, does not seem ready to return to the subject.`\
+https://nytimes.com/2024/07/02/us/politics/supreme-court-high-powered-rifles.html
+
 **How Media Outlets on the Left and Right Covered the Trump Immunity Decision**\
 `Liberal outlets criticized the ruling as a biased move from a conservative Supreme Court. Conservative commentators admonished Democrats for opposing it.`\
 https://nytimes.com/2024/07/02/business/media/supreme-court-trump-immunity-media-coverage.html
