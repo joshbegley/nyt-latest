@@ -1,3 +1,7 @@
+**New Drug Approved for Early Alzheimer’s**\
+`The drug, by Eli Lilly, is the latest in a new class of treatments that could modestly slow cognitive decline in initial stages of the disease but also carry safety risks.`\
+https://nytimes.com/2024/07/02/health/alzheimers-treatment-donanemab.html
+
 **Mayer, Salas, Crews, Clark highlight Futures Game rosters**\
 `The 2024 All-Star Futures Game will take place on Sat., July 13 and will include a hitting skills competition for the first time.`\
 https://nytimes.com/athletic/5611905/2024/07/02/2024-futures-game-rosters-marcelo-mayer/
