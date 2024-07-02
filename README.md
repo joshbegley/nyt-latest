@@ -1,3 +1,19 @@
+**Utah State football coach Blake Anderson placed on administrative leave**\
+`Defensive coordinator Nate Dreiling was named the interim head coach.`\
+https://nytimes.com/athletic/5611882/2024/07/02/blake-anderson-utah-state-administrative-leave/
+
+**Bronny James plans to sign multiyear contract with Lakers: Sources**\
+`James — the 55th pick in the 2024 NBA Draft —will join his father, LeBron, on the Lakers' roster.`\
+https://nytimes.com/athletic/5611900/2024/07/02/bronny-james-lakers-contract/
+
+**Submit questions for Aaron Gleeman's Twins mailbag**\
+`As you look ahead to the deadline and the rest of the season, what questions do you have about this team?`\
+https://nytimes.com/athletic/5611972/2024/07/02/minnesota-twins-reader-questions/
+
+**Yellowtail Gets the Prosciutto Treatment and More at Kappo Sono’s Sushi Counter**\
+`Drinks and pastries at Liz’s Book Bar, Il Mulino adds a steakhouse and more restaurant news.`\
+https://nytimes.com/2024/07/02/dining/nyc-restaurant-news.html
+
 **Breaking Down the Supreme Court’s Ruling on Trump’s Immunity**\
 `The Supreme Court’s decision to grant presidents immunity from prosecution over official actions is an extraordinary expansion of executive power.`\
 https://nytimes.com/video/us/politics/100000009550277/breaking-down-the-supreme-courts-ruling-on-trumps-immunity.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5611919/2024/07/02/josh-sargent-usmnt-copa-america-
 **The Uproar Over the Immunity Ruling**\
 `Lawyers and other readers discuss the landmark Supreme Court decision. Also: A ruling on corruption; doctors and abortion bans; religion in public schools.`\
 https://nytimes.com/2024/07/02/opinion/supreme-court-immunity-ruling-trump.html
-
-**MLB scouting notebook: Three under-the-radar trade candidates, and a Julio Rodríguez statistical deep dive**\
-`Andrea Arcadipane takes a close-up look at three trade deadline targets and also looks into reasons for Julio Rodríguez's struggles in 2024.`\
-https://nytimes.com/athletic/5611795/2024/07/02/mlb-scouting-notebook-trade-candidates-julio-rodriguez/
-
-**Powell Cites ‘Real Progress’ as Central Bankers Assess Inflation Fight**\
-`Jerome H. Powell, the Fed chair, and Christine Lagarde, the European Central Bank chief, sounded optimistic about recent inflation data but reiterated the need for more confidence for rate cuts.`\
-https://nytimes.com/2024/07/02/business/fed-ecb-inflation-rates.html
-
-**Hollinger: NBA's apron era marks end of exceptionalism + free-agency winners, losers**\
-`The new CBA is making it impossible for teams like the Clippers, Warriors and Lakers to spend their way out of their mistakes.`\
-https://nytimes.com/athletic/5610578/2024/07/02/nba-free-agency-winners-losers-apron-era/
-
-**How Uruguay's masterly man-marking shut the USMNT out of the Copa America**\
-`In what turned out to be a must-win game for them, the United States' inability to break down Uruguay's defence was ruinous `\
-https://nytimes.com/athletic/5610738/2024/07/02/usmnt-uruguay-tactical-analysis/
 
