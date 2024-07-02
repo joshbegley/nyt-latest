@@ -1,3 +1,15 @@
+**Even now, Klay Thompson is the star the Mavs never could sign before**\
+`Dallas has long struck out in its quest to sign free agents. But Klay Thompson is different — and so is this franchise.`\
+https://nytimes.com/athletic/5610052/2024/07/02/klay-thompson-mavericks-signing-free-agent/
+
+**What Penguins' new draft picks bring to prospect pipeline**\
+`Let's break down the skills and film of Harrison Brunicke and Tanner Howe, the Penguins' two second-round picks.`\
+https://nytimes.com/athletic/5609240/2024/07/02/penguins-nhl-draft-picks-highlights/
+
+**USMNT's Copa America exit raises major questions. But is Pulisic the one to answer them?**\
+`As the best player on his nation’s roster, focus was always going to eventually fall on the AC Milan midfielder and U.S. captain`\
+https://nytimes.com/athletic/5610620/2024/07/02/pulisic-usmnt-copa-america-uruguay-elimination/
+
 **Nearly Half of Student Loan Borrowers Are Not Yet Paying Their Monthly Bill**\
 `Millions of people are overdue on their federal loans or still have them paused — and court rulings keep upending collection efforts.`\
 https://nytimes.com/2024/07/02/business/student-loan-nonpayment.html

@@ -1,3 +1,15 @@
+**Even now, Klay Thompson is the star the Mavs never could sign before**\
+`Dallas has long struck out in its quest to sign free agents. But Klay Thompson is different — and so is this franchise.`\
+https://nytimes.com/athletic/5610052/2024/07/02/klay-thompson-mavericks-signing-free-agent/
+
+**What Penguins' new draft picks bring to prospect pipeline**\
+`Let's break down the skills and film of Harrison Brunicke and Tanner Howe, the Penguins' two second-round picks.`\
+https://nytimes.com/athletic/5609240/2024/07/02/penguins-nhl-draft-picks-highlights/
+
+**USMNT's Copa America exit raises major questions. But is Pulisic the one to answer them?**\
+`As the best player on his nation’s roster, focus was always going to eventually fall on the AC Milan midfielder and U.S. captain`\
+https://nytimes.com/athletic/5610620/2024/07/02/pulisic-usmnt-copa-america-uruguay-elimination/
+
 **Nearly Half of Student Loan Borrowers Are Not Yet Paying Their Monthly Bill**\
 `Millions of people are overdue on their federal loans or still have them paused — and court rulings keep upending collection efforts.`\
 https://nytimes.com/2024/07/02/business/student-loan-nonpayment.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/02/us/supreme-court-texas-porn-law.html
 **Southampton reach agreement in principle for signing of Peterborough's Edwards**\
 `Southampton have reached an agreement in principle with Peterborough United for the signing of central defender Ronnie Edwards.`\
 https://nytimes.com/athletic/5611782/2024/07/02/ronnie-edwards-southampton-transfer/
-
-**The Windup: First in the AL and the MLB Draft**\
-`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
-https://nytimes.com/athletic/5611713/2024/07/02/cleveland-guardians-draft-astros-rotation-the-windup/
-
-**Supreme Court Won’t Hear Cases on High-Powered Rifles and Disarming Felons**\
-`The court, which issued two major decisions on guns in the term that ended Monday, does not seem ready to return to the subject.`\
-https://nytimes.com/2024/07/02/us/politics/supreme-court-high-powered-rifles.html
-
-**An Artist Who’s Been Making Work About Life and Death Since Childhood**\
-`Sarah Sze discusses her practice, pet adoption and winning second prize in a painting contest.`\
-https://nytimes.com/2024/07/02/t-magazine/sarah-sze-gagosian.html
 
