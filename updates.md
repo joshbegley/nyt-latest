@@ -1,3 +1,7 @@
+**The Windup: First in the AL and the MLB Draft**\
+`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
+https://nytimes.com/athletic/5611713/2024/07/02/cleveland-guardians-draft-astros-rotation-the-windup/
+
 **Supreme Court Won’t Hear Cases on High-Powered Rifles and Disarming Felons**\
 `The court, which issued two major decisions on guns in the term that ended Monday, does not seem ready to return to the subject.`\
 https://nytimes.com/2024/07/02/us/politics/supreme-court-high-powered-rifles.html
