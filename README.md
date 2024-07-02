@@ -1,3 +1,15 @@
+**Conservative Media Finds It Hard Not to Gloat**\
+`Many conservative commentators have said President Biden’s performance during the debate was a sweeping validation of the alarm bells they’d been ringing for years about his age.`\
+https://nytimes.com/2024/07/02/business/media/conservative-media-president-biden-debate.html
+
+**Biden Will Sit for Interview on Friday With ABC News**\
+`The interview, with the anchor George Stephanopoulos, will be the president’s first in-depth appearance with a journalist since last week’s debate.`\
+https://nytimes.com/2024/07/02/us/politics/biden-abc-news-interview.html
+
+**A Seismic Supreme Court Decision**\
+`Here’s how the end of the Chevron doctrine could affect climate regulation.`\
+https://nytimes.com/2024/07/02/climate/supreme-court-climate-chevron.html
+
 **Cuomo, in New Ad, Accuses Pro-Palestinian Activists of Supporting Hamas**\
 `The one-minute commercial, which was created by a group formed by former Gov. Andrew M. Cuomo, seeks to bring attention to atrocities linked to Hamas.`\
 https://nytimes.com/2024/07/02/nyregion/cuomo-israel-hamas-ad.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/02/us/politics/marianne-williamson-biden-democratic-
 **Blinken Says Hezbollah Attacks Have Cost Israel Sovereignty in North**\
 `The secretary of state’s comments underscored the stakes of cross-border tensions that threaten to bring a larger regional war alongside the conflict in Gaza.`\
 https://nytimes.com/2024/07/02/world/middleeast/hezbollah-israel-blinken.html
-
-**Who Pays Tariffs? And How Do We Know?**\
-`Thanks to Donald Trump, we don’t have to speculate.`\
-https://nytimes.com/2024/07/02/opinion/tariffs-trump-china-taxes.html
-
-**Swedish Grandparents Can Be Paid to Babysit Under New Law**\
-`The Nordic country’s generous social services system now allows parents to transfer a portion of paid leave days to other non-parent caregivers.`\
-https://nytimes.com/2024/07/02/world/europe/swedish-grandparents-parental-leave.html
-
-**Backing Biden, Pelosi Calls Questions About Debate Performance ‘Legitimate’**\
-`The former speaker said Trump told lies during the exchange, and it is fair to ask of both candidates: “Is this an episode or is this a condition?”`\
-https://nytimes.com/2024/07/02/us/politics/biden-debate-pelosi.html
 
