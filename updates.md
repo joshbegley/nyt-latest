@@ -1,3 +1,7 @@
+**Restaurant Review: A Shawarma Stall Is the Stage for a Spice Virtuoso**\
+`Spice Brothers is a showcase for the power of cinnamon, turmeric and other flavors of the Middle East.`\
+https://nytimes.com/2024/07/02/dining/spice-brothers-restaurant-review.html
+
 **Bruce Bastian, a Founder of WordPerfect, Is Dead at 76**\
 `A favorite of early personal computer users, his company was eventually overtaken by Microsoft Word. He later came out as gay and became an L.G.B.T.Q. activist.`\
 https://nytimes.com/2024/07/02/business/bruce-bastian-dead.html
