@@ -1,3 +1,7 @@
+**New Drug Approved for Early Alzheimer’s**\
+`The drug, by Eli Lilly, is the latest in a new class of treatments that could modestly slow cognitive decline in initial stages of the disease but also carry safety risks.`\
+https://nytimes.com/2024/07/02/health/alzheimers-treatment-donanemab.html
+
 **Mayer, Salas, Crews, Clark highlight Futures Game rosters**\
 `The 2024 All-Star Futures Game will take place on Sat., July 13 and will include a hitting skills competition for the first time.`\
 https://nytimes.com/athletic/5611905/2024/07/02/2024-futures-game-rosters-marcelo-mayer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5611900/2024/07/02/bronny-james-lakers-contract/
 **Submit questions for Aaron Gleeman's Twins mailbag**\
 `As you look ahead to the deadline and the rest of the season, what questions do you have about this team?`\
 https://nytimes.com/athletic/5611972/2024/07/02/minnesota-twins-reader-questions/
-
-**Yellowtail Gets the Prosciutto Treatment and More at Kappo Sono’s Sushi Counter**\
-`Drinks and pastries at Liz’s Book Bar, Il Mulino adds a steakhouse and more restaurant news.`\
-https://nytimes.com/2024/07/02/dining/nyc-restaurant-news.html
 
