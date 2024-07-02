@@ -1,3 +1,7 @@
+**At a Crucial Moment, Jill Biden Is Vogue’s Cover Star**\
+`During the most challenging period of President Biden’s re-election bid, the first lady appears on the cover of a high-fashion bible.`\
+https://nytimes.com/2024/07/01/style/jill-biden-vogue-cover.html
+
 **Doctors describe moving hundreds of patients from a hospital in the new evacuation zone.**\
 `By Ang Li and Ephrat Livni`\
 https://nytimes.com/live/2024/07/01/world/israel-gaza-war-hamas/doctors-describe-moving-hundreds-of-patients-from-a-hospital-in-the-new-evacuation-zone
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/100000009549802/beryl-hurricane.html
 **Barry Diller Explores Bid to Take Control of Paramount**\
 `Mr. Diller, a digital media pioneer, lost a bidding war for Paramount Pictures decades ago. Now, he’s making a run at its parent company.`\
 https://nytimes.com/2024/07/01/business/dealbook/barry-diller-paramount.html
-
-**Marathon Heat Wave Expected to Bake California Through Holiday Weekend**\
-`Across the state, the mercury is rising and may stay high for a week, if not longer.`\
-https://nytimes.com/2024/07/01/weather/heat-wave-california.html
 
