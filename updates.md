@@ -53,6 +53,11 @@ https://nytimes.com/athletic/5612243/2024/07/02/blackhawks-artyom-levshunov-nhl-
 `\
 https://nytimes.com/athletic/5612243/2024/07/02/blackhawks-artyom-levshunov-nhl-michigan-state/
 
+**Turn pro or return to school? Blackhawks, Artyom Levshunov have a decision to make**\
+`Dissecting the pros and cons of Levshunov signing and turning pro right away or delaying that for at least a year and returning to college.
+`\
+https://nytimes.com/athletic/5612243/2024/07/02/blackhawks-artyom-levshunov-nhl-michigan-state/
+
 **With Fists and Knives, Mobs Attack Syrian Refugees in Turkey**\
 `As economic woes grow in Turkey, groups of men have targeted Syrian refugees there. In response, fighters across the border in northern Syria have confronted Turkish soldiers.`\
 https://nytimes.com/2024/07/02/world/middleeast/syrian-refugees-turkey-attacks.html
