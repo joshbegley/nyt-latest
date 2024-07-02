@@ -1,3 +1,11 @@
+**Burnley in advanced talks to appoint Scott Parker as new manager**\
+`Burnley are in advanced talks to appoint Scott Parker as their new manager.`\
+https://nytimes.com/athletic/5611966/2024/07/02/burnley-in-advanced-talks-to-appoint-scott-parker-as-new-manager/
+
+**U.N. Panel Adds to Chorus Calling for Release of Evan Gershkovich**\
+`The U.N. Working Group on Arbitrary Detentions said the Wall Street Journal reporter was being punished for covering the war in Ukraine.`\
+https://nytimes.com/2024/07/02/world/europe/evan-gershkovich-russia-detention-un.html
+
 **Bruins offseason depth chart 1.0: Nearly complete save for one big ticket**\
 `After signing big tickets Elias Lindholm and Nikita Zadorov on Monday, the Bruins mostly appear to have a set roster for 2024-25.`\
 https://nytimes.com/athletic/5611720/2024/07/02/bruins-offseason-depth-chart-swayman/

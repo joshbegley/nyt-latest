@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5611720/2024/07/02/bruins-offseason-depth-chart-swa
 `Listen to songs by Martina McBride, Destiny’s Child, Kelly Clarkson and more.`\
 https://nytimes.com/2024/07/02/arts/music/amplifier-newsletter-independence-songs.html
 
-**The Briefing: Romania 0 Netherlands 3: Stylish Dutch through to quarter-finals as Gakpo chases Golden Boot**\
+**The Briefing: Romania 0 Netherlands 3 - Stylish Dutch through to quarter-finals as Gakpo chases Golden Boot**\
 `Our writers break down the key moments from the last 16 tie between Romania and the Netherlands in Munich`\
 https://nytimes.com/athletic/5610917/2024/07/02/romania-netherlands-euro-2024-result-analysis/
 
