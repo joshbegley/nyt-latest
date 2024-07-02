@@ -1,3 +1,7 @@
+**Democrats Take Panic About Biden Public Amid Fears of an Electoral Debacle**\
+`After days of quiet hand-wringing, a few Democrats went public with their concerns about the president, worried not only about his chances but also the party’s ability to hold the Senate and win the House.`\
+https://nytimes.com/2024/07/02/us/politics/democrats-panic-biden-electoral-debacle.html
+
 **Restaurant Review: A Shawarma Stall Is the Stage for a Spice Virtuoso**\
 `Spice Brothers is a showcase for the power of cinnamon, turmeric and other flavors of the Middle East.`\
 https://nytimes.com/2024/07/02/dining/spice-brothers-restaurant-review.html
