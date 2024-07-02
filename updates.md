@@ -1,3 +1,7 @@
+**Word of the Day: elicit**\
+`This word has appeared in 161 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/07/02/learning/word-of-the-day-elicit.html
+
 **France Is Headed for Disaster**\
 `The stakes have never been higher.`\
 https://nytimes.com/2024/07/02/opinion/france-elections-macron.html

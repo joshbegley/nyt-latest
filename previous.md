@@ -1,3 +1,7 @@
+**Word of the Day: elicit**\
+`This word has appeared in 161 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/07/02/learning/word-of-the-day-elicit.html
+
 **France Is Headed for Disaster**\
 `The stakes have never been higher.`\
 https://nytimes.com/2024/07/02/opinion/france-elections-macron.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/crosswords/daily-puzzle-2024-07-02.html
 **Two More Democratic Lawmakers Express Concern About Biden After Debate**\
 `Senator Sheldon Whitehouse of Rhode Island said he was “horrified" by the debate. Representative Debbie Dingell said “the campaign needs to listen to us.”`\
 https://nytimes.com/2024/07/01/us/politics/democratic-lawmakers-concerns-biden-debate.html
-
-**Immunity Ruling Escalates Long Rise of Presidential Power**\
-`Beyond Donald J. Trump, the decision adds to the seemingly one-way ratchet of executive authority.`\
-https://nytimes.com/2024/07/01/us/politics/immunity-president-supreme-court.html
 
