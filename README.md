@@ -1,3 +1,7 @@
+**Hollinger: NBA's apron era marks end of exceptionalism + free-agency winners, losers**\
+`The new CBA is making it impossible for teams like the Clippers, Warriors and Lakers to spend their way out of their mistakes.`\
+https://nytimes.com/athletic/5610578/2024/07/02/nba-free-agency-winners-losers-apron-era/
+
 **How Uruguay's masterly man-marking shut the USMNT out of the Copa America**\
 `In what turned out to be a must-win game for them, the United States' inability to break down Uruguay's defence was ruinous `\
 https://nytimes.com/athletic/5610738/2024/07/02/usmnt-uruguay-tactical-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5611177/2024/07/02/celtics-ownership-sale-paul-geor
 **Man City set to complete Savio transfer on five-year contract**\
 `Manchester City are set to sign Savinho, also known as Savio, on a five-year-contract.`\
 https://nytimes.com/athletic/5611695/2024/07/02/savio-man-city-transfer-news/
-
-**Biden’s Team Plans Meeting With Governors to Shore Up Support**\
-`The White House is also discussing having President Biden travel to Wisconsin and Pennsylvania this week as they work to move past his disastrous debate performance.`\
-https://nytimes.com/2024/07/02/us/politics/biden-governors-meeting.html
 
