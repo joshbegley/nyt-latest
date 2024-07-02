@@ -1,3 +1,7 @@
+**Clark vs. Taurasi draws major WNBA audience on ESPN**\
+`The Fever-Mercury game peaked at 2.7 million viewers.`\
+https://nytimes.com/athletic/5612447/2024/07/02/fever-mercury-caitlin-clark-diana-taurasi/
+
 **Unlicensed Therapist Used Wife’s Credentials to See Patients, Records Show**\
 `State records from investigations in Florida and Tennessee accuse Peggy Randolph of allowing her wife to use her licenses to see patients online. The scheme came to light after the wife died.`\
 https://nytimes.com/2024/07/02/us/social-worker-therapy-scam.html
@@ -34,8 +38,4 @@ https://nytimes.com/live/2024/06/25/opinion/thepoint/rudy-giuliani-disbarred
 `Dissecting the pros and cons of Levshunov signing and turning pro right away or delaying that for at least a year and returning to college.
 `\
 https://nytimes.com/athletic/5612243/2024/07/02/blackhawks-artyom-levshunov-nhl-michigan-state/
-
-**Macron’s Rivals Say They’ll Fix France’s Economy, but Economists Are Skeptical**\
-`The far-right National Rally party and the left-wing New Popular Front are focusing on a cost-of-living crisis to woo voters, but their plans risk worsening France’s soaring deficit.`\
-https://nytimes.com/2024/07/02/business/france-economy-macron-national-rally.html
 
