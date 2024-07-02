@@ -1,3 +1,7 @@
+**Johnston: Inside the Lightning-Stamkos split — a reminder that in the NHL, business trumps brotherhood**\
+`The Lightning on Tuesday signed Victor Hedman to a contract for the same term and salary as the one Stamkos signed in Nashville.`\
+https://nytimes.com/athletic/5612549/2024/07/02/lightning-stamkos-hedman-contracts/
+
 **Cody Gakpo is Netherlands' player of the Euros, can Arne Slot replicate it for Liverpool?**\
 `Cody Gakpo is Euro 2024's joint top-scorer playing off the left and doing it brilliantly. Will Liverpool take note?`\
 https://nytimes.com/athletic/5609224/2024/07/02/cody-gakpo-player-of-euros/
