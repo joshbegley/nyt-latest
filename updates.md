@@ -1,3 +1,7 @@
+**At a Crucial Moment, Jill Biden Is Vogue’s Cover Star**\
+`During the most challenging period of President Biden’s re-election bid, the first lady appears on the cover of a high-fashion bible.`\
+https://nytimes.com/2024/07/01/style/jill-biden-vogue-cover.html
+
 **Doctors describe moving hundreds of patients from a hospital in the new evacuation zone.**\
 `By Ang Li and Ephrat Livni`\
 https://nytimes.com/live/2024/07/01/world/israel-gaza-war-hamas/doctors-describe-moving-hundreds-of-patients-from-a-hospital-in-the-new-evacuation-zone
