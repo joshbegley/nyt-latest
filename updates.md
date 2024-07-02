@@ -1,3 +1,11 @@
+**Mayer, Salas, Crews, Clark highlight Futures Game rosters**\
+`The 2024 All-Star Futures Game will take place on Sat., July 13 and will include a hitting skills competition for the first time.`\
+https://nytimes.com/athletic/5611905/2024/07/02/2024-futures-game-rosters-marcelo-mayer/
+
+**Hurricane Roars Through the Caribbean**\
+`A look at the destruction caused by Hurricane Beryl as it lashes its way through the Caribbean.`\
+https://nytimes.com/2024/07/02/world/americas/hurricane-beryl-caribbean-photos.html
+
 **D.N.C. Member Pitches Process to Replace Biden as Nominee in Memo to Party Chair**\
 `The process, outlined by James Zogby, starts with an unlikely prospect: President Biden announcing that he would drop out of the race.`\
 https://nytimes.com/2024/07/02/us/politics/dnc-process-to-replace-biden.html

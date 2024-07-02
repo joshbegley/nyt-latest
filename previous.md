@@ -1,3 +1,11 @@
+**Mayer, Salas, Crews, Clark highlight Futures Game rosters**\
+`The 2024 All-Star Futures Game will take place on Sat., July 13 and will include a hitting skills competition for the first time.`\
+https://nytimes.com/athletic/5611905/2024/07/02/2024-futures-game-rosters-marcelo-mayer/
+
+**Hurricane Roars Through the Caribbean**\
+`A look at the destruction caused by Hurricane Beryl as it lashes its way through the Caribbean.`\
+https://nytimes.com/2024/07/02/world/americas/hurricane-beryl-caribbean-photos.html
+
 **D.N.C. Member Pitches Process to Replace Biden as Nominee in Memo to Party Chair**\
 `The process, outlined by James Zogby, starts with an unlikely prospect: President Biden announcing that he would drop out of the race.`\
 https://nytimes.com/2024/07/02/us/politics/dnc-process-to-replace-biden.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5611972/2024/07/02/minnesota-twins-reader-questions
 **Yellowtail Gets the Prosciutto Treatment and More at Kappo Sono’s Sushi Counter**\
 `Drinks and pastries at Liz’s Book Bar, Il Mulino adds a steakhouse and more restaurant news.`\
 https://nytimes.com/2024/07/02/dining/nyc-restaurant-news.html
-
-**Breaking Down the Supreme Court’s Ruling on Trump’s Immunity**\
-`The Supreme Court’s decision to grant presidents immunity from prosecution over official actions is an extraordinary expansion of executive power.`\
-https://nytimes.com/video/us/politics/100000009550277/breaking-down-the-supreme-courts-ruling-on-trumps-immunity.html
-
-**Grilled Hot Dogs, Honey Mustard Potato Salad and Berry Sheet Cake**\
-`Alexa, play “The Stars and Stripes Forever.”`\
-https://nytimes.com/2024/07/02/dining/july-4th-food.html
 
