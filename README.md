@@ -1,3 +1,7 @@
+**France Is Headed for Disaster**\
+`The stakes have never been higher.`\
+https://nytimes.com/2024/07/02/opinion/france-elections-macron.html
+
 **Corrections: July 2, 2024**\
 `Corrections that appeared in print on Tuesday, July 2, 2024.`\
 https://nytimes.com/2024/07/02/pageoneplus/corrections-july-2-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/us/politics/democratic-lawmakers-concerns-biden-d
 **Immunity Ruling Escalates Long Rise of Presidential Power**\
 `Beyond Donald J. Trump, the decision adds to the seemingly one-way ratchet of executive authority.`\
 https://nytimes.com/2024/07/01/us/politics/immunity-president-supreme-court.html
-
-**Judge Orders Biden Administration to Resume Permits for Gas Exports**\
-`President Biden had paused new natural gas export terminals to assess their effects on the climate, economy and national security. A federal judge disagreed.`\
-https://nytimes.com/2024/07/01/climate/federal-judge-biden-gas-exports.html
 
