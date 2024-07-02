@@ -1,3 +1,11 @@
+**Biden’s Lapses Are Increasingly Common, According to Some of Those in the Room**\
+`People who have spent time with President Biden over the last few months or so said the lapses appear to have grown more frequent, more pronounced and, after Thursday’s debate, more worrisome.`\
+https://nytimes.com/2024/07/02/us/politics/biden-lapses.html
+
+**What TE Kaleb Edwards adds to Alabama**\
+`Four-star tight end Kaleb Edwards, the No. 8 tight end nationally, committed to Alabama on Tuesday.`\
+https://nytimes.com/athletic/5612118/2024/07/02/kaleb-edwards-alabama-football-recruiting/
+
 **Do the Right Thing, Joe**\
 `The Supreme Court’s immunity decision makes it even more important that Trump have a vigorous opponent.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-trump-supreme-court
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5612063/2024/07/02/blues-trades-radek-faksa-mathieu
 **A Jewish Teen’s Diary Recounts Pain and Resilience in a Nazi Ghetto**\
 `In an online exhibition, the YIVO Institute for Jewish Research will explore the account of Yitskhok Rudashevski. He was 13 when the Germans took over Vilnius, Lithuania.`\
 https://nytimes.com/2024/07/02/arts/jewish-teen-yitskhok-rudashevski-nazi.html
-
-**Wolves confirm signing of Brazilian defender Lima**\
-`Wolverhampton Wanderers have completed the signing of Brazilian defender Pedro Lima from Sport Recife.`\
-https://nytimes.com/athletic/5612153/2024/07/02/pedro-lima-wolves-transfer/
-
-**Marianne Williamson Calls for Open Convention to Decide Democratic Nomination**\
-`The self-help author is again trying to revive her own bid, despite losing the nomination to President Biden in March.`\
-https://nytimes.com/2024/07/02/us/politics/marianne-williamson-biden-democratic-nomination.html
 

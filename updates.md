@@ -1,3 +1,11 @@
+**Biden’s Lapses Are Increasingly Common, According to Some of Those in the Room**\
+`People who have spent time with President Biden over the last few months or so said the lapses appear to have grown more frequent, more pronounced and, after Thursday’s debate, more worrisome.`\
+https://nytimes.com/2024/07/02/us/politics/biden-lapses.html
+
+**What TE Kaleb Edwards adds to Alabama**\
+`Four-star tight end Kaleb Edwards, the No. 8 tight end nationally, committed to Alabama on Tuesday.`\
+https://nytimes.com/athletic/5612118/2024/07/02/kaleb-edwards-alabama-football-recruiting/
+
 **Do the Right Thing, Joe**\
 `The Supreme Court’s immunity decision makes it even more important that Trump have a vigorous opponent.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-trump-supreme-court
