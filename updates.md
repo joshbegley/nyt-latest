@@ -1,3 +1,11 @@
+**Supreme Court Rejects Challenge to Life Sentences for Juveniles in Arizona**\
+`Three justices dissented in the case, which could affect more than two dozen youths sentenced to die in prison.`\
+https://nytimes.com/2024/07/02/us/politics/supreme-court-arizona-juvenile-sentence.html
+
+**The Best Movies and TV Shows Coming to Netflix in July**\
+`This month brings the arrival of “Lost” and the return of Eddie Murphy as Axel Foley.`\
+https://nytimes.com/2024/07/02/arts/television/netflix-new-movies-shows-july.html
+
 **Trump Continues to Delay Naming a Running Mate, Amid Biden Debate Fallout**\
 `Donald J. Trump has not named a running mate this week. He appears eager to avoid stepping on the controversy swirling around President Biden in the debate’s aftermath.`\
 https://nytimes.com/2024/07/02/us/politics/trump-vp-debate.html

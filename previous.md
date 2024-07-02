@@ -1,3 +1,11 @@
+**Supreme Court Rejects Challenge to Life Sentences for Juveniles in Arizona**\
+`Three justices dissented in the case, which could affect more than two dozen youths sentenced to die in prison.`\
+https://nytimes.com/2024/07/02/us/politics/supreme-court-arizona-juvenile-sentence.html
+
+**The Best Movies and TV Shows Coming to Netflix in July**\
+`This month brings the arrival of “Lost” and the return of Eddie Murphy as Axel Foley.`\
+https://nytimes.com/2024/07/02/arts/television/netflix-new-movies-shows-july.html
+
 **Trump Continues to Delay Naming a Running Mate, Amid Biden Debate Fallout**\
 `Donald J. Trump has not named a running mate this week. He appears eager to avoid stepping on the controversy swirling around President Biden in the debate’s aftermath.`\
 https://nytimes.com/2024/07/02/us/politics/trump-vp-debate.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/02/climate/supreme-court-climate-chevron.html
 **Cuomo, in New Ad, Accuses Pro-Palestinian Activists of Supporting Hamas**\
 `The one-minute commercial, which was created by a group formed by former Gov. Andrew M. Cuomo, seeks to bring attention to atrocities linked to Hamas.`\
 https://nytimes.com/2024/07/02/nyregion/cuomo-israel-hamas-ad.html
-
-**Broncos mailbag: Submit questions for beat writer Nick Kosmider**\
-`What's on your mind as training camp and the preseason approach?`\
-https://nytimes.com/athletic/5612173/2024/07/02/submit-questions-broncos-mailbag-2/
-
-**Blues acquire Radek Faksa, Mathieu Joseph for future considerations from Stars, Senators**\
-`The Blues are acquiring forwards Radek Faksa (Dallas) and Mathieu Joseph (Ottawa) in trades, shoring up their bottom-six forwards. `\
-https://nytimes.com/athletic/5612063/2024/07/02/blues-trades-radek-faksa-mathieu-joseph/
 
