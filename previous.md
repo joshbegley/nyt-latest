@@ -1,3 +1,23 @@
+**Austria 1 Turkey 2: Missiles fall, records tumble - and the save of the tournament?**\
+`All the big talking points from the last 16 clash in Leipzig`\
+https://nytimes.com/athletic/5610923/2024/07/02/austria-turkey-euro-2024-analysis/
+
+**Thousands Flee in Gaza as Israel Orders More Evacuations**\
+`The Israeli military says its campaign will soon become less intense, but Palestinians were once again racing to escape the fighting in southern Gaza, including Khan Younis.`\
+https://nytimes.com/2024/07/02/world/middleeast/gaza-evaucations-israel.html
+
+**Juventus in advanced talks to sign Khephren Thuram from Nice**\
+`Nice midfielder Khephren Thuram is in advanced talks to join Juventus on a five-year contract in a deal worth €20million (£16.`\
+https://nytimes.com/athletic/5612422/2024/07/02/khephren-thuram-nice-juventus-transfer-news/
+
+**U.S. Awards $504 Million for ‘Tech Hubs’ in Overlooked Regions**\
+`Biden administration officials hope the money will help propel technological innovation in areas that have historically received less government funding.`\
+https://nytimes.com/2024/07/02/us/politics/504-million-tech-hubs-overlooked-regions.html
+
+**Wednesday Briefing: President Biden’s Lapses Increase**\
+`Plus, Israel’s generals want a truce.`\
+https://nytimes.com/2024/07/02/briefing/biden-lapses-israel-general.html
+
 **With Fists and Knives, Mobs Attack Syrian Refugees in Turkey**\
 `As economic woes grow in Turkey, groups of men have targeted Syrian refugees there. In response, fighters across the border in northern Syria have confronted Turkish soldiers.`\
 https://nytimes.com/2024/07/02/world/middleeast/syrian-refugees-turkey-attacks.html
@@ -18,24 +38,4 @@ https://nytimes.com/2024/07/02/business/france-economy-macron-national-rally.htm
 **France’s Far-Right Party Has a Plan: Big on Ideas but Short on Details**\
 `Although the party, National Rally, has changed since its early days of overt racism and antisemitism, its basic philosophy remains: Immigrants are a threat to the country’s safety and economy,`\
 https://nytimes.com/2024/07/02/world/europe/france-national-rally-policies.html
-
-**‘Everything is difficult here’: Gazans describe the struggle of yet another evacuation.**\
-`By Bilal Shbair and Iyad Abuheweila`\
-https://nytimes.com/live/2024/07/02/world/israel-gaza-war-hamas/everything-is-difficult-here-gazans-describe-the-struggle-of-yet-another-evacuation
-
-**Democrats Go Public With Panic About Biden Amid Fears of an Electoral Debacle**\
-`After days of quiet hand-wringing, a few Democrats went public with their concerns about the president, worried not only about his chances but also the party’s ability to hold the Senate and win the House.`\
-https://nytimes.com/2024/07/02/us/politics/democrats-panic-biden-electoral-debacle.html
-
-**Bruce Bastian, a Founder of WordPerfect, Is Dead at 76**\
-`A favorite of early personal computer users, his company was eventually overtaken by Microsoft Word. He later came out as gay and became an L.G.B.T.Q. activist.`\
-https://nytimes.com/2024/07/02/business/bruce-bastian-dead.html
-
-**Bergwijn forced off with 'physical issues' in Netherlands win vs Romania - Koeman**\
-`Netherlands forward Steven Bergwijn was forced off at half time after suffering &#8220;physical issues&#8221; during his side&#8217;s European Championship last-16 victory over Romania, his coach Ronald Koeman has said.`\
-https://nytimes.com/athletic/5612299/2024/07/02/steven-bergwijn-injury-netherlands-euro-2024/
-
-**Supreme Court’s Immunity Ruling Adds Major Hurdle for Georgia Trump Case**\
-`Determining which of the alleged acts that Donald Trump is being prosecuted for in the state were official conduct, and which were not, could delay the case for months.`\
-https://nytimes.com/2024/07/02/us/georgia-trump-case-immunity.html
 

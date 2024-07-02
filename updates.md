@@ -1,3 +1,28 @@
+**Austria 1 Turkey 2: Missiles fall, records tumble - and the save of the tournament?**\
+`All the big talking points from the last 16 clash in Leipzig`\
+https://nytimes.com/athletic/5610923/2024/07/02/austria-turkey-euro-2024-analysis/
+
+**Thousands Flee in Gaza as Israel Orders More Evacuations**\
+`The Israeli military says its campaign will soon become less intense, but Palestinians were once again racing to escape the fighting in southern Gaza, including Khan Younis.`\
+https://nytimes.com/2024/07/02/world/middleeast/gaza-evaucations-israel.html
+
+**Juventus in advanced talks to sign Khephren Thuram from Nice**\
+`Nice midfielder Khephren Thuram is in advanced talks to join Juventus on a five-year contract in a deal worth €20million (£16.`\
+https://nytimes.com/athletic/5612422/2024/07/02/khephren-thuram-nice-juventus-transfer-news/
+
+**U.S. Awards $504 Million for ‘Tech Hubs’ in Overlooked Regions**\
+`Biden administration officials hope the money will help propel technological innovation in areas that have historically received less government funding.`\
+https://nytimes.com/2024/07/02/us/politics/504-million-tech-hubs-overlooked-regions.html
+
+**Wednesday Briefing: President Biden’s Lapses Increase**\
+`Plus, Israel’s generals want a truce.`\
+https://nytimes.com/2024/07/02/briefing/biden-lapses-israel-general.html
+
+**Turn pro or return to school? Blackhawks, Artyom Levshunov have a decision to make**\
+`Dissecting the pros and cons of Levshunov signing and turning pro right away or delaying that for at least a year and returning to college.
+`\
+https://nytimes.com/athletic/5612243/2024/07/02/blackhawks-artyom-levshunov-nhl-michigan-state/
+
 **Turn pro or return to school? Blackhawks, Artyom Levshunov have a decision to make**\
 `Dissecting the pros and cons of Levshunov signing and turning pro right away or delaying that for at least a year and returning to college.
 `\
