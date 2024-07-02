@@ -1,3 +1,11 @@
+**Corrections: July 2, 2024**\
+`Corrections that appeared in print on Tuesday, July 2, 2024.`\
+https://nytimes.com/2024/07/02/pageoneplus/corrections-july-2-2024.html
+
+**Quotation of the Day: She Learned How to Use a New Prosthetic Limb, and It Learned From Her**\
+`Quotation of the Day for Tuesday, July 2, 2024.`\
+https://nytimes.com/2024/07/02/pageoneplus/quotation-of-the-day-she-learned-how-to-use-a-new-prosthetic-limb-and-it-learned-from-her.html
+
 **From Courtroom to Downing Street: Keir Starmer, Low-Key Lawyer, Is on Cusp of Power**\
 `The Labour leader still struggles with the “performative side” of British politics, even as he has pulled his party to the center.`\
 https://nytimes.com/2024/07/02/world/europe/keir-starmer-uk-election.html
