@@ -1,3 +1,7 @@
+**Lloyd Doggett, a Texas Progressive, Cracks the Democratic Dam for Biden**\
+`The veteran congressman, once a prominent voice for his party’s left flank on Capitol Hill, said aloud what some Democrats have privately whispered in the days since the president’s debate performance.`\
+https://nytimes.com/2024/07/02/us/who-is-lloyd-doggett-biden.html
+
 **'The more I get injured, the more I learn about myself': Bianca Andreescu takes it in her stride**\
 `Bianca Andreescu's return to her best tennis started with thinking about it as little as possible`\
 https://nytimes.com/athletic/5588622/2024/07/02/bianca-andreescu-interview-tennis-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5612269/2024/07/02/turkey-gakpo-shoe-malen-euro-202
 **Paramount and Skydance Are Said to Resume Merger Talks**\
 `Just weeks after the two media companies scuttled their talks about a potential deal, they have resumed their conversations.`\
 https://nytimes.com/2024/07/02/business/media/paramount-skydance-merger-talks.html
-
-**Ex-49er Tashaun Gipson suspended 6 games**\
-`Gipson, 33, spent the past two seasons with the San Francisco 49ers and started in the Super Bowl against the Kansas City Chiefs.`\
-https://nytimes.com/athletic/5612621/2024/07/02/tashaun-gipson-suspension-nfl/
 
