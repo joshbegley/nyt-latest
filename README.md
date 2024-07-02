@@ -8,7 +8,7 @@ https://nytimes.com/athletic/5610923/2024/07/02/austria-turkey-euro-2024-analysi
 
 **Thousands Flee in Gaza as Israel Orders More Evacuations**\
 `The Israeli military says its campaign will soon become less intense, but Palestinians were once again racing to escape the fighting in southern Gaza, including Khan Younis.`\
-https://nytimes.com/2024/07/02/world/middleeast/gaza-evaucations-israel.html
+https://nytimes.com/2024/07/02/world/middleeast/gaza-evacuations-israel.html
 
 **Juventus in advanced talks to sign Khephren Thuram from Nice**\
 `Nice midfielder Khephren Thuram is in advanced talks to join Juventus on a five-year contract in a deal worth €20million (£16.`\
