@@ -1,3 +1,19 @@
+**Yes, the Starliner Is Stuck in Space**\
+`This isn’t how the new era of space was billed.`\
+https://nytimes.com/live/2024/07/02/opinion/thepoint/yes-the-starliner-is-stuck-in-space
+
+**What Would a Better Israeli Prime Minister Do?**\
+`The leaders who brought Israel into crisis won’t be able to bring it out of it.`\
+https://nytimes.com/2024/07/02/opinion/israel-netanyahu.html
+
+**‘Beverly Hills Cop: Axel F’ Review: It’s Busted**\
+`Eddie Murphy struggles to revive the moribund action-comedy franchise.`\
+https://nytimes.com/2024/07/02/movies/beverly-hills-cop-axel-f-review.html
+
+**To adapt to new CBA, Bucks went young in draft. How quickly can they develop?**\
+`Part of the Bucks’ plan this summer? Get younger. “The balance is intentional,” general manager Jon Horst said.`\
+https://nytimes.com/athletic/5612055/2024/07/02/bucks-aj-johnson-tyler-smith-nba-draft/
+
 **The Historical Echo Biden Has Tried to Suppress**\
 `Democrats have rebuffed comparisons between 2024 and 1968. Recent events show they have more to do.`\
 https://nytimes.com/2024/07/02/us/politics/biden-2024-presidential-race.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5612621/2024/07/02/tashaun-gipson-suspension-nfl/
 **Julián Castro, a 2020 Opponent of Biden, Says He Should Step Aside**\
 `Mr. Castro, who was criticized for remarks questioning Mr. Biden’s memory in a 2020 primary debate, said Democrats should find another candidate.`\
 https://nytimes.com/2024/07/02/us/politics/julian-castro-biden-election.html
-
-**Senators signing Shane Pinto to 2-year contract**\
-`Pinto will receive $2.5 million this season and $5 million in 2025-26.`\
-https://nytimes.com/athletic/5612672/2024/07/02/shane-pinto-senators-nhl-free-agency/
-
-**Why GPS Is Under Attack**\
-`Satellite signals run the modern world. See just how vulnerable they are.`\
-https://nytimes.com/interactive/2024/07/02/world/gps-threats.html
-
-**Wimbledon day 2: Tiebreaks galore, supersonic serves, and when is a shock not a shock?**\
-`The second day of Wimbledon 2024 brought tiebreak madness, Swiatek's smooth sailing, and a Tsitsipas tweet... From on court?`\
-https://nytimes.com/athletic/5611694/2024/07/02/wimbledon-djokovic-knee-tiebreaks-perricard-serve/
-
-**Biden’s Lapses Have Increased, According to Some Insiders**\
-`Also, Donald Trump’s sentencing was delayed until September. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/07/02/briefing/president-biden-trump-sentencing-summer-vacations.html
 
