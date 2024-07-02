@@ -1,3 +1,7 @@
+**A Major Heat Wave Will Bake California This Week**\
+`Several cities in the state will top 110 degrees over the next few days.`\
+https://nytimes.com/2024/07/02/us/california-heat-wave.html
+
 **Stampede at Religious Gathering in Northern India Kills Dozens**\
 `Many women and children were among the dead, and the number of fatalities could rise, a medical official said.`\
 https://nytimes.com/2024/07/02/world/asia/india-stampede-religious-event.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/02/podcasts/trump-charges-israel-truce.html
 **Wordle Review No. 1,110, July 3, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/02/crosswords/wordle-review-1110.html
-
-**The Connections Companion No. 388, July 3, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/02/crosswords/connections-companion-388.html
 
