@@ -1,3 +1,11 @@
+**The Many Challenges at Guantánamo Bay, Encapsulated in One Case**\
+`The sentencing trial of an insurgent commander put a spotlight on the state of affairs at the wartime prison.`\
+https://nytimes.com/2024/07/02/us/politics/guantanamo-war-crimes-case.html
+
+**Sargent 'upset and frustrated' after USMNT's Copa America exit**\
+`Josh Sargent admitted he was “shocked, upset and frustrated” by the USMNT’s Copa America group stage exit which has left it “easy to say bad things” about the team.`\
+https://nytimes.com/athletic/5611919/2024/07/02/josh-sargent-usmnt-copa-america-exit/
+
 **The Uproar Over the Immunity Ruling**\
 `Lawyers and other readers discuss the landmark Supreme Court decision. Also: A ruling on corruption; doctors and abortion bans; religion in public schools.`\
 https://nytimes.com/2024/07/02/opinion/supreme-court-immunity-ruling-trump.html
