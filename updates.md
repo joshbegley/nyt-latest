@@ -1,3 +1,11 @@
+**Tim Ryan Says Kamala Harris Should Replace Biden as Democratic Nominee**\
+`The former Ohio congressman said that he had lost confidence in President Biden’s ability to defeat former President Donald J. Trump.`\
+https://nytimes.com/2024/07/02/us/politics/tim-ryan-kamala-harris-biden-president.html
+
+**Parole Denied for Native American Activist Convicted in 1975 Killings**\
+`Supporters say Leonard Peltier, 79, was unfairly blamed for the deaths of two F.B.I. agents in a shootout with activists.`\
+https://nytimes.com/2024/07/02/us/leonard-peltier-parole.html
+
 **The 10 best NHL free agents still available on the market**\
 `Nearly all of the top players are off the board, but there are still some intriguing names available.`\
 https://nytimes.com/athletic/5610431/2024/07/02/nhl-free-agency-best-players-available/
