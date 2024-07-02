@@ -1,3 +1,7 @@
+**Supreme Court Won’t Hear Cases on High-Powered Rifles and Disarming Felons**\
+`The court, which issued two major decisions on guns in the term that ended Monday, does not seem ready to return to the subject.`\
+https://nytimes.com/2024/07/02/us/politics/supreme-court-high-powered-rifles.html
+
 **An Artist Who’s Been Making Work About Life and Death Since Childhood**\
 `Sarah Sze discusses her practice, pet adoption and winning second prize in a painting contest.`\
 https://nytimes.com/2024/07/02/t-magazine/sarah-sze-gagosian.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/02/climate/alaska-juneau-icefield-melting.html
 **Auto Sales Grew Slightly in Second Quarter**\
 `High interest rates, economic uncertainty and a cyberattack appear to have dampened sales in the three months between April and June.`\
 https://nytimes.com/2024/07/02/business/economy/auto-sales-second-quarter.html
-
-**The Delightful Delusions of Marc Jacobs**\
-`The designer’s fall collection, inspired by “personal transformation,” was wholly cartoonish.`\
-https://nytimes.com/2024/07/02/style/marc-jacobs-fashion-show-spring-2025.html
 

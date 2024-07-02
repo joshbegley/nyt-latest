@@ -1,3 +1,7 @@
+**How Media Outlets on the Left and Right Covered the Trump Immunity Decision**\
+`Liberal outlets criticized the ruling as a biased move from a conservative Supreme Court. Conservative commentators admonished Democrats for opposing it.`\
+https://nytimes.com/2024/07/02/business/media/supreme-court-trump-immunity-media-coverage.html
+
 **An Artist Who’s Been Making Work About Life and Death Since Childhood**\
 `Sarah Sze discusses her practice, pet adoption and winning second prize in a painting contest.`\
 https://nytimes.com/2024/07/02/t-magazine/sarah-sze-gagosian.html
