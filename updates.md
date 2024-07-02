@@ -1,3 +1,7 @@
+**As Israel prepares to focus on ‘targeted raids,’ it is telling people to leave a large swath of Gaza.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/07/02/world/israel-gaza-war-hamas/as-israel-prepares-to-focus-on-targeted-raids-it-is-telling-people-to-leave-a-large-swath-of-gaza
+
 **A Major Heat Wave Will Bake California This Week**\
 `Several cities in the state will top 110 degrees over the next few days.`\
 https://nytimes.com/2024/07/02/us/california-heat-wave.html
