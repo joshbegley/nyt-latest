@@ -1,3 +1,11 @@
+**Tim Ryan Says Kamala Harris Should Replace Biden as Democratic Nominee**\
+`The former Ohio congressman said that he had lost confidence in President Biden’s ability to defeat former President Donald J. Trump.`\
+https://nytimes.com/2024/07/02/us/politics/tim-ryan-kamala-harris-biden-president.html
+
+**Parole Denied for Native American Activist Convicted in 1975 Killings**\
+`Supporters say Leonard Peltier, 79, was unfairly blamed for the deaths of two F.B.I. agents in a shootout with activists.`\
+https://nytimes.com/2024/07/02/us/leonard-peltier-parole.html
+
 **The 10 best NHL free agents still available on the market**\
 `Nearly all of the top players are off the board, but there are still some intriguing names available.`\
 https://nytimes.com/athletic/5610431/2024/07/02/nhl-free-agency-best-players-available/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/02/nyregion/trump-sentencing-hush-money-trial.html
 **Will Stephon Castle and Chris Paul be good running mates for Victor Wembanyama and Spurs?**\
 `“I feel like our future is pretty bright,” Castle said about Victor Wembanyama and the Spurs.`\
 https://nytimes.com/athletic/5610449/2024/07/02/stephon-castle-chris-paul-spurs/
-
-**U.K. Nurse Lucy Letby Convicted of Attempted Murder in Retrial**\
-`Ms. Letby, who was previously found guilty in a string of murders and attempted murders, was retried and found guilty of another attempted murder.`\
-https://nytimes.com/2024/07/02/world/europe/lucy-letby-nurse-attempted-murder.html
-
-**Videos Show Ants Amputating Nest Mates’ Legs to Save Their Lives**\
-`The insects seem to know which injuries to treat as they engage in a behavior that seems almost human.`\
-https://nytimes.com/2024/07/02/science/ants-amputation-legs.html
 

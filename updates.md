@@ -1,3 +1,27 @@
+**The 10 best NHL free agents still available on the market**\
+`Nearly all of the top players are off the board, but there are still some intriguing names available.`\
+https://nytimes.com/athletic/5610431/2024/07/02/nhl-free-agency-best-players-available/
+
+**How Media Outlets on the Left and Right Covered the Trump Immunity Decision**\
+`Liberal outlets criticized the ruling as a biased move from a conservative Supreme Court. Conservative commentators admonished Democrats for opposing it.`\
+https://nytimes.com/2024/07/02/business/media/partisan-coverage-supreme-court-trump-immunity.html
+
+**Study Finds Alaskan Ice Field Melting at an ‘Incredibly Worrying’ Pace**\
+`The speed of decline in the Juneau Ice Field, an expanse of 1,050 interconnected glaciers, has doubled in recent decades, scientists discovered.`\
+https://nytimes.com/2024/07/02/climate/alaska-juneau-icefield-melting.html
+
+**Auto Sales Grew Slightly in Second Quarter**\
+`High interest rates, economic uncertainty and a cyberattack appear to have dampened sales in the three months between April and June.`\
+https://nytimes.com/2024/07/02/business/economy/auto-sales-second-quarter.html
+
+**The Delightful Delusions of Marc Jacobs**\
+`The designer’s fall collection, inspired by “personal transformation,” was wholly cartoonish.`\
+https://nytimes.com/2024/07/02/style/marc-jacobs-fashion-show-spring-2025.html
+
+**Russell Martin signs new Southampton contract through to 2027**\
+`Southampton head coach Russell Martin has signed a new contract through to 2027 after he led them back to the Premier League at the first time of asking.`\
+https://nytimes.com/athletic/5597346/2024/07/02/russell-martin-southampton-contract/
+
 **Manhattan Prosecutors Agree to Delay Trump’s Sentencing**\
 `Donald J. Trump’s lawyers want to argue that a Supreme Court decision giving presidents immunity for official acts should void his felony conviction for covering up hush money paid to a porn star.`\
 https://nytimes.com/2024/07/02/nyregion/trump-sentencing-hush-money-trial.html
