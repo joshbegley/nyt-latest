@@ -1,3 +1,11 @@
+**Do the Right Thing, Joe**\
+`The Supreme Court’s immunity decision makes it even more important that Trump have a vigorous opponent.`\
+https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-trump-supreme-court
+
+**After Thursday’s Debate, Conservative Media Finds It Hard Not to Gloat**\
+`Many conservative commentators have said President Biden’s performance during the debate was a sweeping validation of the alarm bells they’d been ringing for years about his age.`\
+https://nytimes.com/2024/07/02/business/media/conservative-media-president-biden-debate.html
+
 **Conservative Media Finds It Hard Not to Gloat**\
 `Many conservative commentators have said President Biden’s performance during the debate was a sweeping validation of the alarm bells they’d been ringing for years about his age.`\
 https://nytimes.com/2024/07/02/business/media/conservative-media-president-biden-debate.html

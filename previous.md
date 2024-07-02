@@ -1,4 +1,8 @@
-**Conservative Media Finds It Hard Not to Gloat**\
+**Do the Right Thing, Joe**\
+`The Supreme Court’s immunity decision makes it even more important that Trump have a vigorous opponent.`\
+https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-trump-supreme-court
+
+**After Thursday’s Debate, Conservative Media Finds It Hard Not to Gloat**\
 `Many conservative commentators have said President Biden’s performance during the debate was a sweeping validation of the alarm bells they’d been ringing for years about his age.`\
 https://nytimes.com/2024/07/02/business/media/conservative-media-president-biden-debate.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5612153/2024/07/02/pedro-lima-wolves-transfer/
 **Marianne Williamson Calls for Open Convention to Decide Democratic Nomination**\
 `The self-help author is again trying to revive her own bid, despite losing the nomination to President Biden in March.`\
 https://nytimes.com/2024/07/02/us/politics/marianne-williamson-biden-democratic-nomination.html
-
-**Blinken Says Hezbollah Attacks Have Cost Israel Sovereignty in North**\
-`The secretary of state’s comments underscored the stakes of cross-border tensions that threaten to bring a larger regional war alongside the conflict in Gaza.`\
-https://nytimes.com/2024/07/02/world/middleeast/hezbollah-israel-blinken.html
 
