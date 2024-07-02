@@ -1,3 +1,7 @@
+**Stampede at Religious Gathering in Northern India Kills at Least 50**\
+`The crush happened in hot and crowded conditions in Uttar Pradesh State, and a medical official said the death toll could rise.`\
+https://nytimes.com/2024/07/02/world/asia/india-stampede-religious-event.html
+
 **Elon Musk’s Politics May Be Pushing Some Buyers Away From Tesla**\
 `The Tesla chief executive’s polarizing statements have alienated some potential customers and may be partly responsible for a recent slump in sales.`\
 https://nytimes.com/2024/07/02/business/elon-musk-politics-tesla-sales.html
