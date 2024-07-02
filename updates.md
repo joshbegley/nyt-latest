@@ -1,3 +1,7 @@
+**The Historical Echo Biden Has Tried to Suppress**\
+`Democrats have rebuffed comparisons between 2024 and 1968. Recent events show they have more to do.`\
+https://nytimes.com/2024/07/02/us/politics/biden-2024-presidential-race.html
+
 **Julián Castro, a 2020 Opponent of Biden, Says He Should Step Aside**\
 `Mr. Castro, who was criticized for remarks questioning Mr. Biden’s memory in a 2020 primary debate, said Democrats should find another candidate.`\
 https://nytimes.com/2024/07/02/us/politics/julian-castro-biden-election.html
