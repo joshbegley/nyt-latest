@@ -1,3 +1,27 @@
+**The 10 best NHL free agents still available on the market**\
+`Nearly all of the top players are off the board, but there are still some intriguing names available.`\
+https://nytimes.com/athletic/5610431/2024/07/02/nhl-free-agency-best-players-available/
+
+**How Media Outlets on the Left and Right Covered the Trump Immunity Decision**\
+`Liberal outlets criticized the ruling as a biased move from a conservative Supreme Court. Conservative commentators admonished Democrats for opposing it.`\
+https://nytimes.com/2024/07/02/business/media/partisan-coverage-supreme-court-trump-immunity.html
+
+**Study Finds Alaskan Ice Field Melting at an ‘Incredibly Worrying’ Pace**\
+`The speed of decline in the Juneau Ice Field, an expanse of 1,050 interconnected glaciers, has doubled in recent decades, scientists discovered.`\
+https://nytimes.com/2024/07/02/climate/alaska-juneau-icefield-melting.html
+
+**Auto Sales Grew Slightly in Second Quarter**\
+`High interest rates, economic uncertainty and a cyberattack appear to have dampened sales in the three months between April and June.`\
+https://nytimes.com/2024/07/02/business/economy/auto-sales-second-quarter.html
+
+**The Delightful Delusions of Marc Jacobs**\
+`The designer’s fall collection, inspired by “personal transformation,” was wholly cartoonish.`\
+https://nytimes.com/2024/07/02/style/marc-jacobs-fashion-show-spring-2025.html
+
+**Russell Martin signs new Southampton contract through to 2027**\
+`Southampton head coach Russell Martin has signed a new contract through to 2027 after he led them back to the Premier League at the first time of asking.`\
+https://nytimes.com/athletic/5597346/2024/07/02/russell-martin-southampton-contract/
+
 **Manhattan Prosecutors Agree to Delay Trump’s Sentencing**\
 `Donald J. Trump’s lawyers want to argue that a Supreme Court decision giving presidents immunity for official acts should void his felony conviction for covering up hush money paid to a porn star.`\
 https://nytimes.com/2024/07/02/nyregion/trump-sentencing-hush-money-trial.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/07/02/world/europe/lucy-letby-nurse-attempted-murder.ht
 **Videos Show Ants Amputating Nest Mates’ Legs to Save Their Lives**\
 `The insects seem to know which injuries to treat as they engage in a behavior that seems almost human.`\
 https://nytimes.com/2024/07/02/science/ants-amputation-legs.html
-
-**It’s Easy Being Extra-Green Pasta Salad**\
-`And more breezy, delicious summer dishes: watermelon salad, grilled tahini-honey chicken, tomato-basil fried rice.`\
-https://nytimes.com/2024/07/02/dining/andy-baraghanis-extra-green-pasta-salad.html
-
-**Archie Gray to Tottenham: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate Archie Gray's move to Tottenham.`\
-https://nytimes.com/athletic/5605719/2024/07/02/archie-gray-tottenham-transfer-ratings/
-
-**15 Summer Theaters for That Nearby, Out-of-Town Experience**\
-`Easygoing days of drama and comedy are just a few hours away (or even closer) in New York, Connecticut and Massachusetts.`\
-https://nytimes.com/2024/07/02/theater/summer-theater-festivals-upstate-and-regional.html
-
-**Now what? How the Clippers will navigate the post-Paul George era**\
-`After failing to re-sign their All-Star small forward, the Clippers will move to Plan B, which might look a lot like 2021-22.`\
-https://nytimes.com/athletic/5610716/2024/07/02/paul-george-era-over-clippers-now-what/
-
-**At 100, the Intergalactic Jazz Hero Marshall Allen Is Still on a Mission**\
-`The Sun Ra Arkestra saxophonist, who remains captivated by the power of sound, is an inspiring onstage presence.`\
-https://nytimes.com/2024/07/02/arts/music/marshall-allen-sun-ra-arkestra.html
-
-**Kiernan Dewsbury-Hall to Chelsea: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate Kiernan Dewsbury-Hall's move from Leicester City to Chelsea`\
-https://nytimes.com/athletic/5605480/2024/07/02/kiernan-dewsbury-hall-chelsea-transfer-rating/
 
