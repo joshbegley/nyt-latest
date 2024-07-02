@@ -1,3 +1,7 @@
+**The Windup: First in the AL and the MLB Draft**\
+`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
+https://nytimes.com/athletic/5611713/2024/07/02/cleveland-guardians-draft-astros-rotation-the-windup/
+
 **Supreme Court Won’t Hear Cases on High-Powered Rifles and Disarming Felons**\
 `The court, which issued two major decisions on guns in the term that ended Monday, does not seem ready to return to the subject.`\
 https://nytimes.com/2024/07/02/us/politics/supreme-court-high-powered-rifles.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/02/business/media/supreme-court-trump-immunity-media
 **Study Finds Alaskan Ice Field Melting at an ‘Incredibly Worrying’ Pace**\
 `The speed of decline in the Juneau Ice Field, an expanse of 1,050 interconnected glaciers, has doubled in recent decades, scientists discovered.`\
 https://nytimes.com/2024/07/02/climate/alaska-juneau-icefield-melting.html
-
-**Auto Sales Grew Slightly in Second Quarter**\
-`High interest rates, economic uncertainty and a cyberattack appear to have dampened sales in the three months between April and June.`\
-https://nytimes.com/2024/07/02/business/economy/auto-sales-second-quarter.html
 
