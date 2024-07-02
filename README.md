@@ -1,3 +1,7 @@
+**Two More Democratic Lawmakers Express Concern About Biden After Debate**\
+`Senator Sheldon Whitehouse of Rhode Island said he was “horrified" by the debate. Representative Debbie Dingell said “the campaign needs to listen to us.”`\
+https://nytimes.com/2024/07/01/us/politics/democratic-lawmakers-concerns-biden-debate.html
+
 **Immunity Ruling Escalates Long Rise of Presidential Power**\
 `Beyond Donald J. Trump, the decision adds to the seemingly one-way ratchet of executive authority.`\
 https://nytimes.com/2024/07/01/us/politics/immunity-president-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/world/middleeast/gaza-israel-shifa-hospital.html
 **France’s Far Right Is Bad. But Not as Hypocritical as MAGA.**\
 `They share anti-immigrant prejudices, but not all the same policy priorities.`\
 https://nytimes.com/2024/07/01/opinion/france-election-macron-maga.html
-
-**How Did the Debate Affect the Race? Quality Polls Are Not Yet Available**\
-`Some surveys indicate a slight dip for President Biden, but too few have been released to provide a sharp picture of the post-debate national mood.`\
-https://nytimes.com/2024/07/01/us/elections/debate-polls-biden-trump.html
 
