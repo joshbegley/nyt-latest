@@ -1,3 +1,7 @@
+**Judge Orders Biden Administration to Resume Permits for Gas Exports**\
+`President Biden had paused new natural gas export terminals to assess their effects on the climate, economy and national security. A federal judge disagreed.`\
+https://nytimes.com/2024/07/01/climate/federal-judge-biden-gas-exports.html
+
 **There’s No Reason to Resign Ourselves to Biden**\
 `The president’s team should stop gaslighting us.`\
 https://nytimes.com/2024/07/01/opinion/biden-replacement-white-house.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/us/elections/debate-polls-biden-trump.html
 **Ozy Media Founder Takes the Stand to Deny Fraud Allegations**\
 `Carlos Watson was questioned after Ozy investors, former employees and bankers testified for the prosecution in his trial.`\
 https://nytimes.com/2024/07/01/business/media/ozy-media-carlos-watson-testimony.html
-
-**Clarence Thomas Raised Another Issue: Was Jack Smith Legally Appointed?**\
-`In his concurrence to the immunity decision, the justice questioned whether there was a legal basis for naming the special counsel — a topic also being explored by the judge in the documents case.`\
-https://nytimes.com/2024/07/01/us/politics/clarence-thomas-special-counsel-appointment.html
 
