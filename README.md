@@ -22,7 +22,7 @@ https://nytimes.com/athletic/5612055/2024/07/02/bucks-aj-johnson-tyler-smith-nba
 `Democrats have rebuffed comparisons between 2024 and 1968. Recent events show they have more to do.`\
 https://nytimes.com/2024/07/02/us/politics/biden-2024-presidential-race.html
 
-**Johnston: Inside the Lightning-Stamkos split — a reminder that in the NHL, business trumps brotherhood**\
+**Johnston: Inside Lightning-Stamkos split — reminder that in NHL, business trumps brotherhood**\
 `The Lightning on Tuesday signed Victor Hedman to a contract for the same term and salary as the one Stamkos signed in Nashville.`\
 https://nytimes.com/athletic/5612549/2024/07/02/lightning-stamkos-hedman-contracts/
 
