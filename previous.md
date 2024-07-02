@@ -1,3 +1,11 @@
+**Novak Djokovic braces for bigger tests - of his knee and of his tennis**\
+`The seven-time champion eased himself into SW19 — and right now, that's all he can hope to do`\
+https://nytimes.com/athletic/5611877/2024/07/02/djokovic-wimbledon-knee-surgery/
+
+**Trump Wastes No Time in Exploiting the Court’s Immunity Ruling**\
+`Delaying his sentencing past the convention shields the public from the seriousness of his crimes.`\
+https://nytimes.com/live/2024/06/25/opinion/thepoint/trump-sentencing-convention-immunity
+
 **New Drug Approved for Early Alzheimer’s**\
 `The drug, by Eli Lilly, is the latest in a new class of treatments that could modestly slow cognitive decline in initial stages of the disease but also carry safety risks.`\
 https://nytimes.com/2024/07/02/health/alzheimers-treatment-donanemab.html
@@ -8,7 +16,7 @@ https://nytimes.com/athletic/5611905/2024/07/02/2024-futures-game-rosters-marcel
 
 **Hurricane Roars Through the Caribbean**\
 `A look at the destruction caused by Hurricane Beryl as it lashes its way through the Caribbean.`\
-https://nytimes.com/2024/07/02/world/americas/hurricane-beryl-caribbean-photos.html
+https://nytimes.com/2024/07/02/world/americas/hurricane-beryl-jamaica-caribbean-photos.html
 
 **D.N.C. Member Pitches Process to Replace Biden as Nominee in Memo to Party Chair**\
 `The process, outlined by James Zogby, starts with an unlikely prospect: President Biden announcing that he would drop out of the race.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/02/us/politics/did-you-serve-on-a-war-crimes-jury-at
 **Utah State football coach Blake Anderson placed on administrative leave**\
 `Defensive coordinator Nate Dreiling was named the interim head coach.`\
 https://nytimes.com/athletic/5611882/2024/07/02/blake-anderson-utah-state-administrative-leave/
-
-**Bronny James plans to sign multiyear contract with Lakers: Sources**\
-`James — the 55th pick in the 2024 NBA Draft —will join his father, LeBron, on the Lakers' roster.`\
-https://nytimes.com/athletic/5611900/2024/07/02/bronny-james-lakers-contract/
-
-**Submit questions for Aaron Gleeman's Twins mailbag**\
-`As you look ahead to the deadline and the rest of the season, what questions do you have about this team?`\
-https://nytimes.com/athletic/5611972/2024/07/02/minnesota-twins-reader-questions/
 

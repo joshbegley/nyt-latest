@@ -1,3 +1,15 @@
+**Novak Djokovic braces for bigger tests - of his knee and of his tennis**\
+`The seven-time champion eased himself into SW19 — and right now, that's all he can hope to do`\
+https://nytimes.com/athletic/5611877/2024/07/02/djokovic-wimbledon-knee-surgery/
+
+**Trump Wastes No Time in Exploiting the Court’s Immunity Ruling**\
+`Delaying his sentencing past the convention shields the public from the seriousness of his crimes.`\
+https://nytimes.com/live/2024/06/25/opinion/thepoint/trump-sentencing-convention-immunity
+
+**Hurricane Roars Through the Caribbean**\
+`A look at the destruction caused by Hurricane Beryl as it lashes its way through the Caribbean.`\
+https://nytimes.com/2024/07/02/world/americas/hurricane-beryl-jamaica-caribbean-photos.html
+
 **New Drug Approved for Early Alzheimer’s**\
 `The drug, by Eli Lilly, is the latest in a new class of treatments that could modestly slow cognitive decline in initial stages of the disease but also carry safety risks.`\
 https://nytimes.com/2024/07/02/health/alzheimers-treatment-donanemab.html
