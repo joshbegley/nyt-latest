@@ -1,3 +1,7 @@
+**Supreme Court’s Immunity Decision Sets ‘Dangerous Precedent,’ Biden Says**\
+`President Biden spoke after the Supreme Court’s ruling that former President Donald J. Trump is entitled to substantial immunity from prosecution on charges of trying to overturn the 2020 election.`\
+https://nytimes.com/video/us/politics/100000009550750/biden-scotus-trump-immunity.html
+
 **At a Crucial Moment, Jill Biden Is Vogue’s Cover Star**\
 `During the most challenging period of President Biden’s re-election bid, the first lady appears on the cover of a high-fashion bible.`\
 https://nytimes.com/2024/07/01/style/jill-biden-vogue-cover.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/01/us/politics/clarence-thomas-special-counsel-appoi
 **Hurricane Beryl Hits the Caribbean**\
 `Hurricane Beryl made landfall on Monday bringing heavy rains, floods, and destruction across the Caribbean this week as a Category 4 storm.`\
 https://nytimes.com/video/world/100000009549802/beryl-hurricane.html
-
-**Barry Diller Explores Bid to Take Control of Paramount**\
-`Mr. Diller, a digital media pioneer, lost a bidding war for Paramount Pictures decades ago. Now, he’s making a run at its parent company.`\
-https://nytimes.com/2024/07/01/business/dealbook/barry-diller-paramount.html
 
