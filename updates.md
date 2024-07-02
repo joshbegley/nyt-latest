@@ -1,3 +1,15 @@
+**How Uruguay's masterly man-marking shut the USMNT out of the Copa America**\
+`In what turned out to be a must-win game for them, the United States' inability to break down Uruguay's defence was ruinous `\
+https://nytimes.com/athletic/5610738/2024/07/02/usmnt-uruguay-tactical-analysis/
+
+**Lawsuit Challenges Affirmative Action in Hiring at Northwestern Law School**\
+`The complaint was filed a year after the Supreme Court struck down the use of racial and gender preferences in college admissions.`\
+https://nytimes.com/2024/07/02/us/affirmative-action-lawsuit.html
+
+**A Democratic Senator criticized the Biden campaign over its debate pushback.**\
+`Senator Peter Welch of Vermont said that the campaign should acknowledge concerns about President Biden’s poor debate performance, not dismiss them.`\
+https://nytimes.com/live/2024/07/02/us/biden-trump-election/peter-welch-biden-debate
+
 **Even now, Klay Thompson is the star the Mavs never could sign before**\
 `Dallas has long struck out in its quest to sign free agents. But Klay Thompson is different — and so is this franchise.`\
 https://nytimes.com/athletic/5610052/2024/07/02/klay-thompson-mavericks-signing-free-agent/
