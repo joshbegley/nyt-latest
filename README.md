@@ -1,3 +1,23 @@
+**Nearly Half of Student Loan Borrowers Are Not Yet Paying Their Monthly Bill**\
+`Millions of people are overdue on their federal loans or still have them paused — and court rulings keep upending collection efforts.`\
+https://nytimes.com/2024/07/02/business/student-loan-nonpayment.html
+
+**The Bounce: Why Celtics ownership is selling at the perfect time**\
+`Zach Harper and Shams Charania catch you up on leaguewide news.`\
+https://nytimes.com/athletic/5611177/2024/07/02/celtics-ownership-sale-paul-george-76ers-thunder-clippers-shai-gilgeous-alexander-the-bounce/
+
+**Man City set to complete Savio transfer on five-year contract**\
+`Manchester City are set to sign Savinho, also known as Savio, on a five-year-contract.`\
+https://nytimes.com/athletic/5611695/2024/07/02/savio-man-city-transfer-news/
+
+**Biden’s Team Plans Meeting With Governors to Shore Up Support**\
+`The White House is also discussing having President Biden travel to Wisconsin and Pennsylvania this week as they work to move past his disastrous debate performance.`\
+https://nytimes.com/2024/07/02/us/politics/biden-governors-meeting.html
+
+**Sports Media Mailbag: Submit your questions for Richard Deitsch**\
+`Have questions about anything in sports media? Leave them here for Richard Deitsch's latest Sports Media Mailbag.`\
+https://nytimes.com/athletic/5611763/2024/07/02/sports-media-mailbag-submit-your-questions-for-richard-deitsch-8/
+
 **Supreme Court to Hear Case on Texas Law Restricting Access to Porn**\
 `The law, meant to shield minors from sexual materials on the internet by requiring adults to prove they are at least 18, was challenged on First Amendment grounds.`\
 https://nytimes.com/2024/07/02/us/supreme-court-texas-porn-law.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/07/02/us/politics/supreme-court-high-powered-rifles.htm
 **An Artist Who’s Been Making Work About Life and Death Since Childhood**\
 `Sarah Sze discusses her practice, pet adoption and winning second prize in a painting contest.`\
 https://nytimes.com/2024/07/02/t-magazine/sarah-sze-gagosian.html
-
-**Why We Still Want to Hear the ‘Ode to Joy,’ 200 Years Later**\
-`Beethoven’s aspirational vision of unity and peace can be applied to virtually any situation or place. The music makes sure of that.`\
-https://nytimes.com/2024/07/02/arts/music/ode-to-joy-beethoven.html
-
-**Giuliani Disbarred From the Practice of Law in New York**\
-`Rudolph W. Giuliani, the former mayor of New York and a longtime ally of Donald J. Trump, was at the center of the former president’s efforts to overturn the 2020 election.`\
-https://nytimes.com/2024/07/02/nyregion/giuliani-barred-from-practicing-law-in-new-york.html
-
-**Tim Ryan Says Kamala Harris Should Replace Biden as Democratic Nominee**\
-`The former Ohio congressman said that he had lost confidence in President Biden’s ability to defeat former President Donald J. Trump.`\
-https://nytimes.com/2024/07/02/us/politics/tim-ryan-kamala-harris-biden-president.html
-
-**Parole Denied for Native American Activist Convicted in 1975 Killings**\
-`Supporters say Leonard Peltier, 79, was unfairly blamed for the deaths of two F.B.I. agents in a shootout with activists.`\
-https://nytimes.com/2024/07/02/us/leonard-peltier-parole.html
-
-**The 10 best NHL free agents still available on the market**\
-`Nearly all of the top players are off the board, but there are still some intriguing names available.`\
-https://nytimes.com/athletic/5610431/2024/07/02/nhl-free-agency-best-players-available/
 
