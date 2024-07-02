@@ -1,3 +1,7 @@
+**Euro 2024 day 19 - Turkey march into last eight, Gakpo stars again, and who throws a shoe?**\
+`Liverpool forward Gakpo goes level in race for golden boot, Turkey march on, and a goalkeeper has to kick a shoe out of his way in Munich`\
+https://nytimes.com/athletic/5612269/2024/07/02/turkey-gakpo-shoe-malen-euro-2024/
+
 **Johnston: Inside the Lightning-Stamkos split — a reminder that in the NHL, business trumps brotherhood**\
 `The Lightning on Tuesday signed Victor Hedman to a contract for the same term and salary as the one Stamkos signed in Nashville.`\
 https://nytimes.com/athletic/5612549/2024/07/02/lightning-stamkos-hedman-contracts/
