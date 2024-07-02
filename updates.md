@@ -1,3 +1,7 @@
+**North Korea’s Latest Missile Test Suggests Arms Race With South**\
+`The North said it tested a missile with a “super-large warhead” on Monday. The South has similar missiles, meant to target underground bunkers.`\
+https://nytimes.com/2024/07/02/world/asia/north-korea-missile-test.html
+
 **Word of the Day: elicit**\
 `This word has appeared in 161 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/07/02/learning/word-of-the-day-elicit.html
