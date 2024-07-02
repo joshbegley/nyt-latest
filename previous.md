@@ -1,3 +1,15 @@
+**An Artist Who’s Been Making Work About Life and Death Since Childhood**\
+`Sarah Sze discusses her practice, pet adoption and winning second prize in a painting contest.`\
+https://nytimes.com/2024/07/02/t-magazine/sarah-sze-gagosian.html
+
+**Why We Still Want to Hear the ‘Ode to Joy,’ 200 Years Later**\
+`Beethoven’s aspirational vision of unity and peace can be applied to virtually any situation or place. The music makes sure of that.`\
+https://nytimes.com/2024/07/02/arts/music/ode-to-joy-beethoven.html
+
+**Giuliani Disbarred From the Practice of Law in New York**\
+`Rudolph W. Giuliani, the former mayor of New York and a longtime ally of Donald J. Trump, was at the center of the former president’s efforts to overturn the 2020 election.`\
+https://nytimes.com/2024/07/02/nyregion/giuliani-barred-from-practicing-law-in-new-york.html
+
 **Tim Ryan Says Kamala Harris Should Replace Biden as Democratic Nominee**\
 `The former Ohio congressman said that he had lost confidence in President Biden’s ability to defeat former President Donald J. Trump.`\
 https://nytimes.com/2024/07/02/us/politics/tim-ryan-kamala-harris-biden-president.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/02/business/economy/auto-sales-second-quarter.html
 **The Delightful Delusions of Marc Jacobs**\
 `The designer’s fall collection, inspired by “personal transformation,” was wholly cartoonish.`\
 https://nytimes.com/2024/07/02/style/marc-jacobs-fashion-show-spring-2025.html
-
-**Russell Martin signs new Southampton contract through to 2027**\
-`Southampton head coach Russell Martin has signed a new contract through to 2027 after he led them back to the Premier League at the first time of asking.`\
-https://nytimes.com/athletic/5597346/2024/07/02/russell-martin-southampton-contract/
-
-**Manhattan Prosecutors Agree to Delay Trump’s Sentencing**\
-`Donald J. Trump’s lawyers want to argue that a Supreme Court decision giving presidents immunity for official acts should void his felony conviction for covering up hush money paid to a porn star.`\
-https://nytimes.com/2024/07/02/nyregion/trump-sentencing-hush-money-trial.html
-
-**Will Stephon Castle and Chris Paul be good running mates for Victor Wembanyama and Spurs?**\
-`“I feel like our future is pretty bright,” Castle said about Victor Wembanyama and the Spurs.`\
-https://nytimes.com/athletic/5610449/2024/07/02/stephon-castle-chris-paul-spurs/
 

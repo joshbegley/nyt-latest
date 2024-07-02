@@ -1,3 +1,15 @@
+**An Artist Who’s Been Making Work About Life and Death Since Childhood**\
+`Sarah Sze discusses her practice, pet adoption and winning second prize in a painting contest.`\
+https://nytimes.com/2024/07/02/t-magazine/sarah-sze-gagosian.html
+
+**Why We Still Want to Hear the ‘Ode to Joy,’ 200 Years Later**\
+`Beethoven’s aspirational vision of unity and peace can be applied to virtually any situation or place. The music makes sure of that.`\
+https://nytimes.com/2024/07/02/arts/music/ode-to-joy-beethoven.html
+
+**Giuliani Disbarred From the Practice of Law in New York**\
+`Rudolph W. Giuliani, the former mayor of New York and a longtime ally of Donald J. Trump, was at the center of the former president’s efforts to overturn the 2020 election.`\
+https://nytimes.com/2024/07/02/nyregion/giuliani-barred-from-practicing-law-in-new-york.html
+
 **Tim Ryan Says Kamala Harris Should Replace Biden as Democratic Nominee**\
 `The former Ohio congressman said that he had lost confidence in President Biden’s ability to defeat former President Donald J. Trump.`\
 https://nytimes.com/2024/07/02/us/politics/tim-ryan-kamala-harris-biden-president.html
