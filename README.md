@@ -1,3 +1,11 @@
+**Restaurant Review: A Shawarma Stall Is the Stage for a Spice Virtuoso**\
+`Spice Brothers is a showcase for the power of cinnamon, turmeric and other flavors of the Middle East.`\
+https://nytimes.com/2024/07/02/dining/restaurant-review-a-shawarma-stall-is-the-stage-for-a-spice-virtuoso.html
+
+**President Biden: Teach Them How to Say Goodbye**\
+`Trump fears that Biden will demonstrate the difference between a leader who puts the country first and a leader who put himself first.`\
+https://nytimes.com/2024/07/02/opinion/biden-trump-step-aside.html
+
 **Supreme Court Rejects Challenge to Life Sentences for Juveniles in Arizona**\
 `Three justices dissented in the case, which could affect more than two dozen youths sentenced to die in prison.`\
 https://nytimes.com/2024/07/02/us/politics/supreme-court-arizona-juvenile-sentence.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/02/business/media/conservative-media-president-biden
 **Biden Will Sit for Interview on Friday With ABC News**\
 `The interview, with the anchor George Stephanopoulos, will be the president’s first in-depth appearance with a journalist since last week’s debate.`\
 https://nytimes.com/2024/07/02/us/politics/biden-abc-news-interview.html
-
-**A Seismic Supreme Court Decision**\
-`Here’s how the end of the Chevron doctrine could affect climate regulation.`\
-https://nytimes.com/2024/07/02/climate/supreme-court-climate-chevron.html
-
-**Cuomo, in New Ad, Accuses Pro-Palestinian Activists of Supporting Hamas**\
-`The one-minute commercial, which was created by a group formed by former Gov. Andrew M. Cuomo, seeks to bring attention to atrocities linked to Hamas.`\
-https://nytimes.com/2024/07/02/nyregion/cuomo-israel-hamas-ad.html
 
