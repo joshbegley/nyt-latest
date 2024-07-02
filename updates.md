@@ -18,6 +18,11 @@ https://nytimes.com/athletic/5612243/2024/07/02/blackhawks-artyom-levshunov-nhl-
 `\
 https://nytimes.com/athletic/5612243/2024/07/02/blackhawks-artyom-levshunov-nhl-michigan-state/
 
+**Turn pro or return to school? Blackhawks, Artyom Levshunov have a decision to make**\
+`Dissecting the pros and cons of Levshunov signing and turning pro right away or delaying that for at least a year and returning to college.
+`\
+https://nytimes.com/athletic/5612243/2024/07/02/blackhawks-artyom-levshunov-nhl-michigan-state/
+
 **Unlicensed Therapist Used Wife’s Credentials to See Patients, Records Show**\
 `State records from investigations in Florida and Tennessee accuse Peggy Randolph of allowing her wife to use her licenses to see patients online. The scheme came to light after the wife died.`\
 https://nytimes.com/2024/07/02/us/social-worker-therapy-scam.html
