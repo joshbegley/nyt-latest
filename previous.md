@@ -1,3 +1,7 @@
+**MLB scouting notebook: Three under-the-radar trade candidates, and a Julio Rodríguez statistical deep dive**\
+`Andrea Arcadipane takes a close-up look at three trade deadline targets and also looks into reasons for Julio Rodríguez's struggles in 2024.`\
+https://nytimes.com/athletic/5611795/2024/07/02/mlb-scouting-notebook-trade-candidates-julio-rodriguez/
+
 **Powell Cites ‘Real Progress’ as Central Bankers Assess Inflation Fight**\
 `Jerome H. Powell, the Fed chair, and Christine Lagarde, the European Central Bank chief, sounded optimistic about recent inflation data but reiterated the need for more confidence for rate cuts.`\
 https://nytimes.com/2024/07/02/business/fed-ecb-inflation-rates.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5610620/2024/07/02/pulisic-usmnt-copa-america-urugu
 **Nearly Half of Student Loan Borrowers Are Not Yet Paying Their Monthly Bill**\
 `Millions of people are overdue on their federal loans or still have them paused — and court rulings keep upending collection efforts.`\
 https://nytimes.com/2024/07/02/business/student-loan-nonpayment.html
-
-**The Bounce: Why Celtics ownership is selling at the perfect time**\
-`Zach Harper and Shams Charania catch you up on leaguewide news.`\
-https://nytimes.com/athletic/5611177/2024/07/02/celtics-ownership-sale-paul-george-76ers-thunder-clippers-shai-gilgeous-alexander-the-bounce/
 

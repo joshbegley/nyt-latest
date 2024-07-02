@@ -1,3 +1,7 @@
+**MLB scouting notebook: Three under-the-radar trade candidates, and a Julio Rodríguez statistical deep dive**\
+`Andrea Arcadipane takes a close-up look at three trade deadline targets and also looks into reasons for Julio Rodríguez's struggles in 2024.`\
+https://nytimes.com/athletic/5611795/2024/07/02/mlb-scouting-notebook-trade-candidates-julio-rodriguez/
+
 **Powell Cites ‘Real Progress’ as Central Bankers Assess Inflation Fight**\
 `Jerome H. Powell, the Fed chair, and Christine Lagarde, the European Central Bank chief, sounded optimistic about recent inflation data but reiterated the need for more confidence for rate cuts.`\
 https://nytimes.com/2024/07/02/business/fed-ecb-inflation-rates.html
