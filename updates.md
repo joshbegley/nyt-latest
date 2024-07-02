@@ -1,3 +1,7 @@
+**Severe Turbulence on Air Europa Flight Fractures Necks and Skulls**\
+`Four passengers were in intensive care after the flight from Spain to Uruguay hit turbulence that injured dozens. The plane made an emergency landing in Brazil.`\
+https://nytimes.com/2024/07/01/world/americas/air-europa-flight-turbulence.html
+
 **June Leaf, Artist Who Explored the Female Form, Dies at 94**\
 `Womanly power was a recurring theme of her work, expressed in idiosyncratic sculpture and paintings that did not align with prevailing trends.`\
 https://nytimes.com/2024/07/01/arts/june-leaf-dead.html
