@@ -1,3 +1,11 @@
+**The Briefing: Romania 0 Netherlands 3: Stylish Dutch through to quarter-finals as Gakpo chases Golden Boot**\
+`Our writers break down the key moments from the last 16 tie between Romania and the Netherlands in Munich`\
+https://nytimes.com/athletic/5610917/2024/07/02/romania-netherlands-euro-2024-result-analysis/
+
+**As Democratic Anxiety Rises, Doggett Calls on Biden to Withdraw**\
+`Lloyd Doggest, a Texas progressive, was the first sitting Democrat in Congress to publicly call on the president to stand aside, but he gave voice to private concerns that have simmered for days.`\
+https://nytimes.com/2024/07/02/us/politics/lloyd-doggett-biden-withdraw.html
+
 **Inside the VAR review of Uruguay's winning goal against the USMNT**\
 `The lines on a screen that determined the U.S.' Copa America fate `\
 https://nytimes.com/athletic/5611624/2024/07/02/uruguays-controversial-winning-goal-usmnt-explained/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/02/world/americas/hurricane-beryl-jamaica-caribbean-
 **D.N.C. Member Pitches Process to Replace Biden as Nominee in Memo to Party Chair**\
 `The process, outlined by James Zogby, starts with an unlikely prospect: President Biden announcing that he would drop out of the race.`\
 https://nytimes.com/2024/07/02/us/politics/dnc-process-to-replace-biden.html
-
-**LeBrun: How the Predators won NHL free agency, landing the Stamkos, Marchessault, Skjei hat trick**\
-`Inside the Predators' big signings, and also: Could a change (finally) be coming to the NHL's schedule?`\
-https://nytimes.com/athletic/5611777/2024/07/02/nhl-free-agency-predators-stamkos-marchessault-skjei/
-
-**Canada's Buchanan taken to hospital after lower leg injury**\
-`Canada winger Tajon Buchanan has been taken to hospital after sustaining a leg injury in training.`\
-https://nytimes.com/athletic/5611971/2024/07/02/tajon-buchanan-canada-injury/
 
