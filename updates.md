@@ -1,3 +1,15 @@
+**D.N.C. Member Pitches Process to Replace Biden as Nominee in Memo to Party Chair**\
+`The process, outlined by James Zogby, starts with an unlikely prospect: President Biden announcing that he would drop out of the race.`\
+https://nytimes.com/2024/07/02/us/politics/dnc-process-to-replace-biden.html
+
+**LeBrun: How the Predators won NHL free agency, landing the Stamkos, Marchessault, Skjei hat trick**\
+`Inside the Predators' big signings, and also: Could a change (finally) be coming to the NHL's schedule?`\
+https://nytimes.com/athletic/5611777/2024/07/02/nhl-free-agency-predators-stamkos-marchessault-skjei/
+
+**Canada's Buchanan taken to hospital after lower leg injury**\
+`Canada winger Tajon Buchanan has been taken to hospital after sustaining a leg injury in training.`\
+https://nytimes.com/athletic/5611971/2024/07/02/tajon-buchanan-canada-injury/
+
 **Did You Serve on a War Crimes Jury at Guantánamo Bay? We Want to Know.**\
 `The Times is looking for officers who were selected to serve on military commissions panels at Camp Justice to discuss the experience, within guidelines set by the court.`\
 https://nytimes.com/2024/07/02/us/politics/did-you-serve-on-a-war-crimes-jury-at-guantanamo-bay-we-want-to-know.html
