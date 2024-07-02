@@ -1,4 +1,4 @@
-**Now what? How the Clippers will navigate the post-Paul George pivot**\
+**Now what? How the Clippers will navigate the post-Paul George era**\
 `After failing to re-sign their All-Star small forward, the Clippers will move to Plan B, which might look a lot like 2021-22.`\
 https://nytimes.com/athletic/5610716/2024/07/02/paul-george-era-over-clippers-now-what/
 
