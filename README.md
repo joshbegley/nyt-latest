@@ -1,3 +1,12 @@
+**Rudy’s Been Disbarred. Now Bar Him From New York.**\
+`Florida can keep him.`\
+https://nytimes.com/live/2024/06/25/opinion/thepoint/rudy-giuliani-disbarred
+
+**Turn pro or return to school? Blackhawks, Artyom Levshunov have a decision to make**\
+`Dissecting the pros and cons of Levshunov signing and turning pro right away or delaying that for at least a year and returning to college.
+`\
+https://nytimes.com/athletic/5612243/2024/07/02/blackhawks-artyom-levshunov-nhl-michigan-state/
+
 **Macron’s Rivals Say They’ll Fix France’s Economy, but Economists Are Skeptical**\
 `The far-right National Rally party and the left-wing New Popular Front are focusing on a cost-of-living crisis to woo voters, but their plans risk worsening France’s soaring deficit.`\
 https://nytimes.com/2024/07/02/business/france-economy-macron-national-rally.html
@@ -29,12 +38,4 @@ https://nytimes.com/2024/07/02/us/georgia-trump-case-immunity.html
 **Yale’s New President Pushed Policing as Head of Stony Brook University**\
 `In her four years at the state university, Maurie McInnis drew criticism from faculty members who said some of her decisions violated academic freedom.`\
 https://nytimes.com/2024/07/02/us/politics/yale-maurie-mcinnis-police-protest-stony-brook.html
-
-**Blues sign Pavel Buchnevich to 6-year, $48 million contract extension**\
-`Buchnevich, 29, has 83 goals and 206 points in 216 games over three seasons with the club. The extension takes him through 2031-32.`\
-https://nytimes.com/athletic/5612302/2024/07/02/blues-pavel-buchnevich-contract-extension/
-
-**Restaurant Review: A Shawarma Stall Is the Stage for a Spice Virtuoso**\
-`Spice Brothers is a showcase for the power of cinnamon, turmeric and other flavors of the Middle East.`\
-https://nytimes.com/2024/07/02/dining/spice-brothers-restaurant-review.html
 
