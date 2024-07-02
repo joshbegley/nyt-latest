@@ -1,3 +1,7 @@
+**France Is Headed for Disaster**\
+`The stakes have never been higher.`\
+https://nytimes.com/2024/07/02/opinion/france-elections-macron.html
+
 **Corrections: July 2, 2024**\
 `Corrections that appeared in print on Tuesday, July 2, 2024.`\
 https://nytimes.com/2024/07/02/pageoneplus/corrections-july-2-2024.html
