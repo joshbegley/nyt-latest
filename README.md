@@ -1,3 +1,7 @@
+**How Tom Hanks’s Son Spawned a Hateful Meme Online**\
+`When Chet Hanks first used the phrase “white boy summer,” it seemed to be done ironically. Now it has been appropriated around the world by white supremacists and other hate groups.`\
+https://nytimes.com/2024/07/02/business/media/how-tom-hankss-son-spawned-a-hateful-meme-online.html
+
 **Novak Djokovic braces for bigger tests - of his knee and of his tennis**\
 `The seven-time champion eased himself into SW19 — and right now, that's all he can hope to do`\
 https://nytimes.com/athletic/5611877/2024/07/02/djokovic-wimbledon-knee-surgery/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5611971/2024/07/02/tajon-buchanan-canada-injury/
 **Did You Serve on a War Crimes Jury at Guantánamo Bay? We Want to Know.**\
 `The Times is looking for officers who were selected to serve on military commissions panels at Camp Justice to discuss the experience, within guidelines set by the court.`\
 https://nytimes.com/2024/07/02/us/politics/did-you-serve-on-a-war-crimes-jury-at-guantanamo-bay-we-want-to-know.html
-
-**Utah State football coach Blake Anderson placed on administrative leave**\
-`Defensive coordinator Nate Dreiling was named the interim head coach.`\
-https://nytimes.com/athletic/5611882/2024/07/02/blake-anderson-utah-state-administrative-leave/
 
