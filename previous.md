@@ -1,3 +1,11 @@
+**From Courtroom to Downing Street: Keir Starmer, Low-Key Lawyer, Is on Cusp of Power**\
+`The Labour leader still struggles with the “performative side” of British politics, even as he has pulled his party to the center.`\
+https://nytimes.com/2024/07/02/world/europe/keir-starmer-uk-election.html
+
+**Tuesday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/07/02/briefing/trump-ruling-france-gaza.html
+
 **Severe Turbulence on Air Europa Flight Fractures Necks and Skulls**\
 `Four passengers were in intensive care after the flight from Spain to Uruguay hit turbulence that injured dozens. The plane made an emergency landing in Brazil.`\
 https://nytimes.com/2024/07/01/world/americas/air-europa-flight-turbulence.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/01/opinion/biden-replacement-white-house.html
 **Supreme Court’s Immunity Decision Sets ‘Dangerous Precedent,’ Biden Says**\
 `President Biden spoke after the Supreme Court’s ruling that former President Donald J. Trump is entitled to substantial immunity from prosecution on charges of trying to overturn the 2020 election.`\
 https://nytimes.com/video/us/politics/100000009550750/biden-scotus-trump-immunity.html
-
-**At a Crucial Moment, Jill Biden Is Vogue’s Cover Star**\
-`During the most challenging period of President Biden’s re-election bid, the first lady appears on the cover of a high-fashion bible.`\
-https://nytimes.com/2024/07/01/style/jill-biden-vogue-cover.html
-
-**Doctors describe moving hundreds of patients from a hospital in the new evacuation zone.**\
-`By Ang Li and Ephrat Livni`\
-https://nytimes.com/live/2024/07/01/world/israel-gaza-war-hamas/doctors-describe-moving-hundreds-of-patients-from-a-hospital-in-the-new-evacuation-zone
 

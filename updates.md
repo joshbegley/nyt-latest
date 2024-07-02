@@ -1,3 +1,11 @@
+**From Courtroom to Downing Street: Keir Starmer, Low-Key Lawyer, Is on Cusp of Power**\
+`The Labour leader still struggles with the “performative side” of British politics, even as he has pulled his party to the center.`\
+https://nytimes.com/2024/07/02/world/europe/keir-starmer-uk-election.html
+
+**Tuesday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/07/02/briefing/trump-ruling-france-gaza.html
+
 **Severe Turbulence on Air Europa Flight Fractures Necks and Skulls**\
 `Four passengers were in intensive care after the flight from Spain to Uruguay hit turbulence that injured dozens. The plane made an emergency landing in Brazil.`\
 https://nytimes.com/2024/07/01/world/americas/air-europa-flight-turbulence.html
