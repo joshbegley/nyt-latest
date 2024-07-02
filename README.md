@@ -10,8 +10,8 @@ https://nytimes.com/live/2024/07/02/world/israel-gaza-war-hamas/as-israel-prepar
 `Several cities in the state will top 110 degrees over the next few days.`\
 https://nytimes.com/2024/07/02/us/california-heat-wave.html
 
-**Stampede at Religious Gathering in Northern India Kills Dozens**\
-`Many women and children were among the dead, and the number of fatalities could rise, a medical official said.`\
+**Stampede at Religious Gathering in Northern India Kills at Least 50**\
+`The crush happened in hot and crowded conditions in Uttar Pradesh State, and a medical official said the death toll could rise.`\
 https://nytimes.com/2024/07/02/world/asia/india-stampede-religious-event.html
 
 **‘Mom, I’m Sorry’: The Week 2 Winner of Our Summer Reading Contest**\
