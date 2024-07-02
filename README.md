@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5610738/2024/07/02/usmnt-uruguay-tactical-analysis/
 `The complaint was filed a year after the Supreme Court struck down the use of racial and gender preferences in college admissions.`\
 https://nytimes.com/2024/07/02/us/affirmative-action-lawsuit.html
 
-**A Democratic Senator criticized the Biden campaign over its debate pushback.**\
+**Democratic Senator Criticizes Biden Campaign Over Its Debate Pushback**\
 `Senator Peter Welch of Vermont said that the campaign should acknowledge concerns about President Biden’s poor debate performance, not dismiss them.`\
 https://nytimes.com/2024/07/02/us/politics/peter-welch-biden-debate.html
 
