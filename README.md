@@ -1,3 +1,7 @@
+**Democrats Take Panic About Biden Public Amid Fears of an Electoral Debacle**\
+`After days of quiet hand-wringing, a few Democrats went public with their concerns about the president, worried not only about his chances but also the party’s ability to hold the Senate and win the House.`\
+https://nytimes.com/2024/07/02/us/politics/democrats-panic-biden-electoral-debacle.html
+
 **Bruce Bastian, a Founder of WordPerfect, Is Dead at 76**\
 `A favorite of early personal computer users, his company was eventually overtaken by Microsoft Word. He later came out as gay and became an L.G.B.T.Q. activist.`\
 https://nytimes.com/2024/07/02/business/bruce-bastian-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/02/us/politics/supreme-court-arizona-juvenile-senten
 **The Best Movies and TV Shows Coming to Netflix in July**\
 `This month brings the arrival of “Lost” and the return of Eddie Murphy as Axel Foley.`\
 https://nytimes.com/2024/07/02/arts/television/netflix-new-movies-shows-july.html
-
-**Trump Continues to Delay Naming a Running Mate, Amid Biden Debate Fallout**\
-`Donald J. Trump has not named a running mate this week. He appears eager to avoid stepping on the controversy swirling around President Biden in the debate’s aftermath.`\
-https://nytimes.com/2024/07/02/us/politics/trump-vp-debate.html
 
