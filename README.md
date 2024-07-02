@@ -20,7 +20,7 @@ https://nytimes.com/athletic/5612302/2024/07/02/blues-pavel-buchnevich-contract-
 
 **Restaurant Review: A Shawarma Stall Is the Stage for a Spice Virtuoso**\
 `Spice Brothers is a showcase for the power of cinnamon, turmeric and other flavors of the Middle East.`\
-https://nytimes.com/2024/07/02/dining/restaurant-review-a-shawarma-stall-is-the-stage-for-a-spice-virtuoso.html
+https://nytimes.com/2024/07/02/dining/spice-brothers-restaurant-review.html
 
 **President Biden: Teach Them How to Say Goodbye**\
 `Trump fears that Biden will demonstrate the difference between a leader who puts the country first and a leader who put himself first.`\
