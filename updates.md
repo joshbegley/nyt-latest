@@ -1,3 +1,19 @@
+**Yale’s New President Pushed Policing as Head of Stony Brook University**\
+`In her four years at the state university, Maurie McInnis drew criticism from faculty members who said some of her decisions violated academic freedom.`\
+https://nytimes.com/2024/07/02/us/politics/yale-maurie-mcinnis-police-protest-stony-brook.html
+
+**Blues sign Pavel Buchnevich to 6-year, $48 million contract extension**\
+`Buchnevich, 29, has 83 goals and 206 points in 216 games over three seasons with the club. The extension takes him through 2031-32.`\
+https://nytimes.com/athletic/5612302/2024/07/02/blues-pavel-buchnevich-contract-extension/
+
+**Restaurant Review: A Shawarma Stall Is the Stage for a Spice Virtuoso**\
+`Spice Brothers is a showcase for the power of cinnamon, turmeric and other flavors of the Middle East.`\
+https://nytimes.com/2024/07/02/dining/restaurant-review-a-shawarma-stall-is-the-stage-for-a-spice-virtuoso.html
+
+**President Biden: Teach Them How to Say Goodbye**\
+`Trump fears that Biden will demonstrate the difference between a leader who puts the country first and a leader who put himself first.`\
+https://nytimes.com/2024/07/02/opinion/biden-trump-step-aside.html
+
 **Supreme Court Rejects Challenge to Life Sentences for Juveniles in Arizona**\
 `Three justices dissented in the case, which could affect more than two dozen youths sentenced to die in prison.`\
 https://nytimes.com/2024/07/02/us/politics/supreme-court-arizona-juvenile-sentence.html

@@ -1,3 +1,19 @@
+**Yale’s New President Pushed Policing as Head of Stony Brook University**\
+`In her four years at the state university, Maurie McInnis drew criticism from faculty members who said some of her decisions violated academic freedom.`\
+https://nytimes.com/2024/07/02/us/politics/yale-maurie-mcinnis-police-protest-stony-brook.html
+
+**Blues sign Pavel Buchnevich to 6-year, $48 million contract extension**\
+`Buchnevich, 29, has 83 goals and 206 points in 216 games over three seasons with the club. The extension takes him through 2031-32.`\
+https://nytimes.com/athletic/5612302/2024/07/02/blues-pavel-buchnevich-contract-extension/
+
+**Restaurant Review: A Shawarma Stall Is the Stage for a Spice Virtuoso**\
+`Spice Brothers is a showcase for the power of cinnamon, turmeric and other flavors of the Middle East.`\
+https://nytimes.com/2024/07/02/dining/restaurant-review-a-shawarma-stall-is-the-stage-for-a-spice-virtuoso.html
+
+**President Biden: Teach Them How to Say Goodbye**\
+`Trump fears that Biden will demonstrate the difference between a leader who puts the country first and a leader who put himself first.`\
+https://nytimes.com/2024/07/02/opinion/biden-trump-step-aside.html
+
 **Supreme Court Rejects Challenge to Life Sentences for Juveniles in Arizona**\
 `Three justices dissented in the case, which could affect more than two dozen youths sentenced to die in prison.`\
 https://nytimes.com/2024/07/02/us/politics/supreme-court-arizona-juvenile-sentence.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5612118/2024/07/02/kaleb-edwards-alabama-football-r
 **Do the Right Thing, Joe**\
 `The Supreme Court’s immunity decision makes it even more important that Trump have a vigorous opponent.`\
 https://nytimes.com/live/2024/06/25/opinion/thepoint/biden-trump-supreme-court
-
-**After Thursday’s Debate, Conservative Media Finds It Hard Not to Gloat**\
-`Many conservative commentators have said President Biden’s performance during the debate was a sweeping validation of the alarm bells they’d been ringing for years about his age.`\
-https://nytimes.com/2024/07/02/business/media/conservative-media-president-biden-debate.html
-
-**Biden Will Sit for Interview on Friday With ABC News**\
-`The interview, with the anchor George Stephanopoulos, will be the president’s first in-depth appearance with a journalist since last week’s debate.`\
-https://nytimes.com/2024/07/02/us/politics/biden-abc-news-interview.html
-
-**A Seismic Supreme Court Decision**\
-`Here’s how the end of the Chevron doctrine could affect climate regulation.`\
-https://nytimes.com/2024/07/02/climate/supreme-court-climate-chevron.html
-
-**Cuomo, in New Ad, Accuses Pro-Palestinian Activists of Supporting Hamas**\
-`The one-minute commercial, which was created by a group formed by former Gov. Andrew M. Cuomo, seeks to bring attention to atrocities linked to Hamas.`\
-https://nytimes.com/2024/07/02/nyregion/cuomo-israel-hamas-ad.html
 
