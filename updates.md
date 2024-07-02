@@ -1,3 +1,11 @@
+**Penguins' pursuit of Vladimir Tarasenko, Steve Mears leaves for Columbus and schedule release**\
+`The Penguins have had contact with free-agent forward Vladimir Tarasenko.`\
+https://nytimes.com/athletic/5611598/2024/07/02/penguins-vladimir-tarasenko-steve-mears-schedule/
+
+**Lloyd: Cavs' gamble on Donovan Mitchell pays off, and city of Cleveland is the big winner**\
+`Mitchell's decision to stay and sign a 3-year, $150 million extension means the Cavs won their trade with Utah (after taking a huge risk).`\
+https://nytimes.com/athletic/5612490/2024/07/02/donovan-mitchell-cleveland-cavaliers-cavs-extension/
+
 **Meloni Condemns Fascist Nostalgia Amid Scandal in Her Party’s Youth Wing**\
 `A news report used a hidden camera to show members of the youth arm of Brothers of Italy glorifying fascism.`\
 https://nytimes.com/2024/07/02/world/europe/meloni-political-party-youth-wing-facism.html
