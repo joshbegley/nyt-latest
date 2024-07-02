@@ -1,3 +1,11 @@
+**The Many Challenges at Guantánamo Bay, Encapsulated in One Case**\
+`The sentencing trial of an insurgent commander put a spotlight on the state of affairs at the wartime prison.`\
+https://nytimes.com/2024/07/02/us/politics/guantanamo-war-crimes-case.html
+
+**Sargent 'upset and frustrated' after USMNT's Copa America exit**\
+`Josh Sargent admitted he was “shocked, upset and frustrated” by the USMNT’s Copa America group stage exit which has left it “easy to say bad things” about the team.`\
+https://nytimes.com/athletic/5611919/2024/07/02/josh-sargent-usmnt-copa-america-exit/
+
 **The Uproar Over the Immunity Ruling**\
 `Lawyers and other readers discuss the landmark Supreme Court decision. Also: A ruling on corruption; doctors and abortion bans; religion in public schools.`\
 https://nytimes.com/2024/07/02/opinion/supreme-court-immunity-ruling-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/02/us/politics/peter-welch-biden-debate.html
 **Even now, Klay Thompson is the star the Mavs never could sign before**\
 `Dallas has long struck out in its quest to sign free agents. But Klay Thompson is different — and so is this franchise.`\
 https://nytimes.com/athletic/5610052/2024/07/02/klay-thompson-mavericks-signing-free-agent/
-
-**What Penguins' new draft picks bring to prospect pipeline**\
-`Let's break down the skills and film of Harrison Brunicke and Tanner Howe, the Penguins' two second-round picks.`\
-https://nytimes.com/athletic/5609240/2024/07/02/penguins-nhl-draft-picks-highlights/
-
-**USMNT's Copa America exit raises major questions. But is Pulisic the one to answer them?**\
-`As the best player on his nation’s roster, focus was always going to eventually fall on the AC Milan midfielder and U.S. captain`\
-https://nytimes.com/athletic/5610620/2024/07/02/pulisic-usmnt-copa-america-uruguay-elimination/
 
