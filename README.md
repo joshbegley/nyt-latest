@@ -1,3 +1,7 @@
+**Bergwijn forced off with 'physical issues' in Netherlands win vs Romania - Koeman**\
+`Netherlands forward Steven Bergwijn was forced off at half time after suffering &#8220;physical issues&#8221; during his side&#8217;s European Championship last-16 victory over Romania, his coach Ronald Koeman has said.`\
+https://nytimes.com/athletic/5612299/2024/07/02/steven-bergwijn-injury-netherlands-euro-2024/
+
 **Supreme Court’s Immunity Ruling Adds Major Hurdle for Georgia Trump Case**\
 `Determining which of the alleged acts that Donald Trump is being prosecuted for in the state were official conduct, and which were not, could delay the case for months.`\
 https://nytimes.com/2024/07/02/us/georgia-trump-case-immunity.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/02/us/politics/trump-vp-debate.html
 **Biden’s Lapses Are Increasingly Common, According to Some of Those in the Room**\
 `People who have spent time with President Biden over the last few months or so said the lapses appear to have grown more frequent, more pronounced and, after Thursday’s debate, more worrisome.`\
 https://nytimes.com/2024/07/02/us/politics/biden-lapses.html
-
-**What TE Kaleb Edwards adds to Alabama**\
-`Four-star tight end Kaleb Edwards, the No. 8 tight end nationally, committed to Alabama on Tuesday.`\
-https://nytimes.com/athletic/5612118/2024/07/02/kaleb-edwards-alabama-football-recruiting/
 
