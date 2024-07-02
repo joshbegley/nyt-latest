@@ -1,3 +1,11 @@
+**Powell Cites ‘Real Progress’ as Central Bankers Assess Inflation Fight**\
+`Jerome H. Powell, the Fed chair, and Christine Lagarde, the European Central Bank chief, sounded optimistic about recent inflation data but reiterated the need for more confidence for rate cuts.`\
+https://nytimes.com/2024/07/02/business/fed-ecb-inflation-rates.html
+
+**Democratic Senator Criticizes Biden Campaign Over Its Debate Pushback**\
+`Senator Peter Welch of Vermont said that the campaign should acknowledge concerns about President Biden’s poor debate performance, not dismiss them.`\
+https://nytimes.com/2024/07/02/us/politics/peter-welch-biden-debate.html
+
 **Hollinger: NBA's apron era marks end of exceptionalism + free-agency winners, losers**\
 `The new CBA is making it impossible for teams like the Clippers, Warriors and Lakers to spend their way out of their mistakes.`\
 https://nytimes.com/athletic/5610578/2024/07/02/nba-free-agency-winners-losers-apron-era/
