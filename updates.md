@@ -1,3 +1,7 @@
+**Hollinger: NBA's apron era marks end of exceptionalism + free-agency winners, losers**\
+`The new CBA is making it impossible for teams like the Clippers, Warriors and Lakers to spend their way out of their mistakes.`\
+https://nytimes.com/athletic/5610578/2024/07/02/nba-free-agency-winners-losers-apron-era/
+
 **How Uruguay's masterly man-marking shut the USMNT out of the Copa America**\
 `In what turned out to be a must-win game for them, the United States' inability to break down Uruguay's defence was ruinous `\
 https://nytimes.com/athletic/5610738/2024/07/02/usmnt-uruguay-tactical-analysis/
