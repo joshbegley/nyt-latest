@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5612243/2024/07/02/blackhawks-artyom-levshunov-nhl-
 `\
 https://nytimes.com/athletic/5612243/2024/07/02/blackhawks-artyom-levshunov-nhl-michigan-state/
 
+**Turn pro or return to school? Blackhawks, Artyom Levshunov have a decision to make**\
+`Dissecting the pros and cons of Levshunov signing and turning pro right away or delaying that for at least a year and returning to college.
+`\
+https://nytimes.com/athletic/5612243/2024/07/02/blackhawks-artyom-levshunov-nhl-michigan-state/
+
 **Thousands Flee in Gaza as Israel Orders More Evacuations**\
 `The Israeli military says its campaign will soon become less intense, but Palestinians were once again racing to escape the fighting in southern Gaza, including Khan Younis.`\
 https://nytimes.com/2024/07/02/world/middleeast/gaza-evacuations-israel.html
