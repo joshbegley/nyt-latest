@@ -1,3 +1,7 @@
+**Euro 2024 day 19 - Turkey march into last eight, Gakpo stars again, and who throws a shoe, honestly?**\
+`Liverpool forward Gakpo goes level in race for golden boot, Turkey march on, and a goalkeeper has to kick a shoe out of his way in Munich`\
+https://nytimes.com/athletic/5612269/2024/07/02/turkey-gakpo-shoe-malen-euro-2024/
+
 **Paramount and Skydance Are Said to Resume Merger Talks**\
 `Just weeks after the two media companies scuttled their talks about a potential deal, they have resumed their conversations.`\
 https://nytimes.com/2024/07/02/business/media/paramount-skydance-merger-talks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5609224/2024/07/02/cody-gakpo-player-of-euros/
 **Penguins' pursuit of Vladimir Tarasenko, Steve Mears leaves for Columbus and schedule release**\
 `The Penguins have had contact with free-agent forward Vladimir Tarasenko.`\
 https://nytimes.com/athletic/5611598/2024/07/02/penguins-vladimir-tarasenko-steve-mears-schedule/
-
-**Lloyd: Cavs' gamble on Donovan Mitchell pays off, and city of Cleveland is the big winner**\
-`Mitchell's decision to stay and sign a 3-year, $150 million extension means the Cavs won their trade with Utah (after taking a huge risk).`\
-https://nytimes.com/athletic/5612490/2024/07/02/donovan-mitchell-cleveland-cavaliers-cavs-extension/
 
