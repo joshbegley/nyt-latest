@@ -1,3 +1,7 @@
+**The Historical Echo Biden Has Tried to Suppress**\
+`Democrats have rebuffed comparisons between 2024 and 1968. Recent events show they have more to do.`\
+https://nytimes.com/2024/07/02/us/politics/biden-2024-presidential-race.html
+
 **Johnston: Inside the Lightning-Stamkos split — a reminder that in the NHL, business trumps brotherhood**\
 `The Lightning on Tuesday signed Victor Hedman to a contract for the same term and salary as the one Stamkos signed in Nashville.`\
 https://nytimes.com/athletic/5612549/2024/07/02/lightning-stamkos-hedman-contracts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5611694/2024/07/02/wimbledon-djokovic-knee-tiebreak
 **Biden’s Lapses Have Increased, According to Some Insiders**\
 `Also, Donald Trump’s sentencing was delayed until September. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/07/02/briefing/president-biden-trump-sentencing-summer-vacations.html
-
-**Cody Gakpo is Netherlands' player of the Euros, can Arne Slot replicate it for Liverpool?**\
-`Cody Gakpo is Euro 2024's joint top-scorer playing off the left and doing it brilliantly. Will Liverpool take note?`\
-https://nytimes.com/athletic/5609224/2024/07/02/cody-gakpo-player-of-euros/
 

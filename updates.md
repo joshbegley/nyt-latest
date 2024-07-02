@@ -1,3 +1,7 @@
+**Julián Castro, a 2020 Opponent of Biden, Says He Should Step Aside**\
+`Mr. Castro, who was criticized for remarks questioning Mr. Biden’s memory in a 2020 primary debate, said Democrats should find another candidate.`\
+https://nytimes.com/2024/07/02/us/politics/julian-castro-biden-election.html
+
 **Euro 2024 day 19 - Turkey march into last eight, Gakpo stars again, and who throws a shoe?**\
 `Liverpool forward Gakpo goes level in race for golden boot, Turkey march on, and a goalkeeper has to kick a shoe out of his way in Munich`\
 https://nytimes.com/athletic/5612269/2024/07/02/turkey-gakpo-shoe-malen-euro-2024/
