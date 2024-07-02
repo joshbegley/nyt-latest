@@ -1,3 +1,19 @@
+**Macron’s Rivals Say They’ll Fix France’s Economy, but Economists Are Skeptical**\
+`The far-right National Rally party and the left-wing New Popular Front are focusing on a cost-of-living crisis to woo voters, but their plans risk worsening France’s soaring deficit.`\
+https://nytimes.com/2024/07/02/business/france-economy-macron-national-rally.html
+
+**France’s Far-Right Party Has a Plan: Big on Ideas but Short on Details**\
+`Although the party, National Rally, has changed since its early days of overt racism and antisemitism, its basic philosophy remains: Immigrants are a threat to the country’s safety and economy,`\
+https://nytimes.com/2024/07/02/world/europe/france-national-rally-policies.html
+
+**‘Everything is difficult here’: Gazans describe the struggle of yet another evacuation.**\
+`By Bilal Shbair and Iyad Abuheweila`\
+https://nytimes.com/live/2024/07/02/world/israel-gaza-war-hamas/everything-is-difficult-here-gazans-describe-the-struggle-of-yet-another-evacuation
+
+**Democrats Go Public With Panic About Biden Amid Fears of an Electoral Debacle**\
+`After days of quiet hand-wringing, a few Democrats went public with their concerns about the president, worried not only about his chances but also the party’s ability to hold the Senate and win the House.`\
+https://nytimes.com/2024/07/02/us/politics/democrats-panic-biden-electoral-debacle.html
+
 **Democrats Take Panic About Biden Public Amid Fears of an Electoral Debacle**\
 `After days of quiet hand-wringing, a few Democrats went public with their concerns about the president, worried not only about his chances but also the party’s ability to hold the Senate and win the House.`\
 https://nytimes.com/2024/07/02/us/politics/democrats-panic-biden-electoral-debacle.html
