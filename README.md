@@ -1,3 +1,7 @@
+**Six Days Shook Biden’s Candidacy. Can He Turn It Around?**\
+`I said this election wouldn’t be boring, but I didn’t think it would turn upside down so fast.`\
+https://nytimes.com/2024/07/03/us/politics/biden-trump-2024-presidential-debate-immunity.html
+
 **How to Stop Child Marriage? Punish Husbands, Parents and Wedding Guests.**\
 `A new law in the West African country of Sierra Leone allows child brides to annul their marriages and be financially compensated.`\
 https://nytimes.com/2024/07/03/world/africa/child-marriage-sierra-leone-africa.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/07/03/travel/covid-positive-travel.html
 **Biden Insists He Will Stay in the Race**\
 `Also, Hurricane Beryl caused floods in Jamaica. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/07/03/briefing/biden-campaign-doubts-hurricane-beryl.html
-
-**America’s Virulent Anti-Vaccine Lies**\
-`We’re seeing what a modern disinformation operation run by the U.S. looks like. It’s not pretty.`\
-https://nytimes.com/2024/07/03/opinion/america-antivax-china-philippines.html
 
