@@ -1,3 +1,19 @@
+**What’s in Our Queue? ‘One Day’ and More**\
+`I’m a national political reporter covering the presidential election. Here are five things I’ve recently delighted in seeing, hearing and watching.`\
+https://nytimes.com/interactive/2024/07/03/arts/editors-recommendations-oneday.html
+
+**Jessica Campbell becomes NHL's first full-time female assistant coach**\
+`Campbell spent the past two seasons as an assistant under Dan Bylsma with the Coachella Valley Firebirds, Seattle's AHL affiliate.`\
+https://nytimes.com/athletic/5614381/2024/07/03/jessica-campbell-kraken-assistant-coach/
+
+**Argentina name men’s football squad for Paris Olympics: no Fernandez, Martinez**\
+`Argentina have named their 18-player men&#8217;s football squad for the 2024 Olympics, alongside four replacement players.`\
+https://nytimes.com/athletic/5614878/2024/07/03/argentina-soccer-olympics-squad/
+
+**Kessler? Capela? Stewart? Which center could the Knicks target?**\
+`Moves are being made across the league, but backup center remains a hole in the Knicks' current roster construction.`\
+https://nytimes.com/athletic/5614451/2024/07/03/nba-free-agency-knicks-centers/
+
 **As Jamaica waits, Cayman Islands prepare to be next.**\
 `By Daphne Ewing-Chow`\
 https://nytimes.com/live/2024/07/03/weather/hurricane-beryl/as-jamaica-waits-cayman-islands-prepare-to-be-next
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2024/07/03/us/elections/times-siena-poll-topline
 **Cross-Tabs: July 2024 Times/Siena Poll of Registered Voters Nationwide**\
 `Results of a nationwide New York Times/Siena College poll conducted among 1,532 registered voters from June 28 to July 2, 2024.`\
 https://nytimes.com/interactive/2024/07/03/us/elections/times-siena-poll-registered-voter-crosstabs.html
-
-**Cross-Tabs: July 2024 Times/Siena Poll of the Likely Electorate**\
-`Results of a nationwide New York Times/Siena College poll conducted among 1,532 likely voters from June 28 to July 2, 2024.`\
-https://nytimes.com/interactive/2024/07/03/us/elections/times-siena-poll-likely-electorate-crosstabs.html
-
-**How A Fractured Supreme Court Ruled this Term**\
-`The Supreme Court has had a volatile term, taking on a stunning array of major disputes and assuming a commanding role in shaping American society and democracy.`\
-https://nytimes.com/video/us/politics/100000009551558/how-a-fractured-supreme-court-ruled-this-term.html
-
-**‘A Roller Coaster in a Carwash’: Why Scientists Are Flying Into Hurricane Beryl**\
-`Gathering data from directly inside the storm can help emergency managers prepare for what’s to come.`\
-https://nytimes.com/2024/07/03/climate/hurricane-beryl-wind-speeds.html
-
-**Biden spoke with Schumer for the first time since the debate.**\
-`President Biden has begun reaching out to legislative allies amid intense fears about the potential damage to down ballot Democratic candidates amid fallout from his halting performance.`\
-https://nytimes.com/live/2024/07/03/us/biden-trump-election/biden-spoke-with-schumer-for-the-first-time-since-the-debate
 
