@@ -1,3 +1,7 @@
+**Salah and Endo to miss Olympics**\
+`Mohamed Salah and Wataru Endo will be available for Liverpool’s full pre-season schedule as they won’t be featuring at the Olympics.`\
+https://nytimes.com/athletic/5613504/2024/07/03/mohamed-salah-olympics/
+
 **U.S. Deports Chinese Migrants in First Large Flight Since 2018**\
 `The Department of Homeland Security said it was working with Chinese authorities to arrange more flights as more migrants enter the United States.`\
 https://nytimes.com/2024/07/03/us/us-china-migrants-deportation-flight.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5613418/2024/07/03/shohei-ohtani-home-run-derby/
 **Hurricane Beryl Caused ‘Unimaginable’ Damage in Grenada, Leader Says**\
 `As the storm headed for Jamaica, officials were assessing what Grenada’s prime minister called “total” devastation on two of the country’s islands.`\
 https://nytimes.com/2024/07/03/world/americas/hurricane-beryl-grenada.html
-
-**Turkey and the positivity of pressure: Montella's team are riding an emotional wave at Euro 2024**\
-`Turkey's coach has endured intense scrutiny in his role but has succeeded in propelling a young, thrilling side into the quarter-finals`\
-https://nytimes.com/athletic/5612595/2024/07/03/turkey-montella-austria-leipzig-guler/
 

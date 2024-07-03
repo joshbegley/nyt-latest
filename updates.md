@@ -1,3 +1,7 @@
+**Salah and Endo to miss Olympics**\
+`Mohamed Salah and Wataru Endo will be available for Liverpool’s full pre-season schedule as they won’t be featuring at the Olympics.`\
+https://nytimes.com/athletic/5613504/2024/07/03/mohamed-salah-olympics/
+
 **U.S. Deports Chinese Migrants in First Large Flight Since 2018**\
 `The Department of Homeland Security said it was working with Chinese authorities to arrange more flights as more migrants enter the United States.`\
 https://nytimes.com/2024/07/03/us/us-china-migrants-deportation-flight.html
