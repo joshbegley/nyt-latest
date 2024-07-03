@@ -1,3 +1,7 @@
+**What Is a Sundress?**\
+`A heated discussion about one of the summer's most ubiquitous garments grapples with questions of femininity, tradition and sexuality. Weigh in on the debate.`\
+https://nytimes.com/interactive/2024/07/03/style/sundress-quiz-summer-dress.html
+
 **In South Florida, Caribbean diaspora worry about family and friends.**\
 `By Audra D. S. Burch`\
 https://nytimes.com/live/2024/07/03/weather/hurricane-beryl/in-south-florida-caribbean-diaspora-worry-about-family-and-friends
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5614595/2024/07/03/usmnt-mailbag-copa-america/
 **The destruction on Carriacou and Petite Martinique islands captured in satellite images.**\
 `By Lynsey Chutel`\
 https://nytimes.com/live/2024/07/03/weather/hurricane-beryl/the-destruction-on-carriacou-and-petite-martinique-islands-captured-in-satellite-images
-
-**Democrats’ leaders in Congress are not urging them to rally around Biden.**\
-`By Luke Broadwater and Maya C. Miller`\
-https://nytimes.com/live/2024/07/03/us/biden-trump-election/democrats-leaders-in-congress-are-not-urging-them-to-rally-around-biden
 
