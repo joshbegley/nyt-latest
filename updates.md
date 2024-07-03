@@ -1,3 +1,7 @@
+**Twins top prospect Brooks Lee to debut as Royce Lewis lands on injured list**\
+`The Twins promoted their top major-league-ready prospect, Brooks Lee, and placed Royce Lewis on the IL with a right adductor strain.`\
+https://nytimes.com/athletic/5615277/2024/07/03/twins-brooks-lee-major-league-debut-royce-lewis-injured/
+
 **Rob Stone, Master Marketer of Hip-Hop, Is Dead at 55**\
 `A founder of the influential music magazine The Fader, he also bridged the worlds of hip-hop and the Fortune 500 with his innovative marketing agency.`\
 https://nytimes.com/2024/07/03/arts/music/rob-stone-dead.html

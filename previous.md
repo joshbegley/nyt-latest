@@ -30,7 +30,7 @@ https://nytimes.com/2024/07/03/movies/despicable-me-4-review.html
 `"Whatever comes, it is what it is. It is baseball. It’s a game that we all love, but at the same time, it is a business," Estévez said.`\
 https://nytimes.com/athletic/5615276/2024/07/03/angels-carlos-estevez-trade-deadline-rumors/
 
-**Twins promoting prospect Brooks Lee to majors: Sources**\
-`Though there's been no official word, Lee will likely take the place of Royce Lewis, who exited Tuesday's game with a groin injury. `\
-https://nytimes.com/athletic/5615277/2024/07/03/twins-promote-brooks-lee-major-league-debut/
+**Twins top prospect Brooks Lee to debut as Royce Lewis lands on injured list**\
+`The Twins promoted their top major-league-ready prospect, Brooks Lee, and placed Royce Lewis on the IL with a right adductor strain.`\
+https://nytimes.com/athletic/5615277/2024/07/03/twins-brooks-lee-major-league-debut-royce-lewis-injured/
 
