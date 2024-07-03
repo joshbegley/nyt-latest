@@ -1,3 +1,15 @@
+**Man United part owner Avram Glazer fails in bid for NWSL club Angel City**\
+`Avram Glazer, a part owner of Manchester United and a member of the Glazer family who retain a majority stake in the club, has failed in a bid to become the controlling shareholder of NWSL side Angel City.`\
+https://nytimes.com/athletic/5614531/2024/07/03/man-united-avram-glazer-angel-city-bid/
+
+**Repeated evacuation orders take a toll on already weakened Gazans.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/07/03/world/israel-gaza-war-hamas/repeated-evacuation-orders-take-a-toll-on-already-weakened-gazans
+
+**V. Craig Jordan, Who Discovered a Key Breast Cancer Drug, Dies at 76**\
+`He found that a failed contraceptive, tamoxifen, could block the growth of cancer cells, opening up a whole new class of treatment.`\
+https://nytimes.com/2024/07/03/science/v-craig-jordan-dead.html
+
 **Biden’s day: A meeting with Democratic governors and awarding the Medal of Honor.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/07/03/us/biden-trump-election/bidens-day-a-meeting-with-democratic-governors-and-awarding-the-medal-of-honor
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5614401/2024/07/03/bredice-banned-fa-betting-man-ci
 **Can I Say I Have Tourette’s Without Being Formally Diagnosed?**\
 `The magazine’s Ethicist columnist on self-identification.`\
 https://nytimes.com/2024/07/03/magazine/tourettes-diagnosis-informal-ethics.html
-
-**Packing for Camp? Leave Your Sephora Hauls at Home**\
-`As young girls continue to embrace elaborate skin care routines, summer camps want to focus on inner beauty.`\
-https://nytimes.com/2024/07/03/style/summer-camp-skincare-routine.html
-
-**The Bounce: What's next in NBA free agency?**\
-`Zach Harper and Shams Charania catch you up on leaguewide news.`\
-https://nytimes.com/athletic/5613958/2024/07/03/lebron-james-lakers-donovan-mitchell-cavaliers-nba-free-agency-the-bounce/
-
-**Heritage Foundation Head Refers to ‘Second American Revolution’**\
-`Kevin Roberts, president of the group that has coordinated the Project 2025 policy plan, said it could be “bloodless if the left allows it to be.”`\
-https://nytimes.com/2024/07/03/us/politics/heritage-foundation-2025-policy-america.html
 
