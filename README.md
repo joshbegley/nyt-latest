@@ -1,3 +1,7 @@
+**Germany's Euro 2024 aspirations and the puzzle of Kai Havertz**\
+`Plenty of Germany's players are becoming heroes as they advance at the Euros. But it's different with Havertz. And we've seen this before...`\
+https://nytimes.com/athletic/5610776/2024/07/03/kai-havertz-germany-nagelsmann-tactics-euro-2024/
+
 **How PSR deadline impacted June deals: £323m of sales, question marks and young players on move**\
 `The PSR deadline changed the nature of transfer business during June — this is what happened`\
 https://nytimes.com/athletic/5611939/2024/07/03/psr-transfer-chelsea-aston-villa-newcastle/
@@ -18,6 +22,10 @@ https://nytimes.com/2024/07/03/technology/ai-startups-funding.html
 `As multinational brands shift factory production from China, Indian women — long shut out of the work force — could be prime beneficiaries.`\
 https://nytimes.com/2024/07/03/business/india-economy-women-jobs.html
 
+**Why are so many of the coaches at Copa America from Argentina?**\
+`At this summer’s Copa America, seven of the 16 participating nations will be led by Argentine coaches – and it's not a one-off`\
+https://nytimes.com/athletic/5562810/2024/07/02/copa-america-argentine-managers/
+
 **Despite losing Royce Lewis to groin injury, Twins top Detroit for seventh win in 10 games**\
 `Lewis is concerned he's headed for the injured list again. "I’m praying, but it’s usually always horrible news. So we’ll see.”`\
 https://nytimes.com/athletic/5613223/2024/07/02/twins-royce-lewis-groin-tightness-tigers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5613131/2024/07/02/blue-jays-leo-jimenez-youth-move
 **Brazil 1-1 Colombia: Takeaways from Vini Jr.'s costly yellow and James' brilliant form**\
 `Two of Copa America's best went head to head and didn't disappoint `\
 https://nytimes.com/athletic/5612988/2024/07/02/brazil-colombia-copa-america-takeaways/
-
-**Vinicius Jr suspended for Brazil's Copa America quarterfinal**\
-`Vinicius Junior will be suspended for Brazil&#8217;s Copa America quarterfinal against Uruguay.`\
-https://nytimes.com/athletic/5613034/2024/07/02/vinicius-junior-ban-brazil-copa-america/
-
-**Giants 'Hard Knocks' takeaways: Exploring a Saquon Barkley trade and 'not giving up' on Daniel Jones**\
-`The Giants explored all scenarios involving Barkley, including using the franchise tag on him and then trading the star RB. `\
-https://nytimes.com/athletic/5613074/2024/07/02/new-york-giants-hard-knocks-joe-schoen-saquon-barkley/
 
