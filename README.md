@@ -1,3 +1,7 @@
+**Stefano Pioli to be appointed Al Ittihad head coach after Milan exit**\
+`Saudi Arabian club Al Ittihad are set to appoint Stefano Pioli as their new head coach on a three-year contract.`\
+https://nytimes.com/athletic/5613649/2024/07/03/stefano-pioli-head-coach-al-ittihad/
+
 **St. Louis Cardinals mailbag Part 2: Early trade deadline talks on pitching, outfield help**\
 `Would the Cardinals trade Paul Goldschmidt? Would they rather add a starter or a reliever? We have the answers as the trade deadline nears.`\
 https://nytimes.com/athletic/5612418/2024/07/03/cardinals-trade-deadline-pitching-outfield/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5613093/2024/07/03/2024-fantasy-football-breakout-t
 **Wordle Review No. 1,111, July 4, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/03/crosswords/wordle-review-1111.html
-
-**The Connections Companion No. 389, July 4, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/03/crosswords/connections-companion-389.html
 
