@@ -1,3 +1,7 @@
+**Clark, Reese headline WNBA All-Star Game roster**\
+`The two rookies are the only two first-time participants in the exhibition, which is set for July 20 in Phoenix.`\
+https://nytimes.com/athletic/5613005/2024/07/02/wnba-all-star-rosters-caitlin-clark-angel-reese/
+
 **Tigers announcer Craig Monroe absent from broadcast due to sexual abuse allegations**\
 `Monroe, the Tigets' lead color analyst, has not called a game since June 9.  `\
 https://nytimes.com/athletic/5612741/2024/07/02/craig-monroe-tigers-sexual-abuse-allegations/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/02/movies/robert-towne-dead.html
 **New Haitian Leader Visits Washington Seeking Additional Support**\
 `Haiti’s newly selected prime minister, Garry Conille, met with Democrats on Capitol Hill as well as Biden administration officials, seeking more help to combat the unrest in his country.`\
 https://nytimes.com/2024/07/02/us/politics/garry-conille-haiti-democrats.html
-
-**Lloyd Doggett, a Texas Progressive, Cracks the Democratic Dam for Biden**\
-`The veteran congressman, once a prominent voice for his party’s left flank on Capitol Hill, said aloud what some Democrats have privately whispered in the days since the president’s debate performance.`\
-https://nytimes.com/2024/07/02/us/who-is-lloyd-doggett-biden.html
 

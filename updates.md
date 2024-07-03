@@ -1,3 +1,7 @@
+**Clark, Reese headline WNBA All-Star Game roster**\
+`The two rookies are the only two first-time participants in the exhibition, which is set for July 20 in Phoenix.`\
+https://nytimes.com/athletic/5613005/2024/07/02/wnba-all-star-rosters-caitlin-clark-angel-reese/
+
 **Tigers announcer Craig Monroe absent from broadcast due to sexual abuse allegations**\
 `Monroe, the Tigets' lead color analyst, has not called a game since June 9.  `\
 https://nytimes.com/athletic/5612741/2024/07/02/craig-monroe-tigers-sexual-abuse-allegations/
