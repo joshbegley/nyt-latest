@@ -1,3 +1,7 @@
+**Ohtani likely skipping Home Run Derby**\
+`“He is going through rehab ... he signed up to play for the Dodgers and to take care of himself the best way he can,” Dave Roberts said.`\
+https://nytimes.com/athletic/5613418/2024/07/03/shohei-ohtani-home-run-derby/
+
 **Hurricane Beryl Caused ‘Unimaginable’ Damage in Grenada, Leader Says**\
 `As the storm headed for Jamaica, officials were assessing what Grenada’s prime minister called “total” devastation on two of the country’s islands.`\
 https://nytimes.com/2024/07/03/world/americas/hurricane-beryl-grenada.html
