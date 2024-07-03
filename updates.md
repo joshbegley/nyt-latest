@@ -1,3 +1,11 @@
+**Dutch golfer wins court case to represent Netherlands at Olympics**\
+`The judge’s ruling had no impact on the Olympic fortunes of other excluded Dutch golfers Darius van Driel and Dewi Weber.`\
+https://nytimes.com/athletic/5615324/2024/07/03/joost-luiten-olympics-golf-netherlands-court-case/
+
+**Dalibor Dvorsky, Jimmy Snuggerud on different paths to Blues, but both looking ready to arrive soon**\
+`Dvorsky and Snuggerud were standouts at development camp this week and look well on their way to cracking the Blues' lineup.`\
+https://nytimes.com/athletic/5614655/2024/07/03/dalibor-dvorsky-jimmy-snuggerud-blues-camp/
+
 **‘Despicable Me 4’ Review: This Time They’re Superheroes**\
 `The crew is back, but this time around they need to lie low. Sort of.`\
 https://nytimes.com/2024/07/03/movies/despicable-me-4-review.html
