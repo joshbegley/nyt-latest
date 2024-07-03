@@ -1,3 +1,7 @@
+**Six Days Shook Biden’s Candidacy. Can He Turn It Around?**\
+`I said this election wouldn’t be boring, but I didn’t think it would turn upside down so fast.`\
+https://nytimes.com/2024/07/03/us/politics/biden-trump-2024-presidential-debate-immunity.html
+
 **How to Stop Child Marriage? Punish Husbands, Parents and Wedding Guests.**\
 `A new law in the West African country of Sierra Leone allows child brides to annul their marriages and be financially compensated.`\
 https://nytimes.com/2024/07/03/world/africa/child-marriage-sierra-leone-africa.html

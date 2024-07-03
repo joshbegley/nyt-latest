@@ -1,3 +1,7 @@
+**How to Protect Yourself From Wildfire Smoke**\
+`Scientists are still studying the long-term health effects of smoke exposure.`\
+https://nytimes.com/2024/07/03/well/wildfire-smoke-health-effects.html
+
 **Six Days Shook Biden’s Candidacy. Can He Turn It Around?**\
 `I said this election wouldn’t be boring, but I didn’t think it would turn upside down so fast.`\
 https://nytimes.com/2024/07/03/us/politics/biden-trump-2024-presidential-debate-immunity.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/07/03/us/politics/nearly-all-democratic-governors-plan-
 **You Tested Positive for Covid. Can You Still Travel?**\
 `With coronavirus cases on the rise, summer travelers are once again facing difficult questions. Here’s the latest travel guidance from health experts.`\
 https://nytimes.com/2024/07/03/travel/covid-positive-travel.html
-
-**Biden Insists He Will Stay in the Race**\
-`Also, Hurricane Beryl caused floods in Jamaica. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/07/03/briefing/biden-campaign-doubts-hurricane-beryl.html
 
