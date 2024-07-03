@@ -1,3 +1,11 @@
+**How China and Russia Compete, and Cooperate, in Central Asia**\
+`China’s leader, Xi Jinping, and President Vladimir V. Putin of Russia are courting regional leaders and pushing an alternative to the U.S.-led order.`\
+https://nytimes.com/2024/07/03/world/asia/china-russia-central-asia.html
+
+**They Came for Spiritual Revival, Only to Be Trapped in a Deadly Panic**\
+`Family members streamed to hospitals in the Indian state of Uttar Pradesh to identify loved ones after at least 121 people — nearly all women — died in a stampede at a guru’s gathering.`\
+https://nytimes.com/2024/07/03/world/asia/india-stampede-deaths.html
+
 **They Came for Spiritual Revival, Only to Be Trapped in a Deadly Panic**\
 `Family members streamed to hospitals in the Indian state of Uttar Pradesh to identify loved ones after at least 121 people — nearly all women — died in a stampede at a religious gathering.`\
 https://nytimes.com/2024/07/03/world/asia/india-stampede-deaths.html

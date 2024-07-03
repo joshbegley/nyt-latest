@@ -1,5 +1,9 @@
+**How China and Russia Compete, and Cooperate, in Central Asia**\
+`China’s leader, Xi Jinping, and President Vladimir V. Putin of Russia are courting regional leaders and pushing an alternative to the U.S.-led order.`\
+https://nytimes.com/2024/07/03/world/asia/china-russia-central-asia.html
+
 **They Came for Spiritual Revival, Only to Be Trapped in a Deadly Panic**\
-`Family members streamed to hospitals in the Indian state of Uttar Pradesh to identify loved ones after at least 121 people — nearly all women — died in a stampede at a religious gathering.`\
+`Family members streamed to hospitals in the Indian state of Uttar Pradesh to identify loved ones after at least 121 people — nearly all women — died in a stampede at a guru’s gathering.`\
 https://nytimes.com/2024/07/03/world/asia/india-stampede-deaths.html
 
 **Giants win in Atlanta behind a rookie pitcher and another stellar night from Heliot Ramos**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5613249/2024/07/03/yankees-luis-gil-slump-explanati
 **China Seizes Taiwanese Fishing Boat in Latest Uptick in Tensions**\
 `The authorities in Taipei have demanded Beijing release the boat and its five crew members, who are being held in custody.`\
 https://nytimes.com/2024/07/03/world/asia/china-taiwan-boat.html
-
-**Aaron Cresswell's decade at West Ham: Broken noses, dedication and 'legendary' status**\
-`The left-back signed for West Ham for a £3.75m bargain 10 years ago today - coaches and team-mates tell The Athletic of his lasting legacy`\
-https://nytimes.com/athletic/5536994/2024/07/03/aaron-cresswell-west-ham-decade/
 
