@@ -1,3 +1,7 @@
+**Ohtani likely skipping Home Run Derby**\
+`“He is going through rehab ... he signed up to play for the Dodgers and to take care of himself the best way he can,” Dave Roberts said.`\
+https://nytimes.com/athletic/5613418/2024/07/03/shohei-ohtani-home-run-derby/
+
 **Hurricane Beryl Caused ‘Unimaginable’ Damage in Grenada, Leader Says**\
 `As the storm headed for Jamaica, officials were assessing what Grenada’s prime minister called “total” devastation on two of the country’s islands.`\
 https://nytimes.com/2024/07/03/world/americas/hurricane-beryl-grenada.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5612902/2024/07/03/fantasy-baseball-mailbag-2nd-hal
 **America’s Adversaries Have Seized on Its Leadership Crisis**\
 `Russia and China have seized on last week’s painful presidential debate to push their narrative that America is in terminal decline.`\
 https://nytimes.com/2024/07/03/opinion/america-russia-china-debate.html
-
-**Competitive Eaters Are Just Like Us. Give or Take a Dozen Hot Dogs.**\
-`These titans of caloric consumption aren’t signing deals or getting specials, but they form the backbone of an American tradition.`\
-https://nytimes.com/2024/07/03/dining/chestnut-kobayashi-competitive-eaters.html
 
