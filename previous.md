@@ -1,3 +1,7 @@
+**Dalibor Dvorsky, Jimmy Snuggerud on different paths to Blues, but both ready to land soon**\
+`Dvorsky and Snuggerud were standouts at development camp this week and look well on their way to cracking the Blues' lineup.`\
+https://nytimes.com/athletic/5614655/2024/07/03/dalibor-dvorsky-jimmy-snuggerud-on-different-paths-to-blues-but-both-ready-to-land-soon/
+
 **Some Californians Found Dream Homes Inland. But It Sure Is Hot There.**\
 `Residents moved to Mountain House, Calif., to escape soaring housing costs near the coast. Now, they just have to survive the searing summer heat.`\
 https://nytimes.com/2024/07/03/us/mountain-house-california-housing-heat.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5615153/2024/07/03/blackhawks-development-camp-take
 **White House Attempts to Quell Biden Fitness Concerns**\
 `The White House press secretary, Karine Jean-Pierre, stressed that President Biden was “absolutely not” considering withdrawing from the 2024 race, while attempting to reassure the public of his cognitive capacity.`\
 https://nytimes.com/video/us/politics/100000009554488/white-house-press-briefing-biden-concerns.html
-
-**Top U.S. soccer fan groups call for new head coach**\
-`Two days after the United States men’s national team failed to advance to the knockout stage of the 2024 Copa America, the program’s largest supporters&#8217; group, the American Outlaws, has called for a new head coach.`\
-https://nytimes.com/athletic/5615140/2024/07/03/usmnt-head-coach-fan-groups-berhalter/
 

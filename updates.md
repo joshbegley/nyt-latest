@@ -1,3 +1,7 @@
+**Dalibor Dvorsky, Jimmy Snuggerud on different paths to Blues, but both ready to land soon**\
+`Dvorsky and Snuggerud were standouts at development camp this week and look well on their way to cracking the Blues' lineup.`\
+https://nytimes.com/athletic/5614655/2024/07/03/dalibor-dvorsky-jimmy-snuggerud-on-different-paths-to-blues-but-both-ready-to-land-soon/
+
 **Some Californians Found Dream Homes Inland. But It Sure Is Hot There.**\
 `Residents moved to Mountain House, Calif., to escape soaring housing costs near the coast. Now, they just have to survive the searing summer heat.`\
 https://nytimes.com/2024/07/03/us/mountain-house-california-housing-heat.html
