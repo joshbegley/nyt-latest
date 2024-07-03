@@ -1,3 +1,15 @@
+**Maxx Crosby and Raiders' defensive line continues its push to be among NFL's best**\
+`Seven Raiders, including Crosby, Malcolm Koonce and Tyree Wilson, attended the Sack Summit over the weekend to learn from the league's best.`\
+https://nytimes.com/athletic/5609958/2024/07/03/raiders-maxx-crosby-sack-summit/
+
+**The Oilers' road to cap compliancy: 4 options to consider**\
+`The Oilers were busy in free agency but the fact remains that they are almost $2.5 million over the $88 million cap.`\
+https://nytimes.com/athletic/5612280/2024/07/03/edmonton-oilers-salary-cap-2024/
+
+**Examining Broncos' looming contract questions, from Pat Surtain to Courtland Sutton**\
+`Surtain could reset the market for cornerbacks, but will he and the Broncos agree on a new extension before the season begins?`\
+https://nytimes.com/athletic/5611815/2024/07/03/broncos-contract-extensions-2024/
+
 **The Pulse: The quietly shocking end of an NBA dynasty**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5612567/2024/07/03/klay-thompson-warriors-mavericks/
