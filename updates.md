@@ -1,3 +1,15 @@
+**Qatar sent a new suggested cease-fire proposal to Hamas last week, officials say.**\
+`By Ronen Bergman and Aaron Boxerman`\
+https://nytimes.com/live/2024/07/03/world/israel-gaza-war-hamas/qatar-sent-a-new-suggested-cease-fire-proposal-to-hamas-last-week-officials-say
+
+**USMNT mailbag: What do you want to know after Copa America exit?**\
+`The U.S. crashed out at the group stage of Copa America`\
+https://nytimes.com/athletic/5614595/2024/07/03/usmnt-mailbag-copa-america/
+
+**The destruction on Carriacou and Petite Martinique islands captured in satellite images.**\
+`By Lynsey Chutel`\
+https://nytimes.com/live/2024/07/03/weather/hurricane-beryl/the-destruction-on-carriacou-and-petite-martinique-islands-captured-in-satellite-images
+
 **Democrats’ leaders in Congress are not urging them to rally around Biden.**\
 `By Luke Broadwater and Maya C. Miller`\
 https://nytimes.com/live/2024/07/03/us/biden-trump-election/democrats-leaders-in-congress-are-not-urging-them-to-rally-around-biden
