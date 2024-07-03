@@ -1,3 +1,11 @@
+**Some Californians Found Dream Homes Inland. But It Sure Is Hot There.**\
+`Residents moved to Mountain House, Calif., to escape soaring housing costs near the coast. Now, they just have to survive the searing summer heat.`\
+https://nytimes.com/2024/07/03/us/mountain-house-california-housing-heat.html
+
+**'Roles to be earned': Timberwolves rookies may have chance to make early impact**\
+`With the way free agency has gone so far, Rob Dillingham and Terrence Shannon Jr. may not have the learning curve many rookies get.`\
+https://nytimes.com/athletic/5613301/2024/07/03/rob-dillingham-terrence-shannon-timberwolves-nba/
+
 **‘Seven Samurai’: Masterless Warriors in a Cinematic Masterpiece**\
 `Akira Kurosawa’s epic has always been known for its action-film artistry, but there is emotional heft and nuance as well.`\
 https://nytimes.com/2024/07/03/movies/seven-samurai.html
