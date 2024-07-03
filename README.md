@@ -1,3 +1,7 @@
+**Phillies lead All-Star Game starters with 3 selections**\
+`For the first time in more than 30 years, the bulk of the National League’s starting All-Star infield is coming from the Phillies.`\
+https://nytimes.com/athletic/5614294/2024/07/03/mlb-all-star-starters-roster/
+
 **Menendez Defense Rests Without Senator Testifying**\
 `Senator Robert Menendez of New Jersey is accused of a wide-ranging international bribery conspiracy. Jurors are likely to begin deliberating next week.`\
 https://nytimes.com/2024/07/03/nyregion/bob-menendez-bribery-trial.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/07/03/us/politics/kamala-harris-biden-president-debate.
 **Should Biden Step Aside or Stay In? What Prominent Democrats Are Saying**\
 `A small but vocal faction of party members are urging the president to withdraw from the race or consider doing so in time for a replacement to be chosen.`\
 https://nytimes.com/interactive/2024/07/03/us/elections/biden-withdrawal-democrats.html
-
-**Judge Backs Challenge to F.T.C.’s Noncompete Ban, at Least for Now**\
-`Granting an injunction to several plaintiffs, a judge said the Federal Trade Commission’s pending ban on noncompete agreements was unlikely to prevail.`\
-https://nytimes.com/2024/07/03/business/ftc-noncompete-ban-injunction.html
 
