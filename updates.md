@@ -1,3 +1,7 @@
+**Phillies lead All-Star Game starters with 3 selections**\
+`For the first time in more than 30 years, the bulk of the National League’s starting All-Star infield is coming from the Phillies.`\
+https://nytimes.com/athletic/5614294/2024/07/03/mlb-all-star-starters-roster/
+
 **Menendez Defense Rests Without Senator Testifying**\
 `Senator Robert Menendez of New Jersey is accused of a wide-ranging international bribery conspiracy. Jurors are likely to begin deliberating next week.`\
 https://nytimes.com/2024/07/03/nyregion/bob-menendez-bribery-trial.html
