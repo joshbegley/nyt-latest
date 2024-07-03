@@ -1,3 +1,7 @@
+**Nordic Toast**\
+`Juliana Tringali Golden looks ahead.`\
+https://nytimes.com/2024/07/02/crosswords/daily-puzzle-2024-07-03.html
+
 **Special Counsel Is Said to Be Planning to Pursue Trump Cases Past the Election**\
 `Jack Smith plans to continue two criminal cases against Donald J. Trump until Inauguration Day if the former president wins, according to a person familiar with his thinking.`\
 https://nytimes.com/2024/07/02/us/politics/jack-smith-trump-charges.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/02/arts/design/nyc-gallery-shows-july.html
 **Iran’s Runoff Election: What to Know**\
 `Two candidates from opposite camps will compete for the presidency after no one garnered the number of votes needed last week to win.`\
 https://nytimes.com/2024/07/02/world/middleeast/iran-runoff-election.html
-
-**Andy Beshear says the Democratic Party needs to be ‘upfront and honest.’**\
-`The governor of Kentucky also said he wanted Mr. Biden to talk to the American people about his health.`\
-https://nytimes.com/live/2024/07/02/us/biden-trump-election/andy-beshear-biden-democratic-nominee
 
