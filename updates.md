@@ -1,3 +1,15 @@
+**Why the Pistons could target Brook Lopez, Mitchell Robinson and others via trade**\
+`Trajan Langdon wants to get assets. Which teams could Detroit trade with to get it done?`\
+https://nytimes.com/athletic/5614281/2024/07/03/pistons-nba-trade-knicks-lakers-bucks/
+
+**Burnley analyst, former Man City staff member, banned for betting breaches**\
+`Burnley&#8217;s lead performance analyst — who is a former staff member at Manchester City — has been banned from all football-related activity by the Football Association (FA) for 12 months after breaching betting rules.`\
+https://nytimes.com/athletic/5614401/2024/07/03/bredice-banned-fa-betting-man-city-burnley/
+
+**Heritage Foundation Head Refers to ‘Second American Revolution’**\
+`Kevin Roberts, president of the group that has coordinated the Project 2025 policy plan, said it could be “bloodless if the left allows it to be.”`\
+https://nytimes.com/2024/07/03/us/politics/heritage-foundation-2025-policy-america.html
+
 **Can I Say I Have Tourette’s Without Being Formally Diagnosed?**\
 `The magazine’s Ethicist columnist on self-identification.`\
 https://nytimes.com/2024/07/03/magazine/tourettes-diagnosis-informal-ethics.html
