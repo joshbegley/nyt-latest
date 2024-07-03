@@ -1,3 +1,11 @@
+**Andy Beshear says the Democratic Party needs to be ‘upfront and honest.’**\
+`The governor of Kentucky also said he wanted Mr. Biden to talk to the American people about his health.`\
+https://nytimes.com/live/2024/07/02/us/biden-trump-election/andy-beshear-biden-democratic-nominee
+
+**Euro 2024 quarterfinal, champion odds: England still favored after narrow escape**\
+`Even after another uninspiring showing against Slovakia, England is still the favorite to win Euro 2024 with Spain, France and Germany next.`\
+https://nytimes.com/athletic/5612331/2024/07/02/euro-2024-quarterfinal-odds-england-spain-germany-france/
+
 **Acknowledging Debate Debacle, Biden Says He ‘Fell Asleep on the Stage’**\
 `President Biden blamed his international travel schedule for his disjointed performance, calling it “not an excuse but an explanation.”`\
 https://nytimes.com/2024/07/02/us/politics/biden-debate.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/02/opinion/israel-netanyahu.html
 **‘Beverly Hills Cop: Axel F’ Review: It’s Busted**\
 `Eddie Murphy struggles to revive the moribund action-comedy franchise.`\
 https://nytimes.com/2024/07/02/movies/beverly-hills-cop-axel-f-review.html
-
-**To adapt to new CBA, Bucks went young in draft. How quickly can they develop?**\
-`Part of the Bucks’ plan this summer? Get younger. “The balance is intentional,” general manager Jon Horst said.`\
-https://nytimes.com/athletic/5612055/2024/07/02/bucks-aj-johnson-tyler-smith-nba-draft/
-
-**The Historical Echo Biden Has Tried to Suppress**\
-`Democrats have rebuffed comparisons between 2024 and 1968. Recent events show they have more to do.`\
-https://nytimes.com/2024/07/02/us/politics/biden-2024-presidential-race.html
 
