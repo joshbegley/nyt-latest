@@ -1,3 +1,7 @@
+**How PSR deadline impacted June deals: £323m of sales, question marks and young players on move**\
+`The PSR deadline changed the nature of transfer business during June — this is what happened`\
+https://nytimes.com/athletic/5611939/2024/07/03/psr-transfer-chelsea-aston-villa-newcastle/
+
 **Wednesday's MLB game odds, betting projections: Moneyline, playoff odds, best pitchers**\
 `Projections for Wednesday's MLB game with value picks, best bets, pitcher props, home run trends, weather and more.`\
 https://nytimes.com/athletic/5611521/2024/07/03/mlb-odds-predictions-best-bets-july-3/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5613034/2024/07/02/vinicius-junior-ban-brazil-copa-
 **Giants 'Hard Knocks' takeaways: Exploring a Saquon Barkley trade and 'not giving up' on Daniel Jones**\
 `The Giants explored all scenarios involving Barkley, including using the franchise tag on him and then trading the star RB. `\
 https://nytimes.com/athletic/5613074/2024/07/02/new-york-giants-hard-knocks-joe-schoen-saquon-barkley/
-
-**Nordic Toast**\
-`Juliana Tringali Golden looks ahead.`\
-https://nytimes.com/2024/07/02/crosswords/daily-puzzle-2024-07-03.html
 
