@@ -1,3 +1,11 @@
+**How the Juraj Slafkovský contract could help the Canadiens open a competitive window**\
+`Slafkovský's team-firendly contract and Kent Hughes' limits in free agency give a good idea as to when the Canadiens could open a window.`\
+https://nytimes.com/athletic/5613389/2024/07/03/canadiens-juraj-slafkovsky-contract/
+
+**An Artist Who Turned Her Bedroom Closet Into a Safe Haven**\
+`At 52 Walker in New York, Diamond Stingily’s site-specific installations tell a story of desire, shame and coming-of-age.`\
+https://nytimes.com/interactive/2024/07/03/t-magazine/diamond-stingily-52-walker.html
+
 **NWSL championship will be played at new Kansas City stadium**\
 `The KC Current has had sellout crowds every game this season.`\
 https://nytimes.com/athletic/5614110/2024/07/03/nwsl-championship-kansas-city-stadium/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5614101/2024/07/03/michael-oliver-anthony-taylor-eu
 **LeBron James to sign 2-year, $104 million max deal with Lakers**\
 `Due to an NBA salary-cap quirk known as the “over-38 rule,” Los Angeles is unable to offer James a contract for more than three years.`\
 https://nytimes.com/athletic/5614079/2024/07/03/lebron-james-contract-lakers-max-deal/
-
-**The Athletic FC: Gunok's save of the Euros, Brazil stall in Copa, and who throws a show?**\
-`The Athletic FC is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox`\
-https://nytimes.com/athletic/5613849/2024/07/03/the-athletic-fc-gunok-save-brazil-colombia-result/
-
-**Word of the Day: sociable**\
-`This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/07/03/learning/word-of-the-day-sociable.html
 

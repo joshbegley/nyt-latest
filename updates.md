@@ -1,3 +1,11 @@
+**How the Juraj Slafkovský contract could help the Canadiens open a competitive window**\
+`Slafkovský's team-firendly contract and Kent Hughes' limits in free agency give a good idea as to when the Canadiens could open a window.`\
+https://nytimes.com/athletic/5613389/2024/07/03/canadiens-juraj-slafkovsky-contract/
+
+**An Artist Who Turned Her Bedroom Closet Into a Safe Haven**\
+`At 52 Walker in New York, Diamond Stingily’s site-specific installations tell a story of desire, shame and coming-of-age.`\
+https://nytimes.com/interactive/2024/07/03/t-magazine/diamond-stingily-52-walker.html
+
 **NWSL championship will be played at new Kansas City stadium**\
 `The KC Current has had sellout crowds every game this season.`\
 https://nytimes.com/athletic/5614110/2024/07/03/nwsl-championship-kansas-city-stadium/
