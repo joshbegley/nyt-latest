@@ -1,3 +1,15 @@
+**Miami lands 4-star 2026 QB Dereon Coleman**\
+`The Canes' 2026 class now includes two top-200 national prospects and a four-star QB in Coleman.`\
+https://nytimes.com/athletic/5615062/2024/07/03/miami-recruiting-quarterback-dereon-coleman/
+
+**Israel Kills a Top Commander of Hezbollah, Which Replies With a Rocket Barrage**\
+`The escalation in violence across the border of Israel and Lebanon came as Western diplomats tried to head off a full-fledged war there.`\
+https://nytimes.com/2024/07/03/world/middleeast/israel-kills-hezbollah-commander.html
+
+**NHL contract grades: Vladimir Tarasenko brings all-offense mentality to Red Wings**\
+`The idea of Tarasenko playing opposite longtime Central rival Patrick Kane on the second line is tantalizing — at one end of the ice.`\
+https://nytimes.com/athletic/5615357/2024/07/03/nhl-contract-grades-vladimir-tarasenko-red-wings/
+
 **Scouting Phillies, Pirates, Orioles and Rangers prospects, including Aidan Miller**\
 `Notes from recent scouting trips to see Jersey Shore, Greensboro, Down East and Delmarva.`\
 https://nytimes.com/athletic/5615303/2024/07/03/scouting-aidan-miller-termarr-johnson-keith-law/
@@ -21,16 +33,4 @@ https://nytimes.com/2024/07/03/opinion/america-antivax-china-philippines.html
 **French Director Benoît Jacquot Is Charged With Rape**\
 `Mr. Jacquot, 77, was accused of assaulting two actresses and barred from working with minors. He has denied any wrongdoing.`\
 https://nytimes.com/2024/07/03/movies/benoit-jacquot-rape-charges.html
-
-**Messi to be assessed ahead of Argentina's clash vs Ecuador**\
-`Argentina head coach Lionel Scaloni says captain Lionel Messi will be further assessed in training later today to determine his availability for their Copa America quarter-final against Ecuador.`\
-https://nytimes.com/athletic/5615349/2024/07/03/lionel-messi-argentina-ecuador-copa-america/
-
-**Tarasenko, Red Wings agree to 2-year, $9.5 million deal**\
-`In 76 regular-season games played in 2023-24, Tarasenko recorded 23 goals and 32 assists.`\
-https://nytimes.com/athletic/5615362/2024/07/03/vladimir-tarasenko-red-wings-contract/
-
-**Netflix Co-founder Becomes One of the Biggest Democratic Donors to Call for Biden to Step Aside**\
-`A public declaration from a megadonor is another crack in the armor in the president’s foundation of support.`\
-https://nytimes.com/2024/07/03/us/politics/reed-hastings-netflix-biden-withdraw.html
 
