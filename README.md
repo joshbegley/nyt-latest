@@ -1,7 +1,3 @@
-**Jamaicans prepare for the arrival of Beryl.**\
-`By Jovan Johnson`\
-https://nytimes.com/live/2024/07/03/weather/hurricane-beryl/jamaicans-prepare-for-the-arrival-of-beryl
-
 **Early free-agent signings signal a stronger Oilers team for 2024-25**\
 `The Oilers delivered value contracts at every turn in free agency on July 1, taking on very little risk.`\
 https://nytimes.com/athletic/5610115/2024/07/03/oilers-free-agents-roster-2024/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/07/03/movies/space-cadet-review.html
 **Brewers acquire right-hander Aaron Civale from Rays: Source**\
 `The move boosts Milwaukee's (51-35) starting rotation, which ranks near the bottom in innings pitched.`\
 https://nytimes.com/athletic/5614239/2024/07/03/brewers-rays-trade-aaron-civale/
+
+**The Wide, Wide World of Judy Chicago**\
+`The 84-year-old American is perhaps best known for her groundbreaking feminist installation “The Dinner Party,” but she is an artist with a formidable range.`\
+https://nytimes.com/2024/07/03/arts/design/judy-chicago-serpentine-luma-arles.html
 
