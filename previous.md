@@ -1,3 +1,7 @@
+**‘Believe me now?’: Nikki Haley reminds Republicans of her warning about Biden.**\
+`By Jazmine Ulloa`\
+https://nytimes.com/live/2024/07/03/us/biden-trump-election/believe-me-now-nikki-haley-reminds-republicans-of-her-warning-about-biden
+
 **The Guys Behind ‘Hawk Tuah Girl’ Would Like a Little Credit**\
 `Tim Dickerson and DeArius Marlow shoot man-on-the-street interviews at popular nightlife destinations. Their questions led to an internet sensation.`\
 https://nytimes.com/2024/07/03/style/hawk-tuah-girl-video.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/07/03/us/biden-trump-election/biden-tells-campaign
 **A New Poll Brings a Dire Warning for the Biden Campaign**\
 `If the president’s candidacy was shaky before, it is virtually untenable now.`\
 https://nytimes.com/live/2024/07/02/opinion/thepoint/biden-poll-drop-out
-
-**Hezbollah responds to the killing of a senior commander with a cross-border rocket barrage.**\
-`By Euan Ward`\
-https://nytimes.com/live/2024/07/03/world/israel-gaza-war-hamas/hezbollah-responds-to-the-killing-of-a-senior-commander-with-a-cross-border-rocket-barrage
 
