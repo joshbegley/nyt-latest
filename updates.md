@@ -1,3 +1,7 @@
+**PSG Women close to appointing Abriel as new head coach**\
+`Paris Saint-Germain are close to appointing Fabrice Abriel as the new head coach of their women’s team.`\
+https://nytimes.com/athletic/5610810/2024/07/03/psg-fabrice-abriel/
+
 **The Man Behind the Minions**\
 `Pierre Coffin helped invent the yellow animated creatures and has supplied their voices for nearly 15 years. He’s as puckish and subversive as his mischievous creations.`\
 https://nytimes.com/2024/07/03/arts/television/minions-despicable-me-4-pierre-coffin.html
