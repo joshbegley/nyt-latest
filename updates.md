@@ -1,3 +1,11 @@
+**Howard Eskin barred from Citizens Bank Park**\
+`Aramark confirmed in a statement Tuesday that one of its employees was "subjected to an unwanted kiss by an Audacy employee."`\
+https://nytimes.com/athletic/5612918/2024/07/02/howard-eskin-citizens-bank-park-barred-unwanted-advance/
+
+**'This is my hometown': Jack Johnson wants to be a role model for Blue Jackets' young blue line**\
+`Johnson was excited to return to the Blue Jackets, and possibly to finish his career in Columbus.`\
+https://nytimes.com/athletic/5612345/2024/07/02/jack-johnson-blue-jackets/
+
 **Clark, Reese headline WNBA All-Star Game roster**\
 `The two rookies are the only two first-time participants in the exhibition, which is set for July 20 in Phoenix.`\
 https://nytimes.com/athletic/5613005/2024/07/02/wnba-all-star-rosters-caitlin-clark-angel-reese/
