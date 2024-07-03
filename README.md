@@ -1,3 +1,7 @@
+**Why It’s So Hard to Walk Away From Power**\
+`There’s a name for the dilemma that Joe Biden finds himself in. `\
+https://nytimes.com/2024/07/03/opinion/joe-biden-president-election.html
+
 **Biden tells campaign staff: ‘I’m in this race to the end.’**\
 `By Lisa Lerer and Nicholas Nehamas`\
 https://nytimes.com/live/2024/07/03/us/biden-trump-election/biden-tells-campaign-staff-im-in-this-race-to-the-end
@@ -29,12 +33,4 @@ https://nytimes.com/2024/07/03/style/the-bear-glow-up.html
 **What’s in Our Queue? ‘One Day’ and More**\
 `I’m a national political reporter covering the presidential election. Here are five things I’ve recently delighted in seeing, hearing and watching.`\
 https://nytimes.com/interactive/2024/07/03/arts/editors-recommendations-oneday.html
-
-**Jessica Campbell becomes NHL's first full-time female assistant coach**\
-`Campbell spent the past two seasons as an assistant under Dan Bylsma with the Coachella Valley Firebirds, Seattle's AHL affiliate.`\
-https://nytimes.com/athletic/5614381/2024/07/03/jessica-campbell-kraken-assistant-coach/
-
-**Argentina name men’s football squad for Paris Olympics: no Fernandez, Martinez**\
-`Argentina have named their 18-player men&#8217;s football squad for the 2024 Olympics, alongside four replacement players.`\
-https://nytimes.com/athletic/5614878/2024/07/03/argentina-soccer-olympics-squad/
 
