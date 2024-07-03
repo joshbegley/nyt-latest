@@ -1,3 +1,15 @@
+**Maxx Crosby and Raiders' defensive line continues its push to be among NFL's best**\
+`Seven Raiders, including Crosby, Malcolm Koonce and Tyree Wilson, attended the Sack Summit over the weekend to learn from the league's best.`\
+https://nytimes.com/athletic/5609958/2024/07/03/raiders-maxx-crosby-sack-summit/
+
+**The Oilers' road to cap compliancy: 4 options to consider**\
+`The Oilers were busy in free agency but the fact remains that they are almost $2.5 million over the $88 million cap.`\
+https://nytimes.com/athletic/5612280/2024/07/03/edmonton-oilers-salary-cap-2024/
+
+**Examining Broncos' looming contract questions, from Pat Surtain to Courtland Sutton**\
+`Surtain could reset the market for cornerbacks, but will he and the Broncos agree on a new extension before the season begins?`\
+https://nytimes.com/athletic/5611815/2024/07/03/broncos-contract-extensions-2024/
+
 **The Pulse: The quietly shocking end of an NBA dynasty**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5612567/2024/07/03/klay-thompson-warriors-mavericks/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5613353/2024/07/03/phillies-michael-mercado-first-b
 **Answering 30 MLB trade deadline questions with a month to go and so many possibilities**\
 `What will — and won't — the top teams do? What about some of the clubs in wild-card hunt? And who is the biggest prospect who will be dealt?`\
 https://nytimes.com/athletic/5613210/2024/07/03/mlb-trade-deadline-scenarios-questions-answers-july-30/
-
-**Stefano Pioli to be appointed Al Ittihad head coach after Milan exit**\
-`Saudi Arabian club Al Ittihad are set to appoint Stefano Pioli as their new head coach on a three-year contract.`\
-https://nytimes.com/athletic/5613649/2024/07/03/stefano-pioli-head-coach-al-ittihad/
-
-**St. Louis Cardinals mailbag Part 2: Early trade deadline talks on pitching, outfield help**\
-`Would the Cardinals trade Paul Goldschmidt? Would they rather add a starter or a reliever? We have the answers as the trade deadline nears.`\
-https://nytimes.com/athletic/5612418/2024/07/03/cardinals-trade-deadline-pitching-outfield/
-
-**Ranking CFB teams better off (Texas), worse off (USC), or same (Nebraska) in new era**\
-`Is your team better or worse off in the new college football landscape taking effect this year?`\
-https://nytimes.com/athletic/5611204/2024/07/03/college-football-realignment-teams-benefit-impact/
 
