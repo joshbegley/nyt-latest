@@ -1,3 +1,7 @@
+**NWSL championship will be played at new Kansas City stadium**\
+`The KC Current has had sellout crowds every game this season.`\
+https://nytimes.com/athletic/5614110/2024/07/03/nwsl-championship-kansas-city-stadium/
+
 **Disney's Iger, wife close to purchasing control of ACFC**\
 `The current valuation of the club is estimated at $250 million, and Iger and Bay would invest more than $50 million to take control of ACFC.`\
 https://nytimes.com/athletic/5613135/2024/07/03/angel-city-fc-bob-iger-willow-bay-investment/
