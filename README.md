@@ -1,3 +1,7 @@
+**Twins promoting prospect Brooks Lee to majors: Sources**\
+`MINNEAPOLIS — The Twins are promoting their top major-league-ready prospect, Brooks Lee, according to multiple club sources.`\
+https://nytimes.com/athletic/5615277/2024/07/03/twins-promote-brooks-lee-major-league-debut/
+
 **Dalibor Dvorsky, Jimmy Snuggerud on different paths to Blues, but both ready to land soon**\
 `Dvorsky and Snuggerud were standouts at development camp this week and look well on their way to cracking the Blues' lineup.`\
 https://nytimes.com/athletic/5614655/2024/07/03/dalibor-dvorsky-jimmy-snuggerud-on-different-paths-to-blues-but-both-ready-to-land-soon/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/07/03/opinion/biden-harris-trump-democrats.html
 **After free-agent frenzy, Blackhawks walk a line between win-now, win-later at development camp**\
 `Kyle Davidson’s spending spree on veterans in free agency left precious few NHL spots available for players arriving the same day at camp.`\
 https://nytimes.com/athletic/5615153/2024/07/03/blackhawks-development-camp-takeaways/
-
-**White House Attempts to Quell Biden Fitness Concerns**\
-`The White House press secretary, Karine Jean-Pierre, stressed that President Biden was “absolutely not” considering withdrawing from the 2024 race, while attempting to reassure the public of his cognitive capacity.`\
-https://nytimes.com/video/us/politics/100000009554488/white-house-press-briefing-biden-concerns.html
 
