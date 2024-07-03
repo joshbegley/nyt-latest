@@ -1,3 +1,11 @@
+**Biden Campaign Memos Show Efforts to Calm Concerns**\
+`A pair of memos highlighted internal polling that showed a close race and strong fund-raising in an attempt to quiet fears about President Biden’s candidacy.`\
+https://nytimes.com/2024/07/03/us/politics/biden-2024-campaign-memos.html
+
+**Miley to miss start of season with foot injury**\
+`Newcastle United midfielder Lewis Miley will miss the beginning of the season after suffering a foot injury that could rule him out until the start of October.`\
+https://nytimes.com/athletic/5614761/2024/07/03/lewis-miley-newcastle-foot-injury/
+
 **How Would the Restaurant in ‘The Bear’ Work in Real Life?**\
 `The show is praised for its gritty realism, and some of the details are spot-on. Others, not so much, according to food insiders.`\
 https://nytimes.com/2024/07/03/dining/the-bear-season-3-restaurant.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5614255/2024/07/03/nikki-hiltz-transgender-nonbinar
 **The Windup: A trade! Deadline season is here**\
 `Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
 https://nytimes.com/athletic/5614639/2024/07/03/brewers-aaron-civale-trade-tim-anderson-the-windup/
-
-**Man United part owner Avram Glazer fails in bid for NWSL club Angel City**\
-`Avram Glazer, a part owner of Manchester United and a member of the Glazer family who retain a majority stake in the club, has failed in a bid to become the controlling shareholder of NWSL side Angel City.`\
-https://nytimes.com/athletic/5614531/2024/07/03/man-united-avram-glazer-angel-city-bid/
-
-**Repeated evacuation orders take a toll on already weakened Gazans.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/live/2024/07/03/world/israel-gaza-war-hamas/repeated-evacuation-orders-take-a-toll-on-already-weakened-gazans
 
