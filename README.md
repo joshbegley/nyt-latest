@@ -2,7 +2,7 @@
 `Monroe, the Tigets' lead color analyst, has not called a game since June 9.  `\
 https://nytimes.com/athletic/5612741/2024/07/02/craig-monroe-tigers-sexual-abuse-allegations/
 
-**Inside the Blues' Pavel Buchnevich talks — and how they got him extended without going max term**\
+**Inside Blues' Pavel Buchnevich talks — and how they got him extended without going max term**\
 `Per his agent, Buchnevich "doesn't want to be a player that is just collecting money. He wants to earn what he's making."`\
 https://nytimes.com/athletic/5612439/2024/07/02/pavel-buchnevich-extension-blues/
 
