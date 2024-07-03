@@ -1,3 +1,15 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/03/crosswords/spelling-bee-forum.html
+
+**New York City’s Worst Water Bill Delinquent? New York State.**\
+`The Metropolitan Transportation Authority and two other state entities owe $76.5 million in unpaid city water bills at a time when the city is raising water rates.`\
+https://nytimes.com/2024/07/03/nyregion/water-bill-delinquents-nyc.html
+
+**New Jersey Is One of America’s Fastest-Warming States, Data Shows**\
+`Global warming is hitting the entire Northeast particularly hard, according to figures provided by Climate Central, a nonprofit group.`\
+https://nytimes.com/2024/07/03/nyregion/new-jersey-warming-climate-change.html
+
 **Simons - YouTube star aged 10, risk taker, assist maker. But he is at a crossroads... again**\
 `The Netherlands forward is perhaps the best player still at the Euros who is far from certain where they will be playing next season`\
 https://nytimes.com/athletic/5612953/2024/07/03/xavi-simons-netherlands-euros-psg/
