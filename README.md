@@ -1,3 +1,7 @@
+**Fantasy baseball mailbag: Looking at second-half expectations for Corbin Carroll, Dylan Cease and more**\
+`Adam Ronis handles your fantasy baseball questions about Corbin Carroll, Dylan Cease, Oneil Cruz and more.`\
+https://nytimes.com/athletic/5612902/2024/07/03/fantasy-baseball-mailbag-2nd-half-expectations-corbin-carroll/
+
 **America’s Adversaries Have Seized on Its Leadership Crisis**\
 `Russia and China have seized on last week’s painful presidential debate to push their narrative that America is in terminal decline.`\
 https://nytimes.com/2024/07/03/opinion/america-russia-china-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5607636/2024/07/03/elliot-anderson-to-nottingham-fo
 **Jesse Chavez deserves All-Star consideration, and Braves teammates are making sure we know**\
 `in his 17th season, Chavez has a 1.51 ERA in 27 appearances and has limited hitters to a .054 average with runners in scoring position.`\
 https://nytimes.com/athletic/5613194/2024/07/03/braves-jesse-chavez-all-star-game/
-
-**Why Rodon and his ready-made partnership really might ease the pain of losing Gray**\
-`A reminder of what the defender delivers for Daniel Farke`\
-https://nytimes.com/athletic/5607879/2024/07/03/rodon-return-to-leeds/
 
