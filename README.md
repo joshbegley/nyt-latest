@@ -1,3 +1,11 @@
+**Howard Eskin barred from Citizens Bank Park**\
+`Aramark confirmed in a statement Tuesday that one of its employees was "subjected to an unwanted kiss by an Audacy employee."`\
+https://nytimes.com/athletic/5612918/2024/07/02/howard-eskin-citizens-bank-park-barred-unwanted-advance/
+
+**'This is my hometown': Jack Johnson wants to be a role model for Blue Jackets' young blue line**\
+`Johnson was excited to return to the Blue Jackets, and possibly to finish his career in Columbus.`\
+https://nytimes.com/athletic/5612345/2024/07/02/jack-johnson-blue-jackets/
+
 **Clark, Reese headline WNBA All-Star Game roster**\
 `The two rookies are the only two first-time participants in the exhibition, which is set for July 20 in Phoenix.`\
 https://nytimes.com/athletic/5613005/2024/07/02/wnba-all-star-rosters-caitlin-clark-angel-reese/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5612331/2024/07/02/euro-2024-quarterfinal-odds-engl
 **Acknowledging Debate Debacle, Biden Says He ‘Fell Asleep on the Stage’**\
 `President Biden blamed his international travel schedule for his disjointed performance, calling it “not an excuse but an explanation.”`\
 https://nytimes.com/2024/07/02/us/politics/biden-debate.html
-
-**Robert Towne, Screenwriter of ‘Chinatown’ and More, Dies at 89**\
-`Celebrated for his mastery of dialogue, he also contributed (though without credit) to the scripts of “Bonnie and Clyde” and “The Godfather.”`\
-https://nytimes.com/2024/07/02/movies/robert-towne-dead.html
-
-**New Haitian Leader Visits Washington Seeking Additional Support**\
-`Haiti’s newly selected prime minister, Garry Conille, met with Democrats on Capitol Hill as well as Biden administration officials, seeking more help to combat the unrest in his country.`\
-https://nytimes.com/2024/07/02/us/politics/garry-conille-haiti-democrats.html
 
