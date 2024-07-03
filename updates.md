@@ -1,4 +1,8 @@
 **Twins promoting prospect Brooks Lee to majors: Sources**\
+`Though there has been no official word, Lee will likely take the place of Royce Lewis, who exited Tuesday's game with a groin injury. `\
+https://nytimes.com/athletic/5615277/2024/07/03/twins-promote-brooks-lee-major-league-debut/
+
+**Twins promoting prospect Brooks Lee to majors: Sources**\
 `MINNEAPOLIS — The Twins are promoting their top major-league-ready prospect, Brooks Lee, according to multiple club sources.`\
 https://nytimes.com/athletic/5615277/2024/07/03/twins-promote-brooks-lee-major-league-debut/
 
