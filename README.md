@@ -1,3 +1,11 @@
+**Early free-agent signings signal a stronger Oilers team for 2024-25**\
+`The Oilers delivered value contracts at every turn in free agency on July 1, taking on very little risk.`\
+https://nytimes.com/athletic/5610115/2024/07/03/oilers-free-agents-roster-2024/
+
+**Biden Told Ally That He Is Weighing Whether to Continue in the Race**\
+`The president’s conversation is the first indication that he is seriously considering whether he can recover after a devastating performance on the debate stage in Atlanta on Thursday.`\
+https://nytimes.com/2024/07/03/us/politics/biden-election-debate.html
+
 **A Family Loses 3 Generations of Women in India Crowd’s Panic**\
 `They had worked hard for years to make a life: “Now it’s over with the death of my dear daughter, wife and mother — in one single blow.”`\
 https://nytimes.com/2024/07/03/world/asia/india-stampede-family.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5614239/2024/07/03/brewers-rays-trade-aaron-civale/
 **The Wide, Wide World of Judy Chicago**\
 `The 84-year-old American is perhaps best known for her groundbreaking feminist installation “The Dinner Party,” but she is an artist with a formidable range.`\
 https://nytimes.com/2024/07/03/arts/design/judy-chicago-serpentine-luma-arles.html
-
-**The Biden campaign and Republicans are duking it out in ads.**\
-`By Nick Corasaniti, Nicholas Nehamas and Maggie Astor`\
-https://nytimes.com/live/2024/07/03/us/biden-trump-election/the-biden-campaign-and-republicans-are-duking-it-out-in-ads
-
-**Lakers tout Bronny James and their future while standing pat in the present**\
-`Draft picks Dalton Knecht and Bronny James were introduced on Tuesday, though Lakers fans are hoping for bigger additions to the roster.`\
-https://nytimes.com/athletic/5612773/2024/07/03/lakers-bronny-lebron-james-future-roster/
 
