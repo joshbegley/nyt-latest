@@ -1,3 +1,7 @@
+**Inside the Blues' Pavel Buchnevich talks — and how they got him extended without going max term**\
+`Per his agent, Buchnevich "doesn't want to be a player that is just collecting money. He wants to earn what he's making."`\
+https://nytimes.com/athletic/5612439/2024/07/02/pavel-buchnevich-extension-blues/
+
 **What to See in N.Y.C. Galleries in July**\
 `This week in Newly Reviewed, Yinka Elujoba covers Elmer Guevara’s subtle paintings, James Casebere’s reimagined architecture and John Ahearn and Rigoberto Torres’s busts of Bronx residents.`\
 https://nytimes.com/2024/07/02/arts/design/nyc-gallery-shows-july.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/02/us/who-is-lloyd-doggett-biden.html
 **'The more I get injured, the more I learn about myself': Bianca Andreescu takes it in her stride**\
 `Bianca Andreescu's return to her best tennis started with thinking about it as little as possible`\
 https://nytimes.com/athletic/5588622/2024/07/02/bianca-andreescu-interview-tennis-injuries/
-
-**Yes, the Starliner Is Stuck in Space**\
-`This isn’t how the new era of space was billed.`\
-https://nytimes.com/live/2024/07/02/opinion/thepoint/yes-the-starliner-is-stuck-in-space
 
