@@ -1,3 +1,7 @@
+**Can I Say I Have Tourette’s Without Being Formally Diagnosed?**\
+`The magazine’s Ethicist columnist on self-identification.`\
+https://nytimes.com/2024/07/03/magazine/tourettes-diagnosis-informal-ethics.html
+
 **Packing for Camp? Leave Your Sephora Hauls at Home**\
 `As young girls continue to embrace elaborate skin care routines, summer camps want to focus on inner beauty.`\
 https://nytimes.com/2024/07/03/style/summer-camp-skincare-routine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/03/dining/pizza-flavors-without-pizza-temperatures.h
 **How the Denisovans Survived the Ice Age**\
 `A trove of animal bone fragments from a cave on the Tibetan plateau reveals how Denisovans thrived in a harsh climate for over 100,000 years.`\
 https://nytimes.com/2024/07/03/science/denisovans-ice-age-hunting-tibet.html
-
-**Finding This Fossil Was Like Spotting a Crocodile in a Canadian Forest**\
-`A bigheaded predator resembling a giant salamander found in an African fossil deposit suggests unwritten chapters of how animals moved onto land.`\
-https://nytimes.com/2024/07/03/science/fossil-namibia-salamander.html
 

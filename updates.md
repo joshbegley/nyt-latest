@@ -1,3 +1,7 @@
+**Can I Say I Have Tourette’s Without Being Formally Diagnosed?**\
+`The magazine’s Ethicist columnist on self-identification.`\
+https://nytimes.com/2024/07/03/magazine/tourettes-diagnosis-informal-ethics.html
+
 **Packing for Camp? Leave Your Sephora Hauls at Home**\
 `As young girls continue to embrace elaborate skin care routines, summer camps want to focus on inner beauty.`\
 https://nytimes.com/2024/07/03/style/summer-camp-skincare-routine.html
