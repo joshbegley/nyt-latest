@@ -1,3 +1,7 @@
+**How to Protect Yourself From Wildfire Smoke**\
+`Scientists are still studying the long-term health effects of smoke exposure.`\
+https://nytimes.com/2024/07/03/well/wildfire-smoke-health-effects.html
+
 **Six Days Shook Biden’s Candidacy. Can He Turn It Around?**\
 `I said this election wouldn’t be boring, but I didn’t think it would turn upside down so fast.`\
 https://nytimes.com/2024/07/03/us/politics/biden-trump-2024-presidential-debate-immunity.html
