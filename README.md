@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5615357/2024/07/03/nhl-contract-grades-vladimir-tar
 https://nytimes.com/athletic/5615303/2024/07/03/scouting-aidan-miller-termarr-johnson-keith-law/
 
 **Nearly All Democratic Governors Plan to Attend Biden Meeting**\
-`Gavin Newsom, Gretchen Whitmer and Andy Beshear will be among those attending in person. At least half a dozen governors will be joining remotely.`\
+`Gavin Newsom, Gretchen Whitmer and Andy Beshear will be among those attending Wednesday’s meeting in person. At least half a dozen governors will be joining remotely.`\
 https://nytimes.com/2024/07/03/us/politics/nearly-all-democratic-governors-plan-to-attend-biden-meeting.html
 
 **You Tested Positive for Covid. Can You Still Travel?**\
