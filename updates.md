@@ -1,3 +1,7 @@
+**The Best Beach Umbrella Is Not Actually an Umbrella**\
+`It's a sunshade.`\
+https://nytimes.com/interactive/2024/07/03/smarter-living/wirecutter/sun-shade.html
+
 **Why It’s So Hard to Walk Away From Power**\
 `There’s a name for the dilemma that Joe Biden finds himself in. `\
 https://nytimes.com/2024/07/03/opinion/joe-biden-president-election.html
