@@ -1,3 +1,7 @@
+**You See a Hedge. He Sees Something Else.**\
+`Tim Bushe decided to shape the hedges in his London neighborhood into a menagerie. They’ve become a local attraction.`\
+https://nytimes.com/2024/07/03/world/europe/london-hedge-animals-art.html
+
 **Euro 2024 quarter-finals preview: Ronaldo faces Mbappe as England meet Switzerland - Tips and Tricks**\
 `Here, we look at the data to get a better idea of who will be taking one step closer to the trophy`\
 https://nytimes.com/athletic/5610808/2024/07/03/euro-2024-quarter-finals-preview-ronaldo-faces-mbappe-as-england-meet-switzerland-tips-and-tricks/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/03/well/health-wellness-trends-2024.html
 **Biden’s Team Scrambles to Contain First Democratic Defections**\
 `Leading Democrats have lent legitimacy to questions about the president’s mental acuity, and made clear that the matter of his stepping aside is far from settled.`\
 https://nytimes.com/2024/07/03/us/politics/biden-campaign-democrats.html
-
-**On Abortion, the Supreme Court Purported to Say Nothing but Spoke Volumes About Itself**\
-`The court dismisses an abortion case it now says it should never have accepted, opening a window on internal tensions.`\
-https://nytimes.com/2024/07/03/opinion/abortion-supreme-court.html
 
