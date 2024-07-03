@@ -1,3 +1,7 @@
+**Turkey and the positivity of pressure: Montella's team are riding an emotional wave at Euro 2024**\
+`Turkey's coach has endured intense scrutiny in his role but has succeeded in propelling a young, thrilling side into the quarter-finals`\
+https://nytimes.com/athletic/5612595/2024/07/03/turkey-montella-austria-leipzig-guler/
+
 **With calm felt from dugout to stands, Michael Mercado stays composed in first big-league start**\
 `"Being on such a great team and them having that kind of confidence in you is so big," Mercado said after the Phillies beat the Cubs 6-4.`\
 https://nytimes.com/athletic/5613353/2024/07/03/phillies-michael-mercado-first-big-league-start/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/03/dining/chestnut-kobayashi-competitive-eaters.html
 **Britain’s Next Prime Minister Has Shown Us Who He Is, and It’s Not Good**\
 `Keir Starmer is set to carry a deeply authoritarian impulse into government.`\
 https://nytimes.com/2024/07/03/opinion/britain-election-keir-starmer.html
-
-**Phillies show Cubs what paying for star talent can do**\
-`The Cubs fell short again in the battle of "intelligent spending" (Chicago) vs. a team dishing out "stupid" money (Philadelphia).`\
-https://nytimes.com/athletic/5613243/2024/07/03/cubs-lose-to-phillies/
 
