@@ -1,3 +1,7 @@
+**How Yankees, Luis Gil are explaining shocking slump**\
+`“It's tough,” Gil said, “but there's no giving up. That's what it is. You keep battling. You keep fighting, and then you turn it around.”`\
+https://nytimes.com/athletic/5613249/2024/07/03/yankees-luis-gil-slump-explanation/
+
 **China Seizes Taiwanese Fishing Boat in Latest Uptick in Tensions**\
 `The authorities in Taipei have demanded Beijing release the boat and its five crew members, who are being held in custody.`\
 https://nytimes.com/2024/07/03/world/asia/china-taiwan-boat.html
