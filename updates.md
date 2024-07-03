@@ -1,3 +1,7 @@
+**Why It’s So Hard to Walk Away From Power**\
+`There’s a name for the dilemma that Joe Biden finds himself in. `\
+https://nytimes.com/2024/07/03/opinion/joe-biden-president-election.html
+
 **Biden tells campaign staff: ‘I’m in this race to the end.’**\
 `By Lisa Lerer and Nicholas Nehamas`\
 https://nytimes.com/live/2024/07/03/us/biden-trump-election/biden-tells-campaign-staff-im-in-this-race-to-the-end
