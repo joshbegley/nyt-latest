@@ -1,3 +1,7 @@
+**James Rodriguez is lighting up Copa America and at the heart of Colombia's incredible run**\
+`Colombia are now 26 games unbeaten and head into their Copa America quarter-final with Panama as strong favourites to make it 27`\
+https://nytimes.com/athletic/5613462/2024/07/03/james-rodriguez-colombia-copa-america-2/
+
 **Bayern Munich agree transfer deal to sign Fulham midfielder Joao Palhina**\
 `Bayern Munich have reached an agreement worth €51million (£43.`\
 https://nytimes.com/athletic/5613937/2024/07/03/joao-palhinha-fulham-bayern-munich-transfer/
