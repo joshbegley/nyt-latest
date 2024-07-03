@@ -1,3 +1,15 @@
+**Lautaro Martinez almost always has the last laugh**\
+`After playing a supporting role at the last World Cup, the Argentina striker has been his country's main man at Copa America`\
+https://nytimes.com/athletic/5610654/2024/07/03/lautaro-martinez-argentina-inter-copa-america/
+
+**Gregg Berhalter rebuilt the USMNT. Will he be the one to lead the team in 2026?**\
+`The biggest question is who U.S. Soccer would look to if they were to replace Berhalter`\
+https://nytimes.com/athletic/5613241/2024/07/03/gregg-berhalter-usmnt-2026-world-cup/
+
+**With calm felt from dugout to stands, Michael Mercado stays composed in first MLB start**\
+`"Being on such a great team and them having that kind of confidence in you is so big," Mercado said after the Phillies beat the Cubs 6-4.`\
+https://nytimes.com/athletic/5613353/2024/07/03/phillies-michael-mercado-first-big-league-start/
+
 **Answering 30 MLB trade deadline questions with a month to go and so many possibilities**\
 `What will — and won't — the top teams do? What about some of the clubs in wild-card hunt? And who is the biggest prospect who will be dealt?`\
 https://nytimes.com/athletic/5613210/2024/07/03/mlb-trade-deadline-scenarios-questions-answers-july-30/

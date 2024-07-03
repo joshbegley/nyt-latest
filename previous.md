@@ -1,3 +1,15 @@
+**Lautaro Martinez almost always has the last laugh**\
+`After playing a supporting role at the last World Cup, the Argentina striker has been his country's main man at Copa America`\
+https://nytimes.com/athletic/5610654/2024/07/03/lautaro-martinez-argentina-inter-copa-america/
+
+**Gregg Berhalter rebuilt the USMNT. Will he be the one to lead the team in 2026?**\
+`The biggest question is who U.S. Soccer would look to if they were to replace Berhalter`\
+https://nytimes.com/athletic/5613241/2024/07/03/gregg-berhalter-usmnt-2026-world-cup/
+
+**With calm felt from dugout to stands, Michael Mercado stays composed in first MLB start**\
+`"Being on such a great team and them having that kind of confidence in you is so big," Mercado said after the Phillies beat the Cubs 6-4.`\
+https://nytimes.com/athletic/5613353/2024/07/03/phillies-michael-mercado-first-big-league-start/
+
 **Answering 30 MLB trade deadline questions with a month to go and so many possibilities**\
 `What will — and won't — the top teams do? What about some of the clubs in wild-card hunt? And who is the biggest prospect who will be dealt?`\
 https://nytimes.com/athletic/5613210/2024/07/03/mlb-trade-deadline-scenarios-questions-answers-july-30/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5608781/2024/07/03/paul-george-sixers-nba-free-agen
 **How LeBron's impending deal relates to over-38 rule, second apron**\
 `James is in line for a max contract that could potentially push the Lakers up against the dreaded second apron.`\
 https://nytimes.com/athletic/5613259/2024/07/03/lebron-james-contract-over-38-second-apron/
-
-**The American Journalist on Trial in Russia**\
-`Evan Gershkovich, a Wall Street Journal reporter, has been accused of espionage. The newspaper and U.S. officials have rejected the claims.`\
-https://nytimes.com/2024/07/03/podcasts/the-daily/gershkovich-russia-trial.html
-
-**A Look at Biden’s Lapses, and a Holdup in Trump’s Sentencing**\
-`Plus, millions aren’t paying student loans.`\
-https://nytimes.com/2024/07/03/podcasts/biden-trump-sentencing.html
-
-**2024 fantasy football breakout tight ends: Dalton Kincaid, Tyler Conklin and more**\
-`Jake Ciely surveys the fantasy football landscape, highlighting the under-the-radar tight ends who could be surprising breakouts in 2024.`\
-https://nytimes.com/athletic/5613093/2024/07/03/2024-fantasy-football-breakout-tight-ends-dalton-kincaid-tyler-conklin-and-more/
 
