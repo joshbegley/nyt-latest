@@ -1,3 +1,11 @@
+**How Would the Restaurant in ‘The Bear’ Work in Real Life?**\
+`The show is praised for its gritty realism, and some of the details are spot-on. Others, not so much, according to food insiders.`\
+https://nytimes.com/2024/07/03/dining/the-bear-season-3-restaurant.html
+
+**If Biden Doesn’t Run, Nominate …**\
+`Readers’ suggestions include Kamala Harris, Cory Booker, Chuck Schumer, Joe Manchin, Al Gore and Andy Beshear.`\
+https://nytimes.com/2024/07/03/opinion/letters/joe-biden-alternative-candidates.html
+
 **Qatar sent a new suggested cease-fire proposal to Hamas last week, officials say.**\
 `By Ronen Bergman and Aaron Boxerman`\
 https://nytimes.com/live/2024/07/03/world/israel-gaza-war-hamas/qatar-sent-a-new-suggested-cease-fire-proposal-to-hamas-last-week-officials-say
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5614531/2024/07/03/man-united-avram-glazer-angel-ci
 **Repeated evacuation orders take a toll on already weakened Gazans.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/07/03/world/israel-gaza-war-hamas/repeated-evacuation-orders-take-a-toll-on-already-weakened-gazans
-
-**V. Craig Jordan, Who Discovered a Key Breast Cancer Drug, Dies at 76**\
-`He found that a failed contraceptive, tamoxifen, could block the growth of cancer cells, opening up a whole new class of treatment.`\
-https://nytimes.com/2024/07/03/science/v-craig-jordan-dead.html
-
-**Biden’s day: A meeting with Democratic governors and awarding the Medal of Honor.**\
-`By Michael D. Shear`\
-https://nytimes.com/live/2024/07/03/us/biden-trump-election/bidens-day-a-meeting-with-democratic-governors-and-awarding-the-medal-of-honor
 
