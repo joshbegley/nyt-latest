@@ -1,3 +1,7 @@
+**Wimbledon day 3: All eyes on Emma Navarro? Can Coco Gauff hit 130mph?**\
+`On day 3 of Wimbledon 2024, Emma Navarro rose,Tomas Machac pulled off a stunning five-set comeback, and Daniil Medvedev lost his bearing`\
+https://nytimes.com/athletic/5614874/2024/07/03/wimbledon-recap-day-3-navarro-osaka-gauff/
+
 **An anxious Caribbean community in New York monitors Beryl’s path.**\
 `By Alyce McFadden and Nate Schweber`\
 https://nytimes.com/live/2024/07/03/weather/hurricane-beryl/an-anxious-caribbean-community-in-new-york-monitors-beryls-path
