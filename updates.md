@@ -1,3 +1,11 @@
+**With calm felt from dugout to stands, Michael Mercado stays composed in first big-league start**\
+`"Being on such a great team and them having that kind of confidence in you is so big," Mercado said after the Phillies beat the Cubs 6-4.`\
+https://nytimes.com/athletic/5613353/2024/07/03/phillies-michael-mercado-first-big-league-start/
+
+**The chaos of Austria vs Turkey: part Bundesliga, part South America, part lower-league**\
+`Turkey are through to the quarter-finals after an exciting win over Austria which had a bit of everything`\
+https://nytimes.com/athletic/5612728/2024/07/03/austria-turkey-tactics/
+
 **How China and Russia Compete, and Cooperate, in Central Asia**\
 `China’s leader, Xi Jinping, and President Vladimir V. Putin of Russia are courting regional leaders and pushing an alternative to the U.S.-led order.`\
 https://nytimes.com/2024/07/03/world/asia/china-russia-central-asia.html
