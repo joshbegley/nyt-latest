@@ -30,7 +30,7 @@ https://nytimes.com/2024/07/03/us/politics/heritage-foundation-2025-policy-ameri
 `A temporary halt on inspections by U.S.D.A. workers in Mexico on safety concerns highlighted how dependent the United States had become on one region for supplies of the popular fruit.`\
 https://nytimes.com/2024/07/03/business/avocado-imports-mexico.html
 
-**Business Leaders Call on Biden to Step Aside**\
+**A Group of Business Leaders Call on Biden to Step Aside**\
 `As Democratic donors increasingly warm to a change, a coalition of politically active executives is among the first to publicly speak out.`\
 https://nytimes.com/2024/07/03/us/politics/business-leaders-biden.html
 
