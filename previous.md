@@ -1,3 +1,7 @@
+**China Seizes Taiwanese Fishing Boat in Latest Uptick in Tensions**\
+`The authorities in Taipei have demanded Beijing release the boat and its five crew members, who are being held in custody.`\
+https://nytimes.com/2024/07/03/world/asia/china-taiwan-boat.html
+
 **Aaron Cresswell's decade at West Ham: Broken noses, dedication and 'legendary' status**\
 `The left-back signed for West Ham for a £3.75m bargain 10 years ago today - coaches and team-mates tell The Athletic of his lasting legacy`\
 https://nytimes.com/athletic/5536994/2024/07/03/aaron-cresswell-west-ham-decade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5611208/2024/07/03/fabian-hurzeler-brighton-expecta
 **Spencer Arrighetti's struggles heighten Astros' need for rotation help**\
 `“The league adjusts really fast,” Arrighetti said, “and I need to adjust at the same rate.”`\
 https://nytimes.com/athletic/5613218/2024/07/03/spencer-arrighetti-astros-rotation-help/
-
-**Political football: How soccer has shaped the UK general election**\
-`Politicians want to connect with voters through football more than ever - but it is fraught with danger`\
-https://nytimes.com/athletic/5605430/2024/07/03/uk-general-election-football/
 

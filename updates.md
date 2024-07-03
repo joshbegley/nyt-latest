@@ -1,3 +1,7 @@
+**China Seizes Taiwanese Fishing Boat in Latest Uptick in Tensions**\
+`The authorities in Taipei have demanded Beijing release the boat and its five crew members, who are being held in custody.`\
+https://nytimes.com/2024/07/03/world/asia/china-taiwan-boat.html
+
 **Aaron Cresswell's decade at West Ham: Broken noses, dedication and 'legendary' status**\
 `The left-back signed for West Ham for a £3.75m bargain 10 years ago today - coaches and team-mates tell The Athletic of his lasting legacy`\
 https://nytimes.com/athletic/5536994/2024/07/03/aaron-cresswell-west-ham-decade/
