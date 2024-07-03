@@ -1,3 +1,11 @@
+**Scouting Phillies, Pirates, Orioles and Rangers prospects, including Aidan Miller**\
+`Notes from recent scouting trips to see Jersey Shore, Greensboro, Down East and Delmarva.`\
+https://nytimes.com/athletic/5615303/2024/07/03/scouting-aidan-miller-termarr-johnson-keith-law/
+
+**Nearly All Democratic Governors Plan to Attend Biden Meeting**\
+`Gavin Newsom, Gretchen Whitmer and Andy Beshear will be among those attending in person. At least half a dozen governors will be joining remotely.`\
+https://nytimes.com/2024/07/03/us/politics/nearly-all-democratic-governors-plan-to-attend-biden-meeting.html
+
 **You Tested Positive for Covid. Can You Still Travel?**\
 `With coronavirus cases on the rise, summer travelers are once again facing difficult questions. Here’s the latest travel guidance from health experts.`\
 https://nytimes.com/2024/07/03/travel/covid-positive-travel.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5615362/2024/07/03/vladimir-tarasenko-red-wings-con
 **Netflix Co-founder Becomes One of the Biggest Democratic Donors to Call for Biden to Step Aside**\
 `A public declaration from a megadonor is another crack in the armor in the president’s foundation of support.`\
 https://nytimes.com/2024/07/03/us/politics/hastings-donors-biden.html
-
-**Raúl Grijalva Is Second House Democrat to Call for Biden to Drop Out**\
-`His remarks came a day after Representative Lloyd Doggett, a Texas Democrat, became the first member of his party in the House to call on Mr. Biden to withdraw.`\
-https://nytimes.com/2024/07/03/us/politics/raul-grijalva-biden-drop-out.html
-
-**Democrats’ Anxiety on Display as Jill Biden Opens Michigan Campaign Office**\
-`The first lady said President Biden would press ahead despite concerns about his acuity. Some Democrats said they wished he wouldn’t.`\
-https://nytimes.com/2024/07/03/us/jill-biden-michigan-campaign-office.html
 
