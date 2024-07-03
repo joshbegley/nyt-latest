@@ -1,3 +1,7 @@
+**LeBron James to sign 2-year, $104 million max deal with Lakers**\
+`Due to an NBA salary-cap quirk known as the “over-38 rule,” Los Angeles is unable to offer James a contract for more than three years.`\
+https://nytimes.com/athletic/5614079/2024/07/03/lebron-james-contract-lakers-max-deal/
+
 **The Athletic FC: Gunok's save of the Euros, Brazil stall in Copa, and who throws a show?**\
 `The Athletic FC  is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox`\
 https://nytimes.com/athletic/5613849/2024/07/03/the-athletic-fc-gunok-save-brazil-colombia-result/

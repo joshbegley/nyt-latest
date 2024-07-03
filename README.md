@@ -1,3 +1,7 @@
+**Oliver and Taylor to referee Euro 2024 quarter-final ties**\
+`Premier League referees Anthony Taylor and Michael Oliver have both been handed a quarter-final tie at the European Championship on Friday.`\
+https://nytimes.com/athletic/5614101/2024/07/03/michael-oliver-anthony-taylor-euro-2024/
+
 **LeBron James to sign 2-year, $104 million max deal with Lakers**\
 `Due to an NBA salary-cap quirk known as the “over-38 rule,” Los Angeles is unable to offer James a contract for more than three years.`\
 https://nytimes.com/athletic/5614079/2024/07/03/lebron-james-contract-lakers-max-deal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5611921/2024/07/03/england-set-pieces-euro-2014-mag
 **Bayern Munich agree transfer deal to sign Fulham midfielder Joao Palhinha**\
 `Bayern Munich have reached an agreement worth €51million (£43.`\
 https://nytimes.com/athletic/5613937/2024/07/03/joao-palhinha-fulham-bayern-munich-transfer/
-
-**Why Klay Thompson chose the Mavericks over the Lakers and put the Warriors in his past**\
-`Thompson felt wanted by the Mavs — and saw a chance to win his fifth title.`\
-https://nytimes.com/athletic/5613541/2024/07/03/klay-thompson-dallas-mavericks-lakers-free-agency/
 
