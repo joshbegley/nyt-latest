@@ -1,3 +1,15 @@
+**Germany's Euro 2024 aspirations and the puzzle of Kai Havertz**\
+`Plenty of Germany's players are becoming heroes as they advance at the Euros. But it's different with Havertz. And we've seen this before...`\
+https://nytimes.com/athletic/5610776/2024/07/03/kai-havertz-germany-nagelsmann-tactics-euro-2024/
+
+**How PSR deadline impacted June deals: £323m of sales, question marks and young players on move**\
+`The PSR deadline changed the nature of transfer business during June — this is what happened`\
+https://nytimes.com/athletic/5611939/2024/07/03/psr-transfer-chelsea-aston-villa-newcastle/
+
+**Why are so many of the coaches at Copa America from Argentina?**\
+`At this summer’s Copa America, seven of the 16 participating nations will be led by Argentine coaches – and it's not a one-off`\
+https://nytimes.com/athletic/5562810/2024/07/02/copa-america-argentine-managers/
+
 **Wednesday's MLB game odds, betting projections: Moneyline, playoff odds, best pitchers**\
 `Projections for Wednesday's MLB game with value picks, best bets, pitcher props, home run trends, weather and more.`\
 https://nytimes.com/athletic/5611521/2024/07/03/mlb-odds-predictions-best-bets-july-3/
