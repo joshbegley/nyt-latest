@@ -1,3 +1,11 @@
+**What Is a Sundress?**\
+`A heated discussion about one of the summer's most ubiquitous garments grapples with questions of femininity, tradition and sexuality. Weigh in on the debate.`\
+https://nytimes.com/interactive/2024/07/03/style/sundress-quiz-summer-dress.html
+
+**In South Florida, Caribbean diaspora worry about family and friends.**\
+`By Audra D. S. Burch`\
+https://nytimes.com/live/2024/07/03/weather/hurricane-beryl/in-south-florida-caribbean-diaspora-worry-about-family-and-friends
+
 **One Million Checkboxes Is Exactly What It Sounds Like**\
 `The most “useless” website you can imagine has become a hit — and an unintentional case study in internet behavior.`\
 https://nytimes.com/2024/07/03/style/one-million-checkboxes-game.html

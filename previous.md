@@ -1,3 +1,11 @@
+**What Is a Sundress?**\
+`A heated discussion about one of the summer's most ubiquitous garments grapples with questions of femininity, tradition and sexuality. Weigh in on the debate.`\
+https://nytimes.com/interactive/2024/07/03/style/sundress-quiz-summer-dress.html
+
+**In South Florida, Caribbean diaspora worry about family and friends.**\
+`By Audra D. S. Burch`\
+https://nytimes.com/live/2024/07/03/weather/hurricane-beryl/in-south-florida-caribbean-diaspora-worry-about-family-and-friends
+
 **One Million Checkboxes Is Exactly What It Sounds Like**\
 `The most “useless” website you can imagine has become a hit — and an unintentional case study in internet behavior.`\
 https://nytimes.com/2024/07/03/style/one-million-checkboxes-game.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5614595/2024/07/03/usmnt-mailbag-copa-america/
 **The destruction on Carriacou and Petite Martinique islands captured in satellite images.**\
 `By Lynsey Chutel`\
 https://nytimes.com/live/2024/07/03/weather/hurricane-beryl/the-destruction-on-carriacou-and-petite-martinique-islands-captured-in-satellite-images
-
-**Democrats’ leaders in Congress are not urging them to rally around Biden.**\
-`By Luke Broadwater and Maya C. Miller`\
-https://nytimes.com/live/2024/07/03/us/biden-trump-election/democrats-leaders-in-congress-are-not-urging-them-to-rally-around-biden
-
-**Nikki Hiltz, transgender, nonbinary runner, qualifies for Olympics**\
-`Hiltz, who identifies as transgender and nonbinary, earned a ticket to Paris with a meet-record run in the women's 1500-meter final.`\
-https://nytimes.com/athletic/5614255/2024/07/03/nikki-hiltz-transgender-nonbinary-runner-olympics/
 
