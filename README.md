@@ -1,9 +1,21 @@
+**Toplines: July 2024 Times/Siena Poll of Registered Voters Nationwide**\
+`Results of a nationwide New York Times/Siena College poll conducted among 1,532 registered voters from June 28 to July 2, 2024.`\
+https://nytimes.com/interactive/2024/07/03/us/elections/times-siena-poll-toplines.html
+
+**Cross-Tabs: July 2024 Times/Siena Poll of Registered Voters Nationwide**\
+`Results of a nationwide New York Times/Siena College poll conducted among 1,532 registered voters from June 28 to July 2, 2024.`\
+https://nytimes.com/interactive/2024/07/03/us/elections/times-siena-poll-registered-voter-crosstabs.html
+
+**Cross-Tabs: July 2024 Times/Siena Poll of the Likely Electorate**\
+`Results of a nationwide New York Times/Siena College poll conducted among 1,532 likely voters from June 28 to July 2, 2024.`\
+https://nytimes.com/interactive/2024/07/03/us/elections/times-siena-poll-likely-electorate-crosstabs.html
+
 **How A Fractured Supreme Court Ruled this Term**\
 `The Supreme Court has had a volatile term, taking on a stunning array of major disputes and assuming a commanding role in shaping American society and democracy.`\
 https://nytimes.com/video/us/politics/100000009551558/how-a-fractured-supreme-court-ruled-this-term.html
 
-**‘A Roller Coaster Inside a Carwash’: What It’s Like Riding Into Hurricane Beryl**\
-`Researchers are flying through the storm to gather data that can help emergency managers prepare for what’s to come.`\
+**‘A Roller Coaster in a Carwash’: Why Scientists Are Flying Into Hurricane Beryl**\
+`Gathering data from directly inside the storm can help emergency managers prepare for what’s to come.`\
 https://nytimes.com/2024/07/03/climate/hurricane-beryl-wind-speeds.html
 
 **Biden spoke with Schumer for the first time since the debate.**\
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2024/07/03/style/sundress-quiz-summer-dress.html
 **In South Florida, Caribbean diaspora worry about family and friends.**\
 `By Audra D. S. Burch`\
 https://nytimes.com/live/2024/07/03/weather/hurricane-beryl/in-south-florida-caribbean-diaspora-worry-about-family-and-friends
-
-**One Million Checkboxes Is Exactly What It Sounds Like**\
-`The most “useless” website you can imagine has become a hit — and an unintentional case study in internet behavior.`\
-https://nytimes.com/2024/07/03/style/one-million-checkboxes-game.html
-
-**Biden Campaign Memos Show Efforts to Calm Concerns**\
-`A pair of memos highlighted internal polling that showed a close race and strong fund-raising in an attempt to quiet fears about President Biden’s candidacy.`\
-https://nytimes.com/2024/07/03/us/politics/biden-2024-campaign-memos.html
-
-**Miley to miss start of season with foot injury**\
-`Newcastle United midfielder Lewis Miley will miss the beginning of the season after suffering a foot injury that could rule him out until the start of October.`\
-https://nytimes.com/athletic/5614761/2024/07/03/lewis-miley-newcastle-foot-injury/
 
