@@ -1,3 +1,7 @@
+**The Best Beach Umbrella Is Not Actually an Umbrella**\
+`It's a sunshade.`\
+https://nytimes.com/interactive/2024/07/03/smarter-living/wirecutter/sun-shade.html
+
 **Why It’s So Hard to Walk Away From Power**\
 `There’s a name for the dilemma that Joe Biden finds himself in. `\
 https://nytimes.com/2024/07/03/opinion/joe-biden-president-election.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5614630/2024/07/03/manchester-united-job-cuts-250-e
 **‘The Bear’ Gets a Glow Up. Is That a Good Thing?**\
 `Styles staffers talk about the show’s turn to fine dining and its flashy cameos.`\
 https://nytimes.com/2024/07/03/style/the-bear-glow-up.html
-
-**What’s in Our Queue? ‘One Day’ and More**\
-`I’m a national political reporter covering the presidential election. Here are five things I’ve recently delighted in seeing, hearing and watching.`\
-https://nytimes.com/interactive/2024/07/03/arts/editors-recommendations-oneday.html
 
