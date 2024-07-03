@@ -1,3 +1,7 @@
+**‘Seven Samurai’: Masterless Warriors in a Cinematic Masterpiece**\
+`Akira Kurosawa’s epic has always been known for its action-film artistry, but there is emotional heft and nuance as well.`\
+https://nytimes.com/2024/07/03/movies/seven-samurai.html
+
 **Audrey Flack, Creator of Vibrant Photorealist Art, Dies at 93**\
 `She painted and sculpted, but she was best known for her oversized still lifes, painted from photographs and crowded with color and detail.`\
 https://nytimes.com/2024/07/03/arts/audrey-flack-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5615147/2024/07/03/jontay-porter-charged-nba-bettin
 **'Better tennis is ahead of me': Is Frances Tiafoe coming alive again?**\
 `Frances Tiafoe made the US Open his living room in 2022 before falling to Carlos Alcaraz. After two rough years, he faces him again`\
 https://nytimes.com/athletic/5614943/2024/07/03/frances-tiafoe-form-carlos-alcaraz-wimbledon/
-
-**Cruise lines alter itineraries as they monitor Beryl.**\
-`monitor Beryl.`\
-https://nytimes.com/live/2024/07/03/weather/hurricane-beryl/cruise-lines-alter-itineraries-as-they-monitor-beryl
 

@@ -1,3 +1,7 @@
+**‘Seven Samurai’: Masterless Warriors in a Cinematic Masterpiece**\
+`Akira Kurosawa’s epic has always been known for its action-film artistry, but there is emotional heft and nuance as well.`\
+https://nytimes.com/2024/07/03/movies/seven-samurai.html
+
 **Audrey Flack, Creator of Vibrant Photorealist Art, Dies at 93**\
 `She painted and sculpted, but she was best known for her oversized still lifes, painted from photographs and crowded with color and detail.`\
 https://nytimes.com/2024/07/03/arts/audrey-flack-dead.html
