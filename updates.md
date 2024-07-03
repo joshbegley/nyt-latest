@@ -1,3 +1,7 @@
+**Stefano Pioli to be appointed Al Ittihad head coach after Milan exit**\
+`Saudi Arabian club Al Ittihad are set to appoint Stefano Pioli as their new head coach on a three-year contract.`\
+https://nytimes.com/athletic/5613649/2024/07/03/stefano-pioli-head-coach-al-ittihad/
+
 **St. Louis Cardinals mailbag Part 2: Early trade deadline talks on pitching, outfield help**\
 `Would the Cardinals trade Paul Goldschmidt? Would they rather add a starter or a reliever? We have the answers as the trade deadline nears.`\
 https://nytimes.com/athletic/5612418/2024/07/03/cardinals-trade-deadline-pitching-outfield/
