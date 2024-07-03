@@ -6,13 +6,13 @@ https://nytimes.com/athletic/5613223/2024/07/02/twins-royce-lewis-groin-tightnes
 `Trades could bring in young players from the outside, but for now, the Blue Jays are seeing what kids in their own system can do.`\
 https://nytimes.com/athletic/5613131/2024/07/02/blue-jays-leo-jimenez-youth-movement/
 
-**Vinicius Jr suspended for Brazil's Copa America quarterfinal**\
-`Vinicius Junior will be suspended for Brazil&#8217;s Copa America quarterfinal against Uruguay.`\
-https://nytimes.com/athletic/5613034/2024/07/02/vinicius-junior-ban-brazil-copa-america/
-
 **Brazil 1-1 Colombia: Takeaways from Vini Jr.'s costly yellow and James' brilliant form**\
 `Two of Copa America's best went head to head and didn't disappoint `\
 https://nytimes.com/athletic/5612988/2024/07/02/brazil-colombia-copa-america-takeaways/
+
+**Vinicius Jr suspended for Brazil's Copa America quarterfinal**\
+`Vinicius Junior will be suspended for Brazil&#8217;s Copa America quarterfinal against Uruguay.`\
+https://nytimes.com/athletic/5613034/2024/07/02/vinicius-junior-ban-brazil-copa-america/
 
 **Giants 'Hard Knocks' takeaways: Exploring a Saquon Barkley trade and 'not giving up' on Daniel Jones**\
 `The Giants explored all scenarios involving Barkley, including using the franchise tag on him and then trading the star RB. `\
