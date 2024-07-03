@@ -1,3 +1,7 @@
+**Two Vulnerable House Democrats Say Biden Will Lose Against Trump**\
+`Representatives Jared Golden and Marie Gluesenkamp Perez, who are in tough re-election battles, added to widespread pessimism among Democrats about the election in November.`\
+https://nytimes.com/2024/07/02/us/politics/golden-gluesenkamp-perez-biden-nominee.html
+
 **Howard Eskin barred from Citizens Bank Park**\
 `Aramark confirmed in a statement Tuesday that one of its employees was "subjected to an unwanted kiss by an Audacy employee."`\
 https://nytimes.com/athletic/5612918/2024/07/02/howard-eskin-citizens-bank-park-barred-unwanted-advance/

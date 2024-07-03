@@ -1,3 +1,7 @@
+**Two Vulnerable House Democrats Say Biden Will Lose Against Trump**\
+`Representatives Jared Golden and Marie Gluesenkamp Perez, who are in tough re-election battles, added to widespread pessimism among Democrats about the election in November.`\
+https://nytimes.com/2024/07/02/us/politics/golden-gluesenkamp-perez-biden-nominee.html
+
 **Howard Eskin barred from Citizens Bank Park**\
 `Aramark confirmed in a statement Tuesday that one of its employees was "subjected to an unwanted kiss by an Audacy employee."`\
 https://nytimes.com/athletic/5612918/2024/07/02/howard-eskin-citizens-bank-park-barred-unwanted-advance/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/02/us/biden-trump-election/andy-beshear-biden-d
 **Euro 2024 quarterfinal, champion odds: England still favored after narrow escape**\
 `Even after another uninspiring showing against Slovakia, England is still the favorite to win Euro 2024 with Spain, France and Germany next.`\
 https://nytimes.com/athletic/5612331/2024/07/02/euro-2024-quarterfinal-odds-england-spain-germany-france/
-
-**Acknowledging Debate Debacle, Biden Says He ‘Fell Asleep on the Stage’**\
-`President Biden blamed his international travel schedule for his disjointed performance, calling it “not an excuse but an explanation.”`\
-https://nytimes.com/2024/07/02/us/politics/biden-debate.html
 
