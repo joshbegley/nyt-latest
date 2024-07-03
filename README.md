@@ -1,3 +1,23 @@
+**James Rodriguez is lighting up Copa America and at the heart of Colombia's incredible run**\
+`Colombia are now 26 games unbeaten, and head into their Copa America quarter-final with Panama as strong favourites to extend that`\
+https://nytimes.com/athletic/5613462/2024/07/03/james-rodriguez-colombia-copa-america-2/
+
+**Andy Murray and Emma Raducanu to play Wimbledon mixed doubles**\
+`Andy Murray will play the Wimbledon mixed doubles event with Emma Raducanu.`\
+https://nytimes.com/athletic/5613864/2024/07/03/andy-murray-emma-raducanu-mixed-doubles-wimbledon/
+
+**Iliman Ndiaye to Everton: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Iliman Ndiaye's move to Everton`\
+https://nytimes.com/athletic/5587652/2024/07/03/iliman-ndiaye-to-everton-transfer-rating/
+
+**Everton confirm Ndiaye signing from Marseille**\
+`Everton have completed the signing of Iliman Ndiaye from Marseille on a five-year contract through to 2029.`\
+https://nytimes.com/athletic/5606198/2024/07/03/iliman-ndiaye-everton-signing/
+
+**Two-sport athlete Brody Brecht traded football for a shot at MLB stardom**\
+`Brody Brecht lived one dream as a two-sport athlete at Iowa. Now he's about to live another in professional baseball.`\
+https://nytimes.com/athletic/5606772/2024/07/03/brody-brecht-mlb-draft-iowa-football-baseball/
+
 **Maxx Crosby and Raiders' defensive line continues its push to be among NFL's best**\
 `Seven Raiders, including Crosby, Malcolm Koonce and Tyree Wilson, attended the Sack Summit over the weekend to learn from the league's best.`\
 https://nytimes.com/athletic/5609958/2024/07/03/raiders-maxx-crosby-sack-summit/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5612567/2024/07/03/klay-thompson-warriors-mavericks
 **U.S. Allies See a Worrisome Turn in Presidential Immunity Ruling**\
 `Legal experts say the U.S. Supreme Court ruling pushes past most of the norms in effect among American allies, adding more concern about the reliability of U.S. power.`\
 https://nytimes.com/2024/07/03/world/asia/supreme-court-immunity-allies.html
-
-**The British Election**\
-`While electorates in other countries are shifting to the right, British voters are expected to elect a party on the center-left.`\
-https://nytimes.com/2024/07/03/briefing/british-election-conservatives-labour.html
-
-**Lautaro Martinez almost always has the last laugh**\
-`After playing a supporting role at the last World Cup, the Argentina striker has been his country's main man at Copa America`\
-https://nytimes.com/athletic/5610654/2024/07/03/lautaro-martinez-argentina-inter-copa-america/
-
-**Gregg Berhalter rebuilt the USMNT. Will he be the one to lead the team in 2026?**\
-`The biggest question is who U.S. Soccer would look to if they were to replace Berhalter`\
-https://nytimes.com/athletic/5613241/2024/07/03/gregg-berhalter-usmnt-2026-world-cup/
-
-**With calm felt from dugout to stands, Michael Mercado stays composed in first MLB start**\
-`"Being on such a great team and them having that kind of confidence in you is so big," Mercado said after the Phillies beat the Cubs 6-4.`\
-https://nytimes.com/athletic/5613353/2024/07/03/phillies-michael-mercado-first-big-league-start/
-
-**Answering 30 MLB trade deadline questions with a month to go and so many possibilities**\
-`What will — and won't — the top teams do? What about some of the clubs in wild-card hunt? And who is the biggest prospect who will be dealt?`\
-https://nytimes.com/athletic/5613210/2024/07/03/mlb-trade-deadline-scenarios-questions-answers-july-30/
 
