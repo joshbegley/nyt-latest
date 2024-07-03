@@ -1,3 +1,7 @@
+**Former San Diego Wave employee alleges poor work environment under Ellis**\
+`The former employee also alleges discrimination by the Wave. `\
+https://nytimes.com/athletic/5615225/2024/07/03/san-diego-wave-jill-ellis-allegations/
+
 **Wimbledon day 3: All eyes on Emma Navarro? Can Coco Gauff hit 130mph?**\
 `On day 3 of Wimbledon 2024, Emma Navarro rose,Tomas Machac pulled off a stunning five-set comeback, and Daniil Medvedev lost his bearing`\
 https://nytimes.com/athletic/5614874/2024/07/03/wimbledon-recap-day-3-navarro-osaka-gauff/
