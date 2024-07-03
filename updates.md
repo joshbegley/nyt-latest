@@ -1,3 +1,19 @@
+**You Tested Positive for Covid. Can You Still Travel?**\
+`With coronavirus cases on the rise, summer travelers are once again facing difficult questions. Here’s the latest travel guidance from health experts.`\
+https://nytimes.com/2024/07/03/travel/covid-positive-travel.html
+
+**Biden Insists He Will Stay in the Race**\
+`Also, Hurricane Beryl caused floods in Jamaica. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/07/03/briefing/biden-campaign-doubts-hurricane-beryl.html
+
+**America’s Virulent Anti-Vaccine Lies**\
+`We’re seeing what a modern disinformation operation run by the U.S. looks like. It’s not pretty.`\
+https://nytimes.com/2024/07/03/opinion/america-antivax-china-philippines.html
+
+**French Director Benoît Jacquot Is Charged With Rape**\
+`Mr. Jacquot, 77, was accused of assaulting two actresses and barred from working with minors. He has denied any wrongdoing.`\
+https://nytimes.com/2024/07/03/movies/benoit-jacquot-rape-charges.html
+
 **Messi to be assessed ahead of Argentina's clash vs Ecuador**\
 `Argentina head coach Lionel Scaloni says captain Lionel Messi will be further assessed in training later today to determine his availability for their Copa America quarter-final against Ecuador.`\
 https://nytimes.com/athletic/5615349/2024/07/03/lionel-messi-argentina-ecuador-copa-america/
