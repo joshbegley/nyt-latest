@@ -1,3 +1,19 @@
+**Top U.S. soccer fan groups call for new head coach**\
+`Two days after the United States men’s national team failed to advance to the knockout stage of the 2024 Copa America, the program’s largest supporters&#8217; group, the American Outlaws, has called for a new head coach.`\
+https://nytimes.com/athletic/5615140/2024/07/03/usmnt-head-coach-fan-groups-berhalter/
+
+**Porter facing federal charges for alleged sports gambling operation**\
+`A filing made in federal court Tuesday indicated that he would be the defendant in a case brought by the Department of Justice.`\
+https://nytimes.com/athletic/5615147/2024/07/03/jontay-porter-charged-nba-betting-scandal/
+
+**'Better tennis is ahead of me': Is Frances Tiafoe coming alive again?**\
+`Frances Tiafoe made the US Open his living room in 2022 before falling to Carlos Alcaraz. After two rough years, he faces him again`\
+https://nytimes.com/athletic/5614943/2024/07/03/frances-tiafoe-form-carlos-alcaraz-wimbledon/
+
+**Cruise lines alter itineraries as they monitor Beryl.**\
+`monitor Beryl.`\
+https://nytimes.com/live/2024/07/03/weather/hurricane-beryl/cruise-lines-alter-itineraries-as-they-monitor-beryl
+
 **‘Believe me now?’: Nikki Haley reminds Republicans of her warning about Biden.**\
 `By Jazmine Ulloa`\
 https://nytimes.com/live/2024/07/03/us/biden-trump-election/believe-me-now-nikki-haley-reminds-republicans-of-her-warning-about-biden
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/5614988/2024/07/03/jake-middleton-wild-tarps-off/
 **What’s Better Than S’mores? A Giant S’mores Tart**\
 `No campfire? No problem. This tart and a second, simple recipe from Melissa Clark’s YouTube series, “Shortcut vs. Showstopper” can easily be made in the oven.`\
 https://nytimes.com/2024/07/03/dining/smores.html
-
-**The Best Beach Umbrella Is Not Actually an Umbrella**\
-`It's a sunshade.`\
-https://nytimes.com/interactive/2024/07/03/smarter-living/wirecutter/sun-shade.html
-
-**Why It’s So Hard to Walk Away From Power**\
-`There’s a name for the dilemma that Joe Biden finds himself in. `\
-https://nytimes.com/2024/07/03/opinion/joe-biden-president-election.html
-
-**Biden tells campaign staff: ‘I’m in this race to the end.’**\
-`By Lisa Lerer and Nicholas Nehamas`\
-https://nytimes.com/live/2024/07/03/us/biden-trump-election/biden-tells-campaign-staff-im-in-this-race-to-the-end
-
-**A New Poll Brings a Dire Warning for the Biden Campaign**\
-`If the president’s candidacy was shaky before, it is virtually untenable now.`\
-https://nytimes.com/live/2024/07/02/opinion/thepoint/biden-poll-drop-out
 
