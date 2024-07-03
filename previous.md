@@ -1,3 +1,7 @@
+**The British Election**\
+`While electorates in other countries are shifting to the right, British voters are expected to elect a party on the center-left.`\
+https://nytimes.com/2024/07/03/briefing/british-election-conservatives-labour.html
+
 **Lautaro Martinez almost always has the last laugh**\
 `After playing a supporting role at the last World Cup, the Argentina striker has been his country's main man at Copa America`\
 https://nytimes.com/athletic/5610654/2024/07/03/lautaro-martinez-argentina-inter-copa-america/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5610178/2024/07/03/ronel-blanco-houston-astros-pitc
 **What Paul George’s Sixers deal could say about the future of free agency**\
 `We haven't seen many situations like this in recent years. Will we start to see them more?`\
 https://nytimes.com/athletic/5608781/2024/07/03/paul-george-sixers-nba-free-agency-thoughts/
-
-**How LeBron's impending deal relates to over-38 rule, second apron**\
-`James is in line for a max contract that could potentially push the Lakers up against the dreaded second apron.`\
-https://nytimes.com/athletic/5613259/2024/07/03/lebron-james-contract-over-38-second-apron/
 

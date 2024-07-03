@@ -1,3 +1,7 @@
+**The British Election**\
+`While electorates in other countries are shifting to the right, British voters are expected to elect a party on the center-left.`\
+https://nytimes.com/2024/07/03/briefing/british-election-conservatives-labour.html
+
 **Lautaro Martinez almost always has the last laugh**\
 `After playing a supporting role at the last World Cup, the Argentina striker has been his country's main man at Copa America`\
 https://nytimes.com/athletic/5610654/2024/07/03/lautaro-martinez-argentina-inter-copa-america/
