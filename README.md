@@ -1,3 +1,7 @@
+**Disney's Iger close to purchasing control of ACFC**\
+`The current valuation of the club is estimated at $250 million, and Iger and Bay would invest more than $50 million to take control of ACFC.`\
+https://nytimes.com/athletic/5613135/2024/07/03/angel-city-fc-bob-iger-willow-bay-investment/
+
 **West Ham's €30m transfer bid for Nice defender Todibo rejected**\
 `West Ham United have seen a €30million (£25.`\
 https://nytimes.com/athletic/5613903/2024/07/03/jean-clair-todibo-west-ham-transfer/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/5613903/2024/07/03/jean-clair-todibo-west-ham-trans
 https://nytimes.com/athletic/5614009/2024/07/03/ipswich-town-greaves-philogene/
 
 **Enzo Barrenechea to Aston Villa: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate Enzo Barrenechea's move to Aston Villa.`\
+`As part of The Athletic 500, we analyse and rate Enzo Barrenechea's move to Aston Villa`\
 https://nytimes.com/athletic/5590391/2024/07/03/enzo-barrenechea-aston-villa-transfer-rating/
 
 **Why England lost their set-piece superpower: Bad deliveries, flawed routines and the Maguire factor**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5601542/2024/07/03/shane-van-gisbergen-nascar-chica
 **British Teenager’s Disappearance Spurs Speculation and Sleuthing**\
 `Jay Slater disappeared on the Spanish island of Tenerife last month. His whereabouts sparked intense online speculation.`\
 https://nytimes.com/2024/07/03/world/europe/jay-slater-missing-tenerife.html
-
-**Manchester United to make 250 staff members redundant**\
-`Manchester United today told staff that the club is intending to cut 250 jobs as new co-owner Sir Jim Ratcliffe continues his bid to slash costs at Old Trafford.`\
-https://nytimes.com/athletic/5611715/2024/07/03/manchester-united-job-cuts/
 
