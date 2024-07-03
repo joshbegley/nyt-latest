@@ -1,3 +1,7 @@
+**What’s Better Than S’mores? A Giant S’mores Tart**\
+`No campfire? No problem. This tart and a second, simple recipe from Melissa Clark’s YouTube series, “Shortcut vs. Showstopper” can easily be made in the oven.`\
+https://nytimes.com/2024/07/03/dining/smores.html
+
 **The Best Beach Umbrella Is Not Actually an Umbrella**\
 `It's a sunshade.`\
 https://nytimes.com/interactive/2024/07/03/smarter-living/wirecutter/sun-shade.html
