@@ -1,3 +1,7 @@
+**U.S. Allies See a Worrisome Turn in Presidential Immunity Ruling**\
+`Legal experts say the U.S. Supreme Court ruling pushes past most of the norms in effect among American allies, adding more concern about the reliability of U.S. power.`\
+https://nytimes.com/2024/07/03/world/asia/supreme-court-immunity-allies.html
+
 **The British Election**\
 `While electorates in other countries are shifting to the right, British voters are expected to elect a party on the center-left.`\
 https://nytimes.com/2024/07/03/briefing/british-election-conservatives-labour.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5611204/2024/07/03/college-football-realignment-tea
 **How Astros starter Ronel Blanco has kept the injury-plagued team from sinking**\
 `"He’s been an anchor in our rotation," Astros GM Dana Brown said. "With all of our guys going down, without him, we’d be in trouble."`\
 https://nytimes.com/athletic/5610178/2024/07/03/ronel-blanco-houston-astros-pitcher/
-
-**What Paul George’s Sixers deal could say about the future of free agency**\
-`We haven't seen many situations like this in recent years. Will we start to see them more?`\
-https://nytimes.com/athletic/5608781/2024/07/03/paul-george-sixers-nba-free-agency-thoughts/
 

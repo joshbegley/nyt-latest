@@ -1,3 +1,7 @@
+**U.S. Allies See a Worrisome Turn in Presidential Immunity Ruling**\
+`Legal experts say the U.S. Supreme Court ruling pushes past most of the norms in effect among American allies, adding more concern about the reliability of U.S. power.`\
+https://nytimes.com/2024/07/03/world/asia/supreme-court-immunity-allies.html
+
 **The British Election**\
 `While electorates in other countries are shifting to the right, British voters are expected to elect a party on the center-left.`\
 https://nytimes.com/2024/07/03/briefing/british-election-conservatives-labour.html
