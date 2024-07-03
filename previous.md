@@ -1,3 +1,7 @@
+**Fourth of July Will Be a Scorcher for Most of the U.S.**\
+`Much of the country will endure temperatures that are above average for this time of the year.`\
+https://nytimes.com/2024/07/03/weather/fourth-of-july-forecast-heat.html
+
 **Police investigating tunnel fracas between fan and Euro 2024 stewards**\
 `German police have confirmed they are investigating after video footage on social media appeared to show a fan being assaulted by stadium security staff during the European Championship last-16 fixture between Portugal and Slovenia.`\
 https://nytimes.com/athletic/5612432/2024/07/03/police-euro-2024-tunnel-fan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5612953/2024/07/03/xavi-simons-netherlands-euros-ps
 **Dan Ashworth will be judged on Man Utd's recruitment - this is how it works (and how it doesn't)**\
 `This is the inside story of how recruitment works at Manchester United, how it doesn't and what is expected to change`\
 https://nytimes.com/athletic/5539692/2024/07/03/dan-ashworth-manchester-united-recruitment/
-
-**Ohtani likely skipping Home Run Derby**\
-`“He is going through rehab ... he signed up to play for the Dodgers and to take care of himself the best way he can,” Dave Roberts said.`\
-https://nytimes.com/athletic/5613418/2024/07/03/shohei-ohtani-home-run-derby/
 
