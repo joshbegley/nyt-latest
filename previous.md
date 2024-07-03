@@ -1,3 +1,11 @@
+**Lakers tout Bronny James and their future while standing pat in the present**\
+`Draft picks Dalton Knecht and Bronny James were introduced on Tuesday, though Lakers fans are hoping for bigger additions to the roster.`\
+https://nytimes.com/athletic/5612773/2024/07/03/lakers-bronny-lebron-james-future-roster/
+
+**Biden to Hold Crisis Meeting With Democratic Governors at the White House**\
+`The president is trying to reassure his supporters that he can still win in November despite his debate debacle last week.`\
+https://nytimes.com/2024/07/03/us/politics/biden-campaign-debate.html
+
 **How the Juraj Slafkovský contract could help the Canadiens open a competitive window**\
 `Slafkovský's team-firendly contract and Kent Hughes' limits in free agency give a good idea as to when the Canadiens could open a window.`\
 https://nytimes.com/athletic/5613389/2024/07/03/canadiens-juraj-slafkovsky-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/03/style/elder-care-parents-live-in-caregiving.html
 **Apartments Are Growing in Size. Here’s Where They’re Largest.**\
 `A recent study found that the size of the average new rental apartment increased by almost 30 square feet last year.`\
 https://nytimes.com/2024/07/03/realestate/biggest-apartments-cities.html
-
-**Oliver and Taylor to referee Euro 2024 quarter-final ties**\
-`Premier League referees Anthony Taylor and Michael Oliver have both been handed a quarter-final tie at the European Championship on Friday.`\
-https://nytimes.com/athletic/5614101/2024/07/03/michael-oliver-anthony-taylor-euro-2024/
-
-**LeBron James to sign 2-year, $104 million max deal with Lakers**\
-`Due to an NBA salary-cap quirk known as the “over-38 rule,” Los Angeles is unable to offer James a contract for more than three years.`\
-https://nytimes.com/athletic/5614079/2024/07/03/lebron-james-contract-lakers-max-deal/
 

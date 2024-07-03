@@ -1,3 +1,11 @@
+**Lakers tout Bronny James and their future while standing pat in the present**\
+`Draft picks Dalton Knecht and Bronny James were introduced on Tuesday, though Lakers fans are hoping for bigger additions to the roster.`\
+https://nytimes.com/athletic/5612773/2024/07/03/lakers-bronny-lebron-james-future-roster/
+
+**Biden to Hold Crisis Meeting With Democratic Governors at the White House**\
+`The president is trying to reassure his supporters that he can still win in November despite his debate debacle last week.`\
+https://nytimes.com/2024/07/03/us/politics/biden-campaign-debate.html
+
 **How the Juraj Slafkovský contract could help the Canadiens open a competitive window**\
 `Slafkovský's team-firendly contract and Kent Hughes' limits in free agency give a good idea as to when the Canadiens could open a window.`\
 https://nytimes.com/athletic/5613389/2024/07/03/canadiens-juraj-slafkovsky-contract/
