@@ -1,3 +1,7 @@
+**Heritage Foundation Head Refers to ‘Second American Revolution’**\
+`Kevin Roberts, president of the group that has coordinated the Project 2025 policy plan, said it could be “bloodless if the left allows it to be.”`\
+https://nytimes.com/2024/07/03/us/politics/heritage-foundation-revolution-bloodless.html
+
 **How Reliant Is the U.S. on Avocados From Mexico?**\
 `A temporary halt on inspections by U.S.D.A. workers in Mexico on safety concerns highlighted how dependent the United States had become on one region for supplies of the popular fruit.`\
 https://nytimes.com/2024/07/03/business/avocado-imports-mexico.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5613256/2024/07/03/josh-berry-wood-brothers-racing/
 **Cristiano Ronaldo: A tale of two penalties at Euro 2024 - and why he changed technique**\
 `After his penalty was saved in extra time of Portugal's last-16 clash with Slovenia, Ronaldo changed his approach in the shootout`\
 https://nytimes.com/athletic/5614013/2024/07/03/cristiano-ronaldo-portugal-penalty-technique-euro-2024/
-
-**13,000 Are Ordered to Evacuate as Wildfire Spreads in Northern California**\
-`A wildfire that began in Butte County, Calif., on Tuesday morning has burned more than 3,000 acres and threatened residents of the city of Oroville.`\
-https://nytimes.com/2024/07/03/us/thompson-wildfire-oroville-california.html
 

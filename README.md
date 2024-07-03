@@ -1,3 +1,11 @@
+**Packing for Camp? Leave Your Sephora Hauls at Home**\
+`As young girls continue to embrace elaborate skin care routines, summer camps want to focus on inner beauty.`\
+https://nytimes.com/2024/07/03/style/summer-camp-skincare-routine.html
+
+**The Bounce: What's next in NBA free agency?**\
+`Zach Harper and Shams Charania catch you up on leaguewide news.`\
+https://nytimes.com/athletic/5613958/2024/07/03/lebron-james-lakers-donovan-mitchell-cavaliers-nba-free-agency-the-bounce/
+
 **Heritage Foundation Head Refers to ‘Second American Revolution’**\
 `Kevin Roberts, president of the group that has coordinated the Project 2025 policy plan, said it could be “bloodless if the left allows it to be.”`\
 https://nytimes.com/2024/07/03/us/politics/heritage-foundation-revolution-bloodless.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/03/science/denisovans-ice-age-hunting-tibet.html
 **Finding This Fossil Was Like Spotting a Crocodile in a Canadian Forest**\
 `A bigheaded predator resembling a giant salamander found in an African fossil deposit suggests unwritten chapters of how animals moved onto land.`\
 https://nytimes.com/2024/07/03/science/fossil-namibia-salamander.html
-
-**Josh Berry signing with Wood Brothers Racing**\
-`The 33-year-old Berry has acclimated well in his freshman season, producing two top-five and four top-10 finishes through 20 races.`\
-https://nytimes.com/athletic/5613256/2024/07/03/josh-berry-wood-brothers-racing/
-
-**Cristiano Ronaldo: A tale of two penalties at Euro 2024 - and why he changed technique**\
-`After his penalty was saved in extra time of Portugal's last-16 clash with Slovenia, Ronaldo changed his approach in the shootout`\
-https://nytimes.com/athletic/5614013/2024/07/03/cristiano-ronaldo-portugal-penalty-technique-euro-2024/
 

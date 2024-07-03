@@ -1,3 +1,7 @@
+**Heritage Foundation Head Refers to ‘Second American Revolution’**\
+`Kevin Roberts, president of the group that has coordinated the Project 2025 policy plan, said it could be “bloodless if the left allows it to be.”`\
+https://nytimes.com/2024/07/03/us/politics/heritage-foundation-revolution-bloodless.html
+
 **How Reliant Is the U.S. on Avocados From Mexico?**\
 `A temporary halt on inspections by U.S.D.A. workers in Mexico on safety concerns highlighted how dependent the United States had become on one region for supplies of the popular fruit.`\
 https://nytimes.com/2024/07/03/business/avocado-imports-mexico.html
