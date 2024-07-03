@@ -1,3 +1,15 @@
+**The Guys Behind ‘Hawk Tuah Girl’ Would Like a Little Credit**\
+`Tim Dickerson and DeArius Marlow shoot man-on-the-street interviews at popular nightlife destinations. Their questions led to an internet sensation.`\
+https://nytimes.com/2024/07/03/style/hawk-tuah-girl-video.html
+
+**Here’s how to help the hurricane victims in the Caribbean.**\
+`By Eve Sampson`\
+https://nytimes.com/live/2024/07/03/weather/hurricane-beryl/heres-how-to-help-the-hurricane-victims-in-the-caribbean
+
+**More Jake Middleton, more 'Tarps Off' for the Wild, who lock up a character and social-media star**\
+`The defenseman with the big stache, missing teeth and tattooed left sleeve discussed his four-year, $17.4 million extension.`\
+https://nytimes.com/athletic/5614988/2024/07/03/jake-middleton-wild-tarps-off/
+
 **What’s Better Than S’mores? A Giant S’mores Tart**\
 `No campfire? No problem. This tart and a second, simple recipe from Melissa Clark’s YouTube series, “Shortcut vs. Showstopper” can easily be made in the oven.`\
 https://nytimes.com/2024/07/03/dining/smores.html
