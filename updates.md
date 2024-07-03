@@ -1,3 +1,15 @@
+**Euro 2024 quarter-finals preview: Ronaldo faces Mbappe as England meet Switzerland - Tips and Tricks**\
+`Here, we look at the data to get a better idea of who will be taking one step closer to the trophy`\
+https://nytimes.com/athletic/5610808/2024/07/03/euro-2024-quarter-finals-preview-ronaldo-faces-mbappe-as-england-meet-switzerland-tips-and-tricks/
+
+**AFC North Whiparound: What to expect from in-season edition of 'Hard Knocks'**\
+`Which players in the division are tailor-made for reality TV? Plus, do any of the four teams have pressing needs heading into training camp?`\
+https://nytimes.com/athletic/5600480/2024/07/03/browns-ravens-bengals-steelers-afc-north/
+
+**Quotation of the Day: In Factories, India’s Women See a Lifeline**\
+`Quotation of the Day for Wednesday, July 3, 2024.`\
+https://nytimes.com/2024/07/03/pageoneplus/quotation-of-the-day-in-factories-indias-women-see-a-lifeline.html
+
 **PSG Women close to appointing Abriel as new head coach**\
 `Paris Saint-Germain are close to appointing Fabrice Abriel as the new head coach of their women’s team.`\
 https://nytimes.com/athletic/5610810/2024/07/03/psg-fabrice-abriel/
