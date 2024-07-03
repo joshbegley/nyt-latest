@@ -1,3 +1,15 @@
+**America’s Adversaries Have Seized on Its Leadership Crisis**\
+`Russia and China have seized on last week’s painful presidential debate to push their narrative that America is in terminal decline.`\
+https://nytimes.com/2024/07/03/opinion/america-russia-china-debate.html
+
+**Competitive Eaters Are Just Like Us. Give or Take a Dozen Hot Dogs.**\
+`These titans of caloric consumption aren’t signing deals or getting specials, but they form the backbone of an American tradition.`\
+https://nytimes.com/2024/07/03/dining/chestnut-kobayashi-competitive-eaters.html
+
+**Britain’s Next Prime Minister Has Shown Us Who He Is, and It’s Not Good**\
+`Keir Starmer is set to carry a deeply authoritarian impulse into government.`\
+https://nytimes.com/2024/07/03/opinion/britain-election-keir-starmer.html
+
 **Phillies show Cubs what paying for star talent can do**\
 `The Cubs fell short again in the battle of "intelligent spending" (Chicago) vs. a team dishing out "stupid" money (Philadelphia).`\
 https://nytimes.com/athletic/5613243/2024/07/03/cubs-lose-to-phillies/

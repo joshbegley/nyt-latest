@@ -1,3 +1,15 @@
+**America’s Adversaries Have Seized on Its Leadership Crisis**\
+`Russia and China have seized on last week’s painful presidential debate to push their narrative that America is in terminal decline.`\
+https://nytimes.com/2024/07/03/opinion/america-russia-china-debate.html
+
+**Competitive Eaters Are Just Like Us. Give or Take a Dozen Hot Dogs.**\
+`These titans of caloric consumption aren’t signing deals or getting specials, but they form the backbone of an American tradition.`\
+https://nytimes.com/2024/07/03/dining/chestnut-kobayashi-competitive-eaters.html
+
+**Britain’s Next Prime Minister Has Shown Us Who He Is, and It’s Not Good**\
+`Keir Starmer is set to carry a deeply authoritarian impulse into government.`\
+https://nytimes.com/2024/07/03/opinion/britain-election-keir-starmer.html
+
 **Phillies show Cubs what paying for star talent can do**\
 `The Cubs fell short again in the battle of "intelligent spending" (Chicago) vs. a team dishing out "stupid" money (Philadelphia).`\
 https://nytimes.com/athletic/5613243/2024/07/03/cubs-lose-to-phillies/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5613194/2024/07/03/braves-jesse-chavez-all-star-gam
 **Why Rodon and his ready-made partnership really might ease the pain of losing Gray**\
 `A reminder of what the defender delivers for Daniel Farke`\
 https://nytimes.com/athletic/5607879/2024/07/03/rodon-return-to-leeds/
-
-**Aurelien Tchouameni's untold talents: How the France Euro 2024 midfielder is different**\
-`At 24, he has already won the Champions League and La Liga with Real Madrid and is now key to France's Euro 2024 hopes. This is his story...`\
-https://nytimes.com/athletic/5474614/2024/07/03/tchouameni-france-euro-2024-real-madrid/
-
-**Jorgen Strand Larsen is the No 9 Wolves fans have been craving**\
-`The data suggests that Wolves have finally found the traditional centre-forward that the club's fans have craved for the last four years`\
-https://nytimes.com/athletic/5611563/2024/07/03/wolves-strand-larsen-norway/
-
-**How Kevin De Bruyne's 'quiet summer' could give him one final flourish at Manchester City**\
-`Next season may well be the Belgian's final campaign at the Etihad, but he is still good enough to be a key figure in Pep Guardiola's team`\
-https://nytimes.com/athletic/5611189/2024/07/03/de-bruyne-manchester-city-future/
 
