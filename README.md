@@ -1,3 +1,7 @@
+**Apartments Are Growing in Size. Here’s Where They’re Largest.**\
+`A recent study found that the size of the average new rental apartment increased by almost 30 square feet last year.`\
+https://nytimes.com/2024/07/03/realestate/biggest-apartments-cities.html
+
 **Oliver and Taylor to referee Euro 2024 quarter-final ties**\
 `Premier League referees Anthony Taylor and Michael Oliver have both been handed a quarter-final tie at the European Championship on Friday.`\
 https://nytimes.com/athletic/5614101/2024/07/03/michael-oliver-anthony-taylor-euro-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5590391/2024/07/03/enzo-barrenechea-aston-villa-tra
 **Why England lost their set-piece superpower: Bad deliveries, flawed routines and the Maguire factor**\
 `Could long throws be a fruitful alternative to corners and free kicks?`\
 https://nytimes.com/athletic/5611921/2024/07/03/england-set-pieces-euro-2014-maguire/
-
-**Bayern Munich agree transfer deal to sign Fulham midfielder Joao Palhinha**\
-`Bayern Munich have reached an agreement worth €51million (£43.`\
-https://nytimes.com/athletic/5613937/2024/07/03/joao-palhinha-fulham-bayern-munich-transfer/
 
