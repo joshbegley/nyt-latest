@@ -1,3 +1,15 @@
+**Brewers acquire right-hander Aaron Civale from Rays: source**\
+`The move boosts Milwaukee's (51-35) starting rotation, which ranks near the bottom in innings pitched.`\
+https://nytimes.com/athletic/5614239/2024/07/03/brewers-rays-trade-aaron-civale/
+
+**The Wide, Wide World of Judy Chicago**\
+`The 84-year-old American is perhaps best known for her groundbreaking feminist installation “The Dinner Party,” but she is an artist with a formidable range.`\
+https://nytimes.com/2024/07/03/arts/design/judy-chicago-serpentine-luma-arles.html
+
+**The Biden campaign and Republicans are duking it out in ads.**\
+`By Nick Corasaniti, Nicholas Nehamas and Maggie Astor`\
+https://nytimes.com/live/2024/07/03/us/biden-trump-election/the-biden-campaign-and-republicans-are-duking-it-out-in-ads
+
 **Lakers tout Bronny James and their future while standing pat in the present**\
 `Draft picks Dalton Knecht and Bronny James were introduced on Tuesday, though Lakers fans are hoping for bigger additions to the roster.`\
 https://nytimes.com/athletic/5612773/2024/07/03/lakers-bronny-lebron-james-future-roster/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/03/technology/personaltech/iphone-android-storage-sp
 **Are We in the Middle of a Spiritual Awakening?**\
 `Americans are moving away from organized religion. Are they replacing it with other forms of spirituality and observance?`\
 https://nytimes.com/2024/07/03/opinion/spirituality-religion.html
-
-**Think Twice Before Lighting Fireworks This July 4**\
-`Fireworks touch off blazes in California that cause millions of dollars in damage each year.`\
-https://nytimes.com/2024/07/03/us/california-fourth-of-july-fireworks.html
-
-**How Can I Tell My Elderly Mother That She Can’t Live With Me?**\
-`A reader still picking up the pieces after a recent divorce is wrestling with guilt for not wanting to take his mother in, knowing she wouldn’t hesitate to help him.`\
-https://nytimes.com/2024/07/03/style/elder-care-parents-live-in-caregiving.html
-
-**Apartments Are Growing in Size. Here’s Where They’re Largest.**\
-`A recent study found that the size of the average new rental apartment increased by almost 30 square feet last year.`\
-https://nytimes.com/2024/07/03/realestate/biggest-apartments-cities.html
 
