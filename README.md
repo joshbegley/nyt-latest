@@ -1,3 +1,7 @@
+**The Guys Behind ‘Hawk Tuah Girl’ Would Like a Little Credit**\
+`Tim Dickerson and DeArius Marlow shoot man-on-the-street interviews at popular nightlife destinations. Their questions led to an internet sensation.`\
+https://nytimes.com/2024/07/03/style/hawk-tuah-girl-video.html
+
 **Here’s how to help the hurricane victims in the Caribbean.**\
 `By Eve Sampson`\
 https://nytimes.com/live/2024/07/03/weather/hurricane-beryl/heres-how-to-help-the-hurricane-victims-in-the-caribbean
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/07/02/opinion/thepoint/biden-poll-drop-out
 **Hezbollah responds to the killing of a senior commander with a cross-border rocket barrage.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/07/03/world/israel-gaza-war-hamas/hezbollah-responds-to-the-killing-of-a-senior-commander-with-a-cross-border-rocket-barrage
-
-**Jamaican Airports Shut Down, Stranding Travelers and Snarling Plans**\
-`The island’s three main international air hubs will remain closed through at least Wednesday night, and many airlines are waiving change and cancellation fees.`\
-https://nytimes.com/2024/07/03/weather/hurricane-beryl-jamaica-airports.html
 
