@@ -1,3 +1,9 @@
+**An Israeli air base is a source of GPS ‘spoofing’ attacks, researchers say.**\
+`Misleading satellite signals have disrupted thousands of civilian flights. GPS, once considered navigation’s gold standard, is now vulnerable.`\
+https://nytimes.com/live/2024/07/03/world/israel-gaza-war-hamas/an-israeli-air-base-is-a-source-of-gps-spoofing-attacks-researchers-say
+
+**The U.N. says 4 out of 5 Gazans are displaced, and other news.**\
+
 **You See a Hedge. He Sees Something Else.**\
 `Tim Bushe decided to shape the hedges in his London neighborhood into a menagerie. They’ve become a local attraction.`\
 https://nytimes.com/2024/07/03/world/europe/london-hedge-animals-art.html
