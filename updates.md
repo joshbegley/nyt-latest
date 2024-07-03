@@ -1,3 +1,11 @@
+**How Would the Restaurant in ‘The Bear’ Work in Real Life?**\
+`The show is praised for its gritty realism, and some of the details are spot-on. Others, not so much, according to food insiders.`\
+https://nytimes.com/2024/07/03/dining/the-bear-season-3-restaurant.html
+
+**If Biden Doesn’t Run, Nominate …**\
+`Readers’ suggestions include Kamala Harris, Cory Booker, Chuck Schumer, Joe Manchin, Al Gore and Andy Beshear.`\
+https://nytimes.com/2024/07/03/opinion/letters/joe-biden-alternative-candidates.html
+
 **Qatar sent a new suggested cease-fire proposal to Hamas last week, officials say.**\
 `By Ronen Bergman and Aaron Boxerman`\
 https://nytimes.com/live/2024/07/03/world/israel-gaza-war-hamas/qatar-sent-a-new-suggested-cease-fire-proposal-to-hamas-last-week-officials-say
