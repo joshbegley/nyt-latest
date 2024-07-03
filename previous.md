@@ -1,3 +1,11 @@
+**U.S. Deports Chinese Migrants in First Large Flight Since 2018**\
+`The Department of Homeland Security said it was working with Chinese authorities to arrange more flights as more migrants enter the United States.`\
+https://nytimes.com/2024/07/03/us/us-china-migrants-deportation-flight.html
+
+**Clayton Kershaw's rehab is trending upwards, but what Dodgers rotation will he return to?**\
+`Along with Kershaw, Yoshinobu Yamamoto and Walker Buehler are still on the mend. How the Dodgers will manage in October remains a mystery.`\
+https://nytimes.com/athletic/5613452/2024/07/03/clayton-kershaw-rehab/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/07/03/crosswords/spelling-bee-forum.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/03/world/americas/hurricane-beryl-grenada.html
 **Turkey and the positivity of pressure: Montella's team are riding an emotional wave at Euro 2024**\
 `Turkey's coach has endured intense scrutiny in his role but has succeeded in propelling a young, thrilling side into the quarter-finals`\
 https://nytimes.com/athletic/5612595/2024/07/03/turkey-montella-austria-leipzig-guler/
-
-**With calm felt from dugout to stands, Michael Mercado stays composed in first big-league start**\
-`"Being on such a great team and them having that kind of confidence in you is so big," Mercado said after the Phillies beat the Cubs 6-4.`\
-https://nytimes.com/athletic/5613353/2024/07/03/phillies-michael-mercado-first-big-league-start/
-
-**The chaos of Austria vs Turkey: part Bundesliga, part South America, part lower-league**\
-`Turkey are through to the quarter-finals after an exciting win over Austria which had a bit of everything`\
-https://nytimes.com/athletic/5612728/2024/07/03/austria-turkey-tactics/
 

@@ -1,3 +1,11 @@
+**U.S. Deports Chinese Migrants in First Large Flight Since 2018**\
+`The Department of Homeland Security said it was working with Chinese authorities to arrange more flights as more migrants enter the United States.`\
+https://nytimes.com/2024/07/03/us/us-china-migrants-deportation-flight.html
+
+**Clayton Kershaw's rehab is trending upwards, but what Dodgers rotation will he return to?**\
+`Along with Kershaw, Yoshinobu Yamamoto and Walker Buehler are still on the mend. How the Dodgers will manage in October remains a mystery.`\
+https://nytimes.com/athletic/5613452/2024/07/03/clayton-kershaw-rehab/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/07/03/crosswords/spelling-bee-forum.html
