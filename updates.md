@@ -1,3 +1,11 @@
+**Enzo Barrenechea to Aston Villa: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Enzo Barrenechea's move to Aston Villa.`\
+https://nytimes.com/athletic/5590391/2024/07/03/enzo-barrenechea-aston-villa-transfer-rating/
+
+**Why England lost their set-piece superpower: Bad deliveries, flawed routines and the Maguire factor**\
+`Could long throws be a fruitful alternative to corners and free kicks?`\
+https://nytimes.com/athletic/5611921/2024/07/03/england-set-pieces-euro-2014-maguire/
+
 **James Rodriguez is lighting up Copa America and at the heart of Colombia's incredible run**\
 `Colombia are now 26 games unbeaten and head into their Copa America quarter-final with Panama as strong favourites to make it 27`\
 https://nytimes.com/athletic/5613462/2024/07/03/james-rodriguez-colombia-copa-america-2/

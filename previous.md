@@ -1,3 +1,11 @@
+**Enzo Barrenechea to Aston Villa: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Enzo Barrenechea's move to Aston Villa.`\
+https://nytimes.com/athletic/5590391/2024/07/03/enzo-barrenechea-aston-villa-transfer-rating/
+
+**Why England lost their set-piece superpower: Bad deliveries, flawed routines and the Maguire factor**\
+`Could long throws be a fruitful alternative to corners and free kicks?`\
+https://nytimes.com/athletic/5611921/2024/07/03/england-set-pieces-euro-2014-maguire/
+
 **Bayern Munich agree transfer deal to sign Fulham midfielder Joao Palhina**\
 `Bayern Munich have reached an agreement worth €51million (£43.`\
 https://nytimes.com/athletic/5613937/2024/07/03/joao-palhinha-fulham-bayern-munich-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5592636/2024/07/03/iliman-ndiyae-everton-transfer/
 **James Rodriguez is lighting up Copa America and at the heart of Colombia's incredible run**\
 `Colombia are now 26 games unbeaten and head into their Copa America quarter-final with Panama as strong favourites to make it 27`\
 https://nytimes.com/athletic/5613462/2024/07/03/james-rodriguez-colombia-copa-america-2/
-
-**Andy Murray and Emma Raducanu to play Wimbledon mixed doubles**\
-`Andy Murray will play the Wimbledon mixed doubles event with Emma Raducanu.`\
-https://nytimes.com/athletic/5613864/2024/07/03/andy-murray-emma-raducanu-mixed-doubles-wimbledon/
-
-**Iliman Ndiaye to Everton: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate Iliman Ndiaye's move to Everton`\
-https://nytimes.com/athletic/5587652/2024/07/03/iliman-ndiaye-to-everton-transfer-rating/
 
