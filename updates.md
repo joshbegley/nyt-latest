@@ -1,3 +1,11 @@
+**The Man Behind the Minions**\
+`Pierre Coffin helped invent the yellow animated creatures and has supplied their voices for nearly 15 years. He’s as puckish and subversive as his mischievous creations.`\
+https://nytimes.com/2024/07/03/arts/television/minions-despicable-me-4-pierre-coffin.html
+
+**'F--- no, I don’t baby it': Red Sox's Liam Hendriks moves slowly, confidently back from Tommy John**\
+`After a long road back from cancer treatment and then Tommy John surgery, Hendriks said he expects to be pitching for Boston this August.`\
+https://nytimes.com/athletic/5603297/2024/07/03/liam-hendriks-red-sox-tommy-john-rehab/
+
 **Big Donors Turn on Biden. Quietly.**\
 `Some of the president’s past supporters want a new candidate, but they are leery of going public.`\
 https://nytimes.com/2024/07/03/us/politics/biden-donors-debate.html
