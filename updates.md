@@ -1,3 +1,15 @@
+**As Jamaica waits, Cayman Islands prepare to be next.**\
+`By Daphne Ewing-Chow`\
+https://nytimes.com/live/2024/07/03/weather/hurricane-beryl/as-jamaica-waits-cayman-islands-prepare-to-be-next
+
+**Alabama tops Ohio State for Cincinnati edge rusher Justin Hill**\
+`Hill, a four-star recruit from Ohio, committed to the Crimson Tide on Wednesday over Ohio State, USC and Oregon.`\
+https://nytimes.com/athletic/5614419/2024/07/03/justin-hill-alabama-football-commitment/
+
+**The Debate Hurt Biden, but the Real Shift Has Been Happening for Years**\
+`A 3-point move toward Trump in a new Times/Siena poll is not a fundamental change in the race, but it adds to longstanding concerns.`\
+https://nytimes.com/2024/07/03/upshot/poll-biden-trump-debate.html
+
 **Trump Widens Lead After Biden’s Debate Debacle, Times/Siena Poll Finds**\
 `Donald Trump is ahead of President Biden by six percentage points among likely voters in a new national survey. Overall, 74 percent of voters view him as too old for the job, an uptick since the debate.`\
 https://nytimes.com/2024/07/03/us/politics/poll-debate-biden-trump.html
