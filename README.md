@@ -1,7 +1,3 @@
-**Nearly All Democratic Governors Plan to Attend Biden Meeting**\
-`Gavin Newsom, Gretchen Whitmer and Andy Beshear will be among those attending in person. At least half a dozen governors will be joining remotely.`\
-https://nytimes.com/2024/07/03/us/politics/nearly-all-democratic-governors-plan-to-attend-biden-meeting.html
-
 **You Tested Positive for Covid. Can You Still Travel?**\
 `With coronavirus cases on the rise, summer travelers are once again facing difficult questions. Here’s the latest travel guidance from health experts.`\
 https://nytimes.com/2024/07/03/travel/covid-positive-travel.html
@@ -33,4 +29,8 @@ https://nytimes.com/2024/07/03/us/politics/hastings-donors-biden.html
 **Raúl Grijalva Is Second House Democrat to Call for Biden to Drop Out**\
 `His remarks came a day after Representative Lloyd Doggett, a Texas Democrat, became the first member of his party in the House to call on Mr. Biden to withdraw.`\
 https://nytimes.com/2024/07/03/us/politics/raul-grijalva-biden-drop-out.html
+
+**Democrats’ Anxiety on Display as Jill Biden Opens Michigan Campaign Office**\
+`The first lady said President Biden would press ahead despite concerns about his acuity. Some Democrats said they wished he wouldn’t.`\
+https://nytimes.com/2024/07/03/us/jill-biden-michigan-campaign-office.html
 
