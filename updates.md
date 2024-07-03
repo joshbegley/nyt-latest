@@ -1,3 +1,15 @@
+**How to Stop Child Marriage? Punish Husbands, Parents and Wedding Guests.**\
+`A new law in the West African country of Sierra Leone allows child brides to annul their marriages and be financially compensated.`\
+https://nytimes.com/2024/07/03/world/africa/child-marriage-sierra-leone-africa.html
+
+**Israel Kills a Top Commander of Hezbollah, Which Replies With a Rocket Barrage**\
+`The escalation in violence across the border of Israel and Lebanon came as Western diplomats tried to head off a full-fledged war there.`\
+https://nytimes.com/2024/07/03/world/middleeast/israel-hezbollah-commander-strike-rockets.html
+
+**Nearly All Democratic Governors Plan to Attend Biden Meeting**\
+`Gavin Newsom, Gretchen Whitmer and Andy Beshear will be among those attending Wednesday’s meeting in person. At least half a dozen governors will be joining remotely.`\
+https://nytimes.com/2024/07/03/us/politics/nearly-all-democratic-governors-plan-to-attend-biden-meeting.html
+
 **Miami lands 4-star 2026 QB Dereon Coleman**\
 `The Canes' 2026 class now includes two top-200 national prospects and a four-star QB in Coleman.`\
 https://nytimes.com/athletic/5615062/2024/07/03/miami-recruiting-quarterback-dereon-coleman/
