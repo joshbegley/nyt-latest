@@ -34,7 +34,7 @@ https://nytimes.com/athletic/5613849/2024/07/03/the-athletic-fc-gunok-save-brazi
 `This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/07/03/learning/word-of-the-day-sociable.html
 
-**Disney's Iger close to purchasing control of ACFC**\
+**Disney's Iger, wife close to purchasing control of ACFC**\
 `The current valuation of the club is estimated at $250 million, and Iger and Bay would invest more than $50 million to take control of ACFC.`\
 https://nytimes.com/athletic/5613135/2024/07/03/angel-city-fc-bob-iger-willow-bay-investment/
 
