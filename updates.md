@@ -1,3 +1,7 @@
+**One Million Checkboxes Is Exactly What It Sounds Like**\
+`The most “useless” website you can imagine has become a hit — and an unintentional case study in internet behavior.`\
+https://nytimes.com/2024/07/03/style/one-million-checkboxes-game.html
+
 **Biden Campaign Memos Show Efforts to Calm Concerns**\
 `A pair of memos highlighted internal polling that showed a close race and strong fund-raising in an attempt to quiet fears about President Biden’s candidacy.`\
 https://nytimes.com/2024/07/03/us/politics/biden-2024-campaign-memos.html
