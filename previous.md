@@ -1,3 +1,15 @@
+**Jamaican Airports Shut Down, Stranding Travelers and Snarling Plans**\
+`The island’s three main international air hubs will remain closed through at least Wednesday night, and many airlines are waiving change and cancellation fees.`\
+https://nytimes.com/2024/07/03/weather/hurricane-beryl-jamaica-airports.html
+
+**High Above New York, a Battle for Tourist Dollars**\
+`Our writer took four ear-popping elevator journeys high above Midtown Manhattan to experience amusement-park-like adventures.`\
+https://nytimes.com/card/2024/07/03/travel/nyc-observation-decks
+
+**Explained: Manchester United's plan to cut 250 jobs**\
+`Sir Jim Ratcliffe, the co-owner, is determined to cut costs at Manchester United - and now 250 staff members are to lose their jobs`\
+https://nytimes.com/athletic/5614630/2024/07/03/manchester-united-job-cuts-250-explained/
+
 **‘The Bear’ Gets a Glow Up. Is That a Good Thing?**\
 `Styles staffers talk about the show’s turn to fine dining and its flashy cameos.`\
 https://nytimes.com/2024/07/03/style/the-bear-glow-up.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/03/weather/hurricane-beryl/as-jamaica-waits-cay
 **Alabama tops Ohio State for Cincinnati edge rusher Justin Hill**\
 `Hill, a four-star recruit from Ohio, committed to the Crimson Tide on Wednesday over Ohio State, USC and Oregon.`\
 https://nytimes.com/athletic/5614419/2024/07/03/justin-hill-alabama-football-commitment/
-
-**The Debate Hurt Biden, but the Real Shift Has Been Happening for Years**\
-`A 3-point move toward Trump in a new Times/Siena poll is not a fundamental change in the race, but it adds to longstanding concerns.`\
-https://nytimes.com/2024/07/03/upshot/poll-biden-trump-debate.html
-
-**Trump Widens Lead After Biden’s Debate Debacle, Times/Siena Poll Finds**\
-`Donald Trump is ahead of President Biden by six percentage points among likely voters in a new national survey. Overall, 74 percent of voters view him as too old for the job, an uptick since the debate.`\
-https://nytimes.com/2024/07/03/us/politics/poll-debate-biden-trump.html
-
-**Toplines: July 2024 Times/Siena Poll of Registered Voters Nationwide**\
-`Results of a nationwide New York Times/Siena College poll conducted among 1,532 registered voters from June 28 to July 2, 2024.`\
-https://nytimes.com/interactive/2024/07/03/us/elections/times-siena-poll-toplines.html
 
