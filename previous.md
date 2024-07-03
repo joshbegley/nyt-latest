@@ -1,3 +1,15 @@
+**Blue Jays call up Leo Jimenez and youth movement may only continue to grow**\
+`Trades could bring in young players from the outside, but for now, the Blue Jays are seeing what kids in their own system can do.`\
+https://nytimes.com/athletic/5613131/2024/07/02/blue-jays-leo-jimenez-youth-movement/
+
+**Vinicius Jr suspended for Brazil's Copa America quarterfinal**\
+`Vinicius Junior will be suspended for Brazil&#8217;s Copa America quarterfinal against Uruguay.`\
+https://nytimes.com/athletic/5613034/2024/07/02/vinicius-junior-ban-brazil-copa-america/
+
+**Brazil 1-1 Colombia: Takeaways from Vini Jr.'s costly yellow and James' brilliant form**\
+`Two of Copa America's best went head to head and didn't disappoint `\
+https://nytimes.com/athletic/5612988/2024/07/02/brazil-colombia-copa-america-takeaways/
+
 **Giants 'Hard Knocks' takeaways: Exploring a Saquon Barkley trade and 'not giving up' on Daniel Jones**\
 `The Giants explored all scenarios involving Barkley, including using the franchise tag on him and then trading the star RB. `\
 https://nytimes.com/athletic/5613074/2024/07/02/new-york-giants-hard-knocks-joe-schoen-saquon-barkley/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5612345/2024/07/02/jack-johnson-blue-jackets/
 **Clark, Reese headline WNBA All-Star Game roster**\
 `The two rookies are the only two first-time participants in the exhibition, which is set for July 20 in Phoenix.`\
 https://nytimes.com/athletic/5613005/2024/07/02/wnba-all-star-rosters-caitlin-clark-angel-reese/
-
-**Tigers announcer Craig Monroe absent from broadcast due to sexual abuse allegations**\
-`Monroe, the Tigets' lead color analyst, has not called a game since June 9.  `\
-https://nytimes.com/athletic/5612741/2024/07/02/craig-monroe-tigers-sexual-abuse-allegations/
-
-**Inside Blues' Pavel Buchnevich talks — and how they got him extended without going max term**\
-`Per his agent, Buchnevich "doesn't want to be a player that is just collecting money. He wants to earn what he's making."`\
-https://nytimes.com/athletic/5612439/2024/07/02/pavel-buchnevich-extension-blues/
-
-**What to See in N.Y.C. Galleries in July**\
-`This week in Newly Reviewed, Yinka Elujoba covers Elmer Guevara’s subtle paintings, James Casebere’s reimagined architecture and John Ahearn and Rigoberto Torres’s busts of Bronx residents.`\
-https://nytimes.com/2024/07/02/arts/design/nyc-gallery-shows-july.html
 
