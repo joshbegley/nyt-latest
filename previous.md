@@ -1,3 +1,7 @@
+**Dan Ashworth will be judged on Man Utd's recruitment - this is how it works (and how it doesn't)**\
+`This is the inside story of how recruitment works at Manchester United, how it doesn't and what is expected to change`\
+https://nytimes.com/athletic/5539692/2024/07/03/dan-ashworth-manchester-united-recruitment/
+
 **Ohtani likely skipping Home Run Derby**\
 `“He is going through rehab ... he signed up to play for the Dodgers and to take care of himself the best way he can,” Dave Roberts said.`\
 https://nytimes.com/athletic/5613418/2024/07/03/shohei-ohtani-home-run-derby/
@@ -27,14 +31,10 @@ https://nytimes.com/2024/07/03/world/asia/china-russia-central-asia.html
 https://nytimes.com/2024/07/03/world/asia/india-stampede-deaths.html
 
 **Giants win in Atlanta behind a rookie pitcher and another stellar night from Heliot Ramos**\
-`Hayden Birdsong got his first major league victory and San Francisco enjoyed the rarity of back-to-back wins from starting pitchers. `\
+`Hayden Birdsong got his first major-league victory and San Francisco enjoyed the rarity of back-to-back wins from starting pitchers. `\
 https://nytimes.com/athletic/5613363/2024/07/03/giants-win-in-atlanta/
 
 **Fantasy baseball mailbag: Looking at second-half expectations for Corbin Carroll, Dylan Cease and more**\
 `Adam Ronis handles your fantasy baseball questions about Corbin Carroll, Dylan Cease, Oneil Cruz and more.`\
 https://nytimes.com/athletic/5612902/2024/07/03/fantasy-baseball-mailbag-2nd-half-expectations-corbin-carroll/
-
-**America’s Adversaries Have Seized on Its Leadership Crisis**\
-`Russia and China have seized on last week’s painful presidential debate to push their narrative that America is in terminal decline.`\
-https://nytimes.com/2024/07/03/opinion/america-russia-china-debate.html
 
