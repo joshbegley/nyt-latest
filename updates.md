@@ -1,3 +1,7 @@
+**Simons - YouTube star aged 10, risk taker, assist maker. But he is at a crossroads... again**\
+`The Netherlands forward is perhaps the best player still at the Euros who is far from certain where they will be playing next season`\
+https://nytimes.com/athletic/5612953/2024/07/03/xavi-simons-netherlands-euros-psg/
+
 **Dan Ashworth will be judged on Man Utd's recruitment - this is how it works (and how it doesn't)**\
 `This is the inside story of how recruitment works at Manchester United, how it doesn't and what is expected to change`\
 https://nytimes.com/athletic/5539692/2024/07/03/dan-ashworth-manchester-united-recruitment/
