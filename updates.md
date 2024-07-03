@@ -1,3 +1,11 @@
+**After free-agent frenzy, Blackhawks walk a line between win-now, win-later at development camp**\
+`Kyle Davidson’s spending spree on veterans in free agency left precious few NHL spots available for players arriving the same day at camp.`\
+https://nytimes.com/athletic/5615153/2024/07/03/blackhawks-development-camp-takeaways/
+
+**White House Attempts to Quell Biden Fitness Concerns**\
+`The White House press secretary, Karine Jean-Pierre, stressed that President Biden was “absolutely not” considering withdrawing from the 2024 race, while attempting to reassure the public of his cognitive capacity.`\
+https://nytimes.com/video/us/politics/100000009554488/white-house-press-briefing-biden-concerns.html
+
 **Top U.S. soccer fan groups call for new head coach**\
 `Two days after the United States men’s national team failed to advance to the knockout stage of the 2024 Copa America, the program’s largest supporters&#8217; group, the American Outlaws, has called for a new head coach.`\
 https://nytimes.com/athletic/5615140/2024/07/03/usmnt-head-coach-fan-groups-berhalter/

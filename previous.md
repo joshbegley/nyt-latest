@@ -1,3 +1,11 @@
+**After free-agent frenzy, Blackhawks walk a line between win-now, win-later at development camp**\
+`Kyle Davidson’s spending spree on veterans in free agency left precious few NHL spots available for players arriving the same day at camp.`\
+https://nytimes.com/athletic/5615153/2024/07/03/blackhawks-development-camp-takeaways/
+
+**White House Attempts to Quell Biden Fitness Concerns**\
+`The White House press secretary, Karine Jean-Pierre, stressed that President Biden was “absolutely not” considering withdrawing from the 2024 race, while attempting to reassure the public of his cognitive capacity.`\
+https://nytimes.com/video/us/politics/100000009554488/white-house-press-briefing-biden-concerns.html
+
 **Top U.S. soccer fan groups call for new head coach**\
 `Two days after the United States men’s national team failed to advance to the knockout stage of the 2024 Copa America, the program’s largest supporters&#8217; group, the American Outlaws, has called for a new head coach.`\
 https://nytimes.com/athletic/5615140/2024/07/03/usmnt-head-coach-fan-groups-berhalter/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/07/03/style/hawk-tuah-girl-video.html
 **Here’s how to help the hurricane victims in the Caribbean.**\
 `By Eve Sampson`\
 https://nytimes.com/live/2024/07/03/weather/hurricane-beryl/heres-how-to-help-the-hurricane-victims-in-the-caribbean
-
-**More Jake Middleton, more 'Tarps Off' for the Wild, who lock up a character and social-media star**\
-`The defenseman with the big stache, missing teeth and tattooed left sleeve discussed his four-year, $17.4 million extension.`\
-https://nytimes.com/athletic/5614988/2024/07/03/jake-middleton-wild-tarps-off/
-
-**What’s Better Than S’mores? A Giant S’mores Tart**\
-`No campfire? No problem. This tart and a second, simple recipe from Melissa Clark’s YouTube series, “Shortcut vs. Showstopper” can easily be made in the oven.`\
-https://nytimes.com/2024/07/03/dining/smores.html
 
