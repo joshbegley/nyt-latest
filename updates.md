@@ -1,3 +1,7 @@
+**Phillies show Cubs what paying for star talent can do**\
+`The Cubs fell short again in the battle of "intelligent spending" (Chicago) vs. a team dishing out "stupid" money (Philadelphia).`\
+https://nytimes.com/athletic/5613243/2024/07/03/cubs-lose-to-phillies/
+
 **How Yankees, Luis Gil are explaining shocking slump**\
 `“It's tough,” Gil said, “but there's no giving up. That's what it is. You keep battling. You keep fighting, and then you turn it around.”`\
 https://nytimes.com/athletic/5613249/2024/07/03/yankees-luis-gil-slump-explanation/
