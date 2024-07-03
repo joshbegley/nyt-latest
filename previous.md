@@ -1,3 +1,7 @@
+**Hurricane Beryl Caused ‘Unimaginable’ Damage in Grenada, Leader Says**\
+`As the storm headed for Jamaica, officials were assessing what Grenada’s prime minister called “total” devastation on two of the country’s islands.`\
+https://nytimes.com/2024/07/03/world/americas/hurricane-beryl-grenada.html
+
 **Turkey and the positivity of pressure: Montella's team are riding an emotional wave at Euro 2024**\
 `Turkey's coach has endured intense scrutiny in his role but has succeeded in propelling a young, thrilling side into the quarter-finals`\
 https://nytimes.com/athletic/5612595/2024/07/03/turkey-montella-austria-leipzig-guler/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/03/opinion/america-russia-china-debate.html
 **Competitive Eaters Are Just Like Us. Give or Take a Dozen Hot Dogs.**\
 `These titans of caloric consumption aren’t signing deals or getting specials, but they form the backbone of an American tradition.`\
 https://nytimes.com/2024/07/03/dining/chestnut-kobayashi-competitive-eaters.html
-
-**Britain’s Next Prime Minister Has Shown Us Who He Is, and It’s Not Good**\
-`Keir Starmer is set to carry a deeply authoritarian impulse into government.`\
-https://nytimes.com/2024/07/03/opinion/britain-election-keir-starmer.html
 
