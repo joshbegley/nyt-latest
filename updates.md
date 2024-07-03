@@ -1,3 +1,7 @@
+**The Pulse: The quietly shocking end of an NBA dynasty**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5612567/2024/07/03/klay-thompson-warriors-mavericks/
+
 **U.S. Allies See a Worrisome Turn in Presidential Immunity Ruling**\
 `Legal experts say the U.S. Supreme Court ruling pushes past most of the norms in effect among American allies, adding more concern about the reliability of U.S. power.`\
 https://nytimes.com/2024/07/03/world/asia/supreme-court-immunity-allies.html
