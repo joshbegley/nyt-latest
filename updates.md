@@ -1,3 +1,7 @@
+**‘Space Cadet’ Review: Emma Roberts Shoots for the Stars**\
+`In a lightweight comedy, the actress plays a bartender who dreams of becoming an astronaut. One problem: She has no qualifications for the job.`\
+https://nytimes.com/2024/07/03/movies/space-cadet-review.html
+
 **13,000 Are Ordered to Evacuate as Wildfire Spreads in Northern California**\
 `A wildfire that began in Butte County, Calif., on Tuesday morning has burned more than 3,000 acres and threatened residents of the city of Oroville.`\
 https://nytimes.com/2024/07/03/us/thompson-wildfire-oroville-california.html
