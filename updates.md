@@ -1,3 +1,11 @@
+**Packing for Camp? Leave Your Sephora Hauls at Home**\
+`As young girls continue to embrace elaborate skin care routines, summer camps want to focus on inner beauty.`\
+https://nytimes.com/2024/07/03/style/summer-camp-skincare-routine.html
+
+**The Bounce: What's next in NBA free agency?**\
+`Zach Harper and Shams Charania catch you up on leaguewide news.`\
+https://nytimes.com/athletic/5613958/2024/07/03/lebron-james-lakers-donovan-mitchell-cavaliers-nba-free-agency-the-bounce/
+
 **Heritage Foundation Head Refers to ‘Second American Revolution’**\
 `Kevin Roberts, president of the group that has coordinated the Project 2025 policy plan, said it could be “bloodless if the left allows it to be.”`\
 https://nytimes.com/2024/07/03/us/politics/heritage-foundation-revolution-bloodless.html
