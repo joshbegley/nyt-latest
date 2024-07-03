@@ -1,3 +1,7 @@
+**PSG Women close to appointing Abriel as new head coach**\
+`Paris Saint-Germain are close to appointing Fabrice Abriel as the new head coach of their women’s team.`\
+https://nytimes.com/athletic/5610810/2024/07/03/psg-fabrice-abriel/
+
 **The Man Behind the Minions**\
 `Pierre Coffin helped invent the yellow animated creatures and has supplied their voices for nearly 15 years. He’s as puckish and subversive as his mischievous creations.`\
 https://nytimes.com/2024/07/03/arts/television/minions-despicable-me-4-pierre-coffin.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/06/25/opinion/thepoint/what-voters-in-france-and-b
 **Some People Love ‘The Bear’ … for Its Style**\
 `Carmy’s white T-shirt has a fan base all its own.`\
 https://nytimes.com/2024/07/03/style/the-bear-show-style.html
-
-**In Immunity Decision, Clashing Views of the Nature of Politics**\
-`The Supreme Court’s conservative majority largely embraced Donald Trump’s dark view of tit-for-tat partisan prosecutions while liberals cited the prospect of power unchecked by legal accountability.`\
-https://nytimes.com/2024/07/03/us/politics/supreme-court-immunity-decision.html
 
