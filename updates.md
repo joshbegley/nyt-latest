@@ -1,3 +1,7 @@
+**Ipswich make joint bid for Hull duo Greaves and Philogene**\
+`Ipswich Town have made a joint bid in the region of £35million plus add-ons for Hull City duo Jacob Greaves and Jaden Philogene.`\
+https://nytimes.com/athletic/5614009/2024/07/03/ipswich-town-greaves-philogene/
+
 **Bayern Munich agree transfer deal to sign Fulham midfielder Joao Palhinha**\
 `Bayern Munich have reached an agreement worth €51million (£43.`\
 https://nytimes.com/athletic/5613937/2024/07/03/joao-palhinha-fulham-bayern-munich-transfer/
