@@ -1,3 +1,7 @@
+**How Yankees, Luis Gil are explaining shocking slump**\
+`“It's tough,” Gil said, “but there's no giving up. That's what it is. You keep battling. You keep fighting, and then you turn it around.”`\
+https://nytimes.com/athletic/5613249/2024/07/03/yankees-luis-gil-slump-explanation/
+
 **China Seizes Taiwanese Fishing Boat in Latest Uptick in Tensions**\
 `The authorities in Taipei have demanded Beijing release the boat and its five crew members, who are being held in custody.`\
 https://nytimes.com/2024/07/03/world/asia/china-taiwan-boat.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5611189/2024/07/03/de-bruyne-manchester-city-future
 **Hurzeler shares much with De Zerbi but is keen to stamp own authority on Brighton**\
 `What came across most during Hurzeler's official unveiling was that he is very much his own man and will have his own way of doing things`\
 https://nytimes.com/athletic/5611208/2024/07/03/fabian-hurzeler-brighton-expectations/
-
-**Spencer Arrighetti's struggles heighten Astros' need for rotation help**\
-`“The league adjusts really fast,” Arrighetti said, “and I need to adjust at the same rate.”`\
-https://nytimes.com/athletic/5613218/2024/07/03/spencer-arrighetti-astros-rotation-help/
 
