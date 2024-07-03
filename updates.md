@@ -1,3 +1,7 @@
+**More polyester than pizzazz - rating Copa America manager fashion**\
+`The never-ending Berhalter sneaker collection and the impeccable Lozano fit bode well at Copa America but The Athletic is not impressed`\
+https://nytimes.com/athletic/5607414/2024/07/03/copa-america-manager-berhalter-fashion/
+
 **Fourth of July Will Be a Scorcher for Most of the U.S.**\
 `Much of the country will endure temperatures that are above average for this time of the year.`\
 https://nytimes.com/2024/07/03/weather/fourth-of-july-forecast-heat.html
