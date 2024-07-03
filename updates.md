@@ -1,4 +1,8 @@
 **Messi to be assessed ahead of Argentina's clash vs Ecuador**\
+`Argentina head coach Lionel Scaloni says captain Lionel Messi will be further assessed in training later today to determine his availability for their Copa America quarter-final against Ecuador.`\
+https://nytimes.com/athletic/5615349/2024/07/03/lionel-messi-argentina-ecuador-copa-america/
+
+**Messi to be assessed ahead of Argentina's clash vs Ecuador**\
 `Argentina head coach Lionel Scaloni says Lionel Messi will be further assessed in training later today to determine his availability for their Copa America quarter-final against Ecuador.`\
 https://nytimes.com/athletic/5615349/2024/07/03/lionel-messi-argentina-ecuador-copa-america/
 
