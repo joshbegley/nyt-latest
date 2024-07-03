@@ -1,3 +1,7 @@
+**Biden spoke with Schumer for the first time since the debate.**\
+`President Biden has begun reaching out to legislative allies amid intense fears about the potential damage to down ballot Democratic candidates amid fallout from his halting performance.`\
+https://nytimes.com/live/2024/07/03/us/biden-trump-election/biden-spoke-with-schumer-for-the-first-time-since-the-debate
+
 **Manchester United women's team to train at St. George's Park**\
 `Manchester United are considering using St.`\
 https://nytimes.com/athletic/5614408/2024/07/03/man-united-women-training-facilities/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/03/dining/the-bear-season-3-restaurant.html
 **If Biden Doesn’t Run, Nominate …**\
 `Readers’ suggestions include Kamala Harris, Cory Booker, Chuck Schumer, Joe Manchin, Al Gore and Andy Beshear.`\
 https://nytimes.com/2024/07/03/opinion/letters/joe-biden-alternative-candidates.html
-
-**Qatar sent a new suggested cease-fire proposal to Hamas last week, officials say.**\
-`By Ronen Bergman and Aaron Boxerman`\
-https://nytimes.com/live/2024/07/03/world/israel-gaza-war-hamas/qatar-sent-a-new-suggested-cease-fire-proposal-to-hamas-last-week-officials-say
 
