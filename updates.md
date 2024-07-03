@@ -1,3 +1,7 @@
+**Police investigating tunnel fracas between fan and Euro 2024 stewards**\
+`German police have confirmed they are investigating after video footage on social media appeared to show a fan being assaulted by stadium security staff during the European Championship last-16 fixture between Portugal and Slovenia.`\
+https://nytimes.com/athletic/5612432/2024/07/03/police-euro-2024-tunnel-fan/
+
 **Salah and Endo to miss Olympics**\
 `Mohamed Salah and Wataru Endo will be available for Liverpool’s full pre-season schedule as they won’t be featuring at the Olympics.`\
 https://nytimes.com/athletic/5613504/2024/07/03/mohamed-salah-olympics/
