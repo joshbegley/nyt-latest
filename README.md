@@ -1,3 +1,7 @@
+**Messi to be assessed ahead of Argentina's clash vs Ecuador**\
+`Argentina head coach Lionel Scaloni says Lionel Messi will be further assessed in training later today to determine his availability for Argentina&#8217;s Copa America quarter-final against Ecuador.`\
+https://nytimes.com/athletic/5615349/2024/07/03/lionel-messi-argentina-ecuador-copa-america/
+
 **Tarasenko, Red Wings agree to 2-year, $9.5 million deal**\
 `In 76 regular-season games played in 2023-24, Tarasenko recorded 23 goals and 32 assists.`\
 https://nytimes.com/athletic/5615362/2024/07/03/vladimir-tarasenko-red-wings-contract/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5613787/2024/07/03/tennis-racket-smash-penalty-dang
 **Bath, Fraser depart Chelsea amid academy management restructure**\
 `Neil Bath and Jim Fraser have both left Chelsea ahead of a significant restructuring of the club’s academy management team.`\
 https://nytimes.com/athletic/5615313/2024/07/03/neil-bath-jim-fraser-chelsea-leave/
-
-**Thursday Briefing: What’s at Stake in Britain’s Elections**\
-`Plus, an ally said Biden is considering leaving the race.`\
-https://nytimes.com/2024/07/03/briefing/britain-elections.html
 
