@@ -1,3 +1,15 @@
+**Biden’s day: A meeting with Democratic governors and awarding the Medal of Honor.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/07/03/us/biden-trump-election/bidens-day-a-meeting-with-democratic-governors-and-awarding-the-medal-of-honor
+
+**Could Toni Kroos' retirement be the closest to perfect in sporting history?**\
+`Germany’s generational playmaker and the art of the ultimate retirement in professional sport`\
+https://nytimes.com/athletic/5614192/2024/07/03/perfect-retirements-toni-kroos-euro-2024/
+
+**Crafting a Wardrobe by America’s Finest Artisans**\
+`One former fashion editor’s quest to find the country’s craftspeople to create quietly patriotic, heirloom-worthy fashion.`\
+https://nytimes.com/2024/07/03/style/crafting-a-wardrobe-by-americas-finest-artisans.html
+
 **Did You Find These Easter Eggs in ‘The Bear’?**\
 `Subtle, and not so subtle, culinary references are sprinkled throughout out the show’s third season.`\
 https://nytimes.com/2024/07/03/dining/season-3-the-bear-easter-eggs.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5613958/2024/07/03/lebron-james-lakers-donovan-mitc
 **Heritage Foundation Head Refers to ‘Second American Revolution’**\
 `Kevin Roberts, president of the group that has coordinated the Project 2025 policy plan, said it could be “bloodless if the left allows it to be.”`\
 https://nytimes.com/2024/07/03/us/politics/heritage-foundation-2025-policy-america.html
-
-**How Reliant Is the U.S. on Avocados From Mexico?**\
-`A temporary halt on inspections by U.S.D.A. workers in Mexico on safety concerns highlighted how dependent the United States had become on one region for supplies of the popular fruit.`\
-https://nytimes.com/2024/07/03/business/avocado-imports-mexico.html
-
-**A Group of Business Leaders Call on Biden to Step Aside**\
-`As Democratic donors increasingly warm to a change, a coalition of politically active executives is among the first to publicly speak out.`\
-https://nytimes.com/2024/07/03/us/politics/business-leaders-biden.html
-
-**Emiliano Martinez: Hated by opponents, loved by Argentina, endlessly entertaining**\
-`Martinez is adored in his home country - and a big part of their Copa America title defence`\
-https://nytimes.com/athletic/5614081/2024/07/03/emiliano-martinez-argentina-copa-america/
 
