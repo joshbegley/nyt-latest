@@ -1,3 +1,15 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/03/crosswords/spelling-bee-forum.html
+
+**New York City’s Worst Water Bill Delinquent? New York State.**\
+`The Metropolitan Transportation Authority and two other state entities owe $76.5 million in unpaid city water bills at a time when the city is raising water rates.`\
+https://nytimes.com/2024/07/03/nyregion/water-bill-delinquents-nyc.html
+
+**New Jersey Is One of America’s Fastest-Warming States, Data Shows**\
+`Global warming is hitting the entire Northeast particularly hard, according to figures provided by Climate Central, a nonprofit group.`\
+https://nytimes.com/2024/07/03/nyregion/new-jersey-warming-climate-change.html
+
 **Simons - YouTube star aged 10, risk taker, assist maker. But he is at a crossroads... again**\
 `The Netherlands forward is perhaps the best player still at the Euros who is far from certain where they will be playing next season`\
 https://nytimes.com/athletic/5612953/2024/07/03/xavi-simons-netherlands-euros-psg/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5613353/2024/07/03/phillies-michael-mercado-first-b
 **The chaos of Austria vs Turkey: part Bundesliga, part South America, part lower-league**\
 `Turkey are through to the quarter-finals after an exciting win over Austria which had a bit of everything`\
 https://nytimes.com/athletic/5612728/2024/07/03/austria-turkey-tactics/
-
-**How China and Russia Compete, and Cooperate, in Central Asia**\
-`China’s leader, Xi Jinping, and President Vladimir V. Putin of Russia are courting regional leaders and pushing an alternative to the U.S.-led order.`\
-https://nytimes.com/2024/07/03/world/asia/china-russia-central-asia.html
-
-**They Came for Spiritual Revival, Only to Be Trapped in a Deadly Panic**\
-`Family members streamed to hospitals in the Indian state of Uttar Pradesh to identify loved ones after at least 121 people — nearly all women — died in a stampede at a guru’s gathering.`\
-https://nytimes.com/2024/07/03/world/asia/india-stampede-deaths.html
-
-**Giants win in Atlanta behind a rookie pitcher and another stellar night from Heliot Ramos**\
-`Hayden Birdsong got his first major-league victory and San Francisco enjoyed the rarity of back-to-back wins from starting pitchers. `\
-https://nytimes.com/athletic/5613363/2024/07/03/giants-win-in-atlanta/
 
