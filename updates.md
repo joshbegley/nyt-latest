@@ -1,3 +1,7 @@
+**Brewers acquire right-hander Aaron Civale from Rays: Source**\
+`The move boosts Milwaukee's (51-35) starting rotation, which ranks near the bottom in innings pitched.`\
+https://nytimes.com/athletic/5614239/2024/07/03/brewers-rays-trade-aaron-civale/
+
 **Brewers acquire right-hander Aaron Civale from Rays: source**\
 `The move boosts Milwaukee's (51-35) starting rotation, which ranks near the bottom in innings pitched.`\
 https://nytimes.com/athletic/5614239/2024/07/03/brewers-rays-trade-aaron-civale/
