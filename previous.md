@@ -1,3 +1,7 @@
+**What to See in N.Y.C. Galleries in July**\
+`This week in Newly Reviewed, Yinka Elujoba covers Elmer Guevara’s subtle paintings, James Casebere’s reimagined architecture and John Ahearn and Rigoberto Torres’s busts of Bronx residents.`\
+https://nytimes.com/2024/07/02/arts/design/nyc-gallery-shows-july.html
+
 **Iran’s Runoff Election: What to Know**\
 `Two candidates from opposite camps will compete for the presidency after no one garnered the number of votes needed last week to win.`\
 https://nytimes.com/2024/07/02/world/middleeast/iran-runoff-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5588622/2024/07/02/bianca-andreescu-interview-tenni
 **Yes, the Starliner Is Stuck in Space**\
 `This isn’t how the new era of space was billed.`\
 https://nytimes.com/live/2024/07/02/opinion/thepoint/yes-the-starliner-is-stuck-in-space
-
-**What Would a Better Israeli Prime Minister Do?**\
-`The leaders who brought Israel into crisis won’t be able to bring it out of it.`\
-https://nytimes.com/2024/07/02/opinion/israel-netanyahu.html
 

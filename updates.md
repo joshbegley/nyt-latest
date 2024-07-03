@@ -1,3 +1,7 @@
+**What to See in N.Y.C. Galleries in July**\
+`This week in Newly Reviewed, Yinka Elujoba covers Elmer Guevara’s subtle paintings, James Casebere’s reimagined architecture and John Ahearn and Rigoberto Torres’s busts of Bronx residents.`\
+https://nytimes.com/2024/07/02/arts/design/nyc-gallery-shows-july.html
+
 **Iran’s Runoff Election: What to Know**\
 `Two candidates from opposite camps will compete for the presidency after no one garnered the number of votes needed last week to win.`\
 https://nytimes.com/2024/07/02/world/middleeast/iran-runoff-election.html
