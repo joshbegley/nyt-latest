@@ -1,3 +1,7 @@
+**Giants 'Hard Knocks' takeaways: Exploring a Saquon Barkley trade and 'not giving up' on Daniel Jones**\
+`The Giants explored all scenarios involving Barkley, including using the franchise tag on him and then trading the star RB. `\
+https://nytimes.com/athletic/5613074/2024/07/02/new-york-giants-hard-knocks-joe-schoen-saquon-barkley/
+
 **Nordic Toast**\
 `Juliana Tringali Golden looks ahead.`\
 https://nytimes.com/2024/07/02/crosswords/daily-puzzle-2024-07-03.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5612439/2024/07/02/pavel-buchnevich-extension-blues
 **What to See in N.Y.C. Galleries in July**\
 `This week in Newly Reviewed, Yinka Elujoba covers Elmer Guevara’s subtle paintings, James Casebere’s reimagined architecture and John Ahearn and Rigoberto Torres’s busts of Bronx residents.`\
 https://nytimes.com/2024/07/02/arts/design/nyc-gallery-shows-july.html
-
-**Iran’s Runoff Election: What to Know**\
-`Two candidates from opposite camps will compete for the presidency after no one garnered the number of votes needed last week to win.`\
-https://nytimes.com/2024/07/02/world/middleeast/iran-runoff-election.html
 
