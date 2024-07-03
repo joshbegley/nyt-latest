@@ -1,3 +1,7 @@
+**Menendez Defense Rests Without Senator Testifying**\
+`Senator Robert Menendez of New Jersey is accused of a wide-ranging international bribery conspiracy. Jurors are likely to begin deliberating next week.`\
+https://nytimes.com/2024/07/03/nyregion/robert-menendez-bribery-trial.html
+
 **If Biden Drops Out, How Long Do Democrats Have to Pick a Nominee?**\
 `The party’s official nominating convention is in mid-August, but to appear on the ballot in Ohio, candidates must be certified by Aug. 7.`\
 https://nytimes.com/2024/07/03/us/politics/biden-drop-out-2024-election.html
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2024/07/03/us/elections/biden-withdrawal-democra
 **Judge Backs Challenge to F.T.C.’s Noncompete Ban, at Least for Now**\
 `Granting an injunction to several plaintiffs, a judge said the Federal Trade Commission’s pending ban on noncompete agreements was unlikely to prevail.`\
 https://nytimes.com/2024/07/03/business/ftc-noncompete-ban-injunction.html
-
-**Israel releases Palestinian Authority funds while claiming more West Bank land.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/07/03/world/israel-gaza-war-hamas/israel-releases-palestinian-authority-funds-while-claiming-more-west-bank-land
 
