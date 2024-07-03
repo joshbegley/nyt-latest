@@ -1,3 +1,15 @@
+**Democrats’ leaders in Congress are not urging them to rally around Biden.**\
+`By Luke Broadwater and Maya C. Miller`\
+https://nytimes.com/live/2024/07/03/us/biden-trump-election/democrats-leaders-in-congress-are-not-urging-them-to-rally-around-biden
+
+**Nikki Hiltz, transgender, nonbinary runner, qualifies for Olympics**\
+`Hiltz, who identifies as transgender and nonbinary, earned a ticket to Paris with a meet-record run in the women's 1500-meter final.`\
+https://nytimes.com/athletic/5614255/2024/07/03/nikki-hiltz-transgender-nonbinary-runner-olympics/
+
+**The Windup: A trade! Deadline season is here**\
+`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
+https://nytimes.com/athletic/5614639/2024/07/03/brewers-aaron-civale-trade-tim-anderson-the-windup/
+
 **Man United part owner Avram Glazer fails in bid for NWSL club Angel City**\
 `Avram Glazer, a part owner of Manchester United and a member of the Glazer family who retain a majority stake in the club, has failed in a bid to become the controlling shareholder of NWSL side Angel City.`\
 https://nytimes.com/athletic/5614531/2024/07/03/man-united-avram-glazer-angel-city-bid/
