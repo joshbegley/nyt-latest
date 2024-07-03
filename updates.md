@@ -1,3 +1,11 @@
+**They Came for Spiritual Revival, Only to Be Trapped in a Deadly Panic**\
+`Family members streamed to hospitals in the Indian state of Uttar Pradesh to identify loved ones after at least 121 people — nearly all women — died in a stampede at a religious gathering.`\
+https://nytimes.com/2024/07/03/world/asia/india-stampede-deaths.html
+
+**Giants win in Atlanta behind a rookie pitcher and another stellar night from Heliot Ramos**\
+`Hayden Birdsong got his first major league victory and San Francisco enjoyed the rarity of back-to-back wins from starting pitchers. `\
+https://nytimes.com/athletic/5613363/2024/07/03/giants-win-in-atlanta/
+
 **Fantasy baseball mailbag: Looking at second-half expectations for Corbin Carroll, Dylan Cease and more**\
 `Adam Ronis handles your fantasy baseball questions about Corbin Carroll, Dylan Cease, Oneil Cruz and more.`\
 https://nytimes.com/athletic/5612902/2024/07/03/fantasy-baseball-mailbag-2nd-half-expectations-corbin-carroll/
