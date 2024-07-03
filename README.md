@@ -1,3 +1,7 @@
+**What’s Better Than S’mores? A Giant S’mores Tart**\
+`No campfire? No problem. This tart and a second, simple recipe from Melissa Clark’s YouTube series, “Shortcut vs. Showstopper” can easily be made in the oven.`\
+https://nytimes.com/2024/07/03/dining/smores.html
+
 **The Best Beach Umbrella Is Not Actually an Umbrella**\
 `It's a sunshade.`\
 https://nytimes.com/interactive/2024/07/03/smarter-living/wirecutter/sun-shade.html
@@ -29,8 +33,4 @@ https://nytimes.com/card/2024/07/03/travel/nyc-observation-decks
 **Explained: Manchester United's plan to cut 250 jobs**\
 `Sir Jim Ratcliffe, the co-owner, is determined to cut costs at Manchester United - and now 250 staff members are to lose their jobs`\
 https://nytimes.com/athletic/5614630/2024/07/03/manchester-united-job-cuts-250-explained/
-
-**‘The Bear’ Gets a Glow Up. Is That a Good Thing?**\
-`Styles staffers talk about the show’s turn to fine dining and its flashy cameos.`\
-https://nytimes.com/2024/07/03/style/the-bear-glow-up.html
 
