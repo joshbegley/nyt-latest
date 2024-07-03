@@ -1,3 +1,7 @@
+**Twins promoting prospect Brooks Lee to majors: Sources**\
+`MINNEAPOLIS — The Twins are promoting their top major-league-ready prospect, Brooks Lee, according to multiple club sources.`\
+https://nytimes.com/athletic/5615277/2024/07/03/twins-promote-brooks-lee-major-league-debut/
+
 **Dalibor Dvorsky, Jimmy Snuggerud on different paths to Blues, but both ready to land soon**\
 `Dvorsky and Snuggerud were standouts at development camp this week and look well on their way to cracking the Blues' lineup.`\
 https://nytimes.com/athletic/5614655/2024/07/03/dalibor-dvorsky-jimmy-snuggerud-on-different-paths-to-blues-but-both-ready-to-land-soon/
