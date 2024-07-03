@@ -1,3 +1,7 @@
+**Simons - YouTube star aged 10, risk taker, assist maker. But he is at a crossroads... again**\
+`The Netherlands forward is perhaps the best player still at the Euros who is far from certain where they will be playing next season`\
+https://nytimes.com/athletic/5612953/2024/07/03/xavi-simons-netherlands-euros-psg/
+
 **Dan Ashworth will be judged on Man Utd's recruitment - this is how it works (and how it doesn't)**\
 `This is the inside story of how recruitment works at Manchester United, how it doesn't and what is expected to change`\
 https://nytimes.com/athletic/5539692/2024/07/03/dan-ashworth-manchester-united-recruitment/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/03/world/asia/india-stampede-deaths.html
 **Giants win in Atlanta behind a rookie pitcher and another stellar night from Heliot Ramos**\
 `Hayden Birdsong got his first major-league victory and San Francisco enjoyed the rarity of back-to-back wins from starting pitchers. `\
 https://nytimes.com/athletic/5613363/2024/07/03/giants-win-in-atlanta/
-
-**Fantasy baseball mailbag: Looking at second-half expectations for Corbin Carroll, Dylan Cease and more**\
-`Adam Ronis handles your fantasy baseball questions about Corbin Carroll, Dylan Cease, Oneil Cruz and more.`\
-https://nytimes.com/athletic/5612902/2024/07/03/fantasy-baseball-mailbag-2nd-half-expectations-corbin-carroll/
 
