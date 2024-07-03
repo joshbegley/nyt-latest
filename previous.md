@@ -1,3 +1,11 @@
+**Democrats’ Anxiety on Display as Jill Biden Opens Michigan Campaign Office**\
+`The first lady said President Biden would press ahead despite concerns about his acuity. Some Democrats said they wished he wouldn’t.`\
+https://nytimes.com/2024/07/03/us/jill-biden-michigan-campaign-office.html
+
+**Saks Owner Is Said to Acquire Neiman Marcus in High-End Retail Deal**\
+`HBC, the parent of Saks Fifth Avenue, would acquire Neiman Marcus for $2.65 billion.`\
+https://nytimes.com/2024/07/03/business/saks-fifth-avenue-neiman-marcus.html
+
 **Rob Stone, Master Marketer of Hip-Hop, Is Dead at 55**\
 `A founder of the influential music magazine The Fader, he also bridged the worlds of hip-hop and the Fortune 500 with his innovative marketing agency.`\
 https://nytimes.com/2024/07/03/arts/music/rob-stone-dead.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5615324/2024/07/03/joost-luiten-olympics-golf-nethe
 **‘Despicable Me 4’ Review: This Time They’re Superheroes**\
 `The crew is back, but this time around they need to lie low. Sort of.`\
 https://nytimes.com/2024/07/03/movies/despicable-me-4-review.html
-
-**Angels closer Carlos Estévez discusses resurgence and the possibility of getting traded**\
-`"Whatever comes, it is what it is. It is baseball. It’s a game that we all love, but at the same time, it is a business," Estévez said.`\
-https://nytimes.com/athletic/5615276/2024/07/03/angels-carlos-estevez-trade-deadline-rumors/
-
-**Twins top prospect Brooks Lee to debut as Royce Lewis lands on injured list**\
-`The Twins promoted their top major-league-ready prospect, Brooks Lee, and placed Royce Lewis on the IL with a right adductor strain.`\
-https://nytimes.com/athletic/5615277/2024/07/03/twins-brooks-lee-major-league-debut-royce-lewis-injured/
 

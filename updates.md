@@ -1,3 +1,11 @@
+**Democrats’ Anxiety on Display as Jill Biden Opens Michigan Campaign Office**\
+`The first lady said President Biden would press ahead despite concerns about his acuity. Some Democrats said they wished he wouldn’t.`\
+https://nytimes.com/2024/07/03/us/jill-biden-michigan-campaign-office.html
+
+**Saks Owner Is Said to Acquire Neiman Marcus in High-End Retail Deal**\
+`HBC, the parent of Saks Fifth Avenue, would acquire Neiman Marcus for $2.65 billion.`\
+https://nytimes.com/2024/07/03/business/saks-fifth-avenue-neiman-marcus.html
+
 **Twins top prospect Brooks Lee to debut as Royce Lewis lands on injured list**\
 `The Twins promoted their top major-league-ready prospect, Brooks Lee, and placed Royce Lewis on the IL with a right adductor strain.`\
 https://nytimes.com/athletic/5615277/2024/07/03/twins-brooks-lee-major-league-debut-royce-lewis-injured/
