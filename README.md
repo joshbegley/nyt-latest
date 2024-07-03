@@ -1,5 +1,5 @@
 **‘The Bear’ Gets a Glow Up. Is That a Good Thing?**\
-`Staff staffers talk about the show’s turn to fine dining and its flashy cameos.`\
+`Styles staffers talk about the show’s turn to fine dining and its flashy cameos.`\
 https://nytimes.com/2024/07/03/style/the-bear-gets-a-glow-up-is-that-a-good-thing.html
 
 **What’s in Our Queue? ‘One Day’ and More**\
