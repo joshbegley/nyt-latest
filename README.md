@@ -1,4 +1,4 @@
-**NWSL Championship will be played at new Kansas City stadium**\
+**NWSL championship will be played at new Kansas City stadium**\
 `The KC Current has had sellout crowds every game this season.`\
 https://nytimes.com/athletic/5614110/2024/07/03/nwsl-championship-kansas-city-stadium/
 
