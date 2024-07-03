@@ -1,3 +1,11 @@
+**British Teenager’s Disappearance Spurs Speculation and Sleuthing**\
+`Jay Slater disappeared on the Spanish island of Tenerife last month. His whereabouts sparked intense online speculation.`\
+https://nytimes.com/2024/07/03/world/europe/jay-slater-missing-tenerife.html
+
+**Manchester United to make 250 staff members redundant**\
+`Manchester United today told staff that the club is intending to cut 250 jobs as new co-owner Sir Jim Ratcliffe continues his bid to slash costs at Old Trafford.`\
+https://nytimes.com/athletic/5611715/2024/07/03/manchester-united-job-cuts/
+
 **Ndiaye is the natural No 10 Everton need - and could bring best out of Doucoure too**\
 `Everton have been long-term admirers of the gifted and hard-working forward. He will bring a different dimension to Sean Dyche's team`\
 https://nytimes.com/athletic/5592636/2024/07/03/iliman-ndiyae-everton-transfer/
