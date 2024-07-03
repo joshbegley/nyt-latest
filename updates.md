@@ -1,3 +1,19 @@
+**Bayern Munich agree transfer deal to sign Fulham midfielder Joao Palhina**\
+`Bayern Munich have reached an agreement worth €51million (£43.`\
+https://nytimes.com/athletic/5613937/2024/07/03/joao-palhinha-fulham-bayern-munich-transfer/
+
+**Why Klay Thompson chose the Mavericks over the Lakers and put the Warriors in his past**\
+`Thompson felt wanted by the Mavs — and saw a chance to win his fifth title.`\
+https://nytimes.com/athletic/5613541/2024/07/03/klay-thompson-dallas-mavericks-lakers-free-agency/
+
+**If Not President Biden, Then Who?**\
+`Democrats and donors are pondering who could be the best alternative to take on Donald Trump after faltering attempts to calm nerves following last week’s debate.`\
+https://nytimes.com/2024/07/03/business/dealbook/biden-donors-harris.html
+
+**James Rodriguez is lighting up Copa America and at the heart of Colombia's incredible run**\
+`Colombia are now 26 games unbeaten and head into their Copa America quarter-final with Panama as strong favourites to extend that`\
+https://nytimes.com/athletic/5613462/2024/07/03/james-rodriguez-colombia-copa-america-2/
+
 **Shane van Gisbergen on adjusting to NASCAR and discovering the Bloomin' Onion: 12 Questions**\
 `Shane van Gisbergen talks about navigating American media, similarities between NASCAR and Supercars, and a certain "Australian" food item.`\
 https://nytimes.com/athletic/5601542/2024/07/03/shane-van-gisbergen-nascar-chicago-12-questions/

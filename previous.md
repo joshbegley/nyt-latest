@@ -1,3 +1,15 @@
+**Bayern Munich agree transfer deal to sign Fulham midfielder Joao Palhina**\
+`Bayern Munich have reached an agreement worth €51million (£43.`\
+https://nytimes.com/athletic/5613937/2024/07/03/joao-palhinha-fulham-bayern-munich-transfer/
+
+**Why Klay Thompson chose the Mavericks over the Lakers and put the Warriors in his past**\
+`Thompson felt wanted by the Mavs — and saw a chance to win his fifth title.`\
+https://nytimes.com/athletic/5613541/2024/07/03/klay-thompson-dallas-mavericks-lakers-free-agency/
+
+**If Not President Biden, Then Who?**\
+`Democrats and donors are pondering who could be the best alternative to take on Donald Trump after faltering attempts to calm nerves following last week’s debate.`\
+https://nytimes.com/2024/07/03/business/dealbook/biden-donors-harris.html
+
 **Shane van Gisbergen on adjusting to NASCAR and discovering the Bloomin' Onion: 12 Questions**\
 `Shane van Gisbergen talks about navigating American media, similarities between NASCAR and Supercars, and a certain "Australian" food item.`\
 https://nytimes.com/athletic/5601542/2024/07/03/shane-van-gisbergen-nascar-chicago-12-questions/
@@ -15,7 +27,7 @@ https://nytimes.com/athletic/5611715/2024/07/03/manchester-united-job-cuts/
 https://nytimes.com/athletic/5592636/2024/07/03/iliman-ndiyae-everton-transfer/
 
 **James Rodriguez is lighting up Copa America and at the heart of Colombia's incredible run**\
-`Colombia are now 26 games unbeaten, and head into their Copa America quarter-final with Panama as strong favourites to extend that`\
+`Colombia are now 26 games unbeaten and head into their Copa America quarter-final with Panama as strong favourites to extend that`\
 https://nytimes.com/athletic/5613462/2024/07/03/james-rodriguez-colombia-copa-america-2/
 
 **Andy Murray and Emma Raducanu to play Wimbledon mixed doubles**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5613864/2024/07/03/andy-murray-emma-raducanu-mixed-
 **Iliman Ndiaye to Everton: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Iliman Ndiaye's move to Everton`\
 https://nytimes.com/athletic/5587652/2024/07/03/iliman-ndiaye-to-everton-transfer-rating/
-
-**Everton confirm Ndiaye signing from Marseille**\
-`Everton have completed the signing of Iliman Ndiaye from Marseille on a five-year contract through to 2029.`\
-https://nytimes.com/athletic/5606198/2024/07/03/iliman-ndiaye-everton-signing/
-
-**Two-sport athlete Brody Brecht traded football for a shot at MLB stardom**\
-`Brody Brecht lived one dream as a two-sport athlete at Iowa. Now he's about to live another in professional baseball.`\
-https://nytimes.com/athletic/5606772/2024/07/03/brody-brecht-mlb-draft-iowa-football-baseball/
-
-**Maxx Crosby and Raiders' defensive line continues its push to be among NFL's best**\
-`Seven Raiders, including Crosby, Malcolm Koonce and Tyree Wilson, attended the Sack Summit over the weekend to learn from the league's best.`\
-https://nytimes.com/athletic/5609958/2024/07/03/raiders-maxx-crosby-sack-summit/
 
