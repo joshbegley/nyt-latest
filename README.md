@@ -1,3 +1,7 @@
+**Tigers announcer Craig Monroe absent from broadcast due to sexual abuse allegations**\
+`Monroe, the Tigets' lead color analyst, has not called a game since June 9.  `\
+https://nytimes.com/athletic/5612741/2024/07/02/craig-monroe-tigers-sexual-abuse-allegations/
+
 **Inside the Blues' Pavel Buchnevich talks — and how they got him extended without going max term**\
 `Per his agent, Buchnevich "doesn't want to be a player that is just collecting money. He wants to earn what he's making."`\
 https://nytimes.com/athletic/5612439/2024/07/02/pavel-buchnevich-extension-blues/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/02/us/politics/garry-conille-haiti-democrats.html
 **Lloyd Doggett, a Texas Progressive, Cracks the Democratic Dam for Biden**\
 `The veteran congressman, once a prominent voice for his party’s left flank on Capitol Hill, said aloud what some Democrats have privately whispered in the days since the president’s debate performance.`\
 https://nytimes.com/2024/07/02/us/who-is-lloyd-doggett-biden.html
-
-**'The more I get injured, the more I learn about myself': Bianca Andreescu takes it in her stride**\
-`Bianca Andreescu's return to her best tennis started with thinking about it as little as possible`\
-https://nytimes.com/athletic/5588622/2024/07/02/bianca-andreescu-interview-tennis-injuries/
 
