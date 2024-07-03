@@ -1,3 +1,11 @@
+**Here’s how to help the hurricane victims in the Caribbean.**\
+`By Eve Sampson`\
+https://nytimes.com/live/2024/07/03/weather/hurricane-beryl/heres-how-to-help-the-hurricane-victims-in-the-caribbean
+
+**More Jake Middleton, more 'Tarps Off' for the Wild, who lock up a character and social-media star**\
+`The defenseman with the big stache, missing teeth and tattooed left sleeve discussed his four-year, $17.4 million extension.`\
+https://nytimes.com/athletic/5614988/2024/07/03/jake-middleton-wild-tarps-off/
+
 **What’s Better Than S’mores? A Giant S’mores Tart**\
 `No campfire? No problem. This tart and a second, simple recipe from Melissa Clark’s YouTube series, “Shortcut vs. Showstopper” can easily be made in the oven.`\
 https://nytimes.com/2024/07/03/dining/smores.html
@@ -25,12 +33,4 @@ https://nytimes.com/live/2024/07/03/world/israel-gaza-war-hamas/hezbollah-respon
 **Jamaican Airports Shut Down, Stranding Travelers and Snarling Plans**\
 `The island’s three main international air hubs will remain closed through at least Wednesday night, and many airlines are waiving change and cancellation fees.`\
 https://nytimes.com/2024/07/03/weather/hurricane-beryl-jamaica-airports.html
-
-**High Above New York, a Battle for Tourist Dollars**\
-`Our writer took four ear-popping elevator journeys high above Midtown Manhattan to experience amusement-park-like adventures.`\
-https://nytimes.com/card/2024/07/03/travel/nyc-observation-decks
-
-**Explained: Manchester United's plan to cut 250 jobs**\
-`Sir Jim Ratcliffe, the co-owner, is determined to cut costs at Manchester United - and now 250 staff members are to lose their jobs`\
-https://nytimes.com/athletic/5614630/2024/07/03/manchester-united-job-cuts-250-explained/
 
