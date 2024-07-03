@@ -1,3 +1,15 @@
+**Bath, Fraser depart Chelsea amid academy management restructure**\
+`Neil Bath and Jim Fraser have both left Chelsea ahead of a significant restructuring of the club’s academy management team.`\
+https://nytimes.com/athletic/5615313/2024/07/03/neil-bath-jim-fraser-chelsea-leave/
+
+**Thursday Briefing: What’s at Stake in Britain’s Elections**\
+`Plus, an ally said Biden is considering leaving the race.`\
+https://nytimes.com/2024/07/03/briefing/britain-elections.html
+
+**Biden’s press secretary rejects media reports that he was considering withdrawing from the campaign.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/07/03/us/biden-trump-election/bidens-press-secretary-rejects-media-reports-that-he-was-considering-withdrawing-from-the-campaign
+
 **Dutch golfer wins court case to represent Netherlands at Olympics**\
 `The judge’s ruling had no impact on the Olympic fortunes of other excluded Dutch golfers Darius van Driel and Dewi Weber.`\
 https://nytimes.com/athletic/5615324/2024/07/03/joost-luiten-olympics-golf-netherlands-court-case/
