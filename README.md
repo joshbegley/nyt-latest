@@ -1,3 +1,7 @@
+**‘Space Cadet’ Review: Emma Roberts Shoots for the Stars**\
+`In a lightweight comedy, the actress plays a bartender who dreams of becoming an astronaut. One problem: She has no qualifications for the job.`\
+https://nytimes.com/2024/07/03/movies/space-cadet-review.html
+
 **Brewers acquire right-hander Aaron Civale from Rays: Source**\
 `The move boosts Milwaukee's (51-35) starting rotation, which ranks near the bottom in innings pitched.`\
 https://nytimes.com/athletic/5614239/2024/07/03/brewers-rays-trade-aaron-civale/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5614110/2024/07/03/nwsl-championship-kansas-city-st
 **How to Clean Up Your Phone’s Photo Library to Free Up Space**\
 `Deleting duplicates, bad shots and other unwanted files makes it easier to find the good pictures — and gives you room to take more.`\
 https://nytimes.com/2024/07/03/technology/personaltech/iphone-android-storage-space.html
-
-**Are We in the Middle of a Spiritual Awakening?**\
-`Americans are moving away from organized religion. Are they replacing it with other forms of spirituality and observance?`\
-https://nytimes.com/2024/07/03/opinion/spirituality-religion.html
 
