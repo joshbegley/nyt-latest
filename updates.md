@@ -1,3 +1,11 @@
+**Disney's Iger close to purchasing control of ACFC**\
+`The current valuation of the club is estimated at $250 million, and Iger and Bay would invest more than $50 million to take control of ACFC.`\
+https://nytimes.com/athletic/5613135/2024/07/03/angel-city-fc-bob-iger-willow-bay-investment/
+
+**Enzo Barrenechea to Aston Villa: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Enzo Barrenechea's move to Aston Villa`\
+https://nytimes.com/athletic/5590391/2024/07/03/enzo-barrenechea-aston-villa-transfer-rating/
+
 **West Ham's €30m transfer bid for Nice defender Todibo rejected**\
 `West Ham United have seen a €30million (£25.`\
 https://nytimes.com/athletic/5613903/2024/07/03/jean-clair-todibo-west-ham-transfer/
