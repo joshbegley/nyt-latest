@@ -1,3 +1,11 @@
+**The Athletic FC: Gunok's save of the Euros, Brazil stall in Copa, and who throws a show?**\
+`The Athletic FC  is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox`\
+https://nytimes.com/athletic/5613849/2024/07/03/the-athletic-fc-gunok-save-brazil-colombia-result/
+
+**Word of the Day: sociable**\
+`This word has appeared in 26 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/07/03/learning/word-of-the-day-sociable.html
+
 **Disney's Iger close to purchasing control of ACFC**\
 `The current valuation of the club is estimated at $250 million, and Iger and Bay would invest more than $50 million to take control of ACFC.`\
 https://nytimes.com/athletic/5613135/2024/07/03/angel-city-fc-bob-iger-willow-bay-investment/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5613541/2024/07/03/klay-thompson-dallas-mavericks-l
 **If Not President Biden, Then Who?**\
 `Democrats and donors are pondering who could be the best alternative to take on Donald Trump after faltering attempts to calm nerves following last week’s debate.`\
 https://nytimes.com/2024/07/03/business/dealbook/biden-donors-harris.html
-
-**Shane van Gisbergen on adjusting to NASCAR and discovering the Bloomin' Onion: 12 Questions**\
-`Shane van Gisbergen talks about navigating American media, similarities between NASCAR and Supercars, and a certain "Australian" food item.`\
-https://nytimes.com/athletic/5601542/2024/07/03/shane-van-gisbergen-nascar-chicago-12-questions/
-
-**British Teenager’s Disappearance Spurs Speculation and Sleuthing**\
-`Jay Slater disappeared on the Spanish island of Tenerife last month. His whereabouts sparked intense online speculation.`\
-https://nytimes.com/2024/07/03/world/europe/jay-slater-missing-tenerife.html
 
