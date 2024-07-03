@@ -1,3 +1,15 @@
+**Biden spoke with Schumer for the first time since the debate.**\
+`President Biden has begun reaching out to legislative allies amid intense fears about the potential damage to down ballot Democratic candidates amid fallout from his halting performance.`\
+https://nytimes.com/live/2024/07/03/us/biden-trump-election/biden-spoke-with-schumer-for-the-first-time-since-the-debate
+
+**Manchester United women's team to train at St. George's Park**\
+`Manchester United are considering using St.`\
+https://nytimes.com/athletic/5614408/2024/07/03/man-united-women-training-facilities/
+
+**GM Sold Millions of Cars That Were More Polluting Than Allowed, EPA Says**\
+`The agency reached a settlement with the automaker over the sales of SUVs and pickups that emitted excess planet-warming carbon dioxide`\
+https://nytimes.com/2024/07/03/climate/gm-epa-pollution-settlement.html
+
 **What Is a Sundress?**\
 `A heated discussion about one of the summer's most ubiquitous garments grapples with questions of femininity, tradition and sexuality. Weigh in on the debate.`\
 https://nytimes.com/interactive/2024/07/03/style/sundress-quiz-summer-dress.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/03/dining/the-bear-season-3-restaurant.html
 **If Biden Doesn’t Run, Nominate …**\
 `Readers’ suggestions include Kamala Harris, Cory Booker, Chuck Schumer, Joe Manchin, Al Gore and Andy Beshear.`\
 https://nytimes.com/2024/07/03/opinion/letters/joe-biden-alternative-candidates.html
-
-**Qatar sent a new suggested cease-fire proposal to Hamas last week, officials say.**\
-`By Ronen Bergman and Aaron Boxerman`\
-https://nytimes.com/live/2024/07/03/world/israel-gaza-war-hamas/qatar-sent-a-new-suggested-cease-fire-proposal-to-hamas-last-week-officials-say
-
-**USMNT mailbag: What do you want to know after Copa America exit?**\
-`The U.S. crashed out at the group stage of Copa America`\
-https://nytimes.com/athletic/5614595/2024/07/03/usmnt-mailbag-copa-america/
-
-**The destruction on Carriacou and Petite Martinique islands captured in satellite images.**\
-`By Lynsey Chutel`\
-https://nytimes.com/live/2024/07/03/weather/hurricane-beryl/the-destruction-on-carriacou-and-petite-martinique-islands-captured-in-satellite-images
 
