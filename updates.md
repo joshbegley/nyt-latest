@@ -1,3 +1,15 @@
+**Audrey Flack, Creator of Vibrant Photorealist Art, Dies at 93**\
+`She painted and sculpted, but she was best known for her oversized still lifes, painted from photographs and crowded with color and detail.`\
+https://nytimes.com/2024/07/03/arts/audrey-flack-dead.html
+
+**Should Biden Quit? Democrats Weigh Potential Rewards and Steep Risks**\
+`Picking a new nominee could give Democrats a jolt of energy. But it could bring division and a crash-course campaign with no room for error.`\
+https://nytimes.com/2024/07/03/us/politics/president-biden-donald-trump-campaign-2024-democrats.html
+
+**Forcing Biden Out Would Have Only One Beneficiary: Trump**\
+`Instead of clearing the way for victory, liberals may well be paving the way for defeat.`\
+https://nytimes.com/2024/07/03/opinion/biden-harris-trump-democrats.html
+
 **After free-agent frenzy, Blackhawks walk a line between win-now, win-later at development camp**\
 `Kyle Davidson’s spending spree on veterans in free agency left precious few NHL spots available for players arriving the same day at camp.`\
 https://nytimes.com/athletic/5615153/2024/07/03/blackhawks-development-camp-takeaways/
