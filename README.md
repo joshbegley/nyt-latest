@@ -1,3 +1,7 @@
+**Iran’s Runoff Election: What to Know**\
+`Two candidates from opposite camps will compete for the presidency after no one garnered the number of votes needed last week to win.`\
+https://nytimes.com/2024/07/02/world/middleeast/iran-runoff-election.html
+
 **Andy Beshear says the Democratic Party needs to be ‘upfront and honest.’**\
 `The governor of Kentucky also said he wanted Mr. Biden to talk to the American people about his health.`\
 https://nytimes.com/live/2024/07/02/us/biden-trump-election/andy-beshear-biden-democratic-nominee
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/02/opinion/thepoint/yes-the-starliner-is-stuck-
 **What Would a Better Israeli Prime Minister Do?**\
 `The leaders who brought Israel into crisis won’t be able to bring it out of it.`\
 https://nytimes.com/2024/07/02/opinion/israel-netanyahu.html
-
-**‘Beverly Hills Cop: Axel F’ Review: It’s Busted**\
-`Eddie Murphy struggles to revive the moribund action-comedy franchise.`\
-https://nytimes.com/2024/07/02/movies/beverly-hills-cop-axel-f-review.html
 
