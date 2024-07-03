@@ -1,3 +1,15 @@
+**Brewers acquire right-hander Aaron Civale from Rays: source**\
+`The move boosts Milwaukee's (51-35) starting rotation, which ranks near the bottom in innings pitched.`\
+https://nytimes.com/athletic/5614239/2024/07/03/brewers-rays-trade-aaron-civale/
+
+**The Wide, Wide World of Judy Chicago**\
+`The 84-year-old American is perhaps best known for her groundbreaking feminist installation “The Dinner Party,” but she is an artist with a formidable range.`\
+https://nytimes.com/2024/07/03/arts/design/judy-chicago-serpentine-luma-arles.html
+
+**The Biden campaign and Republicans are duking it out in ads.**\
+`By Nick Corasaniti, Nicholas Nehamas and Maggie Astor`\
+https://nytimes.com/live/2024/07/03/us/biden-trump-election/the-biden-campaign-and-republicans-are-duking-it-out-in-ads
+
 **Lakers tout Bronny James and their future while standing pat in the present**\
 `Draft picks Dalton Knecht and Bronny James were introduced on Tuesday, though Lakers fans are hoping for bigger additions to the roster.`\
 https://nytimes.com/athletic/5612773/2024/07/03/lakers-bronny-lebron-james-future-roster/
