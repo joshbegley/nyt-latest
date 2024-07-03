@@ -1,3 +1,7 @@
+**Iran’s Runoff Election: What to Know**\
+`Two candidates from opposite camps will compete for the presidency after no one garnered the number of votes needed last week to win.`\
+https://nytimes.com/2024/07/02/world/middleeast/iran-runoff-election.html
+
 **Andy Beshear says the Democratic Party needs to be ‘upfront and honest.’**\
 `The governor of Kentucky also said he wanted Mr. Biden to talk to the American people about his health.`\
 https://nytimes.com/live/2024/07/02/us/biden-trump-election/andy-beshear-biden-democratic-nominee
