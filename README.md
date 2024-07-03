@@ -1,3 +1,19 @@
+**Biden tells campaign staff: ‘I’m in this race to the end.’**\
+`By Lisa Lerer and Nicholas Nehamas`\
+https://nytimes.com/live/2024/07/03/us/biden-trump-election/biden-tells-campaign-staff-im-in-this-race-to-the-end
+
+**A New Poll Brings a Dire Warning for the Biden Campaign**\
+`If the president’s candidacy was shaky before, it is virtually untenable now.`\
+https://nytimes.com/live/2024/07/02/opinion/thepoint/biden-poll-drop-out
+
+**Hezbollah responds to the killing of a senior commander with a cross-border rocket barrage.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/07/03/world/israel-gaza-war-hamas/hezbollah-responds-to-the-killing-of-a-senior-commander-with-a-cross-border-rocket-barrage
+
+**Jamaican Airports Shut Down, Stranding Travelers and Snarling Plans**\
+`The island’s three main international air hubs will remain closed through at least Wednesday night, and many airlines are waiving change and cancellation fees.`\
+https://nytimes.com/2024/07/03/weather/hurricane-beryl-jamaica-airports.html
+
 **High Above New York, a Battle for Tourist Dollars**\
 `Our writer took four ear-popping elevator journeys high above Midtown Manhattan to experience amusement-park-like adventures.`\
 https://nytimes.com/card/2024/07/03/travel/nyc-observation-decks
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5614381/2024/07/03/jessica-campbell-kraken-assistan
 **Argentina name men’s football squad for Paris Olympics: no Fernandez, Martinez**\
 `Argentina have named their 18-player men&#8217;s football squad for the 2024 Olympics, alongside four replacement players.`\
 https://nytimes.com/athletic/5614878/2024/07/03/argentina-soccer-olympics-squad/
-
-**Kessler? Capela? Stewart? Which center could the Knicks target?**\
-`Moves are being made across the league, but backup center remains a hole in the Knicks' current roster construction.`\
-https://nytimes.com/athletic/5614451/2024/07/03/nba-free-agency-knicks-centers/
-
-**As Jamaica waits, Cayman Islands prepare to be next.**\
-`By Daphne Ewing-Chow`\
-https://nytimes.com/live/2024/07/03/weather/hurricane-beryl/as-jamaica-waits-cayman-islands-prepare-to-be-next
-
-**Alabama tops Ohio State for Cincinnati edge rusher Justin Hill**\
-`Hill, a four-star recruit from Ohio, committed to the Crimson Tide on Wednesday over Ohio State, USC and Oregon.`\
-https://nytimes.com/athletic/5614419/2024/07/03/justin-hill-alabama-football-commitment/
-
-**The Debate Hurt Biden, but the Real Shift Has Been Happening for Years**\
-`A 3-point move toward Trump in a new Times/Siena poll is not a fundamental change in the race, but it adds to longstanding concerns.`\
-https://nytimes.com/2024/07/03/upshot/poll-biden-trump-debate.html
 

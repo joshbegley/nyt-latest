@@ -1,3 +1,7 @@
+**The Debate Hurt Biden, but the Real Shift Has Been Happening for Years**\
+`A 3-point move toward Trump in a new Times/Siena poll is not a fundamental change in the race, but it adds to longstanding concerns.`\
+https://nytimes.com/2024/07/03/upshot/poll-biden-trump-debate.html
+
 **Jamaican Airports Shut Down, Stranding Travelers and Snarling Plans**\
 `The island’s three main international air hubs will remain closed through at least Wednesday night, and many airlines are waiving change and cancellation fees.`\
 https://nytimes.com/2024/07/03/weather/hurricane-beryl-jamaica-airports.html
