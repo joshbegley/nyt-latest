@@ -1,3 +1,11 @@
+**Baugh: Jacob Trouba has every right to play hardball with Rangers**\
+`Trouba is doing what’s best for himself and his family, and that’s more than fair. It's good.`\
+https://nytimes.com/athletic/5613107/2024/07/03/rangers-jacob-trouba-contract-wife/
+
+**Jamaicans prepare for the arrival of Beryl.**\
+`By Jovan Johnson`\
+https://nytimes.com/live/2024/07/03/weather/hurricane-beryl/jamaicans-prepare-for-the-arrival-of-beryl
+
 **Early free-agent signings signal a stronger Oilers team for 2024-25**\
 `The Oilers delivered value contracts at every turn in free agency on July 1, taking on very little risk.`\
 https://nytimes.com/athletic/5610115/2024/07/03/oilers-free-agents-roster-2024/
@@ -29,12 +37,4 @@ https://nytimes.com/video/books/100000009544345/4-books-to-read-this-summer.html
 **‘Space Cadet’ Review: Emma Roberts Shoots for the Stars**\
 `In a lightweight comedy, the actress plays a bartender who dreams of becoming an astronaut. One problem: She has no qualifications for the job.`\
 https://nytimes.com/2024/07/03/movies/space-cadet-review.html
-
-**Brewers acquire right-hander Aaron Civale from Rays: Source**\
-`The move boosts Milwaukee's (51-35) starting rotation, which ranks near the bottom in innings pitched.`\
-https://nytimes.com/athletic/5614239/2024/07/03/brewers-rays-trade-aaron-civale/
-
-**The Wide, Wide World of Judy Chicago**\
-`The 84-year-old American is perhaps best known for her groundbreaking feminist installation “The Dinner Party,” but she is an artist with a formidable range.`\
-https://nytimes.com/2024/07/03/arts/design/judy-chicago-serpentine-luma-arles.html
 
