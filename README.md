@@ -32,5 +32,5 @@ https://nytimes.com/athletic/5615362/2024/07/03/vladimir-tarasenko-red-wings-con
 
 **Netflix Co-founder Becomes One of the Biggest Democratic Donors to Call for Biden to Step Aside**\
 `A public declaration from a megadonor is another crack in the armor in the president’s foundation of support.`\
-https://nytimes.com/2024/07/03/us/politics/hastings-donors-biden.html
+https://nytimes.com/2024/07/03/us/politics/reed-hastings-netflix-biden-withdraw.html
 
