@@ -1,3 +1,7 @@
+**13,000 Are Ordered to Evacuate as Wildfire Spreads in Northern California**\
+`A wildfire that began in Butte County, Calif., on Tuesday morning has burned more than 3,000 acres and threatened residents of the city of Oroville.`\
+https://nytimes.com/2024/07/03/us/thompson-wildfire-oroville-california.html
+
 **Baugh: Jacob Trouba has every right to play hardball with Rangers**\
 `Trouba is doing what’s best for himself and his family, and that’s more than fair. It's good.`\
 https://nytimes.com/athletic/5613107/2024/07/03/rangers-jacob-trouba-contract-wife/
@@ -12,7 +16,7 @@ https://nytimes.com/athletic/5610115/2024/07/03/oilers-free-agents-roster-2024/
 
 **Biden Told Ally That He Is Weighing Whether to Continue in the Race**\
 `The president’s conversation is the first indication that he is seriously considering whether he can recover after a devastating performance on the debate stage in Atlanta on Thursday.`\
-https://nytimes.com/2024/07/03/us/politics/biden-election-debate.html
+https://nytimes.com/2024/07/03/us/politics/biden-withdraw-election-debate.html
 
 **A Family Loses 3 Generations of Women in India Crowd’s Panic**\
 `They had worked hard for years to make a life: “Now it’s over with the death of my dear daughter, wife and mother — in one single blow.”`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/03/us/biden-trump-election/bidens-re-election-b
 **4 Books to Read This Summer**\
 `A New York Times Book Review editor recommends four books for the summer.`\
 https://nytimes.com/video/books/100000009544345/4-books-to-read-this-summer.html
-
-**‘Space Cadet’ Review: Emma Roberts Shoots for the Stars**\
-`In a lightweight comedy, the actress plays a bartender who dreams of becoming an astronaut. One problem: She has no qualifications for the job.`\
-https://nytimes.com/2024/07/03/movies/space-cadet-review.html
 
