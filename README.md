@@ -1,3 +1,11 @@
+**They Came for Spiritual Revival, Only to Be Trapped in a Deadly Panic**\
+`Family members streamed to hospitals in the Indian state of Uttar Pradesh to identify loved ones after at least 121 people — nearly all women — died in a stampede at a religious gathering.`\
+https://nytimes.com/2024/07/03/world/asia/india-stampede-deaths.html
+
+**Giants win in Atlanta behind a rookie pitcher and another stellar night from Heliot Ramos**\
+`Hayden Birdsong got his first major league victory and San Francisco enjoyed the rarity of back-to-back wins from starting pitchers. `\
+https://nytimes.com/athletic/5613363/2024/07/03/giants-win-in-atlanta/
+
 **Fantasy baseball mailbag: Looking at second-half expectations for Corbin Carroll, Dylan Cease and more**\
 `Adam Ronis handles your fantasy baseball questions about Corbin Carroll, Dylan Cease, Oneil Cruz and more.`\
 https://nytimes.com/athletic/5612902/2024/07/03/fantasy-baseball-mailbag-2nd-half-expectations-corbin-carroll/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/03/world/asia/china-taiwan-boat.html
 **Aaron Cresswell's decade at West Ham: Broken noses, dedication and 'legendary' status**\
 `The left-back signed for West Ham for a £3.75m bargain 10 years ago today - coaches and team-mates tell The Athletic of his lasting legacy`\
 https://nytimes.com/athletic/5536994/2024/07/03/aaron-cresswell-west-ham-decade/
-
-**Elliot Anderson to Nottingham Forest: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate midfielder Anderson's £35million move from Tyneside to the City Ground`\
-https://nytimes.com/athletic/5607636/2024/07/03/elliot-anderson-to-nottingham-forest-the-athletic-500-transfer-ratings/
-
-**Jesse Chavez deserves All-Star consideration, and Braves teammates are making sure we know**\
-`in his 17th season, Chavez has a 1.51 ERA in 27 appearances and has limited hitters to a .054 average with runners in scoring position.`\
-https://nytimes.com/athletic/5613194/2024/07/03/braves-jesse-chavez-all-star-game/
 
