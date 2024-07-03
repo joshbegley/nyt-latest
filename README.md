@@ -1,3 +1,11 @@
+**The Man Behind the Minions**\
+`Pierre Coffin helped invent the yellow animated creatures and has supplied their voices for nearly 15 years. He’s as puckish and subversive as his mischievous creations.`\
+https://nytimes.com/2024/07/03/arts/television/minions-despicable-me-4-pierre-coffin.html
+
+**'F--- no, I don’t baby it': Red Sox's Liam Hendriks moves slowly, confidently back from Tommy John**\
+`After a long road back from cancer treatment and then Tommy John surgery, Hendriks said he expects to be pitching for Boston this August.`\
+https://nytimes.com/athletic/5603297/2024/07/03/liam-hendriks-red-sox-tommy-john-rehab/
+
 **Big Donors Turn on Biden. Quietly.**\
 `Some of the president’s past supporters want a new candidate, but they are leery of going public.`\
 https://nytimes.com/2024/07/03/us/politics/biden-donors-debate.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/03/style/the-bear-show-style.html
 **In Immunity Decision, Clashing Views of the Nature of Politics**\
 `The Supreme Court’s conservative majority largely embraced Donald Trump’s dark view of tit-for-tat partisan prosecutions while liberals cited the prospect of power unchecked by legal accountability.`\
 https://nytimes.com/2024/07/03/us/politics/supreme-court-immunity-decision.html
-
-**Doing Nothing About Biden Is the Riskiest Plan of All**\
-`Looking at polls beyond the straight horse-race numbers between Biden and Trump offers a glimpse of hope for Democrats.`\
-https://nytimes.com/2024/07/03/opinion/biden-democrats-senate-polls.html
-
-**A French Museum Collides With New Jersey Politics**\
-`State lawmakers voted to pull funding for an outpost of the Pompidou Center in Jersey City, blaming rising costs. The mayor said the decision was retribution.`\
-https://nytimes.com/2024/07/03/arts/design/a-french-museum-collides-with-new-jersey-politics.html
 
