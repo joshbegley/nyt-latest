@@ -1,3 +1,11 @@
+**Biden’s re-election bid is in the spotlight. Here’s the latest.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/07/03/us/biden-trump-election/bidens-re-election-bid-is-in-the-spotlight-heres-the-latest
+
+**4 Books to Read This Summer**\
+`A New York Times Book Review editor recommends four books for the summer.`\
+https://nytimes.com/video/books/100000009544345/4-books-to-read-this-summer.html
+
 **‘Space Cadet’ Review: Emma Roberts Shoots for the Stars**\
 `In a lightweight comedy, the actress plays a bartender who dreams of becoming an astronaut. One problem: She has no qualifications for the job.`\
 https://nytimes.com/2024/07/03/movies/space-cadet-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5613389/2024/07/03/canadiens-juraj-slafkovsky-contr
 **An Artist Who Turned Her Bedroom Closet Into a Safe Haven**\
 `At 52 Walker in New York, Diamond Stingily’s site-specific installations tell a story of desire, shame and coming-of-age.`\
 https://nytimes.com/interactive/2024/07/03/t-magazine/diamond-stingily-52-walker.html
-
-**NWSL championship will be played at new Kansas City stadium**\
-`The KC Current has had sellout crowds every game this season.`\
-https://nytimes.com/athletic/5614110/2024/07/03/nwsl-championship-kansas-city-stadium/
-
-**How to Clean Up Your Phone’s Photo Library to Free Up Space**\
-`Deleting duplicates, bad shots and other unwanted files makes it easier to find the good pictures — and gives you room to take more.`\
-https://nytimes.com/2024/07/03/technology/personaltech/iphone-android-storage-space.html
 

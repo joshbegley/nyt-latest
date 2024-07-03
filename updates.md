@@ -1,3 +1,11 @@
+**Biden’s re-election bid is in the spotlight. Here’s the latest.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/07/03/us/biden-trump-election/bidens-re-election-bid-is-in-the-spotlight-heres-the-latest
+
+**4 Books to Read This Summer**\
+`A New York Times Book Review editor recommends four books for the summer.`\
+https://nytimes.com/video/books/100000009544345/4-books-to-read-this-summer.html
+
 **‘Space Cadet’ Review: Emma Roberts Shoots for the Stars**\
 `In a lightweight comedy, the actress plays a bartender who dreams of becoming an astronaut. One problem: She has no qualifications for the job.`\
 https://nytimes.com/2024/07/03/movies/space-cadet-review.html
