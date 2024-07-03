@@ -1,3 +1,7 @@
+**Despite losing Royce Lewis to groin injury, Twins top Detroit for seventh win in 10 games**\
+`Lewis is concerned he's headed for the injured list again. "I’m praying, but it’s usually always horrible news. So we’ll see.”`\
+https://nytimes.com/athletic/5613223/2024/07/02/twins-royce-lewis-groin-tightness-tigers/
+
 **Blue Jays call up Leo Jimenez and youth movement may only continue to grow**\
 `Trades could bring in young players from the outside, but for now, the Blue Jays are seeing what kids in their own system can do.`\
 https://nytimes.com/athletic/5613131/2024/07/02/blue-jays-leo-jimenez-youth-movement/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5612918/2024/07/02/howard-eskin-citizens-bank-park-
 **'This is my hometown': Jack Johnson wants to be a role model for Blue Jackets' young blue line**\
 `Johnson was excited to return to the Blue Jackets, and possibly to finish his career in Columbus.`\
 https://nytimes.com/athletic/5612345/2024/07/02/jack-johnson-blue-jackets/
-
-**Clark, Reese headline WNBA All-Star Game roster**\
-`The two rookies are the only two first-time participants in the exhibition, which is set for July 20 in Phoenix.`\
-https://nytimes.com/athletic/5613005/2024/07/02/wnba-all-star-rosters-caitlin-clark-angel-reese/
 
