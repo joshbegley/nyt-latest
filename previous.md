@@ -1,3 +1,7 @@
+**Special Counsel Is Said to Be Planning to Pursue Trump Cases Past the Election**\
+`Jack Smith plans to continue two criminal cases against Donald J. Trump until Inauguration Day if the former president wins, according to a person familiar with his thinking.`\
+https://nytimes.com/2024/07/02/us/politics/jack-smith-trump-charges.html
+
 **Two Vulnerable House Democrats Say Biden Will Lose Against Trump**\
 `Representatives Jared Golden and Marie Gluesenkamp Perez, who are in tough re-election battles, added to widespread pessimism among Democrats about the election in November.`\
 https://nytimes.com/2024/07/02/us/politics/golden-gluesenkamp-perez-biden-nominee.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/02/world/middleeast/iran-runoff-election.html
 **Andy Beshear says the Democratic Party needs to be ‘upfront and honest.’**\
 `The governor of Kentucky also said he wanted Mr. Biden to talk to the American people about his health.`\
 https://nytimes.com/live/2024/07/02/us/biden-trump-election/andy-beshear-biden-democratic-nominee
-
-**Euro 2024 quarterfinal, champion odds: England still favored after narrow escape**\
-`Even after another uninspiring showing against Slovakia, England is still the favorite to win Euro 2024 with Spain, France and Germany next.`\
-https://nytimes.com/athletic/5612331/2024/07/02/euro-2024-quarterfinal-odds-england-spain-germany-france/
 
