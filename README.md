@@ -1,3 +1,11 @@
+**Why the Pistons could target Brook Lopez, Mitchell Robinson and others via trade**\
+`Trajan Langdon wants to get assets. Which teams could Detroit trade with to get it done?`\
+https://nytimes.com/athletic/5614281/2024/07/03/pistons-nba-trade-knicks-lakers-bucks/
+
+**Burnley analyst, former Man City staff member, banned for betting breaches**\
+`Burnley&#8217;s lead performance analyst — who is a former staff member at Manchester City — has been banned from all football-related activity by the Football Association (FA) for 12 months after breaching betting rules.`\
+https://nytimes.com/athletic/5614401/2024/07/03/bredice-banned-fa-betting-man-city-burnley/
+
 **Can I Say I Have Tourette’s Without Being Formally Diagnosed?**\
 `The magazine’s Ethicist columnist on self-identification.`\
 https://nytimes.com/2024/07/03/magazine/tourettes-diagnosis-informal-ethics.html
@@ -12,7 +20,7 @@ https://nytimes.com/athletic/5613958/2024/07/03/lebron-james-lakers-donovan-mitc
 
 **Heritage Foundation Head Refers to ‘Second American Revolution’**\
 `Kevin Roberts, president of the group that has coordinated the Project 2025 policy plan, said it could be “bloodless if the left allows it to be.”`\
-https://nytimes.com/2024/07/03/us/politics/heritage-foundation-revolution-bloodless.html
+https://nytimes.com/2024/07/03/us/politics/heritage-foundation-2025-policy-america.html
 
 **How Reliant Is the U.S. on Avocados From Mexico?**\
 `A temporary halt on inspections by U.S.D.A. workers in Mexico on safety concerns highlighted how dependent the United States had become on one region for supplies of the popular fruit.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5614081/2024/07/03/emiliano-martinez-argentina-copa
 **Samuel Iling-Junior to Aston Villa: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate left-winger or left-back Iling-Junior's €22m move to Villa from Juventus`\
 https://nytimes.com/athletic/5590424/2024/07/03/samuel-iling-junior-to-aston-villa-the-athletic-500-transfer-ratings/
-
-**Pizza Flavors Without Pizza Temperatures**\
-`Ali Slagle’s no-boil, no-chop crispy gnocchi with burst tomatoes and mozzarella is full of pizza goodness, no oven-cranking required.`\
-https://nytimes.com/2024/07/03/dining/pizza-flavors-without-pizza-temperatures.html
-
-**How the Denisovans Survived the Ice Age**\
-`A trove of animal bone fragments from a cave on the Tibetan plateau reveals how Denisovans thrived in a harsh climate for over 100,000 years.`\
-https://nytimes.com/2024/07/03/science/denisovans-ice-age-hunting-tibet.html
 
