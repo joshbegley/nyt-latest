@@ -1,3 +1,7 @@
+**Shane van Gisbergen on adjusting to NASCAR and discovering the Bloomin' Onion: 12 Questions**\
+`Shane van Gisbergen talks about navigating American media, similarities between NASCAR and Supercars, and a certain "Australian" food item.`\
+https://nytimes.com/athletic/5601542/2024/07/03/shane-van-gisbergen-nascar-chicago-12-questions/
+
 **British Teenager’s Disappearance Spurs Speculation and Sleuthing**\
 `Jay Slater disappeared on the Spanish island of Tenerife last month. His whereabouts sparked intense online speculation.`\
 https://nytimes.com/2024/07/03/world/europe/jay-slater-missing-tenerife.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5606772/2024/07/03/brody-brecht-mlb-draft-iowa-foot
 **Maxx Crosby and Raiders' defensive line continues its push to be among NFL's best**\
 `Seven Raiders, including Crosby, Malcolm Koonce and Tyree Wilson, attended the Sack Summit over the weekend to learn from the league's best.`\
 https://nytimes.com/athletic/5609958/2024/07/03/raiders-maxx-crosby-sack-summit/
-
-**The Oilers' road to cap compliancy: 4 options to consider**\
-`The Oilers were busy in free agency but the fact remains that they are almost $2.5 million over the $88 million cap.`\
-https://nytimes.com/athletic/5612280/2024/07/03/edmonton-oilers-salary-cap-2024/
 

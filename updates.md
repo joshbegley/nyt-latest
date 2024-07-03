@@ -1,3 +1,7 @@
+**Shane van Gisbergen on adjusting to NASCAR and discovering the Bloomin' Onion: 12 Questions**\
+`Shane van Gisbergen talks about navigating American media, similarities between NASCAR and Supercars, and a certain "Australian" food item.`\
+https://nytimes.com/athletic/5601542/2024/07/03/shane-van-gisbergen-nascar-chicago-12-questions/
+
 **British Teenager’s Disappearance Spurs Speculation and Sleuthing**\
 `Jay Slater disappeared on the Spanish island of Tenerife last month. His whereabouts sparked intense online speculation.`\
 https://nytimes.com/2024/07/03/world/europe/jay-slater-missing-tenerife.html
