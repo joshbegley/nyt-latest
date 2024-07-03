@@ -1,4 +1,8 @@
-**‘A Roller Coaster Inside a Carwash’: What It’s Like Inside Hurricane Beryl**\
+**How A Fractured Supreme Court Ruled this Term**\
+`The Supreme Court has had a volatile term, taking on a stunning array of major disputes and assuming a commanding role in shaping American society and democracy.`\
+https://nytimes.com/video/us/politics/100000009551558/how-a-fractured-supreme-court-ruled-this-term.html
+
+**‘A Roller Coaster Inside a Carwash’: What It’s Like Riding Into Hurricane Beryl**\
 `Researchers are flying through the storm to gather data that can help emergency managers prepare for what’s to come.`\
 https://nytimes.com/2024/07/03/climate/hurricane-beryl-wind-speeds.html
 
@@ -11,7 +15,7 @@ https://nytimes.com/live/2024/07/03/us/biden-trump-election/biden-spoke-with-sch
 https://nytimes.com/athletic/5614408/2024/07/03/man-united-women-training-facilities/
 
 **GM Sold Millions of Cars That Were More Polluting Than Allowed, EPA Says**\
-`The agency reached a settlement with the automaker over the sales of SUVs and pickups that emitted excess planet-warming carbon dioxide`\
+`The agency reached a settlement with the automaker over the sales of SUVs and pickups that emitted excess planet-warming carbon dioxide.`\
 https://nytimes.com/2024/07/03/climate/gm-epa-pollution-settlement.html
 
 **What Is a Sundress?**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/03/us/politics/biden-2024-campaign-memos.html
 **Miley to miss start of season with foot injury**\
 `Newcastle United midfielder Lewis Miley will miss the beginning of the season after suffering a foot injury that could rule him out until the start of October.`\
 https://nytimes.com/athletic/5614761/2024/07/03/lewis-miley-newcastle-foot-injury/
-
-**How Would the Restaurant in ‘The Bear’ Work in Real Life?**\
-`The show is praised for its gritty realism, and some of the details are spot-on. Others, not so much, according to food insiders.`\
-https://nytimes.com/2024/07/03/dining/the-bear-season-3-restaurant.html
 

@@ -1,3 +1,15 @@
+**How A Fractured Supreme Court Ruled this Term**\
+`The Supreme Court has had a volatile term, taking on a stunning array of major disputes and assuming a commanding role in shaping American society and democracy.`\
+https://nytimes.com/video/us/politics/100000009551558/how-a-fractured-supreme-court-ruled-this-term.html
+
+**‘A Roller Coaster Inside a Carwash’: What It’s Like Riding Into Hurricane Beryl**\
+`Researchers are flying through the storm to gather data that can help emergency managers prepare for what’s to come.`\
+https://nytimes.com/2024/07/03/climate/hurricane-beryl-wind-speeds.html
+
+**GM Sold Millions of Cars That Were More Polluting Than Allowed, EPA Says**\
+`The agency reached a settlement with the automaker over the sales of SUVs and pickups that emitted excess planet-warming carbon dioxide.`\
+https://nytimes.com/2024/07/03/climate/gm-epa-pollution-settlement.html
+
 **‘A Roller Coaster Inside a Carwash’: What It’s Like Inside Hurricane Beryl**\
 `Researchers are flying through the storm to gather data that can help emergency managers prepare for what’s to come.`\
 https://nytimes.com/2024/07/03/climate/hurricane-beryl-wind-speeds.html
