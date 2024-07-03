@@ -1,3 +1,7 @@
+**You See a Hedge. He Sees Something Else.**\
+`Tim Bushe decided to shape the hedges in his London neighborhood into a menagerie. They’ve become a local attraction.`\
+https://nytimes.com/2024/07/03/world/europe/london-hedge-animals-art.html
+
 **Euro 2024 quarter-finals preview: Ronaldo faces Mbappe as England meet Switzerland - Tips and Tricks**\
 `Here, we look at the data to get a better idea of who will be taking one step closer to the trophy`\
 https://nytimes.com/athletic/5610808/2024/07/03/euro-2024-quarter-finals-preview-ronaldo-faces-mbappe-as-england-meet-switzerland-tips-and-tricks/
