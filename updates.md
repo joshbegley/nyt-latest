@@ -1,3 +1,11 @@
+**If Biden Drops Out, How Long Do Democrats Have to Pick a Nominee?**\
+`The party’s official nominating convention is in mid-August, but to appear on the ballot in Ohio, candidates must be certified by Aug. 7.`\
+https://nytimes.com/2024/07/03/us/politics/biden-drop-out-2024-election.html
+
+**How Biden Has Gotten in the Way of Fighting Starvation in Gaza**\
+`Israel and the U.S. have made a boogeyman out of the U.N. group that’s providing critical services in Gaza.`\
+https://nytimes.com/2024/07/03/opinion/biden-gaza-unrwa.html
+
 **Former San Diego Wave employee alleges poor work environment under Ellis**\
 `The former employee also alleges discrimination by the Wave. `\
 https://nytimes.com/athletic/5615225/2024/07/03/san-diego-wave-jill-ellis-allegations/

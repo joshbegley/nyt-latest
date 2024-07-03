@@ -1,3 +1,11 @@
+**If Biden Drops Out, How Long Do Democrats Have to Pick a Nominee?**\
+`The party’s official nominating convention is in mid-August, but to appear on the ballot in Ohio, candidates must be certified by Aug. 7.`\
+https://nytimes.com/2024/07/03/us/politics/biden-drop-out-2024-election.html
+
+**How Biden Has Gotten in the Way of Fighting Starvation in Gaza**\
+`Israel and the U.S. have made a boogeyman out of the U.N. group that’s providing critical services in Gaza.`\
+https://nytimes.com/2024/07/03/opinion/biden-gaza-unrwa.html
+
 **Former San Diego Wave employee alleges poor work environment under Ellis**\
 `The former employee also alleges discrimination by the Wave. `\
 https://nytimes.com/athletic/5615225/2024/07/03/san-diego-wave-jill-ellis-allegations/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/07/03/business/ftc-noncompete-ban-injunction.html
 **Israel releases Palestinian Authority funds while claiming more West Bank land.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/07/03/world/israel-gaza-war-hamas/israel-releases-palestinian-authority-funds-while-claiming-more-west-bank-land
-
-**162 Years Later, a Medal of Honor for Two Civil War Train Raiders**\
-`Family members of Pvt. Philip G. Shadrach and Pvt. George D. Wilson received the nation’s highest decoration for combat valor.`\
-https://nytimes.com/2024/07/03/us/politics/medal-of-honor-biden-civil-war.html
-
-**How to Protect Yourself From Wildfire Smoke**\
-`Scientists are still studying the long-term health effects of smoke exposure.`\
-https://nytimes.com/2024/07/03/well/wildfire-smoke-health-effects.html
 
