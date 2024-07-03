@@ -1,3 +1,7 @@
+**‘A Roller Coaster Inside a Carwash’: What It’s Like Inside Hurricane Beryl**\
+`Researchers are flying through the storm to gather data that can help emergency managers prepare for what’s to come.`\
+https://nytimes.com/2024/07/03/climate/hurricane-beryl-wind-speeds.html
+
 **Biden spoke with Schumer for the first time since the debate.**\
 `President Biden has begun reaching out to legislative allies amid intense fears about the potential damage to down ballot Democratic candidates amid fallout from his halting performance.`\
 https://nytimes.com/live/2024/07/03/us/biden-trump-election/biden-spoke-with-schumer-for-the-first-time-since-the-debate

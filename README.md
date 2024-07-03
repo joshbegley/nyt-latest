@@ -11,7 +11,7 @@ https://nytimes.com/live/2024/07/03/us/biden-trump-election/biden-spoke-with-sch
 https://nytimes.com/athletic/5614408/2024/07/03/man-united-women-training-facilities/
 
 **GM Sold Millions of Cars That Were More Polluting Than Allowed, EPA Says**\
-`The agency reached a settlement with the automaker over the sales of SUVs and pickups that emitted excess planet-warming carbon dioxide`\
+`The agency reached a settlement with the automaker over the sales of SUVs and pickups that emitted excess planet-warming carbon dioxide.`\
 https://nytimes.com/2024/07/03/climate/gm-epa-pollution-settlement.html
 
 **What Is a Sundress?**\
