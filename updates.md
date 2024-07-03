@@ -1,3 +1,11 @@
+**Aaron Cresswell's decade at West Ham: Broken noses, dedication and 'legendary' status**\
+`The left-back signed for West Ham for a £3.75m bargain 10 years ago today - coaches and team-mates tell The Athletic of his lasting legacy`\
+https://nytimes.com/athletic/5536994/2024/07/03/aaron-cresswell-west-ham-decade/
+
+**Elliot Anderson to Nottingham Forest: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate midfielder Anderson's £35million move from Tyneside to the City Ground`\
+https://nytimes.com/athletic/5607636/2024/07/03/elliot-anderson-to-nottingham-forest-the-athletic-500-transfer-ratings/
+
 **Jesse Chavez deserves All-Star consideration, and Braves teammates are making sure we know**\
 `in his 17th season, Chavez has a 1.51 ERA in 27 appearances and has limited hitters to a .054 average with runners in scoring position.`\
 https://nytimes.com/athletic/5613194/2024/07/03/braves-jesse-chavez-all-star-game/
