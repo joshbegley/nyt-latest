@@ -1,3 +1,19 @@
+**Wednesday's MLB game odds, betting projections: Moneyline, playoff odds, best pitchers**\
+`Projections for Wednesday's MLB game with value picks, best bets, pitcher props, home run trends, weather and more.`\
+https://nytimes.com/athletic/5611521/2024/07/03/mlb-odds-predictions-best-bets-july-3/
+
+**An Uproar Over a Chinese Doping Case, Except in China**\
+`Chinese state news and social media has been virtually silent about 23 swimmers secretly testing positive in 2021, even as the issue is being debated widely abroad, including in Congress.`\
+https://nytimes.com/2024/07/03/world/asia/china-doping-censorship.html
+
+**Investors Pour $27.1 Billion Into A.I. Start-Ups, Defying a Downturn**\
+`Funding for A.I. firms made up nearly half the $56 billion in U.S. start-up financing from April to June, according to PitchBook.`\
+https://nytimes.com/2024/07/03/technology/ai-startups-funding.html
+
+**Women in India Face a Jobs Crisis. Are Factories the Solution?**\
+`As multinational brands shift factory production from China, Indian women — long shut out of the work force — could be prime beneficiaries.`\
+https://nytimes.com/2024/07/03/business/india-economy-women-jobs.html
+
 **Despite losing Royce Lewis to groin injury, Twins top Detroit for seventh win in 10 games**\
 `Lewis is concerned he's headed for the injured list again. "I’m praying, but it’s usually always horrible news. So we’ll see.”`\
 https://nytimes.com/athletic/5613223/2024/07/02/twins-royce-lewis-groin-tightness-tigers/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5613074/2024/07/02/new-york-giants-hard-knocks-joe-
 **Nordic Toast**\
 `Juliana Tringali Golden looks ahead.`\
 https://nytimes.com/2024/07/02/crosswords/daily-puzzle-2024-07-03.html
-
-**Special Counsel Is Said to Be Planning to Pursue Trump Cases Past the Election**\
-`Jack Smith plans to continue two criminal cases against Donald J. Trump until Inauguration Day if the former president wins, according to a person familiar with his thinking.`\
-https://nytimes.com/2024/07/02/us/politics/jack-smith-trump-charges.html
-
-**Two Vulnerable House Democrats Say Biden Will Lose Against Trump**\
-`Representatives Jared Golden and Marie Gluesenkamp Perez, who are in tough re-election battles, added to widespread pessimism among Democrats about the election in November.`\
-https://nytimes.com/2024/07/02/us/politics/golden-gluesenkamp-perez-biden-nominee.html
-
-**Howard Eskin barred from Citizens Bank Park**\
-`Aramark confirmed in a statement Tuesday that one of its employees was "subjected to an unwanted kiss by an Audacy employee."`\
-https://nytimes.com/athletic/5612918/2024/07/02/howard-eskin-citizens-bank-park-barred-unwanted-advance/
-
-**'This is my hometown': Jack Johnson wants to be a role model for Blue Jackets' young blue line**\
-`Johnson was excited to return to the Blue Jackets, and possibly to finish his career in Columbus.`\
-https://nytimes.com/athletic/5612345/2024/07/02/jack-johnson-blue-jackets/
 
