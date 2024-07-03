@@ -1,3 +1,7 @@
+**Bayern Munich agree transfer deal to sign Fulham midfielder Joao Palhinha**\
+`Bayern Munich have reached an agreement worth €51million (£43.`\
+https://nytimes.com/athletic/5613937/2024/07/03/joao-palhinha-fulham-bayern-munich-transfer/
+
 **Enzo Barrenechea to Aston Villa: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Enzo Barrenechea's move to Aston Villa.`\
 https://nytimes.com/athletic/5590391/2024/07/03/enzo-barrenechea-aston-villa-transfer-rating/

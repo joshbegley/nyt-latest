@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5590391/2024/07/03/enzo-barrenechea-aston-villa-tra
 `Could long throws be a fruitful alternative to corners and free kicks?`\
 https://nytimes.com/athletic/5611921/2024/07/03/england-set-pieces-euro-2014-maguire/
 
-**Bayern Munich agree transfer deal to sign Fulham midfielder Joao Palhina**\
+**Bayern Munich agree transfer deal to sign Fulham midfielder Joao Palhinha**\
 `Bayern Munich have reached an agreement worth €51million (£43.`\
 https://nytimes.com/athletic/5613937/2024/07/03/joao-palhinha-fulham-bayern-munich-transfer/
 
