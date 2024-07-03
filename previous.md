@@ -1,3 +1,11 @@
+**‘Despicable Me 4’ Review: This Time They’re Superheroes**\
+`The crew is back, but this time around they need to lie low. Sort of.`\
+https://nytimes.com/2024/07/03/movies/despicable-me-4-review.html
+
+**Angels closer Carlos Estévez discusses resurgence and the possibility of getting traded**\
+`"Whatever comes, it is what it is. It is baseball. It’s a game that we all love, but at the same time, it is a business," Estévez said.`\
+https://nytimes.com/athletic/5615276/2024/07/03/angels-carlos-estevez-trade-deadline-rumors/
+
 **Twins promoting prospect Brooks Lee to majors: Sources**\
 `Though there's been no official word, Lee will likely take the place of Royce Lewis, who exited Tuesday's game with a groin injury. `\
 https://nytimes.com/athletic/5615277/2024/07/03/twins-promote-brooks-lee-major-league-debut/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/07/03/arts/audrey-flack-dead.html
 **Should Biden Quit? Democrats Weigh Potential Rewards and Steep Risks**\
 `Picking a new nominee could give Democrats a jolt of energy. But it could bring division and a crash-course campaign with no room for error.`\
 https://nytimes.com/2024/07/03/us/politics/president-biden-donald-trump-campaign-2024-democrats.html
-
-**Forcing Biden Out Would Have Only One Beneficiary: Trump**\
-`Instead of clearing the way for victory, liberals may well be paving the way for defeat.`\
-https://nytimes.com/2024/07/03/opinion/biden-harris-trump-democrats.html
-
-**After free-agent frenzy, Blackhawks walk a line between win-now, win-later at development camp**\
-`Kyle Davidson’s spending spree on veterans in free agency left precious few NHL spots available for players arriving the same day at camp.`\
-https://nytimes.com/athletic/5615153/2024/07/03/blackhawks-development-camp-takeaways/
 
