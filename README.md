@@ -1,3 +1,7 @@
+**‘A Roller Coaster Inside a Carwash’: What It’s Like Inside Hurricane Beryl**\
+`Researchers are flying through the storm to gather data that can help emergency managers prepare for what’s to come.`\
+https://nytimes.com/2024/07/03/climate/hurricane-beryl-wind-speeds.html
+
 **Biden spoke with Schumer for the first time since the debate.**\
 `President Biden has begun reaching out to legislative allies amid intense fears about the potential damage to down ballot Democratic candidates amid fallout from his halting performance.`\
 https://nytimes.com/live/2024/07/03/us/biden-trump-election/biden-spoke-with-schumer-for-the-first-time-since-the-debate
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5614761/2024/07/03/lewis-miley-newcastle-foot-injur
 **How Would the Restaurant in ‘The Bear’ Work in Real Life?**\
 `The show is praised for its gritty realism, and some of the details are spot-on. Others, not so much, according to food insiders.`\
 https://nytimes.com/2024/07/03/dining/the-bear-season-3-restaurant.html
-
-**If Biden Doesn’t Run, Nominate …**\
-`Readers’ suggestions include Kamala Harris, Cory Booker, Chuck Schumer, Joe Manchin, Al Gore and Andy Beshear.`\
-https://nytimes.com/2024/07/03/opinion/letters/joe-biden-alternative-candidates.html
 
