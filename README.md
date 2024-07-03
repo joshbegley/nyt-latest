@@ -1,3 +1,7 @@
+**Phillies show Cubs what paying for star talent can do**\
+`The Cubs fell short again in the battle of "intelligent spending" (Chicago) vs. a team dishing out "stupid" money (Philadelphia).`\
+https://nytimes.com/athletic/5613243/2024/07/03/cubs-lose-to-phillies/
+
 **How Yankees, Luis Gil are explaining shocking slump**\
 `“It's tough,” Gil said, “but there's no giving up. That's what it is. You keep battling. You keep fighting, and then you turn it around.”`\
 https://nytimes.com/athletic/5613249/2024/07/03/yankees-luis-gil-slump-explanation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5611563/2024/07/03/wolves-strand-larsen-norway/
 **How Kevin De Bruyne's 'quiet summer' could give him one final flourish at Manchester City**\
 `Next season may well be the Belgian's final campaign at the Etihad, but he is still good enough to be a key figure in Pep Guardiola's team`\
 https://nytimes.com/athletic/5611189/2024/07/03/de-bruyne-manchester-city-future/
-
-**Hurzeler shares much with De Zerbi but is keen to stamp own authority on Brighton**\
-`What came across most during Hurzeler's official unveiling was that he is very much his own man and will have his own way of doing things`\
-https://nytimes.com/athletic/5611208/2024/07/03/fabian-hurzeler-brighton-expectations/
 
