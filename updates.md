@@ -1,3 +1,11 @@
+**Did You Find These Easter Eggs in ‘The Bear’?**\
+`Subtle, and not so subtle, culinary references are sprinkled throughout out the show’s third season.`\
+https://nytimes.com/2024/07/03/dining/season-3-the-bear-easter-eggs.html
+
+**A Group of Business Leaders Call on Biden to Step Aside**\
+`As Democratic donors increasingly warm to a change, a coalition of politically active executives is among the first to publicly speak out.`\
+https://nytimes.com/2024/07/03/us/politics/business-leaders-biden.html
+
 **Why the Pistons could target Brook Lopez, Mitchell Robinson and others via trade**\
 `Trajan Langdon wants to get assets. Which teams could Detroit trade with to get it done?`\
 https://nytimes.com/athletic/5614281/2024/07/03/pistons-nba-trade-knicks-lakers-bucks/
