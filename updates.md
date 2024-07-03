@@ -1,3 +1,7 @@
+**Raúl Grijalva Is Second House Democrat to Call for Biden to Drop Out**\
+`His remarks came a day after Representative Lloyd Doggett, a Texas Democrat, became the first member of his party in the House to call on Mr. Biden to withdraw.`\
+https://nytimes.com/2024/07/03/us/politics/raul-grijalva-biden-drop-out.html
+
 **Democrats’ Anxiety on Display as Jill Biden Opens Michigan Campaign Office**\
 `The first lady said President Biden would press ahead despite concerns about his acuity. Some Democrats said they wished he wouldn’t.`\
 https://nytimes.com/2024/07/03/us/jill-biden-michigan-campaign-office.html

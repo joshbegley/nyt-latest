@@ -1,3 +1,7 @@
+**Raúl Grijalva Is Second House Democrat to Call for Biden to Drop Out**\
+`His remarks came a day after Representative Lloyd Doggett, a Texas Democrat, became the first member of his party in the House to call on Mr. Biden to withdraw.`\
+https://nytimes.com/2024/07/03/us/politics/raul-grijalva-biden-drop-out.html
+
 **Democrats’ Anxiety on Display as Jill Biden Opens Michigan Campaign Office**\
 `The first lady said President Biden would press ahead despite concerns about his acuity. Some Democrats said they wished he wouldn’t.`\
 https://nytimes.com/2024/07/03/us/jill-biden-michigan-campaign-office.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/07/03/us/biden-trump-election/bidens-press-secreta
 **Dutch golfer wins court case to represent Netherlands at Olympics**\
 `The judge’s ruling had no impact on the Olympic fortunes of other excluded Dutch golfers Darius van Driel and Dewi Weber.`\
 https://nytimes.com/athletic/5615324/2024/07/03/joost-luiten-olympics-golf-netherlands-court-case/
-
-**‘Despicable Me 4’ Review: This Time They’re Superheroes**\
-`The crew is back, but this time around they need to lie low. Sort of.`\
-https://nytimes.com/2024/07/03/movies/despicable-me-4-review.html
 
