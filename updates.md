@@ -1,3 +1,7 @@
+**Answering 30 MLB trade deadline questions with a month to go and so many possibilities**\
+`What will — and won't — the top teams do? What about some of the clubs in wild-card hunt? And who is the biggest prospect who will be dealt?`\
+https://nytimes.com/athletic/5613210/2024/07/03/mlb-trade-deadline-scenarios-questions-answers-july-30/
+
 **Stefano Pioli to be appointed Al Ittihad head coach after Milan exit**\
 `Saudi Arabian club Al Ittihad are set to appoint Stefano Pioli as their new head coach on a three-year contract.`\
 https://nytimes.com/athletic/5613649/2024/07/03/stefano-pioli-head-coach-al-ittihad/

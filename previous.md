@@ -1,3 +1,7 @@
+**Answering 30 MLB trade deadline questions with a month to go and so many possibilities**\
+`What will — and won't — the top teams do? What about some of the clubs in wild-card hunt? And who is the biggest prospect who will be dealt?`\
+https://nytimes.com/athletic/5613210/2024/07/03/mlb-trade-deadline-scenarios-questions-answers-july-30/
+
 **Stefano Pioli to be appointed Al Ittihad head coach after Milan exit**\
 `Saudi Arabian club Al Ittihad are set to appoint Stefano Pioli as their new head coach on a three-year contract.`\
 https://nytimes.com/athletic/5613649/2024/07/03/stefano-pioli-head-coach-al-ittihad/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/03/podcasts/biden-trump-sentencing.html
 **2024 fantasy football breakout tight ends: Dalton Kincaid, Tyler Conklin and more**\
 `Jake Ciely surveys the fantasy football landscape, highlighting the under-the-radar tight ends who could be surprising breakouts in 2024.`\
 https://nytimes.com/athletic/5613093/2024/07/03/2024-fantasy-football-breakout-tight-ends-dalton-kincaid-tyler-conklin-and-more/
-
-**Wordle Review No. 1,111, July 4, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/03/crosswords/wordle-review-1111.html
 
