@@ -1,3 +1,11 @@
+**With calm felt from dugout to stands, Michael Mercado stays composed in first big-league start**\
+`"Being on such a great team and them having that kind of confidence in you is so big," Mercado said after the Phillies beat the Cubs 6-4.`\
+https://nytimes.com/athletic/5613353/2024/07/03/phillies-michael-mercado-first-big-league-start/
+
+**The chaos of Austria vs Turkey: part Bundesliga, part South America, part lower-league**\
+`Turkey are through to the quarter-finals after an exciting win over Austria which had a bit of everything`\
+https://nytimes.com/athletic/5612728/2024/07/03/austria-turkey-tactics/
+
 **How China and Russia Compete, and Cooperate, in Central Asia**\
 `China’s leader, Xi Jinping, and President Vladimir V. Putin of Russia are courting regional leaders and pushing an alternative to the U.S.-led order.`\
 https://nytimes.com/2024/07/03/world/asia/china-russia-central-asia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/03/opinion/britain-election-keir-starmer.html
 **Phillies show Cubs what paying for star talent can do**\
 `The Cubs fell short again in the battle of "intelligent spending" (Chicago) vs. a team dishing out "stupid" money (Philadelphia).`\
 https://nytimes.com/athletic/5613243/2024/07/03/cubs-lose-to-phillies/
-
-**How Yankees, Luis Gil are explaining shocking slump**\
-`“It's tough,” Gil said, “but there's no giving up. That's what it is. You keep battling. You keep fighting, and then you turn it around.”`\
-https://nytimes.com/athletic/5613249/2024/07/03/yankees-luis-gil-slump-explanation/
-
-**China Seizes Taiwanese Fishing Boat in Latest Uptick in Tensions**\
-`The authorities in Taipei have demanded Beijing release the boat and its five crew members, who are being held in custody.`\
-https://nytimes.com/2024/07/03/world/asia/china-taiwan-boat.html
 
