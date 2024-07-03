@@ -1,3 +1,7 @@
+**West Ham's €30m transfer bid for Nice defender Todibo rejected**\
+`West Ham United have seen a €30million (£25.`\
+https://nytimes.com/athletic/5613903/2024/07/03/jean-clair-todibo-west-ham-transfer/
+
 **Ipswich make joint bid for Hull duo Greaves and Philogene**\
 `Ipswich Town have made a joint bid in the region of £35million plus add-ons for Hull City duo Jacob Greaves and Jaden Philogene.`\
 https://nytimes.com/athletic/5614009/2024/07/03/ipswich-town-greaves-philogene/
