@@ -1,3 +1,7 @@
+**Police investigating tunnel fracas between fan and Euro 2024 stewards**\
+`German police have confirmed they are investigating after video footage on social media appeared to show a fan being assaulted by stadium security staff during the European Championship last-16 fixture between Portugal and Slovenia.`\
+https://nytimes.com/athletic/5612432/2024/07/03/police-euro-2024-tunnel-fan/
+
 **Salah and Endo to miss Olympics**\
 `Mohamed Salah and Wataru Endo will be available for Liverpool’s full pre-season schedule as they won’t be featuring at the Olympics.`\
 https://nytimes.com/athletic/5613504/2024/07/03/mohamed-salah-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5539692/2024/07/03/dan-ashworth-manchester-united-r
 **Ohtani likely skipping Home Run Derby**\
 `“He is going through rehab ... he signed up to play for the Dodgers and to take care of himself the best way he can,” Dave Roberts said.`\
 https://nytimes.com/athletic/5613418/2024/07/03/shohei-ohtani-home-run-derby/
-
-**Hurricane Beryl Caused ‘Unimaginable’ Damage in Grenada, Leader Says**\
-`As the storm headed for Jamaica, officials were assessing what Grenada’s prime minister called “total” devastation on two of the country’s islands.`\
-https://nytimes.com/2024/07/03/world/americas/hurricane-beryl-grenada.html
 
