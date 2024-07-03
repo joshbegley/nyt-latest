@@ -1,3 +1,19 @@
+**Biden tells campaign staff: ‘I’m in this race to the end.’**\
+`By Lisa Lerer and Nicholas Nehamas`\
+https://nytimes.com/live/2024/07/03/us/biden-trump-election/biden-tells-campaign-staff-im-in-this-race-to-the-end
+
+**A New Poll Brings a Dire Warning for the Biden Campaign**\
+`If the president’s candidacy was shaky before, it is virtually untenable now.`\
+https://nytimes.com/live/2024/07/02/opinion/thepoint/biden-poll-drop-out
+
+**Hezbollah responds to the killing of a senior commander with a cross-border rocket barrage.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/07/03/world/israel-gaza-war-hamas/hezbollah-responds-to-the-killing-of-a-senior-commander-with-a-cross-border-rocket-barrage
+
+**Jamaican Airports Shut Down, Stranding Travelers and Snarling Plans**\
+`The island’s three main international air hubs will remain closed through at least Wednesday night, and many airlines are waiving change and cancellation fees.`\
+https://nytimes.com/2024/07/03/weather/hurricane-beryl-jamaica-airports.html
+
 **The Debate Hurt Biden, but the Real Shift Has Been Happening for Years**\
 `A 3-point move toward Trump in a new Times/Siena poll is not a fundamental change in the race, but it adds to longstanding concerns.`\
 https://nytimes.com/2024/07/03/upshot/poll-biden-trump-debate.html
