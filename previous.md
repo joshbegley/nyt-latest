@@ -1,3 +1,7 @@
+**Ndiaye is the natural No 10 Everton need - and could bring best out of Doucoure too**\
+`Everton have been long-term admirers of the gifted and hard-working forward. He will bring a different dimension to Sean Dyche's team`\
+https://nytimes.com/athletic/5592636/2024/07/03/iliman-ndiyae-everton-transfer/
+
 **James Rodriguez is lighting up Copa America and at the heart of Colombia's incredible run**\
 `Colombia are now 26 games unbeaten, and head into their Copa America quarter-final with Panama as strong favourites to extend that`\
 https://nytimes.com/athletic/5613462/2024/07/03/james-rodriguez-colombia-copa-america-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5611815/2024/07/03/broncos-contract-extensions-2024
 **The Pulse: The quietly shocking end of an NBA dynasty**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5612567/2024/07/03/klay-thompson-warriors-mavericks/
-
-**U.S. Allies See a Worrisome Turn in Presidential Immunity Ruling**\
-`Legal experts say the U.S. Supreme Court ruling pushes past most of the norms in effect among American allies, adding more concern about the reliability of U.S. power.`\
-https://nytimes.com/2024/07/03/world/asia/supreme-court-immunity-allies.html
 
