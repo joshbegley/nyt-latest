@@ -1,3 +1,11 @@
+**Tarasenko, Red Wings agree to 2-year, $9.5 million deal**\
+`In 76 regular-season games played in 2023-24, Tarasenko recorded 23 goals and 32 assists.`\
+https://nytimes.com/athletic/5615362/2024/07/03/vladimir-tarasenko-red-wings-contract/
+
+**Netflix Co-founder Becomes One of the Biggest Democratic Donors to Call for Biden to Step Aside**\
+`A public declaration from a megadonor is another crack in the armor in the president’s foundation of support.`\
+https://nytimes.com/2024/07/03/us/politics/hastings-donors-biden.html
+
 **Raúl Grijalva Is Second House Democrat to Call for Biden to Drop Out**\
 `His remarks came a day after Representative Lloyd Doggett, a Texas Democrat, became the first member of his party in the House to call on Mr. Biden to withdraw.`\
 https://nytimes.com/2024/07/03/us/politics/raul-grijalva-biden-drop-out.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5615313/2024/07/03/neil-bath-jim-fraser-chelsea-lea
 **Thursday Briefing: What’s at Stake in Britain’s Elections**\
 `Plus, an ally said Biden is considering leaving the race.`\
 https://nytimes.com/2024/07/03/briefing/britain-elections.html
-
-**Biden’s press secretary rejects media reports that he was considering withdrawing from the campaign.**\
-`By Michael D. Shear`\
-https://nytimes.com/live/2024/07/03/us/biden-trump-election/bidens-press-secretary-rejects-media-reports-that-he-was-considering-withdrawing-from-the-campaign
-
-**Dutch golfer wins court case to represent Netherlands at Olympics**\
-`The judge’s ruling had no impact on the Olympic fortunes of other excluded Dutch golfers Darius van Driel and Dewi Weber.`\
-https://nytimes.com/athletic/5615324/2024/07/03/joost-luiten-olympics-golf-netherlands-court-case/
 
