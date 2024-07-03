@@ -1,3 +1,7 @@
+**Brazil 1-1 Colombia: Takeaways from Vini Jr.'s costly yellow and James' brilliant form**\
+`Two of Copa America's best went head to head and didn't disappoint `\
+https://nytimes.com/athletic/5612988/2024/07/02/brazil-colombia-copa-america-takeaways/
+
 **Giants 'Hard Knocks' takeaways: Exploring a Saquon Barkley trade and 'not giving up' on Daniel Jones**\
 `The Giants explored all scenarios involving Barkley, including using the franchise tag on him and then trading the star RB. `\
 https://nytimes.com/athletic/5613074/2024/07/02/new-york-giants-hard-knocks-joe-schoen-saquon-barkley/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5612741/2024/07/02/craig-monroe-tigers-sexual-abuse
 **Inside Blues' Pavel Buchnevich talks — and how they got him extended without going max term**\
 `Per his agent, Buchnevich "doesn't want to be a player that is just collecting money. He wants to earn what he's making."`\
 https://nytimes.com/athletic/5612439/2024/07/02/pavel-buchnevich-extension-blues/
-
-**What to See in N.Y.C. Galleries in July**\
-`This week in Newly Reviewed, Yinka Elujoba covers Elmer Guevara’s subtle paintings, James Casebere’s reimagined architecture and John Ahearn and Rigoberto Torres’s busts of Bronx residents.`\
-https://nytimes.com/2024/07/02/arts/design/nyc-gallery-shows-july.html
 
