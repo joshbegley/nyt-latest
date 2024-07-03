@@ -1,3 +1,7 @@
+**Trump Widens Lead After Biden’s Debate Debacle, Times/Siena Poll Finds**\
+`Donald Trump is ahead of President Biden by six percentage points among likely voters in a new national survey. Overall, 74 percent of voters view him as too old for the job, an uptick since the debate.`\
+https://nytimes.com/2024/07/03/us/politics/poll-debate-biden-trump.html
+
 **Toplines: July 2024 Times/Siena Poll of Registered Voters Nationwide**\
 `Results of a nationwide New York Times/Siena College poll conducted among 1,532 registered voters from June 28 to July 2, 2024.`\
 https://nytimes.com/interactive/2024/07/03/us/elections/times-siena-poll-toplines.html
