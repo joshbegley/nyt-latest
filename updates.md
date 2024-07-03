@@ -1,3 +1,7 @@
+**162 Years Later, a Medal of Honor for Two Civil War Train Raiders**\
+`Family members of Pvt. Philip G. Shadrach and Pvt. George D. Wilson received the nation’s highest decoration for combat valor.`\
+https://nytimes.com/2024/07/03/us/politics/medal-of-honor-biden-civil-war.html
+
 **How to Protect Yourself From Wildfire Smoke**\
 `Scientists are still studying the long-term health effects of smoke exposure.`\
 https://nytimes.com/2024/07/03/well/wildfire-smoke-health-effects.html

@@ -1,3 +1,23 @@
+**An anxious Caribbean community in New York monitors Beryl’s path.**\
+`By Alyce McFadden and Nate Schweber`\
+https://nytimes.com/live/2024/07/03/weather/hurricane-beryl/an-anxious-caribbean-community-in-new-york-monitors-beryls-path
+
+**Here Comes the ‘KHive’: Buzz for Kamala Harris Grows After Biden’s Debate Stumble**\
+`The vice president is receiving support from both prominent Democrats and social media fans who show their enthusiasm with coconut tree emojis.`\
+https://nytimes.com/2024/07/03/us/politics/kamala-harris-biden-president-debate.html
+
+**Should Biden Step Aside or Stay In? What Prominent Democrats Are Saying**\
+`A small but vocal faction of party members are urging the president to withdraw from the race or consider doing so in time for a replacement to be chosen.`\
+https://nytimes.com/interactive/2024/07/03/us/elections/biden-withdrawal-democrats.html
+
+**Judge Backs Challenge to F.T.C.’s Noncompete Ban, at Least for Now**\
+`Granting an injunction to several plaintiffs, a judge said the Federal Trade Commission’s pending ban on noncompete agreements was unlikely to prevail.`\
+https://nytimes.com/2024/07/03/business/ftc-noncompete-ban-injunction.html
+
+**Israel releases Palestinian Authority funds while claiming more West Bank land.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/07/03/world/israel-gaza-war-hamas/israel-releases-palestinian-authority-funds-while-claiming-more-west-bank-land
+
 **162 Years Later, a Medal of Honor for Two Civil War Train Raiders**\
 `Family members of Pvt. Philip G. Shadrach and Pvt. George D. Wilson received the nation’s highest decoration for combat valor.`\
 https://nytimes.com/2024/07/03/us/politics/medal-of-honor-biden-civil-war.html
@@ -13,24 +33,4 @@ https://nytimes.com/2024/07/03/us/politics/biden-trump-2024-presidential-debate-
 **How to Stop Child Marriage? Punish Husbands, Parents and Wedding Guests.**\
 `A new law in the West African country of Sierra Leone allows child brides to annul their marriages and be financially compensated.`\
 https://nytimes.com/2024/07/03/world/africa/child-marriage-sierra-leone-africa.html
-
-**Miami lands 4-star 2026 QB Dereon Coleman**\
-`The Canes' 2026 class now includes two top-200 national prospects and a four-star QB in Coleman.`\
-https://nytimes.com/athletic/5615062/2024/07/03/miami-recruiting-quarterback-dereon-coleman/
-
-**Israel Kills a Top Commander of Hezbollah, Which Replies With a Rocket Barrage**\
-`The escalation in violence across the border of Israel and Lebanon came as Western diplomats tried to head off a full-fledged war there.`\
-https://nytimes.com/2024/07/03/world/middleeast/israel-hezbollah-commander-strike-rockets.html
-
-**NHL contract grades: Vladimir Tarasenko brings all-offense mentality to Red Wings**\
-`The idea of Tarasenko playing opposite longtime Central rival Patrick Kane on the second line is tantalizing — at one end of the ice.`\
-https://nytimes.com/athletic/5615357/2024/07/03/nhl-contract-grades-vladimir-tarasenko-red-wings/
-
-**Scouting Phillies, Pirates, Orioles and Rangers prospects, including Aidan Miller**\
-`Notes from recent scouting trips to see Jersey Shore, Greensboro, Down East and Delmarva.`\
-https://nytimes.com/athletic/5615303/2024/07/03/scouting-aidan-miller-termarr-johnson-keith-law/
-
-**Nearly All Democratic Governors Plan to Attend Biden Meeting**\
-`Gavin Newsom, Gretchen Whitmer and Andy Beshear will be among those attending Wednesday’s meeting in person. At least half a dozen governors will be joining remotely.`\
-https://nytimes.com/2024/07/03/us/politics/nearly-all-democratic-governors-plan-to-attend-biden-meeting.html
 

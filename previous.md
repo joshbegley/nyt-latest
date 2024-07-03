@@ -1,3 +1,7 @@
+**162 Years Later, a Medal of Honor for Two Civil War Train Raiders**\
+`Family members of Pvt. Philip G. Shadrach and Pvt. George D. Wilson received the nation’s highest decoration for combat valor.`\
+https://nytimes.com/2024/07/03/us/politics/medal-of-honor-biden-civil-war.html
+
 **How to Protect Yourself From Wildfire Smoke**\
 `Scientists are still studying the long-term health effects of smoke exposure.`\
 https://nytimes.com/2024/07/03/well/wildfire-smoke-health-effects.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5615303/2024/07/03/scouting-aidan-miller-termarr-jo
 **Nearly All Democratic Governors Plan to Attend Biden Meeting**\
 `Gavin Newsom, Gretchen Whitmer and Andy Beshear will be among those attending Wednesday’s meeting in person. At least half a dozen governors will be joining remotely.`\
 https://nytimes.com/2024/07/03/us/politics/nearly-all-democratic-governors-plan-to-attend-biden-meeting.html
-
-**You Tested Positive for Covid. Can You Still Travel?**\
-`With coronavirus cases on the rise, summer travelers are once again facing difficult questions. Here’s the latest travel guidance from health experts.`\
-https://nytimes.com/2024/07/03/travel/covid-positive-travel.html
 
