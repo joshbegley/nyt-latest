@@ -1,3 +1,7 @@
+**Thompson: Klay Thompson had to leave the Warriors, but the legend will last forever**\
+`Klay Thompson has always been his own man. That's why he had to leave. Whenever he returns, it'll be as the legend Warriors fans love.`\
+https://nytimes.com/athletic/5615798/2024/07/04/klay-thompson-warriors-mavericks-legend/
+
 **Hurricane Beryl Moves Toward Mexico**\
 `The storm, now a Category 3 hurricane, has already slammed Jamaica and Grenada this week. A hurricane warning was in effect for the Cayman Islands on Thursday.`\
 https://nytimes.com/article/hurricane-beryl-tropical-storm-updates.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/07/04/world/europe/uk-election-voters.html
 **Manchester United appoint Vivell as temporary director of global talent**\
 `Christopher Vivell has been appointed as Manchester United&#8217;s director of global talent on a temporary basis.`\
 https://nytimes.com/athletic/5616278/2024/07/04/manchester-united-transfers-christopher-vivell/
-
-**Sabres depth chart reset: Where Buffalo improved and what needs are left**\
-`How much has this offseason pushed the Sabres forward? A look at where they improved, where they didn't and what still needs to be done.`\
-https://nytimes.com/athletic/5615619/2024/07/04/sabres-depth-chart-roster-moves/
 
