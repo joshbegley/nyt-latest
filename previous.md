@@ -1,5 +1,5 @@
 **Russian Who Led Troops Linked to Bucha Killings Is Charged With Corruption**\
-`Col. Artyom Gorodilov, who oversaw forces occupying the Ukrainian city where a massacre took place, was arrested and accused of large-scale fraud.4`\
+`Col. Artyom Gorodilov, who oversaw forces occupying the Ukrainian city where a massacre took place, was arrested and accused of large-scale fraud.`\
 https://nytimes.com/2024/07/04/world/europe/russian-commander-corruption-bucha.html
 
 **Here Are the Key Players in the U.K. Election**\
