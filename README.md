@@ -1,3 +1,7 @@
+**Manchester United appoint Vivell as temporary director of global talent**\
+`Christopher Vivell has been appointed as Manchester United&#8217;s director of global talent on a temporary basis.`\
+https://nytimes.com/athletic/5616278/2024/07/04/manchester-united-transfers-christopher-vivell/
+
 **Sabres depth chart reset: Where Buffalo improved and what needs are left**\
 `How much has this offseason pushed the Sabres forward? A look at where they improved, where they didn't and what still needs to be done.`\
 https://nytimes.com/athletic/5615619/2024/07/04/sabres-depth-chart-roster-moves/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/5615619/2024/07/04/sabres-depth-chart-roster-moves/
 https://nytimes.com/athletic/5615519/2024/07/04/victor-wembanyama-pitcher-dream-team-roster-psa/
 
 **First African-Born Member of German Parliament Won’t Seek Re-election**\
-`Karamba Diaby, whose 2013 victory was considered a win for equality, cited time with his family as a main reason for stepping down. But he and his office have been the targets of death threats and arson.`\
+`Karamba Diaby, whose 2013 victory was considered a win for equality, said he wanted more time with his family. But he has also spoken of the death threats he has received.`\
 https://nytimes.com/2024/07/04/world/europe/germany-parliament-african-karamba-diaby.html
 
 **The Athletic FC: Should Portugal drop Ronaldo? Plus: Ten Hag extends deal, United to cut 250 jobs**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5615616/2024/07/04/garrett-crochet-mlb-trade-deadli
 **West Ham reluctant to let Paqueta join Flamengo on loan**\
 `West Ham United say they have no intention of loaning Lucas Paqueta to his boyhood club Flamengo.`\
 https://nytimes.com/athletic/5616025/2024/07/04/lucas-paqueta-west-ham-loan/
-
-**Erik ten Hag's Man Utd contract is settled but results will determine his future**\
-`The details of Erik ten Hag's contract extension at Manchester United, his backroom staff and what it means for the future`\
-https://nytimes.com/athletic/5600923/2024/07/04/ten-hag-new-contract/
 
