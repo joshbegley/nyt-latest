@@ -1,3 +1,7 @@
+**Even without Kyle Tucker, the Astros' 'selfless' offense is thriving**\
+`The Astros' hot bats reinforce a thought that the team should focus all of its attention on pitching at the trade deadline.`\
+https://nytimes.com/athletic/5617417/2024/07/04/astros-kyle-tucker-offense-selfless/
+
 **Wimbledon day 4 recap: The day a Grand Slam tournament came alive**\
 `Wimbledon 2024 came alive on its fourth day, with British battles, chants of USA, and plenty of matches with edge and drama.`\
 https://nytimes.com/athletic/5616996/2024/07/04/wimbledon-recap-grand-slam-comes-alive-on-general-election-day-and-4th-july/
