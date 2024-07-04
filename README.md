@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5617373/2024/07/04/twins-royce-lewis-jose-miranda/
 https://nytimes.com/athletic/5617318/2024/07/04/andy-murray-wimbledon-centre-court-ceremony/
 
 **Kenta Maeda’s contract has turned into the Tigers’ latest albatross**\
-`Maeda entered this year averaging nearly 10 strikeouts per nine inning, but this season it's only 6.8.`\
+`Maeda entered this year averaging nearly 10 strikeouts per nine innings, but this season it's only 6.8.`\
 https://nytimes.com/athletic/5617305/2024/07/04/tigers-kenta-maeda-contract/
 
 **Friday Briefing: Labour Projected to Win U.K. Election**\
