@@ -1,3 +1,7 @@
+**As Royce Lewis searches for answers, Twins offense solves Detroit with 12-3 rout**\
+`Lewis, showing his frustration said: "If someone said, 'Hey, if you smoke cigarettes like Babe Ruth, that'll work,’ then I'll do that too."`\
+https://nytimes.com/athletic/5617373/2024/07/04/twins-royce-lewis-jose-miranda/
+
 **Humour dries the tears at Andy Murray's poignant Wimbledon farewell**\
 `Andy Murray began his long goodbye to Wimbledon with a touching Centre Court farewell, full of tributes, tears — and stories of vomiting`\
 https://nytimes.com/athletic/5617318/2024/07/04/andy-murray-wimbledon-centre-court-ceremony/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/07/04/world/europe/russian-commander-corruption-bucha.h
 **Here Are the Key Players in the U.K. Election**\
 `Millions cast ballots for parliamentary seats on Thursday. The party that wins the most seats usually forms Britain’s next government, and that party’s leader becomes prime minister.`\
 https://nytimes.com/2024/07/04/world/europe/uk-election-party-leaders.html
-
-**Tourists arrive in Cancún only to learn that Beryl is joining them.**\
-`By Ricardo Hernández Ruiz`\
-https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/tourists-arrive-in-cancun-only-to-learn-that-beryl-is-joining-them
 
