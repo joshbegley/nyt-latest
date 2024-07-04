@@ -2,7 +2,7 @@
 `James Michael Fisher, 67, was arrested on charges that he made false statements during a criminal investigation into a the crash of a Marine Corps aircraft in Mississippi in 2017, the Justice Department said.`\
 https://nytimes.com/2024/07/03/us/military-plane-crash-2017-engineer-charges.html
 
-**Hurricane Beryl Lashes Jamaica After Battering Eastern Caribbean**\
+**Hurricane Beryl Batters Jamaica as 2 Other Islands Lie in Ruin**\
 `The island confirmed its first death as a surge of water, damaging winds and flooding pummeled the southern coast on Wednesday. The Cayman Islands are bracing to be next.`\
 https://nytimes.com/2024/07/03/world/americas/hurricane-beryl-grenada-jamaica.html
 
