@@ -1,3 +1,7 @@
+**Mets must fix their bullpen to contend, as latest blown lead makes clear**\
+`Edwin Díaz will be back soon, but the bullpen problems run too deep for one man to fix. Will the Mets add a reliever at the deadline?`\
+https://nytimes.com/athletic/5615758/2024/07/03/mets-bullpen-problems-edwin-diaz/
+
 **Jays notes: Jordan Romano's post-surgery return in doubt, Vlad Guerrero Jr. an All-Star again**\
 `Romano had arthroscopic surgery on his right elbow Wednesday and will be shut down for at least six weeks.`\
 https://nytimes.com/athletic/5615656/2024/07/03/blue-jays-jordan-romano-elbow-arthroscopic-surgery-vladimir-guerrero-jr-all-star/
