@@ -3,7 +3,7 @@
 https://nytimes.com/2024/07/03/us/military-plane-crash-2017-engineer-charges.html
 
 **Hurricane Beryl Batters Jamaica as 2 Other Islands Lie in Ruin**\
-`The island confirmed its first death as a surge of water, damaging winds and flooding pummeled the southern coast on Wednesday. The Cayman Islands are bracing to be next.`\
+`The island confirmed its first death amid a surge of water, damaging winds and flooding. The storm is barreling toward the Cayman Islands and the Yucatán Peninsula in Mexico.`\
 https://nytimes.com/2024/07/03/world/americas/hurricane-beryl-grenada-jamaica.html
 
 **Lightning Is Blamed for Deadly New Mexico Fire**\
