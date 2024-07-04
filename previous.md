@@ -30,7 +30,7 @@ https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/gulf-oil-rigs-are-be
 `Almost every district is expected to declare a winner by 7 a.m. local time. A clear opposition victory would result in a quick transition of power.`\
 https://nytimes.com/2024/07/04/world/europe/uk-election-polls-guide.html
 
-**The polls close soon in Britain. Here’s the latest.**\
+**Here’s the latest in the British election.**\
 `By Mark Landler`\
 https://nytimes.com/live/2024/07/04/world/uk-election-results/the-polls-close-soon-in-britain-heres-the-latest
 

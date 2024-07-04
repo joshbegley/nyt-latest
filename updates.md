@@ -1,3 +1,7 @@
+**Here’s the latest in the British election.**\
+`By Mark Landler`\
+https://nytimes.com/live/2024/07/04/world/uk-election-results/the-polls-close-soon-in-britain-heres-the-latest
+
 **Russian Who Led Troops Linked to Bucha Killings Is Charged With Corruption**\
 `Col. Artyom Gorodilov, who oversaw forces occupying the Ukrainian city where a massacre took place, was arrested and accused of large-scale fraud.`\
 https://nytimes.com/2024/07/04/world/europe/russian-commander-corruption-bucha.html
