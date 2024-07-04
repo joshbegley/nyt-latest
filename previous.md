@@ -1,5 +1,9 @@
-**Hurricane Beryl Lashes Jamaica After Battering Eastern Caribbean**\
-`The island confirmed its first death as a surge of water, damaging winds and flooding pummeled the southern coast on Wednesday. The Cayman Islands are bracing to be next.`\
+**Ex-Engineer Charged With Obstructing Inquiry Into Military Crash That Killed 16**\
+`James Michael Fisher, 67, was arrested on charges that he made false statements during a criminal investigation into a the crash of a Marine Corps aircraft in Mississippi in 2017, the Justice Department said.`\
+https://nytimes.com/2024/07/03/us/military-plane-crash-2017-engineer-charges.html
+
+**Hurricane Beryl Batters Jamaica as 2 Other Islands Lie in Ruin**\
+`The island confirmed its first death amid a surge of water, damaging winds and flooding. The storm is barreling toward the Cayman Islands and the Yucatán Peninsula in Mexico.`\
 https://nytimes.com/2024/07/03/world/americas/hurricane-beryl-grenada-jamaica.html
 
 **Lightning Is Blamed for Deadly New Mexico Fire**\
@@ -29,8 +33,4 @@ https://nytimes.com/2024/07/03/us/politics/biden-drop-out-2024-election.html
 **Former San Diego Wave employee alleges poor work environment under Ellis**\
 `The former employee also alleges discrimination by the Wave. `\
 https://nytimes.com/athletic/5615225/2024/07/03/san-diego-wave-jill-ellis-allegations/
-
-**Wimbledon day 3: All eyes on Emma Navarro? Can Coco Gauff hit 130mph?**\
-`On day 3 of Wimbledon 2024, Emma Navarro rose,Tomas Machac pulled off a stunning five-set comeback, and Daniil Medvedev lost his bearing`\
-https://nytimes.com/athletic/5614874/2024/07/03/wimbledon-recap-day-3-navarro-osaka-gauff/
 
