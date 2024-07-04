@@ -1,3 +1,15 @@
+**Tiny Love Stories: ‘Surrounded by Family and Fireworks, I Finally Lit the Fuse’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/07/04/style/tiny-modern-love-stories-surrounded-by-family-and-fireworks-i-finally-lit-the-fuse.html
+
+**Here is the latest on the storm.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/here-is-the-latest-on-the-storm
+
+**Live Updates: Hurricane Beryl Passes Cayman Islands on Way to Mexico**\
+`The storm, now a Category 3 hurricane, has already slammed Jamaica and Grenada this week. A hurricane warning was in effect for the Cayman Islands on Thursday.`\
+https://nytimes.com/live/2024/07/04/weather/hurricane-beryl
+
 **Why Spain vs Germany is one of the biggest quarter-finals in international football history**\
 `A lopsided draw at Euro 2024 means that there is an unusually early meeting between arguably the two best sides in the competition`\
 https://nytimes.com/athletic/5616447/2024/07/04/spain-germany-euro-2024-real-final/

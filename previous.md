@@ -1,3 +1,15 @@
+**Tiny Love Stories: ‘Surrounded by Family and Fireworks, I Finally Lit the Fuse’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/07/04/style/tiny-modern-love-stories-surrounded-by-family-and-fireworks-i-finally-lit-the-fuse.html
+
+**Here is the latest on the storm.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/here-is-the-latest-on-the-storm
+
+**Live Updates: Hurricane Beryl Passes Cayman Islands on Way to Mexico**\
+`The storm, now a Category 3 hurricane, has already slammed Jamaica and Grenada this week. A hurricane warning was in effect for the Cayman Islands on Thursday.`\
+https://nytimes.com/live/2024/07/04/weather/hurricane-beryl
+
 **Why Spain vs Germany is one of the biggest quarter-finals in international football history**\
 `A lopsided draw at Euro 2024 means that there is an unusually early meeting between arguably the two best sides in the competition`\
 https://nytimes.com/athletic/5616447/2024/07/04/spain-germany-euro-2024-real-final/
@@ -21,16 +33,4 @@ https://nytimes.com/2024/07/04/books/review/new-books-recommendations.html
 **Biden responds to debate debacle in Wisconsin interview: ‘I screwed up.’**\
 `By Nicholas Nehamas`\
 https://nytimes.com/live/2024/07/04/us/biden-trump-election/biden-responds-to-debate-debacle-in-wisconsin-interview-i-screwed-up
-
-**Canucks offseason depth chart 2.0: How do the new additions fit into Vancouver's lineup?**\
-`Where do the Canucks currently stand? Let's take a look at their updated depth chart and break it down.`\
-https://nytimes.com/athletic/5615901/2024/07/04/canucks-offseason-depth-chart-lineup/
-
-**Why More French Youth Are Voting for the Far Right**\
-`Most young people in France usually don’t vote or they back the left. That is still true, but support has surged for the far right, whose openly racist past can feel to them like ancient history.`\
-https://nytimes.com/2024/07/04/world/europe/france-far-right-youth-vote.html
-
-**Raya joins Arsenal on permanent transfer from Brentford after loan spell**\
-`Arsenal have confirmed the signing of David Raya on a permanent deal from Brentford after the goalkeeper’s initial loan spell in 2023-24.`\
-https://nytimes.com/athletic/5614086/2024/07/04/david-raya-arsenal-transfer-permanent/
 
