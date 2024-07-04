@@ -1,3 +1,7 @@
+**Newsom Tells Michigan Democrats to Chill and Support Biden**\
+`Gov. Gavin Newsom of California defended President Biden and told party activists in Michigan, a critical swing state, “not to be fatalistic” about the campaign.`\
+https://nytimes.com/2024/07/04/us/gavin-newsom-michigan-biden.html
+
 **Joey Chestnut wins Fort Bliss hot dog eating contest**\
 `Chestnut beat a group of four Army soldiers in a contest at Fort Bliss Army base in El Paso, Texas, by eating 57 hot dogs in five minutes.`\
 https://nytimes.com/athletic/5617356/2024/07/04/joey-chestnut-hot-dog-eating-contest/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/07/04/us/politics/biden-donors.html
 **Hurricane Beryl Tears Through Caribbean, Leaving Islands to Clean Up**\
 `Parts of Jamaica were badly damaged, but its prime minister said it could have been far worse. The storm was on its way to Mexico.`\
 https://nytimes.com/2024/07/04/world/americas/hurricane-beryl-jamaica-mexico.html
-
-**Russian Who Led Troops Linked to Bucha Killings Is Charged With Corruption**\
-`Col. Artyom Gorodilov, who oversaw forces occupying the Ukrainian city where a massacre took place, was arrested and accused of large-scale fraud.`\
-https://nytimes.com/2024/07/04/world/europe/russian-commander-corruption-bucha.html
 
