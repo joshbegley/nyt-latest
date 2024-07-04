@@ -1,3 +1,11 @@
+**Thompson: Klay Thompson had to leave the Warriors, but the legend will last forever**\
+`Klay Thompson has always been his own man. That's why he had to leave. Whenever he returns, it'll be as the legend Warriors fans love.`\
+https://nytimes.com/athletic/5615798/2024/07/04/klay-thompson-warriors-mavericks-legend/
+
+**This English Naval City Is a Bellwether Seat. How Do Voters Feel?**\
+`As voters began casting their ballots in a pivotal U.K. election, many in the southern English city of Portsmouth expressed disillusionment over what they see as national and local decline.`\
+https://nytimes.com/2024/07/04/world/europe/uk-election-voters.html
+
 **Hurricane Beryl Moves Toward Mexico**\
 `The storm, now a Category 3 hurricane, has already slammed Jamaica and Grenada this week. A hurricane warning was in effect for the Cayman Islands on Thursday.`\
 https://nytimes.com/article/hurricane-beryl-tropical-storm-updates.html
