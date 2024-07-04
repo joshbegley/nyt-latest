@@ -1,3 +1,7 @@
+**Why More French Youth Are Voting for the Far Right**\
+`Most young people in France usually don’t vote or they back the left. That is still true, but support has surged for the far right, whose openly racist past can feel to them like ancient history.`\
+https://nytimes.com/2024/07/04/world/europe/france-far-right-youth-vote.html
+
 **Raya joins Arsenal on permanent transfer from Brentford after loan spell**\
 `Arsenal have confirmed the signing of David Raya on a permanent deal from Brentford after the goalkeeper’s initial loan spell in 2023-24.`\
 https://nytimes.com/athletic/5614086/2024/07/04/david-raya-arsenal-transfer-permanent/
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/07/04/us/biden-trump-election
 **Amid a crisis of confidence, Biden will host Independence Day events. Here’s the latest.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/07/04/us/biden-trump-election/amid-a-crisis-of-confidence-biden-will-host-independence-day-events-heres-the-latest
-
-**This English Naval City Is a Bellwether Seat. How Do Voters Feel?**\
-`As voters began casting their ballots in a pivotal U.K. election, many in the southern English city of Portsmouth expressed disillusionment over what they see as national and local decline.`\
-https://nytimes.com/2024/07/04/world/europe/uk-election-voters.html
 
