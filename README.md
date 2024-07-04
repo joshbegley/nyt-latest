@@ -1,3 +1,7 @@
+**What now for Isak, Gordon and Guimaraes after June 30 PSR deadline passed?**\
+`If Newcastle end the window with their prized trio - now the PSR deadline has passed - the omens will be positive for the 2024-25 season`\
+https://nytimes.com/athletic/5613612/2024/07/04/newcastle-isak-gordon-guimaraes-psr-deadline/
+
 **Paul Mullin ruled out of Wrexham's North America tour with back injury**\
 `Wrexham striker Paul Mullin will miss the club&#8217;s summer tour of North America with a back injury.`\
 https://nytimes.com/athletic/5615986/2024/07/04/paul-mullin-injury-wrexham-us-tour/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/07/04/nyregion/crime-times-square-nyc.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/07/04/crosswords/spelling-bee-forum.html
-
-**'The future is now' as Brooks Lee joins Twins' lineup with prospect stock rising**\
-`Rapid power development and an improved right-handed swing have raised Lee's ceiling just in time to sub for an injured Royce Lewis.`\
-https://nytimes.com/athletic/5615461/2024/07/04/brooks-lee-twins-prospect-debut/
 
