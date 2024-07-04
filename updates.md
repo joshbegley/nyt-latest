@@ -1,3 +1,11 @@
+**Joey Chestnut wins Fort Bliss hot dog eating contest**\
+`Chestnut beat a group of four Army soldiers in a contest at Fort Bliss Army base in El Paso, Texas, by eating 57 hot dogs in five minutes.`\
+https://nytimes.com/athletic/5617356/2024/07/04/joey-chestnut-hot-dog-eating-contest/
+
+**Kenta Maeda’s contract has turned into the Tigers’ latest albatross**\
+`Maeda entered this year averaging nearly 10 strikeouts per nine innings, but this season it's only 6.8.`\
+https://nytimes.com/athletic/5617305/2024/07/04/tigers-kenta-maeda-contract/
+
 **As Royce Lewis searches for answers, Twins offense solves Detroit with 12-3 rout**\
 `Lewis, showing his frustration said: "If someone said, 'Hey, if you smoke cigarettes like Babe Ruth, that'll work,’ then I'll do that too."`\
 https://nytimes.com/athletic/5617373/2024/07/04/twins-royce-lewis-jose-miranda/
