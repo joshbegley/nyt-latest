@@ -1,3 +1,11 @@
+**Riley Greene is playing at an All-Star level, but will he get the call to Arlington?**\
+`On a struggling team, Greene is not only the Tigers’ best position player but also one of their most unyielding.`\
+https://nytimes.com/athletic/5615822/2024/07/04/detroit-tigers-riley-greene-all-star-level/
+
+**Lussey on horror injury: 'More should be done to protect players'**\
+`Jordan Lussey was captain of Liverpool's Under-18s but his senior career has been more difficult`\
+https://nytimes.com/athletic/5610681/2024/07/04/liverpool-jordan-lussey-injury/
+
 **Thursday Briefing**\
 `Britain votes in a long-awaited election.`\
 https://nytimes.com/2024/07/04/briefing/britain-election-biden-campaign.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5613551/2024/07/04/best-xi-euro2024-lobotka-kvarats
 **'No way': Yankees' Carlos Rodón takes small step forward, vents some frustration**\
 `“I definitely wanted to stay in the game,” Rodón said. The Yankees lost to the Cincinnati Reds 3-2 in New York. `\
 https://nytimes.com/athletic/5615776/2024/07/04/yankees-carlos-rodon-frustration/
-
-**How England can get the best out of Saka**\
-`Bukayo Saka has not replicated his club form at the Euros, but there are tactical and structural reasons for that`\
-https://nytimes.com/athletic/5608138/2024/07/04/bukayo-saka-england-arsenal-euros/
-
-**Why aren't France scoring from open play at the Euros?**\
-`France may not have been free-scoring so far but they are getting into good attacking positions, so what is going wrong?`\
-https://nytimes.com/athletic/5614479/2024/07/04/why-are-france-not-scoring-goals-from-open-play-at-euro-2024/
 
