@@ -1,3 +1,7 @@
+**First African-Born Member of German Parliament Won’t Seek Re-election**\
+`Karamba Diaby, whose 2013 victory was considered a win for equality, cited time with his family as a main reason for stepping down. But he and his office have been the targets of death threats and arson.`\
+https://nytimes.com/2024/07/04/world/europe/germany-parliament-african-karamba-diaby.html
+
 **The Athletic FC: Should Portugal drop Ronaldo? Plus: Ten Hag extends deal, United to cut 250 jobs**\
 `Today in The Athletic FC: Is Ronaldo better-suited to the bench for Portugal? Plus: United extend Ten Hag deal but are set to cut 250 jobs`\
 https://nytimes.com/athletic/5616189/2024/07/04/the-athletic-fc-portugal-ronaldo-plus-ten-hag-new-contract/

@@ -1,3 +1,7 @@
+**First African-Born Member of German Parliament Won’t Seek Re-election**\
+`Karamba Diaby, whose 2013 victory was considered a win for equality, cited time with his family as a main reason for stepping down. But he and his office have been the targets of death threats and arson.`\
+https://nytimes.com/2024/07/04/world/europe/germany-parliament-african-karamba-diaby.html
+
 **The Athletic FC: Should Portugal drop Ronaldo? Plus: Ten Hag extends deal, United to cut 250 jobs**\
 `Today in The Athletic FC: Is Ronaldo better-suited to the bench for Portugal? Plus: United extend Ten Hag deal but are set to cut 250 jobs`\
 https://nytimes.com/athletic/5616189/2024/07/04/the-athletic-fc-portugal-ronaldo-plus-ten-hag-new-contract/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5610725/2024/07/04/kudus-west-ham-ghana-exclusive/
 **How Spain have evolved under Luis de la Fuente - through crossing**\
 `Spain are crossing from open play at their highest rate in major tournaments since 2010 — and it's changing how they attack`\
 https://nytimes.com/athletic/5613625/2024/07/04/spain-crossing-euro-2024-de-la-fuente/
-
-**‘Mother, Couch’ Review: The Family That Stays Together**\
-`A stubborn matriarch played by Ellen Burstyn lodges in a furniture store and wages emotional warfare with her adult children.`\
-https://nytimes.com/2024/07/04/movies/mother-couch-review.html
 
