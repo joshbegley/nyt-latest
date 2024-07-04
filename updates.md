@@ -1,3 +1,7 @@
+**PSA picks Wemby as pitcher for dream team baseball roster**\
+`When Victor Wembanyama threw out the ceremonial first pitch at Yankee Stadium last summer, no one expected the No.`\
+https://nytimes.com/athletic/5615519/2024/07/04/victor-wembanyama-pitcher-dream-team-roster-psa/
+
 **First African-Born Member of German Parliament Won’t Seek Re-election**\
 `Karamba Diaby, whose 2013 victory was considered a win for equality, cited time with his family as a main reason for stepping down. But he and his office have been the targets of death threats and arson.`\
 https://nytimes.com/2024/07/04/world/europe/germany-parliament-african-karamba-diaby.html

@@ -1,3 +1,7 @@
+**PSA picks Wemby as pitcher for dream team baseball roster**\
+`When Victor Wembanyama threw out the ceremonial first pitch at Yankee Stadium last summer, no one expected the No.`\
+https://nytimes.com/athletic/5615519/2024/07/04/victor-wembanyama-pitcher-dream-team-roster-psa/
+
 **First African-Born Member of German Parliament Won’t Seek Re-election**\
 `Karamba Diaby, whose 2013 victory was considered a win for equality, cited time with his family as a main reason for stepping down. But he and his office have been the targets of death threats and arson.`\
 https://nytimes.com/2024/07/04/world/europe/germany-parliament-african-karamba-diaby.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5600923/2024/07/04/ten-hag-new-contract/
 **Mohammed Kudus exclusive: 'The first season at West Ham was just the beginning'**\
 `The West Ham forward was a standout performer in his Premier League debut season. His goal now is to maintain those lofty standards`\
 https://nytimes.com/athletic/5610725/2024/07/04/kudus-west-ham-ghana-exclusive/
-
-**How Spain have evolved under Luis de la Fuente - through crossing**\
-`Spain are crossing from open play at their highest rate in major tournaments since 2010 — and it's changing how they attack`\
-https://nytimes.com/athletic/5613625/2024/07/04/spain-crossing-euro-2024-de-la-fuente/
 
