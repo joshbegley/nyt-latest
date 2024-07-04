@@ -1,11 +1,3 @@
-**'The future is now' as Brooks Lee joins Twins' lineup with prospect stock rising**\
-`Rapid power development and an improved right-handed swing have raised Lee's ceiling just in time to sub for an injured Royce Lewis.`\
-https://nytimes.com/athletic/5615461/2024/07/04/brooks-lee-twins-prospect-debut/
-
-**Jamaica reports its first death from Beryl.**\
-`By Jovan Johnson`\
-https://nytimes.com/live/2024/07/03/weather/hurricane-beryl/jamaica-reports-its-first-death-from-beryl
-
 **Cody Bellinger's quiet season hints at another Cubs trade deadline countdown**\
 `Chicago needs the kind of July that Bellinger delivered last summer. Instead, the Cubs continued their familiar losing ways to the Phillies.`\
 https://nytimes.com/athletic/5615840/2024/07/04/cubs-cody-bellinger/
@@ -33,4 +25,12 @@ https://nytimes.com/2024/07/04/world/asia/india-election-news-modi.html
 **Braves' Chris Sale solidifies All-Star resume, praises 'sparkplug' teammate Jarred Kelenic**\
 `Braves hitting coach Kevin Seitzer described Kelenic's talent level as "Off the charts. How ’bout the defense, too?"`\
 https://nytimes.com/athletic/5615766/2024/07/04/braves-chris-sale-jarred-kelenic/
+
+**Chelsea's midfield: Where does Dewsbury-Hall fit in, and where does it leave Gallagher?**\
+`Kiernan Dewsbury-Hall has arrived from Leicester for £30m and promises to shake up the midfield pecking order`\
+https://nytimes.com/athletic/5614215/2024/07/04/chelseas-midfield-where-does-dewsbury-hall-fit-in-and-where-does-it-leave-conor-gallagher/
+
+**Riley Greene is playing at an All-Star level, but will he get the call to Arlington?**\
+`On a struggling team, Greene is not only the Tigers’ best position player but also one of their most unyielding.`\
+https://nytimes.com/athletic/5615822/2024/07/04/detroit-tigers-riley-greene-all-star-level/
 
