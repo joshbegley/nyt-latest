@@ -1,3 +1,7 @@
+**Jenna Lyons’s Favorite Beauty Products, From Eyeliner to Body Oil**\
+`Plus: a palace-inspired hotel in Jaipur, colorful French hand fans and more recommendations from T Magazine.`\
+https://nytimes.com/2024/07/04/t-magazine/jenna-lyons-beauty-makeup-skin-care.html
+
 **Leicester fail in bid to avoid potential PSR punishment**\
 `Leicester City&#8217;s bid to avoid any potential punishment for an alleged breach of the Premier League&#8217;s profitability and sustainability (PSR) rules has been dismissed by an independent commission.`\
 https://nytimes.com/athletic/5332030/2024/07/04/leicester-psr-challenge/
@@ -29,8 +33,4 @@ https://nytimes.com/article/aphelion-earth-sun-distance.html
 **No need for Max Verstappen to apologize for Austria F1 clash, says Lando Norris**\
 `Stay informed on all the biggest stories in Formula One.`\
 https://nytimes.com/athletic/5616577/2024/07/04/lando-norris-max-verstappen-austrian-gp-apology/
-
-**Brighton set to sign Fran Kirby**\
-`Brighton are set to sign England international Fran Kirby on a free transfer.`\
-https://nytimes.com/athletic/5616789/2024/07/04/fran-kirby-brighton-transfer/
 
