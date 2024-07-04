@@ -1,3 +1,15 @@
+**Melodies of Popular Songs Have Gotten Simpler Over Time**\
+`A new study that reviewed Billboard hits from the past 73 years found a steady simplification of rhythm and pitch.`\
+https://nytimes.com/2024/07/04/science/song-melodies-getting-simpler.html
+
+**Five-Ingredient Cookies for the Fourth**\
+`In all fairness, Samantha Seneviratne’s chocolate-peanut butter swirl cookies are delicious no matter the date.`\
+https://nytimes.com/2024/07/04/dining/five-ingredient-cookies-for-the-fourth.html
+
+**Ates: Why the Jets should extend Cole Perfetti long-term this offseason**\
+`For the Jets to improve, they must excel in their approach to restricted free agents — like Perfetti.`\
+https://nytimes.com/athletic/5614834/2024/07/04/cole-perfetti-contract-winnipeg-jets-mcgroarty/
+
 **5 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/07/04/books/review/new-books-recommendations.html
