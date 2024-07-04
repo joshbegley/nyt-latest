@@ -6,8 +6,8 @@ https://nytimes.com/2024/07/04/world/middleeast/netflix-masameer-saudi-arabia-pr
 `As we reach the knockout stage of the tournament, The Athletic ranks all of the teams at this year's Copa America`\
 https://nytimes.com/athletic/5605875/2024/07/04/copa-america-power-rankings/
 
-**Ten Hag signs Manchester United contract extension**\
-`Erik ten Hag has signed a Manchester United contract extension through to June 2026.`\
+**Ten Hag's Manchester United contract extended until 2026**\
+`Erik ten Hag&#8217;s Manchester United contract has been extended through to June 2026.`\
 https://nytimes.com/athletic/5616000/2024/07/04/ten-hag-manchester-united-contract/
 
 **Biden’s Slipping Support**\

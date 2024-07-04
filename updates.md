@@ -1,3 +1,7 @@
+**Ten Hag's Manchester United contract extended until 2026**\
+`Erik ten Hag&#8217;s Manchester United contract has been extended through to June 2026.`\
+https://nytimes.com/athletic/5616000/2024/07/04/ten-hag-manchester-united-contract/
+
 **Netflix Show Earns Its Saudi Creator Plaudits, and a Prison Sentence**\
 `In a video plea for help, Abdulaziz Almuzaini — a dual Saudi-American citizen — described how the authorities had accused him of promoting extremism through a cartoon franchise.`\
 https://nytimes.com/2024/07/04/world/middleeast/netflix-masameer-saudi-arabia-prison.html
