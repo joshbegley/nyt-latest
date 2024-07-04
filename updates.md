@@ -1,3 +1,7 @@
+**Napoli agree deal to sign Real Madrid's Marin**\
+`Napoli have reached an agreement with Real Madrid to sign defender Rafa Marin.`\
+https://nytimes.com/athletic/5615974/2024/07/04/napoli-rafa-marin/
+
 **Ten Hag's Manchester United contract extended until 2026**\
 `Manchester United have extended Erik ten Hag&#8217;s contract through to June 2026.`\
 https://nytimes.com/athletic/5616000/2024/07/04/ten-hag-manchester-united-contract/
