@@ -1,3 +1,11 @@
+**Biden Tells Governors He Needs More Sleep and Less Work at Night**\
+`The president’s opening remark to a group of key Democratic leaders — that he was in the race to stay — chilled any talk of his withdrawal, participants said.`\
+https://nytimes.com/2024/07/04/us/politics/biden-governors.html
+
+**Flyers prospects Bonk, Barkey continue journey together: 'We're like brothers now'**\
+`The duo led the London Knights to an OHL championship and Memorial Cup final and could be key contributors for the Flyers in a couple years.`\
+https://nytimes.com/athletic/5616879/2024/07/04/flyers-prospects-oliver-bonk-denver-barkey/
+
 **Arsenal agree to sell Biereth to Sturm Graz**\
 `Arsenal have agreed a fee of £4milllion with Sturm Graz for the permanent transfer of forward Mika Biereth.`\
 https://nytimes.com/athletic/5616979/2024/07/04/mika-biereth-arsenal-sturm-graz/
