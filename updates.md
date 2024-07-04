@@ -1,3 +1,7 @@
+**Biden Tells Governors He Needs to Sleep More and Work Less at Night**\
+`The president’s opening remark to a group of key Democratic leaders — that he was in the race to stay — chilled any talk of his withdrawal, participants said.`\
+https://nytimes.com/2024/07/04/us/politics/biden-governors.html
+
 **Why Yankees demoted Anthony Volpe in the lineup and what move should come next**\
 `After 76 straight games of leading off, Volpe was dropped to sixth in the batting order for Thursday afternoon's game.`\
 https://nytimes.com/athletic/5616827/2024/07/04/yankees-anthony-volpe-lineup/
