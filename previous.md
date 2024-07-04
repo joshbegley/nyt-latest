@@ -1,3 +1,7 @@
+**Some Countries Are Trying a Four-Day Workweek. Greece Wants a Six-Day One.**\
+`The country, which already has the European Union’s longest average workweek, wants to add another day in some cases, bucking a growing business trend.`\
+https://nytimes.com/2024/07/04/world/europe/greece-six-day-workweek.html
+
 **Sudo crushes record 51 hot dogs to win 10th pink belt**\
 `The legendary glizzy gobbler crushed the most franks in women's hot dog eating history.`\
 https://nytimes.com/athletic/5616621/2024/07/04/nathans-hot-dog-eating-compeition-winners-mens-womens/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5616447/2024/07/04/spain-germany-euro-2024-real-fin
 **Melodies of Popular Songs Have Gotten Simpler Over Time**\
 `A new study that reviewed Billboard hits from the past 73 years found a steady simplification of rhythm and pitch.`\
 https://nytimes.com/2024/07/04/science/song-melodies-getting-simpler.html
-
-**Five-Ingredient Cookies for the Fourth**\
-`In all fairness, Samantha Seneviratne’s chocolate-peanut butter swirl cookies are delicious no matter the date.`\
-https://nytimes.com/2024/07/04/dining/five-ingredient-cookies-for-the-fourth.html
 
