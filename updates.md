@@ -1,3 +1,7 @@
+**No need for Max Verstappen to apologize for Austria F1 clash, says Lando Norris**\
+`Stay informed on all the biggest stories in Formula One.`\
+https://nytimes.com/athletic/5616577/2024/07/04/lando-norris-max-verstappen-austrian-gp-apology/
+
 **Brighton set to sign Fran Kirby**\
 `Brighton are set to sign England international Fran Kirby on a free transfer.`\
 https://nytimes.com/athletic/5616789/2024/07/04/fran-kirby-brighton-transfer/
