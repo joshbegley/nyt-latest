@@ -1,3 +1,7 @@
+**Wimbledon day 4 recap: The day a Grand Slam tournament came alive**\
+`Wimbledon 2024 came alive on its fourth day, with British battles, chants of USA, and plenty of matches with edge and drama.`\
+https://nytimes.com/athletic/5616996/2024/07/04/wimbledon-recap-grand-slam-comes-alive-on-general-election-day-and-4th-july/
+
 **Steve Yzerman discusses Red Wings' offseason, 2024-25 outlook**\
 `Yzerman met with media on Thursday to discuss the team's offseason moves and outlook going forward.`\
 https://nytimes.com/athletic/5617182/2024/07/04/red-wings-free-agents-tarasenko/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/5617182/2024/07/04/red-wings-free-agents-tarasenko/
 `The president’s appearances have come under intense scrutiny since he appeared feeble in his debate against former President Donald J. Trump.`\
 https://nytimes.com/2024/07/04/us/politics/biden-stumbles-over-his-words.html
 
-**Newsom Tells Michigan Democrats to Chill and Support Biden**\
+**Newsom Urges Michigan Democrats to Stay Calm and Support Biden**\
 `Gov. Gavin Newsom of California defended President Biden and told party activists in Michigan, a critical swing state, “not to be fatalistic” about the campaign.`\
 https://nytimes.com/2024/07/04/us/gavin-newsom-michigan-biden.html
 
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5617305/2024/07/04/tigers-kenta-maeda-contract/
 **Friday Briefing: Labour Projected to Win U.K. Election**\
 `Plus, Iran heads to the polls.`\
 https://nytimes.com/2024/07/04/briefing/labour-wins-british-election.html
-
-**Keir Starmer Is Poised to Be Next U.K. Prime Minister**\
-`The 61-year-old former human rights lawyer lacks the star power of some of his predecessors. “But he does look relatively prime-ministerial,” one analyst said.`\
-https://nytimes.com/2024/07/04/world/europe/keir-starmer-uk.html
 
