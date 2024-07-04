@@ -1,3 +1,7 @@
+**Why Spain vs Germany is one of the biggest quarter-finals in international football history**\
+`A lopsided draw at Euro 2024 means that there is an unusually early meeting between arguably the two best sides in the competition`\
+https://nytimes.com/athletic/5616447/2024/07/04/spain-germany-euro-2024-real-final/
+
 **Melodies of Popular Songs Have Gotten Simpler Over Time**\
 `A new study that reviewed Billboard hits from the past 73 years found a steady simplification of rhythm and pitch.`\
 https://nytimes.com/2024/07/04/science/song-melodies-getting-simpler.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/07/04/world/europe/france-far-right-youth-vote.html
 **Raya joins Arsenal on permanent transfer from Brentford after loan spell**\
 `Arsenal have confirmed the signing of David Raya on a permanent deal from Brentford after the goalkeeper’s initial loan spell in 2023-24.`\
 https://nytimes.com/athletic/5614086/2024/07/04/david-raya-arsenal-transfer-permanent/
-
-**Thompson: Klay Thompson had to leave the Warriors, but the legend will last forever**\
-`Klay Thompson has always been his own man. That's why he had to leave. Whenever he returns, it'll be as the legend Warriors fans love.`\
-https://nytimes.com/athletic/5615798/2024/07/04/klay-thompson-warriors-mavericks-legend/
 
