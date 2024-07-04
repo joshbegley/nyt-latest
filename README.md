@@ -1,6 +1,6 @@
 **Amid a crisis of confidence, Biden will host Independence Day events. Here’s the latest.**\
 `By Chris Cameron`\
-https://nytimes.com/2024/07/04/us/politics/amid-a-crisis-of-confidence-biden-will-host-independence-day-events-heres-the-latest.html
+https://nytimes.com/live/2024/07/04/us/biden-trump-election/amid-a-crisis-of-confidence-biden-will-host-independence-day-events-heres-the-latest
 
 **This English Naval City is a Bellwether Seat. How Do Voters Feel?**\
 `As voters began casting their ballots in a pivotal U.K. election, many in the southern English city of Portsmouth expressed disillusionment over what they see as national and local decline.`\
