@@ -1,3 +1,7 @@
+**Jays notes: Jordan Romano's post-surgery return in doubt, Vlad Guerrero Jr. an All-Star again**\
+`Romano had arthroscopic surgery on his right elbow Wednesday and will be shut down for at least six weeks.`\
+https://nytimes.com/athletic/5615656/2024/07/03/blue-jays-jordan-romano-elbow-arthroscopic-surgery-vladimir-guerrero-jr-all-star/
+
 **MLB unveils 2024 All-Star uniforms, drawing derision from fans**\
 `For the fourth year, All-Stars will wear matching uniforms instead of individual team ones. Reaction to this year's version was negative.`\
 https://nytimes.com/athletic/5615682/2024/07/03/mlb-all-star-game-jersey-reaction/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/07/03/world/americas/hurricane-beryl-grenada-jamaica.ht
 **Lightning Is Blamed for Deadly New Mexico Fire**\
 `The South Fork fire and another one in the state left two people dead and destroyed 1,400 structures.`\
 https://nytimes.com/2024/07/03/us/new-mexico-wildfire-lightning-south-fork.html
-
-**Who might replace Biden at the top of the ticket?**\
-`By Adam Nagourney and Chris Cameron`\
-https://nytimes.com/live/2024/07/03/us/biden-trump-election/who-might-replace-biden-at-the-top-of-the-ticket
 

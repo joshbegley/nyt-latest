@@ -1,3 +1,7 @@
+**Jays notes: Jordan Romano's post-surgery return in doubt, Vlad Guerrero Jr. an All-Star again**\
+`Romano had arthroscopic surgery on his right elbow Wednesday and will be shut down for at least six weeks.`\
+https://nytimes.com/athletic/5615656/2024/07/03/blue-jays-jordan-romano-elbow-arthroscopic-surgery-vladimir-guerrero-jr-all-star/
+
 **MLB unveils 2024 All-Star uniforms, drawing derision from fans**\
 `For the fourth year, All-Stars will wear matching uniforms instead of individual team ones. Reaction to this year's version was negative.`\
 https://nytimes.com/athletic/5615682/2024/07/03/mlb-all-star-game-jersey-reaction/
