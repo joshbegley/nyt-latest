@@ -1,3 +1,7 @@
+**Northern California Wildfire Slows, Allowing Some Residents to Return Home**\
+`The fire in Oroville has forced 29,000 people to evacuate their homes, but on Thursday officials said they felt “more confident” about containing the fire’s spread.`\
+https://nytimes.com/2024/07/04/us/thompson-wildfire-oroville-california.html
+
 **Biden Tells Governors He Needs More Sleep and Less Work at Night**\
 `The president’s opening remark to a group of key Democratic leaders — that he was in the race to stay — chilled any talk of his withdrawal, participants said.`\
 https://nytimes.com/2024/07/04/us/politics/biden-governors.html

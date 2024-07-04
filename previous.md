@@ -1,3 +1,7 @@
+**Northern California Wildfire Slows, Allowing Some Residents to Return Home**\
+`The fire in Oroville has forced 29,000 people to evacuate their homes, but on Thursday officials said they felt “more confident” about containing the fire’s spread.`\
+https://nytimes.com/2024/07/04/us/thompson-wildfire-oroville-california.html
+
 **Biden Tells Governors He Needs More Sleep and Less Work at Night**\
 `The president’s opening remark to a group of key Democratic leaders — that he was in the race to stay — chilled any talk of his withdrawal, participants said.`\
 https://nytimes.com/2024/07/04/us/politics/biden-governors.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5616955/2024/07/04/wayne-rooney-plymouth-gary-nevil
 **Euro 2024 tie against Ronaldo will be 'an honour', says Mbappe**\
 `Kylian Mbappe says it will be &#8220;an honour&#8221; to play against Cristiano Ronaldo when the pair face off in the European Championship quarter-finals.`\
 https://nytimes.com/athletic/5616873/2024/07/04/kylian-mbappe-cristiano-ronaldo-euro-2024/
-
-**Niakhate completes Lyon transfer from Forest**\
-`Moussa Niakhate has joined Lyon from Nottingham Forest in a £27million deal.`\
-https://nytimes.com/athletic/5616913/2024/07/04/moussa-niakhate-lyon-nottingham-forest-transfer/
 
