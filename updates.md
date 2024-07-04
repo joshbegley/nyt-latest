@@ -1,4 +1,8 @@
 **Ten Hag's Manchester United contract extended until 2026**\
+`Manchester United have extended Erik ten Hag&#8217;s contract through to June 2026.`\
+https://nytimes.com/athletic/5616000/2024/07/04/ten-hag-manchester-united-contract/
+
+**Ten Hag's Manchester United contract extended until 2026**\
 `Erik ten Hag&#8217;s Manchester United contract has been extended through to June 2026.`\
 https://nytimes.com/athletic/5616000/2024/07/04/ten-hag-manchester-united-contract/
 
