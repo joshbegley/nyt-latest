@@ -1,3 +1,7 @@
+**What now for Isak, Gordon and Guimaraes after June 30 PSR deadline passed?**\
+`If Newcastle end the window with their prized trio - now the PSR deadline has passed - the omens will be positive for the 2024-25 season`\
+https://nytimes.com/athletic/5613612/2024/07/04/newcastle-isak-gordon-guimaraes-psr-deadline/
+
 **Paul Mullin ruled out of Wrexham's North America tour with back injury**\
 `Wrexham striker Paul Mullin will miss the club&#8217;s summer tour of North America with a back injury.`\
 https://nytimes.com/athletic/5615986/2024/07/04/paul-mullin-injury-wrexham-us-tour/
