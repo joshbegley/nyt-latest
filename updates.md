@@ -1,3 +1,11 @@
+**Here Are the Key Players in the U.K. Election**\
+`Millions cast ballots for parliamentary seats on Thursday. The party that wins the most seats usually forms Britain’s next government, and that party’s leader becomes prime minister.`\
+https://nytimes.com/2024/07/04/world/europe/uk-election-party-leaders.html
+
+**Tourists arrive in Cancún only to learn that Beryl is joining them.**\
+`By Ricardo Hernández Ruiz`\
+https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/tourists-arrive-in-cancun-only-to-learn-that-beryl-is-joining-them
+
 **Hurricane Beryl’s devastation sparks outcry for more climate action.**\
 `By Anjana Sankar`\
 https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/hurricane-beryls-devastation-sparks-outcry-for-more-climate-action
