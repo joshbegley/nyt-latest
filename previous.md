@@ -1,3 +1,7 @@
+**The Pulse: An MLB trade deadline cheat sheet**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5615616/2024/07/04/garrett-crochet-mlb-trade-deadline-the-pulse/
+
 **West Ham reluctant to let Paqueta join Flamengo on loan**\
 `West Ham United say they have no intention of loaning Lucas Paqueta to his boyhood club Flamengo.`\
 https://nytimes.com/athletic/5616025/2024/07/04/lucas-paqueta-west-ham-loan/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5613971/2024/07/04/ross-barkley-aston-villa-transfe
 **‘Kill’ Review: The Title Says It All. Over and Over Again.**\
 `What begins as a romantic rescue becomes a blood bath when bandits on a train attack and rob passengers and our Romeo cracks multiple heads in return.`\
 https://nytimes.com/2024/07/04/movies/kill-review.html
-
-**Trevor Zegras? Kaapo Kakko? Here are 11 potential Flames offseason targets**\
-`If the Flames intend to make a move for a young player this offseason, here are some of their options.`\
-https://nytimes.com/athletic/5537582/2024/07/04/rossi-zegras-protas-kakko-trade/
 

@@ -1,3 +1,7 @@
+**The Pulse: An MLB trade deadline cheat sheet**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5615616/2024/07/04/garrett-crochet-mlb-trade-deadline-the-pulse/
+
 **West Ham reluctant to let Paqueta join Flamengo on loan**\
 `West Ham United say they have no intention of loaning Lucas Paqueta to his boyhood club Flamengo.`\
 https://nytimes.com/athletic/5616025/2024/07/04/lucas-paqueta-west-ham-loan/
