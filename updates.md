@@ -1,3 +1,7 @@
+**Humour dries the tears at Andy Murray's poignant Wimbledon farewell**\
+`Andy Murray began his long goodbye to Wimbledon with a touching Centre Court farewell, full of tributes, tears — and stories of vomiting`\
+https://nytimes.com/athletic/5617318/2024/07/04/andy-murray-wimbledon-centre-court-ceremony/
+
 **Hurricane Beryl Tears Through Caribbean, Leaving Islands to Clean Up**\
 `Parts of Jamaica were badly damaged, but its prime minister said it could have been far worse. The storm was on its way to Mexico.`\
 https://nytimes.com/2024/07/04/world/americas/hurricane-beryl-jamaica-mexico.html
