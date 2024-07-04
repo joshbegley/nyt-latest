@@ -1,3 +1,11 @@
+**Keir Starmer Is Poised to Be Next U.K. Prime Minister**\
+`The 61-year-old former human rights lawyer lacks the star power of some of his predecessors. “But he does look relatively prime-ministerial,” one analyst said.`\
+https://nytimes.com/2024/07/04/world/europe/keir-starmer-uk.html
+
+**Major Democratic Donors Devise Plans to Pressure Biden to Step Aside**\
+`The president appears intent on remaining on the ballot, while wealthy donors are discussing plans to put their money elsewhere.`\
+https://nytimes.com/2024/07/04/us/politics/biden-donors.html
+
 **‘Jamaica Was Spared the Worst’: Islands Clean Up as Beryl Weakens**\
 `Though parts of Jamaica were badly damaged, its prime minister said it could have been far worse.`\
 https://nytimes.com/2024/07/04/world/americas/hurricane-beryl-jamaica-mexico.html
