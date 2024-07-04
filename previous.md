@@ -1,3 +1,7 @@
+**Also vulnerable to Beryl: Mexico’s nature reserves.**\
+`By Emiliano Rodríguez Mega`\
+https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/also-vulnerable-to-beryl-mexicos-nature-reserves
+
 **Man United to hire former Burnley goalkeeper coach Jelle ten Rouwelaar**\
 `Manchester United are hiring a new goalkeeping coach by moving for Jelle ten Rouwelaar, who spent last season in the Premier League at Burnley.`\
 https://nytimes.com/athletic/5617138/2024/07/04/man-united-goalkeeper-coach-ten-rouwelaar-burnley/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5616827/2024/07/04/yankees-anthony-volpe-lineup/
 **United Kingdom 2024 Election: Live Results**\
 `See results and maps from the 2024 U.K. general election.`\
 https://nytimes.com/interactive/2024/07/04/world/europe/results-uk-general-election.html
-
-**Lamine Yamal, Nico Williams: Spain’s Euro 2024 stars a 'blessing' in battle against racism**\
-`The brilliant youngsters are lighting up Spain's Euro 2024 - but their impact goes deeper back home`\
-https://nytimes.com/athletic/5616160/2024/07/04/williams-yamal-euro-2024-spain-racism-la-liga/
 

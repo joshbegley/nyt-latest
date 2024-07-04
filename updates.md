@@ -1,3 +1,7 @@
+**Also vulnerable to Beryl: Mexico’s nature reserves.**\
+`By Emiliano Rodríguez Mega`\
+https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/also-vulnerable-to-beryl-mexicos-nature-reserves
+
 **Man United to hire former Burnley goalkeeper coach Jelle ten Rouwelaar**\
 `Manchester United are hiring a new goalkeeping coach by moving for Jelle ten Rouwelaar, who spent last season in the Premier League at Burnley.`\
 https://nytimes.com/athletic/5617138/2024/07/04/man-united-goalkeeper-coach-ten-rouwelaar-burnley/
