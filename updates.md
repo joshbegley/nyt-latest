@@ -1,3 +1,7 @@
+**Leicester fail in bid to avoid potential PSR punishment**\
+`Leicester City&#8217;s bid to avoid any potential punishment for an alleged breach of the Premier League&#8217;s profitability and sustainability (PSR) rules has been dismissed by an independent commission.`\
+https://nytimes.com/athletic/5332030/2024/07/04/leicester-psr-challenge/
+
 **Nottingham Forest close to securing City Ground stay**\
 `Nottingham Forest are close to securing an agreement that will mean the club staying at the City Ground, their home for the last 125 years, and abandoning the idea of moving to a new site on the outskirts of the city.`\
 https://nytimes.com/athletic/5616296/2024/07/04/nottingham-forest-city-ground-future/
