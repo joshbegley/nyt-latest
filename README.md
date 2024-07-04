@@ -1,3 +1,7 @@
+**Now an All-Star starter, Alec Bohm revels in the moments that shaped his big-league path**\
+`Bohm called his parents and answered a few messages. He reflected. Then, he went to work.`\
+https://nytimes.com/athletic/5615859/2024/07/04/phillies-alec-bohm-all-star-starter/
+
 **Loving America Means Expecting More From It**\
 `On the other side of honesty is the possibility of change.`\
 https://nytimes.com/2024/07/04/opinion/patriotism-july-fourth.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5615822/2024/07/04/detroit-tigers-riley-greene-all-
 **Lussey on horror injury: 'More should be done to protect players'**\
 `Jordan Lussey was captain of Liverpool's Under-18s but his senior career has been more difficult`\
 https://nytimes.com/athletic/5610681/2024/07/04/liverpool-jordan-lussey-injury/
-
-**Jorgen Strand Larsen to Wolves: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate Jorgen Strand Larsen's move to Wolves`\
-https://nytimes.com/athletic/5611242/2024/07/04/jorgen-strand-larsen-to-wolves-the-athletic-500-transfer-ratings/
 
