@@ -1,3 +1,11 @@
+**Biden Tells Governors That He Is Staying in the Race**\
+`At a meeting with Democratic governors at the White House, the president was grilled about the path forward as he worked to solidify support from elected leaders.`\
+https://nytimes.com/2024/07/03/us/politics/biden-governors-presidential-election-debate.html
+
+**Resembles a Tractor**\
+`Adam Vincent leans into the patriotic.`\
+https://nytimes.com/2024/07/03/crosswords/daily-puzzle-2024-07-04.html
+
 **Ex-Engineer Charged With Obstructing Inquiry Into Military Crash That Killed 16**\
 `James Michael Fisher, 67, was arrested on charges that he made false statements during a criminal investigation into a the crash of a Marine Corps aircraft in Mississippi in 2017, the Justice Department said.`\
 https://nytimes.com/2024/07/03/us/military-plane-crash-2017-engineer-charges.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/07/03/nyregion/bob-menendez-bribery-trial.html
 **How Biden Has Gotten in the Way of Fighting Starvation in Gaza**\
 `Israel and the U.S. have made a boogeyman out of the U.N. group that’s providing critical services in Gaza.`\
 https://nytimes.com/2024/07/03/opinion/biden-gaza-unrwa.html
-
-**If Biden Drops Out, How Long Do Democrats Have to Pick a Nominee?**\
-`The party’s official nominating convention is in mid-August, but a virtual roll call vote is supposed to take place beforehand.`\
-https://nytimes.com/2024/07/03/us/politics/biden-drop-out-2024-election.html
-
-**Former San Diego Wave employee alleges poor work environment under Ellis**\
-`The former employee also alleges discrimination by the Wave. `\
-https://nytimes.com/athletic/5615225/2024/07/03/san-diego-wave-jill-ellis-allegations/
 
