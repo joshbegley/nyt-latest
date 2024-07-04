@@ -1,3 +1,7 @@
+**Mets must fix their bullpen to contend, as latest blown lead makes clear**\
+`Edwin Díaz will be back soon, but the bullpen problems run too deep for one man to fix. Will the Mets add a reliever at the deadline?`\
+https://nytimes.com/athletic/5615758/2024/07/03/mets-bullpen-problems-edwin-diz/
+
 **Jays notes: Jordan Romano's post-surgery return in doubt, Vlad Guerrero Jr. an All-Star again**\
 `Romano had arthroscopic surgery on his right elbow Wednesday and will be shut down for at least six weeks.`\
 https://nytimes.com/athletic/5615656/2024/07/03/blue-jays-jordan-romano-elbow-arthroscopic-surgery-vladimir-guerrero-jr-all-star/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/07/03/us/military-plane-crash-2017-engineer-charges.htm
 **Hurricane Beryl Batters Jamaica as 2 Other Islands Lie in Ruin**\
 `The island confirmed its first death amid a surge of water, damaging winds and flooding. The storm is barreling toward the Cayman Islands and the Yucatán Peninsula in Mexico.`\
 https://nytimes.com/2024/07/03/world/americas/hurricane-beryl-grenada-jamaica.html
-
-**Lightning Is Blamed for Deadly New Mexico Fire**\
-`The South Fork fire and another one in the state left two people dead and destroyed 1,400 structures.`\
-https://nytimes.com/2024/07/03/us/new-mexico-wildfire-lightning-south-fork.html
 
