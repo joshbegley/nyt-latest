@@ -1,3 +1,15 @@
+**Ray Kurzweil Still Says He Will Merge With A.I.**\
+`Now 76, the inventor and futurist hopes to reach “the Singularity” and live indefinitely. His margin of error is shrinking.`\
+https://nytimes.com/2024/07/04/technology/ray-kurzweil-singularity.html
+
+**‘Brat’ Green Summer Cooking**\
+`Chilled zucchini soup, buttermilk green goddess slaw and cucumber agua fresca are lush, vegetal and so Julia.`\
+https://nytimes.com/2024/07/04/dining/brat-green-summer-cooking.html
+
+**England 'have to improve' ahead of Switzerland quarter-final - Stones**\
+`John Stones has admitted that England are working hard to get back to the “fluid football” they used to play earlier in Gareth Southgate’s tenure.`\
+https://nytimes.com/athletic/5616804/2024/07/04/euro-2024-england-stones-quarter-final/
+
 **Rooney: 'I didn't want to be the next Gary Neville'**\
 `New Plymouth Argyle head coach Wayne Rooney says he &#8220;did not want to be the next Gary Neville&#8221; when asked why he stopped punditry work to take over at the Championship club.`\
 https://nytimes.com/athletic/5616955/2024/07/04/wayne-rooney-plymouth-gary-neville/
