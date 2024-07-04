@@ -1,3 +1,7 @@
+**Canucks offseason depth chart 2.0: How do the new additions fit into Vancouver's lineup?**\
+`Where do the Canucks currently stand? Let's take a look at their updated depth chart and break it down.`\
+https://nytimes.com/athletic/5615901/2024/07/04/canucks-offseason-depth-chart-lineup/
+
 **Why More French Youth Are Voting for the Far Right**\
 `Most young people in France usually don’t vote or they back the left. That is still true, but support has surged for the far right, whose openly racist past can feel to them like ancient history.`\
 https://nytimes.com/2024/07/04/world/europe/france-far-right-youth-vote.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5616336/2024/07/04/max-kilman-west-ham-wolves-trans
 **Live Election Updates: Biden Tries to Reassure Supporters During July 4 Events**\
 `The president told key allies that he understands his viability as a candidate is on the line if he cannot convince voters of his fitness for office after his disastrous debate performance.`\
 https://nytimes.com/live/2024/07/04/us/biden-trump-election
-
-**Amid a crisis of confidence, Biden will host Independence Day events. Here’s the latest.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/07/04/us/biden-trump-election/amid-a-crisis-of-confidence-biden-will-host-independence-day-events-heres-the-latest
 
