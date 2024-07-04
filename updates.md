@@ -1,3 +1,11 @@
+**Beryl passes by the Cayman Islands, with only minimal damage reported so far.**\
+`By Daphne Ewing-Chow`\
+https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/beryl-passes-by-the-cayman-islands-with-only-minimal-damage-reported-so-far
+
+**Gareth Barry warned after helping to fund Swindon Town while an active player**\
+`The former England midfielder made a 'substantial' investment in the EFL club via his friend and former agent, an FA commission ruled`\
+https://nytimes.com/athletic/5617117/2024/07/04/gareth-barry-swindon-town-investment/
+
 **Chelsea academy upheaval: Why are Bath and Fraser leaving, and what happens next?**\
 `West London club are restructuring their academy, with co-director of recruitment and talent Joe Shields expected to take on a leading role`\
 https://nytimes.com/athletic/5616275/2024/07/04/chelsea-academy-bath-fraser-shields-clearlake/
