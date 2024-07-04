@@ -1,3 +1,7 @@
+**As Royce Lewis searches for answers, Twins offense solves Detroit with 12-3 rout**\
+`Lewis, showing his frustration said: "If someone said, 'Hey, if you smoke cigarettes like Babe Ruth, that'll work,’ then I'll do that too."`\
+https://nytimes.com/athletic/5617373/2024/07/04/twins-royce-lewis-jose-miranda/
+
 **Humour dries the tears at Andy Murray's poignant Wimbledon farewell**\
 `Andy Murray began his long goodbye to Wimbledon with a touching Centre Court farewell, full of tributes, tears — and stories of vomiting`\
 https://nytimes.com/athletic/5617318/2024/07/04/andy-murray-wimbledon-centre-court-ceremony/
