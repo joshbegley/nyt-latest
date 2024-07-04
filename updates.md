@@ -1,3 +1,15 @@
+**Euro 2024 tie against Ronaldo will be 'an honour', says Mbappe**\
+`Kylian Mbappe says it will be &#8220;an honour&#8221; to play against Cristiano Ronaldo when the pair face off in the European Championship quarter-finals.`\
+https://nytimes.com/athletic/5616873/2024/07/04/kylian-mbappe-cristiano-ronaldo-euro-2024/
+
+**Niakhate completes Lyon transfer from Forest**\
+`Moussa Niakhate has joined Lyon from Nottingham Forest in a £27million deal.`\
+https://nytimes.com/athletic/5616913/2024/07/04/moussa-niakhate-lyon-nottingham-forest-transfer/
+
+**Jenna Lyons’s Favorite Beauty Products, From Eyeliner to Body Oil**\
+`Plus: a palace-inspired hotel in Jaipur, colorful French hand fans and more recommendations from T Magazine.`\
+https://nytimes.com/2024/07/04/t-magazine/jenna-lyons-beauty-makeup-skin-care.html
+
 **Leicester fail in bid to avoid potential PSR punishment**\
 `Leicester City&#8217;s bid to avoid any potential punishment for an alleged breach of the Premier League&#8217;s profitability and sustainability (PSR) rules has been dismissed by an independent commission.`\
 https://nytimes.com/athletic/5332030/2024/07/04/leicester-psr-challenge/

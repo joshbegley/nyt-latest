@@ -1,3 +1,15 @@
+**Euro 2024 tie against Ronaldo will be 'an honour', says Mbappe**\
+`Kylian Mbappe says it will be &#8220;an honour&#8221; to play against Cristiano Ronaldo when the pair face off in the European Championship quarter-finals.`\
+https://nytimes.com/athletic/5616873/2024/07/04/kylian-mbappe-cristiano-ronaldo-euro-2024/
+
+**Niakhate completes Lyon transfer from Forest**\
+`Moussa Niakhate has joined Lyon from Nottingham Forest in a £27million deal.`\
+https://nytimes.com/athletic/5616913/2024/07/04/moussa-niakhate-lyon-nottingham-forest-transfer/
+
+**Jenna Lyons’s Favorite Beauty Products, From Eyeliner to Body Oil**\
+`Plus: a palace-inspired hotel in Jaipur, colorful French hand fans and more recommendations from T Magazine.`\
+https://nytimes.com/2024/07/04/t-magazine/jenna-lyons-beauty-makeup-skin-care.html
+
 **Leicester fail in bid to avoid potential PSR punishment**\
 `Leicester City&#8217;s bid to avoid any potential punishment for an alleged breach of the Premier League&#8217;s profitability and sustainability (PSR) rules has been dismissed by an independent commission.`\
 https://nytimes.com/athletic/5332030/2024/07/04/leicester-psr-challenge/
@@ -21,16 +33,4 @@ https://nytimes.com/2024/07/04/opinion/donald-trump-immunity.html
 **The making of Nagelsmann, the man hoping to lead Germany to Euros glory**\
 `Julian Nagelsmann has reached the pinnacle of German football but his story began in an unlikely, sleepy Bavarian town`\
 https://nytimes.com/athletic/5616282/2024/07/04/julian-nagelsmann-bavaria-origins/
-
-**Our Planet Is About to Reach Its Greatest Distance From the Sun**\
-`Earth whirls around the sun in an ellipse, rather than a circle. On Friday the planet will reach its farthest point from its star, known as aphelion.`\
-https://nytimes.com/article/aphelion-earth-sun-distance.html
-
-**No need for Max Verstappen to apologize for Austria F1 clash, says Lando Norris**\
-`Stay informed on all the biggest stories in Formula One.`\
-https://nytimes.com/athletic/5616577/2024/07/04/lando-norris-max-verstappen-austrian-gp-apology/
-
-**Brighton set to sign Fran Kirby**\
-`Brighton are set to sign England international Fran Kirby on a free transfer.`\
-https://nytimes.com/athletic/5616789/2024/07/04/fran-kirby-brighton-transfer/
 
