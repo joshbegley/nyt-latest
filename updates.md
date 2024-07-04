@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`Britain votes in a long-awaited election.`\
+https://nytimes.com/2024/07/04/briefing/britain-election-biden-campaign.html
+
 **England against the world: Are players embracing a 'siege mentality'?**\
 `Gareth Southgate's squad look to have lost that sense of positivity seen in previous tournaments. It could help them go one better`\
 https://nytimes.com/athletic/5606219/2024/07/04/england-euro-2024-criticism-reaction/

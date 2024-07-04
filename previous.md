@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`Britain votes in a long-awaited election.`\
+https://nytimes.com/2024/07/04/briefing/britain-election-biden-campaign.html
+
 **England against the world: Are players embracing a 'siege mentality'?**\
 `Gareth Southgate's squad look to have lost that sense of positivity seen in previous tournaments. It could help them go one better`\
 https://nytimes.com/athletic/5606219/2024/07/04/england-euro-2024-criticism-reaction/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5608138/2024/07/04/bukayo-saka-england-arsenal-euro
 **Why aren't France scoring from open play at the Euros?**\
 `France may not have been free-scoring so far but they are getting into good attacking positions, so what is going wrong?`\
 https://nytimes.com/athletic/5614479/2024/07/04/why-are-france-not-scoring-goals-from-open-play-at-euro-2024/
-
-**Fantasy baseball notebook: Looking back at the past calendar year, and turning the page to the second half**\
-`Derek VanRiper recaps the past week-plus of the Rates & Barrels podcast, including an examination of the timing of James Wood's promotion.`\
-https://nytimes.com/athletic/5615077/2024/07/04/fantasy-baseball-notebook-looking-back-at-the-past-calendar-year-and-turning-the-page-to-the-second-half/
 
