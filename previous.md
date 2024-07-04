@@ -1,3 +1,7 @@
+**What's next for Knicks after avoiding first-apron hard cap in Mikal Bridges trade?**\
+`Thanks to some collective bargaining agreement minutiae, the Knicks have gained some flexibility to alter their roster.`\
+https://nytimes.com/athletic/5617098/2024/07/04/knicks-first-apron-mikal-bridges-trade/
+
 **Five Ridiculously Good Soft Serves For Summer**\
 `Cherry and mascarpone, vanilla with soy sauce caramel and more ice cream (sadly without a jingle).`\
 https://nytimes.com/2024/07/04/dining/five-ridiculously-good-soft-serves-for-summer.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5617138/2024/07/04/man-united-goalkeeper-coach-ten-
 **Warriors to acquire Buddy Hield via sign-and-trade**\
 `Since 2017, the only player to make more 3-pointers than Hield is his new teammate, Steph Curry.`\
 https://nytimes.com/athletic/5617128/2024/07/04/buddy-hield-trade-sign-warriors-76ers/
-
-**Miracle Whip, Onboarding and the Wonders of the English Language**\
-`Shifts in pronunciation are so much more than mere quirks. `\
-https://nytimes.com/2024/07/04/opinion/miracle-whip-and-onboarding.html
 

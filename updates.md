@@ -1,3 +1,7 @@
+**What's next for Knicks after avoiding first-apron hard cap in Mikal Bridges trade?**\
+`Thanks to some collective bargaining agreement minutiae, the Knicks have gained some flexibility to alter their roster.`\
+https://nytimes.com/athletic/5617098/2024/07/04/knicks-first-apron-mikal-bridges-trade/
+
 **Five Ridiculously Good Soft Serves For Summer**\
 `Cherry and mascarpone, vanilla with soy sauce caramel and more ice cream (sadly without a jingle).`\
 https://nytimes.com/2024/07/04/dining/five-ridiculously-good-soft-serves-for-summer.html
