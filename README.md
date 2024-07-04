@@ -1,3 +1,19 @@
+**A New Principal Takes Her Bow at American Ballet Theater**\
+`After a tremendous “Swan Lake” performance, Chloe Misseldine was promoted onstage at the Metropolitan Opera House. The audience went nuts.`\
+https://nytimes.com/2024/07/04/arts/dance/chloe-misseldine-promotion-american-ballet-theater.html
+
+**Cristiano Ronaldo and the importance of controlling your heart rate at crucial moments**\
+`Wearable tech is giving us new insights into how elite athletes access a 'flow state' to enhance performance`\
+https://nytimes.com/athletic/5616081/2024/07/04/cristiano-ronaldo-heart-rate/
+
+**Wolves expected to accept West Ham's offer for captain Kilman**\
+`Wolverhampton Wanderers are expected to accept West Ham United&#8217;s £40million offer for captain Max Kilman.`\
+https://nytimes.com/athletic/5616336/2024/07/04/max-kilman-west-ham-wolves-transfer/
+
+**Live Election Updates: Biden Tries to Reassure Supporters During July 4 Events**\
+`The president told key allies that he understands his viability as a candidate is on the line if he cannot convince voters of his fitness for office after his disastrous debate performance.`\
+https://nytimes.com/live/2024/07/04/us/biden-trump-election
+
 **Amid a crisis of confidence, Biden will host Independence Day events. Here’s the latest.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/07/04/us/biden-trump-election/amid-a-crisis-of-confidence-biden-will-host-independence-day-events-heres-the-latest
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/5615619/2024/07/04/sabres-depth-chart-roster-moves/
 **PSA picks Wemby as pitcher for dream team baseball roster**\
 `When Victor Wembanyama threw out the ceremonial first pitch at Yankee Stadium last summer, no one expected the No.`\
 https://nytimes.com/athletic/5615519/2024/07/04/victor-wembanyama-pitcher-dream-team-roster-psa/
-
-**First African-Born Member of German Parliament Won’t Seek Re-election**\
-`Karamba Diaby, whose 2013 victory was considered a win for equality, said he wanted more time with his family. But he has also spoken of the death threats he has received.`\
-https://nytimes.com/2024/07/04/world/europe/germany-parliament-african-karamba-diaby.html
-
-**The Athletic FC: Should Portugal drop Ronaldo? Plus: Ten Hag extends deal, United to cut 250 jobs**\
-`Today in The Athletic FC: Is Ronaldo better-suited to the bench for Portugal? Plus: United extend Ten Hag deal but are set to cut 250 jobs`\
-https://nytimes.com/athletic/5616189/2024/07/04/the-athletic-fc-portugal-ronaldo-plus-ten-hag-new-contract/
-
-**Silverstone track breakdown: The track that makes F1 drivers feel like fighter jet pilots**\
-`The British Grand Prix offers one of the most iconic tracks on Formula One’s calendar, rich in history and a thrilling high-speed drive. `\
-https://nytimes.com/athletic/4672223/2024/07/04/silverstone-circuit-british-grand-prix-f1/
-
-**Israeli Leaders to Discuss Hamas Response on Cease-Fire Proposal**\
-`Wide gaps remain between the sides but mediators have renewed discussions based on a three-stage framework deal publicized by President Biden in May.`\
-https://nytimes.com/2024/07/04/world/middleeast/israel-hamas-cease-fire-proposal.html
 
