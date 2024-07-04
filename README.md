@@ -1,3 +1,7 @@
+**U.S. Justice Department Opens Criminal Investigation in Chinese Doping Case**\
+`The move escalates a fight with China and world antidoping officials, and will cast a shadow of criminality over the Paris Olympics.`\
+https://nytimes.com/2024/07/04/world/asia/china-swimming-investigation-doping.html
+
 **Northern California Wildfire Slows, Allowing Some Residents to Return Home**\
 `The fire in Oroville has forced 29,000 people to evacuate their homes, but on Thursday officials said they felt “more confident” about containing the fire’s spread.`\
 https://nytimes.com/2024/07/04/us/thompson-wildfire-oroville-california.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5616804/2024/07/04/euro-2024-england-stones-quarter
 **Rooney: 'I didn't want to be the next Gary Neville'**\
 `New Plymouth Argyle head coach Wayne Rooney says he &#8220;did not want to be the next Gary Neville&#8221; when asked why he stopped punditry work to take over at the Championship club.`\
 https://nytimes.com/athletic/5616955/2024/07/04/wayne-rooney-plymouth-gary-neville/
-
-**Euro 2024 tie against Ronaldo will be 'an honour', says Mbappe**\
-`Kylian Mbappe says it will be &#8220;an honour&#8221; to play against Cristiano Ronaldo when the pair face off in the European Championship quarter-finals.`\
-https://nytimes.com/athletic/5616873/2024/07/04/kylian-mbappe-cristiano-ronaldo-euro-2024/
 
