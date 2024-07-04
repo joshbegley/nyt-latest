@@ -1,3 +1,7 @@
+**Biden ‘in It to Win It,’ Democratic Governors Say**\
+`After a meeting with President Biden, some of the country’s Democratic governors said they had pledged their support, despite what one governor called his “bad performance” during the first presidential debate.`\
+https://nytimes.com/video/us/elections/100000009555053/biden-governors-politics-election.html
+
 **Biden Tells Governors That He Is Staying in the Race**\
 `At a meeting with Democratic governors at the White House, the president was grilled about the path forward as he worked to solidify support from elected leaders.`\
 https://nytimes.com/2024/07/03/us/politics/biden-governors-presidential-election-debate.html

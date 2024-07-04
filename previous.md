@@ -1,3 +1,7 @@
+**Biden ‘in It to Win It,’ Democratic Governors Say**\
+`After a meeting with President Biden, some of the country’s Democratic governors said they had pledged their support, despite what one governor called his “bad performance” during the first presidential debate.`\
+https://nytimes.com/video/us/elections/100000009555053/biden-governors-politics-election.html
+
 **Biden Tells Governors That He Is Staying in the Race**\
 `At a meeting with Democratic governors at the White House, the president was grilled about the path forward as he worked to solidify support from elected leaders.`\
 https://nytimes.com/2024/07/03/us/politics/biden-governors-presidential-election-debate.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5614294/2024/07/03/mlb-all-star-starters-roster/
 **Menendez Defense Rests Without Senator Testifying**\
 `Senator Robert Menendez of New Jersey is accused of a wide-ranging international bribery conspiracy. Jurors are likely to begin deliberating next week.`\
 https://nytimes.com/2024/07/03/nyregion/bob-menendez-bribery-trial.html
-
-**How Biden Has Gotten in the Way of Fighting Starvation in Gaza**\
-`Israel and the U.S. have made a boogeyman out of the U.N. group that’s providing critical services in Gaza.`\
-https://nytimes.com/2024/07/03/opinion/biden-gaza-unrwa.html
 
