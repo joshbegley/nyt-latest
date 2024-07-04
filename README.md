@@ -1,3 +1,7 @@
+**Joey Chestnut wins Fort Bliss hot dog eating contest**\
+`Chestnut beat a group of four Army soldiers in a contest at Fort Bliss Army base in El Paso, Texas, by eating 57 hot dogs in five minutes.`\
+https://nytimes.com/athletic/5617356/2024/07/04/joey-chestnut-hot-dog-eating-contest/
+
 **As Royce Lewis searches for answers, Twins offense solves Detroit with 12-3 rout**\
 `Lewis, showing his frustration said: "If someone said, 'Hey, if you smoke cigarettes like Babe Ruth, that'll work,’ then I'll do that too."`\
 https://nytimes.com/athletic/5617373/2024/07/04/twins-royce-lewis-jose-miranda/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/07/04/world/americas/hurricane-beryl-jamaica-mexico.htm
 **Russian Who Led Troops Linked to Bucha Killings Is Charged With Corruption**\
 `Col. Artyom Gorodilov, who oversaw forces occupying the Ukrainian city where a massacre took place, was arrested and accused of large-scale fraud.`\
 https://nytimes.com/2024/07/04/world/europe/russian-commander-corruption-bucha.html
-
-**Here Are the Key Players in the U.K. Election**\
-`Millions cast ballots for parliamentary seats on Thursday. The party that wins the most seats usually forms Britain’s next government, and that party’s leader becomes prime minister.`\
-https://nytimes.com/2024/07/04/world/europe/uk-election-party-leaders.html
 
