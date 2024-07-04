@@ -1,3 +1,7 @@
+**Hurricane Beryl Tears Through Caribbean, Leaving Islands to Clean Up**\
+`Parts of Jamaica were badly damaged, but its prime minister said it could have been far worse. The storm was on its way to Mexico.`\
+https://nytimes.com/2024/07/04/world/americas/hurricane-beryl-jamaica-mexico.html
+
 **Kenta Maeda’s contract has turned into the Tigers’ latest albatross**\
 `Maeda entered this year averaging nearly 10 strikeouts per nine inning, but this season it's only 6.8.`\
 https://nytimes.com/athletic/5617305/2024/07/04/tigers-kenta-maeda-contract/
