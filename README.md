@@ -1,3 +1,7 @@
+**Who might replace Biden at the top of the ticket?**\
+`By Adam Nagourney and Chris Cameron`\
+https://nytimes.com/live/2024/07/03/us/biden-trump-election/who-might-replace-biden-at-the-top-of-the-ticket
+
 **Phillies lead All-Star Game starters with 3 selections**\
 `For the first time in more than 30 years, the bulk of the National League’s starting All-Star infield is coming from the Phillies.`\
 https://nytimes.com/athletic/5614294/2024/07/03/mlb-all-star-starters-roster/
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/07/03/weather/hurricane-beryl/an-anxious-caribbean
 **Here Comes the ‘KHive’: Buzz for Kamala Harris Grows After Biden’s Debate Stumble**\
 `The vice president is receiving support from both prominent Democrats and social media fans who show their enthusiasm with coconut tree emojis.`\
 https://nytimes.com/2024/07/03/us/politics/kamala-harris-biden-president-debate.html
-
-**Should Biden Step Aside or Stay In? What Prominent Democrats Are Saying**\
-`A small but vocal faction of party members are urging the president to withdraw from the race or consider doing so in time for a replacement to be chosen.`\
-https://nytimes.com/interactive/2024/07/03/us/elections/biden-withdrawal-democrats.html
 
