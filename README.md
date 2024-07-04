@@ -1,3 +1,11 @@
+**Beryl passes by the Cayman Islands, with only minimal damage reported so far.**\
+`By Daphne Ewing-Chow`\
+https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/beryl-passes-by-the-cayman-islands-with-only-minimal-damage-reported-so-far
+
+**Gareth Barry warned after helping to fund Swindon Town while an active player**\
+`The former England midfielder made a 'substantial' investment in the EFL club via his friend and former agent, an FA commission ruled`\
+https://nytimes.com/athletic/5617117/2024/07/04/gareth-barry-swindon-town-investment/
+
 **Chelsea academy upheaval: Why are Bath and Fraser leaving, and what happens next?**\
 `West London club are restructuring their academy, with co-director of recruitment and talent Joe Shields expected to take on a leading role`\
 https://nytimes.com/athletic/5616275/2024/07/04/chelsea-academy-bath-fraser-shields-clearlake/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/07/04/us/thompson-wildfire-oroville-california.html
 **Biden Tells Governors He Needs to Sleep More and Work Less at Night**\
 `The president’s opening remark to a group of key Democratic leaders — that he was in the race to stay — chilled any talk of his withdrawal, participants said.`\
 https://nytimes.com/2024/07/04/us/politics/biden-governors.html
-
-**Flyers prospects Bonk, Barkey continue journey together: 'We're like brothers now'**\
-`The duo led the London Knights to an OHL championship and Memorial Cup final and could be key contributors for the Flyers in a couple years.`\
-https://nytimes.com/athletic/5616879/2024/07/04/flyers-prospects-oliver-bonk-denver-barkey/
-
-**Arsenal agree to sell Biereth to Sturm Graz**\
-`Arsenal have agreed a fee of £4milllion with Sturm Graz for the permanent transfer of forward Mika Biereth.`\
-https://nytimes.com/athletic/5616979/2024/07/04/mika-biereth-arsenal-sturm-graz/
 
