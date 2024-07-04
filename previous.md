@@ -1,3 +1,7 @@
+**Oliver Bearman announced as Haas F1 driver for 2025 season**\
+`Oliver Bearman will race in Formula One next year with Haas after being announced as part of the team’s 2025 line-up ahead of the British Grand Prix.`\
+https://nytimes.com/athletic/5614599/2024/07/04/oliver-bearman-haas-f1/
+
 **At Hot Dog Eating Contest, a Chance to Crown a New King**\
 `For the first time in years, there is no clear front-runner on the men’s side at the Nathan’s Famous Hot Dog Eating Contest in Coney Island. Joey Chestnut will not compete.`\
 https://nytimes.com/2024/07/04/nyregion/nathans-hot-dog-contest-joey-chestnut.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5615840/2024/07/04/cubs-cody-bellinger/
 **Now an All-Star starter, Alec Bohm revels in the moments that shaped his big-league path**\
 `Bohm called his parents and answered a few messages. He reflected. Then, he went to work.`\
 https://nytimes.com/athletic/5615859/2024/07/04/phillies-alec-bohm-all-star-starter/
-
-**Loving America Means Expecting More From It**\
-`On the other side of honesty is the possibility of change.`\
-https://nytimes.com/2024/07/04/opinion/patriotism-july-fourth.html
 

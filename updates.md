@@ -1,3 +1,7 @@
+**Oliver Bearman announced as Haas F1 driver for 2025 season**\
+`Oliver Bearman will race in Formula One next year with Haas after being announced as part of the team’s 2025 line-up ahead of the British Grand Prix.`\
+https://nytimes.com/athletic/5614599/2024/07/04/oliver-bearman-haas-f1/
+
 **At Hot Dog Eating Contest, a Chance to Crown a New King**\
 `For the first time in years, there is no clear front-runner on the men’s side at the Nathan’s Famous Hot Dog Eating Contest in Coney Island. Joey Chestnut will not compete.`\
 https://nytimes.com/2024/07/04/nyregion/nathans-hot-dog-contest-joey-chestnut.html
