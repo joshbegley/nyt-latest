@@ -1,3 +1,11 @@
+**Biden Tells Governors That He Is Staying in the Race**\
+`At a meeting with Democratic governors at the White House, the president was grilled about the path forward as he worked to solidify support from elected leaders.`\
+https://nytimes.com/2024/07/03/us/politics/biden-governors-presidential-election-debate.html
+
+**Resembles a Tractor**\
+`Adam Vincent leans into the patriotic.`\
+https://nytimes.com/2024/07/03/crosswords/daily-puzzle-2024-07-04.html
+
 **Ex-Engineer Charged With Obstructing Inquiry Into Military Crash That Killed 16**\
 `James Michael Fisher, 67, was arrested on charges that he made false statements during a criminal investigation into a the crash of a Marine Corps aircraft in Mississippi in 2017, the Justice Department said.`\
 https://nytimes.com/2024/07/03/us/military-plane-crash-2017-engineer-charges.html
