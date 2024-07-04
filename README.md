@@ -1,3 +1,27 @@
+**No Poll Can Tell Biden What He Needs to Hear**\
+`The Democratic Party seems to be playing the wait-and-see game, hoping polls give it permission to pull the emergency brake.`\
+https://nytimes.com/2024/07/04/opinion/biden-democrats-polls-president.html
+
+**The Brokes Play the Strokes for an Adoring New York Crowd**\
+`A cover band from Toronto brings some 2000s nostalgia to the home city of their indie rock heroes.`\
+https://nytimes.com/2024/07/04/style/the-strokes-tribute-band-the-brokes-new-york.html
+
+**You Don’t Need Your Own Fireworks to Celebrate July 4**\
+`The days surrounding Independence Day are consistently the most common days for human-started fires.`\
+https://nytimes.com/live/2024/07/02/opinion/thepoint/you-dont-need-your-own-fireworks-to-celebrate-july-4
+
+**How a Weekend of Media and Memes Shaped Six Voters’ Thoughts About the Debate**\
+`We asked six voters around the country to send us all the media they saw or heard after the debate. Here is what we learned.`\
+https://nytimes.com/interactive/2024/07/04/us/presidential-debate-trump-biden-voters.html
+
+**Trump Lets Democrats Dominate the Public Debate Over Biden’s Future**\
+`The former president has spent months painting President Biden as incapable of leading, but he has publicly appeared content to sit back and let Democrats do the doubting.`\
+https://nytimes.com/2024/07/04/us/politics/trump-biden-replacement-candidate.html
+
+**From an R.V. to a Condo Near Washington: Which Was Better for Their Growing Family?**\
+`After spending two years on the road and having a baby, a young couple decided to put down roots just south of the nation’s capital. Here’s what they found.`\
+https://nytimes.com/interactive/2024/07/04/realestate/virginia-washington-dc-condo-sale.html
+
 **Homes for Sale in Manhattan and Brooklyn**\
 `This week’s properties are in Sutton Place, Gramercy Park and Flatbush.`\
 https://nytimes.com/2024/07/04/realestate/housing-market-nyc.html
@@ -9,28 +33,4 @@ https://nytimes.com/2024/07/04/opinion/christian-nationalist-religion-america.ht
 **Clothes of the Rich, Famous and Fabulous**\
 `At couture week in Paris, fashion fans peacocked with industry fixtures in a whirl of formal attire and street wear.`\
 https://nytimes.com/2024/07/04/style/paris-couture-week-balenciaga-schiaparelli.html
-
-**Fight Over Seabed Agency Leadership Turns Nasty**\
-`An election over the future of a United Nations-affiliated organization could determine whether the Pacific Ocean floor will soon be mined for metals used in electric vehicles.`\
-https://nytimes.com/2024/07/04/us/politics/seabed-agency-mining.html
-
-**Who Should Lead the Democratic Ticket? Six Columnists Weigh In.**\
-`Gretchen Whitmer, Kamala Harris, President Biden — who is best positioned to beat Donald Trump in November?`\
-https://nytimes.com/2024/07/04/opinion/biden-alternative-democratic-ticket.html
-
-**Conservative Legal Movement’s Agenda Unites Court’s Rulings on Executive Power**\
-`Blockbuster decisions by the Supreme Court’s Republican-appointed supermajority — expanding presidential authority while undercutting that of executive branch agencies — were no contradiction.`\
-https://nytimes.com/2024/07/04/us/politics/conservative-legal-movement-supreme-court.html
-
-**A Divided America Agrees: We Deserve Better Than This**\
-`We convened a postdebate focus group with engaged voters who were united behind the idea that the country needed something other than President Biden vs. Donald Trump.`\
-https://nytimes.com/2024/07/04/podcasts/us-politics-braver-angels.html
-
-**Like a Firing Squad, but for Romantic Rejection**\
-`Pop! Pop! Pop! Pop! A new dating-show format asks contestants to pop a balloon to signal that they’re not interested. Who said heartbreak had to be quiet?`\
-https://nytimes.com/2024/07/04/style/dating-show-reality-series.html
-
-**Homes for Sale in Connecticut and New York**\
-`This week’s properties are a three-bedroom in Weston, Conn., and a five-bedroom in Stony Brook, N.Y.`\
-https://nytimes.com/2024/07/04/realestate/housing-market-near-nyc.html
 
