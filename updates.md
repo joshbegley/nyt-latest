@@ -1,3 +1,7 @@
+**U.S. Justice Department Opens Criminal Investigation in Chinese Doping Case**\
+`The move escalates a fight with China and world antidoping officials, and will cast a shadow of criminality over the Paris Olympics.`\
+https://nytimes.com/2024/07/04/world/asia/china-swimming-investigation-doping.html
+
 **Northern California Wildfire Slows, Allowing Some Residents to Return Home**\
 `The fire in Oroville has forced 29,000 people to evacuate their homes, but on Thursday officials said they felt “more confident” about containing the fire’s spread.`\
 https://nytimes.com/2024/07/04/us/thompson-wildfire-oroville-california.html
