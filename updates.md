@@ -1,3 +1,11 @@
+**Silverstone track breakdown: The track that makes F1 drivers feel like fighter jet pilots**\
+`The British Grand Prix offers one of the most iconic tracks on Formula One’s calendar, rich in history and a thrilling high-speed drive. `\
+https://nytimes.com/athletic/4672223/2024/07/04/silverstone-circuit-british-grand-prix-f1/
+
+**Israeli Leaders to Discuss Hamas Response on Cease-Fire Proposal**\
+`Wide gaps remain between the sides but mediators have renewed discussions based on a three-stage framework deal publicized by President Biden in May.`\
+https://nytimes.com/2024/07/04/world/middleeast/israel-hamas-cease-fire-proposal.html
+
 **The Pulse: An MLB trade deadline cheat sheet**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5615616/2024/07/04/garrett-crochet-mlb-trade-deadline-the-pulse/
