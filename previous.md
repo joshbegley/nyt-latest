@@ -1,36 +1,36 @@
-**What now for Isak, Gordon and Guimaraes after June 30 PSR deadline passed?**\
-`If Newcastle end the window with their prized trio - now the PSR deadline has passed - the omens will be positive for the 2024-25 season`\
-https://nytimes.com/athletic/5613612/2024/07/04/newcastle-isak-gordon-guimaraes-psr-deadline/
+**Homes for Sale in Manhattan and Brooklyn**\
+`This week’s properties are in Sutton Place, Gramercy Park and Flatbush.`\
+https://nytimes.com/2024/07/04/realestate/housing-market-nyc.html
 
-**Paul Mullin ruled out of Wrexham's North America tour with back injury**\
-`Wrexham striker Paul Mullin will miss the club&#8217;s summer tour of North America with a back injury.`\
-https://nytimes.com/athletic/5615986/2024/07/04/paul-mullin-injury-wrexham-us-tour/
+**Your Religious Values Are Not American Values**\
+`Christian nationalists aim to impose their beliefs on others.`\
+https://nytimes.com/2024/07/04/opinion/christian-nationalist-religion-america.html
 
-**Newcastle United appoint Paul Mitchell as sporting director**\
-`Newcastle United have appointed Paul Mitchell as their new sporting director, ending a four-month search for Dan Ashworth&#8217;s successor.`\
-https://nytimes.com/athletic/5615980/2024/07/04/newcastle-united-paul-mitchell/
+**Clothes of the Rich, Famous and Fabulous**\
+`At couture week in Paris, fashion fans peacocked with industry fixtures in a whirl of formal attire and street wear.`\
+https://nytimes.com/2024/07/04/style/paris-couture-week-balenciaga-schiaparelli.html
 
-**Britain's next great F1 driver? Ollie Bearman joins the grid**\
-`Driving for Haas in 2025, the 19-year-old is a strong candidate to be Ferrari's driver of the future. `\
-https://nytimes.com/athletic/5615137/2024/07/04/ollie-bearman-f1-haas-ferrari-2025/
+**Fight Over Seabed Agency Leadership Turns Nasty**\
+`An election over the future of a United Nations-affiliated organization could determine whether the Pacific Ocean floor will soon be mined for metals used in electric vehicles.`\
+https://nytimes.com/2024/07/04/us/politics/seabed-agency-mining.html
 
-**Oliver Bearman announced as Haas F1 driver for 2025 season**\
-`Oliver Bearman will race in Formula One next year with Haas after being announced as part of the team’s 2025 line-up ahead of the British Grand Prix.`\
-https://nytimes.com/athletic/5614599/2024/07/04/oliver-bearman-haas-f1/
+**Who Should Lead the Democratic Ticket? Six Columnists Weigh In.**\
+`Gretchen Whitmer, Kamala Harris, President Biden — who is best positioned to beat Donald Trump in November?`\
+https://nytimes.com/2024/07/04/opinion/biden-alternative-democratic-ticket.html
 
-**At Hot Dog Eating Contest, a Chance to Crown a New King**\
-`For the first time in years, there is no clear front-runner on the men’s side at the Nathan’s Famous Hot Dog Eating Contest in Coney Island. Joey Chestnut will not compete.`\
-https://nytimes.com/2024/07/04/nyregion/nathans-hot-dog-contest-joey-chestnut.html
+**Conservative Legal Movement’s Agenda Unites Court’s Rulings on Executive Power**\
+`Blockbuster decisions by the Supreme Court’s Republican-appointed supermajority — expanding presidential authority while undercutting that of executive branch agencies — were no contradiction.`\
+https://nytimes.com/2024/07/04/us/politics/conservative-legal-movement-supreme-court.html
 
-**Things to Take to College That You Can’t Buy at Target**\
-`They won’t add bulk to the car or much cost to the bill, but they’ll help keep your college student safer. Pepperoni is also involved.`\
-https://nytimes.com/2024/07/04/business/college-packing-list.html
+**A Divided America Agrees: We Deserve Better Than This**\
+`We convened a postdebate focus group with engaged voters who were united behind the idea that the country needed something other than President Biden vs. Donald Trump.`\
+https://nytimes.com/2024/07/04/podcasts/us-politics-braver-angels.html
 
-**New York Moves to Clean Up Times Square After a Spate of Crimes**\
-`Despite highly publicized attacks, most major offenses are down. But quality-of-life problems tarnish the “Crossroads of the World,” the city says.`\
-https://nytimes.com/2024/07/04/nyregion/crime-times-square-nyc.html
+**Like a Firing Squad, but for Romantic Rejection**\
+`Pop! Pop! Pop! Pop! A new dating-show format asks contestants to pop a balloon to signal that they’re not interested. Who said heartbreak had to be quiet?`\
+https://nytimes.com/2024/07/04/style/dating-show-reality-series.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/07/04/crosswords/spelling-bee-forum.html
+**Homes for Sale in Connecticut and New York**\
+`This week’s properties are a three-bedroom in Weston, Conn., and a five-bedroom in Stony Brook, N.Y.`\
+https://nytimes.com/2024/07/04/realestate/housing-market-near-nyc.html
 
