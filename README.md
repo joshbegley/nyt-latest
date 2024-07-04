@@ -14,8 +14,8 @@ https://nytimes.com/2024/07/04/world/europe/keir-starmer-uk.html
 `The president appears intent on remaining on the ballot, while wealthy donors are discussing plans to put their money elsewhere.`\
 https://nytimes.com/2024/07/04/us/politics/biden-donors.html
 
-**‘Jamaica Was Spared the Worst’: Islands Clean Up as Beryl Weakens**\
-`Though parts of Jamaica were badly damaged, its prime minister said it could have been far worse.`\
+**Hurricane Beryl Tears Through Caribbean, Leaving Islands to Clean Up**\
+`Parts of Jamaica were badly damaged, but its prime minister said it could have been far worse. The storm was on its way to Mexico.`\
 https://nytimes.com/2024/07/04/world/americas/hurricane-beryl-jamaica-mexico.html
 
 **Russian Who Led Troops Linked to Bucha Killings Is Charged With Corruption**\
