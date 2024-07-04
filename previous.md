@@ -1,3 +1,7 @@
+**Russian Who Led Troops Linked to Bucha Killings Is Charged With Corruption**\
+`Col. Artyom Gorodilov, who oversaw forces occupying the Ukrainian city where a massacre took place, was arrested and accused of large-scale fraud.4`\
+https://nytimes.com/2024/07/04/world/europe/russian-commander-corruption-bucha.html
+
 **Here Are the Key Players in the U.K. Election**\
 `Millions cast ballots for parliamentary seats on Thursday. The party that wins the most seats usually forms Britain’s next government, and that party’s leader becomes prime minister.`\
 https://nytimes.com/2024/07/04/world/europe/uk-election-party-leaders.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/07/04/world/europe/uk-election-polls-guide.html
 **The polls close soon in Britain. Here’s the latest.**\
 `By Mark Landler`\
 https://nytimes.com/live/2024/07/04/world/uk-election-results/the-polls-close-soon-in-britain-heres-the-latest
-
-**Live Updates: U.K. Votes in Election That Could Drive Conservatives From Power**\
-`Pre-election polls strongly favored the center-left Labour Party, which was bidding to end 14 years of Conservative rule. A new prime minister would inherit a host of economic challenges.`\
-https://nytimes.com/live/2024/07/04/world/uk-election-results
 

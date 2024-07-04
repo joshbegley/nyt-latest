@@ -1,3 +1,7 @@
+**Russian Who Led Troops Linked to Bucha Killings Is Charged With Corruption**\
+`Col. Artyom Gorodilov, who oversaw forces occupying the Ukrainian city where a massacre took place, was arrested and accused of large-scale fraud.4`\
+https://nytimes.com/2024/07/04/world/europe/russian-commander-corruption-bucha.html
+
 **Here Are the Key Players in the U.K. Election**\
 `Millions cast ballots for parliamentary seats on Thursday. The party that wins the most seats usually forms Britain’s next government, and that party’s leader becomes prime minister.`\
 https://nytimes.com/2024/07/04/world/europe/uk-election-party-leaders.html
