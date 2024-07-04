@@ -1,3 +1,11 @@
+**Manchester United appoint Vivell as temporary director of global talent**\
+`Christopher Vivell has been appointed as Manchester United&#8217;s director of global talent on a temporary basis.`\
+https://nytimes.com/athletic/5616278/2024/07/04/manchester-united-transfers-christopher-vivell/
+
+**First African-Born Member of German Parliament Won’t Seek Re-election**\
+`Karamba Diaby, whose 2013 victory was considered a win for equality, said he wanted more time with his family. But he has also spoken of the death threats he has received.`\
+https://nytimes.com/2024/07/04/world/europe/germany-parliament-african-karamba-diaby.html
+
 **Sabres depth chart reset: Where Buffalo improved and what needs are left**\
 `How much has this offseason pushed the Sabres forward? A look at where they improved, where they didn't and what still needs to be done.`\
 https://nytimes.com/athletic/5615619/2024/07/04/sabres-depth-chart-roster-moves/
