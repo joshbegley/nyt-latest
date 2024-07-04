@@ -1,3 +1,7 @@
+**Arsenal agree to sell Biereth to Sturm Graz**\
+`Arsenal have agreed a fee of £4milllion with Sturm Graz for the permanent transfer of forward Mika Biereth.`\
+https://nytimes.com/athletic/5616979/2024/07/04/mika-biereth-arsenal-sturm-graz/
+
 **Ray Kurzweil Still Says He Will Merge With A.I.**\
 `Now 76, the inventor and futurist hopes to reach “the Singularity” and live indefinitely. His margin of error is shrinking.`\
 https://nytimes.com/2024/07/04/technology/ray-kurzweil-singularity.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/07/04/t-magazine/jenna-lyons-beauty-makeup-skin-care.ht
 **Leicester fail in bid to avoid potential PSR punishment**\
 `Leicester City&#8217;s bid to avoid any potential punishment for an alleged breach of the Premier League&#8217;s profitability and sustainability (PSR) rules has been dismissed by an independent commission.`\
 https://nytimes.com/athletic/5332030/2024/07/04/leicester-psr-challenge/
-
-**Nottingham Forest close to securing City Ground stay**\
-`Nottingham Forest are close to securing an agreement that will mean the club staying at the City Ground, their home for the last 125 years, and abandoning the idea of moving to a new site on the outskirts of the city.`\
-https://nytimes.com/athletic/5616296/2024/07/04/nottingham-forest-city-ground-future/
 

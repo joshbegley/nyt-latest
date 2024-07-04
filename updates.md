@@ -1,3 +1,7 @@
+**Arsenal agree to sell Biereth to Sturm Graz**\
+`Arsenal have agreed a fee of £4milllion with Sturm Graz for the permanent transfer of forward Mika Biereth.`\
+https://nytimes.com/athletic/5616979/2024/07/04/mika-biereth-arsenal-sturm-graz/
+
 **Ray Kurzweil Still Says He Will Merge With A.I.**\
 `Now 76, the inventor and futurist hopes to reach “the Singularity” and live indefinitely. His margin of error is shrinking.`\
 https://nytimes.com/2024/07/04/technology/ray-kurzweil-singularity.html
