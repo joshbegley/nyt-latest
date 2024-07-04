@@ -1,3 +1,19 @@
+**At Hot Dog Eating Contest, a Chance to Crown a New King**\
+`For the first time in years, there is no clear front-runner on the men’s side at the Nathan’s Famous Hot Dog Eating Contest in Coney Island. Joey Chestnut will not compete.`\
+https://nytimes.com/2024/07/04/nyregion/nathans-hot-dog-contest-joey-chestnut.html
+
+**Things to Take to College That You Can’t Buy at Target**\
+`They won’t add bulk to the car or much cost to the bill, but they’ll help keep your college student safer. Pepperoni is also involved.`\
+https://nytimes.com/2024/07/04/business/college-packing-list.html
+
+**New York Moves to Clean Up Times Square After a Spate of Crimes**\
+`Despite highly publicized attacks, most major offenses are down. But quality-of-life problems tarnish the “Crossroads of the World,” the city says.`\
+https://nytimes.com/2024/07/04/nyregion/crime-times-square-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/04/crosswords/spelling-bee-forum.html
+
 **'The future is now' as Brooks Lee joins Twins' lineup with prospect stock rising**\
 `Rapid power development and an improved right-handed swing have raised Lee's ceiling just in time to sub for an injured Royce Lewis.`\
 https://nytimes.com/athletic/5615461/2024/07/04/brooks-lee-twins-prospect-debut/
