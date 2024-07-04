@@ -1,3 +1,11 @@
+**West Ham reluctant to let Paqueta join Flamengo on loan**\
+`West Ham United say they have no intention of loaning Lucas Paqueta to his boyhood club Flamengo.`\
+https://nytimes.com/athletic/5616025/2024/07/04/lucas-paqueta-west-ham-loan/
+
+**Erik Ten Hag's Man Utd contract is settled but results will determine his future**\
+`The details of Erik ten Hag's contract extension at Manchester United, his backroom staff and what it means for the future`\
+https://nytimes.com/athletic/5600923/2024/07/04/ten-hag-new-contract/
+
 **Mohammed Kudus exclusive: 'The first season at West Ham was just the beginning'**\
 `The West Ham forward was a standout performer in his Premier League debut season. His goal now is to maintain those lofty standards`\
 https://nytimes.com/athletic/5610725/2024/07/04/kudus-west-ham-ghana-exclusive/
