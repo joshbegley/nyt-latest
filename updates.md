@@ -1,3 +1,7 @@
+**Hurricane Beryl Deals Blow to Jamaica After Battering Eastern Caribbean**\
+`The island confirmed its first death as a surge of water, damaging winds and flooding pummeled the southern coast on Wednesday. The Cayman Islands are bracing to be next.`\
+https://nytimes.com/2024/07/03/world/americas/hurricane-beryl-grenada-jamaica.html
+
 **Lightning Is Blamed for Deadly New Mexico Fire**\
 `The South Fork fire and another one in the state left two people dead and destroyed 1,400 structures.`\
 https://nytimes.com/2024/07/03/us/new-mexico-wildfire-lightning-south-fork.html
