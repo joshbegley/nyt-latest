@@ -1,3 +1,7 @@
+**Nottingham Forest close to securing City Ground stay**\
+`Nottingham Forest are close to securing an agreement that will mean the club staying at the City Ground, their home for the last 125 years, and abandoning the idea of moving to a new site on the outskirts of the city.`\
+https://nytimes.com/athletic/5616296/2024/07/04/nottingham-forest-city-ground-future/
+
 **Some parts of Jamaica are facing ‘complete devastation,’ officials say.**\
 `By Jovan Johnson`\
 https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/some-parts-of-jamaica-are-facing-complete-devastation-officials-say
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5616789/2024/07/04/fran-kirby-brighton-transfer/
 **Some Countries Are Trying a Four-Day Workweek. Greece Wants a Six-Day One.**\
 `The country, which already has the European Union’s longest average workweek, wants to add another day in some cases, bucking a growing business trend.`\
 https://nytimes.com/2024/07/04/world/europe/greece-six-day-workweek.html
-
-**Sudo crushes record 51 hot dogs to win 10th pink belt**\
-`The legendary glizzy gobbler crushed the most franks in women's hot dog eating history.`\
-https://nytimes.com/athletic/5616621/2024/07/04/nathans-hot-dog-eating-compeition-winners-mens-womens/
 
