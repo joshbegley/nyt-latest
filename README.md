@@ -7,7 +7,7 @@ https://nytimes.com/2024/07/04/world/middleeast/netflix-masameer-saudi-arabia-pr
 https://nytimes.com/athletic/5605875/2024/07/04/copa-america-power-rankings/
 
 **Ten Hag's Manchester United contract extended until 2026**\
-`Erik ten Hag&#8217;s Manchester United contract has been extended through to June 2026.`\
+`Manchester United have extended Erik ten Hag&#8217;s contract through to June 2026.`\
 https://nytimes.com/athletic/5616000/2024/07/04/ten-hag-manchester-united-contract/
 
 **Biden’s Slipping Support**\
