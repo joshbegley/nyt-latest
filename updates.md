@@ -1,3 +1,7 @@
+**Cody Bellinger's quiet season hints at another Cubs trade deadline countdown**\
+`Chicago needs the kind of July that Bellinger delivered last summer. Instead, the Cubs continued their familiar losing ways to the Phillies.`\
+https://nytimes.com/athletic/5615840/2024/07/04/cubs-cody-bellinger/
+
 **Now an All-Star starter, Alec Bohm revels in the moments that shaped his big-league path**\
 `Bohm called his parents and answered a few messages. He reflected. Then, he went to work.`\
 https://nytimes.com/athletic/5615859/2024/07/04/phillies-alec-bohm-all-star-starter/
