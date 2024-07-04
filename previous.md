@@ -1,3 +1,7 @@
+**Rooney: 'I didn't want to be the next Gary Neville'**\
+`New Plymouth Argyle head coach Wayne Rooney says he &#8220;did not want to be the next Gary Neville&#8221; when asked why he stopped punditry work to take over at the Championship club.`\
+https://nytimes.com/athletic/5616955/2024/07/04/wayne-rooney-plymouth-gary-neville/
+
 **Euro 2024 tie against Ronaldo will be 'an honour', says Mbappe**\
 `Kylian Mbappe says it will be &#8220;an honour&#8221; to play against Cristiano Ronaldo when the pair face off in the European Championship quarter-finals.`\
 https://nytimes.com/athletic/5616873/2024/07/04/kylian-mbappe-cristiano-ronaldo-euro-2024/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/07/04/us/politics/trump-vice-president.html
 **There Is Apparently No Accountability — Ever — for Donald Trump**\
 `Impeachments, bankruptcies, fraud judgments, felonies. Nothing sticks. Nothing matters.`\
 https://nytimes.com/2024/07/04/opinion/donald-trump-immunity.html
-
-**The making of Nagelsmann, the man hoping to lead Germany to Euros glory**\
-`Julian Nagelsmann has reached the pinnacle of German football but his story began in an unlikely, sleepy Bavarian town`\
-https://nytimes.com/athletic/5616282/2024/07/04/julian-nagelsmann-bavaria-origins/
 
