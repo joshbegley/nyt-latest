@@ -1,3 +1,7 @@
+**Biden in Crisis**\
+`Why the next few days will be pivotal for his candidacy.`\
+https://nytimes.com/2024/07/04/briefing/biden-in-crisis.html
+
 **Napoli agree deal to sign Real Madrid's Marin**\
 `Napoli have reached an agreement with Real Madrid to sign defender Rafa Marin.`\
 https://nytimes.com/athletic/5615974/2024/07/04/napoli-rafa-marin/

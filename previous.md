@@ -1,3 +1,7 @@
+**Biden in Crisis**\
+`Why the next few days will be pivotal for his candidacy.`\
+https://nytimes.com/2024/07/04/briefing/biden-in-crisis.html
+
 **Napoli agree deal to sign Real Madrid's Marin**\
 `Napoli have reached an agreement with Real Madrid to sign defender Rafa Marin.`\
 https://nytimes.com/athletic/5615974/2024/07/04/napoli-rafa-marin/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/07/04/crosswords/connections-companion-390.html
 **Wordle Review No. 1,112, July 5, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/04/crosswords/wordle-review-1112.html
-
-**Henley is one of Britain's elite sporting occasions - but it has a dirty secret**\
-`High levels of E. coli has spread fear among competitors and cast a cloud over one of the highlights of the sporting summer`\
-https://nytimes.com/athletic/5608376/2024/07/04/henley-regatta-dirty-water/
 
