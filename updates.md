@@ -1,3 +1,7 @@
+**The playoff prediction contest was supposed to be impossible. Then things got weird**\
+`In the very first attempt at running what was supposed to be a difficult contest for you readers, all the stars aligned in your favor.`\
+https://nytimes.com/athletic/5570914/2024/07/04/nhl-playoff-prediction-contest-results/
+
 **No Poll Can Tell Biden What He Needs to Hear**\
 `The Democratic Party seems to be playing the wait-and-see game, hoping polls give it permission to pull the emergency brake.`\
 https://nytimes.com/2024/07/04/opinion/biden-democrats-polls-president.html
