@@ -1,3 +1,7 @@
+**Cody Bellinger's quiet season hints at another Cubs trade deadline countdown**\
+`Chicago needs the kind of July that Bellinger delivered last summer. Instead, the Cubs continued their familiar losing ways to the Phillies.`\
+https://nytimes.com/athletic/5615840/2024/07/04/cubs-cody-bellinger/
+
 **Now an All-Star starter, Alec Bohm revels in the moments that shaped his big-league path**\
 `Bohm called his parents and answered a few messages. He reflected. Then, he went to work.`\
 https://nytimes.com/athletic/5615859/2024/07/04/phillies-alec-bohm-all-star-starter/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5614215/2024/07/04/chelseas-midfield-where-does-dew
 **Riley Greene is playing at an All-Star level, but will he get the call to Arlington?**\
 `On a struggling team, Greene is not only the Tigers’ best position player but also one of their most unyielding.`\
 https://nytimes.com/athletic/5615822/2024/07/04/detroit-tigers-riley-greene-all-star-level/
-
-**Lussey on horror injury: 'More should be done to protect players'**\
-`Jordan Lussey was captain of Liverpool's Under-18s but his senior career has been more difficult`\
-https://nytimes.com/athletic/5610681/2024/07/04/liverpool-jordan-lussey-injury/
 
