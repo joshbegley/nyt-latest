@@ -1,3 +1,7 @@
+**Biden responds to debate debacle in Wisconsin interview: ‘I screwed up.’**\
+`By Nicholas Nehamas`\
+https://nytimes.com/live/2024/07/04/us/biden-trump-election/biden-responds-to-debate-debacle-in-wisconsin-interview-i-screwed-up
+
 **Canucks offseason depth chart 2.0: How do the new additions fit into Vancouver's lineup?**\
 `Where do the Canucks currently stand? Let's take a look at their updated depth chart and break it down.`\
 https://nytimes.com/athletic/5615901/2024/07/04/canucks-offseason-depth-chart-lineup/
