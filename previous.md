@@ -11,7 +11,7 @@ https://nytimes.com/2024/07/03/nyregion/bob-menendez-bribery-trial.html
 https://nytimes.com/2024/07/03/opinion/biden-gaza-unrwa.html
 
 **If Biden Drops Out, How Long Do Democrats Have to Pick a Nominee?**\
-`The party’s official nominating convention is in mid-August, but to appear on the ballot in Ohio, candidates must be certified by Aug. 7.`\
+`The party’s official nominating convention is in mid-August, but a virtual roll call vote is supposed to take place beforehand.`\
 https://nytimes.com/2024/07/03/us/politics/biden-drop-out-2024-election.html
 
 **Former San Diego Wave employee alleges poor work environment under Ellis**\

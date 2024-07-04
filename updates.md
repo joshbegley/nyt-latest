@@ -1,3 +1,7 @@
+**If Biden Drops Out, How Long Do Democrats Have to Pick a Nominee?**\
+`The party’s official nominating convention is in mid-August, but a virtual roll call vote is supposed to take place beforehand.`\
+https://nytimes.com/2024/07/03/us/politics/biden-drop-out-2024-election.html
+
 **Phillies lead All-Star Game starters with 3 selections**\
 `For the first time in more than 30 years, the bulk of the National League’s starting All-Star infield is coming from the Phillies.`\
 https://nytimes.com/athletic/5614294/2024/07/03/mlb-all-star-starters-roster/
