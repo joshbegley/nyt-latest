@@ -1,3 +1,7 @@
+**‘Jamaica Was Spared the Worst’: Islands Clean Up as Beryl Weakens**\
+`Though parts of Jamaica were badly damaged, its prime minister said it could have been far worse.`\
+https://nytimes.com/2024/07/04/world/americas/hurricane-beryl-jamaica-mexico.html
+
 **Russian Who Led Troops Linked to Bucha Killings Is Charged With Corruption**\
 `Col. Artyom Gorodilov, who oversaw forces occupying the Ukrainian city where a massacre took place, was arrested and accused of large-scale fraud.`\
 https://nytimes.com/2024/07/04/world/europe/russian-commander-corruption-bucha.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/gulf-oil-rigs-are-be
 **What Happens on Election Night in the U.K., and What Comes Next**\
 `Almost every district is expected to declare a winner by 7 a.m. local time. A clear opposition victory would result in a quick transition of power.`\
 https://nytimes.com/2024/07/04/world/europe/uk-election-polls-guide.html
-
-**Here’s the latest in the British election.**\
-`By Mark Landler`\
-https://nytimes.com/live/2024/07/04/world/uk-election-results/the-polls-close-soon-in-britain-heres-the-latest
 

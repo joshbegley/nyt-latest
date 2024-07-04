@@ -1,3 +1,7 @@
+**‘Jamaica Was Spared the Worst’: Islands Clean Up as Beryl Weakens**\
+`Though parts of Jamaica were badly damaged, its prime minister said it could have been far worse.`\
+https://nytimes.com/2024/07/04/world/americas/hurricane-beryl-jamaica-mexico.html
+
 **Here’s the latest in the British election.**\
 `By Mark Landler`\
 https://nytimes.com/live/2024/07/04/world/uk-election-results/the-polls-close-soon-in-britain-heres-the-latest
