@@ -1,3 +1,7 @@
+**Brighton set to sign Fran Kirby**\
+`Brighton are set to sign England international Fran Kirby on a free transfer.`\
+https://nytimes.com/athletic/5616789/2024/07/04/fran-kirby-brighton-transfer/
+
 **Some Countries Are Trying a Four-Day Workweek. Greece Wants a Six-Day One.**\
 `The country, which already has the European Union’s longest average workweek, wants to add another day in some cases, bucking a growing business trend.`\
 https://nytimes.com/2024/07/04/world/europe/greece-six-day-workweek.html

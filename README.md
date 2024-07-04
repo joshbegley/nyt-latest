@@ -1,3 +1,7 @@
+**No need for Max Verstappen to apologize for Austria F1 clash, says Lando Norris**\
+`Stay informed on all the biggest stories in Formula One.`\
+https://nytimes.com/athletic/5616577/2024/07/04/lando-norris-max-verstappen-austrian-gp-apology/
+
 **Brighton set to sign Fran Kirby**\
 `Brighton are set to sign England international Fran Kirby on a free transfer.`\
 https://nytimes.com/athletic/5616789/2024/07/04/fran-kirby-brighton-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/here-is-the-latest-o
 **Live Updates: Hurricane Beryl Passes Cayman Islands on Way to Mexico**\
 `The storm, now a Category 3 hurricane, has already slammed Jamaica and Grenada this week. A hurricane warning was in effect for the Cayman Islands on Thursday.`\
 https://nytimes.com/live/2024/07/04/weather/hurricane-beryl
-
-**Why Spain vs Germany is one of the biggest quarter-finals in international football history**\
-`A lopsided draw at Euro 2024 means that there is an unusually early meeting between arguably the two best sides in the competition`\
-https://nytimes.com/athletic/5616447/2024/07/04/spain-germany-euro-2024-real-final/
 
