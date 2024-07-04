@@ -1,3 +1,11 @@
+**Why More French Youth Are Voting for the Far Right**\
+`Most young people in France usually don’t vote or they back the left. That is still true, but support has surged for the far right, whose openly racist past can feel to them like ancient history.`\
+https://nytimes.com/2024/07/04/world/europe/france-far-right-youth-vote.html
+
+**Raya joins Arsenal on permanent transfer from Brentford after loan spell**\
+`Arsenal have confirmed the signing of David Raya on a permanent deal from Brentford after the goalkeeper’s initial loan spell in 2023-24.`\
+https://nytimes.com/athletic/5614086/2024/07/04/david-raya-arsenal-transfer-permanent/
+
 **Thompson: Klay Thompson had to leave the Warriors, but the legend will last forever**\
 `Klay Thompson has always been his own man. That's why he had to leave. Whenever he returns, it'll be as the legend Warriors fans love.`\
 https://nytimes.com/athletic/5615798/2024/07/04/klay-thompson-warriors-mavericks-legend/
