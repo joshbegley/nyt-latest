@@ -1,3 +1,15 @@
+**What Happens on Election Night in the U.K., and What Comes Next**\
+`Almost every district is expected to declare a winner by 7 a.m. local time. A clear opposition victory would result in a quick transition of power.`\
+https://nytimes.com/2024/07/04/world/europe/uk-election-polls-guide.html
+
+**The polls close soon in Britain. Here’s the latest.**\
+`By Mark Landler`\
+https://nytimes.com/live/2024/07/04/world/uk-election-results/the-polls-close-soon-in-britain-heres-the-latest
+
+**Live Updates: U.K. Votes in Election That Could Drive Conservatives From Power**\
+`Pre-election polls strongly favored the center-left Labour Party, which was bidding to end 14 years of Conservative rule. A new prime minister would inherit a host of economic challenges.`\
+https://nytimes.com/live/2024/07/04/world/uk-election-results
+
 **Also vulnerable to Beryl: Mexico’s nature reserves.**\
 `By Emiliano Rodríguez Mega`\
 https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/also-vulnerable-to-beryl-mexicos-nature-reserves

@@ -1,3 +1,15 @@
+**What Happens on Election Night in the U.K., and What Comes Next**\
+`Almost every district is expected to declare a winner by 7 a.m. local time. A clear opposition victory would result in a quick transition of power.`\
+https://nytimes.com/2024/07/04/world/europe/uk-election-polls-guide.html
+
+**The polls close soon in Britain. Here’s the latest.**\
+`By Mark Landler`\
+https://nytimes.com/live/2024/07/04/world/uk-election-results/the-polls-close-soon-in-britain-heres-the-latest
+
+**Live Updates: U.K. Votes in Election That Could Drive Conservatives From Power**\
+`Pre-election polls strongly favored the center-left Labour Party, which was bidding to end 14 years of Conservative rule. A new prime minister would inherit a host of economic challenges.`\
+https://nytimes.com/live/2024/07/04/world/uk-election-results
+
 **Also vulnerable to Beryl: Mexico’s nature reserves.**\
 `By Emiliano Rodríguez Mega`\
 https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/also-vulnerable-to-beryl-mexicos-nature-reserves
@@ -21,16 +33,4 @@ https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/beryl-passes-by-the-
 **Gareth Barry warned after helping to fund Swindon Town while an active player**\
 `The former England midfielder made a 'substantial' investment in the EFL club via his friend and former agent, an FA commission ruled`\
 https://nytimes.com/athletic/5617117/2024/07/04/gareth-barry-swindon-town-investment/
-
-**Chelsea academy upheaval: Why are Bath and Fraser leaving, and what happens next?**\
-`West London club are restructuring their academy, with co-director of recruitment and talent Joe Shields expected to take on a leading role`\
-https://nytimes.com/athletic/5616275/2024/07/04/chelsea-academy-bath-fraser-shields-clearlake/
-
-**Why Yankees demoted Anthony Volpe in the lineup and what move should come next**\
-`After 76 straight games of leading off, Volpe was dropped to sixth in the batting order for Thursday afternoon's game.`\
-https://nytimes.com/athletic/5616827/2024/07/04/yankees-anthony-volpe-lineup/
-
-**United Kingdom 2024 Election: Live Results**\
-`See results and maps from the 2024 U.K. general election.`\
-https://nytimes.com/interactive/2024/07/04/world/europe/results-uk-general-election.html
 
