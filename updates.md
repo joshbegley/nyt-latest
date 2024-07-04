@@ -1,3 +1,7 @@
+**Chelsea academy upheaval: Why are Bath and Fraser leaving, and what happens next?**\
+`West London club are restructuring their academy, with co-director of recruitment and talent Joe Shields expected to take on a leading role`\
+https://nytimes.com/athletic/5616275/2024/07/04/chelsea-academy-bath-fraser-shields-clearlake/
+
 **Biden Tells Governors He Needs to Sleep More and Work Less at Night**\
 `The president’s opening remark to a group of key Democratic leaders — that he was in the race to stay — chilled any talk of his withdrawal, participants said.`\
 https://nytimes.com/2024/07/04/us/politics/biden-governors.html
