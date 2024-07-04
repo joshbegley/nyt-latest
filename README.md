@@ -1,3 +1,7 @@
+**Hurricane Beryl Moves Toward Mexico**\
+`The storm, now a Category 3 hurricane, has already slammed Jamaica and Grenada this week. A hurricane warning was in effect for the Cayman Islands on Thursday.`\
+https://nytimes.com/article/hurricane-beryl-tropical-storm-updates.html
+
 **A New Principal Takes Her Bow at American Ballet Theater**\
 `After a tremendous “Swan Lake” performance, Chloe Misseldine was promoted onstage at the Metropolitan Opera House. The audience went nuts.`\
 https://nytimes.com/2024/07/04/arts/dance/chloe-misseldine-promotion-american-ballet-theater.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5616278/2024/07/04/manchester-united-transfers-chri
 **Sabres depth chart reset: Where Buffalo improved and what needs are left**\
 `How much has this offseason pushed the Sabres forward? A look at where they improved, where they didn't and what still needs to be done.`\
 https://nytimes.com/athletic/5615619/2024/07/04/sabres-depth-chart-roster-moves/
-
-**PSA picks Wemby as pitcher for dream team baseball roster**\
-`When Victor Wembanyama threw out the ceremonial first pitch at Yankee Stadium last summer, no one expected the No.`\
-https://nytimes.com/athletic/5615519/2024/07/04/victor-wembanyama-pitcher-dream-team-roster-psa/
 
