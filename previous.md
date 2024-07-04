@@ -1,3 +1,7 @@
+**Yankees should consider moving Anthony Volpe down in the lineup to maximize production**\
+`The Yankees insist this year's version of Volpe is a "way better hitter" than what he showed last year.`\
+https://nytimes.com/athletic/5614799/2024/07/04/yankees-anthony-volpe-leadoff-lineup-change/
+
 **Europe Tells China’s Carmakers: Get Ready to Pay Tariffs**\
 `The European Union took the next step toward collecting heavy tariffs on electric vehicles, ahead of a final decision in October.`\
 https://nytimes.com/2024/07/04/business/european-union-china-ev-tariffs.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/07/04/us/politics/trump-biden-replacement-candidate.htm
 **From an R.V. to a Condo Near Washington: Which Was Better for Their Growing Family?**\
 `After spending two years on the road and having a baby, a young couple decided to put down roots just south of the nation’s capital. Here’s what they found.`\
 https://nytimes.com/interactive/2024/07/04/realestate/virginia-washington-dc-condo-sale.html
-
-**Homes for Sale in Manhattan and Brooklyn**\
-`This week’s properties are in Sutton Place, Gramercy Park and Flatbush.`\
-https://nytimes.com/2024/07/04/realestate/housing-market-nyc.html
 

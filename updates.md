@@ -1,3 +1,7 @@
+**Yankees should consider moving Anthony Volpe down in the lineup to maximize production**\
+`The Yankees insist this year's version of Volpe is a "way better hitter" than what he showed last year.`\
+https://nytimes.com/athletic/5614799/2024/07/04/yankees-anthony-volpe-leadoff-lineup-change/
+
 **Europe Tells China’s Carmakers: Get Ready to Pay Tariffs**\
 `The European Union took the next step toward collecting heavy tariffs on electric vehicles, ahead of a final decision in October.`\
 https://nytimes.com/2024/07/04/business/european-union-china-ev-tariffs.html
