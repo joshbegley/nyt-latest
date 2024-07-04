@@ -1,3 +1,11 @@
+**Sudo crushes record 51 hot dogs to win 10th pink belt**\
+`The legendary glizzy gobbler crushed the most franks in women's hot dog eating history.`\
+https://nytimes.com/athletic/5616621/2024/07/04/nathans-hot-dog-eating-compeition-winners-mens-womens/
+
+**Paul Pogba, a bittersweet reunion with France and life on the outside looking in**\
+`The midfielder was key to France winning the 2018 World Cup but as he awaits a CAS hearing over a long doping ban, his career is in limbo`\
+https://nytimes.com/athletic/5616340/2024/07/04/pogba-france-deschamps-cas/
+
 **A tale of two dives: Hubert Hurkacz's painful Wimbledon exit**\
 `The No. 7 seed retired at match point down having injured his knee diving for a ball — and winning the point — in a fourth set tiebreak`\
 https://nytimes.com/athletic/5616515/2024/07/04/hubert-hurkacz-wimbledon-knee-injury/
