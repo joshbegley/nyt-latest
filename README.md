@@ -1,3 +1,7 @@
+**Man United to hire former Burnley goalkeeper coach Jelle ten Rouwelaar**\
+`Manchester United are hiring a new goalkeeping coach by moving for Jelle ten Rouwelaar, who spent last season in the Premier League at Burnley.`\
+https://nytimes.com/athletic/5617138/2024/07/04/man-united-goalkeeper-coach-ten-rouwelaar-burnley/
+
 **Warriors to acquire Buddy Hield via sign-and-trade**\
 `Since 2017, the only player to make more 3-pointers than Hield is his new teammate, Steph Curry.`\
 https://nytimes.com/athletic/5617128/2024/07/04/buddy-hield-trade-sign-warriors-76ers/
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2024/07/04/world/europe/results-uk-general-elect
 **Lamine Yamal, Nico Williams: Spain’s Euro 2024 stars a 'blessing' in battle against racism**\
 `The brilliant youngsters are lighting up Spain's Euro 2024 - but their impact goes deeper back home`\
 https://nytimes.com/athletic/5616160/2024/07/04/williams-yamal-euro-2024-spain-racism-la-liga/
-
-**U.S. Justice Department Opens Criminal Investigation in Chinese Doping Case**\
-`The move escalates a fight with China and world antidoping officials, and will cast a shadow of criminality over the Paris Olympics.`\
-https://nytimes.com/2024/07/04/world/asia/china-swimming-investigation-doping.html
 
