@@ -1,3 +1,11 @@
+**West Ham reluctant to let Paqueta join Flamengo on loan**\
+`West Ham United say they have no intention of loaning Lucas Paqueta to his boyhood club Flamengo.`\
+https://nytimes.com/athletic/5616025/2024/07/04/lucas-paqueta-west-ham-loan/
+
+**Erik Ten Hag's Man Utd contract is settled but results will determine his future**\
+`The details of Erik ten Hag's contract extension at Manchester United, his backroom staff and what it means for the future`\
+https://nytimes.com/athletic/5600923/2024/07/04/ten-hag-new-contract/
+
 **Mohammed Kudus exclusive: 'The first season at West Ham was just the beginning'**\
 `The West Ham forward was a standout performer in his Premier League debut season. His goal now is to maintain those lofty standards`\
 https://nytimes.com/athletic/5610725/2024/07/04/kudus-west-ham-ghana-exclusive/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/07/04/movies/kill-review.html
 **Trevor Zegras? Kaapo Kakko? Here are 11 potential Flames offseason targets**\
 `If the Flames intend to make a move for a young player this offseason, here are some of their options.`\
 https://nytimes.com/athletic/5537582/2024/07/04/rossi-zegras-protas-kakko-trade/
-
-**'So good, so good': How Neil Diamond's Sweet Caroline became England fans' anthem of choice**\
-`Neil Diamond's 1969 hit has become almost ubiquitous when England are playing a big match - but how and why?`\
-https://nytimes.com/athletic/5572099/2024/07/04/sweet-caroline-england-neil-diamond-so-good/
-
-**Biden in Crisis**\
-`Why the next few days will be pivotal for his candidacy.`\
-https://nytimes.com/2024/07/04/briefing/biden-in-crisis.html
 
