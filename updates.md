@@ -1,3 +1,11 @@
+**Wimbledon day 4 recap: The day a Grand Slam tournament came alive**\
+`Wimbledon 2024 came alive on its fourth day, with British battles, chants of USA, and plenty of matches with edge and drama.`\
+https://nytimes.com/athletic/5616996/2024/07/04/wimbledon-recap-grand-slam-comes-alive-on-general-election-day-and-4th-july/
+
+**Newsom Urges Michigan Democrats to Stay Calm and Support Biden**\
+`Gov. Gavin Newsom of California defended President Biden and told party activists in Michigan, a critical swing state, “not to be fatalistic” about the campaign.`\
+https://nytimes.com/2024/07/04/us/gavin-newsom-michigan-biden.html
+
 **Steve Yzerman discusses Red Wings' offseason, 2024-25 outlook**\
 `Yzerman met with media on Thursday to discuss the team's offseason moves and outlook going forward.`\
 https://nytimes.com/athletic/5617182/2024/07/04/red-wings-free-agents-tarasenko/
