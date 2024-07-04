@@ -1,3 +1,7 @@
+**Who might replace Biden at the top of the ticket?**\
+`By Adam Nagourney and Chris Cameron`\
+https://nytimes.com/live/2024/07/03/us/biden-trump-election/who-might-replace-biden-at-the-top-of-the-ticket
+
 **If Biden Drops Out, How Long Do Democrats Have to Pick a Nominee?**\
 `The party’s official nominating convention is in mid-August, but a virtual roll call vote is supposed to take place beforehand.`\
 https://nytimes.com/2024/07/03/us/politics/biden-drop-out-2024-election.html
