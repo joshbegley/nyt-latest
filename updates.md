@@ -1,3 +1,7 @@
+**Now an All-Star starter, Alec Bohm revels in the moments that shaped his big-league path**\
+`Bohm called his parents and answered a few messages. He reflected. Then, he went to work.`\
+https://nytimes.com/athletic/5615859/2024/07/04/phillies-alec-bohm-all-star-starter/
+
 **Loving America Means Expecting More From It**\
 `On the other side of honesty is the possibility of change.`\
 https://nytimes.com/2024/07/04/opinion/patriotism-july-fourth.html
