@@ -1,3 +1,7 @@
+**Humour dries the tears at Andy Murray's poignant Wimbledon farewell**\
+`Andy Murray began his long goodbye to Wimbledon with a touching Centre Court farewell, full of tributes, tears — and stories of vomiting`\
+https://nytimes.com/athletic/5617318/2024/07/04/andy-murray-wimbledon-centre-court-ceremony/
+
 **Kenta Maeda’s contract has turned into the Tigers’ latest albatross**\
 `Maeda entered this year averaging nearly 10 strikeouts per nine inning, but this season it's only 6.8.`\
 https://nytimes.com/athletic/5617305/2024/07/04/tigers-kenta-maeda-contract/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/07/04/world/europe/uk-election-party-leaders.html
 **Tourists arrive in Cancún only to learn that Beryl is joining them.**\
 `By Ricardo Hernández Ruiz`\
 https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/tourists-arrive-in-cancun-only-to-learn-that-beryl-is-joining-them
-
-**Hurricane Beryl’s devastation sparks outcry for more climate action.**\
-`By Anjana Sankar`\
-https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/hurricane-beryls-devastation-sparks-outcry-for-more-climate-action
 
