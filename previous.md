@@ -1,3 +1,11 @@
+**Newcastle United appoint Paul Mitchell as sporting director**\
+`Newcastle United have appointed Paul Mitchell as their new sporting director, ending a four-month search for Dan Ashworth&#8217;s successor.`\
+https://nytimes.com/athletic/5615980/2024/07/04/newcastle-united-paul-mitchell/
+
+**Britain's next great F1 driver? Ollie Bearman joins the grid**\
+`Driving for Haas in 2025, the 19-year-old is a strong candidate to be Ferrari's driver of the future. `\
+https://nytimes.com/athletic/5615137/2024/07/04/ollie-bearman-f1-haas-ferrari-2025/
+
 **Oliver Bearman announced as Haas F1 driver for 2025 season**\
 `Oliver Bearman will race in Formula One next year with Haas after being announced as part of the team’s 2025 line-up ahead of the British Grand Prix.`\
 https://nytimes.com/athletic/5614599/2024/07/04/oliver-bearman-haas-f1/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5615461/2024/07/04/brooks-lee-twins-prospect-debut/
 **Jamaica reports its first death from Beryl.**\
 `By Jovan Johnson`\
 https://nytimes.com/live/2024/07/03/weather/hurricane-beryl/jamaica-reports-its-first-death-from-beryl
-
-**Cody Bellinger's quiet season hints at another Cubs trade deadline countdown**\
-`Chicago needs the kind of July that Bellinger delivered last summer. Instead, the Cubs continued their familiar losing ways to the Phillies.`\
-https://nytimes.com/athletic/5615840/2024/07/04/cubs-cody-bellinger/
-
-**Now an All-Star starter, Alec Bohm revels in the moments that shaped his big-league path**\
-`Bohm called his parents and answered a few messages. He reflected. Then, he went to work.`\
-https://nytimes.com/athletic/5615859/2024/07/04/phillies-alec-bohm-all-star-starter/
 

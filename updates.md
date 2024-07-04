@@ -1,3 +1,11 @@
+**Newcastle United appoint Paul Mitchell as sporting director**\
+`Newcastle United have appointed Paul Mitchell as their new sporting director, ending a four-month search for Dan Ashworth&#8217;s successor.`\
+https://nytimes.com/athletic/5615980/2024/07/04/newcastle-united-paul-mitchell/
+
+**Britain's next great F1 driver? Ollie Bearman joins the grid**\
+`Driving for Haas in 2025, the 19-year-old is a strong candidate to be Ferrari's driver of the future. `\
+https://nytimes.com/athletic/5615137/2024/07/04/ollie-bearman-f1-haas-ferrari-2025/
+
 **Oliver Bearman announced as Haas F1 driver for 2025 season**\
 `Oliver Bearman will race in Formula One next year with Haas after being announced as part of the team’s 2025 line-up ahead of the British Grand Prix.`\
 https://nytimes.com/athletic/5614599/2024/07/04/oliver-bearman-haas-f1/
