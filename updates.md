@@ -1,3 +1,7 @@
+**Lightning Is Blamed for Deadly New Mexico Fire**\
+`The South Fork fire and another one in the state left two people dead and destroyed 1,400 structures.`\
+https://nytimes.com/2024/07/03/us/new-mexico-wildfire-lightning-south-fork.html
+
 **Who might replace Biden at the top of the ticket?**\
 `By Adam Nagourney and Chris Cameron`\
 https://nytimes.com/live/2024/07/03/us/biden-trump-election/who-might-replace-biden-at-the-top-of-the-ticket

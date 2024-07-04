@@ -1,3 +1,7 @@
+**Lightning Is Blamed for Deadly New Mexico Fire**\
+`The South Fork fire and another one in the state left two people dead and destroyed 1,400 structures.`\
+https://nytimes.com/2024/07/03/us/new-mexico-wildfire-lightning-south-fork.html
+
 **Who might replace Biden at the top of the ticket?**\
 `By Adam Nagourney and Chris Cameron`\
 https://nytimes.com/live/2024/07/03/us/biden-trump-election/who-might-replace-biden-at-the-top-of-the-ticket
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5614874/2024/07/03/wimbledon-recap-day-3-navarro-os
 **An anxious Caribbean community in New York monitors Beryl’s path.**\
 `By Alyce McFadden and Nate Schweber`\
 https://nytimes.com/live/2024/07/03/weather/hurricane-beryl/an-anxious-caribbean-community-in-new-york-monitors-beryls-path
-
-**Here Comes the ‘KHive’: Buzz for Kamala Harris Grows After Biden’s Debate Stumble**\
-`The vice president is receiving support from both prominent Democrats and social media fans who show their enthusiasm with coconut tree emojis.`\
-https://nytimes.com/2024/07/03/us/politics/kamala-harris-biden-president-debate.html
 
