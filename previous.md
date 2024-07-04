@@ -1,3 +1,11 @@
+**United Kingdom 2024 Election: Live Results**\
+`See results and maps from the 2024 U.K. general election.`\
+https://nytimes.com/interactive/2024/07/04/world/europe/results-uk-general-election.html
+
+**Lamine Yamal, Nico Williams: Spain’s Euro 2024 stars a 'blessing' in battle against racism**\
+`The brilliant youngsters are lighting up Spain's Euro 2024 - but their impact goes deeper back home`\
+https://nytimes.com/athletic/5616160/2024/07/04/williams-yamal-euro-2024-spain-racism-la-liga/
+
 **U.S. Justice Department Opens Criminal Investigation in Chinese Doping Case**\
 `The move escalates a fight with China and world antidoping officials, and will cast a shadow of criminality over the Paris Olympics.`\
 https://nytimes.com/2024/07/04/world/asia/china-swimming-investigation-doping.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/07/04/technology/ray-kurzweil-singularity.html
 **‘Brat’ Green Summer Cooking**\
 `Chilled zucchini soup, buttermilk green goddess slaw and cucumber agua fresca are lush, vegetal and so Julia.`\
 https://nytimes.com/2024/07/04/dining/brat-green-summer-cooking.html
-
-**England 'have to improve' ahead of Switzerland quarter-final - Stones**\
-`John Stones has admitted that England are working hard to get back to the “fluid football” they used to play earlier in Gareth Southgate’s tenure.`\
-https://nytimes.com/athletic/5616804/2024/07/04/euro-2024-england-stones-quarter-final/
-
-**Rooney: 'I didn't want to be the next Gary Neville'**\
-`New Plymouth Argyle head coach Wayne Rooney says he &#8220;did not want to be the next Gary Neville&#8221; when asked why he stopped punditry work to take over at the Championship club.`\
-https://nytimes.com/athletic/5616955/2024/07/04/wayne-rooney-plymouth-gary-neville/
 

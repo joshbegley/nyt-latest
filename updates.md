@@ -1,3 +1,11 @@
+**United Kingdom 2024 Election: Live Results**\
+`See results and maps from the 2024 U.K. general election.`\
+https://nytimes.com/interactive/2024/07/04/world/europe/results-uk-general-election.html
+
+**Lamine Yamal, Nico Williams: Spain’s Euro 2024 stars a 'blessing' in battle against racism**\
+`The brilliant youngsters are lighting up Spain's Euro 2024 - but their impact goes deeper back home`\
+https://nytimes.com/athletic/5616160/2024/07/04/williams-yamal-euro-2024-spain-racism-la-liga/
+
 **U.S. Justice Department Opens Criminal Investigation in Chinese Doping Case**\
 `The move escalates a fight with China and world antidoping officials, and will cast a shadow of criminality over the Paris Olympics.`\
 https://nytimes.com/2024/07/04/world/asia/china-swimming-investigation-doping.html
