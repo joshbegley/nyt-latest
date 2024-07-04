@@ -1,3 +1,7 @@
+**Amid a crisis of confidence, Biden will host Independence Day events. Here’s the latest.**\
+`By Chris Cameron`\
+https://nytimes.com/2024/07/04/us/politics/amid-a-crisis-of-confidence-biden-will-host-independence-day-events-heres-the-latest.html
+
 **This English Naval City is a Bellwether Seat. How Do Voters Feel?**\
 `As voters began casting their ballots in a pivotal U.K. election, many in the southern English city of Portsmouth expressed disillusionment over what they see as national and local decline.`\
 https://nytimes.com/2024/07/04/world/europe/uk-election-voters.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/4672223/2024/07/04/silverstone-circuit-british-gran
 **Israeli Leaders to Discuss Hamas Response on Cease-Fire Proposal**\
 `Wide gaps remain between the sides but mediators have renewed discussions based on a three-stage framework deal publicized by President Biden in May.`\
 https://nytimes.com/2024/07/04/world/middleeast/israel-hamas-cease-fire-proposal.html
-
-**The Pulse: An MLB trade deadline cheat sheet**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5615616/2024/07/04/garrett-crochet-mlb-trade-deadline-the-pulse/
 
