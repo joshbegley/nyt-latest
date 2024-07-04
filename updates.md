@@ -1,3 +1,11 @@
+**Warriors to acquire Buddy Hield via sign-and-trade**\
+`Since 2017, the only player to make more 3-pointers than Hield is his new teammate, Steph Curry.`\
+https://nytimes.com/athletic/5617128/2024/07/04/buddy-hield-trade-sign-warriors-76ers/
+
+**Miracle Whip, Onboarding and the Wonders of the English Language**\
+`Shifts in pronunciation are so much more than mere quirks. `\
+https://nytimes.com/2024/07/04/opinion/miracle-whip-and-onboarding.html
+
 **Beryl passes by the Cayman Islands, with only minimal damage reported so far.**\
 `By Daphne Ewing-Chow`\
 https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/beryl-passes-by-the-cayman-islands-with-only-minimal-damage-reported-so-far

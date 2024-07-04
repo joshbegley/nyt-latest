@@ -1,3 +1,11 @@
+**Warriors to acquire Buddy Hield via sign-and-trade**\
+`Since 2017, the only player to make more 3-pointers than Hield is his new teammate, Steph Curry.`\
+https://nytimes.com/athletic/5617128/2024/07/04/buddy-hield-trade-sign-warriors-76ers/
+
+**Miracle Whip, Onboarding and the Wonders of the English Language**\
+`Shifts in pronunciation are so much more than mere quirks. `\
+https://nytimes.com/2024/07/04/opinion/miracle-whip-and-onboarding.html
+
 **Beryl passes by the Cayman Islands, with only minimal damage reported so far.**\
 `By Daphne Ewing-Chow`\
 https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/beryl-passes-by-the-cayman-islands-with-only-minimal-damage-reported-so-far
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5616160/2024/07/04/williams-yamal-euro-2024-spain-r
 **U.S. Justice Department Opens Criminal Investigation in Chinese Doping Case**\
 `The move escalates a fight with China and world antidoping officials, and will cast a shadow of criminality over the Paris Olympics.`\
 https://nytimes.com/2024/07/04/world/asia/china-swimming-investigation-doping.html
-
-**Northern California Wildfire Slows, Allowing Some Residents to Return Home**\
-`The fire in Oroville has forced 29,000 people to evacuate their homes, but on Thursday officials said they felt “more confident” about containing the fire’s spread.`\
-https://nytimes.com/2024/07/04/us/thompson-wildfire-oroville-california.html
-
-**Biden Tells Governors He Needs to Sleep More and Work Less at Night**\
-`The president’s opening remark to a group of key Democratic leaders — that he was in the race to stay — chilled any talk of his withdrawal, participants said.`\
-https://nytimes.com/2024/07/04/us/politics/biden-governors.html
 
