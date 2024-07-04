@@ -18,7 +18,7 @@ https://nytimes.com/2024/07/04/world/asia/china-swimming-investigation-doping.ht
 `The fire in Oroville has forced 29,000 people to evacuate their homes, but on Thursday officials said they felt “more confident” about containing the fire’s spread.`\
 https://nytimes.com/2024/07/04/us/thompson-wildfire-oroville-california.html
 
-**Biden Tells Governors He Needs More Sleep and Less Work at Night**\
+**Biden Tells Governors He Needs to Sleep More and Work Less at Night**\
 `The president’s opening remark to a group of key Democratic leaders — that he was in the race to stay — chilled any talk of his withdrawal, participants said.`\
 https://nytimes.com/2024/07/04/us/politics/biden-governors.html
 
