@@ -1,5 +1,5 @@
 **MLB unveils new All-Star uniforms, drawing derision from fans**\
-`For the fourth year, All-Stars will where matching uniforms instead of individual team ones. Reaction to this year's version was negative.`\
+`For the fourth year, All-Stars will wear matching uniforms instead of individual team ones. Reaction to this year's version was negative.`\
 https://nytimes.com/athletic/5615682/2024/07/03/mlb-all-star-game-jersey-reaction/
 
 **Bucks, Taurean Prince agree to contract that addresses another open roster spot**\
