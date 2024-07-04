@@ -1,3 +1,11 @@
+**The Athletic FC: Should Portugal drop Ronaldo? Plus: Ten Hag extends deal, United to cut 250 jobs**\
+`Today in The Athletic FC: Is Ronaldo better-suited to the bench for Portugal? Plus: United extend Ten Hag deal but are set to cut 250 jobs`\
+https://nytimes.com/athletic/5616189/2024/07/04/the-athletic-fc-portugal-ronaldo-plus-ten-hag-new-contract/
+
+**Erik ten Hag's Man Utd contract is settled but results will determine his future**\
+`The details of Erik ten Hag's contract extension at Manchester United, his backroom staff and what it means for the future`\
+https://nytimes.com/athletic/5600923/2024/07/04/ten-hag-new-contract/
+
 **Silverstone track breakdown: The track that makes F1 drivers feel like fighter jet pilots**\
 `The British Grand Prix offers one of the most iconic tracks on Formula One’s calendar, rich in history and a thrilling high-speed drive. `\
 https://nytimes.com/athletic/4672223/2024/07/04/silverstone-circuit-british-grand-prix-f1/

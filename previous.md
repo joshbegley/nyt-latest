@@ -1,3 +1,7 @@
+**The Athletic FC: Should Portugal drop Ronaldo? Plus: Ten Hag extends deal, United to cut 250 jobs**\
+`Today in The Athletic FC: Is Ronaldo better-suited to the bench for Portugal? Plus: United extend Ten Hag deal but are set to cut 250 jobs`\
+https://nytimes.com/athletic/5616189/2024/07/04/the-athletic-fc-portugal-ronaldo-plus-ten-hag-new-contract/
+
 **Silverstone track breakdown: The track that makes F1 drivers feel like fighter jet pilots**\
 `The British Grand Prix offers one of the most iconic tracks on Formula One’s calendar, rich in history and a thrilling high-speed drive. `\
 https://nytimes.com/athletic/4672223/2024/07/04/silverstone-circuit-british-grand-prix-f1/
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/5615616/2024/07/04/garrett-crochet-mlb-trade-deadli
 `West Ham United say they have no intention of loaning Lucas Paqueta to his boyhood club Flamengo.`\
 https://nytimes.com/athletic/5616025/2024/07/04/lucas-paqueta-west-ham-loan/
 
-**Erik Ten Hag's Man Utd contract is settled but results will determine his future**\
+**Erik ten Hag's Man Utd contract is settled but results will determine his future**\
 `The details of Erik ten Hag's contract extension at Manchester United, his backroom staff and what it means for the future`\
 https://nytimes.com/athletic/5600923/2024/07/04/ten-hag-new-contract/
 
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5613625/2024/07/04/spain-crossing-euro-2024-de-la-f
 **‘Mother, Couch’ Review: The Family That Stays Together**\
 `A stubborn matriarch played by Ellen Burstyn lodges in a furniture store and wages emotional warfare with her adult children.`\
 https://nytimes.com/2024/07/04/movies/mother-couch-review.html
-
-**‘The Imaginary’ Review: Off to Another World**\
-`This poignant animated film casts the world of imaginary friends as an arena to reckon with emotional turmoil and loss of innocence.`\
-https://nytimes.com/2024/07/04/movies/the-imaginary-review-off-to-another-world.html
 
