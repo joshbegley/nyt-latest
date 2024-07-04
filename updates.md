@@ -1,3 +1,7 @@
+**Europe Tells China’s Carmakers: Get Ready to Pay Tariffs**\
+`The European Union took the next step toward collecting heavy tariffs on electric vehicles, ahead of a final decision in October.`\
+https://nytimes.com/2024/07/04/business/european-union-china-ev-tariffs.html
+
 **The playoff prediction contest was supposed to be impossible. Then things got weird**\
 `In the very first attempt at running what was supposed to be a difficult contest for you readers, all the stars aligned in your favor.`\
 https://nytimes.com/athletic/5570914/2024/07/04/nhl-playoff-prediction-contest-results/
