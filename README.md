@@ -1,3 +1,7 @@
+**Chelsea academy upheaval: Why are Bath and Fraser leaving, and what happens next?**\
+`West London club are restructuring their academy, with co-director of recruitment and talent Joe Shields expected to take on a leading role`\
+https://nytimes.com/athletic/5616275/2024/07/04/chelsea-academy-bath-fraser-shields-clearlake/
+
 **Why Yankees demoted Anthony Volpe in the lineup and what move should come next**\
 `After 76 straight games of leading off, Volpe was dropped to sixth in the batting order for Thursday afternoon's game.`\
 https://nytimes.com/athletic/5616827/2024/07/04/yankees-anthony-volpe-lineup/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5616879/2024/07/04/flyers-prospects-oliver-bonk-den
 **Arsenal agree to sell Biereth to Sturm Graz**\
 `Arsenal have agreed a fee of £4milllion with Sturm Graz for the permanent transfer of forward Mika Biereth.`\
 https://nytimes.com/athletic/5616979/2024/07/04/mika-biereth-arsenal-sturm-graz/
-
-**Ray Kurzweil Still Says He Will Merge With A.I.**\
-`Now 76, the inventor and futurist hopes to reach “the Singularity” and live indefinitely. His margin of error is shrinking.`\
-https://nytimes.com/2024/07/04/technology/ray-kurzweil-singularity.html
 
