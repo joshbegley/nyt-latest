@@ -1,3 +1,11 @@
+**Silverstone track breakdown: The track that makes F1 drivers feel like fighter jet pilots**\
+`The British Grand Prix offers one of the most iconic tracks on Formula One’s calendar, rich in history and a thrilling high-speed drive. `\
+https://nytimes.com/athletic/4672223/2024/07/04/silverstone-circuit-british-grand-prix-f1/
+
+**Israeli Leaders to Discuss Hamas Response on Cease-Fire Proposal**\
+`Wide gaps remain between the sides but mediators have renewed discussions based on a three-stage framework deal publicized by President Biden in May.`\
+https://nytimes.com/2024/07/04/world/middleeast/israel-hamas-cease-fire-proposal.html
+
 **The Pulse: An MLB trade deadline cheat sheet**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5615616/2024/07/04/garrett-crochet-mlb-trade-deadline-the-pulse/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/07/04/movies/mother-couch-review.html
 **‘The Imaginary’ Review: Off to Another World**\
 `This poignant animated film casts the world of imaginary friends as an arena to reckon with emotional turmoil and loss of innocence.`\
 https://nytimes.com/2024/07/04/movies/the-imaginary-review-off-to-another-world.html
-
-**Ross Barkley to Aston Villa: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate Ross Barkley's move to Aston Villa`\
-https://nytimes.com/athletic/5613971/2024/07/04/ross-barkley-aston-villa-transfer-rating/
-
-**‘Kill’ Review: The Title Says It All. Over and Over Again.**\
-`What begins as a romantic rescue becomes a blood bath when bandits on a train attack and rob passengers and our Romeo cracks multiple heads in return.`\
-https://nytimes.com/2024/07/04/movies/kill-review.html
 
