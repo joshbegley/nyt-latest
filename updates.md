@@ -1,3 +1,7 @@
+**Canucks offseason depth chart 2.0: How do the new additions fit into Vancouver's lineup?**\
+`Where do the Canucks currently stand? Let's take a look at their updated depth chart and break it down.`\
+https://nytimes.com/athletic/5615901/2024/07/04/canucks-offseason-depth-chart-lineup/
+
 **Why More French Youth Are Voting for the Far Right**\
 `Most young people in France usually don’t vote or they back the left. That is still true, but support has surged for the far right, whose openly racist past can feel to them like ancient history.`\
 https://nytimes.com/2024/07/04/world/europe/france-far-right-youth-vote.html
