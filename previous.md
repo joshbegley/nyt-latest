@@ -1,3 +1,7 @@
+**Hurricane Beryl’s devastation sparks outcry for more climate action.**\
+`By Anjana Sankar`\
+https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/hurricane-beryls-devastation-sparks-outcry-for-more-climate-action
+
 **What's next for Knicks after avoiding first-apron hard cap in Mikal Bridges trade?**\
 `Thanks to some collective bargaining agreement minutiae, the Knicks have gained some flexibility to alter their roster.`\
 https://nytimes.com/athletic/5617098/2024/07/04/knicks-first-apron-mikal-bridges-trade/
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/also-vulnerable-to-b
 **Man United to hire former Burnley goalkeeper coach Jelle ten Rouwelaar**\
 `Manchester United are hiring a new goalkeeping coach by moving for Jelle ten Rouwelaar, who spent last season in the Premier League at Burnley.`\
 https://nytimes.com/athletic/5617138/2024/07/04/man-united-goalkeeper-coach-ten-rouwelaar-burnley/
-
-**Warriors to acquire Buddy Hield via sign-and-trade**\
-`Since 2017, the only player to make more 3-pointers than Hield is his new teammate, Steph Curry.`\
-https://nytimes.com/athletic/5617128/2024/07/04/buddy-hield-trade-sign-warriors-76ers/
 

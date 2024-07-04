@@ -1,3 +1,7 @@
+**Hurricane Beryl’s devastation sparks outcry for more climate action.**\
+`By Anjana Sankar`\
+https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/hurricane-beryls-devastation-sparks-outcry-for-more-climate-action
+
 **What's next for Knicks after avoiding first-apron hard cap in Mikal Bridges trade?**\
 `Thanks to some collective bargaining agreement minutiae, the Knicks have gained some flexibility to alter their roster.`\
 https://nytimes.com/athletic/5617098/2024/07/04/knicks-first-apron-mikal-bridges-trade/
