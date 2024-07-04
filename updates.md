@@ -1,3 +1,11 @@
+**Riley Greene is playing at an All-Star level, but will he get the call to Arlington?**\
+`On a struggling team, Greene is not only the Tigers’ best position player but also one of their most unyielding.`\
+https://nytimes.com/athletic/5615822/2024/07/04/detroit-tigers-riley-greene-all-star-level/
+
+**Lussey on horror injury: 'More should be done to protect players'**\
+`Jordan Lussey was captain of Liverpool's Under-18s but his senior career has been more difficult`\
+https://nytimes.com/athletic/5610681/2024/07/04/liverpool-jordan-lussey-injury/
+
 **Thursday Briefing**\
 `Britain votes in a long-awaited election.`\
 https://nytimes.com/2024/07/04/briefing/britain-election-biden-campaign.html
