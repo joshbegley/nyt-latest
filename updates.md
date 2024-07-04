@@ -1,3 +1,11 @@
+**MLB unveils new All-Star uniforms, drawing derision from fans**\
+`For the fourth year, All-Stars will wear matching uniforms instead of individual team ones. Reaction to this year's version was negative.`\
+https://nytimes.com/athletic/5615682/2024/07/03/mlb-all-star-game-jersey-reaction/
+
+**Bucks, Taurean Prince agree to contract that addresses another open roster spot**\
+`Their roster makes quite a bit more sense after the agreements made with these first two players.`\
+https://nytimes.com/athletic/5615405/2024/07/03/bucks-taurean-prince-agree-contract/
+
 **Biden ‘in It to Win It,’ Democratic Governors Say**\
 `After a meeting with President Biden, some of the country’s Democratic governors said they had pledged their support, despite what one governor called his “bad performance” during the first presidential debate.`\
 https://nytimes.com/video/us/elections/100000009555053/biden-governors-politics-election.html
