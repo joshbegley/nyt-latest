@@ -1,3 +1,11 @@
+**MLB unveils new All-Star uniforms, drawing derision from fans**\
+`For the fourth year, All-Stars will where matching uniforms instead of individual team ones. Reaction to this year's version was negative.`\
+https://nytimes.com/athletic/5615682/2024/07/03/mlb-all-star-game-jersey-reaction/
+
+**Bucks, Taurean Prince agree to contract that addresses another open roster spot**\
+`Their roster makes quite a bit more sense after the agreements made with these first two players.`\
+https://nytimes.com/athletic/5615405/2024/07/03/bucks-taurean-prince-agree-contract/
+
 **Biden ‘in It to Win It,’ Democratic Governors Say**\
 `After a meeting with President Biden, some of the country’s Democratic governors said they had pledged their support, despite what one governor called his “bad performance” during the first presidential debate.`\
 https://nytimes.com/video/us/elections/100000009555053/biden-governors-politics-election.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/07/03/us/new-mexico-wildfire-lightning-south-fork.html
 **Who might replace Biden at the top of the ticket?**\
 `By Adam Nagourney and Chris Cameron`\
 https://nytimes.com/live/2024/07/03/us/biden-trump-election/who-might-replace-biden-at-the-top-of-the-ticket
-
-**Phillies lead All-Star Game starters with 3 selections**\
-`For the first time in more than 30 years, the bulk of the National League’s starting All-Star infield is coming from the Phillies.`\
-https://nytimes.com/athletic/5614294/2024/07/03/mlb-all-star-starters-roster/
-
-**Menendez Defense Rests Without Senator Testifying**\
-`Senator Robert Menendez of New Jersey is accused of a wide-ranging international bribery conspiracy. Jurors are likely to begin deliberating next week.`\
-https://nytimes.com/2024/07/03/nyregion/bob-menendez-bribery-trial.html
 
