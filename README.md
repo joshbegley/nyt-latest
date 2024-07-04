@@ -1,3 +1,7 @@
+**Some parts of Jamaica are facing ‘complete devastation,’ officials say.**\
+`By Jovan Johnson`\
+https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/some-parts-of-jamaica-are-facing-complete-devastation-officials-say
+
 **How Biden’s Struggles Are Factoring Into Trump’s V.P. Selection**\
 `The former president’s reluctance to name a running mate has, in recent days, been partly to avoid shifting the focus away from President Biden amid fallout from the debate.`\
 https://nytimes.com/2024/07/04/us/politics/trump-vice-president.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/07/04/world/europe/greece-six-day-workweek.html
 **Sudo crushes record 51 hot dogs to win 10th pink belt**\
 `The legendary glizzy gobbler crushed the most franks in women's hot dog eating history.`\
 https://nytimes.com/athletic/5616621/2024/07/04/nathans-hot-dog-eating-compeition-winners-mens-womens/
-
-**Paul Pogba, a bittersweet reunion with France and life on the outside looking in**\
-`The midfielder was key to France winning the 2018 World Cup but as he awaits a CAS hearing over a long doping ban, his career is in limbo`\
-https://nytimes.com/athletic/5616340/2024/07/04/pogba-france-deschamps-cas/
 
