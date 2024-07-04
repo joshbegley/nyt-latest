@@ -1,3 +1,11 @@
+**'The future is now' as Brooks Lee joins Twins' lineup with prospect stock rising**\
+`Rapid power development and an improved right-handed swing have raised Lee's ceiling just in time to sub for an injured Royce Lewis.`\
+https://nytimes.com/athletic/5615461/2024/07/04/brooks-lee-twins-prospect-debut/
+
+**Jamaica reports its first death from Beryl.**\
+`By Jovan Johnson`\
+https://nytimes.com/live/2024/07/03/weather/hurricane-beryl/jamaica-reports-its-first-death-from-beryl
+
 **Cody Bellinger's quiet season hints at another Cubs trade deadline countdown**\
 `Chicago needs the kind of July that Bellinger delivered last summer. Instead, the Cubs continued their familiar losing ways to the Phillies.`\
 https://nytimes.com/athletic/5615840/2024/07/04/cubs-cody-bellinger/
