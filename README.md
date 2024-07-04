@@ -1,3 +1,7 @@
+**Ates: Why the Jets should extend Cole Perfetti long-term this offseason**\
+`For the Jets to improve, they must excel in their approach to restricted free agents — like Perfetti.`\
+https://nytimes.com/athletic/5614834/2024/07/04/cole-perfetti-contract-winnipeg-jets-mcgroarty/
+
 **5 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/07/04/books/review/new-books-recommendations.html
@@ -29,8 +33,4 @@ https://nytimes.com/article/hurricane-beryl-tropical-storm-updates.html
 **A New Principal Takes Her Bow at American Ballet Theater**\
 `After a tremendous “Swan Lake” performance, Chloe Misseldine was promoted onstage at the Metropolitan Opera House. The audience went nuts.`\
 https://nytimes.com/2024/07/04/arts/dance/chloe-misseldine-promotion-american-ballet-theater.html
-
-**Cristiano Ronaldo and the importance of controlling your heart rate at crucial moments**\
-`Wearable tech is giving us new insights into how elite athletes access a 'flow state' to enhance performance`\
-https://nytimes.com/athletic/5616081/2024/07/04/cristiano-ronaldo-heart-rate/
 
