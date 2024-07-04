@@ -1,36 +1,36 @@
+**Mohammed Kudus exclusive: 'The first season at West Ham was just the beginning'**\
+`The West Ham forward was a standout performer in his Premier League debut season. His goal now is to maintain those lofty standards`\
+https://nytimes.com/athletic/5610725/2024/07/04/kudus-west-ham-ghana-exclusive/
+
+**How Spain have evolved under Luis de la Fuente - through crossing**\
+`Spain are crossing from open play at their highest rate in major tournaments since 2010 — and it's changing how they attack`\
+https://nytimes.com/athletic/5613625/2024/07/04/spain-crossing-euro-2024-de-la-fuente/
+
+**‘Mother, Couch’ Review: The Family That Stays Together**\
+`A stubborn matriarch played by Ellen Burstyn lodges in a furniture store and wages emotional warfare with her adult children.`\
+https://nytimes.com/2024/07/04/movies/mother-couch-review.html
+
+**‘The Imaginary’ Review: Off to Another World**\
+`This poignant animated film casts the world of imaginary friends as an arena to reckon with emotional turmoil and loss of innocence.`\
+https://nytimes.com/2024/07/04/movies/the-imaginary-review-off-to-another-world.html
+
+**Ross Barkley to Aston Villa: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Ross Barkley's move to Aston Villa`\
+https://nytimes.com/athletic/5613971/2024/07/04/ross-barkley-aston-villa-transfer-rating/
+
+**‘Kill’ Review: The Title Says It All. Over and Over Again.**\
+`What begins as a romantic rescue becomes a blood bath when bandits on a train attack and rob passengers and our Romeo cracks multiple heads in return.`\
+https://nytimes.com/2024/07/04/movies/kill-review.html
+
+**Trevor Zegras? Kaapo Kakko? Here are 11 potential Flames offseason targets**\
+`If the Flames intend to make a move for a young player this offseason, here are some of their options.`\
+https://nytimes.com/athletic/5537582/2024/07/04/rossi-zegras-protas-kakko-trade/
+
+**'So good, so good': How Neil Diamond's Sweet Caroline became England fans' anthem of choice**\
+`Neil Diamond's 1969 hit has become almost ubiquitous when England are playing a big match - but how and why?`\
+https://nytimes.com/athletic/5572099/2024/07/04/sweet-caroline-england-neil-diamond-so-good/
+
 **Biden in Crisis**\
 `Why the next few days will be pivotal for his candidacy.`\
 https://nytimes.com/2024/07/04/briefing/biden-in-crisis.html
-
-**Napoli agree deal to sign Real Madrid's Marin**\
-`Napoli have reached an agreement with Real Madrid to sign defender Rafa Marin.`\
-https://nytimes.com/athletic/5615974/2024/07/04/napoli-rafa-marin/
-
-**Netflix Show Earns Its Saudi Creator Plaudits, and a Prison Sentence**\
-`In a video plea for help, Abdulaziz Almuzaini — a dual Saudi-American citizen — described how the authorities had accused him of promoting extremism through a cartoon franchise.`\
-https://nytimes.com/2024/07/04/world/middleeast/netflix-masameer-saudi-arabia-prison.html
-
-**Ranking all 16 teams at the Copa America**\
-`As we reach the knockout stage of the tournament, The Athletic ranks all of the teams at this year's Copa America`\
-https://nytimes.com/athletic/5605875/2024/07/04/copa-america-power-rankings/
-
-**Ten Hag's Manchester United contract extended until 2026**\
-`Manchester United have extended Erik ten Hag&#8217;s contract through to June 2026.`\
-https://nytimes.com/athletic/5616000/2024/07/04/ten-hag-manchester-united-contract/
-
-**Biden’s Slipping Support**\
-`Donald J. Trump leads the presidential race by six percentage points among likely voters in a new national survey.`\
-https://nytimes.com/2024/07/04/podcasts/the-daily/bidens-trump-poll.html
-
-**Maple Leafs provide Anthony Stolarz opportunity he's waited his entire career for**\
-`Stolarz's signed his largest NHL contract and with the Leafs and it's an opportunity to play more games than he ever has in an NHL season.`\
-https://nytimes.com/athletic/5615145/2024/07/04/maple-leafs-anthony-stolarz/
-
-**The Connections Companion No. 390, July 5, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/04/crosswords/connections-companion-390.html
-
-**Wordle Review No. 1,112, July 5, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/04/crosswords/wordle-review-1112.html
 
