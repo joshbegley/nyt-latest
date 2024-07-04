@@ -1,3 +1,7 @@
+**5 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/07/04/books/review/new-books-recommendations.html
+
 **Biden responds to debate debacle in Wisconsin interview: ‘I screwed up.’**\
 `By Nicholas Nehamas`\
 https://nytimes.com/live/2024/07/04/us/biden-trump-election/biden-responds-to-debate-debacle-in-wisconsin-interview-i-screwed-up
@@ -29,8 +33,4 @@ https://nytimes.com/2024/07/04/arts/dance/chloe-misseldine-promotion-american-ba
 **Cristiano Ronaldo and the importance of controlling your heart rate at crucial moments**\
 `Wearable tech is giving us new insights into how elite athletes access a 'flow state' to enhance performance`\
 https://nytimes.com/athletic/5616081/2024/07/04/cristiano-ronaldo-heart-rate/
-
-**Wolves expected to accept West Ham's offer for captain Kilman**\
-`Wolverhampton Wanderers are expected to accept West Ham United&#8217;s £40million offer for captain Max Kilman.`\
-https://nytimes.com/athletic/5616336/2024/07/04/max-kilman-west-ham-wolves-transfer/
 

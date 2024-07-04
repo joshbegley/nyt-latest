@@ -1,3 +1,7 @@
+**5 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/07/04/books/review/new-books-recommendations.html
+
 **Biden responds to debate debacle in Wisconsin interview: ‘I screwed up.’**\
 `By Nicholas Nehamas`\
 https://nytimes.com/live/2024/07/04/us/biden-trump-election/biden-responds-to-debate-debacle-in-wisconsin-interview-i-screwed-up
