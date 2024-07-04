@@ -1,3 +1,11 @@
+**Here Are the Key Players in the U.K. Election**\
+`Millions cast ballots for parliamentary seats on Thursday. The party that wins the most seats usually forms Britain’s next government, and that party’s leader becomes prime minister.`\
+https://nytimes.com/2024/07/04/world/europe/uk-election-party-leaders.html
+
+**Tourists arrive in Cancún only to learn that Beryl is joining them.**\
+`By Ricardo Hernández Ruiz`\
+https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/tourists-arrive-in-cancun-only-to-learn-that-beryl-is-joining-them
+
 **Hurricane Beryl’s devastation sparks outcry for more climate action.**\
 `By Anjana Sankar`\
 https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/hurricane-beryls-devastation-sparks-outcry-for-more-climate-action
@@ -25,12 +33,4 @@ https://nytimes.com/live/2024/07/04/world/uk-election-results/the-polls-close-so
 **Live Updates: U.K. Votes in Election That Could Drive Conservatives From Power**\
 `Pre-election polls strongly favored the center-left Labour Party, which was bidding to end 14 years of Conservative rule. A new prime minister would inherit a host of economic challenges.`\
 https://nytimes.com/live/2024/07/04/world/uk-election-results
-
-**Also vulnerable to Beryl: Mexico’s nature reserves.**\
-`By Emiliano Rodríguez Mega`\
-https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/also-vulnerable-to-beryl-mexicos-nature-reserves
-
-**Man United to hire former Burnley goalkeeper coach Jelle ten Rouwelaar**\
-`Manchester United are hiring a new goalkeeping coach by moving for Jelle ten Rouwelaar, who spent last season in the Premier League at Burnley.`\
-https://nytimes.com/athletic/5617138/2024/07/04/man-united-goalkeeper-coach-ten-rouwelaar-burnley/
 
