@@ -1,3 +1,7 @@
+**Sabres depth chart reset: Where Buffalo improved and what needs are left**\
+`How much has this offseason pushed the Sabres forward? A look at where they improved, where they didn't and what still needs to be done.`\
+https://nytimes.com/athletic/5615619/2024/07/04/sabres-depth-chart-roster-moves/
+
 **PSA picks Wemby as pitcher for dream team baseball roster**\
 `When Victor Wembanyama threw out the ceremonial first pitch at Yankee Stadium last summer, no one expected the No.`\
 https://nytimes.com/athletic/5615519/2024/07/04/victor-wembanyama-pitcher-dream-team-roster-psa/
