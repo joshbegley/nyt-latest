@@ -1,3 +1,7 @@
+**Paul Mullin ruled out of Wrexham's North America tour with back injury**\
+`Wrexham striker Paul Mullin will miss the club&#8217;s summer tour of North America with a back injury.`\
+https://nytimes.com/athletic/5615986/2024/07/04/paul-mullin-injury-wrexham-us-tour/
+
 **Newcastle United appoint Paul Mitchell as sporting director**\
 `Newcastle United have appointed Paul Mitchell as their new sporting director, ending a four-month search for Dan Ashworth&#8217;s successor.`\
 https://nytimes.com/athletic/5615980/2024/07/04/newcastle-united-paul-mitchell/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/07/04/crosswords/spelling-bee-forum.html
 **'The future is now' as Brooks Lee joins Twins' lineup with prospect stock rising**\
 `Rapid power development and an improved right-handed swing have raised Lee's ceiling just in time to sub for an injured Royce Lewis.`\
 https://nytimes.com/athletic/5615461/2024/07/04/brooks-lee-twins-prospect-debut/
-
-**Jamaica reports its first death from Beryl.**\
-`By Jovan Johnson`\
-https://nytimes.com/live/2024/07/03/weather/hurricane-beryl/jamaica-reports-its-first-death-from-beryl
 

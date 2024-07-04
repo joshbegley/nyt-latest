@@ -1,3 +1,7 @@
+**Paul Mullin ruled out of Wrexham's North America tour with back injury**\
+`Wrexham striker Paul Mullin will miss the club&#8217;s summer tour of North America with a back injury.`\
+https://nytimes.com/athletic/5615986/2024/07/04/paul-mullin-injury-wrexham-us-tour/
+
 **Newcastle United appoint Paul Mitchell as sporting director**\
 `Newcastle United have appointed Paul Mitchell as their new sporting director, ending a four-month search for Dan Ashworth&#8217;s successor.`\
 https://nytimes.com/athletic/5615980/2024/07/04/newcastle-united-paul-mitchell/
