@@ -1,3 +1,15 @@
+**Ray Kurzweil Still Says He Will Merge With A.I.**\
+`Now 76, the inventor and futurist hopes to reach “the Singularity” and live indefinitely. His margin of error is shrinking.`\
+https://nytimes.com/2024/07/04/technology/ray-kurzweil-singularity.html
+
+**‘Brat’ Green Summer Cooking**\
+`Chilled zucchini soup, buttermilk green goddess slaw and cucumber agua fresca are lush, vegetal and so Julia.`\
+https://nytimes.com/2024/07/04/dining/brat-green-summer-cooking.html
+
+**England 'have to improve' ahead of Switzerland quarter-final - Stones**\
+`John Stones has admitted that England are working hard to get back to the “fluid football” they used to play earlier in Gareth Southgate’s tenure.`\
+https://nytimes.com/athletic/5616804/2024/07/04/euro-2024-england-stones-quarter-final/
+
 **Rooney: 'I didn't want to be the next Gary Neville'**\
 `New Plymouth Argyle head coach Wayne Rooney says he &#8220;did not want to be the next Gary Neville&#8221; when asked why he stopped punditry work to take over at the Championship club.`\
 https://nytimes.com/athletic/5616955/2024/07/04/wayne-rooney-plymouth-gary-neville/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5332030/2024/07/04/leicester-psr-challenge/
 **Nottingham Forest close to securing City Ground stay**\
 `Nottingham Forest are close to securing an agreement that will mean the club staying at the City Ground, their home for the last 125 years, and abandoning the idea of moving to a new site on the outskirts of the city.`\
 https://nytimes.com/athletic/5616296/2024/07/04/nottingham-forest-city-ground-future/
-
-**Some parts of Jamaica are facing ‘complete devastation,’ officials say.**\
-`By Jovan Johnson`\
-https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/some-parts-of-jamaica-are-facing-complete-devastation-officials-say
-
-**How Biden’s Struggles Are Factoring Into Trump’s V.P. Selection**\
-`The former president’s reluctance to name a running mate has, in recent days, been partly to avoid shifting the focus away from President Biden amid fallout from the debate.`\
-https://nytimes.com/2024/07/04/us/politics/trump-vice-president.html
-
-**There Is Apparently No Accountability — Ever — for Donald Trump**\
-`Impeachments, bankruptcies, fraud judgments, felonies. Nothing sticks. Nothing matters.`\
-https://nytimes.com/2024/07/04/opinion/donald-trump-immunity.html
 
