@@ -1,3 +1,7 @@
+**A tale of two dives: Hubert Hurkacz's painful Wimbledon exit**\
+`The No. 7 seed retired at match point down having injured his knee diving for a ball — and winning the point — in a fourth set tiebreak`\
+https://nytimes.com/athletic/5616515/2024/07/04/hubert-hurkacz-wimbledon-knee-injury/
+
 **Tiny Love Stories: ‘Surrounded by Family and Fireworks, I Finally Lit the Fuse’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/07/04/style/tiny-modern-love-stories-surrounded-by-family-and-fireworks-i-finally-lit-the-fuse.html
