@@ -1,3 +1,7 @@
+**Hurricane Beryl Moves Toward Mexico**\
+`The storm, now a Category 3 hurricane, has already slammed Jamaica and Grenada this week. A hurricane warning was in effect for the Cayman Islands on Thursday.`\
+https://nytimes.com/article/hurricane-beryl-tropical-storm-updates.html
+
 **A New Principal Takes Her Bow at American Ballet Theater**\
 `After a tremendous “Swan Lake” performance, Chloe Misseldine was promoted onstage at the Metropolitan Opera House. The audience went nuts.`\
 https://nytimes.com/2024/07/04/arts/dance/chloe-misseldine-promotion-american-ballet-theater.html
