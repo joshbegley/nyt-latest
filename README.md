@@ -1,3 +1,7 @@
+**Napoli agree deal to sign Real Madrid's Marin**\
+`Napoli have reached an agreement with Real Madrid to sign defender Rafa Marin.`\
+https://nytimes.com/athletic/5615974/2024/07/04/napoli-rafa-marin/
+
 **Netflix Show Earns Its Saudi Creator Plaudits, and a Prison Sentence**\
 `In a video plea for help, Abdulaziz Almuzaini — a dual Saudi-American citizen — described how the authorities had accused him of promoting extremism through a cartoon franchise.`\
 https://nytimes.com/2024/07/04/world/middleeast/netflix-masameer-saudi-arabia-prison.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/07/04/crosswords/wordle-review-1112.html
 **Henley is one of Britain's elite sporting occasions - but it has a dirty secret**\
 `High levels of E. coli has spread fear among competitors and cast a cloud over one of the highlights of the sporting summer`\
 https://nytimes.com/athletic/5608376/2024/07/04/henley-regatta-dirty-water/
-
-**Yankees should consider moving Anthony Volpe down in the lineup to maximize production**\
-`The Yankees insist this year's version of Volpe is a "way better hitter" than what he showed last year.`\
-https://nytimes.com/athletic/5614799/2024/07/04/yankees-anthony-volpe-leadoff-lineup-change/
 
