@@ -1,3 +1,7 @@
+**This English Naval City is a Bellwether Seat. How Do Voters Feel?**\
+`As voters began casting their ballots in a pivotal U.K. election, many in the southern English city of Portsmouth expressed disillusionment over what they see as national and local decline.`\
+https://nytimes.com/2024/07/04/world/europe/uk-election-voters.html
+
 **Manchester United appoint Vivell as temporary director of global talent**\
 `Christopher Vivell has been appointed as Manchester United&#8217;s director of global talent on a temporary basis.`\
 https://nytimes.com/athletic/5616278/2024/07/04/manchester-united-transfers-christopher-vivell/
