@@ -1,3 +1,11 @@
+**Kenta Maeda’s contract has turned into the Tigers’ latest albatross**\
+`Maeda entered this year averaging nearly 10 strikeouts per nine inning, but this season it's only 6.8.`\
+https://nytimes.com/athletic/5617305/2024/07/04/tigers-kenta-maeda-contract/
+
+**Friday Briefing: Labour Projected to Win U.K. Election**\
+`Plus, Iran heads to the polls.`\
+https://nytimes.com/2024/07/04/briefing/labour-wins-british-election.html
+
 **Keir Starmer Is Poised to Be Next U.K. Prime Minister**\
 `The 61-year-old former human rights lawyer lacks the star power of some of his predecessors. “But he does look relatively prime-ministerial,” one analyst said.`\
 https://nytimes.com/2024/07/04/world/europe/keir-starmer-uk.html
@@ -25,12 +33,4 @@ https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/tourists-arrive-in-c
 **Hurricane Beryl’s devastation sparks outcry for more climate action.**\
 `By Anjana Sankar`\
 https://nytimes.com/live/2024/07/04/weather/hurricane-beryl/hurricane-beryls-devastation-sparks-outcry-for-more-climate-action
-
-**What's next for Knicks after avoiding first-apron hard cap in Mikal Bridges trade?**\
-`Thanks to some collective bargaining agreement minutiae, the Knicks have gained some flexibility to alter their roster.`\
-https://nytimes.com/athletic/5617098/2024/07/04/knicks-first-apron-mikal-bridges-trade/
-
-**Five Ridiculously Good Soft Serves For Summer**\
-`Cherry and mascarpone, vanilla with soy sauce caramel and more ice cream (sadly without a jingle).`\
-https://nytimes.com/2024/07/04/dining/five-ridiculously-good-soft-serves-for-summer.html
 
