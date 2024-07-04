@@ -1,3 +1,15 @@
+**Biden’s Slipping Support**\
+`Donald J. Trump leads the presidential race by six percentage points among likely voters in a new national survey.`\
+https://nytimes.com/2024/07/04/podcasts/the-daily/bidens-trump-poll.html
+
+**The Connections Companion No. 390, July 5, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/04/crosswords/connections-companion-390.html
+
+**Wordle Review No. 1,112, July 5, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/04/crosswords/wordle-review-1112.html
+
 **Yankees should consider moving Anthony Volpe down in the lineup to maximize production**\
 `The Yankees insist this year's version of Volpe is a "way better hitter" than what he showed last year.`\
 https://nytimes.com/athletic/5614799/2024/07/04/yankees-anthony-volpe-leadoff-lineup-change/

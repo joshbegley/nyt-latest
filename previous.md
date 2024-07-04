@@ -1,3 +1,15 @@
+**Biden’s Slipping Support**\
+`Donald J. Trump leads the presidential race by six percentage points among likely voters in a new national survey.`\
+https://nytimes.com/2024/07/04/podcasts/the-daily/bidens-trump-poll.html
+
+**The Connections Companion No. 390, July 5, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/04/crosswords/connections-companion-390.html
+
+**Wordle Review No. 1,112, July 5, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/04/crosswords/wordle-review-1112.html
+
 **Yankees should consider moving Anthony Volpe down in the lineup to maximize production**\
 `The Yankees insist this year's version of Volpe is a "way better hitter" than what he showed last year.`\
 https://nytimes.com/athletic/5614799/2024/07/04/yankees-anthony-volpe-leadoff-lineup-change/
@@ -21,16 +33,4 @@ https://nytimes.com/2024/07/04/style/the-strokes-tribute-band-the-brokes-new-yor
 **You Don’t Need Your Own Fireworks to Celebrate July 4**\
 `The days surrounding Independence Day are consistently the most common days for human-started fires.`\
 https://nytimes.com/live/2024/07/02/opinion/thepoint/you-dont-need-your-own-fireworks-to-celebrate-july-4
-
-**How a Weekend of Media and Memes Shaped Six Voters’ Thoughts About the Debate**\
-`We asked six voters around the country to send us all the media they saw or heard after the debate. Here is what we learned.`\
-https://nytimes.com/interactive/2024/07/04/us/presidential-debate-trump-biden-voters.html
-
-**Trump Lets Democrats Dominate the Public Debate Over Biden’s Future**\
-`The former president has spent months painting President Biden as incapable of leading, but he has publicly appeared content to sit back and let Democrats do the doubting.`\
-https://nytimes.com/2024/07/04/us/politics/trump-biden-replacement-candidate.html
-
-**From an R.V. to a Condo Near Washington: Which Was Better for Their Growing Family?**\
-`After spending two years on the road and having a baby, a young couple decided to put down roots just south of the nation’s capital. Here’s what they found.`\
-https://nytimes.com/interactive/2024/07/04/realestate/virginia-washington-dc-condo-sale.html
 
