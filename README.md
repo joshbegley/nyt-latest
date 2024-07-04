@@ -1,3 +1,19 @@
+**At Hot Dog Eating Contest, a Chance to Crown a New King**\
+`For the first time in years, there is no clear front-runner on the men’s side at the Nathan’s Famous Hot Dog Eating Contest in Coney Island. Joey Chestnut will not compete.`\
+https://nytimes.com/2024/07/04/nyregion/nathans-hot-dog-contest-joey-chestnut.html
+
+**Things to Take to College That You Can’t Buy at Target**\
+`They won’t add bulk to the car or much cost to the bill, but they’ll help keep your college student safer. Pepperoni is also involved.`\
+https://nytimes.com/2024/07/04/business/college-packing-list.html
+
+**New York Moves to Clean Up Times Square After a Spate of Crimes**\
+`Despite highly publicized attacks, most major offenses are down. But quality-of-life problems tarnish the “Crossroads of the World,” the city says.`\
+https://nytimes.com/2024/07/04/nyregion/crime-times-square-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/04/crosswords/spelling-bee-forum.html
+
 **'The future is now' as Brooks Lee joins Twins' lineup with prospect stock rising**\
 `Rapid power development and an improved right-handed swing have raised Lee's ceiling just in time to sub for an injured Royce Lewis.`\
 https://nytimes.com/athletic/5615461/2024/07/04/brooks-lee-twins-prospect-debut/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/5615859/2024/07/04/phillies-alec-bohm-all-star-star
 **Loving America Means Expecting More From It**\
 `On the other side of honesty is the possibility of change.`\
 https://nytimes.com/2024/07/04/opinion/patriotism-july-fourth.html
-
-**'I know who you are, but I'm here': Reds' Fernando Cruz takes on Aaron Judge and wins**\
-`Cruz got Judge to ground into an inning-ending double play for the biggest outs of the Reds' 3-2 victory over the Yankees.`\
-https://nytimes.com/athletic/5615825/2024/07/04/reds-yankees-fernando-cruz-aaron-judge/
-
-**Washington and Northern Virginia Told to Boil Drinking Water**\
-`Algae blooms in the Potomac River prompted a boil water advisory for nearly a million residents in Washington and Arlington County.`\
-https://nytimes.com/2024/07/04/us/washington-dc-arlington-boil-water.html
-
-**India’s Cable News Predicted a Big Modi Win. How Did They Get It So Wrong?**\
-`Prime Minister Narendra Modi’s slim election victory has forced India to reflect on how fawning coverage may have obscured a wave of opposition.`\
-https://nytimes.com/2024/07/04/world/asia/india-election-news-modi.html
-
-**Braves' Chris Sale solidifies All-Star resume, praises 'sparkplug' teammate Jarred Kelenic**\
-`Braves hitting coach Kevin Seitzer described Kelenic's talent level as "Off the charts. How ’bout the defense, too?"`\
-https://nytimes.com/athletic/5615766/2024/07/04/braves-chris-sale-jarred-kelenic/
 
