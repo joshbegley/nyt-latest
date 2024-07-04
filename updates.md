@@ -1,3 +1,7 @@
+**Why Yankees demoted Anthony Volpe in the lineup and what move should come next**\
+`After 76 straight games of leading off, Volpe was dropped to sixth in the batting order for Thursday afternoon's game.`\
+https://nytimes.com/athletic/5616827/2024/07/04/yankees-anthony-volpe-lineup/
+
 **United Kingdom 2024 Election: Live Results**\
 `See results and maps from the 2024 U.K. general election.`\
 https://nytimes.com/interactive/2024/07/04/world/europe/results-uk-general-election.html
