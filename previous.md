@@ -1,9 +1,21 @@
+**Loving America Means Expecting More From It**\
+`On the other side of honesty is the possibility of change.`\
+https://nytimes.com/2024/07/04/opinion/patriotism-july-fourth.html
+
+**'I know who you are, but I'm here': Reds' Fernando Cruz takes on Aaron Judge and wins**\
+`Cruz got Judge to ground into an inning-ending double play for the biggest outs of the Reds' 3-2 victory over the Yankees.`\
+https://nytimes.com/athletic/5615825/2024/07/04/reds-yankees-fernando-cruz-aaron-judge/
+
+**Washington and Northern Virginia Told to Boil Drinking Water**\
+`Algae blooms in the Potomac River prompted a boil water advisory for nearly a million residents in Washington and Arlington County.`\
+https://nytimes.com/2024/07/04/us/washington-dc-arlington-boil-water.html
+
 **India’s Cable News Predicted a Big Modi Win. How Did They Get It So Wrong?**\
 `Prime Minister Narendra Modi’s slim election victory has forced India to reflect on how fawning coverage may have obscured a wave of opposition.`\
 https://nytimes.com/2024/07/04/world/asia/india-election-news-modi.html
 
 **Braves' Chris Sale solidifies All-Star resume, praises 'sparkplug' teammate Jarred Kelenic**\
-`Braves hitting coach Kevin Seitzer described Kelenic's talent level as "Off the charts. How ‘bout the defense, too?"`\
+`Braves hitting coach Kevin Seitzer described Kelenic's talent level as "Off the charts. How ’bout the defense, too?"`\
 https://nytimes.com/athletic/5615766/2024/07/04/braves-chris-sale-jarred-kelenic/
 
 **Chelsea's midfield: Where does Dewsbury-Hall fit in, and where does it leave Gallagher?**\
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5610681/2024/07/04/liverpool-jordan-lussey-injury/
 **Jorgen Strand Larsen to Wolves: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Jorgen Strand Larsen's move to Wolves`\
 https://nytimes.com/athletic/5611242/2024/07/04/jorgen-strand-larsen-to-wolves-the-athletic-500-transfer-ratings/
-
-**Thursday Briefing**\
-`Britain votes in a long-awaited election.`\
-https://nytimes.com/2024/07/04/briefing/britain-election-biden-campaign.html
-
-**England against the world: Are players embracing a 'siege mentality'?**\
-`Gareth Southgate's squad look to have lost that sense of positivity seen in previous tournaments. It could help them go one better`\
-https://nytimes.com/athletic/5606219/2024/07/04/england-euro-2024-criticism-reaction/
-
-**Ronaldo still has lots to offer Portugal - but only as a back-up to finish games off**\
-`Ronaldo has always been melodramatic and the ringmaster of a circus, but his behaviour feels more extreme of late - Martinez should drop him`\
-https://nytimes.com/athletic/5612744/2024/07/04/portugal-ronaldo-talisman-dropped/
 
