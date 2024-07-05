@@ -1,3 +1,19 @@
+**Moped-Riding Thieves Frighten Diners at Upscale N.Y.C. Restaurants**\
+`In Williamsburg and Manhattan, robbers have stolen watches worth tens of thousands of dollars before fleeing on motorbikes.`\
+https://nytimes.com/2024/07/05/nyregion/nyc-restaurant-robberies.html
+
+**How a New York Democrat Lost a Progressive Ballot Line to a G.O.P. Proxy**\
+`A mysterious former Republican’s victory over Mondaire Jones in a third-party primary could help shape one of the nation’s most important congressional swing races this fall.`\
+https://nytimes.com/2024/07/05/nyregion/mondaire-jones-bowman-wfp.html
+
+**On ‘Hard Fork,’ a Hard Look at the Future of Technology**\
+`Kevin Roose and Casey Newton reflect on the success of their podcast and look toward what’s next.`\
+https://nytimes.com/2024/07/05/insider/hard-fork-podcast.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/05/crosswords/spelling-bee-forum.html
+
 **Ecuador part ways with Felix Sanchez following Copa America exit**\
 `Ecuador has parted ways with coach Felix Sanchez following their exit from the 2024 Copa America.`\
 https://nytimes.com/athletic/5617713/2024/07/05/felix-sanchez-ecuador-sacked-copa-america/
