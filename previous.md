@@ -1,3 +1,19 @@
+**Cristiano Ronaldo and Kylian Mbappe: The king, his heir and the changing of the guard**\
+`The young Mbappe idolised Ronaldo, but now Real Madrid's new signing confronts the club's record scorer for a semi-final place at Euro 2024`\
+https://nytimes.com/athletic/5617026/2024/07/05/mbappe-ronaldo-france-portugal-euro2024/
+
+**'The game is more fluid with him on the pitch' - why footballers love playing with Gundogan**\
+`Former team-mates of the Germany captain explain why he is so good, the secrets behind his brilliance and why it was a joy to play with him`\
+https://nytimes.com/athletic/5617030/2024/07/05/why-footballers-love-playing-with-ilkay-gundogan/
+
+**Tactical trends, clashes of style, golden Guler - analysing the last eight at Euro 2024**\
+`Will France find their funk, can England pass forward, a Spain-Germany clash to savour…and Arda Guler - the quarter-finals will deliver`\
+https://nytimes.com/athletic/5613577/2024/07/05/euro-2024-quarter-finals-strengths-weaknesses/
+
+**'It felt like a bomb went off in my brain' - TV presenter Currie on his life-changing illness**\
+`Darrell Currie was a regular in BT Sport's Champions League coverage, until the moment his life changed forever`\
+https://nytimes.com/athletic/5599998/2024/07/05/darrell-curries-life-changing-illness-it-felt-like-a-bomb-went-off-in-my-brain/
+
 **Aymeric Laporte interview: 'I am not surprised we were ignored at the start'**\
 `Laporte is in a confident mood ahead of Spain's Euro 2024 quarter-final against Germany. But he faced doubts this summer...`\
 https://nytimes.com/athletic/5616140/2024/07/05/spain-aymeric-laporte-euro-2024/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5584473/2024/07/05/vitinha-portugal-euros-wolves-ps
 **Iran’s Presidential Candidates: Who Are They?**\
 `Two candidates face off in Iran’s runoff election on Friday after neither secured enough votes to win in the first round. Here’s what you need to know about their positions and background.`\
 https://nytimes.com/2024/07/05/world/middleeast/irans-presidential-candidates-who-are-they.html
-
-**Can the Labour Party Bring Back Britain’s Green Groove?**\
-`The new government, widely expected to be led by Labour, has pledged to fast-track a green energy transition. It will face big challenges.`\
-https://nytimes.com/2024/07/05/climate/labor-starmer-election-climate.html
-
-**Iran Voters Face Stark Choice in Competitive Presidential Runoff**\
-`For the first time in years, the outcome is difficult to predict, and could be decided by how many people end their boycotts and participate in the vote.`\
-https://nytimes.com/2024/07/05/world/middleeast/iran-election-runoff-president-winner.html
-
-**Friday's MLB projections: Best and worst starting pitchers, weather and more**\
-`Projections for Friday's MLB games with value picks, best bets, pitcher props, home run trends, weather and more.`\
-https://nytimes.com/athletic/5615249/2024/07/05/mlb-odds-predictions-best-bets-july-5/
-
-**Political Unrest Worldwide Is Fueled by High Prices and Huge Debts**\
-`Economic turmoil is spreading across the globe, and the response has been protests, attempted coups and elections of far-right politicians.`\
-https://nytimes.com/2024/07/05/business/global-economy-debt-inequality.html
 
