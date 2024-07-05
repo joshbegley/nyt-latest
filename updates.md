@@ -1,3 +1,7 @@
+**A Hollow Labor Victory Brings Change to Britain**\
+`A commanding supermajority derived from only 20 percent support looks like a recipe for a backlash.`\
+https://nytimes.com/live/2024/07/02/opinion/thepoint/labor-election-uk
+
 **Oilers trade Ryan McLeod to Sabres**\
 `Edmonton Oilers acquire Ryan McLeod for prospect Matt Savoie.`\
 https://nytimes.com/athletic/5619075/2024/07/05/oilers-trade-ryan-mcleod-to-sabres-what-it-means-for-both-teams/
