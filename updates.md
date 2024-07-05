@@ -1,3 +1,11 @@
+**Miedema joins Man City following Arsenal exit**\
+`Manchester City have completed the signing of the Women&#8217;s Super League&#8217;s all-time top scorer Vivianne Miedema on a free transfer from Arsenal.`\
+https://nytimes.com/athletic/5616540/2024/07/05/vivianne-miedema-manchester-city-transfer/
+
+**Australian Author’s Novel-Turned-Film Goes Global**\
+`Lily Brett’s delight is bittersweet as “Too Many Men,” her story about traveling with her father, becomes a movie he did not live to see.`\
+https://nytimes.com/2024/07/05/world/australia/novel-to-film-treasure.html
+
 **Liz Truss Caps List of High-Profile Conservative Seat Losses**\
 `Ms. Truss, who was forced out as prime minister after 49 chaotic days, lost by 630 votes in a district she previously held by more than 26,000.`\
 https://nytimes.com/2024/07/05/world/europe/liz-truss-conservative-seat-losses.html

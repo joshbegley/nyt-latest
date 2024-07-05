@@ -1,3 +1,11 @@
+**Miedema joins Man City following Arsenal exit**\
+`Manchester City have completed the signing of the Women&#8217;s Super League&#8217;s all-time top scorer Vivianne Miedema on a free transfer from Arsenal.`\
+https://nytimes.com/athletic/5616540/2024/07/05/vivianne-miedema-manchester-city-transfer/
+
+**Australian Author’s Novel-Turned-Film Goes Global**\
+`Lily Brett’s delight is bittersweet as “Too Many Men,” her story about traveling with her father, becomes a movie he did not live to see.`\
+https://nytimes.com/2024/07/05/world/australia/novel-to-film-treasure.html
+
 **Liz Truss Caps List of High-Profile Conservative Seat Losses**\
 `Ms. Truss, who was forced out as prime minister after 49 chaotic days, lost by 630 votes in a district she previously held by more than 26,000.`\
 https://nytimes.com/2024/07/05/world/europe/liz-truss-conservative-seat-losses.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/05/crosswords/spelling-bee-forum.html
 **Ecuador part ways with Felix Sanchez following Copa America exit**\
 `Ecuador has parted ways with coach Felix Sanchez following their exit from the 2024 Copa America.`\
 https://nytimes.com/athletic/5617713/2024/07/05/felix-sanchez-ecuador-sacked-copa-america/
-
-**Man Who Stabbed South Korea’s Opposition Leader Is Sentenced to 15 Years**\
-`The attack on Lee Jae-myung in January raised alarms about South Korea’s political polarization. His assailant was convicted of attempted murder.`\
-https://nytimes.com/2024/07/05/world/asia/stabbed-south-korea-lee-jae-myung.html
-
-**Series win lets Giants, Logan Webb envision a bright future: 'Heck yeah, I’m excited'**\
-`Finally, the Giants have the look of a team capable of sustaining momentum.`\
-https://nytimes.com/athletic/5617680/2024/07/05/logan-webb-giants-series-win-atlanta/
 
