@@ -1,3 +1,11 @@
+**Mark Zuckerberg’s Surf Video Gets Lots of Likes (but Not From Elon Musk)**\
+`In a sequel to his much-mocked hydrofoil video, the Meta founder celebrates the Fourth of July in his own particular way.`\
+https://nytimes.com/2024/07/05/style/mark-zuckerbergs-surf-video-gets-lots-of-likes-but-not-from-elon-musk.html
+
+**Burnley appoint Parker as new head coach**\
+`Burnley have appointed Scott Parker as the club&#8217;s new head coach.`\
+https://nytimes.com/athletic/5616015/2024/07/05/burnley-scott-parker-confirmed/
+
 **Is It OK to Get Food Stamps When You’re Just Pursuing Your Passion?**\
 `The magazine’s Ethicist columnist on whether a struggling artist with a personal safety net should receive government assistance.`\
 https://nytimes.com/2024/07/05/magazine/artist-food-stamps-ethics.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5618187/2024/07/05/leicester-transfers-bobby-decord
 **How 4-star DB JaDon Blair impacts Notre Dame's 2025 class**\
 `JaDon Blair, from Winston-Salem, N.C., committed to the Irish on Friday over Penn State, Michigan, Florida State and South Carolina.`\
 https://nytimes.com/athletic/5618369/2024/07/05/jadon-blair-notre-dame-football-commitment/
-
-**Prime Tire: The F1 driver's market waits on Sainz; Readers react to Verstappen versus Norris**\
-`Plus: The Bearman arrives at Haas.`\
-https://nytimes.com/athletic/5617371/2024/07/05/f1-carlos-sainz-driver-market-verstappen-norris/
-
-**Southgate insists no easy draw for England: 'A classic example of entitlement'**\
-`Gareth Southgate has hit back at any suggestions that England have a favourable draw at the European Championship and called such talk as a &#8220;classic example of entitlement&#8221; the country has.`\
-https://nytimes.com/athletic/5618851/2024/07/05/england-swizerland-gareth-southgate/
 
