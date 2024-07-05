@@ -1,3 +1,11 @@
+**Daichi Kamada to Crystal Palace: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Daichi Kamada's move to Crystal Palace`\
+https://nytimes.com/athletic/5614837/2024/07/05/daichi-kamada-crystal-palace-transfer-ratings/
+
+**Ben Johnson to Ipswich: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Ben Johnson's move to Ipswich`\
+https://nytimes.com/athletic/5607665/2024/07/05/ben-johnson-ipswich-transfer-ratings/
+
 **Braves' surging Max Fried credits advice from veterans Chris Sale, Charlie Morton**\
 `Fried will tap into wisdom from his mentors when he faces the Phillies on Friday in an unusually important July series. `\
 https://nytimes.com/athletic/5617590/2024/07/05/braves-max-fried-chris-sale-charlie-morton/
