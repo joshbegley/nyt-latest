@@ -1,3 +1,15 @@
+**Judge Rules Against Release of Covenant School Shooter’s Writings**\
+`Whether to publish the voluminous paper trail left behind by the assailant was one of the most contested issues that arose from the attack.`\
+https://nytimes.com/2024/07/05/us/covenant-school-shooter-writings.html
+
+**The stakes are high for Biden. Here’s the latest.**\
+`By Nicholas Nehamas`\
+https://nytimes.com/live/2024/07/05/us/biden-trump-2024-election/the-stakes-are-high-for-biden-heres-the-latest
+
+**Election Live Updates: Embattled Biden Hits Trail and Sits for Crucial Interview**\
+`President Biden on Friday will deliver a speech in Wisconsin and sit for a major network interview, part of a weekend lineup of events that could be make-or-break for his campaign.`\
+https://nytimes.com/live/2024/07/05/us/biden-trump-2024-election
+
 **Corrections: July 5, 2024**\
 `Corrections that appeared in print on Friday, July 5, 2024.`\
 https://nytimes.com/2024/07/05/pageoneplus/corrections-july-5-2024.html
