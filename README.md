@@ -1,3 +1,7 @@
+**New Factories and Jobs Are Not Enough to Stem France’s Far Right Surge**\
+`President Emmanuel Macron’s promise of re-industrialization in northern France has helped stimulate the economy, but “people feel defeated and angry.”`\
+https://nytimes.com/2024/07/05/business/france-election-economy.html
+
 **Chelsea set to appoint Van der Kraan from Man City**\
 `Chelsea are set to appoint Glenn van der Kraan from Manchester City as a prominent figure in their restructured academy set-up following the shock departures of Neil Bath and Jim Fraser.`\
 https://nytimes.com/athletic/5617740/2024/07/05/glenn-van-der-kraan-chelsea-manchester-city/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/05/briefing/news-quiz-trump-immunity.htm
 **6 New Paperbacks to Read This Week**\
 `Recommended reading from the Book Review, including titles by Jhumpa Lahiri, Kerry Howley, Djuna and more. `\
 https://nytimes.com/interactive/2024/07/05/books/review/new-paperbacks-howley.html
-
-**One by One, the Reasons to Stick With Biden Are Failing**\
-`A memo to the faithful: It’s time to let go.`\
-https://nytimes.com/live/2024/07/02/opinion/thepoint/one-by-one-the-reasons-to-stick-with-biden-are-failing
 
