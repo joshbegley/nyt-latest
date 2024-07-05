@@ -1,3 +1,7 @@
+**Bellingham given suspended one-match ban for Slovakia gesture**\
+`Jude Bellingham has been given a suspended one-game ban following a UEFA investigation into the lewd gesture he appeared to make towards the Slovakia bench in the European Championship last 16.`\
+https://nytimes.com/athletic/5609166/2024/07/05/jude-bellingham-england-ban-suspension/
+
 **Viktor Orban Travels to Russia for Meeting With Vladimir Putin**\
 `Days after a trip to Ukraine, the Hungarian leader arrived in Moscow for a visit that has dismayed E.U. officials, who have made clear that he is not there on behalf of the bloc.`\
 https://nytimes.com/2024/07/05/world/europe/orban-putin-meeting-russia-hungary.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5612669/2024/07/05/big-12-recruiting-update-officia
 **Easton Cowan is ready to get a look in the NHL with the Maple Leafs**\
 `Easton Cowan has shown he’s ready for the next step in his career.`\
 https://nytimes.com/athletic/5617058/2024/07/05/easton-cowan-maple-leafs/
-
-**A U.K. Election Landslide, and Hurricane Beryl Bears Down on Mexico**\
-`Plus, the F.B.I. wades into an Olympics swimming scandal.`\
-https://nytimes.com/2024/07/05/podcasts/a-uk-election-landslide-and-hurricane-beryl-bears-down-on-mexico.html
 

@@ -1,3 +1,19 @@
+**Viktor Orban Travels to Russia for Meeting With Vladimir Putin**\
+`Days after a trip to Ukraine, the Hungarian leader arrived in Moscow for a visit that has dismayed E.U. officials, who have made clear that he is not there on behalf of the bloc.`\
+https://nytimes.com/2024/07/05/world/europe/orban-putin-meeting-russia-hungary.html
+
+**Independence Days**\
+`How do people celebrate around the world?`\
+https://nytimes.com/2024/07/05/briefing/independence-days.html
+
+**Labour Loses Votes in Muslim Areas Over Its Gaza Policy**\
+`Many British Muslims and other voters have demanded that party leaders more vocally condemn the rising death toll and deepening humanitarian crisis in Gaza.`\
+https://nytimes.com/2024/07/05/world/europe/uk-labour-party-israel-gaza-war-starmer.html
+
+**Why Canada made the Copa America quarterfinals - and the U.S. and Mexico didn't**\
+`New coach Marsch has got Canada fired up and his team are using the goodwill behind them as a positive rather than feeling the pressure`\
+https://nytimes.com/athletic/5616732/2024/07/05/canada-jesse-marsch-usmnt-mexico/
+
 **USMNT mailbag: Your questions answered after Copa America exit**\
 `Paul Tenorio answers readers' questions about the USMNT following its Copa America exit`\
 https://nytimes.com/athletic/5617464/2024/07/05/usmnt-berhalter-questions-world-cup-2026/
