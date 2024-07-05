@@ -1,3 +1,7 @@
+**‘My Government Will Serve You,’ Starmer Says**\
+`During Keir Starmer’s first speech as the British prime minister, he said that the country had voted for a “national renewal and a return of politics to public service.”`\
+https://nytimes.com/video/world/europe/100000009556595/uk-election-keir-starmer.html
+
 **The Composer Who Changed Opera With ‘a Beautiful Simplicity’**\
 `In the mid-1700s, Christoph Willibald Gluck overthrew the musical excesses around him. A marathon double bill in France shows the vibrancy of his vision.`\
 https://nytimes.com/2024/07/05/arts/music/gluck-iphigenie-operas-aix.html

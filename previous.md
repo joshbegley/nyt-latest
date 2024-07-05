@@ -1,3 +1,7 @@
+**‘My Government Will Serve You,’ Starmer Says**\
+`During Keir Starmer’s first speech as the British prime minister, he said that the country had voted for a “national renewal and a return of politics to public service.”`\
+https://nytimes.com/video/world/europe/100000009556595/uk-election-keir-starmer.html
+
 **The Composer Who Changed Opera With ‘a Beautiful Simplicity’**\
 `In the mid-1700s, Christoph Willibald Gluck overthrew the musical excesses around him. A marathon double bill in France shows the vibrancy of his vision.`\
 https://nytimes.com/2024/07/05/arts/music/gluck-iphigenie-operas-aix.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5617520/2024/07/05/canucks-offseason-mailbag-thomas
 **Sky apologises to Forest for Neville remarks after Everton loss**\
 `UK broadcaster Sky Sports has apologised to Nottingham Forest for “any offence caused” by comments made by Gary Neville about the club.`\
 https://nytimes.com/athletic/5617989/2024/07/05/sky-forest-neville-apology/
-
-**The Athletic FC: 'Animal' Martinez saves Messi; an alternative Euros guide to last eight**\
-`In The Athletic FC today: Messi misses a penalty but Martinez bails him out. Plus: An alternative Euro 2024 quarter-final preview...`\
-https://nytimes.com/athletic/5617779/2024/07/05/the-athletic-fc-martinez-messi-penalties/
 
