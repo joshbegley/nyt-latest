@@ -1,3 +1,11 @@
+**How do F1 drivers race against Max Verstappen? 'It's tough and on the limit’**\
+`Stay informed on all the biggest stories in Formula One.`\
+https://nytimes.com/athletic/5617009/2024/07/05/f1-max-verstappen-racing-style-lando-norris/
+
+**Don’t Doubt NATO. It Saved My People.**\
+`NATO’s intervention against Serbia’s campaign against Kosovo set the tiny country up for independence.`\
+https://nytimes.com/2024/07/05/opinion/kosovo-nato-independence-democracy-serbia.html
+
 **Daichi Kamada to Crystal Palace: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Daichi Kamada's move to Crystal Palace`\
 https://nytimes.com/athletic/5614837/2024/07/05/daichi-kamada-crystal-palace-transfer-ratings/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5617030/2024/07/05/why-footballers-love-playing-wit
 **Tactical trends, clashes of style, golden Guler - analysing the last eight at Euro 2024**\
 `Will France find their funk, can England pass forward, a Spain-Germany clash to savour…and Arda Guler - the quarter-finals will deliver`\
 https://nytimes.com/athletic/5613577/2024/07/05/euro-2024-quarter-finals-strengths-weaknesses/
-
-**'It felt like a bomb went off in my brain' - TV presenter Currie on his life-changing illness**\
-`Darrell Currie was a regular in BT Sport's Champions League coverage, until the moment his life changed forever`\
-https://nytimes.com/athletic/5599998/2024/07/05/darrell-curries-life-changing-illness-it-felt-like-a-bomb-went-off-in-my-brain/
-
-**Aymeric Laporte interview: 'I am not surprised we were ignored at the start'**\
-`Laporte is in a confident mood ahead of Spain's Euro 2024 quarter-final against Germany. But he faced doubts this summer...`\
-https://nytimes.com/athletic/5616140/2024/07/05/spain-aymeric-laporte-euro-2024/
 

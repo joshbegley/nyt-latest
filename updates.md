@@ -1,3 +1,11 @@
+**How do F1 drivers race against Max Verstappen? 'It's tough and on the limit’**\
+`Stay informed on all the biggest stories in Formula One.`\
+https://nytimes.com/athletic/5617009/2024/07/05/f1-max-verstappen-racing-style-lando-norris/
+
+**Don’t Doubt NATO. It Saved My People.**\
+`NATO’s intervention against Serbia’s campaign against Kosovo set the tiny country up for independence.`\
+https://nytimes.com/2024/07/05/opinion/kosovo-nato-independence-democracy-serbia.html
+
 **Daichi Kamada to Crystal Palace: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Daichi Kamada's move to Crystal Palace`\
 https://nytimes.com/athletic/5614837/2024/07/05/daichi-kamada-crystal-palace-transfer-ratings/
