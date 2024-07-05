@@ -1,3 +1,11 @@
+**USMNT mailbag: Your questions answered after Copa America exit**\
+`Paul Tenorio answers readers' questions about the USMNT following its Copa America exit`\
+https://nytimes.com/athletic/5617464/2024/07/05/usmnt-berhalter-questions-world-cup-2026/
+
+**Japan Finally Phases Out Floppy Disks**\
+`One of the world’s most technologically advanced nations has held on to some of the most outmoded devices.`\
+https://nytimes.com/2024/07/05/world/asia/japan-floppy-disks.html
+
 **U.K. Election Turnout Set to Be Lowest in Over 20 Years**\
 `Voter participation was estimated at 60 percent — below that in every recent election except 2001, another widely anticipated landslide.`\
 https://nytimes.com/2024/07/05/world/europe/uk-election-turnout.html
@@ -24,17 +32,9 @@ https://nytimes.com/athletic/5615753/2024/07/05/venezuela-copa-america-baseball-
 
 **How Bad Is Drinking for You, Really?**\
 `Alcohol is riskier than previously thought, but weighing the trade-offs of health risks can be deeply personal.`\
-https://nytimes.com/2024/07/05/podcasts/the-daily/alcohol-healt-risks.html
+https://nytimes.com/2024/07/05/podcasts/the-daily/alcohol-health-risks.html
 
 **Three trade takeaways as Cubs may be shifting into sell mode**\
 `The trade rumors have returned for Cody Bellinger. What might the Cubs get back and why is his contract a possible impediment?`\
 https://nytimes.com/athletic/5617250/2024/07/05/chicago-cubs-trade-deadline-cody-bellinger/
-
-**Oilers GM candidates: 7 possible options to replace Ken Holland**\
-`Now that the Oilers have gotten through the opening of free agency, it's time to secure a new general manager.`\
-https://nytimes.com/athletic/5617414/2024/07/05/edmonton-oilers-gm-candidates-jeff-jackson/
-
-**Sitting on a cooler box (or bucket), idolised by Pep Guardiola: Who is Bielsa?**\
-`Marcelo Bielsa will lead Uruguay into their match against the USMNT in the Copa America — but who is he?`\
-https://nytimes.com/athletic/5600640/2024/07/05/bielsa-uruguay-copa-america-brazil/
 

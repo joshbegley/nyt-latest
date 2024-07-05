@@ -1,3 +1,15 @@
+**USMNT mailbag: Your questions answered after Copa America exit**\
+`Paul Tenorio answers readers' questions about the USMNT following its Copa America exit`\
+https://nytimes.com/athletic/5617464/2024/07/05/usmnt-berhalter-questions-world-cup-2026/
+
+**Japan Finally Phases Out Floppy Disks**\
+`One of the world’s most technologically advanced nations has held on to some of the most outmoded devices.`\
+https://nytimes.com/2024/07/05/world/asia/japan-floppy-disks.html
+
+**How Bad Is Drinking for You, Really?**\
+`Alcohol is riskier than previously thought, but weighing the trade-offs of health risks can be deeply personal.`\
+https://nytimes.com/2024/07/05/podcasts/the-daily/alcohol-health-risks.html
+
 **U.K. Election Turnout Set to Be Lowest in Over 20 Years**\
 `Voter participation was estimated at 60 percent — below that in every recent election except 2001, another widely anticipated landslide.`\
 https://nytimes.com/2024/07/05/world/europe/uk-election-turnout.html
