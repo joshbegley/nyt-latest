@@ -1,3 +1,7 @@
+**Kansas Supreme Court Rejects Republican-Backed Abortion Regulations**\
+`The rulings were the latest blow for abortion opponents in Kansas, where abortion protections in the State Constitution have vexed Republicans for years.`\
+https://nytimes.com/2024/07/05/us/kansas-supreme-court-abortion.html
+
 **France’s Left-Wing New Popular Front Scored Big in Sunday’s Vote. Who Are They?**\
 `Parties on the left were so fractious, they broke up their alliance months ago, but the possibility of a government controlled by the far right drew them back together.`\
 https://nytimes.com/2024/07/05/world/europe/france-left-new-popular-front.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/05/world/europe/reform-uks-success-is-latest-sign-of
 **Sabres development camp takeaways: Thoughts on Konsta Helenius, Brodie Ziemer and more**\
 `What we learned about some of Buffalo’s prospects this week at the Sabres’ annual development camp.`\
 https://nytimes.com/athletic/5618302/2024/07/05/sabres-development-camp-konsta-helenius/
-
-**Juventus complete signing of goalkeeper Di Gregorio from Monza**\
-`Juventus have completed the signing of goalkeeper Michele Di Gregorio from Monza.`\
-https://nytimes.com/athletic/5618085/2024/07/05/michele-di-gregorio-juventus-transfer/
 
