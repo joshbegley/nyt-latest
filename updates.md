@@ -1,3 +1,27 @@
+**Hakan Calhanoglu thinks he is the world's best in his position - he may well be right**\
+`Turkey midfielder and captain Calhanoglu has led his side to the Euro 2024 quarter-finals in impressive fashion`\
+https://nytimes.com/athletic/5616138/2024/07/05/calhanoglu-turkey-euro-2024/
+
+**Vitinha and his curious journey from Wolves bench player to Portugal's midfield maestro**\
+`The playmaker scored a solitary goal in a loan spell at Wolves - away at non-League Chorley. He is now running the show for PSG and Portugal`\
+https://nytimes.com/athletic/5584473/2024/07/05/vitinha-portugal-euros-wolves-psg/
+
+**Iran’s Presidential Candidates: Who Are They?**\
+`Two candidates face off in Iran’s runoff election on Friday after neither secured enough votes to win in the first round. Here’s what you need to know about their positions and background.`\
+https://nytimes.com/2024/07/05/world/middleeast/irans-presidential-candidates-who-are-they.html
+
+**Can the Labour Party Bring Back Britain’s Green Groove?**\
+`The new government, widely expected to be led by Labour, has pledged to fast-track a green energy transition. It will face big challenges.`\
+https://nytimes.com/2024/07/05/climate/labor-starmer-election-climate.html
+
+**Iran Voters Face Stark Choice in Competitive Presidential Runoff**\
+`For the first time in years, the outcome is difficult to predict, and could be decided by how many people end their boycotts and participate in the vote.`\
+https://nytimes.com/2024/07/05/world/middleeast/iran-election-runoff-president-winner.html
+
+**Friday's MLB projections: Best and worst starting pitchers, weather and more**\
+`Projections for Friday's MLB games with value picks, best bets, pitcher props, home run trends, weather and more.`\
+https://nytimes.com/athletic/5615249/2024/07/05/mlb-odds-predictions-best-bets-july-5/
+
 **Political Unrest Worldwide Is Fueled by High Prices and Huge Debts**\
 `Economic turmoil is spreading across the globe, and the response has been protests, attempted coups and elections of far-right politicians.`\
 https://nytimes.com/2024/07/05/business/global-economy-debt-inequality.html
