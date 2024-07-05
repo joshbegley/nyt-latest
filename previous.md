@@ -1,3 +1,7 @@
+**Slot focused on developing talent at Liverpool over transfers**\
+`Liverpool&#8217;s new head coach Arne Slot insists he is focused on developing the talent he has inherited at the club rather than transfer business.`\
+https://nytimes.com/athletic/5617850/2024/07/05/arne-slot-liverpool-transfers/
+
 **Moderates Win a Round in Britain — But a Larger Battle Against Extremism Looms**\
 `It is a little early to celebrate this election as a triumph for the center.`\
 https://nytimes.com/2024/07/05/opinion/uk-election-labour-conservatives.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5613140/2024/07/05/edmonton-oilers-top-20-prospects
 **The Athletic’s Friday football quiz question #11**\
 `Every week, we'll serve up a poser from our vault of football conundrums. It won't be easy (unless you're really good…)`\
 https://nytimes.com/athletic/5616669/2024/07/05/the-athletic-friday-football-quiz-question-11/
-
-**5 Children’s Movies to Stream Now**\
-`This month’s picks include a superhero adventure, a dark fantasy tale and films based on beloved television series.`\
-https://nytimes.com/2024/07/05/movies/kids-movies-streaming.html
 
