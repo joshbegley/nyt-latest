@@ -1,3 +1,7 @@
+**Wisconsin Supreme Court Says Ballot Drop Boxes Can Again Be Used**\
+`The decision by the court’s liberal majority, delivered four months before the November election, reverses a ruling by conservative jurists two years ago.`\
+https://nytimes.com/2024/07/05/us/wisconsin-supreme-court-absentee-ballots.html
+
 **It’s Still Barbie’s World**\
 `A new exhibition reminds us that while the famous doll can now do any job, her greatest power is selling stuff — to children and adults alike.`\
 https://nytimes.com/2024/07/05/arts/design/its-still-barbies-world.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/05/us/covenant-school-shooter-writings.html
 **The stakes are high for Biden. Here’s the latest.**\
 `By Nicholas Nehamas`\
 https://nytimes.com/live/2024/07/05/us/biden-trump-2024-election/the-stakes-are-high-for-biden-heres-the-latest
-
-**Election Live Updates: Embattled Biden Hits Trail and Sits for Crucial Interview**\
-`President Biden on Friday will deliver a speech in Wisconsin and sit for a major network interview, part of a weekend lineup of events that could be make-or-break for his campaign.`\
-https://nytimes.com/live/2024/07/05/us/biden-trump-2024-election
 
