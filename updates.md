@@ -1,3 +1,7 @@
+**Does America Need a President?**\
+`Why subordinates or the “deep state” can’t substitute for a vacuum at the top.`\
+https://nytimes.com/2024/07/05/opinion/biden-president-america.html
+
 **Kansas Supreme Court Rejects Republican-Backed Abortion Regulations**\
 `The rulings were the latest blow for abortion opponents in Kansas, where abortion protections in the State Constitution have vexed Republicans for years.`\
 https://nytimes.com/2024/07/05/us/kansas-supreme-court-abortion.html
