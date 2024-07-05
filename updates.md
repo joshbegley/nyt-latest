@@ -1,3 +1,7 @@
+**Bellingham given suspended one-match ban for Slovakia gesture**\
+`Jude Bellingham has been given a suspended one-game ban following a UEFA investigation into the lewd gesture he appeared to make towards the Slovakia bench in the European Championship last 16.`\
+https://nytimes.com/athletic/5609166/2024/07/05/jude-bellingham-england-ban-suspension/
+
 **Viktor Orban Travels to Russia for Meeting With Vladimir Putin**\
 `Days after a trip to Ukraine, the Hungarian leader arrived in Moscow for a visit that has dismayed E.U. officials, who have made clear that he is not there on behalf of the bloc.`\
 https://nytimes.com/2024/07/05/world/europe/orban-putin-meeting-russia-hungary.html
