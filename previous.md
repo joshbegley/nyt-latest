@@ -1,3 +1,7 @@
+**Series win lets Giants, Logan Webb envision a bright future: 'Heck yeah, I’m excited'**\
+`Finally, the Giants have the look of a team capable of sustaining momentum.`\
+https://nytimes.com/athletic/5617680/2024/07/05/logan-webb-giants-series-win-atlanta/
+
 **The end can take you to dark places - there is a beauty in Ronaldo raging against it**\
 `Alan Shearer knows first-hand how troubling it can be to know the end is coming, for your ego and your body to be fighting each other`\
 https://nytimes.com/athletic/5616686/2024/07/05/cristiano-ronaldo-the-end/
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/5617009/2024/07/05/f1-max-verstappen-racing-style-l
 `NATO’s intervention against Serbia’s campaign against Kosovo set the tiny country up for independence.`\
 https://nytimes.com/2024/07/05/opinion/kosovo-nato-independence-democracy-serbia.html
 
+**Why West Ham want Max Kilman - and why Wolves are ready to let him go**\
+`The centre-half is close to swapping Molineux for the London Stadium as Julen Lopetegui seeks to strengthen his defensive ranks`\
+https://nytimes.com/athletic/5616433/2024/07/05/kilman-west-ham-wolves-lopetegui/
+
 **Daichi Kamada to Crystal Palace: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Daichi Kamada's move to Crystal Palace`\
 https://nytimes.com/athletic/5614837/2024/07/05/daichi-kamada-crystal-palace-transfer-ratings/
-
-**Ben Johnson to Ipswich: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate Ben Johnson's move to Ipswich`\
-https://nytimes.com/athletic/5607665/2024/07/05/ben-johnson-ipswich-transfer-ratings/
-
-**Braves' surging Max Fried credits advice from veterans Chris Sale, Charlie Morton**\
-`Fried will tap into wisdom from his mentors when he faces the Phillies on Friday in an unusually important July series. `\
-https://nytimes.com/athletic/5617590/2024/07/05/braves-max-fried-chris-sale-charlie-morton/
 

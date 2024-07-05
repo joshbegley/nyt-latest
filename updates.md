@@ -1,3 +1,11 @@
+**Series win lets Giants, Logan Webb envision a bright future: 'Heck yeah, I’m excited'**\
+`Finally, the Giants have the look of a team capable of sustaining momentum.`\
+https://nytimes.com/athletic/5617680/2024/07/05/logan-webb-giants-series-win-atlanta/
+
+**Why West Ham want Max Kilman - and why Wolves are ready to let him go**\
+`The centre-half is close to swapping Molineux for the London Stadium as Julen Lopetegui seeks to strengthen his defensive ranks`\
+https://nytimes.com/athletic/5616433/2024/07/05/kilman-west-ham-wolves-lopetegui/
+
 **The end can take you to dark places - there is a beauty in Ronaldo raging against it**\
 `Alan Shearer knows first-hand how troubling it can be to know the end is coming, for your ego and your body to be fighting each other`\
 https://nytimes.com/athletic/5616686/2024/07/05/cristiano-ronaldo-the-end/
