@@ -1,3 +1,7 @@
+**The Briefing: Spain 2-1 Germany - Mikel Merino's late, late winner dumps out Euro 2024 hosts**\
+`Spain produced a brilliant late flourish to beat Germany 2-1 in the Euro 2024 quarter-finals`\
+https://nytimes.com/athletic/5614353/2024/07/05/spain-germany-euro-2024-mikel-merino/
+
 **Andrew Tate Is Allowed to Leave Romania in Latest Court Decision**\
 `The court in Bucharest ruled that Mr. Tate and his brother, who are facing human trafficking and rape charges, must remain in the European Union as they await trial, his lawyer said.`\
 https://nytimes.com/2024/07/05/world/europe/andrew-tate-romania-human-trafficking-trial.html
