@@ -1,3 +1,7 @@
+**Ex-Villa loanee Zaniolo joins Atalanta on loan from Galatasaray**\
+`Nicolo Zaniolo has joined Atalanta on a season-long loan from Galatasaray.`\
+https://nytimes.com/athletic/5618426/2024/07/05/nicolo-zaniolo-atalanta-transfer/
+
 **Transcript: Ezra Klein Interviews Elaina Plott Calabro**\
 `The July 5, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/07/05/podcasts/transcript-ezra-klein-interviews-elaina-plott-calabro.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5618110/2024/07/05/chelsea-appoint-seyi-olofinjana/
 **Nancy Azara, Sculptor Who Created a Haven for Feminist Artists, Dies at 84**\
 `She helped establish the New York Feminist Art Institute. In her own work — monumental pieces carved from found lumber — she evoked ancient feminine imagery.`\
 https://nytimes.com/2024/07/05/arts/nancy-azara-dead.html
-
-**Samuel Eto'o fined after investigation into violating CAF's principles**\
-`Samuel Eto’o has been fined by Confederation Africaine de Football (CAF) after an investigation into alleged violation of the principles of ethics and integrity.`\
-https://nytimes.com/athletic/5617344/2024/07/05/samuel-etoo-fined-caf-investigation/
 
