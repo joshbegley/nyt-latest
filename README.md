@@ -1,3 +1,7 @@
+**Bellingham plays on the edge - but must stay the right side of the emotional precipice**\
+`The England and Real Madrid midfielder has escaped a ban for his Slovakia celebration - he has to stay the right side of the line`\
+https://nytimes.com/athletic/5618162/2024/07/05/england-bellingham-edge-rooney-beckham-gascoigne/
+
 **Xhaka fit to face England after injury scare**\
 `Granit Xhaka is fit and will play for Switzerland against England in their Euro 2024 quarter-final.`\
 https://nytimes.com/athletic/5618518/2024/07/05/granit-xhaka-injury-england-switzerland/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/05/climate/hurricanes-power-outages.html
 **Can Democratic Leaders Actually Lead?**\
 `Party officials should avoid imitating Republicans in their loyalty to an unfit leader.`\
 https://nytimes.com/2024/07/02/opinion/democrats-loyalty-biden-trump.html
-
-**Resisting the Far Right at a Festival of French Theater**\
-`Tiago Rodrigues said the Avignon Festival, which he leads, would become “a festival of resistance,” juggling activism with the premiere of a new play.`\
-https://nytimes.com/2024/07/05/theater/tiago-rodrigues-avignon-hecube-pas-hecube.html
 

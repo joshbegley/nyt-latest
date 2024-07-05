@@ -1,3 +1,11 @@
+**Xhaka fit to face England after injury scare**\
+`Granit Xhaka is fit and will play for Switzerland against England in their Euro 2024 quarter-final.`\
+https://nytimes.com/athletic/5618518/2024/07/05/granit-xhaka-injury-england-switzerland/
+
+**The Bounce: Which NBA teams got better (or worse) so far this offseason?**\
+`Zach Harper catches you up on league-wide news.`\
+https://nytimes.com/athletic/5618050/2024/07/05/nba-free-agency-winners-clipped-the-bounce/
+
 **The Pressure on Biden to Drop Out**\
 `Calls for the president to withdraw from the race. Also: C.E.O.s and Trump; a Trump donor; antisemitism; Netanyahu and Congress; an H.I.V. medication.`\
 https://nytimes.com/2024/07/05/opinion/joe-biden-election-withdrawal.html
