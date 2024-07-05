@@ -1,3 +1,7 @@
+**The Reintroduction of Kamala Harris**\
+`Vice President Kamala Harris has spent the past year trying to quiet her doubters. Now, with President Biden’s candidacy on the line, Democrats are assessing whether she is up to being the nominee.`\
+https://nytimes.com/2024/07/05/us/politics/kamala-harris-biden.html
+
 **Organizers Say Abortion Access Is Headed to the Ballot in 3 More States**\
 `Arkansas is the third state this week where organizers said they had collected enough support for a petition to enshrine some abortion access in the State Constitution.`\
 https://nytimes.com/2024/07/05/us/politics/abortion-rights-ballot-measures.html
@@ -22,9 +26,9 @@ https://nytimes.com/athletic/5618085/2024/07/05/michele-di-gregorio-juventus-tra
 `The defending Wimbledon champion teetered on the precipice of disaster — until the tennis he knows best came alive in him when it mattered`\
 https://nytimes.com/athletic/5618405/2024/07/05/carlos-alcaraz-frances-tiafoe-wimbledon/
 
-**Count Binface and Elmo, both good losers, provided comic relief.**\
-`By Claire Moses`\
-https://nytimes.com/live/2024/07/04/world/uk-election-results/count-binface-and-elmo-both-good-losers-provided-comic-relief
+**Count Binface and Elmo Provided a Bit of Comic Relief in Britain’s Elections**\
+`As has long been the tradition in Britain, the elections included various joke candidates who often run against prominent politicians.`\
+https://nytimes.com/2024/07/04/world/europe/count-binface-and-elmo-both-good-losers-provided-comic-relief.html
 
 **Michael Tracy, Artist Who Helped Restore a Texas Border Town, Dies at 80**\
 `His baroque fusions of bright paint, wood and other detritus wowed the art world. But as his fame faded, he turned his attention to historic preservation.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/05/arts/michael-tracy-dies.html
 **Bellingham plays on the edge - but must stay the right side of the emotional precipice**\
 `The England and Real Madrid midfielder has escaped a ban for his Slovakia celebration - he has to stay the right side of the line`\
 https://nytimes.com/athletic/5618162/2024/07/05/england-bellingham-edge-rooney-beckham-gascoigne/
-
-**Xhaka fit to face England after injury scare**\
-`Granit Xhaka is fit and will play for Switzerland against England in their Euro 2024 quarter-final.`\
-https://nytimes.com/athletic/5618518/2024/07/05/granit-xhaka-injury-england-switzerland/
 

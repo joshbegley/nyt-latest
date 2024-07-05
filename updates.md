@@ -1,3 +1,11 @@
+**The Reintroduction of Kamala Harris**\
+`Vice President Kamala Harris has spent the past year trying to quiet her doubters. Now, with President Biden’s candidacy on the line, Democrats are assessing whether she is up to being the nominee.`\
+https://nytimes.com/2024/07/05/us/politics/kamala-harris-biden.html
+
+**Count Binface and Elmo Provided a Bit of Comic Relief in Britain’s Elections**\
+`As has long been the tradition in Britain, the elections included various joke candidates who often run against prominent politicians.`\
+https://nytimes.com/2024/07/04/world/europe/count-binface-and-elmo-both-good-losers-provided-comic-relief.html
+
 **Organizers Say Abortion Access Is Headed to the Ballot in 3 More States**\
 `Arkansas is the third state this week where organizers said they had collected enough support for a petition to enshrine some abortion access in the State Constitution.`\
 https://nytimes.com/2024/07/05/us/politics/abortion-rights-ballot-measures.html
