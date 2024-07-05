@@ -1,3 +1,7 @@
+**New Factories and Jobs Are Not Enough to Stem France’s Far Right Surge**\
+`President Emmanuel Macron’s promise of re-industrialization in northern France has helped stimulate the economy, but “people feel defeated and angry.”`\
+https://nytimes.com/2024/07/05/business/france-election-economy.html
+
 **Chelsea set to appoint Van der Kraan from Man City**\
 `Chelsea are set to appoint Glenn van der Kraan from Manchester City as a prominent figure in their restructured academy set-up following the shock departures of Neil Bath and Jim Fraser.`\
 https://nytimes.com/athletic/5617740/2024/07/05/glenn-van-der-kraan-chelsea-manchester-city/
