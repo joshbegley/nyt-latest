@@ -1,4 +1,4 @@
-**Argentina wins penalty shootout to reach semifinals, Messi misses from spot**\
+**Takeaways: Argentina wins penalty shootout to reach semifinals, Messi misses from spot**\
 `Highlights of the drama from Houston`\
 https://nytimes.com/athletic/5617511/2024/07/04/argentina-ecuador-penalties-semifinals-messi/
 
