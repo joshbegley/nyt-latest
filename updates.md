@@ -1,3 +1,7 @@
+**Oilers trade Ryan McLeod to Sabres**\
+`Edmonton Oilers acquire Ryan McLeod for prospect Matt Savoie.`\
+https://nytimes.com/athletic/5619075/2024/07/05/oilers-ryan-mcleod-sabres-trade/
+
 **Brighton complete signing of Wieffer from Feyenoord**\
 `Brighton &amp; Hove Albion have signed Netherlands international midfielder Mats Wieffer from Feyenoord.`\
 https://nytimes.com/athletic/5616350/2024/07/05/mats-wieffer-brighton-feyenoord/

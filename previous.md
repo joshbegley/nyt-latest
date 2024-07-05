@@ -20,7 +20,7 @@ https://nytimes.com/athletic/5614352/2024/07/05/portugal-france-euro-2024-result
 
 **Oilers trade Ryan McLeod to Sabres**\
 `Edmonton Oilers acquire Ryan McLeod for prospect Matt Savoie.`\
-https://nytimes.com/athletic/5619075/2024/07/05/oilers-trade-ryan-mcleod-to-sabres-what-it-means-for-both-teams/
+https://nytimes.com/athletic/5619075/2024/07/05/oilers-ryan-mcleod-sabres-trade/
 
 **Parker Meadows rejoins the Tigers, and they need everything he can give**\
 `By waiting until now to bring back the center fielder, the Tigers gained an extra year of team control.`\
