@@ -1,3 +1,7 @@
+**Spain's Morata out of Euro 2024 semi-final through suspension**\
+`Spain captain Alvaro Morata will miss his side’s European Championship semi-final through suspension.`\
+https://nytimes.com/athletic/5618641/2024/07/05/alvaro-morata-spain-suspended-euro-2024/
+
 **The Briefing: Spain 2-1 Germany - Mikel Merino's late, late winner dumps out Euro 2024 hosts**\
 `Spain produced a brilliant late flourish to beat Germany 2-1 in the Euro 2024 quarter-finals`\
 https://nytimes.com/athletic/5614353/2024/07/05/spain-germany-euro-2024-mikel-merino/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/05/opinion/biden-president-america.html
 **Kansas Supreme Court Rejects Republican-Backed Abortion Regulations**\
 `The rulings were the latest blow for abortion opponents in Kansas, where abortion protections in the State Constitution have vexed Republicans for years.`\
 https://nytimes.com/2024/07/05/us/kansas-supreme-court-abortion.html
-
-**France’s Left-Wing New Popular Front Scored Big in Sunday’s Vote. Who Are They?**\
-`Parties on the left were so fractious, they broke up their alliance months ago, but the possibility of a government controlled by the far right drew them back together.`\
-https://nytimes.com/2024/07/05/world/europe/france-left-new-popular-front.html
 
