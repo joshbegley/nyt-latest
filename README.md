@@ -1,3 +1,11 @@
+**Video Submission Form for Our 15th Annual Summer Reading Contest**\
+`Use this page to tell us what got your attention in The New York Times in 2024 via a 90-second video.`\
+https://nytimes.com/2024/07/05/learning/video-submission-form-for-our-15th-annual-summer-reading-contest.html
+
+**Britain’s Liberal Democrats Score Big Election Gains**\
+`The small centrist party campaigned on improving health and social care. Its leader, Ed Davey, wooed voters with publicity stunts and personal appeals.`\
+https://nytimes.com/2024/07/05/world/europe/uk-liberal-democrats-ed-davey-election.html
+
 **Talks on Gaza Cease-Fire Revive After Weeks of Deadlock**\
 `The negotiations had been stalled for weeks until Hamas announced on Wednesday that it had exchanged some ideas with mediators on a new way forward.`\
 https://nytimes.com/2024/07/05/world/middleeast/gaza-cease-fire-talks-israel-hamas.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5617811/2024/07/05/fran-garcia-real-madrid-bournemo
 **What happens when a general election enters the Wimbledon bubble?**\
 `The fourth day of Wimbledon 2024 was general election day, but that wasn't obvious inside one of Britain's most hallowed spaces`\
 https://nytimes.com/athletic/5616163/2024/07/05/wimbledon-uk-general-election-all-england-club/
-
-**Downing Street’s New Occupant Will Have Just Hours to Move In**\
-`A new U.S. president usually has a two-month window to prepare to move into the White House. Freshly elected British prime ministers move into Downing Street much more swiftly.`\
-https://nytimes.com/2024/07/05/world/europe/downing-street-new-prime-minister.html
-
-**Slot focused on developing talent at Liverpool over transfers**\
-`Liverpool&#8217;s new head coach Arne Slot insists he is focused on developing the talent he has inherited at the club rather than transfer business.`\
-https://nytimes.com/athletic/5617850/2024/07/05/arne-slot-liverpool-transfers/
 
