@@ -1,3 +1,15 @@
+**Paal Enger, Who Stole Munch’s ‘The Scream,’ Is Dead at 57**\
+`A promising player for a storied Norwegian soccer club, he instead found infamy for stealing one of the world’s most famous artworks.`\
+https://nytimes.com/2024/07/05/arts/paal-enger-dead.html
+
+**Biden Can Ad-Lib and Deliver a Speech. It’s Still Not Enough.**\
+`In Wisconsin, he remembered the governor’s name. But can he deliver a better future?`\
+https://nytimes.com/live/2024/07/02/opinion/thepoint/biden-wisconsin-speech
+
+**The Briefing: Portugal 0 France 0: Penalties decide cagey quarter-final as Mbappe progresses and Ronaldo goes out**\
+`We break down the key moments from the Friday night's quarter-final in Hamburg`\
+https://nytimes.com/athletic/5614352/2024/07/05/portugal-france-euro-2024-result-analysis/
+
 **Oilers trade Ryan McLeod to Sabres**\
 `Edmonton Oilers acquire Ryan McLeod for prospect Matt Savoie.`\
 https://nytimes.com/athletic/5619075/2024/07/05/oilers-trade-ryan-mcleod-to-sabres-what-it-means-for-both-teams/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/02/opinion/thepoint/labor-election-uk
 **Standouts and observations from Red Wings development camp**\
 `Breaking down who stood out at the Red Wings' 2024 development camp.`\
 https://nytimes.com/athletic/5618585/2024/07/05/red-wings-development-camp-nate-danielson/
-
-**Endrick to make first Brazil start in Uruguay quarterfinal**\
-`Endrick will make a first start for Brazil in their Copa America quarterfinal against Uruguay.`\
-https://nytimes.com/athletic/5619097/2024/07/05/endrick-starts-brazil-team-news/
-
-**Biden’s upcoming interview represents a relatively rare encounter with traditional news media.**\
-`The president has`\
-https://nytimes.com/live/2024/07/05/us/biden-trump-2024-election/bidens-upcoming-interview-represents-a-relatively-rare-encounter-with-traditional-news-media
-
-**Mark Zuckerberg’s Surf Video Gets Lots of Likes (but Not From Elon Musk)**\
-`In a sequel to his much-mocked hydrofoil video, the Meta founder celebrates the Fourth of July in his own particular way.`\
-https://nytimes.com/2024/07/05/style/mark-zuckerbergs-surf-video-gets-lots-of-likes-but-not-from-elon-musk.html
 

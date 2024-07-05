@@ -1,3 +1,15 @@
+**Paal Enger, Who Stole Munch’s ‘The Scream,’ Is Dead at 57**\
+`A promising player for a storied Norwegian soccer club, he instead found infamy for stealing one of the world’s most famous artworks.`\
+https://nytimes.com/2024/07/05/arts/paal-enger-dead.html
+
+**Biden Can Ad-Lib and Deliver a Speech. It’s Still Not Enough.**\
+`In Wisconsin, he remembered the governor’s name. But can he deliver a better future?`\
+https://nytimes.com/live/2024/07/02/opinion/thepoint/biden-wisconsin-speech
+
+**The Briefing: Portugal 0 France 0: Penalties decide cagey quarter-final as Mbappe progresses and Ronaldo goes out**\
+`We break down the key moments from the Friday night's quarter-final in Hamburg`\
+https://nytimes.com/athletic/5614352/2024/07/05/portugal-france-euro-2024-result-analysis/
+
 **A Hollow Labor Victory Brings Change to Britain**\
 `A commanding supermajority derived from only 20 percent support looks like a recipe for a backlash.`\
 https://nytimes.com/live/2024/07/02/opinion/thepoint/labor-election-uk
