@@ -1,3 +1,7 @@
+**Talks on Gaza Cease-fire Revive After Weeks of Deadlock**\
+`The negotiations had been stalled for weeks until Hamas announced on Wednesday that it had exchanged some ideas with mediators on a new way forward.`\
+https://nytimes.com/2024/07/05/world/middleeast/gaza-cease-fire-talks-israel-hamas.html
+
 **With free agency settling, can anyone say the Kings have improved?**\
 `The Kings added three players this week — Warren Foegele, Tanner Jeannot and Joel Edmundson — which seemed underwhelming.`\
 https://nytimes.com/athletic/5616834/2024/07/05/la-kings-blake-free-agents/

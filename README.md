@@ -1,4 +1,4 @@
-**Talks on Gaza Cease-fire Revive After Weeks of Deadlock**\
+**Talks on Gaza Cease-Fire Revive After Weeks of Deadlock**\
 `The negotiations had been stalled for weeks until Hamas announced on Wednesday that it had exchanged some ideas with mediators on a new way forward.`\
 https://nytimes.com/2024/07/05/world/middleeast/gaza-cease-fire-talks-israel-hamas.html
 
