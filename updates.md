@@ -1,3 +1,7 @@
+**Who Is Rachel Reeves, the Woman Taking the Helm of Britain’s Economy?**\
+`As the newly named chancellor of the Exchequer, she is taking on the tough job of boosting Britain’s productivity growth and of reviving struggling public services.`\
+https://nytimes.com/2024/07/05/world/europe/rachel-reeves-uk-chancellor-economy.html
+
 **Labour Wins Back Trust of British Jews Who Turned From the Party**\
 `Keir Starmer had made rooting out antisemitism from the Labour Party’s ranks a goal of his leadership.`\
 https://nytimes.com/2024/07/05/world/europe/jewish-voters-labour-uk.html
