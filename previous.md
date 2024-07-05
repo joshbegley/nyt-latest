@@ -1,3 +1,15 @@
+**Fresh Jobs Data Spurs Investors to Bet on September Fed Rate Cut**\
+`As unemployment ticks up and wage growth cools, Federal Reserve officials are watching for signs that the job market is about to crack.`\
+https://nytimes.com/2024/07/05/business/jobs-report-fed-rates.html
+
+**What to know about President Biden’s interview with George Stephanopoulos.**\
+`By Michael M. Grynbaum`\
+https://nytimes.com/live/2024/07/05/us/biden-trump-2024-election/what-to-know-about-president-bidens-interview-with-george-stephanopoulos
+
+**What Labour’s Landslide Victory Means for the U.K.**\
+`Keir Starmer is Britain’s next prime minister after the center-left Labour Party won a landslide election victory, sweeping the Conservatives out of power after 14 years.`\
+https://nytimes.com/video/world/europe/100000009548962/analyzing-labour-party-landslide-election-victory.html
+
 **Five Takeaways From the U.K. General Election**\
 `The Labour Party won a resounding victory over the Conservatives, but smaller parties, including the populist Reform, did better than expected.`\
 https://nytimes.com/2024/07/05/world/europe/uk-general-election-key-takeaways.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/05/us/biden-trump-2024-election
 **Corrections: July 5, 2024**\
 `Corrections that appeared in print on Friday, July 5, 2024.`\
 https://nytimes.com/2024/07/05/pageoneplus/corrections-july-5-2024.html
-
-**The Greens Take a Bite Out of Labour’s Vote Share**\
-`The left-leaning Green Party, which is particularly popular with people under 30, took seven percent of the vote and will now have four lawmakers in Parliament.`\
-https://nytimes.com/2024/07/05/world/europe/the-greens-take-a-bite-out-of-labours-vote-share.html
-
-**Anatomy of a Landslide**\
-`Support for the Conservatives plummeted, propelling the Labour Party into power. Maps and charts show how it happened.`\
-https://nytimes.com/interactive/2024/07/05/world/europe/uk-election-results-map-vote-share.html
-
-**Summer Reading Contest, Week 5: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by July 12 at 9 a.m. Eastern. This week’s winners will be announced by July 24.`\
-https://nytimes.com/2024/07/05/learning/summer-reading-contest-week-5-what-got-your-attention-in-the-times-this-week.html
 
