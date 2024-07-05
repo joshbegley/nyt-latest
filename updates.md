@@ -1,3 +1,11 @@
+**Reform U.K.’s Success Is Latest Sign of Strength for Europe’s Far Right**\
+`The insurgent anti-immigration party led by Nigel Farage secured around 14 percent of the vote in Britain’s general election, though it has won only five parliamentary seats.`\
+https://nytimes.com/2024/07/05/world/europe/reform-uks-success-is-latest-sign-of-strength-for-europes-far-right.html
+
+**Sabres development camp takeaways: Thoughts on Konsta Helenius, Brodie Ziemer and more**\
+`What we learned about some of Buffalo’s prospects this week at the Sabres’ annual development camp.`\
+https://nytimes.com/athletic/5618302/2024/07/05/sabres-development-camp-konsta-helenius/
+
 **Juventus complete signing of goalkeeper Di Gregorio from Monza**\
 `Juventus have completed the signing of goalkeeper Michele Di Gregorio from Monza.`\
 https://nytimes.com/athletic/5618085/2024/07/05/michele-di-gregorio-juventus-transfer/
