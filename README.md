@@ -1,3 +1,11 @@
+**Daichi Kamada to Crystal Palace: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Daichi Kamada's move to Crystal Palace`\
+https://nytimes.com/athletic/5614837/2024/07/05/daichi-kamada-crystal-palace-transfer-ratings/
+
+**Ben Johnson to Ipswich: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Ben Johnson's move to Ipswich`\
+https://nytimes.com/athletic/5607665/2024/07/05/ben-johnson-ipswich-transfer-ratings/
+
 **Braves' surging Max Fried credits advice from veterans Chris Sale, Charlie Morton**\
 `Fried will tap into wisdom from his mentors when he faces the Phillies on Friday in an unusually important July series. `\
 https://nytimes.com/athletic/5617590/2024/07/05/braves-max-fried-chris-sale-charlie-morton/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5599998/2024/07/05/darrell-curries-life-changing-il
 **Aymeric Laporte interview: 'I am not surprised we were ignored at the start'**\
 `Laporte is in a confident mood ahead of Spain's Euro 2024 quarter-final against Germany. But he faced doubts this summer...`\
 https://nytimes.com/athletic/5616140/2024/07/05/spain-aymeric-laporte-euro-2024/
-
-**Cristiano Ronaldo and the Problem With Too Much Fame**\
-`The soccer superstar’s trip to Euro 2024 has been marked by pitch invaders and uninspiring performances. As fans try to get close, his team can’t seem to let go.`\
-https://nytimes.com/2024/07/05/world/europe/cristiano-ronaldo-portugal-euro-2024.html
-
-**Southgate prefers to stick rather than twist - will reticence to make subs prove costly?**\
-`England’s manager has often resisted change until the need has appeared overwhelming. But there will be a point when he needs to gamble`\
-https://nytimes.com/athletic/5617046/2024/07/05/southgate-england-substitutes-euros/
 
