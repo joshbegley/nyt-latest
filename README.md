@@ -1,3 +1,7 @@
+**Leicester close to De Cordova-Reid transfer, considering move for O'Hare**\
+`Leicester City are closing in on the signing of winger Bobby De Cordova-Reid and are considering a move for attacking midfielder Callum O’Hare.`\
+https://nytimes.com/athletic/5618187/2024/07/05/leicester-transfers-bobby-decordova-reid-ohare/
+
 **How 4-star DB JaDon Blair impacts Notre Dame's 2025 class**\
 `JaDon Blair, from Winston-Salem, N.C., committed to the Irish on Friday over Penn State, Michigan, Florida State and South Carolina.`\
 https://nytimes.com/athletic/5618369/2024/07/05/jadon-blair-notre-dame-football-commitment/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5618720/2024/07/05/fantasy-basketball-free-agency-f
 **What Labour’s Sort-of Landslide Means for Biden**\
 `The far right’s performance in the British elections is a clear warning sign for the U.S.`\
 https://nytimes.com/2024/07/02/opinion/labor-landslide-far-right.html
-
-**Keke Jabbar, Who Starred on ‘Love and Marriage: Huntsville,’ Dies at 42**\
-`She was a frequent sight on the series, which began in 2019, and impressed fans with her straightforward attitude.`\
-https://nytimes.com/2024/07/05/arts/keke-jabbar-love-marriage-huntsville-dead.html
 
