@@ -1,3 +1,7 @@
+**What Labour’s Sort-of Landslide Means for Biden**\
+`The far right’s performance in the British elections is a clear warning sign for the U.S.`\
+https://nytimes.com/live/2024/07/02/opinion/thepoint/labor-landslide-far-right
+
 **Keke Jabbar, Who Starred on ‘Love and Marriage: Huntsville,’ Dies at 42**\
 `She was a frequent sight on the series, which began in 2019, and impressed fans with her straightforward attitude.`\
 https://nytimes.com/2024/07/05/arts/keke-jabbar-love-marriage-huntsville-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/05/opinion/joe-biden-decision.html
 **The Reintroduction of Kamala Harris**\
 `Vice President Kamala Harris has spent the past year trying to quiet her doubters. Now, with President Biden’s candidacy on the line, Democrats are assessing whether she is up to being the nominee.`\
 https://nytimes.com/2024/07/05/us/politics/kamala-harris-biden.html
-
-**Organizers Say Abortion Access Is Headed to the Ballot in 3 More States**\
-`Arkansas is the third state this week where organizers said they had collected enough support for a petition to enshrine some abortion access in the State Constitution.`\
-https://nytimes.com/2024/07/05/us/politics/abortion-rights-ballot-measures.html
 
