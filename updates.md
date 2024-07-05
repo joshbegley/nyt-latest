@@ -1,3 +1,7 @@
+**Spain's Morata out of Euro 2024 semi-final through suspension**\
+`Spain captain Alvaro Morata will miss his side’s European Championship semi-final through suspension.`\
+https://nytimes.com/athletic/5618641/2024/07/05/alvaro-morata-spain-suspended-euro-2024/
+
 **The Briefing: Spain 2-1 Germany - Mikel Merino's late, late winner dumps out Euro 2024 hosts**\
 `Spain produced a brilliant late flourish to beat Germany 2-1 in the Euro 2024 quarter-finals`\
 https://nytimes.com/athletic/5614353/2024/07/05/spain-germany-euro-2024-mikel-merino/
