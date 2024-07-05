@@ -1,3 +1,7 @@
+**Oilers trade Ryan McLeod to Sabres**\
+`Edmonton Oilers acquire Ryan McLeod for prospect Matt Savoie.`\
+https://nytimes.com/athletic/5619075/2024/07/05/oilers-trade-ryan-mcleod-to-sabres-what-it-means-for-both-teams/
+
 **Parker Meadows rejoins the Tigers, and they need everything he can give**\
 `By waiting until now to bring back the center fielder, the Tigers gained an extra year of team control.`\
 https://nytimes.com/athletic/5618924/2024/07/05/parker-meadows-rejoins-tigers/

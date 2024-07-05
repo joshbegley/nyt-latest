@@ -1,3 +1,7 @@
+**Oilers trade Ryan McLeod to Sabres**\
+`Edmonton Oilers acquire Ryan McLeod for prospect Matt Savoie.`\
+https://nytimes.com/athletic/5619075/2024/07/05/oilers-trade-ryan-mcleod-to-sabres-what-it-means-for-both-teams/
+
 **Parker Meadows rejoins the Tigers, and they need everything he can give**\
 `By waiting until now to bring back the center fielder, the Tigers gained an extra year of team control.`\
 https://nytimes.com/athletic/5618924/2024/07/05/parker-meadows-rejoins-tigers/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/05/us/biden-trump-2024-election/bidens-upcoming
 **Mark Zuckerberg’s Surf Video Gets Lots of Likes (but Not From Elon Musk)**\
 `In a sequel to his much-mocked hydrofoil video, the Meta founder celebrates the Fourth of July in his own particular way.`\
 https://nytimes.com/2024/07/05/style/mark-zuckerbergs-surf-video-gets-lots-of-likes-but-not-from-elon-musk.html
-
-**Burnley appoint Parker as new head coach**\
-`Burnley have appointed Scott Parker as the club&#8217;s new head coach.`\
-https://nytimes.com/athletic/5616015/2024/07/05/burnley-scott-parker-confirmed/
 
