@@ -1,3 +1,15 @@
+**Keep an Eye on Israel’s North**\
+`A wider war with Hezbollah would be immensely destructive.`\
+https://nytimes.com/live/2024/07/02/opinion/thepoint/israel-hezbollah-gaza
+
+**Blackhawks GM Kyle Davidson: Offseason moves will create better development path in NHL, AHL**\
+`The Blackhawks will look different next season with more veterans, but does that alter Davidson's development plan for prospects?`\
+https://nytimes.com/athletic/5618787/2024/07/05/blackhawks-offseason-free-agency-nhl-ahl/
+
+**Murray and Raducanu scheduled for mixed doubles on Saturday**\
+`Andy Murray and Emma Raducanu will play fourth on Court One at Wimbledon on Saturday.`\
+https://nytimes.com/athletic/5618974/2024/07/05/andy-murray-raducanu-when-time/
+
 **The White Party That Brought Kim Kardashian, Drake and Tom Brady to the Hamptons**\
 `Michael Rubin, the billionaire e-commerce mogul, hosted a celebrity-filled, Independence Day bash at his beachfront mansion on Long Island.`\
 https://nytimes.com/2024/07/05/style/michael-rubin-july-fourth-party.html
@@ -22,19 +34,7 @@ https://nytimes.com/athletic/5617371/2024/07/05/f1-carlos-sainz-driver-market-ve
 `Gareth Southgate has hit back at any suggestions that England have a favourable draw at the European Championship and called such talk as a &#8220;classic example of entitlement&#8221; the country has.`\
 https://nytimes.com/athletic/5618851/2024/07/05/england-swizerland-gareth-southgate/
 
-**Spain's Morata out of Euro 2024 semi-final through suspension**\
-`Spain captain Alvaro Morata will miss his side’s European Championship semi-final through suspension.`\
+**Spain's Alvaro Morata not suspended for Euro 2024 semi-final**\
+`Spain captain Alvaro Morata is available for his side’s European Championship semi-final, UEFA have confirmed.`\
 https://nytimes.com/athletic/5618641/2024/07/05/alvaro-morata-spain-suspended-euro-2024/
-
-**The Briefing: Spain 2-1 Germany - Mikel Merino's late, late winner dumps out Euro 2024 hosts**\
-`Spain produced a brilliant late flourish to beat Germany 2-1 in the Euro 2024 quarter-finals`\
-https://nytimes.com/athletic/5614353/2024/07/05/spain-germany-euro-2024-mikel-merino/
-
-**Andrew Tate Is Allowed to Leave Romania in Latest Court Decision**\
-`The court in Bucharest ruled that Mr. Tate and his brother, who are facing human trafficking and rape charges, must remain in the European Union as they await trial, his lawyer said.`\
-https://nytimes.com/2024/07/05/world/europe/andrew-tate-romania-human-trafficking-trial.html
-
-**Shaw fit to start for England vs Switzerland**\
-`Gareth Southgate has declared Luke Shaw fit to start for England in their quarter-final with Switzerland on Saturday.`\
-https://nytimes.com/athletic/5618785/2024/07/05/luke-shaw-england-team-news/
 

@@ -1,3 +1,19 @@
+**Keep an Eye on Israel’s North**\
+`A wider war with Hezbollah would be immensely destructive.`\
+https://nytimes.com/live/2024/07/02/opinion/thepoint/israel-hezbollah-gaza
+
+**Blackhawks GM Kyle Davidson: Offseason moves will create better development path in NHL, AHL**\
+`The Blackhawks will look different next season with more veterans, but does that alter Davidson's development plan for prospects?`\
+https://nytimes.com/athletic/5618787/2024/07/05/blackhawks-offseason-free-agency-nhl-ahl/
+
+**Murray and Raducanu scheduled for mixed doubles on Saturday**\
+`Andy Murray and Emma Raducanu will play fourth on Court One at Wimbledon on Saturday.`\
+https://nytimes.com/athletic/5618974/2024/07/05/andy-murray-raducanu-when-time/
+
+**Spain's Alvaro Morata not suspended for Euro 2024 semi-final**\
+`Spain captain Alvaro Morata is available for his side’s European Championship semi-final, UEFA have confirmed.`\
+https://nytimes.com/athletic/5618641/2024/07/05/alvaro-morata-spain-suspended-euro-2024/
+
 **The White Party That Brought Kim Kardashian, Drake and Tom Brady to the Hamptons**\
 `Michael Rubin, the billionaire e-commerce mogul, hosted a celebrity-filled, Independence Day bash at his beachfront mansion on Long Island.`\
 https://nytimes.com/2024/07/05/style/michael-rubin-july-fourth-party.html
