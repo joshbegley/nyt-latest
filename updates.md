@@ -1,3 +1,7 @@
+**Dodgers expected to call up fast-rising prospect Justin Wrobleski**\
+`Wrobleski’s arrival plugs an immediate, short-term hole for an injury-riddled Dodgers rotation.`\
+https://nytimes.com/athletic/5617661/2024/07/05/dodgers-prospect-justin-wrobleski/
+
 **How Mikel Merino's spectacular frog leap lifted Spain into the Euro 2024 semi-finals**\
 `'At first I didn’t believe it,' said Mikel Merino after scoring a goal that owed so much to a spectacular leap`\
 https://nytimes.com/athletic/5619269/2024/07/05/mikel-merino-frog-leap/
