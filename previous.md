@@ -1,3 +1,11 @@
+**Cajun Shrimp Boil With Rémoulade; Blueberry Pancakes With Maple Sausages**\
+`Consider this your permission to go big this weekend.`\
+https://nytimes.com/2024/07/05/dining/cajun-shrimp-boil-summer-recipes.html
+
+**Five Science Fiction Movies to Stream Now**\
+`In this month’s sci-fi picks, life on Mars, a social dystopia set in near-future London and a meet-cute after a spaceship accident.`\
+https://nytimes.com/2024/07/05/movies/five-science-fiction-movies-to-stream-now.html
+
 **Labour Wins Back Trust of British Jews Who Turned From the Party**\
 `Keir Starmer had made rooting out antisemitism from the Labour Party’s ranks a goal of his leadership.`\
 https://nytimes.com/2024/07/05/world/europe/jewish-voters-labour-uk.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/05/business/jobs-report-fed-rates.html
 **What to know about President Biden’s interview with George Stephanopoulos.**\
 `By Michael M. Grynbaum`\
 https://nytimes.com/live/2024/07/05/us/biden-trump-2024-election/what-to-know-about-president-bidens-interview-with-george-stephanopoulos
-
-**What Labour’s Landslide Victory Means for the U.K.**\
-`Keir Starmer is Britain’s next prime minister after the center-left Labour Party won a landslide election victory, sweeping the Conservatives out of power after 14 years.`\
-https://nytimes.com/video/world/europe/100000009548962/analyzing-labour-party-landslide-election-victory.html
-
-**Five Takeaways From the U.K. General Election**\
-`The Labour Party won a resounding victory over the Conservatives, but smaller parties, including the populist Reform, did better than expected.`\
-https://nytimes.com/2024/07/05/world/europe/uk-general-election-key-takeaways.html
 

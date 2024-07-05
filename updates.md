@@ -1,3 +1,11 @@
+**Cajun Shrimp Boil With Rémoulade; Blueberry Pancakes With Maple Sausages**\
+`Consider this your permission to go big this weekend.`\
+https://nytimes.com/2024/07/05/dining/cajun-shrimp-boil-summer-recipes.html
+
+**Five Science Fiction Movies to Stream Now**\
+`In this month’s sci-fi picks, life on Mars, a social dystopia set in near-future London and a meet-cute after a spaceship accident.`\
+https://nytimes.com/2024/07/05/movies/five-science-fiction-movies-to-stream-now.html
+
 **Who Is Rachel Reeves, the Woman Taking the Helm of Britain’s Economy?**\
 `As the newly named chancellor of the Exchequer, she is taking on the tough job of boosting Britain’s productivity growth and of reviving struggling public services.`\
 https://nytimes.com/2024/07/05/world/europe/rachel-reeves-uk-chancellor-economy.html
