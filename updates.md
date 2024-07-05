@@ -1,3 +1,11 @@
+**Count Binface and Elmo, both good losers, provided comic relief.**\
+`By Claire Moses`\
+https://nytimes.com/live/2024/07/04/world/uk-election-results/count-binface-and-elmo-both-good-losers-provided-comic-relief
+
+**Michael Tracy, Artist Who Helped Restore a Texas Border Town, Dies at 80**\
+`His baroque fusions of bright paint, wood and other detritus wowed the art world. But as his fame faded, he turned his attention to historic preservation.`\
+https://nytimes.com/2024/07/05/arts/michael-tracy-dies.html
+
 **Bellingham plays on the edge - but must stay the right side of the emotional precipice**\
 `The England and Real Madrid midfielder has escaped a ban for his Slovakia celebration - he has to stay the right side of the line`\
 https://nytimes.com/athletic/5618162/2024/07/05/england-bellingham-edge-rooney-beckham-gascoigne/
