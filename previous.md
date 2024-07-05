@@ -1,3 +1,7 @@
+**The Composer Who Changed Opera With ‘a Beautiful Simplicity’**\
+`In the mid-1700s, Christoph Willibald Gluck overthrew the musical excesses around him. A marathon double bill in France shows the vibrancy of his vision.`\
+https://nytimes.com/2024/07/05/arts/music/gluck-iphigenie-operas-aix.html
+
 **NASCAR returns to Chicago Street Course, hoping for a smoother ride this time**\
 `NASCAR's Chicago Street Race debut was greeted with local backlash and terrible weather. Year 2 brings a more optimistic forecast.`\
 https://nytimes.com/athletic/5617328/2024/07/05/nascar-chicago-street-course-weather-grant-park/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5617989/2024/07/05/sky-forest-neville-apology/
 **The Athletic FC: 'Animal' Martinez saves Messi; an alternative Euros guide to last eight**\
 `In The Athletic FC today: Messi misses a penalty but Martinez bails him out. Plus: An alternative Euro 2024 quarter-final preview...`\
 https://nytimes.com/athletic/5617779/2024/07/05/the-athletic-fc-martinez-messi-penalties/
-
-**Turkey’s Demiral handed two-game suspension for 'indecent' celebration**\
-`Turkey defender Merih Demiral has been handed a two-game suspension by UEFA after appearing to make an ultranationalist salute while celebrating his second goal against Austria in Tuesday’s European Championship last-16 match.`\
-https://nytimes.com/athletic/5617842/2024/07/05/merih-demiral-ban-suspension-turkey-euro-2024/
 

@@ -1,3 +1,7 @@
+**The Composer Who Changed Opera With ‘a Beautiful Simplicity’**\
+`In the mid-1700s, Christoph Willibald Gluck overthrew the musical excesses around him. A marathon double bill in France shows the vibrancy of his vision.`\
+https://nytimes.com/2024/07/05/arts/music/gluck-iphigenie-operas-aix.html
+
 **NASCAR returns to Chicago Street Course, hoping for a smoother ride this time**\
 `NASCAR's Chicago Street Race debut was greeted with local backlash and terrible weather. Year 2 brings a more optimistic forecast.`\
 https://nytimes.com/athletic/5617328/2024/07/05/nascar-chicago-street-course-weather-grant-park/
