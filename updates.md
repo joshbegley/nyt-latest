@@ -1,3 +1,7 @@
+**U.K. Election Turnout Set to Be Lowest in Over 20 Years**\
+`Voter participation was estimated at 60 percent — below that in every recent election except 2001, another widely anticipated landslide.`\
+https://nytimes.com/2024/07/05/world/europe/uk-election-turnout.html
+
 **One thought on each Big 12 team following June official visits**\
 `Which league programs made the biggest moves during a key recruiting month?`\
 https://nytimes.com/athletic/5612669/2024/07/05/big-12-recruiting-update-official-visits/
