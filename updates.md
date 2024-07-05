@@ -1,3 +1,11 @@
+**Keke Jabbar, Who Starred on ‘Love and Marriage: Huntsville,’ Dies at 42**\
+`She was a frequent sight on the series, which began in 2019, and impressed fans with her straightforward attitude.`\
+https://nytimes.com/2024/07/05/arts/keke-jabbar-love-marriage-huntsville-dead.html
+
+**What Arne Slot's first Liverpool press conference reveals about the new era**\
+`New Liverpool coach Slot's comments on Klopp, transfers, contracts, Guardiola and playing style analysed`\
+https://nytimes.com/athletic/5618087/2024/07/05/arne-slot-first-liverpool-press-conference-analysed/
+
 **Does America Need a President?**\
 `Why subordinates or the “deep state” can’t substitute for a vacuum at the top.`\
 https://nytimes.com/2024/07/05/opinion/biden-president-america.html
