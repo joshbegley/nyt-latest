@@ -1,3 +1,7 @@
+**A Hollow Labor Victory Brings Change to Britain**\
+`A commanding supermajority derived from only 20 percent support looks like a recipe for a backlash.`\
+https://nytimes.com/live/2024/07/02/opinion/thepoint/a-hollow-labor-victory-brings-change-to-britain
+
 **Standouts and observations from Red Wings development camp**\
 `Breaking down who stood out at the Red Wings' 2024 development camp.`\
 https://nytimes.com/athletic/5618585/2024/07/05/red-wings-development-camp-nate-danielson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5618787/2024/07/05/blackhawks-offseason-free-agency
 **Murray and Raducanu scheduled for mixed doubles on Saturday**\
 `Andy Murray and Emma Raducanu will play fourth on Court One at Wimbledon on Saturday.`\
 https://nytimes.com/athletic/5618974/2024/07/05/andy-murray-raducanu-when-time/
-
-**The White Party That Brought Kim Kardashian, Drake and Tom Brady to the Hamptons**\
-`Michael Rubin, the billionaire e-commerce mogul, hosted a celebrity-filled, Independence Day bash at his beachfront mansion on Long Island.`\
-https://nytimes.com/2024/07/05/style/michael-rubin-july-fourth-party.html
 

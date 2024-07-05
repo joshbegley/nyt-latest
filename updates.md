@@ -1,3 +1,7 @@
+**A Hollow Labor Victory Brings Change to Britain**\
+`A commanding supermajority derived from only 20 percent support looks like a recipe for a backlash.`\
+https://nytimes.com/live/2024/07/02/opinion/thepoint/a-hollow-labor-victory-brings-change-to-britain
+
 **Standouts and observations from Red Wings development camp**\
 `Breaking down who stood out at the Red Wings' 2024 development camp.`\
 https://nytimes.com/athletic/5618585/2024/07/05/red-wings-development-camp-nate-danielson/
