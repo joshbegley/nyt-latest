@@ -1,3 +1,15 @@
+**Braves' surging Max Fried credits advice from veterans Chris Sale, Charlie Morton**\
+`Fried will tap into wisdom from his mentors when he faces the Phillies on Friday in an unusually important July series. `\
+https://nytimes.com/athletic/5617590/2024/07/05/braves-max-fried-chris-sale-charlie-morton/
+
+**Why West Ham want Max Kilman - and why Wolves are ready to let him go**\
+`The centre-half is close to swapping Molineux for the London Stadium as Julen Lopetegui seeks to strengthen his defensive ranks`\
+https://nytimes.com/athletic/5616433/2024/07/05/kilman-west-ham-wolves-lopetegui/
+
+**Paul Mitchell at Newcastle: What awaits the new sporting director on Tyneside?**\
+`From time spent working at Southampton, Spurs, RB Leipzig and Monaco, Mitchell brings a wealth of experience to his sporting director role`\
+https://nytimes.com/athletic/5616051/2024/07/05/newcastle-mitchell-ashworth/
+
 **Cristiano Ronaldo and Kylian Mbappe: The king, his heir and the changing of the guard**\
 `The young Mbappe idolised Ronaldo, but now Real Madrid's new signing confronts the club's record scorer for a semi-final place at Euro 2024`\
 https://nytimes.com/athletic/5617026/2024/07/05/mbappe-ronaldo-france-portugal-euro2024/
