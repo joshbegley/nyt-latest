@@ -1,3 +1,11 @@
+**Bullpen report: Porter Hodge enters Cubs' circle of trust, Mason Miller cools down and more**\
+`Greg Jewett reports on all the latest trends and key developments across MLB bullpens that fantasy baseball managers need to know.`\
+https://nytimes.com/athletic/5618689/2024/07/05/mlb-bullpen-fantasy-baseball-mason-miller-2/
+
+**Labour Won a U.K. Landslide. Why Doesn’t It Feel Like That?**\
+`Keir Starmer’s party won a huge majority in parliament. But the new prime minister faces a fractious and volatile public.`\
+https://nytimes.com/2024/07/05/world/europe/uk-election-labour-landslide.html
+
 **How Biden Might Be Thinking About the Decision Ahead of Him**\
 `Does Biden run? Does he step aside? His recurring considerations are family, legacy and, yes, his age.`\
 https://nytimes.com/2024/07/05/opinion/joe-biden-decision.html
