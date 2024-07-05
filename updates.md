@@ -1,3 +1,7 @@
+**Christen Press on Angel City sale, player investment and focus on the pitch**\
+`Willow Bay and her husband, Disney CEO Bob Iger, are nearing a deal for a controlling stake in Angel City.`\
+https://nytimes.com/athletic/5618852/2024/07/05/christen-press-angel-city-sale/
+
 **Leicester close to De Cordova-Reid transfer, considering move for O'Hare**\
 `Leicester City are closing in on the signing of winger Bobby De Cordova-Reid and are considering a move for attacking midfielder Callum O’Hare.`\
 https://nytimes.com/athletic/5618187/2024/07/05/leicester-transfers-bobby-decordova-reid-ohare/

@@ -1,3 +1,7 @@
+**Christen Press on Angel City sale, player investment and focus on the pitch**\
+`Willow Bay and her husband, Disney CEO Bob Iger, are nearing a deal for a controlling stake in Angel City.`\
+https://nytimes.com/athletic/5618852/2024/07/05/christen-press-angel-city-sale/
+
 **Leicester close to De Cordova-Reid transfer, considering move for O'Hare**\
 `Leicester City are closing in on the signing of winger Bobby De Cordova-Reid and are considering a move for attacking midfielder Callum O’Hare.`\
 https://nytimes.com/athletic/5618187/2024/07/05/leicester-transfers-bobby-decordova-reid-ohare/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5618785/2024/07/05/luke-shaw-england-team-news/
 **Fantasy basketball free agency fallout: Dejounte Murray to New Orelans, Paul George to Philly and more**\
 `Stan Son breaks down the fantasy basketball impact of the big trades and signings, thus far, of the NBA free agency period.`\
 https://nytimes.com/athletic/5618720/2024/07/05/fantasy-basketball-free-agency-fallout-trades/
-
-**What Labour’s Sort-of Landslide Means for Biden**\
-`The far right’s performance in the British elections is a clear warning sign for the U.S.`\
-https://nytimes.com/2024/07/02/opinion/labor-landslide-far-right.html
 
