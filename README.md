@@ -1,3 +1,11 @@
+**Keke Jabbar, Who Starred on ‘Love and Marriage: Huntsville,’ Dies at 42**\
+`She was a frequent sight on the series, which began in 2019, and impressed fans with her straightforward attitude.`\
+https://nytimes.com/2024/07/05/arts/keke-jabbar-love-marriage-huntsville-dead.html
+
+**What Arne Slot's first Liverpool press conference reveals about the new era**\
+`New Liverpool coach Slot's comments on Klopp, transfers, contracts, Guardiola and playing style analysed`\
+https://nytimes.com/athletic/5618087/2024/07/05/arne-slot-first-liverpool-press-conference-analysed/
+
 **Does America Need a President?**\
 `Why subordinates or the “deep state” can’t substitute for a vacuum at the top.`\
 https://nytimes.com/2024/07/05/opinion/biden-president-america.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/05/us/politics/kamala-harris-biden.html
 **Organizers Say Abortion Access Is Headed to the Ballot in 3 More States**\
 `Arkansas is the third state this week where organizers said they had collected enough support for a petition to enshrine some abortion access in the State Constitution.`\
 https://nytimes.com/2024/07/05/us/politics/abortion-rights-ballot-measures.html
-
-**A Third House Democrat, Seth Moulton, Calls on Biden to Drop Out**\
-`Representative Lloyd Doggett was the first sitting House Democrat to urge President Biden to leave the race, followed by Representative Raúl M. Grijalva.`\
-https://nytimes.com/2024/07/05/us/politics/democrat-seth-moulton-biden-drop-out.html
-
-**Reform U.K.’s Success Is Latest Sign of Strength for Europe’s Far Right**\
-`The insurgent anti-immigration party led by Nigel Farage secured around 14 percent of the vote in Britain’s general election, though it has won only five parliamentary seats.`\
-https://nytimes.com/2024/07/05/world/europe/reform-uks-success-is-latest-sign-of-strength-for-europes-far-right.html
 
