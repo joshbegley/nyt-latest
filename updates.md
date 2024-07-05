@@ -1,3 +1,11 @@
+**The Pressure on Biden to Drop Out**\
+`Calls for the president to withdraw from the race. Also: C.E.O.s and Trump; a Trump donor; antisemitism; Netanyahu and Congress; an H.I.V. medication.`\
+https://nytimes.com/2024/07/05/opinion/joe-biden-election-withdrawal.html
+
+**What to know about the latest report.**\
+`By Talmon Joseph Smith`\
+https://nytimes.com/live/2024/07/05/business/june-jobs-report/what-to-know-about-the-latest-report
+
 **Who Is Angela Rayner, Britain’s Deputy Prime Minister?**\
 `While politics in Britain have traditionally been dominated by the country’s elites, Ms. Rayner has taken a less traditional route to the top.`\
 https://nytimes.com/2024/07/05/world/europe/who-is-angela-rayner-britains-deputy-prime-minister.html
