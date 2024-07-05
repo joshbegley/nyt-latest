@@ -1,3 +1,7 @@
+**How Mikel Merino's spectacular frog leap lifted Spain into the Euro 2024 semi-finals**\
+`'At first I didn’t believe it,' said Mikel Merino after scoring a goal that owed so much to a spectacular leap`\
+https://nytimes.com/athletic/5619269/2024/07/05/mikel-merino-frog-leap/
+
 **Deschamps explains Mbappe substitution during extra-time**\
 `Didier Deschamps has explained his decision to take Kylian Mbappe off during extra-time of France&#8217;s quarter-final with Portugal.`\
 https://nytimes.com/athletic/5619329/2024/07/05/kylian-mbappe-substitution-france-portugal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5619174/2024/07/05/nhl-salary-arbitration-players/
 **Paal Enger, Who Stole Munch’s ‘The Scream,’ Is Dead at 57**\
 `A promising player for a storied Norwegian soccer club, he instead found infamy for stealing one of the world’s most famous artworks.`\
 https://nytimes.com/2024/07/05/arts/paal-enger-dead.html
-
-**Biden Can Ad-Lib and Deliver a Speech. It’s Still Not Enough.**\
-`In Wisconsin, he remembered the governor’s name. But can he deliver a better future?`\
-https://nytimes.com/live/2024/07/02/opinion/thepoint/biden-wisconsin-speech
 
