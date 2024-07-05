@@ -1,3 +1,11 @@
+**The Greens Take a Bite Out of Labour’s Vote Share**\
+`The left-leaning Green Party, which is particularly popular with people under 30, took seven percent of the vote and will now have four lawmakers in Parliament.`\
+https://nytimes.com/2024/07/05/world/europe/the-greens-take-a-bite-out-of-labours-vote-share.html
+
+**Anatomy of a Landslide**\
+`Support for the Conservatives plummeted, propelling the Labour Party into power. Maps and charts show how it happened.`\
+https://nytimes.com/interactive/2024/07/05/world/europe/uk-election-results-map-vote-share.html
+
 **Summer Reading Contest, Week 5: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by July 12 at 9 a.m. Eastern. This week’s winners will be announced by July 24.`\
 https://nytimes.com/2024/07/05/learning/summer-reading-contest-week-5-what-got-your-attention-in-the-times-this-week.html
