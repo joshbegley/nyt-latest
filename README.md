@@ -1,3 +1,7 @@
+**Keir Starmer’s Labour Party Claims Victory in U.K. Election**\
+`Set to be the next prime minister of the U.K., Keir Starmer swore that his party would work to “restore Britain to the service of working people.”`\
+https://nytimes.com/video/world/europe/100000009556409/keir-starmers-labour-party-claims-victory-in-uk-election.html
+
 **Semenyo agrees new Bournemouth contract**\
 `Antoine Semenyo has agreed a new five-year contract at Bournemouth.`\
 https://nytimes.com/athletic/5617295/2024/07/05/antoine-semenyo-bournemouth-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5617680/2024/07/05/logan-webb-giants-series-win-atl
 **The end can take you to dark places - there is a beauty in Ronaldo raging against it**\
 `Alan Shearer knows first-hand how troubling it can be to know the end is coming, for your ego and your body to be fighting each other`\
 https://nytimes.com/athletic/5616686/2024/07/05/cristiano-ronaldo-the-end/
-
-**Word of the Day: surreal**\
-`This word has appeared in 570 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/07/05/learning/word-of-the-day-surreal.html
 
