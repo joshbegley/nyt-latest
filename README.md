@@ -1,3 +1,11 @@
+**The Pressure on Biden to Drop Out**\
+`Calls for the president to withdraw from the race. Also: C.E.O.s and Trump; a Trump donor; antisemitism; Netanyahu and Congress; an H.I.V. medication.`\
+https://nytimes.com/2024/07/05/opinion/joe-biden-election-withdrawal.html
+
+**What to know about the latest report.**\
+`By Talmon Joseph Smith`\
+https://nytimes.com/live/2024/07/05/business/june-jobs-report/what-to-know-about-the-latest-report
+
 **Who Is Angela Rayner, Britain’s Deputy Prime Minister?**\
 `While politics in Britain have traditionally been dominated by the country’s elites, Ms. Rayner has taken a less traditional route to the top.`\
 https://nytimes.com/2024/07/05/world/europe/who-is-angela-rayner-britains-deputy-prime-minister.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/05/world/europe/vatican-excommunication-archbishop-c
 **Biden to Campaign in Wisconsin With His Political Future in the Balance**\
 `Winning the battleground state is crucial to President Biden’s hopes of four more years in the White House, making it an appropriate stop for the high-stakes moment.`\
 https://nytimes.com/2024/07/05/us/politics/biden-campaign-rally-wisconsin.html
-
-**Ranking the 10 best contracts signed so far in NHL free agency**\
-`Here are 10 of the best bang-for-buck contracts that teams have inked in free agency so far.`\
-https://nytimes.com/athletic/5617349/2024/07/05/nhl-free-agency-ranking-best-contracts/
-
-**Ex-Villa loanee Zaniolo joins Atalanta on loan from Galatasaray**\
-`Nicolo Zaniolo has joined Atalanta on a season-long loan from Galatasaray.`\
-https://nytimes.com/athletic/5618426/2024/07/05/nicolo-zaniolo-atalanta-transfer/
 

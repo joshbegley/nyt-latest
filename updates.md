@@ -1,3 +1,15 @@
+**Who Is Angela Rayner, Britain’s Deputy Prime Minister?**\
+`While politics in Britain have traditionally been dominated by the country’s elites, Ms. Rayner has taken a less traditional route to the top.`\
+https://nytimes.com/2024/07/05/world/europe/who-is-angela-rayner-britains-deputy-prime-minister.html
+
+**Pedri substituted off with first-half injury in Spain vs Germany**\
+`Spain midfielder Pedri had to be withdrawn only minutes into his country’s European Championship quarter-final.`\
+https://nytimes.com/athletic/5618535/2024/07/05/pedri-injury-latest-spain-euro-2024/
+
+**Big Ticket: N.Y.’s Top Sales and Listings in June**\
+`Take a look at some of the most high-profile real estate listings and sales in June in New York City.`\
+https://nytimes.com/interactive/2024/07/05/realestate/luxury/nyc-new-york-home-sales.html
+
 **How Future Hurricanes Could Stress Power Grids of U.S. Cities**\
 `A new analysis shows increasing frequency and intensity of hurricanes could cause more devastating interruptions to the power grid.`\
 https://nytimes.com/2024/07/05/climate/hurricanes-power-outages.html
