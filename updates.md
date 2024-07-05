@@ -1,3 +1,7 @@
+**Leicester close to De Cordova-Reid transfer, considering move for O'Hare**\
+`Leicester City are closing in on the signing of winger Bobby De Cordova-Reid and are considering a move for attacking midfielder Callum O’Hare.`\
+https://nytimes.com/athletic/5618187/2024/07/05/leicester-transfers-bobby-decordova-reid-ohare/
+
 **How 4-star DB JaDon Blair impacts Notre Dame's 2025 class**\
 `JaDon Blair, from Winston-Salem, N.C., committed to the Irish on Friday over Penn State, Michigan, Florida State and South Carolina.`\
 https://nytimes.com/athletic/5618369/2024/07/05/jadon-blair-notre-dame-football-commitment/
