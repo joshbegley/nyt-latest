@@ -1,3 +1,7 @@
+**8-Year-Old Is Killed and Two Adults Wounded in Queens Stabbing**\
+`Police officers arrived at an apartment in Jamaica to find a man holding his father at knife point and an 8-year-old mortally wounded.`\
+https://nytimes.com/2024/07/04/nyregion/boy-dead-jamaica-queens.html
+
 **Oregon beats Ohio State, Texas, LSU for 5-star WR Dakorien Moore**\
 `Moore, ranked No. 3 overall in the 247Sports Composite, is the fifth top-100 player and third five-star prospect in Oregon’s 2025 class.`\
 https://nytimes.com/athletic/5617470/2024/07/04/oregon-recruiting-dakorien-moore/
