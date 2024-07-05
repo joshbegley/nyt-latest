@@ -1,3 +1,7 @@
+**U.K. Election Turnout Set to Be Lowest in Over 20 Years**\
+`Voter participation was estimated at 60 percent — below that in every recent election except 2001, another widely anticipated landslide.`\
+https://nytimes.com/2024/07/05/world/europe/uk-election-turnout.html
+
 **One thought on each Big 12 team following June official visits**\
 `Which league programs made the biggest moves during a key recruiting month?`\
 https://nytimes.com/athletic/5612669/2024/07/05/big-12-recruiting-update-official-visits/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5617414/2024/07/05/edmonton-oilers-gm-candidates-je
 **Sitting on a cooler box (or bucket), idolised by Pep Guardiola: Who is Bielsa?**\
 `Marcelo Bielsa will lead Uruguay into their match against the USMNT in the Copa America — but who is he?`\
 https://nytimes.com/athletic/5600640/2024/07/05/bielsa-uruguay-copa-america-brazil/
-
-**Wordle Review No. 1,113 July 6, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/05/crosswords/wordle-review-1113.html
 
