@@ -1,3 +1,7 @@
+**Sometimes It Is the Coach’s Fault**\
+`The U.S. collapsed under the weight of expectations at the Copa América. Its next move could determine if there is a repeat, or a revival, at the 2026 World Cup.`\
+https://nytimes.com/2024/07/05/world/americas/usmnt-berhalter.html
+
 **Judge Rules Against Release of Covenant School Shooter’s Writings**\
 `Whether to publish the voluminous paper trail left behind by the assailant was one of the most contested issues that arose from the attack.`\
 https://nytimes.com/2024/07/05/us/covenant-school-shooter-writings.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/05/arts/black-spin-global-tennis-podcast.html
 **‘My Government Will Serve You,’ Starmer Says**\
 `During Keir Starmer’s first speech as the British prime minister, he said that the country had voted for a “national renewal and a return of politics to public service.”`\
 https://nytimes.com/video/world/europe/100000009556595/uk-election-keir-starmer.html
-
-**The Composer Who Changed Opera With ‘a Beautiful Simplicity’**\
-`In the mid-1700s, Christoph Willibald Gluck overthrew the musical excesses around him. A marathon double bill in France shows the vibrancy of his vision.`\
-https://nytimes.com/2024/07/05/arts/music/gluck-iphigenie-operas-aix.html
 

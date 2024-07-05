@@ -1,3 +1,7 @@
+**Sometimes It Is the Coach’s Fault**\
+`The U.S. collapsed under the weight of expectations at the Copa América. Its next move could determine if there is a repeat, or a revival, at the 2026 World Cup.`\
+https://nytimes.com/2024/07/05/world/americas/usmnt-berhalter.html
+
 **Judge Rules Against Release of Covenant School Shooter’s Writings**\
 `Whether to publish the voluminous paper trail left behind by the assailant was one of the most contested issues that arose from the attack.`\
 https://nytimes.com/2024/07/05/us/covenant-school-shooter-writings.html
