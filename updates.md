@@ -1,3 +1,7 @@
+**Keir Starmer Vows ‘National Renewal’ in First Speech as U.K. Prime Minister**\
+`The Labour leader promised in a speech in Downing Street to restore Britain’s faith in politics and public service.`\
+https://nytimes.com/2024/07/05/world/europe/keir-starmer-prime-minister-speech-election.html
+
 **Video Submission Form for Our 15th Annual Summer Reading Contest**\
 `Use this page to tell us what got your attention in The New York Times in 2024 via a 90-second video.`\
 https://nytimes.com/2024/07/05/learning/video-submission-form-for-our-15th-annual-summer-reading-contest.html

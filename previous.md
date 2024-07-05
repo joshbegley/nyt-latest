@@ -1,3 +1,7 @@
+**Keir Starmer Vows ‘National Renewal’ in First Speech as U.K. Prime Minister**\
+`The Labour leader promised in a speech in Downing Street to restore Britain’s faith in politics and public service.`\
+https://nytimes.com/2024/07/05/world/europe/keir-starmer-prime-minister-speech-election.html
+
 **Video Submission Form for Our 15th Annual Summer Reading Contest**\
 `Use this page to tell us what got your attention in The New York Times in 2024 via a 90-second video.`\
 https://nytimes.com/2024/07/05/learning/video-submission-form-for-our-15th-annual-summer-reading-contest.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5617842/2024/07/05/merih-demiral-ban-suspension-tur
 **Bournemouth keen on signing Fran Garcia from Real Madrid**\
 `Bournemouth are interested in signing Fran Garcia from Real Madrid.`\
 https://nytimes.com/athletic/5617811/2024/07/05/fran-garcia-real-madrid-bournemouth/
-
-**What happens when a general election enters the Wimbledon bubble?**\
-`The fourth day of Wimbledon 2024 was general election day, but that wasn't obvious inside one of Britain's most hallowed spaces`\
-https://nytimes.com/athletic/5616163/2024/07/05/wimbledon-uk-general-election-all-england-club/
 
