@@ -1,3 +1,7 @@
+**Talks on Gaza Cease-fire Revive After Weeks of Deadlock**\
+`The negotiations had been stalled for weeks until Hamas announced on Wednesday that it had exchanged some ideas with mediators on a new way forward.`\
+https://nytimes.com/2024/07/05/world/middleeast/gaza-cease-fire-talks-israel-hamas.html
+
 **With free agency settling, can anyone say the Kings have improved?**\
 `The Kings added three players this week — Warren Foegele, Tanner Jeannot and Joel Edmundson — which seemed underwhelming.`\
 https://nytimes.com/athletic/5616834/2024/07/05/la-kings-blake-free-agents/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/05/world/europe/downing-street-new-prime-minister.ht
 **Slot focused on developing talent at Liverpool over transfers**\
 `Liverpool&#8217;s new head coach Arne Slot insists he is focused on developing the talent he has inherited at the club rather than transfer business.`\
 https://nytimes.com/athletic/5617850/2024/07/05/arne-slot-liverpool-transfers/
-
-**Moderates Win a Round in Britain — But a Larger Battle Against Extremism Looms**\
-`It is a little early to celebrate this election as a triumph for the center.`\
-https://nytimes.com/2024/07/05/opinion/uk-election-labour-conservatives.html
 
