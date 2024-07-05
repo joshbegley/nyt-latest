@@ -1,3 +1,7 @@
+**Corrections: July 5, 2024**\
+`Corrections that appeared in print on Friday, July 5, 2024.`\
+https://nytimes.com/2024/07/05/pageoneplus/corrections-july-5-2024.html
+
 **The Greens Take a Bite Out of Labour’s Vote Share**\
 `The left-leaning Green Party, which is particularly popular with people under 30, took seven percent of the vote and will now have four lawmakers in Parliament.`\
 https://nytimes.com/2024/07/05/world/europe/the-greens-take-a-bite-out-of-labours-vote-share.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/05/world/europe/keir-starmer-prime-minister-speech-e
 **Video Submission Form for Our 15th Annual Summer Reading Contest**\
 `Use this page to tell us what got your attention in The New York Times in 2024 via a 90-second video.`\
 https://nytimes.com/2024/07/05/learning/video-submission-form-for-our-15th-annual-summer-reading-contest.html
-
-**Britain’s Liberal Democrats Score Big Election Gains**\
-`The small centrist party campaigned on improving health and social care. Its leader, Ed Davey, wooed voters with publicity stunts and personal appeals.`\
-https://nytimes.com/2024/07/05/world/europe/uk-liberal-democrats-ed-davey-election.html
 

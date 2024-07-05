@@ -1,3 +1,15 @@
+**Judge Rules Against Release of Covenant School Shooter’s Writings**\
+`Whether to publish the voluminous paper trail left behind by the assailant was one of the most contested issues that arose from the attack.`\
+https://nytimes.com/2024/07/05/us/covenant-school-shooter-writings.html
+
+**The stakes are high for Biden. Here’s the latest.**\
+`By Nicholas Nehamas`\
+https://nytimes.com/live/2024/07/05/us/biden-trump-2024-election/the-stakes-are-high-for-biden-heres-the-latest
+
+**Election Live Updates: Embattled Biden Hits Trail and Sits for Crucial Interview**\
+`President Biden on Friday will deliver a speech in Wisconsin and sit for a major network interview, part of a weekend lineup of events that could be make-or-break for his campaign.`\
+https://nytimes.com/live/2024/07/05/us/biden-trump-2024-election
+
 **Corrections: July 5, 2024**\
 `Corrections that appeared in print on Friday, July 5, 2024.`\
 https://nytimes.com/2024/07/05/pageoneplus/corrections-july-5-2024.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/europe/100000009556595/uk-election-keir-starmer.
 **The Composer Who Changed Opera With ‘a Beautiful Simplicity’**\
 `In the mid-1700s, Christoph Willibald Gluck overthrew the musical excesses around him. A marathon double bill in France shows the vibrancy of his vision.`\
 https://nytimes.com/2024/07/05/arts/music/gluck-iphigenie-operas-aix.html
-
-**NASCAR returns to Chicago Street Course, hoping for a smoother ride this time**\
-`NASCAR's Chicago Street Race debut was greeted with local backlash and terrible weather. Year 2 brings a more optimistic forecast.`\
-https://nytimes.com/athletic/5617328/2024/07/05/nascar-chicago-street-course-weather-grant-park/
-
-**Keir Starmer Vows ‘National Renewal’ in First Speech as U.K. Prime Minister**\
-`The Labour leader promised in a speech in Downing Street to restore Britain’s faith in politics and public service.`\
-https://nytimes.com/2024/07/05/world/europe/keir-starmer-prime-minister-speech-election.html
-
-**Video Submission Form for Our 15th Annual Summer Reading Contest**\
-`Use this page to tell us what got your attention in The New York Times in 2024 via a 90-second video.`\
-https://nytimes.com/2024/07/05/learning/video-submission-form-for-our-15th-annual-summer-reading-contest.html
 

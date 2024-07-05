@@ -1,3 +1,7 @@
+**Corrections: July 5, 2024**\
+`Corrections that appeared in print on Friday, July 5, 2024.`\
+https://nytimes.com/2024/07/05/pageoneplus/corrections-july-5-2024.html
+
 **The Greens Take a Bite Out of Labour’s Vote Share**\
 `The left-leaning Green Party, which is particularly popular with people under 30, took seven percent of the vote and will now have four lawmakers in Parliament.`\
 https://nytimes.com/2024/07/05/world/europe/the-greens-take-a-bite-out-of-labours-vote-share.html
