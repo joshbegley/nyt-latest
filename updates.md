@@ -1,3 +1,11 @@
+**Brighton complete signing of Wieffer from Feyenoord**\
+`Brighton &amp; Hove Albion have signed Netherlands international midfielder Mats Wieffer from Feyenoord.`\
+https://nytimes.com/athletic/5616350/2024/07/05/mats-wieffer-brighton-feyenoord/
+
+**Martin Necas among 14 NHL players electing for salary arbitration**\
+`The Hurricanes forward is among 14 NHL players who have filed for salary arbitration before Friday's 5 p.m. Eastern deadline.`\
+https://nytimes.com/athletic/5619174/2024/07/05/nhl-salary-arbitration-players/
+
 **The Briefing: Portugal 0 France 0: Penalties decide cagey quarter-final as Mbappe progresses and Ronaldo goes out**\
 `We break down the key moments from Friday night's quarter-final in Hamburg`\
 https://nytimes.com/athletic/5614352/2024/07/05/portugal-france-euro-2024-result-analysis/

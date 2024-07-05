@@ -1,3 +1,11 @@
+**Brighton complete signing of Wieffer from Feyenoord**\
+`Brighton &amp; Hove Albion have signed Netherlands international midfielder Mats Wieffer from Feyenoord.`\
+https://nytimes.com/athletic/5616350/2024/07/05/mats-wieffer-brighton-feyenoord/
+
+**Martin Necas among 14 NHL players electing for salary arbitration**\
+`The Hurricanes forward is among 14 NHL players who have filed for salary arbitration before Friday's 5 p.m. Eastern deadline.`\
+https://nytimes.com/athletic/5619174/2024/07/05/nhl-salary-arbitration-players/
+
 **Paal Enger, Who Stole Munch’s ‘The Scream,’ Is Dead at 57**\
 `A promising player for a storied Norwegian soccer club, he instead found infamy for stealing one of the world’s most famous artworks.`\
 https://nytimes.com/2024/07/05/arts/paal-enger-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/05/us/politics/immunity-trump-classified-documents-s
 **Wimbledon day 5: Coco Gauff and Emma Raducanu march on, rain plays havoc**\
 `No. 2 seed Gauff ended a British fairytale, as the rain played havoc with SW19's tennis schedule`\
 https://nytimes.com/athletic/5618711/2024/07/05/wimbledon-recap-coco-gauff-beats-sonay-kartal-and-raducanu-advances-on-day-five/
-
-**A Hollow Labor Victory Brings Change to Britain**\
-`A commanding supermajority derived from only 20 percent support looks like a recipe for a backlash.`\
-https://nytimes.com/live/2024/07/02/opinion/thepoint/labor-election-uk
-
-**Standouts and observations from Red Wings development camp**\
-`Breaking down who stood out at the Red Wings' 2024 development camp.`\
-https://nytimes.com/athletic/5618585/2024/07/05/red-wings-development-camp-nate-danielson/
 
