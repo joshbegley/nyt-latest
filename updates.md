@@ -1,3 +1,7 @@
+**Green Juice**\
+`Trent H. Evans opens our solving weekend with a fresh and lively puzzle.`\
+https://nytimes.com/2024/07/04/crosswords/daily-puzzle-2024-07-05.html
+
 **8-Year-Old Is Killed and Two Adults Wounded in Queens Stabbing**\
 `Police officers arrived at an apartment in Jamaica to find a man holding his father at knife point and an 8-year-old mortally wounded.`\
 https://nytimes.com/2024/07/04/nyregion/boy-dead-jamaica-queens.html
