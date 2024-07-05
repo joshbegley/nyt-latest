@@ -1,3 +1,15 @@
+**Transcript: Ezra Klein Interviews Elaina Plott Calabro**\
+`The July 5, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/07/05/podcasts/transcript-ezra-klein-interviews-elaina-plott-calabro.html
+
+**Divided and Undecided, 2024’s America Rhymes With 1924’s**\
+`Hearing echoes of Independence Day a century ago, when Americans were clashing over race, religion, immigration and presidential candidates.`\
+https://nytimes.com/2024/07/05/us/politics/democratic-convention-1924.html
+
+**Messi says injury made him train 'with fear' ahead of Ecuador game**\
+`Argentina captain Lionel Messi says his thigh injury saw him train “with lots of fear” in the build-up to his side’s Copa America game against Ecuador.`\
+https://nytimes.com/athletic/5618473/2024/07/05/lionel-messi-injury-copa-america-argentina/
+
 **The Windup: Four teams close to accepting deadline fates**\
 `Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
 https://nytimes.com/athletic/5618403/2024/07/05/mlb-trade-deadline-hall-of-fame-the-windup/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/05/arts/nancy-azara-dead.html
 **Samuel Eto'o fined after investigation into violating CAF's principles**\
 `Samuel Eto’o has been fined by Confederation Africaine de Football (CAF) after an investigation into alleged violation of the principles of ethics and integrity.`\
 https://nytimes.com/athletic/5617344/2024/07/05/samuel-etoo-fined-caf-investigation/
-
-**Your Premier League club's pre-season fixtures for the 2024-25 season**\
-`From the Sunshine State Tour to a Bayern Munich double-header, this is how each English top-flight club is shaping up`\
-https://nytimes.com/athletic/5614760/2024/07/05/premier-league-pre-season-fixtures-training-2024-25/
-
-**Kazakh Journalist’s Killing Sends Chill Through Exiles in Ukraine**\
-`Aidos Sadykov, an opposition activist whose YouTube channel often criticizes Kazakhstan’s government, was shot in Ukraine, where he was living in exile.`\
-https://nytimes.com/2024/07/05/world/europe/journalist-sadykov-assassination-ukraine.html
-
-**Chelsea agree deal to sign Renato Veiga from FC Basel**\
-`Chelsea have agreed a deal with FC Basel to sign Renato Veiga.`\
-https://nytimes.com/athletic/5618375/2024/07/05/chelsea-transfers-renato-veiga/
 
