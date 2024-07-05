@@ -1,3 +1,7 @@
+**Investors Bet on Rate Cuts as Recent Data Suggests Slowdown**\
+`Markets are expecting the Federal Reserve to make roughly two reductions of a quarter-point each this year.`\
+https://nytimes.com/2024/07/05/business/economy/jobs-report-markets.html
+
 **A Dazzling Eruption of Lava Spews Out of Mount Etna**\
 `Clouds of ash went nearly 15,000 feet into the air, and the airport in Catania, Sicily, was forced to shut down because the runway was unusable.`\
 https://nytimes.com/2024/07/05/world/europe/mount-etna-volcano-eruption.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/05/movies/kids-movies-streaming.html
 **Cresswell's Toulouse move back on**\
 `Leeds United defender Charlie Cresswell&#8217;s move to Ligue 1 side Toulouse is back on after initially breaking down over personal terms earlier in the week.`\
 https://nytimes.com/athletic/5617803/2024/07/05/leeds-transfers-charlie-cresswell/
-
-**Live Updates: U.S. Jobs Report Expected to Show Slower Pace of Hiring**\
-`The economy remains solid, but many analysts predicted that today’s data will show that the labor market shifted into a lower gear in June.`\
-https://nytimes.com/live/2024/07/05/business/june-jobs-report
 
