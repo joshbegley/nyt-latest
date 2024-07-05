@@ -1,3 +1,7 @@
+**Reds poised for season-defining homestand after sweeping the Yankees**\
+`Spencer Steer hit a three-run homer and said: “We can play with anyone when we put together complete baseball games."`\
+https://nytimes.com/athletic/5617421/2024/07/04/reds-sweep-yankees/
+
 **Even without Kyle Tucker, the Astros' 'selfless' offense is thriving**\
 `The Astros' hot bats reinforce a thought that the team should focus all of its attention on pitching at the trade deadline.`\
 https://nytimes.com/athletic/5617417/2024/07/04/astros-kyle-tucker-offense-selfless/
