@@ -1,3 +1,11 @@
+**Kazakh Journalist’s Killing Sends Chill Through Exiles in Ukraine**\
+`Aidos Sadykov, an opposition activist whose YouTube channel often criticizes Kazakhstan’s government, was shot in Ukraine, where he was living in exile.`\
+https://nytimes.com/2024/07/05/world/europe/journalist-sadykov-assassination-ukraine.html
+
+**Chelsea agree deal to sign Renato Veiga from FC Basel**\
+`Chelsea have agreed a deal with FC Basel to sign Renato Veiga.`\
+https://nytimes.com/athletic/5618375/2024/07/05/chelsea-transfers-renato-veiga/
+
 **‘Prosper’ Is a Juicy Megachurch Drama**\
 `This Australian series has enough tawdry scandals to qualify as a soap and enough Shakespearean power lust to qualify as a fancy drama.`\
 https://nytimes.com/2024/07/05/arts/television/prosper-review.html

@@ -1,3 +1,11 @@
+**Kazakh Journalist’s Killing Sends Chill Through Exiles in Ukraine**\
+`Aidos Sadykov, an opposition activist whose YouTube channel often criticizes Kazakhstan’s government, was shot in Ukraine, where he was living in exile.`\
+https://nytimes.com/2024/07/05/world/europe/journalist-sadykov-assassination-ukraine.html
+
+**Chelsea agree deal to sign Renato Veiga from FC Basel**\
+`Chelsea have agreed a deal with FC Basel to sign Renato Veiga.`\
+https://nytimes.com/athletic/5618375/2024/07/05/chelsea-transfers-renato-veiga/
+
 **‘Prosper’ Is a Juicy Megachurch Drama**\
 `This Australian series has enough tawdry scandals to qualify as a soap and enough Shakespearean power lust to qualify as a fancy drama.`\
 https://nytimes.com/2024/07/05/arts/television/prosper-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/05/world/europe/jewish-voters-labour-uk.html
 **Who Is Rachel Reeves, the Woman Taking the Helm of Britain’s Economy?**\
 `As the newly named chancellor of the Exchequer, she is taking on the tough job of boosting Britain’s productivity growth and of reviving struggling public services.`\
 https://nytimes.com/2024/07/05/world/europe/rachel-reeves-uk-chancellor-economy.html
-
-**What’s the Deal With All the Flags on the Jersey Shore?**\
-`One journalist, a resident of the beach town Avalon, N.J., wanted to find out.`\
-https://nytimes.com/2024/07/05/insider/whats-the-deal-with-all-the-flags-on-the-jersey-shore.html
-
-**Brazil Police Accuse Bolsonaro of Embezzling Saudi Jewels**\
-`Brazil’s former president, Jair Bolsonaro, may soon face criminal charges for stealing gifts he received from foreign leaders.`\
-https://nytimes.com/2024/07/05/world/americas/brazil-bolsonaro-police-embezzlement.html
 
