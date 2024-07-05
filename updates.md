@@ -1,3 +1,7 @@
+**Ecuador part ways with Felix Sanchez following Copa America exit**\
+`Ecuador has parted ways with coach Felix Sanchez following their exit from the 2024 Copa America.`\
+https://nytimes.com/athletic/5617713/2024/07/05/felix-sanchez-ecuador-sacked-copa-america/
+
 **Man Who Stabbed South Korea’s Opposition Leader Is Sentenced to 15 Years**\
 `The attack on Lee Jae-myung in January raised alarms about South Korea’s political polarization. His assailant was convicted of attempted murder.`\
 https://nytimes.com/2024/07/05/world/asia/stabbed-south-korea-lee-jae-myung.html

@@ -1,3 +1,7 @@
+**Ecuador part ways with Felix Sanchez following Copa America exit**\
+`Ecuador has parted ways with coach Felix Sanchez following their exit from the 2024 Copa America.`\
+https://nytimes.com/athletic/5617713/2024/07/05/felix-sanchez-ecuador-sacked-copa-america/
+
 **Man Who Stabbed South Korea’s Opposition Leader Is Sentenced to 15 Years**\
 `The attack on Lee Jae-myung in January raised alarms about South Korea’s political polarization. His assailant was convicted of attempted murder.`\
 https://nytimes.com/2024/07/05/world/asia/stabbed-south-korea-lee-jae-myung.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5617009/2024/07/05/f1-max-verstappen-racing-style-l
 **Don’t Doubt NATO. It Saved My People.**\
 `NATO’s intervention against Serbia’s campaign against Kosovo set the tiny country up for independence.`\
 https://nytimes.com/2024/07/05/opinion/kosovo-nato-independence-democracy-serbia.html
-
-**Why West Ham want Max Kilman - and why Wolves are ready to let him go**\
-`The centre-half is close to swapping Molineux for the London Stadium as Julen Lopetegui seeks to strengthen his defensive ranks`\
-https://nytimes.com/athletic/5616433/2024/07/05/kilman-west-ham-wolves-lopetegui/
 
