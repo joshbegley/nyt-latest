@@ -16,7 +16,7 @@ https://nytimes.com/2024/07/05/dining/cajun-shrimp-boil-summer-recipes.html
 
 **Five Science Fiction Movies to Stream Now**\
 `In this month’s sci-fi picks, life on Mars, a social dystopia set in near-future London and a meet-cute after a spaceship accident.`\
-https://nytimes.com/2024/07/05/movies/five-science-fiction-movies-to-stream-now.html
+https://nytimes.com/2024/07/05/movies/science-fiction-movies-streaming.html
 
 **Labour Wins Back Trust of British Jews Who Turned From the Party**\
 `Keir Starmer had made rooting out antisemitism from the Labour Party’s ranks a goal of his leadership.`\
