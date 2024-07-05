@@ -1,3 +1,11 @@
+**A Dazzling Eruption of Lava Spews Out of Mount Etna**\
+`Clouds of ash went nearly 15,000 feet into the air, and the airport in Catania, Sicily, was forced to shut down because the runway was unusable.`\
+https://nytimes.com/2024/07/05/world/europe/mount-etna-volcano-eruption.html
+
+**Italy’s Mount Etna Erupts**\
+`Bright lava spewed from the volcano, trailing down the mountain as a thick plume of smoke filled the sky and left streets covered in ash.`\
+https://nytimes.com/video/world/europe/100000009556440/italys-mount-etna-erupts.html
+
 **Fed Officials Keep an Eye Out for Cracks in the Job Market**\
 `Federal Reserve policymakers are watching for any sign that the labor market is weakening abruptly, which might prod them to cut rates sooner.`\
 https://nytimes.com/2024/07/05/business/economy/fed-labor-market.html

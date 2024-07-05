@@ -1,3 +1,11 @@
+**A Dazzling Eruption of Lava Spews Out of Mount Etna**\
+`Clouds of ash went nearly 15,000 feet into the air, and the airport in Catania, Sicily, was forced to shut down because the runway was unusable.`\
+https://nytimes.com/2024/07/05/world/europe/mount-etna-volcano-eruption.html
+
+**Italy’s Mount Etna Erupts**\
+`Bright lava spewed from the volcano, trailing down the mountain as a thick plume of smoke filled the sky and left streets covered in ash.`\
+https://nytimes.com/video/world/europe/100000009556440/italys-mount-etna-erupts.html
+
 **Fed Officials Keep an Eye Out for Cracks in the Job Market**\
 `Federal Reserve policymakers are watching for any sign that the labor market is weakening abruptly, which might prod them to cut rates sooner.`\
 https://nytimes.com/2024/07/05/business/economy/fed-labor-market.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5617803/2024/07/05/leeds-transfers-charlie-cresswel
 **Live Updates: U.S. Jobs Report Expected to Show Slower Pace of Hiring**\
 `The economy remains solid, but many analysts predicted that today’s data will show that the labor market shifted into a lower gear in June.`\
 https://nytimes.com/live/2024/07/05/business/june-jobs-report
-
-**The Pulse: Messi doinks a PK, but plays on**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5617546/2024/07/05/argentina-ecuador-pks-copa-america-the-pulse/
-
-**Sunak Defends Record in Last Speech as Prime Minister**\
-`In brief remarks in Downing Street, he apologized to Britain for his failings and accepted responsibility for his party’s stinging election defeat.`\
-https://nytimes.com/2024/07/05/world/europe/sunak-speech-prime-minister-election.html
 
