@@ -1,3 +1,7 @@
+**It’s Still Barbie’s World**\
+`A new exhibition reminds us that while the famous doll can now do any job, her greatest power is selling stuff — to children and adults alike.`\
+https://nytimes.com/2024/07/05/arts/design/its-still-barbies-world.html
+
 **Fresh Jobs Data Spurs Investors to Bet on September Fed Rate Cut**\
 `As unemployment ticks up and wage growth cools, Federal Reserve officials are watching for signs that the job market is about to crack.`\
 https://nytimes.com/2024/07/05/business/jobs-report-fed-rates.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/05/us/biden-trump-2024-election/the-stakes-are-
 **Election Live Updates: Embattled Biden Hits Trail and Sits for Crucial Interview**\
 `President Biden on Friday will deliver a speech in Wisconsin and sit for a major network interview, part of a weekend lineup of events that could be make-or-break for his campaign.`\
 https://nytimes.com/live/2024/07/05/us/biden-trump-2024-election
-
-**Corrections: July 5, 2024**\
-`Corrections that appeared in print on Friday, July 5, 2024.`\
-https://nytimes.com/2024/07/05/pageoneplus/corrections-july-5-2024.html
 

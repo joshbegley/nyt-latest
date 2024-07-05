@@ -1,3 +1,7 @@
+**It’s Still Barbie’s World**\
+`A new exhibition reminds us that while the famous doll can now do any job, her greatest power is selling stuff — to children and adults alike.`\
+https://nytimes.com/2024/07/05/arts/design/its-still-barbies-world.html
+
 **Fresh Jobs Data Spurs Investors to Bet on September Fed Rate Cut**\
 `As unemployment ticks up and wage growth cools, Federal Reserve officials are watching for signs that the job market is about to crack.`\
 https://nytimes.com/2024/07/05/business/jobs-report-fed-rates.html
