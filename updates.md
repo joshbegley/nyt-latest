@@ -1,3 +1,11 @@
+**Six People Injured After Being Struck By Pickup Truck in Downtown Manhattan**\
+`At least six people were injured on the Lower East Side, according to a spokesman from the New York City Fire Department.`\
+https://nytimes.com/2024/07/04/nyregion/lower-east-side-manhattan-truck-pedestrians-accident.html
+
+**Jeremy Corbyn Wins Election Against Labour, Party He Once Led**\
+`The victory was vindication for Mr. Corbyn, who was running for the first time against the Labour party.`\
+https://nytimes.com/2024/07/04/world/europe/corbyn-london-labour-election.html
+
 **Green Juice**\
 `Trent H. Evans opens our solving weekend with a fresh and lively puzzle.`\
 https://nytimes.com/2024/07/04/crosswords/daily-puzzle-2024-07-05.html
