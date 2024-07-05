@@ -1,3 +1,11 @@
+**Takeaways: Argentina wins penalty shootout to reach semifinals, Messi misses from spot**\
+`Highlights of the drama from Houston`\
+https://nytimes.com/athletic/5617511/2024/07/04/argentina-ecuador-penalties-semifinals-messi/
+
+**Two Dead After Being Struck By Pickup Truck in Downtown Manhattan**\
+`At least nine people who were celebrating the July 4 holiday were struck by the truck on the Lower East Side, the authorities said.`\
+https://nytimes.com/2024/07/04/nyregion/lower-east-side-manhattan-truck-pedestrians-accident.html
+
 **Argentina wins penalty shootout to reach semifinals, Messi misses from spot**\
 `Highlights of the drama from Houston`\
 https://nytimes.com/athletic/5617511/2024/07/04/argentina-ecuador-penalties-semifinals-messi/

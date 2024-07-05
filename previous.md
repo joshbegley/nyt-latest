@@ -1,4 +1,4 @@
-**Argentina wins penalty shootout to reach semifinals, Messi misses from spot**\
+**Takeaways: Argentina wins penalty shootout to reach semifinals, Messi misses from spot**\
 `Highlights of the drama from Houston`\
 https://nytimes.com/athletic/5617511/2024/07/04/argentina-ecuador-penalties-semifinals-messi/
 
@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5617535/2024/07/04/ryan-garcia-expelled-wbc-boxing/
 https://nytimes.com/2024/07/04/world/europe/farage-parliament-reform-election.html
 
 **Two Dead After Being Struck By Pickup Truck in Downtown Manhattan**\
-`At least nine people were struck by the truck on the Lower East Side, the authorities said.`\
+`At least nine people who were celebrating the July 4 holiday were struck by the truck on the Lower East Side, the authorities said.`\
 https://nytimes.com/2024/07/04/nyregion/lower-east-side-manhattan-truck-pedestrians-accident.html
 
 **Jeremy Corbyn Wins Election Against Labour, Party He Once Led**\
