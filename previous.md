@@ -1,3 +1,7 @@
+**‘Prosper’ Is a Juicy Megachurch Drama**\
+`This Australian series has enough tawdry scandals to qualify as a soap and enough Shakespearean power lust to qualify as a fancy drama.`\
+https://nytimes.com/2024/07/05/arts/television/prosper-review.html
+
 **How to Watch Biden’s Prime-time Interview**\
 `President Biden is giving his first television interview since last week’s debate to George Stephanopoulos of ABC News, a key moment as he tries to rebound from a poor performance.`\
 https://nytimes.com/2024/07/05/us/politics/how-to-watch-biden-interview-abc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/05/insider/whats-the-deal-with-all-the-flags-on-the-
 **Brazil Police Accuse Bolsonaro of Embezzling Saudi Jewels**\
 `Brazil’s former president, Jair Bolsonaro, may soon face criminal charges for stealing gifts he received from foreign leaders.`\
 https://nytimes.com/2024/07/05/world/americas/brazil-bolsonaro-police-embezzlement.html
-
-**Wisconsin Supreme Court Says Ballot Drop Boxes Can Again Be Used**\
-`The decision by the court’s liberal majority, delivered four months before the November election, reverses a ruling by conservative jurists two years ago.`\
-https://nytimes.com/2024/07/05/us/wisconsin-supreme-court-absentee-ballots.html
 

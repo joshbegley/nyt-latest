@@ -1,3 +1,7 @@
+**‘Prosper’ Is a Juicy Megachurch Drama**\
+`This Australian series has enough tawdry scandals to qualify as a soap and enough Shakespearean power lust to qualify as a fancy drama.`\
+https://nytimes.com/2024/07/05/arts/television/prosper-review.html
+
 **How to Watch Biden’s Prime-time Interview**\
 `President Biden is giving his first television interview since last week’s debate to George Stephanopoulos of ABC News, a key moment as he tries to rebound from a poor performance.`\
 https://nytimes.com/2024/07/05/us/politics/how-to-watch-biden-interview-abc.html
