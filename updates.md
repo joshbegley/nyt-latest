@@ -1,3 +1,7 @@
+**Standouts and observations from Red Wings development camp**\
+`Breaking down who stood out at the Red Wings' 2024 development camp.`\
+https://nytimes.com/athletic/5618585/2024/07/05/red-wings-development-camp-nate-danielson/
+
 **Endrick to make first Brazil start in Uruguay quarterfinal**\
 `Endrick will make a first start for Brazil in their Copa America quarterfinal against Uruguay.`\
 https://nytimes.com/athletic/5619097/2024/07/05/endrick-starts-brazil-team-news/

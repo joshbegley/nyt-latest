@@ -1,3 +1,7 @@
+**Standouts and observations from Red Wings development camp**\
+`Breaking down who stood out at the Red Wings' 2024 development camp.`\
+https://nytimes.com/athletic/5618585/2024/07/05/red-wings-development-camp-nate-danielson/
+
 **Endrick to make first Brazil start in Uruguay quarterfinal**\
 `Endrick will make a first start for Brazil in their Copa America quarterfinal against Uruguay.`\
 https://nytimes.com/athletic/5619097/2024/07/05/endrick-starts-brazil-team-news/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5618974/2024/07/05/andy-murray-raducanu-when-time/
 **The White Party That Brought Kim Kardashian, Drake and Tom Brady to the Hamptons**\
 `Michael Rubin, the billionaire e-commerce mogul, hosted a celebrity-filled, Independence Day bash at his beachfront mansion on Long Island.`\
 https://nytimes.com/2024/07/05/style/michael-rubin-july-fourth-party.html
-
-**Christen Press on Angel City sale, player investment and focus on the pitch**\
-`Willow Bay and her husband, Disney CEO Bob Iger, are nearing a deal for a controlling stake in Angel City.`\
-https://nytimes.com/athletic/5618852/2024/07/05/christen-press-angel-city-sale/
 
