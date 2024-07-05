@@ -1,3 +1,7 @@
+**Brazil Police Accuse Bolsonaro of Embezzling Saudi Jewels**\
+`Brazil’s former president, Jair Bolsonaro, may soon face criminal charges for stealing gifts he received from foreign leaders.`\
+https://nytimes.com/2024/07/05/world/americas/brazil-bolsonaro-police-embezzlement.html
+
 **Wisconsin Supreme Court Says Ballot Drop Boxes Can Again Be Used**\
 `The decision by the court’s liberal majority, delivered four months before the November election, reverses a ruling by conservative jurists two years ago.`\
 https://nytimes.com/2024/07/05/us/wisconsin-supreme-court-absentee-ballots.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/05/world/americas/usmnt-berhalter.html
 **Judge Rules Against Release of Covenant School Shooter’s Writings**\
 `Whether to publish the voluminous paper trail left behind by the assailant was one of the most contested issues that arose from the attack.`\
 https://nytimes.com/2024/07/05/us/covenant-school-shooter-writings.html
-
-**The stakes are high for Biden. Here’s the latest.**\
-`By Nicholas Nehamas`\
-https://nytimes.com/live/2024/07/05/us/biden-trump-2024-election/the-stakes-are-high-for-biden-heres-the-latest
 

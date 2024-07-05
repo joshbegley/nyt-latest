@@ -1,3 +1,7 @@
+**Brazil Police Accuse Bolsonaro of Embezzling Saudi Jewels**\
+`Brazil’s former president, Jair Bolsonaro, may soon face criminal charges for stealing gifts he received from foreign leaders.`\
+https://nytimes.com/2024/07/05/world/americas/brazil-bolsonaro-police-embezzlement.html
+
 **Wisconsin Supreme Court Says Ballot Drop Boxes Can Again Be Used**\
 `The decision by the court’s liberal majority, delivered four months before the November election, reverses a ruling by conservative jurists two years ago.`\
 https://nytimes.com/2024/07/05/us/wisconsin-supreme-court-absentee-ballots.html
