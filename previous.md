@@ -1,3 +1,15 @@
+**Britain’s Conservative Party Was Routed**\
+`Plus, President Biden says he’ll stay in the race.`\
+https://nytimes.com/2024/07/05/briefing/britain-labour-party-wins-biden-iran-hurricane-beryl.html
+
+**After Immunity Ruling, Trump Seeks Delay of Classified Documents Case**\
+`The former president’s lawyers asked to freeze nearly all proceedings while they sort out whether the Supreme Court decision applies to charges focused on actions after he left the White House.`\
+https://nytimes.com/2024/07/05/us/politics/immunity-trump-classified-documents-supreme-court.html
+
+**Wimbledon day 5: Coco Gauff and Emma Raducanu march on, rain plays havoc**\
+`No. 2 seed Gauff ended a British fairytale, as the rain played havoc with SW19's tennis schedule`\
+https://nytimes.com/athletic/5618711/2024/07/05/wimbledon-recap-coco-gauff-beats-sonay-kartal-and-raducanu-advances-on-day-five/
+
 **A Hollow Labor Victory Brings Change to Britain**\
 `A commanding supermajority derived from only 20 percent support looks like a recipe for a backlash.`\
 https://nytimes.com/live/2024/07/02/opinion/thepoint/a-hollow-labor-victory-brings-change-to-britain
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5616015/2024/07/05/burnley-scott-parker-confirmed/
 **Is It OK to Get Food Stamps When You’re Just Pursuing Your Passion?**\
 `The magazine’s Ethicist columnist on whether a struggling artist with a personal safety net should receive government assistance.`\
 https://nytimes.com/2024/07/05/magazine/artist-food-stamps-ethics.html
-
-**Keep an Eye on Israel’s North**\
-`A wider war with Hezbollah would be immensely destructive.`\
-https://nytimes.com/live/2024/07/02/opinion/thepoint/israel-hezbollah-gaza
-
-**Blackhawks GM Kyle Davidson: Offseason moves will create better development path in NHL, AHL**\
-`The Blackhawks will look different next season with more veterans, but does that alter Davidson's development plan for prospects?`\
-https://nytimes.com/athletic/5618787/2024/07/05/blackhawks-offseason-free-agency-nhl-ahl/
-
-**Murray and Raducanu scheduled for mixed doubles on Saturday**\
-`Andy Murray and Emma Raducanu will play fourth on Court One at Wimbledon on Saturday.`\
-https://nytimes.com/athletic/5618974/2024/07/05/andy-murray-raducanu-when-time/
 

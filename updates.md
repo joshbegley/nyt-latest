@@ -1,3 +1,15 @@
+**Britain’s Conservative Party Was Routed**\
+`Plus, President Biden says he’ll stay in the race.`\
+https://nytimes.com/2024/07/05/briefing/britain-labour-party-wins-biden-iran-hurricane-beryl.html
+
+**After Immunity Ruling, Trump Seeks Delay of Classified Documents Case**\
+`The former president’s lawyers asked to freeze nearly all proceedings while they sort out whether the Supreme Court decision applies to charges focused on actions after he left the White House.`\
+https://nytimes.com/2024/07/05/us/politics/immunity-trump-classified-documents-supreme-court.html
+
+**Wimbledon day 5: Coco Gauff and Emma Raducanu march on, rain plays havoc**\
+`No. 2 seed Gauff ended a British fairytale, as the rain played havoc with SW19's tennis schedule`\
+https://nytimes.com/athletic/5618711/2024/07/05/wimbledon-recap-coco-gauff-beats-sonay-kartal-and-raducanu-advances-on-day-five/
+
 **A Hollow Labor Victory Brings Change to Britain**\
 `A commanding supermajority derived from only 20 percent support looks like a recipe for a backlash.`\
 https://nytimes.com/live/2024/07/02/opinion/thepoint/a-hollow-labor-victory-brings-change-to-britain
