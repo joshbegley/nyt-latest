@@ -1,3 +1,11 @@
+**Juventus complete signing of goalkeeper Di Gregorio from Monza**\
+`Juventus have completed the signing of goalkeeper Michele Di Gregorio from Monza.`\
+https://nytimes.com/athletic/5618085/2024/07/05/michele-di-gregorio-juventus-transfer/
+
+**Carlos Alcaraz escapes Frances Tiafoe at Wimbledon in five-set thriller**\
+`The defending Wimbledon champion teetered on the precipice of disaster — until the tennis he knows best came alive in him when it mattered`\
+https://nytimes.com/athletic/5618405/2024/07/05/carlos-alcaraz-frances-tiafoe-wimbledon/
+
 **Count Binface and Elmo, both good losers, provided comic relief.**\
 `By Claire Moses`\
 https://nytimes.com/live/2024/07/04/world/uk-election-results/count-binface-and-elmo-both-good-losers-provided-comic-relief
