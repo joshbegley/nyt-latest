@@ -1,4 +1,4 @@
-**Bellingham given suspended one-match ban for Slovakia gesture**\
+**Bellingham given suspended ban for Slovakia gesture, available for Switzerland game**\
 `Jude Bellingham has been given a suspended one-game ban following a UEFA investigation into the lewd gesture he appeared to make towards the Slovakia bench in the European Championship last 16.`\
 https://nytimes.com/athletic/5609166/2024/07/05/jude-bellingham-england-ban-suspension/
 
