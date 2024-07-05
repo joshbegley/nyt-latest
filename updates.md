@@ -1,3 +1,7 @@
+**France’s Left-Wing New Popular Front Scored Big in Sunday’s Vote. Who Are They?**\
+`Parties on the left were so fractious, they broke up their alliance months ago, but the possibility of a government controlled by the far right drew them back together.`\
+https://nytimes.com/2024/07/05/world/europe/france-left-new-popular-front.html
+
 **Bullpen report: Porter Hodge enters Cubs' circle of trust, Mason Miller cools down and more**\
 `Greg Jewett reports on all the latest trends and key developments across MLB bullpens that fantasy baseball managers need to know.`\
 https://nytimes.com/athletic/5618689/2024/07/05/mlb-bullpen-fantasy-baseball-mason-miller-2/

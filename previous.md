@@ -1,3 +1,7 @@
+**France’s Left-Wing New Popular Front Scored Big in Sunday’s Vote. Who Are They?**\
+`Parties on the left were so fractious, they broke up their alliance months ago, but the possibility of a government controlled by the far right drew them back together.`\
+https://nytimes.com/2024/07/05/world/europe/france-left-new-popular-front.html
+
 **Bullpen report: Porter Hodge enters Cubs' circle of trust, Mason Miller cools down and more**\
 `Greg Jewett reports on all the latest trends and key developments across MLB bullpens that fantasy baseball managers need to know.`\
 https://nytimes.com/athletic/5618689/2024/07/05/mlb-bullpen-fantasy-baseball-mason-miller-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5618302/2024/07/05/sabres-development-camp-konsta-h
 **Juventus complete signing of goalkeeper Di Gregorio from Monza**\
 `Juventus have completed the signing of goalkeeper Michele Di Gregorio from Monza.`\
 https://nytimes.com/athletic/5618085/2024/07/05/michele-di-gregorio-juventus-transfer/
-
-**Carlos Alcaraz escapes Frances Tiafoe at Wimbledon in five-set thriller**\
-`The defending Wimbledon champion teetered on the precipice of disaster — until the tennis he knows best came alive in him when it mattered`\
-https://nytimes.com/athletic/5618405/2024/07/05/carlos-alcaraz-frances-tiafoe-wimbledon/
 
