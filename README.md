@@ -1,3 +1,7 @@
+**Nigel Farage, Right-Wing Disrupter, Elected to Parliament for the First Time**\
+`His upstart party, Reform U.K., was projected to win 13 seats, a very strong showing, according to a nationwide exit poll.`\
+https://nytimes.com/2024/07/04/world/europe/farage-parliament-reform-election.html
+
 **Six People Injured After Being Struck By Pickup Truck in Downtown Manhattan**\
 `At least six people were injured on the Lower East Side, according to a spokesman from the New York City Fire Department.`\
 https://nytimes.com/2024/07/04/nyregion/lower-east-side-manhattan-truck-pedestrians-accident.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5617417/2024/07/04/astros-kyle-tucker-offense-selfl
 **Wimbledon day 4 recap: The day a Grand Slam tournament came alive**\
 `Wimbledon 2024 came alive on its fourth day, with British battles, chants of USA, and plenty of matches with edge and drama.`\
 https://nytimes.com/athletic/5616996/2024/07/04/wimbledon-recap-grand-slam-comes-alive-on-general-election-day-and-4th-july/
-
-**Steve Yzerman discusses Red Wings' offseason, 2024-25 outlook**\
-`Yzerman met with media on Thursday to discuss the team's offseason moves and outlook.`\
-https://nytimes.com/athletic/5617182/2024/07/04/red-wings-free-agents-tarasenko/
 
