@@ -1,3 +1,7 @@
+**How Biden Might Be Thinking About the Decision Ahead of Him**\
+`Does Biden run? Does he step aside? His recurring considerations are family, legacy and, yes, his age.`\
+https://nytimes.com/2024/07/05/opinion/joe-biden-decision.html
+
 **The Reintroduction of Kamala Harris**\
 `Vice President Kamala Harris has spent the past year trying to quiet her doubters. Now, with President Biden’s candidacy on the line, Democrats are assessing whether she is up to being the nominee.`\
 https://nytimes.com/2024/07/05/us/politics/kamala-harris-biden.html
