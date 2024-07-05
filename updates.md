@@ -1,3 +1,11 @@
+**Mark Zuckerberg’s Surf Video Gets Lots of Likes (but Not From Elon Musk)**\
+`In a sequel to his much-mocked hydrofoil video, the Meta founder celebrates the Fourth of July in his own particular way.`\
+https://nytimes.com/2024/07/05/style/mark-zuckerbergs-surf-video-gets-lots-of-likes-but-not-from-elon-musk.html
+
+**Burnley appoint Parker as new head coach**\
+`Burnley have appointed Scott Parker as the club&#8217;s new head coach.`\
+https://nytimes.com/athletic/5616015/2024/07/05/burnley-scott-parker-confirmed/
+
 **Is It OK to Get Food Stamps When You’re Just Pursuing Your Passion?**\
 `The magazine’s Ethicist columnist on whether a struggling artist with a personal safety net should receive government assistance.`\
 https://nytimes.com/2024/07/05/magazine/artist-food-stamps-ethics.html
