@@ -1,3 +1,7 @@
+**Hurricane Beryl, Having Grown Stronger, Barrels Toward Yucatán Peninsula**\
+`The storm, now a Category 3, has already slammed Jamaica and Grenada this week. It is bringing hurricane-force winds, storm surge and heavy rain to Mexico on Friday morning.`\
+https://nytimes.com/article/hurricane-beryl-updates.html
+
 **How the Labour Party Wants to Change the U.K. Economy**\
 `With Britain’s productivity and wages stalled for the past decade and a half, the winning party in the general election faces a tall order.`\
 https://nytimes.com/2024/07/05/world/europe/labour-uk-economy-plan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/05/nyregion/mondaire-jones-bowman-wfp.html
 **On ‘Hard Fork,’ a Hard Look at the Future of Technology**\
 `Kevin Roose and Casey Newton reflect on the success of their podcast and look toward what’s next.`\
 https://nytimes.com/2024/07/05/insider/hard-fork-podcast.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/07/05/crosswords/spelling-bee-forum.html
 
