@@ -1,3 +1,7 @@
+**NASCAR returns to Chicago Street Course, hoping for a smoother ride this time**\
+`NASCAR's Chicago Street Race debut was greeted with local backlash and terrible weather. Year 2 brings a more optimistic forecast.`\
+https://nytimes.com/athletic/5617328/2024/07/05/nascar-chicago-street-course-weather-grant-park/
+
 **Keir Starmer Vows ‘National Renewal’ in First Speech as U.K. Prime Minister**\
 `The Labour leader promised in a speech in Downing Street to restore Britain’s faith in politics and public service.`\
 https://nytimes.com/2024/07/05/world/europe/keir-starmer-prime-minister-speech-election.html
