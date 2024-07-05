@@ -1,3 +1,11 @@
+**Organizers Say Abortion Access Is Headed to the Ballot in 3 More States**\
+`Arkansas is the third state this week where organizers said they had collected enough support for a petition to enshrine some abortion access in the State Constitution.`\
+https://nytimes.com/2024/07/05/us/politics/abortion-rights-ballot-measures.html
+
+**A Third House Democrat, Seth Moulton, Calls on Biden to Drop Out**\
+`Representative Lloyd Doggett was the first sitting House Democrat to urge President Biden to leave the race, followed by Representative Raúl M. Grijalva.`\
+https://nytimes.com/2024/07/05/us/politics/democrat-seth-moulton-biden-drop-out.html
+
 **Reform U.K.’s Success Is Latest Sign of Strength for Europe’s Far Right**\
 `The insurgent anti-immigration party led by Nigel Farage secured around 14 percent of the vote in Britain’s general election, though it has won only five parliamentary seats.`\
 https://nytimes.com/2024/07/05/world/europe/reform-uks-success-is-latest-sign-of-strength-for-europes-far-right.html
