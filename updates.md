@@ -1,3 +1,7 @@
+**Biden’s upcoming interview represents a relatively rare encounter with traditional news media.**\
+`The president has`\
+https://nytimes.com/live/2024/07/05/us/biden-trump-2024-election/bidens-upcoming-interview-represents-a-relatively-rare-encounter-with-traditional-news-media
+
 **Mark Zuckerberg’s Surf Video Gets Lots of Likes (but Not From Elon Musk)**\
 `In a sequel to his much-mocked hydrofoil video, the Meta founder celebrates the Fourth of July in his own particular way.`\
 https://nytimes.com/2024/07/05/style/mark-zuckerbergs-surf-video-gets-lots-of-likes-but-not-from-elon-musk.html
