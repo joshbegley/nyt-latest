@@ -1,3 +1,11 @@
+**Juventus complete signing of goalkeeper Di Gregorio from Monza**\
+`Juventus have completed the signing of goalkeeper Michele Di Gregorio from Monza.`\
+https://nytimes.com/athletic/5618085/2024/07/05/michele-di-gregorio-juventus-transfer/
+
+**Carlos Alcaraz escapes Frances Tiafoe at Wimbledon in five-set thriller**\
+`The defending Wimbledon champion teetered on the precipice of disaster — until the tennis he knows best came alive in him when it mattered`\
+https://nytimes.com/athletic/5618405/2024/07/05/carlos-alcaraz-frances-tiafoe-wimbledon/
+
 **Count Binface and Elmo, both good losers, provided comic relief.**\
 `By Claire Moses`\
 https://nytimes.com/live/2024/07/04/world/uk-election-results/count-binface-and-elmo-both-good-losers-provided-comic-relief
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/05/business/june-jobs-report/what-to-know-about
 **Who Is Angela Rayner, Britain’s Deputy Prime Minister?**\
 `While politics in Britain have traditionally been dominated by the country’s elites, Ms. Rayner has taken a less traditional route to the top.`\
 https://nytimes.com/2024/07/05/world/europe/who-is-angela-rayner-britains-deputy-prime-minister.html
-
-**Pedri substituted off with first-half injury in Spain vs Germany**\
-`Spain midfielder Pedri had to be withdrawn only minutes into his country’s European Championship quarter-final.`\
-https://nytimes.com/athletic/5618535/2024/07/05/pedri-injury-latest-spain-euro-2024/
-
-**Big Ticket: N.Y.’s Top Sales and Listings in June**\
-`Take a look at some of the most high-profile real estate listings and sales in June in New York City.`\
-https://nytimes.com/interactive/2024/07/05/realestate/luxury/nyc-new-york-home-sales.html
 
