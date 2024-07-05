@@ -1,3 +1,15 @@
+**Shaw fit to start for England vs Switzerland**\
+`Gareth Southgate has declared Luke Shaw fit to start for England in their quarter-final with Switzerland on Saturday.`\
+https://nytimes.com/athletic/5618785/2024/07/05/luke-shaw-england-team-news/
+
+**Fantasy basketball free agency fallout: Dejounte Murray to New Orelans, Paul George to Philly and more**\
+`Stan Son breaks down the fantasy basketball impact of the big trades and signings, thus far, of the NBA free agency period.`\
+https://nytimes.com/athletic/5618720/2024/07/05/fantasy-basketball-free-agency-fallout-trades/
+
+**What Labour’s Sort-of Landslide Means for Biden**\
+`The far right’s performance in the British elections is a clear warning sign for the U.S.`\
+https://nytimes.com/2024/07/02/opinion/labor-landslide-far-right.html
+
 **What Labour’s Sort-of Landslide Means for Biden**\
 `The far right’s performance in the British elections is a clear warning sign for the U.S.`\
 https://nytimes.com/live/2024/07/02/opinion/thepoint/labor-landslide-far-right
