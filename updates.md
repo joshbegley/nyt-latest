@@ -1,3 +1,7 @@
+**Investors Bet on Rate Cuts as Recent Data Suggests Slowdown**\
+`Markets are expecting the Federal Reserve to make roughly two reductions of a quarter-point each this year.`\
+https://nytimes.com/2024/07/05/business/economy/jobs-report-markets.html
+
 **A Dazzling Eruption of Lava Spews Out of Mount Etna**\
 `Clouds of ash went nearly 15,000 feet into the air, and the airport in Catania, Sicily, was forced to shut down because the runway was unusable.`\
 https://nytimes.com/2024/07/05/world/europe/mount-etna-volcano-eruption.html
