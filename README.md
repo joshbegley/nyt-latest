@@ -22,7 +22,7 @@ https://nytimes.com/live/2024/07/04/world/uk-election-results/in-northern-irelan
 `Mr. Lammy has deep ties to the United States and campaigned for former President Barack Obama.`\
 https://nytimes.com/2024/07/05/world/europe/who-is-david-lammy-britains-new-foreign-secretary.html
 
-**Gareth Southgate and a back three - Can England switch systems against Switzerland?**\
+**Gareth Southgate and a back three: Can England switch systems against Switzerland?**\
 `The England manager was handed an unlikely lifeline against Slovakia and must grasp it by instigating a radical change against Switzerland`\
 https://nytimes.com/athletic/5613740/2024/07/05/southgate-england-back-three-switzerland/
 
