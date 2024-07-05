@@ -1,3 +1,7 @@
+**$504 Million**\
+`The total in federal grants to create a dozen “tech hubs” in regions beyond Silicon Valley and the coasts.`\
+https://nytimes.com/2024/07/05/business/504-million-tech-hubs.html
+
 **Cajun Shrimp Boil With Rémoulade; Blueberry Pancakes With Maple Sausages**\
 `Consider this your permission to go big this weekend.`\
 https://nytimes.com/2024/07/05/dining/cajun-shrimp-boil-summer-recipes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/05/arts/design/barbie-exhibition-london-museum.html
 **Fresh Jobs Data Spurs Investors to Bet on September Fed Rate Cut**\
 `As unemployment ticks up and wage growth cools, Federal Reserve officials are watching for signs that the job market is about to crack.`\
 https://nytimes.com/2024/07/05/business/jobs-report-fed-rates.html
-
-**What to know about President Biden’s interview with George Stephanopoulos.**\
-`By Michael M. Grynbaum`\
-https://nytimes.com/live/2024/07/05/us/biden-trump-2024-election/what-to-know-about-president-bidens-interview-with-george-stephanopoulos
 
