@@ -1,3 +1,11 @@
+**Prime Tire: The F1 driver's market waits on Sainz; Readers react to Verstappen versus Norris**\
+`Plus: The Bearman arrives at Haas.`\
+https://nytimes.com/athletic/5617371/2024/07/05/f1-carlos-sainz-driver-market-verstappen-norris/
+
+**Southgate insists no easy draw for England: 'A classic example of entitlement'**\
+`Gareth Southgate has hit back at any suggestions that England have a favourable draw at the European Championship and called such talk as a &#8220;classic example of entitlement&#8221; the country has.`\
+https://nytimes.com/athletic/5618851/2024/07/05/england-swizerland-gareth-southgate/
+
 **Spain's Morata out of Euro 2024 semi-final through suspension**\
 `Spain captain Alvaro Morata will miss his side’s European Championship semi-final through suspension.`\
 https://nytimes.com/athletic/5618641/2024/07/05/alvaro-morata-spain-suspended-euro-2024/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/05/arts/keke-jabbar-love-marriage-huntsville-dead.ht
 **What Arne Slot's first Liverpool press conference reveals about the new era**\
 `New Liverpool coach Slot's comments on Klopp, transfers, contracts, Guardiola and playing style analysed`\
 https://nytimes.com/athletic/5618087/2024/07/05/arne-slot-first-liverpool-press-conference-analysed/
-
-**Does America Need a President?**\
-`Why subordinates or the “deep state” can’t substitute for a vacuum at the top.`\
-https://nytimes.com/2024/07/05/opinion/biden-president-america.html
-
-**Kansas Supreme Court Rejects Republican-Backed Abortion Regulations**\
-`The rulings were the latest blow for abortion opponents in Kansas, where abortion protections in the State Constitution have vexed Republicans for years.`\
-https://nytimes.com/2024/07/05/us/kansas-supreme-court-abortion.html
 
