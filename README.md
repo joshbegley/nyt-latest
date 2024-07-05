@@ -1,7 +1,3 @@
-**A Third House Democrat, Seth Moulton, Calls on Biden to Drop Out**\
-`Representative Lloyd Doggett was the first sitting House Democrat to urge President Biden to leave the race, followed by Representative Raúl M. Grijalva.`\
-https://nytimes.com/2024/07/05/us/politics/democrat-seth-moulton-biden-drop-out.html
-
 **Reform U.K.’s Success Is Latest Sign of Strength for Europe’s Far Right**\
 `The insurgent anti-immigration party led by Nigel Farage secured around 14 percent of the vote in Britain’s general election, though it has won only five parliamentary seats.`\
 https://nytimes.com/2024/07/05/world/europe/reform-uks-success-is-latest-sign-of-strength-for-europes-far-right.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5618518/2024/07/05/granit-xhaka-injury-england-swit
 **The Bounce: Which NBA teams got better (or worse) so far this offseason?**\
 `Zach Harper catches you up on league-wide news.`\
 https://nytimes.com/athletic/5618050/2024/07/05/nba-free-agency-winners-clipped-the-bounce/
+
+**The Pressure on Biden to Drop Out**\
+`Calls for the president to withdraw from the race. Also: C.E.O.s and Trump; a Trump donor; antisemitism; Netanyahu and Congress; an H.I.V. medication.`\
+https://nytimes.com/2024/07/05/opinion/joe-biden-election-withdrawal.html
 
