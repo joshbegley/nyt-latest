@@ -1,3 +1,11 @@
+**With free agency settling, can anyone say the Kings have improved?**\
+`The Kings added three players this week — Warren Foegele, Tanner Jeannot and Joel Edmundson — which seemed underwhelming.`\
+https://nytimes.com/athletic/5616834/2024/07/05/la-kings-blake-free-agents/
+
+**Canucks offseason mailbag: Submit your questions for Thomas Drance**\
+`Got questions about the revamped Canucks lineup and what to expect next season? Submit it here.`\
+https://nytimes.com/athletic/5617520/2024/07/05/canucks-offseason-mailbag-thomas-drance/
+
 **Sky apologises to Forest for Neville remarks after Everton loss**\
 `UK broadcaster Sky Sports has apologised to Nottingham Forest for “any offence caused” by comments made by Gary Neville about the club.`\
 https://nytimes.com/athletic/5617989/2024/07/05/sky-forest-neville-apology/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5617850/2024/07/05/arne-slot-liverpool-transfers/
 **Moderates Win a Round in Britain — But a Larger Battle Against Extremism Looms**\
 `It is a little early to celebrate this election as a triumph for the center.`\
 https://nytimes.com/2024/07/05/opinion/uk-election-labour-conservatives.html
-
-**Investors Bet on Rate Cuts as Recent Data Suggests Slowdown**\
-`Markets are expecting the Federal Reserve to make roughly two reductions of a quarter-point each this year.`\
-https://nytimes.com/2024/07/05/business/economy/jobs-report-markets.html
-
-**A Dazzling Eruption of Lava Spews Out of Mount Etna**\
-`Clouds of ash went nearly 15,000 feet into the air, and the airport in Catania, Sicily, was forced to shut down because the runway was unusable.`\
-https://nytimes.com/2024/07/05/world/europe/mount-etna-volcano-eruption.html
 
