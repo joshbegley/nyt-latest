@@ -1,3 +1,11 @@
+**Who Is David Lammy, Britain’s New Foreign Secretary?**\
+`Mr. Lammy has deep ties to the United States and campaigned for former President Barack Obama.`\
+https://nytimes.com/2024/07/05/world/europe/who-is-david-lammy-britains-new-foreign-secretary.html
+
+**Gareth Southgate and a back three - Can England switch systems against Switzerland?**\
+`The England manager was handed an unlikely lifeline against Slovakia and must grasp it by instigating a radical change against Switzerland`\
+https://nytimes.com/athletic/5613740/2024/07/05/southgate-england-back-three-switzerland/
+
 **Chelsea appoint Seyi Olofinjana in talent management role covering Africa**\
 `Chelsea have appointed former Nigeria international Seyi Olofinjana into a talent management role covering Africa.`\
 https://nytimes.com/athletic/5618110/2024/07/05/chelsea-appoint-seyi-olofinjana/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/05/arts/television/prosper-review.html
 **How to Watch Biden’s Prime-time Interview**\
 `President Biden is giving his first television interview since last week’s debate to George Stephanopoulos of ABC News, a key moment as he tries to rebound from a poor performance.`\
 https://nytimes.com/2024/07/05/us/politics/how-to-watch-biden-interview-abc.html
-
-**UEFA rules Manchester City and Girona, Manchester United and Nice can play in same competitions**\
-`UEFA has ruled that multi-club pairs Manchester City and Girona, and Manchester United and Nice will be able to compete in the same European club competitions during the 2024-25 season.`\
-https://nytimes.com/athletic/5618262/2024/07/05/man-utd-city-girona-nice-uefa-multi-club-rules/
-
-**$504 Million**\
-`The total in federal grants to create a dozen “tech hubs” in regions beyond Silicon Valley and the coasts.`\
-https://nytimes.com/2024/07/05/business/504-million-tech-hubs.html
 
