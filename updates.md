@@ -1,3 +1,7 @@
+**Hurricane Beryl Barrels Toward Yucatán Peninsula**\
+`The storm, now a Category 3, has already slammed Jamaica and Grenada this week. It is bringing hurricane-force winds, storm surge and heavy rain to Mexico on Friday morning.`\
+https://nytimes.com/article/hurricane-beryl-updates.html
+
 **What to Expect as the U.K. Changes Prime Ministers**\
 `The transition of power in Britain is a matter of hours, not months.`\
 https://nytimes.com/2024/07/05/world/europe/uk-election-what-happens-next-timing.html

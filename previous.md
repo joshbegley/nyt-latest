@@ -6,7 +6,7 @@ https://nytimes.com/2024/07/05/world/europe/uk-election-what-happens-next-timing
 `Britons are celebrating the end of 14 bleak years of Conservative rule. But the new government must turn things around and fast, or the populists will be back.`\
 https://nytimes.com/video/opinion/100000009541144/uk-election-keir-starmer-boring.html
 
-**Hurricane Beryl, Having Grown Stronger, Barrels Toward Yucatán Peninsula**\
+**Hurricane Beryl Barrels Toward Yucatán Peninsula**\
 `The storm, now a Category 3, has already slammed Jamaica and Grenada this week. It is bringing hurricane-force winds, storm surge and heavy rain to Mexico on Friday morning.`\
 https://nytimes.com/article/hurricane-beryl-updates.html
 
