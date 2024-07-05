@@ -1,3 +1,11 @@
+**The end can take you to dark places - there is a beauty in Ronaldo raging against it**\
+`Alan Shearer knows first-hand how troubling it can be to know the end is coming, for your ego and your body to be fighting each other`\
+https://nytimes.com/athletic/5616686/2024/07/05/cristiano-ronaldo-the-end/
+
+**Word of the Day: surreal**\
+`This word has appeared in 570 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/07/05/learning/word-of-the-day-surreal.html
+
 **Labour rebuilds its ‘red wall,’ where Conservatives triumphed 5 years ago.**\
 `By Mark Landler`\
 https://nytimes.com/live/2024/07/04/world/uk-election-results/labour-rebuilds-its-red-wall-where-conservatives-triumphed-5-years-ago
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5607665/2024/07/05/ben-johnson-ipswich-transfer-rat
 **Braves' surging Max Fried credits advice from veterans Chris Sale, Charlie Morton**\
 `Fried will tap into wisdom from his mentors when he faces the Phillies on Friday in an unusually important July series. `\
 https://nytimes.com/athletic/5617590/2024/07/05/braves-max-fried-chris-sale-charlie-morton/
-
-**Why West Ham want Max Kilman - and why Wolves are ready to let him go**\
-`The centre-half is close to swapping Molineux for the London Stadium as Julen Lopetegui seeks to strengthen his defensive ranks`\
-https://nytimes.com/athletic/5616433/2024/07/05/kilman-west-ham-wolves-lopetegui/
-
-**Paul Mitchell at Newcastle: What awaits the new sporting director on Tyneside?**\
-`From time spent working at Southampton, Spurs, RB Leipzig and Monaco, Mitchell brings a wealth of experience to his sporting director role`\
-https://nytimes.com/athletic/5616051/2024/07/05/newcastle-mitchell-ashworth/
 

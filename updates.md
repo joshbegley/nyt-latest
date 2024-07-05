@@ -1,3 +1,11 @@
+**The end can take you to dark places - there is a beauty in Ronaldo raging against it**\
+`Alan Shearer knows first-hand how troubling it can be to know the end is coming, for your ego and your body to be fighting each other`\
+https://nytimes.com/athletic/5616686/2024/07/05/cristiano-ronaldo-the-end/
+
+**Word of the Day: surreal**\
+`This word has appeared in 570 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/07/05/learning/word-of-the-day-surreal.html
+
 **Labour rebuilds its ‘red wall,’ where Conservatives triumphed 5 years ago.**\
 `By Mark Landler`\
 https://nytimes.com/live/2024/07/04/world/uk-election-results/labour-rebuilds-its-red-wall-where-conservatives-triumphed-5-years-ago
