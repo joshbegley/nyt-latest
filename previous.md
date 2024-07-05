@@ -1,3 +1,7 @@
+**Parker Meadows rejoins the Tigers, and they need everything he can give**\
+`By waiting until now to bring back the center fielder, the Tigers gained an extra year of team control.`\
+https://nytimes.com/athletic/5618924/2024/07/05/parker-meadows-rejoins-tigers/
+
 **Britain’s Conservative Party Was Routed**\
 `Plus, President Biden says he’ll stay in the race.`\
 https://nytimes.com/2024/07/05/briefing/britain-labour-party-wins-biden-iran-hurricane-beryl.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/05/style/mark-zuckerbergs-surf-video-gets-lots-of-li
 **Burnley appoint Parker as new head coach**\
 `Burnley have appointed Scott Parker as the club&#8217;s new head coach.`\
 https://nytimes.com/athletic/5616015/2024/07/05/burnley-scott-parker-confirmed/
-
-**Is It OK to Get Food Stamps When You’re Just Pursuing Your Passion?**\
-`The magazine’s Ethicist columnist on whether a struggling artist with a personal safety net should receive government assistance.`\
-https://nytimes.com/2024/07/05/magazine/artist-food-stamps-ethics.html
 

@@ -1,3 +1,7 @@
+**Parker Meadows rejoins the Tigers, and they need everything he can give**\
+`By waiting until now to bring back the center fielder, the Tigers gained an extra year of team control.`\
+https://nytimes.com/athletic/5618924/2024/07/05/parker-meadows-rejoins-tigers/
+
 **Britain’s Conservative Party Was Routed**\
 `Plus, President Biden says he’ll stay in the race.`\
 https://nytimes.com/2024/07/05/briefing/britain-labour-party-wins-biden-iran-hurricane-beryl.html
