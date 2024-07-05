@@ -1,3 +1,7 @@
+**One thought on each Big 12 team following June official visits**\
+`Which league programs made the biggest moves during a key recruiting month?`\
+https://nytimes.com/athletic/5612669/2024/07/05/big-12-recruiting-update-official-visits/
+
 **Easton Cowan is ready to get a look in the NHL with the Maple Leafs**\
 `Easton Cowan has shown he’s ready for the next step in his career.`\
 https://nytimes.com/athletic/5617058/2024/07/05/easton-cowan-maple-leafs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5600640/2024/07/05/bielsa-uruguay-copa-america-braz
 **Wordle Review No. 1,113 July 6, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/05/crosswords/wordle-review-1113.html
-
-**The Connections Companion No. 391, July 6, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/05/crosswords/connections-companion-391.html
 
