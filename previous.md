@@ -1,3 +1,11 @@
+**Who Is Rachel Reeves, the Woman Taking the Helm of Britain’s Economy?**\
+`As the newly named chancellor of the Exchequer, she is taking on the tough job of boosting Britain’s productivity growth and of reviving struggling public services.`\
+https://nytimes.com/2024/07/05/world/europe/rachel-reeves-britain-economy.html
+
+**What’s the Deal With All the Flags on the Jersey Shore?**\
+`One journalist, a resident of the beach town Avalon, N.J., wanted to find out.`\
+https://nytimes.com/2024/07/05/insider/whats-the-deal-with-all-the-flags-on-the-jersey-shore.html
+
 **Brazil Police Accuse Bolsonaro of Embezzling Saudi Jewels**\
 `Brazil’s former president, Jair Bolsonaro, may soon face criminal charges for stealing gifts he received from foreign leaders.`\
 https://nytimes.com/2024/07/05/world/americas/brazil-bolsonaro-police-embezzlement.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/05/world/europe/uk-general-election-key-takeaways.ht
 **Brad Pitt's F1 movie title revealed by Apple: 'I'm super excited'**\
 `Apple, Formula One and Warner Bros.`\
 https://nytimes.com/athletic/5618184/2024/07/05/f1-brad-pitt-movie-apple/
-
-**Sometimes It Is the Coach’s Fault**\
-`The U.S. collapsed under the weight of expectations at the Copa América. Its next move could determine if there is a repeat, or a revival, at the 2026 World Cup.`\
-https://nytimes.com/2024/07/05/world/americas/usmnt-berhalter.html
-
-**Judge Rules Against Release of Covenant School Shooter’s Writings**\
-`Whether to publish the voluminous paper trail left behind by the assailant was one of the most contested issues that arose from the attack.`\
-https://nytimes.com/2024/07/05/us/covenant-school-shooter-writings.html
 

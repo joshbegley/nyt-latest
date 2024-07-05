@@ -1,3 +1,11 @@
+**Who Is Rachel Reeves, the Woman Taking the Helm of Britain’s Economy?**\
+`As the newly named chancellor of the Exchequer, she is taking on the tough job of boosting Britain’s productivity growth and of reviving struggling public services.`\
+https://nytimes.com/2024/07/05/world/europe/rachel-reeves-britain-economy.html
+
+**What’s the Deal With All the Flags on the Jersey Shore?**\
+`One journalist, a resident of the beach town Avalon, N.J., wanted to find out.`\
+https://nytimes.com/2024/07/05/insider/whats-the-deal-with-all-the-flags-on-the-jersey-shore.html
+
 **Brazil Police Accuse Bolsonaro of Embezzling Saudi Jewels**\
 `Brazil’s former president, Jair Bolsonaro, may soon face criminal charges for stealing gifts he received from foreign leaders.`\
 https://nytimes.com/2024/07/05/world/americas/brazil-bolsonaro-police-embezzlement.html
