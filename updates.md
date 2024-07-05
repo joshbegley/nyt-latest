@@ -1,3 +1,7 @@
+**Man Who Stabbed South Korea’s Opposition Leader Is Sentenced to 15 Years**\
+`The attack on Lee Jae-myung in January raised alarms about South Korea’s political polarization. His assailant was convicted of attempted murder.`\
+https://nytimes.com/2024/07/05/world/asia/stabbed-south-korea-lee-jae-myung.html
+
 **Series win lets Giants, Logan Webb envision a bright future: 'Heck yeah, I’m excited'**\
 `Finally, the Giants have the look of a team capable of sustaining momentum.`\
 https://nytimes.com/athletic/5617680/2024/07/05/logan-webb-giants-series-win-atlanta/
