@@ -1,5 +1,9 @@
 **How to Watch Biden’s Prime-time Interview**\
 `President Biden is giving his first television interview since last week’s debate to George Stephanopoulos of ABC News, a key moment as he tries to rebound from a poor performance.`\
+https://nytimes.com/2024/07/05/us/politics/how-to-watch-biden-interview-abc.html
+
+**How to Watch Biden’s Prime-time Interview**\
+`President Biden is giving his first television interview since last week’s debate to George Stephanopoulos of ABC News, a key moment as he tries to rebound from a poor performance.`\
 https://nytimes.com/2024/07/05/us/politics/how-to-watch-bidens-prime-time-interview.html
 
 **UEFA rules Manchester City and Girona, Manchester United and Nice can play in same competitions**\
