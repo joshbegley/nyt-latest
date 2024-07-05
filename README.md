@@ -1,3 +1,11 @@
+**What to Expect as the U.K. Changes Prime Ministers**\
+`The transition of power in Britain is a matter of hours, not months.`\
+https://nytimes.com/2024/07/05/world/europe/uk-election-what-happens-next-timing.html
+
+**“50 Shades of Beige”: Meet Britain’s New Prime Minister**\
+`Britons are celebrating the end of 14 bleak years of Conservative rule. But the new government must turn things around and fast, or the populists will be back.`\
+https://nytimes.com/video/opinion/100000009541144/uk-election-keir-starmer-boring.html
+
 **Hurricane Beryl, Having Grown Stronger, Barrels Toward Yucatán Peninsula**\
 `The storm, now a Category 3, has already slammed Jamaica and Grenada this week. It is bringing hurricane-force winds, storm surge and heavy rain to Mexico on Friday morning.`\
 https://nytimes.com/article/hurricane-beryl-updates.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5617295/2024/07/05/antoine-semenyo-bournemouth-cont
 **Moped-Riding Thieves Frighten Diners at Upscale N.Y.C. Restaurants**\
 `In Williamsburg and Manhattan, robbers have stolen watches worth tens of thousands of dollars before fleeing on motorbikes.`\
 https://nytimes.com/2024/07/05/nyregion/nyc-restaurant-robberies.html
-
-**How a New York Democrat Lost a Progressive Ballot Line to a G.O.P. Proxy**\
-`A mysterious former Republican’s victory over Mondaire Jones in a third-party primary could help shape one of the nation’s most important congressional swing races this fall.`\
-https://nytimes.com/2024/07/05/nyregion/mondaire-jones-bowman-wfp.html
-
-**On ‘Hard Fork,’ a Hard Look at the Future of Technology**\
-`Kevin Roose and Casey Newton reflect on the success of their podcast and look toward what’s next.`\
-https://nytimes.com/2024/07/05/insider/hard-fork-podcast.html
 
