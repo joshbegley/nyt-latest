@@ -1,3 +1,7 @@
+**Labour Wins Back Trust of British Jews Who Turned From the Party**\
+`Keir Starmer had made rooting out antisemitism from the Labour Party’s ranks a goal of his leadership.`\
+https://nytimes.com/2024/07/05/world/europe/jewish-voters-labour-uk.html
+
 **Who Is Rachel Reeves, the Woman Taking the Helm of Britain’s Economy?**\
 `As the newly named chancellor of the Exchequer, she is taking on the tough job of boosting Britain’s productivity growth and of reviving struggling public services.`\
 https://nytimes.com/2024/07/05/world/europe/rachel-reeves-britain-economy.html
@@ -16,7 +20,7 @@ https://nytimes.com/2024/07/05/us/wisconsin-supreme-court-absentee-ballots.html
 
 **It’s Still Barbie’s World**\
 `A new exhibition reminds us that while the famous doll can now do any job, her greatest power is selling stuff — to children and adults alike.`\
-https://nytimes.com/2024/07/05/arts/design/its-still-barbies-world.html
+https://nytimes.com/2024/07/05/arts/design/barbie-exhibition-london-museum.html
 
 **Fresh Jobs Data Spurs Investors to Bet on September Fed Rate Cut**\
 `As unemployment ticks up and wage growth cools, Federal Reserve officials are watching for signs that the job market is about to crack.`\
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000009548962/analyzing-labour-party-la
 **Five Takeaways From the U.K. General Election**\
 `The Labour Party won a resounding victory over the Conservatives, but smaller parties, including the populist Reform, did better than expected.`\
 https://nytimes.com/2024/07/05/world/europe/uk-general-election-key-takeaways.html
-
-**Brad Pitt's F1 movie title revealed by Apple: 'I'm super excited'**\
-`Apple, Formula One and Warner Bros.`\
-https://nytimes.com/athletic/5618184/2024/07/05/f1-brad-pitt-movie-apple/
 
