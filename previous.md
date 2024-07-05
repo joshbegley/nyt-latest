@@ -1,3 +1,7 @@
+**How the Labour Party Wants to Change the U.K. Economy**\
+`With Britain’s productivity and wages stalled for the past decade and a half, the winning party in the general election faces a tall order.`\
+https://nytimes.com/2024/07/05/world/europe/labour-uk-economy-plan.html
+
 **Miedema joins Man City following Arsenal exit**\
 `Manchester City have completed the signing of the Women&#8217;s Super League&#8217;s all-time top scorer Vivianne Miedema on a free transfer from Arsenal.`\
 https://nytimes.com/athletic/5616540/2024/07/05/vivianne-miedema-manchester-city-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/05/insider/hard-fork-podcast.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/07/05/crosswords/spelling-bee-forum.html
-
-**Ecuador part ways with Felix Sanchez following Copa America exit**\
-`Ecuador has parted ways with coach Felix Sanchez following their exit from the 2024 Copa America.`\
-https://nytimes.com/athletic/5617713/2024/07/05/felix-sanchez-ecuador-sacked-copa-america/
 
