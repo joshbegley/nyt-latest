@@ -1,3 +1,7 @@
+**The Athletic FC: 'Animal' Martinez saves Messi; an alternative Euros guide to last eight**\
+`In The Athletic FC today: Messi misses a penalty but Martinez bails him out. Plus: An alternative Euro 2024 quarter-final preview...`\
+https://nytimes.com/athletic/5617779/2024/07/05/the-athletic-fc-martinez-messi-penalties/
+
 **Turkey’s Demiral handed two-game suspension for 'indecent' celebration**\
 `Turkey defender Merih Demiral has been handed a two-game suspension by UEFA after appearing to make an ultranationalist salute while celebrating his second goal against Austria in Tuesday’s European Championship last-16 match.`\
 https://nytimes.com/athletic/5617842/2024/07/05/merih-demiral-ban-suspension-turkey-euro-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/05/world/europe/mount-etna-volcano-eruption.html
 **Italy’s Mount Etna Erupts**\
 `Bright lava spewed from the volcano, trailing down the mountain as a thick plume of smoke filled the sky and left streets covered in ash.`\
 https://nytimes.com/video/world/europe/100000009556440/italys-mount-etna-erupts.html
-
-**Fed Officials Keep an Eye Out for Cracks in the Job Market**\
-`Federal Reserve policymakers are watching for any sign that the labor market is weakening abruptly, which might prod them to cut rates sooner.`\
-https://nytimes.com/2024/07/05/business/economy/fed-labor-market.html
 
