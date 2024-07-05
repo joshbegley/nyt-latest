@@ -1,3 +1,27 @@
+**Hakan Calhanoglu thinks he is the world's best in his position - he may well be right**\
+`Turkey midfielder and captain Calhanoglu has led his side to the Euro 2024 quarter-finals in impressive fashion`\
+https://nytimes.com/athletic/5616138/2024/07/05/calhanoglu-turkey-euro-2024/
+
+**Vitinha and his curious journey from Wolves bench player to Portugal's midfield maestro**\
+`The playmaker scored a solitary goal in a loan spell at Wolves - away at non-League Chorley. He is now running the show for PSG and Portugal`\
+https://nytimes.com/athletic/5584473/2024/07/05/vitinha-portugal-euros-wolves-psg/
+
+**Iran’s Presidential Candidates: Who Are They?**\
+`Two candidates face off in Iran’s runoff election on Friday after neither secured enough votes to win in the first round. Here’s what you need to know about their positions and background.`\
+https://nytimes.com/2024/07/05/world/middleeast/irans-presidential-candidates-who-are-they.html
+
+**Can the Labour Party Bring Back Britain’s Green Groove?**\
+`The new government, widely expected to be led by Labour, has pledged to fast-track a green energy transition. It will face big challenges.`\
+https://nytimes.com/2024/07/05/climate/labor-starmer-election-climate.html
+
+**Iran Voters Face Stark Choice in Competitive Presidential Runoff**\
+`For the first time in years, the outcome is difficult to predict, and could be decided by how many people end their boycotts and participate in the vote.`\
+https://nytimes.com/2024/07/05/world/middleeast/iran-election-runoff-president-winner.html
+
+**Friday's MLB projections: Best and worst starting pitchers, weather and more**\
+`Projections for Friday's MLB games with value picks, best bets, pitcher props, home run trends, weather and more.`\
+https://nytimes.com/athletic/5615249/2024/07/05/mlb-odds-predictions-best-bets-july-5/
+
 **Political Unrest Worldwide Is Fueled by High Prices and Huge Debts**\
 `Economic turmoil is spreading across the globe, and the response has been protests, attempted coups and elections of far-right politicians.`\
 https://nytimes.com/2024/07/05/business/global-economy-debt-inequality.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/07/05/pageoneplus/quotation-of-the-day-in-ukraine-off-t
 **Yes, Uncle Sam, We Met on Tinder**\
 `When you marry an immigrant, proving your commitment can become its own love story.`\
 https://nytimes.com/2024/07/05/style/modern-love-immigration-yes-uncle-sam-we-met-on-tinder.html
-
-**Crossing the Friend Zone on a Second First Date**\
-`Raj Thakker and Trisha Vijay became good friends after meeting on a Bollywood dance team in college, but neither was sure where their relationship was headed.`\
-https://nytimes.com/2024/07/05/style/trisha-vijay-raj-thakker-wedding.html
-
-**On Their First Date, Her Younger Brother Played Chaperone**\
-`Kaylah Howard was allowed to go to the movies with Jamauri Bogan in high school only if her 4-year-old brother went along.`\
-https://nytimes.com/2024/07/05/style/kaylah-howard-jamauri-bogan-wedding.html
-
-**In Sync on the Ice and Off**\
-`Madison Chock and Evan Bates found chemistry when she picked him to be her ice dance partner in 2011. Then they found even more.`\
-https://nytimes.com/2024/07/05/style/madison-chock-evan-bates-wedding.html
-
-**The first vaccine for malaria received major regulatory approval in 2015.**\
-`After years of delay, millions of malaria vaccines are being supplied to children in Africa. Tens of thousands died waiting.`\
-https://nytimes.com/2024/07/05/health/malaria-vaccine-delay.html
-
-**Optimism in the air at No. 1 pick Macklin Celebrini's first competitive action with Sharks**\
-`San Jose is back on the radar. Interest has been rekindled. Thursday's Sharks prospect scrimmage was the latest example.`\
-https://nytimes.com/athletic/5617587/2024/07/04/macklin-celebrini-first-competitive-action-sharks/
-
-**Rishi Sunak Hangs On to His Seat in Parliament**\
-`The prime minister will remain a lawmaker after a close race in his North Yorkshire constituency.`\
-https://nytimes.com/2024/07/04/world/europe/sunak-wins-election-uk.html
 
