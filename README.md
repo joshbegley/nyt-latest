@@ -1,3 +1,7 @@
+**Moderates Win a Round in Britain — But a Larger Battle Against Extremism Looms**\
+`It is a little early to celebrate this election as a triumph for the center.`\
+https://nytimes.com/2024/07/05/opinion/uk-election-labour-conservatives.html
+
 **Investors Bet on Rate Cuts as Recent Data Suggests Slowdown**\
 `Markets are expecting the Federal Reserve to make roughly two reductions of a quarter-point each this year.`\
 https://nytimes.com/2024/07/05/business/economy/jobs-report-markets.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5616669/2024/07/05/the-athletic-friday-football-qui
 **5 Children’s Movies to Stream Now**\
 `This month’s picks include a superhero adventure, a dark fantasy tale and films based on beloved television series.`\
 https://nytimes.com/2024/07/05/movies/kids-movies-streaming.html
-
-**Cresswell's Toulouse move back on**\
-`Leeds United defender Charlie Cresswell&#8217;s move to Ligue 1 side Toulouse is back on after initially breaking down over personal terms earlier in the week.`\
-https://nytimes.com/athletic/5617803/2024/07/05/leeds-transfers-charlie-cresswell/
 
