@@ -1,3 +1,7 @@
+**Andrew Tate Is Allowed to Leave Romania in Latest Court Decision**\
+`The court in Bucharest ruled that Mr. Tate and his brother, who are facing human trafficking and rape charges, must remain in the European Union as they await trial, his lawyer said.`\
+https://nytimes.com/2024/07/05/world/europe/andrew-tate-romania-human-trafficking-trial.html
+
 **Shaw fit to start for England vs Switzerland**\
 `Gareth Southgate has declared Luke Shaw fit to start for England in their quarter-final with Switzerland on Saturday.`\
 https://nytimes.com/athletic/5618785/2024/07/05/luke-shaw-england-team-news/

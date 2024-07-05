@@ -1,3 +1,7 @@
+**Andrew Tate Is Allowed to Leave Romania in Latest Court Decision**\
+`The court in Bucharest ruled that Mr. Tate and his brother, who are facing human trafficking and rape charges, must remain in the European Union as they await trial, his lawyer said.`\
+https://nytimes.com/2024/07/05/world/europe/andrew-tate-romania-human-trafficking-trial.html
+
 **Shaw fit to start for England vs Switzerland**\
 `Gareth Southgate has declared Luke Shaw fit to start for England in their quarter-final with Switzerland on Saturday.`\
 https://nytimes.com/athletic/5618785/2024/07/05/luke-shaw-england-team-news/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/05/world/europe/france-left-new-popular-front.html
 **Bullpen report: Porter Hodge enters Cubs' circle of trust, Mason Miller cools down and more**\
 `Greg Jewett reports on all the latest trends and key developments across MLB bullpens that fantasy baseball managers need to know.`\
 https://nytimes.com/athletic/5618689/2024/07/05/mlb-bullpen-fantasy-baseball-mason-miller-2/
-
-**Labour Won a U.K. Landslide. Why Doesn’t It Feel Like That?**\
-`Keir Starmer’s party won a huge majority in parliament. But the new prime minister faces a fractious and volatile public.`\
-https://nytimes.com/2024/07/05/world/europe/uk-election-labour-landslide.html
 
