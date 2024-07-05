@@ -1,3 +1,7 @@
+**Biden’s upcoming interview represents a relatively rare encounter with traditional news media.**\
+`The president has`\
+https://nytimes.com/live/2024/07/05/us/biden-trump-2024-election/bidens-upcoming-interview-represents-a-relatively-rare-encounter-with-traditional-news-media
+
 **Mark Zuckerberg’s Surf Video Gets Lots of Likes (but Not From Elon Musk)**\
 `In a sequel to his much-mocked hydrofoil video, the Meta founder celebrates the Fourth of July in his own particular way.`\
 https://nytimes.com/2024/07/05/style/mark-zuckerbergs-surf-video-gets-lots-of-likes-but-not-from-elon-musk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5618852/2024/07/05/christen-press-angel-city-sale/
 **Leicester close to De Cordova-Reid transfer, considering move for O'Hare**\
 `Leicester City are closing in on the signing of winger Bobby De Cordova-Reid and are considering a move for attacking midfielder Callum O’Hare.`\
 https://nytimes.com/athletic/5618187/2024/07/05/leicester-transfers-bobby-decordova-reid-ohare/
-
-**How 4-star DB JaDon Blair impacts Notre Dame's 2025 class**\
-`JaDon Blair, from Winston-Salem, N.C., committed to the Irish on Friday over Penn State, Michigan, Florida State and South Carolina.`\
-https://nytimes.com/athletic/5618369/2024/07/05/jadon-blair-notre-dame-football-commitment/
 
