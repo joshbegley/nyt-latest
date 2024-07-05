@@ -1,6 +1,6 @@
 **Some of Biden’s upcoming fund-raising events face new uncertainty.**\
 `Plans for a late July fund-raiser in Wisconsin are now off, and it’s unclear whether another event in Texas will proceed, following President Biden’s disastrous debate performance.`\
-https://nytimes.com/live/2024/07/05/us/biden-trump-2024-election/some-of-bidens-upcoming-fund-raising-events-face-new-uncertainty
+https://nytimes.com/2024/07/05/us/politics/some-of-bidens-upcoming-fund-raising-events-face-new-uncertainty.html
 
 **How Mikel Merino's spectacular frog leap lifted Spain into the Euro 2024 semi-finals**\
 `'At first I didn’t believe it,' said Mikel Merino after scoring a goal that owed so much to a spectacular leap`\

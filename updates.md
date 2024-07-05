@@ -1,5 +1,9 @@
 **Some of Biden’s upcoming fund-raising events face new uncertainty.**\
 `Plans for a late July fund-raiser in Wisconsin are now off, and it’s unclear whether another event in Texas will proceed, following President Biden’s disastrous debate performance.`\
+https://nytimes.com/2024/07/05/us/politics/some-of-bidens-upcoming-fund-raising-events-face-new-uncertainty.html
+
+**Some of Biden’s upcoming fund-raising events face new uncertainty.**\
+`Plans for a late July fund-raiser in Wisconsin are now off, and it’s unclear whether another event in Texas will proceed, following President Biden’s disastrous debate performance.`\
 https://nytimes.com/live/2024/07/05/us/biden-trump-2024-election/some-of-bidens-upcoming-fund-raising-events-face-new-uncertainty
 
 **Dodgers expected to call up fast-rising prospect Justin Wrobleski**\
