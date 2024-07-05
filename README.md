@@ -1,3 +1,11 @@
+**The Windup: Four teams close to accepting deadline fates**\
+`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
+https://nytimes.com/athletic/5618403/2024/07/05/mlb-trade-deadline-hall-of-fame-the-windup/
+
+**In Northern Ireland, a party opposed to British authority wins big.**\
+`Sinn Féin, which advocates for rejoining the rest of the island of Ireland as part of an independent state, has become a powerful force in politics in Northern Ireland.`\
+https://nytimes.com/live/2024/07/04/world/uk-election-results/in-northern-ireland-a-party-opposed-to-british-authority-wins-big
+
 **Who Is David Lammy, Britain’s New Foreign Secretary?**\
 `Mr. Lammy has deep ties to the United States and campaigned for former President Barack Obama.`\
 https://nytimes.com/2024/07/05/world/europe/who-is-david-lammy-britains-new-foreign-secretary.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/05/world/europe/journalist-sadykov-assassination-ukr
 **Chelsea agree deal to sign Renato Veiga from FC Basel**\
 `Chelsea have agreed a deal with FC Basel to sign Renato Veiga.`\
 https://nytimes.com/athletic/5618375/2024/07/05/chelsea-transfers-renato-veiga/
-
-**‘Prosper’ Is a Juicy Megachurch Drama**\
-`This Australian series has enough tawdry scandals to qualify as a soap and enough Shakespearean power lust to qualify as a fancy drama.`\
-https://nytimes.com/2024/07/05/arts/television/prosper-review.html
-
-**How to Watch Biden’s Prime-time Interview**\
-`President Biden is giving his first television interview since last week’s debate to George Stephanopoulos of ABC News, a key moment as he tries to rebound from a poor performance.`\
-https://nytimes.com/2024/07/05/us/politics/how-to-watch-biden-interview-abc.html
 
