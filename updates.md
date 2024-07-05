@@ -1,3 +1,7 @@
+**Chelsea set to appoint Van der Kraan from Man City**\
+`Chelsea are set to appoint Glenn van der Kraan from Manchester City as a prominent figure in their restructured academy set-up following the shock departures of Neil Bath and Jim Fraser.`\
+https://nytimes.com/athletic/5617740/2024/07/05/glenn-van-der-kraan-chelsea-manchester-city/
+
 **Phillies trade season renews focus on Brandon Marsh: Can he be a successful everyday player?**\
 `It's been 50 days since Marsh started against a lefty. At the deadline, the Phillies could seek a better RHH outfielder to pair with Marsh.`\
 https://nytimes.com/athletic/5617376/2024/07/05/brandon-marsh-phillies-platoon-everyday-player/

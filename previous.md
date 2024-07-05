@@ -1,3 +1,7 @@
+**Chelsea set to appoint Van der Kraan from Man City**\
+`Chelsea are set to appoint Glenn van der Kraan from Manchester City as a prominent figure in their restructured academy set-up following the shock departures of Neil Bath and Jim Fraser.`\
+https://nytimes.com/athletic/5617740/2024/07/05/glenn-van-der-kraan-chelsea-manchester-city/
+
 **Phillies trade season renews focus on Brandon Marsh: Can he be a successful everyday player?**\
 `It's been 50 days since Marsh started against a lefty. At the deadline, the Phillies could seek a better RHH outfielder to pair with Marsh.`\
 https://nytimes.com/athletic/5617376/2024/07/05/brandon-marsh-phillies-platoon-everyday-player/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/05/books/review/new-paperbacks-howley.ht
 **One by One, the Reasons to Stick With Biden Are Failing**\
 `A memo to the faithful: It’s time to let go.`\
 https://nytimes.com/live/2024/07/02/opinion/thepoint/one-by-one-the-reasons-to-stick-with-biden-are-failing
-
-**We Need to Better Understand Aging to Know President Biden’s Dilemma**\
-`The president is a classic aging case playing out for the country to watch.`\
-https://nytimes.com/2024/07/05/opinion/we-need-to-better-understand-aging-to-know-president-bidens-dilemma.html
 
