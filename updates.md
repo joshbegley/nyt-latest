@@ -1,3 +1,7 @@
+**Labour rebuilds its ‘red wall,’ where Conservatives triumphed 5 years ago.**\
+`By Mark Landler`\
+https://nytimes.com/live/2024/07/04/world/uk-election-results/labour-rebuilds-its-red-wall-where-conservatives-triumphed-5-years-ago
+
 **Jeremy Hunt, the U.K.’s No. 2 most powerful official, narrowly keeps his seat.**\
 `By Stephen Castle`\
 https://nytimes.com/live/2024/07/04/world/uk-election-results/jeremy-hunt-the-uks-no-2-most-powerful-official-narrowly-keeps-his-seat
