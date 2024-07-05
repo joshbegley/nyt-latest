@@ -1,3 +1,7 @@
+**Phillies trade season renews focus on Brandon Marsh: Can he be a successful everyday player?**\
+`It's been 50 days since Marsh started against a lefty. At the deadline, the Phillies could seek a better RHH outfielder to pair with Marsh.`\
+https://nytimes.com/athletic/5617376/2024/07/05/brandon-marsh-phillies-platoon-everyday-player/
+
 **At a Key Juncture, Biden Again Gambles on ABC’s George Stephanopoulos**\
 `A high-stakes moment for the president could also be the most consequential interview of the star anchor’s career.`\
 https://nytimes.com/2024/07/05/business/media/george-stephanopoulos-biden-interview.html

@@ -1,3 +1,7 @@
+**Phillies trade season renews focus on Brandon Marsh: Can he be a successful everyday player?**\
+`It's been 50 days since Marsh started against a lefty. At the deadline, the Phillies could seek a better RHH outfielder to pair with Marsh.`\
+https://nytimes.com/athletic/5617376/2024/07/05/brandon-marsh-phillies-platoon-everyday-player/
+
 **At a Key Juncture, Biden Again Gambles on ABC’s George Stephanopoulos**\
 `A high-stakes moment for the president could also be the most consequential interview of the star anchor’s career.`\
 https://nytimes.com/2024/07/05/business/media/george-stephanopoulos-biden-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/02/opinion/thepoint/one-by-one-the-reasons-to-s
 **We Need to Better Understand Aging to Know President Biden’s Dilemma**\
 `The president is a classic aging case playing out for the country to watch.`\
 https://nytimes.com/2024/07/05/opinion/we-need-to-better-understand-aging-to-know-president-bidens-dilemma.html
-
-**8 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://nytimes.com/2024/07/05/movies/new-movies-this-week-critics.html
 
