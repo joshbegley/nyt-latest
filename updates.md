@@ -1,3 +1,7 @@
+**$504 Million**\
+`The total in federal grants to create a dozen “tech hubs” in regions beyond Silicon Valley and the coasts.`\
+https://nytimes.com/2024/07/05/business/504-million-tech-hubs.html
+
 **Cajun Shrimp Boil With Rémoulade; Blueberry Pancakes With Maple Sausages**\
 `Consider this your permission to go big this weekend.`\
 https://nytimes.com/2024/07/05/dining/cajun-shrimp-boil-summer-recipes.html
