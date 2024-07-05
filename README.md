@@ -4,7 +4,7 @@ https://nytimes.com/2024/07/05/world/europe/jewish-voters-labour-uk.html
 
 **Who Is Rachel Reeves, the Woman Taking the Helm of Britain’s Economy?**\
 `As the newly named chancellor of the Exchequer, she is taking on the tough job of boosting Britain’s productivity growth and of reviving struggling public services.`\
-https://nytimes.com/2024/07/05/world/europe/rachel-reeves-britain-economy.html
+https://nytimes.com/2024/07/05/world/europe/rachel-reeves-uk-chancellor-economy.html
 
 **What’s the Deal With All the Flags on the Jersey Shore?**\
 `One journalist, a resident of the beach town Avalon, N.J., wanted to find out.`\
