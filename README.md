@@ -1,3 +1,7 @@
+**The Briefing: Spain 2-1 Germany - Mikel Merino's late, late winner dumps out Euro 2024 hosts**\
+`Spain produced a brilliant late flourish to beat Germany 2-1 in the Euro 2024 quarter-finals`\
+https://nytimes.com/athletic/5614353/2024/07/05/spain-germany-euro-2024-mikel-merino/
+
 **Andrew Tate Is Allowed to Leave Romania in Latest Court Decision**\
 `The court in Bucharest ruled that Mr. Tate and his brother, who are facing human trafficking and rape charges, must remain in the European Union as they await trial, his lawyer said.`\
 https://nytimes.com/2024/07/05/world/europe/andrew-tate-romania-human-trafficking-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/05/us/kansas-supreme-court-abortion.html
 **France’s Left-Wing New Popular Front Scored Big in Sunday’s Vote. Who Are They?**\
 `Parties on the left were so fractious, they broke up their alliance months ago, but the possibility of a government controlled by the far right drew them back together.`\
 https://nytimes.com/2024/07/05/world/europe/france-left-new-popular-front.html
-
-**Bullpen report: Porter Hodge enters Cubs' circle of trust, Mason Miller cools down and more**\
-`Greg Jewett reports on all the latest trends and key developments across MLB bullpens that fantasy baseball managers need to know.`\
-https://nytimes.com/athletic/5618689/2024/07/05/mlb-bullpen-fantasy-baseball-mason-miller-2/
 
