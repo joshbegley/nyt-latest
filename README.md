@@ -1,3 +1,11 @@
+**How to Watch Biden’s Prime-time Interview**\
+`President Biden is giving his first television interview since last week’s debate to George Stephanopoulos of ABC News, a key moment as he tries to rebound from a poor performance.`\
+https://nytimes.com/2024/07/05/us/politics/how-to-watch-bidens-prime-time-interview.html
+
+**UEFA rules Manchester City and Girona, Manchester United and Nice can play in same competitions**\
+`UEFA has ruled that multi-club pairs Manchester City and Girona, and Manchester United and Nice will be able to compete in the same European club competitions during the 2024-25 season.`\
+https://nytimes.com/athletic/5618262/2024/07/05/man-utd-city-girona-nice-uefa-multi-club-rules/
+
 **$504 Million**\
 `The total in federal grants to create a dozen “tech hubs” in regions beyond Silicon Valley and the coasts.`\
 https://nytimes.com/2024/07/05/business/504-million-tech-hubs.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/05/world/americas/brazil-bolsonaro-police-embezzleme
 **Wisconsin Supreme Court Says Ballot Drop Boxes Can Again Be Used**\
 `The decision by the court’s liberal majority, delivered four months before the November election, reverses a ruling by conservative jurists two years ago.`\
 https://nytimes.com/2024/07/05/us/wisconsin-supreme-court-absentee-ballots.html
-
-**It’s Still Barbie’s World**\
-`A new exhibition reminds us that while the famous doll can now do any job, her greatest power is selling stuff — to children and adults alike.`\
-https://nytimes.com/2024/07/05/arts/design/barbie-exhibition-london-museum.html
-
-**Fresh Jobs Data Spurs Investors to Bet on September Fed Rate Cut**\
-`As unemployment ticks up and wage growth cools, Federal Reserve officials are watching for signs that the job market is about to crack.`\
-https://nytimes.com/2024/07/05/business/jobs-report-fed-rates.html
 
