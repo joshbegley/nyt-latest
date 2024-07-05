@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`A landslide victory for Labour.`\
+https://nytimes.com/2024/07/05/world/europe/labour-victory-uk-election.html
+
 **How do F1 drivers race against Max Verstappen? 'It's tough and on the limit’**\
 `Stay informed on all the biggest stories in Formula One.`\
 https://nytimes.com/athletic/5617009/2024/07/05/f1-max-verstappen-racing-style-lando-norris/
