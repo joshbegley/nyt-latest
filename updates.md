@@ -1,3 +1,7 @@
+**Steve Yzerman discusses Red Wings' offseason, 2024-25 outlook**\
+`Yzerman met with media on Thursday to discuss the team's offseason moves and outlook.`\
+https://nytimes.com/athletic/5617182/2024/07/04/red-wings-free-agents-tarasenko/
+
 **Biden Stumbles Over His Words as He Tries to Steady Re-Election Campaign**\
 `The president’s appearances have come under intense scrutiny since he appeared feeble in his debate against former President Donald J. Trump.`\
 https://nytimes.com/2024/07/04/us/politics/biden-election-campaign.html

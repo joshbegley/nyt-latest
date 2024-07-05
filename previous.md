@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5617417/2024/07/04/astros-kyle-tucker-offense-selfl
 https://nytimes.com/athletic/5616996/2024/07/04/wimbledon-recap-grand-slam-comes-alive-on-general-election-day-and-4th-july/
 
 **Steve Yzerman discusses Red Wings' offseason, 2024-25 outlook**\
-`Yzerman met with media on Thursday to discuss the team's offseason moves and outlook going forward.`\
+`Yzerman met with media on Thursday to discuss the team's offseason moves and outlook.`\
 https://nytimes.com/athletic/5617182/2024/07/04/red-wings-free-agents-tarasenko/
 
 **Biden Stumbles Over His Words as He Tries to Steady Re-Election Campaign**\
