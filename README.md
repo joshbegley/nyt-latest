@@ -1,3 +1,7 @@
+**Some of Biden’s upcoming fund-raising events face new uncertainty.**\
+`Plans for a late July fund-raiser in Wisconsin are now off, and it’s unclear whether another event in Texas will proceed, following President Biden’s disastrous debate performance.`\
+https://nytimes.com/live/2024/07/05/us/biden-trump-2024-election/some-of-bidens-upcoming-fund-raising-events-face-new-uncertainty
+
 **How Mikel Merino's spectacular frog leap lifted Spain into the Euro 2024 semi-finals**\
 `'At first I didn’t believe it,' said Mikel Merino after scoring a goal that owed so much to a spectacular leap`\
 https://nytimes.com/athletic/5619269/2024/07/05/mikel-merino-frog-leap/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5616350/2024/07/05/mats-wieffer-brighton-feyenoord/
 **Martin Necas among 14 NHL players electing for salary arbitration**\
 `The Hurricanes forward is among 14 NHL players who have filed for salary arbitration before Friday's 5 p.m. Eastern deadline.`\
 https://nytimes.com/athletic/5619174/2024/07/05/nhl-salary-arbitration-players/
-
-**Paal Enger, Who Stole Munch’s ‘The Scream,’ Is Dead at 57**\
-`A promising player for a storied Norwegian soccer club, he instead found infamy for stealing one of the world’s most famous artworks.`\
-https://nytimes.com/2024/07/05/arts/paal-enger-dead.html
 
