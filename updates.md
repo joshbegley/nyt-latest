@@ -1,3 +1,7 @@
+**What Labour’s Sort-of Landslide Means for Biden**\
+`The far right’s performance in the British elections is a clear warning sign for the U.S.`\
+https://nytimes.com/live/2024/07/02/opinion/thepoint/labor-landslide-far-right
+
 **Keke Jabbar, Who Starred on ‘Love and Marriage: Huntsville,’ Dies at 42**\
 `She was a frequent sight on the series, which began in 2019, and impressed fans with her straightforward attitude.`\
 https://nytimes.com/2024/07/05/arts/keke-jabbar-love-marriage-huntsville-dead.html
