@@ -1,5 +1,5 @@
 **Nigel Farage, Right-Wing Disrupter, Elected to Parliament for the First Time**\
-`His upstart party, Reform U.K., was projected to win 13 seats, a very strong showing, according to a nationwide exit poll.`\
+`His upstart party, Reform U.K., was projected to win four seats, a strong showing, according to a nationwide exit poll.`\
 https://nytimes.com/2024/07/04/world/europe/farage-parliament-reform-election.html
 
 **Six People Injured After Being Struck By Pickup Truck in Downtown Manhattan**\
