@@ -34,7 +34,7 @@ https://nytimes.com/athletic/5617371/2024/07/05/f1-carlos-sainz-driver-market-ve
 `Gareth Southgate has hit back at any suggestions that England have a favourable draw at the European Championship and called such talk as a &#8220;classic example of entitlement&#8221; the country has.`\
 https://nytimes.com/athletic/5618851/2024/07/05/england-swizerland-gareth-southgate/
 
-**Spain's Morata out of Euro 2024 semi-final through suspension**\
-`Spain captain Alvaro Morata will miss his side’s European Championship semi-final through suspension.`\
+**Spain's Alvaro Morata not suspended for Euro 2024 semi-final**\
+`Spain captain Alvaro Morata is available for his side’s European Championship semi-final, UEFA have confirmed.`\
 https://nytimes.com/athletic/5618641/2024/07/05/alvaro-morata-spain-suspended-euro-2024/
 
