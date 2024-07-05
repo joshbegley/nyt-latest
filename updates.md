@@ -1,3 +1,11 @@
+**Video Submission Form for Our 15th Annual Summer Reading Contest**\
+`Use this page to tell us what got your attention in The New York Times in 2024 via a 90-second video.`\
+https://nytimes.com/2024/07/05/learning/video-submission-form-for-our-15th-annual-summer-reading-contest.html
+
+**Britain’s Liberal Democrats Score Big Election Gains**\
+`The small centrist party campaigned on improving health and social care. Its leader, Ed Davey, wooed voters with publicity stunts and personal appeals.`\
+https://nytimes.com/2024/07/05/world/europe/uk-liberal-democrats-ed-davey-election.html
+
 **Talks on Gaza Cease-Fire Revive After Weeks of Deadlock**\
 `The negotiations had been stalled for weeks until Hamas announced on Wednesday that it had exchanged some ideas with mediators on a new way forward.`\
 https://nytimes.com/2024/07/05/world/middleeast/gaza-cease-fire-talks-israel-hamas.html
