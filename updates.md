@@ -1,3 +1,7 @@
+**Fed Officials Keep an Eye Out for Cracks in the Job Market**\
+`Federal Reserve policymakers are watching for any sign that the labor market is weakening abruptly, which might prod them to cut rates sooner.`\
+https://nytimes.com/2024/07/05/business/economy/fed-labor-market.html
+
 **Martinez the saviour after Messi's Panenka miss - how Argentina beat Ecuador on penalties**\
 `Emiliano Martinez came to Argentina and Lionel Messi's rescue in a manner only he knows how - they are now into the Copa America semi-final`\
 https://nytimes.com/athletic/5617618/2024/07/05/argentina-messi-panenka-martinez-copa-america/
