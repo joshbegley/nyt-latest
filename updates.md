@@ -1,3 +1,7 @@
+**Ex-Villa loanee Zaniolo joins Atalanta on loan from Galatasaray**\
+`Nicolo Zaniolo has joined Atalanta on a season-long loan from Galatasaray.`\
+https://nytimes.com/athletic/5618426/2024/07/05/nicolo-zaniolo-atalanta-transfer/
+
 **Transcript: Ezra Klein Interviews Elaina Plott Calabro**\
 `The July 5, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/07/05/podcasts/transcript-ezra-klein-interviews-elaina-plott-calabro.html
