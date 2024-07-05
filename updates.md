@@ -1,3 +1,7 @@
+**Biden Stumbles Over His Words as He Tries to Steady Re-Election Campaign**\
+`The president’s appearances have come under intense scrutiny since he appeared feeble in his debate against former President Donald J. Trump.`\
+https://nytimes.com/2024/07/04/us/politics/biden-election-campaign.html
+
 **Reds poised for season-defining homestand after sweeping the Yankees**\
 `Spencer Steer hit a three-run homer and said: “We can play with anyone when we put together complete baseball games."`\
 https://nytimes.com/athletic/5617421/2024/07/04/reds-sweep-yankees/
