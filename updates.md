@@ -1,3 +1,19 @@
+**Chelsea appoint Seyi Olofinjana in talent management role covering Africa**\
+`Chelsea have appointed former Nigeria international Seyi Olofinjana into a talent management role covering Africa.`\
+https://nytimes.com/athletic/5618110/2024/07/05/chelsea-appoint-seyi-olofinjana/
+
+**Nancy Azara, Sculptor Who Created a Haven for Feminist Artists, Dies at 84**\
+`She helped establish the New York Feminist Art Institute. In her own work — monumental pieces carved from found lumber — she evoked ancient feminine imagery.`\
+https://nytimes.com/2024/07/05/arts/nancy-azara-dead.html
+
+**Samuel Eto'o fined after investigation into violating CAF's principles**\
+`Samuel Eto’o has been fined by Confederation Africaine de Football (CAF) after an investigation into alleged violation of the principles of ethics and integrity.`\
+https://nytimes.com/athletic/5617344/2024/07/05/samuel-etoo-fined-caf-investigation/
+
+**Your Premier League club's pre-season fixtures for the 2024-25 season**\
+`From the Sunshine State Tour to a Bayern Munich double-header, this is how each English top-flight club is shaping up`\
+https://nytimes.com/athletic/5614760/2024/07/05/premier-league-pre-season-fixtures-training-2024-25/
+
 **Kazakh Journalist’s Killing Sends Chill Through Exiles in Ukraine**\
 `Aidos Sadykov, an opposition activist whose YouTube channel often criticizes Kazakhstan’s government, was shot in Ukraine, where he was living in exile.`\
 https://nytimes.com/2024/07/05/world/europe/journalist-sadykov-assassination-ukraine.html
