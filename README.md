@@ -24,7 +24,7 @@ https://nytimes.com/athletic/5615753/2024/07/05/venezuela-copa-america-baseball-
 
 **How Bad Is Drinking for You, Really?**\
 `Alcohol is riskier than previously thought, but weighing the trade-offs of health risks can be deeply personal.`\
-https://nytimes.com/2024/07/05/podcasts/the-daily/alcohol-healt-risks.html
+https://nytimes.com/2024/07/05/podcasts/the-daily/alcohol-health-risks.html
 
 **Three trade takeaways as Cubs may be shifting into sell mode**\
 `The trade rumors have returned for Cody Bellinger. What might the Cubs get back and why is his contract a possible impediment?`\
