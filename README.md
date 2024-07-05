@@ -1,3 +1,7 @@
+**How Biden Might Be Thinking About the Decision Ahead of Him**\
+`Does Biden run? Does he step aside? His recurring considerations are family, legacy and, yes, his age.`\
+https://nytimes.com/2024/07/05/opinion/joe-biden-decision.html
+
 **The Reintroduction of Kamala Harris**\
 `Vice President Kamala Harris has spent the past year trying to quiet her doubters. Now, with President Biden’s candidacy on the line, Democrats are assessing whether she is up to being the nominee.`\
 https://nytimes.com/2024/07/05/us/politics/kamala-harris-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/04/world/europe/count-binface-and-elmo-both-good-los
 **Michael Tracy, Artist Who Helped Restore a Texas Border Town, Dies at 80**\
 `His baroque fusions of bright paint, wood and other detritus wowed the art world. But as his fame faded, he turned his attention to historic preservation.`\
 https://nytimes.com/2024/07/05/arts/michael-tracy-dies.html
-
-**Bellingham plays on the edge - but must stay the right side of the emotional precipice**\
-`The England and Real Madrid midfielder has escaped a ban for his Slovakia celebration - he has to stay the right side of the line`\
-https://nytimes.com/athletic/5618162/2024/07/05/england-bellingham-edge-rooney-beckham-gascoigne/
 
