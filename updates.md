@@ -1,3 +1,7 @@
+**Wisconsin Supreme Court Says Ballot Drop Boxes Can Again Be Used**\
+`The decision by the court’s liberal majority, delivered four months before the November election, reverses a ruling by conservative jurists two years ago.`\
+https://nytimes.com/2024/07/05/us/wisconsin-supreme-court-absentee-ballots.html
+
 **It’s Still Barbie’s World**\
 `A new exhibition reminds us that while the famous doll can now do any job, her greatest power is selling stuff — to children and adults alike.`\
 https://nytimes.com/2024/07/05/arts/design/its-still-barbies-world.html
