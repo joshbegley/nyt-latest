@@ -1,3 +1,19 @@
+**The Windup: Four teams close to accepting deadline fates**\
+`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
+https://nytimes.com/athletic/5618403/2024/07/05/mlb-trade-deadline-hall-of-fame-the-windup/
+
+**In Northern Ireland, a party opposed to British authority wins big.**\
+`Sinn Féin, which advocates for rejoining the rest of the island of Ireland as part of an independent state, has become a powerful force in politics in Northern Ireland.`\
+https://nytimes.com/live/2024/07/04/world/uk-election-results/in-northern-ireland-a-party-opposed-to-british-authority-wins-big
+
+**Who Is David Lammy, Britain’s New Foreign Secretary?**\
+`Mr. Lammy has deep ties to the United States and campaigned for former President Barack Obama.`\
+https://nytimes.com/2024/07/05/world/europe/who-is-david-lammy-britains-new-foreign-secretary.html
+
+**Gareth Southgate and a back three - Can England switch systems against Switzerland?**\
+`The England manager was handed an unlikely lifeline against Slovakia and must grasp it by instigating a radical change against Switzerland`\
+https://nytimes.com/athletic/5613740/2024/07/05/southgate-england-back-three-switzerland/
+
 **Chelsea appoint Seyi Olofinjana in talent management role covering Africa**\
 `Chelsea have appointed former Nigeria international Seyi Olofinjana into a talent management role covering Africa.`\
 https://nytimes.com/athletic/5618110/2024/07/05/chelsea-appoint-seyi-olofinjana/
