@@ -20,7 +20,7 @@ https://nytimes.com/athletic/5618711/2024/07/05/wimbledon-recap-coco-gauff-beats
 
 **A Hollow Labor Victory Brings Change to Britain**\
 `A commanding supermajority derived from only 20 percent support looks like a recipe for a backlash.`\
-https://nytimes.com/live/2024/07/02/opinion/thepoint/a-hollow-labor-victory-brings-change-to-britain
+https://nytimes.com/live/2024/07/02/opinion/thepoint/labor-election-uk
 
 **Standouts and observations from Red Wings development camp**\
 `Breaking down who stood out at the Red Wings' 2024 development camp.`\
