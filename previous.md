@@ -1,3 +1,11 @@
+**Five Takeaways From the U.K. General Election**\
+`The Labour Party won a resounding victory over the Conservatives, but smaller parties, including the populist Reform, did better than expected.`\
+https://nytimes.com/2024/07/05/world/europe/uk-general-election-key-takeaways.html
+
+**Brad Pitt's F1 movie title revealed by Apple: 'I'm super excited'**\
+`Apple, Formula One and Warner Bros.`\
+https://nytimes.com/athletic/5618184/2024/07/05/f1-brad-pitt-movie-apple/
+
 **Sometimes It Is the Coach’s Fault**\
 `The U.S. collapsed under the weight of expectations at the Copa América. Its next move could determine if there is a repeat, or a revival, at the 2026 World Cup.`\
 https://nytimes.com/2024/07/05/world/americas/usmnt-berhalter.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/07/05/world/europe/uk-election-results-map-
 **Summer Reading Contest, Week 5: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by July 12 at 9 a.m. Eastern. This week’s winners will be announced by July 24.`\
 https://nytimes.com/2024/07/05/learning/summer-reading-contest-week-5-what-got-your-attention-in-the-times-this-week.html
-
-**The Tennis Podcast that Champions, and Hosts, Black Pros**\
-`Black Spin Global found an audience with its cheeky coverage of the growing number of ranked Black tennis players. It also offered them a forum.`\
-https://nytimes.com/2024/07/05/arts/black-spin-global-tennis-podcast.html
-
-**‘My Government Will Serve You,’ Starmer Says**\
-`During Keir Starmer’s first speech as the British prime minister, he said that the country had voted for a “national renewal and a return of politics to public service.”`\
-https://nytimes.com/video/world/europe/100000009556595/uk-election-keir-starmer.html
 

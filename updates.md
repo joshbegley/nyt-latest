@@ -1,3 +1,11 @@
+**Five Takeaways From the U.K. General Election**\
+`The Labour Party won a resounding victory over the Conservatives, but smaller parties, including the populist Reform, did better than expected.`\
+https://nytimes.com/2024/07/05/world/europe/uk-general-election-key-takeaways.html
+
+**Brad Pitt's F1 movie title revealed by Apple: 'I'm super excited'**\
+`Apple, Formula One and Warner Bros.`\
+https://nytimes.com/athletic/5618184/2024/07/05/f1-brad-pitt-movie-apple/
+
 **Sometimes It Is the Coach’s Fault**\
 `The U.S. collapsed under the weight of expectations at the Copa América. Its next move could determine if there is a repeat, or a revival, at the 2026 World Cup.`\
 https://nytimes.com/2024/07/05/world/americas/usmnt-berhalter.html
