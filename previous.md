@@ -1,3 +1,7 @@
+**Turkey’s Demiral handed two-game suspension for 'indecent' celebration**\
+`Turkey defender Merih Demiral has been handed a two-game suspension by UEFA after appearing to make an ultranationalist salute while celebrating his second goal against Austria in Tuesday’s European Championship last-16 match.`\
+https://nytimes.com/athletic/5617842/2024/07/05/merih-demiral-ban-suspension-turkey-euro-2024/
+
 **Bournemouth keen on signing Fran Garcia from Real Madrid**\
 `Bournemouth are interested in signing Fran Garcia from Real Madrid.`\
 https://nytimes.com/athletic/5617811/2024/07/05/fran-garcia-real-madrid-bournemouth/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000009556440/italys-mount-etna-erupts.
 **Fed Officials Keep an Eye Out for Cracks in the Job Market**\
 `Federal Reserve policymakers are watching for any sign that the labor market is weakening abruptly, which might prod them to cut rates sooner.`\
 https://nytimes.com/2024/07/05/business/economy/fed-labor-market.html
-
-**Martinez the saviour after Messi's Panenka miss - how Argentina beat Ecuador on penalties**\
-`Emiliano Martinez came to Argentina and Lionel Messi's rescue in a manner only he knows how - they are now into the Copa America semi-final`\
-https://nytimes.com/athletic/5617618/2024/07/05/argentina-messi-panenka-martinez-copa-america/
 

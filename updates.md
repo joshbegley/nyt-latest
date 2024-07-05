@@ -1,3 +1,7 @@
+**Turkey’s Demiral handed two-game suspension for 'indecent' celebration**\
+`Turkey defender Merih Demiral has been handed a two-game suspension by UEFA after appearing to make an ultranationalist salute while celebrating his second goal against Austria in Tuesday’s European Championship last-16 match.`\
+https://nytimes.com/athletic/5617842/2024/07/05/merih-demiral-ban-suspension-turkey-euro-2024/
+
 **Bournemouth keen on signing Fran Garcia from Real Madrid**\
 `Bournemouth are interested in signing Fran Garcia from Real Madrid.`\
 https://nytimes.com/athletic/5617811/2024/07/05/fran-garcia-real-madrid-bournemouth/
