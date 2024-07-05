@@ -1,40 +1,40 @@
-**Bellingham given suspended ban for Slovakia gesture, available for Switzerland game**\
-`Jude Bellingham has been given a suspended one-game ban following a UEFA investigation into the lewd gesture he appeared to make towards the Slovakia bench in the European Championship last 16.`\
-https://nytimes.com/athletic/5609166/2024/07/05/jude-bellingham-england-ban-suspension/
+**Martinez the saviour after Messi's Panenka miss - how Argentina beat Ecuador on penalties**\
+`Emiliano Martinez came to Argentina and Lionel Messi's rescue in a manner only he knows how - they are now into the Copa America semi-final`\
+https://nytimes.com/athletic/5617618/2024/07/05/argentina-messi-panenka-martinez-copa-america/
 
-**Viktor Orban Travels to Russia for Meeting With Vladimir Putin**\
-`Days after a trip to Ukraine, the Hungarian leader arrived in Moscow for a visit that has dismayed E.U. officials, who have made clear that he is not there on behalf of the bloc.`\
-https://nytimes.com/2024/07/05/world/europe/orban-putin-meeting-russia-hungary.html
+**State of the 49ers, OL: Can the pass protection regression be reversed?**\
+`The likeliest Week 1 lineup for the 49ers' offensive line — the same group that started the Super Bowl.`\
+https://nytimes.com/athletic/5560532/2024/07/05/san-francisco-49ers-offensive-line-2024/
 
-**Independence Days**\
-`How do people celebrate around the world?`\
-https://nytimes.com/2024/07/05/briefing/independence-days.html
+**Lowetide: Oilers top 20 prospects ranking, summer 2024**\
+`Edmonton's prospect list got a badly needed boost via the 2024 NHL Draft.`\
+https://nytimes.com/athletic/5613140/2024/07/05/edmonton-oilers-top-20-prospects-ranking-summer-2024/
 
-**Labour Loses Votes in Muslim Areas Over Its Gaza Policy**\
-`Many British Muslims and other voters have demanded that party leaders more vocally condemn the rising death toll and deepening humanitarian crisis in Gaza.`\
-https://nytimes.com/2024/07/05/world/europe/uk-labour-party-israel-gaza-war-starmer.html
+**The Athletic’s Friday football quiz question #11**\
+`Every week, we'll serve up a poser from our vault of football conundrums. It won't be easy (unless you're really good…)`\
+https://nytimes.com/athletic/5616669/2024/07/05/the-athletic-friday-football-quiz-question-11/
 
-**Why Canada made the Copa America quarterfinals - and the U.S. and Mexico didn't**\
-`New coach Marsch has got Canada fired up and his team are using the goodwill behind them as a positive rather than feeling the pressure`\
-https://nytimes.com/athletic/5616732/2024/07/05/canada-jesse-marsch-usmnt-mexico/
+**5 Children’s Movies to Stream Now**\
+`This month’s picks include a superhero adventure, a dark fantasy tale and films based on beloved television series.`\
+https://nytimes.com/2024/07/05/movies/kids-movies-streaming.html
 
-**USMNT mailbag: Your questions answered after Copa America exit**\
-`Paul Tenorio answers readers' questions about the USMNT following its Copa America exit`\
-https://nytimes.com/athletic/5617464/2024/07/05/usmnt-berhalter-questions-world-cup-2026/
+**Cresswell's Toulouse move back on**\
+`Leeds United defender Charlie Cresswell&#8217;s move to Ligue 1 side Toulouse is back on after initially breaking down over personal terms earlier in the week.`\
+https://nytimes.com/athletic/5617803/2024/07/05/leeds-transfers-charlie-cresswell/
 
-**Japan Finally Phases Out Floppy Disks**\
-`One of the world’s most technologically advanced nations has held on to some of the most outmoded devices.`\
-https://nytimes.com/2024/07/05/world/asia/japan-floppy-disks.html
+**Live Updates: U.S. Jobs Report Expected to Show Slower Pace of Hiring**\
+`The economy remains solid, but many analysts predicted that today’s data will show that the labor market shifted into a lower gear in June.`\
+https://nytimes.com/live/2024/07/05/business/june-jobs-report
 
-**U.K. Election Turnout Set to Be Lowest in Over 20 Years**\
-`Voter participation was estimated at 60 percent — below that in every recent election except 2001, another widely anticipated landslide.`\
-https://nytimes.com/2024/07/05/world/europe/uk-election-turnout.html
+**The Pulse: Messi doinks a PK, but plays on**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5617546/2024/07/05/argentina-ecuador-pks-copa-america-the-pulse/
 
-**One thought on each Big 12 team following June official visits**\
-`Which league programs made the biggest moves during a key recruiting month?`\
-https://nytimes.com/athletic/5612669/2024/07/05/big-12-recruiting-update-official-visits/
+**Sunak Defends Record in Last Speech as Prime Minister**\
+`In brief remarks in Downing Street, he apologized to Britain for his failings and accepted responsibility for his party’s stinging election defeat.`\
+https://nytimes.com/2024/07/05/world/europe/sunak-speech-prime-minister-election.html
 
-**Easton Cowan is ready to get a look in the NHL with the Maple Leafs**\
-`Easton Cowan has shown he’s ready for the next step in his career.`\
-https://nytimes.com/athletic/5617058/2024/07/05/easton-cowan-maple-leafs/
+**Rishi Sunak Gives Final Speech as U.K. Prime Minister**\
+`In front of 10 Downing Street, Rishi Sunak accepted responsibility for his party’s defeat and said he had heard British voters’ anger.`\
+https://nytimes.com/video/world/europe/100000009556534/rishi-sunak-final-speech-uk-election.html
 
