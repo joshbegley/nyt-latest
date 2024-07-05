@@ -1,3 +1,7 @@
+**The White Party That Brought Kim Kardashian, Drake and Tom Brady to the Hamptons**\
+`Michael Rubin, the billionaire e-commerce mogul, hosted a celebrity-filled, Independence Day bash at his beachfront mansion on Long Island.`\
+https://nytimes.com/2024/07/05/style/michael-rubin-july-fourth-party.html
+
 **Christen Press on Angel City sale, player investment and focus on the pitch**\
 `Willow Bay and her husband, Disney CEO Bob Iger, are nearing a deal for a controlling stake in Angel City.`\
 https://nytimes.com/athletic/5618852/2024/07/05/christen-press-angel-city-sale/

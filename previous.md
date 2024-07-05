@@ -1,3 +1,7 @@
+**The White Party That Brought Kim Kardashian, Drake and Tom Brady to the Hamptons**\
+`Michael Rubin, the billionaire e-commerce mogul, hosted a celebrity-filled, Independence Day bash at his beachfront mansion on Long Island.`\
+https://nytimes.com/2024/07/05/style/michael-rubin-july-fourth-party.html
+
 **Christen Press on Angel City sale, player investment and focus on the pitch**\
 `Willow Bay and her husband, Disney CEO Bob Iger, are nearing a deal for a controlling stake in Angel City.`\
 https://nytimes.com/athletic/5618852/2024/07/05/christen-press-angel-city-sale/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/05/world/europe/andrew-tate-romania-human-traffickin
 **Shaw fit to start for England vs Switzerland**\
 `Gareth Southgate has declared Luke Shaw fit to start for England in their quarter-final with Switzerland on Saturday.`\
 https://nytimes.com/athletic/5618785/2024/07/05/luke-shaw-england-team-news/
-
-**Fantasy basketball free agency fallout: Dejounte Murray to New Orelans, Paul George to Philly and more**\
-`Stan Son breaks down the fantasy basketball impact of the big trades and signings, thus far, of the NBA free agency period.`\
-https://nytimes.com/athletic/5618720/2024/07/05/fantasy-basketball-free-agency-fallout-trades/
 
