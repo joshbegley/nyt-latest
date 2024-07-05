@@ -1,3 +1,11 @@
+**Labour Wins Back Trust of British Jews Who Turned From the Party**\
+`Keir Starmer had made rooting out antisemitism from the Labour Party’s ranks a goal of his leadership.`\
+https://nytimes.com/2024/07/05/world/europe/jewish-voters-labour-uk.html
+
+**It’s Still Barbie’s World**\
+`A new exhibition reminds us that while the famous doll can now do any job, her greatest power is selling stuff — to children and adults alike.`\
+https://nytimes.com/2024/07/05/arts/design/barbie-exhibition-london-museum.html
+
 **Who Is Rachel Reeves, the Woman Taking the Helm of Britain’s Economy?**\
 `As the newly named chancellor of the Exchequer, she is taking on the tough job of boosting Britain’s productivity growth and of reviving struggling public services.`\
 https://nytimes.com/2024/07/05/world/europe/rachel-reeves-britain-economy.html
