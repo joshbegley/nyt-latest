@@ -1,3 +1,15 @@
+**On Their First Date, Her Younger Brother Played Chaperone**\
+`Kaylah Howard was allowed to go to the movies with Jamauri Bogan in high school only if her 4-year-old brother went along.`\
+https://nytimes.com/2024/07/05/style/kaylah-howard-jamauri-bogan-wedding.html
+
+**In Sync on the Ice and Off**\
+`Madison Chock and Evan Bates found chemistry when she picked him to be her ice dance partner in 2011. Then they found even more.`\
+https://nytimes.com/2024/07/05/style/madison-chock-evan-bates-wedding.html
+
+**The first vaccine for malaria received major regulatory approval in 2015.**\
+`After years of delay, millions of malaria vaccines are being supplied to children in Africa. Tens of thousands died waiting.`\
+https://nytimes.com/2024/07/05/health/malaria-vaccine-delay.html
+
 **Optimism in the air at No. 1 pick Macklin Celebrini's first competitive action with Sharks**\
 `San Jose is back on the radar. Interest has been rekindled. Thursday's Sharks prospect scrimmage was the latest example.`\
 https://nytimes.com/athletic/5617587/2024/07/04/macklin-celebrini-first-competitive-action-sharks/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/04/world/europe/farage-parliament-reform-election.ht
 **Two Dead After Being Struck By Pickup Truck in Downtown Manhattan**\
 `At least nine people who were celebrating the July 4 holiday were struck by the truck on the Lower East Side, the authorities said.`\
 https://nytimes.com/2024/07/04/nyregion/lower-east-side-manhattan-truck-pedestrians-accident.html
-
-**Jeremy Corbyn Wins Election Against Labour, Party He Once Led**\
-`The victory was vindication for Mr. Corbyn, who was running for the first time against the Labour party.`\
-https://nytimes.com/2024/07/04/world/europe/corbyn-london-labour-election.html
-
-**Green Juice**\
-`Trent H. Evans opens our solving weekend with a fresh and lively puzzle.`\
-https://nytimes.com/2024/07/04/crosswords/daily-puzzle-2024-07-05.html
-
-**8-Year-Old Is Killed and Two Adults Wounded in Queens Stabbing**\
-`Police officers arrived at an apartment in Jamaica to find a man holding his father at knife point and an 8-year-old mortally wounded.`\
-https://nytimes.com/2024/07/04/nyregion/boy-dead-jamaica-queens.html
 
