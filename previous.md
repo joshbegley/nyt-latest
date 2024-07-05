@@ -1,40 +1,40 @@
-**New Factories and Jobs Are Not Enough to Stem France’s Far Right Surge**\
-`President Emmanuel Macron’s promise of re-industrialization in northern France has helped stimulate the economy, but “people feel defeated and angry.”`\
-https://nytimes.com/2024/07/05/business/france-election-economy.html
+**Easton Cowan is ready to get a look in the NHL with the Maple Leafs**\
+`Easton Cowan has shown he’s ready for the next step in his career.`\
+https://nytimes.com/athletic/5617058/2024/07/05/easton-cowan-maple-leafs/
 
-**Chelsea set to appoint Van der Kraan from Man City**\
-`Chelsea are set to appoint Glenn van der Kraan from Manchester City as a prominent figure in their restructured academy set-up following the shock departures of Neil Bath and Jim Fraser.`\
-https://nytimes.com/athletic/5617740/2024/07/05/glenn-van-der-kraan-chelsea-manchester-city/
+**A U.K. Election Landslide, and Hurricane Beryl Bears Down on Mexico**\
+`Plus, the F.B.I. wades into an Olympics swimming scandal.`\
+https://nytimes.com/2024/07/05/podcasts/a-uk-election-landslide-and-hurricane-beryl-bears-down-on-mexico.html
 
-**Phillies trade season renews focus on Brandon Marsh: Can he be a successful everyday player?**\
-`It's been 50 days since Marsh started against a lefty. At the deadline, the Phillies could seek a better RHH outfielder to pair with Marsh.`\
-https://nytimes.com/athletic/5617376/2024/07/05/brandon-marsh-phillies-platoon-everyday-player/
+**The 10 types of NHL offseasons, from 'The Big Swing' to 'At Least You Tried'**\
+`What kind of summer did your team have? Let’s look at the 10 types of NHL offseasons, why they happen and what they usually lead to.`\
+https://nytimes.com/athletic/5617051/2024/07/05/nhl-offseasons-types/
 
-**At a Key Juncture, Biden Again Gambles on ABC’s George Stephanopoulos**\
-`A high-stakes moment for the president could also be the most consequential interview of the star anchor’s career.`\
-https://nytimes.com/2024/07/05/business/media/george-stephanopoulos-biden-interview.html
+**Baseball is Venezuela's national sport - but the 2024 Copa America shows why that might be changing**\
+`Venezuela's performance at the 2024 Copa America is affirmation they are finally ready make a first appearance in the finals of a World Cup`\
+https://nytimes.com/athletic/5615753/2024/07/05/venezuela-copa-america-baseball-soccer/
 
-**Biden Campaign, Sticking to Its Playbook, Will Spend $50 Million on Ads This Month**\
-`The new ads are part of a push by Mr. Biden’s campaign for stability at a time when some members of his party have called for the president to drop out.`\
-https://nytimes.com/2024/07/05/us/politics/biden-campaign-ad-buy.html
+**How Bad Is Drinking for You, Really?**\
+`Alcohol is riskier than previously thought, but weighing the trade-offs of health risks can be deeply personal.`\
+https://nytimes.com/2024/07/05/podcasts/the-daily/alcohol-healt-risks.html
 
-**Varying Treatment of Biden and Trump Puts Their Parties in Stark Relief**\
-`Republicans and Democrats live in radically different universes, interpreting the same set of facts through radically different lenses.`\
-https://nytimes.com/2024/07/05/us/politics/biden-trump-parties.html
+**Three trade takeaways as Cubs may be shifting into sell mode**\
+`The trade rumors have returned for Cody Bellinger. What might the Cubs get back and why is his contract a possible impediment?`\
+https://nytimes.com/athletic/5617250/2024/07/05/chicago-cubs-trade-deadline-cody-bellinger/
 
-**These Voters Supported Biden in 2020. But Now …**\
-`Dozens of voters in four swing states expressed fear, frustration and anger. And they want a Plan B — whatever (and whoever) that is.`\
-https://nytimes.com/2024/07/05/us/elections/democratic-voter-biden-debate.html
+**Oilers GM candidates: 7 possible options to replace Ken Holland**\
+`Now that the Oilers have gotten through the opening of free agency, it's time to secure a new general manager.`\
+https://nytimes.com/athletic/5617414/2024/07/05/edmonton-oilers-gm-candidates-jeff-jackson/
 
-**5 Things to Do This Weekend**\
-`A selection of entertainment highlights this weekend, including Ti West’s new film, “MaXXXine.”`\
-https://nytimes.com/interactive/2024/07/05/arts/weekend-editors-picks-maXXXine.html
+**Sitting on a cooler box (or bucket), idolised by Pep Guardiola: Who is Bielsa?**\
+`Marcelo Bielsa will lead Uruguay into their match against the USMNT in the Copa America — but who is he?`\
+https://nytimes.com/athletic/5600640/2024/07/05/bielsa-uruguay-copa-america-brazil/
 
-**The New York Times News Quiz, Jul. 5, 2024**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2024/07/05/briefing/news-quiz-trump-immunity.html
+**Wordle Review No. 1,113 July 6, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/05/crosswords/wordle-review-1113.html
 
-**6 New Paperbacks to Read This Week**\
-`Recommended reading from the Book Review, including titles by Jhumpa Lahiri, Kerry Howley, Djuna and more. `\
-https://nytimes.com/interactive/2024/07/05/books/review/new-paperbacks-howley.html
+**The Connections Companion No. 391, July 6, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/05/crosswords/connections-companion-391.html
 
