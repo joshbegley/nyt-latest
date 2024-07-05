@@ -7,7 +7,7 @@ https://nytimes.com/2024/07/05/arts/paal-enger-dead.html
 https://nytimes.com/live/2024/07/02/opinion/thepoint/biden-wisconsin-speech
 
 **The Briefing: Portugal 0 France 0: Penalties decide cagey quarter-final as Mbappe progresses and Ronaldo goes out**\
-`We break down the key moments from the Friday night's quarter-final in Hamburg`\
+`We break down the key moments from Friday night's quarter-final in Hamburg`\
 https://nytimes.com/athletic/5614352/2024/07/05/portugal-france-euro-2024-result-analysis/
 
 **Oilers trade Ryan McLeod to Sabres**\
