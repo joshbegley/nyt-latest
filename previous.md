@@ -1,3 +1,15 @@
+**Bournemouth keen on signing Fran Garcia from Real Madrid**\
+`Bournemouth are interested in signing Fran Garcia from Real Madrid.`\
+https://nytimes.com/athletic/5617811/2024/07/05/fran-garcia-real-madrid-bournemouth/
+
+**What happens when a general election enters the Wimbledon bubble?**\
+`The fourth day of Wimbledon 2024 was general election day, but that wasn't obvious inside one of Britain's most hallowed spaces`\
+https://nytimes.com/athletic/5616163/2024/07/05/wimbledon-uk-general-election-all-england-club/
+
+**Downing Street’s New Occupant Will Have Just Hours to Move In**\
+`A new U.S. president usually has a two-month window to prepare to move into the White House. Freshly elected British prime ministers move into Downing Street much more swiftly.`\
+https://nytimes.com/2024/07/05/world/europe/downing-street-new-prime-minister.html
+
 **Slot focused on developing talent at Liverpool over transfers**\
 `Liverpool&#8217;s new head coach Arne Slot insists he is focused on developing the talent he has inherited at the club rather than transfer business.`\
 https://nytimes.com/athletic/5617850/2024/07/05/arne-slot-liverpool-transfers/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/05/business/economy/fed-labor-market.html
 **Martinez the saviour after Messi's Panenka miss - how Argentina beat Ecuador on penalties**\
 `Emiliano Martinez came to Argentina and Lionel Messi's rescue in a manner only he knows how - they are now into the Copa America semi-final`\
 https://nytimes.com/athletic/5617618/2024/07/05/argentina-messi-panenka-martinez-copa-america/
-
-**State of the 49ers, OL: Can the pass protection regression be reversed?**\
-`The likeliest Week 1 lineup for the 49ers' offensive line — the same group that started the Super Bowl.`\
-https://nytimes.com/athletic/5560532/2024/07/05/san-francisco-49ers-offensive-line-2024/
-
-**Lowetide: Oilers top 20 prospects ranking, summer 2024**\
-`Edmonton's prospect list got a badly needed boost via the 2024 NHL Draft.`\
-https://nytimes.com/athletic/5613140/2024/07/05/edmonton-oilers-top-20-prospects-ranking-summer-2024/
-
-**The Athletic’s Friday football quiz question #11**\
-`Every week, we'll serve up a poser from our vault of football conundrums. It won't be easy (unless you're really good…)`\
-https://nytimes.com/athletic/5616669/2024/07/05/the-athletic-friday-football-quiz-question-11/
 
