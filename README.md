@@ -1,3 +1,7 @@
+**NASCAR returns to Chicago Street Course, hoping for a smoother ride this time**\
+`NASCAR's Chicago Street Race debut was greeted with local backlash and terrible weather. Year 2 brings a more optimistic forecast.`\
+https://nytimes.com/athletic/5617328/2024/07/05/nascar-chicago-street-course-weather-grant-park/
+
 **Keir Starmer Vows ‘National Renewal’ in First Speech as U.K. Prime Minister**\
 `The Labour leader promised in a speech in Downing Street to restore Britain’s faith in politics and public service.`\
 https://nytimes.com/2024/07/05/world/europe/keir-starmer-prime-minister-speech-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5617779/2024/07/05/the-athletic-fc-martinez-messi-p
 **Turkey’s Demiral handed two-game suspension for 'indecent' celebration**\
 `Turkey defender Merih Demiral has been handed a two-game suspension by UEFA after appearing to make an ultranationalist salute while celebrating his second goal against Austria in Tuesday’s European Championship last-16 match.`\
 https://nytimes.com/athletic/5617842/2024/07/05/merih-demiral-ban-suspension-turkey-euro-2024/
-
-**Bournemouth keen on signing Fran Garcia from Real Madrid**\
-`Bournemouth are interested in signing Fran Garcia from Real Madrid.`\
-https://nytimes.com/athletic/5617811/2024/07/05/fran-garcia-real-madrid-bournemouth/
 
