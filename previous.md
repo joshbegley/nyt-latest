@@ -1,3 +1,11 @@
+**Rishi Sunak Hangs On to His Seat in Parliament**\
+`The prime minister will remain a lawmaker after a close race in his North Yorkshire constituency.`\
+https://nytimes.com/2024/07/04/world/europe/sunak-wins-election-uk.html
+
+**Argentina thank 'animal in goal' Martinez after Copa penalty shootout heroics**\
+`Argentina were left thanking their &#8220;animal in goal&#8221; Emiliano Martinez after the goalkeeper starred in the penalty shootout victory over Ecuador at Copa America.`\
+https://nytimes.com/athletic/5617602/2024/07/04/argentina-penalty-shootout-emiliano-martinez/
+
 **Takeaways: Argentina wins penalty shootout to reach semifinals, Messi misses from spot**\
 `Highlights of the drama from Houston`\
 https://nytimes.com/athletic/5617511/2024/07/04/argentina-ecuador-penalties-semifinals-messi/
@@ -29,8 +37,4 @@ https://nytimes.com/2024/07/04/nyregion/boy-dead-jamaica-queens.html
 **Oregon beats Ohio State, Texas, LSU for 5-star WR Dakorien Moore**\
 `Moore, ranked No. 3 overall in the 247Sports Composite, is the fifth top-100 player and third five-star prospect in Oregon’s 2025 class.`\
 https://nytimes.com/athletic/5617470/2024/07/04/oregon-recruiting-dakorien-moore/
-
-**Reds poised for season-defining homestand after sweeping the Yankees**\
-`Spencer Steer hit a three-run homer and said: “We can play with anyone when we put together complete baseball games."`\
-https://nytimes.com/athletic/5617421/2024/07/04/reds-sweep-yankees/
 

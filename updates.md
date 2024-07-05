@@ -1,3 +1,11 @@
+**Rishi Sunak Hangs On to His Seat in Parliament**\
+`The prime minister will remain a lawmaker after a close race in his North Yorkshire constituency.`\
+https://nytimes.com/2024/07/04/world/europe/sunak-wins-election-uk.html
+
+**Argentina thank 'animal in goal' Martinez after Copa penalty shootout heroics**\
+`Argentina were left thanking their &#8220;animal in goal&#8221; Emiliano Martinez after the goalkeeper starred in the penalty shootout victory over Ecuador at Copa America.`\
+https://nytimes.com/athletic/5617602/2024/07/04/argentina-penalty-shootout-emiliano-martinez/
+
 **Takeaways: Argentina wins penalty shootout to reach semifinals, Messi misses from spot**\
 `Highlights of the drama from Houston`\
 https://nytimes.com/athletic/5617511/2024/07/04/argentina-ecuador-penalties-semifinals-messi/
