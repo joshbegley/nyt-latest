@@ -1,3 +1,7 @@
+**Semenyo agrees new Bournemouth contract**\
+`Antoine Semenyo has agreed a new five-year contract at Bournemouth.`\
+https://nytimes.com/athletic/5617295/2024/07/05/antoine-semenyo-bournemouth-contract/
+
 **Moped-Riding Thieves Frighten Diners at Upscale N.Y.C. Restaurants**\
 `In Williamsburg and Manhattan, robbers have stolen watches worth tens of thousands of dollars before fleeing on motorbikes.`\
 https://nytimes.com/2024/07/05/nyregion/nyc-restaurant-robberies.html

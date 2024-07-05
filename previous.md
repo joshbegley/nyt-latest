@@ -1,3 +1,7 @@
+**Semenyo agrees new Bournemouth contract**\
+`Antoine Semenyo has agreed a new five-year contract at Bournemouth.`\
+https://nytimes.com/athletic/5617295/2024/07/05/antoine-semenyo-bournemouth-contract/
+
 **Moped-Riding Thieves Frighten Diners at Upscale N.Y.C. Restaurants**\
 `In Williamsburg and Manhattan, robbers have stolen watches worth tens of thousands of dollars before fleeing on motorbikes.`\
 https://nytimes.com/2024/07/05/nyregion/nyc-restaurant-robberies.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5616686/2024/07/05/cristiano-ronaldo-the-end/
 **Word of the Day: surreal**\
 `This word has appeared in 570 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/07/05/learning/word-of-the-day-surreal.html
-
-**Labour rebuilds its ‘red wall,’ where Conservatives triumphed 5 years ago.**\
-`By Mark Landler`\
-https://nytimes.com/live/2024/07/04/world/uk-election-results/labour-rebuilds-its-red-wall-where-conservatives-triumphed-5-years-ago
 
