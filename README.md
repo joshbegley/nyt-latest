@@ -1,3 +1,11 @@
+**Xhaka fit to face England after injury scare**\
+`Granit Xhaka is fit and will play for Switzerland against England in their Euro 2024 quarter-final.`\
+https://nytimes.com/athletic/5618518/2024/07/05/granit-xhaka-injury-england-switzerland/
+
+**The Bounce: Which NBA teams got better (or worse) so far this offseason?**\
+`Zach Harper catches you up on league-wide news.`\
+https://nytimes.com/athletic/5618050/2024/07/05/nba-free-agency-winners-clipped-the-bounce/
+
 **The Pressure on Biden to Drop Out**\
 `Calls for the president to withdraw from the race. Also: C.E.O.s and Trump; a Trump donor; antisemitism; Netanyahu and Congress; an H.I.V. medication.`\
 https://nytimes.com/2024/07/05/opinion/joe-biden-election-withdrawal.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/02/opinion/democrats-loyalty-biden-trump.html
 **Resisting the Far Right at a Festival of French Theater**\
 `Tiago Rodrigues said the Avignon Festival, which he leads, would become “a festival of resistance,” juggling activism with the premiere of a new play.`\
 https://nytimes.com/2024/07/05/theater/tiago-rodrigues-avignon-hecube-pas-hecube.html
-
-**Vatican Excommunicates Its Former Ambassador to the U.S.**\
-`Archbishop Carlo Maria Viganò, who was informed of his excommunication on Friday, has long been a vocal critic of Pope Francis.`\
-https://nytimes.com/2024/07/05/world/europe/vatican-excommunication-archbishop-carlo-maria-vigano.html
-
-**Biden to Campaign in Wisconsin With His Political Future in the Balance**\
-`Winning the battleground state is crucial to President Biden’s hopes of four more years in the White House, making it an appropriate stop for the high-stakes moment.`\
-https://nytimes.com/2024/07/05/us/politics/biden-campaign-rally-wisconsin.html
 
