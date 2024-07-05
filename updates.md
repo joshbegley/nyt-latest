@@ -1,3 +1,15 @@
+**Aymeric Laporte interview: 'I am not surprised we were ignored at the start'**\
+`Laporte is in a confident mood ahead of Spain's Euro 2024 quarter-final against Germany. But he faced doubts this summer...`\
+https://nytimes.com/athletic/5616140/2024/07/05/spain-aymeric-laporte-euro-2024/
+
+**Cristiano Ronaldo and the Problem With Too Much Fame**\
+`The soccer superstar’s trip to Euro 2024 has been marked by pitch invaders and uninspiring performances. As fans try to get close, his team can’t seem to let go.`\
+https://nytimes.com/2024/07/05/world/europe/cristiano-ronaldo-portugal-euro-2024.html
+
+**Southgate prefers to stick rather than twist - will reticence to make subs prove costly?**\
+`England’s manager has often resisted change until the need has appeared overwhelming. But there will be a point when he needs to gamble`\
+https://nytimes.com/athletic/5617046/2024/07/05/southgate-england-substitutes-euros/
+
 **Hakan Calhanoglu thinks he is the world's best in his position - he may well be right**\
 `Turkey midfielder and captain Calhanoglu has led his side to the Euro 2024 quarter-finals in impressive fashion`\
 https://nytimes.com/athletic/5616138/2024/07/05/calhanoglu-turkey-euro-2024/
