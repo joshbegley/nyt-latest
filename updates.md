@@ -1,3 +1,7 @@
+**Two Dead After Being Struck By Pickup Truck in Downtown Manhattan**\
+`At least nine people were struck by the truck on the Lower East Side, the authorities said.`\
+https://nytimes.com/2024/07/04/nyregion/lower-east-side-manhattan-truck-pedestrians-accident.html
+
 **Nigel Farage, Right-Wing Disrupter, Elected to Parliament for the First Time**\
 `His upstart party, Reform U.K., was projected to win four seats, a strong showing, according to a nationwide exit poll.`\
 https://nytimes.com/2024/07/04/world/europe/farage-parliament-reform-election.html

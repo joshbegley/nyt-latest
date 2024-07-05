@@ -3,7 +3,7 @@
 https://nytimes.com/2024/07/04/world/europe/farage-parliament-reform-election.html
 
 **Two Dead After Being Struck By Pickup Truck in Downtown Manhattan**\
-`At least nine people were struck by the truck on the Lower East Side.`\
+`At least nine people were struck by the truck on the Lower East Side, the authorities said.`\
 https://nytimes.com/2024/07/04/nyregion/lower-east-side-manhattan-truck-pedestrians-accident.html
 
 **Jeremy Corbyn Wins Election Against Labour, Party He Once Led**\
