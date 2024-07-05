@@ -1,15 +1,3 @@
-**The Reintroduction of Kamala Harris**\
-`Vice President Kamala Harris has spent the past year trying to quiet her doubters. Now, with President Biden’s candidacy on the line, Democrats are assessing whether she is up to being the nominee.`\
-https://nytimes.com/2024/07/05/us/politics/kamala-harris-biden.html
-
-**Organizers Say Abortion Access Is Headed to the Ballot in 3 More States**\
-`Arkansas is the third state this week where organizers said they had collected enough support for a petition to enshrine some abortion access in the State Constitution.`\
-https://nytimes.com/2024/07/05/us/politics/abortion-rights-ballot-measures.html
-
-**A Third House Democrat, Seth Moulton, Calls on Biden to Drop Out**\
-`Representative Lloyd Doggett was the first sitting House Democrat to urge President Biden to leave the race, followed by Representative Raúl M. Grijalva.`\
-https://nytimes.com/2024/07/05/us/politics/democrat-seth-moulton-biden-drop-out.html
-
 **Reform U.K.’s Success Is Latest Sign of Strength for Europe’s Far Right**\
 `The insurgent anti-immigration party led by Nigel Farage secured around 14 percent of the vote in Britain’s general election, though it has won only five parliamentary seats.`\
 https://nytimes.com/2024/07/05/world/europe/reform-uks-success-is-latest-sign-of-strength-for-europes-far-right.html
@@ -37,4 +25,16 @@ https://nytimes.com/2024/07/05/arts/michael-tracy-dies.html
 **Bellingham plays on the edge - but must stay the right side of the emotional precipice**\
 `The England and Real Madrid midfielder has escaped a ban for his Slovakia celebration - he has to stay the right side of the line`\
 https://nytimes.com/athletic/5618162/2024/07/05/england-bellingham-edge-rooney-beckham-gascoigne/
+
+**Xhaka fit to face England after injury scare**\
+`Granit Xhaka is fit and will play for Switzerland against England in their Euro 2024 quarter-final.`\
+https://nytimes.com/athletic/5618518/2024/07/05/granit-xhaka-injury-england-switzerland/
+
+**The Bounce: Which NBA teams got better (or worse) so far this offseason?**\
+`Zach Harper catches you up on league-wide news.`\
+https://nytimes.com/athletic/5618050/2024/07/05/nba-free-agency-winners-clipped-the-bounce/
+
+**The Pressure on Biden to Drop Out**\
+`Calls for the president to withdraw from the race. Also: C.E.O.s and Trump; a Trump donor; antisemitism; Netanyahu and Congress; an H.I.V. medication.`\
+https://nytimes.com/2024/07/05/opinion/joe-biden-election-withdrawal.html
 
