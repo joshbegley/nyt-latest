@@ -1,3 +1,11 @@
+**Six People Injured After Being Struck By Pickup Truck in Downtown Manhattan**\
+`At least six people were injured on the Lower East Side, according to a spokesman from the New York City Fire Department.`\
+https://nytimes.com/2024/07/04/nyregion/lower-east-side-manhattan-truck-pedestrians-accident.html
+
+**Jeremy Corbyn Wins Election Against Labour, Party He Once Led**\
+`The victory was vindication for Mr. Corbyn, who was running for the first time against the Labour party.`\
+https://nytimes.com/2024/07/04/world/europe/corbyn-london-labour-election.html
+
 **Green Juice**\
 `Trent H. Evans opens our solving weekend with a fresh and lively puzzle.`\
 https://nytimes.com/2024/07/04/crosswords/daily-puzzle-2024-07-05.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5616996/2024/07/04/wimbledon-recap-grand-slam-comes
 **Steve Yzerman discusses Red Wings' offseason, 2024-25 outlook**\
 `Yzerman met with media on Thursday to discuss the team's offseason moves and outlook.`\
 https://nytimes.com/athletic/5617182/2024/07/04/red-wings-free-agents-tarasenko/
-
-**Biden Stumbles Over His Words as He Tries to Steady Re-Election Campaign**\
-`The president’s appearances have come under intense scrutiny since he appeared feeble in his debate against former President Donald J. Trump.`\
-https://nytimes.com/2024/07/04/us/politics/biden-election-campaign.html
-
-**Newsom Urges Michigan Democrats to Stay Calm and Support Biden**\
-`Gov. Gavin Newsom of California defended President Biden and told party activists in Michigan, a critical swing state, “not to be fatalistic” about the campaign.`\
-https://nytimes.com/2024/07/04/us/gavin-newsom-michigan-biden.html
 
