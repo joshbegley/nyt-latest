@@ -1,3 +1,7 @@
+**How 4-star DB JaDon Blair impacts Notre Dame's 2025 class**\
+`JaDon Blair, from Winston-Salem, N.C., committed to the Irish on Friday over Penn State, Michigan, Florida State and South Carolina.`\
+https://nytimes.com/athletic/5618369/2024/07/05/jadon-blair-notre-dame-football-commitment/
+
 **Prime Tire: The F1 driver's market waits on Sainz; Readers react to Verstappen versus Norris**\
 `Plus: The Bearman arrives at Haas.`\
 https://nytimes.com/athletic/5617371/2024/07/05/f1-carlos-sainz-driver-market-verstappen-norris/
