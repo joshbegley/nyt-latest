@@ -1,3 +1,7 @@
+**Sky apologises to Forest for Neville remarks after Everton loss**\
+`UK broadcaster Sky Sports has apologised to Nottingham Forest for “any offence caused” by comments made by Gary Neville about the club.`\
+https://nytimes.com/athletic/5617989/2024/07/05/sky-forest-neville-apology/
+
 **The Athletic FC: 'Animal' Martinez saves Messi; an alternative Euros guide to last eight**\
 `In The Athletic FC today: Messi misses a penalty but Martinez bails him out. Plus: An alternative Euro 2024 quarter-final preview...`\
 https://nytimes.com/athletic/5617779/2024/07/05/the-athletic-fc-martinez-messi-penalties/
