@@ -16,7 +16,7 @@ https://nytimes.com/athletic/5617182/2024/07/04/red-wings-free-agents-tarasenko/
 
 **Biden Stumbles Over His Words as He Tries to Steady Re-Election Campaign**\
 `The president’s appearances have come under intense scrutiny since he appeared feeble in his debate against former President Donald J. Trump.`\
-https://nytimes.com/2024/07/04/us/politics/biden-stumbles-over-his-words.html
+https://nytimes.com/2024/07/04/us/politics/biden-election-campaign.html
 
 **Newsom Urges Michigan Democrats to Stay Calm and Support Biden**\
 `Gov. Gavin Newsom of California defended President Biden and told party activists in Michigan, a critical swing state, “not to be fatalistic” about the campaign.`\
