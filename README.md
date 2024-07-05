@@ -1,3 +1,7 @@
+**Man Who Stabbed South Korea’s Opposition Leader Is Sentenced to 15 Years**\
+`The attack on Lee Jae-myung in January raised alarms about South Korea’s political polarization. His assailant was convicted of attempted murder.`\
+https://nytimes.com/2024/07/05/world/asia/stabbed-south-korea-lee-jae-myung.html
+
 **Series win lets Giants, Logan Webb envision a bright future: 'Heck yeah, I’m excited'**\
 `Finally, the Giants have the look of a team capable of sustaining momentum.`\
 https://nytimes.com/athletic/5617680/2024/07/05/logan-webb-giants-series-win-atlanta/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/05/opinion/kosovo-nato-independence-democracy-serbia
 **Why West Ham want Max Kilman - and why Wolves are ready to let him go**\
 `The centre-half is close to swapping Molineux for the London Stadium as Julen Lopetegui seeks to strengthen his defensive ranks`\
 https://nytimes.com/athletic/5616433/2024/07/05/kilman-west-ham-wolves-lopetegui/
-
-**Daichi Kamada to Crystal Palace: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate Daichi Kamada's move to Crystal Palace`\
-https://nytimes.com/athletic/5614837/2024/07/05/daichi-kamada-crystal-palace-transfer-ratings/
 
