@@ -1,3 +1,11 @@
+**With free agency settling, can anyone say the Kings have improved?**\
+`The Kings added three players this week — Warren Foegele, Tanner Jeannot and Joel Edmundson — which seemed underwhelming.`\
+https://nytimes.com/athletic/5616834/2024/07/05/la-kings-blake-free-agents/
+
+**Canucks offseason mailbag: Submit your questions for Thomas Drance**\
+`Got questions about the revamped Canucks lineup and what to expect next season? Submit it here.`\
+https://nytimes.com/athletic/5617520/2024/07/05/canucks-offseason-mailbag-thomas-drance/
+
 **Sky apologises to Forest for Neville remarks after Everton loss**\
 `UK broadcaster Sky Sports has apologised to Nottingham Forest for “any offence caused” by comments made by Gary Neville about the club.`\
 https://nytimes.com/athletic/5617989/2024/07/05/sky-forest-neville-apology/
