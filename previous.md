@@ -1,3 +1,7 @@
+**Jeremy Hunt, the U.K.’s No. 2 most powerful official, narrowly keeps his seat.**\
+`By Stephen Castle`\
+https://nytimes.com/live/2024/07/04/world/uk-election-results/jeremy-hunt-the-uks-no-2-most-powerful-official-narrowly-keeps-his-seat
+
 **Friday Briefing**\
 `A landslide victory for Labour.`\
 https://nytimes.com/2024/07/05/world/europe/labour-victory-uk-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5616051/2024/07/05/newcastle-mitchell-ashworth/
 **Cristiano Ronaldo and Kylian Mbappe: The king, his heir and the changing of the guard**\
 `The young Mbappe idolised Ronaldo, but now Real Madrid's new signing confronts the club's record scorer for a semi-final place at Euro 2024`\
 https://nytimes.com/athletic/5617026/2024/07/05/mbappe-ronaldo-france-portugal-euro2024/
-
-**'The game is more fluid with him on the pitch' - why footballers love playing with Gundogan**\
-`Former team-mates of the Germany captain explain why he is so good, the secrets behind his brilliance and why it was a joy to play with him`\
-https://nytimes.com/athletic/5617030/2024/07/05/why-footballers-love-playing-with-ilkay-gundogan/
 
