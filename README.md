@@ -1,3 +1,11 @@
+**The Greens Take a Bite Out of Labour’s Vote Share**\
+`The left-leaning Green Party, which is particularly popular with people under 30, took seven percent of the vote and will now have four lawmakers in Parliament.`\
+https://nytimes.com/2024/07/05/world/europe/the-greens-take-a-bite-out-of-labours-vote-share.html
+
+**Anatomy of a Landslide**\
+`Support for the Conservatives plummeted, propelling the Labour Party into power. Maps and charts show how it happened.`\
+https://nytimes.com/interactive/2024/07/05/world/europe/uk-election-results-map-vote-share.html
+
 **Summer Reading Contest, Week 5: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by July 12 at 9 a.m. Eastern. This week’s winners will be announced by July 24.`\
 https://nytimes.com/2024/07/05/learning/summer-reading-contest-week-5-what-got-your-attention-in-the-times-this-week.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/05/learning/video-submission-form-for-our-15th-annua
 **Britain’s Liberal Democrats Score Big Election Gains**\
 `The small centrist party campaigned on improving health and social care. Its leader, Ed Davey, wooed voters with publicity stunts and personal appeals.`\
 https://nytimes.com/2024/07/05/world/europe/uk-liberal-democrats-ed-davey-election.html
-
-**Talks on Gaza Cease-Fire Revive After Weeks of Deadlock**\
-`The negotiations had been stalled for weeks until Hamas announced on Wednesday that it had exchanged some ideas with mediators on a new way forward.`\
-https://nytimes.com/2024/07/05/world/middleeast/gaza-cease-fire-talks-israel-hamas.html
-
-**With free agency settling, can anyone say the Kings have improved?**\
-`The Kings added three players this week — Warren Foegele, Tanner Jeannot and Joel Edmundson — which seemed underwhelming.`\
-https://nytimes.com/athletic/5616834/2024/07/05/la-kings-blake-free-agents/
 

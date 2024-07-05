@@ -1,3 +1,11 @@
+**Summer Reading Contest, Week 5: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by July 12 at 9 a.m. Eastern. This week’s winners will be announced by July 24.`\
+https://nytimes.com/2024/07/05/learning/summer-reading-contest-week-5-what-got-your-attention-in-the-times-this-week.html
+
+**The Tennis Podcast that Champions, and Hosts, Black Pros**\
+`Black Spin Global found an audience with its cheeky coverage of the growing number of ranked Black tennis players. It also offered them a forum.`\
+https://nytimes.com/2024/07/05/arts/black-spin-global-tennis-podcast.html
+
 **‘My Government Will Serve You,’ Starmer Says**\
 `During Keir Starmer’s first speech as the British prime minister, he said that the country had voted for a “national renewal and a return of politics to public service.”`\
 https://nytimes.com/video/world/europe/100000009556595/uk-election-keir-starmer.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/05/world/middleeast/gaza-cease-fire-talks-israel-ham
 **With free agency settling, can anyone say the Kings have improved?**\
 `The Kings added three players this week — Warren Foegele, Tanner Jeannot and Joel Edmundson — which seemed underwhelming.`\
 https://nytimes.com/athletic/5616834/2024/07/05/la-kings-blake-free-agents/
-
-**Canucks offseason mailbag: Submit your questions for Thomas Drance**\
-`Got questions about the revamped Canucks lineup and what to expect next season? Submit it here.`\
-https://nytimes.com/athletic/5617520/2024/07/05/canucks-offseason-mailbag-thomas-drance/
-
-**Sky apologises to Forest for Neville remarks after Everton loss**\
-`UK broadcaster Sky Sports has apologised to Nottingham Forest for “any offence caused” by comments made by Gary Neville about the club.`\
-https://nytimes.com/athletic/5617989/2024/07/05/sky-forest-neville-apology/
 
