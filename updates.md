@@ -1,3 +1,7 @@
+**Is It OK to Get Food Stamps When You’re Just Pursuing Your Passion?**\
+`The magazine’s Ethicist columnist on whether a struggling artist with a personal safety net should receive government assistance.`\
+https://nytimes.com/2024/07/05/magazine/artist-food-stamps-ethics.html
+
 **Spain's Alvaro Morata not suspended for Euro 2024 semi-final**\
 `Alvaro Morata is available for Spain’s European Championship semi-final, UEFA has confirmed.`\
 https://nytimes.com/athletic/5618641/2024/07/05/alvaro-morata-spain-suspended-euro-2024/

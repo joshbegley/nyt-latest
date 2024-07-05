@@ -1,3 +1,7 @@
+**Is It OK to Get Food Stamps When You’re Just Pursuing Your Passion?**\
+`The magazine’s Ethicist columnist on whether a struggling artist with a personal safety net should receive government assistance.`\
+https://nytimes.com/2024/07/05/magazine/artist-food-stamps-ethics.html
+
 **Keep an Eye on Israel’s North**\
 `A wider war with Hezbollah would be immensely destructive.`\
 https://nytimes.com/live/2024/07/02/opinion/thepoint/israel-hezbollah-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5617371/2024/07/05/f1-carlos-sainz-driver-market-ve
 **Southgate insists no easy draw for England: 'A classic example of entitlement'**\
 `Gareth Southgate has hit back at any suggestions that England have a favourable draw at the European Championship and called such talk as a &#8220;classic example of entitlement&#8221; the country has.`\
 https://nytimes.com/athletic/5618851/2024/07/05/england-swizerland-gareth-southgate/
-
-**Spain's Alvaro Morata not suspended for Euro 2024 semi-final**\
-`Alvaro Morata is available for Spain’s European Championship semi-final, UEFA has confirmed.`\
-https://nytimes.com/athletic/5618641/2024/07/05/alvaro-morata-spain-suspended-euro-2024/
 
