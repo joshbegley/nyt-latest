@@ -1,3 +1,7 @@
+**Optimism in the air at No. 1 pick Macklin Celebrini's first competitive action with Sharks**\
+`San Jose is back on the radar. Interest has been rekindled. Thursday's Sharks prospect scrimmage was the latest example.`\
+https://nytimes.com/athletic/5617587/2024/07/04/macklin-celebrini-first-competitive-action-sharks/
+
 **Rishi Sunak Hangs On to His Seat in Parliament**\
 `The prime minister will remain a lawmaker after a close race in his North Yorkshire constituency.`\
 https://nytimes.com/2024/07/04/world/europe/sunak-wins-election-uk.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/04/crosswords/daily-puzzle-2024-07-05.html
 **8-Year-Old Is Killed and Two Adults Wounded in Queens Stabbing**\
 `Police officers arrived at an apartment in Jamaica to find a man holding his father at knife point and an 8-year-old mortally wounded.`\
 https://nytimes.com/2024/07/04/nyregion/boy-dead-jamaica-queens.html
-
-**Oregon beats Ohio State, Texas, LSU for 5-star WR Dakorien Moore**\
-`Moore, ranked No. 3 overall in the 247Sports Composite, is the fifth top-100 player and third five-star prospect in Oregon’s 2025 class.`\
-https://nytimes.com/athletic/5617470/2024/07/04/oregon-recruiting-dakorien-moore/
 
