@@ -1,3 +1,7 @@
+**Keir Starmer’s Labour Party Claims Victory in U.K. Election**\
+`Set to be the next prime minister of the U.K., Keir Starmer swore that his party would work to “restore Britain to the service of working people.”`\
+https://nytimes.com/video/world/europe/100000009556409/keir-starmers-labour-party-claims-victory-in-uk-election.html
+
 **Semenyo agrees new Bournemouth contract**\
 `Antoine Semenyo has agreed a new five-year contract at Bournemouth.`\
 https://nytimes.com/athletic/5617295/2024/07/05/antoine-semenyo-bournemouth-contract/
