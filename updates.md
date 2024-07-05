@@ -1,3 +1,7 @@
+**Liz Truss Caps List of High-Profile Conservative Seat Losses**\
+`Ms. Truss, who was forced out as prime minister after 49 chaotic days, lost by 630 votes in a district she previously held by more than 26,000.`\
+https://nytimes.com/2024/07/05/world/europe/liz-truss-conservative-seat-losses.html
+
 **Keir Starmer’s Labour Party Claims Victory in U.K. Election**\
 `Set to be the next prime minister of the U.K., Keir Starmer swore that his party would work to “restore Britain to the service of working people.”`\
 https://nytimes.com/video/world/europe/100000009556409/keir-starmers-labour-party-claims-victory-in-uk-election.html

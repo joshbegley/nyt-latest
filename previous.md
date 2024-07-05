@@ -1,3 +1,7 @@
+**Liz Truss Caps List of High-Profile Conservative Seat Losses**\
+`Ms. Truss, who was forced out as prime minister after 49 chaotic days, lost by 630 votes in a district she previously held by more than 26,000.`\
+https://nytimes.com/2024/07/05/world/europe/liz-truss-conservative-seat-losses.html
+
 **Keir Starmer’s Labour Party Claims Victory in U.K. Election**\
 `Set to be the next prime minister of the U.K., Keir Starmer swore that his party would work to “restore Britain to the service of working people.”`\
 https://nytimes.com/video/world/europe/100000009556409/keir-starmers-labour-party-claims-victory-in-uk-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/05/world/asia/stabbed-south-korea-lee-jae-myung.html
 **Series win lets Giants, Logan Webb envision a bright future: 'Heck yeah, I’m excited'**\
 `Finally, the Giants have the look of a team capable of sustaining momentum.`\
 https://nytimes.com/athletic/5617680/2024/07/05/logan-webb-giants-series-win-atlanta/
-
-**The end can take you to dark places - there is a beauty in Ronaldo raging against it**\
-`Alan Shearer knows first-hand how troubling it can be to know the end is coming, for your ego and your body to be fighting each other`\
-https://nytimes.com/athletic/5616686/2024/07/05/cristiano-ronaldo-the-end/
 
