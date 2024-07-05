@@ -1,3 +1,7 @@
+**Moderates Win a Round in Britain — But a Larger Battle Against Extremism Looms**\
+`It is a little early to celebrate this election as a triumph for the center.`\
+https://nytimes.com/2024/07/05/opinion/uk-election-labour-conservatives.html
+
 **Investors Bet on Rate Cuts as Recent Data Suggests Slowdown**\
 `Markets are expecting the Federal Reserve to make roughly two reductions of a quarter-point each this year.`\
 https://nytimes.com/2024/07/05/business/economy/jobs-report-markets.html
