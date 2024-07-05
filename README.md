@@ -1,3 +1,35 @@
+**At a Key Juncture, Biden Again Gambles on ABC’s George Stephanopoulos**\
+`A high-stakes moment for the president could also be the most consequential interview of the star anchor’s career.`\
+https://nytimes.com/2024/07/05/business/media/george-stephanopoulos-biden-interview.html
+
+**Biden Campaign, Sticking to Its Playbook, Will Spend $50 Million on Ads This Month**\
+`The new ads are part of a push by Mr. Biden’s campaign for stability at a time when some members of his party have called for the president to drop out.`\
+https://nytimes.com/2024/07/05/us/politics/biden-campaign-ad-buy.html
+
+**Varying Treatment of Biden and Trump Puts Their Parties in Stark Relief**\
+`Republicans and Democrats live in radically different universes, interpreting the same set of facts through radically different lenses.`\
+https://nytimes.com/2024/07/05/us/politics/biden-trump-parties.html
+
+**These Voters Supported Biden in 2020. But Now …**\
+`Dozens of voters in four swing states expressed fear, frustration and anger. And they want a Plan B — whatever (and whoever) that is.`\
+https://nytimes.com/2024/07/05/us/elections/democratic-voter-biden-debate.html
+
+**5 Things to Do This Weekend**\
+`A selection of entertainment highlights this weekend, including Ti West’s new film, “MaXXXine.”`\
+https://nytimes.com/interactive/2024/07/05/arts/weekend-editors-picks-maXXXine.html
+
+**The New York Times News Quiz, Jul. 5, 2024**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2024/07/05/briefing/news-quiz-trump-immunity.html
+
+**6 New Paperbacks to Read This Week**\
+`Recommended reading from the Book Review, including titles by Jhumpa Lahiri, Kerry Howley, Djuna and more. `\
+https://nytimes.com/interactive/2024/07/05/books/review/new-paperbacks-howley.html
+
+**One by One, the Reasons to Stick With Biden Are Failing**\
+`A memo to the faithful: It’s time to let go.`\
+https://nytimes.com/live/2024/07/02/opinion/thepoint/one-by-one-the-reasons-to-stick-with-biden-are-failing
+
 **We Need to Better Understand Aging to Know President Biden’s Dilemma**\
 `The president is a classic aging case playing out for the country to watch.`\
 https://nytimes.com/2024/07/05/opinion/we-need-to-better-understand-aging-to-know-president-bidens-dilemma.html
@@ -5,36 +37,4 @@ https://nytimes.com/2024/07/05/opinion/we-need-to-better-understand-aging-to-kno
 **8 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://nytimes.com/2024/07/05/movies/new-movies-this-week-critics.html
-
-**On Trump, the Supreme Court Fails to Look in the Mirror**\
-`Most of the court’s decisions were principled and sound — most, but unfortunately not all.`\
-https://nytimes.com/2024/07/05/opinion/supreme-court-trump.html
-
-**3 Sharp Stand-Up Specials to Entertain You This Holiday Weekend**\
-`Hannah Einbinder, Raanan Hershberg and Mo Welch all take tricky approaches in their quests for laughs.`\
-https://nytimes.com/2024/07/05/arts/television/comedy-specials-july-fourth-weekend.html
-
-**The Interview: The Netflix Chief’s Plan to Get You to Binge Even More**\
-`Ted Sarandos, a chief executive of Netflix, on the future of entertainment.`\
-https://nytimes.com/2024/07/05/podcasts/hardfork-netflix-ted-sarandos.html
-
-**Trump Advisers Call for U.S. Nuclear Weapons Testing if He Is Elected**\
-`A former national security adviser says Washington “must test new nuclear weapons for reliability and safety in the real world,” while critics say the move could incite a global arms race that heightens the risk of war.`\
-https://nytimes.com/2024/07/05/science/nuclear-testing-trump.html
-
-**How will Falcons' new coaching staff affect Bijan Robinson's fantasy potential?**\
-`Robinson is The Athletic’s No. 3 fantasy running back in early 2024 projections, behind only Christian McCaffrey and Jonathan Taylor. `\
-https://nytimes.com/athletic/5613300/2024/07/05/falcons-bijan-robinson-fantasy-football/
-
-**The Jobs Report May Hold Clues to the Durability of Labor Market Strength**\
-`The economy remains solid, but many analysts say that the labor market is in a sensitive place.`\
-https://nytimes.com/2024/07/05/business/economy/june-jobs-report.html
-
-**The Best Documentaries of 2024, So Far**\
-`“Spermworld,” “Onlookers” and “32 Sounds” are worth watching for the different ways they allow us to see the world.`\
-https://nytimes.com/2024/07/05/movies/best-documentaries-2024.html
-
-**15 of Our Readers’ Favorite Pizza Places Around the World**\
-`Exemplary pies can be found in Kathmandu, Rio de Janeiro, Kyoto and across the United States.`\
-https://nytimes.com/2024/07/05/dining/readers-favorite-pizza.html
 
