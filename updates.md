@@ -1,3 +1,7 @@
+**Spain's Alvaro Morata not suspended for Euro 2024 semi-final**\
+`Alvaro Morata is available for Spain’s European Championship semi-final, UEFA has confirmed.`\
+https://nytimes.com/athletic/5618641/2024/07/05/alvaro-morata-spain-suspended-euro-2024/
+
 **Keep an Eye on Israel’s North**\
 `A wider war with Hezbollah would be immensely destructive.`\
 https://nytimes.com/live/2024/07/02/opinion/thepoint/israel-hezbollah-gaza
