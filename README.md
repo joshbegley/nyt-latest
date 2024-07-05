@@ -1,3 +1,7 @@
+**Warner Is Working to Convene Democratic Senators to Talk About Biden’s Future**\
+`While some House Democrats have been outspoken about the president’s debate performance, most senators have so far been quieter about their concerns.`\
+https://nytimes.com/2024/07/05/us/politics/warner-biden-senators.html
+
 **Brighton complete signing of Wieffer from Feyenoord**\
 `Brighton &amp; Hove Albion have signed Netherlands international midfielder Mats Wieffer from Feyenoord.`\
 https://nytimes.com/athletic/5616350/2024/07/05/mats-wieffer-brighton-feyenoord/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/05/briefing/britain-labour-party-wins-biden-iran-hur
 **After Immunity Ruling, Trump Seeks Delay of Classified Documents Case**\
 `The former president’s lawyers asked to freeze nearly all proceedings while they sort out whether the Supreme Court decision applies to charges focused on actions after he left the White House.`\
 https://nytimes.com/2024/07/05/us/politics/immunity-trump-classified-documents-supreme-court.html
-
-**Wimbledon day 5: Coco Gauff and Emma Raducanu march on, rain plays havoc**\
-`No. 2 seed Gauff ended a British fairytale, as the rain played havoc with SW19's tennis schedule`\
-https://nytimes.com/athletic/5618711/2024/07/05/wimbledon-recap-coco-gauff-beats-sonay-kartal-and-raducanu-advances-on-day-five/
 
