@@ -1,3 +1,7 @@
+**Oregon beats Ohio State, Texas, LSU for 5-star WR Dakorien Moore**\
+`Moore, ranked No. 3 overall in the 247Sports Composite, is the fifth top-100 player and third five-star prospect in Oregon’s 2025 class.`\
+https://nytimes.com/athletic/5617470/2024/07/04/oregon-recruiting-dakorien-moore/
+
 **Steve Yzerman discusses Red Wings' offseason, 2024-25 outlook**\
 `Yzerman met with media on Thursday to discuss the team's offseason moves and outlook.`\
 https://nytimes.com/athletic/5617182/2024/07/04/red-wings-free-agents-tarasenko/

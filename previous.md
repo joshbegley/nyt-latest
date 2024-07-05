@@ -1,3 +1,7 @@
+**Oregon beats Ohio State, Texas, LSU for 5-star WR Dakorien Moore**\
+`Moore, ranked No. 3 overall in the 247Sports Composite, is the fifth top-100 player and third five-star prospect in Oregon’s 2025 class.`\
+https://nytimes.com/athletic/5617470/2024/07/04/oregon-recruiting-dakorien-moore/
+
 **Reds poised for season-defining homestand after sweeping the Yankees**\
 `Spencer Steer hit a three-run homer and said: “We can play with anyone when we put together complete baseball games."`\
 https://nytimes.com/athletic/5617421/2024/07/04/reds-sweep-yankees/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5617356/2024/07/04/joey-chestnut-hot-dog-eating-con
 **As Royce Lewis searches for answers, Twins offense solves Detroit with 12-3 rout**\
 `Lewis, showing his frustration said: "If someone said, 'Hey, if you smoke cigarettes like Babe Ruth, that'll work,’ then I'll do that too."`\
 https://nytimes.com/athletic/5617373/2024/07/04/twins-royce-lewis-jose-miranda/
-
-**Humour dries the tears at Andy Murray's poignant Wimbledon farewell**\
-`Andy Murray began his long goodbye to Wimbledon with a touching Centre Court farewell, full of tributes, tears — and stories of vomiting`\
-https://nytimes.com/athletic/5617318/2024/07/04/andy-murray-wimbledon-centre-court-ceremony/
 
