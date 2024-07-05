@@ -1,3 +1,7 @@
+**Hurricane Beryl, Having Grown Stronger, Barrels Toward Yucatán Peninsula**\
+`The storm, now a Category 3, has already slammed Jamaica and Grenada this week. It is bringing hurricane-force winds, storm surge and heavy rain to Mexico on Friday morning.`\
+https://nytimes.com/article/hurricane-beryl-updates.html
+
 **How the Labour Party Wants to Change the U.K. Economy**\
 `With Britain’s productivity and wages stalled for the past decade and a half, the winning party in the general election faces a tall order.`\
 https://nytimes.com/2024/07/05/world/europe/labour-uk-economy-plan.html
