@@ -1,3 +1,7 @@
+**Endrick to make first Brazil start in Uruguay quarterfinal**\
+`Endrick will make a first start for Brazil in their Copa America quarterfinal against Uruguay.`\
+https://nytimes.com/athletic/5619097/2024/07/05/endrick-starts-brazil-team-news/
+
 **Biden’s upcoming interview represents a relatively rare encounter with traditional news media.**\
 `The president has`\
 https://nytimes.com/live/2024/07/05/us/biden-trump-2024-election/bidens-upcoming-interview-represents-a-relatively-rare-encounter-with-traditional-news-media
