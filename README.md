@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5619329/2024/07/05/kylian-mbappe-substitution-franc
 `Residents in Manawa, a city in rural Wisconsin, were instructed to seek higher ground as a bulging river flowed over the Manawa Dam.`\
 https://nytimes.com/2024/07/05/us/wisconsin-dam-overflow.html
 
-**Dodgers expected to call up fast-rising prospect Justin Wrobleski: Sources**\
+**Dodgers expected to call up fast-rising prospect Justin Wrobleski**\
 `Wrobleski’s arrival plugs an immediate, short-term hole for an injury-riddled Dodgers rotation.`\
 https://nytimes.com/athletic/5617661/2024/07/05/dodgers-prospect-justin-wrobleski/
 
