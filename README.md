@@ -1,3 +1,11 @@
+**Braves' Grant Holmes looks like Kenny Powers, but his performance is no laughing matter**\
+`Holmes' wife helped him with nutrition. He has since lost 20 pounds, getting stronger and leaner with help from a diet his wife designed.`\
+https://nytimes.com/athletic/5619496/2024/07/05/braves-grant-holmes-kenny-powers/
+
+**For George Stephanopoulos, 22 Minutes of Probing the Personal.**\
+`Respectfully but firmly, the ABC anchor pressed President Biden on the basic questions that Americans had asked themselves over the past week.`\
+https://nytimes.com/2024/07/05/business/media/stephanopoulos-biden-interview.html
+
 **Read the Full Transcript of President Biden’s ABC News Interview**\
 `The conversation between the president and George Stephanopoulos lasted about 20 minutes and aired Friday night.`\
 https://nytimes.com/2024/07/05/us/politics/biden-interview-abc-transcript.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5619476/2024/07/05/wave-president-jill-ellis-allega
 **Biden urges Americans to watch him at a NATO summit next week in Washington.**\
 `By David E. Sanger`\
 https://nytimes.com/live/2024/07/05/us/biden-trump-2024-election/biden-urges-americans-to-watch-him-at-a-nato-summit-next-week-in-washington
-
-**Jeffries Plans to Meet Virtually With Top House Democrats on Biden’s Path Ahead**\
-`The House minority leader scheduled a virtual meeting for Sunday.`\
-https://nytimes.com/2024/07/05/us/politics/hakeem-jeffries-biden-democrats.html
-
-**Nebraska secondary coach Evan Cooper leaves staff**\
-`Cooper served two coaching stints with the Owls and followed Rhule to Baylor and to the Carolina Panthers.`\
-https://nytimes.com/athletic/5619391/2024/07/05/nebraska-evan-cooper-coach/
 
