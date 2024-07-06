@@ -1,3 +1,7 @@
+**White House Provided the Questions in Advance for Biden’s Radio Interviews**\
+`The host of “The Source” on WURD in Philadelphia said the president’s aides provided her with a list of eight questions to choose from.`\
+https://nytimes.com/2024/07/06/us/politics/biden-radio-interviews-questions.html
+
 **Winner, Winner, Tandoori Chicken Dinner**\
 `1. Marinate chicken. 2. Roast chicken. 3. Congratulate yourself on a fantastic meal.`\
 https://nytimes.com/2024/07/06/dining/tandoori-chicken-dinner-recipe.html
