@@ -1,3 +1,7 @@
+**Kilman joins West Ham from Wolves**\
+`West Ham United have completed the signing of Max Kilman from Wolverhampton Wanderers.`\
+https://nytimes.com/athletic/5616887/2024/07/06/max-kilman-west-ham/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/07/06/crosswords/spelling-bee-forum.html
