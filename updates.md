@@ -1,3 +1,7 @@
+**Nebraska secondary coach Evan Cooper leaves staff**\
+`Cooper served two coaching stints with the Owls and followed Rhule to Baylor and to the Carolina Panthers.`\
+https://nytimes.com/athletic/5619391/2024/07/05/nebraska-evan-cooper-coach/
+
 **Some of Biden’s Upcoming Fund-Raising Events Face New Uncertainty**\
 `Plans for a late July fund-raiser in Wisconsin are now off, and it’s unclear whether another event in Texas will proceed, following President Biden’s disastrous debate performance.`\
 https://nytimes.com/2024/07/05/us/politics/biden-fund-raising-campaign.html
