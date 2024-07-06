@@ -1,3 +1,7 @@
+**Jeffries Plans to Meet Virtually With Top House Democrats on Biden’s Path Ahead**\
+`The House minority leader scheduled a virtual meeting for Sunday.`\
+https://nytimes.com/2024/07/05/us/politics/hakeem-jeffries-biden-democrats.html
+
 **Nebraska secondary coach Evan Cooper leaves staff**\
 `Cooper served two coaching stints with the Owls and followed Rhule to Baylor and to the Carolina Panthers.`\
 https://nytimes.com/athletic/5619391/2024/07/05/nebraska-evan-cooper-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5618972/2024/07/05/cristiano-ronaldo-spain-germany-
 **Warner Is Working to Convene Democratic Senators to Talk About Biden’s Future**\
 `While some House Democrats have been outspoken about the president’s debate performance, most senators have so far been quieter about their concerns.`\
 https://nytimes.com/2024/07/05/us/politics/warner-biden-senators.html
-
-**Brighton complete signing of Wieffer from Feyenoord**\
-`Brighton &amp; Hove Albion have signed Netherlands international midfielder Mats Wieffer from Feyenoord.`\
-https://nytimes.com/athletic/5616350/2024/07/05/mats-wieffer-brighton-feyenoord/
 

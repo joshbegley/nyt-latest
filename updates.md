@@ -1,3 +1,7 @@
+**Jeffries Plans to Meet Virtually With Top House Democrats on Biden’s Path Ahead**\
+`The House minority leader scheduled a virtual meeting for Sunday.`\
+https://nytimes.com/2024/07/05/us/politics/hakeem-jeffries-biden-democrats.html
+
 **Nebraska secondary coach Evan Cooper leaves staff**\
 `Cooper served two coaching stints with the Owls and followed Rhule to Baylor and to the Carolina Panthers.`\
 https://nytimes.com/athletic/5619391/2024/07/05/nebraska-evan-cooper-coach/
