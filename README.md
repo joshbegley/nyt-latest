@@ -1,3 +1,7 @@
+**Vic Seixas, Winner of 15 Grand Slam Tennis Titles, Dies at 100**\
+`Once declared “the face of American tennis,” he was ranked among the leading players in the United States from the 1940s to the ’60s.`\
+https://nytimes.com/2024/07/06/sports/tennis/vic-seixas-dead.html
+
 **Spain's Pedri out of Euro 2024 with left knee injury**\
 `Spain midfielder Pedri has been ruled out of the rest of the European Championship after suffering a left knee injury.`\
 https://nytimes.com/athletic/5620151/2024/07/06/pedri-injury-spain-euro-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5620130/2024/07/06/thiago-almada-botafogo-transfer-
 **On Congenital Liars, Then and Now**\
 `Maybe the term didn’t fit Hillary Clinton, but it’s perfect for Trump.`\
 https://nytimes.com/live/2024/07/02/opinion/thepoint/congenital-liar-safire-biden
-
-**Tour de France cyclist fined for kissing wife and son**\
-`The smooch came in a cinematic moment as Bernard pushed up a steep hill surrounded by hundreds of friends and family members.`\
-https://nytimes.com/athletic/5620040/2024/07/06/tour-de-france-cyclist-fined-kiss/
 
