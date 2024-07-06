@@ -1,3 +1,11 @@
+**$235,000 Settlement Is Reached After Police Raid a Kansas Newspaper**\
+`A former reporter of The Marion County Record has settled a lawsuit following a raid on the weekly newspaper last year that garnered widespread attention.`\
+https://nytimes.com/2024/07/06/business/media/marion-county-record-raid-settlement-kansas.html
+
+**England 1 Switzerland 1 (AET: 5-3 on penalties): Saka stars, ice-cool spot-kicks, system success?**\
+`England beat Switzlerland 5-3 on penalties in a nervy quarter-final of Euro 2024. Our writers bring you the key talking points.`\
+https://nytimes.com/athletic/5617999/2024/07/06/england-1-switzerland-1-penalties-result-saka/
+
 **What the Interview With Biden Showed**\
 `Readers aren’t mollified by the president’s answers to questions from George Stephanopoulos.`\
 https://nytimes.com/2024/07/06/opinion/letters/joe-biden-interview.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/06/world/middleeast/israel-hamas-cease-fire-proposal
 **Luka Dončić, Slovenia knocked out of Olympic contention**\
 `The failure to qualify marks a major step back for Slovenia, who finished fourth at the 2020 Olympics.`\
 https://nytimes.com/athletic/5620308/2024/07/06/luka-doncic-slovenia-giannis-antetokounmpo-greece-olympic-qualifier/
-
-**Andy Murray: The benevolent thorn in the side that tennis badly needed**\
-`From the best players of his era to assumptions about the sport, Andy Murray is the benevolent thorn in the side that tennis needed`\
-https://nytimes.com/athletic/5582264/2024/07/06/andy-murray-tennis-impact-record/
-
-**Vikings rookie CB Khyree Jackson dies in car accident**\
-`Jackson was picked by the Vikings in the fourth round of April's draft. He arrived in Minnesota by way of Oregon.`\
-https://nytimes.com/athletic/5620288/2024/07/06/khyree-jackson-died-car-accident/
 
