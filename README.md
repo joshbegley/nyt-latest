@@ -1,3 +1,7 @@
+**LeBron on Lakers drafting Bronny: 'Dream come true'**\
+`"When they announced his name, it was something that was super surreal," LeBron said about Bronny.`\
+https://nytimes.com/athletic/5620876/2024/07/06/lebron-james-bronny-lakers-comments/
+
 **Double Digits**\
 `David Karp’s nimble puzzle might be hard to handle.`\
 https://nytimes.com/2024/07/06/crosswords/daily-puzzle-2024-07-07.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5620782/2024/07/06/bukayo-saka-penalty-england-swit
 **Biden Cancels Speech to Teachers After Union’s Staff Strikes**\
 `Employees of the National Education Association picketed the site of the group’s annual convention after a walkout over issues including overtime pay.`\
 https://nytimes.com/2024/07/06/business/nea-staff-strike-convention-biden-speech.html
-
-**Van de Beek close to Girona move**\
-`Donny van de Beek is close to a move from Manchester United to Girona.`\
-https://nytimes.com/athletic/5620292/2024/07/06/manchester-united-donny-van-de-beek-transfer/
 
