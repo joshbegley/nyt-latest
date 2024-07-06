@@ -1,3 +1,7 @@
+**On Congenital Liars, Then and Now**\
+`Maybe the term didn’t fit Hillary Clinton, but it’s perfect for Trump.`\
+https://nytimes.com/live/2024/07/02/opinion/thepoint/congenital-liar-safire-biden
+
 **Tour de France cyclist fined for kissing wife and son**\
 `The smooch came in a cinematic moment as Bernard pushed up a steep hill surrounded by hundreds of friends and family members.`\
 https://nytimes.com/athletic/5620040/2024/07/06/tour-de-france-cyclist-fined-kiss/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5619393/2024/07/06/angels-reid-detmers-demotion/
 **The Authors Call It Fiction, but in These 2 Novels the Facts Don’t Lie**\
 `A philandering father; a literary affair.`\
 https://nytimes.com/2024/07/06/books/read-like-wind-recommendations-autobiographical-fiction.html
-
-**Jose Miranda sets Twins record with 10th straight hit**\
-`Miranda went 4-for-4 to establish a club record with hits in 10 straight plate appearances, besting a record previously held by three Twins.`\
-https://nytimes.com/athletic/5619910/2024/07/06/jose-miranda-twins-record-10-straight-hits/
 
