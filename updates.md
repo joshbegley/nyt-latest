@@ -1,3 +1,7 @@
+**On Congenital Liars, Then and Now**\
+`Maybe the term didn’t fit Hillary Clinton, but it’s perfect for Trump.`\
+https://nytimes.com/live/2024/07/02/opinion/thepoint/congenital-liar-safire-biden
+
 **Tour de France cyclist fined for kissing wife and son**\
 `The smooch came in a cinematic moment as Bernard pushed up a steep hill surrounded by hundreds of friends and family members.`\
 https://nytimes.com/athletic/5620040/2024/07/06/tour-de-france-cyclist-fined-kiss/
