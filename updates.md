@@ -1,3 +1,7 @@
+**With triumphs big and small, Phillies wield 10-game lead over Braves**\
+`An 8-6 Phillies win was not the most crucial of the season, but it boosted the gap between Philadelphia and Atlanta to 10 games. `\
+https://nytimes.com/athletic/5619642/2024/07/06/phillies-braves-nl-east-johan-rojas/
+
 **Crisis? What Crisis? Biden Rejects Democratic Pessimism**\
 `After last week’s devastating debate performance, the president’s prime-time interview with ABC News was an exercise in not just damage control but reality control.`\
 https://nytimes.com/2024/07/06/us/politics/biden-rejects-democratic-pessimism.html
