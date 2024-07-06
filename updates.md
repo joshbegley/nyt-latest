@@ -1,3 +1,15 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/06/crosswords/spelling-bee-forum.html
+
+**How Kaitlin Becker, Meekah From ‘Blippi,’ Spends Her Sundays**\
+`She makes children laugh during the week, but on Sundays it’s her turn to enjoy herself: movies, fancy treats and museum trips with her 6-year-old son.`\
+https://nytimes.com/2024/07/06/nyregion/kaitlin-becker-meekah-blippi.html
+
+**For Older People Who Are Lonely, Is the Solution a Robot Friend?**\
+`New York officials believe a robotic companion called ElliQ, which can discuss complicated subjects, is helping older residents feel less alone. Critics are concerned about data collection.`\
+https://nytimes.com/2024/07/06/nyregion/ai-robot-elliq-loneliness.html
+
 **Emma Raducanu's Centre Court calm needs nurturing as much as admiring**\
 `As Emma Raducanu partners Andy Murray at Wimbledon, she looks capable of inheriting his British mantle at SW19 — on her terms`\
 https://nytimes.com/athletic/5618994/2024/07/06/emma-raducanu-wimbledon-andy-murray-mixed-doubles/

@@ -1,3 +1,15 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/06/crosswords/spelling-bee-forum.html
+
+**How Kaitlin Becker, Meekah From ‘Blippi,’ Spends Her Sundays**\
+`She makes children laugh during the week, but on Sundays it’s her turn to enjoy herself: movies, fancy treats and museum trips with her 6-year-old son.`\
+https://nytimes.com/2024/07/06/nyregion/kaitlin-becker-meekah-blippi.html
+
+**For Older People Who Are Lonely, Is the Solution a Robot Friend?**\
+`New York officials believe a robotic companion called ElliQ, which can discuss complicated subjects, is helping older residents feel less alone. Critics are concerned about data collection.`\
+https://nytimes.com/2024/07/06/nyregion/ai-robot-elliq-loneliness.html
+
 **Emma Raducanu's Centre Court calm needs nurturing as much as admiring**\
 `As Emma Raducanu partners Andy Murray at Wimbledon, she looks capable of inheriting his British mantle at SW19 — on her terms`\
 https://nytimes.com/athletic/5618994/2024/07/06/emma-raducanu-wimbledon-andy-murray-mixed-doubles/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5619642/2024/07/06/phillies-braves-nl-east-johan-ro
 **Crisis? What Crisis? Biden Rejects Democratic Pessimism**\
 `After last week’s devastating debate performance, the president’s prime-time interview with ABC News was an exercise in not just damage control but reality control.`\
 https://nytimes.com/2024/07/06/us/politics/biden-rejects-democratic-pessimism.html
-
-**Dissecting Darwin Nunez: From his Liverpool toils to thriving as Uruguay's front man**\
-`The striker laboured at times under Jurgen Klopp but has excelled at Copa America 2024 and should see Arne Slot's arrival as an opportunity`\
-https://nytimes.com/athletic/5615949/2024/07/06/darwin-nunez-liverpool-uruguay-slot/
-
-**Mbappe's stress and Ronaldo's stutter: Analysing the France vs Portugal penalty shootout**\
-`The Athletic breaks down the action-packed penalty shootout between France and Portugal from Euro 2024`\
-https://nytimes.com/athletic/5619404/2024/07/06/portugal-france-ronaldo-mbappe-shootout/
-
-**'He looked like a Spartan warrior': When Colombia boss Nestor Lorenzo played for Swindon Town**\
-`In 1990, one of the best international managers in the world right now joined an English second-division side — fresh from a World Cup final`\
-https://nytimes.com/athletic/5618814/2024/07/06/nestor-lorenzo-argentina-colombia-swindon-town/
 
