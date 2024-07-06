@@ -1,3 +1,7 @@
+**Developing Your Taste**\
+`The meals that we love are informed as much by the experience of eating them as by the flavor of the food itself.`\
+https://nytimes.com/2024/07/06/briefing/developing-your-taste.html
+
 **Chelsea sign Sandy Baltimore from PSG**\
 `Chelsea have completed the signing of France forward Sandy Baltimore on a free transfer from Paris Saint-Germain.`\
 https://nytimes.com/athletic/5619833/2024/07/06/chelsea-sandy-baltimore-psg-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/06/us/politics/biden-replacement-dnc-delegates.html
 **What Do Bagged Chickens Have to Do With Sliced Cheese?**\
 `Both have gotten caught up in fights over plastic packaging. When Costco recently tried to trim its plastic use by selling rotisserie chickens in bags, some shoppers disapproved.`\
 https://nytimes.com/2024/07/06/climate/costco-chicken-bags-sliced-cheese-plastic.html
-
-**Your Brain Holds Secrets. Scientists Want to Find Them.**\
-`Many Americans plan to donate their organs for transplants or their bodies for medical science. Few realize that there’s a growing need for their brains, too.`\
-https://nytimes.com/2024/07/06/health/brain-donation.html
 

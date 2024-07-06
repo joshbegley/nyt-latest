@@ -1,3 +1,7 @@
+**Developing Your Taste**\
+`The meals that we love are informed as much by the experience of eating them as by the flavor of the food itself.`\
+https://nytimes.com/2024/07/06/briefing/developing-your-taste.html
+
 **Chelsea sign Sandy Baltimore from PSG**\
 `Chelsea have completed the signing of France forward Sandy Baltimore on a free transfer from Paris Saint-Germain.`\
 https://nytimes.com/athletic/5619833/2024/07/06/chelsea-sandy-baltimore-psg-transfer/
