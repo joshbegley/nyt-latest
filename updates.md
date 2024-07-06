@@ -1,3 +1,7 @@
+**Carlos Miguel set for Forest medical**\
+`Brazilian goalkeeper Carlos Miguel will undergo a medical this weekend ahead of a proposed move to Nottingham Forest.`\
+https://nytimes.com/athletic/5619948/2024/07/06/carlos-miguel-transfer-nottingham-forest/
+
 **Angels’ Reid Detmers discusses demotion and potential call-up: ‘I feel like my old self again'**\
 `Detmers was the Angels' best pitcher and has thrown a no-hitter. But they demoted him and he’s unsure how he still fits in their plans.`\
 https://nytimes.com/athletic/5619393/2024/07/06/angels-reid-detmers-demotion/

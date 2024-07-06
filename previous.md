@@ -1,3 +1,7 @@
+**Carlos Miguel set for Forest medical**\
+`Brazilian goalkeeper Carlos Miguel will undergo a medical this weekend ahead of a proposed move to Nottingham Forest.`\
+https://nytimes.com/athletic/5619948/2024/07/06/carlos-miguel-transfer-nottingham-forest/
+
 **Angels’ Reid Detmers discusses demotion and potential call-up: ‘I feel like my old self again'**\
 `Detmers was the Angels' best pitcher and has thrown a no-hitter. But they demoted him and he’s unsure how he still fits in their plans.`\
 https://nytimes.com/athletic/5619393/2024/07/06/angels-reid-detmers-demotion/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/06/opinion/biden-2024-trump-2016.html
 **Welcome to Stucktopia**\
 `Pop culture is serving up dark visions full of labyrinthine bunkers, endless loops and characters who feel hopelessly mired. Welcome to the stucktopia.`\
 https://nytimes.com/2024/07/06/opinion/sci-fi-dystopia-pop-culture.html
-
-**Dear Elites (of Both Parties), the People Will Take It From Here, Thanks**\
-`A revolution is about to swallow U.S. politics, and it’s based on the simplest and most radical theory of power.`\
-https://nytimes.com/2024/07/06/opinion/populism-power-elites-politics.html
 
