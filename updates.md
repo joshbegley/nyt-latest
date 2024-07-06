@@ -1,3 +1,43 @@
+**I Don’t Give a Damn About My Dad Reputation**\
+`A longtime “Freaks and Geeks” fan reconsiders what it means to be one of the cool kids.`\
+https://nytimes.com/2024/07/06/arts/television/freaks-and-geeks-illustrated.html
+
+**Whoever the Democratic Candidate Is, Americans Have Already Lost**\
+`The American Republic feels fragile.`\
+https://nytimes.com/2024/07/06/opinion/biden-debate-scotus-immunity.html
+
+**In the French Countryside, a Deep Discontent Takes Root**\
+`In northern Burgundy, services have collapsed and the far-right National Rally has risen.`\
+https://nytimes.com/2024/07/06/world/europe/rural-france-national-rally-appeal.html
+
+**These Obscure Democrats Could Soon Become Kingmakers**\
+`President Biden insisted on Friday that he would stay in the race. But if he decides to step aside, these individuals will determine who leads the ticket.`\
+https://nytimes.com/2024/07/06/us/politics/biden-replacement-dnc-delegates.html
+
+**What Do Bagged Chickens Have to Do With Sliced Cheese?**\
+`Both have gotten caught up in fights over plastic packaging. When Costco recently tried to trim its plastic use by selling rotisserie chickens in bags, some shoppers disapproved.`\
+https://nytimes.com/2024/07/06/climate/costco-chicken-bags-sliced-cheese-plastic.html
+
+**Your Brain Holds Secrets. Scientists Want to Find Them.**\
+`Many Americans plan to donate their organs for transplants or their bodies for medical science. Few realize that there’s a growing need for their brains, too.`\
+https://nytimes.com/2024/07/06/health/brain-donation.html
+
+**Senate Republicans Are Now in the Mix for Top Posts in a Trump Presidency**\
+`It’s a change from 2016, when House Republicans were the preferred candidates. At least two senators — J.D. Vance and Marco Rubio — are on the short list for the vice president slot.`\
+https://nytimes.com/2024/07/06/us/politics/trump-vice-president-cabinet-vance-rubio-scott.html
+
+**A Mark of Shame for 900 Years. Until Now?**\
+`“Felon” carries an ancient stigma — one that falls on millions of Americans today. Trump might well redefine it.`\
+https://nytimes.com/2024/07/06/us/trump-felon-definition.html
+
+**Making an Offer: When Is It Lowballing, and When Is It Just a Fair Price?**\
+`Prospective buyers should limit any offer to the value of a property as they see it.`\
+https://nytimes.com/2024/07/06/realestate/lowball-offers.html
+
+**Ti West Is Turning Hollywood Into a Horror Show**\
+`His “X” trilogy — which culminates with “MaXXXine” — obsesses over cinema, stardom and the industry itself.`\
+https://nytimes.com/2024/07/06/magazine/ti-west-x-trilogy.html
+
 **Two Young Drivers Take the Wheel. One, a Teen. The Other, a Tesla.**\
 `Can my son learn from the example of the robot controlling the steering wheel? Or should it be the other way around?`\
 https://nytimes.com/2024/07/06/business/tesla-teen-driver.html
