@@ -1,3 +1,7 @@
+**World No. 1 Iga Swiatek out of Wimbledon after defeat to Yulia Putintseva**\
+`Iga Swiatek, the world No.`\
+https://nytimes.com/athletic/5620479/2024/07/06/iga-swiatek-wimbledon-record-yulia-putintseva/
+
 **Judge Delays Some Deadlines in Trump Classified Documents Case**\
 `The postponement was likely to cause only minor delays to the case, which has already slowed to a crawl with Judge Aileen Cannon’s previous decisions.`\
 https://nytimes.com/2024/07/06/us/politics/trump-classified-documents-case-delay.html
