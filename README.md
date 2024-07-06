@@ -1,3 +1,7 @@
+**Steve Kerr thanks Klay Thompson for '10 incredible years'**\
+`Thompson, a pillar of the Golden State Warriors’ four championships won under Kerr, left the organization.`\
+https://nytimes.com/athletic/5621041/2024/07/06/steve-kerr-klay-thompson-warriors/
+
 **Coney Island Drownings Fail to Deter New Yorkers as City Swelters**\
 `Visitors were mostly unaffected by the third and fourth drownings at New York City beaches this season, matching the total number of swimming deaths last summer.`\
 https://nytimes.com/2024/07/06/nyregion/coney-island-beach-drowning.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5620876/2024/07/06/lebron-james-bronny-lakers-comme
 **Double Digits**\
 `David Karp’s nimble puzzle might be hard to handle.`\
 https://nytimes.com/2024/07/06/crosswords/daily-puzzle-2024-07-07.html
-
-**Much of Western U.S. Is Broiling Under Record-Breaking Heat**\
-`From Oregon to California to Arizona, several cities have seen scorching temperatures in recent days. And there is little relief in sight, forecasters say.`\
-https://nytimes.com/2024/07/06/us/excessive-heat-wave-california-oregon-arizona.html
 
