@@ -1,3 +1,15 @@
+**Is This Vibrant Democracy in Japan, or Has the Circus Come to Town?**\
+`A ridiculous number of candidates are contending to be governor of Tokyo and its surrounding prefecture. Many are not even trying to win.`\
+https://nytimes.com/2024/07/06/world/asia/tokyo-goverors-election.html
+
+**Colombia 5-0 Panama: Takeaways as Colombia reach semis and James shines**\
+`Colombia return to the Copa America semifinals for the third time in the last four editions `\
+https://nytimes.com/athletic/5620884/2024/07/06/colombia-panama-james-rodriguez-takeaways/
+
+**Copa America 2024 quarterfinals bracket: Full knockout stage schedule**\
+`The world's oldest international soccer tournament is reaching the business end in the United States`\
+https://nytimes.com/athletic/5595220/2024/07/06/copa-america-2024-bracket-qualified-out/
+
 **Kerr thanks Thompson, says ex-Warrior needed ‘a shift’**\
 `Thompson, a pillar of the Golden State Warriors’ four championships won under Kerr, left the organization.`\
 https://nytimes.com/athletic/5621041/2024/07/06/steve-kerr-klay-thompson-warriors/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5620905/2024/07/06/cubs-kyle-hendricks-tight-back-d
 **Koeman defends Netherlands: 'People think we don’t have heart... we showed it'**\
 `Ronald Koeman defended his Netherlands side after their comeback victory over Turkey in Saturday’s European Championship quarter-final, saying that “people think we don’t have that heart… but the players showed it.`\
 https://nytimes.com/athletic/5620968/2024/07/06/netherlands-turkey-ronald-koeman/
-
-**Macklin Celebrini signs entry-level contract with Sharks**\
-`The Sharks finished last in the NHL with a 19-54-9 record. Celebrini could make his NHL debut on Oct. 10.`\
-https://nytimes.com/athletic/5620934/2024/07/06/sharks-macklin-celebrini-entry-level-contract/
-
-**LeBron on Lakers drafting Bronny: 'Dream come true'**\
-`"When they announced his name, it was something that was super surreal," LeBron said about Bronny.`\
-https://nytimes.com/athletic/5620876/2024/07/06/lebron-james-bronny-lakers-comments/
-
-**Double Digits**\
-`David Karp’s nimble puzzle might be hard to handle.`\
-https://nytimes.com/2024/07/06/crosswords/daily-puzzle-2024-07-07.html
 
