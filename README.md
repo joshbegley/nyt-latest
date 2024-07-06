@@ -1,3 +1,7 @@
+**Dissecting Darwin Nunez: From his Liverpool toils to thriving as Uruguay's front man**\
+`The striker laboured at times under Jurgen Klopp but has excelled at Copa America 2024 and should see Arne Slot's arrival as an opportunity`\
+https://nytimes.com/athletic/5615949/2024/07/06/darwin-nunez-liverpool-uruguay-slot/
+
 **Mbappe's stress and Ronaldo's stutter: Analysing the France vs Portugal penalty shootout**\
 `The Athletic breaks down the action-packed penalty shootout between France and Portugal from Euro 2024`\
 https://nytimes.com/athletic/5619404/2024/07/06/portugal-france-ronaldo-mbappe-shootout/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5618334/2024/07/06/turkey-erdogan-demiral-euro-2024
 **The evolution of Harry Kane's penalty kicks**\
 `How the England striker has evolved to become one of the world's most feared players from the penalty spot`\
 https://nytimes.com/athletic/5559376/2024/07/06/harry-kane-penalties-england-bayern-munich/
-
-**Xhaka's redemption arc heading towards a new peak a year after Arsenal exit**\
-`Not so long ago, the Swiss midfielder's career appeared on a downward trajectory, but he has enjoyed an impressive recent resurgence`\
-https://nytimes.com/athletic/5614741/2024/07/06/granit-xhaka-switzerland-arsenal-leverkusen/
 
