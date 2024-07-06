@@ -1,3 +1,7 @@
+**Chelsea sign Sandy Baltimore from PSG**\
+`Chelsea have completed the signing of France forward Sandy Baltimore on a free transfer from Paris Saint-Germain.`\
+https://nytimes.com/athletic/5619833/2024/07/06/chelsea-sandy-baltimore-psg-transfer/
+
 **Juventus sign Lehmann from Villa**\
 `Juventus have completed the signing of Alisha Lehmann from Aston Villa.`\
 https://nytimes.com/athletic/5619820/2024/07/06/alisha-lehmann-juventus-villa-transfer/
