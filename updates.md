@@ -1,3 +1,7 @@
+**With His Candidacy on the Line, Biden Will Visit Pennsylvania**\
+`President Biden sat for an interview with ABC News and campaigned in Wisconsin on Friday, part of a critical post-debate stretch for him after a rocky performance.`\
+https://nytimes.com/live/2024/07/06/us/biden-trump-election/with-his-candidacy-on-the-line-biden-is-returning-to-pennsylvania
+
 **Atlanta's Almada completes MLS-record move to Botafogo**\
 `Thiago Almada has completed his MLS-record transfer from Atlanta United to Brazilian side Botafago.`\
 https://nytimes.com/athletic/5620130/2024/07/06/thiago-almada-botafogo-transfer-eagle-football/
