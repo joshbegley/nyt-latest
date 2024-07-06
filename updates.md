@@ -1,3 +1,7 @@
+**Raducanu withdraws from Wimbledon mixed doubles match with Murray**\
+`Emma Raducanu has pulled out of her mixed doubles match with Andy Murray.`\
+https://nytimes.com/athletic/5620089/2024/07/06/emma-raducanu-andy-murray-wimbledon-doubles/
+
 **Wayne S. Smith, a Leading Critic of the Embargo on Cuba, Dies at 91**\
 `A former State Department official, he resigned in protest in 1982 over Cuba policy, then spent decades trying to rebuild relations with the island nation.`\
 https://nytimes.com/2024/07/06/world/americas/wayne-s-smith-dead.html

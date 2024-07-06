@@ -1,3 +1,7 @@
+**Raducanu withdraws from Wimbledon mixed doubles match with Murray**\
+`Emma Raducanu has pulled out of her mixed doubles match with Andy Murray.`\
+https://nytimes.com/athletic/5620089/2024/07/06/emma-raducanu-andy-murray-wimbledon-doubles/
+
 **Wayne S. Smith, a Leading Critic of the Embargo on Cuba, Dies at 91**\
 `A former State Department official, he resigned in protest in 1982 over Cuba policy, then spent decades trying to rebuild relations with the island nation.`\
 https://nytimes.com/2024/07/06/world/americas/wayne-s-smith-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5619165/2024/07/06/leicester-transfers-de-cordova-r
 **Joe Biden’s Blind Spot**\
 `The president just doesn’t see that it’s time to take the win.`\
 https://nytimes.com/2024/07/06/opinion/joe-biden-power.html
-
-**President Biden and the Lord Almighty**\
-`The country is interested in the future. Biden keeps talking about the past.`\
-https://nytimes.com/live/2024/07/02/opinion/thepoint/biden-interview
 
