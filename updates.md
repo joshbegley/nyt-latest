@@ -1,3 +1,11 @@
+**What the Interview With Biden Showed**\
+`Readers aren’t mollified by the president’s answers to questions from George Stephanopoulos.`\
+https://nytimes.com/2024/07/06/opinion/letters/joe-biden-interview.html
+
+**Calls Grow for Biden to Leave Race Despite His Vow to Run**\
+`Interviews with dozens of Democrats illustrated an imminent clash between a defiant president and those who question his ability to win. Many rank-and-file party officials remain supportive.`\
+https://nytimes.com/2024/07/06/us/politics/biden-campaign-democrats.html
+
 **Canada's men's national team might never look the same again**\
 `Canada’s men have been known to wilt at big moments. But that experience has made them stronger`\
 https://nytimes.com/athletic/5620378/2024/07/06/canada-copa-america-marsch-win/

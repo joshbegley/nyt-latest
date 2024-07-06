@@ -1,3 +1,7 @@
+**What the Interview With Biden Showed**\
+`Readers aren’t mollified by the president’s answers to questions from George Stephanopoulos.`\
+https://nytimes.com/2024/07/06/opinion/letters/joe-biden-interview.html
+
 **Canada's men's national team might never look the same again**\
 `Canada’s men have been known to wilt at big moments. But that experience has made them stronger`\
 https://nytimes.com/athletic/5620378/2024/07/06/canada-copa-america-marsch-win/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/5620378/2024/07/06/canada-copa-america-marsch-win/
 `Opportunity for the British drivers. Redemption for Pérez. Damage-control for Ferrari. And all the while, Verstappen looms. `\
 https://nytimes.com/athletic/5620459/2024/07/06/f1-british-gp-preview/
 
-**Biden Faces More Calls From Democrats to Quit the Race**\
+**Calls Grow for Biden to Leave Race Despite His Vow to Run**\
 `Interviews with dozens of Democrats illustrated an imminent clash between a defiant president and those who question his ability to win. Many rank-and-file party officials remain supportive.`\
 https://nytimes.com/2024/07/06/us/politics/biden-campaign-democrats.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5582264/2024/07/06/andy-murray-tennis-impact-record
 **Vikings rookie CB Khyree Jackson dies in car accident**\
 `Jackson was picked by the Vikings in the fourth round of April's draft. He arrived in Minnesota by way of Oregon.`\
 https://nytimes.com/athletic/5620288/2024/07/06/khyree-jackson-died-car-accident/
-
-**How 5-star LB Riley Pettijohn impacts Ohio Sate's class**\
-`Ohio State now has 23 commitments — including 11 top-100 national prospects — in its top-ranked 2025 class.`\
-https://nytimes.com/athletic/5620120/2024/07/06/ohio-state-recruiting-riley-pettijohn-lb/
 
