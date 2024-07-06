@@ -1,3 +1,7 @@
+**Vikings rookie CB Khyree Jackson dies in car accident**\
+`Jackson was picked by the Vikings in the fourth round of April's draft. He arrived in Minnesota by way of Oregon.`\
+https://nytimes.com/athletic/5620288/2024/07/06/khyree-jackson-died-car-accident/
+
 **How 5-star LB Riley Pettijohn impacts Ohio Sate's class**\
 `Ohio State now has 23 commitments — including 11 top-100 national prospects — in its top-ranked 2025 class.`\
 https://nytimes.com/athletic/5620120/2024/07/06/ohio-state-recruiting-riley-pettijohn-lb/

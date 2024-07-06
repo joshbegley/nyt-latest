@@ -1,3 +1,7 @@
+**Vikings rookie CB Khyree Jackson dies in car accident**\
+`Jackson was picked by the Vikings in the fourth round of April's draft. He arrived in Minnesota by way of Oregon.`\
+https://nytimes.com/athletic/5620288/2024/07/06/khyree-jackson-died-car-accident/
+
 **How 5-star LB Riley Pettijohn impacts Ohio Sate's class**\
 `Ohio State now has 23 commitments — including 11 top-100 national prospects — in its top-ranked 2025 class.`\
 https://nytimes.com/athletic/5620120/2024/07/06/ohio-state-recruiting-riley-pettijohn-lb/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5619426/2024/07/06/euro-2024-mikel-merino-spain-ger
 **Biden Aides Provided Questions in Advance for His Radio Interviews**\
 `The host of “The Source” on WURD in Philadelphia said officials provided her with a list of eight questions to choose from. The Biden campaign said its staff did not condition the interviews on them.`\
 https://nytimes.com/2024/07/06/us/politics/biden-radio-interviews-questions.html
-
-**Winner, Winner, Tandoori Chicken Dinner**\
-`1. Marinate chicken. 2. Roast chicken. 3. Congratulate yourself on a fantastic meal.`\
-https://nytimes.com/2024/07/06/dining/tandoori-chicken-dinner-recipe.html
 
