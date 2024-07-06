@@ -1,3 +1,7 @@
+**UEFA satisfied with non-handball call on Cucurella**\
+`UEFA is satisfied with Anthony Taylor’s decision not to award Germany a penalty during their 2-1 quarter-final defeat by Spain on Friday evening.`\
+https://nytimes.com/athletic/5619810/2024/07/06/cucurella-handball-anthony-taylor-euro-2024/
+
 **I Don’t Give a Damn About My Dad Reputation**\
 `A longtime “Freaks and Geeks” fan reconsiders what it means to be one of the cool kids.`\
 https://nytimes.com/2024/07/06/arts/television/freaks-and-geeks-illustrated.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/06/us/trump-felon-definition.html
 **Making an Offer: When Is It Lowballing, and When Is It Just a Fair Price?**\
 `Prospective buyers should limit any offer to the value of a property as they see it.`\
 https://nytimes.com/2024/07/06/realestate/lowball-offers.html
-
-**Ti West Is Turning Hollywood Into a Horror Show**\
-`His “X” trilogy — which culminates with “MaXXXine” — obsesses over cinema, stardom and the industry itself.`\
-https://nytimes.com/2024/07/06/magazine/ti-west-x-trilogy.html
 
