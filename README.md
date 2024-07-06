@@ -1,7 +1,3 @@
-**White House Provided the Questions in Advance for Biden’s Radio Interviews**\
-`The host of “The Source” on WURD in Philadelphia said the president’s aides provided her with a list of eight questions to choose from.`\
-https://nytimes.com/2024/07/06/us/politics/biden-radio-interviews-questions.html
-
 **Winner, Winner, Tandoori Chicken Dinner**\
 `1. Marinate chicken. 2. Roast chicken. 3. Congratulate yourself on a fantastic meal.`\
 https://nytimes.com/2024/07/06/dining/tandoori-chicken-dinner-recipe.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5620089/2024/07/06/emma-raducanu-andy-murray-wimble
 **Wayne S. Smith, a Leading Critic of the Embargo on Cuba, Dies at 91**\
 `A former State Department official, he resigned in protest in 1982 over Cuba policy, then spent decades trying to rebuild relations with the island nation.`\
 https://nytimes.com/2024/07/06/world/americas/wayne-s-smith-dead.html
+
+**Mythical Sword’s Disappearance Brings Mystery to French Village**\
+`Legend says the Durandal sword had been stuck in a French hillside for nearly 1,300 years. When it went missing in June, an investigation to find France’s Excalibur began.`\
+https://nytimes.com/2024/07/06/world/europe/rocamadour-excalibur-durandal-missing.html
 
