@@ -1,3 +1,11 @@
+**Adidas renames 11pro boots after Toni Kroos**\
+`Adidas has renamed its 11pro boots after Germany midfielder Toni Kroos.`\
+https://nytimes.com/athletic/5619864/2024/07/06/adidas-11pro-toni-kroos-boots/
+
+**Britain’s New Leader Is About to Get a Crash Course in Statecraft**\
+`Prime Minister Keir Starmer will travel to a NATO summit this coming week, where he will represent a rare point of centrist stability among unsettled allies.`\
+https://nytimes.com/2024/07/06/world/europe/keir-starmer-uk-labour.html
+
 **The 1990s synthesized dance track that is the unofficial anthem of Copa America**\
 `'Do do do do do, dee dee do do do do do.' You know how it goes - and it's become synonymous with many sporting events`\
 https://nytimes.com/athletic/5618920/2024/07/06/copa-america-sandstorm-unofficial-anthem/
