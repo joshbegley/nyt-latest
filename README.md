@@ -1,3 +1,7 @@
+**With triumphs big and small, Phillies wield 10-game lead over Braves**\
+`An 8-6 Phillies win was not the most crucial of the season, but it boosted the gap between Philadelphia and Atlanta to 10 games. `\
+https://nytimes.com/athletic/5619642/2024/07/06/phillies-braves-nl-east-johan-rojas/
+
 **Crisis? What Crisis? Biden Rejects Democratic Pessimism**\
 `After last week’s devastating debate performance, the president’s prime-time interview with ABC News was an exercise in not just damage control but reality control.`\
 https://nytimes.com/2024/07/06/us/politics/biden-rejects-democratic-pessimism.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5610614/2024/07/06/ajax-netherlands-players-one/
 **Kane's lack of touches, an election reference and a 'slow start' - your England bingo card**\
 `Everything you can expect to hear and see as an uninspiring England take on Switzerland in the quarter-finals of Euro 2024`\
 https://nytimes.com/athletic/5617794/2024/07/06/england-switzerland-bingo-card/
-
-**Demiral's 'wolf' gesture and Turkish football's complicated relationship with Erdogan**\
-`For many in Turkey, there is a strong sense of frustration - at those who have punished Demiral, but also at the player himself`\
-https://nytimes.com/athletic/5618334/2024/07/06/turkey-erdogan-demiral-euro-2024/
 
