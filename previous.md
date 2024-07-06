@@ -1,6 +1,6 @@
 **Atlanta's Almada completes MLS-record move to Botafogo**\
 `Thiago Almada has completed his MLS-record transfer from Atlanta United to Brazilian side Botafago.`\
-https://nytimes.com/athletic/5620130/2024/07/06/thiago-almada-botafo-transfer-eagle-football/
+https://nytimes.com/athletic/5620130/2024/07/06/thiago-almada-botafogo-transfer-eagle-football/
 
 **On Congenital Liars, Then and Now**\
 `Maybe the term didn’t fit Hillary Clinton, but it’s perfect for Trump.`\
