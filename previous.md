@@ -1,3 +1,7 @@
+**Biden Says He Has Not Had a Cognitive Test and Doesn’t Need One**\
+`“Every day I have that test. Everything I do,” President Biden said in his ABC News interview. “Not only am I campaigning, but I’m running the world.”`\
+https://nytimes.com/2024/07/05/us/politics/biden-cognitive-test-abc-interview.html
+
 **Four Takeaways From Biden’s Post-Debate Interview**\
 `In his first television interview since the debate, President Biden tried to reassure supporters, but he spent much of the interview resisting questions about his capabilities.`\
 https://nytimes.com/2024/07/05/us/politics/biden-interview-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5619391/2024/07/05/nebraska-evan-cooper-coach/
 **Some of Biden’s Upcoming Fund-Raising Events Face New Uncertainty**\
 `Plans for a late July fund-raiser in Wisconsin are now off, and it’s unclear whether another event in Texas will proceed, following President Biden’s disastrous debate performance.`\
 https://nytimes.com/2024/07/05/us/politics/biden-fund-raising-campaign.html
-
-**How Mikel Merino's spectacular frog leap lifted Spain into the Euro 2024 semi-finals**\
-`'At first I didn’t believe it,' said Mikel Merino after scoring a goal that owed so much to a spectacular leap`\
-https://nytimes.com/athletic/5619269/2024/07/05/mikel-merino-frog-leap/
 

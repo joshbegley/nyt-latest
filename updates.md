@@ -1,3 +1,7 @@
+**Biden Says He Has Not Had a Cognitive Test and Doesn’t Need One**\
+`“Every day I have that test. Everything I do,” President Biden said in his ABC News interview. “Not only am I campaigning, but I’m running the world.”`\
+https://nytimes.com/2024/07/05/us/politics/biden-cognitive-test-abc-interview.html
+
 **Four Takeaways From Biden’s Post-Debate Interview**\
 `In his first television interview since the debate, President Biden tried to reassure supporters, but he spent much of the interview resisting questions about his capabilities.`\
 https://nytimes.com/2024/07/05/us/politics/biden-interview-takeaways.html
