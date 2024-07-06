@@ -1,3 +1,7 @@
+**Two Teenagers Drown Off Brooklyn Beach**\
+`The girls, ages 17 and 18, went into the water near the Coney Island boardwalk as thunderstorms rolled in. It was the second pair of drownings off city beaches in two weeks.`\
+https://nytimes.com/2024/07/06/nyregion/coney-island-teens-drown.html
+
 **As Blue Jays and Mariners move in different directions, could they match up as trade partners?**\
 `While they’ve developed an on-field rivalry in recent seasons, the Blue Jays' and Mariners’ front offices have combined on trades.`\
 https://nytimes.com/athletic/5619656/2024/07/06/blue-jays-mariners-trade-partners/
