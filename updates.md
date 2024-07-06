@@ -1,3 +1,11 @@
+**Braves' Grant Holmes looks like Kenny Powers, but his performance is no laughing matter**\
+`Holmes' wife helped him with nutrition. He has since lost 20 pounds, getting stronger and leaner with help from a diet his wife designed.`\
+https://nytimes.com/athletic/5619496/2024/07/05/braves-grant-holmes-kenny-powers/
+
+**For George Stephanopoulos, 22 Minutes of Probing the Personal.**\
+`Respectfully but firmly, the ABC anchor pressed President Biden on the basic questions that Americans had asked themselves over the past week.`\
+https://nytimes.com/2024/07/05/business/media/stephanopoulos-biden-interview.html
+
 **Read the Full Transcript of President Biden’s ABC News Interview**\
 `The conversation between the president and George Stephanopoulos lasted about 20 minutes and aired Friday night.`\
 https://nytimes.com/2024/07/05/us/politics/biden-interview-abc-transcript.html
