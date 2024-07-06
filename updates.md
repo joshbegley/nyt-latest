@@ -1,3 +1,7 @@
+**4 Takeaways From Iran’s Presidential Runoff**\
+`The victory of the reformist candidate, Masoud Pezeshkian, is expected to bring change, but to what extent is still an open question.`\
+https://nytimes.com/2024/07/06/world/middleeast/iran-president-election-takeaways.html
+
 **Hornets re-sign Miles Bridges to 3-year deal**\
 `Bridges returns to Charlotte after a season in which he averaged career highs of 21 points and 7.3 rebounds per game.`\
 https://nytimes.com/athletic/5603475/2024/07/06/miles-bridges-nba-free-agency/
