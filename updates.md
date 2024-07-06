@@ -1,3 +1,7 @@
+**LeBron on Lakers drafting Bronny: 'Dream come true'**\
+`"When they announced his name, it was something that was super surreal," LeBron said about Bronny.`\
+https://nytimes.com/athletic/5620876/2024/07/06/lebron-james-bronny-lakers-comments/
+
 **Double Digits**\
 `David Karp’s nimble puzzle might be hard to handle.`\
 https://nytimes.com/2024/07/06/crosswords/daily-puzzle-2024-07-07.html
