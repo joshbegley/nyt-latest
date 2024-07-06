@@ -1,3 +1,7 @@
+**Jose Miranda sets Twins record with 10th straight hit**\
+`Miranda went 4-for-4 to establish a club record with hits in 10 straight plate appearances, besting a record previously held by three Twins.`\
+https://nytimes.com/athletic/5619910/2024/07/06/jose-miranda-twins-record-10-straight-hits/
+
 **Leicester sign De Cordova-Reid on free transfer**\
 `Leicester City have completed the signing of Bobby De Cordova-Reid on a free transfer.`\
 https://nytimes.com/athletic/5619165/2024/07/06/leicester-transfers-de-cordova-reid/
