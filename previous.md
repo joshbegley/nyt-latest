@@ -1,3 +1,7 @@
+**Juventus sign Lehmann from Villa**\
+`Juventus have completed the signing of Alisha Lehmann from Aston Villa.`\
+https://nytimes.com/athletic/5619820/2024/07/06/alisha-lehmann-juventus-villa-transfer/
+
 **What does the Current and Pride's success mean for NWSL?**\
 `The Current and Pride each have a striker in the Golden Boot race.`\
 https://nytimes.com/athletic/5619369/2024/07/06/orlando-pride-kc-current-nwsl-leading-goalscorers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/06/health/brain-donation.html
 **Senate Republicans Are Now in the Mix for Top Posts in a Trump Presidency**\
 `It’s a change from 2016, when House Republicans were the preferred candidates. At least two senators — J.D. Vance and Marco Rubio — are on the short list for the vice president slot.`\
 https://nytimes.com/2024/07/06/us/politics/trump-vice-president-cabinet-vance-rubio-scott.html
-
-**A Mark of Shame for 900 Years. Until Now?**\
-`“Felon” carries an ancient stigma — one that falls on millions of Americans today. Trump might well redefine it.`\
-https://nytimes.com/2024/07/06/us/trump-felon-definition.html
 
