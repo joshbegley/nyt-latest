@@ -1,3 +1,7 @@
+**Biden urges Americans to watch him at a NATO summit next week in Washington.**\
+`By David E. Sanger`\
+https://nytimes.com/live/2024/07/05/us/biden-trump-2024-election/biden-urges-americans-to-watch-him-at-a-nato-summit-next-week-in-washington
+
 **Jeffries Plans to Meet Virtually With Top House Democrats on Biden’s Path Ahead**\
 `The House minority leader scheduled a virtual meeting for Sunday.`\
 https://nytimes.com/2024/07/05/us/politics/hakeem-jeffries-biden-democrats.html
