@@ -1,3 +1,7 @@
+**Sykes Faces Challenge in Ohio as Black Democrats Push to Hold White Districts**\
+`Representative Emilia Sykes is one of only a few Black Democrats in Congress who don’t resemble most of their constituents, and whose political survival this year will help determine which party controls the House.`\
+https://nytimes.com/2024/07/06/us/politics/emilia-sykes-ohio-black-democrat.html
+
 **Atlanta's Almada completes MLS-record move to Botafogo**\
 `Thiago Almada has completed his MLS-record transfer from Atlanta United to Brazilian side Botafago.`\
 https://nytimes.com/athletic/5620130/2024/07/06/thiago-almada-botafogo-transfer-eagle-football/
@@ -10,7 +14,7 @@ https://nytimes.com/live/2024/07/02/opinion/thepoint/congenital-liar-safire-bide
 `The smooch came in a cinematic moment as Bernard pushed up a steep hill surrounded by hundreds of friends and family members.`\
 https://nytimes.com/athletic/5620040/2024/07/06/tour-de-france-cyclist-fined-kiss/
 
-**With His Candidacy on the Line, Biden Will Visit Pennsylvania**\
+**With his candidacy on the line, Biden will visit Pennsylvania.**\
 `President Biden sat for an interview with ABC News and campaigned in Wisconsin on Friday, part of a critical post-debate stretch for him after a rocky performance.`\
 https://nytimes.com/live/2024/07/06/us/biden-trump-election/with-his-candidacy-on-the-line-biden-is-returning-to-pennsylvania
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5618498/2024/07/06/nhl-free-agency-grades-every-tea
 **Carlos Miguel set for Forest medical**\
 `Brazilian goalkeeper Carlos Miguel will undergo a medical this weekend ahead of a proposed move to Nottingham Forest.`\
 https://nytimes.com/athletic/5619948/2024/07/06/carlos-miguel-transfer-nottingham-forest/
-
-**Angels’ Reid Detmers discusses demotion and potential call-up: ‘I feel like my old self again'**\
-`Detmers was the Angels' best pitcher and has thrown a no-hitter. But they demoted him and he’s unsure how he still fits in their plans.`\
-https://nytimes.com/athletic/5619393/2024/07/06/angels-reid-detmers-demotion/
 
