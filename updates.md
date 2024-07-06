@@ -1,3 +1,7 @@
+**Amusement Park**\
+`A trip to some of the happiest places on Earth.`\
+https://nytimes.com/2024/07/06/podcasts/amusement-park-this-american-life-nyt-audio.html
+
 **Adidas renames 11pro boots after Toni Kroos**\
 `Adidas has renamed its 11pro boots after Germany midfielder Toni Kroos.`\
 https://nytimes.com/athletic/5619864/2024/07/06/adidas-11pro-toni-kroos-boots/
