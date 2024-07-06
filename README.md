@@ -1,8 +1,12 @@
+**Levshunov signing entry-level contract with Blackhawks**\
+`Arytom Levshunov, the second pick in the 2024 NHL draft, is turning pro and will not return to Michigan State.`\
+https://nytimes.com/athletic/5620990/2024/07/06/artyom-levshunov-signing-blackhawks/
+
 **Bronny James scores 4 points in NBA Summer League debut**\
 `James finished with four points, two assists, two rebounds and a steal in 22 minutes.`\
 https://nytimes.com/athletic/5620944/2024/07/06/bronny-james-summer-league-debut-lakers-kings/
 
-**Cubs notes: Hendricks' tight back and the impact on rotation, Swanson's struggles and more**\
+**Cubs notes: Kyle Hendricks' tight back and impact on rotation, Dansby Swanson's struggles**\
 `Plus notes on the Cubs' catching situation and Christopher Morel getting an unexpected day off against a lefty starter.`\
 https://nytimes.com/athletic/5620905/2024/07/06/cubs-kyle-hendricks-tight-back-dansby-swanson-struggles/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5618269/2024/07/06/england-euro-2024-southgate/
 **Euro 2024 day 23: 'England's 'cheat code' water bottle and can Dutch go all the way?**\
 `The major talking points on the second day of quarter-finals at Euro 2024`\
 https://nytimes.com/athletic/5620295/2024/07/06/euro-2024-day-23-england-bottle/
-
-**England deserve ‘more credit’ for Euro 2024 performances - Xhaka**\
-`Switzerland captain Granit Xhaka believes the England team need to be given “more credit” for their performances.`\
-https://nytimes.com/athletic/5620834/2024/07/06/england-switzerland-granit-xhaka/
 
