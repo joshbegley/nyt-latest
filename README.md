@@ -1,3 +1,7 @@
+**Martinez failed to learn that benching Ronaldo doesn't have to mean the end of the world**\
+`The lack of goals didn't seem to bother Martinez. The limit it placed on his team's potential didn't either. He just kept pushing the button`\
+https://nytimes.com/athletic/5619214/2024/07/06/martinez-ronaldo-portugal-exit-euro-2024/
+
 **Dodgers have plenty to learn about outfield picture before trade deadline**\
 `The Dodgers got an 8-5 come-from-behind win over the Brewers on Friday but could be in the market for an outfielder.`\
 https://nytimes.com/athletic/5619668/2024/07/06/dodgers-outfield-trade-deadline-brewers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5618814/2024/07/06/nestor-lorenzo-argentina-colombi
 **Germany are out - and now it's time to wake up**\
 `Hosting Euro 2024 has been such a welcome relief from the worries of real life. Now Germany are out, when will the feeling return?`\
 https://nytimes.com/athletic/5619360/2024/07/06/germany-exit-euro2024-muller/
-
-**Answering children's questions about England at Euro 2024 - feet, dogs and what if they lose?**\
-`Kane's midfield role, rainbow flicks, feet sizes, dogs and why men and women can't play together are all on the agenda `\
-https://nytimes.com/athletic/5618331/2024/07/06/answering-children-questions-england/
 
