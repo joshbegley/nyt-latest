@@ -1,3 +1,11 @@
+**France’s Snap Election Enters Its Final Hours**\
+`The vote will determine the composition of France’s National Assembly, and the future of President Emmanuel Macron’s second term.`\
+https://nytimes.com/2024/07/06/world/europe/france-parliamentary-election-2024.html
+
+**Should Yankees' Ben Rice be the everyday first baseman after 3-homer day?**\
+`The 25-year-old became the first Yankees rookie to hit three home runs in a game. Should he be a fixture at the top of the lineup?`\
+https://nytimes.com/athletic/5620992/2024/07/06/yankees-ben-rice-three-home-runs/
+
 **Levshunov signing entry-level contract with Blackhawks**\
 `Arytom Levshunov, the second pick in the 2024 NHL draft, is turning pro and will not return to Michigan State.`\
 https://nytimes.com/athletic/5620990/2024/07/06/artyom-levshunov-signing-blackhawks/
