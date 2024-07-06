@@ -1,3 +1,7 @@
+**Twins' Jose Miranda ties MLB record with hits in 12 straight at-bats**\
+`During the 12-for-12 streak, Miranda raised his batting average from .294 to .329.`\
+https://nytimes.com/athletic/5620741/2024/07/06/jose-miranda-mlb-record-consecutive-hits-twins/
+
 **Saka 'embraced' penalty pressure as England beat Switzerland**\
 `Bukayo Saka said he &#8220;embraced&#8221; the opportunity to banish his penalty shootout demons after England’s players held their nerve to reach the European Championship semi-final.`\
 https://nytimes.com/athletic/5620782/2024/07/06/bukayo-saka-penalty-england-switzerland/

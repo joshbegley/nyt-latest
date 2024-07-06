@@ -19,7 +19,7 @@ https://nytimes.com/2024/07/06/sports/yoshihiro-uchida-dead.html
 https://nytimes.com/athletic/5620487/2024/07/06/tyus-jones-status-malcolm-brogdon-wizards-updates/
 
 **Twins' Jose Miranda ties MLB record with hits in 12 straight at-bats**\
-`During the 12-for-12 streak, Miranda has raised his batting average from .294 to .329.`\
+`During the 12-for-12 streak, Miranda raised his batting average from .294 to .329.`\
 https://nytimes.com/athletic/5620741/2024/07/06/jose-miranda-mlb-record-consecutive-hits-twins/
 
 **NASCAR Chicago Street Race starting lineup: Kyle Larson takes pole position**\
