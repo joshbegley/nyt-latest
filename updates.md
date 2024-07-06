@@ -1,3 +1,11 @@
+**Spain's Pedri out of Euro 2024 with left knee injury**\
+`Spain midfielder Pedri has been ruled out of the rest of the European Championship after suffering a left knee injury.`\
+https://nytimes.com/athletic/5620151/2024/07/06/pedri-injury-spain-euro-2024/
+
+**Biden Aides Provided Questions in Advance for His Radio Interviews**\
+`The host of “The Source” on WURD in Philadelphia said the president’s aides provided her with a list of eight questions to choose from.`\
+https://nytimes.com/2024/07/06/us/politics/biden-radio-interviews-questions.html
+
 **George Russell takes British GP pole, leads all-British top three in qualifying**\
 `Russell will lead countrymen Lewis Hamilton and Lando Norris to start the British GP on Sunday. `\
 https://nytimes.com/athletic/5620229/2024/07/06/george-russell-british-gp-pole-lewis-hamilton-lando-norris/

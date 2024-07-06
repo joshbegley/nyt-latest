@@ -1,3 +1,7 @@
+**Spain's Pedri out of Euro 2024 with left knee injury**\
+`Spain midfielder Pedri has been ruled out of the rest of the European Championship after suffering a left knee injury.`\
+https://nytimes.com/athletic/5620151/2024/07/06/pedri-injury-spain-euro-2024/
+
 **George Russell takes British GP pole, leads all-British top three in qualifying**\
 `Russell will lead countrymen Lewis Hamilton and Lando Norris to start the British GP on Sunday. `\
 https://nytimes.com/athletic/5620229/2024/07/06/george-russell-british-gp-pole-lewis-hamilton-lando-norris/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/5620229/2024/07/06/george-russell-british-gp-pole-l
 `Mikel Merino headed Spain into the semi-finals - and silenced his dad Miguel. He is the epitome of what this squad is - talented and united`\
 https://nytimes.com/athletic/5619426/2024/07/06/euro-2024-mikel-merino-spain-germany-celebration/
 
-**White House Provided the Questions in Advance for Biden’s Radio Interviews**\
+**Biden Aides Provided Questions in Advance for His Radio Interviews**\
 `The host of “The Source” on WURD in Philadelphia said the president’s aides provided her with a list of eight questions to choose from.`\
 https://nytimes.com/2024/07/06/us/politics/biden-radio-interviews-questions.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/02/opinion/thepoint/congenital-liar-safire-bide
 **Tour de France cyclist fined for kissing wife and son**\
 `The smooch came in a cinematic moment as Bernard pushed up a steep hill surrounded by hundreds of friends and family members.`\
 https://nytimes.com/athletic/5620040/2024/07/06/tour-de-france-cyclist-fined-kiss/
-
-**With his candidacy on the line, Biden will visit Pennsylvania.**\
-`President Biden sat for an interview with ABC News and campaigned in Wisconsin on Friday, part of a critical post-debate stretch for him after a rocky performance.`\
-https://nytimes.com/live/2024/07/06/us/biden-trump-election/with-his-candidacy-on-the-line-biden-is-returning-to-pennsylvania
 
