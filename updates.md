@@ -1,3 +1,7 @@
+**Judge Delays Some Deadlines in Trump Classified Documents Case**\
+`The postponement was likely to cause only minor delays to the case, which has already slowed to a crawl with Judge Aileen Cannon’s previous decisions.`\
+https://nytimes.com/2024/07/06/us/politics/trump-classified-documents-case-delay.html
+
 **Hamas’s Cease-Fire Proposal Includes a Familiar Sticking Point**\
 `Hamas wants assurances that Israel won’t restart the war after some hostages come home. Israel says it needs the option.`\
 https://nytimes.com/2024/07/06/world/middleeast/israel-hamas-cease-fire-proposal.html

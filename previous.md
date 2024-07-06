@@ -1,3 +1,7 @@
+**Judge Delays Some Deadlines in Trump Classified Documents Case**\
+`The postponement was likely to cause only minor delays to the case, which has already slowed to a crawl with Judge Aileen Cannon’s previous decisions.`\
+https://nytimes.com/2024/07/06/us/politics/trump-classified-documents-case-delay.html
+
 **Hamas’s Cease-Fire Proposal Includes a Familiar Sticking Point**\
 `Hamas wants assurances that Israel won’t restart the war after some hostages come home. Israel says it needs the option.`\
 https://nytimes.com/2024/07/06/world/middleeast/israel-hamas-cease-fire-proposal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5620165/2024/07/06/trajan-langdon-pistons-cade-cunn
 **Vic Seixas, Winner of 15 Grand Slam Tennis Titles, Dies at 100**\
 `Once declared “the face of American tennis,” he was ranked among the leading players in the United States from the 1940s to the ’60s.`\
 https://nytimes.com/2024/07/06/sports/tennis/vic-seixas-dead.html
-
-**Spain's Pedri out of Euro 2024 with left knee injury**\
-`Spain midfielder Pedri has been ruled out of the rest of the European Championship after suffering a left knee injury.`\
-https://nytimes.com/athletic/5620151/2024/07/06/pedri-injury-spain-euro-2024/
 
