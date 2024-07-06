@@ -1,3 +1,11 @@
+**Wayne S. Smith, a Leading Critic of the Embargo on Cuba, Dies at 91**\
+`A former State Department official, he resigned in protest in 1982 over Cuba policy, then spent decades trying to rebuild relations with the island nation.`\
+https://nytimes.com/2024/07/06/world/americas/wayne-s-smith-dead.html
+
+**Mythical Sword’s Disappearance Brings Mystery to French Village**\
+`Legend says the Durandal sword had been stuck in a French hillside for nearly 1,300 years. When it went missing in June, an investigation to find France’s Excalibur began.`\
+https://nytimes.com/2024/07/06/world/europe/rocamadour-excalibur-durandal-missing.html
+
 **NHL free-agency report card: Grades for each team’s early offseason moves**\
 `Five days into NHL free agency, the list of impact players remaining on the market is … not lengthy. How's your favorite team doing so far?`\
 https://nytimes.com/athletic/5618498/2024/07/06/nhl-free-agency-grades-every-team-2024/
