@@ -1,40 +1,40 @@
-**Amusement Park**\
-`A trip to some of the happiest places on Earth.`\
-https://nytimes.com/2024/07/06/podcasts/amusement-park-this-american-life-nyt-audio.html
+**Leicester sign De Cordova-Reid on free transfer**\
+`Leicester City have completed the signing of Bobby De Cordova-Reid on a free transfer.`\
+https://nytimes.com/athletic/5619165/2024/07/06/leicester-transfers-de-cordova-reid/
 
-**Adidas renames 11pro boots after Toni Kroos**\
-`Adidas has renamed its 11pro boots after Germany midfielder Toni Kroos.`\
-https://nytimes.com/athletic/5619864/2024/07/06/adidas-11pro-toni-kroos-boots/
+**Joe Biden’s Blind Spot**\
+`The president just doesn’t see that it’s time to take the win.`\
+https://nytimes.com/2024/07/06/opinion/joe-biden-power.html
 
-**Britain’s New Leader Is About to Get a Crash Course in Statecraft**\
-`Prime Minister Keir Starmer will travel to a NATO summit this coming week, where he will represent a rare point of centrist stability among unsettled allies.`\
-https://nytimes.com/2024/07/06/world/europe/keir-starmer-uk-labour.html
+**President Biden and the Lord Almighty**\
+`The country is interested in the future. Biden keeps talking about the past.`\
+https://nytimes.com/live/2024/07/02/opinion/thepoint/biden-interview
 
-**The 1990s synthesized dance track that is the unofficial anthem of Copa America**\
-`'Do do do do do, dee dee do do do do do.' You know how it goes - and it's become synonymous with many sporting events`\
-https://nytimes.com/athletic/5618920/2024/07/06/copa-america-sandstorm-unofficial-anthem/
+**Meet the Followers of Martin Luther King Jr. in the West Bank**\
+`These Palestinians say Arabs and Jews can live in peace.`\
+https://nytimes.com/2024/07/06/opinion/israeli-palestinian-peace-west-bank.html
 
-**Max Kilman to West Ham: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate Max Kilman's move to to West Ham`\
-https://nytimes.com/athletic/5616548/2024/07/06/max-kilman-west-ham-transfer-ratings/
+**Why Biden Is Unlikely to Defy the Naysayers**\
+`Why Trump’s refusal to quit in 2016 won’t work for the incumbent in 2024.`\
+https://nytimes.com/2024/07/06/opinion/biden-2024-trump-2016.html
 
-**This could be Endrick's moment**\
-`The 17-year-old is set to start against Uruguay in the Copa America quarter-final`\
-https://nytimes.com/athletic/5619140/2024/07/06/brazil-vinicius-endrick-uruguay-moment/
+**Welcome to Stucktopia**\
+`Pop culture is serving up dark visions full of labyrinthine bunkers, endless loops and characters who feel hopelessly mired. Welcome to the stucktopia.`\
+https://nytimes.com/2024/07/06/opinion/sci-fi-dystopia-pop-culture.html
 
-**Twins hitting coach David Popkins stays measured despite team's red-hot offense**\
-`“You realize it's part of the gig,” Popkins said. “Things are going bad, you're the guy that takes the blame."`\
-https://nytimes.com/athletic/5619511/2024/07/06/twins-hitting-coach-david-popkins/
+**Dear Elites (of Both Parties), the People Will Take It From Here, Thanks**\
+`A revolution is about to swallow U.S. politics, and it’s based on the simplest and most radical theory of power.`\
+https://nytimes.com/2024/07/06/opinion/populism-power-elites-politics.html
 
-**Cubs' Pete Crow-Armstrong is right on track and not close to where he wants to be **\
-`The 22-year-old center fielder isn't hitting as well as he would like, but his defense and base running have helped the Cubs.`\
-https://nytimes.com/athletic/5619291/2024/07/06/cubs-pete-crow-armstrong/
+**Slice, slice baby - Why the Wimbledon grass rewards the most annoying shot in tennis**\
+`Skidding, knifing, and spinning at players' ankles, the slice is a weapon that any player with dreams of winning Wimbledon needs`\
+https://nytimes.com/athletic/5617262/2024/07/06/tennis-slice-shot-backhand-wimbledon-grass/
 
-**Facing New ‘Greenwashing’ Law, an Oil Industry Website Goes Dark**\
-`Oil sands companies pushing a carbon capture project shut down their website after a law banning misleading environmental claims was passed.`\
-https://nytimes.com/2024/07/06/world/canada/canada-greenwashing-oil-sands.html
+**Our Society Is Losing Its Anchors**\
+`To make sense of a decaying America, Thomas L. Friedman talks to a trusted friend about the mangrove tree.`\
+https://nytimes.com/2024/07/06/opinion/society-decay-america.html
 
-**Wordle Review No. 1,114, July 7, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/06/crosswords/wordle-review-1114.html
+**An Amateur Softball Team Changed My Life**\
+`Rec league sports are a cure for much of what ails us. Really.`\
+https://nytimes.com/2024/07/06/opinion/rec-league-sports-loneliness-inactivity.html
 
