@@ -1,3 +1,7 @@
+**Sergio Pérez tests Red Bull's faith with mistakes, McLaren on the rise**\
+`Pérez's latest qualifying mistake raises questions about his job security at Red Bull, which is known for making tough driver decisions.`\
+https://nytimes.com/athletic/5620023/2024/07/06/sergio-perez-red-bull-f1/
+
 **Edwards: Under Trajan Langdon, the Pistons appear to be in good hands**\
 `Langdon's patience is a welcomed trait in Detroit, and no one may be more thankful than Cade Cunningham.`\
 https://nytimes.com/athletic/5620165/2024/07/06/trajan-langdon-pistons-cade-cunningham/

@@ -1,3 +1,7 @@
+**Sergio Pérez tests Red Bull's faith with mistakes, McLaren on the rise**\
+`Pérez's latest qualifying mistake raises questions about his job security at Red Bull, which is known for making tough driver decisions.`\
+https://nytimes.com/athletic/5620023/2024/07/06/sergio-perez-red-bull-f1/
+
 **Edwards: Under Trajan Langdon, the Pistons appear to be in good hands**\
 `Langdon's patience is a welcomed trait in Detroit, and no one may be more thankful than Cade Cunningham.`\
 https://nytimes.com/athletic/5620165/2024/07/06/trajan-langdon-pistons-cade-cunningham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5614184/2024/07/06/lionel-messi-lamine-yamal-photo-
 **Sykes Faces Challenge in Ohio as Black Democrats Push to Hold White Districts**\
 `Representative Emilia Sykes is one of only a few Black Democrats in Congress who don’t resemble most of their constituents, and whose political survival this year will help determine which party controls the House.`\
 https://nytimes.com/2024/07/06/us/politics/emilia-sykes-ohio-black-democrat.html
-
-**Atlanta's Almada completes MLS-record move to Botafogo**\
-`Thiago Almada has completed his MLS-record transfer from Atlanta United to Brazilian side Botafago.`\
-https://nytimes.com/athletic/5620130/2024/07/06/thiago-almada-botafogo-transfer-eagle-football/
 
