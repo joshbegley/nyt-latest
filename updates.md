@@ -1,3 +1,7 @@
+**The Authors Call It Fiction, but in These 2 Novels the Facts Don’t Lie**\
+`A philandering father; a literary affair.`\
+https://nytimes.com/2024/07/06/books/read-like-wind-recommendations-autobiographical-fiction.html
+
 **Jose Miranda sets Twins record with 10th straight hit**\
 `Miranda went 4-for-4 to establish a club record with hits in 10 straight plate appearances, besting a record previously held by three Twins.`\
 https://nytimes.com/athletic/5619910/2024/07/06/jose-miranda-twins-record-10-straight-hits/
