@@ -1,3 +1,7 @@
+**With His Candidacy on the Line, Biden is Returning to Pennsylvania**\
+`President Biden sat for an interview with ABC News and campaigned in Wisconsin on Friday, part of a critical post-debate stretch for him after a rocky performance.`\
+https://nytimes.com/live/2024/07/06/us/biden-trump-election/with-his-candidacy-on-the-line-biden-is-returning-to-pennsylvania
+
 **Raducanu withdraws from Wimbledon mixed doubles match with Murray**\
 `Emma Raducanu has pulled out of her mixed doubles match with Andy Murray.`\
 https://nytimes.com/athletic/5620089/2024/07/06/emma-raducanu-andy-murray-wimbledon-doubles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5619910/2024/07/06/jose-miranda-twins-record-10-str
 **Leicester sign De Cordova-Reid on free transfer**\
 `Leicester City have completed the signing of Bobby De Cordova-Reid on a free transfer.`\
 https://nytimes.com/athletic/5619165/2024/07/06/leicester-transfers-de-cordova-reid/
-
-**Joe Biden’s Blind Spot**\
-`The president just doesn’t see that it’s time to take the win.`\
-https://nytimes.com/2024/07/06/opinion/joe-biden-power.html
 
