@@ -1,3 +1,7 @@
+**Atlanta's Almada completes MLS-record move to Botafogo**\
+`Thiago Almada has completed his MLS-record transfer from Atlanta United to Brazilian side Botafago.`\
+https://nytimes.com/athletic/5620130/2024/07/06/thiago-almada-botafo-transfer-eagle-football/
+
 **On Congenital Liars, Then and Now**\
 `Maybe the term didn’t fit Hillary Clinton, but it’s perfect for Trump.`\
 https://nytimes.com/live/2024/07/02/opinion/thepoint/congenital-liar-safire-biden
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5619948/2024/07/06/carlos-miguel-transfer-nottingha
 **Angels’ Reid Detmers discusses demotion and potential call-up: ‘I feel like my old self again'**\
 `Detmers was the Angels' best pitcher and has thrown a no-hitter. But they demoted him and he’s unsure how he still fits in their plans.`\
 https://nytimes.com/athletic/5619393/2024/07/06/angels-reid-detmers-demotion/
-
-**The Authors Call It Fiction, but in These 2 Novels the Facts Don’t Lie**\
-`A philandering father; a literary affair.`\
-https://nytimes.com/2024/07/06/books/read-like-wind-recommendations-autobiographical-fiction.html
 
