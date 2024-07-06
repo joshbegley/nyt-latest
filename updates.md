@@ -1,3 +1,7 @@
+**Saka 'embraced' penalty pressure as England beat Switzerland**\
+`Bukayo Saka said he &#8220;embraced&#8221; the opportunity to banish his penalty shootout demons after England’s players held their nerve to reach the European Championship semi-final.`\
+https://nytimes.com/athletic/5620782/2024/07/06/bukayo-saka-penalty-england-switzerland/
+
 **Biden Cancels Speech to Teachers After Union’s Staff Strikes**\
 `Employees of the National Education Association picketed the site of the group’s annual convention after a walkout over issues including overtime pay.`\
 https://nytimes.com/2024/07/06/business/nea-staff-strike-convention-biden-speech.html
