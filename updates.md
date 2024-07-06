@@ -1,3 +1,7 @@
+**Euro 2024 day 23: 'England's 'cheat code' water bottle and can Dutch go all the way?**\
+`The major talking points on the second day of quarter-finals at Euro 2024`\
+https://nytimes.com/athletic/5620295/2024/07/06/euro-2024-day-23-england-bottle/
+
 **Netherlands 2 Turkey 1 - The Briefing: Weghorst's impact, Guler shines and Dutch comeback courage**\
 `Tim Spiers, Jordan Campbell and Liam Tharme analyse the key talking points from the Netherlands' 2-1 Turkey at Euro 2024`\
 https://nytimes.com/athletic/5618000/2024/07/06/netherlands-2-turkey-1-euro-2024-briefing/
