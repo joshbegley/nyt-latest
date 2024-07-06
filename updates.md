@@ -1,3 +1,15 @@
+**Van de Beek close to Girona move**\
+`Donny van de Beek is close to a move from Manchester United to Girona.`\
+https://nytimes.com/athletic/5620292/2024/07/06/manchester-united-donny-van-de-beek-transfer/
+
+**Yoshihiro Uchida, Peerless Judo Coach, Is Dead at 104**\
+`A coach at San Jose State for seven decades, he helped establish the sport in America and trained generations of athletes, many of whom went to the Olympics.`\
+https://nytimes.com/2024/07/06/sports/yoshihiro-uchida-dead.html
+
+**The latest on Tyus Jones' future, the value of Malcolm Brogdon and more: Wizards mailbag**\
+`We answer your questions about the Wizards' offseason moves, the status of Tyus Jones and what the team still could do. `\
+https://nytimes.com/athletic/5620487/2024/07/06/tyus-jones-status-malcolm-brogdon-wizards-updates/
+
 **NASCAR Chicago Street Race starting lineup: Kyle Larson takes pole position**\
 `CHICAGO — Kyle Larson continues demonstrating why he&#8217;s considered one of the world&#8217;s most talented racing drivers.`\
 https://nytimes.com/athletic/5620622/2024/07/06/nascar-chicago-street-race-starting-lineup-kyle-larson-takes-pole-position/

@@ -1,3 +1,15 @@
+**Van de Beek close to Girona move**\
+`Donny van de Beek is close to a move from Manchester United to Girona.`\
+https://nytimes.com/athletic/5620292/2024/07/06/manchester-united-donny-van-de-beek-transfer/
+
+**Yoshihiro Uchida, Peerless Judo Coach, Is Dead at 104**\
+`A coach at San Jose State for seven decades, he helped establish the sport in America and trained generations of athletes, many of whom went to the Olympics.`\
+https://nytimes.com/2024/07/06/sports/yoshihiro-uchida-dead.html
+
+**The latest on Tyus Jones' future, the value of Malcolm Brogdon and more: Wizards mailbag**\
+`We answer your questions about the Wizards' offseason moves, the status of Tyus Jones and what the team still could do. `\
+https://nytimes.com/athletic/5620487/2024/07/06/tyus-jones-status-malcolm-brogdon-wizards-updates/
+
 **NASCAR Chicago Street Race starting lineup: Kyle Larson takes pole position**\
 `CHICAGO — Kyle Larson continues demonstrating why he&#8217;s considered one of the world&#8217;s most talented racing drivers.`\
 https://nytimes.com/athletic/5620622/2024/07/06/nascar-chicago-street-race-starting-lineup-kyle-larson-takes-pole-position/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5603475/2024/07/06/miles-bridges-nba-free-agency/
 **Caitlin Clark becomes first rookie to record triple-double**\
 `Clark became a regular triple-double machine during her time at Iowa, tallying a Big Ten record (men's or women's) 17 triple-doubles.`\
 https://nytimes.com/athletic/5620625/2024/07/06/caitlin-clark-triple-double-rookie-wnba-history/
-
-**$235,000 Settlement Is Reached in Police Raid of a Kansas Newspaper**\
-`A former reporter of The Marion County Record has settled a lawsuit following a raid on the weekly newspaper last year that garnered widespread attention.`\
-https://nytimes.com/2024/07/06/business/media/marion-county-record-raid-settlement-kansas.html
-
-**England 1 Switzerland 1 (AET: 5-3 on penalties): Saka stars, ice-cool spot kicks, system success?**\
-`England beat Switzlerland 5-3 on penalties in a nervy quarter-final of Euro 2024. Our writers bring you the key talking points.`\
-https://nytimes.com/athletic/5617999/2024/07/06/england-1-switzerland-1-penalties-result-saka/
-
-**What the Interview With Biden Showed**\
-`Readers aren’t mollified by the president’s answers to questions from George Stephanopoulos.`\
-https://nytimes.com/2024/07/06/opinion/letters/joe-biden-interview.html
 
