@@ -1,3 +1,11 @@
+**Winner, Winner, Tandoori Chicken Dinner**\
+`1. Marinate chicken. 2. Roast chicken. 3. Congratulate yourself on a fantastic meal.`\
+https://nytimes.com/2024/07/06/dining/tandoori-chicken-dinner-recipe.html
+
+**Raducanu withdraws from Wimbledon mixed doubles match with Murray**\
+`Andy Murray has played his last match at Wimbledon, after Emma Raducanu pulled out of their mixed doubles match with stiffness in her wrist.`\
+https://nytimes.com/athletic/5620089/2024/07/06/emma-raducanu-andy-murray-wimbledon-doubles/
+
 **The story behind the viral photos of Lionel Messi and a baby Lamine Yamal**\
 `The man who took the viral photos of Messi meeting a baby Yamal explains how two Barcelona stars from different generations met in 2007`\
 https://nytimes.com/athletic/5614184/2024/07/06/lionel-messi-lamine-yamal-photo-barcelona/
