@@ -1,3 +1,7 @@
+**England are not convincing, but who cares? It's time to just enjoy the ride**\
+`'HMS Gazball' keeps sailing on despite almost being sunk multiple times - but do performances even matter now?`\
+https://nytimes.com/athletic/5618269/2024/07/06/england-euro-2024-southgate/
+
 **Euro 2024 day 23: 'England's 'cheat code' water bottle and can Dutch go all the way?**\
 `The major talking points on the second day of quarter-finals at Euro 2024`\
 https://nytimes.com/athletic/5620295/2024/07/06/euro-2024-day-23-england-bottle/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/06/sports/yoshihiro-uchida-dead.html
 **The latest on Tyus Jones' future, the value of Malcolm Brogdon and more: Wizards mailbag**\
 `We answer your questions about the Wizards' offseason moves, the status of Tyus Jones and what the team still could do. `\
 https://nytimes.com/athletic/5620487/2024/07/06/tyus-jones-status-malcolm-brogdon-wizards-updates/
-
-**Twins' Jose Miranda ties MLB record with hits in 12 straight at-bats**\
-`During the 12-for-12 streak, Miranda raised his batting average from .294 to .329.`\
-https://nytimes.com/athletic/5620741/2024/07/06/jose-miranda-mlb-record-consecutive-hits-twins/
 
