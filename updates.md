@@ -1,3 +1,7 @@
+**Some of Biden’s Upcoming Fund-Raising Events Face New Uncertainty**\
+`Plans for a late July fund-raiser in Wisconsin are now off, and it’s unclear whether another event in Texas will proceed, following President Biden’s disastrous debate performance.`\
+https://nytimes.com/2024/07/05/us/politics/biden-fund-raising-campaign.html
+
 **Some of Biden’s upcoming fund-raising events face new uncertainty.**\
 `Plans for a late July fund-raiser in Wisconsin are now off, and it’s unclear whether another event in Texas will proceed, following President Biden’s disastrous debate performance.`\
 https://nytimes.com/2024/07/05/us/politics/some-of-bidens-upcoming-fund-raising-events-face-new-uncertainty.html
