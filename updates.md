@@ -1,3 +1,11 @@
+**Sykes Faces Challenge in Ohio as Black Democrats Push to Hold White Districts**\
+`Representative Emilia Sykes is one of only a few Black Democrats in Congress who don’t resemble most of their constituents, and whose political survival this year will help determine which party controls the House.`\
+https://nytimes.com/2024/07/06/us/politics/emilia-sykes-ohio-black-democrat.html
+
+**With his candidacy on the line, Biden will visit Pennsylvania.**\
+`President Biden sat for an interview with ABC News and campaigned in Wisconsin on Friday, part of a critical post-debate stretch for him after a rocky performance.`\
+https://nytimes.com/live/2024/07/06/us/biden-trump-election/with-his-candidacy-on-the-line-biden-is-returning-to-pennsylvania
+
 **With His Candidacy on the Line, Biden Will Visit Pennsylvania**\
 `President Biden sat for an interview with ABC News and campaigned in Wisconsin on Friday, part of a critical post-debate stretch for him after a rocky performance.`\
 https://nytimes.com/live/2024/07/06/us/biden-trump-election/with-his-candidacy-on-the-line-biden-is-returning-to-pennsylvania
