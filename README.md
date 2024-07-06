@@ -1,3 +1,7 @@
+**Andy Murray: The benevolent thorn in the side that tennis badly needed**\
+`From the best players of his era to assumptions about the sport, Andy Murray is the benevolent thorn in the side that tennis needed`\
+https://nytimes.com/athletic/5582264/2024/07/06/andy-murray-tennis-impact-record/
+
 **Vikings rookie CB Khyree Jackson dies in car accident**\
 `Jackson was picked by the Vikings in the fourth round of April's draft. He arrived in Minnesota by way of Oregon.`\
 https://nytimes.com/athletic/5620288/2024/07/06/khyree-jackson-died-car-accident/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5620229/2024/07/06/george-russell-british-gp-pole-l
 **Spain’s unlikely Euro 2024 hero Mikel Merino - and the story of his special celebration**\
 `Mikel Merino headed Spain into the semi-finals - and silenced his dad Miguel. He is the epitome of what this squad is - talented and united`\
 https://nytimes.com/athletic/5619426/2024/07/06/euro-2024-mikel-merino-spain-germany-celebration/
-
-**Biden Aides Provided Questions in Advance for His Radio Interviews**\
-`The host of “The Source” on WURD in Philadelphia said officials provided her with a list of eight questions to choose from. The Biden campaign said its staff did not condition the interviews on them.`\
-https://nytimes.com/2024/07/06/us/politics/biden-radio-interviews-questions.html
 
