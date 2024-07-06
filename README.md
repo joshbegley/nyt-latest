@@ -1,3 +1,7 @@
+**Kilman joins West Ham from Wolves**\
+`West Ham United have completed the signing of Max Kilman from Wolverhampton Wanderers.`\
+https://nytimes.com/athletic/5616887/2024/07/06/max-kilman-west-ham/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/07/06/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5619656/2024/07/06/blue-jays-mariners-trade-partner
 **With triumphs big and small, Phillies wield 10-game lead over Braves**\
 `An 8-6 Phillies win was not the most crucial of the season, but it boosted the gap between Philadelphia and Atlanta to 10 games. `\
 https://nytimes.com/athletic/5619642/2024/07/06/phillies-braves-nl-east-johan-rojas/
-
-**Crisis? What Crisis? Biden Rejects Democratic Pessimism**\
-`After last week’s devastating debate performance, the president’s prime-time interview with ABC News was an exercise in not just damage control but reality control.`\
-https://nytimes.com/2024/07/06/us/politics/biden-rejects-democratic-pessimism.html
 
