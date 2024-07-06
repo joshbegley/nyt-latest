@@ -1,3 +1,7 @@
+**With His Candidacy on the Line, Biden is Returning to Pennsylvania**\
+`President Biden sat for an interview with ABC News and campaigned in Wisconsin on Friday, part of a critical post-debate stretch for him after a rocky performance.`\
+https://nytimes.com/live/2024/07/06/us/biden-trump-election/with-his-candidacy-on-the-line-biden-is-returning-to-pennsylvania
+
 **Raducanu withdraws from Wimbledon mixed doubles match with Murray**\
 `Emma Raducanu has pulled out of her mixed doubles match with Andy Murray.`\
 https://nytimes.com/athletic/5620089/2024/07/06/emma-raducanu-andy-murray-wimbledon-doubles/

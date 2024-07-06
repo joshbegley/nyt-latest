@@ -1,4 +1,8 @@
-**With His Candidacy on the Line, Biden is Returning to Pennsylvania**\
+**Tour de France cyclist fined for kissing wife and son**\
+`The smooch came in a cinematic moment as Bernard pushed up a steep hill surrounded by hundreds of friends and family members.`\
+https://nytimes.com/athletic/5620040/2024/07/06/tour-de-france-cyclist-fined-kiss/
+
+**With His Candidacy on the Line, Biden Will Return to Pennsylvania**\
 `President Biden sat for an interview with ABC News and campaigned in Wisconsin on Friday, part of a critical post-debate stretch for him after a rocky performance.`\
 https://nytimes.com/live/2024/07/06/us/biden-trump-election/with-his-candidacy-on-the-line-biden-is-returning-to-pennsylvania
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/06/books/read-like-wind-recommendations-autobiograph
 **Jose Miranda sets Twins record with 10th straight hit**\
 `Miranda went 4-for-4 to establish a club record with hits in 10 straight plate appearances, besting a record previously held by three Twins.`\
 https://nytimes.com/athletic/5619910/2024/07/06/jose-miranda-twins-record-10-straight-hits/
-
-**Leicester sign De Cordova-Reid on free transfer**\
-`Leicester City have completed the signing of Bobby De Cordova-Reid on a free transfer.`\
-https://nytimes.com/athletic/5619165/2024/07/06/leicester-transfers-de-cordova-reid/
 
