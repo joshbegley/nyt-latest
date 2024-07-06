@@ -1,3 +1,11 @@
+**Coney Island Drownings Fail to Deter New Yorkers as City Swelters**\
+`Visitors were mostly unaffected by the third and fourth drownings at New York City beaches this season, matching the total number of swimming deaths last summer.`\
+https://nytimes.com/2024/07/06/nyregion/coney-island-beach-drowning.html
+
+**Should Yankees' Ben Rice be the everyday first baseman after his 3-homer day?**\
+`The 25-year-old became the first Yankees rookie to hit three home runs in a game. Should he be a fixture at the top of the lineup?`\
+https://nytimes.com/athletic/5620992/2024/07/06/yankees-ben-rice-three-home-runs/
+
 **England are not convincing, but who cares? It's time to just enjoy the ride**\
 `'HMS Gazball' keeps sailing on despite almost being sunk multiple times - do performances even matter now?`\
 https://nytimes.com/athletic/5618269/2024/07/06/england-euro-2024-southgate/

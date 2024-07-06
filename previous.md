@@ -1,8 +1,12 @@
+**Coney Island Drownings Fail to Deter New Yorkers as City Swelters**\
+`Visitors were mostly unaffected by the third and fourth drownings at New York City beaches this season, matching the total number of swimming deaths last summer.`\
+https://nytimes.com/2024/07/06/nyregion/coney-island-beach-drowning.html
+
 **France’s Snap Election Enters Its Final Hours**\
 `The vote will determine the composition of France’s National Assembly, and the future of President Emmanuel Macron’s second term.`\
 https://nytimes.com/2024/07/06/world/europe/france-parliamentary-election-2024.html
 
-**Should Yankees' Ben Rice be the everyday first baseman after 3-homer day?**\
+**Should Yankees' Ben Rice be the everyday first baseman after his 3-homer day?**\
 `The 25-year-old became the first Yankees rookie to hit three home runs in a game. Should he be a fixture at the top of the lineup?`\
 https://nytimes.com/athletic/5620992/2024/07/06/yankees-ben-rice-three-home-runs/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/06/crosswords/daily-puzzle-2024-07-07.html
 **Much of Western U.S. Is Broiling Under Record-Breaking Heat**\
 `From Oregon to California to Arizona, several cities have seen scorching temperatures in recent days. And there is little relief in sight, forecasters say.`\
 https://nytimes.com/2024/07/06/us/excessive-heat-wave-california-oregon-arizona.html
-
-**England are not convincing, but who cares? It's time to just enjoy the ride**\
-`'HMS Gazball' keeps sailing on despite almost being sunk multiple times - do performances even matter now?`\
-https://nytimes.com/athletic/5618269/2024/07/06/england-euro-2024-southgate/
 
