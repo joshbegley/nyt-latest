@@ -1,3 +1,11 @@
+**Kane 'fine' for Euro 2024 semi after collision with Southgate**\
+`Harry Kane says he will be &#8220;fine&#8221; for England&#8217;s European Championship semi-final on Wednesday.`\
+https://nytimes.com/athletic/5620553/2024/07/06/harry-kane-injury-southgate/
+
+**Fact-Checking Biden’s ABC Interview**\
+`The president defended his debate performance with exaggerations about polling, his recent appearances and his opponent.`\
+https://nytimes.com/2024/07/06/us/politics/biden-abc-interview-fact-check.html
+
 **Stanley Moss, Poet Who Evoked a Troubled World, Dies at 99**\
 `His moving and often painful free-verse observations on friends’ deaths, the Holocaust and other topics won him many devoted fans.`\
 https://nytimes.com/2024/07/06/books/stanley-moss-dead.html
