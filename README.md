@@ -1,3 +1,7 @@
+**Two Teenagers Drown Off Brooklyn Beach**\
+`The girls, ages 17 and 18, went into the water near the Coney Island boardwalk as thunderstorms rolled in. It was the second pair of drownings off city beaches in two weeks.`\
+https://nytimes.com/2024/07/06/nyregion/coney-island-teens-drown.html
+
 **As Blue Jays and Mariners move in different directions, could they match up as trade partners?**\
 `While they’ve developed an on-field rivalry in recent seasons, the Blue Jays' and Mariners’ front offices have combined on trades.`\
 https://nytimes.com/athletic/5619656/2024/07/06/blue-jays-mariners-trade-partners/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5618331/2024/07/06/answering-children-questions-eng
 **Thomas Christiansen: The other ex-Leeds boss making waves at Copa America**\
 `His time at Leeds wasn't a great success, but the story is very different with Panama at the Copa America`\
 https://nytimes.com/athletic/5613859/2024/07/06/thomas-christiansen-panama-copa-america-leeds/
-
-**Ajax players were once the spine of the Dutch team – at Euro 2024 they've fielded only one**\
-`The fall of Ajax has made a big impact on Dutch football and the national team at Euro 2024`\
-https://nytimes.com/athletic/5610614/2024/07/06/ajax-netherlands-players-one/
 
