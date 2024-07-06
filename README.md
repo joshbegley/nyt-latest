@@ -1,3 +1,7 @@
+**The Briefing: Weghorst's impact, Guler shines and Dutch comeback courage**\
+`Tim Spiers, Jordan Campbell and Liam Tharme analyse the key talking points from the Netherland's 2-1 Turkey at Euro 2024`\
+https://nytimes.com/athletic/5618000/2024/07/06/netherlands-2-turkey-1-euro-2024-briefing/
+
 **At a Pennsylvania rally with Newsom, Democrats double down on support for Biden.**\
 `By Kate Selig`\
 https://nytimes.com/live/2024/07/06/us/biden-trump-election/biden-newsom-pennsylvania
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/5620741/2024/07/06/jose-miranda-mlb-record-consecut
 `CHICAGO — Kyle Larson continues demonstrating why he&#8217;s considered one of the world&#8217;s most talented racing drivers.`\
 https://nytimes.com/athletic/5620622/2024/07/06/nascar-chicago-street-race-starting-lineup-kyle-larson-takes-pole-position/
 
-**Kane 'fine' for Euro 2024 semi after collision with Southgate**\
-`Harry Kane says he will be &#8220;fine&#8221; to play in England&#8217;s European Championship semi-final on Wednesday.`\
+**Kane 'fine' for Netherlands semi after collision with Southgate**\
+`Harry Kane says he will be &#8220;fine&#8221; to play in England&#8217;s European Championship semi-final against the Netherlands on Wednesday.`\
 https://nytimes.com/athletic/5620553/2024/07/06/harry-kane-injury-southgate/
-
-**Fact-Checking Biden’s ABC Interview**\
-`The president defended his debate performance with exaggerations about polling, his recent appearances and his opponent.`\
-https://nytimes.com/2024/07/06/us/politics/biden-abc-interview-fact-check.html
 
