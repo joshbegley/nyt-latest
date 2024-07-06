@@ -1,3 +1,7 @@
+**Chelsea sign Sandy Baltimore from PSG**\
+`Chelsea have completed the signing of France forward Sandy Baltimore on a free transfer from Paris Saint-Germain.`\
+https://nytimes.com/athletic/5619833/2024/07/06/chelsea-sandy-baltimore-psg-transfer/
+
 **Juventus sign Lehmann from Villa**\
 `Juventus have completed the signing of Alisha Lehmann from Aston Villa.`\
 https://nytimes.com/athletic/5619820/2024/07/06/alisha-lehmann-juventus-villa-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/06/climate/costco-chicken-bags-sliced-cheese-plastic
 **Your Brain Holds Secrets. Scientists Want to Find Them.**\
 `Many Americans plan to donate their organs for transplants or their bodies for medical science. Few realize that there’s a growing need for their brains, too.`\
 https://nytimes.com/2024/07/06/health/brain-donation.html
-
-**Senate Republicans Are Now in the Mix for Top Posts in a Trump Presidency**\
-`It’s a change from 2016, when House Republicans were the preferred candidates. At least two senators — J.D. Vance and Marco Rubio — are on the short list for the vice president slot.`\
-https://nytimes.com/2024/07/06/us/politics/trump-vice-president-cabinet-vance-rubio-scott.html
 
