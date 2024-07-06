@@ -1,3 +1,7 @@
+**The 1990s synthesized dance track that is the unofficial anthem of Copa America**\
+`'Do do do do do, dee dee do do do do do.' You know how it goes - and it's become synonymous with many sporting events`\
+https://nytimes.com/athletic/5618920/2024/07/06/copa-america-sandstorm-unofficial-anthem/
+
 **Max Kilman to West Ham: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Max Kilman's move to to West Ham`\
 https://nytimes.com/athletic/5616548/2024/07/06/max-kilman-west-ham-transfer-ratings/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/06/briefing/developing-your-taste.html
 **Chelsea sign Sandy Baltimore from PSG**\
 `Chelsea have completed the signing of France forward Sandy Baltimore on a free transfer from Paris Saint-Germain.`\
 https://nytimes.com/athletic/5619833/2024/07/06/chelsea-sandy-baltimore-psg-transfer/
-
-**Juventus sign Lehmann from Villa**\
-`Juventus have completed the signing of Alisha Lehmann from Aston Villa.`\
-https://nytimes.com/athletic/5619820/2024/07/06/alisha-lehmann-juventus-villa-transfer/
 

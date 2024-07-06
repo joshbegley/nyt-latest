@@ -1,3 +1,7 @@
+**The 1990s synthesized dance track that is the unofficial anthem of Copa America**\
+`'Do do do do do, dee dee do do do do do.' You know how it goes - and it's become synonymous with many sporting events`\
+https://nytimes.com/athletic/5618920/2024/07/06/copa-america-sandstorm-unofficial-anthem/
+
 **Max Kilman to West Ham: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Max Kilman's move to to West Ham`\
 https://nytimes.com/athletic/5616548/2024/07/06/max-kilman-west-ham-transfer-ratings/
