@@ -1,3 +1,7 @@
+**Max Kilman to West Ham: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Max Kilman's move to to West Ham`\
+https://nytimes.com/athletic/5616548/2024/07/06/max-kilman-west-ham-transfer-ratings/
+
 **This could be Endrick's moment**\
 `The 17-year-old is set to start against Uruguay in the Copa America quarter-final`\
 https://nytimes.com/athletic/5619140/2024/07/06/brazil-vinicius-endrick-uruguay-moment/

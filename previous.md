@@ -1,3 +1,7 @@
+**Max Kilman to West Ham: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Max Kilman's move to to West Ham`\
+https://nytimes.com/athletic/5616548/2024/07/06/max-kilman-west-ham-transfer-ratings/
+
 **This could be Endrick's moment**\
 `The 17-year-old is set to start against Uruguay in the Copa America quarter-final`\
 https://nytimes.com/athletic/5619140/2024/07/06/brazil-vinicius-endrick-uruguay-moment/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5619833/2024/07/06/chelsea-sandy-baltimore-psg-tran
 **Juventus sign Lehmann from Villa**\
 `Juventus have completed the signing of Alisha Lehmann from Aston Villa.`\
 https://nytimes.com/athletic/5619820/2024/07/06/alisha-lehmann-juventus-villa-transfer/
-
-**What does the Current and Pride's success mean for NWSL?**\
-`The Current and Pride each have a striker in the Golden Boot race.`\
-https://nytimes.com/athletic/5619369/2024/07/06/orlando-pride-kc-current-nwsl-leading-goalscorers/
 
