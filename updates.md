@@ -1,3 +1,15 @@
+**Koeman defends Netherlands: 'People think we don’t have heart... we showed it'**\
+`Ronald Koeman defended his Netherlands side after their comeback victory over Turkey in Saturday’s European Championship quarter-final, saying that “people think we don’t have that heart… but the players showed it.`\
+https://nytimes.com/athletic/5620968/2024/07/06/netherlands-turkey-ronald-koeman/
+
+**Macklin Celebrini signs entry-level contract with Sharks**\
+`The Sharks finished last in the NHL with a 19-54-9 record. Celebrini could make his NHL debut on Oct. 10.`\
+https://nytimes.com/athletic/5620934/2024/07/06/sharks-macklin-celebrini-entry-level-contract/
+
+**England are not convincing, but who cares? It's time to just enjoy the ride**\
+`'HMS Gazball' keeps sailing on despite almost being sunk multiple times - do performances even matter now?`\
+https://nytimes.com/athletic/5618269/2024/07/06/england-euro-2024-southgate/
+
 **LeBron on Lakers drafting Bronny: 'Dream come true'**\
 `"When they announced his name, it was something that was super surreal," LeBron said about Bronny.`\
 https://nytimes.com/athletic/5620876/2024/07/06/lebron-james-bronny-lakers-comments/
