@@ -1,3 +1,7 @@
+**Read the Full Transcript of President Biden’s ABC News Interview**\
+`The conversation between the president and George Stephanopoulos lasted about 20 minutes and aired Friday night.`\
+https://nytimes.com/2024/07/05/us/politics/biden-interview-abc-transcript.html
+
 **Biden Says He Has Not Had a Cognitive Test and Doesn’t Need One**\
 `“Every day I have that test. Everything I do,” President Biden said in his ABC News interview. “Not only am I campaigning, but I’m running the world.”`\
 https://nytimes.com/2024/07/05/us/politics/biden-cognitive-test-abc-interview.html
