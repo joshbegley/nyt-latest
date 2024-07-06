@@ -1,3 +1,11 @@
+**Loyal Democratic Voters React to Biden Interview With Relief, and Despair**\
+`“I tell you, he looked a whole lot better than the debate,” said one voter in Detroit.`\
+https://nytimes.com/2024/07/05/us/politics/biden-democratic-voters-abc-interview.html
+
+**Pirates blast 7 homers in domination over Mets, run out of fireworks**\
+`The Pirates blasted seven home runs en route to a 14-2 clobbering of the Mets.`\
+https://nytimes.com/athletic/5619499/2024/07/05/pirates-mets-fireworks-home-runs/
+
 **:-O**\
 `Evans Clinchy’s puzzle tests our equilibrium.`\
 https://nytimes.com/2024/07/05/crosswords/daily-puzzle-2024-07-06.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5619269/2024/07/05/mikel-merino-frog-leap/
 **Deschamps explains Mbappe substitution during extra-time**\
 `Didier Deschamps has explained his decision to take Kylian Mbappe off during extra-time of France&#8217;s quarter-final with Portugal.`\
 https://nytimes.com/athletic/5619329/2024/07/05/kylian-mbappe-substitution-france-portugal/
-
-**River Surges Over Wisconsin Dam Amid Heavy Rain, Imperiling Small City**\
-`Residents in Manawa, a city in rural Wisconsin, were instructed to seek higher ground as a bulging river flowed over the Manawa Dam.`\
-https://nytimes.com/2024/07/05/us/wisconsin-dam-overflow.html
-
-**Dodgers expected to call up fast-rising prospect Justin Wrobleski**\
-`Wrobleski’s arrival plugs an immediate, short-term hole for an injury-riddled Dodgers rotation.`\
-https://nytimes.com/athletic/5617661/2024/07/05/dodgers-prospect-justin-wrobleski/
 
