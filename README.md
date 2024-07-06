@@ -1,3 +1,7 @@
+**Crisis? What Crisis? Biden Rejects Democratic Pessimism**\
+`After last week’s devastating debate performance, the president’s prime-time interview with ABC News was an exercise in not just damage control but reality control.`\
+https://nytimes.com/2024/07/06/us/politics/biden-rejects-democratic-pessimism.html
+
 **Dissecting Darwin Nunez: From his Liverpool toils to thriving as Uruguay's front man**\
 `The striker laboured at times under Jurgen Klopp but has excelled at Copa America 2024 and should see Arne Slot's arrival as an opportunity`\
 https://nytimes.com/athletic/5615949/2024/07/06/darwin-nunez-liverpool-uruguay-slot/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5617794/2024/07/06/england-switzerland-bingo-card/
 **Demiral's 'wolf' gesture and Turkish football's complicated relationship with Erdogan**\
 `For many in Turkey, there is a strong sense of frustration - at those who have punished Demiral, but also at the player himself`\
 https://nytimes.com/athletic/5618334/2024/07/06/turkey-erdogan-demiral-euro-2024/
-
-**The evolution of Harry Kane's penalty kicks**\
-`How the England striker has evolved to become one of the world's most feared players from the penalty spot`\
-https://nytimes.com/athletic/5559376/2024/07/06/harry-kane-penalties-england-bayern-munich/
 
