@@ -1,3 +1,7 @@
+**Yankees fail to take accountability after embarrassing meltdown against Red Sox**\
+`The Yankees have lost 15 of their last 20 games. Nestor Cortes said he doesn’t think anyone is panicking inside the clubhouse.`\
+https://nytimes.com/athletic/5619546/2024/07/06/yankees-meltdown-red-sox/
+
 **Martinez failed to learn that benching Ronaldo doesn't have to mean the end of the world**\
 `The lack of goals didn't seem to bother Martinez. The limit it placed on his team's potential didn't either. He just kept pushing the button`\
 https://nytimes.com/athletic/5619214/2024/07/06/martinez-ronaldo-portugal-exit-euro-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5619404/2024/07/06/portugal-france-ronaldo-mbappe-s
 **'He looked like a Spartan warrior': When Colombia boss Nestor Lorenzo played for Swindon Town**\
 `In 1990, one of the best international managers in the world right now joined an English second-division side — fresh from a World Cup final`\
 https://nytimes.com/athletic/5618814/2024/07/06/nestor-lorenzo-argentina-colombia-swindon-town/
-
-**Germany are out - and now it's time to wake up**\
-`Hosting Euro 2024 has been such a welcome relief from the worries of real life. Now Germany are out, when will the feeling return?`\
-https://nytimes.com/athletic/5619360/2024/07/06/germany-exit-euro2024-muller/
 
