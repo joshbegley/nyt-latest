@@ -1,3 +1,7 @@
+**Steve Kerr thanks Klay Thompson for '10 incredible years'**\
+`Thompson, a pillar of the Golden State Warriors’ four championships won under Kerr, left the organization.`\
+https://nytimes.com/athletic/5621041/2024/07/06/steve-kerr-klay-thompson-warriors/
+
 **Coney Island Drownings Fail to Deter New Yorkers as City Swelters**\
 `Visitors were mostly unaffected by the third and fourth drownings at New York City beaches this season, matching the total number of swimming deaths last summer.`\
 https://nytimes.com/2024/07/06/nyregion/coney-island-beach-drowning.html
