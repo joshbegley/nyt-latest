@@ -1,3 +1,11 @@
+**Adidas renames 11pro boots after Toni Kroos**\
+`Adidas has renamed its 11pro boots after Germany midfielder Toni Kroos.`\
+https://nytimes.com/athletic/5619864/2024/07/06/adidas-11pro-toni-kroos-boots/
+
+**Britain’s New Leader Is About to Get a Crash Course in Statecraft**\
+`Prime Minister Keir Starmer will travel to a NATO summit this coming week, where he will represent a rare point of centrist stability among unsettled allies.`\
+https://nytimes.com/2024/07/06/world/europe/keir-starmer-uk-labour.html
+
 **The 1990s synthesized dance track that is the unofficial anthem of Copa America**\
 `'Do do do do do, dee dee do do do do do.' You know how it goes - and it's become synonymous with many sporting events`\
 https://nytimes.com/athletic/5618920/2024/07/06/copa-america-sandstorm-unofficial-anthem/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/06/crosswords/wordle-review-1114.html
 **The Connections Companion No. 392, July 7, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/06/crosswords/connections-companion-392.html
-
-**Developing Your Taste**\
-`The meals that we love are informed as much by the experience of eating them as by the flavor of the food itself.`\
-https://nytimes.com/2024/07/06/briefing/developing-your-taste.html
-
-**Chelsea sign Sandy Baltimore from PSG**\
-`Chelsea have completed the signing of France forward Sandy Baltimore on a free transfer from Paris Saint-Germain.`\
-https://nytimes.com/athletic/5619833/2024/07/06/chelsea-sandy-baltimore-psg-transfer/
 
