@@ -1,3 +1,7 @@
+**England are not convincing, but who cares? It's time to just enjoy the ride**\
+`'HMS Gazball' keeps sailing on despite almost being sunk multiple times - do performances even matter now?`\
+https://nytimes.com/athletic/5618269/2024/07/06/england-euro-2024-southgate/
+
 **France’s Snap Election Enters Its Final Hours**\
 `The vote will determine the composition of France’s National Assembly, and the future of President Emmanuel Macron’s second term.`\
 https://nytimes.com/2024/07/06/world/europe/france-parliamentary-election-2024.html

@@ -6,10 +6,6 @@ https://nytimes.com/2024/07/06/world/europe/france-parliamentary-election-2024.h
 `The 25-year-old became the first Yankees rookie to hit three home runs in a game. Should he be a fixture at the top of the lineup?`\
 https://nytimes.com/athletic/5620992/2024/07/06/yankees-ben-rice-three-home-runs/
 
-**Levshunov signing entry-level contract with Blackhawks**\
-`Arytom Levshunov, the second pick in the 2024 NHL draft, is turning pro and will not return to Michigan State.`\
-https://nytimes.com/athletic/5620990/2024/07/06/artyom-levshunov-signing-blackhawks/
-
 **Bronny James scores 4 points in NBA Summer League debut**\
 `James finished with four points, two assists, two rebounds and a steal in 22 minutes.`\
 https://nytimes.com/athletic/5620944/2024/07/06/bronny-james-summer-league-debut-lakers-kings/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/07/06/crosswords/daily-puzzle-2024-07-07.html
 **Much of Western U.S. Is Broiling Under Record-Breaking Heat**\
 `From Oregon to California to Arizona, several cities have seen scorching temperatures in recent days. And there is little relief in sight, forecasters say.`\
 https://nytimes.com/2024/07/06/us/excessive-heat-wave-california-oregon-arizona.html
+
+**England are not convincing, but who cares? It's time to just enjoy the ride**\
+`'HMS Gazball' keeps sailing on despite almost being sunk multiple times - do performances even matter now?`\
+https://nytimes.com/athletic/5618269/2024/07/06/england-euro-2024-southgate/
 
