@@ -1,3 +1,11 @@
+**Why do Copa America games go straight to penalty kicks?**\
+`Copa America 2024 has reached the business end of the tournament — which means one or two different rules than you might be used to`\
+https://nytimes.com/athletic/5619559/2024/07/05/copa-america-penalty-kicks-extra-time-format/
+
+**A Defiant Biden Says Only the ‘Lord Almighty’ Could Drive Him From the Race**\
+`President Biden dismissed concerns about his age, his mental acuity and polls showing him losing his re-election bid.`\
+https://nytimes.com/2024/07/05/us/politics/biden-interview-stephanopoulos-abc.html
+
 **Braves' Grant Holmes looks like Kenny Powers, but his performance is no laughing matter**\
 `Holmes' wife helped him with nutrition. He has since lost 20 pounds, getting stronger and leaner with help from a diet his wife designed.`\
 https://nytimes.com/athletic/5619496/2024/07/05/braves-grant-holmes-kenny-powers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5619499/2024/07/05/pirates-mets-fireworks-home-runs
 **:-O**\
 `Evans Clinchy’s puzzle tests our equilibrium.`\
 https://nytimes.com/2024/07/05/crosswords/daily-puzzle-2024-07-06.html
-
-**Wave president Jill Ellis denies allegations of workplace abuse**\
-`Ellis has denied a former employee’s allegations of abuse at the club, saying they are “false accusations” which are “personally damaging."`\
-https://nytimes.com/athletic/5619476/2024/07/05/wave-president-jill-ellis-allegations/
-
-**Biden urges Americans to watch him at a NATO summit next week in Washington.**\
-`By David E. Sanger`\
-https://nytimes.com/live/2024/07/05/us/biden-trump-2024-election/biden-urges-americans-to-watch-him-at-a-nato-summit-next-week-in-washington
 
