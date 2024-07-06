@@ -1,3 +1,7 @@
+**Takeaways: Canada wins penalty shootout to advance to Copa America semifinal**\
+`Canada advances for a rematch against Argentina and Lionel Messi.`\
+https://nytimes.com/athletic/5619544/2024/07/05/canada-venezuela-copa-america-penalty-shootout/
+
 **Why do Copa America games go straight to penalty kicks?**\
 `Copa America 2024 has reached the business end of the tournament — which means one or two different rules than you might be used to`\
 https://nytimes.com/athletic/5619559/2024/07/05/copa-america-penalty-kicks-extra-time-format/

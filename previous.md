@@ -1,3 +1,7 @@
+**Takeaways: Canada wins penalty shootout to advance to Copa America semifinal**\
+`Canada advances for a rematch against Argentina and Lionel Messi.`\
+https://nytimes.com/athletic/5619544/2024/07/05/canada-venezuela-copa-america-penalty-shootout/
+
 **Why do Copa America games go straight to penalty kicks?**\
 `Copa America 2024 has reached the business end of the tournament — which means one or two different rules than you might be used to`\
 https://nytimes.com/athletic/5619559/2024/07/05/copa-america-penalty-kicks-extra-time-format/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/05/us/politics/biden-democratic-voters-abc-interview
 **Pirates blast 7 homers in domination over Mets, run out of fireworks**\
 `The Pirates blasted seven home runs en route to a 14-2 clobbering of the Mets.`\
 https://nytimes.com/athletic/5619499/2024/07/05/pirates-mets-fireworks-home-runs/
-
-**:-O**\
-`Evans Clinchy’s puzzle tests our equilibrium.`\
-https://nytimes.com/2024/07/05/crosswords/daily-puzzle-2024-07-06.html
 
