@@ -1,3 +1,7 @@
+**Stanley Moss, Poet Who Evoked a Troubled World, Dies at 99**\
+`His moving and often painful free-verse observations on friends’ deaths, the Holocaust and other topics won him many devoted fans.`\
+https://nytimes.com/2024/07/06/books/stanley-moss-dead.html
+
 **4 Takeaways From Iran’s Presidential Runoff**\
 `The victory of the reformist candidate, Masoud Pezeshkian, is expected to bring change, but to what extent is still an open question.`\
 https://nytimes.com/2024/07/06/world/middleeast/iran-president-election-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5620459/2024/07/06/f1-british-gp-preview/
 **As Biden Digs In, More Supporters Look to Push Him Out**\
 `Interviews with dozens of Democrats illustrated an imminent clash between a defiant president and those who question his ability to win. Many rank-and-file party officials remain supportive.`\
 https://nytimes.com/2024/07/06/us/politics/biden-campaign-democrats.html
-
-**World No 1 Swiatek out of Wimbledon after defeat to Putintseva**\
-`Iga Swiatek, the world No 1 who has never won Wimbledon, has been eliminated from this year&#8217;s tournament.`\
-https://nytimes.com/athletic/5620479/2024/07/06/iga-swiatek-wimbledon-record-yulia-putintseva/
 
