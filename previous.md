@@ -1,3 +1,11 @@
+**George Russell takes British GP pole, leads all-British top three in qualifying**\
+`Russell will lead countrymen Lewis Hamilton and Lando Norris to start the British GP on Sunday. `\
+https://nytimes.com/athletic/5620229/2024/07/06/george-russell-british-gp-pole-lewis-hamilton-lando-norris/
+
+**Spain’s unlikely Euro 2024 hero Mikel Merino - and the story of his special celebration**\
+`Mikel Merino headed Spain into the semi-finals - and silenced his dad Miguel. He is the epitome of what this squad is - talented and united`\
+https://nytimes.com/athletic/5619426/2024/07/06/euro-2024-mikel-merino-spain-germany-celebration/
+
 **White House Provided the Questions in Advance for Biden’s Radio Interviews**\
 `The host of “The Source” on WURD in Philadelphia said the president’s aides provided her with a list of eight questions to choose from.`\
 https://nytimes.com/2024/07/06/us/politics/biden-radio-interviews-questions.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5620040/2024/07/06/tour-de-france-cyclist-fined-kis
 **With his candidacy on the line, Biden will visit Pennsylvania.**\
 `President Biden sat for an interview with ABC News and campaigned in Wisconsin on Friday, part of a critical post-debate stretch for him after a rocky performance.`\
 https://nytimes.com/live/2024/07/06/us/biden-trump-election/with-his-candidacy-on-the-line-biden-is-returning-to-pennsylvania
-
-**Raducanu withdraws from Wimbledon mixed doubles match with Murray**\
-`Andy Murray has played his last match at Wimbledon, after Emma Raducanu pulled out of their mixed doubles match with stiffness in her wrist.`\
-https://nytimes.com/athletic/5620089/2024/07/06/emma-raducanu-andy-murray-wimbledon-doubles/
-
-**Wayne S. Smith, a Leading Critic of the Embargo on Cuba, Dies at 91**\
-`A former State Department official, he resigned in protest in 1982 over Cuba policy, then spent decades trying to rebuild relations with the island nation.`\
-https://nytimes.com/2024/07/06/world/americas/wayne-s-smith-dead.html
 

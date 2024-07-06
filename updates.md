@@ -1,3 +1,11 @@
+**George Russell takes British GP pole, leads all-British top three in qualifying**\
+`Russell will lead countrymen Lewis Hamilton and Lando Norris to start the British GP on Sunday. `\
+https://nytimes.com/athletic/5620229/2024/07/06/george-russell-british-gp-pole-lewis-hamilton-lando-norris/
+
+**Spain’s unlikely Euro 2024 hero Mikel Merino - and the story of his special celebration**\
+`Mikel Merino headed Spain into the semi-finals - and silenced his dad Miguel. He is the epitome of what this squad is - talented and united`\
+https://nytimes.com/athletic/5619426/2024/07/06/euro-2024-mikel-merino-spain-germany-celebration/
+
 **White House Provided the Questions in Advance for Biden’s Radio Interviews**\
 `The host of “The Source” on WURD in Philadelphia said the president’s aides provided her with a list of eight questions to choose from.`\
 https://nytimes.com/2024/07/06/us/politics/biden-radio-interviews-questions.html
