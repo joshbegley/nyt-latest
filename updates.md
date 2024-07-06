@@ -1,3 +1,7 @@
+**Saka ‘embraced’ penalty pressure as England beat Switzerland**\
+`Bukayo Saka said he &#8220;embraced&#8221; the opportunity to banish his penalty shootout demons after England’s players held their nerve to reach the European Championship semi-final.`\
+https://nytimes.com/athletic/5620782/2024/07/06/bukayo-saka-penalty-england-switzerland/
+
 **England deserve ‘more credit’ for Euro 2024 performances - Xhaka**\
 `Switzerland captain Granit Xhaka believes the England team need to be given “more credit” for their performances.`\
 https://nytimes.com/athletic/5620834/2024/07/06/england-switzerland-granit-xhaka/

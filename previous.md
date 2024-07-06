@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5618000/2024/07/06/netherlands-2-turkey-1-euro-2024
 `By Kate Selig`\
 https://nytimes.com/live/2024/07/06/us/biden-trump-election/biden-newsom-pennsylvania
 
-**Saka 'embraced' penalty pressure as England beat Switzerland**\
+**Saka ‘embraced’ penalty pressure as England beat Switzerland**\
 `Bukayo Saka said he &#8220;embraced&#8221; the opportunity to banish his penalty shootout demons after England’s players held their nerve to reach the European Championship semi-final.`\
 https://nytimes.com/athletic/5620782/2024/07/06/bukayo-saka-penalty-england-switzerland/
 
