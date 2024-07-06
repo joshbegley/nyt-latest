@@ -1,3 +1,7 @@
+**Biden urges Americans to watch him at a NATO summit next week in Washington.**\
+`By David E. Sanger`\
+https://nytimes.com/live/2024/07/05/us/biden-trump-2024-election/biden-urges-americans-to-watch-him-at-a-nato-summit-next-week-in-washington
+
 **Jeffries Plans to Meet Virtually With Top House Democrats on Biden’s Path Ahead**\
 `The House minority leader scheduled a virtual meeting for Sunday.`\
 https://nytimes.com/2024/07/05/us/politics/hakeem-jeffries-biden-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/elections/100000009557669/biden-election-2024-trump
 **Euro 2024 day 22: Goodbye to Ronaldo and Kroos as Spain and France set up semi-final**\
 `Spain and France made it through the Euro 2024 semi-finals, as hosts Germany and Cristiano Ronaldo's Portugal crashed out`\
 https://nytimes.com/athletic/5618972/2024/07/05/cristiano-ronaldo-spain-germany-euro-2024-france-portugal/
-
-**Warner Is Working to Convene Democratic Senators to Talk About Biden’s Future**\
-`While some House Democrats have been outspoken about the president’s debate performance, most senators have so far been quieter about their concerns.`\
-https://nytimes.com/2024/07/05/us/politics/warner-biden-senators.html
 
