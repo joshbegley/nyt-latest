@@ -1,3 +1,7 @@
+**World No. 1 Iga Swiatek out of Wimbledon after defeat to Yulia Putintseva**\
+`Iga Swiatek, the world No.`\
+https://nytimes.com/athletic/5620479/2024/07/06/iga-swiatek-wimbledon-record-yulia-putintseva/
+
 **Judge Delays Some Deadlines in Trump Classified Documents Case**\
 `The postponement was likely to cause only minor delays to the case, which has already slowed to a crawl with Judge Aileen Cannon’s previous decisions.`\
 https://nytimes.com/2024/07/06/us/politics/trump-classified-documents-case-delay.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5620023/2024/07/06/sergio-perez-red-bull-f1/
 **Edwards: Under Trajan Langdon, the Pistons appear to be in good hands**\
 `Langdon's patience is a welcomed trait in Detroit, and no one may be more thankful than Cade Cunningham.`\
 https://nytimes.com/athletic/5620165/2024/07/06/trajan-langdon-pistons-cade-cunningham/
-
-**Vic Seixas, Winner of 15 Grand Slam Tennis Titles, Dies at 100**\
-`Once declared “the face of American tennis,” he was ranked among the leading players in the United States from the 1940s to the ’60s.`\
-https://nytimes.com/2024/07/06/sports/tennis/vic-seixas-dead.html
 
