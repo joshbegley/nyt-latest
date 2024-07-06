@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5619360/2024/07/06/germany-exit-euro2024-muller/
 https://nytimes.com/athletic/5618331/2024/07/06/answering-children-questions-england/
 
 **Thomas Christiansen: The other ex-Leeds boss making waves at Copa America**\
-`His time at Leeds wasn't a great success, but the story is very different with Panama at the Copa`\
+`His time at Leeds wasn't a great success, but the story is very different with Panama at the Copa America`\
 https://nytimes.com/athletic/5613859/2024/07/06/thomas-christiansen-panama-copa-america-leeds/
 
 **Ajax players were once the spine of the Dutch team – at Euro 2024 they've fielded only one**\
