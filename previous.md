@@ -1,5 +1,9 @@
+**NASCAR Chicago Street Race starting lineup: Kyle Larson takes pole position**\
+`CHICAGO — Kyle Larson continues demonstrating why he&#8217;s considered one of the world&#8217;s most talented racing drivers.`\
+https://nytimes.com/athletic/5620622/2024/07/06/nascar-chicago-street-race-starting-lineup-kyle-larson-takes-pole-position/
+
 **Kane 'fine' for Euro 2024 semi after collision with Southgate**\
-`Harry Kane says he will be &#8220;fine&#8221; for England&#8217;s European Championship semi-final on Wednesday.`\
+`Harry Kane says he will be &#8220;fine&#8221; to play in England&#8217;s European Championship semi-final on Wednesday.`\
 https://nytimes.com/athletic/5620553/2024/07/06/harry-kane-injury-southgate/
 
 **Fact-Checking Biden’s ABC Interview**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5617999/2024/07/06/england-1-switzerland-1-penaltie
 **What the Interview With Biden Showed**\
 `Readers aren’t mollified by the president’s answers to questions from George Stephanopoulos.`\
 https://nytimes.com/2024/07/06/opinion/letters/joe-biden-interview.html
-
-**Canada's men's national team might never look the same again**\
-`Canada’s men have been known to wilt at big moments. But that experience has made them stronger`\
-https://nytimes.com/athletic/5620378/2024/07/06/canada-copa-america-marsch-win/
 
