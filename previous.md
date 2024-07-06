@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5620378/2024/07/06/canada-copa-america-marsch-win/
 `Opportunity for the British drivers. Redemption for Pérez. Damage-control for Ferrari. And all the while, Verstappen looms. `\
 https://nytimes.com/athletic/5620459/2024/07/06/f1-british-gp-preview/
 
-**Calls Grow for Biden to Leave Race Despite His Vow to Run**\
+**As Biden Digs In, More Supporters Look to Push Him Out**\
 `Interviews with dozens of Democrats illustrated an imminent clash between a defiant president and those who question his ability to win. Many rank-and-file party officials remain supportive.`\
 https://nytimes.com/2024/07/06/us/politics/biden-campaign-democrats.html
 
