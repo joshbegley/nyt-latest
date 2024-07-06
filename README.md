@@ -2,7 +2,7 @@
 `A former reporter of The Marion County Record has settled a lawsuit following a raid on the weekly newspaper last year that garnered widespread attention.`\
 https://nytimes.com/2024/07/06/business/media/marion-county-record-raid-settlement-kansas.html
 
-**England 1 Switzerland 1 (AET: 5-3 on penalties): Saka stars, ice-cool spot-kicks, system success?**\
+**England 1 Switzerland 1 (AET: 5-3 on penalties): Saka stars, ice-cool spot kicks, system success?**\
 `England beat Switzlerland 5-3 on penalties in a nervy quarter-final of Euro 2024. Our writers bring you the key talking points.`\
 https://nytimes.com/athletic/5617999/2024/07/06/england-1-switzerland-1-penalties-result-saka/
 
