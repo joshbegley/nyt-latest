@@ -1,3 +1,7 @@
+**Edwards: Under Trajan Langdon, the Pistons appear to be in good hands**\
+`Langdon's patience is a welcomed trait in Detroit, and no one may be more thankful than Cade Cunningham.`\
+https://nytimes.com/athletic/5620165/2024/07/06/trajan-langdon-pistons-cade-cunningham/
+
 **Vic Seixas, Winner of 15 Grand Slam Tennis Titles, Dies at 100**\
 `Once declared “the face of American tennis,” he was ranked among the leading players in the United States from the 1940s to the ’60s.`\
 https://nytimes.com/2024/07/06/sports/tennis/vic-seixas-dead.html
