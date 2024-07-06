@@ -1,3 +1,7 @@
+**Biden Faces More Calls From Democrats to Quit the Race**\
+`Interviews with dozens of Democrats illustrated an imminent clash between a defiant president and those who question his ability to win. Many rank-and-file party officials remain supportive.`\
+https://nytimes.com/2024/07/06/us/politics/biden-campaign-democrats.html
+
 **World No 1 Swiatek out of Wimbledon after defeat to Putintseva**\
 `Iga Swiatek, the world No 1 who has never won Wimbledon, has been eliminated from this year&#8217;s tournament.`\
 https://nytimes.com/athletic/5620479/2024/07/06/iga-swiatek-wimbledon-record-yulia-putintseva/
