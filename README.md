@@ -1,3 +1,7 @@
+**As Blue Jays and Mariners move in different directions, could they match up as trade partners?**\
+`While they’ve developed an on-field rivalry in recent seasons, the Blue Jays' and Mariners’ front offices have combined on trades.`\
+https://nytimes.com/athletic/5619656/2024/07/06/blue-jays-mariners-trade-partners/
+
 **With triumphs big and small, Phillies wield 10-game lead over Braves**\
 `An 8-6 Phillies win was not the most crucial of the season, but it boosted the gap between Philadelphia and Atlanta to 10 games. `\
 https://nytimes.com/athletic/5619642/2024/07/06/phillies-braves-nl-east-johan-rojas/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5613859/2024/07/06/thomas-christiansen-panama-copa-
 **Ajax players were once the spine of the Dutch team – at Euro 2024 they've fielded only one**\
 `The fall of Ajax has made a big impact on Dutch football and the national team at Euro 2024`\
 https://nytimes.com/athletic/5610614/2024/07/06/ajax-netherlands-players-one/
-
-**Kane's lack of touches, an election reference and a 'slow start' - your England bingo card**\
-`Everything you can expect to hear and see as an uninspiring England take on Switzerland in the quarter-finals of Euro 2024`\
-https://nytimes.com/athletic/5617794/2024/07/06/england-switzerland-bingo-card/
 
