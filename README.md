@@ -1,3 +1,27 @@
+**This could be Endrick's moment**\
+`The 17-year-old is set to start against Uruguay in the Copa America quarter-final`\
+https://nytimes.com/athletic/5619140/2024/07/06/brazil-vinicius-endrick-uruguay-moment/
+
+**Twins hitting coach David Popkins stays measured despite team's red-hot offense**\
+`“You realize it's part of the gig,” Popkins said. “Things are going bad, you're the guy that takes the blame."`\
+https://nytimes.com/athletic/5619511/2024/07/06/twins-hitting-coach-david-popkins/
+
+**Cubs' Pete Crow-Armstrong is right on track and not close to where he wants to be **\
+`The 22-year-old center fielder isn't hitting as well as he would like, but his defense and base running have helped the Cubs.`\
+https://nytimes.com/athletic/5619291/2024/07/06/cubs-pete-crow-armstrong/
+
+**Facing New ‘Greenwashing’ Law, an Oil Industry Website Goes Dark**\
+`Oil sands companies pushing a carbon capture project shut down their website after a law banning misleading environmental claims was passed.`\
+https://nytimes.com/2024/07/06/world/canada/canada-greenwashing-oil-sands.html
+
+**Wordle Review No. 1,114, July 7, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/06/crosswords/wordle-review-1114.html
+
+**The Connections Companion No. 392, July 7, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/06/crosswords/connections-companion-392.html
+
 **Developing Your Taste**\
 `The meals that we love are informed as much by the experience of eating them as by the flavor of the food itself.`\
 https://nytimes.com/2024/07/06/briefing/developing-your-taste.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5619820/2024/07/06/alisha-lehmann-juventus-villa-tr
 **What does the Current and Pride's success mean for NWSL?**\
 `The Current and Pride each have a striker in the Golden Boot race.`\
 https://nytimes.com/athletic/5619369/2024/07/06/orlando-pride-kc-current-nwsl-leading-goalscorers/
-
-**UEFA satisfied with non-handball call on Cucurella**\
-`UEFA is satisfied with Anthony Taylor’s decision not to award Germany a penalty during their 2-1 quarter-final defeat by Spain on Friday evening.`\
-https://nytimes.com/athletic/5619810/2024/07/06/cucurella-handball-anthony-taylor-euro-2024/
-
-**I Don’t Give a Damn About My Dad Reputation**\
-`A longtime “Freaks and Geeks” fan reconsiders what it means to be one of the cool kids.`\
-https://nytimes.com/2024/07/06/arts/television/freaks-and-geeks-illustrated.html
-
-**Whoever the Democratic Candidate Is, Americans Have Already Lost**\
-`The American Republic feels fragile.`\
-https://nytimes.com/2024/07/06/opinion/biden-debate-scotus-immunity.html
-
-**In the French Countryside, a Deep Discontent Takes Root**\
-`In northern Burgundy, services have collapsed and the far-right National Rally has risen.`\
-https://nytimes.com/2024/07/06/world/europe/rural-france-national-rally-appeal.html
-
-**These Obscure Democrats Could Soon Become Kingmakers**\
-`President Biden insisted on Friday that he would stay in the race. But if he decides to step aside, these individuals will determine who leads the ticket.`\
-https://nytimes.com/2024/07/06/us/politics/biden-replacement-dnc-delegates.html
-
-**What Do Bagged Chickens Have to Do With Sliced Cheese?**\
-`Both have gotten caught up in fights over plastic packaging. When Costco recently tried to trim its plastic use by selling rotisserie chickens in bags, some shoppers disapproved.`\
-https://nytimes.com/2024/07/06/climate/costco-chicken-bags-sliced-cheese-plastic.html
 
