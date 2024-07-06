@@ -1,3 +1,11 @@
+**Biden Cancels Speech to Teachers After Union’s Staff Strikes**\
+`Employees of the National Education Association picketed the site of the group’s annual convention after a walkout over issues including overtime pay.`\
+https://nytimes.com/2024/07/06/business/nea-staff-strike-convention-biden-speech.html
+
+**Twins' Jose Miranda ties MLB record with hits in 12 straight at-bats**\
+`During the 12-for-12 streak, Miranda has raised his batting average from .294 to .329.`\
+https://nytimes.com/athletic/5620741/2024/07/06/jose-miranda-mlb-record-consecutive-hits-twins/
+
 **Van de Beek close to Girona move**\
 `Donny van de Beek is close to a move from Manchester United to Girona.`\
 https://nytimes.com/athletic/5620292/2024/07/06/manchester-united-donny-van-de-beek-transfer/
