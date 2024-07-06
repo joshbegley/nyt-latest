@@ -1,3 +1,7 @@
+**Andy Murray: The benevolent thorn in the side that tennis badly needed**\
+`From the best players of his era to assumptions about the sport, Andy Murray is the benevolent thorn in the side that tennis needed`\
+https://nytimes.com/athletic/5582264/2024/07/06/andy-murray-tennis-impact-record/
+
 **Vikings rookie CB Khyree Jackson dies in car accident**\
 `Jackson was picked by the Vikings in the fourth round of April's draft. He arrived in Minnesota by way of Oregon.`\
 https://nytimes.com/athletic/5620288/2024/07/06/khyree-jackson-died-car-accident/
