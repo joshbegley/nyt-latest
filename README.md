@@ -1,3 +1,7 @@
+**Euro 2024 day 23: 'England's 'cheat code' water bottle and can Dutch go all the way?**\
+`The major talking points on the second day of quarter-finals at Euro 2024`\
+https://nytimes.com/athletic/5620295/2024/07/06/euro-2024-day-23-england-bottle/
+
 **England deserve ‘more credit’ for Euro 2024 performances - Xhaka**\
 `Switzerland captain Granit Xhaka believes the England team need to be given “more credit” for their performances.`\
 https://nytimes.com/athletic/5620834/2024/07/06/england-switzerland-granit-xhaka/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5620487/2024/07/06/tyus-jones-status-malcolm-brogdo
 **Twins' Jose Miranda ties MLB record with hits in 12 straight at-bats**\
 `During the 12-for-12 streak, Miranda raised his batting average from .294 to .329.`\
 https://nytimes.com/athletic/5620741/2024/07/06/jose-miranda-mlb-record-consecutive-hits-twins/
-
-**NASCAR Chicago Street Race starting lineup: Kyle Larson takes pole position**\
-`CHICAGO — Kyle Larson continues demonstrating why he&#8217;s considered one of the world&#8217;s most talented racing drivers.`\
-https://nytimes.com/athletic/5620622/2024/07/06/nascar-chicago-street-race-starting-lineup-kyle-larson-takes-pole-position/
 
