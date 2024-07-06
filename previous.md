@@ -1,6 +1,6 @@
 **The story behind the viral photos of Lionel Messi and a baby Lamine Yamal**\
 `The man who took the viral photos of Messi meeting a baby Yamal explains how two Barcelona stars from different generations met in 2007`\
-https://nytimes.com/athletic/5614184/2024/07/06/lionel-messi-yamine-lamal-photo-barcelona/
+https://nytimes.com/athletic/5614184/2024/07/06/lionel-messi-lamine-yamal-photo-barcelona/
 
 **Sykes Faces Challenge in Ohio as Black Democrats Push to Hold White Districts**\
 `Representative Emilia Sykes is one of only a few Black Democrats in Congress who don’t resemble most of their constituents, and whose political survival this year will help determine which party controls the House.`\
@@ -23,7 +23,8 @@ https://nytimes.com/athletic/5620040/2024/07/06/tour-de-france-cyclist-fined-kis
 https://nytimes.com/live/2024/07/06/us/biden-trump-election/with-his-candidacy-on-the-line-biden-is-returning-to-pennsylvania
 
 **Raducanu withdraws from Wimbledon mixed doubles match with Murray**\
-`Emma Raducanu has pulled out of her mixed doubles match with Andy Murray.`\
+`Andy Murray has played his last match at Wimbledon, after Emma Raducanu pulled out of their mixed doubles match with stiffness in her wrist
+The Raducanu news came approximately four hours before their match was due to begin, with Murray&#8217;s camp emphasising that he was ready to play and there was no issue with his back.`\
 https://nytimes.com/athletic/5620089/2024/07/06/emma-raducanu-andy-murray-wimbledon-doubles/
 
 **Wayne S. Smith, a Leading Critic of the Embargo on Cuba, Dies at 91**\
