@@ -1,3 +1,7 @@
+**Nebraska secondary coach Evan Cooper leaves staff**\
+`Cooper served two coaching stints with the Owls and followed Rhule to Baylor and to the Carolina Panthers.`\
+https://nytimes.com/athletic/5619391/2024/07/05/nebraska-evan-cooper-coach/
+
 **Some of Biden’s Upcoming Fund-Raising Events Face New Uncertainty**\
 `Plans for a late July fund-raiser in Wisconsin are now off, and it’s unclear whether another event in Texas will proceed, following President Biden’s disastrous debate performance.`\
 https://nytimes.com/2024/07/05/us/politics/biden-fund-raising-campaign.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/05/us/politics/warner-biden-senators.html
 **Brighton complete signing of Wieffer from Feyenoord**\
 `Brighton &amp; Hove Albion have signed Netherlands international midfielder Mats Wieffer from Feyenoord.`\
 https://nytimes.com/athletic/5616350/2024/07/05/mats-wieffer-brighton-feyenoord/
-
-**Martin Necas among 14 NHL players electing for salary arbitration**\
-`The Hurricanes forward is among 14 NHL players who have filed for salary arbitration before Friday's 5 p.m. Eastern deadline.`\
-https://nytimes.com/athletic/5619174/2024/07/05/nhl-salary-arbitration-players/
 
