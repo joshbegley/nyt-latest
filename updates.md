@@ -1,3 +1,7 @@
+**Martinez failed to learn that benching Ronaldo doesn't have to mean the end of the world**\
+`The lack of goals didn't seem to bother Martinez. The limit it placed on his team's potential didn't either. He just kept pushing the button`\
+https://nytimes.com/athletic/5619214/2024/07/06/martinez-ronaldo-portugal-exit-euro-2024/
+
 **Dodgers have plenty to learn about outfield picture before trade deadline**\
 `The Dodgers got an 8-5 come-from-behind win over the Brewers on Friday but could be in the market for an outfielder.`\
 https://nytimes.com/athletic/5619668/2024/07/06/dodgers-outfield-trade-deadline-brewers/
