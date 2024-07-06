@@ -1,3 +1,15 @@
+**Two Young Drivers Take the Wheel. One, a Teen. The Other, a Tesla.**\
+`Can my son learn from the example of the robot controlling the steering wheel? Or should it be the other way around?`\
+https://nytimes.com/2024/07/06/business/tesla-teen-driver.html
+
+**When Your Identical Twin Wins a Grammy**\
+`Junia Lin Jonsdottir helped create the romantic visual world inhabited by her sister, the singer-songwriter Laufey. Please stop asking if she’s jealous.`\
+https://nytimes.com/2024/07/06/style/laufey-twin-sister-junia-lin-jonsdottir.html
+
+**In Manhattan Real Estate, Cash Is Everything**\
+`All-cash purchases shot up to 64 percent of home sales in the borough. Here’s who’s buying.`\
+https://nytimes.com/2024/07/06/upshot/manhattan-real-estate-cash.html
+
 **Crosby's 'roller coaster' watching Canadian sporting heroes being made**\
 `Sidney Crosby is used to being the star attraction - but at the Copa America he was in awe of the Canada soccer team and went to tell them`\
 https://nytimes.com/athletic/5619790/2024/07/06/sidney-crosby-canada-copa-america/
