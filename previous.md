@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5620229/2024/07/06/george-russell-british-gp-pole-l
 https://nytimes.com/athletic/5619426/2024/07/06/euro-2024-mikel-merino-spain-germany-celebration/
 
 **Biden Aides Provided Questions in Advance for His Radio Interviews**\
-`The host of “The Source” on WURD in Philadelphia said the president’s aides provided her with a list of eight questions to choose from.`\
+`The host of “The Source” on WURD in Philadelphia said officials provided her with a list of eight questions to choose from. The Biden campaign said its staff did not condition the interviews on them.`\
 https://nytimes.com/2024/07/06/us/politics/biden-radio-interviews-questions.html
 
 **Winner, Winner, Tandoori Chicken Dinner**\
