@@ -1,3 +1,7 @@
+**Angels’ Reid Detmers discusses demotion and potential call-up: ‘I feel like my old self again'**\
+`Detmers was the Angels' best pitcher and has thrown a no-hitter. But they demoted him and he’s unsure how he still fits in their plans.`\
+https://nytimes.com/athletic/5619393/2024/07/06/angels-reid-detmers-demotion/
+
 **The Authors Call It Fiction, but in These 2 Novels the Facts Don’t Lie**\
 `A philandering father; a literary affair.`\
 https://nytimes.com/2024/07/06/books/read-like-wind-recommendations-autobiographical-fiction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/06/opinion/sci-fi-dystopia-pop-culture.html
 **Dear Elites (of Both Parties), the People Will Take It From Here, Thanks**\
 `A revolution is about to swallow U.S. politics, and it’s based on the simplest and most radical theory of power.`\
 https://nytimes.com/2024/07/06/opinion/populism-power-elites-politics.html
-
-**Slice, slice baby - Why the Wimbledon grass rewards the most annoying shot in tennis**\
-`Skidding, knifing, and spinning at players' ankles, the slice is a weapon that any player with dreams of winning Wimbledon needs`\
-https://nytimes.com/athletic/5617262/2024/07/06/tennis-slice-shot-backhand-wimbledon-grass/
 
