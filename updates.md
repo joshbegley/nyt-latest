@@ -1,3 +1,7 @@
+**Cubs notes: Hendricks' tight back and the impact on rotation, Swanson's struggles and more**\
+`Plus notes on the Cubs' catching situation and Christopher Morel getting an unexpected day off against a lefty starter.`\
+https://nytimes.com/athletic/5620905/2024/07/06/cubs-kyle-hendricks-tight-back-dansby-swanson-struggles/
+
 **Koeman defends Netherlands: 'People think we don’t have heart... we showed it'**\
 `Ronald Koeman defended his Netherlands side after their comeback victory over Turkey in Saturday’s European Championship quarter-final, saying that “people think we don’t have that heart… but the players showed it.`\
 https://nytimes.com/athletic/5620968/2024/07/06/netherlands-turkey-ronald-koeman/
