@@ -1,3 +1,7 @@
+**Crosby's 'roller coaster' watching Canadian sporting heroes being made**\
+`Sidney Crosby is used to being the star attraction - but at the Copa America he was in awe of the Canada soccer team and went to tell them`\
+https://nytimes.com/athletic/5619790/2024/07/06/sidney-crosby-canada-copa-america/
+
 **Kilman joins West Ham from Wolves**\
 `West Ham United have completed the signing of Max Kilman from Wolverhampton Wanderers.`\
 https://nytimes.com/athletic/5616887/2024/07/06/max-kilman-west-ham/

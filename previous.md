@@ -1,3 +1,7 @@
+**Crosby's 'roller coaster' watching Canadian sporting heroes being made**\
+`Sidney Crosby is used to being the star attraction - but at the Copa America he was in awe of the Canada soccer team and went to tell them`\
+https://nytimes.com/athletic/5619790/2024/07/06/sidney-crosby-canada-copa-america/
+
 **Kilman joins West Ham from Wolves**\
 `West Ham United have completed the signing of Max Kilman from Wolverhampton Wanderers.`\
 https://nytimes.com/athletic/5616887/2024/07/06/max-kilman-west-ham/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/06/nyregion/coney-island-teens-drown.html
 **As Blue Jays and Mariners move in different directions, could they match up as trade partners?**\
 `While they’ve developed an on-field rivalry in recent seasons, the Blue Jays' and Mariners’ front offices have combined on trades.`\
 https://nytimes.com/athletic/5619656/2024/07/06/blue-jays-mariners-trade-partners/
-
-**With triumphs big and small, Phillies wield 10-game lead over Braves**\
-`An 8-6 Phillies win was not the most crucial of the season, but it boosted the gap between Philadelphia and Atlanta to 10 games. `\
-https://nytimes.com/athletic/5619642/2024/07/06/phillies-braves-nl-east-johan-rojas/
 
