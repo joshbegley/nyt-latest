@@ -1,3 +1,11 @@
+**Double Digits**\
+`David Karp’s nimble puzzle might be hard to handle.`\
+https://nytimes.com/2024/07/06/crosswords/daily-puzzle-2024-07-07.html
+
+**Much of Western U.S. Is Broiling Under Record-Breaking Heat**\
+`From Oregon to California to Arizona, several cities have seen scorching temperatures in recent days. And there is little relief in sight, forecasters say.`\
+https://nytimes.com/2024/07/06/us/excessive-heat-wave-california-oregon-arizona.html
+
 **England are not convincing, but who cares? It's time to just enjoy the ride**\
 `'HMS Gazball' keeps sailing on despite almost being sunk multiple times - but do performances even matter now?`\
 https://nytimes.com/athletic/5618269/2024/07/06/england-euro-2024-southgate/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/06/business/nea-staff-strike-convention-biden-speech
 **Van de Beek close to Girona move**\
 `Donny van de Beek is close to a move from Manchester United to Girona.`\
 https://nytimes.com/athletic/5620292/2024/07/06/manchester-united-donny-van-de-beek-transfer/
-
-**Yoshihiro Uchida, Peerless Judo Coach, Is Dead at 104**\
-`A coach at San Jose State for seven decades, he helped establish the sport in America and trained generations of athletes, many of whom went to the Olympics.`\
-https://nytimes.com/2024/07/06/sports/yoshihiro-uchida-dead.html
-
-**The latest on Tyus Jones' future, the value of Malcolm Brogdon and more: Wizards mailbag**\
-`We answer your questions about the Wizards' offseason moves, the status of Tyus Jones and what the team still could do. `\
-https://nytimes.com/athletic/5620487/2024/07/06/tyus-jones-status-malcolm-brogdon-wizards-updates/
 
