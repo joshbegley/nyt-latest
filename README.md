@@ -1,5 +1,5 @@
 **Kane 'fine' for Euro 2024 semi after collision with Southgate**\
-`Harry Kane says he will be &#8220;fine&#8221; for England&#8217;s European Championship semi-final on Wednesday.`\
+`Harry Kane says he will be &#8220;fine&#8221; to play in England&#8217;s European Championship semi-final on Wednesday.`\
 https://nytimes.com/athletic/5620553/2024/07/06/harry-kane-injury-southgate/
 
 **Fact-Checking Biden’s ABC Interview**\
