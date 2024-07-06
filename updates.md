@@ -1,3 +1,7 @@
+**Thomas Christiansen: The other ex-Leeds boss making waves at Copa America**\
+`His time at Leeds wasn't a great success, but the story is very different with Panama at the Copa America`\
+https://nytimes.com/athletic/5613859/2024/07/06/thomas-christiansen-panama-copa-america-leeds/
+
 **Dissecting Darwin Nunez: From his Liverpool toils to thriving as Uruguay's front man**\
 `The striker laboured at times under Jurgen Klopp but has excelled at Copa America 2024 and should see Arne Slot's arrival as an opportunity`\
 https://nytimes.com/athletic/5615949/2024/07/06/darwin-nunez-liverpool-uruguay-slot/
