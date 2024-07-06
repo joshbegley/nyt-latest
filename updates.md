@@ -1,3 +1,7 @@
+**Angels’ Reid Detmers discusses demotion and potential call-up: ‘I feel like my old self again'**\
+`Detmers was the Angels' best pitcher and has thrown a no-hitter. But they demoted him and he’s unsure how he still fits in their plans.`\
+https://nytimes.com/athletic/5619393/2024/07/06/angels-reid-detmers-demotion/
+
 **The Authors Call It Fiction, but in These 2 Novels the Facts Don’t Lie**\
 `A philandering father; a literary affair.`\
 https://nytimes.com/2024/07/06/books/read-like-wind-recommendations-autobiographical-fiction.html
