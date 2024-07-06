@@ -1,3 +1,7 @@
+**Luka Dončić, Slovenia knocked out of Olympic contention**\
+`The failure to qualify marks a major step back for Slovenia, who finished fourth at the 2020 Olympics.`\
+https://nytimes.com/athletic/5620308/2024/07/06/luka-doncic-slovenia-giannis-antetokounmpo-greece-olympic-qualifier/
+
 **Andy Murray: The benevolent thorn in the side that tennis badly needed**\
 `From the best players of his era to assumptions about the sport, Andy Murray is the benevolent thorn in the side that tennis needed`\
 https://nytimes.com/athletic/5582264/2024/07/06/andy-murray-tennis-impact-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5620151/2024/07/06/pedri-injury-spain-euro-2024/
 **George Russell takes British GP pole, leads all-British top three in qualifying**\
 `Russell will lead countrymen Lewis Hamilton and Lando Norris to start the British GP on Sunday. `\
 https://nytimes.com/athletic/5620229/2024/07/06/george-russell-british-gp-pole-lewis-hamilton-lando-norris/
-
-**Spain’s unlikely Euro 2024 hero Mikel Merino - and the story of his special celebration**\
-`Mikel Merino headed Spain into the semi-finals - and silenced his dad Miguel. He is the epitome of what this squad is - talented and united`\
-https://nytimes.com/athletic/5619426/2024/07/06/euro-2024-mikel-merino-spain-germany-celebration/
 
