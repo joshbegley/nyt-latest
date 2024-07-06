@@ -1,3 +1,7 @@
+**England deserve ‘more credit’ for Euro 2024 performances - Xhaka**\
+`Switzerland captain Granit Xhaka believes the England team need to be given “more credit” for their performances.`\
+https://nytimes.com/athletic/5620834/2024/07/06/england-switzerland-granit-xhaka/
+
 **The Briefing: Weghorst's impact, Guler shines and Dutch comeback courage**\
 `Tim Spiers, Jordan Campbell and Liam Tharme analyse the key talking points from the Netherland's 2-1 Turkey at Euro 2024`\
 https://nytimes.com/athletic/5618000/2024/07/06/netherlands-2-turkey-1-euro-2024-briefing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5620741/2024/07/06/jose-miranda-mlb-record-consecut
 **NASCAR Chicago Street Race starting lineup: Kyle Larson takes pole position**\
 `CHICAGO — Kyle Larson continues demonstrating why he&#8217;s considered one of the world&#8217;s most talented racing drivers.`\
 https://nytimes.com/athletic/5620622/2024/07/06/nascar-chicago-street-race-starting-lineup-kyle-larson-takes-pole-position/
-
-**Kane 'fine' for Netherlands semi after collision with Southgate**\
-`Harry Kane says he will be &#8220;fine&#8221; to play in England&#8217;s European Championship semi-final against the Netherlands on Wednesday.`\
-https://nytimes.com/athletic/5620553/2024/07/06/harry-kane-injury-southgate/
 
