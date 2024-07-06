@@ -1,3 +1,7 @@
+**:-O**\
+`Evans Clinchy’s puzzle tests our equilibrium.`\
+https://nytimes.com/2024/07/05/crosswords/daily-puzzle-2024-07-06.html
+
 **Wave president Jill Ellis denies allegations of workplace abuse**\
 `Ellis has denied a former employee’s allegations of abuse at the club, saying they are “false accusations” which are “personally damaging."`\
 https://nytimes.com/athletic/5619476/2024/07/05/wave-president-jill-ellis-allegations/
