@@ -1,10 +1,10 @@
+**Emma Raducanu's Centre Court calm needs nurturing as much as admiring**\
+`As Emma Raducanu partners Andy Murray at Wimbledon, she looks capable of inheriting his British mantle at SW19 — on her terms`\
+https://nytimes.com/athletic/5618994/2024/07/06/emma-raducanu-wimbledon-andy-murray-mixed-doubles/
+
 **Yankees fail to take accountability after embarrassing meltdown against Red Sox**\
 `The Yankees have lost 15 of their last 20 games. Nestor Cortes said he doesn’t think anyone is panicking inside the clubhouse.`\
 https://nytimes.com/athletic/5619546/2024/07/06/yankees-meltdown-red-sox/
-
-**Martinez failed to learn that benching Ronaldo doesn't have to mean the end of the world**\
-`The lack of goals didn't seem to bother Martinez. The limit it placed on his team's potential didn't either. He just kept pushing the button`\
-https://nytimes.com/athletic/5619214/2024/07/06/martinez-ronaldo-portugal-exit-euro-2024/
 
 **Dodgers have plenty to learn about outfield picture before trade deadline**\
 `The Dodgers got an 8-5 come-from-behind win over the Brewers on Friday but could be in the market for an outfielder.`\
