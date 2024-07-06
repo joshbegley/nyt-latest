@@ -6,7 +6,7 @@ https://nytimes.com/2024/07/06/nyregion/coney-island-beach-drowning.html
 `The vote will determine the composition of France’s National Assembly, and the future of President Emmanuel Macron’s second term.`\
 https://nytimes.com/2024/07/06/world/europe/france-parliamentary-election-2024.html
 
-**Should Yankees' Ben Rice be the everyday first baseman after 3-homer day?**\
+**Should Yankees' Ben Rice be the everyday first baseman after his 3-homer day?**\
 `The 25-year-old became the first Yankees rookie to hit three home runs in a game. Should he be a fixture at the top of the lineup?`\
 https://nytimes.com/athletic/5620992/2024/07/06/yankees-ben-rice-three-home-runs/
 
