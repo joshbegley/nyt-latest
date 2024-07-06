@@ -1,4 +1,4 @@
-**Steve Kerr thanks Klay Thompson for '10 incredible years'**\
+**Kerr thanks Thompson, says ex-Warrior needed 'a shift'**\
 `Thompson, a pillar of the Golden State Warriors’ four championships won under Kerr, left the organization.`\
 https://nytimes.com/athletic/5621041/2024/07/06/steve-kerr-klay-thompson-warriors/
 
