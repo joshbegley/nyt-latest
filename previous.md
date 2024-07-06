@@ -1,3 +1,7 @@
+**NHL free-agency report card: Grades for each team’s early offseason moves**\
+`Five days into NHL free agency, the list of impact players remaining on the market is … not lengthy. How's your favorite team doing so far?`\
+https://nytimes.com/athletic/5618498/2024/07/06/nhl-free-agency-grades-every-team-2024/
+
 **Carlos Miguel set for Forest medical**\
 `Brazilian goalkeeper Carlos Miguel will undergo a medical this weekend ahead of a proposed move to Nottingham Forest.`\
 https://nytimes.com/athletic/5619948/2024/07/06/carlos-miguel-transfer-nottingham-forest/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/06/opinion/israeli-palestinian-peace-west-bank.html
 **Why Biden Is Unlikely to Defy the Naysayers**\
 `Why Trump’s refusal to quit in 2016 won’t work for the incumbent in 2024.`\
 https://nytimes.com/2024/07/06/opinion/biden-2024-trump-2016.html
-
-**Welcome to Stucktopia**\
-`Pop culture is serving up dark visions full of labyrinthine bunkers, endless loops and characters who feel hopelessly mired. Welcome to the stucktopia.`\
-https://nytimes.com/2024/07/06/opinion/sci-fi-dystopia-pop-culture.html
 
