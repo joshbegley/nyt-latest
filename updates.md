@@ -1,3 +1,7 @@
+**What does the Current and Pride's success mean for NWSL?**\
+`The Current and Pride each have a striker in the Golden Boot race.`\
+https://nytimes.com/athletic/5619369/2024/07/06/orlando-pride-kc-current-nwsl-leading-goalscorers/
+
 **UEFA satisfied with non-handball call on Cucurella**\
 `UEFA is satisfied with Anthony Taylor’s decision not to award Germany a penalty during their 2-1 quarter-final defeat by Spain on Friday evening.`\
 https://nytimes.com/athletic/5619810/2024/07/06/cucurella-handball-anthony-taylor-euro-2024/
