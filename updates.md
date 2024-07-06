@@ -1,3 +1,7 @@
+**Interview Seemed Not to Change Democratic Officials’ Views on Biden, Either Way**\
+`Both Democratic supporters of Biden’s campaign and those who have called for him to drop out signaled that the president’s interview with ABC News only reaffirmed their stances on his candidacy.`\
+https://nytimes.com/2024/07/05/us/politics/biden-abc-news-interview-democratic-reaction.html
+
 **Reformist Candidate Wins Iran’s Presidential Election**\
 `Masoud Pezeshkian defeated an ultraconservative former nuclear negotiator, Saeed Jalili, in a runoff.`\
 https://nytimes.com/2024/07/05/world/middleeast/iran-election-reformist-wins.html
