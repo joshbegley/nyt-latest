@@ -1,3 +1,11 @@
+**Hamas’s Cease-Fire Proposal Includes a Familiar Sticking Point**\
+`Hamas wants assurances that Israel won’t restart the war after some hostages come home. Israel says it needs the option.`\
+https://nytimes.com/2024/07/06/world/middleeast/israel-hamas-cease-fire-proposal.html
+
+**Luka Dončić, Slovenia knocked out of Olympic contention**\
+`The failure to qualify marks a major step back for Slovenia, who finished fourth at the 2020 Olympics.`\
+https://nytimes.com/athletic/5620308/2024/07/06/luka-doncic-slovenia-giannis-antetokounmpo-greece-olympic-qualifier/
+
 **Andy Murray: The benevolent thorn in the side that tennis badly needed**\
 `From the best players of his era to assumptions about the sport, Andy Murray is the benevolent thorn in the side that tennis needed`\
 https://nytimes.com/athletic/5582264/2024/07/06/andy-murray-tennis-impact-record/
