@@ -1,3 +1,7 @@
+**:-O**\
+`Evans Clinchy’s puzzle tests our equilibrium.`\
+https://nytimes.com/2024/07/05/crosswords/daily-puzzle-2024-07-06.html
+
 **Wave president Jill Ellis denies allegations of workplace abuse**\
 `Ellis has denied a former employee’s allegations of abuse at the club, saying they are “false accusations” which are “personally damaging."`\
 https://nytimes.com/athletic/5619476/2024/07/05/wave-president-jill-ellis-allegations/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/05/us/wisconsin-dam-overflow.html
 **Dodgers expected to call up fast-rising prospect Justin Wrobleski**\
 `Wrobleski’s arrival plugs an immediate, short-term hole for an injury-riddled Dodgers rotation.`\
 https://nytimes.com/athletic/5617661/2024/07/05/dodgers-prospect-justin-wrobleski/
-
-**‘I’m Staying in the Race,’ Biden Declares**\
-`While speaking at a campaign event in Wisconsin, President Biden reaffirmed his pledge to stay in the 2024 presidential race, despite a weak debate performance last week and calls from some House Democrats to drop out.`\
-https://nytimes.com/video/us/elections/100000009557669/biden-election-2024-trump.html
 
