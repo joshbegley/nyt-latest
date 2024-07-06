@@ -1,3 +1,7 @@
+**The story behind the viral photos of Lionel Messi and a baby Lamine Yamal**\
+`The man who took the viral photos of Messi meeting a baby Yamal explains how two Barcelona stars from different generations met in 2007`\
+https://nytimes.com/athletic/5614184/2024/07/06/lionel-messi-yamine-lamal-photo-barcelona/
+
 **Sykes Faces Challenge in Ohio as Black Democrats Push to Hold White Districts**\
 `Representative Emilia Sykes is one of only a few Black Democrats in Congress who don’t resemble most of their constituents, and whose political survival this year will help determine which party controls the House.`\
 https://nytimes.com/2024/07/06/us/politics/emilia-sykes-ohio-black-democrat.html

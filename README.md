@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5620040/2024/07/06/tour-de-france-cyclist-fined-kis
 https://nytimes.com/live/2024/07/06/us/biden-trump-election/with-his-candidacy-on-the-line-biden-is-returning-to-pennsylvania
 
 **Raducanu withdraws from Wimbledon mixed doubles match with Murray**\
-`Emma Raducanu has pulled out of her mixed doubles match with Andy Murray.`\
+`Andy Murray has played his last match at Wimbledon, after Emma Raducanu pulled out of their mixed doubles pairing with stiffness in her wrist.`\
 https://nytimes.com/athletic/5620089/2024/07/06/emma-raducanu-andy-murray-wimbledon-doubles/
 
 **Wayne S. Smith, a Leading Critic of the Embargo on Cuba, Dies at 91**\
