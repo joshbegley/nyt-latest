@@ -1,3 +1,7 @@
+**Biden Faces More Calls From Democrats to Quit the Race**\
+`Interviews with dozens of Democrats illustrated an imminent clash between a defiant president and those who question his ability to win. Many rank-and-file party officials remain supportive.`\
+https://nytimes.com/2024/07/06/us/politics/biden-campaign-democrats.html
+
 **World No 1 Swiatek out of Wimbledon after defeat to Putintseva**\
 `Iga Swiatek, the world No 1 who has never won Wimbledon, has been eliminated from this year&#8217;s tournament.`\
 https://nytimes.com/athletic/5620479/2024/07/06/iga-swiatek-wimbledon-record-yulia-putintseva/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5618417/2024/07/06/fantasy-baseball-waiver-wire-kyl
 **Sergio Pérez tests Red Bull's faith with mistakes, McLaren on the rise**\
 `Pérez's latest qualifying mistake raises questions about his job security at Red Bull, which is known for making tough driver decisions.`\
 https://nytimes.com/athletic/5620023/2024/07/06/sergio-perez-red-bull-f1/
-
-**Edwards: Under Trajan Langdon, the Pistons appear to be in good hands**\
-`Langdon's patience is a welcomed trait in Detroit, and no one may be more thankful than Cade Cunningham.`\
-https://nytimes.com/athletic/5620165/2024/07/06/trajan-langdon-pistons-cade-cunningham/
 
