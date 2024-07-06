@@ -1,3 +1,11 @@
+**How 5-star LB Riley Pettijohn impacts Ohio Sate's class**\
+`Ohio State now has 23 commitments — including 11 top-100 national prospects — in its top-ranked 2025 class.`\
+https://nytimes.com/athletic/5620120/2024/07/06/ohio-state-recruiting-riley-pettijohn-lb/
+
+**Fantasy baseball waiver wire: Kyle Harrison, Parker Meadows and more adds; plus, two-start pitchers and stashes**\
+`John Laghezza sifts through the advanced analytics to find waiver wire diamonds, with Parker Meadows atop this week's list of discoveries.`\
+https://nytimes.com/athletic/5618417/2024/07/06/fantasy-baseball-waiver-wire-kyle-harrison-parker-meadows-two-start-pitchers-stashes/
+
 **Biden Aides Provided Questions in Advance for His Radio Interviews**\
 `The host of “The Source” on WURD in Philadelphia said officials provided her with a list of eight questions to choose from. The Biden campaign said its staff did not condition the interviews on them.`\
 https://nytimes.com/2024/07/06/us/politics/biden-radio-interviews-questions.html

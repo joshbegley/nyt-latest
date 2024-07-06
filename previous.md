@@ -1,3 +1,11 @@
+**How 5-star LB Riley Pettijohn impacts Ohio Sate's class**\
+`Ohio State now has 23 commitments — including 11 top-100 national prospects — in its top-ranked 2025 class.`\
+https://nytimes.com/athletic/5620120/2024/07/06/ohio-state-recruiting-riley-pettijohn-lb/
+
+**Fantasy baseball waiver wire: Kyle Harrison, Parker Meadows and more adds; plus, two-start pitchers and stashes**\
+`John Laghezza sifts through the advanced analytics to find waiver wire diamonds, with Parker Meadows atop this week's list of discoveries.`\
+https://nytimes.com/athletic/5618417/2024/07/06/fantasy-baseball-waiver-wire-kyle-harrison-parker-meadows-two-start-pitchers-stashes/
+
 **Sergio Pérez tests Red Bull's faith with mistakes, McLaren on the rise**\
 `Pérez's latest qualifying mistake raises questions about his job security at Red Bull, which is known for making tough driver decisions.`\
 https://nytimes.com/athletic/5620023/2024/07/06/sergio-perez-red-bull-f1/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/06/us/politics/biden-radio-interviews-questions.html
 **Winner, Winner, Tandoori Chicken Dinner**\
 `1. Marinate chicken. 2. Roast chicken. 3. Congratulate yourself on a fantastic meal.`\
 https://nytimes.com/2024/07/06/dining/tandoori-chicken-dinner-recipe.html
-
-**The story behind the viral photos of Lionel Messi and a baby Lamine Yamal**\
-`The man who took the viral photos of Messi meeting a baby Yamal explains how two Barcelona stars from different generations met in 2007`\
-https://nytimes.com/athletic/5614184/2024/07/06/lionel-messi-lamine-yamal-photo-barcelona/
-
-**Sykes Faces Challenge in Ohio as Black Democrats Push to Hold White Districts**\
-`Representative Emilia Sykes is one of only a few Black Democrats in Congress who don’t resemble most of their constituents, and whose political survival this year will help determine which party controls the House.`\
-https://nytimes.com/2024/07/06/us/politics/emilia-sykes-ohio-black-democrat.html
 
