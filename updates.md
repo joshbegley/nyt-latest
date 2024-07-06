@@ -1,3 +1,7 @@
+**England are not convincing, but who cares? It's time to just enjoy the ride**\
+`'HMS Gazball' keeps sailing on despite almost being sunk multiple times - but do performances even matter now?`\
+https://nytimes.com/athletic/5618269/2024/07/06/england-euro-2024-southgate/
+
 **Euro 2024 day 23: 'England's 'cheat code' water bottle and can Dutch go all the way?**\
 `The major talking points on the second day of quarter-finals at Euro 2024`\
 https://nytimes.com/athletic/5620295/2024/07/06/euro-2024-day-23-england-bottle/
