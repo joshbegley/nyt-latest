@@ -1,3 +1,7 @@
+**Reformist Candidate Wins Iran’s Presidential Election**\
+`Masoud Pezeshkian defeated an ultraconservative former nuclear negotiator, Saeed Jalili, in a runoff.`\
+https://nytimes.com/2024/07/05/world/middleeast/iran-election-reformist-wins.html
+
 **Takeaways: Canada wins penalty shootout to advance to Copa America semifinal**\
 `Canada advances for a rematch against Argentina and Lionel Messi.`\
 https://nytimes.com/athletic/5619544/2024/07/05/canada-venezuela-copa-america-penalty-shootout/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/05/us/politics/biden-interview-takeaways.html
 **Loyal Democratic Voters React to Biden Interview With Relief, and Despair**\
 `“I tell you, he looked a whole lot better than the debate,” said one voter in Detroit.`\
 https://nytimes.com/2024/07/05/us/politics/biden-democratic-voters-abc-interview.html
-
-**Pirates blast 7 homers in domination over Mets, run out of fireworks**\
-`The Pirates blasted seven home runs en route to a 14-2 clobbering of the Mets.`\
-https://nytimes.com/athletic/5619499/2024/07/05/pirates-mets-fireworks-home-runs/
 
