@@ -1,3 +1,7 @@
+**Dodgers have plenty to learn about outfield picture before trade deadline**\
+`The Dodgers got an 8-5 come-from-behind win over the Brewers on Friday but could be in the market for an outfielder.`\
+https://nytimes.com/athletic/5619668/2024/07/06/dodgers-outfield-trade-deadline-brewers/
+
 **Two Teenagers Drown Off Brooklyn Beach**\
 `The girls, ages 17 and 18, went into the water near the Coney Island boardwalk as thunderstorms rolled in. It was the second pair of drownings off city beaches in two weeks.`\
 https://nytimes.com/2024/07/06/nyregion/coney-island-teens-drown.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5619360/2024/07/06/germany-exit-euro2024-muller/
 **Answering children's questions about England at Euro 2024 - feet, dogs and what if they lose?**\
 `Kane's midfield role, rainbow flicks, feet sizes, dogs and why men and women can't play together are all on the agenda `\
 https://nytimes.com/athletic/5618331/2024/07/06/answering-children-questions-england/
-
-**Thomas Christiansen: The other ex-Leeds boss making waves at Copa America**\
-`His time at Leeds wasn't a great success, but the story is very different with Panama at the Copa America`\
-https://nytimes.com/athletic/5613859/2024/07/06/thomas-christiansen-panama-copa-america-leeds/
 

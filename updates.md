@@ -1,3 +1,7 @@
+**Dodgers have plenty to learn about outfield picture before trade deadline**\
+`The Dodgers got an 8-5 come-from-behind win over the Brewers on Friday but could be in the market for an outfielder.`\
+https://nytimes.com/athletic/5619668/2024/07/06/dodgers-outfield-trade-deadline-brewers/
+
 **Two Teenagers Drown Off Brooklyn Beach**\
 `The girls, ages 17 and 18, went into the water near the Coney Island boardwalk as thunderstorms rolled in. It was the second pair of drownings off city beaches in two weeks.`\
 https://nytimes.com/2024/07/06/nyregion/coney-island-teens-drown.html
