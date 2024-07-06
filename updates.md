@@ -1,3 +1,7 @@
+**Four Takeaways From Biden’s Post-Debate Interview**\
+`In his first television interview since the debate, President Biden tried to reassure supporters, but he spent much of the interview resisting questions about his capabilities.`\
+https://nytimes.com/2024/07/05/us/politics/biden-interview-takeaways.html
+
 **Loyal Democratic Voters React to Biden Interview With Relief, and Despair**\
 `“I tell you, he looked a whole lot better than the debate,” said one voter in Detroit.`\
 https://nytimes.com/2024/07/05/us/politics/biden-democratic-voters-abc-interview.html
