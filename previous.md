@@ -1,5 +1,5 @@
-**World No. 1 Iga Swiatek out of Wimbledon after defeat to Yulia Putintseva**\
-`Iga Swiatek, the world No.`\
+**World No 1 Swiatek out of Wimbledon after defeat to Putintseva**\
+`Iga Swiatek, the world No 1 who has never won Wimbledon, has been eliminated from this year&#8217;s tournament.`\
 https://nytimes.com/athletic/5620479/2024/07/06/iga-swiatek-wimbledon-record-yulia-putintseva/
 
 **Judge Delays Some Deadlines in Trump Classified Documents Case**\
