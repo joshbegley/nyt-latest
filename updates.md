@@ -1,3 +1,7 @@
+**Bronny James scores 4 points in NBA Summer League debut**\
+`James finished with four points, two assists, two rebounds and a steal in 22 minutes.`\
+https://nytimes.com/athletic/5620944/2024/07/06/bronny-james-summer-league-debut-lakers-kings/
+
 **Cubs notes: Hendricks' tight back and the impact on rotation, Swanson's struggles and more**\
 `Plus notes on the Cubs' catching situation and Christopher Morel getting an unexpected day off against a lefty starter.`\
 https://nytimes.com/athletic/5620905/2024/07/06/cubs-kyle-hendricks-tight-back-dansby-swanson-struggles/
