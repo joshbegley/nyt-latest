@@ -1,3 +1,11 @@
+**Levshunov signing entry-level contract with Blackhawks**\
+`Arytom Levshunov, the second pick in the 2024 NHL draft, is turning pro and will not return to Michigan State.`\
+https://nytimes.com/athletic/5620990/2024/07/06/artyom-levshunov-signing-blackhawks/
+
+**Cubs notes: Kyle Hendricks' tight back and impact on rotation, Dansby Swanson's struggles**\
+`Plus notes on the Cubs' catching situation and Christopher Morel getting an unexpected day off against a lefty starter.`\
+https://nytimes.com/athletic/5620905/2024/07/06/cubs-kyle-hendricks-tight-back-dansby-swanson-struggles/
+
 **Bronny James scores 4 points in NBA Summer League debut**\
 `James finished with four points, two assists, two rebounds and a steal in 22 minutes.`\
 https://nytimes.com/athletic/5620944/2024/07/06/bronny-james-summer-league-debut-lakers-kings/
