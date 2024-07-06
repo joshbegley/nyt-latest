@@ -1,3 +1,7 @@
+**Amusement Park**\
+`A trip to some of the happiest places on Earth.`\
+https://nytimes.com/2024/07/06/podcasts/amusement-park-this-american-life-nyt-audio.html
+
 **Adidas renames 11pro boots after Toni Kroos**\
 `Adidas has renamed its 11pro boots after Germany midfielder Toni Kroos.`\
 https://nytimes.com/athletic/5619864/2024/07/06/adidas-11pro-toni-kroos-boots/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/06/world/canada/canada-greenwashing-oil-sands.html
 **Wordle Review No. 1,114, July 7, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/06/crosswords/wordle-review-1114.html
-
-**The Connections Companion No. 392, July 7, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/06/crosswords/connections-companion-392.html
 
