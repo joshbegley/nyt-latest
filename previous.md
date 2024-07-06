@@ -1,3 +1,11 @@
+**Canada's men's national team might never look the same again**\
+`Canada’s men have been known to wilt at big moments. But that experience has made them stronger`\
+https://nytimes.com/athletic/5620378/2024/07/06/canada-copa-america-marsch-win/
+
+**F1 British GP preview: It's time for a 'Battle of the Brits' at Silverstone**\
+`Opportunity for the British drivers. Redemption for Pérez. Damage-control for Ferrari. And all the while, Verstappen looms. `\
+https://nytimes.com/athletic/5620459/2024/07/06/f1-british-gp-preview/
+
 **Biden Faces More Calls From Democrats to Quit the Race**\
 `Interviews with dozens of Democrats illustrated an imminent clash between a defiant president and those who question his ability to win. Many rank-and-file party officials remain supportive.`\
 https://nytimes.com/2024/07/06/us/politics/biden-campaign-democrats.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5620288/2024/07/06/khyree-jackson-died-car-accident
 **How 5-star LB Riley Pettijohn impacts Ohio Sate's class**\
 `Ohio State now has 23 commitments — including 11 top-100 national prospects — in its top-ranked 2025 class.`\
 https://nytimes.com/athletic/5620120/2024/07/06/ohio-state-recruiting-riley-pettijohn-lb/
-
-**Fantasy baseball waiver wire: Kyle Harrison, Parker Meadows and more adds; plus, two-start pitchers and stashes**\
-`John Laghezza sifts through the advanced analytics to find waiver wire diamonds, with Parker Meadows atop this week's list of discoveries.`\
-https://nytimes.com/athletic/5618417/2024/07/06/fantasy-baseball-waiver-wire-kyle-harrison-parker-meadows-two-start-pitchers-stashes/
-
-**Sergio Pérez tests Red Bull's faith with mistakes, McLaren on the rise**\
-`Pérez's latest qualifying mistake raises questions about his job security at Red Bull, which is known for making tough driver decisions.`\
-https://nytimes.com/athletic/5620023/2024/07/06/sergio-perez-red-bull-f1/
 

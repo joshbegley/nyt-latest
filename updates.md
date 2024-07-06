@@ -1,3 +1,11 @@
+**Canada's men's national team might never look the same again**\
+`Canada’s men have been known to wilt at big moments. But that experience has made them stronger`\
+https://nytimes.com/athletic/5620378/2024/07/06/canada-copa-america-marsch-win/
+
+**F1 British GP preview: It's time for a 'Battle of the Brits' at Silverstone**\
+`Opportunity for the British drivers. Redemption for Pérez. Damage-control for Ferrari. And all the while, Verstappen looms. `\
+https://nytimes.com/athletic/5620459/2024/07/06/f1-british-gp-preview/
+
 **Biden Faces More Calls From Democrats to Quit the Race**\
 `Interviews with dozens of Democrats illustrated an imminent clash between a defiant president and those who question his ability to win. Many rank-and-file party officials remain supportive.`\
 https://nytimes.com/2024/07/06/us/politics/biden-campaign-democrats.html
