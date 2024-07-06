@@ -1,3 +1,7 @@
+**Stanley Moss, Poet Who Evoked a Troubled World, Dies at 99**\
+`His moving and often painful free-verse observations on friends’ deaths, the Holocaust and other topics won him many devoted fans.`\
+https://nytimes.com/2024/07/06/books/stanley-moss-dead.html
+
 **4 Takeaways From Iran’s Presidential Runoff**\
 `The victory of the reformist candidate, Masoud Pezeshkian, is expected to bring change, but to what extent is still an open question.`\
 https://nytimes.com/2024/07/06/world/middleeast/iran-president-election-takeaways.html
