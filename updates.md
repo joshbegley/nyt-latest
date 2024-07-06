@@ -1,3 +1,7 @@
+**Interview Appears to Change Few Democratic Officials’ Views on Biden**\
+`Both Democratic supporters of Biden’s campaign and those who have called for him to drop out signaled that the president’s interview with ABC News only reaffirmed their stances on his candidacy.`\
+https://nytimes.com/2024/07/05/us/politics/biden-abc-news-interview-democratic-reaction.html
+
 **Interview Seemed Not to Change Democratic Officials’ Views on Biden, Either Way**\
 `Both Democratic supporters of Biden’s campaign and those who have called for him to drop out signaled that the president’s interview with ABC News only reaffirmed their stances on his candidacy.`\
 https://nytimes.com/2024/07/05/us/politics/biden-abc-news-interview-democratic-reaction.html
