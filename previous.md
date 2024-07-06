@@ -1,8 +1,16 @@
-**$235,000 Settlement Is Reached After Police Raid a Kansas Newspaper**\
+**Hornets re-sign Miles Bridges to 3-year deal**\
+`Bridges returns to Charlotte after a season in which he averaged career highs of 21 points and 7.3 rebounds per game.`\
+https://nytimes.com/athletic/5603475/2024/07/06/miles-bridges-nba-free-agency/
+
+**Caitlin Clark becomes first rookie to record triple-double**\
+`Clark became a regular triple-double machine during her time at Iowa, tallying a Big Ten record (men's or women's) 17 triple-doubles.`\
+https://nytimes.com/athletic/5620625/2024/07/06/caitlin-clark-triple-double-rookie-wnba-history/
+
+**$235,000 Settlement Is Reached in Police Raid of a Kansas Newspaper**\
 `A former reporter of The Marion County Record has settled a lawsuit following a raid on the weekly newspaper last year that garnered widespread attention.`\
 https://nytimes.com/2024/07/06/business/media/marion-county-record-raid-settlement-kansas.html
 
-**England 1 Switzerland 1 (AET: 5-3 on penalties): Saka stars, ice-cool spot-kicks, system success?**\
+**England 1 Switzerland 1 (AET: 5-3 on penalties): Saka stars, ice-cool spot kicks, system success?**\
 `England beat Switzlerland 5-3 on penalties in a nervy quarter-final of Euro 2024. Our writers bring you the key talking points.`\
 https://nytimes.com/athletic/5617999/2024/07/06/england-1-switzerland-1-penalties-result-saka/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5620479/2024/07/06/iga-swiatek-wimbledon-record-yul
 **Judge Delays Some Deadlines in Trump Classified Documents Case**\
 `The postponement was likely to cause only minor delays to the case, which has already slowed to a crawl with Judge Aileen Cannon’s previous decisions.`\
 https://nytimes.com/2024/07/06/us/politics/trump-classified-documents-case-delay.html
-
-**Hamas’s Cease-Fire Proposal Includes a Familiar Sticking Point**\
-`Hamas wants assurances that Israel won’t restart the war after some hostages come home. Israel says it needs the option.`\
-https://nytimes.com/2024/07/06/world/middleeast/israel-hamas-cease-fire-proposal.html
-
-**Luka Dončić, Slovenia knocked out of Olympic contention**\
-`The failure to qualify marks a major step back for Slovenia, who finished fourth at the 2020 Olympics.`\
-https://nytimes.com/athletic/5620308/2024/07/06/luka-doncic-slovenia-giannis-antetokounmpo-greece-olympic-qualifier/
 
