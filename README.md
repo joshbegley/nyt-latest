@@ -1,40 +1,40 @@
-**Two Young Drivers Take the Wheel. One, a Teen. The Other, a Tesla.**\
-`Can my son learn from the example of the robot controlling the steering wheel? Or should it be the other way around?`\
-https://nytimes.com/2024/07/06/business/tesla-teen-driver.html
+**I Don’t Give a Damn About My Dad Reputation**\
+`A longtime “Freaks and Geeks” fan reconsiders what it means to be one of the cool kids.`\
+https://nytimes.com/2024/07/06/arts/television/freaks-and-geeks-illustrated.html
 
-**When Your Identical Twin Wins a Grammy**\
-`Junia Lin Jonsdottir helped create the romantic visual world inhabited by her sister, the singer-songwriter Laufey. Please stop asking if she’s jealous.`\
-https://nytimes.com/2024/07/06/style/laufey-twin-sister-junia-lin-jonsdottir.html
+**Whoever the Democratic Candidate Is, Americans Have Already Lost**\
+`The American Republic feels fragile.`\
+https://nytimes.com/2024/07/06/opinion/biden-debate-scotus-immunity.html
 
-**In Manhattan Real Estate, Cash Is Everything**\
-`All-cash purchases shot up to 64 percent of home sales in the borough. Here’s who’s buying.`\
-https://nytimes.com/2024/07/06/upshot/manhattan-real-estate-cash.html
+**In the French Countryside, a Deep Discontent Takes Root**\
+`In northern Burgundy, services have collapsed and the far-right National Rally has risen.`\
+https://nytimes.com/2024/07/06/world/europe/rural-france-national-rally-appeal.html
 
-**Crosby's 'roller coaster' watching Canadian sporting heroes being made**\
-`Sidney Crosby is used to being the star attraction - but at the Copa America he was in awe of the Canada soccer team and went to tell them`\
-https://nytimes.com/athletic/5619790/2024/07/06/sidney-crosby-canada-copa-america/
+**These Obscure Democrats Could Soon Become Kingmakers**\
+`President Biden insisted on Friday that he would stay in the race. But if he decides to step aside, these individuals will determine who leads the ticket.`\
+https://nytimes.com/2024/07/06/us/politics/biden-replacement-dnc-delegates.html
 
-**Kilman joins West Ham from Wolves**\
-`West Ham United have completed the signing of Max Kilman from Wolverhampton Wanderers.`\
-https://nytimes.com/athletic/5616887/2024/07/06/max-kilman-west-ham/
+**What Do Bagged Chickens Have to Do With Sliced Cheese?**\
+`Both have gotten caught up in fights over plastic packaging. When Costco recently tried to trim its plastic use by selling rotisserie chickens in bags, some shoppers disapproved.`\
+https://nytimes.com/2024/07/06/climate/costco-chicken-bags-sliced-cheese-plastic.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/07/06/crosswords/spelling-bee-forum.html
+**Your Brain Holds Secrets. Scientists Want to Find Them.**\
+`Many Americans plan to donate their organs for transplants or their bodies for medical science. Few realize that there’s a growing need for their brains, too.`\
+https://nytimes.com/2024/07/06/health/brain-donation.html
 
-**How Kaitlin Becker, Meekah From ‘Blippi,’ Spends Her Sundays**\
-`She makes children laugh during the week, but on Sundays it’s her turn to enjoy herself: movies, fancy treats and museum trips with her 6-year-old son.`\
-https://nytimes.com/2024/07/06/nyregion/kaitlin-becker-meekah-blippi.html
+**Senate Republicans Are Now in the Mix for Top Posts in a Trump Presidency**\
+`It’s a change from 2016, when House Republicans were the preferred candidates. At least two senators — J.D. Vance and Marco Rubio — are on the short list for the vice president slot.`\
+https://nytimes.com/2024/07/06/us/politics/trump-vice-president-cabinet-vance-rubio-scott.html
 
-**For Older People Who Are Lonely, Is the Solution a Robot Friend?**\
-`New York officials believe a robotic companion called ElliQ, which can discuss complicated subjects, is helping older residents feel less alone. Critics are concerned about data collection.`\
-https://nytimes.com/2024/07/06/nyregion/ai-robot-elliq-loneliness.html
+**A Mark of Shame for 900 Years. Until Now?**\
+`“Felon” carries an ancient stigma — one that falls on millions of Americans today. Trump might well redefine it.`\
+https://nytimes.com/2024/07/06/us/trump-felon-definition.html
 
-**Emma Raducanu's Centre Court calm needs nurturing as much as admiring**\
-`As Emma Raducanu partners Andy Murray at Wimbledon, she looks capable of inheriting his British mantle at SW19 — on her terms`\
-https://nytimes.com/athletic/5618994/2024/07/06/emma-raducanu-wimbledon-andy-murray-mixed-doubles/
+**Making an Offer: When Is It Lowballing, and When Is It Just a Fair Price?**\
+`Prospective buyers should limit any offer to the value of a property as they see it.`\
+https://nytimes.com/2024/07/06/realestate/lowball-offers.html
 
-**Yankees fail to take accountability after embarrassing meltdown against Red Sox**\
-`The Yankees have lost 15 of their last 20 games. Nestor Cortes said he doesn’t think anyone is panicking inside the clubhouse.`\
-https://nytimes.com/athletic/5619546/2024/07/06/yankees-meltdown-red-sox/
+**Ti West Is Turning Hollywood Into a Horror Show**\
+`His “X” trilogy — which culminates with “MaXXXine” — obsesses over cinema, stardom and the industry itself.`\
+https://nytimes.com/2024/07/06/magazine/ti-west-x-trilogy.html
 
