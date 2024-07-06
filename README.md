@@ -1,3 +1,7 @@
+**Hamas’s Cease-Fire Proposal Includes a Familiar Sticking Point**\
+`Hamas wants assurances that Israel won’t restart the war after some hostages come home. Israel says it needs the option.`\
+https://nytimes.com/2024/07/06/world/middleeast/israel-hamas-cease-fire-proposal.html
+
 **Luka Dončić, Slovenia knocked out of Olympic contention**\
 `The failure to qualify marks a major step back for Slovenia, who finished fourth at the 2020 Olympics.`\
 https://nytimes.com/athletic/5620308/2024/07/06/luka-doncic-slovenia-giannis-antetokounmpo-greece-olympic-qualifier/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/06/sports/tennis/vic-seixas-dead.html
 **Spain's Pedri out of Euro 2024 with left knee injury**\
 `Spain midfielder Pedri has been ruled out of the rest of the European Championship after suffering a left knee injury.`\
 https://nytimes.com/athletic/5620151/2024/07/06/pedri-injury-spain-euro-2024/
-
-**George Russell takes British GP pole, leads all-British top three in qualifying**\
-`Russell will lead countrymen Lewis Hamilton and Lando Norris to start the British GP on Sunday. `\
-https://nytimes.com/athletic/5620229/2024/07/06/george-russell-british-gp-pole-lewis-hamilton-lando-norris/
 
