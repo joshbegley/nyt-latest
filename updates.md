@@ -1,3 +1,7 @@
+**Netherlands 2 Turkey 1 - The Briefing: Weghorst's impact, Guler shines and Dutch comeback courage**\
+`Tim Spiers, Jordan Campbell and Liam Tharme analyse the key talking points from the Netherlands' 2-1 Turkey at Euro 2024`\
+https://nytimes.com/athletic/5618000/2024/07/06/netherlands-2-turkey-1-euro-2024-briefing/
+
 **Saka ‘embraced’ penalty pressure as England beat Switzerland**\
 `Bukayo Saka said he &#8220;embraced&#8221; the opportunity to banish his penalty shootout demons after England’s players held their nerve to reach the European Championship semi-final.`\
 https://nytimes.com/athletic/5620782/2024/07/06/bukayo-saka-penalty-england-switzerland/
