@@ -1,3 +1,7 @@
+**Crisis? What Crisis? Biden Rejects Democratic Pessimism**\
+`After last week’s devastating debate performance, the president’s prime-time interview with ABC News was an exercise in not just damage control but reality control.`\
+https://nytimes.com/2024/07/06/us/politics/biden-rejects-democratic-pessimism.html
+
 **Thomas Christiansen: The other ex-Leeds boss making waves at Copa America**\
 `His time at Leeds wasn't a great success, but the story is very different with Panama at the Copa America`\
 https://nytimes.com/athletic/5613859/2024/07/06/thomas-christiansen-panama-copa-america-leeds/
