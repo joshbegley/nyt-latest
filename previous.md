@@ -1,3 +1,7 @@
+**At a Pennsylvania rally with Newsom, Democrats double down on support for Biden.**\
+`By Kate Selig`\
+https://nytimes.com/live/2024/07/06/us/biden-trump-election/biden-newsom-pennsylvania
+
 **Saka 'embraced' penalty pressure as England beat Switzerland**\
 `Bukayo Saka said he &#8220;embraced&#8221; the opportunity to banish his penalty shootout demons after England’s players held their nerve to reach the European Championship semi-final.`\
 https://nytimes.com/athletic/5620782/2024/07/06/bukayo-saka-penalty-england-switzerland/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5620553/2024/07/06/harry-kane-injury-southgate/
 **Fact-Checking Biden’s ABC Interview**\
 `The president defended his debate performance with exaggerations about polling, his recent appearances and his opponent.`\
 https://nytimes.com/2024/07/06/us/politics/biden-abc-interview-fact-check.html
-
-**Stanley Moss, Poet Who Evoked a Troubled World, Dies at 99**\
-`His moving and often painful free-verse observations on friends’ deaths, the Holocaust and other topics won him many devoted fans.`\
-https://nytimes.com/2024/07/06/books/stanley-moss-dead.html
 

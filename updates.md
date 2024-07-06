@@ -1,3 +1,7 @@
+**At a Pennsylvania rally with Newsom, Democrats double down on support for Biden.**\
+`By Kate Selig`\
+https://nytimes.com/live/2024/07/06/us/biden-trump-election/biden-newsom-pennsylvania
+
 **Twins' Jose Miranda ties MLB record with hits in 12 straight at-bats**\
 `During the 12-for-12 streak, Miranda raised his batting average from .294 to .329.`\
 https://nytimes.com/athletic/5620741/2024/07/06/jose-miranda-mlb-record-consecutive-hits-twins/
