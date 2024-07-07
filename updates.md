@@ -1,3 +1,7 @@
+**Texas has a long and deadly history of hurricanes.**\
+`South Texans are bracing for the arrival of a powerful hurricane, as have generations of Texans before them.`\
+https://nytimes.com/2024/07/07/us/texas-hurricane-history.html
+
 **Brighton sign Cozier-Duberry after Arsenal exit**\
 `Brighton have completed the signing of Amario Cozier-Duberry from Arsenal on a four-year contract.`\
 https://nytimes.com/athletic/5622065/2024/07/07/brighton-transfers-amario-cozier-duberry-arsenal/

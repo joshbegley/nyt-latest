@@ -30,7 +30,7 @@ https://nytimes.com/athletic/5621320/2024/07/07/demar-derozan-kings-trade-sacram
 `The seven-time world champion's win marks Mercedes' second consecutive victory this season.`\
 https://nytimes.com/athletic/5621950/2024/07/07/lewis-hamilton-wins-british-grand-prix-after-945-day-f1-victory-drought/
 
-**Texas has a long and deadly history of hurricanes.**\
+**A Brief History of Hurricanes That Hit Texas**\
 `South Texans are bracing for the arrival of a powerful hurricane, as have generations of Texans before them.`\
 https://nytimes.com/2024/07/07/us/texas-hurricane-history.html
 

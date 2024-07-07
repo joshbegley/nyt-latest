@@ -32,7 +32,7 @@ https://nytimes.com/athletic/5621950/2024/07/07/lewis-hamilton-wins-british-gran
 
 **Texas has a long and deadly history of hurricanes.**\
 `South Texans are bracing for the arrival of a powerful hurricane, as have generations of Texans before them.`\
-https://nytimes.com/live/2024/07/07/us/hurricane-beryl-texas/texas-has-a-long-and-deadly-history-of-hurricanes
+https://nytimes.com/2024/07/07/us/texas-hurricane-history.html
 
 **Madison Keys cries on court as injury ends Wimbledon quarter-final dream**\
 `The American No. 12 seed was 5-2 up and heading for the last eight, before injury scuppered her chances`\
