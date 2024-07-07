@@ -1,3 +1,15 @@
+**Texas Braces for Beryl, With Over a Million Under a Hurricane Warning**\
+`Beryl, which weakened to a tropical storm, is expected to intensify again and could make landfall on the Texas coast as a Category 1 hurricane as soon as Monday morning, forecasters say.`\
+https://nytimes.com/2024/07/07/us/beryl-hurricane-texas.html
+
+**Resilience Has Fueled Biden’s Career. But So Has Defiance.**\
+`The resilience that President Biden sold as a trademark of his political brand for half a century now looks to some like blind resistance in the face of a rising tide.`\
+https://nytimes.com/2024/07/07/us/politics/bidens-resiliance-defiance.html
+
+**A Brooklyn Jewelry Brand Takes Flight**\
+`Twenty years after opening in Williamsburg, Catbird is expanding across America.`\
+https://nytimes.com/2024/07/07/style/catbird-jewelry-stores.html
+
 **Corrections: July 7, 2024**\
 `Corrections that appeared in print on Sunday, July 7, 2024.`\
 https://nytimes.com/2024/07/07/pageoneplus/corrections-july-7-2024.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/07/us/politics/trump-vice-president.html
 **New-look Hurricanes: Analyzing the roster after interesting offseason decisions**\
 `Are the Hurricanes as good of a team as they were when their season ended in mid-May?`\
 https://nytimes.com/athletic/5619620/2024/07/07/carolina-hurricanes-roster-offseason/
-
-**Blue Jackets Sunday Gathering: New TV voice Steve Mears' long-ago dream realized**\
-`Mears once drove two hours to watch a Blue Jackets game, and dreamed of what it would be like to work in an NHL press box.`\
-https://nytimes.com/athletic/5620090/2024/07/07/blue-jackets-tv-mears/
-
-**McCarthy’s Revenge Tour Rolls On, With Mixed Results**\
-`The former speaker has spent much of his time, energy and money since leaving Congress in a bid to defeat the Republicans who cost him his gavel — and his political career.`\
-https://nytimes.com/2024/07/07/us/politics/kevin-mccarthy-revenge-tour.html
-
-**New Plan to Target Russia’s Oil Revenue Brings Debate in White House**\
-`Treasury officials want to impose penalties on tankers that help Russian oil evade sanctions. White House aides worry that risks making gasoline more expensive.`\
-https://nytimes.com/2024/07/07/us/politics/russia-oil-ukraine-shadow-fleet.html
 
