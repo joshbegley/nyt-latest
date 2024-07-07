@@ -1,3 +1,7 @@
+**Antetokounmpo, Greece claim spot in Olympics with win over Croatia**\
+`Antetokounmpo finished with 23 points, eight rebounds and three assists en route to qualifying for his first Olympic games.`\
+https://nytimes.com/athletic/5622438/2024/07/07/giannis-antetokounmpo-olympics-greece-croatia/
+
 **Officials Urge Coastal Texans to Evacuate, but Some Are Unfazed**\
 `Despite warnings that Beryl could be a “deadly storm,” many local residents decided to stay put, gambling that they could survive its wind and rains.`\
 https://nytimes.com/2024/07/07/us/texas-evacuations-storm-beryl.html
