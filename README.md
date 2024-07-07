@@ -1,3 +1,7 @@
+**Why LeBron took $3 million less in Lakers deal**\
+`James is signing a two-year, $101.355 million deal instead of the two-year, $104 million maximum he could’ve re-signed for.`\
+https://nytimes.com/athletic/5621333/2024/07/07/lebron-james-lakers-contract-nba/
+
 **NATO Has to Change. Here’s How.**\
 `It is increasingly clear that Europeans need to shoulder more responsibility for their own defense.`\
 https://nytimes.com/2024/07/07/opinion/nato-europe-us-ukraine-defense.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5615274/2024/07/07/mlb-odds-predictions-best-bets-j
 **‘A Little Scary’: Ukraine Tries to Stay Neutral in U.S. Political Dogfight**\
 `With President Biden’s future unclear, Donald J. Trump’s support uncertain and a major NATO meeting looming, Ukrainian leaders are straining to keep their balance.`\
 https://nytimes.com/2024/07/07/world/europe/biden-trump-ukraine-russia.html
-
-**Hopes for a Diplomatic Opening Rise Under Iran’s New President**\
-`Masoud Pezeshkian, a reformist, wants warmer relations with the West, with the goal of ending sanctions. But his powers are strictly limited.`\
-https://nytimes.com/2024/07/07/world/middleeast/iran-peveshkian-khamenei-nuclear.html
 
