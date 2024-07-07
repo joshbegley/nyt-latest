@@ -1,3 +1,19 @@
+**Weeks After Alice Munro’s Death, Daughter Tells of Dark Family Secret**\
+`Andrea Skinner said in the Toronto Star that her stepfather sexually abused her at age 9, and that her mother stayed with him after she learned of it.`\
+https://nytimes.com/2024/07/07/books/alice-munro-daughter-abuse.html
+
+**Four top House Democrats told colleagues privately that it’s time for Biden to withdraw.**\
+`At least four ranking members of House committees shared their assessment during a virtual meeting of top Democrats convened by Representative Hakeem Jeffries of New York, the minority leader.`\
+https://nytimes.com/live/2024/07/07/us/biden-trump-election/four-top-house-democrats-told-colleagues-privately-that-its-time-for-biden-to-withdraw
+
+**Chicago Cubs pitcher Colten Brewer broke his hand punching a wall in frustration **\
+`The Cubs placed Brewer on the 60-day injured list. He will see a hand specialist on Tuesday.`\
+https://nytimes.com/athletic/5622482/2024/07/07/chicago-cubs-pitcher-colten-brewer-broke-hand-punching-wall/
+
+**French Election Yields Deadlock as Left Surges and Far Right Comes Up Short**\
+`The outcome left no party with an absolute majority and France bracing for potential political paralysis.`\
+https://nytimes.com/2024/07/07/world/europe/france-election-results-left-surges.html
+
 **Antetokounmpo, Greece claim spot in Olympics with win over Croatia**\
 `Antetokounmpo finished with 23 points, eight rebounds and three assists en route to qualifying for his first Olympic games.`\
 https://nytimes.com/athletic/5622438/2024/07/07/giannis-antetokounmpo-olympics-greece-croatia/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/07/07/us/hurricane-beryl-path-mexico-carriacou.html
 **Raducanu's Wimbledon is over after loss to qualifier Lulu Sun**\
 `Emma Raducanu&#8217;s Wimbledon is over after losing to New Zealand qualifier Lulu Sun on Centre Court on Sunday.`\
 https://nytimes.com/athletic/5622344/2024/07/07/emma-raducanu-wimbledon-lulu-sun/
-
-**Arsenal contact Wolves over goalkeeper Dan Bentley transfer interest**\
-`Arsenal have contacted Wolverhampton Wanderers to express an interest in signing goalkeeper Dan Bentley.`\
-https://nytimes.com/athletic/5622313/2024/07/07/dan-bentley-wolves-arsenal-transfer-news/
-
-**Lewis Hamilton’s joyful tears and British GP win mark the end of two doubt-filled years**\
-`Stay informed on all the biggest stories in Formula One.`\
-https://nytimes.com/athletic/5622041/2024/07/07/lewis-hamilton-f1-british-grand-prix-win-silverstone/
-
-**Beryl Is Unlikely to Bring Relief to Drought-Stricken Parts of Texas**\
-`About a quarter of the state is in drought, but Beryl’s forecast path shows  that rainfall is unlikely for those areas.`\
-https://nytimes.com/2024/07/07/us/texas-drought-beryl-hurricane-storm.html
-
-**Bayern confirm signing of Olise**\
-`Bayern Munich have completed the signing of Michael Olise from Crystal Palace on a five-year contract.`\
-https://nytimes.com/athletic/5582118/2024/07/07/michael-olise-bayern-munich-transfer-palace/
 
