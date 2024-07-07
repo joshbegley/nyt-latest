@@ -1,3 +1,7 @@
+**Quotation of the Day: Calls for President to Quit Set Up Clash Within Party**\
+`Quotation of the Day for Sunday, July 7, 2024.`\
+https://nytimes.com/2024/07/07/pageoneplus/quotation-of-the-day-calls-for-president-to-quit-set-up-clash-within-party.html
+
 **Manchester United return to training: What next for Greenwood, Sancho and transfers?**\
 `The main questions facing Manchester United as the first-team start to return to pre-season training`\
 https://nytimes.com/athletic/5618382/2024/07/07/manchester-united-greenwood-sancho-pre-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5621257/2024/07/06/phillies-ranger-suarez-all-star-
 **Takeaways as Uruguay knock out Brazil on penalties in dirtiest game of the tournament**\
 `This quarter-final had more fouls than moments of quality - The Athletic dissects the big talking points`\
 https://nytimes.com/athletic/5621161/2024/07/06/brazil-uruguay-most-fouls-copa-america/
-
-**Pakistan Withers Under Deadly Heat and Fears the Coming Rains**\
-`Karachi, Pakistan’s largest city, endured days of temperatures above 100 Fahrenheit, made worse by power cuts and high humidity.`\
-https://nytimes.com/2024/07/06/world/asia/pakistan-heat-wave.html
 
