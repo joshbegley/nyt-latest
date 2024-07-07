@@ -1,3 +1,7 @@
+**Raducanu's Wimbledon is over after loss to qualifier Lulu Sun**\
+`Emma Raducanu&#8217;s Wimbledon is over after losing to New Zealand qualifier Lulu Sun on Centre Court on Sunday.`\
+https://nytimes.com/athletic/5622344/2024/07/07/emma-raducanu-wimbledon-lulu-sun/
+
 **Arsenal contact Wolves over goalkeeper Dan Bentley transfer interest**\
 `Arsenal have contacted Wolverhampton Wanderers to express an interest in signing goalkeeper Dan Bentley.`\
 https://nytimes.com/athletic/5622313/2024/07/07/dan-bentley-wolves-arsenal-transfer-news/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/07/world/france-election-2024/macron-national-r
 **Marco Rubio, Contender to Be Trump’s Running Mate, Defends Supreme Court’s Immunity Ruling**\
 `“I think what the Supreme Court did is, it clarified what the law is,” Senator Rubio, a Florida Republican, said on CNN on Sunday.`\
 https://nytimes.com/2024/07/07/us/politics/trump-vp-immunity-rubio.html
-
-**Here Are the Key Players in France’s Election**\
-`The vote has turned into a race between the two main opponents of President Emmanuel Macron’s Renaissance party: the far-right National Rally and the New Popular Front, a left-wing coalition.`\
-https://nytimes.com/2024/07/07/world/europe/france-election-key-players.html
 
