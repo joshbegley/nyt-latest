@@ -1,3 +1,11 @@
+**Thiago retires following Liverpool exit**\
+`Thiago has retired from football following his departure from Liverpool.`\
+https://nytimes.com/athletic/5621886/2024/07/07/thiago-retires-liverpool-barcelona-bayern/
+
+**When a Father Gets Kidnapped, His Family Pays the Price**\
+`“Long Island Compromise,” the new novel by the author of “Fleishman Is in Trouble,” fictionalizes a true story.`\
+https://nytimes.com/2024/07/07/books/review/taffy-brodesser-akner-long-island-compromise.html
+
 **The Pulse: Tourney penalty kicks and a new Netflix option**\
 `Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5621882/2024/07/07/copa-america-euros-tour-de-france-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/07/us/politics/spacex-boca-chica-takeaways.html
 **Wildlife Protections Take a Back Seat to SpaceX’s Ambitions**\
 `A New York Times investigation found that Elon Musk exploited federal agencies’ competing missions to achieve his goals for space travel.`\
 https://nytimes.com/2024/07/07/us/politics/spacex-wildlife-texas.html
-
-**Escape rooms, football pubs, coffee vlogs, and tennis - What players do on days off**\
-`What do tennis players do on their days off? The Athletic asked Coco Gauff, Daria Kasatkina, Holger Rune, Grigor Dimitrov, and more`\
-https://nytimes.com/athletic/5618389/2024/07/07/what-tennis-players-do-when-not-playing/
-
-**Felipe Alou remembers Willie Mays, Orlando Cepeda: 'The Giants were blessed'**\
-`Alou plans to speak at the Mays celebration of life on Monday. He shared a special bond with both Mays and his one-time roommate, Cepeda.`\
-https://nytimes.com/athletic/5619720/2024/07/07/sf-giants-felipe-alou-willie-mays-orlando-cepeda-memories/
 
