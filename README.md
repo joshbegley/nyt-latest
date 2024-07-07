@@ -1,3 +1,7 @@
+**The Windmills Are Back Up on the Moulin Rouge**\
+`The Paris landmark has completed its restoration after the blades fell off this spring — and just in time for the Summer Olympic Games to begin.`\
+https://nytimes.com/2024/07/07/world/europe/paris-windmills-moulin-rouge.html
+
 **Thiago retires following Liverpool exit**\
 `Thiago has retired from football following his departure from Liverpool.`\
 https://nytimes.com/athletic/5621886/2024/07/07/thiago-retires-liverpool-barcelona-bayern/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5608104/2024/07/07/leicester-michael-golding-chelse
 **SpaceX’s Assault on a Fragile Habitat: Four Takeaways From Our Investigation**\
 `The development of Elon Musk’s facility in South Texas did not play out as local officials were originally told it would.`\
 https://nytimes.com/2024/07/07/us/politics/spacex-boca-chica-takeaways.html
-
-**Wildlife Protections Take a Back Seat to SpaceX’s Ambitions**\
-`A New York Times investigation found that Elon Musk exploited federal agencies’ competing missions to achieve his goals for space travel.`\
-https://nytimes.com/2024/07/07/us/politics/spacex-wildlife-texas.html
 
