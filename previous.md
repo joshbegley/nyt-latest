@@ -1,3 +1,7 @@
+**Emma Raducanu's Andy Murray decision exemplifies tennis' battle with logic and emotion**\
+`Raducanu's partnership with Murray was an emotional tie to his farewell to Wimbledon, not a rational plan for success in her main event`\
+https://nytimes.com/athletic/5620207/2024/07/07/emma-raducanu-andy-murray-mixed-doubles-wimbledon/
+
 **A Map of Remembrance**\
 `In May 2022, The Times published a map of the United States and Puerto Rico with 992,124 dots on it, each reflecting a reported death from Covid-19.`\
 https://nytimes.com/2024/07/07/insider/covid-map.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5621337/2024/07/07/bobby-cox-visits-truist-park/
 **Why LeBron took $3 million less in Lakers deal**\
 `James is signing a two-year, $101.355 million deal instead of the two-year, $104 million maximum he could’ve re-signed for.`\
 https://nytimes.com/athletic/5621333/2024/07/07/lebron-james-lakers-contract-nba/
-
-**NATO Has to Change. Here’s How.**\
-`It is increasingly clear that Europeans need to shoulder more responsibility for their own defense.`\
-https://nytimes.com/2024/07/07/opinion/nato-europe-us-ukraine-defense.html
 

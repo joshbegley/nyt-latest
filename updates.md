@@ -1,3 +1,7 @@
+**Emma Raducanu's Andy Murray decision exemplifies tennis' battle with logic and emotion**\
+`Raducanu's partnership with Murray was an emotional tie to his farewell to Wimbledon, not a rational plan for success in her main event`\
+https://nytimes.com/athletic/5620207/2024/07/07/emma-raducanu-andy-murray-mixed-doubles-wimbledon/
+
 **A Map of Remembrance**\
 `In May 2022, The Times published a map of the United States and Puerto Rico with 992,124 dots on it, each reflecting a reported death from Covid-19.`\
 https://nytimes.com/2024/07/07/insider/covid-map.html
