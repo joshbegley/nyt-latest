@@ -2,7 +2,7 @@
 `The Oilers have executed a flurry of transactions designed to improve the team. What issues does the club still need to address?`\
 https://nytimes.com/athletic/5620206/2024/07/07/oilers-free-agency-offseason-nurse-kane/
 
-**France Votes in Election That Could Bring Far Right Closer to Power**\
+**Live Updates: France Votes in Election That Could Bring Far Right Closer to Power**\
 `The far-right National Rally drew the most support in the first round of voting. In Sunday’s final round, it hopes to win a majority in the powerful lower house of Parliament.`\
 https://nytimes.com/live/2024/07/07/world/france-election-2024
 
