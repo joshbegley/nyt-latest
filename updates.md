@@ -1,3 +1,11 @@
+**A Map of Remembrance**\
+`In May 2022, The Times published a map of the United States and Puerto Rico with 992,124 dots on it, each reflecting a reported death from Covid-19.`\
+https://nytimes.com/2024/07/07/insider/covid-map.html
+
+**Romance Bookstores Are Booming, Dishing ‘All the Hot Stuff You Can Imagine’**\
+`Bookstores once shunted romance novels to a shelf in the back. But with romance writers dominating the best-seller lists, a network of dedicated bookstores has sprung up around the country.`\
+https://nytimes.com/2024/07/07/books/romance-bookstores.html
+
 **How a Last-Ditch Effort to Save Menendez From Prosecution Backfired**\
 `Abbe Lowell, a lawyer for Senator Robert Menendez, met with prosecutors last fall to plead his case. Days later, the senator was indicted on bribery charges.`\
 https://nytimes.com/2024/07/07/nyregion/robert-menendez-bribery-trial-abbe-lowell.html

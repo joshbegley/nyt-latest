@@ -1,3 +1,11 @@
+**A Map of Remembrance**\
+`In May 2022, The Times published a map of the United States and Puerto Rico with 992,124 dots on it, each reflecting a reported death from Covid-19.`\
+https://nytimes.com/2024/07/07/insider/covid-map.html
+
+**Romance Bookstores Are Booming, Dishing ‘All the Hot Stuff You Can Imagine’**\
+`Bookstores once shunted romance novels to a shelf in the back. But with romance writers dominating the best-seller lists, a network of dedicated bookstores has sprung up around the country.`\
+https://nytimes.com/2024/07/07/books/romance-bookstores.html
+
 **How a Last-Ditch Effort to Save Menendez From Prosecution Backfired**\
 `Abbe Lowell, a lawyer for Senator Robert Menendez, met with prosecutors last fall to plead his case. Days later, the senator was indicted on bribery charges.`\
 https://nytimes.com/2024/07/07/nyregion/robert-menendez-bribery-trial-abbe-lowell.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5621333/2024/07/07/lebron-james-lakers-contract-nba
 **NATO Has to Change. Here’s How.**\
 `It is increasingly clear that Europeans need to shoulder more responsibility for their own defense.`\
 https://nytimes.com/2024/07/07/opinion/nato-europe-us-ukraine-defense.html
-
-**Buddy system, Pickford bottle, crucial pauses: England penalties vs Switzerland analysed**\
-`England beating Switzerland on penalties was no fluke - all the little details show their deep level of preparation under Gareth Southgate.`\
-https://nytimes.com/athletic/5620945/2024/07/07/england-vs-switzerland-penalties-analysed-pickford/
-
-**Marcell Ozuna tried to hit homers and slumped, is back to his old approach and hitting them**\
-`Ozuna homered on consecutive pitches Friday and Saturday, driving in five runs to regain the league RBI lead.`\
-https://nytimes.com/athletic/5621291/2024/07/07/marcell-ozuna-back-to-old-approach/
 
