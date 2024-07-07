@@ -1,3 +1,7 @@
+**Will Smith's torrid stretch a reminder of the star power he brings to the Dodgers**\
+`Smith homered in four consecutive at-bats, something no one else has done this season.`\
+https://nytimes.com/athletic/5621259/2024/07/06/dodgers-will-smith-star-power/
+
 **After another shaky Ranger Suárez start, a break could be coming at the right time**\
 `After allowing 20 earned runs in his first 16 starts, Suárez has been tagged for 11 runs in his last two.`\
 https://nytimes.com/athletic/5621257/2024/07/06/phillies-ranger-suarez-all-star-break/
