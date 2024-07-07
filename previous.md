@@ -1,3 +1,15 @@
+**Party Time: Dos, Don’ts and So-Whats**\
+`Readers take issue with advice in a guide to party etiquette. Also: Rudy Giuliani and Donald Trump; occupational therapy for older New Yorkers.`\
+https://nytimes.com/2024/07/07/opinion/party-etiquette.html
+
+**A Perfect Peach Pie That’s ‘Better Than My Mom’s’**\
+`A five-star, reader-favorite recipe for the queen of summer stone fruits.`\
+https://nytimes.com/2024/07/07/dining/peach-pie.html
+
+**Hollinger: Don't expect rings, but Kings' floor-raising DeMar DeRozan trade adds up**\
+`Sacramento doesn't need to win 60 games or make the finals to justify this deal, but it's in the mix out West.`\
+https://nytimes.com/athletic/5621395/2024/07/07/demar-derozan-trade-kings-bulls-spurs/
+
 **Beryl Live Updates: Over a Million in Texas Under a Hurricane Warning**\
 `Currently a tropical storm after smashing through the Caribbean, Beryl is forecast to make landfall on the Texas coast as a hurricane on Monday morning.`\
 https://nytimes.com/live/2024/07/07/us/hurricane-beryl-texas
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5621858/2024/07/07/chelsea-hire-law-firm-to-investi
 **As Democrats Fret About Biden, Murphy Says He Must Address Voters’ Concerns**\
 `The Connecticut Democrat said the president had more to do to assuage voters’ worries about his age, mental acuity and fitness to run. Top House Democrats are set to meet on Sunday to discuss his candidacy.`\
 https://nytimes.com/2024/07/07/us/politics/biden-democrats-congress-murphy.html
-
-**Who is Leicester's new signing Michael Golding?**\
-`The 18-year-old attack-minded midfielder made his debut for Chelsea's senior team last season and has captained England at youth level`\
-https://nytimes.com/athletic/5611512/2024/07/07/leicester-city-michael-golding-chelsea-transfer/
-
-**Bulls close book on DeMar DeRozan era by acquiring Chris Duarte in sign-and-trade deal**\
-`After trading Alex Caruso and DeRozan this offseason, the Bulls have decisions to make on Zach LaVine, Nikola Vučević and Lonzo Ball.`\
-https://nytimes.com/athletic/5621363/2024/07/07/bulls-demar-derozan-trade/
-
-**Leicester complete Golding signing from Chelsea**\
-`Leicester City have completed the signing of midfielder Michael Golding from Chelsea.`\
-https://nytimes.com/athletic/5608104/2024/07/07/leicester-michael-golding-chelsea-transfer/
 

@@ -1,3 +1,15 @@
+**Party Time: Dos, Don’ts and So-Whats**\
+`Readers take issue with advice in a guide to party etiquette. Also: Rudy Giuliani and Donald Trump; occupational therapy for older New Yorkers.`\
+https://nytimes.com/2024/07/07/opinion/party-etiquette.html
+
+**A Perfect Peach Pie That’s ‘Better Than My Mom’s’**\
+`A five-star, reader-favorite recipe for the queen of summer stone fruits.`\
+https://nytimes.com/2024/07/07/dining/peach-pie.html
+
+**Hollinger: Don't expect rings, but Kings' floor-raising DeMar DeRozan trade adds up**\
+`Sacramento doesn't need to win 60 games or make the finals to justify this deal, but it's in the mix out West.`\
+https://nytimes.com/athletic/5621395/2024/07/07/demar-derozan-trade-kings-bulls-spurs/
+
 **Beryl Live Updates: Over a Million in Texas Under a Hurricane Warning**\
 `Currently a tropical storm after smashing through the Caribbean, Beryl is forecast to make landfall on the Texas coast as a hurricane on Monday morning.`\
 https://nytimes.com/live/2024/07/07/us/hurricane-beryl-texas
