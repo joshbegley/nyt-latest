@@ -1,3 +1,7 @@
+**Brighton sign Cozier-Duberry after Arsenal exit**\
+`Brighton have completed the signing of Amario Cozier-Duberry from Arsenal on a four-year contract.`\
+https://nytimes.com/athletic/5622065/2024/07/07/brighton-transfers-amario-cozier-duberry-arsenal/
+
 **Slavko Vincic appointed referee for Spain vs France**\
 `Slavko Vincic has been appointed as the match referee for the European Championship semi-final between Spain and France.`\
 https://nytimes.com/athletic/5622043/2024/07/07/slavko-vincic-spain-france-referee-who/
