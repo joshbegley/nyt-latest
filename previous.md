@@ -1,3 +1,7 @@
+**Gridlock? Instability? Without an Absolute Majority, France’s Way Forward Is Unclear**\
+`Experts said the country could be headed for months of political instability, with the National Assembly divided into three major blocs that appear unable to work with the others.`\
+https://nytimes.com/2024/07/07/world/europe/france-election-political-gridlock.html
+
 **The left-wing New Popular Front exceeded expectations. Who’s in it?**\
 `By Catherine Porter`\
 https://nytimes.com/live/2024/07/07/world/france-election-2024/france-new-popular-front
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5622286/2024/07/07/adrian-goalkeeper-liverpool-tran
 **Hull defender Greaves to undergo Ipswich medical as Philogene talks continue**\
 `Hull City centre-back Jacob Greaves has been granted permission to undergo a medical ahead of his proposed move to Ipswich Town.`\
 https://nytimes.com/athletic/5622156/2024/07/07/jacob-greaves-ipswich-transfers-hull-jaden-philogene/
-
-**J.D. Vance Endorses Trump’s Call for a Special Prosecutor Against Biden**\
-`The Ohio senator suggested it was “a totally reasonable thing” for former President Donald J. Trump to, if re-elected, appoint a prosecutor to investigate the Biden administration.`\
-https://nytimes.com/2024/07/07/us/politics/vance-trump-biden-special-prosecutor.html
 

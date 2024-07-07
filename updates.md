@@ -1,3 +1,7 @@
+**Gridlock? Instability? Without an Absolute Majority, France’s Way Forward Is Unclear**\
+`Experts said the country could be headed for months of political instability, with the National Assembly divided into three major blocs that appear unable to work with the others.`\
+https://nytimes.com/2024/07/07/world/europe/france-election-political-gridlock.html
+
 **The left-wing New Popular Front exceeded expectations. Who’s in it?**\
 `By Catherine Porter`\
 https://nytimes.com/live/2024/07/07/world/france-election-2024/france-new-popular-front
