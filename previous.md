@@ -1,3 +1,7 @@
+**After 9 Months of War, Israelis Call for a Cease-Fire Deal and Elections**\
+`A day of nationwide anti-government protests comes amid signs of progress toward a truce and hostage deal with Hamas, as well as continued fighting.`\
+https://nytimes.com/2024/07/07/world/middleeast/israel-gaza-protests.html
+
 **A Romance Bookstore Boom**\
 `The arrival — and success — of brick-and-mortar romance stores.`\
 https://nytimes.com/2024/07/07/briefing/romance-bookstores.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/07/opinion/biden-jim-clyburn-democrats.html
 **What Happened to the Originalism of the Originalists?**\
 `In both Trump cases the liberal dissenters are more originalist than the conservative majority.`\
 https://nytimes.com/2024/07/07/opinion/supreme-court-trump-immunity.html
-
-**The Connections Companion No. 393, July 8, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/07/crosswords/connections-companion-393.html
 

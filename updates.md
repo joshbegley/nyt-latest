@@ -1,3 +1,7 @@
+**After 9 Months of War, Israelis Call for a Cease-Fire Deal and Elections**\
+`A day of nationwide anti-government protests comes amid signs of progress toward a truce and hostage deal with Hamas, as well as continued fighting.`\
+https://nytimes.com/2024/07/07/world/middleeast/israel-gaza-protests.html
+
 **Biden Campaigns in Pennsylvania, as Calls Continue for Him to Quit the Race**\
 `The president will visit Philadelphia and Harrisburg on Sunday as he works to salvage his imperiled campaign.`\
 https://nytimes.com/2024/07/07/us/politics/biden-pennsylvania.html
