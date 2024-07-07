@@ -1,3 +1,7 @@
+**Here Are the Key Players in France’s Election**\
+`The vote has turned into a race between the two main opponents of President Emmanuel Macron’s Renaissance party: the far-right National Rally and the New Popular Front, a left-wing coalition.`\
+https://nytimes.com/2024/07/07/world/europe/france-election-key-players.html
+
 **Lowetide: Oilers still have busy summer ahead after Week 1 of free agency**\
 `The Oilers have executed a flurry of transactions designed to improve the team. What issues does the club still need to address?`\
 https://nytimes.com/athletic/5620206/2024/07/07/oilers-free-agency-offseason-nurse-kane/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/07/us/hurricane-beryl-texas/why-beryl-is-a-bad-
 **In Las Vegas, a Violent Sport Sparks Controversy**\
 `The team behind the Ultimate Fighting Championship is betting big on Power Slap, a new and extremely dangerous competition with many detractors.`\
 https://nytimes.com/2024/07/07/style/power-slap-fights.html
-
-**Calafiori is a front-foot, modern-day defender - and would suit Arteta's Arsenal**\
-`The Italy and Bologna defender is 22 and has issues to iron out but looks custom-made for the innovation of the four centre-back defence`\
-https://nytimes.com/athletic/5619829/2024/07/07/riccardo-calafiori-arsenal-italy-transfer/
 
