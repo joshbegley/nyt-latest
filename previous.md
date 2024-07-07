@@ -1,3 +1,7 @@
+**Arsenal contact Wolves over goalkeeper Dan Bentley transfer interest**\
+`Arsenal have contacted Wolverhampton Wanderers to express an interest in signing goalkeeper Dan Bentley.`\
+https://nytimes.com/athletic/5622313/2024/07/07/dan-bentley-wolves-arsenal-transfer-news/
+
 **Lewis Hamilton’s joyful tears and British GP win mark the end of two doubt-filled years**\
 `Stay informed on all the biggest stories in Formula One.`\
 https://nytimes.com/athletic/5622041/2024/07/07/lewis-hamilton-f1-british-grand-prix-win-silverstone/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/07/us/politics/trump-vp-immunity-rubio.html
 **Here Are the Key Players in France’s Election**\
 `The vote has turned into a race between the two main opponents of President Emmanuel Macron’s Renaissance party: the far-right National Rally and the New Popular Front, a left-wing coalition.`\
 https://nytimes.com/2024/07/07/world/europe/france-election-key-players.html
-
-**Lowetide: Oilers still have busy summer ahead after Week 1 of free agency**\
-`The Oilers have executed a flurry of transactions designed to improve the team. What issues does the club still need to address?`\
-https://nytimes.com/athletic/5620206/2024/07/07/oilers-free-agency-offseason-nurse-kane/
 

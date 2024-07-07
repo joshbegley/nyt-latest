@@ -1,3 +1,7 @@
+**Arsenal contact Wolves over goalkeeper Dan Bentley transfer interest**\
+`Arsenal have contacted Wolverhampton Wanderers to express an interest in signing goalkeeper Dan Bentley.`\
+https://nytimes.com/athletic/5622313/2024/07/07/dan-bentley-wolves-arsenal-transfer-news/
+
 **Lewis Hamilton’s joyful tears and British GP win mark the end of two doubt-filled years**\
 `Stay informed on all the biggest stories in Formula One.`\
 https://nytimes.com/athletic/5622041/2024/07/07/lewis-hamilton-f1-british-grand-prix-win-silverstone/
