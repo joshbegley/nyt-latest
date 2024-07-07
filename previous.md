@@ -1,3 +1,7 @@
+**Beryl Live Updates: Over a Million in Texas Under a Hurricane Warning**\
+`Currently a tropical storm after smashing through the Caribbean, Beryl is forecast to make landfall on the Texas coast as a hurricane on Monday morning.`\
+https://nytimes.com/live/2024/07/07/us/hurricane-beryl-texas
+
 **The Windmills Are Back Up on the Moulin Rouge**\
 `The Paris landmark has completed its restoration after the blades fell off this spring — and just in time for the Summer Olympic Games to begin.`\
 https://nytimes.com/2024/07/07/world/europe/paris-windmills-moulin-rouge.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5621363/2024/07/07/bulls-demar-derozan-trade/
 **Leicester complete Golding signing from Chelsea**\
 `Leicester City have completed the signing of midfielder Michael Golding from Chelsea.`\
 https://nytimes.com/athletic/5608104/2024/07/07/leicester-michael-golding-chelsea-transfer/
-
-**SpaceX’s Assault on a Fragile Habitat: Four Takeaways From Our Investigation**\
-`The development of Elon Musk’s facility in South Texas did not play out as local officials were originally told it would.`\
-https://nytimes.com/2024/07/07/us/politics/spacex-boca-chica-takeaways.html
 

@@ -1,3 +1,7 @@
+**Beryl Live Updates: Over a Million in Texas Under a Hurricane Warning**\
+`Currently a tropical storm after smashing through the Caribbean, Beryl is forecast to make landfall on the Texas coast as a hurricane on Monday morning.`\
+https://nytimes.com/live/2024/07/07/us/hurricane-beryl-texas
+
 **The Windmills Are Back Up on the Moulin Rouge**\
 `The Paris landmark has completed its restoration after the blades fell off this spring — and just in time for the Summer Olympic Games to begin.`\
 https://nytimes.com/2024/07/07/world/europe/paris-windmills-moulin-rouge.html
