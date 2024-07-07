@@ -1,3 +1,7 @@
+**Officials Urge Coastal Texans to Evacuate, but Some Are Unfazed**\
+`Despite warnings that Beryl could be a “deadly storm,” many local residents decided to stay put, gambling that they could survive its wind and rains.`\
+https://nytimes.com/2024/07/07/us/texas-evacuations-storm-beryl.html
+
 **Gridlock? Instability? Without an Absolute Majority, France’s Way Forward Is Unclear**\
 `Experts said the country could be headed for months of political instability, with the National Assembly divided into three major blocs that appear unable to work with the others.`\
 https://nytimes.com/2024/07/07/world/europe/france-election-political-gridlock.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5582118/2024/07/07/michael-olise-bayern-munich-tran
 **Liverpool confirm exit of goalkeeper Adrian following contract expiration**\
 `Liverpool have confirmed that goalkeeper Adrian has decided to leave the club following the end of his contract this summer.`\
 https://nytimes.com/athletic/5622286/2024/07/07/adrian-goalkeeper-liverpool-transfer-news/
-
-**Hull defender Greaves to undergo Ipswich medical as Philogene talks continue**\
-`Hull City centre-back Jacob Greaves has been granted permission to undergo a medical ahead of his proposed move to Ipswich Town.`\
-https://nytimes.com/athletic/5622156/2024/07/07/jacob-greaves-ipswich-transfers-hull-jaden-philogene/
 
