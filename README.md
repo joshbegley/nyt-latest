@@ -1,3 +1,7 @@
+**John Cena to retire from WWE after 2025**\
+`Cena, 47, has long said he wouldn’t wrestle past 50 years old.`\
+https://nytimes.com/athletic/5621964/2024/07/07/john-cena-retirement/
+
 **Party Time: Dos, Don’ts and So-Whats**\
 `Readers take issue with advice in a guide to party etiquette. Also: Rudy Giuliani and Donald Trump; occupational therapy for older New Yorkers.`\
 https://nytimes.com/2024/07/07/opinion/party-etiquette.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5621882/2024/07/07/copa-america-euros-tour-de-franc
 **Chelsea hire law firm to investigate sexual harassment allegation**\
 `Chelsea have hired an independent law firm to investigate after a female employee made an allegation of sexual harassment against a male counterpart.`\
 https://nytimes.com/athletic/5621858/2024/07/07/chelsea-hire-law-firm-to-investigate-sexual-harassment-allegation/
-
-**As Democrats Fret About Biden, Murphy Says He Must Address Voters’ Concerns**\
-`The Connecticut Democrat said the president had more to do to assuage voters’ worries about his age, mental acuity and fitness to run. Top House Democrats are set to meet on Sunday to discuss his candidacy.`\
-https://nytimes.com/2024/07/07/us/politics/biden-democrats-congress-murphy.html
 
