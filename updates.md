@@ -1,3 +1,7 @@
+**Levshunov signs entry-level contract with Blackhawks**\
+`Arytom Levshunov, the second pick in the 2024 NHL draft, is turning pro and will not return to Michigan State.`\
+https://nytimes.com/athletic/5620990/2024/07/06/artyom-levshunov-signing-blackhawks/
+
 **Is This Vibrant Democracy in Japan, or Has the Circus Come to Town?**\
 `A ridiculous number of candidates are contending to be governor of Tokyo and its surrounding prefecture. Many are not even trying to win.`\
 https://nytimes.com/2024/07/06/world/asia/tokyo-goverors-election.html
