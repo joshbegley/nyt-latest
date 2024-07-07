@@ -1,3 +1,7 @@
+**Buddy system, Pickford bottle, crucial pauses: England penalties vs Switzerland analysed**\
+`England beating Switzerland on penalties was no fluke - all the little details show their deep level of preparation under Gareth Southgate.`\
+https://nytimes.com/athletic/5620945/2024/07/07/england-vs-switzerland-penalties-analysed-pickford/
+
 **Marcell Ozuna tried to hit homers and slumped, is back to his old approach and hitting them**\
 `Ozuna homered on consecutive pitches Friday and Saturday, driving in five runs to regain the league RBI lead.`\
 https://nytimes.com/athletic/5621291/2024/07/07/marcell-ozuna-back-to-old-approach/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/07/world/middleeast/iran-peveshkian-khamenei-nuclear
 **Dropping in Just to Say ‘Hi!’**\
 `What to do when a colleague seems to have a communication problem.`\
 https://nytimes.com/2024/07/07/business/work-friend-anna-holmes.html
-
-**Will Smith's torrid stretch a reminder of the star power he brings to the Dodgers**\
-`Smith homered in four consecutive at-bats, something no one else has done this season.`\
-https://nytimes.com/athletic/5621259/2024/07/06/dodgers-will-smith-star-power/
 
