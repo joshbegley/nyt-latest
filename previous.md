@@ -1,4 +1,4 @@
-**Bulls close book on DeMar DeRozan era by acquiring Chris Duarte in sign-and trade deal**\
+**Bulls close book on DeMar DeRozan era by acquiring Chris Duarte in sign-and-trade deal**\
 `After trading Alex Caruso and DeRozan this offseason, the Bulls have decisions to make on Zach LaVine, Nikola Vučević and Lonzo Ball.`\
 https://nytimes.com/athletic/5621363/2024/07/07/bulls-demar-derozan-trade/
 
