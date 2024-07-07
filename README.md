@@ -1,3 +1,11 @@
+**Marcell Ozuna tried to hit homers and slumped, is back to his old approach and hitting them**\
+`Ozuna homered on consecutive pitches Friday and Saturday, driving in five runs to regain the league RBI lead.`\
+https://nytimes.com/athletic/5621291/2024/07/07/marcell-ozuna-back-to-old-approach/
+
+**In Lamine Yamal's home town, Spain's Euro 2024 heroics stop everything**\
+`Watching Spain's quarter-final victory over Germany in the Catalan town where the Barcelona forward grew up`\
+https://nytimes.com/athletic/5620189/2024/07/07/lamine-yamal-euro-2024-spain-rocafonda-barcelona/
+
 **Quotation of the Day: Calls for President to Quit Set Up Clash Within Party**\
 `Quotation of the Day for Sunday, July 7, 2024.`\
 https://nytimes.com/2024/07/07/pageoneplus/quotation-of-the-day-calls-for-president-to-quit-set-up-clash-within-party.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/07/business/work-friend-anna-holmes.html
 **Will Smith's torrid stretch a reminder of the star power he brings to the Dodgers**\
 `Smith homered in four consecutive at-bats, something no one else has done this season.`\
 https://nytimes.com/athletic/5621259/2024/07/06/dodgers-will-smith-star-power/
-
-**After another shaky Ranger Suárez start, a break could be coming at the right time**\
-`After allowing 20 earned runs in his first 16 starts, Suárez has been tagged for 11 runs in his last two.`\
-https://nytimes.com/athletic/5621257/2024/07/06/phillies-ranger-suarez-all-star-break/
-
-**Takeaways as Uruguay knock out Brazil on penalties in dirtiest game of the tournament**\
-`This quarter-final had more fouls than moments of quality - The Athletic dissects the big talking points`\
-https://nytimes.com/athletic/5621161/2024/07/06/brazil-uruguay-most-fouls-copa-america/
 
