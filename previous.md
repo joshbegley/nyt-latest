@@ -1,3 +1,11 @@
+**Lewis Hamilton’s joyful tears and British GP win mark the end of two doubt-filled years**\
+`Stay informed on all the biggest stories in Formula One.`\
+https://nytimes.com/athletic/5622041/2024/07/07/lewis-hamilton-f1-british-grand-prix-win-silverstone/
+
+**Beryl Is Unlikely to Bring Relief to Drought-Stricken Parts of Texas**\
+`About a quarter of the state is in drought, but Beryl’s forecast path shows  that rainfall is unlikely for those areas.`\
+https://nytimes.com/2024/07/07/us/texas-drought-beryl-hurricane-storm.html
+
 **Bayern confirm signing of Olise**\
 `Bayern Munich have completed the signing of Michael Olise from Crystal Palace on a five-year contract.`\
 https://nytimes.com/athletic/5582118/2024/07/07/michael-olise-bayern-munich-transfer-palace/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/07/world/europe/france-election-key-players.html
 **Lowetide: Oilers still have busy summer ahead after Week 1 of free agency**\
 `The Oilers have executed a flurry of transactions designed to improve the team. What issues does the club still need to address?`\
 https://nytimes.com/athletic/5620206/2024/07/07/oilers-free-agency-offseason-nurse-kane/
-
-**Live Updates: France Votes in Election That Could Bring Far Right Closer to Power**\
-`The far-right National Rally drew the most support in the first round of voting. In Sunday’s final round, it hopes to win a majority in the powerful lower house of Parliament.`\
-https://nytimes.com/live/2024/07/07/world/france-election-2024
-
-**What happens on election night in France, and what comes next.**\
-`By Aurelien Breeden`\
-https://nytimes.com/live/2024/07/07/world/france-election-2024/france-election-night-explained
 

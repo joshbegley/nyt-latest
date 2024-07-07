@@ -1,3 +1,11 @@
+**Lewis Hamilton’s joyful tears and British GP win mark the end of two doubt-filled years**\
+`Stay informed on all the biggest stories in Formula One.`\
+https://nytimes.com/athletic/5622041/2024/07/07/lewis-hamilton-f1-british-grand-prix-win-silverstone/
+
+**Beryl Is Unlikely to Bring Relief to Drought-Stricken Parts of Texas**\
+`About a quarter of the state is in drought, but Beryl’s forecast path shows  that rainfall is unlikely for those areas.`\
+https://nytimes.com/2024/07/07/us/texas-drought-beryl-hurricane-storm.html
+
 **Bayern confirm signing of Olise**\
 `Bayern Munich have completed the signing of Michael Olise from Crystal Palace on a five-year contract.`\
 https://nytimes.com/athletic/5582118/2024/07/07/michael-olise-bayern-munich-transfer-palace/
