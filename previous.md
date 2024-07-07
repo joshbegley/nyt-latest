@@ -1,8 +1,12 @@
+**In New Orleans, Harris jabs at Trump and avoids talk of Biden bowing out.**\
+`By Jazmine Ulloa`\
+https://nytimes.com/live/2024/07/06/us/biden-trump-election/kamala-harris-essence-fest-new-orleans
+
 **Is This Vibrant Democracy in Japan, or Has the Circus Come to Town?**\
 `A ridiculous number of candidates are contending to be governor of Tokyo and its surrounding prefecture. Many are not even trying to win.`\
 https://nytimes.com/2024/07/06/world/asia/tokyo-goverors-election.html
 
-**Colombia 5-0 Panama: Takeaways as Colombia reach semis and James shines**\
+**Colombia 5-0 Panama: Takeaways as Colombia reach semis and James Rodriguez shines**\
 `Colombia return to the Copa America semifinals for the third time in the last four editions `\
 https://nytimes.com/athletic/5620884/2024/07/06/colombia-panama-james-rodriguez-takeaways/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5620990/2024/07/06/artyom-levshunov-signing-blackha
 **Bronny James scores 4 points in NBA Summer League debut**\
 `James finished with four points, two assists, two rebounds and a steal in 22 minutes.`\
 https://nytimes.com/athletic/5620944/2024/07/06/bronny-james-summer-league-debut-lakers-kings/
-
-**Cubs notes: Kyle Hendricks' tight back and impact on rotation, Dansby Swanson's struggles**\
-`Plus notes on the Cubs' catching situation and Christopher Morel getting an unexpected day off against a lefty starter.`\
-https://nytimes.com/athletic/5620905/2024/07/06/cubs-kyle-hendricks-tight-back-dansby-swanson-struggles/
 

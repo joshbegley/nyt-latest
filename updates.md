@@ -1,3 +1,11 @@
+**In New Orleans, Harris jabs at Trump and avoids talk of Biden bowing out.**\
+`By Jazmine Ulloa`\
+https://nytimes.com/live/2024/07/06/us/biden-trump-election/kamala-harris-essence-fest-new-orleans
+
+**Colombia 5-0 Panama: Takeaways as Colombia reach semis and James Rodriguez shines**\
+`Colombia return to the Copa America semifinals for the third time in the last four editions `\
+https://nytimes.com/athletic/5620884/2024/07/06/colombia-panama-james-rodriguez-takeaways/
+
 **Levshunov signs entry-level contract with Blackhawks**\
 `Arytom Levshunov, the second pick in the 2024 NHL draft, is turning pro and will not return to Michigan State.`\
 https://nytimes.com/athletic/5620990/2024/07/06/artyom-levshunov-signing-blackhawks/
