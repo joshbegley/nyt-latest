@@ -1,3 +1,7 @@
+**Bayern confirm signing of Olise**\
+`Bayern Munich have completed the signing of Michael Olise from Crystal Palace on a five-year contract.`\
+https://nytimes.com/athletic/5582118/2024/07/07/michael-olise-bayern-munich-transfer-palace/
+
 **Liverpool confirm exit of goalkeeper Adrian following contract expiration**\
 `Liverpool have confirmed that goalkeeper Adrian has decided to leave the club following the end of his contract this summer.`\
 https://nytimes.com/athletic/5622286/2024/07/07/adrian-goalkeeper-liverpool-transfer-news/
