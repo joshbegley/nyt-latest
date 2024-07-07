@@ -1,3 +1,19 @@
+**Davis Thompson cruises to first PGA Tour win**\
+`Thompson won at 28-under for the tournament after a final-round 64 (-7) and earned an Open Championship berth.`\
+https://nytimes.com/athletic/5622668/2024/07/07/davis-thompson-john-deere-classic-win/
+
+**Phillies exit Atlanta with 7 All-Stars, Schwarber and Harper back soon, and a debut to ponder**\
+`That All-Star Game will have a distinct Phillies slant. It's a reflection of what they have accomplished so far. They have bigger goals. `\
+https://nytimes.com/athletic/5622636/2024/07/07/phillies-all-stars-schwarber-harper-returns-tyler-phillips-debut/
+
+**Paramount Agrees to Merge With Skydance**\
+`The deal, approved by Paramount’s board, ushers in a new chapter for the company, which owns CBS and the movie studio behind “Top Gun.”`\
+https://nytimes.com/2024/07/07/business/media/paramount-skydance-merger-deal.html
+
+**Coco Gauff out of Wimbledon after shock defeat to Emma Navarro**\
+`The No. 2 seed and favorite for the title was undone by her compatriot's clean, uncompromising tennis`\
+https://nytimes.com/athletic/5622514/2024/07/07/coco-gauff-emma-navarro-wimbledon/
+
 **Phillies exit Atlanta with 7 All-Stars, Schwarber and Harper back soon, and a debut to ponder**\
 `The All-Star Game will have a distinct Phillies slant. The seven All-Stars are a club record and shows it has built "a really good roster." `\
 https://nytimes.com/athletic/5622636/2024/07/07/phillies-all-stars-schwarber-harper-returns-tyler-phillips-debut/

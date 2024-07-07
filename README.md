@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5622668/2024/07/07/davis-thompson-john-deere-classic-win/
 
 **Phillies exit Atlanta with 7 All-Stars, Schwarber and Harper back soon, and a debut to ponder**\
-`That All-Star Game will have a distinct Phillies slant. It's a reflection of what they have accomplished so far. They have bigger goals. `\
+`The All-Star Game will have a distinct Phillies slant. It's a reflection of what they have accomplished so far. They have bigger goals. `\
 https://nytimes.com/athletic/5622636/2024/07/07/phillies-all-stars-schwarber-harper-returns-tyler-phillips-debut/
 
 **Wimbledon day 7: Carlos Alcaraz feeds on his own genius, Lulu Sun rolls on**\
