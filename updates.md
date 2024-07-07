@@ -1,3 +1,7 @@
+**Chicago Cubs pitcher Colten Brewer broke his hand punching a wall in frustration **\
+`The Cubs placed Brewer on the 60-day injured list. He will see a hand specialist Tuesday.`\
+https://nytimes.com/athletic/5622482/2024/07/07/chicago-cubs-pitcher-colten-brewer-broke-hand-punching-wall/
+
 **At Port Aransas, some residents rushed to take the last ferry out of the island town.**\
 `By Edgar Sandoval`\
 https://nytimes.com/live/2024/07/07/us/hurricane-beryl-texas/at-port-aransas-some-residents-rushed-to-take-the-last-ferry-out-of-the-island-town
