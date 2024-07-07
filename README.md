@@ -1,7 +1,3 @@
-**Madison Keys cries on court as injury ends Wimbledon quarter-final dream**\
-`The American No. 12 seed was 5-2 up and heading for the last eight, before injury scuppered her chances`\
-https://nytimes.com/athletic/5621917/2024/07/07/madison-keys-wimbledon-jasmine-paolini/
-
 **John Cena to retire from WWE after 2025**\
 `Cena, 47, has long said he wouldn’t wrestle past 50 years old.`\
 https://nytimes.com/athletic/5621964/2024/07/07/john-cena-retirement/
@@ -18,7 +14,7 @@ https://nytimes.com/2024/07/07/dining/peach-pie.html
 `Sacramento doesn't need to win 60 games or make the finals to justify this deal, but it's in the mix out West.`\
 https://nytimes.com/athletic/5621395/2024/07/07/demar-derozan-trade-kings-bulls-spurs/
 
-**Beryl Live Updates: Over a Million in Texas Under a Hurricane Warning**\
+**Beryl Live Updates: Over a Million in Texas Are Under a Hurricane Warning**\
 `Currently a tropical storm after smashing through the Caribbean, Beryl is forecast to make landfall on the Texas coast as a hurricane on Monday morning.`\
 https://nytimes.com/live/2024/07/07/us/hurricane-beryl-texas
 
@@ -37,4 +33,8 @@ https://nytimes.com/2024/07/07/books/review/taffy-brodesser-akner-long-island-co
 **The Pulse: Tourney penalty kicks and a new Netflix option**\
 `Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5621882/2024/07/07/copa-america-euros-tour-de-france-the-pulse/
+
+**Chelsea hire law firm to investigate sexual harassment allegation**\
+`Chelsea have hired an independent law firm to investigate after a female employee made an allegation of sexual harassment against a male counterpart.`\
+https://nytimes.com/athletic/5621858/2024/07/07/chelsea-hire-law-firm-to-investigate-sexual-harassment-allegation/
 
