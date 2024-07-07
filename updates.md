@@ -1,3 +1,7 @@
+**Busquets red carded as Inter Miami loses 6-1 to FC Cincinnati**\
+`Sergio Busquets was sent off for dissent as Inter Miami lost 6-1 to FC Cincinnati on Saturday.`\
+https://nytimes.com/athletic/5621178/2024/07/06/sergio-busquets-red-card-inter-miami/
+
 **Pakistan Withers Under Deadly Heat and Fears the Coming Rains**\
 `Karachi, Pakistan’s largest city, endured days of temperatures above 100 Fahrenheit, made worse by power cuts and high humidity.`\
 https://nytimes.com/2024/07/06/world/asia/pakistan-heat-wave.html
