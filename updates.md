@@ -1,3 +1,7 @@
+**Monday Briefing: Left Surges in French Election**\
+`Plus, a reformist will be Iran’s next president.`\
+https://nytimes.com/2024/07/07/briefing/french-election-left.html
+
 **France’s campaign season was marred by racist attacks and violent acts.**\
 `By Catherine Porter`\
 https://nytimes.com/live/2024/07/07/world/france-election-2024/frances-campaign-season-was-marred-by-racist-attacks-and-violent-acts
