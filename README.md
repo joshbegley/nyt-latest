@@ -1,3 +1,11 @@
+**Hull defender Greaves to undergo Ipswich medical as Philogene talks continue**\
+`Hull City centre-back Jacob Greaves has been granted permission to undergo a medical ahead of his proposed move to Ipswich Town.`\
+https://nytimes.com/athletic/5622156/2024/07/07/jacob-greaves-ipswich-transfers-hull-jaden-philogene/
+
+**J.D. Vance Endorses Trump’s Call for a Special Prosecutor Against Biden**\
+`The Ohio senator suggested it was “a totally reasonable thing” for former President Donald J. Trump to, if re-elected, appoint a prosecutor to investigate the Biden administration.`\
+https://nytimes.com/2024/07/07/us/politics/vance-trump-biden-special-prosecutor.html
+
 **Macron’s rivals say they’ll fix the economy, but economists are skeptical.**\
 `By Liz Alderman`\
 https://nytimes.com/live/2024/07/07/world/france-election-2024/macron-national-rally-france-economy
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/07/world/france-election-2024/the-polls-are-abo
 **Some in Mexico Take Precautions for Beryl, While Others Enjoy the Beach**\
 `The storm largely spared the country, but some people in Tamaulipas were heeding the authorities’ advice to not let their guard down. Others were more carefree.`\
 https://nytimes.com/2024/07/07/us/beryl-mexico-hurricane-storm-path.html
-
-**Brighton sign Cozier-Duberry after Arsenal exit**\
-`Brighton have completed the signing of Amario Cozier-Duberry from Arsenal on a four-year contract.`\
-https://nytimes.com/athletic/5622065/2024/07/07/brighton-transfers-amario-cozier-duberry-arsenal/
-
-**Slavko Vincic appointed referee for Spain vs France**\
-`Slavko Vincic has been appointed as the match referee for the European Championship semi-final between Spain and France.`\
-https://nytimes.com/athletic/5622043/2024/07/07/slavko-vincic-spain-france-referee-who/
 
