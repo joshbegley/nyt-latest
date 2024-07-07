@@ -1,3 +1,7 @@
+**Officials Urge Coastal Texans to Evacuate, but Some Are Unfazed**\
+`Despite warnings that Beryl could be a “deadly storm,” many local residents decided to stay put, gambling that they could survive its wind and rains.`\
+https://nytimes.com/2024/07/07/us/texas-evacuations-storm-beryl.html
+
 **Gridlock? Instability? Without an Absolute Majority, France’s Way Forward Is Unclear**\
 `Experts said the country could be headed for months of political instability, with the National Assembly divided into three major blocs that appear unable to work with the others.`\
 https://nytimes.com/2024/07/07/world/europe/france-election-political-gridlock.html
