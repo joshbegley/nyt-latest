@@ -1,3 +1,7 @@
+**Wimbledon day 7: Carlos Alcaraz feeds on his own genius, Lulu Sun rolls on**\
+`A week into Wimbledon, fearless flair fuels the defending champion, and a New Zealand qualifier takes out a home favorite`\
+https://nytimes.com/athletic/5622398/2024/07/07/wimbledon-recap-day-7-carlos-alcarazs-highlight-reel-and-lulu-suns-story/
+
 **Heliot Ramos, Logan Webb selected as the Giants representatives for the 2024 All-Star Game**\
 `Webb and Ramos were the obvious picks, and it's a pleasant surprise to see the general baseball world agree.`\
 https://nytimes.com/athletic/5622220/2024/07/07/sf-giants-heliot-ramos-logan-webb-all-stars/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/07/us/politics/biden-interview-radio-host-resigns.ht
 **Supporters of France’s left-wing alliance celebrate, while jeering the far right.**\
 `By Adam Nossiter and Aida Alami`\
 https://nytimes.com/live/2024/07/07/world/france-election-2024/supporters-of-frances-left-wing-alliance-celebrate-while-jeering-the-far-right
-
-**Emma Raducanu has no regrets over withdrawal that ended Andy Murray's Wimbledon career**\
-`Ema Raducanu insists that she has no regrets about withdrawing from the mixed doubles event with Andy Murray, explaining that she had to &#8220;prioritise&#8221; her body.`\
-https://nytimes.com/athletic/5622526/2024/07/07/emma-raducanu-injury-wimbledon-andy-murray/
 
