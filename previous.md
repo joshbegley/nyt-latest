@@ -2,7 +2,7 @@
 `The arrival — and success — of brick-and-mortar romance stores.`\
 https://nytimes.com/2024/07/07/briefing/romance-bookstores.html
 
-**Biden campaigns in Pennsylvania, as calls continue for him to quit the race.**\
+**Biden Campaigns in Pennsylvania, as Calls Continue for Him to Quit the Race**\
 `The president will visit Philadelphia and Harrisburg on Sunday as he works to salvage his imperiled campaign.`\
 https://nytimes.com/2024/07/07/us/politics/biden-pennsylvania.html
 

@@ -1,3 +1,7 @@
+**Biden Campaigns in Pennsylvania, as Calls Continue for Him to Quit the Race**\
+`The president will visit Philadelphia and Harrisburg on Sunday as he works to salvage his imperiled campaign.`\
+https://nytimes.com/2024/07/07/us/politics/biden-pennsylvania.html
+
 **A Romance Bookstore Boom**\
 `The arrival — and success — of brick-and-mortar romance stores.`\
 https://nytimes.com/2024/07/07/briefing/romance-bookstores.html
