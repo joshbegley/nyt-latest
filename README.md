@@ -1,3 +1,7 @@
+**Edwin Díaz returns from suspension, restores much-needed order for Mets' bullpen**\
+`In the 10 games without Díaz, the Mets’ bullpen had an 8.37 ERA, the worst in the majors during that span.`\
+https://nytimes.com/athletic/5621165/2024/07/06/mets-edwin-diaz-return-suspension/
+
 **‘Goodest Job’ or ‘Good as Job’? The White House Wants a Word.**\
 `ABC News tweaked its transcript of an intriguing moment in its Friday interview with the president after the Biden administration and news outlets raised questions.`\
 https://nytimes.com/2024/07/06/us/politics/biden-goodest-transcript.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5621041/2024/07/06/steve-kerr-klay-thompson-warrior
 **Coney Island Drownings Fail to Deter New Yorkers as City Swelters**\
 `Visitors were mostly unaffected by the third and fourth drownings at New York City beaches this season, matching the total number of swimming deaths last summer.`\
 https://nytimes.com/2024/07/06/nyregion/coney-island-beach-drowning.html
-
-**France’s Snap Election Enters Its Final Hours**\
-`The vote will determine the composition of France’s National Assembly, and the future of President Emmanuel Macron’s second term.`\
-https://nytimes.com/2024/07/06/world/europe/france-parliamentary-election-2024.html
 
