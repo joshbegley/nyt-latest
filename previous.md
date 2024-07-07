@@ -1,3 +1,7 @@
+**Macron’s rivals say they’ll fix the economy, but economists are skeptical.**\
+`By Liz Alderman`\
+https://nytimes.com/live/2024/07/07/world/france-election-2024/macron-national-rally-france-economy
+
 **Marco Rubio, Contender to Be Trump’s Running Mate, Defends Supreme Court’s Immunity Ruling**\
 `“I think what the Supreme Court did is, it clarified what the law is,” Senator Rubio, a Florida Republican, said on CNN on Sunday.`\
 https://nytimes.com/2024/07/07/us/politics/trump-vp-immunity-rubio.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5622065/2024/07/07/brighton-transfers-amario-cozier
 **Slavko Vincic appointed referee for Spain vs France**\
 `Slavko Vincic has been appointed as the match referee for the European Championship semi-final between Spain and France.`\
 https://nytimes.com/athletic/5622043/2024/07/07/slavko-vincic-spain-france-referee-who/
-
-**Why Beryl is a bad sign for this year’s hurricane season.**\
-`The storm grew very quickly after it formed, reflecting hot ocean conditions that could bring more dangerous hurricanes.`\
-https://nytimes.com/live/2024/07/07/us/hurricane-beryl-texas/why-beryl-is-a-bad-sign-for-this-years-hurricane-season
 
