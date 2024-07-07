@@ -1,3 +1,11 @@
+**Jane F. McAlevey, Who Empowered Workers Across the Globe, Dies at 59**\
+`An organizer and author, she believed that a union was only as strong as its members and trained thousands “to take over their unions and change them.”`\
+https://nytimes.com/2024/07/07/business/jane-mcalevey-dead.html
+
+**Radio Host Who Was Fed Questions by Biden Campaign Leaves Philadelphia Station**\
+`WURD said that the interview with President Biden was not up to its standards and that the host, Andrea Lawful-Sanders, had resigned in a mutual decision.`\
+https://nytimes.com/2024/07/07/us/politics/biden-interview-radio-host-resigns.html
+
 **Supporters of France’s left-wing alliance celebrate, while jeering the far right.**\
 `By Adam Nossiter and Aida Alami`\
 https://nytimes.com/live/2024/07/07/world/france-election-2024/supporters-of-frances-left-wing-alliance-celebrate-while-jeering-the-far-right
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5622484/2024/07/07/kevin-durant-olympics-calf-injur
 **Coco Gauff out of Wimbledon after shock defeat to Emma Navarro**\
 `The No. 2 seed and favorite for the title was undone by her compatriot's clean, uncompromising tennis`\
 https://nytimes.com/athletic/5622514/2024/07/07/coco-gauff-emma-navarro-wimbledon/
-
-**Weeks After Alice Munro’s Death, Daughter Tells of Dark Family Secret**\
-`Andrea Skinner said in the Toronto Star that her stepfather sexually abused her at age 9, and that her mother stayed with him after she learned of it.`\
-https://nytimes.com/2024/07/07/books/alice-munro-daughter-abuse.html
-
-**Four top House Democrats told colleagues privately that it’s time for Biden to withdraw.**\
-`At least four ranking members of House committees shared their assessment during a virtual meeting of top Democrats convened by Representative Hakeem Jeffries of New York, the minority leader.`\
-https://nytimes.com/live/2024/07/07/us/biden-trump-election/four-top-house-democrats-told-colleagues-privately-that-its-time-for-biden-to-withdraw
 

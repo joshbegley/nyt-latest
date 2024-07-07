@@ -1,3 +1,11 @@
+**Jane F. McAlevey, Who Empowered Workers Across the Globe, Dies at 59**\
+`An organizer and author, she believed that a union was only as strong as its members and trained thousands “to take over their unions and change them.”`\
+https://nytimes.com/2024/07/07/business/jane-mcalevey-dead.html
+
+**Radio Host Who Was Fed Questions by Biden Campaign Leaves Philadelphia Station**\
+`WURD said that the interview with President Biden was not up to its standards and that the host, Andrea Lawful-Sanders, had resigned in a mutual decision.`\
+https://nytimes.com/2024/07/07/us/politics/biden-interview-radio-host-resigns.html
+
 **Supporters of France’s left-wing alliance celebrate, while jeering the far right.**\
 `By Adam Nossiter and Aida Alami`\
 https://nytimes.com/live/2024/07/07/world/france-election-2024/supporters-of-frances-left-wing-alliance-celebrate-while-jeering-the-far-right
