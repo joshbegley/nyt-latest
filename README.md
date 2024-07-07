@@ -26,6 +26,10 @@ https://nytimes.com/athletic/5621484/2024/07/07/englands-change-of-shape-worked-
 `Manchester United are working to finalise the signing of Bologna forward Joshua Zirkzee.`\
 https://nytimes.com/athletic/5573939/2024/07/07/joshua-zirkzee-manchester-united-transfer/
 
+**Man Utd target Zirkzee: Striker with a 'unicorn' skill set who offers something different**\
+`Perhaps the most unique striker profile at the Euros, the 6ft 4in Man United target has more dimensions to his game than you might think`\
+https://nytimes.com/athletic/5569696/2024/07/07/joshua-zirkzee-transfer-man-united/
+
 **After 9 Months of War, Israelis Call for a Cease-Fire Deal and Elections**\
 `A day of nationwide anti-government protests comes amid signs of progress toward a truce and hostage deal with Hamas, as well as continued fighting.`\
 https://nytimes.com/2024/07/07/world/middleeast/israel-gaza-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/07/world/middleeast/israel-gaza-protests.html
 **A Romance Bookstore Boom**\
 `The arrival — and success — of brick-and-mortar romance stores.`\
 https://nytimes.com/2024/07/07/briefing/romance-bookstores.html
-
-**Biden Campaigns in Pennsylvania, as Calls Continue for Him to Quit the Race**\
-`The president will visit Philadelphia and Harrisburg on Sunday as he works to salvage his imperiled campaign.`\
-https://nytimes.com/2024/07/07/us/politics/biden-pennsylvania.html
 
