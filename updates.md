@@ -1,3 +1,7 @@
+**Leicester complete Golding signing from Chelsea**\
+`Leicester City have completed the signing of midfielder Michael Golding from Chelsea.`\
+https://nytimes.com/athletic/5608104/2024/07/07/leicester-michael-golding-chelsea-transfer/
+
 **Man Utd target Zirkzee: Striker with a 'unicorn' skill set who offers something different**\
 `Perhaps the most unique striker profile at the Euros, the 6ft 4in Man United target has more dimensions to his game than you might think`\
 https://nytimes.com/athletic/5569696/2024/07/07/joshua-zirkzee-transfer-man-united/
