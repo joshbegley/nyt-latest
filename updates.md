@@ -1,3 +1,7 @@
+**A Brief History of Hurricanes That Hit Texas**\
+`South Texans are bracing for the arrival of a powerful hurricane, as have generations of Texans before them.`\
+https://nytimes.com/2024/07/07/us/texas-hurricane-history.html
+
 **Texas has a long and deadly history of hurricanes.**\
 `South Texans are bracing for the arrival of a powerful hurricane, as have generations of Texans before them.`\
 https://nytimes.com/2024/07/07/us/texas-hurricane-history.html
