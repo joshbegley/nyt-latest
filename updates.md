@@ -1,3 +1,7 @@
+**At Port Aransas, some residents rushed to take the last ferry out of the island town.**\
+`By Edgar Sandoval`\
+https://nytimes.com/live/2024/07/07/us/hurricane-beryl-texas/at-port-aransas-some-residents-rushed-to-take-the-last-ferry-out-of-the-island-town
+
 **Monday Briefing: Left Surges in French Election**\
 `Plus, a reformist will be Iran’s next president.`\
 https://nytimes.com/2024/07/07/briefing/french-election-left.html
