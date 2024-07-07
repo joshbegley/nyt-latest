@@ -1,3 +1,7 @@
+**Brazil are out and the recriminations have begun, but Dorival Junior needs time**\
+`The Selecao huffed and puffed at Copa America 2024 but their coach has only had eight games in charge and needs longer to make a mark`\
+https://nytimes.com/athletic/5621416/2024/07/07/brazil-dorival-copa-uruguay/
+
 **Jim Clyburn Is Right About What Democrats Should Do Next**\
 `To find a new nominee, Democrats need to hold a real contest.`\
 https://nytimes.com/2024/07/07/opinion/biden-jim-clyburn-democrats.html
