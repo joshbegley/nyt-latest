@@ -2,7 +2,7 @@
 `The party fell short of expectations but had captured its highest number of National Assembly seats.`\
 https://nytimes.com/2024/07/07/world/europe/france-election-results-national-rally.html
 
-**Phillies exit Atlanta with 7 All-Stars, Schwarber and Harper back soon and a debut to ponder**\
+**Phillies exit Atlanta with 7 All-Stars, Schwarber and Harper back soon, and a debut to ponder**\
 `The All-Star Game will have a distinct Phillies slant. It's a reflection of what they have accomplished so far. They have bigger goals. `\
 https://nytimes.com/athletic/5622636/2024/07/07/phillies-all-stars-schwarber-harper-returns-tyler-phillips-debut/
 
