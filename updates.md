@@ -1,3 +1,7 @@
+**The Pulse: Tourney penalty kicks and a new Netflix option**\
+`Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5621882/2024/07/07/copa-america-euros-tour-de-france-the-pulse/
+
 **Chelsea hire law firm to investigate sexual harassment allegation**\
 `Chelsea have hired an independent law firm to investigate after a female employee made an allegation of sexual harassment against a male counterpart.`\
 https://nytimes.com/athletic/5621858/2024/07/07/chelsea-hire-law-firm-to-investigate-sexual-harassment-allegation/
