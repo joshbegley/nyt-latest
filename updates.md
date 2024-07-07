@@ -1,3 +1,11 @@
+**Supporters of France’s left-wing alliance celebrate, while jeering the far right.**\
+`By Adam Nossiter and Aida Alami`\
+https://nytimes.com/live/2024/07/07/world/france-election-2024/supporters-of-frances-left-wing-alliance-celebrate-while-jeering-the-far-right
+
+**Emma Raducanu has no regrets over withdrawal that ended Andy Murray's Wimbledon career**\
+`Ema Raducanu insists that she has no regrets about withdrawing from the mixed doubles event with Andy Murray, explaining that she had to &#8220;prioritise&#8221; her body.`\
+https://nytimes.com/athletic/5622526/2024/07/07/emma-raducanu-injury-wimbledon-andy-murray/
+
 **Chicago Cubs pitcher Colten Brewer broke his hand punching a wall in frustration **\
 `The Cubs placed Brewer on the 60-day injured list. He will see a hand specialist Tuesday.`\
 https://nytimes.com/athletic/5622482/2024/07/07/chicago-cubs-pitcher-colten-brewer-broke-hand-punching-wall/
