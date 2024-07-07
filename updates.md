@@ -1,3 +1,11 @@
+**Marco Rubio, Contender to Be Trump’s Running Mate, Defends Supreme Court’s Immunity Ruling**\
+`“I think what the Supreme Court did is, it clarified what the law is,” Senator Rubio, a Florida Republican, said on CNN on Sunday.`\
+https://nytimes.com/2024/07/07/us/politics/trump-vp-immunity-rubio.html
+
+**Here Are the Key Players in France’s Election**\
+`The vote has turned into a race between the two main opponents of President Emmanuel Macron’s Renaissance party: the far-right National Rally and the New Popular Front, a left-wing coalition.`\
+https://nytimes.com/2024/07/07/world/europe/france-election-key-players.html
+
 **Live Updates: France Votes in Election That Could Bring Far Right Closer to Power**\
 `The far-right National Rally drew the most support in the first round of voting. In Sunday’s final round, it hopes to win a majority in the powerful lower house of Parliament.`\
 https://nytimes.com/live/2024/07/07/world/france-election-2024
