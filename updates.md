@@ -1,3 +1,7 @@
+**Flyers sign first-round pick Jett Luchanko, who has 'a mature game for a young player'**\
+`Luchanko signed a three-year entry-level deal with the Flyers on Saturday.`\
+https://nytimes.com/athletic/5621182/2024/07/06/philadelphia-flyers-sign-jett-luchanko/
+
 **Busquets red carded as Inter Miami lose 6-1 to FC Cincinnati**\
 `Sergio Busquets was sent off for dissent as Inter Miami lost 6-1 to FC Cincinnati on Saturday.`\
 https://nytimes.com/athletic/5621178/2024/07/06/sergio-busquets-red-card-inter-miami/
