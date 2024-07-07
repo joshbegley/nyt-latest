@@ -1,3 +1,15 @@
+**Texas Braces for Beryl, With Over a Million Under a Hurricane Warning**\
+`Beryl, which weakened to a tropical storm, is expected to intensify again and could make landfall on the Texas coast as a Category 1 hurricane as soon as Monday morning, forecasters say.`\
+https://nytimes.com/2024/07/07/us/beryl-hurricane-texas.html
+
+**Resilience Has Fueled Biden’s Career. But So Has Defiance.**\
+`The resilience that President Biden sold as a trademark of his political brand for half a century now looks to some like blind resistance in the face of a rising tide.`\
+https://nytimes.com/2024/07/07/us/politics/bidens-resiliance-defiance.html
+
+**A Brooklyn Jewelry Brand Takes Flight**\
+`Twenty years after opening in Williamsburg, Catbird is expanding across America.`\
+https://nytimes.com/2024/07/07/style/catbird-jewelry-stores.html
+
 **Corrections: July 7, 2024**\
 `Corrections that appeared in print on Sunday, July 7, 2024.`\
 https://nytimes.com/2024/07/07/pageoneplus/corrections-july-7-2024.html
