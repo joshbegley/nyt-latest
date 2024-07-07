@@ -1,7 +1,3 @@
-**SpaceX’s Assault on a Fragile Habitat: Four Takeaways From Our Investigation**\
-`The development of Elon Musk’s facility in South Texas did not play out as local officials were originally told it would.`\
-https://nytimes.com/2024/07/07/us/politics/spacex-boca-chica-takeaways.html
-
 **Wildlife Protections Take a Back Seat to SpaceX’s Ambitions**\
 `A New York Times investigation found that Elon Musk exploited federal agencies’ competing missions to achieve his goals for space travel.`\
 https://nytimes.com/2024/07/07/us/politics/spacex-wildlife-texas.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/07/07/briefing/romance-bookstores.html
 **Biden Campaigns in Pennsylvania, as Calls Continue for Him to Quit the Race**\
 `The president will visit Philadelphia and Harrisburg on Sunday as he works to salvage his imperiled campaign.`\
 https://nytimes.com/2024/07/07/us/politics/biden-pennsylvania.html
+
+**Flooding and Landslides Kill at Least 15 in Nepal**\
+`In this monsoon season so far there have been more than 60 weather-related fatalities. With roads cut off and more rain expected, the toll could rise.`\
+https://nytimes.com/2024/07/07/world/asia/flooding-landslide-nepal.html
 
