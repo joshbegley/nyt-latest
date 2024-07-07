@@ -1,3 +1,7 @@
+**Coco Gauff out of Wimbledon after shock defeat to Emma Navarro**\
+`The No. 2 seed and favorite for the title was undone by her compatriot's clean, uncompromising tennis`\
+https://nytimes.com/athletic/5622514/2024/07/07/coco-gauff-emma-navarro-wimbledon/
+
 **Weeks After Alice Munro’s Death, Daughter Tells of Dark Family Secret**\
 `Andrea Skinner said in the Toronto Star that her stepfather sexually abused her at age 9, and that her mother stayed with him after she learned of it.`\
 https://nytimes.com/2024/07/07/books/alice-munro-daughter-abuse.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/07/world/france-election-2024/france-new-popula
 **Beryl’s Trail of Destruction So Far**\
 `The storm has caused widespread damage on its path through the Caribbean and toward the Gulf of Mexico. See where it has wreaked havoc.`\
 https://nytimes.com/2024/07/07/us/hurricane-beryl-path-mexico-carriacou.html
-
-**Raducanu's Wimbledon is over after loss to qualifier Lulu Sun**\
-`Emma Raducanu&#8217;s Wimbledon is over after losing to New Zealand qualifier Lulu Sun on Centre Court on Sunday.`\
-https://nytimes.com/athletic/5622344/2024/07/07/emma-raducanu-wimbledon-lulu-sun/
 
