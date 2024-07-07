@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5622187/2024/07/07/detroit-tigers-all-star-roster-r
 https://nytimes.com/2024/07/07/world/europe/france-election-new-popular-front-far-right.html
 
 **Paramount Takes Major Step to Finalizing Merger With Skydance**\
-`The tentative deal, approved by Paramount’s special committee, sets the stage for a new chapter for the company, which owns CBS and the movie studio behind “Top Gun.”`\
+`The tentative deal, said to be approved by Paramount’s special committee, sets the stage for a new chapter for the company, which owns CBS and the movie studio behind “Top Gun.”`\
 https://nytimes.com/2024/07/07/business/media/paramount-skydance-merger-deal.html
 
 **Kid With an Attitude**\
