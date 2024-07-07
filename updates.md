@@ -1,3 +1,7 @@
+**Wimbledon day 7: Carlos Alcaraz feeds on his own genius, Lulu Sun rolls on**\
+`A week into Wimbledon, fearless flair fuels the defending champion, and a New Zealand qualifier takes out a home favorite`\
+https://nytimes.com/athletic/5622398/2024/07/07/wimbledon-recap-day-7-carlos-alcarazs-highlight-reel-and-lulu-suns-story/
+
 **Paramount Takes Major Step to Finalizing Merger With Skydance**\
 `The tentative deal, said to be approved by Paramount’s special committee, sets the stage for a new chapter for the company, which owns CBS and the movie studio behind “Top Gun.”`\
 https://nytimes.com/2024/07/07/business/media/paramount-skydance-merger-deal.html
