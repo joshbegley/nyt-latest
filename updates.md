@@ -1,3 +1,7 @@
+**Edwin Díaz returns from suspension, restores much-needed order for Mets' bullpen**\
+`In the 10 games without Díaz, the Mets’ bullpen had an 8.37 ERA, the worst in the majors during that span.`\
+https://nytimes.com/athletic/5621165/2024/07/06/mets-edwin-diaz-return-suspension/
+
 **‘Goodest Job’ or ‘Good as Job’? The White House Wants a Word.**\
 `ABC News tweaked its transcript of an intriguing moment in its Friday interview with the president after the Biden administration and news outlets raised questions.`\
 https://nytimes.com/2024/07/06/us/politics/biden-goodest-transcript.html
