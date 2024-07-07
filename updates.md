@@ -1,3 +1,7 @@
+**'Everybody loved seeing him': Hall of Famer Bobby Cox makes rare visit to Braves game**\
+`Cox stopped by the clubhouse before the 5-1 win against the Phillies, meeting players who knew of him but had never met him.`\
+https://nytimes.com/athletic/5621337/2024/07/07/bobby-cox-visits-truist-park/
+
 **Why LeBron took $3 million less in Lakers deal**\
 `James is signing a two-year, $101.355 million deal instead of the two-year, $104 million maximum he could’ve re-signed for.`\
 https://nytimes.com/athletic/5621333/2024/07/07/lebron-james-lakers-contract-nba/
