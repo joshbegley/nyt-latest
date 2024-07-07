@@ -1,3 +1,7 @@
+**Who is Leicester's new signing Michael Golding?**\
+`The 18-year-old attack-minded midfielder made his debut for Chelsea's senior team last season and has captained England at youth level`\
+https://nytimes.com/athletic/5611512/2024/07/07/leicester-city-michael-golding-chelsea-transfer/
+
 **Bulls close book on DeMar DeRozan era by acquiring Chris Duarte in sign-and-trade deal**\
 `After trading Alex Caruso and DeRozan this offseason, the Bulls have decisions to make on Zach LaVine, Nikola Vučević and Lonzo Ball.`\
 https://nytimes.com/athletic/5621363/2024/07/07/bulls-demar-derozan-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5621484/2024/07/07/englands-change-of-shape-worked-
 **Man Utd working to finalise Zirkzee signing**\
 `Manchester United are working to finalise the signing of Bologna forward Joshua Zirkzee.`\
 https://nytimes.com/athletic/5573939/2024/07/07/joshua-zirkzee-manchester-united-transfer/
-
-**Man Utd target Zirkzee: Striker with a 'unicorn' skill set who offers something different**\
-`Perhaps the most unique striker profile at the Euros, the 6ft 4in Man United target has more dimensions to his game than you might think`\
-https://nytimes.com/athletic/5569696/2024/07/07/joshua-zirkzee-transfer-man-united/
 

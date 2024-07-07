@@ -1,3 +1,7 @@
+**As Democrats Fret About Biden, Murphy Says He Must Address Voters’ Concerns**\
+`The Connecticut Democrat said the president had more to do to assuage voters’ worries about his age, mental acuity and fitness to run. Top House Democrats are set to meet on Sunday to discuss his candidacy.`\
+https://nytimes.com/2024/07/07/us/politics/biden-democrats-congress-murphy.html
+
 **Who is Leicester's new signing Michael Golding?**\
 `The 18-year-old attack-minded midfielder made his debut for Chelsea's senior team last season and has captained England at youth level`\
 https://nytimes.com/athletic/5611512/2024/07/07/leicester-city-michael-golding-chelsea-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/video/science/100000009539557/how-spacex-is-harming-delicate
 **England's change of shape against Switzerland worked - to a point - thanks to Bukayo Saka**\
 `The Arsenal man was not only key to England's defensive plan, but also provided their best attacking moments`\
 https://nytimes.com/athletic/5621484/2024/07/07/englands-change-of-shape-worked-to-a-point-thanks-to-bukayo-saka/
-
-**Man Utd working to finalise Zirkzee signing**\
-`Manchester United are working to finalise the signing of Bologna forward Joshua Zirkzee.`\
-https://nytimes.com/athletic/5573939/2024/07/07/joshua-zirkzee-manchester-united-transfer/
 

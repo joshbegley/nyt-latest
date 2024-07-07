@@ -1,3 +1,7 @@
+**Who is Leicester's new signing Michael Golding?**\
+`The 18-year-old attack-minded midfielder made his debut for Chelsea's senior team last season and has captained England at youth level`\
+https://nytimes.com/athletic/5611512/2024/07/07/leicester-city-michael-golding-chelsea-transfer/
+
 **Bulls close book on DeMar DeRozan era by acquiring Chris Duarte in sign-and-trade deal**\
 `After trading Alex Caruso and DeRozan this offseason, the Bulls have decisions to make on Zach LaVine, Nikola Vučević and Lonzo Ball.`\
 https://nytimes.com/athletic/5621363/2024/07/07/bulls-demar-derozan-trade/
