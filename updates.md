@@ -1,3 +1,11 @@
+**Martin Stolar, Lawyer Who Fought for Social Justice, Dies at 81**\
+`His clients included antiwar protesters and Black Panthers. His practice “not only defended needy people, it propelled social movements,” a colleague said.`\
+https://nytimes.com/2024/07/07/us/martin-stolar-dead.html
+
+**Inside the Kings' in-person recruitment of DeMar DeRozan**\
+`DeRozan spent much of Saturday meeting with Kings coaches and players; his Golden 1 Center arrival seemed to be timed just right.`\
+https://nytimes.com/athletic/5621320/2024/07/07/demar-derozan-kings-trade-sacramento-celebration/
+
 **Lewis Hamilton wins British Grand Prix**\
 `The seven-time world champion's win marks Mercedes' second consecutive victory this season.`\
 https://nytimes.com/athletic/5621950/2024/07/07/lewis-hamilton-wins-british-grand-prix-after-945-day-f1-victory-drought/
