@@ -1,3 +1,7 @@
+**Slavko Vincic appointed referee for Spain vs France**\
+`Slavko Vincic has been appointed as the match referee for the European Championship semi-final between Spain and France.`\
+https://nytimes.com/athletic/5622043/2024/07/07/slavko-vincic-spain-france-referee-who/
+
 **Why Beryl is a bad sign for this year’s hurricane season.**\
 `The storm grew very quickly after it formed, reflecting hot ocean conditions that could bring more dangerous hurricanes.`\
 https://nytimes.com/live/2024/07/07/us/hurricane-beryl-texas/why-beryl-is-a-bad-sign-for-this-years-hurricane-season
@@ -11,7 +15,7 @@ https://nytimes.com/2024/07/07/style/power-slap-fights.html
 https://nytimes.com/athletic/5619829/2024/07/07/riccardo-calafiori-arsenal-italy-transfer/
 
 **Martin Stolar, Lawyer Who Fought for Social Justice, Dies at 81**\
-`His clients included antiwar protesters and Black Panthers. His practice “not only defended needy people, it propelled social movements,” a colleague said.`\
+`His clients included antiwar protesters and terror suspects. His practice “not only defended needy people, it propelled social movements,” a colleague said.`\
 https://nytimes.com/2024/07/07/us/martin-stolar-dead.html
 
 **Inside the Kings' in-person recruitment of DeMar DeRozan**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5621917/2024/07/07/madison-keys-wimbledon-jasmine-p
 **John Cena to retire from WWE after 2025**\
 `Cena, 47, has long said he wouldn’t wrestle past 50 years old.`\
 https://nytimes.com/athletic/5621964/2024/07/07/john-cena-retirement/
-
-**Party Time: Dos, Don’ts and So-Whats**\
-`Readers take issue with advice in a guide to party etiquette. Also: Rudy Giuliani and Donald Trump; occupational therapy for older New Yorkers.`\
-https://nytimes.com/2024/07/07/opinion/party-etiquette.html
 

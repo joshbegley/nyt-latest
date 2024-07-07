@@ -1,3 +1,11 @@
+**Slavko Vincic appointed referee for Spain vs France**\
+`Slavko Vincic has been appointed as the match referee for the European Championship semi-final between Spain and France.`\
+https://nytimes.com/athletic/5622043/2024/07/07/slavko-vincic-spain-france-referee-who/
+
+**Martin Stolar, Lawyer Who Fought for Social Justice, Dies at 81**\
+`His clients included antiwar protesters and terror suspects. His practice “not only defended needy people, it propelled social movements,” a colleague said.`\
+https://nytimes.com/2024/07/07/us/martin-stolar-dead.html
+
 **Why Beryl is a bad sign for this year’s hurricane season.**\
 `The storm grew very quickly after it formed, reflecting hot ocean conditions that could bring more dangerous hurricanes.`\
 https://nytimes.com/live/2024/07/07/us/hurricane-beryl-texas/why-beryl-is-a-bad-sign-for-this-years-hurricane-season
