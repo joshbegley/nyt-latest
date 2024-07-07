@@ -1,3 +1,7 @@
+**Inside Day 1 of Team USA's Olympic training camp: 'You can feel the greatness in the room'**\
+`Most iterations of Team USA's men's basketball team since 1992 have had staggering amounts of star power, but none quite like this.`\
+https://nytimes.com/athletic/5621174/2024/07/07/team-usa-basketball-olympics-training-camp-day-1/
+
 **How Uruguay v Brazil became this Copa America's dirtiest match**\
 `There were 41 fouls in Uruguay's quarterfinal triumph over Brazil - the most in a match this summer's Copa America. Chaos reigned.`\
 https://nytimes.com/athletic/5621351/2024/07/07/brazil-uruguay-copa-america-2024-fouls/
