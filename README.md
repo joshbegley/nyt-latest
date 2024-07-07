@@ -1,3 +1,11 @@
+**Reds' Elly De La Cruz is headed to the All-Star Game for the first time**\
+`De La Cruz's All-Star bid did not come as a surprise to those who have been around him.`\
+https://nytimes.com/athletic/5622707/2024/07/07/reds-elly-de-la-cruz-first-all-star-game/
+
+**Full All-Star rosters revealed; Phillies lead with 7**\
+`Zack Wheeler, Ranger Suarez, Jeff Hoffman and Matt Strahm were the latest Phillies chosen for the 2024 All-Star Game.`\
+https://nytimes.com/athletic/5622380/2024/07/07/mlb-all-star-game-rosters-2024/
+
 **Here’s what to expect as Beryl is set to hit Texas.**\
 `By Isabelle Taft`\
 https://nytimes.com/live/2024/07/07/us/hurricane-beryl-texas/heres-what-to-expect-as-beryl-is-set-to-hit-texas
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/07/world/europe/france-election-new-popular-front-fa
 **Paramount Agrees to Merge With Skydance**\
 `The deal, approved by Paramount’s board, ushers in a new chapter for the company, which owns CBS and the movie studio behind “Top Gun.”`\
 https://nytimes.com/2024/07/07/business/media/paramount-skydance-merger-deal.html
-
-**Coco Gauff out of Wimbledon after shock defeat to Emma Navarro**\
-`The No. 2 seed and favorite for the title was undone by her compatriot's clean, uncompromising tennis`\
-https://nytimes.com/athletic/5622514/2024/07/07/coco-gauff-emma-navarro-wimbledon/
-
-**Kid With an Attitude**\
-`Daniel Bodily and Andrea Carla Michaels conspire to fool us.`\
-https://nytimes.com/2024/07/07/crosswords/daily-puzzle-2024-07-08.html
 
