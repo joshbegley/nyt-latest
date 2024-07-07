@@ -1,3 +1,15 @@
+**Why Beryl is a bad sign for this year’s hurricane season.**\
+`The storm grew very quickly after it formed, reflecting hot ocean conditions that could bring more dangerous hurricanes.`\
+https://nytimes.com/live/2024/07/07/us/hurricane-beryl-texas/why-beryl-is-a-bad-sign-for-this-years-hurricane-season
+
+**In Las Vegas, a Violent Sport Sparks Controversy**\
+`The team behind the Ultimate Fighting Championship is betting big on Power Slap, a new and extremely dangerous competition with many detractors.`\
+https://nytimes.com/2024/07/07/style/power-slap-fights.html
+
+**Calafiori is a front-foot, modern-day defender - and would suit Arteta's Arsenal**\
+`The Italy and Bologna defender is 22 and has issues to iron out but looks custom-made for the innovation of the four centre-back defence`\
+https://nytimes.com/athletic/5619829/2024/07/07/riccardo-calafiori-arsenal-italy-transfer/
+
 **Martin Stolar, Lawyer Who Fought for Social Justice, Dies at 81**\
 `His clients included antiwar protesters and Black Panthers. His practice “not only defended needy people, it propelled social movements,” a colleague said.`\
 https://nytimes.com/2024/07/07/us/martin-stolar-dead.html
