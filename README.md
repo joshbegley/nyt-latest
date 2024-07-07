@@ -1,3 +1,7 @@
+**The Pulse: Tourney penalty kicks and a new Netflix option**\
+`Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5621882/2024/07/07/copa-america-euros-tour-de-france-the-pulse/
+
 **Chelsea hire law firm to investigate sexual harassment allegation**\
 `Chelsea have hired an independent law firm to investigate after a female employee made an allegation of sexual harassment against a male counterpart.`\
 https://nytimes.com/athletic/5621858/2024/07/07/chelsea-hire-law-firm-to-investigate-sexual-harassment-allegation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5618389/2024/07/07/what-tennis-players-do-when-not-
 **Felipe Alou remembers Willie Mays, Orlando Cepeda: 'The Giants were blessed'**\
 `Alou plans to speak at the Mays celebration of life on Monday. He shared a special bond with both Mays and his one-time roommate, Cepeda.`\
 https://nytimes.com/athletic/5619720/2024/07/07/sf-giants-felipe-alou-willie-mays-orlando-cepeda-memories/
-
-**How SpaceX Is Harming Delicate Ecosystems**\
-`On at least 19 occasions since 2019, SpaceX’s operations have caused fires, leaks and explosions near its launch site in Boca Chica, Texas.`\
-https://nytimes.com/video/science/100000009539557/how-spacex-is-harming-delicate-ecosystems.html
 
