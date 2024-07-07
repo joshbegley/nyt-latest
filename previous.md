@@ -1,3 +1,7 @@
+**NATO Has to Change. Here’s How.**\
+`It is increasingly clear that Europeans need to shoulder more responsibility for their own defense.`\
+https://nytimes.com/2024/07/07/opinion/nato-europe-us-ukraine-defense.html
+
 **Buddy system, Pickford bottle, crucial pauses: England penalties vs Switzerland analysed**\
 `England beating Switzerland on penalties was no fluke - all the little details show their deep level of preparation under Gareth Southgate.`\
 https://nytimes.com/athletic/5620945/2024/07/07/england-vs-switzerland-penalties-analysed-pickford/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/07/world/europe/biden-trump-ukraine-russia.html
 **Hopes for a Diplomatic Opening Rise Under Iran’s New President**\
 `Masoud Pezeshkian, a reformist, wants warmer relations with the West, with the goal of ending sanctions. But his powers are strictly limited.`\
 https://nytimes.com/2024/07/07/world/middleeast/iran-peveshkian-khamenei-nuclear.html
-
-**Dropping in Just to Say ‘Hi!’**\
-`What to do when a colleague seems to have a communication problem.`\
-https://nytimes.com/2024/07/07/business/work-friend-anna-holmes.html
 

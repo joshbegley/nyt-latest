@@ -1,3 +1,7 @@
+**NATO Has to Change. Here’s How.**\
+`It is increasingly clear that Europeans need to shoulder more responsibility for their own defense.`\
+https://nytimes.com/2024/07/07/opinion/nato-europe-us-ukraine-defense.html
+
 **Buddy system, Pickford bottle, crucial pauses: England penalties vs Switzerland analysed**\
 `England beating Switzerland on penalties was no fluke - all the little details show their deep level of preparation under Gareth Southgate.`\
 https://nytimes.com/athletic/5620945/2024/07/07/england-vs-switzerland-penalties-analysed-pickford/
