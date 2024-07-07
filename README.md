@@ -1,3 +1,7 @@
+**A Romance Bookstore Boom**\
+`The arrival — and success — of brick-and-mortar romance stores.`\
+https://nytimes.com/2024/07/07/briefing/romance-bookstores.html
+
 **Biden campaigns in Pennsylvania, as calls continue for him to quit the race.**\
 `The president will visit Philadelphia and Harrisburg on Sunday as he works to salvage his imperiled campaign.`\
 https://nytimes.com/2024/07/07/us/politics/biden-pennsylvania.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/07/opinion/supreme-court-trump-immunity.html
 **The Connections Companion No. 393, July 8, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/07/crosswords/connections-companion-393.html
-
-**Colombia have spent far too long in the shadows. They are the team to watch at Copa America**\
-`Supporters of Colombia are having a lot of fun right now, watching their fast, free-flowing team saunter into the Copa America semi-finals`\
-https://nytimes.com/athletic/5621314/2024/07/07/colombia-copa-america-rodriguez-diaz/
 
