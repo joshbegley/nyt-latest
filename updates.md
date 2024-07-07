@@ -1,3 +1,15 @@
+**Three Braves takeaways: Sale, Ozuna and López took unique routes to 2023 NL All-Star team**\
+`The Braves have three 2024 All-Stars in Chris Sale, Marcell Ozuna and Reynaldo López. They helped keep them above water in the first half.`\
+https://nytimes.com/athletic/5622790/2024/07/07/braves-all-stars-chris-sale-marcell-ozuna-reynaldo-lopez/
+
+**‘Lake Fire’ in California Prompts Evacuations and Threatens Neverland Ranch**\
+`The fire erupted on Friday near Zaca Lake, northeast of Los Olivos, Calif. As of Sunday, it had burned more than 16,000 acres and was zero percent contained.`\
+https://nytimes.com/2024/07/07/us/michael-jackson-ca-wildfire-neverland-ranch.html
+
+**Reese posts 13th consecutive double-double**\
+`Angel Reese bested Candace Parker’s 12-game double-double streak that spanned the 2009 and 2010 regular seasons.`\
+https://nytimes.com/athletic/5622827/2024/07/07/angel-reese-double-double-record-sky/
+
 **Stephen King, Elin Hilderbrand and More Share Their Top Books of the 21st Century**\
 `We asked some literary luminaries to share their full ballots.`\
 https://nytimes.com/interactive/2024/books/authors-top-books-21st-century.html
