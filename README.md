@@ -1,3 +1,7 @@
+**Bulls close book on DeMar DeRozan era by acquiring Chris Duarte in sign-and trade deal**\
+`After trading Alex Caruso and DeRozan this offseason, the Bulls have decisions to make on Zach LaVine, Nikola Vučević and Lonzo Ball.`\
+https://nytimes.com/athletic/5621363/2024/07/07/bulls-demar-derozan-trade/
+
 **Leicester complete Golding signing from Chelsea**\
 `Leicester City have completed the signing of midfielder Michael Golding from Chelsea.`\
 https://nytimes.com/athletic/5608104/2024/07/07/leicester-michael-golding-chelsea-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5573939/2024/07/07/joshua-zirkzee-manchester-united
 **Man Utd target Zirkzee: Striker with a 'unicorn' skill set who offers something different**\
 `Perhaps the most unique striker profile at the Euros, the 6ft 4in Man United target has more dimensions to his game than you might think`\
 https://nytimes.com/athletic/5569696/2024/07/07/joshua-zirkzee-transfer-man-united/
-
-**After 9 Months of War, Israelis Call for a Cease-Fire Deal and Elections**\
-`A day of nationwide anti-government protests comes amid signs of progress toward a truce and hostage deal with Hamas, as well as continued fighting.`\
-https://nytimes.com/2024/07/07/world/middleeast/israel-gaza-protests.html
 
