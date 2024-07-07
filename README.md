@@ -1,3 +1,7 @@
+**How Wout Weghorst changed the game — and what it says about Netherlands at Euro 2024**\
+`When the Dutch got desperate against Turkey, they took the option that did not exactly feel like Total Football. The called for the Big Man`\
+https://nytimes.com/athletic/5616452/2024/07/07/netherlands-euro-2024-semifinal-weghorst/
+
 **'Everybody loved seeing him': Hall of Famer Bobby Cox makes rare visit to Braves game**\
 `Cox stopped by the clubhouse before the 5-1 win against the Phillies, meeting players who knew of him but had never met him.`\
 https://nytimes.com/athletic/5621337/2024/07/07/bobby-cox-visits-truist-park/
@@ -22,19 +26,15 @@ https://nytimes.com/athletic/5621291/2024/07/07/marcell-ozuna-back-to-old-approa
 `Watching Spain's quarter-final victory over Germany in the Catalan town where the Barcelona forward grew up`\
 https://nytimes.com/athletic/5620189/2024/07/07/lamine-yamal-euro-2024-spain-rocafonda-barcelona/
 
+**Bukayo Saka, the loneliest walk and a personal triumph to fuel England's belief**\
+`The Arsenal forward is a delight, a national treasure and the embodiment of all that is good about this England team`\
+https://nytimes.com/athletic/5621214/2024/07/07/saka-england-penalty-euro2024/
+
+**Turkey's Euro 2024 run has restored their reputation - and that of coach Vincenzo Montella**\
+`Turkey's Euro 2024 run has restored their reputation - and that of coach Vincenzo Montella`\
+https://nytimes.com/athletic/5620885/2024/07/07/turkey-montella-euro-2024/
+
 **Quotation of the Day: Calls for President to Quit Set Up Clash Within Party**\
 `Quotation of the Day for Sunday, July 7, 2024.`\
 https://nytimes.com/2024/07/07/pageoneplus/quotation-of-the-day-calls-for-president-to-quit-set-up-clash-within-party.html
-
-**Manchester United return to training: What next for Greenwood, Sancho and transfers?**\
-`The main questions facing Manchester United as the first-team start to return to pre-season training`\
-https://nytimes.com/athletic/5618382/2024/07/07/manchester-united-greenwood-sancho-pre-season/
-
-**Farage, Anti-Immigrant Icon, Could Reshape Britain’s Tory Trajectory**\
-`In the shadow of Labour’s landslide victory over the upended Conservatives, Nigel Farage’s small insurgent right-wing party, Reform U.K., is on a roll.`\
-https://nytimes.com/2024/07/07/world/europe/britain-elections-nigel-farage-conservatives-tories.html
-
-**Sunday's MLB projections: Yankees-Red Sox, playoff odds, best pitchers and more**\
-`Projections for Sunday's MLB games with value picks, best bets, pitcher props, home run trends, weather and more.`\
-https://nytimes.com/athletic/5615274/2024/07/07/mlb-odds-predictions-best-bets-july-7/
 
