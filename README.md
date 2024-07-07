@@ -1,3 +1,7 @@
+**Joe Biden, in the Goodest Bunker Ever**\
+`The White House desperately tries to take word salad off the menu.`\
+https://nytimes.com/2024/07/07/opinion/joe-biden-goodest.html
+
 **Jane F. McAlevey, Who Empowered Workers Across the Globe, Dies at 59**\
 `An organizer and author, she believed that a union was only as strong as its members and trained thousands “to take over their unions and change them.”`\
 https://nytimes.com/2024/07/07/business/jane-mcalevey-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5622203/2024/07/07/f1-mclaren-british-gp-norris-pia
 **Durant (calf) misses first 2 days of USA training camp: Sources**\
 `Durant's injury is not considered serious, but his status for the team’s first exhibition game Wednesday against Canada is in question.`\
 https://nytimes.com/athletic/5622484/2024/07/07/kevin-durant-olympics-calf-injury/
-
-**Coco Gauff out of Wimbledon after shock defeat to Emma Navarro**\
-`The No. 2 seed and favorite for the title was undone by her compatriot's clean, uncompromising tennis`\
-https://nytimes.com/athletic/5622514/2024/07/07/coco-gauff-emma-navarro-wimbledon/
 

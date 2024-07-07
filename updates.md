@@ -1,3 +1,7 @@
+**Durant (calf) misses first 2 days of USA training camp: Sources**\
+`Durant's injury is not considered serious, but his status for the team’s first exhibition game Wednesday against Canada is in question.`\
+https://nytimes.com/athletic/5622484/2024/07/07/kevin-durant-olympics-calf-injury/
+
 **Jane F. McAlevey, Who Empowered Workers Across the Globe, Dies at 59**\
 `An organizer and author, she believed that a union was only as strong as its members and trained thousands “to take over their unions and change them.”`\
 https://nytimes.com/2024/07/07/business/jane-mcalevey-dead.html
