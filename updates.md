@@ -1,3 +1,11 @@
+**Wimbledon Day 6: Danielle Collins' bucket list, Mpetshi Perricard makes his own luck**\
+`Ben Shelton's six days of strength, a tennis bucket list for Danielle Collins, and the unluckiest lucky loser.`\
+https://nytimes.com/athletic/5620855/2024/07/06/wimbledon-recap-mpetshi-perricard-danielle-collins-ben-shelton/
+
+**Within disappointing Blue Jays season, Spencer Horwitz has been rare success story**\
+`Horwitz was optioned to Triple A at the end of spring training. Since Toronto called him up in June, he's hit .311/.446/.473 in 25 games.`\
+https://nytimes.com/athletic/5621100/2024/07/06/blue-jays-spencer-horwitz/
+
 **In New Orleans, Harris jabs at Trump and avoids talk of Biden bowing out.**\
 `By Jazmine Ulloa`\
 https://nytimes.com/live/2024/07/06/us/biden-trump-election/kamala-harris-essence-fest-new-orleans
