@@ -1,3 +1,11 @@
+**Judge Denies Effort by Trump Co-Defendant to Have Charges Dismissed**\
+`Walt Nauta, a personal aide to former President Donald J. Trump, claimed that he was the victim of vindictive prosecution in the classified documents case.`\
+https://nytimes.com/2024/07/06/us/politics/trump-nauta-vindictive-prosecution.html
+
+**DeRozan, Kings finalizing 3-year deal**\
+`DeRozan, 34, becomes the first player since LeBron James (33) in 2018 to lead the league in minutes in his 30s.`\
+https://nytimes.com/athletic/5590758/2024/07/06/demar-derozan-kings-free-agency-nba/
+
 **DeMar DeRozan finalizing deal to sign with Kings**\
 `DeRozan, 34, becomes the first player since LeBron James (33) in 2018 to lead the league in minutes in his 30s.`\
 https://nytimes.com/athletic/5590758/2024/07/06/demar-derozan-kings-free-agency-nba/

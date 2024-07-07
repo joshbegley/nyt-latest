@@ -1,7 +1,3 @@
-**Judge Denies Effort by Trump Co-Defendant to Have Charges Dismissed**\
-`Walt Nauta, a personal aide to former President Donald J. Trump, claimed that he was the victim of vindictive prosecution in the classified documents case.`\
-https://nytimes.com/2024/07/06/us/politics/trump-nauta-vindictive-prosecution.html
-
 **DeRozan, Kings finalizing 3-year deal**\
 `DeRozan, 34, becomes the first player since LeBron James (33) in 2018 to lead the league in minutes in his 30s.`\
 https://nytimes.com/athletic/5590758/2024/07/06/demar-derozan-kings-free-agency-nba/
@@ -37,4 +33,8 @@ https://nytimes.com/live/2024/07/06/us/biden-trump-election/kamala-harris-essenc
 **Is This Vibrant Democracy in Japan, or Has the Circus Come to Town?**\
 `A ridiculous number of candidates are contending to be governor of Tokyo and its surrounding prefecture. Many are not even trying to win.`\
 https://nytimes.com/2024/07/06/world/asia/tokyo-goverors-election.html
+
+**Colombia 5-0 Panama: Takeaways as Colombia reach semis and James Rodriguez shines**\
+`Colombia return to the Copa America semifinals for the third time in the last four editions `\
+https://nytimes.com/athletic/5620884/2024/07/06/colombia-panama-james-rodriguez-takeaways/
 
