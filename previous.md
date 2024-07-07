@@ -1,3 +1,7 @@
+**How Uruguay v Brazil became this Copa America's dirtiest match**\
+`There were 41 fouls in Uruguay's quarterfinal triumph over Brazil - the most in a match this summer's Copa America. Chaos reigned.`\
+https://nytimes.com/athletic/5621351/2024/07/07/brazil-uruguay-copa-america-2024-fouls/
+
 **This USMNT isn't a 'golden generation' - the data shows it lacks top-end talent**\
 `Analysis by The Athletic and Twenty First Group suggests that perhaps the USMNT's expectations should be lower on the world stage`\
 https://nytimes.com/athletic/5620890/2024/07/07/usmnt-golden-generation-talent-data/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/07/crosswords/wordle-review-1115.html
 **To Save Life on Earth, Bring Back Taxonomy**\
 `Naming species has been a victim of a broad shift in our scientific priorities. But we need it more than ever.`\
 https://nytimes.com/2024/07/07/opinion/to-save-life-on-earth-bring-back-taxonomy.html
-
-**Women Are Reaching New Heights in Climbing but Still Face Old Obstacles**\
-`Climbing is a sport where the sexes are reaching parity. And that has led to pushback.`\
-https://nytimes.com/2024/07/07/opinion/women-rock-climbing.html
 
