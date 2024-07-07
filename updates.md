@@ -1,3 +1,7 @@
+**Chelsea hire law firm to investigate sexual harassment allegation**\
+`Chelsea have hired an independent law firm to investigate after a female employee made an allegation of sexual harassment against a male counterpart.`\
+https://nytimes.com/athletic/5621858/2024/07/07/chelsea-hire-law-firm-to-investigate-sexual-harassment-allegation/
+
 **As Democrats Fret About Biden, Murphy Says He Must Address Voters’ Concerns**\
 `The Connecticut Democrat said the president had more to do to assuage voters’ worries about his age, mental acuity and fitness to run. Top House Democrats are set to meet on Sunday to discuss his candidacy.`\
 https://nytimes.com/2024/07/07/us/politics/biden-democrats-congress-murphy.html

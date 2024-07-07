@@ -1,3 +1,7 @@
+**Chelsea hire law firm to investigate sexual harassment allegation**\
+`Chelsea have hired an independent law firm to investigate after a female employee made an allegation of sexual harassment against a male counterpart.`\
+https://nytimes.com/athletic/5621858/2024/07/07/chelsea-hire-law-firm-to-investigate-sexual-harassment-allegation/
+
 **As Democrats Fret About Biden, Murphy Says He Must Address Voters’ Concerns**\
 `The Connecticut Democrat said the president had more to do to assuage voters’ worries about his age, mental acuity and fitness to run. Top House Democrats are set to meet on Sunday to discuss his candidacy.`\
 https://nytimes.com/2024/07/07/us/politics/biden-democrats-congress-murphy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5619720/2024/07/07/sf-giants-felipe-alou-willie-may
 **How SpaceX Is Harming Delicate Ecosystems**\
 `On at least 19 occasions since 2019, SpaceX’s operations have caused fires, leaks and explosions near its launch site in Boca Chica, Texas.`\
 https://nytimes.com/video/science/100000009539557/how-spacex-is-harming-delicate-ecosystems.html
-
-**England's change of shape against Switzerland worked - to a point - thanks to Bukayo Saka**\
-`The Arsenal man was not only key to England's defensive plan, but also provided their best attacking moments`\
-https://nytimes.com/athletic/5621484/2024/07/07/englands-change-of-shape-worked-to-a-point-thanks-to-bukayo-saka/
 
