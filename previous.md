@@ -1,3 +1,23 @@
+**Farage, Anti-Immigrant Icon, Could Reshape Britain’s Tory Trajectory**\
+`In the shadow of Labour’s landslide victory over the upended Conservatives, Nigel Farage’s small insurgent right-wing party, Reform U.K., is on a roll.`\
+https://nytimes.com/2024/07/07/world/europe/britain-elections-nigel-farage-conservatives-tories.html
+
+**Sunday's MLB projections: Yankees-Red Sox, playoff odds, best pitchers and more**\
+`Projections for Sunday's MLB games with value picks, best bets, pitcher props, home run trends, weather and more.`\
+https://nytimes.com/athletic/5615274/2024/07/07/mlb-odds-predictions-best-bets-july-7/
+
+**‘A Little Scary’: Ukraine Tries to Stay Neutral in U.S. Political Dogfight**\
+`With President Biden’s future unclear, Donald J. Trump’s support uncertain and a major NATO meeting looming, Ukrainian leaders are straining to keep their balance.`\
+https://nytimes.com/2024/07/07/world/europe/biden-trump-ukraine-russia.html
+
+**Hopes for a Diplomatic Opening Rise Under Iran’s New President**\
+`Masoud Pezeshkian, a reformist, wants warmer relations with the West, with the goal of ending sanctions. But his powers are strictly limited.`\
+https://nytimes.com/2024/07/07/world/middleeast/iran-peveshkian-khamenei-nuclear.html
+
+**Dropping in Just to Say ‘Hi!’**\
+`What to do when a colleague seems to have a communication problem.`\
+https://nytimes.com/2024/07/07/business/work-friend-anna-holmes.html
+
 **Will Smith's torrid stretch a reminder of the star power he brings to the Dodgers**\
 `Smith homered in four consecutive at-bats, something no one else has done this season.`\
 https://nytimes.com/athletic/5621259/2024/07/06/dodgers-will-smith-star-power/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/07/06/world/asia/pakistan-heat-wave.html
 **Judge Denies Effort by Trump Co-Defendant to Have Charges Dismissed**\
 `Walt Nauta, a personal aide to former President Donald J. Trump, claimed that he was the victim of vindictive prosecution in the classified documents case.`\
 https://nytimes.com/2024/07/06/us/politics/trump-nauta-vindictive-prosecution.html
-
-**DeRozan, Kings finalizing 3-year deal**\
-`DeRozan, 34, becomes the first player since LeBron James (33) in 2018 to lead the league in minutes in his 30s.`\
-https://nytimes.com/athletic/5590758/2024/07/06/demar-derozan-kings-free-agency-nba/
-
-**Flyers sign first-round pick Jett Luchanko, who has a 'mature game for a young player'**\
-`Luchanko signed a three-year entry-level deal with the Flyers on Saturday.`\
-https://nytimes.com/athletic/5621182/2024/07/06/philadelphia-flyers-sign-jett-luchanko/
-
-**Busquets red carded as Inter Miami loses 6-1 to FC Cincinnati**\
-`Sergio Busquets was sent off for dissent as Inter Miami lost 6-1 to FC Cincinnati on Saturday.`\
-https://nytimes.com/athletic/5621178/2024/07/06/sergio-busquets-red-card-inter-miami/
-
-**Edwin Díaz returns from suspension, restores much-needed order for Mets' bullpen**\
-`In the 10 games without Díaz, the Mets’ bullpen had an 8.37 ERA, the worst in the majors during that span.`\
-https://nytimes.com/athletic/5621165/2024/07/06/mets-edwin-diaz-return-suspension/
-
-**‘Goodest Job’ or ‘Good as Job’? The White House Wants a Word.**\
-`ABC News tweaked its transcript of an intriguing moment in its Friday interview with the president after the Biden administration and news outlets raised questions.`\
-https://nytimes.com/2024/07/06/us/politics/biden-goodest-transcript.html
 
