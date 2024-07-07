@@ -1,3 +1,15 @@
+**Paramount Takes Major Step to Finalizing Merger With Skydance**\
+`The tentative deal, approved by Paramount’s special committee, sets the stage for a new chapter for the company, which owns CBS and the movie studio behind “Top Gun.”`\
+https://nytimes.com/2024/07/07/business/media/paramount-skydance-merger-deal.html
+
+**Kid With an Attitude**\
+`Daniel Bodily and Andrea Carla Michaels conspire to fool us.`\
+https://nytimes.com/2024/07/07/crosswords/daily-puzzle-2024-07-08.html
+
+**Joe Biden, in the Goodest Bunker Ever**\
+`The White House desperately tries to take word salad off the menu.`\
+https://nytimes.com/2024/07/07/opinion/joe-biden-goodest.html
+
 **Durant (calf) misses first 2 days of USA training camp: Sources**\
 `Durant's injury is not considered serious, but his status for the team’s first exhibition game Wednesday against Canada is in question.`\
 https://nytimes.com/athletic/5622484/2024/07/07/kevin-durant-olympics-calf-injury/
