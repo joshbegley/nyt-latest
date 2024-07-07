@@ -1,3 +1,11 @@
+**Marcell Ozuna tried to hit homers and slumped, is back to his old approach and hitting them**\
+`Ozuna homered on consecutive pitches Friday and Saturday, driving in five runs to regain the league RBI lead.`\
+https://nytimes.com/athletic/5621291/2024/07/07/marcell-ozuna-back-to-old-approach/
+
+**In Lamine Yamal's home town, Spain's Euro 2024 heroics stop everything**\
+`Watching Spain's quarter-final victory over Germany in the Catalan town where the Barcelona forward grew up`\
+https://nytimes.com/athletic/5620189/2024/07/07/lamine-yamal-euro-2024-spain-rocafonda-barcelona/
+
 **Quotation of the Day: Calls for President to Quit Set Up Clash Within Party**\
 `Quotation of the Day for Sunday, July 7, 2024.`\
 https://nytimes.com/2024/07/07/pageoneplus/quotation-of-the-day-calls-for-president-to-quit-set-up-clash-within-party.html
