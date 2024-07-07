@@ -1,3 +1,7 @@
+**France’s campaign season was marred by racist attacks and violent acts.**\
+`By Catherine Porter`\
+https://nytimes.com/live/2024/07/07/world/france-election-2024/frances-campaign-season-was-marred-by-racist-attacks-and-violent-acts
+
 **How McLaren threw away its shot at winning F1's British GP: 'We got it wrong'**\
 `Mistakes doomed the latest race McLaren had the pace to win.`\
 https://nytimes.com/athletic/5622203/2024/07/07/f1-mclaren-british-gp-norris-piastri/

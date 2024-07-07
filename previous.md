@@ -1,3 +1,7 @@
+**France’s campaign season was marred by racist attacks and violent acts.**\
+`By Catherine Porter`\
+https://nytimes.com/live/2024/07/07/world/france-election-2024/frances-campaign-season-was-marred-by-racist-attacks-and-violent-acts
+
 **How McLaren threw away its shot at winning F1's British GP: 'We got it wrong'**\
 `Mistakes doomed the latest race McLaren had the pace to win.`\
 https://nytimes.com/athletic/5622203/2024/07/07/f1-mclaren-british-gp-norris-piastri/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5622438/2024/07/07/giannis-antetokounmpo-olympics-g
 **Officials Urge Coastal Texans to Evacuate, but Some Are Unfazed**\
 `Despite warnings that Beryl could be a “deadly storm,” many local residents decided to stay put, gambling that they could survive its wind and rains.`\
 https://nytimes.com/2024/07/07/us/texas-evacuations-storm-beryl.html
-
-**Gridlock? Instability? Without an Absolute Majority, France’s Way Forward Is Unclear**\
-`Experts said the country could be headed for months of political instability, with the National Assembly divided into three major blocs that appear unable to work with the others.`\
-https://nytimes.com/2024/07/07/world/europe/france-election-political-gridlock.html
 
