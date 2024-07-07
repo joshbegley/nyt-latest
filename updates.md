@@ -1,3 +1,11 @@
+**Stephen King, Elin Hilderbrand and More Share Their Top Books of the 21st Century**\
+`We asked some literary luminaries to share their full ballots.`\
+https://nytimes.com/interactive/2024/books/authors-top-books-21st-century.html
+
+**The 100 Best Books of the 21st Century**\
+`As voted on by 503 book lovers — with a little help from the staff of`\
+https://nytimes.com/interactive/2024/books/best-books-21st-century.html
+
 **The path to the All-Star Game for 5 Cleveland Guardians**\
 `Cleveland will send five players to the All-Star Game, the highest count of any AL club.`\
 https://nytimes.com/athletic/5622138/2024/07/07/cleveland-guardians-all-stars/
