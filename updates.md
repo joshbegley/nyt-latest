@@ -1,3 +1,15 @@
+**A Romance Bookstore Boom**\
+`The arrival — and success — of brick-and-mortar romance stores.`\
+https://nytimes.com/2024/07/07/briefing/romance-bookstores.html
+
+**Biden campaigns in Pennsylvania, as calls continue for him to quit the race.**\
+`The president will visit Philadelphia and Harrisburg on Sunday as he works to salvage his imperiled campaign.`\
+https://nytimes.com/2024/07/07/us/politics/biden-pennsylvania.html
+
+**Flooding and Landslides Kill at Least 15 in Nepal**\
+`In this monsoon season so far there have been more than 60 weather-related fatalities. With roads cut off and more rain expected, the toll could rise.`\
+https://nytimes.com/2024/07/07/world/asia/flooding-landslide-nepal.html
+
 **Inside Day 1 of Team USA's Olympic training camp: 'You can feel the greatness in the room'**\
 `Most iterations of Team USA's men's basketball team since 1992 have had staggering amounts of star power, but none quite like this.`\
 https://nytimes.com/athletic/5621174/2024/07/07/team-usa-basketball-olympics-training-camp-day-1/

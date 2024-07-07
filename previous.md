@@ -1,3 +1,15 @@
+**A Romance Bookstore Boom**\
+`The arrival — and success — of brick-and-mortar romance stores.`\
+https://nytimes.com/2024/07/07/briefing/romance-bookstores.html
+
+**Biden campaigns in Pennsylvania, as calls continue for him to quit the race.**\
+`The president will visit Philadelphia and Harrisburg on Sunday as he works to salvage his imperiled campaign.`\
+https://nytimes.com/2024/07/07/us/politics/biden-pennsylvania.html
+
+**Flooding and Landslides Kill at Least 15 in Nepal**\
+`In this monsoon season so far there have been more than 60 weather-related fatalities. With roads cut off and more rain expected, the toll could rise.`\
+https://nytimes.com/2024/07/07/world/asia/flooding-landslide-nepal.html
+
 **Inside Day 1 of Team USA's Olympic training camp: 'You can feel the greatness in the room'**\
 `Most iterations of Team USA's men's basketball team since 1992 have had staggering amounts of star power, but none quite like this.`\
 https://nytimes.com/athletic/5621174/2024/07/07/team-usa-basketball-olympics-training-camp-day-1/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/07/opinion/supreme-court-trump-immunity.html
 **The Connections Companion No. 393, July 8, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/07/crosswords/connections-companion-393.html
-
-**Colombia have spent far too long in the shadows. They are the team to watch at Copa America**\
-`Supporters of Colombia are having a lot of fun right now, watching their fast, free-flowing team saunter into the Copa America semi-finals`\
-https://nytimes.com/athletic/5621314/2024/07/07/colombia-copa-america-rodriguez-diaz/
-
-**All the Alzheimer’s Research We Didn’t Do**\
-`The hyper-focus on one theory for treatment has slowed progress.`\
-https://nytimes.com/2024/07/07/opinion/alzheimers-missed-opportunities.html
-
-**Wordle Review No. 1,115, July 8, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/07/crosswords/wordle-review-1115.html
 
