@@ -1,3 +1,15 @@
+**Heliot Ramos, Logan Webb selected as the Giants representatives for the 2024 All-Star Game**\
+`Webb and Ramos were the obvious picks, and it's a pleasant surprise to see the general baseball world agree.`\
+https://nytimes.com/athletic/5622220/2024/07/07/sf-giants-heliot-ramos-logan-webb-all-stars/
+
+**Tigers' Riley Greene joins Tarik Skubal, gets his due with an AL All-Star nod**\
+`Riley Greene is the Tigers' first All-Star outfielder since Justin Upton in 2017.`\
+https://nytimes.com/athletic/5622187/2024/07/07/detroit-tigers-all-star-roster-riley-greene-tarik-skubal/
+
+**The Left United to Keep the Far Right From Power. Its Strategy Appeared to Work.**\
+`The left-wing alliance includes the divisive Jean-Luc Mélenchon, a combative politician who has been accused of antisemitism.`\
+https://nytimes.com/2024/07/07/world/europe/france-election-new-popular-front-far-right.html
+
 **Paramount Takes Major Step to Finalizing Merger With Skydance**\
 `The tentative deal, approved by Paramount’s special committee, sets the stage for a new chapter for the company, which owns CBS and the movie studio behind “Top Gun.”`\
 https://nytimes.com/2024/07/07/business/media/paramount-skydance-merger-deal.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/07/world/france-election-2024/supporters-of-fra
 **Emma Raducanu has no regrets over withdrawal that ended Andy Murray's Wimbledon career**\
 `Ema Raducanu insists that she has no regrets about withdrawing from the mixed doubles event with Andy Murray, explaining that she had to &#8220;prioritise&#8221; her body.`\
 https://nytimes.com/athletic/5622526/2024/07/07/emma-raducanu-injury-wimbledon-andy-murray/
-
-**At Port Aransas, some residents rushed to take the last ferry out of the island town.**\
-`By Edgar Sandoval`\
-https://nytimes.com/live/2024/07/07/us/hurricane-beryl-texas/at-port-aransas-some-residents-rushed-to-take-the-last-ferry-out-of-the-island-town
-
-**Monday Briefing: Left Surges in French Election**\
-`Plus, a reformist will be Iran’s next president.`\
-https://nytimes.com/2024/07/07/briefing/french-election-left.html
-
-**France’s campaign season was marred by racist attacks and violent acts.**\
-`By Catherine Porter`\
-https://nytimes.com/live/2024/07/07/world/france-election-2024/frances-campaign-season-was-marred-by-racist-attacks-and-violent-acts
 
