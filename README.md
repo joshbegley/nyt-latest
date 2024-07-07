@@ -1,3 +1,7 @@
+**Bayern confirm signing of Olise**\
+`Bayern Munich have completed the signing of Michael Olise from Crystal Palace on a five-year contract.`\
+https://nytimes.com/athletic/5582118/2024/07/07/michael-olise-bayern-munich-transfer-palace/
+
 **Liverpool confirm exit of goalkeeper Adrian following contract expiration**\
 `Liverpool have confirmed that goalkeeper Adrian has decided to leave the club following the end of his contract this summer.`\
 https://nytimes.com/athletic/5622286/2024/07/07/adrian-goalkeeper-liverpool-transfer-news/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/07/world/france-election-2024
 **What happens on election night in France, and what comes next.**\
 `By Aurelien Breeden`\
 https://nytimes.com/live/2024/07/07/world/france-election-2024/france-election-night-explained
-
-**The polls are about to close in France. Here’s what to know.**\
-`The far-right National Rally party, long marginalized, drew strong support in the first round of voting. The outcome of the second is likely to weaken Emmanuel Macron, the centrist president.`\
-https://nytimes.com/live/2024/07/07/world/france-election-2024/the-polls-are-about-to-close-in-france-heres-what-to-know
 
