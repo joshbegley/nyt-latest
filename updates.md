@@ -1,3 +1,11 @@
+**Thiago retires following Liverpool exit**\
+`Thiago has retired from football following his departure from Liverpool.`\
+https://nytimes.com/athletic/5621886/2024/07/07/thiago-retires-liverpool-barcelona-bayern/
+
+**When a Father Gets Kidnapped, His Family Pays the Price**\
+`“Long Island Compromise,” the new novel by the author of “Fleishman Is in Trouble,” fictionalizes a true story.`\
+https://nytimes.com/2024/07/07/books/review/taffy-brodesser-akner-long-island-compromise.html
+
 **The Pulse: Tourney penalty kicks and a new Netflix option**\
 `Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5621882/2024/07/07/copa-america-euros-tour-de-france-the-pulse/
