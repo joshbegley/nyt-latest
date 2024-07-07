@@ -1,3 +1,7 @@
+**Jon Landau, Producer of ‘Titanic’ and ‘Avatar,’ Dies at 63**\
+`In a decades-long collaboration with the director James Cameron, he produced three of the highest-grossing films of all time.`\
+https://nytimes.com/2024/07/07/arts/jon-landau-dead.html
+
 **Texas Braces for Beryl, With Over a Million Under a Hurricane Warning**\
 `Beryl, which weakened to a tropical storm, is expected to intensify again and could make landfall on the Texas coast as a Category 1 hurricane as soon as Monday morning, forecasters say.`\
 https://nytimes.com/2024/07/07/us/beryl-hurricane-texas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5618990/2024/07/07/sec-basketball-players-to-know-2
 **In Choosing a V.P., Trump Is Elevating the Next Generation of Republicans**\
 `The process of choosing a running mate has created a new roster of rising Republicans with the potential to lead the ticket in 2028.`\
 https://nytimes.com/2024/07/07/us/politics/trump-vice-president.html
-
-**New-look Hurricanes: Analyzing the roster after interesting offseason decisions**\
-`Are the Hurricanes as good of a team as they were when their season ended in mid-May?`\
-https://nytimes.com/athletic/5619620/2024/07/07/carolina-hurricanes-roster-offseason/
 

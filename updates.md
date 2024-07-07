@@ -1,3 +1,7 @@
+**Jon Landau, Producer of ‘Titanic’ and ‘Avatar,’ Dies at 63**\
+`In a decades-long collaboration with the director James Cameron, he produced three of the highest-grossing films of all time.`\
+https://nytimes.com/2024/07/07/arts/jon-landau-dead.html
+
 **Texas Braces for Beryl, With Over a Million Under a Hurricane Warning**\
 `Beryl, which weakened to a tropical storm, is expected to intensify again and could make landfall on the Texas coast as a Category 1 hurricane as soon as Monday morning, forecasters say.`\
 https://nytimes.com/2024/07/07/us/beryl-hurricane-texas.html
