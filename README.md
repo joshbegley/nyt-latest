@@ -1,3 +1,7 @@
+**'Everybody loved seeing him': Hall of Famer Bobby Cox makes rare visit to Braves game**\
+`Cox stopped by the clubhouse before the 5-1 win against the Phillies, meeting players who knew of him but had never met him.`\
+https://nytimes.com/athletic/5621337/2024/07/07/bobby-cox-visits-truist-park/
+
 **Why LeBron took $3 million less in Lakers deal**\
 `James is signing a two-year, $101.355 million deal instead of the two-year, $104 million maximum he could’ve re-signed for.`\
 https://nytimes.com/athletic/5621333/2024/07/07/lebron-james-lakers-contract-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/07/world/europe/britain-elections-nigel-farage-conse
 **Sunday's MLB projections: Yankees-Red Sox, playoff odds, best pitchers and more**\
 `Projections for Sunday's MLB games with value picks, best bets, pitcher props, home run trends, weather and more.`\
 https://nytimes.com/athletic/5615274/2024/07/07/mlb-odds-predictions-best-bets-july-7/
-
-**‘A Little Scary’: Ukraine Tries to Stay Neutral in U.S. Political Dogfight**\
-`With President Biden’s future unclear, Donald J. Trump’s support uncertain and a major NATO meeting looming, Ukrainian leaders are straining to keep their balance.`\
-https://nytimes.com/2024/07/07/world/europe/biden-trump-ukraine-russia.html
 
