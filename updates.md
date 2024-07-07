@@ -1,3 +1,11 @@
+**Phillies exit Atlanta with 7 All-Stars, Schwarber and Harper back soon, and a strong debut**\
+`The All-Star Game will have a distinct Phillies slant. The seven All-Stars are a club record and shows it has built "a really good roster." `\
+https://nytimes.com/athletic/5622636/2024/07/07/phillies-all-stars-schwarber-harper-returns-tyler-phillips-debut/
+
+**Tigers' Riley Greene joins Tarik Skubal, gets his due with AL All-Star nod**\
+`Greene is the Tigers' first All-Star outfielder since Justin Upton in 2017.`\
+https://nytimes.com/athletic/5622187/2024/07/07/detroit-tigers-all-star-roster-riley-greene-tarik-skubal/
+
 **Wimbledon day 7: Carlos Alcaraz feeds on his own genius, Lulu Sun rolls on**\
 `A week into Wimbledon, fearless flair fuels the defending champion, and a New Zealand qualifier takes out a home favorite`\
 https://nytimes.com/athletic/5622398/2024/07/07/wimbledon-recap-day-7-carlos-alcarazs-highlight-reel-and-lulu-suns-story/
