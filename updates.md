@@ -1,3 +1,7 @@
+**This USMNT isn't a 'golden generation' - the data shows it lacks top-end talent**\
+`Analysis by The Athletic and Twenty First Group suggests that perhaps the USMNT's expectations should be lower on the world stage`\
+https://nytimes.com/athletic/5620890/2024/07/07/usmnt-golden-generation-talent-data/
+
 **Brazil are out and the recriminations have begun, but Dorival Junior needs time**\
 `The Selecao huffed and puffed at Copa America 2024 but their coach has only had eight games in charge and needs longer to make a mark`\
 https://nytimes.com/athletic/5621416/2024/07/07/brazil-dorival-copa-uruguay/
