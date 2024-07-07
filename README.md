@@ -31,7 +31,7 @@ https://nytimes.com/2024/07/07/books/alice-munro-daughter-abuse.html
 https://nytimes.com/live/2024/07/07/us/biden-trump-election/four-top-house-democrats-told-colleagues-privately-that-its-time-for-biden-to-withdraw
 
 **Chicago Cubs pitcher Colten Brewer broke his hand punching a wall in frustration **\
-`The Cubs placed Brewer on the 60-day injured list. He will see a hand specialist on Tuesday.`\
+`The Cubs placed Brewer on the 60-day injured list. He will see a hand specialist Tuesday.`\
 https://nytimes.com/athletic/5622482/2024/07/07/chicago-cubs-pitcher-colten-brewer-broke-hand-punching-wall/
 
 **French Election Yields Deadlock as Left Surges and Far Right Comes Up Short**\
