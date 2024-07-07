@@ -1,3 +1,11 @@
+**DeMar DeRozan finalizing deal to sign with Kings**\
+`DeRozan, 34, becomes the first player since LeBron James (33) in 2018 to lead the league in minutes in his 30s.`\
+https://nytimes.com/athletic/5590758/2024/07/06/demar-derozan-kings-free-agency-nba/
+
+**Flyers sign first-round pick Jett Luchanko, who has a 'mature game for a young player'**\
+`Luchanko signed a three-year entry-level deal with the Flyers on Saturday.`\
+https://nytimes.com/athletic/5621182/2024/07/06/philadelphia-flyers-sign-jett-luchanko/
+
 **Flyers sign first-round pick Jett Luchanko, who has 'a mature game for a young player'**\
 `Luchanko signed a three-year entry-level deal with the Flyers on Saturday.`\
 https://nytimes.com/athletic/5621182/2024/07/06/philadelphia-flyers-sign-jett-luchanko/
