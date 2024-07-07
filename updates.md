@@ -1,3 +1,7 @@
+**Shota Imanaga’s All-Star selection is a bright spot in this dull Cubs season **\
+`Imanaga has ingratiated himself to his Cubs teammates with his personality and his talent, the latter of which landed him an All-Star bid.`\
+https://nytimes.com/athletic/5622781/2024/07/07/cubs-shota-imanaga-all-star-selection/
+
 **Reds' Elly De La Cruz headed to All-Star Game for first time**\
 `De La Cruz's All-Star bid did not come as a surprise to those who have been around him.`\
 https://nytimes.com/athletic/5622707/2024/07/07/reds-elly-de-la-cruz-first-all-star-game/

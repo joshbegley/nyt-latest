@@ -1,3 +1,7 @@
+**Shota Imanaga’s All-Star selection is a bright spot in this dull Cubs season **\
+`Imanaga has ingratiated himself to his Cubs teammates with his personality and his talent, the latter of which landed him an All-Star bid.`\
+https://nytimes.com/athletic/5622781/2024/07/07/cubs-shota-imanaga-all-star-selection/
+
 **France’s National Rally Is Defiant After Disappointing Election**\
 `The party fell short of expectations but had captured its highest number of National Assembly seats.`\
 https://nytimes.com/2024/07/07/world/europe/france-election-results-national-rally.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5622220/2024/07/07/sf-giants-heliot-ramos-logan-web
 **Tigers' Riley Greene joins Tarik Skubal, gets his due with AL All-Star nod**\
 `Greene is the Tigers' first All-Star outfielder since Justin Upton in 2017.`\
 https://nytimes.com/athletic/5622187/2024/07/07/detroit-tigers-all-star-roster-riley-greene-tarik-skubal/
-
-**The Left United to Keep the Far Right From Power. Its Strategy Appeared to Work.**\
-`The left-wing alliance includes the divisive Jean-Luc Mélenchon, a combative politician who has been accused of antisemitism.`\
-https://nytimes.com/2024/07/07/world/europe/france-election-new-popular-front-far-right.html
 
