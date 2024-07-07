@@ -1,3 +1,7 @@
+**Busquets red carded as Inter Miami lose 6-1 to FC Cincinnati**\
+`Sergio Busquets was sent off for dissent as Inter Miami lost 6-1 to FC Cincinnati on Saturday.`\
+https://nytimes.com/athletic/5621178/2024/07/06/sergio-busquets-red-card-inter-miami/
+
 **Edwin Díaz returns from suspension, restores much-needed order for Mets' bullpen**\
 `In the 10 games without Díaz, the Mets’ bullpen had an 8.37 ERA, the worst in the majors during that span.`\
 https://nytimes.com/athletic/5621165/2024/07/06/mets-edwin-diaz-return-suspension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5595220/2024/07/06/copa-america-2024-bracket-qualif
 **Kerr thanks Thompson, says ex-Warrior needed ‘a shift’**\
 `Thompson, a pillar of the Golden State Warriors’ four championships won under Kerr, left the organization.`\
 https://nytimes.com/athletic/5621041/2024/07/06/steve-kerr-klay-thompson-warriors/
-
-**Coney Island Drownings Fail to Deter New Yorkers as City Swelters**\
-`Visitors were mostly unaffected by the third and fourth drownings at New York City beaches this season, matching the total number of swimming deaths last summer.`\
-https://nytimes.com/2024/07/06/nyregion/coney-island-beach-drowning.html
 

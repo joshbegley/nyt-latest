@@ -1,3 +1,7 @@
+**Busquets red carded as Inter Miami lose 6-1 to FC Cincinnati**\
+`Sergio Busquets was sent off for dissent as Inter Miami lost 6-1 to FC Cincinnati on Saturday.`\
+https://nytimes.com/athletic/5621178/2024/07/06/sergio-busquets-red-card-inter-miami/
+
 **Edwin Díaz returns from suspension, restores much-needed order for Mets' bullpen**\
 `In the 10 games without Díaz, the Mets’ bullpen had an 8.37 ERA, the worst in the majors during that span.`\
 https://nytimes.com/athletic/5621165/2024/07/06/mets-edwin-diaz-return-suspension/
