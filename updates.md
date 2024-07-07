@@ -1,3 +1,7 @@
+**France’s National Rally Is Defiant After Disappointing Election**\
+`The party fell short of expectations but had captured its highest number of National Assembly seats.`\
+https://nytimes.com/2024/07/07/world/europe/france-election-results-national-rally.html
+
 **Reds' Elly De La Cruz is headed to the All-Star Game for the first time**\
 `De La Cruz's All-Star bid did not come as a surprise to those who have been around him.`\
 https://nytimes.com/athletic/5622707/2024/07/07/reds-elly-de-la-cruz-first-all-star-game/
