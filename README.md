@@ -1,3 +1,11 @@
+**Martin Stolar, Lawyer Who Fought for Social Justice, Dies at 81**\
+`His clients included antiwar protesters and Black Panthers. His practice “not only defended needy people, it propelled social movements,” a colleague said.`\
+https://nytimes.com/2024/07/07/us/martin-stolar-dead.html
+
+**Inside the Kings' in-person recruitment of DeMar DeRozan**\
+`DeRozan spent much of Saturday meeting with Kings coaches and players; his Golden 1 Center arrival seemed to be timed just right.`\
+https://nytimes.com/athletic/5621320/2024/07/07/demar-derozan-kings-trade-sacramento-celebration/
+
 **Lewis Hamilton wins British Grand Prix**\
 `The seven-time world champion's win marks Mercedes' second consecutive victory this season.`\
 https://nytimes.com/athletic/5621950/2024/07/07/lewis-hamilton-wins-british-grand-prix-after-945-day-f1-victory-drought/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5621395/2024/07/07/demar-derozan-trade-kings-bulls-
 **Beryl Live Updates: Over a Million in Texas Are Under a Hurricane Warning**\
 `Currently a tropical storm after smashing through the Caribbean, Beryl is forecast to make landfall on the Texas coast as a hurricane on Monday morning.`\
 https://nytimes.com/live/2024/07/07/us/hurricane-beryl-texas
-
-**The Windmills Are Back Up on the Moulin Rouge**\
-`The Paris landmark has completed its restoration after the blades fell off this spring — and just in time for the Summer Olympic Games to begin.`\
-https://nytimes.com/2024/07/07/world/europe/paris-windmills-moulin-rouge.html
-
-**Thiago retires following Liverpool exit**\
-`Thiago has retired from football following his departure from Liverpool.`\
-https://nytimes.com/athletic/5621886/2024/07/07/thiago-retires-liverpool-barcelona-bayern/
 
