@@ -1,3 +1,7 @@
+**Phillies exit Atlanta with 7 All-Stars, Schwarber and Harper back soon, and a debut to ponder**\
+`The All-Star Game will have a distinct Phillies slant. The seven All-Stars are a club record and shows it has built "a really good roster." `\
+https://nytimes.com/athletic/5622636/2024/07/07/phillies-all-stars-schwarber-harper-returns-tyler-phillips-debut/
+
 **Phillies exit Atlanta with 7 All-Stars, Schwarber and Harper back soon, and a strong debut**\
 `The All-Star Game will have a distinct Phillies slant. The seven All-Stars are a club record and shows it has built "a really good roster." `\
 https://nytimes.com/athletic/5622636/2024/07/07/phillies-all-stars-schwarber-harper-returns-tyler-phillips-debut/
