@@ -1,3 +1,7 @@
+**After another shaky Ranger Suárez start, a break could be coming at the right time**\
+`After allowing 20 earned runs in his first 16 starts, Suárez has been tagged for 11 runs in his last two.`\
+https://nytimes.com/athletic/5621257/2024/07/06/phillies-ranger-suarez-all-star-break/
+
 **Takeaways as Uruguay knock out Brazil on penalties in dirtiest game of the tournament**\
 `This quarter-final had more fouls than moments of quality - The Athletic dissects the big talking points`\
 https://nytimes.com/athletic/5621161/2024/07/06/brazil-uruguay-most-fouls-copa-america/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/06/us/politics/biden-goodest-transcript.html
 **Wimbledon Day 6: Danielle Collins' bucket list, Mpetshi Perricard makes his own luck**\
 `Ben Shelton's six days of strength, a tennis bucket list for Danielle Collins, and the unluckiest lucky loser.`\
 https://nytimes.com/athletic/5620855/2024/07/06/wimbledon-recap-mpetshi-perricard-danielle-collins-ben-shelton/
-
-**Within disappointing Blue Jays season, Spencer Horwitz has been rare success story**\
-`Horwitz was optioned to Triple A at the end of spring training. Since Toronto called him up in June, he's hit .311/.446/.473 in 25 games.`\
-https://nytimes.com/athletic/5621100/2024/07/06/blue-jays-spencer-horwitz/
 
