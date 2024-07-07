@@ -1,3 +1,7 @@
+**Inside Day 1 of Team USA's Olympic training camp: 'You can feel the greatness in the room'**\
+`Most iterations of Team USA's men's basketball team since 1992 have had staggering amounts of star power, but none quite like this.`\
+https://nytimes.com/athletic/5621174/2024/07/07/team-usa-basketball-olympics-training-camp-day-1/
+
 **How Uruguay v Brazil became this Copa America's dirtiest match**\
 `There were 41 fouls in Uruguay's quarterfinal triumph over Brazil - the most in a match this summer's Copa America. Chaos reigned.`\
 https://nytimes.com/athletic/5621351/2024/07/07/brazil-uruguay-copa-america-2024-fouls/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/07/opinion/alzheimers-missed-opportunities.html
 **Wordle Review No. 1,115, July 8, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/07/crosswords/wordle-review-1115.html
-
-**To Save Life on Earth, Bring Back Taxonomy**\
-`Naming species has been a victim of a broad shift in our scientific priorities. But we need it more than ever.`\
-https://nytimes.com/2024/07/07/opinion/to-save-life-on-earth-bring-back-taxonomy.html
 
