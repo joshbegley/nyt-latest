@@ -1,40 +1,40 @@
-**Emma Raducanu's Andy Murray decision exemplifies tennis' battle with logic and emotion**\
-`Raducanu's partnership with Murray was an emotional tie to his farewell to Wimbledon, not a rational plan for success in her main event`\
-https://nytimes.com/athletic/5620207/2024/07/07/emma-raducanu-andy-murray-mixed-doubles-wimbledon/
+**Corrections: July 7, 2024**\
+`Corrections that appeared in print on Sunday, July 7, 2024.`\
+https://nytimes.com/2024/07/07/pageoneplus/corrections-july-7-2024.html
 
-**A Map of Remembrance**\
-`In May 2022, The Times published a map of the United States and Puerto Rico with 992,124 dots on it, each reflecting a reported death from Covid-19.`\
-https://nytimes.com/2024/07/07/insider/covid-map.html
+**In Rafah, We Saw Destruction and the Limits of Israel’s Gaza Strategy**\
+`Months after Prime Minister Benjamin Netanyahu declared that “victory is within reach,” the Israeli military escorted journalists into parts of a devastated Gazan city.`\
+https://nytimes.com/2024/07/07/world/middleeast/israel-gaza-war-rafah-destruction.html
 
-**Romance Bookstores Are Booming, Dishing ‘All the Hot Stuff You Can Imagine’**\
-`Bookstores once shunted romance novels to a shelf in the back. But with romance writers dominating the best-seller lists, a network of dedicated bookstores has sprung up around the country.`\
-https://nytimes.com/2024/07/07/books/romance-bookstores.html
+**For Some Young Couples, Saving on Rent Means Moving in Together Early**\
+`Citing high housing costs, some couples are sharing apartments after dating for just a short period. Not all relationships survive.`\
+https://nytimes.com/2024/07/07/business/gen-z-couples-rent-costs.html
 
-**How a Last-Ditch Effort to Save Menendez From Prosecution Backfired**\
-`Abbe Lowell, a lawyer for Senator Robert Menendez, met with prosecutors last fall to plead his case. Days later, the senator was indicted on bribery charges.`\
-https://nytimes.com/2024/07/07/nyregion/robert-menendez-bribery-trial-abbe-lowell.html
+**The Kidnapping I Can’t Escape**\
+`Fifty years ago, my father’s friend was taken at gunpoint on Long Island. Then he went on with his life — and that’s the part that haunts me.`\
+https://nytimes.com/2024/07/07/magazine/kidnapping-long-island.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/07/07/crosswords/spelling-bee-forum.html
+**Nice to meet you: All the new (and old) names to know in the SEC**\
+`How we think SEC basketball stacks up and a quick glimpse at what all 16 teams have on their roster after another wild offseason.`\
+https://nytimes.com/athletic/5618990/2024/07/07/sec-basketball-players-to-know-2024-season/
 
-**The Sad State of Underground Retail in New York City**\
-`Nearly 75 percent of shops operated by the Metropolitan Transportation Authority are vacant.`\
-https://nytimes.com/2024/07/07/nyregion/mta-underground-retail.html
+**In Choosing a V.P., Trump Is Elevating the Next Generation of Republicans**\
+`The process of choosing a running mate has created a new roster of rising Republicans with the potential to lead the ticket in 2028.`\
+https://nytimes.com/2024/07/07/us/politics/trump-vice-president.html
 
-**‘As I Stood There, a Bird Watcher in Full Regalia Paused Next to Me’**\
-`Looking up in Inwood Hill Park, talking hip-hop on Bleecker Street and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2024/07/07/nyregion/metropolitan-diary.html
+**New-look Hurricanes: Analyzing the roster after interesting offseason decisions**\
+`Are the Hurricanes as good of a team as they were when their season ended in mid-May?`\
+https://nytimes.com/athletic/5619620/2024/07/07/carolina-hurricanes-roster-offseason/
 
-**'Everybody loved seeing him': Hall of Famer Bobby Cox makes rare visit to Braves game**\
-`Cox stopped by the clubhouse before the 5-1 win against the Phillies, meeting players who knew of him but had never met him.`\
-https://nytimes.com/athletic/5621337/2024/07/07/bobby-cox-visits-truist-park/
+**Blue Jackets Sunday Gathering: New TV voice Steve Mears' long-ago dream realized**\
+`Mears once drove two hours to watch a Blue Jackets game, and dreamed of what it would be like to work in an NHL press box.`\
+https://nytimes.com/athletic/5620090/2024/07/07/blue-jackets-tv-mears/
 
-**Why LeBron took $3 million less in Lakers deal**\
-`James is signing a two-year, $101.355 million deal instead of the two-year, $104 million maximum he could’ve re-signed for.`\
-https://nytimes.com/athletic/5621333/2024/07/07/lebron-james-lakers-contract-nba/
+**McCarthy’s Revenge Tour Rolls On, With Mixed Results**\
+`The former speaker has spent much of his time, energy and money since leaving Congress in a bid to defeat the Republicans who cost him his gavel — and his political career.`\
+https://nytimes.com/2024/07/07/us/politics/kevin-mccarthy-revenge-tour.html
 
-**NATO Has to Change. Here’s How.**\
-`It is increasingly clear that Europeans need to shoulder more responsibility for their own defense.`\
-https://nytimes.com/2024/07/07/opinion/nato-europe-us-ukraine-defense.html
+**New Plan to Target Russia’s Oil Revenue Brings Debate in White House**\
+`Treasury officials want to impose penalties on tankers that help Russian oil evade sanctions. White House aides worry that risks making gasoline more expensive.`\
+https://nytimes.com/2024/07/07/us/politics/russia-oil-ukraine-shadow-fleet.html
 
