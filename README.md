@@ -6,7 +6,7 @@ https://nytimes.com/live/2024/07/06/us/biden-trump-election/kamala-harris-essenc
 `A ridiculous number of candidates are contending to be governor of Tokyo and its surrounding prefecture. Many are not even trying to win.`\
 https://nytimes.com/2024/07/06/world/asia/tokyo-goverors-election.html
 
-**Colombia 5-0 Panama: Takeaways as Colombia reach semis and James shines**\
+**Colombia 5-0 Panama: Takeaways as Colombia reach semis and James Rodriguez shines**\
 `Colombia return to the Copa America semifinals for the third time in the last four editions `\
 https://nytimes.com/athletic/5620884/2024/07/06/colombia-panama-james-rodriguez-takeaways/
 
