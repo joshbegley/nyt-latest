@@ -1,3 +1,23 @@
+**Lowetide: Oilers still have busy summer ahead after Week 1 of free agency**\
+`The Oilers have executed a flurry of transactions designed to improve the team. What issues does the club still need to address?`\
+https://nytimes.com/athletic/5620206/2024/07/07/oilers-free-agency-offseason-nurse-kane/
+
+**France Votes in Election That Could Bring Far Right Closer to Power**\
+`The far-right National Rally drew the most support in the first round of voting. In Sunday’s final round, it hopes to win a majority in the powerful lower house of Parliament.`\
+https://nytimes.com/live/2024/07/07/world/france-election-2024
+
+**What happens on election night in France, and what comes next.**\
+`By Aurelien Breeden`\
+https://nytimes.com/live/2024/07/07/world/france-election-2024/france-election-night-explained
+
+**The polls are about to close in France. Here’s what to know.**\
+`The far-right National Rally party, long marginalized, drew strong support in the first round of voting. The outcome of the second is likely to weaken Emmanuel Macron, the centrist president.`\
+https://nytimes.com/live/2024/07/07/world/france-election-2024/the-polls-are-about-to-close-in-france-heres-what-to-know
+
+**Some in Mexico Take Precautions for Beryl, While Others Enjoy the Beach**\
+`The storm largely spared the country, but some people in Tamaulipas were heeding the authorities’ advice to not let their guard down. Others were more carefree.`\
+https://nytimes.com/2024/07/07/us/beryl-mexico-hurricane-storm-path.html
+
 **Brighton sign Cozier-Duberry after Arsenal exit**\
 `Brighton have completed the signing of Amario Cozier-Duberry from Arsenal on a four-year contract.`\
 https://nytimes.com/athletic/5622065/2024/07/07/brighton-transfers-amario-cozier-duberry-arsenal/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/07/07/style/power-slap-fights.html
 **Calafiori is a front-foot, modern-day defender - and would suit Arteta's Arsenal**\
 `The Italy and Bologna defender is 22 and has issues to iron out but looks custom-made for the innovation of the four centre-back defence`\
 https://nytimes.com/athletic/5619829/2024/07/07/riccardo-calafiori-arsenal-italy-transfer/
-
-**Martin Stolar, Lawyer Who Fought for Social Justice, Dies at 81**\
-`His clients included antiwar protesters and terror suspects. His practice “not only defended needy people, it propelled social movements,” a colleague said.`\
-https://nytimes.com/2024/07/07/us/martin-stolar-dead.html
-
-**Inside the Kings' in-person recruitment of DeMar DeRozan**\
-`DeRozan spent much of Saturday meeting with Kings coaches and players; his Golden 1 Center arrival seemed to be timed just right.`\
-https://nytimes.com/athletic/5621320/2024/07/07/demar-derozan-kings-trade-sacramento-celebration/
-
-**Lewis Hamilton wins British Grand Prix**\
-`The seven-time world champion's win marks Mercedes' second consecutive victory this season.`\
-https://nytimes.com/athletic/5621950/2024/07/07/lewis-hamilton-wins-british-grand-prix-after-945-day-f1-victory-drought/
-
-**A Brief History of Hurricanes That Hit Texas**\
-`South Texans are bracing for the arrival of a powerful hurricane, as have generations of Texans before them.`\
-https://nytimes.com/2024/07/07/us/texas-hurricane-history.html
-
-**Madison Keys cries on court as injury ends Wimbledon quarter-final dream**\
-`The American No. 12 seed was 5-2 up and heading for the last eight, before injury scuppered her chances`\
-https://nytimes.com/athletic/5621917/2024/07/07/madison-keys-wimbledon-jasmine-paolini/
 
