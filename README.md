@@ -1,3 +1,7 @@
+**At Port Aransas, some residents rushed to take the last ferry out of the island town.**\
+`By Edgar Sandoval`\
+https://nytimes.com/live/2024/07/07/us/hurricane-beryl-texas/at-port-aransas-some-residents-rushed-to-take-the-last-ferry-out-of-the-island-town
+
 **Monday Briefing: Left Surges in French Election**\
 `Plus, a reformist will be Iran’s next president.`\
 https://nytimes.com/2024/07/07/briefing/french-election-left.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5622482/2024/07/07/chicago-cubs-pitcher-colten-brew
 **French Election Yields Deadlock as Left Surges and Far Right Comes Up Short**\
 `The outcome left no party with an absolute majority and France bracing for potential political paralysis.`\
 https://nytimes.com/2024/07/07/world/europe/france-election-results-left-surges.html
-
-**Antetokounmpo, Greece claim spot in Olympics with win over Croatia**\
-`Antetokounmpo finished with 23 points, eight rebounds and three assists en route to qualifying for his first Olympic games.`\
-https://nytimes.com/athletic/5622438/2024/07/07/giannis-antetokounmpo-olympics-greece-croatia/
 
