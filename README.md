@@ -1,3 +1,23 @@
+**Wildlife Protections Take a Back Seat to SpaceX’s Ambitions**\
+`A New York Times investigation found that Elon Musk exploited federal agencies’ competing missions to achieve his goals for space travel.`\
+https://nytimes.com/2024/07/07/us/politics/spacex-wildlife-texas.html
+
+**Escape rooms, football pubs, coffee vlogs, and tennis - What players do on days off**\
+`What do tennis players do on their days off? The Athletic asked Coco Gauff, Daria Kasatkina, Holger Rune, Grigor Dimitrov, and more`\
+https://nytimes.com/athletic/5618389/2024/07/07/what-tennis-players-do-when-not-playing/
+
+**Felipe Alou remembers Willie Mays, Orlando Cepeda: 'The Giants were blessed'**\
+`Alou plans to speak at the Mays celebration of life on Monday. He shared a special bond with both Mays and his one-time roommate, Cepeda.`\
+https://nytimes.com/athletic/5619720/2024/07/07/sf-giants-felipe-alou-willie-mays-orlando-cepeda-memories/
+
+**How SpaceX Is Harming Delicate Ecosystems**\
+`On at least 19 occasions since 2019, SpaceX’s operations have caused fires, leaks and explosions near its launch site in Boca Chica, Texas.`\
+https://nytimes.com/video/science/100000009539557/how-spacex-is-harming-delicate-ecosystems.html
+
+**England's change of shape against Switzerland worked - to a point - thanks to Bukayo Saka**\
+`The Arsenal man was not only key to England's defensive plan, but also provided their best attacking moments`\
+https://nytimes.com/athletic/5621484/2024/07/07/englands-change-of-shape-worked-to-a-point-thanks-to-bukayo-saka/
+
 **Man Utd working to finalise Zirkzee signing**\
 `Manchester United are working to finalise the signing of Bologna forward Joshua Zirkzee.`\
 https://nytimes.com/athletic/5573939/2024/07/07/joshua-zirkzee-manchester-united-transfer/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/07/07/us/politics/biden-pennsylvania.html
 **Flooding and Landslides Kill at Least 15 in Nepal**\
 `In this monsoon season so far there have been more than 60 weather-related fatalities. With roads cut off and more rain expected, the toll could rise.`\
 https://nytimes.com/2024/07/07/world/asia/flooding-landslide-nepal.html
-
-**Inside Day 1 of Team USA's Olympic training camp: 'You can feel the greatness in the room'**\
-`Most iterations of Team USA's men's basketball team since 1992 have had staggering amounts of star power, but none quite like this.`\
-https://nytimes.com/athletic/5621174/2024/07/07/team-usa-basketball-olympics-training-camp-day-1/
-
-**How Uruguay v Brazil became this Copa America's dirtiest match**\
-`There were 41 fouls in Uruguay's quarterfinal triumph over Brazil - the most in a match this summer's Copa America. Chaos reigned.`\
-https://nytimes.com/athletic/5621351/2024/07/07/brazil-uruguay-copa-america-2024-fouls/
-
-**This USMNT isn't a 'golden generation' - the data shows it lacks top-end talent**\
-`Analysis by The Athletic and Twenty First Group suggests that perhaps the USMNT's expectations should be lower on the world stage`\
-https://nytimes.com/athletic/5620890/2024/07/07/usmnt-golden-generation-talent-data/
-
-**Brazil are out and the recriminations have begun, but Dorival Junior needs time**\
-`The Selecao huffed and puffed at Copa America 2024 but their coach has only had eight games in charge and needs longer to make a mark`\
-https://nytimes.com/athletic/5621416/2024/07/07/brazil-dorival-copa-uruguay/
-
-**Jim Clyburn Is Right About What Democrats Should Do Next**\
-`To find a new nominee, Democrats need to hold a real contest.`\
-https://nytimes.com/2024/07/07/opinion/biden-jim-clyburn-democrats.html
 
