@@ -1,3 +1,7 @@
+**Lewis Hamilton wins British Grand Prix**\
+`The seven-time world champion's win marks Mercedes' second consecutive victory this season.`\
+https://nytimes.com/athletic/5621950/2024/07/07/lewis-hamilton-wins-british-grand-prix-after-945-day-f1-victory-drought/
+
 **Texas has a long and deadly history of hurricanes.**\
 `South Texans are bracing for the arrival of a powerful hurricane, as have generations of Texans before them.`\
 https://nytimes.com/live/2024/07/07/us/hurricane-beryl-texas/texas-has-a-long-and-deadly-history-of-hurricanes

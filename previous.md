@@ -1,3 +1,7 @@
+**Lewis Hamilton wins British Grand Prix**\
+`The seven-time world champion's win marks Mercedes' second consecutive victory this season.`\
+https://nytimes.com/athletic/5621950/2024/07/07/lewis-hamilton-wins-british-grand-prix-after-945-day-f1-victory-drought/
+
 **Texas has a long and deadly history of hurricanes.**\
 `South Texans are bracing for the arrival of a powerful hurricane, as have generations of Texans before them.`\
 https://nytimes.com/live/2024/07/07/us/hurricane-beryl-texas/texas-has-a-long-and-deadly-history-of-hurricanes
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/07/world/europe/paris-windmills-moulin-rouge.html
 **Thiago retires following Liverpool exit**\
 `Thiago has retired from football following his departure from Liverpool.`\
 https://nytimes.com/athletic/5621886/2024/07/07/thiago-retires-liverpool-barcelona-bayern/
-
-**When a Father Gets Kidnapped, His Family Pays the Price**\
-`“Long Island Compromise,” the new novel by the author of “Fleishman Is in Trouble,” fictionalizes a true story.`\
-https://nytimes.com/2024/07/07/books/review/taffy-brodesser-akner-long-island-compromise.html
 
