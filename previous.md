@@ -1,3 +1,7 @@
+**Man Utd working to finalise Zirkzee signing**\
+`Manchester United are working to finalise the signing of Bologna forward Joshua Zirkzee.`\
+https://nytimes.com/athletic/5573939/2024/07/07/joshua-zirkzee-manchester-united-transfer/
+
 **After 9 Months of War, Israelis Call for a Cease-Fire Deal and Elections**\
 `A day of nationwide anti-government protests comes amid signs of progress toward a truce and hostage deal with Hamas, as well as continued fighting.`\
 https://nytimes.com/2024/07/07/world/middleeast/israel-gaza-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5621416/2024/07/07/brazil-dorival-copa-uruguay/
 **Jim Clyburn Is Right About What Democrats Should Do Next**\
 `To find a new nominee, Democrats need to hold a real contest.`\
 https://nytimes.com/2024/07/07/opinion/biden-jim-clyburn-democrats.html
-
-**What Happened to the Originalism of the Originalists?**\
-`In both Trump cases the liberal dissenters are more originalist than the conservative majority.`\
-https://nytimes.com/2024/07/07/opinion/supreme-court-trump-immunity.html
 

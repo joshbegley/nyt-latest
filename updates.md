@@ -1,3 +1,7 @@
+**Man Utd working to finalise Zirkzee signing**\
+`Manchester United are working to finalise the signing of Bologna forward Joshua Zirkzee.`\
+https://nytimes.com/athletic/5573939/2024/07/07/joshua-zirkzee-manchester-united-transfer/
+
 **After 9 Months of War, Israelis Call for a Cease-Fire Deal and Elections**\
 `A day of nationwide anti-government protests comes amid signs of progress toward a truce and hostage deal with Hamas, as well as continued fighting.`\
 https://nytimes.com/2024/07/07/world/middleeast/israel-gaza-protests.html
