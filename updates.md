@@ -1,3 +1,7 @@
+**Man Utd target Zirkzee: Striker with a 'unicorn' skill set who offers something different**\
+`Perhaps the most unique striker profile at the Euros, the 6ft 4in Man United target has more dimensions to his game than you might think`\
+https://nytimes.com/athletic/5569696/2024/07/07/joshua-zirkzee-transfer-man-united/
+
 **SpaceX’s Assault on a Fragile Habitat: Four Takeaways From Our Investigation**\
 `The development of Elon Musk’s facility in South Texas did not play out as local officials were originally told it would.`\
 https://nytimes.com/2024/07/07/us/politics/spacex-boca-chica-takeaways.html
