@@ -1,3 +1,7 @@
+**How McLaren threw away its shot at winning F1's British GP: 'We got it wrong'**\
+`Mistakes doomed the latest race McLaren had the pace to win.`\
+https://nytimes.com/athletic/5622203/2024/07/07/f1-mclaren-british-gp-norris-piastri/
+
 **Kevin Durant missed first 2 days of Team USA training camp with calf strain: Sources**\
 `Durant's injury is not considered serious, but his status for the team’s first exhibition game Wednesday against Canada is in question.`\
 https://nytimes.com/athletic/5622484/2024/07/07/kevin-durant-olympics-calf-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/07/us/texas-evacuations-storm-beryl.html
 **Gridlock? Instability? Without an Absolute Majority, France’s Way Forward Is Unclear**\
 `Experts said the country could be headed for months of political instability, with the National Assembly divided into three major blocs that appear unable to work with the others.`\
 https://nytimes.com/2024/07/07/world/europe/france-election-political-gridlock.html
-
-**The left-wing New Popular Front exceeded expectations. Who’s in it?**\
-`By Catherine Porter`\
-https://nytimes.com/live/2024/07/07/world/france-election-2024/france-new-popular-front
 
