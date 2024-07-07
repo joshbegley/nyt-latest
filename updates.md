@@ -1,3 +1,7 @@
+**How McLaren threw away its shot at winning F1's British GP: 'We got it wrong'**\
+`Mistakes doomed the latest race McLaren had the pace to win.`\
+https://nytimes.com/athletic/5622203/2024/07/07/f1-mclaren-british-gp-norris-piastri/
+
 **Kevin Durant missed first 2 days of Team USA training camp with calf strain: Sources**\
 `Durant's injury is not considered serious, but his status for the team’s first exhibition game Wednesday against Canada is in question.`\
 https://nytimes.com/athletic/5622484/2024/07/07/kevin-durant-olympics-calf-injury/
