@@ -1,3 +1,7 @@
+**Pakistan Withers Under Deadly Heat and Fears the Coming Rains**\
+`Karachi, Pakistan’s largest city, endured days of temperatures above 100 Fahrenheit, made worse by power cuts and high humidity.`\
+https://nytimes.com/2024/07/06/world/asia/pakistan-heat-wave.html
+
 **Judge Denies Effort by Trump Co-Defendant to Have Charges Dismissed**\
 `Walt Nauta, a personal aide to former President Donald J. Trump, claimed that he was the victim of vindictive prosecution in the classified documents case.`\
 https://nytimes.com/2024/07/06/us/politics/trump-nauta-vindictive-prosecution.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5621100/2024/07/06/blue-jays-spencer-horwitz/
 **In New Orleans, Harris jabs at Trump and avoids talk of Biden bowing out.**\
 `By Jazmine Ulloa`\
 https://nytimes.com/live/2024/07/06/us/biden-trump-election/kamala-harris-essence-fest-new-orleans
-
-**Is This Vibrant Democracy in Japan, or Has the Circus Come to Town?**\
-`A ridiculous number of candidates are contending to be governor of Tokyo and its surrounding prefecture. Many are not even trying to win.`\
-https://nytimes.com/2024/07/06/world/asia/tokyo-goverors-election.html
 
