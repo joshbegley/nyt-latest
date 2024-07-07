@@ -1,3 +1,7 @@
+**Beryl’s Trail of Destruction So Far**\
+`The storm has caused widespread damage on its path through the Caribbean and toward the Gulf of Mexico. See where it has wreaked havoc.`\
+https://nytimes.com/2024/07/07/us/hurricane-beryl-path-mexico-carriacou.html
+
 **Raducanu's Wimbledon is over after loss to qualifier Lulu Sun**\
 `Emma Raducanu&#8217;s Wimbledon is over after losing to New Zealand qualifier Lulu Sun on Centre Court on Sunday.`\
 https://nytimes.com/athletic/5622344/2024/07/07/emma-raducanu-wimbledon-lulu-sun/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/07/us/politics/vance-trump-biden-special-prosecutor.
 **Macron’s rivals say they’ll fix the economy, but economists are skeptical.**\
 `By Liz Alderman`\
 https://nytimes.com/live/2024/07/07/world/france-election-2024/macron-national-rally-france-economy
-
-**Marco Rubio, Contender to Be Trump’s Running Mate, Defends Supreme Court’s Immunity Ruling**\
-`“I think what the Supreme Court did is, it clarified what the law is,” Senator Rubio, a Florida Republican, said on CNN on Sunday.`\
-https://nytimes.com/2024/07/07/us/politics/trump-vp-immunity-rubio.html
 
