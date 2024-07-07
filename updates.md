@@ -1,3 +1,7 @@
+**Takeaways as Uruguay knock out Brazil on penalties in dirtiest game of the tournament**\
+`This quarter-final had more fouls than moments of quality - The Athletic dissects the big talking points`\
+https://nytimes.com/athletic/5621161/2024/07/06/brazil-uruguay-most-fouls-copa-amaerica/
+
 **Busquets red carded as Inter Miami loses 6-1 to FC Cincinnati**\
 `Sergio Busquets was sent off for dissent as Inter Miami lost 6-1 to FC Cincinnati on Saturday.`\
 https://nytimes.com/athletic/5621178/2024/07/06/sergio-busquets-red-card-inter-miami/
