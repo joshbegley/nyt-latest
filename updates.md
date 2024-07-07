@@ -1,3 +1,7 @@
+**Buddy system, Pickford bottle, crucial pauses: England penalties vs Switzerland analysed**\
+`England beating Switzerland on penalties was no fluke - all the little details show their deep level of preparation under Gareth Southgate.`\
+https://nytimes.com/athletic/5620945/2024/07/07/england-vs-switzerland-penalties-analysed-pickford/
+
 **Marcell Ozuna tried to hit homers and slumped, is back to his old approach and hitting them**\
 `Ozuna homered on consecutive pitches Friday and Saturday, driving in five runs to regain the league RBI lead.`\
 https://nytimes.com/athletic/5621291/2024/07/07/marcell-ozuna-back-to-old-approach/
