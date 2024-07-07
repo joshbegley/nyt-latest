@@ -1,3 +1,7 @@
+**Leicester complete Golding signing from Chelsea**\
+`Leicester City have completed the signing of midfielder Michael Golding from Chelsea.`\
+https://nytimes.com/athletic/5608104/2024/07/07/leicester-michael-golding-chelsea-transfer/
+
 **SpaceX’s Assault on a Fragile Habitat: Four Takeaways From Our Investigation**\
 `The development of Elon Musk’s facility in South Texas did not play out as local officials were originally told it would.`\
 https://nytimes.com/2024/07/07/us/politics/spacex-boca-chica-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5569696/2024/07/07/joshua-zirkzee-transfer-man-unit
 **After 9 Months of War, Israelis Call for a Cease-Fire Deal and Elections**\
 `A day of nationwide anti-government protests comes amid signs of progress toward a truce and hostage deal with Hamas, as well as continued fighting.`\
 https://nytimes.com/2024/07/07/world/middleeast/israel-gaza-protests.html
-
-**A Romance Bookstore Boom**\
-`The arrival — and success — of brick-and-mortar romance stores.`\
-https://nytimes.com/2024/07/07/briefing/romance-bookstores.html
 
