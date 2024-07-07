@@ -1,3 +1,11 @@
+**The path to the All-Star Game for 5 Cleveland Guardians**\
+`Cleveland will send five players to the All-Star Game, the highest count of any AL club.`\
+https://nytimes.com/athletic/5622138/2024/07/07/cleveland-guardians-all-stars/
+
+**Meet David Ellison, Paramount’s Future Boss and Hollywood’s Newest Mogul**\
+`He left college to try out acting. Now, he’s set to become one of the most powerful people in Hollywood.`\
+https://nytimes.com/2024/07/07/business/media/david-ellison-paramount-skydance.html
+
 **Shota Imanaga’s All-Star selection is a bright spot in this dull Cubs season **\
 `Imanaga has ingratiated himself to his Cubs teammates with his personality and his talent, the latter of which landed him an All-Star bid.`\
 https://nytimes.com/athletic/5622781/2024/07/07/cubs-shota-imanaga-all-star-selection/
