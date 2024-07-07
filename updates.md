@@ -1,3 +1,11 @@
+**Beryl Live Updates: Over a Million in Texas Are Under a Hurricane Warning**\
+`Currently a tropical storm after smashing through the Caribbean, Beryl is forecast to make landfall on the Texas coast as a hurricane on Monday morning.`\
+https://nytimes.com/live/2024/07/07/us/hurricane-beryl-texas
+
+**Chelsea hire law firm to investigate sexual harassment allegation**\
+`Chelsea have hired an independent law firm to investigate after a female employee made an allegation of sexual harassment against a male counterpart.`\
+https://nytimes.com/athletic/5621858/2024/07/07/chelsea-hire-law-firm-to-investigate-sexual-harassment-allegation/
+
 **Madison Keys cries on court as injury ends Wimbledon quarter-final dream**\
 `The American No. 12 seed was 5-2 up and heading for the last eight, before injury scuppered her chances`\
 https://nytimes.com/athletic/5621917/2024/07/07/madison-keys-wimbledon-jasmine-paolini/
