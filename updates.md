@@ -1,3 +1,7 @@
+**Bukayo Saka, the loneliest walk and a personal triumph to fire England's belief**\
+`The Arsenal forward is a delight, a national treasure and the embodiment of all that is good about this England team`\
+https://nytimes.com/athletic/5621214/2024/07/07/saka-england-penalty-euro2024/
+
 **How Wout Weghorst changed the game — and what it says about Netherlands at Euro 2024**\
 `When the Dutch got desperate against Turkey, they took the option that did not exactly feel like Total Football. The called for the Big Man`\
 https://nytimes.com/athletic/5616452/2024/07/07/netherlands-euro-2024-semifinal-weghorst/

@@ -26,7 +26,7 @@ https://nytimes.com/athletic/5621291/2024/07/07/marcell-ozuna-back-to-old-approa
 `Watching Spain's quarter-final victory over Germany in the Catalan town where the Barcelona forward grew up`\
 https://nytimes.com/athletic/5620189/2024/07/07/lamine-yamal-euro-2024-spain-rocafonda-barcelona/
 
-**Bukayo Saka, the loneliest walk and a personal triumph to fuel England's belief**\
+**Bukayo Saka, the loneliest walk and a personal triumph to fire England's belief**\
 `The Arsenal forward is a delight, a national treasure and the embodiment of all that is good about this England team`\
 https://nytimes.com/athletic/5621214/2024/07/07/saka-england-penalty-euro2024/
 
