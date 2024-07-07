@@ -1,3 +1,7 @@
+**Brighton sign Cozier-Duberry after Arsenal exit**\
+`Brighton have completed the signing of Amario Cozier-Duberry from Arsenal on a four-year contract.`\
+https://nytimes.com/athletic/5622065/2024/07/07/brighton-transfers-amario-cozier-duberry-arsenal/
+
 **Slavko Vincic appointed referee for Spain vs France**\
 `Slavko Vincic has been appointed as the match referee for the European Championship semi-final between Spain and France.`\
 https://nytimes.com/athletic/5622043/2024/07/07/slavko-vincic-spain-france-referee-who/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/07/us/hurricane-beryl-texas/texas-has-a-long-an
 **Madison Keys cries on court as injury ends Wimbledon quarter-final dream**\
 `The American No. 12 seed was 5-2 up and heading for the last eight, before injury scuppered her chances`\
 https://nytimes.com/athletic/5621917/2024/07/07/madison-keys-wimbledon-jasmine-paolini/
-
-**John Cena to retire from WWE after 2025**\
-`Cena, 47, has long said he wouldn’t wrestle past 50 years old.`\
-https://nytimes.com/athletic/5621964/2024/07/07/john-cena-retirement/
 
