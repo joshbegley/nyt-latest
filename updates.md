@@ -1,3 +1,7 @@
+**Manchester United return to training: What next for Greenwood, Sancho and transfers?**\
+`The main questions facing Manchester United as the first-team start to return to pre-season training`\
+https://nytimes.com/athletic/5618382/2024/07/07/manchester-united-greenwood-sancho-pre-season/
+
 **Farage, Anti-Immigrant Icon, Could Reshape Britain’s Tory Trajectory**\
 `In the shadow of Labour’s landslide victory over the upended Conservatives, Nigel Farage’s small insurgent right-wing party, Reform U.K., is on a roll.`\
 https://nytimes.com/2024/07/07/world/europe/britain-elections-nigel-farage-conservatives-tories.html

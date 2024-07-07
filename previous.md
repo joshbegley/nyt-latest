@@ -1,3 +1,7 @@
+**Manchester United return to training: What next for Greenwood, Sancho and transfers?**\
+`The main questions facing Manchester United as the first-team start to return to pre-season training`\
+https://nytimes.com/athletic/5618382/2024/07/07/manchester-united-greenwood-sancho-pre-season/
+
 **Farage, Anti-Immigrant Icon, Could Reshape Britain’s Tory Trajectory**\
 `In the shadow of Labour’s landslide victory over the upended Conservatives, Nigel Farage’s small insurgent right-wing party, Reform U.K., is on a roll.`\
 https://nytimes.com/2024/07/07/world/europe/britain-elections-nigel-farage-conservatives-tories.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5621161/2024/07/06/brazil-uruguay-most-fouls-copa-a
 **Pakistan Withers Under Deadly Heat and Fears the Coming Rains**\
 `Karachi, Pakistan’s largest city, endured days of temperatures above 100 Fahrenheit, made worse by power cuts and high humidity.`\
 https://nytimes.com/2024/07/06/world/asia/pakistan-heat-wave.html
-
-**Judge Denies Effort by Trump Co-Defendant to Have Charges Dismissed**\
-`Walt Nauta, a personal aide to former President Donald J. Trump, claimed that he was the victim of vindictive prosecution in the classified documents case.`\
-https://nytimes.com/2024/07/06/us/politics/trump-nauta-vindictive-prosecution.html
 
