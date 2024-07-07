@@ -1,3 +1,15 @@
+**Phillies exit Atlanta with 7 All-Stars, Schwarber and Harper back soon, and a debut to ponder**\
+`The All-Star Game will have a distinct Phillies slant. It's a reflection of what they have accomplished so far. They have bigger goals. `\
+https://nytimes.com/athletic/5622636/2024/07/07/phillies-all-stars-schwarber-harper-returns-tyler-phillips-debut/
+
+**Jane F. McAlevey, Who Empowered Workers Across the Globe, Dies at 59**\
+`An organizer and author, she believed that a union was only as strong as its members and trained thousands “to take over their unions and change them.”`\
+https://nytimes.com/2024/07/07/business/jane-mcalevey-dead.html
+
+**Radio Host Who Was Fed Questions by Biden Campaign Leaves Philadelphia Station**\
+`WURD said that the interview with President Biden was not up to its standards and that the host, Andrea Lawful-Sanders, had resigned in a mutual decision.`\
+https://nytimes.com/2024/07/07/us/politics/biden-interview-radio-host-resigns.html
+
 **Davis Thompson cruises to first PGA Tour win**\
 `Thompson won at 28-under for the tournament after a final-round 64 (-7) and earned an Open Championship berth.`\
 https://nytimes.com/athletic/5622668/2024/07/07/davis-thompson-john-deere-classic-win/
