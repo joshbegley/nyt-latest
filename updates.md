@@ -1,3 +1,7 @@
+**‘Goodest Job’ or ‘Good as Job’? The White House Wants a Word.**\
+`ABC News tweaked its transcript of an intriguing moment in its Friday interview with the president after the Biden administration and news outlets raised questions.`\
+https://nytimes.com/2024/07/06/us/politics/biden-goodest-transcript.html
+
 **Wimbledon Day 6: Danielle Collins' bucket list, Mpetshi Perricard makes his own luck**\
 `Ben Shelton's six days of strength, a tennis bucket list for Danielle Collins, and the unluckiest lucky loser.`\
 https://nytimes.com/athletic/5620855/2024/07/06/wimbledon-recap-mpetshi-perricard-danielle-collins-ben-shelton/

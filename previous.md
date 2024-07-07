@@ -1,3 +1,7 @@
+**‘Goodest Job’ or ‘Good as Job’? The White House Wants a Word.**\
+`ABC News tweaked its transcript of an intriguing moment in its Friday interview with the president after the Biden administration and news outlets raised questions.`\
+https://nytimes.com/2024/07/06/us/politics/biden-goodest-transcript.html
+
 **Wimbledon Day 6: Danielle Collins' bucket list, Mpetshi Perricard makes his own luck**\
 `Ben Shelton's six days of strength, a tennis bucket list for Danielle Collins, and the unluckiest lucky loser.`\
 https://nytimes.com/athletic/5620855/2024/07/06/wimbledon-recap-mpetshi-perricard-danielle-collins-ben-shelton/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/06/nyregion/coney-island-beach-drowning.html
 **France’s Snap Election Enters Its Final Hours**\
 `The vote will determine the composition of France’s National Assembly, and the future of President Emmanuel Macron’s second term.`\
 https://nytimes.com/2024/07/06/world/europe/france-parliamentary-election-2024.html
-
-**Should Yankees' Ben Rice be the everyday first baseman after his 3-homer day?**\
-`The 25-year-old became the first Yankees rookie to hit three home runs in a game. Should he be a fixture at the top of the lineup?`\
-https://nytimes.com/athletic/5620992/2024/07/06/yankees-ben-rice-three-home-runs/
 
