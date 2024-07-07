@@ -1,3 +1,7 @@
+**As Democrats Fret About Biden, Murphy Says He Must Address Voters’ Concerns**\
+`The Connecticut Democrat said the president had more to do to assuage voters’ worries about his age, mental acuity and fitness to run. Top House Democrats are set to meet on Sunday to discuss his candidacy.`\
+https://nytimes.com/2024/07/07/us/politics/biden-democrats-congress-murphy.html
+
 **Who is Leicester's new signing Michael Golding?**\
 `The 18-year-old attack-minded midfielder made his debut for Chelsea's senior team last season and has captained England at youth level`\
 https://nytimes.com/athletic/5611512/2024/07/07/leicester-city-michael-golding-chelsea-transfer/
