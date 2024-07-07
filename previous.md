@@ -6,7 +6,7 @@ https://nytimes.com/2024/07/07/world/europe/france-election-results-national-ral
 `The All-Star Game will have a distinct Phillies slant. It's a reflection of what they have accomplished so far. They have bigger goals. `\
 https://nytimes.com/athletic/5622636/2024/07/07/phillies-all-stars-schwarber-harper-returns-tyler-phillips-debut/
 
-**Reds' Elly De La Cruz is headed to the All-Star Game for the first time**\
+**Reds' Elly De La Cruz headed to All-Star Game for first time**\
 `De La Cruz's All-Star bid did not come as a surprise to those who have been around him.`\
 https://nytimes.com/athletic/5622707/2024/07/07/reds-elly-de-la-cruz-first-all-star-game/
 
