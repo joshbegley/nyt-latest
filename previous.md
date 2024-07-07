@@ -1,3 +1,19 @@
+**How a Last-Ditch Effort to Save Menendez From Prosecution Backfired**\
+`Abbe Lowell, a lawyer for Senator Robert Menendez, met with prosecutors last fall to plead his case. Days later, the senator was indicted on bribery charges.`\
+https://nytimes.com/2024/07/07/nyregion/robert-menendez-bribery-trial-abbe-lowell.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/07/crosswords/spelling-bee-forum.html
+
+**The Sad State of Underground Retail in New York City**\
+`Nearly 75 percent of shops operated by the Metropolitan Transportation Authority are vacant.`\
+https://nytimes.com/2024/07/07/nyregion/mta-underground-retail.html
+
+**‘As I Stood There, a Bird Watcher in Full Regalia Paused Next to Me’**\
+`Looking up in Inwood Hill Park, talking hip-hop on Bleecker Street and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/07/07/nyregion/metropolitan-diary.html
+
 **How Wout Weghorst changed the game — and what it says about Netherlands at Euro 2024**\
 `When the Dutch got desperate against Turkey, they took the option that did not exactly feel like Total Football. The called for the Big Man`\
 https://nytimes.com/athletic/5616452/2024/07/07/netherlands-euro-2024-semifinal-weghorst/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5620945/2024/07/07/england-vs-switzerland-penalties
 **Marcell Ozuna tried to hit homers and slumped, is back to his old approach and hitting them**\
 `Ozuna homered on consecutive pitches Friday and Saturday, driving in five runs to regain the league RBI lead.`\
 https://nytimes.com/athletic/5621291/2024/07/07/marcell-ozuna-back-to-old-approach/
-
-**In Lamine Yamal's home town, Spain's Euro 2024 heroics stop everything**\
-`Watching Spain's quarter-final victory over Germany in the Catalan town where the Barcelona forward grew up`\
-https://nytimes.com/athletic/5620189/2024/07/07/lamine-yamal-euro-2024-spain-rocafonda-barcelona/
-
-**Bukayo Saka, the loneliest walk and a personal triumph to fire England's belief**\
-`The Arsenal forward is a delight, a national treasure and the embodiment of all that is good about this England team`\
-https://nytimes.com/athletic/5621214/2024/07/07/saka-england-penalty-euro2024/
-
-**Turkey's Euro 2024 run has restored their reputation - and that of coach Vincenzo Montella**\
-`Turkey's Euro 2024 run has restored their reputation - and that of coach Vincenzo Montella`\
-https://nytimes.com/athletic/5620885/2024/07/07/turkey-montella-euro-2024/
-
-**Quotation of the Day: Calls for President to Quit Set Up Clash Within Party**\
-`Quotation of the Day for Sunday, July 7, 2024.`\
-https://nytimes.com/2024/07/07/pageoneplus/quotation-of-the-day-calls-for-president-to-quit-set-up-clash-within-party.html
 

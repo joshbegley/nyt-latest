@@ -1,3 +1,19 @@
+**How a Last-Ditch Effort to Save Menendez From Prosecution Backfired**\
+`Abbe Lowell, a lawyer for Senator Robert Menendez, met with prosecutors last fall to plead his case. Days later, the senator was indicted on bribery charges.`\
+https://nytimes.com/2024/07/07/nyregion/robert-menendez-bribery-trial-abbe-lowell.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/07/crosswords/spelling-bee-forum.html
+
+**The Sad State of Underground Retail in New York City**\
+`Nearly 75 percent of shops operated by the Metropolitan Transportation Authority are vacant.`\
+https://nytimes.com/2024/07/07/nyregion/mta-underground-retail.html
+
+**‘As I Stood There, a Bird Watcher in Full Regalia Paused Next to Me’**\
+`Looking up in Inwood Hill Park, talking hip-hop on Bleecker Street and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/07/07/nyregion/metropolitan-diary.html
+
 **Bukayo Saka, the loneliest walk and a personal triumph to fire England's belief**\
 `The Arsenal forward is a delight, a national treasure and the embodiment of all that is good about this England team`\
 https://nytimes.com/athletic/5621214/2024/07/07/saka-england-penalty-euro2024/
