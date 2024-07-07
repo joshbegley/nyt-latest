@@ -1,3 +1,11 @@
+**Madison Keys cries on court as injury ends Wimbledon quarter-final dream**\
+`The American No. 12 seed was 5-2 up and heading for the last eight, before injury scuppered her chances`\
+https://nytimes.com/athletic/5621917/2024/07/07/madison-keys-wimbledon-jasmine-paolini/
+
+**John Cena to retire from WWE after 2025**\
+`Cena, 47, has long said he wouldn’t wrestle past 50 years old.`\
+https://nytimes.com/athletic/5621964/2024/07/07/john-cena-retirement/
+
 **Party Time: Dos, Don’ts and So-Whats**\
 `Readers take issue with advice in a guide to party etiquette. Also: Rudy Giuliani and Donald Trump; occupational therapy for older New Yorkers.`\
 https://nytimes.com/2024/07/07/opinion/party-etiquette.html
