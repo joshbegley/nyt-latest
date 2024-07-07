@@ -1,3 +1,11 @@
+**The path to the All-Star Game for 5 Cleveland Guardians**\
+`Cleveland will send five players to the All-Star Game, the highest count of any AL club.`\
+https://nytimes.com/athletic/5622138/2024/07/07/cleveland-guardians-all-stars/
+
+**Meet David Ellison, Paramount’s Future Boss and Hollywood’s Newest Mogul**\
+`He left college to try out acting. Now, he’s set to become one of the most powerful people in Hollywood.`\
+https://nytimes.com/2024/07/07/business/media/david-ellison-paramount-skydance.html
+
 **Shota Imanaga’s All-Star selection is a bright spot in this dull Cubs season **\
 `Imanaga has ingratiated himself to his Cubs teammates with his personality and his talent, the latter of which landed him an All-Star bid.`\
 https://nytimes.com/athletic/5622781/2024/07/07/cubs-shota-imanaga-all-star-selection/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5622668/2024/07/07/davis-thompson-john-deere-classi
 **Wimbledon day 7: Carlos Alcaraz feeds on his own genius, Lulu Sun rolls on**\
 `A week into Wimbledon, fearless flair fuels the defending champion, and a New Zealand qualifier takes out a home favorite`\
 https://nytimes.com/athletic/5622398/2024/07/07/wimbledon-recap-day-7-carlos-alcarazs-highlight-reel-and-lulu-suns-story/
-
-**Heliot Ramos, Logan Webb selected as the Giants representatives for the 2024 All-Star Game**\
-`Webb and Ramos were the obvious picks, and it's a pleasant surprise to see the general baseball world agree.`\
-https://nytimes.com/athletic/5622220/2024/07/07/sf-giants-heliot-ramos-logan-webb-all-stars/
-
-**Tigers' Riley Greene joins Tarik Skubal, gets his due with AL All-Star nod**\
-`Greene is the Tigers' first All-Star outfielder since Justin Upton in 2017.`\
-https://nytimes.com/athletic/5622187/2024/07/07/detroit-tigers-all-star-roster-riley-greene-tarik-skubal/
 
