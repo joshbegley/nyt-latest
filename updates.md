@@ -1,3 +1,7 @@
+**The left-wing New Popular Front exceeded expectations. Who’s in it?**\
+`By Catherine Porter`\
+https://nytimes.com/live/2024/07/07/world/france-election-2024/france-new-popular-front
+
 **Beryl’s Trail of Destruction So Far**\
 `The storm has caused widespread damage on its path through the Caribbean and toward the Gulf of Mexico. See where it has wreaked havoc.`\
 https://nytimes.com/2024/07/07/us/hurricane-beryl-path-mexico-carriacou.html

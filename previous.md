@@ -1,3 +1,7 @@
+**The left-wing New Popular Front exceeded expectations. Who’s in it?**\
+`By Catherine Porter`\
+https://nytimes.com/live/2024/07/07/world/france-election-2024/france-new-popular-front
+
 **Beryl’s Trail of Destruction So Far**\
 `The storm has caused widespread damage on its path through the Caribbean and toward the Gulf of Mexico. See where it has wreaked havoc.`\
 https://nytimes.com/2024/07/07/us/hurricane-beryl-path-mexico-carriacou.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5622156/2024/07/07/jacob-greaves-ipswich-transfers-
 **J.D. Vance Endorses Trump’s Call for a Special Prosecutor Against Biden**\
 `The Ohio senator suggested it was “a totally reasonable thing” for former President Donald J. Trump to, if re-elected, appoint a prosecutor to investigate the Biden administration.`\
 https://nytimes.com/2024/07/07/us/politics/vance-trump-biden-special-prosecutor.html
-
-**Macron’s rivals say they’ll fix the economy, but economists are skeptical.**\
-`By Liz Alderman`\
-https://nytimes.com/live/2024/07/07/world/france-election-2024/macron-national-rally-france-economy
 
