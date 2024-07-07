@@ -1,3 +1,7 @@
+**The Windmills Are Back Up on the Moulin Rouge**\
+`The Paris landmark has completed its restoration after the blades fell off this spring — and just in time for the Summer Olympic Games to begin.`\
+https://nytimes.com/2024/07/07/world/europe/paris-windmills-moulin-rouge.html
+
 **Thiago retires following Liverpool exit**\
 `Thiago has retired from football following his departure from Liverpool.`\
 https://nytimes.com/athletic/5621886/2024/07/07/thiago-retires-liverpool-barcelona-bayern/
