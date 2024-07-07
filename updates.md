@@ -1,3 +1,7 @@
+**NATO Has to Change. Here’s How.**\
+`It is increasingly clear that Europeans need to shoulder more responsibility for their own defense.`\
+https://nytimes.com/2024/07/07/opinion/nato-europe-us-ukraine-defense.html
+
 **Emma Raducanu's Andy Murray decision exemplifies tennis' battle with logic and emotion**\
 `Raducanu's partnership with Murray was an emotional tie to his farewell to Wimbledon, not a rational plan for success in her main event`\
 https://nytimes.com/athletic/5620207/2024/07/07/emma-raducanu-andy-murray-mixed-doubles-wimbledon/
