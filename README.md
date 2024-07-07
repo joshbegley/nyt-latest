@@ -1,4 +1,8 @@
-**Flyers sign first-round pick Jett Luchanko, who has 'a mature game for a young player'**\
+**DeMar DeRozan finalizing deal to sign with Kings**\
+`DeRozan, 34, becomes the first player since LeBron James (33) in 2018 to lead the league in minutes in his 30s.`\
+https://nytimes.com/athletic/5590758/2024/07/06/demar-derozan-kings-free-agency-nba/
+
+**Flyers sign first-round pick Jett Luchanko, who has a 'mature game for a young player'**\
 `Luchanko signed a three-year entry-level deal with the Flyers on Saturday.`\
 https://nytimes.com/athletic/5621182/2024/07/06/philadelphia-flyers-sign-jett-luchanko/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/06/world/asia/tokyo-goverors-election.html
 **Colombia 5-0 Panama: Takeaways as Colombia reach semis and James Rodriguez shines**\
 `Colombia return to the Copa America semifinals for the third time in the last four editions `\
 https://nytimes.com/athletic/5620884/2024/07/06/colombia-panama-james-rodriguez-takeaways/
-
-**Copa America 2024 quarterfinals bracket: Full knockout stage schedule**\
-`The world's oldest international soccer tournament is reaching the business end in the United States`\
-https://nytimes.com/athletic/5595220/2024/07/06/copa-america-2024-bracket-qualified-out/
 
