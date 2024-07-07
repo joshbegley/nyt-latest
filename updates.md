@@ -1,3 +1,11 @@
+**Texas has a long and deadly history of hurricanes.**\
+`South Texans are bracing for the arrival of a powerful hurricane, as have generations of Texans before them.`\
+https://nytimes.com/live/2024/07/07/us/hurricane-beryl-texas/texas-has-a-long-and-deadly-history-of-hurricanes
+
+**Madison Keys cries on court as injury ends Wimbledon quarter-final dream**\
+`The American No. 12 seed was 5-2 up and heading for the last eight, before injury scuppered her chances`\
+https://nytimes.com/athletic/5621917/2024/07/07/madison-keys-wimbledon-jasmine-paolini/
+
 **Beryl Live Updates: Over a Million in Texas Are Under a Hurricane Warning**\
 `Currently a tropical storm after smashing through the Caribbean, Beryl is forecast to make landfall on the Texas coast as a hurricane on Monday morning.`\
 https://nytimes.com/live/2024/07/07/us/hurricane-beryl-texas
