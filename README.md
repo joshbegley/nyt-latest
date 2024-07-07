@@ -1,3 +1,7 @@
+**France’s National Rally Is Defiant After Disappointing Election**\
+`The party fell short of expectations but had captured its highest number of National Assembly seats.`\
+https://nytimes.com/2024/07/07/world/europe/france-election-results-national-rally.html
+
 **Reds' Elly De La Cruz is headed to the All-Star Game for the first time**\
 `De La Cruz's All-Star bid did not come as a surprise to those who have been around him.`\
 https://nytimes.com/athletic/5622707/2024/07/07/reds-elly-de-la-cruz-first-all-star-game/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5622187/2024/07/07/detroit-tigers-all-star-roster-r
 **The Left United to Keep the Far Right From Power. Its Strategy Appeared to Work.**\
 `The left-wing alliance includes the divisive Jean-Luc Mélenchon, a combative politician who has been accused of antisemitism.`\
 https://nytimes.com/2024/07/07/world/europe/france-election-new-popular-front-far-right.html
-
-**Paramount Agrees to Merge With Skydance**\
-`The deal, approved by Paramount’s board, ushers in a new chapter for the company, which owns CBS and the movie studio behind “Top Gun.”`\
-https://nytimes.com/2024/07/07/business/media/paramount-skydance-merger-deal.html
 
