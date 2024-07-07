@@ -1,3 +1,15 @@
+**Three Braves takeaways: Sale, Ozuna and López took unique routes to 2023 NL All-Star team**\
+`The Braves have three 2024 All-Stars in Chris Sale, Marcell Ozuna and Reynaldo López. They helped keep them above water in the first half.`\
+https://nytimes.com/athletic/5622790/2024/07/07/braves-all-stars-chris-sale-marcell-ozuna-reynaldo-lopez/
+
+**‘Lake Fire’ in California Prompts Evacuations and Threatens Neverland Ranch**\
+`The fire erupted on Friday near Zaca Lake, northeast of Los Olivos, Calif. As of Sunday, it had burned more than 16,000 acres and was zero percent contained.`\
+https://nytimes.com/2024/07/07/us/michael-jackson-ca-wildfire-neverland-ranch.html
+
+**Reese posts 13th consecutive double-double**\
+`Angel Reese bested Candace Parker’s 12-game double-double streak that spanned the 2009 and 2010 regular seasons.`\
+https://nytimes.com/athletic/5622827/2024/07/07/angel-reese-double-double-record-sky/
+
 **Stephen King, Elin Hilderbrand and More Share Their Top Books of the 21st Century**\
 `We asked some literary luminaries to share their full ballots.`\
 https://nytimes.com/interactive/2024/books/authors-top-books-21st-century.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/07/world/europe/france-election-results-national-ral
 **Phillies exit Atlanta with 7 All-Stars, Schwarber and Harper back soon, and a debut to ponder**\
 `The All-Star Game will have a distinct Phillies slant. It's a reflection of what they have accomplished so far. They have bigger goals. `\
 https://nytimes.com/athletic/5622636/2024/07/07/phillies-all-stars-schwarber-harper-returns-tyler-phillips-debut/
-
-**Reds' Elly De La Cruz headed to All-Star Game for first time**\
-`De La Cruz's All-Star bid did not come as a surprise to those who have been around him.`\
-https://nytimes.com/athletic/5622707/2024/07/07/reds-elly-de-la-cruz-first-all-star-game/
-
-**Full All-Star rosters revealed; Phillies lead with 7**\
-`Zack Wheeler, Ranger Suarez, Jeff Hoffman and Matt Strahm were the latest Phillies chosen for the 2024 All-Star Game.`\
-https://nytimes.com/athletic/5622380/2024/07/07/mlb-all-star-game-rosters-2024/
-
-**Here’s what to expect as Beryl is set to hit Texas.**\
-`By Isabelle Taft`\
-https://nytimes.com/live/2024/07/07/us/hurricane-beryl-texas/heres-what-to-expect-as-beryl-is-set-to-hit-texas
 
