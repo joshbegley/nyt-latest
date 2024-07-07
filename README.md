@@ -1,3 +1,11 @@
+**Stephen King, Elin Hilderbrand and More Share Their Top Books of the 21st Century**\
+`We asked some literary luminaries to share their full ballots.`\
+https://nytimes.com/interactive/2024/books/authors-top-books-21st-century.html
+
+**The 100 Best Books of the 21st Century**\
+`As voted on by 503 book lovers — with a little help from the staff of`\
+https://nytimes.com/interactive/2024/books/best-books-21st-century.html
+
 **The path to the All-Star Game for 5 Cleveland Guardians**\
 `Cleveland will send five players to the All-Star Game, the highest count of any AL club.`\
 https://nytimes.com/athletic/5622138/2024/07/07/cleveland-guardians-all-stars/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5622380/2024/07/07/mlb-all-star-game-rosters-2024/
 **Here’s what to expect as Beryl is set to hit Texas.**\
 `By Isabelle Taft`\
 https://nytimes.com/live/2024/07/07/us/hurricane-beryl-texas/heres-what-to-expect-as-beryl-is-set-to-hit-texas
-
-**Davis Thompson cruises to first PGA Tour win**\
-`Thompson won at 28-under for the tournament after a final-round 64 (-7) and earned an Open Championship berth.`\
-https://nytimes.com/athletic/5622668/2024/07/07/davis-thompson-john-deere-classic-win/
-
-**Wimbledon day 7: Carlos Alcaraz feeds on his own genius, Lulu Sun rolls on**\
-`A week into Wimbledon, fearless flair fuels the defending champion, and a New Zealand qualifier takes out a home favorite`\
-https://nytimes.com/athletic/5622398/2024/07/07/wimbledon-recap-day-7-carlos-alcarazs-highlight-reel-and-lulu-suns-story/
 
