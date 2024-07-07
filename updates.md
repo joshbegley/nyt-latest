@@ -1,3 +1,7 @@
+**After another shaky Ranger Suárez start, a break could be coming at the right time**\
+`After allowing 20 earned runs in his first 16 starts, Suárez has been tagged for 11 runs in his last two.`\
+https://nytimes.com/athletic/5621257/2024/07/06/phillies-ranger-suarez-all-star-break/
+
 **Takeaways as Uruguay knock out Brazil on penalties in dirtiest game of the tournament**\
 `This quarter-final had more fouls than moments of quality - The Athletic dissects the big talking points`\
 https://nytimes.com/athletic/5621161/2024/07/06/brazil-uruguay-most-fouls-copa-america/
