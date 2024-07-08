@@ -1,3 +1,11 @@
+**UConn gives Hurley new 6-year, $50 million deal**\
+`The new deal comes after Dan Hurley declined a six-year, $70 million coaching contract offer from the Lakers in June.`\
+https://nytimes.com/athletic/5625163/2024/07/08/dan-hurley-contract-uconn-basketball/
+
+**What’s in Biden’s Survival Kit**\
+`Eleven days after his disastrous debate performance, the president’s strategy is coming into focus.`\
+https://nytimes.com/2024/07/08/us/politics/biden-presidential-race.html
+
 **$1 Billion Bloomberg Gift to Hopkins Makes Tuition Free for Most Medical Students**\
 `The gift, made by Michael R. Bloomberg’s philanthropic organization, will also cover living expenses for some Johns Hopkins University students.`\
 https://nytimes.com/2024/07/08/us/bloomberg-donation-johns-hopkins-medical.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5624963/2024/07/08/andrew-olesh-michigan-football-r
 **Wimbledon day 8: Will Rybakina break cycle? Did we see the most chaotic match-up?**\
 `To start Wimbledon's second week: Elena Rybakina's limelight, the most lethal serve in tennis meeting its match, and chaos on Court One`\
 https://nytimes.com/athletic/5623774/2024/07/08/wimbledon-recap-rybakinas-title-hopes-and-ostapenko-putintseva-chaos/
-
-**Heated Exchange Over Biden’s Health at White House Briefing**\
-`Karine Jean-Pierre, the White House press secretary, refused to speak about several visits to the White House by a neurologist from Walter Reed National Military Medical Center.`\
-https://nytimes.com/video/us/politics/100000009560879/biden-health-neurologist.html
-
-**Scaloni calls for European teams to play in Copa America**\
-`Argentina head coach Lionel Scaloni would like to see European Championship teams eventually participate in the Copa America and vice versa.`\
-https://nytimes.com/athletic/5625125/2024/07/08/copa-america-european-teams-scaloni/
 
