@@ -1,3 +1,7 @@
+**Several Democratic senators refrained from full-throated endorsements of Biden.**\
+`By Catie Edmondson`\
+https://nytimes.com/live/2024/07/08/us/trump-biden-election/biden-senate-democrats-endorsements
+
 **Djokovic accuses Wimbledon crowd of 'disrespect' after advancing to quarterfinals**\
 `Novak Djokovic advanced to the quarterfinals of Wimbledon before taking aim at sections of the Centre Court crowd for what he called &#8220;disrespect&#8221; towards him during his match with Holger Rune.`\
 https://nytimes.com/athletic/5624917/2024/07/08/novak-djokovic-wimbledon-crowd-rune/
