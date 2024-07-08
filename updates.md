@@ -1,3 +1,15 @@
+**What can England expect from the Netherlands in the Euro 2024 semi-final?**\
+`Ronald Koeman's team has some specific English qualities — he may rely on them during Wednesday's game in Dortmund`\
+https://nytimes.com/athletic/5621522/2024/07/08/netherlands-tactics-england-euro-2024-semi-final/
+
+**How 'Magic Mike' - the kid who hated football - became France No 1**\
+`Didier Deschamps' goalkeeper is imposing on and off the field, despite his early reservations about the sport`\
+https://nytimes.com/athletic/5622241/2024/07/08/mike-maignan-france-euro-2024/
+
+**Diaz is Colombia's Copa America hero - but his Liverpool future is far less clear**\
+`Luis Diaz is supposed to be the lionheart of Liverpool and Colombia.`\
+https://nytimes.com/athletic/5621652/2024/07/08/luis-diaz-liverpool-colombia-copa-america/
+
 **Kroos has retired, and Muller and Neuer may follow. So, where do Germany go from here?**\
 `'We lost, but we did not fail.' Germany won the hearts and minds of the population during Euro 2024. But now Nagelsmann must rebuild`\
 https://nytimes.com/athletic/5621727/2024/07/08/germany-kroos-neuer-nagelsmann-world-cup/

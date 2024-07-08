@@ -1,3 +1,11 @@
+**Monday Briefing**\
+`The left surges in French elections.`\
+https://nytimes.com/2024/07/08/briefing/france-elections-israel-protests-biden.html
+
+**Is Kane in danger of becoming England's Ronaldo?**\
+`Not too long ago, it would have been a compliment to be compared to Ronaldo - but is England's captain in danger of holding them back?`\
+https://nytimes.com/athletic/5621106/2024/07/08/harry-kane-england-euro-2024-cristiano-ronaldo/
+
 **What can England expect from the Netherlands in the Euro 2024 semi-final?**\
 `Ronald Koeman's team has some specific English qualities — he may rely on them during Wednesday's game in Dortmund`\
 https://nytimes.com/athletic/5621522/2024/07/08/netherlands-tactics-england-euro-2024-semi-final/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/08/world/europe/france-election-key-takeaways.html
 **The Yen Is Plunging. So Is Japan’s Defense Budget.**\
 `Japan is struggling to fund plans that would significantly bolster its military readiness amid rising regional threats.`\
 https://nytimes.com/2024/07/08/business/japan-yen-defense-spending.html
-
-**Monday's MLB projections: Best starting pitchers, playoff odds, props and more**\
-`Projections for Monday's MLB games with value picks, best bets, pitcher props, home run trends, weather and more.`\
-https://nytimes.com/athletic/5615294/2024/07/08/mlb-odds-predictions-best-bets-july-8/
-
-**'I didn't know if I could play' - Why Wimbledon's biggest subplot is injuries**\
-`From players battling back after long lay-offs, to a slew of mid-match retirements, injuries have loomed over SW19 all tournament`\
-https://nytimes.com/athletic/5620463/2024/07/08/tennis-injuries-wimbledon-paula-badosa-djokovic-knee/
 
