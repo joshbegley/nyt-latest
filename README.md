@@ -1,3 +1,7 @@
+**NFL suspends Steelers CB Sutton for 8 games**\
+`Cameron Sutton turned himself into police in March after an arrest warrant was issued for charges of domestic battery by strangulation.`\
+https://nytimes.com/athletic/5624878/2024/07/08/cam-sutton-steelers-nfl-suspension/
+
 **After an Election Surprise, What’s Next for France?**\
 `Far from producing clarity, the snap election called by President Emmanuel Macron of France has yielded a muddle that could take months to sort out.`\
 https://nytimes.com/video/world/europe/100000009559350/after-an-election-surprise-whats-next-for-france.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/08/world/europe/ohmatdyt-hospital-surgeon.html
 **Several Democratic senators refrained from full-throated endorsements of Biden.**\
 `By Catie Edmondson`\
 https://nytimes.com/live/2024/07/08/us/trump-biden-election/biden-senate-democrats-endorsements
-
-**Djokovic accuses Wimbledon crowd of 'disrespect' after advancing to quarterfinals**\
-`Novak Djokovic advanced to the quarterfinals of Wimbledon before taking aim at sections of the Centre Court crowd for what he called &#8220;disrespect&#8221; towards him during his match with Holger Rune.`\
-https://nytimes.com/athletic/5624917/2024/07/08/novak-djokovic-wimbledon-crowd-rune/
 
