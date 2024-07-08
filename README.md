@@ -1,3 +1,7 @@
+**A Remarkable Comeback**\
+`“This is the kind of thing that we couldn’t have even dreamed about five or six years ago,” one expert said about changes in some American counties.`\
+https://nytimes.com/2024/07/08/briefing/a-remarkable-comeback-for-left-behind-counties.html
+
 **Are Copa America's $200 tickets and empty seats a missed opportunity ahead of the World Cup?**\
 `Instead of captivating audiences for the main event and preparing markets for 2026, Copa America saw the USMNT failing to sell out stadiums`\
 https://nytimes.com/athletic/5620550/2024/07/08/copa-america-attendances-tickets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5619971/2024/07/08/broncos-quarterbacks-bo-nix-star
 **'Leo has to be taken care of': How Argentina is preparing for life without Messi**\
 `Argentina's No 10 has yet to score at Copa America but has been involved in more build-up play than anyone else`\
 https://nytimes.com/athletic/5622451/2024/07/08/lionel-messi-argentina-copa-america-win/
-
-**Greenberg: Cubs win a series but remain punchline in harrowing Chicago baseball season**\
-`It's time to honesty reassess the organization. Outside of Shota Imanaga making his first All-Star Game, there haven’t been many positives.`\
-https://nytimes.com/athletic/5622764/2024/07/08/chicago-cubs-colten-brewer-craig-counsell-punch/
 
