@@ -1,3 +1,7 @@
+**White House Briefing Devolves Into Shouting Over Questions About Biden’s Health**\
+`Karine Jean-Pierre, the press secretary, refused to answer questions about whether visits to the White House by a Parkinson’s doctor were about the president.`\
+https://nytimes.com/2024/07/08/us/politics/white-house-briefing-shouting.html
+
 **This year, the biggest American stars at Wimbledon are happiest under the radar**\
 `In the most successful Wimbledon for American tennis players in 20 years, it's the under-the-radar players making headlines`\
 https://nytimes.com/athletic/5624751/2024/07/08/wimbledon-american-tennis-players-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5624878/2024/07/08/cam-sutton-steelers-nfl-suspensi
 **After an Election Surprise, What’s Next for France?**\
 `Far from producing clarity, the snap election called by President Emmanuel Macron of France has yielded a muddle that could take months to sort out.`\
 https://nytimes.com/video/world/europe/100000009559350/after-an-election-surprise-whats-next-for-france.html
-
-**A Defiant Biden Told Democrats: ‘Challenge Me’**\
-`Plus, the best books of the century.`\
-https://nytimes.com/2024/07/08/briefing/08evening-biden-ukraine-france-tropical-storm-beryl.html
 
