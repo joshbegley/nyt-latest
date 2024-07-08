@@ -1,3 +1,7 @@
+**The Track Star Knew He Was Gay. Now Everyone Else Does.**\
+`Trey Cunningham said friends and peers reacted to his decision to come out with a shrug. He wishes the same was true for other men in elite sports.`\
+https://nytimes.com/2024/07/08/world/americas/trey-cunningham.html
+
 **A crucial week for Biden as NATO visits Washington.**\
 `By Michael D. Shear and Maggie Astor`\
 https://nytimes.com/live/2024/07/08/us/trump-biden-election/a-crucial-week-for-biden-as-nato-visits-washington
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/08/opinion/biden-harris-trump.html
 **Biden’s Strategy to Make the Race About Trump Is Suddenly in Doubt**\
 `The Biden campaign’s effort to raise questions about Donald J. Trump’s ability to be president has boomeranged into a referendum on the president’s own competence.`\
 https://nytimes.com/2024/07/08/us/politics/biden-trump-strategy.html
-
-**After big payday, can Rhamondre Stevenson prove he's a top-10 running back?**\
-`The Patriots gave Stevenson a big-money extension, which was a bit surprising for a 26-year-old RB. Can he back it up this season?`\
-https://nytimes.com/athletic/5587661/2024/07/08/rhamondre-stevenson-patriots-contract/
 

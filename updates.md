@@ -1,3 +1,7 @@
+**The Track Star Knew He Was Gay. Now Everyone Else Does.**\
+`Trey Cunningham said friends and peers reacted to his decision to come out with a shrug. He wishes the same was true for other men in elite sports.`\
+https://nytimes.com/2024/07/08/world/americas/trey-cunningham.html
+
 **A crucial week for Biden as NATO visits Washington.**\
 `By Michael D. Shear and Maggie Astor`\
 https://nytimes.com/live/2024/07/08/us/trump-biden-election/a-crucial-week-for-biden-as-nato-visits-washington
