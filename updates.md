@@ -1,3 +1,7 @@
+**What’s on TV This Week: ‘The Bachelorette’ and ‘Claim to Fame’**\
+`Jenn Tran hands out roses on ABC. Kevin and Franklin Jonas host a show with the relatives of stars.`\
+https://nytimes.com/2024/07/08/arts/television/whats-on-tv-this-week-the-bachelorette-and-claim-to-fame.html
+
 **Boeing Agrees to Plead Guilty to Felony in Deal With Justice Department**\
 `As part of the deal, stemming from fatal 737 Max crashes in 2018 and 2019, the company agreed to pay a fine of nearly half a billion dollars and strengthen its safety programs.`\
 https://nytimes.com/2024/07/08/business/boeing-justice-department-plea-deal.html

@@ -1,3 +1,7 @@
+**What’s on TV This Week: ‘The Bachelorette’ and ‘Claim to Fame’**\
+`Jenn Tran hands out roses on ABC. Kevin and Franklin Jonas host a show with the relatives of stars.`\
+https://nytimes.com/2024/07/08/arts/television/whats-on-tv-this-week-the-bachelorette-and-claim-to-fame.html
+
 **Boeing Agrees to Plead Guilty to Felony in Deal With Justice Department**\
 `As part of the deal, stemming from fatal 737 Max crashes in 2018 and 2019, the company agreed to pay a fine of nearly half a billion dollars and strengthen its safety programs.`\
 https://nytimes.com/2024/07/08/business/boeing-justice-department-plea-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5596080/2024/07/08/arsenal-their-academy-and-why-yo
 **Soaring Temperatures and Profit Seekers Amplify Dangers on the Hajj**\
 `“The halls felt like they were on fire,” one Jordanian woman said of her accommodations after she opted to take a cheaper travel package for “unregistered” pilgrims to Saudi Arabia.`\
 https://nytimes.com/2024/07/08/world/middleeast/hajj-unregistered-pilgrims-heat-deaths.html
-
-**5 Takeaways From France’s Snap Election**\
-`It was a day of big surprises in France, with the left surging unexpectedly, the far right falling far short of expectations and the question of who will be the next prime minister still unclear.`\
-https://nytimes.com/2024/07/08/world/europe/france-election-key-takeaways.html
 
