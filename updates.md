@@ -1,3 +1,7 @@
+**Three Giants takeaways: Austin Slater traded to Reds for lefty reliever**\
+`The move brings an end to a long-standing platoon between Slater, who never found a groove at the plate this season, and Mike Yastrzemski.`\
+https://nytimes.com/athletic/5623170/2024/07/08/giants-takeaways-austin-slater-traded/
+
 **Arsenal, their academy and why young players are rarely getting a first-team chance**\
 `Arsenal had a poor record of exposing their young players to first-team football last season. Is it going to change in 2024-25?`\
 https://nytimes.com/athletic/5596080/2024/07/08/arsenal-academy-players-chances/
