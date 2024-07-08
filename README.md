@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5622827/2024/07/07/angel-reese-double-double-record
 https://nytimes.com/interactive/2024/books/authors-top-books-21st-century.html
 
 **The 100 Best Books of the 21st Century**\
-`As voted on by 503 book lovers — with a little help from the staff of`\
+`As voted on by 503 book lovers — with a little help from the staff of The New York Times Book Review.`\
 https://nytimes.com/interactive/2024/books/best-books-21st-century.html
 
 **The path to the All-Star Game for 5 Cleveland Guardians**\
