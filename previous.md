@@ -1,3 +1,11 @@
+**Ivan Taylor, son of Ike Taylor, flips to Michigan from Notre Dame**\
+`Taylor, a top-60 safety and the son of former Pittsburgh Steelers DB Ike Taylor, switched his commitment to Michigan on Monday. `\
+https://nytimes.com/athletic/5624462/2024/07/08/ivan-taylor-michigan-notre-dame-flip/
+
+**A Week of Extreme Weather, Explained**\
+`July has brought a record-breaking hurricane, early-season wildfires and triple-digit temperatures. Judson Jones, a meteorologist and reporter, cleared up the connections between the events.`\
+https://nytimes.com/2024/07/08/insider/a-week-of-extreme-weather-explained.html
+
 **Tuesday Briefing: What Comes Next for France**\
 `Plus, President Biden’s crucial week.`\
 https://nytimes.com/2024/07/08/briefing/france-election-whats-next.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/a-dashboard-view-of
 **5,000 Miles, 8 Countries: The Path to the U.S. Through One Family’s Eyes**\
 `With three children and a dog, the Aguilar Ortega family trekked through the jungle, hopped freight trains and toured Times Square. Significant challenges still lay ahead.`\
 https://nytimes.com/interactive/2024/07/08/nyregion/immigration-us-border-family.html
-
-**Boeing Struck a Deal With the Justice Department. What Comes Next?**\
-`The plane manufacturer must still resolve various legal challenges and operational problems tied to the troubled 737 Max plane.`\
-https://nytimes.com/2024/07/08/business/boeing-plea-deal-737-max.html
-
-**What Keegan Bradley’s shocking hire tells us about the U.S. Ryder Cup team's future**\
-`Bradley's love for the Ryder Cup is well documented and has now been rewarded with the captaincy.`\
-https://nytimes.com/athletic/5624605/2024/07/08/keegan-bradley-us-ryder-cup-captain/
 

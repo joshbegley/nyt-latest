@@ -1,3 +1,11 @@
+**Ivan Taylor, son of Ike Taylor, flips to Michigan from Notre Dame**\
+`Taylor, a top-60 safety and the son of former Pittsburgh Steelers DB Ike Taylor, switched his commitment to Michigan on Monday. `\
+https://nytimes.com/athletic/5624462/2024/07/08/ivan-taylor-michigan-notre-dame-flip/
+
+**A Week of Extreme Weather, Explained**\
+`July has brought a record-breaking hurricane, early-season wildfires and triple-digit temperatures. Judson Jones, a meteorologist and reporter, cleared up the connections between the events.`\
+https://nytimes.com/2024/07/08/insider/a-week-of-extreme-weather-explained.html
+
 **Tuesday Briefing: What Comes Next for France**\
 `Plus, President Biden’s crucial week.`\
 https://nytimes.com/2024/07/08/briefing/france-election-whats-next.html
