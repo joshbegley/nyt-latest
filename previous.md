@@ -1,3 +1,7 @@
+**How Our Reporter Learned to Love Bats**\
+`Sam Anderson, the host and reporter behind the podcast “Animal” for The New York Times Magazine, went on a journey to Mexico to conquer his fear of bats.`\
+https://nytimes.com/video/podcasts/100000009553674/how-our-reporter-learned-to-love-bats.html
+
 **Steph Curry opens up on Klay Thompson's departure: 'I just want him to be happy'**\
 `Curry gives his thoughts on the end of the "Splash Brothers" era for the Warriors and the "rough" phone call he had with Thompson.`\
 https://nytimes.com/athletic/5623130/2024/07/08/steph-curry-klay-thompson-interview/
@@ -18,8 +22,8 @@ https://nytimes.com/live/2024/07/08/us/trump-biden-election/black-democrats-bide
 `“I am firmly committed to staying in this race, to running this race to the end, and to beating Donald Trump.”`\
 https://nytimes.com/interactive/2024/07/08/us/president-biden-letter-to-congressional-democrats-78.html
 
-**Biden Tells Members of Congress He is ‘Firmly Committed’ to Staying in the Race**\
-`The letter comes just a day after five senior House Democrats said during a private conference call that they believe President Biden must step down from the race.`\
+**Biden Tells Members of Congress He Is ‘Firmly Committed’ to Staying in Race**\
+`The letter comes just a day after several House Democrats said during a private conference call that they believe President Biden must step down from the race.`\
 https://nytimes.com/2024/07/08/us/politics/biden-letter-congress.html
 
 **Where the Heat Wave Broke Records in California**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5623689/2024/07/08/liverpool-aaron-briggs-developme
 **Where Beryl Is Expected to Go Next**\
 `The storm will move through the United States this week.`\
 https://nytimes.com/2024/07/08/weather/where-beryl-goes-next-forecast.html
-
-**The Athletic FC: Details behind England penalty win; USMNT does not have 'golden generation'**\
-`Today in The Athletic FC: Analysing details of England's shootout win, the USMNT's 'golden generation myth', and when is it time to retire?`\
-https://nytimes.com/athletic/5623313/2024/07/08/the-athletic-fc-england-penalty-win-usmnt-golden-generation-myth/
 
