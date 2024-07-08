@@ -1,5 +1,5 @@
 **Ivan Taylor, son of Ike Taylor, flips to Michigan from Notre Dame**\
-`Taylor, a top-50 safety and the son of former Pittsburgh Steelers DB Ike Taylor, switched his commitment to Michigan on Monday. `\
+`Taylor, a top-60 safety and the son of former Pittsburgh Steelers DB Ike Taylor, switched his commitment to Michigan on Monday. `\
 https://nytimes.com/athletic/5624462/2024/07/08/ivan-taylor-michigan-notre-dame-flip/
 
 **A Week of Extreme Weather, Explained**\
