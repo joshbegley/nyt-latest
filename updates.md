@@ -1,3 +1,11 @@
+**Facing lengthy repairs, a major utility considers mobile generators for key sites.**\
+`CenterPoint Energy said more than two million customers lost power in the storm, and that the hardest hit should prepare for an extended period without electricity.`\
+https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/facing-lengthy-repairs-a-major-utility-considers-mobile-generators-for-key-sites
+
+**How Biden Is Leveraging His Defiance to Try to Stem Democratic Defections**\
+`In private and in public, President Biden made clear he holds all the cards when determining his political future. Can he get his Democratic critics to fold?`\
+https://nytimes.com/2024/07/08/us/politics/biden-campaign-democrats.html
+
 **How Biden Is Leveraging His Defiance to Try to Stem Democratic Defections**\
 `In private and in public, President Biden made clear he holds all the cards when determining his political future. Can he get his Democratic critics to fold?`\
 https://nytimes.com/2024/07/08/us/politics/biden-strategy-assess.html

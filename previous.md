@@ -1,6 +1,10 @@
+**Facing lengthy repairs, a major utility considers mobile generators for key sites.**\
+`CenterPoint Energy said more than two million customers lost power in the storm, and that the hardest hit should prepare for an extended period without electricity.`\
+https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/facing-lengthy-repairs-a-major-utility-considers-mobile-generators-for-key-sites
+
 **How Biden Is Leveraging His Defiance to Try to Stem Democratic Defections**\
 `In private and in public, President Biden made clear he holds all the cards when determining his political future. Can he get his Democratic critics to fold?`\
-https://nytimes.com/2024/07/08/us/politics/biden-strategy-assess.html
+https://nytimes.com/2024/07/08/us/politics/biden-campaign-democrats.html
 
 **UConn gives Hurley new 6-year, $50 million deal**\
 `The new deal comes after Dan Hurley declined a six-year, $70 million coaching contract offer from the Lakers in June.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5624751/2024/07/08/wimbledon-american-tennis-player
 **A tiny Texas town where Beryl made landfall counts its blessings.**\
 `Matagorda, a`\
 https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/matagorda-texas-hurricane-beryl
-
-**Michigan tops PSU, Bama, Florida for 4-star Pennsylvania TE**\
-`Andrew Olesh, the No. 3 prospect in Pennsylvania, announced his commitment to Sherrone Moore and Michigan football on Monday.`\
-https://nytimes.com/athletic/5624963/2024/07/08/andrew-olesh-michigan-football-recruiting-commitment/
 
