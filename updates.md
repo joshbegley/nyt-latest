@@ -1,3 +1,7 @@
+**A tiny Texas town where Beryl made landfall counts its blessings.**\
+`Matagorda, a`\
+https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/matagorda-texas-hurricane-beryl
+
 **Michigan tops PSU, Bama, Florida for 4-star Pennsylvania TE**\
 `Andrew Olesh, the No. 3 prospect in Pennsylvania, announced his commitment to Sherrone Moore and Michigan football on Monday.`\
 https://nytimes.com/athletic/5624963/2024/07/08/andrew-olesh-michigan-football-recruiting-commitment/
