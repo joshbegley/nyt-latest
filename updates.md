@@ -1,3 +1,15 @@
+**As some allies whisper about ditching Biden, Black Democrats are rallying around him.**\
+`By Robert Jimison`\
+https://nytimes.com/live/2024/07/08/us/trump-biden-election/black-democrats-biden
+
+**Read Biden’s Letter to Congressional Democrats**\
+`“I am firmly committed to staying in this race, to running this race to the end, and to beating Donald Trump.”`\
+https://nytimes.com/interactive/2024/07/08/us/president-biden-letter-to-congressional-democrats-78.html
+
+**Biden Tells Members of Congress He is ‘Firmly Committed’ to Staying in the Race**\
+`The letter comes just a day after five senior House Democrats said during a private conference call that they believe President Biden must step down from the race.`\
+https://nytimes.com/2024/07/08/us/politics/biden-letter-congress.html
+
 **Biden tells members of Congress he is ‘firmly committed’ to staying in the race.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/07/08/us/trump-biden-election/biden-tells-members-of-congress-he-is-firmly-committed-to-staying-in-the-race
