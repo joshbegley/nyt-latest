@@ -1,3 +1,7 @@
+**Michigan tops PSU, Bama, Florida for 4-star Pennsylvania TE**\
+`Andrew Olesh, the No. 3 prospect in Pennsylvania, announced his commitment to Sherrone Moore and Michigan football on Monday.`\
+https://nytimes.com/athletic/5624963/2024/07/08/andrew-olesh-michigan-football-recruiting-commitment/
+
 **Heated Exchange Over Biden’s Health at White House Briefing**\
 `Karine Jean-Pierre, the White House press secretary, refused to speak about several visits to the White House by a neurologist from Walter Reed National Military Medical Center.`\
 https://nytimes.com/video/us/politics/100000009560879/biden-health-neurologist.html
