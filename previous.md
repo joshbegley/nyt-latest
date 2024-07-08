@@ -1,3 +1,7 @@
+**Are Copa America's $200 tickets and empty seats a missed opportunity ahead of the World Cup?**\
+`Instead of captivating audiences for the main event and preparing markets for 2026, Copa America saw the USMNT failing to sell out stadiums`\
+https://nytimes.com/athletic/5620550/2024/07/08/copa-america-attendances-tickets/
+
 **Maresca to introduce 'right mentality and culture' at Chelsea**\
 `Enzo Maresca says his priority is to create the &#8220;right mentality and culture&#8221; as he begins his stint as Chelsea head coach.`\
 https://nytimes.com/athletic/5623311/2024/07/08/enzo-maresca-chelsea-first-interview/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5622451/2024/07/08/lionel-messi-argentina-copa-amer
 **Greenberg: Cubs win a series but remain punchline in harrowing Chicago baseball season**\
 `It's time to honesty reassess the organization. Outside of Shota Imanaga making his first All-Star Game, there haven’t been many positives.`\
 https://nytimes.com/athletic/5622764/2024/07/08/chicago-cubs-colten-brewer-craig-counsell-punch/
-
-**Sidney Crosby nearing new contract with Penguins: Sources**\
-`The potential deal is being viewed by both sides as “a commitment to Pittsburgh,” a team and league source said.`\
-https://nytimes.com/athletic/5622405/2024/07/08/sidney-crosby-pittsburgh-penguins-contract/
 
