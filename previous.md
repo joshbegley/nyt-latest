@@ -1,3 +1,15 @@
+**Until Saturday: CFB's greatest video game team ever**\
+`Welcome to Until Saturday, the five-star college football newsletter.`\
+https://nytimes.com/athletic/5624824/2024/07/08/ea-sports-cfb-video-game-west-virginia-until-saturday/
+
+**PST Art Extravaganza to Start With a Colorful Bang**\
+`The artist Cai Guo-Qiang has designed an epic fireworks event for the Los Angeles Coliseum this September.`\
+https://nytimes.com/2024/07/08/arts/design/la-coliseum-fireworks-pst-art-cai-guo-qiang.html
+
+**Gretchen Whitmer Says She Won’t Run for President Even if Biden Steps Aside**\
+`The Michigan governor made the remarks to The Associated Press and called the speculation “a distraction more than anything.”`\
+https://nytimes.com/2024/07/08/us/politics/gretchen-whitmer-biden-president.html
+
 **Jill Biden Visits 3 States in a Day, Assuring Voters Biden Is ‘All In’**\
 `As the president stared down his own party back in Washington, the first lady, a popular campaign-trail surrogate, got to work trying to convince voters that Mr. Biden was staying in the race.`\
 https://nytimes.com/2024/07/08/us/politics/jill-biden-campaign-trail.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/08/nyregion/menendez-trial/a-businessman-testif
 **In the Aging Senate, Nobody Wants to Be the One to Nudge Biden Aside**\
 `Senators have had plenty of practice watching colleagues hold stubbornly onto their positions of power as they grow old. None wants to lead a public call for President Biden to withdraw.`\
 https://nytimes.com/2024/07/08/us/politics/senate-age-biden.html
-
-**Multibillion-Dollar Fraud Trial Against Archegos Founder Nears Its End**\
-`Prosecutors and lawyers presented closing arguments in the case against Bill Hwang, who is charged with 11 counts including securities fraud and racketeering.`\
-https://nytimes.com/2024/07/08/business/archegos-closing-arguments-bill-hwang.html
-
-**Biden Tries to Soothe His Top Fund-Raisers on a Private Call**\
-`Over 19 minutes, the president repeated his assertion that he was staying in the race and suggested it was time to turn the focus back to Donald Trump.`\
-https://nytimes.com/2024/07/08/us/politics/biden-donor-call.html
-
-**This is the second time Menendez has faced federal corruption charges.**\
-`By Maia Coleman`\
-https://nytimes.com/live/2024/07/08/nyregion/menendez-trial/this-is-the-second-time-menendez-has-faced-federal-corruption-charges
 

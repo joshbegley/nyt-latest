@@ -1,3 +1,15 @@
+**Until Saturday: CFB's greatest video game team ever**\
+`Welcome to Until Saturday, the five-star college football newsletter.`\
+https://nytimes.com/athletic/5624824/2024/07/08/ea-sports-cfb-video-game-west-virginia-until-saturday/
+
+**PST Art Extravaganza to Start With a Colorful Bang**\
+`The artist Cai Guo-Qiang has designed an epic fireworks event for the Los Angeles Coliseum this September.`\
+https://nytimes.com/2024/07/08/arts/design/la-coliseum-fireworks-pst-art-cai-guo-qiang.html
+
+**Gretchen Whitmer Says She Won’t Run for President Even if Biden Steps Aside**\
+`The Michigan governor made the remarks to The Associated Press and called the speculation “a distraction more than anything.”`\
+https://nytimes.com/2024/07/08/us/politics/gretchen-whitmer-biden-president.html
+
 **Jill Biden Visits 3 States in a Day, Assuring Voters Biden Is ‘All In’**\
 `As the president stared down his own party back in Washington, the first lady, a popular campaign-trail surrogate, got to work trying to convince voters that Mr. Biden was staying in the race.`\
 https://nytimes.com/2024/07/08/us/politics/jill-biden-campaign-trail.html
