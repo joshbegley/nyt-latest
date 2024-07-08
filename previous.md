@@ -1,3 +1,27 @@
+**Arsenal, their academy and why young players are rarely getting a first-team chance**\
+`Arsenal had a poor record of exposing their young players to first-team football last season. Is it going to change in 2024-25?`\
+https://nytimes.com/athletic/5596080/2024/07/08/arsenal-their-academy-and-why-young-players-are-rarely-getting-a-first-team-chance/
+
+**Soaring Temperatures and Profit Seekers Amplify Dangers on the Hajj**\
+`“The halls felt like they were on fire,” one Jordanian woman said of her accommodations after she opted to take a cheaper travel package for “unregistered” pilgrims to Saudi Arabia.`\
+https://nytimes.com/2024/07/08/world/middleeast/hajj-unregistered-pilgrims-heat-deaths.html
+
+**5 Takeaways From France’s Snap Election**\
+`It was a day of big surprises in France, with the left surging unexpectedly, the far right falling far short of expectations and the question of who will be the next prime minister still unclear.`\
+https://nytimes.com/2024/07/08/world/europe/france-election-key-takeaways.html
+
+**The Yen Is Plunging. So Is Japan’s Defense Budget.**\
+`Japan is struggling to fund plans that would significantly bolster its military readiness amid rising regional threats.`\
+https://nytimes.com/2024/07/08/business/japan-yen-defense-spending.html
+
+**Monday's MLB projections: Best starting pitchers, playoff odds, props and more**\
+`Projections for Monday's MLB games with value picks, best bets, pitcher props, home run trends, weather and more.`\
+https://nytimes.com/athletic/5615294/2024/07/08/mlb-odds-predictions-best-bets-july-8/
+
+**'I didn't know if I could play' - Why Wimbledon's biggest subplot is injuries**\
+`From players battling back after long lay-offs, to a slew of mid-match retirements, injuries have loomed over SW19 all tournament`\
+https://nytimes.com/athletic/5620463/2024/07/08/tennis-injuries-wimbledon-paula-badosa-djokovic-knee/
+
 **Viktor Orban, Hungary’s Leader, Meets With Xi in China After Talks With Putin**\
 `Mr. Orban said his visit to Beijing was part of a “peace mission” for Ukraine. But both leaders want to offset Western power.`\
 https://nytimes.com/2024/07/07/world/asia/orban-hungary-china-xi.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/07/07/pageoneplus/quotation-of-the-day-gastineau-exchan
 **Here’s the latest on the storm.**\
 `By Edgar Sandoval, Miranda Rodriguez and Maria Jimenez Moya`\
 https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/heres-the-latest-on-the-storm
-
-**Live Updates: Beryl Expected to Hit Texas as a Hurricane**\
-`Forecasters warned that the storm could rapidly intensify, and officials said not enough people were evacuating.`\
-https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl
-
-**‘House of the Dragon’ Season 2, Episode 4: Fire in the Sky**\
-`This week brings all-out warfare and the death of a key character.`\
-https://nytimes.com/2024/07/07/arts/television/recap-house-of-the-dragon-dance-of-dragons.html
-
-**The non-all-star All-Stars: Lindor, Gil and other MLB snubs at each position**\
-`These are the most worthy players at each position who, so far, won't be taking part in next week's All-Star Game.`\
-https://nytimes.com/athletic/5622773/2024/07/07/mlb-all-star-game-roster-snubs-2024/
-
-**Beryl could knock out power in Texas. How has the grid fared before?**\
-`By Isabelle Taft`\
-https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/beryl-could-knock-out-power-in-texas-how-has-the-grid-fared-before
-
-**Chris Sale, Marcell Ozuna and Reynaldo López took unique routes to NL All-Star team**\
-`The Braves have three 2024 All-Stars in Chris Sale, Marcell Ozuna and Reynaldo López. They helped keep them above water in the first half.`\
-https://nytimes.com/athletic/5622790/2024/07/07/braves-all-stars-chris-sale-marcell-ozuna-reynaldo-lopez/
-
-**‘Lake Fire’ in California Prompts Evacuations and Threatens Neverland Ranch**\
-`The fire erupted on Friday near Zaca Lake, northeast of Los Olivos, Calif. As of Sunday, it had burned more than 16,000 acres and was zero percent contained.`\
-https://nytimes.com/2024/07/07/us/michael-jackson-ca-wildfire-neverland-ranch.html
 
