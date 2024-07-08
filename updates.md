@@ -1,3 +1,7 @@
+**Who is Jah Jackson, Georgia's newest recruit?**\
+`Just a few months ago, Jackson appeared headed to a pro basketball career. Now, he's headed to Georgia as a football recruit.`\
+https://nytimes.com/athletic/5617059/2024/07/08/jah-jackson-georgia-football/
+
 **Steph Curry opens up on Klay Thompson's difficult Warriors departure: 'I just want him to be happy'**\
 `Curry gives his thoughts on the end of the "Splash Brothers" era for the Warriors and the "rough" phone call he had with Thompson.`\
 https://nytimes.com/athletic/5623130/2024/07/08/steph-curry-klay-thompson-interview/
