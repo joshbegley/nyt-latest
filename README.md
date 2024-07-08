@@ -26,7 +26,7 @@ https://nytimes.com/interactive/2024/books/authors-top-books-21st-century.html
 `As voted on by 503 book lovers — with a little help from the staff of The New York Times Book Review.`\
 https://nytimes.com/interactive/2024/books/best-books-21st-century.html
 
-**The path to the All-Star Game for 5 Cleveland Guardians**\
+**Path to the All-Star Game for 5 Cleveland Guardians**\
 `Cleveland will send five players to the All-Star Game, the highest count of any AL club.`\
 https://nytimes.com/athletic/5622138/2024/07/07/cleveland-guardians-all-stars/
 
