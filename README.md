@@ -1,4 +1,4 @@
-**France is Not Used to Coalition Governments. Does it Have a Choice?**\
+**France Is Not Used to Coalition Governments. Does It Have a Choice?**\
 `No party got an absolute majority in the National Assembly. Here are some of the ways the country could escape political gridlock. None are easy.`\
 https://nytimes.com/2024/07/08/world/europe/france-election-whats-next.html
 
