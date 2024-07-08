@@ -1,3 +1,7 @@
+**Griezmann capable of much more - Rabiot**\
+`Adrien Rabiot says Antoine Griezmann is &#8220;capable of doing a lot more&#8221; as France prepare to face Spain in the semi-finals of the European Championship on Tuesday.`\
+https://nytimes.com/athletic/5624294/2024/07/08/antoine-griezmann-euro-2024/
+
 **Mats Wieffer to Brighton: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Mats Wieffer's move to Brighton`\
 https://nytimes.com/athletic/5620099/2024/07/08/mats-wieffer-to-brighton-transfer-ratings/
@@ -5,6 +9,10 @@ https://nytimes.com/athletic/5620099/2024/07/08/mats-wieffer-to-brighton-transfe
 **Parkinson’s Expert Visited the White House Eight Times in Eight Months**\
 `The White House has said that President Biden has no signs of the disease and that there has been no reason to update the most recent testing, conducted in February.`\
 https://nytimes.com/2024/07/08/us/politics/parkinsons-expert-white-house.html
+
+**Mbappe still adjusting to impact of mask - Deschamps**\
+`France manager Didier Deschamps says Kylian Mbappe is still adjusting to the impact that wearing a mask has on his vision.`\
+https://nytimes.com/athletic/5624219/2024/07/08/kylian-mbappe-mask-france/
 
 **Greenberg: DeMar DeRozan was great player on forgettable Bulls teams**\
 `DeRozan was a star and leader who helped the Bulls out of the muck and into the bottom tier of respectability. Where do they go from here?`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5623653/2024/07/08/nascar-chicago-street-race-futur
 **Canucks 2024 offseason moves: Where are they better? Where are they worse?**\
 `Breaking down where and how the Canucks have improved their roster using Dom Luszczyszyn’s Net Rating model.`\
 https://nytimes.com/athletic/5615939/2024/07/08/canucks-2024-offseason-moves/
-
-**Bukayo Saka's is not a redemption story. He had nothing to redeem**\
-`A penalty that was presented as a chance to exorcise demons carried with it the threat of renewed mockery and hatred`\
-https://nytimes.com/athletic/5621596/2024/07/08/saka-penalty-nothing-to-redeem/
-
-**Did You Sell Your Home to Pay for Your Child’s College? We Want to Hear From You.**\
-`With the cost of  college through the roof, some parents have sold their homes or taken out exorbitant loans to pay for their child’s degree. Share your story with us.`\
-https://nytimes.com/2024/07/08/realestate/home-sold-mortgage-college-tuition.html
 

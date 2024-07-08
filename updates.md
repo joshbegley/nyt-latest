@@ -1,3 +1,11 @@
+**Griezmann capable of much more - Rabiot**\
+`Adrien Rabiot says Antoine Griezmann is &#8220;capable of doing a lot more&#8221; as France prepare to face Spain in the semi-finals of the European Championship on Tuesday.`\
+https://nytimes.com/athletic/5624294/2024/07/08/antoine-griezmann-euro-2024/
+
+**Mbappe still adjusting to impact of mask - Deschamps**\
+`France manager Didier Deschamps says Kylian Mbappe is still adjusting to the impact that wearing a mask has on his vision.`\
+https://nytimes.com/athletic/5624219/2024/07/08/kylian-mbappe-mask-france/
+
 **Mats Wieffer to Brighton: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Mats Wieffer's move to Brighton`\
 https://nytimes.com/athletic/5620099/2024/07/08/mats-wieffer-to-brighton-transfer-ratings/
