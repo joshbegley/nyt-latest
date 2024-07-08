@@ -1,3 +1,7 @@
+**Several Democratic senators refrained from full-throated endorsements of Biden.**\
+`By Catie Edmondson`\
+https://nytimes.com/live/2024/07/08/us/trump-biden-election/biden-senate-democrats-endorsements
+
 **Djokovic accuses Wimbledon crowd of 'disrespect' after advancing to quarterfinals**\
 `Novak Djokovic advanced to the quarterfinals of Wimbledon before taking aim at sections of the Centre Court crowd for what he called &#8220;disrespect&#8221; towards him during his match with Holger Rune.`\
 https://nytimes.com/athletic/5624917/2024/07/08/novak-djokovic-wimbledon-crowd-rune/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/08/us/politics/treasury-china-real-estate-biden.html
 **Tropical Storm Beryl Spawned a Symphony of Spawning Toads**\
 `As the storm crossed Houston on Monday morning, the call of the toads echoed from every flooded street corner.`\
 https://nytimes.com/2024/07/08/us/beryl-storm-houston-toads.html
-
-**Nadine Menendez’s trial was delayed so that she could be treated for cancer.**\
-`Nadine Menendez is charged along with her husband, Senator Robert Menendez, in a complex bribery scheme. She will undergo a mastectomy.`\
-https://nytimes.com/live/2024/07/08/nyregion/menendez-trial/nadine-menendezs-trial-was-delayed-so-that-she-could-be-treated-for-cancer
 
