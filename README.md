@@ -1,3 +1,7 @@
+**Parkinson’s Expert Visited the White House Eight Times in Eight Months**\
+`The White House has said that President Biden has no signs of the disease and that there has been no reason to update the most recent testing, conducted in February.`\
+https://nytimes.com/2024/07/08/us/politics/parkinsons-expert-white-house.html
+
 **Greenberg: DeMar DeRozan was great player on forgettable Bulls teams**\
 `DeRozan was a star and leader who helped the Bulls out of the muck and into the bottom tier of respectability. Where do they go from here?`\
 https://nytimes.com/athletic/5624070/2024/07/08/chicago-bulls-demar-derozan/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/08/realestate/home-sold-mortgage-college-tuition.htm
 **At Avignon Festival, Theater’s World Gets Wider**\
 `Under its new director, the event is shining a spotlight on countries and performers rarely represented on the biggest European stages.`\
 https://nytimes.com/2024/07/08/theater/avignon-festival-spanish.html
-
-**Capitals promote Chris Patrick to GM**\
-`Patrick becomes the seventh general manager in franchise history.`\
-https://nytimes.com/athletic/5624143/2024/07/08/capitals-chris-patrick-gm-brian-maclellan/
 
