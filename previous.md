@@ -1,3 +1,7 @@
+**Meet the Wimbledon contender who Mpetshi Perricard has aced the most - his best friend**\
+`Giovanni Mpetshi Perricard's serve is lethal but one player knows its secret: his best friend Arthur Fils, with him in Wimbledon's Ro16`\
+https://nytimes.com/athletic/5622427/2024/07/08/mpetshi-perricard-serve-wimbledon-aces-how-to-return/
+
 **France’s Leftist Coalition Surges, but Deadlock Looms**\
 `The New Popular Front outpaced the far-right National Rally during the second round of voting. But no party secured an absolute majority, leaving France with a hung Parliament.`\
 https://nytimes.com/video/world/europe/100000009559306/french-election-new-popular-front.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/08/learning/word-of-the-day-parched.html
 **What’s on TV This Week: ‘The Bachelorette’ and ‘Claim to Fame’**\
 `Jenn Tran hands out roses on ABC. Kevin and Franklin Jonas host a show with the relatives of stars.`\
 https://nytimes.com/2024/07/08/arts/television/whats-on-tv-this-week-the-bachelorette-and-claim-to-fame.html
-
-**Boeing Agrees to Plead Guilty to Felony in Deal With Justice Department**\
-`As part of the deal, stemming from fatal 737 Max crashes in 2018 and 2019, the company agreed to pay a fine of nearly half a billion dollars and strengthen its safety programs.`\
-https://nytimes.com/2024/07/08/business/boeing-justice-department-plea-deal.html
 
