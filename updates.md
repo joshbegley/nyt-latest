@@ -1,3 +1,7 @@
+**Lowetide: Making the final call on the Oilers' 2019 draft class**\
+`The Oilers' draft list from 2019 features three players who have reached the NHL, most notably Philip Broberg.`\
+https://nytimes.com/athletic/5622117/2024/07/08/edmonton-oilers-nhl-draft-2019-broberg/
+
 **Mapping How France Voted**\
 `No party secured an absolute majority in legislative elections on Sunday, leaving France headed for gridlock or political instability.`\
 https://nytimes.com/2024/07/08/world/europe/france-election-maps.html

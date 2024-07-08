@@ -1,3 +1,7 @@
+**Jalen Brunson is eligible for a contract extension, but should he re-sign or wait?**\
+`If Brunson signs now. he’d be giving New York financial flexibility in the future.`\
+https://nytimes.com/athletic/5623693/2024/07/08/jalen-brunson-knicks-contract-extension/
+
 **Lowetide: Making the final call on the Oilers' 2019 draft class**\
 `The Oilers' draft list from 2019 features three players who have reached the NHL, most notably Philip Broberg.`\
 https://nytimes.com/athletic/5622117/2024/07/08/edmonton-oilers-nhl-draft-2019-broberg/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/08/science/sharks-evolution-global-warming.html
 **Nottingham Forest reach agreement in principle to purchase freehold of City Ground land**\
 `Nottingham City Council have confirmed that an agreement in principle is in place for Nottingham Forest to purchase the freehold of the land the City Ground sits on.`\
 https://nytimes.com/athletic/5623796/2024/07/08/nottingham-forest-city-ground-buy-freehold/
-
-**With trade options dwindling, Pelicans' Brandon Ingram dilemma becomes harder to solve**\
-`The Pelicans need a center, and they need to resolve Brandon Ingram's long-term future. The longer they don't, the harder each becomes.`\
-https://nytimes.com/athletic/5623237/2024/07/08/brandon-ingram-trade-options-pelicans/
 
