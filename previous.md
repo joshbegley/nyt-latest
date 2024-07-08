@@ -1,3 +1,11 @@
+**The prosecutor described what he called a ‘clear pattern of corruption.’**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2024/07/08/nyregion/menendez-trial/the-prosecutor-described-what-he-called-a-clear-pattern-of-corruption
+
+**Olympics basketball odds: Does any team have a shot against the U.S.?**\
+`Of course both the American men and women are favored to win gold at the Olympics, but the odds show who the main contenders are.`\
+https://nytimes.com/athletic/5624693/2024/07/08/olympic-basketball-odds-team-usa/
+
 **NFL suspends Steelers CB Sutton for 8 games**\
 `Cameron Sutton turned himself into police in March after an arrest warrant was issued for charges of domestic battery by strangulation.`\
 https://nytimes.com/athletic/5624878/2024/07/08/cam-sutton-steelers-nfl-suspension/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/08/insider/a-week-of-extreme-weather-explained.html
 **Tuesday Briefing: What Comes Next for France**\
 `Plus, President Biden’s crucial week.`\
 https://nytimes.com/2024/07/08/briefing/france-election-whats-next.html
-
-**The Surgeon**\
-`A single image captures a day of horror at a children’s hospital in Ukraine hit by a Russian missile.`\
-https://nytimes.com/2024/07/08/world/europe/ohmatdyt-hospital-surgeon.html
-
-**Several Democratic senators refrained from full-throated endorsements of Biden.**\
-`By Catie Edmondson`\
-https://nytimes.com/live/2024/07/08/us/trump-biden-election/biden-senate-democrats-endorsements
 

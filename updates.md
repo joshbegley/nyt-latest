@@ -1,3 +1,11 @@
+**The prosecutor described what he called a ‘clear pattern of corruption.’**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2024/07/08/nyregion/menendez-trial/the-prosecutor-described-what-he-called-a-clear-pattern-of-corruption
+
+**Olympics basketball odds: Does any team have a shot against the U.S.?**\
+`Of course both the American men and women are favored to win gold at the Olympics, but the odds show who the main contenders are.`\
+https://nytimes.com/athletic/5624693/2024/07/08/olympic-basketball-odds-team-usa/
+
 **NFL suspends Steelers CB Sutton for 8 games**\
 `Cameron Sutton turned himself into police in March after an arrest warrant was issued for charges of domestic battery by strangulation.`\
 https://nytimes.com/athletic/5624878/2024/07/08/cam-sutton-steelers-nfl-suspension/
