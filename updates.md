@@ -1,3 +1,7 @@
+**White House Briefing Devolves Into Shouting Over Questions About Biden’s Health**\
+`Karine Jean-Pierre, the press secretary, refused to answer questions about whether visits to the White House by a Parkinson’s doctor were about the president.`\
+https://nytimes.com/2024/07/08/us/politics/white-house-briefing-shouting.html
+
 **This year, the biggest American stars at Wimbledon are happiest under the radar**\
 `In the most successful Wimbledon for American tennis players in 20 years, it's the under-the-radar players making headlines`\
 https://nytimes.com/athletic/5624751/2024/07/08/wimbledon-american-tennis-players-record/
