@@ -1,3 +1,7 @@
+**5,000 Miles, 8 Countries: The Path to the U.S. Through One Family’s Eyes**\
+`With three children and a dog, the Aguilar Ortega family trekked through the jungle, hopped freight trains and toured Times Square. Significant challenges still lay ahead.`\
+https://nytimes.com/interactive/2024/07/08/nyregion/immigration-us-border-family.html
+
 **Boeing Struck a Deal With the Justice Department. What Comes Next?**\
 `The plane manufacturer must still resolve various legal challenges and operational problems tied to the troubled 737 Max plane.`\
 https://nytimes.com/2024/07/08/business/boeing-plea-deal-737-max.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/08/movies/alec-baldwin-rust-trial.html
 **Jill Biden Says She Is ‘All In’ on Husband’s Re-election Bid**\
 `During a speech in North Carolina, Jill Biden said that she supports President Biden.`\
 https://nytimes.com/video/us/elections/100000009560505/jill-biden-campaign-trail.html
-
-**Until Saturday: CFB's greatest video game team ever**\
-`Welcome to Until Saturday, the five-star college football newsletter.`\
-https://nytimes.com/athletic/5624824/2024/07/08/ea-sports-cfb-video-game-west-virginia-until-saturday/
 
