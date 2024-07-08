@@ -1,3 +1,7 @@
+**Boeing Agrees to Plead Guilty to Felony in Deal With Justice Department**\
+`As part of the deal, stemming from fatal 737 Max crashes in 2018 and 2019, the company agreed to pay a fine of nearly half a billion dollars and strengthen its safety programs.`\
+https://nytimes.com/2024/07/08/business/boeing-justice-department-plea-deal.html
+
 **Monday Briefing**\
 `The left surges in French elections.`\
 https://nytimes.com/2024/07/08/briefing/france-elections-israel-protests-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/08/world/middleeast/hajj-unregistered-pilgrims-heat-
 **5 Takeaways From France’s Snap Election**\
 `It was a day of big surprises in France, with the left surging unexpectedly, the far right falling far short of expectations and the question of who will be the next prime minister still unclear.`\
 https://nytimes.com/2024/07/08/world/europe/france-election-key-takeaways.html
-
-**The Yen Is Plunging. So Is Japan’s Defense Budget.**\
-`Japan is struggling to fund plans that would significantly bolster its military readiness amid rising regional threats.`\
-https://nytimes.com/2024/07/08/business/japan-yen-defense-spending.html
 
