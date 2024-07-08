@@ -1,3 +1,19 @@
+**He Helped a Woman End Her Own Life. Was It Manslaughter, or Mercy?**\
+`They checked into a motel room in upstate New York, with a gas canister and a plan to end her decades of physical pain.`\
+https://nytimes.com/2024/07/08/nyregion/assisted-suicide-kingston.html
+
+**Closing Arguments in Menendez Bribery Case Set to Begin**\
+`Jurors have heard nearly two months of testimony in the case of Senator Robert Menendez of New Jersey, who is accused of bribery and corruption.`\
+https://nytimes.com/2024/07/08/nyregion/robert-menendez-closing-arguments-bribery.html
+
+**Why Some of New York’s Snazziest Dining Sheds Are Headed for the Dumps**\
+`Soon, dining sheds around the city will be dismantled — no matter how attractive they are.`\
+https://nytimes.com/2024/07/08/nyregion/street-wars-dining-sheds-new-york.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/08/crosswords/spelling-bee-forum.html
+
 **Three Giants takeaways: Austin Slater traded to Reds for lefty reliever**\
 `The move brings an end to a long-standing platoon between Slater, who never found a groove at the plate this season, and Mike Yastrzemski.`\
 https://nytimes.com/athletic/5623170/2024/07/08/giants-takeaways-austin-slater-traded/
