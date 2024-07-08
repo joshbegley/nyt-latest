@@ -1,3 +1,15 @@
+**Columbia Removes Three Deans, Saying Texts Touched on ‘Antisemitic Tropes’**\
+`Nemat Shafik, the university president, called the sentiments in the text messages as “unacceptable and deeply upsetting.”`\
+https://nytimes.com/2024/07/08/nyregion/columbia-university-deans-antisemitism.html
+
+**Deegan, NASCAR's lone female racer, parting ways with team**\
+`Deegan was removed from her car before Saturday’s Xfinity race on the streets of Chicago in favor of two-time NASCAR champion Joey Logano.`\
+https://nytimes.com/athletic/5623954/2024/07/08/hailie-deegan-nascar-am-racing-parting-ways/
+
+**The Bounce: Why the Kings swung for a big name to wrap NBA free agency.**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5623648/2024/07/08/kings-demar-derozan-nba-free-agency-olympics-the-bounce/
+
 **U.S. Creates High-Tech Global Supply Chains to Blunt Risks Tied to China**\
 `The Biden administration is trying to get foreign companies to invest in chip-making in the United States and more countries to set up factories to do final assembly and packaging.`\
 https://nytimes.com/2024/07/08/us/politics/supply-chain-china-tech.html
