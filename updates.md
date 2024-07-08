@@ -1,3 +1,7 @@
+**De la Fuente refuses to join criticism of 'boring' France: 'It's all about winning'**\
+`Spain head coach Luis de la Fuente refused to join the criticism of France&#8217;s style of play and acknowledged that at this stage of Euro 2024 &#8220;it is all about winning&#8221; ahead of their much-anticipated semi-final.`\
+https://nytimes.com/athletic/5624727/2024/07/08/spain-france-de-la-fuente-boring/
+
 **The Cheerleader Trap**\
 `A new documentary about the young women who dance for The Dallas Cowboys illuminates the deep contradictions at the heart of the profitable franchise.`\
 https://nytimes.com/2024/07/08/style/dallas-cowboys-cheerleaders-documentary.html

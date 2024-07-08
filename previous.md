@@ -1,3 +1,7 @@
+**De la Fuente refuses to join criticism of 'boring' France: 'It's all about winning'**\
+`Spain head coach Luis de la Fuente refused to join the criticism of France&#8217;s style of play and acknowledged that at this stage of Euro 2024 &#8220;it is all about winning&#8221; ahead of their much-anticipated semi-final.`\
+https://nytimes.com/athletic/5624727/2024/07/08/spain-france-de-la-fuente-boring/
+
 **The Cheerleader Trap**\
 `A new documentary about the young women who dance for The Dallas Cowboys illuminates the deep contradictions at the heart of the profitable franchise.`\
 https://nytimes.com/2024/07/08/style/dallas-cowboys-cheerleaders-documentary.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/08/nyregion/menendez-trial/this-is-the-second-t
 **'That was luck': Breaking down Sinner's ridiculous tweener against Ben Shelton**\
 `Jannik Sinner's tweener against Ben Shelton wasn't just a trickshot — it was an incredible feat of decision-making and execution`\
 https://nytimes.com/athletic/5624313/2024/07/08/jannik-sinner-tweener-ben-shelton-wimbledon-tennis-trickshot/
-
-**Euro 2024 semifinal, champion odds: Spain emerges as new favorite ahead of England**\
-`Spain is the new favorite to win Euro 2024 ahead of the semifinals. The Spaniards replaced England in the top spot in the odds.`\
-https://nytimes.com/athletic/5624242/2024/07/08/euro-2024-semifinal-odds-spain-england-france-netherlands/
 
