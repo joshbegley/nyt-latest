@@ -1,6 +1,14 @@
-**Biden tells members of Congress he is ‘firmly committed’ to staying in the race.**\
-`By Michael D. Shear`\
-https://nytimes.com/live/2024/07/08/us/trump-biden-election/biden-tells-members-of-congress-he-is-firmly-committed-to-staying-in-the-race
+**As some allies whisper about ditching Biden, Black Democrats are rallying around him.**\
+`By Robert Jimison`\
+https://nytimes.com/live/2024/07/08/us/trump-biden-election/as-some-allies-whisper-about-ditching-biden-black-democrats-are-rallying-around-him
+
+**Read Biden’s Letter to Congressional Democrats**\
+`“I am firmly committed to staying in this race, to running this race to the end, and to beating Donald Trump.”`\
+https://nytimes.com/interactive/2024/07/08/us/president-biden-letter-to-congressional-democrats-78.html
+
+**Biden Tells Members of Congress He is ‘Firmly Committed’ to Staying in the Race**\
+`The letter comes just a day after five senior House Democrats said during a private conference call that they believe President Biden must step down from the race.`\
+https://nytimes.com/2024/07/08/us/politics/biden-letter-congress.html
 
 **Where the Heat Wave Broke Records in California**\
 `In many places, a scorching Independence Day led into an even hotter weekend.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/08/sports/olympics/andy-macdonald-olympics.html
 **Canada's Stephen Eustaquio finds purpose in Copa America after his parents' tragic deaths**\
 `The Canada vice-captain will have a sense of perspective - even ahead of the biggest game of his career `\
 https://nytimes.com/athletic/5622440/2024/07/08/canada-stephen-eustaquio-copa-america/
-
-**Greenwood reports to United to discuss Old Trafford exit**\
-`Mason Greenwood reported to Manchester United&#8217;s training ground on Monday morning to continue talks over an exit from Old Trafford.`\
-https://nytimes.com/athletic/5623368/2024/07/08/mason-greenwood-man-utd-exit/
-
-**U.S. names men's soccer roster for Olympics**\
-`The U.S. men's Olympic soccer team will first play France on July 24 — two days before the Opening Ceremony — at Stade de Marseille.`\
-https://nytimes.com/athletic/5623059/2024/07/08/us-mens-soccer-roster-paris-olympics/
 
