@@ -1,3 +1,11 @@
+**Heated Exchange Over Biden’s Health at White House Briefing**\
+`Karine Jean-Pierre, the White House press secretary, refused to speak about several visits to the White House by a neurologist from Walter Reed National Military Medical Center.`\
+https://nytimes.com/video/us/politics/100000009560879/biden-health-neurologist.html
+
+**Scaloni calls for European teams to play in Copa America**\
+`Argentina head coach Lionel Scaloni would like to see European Championship teams eventually participate in the Copa America and vice versa.`\
+https://nytimes.com/athletic/5625125/2024/07/08/copa-america-european-teams-scaloni/
+
 **The prosecutor described what he called a ‘clear pattern of corruption.’**\
 `By Nicholas Fandos`\
 https://nytimes.com/live/2024/07/08/nyregion/menendez-trial/the-prosecutor-described-what-he-called-a-clear-pattern-of-corruption
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5565008/2024/07/08/manchester-united-jarrad-branthw
 **Ivan Taylor, son of Ike Taylor, flips to Michigan from Notre Dame**\
 `Taylor, a top-60 safety and the son of former Pittsburgh Steelers DB Ike Taylor, switched his commitment to Michigan on Monday. `\
 https://nytimes.com/athletic/5624462/2024/07/08/ivan-taylor-michigan-notre-dame-flip/
-
-**A Week of Extreme Weather, Explained**\
-`July has brought a record-breaking hurricane, early-season wildfires and triple-digit temperatures. Judson Jones, a meteorologist and reporter, cleared up the connections between the events.`\
-https://nytimes.com/2024/07/08/insider/a-week-of-extreme-weather-explained.html
-
-**Tuesday Briefing: What Comes Next for France**\
-`Plus, President Biden’s crucial week.`\
-https://nytimes.com/2024/07/08/briefing/france-election-whats-next.html
 

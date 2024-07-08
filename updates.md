@@ -1,3 +1,11 @@
+**Heated Exchange Over Biden’s Health at White House Briefing**\
+`Karine Jean-Pierre, the White House press secretary, refused to speak about several visits to the White House by a neurologist from Walter Reed National Military Medical Center.`\
+https://nytimes.com/video/us/politics/100000009560879/biden-health-neurologist.html
+
+**Scaloni calls for European teams to play in Copa America**\
+`Argentina head coach Lionel Scaloni would like to see European Championship teams eventually participate in the Copa America and vice versa.`\
+https://nytimes.com/athletic/5625125/2024/07/08/copa-america-european-teams-scaloni/
+
 **The prosecutor described what he called a ‘clear pattern of corruption.’**\
 `By Nicholas Fandos`\
 https://nytimes.com/live/2024/07/08/nyregion/menendez-trial/the-prosecutor-described-what-he-called-a-clear-pattern-of-corruption
