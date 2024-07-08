@@ -1,3 +1,7 @@
+**2 Russian Women Found Guilty of ‘Justifying Terrorism’ for Their Play**\
+`The women were sentenced to six years in prison, a stark indication of the increasing suppression of free speech since Russia’s attack on Ukraine, their lawyers and critics say.`\
+https://nytimes.com/2024/07/08/world/europe/russia-playwright-director-terrorism-guilty.html
+
 **Who’s Running Against Mayor Adams? The Answer May Shape Other Key Races.**\
 `New York City officials, including the comptroller, Brad Lander, are weighing whether to challenge Eric Adams, potentially creating openings in other races.`\
 https://nytimes.com/2024/07/08/nyregion/adams-lander-mayor-election.html

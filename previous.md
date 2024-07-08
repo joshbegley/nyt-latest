@@ -1,3 +1,7 @@
+**2 Russian Women Found Guilty of ‘Justifying Terrorism’ for Their Play**\
+`The women were sentenced to six years in prison, a stark indication of the increasing suppression of free speech since Russia’s attack on Ukraine, their lawyers and critics say.`\
+https://nytimes.com/2024/07/08/world/europe/russia-playwright-director-terrorism-guilty.html
+
 **Who’s Running Against Mayor Adams? The Answer May Shape Other Key Races.**\
 `New York City officials, including the comptroller, Brad Lander, are weighing whether to challenge Eric Adams, potentially creating openings in other races.`\
 https://nytimes.com/2024/07/08/nyregion/adams-lander-mayor-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/08/us/politics/parkinsons-expert-white-house.html
 **Mbappe still adjusting to impact of mask - Deschamps**\
 `France manager Didier Deschamps says Kylian Mbappe is still adjusting to the impact that wearing a mask has on his vision.`\
 https://nytimes.com/athletic/5624219/2024/07/08/kylian-mbappe-mask-france/
-
-**Greenberg: DeMar DeRozan was great player on forgettable Bulls teams**\
-`DeRozan was a star and leader who helped the Bulls out of the muck and into the bottom tier of respectability. Where do they go from here?`\
-https://nytimes.com/athletic/5624070/2024/07/08/chicago-bulls-demar-derozan/
 
