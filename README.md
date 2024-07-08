@@ -1,5 +1,9 @@
+**The Second-Worst Decision Democrats Could Make Right Now**\
+`To argue against Kamala Harris is not inherently racist or sexist.`\
+https://nytimes.com/live/2024/07/02/opinion/thepoint/kamala-harris-democratic-nominee
+
 **2 Russian Women Found Guilty of ‘Justifying Terrorism’ for Their Play**\
-`The women were sentenced to six years in prison, a stark indication of the increasing suppression of free speech since Russia’s attack on Ukraine, their lawyers and critics say.`\
+`The theater director and playwright were sentenced to six years in prison, a stark indication of the increasing suppression of free speech since Russia’s attack on Ukraine, their lawyers and critics say.`\
 https://nytimes.com/2024/07/08/world/europe/russia-playwright-director-terrorism-guilty.html
 
 **Who’s Running Against Mayor Adams? The Answer May Shape Other Key Races.**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5620099/2024/07/08/mats-wieffer-to-brighton-transfe
 **Parkinson’s Expert Visited the White House Eight Times in Eight Months**\
 `The White House said President Biden had met with a neurologist only three times in more than three years in office. But it would not say whether the visiting expert was consulting with the president’s physician about his health.`\
 https://nytimes.com/2024/07/08/us/politics/parkinsons-expert-white-house.html
-
-**Deschamps: Mbappe is in the right headspace**\
-`France manager Didier Deschamps insists Kylian Mbappe is &#8220;in the right headspace&#8221; to play in the European Championship semi-final against Spain on Tuesday.`\
-https://nytimes.com/athletic/5624219/2024/07/08/kylian-mbappe-mask-france/
 
