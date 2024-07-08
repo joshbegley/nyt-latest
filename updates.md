@@ -1,3 +1,7 @@
+**Justice Amy Coney Barrett’s Independent Streak Marked Supreme Court Term**\
+`The junior member of the court’s six-justice conservative supermajority often questioned its approach and wrote important dissents joined by liberal justices.`\
+https://nytimes.com/2024/07/08/us/politics/amy-coney-barrett-supreme-court-justice.html
+
 **Columbia Removes Three Deans, Saying Texts Touched on ‘Antisemitic Tropes’**\
 `Nemat Shafik, the university president, called the sentiments in the text messages “unacceptable and deeply upsetting.”`\
 https://nytimes.com/2024/07/08/nyregion/columbia-university-deans-antisemitism.html
