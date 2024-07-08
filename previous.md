@@ -1,3 +1,11 @@
+**A crucial week for Biden as NATO visits Washington.**\
+`By Michael D. Shear and Maggie Astor`\
+https://nytimes.com/live/2024/07/08/us/trump-biden-election/a-crucial-week-for-biden-as-nato-visits-washington
+
+**Live Election Updates: Biden Faces Eroding Support in House With Crucial Week Looming**\
+`High-ranking Democrats in the House privately told colleagues that President Biden should end his campaign, as support for Mr. Biden appeared to slip ahead of a key week of campaigning.`\
+https://nytimes.com/live/2024/07/08/us/trump-biden-election
+
 **Tigers lefty Tarik Skubal's journey from operating table uncertainty to All-Star ferocity**\
 `Since July 4, 2023, Skubal has been, statistically, the best starting pitcher in all of baseball.`\
 https://nytimes.com/athletic/5622374/2024/07/08/tarik-skubal-all-star-game-tigers-pitcher/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/08/us/politics/biden-trump-strategy.html
 **After big payday, can Rhamondre Stevenson prove he's a top-10 running back?**\
 `The Patriots gave Stevenson a big-money extension, which was a bit surprising for a 26-year-old RB. Can he back it up this season?`\
 https://nytimes.com/athletic/5587661/2024/07/08/rhamondre-stevenson-patriots-contract/
-
-**Are You Ever Too Old for a Bikini?**\
-`Worried about coming off as an exhibitionist at her daughter’s beach wedding, a reader wonders whether there is an age cutoff for wearing a two-piece.`\
-https://nytimes.com/2024/07/08/style/swimsuit-age-bikini.html
-
-**In the Subway, Empty Storefronts and Struggling Businesses**\
-`Remote work and online shopping have hurt retailers who occupy space leased by the Metropolitan Transportation Authority.`\
-https://nytimes.com/2024/07/08/nyregion/in-the-subway-empty-storefronts-and-struggling-businesses.html
 

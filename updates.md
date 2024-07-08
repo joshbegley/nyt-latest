@@ -1,3 +1,11 @@
+**A crucial week for Biden as NATO visits Washington.**\
+`By Michael D. Shear and Maggie Astor`\
+https://nytimes.com/live/2024/07/08/us/trump-biden-election/a-crucial-week-for-biden-as-nato-visits-washington
+
+**Live Election Updates: Biden Faces Eroding Support in House With Crucial Week Looming**\
+`High-ranking Democrats in the House privately told colleagues that President Biden should end his campaign, as support for Mr. Biden appeared to slip ahead of a key week of campaigning.`\
+https://nytimes.com/live/2024/07/08/us/trump-biden-election
+
 **Tigers lefty Tarik Skubal's journey from operating table uncertainty to All-Star ferocity**\
 `Since July 4, 2023, Skubal has been, statistically, the best starting pitcher in all of baseball.`\
 https://nytimes.com/athletic/5622374/2024/07/08/tarik-skubal-all-star-game-tigers-pitcher/
