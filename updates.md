@@ -1,3 +1,7 @@
+**Power failures from hurricanes are projected to increase 50% in coming decades.**\
+`By Austyn Gaffney`\
+https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/hurricane-power-outages
+
 **Power outages from hurricanes projected to increase 50% in coming decades**\
 `By Austyn Gaffney`\
 https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/hurricane-power-outages
