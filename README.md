@@ -1,3 +1,7 @@
+**Children With Autism Carry Unique Gut Flora, Study Finds**\
+`The research, which builds on previous work, eventually may lead to a more objective diagnostic tool, scientists said.`\
+https://nytimes.com/2024/07/08/health/autism-gut-microbiome.html
+
 **Heat Wave in Western U.S. Sets Records, While Another Roasts the East**\
 `Temperature records have been shattered from California and Nevada to North Carolina in the last few days, and relief is still days away, forecasters say.`\
 https://nytimes.com/2024/07/08/us/western-heat-wave-records.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5623446/2024/07/08/france-politics-election-euros/
 **What Primary Voters Didn’t Know About President Biden**\
 `Many of his supporters are now angry they weren’t aware of his condition.`\
 https://nytimes.com/live/2024/07/02/opinion/thepoint/primary-voters-biden
-
-**Power failures from hurricanes are projected to increase 50% in coming decades.**\
-`By Austyn Gaffney`\
-https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/hurricane-power-outages
 
