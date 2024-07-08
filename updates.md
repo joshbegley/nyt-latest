@@ -1,3 +1,7 @@
+**Biden tells members of Congress he is ‘firmly committed’ to staying in the race.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/07/08/us/trump-biden-election/biden-tells-members-of-congress-he-is-firmly-committed-to-staying-in-the-race
+
 **Where the Heat Wave Broke Records in California**\
 `In many places, a scorching Independence Day led into an even hotter weekend.`\
 https://nytimes.com/2024/07/08/us/heat-wave-broke-records-california.html

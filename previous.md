@@ -1,3 +1,7 @@
+**Biden tells members of Congress he is ‘firmly committed’ to staying in the race.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/07/08/us/trump-biden-election/biden-tells-members-of-congress-he-is-firmly-committed-to-staying-in-the-race
+
 **Where the Heat Wave Broke Records in California**\
 `In many places, a scorching Independence Day led into an even hotter weekend.`\
 https://nytimes.com/2024/07/08/us/heat-wave-broke-records-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5623368/2024/07/08/mason-greenwood-man-utd-exit/
 **U.S. names men's soccer roster for Olympics**\
 `The U.S. men's Olympic soccer team will first play France on July 24 — two days before the Opening Ceremony — at Stade de Marseille.`\
 https://nytimes.com/athletic/5623059/2024/07/08/us-mens-soccer-roster-paris-olympics/
-
-**Michael Olise to Bayern Munich: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate Michael Olise's move to Bayern Munich`\
-https://nytimes.com/athletic/5616228/2024/07/08/michael-olise-to-bayern-munich-the-athletic-500-transfer-ratings/
 
