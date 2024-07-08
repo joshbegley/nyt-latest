@@ -1,3 +1,7 @@
+**Arsenal, their academy and why young players are rarely getting a first-team chance**\
+`Arsenal had a poor record of exposing their young players to first-team football last season. Is it going to change in 2024-25?`\
+https://nytimes.com/athletic/5596080/2024/07/08/arsenal-academy-players-chances/
+
 **Word of the Day: parched**\
 `This word has appeared in 83 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/07/08/learning/word-of-the-day-parched.html
