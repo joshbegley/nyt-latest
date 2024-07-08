@@ -30,7 +30,7 @@ https://nytimes.com/athletic/5623237/2024/07/08/brandon-ingram-trade-options-pel
 `Sam Anderson, the host and reporter behind the podcast “Animal” for The New York Times Magazine, went on a journey to Mexico to conquer his fear of bats.`\
 https://nytimes.com/video/podcasts/100000009553674/how-our-reporter-learned-to-love-bats.html
 
-**Steph Curry opens up on Klay Thompson's departure: 'I just want him to be happy'**\
+**Steph Curry opens up on Klay Thompson's difficult Warriors departure: 'I just want him to be happy'**\
 `Curry gives his thoughts on the end of the "Splash Brothers" era for the Warriors and the "rough" phone call he had with Thompson.`\
 https://nytimes.com/athletic/5623130/2024/07/08/steph-curry-klay-thompson-interview/
 
