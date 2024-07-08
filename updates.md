@@ -1,3 +1,19 @@
+**The Supreme Court Is Not Done Remaking America**\
+`Some of the rulings that came before the justices’ decision on presidential immunity could prove to have just as big an impact.`\
+https://nytimes.com/2024/07/08/podcasts/the-daily/supreme-court-term.html
+
+**Biden Campaign Ad Targets Trump on Abortion**\
+`After President Biden’s rocky answer on abortion at the debate, his campaign has ramped up its messaging on Donald Trump’s role in overturning Roe v. Wade and his policy stances.`\
+https://nytimes.com/2024/07/08/us/politics/biden-trump-abortion-ad.html
+
+**The Connections Companion No. 394, July 9, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/08/crosswords/connections-companion-394.html
+
+**Wordle Review No. 1,116, July 9, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/08/crosswords/wordle-review-1116.html
+
 **The Track Star Knew He Was Gay. Now Everyone Else Does.**\
 `Trey Cunningham said friends and peers reacted to his decision to come out with a shrug. He wishes the same was true for other men in elite sports.`\
 https://nytimes.com/2024/07/08/world/americas/trey-cunningham.html

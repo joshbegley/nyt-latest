@@ -1,3 +1,19 @@
+**The Supreme Court Is Not Done Remaking America**\
+`Some of the rulings that came before the justices’ decision on presidential immunity could prove to have just as big an impact.`\
+https://nytimes.com/2024/07/08/podcasts/the-daily/supreme-court-term.html
+
+**Biden Campaign Ad Targets Trump on Abortion**\
+`After President Biden’s rocky answer on abortion at the debate, his campaign has ramped up its messaging on Donald Trump’s role in overturning Roe v. Wade and his policy stances.`\
+https://nytimes.com/2024/07/08/us/politics/biden-trump-abortion-ad.html
+
+**The Connections Companion No. 394, July 9, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/08/crosswords/connections-companion-394.html
+
+**Wordle Review No. 1,116, July 9, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/08/crosswords/wordle-review-1116.html
+
 **The Track Star Knew He Was Gay. Now Everyone Else Does.**\
 `Trey Cunningham said friends and peers reacted to his decision to come out with a shrug. He wishes the same was true for other men in elite sports.`\
 https://nytimes.com/2024/07/08/world/americas/trey-cunningham.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5622020/2024/07/08/england-netherlands-ref-felix-zw
 **WNBA power rankings: A rivalry is budding between Aces and Sparks. Will it take hold?**\
 `Will Angel Reese and Caitlin Clark — the league's two highest-profile rookies — thrive in the All-Star Game? `\
 https://nytimes.com/athletic/5623065/2024/07/08/wnba-power-rankings-caitlin-clark-angel-reese-all-star/
-
-**College Football 25: Revisiting the dominance that made West Virginia a cheat code**\
-`“I will get introduced to people who will say, ‘You’re Pat White from the video game!’” the former WVU star quarterback said.`\
-https://nytimes.com/athletic/5622408/2024/07/08/college-football-25-west-virginia-top-teams/
-
-**The Big Decisions Facing Trump and Biden This Week**\
-`It’s what politicians tell Biden publicly that counts.`\
-https://nytimes.com/live/2024/07/02/opinion/thepoint/tipsheet-biden-trump
-
-**The Presidential Fitness Test Is Back**\
-`This time with actual presidents.`\
-https://nytimes.com/2024/07/08/opinion/biden-harris-trump.html
-
-**Biden’s Strategy to Make the Race About Trump Is Suddenly in Doubt**\
-`The Biden campaign’s effort to raise questions about Donald J. Trump’s ability to be president has boomeranged into a referendum on the president’s own competence.`\
-https://nytimes.com/2024/07/08/us/politics/biden-trump-strategy.html
 
