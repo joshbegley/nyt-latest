@@ -10,9 +10,9 @@ https://nytimes.com/2024/07/08/nyregion/robert-menendez-bribery-trial-closing-ar
 `Emma Hayes has clarified the rules over Olympic roster alternates, telling media on Monday that players replaced by an alternate can return to the core 18-player group.`\
 https://nytimes.com/athletic/5625281/2024/07/08/uswnt-roster-rules-olympic-games/
 
-**Facing lengthy repairs, a major utility considers mobile generators for key sites.**\
-`CenterPoint Energy said more than two million customers lost power in the storm, and that the hardest hit should prepare for an extended period without electricity.`\
-https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/facing-lengthy-repairs-a-major-utility-considers-mobile-generators-for-key-sites
+**Texas Utility Considers Mobile Generators as Beryl Leaves Millions Without Power**\
+`CenterPoint Energy said more than two million customers lost power in the storm, and that those in the hardest-hit areas should prepare for an extended period without electricity.`\
+https://nytimes.com/2024/07/07/us/houston-texas-power-beryl-storm.html
 
 **How Biden Is Leveraging His Defiance to Try to Stem Democratic Defections**\
 `In private and in public, President Biden made clear he holds all the cards when determining his political future. Can he get his Democratic critics to fold?`\

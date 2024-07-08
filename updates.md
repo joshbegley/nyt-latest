@@ -1,3 +1,7 @@
+**Texas Utility Considers Mobile Generators as Beryl Leaves Millions Without Power**\
+`CenterPoint Energy said more than two million customers lost power in the storm, and that those in the hardest-hit areas should prepare for an extended period without electricity.`\
+https://nytimes.com/2024/07/07/us/houston-texas-power-beryl-storm.html
+
 **Team USA raves about Cooper Flagg: 'Unbelievable'**\
 `Flagg is an incoming freshman at Duke and an early favorite as the No. 1 pick of the 2025 NBA Draft.`\
 https://nytimes.com/athletic/5625267/2024/07/08/cooper-flagg-usa-olympic-training-camp/
