@@ -10,6 +10,10 @@ https://nytimes.com/athletic/5620099/2024/07/08/mats-wieffer-to-brighton-transfe
 `The White House has said that President Biden has no signs of the disease and that there has been no reason to update the most recent testing, conducted in February.`\
 https://nytimes.com/2024/07/08/us/politics/parkinsons-expert-white-house.html
 
+**Mbappe still adjusting to impact of mask - Deschamps**\
+`France manager Didier Deschamps says Kylian Mbappe is still adjusting to the impact that wearing a mask has on his vision.`\
+https://nytimes.com/athletic/5624219/2024/07/08/kylian-mbappe-mask-france/
+
 **Greenberg: DeMar DeRozan was great player on forgettable Bulls teams**\
 `DeRozan was a star and leader who helped the Bulls out of the muck and into the bottom tier of respectability. Where do they go from here?`\
 https://nytimes.com/athletic/5624070/2024/07/08/chicago-bulls-demar-derozan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5623653/2024/07/08/nascar-chicago-street-race-futur
 **Canucks 2024 offseason moves: Where are they better? Where are they worse?**\
 `Breaking down where and how the Canucks have improved their roster using Dom Luszczyszyn’s Net Rating model.`\
 https://nytimes.com/athletic/5615939/2024/07/08/canucks-2024-offseason-moves/
-
-**Bukayo Saka's is not a redemption story. He had nothing to redeem**\
-`A penalty that was presented as a chance to exorcise demons carried with it the threat of renewed mockery and hatred`\
-https://nytimes.com/athletic/5621596/2024/07/08/saka-penalty-nothing-to-redeem/
 
