@@ -1,3 +1,7 @@
+**Where Beryl Is Expected to Go Next**\
+`The storm will move through the United States this week.`\
+https://nytimes.com/2024/07/08/weather/where-beryl-goes-next-forecast.html
+
 **The Athletic FC: Details behind England penalty win; USMNT does not have 'golden generation'**\
 `Today in The Athletic FC: Analysing details of England's shootout win, the USMNT's 'golden generation myth', and when is it time to retire?`\
 https://nytimes.com/athletic/5623313/2024/07/08/the-athletic-fc-england-penalty-win-usmnt-golden-generation-myth/
