@@ -1,3 +1,7 @@
+**Maresca to introduce 'right mentality and culture' at Chelsea**\
+`Enzo Maresca says his priority is to create the &#8220;right mentality and culture&#8221; as he begins his stint as Chelsea head coach.`\
+https://nytimes.com/athletic/5623311/2024/07/08/enzo-maresca-chelsea-first-interview/
+
 **Russia Destroys Children’s Hospital in Deadly Barrage Across Ukraine**\
 `President Volodymyr Zelensky said Russia had launched at least 40 missiles at targets across Ukraine, and he condemned the strike on the country’s largest children’s hospital.`\
 https://nytimes.com/2024/07/08/world/europe/russia-ukraine-missile-strikes-childrens-hospital.html
