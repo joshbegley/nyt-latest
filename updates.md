@@ -1,3 +1,15 @@
+**Power outages from hurricanes projected to increase 50% in coming decades**\
+`By Austyn Gaffney`\
+https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/hurricane-power-outages
+
+**Svitolina wears black ribbon during Wimbledon match after missile strike in Ukraine**\
+`Elina Svitolina wore a black ribbon during her Wimbledon last-16 match against Wang Xiyu, after Russian missile strikes killed and injured more than 100 Ukrainians across the country this morning.`\
+https://nytimes.com/athletic/5624030/2024/07/08/elina-svitolina-wimbledon-ukraine/
+
+**Trump Presses G.O.P. for Platform Draft That Softens Stance on Abortion**\
+`The document reflects the former president’s ideological grip on his party, outlining the same nationalistic priorities that his campaign website does.`\
+https://nytimes.com/2024/07/08/us/politics/trump-abortion-gop.html
+
 **Alex Bowman, after Chicago Street Race win, can finally enjoy that bourbon**\
 `Alex Bowman has a celebratory bottle on his counter at home that's been waiting a long time to be opened. Now, he finally gets to crack it.`\
 https://nytimes.com/athletic/5623869/2024/07/08/alex-bowman-chicago-street-race-nascar-bourbon/

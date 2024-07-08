@@ -1,3 +1,15 @@
+**Power outages from hurricanes projected to increase 50% in coming decades**\
+`By Austyn Gaffney`\
+https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/hurricane-power-outages
+
+**Svitolina wears black ribbon during Wimbledon match after missile strike in Ukraine**\
+`Elina Svitolina wore a black ribbon during her Wimbledon last-16 match against Wang Xiyu, after Russian missile strikes killed and injured more than 100 Ukrainians across the country this morning.`\
+https://nytimes.com/athletic/5624030/2024/07/08/elina-svitolina-wimbledon-ukraine/
+
+**Trump Presses G.O.P. for Platform Draft That Softens Stance on Abortion**\
+`The document reflects the former president’s ideological grip on his party, outlining the same nationalistic priorities that his campaign website does.`\
+https://nytimes.com/2024/07/08/us/politics/trump-abortion-gop.html
+
 **Alex Bowman, after Chicago Street Race win, can finally enjoy that bourbon**\
 `Alex Bowman has a celebratory bottle on his counter at home that's been waiting a long time to be opened. Now, he finally gets to crack it.`\
 https://nytimes.com/athletic/5623869/2024/07/08/alex-bowman-chicago-street-race-nascar-bourbon/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5623348/2024/07/08/wrexham-academy-grading-category
 **Every High School Student Can Save a Life**\
 `We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Alexander Klee, age 16.`\
 https://nytimes.com/2024/07/08/learning/every-high-school-student-can-save-a-life.html
-
-**How the Flames radically changed their defensive prospect pool**\
-`The Flames have added seven defensive prospects over the past year through the draft and trades.`\
-https://nytimes.com/athletic/5622960/2024/07/08/flames-prospects-parekh-brzustewicz-mews-jurmo/
-
-**San Francisco Giants week in review: Heliot Ramos broke a curse, but there are others to break**\
-`Ramos' All-Star nod ends the Curse of Chili, but he could end another drought All-Star weekend. Plus, a salute to Austin Slater, Good Giant.`\
-https://nytimes.com/athletic/5622909/2024/07/08/sf-giants-weekly-review-heliot-ramos-all-star/
-
-**Cold Noodles With Zucchini Because Yikes, This Heat**\
-`The secret ingredient is ice, which quickly cools the noodles and makes the sauce brothy and cold enough to freshen a July evening.`\
-https://nytimes.com/2024/07/08/dining/zucchini-cold-noodles-recipe.html
 
