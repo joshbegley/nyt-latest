@@ -1,3 +1,7 @@
+**Oil and gas companies in Texas brace for the storm.**\
+`Shell, Exxon Mobil and Citgo temporarily reduced oil production and refining in the Gulf of Mexico.`\
+https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/oil-and-gas-companies-in-texas-brace-for-the-storm
+
 **Meet the Wimbledon contender who Mpetshi Perricard has aced the most - his best friend**\
 `Giovanni Mpetshi Perricard's serve is lethal but one player knows its secret: his best friend Arthur Fils, with him in Wimbledon's Ro16`\
 https://nytimes.com/athletic/5622427/2024/07/08/mpetshi-perricard-serve-wimbledon-aces-how-to-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5623170/2024/07/08/giants-takeaways-austin-slater-t
 **Word of the Day: parched**\
 `This word has appeared in 83 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/07/08/learning/word-of-the-day-parched.html
-
-**What’s on TV This Week: ‘The Bachelorette’ and ‘Claim to Fame’**\
-`Jenn Tran hands out roses on ABC. Kevin and Franklin Jonas host a show with the relatives of stars.`\
-https://nytimes.com/2024/07/08/arts/television/whats-on-tv-this-week-the-bachelorette-and-claim-to-fame.html
 
