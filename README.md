@@ -1,3 +1,7 @@
+**How Biden Is Leveraging His Defiance to Try to Stem Democratic Defections**\
+`In private and in public, President Biden made clear he holds all the cards when determining his political future. Can he get his Democratic critics to fold?`\
+https://nytimes.com/2024/07/08/us/politics/biden-strategy-assess.html
+
 **UConn gives Hurley new 6-year, $50 million deal**\
 `The new deal comes after Dan Hurley declined a six-year, $70 million coaching contract offer from the Lakers in June.`\
 https://nytimes.com/athletic/5625163/2024/07/08/dan-hurley-contract-uconn-basketball/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/matagorda-texas-hur
 **Michigan tops PSU, Bama, Florida for 4-star Pennsylvania TE**\
 `Andrew Olesh, the No. 3 prospect in Pennsylvania, announced his commitment to Sherrone Moore and Michigan football on Monday.`\
 https://nytimes.com/athletic/5624963/2024/07/08/andrew-olesh-michigan-football-recruiting-commitment/
-
-**Wimbledon day 8: Will Rybakina break cycle? Did we see the most chaotic match-up?**\
-`To start Wimbledon's second week: Elena Rybakina's limelight, the most lethal serve in tennis meeting its match, and chaos on Court One`\
-https://nytimes.com/athletic/5623774/2024/07/08/wimbledon-recap-rybakinas-title-hopes-and-ostapenko-putintseva-chaos/
 
