@@ -1,3 +1,11 @@
+**Team USA raves about Cooper Flagg: 'Unbelievable'**\
+`Flagg is an incoming freshman at Duke and an early favorite as the No. 1 pick of the 2025 NBA Draft.`\
+https://nytimes.com/athletic/5625267/2024/07/08/cooper-flagg-usa-olympic-training-camp/
+
+**Senator Menendez ‘Sold the Power of His Office,’ Prosecutor Says**\
+`In a closing statement, a prosecutor said the Menendez home was awash in cash and walked jurors through what the government has called a complicated web of corruption.`\
+https://nytimes.com/2024/07/08/nyregion/robert-menendez-bribery-trial-closing-arguments.html
+
 **Hayes clarifies roster rules for 2024 Paris Olympics**\
 `Emma Hayes has clarified the rules over Olympic roster alternates, telling media on Monday that players replaced by an alternate can return to the core 18-player group.`\
 https://nytimes.com/athletic/5625281/2024/07/08/uswnt-roster-rules-olympic-games/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/07/08/climate/home-insurance-cost-county.ht
 **Home Insurance Rates in America Are Wildly Distorted. Here’s Why.**\
 `Climate change is driving rates higher, but not always in areas with the greatest risk.`\
 https://nytimes.com/interactive/2024/07/08/climate/home-insurance-climate-change.html
-
-**White House Briefing Devolves Into Shouting Over Questions About Biden’s Health**\
-`Karine Jean-Pierre, the press secretary, refused to answer questions about whether visits to the White House by a Parkinson’s doctor were about the president.`\
-https://nytimes.com/2024/07/08/us/politics/white-house-briefing-shouting.html
-
-**This year, the biggest American stars at Wimbledon are happiest under the radar**\
-`In the most successful Wimbledon for American tennis players in 20 years, it's the under-the-radar players making headlines`\
-https://nytimes.com/athletic/5624751/2024/07/08/wimbledon-american-tennis-players-record/
 
