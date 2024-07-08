@@ -1,3 +1,7 @@
+**Have You Ever Had a Bad Therapist? Tell Us About It.**\
+`A New York Times mental health reporter wants to hear why therapy didn’t work out.`\
+https://nytimes.com/2024/07/08/well/mind/therapy-red-flags-callout.html
+
 **Griezmann capable of much more - Rabiot**\
 `Adrien Rabiot says Antoine Griezmann is &#8220;capable of doing a lot more&#8221; as France prepare to face Spain in the semi-finals of the European Championship on Tuesday.`\
 https://nytimes.com/athletic/5624294/2024/07/08/antoine-griezmann-euro-2024/

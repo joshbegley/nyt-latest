@@ -1,3 +1,7 @@
+**Have You Ever Had a Bad Therapist? Tell Us About It.**\
+`A New York Times mental health reporter wants to hear why therapy didn’t work out.`\
+https://nytimes.com/2024/07/08/well/mind/therapy-red-flags-callout.html
+
 **Griezmann capable of much more - Rabiot**\
 `Adrien Rabiot says Antoine Griezmann is &#8220;capable of doing a lot more&#8221; as France prepare to face Spain in the semi-finals of the European Championship on Tuesday.`\
 https://nytimes.com/athletic/5624294/2024/07/08/antoine-griezmann-euro-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/08/us/western-heat-wave-records.html
 **Rain dampens NASCAR's Chicago showcase again, but the forecast isn't so dreary**\
 `NASCAR's Chicago showcase has been marred by bad weather and political battles. After two years, though, it's managing to win people over.`\
 https://nytimes.com/athletic/5623653/2024/07/08/nascar-chicago-street-race-future-rain/
-
-**Canucks 2024 offseason moves: Where are they better? Where are they worse?**\
-`Breaking down where and how the Canucks have improved their roster using Dom Luszczyszyn’s Net Rating model.`\
-https://nytimes.com/athletic/5615939/2024/07/08/canucks-2024-offseason-moves/
 
