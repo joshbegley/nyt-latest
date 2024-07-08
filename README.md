@@ -1,3 +1,7 @@
+**Who’s Running Against Mayor Adams? The Answer May Shape Other Key Races.**\
+`New York City officials, including the comptroller, Brad Lander, are weighing whether to challenge Eric Adams, potentially creating openings in other races.`\
+https://nytimes.com/2024/07/08/nyregion/adams-lander-mayor-election.html
+
 **Leeds complete signing of goalkeeper Cairns from Salford**\
 `Leeds United have signed goalkeeper Alex Cairns from League Two side Salford City for an undisclosed fee.`\
 https://nytimes.com/athletic/5624360/2024/07/08/alex-cairns-leeds-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5624219/2024/07/08/kylian-mbappe-mask-france/
 **Greenberg: DeMar DeRozan was great player on forgettable Bulls teams**\
 `DeRozan was a star and leader who helped the Bulls out of the muck and into the bottom tier of respectability. Where do they go from here?`\
 https://nytimes.com/athletic/5624070/2024/07/08/chicago-bulls-demar-derozan/
-
-**An Aversion to Political Protests**\
-`Readers discuss a column by Pamela Paul. Also: Criticism of The Times’s Biden-Trump coverage; why voting matters; helping migrants in New York.`\
-https://nytimes.com/2024/07/08/opinion/political-protests-gaza.html
 
