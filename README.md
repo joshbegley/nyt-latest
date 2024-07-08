@@ -1,3 +1,11 @@
+**At Avignon Festival, Theater’s World Gets Wider**\
+`Under its new director, the event is shining a spotlight on countries and performers rarely represented on the biggest European stages.`\
+https://nytimes.com/2024/07/08/theater/avignon-festival-spanish.html
+
+**Capitals promote Chris Patrick to GM**\
+`Patrick becomes the seventh general manager in franchise history.`\
+https://nytimes.com/athletic/5624143/2024/07/08/capitals-chris-patrick-gm-brian-maclellan/
+
 **Will France's players be liberated after 'immense relief' of country's election outcome?**\
 `France's players have been outspoken about the political situation in their country, voicing their concern about the rise of the far right`\
 https://nytimes.com/athletic/5623446/2024/07/08/france-politics-election-euros/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5624068/2024/07/08/mlb-all-star-game-snubs-yankees-
 **Paul George dishes on ‘disrespectful’ year of LAC negotiations**\
 `George also revealed that in 2019, Leonard contacted George about leaving the Oklahoma City Thunder to go to the Toronto Raptors.`\
 https://nytimes.com/athletic/5624027/2024/07/08/paul-george-podcast-clippers-76ers-negotiations/
-
-**Models, Influencers … Chemists?**\
-`Nara and Lucky Blue Smith make sunscreen and toothpaste from scratch. Experts have thoughts.`\
-https://nytimes.com/2024/07/08/well/nara-smith-sunscreen-toothpaste-tiktok.html
-
-**A Wall Street Law Firm Wants to Define Consequences of Anti-Israel Protests**\
-`Sullivan & Cromwell is requiring job applicants to explain their participation in protests. Critics see the policy as a way to silence speech about the war.`\
-https://nytimes.com/2024/07/08/business/sullivan-cromwell-israel-protests.html
 
