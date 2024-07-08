@@ -1,3 +1,11 @@
+**Alec Baldwin Appears in Court as Judge Rules on Upcoming ‘Rust’ Trial**\
+`The actor is set to stand trial this week on a charge of involuntary manslaughter for his role in the fatal shooting of a cinematographer. He has pleaded not guilty.`\
+https://nytimes.com/2024/07/08/movies/alec-baldwin-rust-trial.html
+
+**Jill Biden Says She Is ‘All In’ on Husband’s Re-election Bid**\
+`During a speech in North Carolina, Jill Biden said that she supports President Biden.`\
+https://nytimes.com/video/us/elections/100000009560505/jill-biden-campaign-trail.html
+
 **Until Saturday: CFB's greatest video game team ever**\
 `Welcome to Until Saturday, the five-star college football newsletter.`\
 https://nytimes.com/athletic/5624824/2024/07/08/ea-sports-cfb-video-game-west-virginia-until-saturday/
