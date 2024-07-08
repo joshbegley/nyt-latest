@@ -31,10 +31,10 @@ https://nytimes.com/athletic/5624294/2024/07/08/antoine-griezmann-euro-2024/
 https://nytimes.com/athletic/5620099/2024/07/08/mats-wieffer-to-brighton-transfer-ratings/
 
 **Parkinson’s Expert Visited the White House Eight Times in Eight Months**\
-`The White House has said that President Biden has no signs of the disease and that there has been no reason to update the most recent testing, conducted in February.`\
+`The White House said President Biden had met with a neurologist only three times in more than three years in office. But it would not say whether the visiting expert was consulting with the president’s physician about his health.`\
 https://nytimes.com/2024/07/08/us/politics/parkinsons-expert-white-house.html
 
-**Mbappe still adjusting to impact of mask - Deschamps**\
-`France manager Didier Deschamps says Kylian Mbappe is still adjusting to the impact that wearing a mask has on his vision.`\
+**Deschamps: Mbappe is in the right headspace**\
+`France manager Didier Deschamps insists Kylian Mbappe is &#8220;in the right headspace&#8221; to play in the European Championship semi-final against Spain on Tuesday.`\
 https://nytimes.com/athletic/5624219/2024/07/08/kylian-mbappe-mask-france/
 
