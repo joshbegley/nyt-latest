@@ -1,3 +1,19 @@
+**He Helped a Woman End Her Own Life. Was It Manslaughter, or Mercy?**\
+`They checked into a motel room in upstate New York, with a gas canister and a plan to end her decades of physical pain.`\
+https://nytimes.com/2024/07/08/nyregion/assisted-suicide-kingston.html
+
+**Closing Arguments in Menendez Bribery Case Set to Begin**\
+`Jurors have heard nearly two months of testimony in the case of Senator Robert Menendez of New Jersey, who is accused of bribery and corruption.`\
+https://nytimes.com/2024/07/08/nyregion/robert-menendez-closing-arguments-bribery.html
+
+**Why Some of New York’s Snazziest Dining Sheds Are Headed for the Dumps**\
+`Soon, dining sheds around the city will be dismantled — no matter how attractive they are.`\
+https://nytimes.com/2024/07/08/nyregion/street-wars-dining-sheds-new-york.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/08/crosswords/spelling-bee-forum.html
+
 **Three Giants takeaways: Austin Slater traded to Reds for lefty reliever**\
 `The move brings an end to a long-standing platoon between Slater, who never found a groove at the plate this season, and Mike Yastrzemski.`\
 https://nytimes.com/athletic/5623170/2024/07/08/giants-takeaways-austin-slater-traded/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/07/08/briefing/france-elections-israel-protests-biden.h
 **Is Kane in danger of becoming England's Ronaldo?**\
 `Not too long ago, it would have been a compliment to be compared to Ronaldo - but is England's captain in danger of holding them back?`\
 https://nytimes.com/athletic/5621106/2024/07/08/harry-kane-england-euro-2024-cristiano-ronaldo/
-
-**What can England expect from the Netherlands in the Euro 2024 semi-final?**\
-`Ronald Koeman's team has some specific English qualities — he may rely on them during Wednesday's game in Dortmund`\
-https://nytimes.com/athletic/5621522/2024/07/08/netherlands-tactics-england-euro-2024-semi-final/
-
-**How 'Magic Mike' - the kid who hated football - became France No 1**\
-`Didier Deschamps' goalkeeper is imposing on and off the field, despite his early reservations about the sport`\
-https://nytimes.com/athletic/5622241/2024/07/08/mike-maignan-france-euro-2024/
-
-**Diaz is Colombia's Copa America hero - but his Liverpool future is far less clear**\
-`Luis Diaz is supposed to be the lionheart of Liverpool and Colombia.`\
-https://nytimes.com/athletic/5621652/2024/07/08/luis-diaz-liverpool-colombia-copa-america/
-
-**Kroos has retired, and Muller and Neuer may follow. So, where do Germany go from here?**\
-`'We lost, but we did not fail.' Germany won the hearts and minds of the population during Euro 2024. But now Nagelsmann must rebuild`\
-https://nytimes.com/athletic/5621727/2024/07/08/germany-kroos-neuer-nagelsmann-world-cup/
 
