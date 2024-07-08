@@ -1,3 +1,15 @@
+**Alex Bowman, after Chicago Street Race win, can finally enjoy that bourbon**\
+`Alex Bowman has a celebratory bottle on his counter at home that's been waiting a long time to be opened. Now, he finally gets to crack it.`\
+https://nytimes.com/athletic/5623869/2024/07/08/alex-bowman-chicago-street-race-nascar-bourbon/
+
+**The Windup: Tons of first-time All-Stars**\
+`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
+https://nytimes.com/athletic/5624068/2024/07/08/mlb-all-star-game-snubs-yankees-ben-rice-the-windup/
+
+**Paul George dishes on ‘disrespectful’ year of LAC negotiations**\
+`George also revealed that in 2019, Leonard contacted George about leaving the Oklahoma City Thunder to go to the Toronto Raptors.`\
+https://nytimes.com/athletic/5624027/2024/07/08/paul-george-podcast-clippers-76ers-negotiations/
+
 **Models, Influencers … Chemists?**\
 `Nara and Lucky Blue Smith make sunscreen and toothpaste from scratch. Experts have thoughts.`\
 https://nytimes.com/2024/07/08/well/nara-smith-sunscreen-toothpaste-tiktok.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5622909/2024/07/08/sf-giants-weekly-review-heliot-r
 **Cold Noodles With Zucchini Because Yikes, This Heat**\
 `The secret ingredient is ice, which quickly cools the noodles and makes the sauce brothy and cold enough to freshen a July evening.`\
 https://nytimes.com/2024/07/08/dining/zucchini-cold-noodles-recipe.html
-
-**Can You Uncover the 12 Hidden Book Titles in This Puzzle?**\
-`This week’s Title Search puzzle challenges you to find a dozen works of fiction that were published during the last years of the 20th century.`\
-https://nytimes.com/interactive/2024/07/08/books/review/1990s-title-search.html
-
-**The Winners of Our Open Letter Contest**\
-`See the more than 150 finalists and read the top nine winning letters on hearing aids, colonialism, A.I. art and more.`\
-https://nytimes.com/2024/07/08/learning/the-winners-of-our-open-letter-contest.html
-
-**Shaw 'fit and ready' to play 90 minutes for England**\
-`Luke Shaw says he feels ready to play 90 minutes for England following his return from a lengthy injury absence.`\
-https://nytimes.com/athletic/5623589/2024/07/08/luke-shaw-england-netherlands-fitness/
 

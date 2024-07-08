@@ -1,3 +1,15 @@
+**Alex Bowman, after Chicago Street Race win, can finally enjoy that bourbon**\
+`Alex Bowman has a celebratory bottle on his counter at home that's been waiting a long time to be opened. Now, he finally gets to crack it.`\
+https://nytimes.com/athletic/5623869/2024/07/08/alex-bowman-chicago-street-race-nascar-bourbon/
+
+**The Windup: Tons of first-time All-Stars**\
+`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
+https://nytimes.com/athletic/5624068/2024/07/08/mlb-all-star-game-snubs-yankees-ben-rice-the-windup/
+
+**Paul George dishes on ‘disrespectful’ year of LAC negotiations**\
+`George also revealed that in 2019, Leonard contacted George about leaving the Oklahoma City Thunder to go to the Toronto Raptors.`\
+https://nytimes.com/athletic/5624027/2024/07/08/paul-george-podcast-clippers-76ers-negotiations/
+
 **Wrexham youngsters in limbo as club's academy upgrading bid is rejected - so what next?**\
 `The club, owned by Hollywood stars Ryan Reynolds and Rob McElhenney, will appeal the decision to refuse their academy Category 3 status`\
 https://nytimes.com/athletic/5623348/2024/07/08/wrexham-academy-grading-category-three/
