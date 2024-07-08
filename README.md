@@ -1,3 +1,7 @@
+**Tigers lefty Tarik Skubal's journey from operating table uncertainty to All-Star ferocity**\
+`Since July 4, 2023, Skubal has been, statistically, the best starting pitcher in all of baseball.`\
+https://nytimes.com/athletic/5622374/2024/07/08/tarik-skubal-all-star-game-tigers-pitcher/
+
 **Zwayer to referee Netherlands v England Euro 2024 semi-final**\
 `Felix Zwayer has been appointed as the referee for the European Championship semi-final between England and the Netherlands on Wednesday.`\
 https://nytimes.com/athletic/5622020/2024/07/08/england-netherlands-ref-felix-zwayer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/08/style/swimsuit-age-bikini.html
 **In the Subway, Empty Storefronts and Struggling Businesses**\
 `Remote work and online shopping have hurt retailers who occupy space leased by the Metropolitan Transportation Authority.`\
 https://nytimes.com/2024/07/08/nyregion/in-the-subway-empty-storefronts-and-struggling-businesses.html
-
-**A Lost Masterpiece of Opera Returns, Kind of**\
-`The Aix Festival is presenting a new version of “Samson,” a never-performed work by Rameau and Voltaire, two of France’s most important cultural figures.`\
-https://nytimes.com/2024/07/08/arts/music/samson-pichon-guth-aix-festival-rameau-voltaire.html
 
