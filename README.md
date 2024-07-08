@@ -1,3 +1,11 @@
+**Alec Baldwin Appears in Court as Judge Rules on Upcoming ‘Rust’ Trial**\
+`The actor is set to stand trial this week on a charge of involuntary manslaughter for his role in the fatal shooting of a cinematographer. He has pleaded not guilty.`\
+https://nytimes.com/2024/07/08/movies/alec-baldwin-rust-trial.html
+
+**Jill Biden Says She Is ‘All In’ on Husband’s Re-election Bid**\
+`During a speech in North Carolina, Jill Biden said that she supports President Biden.`\
+https://nytimes.com/video/us/elections/100000009560505/jill-biden-campaign-trail.html
+
 **Until Saturday: CFB's greatest video game team ever**\
 `Welcome to Until Saturday, the five-star college football newsletter.`\
 https://nytimes.com/athletic/5624824/2024/07/08/ea-sports-cfb-video-game-west-virginia-until-saturday/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/08/books/review/husbands-and-lovers-beatriz-williams
 **Chelsea reach agreement with Atlanta to sign Wiley**\
 `Chelsea have reached an agreement with Atlanta United to sign left-back Caleb Wiley.`\
 https://nytimes.com/athletic/5624615/2024/07/08/chelsea-transfer-news-caleb-wiley/
-
-**A businessman testified about using a luxury car as a bribe.**\
-`Jose Uribe admitted providing a Mercedes-Benz for Senator Robert Menendez to “influence an official act.” Mr. Menendez has pleaded not guilty, as have his wife and two other co-defendants.`\
-https://nytimes.com/live/2024/07/08/nyregion/menendez-trial/a-businessman-testified-about-using-a-luxury-car-as-a-bribe
-
-**In the Aging Senate, Nobody Wants to Be the One to Nudge Biden Aside**\
-`Senators have had plenty of practice watching colleagues hold stubbornly onto their positions of power as they grow old. None wants to lead a public call for President Biden to withdraw.`\
-https://nytimes.com/2024/07/08/us/politics/senate-age-biden.html
 
