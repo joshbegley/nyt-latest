@@ -1,7 +1,3 @@
-**Heat Wave in Western U.S. Sets Records, While Another Roasts the East**\
-`Temperature records have been shattered from California and Nevada to North Carolina in the last few days, and relief is still days away, forecasters say.`\
-https://nytimes.com/2024/07/08/us/western-heat-wave-records.html
-
 **Rain dampens NASCAR's Chicago showcase again, but the forecast isn't so dreary**\
 `NASCAR's Chicago showcase has been marred by bad weather and political battles. After two years, though, it's managing to win people over.`\
 https://nytimes.com/athletic/5623653/2024/07/08/nascar-chicago-street-race-future-rain/
@@ -37,4 +33,8 @@ https://nytimes.com/live/2024/07/02/opinion/thepoint/primary-voters-biden
 **Power failures from hurricanes are projected to increase 50% in coming decades.**\
 `By Austyn Gaffney`\
 https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/hurricane-power-outages
+
+**Svitolina wears black ribbon during Wimbledon match after missile strike in Ukraine**\
+`Elina Svitolina wore a black ribbon during her Wimbledon last-16 match against Wang Xiyu, after Russian missile strikes killed and injured more than 100 Ukrainians across the country this morning.`\
+https://nytimes.com/athletic/5624030/2024/07/08/elina-svitolina-wimbledon-ukraine/
 

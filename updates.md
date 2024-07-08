@@ -1,3 +1,19 @@
+**Heat Wave in Western U.S. Sets Records, While Another Roasts the East**\
+`Temperature records have been shattered from California and Nevada to North Carolina in the last few days, and relief is still days away, forecasters say.`\
+https://nytimes.com/2024/07/08/us/western-heat-wave-records.html
+
+**Rain dampens NASCAR's Chicago showcase again, but the forecast isn't so dreary**\
+`NASCAR's Chicago showcase has been marred by bad weather and political battles. After two years, though, it's managing to win people over.`\
+https://nytimes.com/athletic/5623653/2024/07/08/nascar-chicago-street-race-future-rain/
+
+**Canucks 2024 offseason moves: Where are they better? Where are they worse?**\
+`Breaking down where and how the Canucks have improved their roster using Dom Luszczyszyn’s Net Rating model.`\
+https://nytimes.com/athletic/5615939/2024/07/08/canucks-2024-offseason-moves/
+
+**Bukayo Saka's is not a redemption story. He had nothing to redeem**\
+`A penalty that was presented as a chance to exorcise demons carried with it the threat of renewed mockery and hatred`\
+https://nytimes.com/athletic/5621596/2024/07/08/saka-penalty-nothing-to-redeem/
+
 **Did You Sell Your Home to Pay for Your Child’s College? We Want to Hear From You.**\
 `With the cost of  college through the roof, some parents have sold their homes or taken out exorbitant loans to pay for their child’s degree. Share your story with us.`\
 https://nytimes.com/2024/07/08/realestate/home-sold-mortgage-college-tuition.html
