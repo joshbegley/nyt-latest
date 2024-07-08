@@ -1,3 +1,11 @@
+**What the Mood Is Like in France After Surprise Election Results**\
+`After the left surged and the far right fell short of expectations in the runoff, the question gripping the country was who would govern, and how.`\
+https://nytimes.com/2024/07/08/world/europe/france-election-reaction.html
+
+**Morata on 'likely' international retirement and 'lack of respect' in Spain**\
+`Spain captain Alvaro Morata has said Euro 2024 is &#8220;likely&#8221; his last international tournament and hit out at the &#8220;lack of respect&#8221; towards him in the country.`\
+https://nytimes.com/athletic/5623321/2024/07/08/alvaro-morata-spain-euro-2024/
+
 **The Pulse: The MLB All-Stars you get to learn about**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5623046/2024/07/08/mlb-all-star-rosters-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/08/world/asia/modi-putin-russia-india.html
 **Key Democrats Doubt Biden, and the Left Surges in France**\
 `Plus, a firestorm over Mexico City’s salsas.`\
 https://nytimes.com/2024/07/08/podcasts/biden-france-election.html
-
-**Three Twins takeaways: All-Star Correa, Wallner's next chance, Paddack's big test**\
-`"This is my home here in Minnesota now," Correa said. "And to get my first All-Star Game here with this team, it's truly special."`\
-https://nytimes.com/athletic/5622077/2024/07/08/twins-carlos-correa-all-star-wallner-paddack/
-
-**Will Bo Nix emerge in a 3-quarterback race at Broncos training camp?**\
-`Plus, a look at a running back who could be on the roster bubble and possible free-agent additions`\
-https://nytimes.com/athletic/5619971/2024/07/08/broncos-quarterbacks-bo-nix-starter/
 

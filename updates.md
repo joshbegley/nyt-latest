@@ -1,3 +1,11 @@
+**What the Mood Is Like in France After Surprise Election Results**\
+`After the left surged and the far right fell short of expectations in the runoff, the question gripping the country was who would govern, and how.`\
+https://nytimes.com/2024/07/08/world/europe/france-election-reaction.html
+
+**Morata on 'likely' international retirement and 'lack of respect' in Spain**\
+`Spain captain Alvaro Morata has said Euro 2024 is &#8220;likely&#8221; his last international tournament and hit out at the &#8220;lack of respect&#8221; towards him in the country.`\
+https://nytimes.com/athletic/5623321/2024/07/08/alvaro-morata-spain-euro-2024/
+
 **The Pulse: The MLB All-Stars you get to learn about**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5623046/2024/07/08/mlb-all-star-rosters-the-pulse/
