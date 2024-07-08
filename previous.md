@@ -8,7 +8,7 @@ https://nytimes.com/athletic/5622773/2024/07/07/mlb-all-star-game-roster-snubs-2
 
 **Beryl could knock out power in Texas. How has the grid fared before?**\
 `By Isabelle Taft`\
-https://nytimes.com/live/2024/07/07/us/hurricane-beryl-texas/beryl-could-knock-out-power-in-texas-how-has-the-grid-fared-before
+https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/beryl-could-knock-out-power-in-texas-how-has-the-grid-fared-before
 
 **Chris Sale, Marcell Ozuna and Reynaldo López took unique routes to NL All-Star team**\
 `The Braves have three 2024 All-Stars in Chris Sale, Marcell Ozuna and Reynaldo López. They helped keep them above water in the first half.`\

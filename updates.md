@@ -1,3 +1,7 @@
+**Beryl could knock out power in Texas. How has the grid fared before?**\
+`By Isabelle Taft`\
+https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/beryl-could-knock-out-power-in-texas-how-has-the-grid-fared-before
+
 **‘House of the Dragon’ Season 2, Episode 4: Fire in the Sky**\
 `This week brings all-out warfare and the death of a key character.`\
 https://nytimes.com/2024/07/07/arts/television/recap-house-of-the-dragon-dance-of-dragons.html
