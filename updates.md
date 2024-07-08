@@ -1,3 +1,7 @@
+**Zwayer to referee Netherlands v England Euro 2024 semi-final**\
+`Felix Zwayer has been appointed as the referee for the European Championship semi-final between England and the Netherlands on Wednesday.`\
+https://nytimes.com/athletic/5622020/2024/07/08/england-netherlands-ref-felix-zwayer/
+
 **WNBA power rankings: A rivalry is budding between Aces and Sparks. Will it take hold?**\
 `Will Angel Reese and Caitlin Clark — the league's two highest-profile rookies — thrive in the All-Star Game? `\
 https://nytimes.com/athletic/5623065/2024/07/08/wnba-power-rankings-caitlin-clark-angel-reese-all-star/
