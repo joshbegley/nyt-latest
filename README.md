@@ -1,3 +1,7 @@
+**A Novel of Romance, Secrets and Many Crises**\
+`With “Husbands & Lovers,” Beatriz Williams delivers a multigenerational yarn and a memorable ending.`\
+https://nytimes.com/2024/07/08/books/review/husbands-and-lovers-beatriz-williams.html
+
 **Chelsea reach agreement with Atlanta to sign Wiley**\
 `Chelsea have reached an agreement with Atlanta United to sign left-back Caleb Wiley.`\
 https://nytimes.com/athletic/5624615/2024/07/08/chelsea-transfer-news-caleb-wiley/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5624242/2024/07/08/euro-2024-semifinal-odds-spain-e
 **Want a Cake to Impress? Make This Vietnamese Classic.**\
 `Showstopping bánh bò nướng, tinted jade from aromatic pandan paste, is both comfort and delight to whoever encounters it.`\
 https://nytimes.com/2024/07/08/dining/banh-bo-nuong-vietnamese-cake.html
-
-**As Menendez’s star rose, fears of corruption cast a persistent shadow.**\
-`By Nicholas Fandos`\
-https://nytimes.com/live/2024/07/08/nyregion/menendez-trial/as-menendezs-star-rose-fears-of-corruption-cast-a-persistent-shadow
 
