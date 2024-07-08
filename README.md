@@ -1,3 +1,11 @@
+**Models, Influencers … Chemists?**\
+`Nara and Lucky Blue Smith make sunscreen and toothpaste from scratch. Experts have thoughts.`\
+https://nytimes.com/2024/07/08/well/nara-smith-sunscreen-toothpaste-tiktok.html
+
+**A Wall Street Law Firm Wants to Define Consequences of Anti-Israel Protests**\
+`Sullivan & Cromwell is requiring job applicants to explain their participation in protests. Critics see the policy as a way to silence speech about the war.`\
+https://nytimes.com/2024/07/08/business/sullivan-cromwell-israel-protests.html
+
 **Wrexham youngsters left in limbo as club's academy grading bid rejected - so what next?**\
 `The Welsh club — owned by Ryan Reynolds and Rob McElhenney — will appeal the decision`\
 https://nytimes.com/athletic/5623348/2024/07/08/wrexham-academy-grading-category-three/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/08/learning/the-winners-of-our-open-letter-contest.h
 **Shaw 'fit and ready' to play 90 minutes for England**\
 `Luke Shaw says he feels ready to play 90 minutes for England following his return from a lengthy injury absence.`\
 https://nytimes.com/athletic/5623589/2024/07/08/luke-shaw-england-netherlands-fitness/
-
-**Justice Amy Coney Barrett’s Independent Streak Marked Supreme Court Term**\
-`The junior member of the court’s six-justice conservative supermajority often questioned its approach and wrote important dissents joined by liberal justices.`\
-https://nytimes.com/2024/07/08/us/politics/amy-coney-barrett-supreme-court-justice.html
-
-**Columbia Removes Three Deans, Saying Texts Touched on ‘Antisemitic Tropes’**\
-`Nemat Shafik, the university president, called the sentiments in the text messages “unacceptable and deeply upsetting.”`\
-https://nytimes.com/2024/07/08/nyregion/columbia-university-deans-antisemitism.html
 
