@@ -1,3 +1,7 @@
+**Where Beryl Is Expected to Go Next**\
+`The storm will move through the United States this week.`\
+https://nytimes.com/2024/07/08/weather/where-beryl-goes-next-forecast.html
+
 **The Athletic FC: Details behind England penalty win; USMNT does not have 'golden generation'**\
 `Today in The Athletic FC: Analysing details of England's shootout win, the USMNT's 'golden generation myth', and when is it time to retire?`\
 https://nytimes.com/athletic/5623313/2024/07/08/the-athletic-fc-england-penalty-win-usmnt-golden-generation-myth/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/08/business/dealbook/bidens-wall-street-donors.html
 **Anthony Edwards as Team USA's 'No. 1 option?' Not even he really thinks that**\
 `Despite his headline-grabbing quote, Edwards knows that Kevin Durant, LeBron James and Steph Curry are the team's most respected players.`\
 https://nytimes.com/athletic/5623017/2024/07/08/anthony-edwards-team-usa-olympics-no-1/
-
-**The Israeli military returned to an area of Gaza City where it said Hamas had reestablished itself.**\
-`By Hiba Yazbek`\
-https://nytimes.com/live/2024/07/08/world/israel-gaza-war-hamas/the-israeli-military-returned-to-an-area-of-gaza-city-where-it-said-hamas-had-reestablished-itself
 
