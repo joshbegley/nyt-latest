@@ -1,3 +1,7 @@
+**Hayes clarifies roster rules for 2024 Paris Olympics**\
+`Emma Hayes has clarified the rules over Olympic roster alternates, telling media on Monday that players replaced by an alternate can return to the core 18-player group.`\
+https://nytimes.com/athletic/5625281/2024/07/08/uswnt-roster-rules-olympic-games/
+
 **Facing lengthy repairs, a major utility considers mobile generators for key sites.**\
 `CenterPoint Energy said more than two million customers lost power in the storm, and that the hardest hit should prepare for an extended period without electricity.`\
 https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/facing-lengthy-repairs-a-major-utility-considers-mobile-generators-for-key-sites

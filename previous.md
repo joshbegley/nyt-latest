@@ -1,3 +1,7 @@
+**Hayes clarifies roster rules for 2024 Paris Olympics**\
+`Emma Hayes has clarified the rules over Olympic roster alternates, telling media on Monday that players replaced by an alternate can return to the core 18-player group.`\
+https://nytimes.com/athletic/5625281/2024/07/08/uswnt-roster-rules-olympic-games/
+
 **Facing lengthy repairs, a major utility considers mobile generators for key sites.**\
 `CenterPoint Energy said more than two million customers lost power in the storm, and that the hardest hit should prepare for an extended period without electricity.`\
 https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/facing-lengthy-repairs-a-major-utility-considers-mobile-generators-for-key-sites
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/08/us/politics/white-house-briefing-shouting.html
 **This year, the biggest American stars at Wimbledon are happiest under the radar**\
 `In the most successful Wimbledon for American tennis players in 20 years, it's the under-the-radar players making headlines`\
 https://nytimes.com/athletic/5624751/2024/07/08/wimbledon-american-tennis-players-record/
-
-**A tiny Texas town where Beryl made landfall counts its blessings.**\
-`Matagorda, a`\
-https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/matagorda-texas-hurricane-beryl
 
