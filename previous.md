@@ -1,3 +1,7 @@
+**Please, Mr. President, Do the Right Thing**\
+`Biden has done a great job. Now he can serve America by stepping aside.`\
+https://nytimes.com/2024/07/08/opinion/biden-trump.html
+
 **Mets' Brandon Nimmo nudging Steve Cohen to be a buyer at trade deadline**\
 `Nimmo wants Mets' to address their late-game struggles: "We haven't been able to lock down wins."`\
 https://nytimes.com/athletic/5624793/2024/07/08/mets-trade-deadline-steve-cohen/
@@ -15,7 +19,7 @@ https://nytimes.com/interactive/2024/07/08/nyregion/immigration-us-border-family
 https://nytimes.com/2024/07/08/business/boeing-plea-deal-737-max.html
 
 **What Keegan Bradley’s shocking hire tells us about the U.S. Ryder Cup team's future**\
-`Sitting in front of the TV, surrounded by his family, watching the one event in the world he cares most about, Keegan Bradley didn’t lament his own absence.`\
+`Bradley's love for the Ryder Cup is well documented and has now been rewarded with the captaincy.`\
 https://nytimes.com/athletic/5624605/2024/07/08/keegan-bradley-us-ryder-cup-captain/
 
 **Biden Administration Rule Would Increase Authority to Block Foreign Deals**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/08/nyregion/menendez-trial/nadine-menendezs-tri
 **Livvy Dunne returning to LSU gymnastics for 5th year**\
 `Dunne's return adds depth to the Tigers' stocked roster as LSU looks to defend its NCAA title.`\
 https://nytimes.com/athletic/5624685/2024/07/08/livvy-dunne-lsu-gymnastics-return/
-
-**Bradley to captain U.S. Ryder Cup team in 2025**\
-`The 38-year-old Bradley will be the youngest U.S. Ryder Cup captain since Arnold Palmer in 1963.`\
-https://nytimes.com/athletic/5624732/2024/07/08/keegan-bradley-ryder-cup-captain-2025/
 

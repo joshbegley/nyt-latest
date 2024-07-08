@@ -1,3 +1,11 @@
+**Please, Mr. President, Do the Right Thing**\
+`Biden has done a great job. Now he can serve America by stepping aside.`\
+https://nytimes.com/2024/07/08/opinion/biden-trump.html
+
+**What Keegan Bradley’s shocking hire tells us about the U.S. Ryder Cup team's future**\
+`Bradley's love for the Ryder Cup is well documented and has now been rewarded with the captaincy.`\
+https://nytimes.com/athletic/5624605/2024/07/08/keegan-bradley-us-ryder-cup-captain/
+
 **Mets' Brandon Nimmo nudging Steve Cohen to be a buyer at trade deadline**\
 `Nimmo wants Mets' to address their late-game struggles: "We haven't been able to lock down wins."`\
 https://nytimes.com/athletic/5624793/2024/07/08/mets-trade-deadline-steve-cohen/
