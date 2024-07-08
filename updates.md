@@ -1,3 +1,7 @@
+**Liverpool appoint former Man City analyst Briggs as elite development coach**\
+`Liverpool have added former Manchester City analyst and coach Aaron Briggs to Arne Slot’s backroom staff.`\
+https://nytimes.com/athletic/5623689/2024/07/08/liverpool-aaron-briggs-development-coach/
+
 **Where Beryl Is Expected to Go Next**\
 `The storm will move through the United States this week.`\
 https://nytimes.com/2024/07/08/weather/where-beryl-goes-next-forecast.html
