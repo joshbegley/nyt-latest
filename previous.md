@@ -1,3 +1,7 @@
+**South Korea appoint Hong Myung-bo as manager to replace Klinsmann**\
+`Hong Myung-bo has been appointed manager of South Korea for a second spell, five months after the sacking of Jurgen Klinsmann.`\
+https://nytimes.com/athletic/5623192/2024/07/08/south-korea-manager-hong-myung-bo-jurgen-klinsmann/
+
 **He Helped a Woman End Her Own Life. Was It Manslaughter, or Mercy?**\
 `They checked into a motel room in upstate New York, with a gas canister and a plan to end her decades of physical pain.`\
 https://nytimes.com/2024/07/08/nyregion/assisted-suicide-kingston.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/08/business/boeing-justice-department-plea-deal.html
 **Monday Briefing**\
 `The left surges in French elections.`\
 https://nytimes.com/2024/07/08/briefing/france-elections-israel-protests-biden.html
-
-**Is Kane in danger of becoming England's Ronaldo?**\
-`Not too long ago, it would have been a compliment to be compared to Ronaldo - but is England's captain in danger of holding them back?`\
-https://nytimes.com/athletic/5621106/2024/07/08/harry-kane-england-euro-2024-cristiano-ronaldo/
 

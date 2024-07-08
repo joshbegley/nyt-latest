@@ -1,3 +1,7 @@
+**South Korea appoint Hong Myung-bo as manager to replace Klinsmann**\
+`Hong Myung-bo has been appointed manager of South Korea for a second spell, five months after the sacking of Jurgen Klinsmann.`\
+https://nytimes.com/athletic/5623192/2024/07/08/south-korea-manager-hong-myung-bo-jurgen-klinsmann/
+
 **He Helped a Woman End Her Own Life. Was It Manslaughter, or Mercy?**\
 `They checked into a motel room in upstate New York, with a gas canister and a plan to end her decades of physical pain.`\
 https://nytimes.com/2024/07/08/nyregion/assisted-suicide-kingston.html
