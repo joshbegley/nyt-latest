@@ -1,3 +1,7 @@
+**France’s Leftist Coalition Surges, but Deadlock Looms**\
+`The New Popular Front outpaced the far-right National Rally during the second round of voting. But no party secured an absolute majority, leaving France with a hung Parliament.`\
+https://nytimes.com/video/world/europe/100000009559306/french-election-new-popular-front.html
+
 **Three Giants takeaways: Longest-tenured player Austin Slater traded to Reds for lefty reliever**\
 `The move brings an end to a long-standing platoon between Slater, who never found a groove at the plate this season, and Mike Yastrzemski.`\
 https://nytimes.com/athletic/5623170/2024/07/08/giants-takeaways-austin-slater-traded/

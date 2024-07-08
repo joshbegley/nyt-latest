@@ -1,3 +1,7 @@
+**France’s Leftist Coalition Surges, but Deadlock Looms**\
+`The New Popular Front outpaced the far-right National Rally during the second round of voting. But no party secured an absolute majority, leaving France with a hung Parliament.`\
+https://nytimes.com/video/world/europe/100000009559306/french-election-new-popular-front.html
+
 **South Korea appoint Hong Myung-bo as manager to replace Klinsmann**\
 `Hong Myung-bo has been appointed manager of South Korea for a second spell, five months after the sacking of Jurgen Klinsmann.`\
 https://nytimes.com/athletic/5623192/2024/07/08/south-korea-manager-hong-myung-bo-jurgen-klinsmann/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/08/arts/television/whats-on-tv-this-week-the-bachelo
 **Boeing Agrees to Plead Guilty to Felony in Deal With Justice Department**\
 `As part of the deal, stemming from fatal 737 Max crashes in 2018 and 2019, the company agreed to pay a fine of nearly half a billion dollars and strengthen its safety programs.`\
 https://nytimes.com/2024/07/08/business/boeing-justice-department-plea-deal.html
-
-**Monday Briefing**\
-`The left surges in French elections.`\
-https://nytimes.com/2024/07/08/briefing/france-elections-israel-protests-biden.html
 
