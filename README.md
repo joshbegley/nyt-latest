@@ -19,7 +19,7 @@ https://nytimes.com/interactive/2024/07/08/nyregion/immigration-us-border-family
 https://nytimes.com/2024/07/08/business/boeing-plea-deal-737-max.html
 
 **What Keegan Bradley’s shocking hire tells us about the U.S. Ryder Cup team's future**\
-`Sitting in front of the TV, surrounded by his family, watching the one event in the world he cares most about, Keegan Bradley didn’t lament his own absence.`\
+`Bradley's love for the Ryder Cup is well documented and has now been rewarded with the captaincy.`\
 https://nytimes.com/athletic/5624605/2024/07/08/keegan-bradley-us-ryder-cup-captain/
 
 **Biden Administration Rule Would Increase Authority to Block Foreign Deals**\
