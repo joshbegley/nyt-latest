@@ -1,5 +1,9 @@
+**The Second-Worst Decision Democrats Could Make Right Now**\
+`To argue against Kamala Harris is not inherently racist or sexist.`\
+https://nytimes.com/live/2024/07/02/opinion/thepoint/kamala-harris-democratic-nominee
+
 **2 Russian Women Found Guilty of ‘Justifying Terrorism’ for Their Play**\
-`The women were sentenced to six years in prison, a stark indication of the increasing suppression of free speech since Russia’s attack on Ukraine, their lawyers and critics say.`\
+`The theater director and playwright were sentenced to six years in prison, a stark indication of the increasing suppression of free speech since Russia’s attack on Ukraine, their lawyers and critics say.`\
 https://nytimes.com/2024/07/08/world/europe/russia-playwright-director-terrorism-guilty.html
 
 **Who’s Running Against Mayor Adams? The Answer May Shape Other Key Races.**\
@@ -31,10 +35,6 @@ https://nytimes.com/athletic/5624294/2024/07/08/antoine-griezmann-euro-2024/
 https://nytimes.com/athletic/5620099/2024/07/08/mats-wieffer-to-brighton-transfer-ratings/
 
 **Parkinson’s Expert Visited the White House Eight Times in Eight Months**\
-`The White House has said that President Biden has no signs of the disease and that there has been no reason to update the most recent testing, conducted in February.`\
+`The White House said President Biden had met with a neurologist only three times in more than three years in office. But it would not say whether the visiting expert was consulting with the president’s physician about his health.`\
 https://nytimes.com/2024/07/08/us/politics/parkinsons-expert-white-house.html
-
-**Mbappe still adjusting to impact of mask - Deschamps**\
-`France manager Didier Deschamps says Kylian Mbappe is still adjusting to the impact that wearing a mask has on his vision.`\
-https://nytimes.com/athletic/5624219/2024/07/08/kylian-mbappe-mask-france/
 
