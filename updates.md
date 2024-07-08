@@ -1,3 +1,15 @@
+**Want a Cake to Impress? Make This Vietnamese Classic.**\
+`Showstopping bánh bò nướng, tinted jade from aromatic pandan paste, is both comfort and delight to whoever encounters it.`\
+https://nytimes.com/2024/07/08/dining/banh-bo-nuong-vietnamese-cake.html
+
+**As Menendez’s star rose, fears of corruption cast a persistent shadow.**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2024/07/08/nyregion/menendez-trial/as-menendezs-star-rose-fears-of-corruption-cast-a-persistent-shadow
+
+**2 Russians Found Guilty of ‘Justifying Terrorism’ in Their Play About ISIS**\
+`A theater director and playwright were sentenced to prison, a stark indication of the increasing suppression of free speech since Russia’s attack on Ukraine, their lawyers and critics say.`\
+https://nytimes.com/2024/07/08/world/europe/russia-playwright-director-terrorism-guilty.html
+
 **France Learns a New Word: Ungovernable**\
 `Far from producing a “clarification,” President Emmanuel Macron’s snap election has yielded a muddle that could take months to sort out.`\
 https://nytimes.com/2024/07/08/world/europe/france-election-parliament-macron.html
