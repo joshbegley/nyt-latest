@@ -1,3 +1,7 @@
+**Here’s the latest on the storm.**\
+`By Edgar Sandoval, Miranda Rodriguez and Maria Jimenez Moya`\
+https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/heres-the-latest-on-the-storm
+
 **Live Updates: Beryl Expected to Hit Texas as a Hurricane**\
 `Forecasters warned that the storm could rapidly intensify, and officials said not enough people were evacuating.`\
 https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl
