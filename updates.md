@@ -1,3 +1,7 @@
+**Modi to Meet Putin in Moscow as India Charts Its Own Course**\
+`India is determined to keep its close ties to Russia despite pressure from the West. Russia sees the meeting as a chance to show it still has influential friends.`\
+https://nytimes.com/2024/07/08/world/asia/modi-putin-russia-india.html
+
 **What the Mood Is Like in France After Surprise Election Results**\
 `After the left surged and the far right fell short of expectations in the runoff, the question gripping the country was who would govern, and how.`\
 https://nytimes.com/2024/07/08/world/europe/france-election-reaction.html

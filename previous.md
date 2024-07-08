@@ -30,7 +30,7 @@ https://nytimes.com/2024/07/08/world/europe/russia-ukraine-missile-strikes-child
 `There's already proof of Fisch's ability to build up teams. How is it going so far at Washington?`\
 https://nytimes.com/athletic/5619992/2024/07/08/washington-football-jedd-fisch-roster-rebuild/
 
-**Modi to Meet Putin in Moscow as India Sets Its Own Foreign Policy**\
+**Modi to Meet Putin in Moscow as India Charts Its Own Course**\
 `India is determined to keep its close ties to Russia despite pressure from the West. Russia sees the meeting as a chance to show it still has influential friends.`\
 https://nytimes.com/2024/07/08/world/asia/modi-putin-russia-india.html
 
