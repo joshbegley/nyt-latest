@@ -3,7 +3,7 @@
 https://nytimes.com/2024/07/07/world/asia/orban-hungary-china-xi.html
 
 **Yankees’ Aaron Boone explains Rafael Devers decision that backfired in loss to Red Sox**\
-`Aaron Boone said he decided against calling on the bullpen because Luke Weaver, who was warm, and Gil both feature “similar profiles."`\
+`Aaron Boone said he decided against calling on the bullpen because Luke Weaver, who was warm, and Gil feature “similar profiles."`\
 https://nytimes.com/athletic/5623071/2024/07/07/yankees-luis-gil-rafael-devers-red-sox-home-run/
 
 **Quotation of the Day: Gastineau Exchanges The Spotlight For Serenity**\
