@@ -1,3 +1,11 @@
+**Who’s Running Against Mayor Adams? The Answer May Shape Other Key Races.**\
+`New York City officials, including the comptroller, Brad Lander, are weighing whether to challenge Eric Adams, potentially creating openings in other races.`\
+https://nytimes.com/2024/07/08/nyregion/adams-lander-mayor-election.html
+
+**Leeds complete signing of goalkeeper Cairns from Salford**\
+`Leeds United have signed goalkeeper Alex Cairns from League Two side Salford City for an undisclosed fee.`\
+https://nytimes.com/athletic/5624360/2024/07/08/alex-cairns-leeds-transfer/
+
 **France Is Not Used to Coalition Governments. Does It Have a Choice?**\
 `No party got an absolute majority in the National Assembly. Here are some of the ways the country could escape political gridlock. None are easy.`\
 https://nytimes.com/2024/07/08/world/europe/france-election-whats-next.html
