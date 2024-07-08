@@ -1,3 +1,11 @@
+**The Democratic Party Must Speak the Plain Truth to the President**\
+`The longer Democrats delay in getting Biden to step down, the harder it will be to replace him.`\
+https://nytimes.com/2024/07/08/opinion/editorials/democrats-biden-truth.html
+
+**Man United make improved £45m offer for Everton's Branthwaite**\
+`Manchester United have made an improved £45million plus £5m in add-ons offer for Everton defender Jarrad Branthwaite.`\
+https://nytimes.com/athletic/5565008/2024/07/08/manchester-united-jarrad-branthwaite/
+
 **Ivan Taylor, son of Ike Taylor, flips to Michigan from Notre Dame**\
 `Taylor, a top-60 safety and the son of former Pittsburgh Steelers DB Ike Taylor, switched his commitment to Michigan on Monday. `\
 https://nytimes.com/athletic/5624462/2024/07/08/ivan-taylor-michigan-notre-dame-flip/
