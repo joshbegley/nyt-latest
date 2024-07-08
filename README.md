@@ -1,3 +1,7 @@
+**Maresca to introduce 'right mentality and culture' at Chelsea**\
+`Enzo Maresca says his priority is to create the &#8220;right mentality and culture&#8221; as he begins his stint as Chelsea head coach.`\
+https://nytimes.com/athletic/5623311/2024/07/08/enzo-maresca-chelsea-first-interview/
+
 **Russia Destroys Children’s Hospital in Deadly Barrage Across Ukraine**\
 `President Volodymyr Zelensky said Russia had launched at least 40 missiles at targets across Ukraine, and he condemned the strike on the country’s largest children’s hospital.`\
 https://nytimes.com/2024/07/08/world/europe/russia-ukraine-missile-strikes-childrens-hospital.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5622764/2024/07/08/chicago-cubs-colten-brewer-craig
 **Sidney Crosby nearing new contract with Penguins: Sources**\
 `The potential deal is being viewed by both sides as “a commitment to Pittsburgh,” a team and league source said.`\
 https://nytimes.com/athletic/5622405/2024/07/08/sidney-crosby-pittsburgh-penguins-contract/
-
-**Manning Passing Academy: Star QBs on the decision to transfer or stay put**\
-`Transferring has become almost the norm for college QBs, so how do those prospects facing such tough decisions weigh the pros and cons.`\
-https://nytimes.com/athletic/5606629/2024/07/08/manning-academy-carson-beck-will-howard/
 
