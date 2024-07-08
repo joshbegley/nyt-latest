@@ -1,3 +1,15 @@
+**Steph Curry opens up on Klay Thompson's departure: 'I just want him to be happy'**\
+`Curry gives his thoughts on the end of the "Splash Brothers" era for the Warriors and the "rough" phone call he had with Thompson.`\
+https://nytimes.com/athletic/5623130/2024/07/08/steph-curry-klay-thompson-interview/
+
+**How a Death Doula Throws a Dinner Party**\
+`At the Baroque guesthouse she runs in Portugal, Rebecca Illing hosted old friends for a meal suffused with nostalgia.`\
+https://nytimes.com/2024/07/08/t-magazine/rebecca-illing-paco-da-gloria-portugal-dinner-party.html
+
+**Strikes on Kyiv Kill Several and Destroy a Children’s Hospital**\
+`Ukrainian officials said that Russia fired at least 40 long-range missiles at targets across their country, killing at least 20 people. Russian officials said they targeted military facilities and aviation bases but not civilian infrastructure.`\
+https://nytimes.com/video/world/middleeast/100000009559427/russia-strikes-kyiv-ukraine.html
+
 **As some allies whisper about ditching Biden, Black Democrats are rallying around him.**\
 `By Robert Jimison`\
 https://nytimes.com/live/2024/07/08/us/trump-biden-election/black-democrats-biden
