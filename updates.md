@@ -1,3 +1,7 @@
+**Trump Presses G.O.P. for Platform Draft That Softens Stance on Abortion**\
+`The document reflects the former president’s ideological grip on his party, outlining the same nationalistic priorities that his campaign website d`\
+https://nytimes.com/2024/07/08/us/politics/trump-abortion-gop.html
+
 **Power failures from hurricanes are projected to increase 50% in coming decades.**\
 `By Austyn Gaffney`\
 https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/hurricane-power-outages
