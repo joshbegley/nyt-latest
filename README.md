@@ -1,3 +1,7 @@
+**$1 Billion Bloomberg Gift to Hopkins Makes Tuition Free for Most Medical Students**\
+`The gift, made by Michael R. Bloomberg’s philanthropic organization, will also cover living expenses for some Johns Hopkins University students.`\
+https://nytimes.com/2024/07/08/us/bloomberg-donation-johns-hopkins-medical.html
+
 **See What Home Insurance Costs Where You Live**\
 `Insurance prices are surging unevenly across the country. How does your county compare?`\
 https://nytimes.com/interactive/2024/07/08/climate/home-insurance-cost-county.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009560879/biden-health-neurologist.h
 **Scaloni calls for European teams to play in Copa America**\
 `Argentina head coach Lionel Scaloni would like to see European Championship teams eventually participate in the Copa America and vice versa.`\
 https://nytimes.com/athletic/5625125/2024/07/08/copa-america-european-teams-scaloni/
-
-**The prosecutor described what he called a ‘clear pattern of corruption.’**\
-`By Nicholas Fandos`\
-https://nytimes.com/live/2024/07/08/nyregion/menendez-trial/the-prosecutor-described-what-he-called-a-clear-pattern-of-corruption
 
