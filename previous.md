@@ -1,3 +1,15 @@
+**Biden Tries to Soothe His Top Fund-Raisers on a Private Call**\
+`Over 19 minutes, the president repeated his assertion that he was staying in the race and suggested it was time to turn the focus back to Donald Trump.`\
+https://nytimes.com/2024/07/08/us/politics/biden-donor-call.html
+
+**This is the second time Menendez has faced federal corruption charges.**\
+`By Maia Coleman`\
+https://nytimes.com/live/2024/07/08/nyregion/menendez-trial/this-is-the-second-time-menendez-has-faced-federal-corruption-charges
+
+**'That was luck': Breaking down Sinner's ridiculous tweener against Ben Shelton**\
+`Jannik Sinner's tweener against Ben Shelton wasn't just a trickshot — it was an incredible feat of decision-making and execution`\
+https://nytimes.com/athletic/5624313/2024/07/08/jannik-sinner-tweener-ben-shelton-wimbledon-tennis-trickshot/
+
 **Euro 2024 semifinal, champion odds: Spain emerges as new favorite ahead of England**\
 `Spain is the new favorite to win Euro 2024 ahead of the semifinals. The Spaniards replaced England in the top spot in the odds.`\
 https://nytimes.com/athletic/5624242/2024/07/08/euro-2024-semifinal-odds-spain-england-france-netherlands/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/08/world/europe/russia-playwright-director-terrorism
 **Who’s Running Against Mayor Adams? The Answer May Shape Other Key Races.**\
 `New York City officials, including the comptroller, Brad Lander, are weighing whether to challenge Eric Adams, potentially creating openings in other races.`\
 https://nytimes.com/2024/07/08/nyregion/adams-lander-mayor-election.html
-
-**Leeds complete signing of goalkeeper Cairns from Salford**\
-`Leeds United have signed goalkeeper Alex Cairns from League Two side Salford City for an undisclosed fee.`\
-https://nytimes.com/athletic/5624360/2024/07/08/alex-cairns-leeds-transfer/
-
-**France Is Not Used to Coalition Governments. Does It Have a Choice?**\
-`No party got an absolute majority in the National Assembly. Here are some of the ways the country could escape political gridlock. None are easy.`\
-https://nytimes.com/2024/07/08/world/europe/france-election-whats-next.html
-
-**James Carville: Biden Won’t Win. Democrats Need a Plan. Here’s One.**\
-`Democrats need a new presidential nominee and can’t rig things for any one candidate. Here’s an idea for how to move forward.`\
-https://nytimes.com/2024/07/08/opinion/biden-democratic-nominee.html
 
