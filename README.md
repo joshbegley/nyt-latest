@@ -1,3 +1,7 @@
+**Live Updates: Beryl Expected to Hit Texas as a Hurricane**\
+`Forecasters warned that the storm could rapidly intensify, and officials said not enough people were evacuating.`\
+https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl
+
 **‘House of the Dragon’ Season 2, Episode 4: Fire in the Sky**\
 `This week brings all-out warfare and the death of a key character.`\
 https://nytimes.com/2024/07/07/arts/television/recap-house-of-the-dragon-dance-of-dragons.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/books/best-books-21st-century.html
 **Path to the All-Star Game for 5 Cleveland Guardians**\
 `Cleveland will send five players to the All-Star Game, the highest count of any AL club.`\
 https://nytimes.com/athletic/5622138/2024/07/07/cleveland-guardians-all-stars/
-
-**Meet David Ellison, Paramount’s Future Boss and Hollywood’s Newest Mogul**\
-`He left college to try out acting. Now, he’s set to become one of the most powerful people in Hollywood.`\
-https://nytimes.com/2024/07/07/business/media/david-ellison-paramount-skydance.html
 
