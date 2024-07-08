@@ -1,3 +1,7 @@
+**The Pulse: The MLB All-Stars you get to learn about**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5623046/2024/07/08/mlb-all-star-rosters-the-pulse/
+
 **A Remarkable Comeback**\
 `“This is the kind of thing that we couldn’t have even dreamed about five or six years ago,” one expert said about changes in some American counties.`\
 https://nytimes.com/2024/07/08/briefing/a-remarkable-comeback-for-left-behind-counties.html

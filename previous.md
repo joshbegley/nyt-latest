@@ -1,3 +1,7 @@
+**The Pulse: The MLB All-Stars you get to learn about**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5623046/2024/07/08/mlb-all-star-rosters-the-pulse/
+
 **A Remarkable Comeback**\
 `“This is the kind of thing that we couldn’t have even dreamed about five or six years ago,” one expert said about changes in some American counties.`\
 https://nytimes.com/2024/07/08/briefing/a-remarkable-comeback-for-left-behind-counties.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5622077/2024/07/08/twins-carlos-correa-all-star-wal
 **Will Bo Nix emerge in a 3-quarterback race at Broncos training camp?**\
 `Plus, a look at a running back who could be on the roster bubble and possible free-agent additions`\
 https://nytimes.com/athletic/5619971/2024/07/08/broncos-quarterbacks-bo-nix-starter/
-
-**'Leo has to be taken care of': How Argentina is preparing for life without Messi**\
-`Argentina's No 10 has yet to score at Copa America but has been involved in more build-up play than anyone else`\
-https://nytimes.com/athletic/5622451/2024/07/08/lionel-messi-argentina-copa-america-win/
 
