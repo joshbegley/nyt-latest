@@ -1,3 +1,11 @@
+**Greenberg: DeMar DeRozan was great player on forgettable Bulls teams**\
+`DeRozan was a star and leader who helped the Bulls out of the muck and into the bottom tier of respectability. Where do they go from here?`\
+https://nytimes.com/athletic/5624070/2024/07/08/chicago-bulls-demar-derozan/
+
+**An Aversion to Political Protests**\
+`Readers discuss a column by Pamela Paul. Also: Criticism of The Times’s Biden-Trump coverage; why voting matters; helping migrants in New York.`\
+https://nytimes.com/2024/07/08/opinion/political-protests-gaza.html
+
 **Children With Autism Carry Unique Gut Flora, Study Finds**\
 `The research, which builds on previous work, eventually may lead to a more objective diagnostic tool, scientists said.`\
 https://nytimes.com/2024/07/08/health/autism-gut-microbiome.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/08/theater/avignon-festival-spanish.html
 **Capitals promote Chris Patrick to GM**\
 `Patrick becomes the seventh general manager in franchise history.`\
 https://nytimes.com/athletic/5624143/2024/07/08/capitals-chris-patrick-gm-brian-maclellan/
-
-**Will France's players be liberated after 'immense relief' of country's election outcome?**\
-`France's players have been outspoken about the political situation in their country, voicing their concern about the rise of the far right`\
-https://nytimes.com/athletic/5623446/2024/07/08/france-politics-election-euros/
-
-**What Primary Voters Didn’t Know About President Biden**\
-`Many of his supporters are now angry they weren’t aware of his condition.`\
-https://nytimes.com/live/2024/07/02/opinion/thepoint/primary-voters-biden
 
