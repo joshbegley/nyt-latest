@@ -1,3 +1,19 @@
+**The Athletic FC: Details behind England penalty win; USMNT does not have 'golden generation'**\
+`Today in The Athletic FC: Analysing details of England's shootout win, the USMNT's 'golden generation myth', and when is it time to retire?`\
+https://nytimes.com/athletic/5623313/2024/07/08/the-athletic-fc-england-penalty-win-usmnt-golden-generation-myth/
+
+**Olise, Mateta and Lacazette in France's Olympic squad**\
+`France have named their 18-player men’s football squad for the 2024 Olympics, alongside four replacement players.`\
+https://nytimes.com/athletic/5623590/2024/07/08/france-soccer-olympics-squad/
+
+**The 50-Year-Old Skateboarder Bound for the Paris Olympics**\
+`Andy Macdonald has succeeded in a sport dominated by the very young.`\
+https://nytimes.com/2024/07/08/sports/olympics/andy-macdonald-olympics.html
+
+**Canada's Stephen Eustaquio finds purpose in Copa America after his parents' tragic deaths**\
+`The Canada vice-captain will have a sense of perspective - even ahead of the biggest game of his career `\
+https://nytimes.com/athletic/5622440/2024/07/08/canada-stephen-eustaquio-copa-america/
+
 **Greenwood reports to United to discuss Old Trafford exit**\
 `Mason Greenwood reported to Manchester United&#8217;s training ground on Monday morning to continue talks over an exit from Old Trafford.`\
 https://nytimes.com/athletic/5623368/2024/07/08/mason-greenwood-man-utd-exit/
@@ -22,4 +38,3 @@ https://nytimes.com/athletic/5623017/2024/07/08/anthony-edwards-team-usa-olympic
 `By Hiba Yazbek`\
 https://nytimes.com/live/2024/07/08/world/israel-gaza-war-hamas/the-israeli-military-returned-to-an-area-of-gaza-city-where-it-said-hamas-had-reestablished-itself
 
-**A Hezbollah strike injures a U.S. citizen in Israel, and other news.**\
