@@ -1,3 +1,15 @@
+**Rain dampens NASCAR's Chicago showcase again, but the forecast isn't so dreary**\
+`NASCAR's Chicago showcase has been marred by bad weather and political battles. After two years, though, it's managing to win people over.`\
+https://nytimes.com/athletic/5623653/2024/07/08/nascar-chicago-street-race-future-rain/
+
+**Canucks 2024 offseason moves: Where are they better? Where are they worse?**\
+`Breaking down where and how the Canucks have improved their roster using Dom Luszczyszyn’s Net Rating model.`\
+https://nytimes.com/athletic/5615939/2024/07/08/canucks-2024-offseason-moves/
+
+**Bukayo Saka's is not a redemption story. He had nothing to redeem**\
+`A penalty that was presented as a chance to exorcise demons carried with it the threat of renewed mockery and hatred`\
+https://nytimes.com/athletic/5621596/2024/07/08/saka-penalty-nothing-to-redeem/
+
 **Did You Sell Your Home to Pay for Your Child’s College? We Want to Hear From You.**\
 `With the cost of  college through the roof, some parents have sold their homes or taken out exorbitant loans to pay for their child’s degree. Share your story with us.`\
 https://nytimes.com/2024/07/08/realestate/home-sold-mortgage-college-tuition.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/hurricane-power-out
 **Svitolina wears black ribbon during Wimbledon match after missile strike in Ukraine**\
 `Elina Svitolina wore a black ribbon during her Wimbledon last-16 match against Wang Xiyu, after Russian missile strikes killed and injured more than 100 Ukrainians across the country this morning.`\
 https://nytimes.com/athletic/5624030/2024/07/08/elina-svitolina-wimbledon-ukraine/
-
-**Trump Presses G.O.P. for Platform Draft That Softens Stance on Abortion**\
-`The document reflects the former president’s ideological grip on his party, outlining the same nationalistic priorities that his campaign website d`\
-https://nytimes.com/2024/07/08/us/politics/trump-abortion-gop.html
-
-**Alex Bowman, after Chicago Street Race win, can finally enjoy that bourbon**\
-`Alex Bowman has a celebratory bottle on his counter at home that's been waiting a long time to be opened. Now, he finally gets to crack it.`\
-https://nytimes.com/athletic/5623869/2024/07/08/alex-bowman-chicago-street-race-nascar-bourbon/
-
-**The Windup: Tons of first-time All-Stars**\
-`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
-https://nytimes.com/athletic/5624068/2024/07/08/mlb-all-star-game-snubs-yankees-ben-rice-the-windup/
 
