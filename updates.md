@@ -1,3 +1,7 @@
+**Mapping How France Voted**\
+`No party secured an absolute majority in legislative elections on Sunday, leaving France headed for gridlock or political instability.`\
+https://nytimes.com/2024/07/08/world/europe/france-election-maps.html
+
 **Who is Jah Jackson, Georgia's newest recruit?**\
 `Just a few months ago, Jackson appeared headed to a pro basketball career. Now, he's headed to Georgia as a football recruit.`\
 https://nytimes.com/athletic/5617059/2024/07/08/jah-jackson-georgia-football/
