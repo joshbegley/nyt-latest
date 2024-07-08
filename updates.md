@@ -1,3 +1,11 @@
+**The non-all-star All-Stars: Lindor, Gil and other MLB snubs at each position**\
+`These are the most worthy players at each position who, so far, won't be taking part in next week's All-Star Game.`\
+https://nytimes.com/athletic/5622773/2024/07/07/mlb-all-star-game-roster-snubs-2024/
+
+**Beryl could knock out power in Texas. How has the grid fared before?**\
+`By Isabelle Taft`\
+https://nytimes.com/live/2024/07/07/us/hurricane-beryl-texas/beryl-could-knock-out-power-in-texas-how-has-the-grid-fared-before
+
 **Chris Sale, Marcell Ozuna and Reynaldo López took unique routes to NL All-Star team**\
 `The Braves have three 2024 All-Stars in Chris Sale, Marcell Ozuna and Reynaldo López. They helped keep them above water in the first half.`\
 https://nytimes.com/athletic/5622790/2024/07/07/braves-all-stars-chris-sale-marcell-ozuna-reynaldo-lopez/
