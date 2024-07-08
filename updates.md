@@ -1,3 +1,11 @@
+**Greenwood reports to United to discuss Old Trafford exit**\
+`Mason Greenwood reported to Manchester United&#8217;s training ground on Monday morning to continue talks over an exit from Old Trafford.`\
+https://nytimes.com/athletic/5623368/2024/07/08/mason-greenwood-man-utd-exit/
+
+**U.S. names men's soccer roster for Olympics**\
+`The U.S. men's Olympic soccer team will first play France on July 24 — two days before the Opening Ceremony — at Stade de Marseille.`\
+https://nytimes.com/athletic/5623059/2024/07/08/us-mens-soccer-roster-paris-olympics/
+
 **Michael Olise to Bayern Munich: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Michael Olise's move to Bayern Munich`\
 https://nytimes.com/athletic/5616228/2024/07/08/michael-olise-to-bayern-munich-the-athletic-500-transfer-ratings/

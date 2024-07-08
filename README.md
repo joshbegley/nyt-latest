@@ -1,3 +1,7 @@
+**The 50-Year-Old Skateboarder Bound for the Paris Olympics**\
+`Andy Macdonald has succeeded in a sport dominated by the very young.`\
+https://nytimes.com/2024/07/08/sports/olympics/andy-macdonald-olympics.html
+
 **Greenwood reports to United to discuss Old Trafford exit**\
 `Mason Greenwood reported to Manchester United&#8217;s training ground on Monday morning to continue talks over an exit from Old Trafford.`\
 https://nytimes.com/athletic/5623368/2024/07/08/mason-greenwood-man-utd-exit/
