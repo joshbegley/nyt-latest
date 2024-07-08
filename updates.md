@@ -1,3 +1,7 @@
+**NFL suspends Steelers CB Sutton for 8 games**\
+`Cameron Sutton turned himself into police in March after an arrest warrant was issued for charges of domestic battery by strangulation.`\
+https://nytimes.com/athletic/5624878/2024/07/08/cam-sutton-steelers-nfl-suspension/
+
 **After an Election Surprise, What’s Next for France?**\
 `Far from producing clarity, the snap election called by President Emmanuel Macron of France has yielded a muddle that could take months to sort out.`\
 https://nytimes.com/video/world/europe/100000009559350/after-an-election-surprise-whats-next-for-france.html
