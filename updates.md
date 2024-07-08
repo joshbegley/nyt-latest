@@ -1,3 +1,11 @@
+**Viktor Orban, Hungary’s Leader, Meets With Xi in China After Talks With Putin**\
+`Mr. Orban said his visit to Beijing was part of a “peace mission” for Ukraine. But both leaders want to offset Western power.`\
+https://nytimes.com/2024/07/07/world/asia/orban-hungary-china-xi.html
+
+**Yankees’ Aaron Boone explains Rafael Devers decision that backfired in loss to Red Sox**\
+`Aaron Boone said he decided against calling on the bullpen because Luke Weaver, who was warm, and Gil both feature “similar profiles."`\
+https://nytimes.com/athletic/5623071/2024/07/07/yankees-luis-gil-rafael-devers-red-sox-home-run/
+
 **Quotation of the Day: Gastineau Exchanges The Spotlight For Serenity**\
 `Quotation of the Day for Monday, July 8, 2024.`\
 https://nytimes.com/2024/07/07/pageoneplus/quotation-of-the-day-gastineau-exchanges-the-spotlight-for-serenity.html
