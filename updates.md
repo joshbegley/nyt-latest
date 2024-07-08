@@ -1,3 +1,7 @@
+**A Novel of Romance, Secrets and Many Crises**\
+`With “Husbands & Lovers,” Beatriz Williams delivers a multigenerational yarn and a memorable ending.`\
+https://nytimes.com/2024/07/08/books/review/husbands-and-lovers-beatriz-williams.html
+
 **Chelsea reach agreement with Atlanta to sign Wiley**\
 `Chelsea have reached an agreement with Atlanta United to sign left-back Caleb Wiley.`\
 https://nytimes.com/athletic/5624615/2024/07/08/chelsea-transfer-news-caleb-wiley/
