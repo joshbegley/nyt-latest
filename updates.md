@@ -1,3 +1,11 @@
+**France Is Not Used to Coalition Governments. Does It Have a Choice?**\
+`No party got an absolute majority in the National Assembly. Here are some of the ways the country could escape political gridlock. None are easy.`\
+https://nytimes.com/2024/07/08/world/europe/france-election-whats-next.html
+
+**James Carville: Biden Won’t Win. Democrats Need a Plan. Here’s One.**\
+`Democrats need a new presidential nominee and can’t rig things for any one candidate. Here’s an idea for how to move forward.`\
+https://nytimes.com/2024/07/08/opinion/biden-democratic-nominee.html
+
 **Have You Ever Had a Bad Therapist? Tell Us About It.**\
 `A New York Times mental health reporter wants to hear why therapy didn’t work out.`\
 https://nytimes.com/2024/07/08/well/mind/therapy-red-flags-callout.html
