@@ -1,3 +1,15 @@
+**Russia Destroys Children’s Hospital in Deadly Barrage Across Ukraine**\
+`President Volodymyr Zelensky said Russia had launched at least 40 missiles at targets across Ukraine, and he condemned the strike on the country’s largest children’s hospital.`\
+https://nytimes.com/2024/07/08/world/europe/russia-ukraine-missile-strikes-childrens-hospital.html
+
+**'We can go one way or the other': Washington's unique rebuild under Jedd Fisch**\
+`There's already proof of Fisch's ability to build up teams. How is it going so far at Washington?`\
+https://nytimes.com/athletic/5619992/2024/07/08/washington-football-jedd-fisch-roster-rebuild/
+
+**Modi to Meet Putin in Moscow as India Sets Its Own Foreign Policy**\
+`India is determined to keep its close ties to Russia despite pressure from the West. Russia sees the meeting as a chance to show it still has influential friends.`\
+https://nytimes.com/2024/07/08/world/asia/modi-putin-russia-india.html
+
 **Key Democrats Doubt Biden, and the Left Surges in France**\
 `Plus, a firestorm over Mexico City’s salsas.`\
 https://nytimes.com/2024/07/08/podcasts/biden-france-election.html
