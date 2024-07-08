@@ -1,3 +1,7 @@
+**Live Updates: Beryl Expected to Hit Texas as a Hurricane**\
+`Forecasters warned that the storm could rapidly intensify, and officials said not enough people were evacuating.`\
+https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl
+
 **Beryl could knock out power in Texas. How has the grid fared before?**\
 `By Isabelle Taft`\
 https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/beryl-could-knock-out-power-in-texas-how-has-the-grid-fared-before
