@@ -1,3 +1,7 @@
+**The 100 Best Books of the 21st Century**\
+`As voted on by 503 book lovers — with a little help from the staff of The New York Times Book Review.`\
+https://nytimes.com/interactive/2024/books/best-books-21st-century.html
+
 **The non-all-star All-Stars: Lindor, Gil and other MLB snubs at each position**\
 `These are the most worthy players at each position who, so far, won't be taking part in next week's All-Star Game.`\
 https://nytimes.com/athletic/5622773/2024/07/07/mlb-all-star-game-roster-snubs-2024/
