@@ -1,3 +1,7 @@
+**Word of the Day: parched**\
+`This word has appeared in 83 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/07/08/learning/word-of-the-day-parched.html
+
 **What’s on TV This Week: ‘The Bachelorette’ and ‘Claim to Fame’**\
 `Jenn Tran hands out roses on ABC. Kevin and Franklin Jonas host a show with the relatives of stars.`\
 https://nytimes.com/2024/07/08/arts/television/whats-on-tv-this-week-the-bachelorette-and-claim-to-fame.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5621727/2024/07/08/germany-kroos-neuer-nagelsmann-w
 **Arsenal, their academy and why young players are rarely getting a first-team chance**\
 `Arsenal had a poor record of exposing their young players to first-team football last season. Is it going to change in 2024-25?`\
 https://nytimes.com/athletic/5596080/2024/07/08/arsenal-their-academy-and-why-young-players-are-rarely-getting-a-first-team-chance/
-
-**Soaring Temperatures and Profit Seekers Amplify Dangers on the Hajj**\
-`“The halls felt like they were on fire,” one Jordanian woman said of her accommodations after she opted to take a cheaper travel package for “unregistered” pilgrims to Saudi Arabia.`\
-https://nytimes.com/2024/07/08/world/middleeast/hajj-unregistered-pilgrims-heat-deaths.html
 
