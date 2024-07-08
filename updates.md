@@ -1,3 +1,7 @@
+**Will Tom Brady actually bring viewers to Fox? Sports Media Mailbag, Part 1**\
+`Also: Questions on the sports TV rights bubble, Fox's soccer coverage, and how much growth potential is still there for women's sports.`\
+https://nytimes.com/athletic/5612292/2024/07/08/tom-brady-fox-sports-broadcasting-media-mailbag/
+
 **Who is Christopher Vivell? Man Utd's new recruitment guru explained**\
 `A full backgrounder on Manchester United's latest off-field appointment`\
 https://nytimes.com/athletic/5617722/2024/07/08/christopher-vivell-manchester-united-explained/
