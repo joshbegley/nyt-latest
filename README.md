@@ -1,3 +1,7 @@
+**Justice Amy Coney Barrett’s Independent Streak Marked Supreme Court Term**\
+`The junior member of the court’s six-justice conservative supermajority often questioned its approach and wrote important dissents joined by liberal justices.`\
+https://nytimes.com/2024/07/08/us/politics/amy-coney-barrett-supreme-court-justice.html
+
 **Columbia Removes Three Deans, Saying Texts Touched on ‘Antisemitic Tropes’**\
 `Nemat Shafik, the university president, called the sentiments in the text messages “unacceptable and deeply upsetting.”`\
 https://nytimes.com/2024/07/08/nyregion/columbia-university-deans-antisemitism.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5617059/2024/07/08/jah-jackson-georgia-football/
 **Red Bull’s seesaw British GP heralds a fascinating 2024 F1 championship fight**\
 `Verstappen remains incredibly hard to beat, but making the right calls will make all the difference now. `\
 https://nytimes.com/athletic/5623782/2024/07/08/f1-red-bull-max-verstappen-british-grand-prix/
-
-**England starting XI to face Netherlands: Drop Kane? Guehi back? Eze for Foden?**\
-`England still have questions to answer about their best team for Wednesday's clash with Netherlands. So who should start?`\
-https://nytimes.com/athletic/5623300/2024/07/08/england-team-netherlands-euro-2024/
 
