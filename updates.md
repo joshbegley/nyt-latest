@@ -1,3 +1,7 @@
+**In the Aging Senate, Nobody Wants to Be the One to Nudge Biden Aside**\
+`Senators have had plenty of practice watching colleagues hold stubbornly onto their positions of power as they grow old. None wants to lead a public call for President Biden to withdraw.`\
+https://nytimes.com/2024/07/08/us/politics/senate-age-biden.html
+
 **Multibillion-Dollar Fraud Trial Against Archegos Founder Nears Its End**\
 `Prosecutors and lawyers presented closing arguments in the case against Bill Hwang, who is charged with 11 counts including securities fraud and racketeering.`\
 https://nytimes.com/2024/07/08/business/archegos-closing-arguments-bill-hwang.html

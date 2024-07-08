@@ -1,3 +1,7 @@
+**In the Aging Senate, Nobody Wants to Be the One to Nudge Biden Aside**\
+`Senators have had plenty of practice watching colleagues hold stubbornly onto their positions of power as they grow old. None wants to lead a public call for President Biden to withdraw.`\
+https://nytimes.com/2024/07/08/us/politics/senate-age-biden.html
+
 **Multibillion-Dollar Fraud Trial Against Archegos Founder Nears Its End**\
 `Prosecutors and lawyers presented closing arguments in the case against Bill Hwang, who is charged with 11 counts including securities fraud and racketeering.`\
 https://nytimes.com/2024/07/08/business/archegos-closing-arguments-bill-hwang.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/08/world/europe/france-election-parliament-macron.ht
 **The Second-Worst Decision Democrats Could Make Right Now**\
 `To argue against Kamala Harris is not inherently racist or sexist.`\
 https://nytimes.com/live/2024/07/02/opinion/thepoint/kamala-harris-democratic-nominee
-
-**2 Russians Found Guilty of ‘Justifying Terrorism’ in Their Play About ISIS**\
-`A theater director and playwright were sentenced to prison, a stark indication of the increasing suppression of free speech since Russia’s attack on Ukraine, their lawyers and critics say.`\
-https://nytimes.com/2024/07/08/world/europe/russia-playwright-director-terrorism-guilty.html
 
