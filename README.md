@@ -1,3 +1,7 @@
+**Here’s the latest on the storm.**\
+`By Edgar Sandoval, Miranda Rodriguez and Maria Jimenez Moya`\
+https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/heres-the-latest-on-the-storm
+
 **Live Updates: Beryl Expected to Hit Texas as a Hurricane**\
 `Forecasters warned that the storm could rapidly intensify, and officials said not enough people were evacuating.`\
 https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/books/authors-top-books-21st-century.html
 **The 100 Best Books of the 21st Century**\
 `As voted on by 503 book lovers — with a little help from the staff of The New York Times Book Review.`\
 https://nytimes.com/interactive/2024/books/best-books-21st-century.html
-
-**Path to the All-Star Game for 5 Cleveland Guardians**\
-`Cleveland will send five players to the All-Star Game, the highest count of any AL club.`\
-https://nytimes.com/athletic/5622138/2024/07/07/cleveland-guardians-all-stars/
 
