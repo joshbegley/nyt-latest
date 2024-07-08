@@ -1,3 +1,7 @@
+**Who is Jah Jackson, Georgia's newest recruit?**\
+`Just a few months ago, Jackson appeared headed to a pro basketball career. Now, he's headed to Georgia as a football recruit.`\
+https://nytimes.com/athletic/5617059/2024/07/08/jah-jackson-georgia-football/
+
 **Red Bull’s seesaw British GP heralds a fascinating 2024 F1 championship fight**\
 `Verstappen remains incredibly hard to beat, but making the right calls will make all the difference now. `\
 https://nytimes.com/athletic/5623782/2024/07/08/f1-red-bull-max-verstappen-british-grand-prix/
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000009553674/how-our-reporter-learned-to-l
 **Steph Curry opens up on Klay Thompson's difficult Warriors departure: 'I just want him to be happy'**\
 `Curry gives his thoughts on the end of the "Splash Brothers" era for the Warriors and the "rough" phone call he had with Thompson.`\
 https://nytimes.com/athletic/5623130/2024/07/08/steph-curry-klay-thompson-interview/
-
-**How a Death Doula Throws a Dinner Party**\
-`At the Baroque guesthouse she runs in Portugal, Rebecca Illing hosted old friends for a meal suffused with nostalgia.`\
-https://nytimes.com/2024/07/08/t-magazine/rebecca-illing-paco-da-gloria-portugal-dinner-party.html
 
