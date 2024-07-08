@@ -1,3 +1,7 @@
+**Liverpool appoint former Man City analyst Briggs as elite development coach**\
+`Liverpool have added former Manchester City analyst and coach Aaron Briggs to Arne Slot’s backroom staff.`\
+https://nytimes.com/athletic/5623689/2024/07/08/liverpool-aaron-briggs-development-coach/
+
 **Where Beryl Is Expected to Go Next**\
 `The storm will move through the United States this week.`\
 https://nytimes.com/2024/07/08/weather/where-beryl-goes-next-forecast.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5616228/2024/07/08/michael-olise-to-bayern-munich-t
 **Biden’s Wall Street Donors Are Increasingly ‘Concerned’**\
 `Major backers in finance spent the weekend discussing whether to stick with the president, or to call on him to withdraw.`\
 https://nytimes.com/2024/07/08/business/dealbook/bidens-wall-street-donors.html
-
-**Anthony Edwards as Team USA's 'No. 1 option?' Not even he really thinks that**\
-`Despite his headline-grabbing quote, Edwards knows that Kevin Durant, LeBron James and Steph Curry are the team's most respected players.`\
-https://nytimes.com/athletic/5623017/2024/07/08/anthony-edwards-team-usa-olympics-no-1/
 
