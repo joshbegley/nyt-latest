@@ -1,3 +1,7 @@
+**A tiny Texas town where Beryl made landfall counts its blessings.**\
+`Matagorda, a`\
+https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/matagorda-texas-hurricane-beryl
+
 **Michigan tops PSU, Bama, Florida for 4-star Pennsylvania TE**\
 `Andrew Olesh, the No. 3 prospect in Pennsylvania, announced his commitment to Sherrone Moore and Michigan football on Monday.`\
 https://nytimes.com/athletic/5624963/2024/07/08/andrew-olesh-michigan-football-recruiting-commitment/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/08/briefing/08evening-biden-ukraine-france-tropical-
 **The Democratic Party Must Speak the Plain Truth to the President**\
 `The longer Democrats delay in getting Biden to step down, the harder it will be to replace him.`\
 https://nytimes.com/2024/07/08/opinion/editorials/democrats-biden-truth.html
-
-**Man United make improved £45m offer for Everton's Branthwaite**\
-`Manchester United have made an improved £45million plus £5m in add-ons offer for Everton defender Jarrad Branthwaite.`\
-https://nytimes.com/athletic/5565008/2024/07/08/manchester-united-jarrad-branthwaite/
 
