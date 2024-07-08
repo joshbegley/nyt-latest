@@ -1,3 +1,7 @@
+**Quotation of the Day: Gastineau Exchanges The Spotlight For Serenity**\
+`Quotation of the Day for Monday, July 8, 2024.`\
+https://nytimes.com/2024/07/07/pageoneplus/quotation-of-the-day-gastineau-exchanges-the-spotlight-for-serenity.html
+
 **Here’s the latest on the storm.**\
 `By Edgar Sandoval, Miranda Rodriguez and Maria Jimenez Moya`\
 https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/heres-the-latest-on-the-storm
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5622827/2024/07/07/angel-reese-double-double-record
 **Stephen King, Sarah Jessica Parker and More Share Their Top Books of the 21st Century**\
 `We asked some literary luminaries to share their full ballots.`\
 https://nytimes.com/interactive/2024/books/authors-top-books-21st-century.html
-
-**The 100 Best Books of the 21st Century**\
-`As voted on by 503 book lovers — with a little help from the staff of The New York Times Book Review.`\
-https://nytimes.com/interactive/2024/books/best-books-21st-century.html
 
