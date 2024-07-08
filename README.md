@@ -1,3 +1,7 @@
+**Leeds complete signing of goalkeeper Cairns from Salford**\
+`Leeds United have signed goalkeeper Alex Cairns from League Two side Salford City for an undisclosed fee.`\
+https://nytimes.com/athletic/5624360/2024/07/08/alex-cairns-leeds-transfer/
+
 **France Is Not Used to Coalition Governments. Does It Have a Choice?**\
 `No party got an absolute majority in the National Assembly. Here are some of the ways the country could escape political gridlock. None are easy.`\
 https://nytimes.com/2024/07/08/world/europe/france-election-whats-next.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5624070/2024/07/08/chicago-bulls-demar-derozan/
 **An Aversion to Political Protests**\
 `Readers discuss a column by Pamela Paul. Also: Criticism of The Times’s Biden-Trump coverage; why voting matters; helping migrants in New York.`\
 https://nytimes.com/2024/07/08/opinion/political-protests-gaza.html
-
-**Children With Autism Carry Unique Gut Flora, Study Finds**\
-`The research, which builds on previous work, eventually may lead to a more objective diagnostic tool, scientists said.`\
-https://nytimes.com/2024/07/08/health/autism-gut-microbiome.html
 
