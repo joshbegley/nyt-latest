@@ -1,3 +1,7 @@
+**Where the Heat Wave Broke Records in California**\
+`In many places, a scorching Independence Day led into an even hotter weekend.`\
+https://nytimes.com/2024/07/08/us/heat-wave-broke-records-california.html
+
 **Liverpool appoint former Man City analyst Briggs as elite development coach**\
 `Liverpool have added former Manchester City analyst and coach Aaron Briggs to Arne Slot’s backroom staff.`\
 https://nytimes.com/athletic/5623689/2024/07/08/liverpool-aaron-briggs-development-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5623059/2024/07/08/us-mens-soccer-roster-paris-olym
 **Michael Olise to Bayern Munich: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Michael Olise's move to Bayern Munich`\
 https://nytimes.com/athletic/5616228/2024/07/08/michael-olise-to-bayern-munich-the-athletic-500-transfer-ratings/
-
-**Biden’s Wall Street Donors Are Increasingly ‘Concerned’**\
-`Major backers in finance spent the weekend discussing whether to stick with the president, or to call on him to withdraw.`\
-https://nytimes.com/2024/07/08/business/dealbook/bidens-wall-street-donors.html
 
