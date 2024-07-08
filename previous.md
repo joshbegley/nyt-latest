@@ -1,3 +1,11 @@
+**Will France's players be liberated after 'immense relief' of country's election outcome?**\
+`France's players have been outspoken about the political situation in their country, voicing their concern about the rise of the far right`\
+https://nytimes.com/athletic/5623446/2024/07/08/france-politics-election-euros/
+
+**What Primary Voters Didn’t Know About President Biden**\
+`Many of his supporters are now angry they weren’t aware of his condition.`\
+https://nytimes.com/live/2024/07/02/opinion/thepoint/primary-voters-biden
+
 **Power failures from hurricanes are projected to increase 50% in coming decades.**\
 `By Austyn Gaffney`\
 https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/hurricane-power-outages
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/08/well/nara-smith-sunscreen-toothpaste-tiktok.html
 **A Wall Street Law Firm Wants to Define Consequences of Anti-Israel Protests**\
 `Sullivan & Cromwell is requiring job applicants to explain their participation in protests. Critics see the policy as a way to silence speech about the war.`\
 https://nytimes.com/2024/07/08/business/sullivan-cromwell-israel-protests.html
-
-**Wrexham youngsters in limbo as club's academy upgrading bid is rejected - so what next?**\
-`The club, owned by Hollywood stars Ryan Reynolds and Rob McElhenney, will appeal the decision to refuse their academy Category 3 status`\
-https://nytimes.com/athletic/5623348/2024/07/08/wrexham-academy-grading-category-three/
-
-**Every High School Student Can Save a Life**\
-`We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Alexander Klee, age 16.`\
-https://nytimes.com/2024/07/08/learning/every-high-school-student-can-save-a-life.html
 

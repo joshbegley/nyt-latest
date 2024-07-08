@@ -1,3 +1,11 @@
+**Will France's players be liberated after 'immense relief' of country's election outcome?**\
+`France's players have been outspoken about the political situation in their country, voicing their concern about the rise of the far right`\
+https://nytimes.com/athletic/5623446/2024/07/08/france-politics-election-euros/
+
+**What Primary Voters Didn’t Know About President Biden**\
+`Many of his supporters are now angry they weren’t aware of his condition.`\
+https://nytimes.com/live/2024/07/02/opinion/thepoint/primary-voters-biden
+
 **Trump Presses G.O.P. for Platform Draft That Softens Stance on Abortion**\
 `The document reflects the former president’s ideological grip on his party, outlining the same nationalistic priorities that his campaign website d`\
 https://nytimes.com/2024/07/08/us/politics/trump-abortion-gop.html
