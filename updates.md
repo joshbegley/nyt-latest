@@ -1,3 +1,11 @@
+**At Avignon Festival, Theater’s World Gets Wider**\
+`Under its new director, the event is shining a spotlight on countries and performers rarely represented on the biggest European stages.`\
+https://nytimes.com/2024/07/08/theater/avignon-festival-spanish.html
+
+**Capitals promote Chris Patrick to GM**\
+`Patrick becomes the seventh general manager in franchise history.`\
+https://nytimes.com/athletic/5624143/2024/07/08/capitals-chris-patrick-gm-brian-maclellan/
+
 **Will France's players be liberated after 'immense relief' of country's election outcome?**\
 `France's players have been outspoken about the political situation in their country, voicing their concern about the rise of the far right`\
 https://nytimes.com/athletic/5623446/2024/07/08/france-politics-election-euros/
