@@ -1,3 +1,11 @@
+**After an Election Surprise, What’s Next for France?**\
+`Far from producing clarity, the snap election called by President Emmanuel Macron of France has yielded a muddle that could take months to sort out.`\
+https://nytimes.com/video/world/europe/100000009559350/after-an-election-surprise-whats-next-for-france.html
+
+**A Defiant Biden Told Democrats: ‘Challenge Me’**\
+`Plus, the best books of the century.`\
+https://nytimes.com/2024/07/08/briefing/08evening-biden-ukraine-france-tropical-storm-beryl.html
+
 **The Democratic Party Must Speak the Plain Truth to the President**\
 `The longer Democrats delay in getting Biden to step down, the harder it will be to replace him.`\
 https://nytimes.com/2024/07/08/opinion/editorials/democrats-biden-truth.html

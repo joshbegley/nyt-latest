@@ -1,3 +1,11 @@
+**After an Election Surprise, What’s Next for France?**\
+`Far from producing clarity, the snap election called by President Emmanuel Macron of France has yielded a muddle that could take months to sort out.`\
+https://nytimes.com/video/world/europe/100000009559350/after-an-election-surprise-whats-next-for-france.html
+
+**A Defiant Biden Told Democrats: ‘Challenge Me’**\
+`Plus, the best books of the century.`\
+https://nytimes.com/2024/07/08/briefing/08evening-biden-ukraine-france-tropical-storm-beryl.html
+
 **The Democratic Party Must Speak the Plain Truth to the President**\
 `The longer Democrats delay in getting Biden to step down, the harder it will be to replace him.`\
 https://nytimes.com/2024/07/08/opinion/editorials/democrats-biden-truth.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/08/us/trump-biden-election/biden-senate-democra
 **Djokovic accuses Wimbledon crowd of 'disrespect' after advancing to quarterfinals**\
 `Novak Djokovic advanced to the quarterfinals of Wimbledon before taking aim at sections of the Centre Court crowd for what he called &#8220;disrespect&#8221; towards him during his match with Holger Rune.`\
 https://nytimes.com/athletic/5624917/2024/07/08/novak-djokovic-wimbledon-crowd-rune/
-
-**Please, Mr. President, Do the Right Thing**\
-`Biden has done a great job. Now he can serve America by stepping aside.`\
-https://nytimes.com/2024/07/08/opinion/biden-trump.html
-
-**Mets' Brandon Nimmo nudging Steve Cohen to be a buyer at trade deadline**\
-`Nimmo wants Mets' to address their late-game struggles: "We haven't been able to lock down wins."`\
-https://nytimes.com/athletic/5624793/2024/07/08/mets-trade-deadline-steve-cohen/
 
