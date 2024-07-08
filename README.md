@@ -1,3 +1,15 @@
+**Columbia Removes Three Deans After Texts Described as Antisemitic**\
+`Nemat Shafik, the university president, called the sentiments in the text messages as “unacceptable and deeply upsetting.”`\
+https://nytimes.com/2024/07/08/nyregion/columbia-university-deans-antisemitism.html
+
+**Deegan, NASCAR's lone female racer, parting ways with team**\
+`Deegan was removed from her car before Saturday’s Xfinity race on the streets of Chicago in favor of two-time NASCAR champion Joey Logano.`\
+https://nytimes.com/athletic/5623954/2024/07/08/hailie-deegan-nascar-am-racing-parting-ways/
+
+**The Bounce: Why the Kings swung for a big name to wrap NBA free agency.**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5623648/2024/07/08/kings-demar-derozan-nba-free-agency-olympics-the-bounce/
+
 **U.S. Creates High-Tech Global Supply Chains to Blunt Risks Tied to China**\
 `The Biden administration is trying to get foreign companies to invest in chip-making in the United States and more countries to set up factories to do final assembly and packaging.`\
 https://nytimes.com/2024/07/08/us/politics/supply-chain-china-tech.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5623782/2024/07/08/f1-red-bull-max-verstappen-briti
 **England starting XI to face Netherlands: Drop Kane? Guehi back? Eze for Foden?**\
 `England still have questions to answer about their best team for Wednesday's clash with Netherlands. So who should start?`\
 https://nytimes.com/athletic/5623300/2024/07/08/england-team-netherlands-euro-2024/
-
-**Martin Odegaard interview: 'We didn't have the consistency to win it. We have to earn it'**\
-`Arsenal's captain on lessons learned last season, their summer tour, and preparing for another title challenge`\
-https://nytimes.com/athletic/5616021/2024/07/08/martin-odegaard-we-didnt-have-the-consistency-to-win-it-we-have-to-earn-it/
-
-**Taylor Swift’s ‘Poets’ Ties Her Record for Most Weeks at No. 1**\
-`Both “Fearless” and “1989” spent 11 weeks atop the Billboard 200, but the 11-week reign of “The Tortured Poets Department” has been uninterrupted.`\
-https://nytimes.com/2024/07/08/arts/music/taylor-swift-tortured-poets-11-weeks-billboard-chart.html
-
-**Fearsome Sharks of Today Evolved When Ancient Oceans Got Hot**\
-`More than 100 million years ago, scientists say, warming seas and reduced oxygen may have sent some sharks higher into the water column, where they evolved to be fierce and hungry.`\
-https://nytimes.com/2024/07/08/science/sharks-evolution-global-warming.html
 
