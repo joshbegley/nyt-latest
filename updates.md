@@ -1,3 +1,11 @@
+**Tuesday Briefing: What Comes Next for France**\
+`Plus, President Biden’s crucial week.`\
+https://nytimes.com/2024/07/08/briefing/france-election-whats-next.html
+
+**The Surgeon**\
+`A single image captures a day of horror at a children’s hospital in Ukraine hit by a Russian missile.`\
+https://nytimes.com/2024/07/08/world/europe/ohmatdyt-hospital-surgeon.html
+
 **Several Democratic senators refrained from full-throated endorsements of Biden.**\
 `By Catie Edmondson`\
 https://nytimes.com/live/2024/07/08/us/trump-biden-election/biden-senate-democrats-endorsements

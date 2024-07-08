@@ -1,3 +1,11 @@
+**Tuesday Briefing: What Comes Next for France**\
+`Plus, President Biden’s crucial week.`\
+https://nytimes.com/2024/07/08/briefing/france-election-whats-next.html
+
+**The Surgeon**\
+`A single image captures a day of horror at a children’s hospital in Ukraine hit by a Russian missile.`\
+https://nytimes.com/2024/07/08/world/europe/ohmatdyt-hospital-surgeon.html
+
 **Several Democratic senators refrained from full-throated endorsements of Biden.**\
 `By Catie Edmondson`\
 https://nytimes.com/live/2024/07/08/us/trump-biden-election/biden-senate-democrats-endorsements
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/08/business/boeing-plea-deal-737-max.html
 **What Keegan Bradley’s shocking hire tells us about the U.S. Ryder Cup team's future**\
 `Bradley's love for the Ryder Cup is well documented and has now been rewarded with the captaincy.`\
 https://nytimes.com/athletic/5624605/2024/07/08/keegan-bradley-us-ryder-cup-captain/
-
-**Biden Administration Rule Would Increase Authority to Block Foreign Deals**\
-`The Committee on Foreign Investment in the United States proposed a rule that would make it harder for foreigners to buy land near military bases.`\
-https://nytimes.com/2024/07/08/us/politics/treasury-china-real-estate-biden.html
-
-**Tropical Storm Beryl Spawned a Symphony of Spawning Toads**\
-`As the storm crossed Houston on Monday morning, the call of the toads echoed from every flooded street corner.`\
-https://nytimes.com/2024/07/08/us/beryl-storm-houston-toads.html
 
