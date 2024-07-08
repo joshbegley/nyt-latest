@@ -1,3 +1,7 @@
+**Three Giants takeaways: Longest-tenured player Austin Slater traded to Reds for lefty reliever**\
+`The move brings an end to a long-standing platoon between Slater, who never found a groove at the plate this season, and Mike Yastrzemski.`\
+https://nytimes.com/athletic/5623170/2024/07/08/giants-takeaways-austin-slater-traded/
+
 **South Korea appoint Hong Myung-bo as manager to replace Klinsmann**\
 `Hong Myung-bo has been appointed manager of South Korea for a second spell, five months after the sacking of Jurgen Klinsmann.`\
 https://nytimes.com/athletic/5623192/2024/07/08/south-korea-manager-hong-myung-bo-jurgen-klinsmann/

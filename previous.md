@@ -18,7 +18,7 @@ https://nytimes.com/2024/07/08/nyregion/street-wars-dining-sheds-new-york.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/07/08/crosswords/spelling-bee-forum.html
 
-**Three Giants takeaways: Austin Slater traded to Reds for lefty reliever**\
+**Three Giants takeaways: Longest-tenured player Austin Slater traded to Reds for lefty reliever**\
 `The move brings an end to a long-standing platoon between Slater, who never found a groove at the plate this season, and Mike Yastrzemski.`\
 https://nytimes.com/athletic/5623170/2024/07/08/giants-takeaways-austin-slater-traded/
 
