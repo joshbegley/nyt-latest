@@ -1,3 +1,7 @@
+**Chelsea reach agreement with Atlanta to sign Wiley**\
+`Chelsea have reached an agreement with Atlanta United to sign left-back Caleb Wiley.`\
+https://nytimes.com/athletic/5624615/2024/07/08/chelsea-transfer-news-caleb-wiley/
+
 **A businessman testified about using a luxury car as a bribe.**\
 `Jose Uribe admitted providing a Mercedes-Benz for Senator Robert Menendez to “influence an official act.” Mr. Menendez has pleaded not guilty, as have his wife and two other co-defendants.`\
 https://nytimes.com/live/2024/07/08/nyregion/menendez-trial/a-businessman-testified-about-using-a-luxury-car-as-a-bribe
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/08/dining/banh-bo-nuong-vietnamese-cake.html
 **As Menendez’s star rose, fears of corruption cast a persistent shadow.**\
 `By Nicholas Fandos`\
 https://nytimes.com/live/2024/07/08/nyregion/menendez-trial/as-menendezs-star-rose-fears-of-corruption-cast-a-persistent-shadow
-
-**France Learns a New Word: Ungovernable**\
-`Far from producing a “clarification,” President Emmanuel Macron’s snap election has yielded a muddle that could take months to sort out.`\
-https://nytimes.com/2024/07/08/world/europe/france-election-parliament-macron.html
 
