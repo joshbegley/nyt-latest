@@ -4,7 +4,7 @@ https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/facing-lengthy-repa
 
 **How Biden Is Leveraging His Defiance to Try to Stem Democratic Defections**\
 `In private and in public, President Biden made clear he holds all the cards when determining his political future. Can he get his Democratic critics to fold?`\
-https://nytimes.com/2024/07/08/us/politics/biden-strategy-assess.html
+https://nytimes.com/2024/07/08/us/politics/biden-campaign-democrats.html
 
 **UConn gives Hurley new 6-year, $50 million deal**\
 `The new deal comes after Dan Hurley declined a six-year, $70 million coaching contract offer from the Lakers in June.`\
