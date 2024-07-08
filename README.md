@@ -1,3 +1,7 @@
+**France Learns a New Word: Ungovernable**\
+`Far from producing a “clarification,” President Emmanuel Macron’s snap election has yielded a muddle that could take months to sort out.`\
+https://nytimes.com/2024/07/08/world/europe/france-election-parliament-macron.html
+
 **The Second-Worst Decision Democrats Could Make Right Now**\
 `To argue against Kamala Harris is not inherently racist or sexist.`\
 https://nytimes.com/live/2024/07/02/opinion/thepoint/kamala-harris-democratic-nominee
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5624294/2024/07/08/antoine-griezmann-euro-2024/
 **Mats Wieffer to Brighton: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Mats Wieffer's move to Brighton`\
 https://nytimes.com/athletic/5620099/2024/07/08/mats-wieffer-to-brighton-transfer-ratings/
-
-**Parkinson’s Expert Visited the White House Eight Times in Eight Months**\
-`The White House said President Biden had met with a neurologist only three times in more than three years in office. But it would not say whether the visiting expert was consulting with the president’s physician about his health.`\
-https://nytimes.com/2024/07/08/us/politics/parkinsons-expert-white-house.html
 
