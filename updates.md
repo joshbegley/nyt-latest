@@ -1,3 +1,7 @@
+**Children With Autism Carry Unique Gut Flora, Study Finds**\
+`The research, which builds on previous work, eventually may lead to a more objective diagnostic tool, scientists said.`\
+https://nytimes.com/2024/07/08/health/autism-gut-microbiome.html
+
 **Heat Wave in Western U.S. Sets Records, While Another Roasts the East**\
 `Temperature records have been shattered from California and Nevada to North Carolina in the last few days, and relief is still days away, forecasters say.`\
 https://nytimes.com/2024/07/08/us/western-heat-wave-records.html
