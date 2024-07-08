@@ -1,3 +1,7 @@
+**This year, the biggest American stars at Wimbledon are happiest under the radar**\
+`In the most successful Wimbledon for American tennis players in 20 years, it's the under-the-radar players making headlines`\
+https://nytimes.com/athletic/5624751/2024/07/08/wimbledon-american-tennis-players-record/
+
 **A tiny Texas town where Beryl made landfall counts its blessings.**\
 `Matagorda, a`\
 https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/matagorda-texas-hurricane-beryl
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000009559350/after-an-election-surpris
 **A Defiant Biden Told Democrats: ‘Challenge Me’**\
 `Plus, the best books of the century.`\
 https://nytimes.com/2024/07/08/briefing/08evening-biden-ukraine-france-tropical-storm-beryl.html
-
-**The Democratic Party Must Speak the Plain Truth to the President**\
-`The longer Democrats delay in getting Biden to step down, the harder it will be to replace him.`\
-https://nytimes.com/2024/07/08/opinion/editorials/democrats-biden-truth.html
 
