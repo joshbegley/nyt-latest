@@ -1,3 +1,11 @@
+**UConn gives Hurley new 6-year, $50 million deal**\
+`The new deal comes after Dan Hurley declined a six-year, $70 million coaching contract offer from the Lakers in June.`\
+https://nytimes.com/athletic/5625163/2024/07/08/dan-hurley-contract-uconn-basketball/
+
+**What’s in Biden’s Survival Kit**\
+`Eleven days after his disastrous debate performance, the president’s strategy is coming into focus.`\
+https://nytimes.com/2024/07/08/us/politics/biden-presidential-race.html
+
 **$1 Billion Bloomberg Gift to Hopkins Makes Tuition Free for Most Medical Students**\
 `The gift, made by Michael R. Bloomberg’s philanthropic organization, will also cover living expenses for some Johns Hopkins University students.`\
 https://nytimes.com/2024/07/08/us/bloomberg-donation-johns-hopkins-medical.html
