@@ -1,3 +1,7 @@
+**A businessman testified about using a luxury car as a bribe.**\
+`Jose Uribe admitted providing a Mercedes-Benz for Senator Robert Menendez to “influence an official act.” Mr. Menendez has pleaded not guilty, as have his wife and two other co-defendants.`\
+https://nytimes.com/live/2024/07/08/nyregion/menendez-trial/a-businessman-testified-about-using-a-luxury-car-as-a-bribe
+
 **In the Aging Senate, Nobody Wants to Be the One to Nudge Biden Aside**\
 `Senators have had plenty of practice watching colleagues hold stubbornly onto their positions of power as they grow old. None wants to lead a public call for President Biden to withdraw.`\
 https://nytimes.com/2024/07/08/us/politics/senate-age-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/08/nyregion/menendez-trial/as-menendezs-star-ro
 **France Learns a New Word: Ungovernable**\
 `Far from producing a “clarification,” President Emmanuel Macron’s snap election has yielded a muddle that could take months to sort out.`\
 https://nytimes.com/2024/07/08/world/europe/france-election-parliament-macron.html
-
-**The Second-Worst Decision Democrats Could Make Right Now**\
-`To argue against Kamala Harris is not inherently racist or sexist.`\
-https://nytimes.com/live/2024/07/02/opinion/thepoint/kamala-harris-democratic-nominee
 
