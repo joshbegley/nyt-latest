@@ -1,3 +1,7 @@
+**Where the Heat Wave Broke Records in California**\
+`In many places, a scorching Independence Day led into an even hotter weekend.`\
+https://nytimes.com/2024/07/08/us/heat-wave-broke-records-california.html
+
 **Liverpool appoint former Man City analyst Briggs as elite development coach**\
 `Liverpool have added former Manchester City analyst and coach Aaron Briggs to Arne Slot’s backroom staff.`\
 https://nytimes.com/athletic/5623689/2024/07/08/liverpool-aaron-briggs-development-coach/
