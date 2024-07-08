@@ -6,8 +6,8 @@ https://nytimes.com/2024/07/08/well/nara-smith-sunscreen-toothpaste-tiktok.html
 `Sullivan & Cromwell is requiring job applicants to explain their participation in protests. Critics see the policy as a way to silence speech about the war.`\
 https://nytimes.com/2024/07/08/business/sullivan-cromwell-israel-protests.html
 
-**Wrexham youngsters left in limbo as club's academy grading bid rejected - so what next?**\
-`The Welsh club — owned by Ryan Reynolds and Rob McElhenney — will appeal the decision`\
+**Wrexham youngsters in limbo as club's academy upgrading bid is rejected - so what next?**\
+`The club, owned by Hollywood stars Ryan Reynolds and Rob McElhenney, will appeal the decision to refuse their academy Category 3 status`\
 https://nytimes.com/athletic/5623348/2024/07/08/wrexham-academy-grading-category-three/
 
 **Every High School Student Can Save a Life**\
