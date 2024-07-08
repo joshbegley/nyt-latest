@@ -1,3 +1,7 @@
+**‘House of the Dragon’ Season 2, Episode 4: Fire in the Sky**\
+`This week brings all-out warfare and the death of a key character.`\
+https://nytimes.com/2024/07/07/arts/television/recap-house-of-the-dragon-dance-of-dragons.html
+
 **Stephen King, Sarah Jessica Parker and More Share Their Top Books of the 21st Century**\
 `We asked some literary luminaries to share their full ballots.`\
 https://nytimes.com/interactive/2024/books/authors-top-books-21st-century.html

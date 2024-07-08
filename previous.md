@@ -1,3 +1,7 @@
+**‘House of the Dragon’ Season 2, Episode 4: Fire in the Sky**\
+`This week brings all-out warfare and the death of a key character.`\
+https://nytimes.com/2024/07/07/arts/television/recap-house-of-the-dragon-dance-of-dragons.html
+
 **The non-all-star All-Stars: Lindor, Gil and other MLB snubs at each position**\
 `These are the most worthy players at each position who, so far, won't be taking part in next week's All-Star Game.`\
 https://nytimes.com/athletic/5622773/2024/07/07/mlb-all-star-game-roster-snubs-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5622138/2024/07/07/cleveland-guardians-all-stars/
 **Meet David Ellison, Paramount’s Future Boss and Hollywood’s Newest Mogul**\
 `He left college to try out acting. Now, he’s set to become one of the most powerful people in Hollywood.`\
 https://nytimes.com/2024/07/07/business/media/david-ellison-paramount-skydance.html
-
-**Shota Imanaga’s All-Star selection is a bright spot in this dull Cubs season **\
-`Imanaga has ingratiated himself to his Cubs teammates with his personality and his talent, the latter of which landed him an All-Star bid.`\
-https://nytimes.com/athletic/5622781/2024/07/07/cubs-shota-imanaga-all-star-selection/
 
