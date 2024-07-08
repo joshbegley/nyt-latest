@@ -1,3 +1,7 @@
+**A Remarkable Comeback**\
+`“This is the kind of thing that we couldn’t have even dreamed about five or six years ago,” one expert said about changes in some American counties.`\
+https://nytimes.com/2024/07/08/briefing/a-remarkable-comeback-for-left-behind-counties.html
+
 **Are Copa America's $200 tickets and empty seats a missed opportunity ahead of the World Cup?**\
 `Instead of captivating audiences for the main event and preparing markets for 2026, Copa America saw the USMNT failing to sell out stadiums`\
 https://nytimes.com/athletic/5620550/2024/07/08/copa-america-attendances-tickets/
