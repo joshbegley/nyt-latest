@@ -1,3 +1,7 @@
+**Bradley to captain U.S. Ryder Cup team in 2025**\
+`The 38-year-old Bradley will be the youngest U.S. Ryder Cup captain since Arnold Palmer in 1963.`\
+https://nytimes.com/athletic/5624732/2024/07/08/keegan-bradley-ryder-cup-captain-2025/
+
 **Alec Baldwin Appears in Court as Judge Rules on Upcoming ‘Rust’ Trial**\
 `The actor is set to stand trial this week on a charge of involuntary manslaughter for his role in the fatal shooting of a cinematographer. He has pleaded not guilty.`\
 https://nytimes.com/2024/07/08/movies/alec-baldwin-rust-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/08/style/dallas-cowboys-cheerleaders-documentary.htm
 **A Novel of Romance, Secrets and Many Crises**\
 `With “Husbands & Lovers,” Beatriz Williams delivers a multigenerational yarn and a memorable ending.`\
 https://nytimes.com/2024/07/08/books/review/husbands-and-lovers-beatriz-williams.html
-
-**Chelsea reach agreement with Atlanta to sign Wiley**\
-`Chelsea have reached an agreement with Atlanta United to sign left-back Caleb Wiley.`\
-https://nytimes.com/athletic/5624615/2024/07/08/chelsea-transfer-news-caleb-wiley/
 
