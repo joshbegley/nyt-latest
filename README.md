@@ -1,3 +1,11 @@
+**See What Home Insurance Costs Where You Live**\
+`Insurance prices are surging unevenly across the country. How does your county compare?`\
+https://nytimes.com/interactive/2024/07/08/climate/home-insurance-cost-county.html
+
+**Home Insurance Rates in America Are Wildly Distorted. Here’s Why.**\
+`Climate change is driving rates higher, but not always in areas with the greatest risk.`\
+https://nytimes.com/interactive/2024/07/08/climate/home-insurance-climate-change.html
+
 **White House Briefing Devolves Into Shouting Over Questions About Biden’s Health**\
 `Karine Jean-Pierre, the press secretary, refused to answer questions about whether visits to the White House by a Parkinson’s doctor were about the president.`\
 https://nytimes.com/2024/07/08/us/politics/white-house-briefing-shouting.html
@@ -14,6 +22,10 @@ https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/matagorda-texas-hur
 `Andrew Olesh, the No. 3 prospect in Pennsylvania, announced his commitment to Sherrone Moore and Michigan football on Monday.`\
 https://nytimes.com/athletic/5624963/2024/07/08/andrew-olesh-michigan-football-recruiting-commitment/
 
+**Wimbledon day 8: Will Rybakina break cycle? Did we see the most chaotic match-up?**\
+`To start Wimbledon's second week: Elena Rybakina's limelight, the most lethal serve in tennis meeting its match, and chaos on Court One`\
+https://nytimes.com/athletic/5623774/2024/07/08/wimbledon-recap-rybakinas-title-hopes-and-ostapenko-putintseva-chaos/
+
 **Heated Exchange Over Biden’s Health at White House Briefing**\
 `Karine Jean-Pierre, the White House press secretary, refused to speak about several visits to the White House by a neurologist from Walter Reed National Military Medical Center.`\
 https://nytimes.com/video/us/politics/100000009560879/biden-health-neurologist.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5625125/2024/07/08/copa-america-european-teams-scal
 **The prosecutor described what he called a ‘clear pattern of corruption.’**\
 `By Nicholas Fandos`\
 https://nytimes.com/live/2024/07/08/nyregion/menendez-trial/the-prosecutor-described-what-he-called-a-clear-pattern-of-corruption
-
-**Olympics basketball odds: Does any team have a shot against the U.S.?**\
-`Of course both the American men and women are favored to win gold at the Olympics, but the odds show who the main contenders are.`\
-https://nytimes.com/athletic/5624693/2024/07/08/olympic-basketball-odds-team-usa/
-
-**NFL suspends Steelers CB Sutton for 8 games**\
-`Cameron Sutton turned himself into police in March after an arrest warrant was issued for charges of domestic battery by strangulation.`\
-https://nytimes.com/athletic/5624878/2024/07/08/cam-sutton-steelers-nfl-suspension/
-
-**After an Election Surprise, What’s Next for France?**\
-`Far from producing clarity, the snap election called by President Emmanuel Macron of France has yielded a muddle that could take months to sort out.`\
-https://nytimes.com/video/world/europe/100000009559350/after-an-election-surprise-whats-next-for-france.html
 
