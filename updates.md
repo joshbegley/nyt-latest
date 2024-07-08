@@ -1,3 +1,7 @@
+**Mats Wieffer to Brighton: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Mats Wieffer's move to Brighton`\
+https://nytimes.com/athletic/5620099/2024/07/08/mats-wieffer-to-brighton-transfer-ratings/
+
 **Parkinson’s Expert Visited the White House Eight Times in Eight Months**\
 `The White House has said that President Biden has no signs of the disease and that there has been no reason to update the most recent testing, conducted in February.`\
 https://nytimes.com/2024/07/08/us/politics/parkinsons-expert-white-house.html
