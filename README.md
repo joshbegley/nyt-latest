@@ -18,7 +18,7 @@ https://nytimes.com/2024/07/07/us/michael-jackson-ca-wildfire-neverland-ranch.ht
 `Angel Reese bested Candace Parker’s 12-game double-double streak that spanned the 2009 and 2010 regular seasons.`\
 https://nytimes.com/athletic/5622827/2024/07/07/angel-reese-double-double-record-sky/
 
-**Stephen King, Elin Hilderbrand and More Share Their Top Books of the 21st Century**\
+**Stephen King, Sarah Jessica Parker and More Share Their Top Books of the 21st Century**\
 `We asked some literary luminaries to share their full ballots.`\
 https://nytimes.com/interactive/2024/books/authors-top-books-21st-century.html
 
