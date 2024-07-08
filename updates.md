@@ -1,3 +1,19 @@
+**Mets' Brandon Nimmo nudging Steve Cohen to be a buyer at trade deadline**\
+`Nimmo wants Mets' to address their late-game struggles: "We haven't been able to lock down wins."`\
+https://nytimes.com/athletic/5624793/2024/07/08/mets-trade-deadline-steve-cohen/
+
+**A dashboard view of Houston, after the storm.**\
+`By Rick Rojas`\
+https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/a-dashboard-view-of-houston-after-the-storm
+
+**5,000 Miles, 8 Countries: The Path to the U.S. Through One Family’s Eyes**\
+`With three children and a dog, the Aguilar Ortega family trekked through the jungle, hopped freight trains and toured Times Square. Significant challenges still lay ahead.`\
+https://nytimes.com/interactive/2024/07/08/nyregion/immigration-us-border-family.html
+
+**Tropical Storm Beryl Spawned a Symphony of Spawning Toads**\
+`As the storm crossed Houston on Monday morning, the call of the toads echoed from every flooded street corner.`\
+https://nytimes.com/2024/07/08/us/beryl-storm-houston-toads.html
+
 **Boeing Struck a Deal With the Justice Department. What Comes Next?**\
 `The plane manufacturer must still resolve various legal challenges and operational problems tied to the troubled 737 Max plane.`\
 https://nytimes.com/2024/07/08/business/boeing-plea-deal-737-max.html
