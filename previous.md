@@ -1,3 +1,7 @@
+**Did You Sell Your Home to Pay for Your Child’s College? We Want to Hear From You.**\
+`With the cost of  college through the roof, some parents have sold their homes or taken out exorbitant loans to pay for their child’s degree. Share your story with us.`\
+https://nytimes.com/2024/07/08/realestate/home-sold-mortgage-college-tuition.html
+
 **At Avignon Festival, Theater’s World Gets Wider**\
 `Under its new director, the event is shining a spotlight on countries and performers rarely represented on the biggest European stages.`\
 https://nytimes.com/2024/07/08/theater/avignon-festival-spanish.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5623869/2024/07/08/alex-bowman-chicago-street-race-
 **The Windup: Tons of first-time All-Stars**\
 `Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
 https://nytimes.com/athletic/5624068/2024/07/08/mlb-all-star-game-snubs-yankees-ben-rice-the-windup/
-
-**Paul George dishes on ‘disrespectful’ year of LAC negotiations**\
-`George also revealed that in 2019, Leonard contacted George about leaving the Oklahoma City Thunder to go to the Toronto Raptors.`\
-https://nytimes.com/athletic/5624027/2024/07/08/paul-george-podcast-clippers-76ers-negotiations/
 

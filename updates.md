@@ -1,3 +1,7 @@
+**Did You Sell Your Home to Pay for Your Child’s College? We Want to Hear From You.**\
+`With the cost of  college through the roof, some parents have sold their homes or taken out exorbitant loans to pay for their child’s degree. Share your story with us.`\
+https://nytimes.com/2024/07/08/realestate/home-sold-mortgage-college-tuition.html
+
 **At Avignon Festival, Theater’s World Gets Wider**\
 `Under its new director, the event is shining a spotlight on countries and performers rarely represented on the biggest European stages.`\
 https://nytimes.com/2024/07/08/theater/avignon-festival-spanish.html
