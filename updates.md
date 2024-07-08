@@ -1,3 +1,7 @@
+**Kroos has retired, and Muller and Neuer may follow. So, where do Germany go from here?**\
+`'We lost, but we did not fail.' Germany won the hearts and minds of the population during Euro 2024. But now Nagelsmann must rebuild`\
+https://nytimes.com/athletic/5621727/2024/07/08/germany-kroos-neuer-nagelsmann-world-cup/
+
 **Arsenal, their academy and why young players are rarely getting a first-team chance**\
 `Arsenal had a poor record of exposing their young players to first-team football last season. Is it going to change in 2024-25?`\
 https://nytimes.com/athletic/5596080/2024/07/08/arsenal-their-academy-and-why-young-players-are-rarely-getting-a-first-team-chance/
