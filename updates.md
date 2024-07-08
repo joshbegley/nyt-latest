@@ -1,3 +1,11 @@
+**Monday Briefing**\
+`The left surges in French elections.`\
+https://nytimes.com/2024/07/08/briefing/france-elections-israel-protests-biden.html
+
+**Is Kane in danger of becoming England's Ronaldo?**\
+`Not too long ago, it would have been a compliment to be compared to Ronaldo - but is England's captain in danger of holding them back?`\
+https://nytimes.com/athletic/5621106/2024/07/08/harry-kane-england-euro-2024-cristiano-ronaldo/
+
 **What can England expect from the Netherlands in the Euro 2024 semi-final?**\
 `Ronald Koeman's team has some specific English qualities — he may rely on them during Wednesday's game in Dortmund`\
 https://nytimes.com/athletic/5621522/2024/07/08/netherlands-tactics-england-euro-2024-semi-final/
