@@ -1,3 +1,15 @@
+**Russia Destroys Children’s Hospital in Deadly Barrage Across Ukraine**\
+`President Volodymyr Zelensky said Russia had launched at least 40 missiles at targets across Ukraine, and he condemned the strike on the country’s largest children’s hospital.`\
+https://nytimes.com/2024/07/08/world/europe/russia-ukraine-missile-strikes-childrens-hospital.html
+
+**'We can go one way or the other': Washington's unique rebuild under Jedd Fisch**\
+`There's already proof of Fisch's ability to build up teams. How is it going so far at Washington?`\
+https://nytimes.com/athletic/5619992/2024/07/08/washington-football-jedd-fisch-roster-rebuild/
+
+**Modi to Meet Putin in Moscow as India Sets Its Own Foreign Policy**\
+`India is determined to keep its close ties to Russia despite pressure from the West. Russia sees the meeting as a chance to show it still has influential friends.`\
+https://nytimes.com/2024/07/08/world/asia/modi-putin-russia-india.html
+
 **Key Democrats Doubt Biden, and the Left Surges in France**\
 `Plus, a firestorm over Mexico City’s salsas.`\
 https://nytimes.com/2024/07/08/podcasts/biden-france-election.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5622405/2024/07/08/sidney-crosby-pittsburgh-penguin
 **Manning Passing Academy: Star QBs on the decision to transfer or stay put**\
 `Transferring has become almost the norm for college QBs, so how do those prospects facing such tough decisions weigh the pros and cons.`\
 https://nytimes.com/athletic/5606629/2024/07/08/manning-academy-carson-beck-will-howard/
-
-**As Cardinals cruise, right-handed production will be a trade deadline focal point**\
-`The Cardinals have the second-lowest OPS against left-handed pitching.`\
-https://nytimes.com/athletic/5622280/2024/07/08/st-louis-cardinals-trade-deadline-right-handed-production/
-
-**Astros All-Star takeaways: Ronel Blanco's omission and Jose Altuve's decision**\
-`Altuve is still successful this season, albeit with a different approach. But will he attend the All-Star Game?`\
-https://nytimes.com/athletic/5622731/2024/07/08/astros-all-star-roster-ronel-blanco-jose-altuve/
-
-**The Supreme Court Is Not Done Remaking America**\
-`Some of the rulings that came before the justices’ decision on presidential immunity could prove to have just as big an impact.`\
-https://nytimes.com/2024/07/08/podcasts/the-daily/supreme-court-term.html
 
