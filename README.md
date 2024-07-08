@@ -1,3 +1,7 @@
+**Mats Wieffer to Brighton: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Mats Wieffer's move to Brighton`\
+https://nytimes.com/athletic/5620099/2024/07/08/mats-wieffer-to-brighton-transfer-ratings/
+
 **Parkinson’s Expert Visited the White House Eight Times in Eight Months**\
 `The White House has said that President Biden has no signs of the disease and that there has been no reason to update the most recent testing, conducted in February.`\
 https://nytimes.com/2024/07/08/us/politics/parkinsons-expert-white-house.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5621596/2024/07/08/saka-penalty-nothing-to-redeem/
 **Did You Sell Your Home to Pay for Your Child’s College? We Want to Hear From You.**\
 `With the cost of  college through the roof, some parents have sold their homes or taken out exorbitant loans to pay for their child’s degree. Share your story with us.`\
 https://nytimes.com/2024/07/08/realestate/home-sold-mortgage-college-tuition.html
-
-**At Avignon Festival, Theater’s World Gets Wider**\
-`Under its new director, the event is shining a spotlight on countries and performers rarely represented on the biggest European stages.`\
-https://nytimes.com/2024/07/08/theater/avignon-festival-spanish.html
 
