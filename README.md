@@ -1,3 +1,7 @@
+**Strikes on Kyiv Kill Several and Destroy a Children’s Hospital**\
+`Ukrainian officials said that Russia fired at least 40 long-range missiles at targets across their country, killing at least 20 people. Russian officials said they targeted military facilities and aviation bases but not civilian infrastructure.`\
+https://nytimes.com/video/world/middleeast/100000009559427/russia-strikes-kyiv-ukraine.html
+
 **As some allies whisper about ditching Biden, Black Democrats are rallying around him.**\
 `By Robert Jimison`\
 https://nytimes.com/live/2024/07/08/us/trump-biden-election/as-some-allies-whisper-about-ditching-biden-black-democrats-are-rallying-around-him
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5623590/2024/07/08/france-soccer-olympics-squad/
 **The 50-Year-Old Skateboarder Bound for the Paris Olympics**\
 `Andy Macdonald has succeeded in a sport dominated by the very young.`\
 https://nytimes.com/2024/07/08/sports/olympics/andy-macdonald-olympics.html
-
-**Canada's Stephen Eustaquio finds purpose in Copa America after his parents' tragic deaths**\
-`The Canada vice-captain will have a sense of perspective - even ahead of the biggest game of his career `\
-https://nytimes.com/athletic/5622440/2024/07/08/canada-stephen-eustaquio-copa-america/
 
