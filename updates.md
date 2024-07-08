@@ -1,3 +1,7 @@
+**France Learns a New Word: Ungovernable**\
+`Far from producing a “clarification,” President Emmanuel Macron’s snap election has yielded a muddle that could take months to sort out.`\
+https://nytimes.com/2024/07/08/world/europe/france-election-parliament-macron.html
+
 **The Second-Worst Decision Democrats Could Make Right Now**\
 `To argue against Kamala Harris is not inherently racist or sexist.`\
 https://nytimes.com/live/2024/07/02/opinion/thepoint/kamala-harris-democratic-nominee
