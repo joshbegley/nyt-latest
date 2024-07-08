@@ -1,3 +1,11 @@
+**U.S. Creates High-Tech Global Supply Chains to Blunt Risks Tied to China**\
+`The Biden administration is trying to get foreign companies to invest in chip-making in the United States and more countries to set up factories to do final assembly and packaging.`\
+https://nytimes.com/2024/07/08/us/politics/supply-chain-china-tech.html
+
+**Jalen Brunson is eligible for a contract extension, but should he re-sign or wait?**\
+`If Brunson signs now. he’d be giving New York financial flexibility in the future.`\
+https://nytimes.com/athletic/5623693/2024/07/08/jalen-brunson-knicks-contract-extension/
+
 **Lowetide: Making the final call on the Oilers' 2019 draft class**\
 `The Oilers' draft list from 2019 features three players who have reached the NHL, most notably Philip Broberg.`\
 https://nytimes.com/athletic/5622117/2024/07/08/edmonton-oilers-nhl-draft-2019-broberg/
