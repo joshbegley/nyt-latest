@@ -1,5 +1,5 @@
 **Columbia Removes Three Deans, Saying Texts Touched on ‘Antisemitic Tropes’**\
-`Nemat Shafik, the university president, called the sentiments in the text messages as “unacceptable and deeply upsetting.”`\
+`Nemat Shafik, the university president, called the sentiments in the text messages “unacceptable and deeply upsetting.”`\
 https://nytimes.com/2024/07/08/nyregion/columbia-university-deans-antisemitism.html
 
 **Deegan, NASCAR's lone female racer, parting ways with team**\
