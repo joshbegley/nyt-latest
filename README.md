@@ -1,3 +1,11 @@
+**Viktor Orban, Hungary’s Leader, Meets With Xi in China After Talks With Putin**\
+`Mr. Orban said his visit to Beijing was part of a “peace mission” for Ukraine. But both leaders want to offset Western power.`\
+https://nytimes.com/2024/07/07/world/asia/orban-hungary-china-xi.html
+
+**Yankees’ Aaron Boone explains Rafael Devers decision that backfired in loss to Red Sox**\
+`Aaron Boone said he decided against calling on the bullpen because Luke Weaver, who was warm, and Gil both feature “similar profiles."`\
+https://nytimes.com/athletic/5623071/2024/07/07/yankees-luis-gil-rafael-devers-red-sox-home-run/
+
 **Quotation of the Day: Gastineau Exchanges The Spotlight For Serenity**\
 `Quotation of the Day for Monday, July 8, 2024.`\
 https://nytimes.com/2024/07/07/pageoneplus/quotation-of-the-day-gastineau-exchanges-the-spotlight-for-serenity.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5622790/2024/07/07/braves-all-stars-chris-sale-marc
 **‘Lake Fire’ in California Prompts Evacuations and Threatens Neverland Ranch**\
 `The fire erupted on Friday near Zaca Lake, northeast of Los Olivos, Calif. As of Sunday, it had burned more than 16,000 acres and was zero percent contained.`\
 https://nytimes.com/2024/07/07/us/michael-jackson-ca-wildfire-neverland-ranch.html
-
-**Reese posts 13th consecutive double-double**\
-`Angel Reese bested Candace Parker’s 12-game double-double streak that spanned the 2009 and 2010 regular seasons.`\
-https://nytimes.com/athletic/5622827/2024/07/07/angel-reese-double-double-record-sky/
-
-**Stephen King, Sarah Jessica Parker and More Share Their Top Books of the 21st Century**\
-`We asked some literary luminaries to share their full ballots.`\
-https://nytimes.com/interactive/2024/books/authors-top-books-21st-century.html
 
