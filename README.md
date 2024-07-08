@@ -1,3 +1,11 @@
+**France is Not Used to Coalition Governments. Does it Have a Choice?**\
+`No party got an absolute majority in the National Assembly. Here are some of the ways the country could escape political gridlock. None are easy.`\
+https://nytimes.com/2024/07/08/world/europe/france-election-whats-next.html
+
+**James Carville: Biden Won’t Win. Democrats Need a Plan. Here’s One.**\
+`Democrats need a new presidential nominee and can’t rig things for any one candidate. Here’s an idea for how to move forward.`\
+https://nytimes.com/2024/07/08/opinion/biden-democratic-nominee.html
+
 **Have You Ever Had a Bad Therapist? Tell Us About It.**\
 `A New York Times mental health reporter wants to hear why therapy didn’t work out.`\
 https://nytimes.com/2024/07/08/well/mind/therapy-red-flags-callout.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/08/opinion/political-protests-gaza.html
 **Children With Autism Carry Unique Gut Flora, Study Finds**\
 `The research, which builds on previous work, eventually may lead to a more objective diagnostic tool, scientists said.`\
 https://nytimes.com/2024/07/08/health/autism-gut-microbiome.html
-
-**Heat Wave in Western U.S. Sets Records, While Another Roasts the East**\
-`Temperature records have been shattered from California and Nevada to North Carolina in the last few days, and relief is still days away, forecasters say.`\
-https://nytimes.com/2024/07/08/us/western-heat-wave-records.html
-
-**Rain dampens NASCAR's Chicago showcase again, but the forecast isn't so dreary**\
-`NASCAR's Chicago showcase has been marred by bad weather and political battles. After two years, though, it's managing to win people over.`\
-https://nytimes.com/athletic/5623653/2024/07/08/nascar-chicago-street-race-future-rain/
 
