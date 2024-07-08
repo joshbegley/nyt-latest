@@ -1,3 +1,19 @@
+**$1 Billion Bloomberg Gift to Hopkins Makes Tuition Free for Most Medical Students**\
+`The gift, made by Michael R. Bloomberg’s philanthropic organization, will also cover living expenses for some Johns Hopkins University students.`\
+https://nytimes.com/2024/07/08/us/bloomberg-donation-johns-hopkins-medical.html
+
+**See What Home Insurance Costs Where You Live**\
+`Insurance prices are surging unevenly across the country. How does your county compare?`\
+https://nytimes.com/interactive/2024/07/08/climate/home-insurance-cost-county.html
+
+**Home Insurance Rates in America Are Wildly Distorted. Here’s Why.**\
+`Climate change is driving rates higher, but not always in areas with the greatest risk.`\
+https://nytimes.com/interactive/2024/07/08/climate/home-insurance-climate-change.html
+
+**Wimbledon day 8: Will Rybakina break cycle? Did we see the most chaotic match-up?**\
+`To start Wimbledon's second week: Elena Rybakina's limelight, the most lethal serve in tennis meeting its match, and chaos on Court One`\
+https://nytimes.com/athletic/5623774/2024/07/08/wimbledon-recap-rybakinas-title-hopes-and-ostapenko-putintseva-chaos/
+
 **White House Briefing Devolves Into Shouting Over Questions About Biden’s Health**\
 `Karine Jean-Pierre, the press secretary, refused to answer questions about whether visits to the White House by a Parkinson’s doctor were about the president.`\
 https://nytimes.com/2024/07/08/us/politics/white-house-briefing-shouting.html
