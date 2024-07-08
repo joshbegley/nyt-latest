@@ -1,3 +1,15 @@
+**Who is Christopher Vivell? Man Utd's new recruitment guru explained**\
+`A full backgrounder on Manchester United's latest off-field appointment`\
+https://nytimes.com/athletic/5617722/2024/07/08/christopher-vivell-manchester-united-explained/
+
+**Wimbledon Briefing: Is serving fast uncool now? Is rain unfair? And why so many comebacks?**\
+`As the tournament enters its second week, reflections on the first seven days in at the All England Club in London`\
+https://nytimes.com/athletic/5621777/2024/07/08/wimbledon-recap-analysis-week-one/
+
+**Three Dodgers takeaways: The 6 All-Stars, Justin Wrobleski's debut and more**\
+`Teoscar Hernández was among six Dodgers All-Star selections, which included Freddie Freeman, Mookie Betts and Shohei Ohtani.`\
+https://nytimes.com/athletic/5622886/2024/07/08/dodgers-all-star-selections-justin-wrobleski/
+
 **Modi to Meet Putin in Moscow as India Charts Its Own Course**\
 `India is determined to keep its close ties to Russia despite pressure from the West. Russia sees the meeting as a chance to show it still has influential friends.`\
 https://nytimes.com/2024/07/08/world/asia/modi-putin-russia-india.html
