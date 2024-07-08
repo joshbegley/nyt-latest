@@ -1,3 +1,7 @@
+**Boeing Agrees to Plead Guilty to Felony in Deal With Justice Department**\
+`As part of the deal, stemming from fatal 737 Max crashes in 2018 and 2019, the company agreed to pay a fine of nearly half a billion dollars and strengthen its safety programs.`\
+https://nytimes.com/2024/07/08/business/boeing-justice-department-plea-deal.html
+
 **Monday Briefing**\
 `The left surges in French elections.`\
 https://nytimes.com/2024/07/08/briefing/france-elections-israel-protests-biden.html
