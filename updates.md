@@ -1,3 +1,11 @@
+**Team USA raves about Cooper Flagg: 'Unbelievable'**\
+`Flagg is an incoming freshman at Duke and an early favorite as the No. 1 pick of the 2025 NBA Draft.`\
+https://nytimes.com/athletic/5625267/2024/07/08/cooper-flagg-usa-olympic-training-camp/
+
+**Senator Menendez ‘Sold the Power of His Office,’ Prosecutor Says**\
+`In a closing statement, a prosecutor said the Menendez home was awash in cash and walked jurors through what the government has called a complicated web of corruption.`\
+https://nytimes.com/2024/07/08/nyregion/robert-menendez-bribery-trial-closing-arguments.html
+
 **Hayes clarifies roster rules for 2024 Paris Olympics**\
 `Emma Hayes has clarified the rules over Olympic roster alternates, telling media on Monday that players replaced by an alternate can return to the core 18-player group.`\
 https://nytimes.com/athletic/5625281/2024/07/08/uswnt-roster-rules-olympic-games/
