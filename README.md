@@ -1,4 +1,4 @@
-**Columbia Removes Three Deans After Texts Described as Antisemitic**\
+**Columbia Removes Three Deans, Saying Texts Touched on ‘Antisemitic Tropes’**\
 `Nemat Shafik, the university president, called the sentiments in the text messages as “unacceptable and deeply upsetting.”`\
 https://nytimes.com/2024/07/08/nyregion/columbia-university-deans-antisemitism.html
 
