@@ -1,3 +1,11 @@
+**Want a Cake to Impress? Make This Vietnamese Classic.**\
+`Showstopping bánh bò nướng, tinted jade from aromatic pandan paste, is both comfort and delight to whoever encounters it.`\
+https://nytimes.com/2024/07/08/dining/banh-bo-nuong-vietnamese-cake.html
+
+**As Menendez’s star rose, fears of corruption cast a persistent shadow.**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2024/07/08/nyregion/menendez-trial/as-menendezs-star-rose-fears-of-corruption-cast-a-persistent-shadow
+
 **France Learns a New Word: Ungovernable**\
 `Far from producing a “clarification,” President Emmanuel Macron’s snap election has yielded a muddle that could take months to sort out.`\
 https://nytimes.com/2024/07/08/world/europe/france-election-parliament-macron.html
@@ -6,8 +14,8 @@ https://nytimes.com/2024/07/08/world/europe/france-election-parliament-macron.ht
 `To argue against Kamala Harris is not inherently racist or sexist.`\
 https://nytimes.com/live/2024/07/02/opinion/thepoint/kamala-harris-democratic-nominee
 
-**2 Russian Women Found Guilty of ‘Justifying Terrorism’ for Their Play**\
-`The theater director and playwright were sentenced to six years in prison, a stark indication of the increasing suppression of free speech since Russia’s attack on Ukraine, their lawyers and critics say.`\
+**2 Russians Found Guilty of ‘Justifying Terrorism’ in Their Play About ISIS**\
+`A theater director and playwright were sentenced to prison, a stark indication of the increasing suppression of free speech since Russia’s attack on Ukraine, their lawyers and critics say.`\
 https://nytimes.com/2024/07/08/world/europe/russia-playwright-director-terrorism-guilty.html
 
 **Who’s Running Against Mayor Adams? The Answer May Shape Other Key Races.**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/08/opinion/biden-democratic-nominee.html
 **Have You Ever Had a Bad Therapist? Tell Us About It.**\
 `A New York Times mental health reporter wants to hear why therapy didn’t work out.`\
 https://nytimes.com/2024/07/08/well/mind/therapy-red-flags-callout.html
-
-**Griezmann capable of much more - Rabiot**\
-`Adrien Rabiot says Antoine Griezmann is &#8220;capable of doing a lot more&#8221; as France prepare to face Spain in the semi-finals of the European Championship on Tuesday.`\
-https://nytimes.com/athletic/5624294/2024/07/08/antoine-griezmann-euro-2024/
-
-**Mats Wieffer to Brighton: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate Mats Wieffer's move to Brighton`\
-https://nytimes.com/athletic/5620099/2024/07/08/mats-wieffer-to-brighton-transfer-ratings/
 
