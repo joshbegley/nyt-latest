@@ -1,3 +1,11 @@
+**More Ukrainians May Die in Attacks on Medical Sites in 2024, W.H.O. Data Suggest**\
+`A Russian missile strike on a children’s hospital in Kyiv on Monday highlighted the growing number of deadly attacks on medical facilities, vehicles and workers.`\
+https://nytimes.com/2024/07/08/world/europe/ukraine-hospitals-russian-strikes.html
+
+**Meet Lulu Sun, the Kiwi qualifier who is taking Wimbledon by storm**\
+`Lulu Sun grew up in a tiny town in New Zealand. On Sunday she beat Emma Raducanu on Centre Court at Wimbledon to reach the quarterfinals`\
+https://nytimes.com/athletic/5624896/2024/07/08/lulu-sun-wimbledon-quarterfinal/
+
 **Team USA raves about Cooper Flagg: 'Unbelievable'**\
 `Flagg is an incoming freshman at Duke and an early favorite as the No. 1 pick of the 2025 NBA Draft.`\
 https://nytimes.com/athletic/5625267/2024/07/08/cooper-flagg-usa-olympic-training-camp/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/08/us/politics/biden-presidential-race.html
 **$1 Billion Bloomberg Gift to Hopkins Makes Tuition Free for Most Medical Students**\
 `The gift, made by Michael R. Bloomberg’s philanthropic organization, will also cover living expenses for some Johns Hopkins University students.`\
 https://nytimes.com/2024/07/08/us/bloomberg-donation-johns-hopkins-medical.html
-
-**See What Home Insurance Costs Where You Live**\
-`Insurance prices are surging unevenly across the country. How does your county compare?`\
-https://nytimes.com/interactive/2024/07/08/climate/home-insurance-cost-county.html
-
-**Home Insurance Rates in America Are Wildly Distorted. Here’s Why.**\
-`Climate change is driving rates higher, but not always in areas with the greatest risk.`\
-https://nytimes.com/interactive/2024/07/08/climate/home-insurance-climate-change.html
 

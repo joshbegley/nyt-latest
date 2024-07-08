@@ -1,3 +1,11 @@
+**More Ukrainians May Die in Attacks on Medical Sites in 2024, W.H.O. Data Suggest**\
+`A Russian missile strike on a children’s hospital in Kyiv on Monday highlighted the growing number of deadly attacks on medical facilities, vehicles and workers.`\
+https://nytimes.com/2024/07/08/world/europe/ukraine-hospitals-russian-strikes.html
+
+**Meet Lulu Sun, the Kiwi qualifier who is taking Wimbledon by storm**\
+`Lulu Sun grew up in a tiny town in New Zealand. On Sunday she beat Emma Raducanu on Centre Court at Wimbledon to reach the quarterfinals`\
+https://nytimes.com/athletic/5624896/2024/07/08/lulu-sun-wimbledon-quarterfinal/
+
 **Texas Utility Considers Mobile Generators as Beryl Leaves Millions Without Power**\
 `CenterPoint Energy said more than two million customers lost power in the storm, and that those in the hardest-hit areas should prepare for an extended period without electricity.`\
 https://nytimes.com/2024/07/07/us/houston-texas-power-beryl-storm.html
