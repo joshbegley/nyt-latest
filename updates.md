@@ -1,3 +1,7 @@
+**Oil and gas companies in Texas brace for the storm.**\
+`Shell, Exxon Mobil and Citgo temporarily reduced oil production and refining in the Gulf of Mexico.`\
+https://nytimes.com/live/2024/07/07/us/texas-hurricane-beryl/oil-and-gas-companies-in-texas-brace-for-the-storm
+
 **Meet the Wimbledon contender who Mpetshi Perricard has aced the most - his best friend**\
 `Giovanni Mpetshi Perricard's serve is lethal but one player knows its secret: his best friend Arthur Fils, with him in Wimbledon's Ro16`\
 https://nytimes.com/athletic/5622427/2024/07/08/mpetshi-perricard-serve-wimbledon-aces-how-to-return/
