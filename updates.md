@@ -1,3 +1,7 @@
+**Chris Sale, Marcell Ozuna and Reynaldo López took unique routes to NL All-Star team**\
+`The Braves have three 2024 All-Stars in Chris Sale, Marcell Ozuna and Reynaldo López. They helped keep them above water in the first half.`\
+https://nytimes.com/athletic/5622790/2024/07/07/braves-all-stars-chris-sale-marcell-ozuna-reynaldo-lopez/
+
 **Three Braves takeaways: Sale, Ozuna and López took unique routes to 2023 NL All-Star team**\
 `The Braves have three 2024 All-Stars in Chris Sale, Marcell Ozuna and Reynaldo López. They helped keep them above water in the first half.`\
 https://nytimes.com/athletic/5622790/2024/07/07/braves-all-stars-chris-sale-marcell-ozuna-reynaldo-lopez/
