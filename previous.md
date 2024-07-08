@@ -1,3 +1,7 @@
+**Multibillion-Dollar Fraud Trial Against Archegos Founder Nears Its End**\
+`Prosecutors and lawyers presented closing arguments in the case against Bill Hwang, who is charged with 11 counts including securities fraud and racketeering.`\
+https://nytimes.com/2024/07/08/business/archegos-closing-arguments-bill-hwang.html
+
 **Biden Tries to Soothe His Top Fund-Raisers on a Private Call**\
 `Over 19 minutes, the president repeated his assertion that he was staying in the race and suggested it was time to turn the focus back to Donald Trump.`\
 https://nytimes.com/2024/07/08/us/politics/biden-donor-call.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/02/opinion/thepoint/kamala-harris-democratic-no
 **2 Russians Found Guilty of ‘Justifying Terrorism’ in Their Play About ISIS**\
 `A theater director and playwright were sentenced to prison, a stark indication of the increasing suppression of free speech since Russia’s attack on Ukraine, their lawyers and critics say.`\
 https://nytimes.com/2024/07/08/world/europe/russia-playwright-director-terrorism-guilty.html
-
-**Who’s Running Against Mayor Adams? The Answer May Shape Other Key Races.**\
-`New York City officials, including the comptroller, Brad Lander, are weighing whether to challenge Eric Adams, potentially creating openings in other races.`\
-https://nytimes.com/2024/07/08/nyregion/adams-lander-mayor-election.html
 

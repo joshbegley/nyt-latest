@@ -1,3 +1,7 @@
+**Multibillion-Dollar Fraud Trial Against Archegos Founder Nears Its End**\
+`Prosecutors and lawyers presented closing arguments in the case against Bill Hwang, who is charged with 11 counts including securities fraud and racketeering.`\
+https://nytimes.com/2024/07/08/business/archegos-closing-arguments-bill-hwang.html
+
 **Biden Tries to Soothe His Top Fund-Raisers on a Private Call**\
 `Over 19 minutes, the president repeated his assertion that he was staying in the race and suggested it was time to turn the focus back to Donald Trump.`\
 https://nytimes.com/2024/07/08/us/politics/biden-donor-call.html
