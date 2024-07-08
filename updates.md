@@ -1,3 +1,7 @@
+**Djokovic accuses Wimbledon crowd of 'disrespect' after advancing to quarterfinals**\
+`Novak Djokovic advanced to the quarterfinals of Wimbledon before taking aim at sections of the Centre Court crowd for what he called &#8220;disrespect&#8221; towards him during his match with Holger Rune.`\
+https://nytimes.com/athletic/5624917/2024/07/08/novak-djokovic-wimbledon-crowd-rune/
+
 **Please, Mr. President, Do the Right Thing**\
 `Biden has done a great job. Now he can serve America by stepping aside.`\
 https://nytimes.com/2024/07/08/opinion/biden-trump.html

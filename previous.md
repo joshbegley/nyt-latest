@@ -1,3 +1,7 @@
+**Djokovic accuses Wimbledon crowd of 'disrespect' after advancing to quarterfinals**\
+`Novak Djokovic advanced to the quarterfinals of Wimbledon before taking aim at sections of the Centre Court crowd for what he called &#8220;disrespect&#8221; towards him during his match with Holger Rune.`\
+https://nytimes.com/athletic/5624917/2024/07/08/novak-djokovic-wimbledon-crowd-rune/
+
 **Please, Mr. President, Do the Right Thing**\
 `Biden has done a great job. Now he can serve America by stepping aside.`\
 https://nytimes.com/2024/07/08/opinion/biden-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/08/us/beryl-storm-houston-toads.html
 **Nadine Menendez’s trial was delayed so that she could be treated for cancer.**\
 `Nadine Menendez is charged along with her husband, Senator Robert Menendez, in a complex bribery scheme. She will undergo a mastectomy.`\
 https://nytimes.com/live/2024/07/08/nyregion/menendez-trial/nadine-menendezs-trial-was-delayed-so-that-she-could-be-treated-for-cancer
-
-**Livvy Dunne returning to LSU gymnastics for 5th year**\
-`Dunne's return adds depth to the Tigers' stocked roster as LSU looks to defend its NCAA title.`\
-https://nytimes.com/athletic/5624685/2024/07/08/livvy-dunne-lsu-gymnastics-return/
 
