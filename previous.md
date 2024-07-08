@@ -1,3 +1,7 @@
+**The Cheerleader Trap**\
+`A new documentary about the young women who dance for The Dallas Cowboys illuminates the deep contradictions at the heart of the profitable franchise.`\
+https://nytimes.com/2024/07/08/style/dallas-cowboys-cheerleaders-documentary.html
+
 **A Novel of Romance, Secrets and Many Crises**\
 `With “Husbands & Lovers,” Beatriz Williams delivers a multigenerational yarn and a memorable ending.`\
 https://nytimes.com/2024/07/08/books/review/husbands-and-lovers-beatriz-williams.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5624313/2024/07/08/jannik-sinner-tweener-ben-shelto
 **Euro 2024 semifinal, champion odds: Spain emerges as new favorite ahead of England**\
 `Spain is the new favorite to win Euro 2024 ahead of the semifinals. The Spaniards replaced England in the top spot in the odds.`\
 https://nytimes.com/athletic/5624242/2024/07/08/euro-2024-semifinal-odds-spain-england-france-netherlands/
-
-**Want a Cake to Impress? Make This Vietnamese Classic.**\
-`Showstopping bánh bò nướng, tinted jade from aromatic pandan paste, is both comfort and delight to whoever encounters it.`\
-https://nytimes.com/2024/07/08/dining/banh-bo-nuong-vietnamese-cake.html
 

@@ -1,3 +1,7 @@
+**The Cheerleader Trap**\
+`A new documentary about the young women who dance for The Dallas Cowboys illuminates the deep contradictions at the heart of the profitable franchise.`\
+https://nytimes.com/2024/07/08/style/dallas-cowboys-cheerleaders-documentary.html
+
 **A Novel of Romance, Secrets and Many Crises**\
 `With “Husbands & Lovers,” Beatriz Williams delivers a multigenerational yarn and a memorable ending.`\
 https://nytimes.com/2024/07/08/books/review/husbands-and-lovers-beatriz-williams.html
