@@ -1,3 +1,7 @@
+**Word of the Day: parched**\
+`This word has appeared in 83 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/07/08/learning/word-of-the-day-parched.html
+
 **What’s on TV This Week: ‘The Bachelorette’ and ‘Claim to Fame’**\
 `Jenn Tran hands out roses on ABC. Kevin and Franklin Jonas host a show with the relatives of stars.`\
 https://nytimes.com/2024/07/08/arts/television/whats-on-tv-this-week-the-bachelorette-and-claim-to-fame.html
