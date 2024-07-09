@@ -1,5 +1,9 @@
-**Where’s the Power Out? For Many in Houston, Whataburger’s App Is the Best Source**\
-`With no working outage tracker from the city’s main electricity provider, people are turning to the Texas icon’s map of open restaurants to find power.`\
+**Wimbledon day 9: From double-faults to delight, the roofs go main character, Alcaraz wins ugly**\
+`On day nine of Wimbledon, a masterclass in recovery; an indoor tournament; and American dreams dashed`\
+https://nytimes.com/athletic/5627157/2024/07/09/wimbledon-alcaraz-vekic-american-losses/
+
+**In Search of Power, Texans Ask: Are the Lights on at Whataburger?**\
+`With no working outage tracker from the Houston area’s main electricity provider, people are turning to the fast-food chain’s map of open restaurants to find power.`\
 https://nytimes.com/2024/07/09/us/beryl-whataburger-power-houston.html
 
 **Menendez’s lawyer says the government’s case relied on ‘half truths’ and innuendo.**\
@@ -21,10 +25,6 @@ https://nytimes.com/2024/07/09/arts/alec-baldwin-rust-shooting-trial-jury.html
 **Macron’s Gamble Has Opened the Door to ‘La Rupture’**\
 `The challenge of governing with three restless factions is just beginning.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/macron-french-elections
-
-**Yamal becomes youngest-ever goalscorer in men's major tournament history**\
-`Lamine Yamal &#8220;did not think&#8221; about the wondergoal that made him the youngest goalscorer in men&#8217;s major tournament history.`\
-https://nytimes.com/athletic/5627479/2024/07/09/lamine-yamal-goal-spain-france/
 
 **‘Sunny’ Is a Dreamy Robot Dramedy**\
 `This stylish sci-fi series, on Apple TV+, stars Rashida Jones as a grieving woman with an unexpected new companion.`\
