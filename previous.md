@@ -1,3 +1,7 @@
+**Everton enter race for Philogene**\
+`Everton have formally entered the race to sign Jaden Philogene from Hull City.`\
+https://nytimes.com/athletic/5625259/2024/07/09/everton-jaden-philogene-transfer/
+
 **Real Madrid and Lille progressing in talks over Yoro**\
 `Real Madrid and Lille are progressing in talks over a deal for Leny Yoro.`\
 https://nytimes.com/athletic/5625169/2024/07/09/real-madrid-leny-yoro-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/09/crosswords/spelling-bee-forum.html
 **Late Night Mulls Biden’s Decision to Stay in the Race**\
 `“He’s basically the guy doing 30 in the left lane, and he ain’t moving for anybody,” Jimmy Fallon said of President Biden on Monday.`\
 https://nytimes.com/2024/07/09/arts/television/late-night-biden.html
-
-**The Transfer DealSheet: Arsenal's Calafiori interest, Man Utd move closer to Zirkzee deal**\
-`Welcome to the latest edition of the Transfer DealSheet, your weekly guide to what is happening in the summer transfer window`\
-https://nytimes.com/athletic/5619869/2024/07/09/arsenal-transfer-latest-manchester-united/
 

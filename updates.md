@@ -1,3 +1,7 @@
+**Everton enter race for Philogene**\
+`Everton have formally entered the race to sign Jaden Philogene from Hull City.`\
+https://nytimes.com/athletic/5625259/2024/07/09/everton-jaden-philogene-transfer/
+
 **Real Madrid and Lille progressing in talks over Yoro**\
 `Real Madrid and Lille are progressing in talks over a deal for Leny Yoro.`\
 https://nytimes.com/athletic/5625169/2024/07/09/real-madrid-leny-yoro-transfer/
