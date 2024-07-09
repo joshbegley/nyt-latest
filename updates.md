@@ -1,3 +1,11 @@
+**3 Cardinals takeaways as lineup powers them to a season high point**\
+`The Cardinals scored 27 runs over a four-games series and powered their way to 6 games over .500.`\
+https://nytimes.com/athletic/5625142/2024/07/09/cardinals-mlb-lars-nootbaar/
+
+**Penguins name Wes Clark VP of player personnel**\
+`Clark worked with Kyle Dubas and the Maple Leafs in various capacities over the previous six seasons.`\
+https://nytimes.com/athletic/5626755/2024/07/09/penguins-maple-leafs-wes-clark-kyle-dubas/
+
 **The Menendez indictment set off a political frenzy in New Jersey.**\
 `By Christopher Maag`\
 https://nytimes.com/live/2024/07/09/nyregion/bob-menendez-trial/the-menendez-indictment-set-off-a-political-frenzy-in-new-jersey
