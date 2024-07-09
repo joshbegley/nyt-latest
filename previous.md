@@ -1,3 +1,7 @@
+**Tesla’s Share of U.S. Electric Car Market Falls Below 50%**\
+`A new report estimates that the company led by Elon Musk accounted for just under half of all battery-powered vehicles sold in the second quarter of the year.`\
+https://nytimes.com/2024/07/09/business/tesla-electric-vehicles-market-share.html
+
 **Cade Cunningham inks max extension with Pistons**\
 `Last season, Cunningham averaged 22.7 points, 7.5 assists and 4.3 rebounds per game while upping his field-goal percentage to 45 percent.`\
 https://nytimes.com/athletic/5627199/2024/07/09/cade-cunningham-max-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/09/us/politics/trump-biden-poll-debate.html
 **Arch Manning opts into College Football 25, will appear in video game**\
 `In March, Orangebloods reported the former No. 1 recruit decided not to opt in because he was 'focused on playing football on the field.'`\
 https://nytimes.com/athletic/5627164/2024/07/09/arch-manning-video-game-college-football-25/
-
-**Man Utd agree deal to sell Greenwood to Marseille**\
-`Marseille have reached an agreement with Manchester United to sign Mason Greenwood, although the proposed move remains subject to the forward’s approval.`\
-https://nytimes.com/athletic/5623710/2024/07/09/mason-greenwood-marseille-agreement/
 

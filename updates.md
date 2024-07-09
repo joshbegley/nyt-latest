@@ -1,3 +1,7 @@
+**Tesla’s Share of U.S. Electric Car Market Falls Below 50%**\
+`A new report estimates that the company led by Elon Musk accounted for just under half of all battery-powered vehicles sold in the second quarter of the year.`\
+https://nytimes.com/2024/07/09/business/tesla-electric-vehicles-market-share.html
+
 **Cade Cunningham inks max extension with Pistons**\
 `Last season, Cunningham averaged 22.7 points, 7.5 assists and 4.3 rebounds per game while upping his field-goal percentage to 45 percent.`\
 https://nytimes.com/athletic/5627199/2024/07/09/cade-cunningham-max-contract-extension/
