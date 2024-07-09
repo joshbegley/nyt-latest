@@ -1,3 +1,15 @@
+**Hezbollah launches retaliatory rockets after Israel appears to strike in Syria.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/07/09/world/israel-gaza-war-hamas/hezbollah-launches-retaliatory-rockets-after-israel-appears-to-strike-in-syria
+
+**Statue Honoring Women and Justice Vandalized at University of Houston**\
+`An anti-abortion group had previously denounced Shahzia Sikander’s sculpture as “satanic.” University officials said they are investigating the attack.`\
+https://nytimes.com/2024/07/09/arts/design/shahzia-sikander-statue-vandalized-university-of-houston.html
+
+**Hope Alswang, 77, Who Transformed Florida’s Largest Art Museum, Dies**\
+`As the executive director of the Norton Museum of Art, she oversaw an expansion by the British architect Norman Foster. “Great art,” she said, “deserves great architecture.”`\
+https://nytimes.com/2024/07/09/arts/hope-alswang-dead.html
+
 **N.Y.U. Settles Lawsuit by Students Who Claimed Antisemitic Harassment**\
 `The lawsuit was part of a wave of litigation against universities over accusations of antisemitism related to campus protests over the war in Gaza.`\
 https://nytimes.com/2024/07/09/nyregion/nyu-antisemitism-settlement.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/09/us/politics/jen-omalley-dillon-biden.html
 **Menendez Trial’s Odd Moments: Pyramids, French Nicknames and a Bell**\
 `Senator Robert Menendez’s corruption trial has featured testimony that ventured into offbeat territory.`\
 https://nytimes.com/2024/07/09/nyregion/menendez-trial-odd-moments.html
-
-**Metal Thieves Are Stripping America’s Cities**\
-`Across the country, copper and other valuable materials have been stolen from streetlights, statues and even gravesites, costing millions to repair.`\
-https://nytimes.com/2024/07/09/us/copper-theft-heavy-metal.html
-
-**It’s an Old Story: Great Authors Are Not Always Great People**\
-`Writers are flawed humans just like everyone else, only a little more so.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/munro-gaiman-author-controversy
-
-**Dutch golfer Luiten denied place in Olympics field**\
-`The International Olympic Committee denied a request by the International Golf Federation to expand the field to 61 on Tuesday.`\
-https://nytimes.com/athletic/5627127/2024/07/09/joost-luiten-olympics-netherlands-golf/
 
