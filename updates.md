@@ -1,3 +1,7 @@
+**The Ingredient That Brightens Every Dish It’s In**\
+`A staple of Moroccan cooking, preserved lemon adds zest and depth to earthy dishes like potato salad and lentil soup.`\
+https://nytimes.com/2024/07/09/dining/preserved-lemon.html
+
 **He Told Biden to ‘Pass the Torch.’ It Cost Him His Role in a State Campaign.**\
 `Clint Keaveny, an outspoken volunteer, was removed from a Democratic congressional campaign for holding up a protest sign at a Biden rally.`\
 https://nytimes.com/2024/07/09/us/biden-democrat-congressional-campaign.html
