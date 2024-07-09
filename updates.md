@@ -1,3 +1,7 @@
+**Lee, Wallner key another Twins' comeback win as they chip away in AL Central race**\
+`The Twins haven’t been this close to the lead in the American League Central since May 18, when they trailed the Guardians by 4 1/2 games.`\
+https://nytimes.com/athletic/5626110/2024/07/09/twins-white-sox-brooks-lee-matt-wallner-al-cental-race/
+
 **Music Catalog Giant Hipgnosis Is Sold, and Merck Mercuriadis Exits**\
 `The company, whose pricey acquisitions kicked off a rush on catalog sales, sold its assets to Blackstone for $1.6 billion, and its outspoken leader will step down.`\
 https://nytimes.com/2024/07/09/arts/music/hipgnosis-sold-blackstone-merck-mercuriadis.html

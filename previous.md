@@ -1,3 +1,7 @@
+**Lee, Wallner key another Twins' comeback win as they chip away in AL Central race**\
+`The Twins haven’t been this close to the lead in the American League Central since May 18, when they trailed the Guardians by 4 1/2 games.`\
+https://nytimes.com/athletic/5626110/2024/07/09/twins-white-sox-brooks-lee-matt-wallner-al-cental-race/
+
 **Music Catalog Giant Hipgnosis Is Sold, and Merck Mercuriadis Exits**\
 `The company, whose pricey acquisitions kicked off a rush on catalog sales, sold its assets to Blackstone for $1.6 billion, and its outspoken leader will step down.`\
 https://nytimes.com/2024/07/09/arts/music/hipgnosis-sold-blackstone-merck-mercuriadis.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5625153/2024/07/09/wild-john-hynes-offseason-player
 **The tale of one France fan, 305 matches and 35 roosters named Balthazar**\
 `Clement Tomaszewski has followed the France national team since the 1982 World Cup and is invariably accompanied by a cockerel`\
 https://nytimes.com/athletic/5625429/2024/07/09/france-rooster-clement-balthazar/
-
-**The Pulse: The 17-year-old wowing NBA legends**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5625418/2024/07/09/cooper-flagg-team-usa-duke-the-pulse/
 
