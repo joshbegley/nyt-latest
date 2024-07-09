@@ -1,3 +1,7 @@
+**U.S. Plans Up to $1.6 Billion in Funding for Packaging Computer Chips**\
+`The proposed funding, part of the CHIPS Act, is intended to stoke chip packaging, a process that helps drive progress in semiconductors but that takes place mostly in Asia.`\
+https://nytimes.com/2024/07/09/technology/chips-packaging-semiconductors.html
+
 **Jannik Sinner out of Wimbledon after struggling physically against Medvedev**\
 `Jannik Sinner, world No 1, is out of Wimbledon after a five-set defeat to Russian No 5 seed Daniil Medvedev in the quarterfinals on Tuesday.`\
 https://nytimes.com/athletic/5626996/2024/07/09/jannik-sinner-out-of-wimbledon-after-struggling-physically-vs-daniil-medvedev/
