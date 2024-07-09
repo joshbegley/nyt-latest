@@ -1,3 +1,11 @@
+**Organized looters are attacking aid convoys in search of contraband cigarettes, officials say.**\
+`By Aaron Boxerman and Natan Odenheimer`\
+https://nytimes.com/live/2024/07/09/world/israel-gaza-war-hamas/organized-looters-are-attacking-aid-convoys-in-search-of-contraband-cigarettes-officials-say
+
+**Wimbledon roundtable: Who could capitalise on the open women's draw to win?**\
+`As Wimbledon's quarterfinals begin, The Athletic's tennis team takes stock of the women's singles draw`\
+https://nytimes.com/athletic/5625891/2024/07/09/wimbledon-roundtable-womens-singles-winner/
+
 **F.T.C. Says Middlemen Appear to Be Driving Up Drug Prices**\
 `In a report, the regulator sharply criticized pharmacy benefit managers, a reversal from its longstanding hands-off approach to policing the companies.`\
 https://nytimes.com/2024/07/09/health/ftc-pharmacy-benefit-managers-drug-prices.html
