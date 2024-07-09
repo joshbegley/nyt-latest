@@ -1,6 +1,18 @@
+**Big Ten recruiting thoughts: Ohio State, Oregon keep rolling, Michigan surging**\
+`Led by Ohio State, which has the No. 1 class in the nation, the Big Ten has eight teams ranked in the top 25 in the 247Sports Composite.`\
+https://nytimes.com/athletic/5622826/2024/07/09/big-ten-recruiting-visits-michigan-ohio-state-oregon/
+
+**From Evan Cooper to a new kicker: 10 key developments at Nebraska since the spring game**\
+`Offseason? Never! A flurry of recent transactions has altered the look of the 2024 Cornhuskers.`\
+https://nytimes.com/athletic/5624682/2024/07/09/nebraska-football-evan-cooper-john-butler/
+
 **Beryl Leaves Millions Without Power in Houston: What to Know**\
 `The storm hit Texas on Monday as a Category 1 hurricane. As the storm moved out of the state, officials warned it could take days to fully restore electricity.`\
 https://nytimes.com/2024/07/09/us/beryl-storm-forecast.html
+
+**Phillies takeaways on current and future roster decisions and Aaron Nola's form**\
+`The Phillies have roster decisions to make now that could shape future ones as they near the trade deadline. `\
+https://nytimes.com/athletic/5624780/2024/07/09/phillies-roster-decisions-bench-aaron-nola/
 
 **A Silence Is Shattered, and So Are Many Fans of Alice Munro**\
 `Admirers said they were “blindsided” by revelations that Munro’s youngest daughter had been abused by her stepfather — and that Munro stayed with him even after she learned of it years later.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/09/business/synapse-bankruptcy-fintech-fdic-insuranc
 **The Frenchette Team Breathes New Life Into Le Veau d’Or**\
 `The chefs Lee Hanson and Riad Nasr have restored this French gem on the Upper East Side.`\
 https://nytimes.com/2024/07/09/dining/frenchette-team-le-veau-dor.html
-
-**The Eleven Madison Park Hospitality Guru Who Worked on ‘The Bear’ Opens Up**\
-`Will Guidara, who has a co-producing and writing credit on Season 3, talks about the power of surprise and the calling of restaurant work.`\
-https://nytimes.com/2024/07/09/dining/will-guidara-the-bear-season-3.html
-
-**Trump’s Lust for Expulsion Has Deep Roots**\
-`It is no accident that he is talking about immigrants’ “poisoning the blood of our country.”`\
-https://nytimes.com/2024/07/09/opinion/trump-illiberalism-american-history.html
-
-**Can This Doctor Tapped to Run Haiti Save the Country?**\
-`Haiti’s new prime minister is a trained gynecologist who experts say is more policy expert than seasoned politician. Many Haitians are counting on him to quell rampant gang violence.`\
-https://nytimes.com/2024/07/09/us/haiti-prime-minister-garry-conille.html
 
