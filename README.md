@@ -1,3 +1,7 @@
+**The Ingredient That Brightens Every Dish It’s In**\
+`A staple of Moroccan cooking, preserved lemon adds zest and depth to earthy dishes like potato salad and lentil soup.`\
+https://nytimes.com/2024/07/09/dining/preserved-lemon.html
+
 **He Told Biden to ‘Pass the Torch.’ It Cost Him His Role in a State Campaign.**\
 `Clint Keaveny, an outspoken volunteer, was removed from a Democratic congressional campaign for holding up a protest sign at a Biden rally.`\
 https://nytimes.com/2024/07/09/us/biden-democrat-congressional-campaign.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5624597/2024/07/09/baseball-cards-mickey-mantle-sto
 **Crew chief Rodney Childers joining Spire Motorsports**\
 `Although Childers and Harvick would not win another title, they still were one of the most dominant teams during their 10 years together.`\
 https://nytimes.com/athletic/5626425/2024/07/09/nascar-rodney-childers-spire-motorsports-corey-lajoie/
-
-**Powell Welcomes Cooling Inflation but Wants ‘More Good Data’ Before Rate Cut**\
-`Jerome H. Powell, the chair of the Federal Reserve, delivered optimistic remarks to Senators as inflation and the job market slow gently.`\
-https://nytimes.com/2024/07/09/business/economy/powell-inflation-rate-cut.html
 
