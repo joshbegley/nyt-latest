@@ -1,3 +1,7 @@
+**Joselu interview: 'Luis de la Fuente has built a family with Spain. That's the key'**\
+`In an interview with The Athletic, the former Real Madrid striker looks back on his career and Spain's run to the Euro 2024 semi-finals`\
+https://nytimes.com/athletic/5623475/2024/07/09/joselu-spain-euro-2024-interview-exclusive-france/
+
 **Tapping up team-mates at tournaments: How much does it happen? Can it make a difference?**\
 `Yamal and Williams, Bellingham and Henderson - how much influence can international team-mates have on a player's future?`\
 https://nytimes.com/athletic/5619945/2024/07/09/tapping-up-transfer-euros-copa/
