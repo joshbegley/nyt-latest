@@ -1,3 +1,7 @@
+**Word of the Day: varnish**\
+`This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/07/09/learning/word-of-the-day-varnish.html
+
 **Corrections: July 9, 2024**\
 `Corrections that appeared in print on Tuesday, July 9, 2024.`\
 https://nytimes.com/2024/07/09/pageoneplus/corrections-july-9-2024.html
