@@ -1,3 +1,11 @@
+**Political Gridlock Will Raise the Economic Stakes in France**\
+`The French election results point to a prolonged political logjam, which may not help a country bedeviled by high debt and slowing economic growth.`\
+https://nytimes.com/2024/07/09/business/france-macron-parliament-gridlock.html
+
+**Craig Bellamy appointed Wales manager**\
+`Craig Bellamy has been appointed as the new manager of Wales on a four-year contract.`\
+https://nytimes.com/athletic/5625684/2024/07/09/craig-bellamy-wales-manager/
+
 **Celtics co-owner Wyc Grousbeck explains why he is selling the team after NBA title**\
 `Celtics co-owner Wyc Grousbeck broke his silence Monday on why he is selling the team just after winning Banner 18.`\
 https://nytimes.com/athletic/5625374/2024/07/09/celtics-sale-co-owner-wyc-grousbeck/

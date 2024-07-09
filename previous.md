@@ -1,3 +1,11 @@
+**Political Gridlock Will Raise the Economic Stakes in France**\
+`The French election results point to a prolonged political logjam, which may not help a country bedeviled by high debt and slowing economic growth.`\
+https://nytimes.com/2024/07/09/business/france-macron-parliament-gridlock.html
+
+**Craig Bellamy appointed Wales manager**\
+`Craig Bellamy has been appointed as the new manager of Wales on a four-year contract.`\
+https://nytimes.com/athletic/5625684/2024/07/09/craig-bellamy-wales-manager/
+
 **Celtics co-owner Wyc Grousbeck explains why he is selling the team after NBA title**\
 `Celtics co-owner Wyc Grousbeck broke his silence Monday on why he is selling the team just after winning Banner 18.`\
 https://nytimes.com/athletic/5625374/2024/07/09/celtics-sale-co-owner-wyc-grousbeck/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/09/us/beryl-storm-forecast.html
 **Phillies takeaways on current and future roster decisions and Aaron Nola's form**\
 `The Phillies have roster decisions to make now that could shape future ones as they near the trade deadline. `\
 https://nytimes.com/athletic/5624780/2024/07/09/phillies-roster-decisions-bench-aaron-nola/
-
-**A Silence Is Shattered, and So Are Many Fans of Alice Munro**\
-`Admirers said they were “blindsided” by revelations that Munro’s youngest daughter had been abused by her stepfather — and that Munro stayed with him even after she learned of it years later.`\
-https://nytimes.com/2024/07/09/books/a-silence-is-shattered-and-so-are-many-fans-of-alice-munro.html
-
-**Harris Heads to Nevada Once More, With an Intense Spotlight Following Her**\
-`Vice President Kamala Harris is set to speak in Las Vegas, aiming to focus on the stakes in President Biden’s fight against Donald J. Trump.`\
-https://nytimes.com/2024/07/09/us/politics/kamala-harris-las-vegas-nevada.html
 
