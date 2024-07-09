@@ -1,3 +1,11 @@
+**Eight most intriguing Chiefs players to watch in training camp**\
+`Rookie running back/returner Louis Rees-Zammit and veteran wide receiver Kadarius Toney are two to watch in St. Joseph, Mo., this summer.`\
+https://nytimes.com/athletic/5601169/2024/07/09/chiefs-training-camp-players-to-watch/
+
+**Bears fan survey 2024: Caleb Williams excitement, higher expectations, stadium questions**\
+`It's time for the fifth annual Bears fan survey, where we gauge how fans feel about the new QB and the overall state of the franchise.`\
+https://nytimes.com/athletic/5624681/2024/07/09/bears-fan-survey-questions-2024/
+
 **Guardians mailbag: The best Ramirez in franchise history, front office regrets and more**\
 `Our expert examines José Ramírez's credentials, looks at a trade deadline possibility and more.`\
 https://nytimes.com/athletic/5619119/2024/07/09/guardians-mailbag-jose-ramirez-trade-deadline/
@@ -14,6 +22,10 @@ https://nytimes.com/athletic/5625500/2024/07/09/messi-ronaldo-mate/
 `How are some key 2025 NFL Draft QB prospects getting ready for the college football season? We asked them.  `\
 https://nytimes.com/athletic/5608060/2024/07/09/nfl-draft-2025-quarterbacks-scouting-reports/
 
+**With young arms emerging and veterans getting healthy, can Cubs' bullpen finally stabilize?**\
+`After a slow start, Chicago's relievers are performing better and should get some reinforcements.`\
+https://nytimes.com/athletic/5624902/2024/07/09/cubs-bullpen-young-pitchers-emerging/
+
 **Ukraine Looms Over NATO Summit, and Biden Is Defiant on Running**\
 `Plus, a potential new way to test for autism.`\
 https://nytimes.com/2024/07/09/podcasts/ukraine-nato-summit-and-biden-running.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5624416/2024/07/09/canada-argentina-inside-team-mes
 **Sunday celebration provided Twins veteran Christian Vázquez with well-deserved relief**\
 `Adjustments to his approach and batting stance have paid dividends for the catcher in recent weeks, including his walk-off homer on Sunday.`\
 https://nytimes.com/athletic/5625498/2024/07/09/twins-christian-vazquez-sunday-celebration/
-
-**The Era of Killer Robots Is Here**\
-`Ukraine has become a Silicon Valley for autonomous weapons.`\
-https://nytimes.com/2024/07/09/podcasts/the-daily/the-era-of-killer-robots-is-here.html
-
-**The Connections Companion No. 395, July 10, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/09/crosswords/connections-companion-395.html
-
-**Everton mailbag: Send your questions to Patrick Boyland**\
-`Send me your questions and I’ll respond to as many as I can in an article this week`\
-https://nytimes.com/athletic/5625863/2024/07/09/everton-mailbag-transfers-friedkin/
 
