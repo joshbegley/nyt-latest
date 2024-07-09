@@ -1,3 +1,15 @@
+**Full Time: Emma Hayes’ charisma carries weight**\
+`Welcome to Full Time, The Athletic’s weekly women’s soccer newsletter. `\
+https://nytimes.com/athletic/5627014/2024/07/09/uswnt-emma-hayes-olympics-angel-city-sale-full-time/
+
+**F.T.C. Bars Anonymous Messaging App From Serving Users Under Age 18**\
+`The move against the app NGL by the Federal Trade Commission was the first time the agency barred an online service from hosting minors.`\
+https://nytimes.com/2024/07/09/technology/ngl-app-ftc-settlement.html
+
+**Real Betis sign Llorente from Leeds**\
+`Leeds United defender Diego Llorente has completed a permanent move to Real Betis for an undisclosed fee.`\
+https://nytimes.com/athletic/5621616/2024/07/09/leeds-news-diego-llorente-real-betis/
+
 **Gundy: OSU star RB Ollie Gordon won't be suspended**\
 `“He’s going to play,” Gundy said. “I might make him carry the ball 50 times in the first game, but he’s going to play."`\
 https://nytimes.com/athletic/5627041/2024/07/09/mike-gundy-oklahoma-state-ollie-gordon-dui-suspension/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/09/world/israel-gaza-war-hamas/gaza-city-quiete
 **Why is FSG keen on buying Bordeaux - and could Liverpool benefit?**\
 `Bordeaux is a big but troubled club - so why are Liverpool's owners exploring adding it to their portfolio?`\
 https://nytimes.com/athletic/5625984/2024/07/09/fsg-bordeaux-multi-club-ownership/
-
-**Stay or Go? The Biden Storm Rages.**\
-`Readers lament and support the president’s refusal to heed calls to step aside. Also: Televised therapy; Supreme Court rulings.`\
-https://nytimes.com/2024/07/09/opinion/joe-biden-election-withdrawal.html
-
-**Ten Hag: Ashworth and Wilcox will raise the bar at Man Utd**\
-`Erik ten Hag believes that Manchester United&#8217;s appointments of sporting director Dan Ashworth and technical director Jason Wilcox will help &#8220;raise the bar&#8221; at Old Trafford.`\
-https://nytimes.com/athletic/5626901/2024/07/09/erik-ten-hag-dan-ashworth/
-
-**3 Cardinals takeaways as lineup powers them to a season high point**\
-`The Cardinals scored 27 runs over a four-games series and powered their way to 6 games over .500.`\
-https://nytimes.com/athletic/5625142/2024/07/09/cardinals-mlb-lars-nootbaar/
 
