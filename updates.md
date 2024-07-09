@@ -1,3 +1,19 @@
+**Eight most intriguing Chiefs players to watch in training camp**\
+`Rookie running back/returner Louis Rees-Zammit and veteran wide receiver Kadarius Toney are two to watch in St. Joseph, Mo., this summer.`\
+https://nytimes.com/athletic/5601169/2024/07/09/chiefs-training-camp-players-to-watch/
+
+**Bears fan survey 2024: Caleb Williams excitement, higher expectations, stadium questions**\
+`It's time for the fifth annual Bears fan survey, where we gauge how fans feel about the new QB and the overall state of the franchise.`\
+https://nytimes.com/athletic/5624681/2024/07/09/bears-fan-survey-questions-2024/
+
+**Select team straw poll: LeBron voted Team USA's best in camp**\
+`LeBron James, the NBA’s all-time leading scorer, was voted the top national team player in a straw poll of Olympic camp participants.`\
+https://nytimes.com/athletic/5625482/2024/07/09/lebron-james-team-usa-olympic-training-camp-poll/
+
+**With young arms emerging and veterans getting healthy, can Cubs' bullpen finally stabilize?**\
+`After a slow start, Chicago's relievers are performing better and should get some reinforcements.`\
+https://nytimes.com/athletic/5624902/2024/07/09/cubs-bullpen-young-pitchers-emerging/
+
 **Guardians mailbag: The best Ramirez in franchise history, front office regrets and more**\
 `Our expert examines José Ramírez's credentials, looks at a trade deadline possibility and more.`\
 https://nytimes.com/athletic/5619119/2024/07/09/guardians-mailbag-jose-ramirez-trade-deadline/
