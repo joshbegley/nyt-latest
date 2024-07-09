@@ -1,3 +1,7 @@
+**Quotation of the Day: A Compromise? France Needs It but Disdains It.**\
+`Quotation of the Day for Tuesday, July 9, 2024.`\
+https://nytimes.com/2024/07/08/pageoneplus/quotation-of-the-day-a-compromise-france-needs-it-but-disdains-it.html
+
 **Scoop City: NFC East Preview, plus a cafeteria report**\
 `A look at the biggest questions, positions to watch and sleepers for the Eagles, Cowboys, Commanders and Giants.`\
 https://nytimes.com/athletic/5623975/2024/07/08/nfc-east-preview-scoop-city/
