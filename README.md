@@ -1,3 +1,7 @@
+**Jesse Marsch is back in New Jersey and has a chance to make history with Canada**\
+`Three decades on from watching 1994 World Cup semifinal in the Meadowlands, Marsch is back as his Canada take on Argentina in Copa America`\
+https://nytimes.com/athletic/5625275/2024/07/09/jesse-marsch-canada-argentina-coach/
+
 **Flick meets Thiago over Barcelona coaching role**\
 `Hansi Flick and Thiago Alcantara have met to discuss as possible role on Barcelona&#8217;s coaching staff.`\
 https://nytimes.com/athletic/5625005/2024/07/09/thiago-barcelona-coach-hansi-flick/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5624902/2024/07/09/cubs-bullpen-young-pitchers-emer
 **Ukraine Looms Over NATO Summit, and Biden Is Defiant on Running**\
 `Plus, a potential new way to test for autism.`\
 https://nytimes.com/2024/07/09/podcasts/ukraine-nato-summit-and-biden-running.html
-
-**'Maritime Messi', the napper and the 'rock': Inside the Canada team taking on Argentina**\
-`Canada's men's national soccer team is in the Copa America semifinal. Here they are like you've never seen them before`\
-https://nytimes.com/athletic/5624416/2024/07/09/canada-argentina-inside-team-messi/
 

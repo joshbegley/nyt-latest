@@ -1,3 +1,7 @@
+**Flick meets Thiago over Barcelona coaching role**\
+`Hansi Flick and Thiago Alcantara have met to discuss as possible role on Barcelona&#8217;s coaching staff.`\
+https://nytimes.com/athletic/5625005/2024/07/09/thiago-barcelona-coach-hansi-flick/
+
 **Eight most intriguing Chiefs players to watch in training camp**\
 `Rookie running back/returner Louis Rees-Zammit and veteran wide receiver Kadarius Toney are two to watch in St. Joseph, Mo., this summer.`\
 https://nytimes.com/athletic/5601169/2024/07/09/chiefs-training-camp-players-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/09/podcasts/ukraine-nato-summit-and-biden-running.ht
 **'Maritime Messi', the napper and the 'rock': Inside the Canada team taking on Argentina**\
 `Canada's men's national soccer team is in the Copa America semifinal. Here they are like you've never seen them before`\
 https://nytimes.com/athletic/5624416/2024/07/09/canada-argentina-inside-team-messi/
-
-**Sunday celebration provided Twins veteran Christian Vázquez with well-deserved relief**\
-`Adjustments to his approach and batting stance have paid dividends for the catcher in recent weeks, including his walk-off homer on Sunday.`\
-https://nytimes.com/athletic/5625498/2024/07/09/twins-christian-vazquez-sunday-celebration/
 

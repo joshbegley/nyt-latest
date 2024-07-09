@@ -1,3 +1,7 @@
+**Flick meets Thiago over Barcelona coaching role**\
+`Hansi Flick and Thiago Alcantara have met to discuss as possible role on Barcelona&#8217;s coaching staff.`\
+https://nytimes.com/athletic/5625005/2024/07/09/thiago-barcelona-coach-hansi-flick/
+
 **A beginner's guide to mate - the drink fuelling Copa America (and uniting Messi and Ronaldo)**\
 `There are so many barriers to human connection in our modern world — but mate breaks them down`\
 https://nytimes.com/athletic/5625500/2024/07/09/messi-ronaldo-mate/
