@@ -1,3 +1,11 @@
+**Southgate 'not concerned' over referee for England semi-final**\
+`Gareth Southgate says he is &#8220;not concerned&#8221; by the appointment of a referee for England&#8217;s Euro 2024 semi-final who has previously served a ban for his involvement in a match-fixing scandal.`\
+https://nytimes.com/athletic/5627276/2024/07/09/england-netherlands-referee-gareth-southgate/
+
+**Bryce Harper, Kyle Schwarber come off IL to boost Phillies lineup**\
+`The Phillies went 5-4 in the 10 days without Harper and Schwarber, although it felt longer.`\
+https://nytimes.com/athletic/5627286/2024/07/09/bryce-harper-kyle-schwarber-phillies-injured-list/
+
 **The Matrix of Consumer Discontent**\
 `What facts do different stories explain?`\
 https://nytimes.com/2024/07/09/opinion/economy-consumer-sentiment.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/09/world/europe/russia-yulia-navalnaya-arrest-order.
 **The prosecution’s closing argument cast Menendez as guiding a staggering scheme.**\
 `By Nicholas Fandos`\
 https://nytimes.com/live/2024/07/09/nyregion/bob-menendez-trial/the-prosecutions-closing-argument-cast-menendez-as-guiding-a-staggering-scheme
-
-**Second Patient to Receive a Genetically Modified Pig Kidney Has Died**\
-`Lisa Pisano, 54, lived with the organ for 47 days. She was the first patient to receive both a heart pump and an organ transplant, doctors said.`\
-https://nytimes.com/2024/07/09/health/kidney-transplant-pisano.html
-
-**The 15 Songs That Hit No. 1 This Year (So Far)**\
-`Hear tracks by Shaboozey, Sabrina Carpenter, Kendrick Lamar and more.`\
-https://nytimes.com/2024/07/09/arts/music/amplifier-newsletter-no-1-songs-2024.html
 

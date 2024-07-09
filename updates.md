@@ -1,3 +1,11 @@
+**Southgate 'not concerned' over referee for England semi-final**\
+`Gareth Southgate says he is &#8220;not concerned&#8221; by the appointment of a referee for England&#8217;s Euro 2024 semi-final who has previously served a ban for his involvement in a match-fixing scandal.`\
+https://nytimes.com/athletic/5627276/2024/07/09/england-netherlands-referee-gareth-southgate/
+
+**Bryce Harper, Kyle Schwarber come off IL to boost Phillies lineup**\
+`The Phillies went 5-4 in the 10 days without Harper and Schwarber, although it felt longer.`\
+https://nytimes.com/athletic/5627286/2024/07/09/bryce-harper-kyle-schwarber-phillies-injured-list/
+
 **The Matrix of Consumer Discontent**\
 `What facts do different stories explain?`\
 https://nytimes.com/2024/07/09/opinion/economy-consumer-sentiment.html
