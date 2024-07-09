@@ -1,3 +1,15 @@
+**Second Patient to Receive a Genetically Modified Pig Kidney Has Died**\
+`Lisa Pisano, 54, lived with the organ for 47 days. She was the first patient to receive both a heart pump and an organ transplant, doctors said.`\
+https://nytimes.com/2024/07/09/health/kidney-transplant-pisano.html
+
+**The 15 Songs That Hit No. 1 This Year (So Far)**\
+`Hear tracks by Shaboozey, Sabrina Carpenter, Kendrick Lamar and more.`\
+https://nytimes.com/2024/07/09/arts/music/amplifier-newsletter-no-1-songs-2024.html
+
+**Klay Thompson on Warriors exit: 'Sometimes breakups are necessary'**\
+`"Sometimes breakups are necessary to do whats right. I'm not the first athlete in the NBA to go do this," Thompson said.`\
+https://nytimes.com/athletic/5626636/2024/07/09/klay-thompson-mavericks-intro-conference-warriors/
+
 **Trump Leads Biden by 5 Percentage Points in Post-Debate Wisconsin Poll**\
 `The president’s weakness with younger voters is evident in the survey, as is former President Donald J. Trump’s benefiting from positive views of his White House term.`\
 https://nytimes.com/2024/07/09/us/politics/trump-biden-poll-debate.html
