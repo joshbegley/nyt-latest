@@ -1,3 +1,7 @@
+**Democrats, Swallowing Fears About Biden’s Candidacy, Remain Behind Him**\
+`Lawmakers in the House and Senate met privately to hash out their concerns about President Biden’s viability, but leaders emerged from two separate meetings pledging allegiance to their candidate.`\
+https://nytimes.com/2024/07/09/us/politics/democrats-biden-congress.html
+
 **Hezbollah launches retaliatory rockets after Israel appears to strike in Syria.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/07/09/world/israel-gaza-war-hamas/hezbollah-launches-retaliatory-rockets-after-israel-appears-to-strike-in-syria
