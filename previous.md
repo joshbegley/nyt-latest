@@ -1,3 +1,7 @@
+**A New Terrace Cafe for the Boathouse in Prospect Park**\
+`Purslane Cafe, from the group behind Rucola and more, serves sandwiches and drinks; Parcelle adds a new location; and more restaurant news.`\
+https://nytimes.com/2024/07/09/dining/nyc-restaurant-news.html
+
 **Alexandria Ocasio-Cortez Backs Biden: ‘He Is Not Leaving This Race’**\
 `Her continued support gives President Biden the backing of an influential member of the party’s progressive wing.`\
 https://nytimes.com/2024/07/09/us/politics/alexandria-ocasio-cortez-backs-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/09/business/economy/powell-inflation-rate-cut.html
 **Reliability of U.S. Economic Data Is in Jeopardy, Study Finds**\
 `A report says new approaches and increased spending are needed to ensure that government statistics remain dependable and free of political influence.`\
 https://nytimes.com/2024/07/09/business/economy/economic-data-response-rates.html
-
-**For Kamala Harris, the Challenge of Getting Ready Without Getting Ready**\
-`The vice president has made certain to demonstrate complete loyalty to President Biden.`\
-https://nytimes.com/2024/07/09/us/politics/for-kamala-harris-the-challenge-of-getting-ready-without-getting-ready.html
 

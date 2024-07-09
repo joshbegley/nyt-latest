@@ -1,3 +1,7 @@
+**A New Terrace Cafe for the Boathouse in Prospect Park**\
+`Purslane Cafe, from the group behind Rucola and more, serves sandwiches and drinks; Parcelle adds a new location; and more restaurant news.`\
+https://nytimes.com/2024/07/09/dining/nyc-restaurant-news.html
+
 **Alexandria Ocasio-Cortez Backs Biden: ‘He Is Not Leaving This Race’**\
 `Her continued support gives President Biden the backing of an influential member of the party’s progressive wing.`\
 https://nytimes.com/2024/07/09/us/politics/alexandria-ocasio-cortez-backs-biden.html
