@@ -1,3 +1,15 @@
+**Modi’s Moscow Visit Showcases a Less Isolated Putin, Angering Ukraine**\
+`Prime Minister Narendra Modi of India made his first visit to Russia in five years, even as Ukraine reeled from an attack on a children’s hospital.`\
+https://nytimes.com/2024/07/09/world/europe/russia-india-modi-moscow-putin.html
+
+**A Political Fight Won, France’s Stars Turn Back to a Soccer One**\
+`Some of the country’s top players had urged voters to reject the far right in a pivotal election. With that battle over, a date with Spain in Euro 2024 offers a more familiar challenge.`\
+https://nytimes.com/2024/07/09/world/europe/france-spain-euro-2024-election.html
+
+**NBA Summer League spotlights Clippers' need to develop young players like Cam Christie**\
+`The Clippers have gotten very little out of their drafts in recent years and need to start producing some home-grown talent.`\
+https://nytimes.com/athletic/5625515/2024/07/09/clippers-summer-league-cam-christie/
+
 **Lee, Wallner key another Twins' comeback win as they chip away in AL Central race**\
 `The Twins haven’t been this close to the lead in the American League Central since May 18, when they trailed the Guardians by 4 1/2 games.`\
 https://nytimes.com/athletic/5626110/2024/07/09/twins-white-sox-brooks-lee-matt-wallner-al-cental-race/

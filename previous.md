@@ -1,3 +1,15 @@
+**Modi’s Moscow Visit Showcases a Less Isolated Putin, Angering Ukraine**\
+`Prime Minister Narendra Modi of India made his first visit to Russia in five years, even as Ukraine reeled from an attack on a children’s hospital.`\
+https://nytimes.com/2024/07/09/world/europe/russia-india-modi-moscow-putin.html
+
+**A Political Fight Won, France’s Stars Turn Back to a Soccer One**\
+`Some of the country’s top players had urged voters to reject the far right in a pivotal election. With that battle over, a date with Spain in Euro 2024 offers a more familiar challenge.`\
+https://nytimes.com/2024/07/09/world/europe/france-spain-euro-2024-election.html
+
+**NBA Summer League spotlights Clippers' need to develop young players like Cam Christie**\
+`The Clippers have gotten very little out of their drafts in recent years and need to start producing some home-grown talent.`\
+https://nytimes.com/athletic/5625515/2024/07/09/clippers-summer-league-cam-christie/
+
 **Lee, Wallner key another Twins' comeback win as they chip away in AL Central race**\
 `The Twins haven’t been this close to the lead in the American League Central since May 18, when they trailed the Guardians by 4 1/2 games.`\
 https://nytimes.com/athletic/5626110/2024/07/09/twins-white-sox-brooks-lee-matt-wallner-al-cental-race/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5624022/2024/07/09/england-france-performance-euro-
 **State of the 49ers, DL: An overhaul up front surrounding Nick Bosa and Javon Hargrove**\
 `The offseason brought the biggest change the 49ers have had on their defensive line since Kyle Shanahan and John Lynch arrived in 2017.`\
 https://nytimes.com/athletic/5560533/2024/07/09/san-francisco-49ers-defensive-line-2024-nick-bosa/
-
-**Felix Zwayer, Jude Bellingham and the match-fixing scandal that overshadows England vs Netherlands**\
-`That the Euro 2024 semi-final will be played in Dortmund, in the same ground as the Bellingham incident, makes the past harder to ignore`\
-https://nytimes.com/athletic/5624913/2024/07/09/zwayer-bellingham-england-netherlands-euro-2024/
-
-**'Comes down to action': Wild coach John Hynes on player 'check-ins' and setting expectations**\
-`Hynes' thoughts heading into the next several weeks as he prepares to run his first training camp as Wild coach.`\
-https://nytimes.com/athletic/5625153/2024/07/09/wild-john-hynes-offseason-player-expectations/
-
-**The tale of one France fan, 305 matches and 35 roosters named Balthazar**\
-`Clement Tomaszewski has followed the France national team since the 1982 World Cup and is invariably accompanied by a cockerel`\
-https://nytimes.com/athletic/5625429/2024/07/09/france-rooster-clement-balthazar/
 
