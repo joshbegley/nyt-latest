@@ -1,3 +1,7 @@
+**Everton bid for Philogene**\
+`Everton have formally made a transfer bid to sign Jaden Philogene from Hull City.`\
+https://nytimes.com/athletic/5625259/2024/07/09/everton-jaden-philogene-transfer/
+
 **Everton enter race for Philogene**\
 `Everton have formally entered the race to sign Jaden Philogene from Hull City.`\
 https://nytimes.com/athletic/5625259/2024/07/09/everton-jaden-philogene-transfer/
