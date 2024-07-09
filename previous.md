@@ -1,3 +1,7 @@
+**Beryl Rips Through Houston, Killing 4 and Knocking Out Power for Millions**\
+`Officials warned that it could take days to restore electricity. The storm has prompted tornado warnings in East Texas, Louisiana and Arkansas.`\
+https://nytimes.com/2024/07/08/us/beryl-houston-texas-storm-hurricane.html
+
 **More Ukrainians May Die in Attacks on Medical Sites in 2024, W.H.O. Data Suggest**\
 `A Russian missile strike on a children’s hospital in Kyiv on Monday highlighted the growing number of deadly attacks on medical facilities, vehicles and workers.`\
 https://nytimes.com/2024/07/08/world/europe/ukraine-hospitals-russian-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5625163/2024/07/08/dan-hurley-contract-uconn-basket
 **What’s in Biden’s Survival Kit**\
 `Eleven days after his disastrous debate performance, the president’s strategy is coming into focus.`\
 https://nytimes.com/2024/07/08/us/politics/biden-presidential-race.html
-
-**$1 Billion Bloomberg Gift to Hopkins Makes Tuition Free for Most Medical Students**\
-`The gift, made by Michael R. Bloomberg’s philanthropic organization, will also cover living expenses for some Johns Hopkins University students.`\
-https://nytimes.com/2024/07/08/us/bloomberg-donation-johns-hopkins-medical.html
 

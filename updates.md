@@ -1,3 +1,7 @@
+**Beryl Rips Through Houston, Killing 4 and Knocking Out Power for Millions**\
+`Officials warned that it could take days to restore electricity. The storm has prompted tornado warnings in East Texas, Louisiana and Arkansas.`\
+https://nytimes.com/2024/07/08/us/beryl-houston-texas-storm-hurricane.html
+
 **More Ukrainians May Die in Attacks on Medical Sites in 2024, W.H.O. Data Suggest**\
 `A Russian missile strike on a children’s hospital in Kyiv on Monday highlighted the growing number of deadly attacks on medical facilities, vehicles and workers.`\
 https://nytimes.com/2024/07/08/world/europe/ukraine-hospitals-russian-strikes.html
