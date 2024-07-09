@@ -1,3 +1,7 @@
+**Gaza City quieted down months ago, but its residents are now under fire again.**\
+`By Hiba Yazbek and Iyad Abuheweila`\
+https://nytimes.com/live/2024/07/09/world/israel-gaza-war-hamas/gaza-city-quieted-down-months-ago-but-its-residents-are-now-under-fire-again
+
 **Why is FSG keen on buying Bordeaux - and could Liverpool benefit?**\
 `Bordeaux is a big but troubled club - so why are Liverpool's owners exploring adding it to their portfolio?`\
 https://nytimes.com/athletic/5625984/2024/07/09/fsg-bordeaux-multi-club-ownership/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5626796/2024/07/09/dak-prescott-ankle-injury-contra
 **James M. Inhofe, Senator Who Denied Climate Change, Dies at 89**\
 `An Oklahoma Republican who led the Environment Committee, he took hard-right stands on many issues but was especially vocal in challenging evidence of global warming.`\
 https://nytimes.com/2024/07/09/us/politics/james-inhofe-dead.html
-
-**New York’s Democratic Party chairman calls for the party to unite behind Biden.**\
-`The State Democratic Party chairman, Jay Jacobs, said it was time to “rally around and support our nominee.”`\
-https://nytimes.com/live/2024/07/09/us/trump-biden-election/biden-ny-jacobs
 

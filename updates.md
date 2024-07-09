@@ -1,3 +1,7 @@
+**Gaza City quieted down months ago, but its residents are now under fire again.**\
+`By Hiba Yazbek and Iyad Abuheweila`\
+https://nytimes.com/live/2024/07/09/world/israel-gaza-war-hamas/gaza-city-quieted-down-months-ago-but-its-residents-are-now-under-fire-again
+
 **Why is FSG keen on buying Bordeaux - and could Liverpool benefit?**\
 `Bordeaux is a big but troubled club - so why are Liverpool's owners exploring adding it to their portfolio?`\
 https://nytimes.com/athletic/5625984/2024/07/09/fsg-bordeaux-multi-club-ownership/
