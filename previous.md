@@ -1,5 +1,9 @@
+**Gypsy Rose Blanchard Announces Pregnancy**\
+`In a YouTube video on Tuesday, Ms. Blanchard said she was expecting her first child with her boyfriend, Ken Urker.`\
+https://nytimes.com/2024/07/09/style/gypsy-rose-blanchard-pregnancy.html
+
 **Russian Court Orders Arrest of Yulia Navalnaya, Navalny’s Widow**\
-`The court accused Yulia Navalnaya, who left Russia in 2021, of “participating in an extremist community.” She would be subject to arrest if she ever returns to Russia, the court said.`\
+`The court accused Ms. Navalnaya, who left Russia in 2021, of “participating in an extremist community.” She would be subject to arrest if she ever returns to Russia, the court said.`\
 https://nytimes.com/2024/07/09/world/europe/russia-yulia-navalnaya-arrest-order.html
 
 **The prosecution’s closing argument cast Menendez as guiding a staggering scheme.**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5623710/2024/07/09/mason-greenwood-marseille-agreem
 **Prosecutors Will Seek to Indict Weinstein on New Sex Crimes Charges**\
 `The Manhattan district attorney’s office said it was “actively pursuing” a fresh prosecution against the disgraced movie producer. Prosecutors projected a fall trial.`\
 https://nytimes.com/2024/07/09/nyregion/weinstein-rape-prosecutors.html
-
-**Trump Returns to Trail in Florida as Deadline Nears on Running Mate**\
-`Donald Trump stayed out of the spotlight as President Biden was besieged by Democratic doubts, but his Tuesday rally will be watched closely for hints about his vice president pick.`\
-https://nytimes.com/2024/07/09/us/politics/trump-florida-vp-pick.html
 

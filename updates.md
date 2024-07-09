@@ -1,3 +1,11 @@
+**Gypsy Rose Blanchard Announces Pregnancy**\
+`In a YouTube video on Tuesday, Ms. Blanchard said she was expecting her first child with her boyfriend, Ken Urker.`\
+https://nytimes.com/2024/07/09/style/gypsy-rose-blanchard-pregnancy.html
+
+**Russian Court Orders Arrest of Yulia Navalnaya, Navalny’s Widow**\
+`The court accused Ms. Navalnaya, who left Russia in 2021, of “participating in an extremist community.” She would be subject to arrest if she ever returns to Russia, the court said.`\
+https://nytimes.com/2024/07/09/world/europe/russia-yulia-navalnaya-arrest-order.html
+
 **Russian Court Orders Arrest of Yulia Navalnaya, Navalny’s Widow**\
 `The court accused Yulia Navalnaya, who left Russia in 2021, of “participating in an extremist community.” She would be subject to arrest if she ever returns to Russia, the court said.`\
 https://nytimes.com/2024/07/09/world/europe/russia-yulia-navalnaya-arrest-order.html
