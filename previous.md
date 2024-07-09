@@ -1,3 +1,7 @@
+**Ten Hag: Ashworth and Wilcox will raise the bar at Man Utd**\
+`Erik ten Hag believes that Manchester United&#8217;s appointments of sporting director Dan Ashworth and technical director Jason Wilcox will help &#8220;raise the bar&#8221; at Old Trafford.`\
+https://nytimes.com/athletic/5626901/2024/07/09/erik-ten-hag-dan-ashworth/
+
 **3 Cardinals takeaways as lineup powers them to a season high point**\
 `The Cardinals scored 27 runs over a four-games series and powered their way to 6 games over .500.`\
 https://nytimes.com/athletic/5625142/2024/07/09/cardinals-mlb-lars-nootbaar/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/09/us/politics/biden-gavin-newsom.html
 **Do You Need a Lazy Susan? Maybe Not. But They Make Meals a Lot More Fun.**\
 `Long overlooked as throwback novelties, spinning trays are making a comeback.`\
 https://nytimes.com/2024/07/09/t-magazine/lazy-susan-guide.html
-
-**The Anti-Abortion Movement Is Perverting the 14th Amendment**\
-`There’s nothing particularly “moderate” about the new Republican platform.`\
-https://nytimes.com/2024/07/02/opinion/14th-amendment-abortion-scotus.html
 
