@@ -1,3 +1,7 @@
+**Metal Thieves are Stripping America’s Cities**\
+`Across the country, copper and other valuable materials have been stolen from streetlights, statues and even gravesites, costing millions to repair.`\
+https://nytimes.com/2024/07/09/us/copper-theft-heavy-metal.html
+
 **It’s an Old Story: Great Authors Are Not Always Great People**\
 `Writers are flawed humans just like everyone else, only a little more so.`\
 https://nytimes.com/live/2024/07/02/opinion/thepoint/munro-gaiman-author-controversy
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/09/opinion/economy-consumer-sentiment.html
 **At Ukraine’s Largest Children’s Hospital, a Horrific Scene of Destruction**\
 `Families and patients were not unfamiliar with the sound of missiles flying overhead. But the Russian assault on the hospital marked one of the worst days of violence against civilians in months.`\
 https://nytimes.com/2024/07/09/world/europe/ukraine-childrens-hospial-russia.html
-
-**Nikki Haley Urges Her Delegates to Vote for Donald Trump**\
-`The relationship between Ms. Haley, who was United Nations ambassador under Mr. Trump, and the former president soured toward the end of the primary campaign.`\
-https://nytimes.com/2024/07/09/us/politics/nikki-haley-trump-delegates.html
 

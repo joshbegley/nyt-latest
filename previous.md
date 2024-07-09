@@ -1,3 +1,11 @@
+**It’s an Old Story: Great Authors Are Not Always Great People**\
+`Writers are flawed humans just like everyone else, only a little more so.`\
+https://nytimes.com/live/2024/07/02/opinion/thepoint/munro-gaiman-author-controversy
+
+**Dutch golfer Luiten denied place in Olympics field**\
+`The International Olympic Committee denied a request by the International Golf Federation to expand the field to 61 on Tuesday.`\
+https://nytimes.com/athletic/5627127/2024/07/09/joost-luiten-olympics-netherlands-golf/
+
 **Richard M. Goldstein, Who Helped Map the Cosmos, Dies at 97**\
 `Using ground-based radars, Dr. Goldstein pioneered measurement techniques that scientists now use to chart geographical changes on Earth.`\
 https://nytimes.com/2024/07/09/science/space/richard-m-goldstein-dead.html
@@ -10,7 +18,7 @@ https://nytimes.com/2024/07/09/podcasts/transcript-ezra-klein-interviews-jamelle
 `We combed through a month’s worth of receipts from more than two dozen people across the U.S. to better understand our relationship to the food we buy.`\
 https://nytimes.com/interactive/2024/07/09/dining/grocery-receipts.html
 
-**Harper, Schwarber come off IL to boost Phillies lineup**\
+**Bryce Harper, Kyle Schwarber come off IL to boost Phillies lineup**\
 `The Phillies went 5-4 in the 10 days without Harper and Schwarber, although it felt longer.`\
 https://nytimes.com/athletic/5627286/2024/07/09/bryce-harper-kyle-schwarber-phillies-injured-list/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/09/world/europe/ukraine-childrens-hospial-russia.htm
 **Nikki Haley Urges Her Delegates to Vote for Donald Trump**\
 `The relationship between Ms. Haley, who was United Nations ambassador under Mr. Trump, and the former president soured toward the end of the primary campaign.`\
 https://nytimes.com/2024/07/09/us/politics/nikki-haley-trump-delegates.html
-
-**Tesla’s Share of U.S. Electric Car Market Falls Below 50%**\
-`A new report estimates that the company led by Elon Musk accounted for just under half of all battery-powered vehicles sold in the second quarter of the year.`\
-https://nytimes.com/2024/07/09/business/tesla-electric-vehicles-market-share.html
-
-**Cade Cunningham inks max extension with Pistons**\
-`Last season, Cunningham averaged 22.7 points, 7.5 assists and 4.3 rebounds per game while upping his field-goal percentage to 45 percent.`\
-https://nytimes.com/athletic/5627199/2024/07/09/cade-cunningham-max-contract-extension/
 

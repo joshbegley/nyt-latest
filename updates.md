@@ -1,3 +1,15 @@
+**It’s an Old Story: Great Authors Are Not Always Great People**\
+`Writers are flawed humans just like everyone else, only a little more so.`\
+https://nytimes.com/live/2024/07/02/opinion/thepoint/munro-gaiman-author-controversy
+
+**Dutch golfer Luiten denied place in Olympics field**\
+`The International Olympic Committee denied a request by the International Golf Federation to expand the field to 61 on Tuesday.`\
+https://nytimes.com/athletic/5627127/2024/07/09/joost-luiten-olympics-netherlands-golf/
+
+**Bryce Harper, Kyle Schwarber come off IL to boost Phillies lineup**\
+`The Phillies went 5-4 in the 10 days without Harper and Schwarber, although it felt longer.`\
+https://nytimes.com/athletic/5627286/2024/07/09/bryce-harper-kyle-schwarber-phillies-injured-list/
+
 **Richard M. Goldstein, Who Helped Map the Cosmos, Dies at 97**\
 `Using ground-based radars, Dr. Goldstein pioneered measurement techniques that scientists now use to chart geographical changes on Earth.`\
 https://nytimes.com/2024/07/09/science/space/richard-m-goldstein-dead.html
