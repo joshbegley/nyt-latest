@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5625275/2024/07/09/jesse-marsch-canada-argentina-co
 https://nytimes.com/athletic/5625005/2024/07/09/thiago-barcelona-coach-hansi-flick/
 
 **How Copa America turned the tactical foul into an art form**\
-`There are plenty of examples of subtle but effective foul play at the tournament - but how do teams get away with it?`\
+`There are plenty of examples of subtle but effective foul play at the tournament — but how do teams get away with it?`\
 https://nytimes.com/athletic/5624771/2024/07/09/copa-america-tactical-fouls/
 
 **Eight most intriguing Chiefs players to watch in training camp**\

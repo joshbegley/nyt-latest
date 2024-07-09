@@ -1,3 +1,7 @@
+**How Copa America turned the tactical foul into an art form**\
+`There are plenty of examples of subtle but effective foul play at the tournament — but how do teams get away with it?`\
+https://nytimes.com/athletic/5624771/2024/07/09/copa-america-tactical-fouls/
+
 **Kamala Harris’s Strengths and Weaknesses**\
 `We’re covering a potential Harris candidacy.`\
 https://nytimes.com/2024/07/09/briefing/kamala-harriss-strengths-and-weaknesses.html
