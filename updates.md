@@ -1,3 +1,11 @@
+**Gary O'Neil's Wolves rebuild is well underway - so what comes next?**\
+`The comings and goings at Wolves explained, and how it fits the club's vision`\
+https://nytimes.com/athletic/5618606/2024/07/09/gary-oneils-wolves-rebuild-is-well-underway-so-what-comes-next/
+
+**After months of turmoil and uncertainty, Forest's future at the City Ground looks secure**\
+`The club's agreement in principle to purchase the freehold of the land their much-loved stadium sits on will be welcome news to worried fans`\
+https://nytimes.com/athletic/5624608/2024/07/09/nottingham-forest-city-ground-future-secure/
+
 **Pickford is being pushed on by a goalkeeping union who know he's the undisputed No 1**\
 `The Everton and England goalkeeper has come into his own in Germany — and his backups are playing a full part in his success`\
 https://nytimes.com/athletic/5624844/2024/07/09/jordan-pickford-ramsdale-henderson-england-goalkeepers/

@@ -1,3 +1,11 @@
+**Maidenhead gave Kilman his chance - his £40m transfer to West Ham will help them rebuild**\
+`Max Kilman's move to West Ham suits them and Wolves — but not as much as his former club, non-League Maidenhead`\
+https://nytimes.com/athletic/5616886/2024/07/09/max-kilman-west-ham-transfer-wolves-maidenhead/
+
+**What Mats Wieffer will bring to Brighton**\
+`The Dutchman typically impresses out of possession and will bring some of the traits Brighton's midfield lacked last season`\
+https://nytimes.com/athletic/5616704/2024/07/09/mats-wieffer-brighton-transfer/
+
 **Gary O'Neil's Wolves rebuild is well underway - so what comes next?**\
 `The comings and goings at Wolves explained, and how it fits the club's vision`\
 https://nytimes.com/athletic/5618606/2024/07/09/gary-oneils-wolves-rebuild-is-well-underway-so-what-comes-next/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5621934/2024/07/09/england-fan-heart-rate-tracking-
 **Joselu interview: 'Luis de la Fuente has built a family with Spain. That's the key'**\
 `In an interview with The Athletic, the former Real Madrid striker looks back on his career and Spain's run to the Euro 2024 semi-finals`\
 https://nytimes.com/athletic/5623475/2024/07/09/joselu-spain-euro-2024-interview-exclusive-france/
-
-**Tapping up team-mates at tournaments: How much does it happen? Can it make a difference?**\
-`Yamal and Williams, Bellingham and Henderson - how much influence can international team-mates have on a player's future?`\
-https://nytimes.com/athletic/5619945/2024/07/09/tapping-up-transfer-euros-copa/
-
-**Dynasty league football mailbag: Draft strategy, Justin Fields' value and the most underrated rookie**\
-`Jeff Haverlack answers your dynasty league football questions about draft strategy, Justin Fields, the most underrated rookie and much more.`\
-https://nytimes.com/athletic/5624588/2024/07/09/dynasty-fantasy-football-draft-strategy-value/
 
