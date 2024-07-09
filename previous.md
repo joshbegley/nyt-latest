@@ -24,7 +24,7 @@ https://nytimes.com/2024/07/09/us/politics/democrats-biden-congress.html
 
 **Hezbollah launches retaliatory rockets after Israel appears to strike in Syria.**\
 `By Euan Ward`\
-https://nytimes.com/live/2024/07/09/world/israel-gaza-war-hamas/hezbollah-launches-retaliatory-rockets-after-israel-appears-to-strike-in-syria
+https://nytimes.com/2024/07/09/world/middleeast/hezbollah-launches-retaliatory-rockets-after-israel-appears-to-strike-in-syria.html
 
 **Statue Honoring Women and Justice Vandalized at University of Houston**\
 `An anti-abortion group had previously denounced Shahzia Sikander’s sculpture as “satanic.” University officials said they are investigating the attack.`\

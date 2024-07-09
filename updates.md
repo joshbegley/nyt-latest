@@ -1,3 +1,7 @@
+**Hezbollah launches retaliatory rockets after Israel appears to strike in Syria.**\
+`By Euan Ward`\
+https://nytimes.com/2024/07/09/world/middleeast/hezbollah-launches-retaliatory-rockets-after-israel-appears-to-strike-in-syria.html
+
 **The Briefing: Spain 2 France 1: A semi-final for the ages as Yamal makes history with wondergoal**\
 `We break down the key talking points from Tuesday evening's game in Munich`\
 https://nytimes.com/athletic/5622399/2024/07/09/spain-france-euro-2024-result-analysis/
