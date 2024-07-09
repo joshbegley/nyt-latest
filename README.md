@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5627332/2024/07/09/euro-2024-day-26-spains-captain-
 https://nytimes.com/athletic/5627157/2024/07/09/wimbledon-alcaraz-vekic-american-losses/
 
 **In Search of Power, Texans Ask: Are the Lights on at Whataburger?**\
-`With no working outage tracker from the Houston area’s main electricity provider, people are turning to the fast-food chain’s map of open restaurants to find power.`\
+`With no working outage tracker from the Houston area’s main electricity provider, people are turning to the chain’s map of open restaurants after Hurricane Beryl.`\
 https://nytimes.com/2024/07/09/us/beryl-whataburger-power-houston.html
 
 **Menendez’s lawyer says the government’s case relied on ‘half truths’ and innuendo.**\
