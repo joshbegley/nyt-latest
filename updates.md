@@ -1,3 +1,7 @@
+**Jannik Sinner out of Wimbledon after struggling physically against Medvedev**\
+`Jannik Sinner, world No 1, is out of Wimbledon after a five-set defeat to Russian No 5 seed Daniil Medvedev in the quarterfinals on Tuesday.`\
+https://nytimes.com/athletic/5626996/2024/07/09/jannik-sinner-out-of-wimbledon-after-struggling-physically-vs-daniil-medvedev/
+
 **How the Home Insurance Market Became So Distorted**\
 `Climate change and widely varied state regulations could mean you’re paying too much or far too little to insure your home.`\
 https://nytimes.com/2024/07/09/climate/home-insurance-prices-climate-change.html
