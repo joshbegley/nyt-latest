@@ -1,3 +1,19 @@
+**The Abyss Stares Back at Joe Biden**\
+`The president is starting to act like the predecessor he fought against.`\
+https://nytimes.com/2024/07/09/opinion/biden-election-trump.html
+
+**Perfection, by Lamine Yamal**\
+`As time travelled with the ball from out to inside the post, it opened a portal through which Yamal's immense potential could be glimpsed`\
+https://nytimes.com/athletic/5627602/2024/07/09/perfection-by-lamine-yamal/
+
+**Yankees' Cashman addresses team's recent rut**\
+`The Yankees GM made an unexpected appearance in St. Petersburg ahead of the team's opening game with the Rays.`\
+https://nytimes.com/athletic/5627838/2024/07/09/brian-cashman-new-york-yankees-struggling/
+
+**Morata to be assessed after Spain vs France pitch invader incident**\
+`Spain will assess Alvaro Morata after he was involved in an incident with a pitch invader and a freak collision with a member of his own team&#8217;s security staff following their semi-final win over France.`\
+https://nytimes.com/athletic/5627595/2024/07/09/alvaro-morata-pitch-invader-spain-france/
+
 **‘Rust’ Jury Chosen After Questions About Guns, Movies and Alec Baldwin**\
 `Mr. Baldwin, who was charged with involuntary manslaughter in the fatal shooting of a cinematographer, has pleaded not guilty.`\
 https://nytimes.com/2024/07/09/arts/alec-baldwin-rust-shooting-trial-jury.html

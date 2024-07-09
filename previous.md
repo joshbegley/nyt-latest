@@ -1,3 +1,19 @@
+**The Abyss Stares Back at Joe Biden**\
+`The president is starting to act like the predecessor he fought against.`\
+https://nytimes.com/2024/07/09/opinion/biden-election-trump.html
+
+**Perfection, by Lamine Yamal**\
+`As time travelled with the ball from out to inside the post, it opened a portal through which Yamal's immense potential could be glimpsed`\
+https://nytimes.com/athletic/5627602/2024/07/09/perfection-by-lamine-yamal/
+
+**Yankees' Cashman addresses team's recent rut**\
+`The Yankees GM made an unexpected appearance in St. Petersburg ahead of the team's opening game with the Rays.`\
+https://nytimes.com/athletic/5627838/2024/07/09/brian-cashman-new-york-yankees-struggling/
+
+**Morata to be assessed after Spain vs France pitch invader incident**\
+`Spain will assess Alvaro Morata after he was involved in an incident with a pitch invader and a freak collision with a member of his own team&#8217;s security staff following their semi-final win over France.`\
+https://nytimes.com/athletic/5627595/2024/07/09/alvaro-morata-pitch-invader-spain-france/
+
 **Devers to miss All-Star Game; Westburg named to AL team**\
 `Devers has been dealing with a sore left shoulder for much of the season. Westburg will be making his first All-Star Game appearance.`\
 https://nytimes.com/athletic/5627778/2024/07/09/mlb-all-star-roster-rafael-devers-jordan-westburg/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5627157/2024/07/09/wimbledon-alcaraz-vekic-american
 **In Search of Power, Texans Ask: Are the Lights on at Whataburger?**\
 `With no working outage tracker from the Houston area’s main electricity provider, people are turning to the chain’s map of open restaurants after Hurricane Beryl.`\
 https://nytimes.com/2024/07/09/us/beryl-whataburger-power-houston.html
-
-**Menendez’s lawyer says the government’s case relied on ‘half truths’ and innuendo.**\
-`By Nicholas Fandos`\
-https://nytimes.com/live/2024/07/09/nyregion/bob-menendez-trial/menendezs-lawyer-says-the-governments-case-relied-on-half-truths-and-innuendo
-
-**States and Creditors for Purdue Pharma Threaten Sacklers With Gush of Lawsuits**\
-`Legal maneuverings followed a Supreme Court ruling last month that denied the Sackler family immunity from liability over its role in the opioid crisis.`\
-https://nytimes.com/2024/07/09/health/sacklers-purdue-settlement-lawsuits.html
-
-**At the NATO Summit, Attention Is on Biden**\
-`Also, Middle America is paying more for home insurance. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/07/09/briefing/nato-summit-biden-home-insurance-rates.html
-
-**‘Rust’ Jury Chosen After Questions About Guns, Movies and Alec Baldwin**\
-`Mr. Baldwin, who was charged with involuntary manslaughter in the fatal shooting of a cinematographer, has pleaded not guilty.`\
-https://nytimes.com/2024/07/09/arts/alec-baldwin-rust-shooting-trial-jury.html
 

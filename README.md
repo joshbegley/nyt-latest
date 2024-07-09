@@ -1,3 +1,7 @@
+**Deschamps refuses to discuss France future after Euro 2024 exit**\
+`Didier Deschamps refused to discuss his future as France head coach following his side&#8217;s European Championship semi-final exit at the hands of Spain.`\
+https://nytimes.com/athletic/5627763/2024/07/09/didier-deschamps-france-future/
+
 **The Abyss Stares Back at Joe Biden**\
 `The president is starting to act like the predecessor he fought against.`\
 https://nytimes.com/2024/07/09/opinion/biden-election-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5627332/2024/07/09/euro-2024-day-26-morata-tackled/
 **Wimbledon day 9: From double-faults to delight, the roofs go main character, Alcaraz wins ugly**\
 `On day nine of Wimbledon, a masterclass in recovery; an indoor tournament; and American dreams dashed`\
 https://nytimes.com/athletic/5627157/2024/07/09/wimbledon-alcaraz-vekic-american-losses/
-
-**In Search of Power, Texans Ask: Are the Lights on at Whataburger?**\
-`With no working outage tracker from the Houston area’s main electricity provider, people are turning to the chain’s map of open restaurants after Hurricane Beryl.`\
-https://nytimes.com/2024/07/09/us/beryl-whataburger-power-houston.html
 
