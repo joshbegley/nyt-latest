@@ -1,3 +1,15 @@
+**The latest on the Warriors' offseason and a patient Lauri Markkanen chase**\
+`Golden State isn't the only team interested in the Jazz's star forward, but an answer may not come soon.`\
+https://nytimes.com/athletic/5622936/2024/07/09/warriors-lauri-markkanen-offseason/
+
+**Tiny Love Stories: ‘Feeling Awkward Flirting With a Younger Woman’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/07/09/style/tiny-modern-love-stories-feeling-awkward-flirting-with-a-younger-woman.html
+
+**Adrian Wilson, ex-Cardinals star and Panthers exec, arrested on domestic violence charges**\
+`Wilson and the Panthers recently parted ways.`\
+https://nytimes.com/athletic/5627267/2024/07/09/adrian-wilson-cardinals-panthers-domestic-violence-arrest/
+
 **Bloomberg’s $1 Billion Gift for Free Medical School Applies Only to Some**\
 `A donation from Bloomberg Philanthropies will provide free tuition for Johns Hopkins medical students, if their families make less than $300,000 a year.`\
 https://nytimes.com/2024/07/09/us/bloomberg-donation-free-tuition-einstein-bronx.html
