@@ -1,3 +1,15 @@
+**Celtics co-owner Wyc Grousbeck explains why he is selling the team after NBA title**\
+`Celtics co-owner Wyc Grousbeck broke his silence Monday on why he is selling the team just after winning Banner 18.`\
+https://nytimes.com/athletic/5625374/2024/07/09/celtics-sale-co-owner-wyc-grousbeck/
+
+**Jonathan Osorio - the Canada stalwart with Colombian roots and a Copa America dream**\
+`The midfielder has been at the heart of Canada's fairytale run to the Copa semifinals — and isn't finished yet`\
+https://nytimes.com/athletic/5625633/2024/07/09/jonathan-osorio-canada-copa-america/
+
+**Scottie Barnes and Immanuel Quickley will define not only the Raptors, but Masai Ujiri**\
+`The Raptors president's star has taken a hit, and he needs his foundational players to restore his status and his team.`\
+https://nytimes.com/athletic/5624889/2024/07/09/raptors-scottie-barnes-immanuel-quickley/
+
 **Rece Hinds puts a much-needed spark into Reds with a homer in his big-league debut**\
 `Hinds made a pretty good case to stick around for more than just one day.`\
 https://nytimes.com/athletic/5625540/2024/07/09/reds-rece-hinds-major-league-debut-homer/
