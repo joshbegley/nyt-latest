@@ -1,3 +1,7 @@
+**Wordle Review No. 1,117, July 10, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/09/crosswords/wordle-review-1117.html
+
 **Should You Hug a Sloth?**\
 `Spurred by social media, attractions where visitors interact with animals have surged. Advocates are sounding alarms.`\
 https://nytimes.com/2024/07/09/style/sloths-hug-tourism-seaquest.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5624080/2024/07/09/leeds-alex-cairns-transfers/
 **The Athletic FC: Viral photo that unites Messi and Yamal. Plus: Is idealism dead?**\
 `Today in The Athletic FC: The photo of Messi with a baby Yamal, is idealism dead, and the French fan and his lucky chicken called Balthazar`\
 https://nytimes.com/athletic/5625937/2024/07/09/the-athletic-fc-viral-photo-that-unites-messi-and-yamal-plus-is-idealism-dead/
-
-**Nottingham Forest complete signing of goalkeeper Carlos Miguel**\
-`Nottingham Forest have completed the signing of goalkeeper Carlos Miguel from Brazilian club Corinthians.`\
-https://nytimes.com/athletic/5626232/2024/07/09/nottingham-forest-transfer-news-carlos-miguel/
 
