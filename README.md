@@ -1,3 +1,7 @@
+**U.S. Plans Up to $1.6 Billion in Funding for Packaging Computer Chips**\
+`The proposed funding, part of the CHIPS Act, is intended to stoke chip packaging, a process that helps drive progress in semiconductors but that takes place mostly in Asia.`\
+https://nytimes.com/2024/07/09/technology/chips-packaging-semiconductors.html
+
 **Jannik Sinner out of Wimbledon after struggling physically against Medvedev**\
 `Jannik Sinner, world No 1, is out of Wimbledon after a five-set defeat to Russian No 5 seed Daniil Medvedev in the quarterfinals on Tuesday.`\
 https://nytimes.com/athletic/5626996/2024/07/09/jannik-sinner-out-of-wimbledon-after-struggling-physically-vs-daniil-medvedev/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5626755/2024/07/09/penguins-maple-leafs-wes-clark-k
 **The Menendez indictment set off a political frenzy in New Jersey.**\
 `By Christopher Maag`\
 https://nytimes.com/live/2024/07/09/nyregion/bob-menendez-trial/the-menendez-indictment-set-off-a-political-frenzy-in-new-jersey
-
-**England turn to golf and a Ryder Cup hero as pressure mounts at Euro 2024**\
-`Keeping players occupied at tournaments has always been a challenge and Gareth Southgate's squad hit the golf course to blow off some steam`\
-https://nytimes.com/athletic/5623634/2024/07/09/england-golf-euro-2024/
 
