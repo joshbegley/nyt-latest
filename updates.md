@@ -1,3 +1,11 @@
+**Morata to be assessed after Spain vs France pitch invader incident**\
+`Spain will assess Alvaro Morata after he was involved in an incident with a pitch invader and a freak collision with a member of his own team&#8217;s security staff following their semi-final win over France.`\
+https://nytimes.com/athletic/5627595/2024/07/09/alvaro-morata-pitch-invader-spain-france/
+
+**Devers to miss All-Star Game; Westburg named to AL team**\
+`Devers has been dealing with a sore left shoulder for much of the season. Westburg will be making his first All-Star Game appearance.`\
+https://nytimes.com/athletic/5627778/2024/07/09/mlb-all-star-roster-rafael-devers-jordan-westburg/
+
 **Rafael Devers to miss All-Star game with sore shoulder; Jordan Westburg named to AL team**\
 `Devers has been dealing with a sore left shoulder for much of the season. Westburg will be making his first All-Star appearance.`\
 https://nytimes.com/athletic/5627778/2024/07/09/mlb-all-star-roster-rafael-devers-jordan-westburg/

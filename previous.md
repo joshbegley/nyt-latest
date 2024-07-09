@@ -1,5 +1,9 @@
-**Rafael Devers to miss All-Star game with sore shoulder; Jordan Westburg named to AL team**\
-`Devers has been dealing with a sore left shoulder for much of the season. Westburg will be making his first All-Star appearance.`\
+**Morata to be assessed after Spain vs France pitch invader incident**\
+`Spain will assess Alvaro Morata after he was involved in an incident with a pitch invader and a freak collision with a member of his own team&#8217;s security staff following their semi-final win over France.`\
+https://nytimes.com/athletic/5627595/2024/07/09/alvaro-morata-pitch-invader-spain-france/
+
+**Devers to miss All-Star Game; Westburg named to AL team**\
+`Devers has been dealing with a sore left shoulder for much of the season. Westburg will be making his first All-Star Game appearance.`\
 https://nytimes.com/athletic/5627778/2024/07/09/mlb-all-star-roster-rafael-devers-jordan-westburg/
 
 **A Fine Joe-mance**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/09/health/sacklers-purdue-settlement-lawsuits.html
 **At the NATO Summit, Attention Is on Biden**\
 `Also, Middle America is paying more for home insurance. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/07/09/briefing/nato-summit-biden-home-insurance-rates.html
-
-**‘Rust’ Jury Chosen After Questions About Guns, Movies and Alec Baldwin**\
-`Mr. Baldwin, who was charged with involuntary manslaughter in the fatal shooting of a cinematographer, has pleaded not guilty.`\
-https://nytimes.com/2024/07/09/arts/alec-baldwin-rust-shooting-trial-jury.html
 
