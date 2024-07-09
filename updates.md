@@ -1,3 +1,7 @@
+**Sailor Who Tried to Access Biden’s Medical Records Was Disciplined by Navy**\
+`The sailor searched the name “Joseph Biden” in a government database three times in late February, according to the Navy.`\
+https://nytimes.com/2024/07/09/us/politics/biden-medical-records-navy-sailor.html
+
 **WADA Clears Itself in Chinese Doping Case, but Report Raises New Questions**\
 `A special prosecutor said the decision not to pursue punishments against a group of Olympic swimmers was “indisputably reasonable,” even though agency scientists had expressed doubts.`\
 https://nytimes.com/2024/07/09/world/asia/wada-report-china-doping-swimming.html
