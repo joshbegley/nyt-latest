@@ -1,3 +1,11 @@
+**Lance McCullers Jr.'s setback intensifies Astros' need for rotation help**\
+`McCullers, who hasn't pitched since Game 3 of the 2022 World Series, is dealing with "soreness in his arm."`\
+https://nytimes.com/athletic/5627884/2024/07/09/lance-mccullers-jr-injury-astros-rotation-help/
+
+**On Capitol Hill, Democrats Panic About Biden but Do Nothing**\
+`The president has yet to do what many Democrats said he must to show he is up to remaining in the race. But so far, they have thrown up their hands, doing nothing to nudge him aside.`\
+https://nytimes.com/2024/07/09/us/politics/biden-democrats-congress.html
+
 **The Devil May Be Enjoying This Election Season, but I Am Not**\
 `Both men running for president are unfit for the job. One is a danger to our country.`\
 https://nytimes.com/2024/07/09/opinion/biden-trump-election.html
