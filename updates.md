@@ -1,3 +1,15 @@
+**What Just Happened in France Is Astounding**\
+`Through a stunning act of collective responsibility, the far right has been stopped.`\
+https://nytimes.com/2024/07/09/opinion/france-election-far-right.html
+
+**Is It 1914 or 1938? NATO Needs to Make Up Its Mind.**\
+`It’s essential that NATO members agree on how they see the war in Ukraine.`\
+https://nytimes.com/2024/07/09/opinion/nato-summit-sarajevo-munich.html
+
+**Federal Judge in Alaska Resigns Amid Accusations of Sexual Harassment**\
+`Joshua Kindred was asked to leave his post after a committee of judges found his chambers to be a hostile and sexualized work environment.`\
+https://nytimes.com/2024/07/09/us/federal-judge-alaska-sexual-harassment.html
+
 **Willie Mays celebration of life: Presidents, dignitaries, baseball greats remember his life and impact**\
 `An estimated 4,500 fans joined baseball luminaries, former U.S. Presidents and Mays' closest family and friends to speak about his legacy.`\
 https://nytimes.com/athletic/5625586/2024/07/09/willie-mays-celebration-of-life-sf-giants/
