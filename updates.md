@@ -1,3 +1,7 @@
+**‘Rust’ Jury Chosen After Questions About Guns, Movies and Alec Baldwin**\
+`Mr. Baldwin, who was charged with involuntary manslaughter in the fatal shooting of a cinematographer, has pleaded not guilty.`\
+https://nytimes.com/2024/07/09/arts/alec-baldwin-rust-shooting-trial-jury.html
+
 **Morata to be assessed after Spain vs France pitch invader incident**\
 `Spain will assess Alvaro Morata after he was involved in an incident with a pitch invader and a freak collision with a member of his own team&#8217;s security staff following their semi-final win over France.`\
 https://nytimes.com/athletic/5627595/2024/07/09/alvaro-morata-pitch-invader-spain-france/
