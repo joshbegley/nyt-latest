@@ -1,3 +1,7 @@
+**Seeing Workplace Misery, They Offer Company**\
+`As chronic work stress climbs, entrepreneurs find opportunity in the burgeoning space of burnout coaching.`\
+https://nytimes.com/2024/07/09/business/work-stress-burnout-coach.html
+
 **Quotation of the Day: A Compromise? France Needs It but Disdains It.**\
 `Quotation of the Day for Tuesday, July 9, 2024.`\
 https://nytimes.com/2024/07/08/pageoneplus/quotation-of-the-day-a-compromise-france-needs-it-but-disdains-it.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5625267/2024/07/08/cooper-flagg-usa-olympic-trainin
 **Senator Menendez ‘Sold the Power of His Office,’ Prosecutor Says**\
 `In a closing statement, a prosecutor said the Menendez home was awash in cash and walked jurors through what the government has called a complicated web of corruption.`\
 https://nytimes.com/2024/07/08/nyregion/robert-menendez-bribery-trial-closing-arguments.html
-
-**Hayes clarifies roster rules for 2024 Paris Olympics**\
-`Emma Hayes has clarified the rules over Olympic roster alternates, telling media on Monday that players replaced by an alternate can return to the core 18-player group.`\
-https://nytimes.com/athletic/5625281/2024/07/08/uswnt-roster-rules-olympic-games/
 
