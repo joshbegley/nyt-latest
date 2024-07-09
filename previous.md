@@ -1,3 +1,7 @@
+**Texans Assess Damage After Beryl Whips Through**\
+`The deadly storm ripped trees out of the ground and damaged homes as millions in Houston were left without power.`\
+https://nytimes.com/video/us/100000009561427/beryl-texas-storm-damage.html
+
 **Everton bid for Hull's Philogene**\
 `Everton have made a formal transfer bid to sign Jaden Philogene from Hull City.`\
 https://nytimes.com/athletic/5625259/2024/07/09/everton-jaden-philogene-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/09/nyregion/george-norcross-racketeering-arraignment
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/07/09/crosswords/spelling-bee-forum.html
-
-**Late Night Mulls Biden’s Decision to Stay in the Race**\
-`“He’s basically the guy doing 30 in the left lane, and he ain’t moving for anybody,” Jimmy Fallon said of President Biden on Monday.`\
-https://nytimes.com/2024/07/09/arts/television/late-night-biden.html
 

@@ -1,3 +1,7 @@
+**Texans Assess Damage After Beryl Whips Through**\
+`The deadly storm ripped trees out of the ground and damaged homes as millions in Houston were left without power.`\
+https://nytimes.com/video/us/100000009561427/beryl-texas-storm-damage.html
+
 **Everton bid for Hull's Philogene**\
 `Everton have made a formal transfer bid to sign Jaden Philogene from Hull City.`\
 https://nytimes.com/athletic/5625259/2024/07/09/everton-jaden-philogene-transfer/
