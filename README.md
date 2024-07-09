@@ -1,5 +1,5 @@
-**Everton bid for Philogene**\
-`Everton have formally made a transfer bid to sign Jaden Philogene from Hull City.`\
+**Everton bid for Hull's Philogene**\
+`Everton have made a formal transfer bid to sign Jaden Philogene from Hull City.`\
 https://nytimes.com/athletic/5625259/2024/07/09/everton-jaden-philogene-transfer/
 
 **Real Madrid and Lille progressing in talks over Yoro**\
