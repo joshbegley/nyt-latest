@@ -1,3 +1,11 @@
+**Reds' Greene lands first All-Star nod as Glasnow goes on IL**\
+`Greene, 24, is just two years removed from his big-league debut and having his best season as a pro yet.`\
+https://nytimes.com/athletic/5627477/2024/07/09/mlb-all-star-tyler-glasnow-hunter-greene/
+
+**Wednesday Briefing: NATO Summit Begins**\
+`Plus, the U.S. says Russia is struggling in Ukraine.`\
+https://nytimes.com/2024/07/09/briefing/nato-biden-putin-modi.html
+
 **Hezbollah Launches Retaliatory Rockets After Israel Appears to Strike in Syria**\
 `Two members of Hezbollah were reported killed in Syria, near the border with Lebanon, and the Israeli police said that the Hezbollah rocket barrage that followed killed a man and a woman in the Golan Heights.`\
 https://nytimes.com/2024/07/09/world/middleeast/hezbollah-rockets-israel-syria.html
