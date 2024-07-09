@@ -1,40 +1,40 @@
+**Guardians mailbag: The best Ramirez in franchise history, front office regrets and more**\
+`Our expert examines José Ramírez's credentials, looks at a trade deadline possibility and more.`\
+https://nytimes.com/athletic/5619119/2024/07/09/guardians-mailbag-jose-ramirez-trade-deadline/
+
+**LeBron voted best player in Olympic training camp**\
+`LeBron James, the NBA’s all-time leading scorer, was voted the top national team player in a straw poll of Olympic camp participants.`\
+https://nytimes.com/athletic/5625482/2024/07/09/lebron-james-team-usa-olympic-training-camp-poll/
+
+**A beginner's guide to mate - the drink fuelling Copa America (and uniting Messi and Ronaldo)**\
+`There are so many barriers to human connection in our modern world — mate breaks them down`\
+https://nytimes.com/athletic/5625500/2024/07/09/messi-ronaldo-mate/
+
+**2025 NFL Draft QB self scout: Carson Beck, Will Howard and others evaluate themselves**\
+`How are some key 2025 NFL Draft QB prospects getting ready for the college football season? We asked them.  `\
+https://nytimes.com/athletic/5608060/2024/07/09/nfl-draft-2025-quarterbacks-scouting-reports/
+
+**Ukraine Looms Over NATO Summit, and Biden Is Defiant on Running**\
+`Plus, a potential new way to test for autism.`\
+https://nytimes.com/2024/07/09/podcasts/ukraine-nato-summit-and-biden-running.html
+
+**'Maritime Messi', the napper and the 'rock': Inside the Canada team taking on Argentina**\
+`Canada's men's national soccer team is in the Copa America semifinal. Here they are like you've never seen them before`\
+https://nytimes.com/athletic/5624416/2024/07/09/canada-argentina-inside-team-messi/
+
+**Sunday celebration provided Twins veteran Christian Vázquez with well-deserved relief**\
+`Adjustments to his approach and batting stance have paid dividends for the catcher in recent weeks, including his walk-off homer on Sunday.`\
+https://nytimes.com/athletic/5625498/2024/07/09/twins-christian-vazquez-sunday-celebration/
+
+**The Era of Killer Robots Is Here**\
+`Ukraine has become a Silicon Valley for autonomous weapons.`\
+https://nytimes.com/2024/07/09/podcasts/the-daily/the-era-of-killer-robots-is-here.html
+
+**The Connections Companion No. 395, July 10, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/09/crosswords/connections-companion-395.html
+
 **Everton mailbag: Send your questions to Patrick Boyland**\
 `Send me your questions and I’ll respond to as many as I can in an article this week`\
 https://nytimes.com/athletic/5625863/2024/07/09/everton-mailbag-transfers-friedkin/
-
-**With NATO leaders in town, Biden turns to official duties. Here’s the latest.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/07/09/us/trump-biden-election/with-nato-leaders-in-town-biden-turns-to-official-duties-heres-the-latest
-
-**Political Gridlock Will Raise the Economic Stakes in France**\
-`The French election results point to a prolonged political logjam, which may not help a country bedeviled by high debt and slowing economic growth.`\
-https://nytimes.com/2024/07/09/business/france-macron-parliament-gridlock.html
-
-**Craig Bellamy appointed Wales manager**\
-`Craig Bellamy has been appointed as the new manager of Wales on a four-year contract.`\
-https://nytimes.com/athletic/5625684/2024/07/09/craig-bellamy-wales-manager/
-
-**Celtics co-owner Wyc Grousbeck explains why he is selling the team after NBA title**\
-`Celtics co-owner Wyc Grousbeck broke his silence Monday on why he is selling the team just after winning Banner 18.`\
-https://nytimes.com/athletic/5625374/2024/07/09/celtics-sale-co-owner-wyc-grousbeck/
-
-**Jonathan Osorio - the Canada stalwart with Colombian roots and a Copa America dream**\
-`The midfielder has been at the heart of Canada's fairytale run to the Copa semifinals — and isn't finished yet`\
-https://nytimes.com/athletic/5625633/2024/07/09/jonathan-osorio-canada-copa-america/
-
-**Scottie Barnes and Immanuel Quickley will define not only the Raptors, but Masai Ujiri**\
-`The Raptors president's star has taken a hit, and he needs his foundational players to restore his status and his team.`\
-https://nytimes.com/athletic/5624889/2024/07/09/raptors-scottie-barnes-immanuel-quickley/
-
-**Rece Hinds puts a much-needed spark into Reds with a homer in his big-league debut**\
-`Hinds made a pretty good case to stick around for more than just one day.`\
-https://nytimes.com/athletic/5625540/2024/07/09/reds-rece-hinds-major-league-debut-homer/
-
-**Big Ten recruiting thoughts: Ohio State, Oregon keep rolling, Michigan surging**\
-`Led by Ohio State, which has the No. 1 class in the nation, the Big Ten has eight teams ranked in the top 25 in the 247Sports Composite.`\
-https://nytimes.com/athletic/5622826/2024/07/09/big-ten-recruiting-visits-michigan-ohio-state-oregon/
-
-**From Evan Cooper to a new kicker: 10 key developments at Nebraska since the spring game**\
-`Offseason? Never! A flurry of recent transactions has altered the look of the 2024 Cornhuskers.`\
-https://nytimes.com/athletic/5624682/2024/07/09/nebraska-football-evan-cooper-john-butler/
 
