@@ -1,3 +1,7 @@
+**Wordle Review No. 1,117, July 10, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/09/crosswords/wordle-review-1117.html
+
 **Should You Hug a Sloth?**\
 `Spurred by social media, attractions where visitors interact with animals have surged. Advocates are sounding alarms.`\
 https://nytimes.com/2024/07/09/style/sloths-hug-tourism-seaquest.html
