@@ -1,3 +1,7 @@
+**Everton mailbag: Send your questions to Patrick Boyland**\
+`Send me your questions and I’ll respond to as many as I can in an article this week`\
+https://nytimes.com/athletic/5625863/2024/07/09/everton-mailbag-transfers-friedkin/
+
 **With NATO leaders in town, Biden turns to official duties. Here’s the latest.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/07/09/us/trump-biden-election/with-nato-leaders-in-town-biden-turns-to-official-duties-heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5622826/2024/07/09/big-ten-recruiting-visits-michig
 **From Evan Cooper to a new kicker: 10 key developments at Nebraska since the spring game**\
 `Offseason? Never! A flurry of recent transactions has altered the look of the 2024 Cornhuskers.`\
 https://nytimes.com/athletic/5624682/2024/07/09/nebraska-football-evan-cooper-john-butler/
-
-**Beryl Leaves Millions Without Power in Houston: What to Know**\
-`The storm hit Texas on Monday as a Category 1 hurricane. As the storm moved out of the state, officials warned it could take days to fully restore electricity.`\
-https://nytimes.com/2024/07/09/us/beryl-storm-forecast.html
 

@@ -1,3 +1,7 @@
+**Everton mailbag: Send your questions to Patrick Boyland**\
+`Send me your questions and I’ll respond to as many as I can in an article this week`\
+https://nytimes.com/athletic/5625863/2024/07/09/everton-mailbag-transfers-friedkin/
+
 **With NATO leaders in town, Biden turns to official duties. Here’s the latest.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/07/09/us/trump-biden-election/with-nato-leaders-in-town-biden-turns-to-official-duties-heres-the-latest
