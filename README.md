@@ -1,3 +1,7 @@
+**Word of the Day: varnish**\
+`This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/07/09/learning/word-of-the-day-varnish.html
+
 **Corrections: July 9, 2024**\
 `Corrections that appeared in print on Tuesday, July 9, 2024.`\
 https://nytimes.com/2024/07/09/pageoneplus/corrections-july-9-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5616704/2024/07/09/mats-wieffer-brighton-transfer/
 **Gary O'Neil's Wolves rebuild is well underway - so what comes next?**\
 `The comings and goings at Wolves explained, and how it fits the club's vision`\
 https://nytimes.com/athletic/5618606/2024/07/09/gary-oneils-wolves-rebuild-is-well-underway-so-what-comes-next/
-
-**After months of turmoil and uncertainty, Forest's future at the City Ground looks secure**\
-`The club's agreement in principle to purchase the freehold of the land their much-loved stadium sits on will be welcome news to worried fans`\
-https://nytimes.com/athletic/5624608/2024/07/09/nottingham-forest-city-ground-future-secure/
 
