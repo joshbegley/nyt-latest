@@ -1,3 +1,7 @@
+**Sailor Who Tried to Access Biden’s Medical Records Was Disciplined by Navy**\
+`The sailor searched the name “Joseph Biden” in a government database three times in late February, according to the Navy.`\
+https://nytimes.com/2024/07/09/us/politics/biden-medical-records-navy-sailor.html
+
 **WADA Clears Itself in Chinese Doping Case, but Report Raises New Questions**\
 `A special prosecutor said the decision not to pursue punishments against a group of Olympic swimmers was “indisputably reasonable,” even though agency scientists had expressed doubts.`\
 https://nytimes.com/2024/07/09/world/asia/wada-report-china-doping-swimming.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5622936/2024/07/09/warriors-lauri-markkanen-offseas
 **Tiny Love Stories: ‘Feeling Awkward Flirting With a Younger Woman’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/07/09/style/tiny-modern-love-stories-feeling-awkward-flirting-with-a-younger-woman.html
-
-**Adrian Wilson, ex-Cardinals star and Panthers exec, arrested on domestic violence charges**\
-`Wilson and the Panthers recently parted ways.`\
-https://nytimes.com/athletic/5627267/2024/07/09/adrian-wilson-cardinals-panthers-domestic-violence-arrest/
 
