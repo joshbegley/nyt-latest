@@ -1,4 +1,4 @@
-**He told Biden to ‘Pass the torch.’ It cost him his role in a state campaign.**\
+**He Told Biden to ‘Pass the Torch.’ It Cost Him His Role in a State Campaign.**\
 `Clint Keaveny, an outspoken volunteer, was removed from a Democratic congressional campaign for holding up a protest sign at a Biden rally.`\
 https://nytimes.com/2024/07/09/us/biden-democrat-congressional-campaign.html
 
