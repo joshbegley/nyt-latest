@@ -1,3 +1,7 @@
+**Hezbollah Launches Retaliatory Rockets After Israel Appears to Strike in Syria**\
+`Two members of Hezbollah were reported killed in Syria, near the border with Lebanon, and the Israeli police said that the Hezbollah rocket barrage that followed killed a man and a woman in the Golan Heights.`\
+https://nytimes.com/2024/07/09/world/middleeast/hezbollah-rockets-israel-syria.html
+
 **Hezbollah launches retaliatory rockets after Israel appears to strike in Syria.**\
 `By Euan Ward`\
 https://nytimes.com/2024/07/09/world/middleeast/hezbollah-launches-retaliatory-rockets-after-israel-appears-to-strike-in-syria.html

@@ -22,9 +22,9 @@ https://nytimes.com/athletic/5627253/2024/07/09/kevin-durant-out-usa-olympics-ex
 `Lawmakers in the House and Senate met privately to hash out their concerns about President Biden’s viability, but leaders emerged from two separate meetings pledging allegiance to their candidate.`\
 https://nytimes.com/2024/07/09/us/politics/democrats-biden-congress.html
 
-**Hezbollah launches retaliatory rockets after Israel appears to strike in Syria.**\
-`By Euan Ward`\
-https://nytimes.com/2024/07/09/world/middleeast/hezbollah-launches-retaliatory-rockets-after-israel-appears-to-strike-in-syria.html
+**Hezbollah Launches Retaliatory Rockets After Israel Appears to Strike in Syria**\
+`Two members of Hezbollah were reported killed in Syria, near the border with Lebanon, and the Israeli police said that the Hezbollah rocket barrage that followed killed a man and a woman in the Golan Heights.`\
+https://nytimes.com/2024/07/09/world/middleeast/hezbollah-rockets-israel-syria.html
 
 **Statue Honoring Women and Justice Vandalized at University of Houston**\
 `An anti-abortion group had previously denounced Shahzia Sikander’s sculpture as “satanic.” University officials said they are investigating the attack.`\
