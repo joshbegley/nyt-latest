@@ -1,3 +1,7 @@
+**Real Madrid and Lille progressing in talks over Yoro**\
+`Real Madrid and Lille are progressing in talks over a deal for Leny Yoro.`\
+https://nytimes.com/athletic/5625169/2024/07/09/real-madrid-leny-yoro-transfer/
+
 **With Empathy, Bearing Witness to One Family’s Plight**\
 `For months, two journalists documented a Venezuelan family’s journey to the United States, and the struggles they faced after they crossed the border.`\
 https://nytimes.com/2024/07/09/insider/migrants-family-venezuela-border.html
