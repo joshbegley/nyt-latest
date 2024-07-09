@@ -1,3 +1,7 @@
+**Why is FSG keen on buying Bordeaux - and could Liverpool benefit?**\
+`Bordeaux is a big but troubled club - so why are Liverpool's owners exploring adding it to their portfolio?`\
+https://nytimes.com/athletic/5625984/2024/07/09/fsg-bordeaux-multi-club-ownership/
+
 **Stay or Go? The Biden Storm Rages.**\
 `Readers lament and support the president’s refusal to heed calls to step aside. Also: Televised therapy; Supreme Court rulings.`\
 https://nytimes.com/2024/07/09/opinion/joe-biden-election-withdrawal.html

@@ -1,3 +1,7 @@
+**Why is FSG keen on buying Bordeaux - and could Liverpool benefit?**\
+`Bordeaux is a big but troubled club - so why are Liverpool's owners exploring adding it to their portfolio?`\
+https://nytimes.com/athletic/5625984/2024/07/09/fsg-bordeaux-multi-club-ownership/
+
 **Stay or Go? The Biden Storm Rages.**\
 `Readers lament and support the president’s refusal to heed calls to step aside. Also: Televised therapy; Supreme Court rulings.`\
 https://nytimes.com/2024/07/09/opinion/joe-biden-election-withdrawal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/09/us/politics/james-inhofe-dead.html
 **New York’s Democratic Party chairman calls for the party to unite behind Biden.**\
 `The State Democratic Party chairman, Jay Jacobs, said it was time to “rally around and support our nominee.”`\
 https://nytimes.com/live/2024/07/09/us/trump-biden-election/biden-ny-jacobs
-
-**Gavin Newsom Will Take Your Biden Questions (and Try Your Doughnuts)**\
-`The California governor is holding firm as a fierce defender of the president on the 2024 trail. Left unspoken are his own White House ambitions.`\
-https://nytimes.com/2024/07/09/us/politics/biden-gavin-newsom.html
 
