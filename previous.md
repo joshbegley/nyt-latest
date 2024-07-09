@@ -1,4 +1,12 @@
-**Novak Djokovic was becoming tennis' gentleman king. It didn't last**\
+**What to Watch for at the NATO Summit This Week**\
+`All eyes are on President Biden, but looming over the meeting is the possibility that Vladimir Putin might pull a stunt to disrupt the gathering.`\
+https://nytimes.com/2024/07/09/us/politics/nato-summit-what-to-watch.html
+
+**After Propelling Biden in 2020, Black Women Aren’t Eager to Abandon Him Now**\
+`Leaders of the Democratic Party’s most loyal voting bloc have expressed frustration with the calls for President Biden to step aside, mindful of undermining Vice President Kamala Harris.`\
+https://nytimes.com/2024/07/09/us/politics/biden-black-women-voters.html
+
+**Novak Djokovic was becoming the gentleman king of tennis. It didn't last**\
 `Djokovic demolished Rune, then ripped into the Centre Court fans who are supposed to be known for their decorum. He just thrives on drama`\
 https://nytimes.com/athletic/5626443/2024/07/09/novak-djokovic-wimbledon-crowd/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5616792/2024/07/09/joao-palhinha-bayern-transfer-an
 **The (Quick) Dinners I Wait All Year to Make**\
 `On my summer recipe bucket list: pad krapow gai, Moroccan kefta, caprese antipasto and Yucatán shrimp.`\
 https://nytimes.com/2024/07/09/dining/quick-dinner-recipes.html
-
-**Liverpool owner FSG in talks to buy Bordeaux**\
-`Liverpool&#8217;s owner Fenway Sports Group (FSG) is in talks over buying French club Bordeaux.`\
-https://nytimes.com/athletic/5625866/2024/07/09/liverpool-fsg-bordeaux/
-
-**Menendez has sought to pin the blame on his wife.**\
-`By Benjamin Weiser`\
-https://nytimes.com/live/2024/07/09/nyregion/bob-menendez-trial/menendez-has-sought-to-pin-the-blame-on-his-wife
 

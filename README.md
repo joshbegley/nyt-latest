@@ -1,3 +1,7 @@
+**Jaguars pass rusher changes last name to Hines-Allen**\
+`Jacksonville Jaguars defensive end Joshua Allen announced on Tuesday he&#8217;d changed his last name to Hines-Allen.`\
+https://nytimes.com/athletic/5626727/2024/07/09/jaguars-pass-rusher-changes-last-name-to-hines-allen/
+
 **What to Watch for at the NATO Summit This Week**\
 `All eyes are on President Biden, but looming over the meeting is the possibility that Vladimir Putin might pull a stunt to disrupt the gathering.`\
 https://nytimes.com/2024/07/09/us/politics/nato-summit-what-to-watch.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5625653/2024/07/09/maradona-tottenham-romero-argent
 **Analysis: What will Palhinha bring to Bayern?**\
 `With the addition of Joao Palhinha, Vincent Kompany and Bayern supporters can look forward to a more balanced midfield`\
 https://nytimes.com/athletic/5616792/2024/07/09/joao-palhinha-bayern-transfer-analysis/
-
-**The (Quick) Dinners I Wait All Year to Make**\
-`On my summer recipe bucket list: pad krapow gai, Moroccan kefta, caprese antipasto and Yucatán shrimp.`\
-https://nytimes.com/2024/07/09/dining/quick-dinner-recipes.html
 
