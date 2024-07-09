@@ -1,3 +1,7 @@
+**Nikki Haley Urges Her Delegates to Vote for Donald Trump**\
+`The relationship between Ms. Haley, who was United Nations ambassador under Mr. Trump, and the former president soured toward the end of the primary campaign.`\
+https://nytimes.com/2024/07/09/us/politics/nikki-haley-trump-delegates.html
+
 **Tesla’s Share of U.S. Electric Car Market Falls Below 50%**\
 `A new report estimates that the company led by Elon Musk accounted for just under half of all battery-powered vehicles sold in the second quarter of the year.`\
 https://nytimes.com/2024/07/09/business/tesla-electric-vehicles-market-share.html
