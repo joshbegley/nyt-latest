@@ -1,7 +1,3 @@
-**NBA Summer League spotlights Clippers' need to develop young players like Cam Christie**\
-`The Clippers have gotten very little out of their drafts in recent years and need to start producing some home-grown talent.`\
-https://nytimes.com/athletic/5625515/2024/07/09/clippers-summer-league-cam-christie/
-
 **Lee, Wallner key another Twins' comeback win as they chip away in AL Central race**\
 `The Twins haven’t been this close to the lead in the American League Central since May 18, when they trailed the Guardians by 4 1/2 games.`\
 https://nytimes.com/athletic/5626110/2024/07/09/twins-white-sox-brooks-lee-matt-wallner-al-cental-race/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5624913/2024/07/09/zwayer-bellingham-england-nether
 **'Comes down to action': Wild coach John Hynes on player 'check-ins' and setting expectations**\
 `Hynes' thoughts heading into the next several weeks as he prepares to run his first training camp as Wild coach.`\
 https://nytimes.com/athletic/5625153/2024/07/09/wild-john-hynes-offseason-player-expectations/
+
+**The tale of one France fan, 305 matches and 35 roosters named Balthazar**\
+`Clement Tomaszewski has followed the France national team since the 1982 World Cup and is invariably accompanied by a cockerel`\
+https://nytimes.com/athletic/5625429/2024/07/09/france-rooster-clement-balthazar/
 
