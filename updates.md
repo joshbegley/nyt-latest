@@ -1,3 +1,15 @@
+**The Pulse: The 17-year-old wowing NBA legends**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5625418/2024/07/09/cooper-flagg-team-usa-duke-the-pulse/
+
+**Archaeologists Find a Marble Statue in an Ancient Roman Sewer**\
+`Researchers in Bulgaria think the artifact could offer a window into ancient tensions around the rise of Christianity.`\
+https://nytimes.com/2024/07/09/world/europe/bulgaria-statue-roman-sewer-archaeologists.html
+
+**France’s Far-Left Firebrand: Ready to Govern?**\
+`Jean-Luc Mélenchon led his coalition to a narrow victory in elections. But even some of his allies bristle at the thought of the combative former Trotskyist becoming prime minister.`\
+https://nytimes.com/2024/07/09/world/europe/france-election-left-melenchon.html
+
 **How Copa America turned the tactical foul into an art form**\
 `There are plenty of examples of subtle but effective foul play at the tournament — but how do teams get away with it?`\
 https://nytimes.com/athletic/5624771/2024/07/09/copa-america-tactical-fouls/
