@@ -1,3 +1,11 @@
+**Rafael Devers to miss All-Star game with sore shoulder; Jordan Westburg named to AL team**\
+`Devers has been dealing with a sore left shoulder for much of the season. Westburg will be making his first All-Star appearance.`\
+https://nytimes.com/athletic/5627778/2024/07/09/mlb-all-star-roster-rafael-devers-jordan-westburg/
+
+**Euro 2024, day 26 – Spain reach Euro 2024 final but captain injured after final whistle**\
+`The key moments from today at Euro 2024 `\
+https://nytimes.com/athletic/5627332/2024/07/09/euro-2024-day-26-morata-tackled/
+
 **Euro 2024, day 26 - Spain reach Euro 2024 final but captain injured after final whistle**\
 `The key moments from today at Euro 2024 `\
 https://nytimes.com/athletic/5627332/2024/07/09/euro-2024-day-26-morata-tackled/
