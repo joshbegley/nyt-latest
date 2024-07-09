@@ -1,3 +1,7 @@
+**Uniting Idea**\
+`Gary Larson and Amy Ensz weigh their options.`\
+https://nytimes.com/2024/07/08/crosswords/daily-puzzle-2024-07-09.html
+
 **Street Erupts When Man in a Wheelchair Is Taken Into Custody in Killing**\
 `The body of Yazmeen Williams, 31, had been found on a Manhattan curb, wrapped in a sleeping bag.`\
 https://nytimes.com/2024/07/08/nyregion/woman-killed-sleeping-bag-manhattan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/07/us/houston-texas-power-beryl-storm.html
 **How Biden Is Leveraging His Defiance to Try to Stem Democratic Defections**\
 `In private and in public, President Biden made clear he holds all the cards when determining his political future. Can he get his Democratic critics to fold?`\
 https://nytimes.com/2024/07/08/us/politics/biden-campaign-democrats.html
-
-**UConn gives Hurley new 6-year, $50 million deal**\
-`The new deal comes after Dan Hurley declined a six-year, $70 million coaching contract offer from the Lakers in June.`\
-https://nytimes.com/athletic/5625163/2024/07/08/dan-hurley-contract-uconn-basketball/
 
