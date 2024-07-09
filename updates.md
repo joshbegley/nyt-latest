@@ -1,3 +1,11 @@
+**Euro 2024, day 26 - Spain reach Euro 2024 final but captain injured after final whistle**\
+`The key moments from today at Euro 2024 `\
+https://nytimes.com/athletic/5627332/2024/07/09/euro-2024-day-26-morata-tackled/
+
+**‘Rust’ Jury Chosen After Questions About Guns, Movies and Alec Baldwin**\
+`Mr. Baldwin, who was charged with involuntary manslaughter in the fatal shooting of a cinematographer, has pleaded not guilty.`\
+https://nytimes.com/2024/07/09/arts/alec-baldwin-rust-shooting-trial-jury.html
+
 **A Fine Joe-mance**\
 `Inside the MSNBC safe space that President Biden turned to this week.`\
 https://nytimes.com/2024/07/09/us/politics/biden-democrats-trump-morning-joe.html
