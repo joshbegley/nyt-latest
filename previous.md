@@ -1,3 +1,7 @@
+**Late Night Mulls Biden’s Decision to Stay in the Race**\
+`“He’s basically the guy doing 30 in the left lane, and he ain’t moving for anybody,” Jimmy Fallon said of President Biden on Monday.`\
+https://nytimes.com/2024/07/09/arts/television/late-night-biden.html
+
 **The Transfer DealSheet: Arsenal's Calafiori interest, Man Utd move closer to Zirkzee deal**\
 `Welcome to the latest edition of the Transfer DealSheet, your weekly guide to what is happening in the summer transfer window`\
 https://nytimes.com/athletic/5619869/2024/07/09/arsenal-transfer-latest-manchester-united/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5625586/2024/07/09/willie-mays-celebration-of-life-
 **Maidenhead gave Kilman his chance - his £40m transfer to West Ham will help them rebuild**\
 `Max Kilman's move to West Ham suits them and Wolves — but not as much as his former club, non-League Maidenhead`\
 https://nytimes.com/athletic/5616886/2024/07/09/max-kilman-west-ham-transfer-wolves-maidenhead/
-
-**What Mats Wieffer will bring to Brighton**\
-`The Dutchman typically impresses out of possession and will bring some of the traits Brighton's midfield lacked last season`\
-https://nytimes.com/athletic/5616704/2024/07/09/mats-wieffer-brighton-transfer/
 

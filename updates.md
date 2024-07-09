@@ -1,3 +1,7 @@
+**Late Night Mulls Biden’s Decision to Stay in the Race**\
+`“He’s basically the guy doing 30 in the left lane, and he ain’t moving for anybody,” Jimmy Fallon said of President Biden on Monday.`\
+https://nytimes.com/2024/07/09/arts/television/late-night-biden.html
+
 **The Transfer DealSheet: Arsenal's Calafiori interest, Man Utd move closer to Zirkzee deal**\
 `Welcome to the latest edition of the Transfer DealSheet, your weekly guide to what is happening in the summer transfer window`\
 https://nytimes.com/athletic/5619869/2024/07/09/arsenal-transfer-latest-manchester-united/
