@@ -1,3 +1,11 @@
+**WADA Clears Itself in Chinese Doping Case, but Report Raises New Questions**\
+`A special prosecutor said the decision not to pursue punishments against a group of Olympic swimmers was “indisputably reasonable,” even though agency scientists had expressed doubts.`\
+https://nytimes.com/2024/07/09/world/asia/wada-report-china-doping-swimming.html
+
+**Kevin Durant to miss exhibition vs. Canada (calf strain)**\
+`Durant did not participate in any of the full-contact portions of practices or team scrimmages in training camp.`\
+https://nytimes.com/athletic/5627253/2024/07/09/kevin-durant-out-usa-olympics-exhibition-canada/
+
 **Democrats, Swallowing Fears About Biden’s Candidacy, Remain Behind Him**\
 `Lawmakers in the House and Senate met privately to hash out their concerns about President Biden’s viability, but leaders emerged from two separate meetings pledging allegiance to their candidate.`\
 https://nytimes.com/2024/07/09/us/politics/democrats-biden-congress.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/09/style/tiny-modern-love-stories-feeling-awkward-fl
 **Adrian Wilson, ex-Cardinals star and Panthers exec, arrested on domestic violence charges**\
 `Wilson and the Panthers recently parted ways.`\
 https://nytimes.com/athletic/5627267/2024/07/09/adrian-wilson-cardinals-panthers-domestic-violence-arrest/
-
-**Bloomberg’s $1 Billion Gift for Free Medical School Applies Only to Some**\
-`A donation from Bloomberg Philanthropies will provide free tuition for Johns Hopkins medical students, if their families make less than $300,000 a year.`\
-https://nytimes.com/2024/07/09/us/bloomberg-donation-free-tuition-einstein-bronx.html
-
-**She’s Keeping Biden on Track as Democrats Try to Derail Him**\
-`Jennifer O’Malley Dillon is driving the president’s campaign forward as he fends off Democratic critics. “She doesn’t have any doubt,” said Ron Klain, the former White House chief of staff.`\
-https://nytimes.com/2024/07/09/us/politics/jen-omalley-dillon-biden.html
 

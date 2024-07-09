@@ -1,3 +1,11 @@
+**WADA Clears Itself in Chinese Doping Case, but Report Raises New Questions**\
+`A special prosecutor said the decision not to pursue punishments against a group of Olympic swimmers was “indisputably reasonable,” even though agency scientists had expressed doubts.`\
+https://nytimes.com/2024/07/09/world/asia/wada-report-china-doping-swimming.html
+
+**Kevin Durant to miss exhibition vs. Canada (calf strain)**\
+`Durant did not participate in any of the full-contact portions of practices or team scrimmages in training camp.`\
+https://nytimes.com/athletic/5627253/2024/07/09/kevin-durant-out-usa-olympics-exhibition-canada/
+
 **Democrats, Swallowing Fears About Biden’s Candidacy, Remain Behind Him**\
 `Lawmakers in the House and Senate met privately to hash out their concerns about President Biden’s viability, but leaders emerged from two separate meetings pledging allegiance to their candidate.`\
 https://nytimes.com/2024/07/09/us/politics/democrats-biden-congress.html
