@@ -1,3 +1,7 @@
+**How does Klay Thompson fit with the Mavericks? It's not complicated**\
+`Luka Dončić creates more 3s than any other player. Dallas couldn't make any of them in the NBA Finals. Now, enter Klay Thompson. `\
+https://nytimes.com/athletic/5622932/2024/07/09/klay-thompson-mavericks-shoot-3-luka-doncic/
+
 **Cairns' return is a common sense signing to satisfy EFL rules and add experience**\
 `The return of the experienced goalkeeper is unlikely to excite the Leeds fanbase — but it ticks a lot of boxes`\
 https://nytimes.com/athletic/5624080/2024/07/09/leeds-alex-cairns-transfers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/09/world/europe/france-spain-euro-2024-election.html
 **NBA Summer League spotlights Clippers' need to develop young players like Cam Christie**\
 `The Clippers have gotten very little out of their drafts in recent years and need to start producing some home-grown talent.`\
 https://nytimes.com/athletic/5625515/2024/07/09/clippers-summer-league-cam-christie/
-
-**Lee, Wallner key another Twins' comeback win as they chip away in AL Central race**\
-`The Twins haven’t been this close to the lead in the American League Central since May 18, when they trailed the Guardians by 4 1/2 games.`\
-https://nytimes.com/athletic/5626110/2024/07/09/twins-white-sox-brooks-lee-matt-wallner-al-cental-race/
 
