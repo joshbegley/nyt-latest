@@ -1,3 +1,19 @@
+**Liverpool owner FSG in talks to buy Bordeaux**\
+`Liverpool&#8217;s owner Fenway Sports Group (FSG) is in talks over buying French club Bordeaux.`\
+https://nytimes.com/athletic/5625866/2024/07/09/liverpool-fsg-bordeaux/
+
+**Menendez has sought to pin the blame on his wife.**\
+`By Benjamin Weiser`\
+https://nytimes.com/live/2024/07/09/nyregion/bob-menendez-trial/menendez-has-sought-to-pin-the-blame-on-his-wife
+
+**Organizer of World Economic Forum in Davos Accused of Discrimination**\
+`A former employee sued the nonprofit, accusing it of denying professional opportunities because of her race and gender.`\
+https://nytimes.com/2024/07/09/business/dealbook/world-economic-forum-discrimination-lawsuit.html
+
+**He Told Biden to ‘Pass the Torch.’ It Cost Him His Role in a State Campaign.**\
+`Clint Keaveny, an outspoken volunteer, was removed from a Democratic congressional campaign for holding up a protest sign at a Biden rally.`\
+https://nytimes.com/2024/07/09/us/biden-democrats-pass-the-torch-sign.html
+
 **The Windup: How Heliot Ramos went from afterthought to All-Star**\
 `Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
 https://nytimes.com/athletic/5626655/2024/07/09/heliot-ramos-mlb-draft-prospects-brandon-nimmo-the-windup/
