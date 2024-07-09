@@ -1,3 +1,11 @@
+**Real Madrid goalkeepers: Kepa not out of the picture with Lunin's future uncertain**\
+`Arrizabalaga said his goodbyes after a season-long loan at Real Madrid, but now his name is under consideration again`\
+https://nytimes.com/athletic/5625888/2024/07/09/real-madrid-goalkeepers-kepa-lunin/
+
+**Kansas City high school football coaches on region's best recruiters, impact of NIL and more**\
+`Which head coaches do the best job as recruiters? Which assistants stand out? What programs should be doing a a better job in the area?`\
+https://nytimes.com/athletic/5614598/2024/07/09/kansas-city-high-school-recruiting-confidential/
+
 **Ipswich working to close signing of Jaden Philogene from Hull City**\
 `Ipswich Town have an £18million deal in place to sign winger Jaden Philogene from Hull City.`\
 https://nytimes.com/athletic/5615422/2024/07/09/jaden-philogene-transfer-ipswich/
