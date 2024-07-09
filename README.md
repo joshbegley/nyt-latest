@@ -1,3 +1,7 @@
+**Corrections: July 9, 2024**\
+`Corrections that appeared in print on Tuesday, July 9, 2024.`\
+https://nytimes.com/2024/07/09/pageoneplus/corrections-july-9-2024.html
+
 **Dillon Brooks: ‘Canada will be ready to play’ vs. Team USA**\
 `While Team USA is certainly the Olympic favorite, the Canadians are hardly lacking for elite talent.`\
 https://nytimes.com/athletic/5625561/2024/07/09/dillon-brooks-team-canada-usa-olympic-basketball/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5618606/2024/07/09/gary-oneils-wolves-rebuild-is-we
 **After months of turmoil and uncertainty, Forest's future at the City Ground looks secure**\
 `The club's agreement in principle to purchase the freehold of the land their much-loved stadium sits on will be welcome news to worried fans`\
 https://nytimes.com/athletic/5624608/2024/07/09/nottingham-forest-city-ground-future-secure/
-
-**Pickford is being pushed on by a goalkeeping union who know he's the undisputed No 1**\
-`The Everton and England goalkeeper has come into his own in Germany — and his backups are playing a full part in his success`\
-https://nytimes.com/athletic/5624844/2024/07/09/jordan-pickford-ramsdale-henderson-england-goalkeepers/
 
