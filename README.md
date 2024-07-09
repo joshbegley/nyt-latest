@@ -1,3 +1,27 @@
+**The Devil From Down Under**\
+`We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Alexis Rippon, age 13.`\
+https://nytimes.com/2024/07/09/learning/the-devil-from-down-under.html
+
+**A Vast Mexican Market Has Become a Whole New Scene in Orange County**\
+`Northgate González Market, one of the largest Mexican supermarket chains in the country, imagines the future of food as a family-friendly mercado.`\
+https://nytimes.com/2024/07/09/dining/northgate-gonzalez-mercado-orange-county.html
+
+**Tanglewood Opens for the Summer, With Change in the Air**\
+`The Boston Symphony Orchestra gave its first concerts of the Tanglewood season, which is already showing signs of its new leader’s ambitions.`\
+https://nytimes.com/2024/07/09/arts/music/boston-symphony-orchestra-tanglewood.html
+
+**Maradona, Ardiles and Romero: exploring the deep bond between Argentina and Tottenham**\
+`Ardiles and Villa got the ball rolling when they joined Spurs after winning 1978 World Cup, but the relationship is much deeper than that`\
+https://nytimes.com/athletic/5625653/2024/07/09/maradona-tottenham-romero-argentina/
+
+**Analysis: What will Palhinha bring to Bayern?**\
+`With the addition of Joao Palhinha, Vincent Kompany and Bayern supporters can look forward to a more balanced midfield`\
+https://nytimes.com/athletic/5616792/2024/07/09/joao-palhinha-bayern-transfer-analysis/
+
+**The (Quick) Dinners I Wait All Year to Make**\
+`On my summer recipe bucket list: pad krapow gai, Moroccan kefta, caprese antipasto and Yucatán shrimp.`\
+https://nytimes.com/2024/07/09/dining/quick-dinner-recipes.html
+
 **Liverpool owner FSG in talks to buy Bordeaux**\
 `Liverpool&#8217;s owner Fenway Sports Group (FSG) is in talks over buying French club Bordeaux.`\
 https://nytimes.com/athletic/5625866/2024/07/09/liverpool-fsg-bordeaux/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/07/09/business/dealbook/world-economic-forum-discrimina
 **The Windup: How Heliot Ramos went from afterthought to All-Star**\
 `Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
 https://nytimes.com/athletic/5626655/2024/07/09/heliot-ramos-mlb-draft-prospects-brandon-nimmo-the-windup/
-
-**Who Are the Key Players in the Alec Baldwin Manslaughter Trial?**\
-`A`\
-https://nytimes.com/article/alec-baldwin-trial-key-players.html
-
-**The Ingredient That Brightens Every Dish It’s In**\
-`A staple of Moroccan cooking, preserved lemon adds zest and depth to earthy dishes like potato salad and lentil soup.`\
-https://nytimes.com/2024/07/09/dining/preserved-lemon.html
-
-**He Told Biden to ‘Pass the Torch.’ It Cost Him His Role in a State Campaign.**\
-`Clint Keaveny, an outspoken volunteer, was removed from a Democratic congressional campaign for holding up a protest sign at a Biden rally.`\
-https://nytimes.com/2024/07/09/us/biden-democrats-pass-the-torch-sign.html
-
-**A New Terrace Cafe for the Boathouse in Prospect Park**\
-`Purslane Cafe, from the group behind Rucola and more, serves sandwiches and drinks; Parcelle adds a new location; and more restaurant news.`\
-https://nytimes.com/2024/07/09/dining/nyc-restaurant-news.html
-
-**Alexandria Ocasio-Cortez Backs Biden: ‘He Is Not Leaving This Race’**\
-`Her continued support gives President Biden the backing of an influential member of the party’s progressive wing.`\
-https://nytimes.com/2024/07/09/us/politics/alexandria-ocasio-cortez-backs-biden.html
-
-**Employees With Autism Find New Ways to Navigate the Workplace**\
-`As diagnoses of autism rise, Microsoft and other large companies are working to better support autistic workers so they can thrive without “masking.”`\
-https://nytimes.com/2024/07/09/style/employees-autism-navigate-workplace.html
 
