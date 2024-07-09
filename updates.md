@@ -1,3 +1,7 @@
+**Gundy: OSU star RB Ollie Gordon won't be suspended**\
+`“He’s going to play,” Gundy said. “I might make him carry the ball 50 times in the first game, but he’s going to play."`\
+https://nytimes.com/athletic/5627041/2024/07/09/mike-gundy-oklahoma-state-ollie-gordon-dui-suspension/
+
 **Whitmer Talks Tequila, Pearl Jam and Debates in New Book**\
 `The Michigan governor will not talk about running for president. But her new book, “True Gretch,” is full of details keeping the chatter alive.`\
 https://nytimes.com/2024/07/09/us/politics/gretchen-whitmer-book.html
