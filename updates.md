@@ -1,3 +1,7 @@
+**Euro 2024, day 26 - Spain reach Euro 2024 final but captain injured after final whistle**\
+`The key moments from today at Euro 2024 `\
+https://nytimes.com/athletic/5627332/2024/07/09/euro-2024-day-26-spains-captain-tackled-by-security-guard-yamal-record-france-out/
+
 **Wimbledon day 9: From double-faults to delight, the roofs go main character, Alcaraz wins ugly**\
 `On day nine of Wimbledon, a masterclass in recovery; an indoor tournament; and American dreams dashed`\
 https://nytimes.com/athletic/5627157/2024/07/09/wimbledon-alcaraz-vekic-american-losses/

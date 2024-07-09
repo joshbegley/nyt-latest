@@ -1,3 +1,7 @@
+**Euro 2024, day 26 - Spain reach Euro 2024 final but captain injured after final whistle**\
+`The key moments from today at Euro 2024 `\
+https://nytimes.com/athletic/5627332/2024/07/09/euro-2024-day-26-spains-captain-tackled-by-security-guard-yamal-record-france-out/
+
 **Wimbledon day 9: From double-faults to delight, the roofs go main character, Alcaraz wins ugly**\
 `On day nine of Wimbledon, a masterclass in recovery; an indoor tournament; and American dreams dashed`\
 https://nytimes.com/athletic/5627157/2024/07/09/wimbledon-alcaraz-vekic-american-losses/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/09/arts/television/sunny-apple-tv-plus-rashida-jones
 **Reds' Greene lands first All-Star nod as Glasnow goes on IL**\
 `Greene, 24, is just two years removed from his big-league debut and having his best season as a pro yet.`\
 https://nytimes.com/athletic/5627477/2024/07/09/mlb-all-star-tyler-glasnow-hunter-greene/
-
-**Wednesday Briefing: NATO Summit Begins**\
-`Plus, the U.S. says Russia is struggling in Ukraine.`\
-https://nytimes.com/2024/07/09/briefing/nato-biden-putin-modi.html
 
