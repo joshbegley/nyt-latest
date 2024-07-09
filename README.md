@@ -1,3 +1,7 @@
+**Indonesian Court Acquits Former Official Accused of Enslaving Addicts**\
+`The ex-regent had been accused of imprisoning hundreds of people under the guise of drug treatment and forcing them to work at his plantation and factory.`\
+https://nytimes.com/2024/07/09/world/asia/indonesia-court-acquittal-human-trafficking.html
+
 **Bobby De Cordova-Reid to Leicester: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Bobby De Cordova-Reid's move to Leicester`\
 https://nytimes.com/athletic/5620169/2024/07/09/bobby-de-cordova-reid-to-leicester-the-athletic-500-transfer-ratings/
@@ -5,6 +9,10 @@ https://nytimes.com/athletic/5620169/2024/07/09/bobby-de-cordova-reid-to-leicest
 **Wordle Review No. 1,117, July 10, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/09/crosswords/wordle-review-1117.html
+
+**Live Updates: Closing Arguments Continue in Menendez Bribery Trial**\
+`Senator Robert Menendez of New Jersey is accused of aiding the Egyptian government in return for gifts including cash and gold bars. His team will present its summation after a federal prosecutor concludes his closing argument.`\
+https://nytimes.com/live/2024/07/09/nyregion/bob-menendez-trial
 
 **Should You Hug a Sloth?**\
 `Spurred by social media, attractions where visitors interact with animals have surged. Advocates are sounding alarms.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/09/health/ftc-pharmacy-benefit-managers-drug-prices.
 **Ipswich agree deal for City striker Delap**\
 `Ipswich Town have agreed a deal with Manchester City to sign striker Liam Delap.`\
 https://nytimes.com/athletic/5626378/2024/07/09/liam-delap-transfer-city-ipswich-southampton/
-
-**How does Klay Thompson fit with the Mavericks? It's not complicated**\
-`Luka Dončić creates more 3s than any other player. Dallas couldn't make any of them in the NBA Finals. Now, enter Klay Thompson. `\
-https://nytimes.com/athletic/5622932/2024/07/09/klay-thompson-mavericks-shoot-3-luka-doncic/
-
-**Cairns' return is a common sense signing to satisfy EFL rules and add experience**\
-`The return of the experienced goalkeeper is unlikely to excite the Leeds fanbase — but it ticks a lot of boxes`\
-https://nytimes.com/athletic/5624080/2024/07/09/leeds-alex-cairns-transfers/
 
