@@ -1,3 +1,7 @@
+**Joselu interview: 'Luis de la Fuente has built a family with Spain. That's the key'**\
+`In an interview with The Athletic, the former Real Madrid striker looks back on his career and Spain's run to the Euro 2024 semi-finals`\
+https://nytimes.com/athletic/5623475/2024/07/09/joselu-spain-euro-2024-interview-exclusive-france/
+
 **Tapping up team-mates at tournaments: How much does it happen? Can it make a difference?**\
 `Yamal and Williams, Bellingham and Henderson - how much influence can international team-mates have on a player's future?`\
 https://nytimes.com/athletic/5619945/2024/07/09/tapping-up-transfer-euros-copa/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/09/world/middleeast/crown-jewels-of-the-jewish-peopl
 **Seeing Workplace Misery, They Offer Company**\
 `As chronic work stress climbs, entrepreneurs find opportunity in the burgeoning space of burnout coaching.`\
 https://nytimes.com/2024/07/09/business/work-stress-burnout-coach.html
-
-**Quotation of the Day: A Compromise? France Needs It but Disdains It.**\
-`Quotation of the Day for Tuesday, July 9, 2024.`\
-https://nytimes.com/2024/07/08/pageoneplus/quotation-of-the-day-a-compromise-france-needs-it-but-disdains-it.html
 
