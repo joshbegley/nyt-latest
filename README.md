@@ -1,4 +1,4 @@
-**Democrats, Swallowing Fears AboutBiden’s Candidacy, Remain Behind Him**\
+**Democrats, Swallowing Fears About Biden’s Candidacy, Remain Behind Him**\
 `Lawmakers in the House and Senate met privately to hash out their concerns about President Biden’s viability, but leaders emerged from two separate meetings pledging allegiance to their candidate.`\
 https://nytimes.com/2024/07/09/us/politics/democrats-biden-congress.html
 
