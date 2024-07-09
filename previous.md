@@ -1,3 +1,7 @@
+**Novak Djokovic was becoming tennis' gentleman king. It didn't last**\
+`Djokovic demolished Rune, then ripped into the Centre Court fans who are supposed to be known for their decorum. He just thrives on drama`\
+https://nytimes.com/athletic/5626443/2024/07/09/novak-djokovic-wimbledon-crowd/
+
 **Hollinger: What's next on the NBA's transaction landscape?**\
 `The draft and the initial feeding-frenzy days of free agency are over, but a lot can happen between now and opening night.`\
 https://nytimes.com/athletic/5625579/2024/07/09/lauri-markkanen-brandon-ingram-trade-rumors-nba-offseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5625866/2024/07/09/liverpool-fsg-bordeaux/
 **Menendez has sought to pin the blame on his wife.**\
 `By Benjamin Weiser`\
 https://nytimes.com/live/2024/07/09/nyregion/bob-menendez-trial/menendez-has-sought-to-pin-the-blame-on-his-wife
-
-**Organizer of World Economic Forum in Davos Accused of Discrimination**\
-`A former employee sued the nonprofit, accusing it of denying professional opportunities because of her race and gender.`\
-https://nytimes.com/2024/07/09/business/dealbook/world-economic-forum-discrimination-lawsuit.html
 

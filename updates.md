@@ -1,3 +1,7 @@
+**Novak Djokovic was becoming tennis' gentleman king. It didn't last**\
+`Djokovic demolished Rune, then ripped into the Centre Court fans who are supposed to be known for their decorum. He just thrives on drama`\
+https://nytimes.com/athletic/5626443/2024/07/09/novak-djokovic-wimbledon-crowd/
+
 **Hollinger: What's next on the NBA's transaction landscape?**\
 `The draft and the initial feeding-frenzy days of free agency are over, but a lot can happen between now and opening night.`\
 https://nytimes.com/athletic/5625579/2024/07/09/lauri-markkanen-brandon-ingram-trade-rumors-nba-offseason/
