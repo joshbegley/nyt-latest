@@ -1,3 +1,11 @@
+**Indonesian Court Acquits Former Official Accused of Enslaving Addicts**\
+`The ex-regent had been accused of imprisoning hundreds of people under the guise of drug treatment and forcing them to work at his plantation and factory.`\
+https://nytimes.com/2024/07/09/world/asia/indonesia-court-acquittal-human-trafficking.html
+
+**Live Updates: Closing Arguments Continue in Menendez Bribery Trial**\
+`Senator Robert Menendez of New Jersey is accused of aiding the Egyptian government in return for gifts including cash and gold bars. His team will present its summation after a federal prosecutor concludes his closing argument.`\
+https://nytimes.com/live/2024/07/09/nyregion/bob-menendez-trial
+
 **Wimbledon roundtable: Who could capitalise on the open women's draw to win?**\
 `As Wimbledon's quarterfinals begin, The Athletic's tennis team take stock of the women's singles draw`\
 https://nytimes.com/athletic/5625891/2024/07/09/wimbledon-roundtable-womens-singles-winner/
