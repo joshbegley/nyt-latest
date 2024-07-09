@@ -1,3 +1,7 @@
+**Biden Tells Allies That NATO Is ‘More Powerful Than Ever’**\
+`President Biden welcomed NATO allies to a summit in Washington with a speech highlighting the alliance’s history and its unity in modern times.`\
+https://nytimes.com/video/us/politics/100000009563231/biden-nato-summit.html
+
 **Mets add much-needed bullpen help in trade for Phil Maton**\
 `Maton was one of the Mets' principal targets throughout the winter and now they need him to steady a chaotic bullpen.`\
 https://nytimes.com/athletic/5627848/2024/07/09/mets-trade-phil-maton-bullpen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5627838/2024/07/09/brian-cashman-new-york-yankees-s
 **Morata to be assessed after Spain vs France pitch invader incident**\
 `Spain will assess Alvaro Morata after he was involved in an incident with a pitch invader and a freak collision with a member of his own team&#8217;s security staff following their semi-final win over France.`\
 https://nytimes.com/athletic/5627595/2024/07/09/alvaro-morata-pitch-invader-spain-france/
-
-**Devers to miss All-Star Game; Westburg named to AL team**\
-`Devers has been dealing with a sore left shoulder for much of the season. Westburg will be making his first All-Star Game appearance.`\
-https://nytimes.com/athletic/5627778/2024/07/09/mlb-all-star-roster-rafael-devers-jordan-westburg/
 
