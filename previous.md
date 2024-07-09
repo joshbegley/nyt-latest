@@ -1,3 +1,11 @@
+**Trump Leads Biden by 5 Percentage Points in Post-Debate Wisconsin Poll**\
+`The president’s weakness with younger voters is evident in the survey, as is former President Donald J. Trump’s benefiting from positive views of his White House term.`\
+https://nytimes.com/2024/07/09/us/politics/trump-biden-poll-debate.html
+
+**Arch Manning opts in to College Football 25, will appear in video game**\
+`In March, Orangebloods reported the former No. 1 recruit decided not to opt in because he was 'focused on playing football on the field.'`\
+https://nytimes.com/athletic/5627164/2024/07/09/arch-manning-video-game-college-football-25/
+
 **Man Utd agree deal to sell Greenwood to Marseille**\
 `Marseille have reached an agreement with Manchester United to sign Mason Greenwood, although the proposed move remains subject to the forward’s approval.`\
 https://nytimes.com/athletic/5623710/2024/07/09/mason-greenwood-marseille-agreement/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5627041/2024/07/09/mike-gundy-oklahoma-state-ollie-
 **Whitmer Talks Tequila, Pearl Jam and Debates in New Book**\
 `The Michigan governor will not talk about running for president. But her new book, “True Gretch,” is full of details keeping the chatter alive.`\
 https://nytimes.com/2024/07/09/us/politics/gretchen-whitmer-book.html
-
-**U.S. Plans Up to $1.6 Billion in Funding for Packaging Computer Chips**\
-`The proposed funding, part of the CHIPS Act, is intended to stoke chip packaging, a process that helps drive progress in semiconductors but that takes place mostly in Asia.`\
-https://nytimes.com/2024/07/09/technology/chips-packaging-semiconductors.html
-
-**Jannik Sinner out of Wimbledon after struggling physically against Medvedev**\
-`Jannik Sinner, world No 1, is out of Wimbledon after a five-set defeat to Russian No 5 seed Daniil Medvedev in the quarterfinals on Tuesday.`\
-https://nytimes.com/athletic/5626996/2024/07/09/jannik-sinner-out-of-wimbledon-after-struggling-physically-vs-daniil-medvedev/
 
