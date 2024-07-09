@@ -1,3 +1,11 @@
+**The Matrix of Consumer Discontent**\
+`What facts do different stories explain?`\
+https://nytimes.com/2024/07/09/opinion/economy-consumer-sentiment.html
+
+**At Ukraine’s Largest Children’s Hospital, a Horrific Scene of Destruction**\
+`Families and patients were not unfamiliar with the sound of missiles flying overhead. But the Russian assault on the hospital marked one of the worst days of violence against civilians in months.`\
+https://nytimes.com/2024/07/09/world/europe/ukraine-childrens-hospial-russia.html
+
 **Nikki Haley Urges Her Delegates to Vote for Donald Trump**\
 `The relationship between Ms. Haley, who was United Nations ambassador under Mr. Trump, and the former president soured toward the end of the primary campaign.`\
 https://nytimes.com/2024/07/09/us/politics/nikki-haley-trump-delegates.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/09/health/kidney-transplant-pisano.html
 **The 15 Songs That Hit No. 1 This Year (So Far)**\
 `Hear tracks by Shaboozey, Sabrina Carpenter, Kendrick Lamar and more.`\
 https://nytimes.com/2024/07/09/arts/music/amplifier-newsletter-no-1-songs-2024.html
-
-**Klay Thompson on Warriors exit: 'Sometimes breakups are necessary'**\
-`"Sometimes breakups are necessary to do whats right. I'm not the first athlete in the NBA to go do this," Thompson said.`\
-https://nytimes.com/athletic/5626636/2024/07/09/klay-thompson-mavericks-intro-conference-warriors/
-
-**Trump Leads Biden by 5 Percentage Points in Post-Debate Wisconsin Poll**\
-`The president’s weakness with younger voters is evident in the survey, as is former President Donald J. Trump’s benefiting from positive views of his White House term.`\
-https://nytimes.com/2024/07/09/us/politics/trump-biden-poll-debate.html
 
