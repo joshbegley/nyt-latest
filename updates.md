@@ -1,3 +1,7 @@
+**Whitmer Talks Tequila, Pearl Jam and Debates in New Book**\
+`The Michigan governor will not talk about running for president. But her new book, “True Gretch,” is full of details keeping the chatter alive.`\
+https://nytimes.com/2024/07/09/us/politics/gretchen-whitmer-book.html
+
 **U.S. Plans Up to $1.6 Billion in Funding for Packaging Computer Chips**\
 `The proposed funding, part of the CHIPS Act, is intended to stoke chip packaging, a process that helps drive progress in semiconductors but that takes place mostly in Asia.`\
 https://nytimes.com/2024/07/09/technology/chips-packaging-semiconductors.html

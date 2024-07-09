@@ -1,3 +1,7 @@
+**Whitmer Talks Tequila, Pearl Jam and Debates in New Book**\
+`The Michigan governor will not talk about running for president. But her new book, “True Gretch,” is full of details keeping the chatter alive.`\
+https://nytimes.com/2024/07/09/us/politics/gretchen-whitmer-book.html
+
 **U.S. Plans Up to $1.6 Billion in Funding for Packaging Computer Chips**\
 `The proposed funding, part of the CHIPS Act, is intended to stoke chip packaging, a process that helps drive progress in semiconductors but that takes place mostly in Asia.`\
 https://nytimes.com/2024/07/09/technology/chips-packaging-semiconductors.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5625142/2024/07/09/cardinals-mlb-lars-nootbaar/
 **Penguins name Wes Clark VP of player personnel**\
 `Clark worked with Kyle Dubas and the Maple Leafs in various capacities over the previous six seasons.`\
 https://nytimes.com/athletic/5626755/2024/07/09/penguins-maple-leafs-wes-clark-kyle-dubas/
-
-**The Menendez indictment set off a political frenzy in New Jersey.**\
-`By Christopher Maag`\
-https://nytimes.com/live/2024/07/09/nyregion/bob-menendez-trial/the-menendez-indictment-set-off-a-political-frenzy-in-new-jersey
 
