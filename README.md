@@ -1,3 +1,7 @@
+**Kamala Harris attends Team USA men's basketball practice**\
+`Harris is a noted Golden State Warriors fan, the team Kerr coaches in the NBA and Stephen Curry stars on.`\
+https://nytimes.com/athletic/5627702/2024/07/09/kamala-harris-usa-basketball-practice/
+
 **Euro 2024, day 26 - Spain reach Euro 2024 final but captain injured after final whistle**\
 `The key moments from today at Euro 2024 `\
 https://nytimes.com/athletic/5627332/2024/07/09/euro-2024-day-26-spains-captain-tackled-by-security-guard-yamal-record-france-out/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/macron-french-elections
 **‘Sunny’ Is a Dreamy Robot Dramedy**\
 `This stylish sci-fi series, on Apple TV+, stars Rashida Jones as a grieving woman with an unexpected new companion.`\
 https://nytimes.com/2024/07/09/arts/television/sunny-apple-tv-plus-rashida-jones.html
-
-**Reds' Greene lands first All-Star nod as Glasnow goes on IL**\
-`Greene, 24, is just two years removed from his big-league debut and having his best season as a pro yet.`\
-https://nytimes.com/athletic/5627477/2024/07/09/mlb-all-star-tyler-glasnow-hunter-greene/
 
