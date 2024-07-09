@@ -1,3 +1,11 @@
+**Menendez’s lawyer says the government’s case relied on ‘half truths’ and innuendo.**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2024/07/09/nyregion/bob-menendez-trial/menendezs-lawyer-says-the-governments-case-relied-on-half-truths-and-innuendo
+
+**States and Creditors for Purdue Pharma Threaten Sacklers With Gush of Lawsuits**\
+`Legal maneuverings followed a Supreme Court ruling last month that denied the Sackler family immunity from liability over its role in the opioid crisis.`\
+https://nytimes.com/2024/07/09/health/sacklers-purdue-settlement-lawsuits.html
+
 **At the NATO Summit, Attention Is on Biden**\
 `Also, Middle America is paying more for home insurance. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/07/09/briefing/nato-summit-biden-home-insurance-rates.html
