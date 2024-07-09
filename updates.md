@@ -1,3 +1,7 @@
+**A beginner's guide to mate - the drink fuelling Copa America (and uniting Messi and Ronaldo)**\
+`There are so many barriers to human connection in our modern world — but mate breaks them down`\
+https://nytimes.com/athletic/5625500/2024/07/09/messi-ronaldo-mate/
+
 **Eight most intriguing Chiefs players to watch in training camp**\
 `Rookie running back/returner Louis Rees-Zammit and veteran wide receiver Kadarius Toney are two to watch in St. Joseph, Mo., this summer.`\
 https://nytimes.com/athletic/5601169/2024/07/09/chiefs-training-camp-players-to-watch/
