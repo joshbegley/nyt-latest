@@ -1,3 +1,15 @@
+**James M. Inhofe, Senator Who Denied Climate Change, Dies at 89**\
+`An Oklahoma Republican who led the Environment Committee, he took hard-right stands on many issues but was especially vocal in challenging evidence of global warming.`\
+https://nytimes.com/2024/07/09/us/politics/james-inhofe-dead.html
+
+**New York’s Democratic Party chairman calls for the party to unite behind Biden.**\
+`The State Democratic Party chairman, Jay Jacobs, said it was time to “rally around and support our nominee.”`\
+https://nytimes.com/live/2024/07/09/us/trump-biden-election/biden-ny-jacobs
+
+**Gavin Newsom Will Take Your Biden Questions (and Try Your Doughnuts)**\
+`The California governor is holding firm as a fierce defender of the president on the 2024 trail. Left unspoken are his own White House ambitions.`\
+https://nytimes.com/2024/07/09/us/politics/biden-gavin-newsom.html
+
 **Do You Need a Lazy Susan? Maybe Not. But They Make Meals a Lot More Fun.**\
 `Long overlooked as throwback novelties, spinning trays are making a comeback.`\
 https://nytimes.com/2024/07/09/t-magazine/lazy-susan-guide.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/09/us/politics/nato-summit-what-to-watch.html
 **After Propelling Biden in 2020, Black Women Aren’t Eager to Abandon Him Now**\
 `Leaders of the Democratic Party’s most loyal voting bloc have expressed frustration with the calls for President Biden to step aside, mindful of undermining Vice President Kamala Harris.`\
 https://nytimes.com/2024/07/09/us/politics/biden-black-women-voters.html
-
-**Novak Djokovic was becoming the gentleman king of tennis. It didn't last**\
-`Djokovic demolished Holger Rune at Wimbledon, then ripped into the Centre Court fans known for their decorum. He just thrives on drama`\
-https://nytimes.com/athletic/5626443/2024/07/09/novak-djokovic-wimbledon-crowd/
-
-**Hollinger: What's next on the NBA's transaction landscape?**\
-`The draft and the initial feeding-frenzy days of free agency are over, but a lot can happen between now and opening night.`\
-https://nytimes.com/athletic/5625579/2024/07/09/lauri-markkanen-brandon-ingram-trade-rumors-nba-offseason/
-
-**The Devil From Down Under**\
-`We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Alexis Rippon, age 13.`\
-https://nytimes.com/2024/07/09/learning/the-devil-from-down-under.html
 
