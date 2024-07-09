@@ -1,3 +1,7 @@
+**Dillon Brooks: ‘Canada will be ready to play’ vs. Team USA**\
+`While Team USA is certainly the Olympic favorite, the Canadians are hardly lacking for elite talent.`\
+https://nytimes.com/athletic/5625561/2024/07/09/dillon-brooks-team-canada-usa-olympic-basketball/
+
 **What Just Happened in France Is Astounding**\
 `Through a stunning act of collective responsibility, the far right has been stopped.`\
 https://nytimes.com/2024/07/09/opinion/france-election-far-right.html

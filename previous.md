@@ -1,3 +1,7 @@
+**Dillon Brooks: ‘Canada will be ready to play’ vs. Team USA**\
+`While Team USA is certainly the Olympic favorite, the Canadians are hardly lacking for elite talent.`\
+https://nytimes.com/athletic/5625561/2024/07/09/dillon-brooks-team-canada-usa-olympic-basketball/
+
 **What Just Happened in France Is Astounding**\
 `Through a stunning act of collective responsibility, the far right has been stopped.`\
 https://nytimes.com/2024/07/09/opinion/france-election-far-right.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5624608/2024/07/09/nottingham-forest-city-ground-fu
 **Pickford is being pushed on by a goalkeeping union who know he's the undisputed No 1**\
 `The Everton and England goalkeeper has come into his own in Germany — and his backups are playing a full part in his success`\
 https://nytimes.com/athletic/5624844/2024/07/09/jordan-pickford-ramsdale-henderson-england-goalkeepers/
-
-**Giorgi Mamardashvili: After Euro 2024 heroics, what's next for the 'Georgian wall'?**\
-`Mamardashvili put in a towering performance for his country in Germany. Big clubs are circling the Valencia goalkeeper`\
-https://nytimes.com/athletic/5616243/2024/07/09/giorgi-mamardashvili-valencia-euro-2024/
 
