@@ -1,3 +1,27 @@
+**Cairns' return is a common sense signing to satisfy EFL rules and add experience**\
+`The return of the experienced goalkeeper is unlikely to excite the Leeds fanbase — but it ticks a lot of boxes`\
+https://nytimes.com/athletic/5624080/2024/07/09/leeds-alex-cairns-transfers/
+
+**The Athletic FC: Viral photo that unites Messi and Yamal. Plus: Is idealism dead?**\
+`Today in The Athletic FC: The photo of Messi with a baby Yamal, is idealism dead, and the French fan and his lucky chicken called Balthazar`\
+https://nytimes.com/athletic/5625937/2024/07/09/the-athletic-fc-viral-photo-that-unites-messi-and-yamal-plus-is-idealism-dead/
+
+**Nottingham Forest complete signing of goalkeeper Carlos Miguel**\
+`Nottingham Forest have completed the signing of goalkeeper Carlos Miguel from Brazilian club Corinthians.`\
+https://nytimes.com/athletic/5626232/2024/07/09/nottingham-forest-transfer-news-carlos-miguel/
+
+**Biden Pushes Back Against Big Donors**\
+`The president’s joined a call intended to soothe wealthy backers’ worries and tried to shift the focus to attacking Donald Trump.`\
+https://nytimes.com/2024/07/09/business/dealbook/biden-wealthy-donors.html
+
+**Projecting the Blues' 2024-25 opening-night lineup after recent roster changes**\
+`The Blues signed two free agents and made four trades. How do those moves impact the lineup in 2024-25?`\
+https://nytimes.com/athletic/5624323/2024/07/09/blues-2024-25-nhl-roster/
+
+**Projecting the Golden Knights' 2024-25 lineup**\
+`Which players will step up in the place of Jonathan Marchessault, Chandler Stephenson, William Carrier, Michael Amadio and Alec Martinez? `\
+https://nytimes.com/athletic/5624547/2024/07/09/golden-knights-lineup-2024-25/
+
 **Modi’s Moscow Visit Showcases a Less Isolated Putin, Angering Ukraine**\
 `Prime Minister Narendra Modi of India made his first visit to Russia in five years, even as Ukraine reeled from an attack on a children’s hospital.`\
 https://nytimes.com/2024/07/09/world/europe/russia-india-modi-moscow-putin.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5625515/2024/07/09/clippers-summer-league-cam-chris
 **Lee, Wallner key another Twins' comeback win as they chip away in AL Central race**\
 `The Twins haven’t been this close to the lead in the American League Central since May 18, when they trailed the Guardians by 4 1/2 games.`\
 https://nytimes.com/athletic/5626110/2024/07/09/twins-white-sox-brooks-lee-matt-wallner-al-cental-race/
-
-**Music Catalog Giant Hipgnosis Is Sold, and Merck Mercuriadis Exits**\
-`The company, whose pricey acquisitions kicked off a rush on catalog sales, sold its assets to Blackstone for $1.6 billion, and its outspoken leader will step down.`\
-https://nytimes.com/2024/07/09/arts/music/hipgnosis-sold-blackstone-merck-mercuriadis.html
-
-**Real Madrid goalkeepers: Kepa not out of the picture with Lunin's future uncertain**\
-`Arrizabalaga said his goodbyes after a season-long loan at Real Madrid, but now his name is under consideration again`\
-https://nytimes.com/athletic/5625888/2024/07/09/real-madrid-goalkeepers-kepa-lunin/
-
-**Kansas City high school football coaches on region's best recruiters, impact of NIL and more**\
-`Which head coaches do the best job as recruiters? Which assistants stand out? What programs should be doing a a better job in the area?`\
-https://nytimes.com/athletic/5614598/2024/07/09/kansas-city-high-school-recruiting-confidential/
-
-**Ipswich working to close signing of Jaden Philogene from Hull City**\
-`Ipswich Town have an £18million deal in place to sign winger Jaden Philogene from Hull City.`\
-https://nytimes.com/athletic/5615422/2024/07/09/jaden-philogene-transfer-ipswich/
-
-**England and France haven't produced 'good performances' at Euro 2024 - but what does that mean?**\
-`The idea that France and England are always like this isn’t true. They’ve never been great to watch but they’ve usually been more formidable`\
-https://nytimes.com/athletic/5624022/2024/07/09/england-france-performance-euro-2024/
-
-**State of the 49ers, DL: An overhaul up front surrounding Nick Bosa and Javon Hargrove**\
-`The offseason brought the biggest change the 49ers have had on their defensive line since Kyle Shanahan and John Lynch arrived in 2017.`\
-https://nytimes.com/athletic/5560533/2024/07/09/san-francisco-49ers-defensive-line-2024-nick-bosa/
 
