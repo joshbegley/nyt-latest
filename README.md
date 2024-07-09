@@ -1,40 +1,40 @@
-**Texans Assess Damage After Beryl Whips Through**\
-`The deadly storm ripped trees out of the ground and damaged homes as millions in Houston were left without power.`\
-https://nytimes.com/video/us/100000009561427/beryl-texas-storm-damage.html
+**Beryl Leaves Millions Without Power in Houston: What to Know**\
+`The storm hit Texas on Monday as a Category 1 hurricane. As the storm moved out of the state, officials warned it could take days to fully restore electricity.`\
+https://nytimes.com/2024/07/09/us/beryl-storm-forecast.html
 
-**Everton bid for Hull's Philogene**\
-`Everton have made a formal transfer bid to sign Jaden Philogene from Hull City.`\
-https://nytimes.com/athletic/5625259/2024/07/09/everton-jaden-philogene-transfer/
+**A Silence Is Shattered, and So Are Many Fans of Alice Munro**\
+`Admirers said they were “blindsided” by revelations that Munro’s youngest daughter had been abused by her stepfather — and that Munro stayed with him even after she learned of it years later.`\
+https://nytimes.com/2024/07/09/books/a-silence-is-shattered-and-so-are-many-fans-of-alice-munro.html
 
-**Real Madrid and Lille progressing in talks over Yoro**\
-`Real Madrid and Lille are progressing in talks over a deal for Leny Yoro.`\
-https://nytimes.com/athletic/5625169/2024/07/09/real-madrid-leny-yoro-transfer/
+**Harris Heads to Nevada Once More, With an Intense Spotlight Following Her**\
+`Vice President Kamala Harris is set to speak in Las Vegas, aiming to focus on the stakes in President Biden’s fight against Donald J. Trump.`\
+https://nytimes.com/2024/07/09/us/politics/kamala-harris-las-vegas-nevada.html
 
-**With Empathy, Bearing Witness to One Family’s Plight**\
-`For months, two journalists documented a Venezuelan family’s journey to the United States, and the struggles they faced after they crossed the border.`\
-https://nytimes.com/2024/07/09/insider/migrants-family-venezuela-border.html
+**The Talented Democrats Who Aren’t Running for President**\
+`It’s getting harder to ignore the charismatic politicians who have been trying to support Biden.`\
+https://nytimes.com/2024/07/09/opinion/democrats-not-running-president.html
 
-**Closing Arguments in Menendez Bribery Case to Continue on Tuesday**\
-`Robert Menendez is the first senator indicted under the foreign-agent statute. He is accused of aiding the Egyptian government in exchange for gifts.`\
-https://nytimes.com/2024/07/09/nyregion/robert-menendez-bribery-trial.html
+**How to Watch Europe Launch Its Powerful New Rocket**\
+`Ariane 6 is finally set to fly on Tuesday. If successful, European nations will regain independent access to space.`\
+https://nytimes.com/2024/07/09/science/europe-ariane-6-rocket-launch.html
 
-**To Protect Redwoods, They Lit a Fire**\
-`After thousands of sequoias were destroyed by extreme wildfires, tribes are conducting cultural burns.`\
-https://nytimes.com/2024/07/09/science/redwoods-wildfires-indigenous-tribes-california.html
+**What Happens When Your Bank Isn’t Really a Bank and Your Money Disappears?**\
+`For unsuspecting depositors of online financial start-ups, the unraveling of a little-known intermediary has separated them from their life savings.`\
+https://nytimes.com/2024/07/09/business/synapse-bankruptcy-fintech-fdic-insurance.html
 
-**Smith: At long last, F1 is back to its ultra-competitive, rivalry-filled best**\
-`Things are good again in Formula 1 as feuds intensify and the racing delights. `\
-https://nytimes.com/athletic/5624591/2024/07/09/f1-parity-gp-red-bull-verstappen-mercedes/
+**The Frenchette Team Breathes New Life Into Le Veau d’Or**\
+`The chefs Lee Hanson and Riad Nasr have restored this French gem on the Upper East Side.`\
+https://nytimes.com/2024/07/09/dining/frenchette-team-le-veau-dor.html
 
-**A Street Brawl, a Stabbing Spree and a New York Block No One Can Fix**\
-`In the East Village, amid buzzy restaurants and high-end real estate, a section of 14th Street that has long been troubled has spiraled downward in recent years.`\
-https://nytimes.com/2024/07/09/nyregion/east-village-14-street-crime.html
+**The Eleven Madison Park Hospitality Guru Who Worked on ‘The Bear’ Opens Up**\
+`Will Guidara, who has a co-producing and writing credit on Season 3, talks about the power of surprise and the calling of restaurant work.`\
+https://nytimes.com/2024/07/09/dining/will-guidara-the-bear-season-3.html
 
-**Democratic Power Broker to Face Racketeering Charges**\
-`George E. Norcross III is scheduled to be arraigned in New Jersey on Tuesday. He is accused of manipulating property deals to benefit from government tax breaks.`\
-https://nytimes.com/2024/07/09/nyregion/george-norcross-racketeering-arraignment.html
+**Trump’s Lust for Expulsion Has Deep Roots**\
+`It is no accident that he is talking about immigrants’ “poisoning the blood of our country.”`\
+https://nytimes.com/2024/07/09/opinion/trump-illiberalism-american-history.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/07/09/crosswords/spelling-bee-forum.html
+**Can This Doctor Tapped to Run Haiti Save the Country?**\
+`Haiti’s new prime minister is a trained gynecologist who experts say is more policy expert than seasoned politician. Many Haitians are counting on him to quell rampant gang violence.`\
+https://nytimes.com/2024/07/09/us/haiti-prime-minister-garry-conille.html
 
