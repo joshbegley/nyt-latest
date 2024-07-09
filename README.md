@@ -10,7 +10,7 @@ https://nytimes.com/2024/07/09/opinion/biden-election-trump.html
 `As time travelled with the ball from out to inside the post, it opened a portal through which Yamal's immense potential could be glimpsed`\
 https://nytimes.com/athletic/5627602/2024/07/09/perfection-by-lamine-yamal/
 
-**Yankees' Cashman addresses team's recent rut**\
+**Yankees' GM talks team's recent rut: 'We're struggling'**\
 `The Yankees GM made an unexpected appearance in St. Petersburg ahead of the team's opening game with the Rays.`\
 https://nytimes.com/athletic/5627838/2024/07/09/brian-cashman-new-york-yankees-struggling/
 
