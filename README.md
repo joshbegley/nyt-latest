@@ -1,3 +1,7 @@
+**Cade Cunningham inks max extension with Pistons**\
+`Last season, Cunningham averaged 22.7 points, 7.5 assists and 4.3 rebounds per game while upping his field-goal percentage to 45 percent.`\
+https://nytimes.com/athletic/5627199/2024/07/09/cade-cunningham-max-contract-extension/
+
 **Gypsy Rose Blanchard Announces Pregnancy**\
 `In a YouTube video on Tuesday, Ms. Blanchard said she was expecting her first child with her boyfriend, Ken Urker.`\
 https://nytimes.com/2024/07/09/style/gypsy-rose-blanchard-pregnancy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5627164/2024/07/09/arch-manning-video-game-college-
 **Man Utd agree deal to sell Greenwood to Marseille**\
 `Marseille have reached an agreement with Manchester United to sign Mason Greenwood, although the proposed move remains subject to the forward’s approval.`\
 https://nytimes.com/athletic/5623710/2024/07/09/mason-greenwood-marseille-agreement/
-
-**Prosecutors Will Seek to Indict Weinstein on New Sex Crimes Charges**\
-`The Manhattan district attorney’s office said it was “actively pursuing” a fresh prosecution against the disgraced movie producer. Prosecutors projected a fall trial.`\
-https://nytimes.com/2024/07/09/nyregion/weinstein-rape-prosecutors.html
 
