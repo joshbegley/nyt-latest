@@ -1,3 +1,7 @@
+**How the Home Insurance Market Became So Distorted**\
+`Climate change and widely varied state regulations could mean you’re paying too much or far too little to insure your home.`\
+https://nytimes.com/2024/07/09/climate/home-insurance-prices-climate-change.html
+
 **Gaza City quieted down months ago, but its residents are now under fire again.**\
 `By Hiba Yazbek and Iyad Abuheweila`\
 https://nytimes.com/live/2024/07/09/world/israel-gaza-war-hamas/gaza-city-quieted-down-months-ago-but-its-residents-are-now-under-fire-again

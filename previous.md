@@ -1,3 +1,7 @@
+**How the Home Insurance Market Became So Distorted**\
+`Climate change and widely varied state regulations could mean you’re paying too much or far too little to insure your home.`\
+https://nytimes.com/2024/07/09/climate/home-insurance-prices-climate-change.html
+
 **Gaza City quieted down months ago, but its residents are now under fire again.**\
 `By Hiba Yazbek and Iyad Abuheweila`\
 https://nytimes.com/live/2024/07/09/world/israel-gaza-war-hamas/gaza-city-quieted-down-months-ago-but-its-residents-are-now-under-fire-again
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5623634/2024/07/09/england-golf-euro-2024/
 **Dak Prescott: 'Absolutely nothing' wrong with ankle**\
 `Prescott added there have been "back and forth" conversations about a new contract.`\
 https://nytimes.com/athletic/5626796/2024/07/09/dak-prescott-ankle-injury-contract-cowboys/
-
-**James M. Inhofe, Senator Who Denied Climate Change, Dies at 89**\
-`An Oklahoma Republican who led the Environment Committee, he took hard-right stands on many issues but was especially vocal in challenging evidence of global warming.`\
-https://nytimes.com/2024/07/09/us/politics/james-inhofe-dead.html
 
