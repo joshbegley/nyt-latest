@@ -1,3 +1,7 @@
+**Hollinger: What's next on the NBA's transaction landscape?**\
+`The draft and the initial feeding-frenzy days of free agency are over, but a lot can happen between now and opening night.`\
+https://nytimes.com/athletic/5625579/2024/07/09/lauri-markkanen-brandon-ingram-trade-rumors-nba-offseason/
+
 **The Devil From Down Under**\
 `We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Alexis Rippon, age 13.`\
 https://nytimes.com/2024/07/09/learning/the-devil-from-down-under.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/09/nyregion/bob-menendez-trial/menendez-has-sou
 **Organizer of World Economic Forum in Davos Accused of Discrimination**\
 `A former employee sued the nonprofit, accusing it of denying professional opportunities because of her race and gender.`\
 https://nytimes.com/2024/07/09/business/dealbook/world-economic-forum-discrimination-lawsuit.html
-
-**The Windup: How Heliot Ramos went from afterthought to All-Star**\
-`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
-https://nytimes.com/athletic/5626655/2024/07/09/heliot-ramos-mlb-draft-prospects-brandon-nimmo-the-windup/
 

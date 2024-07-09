@@ -1,3 +1,7 @@
+**Hollinger: What's next on the NBA's transaction landscape?**\
+`The draft and the initial feeding-frenzy days of free agency are over, but a lot can happen between now and opening night.`\
+https://nytimes.com/athletic/5625579/2024/07/09/lauri-markkanen-brandon-ingram-trade-rumors-nba-offseason/
+
 **The Devil From Down Under**\
 `We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Alexis Rippon, age 13.`\
 https://nytimes.com/2024/07/09/learning/the-devil-from-down-under.html
