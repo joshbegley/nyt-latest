@@ -1,3 +1,7 @@
+**Organized looters are attacking aid convoys in search of contraband cigarettes, officials say.**\
+`By Aaron Boxerman and Natan Odenheimer`\
+https://nytimes.com/live/2024/07/09/world/israel-gaza-war-hamas/organized-looters-are-attacking-aid-convoys-in-search-of-contraband-cigarettes-officials-say
+
 **Wimbledon roundtable: Who could capitalise on the open women's draw to win?**\
 `As Wimbledon's quarterfinals begin, The Athletic's tennis team takes stock of the women's singles draw`\
 https://nytimes.com/athletic/5625891/2024/07/09/wimbledon-roundtable-womens-singles-winner/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/09/business/dealbook/biden-wealthy-donors.html
 **Projecting the Blues' 2024-25 opening-night lineup after recent roster changes**\
 `The Blues signed two free agents and made four trades. How do those moves impact the lineup in 2024-25?`\
 https://nytimes.com/athletic/5624323/2024/07/09/blues-2024-25-nhl-roster/
-
-**Projecting the Golden Knights' 2024-25 lineup**\
-`Which players will step up in the place of Jonathan Marchessault, Chandler Stephenson, William Carrier, Michael Amadio and Alec Martinez? `\
-https://nytimes.com/athletic/5624547/2024/07/09/golden-knights-lineup-2024-25/
 
