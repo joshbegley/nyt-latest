@@ -1,3 +1,11 @@
+**The Devil May Be Enjoying This Election Season, but I Am Not**\
+`Both men running for president are unfit for the job. One is a danger to our country.`\
+https://nytimes.com/2024/07/09/opinion/biden-trump-election.html
+
+**Prosecutors Are Trying to Sell You a Story, Menendez Lawyer Tells Jury**\
+`Senator Robert Menendez is charged in an international corruption scheme. Prosecutors portrayed him as “Scrooge McDuck swimming in gold coins,” his lawyer told the jury.`\
+https://nytimes.com/2024/07/09/nyregion/robert-menendez-bribery-trial-closing.html
+
 **Biden Tells Allies That NATO Is ‘More Powerful Than Ever’**\
 `President Biden welcomed NATO allies to a summit in Washington with a speech highlighting the alliance’s history and its unity in modern times.`\
 https://nytimes.com/video/us/politics/100000009563231/biden-nato-summit.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/09/opinion/biden-election-trump.html
 **Perfection, by Lamine Yamal**\
 `As time travelled with the ball from out to inside the post, it opened a portal through which Yamal's immense potential could be glimpsed`\
 https://nytimes.com/athletic/5627602/2024/07/09/perfection-by-lamine-yamal/
-
-**Yankees' GM talks team's recent rut: 'We're struggling'**\
-`The Yankees GM made an unexpected appearance in St. Petersburg, Fla., ahead of the team's opening game with the Rays.`\
-https://nytimes.com/athletic/5627838/2024/07/09/brian-cashman-new-york-yankees-struggling/
-
-**Morata to be assessed after Spain vs France pitch invader incident**\
-`Spain will assess Alvaro Morata after he was involved in an incident with a pitch invader and a freak collision with a member of his own team&#8217;s security staff following their semi-final win over France.`\
-https://nytimes.com/athletic/5627595/2024/07/09/alvaro-morata-pitch-invader-spain-france/
 
