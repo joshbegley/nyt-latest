@@ -1,3 +1,7 @@
+**F.T.C. Says Middlemen Appear to Be Driving Up Drug Prices**\
+`In a report, the regulator sharply criticized pharmacy benefit managers, a reversal from its longstanding hands-off approach to policing the companies.`\
+https://nytimes.com/2024/07/09/health/ftc-pharmacy-benefit-managers-drug-prices.html
+
 **Ipswich agree deal for City striker Delap**\
 `Ipswich Town have agreed a deal with Manchester City to sign striker Liam Delap.`\
 https://nytimes.com/athletic/5626378/2024/07/09/liam-delap-transfer-city-ipswich-southampton/
