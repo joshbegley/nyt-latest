@@ -1,3 +1,7 @@
+**For Kamala Harris, the Challenge of Getting Ready Without Getting Ready**\
+`The vice president has made certain to demonstrate complete loyalty to President Biden.`\
+https://nytimes.com/2024/07/09/us/politics/for-kamala-harris-the-challenge-of-getting-ready-without-getting-ready.html
+
 **Indonesian Court Acquits Former Official Accused of Enslaving Addicts**\
 `The ex-regent had been accused of imprisoning hundreds of people under the guise of drug treatment and forcing them to work at his plantation and factory.`\
 https://nytimes.com/2024/07/09/world/asia/indonesia-court-acquittal-human-trafficking.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5625891/2024/07/09/wimbledon-roundtable-womens-sing
 **F.T.C. Says Middlemen Appear to Be Driving Up Drug Prices**\
 `In a report, the regulator sharply criticized pharmacy benefit managers, a reversal from its longstanding hands-off approach to policing the companies.`\
 https://nytimes.com/2024/07/09/health/ftc-pharmacy-benefit-managers-drug-prices.html
-
-**Ipswich agree deal for City striker Delap**\
-`Ipswich Town have agreed a deal with Manchester City to sign striker Liam Delap.`\
-https://nytimes.com/athletic/5626378/2024/07/09/liam-delap-transfer-city-ipswich-southampton/
 
