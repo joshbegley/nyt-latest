@@ -1,3 +1,7 @@
+**Stay or Go? The Biden Storm Rages.**\
+`Readers lament and support the president’s refusal to heed calls to step aside. Also: Televised therapy; Supreme Court rulings.`\
+https://nytimes.com/2024/07/09/opinion/joe-biden-election-withdrawal.html
+
 **Ten Hag: Ashworth and Wilcox will raise the bar at Man Utd**\
 `Erik ten Hag believes that Manchester United&#8217;s appointments of sporting director Dan Ashworth and technical director Jason Wilcox will help &#8220;raise the bar&#8221; at Old Trafford.`\
 https://nytimes.com/athletic/5626901/2024/07/09/erik-ten-hag-dan-ashworth/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/09/us/trump-biden-election/biden-ny-jacobs
 **Gavin Newsom Will Take Your Biden Questions (and Try Your Doughnuts)**\
 `The California governor is holding firm as a fierce defender of the president on the 2024 trail. Left unspoken are his own White House ambitions.`\
 https://nytimes.com/2024/07/09/us/politics/biden-gavin-newsom.html
-
-**Do You Need a Lazy Susan? Maybe Not. But They Make Meals a Lot More Fun.**\
-`Long overlooked as throwback novelties, spinning trays are making a comeback.`\
-https://nytimes.com/2024/07/09/t-magazine/lazy-susan-guide.html
 

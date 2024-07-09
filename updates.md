@@ -1,3 +1,7 @@
+**Stay or Go? The Biden Storm Rages.**\
+`Readers lament and support the president’s refusal to heed calls to step aside. Also: Televised therapy; Supreme Court rulings.`\
+https://nytimes.com/2024/07/09/opinion/joe-biden-election-withdrawal.html
+
 **Ten Hag: Ashworth and Wilcox will raise the bar at Man Utd**\
 `Erik ten Hag believes that Manchester United&#8217;s appointments of sporting director Dan Ashworth and technical director Jason Wilcox will help &#8220;raise the bar&#8221; at Old Trafford.`\
 https://nytimes.com/athletic/5626901/2024/07/09/erik-ten-hag-dan-ashworth/
