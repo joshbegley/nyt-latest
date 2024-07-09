@@ -1,3 +1,7 @@
+**Russian Court Orders Arrest of Yulia Navalnaya, Navalny’s Widow**\
+`The court accused Yulia Navalnaya, who left Russia in 2021, of “participating in an extremist community.” She would be subject to arrest if she ever returns to Russia, the court said.`\
+https://nytimes.com/2024/07/09/world/europe/russia-yulia-navalnaya-arrest-order.html
+
 **The prosecution’s closing argument cast Menendez as guiding a staggering scheme.**\
 `By Nicholas Fandos`\
 https://nytimes.com/live/2024/07/09/nyregion/bob-menendez-trial/the-prosecutions-closing-argument-cast-menendez-as-guiding-a-staggering-scheme
