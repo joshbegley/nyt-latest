@@ -1,3 +1,7 @@
+**Scoop City: NFC East Preview, plus a cafeteria report**\
+`A look at the biggest questions, positions to watch and sleepers for the Eagles, Cowboys, Commanders and Giants.`\
+https://nytimes.com/athletic/5623975/2024/07/08/nfc-east-preview-scoop-city/
+
 **Uniting Idea**\
 `Gary Larson and Amy Ensz weigh their options.`\
 https://nytimes.com/2024/07/08/crosswords/daily-puzzle-2024-07-09.html

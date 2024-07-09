@@ -1,3 +1,7 @@
+**Scoop City: NFC East Preview, plus a cafeteria report**\
+`A look at the biggest questions, positions to watch and sleepers for the Eagles, Cowboys, Commanders and Giants.`\
+https://nytimes.com/athletic/5623975/2024/07/08/nfc-east-preview-scoop-city/
+
 **Uniting Idea**\
 `Gary Larson and Amy Ensz weigh their options.`\
 https://nytimes.com/2024/07/08/crosswords/daily-puzzle-2024-07-09.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5625281/2024/07/08/uswnt-roster-rules-olympic-games
 **Texas Utility Considers Mobile Generators as Beryl Leaves Millions Without Power**\
 `CenterPoint Energy said more than two million customers lost power in the storm, and that those in the hardest-hit areas should prepare for an extended period without electricity.`\
 https://nytimes.com/2024/07/07/us/houston-texas-power-beryl-storm.html
-
-**How Biden Is Leveraging His Defiance to Try to Stem Democratic Defections**\
-`In private and in public, President Biden made clear he holds all the cards when determining his political future. Can he get his Democratic critics to fold?`\
-https://nytimes.com/2024/07/08/us/politics/biden-campaign-democrats.html
 
