@@ -1,3 +1,7 @@
+**Real Madrid and Lille progressing in talks over Yoro**\
+`Real Madrid and Lille are progressing in talks over a deal for Leny Yoro.`\
+https://nytimes.com/athletic/5625169/2024/07/09/real-madrid-leny-yoro-transfer/
+
 **With Empathy, Bearing Witness to One Family’s Plight**\
 `For months, two journalists documented a Venezuelan family’s journey to the United States, and the struggles they faced after they crossed the border.`\
 https://nytimes.com/2024/07/09/insider/migrants-family-venezuela-border.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/09/arts/television/late-night-biden.html
 **The Transfer DealSheet: Arsenal's Calafiori interest, Man Utd move closer to Zirkzee deal**\
 `Welcome to the latest edition of the Transfer DealSheet, your weekly guide to what is happening in the summer transfer window`\
 https://nytimes.com/athletic/5619869/2024/07/09/arsenal-transfer-latest-manchester-united/
-
-**Word of the Day: varnish**\
-`This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/07/09/learning/word-of-the-day-varnish.html
 
