@@ -1,3 +1,11 @@
+**The Windup: How Heliot Ramos went from afterthought to All-Star**\
+`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
+https://nytimes.com/athletic/5626655/2024/07/09/heliot-ramos-mlb-draft-prospects-brandon-nimmo-the-windup/
+
+**Who Are the Key Players in the Alec Baldwin Manslaughter Trial?**\
+`A`\
+https://nytimes.com/article/alec-baldwin-trial-key-players.html
+
 **The Ingredient That Brightens Every Dish It’s In**\
 `A staple of Moroccan cooking, preserved lemon adds zest and depth to earthy dishes like potato salad and lentil soup.`\
 https://nytimes.com/2024/07/09/dining/preserved-lemon.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/09/us/politics/biden-harris-money.html
 **Bernie Kosar suffering from liver failure: Report**\
 `The 12-year NFL quarterback said his body "gave out" during an appearance for the Browns' Dec. 28th matchup against the New York Jets.`\
 https://nytimes.com/athletic/5626464/2024/07/09/bernie-kosar-liver-failure-browns/
-
-**Millions of dollars of baseball cards stolen in Dallas**\
-`The thieves made off with approximately 170 cards, according to a police report obtained by The Athletic.`\
-https://nytimes.com/athletic/5624597/2024/07/09/baseball-cards-mickey-mantle-stolen-dallas/
-
-**Crew chief Rodney Childers joining Spire Motorsports**\
-`Although Childers and Harvick would not win another title, they still were one of the most dominant teams during their 10 years together.`\
-https://nytimes.com/athletic/5626425/2024/07/09/nascar-rodney-childers-spire-motorsports-corey-lajoie/
 
