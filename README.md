@@ -30,8 +30,8 @@ https://nytimes.com/2024/07/09/health/sacklers-purdue-settlement-lawsuits.html
 `Also, Middle America is paying more for home insurance. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/07/09/briefing/nato-summit-biden-home-insurance-rates.html
 
-**Potential ‘Rust’ Jurors Are Asked About Guns, Movies and Alec Baldwin**\
-`Jury selection began for the trial of Mr. Baldwin, who was charged with involuntary manslaughter in the fatal shooting of a cinematographer. He has pleaded not guilty.`\
+**‘Rust’ Jury Chosen After Questions About Guns, Movies and Alec Baldwin**\
+`Mr. Baldwin, who was charged with involuntary manslaughter in the fatal shooting of a cinematographer, has pleaded not guilty.`\
 https://nytimes.com/2024/07/09/arts/alec-baldwin-rust-shooting-trial-jury.html
 
 **Macron’s Gamble Has Opened the Door to ‘La Rupture’**\

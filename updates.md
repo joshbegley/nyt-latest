@@ -1,3 +1,11 @@
+**A Fine Joe-mance**\
+`Inside the MSNBC safe space that President Biden turned to this week.`\
+https://nytimes.com/2024/07/09/us/politics/biden-democrats-trump-morning-joe.html
+
+**In Search of Power, Texans Ask: Are the Lights on at Whataburger?**\
+`With no working outage tracker from the Houston area’s main electricity provider, people are turning to the chain’s map of open restaurants after Hurricane Beryl.`\
+https://nytimes.com/2024/07/09/us/beryl-whataburger-power-houston.html
+
 **Kamala Harris attends Team USA men's basketball practice**\
 `Harris is a noted Golden State Warriors fan, the team Kerr coaches in the NBA and Stephen Curry stars on.`\
 https://nytimes.com/athletic/5627702/2024/07/09/kamala-harris-usa-basketball-practice/

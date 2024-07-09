@@ -1,3 +1,7 @@
+**A Fine Joe-mance**\
+`Inside the MSNBC safe space that President Biden turned to this week.`\
+https://nytimes.com/2024/07/09/us/politics/biden-democrats-trump-morning-joe.html
+
 **Kamala Harris attends Team USA men's basketball practice**\
 `Harris is a noted Golden State Warriors fan, the team Kerr coaches in the NBA and Stephen Curry stars on.`\
 https://nytimes.com/athletic/5627702/2024/07/09/kamala-harris-usa-basketball-practice/
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/5627332/2024/07/09/euro-2024-day-26-spains-captain-
 https://nytimes.com/athletic/5627157/2024/07/09/wimbledon-alcaraz-vekic-american-losses/
 
 **In Search of Power, Texans Ask: Are the Lights on at Whataburger?**\
-`With no working outage tracker from the Houston area’s main electricity provider, people are turning to the fast-food chain’s map of open restaurants to find power.`\
+`With no working outage tracker from the Houston area’s main electricity provider, people are turning to the chain’s map of open restaurants after Hurricane Beryl.`\
 https://nytimes.com/2024/07/09/us/beryl-whataburger-power-houston.html
 
 **Menendez’s lawyer says the government’s case relied on ‘half truths’ and innuendo.**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/09/arts/alec-baldwin-rust-shooting-trial-jury.html
 **Macron’s Gamble Has Opened the Door to ‘La Rupture’**\
 `The challenge of governing with three restless factions is just beginning.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/macron-french-elections
-
-**‘Sunny’ Is a Dreamy Robot Dramedy**\
-`This stylish sci-fi series, on Apple TV+, stars Rashida Jones as a grieving woman with an unexpected new companion.`\
-https://nytimes.com/2024/07/09/arts/television/sunny-apple-tv-plus-rashida-jones.html
 
