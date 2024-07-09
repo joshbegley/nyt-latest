@@ -1,3 +1,7 @@
+**N.Y.U. Settles Lawsuit by Students Who Claimed Antisemitic Harassment**\
+`The lawsuit was part of a wave of litigation against universities over accusations of antisemitism related to campus protests over the war in Gaza.`\
+https://nytimes.com/2024/07/09/nyregion/nyu-antisemitism-settlement.html
+
 **The latest on the Warriors' offseason and a patient Lauri Markkanen chase**\
 `Golden State isn't the only team interested in the Jazz's star forward, but an answer may not come soon.`\
 https://nytimes.com/athletic/5622936/2024/07/09/warriors-lauri-markkanen-offseason/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/munro-gaiman-author-controv
 **Dutch golfer Luiten denied place in Olympics field**\
 `The International Olympic Committee denied a request by the International Golf Federation to expand the field to 61 on Tuesday.`\
 https://nytimes.com/athletic/5627127/2024/07/09/joost-luiten-olympics-netherlands-golf/
-
-**Richard M. Goldstein, Who Helped Map the Cosmos, Dies at 97**\
-`Using ground-based radars, Dr. Goldstein pioneered measurement techniques that scientists now use to chart geographical changes on Earth.`\
-https://nytimes.com/2024/07/09/science/space/richard-m-goldstein-dead.html
 
