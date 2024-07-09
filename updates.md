@@ -1,3 +1,7 @@
+**With NATO leaders in town, Biden turns to official duties. Here’s the latest.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/07/09/us/trump-biden-election/with-nato-leaders-in-town-biden-turns-to-official-duties-heres-the-latest
+
 **Political Gridlock Will Raise the Economic Stakes in France**\
 `The French election results point to a prolonged political logjam, which may not help a country bedeviled by high debt and slowing economic growth.`\
 https://nytimes.com/2024/07/09/business/france-macron-parliament-gridlock.html

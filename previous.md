@@ -1,3 +1,7 @@
+**With NATO leaders in town, Biden turns to official duties. Here’s the latest.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/07/09/us/trump-biden-election/with-nato-leaders-in-town-biden-turns-to-official-duties-heres-the-latest
+
 **Political Gridlock Will Raise the Economic Stakes in France**\
 `The French election results point to a prolonged political logjam, which may not help a country bedeviled by high debt and slowing economic growth.`\
 https://nytimes.com/2024/07/09/business/france-macron-parliament-gridlock.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5624682/2024/07/09/nebraska-football-evan-cooper-jo
 **Beryl Leaves Millions Without Power in Houston: What to Know**\
 `The storm hit Texas on Monday as a Category 1 hurricane. As the storm moved out of the state, officials warned it could take days to fully restore electricity.`\
 https://nytimes.com/2024/07/09/us/beryl-storm-forecast.html
-
-**Phillies takeaways on current and future roster decisions and Aaron Nola's form**\
-`The Phillies have roster decisions to make now that could shape future ones as they near the trade deadline. `\
-https://nytimes.com/athletic/5624780/2024/07/09/phillies-roster-decisions-bench-aaron-nola/
 
