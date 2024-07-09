@@ -1,3 +1,7 @@
+**Trump Returns to Trail in Florida as Deadline Nears on Running Mate**\
+`Donald Trump stayed out of the spotlight as President Biden was besieged by Democratic doubts, but his Tuesday rally will be watched closely for hints about his vice president pick.`\
+https://nytimes.com/2024/07/09/us/politics/trump-florida-vp-pick.html
+
 **Full Time: Emma Hayes’ charisma carries weight**\
 `Welcome to Full Time, The Athletic’s weekly women’s soccer newsletter. `\
 https://nytimes.com/athletic/5627014/2024/07/09/uswnt-emma-hayes-olympics-angel-city-sale-full-time/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/09/climate/home-insurance-prices-climate-change.html
 **Gaza City quieted down months ago, but its residents are now under fire again.**\
 `By Hiba Yazbek and Iyad Abuheweila`\
 https://nytimes.com/live/2024/07/09/world/israel-gaza-war-hamas/gaza-city-quieted-down-months-ago-but-its-residents-are-now-under-fire-again
-
-**Why is FSG keen on buying Bordeaux - and could Liverpool benefit?**\
-`Bordeaux is a big but troubled club - so why are Liverpool's owners exploring adding it to their portfolio?`\
-https://nytimes.com/athletic/5625984/2024/07/09/fsg-bordeaux-multi-club-ownership/
 
