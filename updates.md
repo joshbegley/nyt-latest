@@ -1,3 +1,7 @@
+**Metal Thieves Are Stripping America’s Cities**\
+`Across the country, copper and other valuable materials have been stolen from streetlights, statues and even gravesites, costing millions to repair.`\
+https://nytimes.com/2024/07/09/us/copper-theft-heavy-metal.html
+
 **She’s Keeping Biden on Track as Democrats Try to Derail Him**\
 `Jennifer O’Malley Dillon is driving the president’s campaign forward as he fends off Democratic critics. “She doesn’t have any doubt,” said Ron Klain, the former White House chief of staff.`\
 https://nytimes.com/2024/07/09/us/politics/jen-omalley-dillon-biden.html
