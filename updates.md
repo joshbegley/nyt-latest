@@ -1,3 +1,11 @@
+**The prosecution’s closing argument cast Menendez as guiding a staggering scheme.**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2024/07/09/nyregion/bob-menendez-trial/the-prosecutions-closing-argument-cast-menendez-as-guiding-a-staggering-scheme
+
+**Arch Manning opts into College Football 25, will appear in video game**\
+`In March, Orangebloods reported the former No. 1 recruit decided not to opt in because he was 'focused on playing football on the field.'`\
+https://nytimes.com/athletic/5627164/2024/07/09/arch-manning-video-game-college-football-25/
+
 **Second Patient to Receive a Genetically Modified Pig Kidney Has Died**\
 `Lisa Pisano, 54, lived with the organ for 47 days. She was the first patient to receive both a heart pump and an organ transplant, doctors said.`\
 https://nytimes.com/2024/07/09/health/kidney-transplant-pisano.html
