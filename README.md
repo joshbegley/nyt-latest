@@ -1,3 +1,7 @@
+**Nikki Haley Urges Her Delegates to Vote for Donald Trump**\
+`The relationship between Ms. Haley, who was United Nations ambassador under Mr. Trump, and the former president soured toward the end of the primary campaign.`\
+https://nytimes.com/2024/07/09/us/politics/nikki-haley-trump-delegates.html
+
 **Tesla’s Share of U.S. Electric Car Market Falls Below 50%**\
 `A new report estimates that the company led by Elon Musk accounted for just under half of all battery-powered vehicles sold in the second quarter of the year.`\
 https://nytimes.com/2024/07/09/business/tesla-electric-vehicles-market-share.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5626636/2024/07/09/klay-thompson-mavericks-intro-co
 **Trump Leads Biden by 5 Percentage Points in Post-Debate Wisconsin Poll**\
 `The president’s weakness with younger voters is evident in the survey, as is former President Donald J. Trump’s benefiting from positive views of his White House term.`\
 https://nytimes.com/2024/07/09/us/politics/trump-biden-poll-debate.html
-
-**Arch Manning opts into College Football 25, will appear in video game**\
-`In March, Orangebloods reported the former No. 1 recruit decided not to opt in because he was 'focused on playing football on the field.'`\
-https://nytimes.com/athletic/5627164/2024/07/09/arch-manning-video-game-college-football-25/
 
