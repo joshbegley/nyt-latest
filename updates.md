@@ -1,3 +1,7 @@
+**Rece Hinds puts a much-needed spark into Reds with a homer in his big-league debut**\
+`Hinds made a pretty good case to stick around for more than just one day.`\
+https://nytimes.com/athletic/5625540/2024/07/09/reds-rece-hinds-major-league-debut-homer/
+
 **Big Ten recruiting thoughts: Ohio State, Oregon keep rolling, Michigan surging**\
 `Led by Ohio State, which has the No. 1 class in the nation, the Big Ten has eight teams ranked in the top 25 in the 247Sports Composite.`\
 https://nytimes.com/athletic/5622826/2024/07/09/big-ten-recruiting-visits-michigan-ohio-state-oregon/
