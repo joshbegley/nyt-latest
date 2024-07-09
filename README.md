@@ -1,3 +1,7 @@
+**Street Erupts When Man in a Wheelchair Is Taken Into Custody in Killing**\
+`The body of Yazmeen Williams, 31, had been found on a Manhattan curb, wrapped in a sleeping bag.`\
+https://nytimes.com/2024/07/08/nyregion/woman-killed-sleeping-bag-manhattan.html
+
 **Beryl Rips Through Houston, Killing 4 and Knocking Out Power for Millions**\
 `Officials warned that it could take days to restore electricity. The storm has prompted tornado warnings in East Texas, Louisiana and Arkansas.`\
 https://nytimes.com/2024/07/08/us/beryl-houston-texas-storm-hurricane.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/08/us/politics/biden-campaign-democrats.html
 **UConn gives Hurley new 6-year, $50 million deal**\
 `The new deal comes after Dan Hurley declined a six-year, $70 million coaching contract offer from the Lakers in June.`\
 https://nytimes.com/athletic/5625163/2024/07/08/dan-hurley-contract-uconn-basketball/
-
-**What’s in Biden’s Survival Kit**\
-`Eleven days after his disastrous debate performance, the president’s strategy is coming into focus.`\
-https://nytimes.com/2024/07/08/us/politics/biden-presidential-race.html
 
