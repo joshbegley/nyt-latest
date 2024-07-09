@@ -1,3 +1,15 @@
+**Celtics co-owner Wyc Grousbeck explains why he is selling the team after NBA title**\
+`Celtics co-owner Wyc Grousbeck broke his silence Monday on why he is selling the team just after winning Banner 18.`\
+https://nytimes.com/athletic/5625374/2024/07/09/celtics-sale-co-owner-wyc-grousbeck/
+
+**Jonathan Osorio - the Canada stalwart with Colombian roots and a Copa America dream**\
+`The midfielder has been at the heart of Canada's fairytale run to the Copa semifinals — and isn't finished yet`\
+https://nytimes.com/athletic/5625633/2024/07/09/jonathan-osorio-canada-copa-america/
+
+**Scottie Barnes and Immanuel Quickley will define not only the Raptors, but Masai Ujiri**\
+`The Raptors president's star has taken a hit, and he needs his foundational players to restore his status and his team.`\
+https://nytimes.com/athletic/5624889/2024/07/09/raptors-scottie-barnes-immanuel-quickley/
+
 **Rece Hinds puts a much-needed spark into Reds with a homer in his big-league debut**\
 `Hinds made a pretty good case to stick around for more than just one day.`\
 https://nytimes.com/athletic/5625540/2024/07/09/reds-rece-hinds-major-league-debut-homer/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/09/books/a-silence-is-shattered-and-so-are-many-fans
 **Harris Heads to Nevada Once More, With an Intense Spotlight Following Her**\
 `Vice President Kamala Harris is set to speak in Las Vegas, aiming to focus on the stakes in President Biden’s fight against Donald J. Trump.`\
 https://nytimes.com/2024/07/09/us/politics/kamala-harris-las-vegas-nevada.html
-
-**The Talented Democrats Who Aren’t Running for President**\
-`It’s getting harder to ignore the charismatic politicians who have been trying to support Biden.`\
-https://nytimes.com/2024/07/09/opinion/democrats-not-running-president.html
-
-**How to Watch Europe Launch Its Powerful New Rocket**\
-`Ariane 6 is finally set to fly on Tuesday. If successful, European nations will regain independent access to space.`\
-https://nytimes.com/2024/07/09/science/europe-ariane-6-rocket-launch.html
-
-**What Happens When Your Bank Isn’t Really a Bank and Your Money Disappears?**\
-`For unsuspecting depositors of online financial start-ups, the unraveling of a little-known intermediary has separated them from their life savings.`\
-https://nytimes.com/2024/07/09/business/synapse-bankruptcy-fintech-fdic-insurance.html
 
