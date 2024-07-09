@@ -1,3 +1,15 @@
+**Yankees' GM talks team's recent rut: 'We're struggling'**\
+`The Yankees GM made an unexpected appearance in St. Petersburg, Fla., ahead of the team's opening game with the Rays.`\
+https://nytimes.com/athletic/5627838/2024/07/09/brian-cashman-new-york-yankees-struggling/
+
+**Euro 2024, day 26 – Spain reach Euro 2024 final but captain injured after final whistle**\
+`The key moments from today at Euro 2024 `\
+https://nytimes.com/athletic/5627332/2024/07/09/euro-2024-day-26-morata-tackled/
+
+**Wimbledon day 9: From double-faults to delight, the roofs go main character, Alcaraz wins ugly**\
+`On day nine of Wimbledon, a masterclass in recovery; an indoor tournament; and American dreams dashed`\
+https://nytimes.com/athletic/5627157/2024/07/09/wimbledon-alcaraz-vekic-american-losses/
+
 **Three Hikers Die in Grand Canyon National Park in Less Than a Month**\
 `A 50-year-old man was found dead on Sunday after hiking up the canyon, where temperatures can reach 120 degrees in summer.`\
 https://nytimes.com/2024/07/09/us/grand-canyon-hiker-death.html
