@@ -2,8 +2,8 @@
 `On day nine of Wimbledon, a masterclass in recovery; an indoor tournament; and American dreams dashed`\
 https://nytimes.com/athletic/5627157/2024/07/09/wimbledon-alcaraz-vekic-american-losses/
 
-**Where’s the Power Out? For Many in Houston, Whataburger’s App Is the Best Source**\
-`With no working outage tracker from the city’s main electricity provider, people are turning to the Texas icon’s map of open restaurants to find power.`\
+**In Search of Power, Texans Ask: Are the Lights on at Whataburger?**\
+`With no working outage tracker from the Houston area’s main electricity provider, people are turning to the fast-food chain’s map of open restaurants to find power.`\
 https://nytimes.com/2024/07/09/us/beryl-whataburger-power-houston.html
 
 **Menendez’s lawyer says the government’s case relied on ‘half truths’ and innuendo.**\
