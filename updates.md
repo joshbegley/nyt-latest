@@ -1,3 +1,7 @@
+**Corrections: July 9, 2024**\
+`Corrections that appeared in print on Tuesday, July 9, 2024.`\
+https://nytimes.com/2024/07/09/pageoneplus/corrections-july-9-2024.html
+
 **Dillon Brooks: ‘Canada will be ready to play’ vs. Team USA**\
 `While Team USA is certainly the Olympic favorite, the Canadians are hardly lacking for elite talent.`\
 https://nytimes.com/athletic/5625561/2024/07/09/dillon-brooks-team-canada-usa-olympic-basketball/
