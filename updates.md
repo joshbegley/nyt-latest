@@ -1,3 +1,7 @@
+**Willie Mays celebration of life: Presidents, dignitaries, baseball greats remember his life and impact**\
+`An estimated 4,500 fans joined baseball luminaries, former U.S. Presidents and Mays' closest family and friends to speak about his legacy.`\
+https://nytimes.com/athletic/5625586/2024/07/09/willie-mays-celebration-of-life-sf-giants/
+
 **Maidenhead gave Kilman his chance - his £40m transfer to West Ham will help them rebuild**\
 `Max Kilman's move to West Ham suits them and Wolves — but not as much as his former club, non-League Maidenhead`\
 https://nytimes.com/athletic/5616886/2024/07/09/max-kilman-west-ham-transfer-wolves-maidenhead/
