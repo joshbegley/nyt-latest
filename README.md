@@ -1,3 +1,7 @@
+**Democrats, Swallowing Fears AboutBiden’s Candidacy, Remain Behind Him**\
+`Lawmakers in the House and Senate met privately to hash out their concerns about President Biden’s viability, but leaders emerged from two separate meetings pledging allegiance to their candidate.`\
+https://nytimes.com/2024/07/09/us/politics/democrats-biden-congress.html
+
 **Hezbollah launches retaliatory rockets after Israel appears to strike in Syria.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/07/09/world/israel-gaza-war-hamas/hezbollah-launches-retaliatory-rockets-after-israel-appears-to-strike-in-syria
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/09/us/bloomberg-donation-free-tuition-einstein-bronx
 **She’s Keeping Biden on Track as Democrats Try to Derail Him**\
 `Jennifer O’Malley Dillon is driving the president’s campaign forward as he fends off Democratic critics. “She doesn’t have any doubt,” said Ron Klain, the former White House chief of staff.`\
 https://nytimes.com/2024/07/09/us/politics/jen-omalley-dillon-biden.html
-
-**Menendez Trial’s Odd Moments: Pyramids, French Nicknames and a Bell**\
-`Senator Robert Menendez’s corruption trial has featured testimony that ventured into offbeat territory.`\
-https://nytimes.com/2024/07/09/nyregion/menendez-trial-odd-moments.html
 
