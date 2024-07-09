@@ -1,3 +1,7 @@
+**How does Klay Thompson fit with the Mavericks? It's not complicated**\
+`Luka Dončić creates more 3s than any other player. Dallas couldn't make any of them in the NBA Finals. Now, enter Klay Thompson. `\
+https://nytimes.com/athletic/5622932/2024/07/09/klay-thompson-mavericks-shoot-3-luka-doncic/
+
 **Cairns' return is a common sense signing to satisfy EFL rules and add experience**\
 `The return of the experienced goalkeeper is unlikely to excite the Leeds fanbase — but it ticks a lot of boxes`\
 https://nytimes.com/athletic/5624080/2024/07/09/leeds-alex-cairns-transfers/
