@@ -1,3 +1,7 @@
+**Rafael Devers to miss All-Star game with sore shoulder; Jordan Westburg named to AL team**\
+`Devers has been dealing with a sore left shoulder for much of the season. Westburg will be making his first All-Star appearance.`\
+https://nytimes.com/athletic/5627778/2024/07/09/mlb-all-star-roster-rafael-devers-jordan-westburg/
+
 **A Fine Joe-mance**\
 `Inside the MSNBC safe space that President Biden turned to this week.`\
 https://nytimes.com/2024/07/09/us/politics/biden-democrats-trump-morning-joe.html
@@ -6,7 +10,7 @@ https://nytimes.com/2024/07/09/us/politics/biden-democrats-trump-morning-joe.htm
 `Harris is a noted Golden State Warriors fan, the team Kerr coaches in the NBA and Stephen Curry stars on.`\
 https://nytimes.com/athletic/5627702/2024/07/09/kamala-harris-usa-basketball-practice/
 
-**Euro 2024, day 26 - Spain reach Euro 2024 final but captain injured after final whistle**\
+**Euro 2024, day 26 – Spain reach Euro 2024 final but captain injured after final whistle**\
 `The key moments from today at Euro 2024 `\
 https://nytimes.com/athletic/5627332/2024/07/09/euro-2024-day-26-morata-tackled/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/09/briefing/nato-summit-biden-home-insurance-rates.h
 **‘Rust’ Jury Chosen After Questions About Guns, Movies and Alec Baldwin**\
 `Mr. Baldwin, who was charged with involuntary manslaughter in the fatal shooting of a cinematographer, has pleaded not guilty.`\
 https://nytimes.com/2024/07/09/arts/alec-baldwin-rust-shooting-trial-jury.html
-
-**Macron’s Gamble Has Opened the Door to ‘La Rupture’**\
-`The challenge of governing with three restless factions is just beginning.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/macron-french-elections
 
