@@ -1,3 +1,15 @@
+**Do You Need a Lazy Susan? Maybe Not. But They Make Meals a Lot More Fun.**\
+`Long overlooked as throwback novelties, spinning trays are making a comeback.`\
+https://nytimes.com/2024/07/09/t-magazine/lazy-susan-guide.html
+
+**The Anti-Abortion Movement Is Perverting the 14th Amendment**\
+`There’s nothing particularly “moderate” about the new Republican platform.`\
+https://nytimes.com/2024/07/02/opinion/14th-amendment-abortion-scotus.html
+
+**New Mav Thompson on Warriors exit: 'Sometimes breakups are necessary'**\
+`"Sometimes breakups are necessary to do whats right. I'm not the first athlete in the NBA to go do this," Thompson said.`\
+https://nytimes.com/athletic/5626636/2024/07/09/klay-thompson-mavericks-intro-conference-warriors/
+
 **‘First Someone Dies, Then Everyone Expects Us to Eat’: The Week 3 Winner of Our Summer Reading Contest**\
 `Miki Schnitzer, 16, writes about how gifts of food from the cultures of her diverse neighbors brought solace at a time of mourning.`\
 https://nytimes.com/2024/07/09/learning/first-someone-dies-then-everyone-expects-us-to-eat-the-week-3-winner-of-our-summer-reading-contest.html
@@ -15,7 +27,7 @@ https://nytimes.com/2024/07/09/us/politics/nato-summit-what-to-watch.html
 https://nytimes.com/2024/07/09/us/politics/biden-black-women-voters.html
 
 **Novak Djokovic was becoming the gentleman king of tennis. It didn't last**\
-`Djokovic demolished Holge Rune at Wimbledon, then ripped into the Centre Court fans known for their decorum. He just thrives on drama`\
+`Djokovic demolished Holger Rune at Wimbledon, then ripped into the Centre Court fans known for their decorum. He just thrives on drama`\
 https://nytimes.com/athletic/5626443/2024/07/09/novak-djokovic-wimbledon-crowd/
 
 **Hollinger: What's next on the NBA's transaction landscape?**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5625579/2024/07/09/lauri-markkanen-brandon-ingram-t
 **The Devil From Down Under**\
 `We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Alexis Rippon, age 13.`\
 https://nytimes.com/2024/07/09/learning/the-devil-from-down-under.html
-
-**A Vast Mexican Market Has Become a Whole New Scene in Orange County**\
-`Northgate González Market, one of the largest Mexican supermarket chains in the country, imagines the future of food as a family-friendly mercado.`\
-https://nytimes.com/2024/07/09/dining/northgate-gonzalez-mercado-orange-county.html
-
-**Tanglewood Opens for the Summer, With Change in the Air**\
-`The Boston Symphony Orchestra gave its first concerts of the Tanglewood season, which is already showing signs of its new leader’s ambitions.`\
-https://nytimes.com/2024/07/09/arts/music/boston-symphony-orchestra-tanglewood.html
-
-**Maradona, Ardiles and Romero: exploring the deep bond between Argentina and Tottenham**\
-`Ardiles and Villa got the ball rolling when they joined Spurs after winning 1978 World Cup, but the relationship is much deeper than that`\
-https://nytimes.com/athletic/5625653/2024/07/09/maradona-tottenham-romero-argentina/
 
