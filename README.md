@@ -1,3 +1,7 @@
+**Pickford is being pushed on by a goalkeeping union who know he's the undisputed No 1**\
+`The Everton and England goalkeeper has come into his own in Germany — and his backups are playing a full part in his success`\
+https://nytimes.com/athletic/5624844/2024/07/09/jordan-pickford-ramsdale-henderson-england-goalkeepers/
+
 **Giorgi Mamardashvili: After Euro 2024 heroics, what's next for the 'Georgian wall'?**\
 `Mamardashvili put in a towering performance for his country in Germany. Big clubs are circling the Valencia goalkeeper`\
 https://nytimes.com/athletic/5616243/2024/07/09/giorgi-mamardashvili-valencia-euro-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/09/briefing/ukraine-bombing-france.html
 **Tuesday's MLB projections: Best starting pitchers, playoff odds, props and more**\
 `Projections for Tuesday's MLB games with value picks, best bets, pitcher props, home run trends, weather and more.`\
 https://nytimes.com/athletic/5624741/2024/07/09/mlb-odds-predictions-best-bets-july-9/
-
-**With Keir Starmer, Britain and the U.S. Are Back in Sync, but for How Long?**\
-`Politically aligned, Joe Biden and the new U.K. prime minister agree on climate change, Ukraine and Northern Ireland. Donald Trump would be a different story.`\
-https://nytimes.com/2024/07/09/world/europe/us-uk-starmer-biden-trump.html
 
