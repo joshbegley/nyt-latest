@@ -1,3 +1,11 @@
+**Lance McCullers Jr.'s setback intensifies Astros' need for rotation help**\
+`McCullers, who hasn't pitched since Game 3 of the 2022 World Series, is dealing with "soreness in his arm."`\
+https://nytimes.com/athletic/5627884/2024/07/09/lance-mccullers-jr-injury-astros-rotation-help/
+
+**On Capitol Hill, Democrats Panic About Biden but Do Nothing**\
+`The president has yet to do what many Democrats said he must to show he is up to remaining in the race. But so far, they have thrown up their hands, doing nothing to nudge him aside.`\
+https://nytimes.com/2024/07/09/us/politics/biden-democrats-congress.html
+
 **The Devil May Be Enjoying This Election Season, but I Am Not**\
 `Both men running for president are unfit for the job. One is a danger to our country.`\
 https://nytimes.com/2024/07/09/opinion/biden-trump-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/09/business/uaw-monitor-investigation-shawn-fain.htm
 **Deschamps refuses to discuss France future after Euro 2024 exit**\
 `Didier Deschamps refused to discuss his future as France head coach following his side&#8217;s European Championship semi-final exit at the hands of Spain.`\
 https://nytimes.com/athletic/5627763/2024/07/09/didier-deschamps-france-future/
-
-**The Abyss Stares Back at Joe Biden**\
-`The president is starting to act like the predecessor he fought against.`\
-https://nytimes.com/2024/07/09/opinion/biden-election-trump.html
-
-**Perfection, by Lamine Yamal**\
-`As time travelled with the ball from out to inside the post, it opened a portal through which Yamal's immense potential could be glimpsed`\
-https://nytimes.com/athletic/5627602/2024/07/09/perfection-by-lamine-yamal/
 
