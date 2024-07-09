@@ -1,3 +1,27 @@
+**England and France haven't produced 'good performances' at Euro 2024 - but what does that mean?**\
+`The idea that France and England are always like this isn’t true. They’ve never been great to watch but they’ve usually been more formidable`\
+https://nytimes.com/athletic/5624022/2024/07/09/england-france-performance-euro-2024/
+
+**State of the 49ers, DL: An overhaul up front surrounding Nick Bosa and Javon Hargrove**\
+`The offseason brought the biggest change the 49ers have had on their defensive line since Kyle Shanahan and John Lynch arrived in 2017.`\
+https://nytimes.com/athletic/5560533/2024/07/09/san-francisco-49ers-defensive-line-2024-nick-bosa/
+
+**MLB trade deadline report: With 3 weeks to go, buyers' needs coming into greater focus**\
+`It will still take time, in some cases, to determine who's selling and who's buying, but the deadline picture is coming into greater focus. `\
+https://nytimes.com/athletic/5625352/2024/07/09/mlb-trade-deadline-buyers-sellers-needs-three-weeks-out/
+
+**Felix Zwayer, Jude Bellingham and the match-fixing scandal that overshadows England vs Netherlands**\
+`That the Euro 2024 semi-final will be played in Dortmund, in the same ground as the Bellingham incident, makes the past harder to ignore`\
+https://nytimes.com/athletic/5624913/2024/07/09/zwayer-bellingham-england-netherlands-euro-2024/
+
+**'Comes down to action': Wild coach John Hynes on player 'check-ins' and setting expectations**\
+`Hynes' thoughts heading into the next several weeks as he prepares to run his first training camp as Wild coach.`\
+https://nytimes.com/athletic/5625153/2024/07/09/wild-john-hynes-offseason-player-expectations/
+
+**The tale of one France fan, 305 matches and 35 roosters named Balthazar**\
+`Clement Tomaszewski has followed the France national team since the 1982 World Cup and is invariably accompanied by a cockerel`\
+https://nytimes.com/athletic/5625429/2024/07/09/france-rooster-clement-balthazar/
+
 **The Pulse: The 17-year-old wowing NBA legends**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5625418/2024/07/09/cooper-flagg-team-usa-duke-the-pulse/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/07/09/world/europe/france-election-left-melenchon.html
 **Kamala Harris’s Strengths and Weaknesses**\
 `We’re covering a potential Harris candidacy.`\
 https://nytimes.com/2024/07/09/briefing/kamala-harriss-strengths-and-weaknesses.html
-
-**Jesse Marsch is back in New Jersey and has a chance to make history with Canada**\
-`Three decades on from watching 1994 World Cup semifinal in the Meadowlands, Marsch is back as his Canada take on Argentina in Copa America`\
-https://nytimes.com/athletic/5625275/2024/07/09/jesse-marsch-canada-argentina-coach/
-
-**Flick meets Thiago over Barcelona coaching role**\
-`Hansi Flick and Thiago Alcantara have met to discuss as possible role on Barcelona&#8217;s coaching staff.`\
-https://nytimes.com/athletic/5625005/2024/07/09/thiago-barcelona-coach-hansi-flick/
-
-**How Copa America turned the tactical foul into an art form**\
-`There are plenty of examples of subtle but effective foul play at the tournament — but how do teams get away with it?`\
-https://nytimes.com/athletic/5624771/2024/07/09/copa-america-tactical-fouls/
-
-**Eight most intriguing Chiefs players to watch in training camp**\
-`Rookie running back/returner Louis Rees-Zammit and veteran wide receiver Kadarius Toney are two to watch in St. Joseph, Mo., this summer.`\
-https://nytimes.com/athletic/5601169/2024/07/09/chiefs-training-camp-players-to-watch/
-
-**Bears fan survey 2024: Caleb Williams excitement, higher expectations, stadium questions**\
-`It's time for the fifth annual Bears fan survey, where we gauge how fans feel about the new QB and the overall state of the franchise.`\
-https://nytimes.com/athletic/5624681/2024/07/09/bears-fan-survey-questions-2024/
-
-**Guardians mailbag: The best Ramirez in franchise history, front office regrets and more**\
-`Our expert examines José Ramírez's credentials, looks at a trade deadline possibility and more.`\
-https://nytimes.com/athletic/5619119/2024/07/09/guardians-mailbag-jose-ramirez-trade-deadline/
 
