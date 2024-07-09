@@ -1,3 +1,11 @@
+**The Windup: How Heliot Ramos went from afterthought to All-Star**\
+`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
+https://nytimes.com/athletic/5626655/2024/07/09/heliot-ramos-mlb-draft-prospects-brandon-nimmo-the-windup/
+
+**Who Are the Key Players in the Alec Baldwin Manslaughter Trial?**\
+`A`\
+https://nytimes.com/article/alec-baldwin-trial-key-players.html
+
 **The Ingredient That Brightens Every Dish It’s In**\
 `A staple of Moroccan cooking, preserved lemon adds zest and depth to earthy dishes like potato salad and lentil soup.`\
 https://nytimes.com/2024/07/09/dining/preserved-lemon.html
