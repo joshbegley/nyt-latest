@@ -1,3 +1,11 @@
+**The Devil May Be Enjoying This Election Season, but I Am Not**\
+`Both men running for president are unfit for the job. One is a danger to our country.`\
+https://nytimes.com/2024/07/09/opinion/biden-trump-election.html
+
+**Prosecutors Are Trying to Sell You a Story, Menendez Lawyer Tells Jury**\
+`Senator Robert Menendez is charged in an international corruption scheme. Prosecutors portrayed him as “Scrooge McDuck swimming in gold coins,” his lawyer told the jury.`\
+https://nytimes.com/2024/07/09/nyregion/robert-menendez-bribery-trial-closing.html
+
 **Biden Tells Allies That NATO Is ‘More Powerful Than Ever’**\
 `President Biden welcomed NATO allies to a summit in Washington with a speech highlighting the alliance’s history and its unity in modern times.`\
 https://nytimes.com/video/us/politics/100000009563231/biden-nato-summit.html
