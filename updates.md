@@ -1,3 +1,7 @@
+**The strike hit a school being used as a shelter for displaced people, local officials say.**\
+`By Liam Stack and Anushka Patil`\
+https://nytimes.com/live/2024/07/09/world/israel-gaza-war-hamas/the-strike-hit-a-school-being-used-as-a-shelter-for-displaced-people-local-officials-say
+
 **Sailor Who Tried to Access Biden’s Medical Records Was Disciplined by Navy**\
 `The sailor searched the name “Joseph Biden” in a government database three times in late February, according to the Navy.`\
 https://nytimes.com/2024/07/09/us/politics/biden-medical-records-navy-sailor.html
