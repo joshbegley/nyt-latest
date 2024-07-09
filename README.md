@@ -1,3 +1,7 @@
+**Ipswich agree deal for City striker Delap**\
+`Ipswich Town have agreed a deal with Manchester City to sign striker Liam Delap.`\
+https://nytimes.com/athletic/5626378/2024/07/09/liam-delap-transfer-city-ipswich-southampton/
+
 **How does Klay Thompson fit with the Mavericks? It's not complicated**\
 `Luka Dončić creates more 3s than any other player. Dallas couldn't make any of them in the NBA Finals. Now, enter Klay Thompson. `\
 https://nytimes.com/athletic/5622932/2024/07/09/klay-thompson-mavericks-shoot-3-luka-doncic/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/09/world/europe/russia-india-modi-moscow-putin.html
 **A Political Fight Won, France’s Stars Turn Back to a Soccer One**\
 `Some of the country’s top players had urged voters to reject the far right in a pivotal election. With that battle over, a date with Spain in Euro 2024 offers a more familiar challenge.`\
 https://nytimes.com/2024/07/09/world/europe/france-spain-euro-2024-election.html
-
-**NBA Summer League spotlights Clippers' need to develop young players like Cam Christie**\
-`The Clippers have gotten very little out of their drafts in recent years and need to start producing some home-grown talent.`\
-https://nytimes.com/athletic/5625515/2024/07/09/clippers-summer-league-cam-christie/
 
