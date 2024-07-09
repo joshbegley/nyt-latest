@@ -1,3 +1,7 @@
+**Music Catalog Giant Hipgnosis Is Sold, and Merck Mercuriadis Exits**\
+`The company, whose pricey acquisitions kicked off a rush on catalog sales, sold its assets to Blackstone for $1.6 billion, and its outspoken leader will step down.`\
+https://nytimes.com/2024/07/09/arts/music/hipgnosis-sold-blackstone-merck-mercuriadis.html
+
 **Real Madrid goalkeepers: Kepa not out of the picture with Lunin's future uncertain**\
 `Arrizabalaga said his goodbyes after a season-long loan at Real Madrid, but now his name is under consideration again`\
 https://nytimes.com/athletic/5625888/2024/07/09/real-madrid-goalkeepers-kepa-lunin/

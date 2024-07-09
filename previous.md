@@ -1,3 +1,7 @@
+**Music Catalog Giant Hipgnosis Is Sold, and Merck Mercuriadis Exits**\
+`The company, whose pricey acquisitions kicked off a rush on catalog sales, sold its assets to Blackstone for $1.6 billion, and its outspoken leader will step down.`\
+https://nytimes.com/2024/07/09/arts/music/hipgnosis-sold-blackstone-merck-mercuriadis.html
+
 **Real Madrid goalkeepers: Kepa not out of the picture with Lunin's future uncertain**\
 `Arrizabalaga said his goodbyes after a season-long loan at Real Madrid, but now his name is under consideration again`\
 https://nytimes.com/athletic/5625888/2024/07/09/real-madrid-goalkeepers-kepa-lunin/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5625429/2024/07/09/france-rooster-clement-balthazar
 **The Pulse: The 17-year-old wowing NBA legends**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5625418/2024/07/09/cooper-flagg-team-usa-duke-the-pulse/
-
-**Archaeologists Find a Marble Statue in an Ancient Roman Sewer**\
-`Researchers in Bulgaria think the artifact could offer a window into ancient tensions around the rise of Christianity.`\
-https://nytimes.com/2024/07/09/world/europe/bulgaria-statue-roman-sewer-archaeologists.html
 
