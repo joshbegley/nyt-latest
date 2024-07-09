@@ -1,3 +1,7 @@
+**Uniting Idea**\
+`Gary Larson and Amy Ensz weigh their options.`\
+https://nytimes.com/2024/07/08/crosswords/daily-puzzle-2024-07-09.html
+
 **Street Erupts When Man in a Wheelchair Is Taken Into Custody in Killing**\
 `The body of Yazmeen Williams, 31, had been found on a Manhattan curb, wrapped in a sleeping bag.`\
 https://nytimes.com/2024/07/08/nyregion/woman-killed-sleeping-bag-manhattan.html
