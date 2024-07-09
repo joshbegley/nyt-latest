@@ -1,3 +1,15 @@
+**Richard M. Goldstein, Who Helped Map the Cosmos, Dies at 97**\
+`Using ground-based radars, Dr. Goldstein pioneered measurement techniques that scientists now use to chart geographical changes on Earth.`\
+https://nytimes.com/2024/07/09/science/space/richard-m-goldstein-dead.html
+
+**Transcript: Ezra Klein Interviews Jamelle Bouie**\
+`The July 9, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/07/09/podcasts/transcript-ezra-klein-interviews-jamelle-bouie.html
+
+**What Your Grocery Cart Says About You**\
+`We combed through a month’s worth of receipts from more than two dozen people across the U.S. to better understand our relationship to the food we buy.`\
+https://nytimes.com/interactive/2024/07/09/dining/grocery-receipts.html
+
 **Southgate 'not concerned' over referee for England semi-final**\
 `Gareth Southgate says he is &#8220;not concerned&#8221; by the appointment of a referee for England&#8217;s Euro 2024 semi-final who has previously served a ban for his involvement in a match-fixing scandal.`\
 https://nytimes.com/athletic/5627276/2024/07/09/england-netherlands-referee-gareth-southgate/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/09/business/tesla-electric-vehicles-market-share.htm
 **Cade Cunningham inks max extension with Pistons**\
 `Last season, Cunningham averaged 22.7 points, 7.5 assists and 4.3 rebounds per game while upping his field-goal percentage to 45 percent.`\
 https://nytimes.com/athletic/5627199/2024/07/09/cade-cunningham-max-contract-extension/
-
-**Gypsy Rose Blanchard Announces Pregnancy**\
-`In a YouTube video on Tuesday, Ms. Blanchard said she was expecting her first child with her boyfriend, Ken Urker.`\
-https://nytimes.com/2024/07/09/style/gypsy-rose-blanchard-pregnancy.html
-
-**Russian Court Orders Arrest of Yulia Navalnaya, Navalny’s Widow**\
-`The court accused Ms. Navalnaya, who left Russia in 2021, of “participating in an extremist community.” She would be subject to arrest if she ever returns to Russia, the court said.`\
-https://nytimes.com/2024/07/09/world/europe/russia-yulia-navalnaya-arrest-order.html
-
-**The prosecution’s closing argument cast Menendez as guiding a staggering scheme.**\
-`By Nicholas Fandos`\
-https://nytimes.com/live/2024/07/09/nyregion/bob-menendez-trial/the-prosecutions-closing-argument-cast-menendez-as-guiding-a-staggering-scheme
 
