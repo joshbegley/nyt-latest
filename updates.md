@@ -1,3 +1,19 @@
+**Do You Need a Lazy Susan? Maybe Not. But They Make Meals a Lot More Fun.**\
+`Long overlooked as throwback novelties, spinning trays are making a comeback.`\
+https://nytimes.com/2024/07/09/t-magazine/lazy-susan-guide.html
+
+**The Anti-Abortion Movement Is Perverting the 14th Amendment**\
+`There’s nothing particularly “moderate” about the new Republican platform.`\
+https://nytimes.com/2024/07/02/opinion/14th-amendment-abortion-scotus.html
+
+**New Mav Thompson on Warriors exit: 'Sometimes breakups are necessary'**\
+`"Sometimes breakups are necessary to do whats right. I'm not the first athlete in the NBA to go do this," Thompson said.`\
+https://nytimes.com/athletic/5626636/2024/07/09/klay-thompson-mavericks-intro-conference-warriors/
+
+**Novak Djokovic was becoming the gentleman king of tennis. It didn't last**\
+`Djokovic demolished Holger Rune at Wimbledon, then ripped into the Centre Court fans known for their decorum. He just thrives on drama`\
+https://nytimes.com/athletic/5626443/2024/07/09/novak-djokovic-wimbledon-crowd/
+
 **‘First Someone Dies, Then Everyone Expects Us to Eat’: The Week 3 Winner of Our Summer Reading Contest**\
 `Miki Schnitzer, 16, writes about how gifts of food from the cultures of her diverse neighbors brought solace at a time of mourning.`\
 https://nytimes.com/2024/07/09/learning/first-someone-dies-then-everyone-expects-us-to-eat-the-week-3-winner-of-our-summer-reading-contest.html
