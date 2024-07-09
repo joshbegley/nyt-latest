@@ -1,3 +1,7 @@
+**For Kamala Harris, the Challenge of Getting Ready Without Getting Ready**\
+`The vice president has made certain to demonstrate complete loyalty to President Biden.`\
+https://nytimes.com/2024/07/09/us/politics/for-kamala-harris-the-challenge-of-getting-ready-without-getting-ready.html
+
 **Indonesian Court Acquits Former Official Accused of Enslaving Addicts**\
 `The ex-regent had been accused of imprisoning hundreds of people under the guise of drug treatment and forcing them to work at his plantation and factory.`\
 https://nytimes.com/2024/07/09/world/asia/indonesia-court-acquittal-human-trafficking.html
