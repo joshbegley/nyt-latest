@@ -1,3 +1,11 @@
+**Man Utd agree deal to sell Greenwood to Marseille**\
+`Marseille have reached an agreement with Manchester United to sign Mason Greenwood, although the proposed move remains subject to the forward’s approval.`\
+https://nytimes.com/athletic/5623710/2024/07/09/mason-greenwood-marseille-agreement/
+
+**Prosecutors Will Seek to Indict Weinstein on New Sex Crimes Charges**\
+`The Manhattan district attorney’s office said it was “actively pursuing” a fresh prosecution against the disgraced movie producer. Prosecutors projected a fall trial.`\
+https://nytimes.com/2024/07/09/nyregion/weinstein-rape-prosecutors.html
+
 **Trump Returns to Trail in Florida as Deadline Nears on Running Mate**\
 `Donald Trump stayed out of the spotlight as President Biden was besieged by Democratic doubts, but his Tuesday rally will be watched closely for hints about his vice president pick.`\
 https://nytimes.com/2024/07/09/us/politics/trump-florida-vp-pick.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/09/technology/chips-packaging-semiconductors.html
 **Jannik Sinner out of Wimbledon after struggling physically against Medvedev**\
 `Jannik Sinner, world No 1, is out of Wimbledon after a five-set defeat to Russian No 5 seed Daniil Medvedev in the quarterfinals on Tuesday.`\
 https://nytimes.com/athletic/5626996/2024/07/09/jannik-sinner-out-of-wimbledon-after-struggling-physically-vs-daniil-medvedev/
-
-**How the Home Insurance Market Became So Distorted**\
-`Climate change and widely varied state regulations could mean you’re paying too much or far too little to insure your home.`\
-https://nytimes.com/2024/07/09/climate/home-insurance-prices-climate-change.html
-
-**Gaza City quieted down months ago, but its residents are now under fire again.**\
-`By Hiba Yazbek and Iyad Abuheweila`\
-https://nytimes.com/live/2024/07/09/world/israel-gaza-war-hamas/gaza-city-quieted-down-months-ago-but-its-residents-are-now-under-fire-again
 
