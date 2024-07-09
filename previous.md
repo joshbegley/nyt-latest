@@ -1,3 +1,11 @@
+**Alexandria Ocasio-Cortez Backs Biden: ‘He Is Not Leaving This Race’**\
+`Her continued support gives President Biden the backing of an influential member of the party’s progressive wing.`\
+https://nytimes.com/2024/07/09/us/politics/alexandria-ocasio-cortez-backs-biden.html
+
+**Employees With Autism Find New Ways to Navigate the Workplace**\
+`As diagnoses of autism rise, Microsoft and other large companies are working to better support autistic workers so they can thrive without “masking.”`\
+https://nytimes.com/2024/07/09/style/employees-autism-navigate-workplace.html
+
 **As Rich Backers Retreat, Biden Trumpets Small Donors**\
 `The president is still seeking money from wealthy contributors even as he casts them as part of an unelected political elite trying to subvert the will of voters.`\
 https://nytimes.com/2024/07/09/us/politics/biden-donors-fund-raising.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/09/business/economy/economic-data-response-rates.htm
 **For Kamala Harris, the Challenge of Getting Ready Without Getting Ready**\
 `The vice president has made certain to demonstrate complete loyalty to President Biden.`\
 https://nytimes.com/2024/07/09/us/politics/for-kamala-harris-the-challenge-of-getting-ready-without-getting-ready.html
-
-**Indonesian Court Acquits Former Official Accused of Enslaving Addicts**\
-`The ex-regent had been accused of imprisoning hundreds of people under the guise of drug treatment and forcing them to work at his plantation and factory.`\
-https://nytimes.com/2024/07/09/world/asia/indonesia-court-acquittal-human-trafficking.html
-
-**Bobby De Cordova-Reid to Leicester: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate Bobby De Cordova-Reid's move to Leicester`\
-https://nytimes.com/athletic/5620169/2024/07/09/bobby-de-cordova-reid-to-leicester-the-athletic-500-transfer-ratings/
 

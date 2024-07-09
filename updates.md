@@ -1,3 +1,11 @@
+**Alexandria Ocasio-Cortez Backs Biden: ‘He Is Not Leaving This Race’**\
+`Her continued support gives President Biden the backing of an influential member of the party’s progressive wing.`\
+https://nytimes.com/2024/07/09/us/politics/alexandria-ocasio-cortez-backs-biden.html
+
+**Employees With Autism Find New Ways to Navigate the Workplace**\
+`As diagnoses of autism rise, Microsoft and other large companies are working to better support autistic workers so they can thrive without “masking.”`\
+https://nytimes.com/2024/07/09/style/employees-autism-navigate-workplace.html
+
 **As Rich Backers Retreat, Biden Trumpets Small Donors**\
 `The president is still seeking money from wealthy contributors even as he casts them as part of an unelected political elite trying to subvert the will of voters.`\
 https://nytimes.com/2024/07/09/us/politics/biden-donors-fund-raising.html
