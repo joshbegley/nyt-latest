@@ -1,3 +1,7 @@
+**Willie Mays celebration of life: Presidents, dignitaries, baseball greats remember his life and impact**\
+`An estimated 4,500 fans joined baseball luminaries, former U.S. Presidents and Mays' closest family and friends to speak about his legacy.`\
+https://nytimes.com/athletic/5625586/2024/07/09/willie-mays-celebration-of-life-sf-giants/
+
 **Maidenhead gave Kilman his chance - his £40m transfer to West Ham will help them rebuild**\
 `Max Kilman's move to West Ham suits them and Wolves — but not as much as his former club, non-League Maidenhead`\
 https://nytimes.com/athletic/5616886/2024/07/09/max-kilman-west-ham-transfer-wolves-maidenhead/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5623598/2024/07/09/netherlands-england-koeman-euro-
 **Saka-cardia: How did a win on penalties impact an England fan's heart rate?**\
 `James McNicholas tracked his heart rate during England's quarter-final with Switzerland – it was a story of ups and downs `\
 https://nytimes.com/athletic/5621934/2024/07/09/england-fan-heart-rate-tracking-euro-2024/
-
-**Joselu interview: 'Luis de la Fuente has built a family with Spain. That's the key'**\
-`In an interview with The Athletic, the former Real Madrid striker looks back on his career and Spain's run to the Euro 2024 semi-finals`\
-https://nytimes.com/athletic/5623475/2024/07/09/joselu-spain-euro-2024-interview-exclusive-france/
 
