@@ -1,3 +1,7 @@
+**Jesse Marsch is back in New Jersey and has a chance to make history with Canada**\
+`Three decades on from watching 1994 World Cup semifinal in the Meadowlands, Marsch is back as his Canada take on Argentina in Copa America`\
+https://nytimes.com/athletic/5625275/2024/07/09/jesse-marsch-canada-argentina-coach/
+
 **Flick meets Thiago over Barcelona coaching role**\
 `Hansi Flick and Thiago Alcantara have met to discuss as possible role on Barcelona&#8217;s coaching staff.`\
 https://nytimes.com/athletic/5625005/2024/07/09/thiago-barcelona-coach-hansi-flick/
