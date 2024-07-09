@@ -1,3 +1,7 @@
+**Jesse Marsch is back in New Jersey and has a chance to make history with Canada**\
+`Three decades on from watching 1994 World Cup semifinal in the Meadowlands, Marsch is back as his Canada take on Argentina in Copa America`\
+https://nytimes.com/athletic/5625275/2024/07/09/jesse-marsch-canada-argentina-coach/
+
 **England and France haven't produced 'good performances' at Euro 2024 - but what does that mean?**\
 `The idea that France and England are always like this isn’t true. They’ve never been great to watch but they’ve usually been more formidable`\
 https://nytimes.com/athletic/5624022/2024/07/09/england-france-performance-euro-2024/

@@ -6,10 +6,6 @@ https://nytimes.com/athletic/5624022/2024/07/09/england-france-performance-euro-
 `The offseason brought the biggest change the 49ers have had on their defensive line since Kyle Shanahan and John Lynch arrived in 2017.`\
 https://nytimes.com/athletic/5560533/2024/07/09/san-francisco-49ers-defensive-line-2024-nick-bosa/
 
-**MLB trade deadline report: With 3 weeks to go, buyers' needs coming into greater focus**\
-`It will still take time, in some cases, to determine who's selling and who's buying, but the deadline picture is coming into greater focus. `\
-https://nytimes.com/athletic/5625352/2024/07/09/mlb-trade-deadline-buyers-sellers-needs-three-weeks-out/
-
 **Felix Zwayer, Jude Bellingham and the match-fixing scandal that overshadows England vs Netherlands**\
 `That the Euro 2024 semi-final will be played in Dortmund, in the same ground as the Bellingham incident, makes the past harder to ignore`\
 https://nytimes.com/athletic/5624913/2024/07/09/zwayer-bellingham-england-netherlands-euro-2024/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/07/09/world/europe/france-election-left-melenchon.html
 **Kamala Harris’s Strengths and Weaknesses**\
 `We’re covering a potential Harris candidacy.`\
 https://nytimes.com/2024/07/09/briefing/kamala-harriss-strengths-and-weaknesses.html
+
+**Jesse Marsch is back in New Jersey and has a chance to make history with Canada**\
+`Three decades on from watching 1994 World Cup semifinal in the Meadowlands, Marsch is back as his Canada take on Argentina in Copa America`\
+https://nytimes.com/athletic/5625275/2024/07/09/jesse-marsch-canada-argentina-coach/
 
