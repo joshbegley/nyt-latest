@@ -1,3 +1,11 @@
+**Maidenhead gave Kilman his chance - his £40m transfer to West Ham will help them rebuild**\
+`Max Kilman's move to West Ham suits them and Wolves — but not as much as his former club, non-League Maidenhead`\
+https://nytimes.com/athletic/5616886/2024/07/09/max-kilman-west-ham-transfer-wolves-maidenhead/
+
+**What Mats Wieffer will bring to Brighton**\
+`The Dutchman typically impresses out of possession and will bring some of the traits Brighton's midfield lacked last season`\
+https://nytimes.com/athletic/5616704/2024/07/09/mats-wieffer-brighton-transfer/
+
 **Gary O'Neil's Wolves rebuild is well underway - so what comes next?**\
 `The comings and goings at Wolves explained, and how it fits the club's vision`\
 https://nytimes.com/athletic/5618606/2024/07/09/gary-oneils-wolves-rebuild-is-well-underway-so-what-comes-next/
