@@ -1,3 +1,15 @@
+**Big Ten recruiting thoughts: Ohio State, Oregon keep rolling, Michigan surging**\
+`Led by Ohio State, which has the No. 1 class in the nation, the Big Ten has eight teams ranked in the top 25 in the 247Sports Composite.`\
+https://nytimes.com/athletic/5622826/2024/07/09/big-ten-recruiting-visits-michigan-ohio-state-oregon/
+
+**From Evan Cooper to a new kicker: 10 key developments at Nebraska since the spring game**\
+`Offseason? Never! A flurry of recent transactions has altered the look of the 2024 Cornhuskers.`\
+https://nytimes.com/athletic/5624682/2024/07/09/nebraska-football-evan-cooper-john-butler/
+
+**Phillies takeaways on current and future roster decisions and Aaron Nola's form**\
+`The Phillies have roster decisions to make now that could shape future ones as they near the trade deadline. `\
+https://nytimes.com/athletic/5624780/2024/07/09/phillies-roster-decisions-bench-aaron-nola/
+
 **Beryl Leaves Millions Without Power in Houston: What to Know**\
 `The storm hit Texas on Monday as a Category 1 hurricane. As the storm moved out of the state, officials warned it could take days to fully restore electricity.`\
 https://nytimes.com/2024/07/09/us/beryl-storm-forecast.html
