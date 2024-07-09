@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5624681/2024/07/09/bears-fan-survey-questions-2024/
 `Our expert examines José Ramírez's credentials, looks at a trade deadline possibility and more.`\
 https://nytimes.com/athletic/5619119/2024/07/09/guardians-mailbag-jose-ramirez-trade-deadline/
 
-**LeBron voted best player in Olympic training camp**\
+**Select team straw poll: LeBron voted Team USA's best in camp**\
 `LeBron James, the NBA’s all-time leading scorer, was voted the top national team player in a straw poll of Olympic camp participants.`\
 https://nytimes.com/athletic/5625482/2024/07/09/lebron-james-team-usa-olympic-training-camp-poll/
 
