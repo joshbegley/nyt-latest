@@ -1,3 +1,7 @@
+**The Transfer DealSheet: Arsenal's Calafiori interest, Man Utd move closer to Zirkzee deal**\
+`Welcome to the latest edition of the Transfer DealSheet, your weekly guide to what is happening in the summer transfer window`\
+https://nytimes.com/athletic/5619869/2024/07/09/arsenal-transfer-latest-manchester-united/
+
 **Word of the Day: varnish**\
 `This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/07/09/learning/word-of-the-day-varnish.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5616886/2024/07/09/max-kilman-west-ham-transfer-wol
 **What Mats Wieffer will bring to Brighton**\
 `The Dutchman typically impresses out of possession and will bring some of the traits Brighton's midfield lacked last season`\
 https://nytimes.com/athletic/5616704/2024/07/09/mats-wieffer-brighton-transfer/
-
-**Gary O'Neil's Wolves rebuild is well underway - so what comes next?**\
-`The comings and goings at Wolves explained, and how it fits the club's vision`\
-https://nytimes.com/athletic/5618606/2024/07/09/gary-oneils-wolves-rebuild-is-well-underway-so-what-comes-next/
 
