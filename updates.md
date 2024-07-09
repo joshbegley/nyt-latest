@@ -1,3 +1,11 @@
+**Kamala Harris’s Strengths and Weaknesses**\
+`We’re covering a potential Harris candidacy.`\
+https://nytimes.com/2024/07/09/briefing/kamala-harriss-strengths-and-weaknesses.html
+
+**How Copa America turned the tactical foul into an art form**\
+`There are plenty of examples of subtle but effective foul play at the tournament - but how do teams get away with it?`\
+https://nytimes.com/athletic/5624771/2024/07/09/copa-america-tactical-fouls/
+
 **Jesse Marsch is back in New Jersey and has a chance to make history with Canada**\
 `Three decades on from watching 1994 World Cup semifinal in the Meadowlands, Marsch is back as his Canada take on Argentina in Copa America`\
 https://nytimes.com/athletic/5625275/2024/07/09/jesse-marsch-canada-argentina-coach/
