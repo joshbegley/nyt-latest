@@ -1,3 +1,11 @@
+**Should You Hug a Sloth?**\
+`Spurred by social media, attractions where visitors interact with animals have surged. Advocates are sounding alarms.`\
+https://nytimes.com/2024/07/09/style/sloths-hug-tourism-seaquest.html
+
+**What to Know About the World’s Largest Wildlife Crossing**\
+`An enormous overpass in Southern California is “more than just a bridge,” an official said.`\
+https://nytimes.com/2024/07/09/us/california-wildlife-crossing.html
+
 **Organized looters are attacking aid convoys in search of contraband cigarettes, officials say.**\
 `By Aaron Boxerman and Natan Odenheimer`\
 https://nytimes.com/live/2024/07/09/world/israel-gaza-war-hamas/organized-looters-are-attacking-aid-convoys-in-search-of-contraband-cigarettes-officials-say
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5625937/2024/07/09/the-athletic-fc-viral-photo-that
 **Nottingham Forest complete signing of goalkeeper Carlos Miguel**\
 `Nottingham Forest have completed the signing of goalkeeper Carlos Miguel from Brazilian club Corinthians.`\
 https://nytimes.com/athletic/5626232/2024/07/09/nottingham-forest-transfer-news-carlos-miguel/
-
-**Biden Pushes Back Against Big Donors**\
-`The president’s joined a call intended to soothe wealthy backers’ worries and tried to shift the focus to attacking Donald Trump.`\
-https://nytimes.com/2024/07/09/business/dealbook/biden-wealthy-donors.html
-
-**Projecting the Blues' 2024-25 opening-night lineup after recent roster changes**\
-`The Blues signed two free agents and made four trades. How do those moves impact the lineup in 2024-25?`\
-https://nytimes.com/athletic/5624323/2024/07/09/blues-2024-25-nhl-roster/
 

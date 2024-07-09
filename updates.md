@@ -1,3 +1,11 @@
+**Should You Hug a Sloth?**\
+`Spurred by social media, attractions where visitors interact with animals have surged. Advocates are sounding alarms.`\
+https://nytimes.com/2024/07/09/style/sloths-hug-tourism-seaquest.html
+
+**What to Know About the World’s Largest Wildlife Crossing**\
+`An enormous overpass in Southern California is “more than just a bridge,” an official said.`\
+https://nytimes.com/2024/07/09/us/california-wildlife-crossing.html
+
 **Organized looters are attacking aid convoys in search of contraband cigarettes, officials say.**\
 `By Aaron Boxerman and Natan Odenheimer`\
 https://nytimes.com/live/2024/07/09/world/israel-gaza-war-hamas/organized-looters-are-attacking-aid-convoys-in-search-of-contraband-cigarettes-officials-say
