@@ -1,3 +1,7 @@
+**Wimbledon roundtable: Who could capitalise on the open women's draw to win?**\
+`As Wimbledon's quarterfinals begin, The Athletic's tennis team take stock of the women's singles draw`\
+https://nytimes.com/athletic/5625891/2024/07/09/wimbledon-roundtable-womens-singles-winner/
+
 **Bobby De Cordova-Reid to Leicester: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Bobby De Cordova-Reid's move to Leicester`\
 https://nytimes.com/athletic/5620169/2024/07/09/bobby-de-cordova-reid-to-leicester-the-athletic-500-transfer-ratings/
