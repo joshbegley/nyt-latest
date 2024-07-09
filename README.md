@@ -1,3 +1,7 @@
+**Gundy: OSU star RB Ollie Gordon won't be suspended**\
+`“He’s going to play,” Gundy said. “I might make him carry the ball 50 times in the first game, but he’s going to play."`\
+https://nytimes.com/athletic/5627041/2024/07/09/mike-gundy-oklahoma-state-ollie-gordon-dui-suspension/
+
 **Whitmer Talks Tequila, Pearl Jam and Debates in New Book**\
 `The Michigan governor will not talk about running for president. But her new book, “True Gretch,” is full of details keeping the chatter alive.`\
 https://nytimes.com/2024/07/09/us/politics/gretchen-whitmer-book.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5626901/2024/07/09/erik-ten-hag-dan-ashworth/
 **3 Cardinals takeaways as lineup powers them to a season high point**\
 `The Cardinals scored 27 runs over a four-games series and powered their way to 6 games over .500.`\
 https://nytimes.com/athletic/5625142/2024/07/09/cardinals-mlb-lars-nootbaar/
-
-**Penguins name Wes Clark VP of player personnel**\
-`Clark worked with Kyle Dubas and the Maple Leafs in various capacities over the previous six seasons.`\
-https://nytimes.com/athletic/5626755/2024/07/09/penguins-maple-leafs-wes-clark-kyle-dubas/
 
