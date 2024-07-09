@@ -1,3 +1,15 @@
+**The Menendez indictment set off a political frenzy in New Jersey.**\
+`By Christopher Maag`\
+https://nytimes.com/live/2024/07/09/nyregion/bob-menendez-trial/the-menendez-indictment-set-off-a-political-frenzy-in-new-jersey
+
+**England turn to golf and a Ryder Cup hero as pressure mounts at Euro 2024**\
+`Keeping players occupied at tournaments has always been a challenge and Gareth Southgate's squad hit the golf course to blow off some steam`\
+https://nytimes.com/athletic/5623634/2024/07/09/england-golf-euro-2024/
+
+**Dak Prescott: 'Absolutely nothing' wrong with ankle**\
+`Prescott added there have been "back and forth" conversations about a new contract.`\
+https://nytimes.com/athletic/5626796/2024/07/09/dak-prescott-ankle-injury-contract-cowboys/
+
 **James M. Inhofe, Senator Who Denied Climate Change, Dies at 89**\
 `An Oklahoma Republican who led the Environment Committee, he took hard-right stands on many issues but was especially vocal in challenging evidence of global warming.`\
 https://nytimes.com/2024/07/09/us/politics/james-inhofe-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5626636/2024/07/09/klay-thompson-mavericks-intro-co
 **‘First Someone Dies, Then Everyone Expects Us to Eat’: The Week 3 Winner of Our Summer Reading Contest**\
 `Miki Schnitzer, 16, writes about how gifts of food from the cultures of her diverse neighbors brought solace at a time of mourning.`\
 https://nytimes.com/2024/07/09/learning/first-someone-dies-then-everyone-expects-us-to-eat-the-week-3-winner-of-our-summer-reading-contest.html
-
-**Jaguars pass rusher changes last name to Hines-Allen**\
-`Jacksonville Jaguars defensive end Joshua Allen announced on Tuesday he&#8217;d changed his last name to Hines-Allen.`\
-https://nytimes.com/athletic/5626727/2024/07/09/jaguars-pass-rusher-changes-last-name-to-hines-allen/
-
-**What to Watch for at the NATO Summit This Week**\
-`All eyes are on President Biden, but looming over the meeting is the possibility that Vladimir Putin might pull a stunt to disrupt the gathering.`\
-https://nytimes.com/2024/07/09/us/politics/nato-summit-what-to-watch.html
-
-**After Propelling Biden in 2020, Black Women Aren’t Eager to Abandon Him Now**\
-`Leaders of the Democratic Party’s most loyal voting bloc have expressed frustration with the calls for President Biden to step aside, mindful of undermining Vice President Kamala Harris.`\
-https://nytimes.com/2024/07/09/us/politics/biden-black-women-voters.html
 
