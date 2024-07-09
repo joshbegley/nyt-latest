@@ -1,3 +1,7 @@
+**Seeing Workplace Misery, They Offer Company**\
+`As chronic work stress climbs, entrepreneurs find opportunity in the burgeoning space of burnout coaching.`\
+https://nytimes.com/2024/07/09/business/work-stress-burnout-coach.html
+
 **Quotation of the Day: A Compromise? France Needs It but Disdains It.**\
 `Quotation of the Day for Tuesday, July 9, 2024.`\
 https://nytimes.com/2024/07/08/pageoneplus/quotation-of-the-day-a-compromise-france-needs-it-but-disdains-it.html
