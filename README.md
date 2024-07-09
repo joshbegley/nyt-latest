@@ -1,3 +1,7 @@
+**The strike hit a school being used as a shelter for displaced people, local officials say.**\
+`By Liam Stack and Anushka Patil`\
+https://nytimes.com/live/2024/07/09/world/israel-gaza-war-hamas/the-strike-hit-a-school-being-used-as-a-shelter-for-displaced-people-local-officials-say
+
 **Sailor Who Tried to Access Biden’s Medical Records Was Disciplined by Navy**\
 `The sailor searched the name “Joseph Biden” in a government database three times in late February, according to the Navy.`\
 https://nytimes.com/2024/07/09/us/politics/biden-medical-records-navy-sailor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/09/nyregion/nyu-antisemitism-settlement.html
 **The latest on the Warriors' offseason and a patient Lauri Markkanen chase**\
 `Golden State isn't the only team interested in the Jazz's star forward, but an answer may not come soon.`\
 https://nytimes.com/athletic/5622936/2024/07/09/warriors-lauri-markkanen-offseason/
-
-**Tiny Love Stories: ‘Feeling Awkward Flirting With a Younger Woman’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/07/09/style/tiny-modern-love-stories-feeling-awkward-flirting-with-a-younger-woman.html
 
