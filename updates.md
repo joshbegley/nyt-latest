@@ -1,3 +1,15 @@
+**Full Time: Emma Hayes’ charisma carries weight**\
+`Welcome to Full Time, The Athletic’s weekly women’s soccer newsletter. `\
+https://nytimes.com/athletic/5627014/2024/07/09/uswnt-emma-hayes-olympics-angel-city-sale-full-time/
+
+**F.T.C. Bars Anonymous Messaging App From Serving Users Under Age 18**\
+`The move against the app NGL by the Federal Trade Commission was the first time the agency barred an online service from hosting minors.`\
+https://nytimes.com/2024/07/09/technology/ngl-app-ftc-settlement.html
+
+**Real Betis sign Llorente from Leeds**\
+`Leeds United defender Diego Llorente has completed a permanent move to Real Betis for an undisclosed fee.`\
+https://nytimes.com/athletic/5621616/2024/07/09/leeds-news-diego-llorente-real-betis/
+
 **Gundy: OSU star RB Ollie Gordon won't be suspended**\
 `“He’s going to play,” Gundy said. “I might make him carry the ball 50 times in the first game, but he’s going to play."`\
 https://nytimes.com/athletic/5627041/2024/07/09/mike-gundy-oklahoma-state-ollie-gordon-dui-suspension/
