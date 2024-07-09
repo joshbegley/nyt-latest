@@ -1,3 +1,11 @@
+**Menendez’s lawyer says the government’s case relied on ‘half truths’ and innuendo.**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2024/07/09/nyregion/bob-menendez-trial/menendezs-lawyer-says-the-governments-case-relied-on-half-truths-and-innuendo
+
+**States and Creditors for Purdue Pharma Threaten Sacklers With Gush of Lawsuits**\
+`Legal maneuverings followed a Supreme Court ruling last month that denied the Sackler family immunity from liability over its role in the opioid crisis.`\
+https://nytimes.com/2024/07/09/health/sacklers-purdue-settlement-lawsuits.html
+
 **At the NATO Summit, Attention Is on Biden**\
 `Also, Middle America is paying more for home insurance. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/07/09/briefing/nato-summit-biden-home-insurance-rates.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/09/briefing/nato-biden-putin-modi.html
 **The Briefing: Spain 2 France 1: A semi-final for the ages as Yamal makes history with wondergoal**\
 `We break down the key talking points from Tuesday evening's game in Munich`\
 https://nytimes.com/athletic/5622399/2024/07/09/spain-france-euro-2024-result-analysis/
-
-**The strike hit a school being used as a shelter for displaced people, local officials say.**\
-`By Liam Stack and Anushka Patil`\
-https://nytimes.com/live/2024/07/09/world/israel-gaza-war-hamas/the-strike-hit-a-school-being-used-as-a-shelter-for-displaced-people-local-officials-say
-
-**Sailor Who Tried to Access Biden’s Medical Records Was Disciplined by Navy**\
-`The sailor searched the name “Joseph Biden” in a government database three times in late February, according to the Navy.`\
-https://nytimes.com/2024/07/09/us/politics/biden-medical-records-navy-sailor.html
 
