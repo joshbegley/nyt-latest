@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5619119/2024/07/09/guardians-mailbag-jose-ramirez-t
 https://nytimes.com/athletic/5625482/2024/07/09/lebron-james-team-usa-olympic-training-camp-poll/
 
 **A beginner's guide to mate - the drink fuelling Copa America (and uniting Messi and Ronaldo)**\
-`There are so many barriers to human connection in our modern world — mate breaks them down`\
+`There are so many barriers to human connection in our modern world — but mate breaks them down`\
 https://nytimes.com/athletic/5625500/2024/07/09/messi-ronaldo-mate/
 
 **2025 NFL Draft QB self scout: Carson Beck, Will Howard and others evaluate themselves**\
