@@ -1,3 +1,11 @@
+**‘Sunny’ Is a Dreamy Robot Dramedy**\
+`This stylish sci-fi series, on Apple TV+, stars Rashida Jones as a grieving woman with an unexpected new companion.`\
+https://nytimes.com/2024/07/09/arts/television/sunny-apple-tv-plus-rashida-jones.html
+
+**Top Democrats, Swallowing Fears About Biden’s Candidacy, Remain Behind Him**\
+`Lawmakers in the House and Senate met privately to hash out their concerns about President Biden’s viability, but leaders emerged from two separate meetings pledging allegiance to their candidate.`\
+https://nytimes.com/2024/07/09/us/politics/democrats-biden-congress.html
+
 **Reds' Greene lands first All-Star nod as Glasnow goes on IL**\
 `Greene, 24, is just two years removed from his big-league debut and having his best season as a pro yet.`\
 https://nytimes.com/athletic/5627477/2024/07/09/mlb-all-star-tyler-glasnow-hunter-greene/
