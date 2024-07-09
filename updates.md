@@ -1,3 +1,15 @@
+**Potential ‘Rust’ Jurors Are Asked About Guns, Movies and Alec Baldwin**\
+`Jury selection began for the trial of Mr. Baldwin, who was charged with involuntary manslaughter in the fatal shooting of a cinematographer. He has pleaded not guilty.`\
+https://nytimes.com/2024/07/09/arts/alec-baldwin-rust-shooting-trial-jury.html
+
+**Macron’s Gamble Has Opened the Door to ‘La Rupture’**\
+`The challenge of governing with three restless factions is just beginning.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/macron-french-elections
+
+**Yamal becomes youngest-ever goalscorer in men's major tournament history**\
+`Lamine Yamal &#8220;did not think&#8221; about the wondergoal that made him the youngest goalscorer in men&#8217;s major tournament history.`\
+https://nytimes.com/athletic/5627479/2024/07/09/lamine-yamal-goal-spain-france/
+
 **‘Sunny’ Is a Dreamy Robot Dramedy**\
 `This stylish sci-fi series, on Apple TV+, stars Rashida Jones as a grieving woman with an unexpected new companion.`\
 https://nytimes.com/2024/07/09/arts/television/sunny-apple-tv-plus-rashida-jones.html
