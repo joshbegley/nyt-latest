@@ -1,3 +1,15 @@
+**The Pulse: The 17-year-old wowing NBA legends**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5625418/2024/07/09/cooper-flagg-team-usa-duke-the-pulse/
+
+**Archaeologists Find a Marble Statue in an Ancient Roman Sewer**\
+`Researchers in Bulgaria think the artifact could offer a window into ancient tensions around the rise of Christianity.`\
+https://nytimes.com/2024/07/09/world/europe/bulgaria-statue-roman-sewer-archaeologists.html
+
+**France’s Far-Left Firebrand: Ready to Govern?**\
+`Jean-Luc Mélenchon led his coalition to a narrow victory in elections. But even some of his allies bristle at the thought of the combative former Trotskyist becoming prime minister.`\
+https://nytimes.com/2024/07/09/world/europe/france-election-left-melenchon.html
+
 **Kamala Harris’s Strengths and Weaknesses**\
 `We’re covering a potential Harris candidacy.`\
 https://nytimes.com/2024/07/09/briefing/kamala-harriss-strengths-and-weaknesses.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5624681/2024/07/09/bears-fan-survey-questions-2024/
 **Guardians mailbag: The best Ramirez in franchise history, front office regrets and more**\
 `Our expert examines José Ramírez's credentials, looks at a trade deadline possibility and more.`\
 https://nytimes.com/athletic/5619119/2024/07/09/guardians-mailbag-jose-ramirez-trade-deadline/
-
-**Select team straw poll: LeBron voted Team USA's best in camp**\
-`LeBron James, the NBA’s all-time leading scorer, was voted the top national team player in a straw poll of Olympic camp participants.`\
-https://nytimes.com/athletic/5625482/2024/07/09/lebron-james-team-usa-olympic-training-camp-poll/
-
-**A beginner's guide to mate - the drink fuelling Copa America (and uniting Messi and Ronaldo)**\
-`There are so many barriers to human connection in our modern world — but mate breaks them down`\
-https://nytimes.com/athletic/5625500/2024/07/09/messi-ronaldo-mate/
-
-**2025 NFL Draft QB self scout: Carson Beck, Will Howard and others evaluate themselves**\
-`How are some key 2025 NFL Draft QB prospects getting ready for the college football season? We asked them.  `\
-https://nytimes.com/athletic/5608060/2024/07/09/nfl-draft-2025-quarterbacks-scouting-reports/
 
