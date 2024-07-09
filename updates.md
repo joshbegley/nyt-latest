@@ -1,3 +1,7 @@
+**Ipswich agree deal for City striker Delap**\
+`Ipswich Town have agreed a deal with Manchester City to sign striker Liam Delap.`\
+https://nytimes.com/athletic/5626378/2024/07/09/liam-delap-transfer-city-ipswich-southampton/
+
 **How does Klay Thompson fit with the Mavericks? It's not complicated**\
 `Luka Dončić creates more 3s than any other player. Dallas couldn't make any of them in the NBA Finals. Now, enter Klay Thompson. `\
 https://nytimes.com/athletic/5622932/2024/07/09/klay-thompson-mavericks-shoot-3-luka-doncic/
