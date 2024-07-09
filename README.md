@@ -1,3 +1,7 @@
+**Bloomberg’s $1 Billion Gift for Free Medical School Applies Only to Some**\
+`A donation from Bloomberg Philanthropies will provide free tuition for Johns Hopkins medical students, if their families make less than $300,000 a year.`\
+https://nytimes.com/2024/07/09/us/bloomberg-donation-free-tuition-einstein-bronx.html
+
 **She’s Keeping Biden on Track as Democrats Try to Derail Him**\
 `Jennifer O’Malley Dillon is driving the president’s campaign forward as he fends off Democratic critics. “She doesn’t have any doubt,” said Ron Klain, the former White House chief of staff.`\
 https://nytimes.com/2024/07/09/us/politics/jen-omalley-dillon-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/09/dining/grocery-receipts.html
 **Bryce Harper, Kyle Schwarber come off IL to boost Phillies lineup**\
 `The Phillies went 5-4 in the 10 days without Harper and Schwarber, although it felt longer.`\
 https://nytimes.com/athletic/5627286/2024/07/09/bryce-harper-kyle-schwarber-phillies-injured-list/
-
-**Southgate 'not concerned' over referee for England semi-final**\
-`Gareth Southgate says he is &#8220;not concerned&#8221; by the appointment of a referee for England&#8217;s Euro 2024 semi-final who has previously served a ban for his involvement in a match-fixing scandal.`\
-https://nytimes.com/athletic/5627276/2024/07/09/england-netherlands-referee-gareth-southgate/
 
