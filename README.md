@@ -16,7 +16,7 @@ https://nytimes.com/2024/07/09/us/copper-theft-heavy-metal.html
 
 **It’s an Old Story: Great Authors Are Not Always Great People**\
 `Writers are flawed humans just like everyone else, only a little more so.`\
-https://nytimes.com/live/2024/07/02/opinion/thepoint/munro-gaiman-author-controversy
+https://nytimes.com/live/2024/07/09/opinion/thepoint/munro-gaiman-author-controversy
 
 **Dutch golfer Luiten denied place in Olympics field**\
 `The International Olympic Committee denied a request by the International Golf Federation to expand the field to 61 on Tuesday.`\
