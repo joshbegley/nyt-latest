@@ -1,5 +1,5 @@
-**Rafael Devers to miss All-Star game with sore shoulder; Jordan Westburg named to AL team**\
-`Devers has been dealing with a sore left shoulder for much of the season. Westburg will be making his first All-Star appearance.`\
+**Devers to miss All-Star Game; Westburg named to AL team**\
+`Devers has been dealing with a sore left shoulder for much of the season. Westburg will be making his first All-Star Game appearance.`\
 https://nytimes.com/athletic/5627778/2024/07/09/mlb-all-star-roster-rafael-devers-jordan-westburg/
 
 **A Fine Joe-mance**\
