@@ -1,3 +1,7 @@
+**F.T.C. Says Middlemen Appear to Be Driving Up Drug Prices**\
+`In a report, the regulator sharply criticized pharmacy benefit managers, a reversal from its longstanding hands-off approach to policing the companies.`\
+https://nytimes.com/2024/07/09/health/ftc-pharmacy-benefit-managers-drug-prices.html
+
 **Ipswich agree deal for City striker Delap**\
 `Ipswich Town have agreed a deal with Manchester City to sign striker Liam Delap.`\
 https://nytimes.com/athletic/5626378/2024/07/09/liam-delap-transfer-city-ipswich-southampton/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5624547/2024/07/09/golden-knights-lineup-2024-25/
 **Modi’s Moscow Visit Showcases a Less Isolated Putin, Angering Ukraine**\
 `Prime Minister Narendra Modi of India made his first visit to Russia in five years, even as Ukraine reeled from an attack on a children’s hospital.`\
 https://nytimes.com/2024/07/09/world/europe/russia-india-modi-moscow-putin.html
-
-**A Political Fight Won, France’s Stars Turn Back to a Soccer One**\
-`Some of the country’s top players had urged voters to reject the far right in a pivotal election. With that battle over, a date with Spain in Euro 2024 offers a more familiar challenge.`\
-https://nytimes.com/2024/07/09/world/europe/france-spain-euro-2024-election.html
 
