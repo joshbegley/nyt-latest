@@ -1,3 +1,7 @@
+**The Briefing: Spain 2 France 1: A semi-final for the ages as Yamal makes history with wondergoal**\
+`We break down the key talking points from Tuesday evening's game in Munich`\
+https://nytimes.com/athletic/5622399/2024/07/09/spain-france-euro-2024-result-analysis/
+
 **The strike hit a school being used as a shelter for displaced people, local officials say.**\
 `By Liam Stack and Anushka Patil`\
 https://nytimes.com/live/2024/07/09/world/israel-gaza-war-hamas/the-strike-hit-a-school-being-used-as-a-shelter-for-displaced-people-local-officials-say
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/09/arts/hope-alswang-dead.html
 **N.Y.U. Settles Lawsuit by Students Who Claimed Antisemitic Harassment**\
 `The lawsuit was part of a wave of litigation against universities over accusations of antisemitism related to campus protests over the war in Gaza.`\
 https://nytimes.com/2024/07/09/nyregion/nyu-antisemitism-settlement.html
-
-**The latest on the Warriors' offseason and a patient Lauri Markkanen chase**\
-`Golden State isn't the only team interested in the Jazz's star forward, but an answer may not come soon.`\
-https://nytimes.com/athletic/5622936/2024/07/09/warriors-lauri-markkanen-offseason/
 

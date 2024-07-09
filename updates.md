@@ -1,3 +1,7 @@
+**The Briefing: Spain 2 France 1: A semi-final for the ages as Yamal makes history with wondergoal**\
+`We break down the key talking points from Tuesday evening's game in Munich`\
+https://nytimes.com/athletic/5622399/2024/07/09/spain-france-euro-2024-result-analysis/
+
 **The strike hit a school being used as a shelter for displaced people, local officials say.**\
 `By Liam Stack and Anushka Patil`\
 https://nytimes.com/live/2024/07/09/world/israel-gaza-war-hamas/the-strike-hit-a-school-being-used-as-a-shelter-for-displaced-people-local-officials-say
