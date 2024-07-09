@@ -1,3 +1,11 @@
+**She’s Keeping Biden on Track as Democrats Try to Derail Him**\
+`Jennifer O’Malley Dillon is driving the president’s campaign forward as he fends off Democratic critics. “She doesn’t have any doubt,” said Ron Klain, the former White House chief of staff.`\
+https://nytimes.com/2024/07/09/us/politics/jen-omalley-dillon-biden.html
+
+**Menendez Trial’s Odd Moments: Pyramids, French Nicknames and a Bell**\
+`Senator Robert Menendez’s corruption trial has featured testimony that ventured into offbeat territory.`\
+https://nytimes.com/2024/07/09/nyregion/menendez-trial-odd-moments.html
+
 **Metal Thieves are Stripping America’s Cities**\
 `Across the country, copper and other valuable materials have been stolen from streetlights, statues and even gravesites, costing millions to repair.`\
 https://nytimes.com/2024/07/09/us/copper-theft-heavy-metal.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5627286/2024/07/09/bryce-harper-kyle-schwarber-phil
 **Southgate 'not concerned' over referee for England semi-final**\
 `Gareth Southgate says he is &#8220;not concerned&#8221; by the appointment of a referee for England&#8217;s Euro 2024 semi-final who has previously served a ban for his involvement in a match-fixing scandal.`\
 https://nytimes.com/athletic/5627276/2024/07/09/england-netherlands-referee-gareth-southgate/
-
-**The Matrix of Consumer Discontent**\
-`What facts do different stories explain?`\
-https://nytimes.com/2024/07/09/opinion/economy-consumer-sentiment.html
-
-**At Ukraine’s Largest Children’s Hospital, a Horrific Scene of Destruction**\
-`Families and patients were not unfamiliar with the sound of missiles flying overhead. But the Russian assault on the hospital marked one of the worst days of violence against civilians in months.`\
-https://nytimes.com/2024/07/09/world/europe/ukraine-childrens-hospial-russia.html
 
