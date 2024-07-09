@@ -1,3 +1,11 @@
+**Bloomberg’s $1 Billion Gift for Free Medical School Applies Only to Some**\
+`A donation from Bloomberg Philanthropies will provide free tuition for Johns Hopkins medical students, if their families make less than $300,000 a year.`\
+https://nytimes.com/2024/07/09/us/bloomberg-donation-free-tuition-einstein-bronx.html
+
+**It’s an Old Story: Great Authors Are Not Always Great People**\
+`Writers are flawed humans just like everyone else, only a little more so.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/munro-gaiman-author-controversy
+
 **Metal Thieves Are Stripping America’s Cities**\
 `Across the country, copper and other valuable materials have been stolen from streetlights, statues and even gravesites, costing millions to repair.`\
 https://nytimes.com/2024/07/09/us/copper-theft-heavy-metal.html
