@@ -1,3 +1,7 @@
+**Bobby De Cordova-Reid to Leicester: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Bobby De Cordova-Reid's move to Leicester`\
+https://nytimes.com/athletic/5620169/2024/07/09/bobby-de-cordova-reid-to-leicester-the-athletic-500-transfer-ratings/
+
 **Wordle Review No. 1,117, July 10, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/09/crosswords/wordle-review-1117.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5622932/2024/07/09/klay-thompson-mavericks-shoot-3-
 **Cairns' return is a common sense signing to satisfy EFL rules and add experience**\
 `The return of the experienced goalkeeper is unlikely to excite the Leeds fanbase — but it ticks a lot of boxes`\
 https://nytimes.com/athletic/5624080/2024/07/09/leeds-alex-cairns-transfers/
-
-**The Athletic FC: Viral photo that unites Messi and Yamal. Plus: Is idealism dead?**\
-`Today in The Athletic FC: The photo of Messi with a baby Yamal, is idealism dead, and the French fan and his lucky chicken called Balthazar`\
-https://nytimes.com/athletic/5625937/2024/07/09/the-athletic-fc-viral-photo-that-unites-messi-and-yamal-plus-is-idealism-dead/
 

@@ -1,3 +1,7 @@
+**Bobby De Cordova-Reid to Leicester: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Bobby De Cordova-Reid's move to Leicester`\
+https://nytimes.com/athletic/5620169/2024/07/09/bobby-de-cordova-reid-to-leicester-the-athletic-500-transfer-ratings/
+
 **Wordle Review No. 1,117, July 10, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/09/crosswords/wordle-review-1117.html
