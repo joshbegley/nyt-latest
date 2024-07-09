@@ -1,3 +1,7 @@
+**The prosecution’s closing argument cast Menendez as guiding a staggering scheme.**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2024/07/09/nyregion/bob-menendez-trial/the-prosecutions-closing-argument-cast-menendez-as-guiding-a-staggering-scheme
+
 **Second Patient to Receive a Genetically Modified Pig Kidney Has Died**\
 `Lisa Pisano, 54, lived with the organ for 47 days. She was the first patient to receive both a heart pump and an organ transplant, doctors said.`\
 https://nytimes.com/2024/07/09/health/kidney-transplant-pisano.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/09/us/politics/trump-florida-vp-pick.html
 **Full Time: Emma Hayes’ charisma carries weight**\
 `Welcome to Full Time, The Athletic’s weekly women’s soccer newsletter. `\
 https://nytimes.com/athletic/5627014/2024/07/09/uswnt-emma-hayes-olympics-angel-city-sale-full-time/
-
-**F.T.C. Bars Anonymous Messaging App From Serving Users Under Age 18**\
-`The move against the app NGL by the Federal Trade Commission was the first time the agency barred an online service from hosting minors.`\
-https://nytimes.com/2024/07/09/technology/ngl-app-ftc-settlement.html
 
