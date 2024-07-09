@@ -1,3 +1,15 @@
+**Three Hikers Die in Grand Canyon National Park in Less Than a Month**\
+`A 50-year-old man was found dead on Sunday after hiking up the canyon, where temperatures can reach 120 degrees in summer.`\
+https://nytimes.com/2024/07/09/us/grand-canyon-hiker-death.html
+
+**U.A.W. Monitor Reveals Details About Investigation Into Union Leader**\
+`A court-appointed monitor said he was looking into allegations that a union official was punished for resisting actions that would have benefited the union president’s partner and her sister.`\
+https://nytimes.com/2024/07/09/business/uaw-monitor-investigation-shawn-fain.html
+
+**Deschamps refuses to discuss France future after Euro 2024 exit**\
+`Didier Deschamps refused to discuss his future as France head coach following his side&#8217;s European Championship semi-final exit at the hands of Spain.`\
+https://nytimes.com/athletic/5627763/2024/07/09/didier-deschamps-france-future/
+
 **The Abyss Stares Back at Joe Biden**\
 `The president is starting to act like the predecessor he fought against.`\
 https://nytimes.com/2024/07/09/opinion/biden-election-trump.html
@@ -6,7 +18,7 @@ https://nytimes.com/2024/07/09/opinion/biden-election-trump.html
 `As time travelled with the ball from out to inside the post, it opened a portal through which Yamal's immense potential could be glimpsed`\
 https://nytimes.com/athletic/5627602/2024/07/09/perfection-by-lamine-yamal/
 
-**Yankees' Cashman addresses team's recent rut**\
+**Yankees' GM talks team's recent rut: 'We're struggling'**\
 `The Yankees GM made an unexpected appearance in St. Petersburg ahead of the team's opening game with the Rays.`\
 https://nytimes.com/athletic/5627838/2024/07/09/brian-cashman-new-york-yankees-struggling/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/09/us/politics/biden-democrats-trump-morning-joe.htm
 **Kamala Harris attends Team USA men's basketball practice**\
 `Harris is a noted Golden State Warriors fan, the team Kerr coaches in the NBA and Stephen Curry stars on.`\
 https://nytimes.com/athletic/5627702/2024/07/09/kamala-harris-usa-basketball-practice/
-
-**Euro 2024, day 26 – Spain reach Euro 2024 final but captain injured after final whistle**\
-`The key moments from today at Euro 2024 `\
-https://nytimes.com/athletic/5627332/2024/07/09/euro-2024-day-26-morata-tackled/
-
-**Wimbledon day 9: From double-faults to delight, the roofs go main character, Alcaraz wins ugly**\
-`On day nine of Wimbledon, a masterclass in recovery; an indoor tournament; and American dreams dashed`\
-https://nytimes.com/athletic/5627157/2024/07/09/wimbledon-alcaraz-vekic-american-losses/
-
-**In Search of Power, Texans Ask: Are the Lights on at Whataburger?**\
-`With no working outage tracker from the Houston area’s main electricity provider, people are turning to the chain’s map of open restaurants after Hurricane Beryl.`\
-https://nytimes.com/2024/07/09/us/beryl-whataburger-power-houston.html
 
