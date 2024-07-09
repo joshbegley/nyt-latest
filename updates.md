@@ -1,3 +1,7 @@
+**Cade Cunningham inks max extension with Pistons**\
+`Last season, Cunningham averaged 22.7 points, 7.5 assists and 4.3 rebounds per game while upping his field-goal percentage to 45 percent.`\
+https://nytimes.com/athletic/5627199/2024/07/09/cade-cunningham-max-contract-extension/
+
 **Gypsy Rose Blanchard Announces Pregnancy**\
 `In a YouTube video on Tuesday, Ms. Blanchard said she was expecting her first child with her boyfriend, Ken Urker.`\
 https://nytimes.com/2024/07/09/style/gypsy-rose-blanchard-pregnancy.html
