@@ -1,3 +1,11 @@
+**Gary O'Neil's Wolves rebuild is well underway - so what comes next?**\
+`The comings and goings at Wolves explained, and how it fits the club's vision`\
+https://nytimes.com/athletic/5618606/2024/07/09/gary-oneils-wolves-rebuild-is-well-underway-so-what-comes-next/
+
+**After months of turmoil and uncertainty, Forest's future at the City Ground looks secure**\
+`The club's agreement in principle to purchase the freehold of the land their much-loved stadium sits on will be welcome news to worried fans`\
+https://nytimes.com/athletic/5624608/2024/07/09/nottingham-forest-city-ground-future-secure/
+
 **Pickford is being pushed on by a goalkeeping union who know he's the undisputed No 1**\
 `The Everton and England goalkeeper has come into his own in Germany — and his backups are playing a full part in his success`\
 https://nytimes.com/athletic/5624844/2024/07/09/jordan-pickford-ramsdale-henderson-england-goalkeepers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5619945/2024/07/09/tapping-up-transfer-euros-copa/
 **Dynasty league football mailbag: Draft strategy, Justin Fields' value and the most underrated rookie**\
 `Jeff Haverlack answers your dynasty league football questions about draft strategy, Justin Fields, the most underrated rookie and much more.`\
 https://nytimes.com/athletic/5624588/2024/07/09/dynasty-fantasy-football-draft-strategy-value/
-
-**Tuesday Briefing**\
-`The fallout from France’s election.`\
-https://nytimes.com/2024/07/09/briefing/ukraine-bombing-france.html
-
-**Tuesday's MLB projections: Best starting pitchers, playoff odds, props and more**\
-`Projections for Tuesday's MLB games with value picks, best bets, pitcher props, home run trends, weather and more.`\
-https://nytimes.com/athletic/5624741/2024/07/09/mlb-odds-predictions-best-bets-july-9/
 
