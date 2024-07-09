@@ -1,3 +1,7 @@
+**He Told Biden to ‘Pass the Torch.’ It Cost Him His Role in a State Campaign.**\
+`Clint Keaveny, an outspoken volunteer, was removed from a Democratic congressional campaign for holding up a protest sign at a Biden rally.`\
+https://nytimes.com/2024/07/09/us/biden-democrat-congressional-campaign.html
+
 **A New Terrace Cafe for the Boathouse in Prospect Park**\
 `Purslane Cafe, from the group behind Rucola and more, serves sandwiches and drinks; Parcelle adds a new location; and more restaurant news.`\
 https://nytimes.com/2024/07/09/dining/nyc-restaurant-news.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5626425/2024/07/09/nascar-rodney-childers-spire-mot
 **Powell Welcomes Cooling Inflation but Wants ‘More Good Data’ Before Rate Cut**\
 `Jerome H. Powell, the chair of the Federal Reserve, delivered optimistic remarks to Senators as inflation and the job market slow gently.`\
 https://nytimes.com/2024/07/09/business/economy/powell-inflation-rate-cut.html
-
-**Reliability of U.S. Economic Data Is in Jeopardy, Study Finds**\
-`A report says new approaches and increased spending are needed to ensure that government statistics remain dependable and free of political influence.`\
-https://nytimes.com/2024/07/09/business/economy/economic-data-response-rates.html
 
