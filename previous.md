@@ -1,8 +1,12 @@
+**Liverpool set to sign Ngumoha, 15, from Chelsea**\
+`Liverpool are set to complete the signing of England Under-16 international Rio Ngumoha from Chelsea.`\
+https://nytimes.com/athletic/5628841/2024/07/10/liverpool-rio-ngumoha-transfer-chelsea/
+
 **Man Utd face PSR battle after £71.4m loss in latest accounts**\
 `Manchester United posted a £71.`\
 https://nytimes.com/athletic/5628801/2024/07/10/man-utd-psr-accounts-finances/
 
-**"I don’t know about feeling Colombian, but I get emotional when I hear the national anthem"**\
+**‘I don’t know about feeling Colombian, but I get emotional when I hear the national anthem’**\
 `Nestor Lorenzo played in a World Cup final for Argentina - he's now masterminding Colombia's fine run at Copa America in distinctive fashion`\
 https://nytimes.com/athletic/5628047/2024/07/10/nestor-lorenzo-colombia-copa-america-james-rodriguez/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5627729/2024/07/10/texas-texas-am-baseball-coach-ri
 **As trade deadline looms, how many more starts will Yusei Kikuchi make for the Blue Jays?**\
 `On Tuesday, Kikuchi limited the Giants to six hits in what John Schneider called “if not the best, one of the best outings he's had.”`\
 https://nytimes.com/athletic/5628270/2024/07/10/yusei-kikuchi-blue-jays-mlb-trade-deadline/
-
-**Spain take risks and reap the rewards - it's what makes them so different at Euro 2024**\
-`In a parallel universe, France won Tuesday's Euros semi-final because Kylian Mbappe was allowed too much space - but that's Spain for you`\
-https://nytimes.com/athletic/5628396/2024/07/10/spain-risks-euro-2024-final/
 

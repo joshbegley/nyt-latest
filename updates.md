@@ -1,3 +1,11 @@
+**Liverpool set to sign Ngumoha, 15, from Chelsea**\
+`Liverpool are set to complete the signing of England Under-16 international Rio Ngumoha from Chelsea.`\
+https://nytimes.com/athletic/5628841/2024/07/10/liverpool-rio-ngumoha-transfer-chelsea/
+
+**‘I don’t know about feeling Colombian, but I get emotional when I hear the national anthem’**\
+`Nestor Lorenzo played in a World Cup final for Argentina - he's now masterminding Colombia's fine run at Copa America in distinctive fashion`\
+https://nytimes.com/athletic/5628047/2024/07/10/nestor-lorenzo-colombia-copa-america-james-rodriguez/
+
 **Spain take risks and reap the rewards - it's what makes them so different at Euro 2024**\
 `In a parallel universe, France won Tuesday's Euros semi-final because Kylian Mbappe was allowed too much space - but that's Spain for you`\
 https://nytimes.com/athletic/5628396/2024/07/10/spain-risks-euro-2024-final/
