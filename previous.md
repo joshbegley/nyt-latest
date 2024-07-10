@@ -1,3 +1,7 @@
+**Lionel Messi and Argentina rejoice in their greatest national team of all time**\
+`This team have swept all before them over the past five years and their success eclipses even Argentina's previous World Cup winning teams`\
+https://nytimes.com/athletic/5628315/2024/07/10/messi-argentina-copa-greatest-team/
+
 **Bucks free-agency reset: 6 options for their final roster spot**\
 `With only a veteran minimum salary slot at their disposal, the Bucks have limited options to add to the roster.`\
 https://nytimes.com/athletic/5624503/2024/07/10/bucks-free-agency-gary-trent-jr-markelle-fultz-kyle-lowry/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/10/podcasts/the-daily/uk-election.html
 **Democrats Divided Over Biden, and Israeli Strike Hits School Shelter**\
 `Plus, Alec Baldwin’s “Rust” trial begins.`\
 https://nytimes.com/2024/07/10/podcasts/democrats-biden-israel-airstrike.html
-
-**Wordle Review No. 1,118, July 11, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/10/crosswords/wordle-review-1118.html
 
