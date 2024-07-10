@@ -1,3 +1,11 @@
+**Aston Villa move to re-sign Philogene from Hull City**\
+`Aston Villa have made a move to re-sign Jaden Philogene from Hull City by activating a matching rights clause they negotiated in the deal that saw him sold to the Championship club last summer.`\
+https://nytimes.com/athletic/5626592/2024/07/10/aston-villa-jaden-philogene/
+
+**The Pulse: MLB Draft's most interesting potential No. 1**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5627536/2024/07/10/travis-bazzana-mlb-draft-the-pulse/
+
 **The Democrats’ Unhappy Indecision**\
 `Many seem to be falling in line behind President Biden even as polling showed his campaign to be in trouble.`\
 https://nytimes.com/2024/07/10/briefing/joe-biden-democrats-trump-polling.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5626163/2024/07/10/netherlands-defensive-weakness-e
 **Bielsa's latest quirk: Uruguay's big orange box, and how they use it**\
 `Four decades into an eclectic coaching career, Bielsa is still keeping us on our toes - this time, with an odd pre-match training setup`\
 https://nytimes.com/athletic/5627136/2024/07/10/marcelo-bielsa-uruguay-orange-box-copa/
-
-**Canada had a free hit at Copa America - it has lessons to learn for the 2026 World Cup**\
-`Messi is two years younger than his great rival but trails by 21 goals — will he be able to edge past having overtaken Ali Daei?`\
-https://nytimes.com/athletic/5628288/2024/07/10/canada-copa-america-2026-world-cup/
-
-**Why Britain Just Ended 14 Years of Conservative Rule**\
-`Last week, the center-left Labour Party won the British general election in a landslide.`\
-https://nytimes.com/2024/07/10/podcasts/the-daily/uk-election.html
 

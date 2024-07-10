@@ -1,3 +1,11 @@
+**Aston Villa move to re-sign Philogene from Hull City**\
+`Aston Villa have made a move to re-sign Jaden Philogene from Hull City by activating a matching rights clause they negotiated in the deal that saw him sold to the Championship club last summer.`\
+https://nytimes.com/athletic/5626592/2024/07/10/aston-villa-jaden-philogene/
+
+**The Pulse: MLB Draft's most interesting potential No. 1**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5627536/2024/07/10/travis-bazzana-mlb-draft-the-pulse/
+
 **The Democrats’ Unhappy Indecision**\
 `Many seem to be falling in line behind President Biden even as polling showed his campaign to be in trouble.`\
 https://nytimes.com/2024/07/10/briefing/joe-biden-democrats-trump-polling.html
