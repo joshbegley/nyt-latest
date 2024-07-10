@@ -1,3 +1,7 @@
+**Revisiting the zeroSP draft approach: Reynaldo López, Ronel Blanco among undrafted standouts**\
+`Michael Salfino revisits his zeroSP draft strategy, finding that savvy drafters who eschewed early starters could still have turned up aces.`\
+https://nytimes.com/athletic/5628276/2024/07/10/revisiting-the-zerosp-draft-approach-reynaldo-lopez-ronel-blanco-among-undrafted-standouts/
+
 **Dissension in the ranks: Debating Jonathan Taylor vs. Saquon Barkley for fantasy football 2024**\
 `Two of our fantasy football experts, Jake Ciely and Dane Martinez, debate who should go first in drafts, Saquon Barkley or Jonathan Taylor.`\
 https://nytimes.com/athletic/5627513/2024/07/10/fantasy-football-debate-jonathan-taylor-vs-saquon-barkley/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5626559/2024/07/10/hansi-flick-barcelona-preseason-
 **Ivan Toney's penalty technique analysed: High risk, high reward**\
 `The Athletic speaks to experts about the England striker's unusual-but-effective method of taking penalties  `\
 https://nytimes.com/athletic/5625085/2024/07/10/ivan-toney-england-penalty-technique-euro-2024/
-
-**'Harsh words' and the Koeman debate: Netherlands' rocky road to the Euro 2024 semi-finals**\
-`Ronald Koeman's cutting comments about his own players have appeared unusual and yet the Dutch are a game away from the final`\
-https://nytimes.com/athletic/5625814/2024/07/10/netherlands-koeman-england-semi-final/
 

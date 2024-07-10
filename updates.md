@@ -1,3 +1,7 @@
+**Revisiting the zeroSP draft approach: Reynaldo López, Ronel Blanco among undrafted standouts**\
+`Michael Salfino revisits his zeroSP draft strategy, finding that savvy drafters who eschewed early starters could still have turned up aces.`\
+https://nytimes.com/athletic/5628276/2024/07/10/revisiting-the-zerosp-draft-approach-reynaldo-lopez-ronel-blanco-among-undrafted-standouts/
+
 **Dissension in the ranks: Debating Jonathan Taylor vs. Saquon Barkley for fantasy football 2024**\
 `Two of our fantasy football experts, Jake Ciely and Dane Martinez, debate who should go first in drafts, Saquon Barkley or Jonathan Taylor.`\
 https://nytimes.com/athletic/5627513/2024/07/10/fantasy-football-debate-jonathan-taylor-vs-saquon-barkley/
