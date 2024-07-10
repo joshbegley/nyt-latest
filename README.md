@@ -1,3 +1,7 @@
+**Pelosi Suggests That Biden Should Reconsider Decision to Stay in the Race**\
+`Representative Nancy Pelosi, a longtime Biden ally and the former speaker, is the most senior member of his party who has so far suggested he consider dropping out.`\
+https://nytimes.com/2024/07/10/us/politics/pelosi-biden-drop-out.html
+
 **Senator Michael Bennet says Democrats must ‘come to grips’ with the risk that Biden could lose.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/07/10/us/biden-trump-election/senator-michael-bennet-says-democrats-must-come-to-grips-with-the-risk-that-biden-could-lose
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/10/us/california-reading-list.html
 **Why Is My Brother So Angry That I Changed Tables at His Son’s Wedding?**\
 `A reader abandoned the family table at her nephew’s wedding to join her sister at a lesser table, upsetting the groom’s father. Should she apologize for “ruining the wedding”?`\
 https://nytimes.com/2024/07/10/style/changed-tables-brother-wedding.html
-
-**Blake Snell returns and youth takes over at shortstop as Giants win a walkoff stunner**\
-`The Giants might not have a solid identity yet, or even a winning record. But they're appearing more and more like a functional team.`\
-https://nytimes.com/athletic/5628730/2024/07/10/sf-giants-blake-snell-walkoff-win/
 
