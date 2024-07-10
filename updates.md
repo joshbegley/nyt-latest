@@ -1,3 +1,7 @@
+**Why Mikel Arteta loves left-footers**\
+`Arsenal's fine balance of right-footers vs left-footers explained`\
+https://nytimes.com/athletic/5623244/2024/07/10/arsenal-arteta-left-footers/
+
 **The stutter run-up is Euro 2024's trending penalty technique - but why do players do it?**\
 `More and more footballers are hesitating before kicking the ball when taking penalties - this is how it works and the advantages it brings`\
 https://nytimes.com/athletic/5626604/2024/07/10/euro-2024-penalties-stutter-run-up/
