@@ -1,3 +1,7 @@
+**Chandler Smith on managing pressure and balancing NASCAR life as a parent: 12 Questions**\
+`Xfinity Series driver Chandler Smith talks about maturing as a driver, balancing NASCAR with family, his awe of hauler drivers, and more.`\
+https://nytimes.com/athletic/5626596/2024/07/10/chandler-smith-nascar-xfinity-pressure-12-questions/
+
 **‘A Midsummer Night’s Dream’ Review: Sprinkling Magic Under a Night Sky**\
 `Fun is the main point of Carl Cofield’s stylish outdoor staging of Shakespeare’s comic fantasy for the Classical Theater of Harlem.`\
 https://nytimes.com/2024/07/10/theater/midsummer-nights-dream-review-harlem.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5629174/2024/07/10/elland-road-leeds/
 **Juventus sign midfielder Thuram from Nice**\
 `Juventus have completed the signing of midfielder Khephren Thuram from Nice in a deal worth €20million (£16.`\
 https://nytimes.com/athletic/5626523/2024/07/10/khephren-thuram-juventus-transfer/
-
-**Review: A Mixed Bill’s Highlight Bodes Well for the Future**\
-`The best dance by far on Smuin Contemporary Ballet’s program at the Joyce is by Amy Seiwert, who is about to be the company’s director.`\
-https://nytimes.com/2024/07/10/arts/dance/review-smuin-contemporary-ballet-joyce.html
 
