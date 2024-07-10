@@ -1,3 +1,15 @@
+**Biden will juggle unions and world leaders in Washington. Here’s the latest.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/07/10/us/biden-trump-election/biden-will-juggle-unions-and-world-leaders-in-washington-heres-the-latest
+
+**Live Election Updates: Biden to Court Labor as Democrats Struggle for Unity**\
+`President Biden will meet today with union leaders and foreign dignitaries in Washington, while Vice President Kamala Harris hits the campaign trail. A running-mate pick nears for Donald Trump.`\
+https://nytimes.com/live/2024/07/10/us/biden-trump-election
+
+**Rwanda Says It Doesn’t Have to Repay U.K. for Scrapped Migration Plan**\
+`Britain gave Rwanda hundreds of millions of pounds, even though no asylum seekers were deported to the Central African nation under the agreement.`\
+https://nytimes.com/2024/07/10/world/africa/rwanda-plan-uk-migrants-money.html
+
 **Where Ravens are better, worse or the same following offseason of notable losses**\
 `Where has Baltimore improved since January's AFC championship loss, and where could the team stand to add more talent before the season?`\
 https://nytimes.com/athletic/5624155/2024/07/10/ravens-offseason-roster-better-worse/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5627057/2024/07/10/notre-dame-football-recruiting-2
 **Why the Knicks are an ideal fit for Mikal Bridges**\
 `Bridges has a coach who thinks the same way he does, a locker room that already knows him and a situation built to enhance his game.`\
 https://nytimes.com/athletic/5627275/2024/07/10/knicks-mikal-bridges-ideal-fit/
-
-**Campy Actor, Serious Fashion**\
-`Cole Escola is dressing the part of a red-carpet star after achieving a new level of fame as the star of the play “Oh, Mary!”`\
-https://nytimes.com/2024/07/10/style/cole-escola-oh-mary-broadway-style.html
-
-**How Mar-a-Lago Became the Center of Gravity for the Hard Right**\
-`President Donald J. Trump’s residence and private club has become an oasis for the MAGA wing of the Republican party, according to a Times analysis — and its transformation has been tremendously profitable for Mr. Trump.`\
-https://nytimes.com/interactive/2024/07/10/us/politics/mar-a-lago-republicans-trump.html
-
-**This May Be a Turning Point for Biden. But in Which Direction?**\
-`The race against Trump doesn’t seem as if it will get easier.`\
-https://nytimes.com/2024/07/10/upshot/biden-polling-debate.html
 
