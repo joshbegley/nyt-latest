@@ -1,3 +1,11 @@
+**Statcast at 10: From MLB's secret project to inescapable part of modern baseball**\
+`Statcast is everywhere — produced and promoted by MLB — but not for everyone. It enthralls analytically inclined fans and irks others.`\
+https://nytimes.com/athletic/5627303/2024/07/10/mlb-statcast-10-year-anniversary/
+
+**'I’m not a coach': Chris Paul is eager to 'hoop' with Victor Wembanyama and Spurs**\
+`Paul and Harrison Barnes will bring lots of experience to San Antonio next season.`\
+https://nytimes.com/athletic/5628028/2024/07/10/chris-paul-spurs-victor-wembanyama/
+
 **Will Notre Dame finish strong after fast start, quiet summer on recruiting trail?**\
 `Summer has been mostly fits and starts for Notre Dame on the recruiting front. What's next after losing Ivan Taylor to Michigan?`\
 https://nytimes.com/athletic/5627057/2024/07/10/notre-dame-football-recruiting-2025-class/
