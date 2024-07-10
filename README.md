@@ -1,3 +1,7 @@
+**The Messages From Biden That are Understood, and Not**\
+`A president who long delighted in public speech is now sometimes hard to understand. Does it matter?`\
+https://nytimes.com/2024/07/10/us/politics/biden-speech-articulation.html
+
 **Southgate explains Trippier substitution in England semi-final win**\
 `Gareth Southgate says England &#8220;didn’t want to take any chances&#8221; with Kieran Trippier after he was taken off during their semi-final win over the Netherlands on Wednesday.`\
 https://nytimes.com/athletic/5630134/2024/07/10/kieran-trippier-injury-england/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/10/us/politics/kamala-harris-donald-trump.html
 **Mary Martin, Who Gave Many Music Stars Their Start, Dies at 85**\
 `Her loyalty to artists and her eye for talent made her a force in a male-dominated business. Among her accomplishments: introducing Bob Dylan to the Band.`\
 https://nytimes.com/2024/07/10/arts/music/mary-martin-dead.html
-
-**For First Time, NATO Accuses China of Supplying Russia’s Attacks on Ukraine**\
-`The statement was a major departure for the alliance, which until 2019 never officially mentioned China as a concern.`\
-https://nytimes.com/2024/07/10/us/politics/nato-china-russia-ukraine.html
 
