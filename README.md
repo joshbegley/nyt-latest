@@ -1,8 +1,12 @@
+**Release of Kevin Costner’s Next ‘Horizon’ Film Is Canceled**\
+`The film was supposed to hit theaters on Aug. 16, but that plan was scrapped after the first chapter of the Western saga disappointed at the box office.`\
+https://nytimes.com/2024/07/10/business/media/kevin-costner-horizon-release-canceled.html
+
 **Women Hype Each Other Up With ‘Boots and a Slicked-Back Bun’ Meme**\
 `The catchy phrase, chanted in a lilting cadence, was first used by a group of friends cheering on each other’s outfits on a night out.`\
 https://nytimes.com/2024/07/10/style/boots-slicked-back-bun-meme-tiktok.html
 
-**Macron Ends his Silence, Calling for ‘a Broad Gathering' That Would Split the Left**\
+**Macron Ends His Silence, Calling for ‘a Broad Gathering' That Would Split the Left**\
 `In an open letter to the French people, he rejects any role for the far left France Unbowed party, setting the stage for a heated showdown.`\
 https://nytimes.com/2024/07/10/world/europe/macron-france-letter-left-split.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/10/us/biden-trump-election/biden-union-afl-cio-
 **Rosenthal: By getting Pete Alonso in the Home Run Derby, MLB shortchanged two of his Mets teammates**\
 `Wittingly or not, Alonso's selection created unintended consequences for Brandon Nimmo and Francisco Lindor.`\
 https://nytimes.com/athletic/5629570/2024/07/10/pete-alonso-home-run-derby-mets-nimmo-lindor/
-
-**Why there is no third-place playoff at Euro 2024**\
-`The European Championship in Germany is drawing to a close with only a handful of games to go.`\
-https://nytimes.com/athletic/5627940/2024/07/10/euro-2024-third-place-playoff-bronze/
 
