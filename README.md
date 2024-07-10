@@ -1,9 +1,13 @@
+**Alex de Minaur withdraws from Novak Djokovic Wimbledon quarterfinal**\
+`Alex de Minaur has withdrawn from his Wimbledon quarterfinal against Novak Djokovic with a hip injury.`\
+https://nytimes.com/athletic/5628686/2024/07/10/alex-de-minaur-withdraws-wimbledon-djokovic/
+
 **For the Olympics, USA men's basketball makes a sizable fix to fight a bully problem**\
 `Team USA got beat up on the boards at the 2023 FIBA World Cup. With Anthony Davis, Joel Embiid and Bam Adebayo, they hope that will change.`\
 https://nytimes.com/athletic/5627932/2024/07/10/team-usa-olympics-anthony-davis-joel-embiid-adebayo/
 
 **McIlroy says he used New York trip to reset after U.S. Open**\
-`NORTH BERWICK, Scotland — In the days following his heartbreaking finish at the U.`\
+`The Northern Irishman put his headphones on and walked the High Line after his late collapse at Pinehurst`\
 https://nytimes.com/athletic/5628619/2024/07/10/rory-mcilroy-scottish-us-open/
 
 **Which Chargers UDFAs have the best shot at making the roster? Mailbag**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5627536/2024/07/10/travis-bazzana-mlb-draft-the-pul
 **The Democrats’ Unhappy Indecision**\
 `Many seem to be falling in line behind President Biden even as polling showed his campaign to be in trouble.`\
 https://nytimes.com/2024/07/10/briefing/joe-biden-democrats-trump-polling.html
-
-**Lionel Messi and Argentina rejoice in their greatest national team of all time**\
-`This team have swept all before them over the past five years and their success eclipses even Argentina's previous World Cup winning teams`\
-https://nytimes.com/athletic/5628315/2024/07/10/messi-argentina-copa-greatest-team/
 
