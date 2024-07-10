@@ -1,3 +1,7 @@
+**Why Mikel Arteta loves left-footers**\
+`Arsenal's fine balance of right-footers vs left-footers explained`\
+https://nytimes.com/athletic/5623244/2024/07/10/arsenal-arteta-left-footers/
+
 **The stutter run-up is Euro 2024's trending penalty technique - but why do players do it?**\
 `More and more footballers are hesitating before kicking the ball when taking penalties - this is how it works and the advantages it brings`\
 https://nytimes.com/athletic/5626604/2024/07/10/euro-2024-penalties-stutter-run-up/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/10/world/europe/france-elections-europe-left-right.h
 **You Are Cordially Invited to Euro 2024’s Best Party. Please Wear Orange.**\
 `With thousands of voices and a few well-choreographed dance moves, Dutch fans have transformed match days into pulsing, joyous celebrations. Their next one is Wednesday.`\
 https://nytimes.com/2024/07/10/world/europe/you-are-cordially-invited-to-euro-2024s-best-party-please-wear-orange.html
-
-**Berlin Honors Earliest Settlers, Whose Bones Shared Their Secrets**\
-`Archaeologists unearthed some 4,000 ancient skeletons from the heart of the city. After years of study, they were reinterred in a rare and solemn tribute.`\
-https://nytimes.com/2024/07/10/world/europe/berlin-honors-earliest-settlers-whose-bones-shared-their-secrets.html
 
