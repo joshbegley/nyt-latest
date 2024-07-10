@@ -1,40 +1,40 @@
-**Red Sox inching up wild-card standings, pushing front office into buyer's market**\
-`The Red Sox continue to climb the wild-card standings, as they gained another game after routing the A’s.`\
-https://nytimes.com/athletic/5628197/2024/07/09/red-sox-wild-card-standings/
+**Wednesday Briefing**\
+`Biden at the NATO summit in Washington.`\
+https://nytimes.com/2024/07/10/briefing/biden-nato-ukraine-gaza.html
 
-**Phillies set tone against Dodgers, and it all began with Zack Wheeler vs. Shohei Ohtani**\
-`Wheeler has been dealing with back discomfort and he noted sometimes he didn't feel his velocity was all there Tuesday, but he dazzled LA.`\
-https://nytimes.com/athletic/5628167/2024/07/09/phillies-zack-wheeler-shohei-ohtani-dodgers/
+**Forces on Both Left and Right Battle for Europe’s Political Soul**\
+`A coarsening of public discourse and contempt for mainstream parties have politicians on both sides denouncing what they say are extreme positions by their opponents, analysts say.`\
+https://nytimes.com/2024/07/10/world/europe/france-elections-europe-left-right.html
 
-**Reds' Hunter Greene is an All-Star after an offseason of changes to his preparation, arsenal**\
-`Greene overhauled his offseason program and committed himself to improving upon last season. His changes have paid dividends.`\
-https://nytimes.com/athletic/5628140/2024/07/09/reds-hunter-greene-all-star-selection/
+**You Are Cordially Invited to Euro 2024’s Best Party. Please Wear Orange.**\
+`With thousands of voices and a few well-choreographed dance moves, Dutch fans have transformed match days into pulsing, joyous celebrations. Their next one is Wednesday.`\
+https://nytimes.com/2024/07/10/world/europe/you-are-cordially-invited-to-euro-2024s-best-party-please-wear-orange.html
 
-**'I need to be better': Carlos Rodón's struggles continue as Yankees fall into deeper funk**\
-`The starter coughed up four first-inning runs as the Yankees have now lost 17 of their last 23 games. `\
-https://nytimes.com/athletic/5628143/2024/07/09/yankees-carlos-rodon-brian-cashman/
+**Berlin Honors Earliest Settlers, Whose Bones Shared Their Secrets**\
+`Archaeologists unearthed some 4,000 ancient skeletons from the heart of the city. After years of study, they were reinterred in a rare and solemn tribute.`\
+https://nytimes.com/2024/07/10/world/europe/berlin-honors-earliest-settlers-whose-bones-shared-their-secrets.html
 
-**Ukraine’s President Pleads for More Weapons With Fewer Restrictions**\
-`“America doesn’t shy away from its friends,” Volodymyr Zelensky said in a speech in Washington as leaders gathered in the city for a NATO summit.`\
-https://nytimes.com/2024/07/09/us/politics/ukraine-president-nato-weapons.html
+**They Fled Oppression at Home, but It Followed Them Abroad**\
+`Many Venezuelans who left their homeland oppose the country’s autocratic president, but strict requirements will prevent most from voting in a closely watched election.`\
+https://nytimes.com/2024/07/10/world/americas/venezuela-election-voters-abroad.html
 
-**Samsung Union Workers Launch Indefinite Strike**\
-`The tech giant’s largest union escalated its dispute with management after failing to reach an agreement over pay and working policies.`\
-https://nytimes.com/2024/07/09/business/samsung-strike.html
+**Wednesday's MLB projections: Best starting pitchers, playoff odds, props and more**\
+`Projections for Wednesday's MLB games with expert picks for best bets, pitcher props, home run trends and more.`\
+https://nytimes.com/athletic/5624765/2024/07/10/mlb-odds-predictions-best-bets-july-10/
 
-**Bobby Miller's career-worst start sinks his year and the Dodgers' rotation to a new low**\
-`Few expected the Dodgers to add pitching to their shopping lists this summer. Now, they may be one of the most pitching-needy teams.`\
-https://nytimes.com/athletic/5628099/2024/07/09/dodgers-bobby-miller-rotation-struggles/
+**All the highlights from Euro 2024 and Copa America semifinals**\
+`A Lamine Yamal wondergoal helped fire Spain into the European Championship final at the expense of France before Argentina reached the Copa America final by beating Canada.`\
+https://nytimes.com/athletic/5627828/2024/07/10/euro-copa-america-highlights/
 
-**Biden, on Call With Mayors, Works to Shore Up Democratic Support**\
-`Speaking to nearly 200 Democratic mayors, the president again acknowledged he had a poor first debate and took softball questions about his campaign and second-term agenda.`\
-https://nytimes.com/2024/07/09/us/politics/biden-mayors-support.html
+**As Violence Surges, Can Pakistan Protect Its Chinese Projects?**\
+`China has invested billions in megaprojects across Pakistan. But a resurgence in militant violence is threatening to derail badly needed investment.`\
+https://nytimes.com/2024/07/10/world/asia/pakistan-china-attacks.html
 
-**Cubs begin potential last stand before trade deadline with complete win in Baltimore **\
-`It's been a disappointing season for the Cubs. If there's any chance for them to make the playoffs, they'll need more games like Tuesday's.`\
-https://nytimes.com/athletic/5628070/2024/07/09/cubs-last-stand-before-trade-deadline/
+**Defeated by A.I., a Legend in the Board Game Go Warns: Get Ready for What’s Next**\
+`Lee Saedol was one of the world’s top Go players, and his shocking loss to an A.I. opponent was a harbinger of a new, unsettling era. “It may not be a happy ending,” he says.`\
+https://nytimes.com/2024/07/10/world/asia/lee-saedol-go-ai.html
 
-**U.S. Marshal Shoots Man in Attempted Carjacking Near Sotomayor’s Home**\
-`The marshal was sitting in an unmarked federal vehicle near the Supreme Court justice’s home when a man approached the vehicle and pointed a handgun at him through the driver’s side window.`\
-https://nytimes.com/2024/07/09/us/politics/carjacking-shooting-sotomayor.html
+**Britain Has Huge Clean Energy Ambitions, but Are They Realistic?**\
+`Analysts warn that the Labour Party’s proposals are unlikely to be cheap and could come at the cost of jobs in the oil and gas industry.`\
+https://nytimes.com/2024/07/10/business/britain-green-energy-transition-jobs.html
 
