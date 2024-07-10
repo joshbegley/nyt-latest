@@ -7,7 +7,7 @@ https://nytimes.com/2024/07/10/nyregion/high-line-casino-hudson-yards.html
 https://nytimes.com/2024/07/10/crosswords/spelling-bee-forum.html
 
 **Dani Olmo, Spain's shy Euro 2024 Golden Boot leader and €60m summer transfer target**\
-`Olmo is fast becoming indispensable for Spain and looks set for a big transfer window`\
+`Euros semi-final matchwinner Olmo is fast becoming indispensable for Spain and looks set for a big summer transfer window`\
 https://nytimes.com/athletic/5628034/2024/07/10/dani-olmo-spain-euros-transfer/
 
 **Kylian Mbappe contemplates rare failure after a tournament littered with distractions**\
