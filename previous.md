@@ -1,3 +1,7 @@
+**City Illegally Fined Woman Over Profane Political Yard Sign, U.S. Judge Rules**\
+`A federal judge in Tennessee said that it was unconstitutional for the City of Lakeland, Tenn., to fine Julie Pereira for the sign she posted expressing disapproval of President Biden and Donald J. Trump.`\
+https://nytimes.com/2024/07/10/us/tennessee-yard-sign-biden-trump.html
+
 **Blues sign twice-bought-out defenseman Ryan Suter to 1-year, $775,000 contract**\
 `Suter is the second player in league history to be bought out twice, after Tony DeAngelo.`\
 https://nytimes.com/athletic/5630130/2024/07/10/blues-sign-ryan-suter/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/10/arts/alec-baldwin-trial-involuntary-manslaughter.
 **Who should USMNT hire to replace Berhalter? Analysing Klopp, Pochettino, Vieira and others**\
 `The USMNT will have a new coach in the dugout for the 2026 World Cup on home soil. But who would be a good fit?`\
 https://nytimes.com/athletic/5629410/2024/07/10/usmnt-coaching-candidates-klopp-vieira-pochettino-tuchel/
-
-**USMNT coach Berhalter fired after Copa America exit**\
-`U.`\
-https://nytimes.com/athletic/5628094/2024/07/10/gregg-berhalter-fired-usmnt-copa-america/
 

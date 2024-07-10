@@ -1,3 +1,7 @@
+**City Illegally Fined Woman Over Profane Political Yard Sign, U.S. Judge Rules**\
+`A federal judge in Tennessee said that it was unconstitutional for the City of Lakeland, Tenn., to fine Julie Pereira for the sign she posted expressing disapproval of President Biden and Donald J. Trump.`\
+https://nytimes.com/2024/07/10/us/tennessee-yard-sign-biden-trump.html
+
 **The Messages From Biden That Are Understood, and Not**\
 `A president who long delighted in public speech is now sometimes hard to understand. Does it matter?`\
 https://nytimes.com/2024/07/10/us/politics/biden-speech-articulation.html
