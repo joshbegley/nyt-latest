@@ -1,3 +1,15 @@
+**Argentina 2-0 Canada takeaways: Messi scores, Argentina heads to Copa America final**\
+`Argentina is heading to its fourth Copa America final in five years - The Athletic dissects the big talking points`\
+https://nytimes.com/athletic/5627969/2024/07/09/canada-argentina-copa-america-takeaways/
+
+**White House Doctor Discussed Business With the President’s Brother**\
+`Republicans are seeking information about a venture that Dr. Kevin O’Connor discussed with James Biden before the president was elected.`\
+https://nytimes.com/live/2024/07/09/us/trump-biden-election/white-house-doctor-james-biden
+
+**90 Degrees, Say**\
+`Hal Moore lets things escalate.`\
+https://nytimes.com/2024/07/09/crosswords/daily-puzzle-07-10-2024.html
+
 **U.S. and Allies Target Russian Bots Working to Spread Propaganda**\
 `Intelligence officials from three countries flagged a Russian influence campaign that used artificial intelligence to create nearly 1,000 fake accounts on the social media platform X.`\
 https://nytimes.com/2024/07/09/business/russian-bots-artificial-intelligence-propaganda.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5627884/2024/07/09/lance-mccullers-jr-injury-astros
 **On Capitol Hill, Democrats Panic About Biden but Do Nothing**\
 `The president has yet to do what many Democrats said he must to show he is up to remaining in the race. But so far, they have thrown up their hands, doing nothing to nudge him aside.`\
 https://nytimes.com/2024/07/09/us/politics/biden-democrats-congress.html
-
-**The Devil May Be Enjoying This Election Season, but I Am Not**\
-`Both men running for president are unfit for the job. One is a danger to our country.`\
-https://nytimes.com/2024/07/09/opinion/biden-trump-election.html
-
-**Prosecutors Are Trying to Sell You a Story, Menendez Lawyer Tells Jury**\
-`Senator Robert Menendez is charged in an international corruption scheme. Prosecutors portrayed him as “Scrooge McDuck swimming in gold coins,” his lawyer told the jury.`\
-https://nytimes.com/2024/07/09/nyregion/robert-menendez-bribery-trial-closing.html
-
-**Biden Tells Allies That NATO Is ‘More Powerful Than Ever’**\
-`President Biden welcomed NATO allies to a summit in Washington with a speech highlighting the alliance’s history and its unity in modern times.`\
-https://nytimes.com/video/us/politics/100000009563231/biden-nato-summit.html
 
