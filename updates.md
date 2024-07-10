@@ -1,3 +1,11 @@
+**Jury Finds Archegos Founder Bill Hwang Guilty on 10 Charges**\
+`Mr. Hwang was convicted on counts including securities fraud, wire fraud, conspiracy and racketeering and could spend the rest of his life in prison.`\
+https://nytimes.com/2024/07/10/business/archegos-bill-hwang-guilty.html
+
+**Thursday Briefing: Pressure Mounts for Biden to Step Aside**\
+`Plus, Israel urges Gaza City to evacuate.`\
+https://nytimes.com/2024/07/10/briefing/biden-campaign-pelosi-israel-gaza.html
+
 **Microsoft Surrenders OpenAI Board Position**\
 `As regulatory scrutiny picks up, the tech giant says it is pleased with the progress OpenAI has made with governance and considers its oversight role unnecessary.`\
 https://nytimes.com/2024/07/10/technology/microsoft-openai-board.html

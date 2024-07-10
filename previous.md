@@ -1,3 +1,11 @@
+**Jury Finds Archegos Founder Bill Hwang Guilty on 10 Charges**\
+`Mr. Hwang was convicted on counts including securities fraud, wire fraud, conspiracy and racketeering and could spend the rest of his life in prison.`\
+https://nytimes.com/2024/07/10/business/archegos-bill-hwang-guilty.html
+
+**Thursday Briefing: Pressure Mounts for Biden to Step Aside**\
+`Plus, Israel urges Gaza City to evacuate.`\
+https://nytimes.com/2024/07/10/briefing/biden-campaign-pelosi-israel-gaza.html
+
 **Microsoft Surrenders OpenAI Board Position**\
 `As regulatory scrutiny picks up, the tech giant says it is pleased with the progress OpenAI has made with governance and considers its oversight role unnecessary.`\
 https://nytimes.com/2024/07/10/technology/microsoft-openai-board.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/death-toll-gaza-lancet
 **U.A.E. Puts 84 Civil Society Members on Trial Again, Sentencing 43 to Life**\
 `The Emirati lawyers, academics and activists, who were imprisoned in national security trials, had been scheduled to be released.`\
 https://nytimes.com/2024/07/10/world/middleeast/uae-trial-civil-society-members.html
-
-**What we learned about Justin Jefferson, Vikings from Netflix's 'Receiver' series**\
-`New series sheds light on Minnesota's superstar WR, reflecting on the challenges of the 2023 season.`\
-https://nytimes.com/athletic/5629641/2024/07/10/justin-jefferson-netflix-receiver/
-
-**Carol Bongiovi, Jon Bon Jovi’s Mother, Dies at 83**\
-`Nicknamed Mom Jovi, she founded the Jon Bon Jovi fan club, and earlier was a Marine and a Playboy bunny.`\
-https://nytimes.com/2024/07/10/arts/music/carol-bongiovi-dead.html
 
