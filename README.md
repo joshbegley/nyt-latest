@@ -1,3 +1,7 @@
+**Lowetide: What's the NHL ETA for new Oilers top prospect Matt Savoie?**\
+`Edmonton is a different team to earn an opportunity even for a gifted prospect like Savoie.`\
+https://nytimes.com/athletic/5626735/2024/07/10/oilers-matt-savoie-trade-nhl/
+
 **Dear New York State Senators, Could You Please Repeat That?**\
 `We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Casey Goldstein, age 17.`\
 https://nytimes.com/2024/07/10/learning/dear-new-york-state-senators-could-you-please-repeat-that.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/10/world/americas/22-years-ago-he-disappeared-in-an-
 **Live Updates: Opening Arguments in Alec Baldwin Trial Set to Begin in New Mexico**\
 `Mr. Baldwin arrived in court Wednesday morning, with opening arguments about to start in his trial for manslaughter for his role in the fatal shooting of a cinematographer on the set of the film “Rust.”`\
 https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial
-
-**The long road to a criminal trial for Mr. Baldwin.**\
-`By Julia Jacobs`\
-https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/the-long-road-to-a-criminal-trial-for-mr-baldwin
 
