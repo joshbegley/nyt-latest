@@ -1,3 +1,19 @@
+**Mr. Baldwin’s lawyers cannot cite arguments prosecutors made at the trial of the armorer that could help their case.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/mr-baldwins-lawyers-cannot-cite-arguments-prosecutors-made-at-the-trial-of-the-armorer-that-could-help-their-case
+
+**They Hit Their Health Care Deductible. It Was Time to Party.**\
+`Some of those grappling with high health care costs are finding ways to celebrate small wins and build a sense of community.`\
+https://nytimes.com/2024/07/10/business/health-care-deductible-party.html
+
+**Leeds reclaim full ownership of Elland Road**\
+`Leeds United have announced that ownership of Elland Road has been transferred back to the club for the first time since 2004.`\
+https://nytimes.com/athletic/5629174/2024/07/10/elland-road-leeds/
+
+**Juventus sign midfielder Thuram from Nice**\
+`Juventus have completed the signing of midfielder Khephren Thuram from Nice in a deal worth €20million (£16.`\
+https://nytimes.com/athletic/5626523/2024/07/10/khephren-thuram-juventus-transfer/
+
 **Review: A Mixed Bill’s Highlight Bodes Well for the Future**\
 `The best dance by far on Smuin Contemporary Ballet’s program at the Joyce is by Amy Seiwert, who is about to be the company’s director.`\
 https://nytimes.com/2024/07/10/arts/dance/review-smuin-contemporary-ballet-joyce.html
