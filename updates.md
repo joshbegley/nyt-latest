@@ -1,3 +1,11 @@
+**Release of Kevin Costner’s Next ‘Horizon’ Film Is Canceled**\
+`The film was supposed to hit theaters on Aug. 16, but that plan was scrapped after the first chapter of the Western saga disappointed at the box office.`\
+https://nytimes.com/2024/07/10/business/media/kevin-costner-horizon-release-canceled.html
+
+**Macron Ends His Silence, Calling for ‘a Broad Gathering' That Would Split the Left**\
+`In an open letter to the French people, he rejects any role for the far left France Unbowed party, setting the stage for a heated showdown.`\
+https://nytimes.com/2024/07/10/world/europe/macron-france-letter-left-split.html
+
 **Macron Ends his Silence, Calling for ‘a Broad Gathering' That Would Split the Left**\
 `In an open letter to the French people, he rejects any role for the far left France Unbowed party, setting the stage for a heated showdown.`\
 https://nytimes.com/2024/07/10/world/europe/macron-france-letter-left-split.html
