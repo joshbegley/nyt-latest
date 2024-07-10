@@ -1,3 +1,7 @@
+**Late Night Finds Democrats Still Supporting Biden**\
+`“People waited all day for white smoke to emerge from the capital, signaling a new leader,” Jimmy Fallon joked after Congressional Democrats met in Washington on Tuesday.`\
+https://nytimes.com/2024/07/10/arts/television/late-night-biden-democrats.html
+
 **The day we thrashed the Netherlands - England's greatest performance of my lifetime**\
 `Alan Shearer relives the magical night his England team dismantled the Dutch, in what he believes is their finest modern performance`\
 https://nytimes.com/athletic/5626442/2024/07/10/shearer-england-greatest-performance-netherlands/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5623244/2024/07/10/arsenal-arteta-left-footers/
 **The stutter run-up is Euro 2024's trending penalty technique - but why do players do it?**\
 `More and more footballers are hesitating before kicking the ball when taking penalties - this is how it works and the advantages it brings`\
 https://nytimes.com/athletic/5626604/2024/07/10/euro-2024-penalties-stutter-run-up/
-
-**Hansi Flick's first day at Barcelona: Nine senior players, youth prospects and tournament absentees**\
-`Barcelona are back for pre-season training — not that new coach Flick has many players to work with`\
-https://nytimes.com/athletic/5626559/2024/07/10/hansi-flick-barcelona-preseason-training/
 
