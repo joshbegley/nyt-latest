@@ -1,3 +1,7 @@
+**What’s in Store for the 2024 Hurricane Season?**\
+`Hurricane Beryl set records as the earliest Category 5 storm ever. What does that mean for the rest of hurricane season? Here’s what travelers need to know.`\
+https://nytimes.com/2024/07/10/travel/hurricane-season-travel-insurance.html
+
 **Overlooked No More: Ursula Parrott, Best-Selling Author and Voice for the Modern Woman**\
 `Her writing, about marriage and divorce, sex and its consequences, work-life balance, the challenges of child-rearing and other topics, still resonates today.`\
 https://nytimes.com/2024/07/10/obituaries/ursula-parrott-overlooked.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5629239/2024/07/10/noah-gragson-front-row-motorspor
 **Alec Baldwin’s Defense Team Faults ‘Rust’ Crew Members for Safety Lapses**\
 `The defense said crew members who are supposed to oversee gun safety on the set had responsibility for ensuring there was no live ammunition in the gun.`\
 https://nytimes.com/2024/07/10/arts/alec-baldwin-rust-armorer-defense.html
-
-**Biden Tries to Silence His Doubters by Lashing Out at the ‘Elite’**\
-`President Biden is pushing back against those who say he is not up to the job.`\
-https://nytimes.com/2024/07/10/us/politics/biden-democrats-trump-election.html
 
