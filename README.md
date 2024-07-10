@@ -1,3 +1,11 @@
+**Dani Olmo, Spain's shy Euro 2024 Golden Boot leader and summer transfer target**\
+`Olmo is fast becoming indispensable for Spain and looks set for a big transfer window`\
+https://nytimes.com/athletic/5628034/2024/07/10/dani-olmo-spain-euros-transfer/
+
+**Kylian Mbappe contemplates rare failure after a tournament littered with distractions**\
+`From stop-start preparations to his broken nose, as well as the political tumult back home, the France captain endured a Euro 2024 to forget`\
+https://nytimes.com/athletic/5628082/2024/07/10/mbappe-france-spain-euro2024/
+
 **Late Night Finds Democrats Still Supporting Biden**\
 `“People waited all day for white smoke to emerge from the capital, signaling a new leader,” Jimmy Fallon joked after Congressional Democrats met in Washington on Tuesday.`\
 https://nytimes.com/2024/07/10/arts/television/late-night-biden-democrats.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5626925/2024/07/10/everton-mailbag-branthwaite-calv
 **Who is Okoli and how does he fit Leicester's recruitment model?**\
 `Okoli is an example of Leicester returning to the model of trying to find up-and-coming talents they can nurture and turn into assets.`\
 https://nytimes.com/athletic/5624663/2024/07/10/caleb-okoli-leicester-transfer-analysis/
-
-**Why Mikel Arteta loves left-footers**\
-`Arsenal's fine balance of right-footers vs left-footers explained`\
-https://nytimes.com/athletic/5623244/2024/07/10/arsenal-arteta-left-footers/
-
-**The stutter run-up is Euro 2024's trending penalty technique - but why do players do it?**\
-`More and more footballers are hesitating before kicking the ball when taking penalties - this is how it works and the advantages it brings`\
-https://nytimes.com/athletic/5626604/2024/07/10/euro-2024-penalties-stutter-run-up/
 
