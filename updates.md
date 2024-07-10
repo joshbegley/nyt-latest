@@ -1,3 +1,11 @@
+**Dani Olmo, Spain's shy Euro 2024 Golden Boot leader and summer transfer target**\
+`Olmo is fast becoming indispensable for Spain and looks set for a big transfer window`\
+https://nytimes.com/athletic/5628034/2024/07/10/dani-olmo-spain-euros-transfer/
+
+**Kylian Mbappe contemplates rare failure after a tournament littered with distractions**\
+`From stop-start preparations to his broken nose, as well as the political tumult back home, the France captain endured a Euro 2024 to forget`\
+https://nytimes.com/athletic/5628082/2024/07/10/mbappe-france-spain-euro2024/
+
 **Late Night Finds Democrats Still Supporting Biden**\
 `“People waited all day for white smoke to emerge from the capital, signaling a new leader,” Jimmy Fallon joked after Congressional Democrats met in Washington on Tuesday.`\
 https://nytimes.com/2024/07/10/arts/television/late-night-biden-democrats.html
