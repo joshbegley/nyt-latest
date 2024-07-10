@@ -1,3 +1,7 @@
+**Mr. Baldwin says he didn’t pull the trigger. Prosecutors don’t believe him.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/mr-baldwin-says-he-didnt-pull-the-trigger-prosecutors-dont-believe-him
+
 **Deschamps ‘will continue’ as France head coach, says FFF president**\
 `French Football Federation (FFF) president Philippe Diallo says there is “no reason” to question Didier Deschamps’ future as men’s national team head coach following their elimination at the semi-final stage of the European Championship.`\
 https://nytimes.com/athletic/5628932/2024/07/10/didier-deschamps-france-future-fff/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/10/world/europe/crossbow-attack-uk-manhunt.html
 **Canucks offseason mailbag, part 1: Is finding linemates for Elias Pettersson challenging?**\
 `Also: Should the Canucks target additional puck-moving help on the back end? Which centre fits best with Dakota Joshua and Conor Garland?`\
 https://nytimes.com/athletic/5623155/2024/07/10/canucks-offseason-elias-pettersson-linemates/
-
-**Pelosi Suggests That Biden Should Reconsider Decision to Stay in the Race**\
-`Representative Nancy Pelosi, a longtime Biden ally and the former speaker, is the most senior member of his party who has so far suggested he consider dropping out.`\
-https://nytimes.com/2024/07/10/us/politics/pelosi-biden-drop-out.html
 
