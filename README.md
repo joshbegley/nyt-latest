@@ -1,3 +1,7 @@
+**A Queer Mountain Lion Leaps From the Page to the Little Island Stage**\
+`Henry Hoke’s 2023 novel, “Open Throat,” narrated by an animal in peril in the Hollywood Hills, is adapted for a staged reading.`\
+https://nytimes.com/2024/07/10/theater/open-throat-little-island.html
+
 **Slow-Cooker Barbecue Chicken for Slow Summer Days**\
 `Just drop the ingredients into the pot, let them bubble for a few hours and then pull the soft, succulent meat into shreds.`\
 https://nytimes.com/2024/07/10/dining/slow-cooker-barbecue-chicken-for-slow-summer-days.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5626735/2024/07/10/oilers-matt-savoie-trade-nhl/
 **Dear New York State Senators, Could You Please Repeat That?**\
 `We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Casey Goldstein, age 17.`\
 https://nytimes.com/2024/07/10/learning/dear-new-york-state-senators-could-you-please-repeat-that.html
-
-**Coutinho joins Vasco da Gama on loan from Aston Villa**\
-`Aston Villa have confirmed midfielder Philippe Coutinho has joined Vasco da Gama on a season-long loan.`\
-https://nytimes.com/athletic/5629069/2024/07/10/philippe-coutinho-vasco-da-gama-loan-aston-villa/
 
