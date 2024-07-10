@@ -1,3 +1,15 @@
+**Rays' Wander Franco charged with sexually abusing a minor**\
+`Franco, 23, has not played since Aug. 12, 2023, when allegations surfaced about an inappropriate relationship with a minor.`\
+https://nytimes.com/athletic/5628183/2024/07/10/wander-franco-sexual-abuse-charge/
+
+**Everton mailbag: Branthwaite's future, Calvert-Lewin's contract - a deal for Dele?**\
+`Everton's summer has been unexpectedly busy with transfers but takeover talk is never far away too - it's time for our mailbag answers`\
+https://nytimes.com/athletic/5626925/2024/07/10/everton-mailbag-branthwaite-calvert-lewin-dele-transfers/
+
+**Who is Okoli and how does he fit Leicester's recruitment model?**\
+`Okoli is an example of Leicester returning to the model of trying to find up-and-coming talents they can nurture and turn into assets.`\
+https://nytimes.com/athletic/5624663/2024/07/10/caleb-okoli-leicester-transfer-analysis/
+
 **Why Mikel Arteta loves left-footers**\
 `Arsenal's fine balance of right-footers vs left-footers explained`\
 https://nytimes.com/athletic/5623244/2024/07/10/arsenal-arteta-left-footers/
