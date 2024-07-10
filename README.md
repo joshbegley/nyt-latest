@@ -1,3 +1,7 @@
+**As Biden Struggles, the Fight for the House Takes On New Importance**\
+`Only four seats separate Democrats from the House majority, making the chamber a potential bulwark against complete Republican control. But gaining even a handful of seats will be difficult.`\
+https://nytimes.com/2024/07/10/us/politics/house-biden-trump.html
+
 **CFB25's player ratings are here: Who belongs in the top 100?**\
 `EA developers have touted the attention to detail they've poured into the video game. How'd they do in their ratings of this season's stars?`\
 https://nytimes.com/athletic/5628987/2024/07/10/college-football-player-ratings-top-100-underrated/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/10/learning/word-of-the-day-compatible.html
 **Deadly Israeli Airstrike Hits Shelter in Khan Younis**\
 `Several displaced Palestinians had sought shelter at the school in Khan Younis that was hit by the airstrike. The Israeli military said it targeting a Hamas member who participated in the Oct. 7 attack.`\
 https://nytimes.com/video/world/middleeast/100000009563644/israel-strikes-gaza-school.html
-
-**Chandler Smith on managing pressure and balancing NASCAR life as a parent: 12 Questions**\
-`Xfinity Series driver Chandler Smith talks about maturing as a driver, balancing NASCAR with family, his awe of hauler drivers, and more.`\
-https://nytimes.com/athletic/5626596/2024/07/10/chandler-smith-nascar-xfinity-pressure-12-questions/
 
