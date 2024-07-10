@@ -1,3 +1,7 @@
+**‘A Midsummer Night’s Dream’ Review: Sprinkling Magic Under a Night Sky**\
+`Fun is the main point of Carl Cofield’s stylish outdoor staging of Shakespeare’s comic fantasy for the Classical Theater of Harlem.`\
+https://nytimes.com/2024/07/10/theater/midsummer-nights-dream-review-harlem.html
+
 **Nike commemorates 1999 USWNT World Cup victory**\
 `On the anniversary of Brandi Chastain famously ripping off her victorious jersey, Nike is bringing back the kits to a modern-day audience.`\
 https://nytimes.com/athletic/5629098/2024/07/10/nike-womens-world-cup-anniversary-collection/
