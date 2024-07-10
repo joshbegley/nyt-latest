@@ -1,3 +1,11 @@
+**Three Countries Exit West African Bloc, Shaking a Fragile Region**\
+`Burkina Faso, Mali and Niger are withdrawing from a 49-year-old regional alliance that has allowed goods and nearly 400 million people to travel freely across a tightly connected region.`\
+https://nytimes.com/2024/07/10/world/africa/west-african-countries-leave-ecowas.html
+
+**Hot Nights Fuel Wildfires in California, Complicating Containment**\
+`Climate change is causing more fires to burn overnight, growing bigger, lasting longer and challenging the fire teams trying to control them.`\
+https://nytimes.com/2024/07/10/climate/wildfires-heat-wave-night-temperature.html
+
 **What’s in Store for the 2024 Hurricane Season?**\
 `Hurricane Beryl set records as the earliest Category 5 storm ever. What does that mean for the rest of hurricane season? Here’s what travelers need to know.`\
 https://nytimes.com/2024/07/10/travel/hurricane-season-travel-insurance.html
