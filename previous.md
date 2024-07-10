@@ -1,3 +1,19 @@
+**Which Chargers UDFAs have the best shot at making the roster? Mailbag**\
+`The Chargers' new regime isn't tied to the bottom-of-the-roster holdovers, creating opportunity for several of the 22 undrafted rookies. `\
+https://nytimes.com/athletic/5627643/2024/07/10/chargers-mailbag-undrafted-free-agents-training-camp/
+
+**Zach Edey is already showing doubters what he can do in the NBA**\
+`For the better part of three years, talk of how Edey's game would translate to the NBA level dominated his college development.`\
+https://nytimes.com/athletic/5627986/2024/07/10/zach-edey-summer-league-grizzlies/
+
+**Gardner Minshew or Aidan O'Connell? Where QB ranks among Raiders' top position battles**\
+`Minshew and O'Connell will battle for the starting QB job, but what other positions are up for grabs for the Raiders?`\
+https://nytimes.com/athletic/5624918/2024/07/10/raiders-quarterback-battle-minshew-oconnell/
+
+**A Netherlands penalty cheat sheet for England's Jordan Pickford**\
+`After Pickford starred against Switzerland, Matt Pyzdrowski pored through hours of footage to analyse the Netherlands' penalty-takers`\
+https://nytimes.com/athletic/5625975/2024/07/10/netherlands-penalty-cheat-sheet-england-pickford/
+
 **Aston Villa move to re-sign Philogene from Hull City**\
 `Aston Villa have made a move to re-sign Jaden Philogene from Hull City by activating a matching rights clause they negotiated in the deal that saw him sold to the Championship club last summer.`\
 https://nytimes.com/athletic/5626592/2024/07/10/aston-villa-jaden-philogene/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5624503/2024/07/10/bucks-free-agency-gary-trent-jr-
 **Twins mailbag: Brooks Lee comps, trade deadline needs, cutting Jordan Balazovic**\
 `Plus the plans for Simeon Woods Richardson and Louie Varland, why attendance is down and why Carlos Correa stopped running.`\
 https://nytimes.com/athletic/5613921/2024/07/10/twins-trade-deadline-brooks-lee-comps/
-
-**Robert Hipwell learned a tough lesson through his suspension, now focused on MLB Draft**\
-`Hipwell takes ownership for his failed PED test from an over-the-counter pre-workout supplement. "(I)t will never happen again."`\
-https://nytimes.com/athletic/5624457/2024/07/10/mlb-draft-robert-hipwell-suspension/
-
-**Guardians notes: José Ramírez in the Home Run Derby, Gavin Williams' new-ish pitch, more**\
-`Plus Spencer Howard arrives with his fourth team since 2021 and Angel Martínez enters the franchise record book.`\
-https://nytimes.com/athletic/5627926/2024/07/10/guardians-jose-ramirez-home-run-derby/
-
-**Four Dutch defensive weaknesses that England can exploit in their semi-final**\
-`The Netherlands’ right-hand side is both their strength and a potential Achilles' heel - will England try to shut it down or exploit it?`\
-https://nytimes.com/athletic/5626163/2024/07/10/netherlands-defensive-weakness-euro-2024/
-
-**Bielsa's latest quirk: Uruguay's big orange box, and how they use it**\
-`Four decades into an eclectic coaching career, Bielsa is still keeping us on our toes - this time, with an odd pre-match training setup`\
-https://nytimes.com/athletic/5627136/2024/07/10/marcelo-bielsa-uruguay-orange-box-copa/
 

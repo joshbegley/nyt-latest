@@ -1,3 +1,19 @@
+**Which Chargers UDFAs have the best shot at making the roster? Mailbag**\
+`The Chargers' new regime isn't tied to the bottom-of-the-roster holdovers, creating opportunity for several of the 22 undrafted rookies. `\
+https://nytimes.com/athletic/5627643/2024/07/10/chargers-mailbag-undrafted-free-agents-training-camp/
+
+**Zach Edey is already showing doubters what he can do in the NBA**\
+`For the better part of three years, talk of how Edey's game would translate to the NBA level dominated his college development.`\
+https://nytimes.com/athletic/5627986/2024/07/10/zach-edey-summer-league-grizzlies/
+
+**Gardner Minshew or Aidan O'Connell? Where QB ranks among Raiders' top position battles**\
+`Minshew and O'Connell will battle for the starting QB job, but what other positions are up for grabs for the Raiders?`\
+https://nytimes.com/athletic/5624918/2024/07/10/raiders-quarterback-battle-minshew-oconnell/
+
+**A Netherlands penalty cheat sheet for England's Jordan Pickford**\
+`After Pickford starred against Switzerland, Matt Pyzdrowski pored through hours of footage to analyse the Netherlands' penalty-takers`\
+https://nytimes.com/athletic/5625975/2024/07/10/netherlands-penalty-cheat-sheet-england-pickford/
+
 **Aston Villa move to re-sign Philogene from Hull City**\
 `Aston Villa have made a move to re-sign Jaden Philogene from Hull City by activating a matching rights clause they negotiated in the deal that saw him sold to the Championship club last summer.`\
 https://nytimes.com/athletic/5626592/2024/07/10/aston-villa-jaden-philogene/
