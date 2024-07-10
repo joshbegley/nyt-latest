@@ -1,3 +1,7 @@
+**Nike commemorates 1999 USWNT World Cup victory**\
+`On the anniversary of Brandi Chastain famously ripping off her victorious jersey, Nike is bringing back the kits to a modern-day audience.`\
+https://nytimes.com/athletic/5629098/2024/07/10/nike-womens-world-cup-anniversary-collection/
+
 **U.S. and Allies Aim to Forge Commitments to Ukraine That Will Endure**\
 `The specter of a second Donald J. Trump presidency injects new urgency into the NATO summit this week. President Biden and other leaders agree Ukraine should have an “irreversible” path to membership.`\
 https://nytimes.com/2024/07/10/us/politics/nato-ukraine-trump-biden.html

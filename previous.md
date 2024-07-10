@@ -1,3 +1,7 @@
+**Nike commemorates 1999 USWNT World Cup victory**\
+`On the anniversary of Brandi Chastain famously ripping off her victorious jersey, Nike is bringing back the kits to a modern-day audience.`\
+https://nytimes.com/athletic/5629098/2024/07/10/nike-womens-world-cup-anniversary-collection/
+
 **U.S. and Allies Aim to Forge Commitments to Ukraine That Will Endure**\
 `The specter of a second Donald J. Trump presidency injects new urgency into the NATO summit this week. President Biden and other leaders agree Ukraine should have an “irreversible” path to membership.`\
 https://nytimes.com/2024/07/10/us/politics/nato-ukraine-trump-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/10/arts/dance/review-smuin-contemporary-ballet-joyce
 **Newcastle sign England's Demi Stokes**\
 `Newcastle United Women have confirmed the signing of England international Demi Stokes.`\
 https://nytimes.com/athletic/5629201/2024/07/10/demi-stokes-newcastle-man-city-transfer/
-
-**George Clooney, a Major Biden Fund-Raiser, Urges Him to Drop Out**\
-`Mr. Clooney, who co-hosted a lavish fund-raiser for President Biden last month, wrote in a guest essay in The New York Times that Democrats “are not going to win in November with this president.”`\
-https://nytimes.com/2024/07/10/us/politics/george-clooney-biden-drop-out.html
 
