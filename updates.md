@@ -1,3 +1,7 @@
+**It’s Coming Home: Dream, boast or way of life?**\
+`Whether the song is arrogant or earnest or ironic has become one of the more contested topics of the last few years`\
+https://nytimes.com/athletic/5551953/2024/07/10/england-coming-home-three-lions/
+
 **With Tiny Shampoo Bottles Soon to Be Banned, N.Y. Hotels Weigh Options**\
 `Starting Jan. 1, large hotels will no longer be able to offer small containers of shampoo and conditioner. The bill is part of an effort to cut down on single-use plastic.`\
 https://nytimes.com/2024/07/10/nyregion/ny-hotels-toiletry-single-use-plastic.html
