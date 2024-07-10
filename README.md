@@ -14,7 +14,7 @@ https://nytimes.com/2024/07/10/world/middleeast/gaza-schoolyard-strike-israel.ht
 `Election results in Britain and France show that voters can get behind liberal candidates as long as they’re fresh faces.`\
 https://nytimes.com/2024/07/10/opinion/biden-france-uk-elections.html
 
-**The Messages From Biden That are Understood, and Not**\
+**The Messages From Biden That Are Understood, and Not**\
 `A president who long delighted in public speech is now sometimes hard to understand. Does it matter?`\
 https://nytimes.com/2024/07/10/us/politics/biden-speech-articulation.html
 
