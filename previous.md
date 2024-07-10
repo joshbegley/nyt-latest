@@ -1,3 +1,15 @@
+**U.A.E. Puts 84 Civil Society Members on Trial Again, Sentencing 43 to Life**\
+`The Emirati lawyers, academics and activists, who were imprisoned in national security trials, had been scheduled to be released.`\
+https://nytimes.com/2024/07/10/world/middleeast/uae-retrial-civil-society-members.html
+
+**What we learned about Justin Jefferson, Vikings from Netflix's 'Receiver' series**\
+`New series sheds light on Minnesota's superstar WR, reflecting on the challenges of the 2023 season.`\
+https://nytimes.com/athletic/5629641/2024/07/10/justin-jefferson-netflix-receiver/
+
+**Carol Bongiovi, Jon Bon Jovi’s Mother, Dies at 83**\
+`Nicknamed Mom Jovi, she founded the Jon Bon Jovi fan club, and earlier was a Marine and a Playboy bunny.`\
+https://nytimes.com/2024/07/10/arts/music/carol-bongiovi-dead.html
+
 **Biden Sets Second Post-Debate Interview, This Time With NBC’s Lester Holt**\
 `The interview will air in prime-time on NBC on Monday, the first night of the Republican National Convention.`\
 https://nytimes.com/2024/07/10/business/media/biden-interview-nbc-lester-holt.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/10/world/europe/macron-france-letter-left-split.html
 **Jontay Porter pleads guilty to conspiracy to commit wire fraud**\
 `He was released on a $250,000 bond signed by his mother and his wife, and his sentencing has been scheduled for Dec. 18.`\
 https://nytimes.com/athletic/5629647/2024/07/10/jontay-porter-pleads-guilty-betting-scandal/
-
-**It’s Not Just Your Garden: ‘Hydrangea Hysteria’ Blooms in the Northeast**\
-`Here’s why hydrangeas are having a banner year on the East Coast and how you can enjoy them.`\
-https://nytimes.com/2024/07/10/us/hydrangea-flower-bloom-season.html
-
-**William E. Burrows, Historian of the Space Age, Is Dead at 87**\
-`In books and articles he wrote about the militarization of space and believed that investing in exploration would ultimately “protect Earth and guarantee the survival of humanity.”`\
-https://nytimes.com/2024/07/10/books/william-e-burrows-dead.html
-
-**Trump Talks V.P. Shortlist Pros and Cons (He Likes Vance’s Beard)**\
-`Donald J. Trump has not generally offered explicit evaluations of his top contenders, but he acknowledged on Wednesday that Doug Burgum’s abortion ban and Marco Rubio’s Florida residency complicate his choice.`\
-https://nytimes.com/2024/07/10/us/politics/trump-vp-shortlist-vance-burgum-rubio.html
 
