@@ -1,3 +1,11 @@
+**Statcast at 10: From MLB's secret project to inescapable part of modern baseball**\
+`Statcast is everywhere — produced and promoted by MLB — but not for everyone. It enthralls analytically inclined fans and irks others.`\
+https://nytimes.com/athletic/5627303/2024/07/10/mlb-statcast-10-year-anniversary/
+
+**'I’m not a coach': Chris Paul is eager to 'hoop' with Victor Wembanyama and Spurs**\
+`Paul and Harrison Barnes will bring lots of experience to San Antonio next season.`\
+https://nytimes.com/athletic/5628028/2024/07/10/chris-paul-spurs-victor-wembanyama/
+
 **Will Notre Dame finish strong after fast start, quiet summer on recruiting trail?**\
 `Summer has been mostly fits and starts for Notre Dame on the recruiting front. What's next after losing Ivan Taylor to Michigan?`\
 https://nytimes.com/athletic/5627057/2024/07/10/notre-dame-football-recruiting-2025-class/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5593268/2024/07/10/matthew-judon-patriots-contract/
 **Brighton appoint Melbourne City's Vidosic as new head coach**\
 `Brighton Women have appointed former Australia international Dario Vidosic as their new head coach.`\
 https://nytimes.com/athletic/5628352/2024/07/10/dario-vidosic-brighton-women-head-coach/
-
-**Rising Frustration in Houston After Millions Lost Power in Storm**\
-`With outages expected to last days, a top state official promised to look into whether the utility company could have done more to prepare for Hurricane Beryl.`\
-https://nytimes.com/2024/07/10/us/hurricane-beryl-texas-grid.html
-
-**Centuries of Avalanches Are Stored in Tree Rings**\
-`Discovering evidence of deadly deluges of snow from the past could help protect people on mountains around the world, researchers say.`\
-https://nytimes.com/2024/07/10/science/avalanche-tree-rings.html
 
