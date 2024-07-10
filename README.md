@@ -1,3 +1,11 @@
+**In Constant Battle With Insurers, Doctors Reach for a Cudgel: A.I.**\
+`As health plans increasingly rely on technology to deny treatment, physicians are fighting back with chatbots that synthesize research and make the case.`\
+https://nytimes.com/2024/07/10/health/doctors-insurers-artificial-intelligence.html
+
+**How a misdemeanor plea deal offered to Alec Baldwin last year fell apart.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/how-a-misdemeanor-plea-deal-offered-to-alec-baldwin-last-year-fell-apart
+
 **Kawhi Leonard not playing for Team USA in Olympics**\
 `Boston Celtics’ Derrick White is considered a strong replacement candidate.`\
 https://nytimes.com/athletic/5629094/2024/07/10/kawhi-leonard-out-usa-olympics-team/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5629069/2024/07/10/philippe-coutinho-vasco-da-gama-
 **In TMZ Video, George Stephanopoulos Says Biden Can’t Serve Another Term**\
 `The ABC anchor, in a surreptitious recording, said, “I don’t think he can serve four more years.”`\
 https://nytimes.com/2024/07/10/business/media/tmz-george-stephanopoulos-biden.html
-
-**Yankees sign ex-Blue Jays lefty Tim Mayza**\
-`It's a minor-league deal for the 32-year-old, who was released by the Blue Jays last week after clearing waivers.`\
-https://nytimes.com/athletic/5629012/2024/07/10/new-york-yankees-tim-mayza-signing/
-
-**Mr. Baldwin says he didn’t pull the trigger. Prosecutors don’t believe him.**\
-`By Julia Jacobs`\
-https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/mr-baldwin-says-he-didnt-pull-the-trigger-prosecutors-dont-believe-him
 
