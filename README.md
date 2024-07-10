@@ -1,3 +1,19 @@
+**Spain vs. England Euro 2024 final odds: Spain favored to win for the fourth time**\
+`Spain is favored against England for Sunday's Euro 2024 final. Spain is seeking its fourth title while England is looking for its first.`\
+https://nytimes.com/athletic/5629805/2024/07/10/spain-england-euro-2024-final-odds/
+
+**The Giants' messy search for a shortstop turned out OK after all**\
+`The Giants have ended up with the best possible shortstop arrangement, even if it was a little by accident.`\
+https://nytimes.com/athletic/5627836/2024/07/10/sf-giants-shortstop-brett-wiisely-tyler-fitzgerald/
+
+**Judge Suggests He Is Likely to Dismiss Giuliani’s Bankruptcy Case**\
+`If the judge follows through, it would allow creditors to pursue foreclosures, repossessions and lawsuits that have been on hold as Rudolph Giuliani sought the protection of bankruptcy law.`\
+https://nytimes.com/2024/07/10/us/politics/giuliani-bankruptcy-case.html
+
+**Alec Baldwin Trial Over ‘Rust’ Movie Shooting Begins**\
+`Alec Baldwin is on trial on a charge of involuntary manslaughter for his role in the fatal shooting of a cinematographer on the set of the film “Rust.”`\
+https://nytimes.com/video/us/100000009564039/alec-baldwin-rust-trial.html
+
 **Wave, Jill Ellis not found to have violated NWSL policy**\
 `The NWSL investigated allegations against the Wave via a third-party legal representative between February and April 2024.`\
 https://nytimes.com/athletic/5629789/2024/07/10/jill-ellis-wave-nwsl-investigation/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/07/10/business/archegos-bill-hwang-guilty.html
 **Thursday Briefing: Pressure Mounts for Biden to Step Aside**\
 `Plus, Israel urges Gaza City to evacuate.`\
 https://nytimes.com/2024/07/10/briefing/biden-campaign-pelosi-israel-gaza.html
-
-**Microsoft Surrenders OpenAI Board Position**\
-`As regulatory scrutiny picks up, the tech giant says it is pleased with the progress OpenAI has made with governance and considers its oversight role unnecessary.`\
-https://nytimes.com/2024/07/10/technology/microsoft-openai-board.html
-
-**Arkansas Rejects Abortion Rights Amendment Petition on Technicality**\
-`The Arkansas secretary of state said that the group collecting signatures to put an abortion-rights amendment on the ballot had failed to submit some of the necessary paperwork.`\
-https://nytimes.com/2024/07/10/us/politics/arkansas-abortion-amendment.html
-
-**Joe Bonsall, Tenor Voice of the Oak Ridge Boys, Dies at 76**\
-`His vocals on songs like “Elvira” were a key to the evolution of the group, originally a Southern gospel quartet, into perennial country hitmakers.`\
-https://nytimes.com/2024/07/10/arts/music/joe-bonsall-dead.html
-
-**What’s in Our Queue? ‘Conan O’Brien Must Go’ and More**\
-`I’m the digital editor for the Culture desk at The New York Times. Here are five things that have delighted me recently.`\
-https://nytimes.com/interactive/2024/07/10/arts/editors-recommendations-conanobrien.html
 
