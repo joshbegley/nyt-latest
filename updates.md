@@ -1,3 +1,7 @@
+**What’s in Store for the 2024 Hurricane Season?**\
+`Hurricane Beryl set records as the earliest Category 5 storm ever. What does that mean for the rest of hurricane season? Here’s what travelers need to know.`\
+https://nytimes.com/2024/07/10/travel/hurricane-season-travel-insurance.html
+
 **Overlooked No More: Ursula Parrott, Best-Selling Author and Voice for the Modern Woman**\
 `Her writing, about marriage and divorce, sex and its consequences, work-life balance, the challenges of child-rearing and other topics, still resonates today.`\
 https://nytimes.com/2024/07/10/obituaries/ursula-parrott-overlooked.html
