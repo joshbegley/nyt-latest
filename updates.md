@@ -1,3 +1,7 @@
+**Hot Weather Bakes Millions in U.S., as Many in Houston Swelter Without Power**\
+`More than 144 million Americans from the West Coast to the I-95 corridor were under heat advisories and warnings Wednesday.`\
+https://nytimes.com/2024/07/10/us/heat-power-outage-houston.html
+
 **Biden Should Listen Hard to Trump’s Ravings**\
 `Every speech makes it clearer why no sacrifice is too great to keep Trump out of the White House.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-doral-biden

@@ -1,3 +1,7 @@
+**Hot Weather Bakes Millions in U.S., as Many in Houston Swelter Without Power**\
+`More than 144 million Americans from the West Coast to the I-95 corridor were under heat advisories and warnings Wednesday.`\
+https://nytimes.com/2024/07/10/us/heat-power-outage-houston.html
+
 **Biden Should Listen Hard to Trump’s Ravings**\
 `Every speech makes it clearer why no sacrifice is too great to keep Trump out of the White House.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-doral-biden
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/10/us/politics/elissa-slotkin-biden.html
 **Elena Rybakina's Wimbledon form is as serene as it is ominous**\
 `The Kazakh dismantled Svitolina with a ruthless display of serving and returning. When she is in form, she makes tennis effortless`\
 https://nytimes.com/athletic/5629320/2024/07/10/elena-rybakina-wimbledon/
-
-**The judge knows the outlines of the case, having presided over the trial of the armorer.**\
-`By Julia Jacobs`\
-https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/the-judge-knows-the-outlines-of-the-case-having-presided-over-the-trial-of-the-armorer
 
