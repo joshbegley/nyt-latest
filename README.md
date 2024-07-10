@@ -1,3 +1,11 @@
+**EA Sports releases top QBs in CFB25: Did they get the top 8 right?**\
+`After months of anticipation, the ratings are finally in.`\
+https://nytimes.com/athletic/5628962/2024/07/10/college-football-25-qb-ratings-reaction/
+
+**Rep. Pat Ryan, Moderate Front-Liner, Calls on Biden to Step Aside**\
+`Mr. Ryan, the eighth member of Congress to publicly call on President Biden to drop out of the race, said Mr. Biden seemed incapable of making a case against Donald Trump.`\
+https://nytimes.com/2024/07/10/nyregion/biden-pat-ryan.html
+
 **Mr. Baldwin’s lawyers cannot cite arguments prosecutors made at the trial of the armorer that could help their case.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/mr-baldwins-lawyers-cannot-cite-arguments-prosecutors-made-at-the-trial-of-the-armorer-that-could-help-their-case
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/10/us/politics/george-clooney-biden-drop-out.html
 **Should My Wife and I Tell Our 8-Year-Old How Much Money We Make?**\
 `The magazine’s Ethicist columnist on the kinds of information that can be burdensome to children.`\
 https://nytimes.com/2024/07/10/magazine/parents-money-conversation-ethics.html
-
-**The Windup: Ten years of Statcast? Already?**\
-`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
-https://nytimes.com/athletic/5629182/2024/07/10/statcast-mlb-draft-travis-bazzana-spencer-schwellenbach-the-windup/
-
-**Mason Greenwood's Man Utd situation explained: How long can he be kept from training?**\
-`What are United and Greenwood's options if a move to Marseille falls through?`\
-https://nytimes.com/athletic/5628642/2024/07/10/mason-greenwood-transfer-and-training/
 
