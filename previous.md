@@ -1,3 +1,7 @@
+**Cohen Asks the Supreme Court to Let Him Sue Trump Over His Imprisonment**\
+`For decades, the court has been reluctant to allow lawsuits against individual federal officials. Donald Trump’s fixer-turned-nemesis believes he has found an exception.`\
+https://nytimes.com/2024/07/10/nyregion/michael-cohen-trump-lawsuit.html
+
 **Spain vs. England Euro 2024 final odds: Spain favored to win for the fourth time**\
 `Spain is favored against England for Sunday's Euro 2024 final. Spain is seeking its fourth title while England is looking for its first.`\
 https://nytimes.com/athletic/5629805/2024/07/10/spain-england-euro-2024-final-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/10/us/politics/trump-rally-biden.html
 **Jury Finds Archegos Founder Bill Hwang Guilty of Fraud and Racketeering**\
 `The 2021 collapse of Archegos Capital Management led to some $10 billion in losses for some Wall Street banks. He could spend the rest of his life in prison.`\
 https://nytimes.com/2024/07/10/business/archegos-bill-hwang-guilty.html
-
-**Thursday Briefing: Pressure Mounts for Biden to Step Aside**\
-`Plus, Israel urges Gaza City to evacuate.`\
-https://nytimes.com/2024/07/10/briefing/biden-campaign-pelosi-israel-gaza.html
 

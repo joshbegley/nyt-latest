@@ -1,3 +1,7 @@
+**Cohen Asks the Supreme Court to Let Him Sue Trump Over His Imprisonment**\
+`For decades, the court has been reluctant to allow lawsuits against individual federal officials. Donald Trump’s fixer-turned-nemesis believes he has found an exception.`\
+https://nytimes.com/2024/07/10/nyregion/michael-cohen-trump-lawsuit.html
+
 **Judge Suggests He Is Likely to Dismiss Giuliani’s Bankruptcy Case**\
 `If the judge follows through, it would allow creditors to pursue foreclosures, repossessions and lawsuits that have been on hold as Rudolph Giuliani sought the protection of bankruptcy law.`\
 https://nytimes.com/2024/07/10/us/politics/rudy-giuliani-bankruptcy-case.html
