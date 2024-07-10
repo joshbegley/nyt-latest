@@ -1,3 +1,15 @@
+**As trade deadline looms, how many more starts will Yusei Kikuchi make for the Blue Jays?**\
+`On Tuesday, Kikuchi limited the Giants to six hits in what John Schneider called “if not the best, one of the best outings he's had.”`\
+https://nytimes.com/athletic/5628270/2024/07/10/yusei-kikuchi-blue-jays-mlb-trade-deadline/
+
+**Spain take risks and reap the rewards - it's what makes them so different at Euro 2024**\
+`In a parallel universe, France won Tuesday's Euro 2024 semi-final after Kylian Mbappe was allowed too much space — but that's Spain`\
+https://nytimes.com/athletic/5628396/2024/07/10/spain-risks-euro-2024-final/
+
+**Powell Cheers Markets Looking for Signs on Rate Cuts**\
+`The S&P 500 winning streak rolled on after the Fed chair made encouraging comments about inflation and the state of the labor market.`\
+https://nytimes.com/2024/07/10/business/dealbook/powell-fed-rate-cuts.html
+
 **The Athletic FC: Yamal, perfection and payback; will Messi reach Ronaldo's goalscoring mark?**\
 `Today in The Athletic FC: Yamal's stunner and one-move checkmate for Rabiot. Plus: Argentina and Messi still in search of 'greatest' tags`\
 https://nytimes.com/athletic/5628628/2024/07/10/the-athletic-fc-yamal-perfection-and-payback-will-messi-reach-ronaldos-goalscoring-mark/
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/5627643/2024/07/10/chargers-mailbag-undrafted-free-
 **Zach Edey is already showing doubters what he can do in the NBA**\
 `For the better part of three years, talk of how Edey's game would translate to the NBA level dominated his college development.`\
 https://nytimes.com/athletic/5627986/2024/07/10/zach-edey-summer-league-grizzlies/
-
-**Gardner Minshew or Aidan O'Connell? Where QB ranks among Raiders' top position battles**\
-`Minshew and O'Connell will battle for the starting QB job, but what other positions are up for grabs for the Raiders?`\
-https://nytimes.com/athletic/5624918/2024/07/10/raiders-quarterback-battle-minshew-oconnell/
-
-**A Netherlands penalty cheat sheet for England's Jordan Pickford**\
-`After Pickford starred against Switzerland, Matt Pyzdrowski pored through hours of footage to analyse the Netherlands' penalty-takers`\
-https://nytimes.com/athletic/5625975/2024/07/10/netherlands-penalty-cheat-sheet-england-pickford/
-
-**Aston Villa move to re-sign Philogene from Hull City**\
-`Aston Villa have made a move to re-sign Jaden Philogene from Hull City by activating a matching rights clause they negotiated in the deal that saw him sold to the Championship club last summer.`\
-https://nytimes.com/athletic/5626592/2024/07/10/aston-villa-jaden-philogene/
 
