@@ -1,3 +1,11 @@
+**EA Sports releases top QBs in CFB25: Did they get the top 8 right?**\
+`After months of anticipation, the ratings are finally in.`\
+https://nytimes.com/athletic/5628962/2024/07/10/college-football-25-qb-ratings-reaction/
+
+**Rep. Pat Ryan, Moderate Front-Liner, Calls on Biden to Step Aside**\
+`Mr. Ryan, the eighth member of Congress to publicly call on President Biden to drop out of the race, said Mr. Biden seemed incapable of making a case against Donald Trump.`\
+https://nytimes.com/2024/07/10/nyregion/biden-pat-ryan.html
+
 **Mr. Baldwin’s lawyers cannot cite arguments prosecutors made at the trial of the armorer that could help their case.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/mr-baldwins-lawyers-cannot-cite-arguments-prosecutors-made-at-the-trial-of-the-armorer-that-could-help-their-case
