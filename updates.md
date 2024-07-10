@@ -1,3 +1,11 @@
+**Man Utd face PSR battle after £71.4m loss in latest accounts**\
+`Manchester United posted a £71.`\
+https://nytimes.com/athletic/5628801/2024/07/10/man-utd-psr-accounts-finances/
+
+**"I don’t know about feeling Colombian, but I get emotional when I hear the national anthem"**\
+`Nestor Lorenzo played in a World Cup final for Argentina - he's now masterminding Colombia's fine run at Copa America in distinctive fashion`\
+https://nytimes.com/athletic/5628047/2024/07/10/nestor-lorenzo-colombia-copa-america-james-rodriguez/
+
 **The strike killed at least 27 people and wounded dozens, Gazan health authorities said.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/07/10/world/israel-gaza-war-hamas/the-strike-killed-at-least-27-people-and-wounded-dozens-gazan-health-authorities-said

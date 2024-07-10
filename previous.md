@@ -1,3 +1,11 @@
+**Man Utd face PSR battle after £71.4m loss in latest accounts**\
+`Manchester United posted a £71.`\
+https://nytimes.com/athletic/5628801/2024/07/10/man-utd-psr-accounts-finances/
+
+**"I don’t know about feeling Colombian, but I get emotional when I hear the national anthem"**\
+`Nestor Lorenzo played in a World Cup final for Argentina - he's now masterminding Colombia's fine run at Copa America in distinctive fashion`\
+https://nytimes.com/athletic/5628047/2024/07/10/nestor-lorenzo-colombia-copa-america-james-rodriguez/
+
 **The strike killed at least 27 people and wounded dozens, Gazan health authorities said.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/07/10/world/israel-gaza-war-hamas/the-strike-killed-at-least-27-people-and-wounded-dozens-gazan-health-authorities-said
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5628270/2024/07/10/yusei-kikuchi-blue-jays-mlb-trad
 **Spain take risks and reap the rewards - it's what makes them so different at Euro 2024**\
 `In a parallel universe, France won Tuesday's Euro 2024 semi-final after Kylian Mbappe was allowed too much space - but that's Spain`\
 https://nytimes.com/athletic/5628396/2024/07/10/spain-risks-euro-2024-final/
-
-**Powell Cheers Markets Looking for Signs on Rate Cuts**\
-`The S&P 500 winning streak rolled on after the Fed chair made encouraging comments about inflation and the state of the labor market.`\
-https://nytimes.com/2024/07/10/business/dealbook/powell-fed-rate-cuts.html
-
-**The Athletic FC: Yamal, perfection and payback; will Messi reach Ronaldo's goalscoring mark?**\
-`Today in The Athletic FC: Yamal's stunner and one-move checkmate for Rabiot. Plus: Argentina and Messi still in search of 'greatest' tags`\
-https://nytimes.com/athletic/5628628/2024/07/10/the-athletic-fc-yamal-perfection-and-payback-will-messi-reach-ronaldos-goalscoring-mark/
 
