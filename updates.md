@@ -1,3 +1,7 @@
+**Quinn: The golfer I am and the golfer I want to be collide at North Berwick**\
+`The first round in Scotland came with a promise, but then human nature took hold.`\
+https://nytimes.com/athletic/5629437/2024/07/10/north-berwick-golf-club-playing/
+
 **The Tragedy at This Year’s Hajj Is Just the Beginning**\
 `The heat has come for Americans — and everyone else, too.`\
 https://nytimes.com/2024/07/10/opinion/hajj-heat-climate-death.html
