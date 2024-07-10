@@ -1,3 +1,7 @@
+**Cubs begin potential last stand before trade deadline with complete win in Baltimore **\
+`It's been a disappointing season for the Cubs. If there's any chance for them to make the playoffs, they'll need more games like Tuesday's.`\
+https://nytimes.com/athletic/5628070/2024/07/09/cubs-last-stand-before-trade-deadline/
+
 **U.S. Marshal Shoots Man in Attempted Carjacking Near Sotomayor’s Home**\
 `The marshal was sitting in an unmarked federal vehicle near the Supreme Court justice’s home when a man approached the vehicle and pointed a handgun at him through the driver’s side window.`\
 https://nytimes.com/2024/07/09/us/politics/carjacking-shooting-sotomayor.html
