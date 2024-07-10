@@ -1,3 +1,11 @@
+**Euros teams playing in the Copa America is the last thing football needs**\
+`The only comparisons we need between European and South American sides come at the World Cup. Reaching out to other nations makes more sense`\
+https://nytimes.com/athletic/5626521/2024/07/10/uefa-conmebol-closer-ties-euro-2024-copa-america/
+
+**Christina Unkel interview: Team president, attorney, app creator and Euros breakout star**\
+`The U.S. official was an unknown for many UK viewers but her role with ITV at the Euros has helped her become a household name`\
+https://nytimes.com/athletic/5624783/2024/07/10/christina-unkel-referee-var-interview/
+
 **Wednesday Briefing**\
 `Biden at the NATO summit in Washington.`\
 https://nytimes.com/2024/07/10/briefing/biden-nato-ukraine-gaza.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5627828/2024/07/10/euro-copa-america-highlights/
 **As Violence Surges, Can Pakistan Protect Its Chinese Projects?**\
 `China has invested billions in megaprojects across Pakistan. But a resurgence in militant violence is threatening to derail badly needed investment.`\
 https://nytimes.com/2024/07/10/world/asia/pakistan-china-attacks.html
-
-**Defeated by A.I., a Legend in the Board Game Go Warns: Get Ready for What’s Next**\
-`Lee Saedol was one of the world’s top Go players, and his shocking loss to an A.I. opponent was a harbinger of a new, unsettling era. “It may not be a happy ending,” he says.`\
-https://nytimes.com/2024/07/10/world/asia/lee-saedol-go-ai.html
-
-**Britain Has Huge Clean Energy Ambitions, but Are They Realistic?**\
-`Analysts warn that the Labour Party’s proposals are unlikely to be cheap and could come at the cost of jobs in the oil and gas industry.`\
-https://nytimes.com/2024/07/10/business/britain-green-energy-transition-jobs.html
 
