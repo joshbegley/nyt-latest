@@ -1,3 +1,7 @@
+**Could Messi catch Ronaldo at top of international scoring charts?**\
+`Messi is two years younger than his great rival but trails by 21 goals - will he be able to edge past having overtaken Ali Daei?`\
+https://nytimes.com/athletic/5628084/2024/07/10/lionel-messi-cristiano-ronaldo-scoring/
+
 **Supporters of the High Line Aim to Block Plan to Build a Casino Nearby**\
 `The nonprofit organization that steers the popular greenway attraction on Manhattan’s West Side says building a casino in Hudson Yards could harm parkgoers’ experience.`\
 https://nytimes.com/2024/07/10/nyregion/high-line-casino-hudson-yards.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5627513/2024/07/10/fantasy-football-debate-jonathan
 **Jake Sullivan: You Can Count on a Strong NATO**\
 `The U.S. national security adviser argues that America’s allies in NATO are pulling their weight and paying their fair share of the costs of a common defense.`\
 https://nytimes.com/2024/07/10/opinion/jake-sullivan-nato-russia.html
-
-**Rays' Wander Franco charged with sexually abusing a minor**\
-`Franco, 23, has not played since Aug. 12, 2023, when allegations surfaced about an inappropriate relationship with a minor.`\
-https://nytimes.com/athletic/5628183/2024/07/10/wander-franco-sexual-abuse-charge/
 
