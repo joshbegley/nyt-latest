@@ -1,3 +1,7 @@
+**Review: A Mixed Bill’s Highlight Bodes Well for the Future**\
+`The best dance by far on Smuin Contemporary Ballet’s program at the Joyce is by Amy Seiwert, who is about to be the company’s director.`\
+https://nytimes.com/2024/07/10/arts/dance/review-smuin-contemporary-ballet-joyce.html
+
 **Newcastle sign England's Demi Stokes**\
 `Newcastle United Women have confirmed the signing of England international Demi Stokes.`\
 https://nytimes.com/athletic/5629201/2024/07/10/demi-stokes-newcastle-man-city-transfer/
