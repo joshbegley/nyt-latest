@@ -1,3 +1,7 @@
+**Ukraine’s President Pleads for More Weapons With Fewer Restrictions**\
+`“America doesn’t shy away from its friends,” Volodymyr Zelensky said in a speech in Washington as leaders gathered in the city for a NATO summit.`\
+https://nytimes.com/2024/07/09/us/politics/ukraine-president-nato-weapons.html
+
 **Samsung Union Workers Launch Indefinite Strike**\
 `The tech giant’s largest union escalated its dispute with management after failing to reach an agreement over pay and working policies.`\
 https://nytimes.com/2024/07/09/business/samsung-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/09/crosswords/daily-puzzle-07-10-2024.html
 **U.S. and Allies Target Russian Bots Working to Spread Propaganda**\
 `Intelligence officials from three countries flagged a Russian influence campaign that used artificial intelligence to create nearly 1,000 fake accounts on the social media platform X.`\
 https://nytimes.com/2024/07/09/business/russian-bots-artificial-intelligence-propaganda.html
-
-**Giants' 'Hard Knocks' takeaways: Malik Nabers piques interest at combine in episode 2**\
-`The LSU receiver was frank with the team about his competitive fire. Also, more on the Saquon Barkley saga, and Brian Daboll grills QBs.`\
-https://nytimes.com/athletic/5619604/2024/07/09/new-york-giants-hard-knocks-malik-nabers-brian-daboll/
 
