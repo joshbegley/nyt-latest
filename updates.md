@@ -1,3 +1,11 @@
+**U.K. Police Searching for Man Suspected of Killing 3 Women With Crossbow**\
+`The women died at the scene near London on Tuesday, the police said. The BBC identified the victims as the wife and children of one of its commentators.`\
+https://nytimes.com/2024/07/10/world/europe/crossbow-attack-uk-manhunt.html
+
+**Canucks offseason mailbag, part 1: Is finding linemates for Elias Pettersson challenging?**\
+`Also: Should the Canucks target additional puck-moving help on the back end? Which centre fits best with Dakota Joshua and Conor Garland?`\
+https://nytimes.com/athletic/5623155/2024/07/10/canucks-offseason-elias-pettersson-linemates/
+
 **Pelosi Suggests That Biden Should Reconsider Decision to Stay in the Race**\
 `Representative Nancy Pelosi, a longtime Biden ally and the former speaker, is the most senior member of his party who has so far suggested he consider dropping out.`\
 https://nytimes.com/2024/07/10/us/politics/pelosi-biden-drop-out.html
