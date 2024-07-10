@@ -1,3 +1,7 @@
+**Yankees sign ex-Blue Jays lefty Tim Mayza**\
+`It's a minor-league deal for the 32-year-old, who was released by the Blue Jays last week after clearing waivers.`\
+https://nytimes.com/athletic/5629012/2024/07/10/new-york-yankees-tim-mayza-signing/
+
 **Mr. Baldwin says he didn’t pull the trigger. Prosecutors don’t believe him.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/mr-baldwin-says-he-didnt-pull-the-trigger-prosecutors-dont-believe-him
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5628702/2024/07/10/kylian-mbappe-real-madrid-shirt-
 **U.K. Police Searching for Man Suspected of Killing 3 Women With Crossbow**\
 `The women died at the scene near London on Tuesday, the police said. The BBC identified the victims as the wife and children of one of its commentators.`\
 https://nytimes.com/2024/07/10/world/europe/crossbow-attack-uk-manhunt.html
-
-**Canucks offseason mailbag, part 1: Is finding linemates for Elias Pettersson challenging?**\
-`Also: Should the Canucks target additional puck-moving help on the back end? Which centre fits best with Dakota Joshua and Conor Garland?`\
-https://nytimes.com/athletic/5623155/2024/07/10/canucks-offseason-elias-pettersson-linemates/
 
