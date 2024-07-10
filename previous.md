@@ -1,3 +1,7 @@
+**Dissension in the ranks: Debating Jonathan Taylor vs. Saquon Barkley for fantasy football 2024**\
+`Two of our fantasy football experts, Jake Ciely and Dane Martinez, debate who should go first in drafts, Saquon Barkley or Jonathan Taylor.`\
+https://nytimes.com/athletic/5627513/2024/07/10/fantasy-football-debate-jonathan-taylor-vs-saquon-barkley/
+
 **Jake Sullivan: You Can Count on a Strong NATO**\
 `The U.S. national security adviser argues that America’s allies in NATO are pulling their weight and paying their fair share of the costs of a common defense.`\
 https://nytimes.com/2024/07/10/opinion/jake-sullivan-nato-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5625085/2024/07/10/ivan-toney-england-penalty-techn
 **'Harsh words' and the Koeman debate: Netherlands' rocky road to the Euro 2024 semi-finals**\
 `Ronald Koeman's cutting comments about his own players have appeared unusual and yet the Dutch are a game away from the final`\
 https://nytimes.com/athletic/5625814/2024/07/10/netherlands-koeman-england-semi-final/
-
-**Euros teams playing in the Copa America is the last thing football needs**\
-`The only comparisons we need between European and South American sides come at the World Cup. Reaching out to other nations makes more sense`\
-https://nytimes.com/athletic/5626521/2024/07/10/uefa-conmebol-closer-ties-euro-2024-copa-america/
 
