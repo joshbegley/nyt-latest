@@ -1,3 +1,7 @@
+**Quinn: The golfer I am and the golfer I want to be collide at North Berwick**\
+`The first round in Scotland came with a promise, but then human nature took hold.`\
+https://nytimes.com/athletic/5629437/2024/07/10/north-berwick-golf-club-playing/
+
 **The Tragedy at This Year’s Hajj Is Just the Beginning**\
 `The heat has come for Americans — and everyone else, too.`\
 https://nytimes.com/2024/07/10/opinion/hajj-heat-climate-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/10/us/politics/house-biden-trump.html
 **CFB25's player ratings are here: Who belongs in the top 100?**\
 `EA developers have touted the attention to detail they've poured into the video game. How'd they do in their ratings of this season's stars?`\
 https://nytimes.com/athletic/5628987/2024/07/10/college-football-player-ratings-top-100-underrated/
-
-**Should Democrats Press Biden to Step Aside?**\
-`Readers react to an editorial urging party leaders to do so. Also: The debate over sex testing at the Olympics.`\
-https://nytimes.com/2024/07/10/opinion/joe-biden-democrats-withdrawal.html
 
