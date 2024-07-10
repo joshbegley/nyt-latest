@@ -1,3 +1,11 @@
+**Will Notre Dame finish strong after fast start, quiet summer on recruiting trail?**\
+`Summer has been mostly fits and starts for Notre Dame on the recruiting front. What's next after losing Ivan Taylor to Michigan?`\
+https://nytimes.com/athletic/5627057/2024/07/10/notre-dame-football-recruiting-2025-class/
+
+**Why the Knicks are an ideal fit for Mikal Bridges**\
+`Bridges has a coach who thinks the same way he does, a locker room that already knows him and a situation built to enhance his game.`\
+https://nytimes.com/athletic/5627275/2024/07/10/knicks-mikal-bridges-ideal-fit/
+
 **Campy Actor, Serious Fashion**\
 `Cole Escola is dressing the part of a red-carpet star after achieving a new level of fame as the star of the play “Oh, Mary!”`\
 https://nytimes.com/2024/07/10/style/cole-escola-oh-mary-broadway-style.html
