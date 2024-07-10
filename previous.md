@@ -1,3 +1,19 @@
+**Blues sign twice-bought-out defenseman Ryan Suter to 1-year, $775,000 contract**\
+`Suter is the second player in league history to be bought out twice, after Tony DeAngelo.`\
+https://nytimes.com/athletic/5630130/2024/07/10/blues-sign-ryan-suter/
+
+**A top Democratic fund-raiser wants Biden to make way for a new nominee.**\
+`Andrew Tobias, a longtime treasurer for the Democratic National Committee, thinks the party’s ticket would be stronger in November without the president’s name atop it.`\
+https://nytimes.com/live/2024/07/10/us/biden-trump-election/a-top-democratic-fund-raiser-wants-biden-to-make-way-for-a-new-nominee
+
+**Carnage at Gaza School Compound Adds to Mounting Death Toll at U.N. Buildings**\
+`At least 27 people were killed when an Israeli airstrike exploded as people played soccer at a school turned shelter in southern Gaza.`\
+https://nytimes.com/2024/07/10/world/middleeast/gaza-schoolyard-strike-israel.html
+
+**President Biden, Voters Want Change**\
+`Election results in Britain and France show that voters can get behind liberal candidates as long as they’re fresh faces.`\
+https://nytimes.com/2024/07/10/opinion/biden-france-uk-elections.html
+
 **The Messages From Biden That are Understood, and Not**\
 `A president who long delighted in public speech is now sometimes hard to understand. Does it matter?`\
 https://nytimes.com/2024/07/10/us/politics/biden-speech-articulation.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5629410/2024/07/10/usmnt-coaching-candidates-klopp-
 **USMNT coach Berhalter fired after Copa America exit**\
 `U.`\
 https://nytimes.com/athletic/5628094/2024/07/10/gregg-berhalter-fired-usmnt-copa-america/
-
-**Pelosi and Others Try a New Tack With Biden: Is That Your Final Answer?**\
-`A defiant and angry president says he is not going anywhere. Some Democrats are trying to appeal to another side of the politician, who has been a realist about his political fortunes before.`\
-https://nytimes.com/2024/07/10/us/politics/pelosi-biden-democrats.html
-
-**Dodgers option Bobby Miller, who has an 8.07 ERA: 'I have some work to do'**\
-`There is not a firm return date as Miller will report to Los Angeles, where he will work with Dodgers staff and coaches.`\
-https://nytimes.com/athletic/5630027/2024/07/10/dodgers-option-bobby-miller-who-has-an-8-07-era-i-have-some-work-to-do/
-
-**Harris Sharpens Her Attacks on Trump**\
-`The vice president told a crowd of roughly 20,000 in Dallas that former President Donald J. Trump had said he would terminate the Constitution in a second term.`\
-https://nytimes.com/2024/07/10/us/politics/kamala-harris-donald-trump.html
-
-**Mary Martin, Who Gave Many Music Stars Their Start, Dies at 85**\
-`Her loyalty to artists and her eye for talent made her a force in a male-dominated business. Among her accomplishments: introducing Bob Dylan to the Band.`\
-https://nytimes.com/2024/07/10/arts/music/mary-martin-dead.html
 

@@ -1,3 +1,19 @@
+**Blues sign twice-bought-out defenseman Ryan Suter to 1-year, $775,000 contract**\
+`Suter is the second player in league history to be bought out twice, after Tony DeAngelo.`\
+https://nytimes.com/athletic/5630130/2024/07/10/blues-sign-ryan-suter/
+
+**A top Democratic fund-raiser wants Biden to make way for a new nominee.**\
+`Andrew Tobias, a longtime treasurer for the Democratic National Committee, thinks the party’s ticket would be stronger in November without the president’s name atop it.`\
+https://nytimes.com/live/2024/07/10/us/biden-trump-election/a-top-democratic-fund-raiser-wants-biden-to-make-way-for-a-new-nominee
+
+**Carnage at Gaza School Compound Adds to Mounting Death Toll at U.N. Buildings**\
+`At least 27 people were killed when an Israeli airstrike exploded as people played soccer at a school turned shelter in southern Gaza.`\
+https://nytimes.com/2024/07/10/world/middleeast/gaza-schoolyard-strike-israel.html
+
+**President Biden, Voters Want Change**\
+`Election results in Britain and France show that voters can get behind liberal candidates as long as they’re fresh faces.`\
+https://nytimes.com/2024/07/10/opinion/biden-france-uk-elections.html
+
 **The Messages From Biden That are Understood, and Not**\
 `A president who long delighted in public speech is now sometimes hard to understand. Does it matter?`\
 https://nytimes.com/2024/07/10/us/politics/biden-speech-articulation.html
