@@ -1,3 +1,7 @@
+**Jake Sullivan: You Can Count on a Strong NATO**\
+`The U.S. national security adviser argues that America’s allies in NATO are pulling their weight and paying their fair share of the costs of a common defense.`\
+https://nytimes.com/2024/07/10/opinion/jake-sullivan-nato-russia.html
+
 **Rays' Wander Franco charged with sexually abusing a minor**\
 `Franco, 23, has not played since Aug. 12, 2023, when allegations surfaced about an inappropriate relationship with a minor.`\
 https://nytimes.com/athletic/5628183/2024/07/10/wander-franco-sexual-abuse-charge/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5625814/2024/07/10/netherlands-koeman-england-semi-
 **Euros teams playing in the Copa America is the last thing football needs**\
 `The only comparisons we need between European and South American sides come at the World Cup. Reaching out to other nations makes more sense`\
 https://nytimes.com/athletic/5626521/2024/07/10/uefa-conmebol-closer-ties-euro-2024-copa-america/
-
-**Christina Unkel interview: Team president, attorney, app creator and Euros breakout star**\
-`The U.S. official was an unknown for many UK viewers but her role with ITV at the Euros has helped her become a household name`\
-https://nytimes.com/athletic/5624783/2024/07/10/christina-unkel-referee-var-interview/
 
