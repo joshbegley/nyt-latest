@@ -1,3 +1,19 @@
+**Kawhi Leonard not playing for Team USA in Olympics**\
+`Boston Celtics’ Derrick White is considered a strong replacement candidate.`\
+https://nytimes.com/athletic/5629094/2024/07/10/kawhi-leonard-out-usa-olympics-team/
+
+**Israel tells civilians to leave Gaza City, saying it will remain a ‘dangerous combat zone.’**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/07/10/world/israel-gaza-war-hamas/israel-tells-civilians-to-leave-gaza-city-saying-it-will-remain-a-dangerous-combat-zone
+
+**George Clooney: I Love Joe Biden. But We Need a New Nominee.**\
+`I saw Biden three weeks ago at my fund-raiser for him. It’s devastating to say it, but he is not the same man he was, and he won’t win this fall.`\
+https://nytimes.com/2024/07/10/opinion/joe-biden-democratic-nominee.html
+
+**CNN Cuts 100 Jobs, and Announces Plan for Digital Subscription Product**\
+`The network’s C.E.O., Mark Thompson, has promised a more robust digital strategy as people flee traditional cable packages.`\
+https://nytimes.com/2024/07/10/business/media/cnn-layoffs-subscription-product.html
+
 **Lowetide: What's the NHL ETA for new Oilers top prospect Matt Savoie?**\
 `Edmonton is a different team to earn an opportunity even for a gifted prospect like Savoie.`\
 https://nytimes.com/athletic/5626735/2024/07/10/oilers-matt-savoie-trade-nhl/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5629012/2024/07/10/new-york-yankees-tim-mayza-signi
 **Mr. Baldwin says he didn’t pull the trigger. Prosecutors don’t believe him.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/mr-baldwin-says-he-didnt-pull-the-trigger-prosecutors-dont-believe-him
-
-**Deschamps ‘will continue’ as France head coach, says FFF president**\
-`French Football Federation (FFF) president Philippe Diallo says there is “no reason” to question Didier Deschamps’ future as men’s national team head coach following their elimination at the semi-final stage of the European Championship.`\
-https://nytimes.com/athletic/5628932/2024/07/10/didier-deschamps-france-future-fff/
-
-**Corrections: July 10, 2024**\
-`Corrections that appeared in print on Wednesday, July 10, 2024.`\
-https://nytimes.com/2024/07/10/pageoneplus/corrections-july-10-2024.html
-
-**22 Years Ago, He Disappeared in an Avalanche. His Body Was Just Found.**\
-`Melting glaciers on Mount Huascarán in Peru helped uncover the body of Bill Stampfl, who disappeared while climbing the mountain with two friends.`\
-https://nytimes.com/2024/07/10/world/americas/22-years-ago-he-disappeared-in-an-avalanche-his-body-was-just-found.html
-
-**Live Updates: Opening Arguments in Alec Baldwin Trial Set to Begin in New Mexico**\
-`Mr. Baldwin arrived in court Wednesday morning, with opening arguments about to start in his trial for manslaughter for his role in the fatal shooting of a cinematographer on the set of the film “Rust.”`\
-https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial
 
