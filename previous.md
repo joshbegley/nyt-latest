@@ -1,3 +1,7 @@
+**The day we thrashed the Netherlands - England's greatest performance of my lifetime**\
+`Alan Shearer relives the magical night his England team dismantled the Dutch, in what he believes is their finest modern performance`\
+https://nytimes.com/athletic/5626442/2024/07/10/shearer-england-greatest-performance-netherlands/
+
 **Revisiting the zeroSP draft approach: Reynaldo López, Ronel Blanco among undrafted standouts**\
 `Michael Salfino revisits his zeroSP draft strategy, finding that savvy drafters who eschewed early starters could still have turned up aces.`\
 https://nytimes.com/athletic/5628276/2024/07/10/revisiting-the-zerosp-draft-approach-reynaldo-lopez-ronel-blanco-among-undrafted-standouts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5626604/2024/07/10/euro-2024-penalties-stutter-run-
 **Hansi Flick's first day at Barcelona: Nine senior players, youth prospects and tournament absentees**\
 `Barcelona are back for pre-season training — not that new coach Flick has many players to work with`\
 https://nytimes.com/athletic/5626559/2024/07/10/hansi-flick-barcelona-preseason-training/
-
-**Ivan Toney's penalty technique analysed: High risk, high reward**\
-`The Athletic speaks to experts about the England striker's unusual-but-effective method of taking penalties  `\
-https://nytimes.com/athletic/5625085/2024/07/10/ivan-toney-england-penalty-technique-euro-2024/
 

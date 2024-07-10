@@ -1,3 +1,7 @@
+**The day we thrashed the Netherlands - England's greatest performance of my lifetime**\
+`Alan Shearer relives the magical night his England team dismantled the Dutch, in what he believes is their finest modern performance`\
+https://nytimes.com/athletic/5626442/2024/07/10/shearer-england-greatest-performance-netherlands/
+
 **Revisiting the zeroSP draft approach: Reynaldo López, Ronel Blanco among undrafted standouts**\
 `Michael Salfino revisits his zeroSP draft strategy, finding that savvy drafters who eschewed early starters could still have turned up aces.`\
 https://nytimes.com/athletic/5628276/2024/07/10/revisiting-the-zerosp-draft-approach-reynaldo-lopez-ronel-blanco-among-undrafted-standouts/
