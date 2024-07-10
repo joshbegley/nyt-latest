@@ -1,3 +1,19 @@
+**Dear New York State Senators, Could You Please Repeat That?**\
+`We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Casey Goldstein, age 17.`\
+https://nytimes.com/2024/07/10/learning/dear-new-york-state-senators-could-you-please-repeat-that.html
+
+**Coutinho joins Vasco da Gama on loan from Aston Villa**\
+`Aston Villa have confirmed midfielder Philippe Coutinho has joined Vasco da Gama on a season-long loan.`\
+https://nytimes.com/athletic/5629069/2024/07/10/philippe-coutinho-vasco-da-gama-loan-aston-villa/
+
+**In TMZ Video, George Stephanopoulos Says Biden Can’t Serve Another Term**\
+`The ABC anchor, in a surreptitious recording, said, “I don’t think he can serve four more years.”`\
+https://nytimes.com/2024/07/10/business/media/tmz-george-stephanopoulos-biden.html
+
+**Live Updates: Opening Arguments in Alec Baldwin Trial Set to Begin in New Mexico**\
+`Mr. Baldwin arrived in court Wednesday morning, with opening arguments about to start in his trial for manslaughter for his role in the fatal shooting of a cinematographer on the set of the film “Rust.”`\
+https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial
+
 **Yankees sign ex-Blue Jays lefty Tim Mayza**\
 `It's a minor-league deal for the 32-year-old, who was released by the Blue Jays last week after clearing waivers.`\
 https://nytimes.com/athletic/5629012/2024/07/10/new-york-yankees-tim-mayza-signing/
