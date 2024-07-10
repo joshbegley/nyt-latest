@@ -1,3 +1,7 @@
+**What's the latest on the Blue Jackets' coaching search? Who might be out?**\
+`One option to lead Columbus is no longer considered to be the leading candidate.`\
+https://nytimes.com/athletic/5630036/2024/07/10/blue-jackets-coaching-search/
+
 **City Illegally Fined Woman Over Profane Political Yard Sign, U.S. Judge Rules**\
 `A federal judge in Tennessee said that it was unconstitutional for the City of Lakeland, Tenn., to fine Julie Pereira for the sign she posted expressing disapproval of President Biden and Donald J. Trump.`\
 https://nytimes.com/2024/07/10/us/tennessee-yard-sign-biden-trump.html

@@ -1,3 +1,7 @@
+**What's the latest on the Blue Jackets' coaching search? Who might be out?**\
+`One option to lead Columbus is no longer considered to be the leading candidate.`\
+https://nytimes.com/athletic/5630036/2024/07/10/blue-jackets-coaching-search/
+
 **City Illegally Fined Woman Over Profane Political Yard Sign, U.S. Judge Rules**\
 `A federal judge in Tennessee said that it was unconstitutional for the City of Lakeland, Tenn., to fine Julie Pereira for the sign she posted expressing disapproval of President Biden and Donald J. Trump.`\
 https://nytimes.com/2024/07/10/us/tennessee-yard-sign-biden-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/10/dining/david-liederman-dead.html
 **After Playing an Outlaw, Alec Baldwin Winds Up on Trial**\
 `The actor, who was charged with involuntary manslaughter, went on trial more than two years after the fatal shooting of the cinematographer of the movie “Rust.”`\
 https://nytimes.com/2024/07/10/arts/alec-baldwin-trial-involuntary-manslaughter.html
-
-**Who should USMNT hire to replace Berhalter? Analysing Klopp, Pochettino, Vieira and others**\
-`The USMNT will have a new coach in the dugout for the 2026 World Cup on home soil. But who would be a good fit?`\
-https://nytimes.com/athletic/5629410/2024/07/10/usmnt-coaching-candidates-klopp-vieira-pochettino-tuchel/
 
