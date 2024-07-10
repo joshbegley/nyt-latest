@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5627969/2024/07/09/canada-argentina-copa-america-ta
 
 **White House Doctor Discussed Business With the President’s Brother**\
 `Republicans are seeking information about a venture that Dr. Kevin O’Connor discussed with James Biden before the president was elected.`\
-https://nytimes.com/live/2024/07/09/us/trump-biden-election/white-house-doctor-james-biden
+https://nytimes.com/2024/07/09/us/politics/white-house-doctor-james-biden.html
 
 **90 Degrees, Say**\
 `Hal Moore lets things escalate.`\
