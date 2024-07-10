@@ -1,3 +1,15 @@
+**Should My Wife and I Tell Our 8-Year-Old How Much Money We Make?**\
+`The magazine’s Ethicist columnist on the kinds of information that can be burdensome to children.`\
+https://nytimes.com/2024/07/10/magazine/parents-money-conversation-ethics.html
+
+**The Windup: Ten years of Statcast? Already?**\
+`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
+https://nytimes.com/athletic/5629182/2024/07/10/statcast-mlb-draft-travis-bazzana-spencer-schwellenbach-the-windup/
+
+**Mason Greenwood's Man Utd situation explained: How long can he be kept from training?**\
+`What are United and Greenwood's options if a move to Marseille falls through?`\
+https://nytimes.com/athletic/5628642/2024/07/10/mason-greenwood-transfer-and-training/
+
 **A Queer Mountain Lion Leaps From the Page to the Little Island Stage**\
 `Henry Hoke’s 2023 novel, “Open Throat,” narrated by an animal in peril in the Hollywood Hills, is adapted for a staged reading.`\
 https://nytimes.com/2024/07/10/theater/open-throat-little-island.html

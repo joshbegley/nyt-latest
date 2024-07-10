@@ -1,3 +1,15 @@
+**Should My Wife and I Tell Our 8-Year-Old How Much Money We Make?**\
+`The magazine’s Ethicist columnist on the kinds of information that can be burdensome to children.`\
+https://nytimes.com/2024/07/10/magazine/parents-money-conversation-ethics.html
+
+**The Windup: Ten years of Statcast? Already?**\
+`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
+https://nytimes.com/athletic/5629182/2024/07/10/statcast-mlb-draft-travis-bazzana-spencer-schwellenbach-the-windup/
+
+**Mason Greenwood's Man Utd situation explained: How long can he be kept from training?**\
+`What are United and Greenwood's options if a move to Marseille falls through?`\
+https://nytimes.com/athletic/5628642/2024/07/10/mason-greenwood-transfer-and-training/
+
 **A Queer Mountain Lion Leaps From the Page to the Little Island Stage**\
 `Henry Hoke’s 2023 novel, “Open Throat,” narrated by an animal in peril in the Hollywood Hills, is adapted for a staged reading.`\
 https://nytimes.com/2024/07/10/theater/open-throat-little-island.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/10/world/israel-gaza-war-hamas/israel-tells-civ
 **George Clooney: I Love Joe Biden. But We Need a New Nominee.**\
 `I saw Biden three weeks ago at my fund-raiser for him. It’s devastating to say it, but he is not the same man he was, and he won’t win this fall.`\
 https://nytimes.com/2024/07/10/opinion/joe-biden-democratic-nominee.html
-
-**CNN Cuts 100 Jobs, and Announces Plan for Digital Subscription Product**\
-`The network’s C.E.O., Mark Thompson, has promised a more robust digital strategy as people flee traditional cable packages.`\
-https://nytimes.com/2024/07/10/business/media/cnn-layoffs-subscription-product.html
-
-**Lowetide: What's the NHL ETA for new Oilers top prospect Matt Savoie?**\
-`Edmonton is a different team to earn an opportunity even for a gifted prospect like Savoie.`\
-https://nytimes.com/athletic/5626735/2024/07/10/oilers-matt-savoie-trade-nhl/
-
-**Dear New York State Senators, Could You Please Repeat That?**\
-`We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Casey Goldstein, age 17.`\
-https://nytimes.com/2024/07/10/learning/dear-new-york-state-senators-could-you-please-repeat-that.html
 
