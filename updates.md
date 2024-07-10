@@ -1,3 +1,7 @@
+**U.S. Marshal Shoots Man in Attempted Carjacking Near Sotomayor’s Home**\
+`The marshal was sitting in an unmarked federal vehicle near the Supreme Court justice’s home when a man approached the vehicle and pointed a handgun at him through the driver’s side window.`\
+https://nytimes.com/2024/07/09/us/politics/carjacking-shooting-sotomayor.html
+
 **White House Doctor Discussed Business With the President’s Brother**\
 `Republicans are seeking information about a venture that Dr. Kevin O’Connor discussed with James Biden before the president was elected.`\
 https://nytimes.com/2024/07/09/us/politics/white-house-doctor-james-biden.html
