@@ -1,3 +1,7 @@
+**Alec Baldwin’s Manslaughter Trial Begins: 4 Takeaways From Day 1**\
+`Prosecutors portrayed the actor as stubbornly disregarding safety standards, while the defense said he had no reason to think there would be live rounds on the set.`\
+https://nytimes.com/2024/07/10/arts/alec-baldwin-trial-takeaways.html
+
 **After meeting with Biden, some A.F.L.-C.I.O. leaders remain concerned about his candidacy.**\
 `By Jonathan Weisman and Michael D. Shear`\
 https://nytimes.com/live/2024/07/10/us/biden-trump-election/biden-union-afl-cio-election
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5629508/2024/07/10/nba-tv-deal-espn-nbc-amazon-tnt/
 **John Textor facing six-year ban from Brazilian football**\
 `Crystal Palace’s largest shareholder John Textor is facing a six-year ban from Brazilian football after an investigation for the country’s Superior Court of Sports Justice (STJD) for Football dismissed his claims of match-fixing.`\
 https://nytimes.com/athletic/5629377/2024/07/10/john-textor-brazil-match-fixing/
-
-**This Is the Best Easy Use for Canned Tuna**\
-`Adding zucchini, tuna and loads of fresh herbs makes this dish light, bright and weeknight easy.`\
-https://nytimes.com/2024/07/10/dining/best-canned-tuna-recipe.html
 
