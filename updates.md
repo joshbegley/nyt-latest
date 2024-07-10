@@ -1,3 +1,19 @@
+**Biden Sets Second Post-Debate Interview, This Time With NBC’s Lester Holt**\
+`The interview will air in prime-time on NBC on Monday, the first night of the Republican National Convention.`\
+https://nytimes.com/2024/07/10/business/media/biden-interview-nbc-lester-holt.html
+
+**NASA Says No Plan to Use SpaceX to Rescue Boeing Starliner Astronauts**\
+`In a news conference from aboard the International Space Station, Butch Wilmore and Suni Williams said they had confidence in the troubled spacecraft to get them home.`\
+https://nytimes.com/2024/07/10/science/nasa-spacex-boeing-starliner-astronauts.html
+
+**Why Pistons head coach J.B. Bickerstaff believes he can be successful in Detroit**\
+`Head coach J.B. Bickerstaff is in Detroit hoping to turn things around, just as he did in Cleveland. `\
+https://nytimes.com/athletic/5629252/2024/07/10/pistons-coach-j-b-bickerstaff-detroit/
+
+**It’s Not Just Your Garden: ‘Hydrangea Hysteria’ Blooms in the Northeast**\
+`Here’s why hydrangeas are having a banner year on the East Coast and how you can enjoy them.`\
+https://nytimes.com/2024/07/10/us/hydrangea-flower-bloom-season.html
+
 **Release of Kevin Costner’s Next ‘Horizon’ Film Is Canceled**\
 `The film was supposed to hit theaters on Aug. 16, but that plan was scrapped after the first chapter of the Western saga disappointed at the box office.`\
 https://nytimes.com/2024/07/10/business/media/kevin-costner-horizon-release-canceled.html
