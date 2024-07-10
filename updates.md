@@ -1,3 +1,11 @@
+**Yankees sign ex-Blue Jays lefty Tim Mayza**\
+`It's a minor-league deal for the 32-year-old, who was released by the Blue Jays last week after clearing waivers.`\
+https://nytimes.com/athletic/5629012/2024/07/10/new-york-yankees-tim-mayza-signing/
+
+**Live Updates: Alec Baldwin Manslaughter Trial Set to Begin in New Mexico**\
+`Mr. Baldwin arrived in court Wednesday morning, with opening arguments set to begin in his trial for manslaughter for his role in the fatal shooting of a cinematographer on the set of the film “Rust.”`\
+https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial
+
 **Mr. Baldwin says he didn’t pull the trigger. Prosecutors don’t believe him.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/mr-baldwin-says-he-didnt-pull-the-trigger-prosecutors-dont-believe-him
