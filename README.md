@@ -1,5 +1,5 @@
-**Jury Finds Archegos Founder Hwang Guilty on 10 Charges**\
-`Bill Hwang was convicted on counts including securities fraud, wire fraud, conspiracy and racketeering and could spend the rest of his life in prison.`\
+**Jury Finds Archegos Founder Bill Hwang Guilty on 10 Charges**\
+`Mr. Hwang was convicted on counts including securities fraud, wire fraud, conspiracy and racketeering and could spend the rest of his life in prison.`\
 https://nytimes.com/2024/07/10/business/archegos-bill-hwang-guilty.html
 
 **Thursday Briefing: Pressure Mounts for Biden to Step Aside**\
