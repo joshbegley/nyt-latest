@@ -1,3 +1,11 @@
+**Reds' Hunter Greene is an All-Star after an offseason of changes to his preparation, arsenal**\
+`Greene overhauled his offseason program and committed himself to improving upon last season. His changes have paid dividends.`\
+https://nytimes.com/athletic/5628140/2024/07/09/reds-hunter-greene-all-star-selection/
+
+**'I need to be better': Carlos Rodón's struggles continue as Yankees fall into deeper funk**\
+`The starter coughed up four first-inning runs as the Yankees have now lost 17 of their last 23 games. `\
+https://nytimes.com/athletic/5628143/2024/07/09/yankees-carlos-rodon-brian-cashman/
+
 **Ukraine’s President Pleads for More Weapons With Fewer Restrictions**\
 `“America doesn’t shy away from its friends,” Volodymyr Zelensky said in a speech in Washington as leaders gathered in the city for a NATO summit.`\
 https://nytimes.com/2024/07/09/us/politics/ukraine-president-nato-weapons.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5627969/2024/07/09/canada-argentina-copa-america-ta
 **White House Doctor Discussed Business With the President’s Brother**\
 `Republicans are seeking information about a venture that Dr. Kevin O’Connor discussed with James Biden before the president was elected.`\
 https://nytimes.com/2024/07/09/us/politics/white-house-doctor-james-biden.html
-
-**90 Degrees, Say**\
-`Hal Moore lets things escalate.`\
-https://nytimes.com/2024/07/09/crosswords/daily-puzzle-07-10-2024.html
-
-**U.S. and Allies Target Russian Bots Working to Spread Propaganda**\
-`Intelligence officials from three countries flagged a Russian influence campaign that used artificial intelligence to create nearly 1,000 fake accounts on the social media platform X.`\
-https://nytimes.com/2024/07/09/business/russian-bots-artificial-intelligence-propaganda.html
 

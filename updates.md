@@ -1,3 +1,11 @@
+**Reds' Hunter Greene is an All-Star after an offseason of changes to his preparation, arsenal**\
+`Greene overhauled his offseason program and committed himself to improving upon last season. His changes have paid dividends.`\
+https://nytimes.com/athletic/5628140/2024/07/09/reds-hunter-greene-all-star-selection/
+
+**'I need to be better': Carlos Rodón's struggles continue as Yankees fall into deeper funk**\
+`The starter coughed up four first-inning runs as the Yankees have now lost 17 of their last 23 games. `\
+https://nytimes.com/athletic/5628143/2024/07/09/yankees-carlos-rodon-brian-cashman/
+
 **Ukraine’s President Pleads for More Weapons With Fewer Restrictions**\
 `“America doesn’t shy away from its friends,” Volodymyr Zelensky said in a speech in Washington as leaders gathered in the city for a NATO summit.`\
 https://nytimes.com/2024/07/09/us/politics/ukraine-president-nato-weapons.html
