@@ -1,3 +1,7 @@
+**A Queer Mountain Lion Leaps From the Page to the Little Island Stage**\
+`Henry Hoke’s 2023 novel, “Open Throat,” narrated by an animal in peril in the Hollywood Hills, is adapted for a staged reading.`\
+https://nytimes.com/2024/07/10/theater/open-throat-little-island.html
+
 **Slow-Cooker Barbecue Chicken for Slow Summer Days**\
 `Just drop the ingredients into the pot, let them bubble for a few hours and then pull the soft, succulent meat into shreds.`\
 https://nytimes.com/2024/07/10/dining/slow-cooker-barbecue-chicken-for-slow-summer-days.html
