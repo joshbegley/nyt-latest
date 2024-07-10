@@ -1,3 +1,7 @@
+**Home Run Derby field set, Dodgers' Hernández signs up**\
+`Hernández is an All-Star for the second time after a disappointing season in Seattle that impacted his free-agent market.`\
+https://nytimes.com/athletic/5628013/2024/07/10/home-run-derby-field-players/
+
 **What's the latest on the Blue Jackets' coaching search? Who might be out?**\
 `One option to lead Columbus is no longer considered to be the leading candidate.`\
 https://nytimes.com/athletic/5630036/2024/07/10/blue-jackets-coaching-search/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5630134/2024/07/10/kieran-trippier-injury-england/
 **David Liederman, Who Found Sweet Success With David’s Cookies, Dies at 75**\
 `His innovative version of the chocolate chip cookie, studded with irregular pieces of dark Swiss chocolate, led to a chain of more than 100 stores worldwide.`\
 https://nytimes.com/2024/07/10/dining/david-liederman-dead.html
-
-**After Playing an Outlaw, Alec Baldwin Winds Up on Trial**\
-`The actor, who was charged with involuntary manslaughter, went on trial more than two years after the fatal shooting of the cinematographer of the movie “Rust.”`\
-https://nytimes.com/2024/07/10/arts/alec-baldwin-trial-involuntary-manslaughter.html
 
