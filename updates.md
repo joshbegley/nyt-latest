@@ -1,3 +1,19 @@
+**Live Updates: Alec Baldwin Manslaughter Trial Set to Begin in New Mexico**\
+`Opening arguments are set for Wednesday in the trial of Mr. Baldwin, who was accused of manslaughter for his role in the fatal shooting of a cinematographer on the set of the film “Rust.”`\
+https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial
+
+**The long road to a criminal trial for Mr. Baldwin.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/the-long-road-to-a-criminal-trial-for-mr-baldwin
+
+**Here’s the latest.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/heres-the-latest
+
+**Mbappe to wear No. 9 shirt at Real Madrid**\
+`Kylian Mbappe will wear the No.`\
+https://nytimes.com/athletic/5628702/2024/07/10/kylian-mbappe-real-madrid-shirt-number/
+
 **U.K. Police Searching for Man Suspected of Killing 3 Women With Crossbow**\
 `The women died at the scene near London on Tuesday, the police said. The BBC identified the victims as the wife and children of one of its commentators.`\
 https://nytimes.com/2024/07/10/world/europe/crossbow-attack-uk-manhunt.html
