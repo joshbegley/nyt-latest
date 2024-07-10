@@ -1,3 +1,7 @@
+**The Democrats’ Unhappy Indecision**\
+`Many seem to be falling in line behind President Biden even as polling showed his campaign to be in trouble.`\
+https://nytimes.com/2024/07/10/briefing/joe-biden-democrats-trump-polling.html
+
 **Lionel Messi and Argentina rejoice in their greatest national team of all time**\
 `This team have swept all before them over the past five years and their success eclipses even Argentina's previous World Cup winning teams`\
 https://nytimes.com/athletic/5628315/2024/07/10/messi-argentina-copa-greatest-team/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5628288/2024/07/10/canada-copa-america-2026-world-c
 **Why Britain Just Ended 14 Years of Conservative Rule**\
 `Last week, the center-left Labour Party won the British general election in a landslide.`\
 https://nytimes.com/2024/07/10/podcasts/the-daily/uk-election.html
-
-**Democrats Divided Over Biden, and Israeli Strike Hits School Shelter**\
-`Plus, Alec Baldwin’s “Rust” trial begins.`\
-https://nytimes.com/2024/07/10/podcasts/democrats-biden-israel-airstrike.html
 
