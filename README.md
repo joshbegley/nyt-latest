@@ -1,3 +1,11 @@
+**U.K. Police Searching for Man Suspected of Killing 3 Women With Crossbow**\
+`The women died at the scene near London, the police said. The authorities are looking for a 26-year-old man in relation to the attack.`\
+https://nytimes.com/2024/07/10/world/europe/crossbow-attack-uk-manhunt.html
+
+**Canucks offseason mailbag, part 1: Is finding linemates for Elias Pettersson challenging?**\
+`Also: Should the Canucks target additional puck-moving help on the back end? Which centre fits best with Dakota Joshua and Conor Garland?`\
+https://nytimes.com/athletic/5623155/2024/07/10/canucks-offseason-elias-pettersson-linemates/
+
 **Pelosi Suggests That Biden Should Reconsider Decision to Stay in the Race**\
 `Representative Nancy Pelosi, a longtime Biden ally and the former speaker, is the most senior member of his party who has so far suggested he consider dropping out.`\
 https://nytimes.com/2024/07/10/us/politics/pelosi-biden-drop-out.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5627340/2024/07/10/team-usa-olympics-gymnastics-leo
 **The New Home of the L.A. Clippers Is a Hot Ticket for Art**\
 `Seven artists with local connections, including Glenn Kaino and Charles Gaines, were commissioned to create pieces for the Intuit Dome, bridging sports and culture.`\
 https://nytimes.com/2024/07/10/arts/design/clippers-intuit-dome-art.html
-
-**An Update to Our California Reading List**\
-`Here are readers’ choices for some of the books published since 2000 that are most representative of the state.`\
-https://nytimes.com/2024/07/10/us/california-reading-list.html
-
-**Why Is My Brother So Angry That I Changed Tables at His Son’s Wedding?**\
-`A reader abandoned the family table at her nephew’s wedding to join her sister at a lesser table, upsetting the groom’s father. Should she apologize for “ruining the wedding”?`\
-https://nytimes.com/2024/07/10/style/changed-tables-brother-wedding.html
 
