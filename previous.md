@@ -1,3 +1,7 @@
+**Inside the hire: How Keegan Bradley landed the Ryder Cup captaincy**\
+`Bradley's shocking appointment to a job he didn't interview for was done in hopes it would end the “echo chamber of sameness.”`\
+https://nytimes.com/athletic/5627627/2024/07/09/keegan-bradley-2025-us-ryder-cup-team/
+
 **Lance McCullers Jr.'s setback intensifies Astros' need for rotation help**\
 `McCullers, who hasn't pitched since Game 3 of the 2022 World Series, is dealing with "soreness in his arm."`\
 https://nytimes.com/athletic/5627884/2024/07/09/lance-mccullers-jr-injury-astros-rotation-help/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/09/us/grand-canyon-hiker-death.html
 **U.A.W. Monitor Reveals Details About Investigation Into Union Leader**\
 `A court-appointed monitor said he was looking into allegations that a union official was punished for resisting actions that would have benefited the union president’s partner and her sister.`\
 https://nytimes.com/2024/07/09/business/uaw-monitor-investigation-shawn-fain.html
-
-**Deschamps refuses to discuss France future after Euro 2024 exit**\
-`Didier Deschamps refused to discuss his future as France head coach following his side&#8217;s European Championship semi-final exit at the hands of Spain.`\
-https://nytimes.com/athletic/5627763/2024/07/09/didier-deschamps-france-future/
 

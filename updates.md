@@ -1,3 +1,7 @@
+**Inside the hire: How Keegan Bradley landed the Ryder Cup captaincy**\
+`Bradley's shocking appointment to a job he didn't interview for was done in hopes it would end the “echo chamber of sameness.”`\
+https://nytimes.com/athletic/5627627/2024/07/09/keegan-bradley-2025-us-ryder-cup-team/
+
 **Lance McCullers Jr.'s setback intensifies Astros' need for rotation help**\
 `McCullers, who hasn't pitched since Game 3 of the 2022 World Series, is dealing with "soreness in his arm."`\
 https://nytimes.com/athletic/5627884/2024/07/09/lance-mccullers-jr-injury-astros-rotation-help/
