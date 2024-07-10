@@ -1,3 +1,7 @@
+**Biden Should Listen Hard to Trump’s Ravings**\
+`Every speech makes it clearer why no sacrifice is too great to keep Trump out of the White House.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-doral-biden
+
 **Maxine Singer, Guiding Force at the Birth of Biotechnology, Dies at 93**\
 `A leading biochemist, she helped shape guidelines to protect a revolutionary new field in the ’70s while calming public fears of a spread of deadly lab-made microbes.`\
 https://nytimes.com/2024/07/10/science/maxine-singer-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5629320/2024/07/10/elena-rybakina-wimbledon/
 **The judge knows the outlines of the case, having presided over the trial of the armorer.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/the-judge-knows-the-outlines-of-the-case-having-presided-over-the-trial-of-the-armorer
-
-**Quinn: The golfer I am and the golfer I want to be collide at North Berwick**\
-`The first round in Scotland came with a promise, but then human nature took hold.`\
-https://nytimes.com/athletic/5629437/2024/07/10/north-berwick-golf-club-playing/
 

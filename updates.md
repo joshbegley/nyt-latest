@@ -1,3 +1,7 @@
+**Biden Should Listen Hard to Trump’s Ravings**\
+`Every speech makes it clearer why no sacrifice is too great to keep Trump out of the White House.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-doral-biden
+
 **Maxine Singer, Guiding Force at the Birth of Biotechnology, Dies at 93**\
 `A leading biochemist, she helped shape guidelines to protect a revolutionary new field in the ’70s while calming public fears of a spread of deadly lab-made microbes.`\
 https://nytimes.com/2024/07/10/science/maxine-singer-dead.html
