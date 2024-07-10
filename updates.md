@@ -1,3 +1,15 @@
+**Biden will juggle unions and world leaders in Washington. Here’s the latest.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/07/10/us/biden-trump-election/biden-will-juggle-unions-and-world-leaders-in-washington-heres-the-latest
+
+**Live Election Updates: Biden to Court Labor as Democrats Struggle for Unity**\
+`President Biden will meet today with union leaders and foreign dignitaries in Washington, while Vice President Kamala Harris hits the campaign trail. A running-mate pick nears for Donald Trump.`\
+https://nytimes.com/live/2024/07/10/us/biden-trump-election
+
+**Rwanda Says It Doesn’t Have to Repay U.K. for Scrapped Migration Plan**\
+`Britain gave Rwanda hundreds of millions of pounds, even though no asylum seekers were deported to the Central African nation under the agreement.`\
+https://nytimes.com/2024/07/10/world/africa/rwanda-plan-uk-migrants-money.html
+
 **Where Ravens are better, worse or the same following offseason of notable losses**\
 `Where has Baltimore improved since January's AFC championship loss, and where could the team stand to add more talent before the season?`\
 https://nytimes.com/athletic/5624155/2024/07/10/ravens-offseason-roster-better-worse/
