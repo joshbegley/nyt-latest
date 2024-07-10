@@ -1,3 +1,11 @@
+**John Textor facing six-year ban from Brazilian football**\
+`Crystal Palace’s largest shareholder John Textor is facing a six-year ban from Brazilian football after an investigation for the country’s Superior Court of Sports Justice (STJD) for Football dismissed his claims of match-fixing.`\
+https://nytimes.com/athletic/5629377/2024/07/10/john-textor-brazil-match-fixing/
+
+**This Is the Best Easy Use for Canned Tuna**\
+`Adding zucchini, tuna and loads of fresh herbs makes this dish light, bright and weeknight easy.`\
+https://nytimes.com/2024/07/10/dining/best-canned-tuna-recipe.html
+
 **Menendez’s Lawyer Tells Jury That Bribery Case Is ‘Painfully Thin’**\
 `Senator Robert Menendez’s lawyers finished a six-hour closing statement on Wednesday afternoon.`\
 https://nytimes.com/2024/07/10/nyregion/robert-menendez-bribery-trial.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/10/world/africa/west-african-countries-leave-ecowas.
 **What’s in Store for the 2024 Hurricane Season?**\
 `Hurricane Beryl set records as the earliest Category 5 storm ever. What does that mean for the rest of hurricane season? Here’s what travelers need to know.`\
 https://nytimes.com/2024/07/10/travel/hurricane-season-travel-insurance.html
-
-**Overlooked No More: Ursula Parrott, Best-Selling Author and Voice for the Modern Woman**\
-`Her writing, about marriage and divorce, sex and its consequences, work-life balance, the challenges of child-rearing and other topics, still resonates today.`\
-https://nytimes.com/2024/07/10/obituaries/ursula-parrott-overlooked.html
-
-**Georgia, UCLA cancel home-and-home series**\
-`Georgia and UCLA were scheduled for a home-and-home series in 2025-26, but those games have been canceled. `\
-https://nytimes.com/athletic/5482079/2024/07/10/georgia-ucla-cancel-football-series/
 
