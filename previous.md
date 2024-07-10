@@ -1,3 +1,7 @@
+**Red Sox inching up wild-card standings, pushing front office into buyer's market**\
+`The Red Sox continue to climb the wild-card standings, as they gained another game after routing the A’s.`\
+https://nytimes.com/athletic/5628197/2024/07/09/red-sox-wild-card-standings/
+
 **Phillies set tone against Dodgers, and it all began with Zack Wheeler vs. Shohei Ohtani**\
 `Wheeler has been dealing with back discomfort and he noted sometimes he didn't feel his velocity was all there Tuesday, but he dazzled LA.`\
 https://nytimes.com/athletic/5628167/2024/07/09/phillies-zack-wheeler-shohei-ohtani-dodgers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5628070/2024/07/09/cubs-last-stand-before-trade-dea
 **U.S. Marshal Shoots Man in Attempted Carjacking Near Sotomayor’s Home**\
 `The marshal was sitting in an unmarked federal vehicle near the Supreme Court justice’s home when a man approached the vehicle and pointed a handgun at him through the driver’s side window.`\
 https://nytimes.com/2024/07/09/us/politics/carjacking-shooting-sotomayor.html
-
-**Argentina 2-0 Canada takeaways: Messi scores, Argentina heads to Copa America final**\
-`Argentina is heading to its fourth Copa America final in the last five tournaments - The Athletic dissects the big talking points`\
-https://nytimes.com/athletic/5627969/2024/07/09/canada-argentina-copa-america-takeaways/
 

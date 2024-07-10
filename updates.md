@@ -1,3 +1,7 @@
+**Red Sox inching up wild-card standings, pushing front office into buyer's market**\
+`The Red Sox continue to climb the wild-card standings, as they gained another game after routing the A’s.`\
+https://nytimes.com/athletic/5628197/2024/07/09/red-sox-wild-card-standings/
+
 **Phillies set tone against Dodgers, and it all began with Zack Wheeler vs. Shohei Ohtani**\
 `Wheeler has been dealing with back discomfort and he noted sometimes he didn't feel his velocity was all there Tuesday, but he dazzled LA.`\
 https://nytimes.com/athletic/5628167/2024/07/09/phillies-zack-wheeler-shohei-ohtani-dodgers/
