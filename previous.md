@@ -1,3 +1,15 @@
+**The Briefing: Netherlands 1 England 2 - Late substitute Watkins hits winner to set up Euro 2024 final with Spain**\
+`We break down the key talking points from the match in Dortmund as England reached a second consecutive European Championship final`\
+https://nytimes.com/athletic/5622633/2024/07/10/netherlands-england-euro-2024-watkins-kane/
+
+**Ocasio-Cortez Files Impeachment Articles Against Justices Alito and Thomas**\
+`Impeachment has no realistic chance of advancing in the Republican-controlled House, but it speaks to a motivating issue for Democrats: the Supreme Court’s conservative supermajority.`\
+https://nytimes.com/2024/07/10/us/politics/aoc-samuel-alito-clarence-thomas-impeach.html
+
+**Trump Rejoices at How the Landscape Has Changed**\
+`After largely disappearing from view to let Democratic infighting play out, Donald Trump held a rally that was at times boastful and mercilessly cruel.`\
+https://nytimes.com/2024/07/10/us/politics/trump-rally-biden.html
+
 **Jury Finds Archegos Founder Bill Hwang Guilty on 10 Charges**\
 `Mr. Hwang was convicted on counts including securities fraud, wire fraud, conspiracy and racketeering and could spend the rest of his life in prison.`\
 https://nytimes.com/2024/07/10/business/archegos-bill-hwang-guilty.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2024/07/10/arts/editors-recommendations-conanobr
 **Biden Faces Fresh Calls to Withdraw as Democrats Fear Electoral Rout**\
 `The dam has mostly held on Capitol Hill for President Biden, but cracks continued to open as more donors and elected officials publicly called on President Biden to drop out.`\
 https://nytimes.com/2024/07/10/us/politics/biden-congress-clooney-election.html
-
-**Rays' Wander Franco charged with sexual exploitation of a minor**\
-`Franco, 23, has not played since Aug. 12, 2023, when allegations surfaced about an inappropriate relationship with a minor.`\
-https://nytimes.com/athletic/5628183/2024/07/10/wander-franco-sexual-abuse-charge/
-
-**There’s So Much We Don’t Know About the Death Toll in Gaza**\
-`Experts have little data to work with, giving rise to projections, dueling propaganda and, in the end, a narrowing window of accountability.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/death-toll-gaza-lancet
-
-**U.A.E. Puts 84 Civil Society Members on Trial Again, Sentencing 43 to Life**\
-`The Emirati lawyers, academics and activists, who were imprisoned in national security trials, had been scheduled to be released.`\
-https://nytimes.com/2024/07/10/world/middleeast/uae-trial-civil-society-members.html
 

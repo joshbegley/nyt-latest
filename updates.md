@@ -1,3 +1,15 @@
+**The Briefing: Netherlands 1 England 2 - Late substitute Watkins hits winner to set up Euro 2024 final with Spain**\
+`We break down the key talking points from the match in Dortmund as England reached a second consecutive European Championship final`\
+https://nytimes.com/athletic/5622633/2024/07/10/netherlands-england-euro-2024-watkins-kane/
+
+**Ocasio-Cortez Files Impeachment Articles Against Justices Alito and Thomas**\
+`Impeachment has no realistic chance of advancing in the Republican-controlled House, but it speaks to a motivating issue for Democrats: the Supreme Court’s conservative supermajority.`\
+https://nytimes.com/2024/07/10/us/politics/aoc-samuel-alito-clarence-thomas-impeach.html
+
+**Trump Rejoices at How the Landscape Has Changed**\
+`After largely disappearing from view to let Democratic infighting play out, Donald Trump held a rally that was at times boastful and mercilessly cruel.`\
+https://nytimes.com/2024/07/10/us/politics/trump-rally-biden.html
+
 **Jury Finds Archegos Founder Bill Hwang Guilty on 10 Charges**\
 `Mr. Hwang was convicted on counts including securities fraud, wire fraud, conspiracy and racketeering and could spend the rest of his life in prison.`\
 https://nytimes.com/2024/07/10/business/archegos-bill-hwang-guilty.html
