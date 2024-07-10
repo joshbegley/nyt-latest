@@ -1,3 +1,15 @@
+**Slow-Cooker Barbecue Chicken for Slow Summer Days**\
+`Just drop the ingredients into the pot, let them bubble for a few hours and then pull the soft, succulent meat into shreds.`\
+https://nytimes.com/2024/07/10/dining/slow-cooker-barbecue-chicken-for-slow-summer-days.html
+
+**In Constant Battle With Insurers, Doctors Reach for a Cudgel: A.I.**\
+`As health plans increasingly rely on technology to deny treatment, physicians are fighting back with chatbots that synthesize research and make the case.`\
+https://nytimes.com/2024/07/10/health/doctors-insurers-artificial-intelligence.html
+
+**How a misdemeanor plea deal offered to Alec Baldwin last year fell apart.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/how-a-misdemeanor-plea-deal-offered-to-alec-baldwin-last-year-fell-apart
+
 **Kawhi Leonard not playing for Team USA in Olympics**\
 `Boston Celtics’ Derrick White is considered a strong replacement candidate.`\
 https://nytimes.com/athletic/5629094/2024/07/10/kawhi-leonard-out-usa-olympics-team/
