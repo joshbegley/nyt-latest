@@ -1,3 +1,7 @@
+**Women Hype Each Other Up With ‘Boots and a Slicked-Back Bun’ Meme**\
+`The catchy phrase, chanted in a lilting cadence, was first used by a group of friends cheering on each other’s outfits on a night out.`\
+https://nytimes.com/2024/07/10/style/boots-slicked-back-bun-meme-tiktok.html
+
 **Macron Ends his Silence, Calling for ‘a Broad Gathering' That Would Split the Left**\
 `In an open letter to the French people, he rejects any role for the far left France Unbowed party, setting the stage for a heated showdown.`\
 https://nytimes.com/2024/07/10/world/europe/macron-letter-leftists-split.html
