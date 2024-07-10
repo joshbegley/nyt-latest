@@ -1,3 +1,7 @@
+**Biden, on Call With Mayors, Works to Shore Up Democratic Support**\
+`Speaking to nearly 200 Democratic mayors, the president again acknowledged he had a poor first debate and took softball questions about his campaign and second-term agenda.`\
+https://nytimes.com/2024/07/09/us/politics/biden-mayors-support.html
+
 **Cubs begin potential last stand before trade deadline with complete win in Baltimore **\
 `It's been a disappointing season for the Cubs. If there's any chance for them to make the playoffs, they'll need more games like Tuesday's.`\
 https://nytimes.com/athletic/5628070/2024/07/09/cubs-last-stand-before-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5628022/2024/07/09/lionel-messi-argentina-goals-all
 **Democrats Seek Criminal Investigation of Justice Thomas Over Travel and Gifts**\
 `The senators said the Supreme Court justice’s failure to disclose lavish gifts and luxury travel showed a “willful pattern of disregard for ethics laws.”`\
 https://nytimes.com/2024/07/09/us/politics/democrats-investigation-clarence-thomas.html
-
-**Inside the hire: How Keegan Bradley landed the Ryder Cup captaincy**\
-`Bradley's shocking appointment to a job he didn't interview for was done in hopes it would end the “echo chamber of sameness.”`\
-https://nytimes.com/athletic/5627627/2024/07/09/keegan-bradley-2025-us-ryder-cup-team/
 

@@ -1,3 +1,7 @@
+**Biden, on Call With Mayors, Works to Shore Up Democratic Support**\
+`Speaking to nearly 200 Democratic mayors, the president again acknowledged he had a poor first debate and took softball questions about his campaign and second-term agenda.`\
+https://nytimes.com/2024/07/09/us/politics/biden-mayors-support.html
+
 **Cubs begin potential last stand before trade deadline with complete win in Baltimore **\
 `It's been a disappointing season for the Cubs. If there's any chance for them to make the playoffs, they'll need more games like Tuesday's.`\
 https://nytimes.com/athletic/5628070/2024/07/09/cubs-last-stand-before-trade-deadline/

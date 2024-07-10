@@ -1,3 +1,7 @@
+**Bobby Miller's career-worst start sinks his year and the Dodgers' rotation to a new low**\
+`Few expected the Dodgers to add pitching to their shopping lists this summer. Now, they may be one of the most pitching-needy teams.`\
+https://nytimes.com/athletic/5628099/2024/07/09/dodgers-bobby-miller-rotation-struggles/
+
 **Biden, on Call With Mayors, Works to Shore Up Democratic Support**\
 `Speaking to nearly 200 Democratic mayors, the president again acknowledged he had a poor first debate and took softball questions about his campaign and second-term agenda.`\
 https://nytimes.com/2024/07/09/us/politics/biden-mayors-support.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5619604/2024/07/09/new-york-giants-hard-knocks-mali
 **Messi moves second on all-time men's international goalscorers list**\
 `Lionel Messi broke a tie with Ali Daei to move second on the list of men&#8217;s international scorers with a goal in the Copa America semifinal against Canada.`\
 https://nytimes.com/athletic/5628022/2024/07/09/lionel-messi-argentina-goals-all-time/
-
-**Democrats Seek Criminal Investigation of Justice Thomas Over Travel and Gifts**\
-`The senators said the Supreme Court justice’s failure to disclose lavish gifts and luxury travel showed a “willful pattern of disregard for ethics laws.”`\
-https://nytimes.com/2024/07/09/us/politics/democrats-investigation-clarence-thomas.html
 
