@@ -1,40 +1,40 @@
-**Biden will juggle unions and world leaders in Washington. Here’s the latest.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/07/10/us/biden-trump-election/biden-will-juggle-unions-and-world-leaders-in-washington-heres-the-latest
+**Twins mailbag: Brooks Lee comps, trade deadline needs, cutting Jordan Balazovic**\
+`Plus the plans for Simeon Woods Richardson and Louie Varland, why attendance is down and why Carlos Correa stopped running.`\
+https://nytimes.com/athletic/5613921/2024/07/10/twins-trade-deadline-brooks-lee-comps/
 
-**Live Election Updates: Biden to Court Labor as Democrats Struggle for Unity**\
-`President Biden will meet today with union leaders and foreign dignitaries in Washington, while Vice President Kamala Harris hits the campaign trail. A running-mate pick nears for Donald Trump.`\
-https://nytimes.com/live/2024/07/10/us/biden-trump-election
+**Robert Hipwell learned a tough lesson through his suspension, now focused on MLB Draft**\
+`Hipwell takes ownership for his failed PED test from an over-the-counter pre-workout supplement. "(I)t will never happen again."`\
+https://nytimes.com/athletic/5624457/2024/07/10/mlb-draft-robert-hipwell-suspension/
 
-**Rwanda Says It Doesn’t Have to Repay U.K. for Scrapped Migration Plan**\
-`Britain gave Rwanda hundreds of millions of pounds, even though no asylum seekers were deported to the Central African nation under the agreement.`\
-https://nytimes.com/2024/07/10/world/africa/rwanda-plan-uk-migrants-money.html
+**Guardians notes: José Ramírez in the Home Run Derby, Gavin Williams' new-ish pitch, more**\
+`Plus Spencer Howard arrives with his fourth team since 2021 and Angel Martínez enters the franchise record book.`\
+https://nytimes.com/athletic/5627926/2024/07/10/guardians-jose-ramirez-home-run-derby/
 
-**Where Ravens are better, worse or the same following offseason of notable losses**\
-`Where has Baltimore improved since January's AFC championship loss, and where could the team stand to add more talent before the season?`\
-https://nytimes.com/athletic/5624155/2024/07/10/ravens-offseason-roster-better-worse/
+**Four Dutch defensive weaknesses that England can exploit in their semi-final**\
+`The Netherlands’ right-hand side is both their strength and a potential Achilles' heel - will England try to shut it down or exploit it?`\
+https://nytimes.com/athletic/5626163/2024/07/10/netherlands-defensive-weakness-euro-2024/
 
-**Rivalries, conspiracy theories and lots of arguing: Welcome to officiating at Copa America**\
-`Cultural differences are as extreme as the arguments - no wonder refereeing has been in the spotlight at this Copa America`\
-https://nytimes.com/athletic/5627168/2024/07/10/referee-copa-america-argentina-brazil/
+**Bielsa's latest quirk: Uruguay's big orange box, and how they use it**\
+`Four decades into an eclectic coaching career, Bielsa is still keeping us on our toes - this time, with an odd pre-match training setup`\
+https://nytimes.com/athletic/5627136/2024/07/10/marcelo-bielsa-uruguay-orange-box-copa/
 
-**Five things to watch when Browns open training camp**\
-`We'll get a glimpse of what the offense will look like with Ken Dorsey as coordinator, the team's plan for the new kickoff rules and more.`\
-https://nytimes.com/athletic/5615176/2024/07/10/browns-training-camp-2024/
+**Canada had a free hit at Copa America - it has lessons to learn for the 2026 World Cup**\
+`Messi is two years younger than his great rival but trails by 21 goals — will he be able to edge past having overtaken Ali Daei?`\
+https://nytimes.com/athletic/5628288/2024/07/10/canada-copa-america-2026-world-cup/
 
-**Statcast at 10: From MLB's secret project to inescapable part of modern baseball**\
-`Statcast is everywhere — produced and promoted by MLB — but not for everyone. It enthralls analytically inclined fans and irks others.`\
-https://nytimes.com/athletic/5627303/2024/07/10/mlb-statcast-10-year-anniversary/
+**Why Britain Just Ended 14 Years of Conservative Rule**\
+`Last week, the center-left Labour Party won the British general election in a landslide.`\
+https://nytimes.com/2024/07/10/podcasts/the-daily/uk-election.html
 
-**'I’m not a coach': Chris Paul is eager to 'hoop' with Victor Wembanyama and Spurs**\
-`Paul and Harrison Barnes will bring lots of experience to San Antonio next season.`\
-https://nytimes.com/athletic/5628028/2024/07/10/chris-paul-spurs-victor-wembanyama/
+**Democrats Divided Over Biden, and Israeli Strike Hits School Shelter**\
+`Plus, Alec Baldwin’s “Rust” trial begins.`\
+https://nytimes.com/2024/07/10/podcasts/democrats-biden-israel-airstrike.html
 
-**Will Notre Dame finish strong after fast start, quiet summer on recruiting trail?**\
-`Summer has been mostly fits and starts for Notre Dame on the recruiting front. What's next after losing Ivan Taylor to Michigan?`\
-https://nytimes.com/athletic/5627057/2024/07/10/notre-dame-football-recruiting-2025-class/
+**Wordle Review No. 1,118, July 11, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/10/crosswords/wordle-review-1118.html
 
-**Why the Knicks are an ideal fit for Mikal Bridges**\
-`Bridges has a coach who thinks the same way he does, a locker room that already knows him and a situation built to enhance his game.`\
-https://nytimes.com/athletic/5627275/2024/07/10/knicks-mikal-bridges-ideal-fit/
+**The Connections Companion No. 396, July 11, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/10/crosswords/connections-companion-396.html
 
