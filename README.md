@@ -1,3 +1,7 @@
+**The Tragedy at This Year’s Hajj Is Just the Beginning**\
+`The heat has come for Americans — and everyone else, too.`\
+https://nytimes.com/2024/07/10/opinion/hajj-heat-climate-death.html
+
 **Three Countries Exit West African Bloc, Shaking a Fragile Region**\
 `Burkina Faso, Mali and Niger are withdrawing from a 49-year-old regional alliance that has allowed goods and nearly 400 million people to travel freely across a tightly connected region.`\
 https://nytimes.com/2024/07/10/world/africa/west-african-countries-leave-ecowas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5628987/2024/07/10/college-football-player-ratings-
 **Should Democrats Press Biden to Step Aside?**\
 `Readers react to an editorial urging party leaders to do so. Also: The debate over sex testing at the Olympics.`\
 https://nytimes.com/2024/07/10/opinion/joe-biden-democrats-withdrawal.html
-
-**Noah Gragson joining Front Row Motorsports**\
-`With Gragson now in the fold, Front Row’s next task is finalizing sponsorship and who will serve as his crew chief.`\
-https://nytimes.com/athletic/5629239/2024/07/10/noah-gragson-front-row-motorsports-nascar/
 
