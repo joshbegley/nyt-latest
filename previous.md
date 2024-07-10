@@ -2,8 +2,8 @@
 `Senator Robert Menendez’s lawyers finished a six-hour closing statement on Wednesday afternoon.`\
 https://nytimes.com/2024/07/10/nyregion/robert-menendez-bribery-trial.html
 
-**Rep. Elissa Slotkin, a Michigan Democrat running for Senate, tells donors Biden is behind in her state.**\
-`By Michael C. Bender`\
+**Michigan Representative Seeking Senate Seat Tells Donors Biden Trails There**\
+`Representative Elissa Slotkin, the leading Democrat seeking her state’s open Senate seat, said private polling showed former President Donald J. Trump leading President Biden.`\
 https://nytimes.com/2024/07/10/us/politics/elissa-slotkin-biden.html
 
 **Elena Rybakina's Wimbledon form is as serene as it is ominous**\

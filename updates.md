@@ -1,3 +1,7 @@
+**Michigan Representative Seeking Senate Seat Tells Donors Biden Trails There**\
+`Representative Elissa Slotkin, the leading Democrat seeking her state’s open Senate seat, said private polling showed former President Donald J. Trump leading President Biden.`\
+https://nytimes.com/2024/07/10/us/politics/elissa-slotkin-biden.html
+
 **Menendez’s Lawyer Tells Jury That Bribery Case Is ‘Painfully Thin’**\
 `Senator Robert Menendez’s lawyers finished a six-hour closing statement on Wednesday afternoon.`\
 https://nytimes.com/2024/07/10/nyregion/robert-menendez-bribery-trial.html
