@@ -1,3 +1,7 @@
+**McIlroy says he used New York trip to reset after U.S. Open**\
+`NORTH BERWICK, Scotland — In the days following his heartbreaking finish at the U.`\
+https://nytimes.com/athletic/5628619/2024/07/10/rory-mcilroy-scottish-us-open/
+
 **Which Chargers UDFAs have the best shot at making the roster? Mailbag**\
 `The Chargers' new regime isn't tied to the bottom-of-the-roster holdovers, creating opportunity for several of the 22 undrafted rookies. `\
 https://nytimes.com/athletic/5627643/2024/07/10/chargers-mailbag-undrafted-free-agents-training-camp/
