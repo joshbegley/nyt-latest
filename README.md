@@ -1,3 +1,7 @@
+**Deschamps ‘will continue’ as France head coach, says FFF president**\
+`French Football Federation (FFF) president Philippe Diallo says there is “no reason” to question Didier Deschamps’ future as men’s national team head coach following their elimination at the semi-final stage of the European Championship.`\
+https://nytimes.com/athletic/5628932/2024/07/10/didier-deschamps-france-future-fff/
+
 **Corrections: July 10, 2024**\
 `Corrections that appeared in print on Wednesday, July 10, 2024.`\
 https://nytimes.com/2024/07/10/pageoneplus/corrections-july-10-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5623155/2024/07/10/canucks-offseason-elias-petterss
 **Pelosi Suggests That Biden Should Reconsider Decision to Stay in the Race**\
 `Representative Nancy Pelosi, a longtime Biden ally and the former speaker, is the most senior member of his party who has so far suggested he consider dropping out.`\
 https://nytimes.com/2024/07/10/us/politics/pelosi-biden-drop-out.html
-
-**Senator Michael Bennet says Democrats must ‘come to grips’ with the risk that Biden could lose.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/07/10/us/biden-trump-election/senator-michael-bennet-says-democrats-must-come-to-grips-with-the-risk-that-biden-could-lose
 
