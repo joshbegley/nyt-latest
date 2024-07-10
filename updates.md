@@ -1,3 +1,7 @@
+**White House Doctor Discussed Business With the President’s Brother**\
+`Republicans are seeking information about a venture that Dr. Kevin O’Connor discussed with James Biden before the president was elected.`\
+https://nytimes.com/2024/07/09/us/politics/white-house-doctor-james-biden.html
+
 **Argentina 2-0 Canada takeaways: Messi scores, Argentina heads to Copa America final**\
 `Argentina is heading to its fourth Copa America final in five years - The Athletic dissects the big talking points`\
 https://nytimes.com/athletic/5627969/2024/07/09/canada-argentina-copa-america-takeaways/
