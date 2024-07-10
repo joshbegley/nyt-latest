@@ -1,3 +1,19 @@
+**Spain vs. England Euro 2024 final odds: Spain favored to win for the fourth time**\
+`Spain is favored against England for Sunday's Euro 2024 final. Spain is seeking its fourth title while England is looking for its first.`\
+https://nytimes.com/athletic/5629805/2024/07/10/spain-england-euro-2024-final-odds/
+
+**The Giants' messy search for a shortstop turned out OK after all**\
+`The Giants have ended up with the best possible shortstop arrangement, even if it was a little by accident.`\
+https://nytimes.com/athletic/5627836/2024/07/10/sf-giants-shortstop-brett-wiisely-tyler-fitzgerald/
+
+**Judge Suggests He Is Likely to Dismiss Giuliani’s Bankruptcy Case**\
+`If the judge follows through, it would allow creditors to pursue foreclosures, repossessions and lawsuits that have been on hold as Rudolph Giuliani sought the protection of bankruptcy law.`\
+https://nytimes.com/2024/07/10/us/politics/giuliani-bankruptcy-case.html
+
+**Alec Baldwin Trial Over ‘Rust’ Movie Shooting Begins**\
+`Alec Baldwin is on trial on a charge of involuntary manslaughter for his role in the fatal shooting of a cinematographer on the set of the film “Rust.”`\
+https://nytimes.com/video/us/100000009564039/alec-baldwin-rust-trial.html
+
 **Wave, Jill Ellis not found to have violated NWSL policy**\
 `The NWSL investigated allegations against the Wave via a third-party legal representative between February and April 2024.`\
 https://nytimes.com/athletic/5629789/2024/07/10/jill-ellis-wave-nwsl-investigation/
