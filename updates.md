@@ -1,3 +1,43 @@
+**Wednesday Briefing**\
+`Biden at the NATO summit in Washington.`\
+https://nytimes.com/2024/07/10/briefing/biden-nato-ukraine-gaza.html
+
+**Forces on Both Left and Right Battle for Europe’s Political Soul**\
+`A coarsening of public discourse and contempt for mainstream parties have politicians on both sides denouncing what they say are extreme positions by their opponents, analysts say.`\
+https://nytimes.com/2024/07/10/world/europe/france-elections-europe-left-right.html
+
+**You Are Cordially Invited to Euro 2024’s Best Party. Please Wear Orange.**\
+`With thousands of voices and a few well-choreographed dance moves, Dutch fans have transformed match days into pulsing, joyous celebrations. Their next one is Wednesday.`\
+https://nytimes.com/2024/07/10/world/europe/you-are-cordially-invited-to-euro-2024s-best-party-please-wear-orange.html
+
+**Berlin Honors Earliest Settlers, Whose Bones Shared Their Secrets**\
+`Archaeologists unearthed some 4,000 ancient skeletons from the heart of the city. After years of study, they were reinterred in a rare and solemn tribute.`\
+https://nytimes.com/2024/07/10/world/europe/berlin-honors-earliest-settlers-whose-bones-shared-their-secrets.html
+
+**They Fled Oppression at Home, but It Followed Them Abroad**\
+`Many Venezuelans who left their homeland oppose the country’s autocratic president, but strict requirements will prevent most from voting in a closely watched election.`\
+https://nytimes.com/2024/07/10/world/americas/venezuela-election-voters-abroad.html
+
+**Wednesday's MLB projections: Best starting pitchers, playoff odds, props and more**\
+`Projections for Wednesday's MLB games with expert picks for best bets, pitcher props, home run trends and more.`\
+https://nytimes.com/athletic/5624765/2024/07/10/mlb-odds-predictions-best-bets-july-10/
+
+**All the highlights from Euro 2024 and Copa America semifinals**\
+`A Lamine Yamal wondergoal helped fire Spain into the European Championship final at the expense of France before Argentina reached the Copa America final by beating Canada.`\
+https://nytimes.com/athletic/5627828/2024/07/10/euro-copa-america-highlights/
+
+**As Violence Surges, Can Pakistan Protect Its Chinese Projects?**\
+`China has invested billions in megaprojects across Pakistan. But a resurgence in militant violence is threatening to derail badly needed investment.`\
+https://nytimes.com/2024/07/10/world/asia/pakistan-china-attacks.html
+
+**Defeated by A.I., a Legend in the Board Game Go Warns: Get Ready for What’s Next**\
+`Lee Saedol was one of the world’s top Go players, and his shocking loss to an A.I. opponent was a harbinger of a new, unsettling era. “It may not be a happy ending,” he says.`\
+https://nytimes.com/2024/07/10/world/asia/lee-saedol-go-ai.html
+
+**Britain Has Huge Clean Energy Ambitions, but Are They Realistic?**\
+`Analysts warn that the Labour Party’s proposals are unlikely to be cheap and could come at the cost of jobs in the oil and gas industry.`\
+https://nytimes.com/2024/07/10/business/britain-green-energy-transition-jobs.html
+
 **Red Sox inching up wild-card standings, pushing front office into buyer's market**\
 `The Red Sox continue to climb the wild-card standings, as they gained another game after routing the A’s.`\
 https://nytimes.com/athletic/5628197/2024/07/09/red-sox-wild-card-standings/
