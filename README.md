@@ -1,3 +1,19 @@
+**The stutter run-up is Euro 2024's trending penalty technique - but why do players do it?**\
+`More and more footballers are hesitating before kicking the ball when taking penalties - this is how it works and the advantages it brings`\
+https://nytimes.com/athletic/5626604/2024/07/10/euro-2024-penalties-stutter-run-up/
+
+**Hansi Flick's first day at Barcelona: Nine senior players, youth prospects and tournament absentees**\
+`Barcelona are back for pre-season training — not that new coach Flick has many players to work with`\
+https://nytimes.com/athletic/5626559/2024/07/10/hansi-flick-barcelona-preseason-training/
+
+**Ivan Toney's penalty technique analysed: High risk, high reward**\
+`The Athletic speaks to experts about the England striker's unusual-but-effective method of taking penalties  `\
+https://nytimes.com/athletic/5625085/2024/07/10/ivan-toney-england-penalty-technique-euro-2024/
+
+**'Harsh words' and the Koeman debate: Netherlands' rocky road to the Euro 2024 semi-finals**\
+`Ronald Koeman's cutting comments about his own players have appeared unusual and yet the Dutch are a game away from the final`\
+https://nytimes.com/athletic/5625814/2024/07/10/netherlands-koeman-england-semi-final/
+
 **Euros teams playing in the Copa America is the last thing football needs**\
 `The only comparisons we need between European and South American sides come at the World Cup. Reaching out to other nations makes more sense`\
 https://nytimes.com/athletic/5626521/2024/07/10/uefa-conmebol-closer-ties-euro-2024-copa-america/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/07/10/world/europe/you-are-cordially-invited-to-euro-20
 **Berlin Honors Earliest Settlers, Whose Bones Shared Their Secrets**\
 `Archaeologists unearthed some 4,000 ancient skeletons from the heart of the city. After years of study, they were reinterred in a rare and solemn tribute.`\
 https://nytimes.com/2024/07/10/world/europe/berlin-honors-earliest-settlers-whose-bones-shared-their-secrets.html
-
-**They Fled Oppression at Home, but It Followed Them Abroad**\
-`Many Venezuelans who left their homeland oppose the country’s autocratic president, but strict requirements will prevent most from voting in a closely watched election.`\
-https://nytimes.com/2024/07/10/world/americas/venezuela-election-voters-abroad.html
-
-**Wednesday's MLB projections: Best starting pitchers, playoff odds, props and more**\
-`Projections for Wednesday's MLB games with expert picks for best bets, pitcher props, home run trends and more.`\
-https://nytimes.com/athletic/5624765/2024/07/10/mlb-odds-predictions-best-bets-july-10/
-
-**All the highlights from Euro 2024 and Copa America semifinals**\
-`A Lamine Yamal wondergoal helped fire Spain into the European Championship final at the expense of France before Argentina reached the Copa America final by beating Canada.`\
-https://nytimes.com/athletic/5627828/2024/07/10/euro-copa-america-highlights/
-
-**As Violence Surges, Can Pakistan Protect Its Chinese Projects?**\
-`China has invested billions in megaprojects across Pakistan. But a resurgence in militant violence is threatening to derail badly needed investment.`\
-https://nytimes.com/2024/07/10/world/asia/pakistan-china-attacks.html
 
