@@ -1,3 +1,7 @@
+**Biden Faces Fresh Calls to Withdraw as Democrats Fear Electoral Rout**\
+`The dam has mostly held on Capitol Hill for President Biden, but cracks continued to open as more donors and elected officials publicly called on President Biden to drop out.`\
+https://nytimes.com/2024/07/10/us/politics/biden-congress-clooney-election.html
+
 **There’s So Much We Don’t Know About the Death Toll in Gaza**\
 `Experts have little data to work with, giving rise to projections, dueling propaganda and, in the end, a narrowing window of accountability.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/death-toll-gaza-lancet

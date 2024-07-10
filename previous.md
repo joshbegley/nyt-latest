@@ -1,3 +1,7 @@
+**Biden Faces Fresh Calls to Withdraw as Democrats Fear Electoral Rout**\
+`The dam has mostly held on Capitol Hill for President Biden, but cracks continued to open as more donors and elected officials publicly called on President Biden to drop out.`\
+https://nytimes.com/2024/07/10/us/politics/biden-congress-clooney-election.html
+
 **There’s So Much We Don’t Know About the Death Toll in Gaza**\
 `Experts have little data to work with, giving rise to projections, dueling propaganda and, in the end, a narrowing window of accountability.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/death-toll-gaza-lancet
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/10/business/media/kevin-costner-horizon-release-canc
 **Women Hype Each Other Up With ‘Boots and a Slicked-Back Bun’ Meme**\
 `The catchy phrase, chanted in a lilting cadence, was first used by a group of friends cheering on each other’s outfits on a night out.`\
 https://nytimes.com/2024/07/10/style/boots-slicked-back-bun-meme-tiktok.html
-
-**Macron Ends His Silence, Calling for ‘a Broad Gathering' That Would Split the Left**\
-`In an open letter to the French people, he rejects any role for the far left France Unbowed party, setting the stage for a heated showdown.`\
-https://nytimes.com/2024/07/10/world/europe/macron-france-letter-left-split.html
 
