@@ -1,3 +1,15 @@
+**CBS News President to Step Down**\
+`Ingrid Ciprian-Matthews, who ascended to the role last year, will be a senior adviser on coverage through the presidential election.`\
+https://nytimes.com/2024/07/10/business/media/cbs-news-president-stepping-down.html
+
+**Word of the Day: compatible**\
+`This word has appeared in 131 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/07/10/learning/word-of-the-day-compatible.html
+
+**Deadly Israeli Airstrike Hits Shelter in Khan Younis**\
+`Several displaced Palestinians had sought shelter at the school in Khan Younis that was hit by the airstrike. The Israeli military said it targeting a Hamas member who participated in the Oct. 7 attack.`\
+https://nytimes.com/video/world/middleeast/100000009563644/israel-strikes-gaza-school.html
+
 **Chandler Smith on managing pressure and balancing NASCAR life as a parent: 12 Questions**\
 `Xfinity Series driver Chandler Smith talks about maturing as a driver, balancing NASCAR with family, his awe of hauler drivers, and more.`\
 https://nytimes.com/athletic/5626596/2024/07/10/chandler-smith-nascar-xfinity-pressure-12-questions/
@@ -15,7 +27,7 @@ https://nytimes.com/athletic/5629098/2024/07/10/nike-womens-world-cup-anniversar
 https://nytimes.com/2024/07/10/us/politics/nato-ukraine-trump-biden.html
 
 **EA Sports releases top QBs in CFB25: Did they get the top 8 right?**\
-`After months of anticipation, the ratings are finally in.`\
+`Eight quarterbacks were included in the initial top 100, and not one earned an overall rating higher than 93.`\
 https://nytimes.com/athletic/5628962/2024/07/10/college-football-25-qb-ratings-reaction/
 
 **Rep. Pat Ryan, Moderate Front-Liner, Calls on Biden to Step Aside**\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/10/nyregion/biden-pat-ryan.html
 **Mr. Baldwin’s lawyers cannot cite arguments prosecutors made at the trial of the armorer that could help their case.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/mr-baldwins-lawyers-cannot-cite-arguments-prosecutors-made-at-the-trial-of-the-armorer-that-could-help-their-case
-
-**They Hit Their Health Care Deductible. It Was Time to Party.**\
-`Some of those grappling with high health care costs are finding ways to celebrate small wins and build a sense of community.`\
-https://nytimes.com/2024/07/10/business/health-care-deductible-party.html
-
-**Leeds reclaim full ownership of Elland Road**\
-`Leeds United have announced that ownership of Elland Road has been transferred back to the club for the first time since 2004.`\
-https://nytimes.com/athletic/5629174/2024/07/10/elland-road-leeds/
-
-**Juventus sign midfielder Thuram from Nice**\
-`Juventus have completed the signing of midfielder Khephren Thuram from Nice in a deal worth €20million (£16.`\
-https://nytimes.com/athletic/5626523/2024/07/10/khephren-thuram-juventus-transfer/
 
