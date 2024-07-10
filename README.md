@@ -1,3 +1,19 @@
+**Mr. Baldwin’s lawyers cannot cite arguments prosecutors made at the trial of the armorer that could help their case.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/mr-baldwins-lawyers-cannot-cite-arguments-prosecutors-made-at-the-trial-of-the-armorer-that-could-help-their-case
+
+**They Hit Their Health Care Deductible. It Was Time to Party.**\
+`Some of those grappling with high health care costs are finding ways to celebrate small wins and build a sense of community.`\
+https://nytimes.com/2024/07/10/business/health-care-deductible-party.html
+
+**Leeds reclaim full ownership of Elland Road**\
+`Leeds United have announced that ownership of Elland Road has been transferred back to the club for the first time since 2004.`\
+https://nytimes.com/athletic/5629174/2024/07/10/elland-road-leeds/
+
+**Juventus sign midfielder Thuram from Nice**\
+`Juventus have completed the signing of midfielder Khephren Thuram from Nice in a deal worth €20million (£16.`\
+https://nytimes.com/athletic/5626523/2024/07/10/khephren-thuram-juventus-transfer/
+
 **Review: A Mixed Bill’s Highlight Bodes Well for the Future**\
 `The best dance by far on Smuin Contemporary Ballet’s program at the Joyce is by Amy Seiwert, who is about to be the company’s director.`\
 https://nytimes.com/2024/07/10/arts/dance/review-smuin-contemporary-ballet-joyce.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5629182/2024/07/10/statcast-mlb-draft-travis-bazzan
 **Mason Greenwood's Man Utd situation explained: How long can he be kept from training?**\
 `What are United and Greenwood's options if a move to Marseille falls through?`\
 https://nytimes.com/athletic/5628642/2024/07/10/mason-greenwood-transfer-and-training/
-
-**A Queer Mountain Lion Leaps From the Page to the Little Island Stage**\
-`Henry Hoke’s 2023 novel, “Open Throat,” narrated by an animal in peril in the Hollywood Hills, is adapted for a staged reading.`\
-https://nytimes.com/2024/07/10/theater/open-throat-little-island.html
-
-**Slow-Cooker Barbecue Chicken for Slow Summer Days**\
-`Just drop the ingredients into the pot, let them bubble for a few hours and then pull the soft, succulent meat into shreds.`\
-https://nytimes.com/2024/07/10/dining/slow-cooker-barbecue-chicken-for-slow-summer-days.html
-
-**In Constant Battle With Insurers, Doctors Reach for a Cudgel: A.I.**\
-`As health plans increasingly rely on technology to deny treatment, physicians are fighting back with chatbots that synthesize research and make the case.`\
-https://nytimes.com/2024/07/10/health/doctors-insurers-artificial-intelligence.html
-
-**How a misdemeanor plea deal offered to Alec Baldwin last year fell apart.**\
-`By Julia Jacobs`\
-https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/how-a-misdemeanor-plea-deal-offered-to-alec-baldwin-last-year-fell-apart
 
