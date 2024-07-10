@@ -1,3 +1,7 @@
+**Alec Baldwin’s Manslaughter Trial Begins: 4 Takeaways From Day 1**\
+`Prosecutors portrayed the actor as stubbornly disregarding safety standards, while the defense said he had no reason to think there would be live rounds on the set.`\
+https://nytimes.com/2024/07/10/arts/alec-baldwin-trial-takeaways.html
+
 **After meeting with Biden, some A.F.L.-C.I.O. leaders remain concerned about his candidacy.**\
 `By Jonathan Weisman and Michael D. Shear`\
 https://nytimes.com/live/2024/07/10/us/biden-trump-election/biden-union-afl-cio-election
