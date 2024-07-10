@@ -1,3 +1,7 @@
+**Phillies set tone against Dodgers, and it all began with Zack Wheeler vs. Shohei Ohtani**\
+`Wheeler has been dealing with back discomfort and he noted sometimes he didn't feel his velocity was all there Tuesday, but he dazzled LA.`\
+https://nytimes.com/athletic/5628167/2024/07/09/phillies-zack-wheeler-shohei-ohtani-dodgers/
+
 **Reds' Hunter Greene is an All-Star after an offseason of changes to his preparation, arsenal**\
 `Greene overhauled his offseason program and committed himself to improving upon last season. His changes have paid dividends.`\
 https://nytimes.com/athletic/5628140/2024/07/09/reds-hunter-greene-all-star-selection/

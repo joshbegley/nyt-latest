@@ -1,3 +1,7 @@
+**Phillies set tone against Dodgers, and it all began with Zack Wheeler vs. Shohei Ohtani**\
+`Wheeler has been dealing with back discomfort and he noted sometimes he didn't feel his velocity was all there Tuesday, but he dazzled LA.`\
+https://nytimes.com/athletic/5628167/2024/07/09/phillies-zack-wheeler-shohei-ohtani-dodgers/
+
 **Reds' Hunter Greene is an All-Star after an offseason of changes to his preparation, arsenal**\
 `Greene overhauled his offseason program and committed himself to improving upon last season. His changes have paid dividends.`\
 https://nytimes.com/athletic/5628140/2024/07/09/reds-hunter-greene-all-star-selection/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/09/us/politics/carjacking-shooting-sotomayor.html
 **Argentina 2-0 Canada takeaways: Messi scores, Argentina heads to Copa America final**\
 `Argentina is heading to its fourth Copa America final in the last five tournaments - The Athletic dissects the big talking points`\
 https://nytimes.com/athletic/5627969/2024/07/09/canada-argentina-copa-america-takeaways/
-
-**White House Doctor Discussed Business With the President’s Brother**\
-`Republicans are seeking information about a venture that Dr. Kevin O’Connor discussed with James Biden before the president was elected.`\
-https://nytimes.com/2024/07/09/us/politics/white-house-doctor-james-biden.html
 
