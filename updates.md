@@ -1,3 +1,11 @@
+**The strike killed at least 27 people and wounded dozens, Gazan health authorities said.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/07/10/world/israel-gaza-war-hamas/the-strike-killed-at-least-27-people-and-wounded-dozens-gazan-health-authorities-said
+
+**The U.S. Gymnasts Have Already Set an Olympic Record: For Crystals**\
+`In Paris, Simone Biles and Co. will be wearing leotards decorated with more than 10,000 crystals.`\
+https://nytimes.com/2024/07/10/style/usa-olympics-gymnastics-leotards.html
+
 **Squirt Guns and ‘Go Home’ Signs: Barcelona Residents Take Aim at Tourists**\
 `Locals confronted visitors to the Catalan capital in a whimsical (but very serious) demonstration against mass tourism and housing shortages.`\
 https://nytimes.com/2024/07/10/world/europe/barcelona-tourism-squirt-guns.html
