@@ -1,3 +1,11 @@
+**U.S. and Allies Target Russian Bots Working to Spread Propaganda**\
+`Intelligence officials from three countries flagged a Russian influence campaign that used artificial intelligence to create nearly 1,000 fake accounts on the social media platform X.`\
+https://nytimes.com/2024/07/09/business/russian-bots-artificial-intelligence-propaganda.html
+
+**Giants' 'Hard Knocks' takeaways: Malik Nabers piques interest at combine in episode 2**\
+`The LSU receiver was frank with the team about his competitive fire. Also, more on the Saquon Barkley saga, and Brian Daboll grills QBs.`\
+https://nytimes.com/athletic/5619604/2024/07/09/new-york-giants-hard-knocks-malik-nabers-brian-daboll/
+
 **Messi moves second on all-time men's international goalscorers list**\
 `Lionel Messi broke a tie with Ali Daei to move second on the list of men&#8217;s international scorers with a goal in the Copa America semifinal against Canada.`\
 https://nytimes.com/athletic/5628022/2024/07/09/lionel-messi-argentina-goals-all-time/
