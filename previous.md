@@ -1,3 +1,19 @@
+**Squirt Guns and ‘Go Home’ Signs: Barcelona Residents Take Aim at Tourists**\
+`Locals confronted visitors to the Catalan capital in a whimsical (but very serious) demonstration against mass tourism and housing shortages.`\
+https://nytimes.com/2024/07/10/world/europe/barcelona-tourism-squirt-guns.html
+
+**Angels' José Suarez reflects on struggles and reasons for DFA: 'I have to figure it out'**\
+`Two years ago, Suarez was once a top arm in the Angels system. But it has all come crashing down for the 26-year-old southpaw.`\
+https://nytimes.com/athletic/5627044/2024/07/10/angels-jose-suarez-dfa/
+
+**Staveley and Ghodoussi drove Newcastle's takeover, only time will tell if their exits are right**\
+`Amanda Staveley and Mehrdad Ghodoussi drove Newcastle's takeover, only time will tell if the club is right to part with them`\
+https://nytimes.com/athletic/5612184/2024/07/10/staveley-ghodoussi-leave-newcastle/
+
+**Texas swiped Texas A&M's baseball coach, and just like that it felt like old times**\
+`Jim Schlossnagle revealed more about the timeline that led to his Texas hire hours after the Aggies lost in the College World Series.`\
+https://nytimes.com/athletic/5627729/2024/07/10/texas-texas-am-baseball-coach-rivalry/
+
 **As trade deadline looms, how many more starts will Yusei Kikuchi make for the Blue Jays?**\
 `On Tuesday, Kikuchi limited the Giants to six hits in what John Schneider called “if not the best, one of the best outings he's had.”`\
 https://nytimes.com/athletic/5628270/2024/07/10/yusei-kikuchi-blue-jays-mlb-trade-deadline/
@@ -22,20 +38,4 @@ https://nytimes.com/athletic/5610811/2024/07/10/amanda-staveley-to-leave-newcast
 `Follow live coverage of the tenth day of Wimbledon 2024 today
 Alex de Minaur has withdrawn from his Wimbledon quarterfinal against Novak Djokovic with a hip injury.`\
 https://nytimes.com/athletic/5628686/2024/07/10/alex-de-minaur-withdraws-wimbledon-djokovic/
-
-**For the Olympics, USA men's basketball makes a sizable fix to fight a bully problem**\
-`Team USA got beat up on the boards at the 2023 FIBA World Cup. With Anthony Davis, Joel Embiid and Bam Adebayo, they hope that will change.`\
-https://nytimes.com/athletic/5627932/2024/07/10/team-usa-olympics-anthony-davis-joel-embiid-adebayo/
-
-**McIlroy says he used New York trip to reset after U.S. Open**\
-`The Northern Irishman put his headphones on and walked the High Line after his late collapse at Pinehurst`\
-https://nytimes.com/athletic/5628619/2024/07/10/rory-mcilroy-scottish-us-open/
-
-**Which Chargers UDFAs have the best shot at making the roster? Mailbag**\
-`The Chargers' new regime isn't tied to the bottom-of-the-roster holdovers, creating opportunity for several of the 22 undrafted rookies. `\
-https://nytimes.com/athletic/5627643/2024/07/10/chargers-mailbag-undrafted-free-agents-training-camp/
-
-**Zach Edey is already showing doubters what he can do in the NBA**\
-`For the better part of three years, talk of how Edey's game would translate to the NBA level dominated his college development.`\
-https://nytimes.com/athletic/5627986/2024/07/10/zach-edey-summer-league-grizzlies/
 
