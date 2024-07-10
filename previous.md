@@ -1,3 +1,7 @@
+**Microsoft Surrenders OpenAI Board Position**\
+`As regulatory scrutiny picks up, the tech giant says it is pleased with the progress OpenAI has made with governance and considers its oversight role unnecessary.`\
+https://nytimes.com/2024/07/10/technology/microsoft-openai-board.html
+
 **Arkansas Rejects Abortion Rights Amendment Petition on Technicality**\
 `The Arkansas secretary of state said that the group collecting signatures to put an abortion-rights amendment on the ballot had failed to submit some of the necessary paperwork.`\
 https://nytimes.com/2024/07/10/us/politics/arkansas-abortion-amendment.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5629641/2024/07/10/justin-jefferson-netflix-receive
 **Carol Bongiovi, Jon Bon Jovi’s Mother, Dies at 83**\
 `Nicknamed Mom Jovi, she founded the Jon Bon Jovi fan club, and earlier was a Marine and a Playboy bunny.`\
 https://nytimes.com/2024/07/10/arts/music/carol-bongiovi-dead.html
-
-**Biden Sets Second Post-Debate Interview, This Time With NBC’s Lester Holt**\
-`The interview will air in prime-time on NBC on Monday, the first night of the Republican National Convention.`\
-https://nytimes.com/2024/07/10/business/media/biden-interview-nbc-lester-holt.html
 

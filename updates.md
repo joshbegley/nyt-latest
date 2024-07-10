@@ -1,3 +1,7 @@
+**Microsoft Surrenders OpenAI Board Position**\
+`As regulatory scrutiny picks up, the tech giant says it is pleased with the progress OpenAI has made with governance and considers its oversight role unnecessary.`\
+https://nytimes.com/2024/07/10/technology/microsoft-openai-board.html
+
 **Arkansas Rejects Abortion Rights Amendment Petition on Technicality**\
 `The Arkansas secretary of state said that the group collecting signatures to put an abortion-rights amendment on the ballot had failed to submit some of the necessary paperwork.`\
 https://nytimes.com/2024/07/10/us/politics/arkansas-abortion-amendment.html
