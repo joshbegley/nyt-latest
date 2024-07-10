@@ -1,3 +1,7 @@
+**There’s So Much We Don’t Know About the Death Toll in Gaza**\
+`Experts have little data to work with, giving rise to projections, dueling propaganda and, in the end, a narrowing window of accountability.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/death-toll-gaza-lancet
+
 **U.A.E. Puts 84 Civil Society Members on Trial Again, Sentencing 43 to Life**\
 `The Emirati lawyers, academics and activists, who were imprisoned in national security trials, had been scheduled to be released.`\
 https://nytimes.com/2024/07/10/world/middleeast/uae-retrial-civil-society-members.html

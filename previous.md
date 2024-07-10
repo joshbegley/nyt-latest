@@ -1,3 +1,7 @@
+**There’s So Much We Don’t Know About the Death Toll in Gaza**\
+`Experts have little data to work with, giving rise to projections, dueling propaganda and, in the end, a narrowing window of accountability.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/death-toll-gaza-lancet
+
 **U.A.E. Puts 84 Civil Society Members on Trial Again, Sentencing 43 to Life**\
 `The Emirati lawyers, academics and activists, who were imprisoned in national security trials, had been scheduled to be released.`\
 https://nytimes.com/2024/07/10/world/middleeast/uae-retrial-civil-society-members.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/10/style/boots-slicked-back-bun-meme-tiktok.html
 **Macron Ends His Silence, Calling for ‘a Broad Gathering' That Would Split the Left**\
 `In an open letter to the French people, he rejects any role for the far left France Unbowed party, setting the stage for a heated showdown.`\
 https://nytimes.com/2024/07/10/world/europe/macron-france-letter-left-split.html
-
-**Jontay Porter pleads guilty to conspiracy to commit wire fraud**\
-`He was released on a $250,000 bond signed by his mother and his wife, and his sentencing has been scheduled for Dec. 18.`\
-https://nytimes.com/athletic/5629647/2024/07/10/jontay-porter-pleads-guilty-betting-scandal/
 
