@@ -1,3 +1,7 @@
+**U.S. and Allies Aim to Forge Commitments to Ukraine That Will Endure**\
+`The specter of a second Donald J. Trump presidency injects new urgency into the NATO summit this week. President Biden and other leaders agree Ukraine should have an “irreversible” path to membership.`\
+https://nytimes.com/2024/07/10/us/politics/nato-ukraine-trump-biden.html
+
 **EA Sports releases top QBs in CFB25: Did they get the top 8 right?**\
 `After months of anticipation, the ratings are finally in.`\
 https://nytimes.com/athletic/5628962/2024/07/10/college-football-25-qb-ratings-reaction/

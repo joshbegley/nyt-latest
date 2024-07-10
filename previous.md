@@ -1,3 +1,7 @@
+**U.S. and Allies Aim to Forge Commitments to Ukraine That Will Endure**\
+`The specter of a second Donald J. Trump presidency injects new urgency into the NATO summit this week. President Biden and other leaders agree Ukraine should have an “irreversible” path to membership.`\
+https://nytimes.com/2024/07/10/us/politics/nato-ukraine-trump-biden.html
+
 **EA Sports releases top QBs in CFB25: Did they get the top 8 right?**\
 `After months of anticipation, the ratings are finally in.`\
 https://nytimes.com/athletic/5628962/2024/07/10/college-football-25-qb-ratings-reaction/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5629201/2024/07/10/demi-stokes-newcastle-man-city-t
 **George Clooney, a Major Biden Fund-Raiser, Urges Him to Drop Out**\
 `Mr. Clooney, who co-hosted a lavish fund-raiser for President Biden last month, wrote in a guest essay in The New York Times that Democrats “are not going to win in November with this president.”`\
 https://nytimes.com/2024/07/10/us/politics/george-clooney-biden-drop-out.html
-
-**Should My Wife and I Tell Our 8-Year-Old How Much Money We Make?**\
-`The magazine’s Ethicist columnist on the kinds of information that can be burdensome to children.`\
-https://nytimes.com/2024/07/10/magazine/parents-money-conversation-ethics.html
 
