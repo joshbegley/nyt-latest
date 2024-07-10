@@ -1,3 +1,7 @@
+**For the Olympics, USA men's basketball makes a sizable fix to fight a bully problem**\
+`Team USA got beat up on the boards at the 2023 FIBA World Cup. With Anthony Davis, Joel Embiid and Bam Adebayo, they hope that will change.`\
+https://nytimes.com/athletic/5627932/2024/07/10/team-usa-olympics-anthony-davis-joel-embiid-adebayo/
+
 **McIlroy says he used New York trip to reset after U.S. Open**\
 `NORTH BERWICK, Scotland — In the days following his heartbreaking finish at the U.`\
 https://nytimes.com/athletic/5628619/2024/07/10/rory-mcilroy-scottish-us-open/

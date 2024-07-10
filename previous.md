@@ -1,3 +1,7 @@
+**For the Olympics, USA men's basketball makes a sizable fix to fight a bully problem**\
+`Team USA got beat up on the boards at the 2023 FIBA World Cup. With Anthony Davis, Joel Embiid and Bam Adebayo, they hope that will change.`\
+https://nytimes.com/athletic/5627932/2024/07/10/team-usa-olympics-anthony-davis-joel-embiid-adebayo/
+
 **McIlroy says he used New York trip to reset after U.S. Open**\
 `NORTH BERWICK, Scotland — In the days following his heartbreaking finish at the U.`\
 https://nytimes.com/athletic/5628619/2024/07/10/rory-mcilroy-scottish-us-open/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/10/briefing/joe-biden-democrats-trump-polling.html
 **Lionel Messi and Argentina rejoice in their greatest national team of all time**\
 `This team have swept all before them over the past five years and their success eclipses even Argentina's previous World Cup winning teams`\
 https://nytimes.com/athletic/5628315/2024/07/10/messi-argentina-copa-greatest-team/
-
-**Bucks free-agency reset: 6 options for their final roster spot**\
-`With only a veteran minimum salary slot at their disposal, the Bucks have limited options to add to the roster.`\
-https://nytimes.com/athletic/5624503/2024/07/10/bucks-free-agency-gary-trent-jr-markelle-fultz-kyle-lowry/
 
