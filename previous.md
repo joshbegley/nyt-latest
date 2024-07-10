@@ -1,3 +1,19 @@
+**Who should USMNT hire to replace Berhalter? Analysing Klopp, Pochettino, Vieira and others**\
+`The USMNT will have a new coach in the dugout for the 2026 World Cup on home soil. But who would be a good fit?`\
+https://nytimes.com/athletic/5629410/2024/07/10/usmnt-coaching-candidates-klopp-vieira-pochettino-tuchel/
+
+**USMNT coach Berhalter fired after Copa America exit**\
+`U.`\
+https://nytimes.com/athletic/5628094/2024/07/10/gregg-berhalter-fired-usmnt-copa-america/
+
+**Pelosi and Others Try a New Tack With Biden: Is That Your Final Answer?**\
+`A defiant and angry president says he is not going anywhere. Some Democrats are trying to appeal to another side of the politician, who has been a realist about his political fortunes before.`\
+https://nytimes.com/2024/07/10/us/politics/pelosi-biden-democrats.html
+
+**Dodgers option Bobby Miller, who has an 8.07 ERA: 'I have some work to do'**\
+`There is not a firm return date as Miller will report to Los Angeles, where he will work with Dodgers staff and coaches.`\
+https://nytimes.com/athletic/5630027/2024/07/10/dodgers-option-bobby-miller-who-has-an-8-07-era-i-have-some-work-to-do/
+
 **Harris Sharpens Her Attacks on Trump**\
 `The vice president told a crowd of roughly 20,000 in Dallas that former President Donald J. Trump had said he would terminate the Constitution in a second term.`\
 https://nytimes.com/2024/07/10/us/politics/kamala-harris-donald-trump.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5629968/2024/07/10/ollie-watkins-england-euro-2024/
 **Wimbledon day 10: Taylor Fritz last American out, Djokovic walkover empties Centre Court**\
 `A slice masterclass on Centre Court, walkovers and lucky losers, and blocking out the haters`\
 https://nytimes.com/athletic/5629204/2024/07/10/wimbledon-recap-fritz-musetti-analysis-djokovic-walkover/
-
-**A Daughter of Hollywood Royalty Appeals to Los Angeles: No Mask Bans**\
-`Violet Affleck, the eldest child of Jennifer Garner and Ben Affleck, called for greater access to masks in a short speech during which she revealed her own “post-viral condition.”`\
-https://nytimes.com/2024/07/10/style/violet-affleck-mask-ben-jennifer-garner-daughter.html
-
-**27 Journalists, 22,252 Vehicles and $200,000 in Foregone Revenue**\
-`A reporting team hit the streets during rush hour to find out how many cars entered New York City’s business district in one hour — and how much money in tolls the city missed out on.`\
-https://nytimes.com/2024/07/10/insider/27-journalists-22252-vehicles-and-200000-in-foregone-revenue.html
-
-**Biden Has Failed to Quiet His Democratic Doubters**\
-`Also, NATO agreed to cement long-term support for Ukraine. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/07/10/briefing/biden-democrats-doubts-nato-ukraine-plan.html
-
-**It’s Coming Home: Dream, boast or way of life?**\
-`Whether the song is arrogant or earnest or ironic has become one of the more contested topics of the last few years`\
-https://nytimes.com/athletic/5551953/2024/07/10/england-coming-home-three-lions/
 
