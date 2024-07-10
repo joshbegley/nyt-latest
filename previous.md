@@ -1,3 +1,7 @@
+**Blake Snell returns and youth takes over at shortstop as Giants win a walkoff stunner**\
+`The Giants might not have a solid identity yet, or even a winning record. But they're appearing more and more like a functional team.`\
+https://nytimes.com/athletic/5628730/2024/07/10/sf-giants-blake-snell-walkoff-win/
+
 **Liverpool set to sign Ngumoha, 15, from Chelsea**\
 `Liverpool are set to complete the signing of England Under-16 international Rio Ngumoha from Chelsea.`\
 https://nytimes.com/athletic/5628841/2024/07/10/liverpool-rio-ngumoha-transfer-chelsea/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5612184/2024/07/10/staveley-ghodoussi-leave-newcast
 **Texas swiped Texas A&M's baseball coach, and just like that it felt like old times**\
 `Jim Schlossnagle revealed more about the timeline that led to his Texas hire hours after the Aggies lost in the College World Series.`\
 https://nytimes.com/athletic/5627729/2024/07/10/texas-texas-am-baseball-coach-rivalry/
-
-**As trade deadline looms, how many more starts will Yusei Kikuchi make for the Blue Jays?**\
-`On Tuesday, Kikuchi limited the Giants to six hits in what John Schneider called “if not the best, one of the best outings he's had.”`\
-https://nytimes.com/athletic/5628270/2024/07/10/yusei-kikuchi-blue-jays-mlb-trade-deadline/
 
