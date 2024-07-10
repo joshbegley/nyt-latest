@@ -1,3 +1,19 @@
+**Harris Sharpens Her Attacks on Trump**\
+`The vice president told a crowd of roughly 20,000 in Dallas that former President Donald J. Trump had said he would terminate the Constitution in a second term.`\
+https://nytimes.com/2024/07/10/us/politics/kamala-harris-donald-trump.html
+
+**Mary Martin, Who Gave Many Music Stars Their Start, Dies at 85**\
+`Her loyalty to artists and her eye for talent made her a force in a male-dominated business. Among her accomplishments: introducing Bob Dylan to the Band.`\
+https://nytimes.com/2024/07/10/arts/music/mary-martin-dead.html
+
+**For First Time, NATO Accuses China of Supplying Russia’s Attacks on Ukraine**\
+`The statement was a major departure for the alliance, which until 2019 never officially mentioned China as a concern.`\
+https://nytimes.com/2024/07/10/us/politics/nato-china-russia-ukraine.html
+
+**Escalation between Israel and Hezbollah puts pressure on Gaza cease-fire talks.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/07/10/world/israel-gaza-war-hamas/escalation-between-israel-and-hezbollah-puts-pressure-on-gaza-cease-fire-talks
+
 **Watkins 'lost for words' after sending England to Euro 2024 final**\
 `Ollie Watkins described England reaching the European Championship final as the &#8220;best feeling ever&#8221; after his dramatic injury-time winner secured a 2-1 victory against the Netherlands.`\
 https://nytimes.com/athletic/5629968/2024/07/10/ollie-watkins-england-euro-2024/
