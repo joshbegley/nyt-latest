@@ -1,3 +1,7 @@
+**It’s Coming Home: Dream, boast or way of life?**\
+`Whether the song is arrogant or earnest or ironic has become one of the more contested topics of the last few years`\
+https://nytimes.com/athletic/5551953/2024/07/10/england-coming-home-three-lions/
+
 **With Tiny Shampoo Bottles Soon to Be Banned, N.Y. Hotels Weigh Options**\
 `Starting Jan. 1, large hotels will no longer be able to offer small containers of shampoo and conditioner. The bill is part of an effort to cut down on single-use plastic.`\
 https://nytimes.com/2024/07/10/nyregion/ny-hotels-toiletry-single-use-plastic.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5622633/2024/07/10/netherlands-england-euro-2024-wa
 **Ocasio-Cortez Files Impeachment Articles Against Justices Alito and Thomas**\
 `Impeachment has no realistic chance of advancing in the Republican-controlled House, but it speaks to a motivating issue for Democrats: the Supreme Court’s conservative supermajority.`\
 https://nytimes.com/2024/07/10/us/politics/aoc-samuel-alito-clarence-thomas-impeach.html
-
-**Trump Rejoices at How the Landscape Has Changed**\
-`After largely disappearing from view to let Democratic infighting play out, Donald Trump held a rally that was at times boastful and mercilessly cruel.`\
-https://nytimes.com/2024/07/10/us/politics/trump-rally-biden.html
 
