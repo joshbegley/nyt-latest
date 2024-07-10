@@ -8,7 +8,7 @@ https://nytimes.com/athletic/5627836/2024/07/10/sf-giants-shortstop-brett-wiisel
 
 **Judge Suggests He Is Likely to Dismiss Giuliani’s Bankruptcy Case**\
 `If the judge follows through, it would allow creditors to pursue foreclosures, repossessions and lawsuits that have been on hold as Rudolph Giuliani sought the protection of bankruptcy law.`\
-https://nytimes.com/2024/07/10/us/politics/giuliani-bankruptcy-case.html
+https://nytimes.com/2024/07/10/us/politics/rudy-giuliani-bankruptcy-case.html
 
 **Alec Baldwin Trial Over ‘Rust’ Movie Shooting Begins**\
 `Alec Baldwin is on trial on a charge of involuntary manslaughter for his role in the fatal shooting of a cinematographer on the set of the film “Rust.”`\

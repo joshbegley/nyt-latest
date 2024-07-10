@@ -1,3 +1,7 @@
+**Judge Suggests He Is Likely to Dismiss Giuliani’s Bankruptcy Case**\
+`If the judge follows through, it would allow creditors to pursue foreclosures, repossessions and lawsuits that have been on hold as Rudolph Giuliani sought the protection of bankruptcy law.`\
+https://nytimes.com/2024/07/10/us/politics/rudy-giuliani-bankruptcy-case.html
+
 **Spain vs. England Euro 2024 final odds: Spain favored to win for the fourth time**\
 `Spain is favored against England for Sunday's Euro 2024 final. Spain is seeking its fourth title while England is looking for its first.`\
 https://nytimes.com/athletic/5629805/2024/07/10/spain-england-euro-2024-final-odds/
