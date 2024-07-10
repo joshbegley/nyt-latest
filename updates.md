@@ -1,3 +1,15 @@
+**The Messages From Biden That are Understood, and Not**\
+`A president who long delighted in public speech is now sometimes hard to understand. Does it matter?`\
+https://nytimes.com/2024/07/10/us/politics/biden-speech-articulation.html
+
+**Southgate explains Trippier substitution in England semi-final win**\
+`Gareth Southgate says England &#8220;didn’t want to take any chances&#8221; with Kieran Trippier after he was taken off during their semi-final win over the Netherlands on Wednesday.`\
+https://nytimes.com/athletic/5630134/2024/07/10/kieran-trippier-injury-england/
+
+**David Liederman, Who Found Sweet Success With David’s Cookies, Dies at 75**\
+`His innovative version of the chocolate chip cookie, studded with irregular pieces of dark Swiss chocolate, led to a chain of more than 100 stores worldwide.`\
+https://nytimes.com/2024/07/10/dining/david-liederman-dead.html
+
 **After Playing an Outlaw, Alec Baldwin Winds Up on Trial**\
 `The actor, who was charged with involuntary manslaughter, went on trial more than two years after the fatal shooting of the cinematographer of the movie “Rust.”`\
 https://nytimes.com/2024/07/10/arts/alec-baldwin-trial-involuntary-manslaughter.html
