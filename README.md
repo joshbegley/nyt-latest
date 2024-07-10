@@ -1,3 +1,7 @@
+**McIlroy says he used New York trip to reset after U.S. Open**\
+`NORTH BERWICK, Scotland — In the days following his heartbreaking finish at the U.`\
+https://nytimes.com/athletic/5628619/2024/07/10/rory-mcilroy-scottish-us-open/
+
 **Which Chargers UDFAs have the best shot at making the roster? Mailbag**\
 `The Chargers' new regime isn't tied to the bottom-of-the-roster holdovers, creating opportunity for several of the 22 undrafted rookies. `\
 https://nytimes.com/athletic/5627643/2024/07/10/chargers-mailbag-undrafted-free-agents-training-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5628315/2024/07/10/messi-argentina-copa-greatest-te
 **Bucks free-agency reset: 6 options for their final roster spot**\
 `With only a veteran minimum salary slot at their disposal, the Bucks have limited options to add to the roster.`\
 https://nytimes.com/athletic/5624503/2024/07/10/bucks-free-agency-gary-trent-jr-markelle-fultz-kyle-lowry/
-
-**Twins mailbag: Brooks Lee comps, trade deadline needs, cutting Jordan Balazovic**\
-`Plus the plans for Simeon Woods Richardson and Louie Varland, why attendance is down and why Carlos Correa stopped running.`\
-https://nytimes.com/athletic/5613921/2024/07/10/twins-trade-deadline-brooks-lee-comps/
 
