@@ -1,3 +1,19 @@
+**Watkins 'lost for words' after sending England to Euro 2024 final**\
+`Ollie Watkins described England reaching the European Championship final as the &#8220;best feeling ever&#8221; after his dramatic injury-time winner secured a 2-1 victory against the Netherlands.`\
+https://nytimes.com/athletic/5629968/2024/07/10/ollie-watkins-england-euro-2024/
+
+**Wimbledon day 10: Taylor Fritz last American out, Djokovic walkover empties Centre Court**\
+`A slice masterclass on Centre Court, walkovers and lucky losers, and blocking out the haters`\
+https://nytimes.com/athletic/5629204/2024/07/10/wimbledon-recap-fritz-musetti-analysis-djokovic-walkover/
+
+**A Daughter of Hollywood Royalty Appeals to Los Angeles: No Mask Bans**\
+`Violet Affleck, the eldest child of Jennifer Garner and Ben Affleck, called for greater access to masks in a short speech during which she revealed her own “post-viral condition.”`\
+https://nytimes.com/2024/07/10/style/violet-affleck-mask-ben-jennifer-garner-daughter.html
+
+**27 Journalists, 22,252 Vehicles and $200,000 in Foregone Revenue**\
+`A reporting team hit the streets during rush hour to find out how many cars entered New York City’s business district in one hour — and how much money in tolls the city missed out on.`\
+https://nytimes.com/2024/07/10/insider/27-journalists-22252-vehicles-and-200000-in-foregone-revenue.html
+
 **Biden Has Failed to Quiet His Democratic Doubters**\
 `Also, NATO agreed to cement long-term support for Ukraine. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/07/10/briefing/biden-democrats-doubts-nato-ukraine-plan.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5629805/2024/07/10/spain-england-euro-2024-final-od
 **The Giants' messy search for a shortstop turned out OK after all**\
 `The Giants have ended up with the best possible shortstop arrangement, even if it was a little by accident.`\
 https://nytimes.com/athletic/5627836/2024/07/10/sf-giants-shortstop-brett-wiisely-tyler-fitzgerald/
-
-**Judge Suggests He Is Likely to Dismiss Giuliani’s Bankruptcy Case**\
-`If the judge follows through, it would allow creditors to pursue foreclosures, repossessions and lawsuits that have been on hold as Rudolph Giuliani sought the protection of bankruptcy law.`\
-https://nytimes.com/2024/07/10/us/politics/rudy-giuliani-bankruptcy-case.html
-
-**Alec Baldwin Trial Over ‘Rust’ Movie Shooting Begins**\
-`Alec Baldwin is on trial on a charge of involuntary manslaughter for his role in the fatal shooting of a cinematographer on the set of the film “Rust.”`\
-https://nytimes.com/video/us/100000009564039/alec-baldwin-rust-trial.html
-
-**Wave, Jill Ellis not found to have violated NWSL policy**\
-`The NWSL investigated allegations against the Wave via a third-party legal representative between February and April 2024.`\
-https://nytimes.com/athletic/5629789/2024/07/10/jill-ellis-wave-nwsl-investigation/
-
-**The Briefing: Netherlands 1 England 2 - Late substitute Watkins hits winner to set up Euro 2024 final with Spain**\
-`We break down the key talking points from the match in Dortmund as England reached a second consecutive European Championship final`\
-https://nytimes.com/athletic/5622633/2024/07/10/netherlands-england-euro-2024-watkins-kane/
 

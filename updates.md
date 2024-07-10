@@ -1,3 +1,19 @@
+**Watkins 'lost for words' after sending England to Euro 2024 final**\
+`Ollie Watkins described England reaching the European Championship final as the &#8220;best feeling ever&#8221; after his dramatic injury-time winner secured a 2-1 victory against the Netherlands.`\
+https://nytimes.com/athletic/5629968/2024/07/10/ollie-watkins-england-euro-2024/
+
+**Wimbledon day 10: Taylor Fritz last American out, Djokovic walkover empties Centre Court**\
+`A slice masterclass on Centre Court, walkovers and lucky losers, and blocking out the haters`\
+https://nytimes.com/athletic/5629204/2024/07/10/wimbledon-recap-fritz-musetti-analysis-djokovic-walkover/
+
+**A Daughter of Hollywood Royalty Appeals to Los Angeles: No Mask Bans**\
+`Violet Affleck, the eldest child of Jennifer Garner and Ben Affleck, called for greater access to masks in a short speech during which she revealed her own “post-viral condition.”`\
+https://nytimes.com/2024/07/10/style/violet-affleck-mask-ben-jennifer-garner-daughter.html
+
+**27 Journalists, 22,252 Vehicles and $200,000 in Foregone Revenue**\
+`A reporting team hit the streets during rush hour to find out how many cars entered New York City’s business district in one hour — and how much money in tolls the city missed out on.`\
+https://nytimes.com/2024/07/10/insider/27-journalists-22252-vehicles-and-200000-in-foregone-revenue.html
+
 **Biden Has Failed to Quiet His Democratic Doubters**\
 `Also, NATO agreed to cement long-term support for Ukraine. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/07/10/briefing/biden-democrats-doubts-nato-ukraine-plan.html
