@@ -1,3 +1,7 @@
+**Overlooked No More: Ursula Parrott, Best-Selling Author and Voice for the Modern Woman**\
+`Her writing, about marriage and divorce, sex and its consequences, work-life balance, the challenges of child-rearing and other topics, still resonates today.`\
+https://nytimes.com/2024/07/10/obituaries/ursula-parrott-overlooked.html
+
 **Georgia, UCLA cancel home-and-home series**\
 `Georgia and UCLA were scheduled for a home-and-home series in 2025-26, but those games have been canceled. `\
 https://nytimes.com/athletic/5482079/2024/07/10/georgia-ucla-cancel-football-series/
