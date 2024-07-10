@@ -1,3 +1,19 @@
+**Menendez’s Lawyer Tells Jury That Bribery Case Is ‘Painfully Thin’**\
+`Senator Robert Menendez’s lawyers finished a six-hour closing statement on Wednesday afternoon.`\
+https://nytimes.com/2024/07/10/nyregion/robert-menendez-bribery-trial.html
+
+**Rep. Elissa Slotkin, a Michigan Democrat running for Senate, tells donors Biden is behind in her state.**\
+`By Michael C. Bender`\
+https://nytimes.com/2024/07/10/us/politics/elissa-slotkin-biden.html
+
+**Elena Rybakina's Wimbledon form is as serene as it is ominous**\
+`The Kazakh dismantled Svitolina with a ruthless display of serving and returning. When she is in form, she makes tennis effortless`\
+https://nytimes.com/athletic/5629320/2024/07/10/elena-rybakina-wimbledon/
+
+**The judge knows the outlines of the case, having presided over the trial of the armorer.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/the-judge-knows-the-outlines-of-the-case-having-presided-over-the-trial-of-the-armorer
+
 **Quinn: The golfer I am and the golfer I want to be collide at North Berwick**\
 `The first round in Scotland came with a promise, but then human nature took hold.`\
 https://nytimes.com/athletic/5629437/2024/07/10/north-berwick-golf-club-playing/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/07/10/obituaries/ursula-parrott-overlooked.html
 **Georgia, UCLA cancel home-and-home series**\
 `Georgia and UCLA were scheduled for a home-and-home series in 2025-26, but those games have been canceled. `\
 https://nytimes.com/athletic/5482079/2024/07/10/georgia-ucla-cancel-football-series/
-
-**The prosecution accused Mr. Baldwin of ‘numerous breaches of firearm safety.’**\
-`By Tim Balk and Graham Bowley`\
-https://nytimes.com/2024/07/10/arts/the-prosecution-accused-mr-baldwin-of-numerous-breaches-of-firearm-safety.html
-
-**Hot Nights Fuel Wildfires in California, Complicating Containment**\
-`Climate change is causing more fires to burn overnight, growing bigger, lasting longer and challenging the fire teams trying to control them.`\
-https://nytimes.com/2024/07/10/climate/wildfires-heat-wave-night-temperature.html
-
-**As Biden Struggles, the Fight for the House Takes On New Importance**\
-`Only four seats separate Democrats from the House majority, making the chamber a potential bulwark against complete Republican control. But gaining even a handful of seats will be difficult.`\
-https://nytimes.com/2024/07/10/us/politics/house-biden-trump.html
-
-**CFB25's player ratings are here: Who belongs in the top 100?**\
-`EA developers have touted the attention to detail they've poured into the video game. How'd they do in their ratings of this season's stars?`\
-https://nytimes.com/athletic/5628987/2024/07/10/college-football-player-ratings-top-100-underrated/
 
