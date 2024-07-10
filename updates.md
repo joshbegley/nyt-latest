@@ -1,3 +1,7 @@
+**Bucks free-agency reset: 6 options for their final roster spot**\
+`With only a veteran minimum salary slot at their disposal, the Bucks have limited options to add to the roster.`\
+https://nytimes.com/athletic/5624503/2024/07/10/bucks-free-agency-gary-trent-jr-markelle-fultz-kyle-lowry/
+
 **Twins mailbag: Brooks Lee comps, trade deadline needs, cutting Jordan Balazovic**\
 `Plus the plans for Simeon Woods Richardson and Louie Varland, why attendance is down and why Carlos Correa stopped running.`\
 https://nytimes.com/athletic/5613921/2024/07/10/twins-trade-deadline-brooks-lee-comps/

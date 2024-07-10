@@ -1,3 +1,7 @@
+**Bucks free-agency reset: 6 options for their final roster spot**\
+`With only a veteran minimum salary slot at their disposal, the Bucks have limited options to add to the roster.`\
+https://nytimes.com/athletic/5624503/2024/07/10/bucks-free-agency-gary-trent-jr-markelle-fultz-kyle-lowry/
+
 **Twins mailbag: Brooks Lee comps, trade deadline needs, cutting Jordan Balazovic**\
 `Plus the plans for Simeon Woods Richardson and Louie Varland, why attendance is down and why Carlos Correa stopped running.`\
 https://nytimes.com/athletic/5613921/2024/07/10/twins-trade-deadline-brooks-lee-comps/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/10/podcasts/democrats-biden-israel-airstrike.html
 **Wordle Review No. 1,118, July 11, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/10/crosswords/wordle-review-1118.html
-
-**The Connections Companion No. 396, July 11, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/10/crosswords/connections-companion-396.html
 
