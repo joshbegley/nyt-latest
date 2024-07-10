@@ -1,3 +1,11 @@
+**The Athletic FC: Yamal, perfection and payback; will Messi reach Ronaldo's goalscoring mark?**\
+`Today in The Athletic FC: Yamal's stunner and one-move checkmate for Rabiot. Plus: Argentina and Messi still in search of 'greatest' tags`\
+https://nytimes.com/athletic/5628628/2024/07/10/the-athletic-fc-yamal-perfection-and-payback-will-messi-reach-ronaldos-goalscoring-mark/
+
+**Staveley and Ghodoussi to leave Newcastle United**\
+`Newcastle United co-owners Amanda Staveley and Mehrdad Ghodoussi are to leave the club after three years at St James&#8217; Park.`\
+https://nytimes.com/athletic/5610811/2024/07/10/amanda-staveley-to-leave-newcastle-united/
+
 **Alex de Minaur withdraws from Novak Djokovic Wimbledon quarterfinal**\
 `Alex de Minaur has withdrawn from his Wimbledon quarterfinal against Novak Djokovic with a hip injury.`\
 https://nytimes.com/athletic/5628686/2024/07/10/alex-de-minaur-withdraws-wimbledon-djokovic/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5625975/2024/07/10/netherlands-penalty-cheat-sheet-
 **Aston Villa move to re-sign Philogene from Hull City**\
 `Aston Villa have made a move to re-sign Jaden Philogene from Hull City by activating a matching rights clause they negotiated in the deal that saw him sold to the Championship club last summer.`\
 https://nytimes.com/athletic/5626592/2024/07/10/aston-villa-jaden-philogene/
-
-**The Pulse: MLB Draft's most interesting potential No. 1**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5627536/2024/07/10/travis-bazzana-mlb-draft-the-pulse/
-
-**The Democrats’ Unhappy Indecision**\
-`Many seem to be falling in line behind President Biden even as polling showed his campaign to be in trouble.`\
-https://nytimes.com/2024/07/10/briefing/joe-biden-democrats-trump-polling.html
 
