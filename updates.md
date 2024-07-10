@@ -1,3 +1,11 @@
+**Where Ravens are better, worse or the same following offseason of notable losses**\
+`Where has Baltimore improved since January's AFC championship loss, and where could the team stand to add more talent before the season?`\
+https://nytimes.com/athletic/5624155/2024/07/10/ravens-offseason-roster-better-worse/
+
+**Rivalries, conspiracy theories and lots of arguing: Welcome to officiating at Copa America**\
+`Cultural differences are as extreme as the arguments - no wonder refereeing has been in the spotlight at this Copa America`\
+https://nytimes.com/athletic/5627168/2024/07/10/referee-copa-america-argentina-brazil/
+
 **Five things to watch when Browns open training camp**\
 `We'll get a glimpse of what the offense will look like with Ken Dorsey as coordinator, the team's plan for the new kickoff rules and more.`\
 https://nytimes.com/athletic/5615176/2024/07/10/browns-training-camp-2024/
