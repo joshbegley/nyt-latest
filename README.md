@@ -1,3 +1,7 @@
+**Arkansas Rejects Abortion Rights Amendment Petition on Technicality**\
+`The Arkansas secretary of state said that the group collecting signatures to put an abortion-rights amendment on the ballot had failed to submit some of the necessary paperwork.`\
+https://nytimes.com/2024/07/10/us/politics/arkansas-abortion-amendment.html
+
 **Joe Bonsall, Tenor Voice of the Oak Ridge Boys, Dies at 76**\
 `His vocals on songs like “Elvira” were a key to the evolution of the group, originally a Southern gospel quartet, into perennial country hitmakers.`\
 https://nytimes.com/2024/07/10/arts/music/joe-bonsall-dead.html
@@ -20,7 +24,7 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/death-toll-gaza-lancet
 
 **U.A.E. Puts 84 Civil Society Members on Trial Again, Sentencing 43 to Life**\
 `The Emirati lawyers, academics and activists, who were imprisoned in national security trials, had been scheduled to be released.`\
-https://nytimes.com/2024/07/10/world/middleeast/uae-retrial-civil-society-members.html
+https://nytimes.com/2024/07/10/world/middleeast/uae-trial-civil-society-members.html
 
 **What we learned about Justin Jefferson, Vikings from Netflix's 'Receiver' series**\
 `New series sheds light on Minnesota's superstar WR, reflecting on the challenges of the 2023 season.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/10/arts/music/carol-bongiovi-dead.html
 **Biden Sets Second Post-Debate Interview, This Time With NBC’s Lester Holt**\
 `The interview will air in prime-time on NBC on Monday, the first night of the Republican National Convention.`\
 https://nytimes.com/2024/07/10/business/media/biden-interview-nbc-lester-holt.html
-
-**NASA Says No Plan to Use SpaceX to Rescue Boeing Starliner Astronauts**\
-`In a news conference from aboard the International Space Station, Butch Wilmore and Suni Williams said they had confidence in the troubled spacecraft to get them home.`\
-https://nytimes.com/2024/07/10/science/nasa-spacex-boeing-starliner-astronauts.html
 
