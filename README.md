@@ -2,7 +2,7 @@
 `Manchester United posted a £71.`\
 https://nytimes.com/athletic/5628801/2024/07/10/man-utd-psr-accounts-finances/
 
-**"I don’t know about feeling Colombian, but I get emotional when I hear the national anthem"**\
+**‘I don’t know about feeling Colombian, but I get emotional when I hear the national anthem’**\
 `Nestor Lorenzo played in a World Cup final for Argentina - he's now masterminding Colombia's fine run at Copa America in distinctive fashion`\
 https://nytimes.com/athletic/5628047/2024/07/10/nestor-lorenzo-colombia-copa-america-james-rodriguez/
 
