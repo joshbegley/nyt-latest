@@ -1,3 +1,15 @@
+**The prosecution accused Mr. Baldwin of ‘numerous breaches of firearm safety.’**\
+`By Tim Balk and Graham Bowley`\
+https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/the-prosecution-accused-mr-baldwin-of-numerous-breaches-of-firearm-safety
+
+**Hot Nights Fuel Wildfires, Complicating Containment Efforts**\
+`Climate change is causing more fires to burn overnight, growing bigger, lasting longer and challenging the fire teams trying to control them.`\
+https://nytimes.com/2024/07/10/climate/wildfires-heat-wave-night-temperature.html
+
+**Mr. Baldwin’s defense team called the shooting a ‘tragic accident,’ saying he had no reason to think the gun had live ammunition.**\
+`The defense shifted blame to crew members who are supposed to oversee gun safety on the set.`\
+https://nytimes.com/2024/07/10/arts/alec-baldwin-rust-armorer-defense.html
+
 **As Biden Struggles, the Fight for the House Takes On New Importance**\
 `Only four seats separate Democrats from the House majority, making the chamber a potential bulwark against complete Republican control. But gaining even a handful of seats will be difficult.`\
 https://nytimes.com/2024/07/10/us/politics/house-biden-trump.html
