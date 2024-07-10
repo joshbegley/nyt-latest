@@ -1,3 +1,7 @@
+**Dear New York State Senators, Could You Please Repeat That?**\
+`We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Casey Goldstein, age 17.`\
+https://nytimes.com/2024/07/10/learning/dear-new-york-state-senators-could-you-please-repeat-that.html
+
 **Coutinho joins Vasco da Gama on loan from Aston Villa**\
 `Aston Villa have confirmed midfielder Philippe Coutinho has joined Vasco da Gama on a season-long loan.`\
 https://nytimes.com/athletic/5629069/2024/07/10/philippe-coutinho-vasco-da-gama-loan-aston-villa/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial
 **The long road to a criminal trial for Mr. Baldwin.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/the-long-road-to-a-criminal-trial-for-mr-baldwin
-
-**Here’s the latest.**\
-`By Julia Jacobs`\
-https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/heres-the-latest
 
