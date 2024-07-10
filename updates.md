@@ -1,3 +1,7 @@
+**Ukraine’s President Pleads for More Weapons With Fewer Restrictions**\
+`“America doesn’t shy away from its friends,” Volodymyr Zelensky said in a speech in Washington as leaders gathered in the city for a NATO summit.`\
+https://nytimes.com/2024/07/09/us/politics/ukraine-president-nato-weapons.html
+
 **Samsung Union Workers Launch Indefinite Strike**\
 `The tech giant’s largest union escalated its dispute with management after failing to reach an agreement over pay and working policies.`\
 https://nytimes.com/2024/07/09/business/samsung-strike.html
