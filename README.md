@@ -1,3 +1,7 @@
+**Staveley and Ghodoussi to leave Newcastle United**\
+`Newcastle United co-owners Amanda Staveley and Mehrdad Ghodoussi are to leave the club after three years at St James&#8217; Park.`\
+https://nytimes.com/athletic/5610811/2024/07/10/amanda-staveley-to-leave-newcastle-united/
+
 **Alex de Minaur withdraws from Novak Djokovic Wimbledon quarterfinal**\
 `Alex de Minaur has withdrawn from his Wimbledon quarterfinal against Novak Djokovic with a hip injury.`\
 https://nytimes.com/athletic/5628686/2024/07/10/alex-de-minaur-withdraws-wimbledon-djokovic/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5626592/2024/07/10/aston-villa-jaden-philogene/
 **The Pulse: MLB Draft's most interesting potential No. 1**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5627536/2024/07/10/travis-bazzana-mlb-draft-the-pulse/
-
-**The Democrats’ Unhappy Indecision**\
-`Many seem to be falling in line behind President Biden even as polling showed his campaign to be in trouble.`\
-https://nytimes.com/2024/07/10/briefing/joe-biden-democrats-trump-polling.html
 
