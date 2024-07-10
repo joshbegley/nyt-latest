@@ -1,3 +1,7 @@
+**Trump Talks V.P. Shortlist Pros and Cons (He Likes Vance’s Beard)**\
+`Donald J. Trump has not generally offered explicit evaluations of his top contenders, but he acknowledged on Wednesday that Doug Burgum’s abortion ban and Marco Rubio’s Florida residency complicate his choice.`\
+https://nytimes.com/2024/07/10/us/politics/trump-vp-shortlist-vance-burgum-rubio.html
+
 **Alec Baldwin’s Manslaughter Trial Begins: 4 Takeaways From Day 1**\
 `Prosecutors portrayed the actor as stubbornly disregarding safety standards, while the defense said he had no reason to think there would be live rounds on the set.`\
 https://nytimes.com/2024/07/10/arts/alec-baldwin-trial-takeaways.html
