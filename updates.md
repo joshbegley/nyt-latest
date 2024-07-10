@@ -1,3 +1,11 @@
+**Macron Ends his Silence, Calling for ‘a Broad Gathering' That Would Split the Left**\
+`In an open letter to the French people, he rejects any role for the far left France Unbowed party, setting the stage for a heated showdown.`\
+https://nytimes.com/2024/07/10/world/europe/macron-letter-leftists-split.html
+
+**Jontay Porter pleads guilty to conspiracy to commit wire fraud**\
+`He was released on a $250,000 bond signed by his mother and his wife, and his sentencing has been scheduled for Dec. 18.`\
+https://nytimes.com/athletic/5629647/2024/07/10/jontay-porter-pleads-guilty-betting-scandal/
+
 **What to Know About This Summer’s ‘Hydrangea Hysteria’**\
 `Here’s why hydrangeas are having a banner year on the East Coast and how you can enjoy them.`\
 https://nytimes.com/2024/07/10/us/hydrangea-flower-bloom-season.html

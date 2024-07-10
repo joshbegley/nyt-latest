@@ -1,3 +1,11 @@
+**Macron Ends his Silence, Calling for ‘a Broad Gathering' That Would Split the Left**\
+`In an open letter to the French people, he rejects any role for the far left France Unbowed party, setting the stage for a heated showdown.`\
+https://nytimes.com/2024/07/10/world/europe/macron-letter-leftists-split.html
+
+**Jontay Porter pleads guilty to conspiracy to commit wire fraud**\
+`He was released on a $250,000 bond signed by his mother and his wife, and his sentencing has been scheduled for Dec. 18.`\
+https://nytimes.com/athletic/5629647/2024/07/10/jontay-porter-pleads-guilty-betting-scandal/
+
 **What to Know About This Summer’s ‘Hydrangea Hysteria’**\
 `Here’s why hydrangeas are having a banner year on the East Coast and how you can enjoy them.`\
 https://nytimes.com/2024/07/10/us/hydrangea-flower-bloom-season.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5627940/2024/07/10/euro-2024-third-place-playoff-br
 **Hot Weather Bakes Millions in U.S., as Many in Houston Swelter Without Power**\
 `More than 144 million Americans from the West Coast to the I-95 corridor were under heat advisories and warnings Wednesday.`\
 https://nytimes.com/2024/07/10/us/heat-power-outage-houston.html
-
-**Biden Should Listen Hard to Trump’s Ravings**\
-`Every speech makes it clearer why no sacrifice is too great to keep Trump out of the White House.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-doral-biden
-
-**Maxine Singer, Guiding Force at the Birth of Biotechnology, Dies at 93**\
-`A leading biochemist, she helped shape guidelines to protect a revolutionary new field in the ’70s while calming public fears of a spread of deadly lab-made microbes.`\
-https://nytimes.com/2024/07/10/science/maxine-singer-dead.html
 
