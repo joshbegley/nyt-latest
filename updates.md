@@ -1,5 +1,13 @@
 **The prosecution accused Mr. Baldwin of ‘numerous breaches of firearm safety.’**\
 `By Tim Balk and Graham Bowley`\
+https://nytimes.com/2024/07/10/arts/the-prosecution-accused-mr-baldwin-of-numerous-breaches-of-firearm-safety.html
+
+**Alec Baldwin’s Defense Team Faults ‘Rust’ Crew Members for Safety Lapses**\
+`The defense said crew members who are supposed to oversee gun safety on the set had responsibility for ensuring there was no live ammunition in the gun.`\
+https://nytimes.com/2024/07/10/arts/alec-baldwin-rust-armorer-defense.html
+
+**The prosecution accused Mr. Baldwin of ‘numerous breaches of firearm safety.’**\
+`By Tim Balk and Graham Bowley`\
 https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/the-prosecution-accused-mr-baldwin-of-numerous-breaches-of-firearm-safety
 
 **Hot Nights Fuel Wildfires, Complicating Containment Efforts**\
