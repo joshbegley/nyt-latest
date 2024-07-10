@@ -1,3 +1,7 @@
+**After Playing an Outlaw, Alec Baldwin Winds Up on Trial**\
+`The actor, who was charged with involuntary manslaughter, went on trial more than two years after the fatal shooting of the cinematographer of the movie “Rust.”`\
+https://nytimes.com/2024/07/10/arts/alec-baldwin-trial-involuntary-manslaughter.html
+
 **Who should USMNT hire to replace Berhalter? Analysing Klopp, Pochettino, Vieira and others**\
 `The USMNT will have a new coach in the dugout for the 2026 World Cup on home soil. But who would be a good fit?`\
 https://nytimes.com/athletic/5629410/2024/07/10/usmnt-coaching-candidates-klopp-vieira-pochettino-tuchel/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/10/world/israel-gaza-war-hamas/escalation-betwe
 **Watkins 'lost for words' after sending England to Euro 2024 final**\
 `Ollie Watkins described England reaching the European Championship final as the &#8220;best feeling ever&#8221; after his dramatic injury-time winner secured a 2-1 victory against the Netherlands.`\
 https://nytimes.com/athletic/5629968/2024/07/10/ollie-watkins-england-euro-2024/
-
-**Wimbledon day 10: Taylor Fritz last American out, Djokovic walkover empties Centre Court**\
-`A slice masterclass on Centre Court, walkovers and lucky losers, and blocking out the haters`\
-https://nytimes.com/athletic/5629204/2024/07/10/wimbledon-recap-fritz-musetti-analysis-djokovic-walkover/
 
