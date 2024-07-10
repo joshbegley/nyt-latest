@@ -1,3 +1,7 @@
+**U.S. Marshal Shoots Man in Attempted Carjacking Near Sotomayor’s Home**\
+`The marshal was sitting in an unmarked federal vehicle near the Supreme Court justice’s home when a man approached the vehicle and pointed a handgun at him through the driver’s side window.`\
+https://nytimes.com/2024/07/09/us/politics/carjacking-shooting-sotomayor.html
+
 **Argentina 2-0 Canada takeaways: Messi scores, Argentina heads to Copa America final**\
 `Argentina is heading to its fourth Copa America final in five years - The Athletic dissects the big talking points`\
 https://nytimes.com/athletic/5627969/2024/07/09/canada-argentina-copa-america-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5627627/2024/07/09/keegan-bradley-2025-us-ryder-cup
 **Lance McCullers Jr.'s setback intensifies Astros' need for rotation help**\
 `McCullers, who hasn't pitched since Game 3 of the 2022 World Series, is dealing with "soreness in his arm."`\
 https://nytimes.com/athletic/5627884/2024/07/09/lance-mccullers-jr-injury-astros-rotation-help/
-
-**On Capitol Hill, Democrats Panic About Biden but Do Nothing**\
-`The president has yet to do what many Democrats said he must to show he is up to remaining in the race. But so far, they have thrown up their hands, doing nothing to nudge him aside.`\
-https://nytimes.com/2024/07/09/us/politics/biden-democrats-congress.html
 
