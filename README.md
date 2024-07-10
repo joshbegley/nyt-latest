@@ -1,3 +1,7 @@
+**Wave, Jill Ellis not found to have violated NWSL policy**\
+`The NWSL investigated allegations against the Wave via a third-party legal representative between February and April 2024.`\
+https://nytimes.com/athletic/5629789/2024/07/10/jill-ellis-wave-nwsl-investigation/
+
 **The Briefing: Netherlands 1 England 2 - Late substitute Watkins hits winner to set up Euro 2024 final with Spain**\
 `We break down the key talking points from the match in Dortmund as England reached a second consecutive European Championship final`\
 https://nytimes.com/athletic/5622633/2024/07/10/netherlands-england-euro-2024-watkins-kane/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/10/arts/music/joe-bonsall-dead.html
 **What’s in Our Queue? ‘Conan O’Brien Must Go’ and More**\
 `I’m the digital editor for the Culture desk at The New York Times. Here are five things that have delighted me recently.`\
 https://nytimes.com/interactive/2024/07/10/arts/editors-recommendations-conanobrien.html
-
-**Biden Faces Fresh Calls to Withdraw as Democrats Fear Electoral Rout**\
-`The dam has mostly held on Capitol Hill for President Biden, but cracks continued to open as more donors and elected officials publicly called on President Biden to drop out.`\
-https://nytimes.com/2024/07/10/us/politics/biden-congress-clooney-election.html
 
