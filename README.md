@@ -1,5 +1,5 @@
 **With Tiny Shampoo Bottles Soon to Be Banned, N.Y. Hotels Weigh Options**\
-`Starting Jan. 1, large hotels will no longer be able to offer those ubiquitous containers of shampoo and conditioner. The bill is part of a statewide effort to cut down on single-use plastic.`\
+`Starting Jan. 1, large hotels will no longer be able to offer small containers of shampoo and conditioner. The bill is part of an effort to cut down on single-use plastic.`\
 https://nytimes.com/2024/07/10/nyregion/ny-hotels-toiletry-single-use-plastic.html
 
 **Cohen Asks the Supreme Court to Let Him Sue Trump Over His Imprisonment**\
