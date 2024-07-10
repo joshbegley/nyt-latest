@@ -35,6 +35,6 @@ https://nytimes.com/athletic/5627729/2024/07/10/texas-texas-am-baseball-coach-ri
 https://nytimes.com/athletic/5628270/2024/07/10/yusei-kikuchi-blue-jays-mlb-trade-deadline/
 
 **Spain take risks and reap the rewards - it's what makes them so different at Euro 2024**\
-`In a parallel universe, France won Tuesday's Euro 2024 semi-final after Kylian Mbappe was allowed too much space - but that's Spain`\
+`In a parallel universe, France won Tuesday's Euros semi-final because Kylian Mbappe was allowed too much space - but that's Spain for you`\
 https://nytimes.com/athletic/5628396/2024/07/10/spain-risks-euro-2024-final/
 
