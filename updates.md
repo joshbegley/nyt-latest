@@ -1,3 +1,7 @@
+**Chandler Smith on managing pressure and balancing NASCAR life as a parent: 12 Questions**\
+`Xfinity Series driver Chandler Smith talks about maturing as a driver, balancing NASCAR with family, his awe of hauler drivers, and more.`\
+https://nytimes.com/athletic/5626596/2024/07/10/chandler-smith-nascar-xfinity-pressure-12-questions/
+
 **‘A Midsummer Night’s Dream’ Review: Sprinkling Magic Under a Night Sky**\
 `Fun is the main point of Carl Cofield’s stylish outdoor staging of Shakespeare’s comic fantasy for the Classical Theater of Harlem.`\
 https://nytimes.com/2024/07/10/theater/midsummer-nights-dream-review-harlem.html
