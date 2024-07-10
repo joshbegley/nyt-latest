@@ -1,3 +1,19 @@
+**Kawhi Leonard not playing for Team USA in Olympics**\
+`Boston Celtics’ Derrick White is considered a strong replacement candidate.`\
+https://nytimes.com/athletic/5629094/2024/07/10/kawhi-leonard-out-usa-olympics-team/
+
+**Israel tells civilians to leave Gaza City, saying it will remain a ‘dangerous combat zone.’**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/07/10/world/israel-gaza-war-hamas/israel-tells-civilians-to-leave-gaza-city-saying-it-will-remain-a-dangerous-combat-zone
+
+**George Clooney: I Love Joe Biden. But We Need a New Nominee.**\
+`I saw Biden three weeks ago at my fund-raiser for him. It’s devastating to say it, but he is not the same man he was, and he won’t win this fall.`\
+https://nytimes.com/2024/07/10/opinion/joe-biden-democratic-nominee.html
+
+**CNN Cuts 100 Jobs, and Announces Plan for Digital Subscription Product**\
+`The network’s C.E.O., Mark Thompson, has promised a more robust digital strategy as people flee traditional cable packages.`\
+https://nytimes.com/2024/07/10/business/media/cnn-layoffs-subscription-product.html
+
 **Lowetide: What's the NHL ETA for new Oilers top prospect Matt Savoie?**\
 `Edmonton is a different team to earn an opportunity even for a gifted prospect like Savoie.`\
 https://nytimes.com/athletic/5626735/2024/07/10/oilers-matt-savoie-trade-nhl/
