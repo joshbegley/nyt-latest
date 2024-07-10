@@ -1,3 +1,11 @@
+**John Textor facing six-year ban from Brazilian football**\
+`Crystal Palace’s largest shareholder John Textor is facing a six-year ban from Brazilian football after an investigation for the country’s Superior Court of Sports Justice (STJD) for Football dismissed his claims of match-fixing.`\
+https://nytimes.com/athletic/5629377/2024/07/10/john-textor-brazil-match-fixing/
+
+**This Is the Best Easy Use for Canned Tuna**\
+`Adding zucchini, tuna and loads of fresh herbs makes this dish light, bright and weeknight easy.`\
+https://nytimes.com/2024/07/10/dining/best-canned-tuna-recipe.html
+
 **Michigan Representative Seeking Senate Seat Tells Donors Biden Trails There**\
 `Representative Elissa Slotkin, the leading Democrat seeking her state’s open Senate seat, said private polling showed former President Donald J. Trump leading President Biden.`\
 https://nytimes.com/2024/07/10/us/politics/elissa-slotkin-biden.html
