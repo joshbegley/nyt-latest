@@ -1,6 +1,6 @@
 **The prosecution accused Mr. Baldwin of ‘numerous breaches of firearm safety.’**\
 `By Tim Balk and Graham Bowley`\
-https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/the-prosecution-accused-mr-baldwin-of-numerous-breaches-of-firearm-safety
+https://nytimes.com/2024/07/10/arts/the-prosecution-accused-mr-baldwin-of-numerous-breaches-of-firearm-safety.html
 
 **Hot Nights Fuel Wildfires, Complicating Containment Efforts**\
 `Climate change is causing more fires to burn overnight, growing bigger, lasting longer and challenging the fire teams trying to control them.`\
