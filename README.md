@@ -1,3 +1,7 @@
+**Southgate explains Trippier substitution in England semi-final win**\
+`Gareth Southgate says England &#8220;didn’t want to take any chances&#8221; with Kieran Trippier after he was taken off during their semi-final win over the Netherlands on Wednesday.`\
+https://nytimes.com/athletic/5630134/2024/07/10/kieran-trippier-injury-england/
+
 **David Liederman, Who Found Sweet Success With David’s Cookies, Dies at 75**\
 `His innovative version of the chocolate chip cookie, studded with irregular pieces of dark Swiss chocolate, led to a chain of more than 100 stores worldwide.`\
 https://nytimes.com/2024/07/10/dining/david-liederman-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/10/arts/music/mary-martin-dead.html
 **For First Time, NATO Accuses China of Supplying Russia’s Attacks on Ukraine**\
 `The statement was a major departure for the alliance, which until 2019 never officially mentioned China as a concern.`\
 https://nytimes.com/2024/07/10/us/politics/nato-china-russia-ukraine.html
-
-**Escalation between Israel and Hezbollah puts pressure on Gaza cease-fire talks.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/07/10/world/israel-gaza-war-hamas/escalation-between-israel-and-hezbollah-puts-pressure-on-gaza-cease-fire-talks
 
