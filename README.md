@@ -22,8 +22,8 @@ https://nytimes.com/2024/07/10/opinion/joe-biden-democrats-withdrawal.html
 `With Gragson now in the fold, Front Row’s next task is finalizing sponsorship and who will serve as his crew chief.`\
 https://nytimes.com/athletic/5629239/2024/07/10/noah-gragson-front-row-motorsports-nascar/
 
-**Mr. Baldwin’s defense team called the shooting a ‘tragic accident,’ saying he had no reason to think the gun had live ammunition.**\
-`The defense shifted blame to crew members who are supposed to oversee gun safety on the set.`\
+**Alec Baldwin’s Defense Team Faults ‘Rust’ Crew Members for Safety Lapses**\
+`The defense said crew members who are supposed to oversee gun safety on the set had responsibility for ensuring there was no live ammunition in the gun.`\
 https://nytimes.com/2024/07/10/arts/alec-baldwin-rust-armorer-defense.html
 
 **Biden Tries to Silence His Doubters by Lashing Out at the ‘Elite’**\
