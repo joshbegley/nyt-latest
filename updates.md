@@ -1,3 +1,7 @@
+**Spain take risks and reap the rewards - it's what makes them so different at Euro 2024**\
+`In a parallel universe, France won Tuesday's Euro 2024 semi-final after Kylian Mbappe was allowed too much space - but that's Spain`\
+https://nytimes.com/athletic/5628396/2024/07/10/spain-risks-euro-2024-final/
+
 **As trade deadline looms, how many more starts will Yusei Kikuchi make for the Blue Jays?**\
 `On Tuesday, Kikuchi limited the Giants to six hits in what John Schneider called “if not the best, one of the best outings he's had.”`\
 https://nytimes.com/athletic/5628270/2024/07/10/yusei-kikuchi-blue-jays-mlb-trade-deadline/
