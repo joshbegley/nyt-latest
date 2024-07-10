@@ -1,3 +1,11 @@
+**The strike killed at least 27 people and wounded dozens, Gazan health authorities said.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/07/10/world/israel-gaza-war-hamas/the-strike-killed-at-least-27-people-and-wounded-dozens-gazan-health-authorities-said
+
+**The U.S. Gymnasts Have Already Set an Olympic Record: For Crystals**\
+`In Paris, Simone Biles and Co. will be wearing leotards decorated with more than 10,000 crystals.`\
+https://nytimes.com/2024/07/10/style/usa-olympics-gymnastics-leotards.html
+
 **Squirt Guns and ‘Go Home’ Signs: Barcelona Residents Take Aim at Tourists**\
 `Locals confronted visitors to the Catalan capital in a whimsical (but very serious) demonstration against mass tourism and housing shortages.`\
 https://nytimes.com/2024/07/10/world/europe/barcelona-tourism-squirt-guns.html
@@ -29,13 +37,4 @@ https://nytimes.com/2024/07/10/business/dealbook/powell-fed-rate-cuts.html
 **The Athletic FC: Yamal, perfection and payback; will Messi reach Ronaldo's goalscoring mark?**\
 `Today in The Athletic FC: Yamal's stunner and one-move checkmate for Rabiot. Plus: Argentina and Messi still in search of 'greatest' tags`\
 https://nytimes.com/athletic/5628628/2024/07/10/the-athletic-fc-yamal-perfection-and-payback-will-messi-reach-ronaldos-goalscoring-mark/
-
-**Staveley and Ghodoussi to leave Newcastle United**\
-`Newcastle United co-owners Amanda Staveley and Mehrdad Ghodoussi are to leave the club after three years at St James&#8217; Park.`\
-https://nytimes.com/athletic/5610811/2024/07/10/amanda-staveley-to-leave-newcastle-united/
-
-**Alex de Minaur withdraws from Novak Djokovic Wimbledon quarterfinal**\
-`Follow live coverage of the tenth day of Wimbledon 2024 today
-Alex de Minaur has withdrawn from his Wimbledon quarterfinal against Novak Djokovic with a hip injury.`\
-https://nytimes.com/athletic/5628686/2024/07/10/alex-de-minaur-withdraws-wimbledon-djokovic/
 
