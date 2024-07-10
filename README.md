@@ -1,3 +1,7 @@
+**Democrats Seek Criminal Investigation of Justice Thomas Over Travel and Gifts**\
+`The senators said the Supreme Court justice’s failure to disclose lavish gifts and luxury travel showed a “willful pattern of disregard for ethics laws.”`\
+https://nytimes.com/2024/07/09/us/politics/democrats-investigation-clarence-thomas.html
+
 **Inside the hire: How Keegan Bradley landed the Ryder Cup captaincy**\
 `Bradley's shocking appointment to a job he didn't interview for was done in hopes it would end the “echo chamber of sameness.”`\
 https://nytimes.com/athletic/5627627/2024/07/09/keegan-bradley-2025-us-ryder-cup-team/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5627720/2024/07/09/wild-charlie-stramel-wisconsin-m
 **Three Hikers Die in Grand Canyon National Park in Less Than a Month**\
 `A 50-year-old man was found dead on Sunday after hiking up the canyon, where temperatures can reach 120 degrees in summer.`\
 https://nytimes.com/2024/07/09/us/grand-canyon-hiker-death.html
-
-**U.A.W. Monitor Reveals Details About Investigation Into Union Leader**\
-`A court-appointed monitor said he was looking into allegations that a union official was punished for resisting actions that would have benefited the union president’s partner and her sister.`\
-https://nytimes.com/2024/07/09/business/uaw-monitor-investigation-shawn-fain.html
 
