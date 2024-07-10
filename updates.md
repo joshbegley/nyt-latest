@@ -1,3 +1,7 @@
+**Home Run Derby field set, Dodgers' Hernández signs up**\
+`Hernández is an All-Star for the second time after a disappointing season in Seattle that impacted his free-agent market.`\
+https://nytimes.com/athletic/5628013/2024/07/10/home-run-derby-field-players/
+
 **Blues sign Ryan Suter to 1-year, $775,000 contract**\
 `Suter is the second player in league history to be bought out twice, after Tony DeAngelo.`\
 https://nytimes.com/athletic/5630130/2024/07/10/blues-sign-ryan-suter/
