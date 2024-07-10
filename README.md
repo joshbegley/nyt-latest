@@ -1,3 +1,11 @@
+**Will Notre Dame finish strong after fast start, quiet summer on recruiting trail?**\
+`Summer has been mostly fits and starts for Notre Dame on the recruiting front. What's next after losing Ivan Taylor to Michigan?`\
+https://nytimes.com/athletic/5627057/2024/07/10/notre-dame-football-recruiting-2025-class/
+
+**Why the Knicks are an ideal fit for Mikal Bridges**\
+`Bridges has a coach who thinks the same way he does, a locker room that already knows him and a situation built to enhance his game.`\
+https://nytimes.com/athletic/5627275/2024/07/10/knicks-mikal-bridges-ideal-fit/
+
 **Campy Actor, Serious Fashion**\
 `Cole Escola is dressing the part of a red-carpet star after achieving a new level of fame as the star of the play “Oh, Mary!”`\
 https://nytimes.com/2024/07/10/style/cole-escola-oh-mary-broadway-style.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/10/us/hurricane-beryl-texas-grid.html
 **Centuries of Avalanches Are Stored in Tree Rings**\
 `Discovering evidence of deadly deluges of snow from the past could help protect people on mountains around the world, researchers say.`\
 https://nytimes.com/2024/07/10/science/avalanche-tree-rings.html
-
-**Trump’s V.P. Reveal May Be This Week. Or Not.**\
-`Donald J. Trump’s monthslong search for a running mate, orchestrated to feed speculation and attention, is nearing an end, but questions of who, and when, remain.`\
-https://nytimes.com/2024/07/10/us/politics/trump-running-mate-finale.html
-
-**A Late Play by the Biden Campaign: Running Out the Clock**\
-`Time is on President Biden’s side. Every day that he defies pressure to end his re-election campaign, replacing him becomes harder for Democrats.`\
-https://nytimes.com/2024/07/10/us/politics/biden-campaign-strategy.html
 
