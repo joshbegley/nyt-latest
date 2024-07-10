@@ -1,3 +1,15 @@
+**After meeting with Biden, some A.F.L.-C.I.O. leaders remain concerned about his candidacy.**\
+`By Jonathan Weisman and Michael D. Shear`\
+https://nytimes.com/live/2024/07/10/us/biden-trump-election/biden-union-afl-cio-election
+
+**Rosenthal: By getting Pete Alonso in the Home Run Derby, MLB shortchanged two of his Mets teammates**\
+`Wittingly or not, Alonso's selection created unintended consequences for Brandon Nimmo and Francisco Lindor.`\
+https://nytimes.com/athletic/5629570/2024/07/10/pete-alonso-home-run-derby-mets-nimmo-lindor/
+
+**Why there is no third-place playoff at Euro 2024**\
+`The European Championship in Germany is drawing to a close with only a handful of games to go.`\
+https://nytimes.com/athletic/5627940/2024/07/10/euro-2024-third-place-playoff-bronze/
+
 **Hot Weather Bakes Millions in U.S., as Many in Houston Swelter Without Power**\
 `More than 144 million Americans from the West Coast to the I-95 corridor were under heat advisories and warnings Wednesday.`\
 https://nytimes.com/2024/07/10/us/heat-power-outage-houston.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5629377/2024/07/10/john-textor-brazil-match-fixing/
 **This Is the Best Easy Use for Canned Tuna**\
 `Adding zucchini, tuna and loads of fresh herbs makes this dish light, bright and weeknight easy.`\
 https://nytimes.com/2024/07/10/dining/best-canned-tuna-recipe.html
-
-**Menendez’s Lawyer Tells Jury That Bribery Case Is ‘Painfully Thin’**\
-`Senator Robert Menendez’s lawyers finished a six-hour closing statement on Wednesday afternoon.`\
-https://nytimes.com/2024/07/10/nyregion/robert-menendez-bribery-trial.html
-
-**Michigan Representative Seeking Senate Seat Tells Donors Biden Trails There**\
-`Representative Elissa Slotkin, the leading Democrat seeking her state’s open Senate seat, said private polling showed former President Donald J. Trump leading President Biden.`\
-https://nytimes.com/2024/07/10/us/politics/elissa-slotkin-biden.html
-
-**Elena Rybakina's Wimbledon form is as serene as it is ominous**\
-`The Kazakh dismantled Svitolina with a ruthless display of serving and returning. When she is in form, she makes tennis effortless`\
-https://nytimes.com/athletic/5629320/2024/07/10/elena-rybakina-wimbledon/
 
