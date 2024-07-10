@@ -1,3 +1,7 @@
+**Samsung Union Workers Launch Indefinite Strike**\
+`The tech giant’s largest union escalated its dispute with management after failing to reach an agreement over pay and working policies.`\
+https://nytimes.com/2024/07/09/business/samsung-strike.html
+
 **Argentina 2-0 Canada takeaways: Messi scores, Argentina heads to Copa America final**\
 `Argentina is heading to its fourth Copa America final in the last five tournaments - The Athletic dissects the big talking points`\
 https://nytimes.com/athletic/5627969/2024/07/09/canada-argentina-copa-america-takeaways/

@@ -1,3 +1,7 @@
+**Samsung Union Workers Launch Indefinite Strike**\
+`The tech giant’s largest union escalated its dispute with management after failing to reach an agreement over pay and working policies.`\
+https://nytimes.com/2024/07/09/business/samsung-strike.html
+
 **Bobby Miller's career-worst start sinks his year and the Dodgers' rotation to a new low**\
 `Few expected the Dodgers to add pitching to their shopping lists this summer. Now, they may be one of the most pitching-needy teams.`\
 https://nytimes.com/athletic/5628099/2024/07/09/dodgers-bobby-miller-rotation-struggles/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/09/business/russian-bots-artificial-intelligence-pro
 **Giants' 'Hard Knocks' takeaways: Malik Nabers piques interest at combine in episode 2**\
 `The LSU receiver was frank with the team about his competitive fire. Also, more on the Saquon Barkley saga, and Brian Daboll grills QBs.`\
 https://nytimes.com/athletic/5619604/2024/07/09/new-york-giants-hard-knocks-malik-nabers-brian-daboll/
-
-**Messi moves second on all-time men's international goalscorers list**\
-`Lionel Messi broke a tie with Ali Daei to move second on the list of men&#8217;s international scorers with a goal in the Copa America semifinal against Canada.`\
-https://nytimes.com/athletic/5628022/2024/07/09/lionel-messi-argentina-goals-all-time/
 
