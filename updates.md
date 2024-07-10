@@ -1,3 +1,7 @@
+**Bobby Miller's career-worst start sinks his year and the Dodgers' rotation to a new low**\
+`Few expected the Dodgers to add pitching to their shopping lists this summer. Now, they may be one of the most pitching-needy teams.`\
+https://nytimes.com/athletic/5628099/2024/07/09/dodgers-bobby-miller-rotation-struggles/
+
 **Biden, on Call With Mayors, Works to Shore Up Democratic Support**\
 `Speaking to nearly 200 Democratic mayors, the president again acknowledged he had a poor first debate and took softball questions about his campaign and second-term agenda.`\
 https://nytimes.com/2024/07/09/us/politics/biden-mayors-support.html
