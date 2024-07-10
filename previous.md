@@ -1,5 +1,13 @@
+**Supporters of the High Line Aim to Block Plan to Build a Casino Nearby**\
+`The nonprofit organization that steers the popular greenway attraction on Manhattan’s West Side says building a casino in Hudson Yards could harm parkgoers’ experience.`\
+https://nytimes.com/2024/07/10/nyregion/high-line-casino-hudson-yards.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/10/crosswords/spelling-bee-forum.html
+
 **Dani Olmo, Spain's shy Euro 2024 Golden Boot leader and €60m summer transfer target**\
-`Olmo is fast becoming indispensable for Spain and looks set for a big transfer window`\
+`Euros semi-final matchwinner Olmo is fast becoming indispensable for Spain and looks set for a big summer transfer window`\
 https://nytimes.com/athletic/5628034/2024/07/10/dani-olmo-spain-euros-transfer/
 
 **Kylian Mbappe contemplates rare failure after a tournament littered with distractions**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/10/opinion/jake-sullivan-nato-russia.html
 **Rays' Wander Franco charged with sexually abusing a minor**\
 `Franco, 23, has not played since Aug. 12, 2023, when allegations surfaced about an inappropriate relationship with a minor.`\
 https://nytimes.com/athletic/5628183/2024/07/10/wander-franco-sexual-abuse-charge/
-
-**Everton mailbag: Branthwaite's future, Calvert-Lewin's contract - a deal for Dele?**\
-`Everton's summer has been unexpectedly busy with transfers but takeover talk is never far away too - it's time for our mailbag answers`\
-https://nytimes.com/athletic/5626925/2024/07/10/everton-mailbag-branthwaite-calvert-lewin-dele-transfers/
-
-**Who is Okoli and how does he fit Leicester's recruitment model?**\
-`Okoli is an example of Leicester returning to the model of trying to find up-and-coming talents they can nurture and turn into assets.`\
-https://nytimes.com/athletic/5624663/2024/07/10/caleb-okoli-leicester-transfer-analysis/
 

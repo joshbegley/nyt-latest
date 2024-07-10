@@ -1,3 +1,15 @@
+**Supporters of the High Line Aim to Block Plan to Build a Casino Nearby**\
+`The nonprofit organization that steers the popular greenway attraction on Manhattan’s West Side says building a casino in Hudson Yards could harm parkgoers’ experience.`\
+https://nytimes.com/2024/07/10/nyregion/high-line-casino-hudson-yards.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/10/crosswords/spelling-bee-forum.html
+
+**Dani Olmo, Spain's shy Euro 2024 Golden Boot leader and €60m summer transfer target**\
+`Euros semi-final matchwinner Olmo is fast becoming indispensable for Spain and looks set for a big summer transfer window`\
+https://nytimes.com/athletic/5628034/2024/07/10/dani-olmo-spain-euros-transfer/
+
 **Dani Olmo, Spain's shy Euro 2024 Golden Boot leader and €60m summer transfer target**\
 `Olmo is fast becoming indispensable for Spain and looks set for a big transfer window`\
 https://nytimes.com/athletic/5628034/2024/07/10/dani-olmo-spain-euros-transfer/
