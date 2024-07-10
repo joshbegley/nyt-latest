@@ -1,3 +1,11 @@
+**Coutinho joins Vasco da Gama on loan from Aston Villa**\
+`Aston Villa have confirmed midfielder Philippe Coutinho has joined Vasco da Gama on a season-long loan.`\
+https://nytimes.com/athletic/5629069/2024/07/10/philippe-coutinho-vasco-da-gama-loan-aston-villa/
+
+**In TMZ Video, George Stephanopoulos Says Biden Can’t Serve Another Term**\
+`The ABC anchor, in a surreptitious recording, said, “I don’t think he can serve four more years.”`\
+https://nytimes.com/2024/07/10/business/media/tmz-george-stephanopoulos-biden.html
+
 **Yankees sign ex-Blue Jays lefty Tim Mayza**\
 `It's a minor-league deal for the 32-year-old, who was released by the Blue Jays last week after clearing waivers.`\
 https://nytimes.com/athletic/5629012/2024/07/10/new-york-yankees-tim-mayza-signing/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/the-long-road-t
 **Here’s the latest.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/heres-the-latest
-
-**Mbappe to wear No. 9 shirt at Real Madrid**\
-`Kylian Mbappe will wear the No.`\
-https://nytimes.com/athletic/5628702/2024/07/10/kylian-mbappe-real-madrid-shirt-number/
-
-**U.K. Police Searching for Man Suspected of Killing 3 Women With Crossbow**\
-`The women died at the scene near London on Tuesday, the police said. The BBC identified the victims as the wife and children of one of its commentators.`\
-https://nytimes.com/2024/07/10/world/europe/crossbow-attack-uk-manhunt.html
 
