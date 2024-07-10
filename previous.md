@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5630036/2024/07/10/blue-jackets-coaching-search/
 `A federal judge in Tennessee said that it was unconstitutional for the City of Lakeland, Tenn., to fine Julie Pereira for the sign she posted expressing disapproval of President Biden and Donald J. Trump.`\
 https://nytimes.com/2024/07/10/us/tennessee-yard-sign-biden-trump.html
 
-**Blues sign twice-bought-out defenseman Ryan Suter to 1-year, $775,000 contract**\
+**Blues sign Ryan Suter to 1-year, $775,000 contract**\
 `Suter is the second player in league history to be bought out twice, after Tony DeAngelo.`\
 https://nytimes.com/athletic/5630130/2024/07/10/blues-sign-ryan-suter/
 

@@ -1,3 +1,7 @@
+**Blues sign Ryan Suter to 1-year, $775,000 contract**\
+`Suter is the second player in league history to be bought out twice, after Tony DeAngelo.`\
+https://nytimes.com/athletic/5630130/2024/07/10/blues-sign-ryan-suter/
+
 **What's the latest on the Blue Jackets' coaching search? Who might be out?**\
 `One option to lead Columbus is no longer considered to be the leading candidate.`\
 https://nytimes.com/athletic/5630036/2024/07/10/blue-jackets-coaching-search/
