@@ -1,3 +1,7 @@
+**Democrats Seek Criminal Investigation of Justice Thomas Over Travel and Gifts**\
+`The senators said the Supreme Court justice’s failure to disclose lavish gifts and luxury travel showed a “willful pattern of disregard for ethics laws.”`\
+https://nytimes.com/2024/07/09/us/politics/democrats-investigation-clarence-thomas.html
+
 **Inside the hire: How Keegan Bradley landed the Ryder Cup captaincy**\
 `Bradley's shocking appointment to a job he didn't interview for was done in hopes it would end the “echo chamber of sameness.”`\
 https://nytimes.com/athletic/5627627/2024/07/09/keegan-bradley-2025-us-ryder-cup-team/
