@@ -18,7 +18,7 @@ https://nytimes.com/athletic/5482079/2024/07/10/georgia-ucla-cancel-football-ser
 `By Tim Balk and Graham Bowley`\
 https://nytimes.com/2024/07/10/arts/the-prosecution-accused-mr-baldwin-of-numerous-breaches-of-firearm-safety.html
 
-**Hot Nights Fuel Wildfires, Complicating Containment Efforts**\
+**Hot Nights Fuel Wildfires in California, Complicating Containment**\
 `Climate change is causing more fires to burn overnight, growing bigger, lasting longer and challenging the fire teams trying to control them.`\
 https://nytimes.com/2024/07/10/climate/wildfires-heat-wave-night-temperature.html
 
