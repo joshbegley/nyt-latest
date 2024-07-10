@@ -1,3 +1,7 @@
+**Messi moves second on all-time men's international goalscorers list**\
+`Lionel Messi broke a tie with Ali Daei to move second on the list of men&#8217;s international scorers with a goal in the Copa America semifinal against Canada.`\
+https://nytimes.com/athletic/5628022/2024/07/09/lionel-messi-argentina-goals-all-time/
+
 **Democrats Seek Criminal Investigation of Justice Thomas Over Travel and Gifts**\
 `The senators said the Supreme Court justice’s failure to disclose lavish gifts and luxury travel showed a “willful pattern of disregard for ethics laws.”`\
 https://nytimes.com/2024/07/09/us/politics/democrats-investigation-clarence-thomas.html
