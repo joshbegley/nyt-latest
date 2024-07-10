@@ -1,3 +1,15 @@
+**Maxine Singer, Guiding Force at the Birth of Biotechnology, Dies at 93**\
+`A leading biochemist, she helped shape guidelines to protect a revolutionary new field in the ’70s while calming public fears of a spread of deadly lab-made microbes.`\
+https://nytimes.com/2024/07/10/science/maxine-singer-dead.html
+
+**America’s New Catholic Priests: Young, Confident and Conservative**\
+`In an era of deep divisions in the church, newly ordained priests overwhelmingly lean right in their theology, practices and politics.`\
+https://nytimes.com/2024/07/10/us/catholic-priests-conservative-politics.html
+
+**NBA finalizes deals with ESPN, NBC, Amazon; TNT could match**\
+`ESPN will have a conference final and the NBA Finals each season.`\
+https://nytimes.com/athletic/5629508/2024/07/10/nba-tv-deal-espn-nbc-amazon-tnt/
+
 **John Textor facing six-year ban from Brazilian football**\
 `Crystal Palace’s largest shareholder John Textor is facing a six-year ban from Brazilian football after an investigation for the country’s Superior Court of Sports Justice (STJD) for Football dismissed his claims of match-fixing.`\
 https://nytimes.com/athletic/5629377/2024/07/10/john-textor-brazil-match-fixing/
