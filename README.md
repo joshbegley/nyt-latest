@@ -7,7 +7,8 @@ https://nytimes.com/athletic/5628628/2024/07/10/the-athletic-fc-yamal-perfection
 https://nytimes.com/athletic/5610811/2024/07/10/amanda-staveley-to-leave-newcastle-united/
 
 **Alex de Minaur withdraws from Novak Djokovic Wimbledon quarterfinal**\
-`Alex de Minaur has withdrawn from his Wimbledon quarterfinal against Novak Djokovic with a hip injury.`\
+`Follow live coverage of the tenth day of Wimbledon 2024 today
+Alex de Minaur has withdrawn from his Wimbledon quarterfinal against Novak Djokovic with a hip injury.`\
 https://nytimes.com/athletic/5628686/2024/07/10/alex-de-minaur-withdraws-wimbledon-djokovic/
 
 **For the Olympics, USA men's basketball makes a sizable fix to fight a bully problem**\
