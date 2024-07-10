@@ -1,3 +1,11 @@
+**Wave, Jill Ellis not found to have violated NWSL policy**\
+`The NWSL investigated allegations against the Wave via a third-party legal representative between February and April 2024.`\
+https://nytimes.com/athletic/5629789/2024/07/10/jill-ellis-wave-nwsl-investigation/
+
+**Jury Finds Archegos Founder Bill Hwang Guilty of Fraud and Racketeering**\
+`The 2021 collapse of Archegos Capital Management led to some $10 billion in losses for some Wall Street banks. He could spend the rest of his life in prison.`\
+https://nytimes.com/2024/07/10/business/archegos-bill-hwang-guilty.html
+
 **The Briefing: Netherlands 1 England 2 - Late substitute Watkins hits winner to set up Euro 2024 final with Spain**\
 `We break down the key talking points from the match in Dortmund as England reached a second consecutive European Championship final`\
 https://nytimes.com/athletic/5622633/2024/07/10/netherlands-england-euro-2024-watkins-kane/
