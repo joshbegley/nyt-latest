@@ -30,8 +30,8 @@ https://nytimes.com/2024/07/10/pageoneplus/corrections-july-10-2024.html
 `Melting glaciers on Mount Huascarán in Peru helped uncover the body of Bill Stampfl, who disappeared while climbing the mountain with two friends.`\
 https://nytimes.com/2024/07/10/world/americas/22-years-ago-he-disappeared-in-an-avalanche-his-body-was-just-found.html
 
-**Live Updates: Alec Baldwin Manslaughter Trial Set to Begin in New Mexico**\
-`Mr. Baldwin arrived in court Wednesday morning, with opening arguments set to begin in his trial for manslaughter for his role in the fatal shooting of a cinematographer on the set of the film “Rust.”`\
+**Live Updates: Opening Arguments in Alec Baldwin Trial Set to Begin in New Mexico**\
+`Mr. Baldwin arrived in court Wednesday morning, with opening arguments about to start in his trial for manslaughter for his role in the fatal shooting of a cinematographer on the set of the film “Rust.”`\
 https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial
 
 **The long road to a criminal trial for Mr. Baldwin.**\
