@@ -1,3 +1,7 @@
+**The Messages From Biden That Are Understood, and Not**\
+`A president who long delighted in public speech is now sometimes hard to understand. Does it matter?`\
+https://nytimes.com/2024/07/10/us/politics/biden-speech-articulation.html
+
 **Blues sign twice-bought-out defenseman Ryan Suter to 1-year, $775,000 contract**\
 `Suter is the second player in league history to be bought out twice, after Tony DeAngelo.`\
 https://nytimes.com/athletic/5630130/2024/07/10/blues-sign-ryan-suter/
