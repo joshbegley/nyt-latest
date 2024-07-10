@@ -1,3 +1,7 @@
+**Corrections: July 10, 2024**\
+`Corrections that appeared in print on Wednesday, July 10, 2024.`\
+https://nytimes.com/2024/07/10/pageoneplus/corrections-july-10-2024.html
+
 **22 Years Ago, He Disappeared in an Avalanche. His Body Was Just Found.**\
 `Melting glaciers on Mount Huascarán in Peru helped uncover the body of Bill Stampfl, who disappeared while climbing the mountain with two friends.`\
 https://nytimes.com/2024/07/10/world/americas/22-years-ago-he-disappeared-in-an-avalanche-his-body-was-just-found.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/10/us/politics/pelosi-biden-drop-out.html
 **Senator Michael Bennet says Democrats must ‘come to grips’ with the risk that Biden could lose.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/07/10/us/biden-trump-election/senator-michael-bennet-says-democrats-must-come-to-grips-with-the-risk-that-biden-could-lose
-
-**NASCAR fines Bubba Wallace $50,000 for Chicago incident**\
-`An in-car camera shot showed an unprepared Bowman, who had his window net already dropped, getting jostled.`\
-https://nytimes.com/athletic/5627993/2024/07/10/nascar-bubba-wallace-fined/
 
