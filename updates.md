@@ -1,3 +1,7 @@
+**Five things to watch when Browns open training camp**\
+`We'll get a glimpse of what the offense will look like with Ken Dorsey as coordinator, the team's plan for the new kickoff rules and more.`\
+https://nytimes.com/athletic/5615176/2024/07/10/browns-training-camp-2024/
+
 **Statcast at 10: From MLB's secret project to inescapable part of modern baseball**\
 `Statcast is everywhere — produced and promoted by MLB — but not for everyone. It enthralls analytically inclined fans and irks others.`\
 https://nytimes.com/athletic/5627303/2024/07/10/mlb-statcast-10-year-anniversary/
