@@ -1,3 +1,7 @@
+**Lowetide: What's the NHL ETA for new Oilers top prospect Matt Savoie?**\
+`Edmonton is a different team to earn an opportunity even for a gifted prospect like Savoie.`\
+https://nytimes.com/athletic/5626735/2024/07/10/oilers-matt-savoie-trade-nhl/
+
 **Dear New York State Senators, Could You Please Repeat That?**\
 `We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Casey Goldstein, age 17.`\
 https://nytimes.com/2024/07/10/learning/dear-new-york-state-senators-could-you-please-repeat-that.html
