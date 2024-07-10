@@ -1,3 +1,7 @@
+**Biden Has Failed to Quiet His Democratic Doubters**\
+`Also, NATO agreed to cement long-term support for Ukraine. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/07/10/briefing/biden-democrats-doubts-nato-ukraine-plan.html
+
 **It’s Coming Home: Dream, boast or way of life?**\
 `Whether the song is arrogant or earnest or ironic has become one of the more contested topics of the last few years`\
 https://nytimes.com/athletic/5551953/2024/07/10/england-coming-home-three-lions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5629789/2024/07/10/jill-ellis-wave-nwsl-investigati
 **The Briefing: Netherlands 1 England 2 - Late substitute Watkins hits winner to set up Euro 2024 final with Spain**\
 `We break down the key talking points from the match in Dortmund as England reached a second consecutive European Championship final`\
 https://nytimes.com/athletic/5622633/2024/07/10/netherlands-england-euro-2024-watkins-kane/
-
-**Ocasio-Cortez Files Impeachment Articles Against Justices Alito and Thomas**\
-`Impeachment has no realistic chance of advancing in the Republican-controlled House, but it speaks to a motivating issue for Democrats: the Supreme Court’s conservative supermajority.`\
-https://nytimes.com/2024/07/10/us/politics/aoc-samuel-alito-clarence-thomas-impeach.html
 

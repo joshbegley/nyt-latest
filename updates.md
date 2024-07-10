@@ -1,3 +1,7 @@
+**Biden Has Failed to Quiet His Democratic Doubters**\
+`Also, NATO agreed to cement long-term support for Ukraine. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/07/10/briefing/biden-democrats-doubts-nato-ukraine-plan.html
+
 **It’s Coming Home: Dream, boast or way of life?**\
 `Whether the song is arrogant or earnest or ironic has become one of the more contested topics of the last few years`\
 https://nytimes.com/athletic/5551953/2024/07/10/england-coming-home-three-lions/
