@@ -1,3 +1,7 @@
+**Overlooked No More: Ursula Parrott, Best-Selling Author and Voice for the Modern Woman**\
+`Her writing, about marriage and divorce, sex and its consequences, work-life balance, the challenges of child-rearing and other topics, still resonates today.`\
+https://nytimes.com/2024/07/10/obituaries/ursula-parrott-overlooked.html
+
 **Georgia, UCLA cancel home-and-home series**\
 `Georgia and UCLA were scheduled for a home-and-home series in 2025-26, but those games have been canceled. `\
 https://nytimes.com/athletic/5482079/2024/07/10/georgia-ucla-cancel-football-series/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/10/arts/alec-baldwin-rust-armorer-defense.html
 **Biden Tries to Silence His Doubters by Lashing Out at the ‘Elite’**\
 `President Biden is pushing back against those who say he is not up to the job.`\
 https://nytimes.com/2024/07/10/us/politics/biden-democrats-trump-election.html
-
-**Kremlin Critic Is ‘Stable’ in Russian Prison Hospital, Lawyer Says**\
-`Vladimir Kara-Murza’s legal representatives said they were denied access to their client in a remote Siberian penal colony for six days.`\
-https://nytimes.com/2024/07/10/world/europe/kara-murza-russia-prison.html
 

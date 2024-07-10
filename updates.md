@@ -1,3 +1,7 @@
+**Georgia, UCLA cancel home-and-home series**\
+`Georgia and UCLA were scheduled for a home-and-home series in 2025-26, but those games have been canceled. `\
+https://nytimes.com/athletic/5482079/2024/07/10/georgia-ucla-cancel-football-series/
+
 **The prosecution accused Mr. Baldwin of ‘numerous breaches of firearm safety.’**\
 `By Tim Balk and Graham Bowley`\
 https://nytimes.com/2024/07/10/arts/the-prosecution-accused-mr-baldwin-of-numerous-breaches-of-firearm-safety.html
