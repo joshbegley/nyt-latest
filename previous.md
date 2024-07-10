@@ -1,3 +1,11 @@
+**What to Know About This Summer’s ‘Hydrangea Hysteria’**\
+`Here’s why hydrangeas are having a banner year on the East Coast and how you can enjoy them.`\
+https://nytimes.com/2024/07/10/us/hydrangea-flower-bloom-season.html
+
+**William E. Burrows, Historian of the Space Age, Is Dead at 87**\
+`In books and articles he wrote about the militarization of space and believed that investing in exploration would ultimately “protect Earth and guarantee the survival of humanity.”`\
+https://nytimes.com/2024/07/10/books/william-e-burrows-dead.html
+
 **Trump Talks V.P. Shortlist Pros and Cons (He Likes Vance’s Beard)**\
 `Donald J. Trump has not generally offered explicit evaluations of his top contenders, but he acknowledged on Wednesday that Doug Burgum’s abortion ban and Marco Rubio’s Florida residency complicate his choice.`\
 https://nytimes.com/2024/07/10/us/politics/trump-vp-shortlist-vance-burgum-rubio.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-doral-biden
 **Maxine Singer, Guiding Force at the Birth of Biotechnology, Dies at 93**\
 `A leading biochemist, she helped shape guidelines to protect a revolutionary new field in the ’70s while calming public fears of a spread of deadly lab-made microbes.`\
 https://nytimes.com/2024/07/10/science/maxine-singer-dead.html
-
-**America’s New Catholic Priests: Young, Confident and Conservative**\
-`In an era of deep divisions in the church, newly ordained priests overwhelmingly lean right in their theology, practices and politics.`\
-https://nytimes.com/2024/07/10/us/catholic-priests-conservative-politics.html
-
-**NBA finalizes deals with ESPN, NBC, Amazon; TNT could match**\
-`ESPN will have a conference final and the NBA Finals each season.`\
-https://nytimes.com/athletic/5629508/2024/07/10/nba-tv-deal-espn-nbc-amazon-tnt/
 

@@ -1,3 +1,11 @@
+**What to Know About This Summer’s ‘Hydrangea Hysteria’**\
+`Here’s why hydrangeas are having a banner year on the East Coast and how you can enjoy them.`\
+https://nytimes.com/2024/07/10/us/hydrangea-flower-bloom-season.html
+
+**William E. Burrows, Historian of the Space Age, Is Dead at 87**\
+`In books and articles he wrote about the militarization of space and believed that investing in exploration would ultimately “protect Earth and guarantee the survival of humanity.”`\
+https://nytimes.com/2024/07/10/books/william-e-burrows-dead.html
+
 **Trump Talks V.P. Shortlist Pros and Cons (He Likes Vance’s Beard)**\
 `Donald J. Trump has not generally offered explicit evaluations of his top contenders, but he acknowledged on Wednesday that Doug Burgum’s abortion ban and Marco Rubio’s Florida residency complicate his choice.`\
 https://nytimes.com/2024/07/10/us/politics/trump-vp-shortlist-vance-burgum-rubio.html
