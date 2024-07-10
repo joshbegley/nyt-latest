@@ -1,3 +1,7 @@
+**David Liederman, Who Found Sweet Success With David’s Cookies, Dies at 75**\
+`His innovative version of the chocolate chip cookie, studded with irregular pieces of dark Swiss chocolate, led to a chain of more than 100 stores worldwide.`\
+https://nytimes.com/2024/07/10/dining/david-liederman-dead.html
+
 **After Playing an Outlaw, Alec Baldwin Winds Up on Trial**\
 `The actor, who was charged with involuntary manslaughter, went on trial more than two years after the fatal shooting of the cinematographer of the movie “Rust.”`\
 https://nytimes.com/2024/07/10/arts/alec-baldwin-trial-involuntary-manslaughter.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/10/us/politics/nato-china-russia-ukraine.html
 **Escalation between Israel and Hezbollah puts pressure on Gaza cease-fire talks.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/07/10/world/israel-gaza-war-hamas/escalation-between-israel-and-hezbollah-puts-pressure-on-gaza-cease-fire-talks
-
-**Watkins 'lost for words' after sending England to Euro 2024 final**\
-`Ollie Watkins described England reaching the European Championship final as the &#8220;best feeling ever&#8221; after his dramatic injury-time winner secured a 2-1 victory against the Netherlands.`\
-https://nytimes.com/athletic/5629968/2024/07/10/ollie-watkins-england-euro-2024/
 
