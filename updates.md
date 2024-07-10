@@ -1,3 +1,7 @@
+**Kremlin Critic Is ‘Stable’ in Russian Prison Hospital, Lawyer Says**\
+`Vladimir Kara-Murza’s legal representatives said they were denied access to their client in a remote Siberian penal colony for six days.`\
+https://nytimes.com/2024/07/10/world/europe/kara-murza-russia-prison.html
+
 **CBS News President to Step Down**\
 `Ingrid Ciprian-Matthews, who ascended to the role last year, will be a senior adviser on coverage through the presidential election.`\
 https://nytimes.com/2024/07/10/business/media/cbs-news-president-stepping-down.html

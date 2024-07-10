@@ -1,3 +1,7 @@
+**Kremlin Critic Is ‘Stable’ in Russian Prison Hospital, Lawyer Says**\
+`Vladimir Kara-Murza’s legal representatives said they were denied access to their client in a remote Siberian penal colony for six days.`\
+https://nytimes.com/2024/07/10/world/europe/kara-murza-russia-prison.html
+
 **CBS News President to Step Down**\
 `Ingrid Ciprian-Matthews, who ascended to the role last year, will be a senior adviser on coverage through the presidential election.`\
 https://nytimes.com/2024/07/10/business/media/cbs-news-president-stepping-down.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5628962/2024/07/10/college-football-25-qb-ratings-r
 **Rep. Pat Ryan, Moderate Front-Liner, Calls on Biden to Step Aside**\
 `Mr. Ryan, the eighth member of Congress to publicly call on President Biden to drop out of the race, said Mr. Biden seemed incapable of making a case against Donald Trump.`\
 https://nytimes.com/2024/07/10/nyregion/biden-pat-ryan.html
-
-**Mr. Baldwin’s lawyers cannot cite arguments prosecutors made at the trial of the armorer that could help their case.**\
-`By Julia Jacobs`\
-https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/mr-baldwins-lawyers-cannot-cite-arguments-prosecutors-made-at-the-trial-of-the-armorer-that-could-help-their-case
 
