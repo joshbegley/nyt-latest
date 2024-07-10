@@ -1,4 +1,4 @@
-**Dani Olmo, Spain's shy Euro 2024 Golden Boot leader and summer transfer target**\
+**Dani Olmo, Spain's shy Euro 2024 Golden Boot leader and €60m summer transfer target**\
 `Olmo is fast becoming indispensable for Spain and looks set for a big transfer window`\
 https://nytimes.com/athletic/5628034/2024/07/10/dani-olmo-spain-euros-transfer/
 
