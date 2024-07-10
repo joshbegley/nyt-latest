@@ -1,3 +1,7 @@
+**Spain take risks and reap the rewards - it's what makes them so different at Euro 2024**\
+`In a parallel universe, France won Tuesday's Euros semi-final because Kylian Mbappe was allowed too much space - but that's Spain for you`\
+https://nytimes.com/athletic/5628396/2024/07/10/spain-risks-euro-2024-final/
+
 **Man Utd face PSR battle after £71.4m loss in latest accounts**\
 `Manchester United posted a £71.`\
 https://nytimes.com/athletic/5628801/2024/07/10/man-utd-psr-accounts-finances/
