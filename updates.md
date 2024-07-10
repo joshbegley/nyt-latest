@@ -1,3 +1,7 @@
+**Corrections: July 10, 2024**\
+`Corrections that appeared in print on Wednesday, July 10, 2024.`\
+https://nytimes.com/2024/07/10/pageoneplus/corrections-july-10-2024.html
+
 **22 Years Ago, He Disappeared in an Avalanche. His Body Was Just Found.**\
 `Melting glaciers on Mount Huascarán in Peru helped uncover the body of Bill Stampfl, who disappeared while climbing the mountain with two friends.`\
 https://nytimes.com/2024/07/10/world/americas/22-years-ago-he-disappeared-in-an-avalanche-his-body-was-just-found.html
