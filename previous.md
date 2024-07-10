@@ -1,3 +1,7 @@
+**Senator Michael Bennet says Democrats must ‘come to grips’ with the risk that Biden could lose.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/07/10/us/biden-trump-election/senator-michael-bennet-says-democrats-must-come-to-grips-with-the-risk-that-biden-could-lose
+
 **NASCAR fines Bubba Wallace $50,000 for Chicago incident**\
 `An in-car camera shot showed an unprepared Bowman, who had his window net already dropped, getting jostled.`\
 https://nytimes.com/athletic/5627993/2024/07/10/nascar-bubba-wallace-fined/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/10/style/changed-tables-brother-wedding.html
 **Blake Snell returns and youth takes over at shortstop as Giants win a walkoff stunner**\
 `The Giants might not have a solid identity yet, or even a winning record. But they're appearing more and more like a functional team.`\
 https://nytimes.com/athletic/5628730/2024/07/10/sf-giants-blake-snell-walkoff-win/
-
-**Liverpool set to sign Ngumoha, 15, from Chelsea**\
-`Liverpool are set to complete the signing of England Under-16 international Rio Ngumoha from Chelsea.`\
-https://nytimes.com/athletic/5628841/2024/07/10/liverpool-rio-ngumoha-transfer-chelsea/
 

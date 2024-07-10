@@ -1,3 +1,7 @@
+**Senator Michael Bennet says Democrats must ‘come to grips’ with the risk that Biden could lose.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/07/10/us/biden-trump-election/senator-michael-bennet-says-democrats-must-come-to-grips-with-the-risk-that-biden-could-lose
+
 **NASCAR fines Bubba Wallace $50,000 for Chicago incident**\
 `An in-car camera shot showed an unprepared Bowman, who had his window net already dropped, getting jostled.`\
 https://nytimes.com/athletic/5627993/2024/07/10/nascar-bubba-wallace-fined/
