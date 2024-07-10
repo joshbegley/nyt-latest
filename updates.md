@@ -1,3 +1,11 @@
+**Euros teams playing in the Copa America is the last thing football needs**\
+`The only comparisons we need between European and South American sides come at the World Cup. Reaching out to other nations makes more sense`\
+https://nytimes.com/athletic/5626521/2024/07/10/uefa-conmebol-closer-ties-euro-2024-copa-america/
+
+**Christina Unkel interview: Team president, attorney, app creator and Euros breakout star**\
+`The U.S. official was an unknown for many UK viewers but her role with ITV at the Euros has helped her become a household name`\
+https://nytimes.com/athletic/5624783/2024/07/10/christina-unkel-referee-var-interview/
+
 **Wednesday Briefing**\
 `Biden at the NATO summit in Washington.`\
 https://nytimes.com/2024/07/10/briefing/biden-nato-ukraine-gaza.html
