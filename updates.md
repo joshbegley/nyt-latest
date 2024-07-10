@@ -1,3 +1,15 @@
+**Argentina 2-0 Canada takeaways: Messi scores, Argentina heads to Copa America final**\
+`Argentina is heading to its fourth Copa America final in five years - The Athletic dissects the big talking points`\
+https://nytimes.com/athletic/5627969/2024/07/09/canada-argentina-copa-america-takeaways/
+
+**White House Doctor Discussed Business With the President’s Brother**\
+`Republicans are seeking information about a venture that Dr. Kevin O’Connor discussed with James Biden before the president was elected.`\
+https://nytimes.com/live/2024/07/09/us/trump-biden-election/white-house-doctor-james-biden
+
+**90 Degrees, Say**\
+`Hal Moore lets things escalate.`\
+https://nytimes.com/2024/07/09/crosswords/daily-puzzle-07-10-2024.html
+
 **U.S. and Allies Target Russian Bots Working to Spread Propaganda**\
 `Intelligence officials from three countries flagged a Russian influence campaign that used artificial intelligence to create nearly 1,000 fake accounts on the social media platform X.`\
 https://nytimes.com/2024/07/09/business/russian-bots-artificial-intelligence-propaganda.html
