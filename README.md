@@ -1,3 +1,7 @@
+**An Easy, Beautiful Tomato Tart to Make All Summer Long**\
+`The New York-based, French-born chef Yann Nury updated his childhood favorite with cherry tomatoes and an olive oil crust.`\
+https://nytimes.com/2024/07/10/t-magazine/tomato-tart-summer-recipe.html
+
 **Could Messi catch Ronaldo at top of international scoring charts?**\
 `Messi is two years younger than his great rival but trails by 21 goals - will he be able to edge past having overtaken Ali Daei?`\
 https://nytimes.com/athletic/5628084/2024/07/10/lionel-messi-cristiano-ronaldo-scoring/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5628276/2024/07/10/revisiting-the-zerosp-draft-appr
 **Dissension in the ranks: Debating Jonathan Taylor vs. Saquon Barkley for fantasy football 2024**\
 `Two of our fantasy football experts, Jake Ciely and Dane Martinez, debate who should go first in drafts, Saquon Barkley or Jonathan Taylor.`\
 https://nytimes.com/athletic/5627513/2024/07/10/fantasy-football-debate-jonathan-taylor-vs-saquon-barkley/
-
-**Jake Sullivan: You Can Count on a Strong NATO**\
-`The U.S. national security adviser argues that America’s allies in NATO are pulling their weight and paying their fair share of the costs of a common defense.`\
-https://nytimes.com/2024/07/10/opinion/jake-sullivan-nato-russia.html
 
