@@ -1,3 +1,15 @@
+**Rays' Wander Franco charged with sexually abusing a minor**\
+`Franco, 23, has not played since Aug. 12, 2023, when allegations surfaced about an inappropriate relationship with a minor.`\
+https://nytimes.com/athletic/5628183/2024/07/10/wander-franco-sexual-abuse-charge/
+
+**Everton mailbag: Branthwaite's future, Calvert-Lewin's contract - a deal for Dele?**\
+`Everton's summer has been unexpectedly busy with transfers but takeover talk is never far away too - it's time for our mailbag answers`\
+https://nytimes.com/athletic/5626925/2024/07/10/everton-mailbag-branthwaite-calvert-lewin-dele-transfers/
+
+**Who is Okoli and how does he fit Leicester's recruitment model?**\
+`Okoli is an example of Leicester returning to the model of trying to find up-and-coming talents they can nurture and turn into assets.`\
+https://nytimes.com/athletic/5624663/2024/07/10/caleb-okoli-leicester-transfer-analysis/
+
 **Why Mikel Arteta loves left-footers**\
 `Arsenal's fine balance of right-footers vs left-footers explained`\
 https://nytimes.com/athletic/5623244/2024/07/10/arsenal-arteta-left-footers/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5626521/2024/07/10/uefa-conmebol-closer-ties-euro-2
 **Christina Unkel interview: Team president, attorney, app creator and Euros breakout star**\
 `The U.S. official was an unknown for many UK viewers but her role with ITV at the Euros has helped her become a household name`\
 https://nytimes.com/athletic/5624783/2024/07/10/christina-unkel-referee-var-interview/
-
-**Wednesday Briefing**\
-`Biden at the NATO summit in Washington.`\
-https://nytimes.com/2024/07/10/briefing/biden-nato-ukraine-gaza.html
-
-**Forces on Both Left and Right Battle for Europe’s Political Soul**\
-`A coarsening of public discourse and contempt for mainstream parties have politicians on both sides denouncing what they say are extreme positions by their opponents, analysts say.`\
-https://nytimes.com/2024/07/10/world/europe/france-elections-europe-left-right.html
-
-**You Are Cordially Invited to Euro 2024’s Best Party. Please Wear Orange.**\
-`With thousands of voices and a few well-choreographed dance moves, Dutch fans have transformed match days into pulsing, joyous celebrations. Their next one is Wednesday.`\
-https://nytimes.com/2024/07/10/world/europe/you-are-cordially-invited-to-euro-2024s-best-party-please-wear-orange.html
 
