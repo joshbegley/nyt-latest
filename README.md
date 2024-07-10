@@ -1,5 +1,5 @@
 **U.K. Police Searching for Man Suspected of Killing 3 Women With Crossbow**\
-`The women died at the scene near London, the police said. The authorities are looking for a 26-year-old man in relation to the attack.`\
+`The women died at the scene near London on Tuesday, the police said. The BBC identified the victims as the wife and children of one of its commentators.`\
 https://nytimes.com/2024/07/10/world/europe/crossbow-attack-uk-manhunt.html
 
 **Canucks offseason mailbag, part 1: Is finding linemates for Elias Pettersson challenging?**\
