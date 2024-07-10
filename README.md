@@ -1,11 +1,3 @@
-**Newcastle sign England's Demi Stokes**\
-`Newcastle United Women have confirmed the signing of England international Demi Stokes.`\
-https://nytimes.com/athletic/5629201/2024/07/10/demi-stokes-newcastle-man-city-transfer/
-
-**George Clooney, a Major Biden Fund-Raiser, Urges Him to Drop Out**\
-`Mr. Clooney, who co-hosted a lavish fund-raiser for President Biden last month, wrote in a guest essay in The New York Times that Democrats “are not going to win in November with this president.”`\
-https://nytimes.com/2024/07/10/us/politics/george-clooney-biden-drop-out.html
-
 **Should My Wife and I Tell Our 8-Year-Old How Much Money We Make?**\
 `The magazine’s Ethicist columnist on the kinds of information that can be burdensome to children.`\
 https://nytimes.com/2024/07/10/magazine/parents-money-conversation-ethics.html
@@ -37,4 +29,12 @@ https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/how-a-misdemean
 **Kawhi Leonard not playing for Team USA in Olympics**\
 `Boston Celtics’ Derrick White is considered a strong replacement candidate.`\
 https://nytimes.com/athletic/5629094/2024/07/10/kawhi-leonard-out-usa-olympics-team/
+
+**Israel tells civilians to leave Gaza City, saying it will remain a ‘dangerous combat zone.’**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/07/10/world/israel-gaza-war-hamas/israel-tells-civilians-to-leave-gaza-city-saying-it-will-remain-a-dangerous-combat-zone
+
+**George Clooney: I Love Joe Biden. But We Need a New Nominee.**\
+`I saw Biden three weeks ago at my fund-raiser for him. It’s devastating to say it, but he is not the same man he was, and he won’t win this fall.`\
+https://nytimes.com/2024/07/10/opinion/joe-biden-democratic-nominee.html
 

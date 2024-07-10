@@ -1,3 +1,11 @@
+**Newcastle sign England's Demi Stokes**\
+`Newcastle United Women have confirmed the signing of England international Demi Stokes.`\
+https://nytimes.com/athletic/5629201/2024/07/10/demi-stokes-newcastle-man-city-transfer/
+
+**George Clooney, a Major Biden Fund-Raiser, Urges Him to Drop Out**\
+`Mr. Clooney, who co-hosted a lavish fund-raiser for President Biden last month, wrote in a guest essay in The New York Times that Democrats “are not going to win in November with this president.”`\
+https://nytimes.com/2024/07/10/us/politics/george-clooney-biden-drop-out.html
+
 **Should My Wife and I Tell Our 8-Year-Old How Much Money We Make?**\
 `The magazine’s Ethicist columnist on the kinds of information that can be burdensome to children.`\
 https://nytimes.com/2024/07/10/magazine/parents-money-conversation-ethics.html
