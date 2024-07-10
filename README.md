@@ -1,3 +1,7 @@
+**Three Countries Exit West African Bloc, Shaking a Fragile Region**\
+`Burkina Faso, Mali and Niger are withdrawing from a 49-year-old regional alliance that has allowed goods and nearly 400 million people to travel freely across a tightly connected region.`\
+https://nytimes.com/2024/07/10/world/africa/west-african-countries-leave-ecowas.html
+
 **What’s in Store for the 2024 Hurricane Season?**\
 `Hurricane Beryl set records as the earliest Category 5 storm ever. What does that mean for the rest of hurricane season? Here’s what travelers need to know.`\
 https://nytimes.com/2024/07/10/travel/hurricane-season-travel-insurance.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/10/opinion/joe-biden-democrats-withdrawal.html
 **Noah Gragson joining Front Row Motorsports**\
 `With Gragson now in the fold, Front Row’s next task is finalizing sponsorship and who will serve as his crew chief.`\
 https://nytimes.com/athletic/5629239/2024/07/10/noah-gragson-front-row-motorsports-nascar/
-
-**Alec Baldwin’s Defense Team Faults ‘Rust’ Crew Members for Safety Lapses**\
-`The defense said crew members who are supposed to oversee gun safety on the set had responsibility for ensuring there was no live ammunition in the gun.`\
-https://nytimes.com/2024/07/10/arts/alec-baldwin-rust-armorer-defense.html
 
