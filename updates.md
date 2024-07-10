@@ -1,3 +1,19 @@
+**Menendez’s Lawyer Tells Jury That Bribery Case Is ‘Painfully Thin’**\
+`Senator Robert Menendez’s lawyers finished a six-hour closing statement on Wednesday afternoon.`\
+https://nytimes.com/2024/07/10/nyregion/robert-menendez-bribery-trial.html
+
+**Rep. Elissa Slotkin, a Michigan Democrat running for Senate, tells donors Biden is behind in her state.**\
+`By Michael C. Bender`\
+https://nytimes.com/2024/07/10/us/politics/elissa-slotkin-biden.html
+
+**Elena Rybakina's Wimbledon form is as serene as it is ominous**\
+`The Kazakh dismantled Svitolina with a ruthless display of serving and returning. When she is in form, she makes tennis effortless`\
+https://nytimes.com/athletic/5629320/2024/07/10/elena-rybakina-wimbledon/
+
+**The judge knows the outlines of the case, having presided over the trial of the armorer.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2024/07/10/arts/alec-baldwin-rust-trial/the-judge-knows-the-outlines-of-the-case-having-presided-over-the-trial-of-the-armorer
+
 **Quinn: The golfer I am and the golfer I want to be collide at North Berwick**\
 `The first round in Scotland came with a promise, but then human nature took hold.`\
 https://nytimes.com/athletic/5629437/2024/07/10/north-berwick-golf-club-playing/
