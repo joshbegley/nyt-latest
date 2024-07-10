@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5628070/2024/07/09/cubs-last-stand-before-trade-dea
 https://nytimes.com/2024/07/09/us/politics/carjacking-shooting-sotomayor.html
 
 **Argentina 2-0 Canada takeaways: Messi scores, Argentina heads to Copa America final**\
-`Argentina is heading to its fourth Copa America final in five years - The Athletic dissects the big talking points`\
+`Argentina is heading to its fourth Copa America final in the last five tournaments - The Athletic dissects the big talking points`\
 https://nytimes.com/athletic/5627969/2024/07/09/canada-argentina-copa-america-takeaways/
 
 **White House Doctor Discussed Business With the President’s Brother**\

@@ -1,3 +1,7 @@
+**Argentina 2-0 Canada takeaways: Messi scores, Argentina heads to Copa America final**\
+`Argentina is heading to its fourth Copa America final in the last five tournaments - The Athletic dissects the big talking points`\
+https://nytimes.com/athletic/5627969/2024/07/09/canada-argentina-copa-america-takeaways/
+
 **Bobby Miller's career-worst start sinks his year and the Dodgers' rotation to a new low**\
 `Few expected the Dodgers to add pitching to their shopping lists this summer. Now, they may be one of the most pitching-needy teams.`\
 https://nytimes.com/athletic/5628099/2024/07/09/dodgers-bobby-miller-rotation-struggles/
