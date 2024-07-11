@@ -1,40 +1,40 @@
-**Bayern Munich complete Palhinha signing from Fulham**\
-`Bayern Munich have completed the signing of midfielder Joao Palhinha from Fulham.`\
-https://nytimes.com/athletic/5615998/2024/07/11/joao-palhinha-bayern-munich-transfer/
+**Searching the East Side of Manhattan for a Two-Bedroom Co-op. What Could They Get for Around $1 Million?**\
+`Renting a one-bedroom near two hospitals left a couple yearning for some quiet and a bigger kitchen. Here’s what they found.`\
+https://nytimes.com/interactive/2024/07/11/realestate/11hunt-shoemaker.html
 
-**Why Mercedes feels it's re-emerged as F1 contender following Lewis Hamilton's win**\
-`Stay informed on all the biggest stories in Formula One.`\
-https://nytimes.com/athletic/5630135/2024/07/11/f1-mercedes-lewis-hamilton-george-russell/
+**Everything You Need for Eating Outside This Summer**\
+`Items that will elevate your warm-weather gatherings, from canned rosé to colorful lawn chairs.`\
+https://nytimes.com/2024/07/11/t-magazine/picnic-outdoor-dining-summer.html
 
-**USMNT, Canada and Mexico: How the 2026 World Cup hosts fared at Copa America**\
-`Among the three co-hosts for 2026 there was one standout (and surprise) winner at this tournament`\
-https://nytimes.com/athletic/5629774/2024/07/11/usmnt-canada-mexico-copa-america/
+**Biden’s High-Stakes Moment: Tonight’s NATO News Conference**\
+`The president’s allies, doubters and enemies will be watching for any evidence of stumbles as he fields questions from reporters.`\
+https://nytimes.com/2024/07/11/us/politics/biden-high-stakes-news-conference.html
 
-**A Trump Ally Is Training 75 Armed Citizens. Is That a Militia?**\
-`Bruce Blakeman, the Nassau County executive, is recruiting “special deputies” to deploy during disaster or unrest. Opponents say the move is dangerous.`\
-https://nytimes.com/2024/07/11/nyregion/bruce-blakeman-armed-citizens-long-island.html
+**Europe vs. Europe**\
+`The region is still not united against Russia’s threat.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/europe-divided-nato
 
-**Why Menendez’s Meals With Egyptian Officials Worry Security Experts**\
-`The bribery case against Senator Robert Menendez has revealed how foreign intelligence officials cultivated casual access to one of the most powerful Democrats in Washington.`\
-https://nytimes.com/2024/07/11/nyregion/senator-bob-menendez-trial.html
+**I.R.S. Crackdown on Delinquent Millionaires Yields $1 Billion**\
+`The beefed-up enforcement is part of the agency’s modernization initiative aimed at improving customer service and catching wealthy tax evaders.`\
+https://nytimes.com/2024/07/11/business/irs-crackdown-wealthy-taxpayers.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/07/11/crosswords/spelling-bee-forum.html
+**At 75, the Aldeburgh Festival Is Bigger Than Benjamin Britten**\
+`The coastal festival, founded by the composer and Peter Pears in the 1940s, has built a reputation for rich, forward-looking programming.`\
+https://nytimes.com/2024/07/11/arts/music/at-75-the-aldeburgh-festival-is-bigger-than-benjamin-britten.html
 
-**‘The Daily Show’ Ribs Biden Over Democratic Detractors**\
-`“You know you’re in trouble if even Danny Ocean is saying, ‘We can’t pull this one off,’” Desi Lydic joked after George Clooney called for Biden to drop out.`\
-https://nytimes.com/2024/07/11/arts/television/daily-show-biden.html
+**Why Chuck Schumer Hasn’t Put the Squeeze on Joe Biden**\
+`The Senate majority leader moves strategically and with an endgame in mind, and he likes building consensus. There is still a lack of it on Mr. Biden.`\
+https://nytimes.com/2024/07/11/opinion/chuck-schumer-joe-biden.html
 
-**The Netherlands' new pain: This wasn't a golden generation, but it was a golden opportunity**\
-`Wednesday's 2-1 defeat by England in the Euro 2024 semi-finals is just the latest painful loss the Netherlands have suffered`\
-https://nytimes.com/athletic/5630372/2024/07/11/netherlands-england-euro-2024-semi-final-golden-opportunity/
+**How New Hampshire Could Be Slipping From the Democrats**\
+`The state has voted for the Democratic nominee for president for two decades. But a new poll shows a loss of support, and some fed-up voters are considering alternatives.`\
+https://nytimes.com/2024/07/11/us/biden-new-hampshire-support.html
 
-**England, a team of comebacks, late winners and finals. These are extraordinary times**\
-`For so long, England were a team of talent but they could not be relied upon to produce when it mattered most. All that has changed`\
-https://nytimes.com/athletic/5630276/2024/07/11/england-euros-final-netherlands/
+**Project 2025, Suddenly Everywhere, Explained**\
+`How a partisan road map for a hoped-for Republican president came to dominate this important moment in the race.`\
+https://nytimes.com/2024/07/11/podcasts/project-2025-suddenly-everywhere-explained.html
 
-**Team USA finds rhythm in win vs. Canada: Takeaways**\
-`Anthony Davis produced what could be his first of many double-doubles with 10 points and 11 boards.`\
-https://nytimes.com/athletic/5630562/2024/07/11/team-usa-canada-exhibition-olympics/
+**Fresh Inflation Data Are Expected to Show Continued Cooling**\
+`The Federal Reserve is watching inflation figures as it contemplates when to lower interest rates, and could receive positive news Thursday.`\
+https://nytimes.com/2024/07/11/business/june-inflation-data.html
 
