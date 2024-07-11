@@ -1,3 +1,15 @@
+**New York Philharmonic Chief Abruptly Steps Down**\
+`Gary Ginstling, the orchestra’s president and chief executive, is leaving after just a year on the job.`\
+https://nytimes.com/2024/07/11/arts/music/new-york-philharmonic-gary-ginstling.html
+
+**What a Linguist Hears When Biden Speaks**\
+`Don’t fixate on a few shaggy phrases. There’s something bigger going on.`\
+https://nytimes.com/2024/07/11/opinion/what-a-linguist-hears-when-biden-speaks.html
+
+**Biden Campaign Has Long Fed Softball Questions to Friendly Interviewers**\
+`A review of President Biden’s interviews shows he is often asked the same few questions in interviews. It’s not a coincidence.`\
+https://nytimes.com/2024/07/11/us/politics/biden-campaign-media-2024.html
+
 **It Turns Out the Picassos Anchoring a Gallery’s Exhibit Were Not by Picasso**\
 `The Museum of Old and New Art in Australia claimed to have placed several Picassos inside a women’s restroom to protest a court ruling against the women-only exhibit. The curator now says they were fake.`\
 https://nytimes.com/2024/07/11/world/australia/fake-picasso-tasmania-museum.html
