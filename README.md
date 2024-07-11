@@ -1,3 +1,7 @@
+**USMNT, Canada and Mexico: How the 2026 World Cup hosts fared at Copa America**\
+`Among the three co-hosts for 2026 there was one standout (and surprise) winner at this tournament`\
+https://nytimes.com/athletic/5629774/2024/07/11/usmnt-canada-mexico-copa-america/
+
 **A Trump Ally Is Training 75 Armed Citizens. Is That a Militia?**\
 `Bruce Blakeman, the Nassau County executive, is recruiting “special deputies” to deploy during disaster or unrest. Opponents say the move is dangerous.`\
 https://nytimes.com/2024/07/11/nyregion/bruce-blakeman-armed-citizens-long-island.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5628851/2024/07/11/staveley-ghodoussi-questions-new
 **Chelsea under Enzo Maresca: How will they line up defensively?**\
 `The new coach's preferred system will have implications for members of the Chelsea squad deemed integral, when fit, by previous regimes`\
 https://nytimes.com/athletic/5627972/2024/07/11/chelsea-maresca-defence-chilwell-cucurella-james/
-
-**What Manchester United's financial losses mean for their PSR situation**\
-`The Athletic has crunched the numbers on United’s latest set of financial results…`\
-https://nytimes.com/athletic/5629104/2024/07/11/manchester-united-financial-losses-psr-situation-explained/
 
