@@ -1,3 +1,7 @@
+**Van Dijk to consider club, international future after Euro 2024 exit**\
+`Liverpool defender Virgil van Dijk said he will consider his club and international future following the Netherlands’ Euro 2024 semi-final defeat by England.`\
+https://nytimes.com/athletic/5630925/2024/07/11/virgil-van-dijk-liverpol-contract-netherlands-future/
+
 **'Balance' is important to Astros' MLB Draft philosophy under Cam Pendino, Deric Ladnier**\
 `The Astros have a poorly ranked farm. They need to improve it through the draft, which they'll approach with both scouting and analytics.`\
 https://nytimes.com/athletic/5630330/2024/07/11/astros-mlb-draft-cam-pendino-deric-ladnier/
