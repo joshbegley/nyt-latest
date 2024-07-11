@@ -1,9 +1,13 @@
+**The Netherlands' new pain: this wasn't a golden generation, but it was a golden opportunity**\
+`Wednesday's 2-1 defeat by England in the Euro 2024 semi-finals is just the latest unfortunate loss the Netherlands have suffered`\
+https://nytimes.com/athletic/5630372/2024/07/11/netherlands-england-euro-2024-semi-final-golden-opportunity/
+
 **England, a team of comebacks, late winners and finals. These are extraordinary times**\
 `For so long England were a team of talent but they could not be relied upon to produce when it mattered most. All that has changed`\
 https://nytimes.com/athletic/5630276/2024/07/11/england-euros-final-netherlands/
 
 **Team USA finds rhythm in win vs. Canada: Takeaways**\
-`The Americans cruised to an 86-72 win in the summer exhibition opener for both countries Wednesday night in a packed T-Mobile Arena.`\
+`Anthony Davis produced what could be his first of many double-doubles with 10 points and 11 boards.`\
 https://nytimes.com/athletic/5630562/2024/07/11/team-usa-canada-exhibition-olympics/
 
 **Newcastle's six key issues after ownership shock - including Howe’s future, Saudi role, women’s team**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5630536/2024/07/11/red-sox-trade-deadline-pitching-
 **How Liverpool plan to avoid another injury crisis - and why Peeters is key**\
 `Arne Slot's head of physical performance is one of his most trusted lieutenants and will oversee squad's fitness work`\
 https://nytimes.com/athletic/5628599/2024/07/11/liverpool-injuries-ruben-peeters/
-
-**France fell flat at Euro 2024 - so why is Deschamps set to stay as manager?**\
-`Deschamps retains the backing of the French Football Federation - but Zinedine Zidane remains an alluring option to replace him`\
-https://nytimes.com/athletic/5629411/2024/07/11/didier-deschamps-france-manager-future/
 
