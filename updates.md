@@ -1,3 +1,7 @@
+**Blue Jays hit with a cascade of injuries, including to Bo Bichette and Daulton Varsho**\
+`The Blue Jays can't catch a break on the injury front — prospects Ricky Tiedemann and Adam Macko and even a coach are also hurt.`\
+https://nytimes.com/athletic/5630656/2024/07/11/blue-jays-injuries-bichette-varsho-tiedemann/
+
 **College football vs. Taylor Swift, Turner's future and more: Sports Media Mailbag, Part 2**\
 `College football's ratings showdown with the NFL, where Turner is heading post-NBA, and more of your sports media questions answered.`\
 https://nytimes.com/athletic/5627487/2024/07/11/college-football-taylor-swift-turner-nba-media-rights-mailbag/

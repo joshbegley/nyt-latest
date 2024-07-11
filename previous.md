@@ -1,3 +1,7 @@
+**Blue Jays hit with a cascade of injuries, including to Bo Bichette and Daulton Varsho**\
+`The Blue Jays can't catch a break on the injury front — prospects Ricky Tiedemann and Adam Macko and even a coach are also hurt.`\
+https://nytimes.com/athletic/5630656/2024/07/11/blue-jays-injuries-bichette-varsho-tiedemann/
+
 **College football vs. Taylor Swift, Turner's future and more: Sports Media Mailbag, Part 2**\
 `College football's ratings showdown with the NFL, where Turner is heading post-NBA, and more of your sports media questions answered.`\
 https://nytimes.com/athletic/5627487/2024/07/11/college-football-taylor-swift-turner-nba-media-rights-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/us/is-the-bogus-fire-for-real-fire-officials-have
 **How the Netherlands shut down England's midfield advantage - and made Watkins the perfect substitution**\
 `Kobbie Mainoo was key to England's dominance until the Netherlands changed the game. It made one man the perfect answer off the bench`\
 https://nytimes.com/athletic/5630728/2024/07/11/netherlands-england-tactical-analysis/
-
-**Shota Imanaga’s first-half brilliance kept his team relevant. Now the Cubs have to do something about it**\
-`Imanaga continues to keep his team relevant, outdueling Corbin Burnes in Wednesday’s 4-0 win over the Baltimore Orioles.`\
-https://nytimes.com/athletic/5630596/2024/07/11/shota-imanaga-cubs-first-half-mlb-trade-deadline/
 
