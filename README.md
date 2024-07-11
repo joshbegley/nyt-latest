@@ -1,3 +1,7 @@
+**‘The Daily Show’ Ribs Biden Over Democratic Detractors**\
+`“You know you’re in trouble if even Danny Ocean is saying, ‘We can’t pull this one off,’” Desi Lydic joked after George Clooney called for Biden to drop out.`\
+https://nytimes.com/2024/07/11/arts/television/daily-show-biden.html
+
 **The Netherlands' new pain: this wasn't a golden generation, but it was a golden opportunity**\
 `Wednesday's 2-1 defeat by England in the Euro 2024 semi-finals is just the latest unfortunate loss the Netherlands have suffered`\
 https://nytimes.com/athletic/5630372/2024/07/11/netherlands-england-euro-2024-semi-final-golden-opportunity/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5630538/2024/07/11/phillies-bullpen-trade-deadline-
 **Red Sox pitching has been a difference-maker, but they need to add more at deadline**\
 `The Red Sox's rotation has been surprisingly good, but they could use reinforcements for a second-half playoff push.`\
 https://nytimes.com/athletic/5630536/2024/07/11/red-sox-trade-deadline-pitching-needs/
-
-**How Liverpool plan to avoid another injury crisis - and why Peeters is key**\
-`Arne Slot's head of physical performance is one of his most trusted lieutenants and will oversee squad's fitness work`\
-https://nytimes.com/athletic/5628599/2024/07/11/liverpool-injuries-ruben-peeters/
 
