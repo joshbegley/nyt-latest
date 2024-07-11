@@ -1,3 +1,15 @@
+**Have Potato Chips Reached Peak Price?**\
+`PepsiCo reports in its earnings that people are buying fewer salty snacks from its Frito-Lay brands. It’s not the only food company that is seeking to lure back consumers stung by high prices.`\
+https://nytimes.com/2024/07/11/business/snack-food-prices-pepsico.html
+
+**Former Police Officer Convicted of Punching Man and Breaking His Nose**\
+`The officer, Juan Perez, faces up to 364 days in jail for assault. The victim, who later killed himself in Kosovo, had been throwing water at passers-by.`\
+https://nytimes.com/2024/07/11/nyregion/nypd-officer-conviction-assault.html
+
+**Fraud Case Against Rich Exile Who Riled Beijing Goes to Jury**\
+`Guo Wengui fled China and allied with the American right in a quixotic quest to end Communist rule. U.S. prosecutors say he stole over $1 billion from his followers.`\
+https://nytimes.com/2024/07/11/us/guo-wengui-fraud-trial-china.html
+
 **We Made You a Tomato Meal Plan**\
 `Ali Slagle has three new vegetarian recipes that center on sweet, juicy cherry tomatoes.`\
 https://nytimes.com/2024/07/11/dining/how-to-use-your-summer-tomatoes.html
