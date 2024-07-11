@@ -1,3 +1,11 @@
+**Ocasio-Cortez Loses the Democratic Socialists’ Endorsement Over Israel**\
+`The New York congresswoman was blamed for not being supportive enough of the Palestinian cause and efforts to end the war in Gaza.`\
+https://nytimes.com/2024/07/11/us/politics/aoc-dsa-endorsement.html
+
+**Argentina vs. Colombia 2024 Copa America final odds: Two streaks on the line in Miami**\
+`Lionel Messi and Argentina are favored to win the 2024 Copa America final against Colombia, which would be the team's third trophy in a row.`\
+https://nytimes.com/athletic/5631888/2024/07/11/argentina-colombia-2024-copa-america-final-odds/
+
 **Erik Johnson's return may also be about John Tortorella and Matvei Michkov**\
 `Johnson isn't going to be an every-game contributor, but he should be a crucial role in the locker room.`\
 https://nytimes.com/athletic/5631981/2024/07/11/flyers-johnson-tortorella-michkov/
