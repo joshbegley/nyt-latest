@@ -1,3 +1,7 @@
+**Shelley Duvall in ‘The Shining’: A Perfect Gothic Heroine Had a Deep Well of Strength**\
+`Her performance was perhaps misunderstood at the time, just as the narrative surrounding her life would be later.`\
+https://nytimes.com/2024/07/11/movies/shelley-duvall-the-shining.html
+
 **Houston Hospitals Overwhelmed Amid Power Outages and Heat Wave**\
 `Extreme heat in Texas has led officials to build a temporary field hospital in Houston after Hurricane Beryl left millions without power and no air conditioning.`\
 https://nytimes.com/video/us/100000009566250/heat-power-outage-houston.html
