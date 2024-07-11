@@ -1,3 +1,11 @@
+**World leaders call out Israeli settler violence and West Bank land grabs.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/07/11/world/israel-gaza-war-hamas/world-leaders-call-out-israeli-settler-violence-and-west-bank-land-grabs
+
+**Montauk Fisherman Who Took Too Much Fluke Gets a 30-Month Sentence**\
+`Chris Winkler went to trial after the government accused him of conspiring to sell illicit fish. Prosecutors said they were trying to preserve the bounty of the sea.`\
+https://nytimes.com/2024/07/11/nyregion/montauk-fisherman-fluke-sentencing.html
+
 **‘Me’ Is a Lovely and Distinctive Tween Drama**\
 `Anchored by beautiful performances, this Apple TV+ superhero show surpasses its own genre clichés.`\
 https://nytimes.com/2024/07/11/arts/television/me-apple-tv-plus-superhero.html

@@ -1,3 +1,11 @@
+**World leaders call out Israeli settler violence and West Bank land grabs.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/07/11/world/israel-gaza-war-hamas/world-leaders-call-out-israeli-settler-violence-and-west-bank-land-grabs
+
+**Montauk Fisherman Who Took Too Much Fluke Gets a 30-Month Sentence**\
+`Chris Winkler went to trial after the government accused him of conspiring to sell illicit fish. Prosecutors said they were trying to preserve the bounty of the sea.`\
+https://nytimes.com/2024/07/11/nyregion/montauk-fisherman-fluke-sentencing.html
+
 **‘Me’ Is a Lovely and Distinctive Tween Drama**\
 `Anchored by beautiful performances, this Apple TV+ superhero show surpasses its own genre clichés.`\
 https://nytimes.com/2024/07/11/arts/television/me-apple-tv-plus-superhero.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5631926/2024/07/11/willi-castro-al-all-star-team-tw
 **'I couldn't miss Spain': Carlos Alcaraz's relationship with La Roja goes beyond final dreams**\
 `Carlos Alcaraz is on the cusp of joining Spain's men's football team in a final on Sunday. Their relationship is deeper than symmetry`\
 https://nytimes.com/athletic/5630953/2024/07/11/carlos-alcaraz-wimbledon-spain-football-european-championship/
-
-**Early Humans Left Africa Much Earlier Than Previously Thought**\
-`Scientists have found evidence of several waves of migration by looking at the genetic signatures of human interbreeding with Neanderthals.`\
-https://nytimes.com/2024/07/11/science/humans-neanderthals-out-of-africa.html
-
-**A Beautiful Inflation Report**\
-`And a vindication for Bidenomics.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/krugman-inflation-report-bidenomics
 
