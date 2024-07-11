@@ -1,3 +1,7 @@
+**Biden Addresses Reporters at a High-Stakes Moment**\
+`Also, a welcome slowdown in inflation. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/07/11/briefing/biden-news-conference-inflation-report.html
+
 **Investing in Employee Well-being, One Benefit at a Time**\
 `How businesses can gain a competitive edge with modern group benefits.`\
 https://nytimes.com/paidpost/humana/investing-in-employee-well-being-one-benefit-at-a-time.html

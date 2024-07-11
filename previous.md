@@ -1,3 +1,7 @@
+**Biden Addresses Reporters at a High-Stakes Moment**\
+`Also, a welcome slowdown in inflation. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/07/11/briefing/biden-news-conference-inflation-report.html
+
 **Investing in Employee Well-being, One Benefit at a Time**\
 `How businesses can gain a competitive edge with modern group benefits.`\
 https://nytimes.com/paidpost/humana/investing-in-employee-well-being-one-benefit-at-a-time.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/us/dvontaye-mitchell-milwaukee-hotel.html
 **Democratic senators were mostly unmoved by a visit from top Biden advisers.**\
 `By Robert Jimison and Carl Hulse`\
 https://nytimes.com/live/2024/07/11/us/biden-news-trump-election/democratic-senators-were-mostly-unmoved-by-a-visit-from-top-biden-advisers
-
-**Milwaukee’s Mayor, No Fan of Trump, Is Thrilled to Host His Party**\
-`Cavalier Johnson, the Democratic mayor of Milwaukee, was one of the biggest cheerleaders for holding the Republican National Convention in the city.`\
-https://nytimes.com/2024/07/11/us/milwaukee-cavalier-johnson-trump.html
 
