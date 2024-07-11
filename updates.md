@@ -1,3 +1,11 @@
+**‘Me’ Is a Lovely and Distinctive Tween Drama**\
+`Anchored by beautiful performances, this Apple TV+ superhero show surpasses its own genre clichés.`\
+https://nytimes.com/2024/07/11/arts/television/me-apple-tv-plus-superhero.html
+
+**Pentagon to Dismantle Temporary Pier Built for Gaza Aid Operation**\
+`The $230 million short-notice project has struggled to overcome rough seas and other problems since it started in May.`\
+https://nytimes.com/2024/07/11/us/politics/gaza-pier-aid.html
+
 **Is women's track the next sport ready to boom? Alexis Ohanian is betting on it**\
 `The latest investment in women's sports is in track, with Alexis Ohanian among those entering the fray. His new event debuts in September.`\
 https://nytimes.com/athletic/5631595/2024/07/11/olympics-track-gabby-thomas-alexis-ohanian-athlos/

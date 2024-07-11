@@ -1,3 +1,11 @@
+**‘Me’ Is a Lovely and Distinctive Tween Drama**\
+`Anchored by beautiful performances, this Apple TV+ superhero show surpasses its own genre clichés.`\
+https://nytimes.com/2024/07/11/arts/television/me-apple-tv-plus-superhero.html
+
+**Pentagon to Dismantle Temporary Pier Built for Gaza Aid Operation**\
+`The $230 million short-notice project has struggled to overcome rough seas and other problems since it started in May.`\
+https://nytimes.com/2024/07/11/us/politics/gaza-pier-aid.html
+
 **Is women's track the next sport ready to boom? Alexis Ohanian is betting on it**\
 `The latest investment in women's sports is in track, with Alexis Ohanian among those entering the fray. His new event debuts in September.`\
 https://nytimes.com/athletic/5631595/2024/07/11/olympics-track-gabby-thomas-alexis-ohanian-athlos/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/11/science/humans-neanderthals-out-of-africa.html
 **A Beautiful Inflation Report**\
 `And a vindication for Bidenomics.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/krugman-inflation-report-bidenomics
-
-**Israeli Military Clears General Who Approved Fire on House With Hostages on Oct. 7**\
-`The military conceded that it had “failed in its mission” to protect an Israeli village from attack, but exonerated a general who oversaw the fighting there.`\
-https://nytimes.com/2024/07/11/world/middleeast/israeli-military-clears-general-who-approved-fire-on-house-with-hostages-on-oct-7.html
-
-**Hattie Wiener, Sex-Positive ‘Oldest Cougar,’ Dies at 88**\
-`She was an evangelist for older women having sex with younger men, and the health benefits that she said came with it.`\
-https://nytimes.com/2024/07/11/style/hattie-wiener-dead.html
 
