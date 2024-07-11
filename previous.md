@@ -1,3 +1,7 @@
+**Padres are reminded of pitching lessons of 2021 as trade deadline draws closer**\
+`Relief help remains an urgent need, but it could all become moot if the Padres do not acquire a starter or two before the deadline.`\
+https://nytimes.com/athletic/5630483/2024/07/10/padres-trade-deadline-starting-rotation-help/
+
 **NATO Calls China a ‘Decisive Enabler’ in Russia’s War on Ukraine**\
 `Secretary General Jens Stoltenberg made the accusation, which was in a declaration approved by the 32 leaders of the alliance, during the NATO summit in Washington on Wednesday.`\
 https://nytimes.com/video/world/europe/100000009565443/nato-china-russia-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5630256/2024/07/10/uruguay-colombia-result-argentin
 **Peter Welch Explains Why He Thinks Biden Needs to Drop Out**\
 `‘It’s a catastrophe,’ said the senator from Vermont, becoming the first Democrat from that chamber to publicly say the president should step aside.`\
 https://nytimes.com/2024/07/10/us/politics/peter-welch-biden-vt-democratic-senator.html
-
-**What to Know About the Wildfires in California**\
-`The state has had more than 3,500 wildfires this year, and the peak of the annual fire season has yet to arrive.`\
-https://nytimes.com/article/wildfires-california-forest.html
 
