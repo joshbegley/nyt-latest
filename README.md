@@ -1,4 +1,4 @@
-**Klopp rebuffs offer to coach USMNT**\
+**Klopp rebuffs approach to coach USMNT**\
 `The German left Liverpool in May, citing 'running out of energy'`\
 https://nytimes.com/athletic/5630946/2024/07/11/jurgen-klopp-usmnt-next-coach-rejected/
 
