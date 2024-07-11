@@ -1,3 +1,7 @@
+**Homers, speed spark Twins late as they salvage doubleheader, win series over White Sox**\
+`The Twins' streak of consecutive games with a homer stretched to 28 in the doubleheader.`\
+https://nytimes.com/athletic/5630393/2024/07/10/twins-white-sox-double-header-split-brooks-lee/
+
 **Sheepishly Raises Hand**\
 `Mat Shelden takes us for a ride.`\
 https://nytimes.com/2024/07/10/crosswords/daily-puzzle-2024-07-11.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5630036/2024/07/10/blue-jackets-coaching-search/
 **City Illegally Fined Woman Over Profane Political Yard Sign, U.S. Judge Rules**\
 `A federal judge in Tennessee said that it was unconstitutional for the City of Lakeland, Tenn., to fine Julie Pereira for the sign she posted expressing disapproval of President Biden and Donald J. Trump.`\
 https://nytimes.com/2024/07/10/us/tennessee-yard-sign-biden-trump.html
-
-**Blues sign Ryan Suter to 1-year, $775,000 contract**\
-`Suter is the second player in league history to be bought out twice, after Tony DeAngelo.`\
-https://nytimes.com/athletic/5630130/2024/07/10/blues-sign-ryan-suter/
 
