@@ -1,5 +1,5 @@
 **Klopp rebuffs offer to coach USMNT**\
-`Jurgen Klopp has rebuffed an approach from the United States Soccer Federation (USSF) to take over as the men&#8217;s national team head coach following the dismissal of Gregg Berhalter.`\
+`The German left Liverpool in May, citing 'running out of energy'`\
 https://nytimes.com/athletic/5630946/2024/07/11/jurgen-klopp-usmnt-next-coach-rejected/
 
 **Witnessing the rise of England hero Ollie Watkins - 'I walked off saying, 'He was too good for me'**\
