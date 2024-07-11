@@ -1,3 +1,7 @@
+**USMNT, Canada and Mexico: How the 2026 World Cup hosts fared at Copa America**\
+`Among the three co-hosts for 2026 there was one standout (and surprise) winner at this tournament`\
+https://nytimes.com/athletic/5629774/2024/07/11/usmnt-canada-mexico-copa-america/
+
 **England, a team of comebacks, late winners and finals. These are extraordinary times**\
 `For so long, England were a team of talent but they could not be relied upon to produce when it mattered most. All that has changed`\
 https://nytimes.com/athletic/5630276/2024/07/11/england-euros-final-netherlands/
