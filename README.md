@@ -1,3 +1,7 @@
+**How Biden Lost George Clooney and Hollywood**\
+`The president’s stable of big donors, corralled in part by the movie mogul Jeffrey Katzenberg, has been devastated since his debate, with many closing their wallets.`\
+https://nytimes.com/2024/07/11/us/politics/biden-george-clooney-hollywood.html
+
 **Trump Cites Immunity and Asks Judge to Throw Out Hush-Money Conviction**\
 `A recent Supreme Court ruling should nullify the guilty verdict in Donald Trump’s Manhattan trial, his lawyers said. The argument could be a long shot.`\
 https://nytimes.com/2024/07/11/nyregion/trump-immunity-hush-money-conviction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/arts/dorothy-lichtenstein-dead.html
 **6 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/07/11/books/review/new-books-recommendations.html
-
-**Kamala Harris Says Biden Is a ‘Fighter’ at North Carolina Rally**\
-`At a time when the president’s vigor is an issue, his vice president said he was battle-tough and warned about another Trump term.`\
-https://nytimes.com/2024/07/11/us/politics/kamala-harris-biden-rally-north-carolina.html
 
