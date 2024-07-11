@@ -1,3 +1,11 @@
+**Israeli Military Clears General Who Approved Fire on House With Hostages on Oct. 7**\
+`The military conceded that it had “failed in its mission” to protect an Israeli village from attack, but exonerated a general who oversaw the fighting there.`\
+https://nytimes.com/2024/07/11/world/middleeast/israeli-military-clears-general-who-approved-fire-on-house-with-hostages-on-oct-7.html
+
+**Hattie Wiener, Sex-Positive ‘Oldest Cougar,’ Dies at 88**\
+`She was an evangelist for older women having sex with younger men, and the health benefits that she said came with it.`\
+https://nytimes.com/2024/07/11/style/hattie-wiener-dead.html
+
 **Russia Places Navalny’s Widow on Extremist List**\
 `The Russian agency tasked with combating terrorism financing added Yulia Navalnaya to its registry.`\
 https://nytimes.com/2024/07/11/world/europe/russia-yulia-navalnaya-extremist-list.html
