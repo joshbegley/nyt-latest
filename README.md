@@ -1,3 +1,7 @@
+**Las Vegas Heat Breaks Records and Stuns Even the Forecasters**\
+`A brutal heat wave that has gripped the West for days will shift eastward on the weekend, while much of sweltering Houston still lacks electricity.`\
+https://nytimes.com/2024/07/11/us/las-vegas-heat-houston-power.html
+
 **House Defeats Measure to Fine Garland Over Refusal to Share Biden Audio**\
 `Four Republicans opposed the bid to fine the attorney general $10,000 a day for his refusal to comply with a congressional subpoena for recordings of the president’s interview with a special counsel.`\
 https://nytimes.com/2024/07/11/us/politics/house-fine-garland-biden-contempt.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/opinion/biden-trump-election-debate.html
 **Shelley Duvall, Star of ‘The Shining’ and ‘Nashville,’ Dies at 75**\
 `Her lithesome features and quirky screen presence made her a popular figure in 1970s movies, particularly Robert Altman’s.`\
 https://nytimes.com/2024/07/11/arts/shelley-duvall-dead.html
-
-**Can Movies for Grown-Ups Still Sell Tickets? ‘Fly Me to the Moon’ Is a Test.**\
-`Directed by Greg Berlanti, the film amounts to a Hollywood experiment: Is there still room at the multiplexes for original movies aimed at grown-ups.`\
-https://nytimes.com/2024/07/11/business/media/fly-me-to-the-moon-greg-berlanti.html
 
