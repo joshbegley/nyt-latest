@@ -1,3 +1,11 @@
+**‘Inside Out 2’ Is Now Pixar’s Biggest Movie Ever**\
+`The animated film about a young teenage girl and her complex emotions has passed the $1.25 billion mark globally and is expected to keep growing.`\
+https://nytimes.com/2024/07/11/movies/inside-out-2-pixar-box-office.html
+
+**Bournemouth's Rothwell to undergo medical ahead of Leeds loan move**\
+`Bournemouth midfielder Joe Rothwell is set to undergo a medical ahead of a season-long loan move to Leeds United.`\
+https://nytimes.com/athletic/5631860/2024/07/11/bournemouth-leeds-rothwell-loan-transfer/
+
 **Have Potato Chips Reached Peak Price?**\
 `PepsiCo reports in its earnings that people are buying fewer salty snacks from its Frito-Lay brands. It’s not the only food company that is seeking to lure back consumers stung by high prices.`\
 https://nytimes.com/2024/07/11/business/snack-food-prices-pepsico.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/11/us/extreme-heat-planes-flying-airlines.html
 **Goodell feels 'very strongly' with stance in Sunday Ticket lawsuit**\
 `Goodell said he and the league "feel very strongly about our position, our policies" in regards to the 2015 lawsuit.`\
 https://nytimes.com/athletic/5631586/2024/07/11/roger-goodell-sunday-ticket-verdict-comments/
-
-**Bill Belichick joining panel for CW's 'Inside the NFL'**\
-`Belichick will join former NFL players Ryan Clark, Chad Johnson and Chris Long for the show's weekly panel.`\
-https://nytimes.com/athletic/5631635/2024/07/11/bill-belichick-inside-the-nfl-show/
-
-**Some Biden Advisers Are Discussing How to Convince Him to Step Aside**\
-`Close allies of the president are developing a case for why he should end his re-election campaign, though it is not clear that the discussions have reached him.`\
-https://nytimes.com/2024/07/11/us/politics/biden-aides-campaign.html
 
