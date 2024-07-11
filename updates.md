@@ -1,3 +1,7 @@
+**Dylcia Pagan, 77, Dies; Puerto Rican Nationalist Who Spent 19 Years in Prison**\
+`She was among 10 members of the F.A.L.N., a terrorist group, who were convicted on arms and conspiracy charges in 1981. She was granted clemency by President Bill Clinton.`\
+https://nytimes.com/2024/07/11/us/dylcia-pagan-dead.html
+
 **New York Philharmonic Chief Abruptly Steps Down**\
 `Gary Ginstling, the orchestra’s president and chief executive, is leaving after just a year on the job.`\
 https://nytimes.com/2024/07/11/arts/music/new-york-philharmonic-gary-ginstling.html
