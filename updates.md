@@ -1,3 +1,7 @@
+**Could the Yankees' latest bargain-bin pickup Tim Hill be another success story?**\
+`Hill was released by the lowly White Sox in mid-June. Since then, he has impressed in several outings for the Yankees. `\
+https://nytimes.com/athletic/5630513/2024/07/10/yankees-tim-hill-rays-strikeout-success/
+
 **Padres are reminded of pitching lessons of 2021 as trade deadline draws closer**\
 `Relief help remains an urgent need, but it could all become moot if the Padres do not acquire a starter or two before the deadline.`\
 https://nytimes.com/athletic/5630483/2024/07/10/padres-trade-deadline-starting-rotation-help/
