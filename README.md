@@ -1,3 +1,7 @@
+**Team USA finds rhythm in win vs. Canada: Takeaways**\
+`The Americans cruised to an 86-72 win in the summer exhibition opener for both countries Wednesday night in a packed T-Mobile Arena.`\
+https://nytimes.com/athletic/5630562/2024/07/11/team-usa-canada-exhibition-olympics/
+
 **Newcastle's six key issues after ownership shock - including Howe’s future, Saudi role, women’s team**\
 `The questions Newcastle need to address after Staveley and Ghodoussi announce their departures`\
 https://nytimes.com/athletic/5628851/2024/07/11/staveley-ghodoussi-questions-newcastle-need-to-answer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5629411/2024/07/11/didier-deschamps-france-manager-
 **Will Euro 2024 prompt players to re-evaluate the strength of the Saudi Pro League?**\
 `The SPL provided 14 players in Germany - the most for a league not from one of the 24 competing countries. Many of them have impressed too`\
 https://nytimes.com/athletic/5628711/2024/07/11/saudi-pro-euro2024-laporte-kante/
-
-**Thursday Briefing**\
-`A major declaration by NATO.`\
-https://nytimes.com/2024/07/11/briefing/nato-china-biden-macron.html
 
