@@ -3,7 +3,7 @@
 https://nytimes.com/2024/07/10/arts/television/benji-gregory-alf-dead.html
 
 **Uruguay players, Colombia fans clash in stands after Copa America semifinal**\
-`A number of Uruguayan players, including Darwin Nunez, appeared to clash with Colombian fans after the semi-final of Copa America on Wednesday night.`\
+`A number of Uruguayan players, including Darwin Nunez, appeared to clash with Colombian fans after the semifinal of Copa America on Wednesday night.`\
 https://nytimes.com/athletic/5630447/2024/07/10/colombia-uruguay-copa-america-darwin-nunez/
 
 **Corrections: July 11, 2024**\
