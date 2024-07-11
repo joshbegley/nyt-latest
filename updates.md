@@ -1,3 +1,7 @@
+**Why Mercedes feels it's re-emerged as F1 contender following Lewis Hamilton's win**\
+`Stay informed on all the biggest stories in Formula One.`\
+https://nytimes.com/athletic/5630135/2024/07/11/f1-mercedes-lewis-hamilton-george-russell/
+
 **USMNT, Canada and Mexico: How the 2026 World Cup hosts fared at Copa America**\
 `Among the three co-hosts for 2026 there was one standout (and surprise) winner at this tournament`\
 https://nytimes.com/athletic/5629774/2024/07/11/usmnt-canada-mexico-copa-america/
