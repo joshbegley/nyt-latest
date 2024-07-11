@@ -1,5 +1,5 @@
 **Utah’s Gerrymandered House Map Ignored Voters’ Will, State Supreme Court Says**\
-`The G.O.P.-run State Legislature was wrong to flout a voter-approved ballot measure calling for fair maps, the State Supreme Court said. A lower court will now hear a challenge to the House map.`\
+`The G.O.P.-run State Legislature was wrong to flout a voter-approved ballot measure calling for fair maps, the court said. A lower court will now hear a challenge to the House map.`\
 https://nytimes.com/2024/07/11/us/utah-supreme-court-gerrymandering.html
 
 **Fighting Isn’t the Only Killer of Gazans Amid the War, Researchers Say**\
