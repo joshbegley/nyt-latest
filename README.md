@@ -1,3 +1,11 @@
+**Election Setbacks Leave France’s Far Right at a Crossroads**\
+`The National Rally’s campaign was marred by controversies that undercut its effort to convince voters that it was ready for power. Now, leaders are asking where the party goes from here.`\
+https://nytimes.com/2024/07/11/world/europe/france-far-right-bardella-national-rally.html
+
+**Real Madrid appoint Wicks as new CEO for the Santiago Bernabéu Stadium**\
+`Real Madrid have appointed their former director of sponsorship, retail and licensing, Alex Wicks, as the CEO of the new Santiago Bernabeu Stadium.`\
+https://nytimes.com/athletic/5632237/2024/07/11/real-madrid-appoint-ceo-wicks/
+
 **U.S. Uncovers Russian Plot to Assassinate C.E.O. of German Arms Maker**\
 `The company produces artillery shells and tanks that Ukraine has used in its war against Russia.`\
 https://nytimes.com/2024/07/11/us/politics/russia-assassination-plot-germany.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5631981/2024/07/11/flyers-johnson-tortorella-michko
 **Narcissism Is a Trait That’s Hard to Shake, Study Says**\
 `Here’s how to recognize it and cope with the narcissist in your life.`\
 https://nytimes.com/2024/07/11/well/mind/narcissism-age-empathy.html
-
-**Dylcia Pagan, 77, Dies; Puerto Rican Nationalist Who Spent 19 Years in Prison**\
-`She was among 10 members of the F.A.L.N., a terrorist group, who were convicted on arms and conspiracy charges in 1981. She was granted clemency by President Bill Clinton.`\
-https://nytimes.com/2024/07/11/us/dylcia-pagan-dead.html
-
-**New York Philharmonic Chief Abruptly Steps Down**\
-`Gary Ginstling, the orchestra’s president and chief executive, is leaving after just a year on the job.`\
-https://nytimes.com/2024/07/11/arts/music/new-york-philharmonic-gary-ginstling.html
 
