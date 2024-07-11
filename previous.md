@@ -1,3 +1,15 @@
+**The Pulse: USMNT's most critical decision ever**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5630457/2024/07/11/gregg-berhalter-fired-usmnt-the-pulse/
+
+**Presidential Medical Secrets**\
+`We cover the history of White House health cover-ups.`\
+https://nytimes.com/2024/07/11/briefing/president-biden-age-election.html
+
+**Iraq Sentences ISIS Leader’s Wife to Death Over Crimes Against Yazidis**\
+`The woman was found guilty of helping the terrorist group detain and enslave women and girls of the Yazidi religious minority.`\
+https://nytimes.com/2024/07/11/world/middleeast/isis-baghdadi-iraq-wife.html
+
 **Van Dijk to consider club, international future after Euro 2024 exit**\
 `Liverpool defender Virgil van Dijk said he will consider his club and international future following the Netherlands’ Euro 2024 semi-final defeat by England.`\
 https://nytimes.com/athletic/5630925/2024/07/11/virgil-van-dijk-liverpol-contract-netherlands-future/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/11/podcasts/nato-china-houston-heat.html
 **Lindsey Horan looks to lead USWNT at Paris Olympics with authenticity**\
 `What to expect from Horan as she takes on the role of captain without Alex Morgan`\
 https://nytimes.com/athletic/5630187/2024/07/11/uswnt-soccer-lindsey-horan-olympics-paris/
-
-**72 Hours Inside Biden’s Campaign to Save His Candidacy**\
-`Times reporters take us inside the discussions around President Biden’s nomination.`\
-https://nytimes.com/2024/07/11/podcasts/the-daily/72-hours-inside-bidens-campaign-to-save-his-candidacy.html
-
-**The Connections Companion No. 397, July 12, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/11/crosswords/connections-companion-397.html
-
-**Wordle Review No. 1,119, July 12, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/11/crosswords/wordle-review-1119.html
 

@@ -1,3 +1,15 @@
+**The Pulse: USMNT's most critical decision ever**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5630457/2024/07/11/gregg-berhalter-fired-usmnt-the-pulse/
+
+**Presidential Medical Secrets**\
+`We cover the history of White House health cover-ups.`\
+https://nytimes.com/2024/07/11/briefing/president-biden-age-election.html
+
+**Iraq Sentences ISIS Leader’s Wife to Death Over Crimes Against Yazidis**\
+`The woman was found guilty of helping the terrorist group detain and enslave women and girls of the Yazidi religious minority.`\
+https://nytimes.com/2024/07/11/world/middleeast/isis-baghdadi-iraq-wife.html
+
 **Van Dijk to consider club, international future after Euro 2024 exit**\
 `Liverpool defender Virgil van Dijk said he will consider his club and international future following the Netherlands’ Euro 2024 semi-final defeat by England.`\
 https://nytimes.com/athletic/5630925/2024/07/11/virgil-van-dijk-liverpol-contract-netherlands-future/
