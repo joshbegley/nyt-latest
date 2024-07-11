@@ -1,3 +1,15 @@
+**Many in Gaza City Ignore Israeli Military’s Calls to Evacuate**\
+`Some civilians are fatigued by their repeated displacements, while others say there is no point in going to other areas that may be just as dangerous.`\
+https://nytimes.com/2024/07/11/world/middleeast/gaza-city-evacuation-israel-military.html
+
+**The Deep Source of Trump’s Appeal**\
+`The problem with identity politics becoming our moral system is that it undermines democracy.`\
+https://nytimes.com/2024/07/11/opinion/trump-biden-authoritarianism.html
+
+**Why Does the G.O.P. Despise America?**\
+`Self-proclaimed patriots keep trash-talking their own country.`\
+https://nytimes.com/2024/07/11/opinion/trump-republican-platform.html
+
 **Biden Calls Zelensky ‘Putin’ at NATO Event**\
 `President Biden introduced President Volodymyr Zelensky of Ukraine as President Putin before correcting himself on Thursday afternoon after a NATO meeting.`\
 https://nytimes.com/video/us/politics/100000009567490/biden-zelensky-putin.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5632093/2024/07/11/blues-ryan-suter-defensive-logja
 **The Call Is Coming From Inside the White House**\
 `Biden takes the stage in Washington as doubts about his candidacy spread among his own staff.`\
 https://nytimes.com/2024/07/11/us/politics/biden-press-conference-democrats.html
-
-**A donor group is pledging money for Democrats pushing Biden to exit the race.**\
-`Major donors have committed more than $2 million to a super PAC to help politicians who have publicly called for him to drop his re-election bid.`\
-https://nytimes.com/live/2024/07/11/us/biden-news-trump-election/biden-donors-democrats
-
-**Wimbledon women's semifinals: Ending a 20-year wait, and the pressure of having a match "on your racket"**\
-`On day 11 of Wimbledon, the women's semifinals made history, and the pressure of having a match "on your racket" came to the fore`\
-https://nytimes.com/athletic/5632245/2024/07/11/wimbledon-womens-semifinals-recap-paolini-krejcikova-rybakina-vekic/
-
-**Wisconsin Radio Show Says It Edited Biden Interview at Campaign’s Request**\
-`“The Earl Ingram Show” cut two segments from an interview with the president that aired on July 4.`\
-https://nytimes.com/2024/07/11/us/politics/wisconsin-radio-show-edited-biden-interview.html
 
