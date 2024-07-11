@@ -1,3 +1,7 @@
+**McIlroy in 'disbelief' over Keegan Bradley's Ryder Cup captaincy**\
+`Bradley will serve as the United States' Ryder Cup captain, a move that caught everyone off guard.`\
+https://nytimes.com/athletic/5631326/2024/07/11/rory-mcilroy-keegan-bradley-ryder-cup/
+
 **How a Teamster Leader’s Flirtations With Trump Have Divided the Union**\
 `The Teamsters’ president, Sean O’Brien, will address the Republican convention next week in Milwaukee, just when President Biden needs unified support from organized labor.`\
 https://nytimes.com/2024/07/11/us/politics/teamsters-trump-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/us/politics/trump-orban-florida-meeting.html
 **Kenya’s President Fires His Cabinet After Nationwide Protests**\
 `President William Ruto dismissed all but one of his cabinet secretaries after demonstrations over a finance bill that would have raised taxes led to the deaths of at least 39 people.`\
 https://nytimes.com/2024/07/11/world/africa/kenya-president-cabinet-protests.html
-
-**Housing costs, long stubborn, show signs of easing.**\
-`By Ben Casselman`\
-https://nytimes.com/live/2024/07/11/business/cpi-inflation-fed/housing-costs-long-stubborn-show-signs-of-easing
 
