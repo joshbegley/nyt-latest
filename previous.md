@@ -3,7 +3,7 @@
 https://nytimes.com/2024/07/11/arts/television/daily-show-biden.html
 
 **The Netherlands' new pain: this wasn't a golden generation, but it was a golden opportunity**\
-`Wednesday's 2-1 defeat by England in the Euro 2024 semi-finals is just the latest unfortunate loss the Netherlands have suffered`\
+`Wednesday's 2-1 defeat by England in the Euro 2024 semi-finals is just the latest painful loss the Netherlands have suffered`\
 https://nytimes.com/athletic/5630372/2024/07/11/netherlands-england-euro-2024-semi-final-golden-opportunity/
 
 **England, a team of comebacks, late winners and finals. These are extraordinary times**\
