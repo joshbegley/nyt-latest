@@ -1,3 +1,11 @@
+**How to Watch Biden’s News Conference on Thursday**\
+`President Biden will be under intense scrutiny when he takes questions from reporters at the end of a three-day NATO summit in Washington.`\
+https://nytimes.com/2024/07/11/us/politics/biden-press-conference-time-watch.html
+
+**After French Election, Voters Are Resigned to Cost-of-Living Crisis**\
+`France’s parliamentary elections were intended to bring change, but many feared the political gridlock meant their struggle to pay bills would continue.`\
+https://nytimes.com/2024/07/11/business/france-elections-voter-discontent.html
+
 **McIlroy: Keegan Bradley’s Ryder Cup captaincy ‘a surprise’**\
 `Bradley will serve as the United States' Ryder Cup captain, a move that caught everyone off guard.`\
 https://nytimes.com/athletic/5631326/2024/07/11/rory-mcilroy-keegan-bradley-ryder-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5631239/2024/07/11/afc-west-preview-scoop-city/
 **Russia Vows ‘Military Response’ to U.S. Missile Deployments in Germany**\
 `The U.S. and Germany announced episodic deployments of longer-range American missiles in Germany starting in 2026.`\
 https://nytimes.com/2024/07/11/world/europe/us-germany-missiles-russia.html
-
-**Trump Is Expected to Meet With Orban, Hungary’s Prime Minister, in Florida**\
-`The meeting would come after Prime Minister Viktor Orban, who has long been aligned with the former president, made unexpected trips to China, Russia and Ukraine.`\
-https://nytimes.com/2024/07/11/us/politics/trump-orban-florida-meeting.html
-
-**Kenya’s President Fires His Cabinet After Nationwide Protests**\
-`President William Ruto dismissed all but one of his cabinet secretaries after demonstrations over a finance bill that would have raised taxes led to the deaths of at least 39 people.`\
-https://nytimes.com/2024/07/11/world/africa/kenya-president-cabinet-protests.html
 
