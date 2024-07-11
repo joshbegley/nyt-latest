@@ -1,3 +1,11 @@
+**Shelley Duvall, Star of ‘The Shining’ and ‘Nashville,’ Dies at 75**\
+`Her lithesome features and quirky screen presence made her a popular figure in 1970s movies, particularly Robert Altman’s.`\
+https://nytimes.com/2024/07/11/arts/shelley-duvall-dead.html
+
+**Can Movies for Grown-Ups Still Sell Tickets? ‘Fly Me to the Moon’ Is a Test.**\
+`Directed by Greg Berlanti, the film amounts to a Hollywood experiment: Is there still room at the multiplexes for original movies aimed at grown-ups.`\
+https://nytimes.com/2024/07/11/business/media/fly-me-to-the-moon-greg-berlanti.html
+
 **Titans agree to deal with Jamal Adams**\
 `Adams, 28, has only played in 10 games the past two seasons with Seattle.`\
 https://nytimes.com/athletic/5631489/2024/07/11/jamal-adams-titans-contract/
