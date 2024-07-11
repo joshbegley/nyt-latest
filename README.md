@@ -1,3 +1,7 @@
+**Shota Imanaga’s first-half brilliance kept his team relevant. Now the Cubs have to do something about it**\
+`Imanaga continues to keep his team relevant, outdueling Corbin Burnes in Wednesday’s 4-0 win over the Baltimore Orioles.`\
+https://nytimes.com/athletic/5630596/2024/07/11/shota-imanaga-cubs-first-half-mlb-trade-deadline/
+
 **Covering on Spire of a Cathedral That Monet Painted Catches Fire**\
 `The cause of the blaze at the cathedral in Rouen, France, whose facade Claude Monet depicted dozens of times, was unknown.`\
 https://nytimes.com/2024/07/11/world/europe/france-fire-rouen-cathedral.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/movies/touch-review.html
 **Bruins prospects watch: 3 players who could make the 2024-25 opening roster**\
 `There is opportunity available for a youngster to kick down the door to support the offense. Here are the leading candidates.`\
 https://nytimes.com/athletic/5629250/2024/07/11/bruins-prospects-roster-2024-25/
-
-**‘Sorry/Not Sorry’ Review: Does Louis C.K. Get the Last Laugh?**\
-`Cara Mones and Caroline Suh’s earnest and frustrating documentary, produced by The New York Times, has a bitter punchline.`\
-https://nytimes.com/2024/07/11/movies/sorry-not-sorry-review.html
 
