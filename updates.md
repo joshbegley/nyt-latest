@@ -1,3 +1,15 @@
+**Erik Johnson's return may also be about John Tortorella and Matvei Michkov**\
+`Johnson isn't going to be an every-game contributor, but he should be a crucial role in the locker room.`\
+https://nytimes.com/athletic/5631981/2024/07/11/flyers-johnson-tortorella-michkov/
+
+**Narcissism Is a Trait That’s Hard to Shake, Study Says**\
+`Here’s how to recognize it and cope with the narcissist in your life.`\
+https://nytimes.com/2024/07/11/well/mind/narcissism-age-empathy.html
+
+**What a Linguist Hears When Biden Speaks**\
+`Don’t fixate on a few shaggy phrases. There’s something bigger going on.`\
+https://nytimes.com/2024/07/11/opinion/biden-speaking-linguist.html
+
 **Dylcia Pagan, 77, Dies; Puerto Rican Nationalist Who Spent 19 Years in Prison**\
 `She was among 10 members of the F.A.L.N., a terrorist group, who were convicted on arms and conspiracy charges in 1981. She was granted clemency by President Bill Clinton.`\
 https://nytimes.com/2024/07/11/us/dylcia-pagan-dead.html

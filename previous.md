@@ -1,3 +1,11 @@
+**Erik Johnson's return may also be about John Tortorella and Matvei Michkov**\
+`Johnson isn't going to be an every-game contributor, but he should be a crucial role in the locker room.`\
+https://nytimes.com/athletic/5631981/2024/07/11/flyers-johnson-tortorella-michkov/
+
+**Narcissism Is a Trait That’s Hard to Shake, Study Says**\
+`Here’s how to recognize it and cope with the narcissist in your life.`\
+https://nytimes.com/2024/07/11/well/mind/narcissism-age-empathy.html
+
 **Dylcia Pagan, 77, Dies; Puerto Rican Nationalist Who Spent 19 Years in Prison**\
 `She was among 10 members of the F.A.L.N., a terrorist group, who were convicted on arms and conspiracy charges in 1981. She was granted clemency by President Bill Clinton.`\
 https://nytimes.com/2024/07/11/us/dylcia-pagan-dead.html
@@ -8,7 +16,7 @@ https://nytimes.com/2024/07/11/arts/music/new-york-philharmonic-gary-ginstling.h
 
 **What a Linguist Hears When Biden Speaks**\
 `Don’t fixate on a few shaggy phrases. There’s something bigger going on.`\
-https://nytimes.com/2024/07/11/opinion/what-a-linguist-hears-when-biden-speaks.html
+https://nytimes.com/2024/07/11/opinion/biden-speaking-linguist.html
 
 **Biden Campaign Has Long Fed Softball Questions to Friendly Interviewers**\
 `A review of President Biden’s interviews shows he is often asked the same few questions in interviews. It’s not a coincidence.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5632035/2024/07/11/jose-altuve-all-star-game-replac
 **George Clooney’s Plea to President Biden**\
 `Readers discuss the actor’s guest essay about seeing the president’s decline at a fund-raiser he hosted.`\
 https://nytimes.com/2024/07/11/opinion/letters/joe-biden-george-clooney.html
-
-**World leaders call out Israeli settler violence and West Bank land grabs.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/07/11/world/israel-gaza-war-hamas/world-leaders-call-out-israeli-settler-violence-and-west-bank-land-grabs
-
-**Montauk Fisherman Who Took Too Much Fluke Gets a 30-Month Sentence**\
-`Chris Winkler went to trial after the government accused him of conspiring to sell illicit fish. Prosecutors said they were trying to preserve the bounty of the sea.`\
-https://nytimes.com/2024/07/11/nyregion/montauk-fisherman-fluke-sentencing.html
 
