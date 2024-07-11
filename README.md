@@ -1,3 +1,15 @@
+**Raphael Claus to referee Copa America 2024 final**\
+`The Copa America final between Argentina and Colombia will be officiated by Brazilian referee Raphael Claus.`\
+https://nytimes.com/athletic/5631320/2024/07/11/raphael-claus-referee-copa-america/
+
+**The inflation cool-down was good news for all the right reasons.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/07/11/business/cpi-inflation-fed/the-inflation-cool-down-was-good-news-for-all-the-right-reasons
+
+**Zirkzee set for Man Utd medical on Friday ahead of €42.5m move**\
+`Joshua Zirkzee will undergo a Manchester United medical on Friday ahead of his proposed transfer from Bologna.`\
+https://nytimes.com/athletic/5621824/2024/07/11/joshua-zirkzee-man-utd-transfer/
+
 **A Covid Infection Can Feel Different Every Time**\
 `Cases are rising across the United States. Here’s what to know about how symptoms of an infection can shift.`\
 https://nytimes.com/2024/07/11/well/covid-symptoms-change.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/11/science/mammoth-dna-genetics.html
 **At This Photography Festival, the Camera Points Below the Surface**\
 `There’s always more to a photo than what we see, as shown by standout exhibitions at this year’s Rencontres d’Arles in southern France.`\
 https://nytimes.com/2024/07/11/arts/design/rencontres-d-arles-cophie-calle-coen-friedlander.html
-
-**James Carville’s Plan B for a Democratic Nominee**\
-`Readers discuss his idea for picking an alternative to President Biden and offer suggestions of their own.`\
-https://nytimes.com/2024/07/11/opinion/letters/joe-biden-james-carville.html
-
-**Flash Flooding Leads to Evacuations and Rescues in Central Vermont**\
-`The downpour took place exactly a year after a storm caused devastating flooding in some of the same towns.`\
-https://nytimes.com/2024/07/11/us/vermont-flood.html
-
-**Once a G.O.P. Rallying Cry, Debt and Deficits Fall From the Party’s Platform**\
-`Fiscal hawks are lamenting the transformation of the party that claimed to prize fiscal restraint and are warning of dire economic consequences.`\
-https://nytimes.com/2024/07/11/us/politics/republicans-debt-deficit-platform.html
 
