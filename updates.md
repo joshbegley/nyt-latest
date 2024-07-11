@@ -1,3 +1,11 @@
+**Election Setbacks Leave France’s Far Right at a Crossroads**\
+`The National Rally’s campaign was marred by controversies that undercut its effort to convince voters that it was ready for power. Now, leaders are asking where the party goes from here.`\
+https://nytimes.com/2024/07/11/world/europe/france-far-right-bardella-national-rally.html
+
+**Real Madrid appoint Wicks as new CEO for the Santiago Bernabéu Stadium**\
+`Real Madrid have appointed their former director of sponsorship, retail and licensing, Alex Wicks, as the CEO of the new Santiago Bernabeu Stadium.`\
+https://nytimes.com/athletic/5632237/2024/07/11/real-madrid-appoint-ceo-wicks/
+
 **U.S. Uncovers Russian Plot to Assassinate C.E.O. of German Arms Maker**\
 `The company produces artillery shells and tanks that Ukraine has used in its war against Russia.`\
 https://nytimes.com/2024/07/11/us/politics/russia-assassination-plot-germany.html
