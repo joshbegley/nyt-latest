@@ -1,3 +1,7 @@
+**Uruguay players, Colombia fans clash in stands after Copa America semifinal**\
+`A number of Uruguayan players, including Darwin Nunez, appeared to clash with Colombian fans after the semifinal of Copa America on Wednesday night.`\
+https://nytimes.com/athletic/5630447/2024/07/10/colombia-uruguay-copa-america-darwin-nunez/
+
 **Benji Gregory, Child Star on ‘ALF,’ Dies at 46**\
 `Mr. Gregory was found dead on June 13 in his car, along with his service dog.`\
 https://nytimes.com/2024/07/10/arts/television/benji-gregory-alf-dead.html
