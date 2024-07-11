@@ -1,3 +1,7 @@
+**Costco Raises Membership Fees for First Time in 7 Years**\
+`An increase of more than 8 percent will take effect on Sept. 1. The base membership will go up by $5, to $65 per year.`\
+https://nytimes.com/2024/07/11/business/costco-membership-price-increase.html
+
 **Dorothy Lichtenstein, Philanthropist and a Rare ‘Artist’s Widow,’ Dies at 84**\
 `A gregarious yet humble co-founder of the Roy Lichtenstein Foundation, she donated more than 1,000 of her husband’s works, most notably to the Whitney Museum.`\
 https://nytimes.com/2024/07/11/arts/dorothy-lichtenstein-dead.html
