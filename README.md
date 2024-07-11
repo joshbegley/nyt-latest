@@ -1,3 +1,7 @@
+**Watkins, Palmer, and an England goal that was worth the wait**\
+`England's winning strike against the Netherlands was proof that patience can pay off`\
+https://nytimes.com/athletic/5630246/2024/07/10/ollie-watkins-cole-palmer-england-euro-2024-goal/
+
 **Is the Deion Sanders way working at Colorado? It depends which way you look at it**\
 `Sanders views his 4-8 debut season with the Buffs more favorably than most. “My wins are totally different than your wins," he said.`\
 https://nytimes.com/athletic/5630236/2024/07/10/deion-sanders-colorado-football-big-12-media-days/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/10/opinion/biden-france-uk-elections.html
 **The Messages From Biden That Are Understood, and Not**\
 `A president who long delighted in public speech is now sometimes hard to understand. Does it matter?`\
 https://nytimes.com/2024/07/10/us/politics/biden-speech-articulation.html
-
-**Southgate explains Trippier substitution in England semi-final win**\
-`Gareth Southgate says England &#8220;didn’t want to take any chances&#8221; with Kieran Trippier after he was taken off during their semi-final win over the Netherlands on Wednesday.`\
-https://nytimes.com/athletic/5630134/2024/07/10/kieran-trippier-injury-england/
 
