@@ -1,3 +1,7 @@
+**Homers, speed spark Twins late as they salvage doubleheader, win series over White Sox**\
+`The Twins' streak of consecutive games with a homer stretched to 28 in the doubleheader.`\
+https://nytimes.com/athletic/5630393/2024/07/10/twins-white-sox-double-header-split-brooks-lee/
+
 **Sheepishly Raises Hand**\
 `Mat Shelden takes us for a ride.`\
 https://nytimes.com/2024/07/10/crosswords/daily-puzzle-2024-07-11.html
