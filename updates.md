@@ -1,3 +1,15 @@
+**Newcastle's six key issues after ownership shock - including Howe’s future, Saudi role, women’s team**\
+`The questions Newcastle need to address after Staveley and Ghodoussi announce their departures`\
+https://nytimes.com/athletic/5628851/2024/07/11/staveley-ghodoussi-questions-newcastle-need-to-answer/
+
+**Chelsea under Enzo Maresca: How will they line up defensively?**\
+`The new coach's preferred system will have implications for members of the Chelsea squad deemed integral, when fit, by previous regimes`\
+https://nytimes.com/athletic/5627972/2024/07/11/chelsea-maresca-defence-chilwell-cucurella-james/
+
+**What Manchester United's financial losses mean for their PSR situation**\
+`The Athletic has crunched the numbers on United’s latest set of financial results…`\
+https://nytimes.com/athletic/5629104/2024/07/11/manchester-united-financial-losses-psr-situation-explained/
+
 **Leicester squad audit: De Cordova-Reid, Golding and Okoli in, but plenty out and gaps to fill**\
 `Leicester are a team transformed from when they were last in the Premier League. Here's how they're shaping up...`\
 https://nytimes.com/athletic/5626529/2024/07/11/leicester-squad-audit-2024-25/
