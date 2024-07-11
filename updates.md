@@ -1,3 +1,19 @@
+**Pounding music, thudding bodies, flares and fun - on the march with the orange army**\
+`The Dutch fans descended en masse in Dortmund. The Athletic joined them for a cocktail of noise, colour, flares - and then heartbreak`\
+https://nytimes.com/athletic/5630312/2024/07/11/netherlands-england-dutch-fan-march/
+
+**Aron Kiviharju's 'strong first impression' continues as Wild get to know the player behind the hot-mic intro**\
+`Bill Guerin on Kiviharju and his viral moment: "He’s going to be the biggest steal in the draft. Just for confidence like that, I love it."`\
+https://nytimes.com/athletic/5629874/2024/07/11/wild-aron-kiviharju-biggest-steal-of-draft/
+
+**Is the Bogus Fire for Real? Fire Officials Have a Way With Names.**\
+`Wildfire designations may seem random, but firefighters and dispatchers have their reasons for selecting them.`\
+https://nytimes.com/2024/07/11/us/is-the-bogus-fire-for-real-fire-officials-have-a-way-with-names.html
+
+**How the Netherlands shut down England's midfield advantage - and made Watkins the perfect substitution**\
+`Kobbie Mainoo was key to England's dominance until the Netherlands changed the game. It made one man the perfect answer off the bench`\
+https://nytimes.com/athletic/5630728/2024/07/11/netherlands-england-tactical-analysis/
+
 **Shota Imanaga’s first-half brilliance kept his team relevant. Now the Cubs have to do something about it**\
 `Imanaga continues to keep his team relevant, outdueling Corbin Burnes in Wednesday’s 4-0 win over the Baltimore Orioles.`\
 https://nytimes.com/athletic/5630596/2024/07/11/shota-imanaga-cubs-first-half-mlb-trade-deadline/
