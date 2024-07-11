@@ -1,3 +1,15 @@
+**A Trump Ally Is Training 75 Armed Citizens. Is That a Militia?**\
+`Bruce Blakeman, the Nassau County executive, is recruiting “special deputies” to deploy during disaster or unrest. Opponents say the move is dangerous.`\
+https://nytimes.com/2024/07/11/nyregion/bruce-blakeman-armed-citizens-long-island.html
+
+**Why Menendez’s Meals With Egyptian Officials Worry Security Experts**\
+`The bribery case against Senator Robert Menendez has revealed how foreign intelligence officials cultivated casual access to one of the most powerful Democrats in Washington.`\
+https://nytimes.com/2024/07/11/nyregion/senator-bob-menendez-trial.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/11/crosswords/spelling-bee-forum.html
+
 **The Netherlands' new pain: this wasn't a golden generation, but it was a golden opportunity**\
 `Wednesday's 2-1 defeat by England in the Euro 2024 semi-finals is just the latest painful loss the Netherlands have suffered`\
 https://nytimes.com/athletic/5630372/2024/07/11/netherlands-england-euro-2024-semi-final-golden-opportunity/

@@ -1,3 +1,15 @@
+**A Trump Ally Is Training 75 Armed Citizens. Is That a Militia?**\
+`Bruce Blakeman, the Nassau County executive, is recruiting “special deputies” to deploy during disaster or unrest. Opponents say the move is dangerous.`\
+https://nytimes.com/2024/07/11/nyregion/bruce-blakeman-armed-citizens-long-island.html
+
+**Why Menendez’s Meals With Egyptian Officials Worry Security Experts**\
+`The bribery case against Senator Robert Menendez has revealed how foreign intelligence officials cultivated casual access to one of the most powerful Democrats in Washington.`\
+https://nytimes.com/2024/07/11/nyregion/senator-bob-menendez-trial.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/11/crosswords/spelling-bee-forum.html
+
 **‘The Daily Show’ Ribs Biden Over Democratic Detractors**\
 `“You know you’re in trouble if even Danny Ocean is saying, ‘We can’t pull this one off,’” Desi Lydic joked after George Clooney called for Biden to drop out.`\
 https://nytimes.com/2024/07/11/arts/television/daily-show-biden.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5627972/2024/07/11/chelsea-maresca-defence-chilwell
 **What Manchester United's financial losses mean for their PSR situation**\
 `The Athletic has crunched the numbers on United’s latest set of financial results…`\
 https://nytimes.com/athletic/5629104/2024/07/11/manchester-united-financial-losses-psr-situation-explained/
-
-**Leicester squad audit: De Cordova-Reid, Golding and Okoli in, but plenty out and gaps to fill**\
-`Leicester are a team transformed from when they were last in the Premier League. Here's how they're shaping up...`\
-https://nytimes.com/athletic/5626529/2024/07/11/leicester-squad-audit-2024-25/
-
-**The Phillies' mix-and-match bullpen is thriving. Should they trade for a fifth 'trusted' arm?**\
-`The Phillies trust four of their relievers late in games. They have three weeks to consider whether they need one more high-leverage arm.`\
-https://nytimes.com/athletic/5630538/2024/07/11/phillies-bullpen-trade-deadline-high-leverage-reliever/
-
-**Red Sox pitching has been a difference-maker, but they need to add more at deadline**\
-`The Red Sox's rotation has been surprisingly good, but they could use reinforcements for a second-half playoff push.`\
-https://nytimes.com/athletic/5630536/2024/07/11/red-sox-trade-deadline-pitching-needs/
 
