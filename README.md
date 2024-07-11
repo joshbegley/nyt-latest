@@ -1,3 +1,27 @@
+**Shelley Duvall, Star of ‘The Shining’ and ‘Nashville,’ Dies at 75**\
+`Her lithesome features and quirky screen presence made her a popular figure in 1970s movies, particularly Robert Altman’s.`\
+https://nytimes.com/2024/07/11/arts/shelley-duvall-dead.html
+
+**Can Movies for Grown-Ups Still Sell Tickets? ‘Fly Me to the Moon’ Is a Test.**\
+`Directed by Greg Berlanti, the film amounts to a Hollywood experiment: Is there still room at the multiplexes for original movies aimed at grown-ups.`\
+https://nytimes.com/2024/07/11/business/media/fly-me-to-the-moon-greg-berlanti.html
+
+**Titans agree to deal with Jamal Adams**\
+`Adams, 28, has only played in 10 games the past two seasons with Seattle.`\
+https://nytimes.com/athletic/5631489/2024/07/11/jamal-adams-titans-contract/
+
+**Gaza City residents say they won’t leave, despite warnings from the Israeli military.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/07/11/world/israel-gaza-war-hamas/gaza-city-residents-say-they-wont-leave-despite-warnings-from-the-israeli-military
+
+**Cue the Christmas Music: Hallmark Is Finally Joining the Streaming Fray**\
+`Hallmark+, which arrives in September, will include free greeting cards and a “Hallmark Hunk” competition show.`\
+https://nytimes.com/2024/07/11/business/hallmark-plus-streaming.html
+
+**Why Trump Supporters Keep Avoiding Convictions on Election Charges**\
+`Frustrated prosecutors and alarmed election officials are finding that it’s not always easy to make charges stick for those who interfere with elections, including many of the Capitol rioters.`\
+https://nytimes.com/2024/07/11/us/politics/trump-2020-election-convictions.html
+
 **Until Saturday: Big 12 (and Pac-12?) media days takeaways, EA's player No. 100**\
 `Welcome to the Until Saturday, the five-star college football newsletter. `\
 https://nytimes.com/athletic/5631535/2024/07/11/big-12-media-days-college-football-until-saturday/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5631403/2024/07/11/jasmine-paolini-wimbledon-semifi
 **Van de Beek completes Girona move**\
 `Donny van de Beek has completed his move to Girona from Manchester United.`\
 https://nytimes.com/athletic/5621551/2024/07/11/man-utd-donny-van-de-beek-girona/
-
-**The Windup: MLB Draft has so many potential No. 1s**\
-`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
-https://nytimes.com/athletic/5631445/2024/07/11/mlb-draft-cleveland-bazzana-condon-oakland-ownership-the-windup/
-
-**The Biden Campaign Gets Petty With George Clooney**\
-`Suggesting that the president has more stamina than Clooney was cringeworthy.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/george-clooney-biden-response
-
-**Ten thoughts on Sabres offseason: Trading Matt Savoie, betting on Lindy Ruff and more**\
-`Two weeks into the NHL offseason, we now have a much better idea of what the 2024-25 Sabres will look like. `\
-https://nytimes.com/athletic/5631171/2024/07/11/sabres-offseason-trade-matt-savoie-lindy-ruff/
-
-**Raphael Claus to referee Copa America 2024 final**\
-`The Copa America final between Argentina and Colombia will be officiated by Brazilian referee Raphael Claus.`\
-https://nytimes.com/athletic/5631320/2024/07/11/raphael-claus-referee-copa-america/
-
-**The inflation cool-down was good news for all the right reasons.**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/07/11/business/cpi-inflation-fed/the-inflation-cool-down-was-good-news-for-all-the-right-reasons
-
-**Zirkzee set for Man Utd medical on Friday ahead of €42.5m move**\
-`Joshua Zirkzee will undergo a Manchester United medical on Friday ahead of his proposed transfer from Bologna.`\
-https://nytimes.com/athletic/5621824/2024/07/11/joshua-zirkzee-man-utd-transfer/
 
