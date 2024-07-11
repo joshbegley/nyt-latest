@@ -1,3 +1,7 @@
+**Where all 30 teams stand on MLB trade deadline moves heading into the All-Star break**\
+`How is each team approaching the deadline? What needs are they focused on filling? What players could they trade away or look to acquire?`\
+https://nytimes.com/athletic/5628988/2024/07/11/mlb-trade-deadline-latest-30-teams-all-star-break/
+
 **Timberwolves offseason changes have been geared toward jump-starting their offense**\
 `"Going into next season, we’ve got to play faster," Timberwolves coach Chris Finch said.`\
 https://nytimes.com/athletic/5623126/2024/07/11/timberwolves-offseason-changes-offense/
