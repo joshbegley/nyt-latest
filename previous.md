@@ -1,3 +1,11 @@
+**A Covid Infection Can Feel Different Every Time**\
+`Cases are rising across the United States. Here’s what to know about how symptoms of an infection can shift.`\
+https://nytimes.com/2024/07/11/well/covid-symptoms-change.html
+
+**Van Nistelrooy, Hake join Ten Hag's Man Utd coaching staff**\
+`Ruud van Nistelrooy and Rene Hake have joined Erik ten Hag&#8217;s coaching staff at Manchester United, with Mitchell van der Gaag and Benni McCarthy leaving the club.`\
+https://nytimes.com/athletic/5577902/2024/07/11/van-nistelrooy-hake-manchester-united/
+
 **As Changes Roil the Publishing Industry, Reagan Arthur Returns to Hachette**\
 `Arthur, the former publisher of Knopf, is joining Hachette Book Group to start and run a new imprint.`\
 https://nytimes.com/2024/07/11/books/reagan-arthur-hachette.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/11/us/vermont-flood.html
 **Once a G.O.P. Rallying Cry, Debt and Deficits Fall From the Party’s Platform**\
 `Fiscal hawks are lamenting the transformation of the party that claimed to prize fiscal restraint and are warning of dire economic consequences.`\
 https://nytimes.com/2024/07/11/us/politics/republicans-debt-deficit-platform.html
-
-**Reclaiming Singapore’s Credit for Success: Removing Colonialist Statues**\
-`We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Emma Wang, age 15.`\
-https://nytimes.com/2024/07/11/learning/reclaiming-singapores-credit-for-success-removing-colonialist-statues.html
-
-**Germany to Strip Huawei From Its 5G Networks**\
-`Major telecom companies agreed to stop using critical components made by Chinese companies in their mobile infrastructure by 2029.`\
-https://nytimes.com/2024/07/11/business/huawei-germany-ban.html
 

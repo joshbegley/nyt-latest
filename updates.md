@@ -1,3 +1,11 @@
+**A Covid Infection Can Feel Different Every Time**\
+`Cases are rising across the United States. Here’s what to know about how symptoms of an infection can shift.`\
+https://nytimes.com/2024/07/11/well/covid-symptoms-change.html
+
+**Van Nistelrooy, Hake join Ten Hag's Man Utd coaching staff**\
+`Ruud van Nistelrooy and Rene Hake have joined Erik ten Hag&#8217;s coaching staff at Manchester United, with Mitchell van der Gaag and Benni McCarthy leaving the club.`\
+https://nytimes.com/athletic/5577902/2024/07/11/van-nistelrooy-hake-manchester-united/
+
 **As Changes Roil the Publishing Industry, Reagan Arthur Returns to Hachette**\
 `Arthur, the former publisher of Knopf, is joining Hachette Book Group to start and run a new imprint.`\
 https://nytimes.com/2024/07/11/books/reagan-arthur-hachette.html
