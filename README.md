@@ -1,3 +1,7 @@
+**Why Mercedes feels it's re-emerged as F1 contender following Lewis Hamilton's win**\
+`Stay informed on all the biggest stories in Formula One.`\
+https://nytimes.com/athletic/5630135/2024/07/11/f1-mercedes-lewis-hamilton-george-russell/
+
 **USMNT, Canada and Mexico: How the 2026 World Cup hosts fared at Copa America**\
 `Among the three co-hosts for 2026 there was one standout (and surprise) winner at this tournament`\
 https://nytimes.com/athletic/5629774/2024/07/11/usmnt-canada-mexico-copa-america/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5630562/2024/07/11/team-usa-canada-exhibition-olymp
 **Newcastle's six key issues after ownership shock - including Howe’s future, Saudi role, women’s team**\
 `The questions Newcastle need to address after Staveley and Ghodoussi announce their departures`\
 https://nytimes.com/athletic/5628851/2024/07/11/staveley-ghodoussi-questions-newcastle-need-to-answer/
-
-**Chelsea under Enzo Maresca: How will they line up defensively?**\
-`The new coach's preferred system will have implications for members of the Chelsea squad deemed integral, when fit, by previous regimes`\
-https://nytimes.com/athletic/5627972/2024/07/11/chelsea-maresca-defence-chilwell-cucurella-james/
 
