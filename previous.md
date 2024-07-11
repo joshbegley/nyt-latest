@@ -1,3 +1,7 @@
+**Jrue Holiday makes strong impression in Team USA's Olympic tune-up vs. Canada**\
+`Steve Kerr's first starting lineup combination was interesting, with Jrue Holiday stepping in and making a strong first impression.`\
+https://nytimes.com/athletic/5630711/2024/07/11/jrue-holiday-team-usa-olympics-canada/
+
 **The Pulse: USMNT's most critical decision ever**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5630457/2024/07/11/gregg-berhalter-fired-usmnt-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/world/asia/china-cooking-oil.html
 **NATO Condemns China, and 1.3 Million Swelter Without Power in Houston**\
 `Plus, Paris removes homeless people ahead of the Olympics.`\
 https://nytimes.com/2024/07/11/podcasts/nato-china-houston-heat.html
-
-**Lindsey Horan looks to lead USWNT at Paris Olympics with authenticity**\
-`What to expect from Horan as she takes on the role of captain without Alex Morgan`\
-https://nytimes.com/athletic/5630187/2024/07/11/uswnt-soccer-lindsey-horan-olympics-paris/
 
