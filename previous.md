@@ -1,3 +1,23 @@
+**Thursday Briefing**\
+`A major declaration by NATO.`\
+https://nytimes.com/2024/07/11/briefing/nato-china-biden-macron.html
+
+**Bold Experiment or Safety Risk? Canada Is Divided on How to Stop Drug Deaths.**\
+`British Columbia’s partial retreat from an experiment to decriminalize drug possession reveals a political shift in Canada over combating the opioid crisis.`\
+https://nytimes.com/2024/07/11/world/canada/canada-opioid-crisis-decriminalization.html
+
+**Thursday's MLB projections: Best starting pitchers, playoff odds, props and more**\
+`Projections for Thursday's MLB games with expert picks for best bets, pitcher props, home run trends and more.`\
+https://nytimes.com/athletic/5627266/2024/07/11/mlb-odds-predictions-best-bets-july-11/
+
+**How Democrats Will Choose a Nominee**\
+`Here is the party’s process for naming a candidate between now and Election Day, whether it is President Biden or someone else.`\
+https://nytimes.com/interactive/2024/07/11/us/politics/2024-election-biden-democratic-nominee.html
+
+**France Is Busing Homeless Immigrants Out of Paris Before the Olympics**\
+`The government promised housing elsewhere. We followed the buses and found a desperate situation.`\
+https://nytimes.com/2024/07/11/world/europe/france-is-busing-homeless-immigrants-out-of-paris-before-the-olympics.html
+
 **Could the Yankees' latest bargain-bin pickup Tim Hill be another success story?**\
 `Hill was released by the lowly White Sox in mid-June. Since then, he has impressed in several outings for the Yankees. `\
 https://nytimes.com/athletic/5630513/2024/07/10/yankees-tim-hill-rays-strikeout-success/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/07/10/arts/television/benji-gregory-alf-dead.html
 **Uruguay players, Colombia fans clash in stands after Copa America semifinal**\
 `A number of Uruguayan players, including Darwin Nunez, appeared to clash with Colombian fans after the semifinal of Copa America on Wednesday night.`\
 https://nytimes.com/athletic/5630447/2024/07/10/colombia-uruguay-copa-america-darwin-nunez/
-
-**Corrections: July 11, 2024**\
-`Corrections that appeared in print on Thursday, July 11, 2024.`\
-https://nytimes.com/2024/07/10/pageoneplus/corrections-july-11-2024.html
-
-**Quotation of the Day: Swizz Beatz, Camel Races With Robot Jockeys, and the Prince**\
-`Quotation of the Day for Thursday, July 11, 2024.`\
-https://nytimes.com/2024/07/10/pageoneplus/quotation-of-the-day-swizz-beatz-camel-races-with-robot-jockeys-and-the-prince.html
-
-**Homers, speed spark Twins late as they salvage doubleheader, win series over White Sox**\
-`The Twins' streak of consecutive games with a homer stretched to 28 in the doubleheader.`\
-https://nytimes.com/athletic/5630393/2024/07/10/twins-white-sox-double-header-split-brooks-lee/
-
-**Sheepishly Raises Hand**\
-`Mat Shelden takes us for a ride.`\
-https://nytimes.com/2024/07/10/crosswords/daily-puzzle-2024-07-11.html
-
-**Uruguay 0-1 Colombia: Takeaways as Colombia book a place in the final against Argentina**\
-`All the talking points from an absorbing semifinal `\
-https://nytimes.com/athletic/5630256/2024/07/10/uruguay-colombia-result-argentina-semifinal/
 

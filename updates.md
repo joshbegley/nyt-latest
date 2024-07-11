@@ -1,3 +1,23 @@
+**Thursday Briefing**\
+`A major declaration by NATO.`\
+https://nytimes.com/2024/07/11/briefing/nato-china-biden-macron.html
+
+**Bold Experiment or Safety Risk? Canada Is Divided on How to Stop Drug Deaths.**\
+`British Columbia’s partial retreat from an experiment to decriminalize drug possession reveals a political shift in Canada over combating the opioid crisis.`\
+https://nytimes.com/2024/07/11/world/canada/canada-opioid-crisis-decriminalization.html
+
+**Thursday's MLB projections: Best starting pitchers, playoff odds, props and more**\
+`Projections for Thursday's MLB games with expert picks for best bets, pitcher props, home run trends and more.`\
+https://nytimes.com/athletic/5627266/2024/07/11/mlb-odds-predictions-best-bets-july-11/
+
+**How Democrats Will Choose a Nominee**\
+`Here is the party’s process for naming a candidate between now and Election Day, whether it is President Biden or someone else.`\
+https://nytimes.com/interactive/2024/07/11/us/politics/2024-election-biden-democratic-nominee.html
+
+**France Is Busing Homeless Immigrants Out of Paris Before the Olympics**\
+`The government promised housing elsewhere. We followed the buses and found a desperate situation.`\
+https://nytimes.com/2024/07/11/world/europe/france-is-busing-homeless-immigrants-out-of-paris-before-the-olympics.html
+
 **Could the Yankees' latest bargain-bin pickup Tim Hill be another success story?**\
 `Hill was released by the lowly White Sox in mid-June. Since then, he has impressed in several outings for the Yankees. `\
 https://nytimes.com/athletic/5630513/2024/07/10/yankees-tim-hill-rays-strikeout-success/
