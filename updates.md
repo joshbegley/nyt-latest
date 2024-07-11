@@ -1,3 +1,19 @@
+**Ten thoughts on Sabres offseason: Trading Matt Savoie, betting on Lindy Ruff and more**\
+`Two weeks into the NHL offseason, we now have a much better idea of what the 2024-25 Sabres will look like. `\
+https://nytimes.com/athletic/5631171/2024/07/11/sabres-offseason-trade-matt-savoie-lindy-ruff/
+
+**Raphael Claus to referee Copa America 2024 final**\
+`The Copa America final between Argentina and Colombia will be officiated by Brazilian referee Raphael Claus.`\
+https://nytimes.com/athletic/5631320/2024/07/11/raphael-claus-referee-copa-america/
+
+**The inflation cool-down was good news for all the right reasons.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/07/11/business/cpi-inflation-fed/the-inflation-cool-down-was-good-news-for-all-the-right-reasons
+
+**Zirkzee set for Man Utd medical on Friday ahead of €42.5m move**\
+`Joshua Zirkzee will undergo a Manchester United medical on Friday ahead of his proposed transfer from Bologna.`\
+https://nytimes.com/athletic/5621824/2024/07/11/joshua-zirkzee-man-utd-transfer/
+
 **A Covid Infection Can Feel Different Every Time**\
 `Cases are rising across the United States. Here’s what to know about how symptoms of an infection can shift.`\
 https://nytimes.com/2024/07/11/well/covid-symptoms-change.html
