@@ -1,3 +1,11 @@
+**Investing in Employee Well-being, One Benefit at a Time**\
+`How businesses can gain a competitive edge with modern group benefits.`\
+https://nytimes.com/paidpost/humana/investing-in-employee-well-being-one-benefit-at-a-time.html
+
+**Shelley Duvall: A Life in Pictures**\
+`With her gossamer frame and toothy smile, she was one of the biggest film stars of the 1970s.`\
+https://nytimes.com/2024/07/11/arts/shelley-duvall-photos.html
+
 **Trump’s Team Plans to Go After Kamala Harris at Republican Convention**\
 `His advisers are eager to define the vice president and drive down her approval ratings in case President Biden drops out of the race and she becomes the nominee.`\
 https://nytimes.com/2024/07/11/us/politics/trump-kamala-harris-attacks.html

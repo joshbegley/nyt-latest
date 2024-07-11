@@ -1,3 +1,11 @@
+**Investing in Employee Well-being, One Benefit at a Time**\
+`How businesses can gain a competitive edge with modern group benefits.`\
+https://nytimes.com/paidpost/humana/investing-in-employee-well-being-one-benefit-at-a-time.html
+
+**Shelley Duvall: A Life in Pictures**\
+`With her gossamer frame and toothy smile, she was one of the biggest film stars of the 1970s.`\
+https://nytimes.com/2024/07/11/arts/shelley-duvall-photos.html
+
 **Trump’s Team Plans to Go After Kamala Harris at Republican Convention**\
 `His advisers are eager to define the vice president and drive down her approval ratings in case President Biden drops out of the race and she becomes the nominee.`\
 https://nytimes.com/2024/07/11/us/politics/trump-kamala-harris-attacks.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/11/us/biden-news-trump-election/democratic-sena
 **Milwaukee’s Mayor, No Fan of Trump, Is Thrilled to Host His Party**\
 `Cavalier Johnson, the Democratic mayor of Milwaukee, was one of the biggest cheerleaders for holding the Republican National Convention in the city.`\
 https://nytimes.com/2024/07/11/us/milwaukee-cavalier-johnson-trump.html
-
-**Shelley Duvall in ‘The Shining’: A Perfect Gothic Heroine Had a Deep Well of Strength**\
-`Her performance was perhaps misunderstood at the time, just as the narrative surrounding her life would be later.`\
-https://nytimes.com/2024/07/11/movies/shelley-duvall-the-shining.html
-
-**Houston Hospitals Overwhelmed Amid Power Outages and Heat Wave**\
-`Extreme heat in Texas has led officials to build a temporary field hospital in Houston after Hurricane Beryl left millions without power and no air conditioning.`\
-https://nytimes.com/video/us/100000009566250/heat-power-outage-houston.html
 
