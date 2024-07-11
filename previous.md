@@ -1,3 +1,7 @@
+**How a Teamster Leader’s Flirtations With Trump Have Divided the Union**\
+`The Teamsters’ president, Sean O’Brien, will address the Republican convention next week in Milwaukee, just when President Biden needs unified support from organized labor.`\
+https://nytimes.com/2024/07/11/us/politics/teamsters-trump-biden.html
+
 **In New York, Protesting the Backers of Big Oil With Die-Ins, Drums and Song**\
 `Amid soaring temperatures, hundreds of activists are staging boisterous blockades and solemn marches at banks and insurers that support fossil fuel projects.`\
 https://nytimes.com/2024/07/11/climate/citibank-protests-climate-fossil-fuel-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/world/africa/kenya-president-cabinet-protests.htm
 **Housing costs, long stubborn, show signs of easing.**\
 `By Ben Casselman`\
 https://nytimes.com/live/2024/07/11/business/cpi-inflation-fed/housing-costs-long-stubborn-show-signs-of-easing
-
-**Oakland Ballers fans can buy ownership shares**\
-`The announcement opened the official “testing the waters” phase of the crowdfunding process.`\
-https://nytimes.com/athletic/5630281/2024/07/11/oakland-ballers-crowd-funding-effort-fans-ownership/
 
