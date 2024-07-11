@@ -1,3 +1,7 @@
+**Bayern Munich complete Palhinha signing from Fulham**\
+`Bayern Munich have completed the signing of midfielder Joao Palhinha from Fulham.`\
+https://nytimes.com/athletic/5615998/2024/07/11/joao-palhinha-bayern-munich-transfer/
+
 **Why Mercedes feels it's re-emerged as F1 contender following Lewis Hamilton's win**\
 `Stay informed on all the biggest stories in Formula One.`\
 https://nytimes.com/athletic/5630135/2024/07/11/f1-mercedes-lewis-hamilton-george-russell/

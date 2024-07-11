@@ -1,3 +1,7 @@
+**Bayern Munich complete Palhinha signing from Fulham**\
+`Bayern Munich have completed the signing of midfielder Joao Palhinha from Fulham.`\
+https://nytimes.com/athletic/5615998/2024/07/11/joao-palhinha-bayern-munich-transfer/
+
 **Why Mercedes feels it's re-emerged as F1 contender following Lewis Hamilton's win**\
 `Stay informed on all the biggest stories in Formula One.`\
 https://nytimes.com/athletic/5630135/2024/07/11/f1-mercedes-lewis-hamilton-george-russell/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5630276/2024/07/11/england-euros-final-netherlands/
 **Team USA finds rhythm in win vs. Canada: Takeaways**\
 `Anthony Davis produced what could be his first of many double-doubles with 10 points and 11 boards.`\
 https://nytimes.com/athletic/5630562/2024/07/11/team-usa-canada-exhibition-olympics/
-
-**Newcastle's six key issues after ownership shock - including Howe’s future, Saudi role, women’s team**\
-`The questions Newcastle need to address after Staveley and Ghodoussi announce their departures`\
-https://nytimes.com/athletic/5628851/2024/07/11/staveley-ghodoussi-questions-newcastle-need-to-answer/
 
