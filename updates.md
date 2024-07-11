@@ -1,3 +1,11 @@
+**Georgia has 2 players arrested on reckless driving charges**\
+`The Georgia athletic department declined to comment Thursday but expects to address the incidents at SEC media days next week in Dallas.`\
+https://nytimes.com/athletic/5631943/2024/07/11/georgia-reckless-driving-charges-smael-mondon/
+
+**Chris Kirchner sentenced to 20 years for fraud**\
+`The FBI arrested Kirchner on Valentine's Day 2023, issuing charges of wire fraud.`\
+https://nytimes.com/athletic/5630588/2024/07/11/chris-kirchner-sentece-fraud/
+
 **Twins super utilityman Willi Castro named to AL All-Star team as replacement**\
 `This is the first All-Star nod for Castro, who is hitting .268/.354/.430 with 22 doubles, seven home runs, 31 RBIs and 10 stolen bases. `\
 https://nytimes.com/athletic/5631926/2024/07/11/willi-castro-al-all-star-team-twins/
