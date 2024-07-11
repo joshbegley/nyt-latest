@@ -1,3 +1,7 @@
+**A ‘Simpsons’ Joke Comes True for Cypress Hill**\
+`The famed California hip-hop group played with the London Symphony Orchestra — 28 years after “The Simpsons” dreamed up the collaboration.`\
+https://nytimes.com/2024/07/11/arts/music/cypress-hill-simpsons-london-joke.html
+
 **Cincinnati Reds MLB draft preview: Which player is the team eyeing for the No. 2 pick?**\
 `In the end, the Guardians will take away one option — but the second choice won't be one that the team is unhappy with.`\
 https://nytimes.com/athletic/5630607/2024/07/11/reds-mlb-draft-preview/

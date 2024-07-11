@@ -15,7 +15,7 @@ https://nytimes.com/2024/07/11/us/las-vegas-heat-houston-power.html
 https://nytimes.com/2024/07/11/us/politics/house-fine-garland-biden-contempt.html
 
 **A ‘Simpsons’ Joke Comes True for Cypress Hill**\
-`The famed California hip-hop group played with the London Symphony Orchestra — 28 years after The Simpsons dreamed up the collaboration.`\
+`The famed California hip-hop group played with the London Symphony Orchestra — 28 years after “The Simpsons” dreamed up the collaboration.`\
 https://nytimes.com/2024/07/11/arts/music/cypress-hill-simpsons-london-joke.html
 
 **The Embattled Biden Campaign Tests Kamala Harris’s Strength vs. Trump**\
