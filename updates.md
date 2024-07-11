@@ -1,3 +1,11 @@
+**The Windup: MLB Draft has so many potential No. 1s**\
+`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
+https://nytimes.com/athletic/5631445/2024/07/11/mlb-draft-cleveland-bazzana-condon-oakland-ownership-the-windup/
+
+**The Biden Campaign Gets Petty With George Clooney**\
+`Suggesting that the president has more stamina than Clooney was cringeworthy.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/george-clooney-biden-response
+
 **Ten thoughts on Sabres offseason: Trading Matt Savoie, betting on Lindy Ruff and more**\
 `Two weeks into the NHL offseason, we now have a much better idea of what the 2024-25 Sabres will look like. `\
 https://nytimes.com/athletic/5631171/2024/07/11/sabres-offseason-trade-matt-savoie-lindy-ruff/
