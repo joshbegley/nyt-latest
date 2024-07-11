@@ -1,3 +1,15 @@
+**Bill Belichick joining panel for CW's 'Inside the NFL'**\
+`Belichick will join former NFL players Ryan Clark, Chad Johnson and Chris Long for the show's weekly panel.`\
+https://nytimes.com/athletic/5631635/2024/07/11/bill-belichick-inside-the-nfl-show/
+
+**Some Biden Advisers Are Discussing How to Convince Him to Step Aside**\
+`Close allies of the president are developing a case for why he should end his re-election campaign, though it is not clear that the discussions have reached him.`\
+https://nytimes.com/2024/07/11/us/politics/biden-aides-campaign.html
+
+**The Bounce: NBA prospect hype is so back**\
+`Zach Harper and Shams Charania catch you up on league-wide news.`\
+https://nytimes.com/athletic/5631128/2024/07/11/cooper-flagg-team-usa-nba-draft-kawhi-leonard-olympics-the-bounce/
+
 **A ‘Simpsons’ Joke Comes True for Cypress Hill**\
 `The famed California hip-hop group played with the London Symphony Orchestra — 28 years after “The Simpsons” dreamed up the collaboration.`\
 https://nytimes.com/2024/07/11/arts/music/cypress-hill-simpsons-london-joke.html

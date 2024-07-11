@@ -1,3 +1,15 @@
+**Bill Belichick joining panel for CW's 'Inside the NFL'**\
+`Belichick will join former NFL players Ryan Clark, Chad Johnson and Chris Long for the show's weekly panel.`\
+https://nytimes.com/athletic/5631635/2024/07/11/bill-belichick-inside-the-nfl-show/
+
+**Some Biden Advisers Are Discussing How to Convince Him to Step Aside**\
+`Close allies of the president are developing a case for why he should end his re-election campaign, though it is not clear that the discussions have reached him.`\
+https://nytimes.com/2024/07/11/us/politics/biden-aides-campaign.html
+
+**The Bounce: NBA prospect hype is so back**\
+`Zach Harper and Shams Charania catch you up on league-wide news.`\
+https://nytimes.com/athletic/5631128/2024/07/11/cooper-flagg-team-usa-nba-draft-kawhi-leonard-olympics-the-bounce/
+
 **Cincinnati Reds MLB draft preview: Which player is the team eyeing for the No. 2 pick?**\
 `In the end, the Guardians will take away one option — but the second choice won't be one that the team is unhappy with.`\
 https://nytimes.com/athletic/5630607/2024/07/11/reds-mlb-draft-preview/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/11/us/politics/biden-kamala-harris-poll-trump.html
 **Klopp rebuffs approach to coach USMNT**\
 `The German left Liverpool in May, citing 'running out of energy'`\
 https://nytimes.com/athletic/5630946/2024/07/11/jurgen-klopp-usmnt-next-coach-rejected/
-
-**Witnessing the rise of England hero Ollie Watkins - 'I walked off saying, 'He was too good for me'**\
-`Watkins has become one of the most potent forwards in Europe – The Athletic asked those who tried to stop him in his tracks what it's like`\
-https://nytimes.com/athletic/5561802/2024/07/11/england-hero-ollie-watkins-aston-villa/
-
-**When Fighting Disinformation, Even the Best Tools Are Not Enough**\
-`Researchers have learned plenty about misinformation and how it spreads. But they’re still struggling to figure out how to stop it.`\
-https://nytimes.com/2024/07/11/technology/disinformation-tools.html
-
-**Spain's Euro 2012 winners and Euro 2024 finalists: Who makes the cut in a best XI?**\
-`Who makes our combined XI from Spain's Euro 2012 winners and their finalists who will face England for the title on Sunday?`\
-https://nytimes.com/athletic/5630985/2024/07/11/spain-euro-2024-england-final-line-ups-2012/
 
