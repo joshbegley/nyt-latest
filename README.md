@@ -1,7 +1,3 @@
-**Hattie Wiener, Sex-Positive ‘Oldest Cougar,’ Dies at 88**\
-`She was an evangelist for older women having sex with younger men, and the health benefits that she said came with it.`\
-https://nytimes.com/2024/07/11/style/hattie-wiener-dead.html
-
 **Russia Places Navalny’s Widow on Extremist List**\
 `The Russian agency tasked with combating terrorism financing added Yulia Navalnaya to its registry.`\
 https://nytimes.com/2024/07/11/world/europe/russia-yulia-navalnaya-extremist-list.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/07/11/business/snack-food-prices-pepsico.html
 **Former Police Officer Convicted of Punching Man and Breaking His Nose**\
 `The officer, Juan Perez, faces up to 364 days in jail for assault. The victim, who later killed himself in Kosovo, had been throwing water at passers-by.`\
 https://nytimes.com/2024/07/11/nyregion/nypd-officer-conviction-assault.html
+
+**Fraud Case Against Rich Exile Who Riled Beijing Goes to Jury**\
+`Guo Wengui fled China and allied with the American right in a quixotic quest to end Communist rule. U.S. prosecutors say he stole over $1 billion from his followers.`\
+https://nytimes.com/2024/07/11/us/guo-wengui-fraud-trial-china.html
 
