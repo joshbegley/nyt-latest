@@ -1,3 +1,7 @@
+**A Hurricane Divide in Houston: Who Has a Generator?**\
+`In the prolonged power outage after Hurricane Beryl, many well-to-do neighborhoods are humming with generators. Other residents are struggling to afford — or even find — one.`\
+https://nytimes.com/2024/07/11/us/houston-beryl-power-generators.html
+
 **How Biden Lost George Clooney and Hollywood**\
 `The president’s stable of big donors, corralled in part by the movie mogul Jeffrey Katzenberg, has been devastated since his debate, with many closing their wallets.`\
 https://nytimes.com/2024/07/11/us/politics/biden-george-clooney-hollywood.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/business/costco-membership-price-increase.html
 **Dorothy Lichtenstein, Philanthropist and a Rare ‘Artist’s Widow,’ Dies at 84**\
 `A gregarious yet humble co-founder of the Roy Lichtenstein Foundation, she donated more than 1,000 of her husband’s works, most notably to the Whitney Museum.`\
 https://nytimes.com/2024/07/11/arts/dorothy-lichtenstein-dead.html
-
-**6 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/07/11/books/review/new-books-recommendations.html
 
