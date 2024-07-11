@@ -1,3 +1,15 @@
+**Twins super utilityman Willi Castro named to AL All-Star team as replacement**\
+`This is the first All-Star nod for Castro, who is hitting .268/.354/.430 with 22 doubles, seven home runs, 31 RBIs and 10 stolen bases. `\
+https://nytimes.com/athletic/5631926/2024/07/11/willi-castro-al-all-star-team-twins/
+
+**'I couldn't miss Spain': Carlos Alcaraz's relationship with La Roja goes beyond final dreams**\
+`Carlos Alcaraz is on the cusp of joining Spain's men's football team in a final on Sunday. Their relationship is deeper than symmetry`\
+https://nytimes.com/athletic/5630953/2024/07/11/carlos-alcaraz-wimbledon-spain-football-european-championship/
+
+**Early Humans Left Africa Much Earlier Than Previously Thought**\
+`Scientists have found evidence of several waves of migration by looking at the genetic signatures of human interbreeding with Neanderthals.`\
+https://nytimes.com/2024/07/11/science/humans-neanderthals-out-of-africa.html
+
 **A Beautiful Inflation Report**\
 `And a vindication for Bidenomics.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/krugman-inflation-report-bidenomics
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/11/us/utah-supreme-court-gerrymandering.html
 **Fighting Isn’t the Only Killer of Gazans Amid the War, Researchers Say**\
 `A letter in a major medical journal has prompted a discussion about the importance, and difficulty, of tallying those killed as an indirect result of the conflict between Israel and Hamas.`\
 https://nytimes.com/2024/07/11/world/middleeast/gaza-war-death-toll-lancet.html
-
-**Tigers will move Kenta Maeda to the bullpen: 'It begins and ends with his command'**\
-`“We can’t have a pitcher on our team that you’re not gonna pitch,” A.J. Hinch said. “I’m gonna use him like a normal reliever."`\
-https://nytimes.com/athletic/5631690/2024/07/11/tigers-kenta-maeda-bullpen/
-
-**‘Inside Out 2’ Is Now Pixar’s Biggest Movie Ever**\
-`The animated film about a young teenage girl and her complex emotions has passed the $1.25 billion mark globally and is expected to keep growing.`\
-https://nytimes.com/2024/07/11/movies/inside-out-2-pixar-box-office.html
-
-**Bournemouth's Rothwell to undergo medical ahead of Leeds loan move**\
-`Bournemouth midfielder Joe Rothwell is set to undergo a medical ahead of a season-long loan move to Leeds United.`\
-https://nytimes.com/athletic/5631860/2024/07/11/bournemouth-leeds-rothwell-loan-transfer/
 
