@@ -1,3 +1,11 @@
+**Toronto FC president Bill Manning parting ways with MLSE**\
+`Manning has long played more of a role in the club’s sporting direction than many other presidents of MLS clubs.`\
+https://nytimes.com/athletic/5631714/2024/07/11/toronto-fc-bill-manning-president-parting-ways/
+
+**We Made You a Tomato Meal Plan**\
+`By Tanya Sichynsky`\
+https://nytimes.com/2024/07/11/dining/how-to-use-your-summer-tomatoes.html
+
 **Concerned About Metals in Tampons? Here’s What to Know.**\
 `A recent study detected a number of metals in many types of tampons. Experts weigh in on the findings and what they could mean for your health.`\
 https://nytimes.com/2024/07/11/well/tampons-arsenic-lead-heavy-metals-toxic.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5630607/2024/07/11/reds-mlb-draft-preview/
 **U.S. Will Allow Delivery of 500-pound Bombs to Israel, an Official Says**\
 `The bombs had been part of a shipment that President Biden withheld out of concerns over civilian deaths in Gaza.`\
 https://nytimes.com/2024/07/11/world/middleeast/us-israel-bombs.html
-
-**Las Vegas Heat Breaks Records and Stuns Even the Forecasters**\
-`A brutal heat wave that has gripped the West for days will shift eastward on the weekend, while much of sweltering Houston still lacks electricity.`\
-https://nytimes.com/2024/07/11/us/las-vegas-heat-houston-power.html
-
-**House Defeats Measure to Fine Garland Over Refusal to Share Biden Audio**\
-`Four Republicans opposed the bid to fine the attorney general $10,000 a day for his refusal to comply with a congressional subpoena for recordings of the president’s interview with a special counsel.`\
-https://nytimes.com/2024/07/11/us/politics/house-fine-garland-biden-contempt.html
 
