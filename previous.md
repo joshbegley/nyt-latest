@@ -1,3 +1,7 @@
+**Housing costs, long stubborn, show signs of easing.**\
+`By Ben Casselman`\
+https://nytimes.com/live/2024/07/11/business/cpi-inflation-fed/housing-costs-long-stubborn-show-signs-of-easing
+
 **Oakland Ballers fans can buy ownership shares**\
 `The announcement opened the official “testing the waters” phase of the crowdfunding process.`\
 https://nytimes.com/athletic/5630281/2024/07/11/oakland-ballers-crowd-funding-effort-fans-ownership/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5631082/2024/07/11/mike-leach-college-football-hall
 **Apple Settles E.U. Case by Opening Its Payment Service to Rivals**\
 `Customers in Europe may see an influx of new apps and services for making tap-and-go purchases.`\
 https://nytimes.com/2024/07/11/business/apple-european-union-antitrust.html
-
-**Blue Jays hit with a cascade of injuries, including to Bo Bichette and Daulton Varsho**\
-`The Blue Jays can't catch a break on the injury front — prospects Ricky Tiedemann and Adam Macko and even a coach are also hurt.`\
-https://nytimes.com/athletic/5630656/2024/07/11/blue-jays-injuries-bichette-varsho-tiedemann/
 

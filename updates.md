@@ -1,3 +1,7 @@
+**Housing costs, long stubborn, show signs of easing.**\
+`By Ben Casselman`\
+https://nytimes.com/live/2024/07/11/business/cpi-inflation-fed/housing-costs-long-stubborn-show-signs-of-easing
+
 **Oakland Ballers fans can buy ownership shares**\
 `The announcement opened the official “testing the waters” phase of the crowdfunding process.`\
 https://nytimes.com/athletic/5630281/2024/07/11/oakland-ballers-crowd-funding-effort-fans-ownership/
