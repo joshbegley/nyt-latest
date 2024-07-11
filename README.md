@@ -1,3 +1,7 @@
+**After a Bruising Day, Biden Faces a New Test**\
+`Fresh calls from lawmakers and donors to step down have increased pressure on the president, as he prepares to hold a crucial news conference.`\
+https://nytimes.com/2024/07/11/business/dealbook/biden-donors-pelosi-welch-nato.html
+
 **Spurs depth chart 1.0: Analyzing fits for Chris Paul and Harrison Barnes**\
 `Chris Paul and Harrison Barnes will bring some much needed experience to the Spurs lineup, but how will Gregg Popovich deploy them?`\
 https://nytimes.com/athletic/5630203/2024/07/11/spurs-chris-paul-harrison-barnes-depth-chart/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/world/europe/france-fire-rouen-cathedral.html
 **Haaland to be most expensive FPL asset ever**\
 `Erling Haaland will be the most expensive Fantasy Premier League asset ever after his price rose for the 2024-25 season.`\
 https://nytimes.com/athletic/5630970/2024/07/11/fpl-price-reveals-24-25-haaland/
-
-**As inflation cools, political pressure on the Fed ramps up.**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/07/11/business/cpi-inflation-fed/as-inflation-cools-political-pressure-on-the-fed-ramps-up
 
