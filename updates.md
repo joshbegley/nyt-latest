@@ -1,3 +1,15 @@
+**A Changed Landscape**\
+`As Donald Trump heads to the Republican convention, his criminal cases look a lot less threatening.`\
+https://nytimes.com/2024/07/11/us/politics/trump-trial-republican-convention.html
+
+**Houston Shows Why We Should Make Peace With Ugly Power Lines**\
+`Let’s stop with the NIMBYism around lifesaving infrastructure already.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/hurricane-beryl-houston-power-outage-heat
+
+**Biden Has an Inner Circle Problem. He’s Not the Only One.**\
+`Healthy institutions try to control for the frailties of human nature.`\
+https://nytimes.com/2024/07/11/opinion/biden-election-problem.html
+
 **‘More Heat, More Often’: Temperature Records Keep Breaking**\
 `The burning of fossil fuels has created more frequent and more intense heat waves. Experts warn these heat waves are “the new normal.”`\
 https://nytimes.com/2024/07/11/climate/global-warming-heat-records.html
