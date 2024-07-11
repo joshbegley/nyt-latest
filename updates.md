@@ -1,3 +1,7 @@
+**England, a team of comebacks, late winners and finals. These are extraordinary times**\
+`For so long England were a team of talent but they could not be relied upon to produce when it mattered most. All that has changed`\
+https://nytimes.com/athletic/5630276/2024/07/11/england-euros-final-netherlands/
+
 **Team USA finds rhythm in win vs. Canada: Takeaways**\
 `The Americans cruised to an 86-72 win in the summer exhibition opener for both countries Wednesday night in a packed T-Mobile Arena.`\
 https://nytimes.com/athletic/5630562/2024/07/11/team-usa-canada-exhibition-olympics/

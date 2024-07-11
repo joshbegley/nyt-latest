@@ -1,3 +1,7 @@
+**England, a team of comebacks, late winners and finals. These are extraordinary times**\
+`For so long England were a team of talent but they could not be relied upon to produce when it mattered most. All that has changed`\
+https://nytimes.com/athletic/5630276/2024/07/11/england-euros-final-netherlands/
+
 **Team USA finds rhythm in win vs. Canada: Takeaways**\
 `The Americans cruised to an 86-72 win in the summer exhibition opener for both countries Wednesday night in a packed T-Mobile Arena.`\
 https://nytimes.com/athletic/5630562/2024/07/11/team-usa-canada-exhibition-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5628599/2024/07/11/liverpool-injuries-ruben-peeters
 **France fell flat at Euro 2024 - so why is Deschamps set to stay as manager?**\
 `Deschamps retains the backing of the French Football Federation - but Zinedine Zidane remains an alluring option to replace him`\
 https://nytimes.com/athletic/5629411/2024/07/11/didier-deschamps-france-manager-future/
-
-**Will Euro 2024 prompt players to re-evaluate the strength of the Saudi Pro League?**\
-`The SPL provided 14 players in Germany - the most for a league not from one of the 24 competing countries. Many of them have impressed too`\
-https://nytimes.com/athletic/5628711/2024/07/11/saudi-pro-euro2024-laporte-kante/
 
