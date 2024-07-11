@@ -1,3 +1,11 @@
+**Houston Hospitals Overwhelmed Amid Power Outages and Heat Wave**\
+`Extreme heat in Texas has led officials to build a temporary field hospital in Houston after Hurricane Beryl left millions without power and no air conditioning.`\
+https://nytimes.com/video/us/100000009566250/heat-power-outage-houston.html
+
+**Decision Time for Chuck Schumer?**\
+`The majority leader has been caught in an awkward spot as he balances his role as President Biden’s Senate champion with his determination to hold the majority and the White House.`\
+https://nytimes.com/2024/07/11/us/politics/schumer-biden-democrats-senate.html
+
 **Paul Skenes exits after seven no-hit innings**\
 `It was the latest dominant performance for Skenes, the former No. 1 pick who has taken the National League by storm in his rookie year.`\
 https://nytimes.com/athletic/5632500/2024/07/11/pirates-paul-skenes-no-hit-innings/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/hurricane-beryl-houston-pow
 **Biden Has an Inner Circle Problem. He’s Not the Only One.**\
 `Healthy institutions try to control for the frailties of human nature.`\
 https://nytimes.com/2024/07/11/opinion/biden-election-problem.html
-
-**‘More Heat, More Often’: Temperature Records Keep Breaking**\
-`The burning of fossil fuels has created more frequent and more intense heat waves. Experts warn these heat waves are “the new normal.”`\
-https://nytimes.com/2024/07/11/climate/global-warming-heat-records.html
-
-**Gun Ammunition Vending Machines Installed at Grocery Stores in 3 States**\
-`The vending machines, sold by a company called American Rounds, sell ammunition that can be used in handguns, rifles and shotguns. They have been installed in Texas, Oklahoma and Alabama so far.`\
-https://nytimes.com/2024/07/11/us/ammunition-vending-machines.html
 
