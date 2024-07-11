@@ -1,3 +1,11 @@
+**College football vs. Taylor Swift, Turner's future and more: Sports Media Mailbag, Part 2**\
+`College football's ratings showdown with the NFL, where Turner is heading post-NBA, and more of your sports media questions answered.`\
+https://nytimes.com/athletic/5627487/2024/07/11/college-football-taylor-swift-turner-nba-media-rights-mailbag/
+
+**Inside Novak Djokovic's recovery - accepting outsiders, hyperbaric chambers, Jelena's worries**\
+`The tennis world, Djokovic's team, and even his wife Jelena saw his Wimbledon plan as risky. He saw opportunity...`\
+https://nytimes.com/athletic/5629907/2024/07/11/novak-djokovic-knee-injury-wimbledon-recovery/
+
 **After a Bruising Day, Biden Faces a New Test**\
 `Fresh calls from lawmakers and donors to step down have increased pressure on the president, as he prepares to hold a crucial news conference.`\
 https://nytimes.com/2024/07/11/business/dealbook/biden-donors-pelosi-welch-nato.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5630728/2024/07/11/netherlands-england-tactical-ana
 **Shota Imanaga’s first-half brilliance kept his team relevant. Now the Cubs have to do something about it**\
 `Imanaga continues to keep his team relevant, outdueling Corbin Burnes in Wednesday’s 4-0 win over the Baltimore Orioles.`\
 https://nytimes.com/athletic/5630596/2024/07/11/shota-imanaga-cubs-first-half-mlb-trade-deadline/
-
-**Covering on Spire of a Cathedral That Monet Painted Catches Fire**\
-`The cause of the blaze at the cathedral in Rouen, France, whose facade Claude Monet depicted dozens of times, was unknown.`\
-https://nytimes.com/2024/07/11/world/europe/france-fire-rouen-cathedral.html
-
-**Haaland to be most expensive FPL asset ever**\
-`Erling Haaland will be the most expensive Fantasy Premier League asset ever after his price rose for the 2024-25 season.`\
-https://nytimes.com/athletic/5630970/2024/07/11/fpl-price-reveals-24-25-haaland/
 
