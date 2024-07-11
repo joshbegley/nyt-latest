@@ -1,3 +1,15 @@
+**Is women's track the next sport ready to boom? Alexis Ohanian is betting on it**\
+`The latest investment in women's sports is in track, with Alexis Ohanian among those entering the fray. His new event debuts in September.`\
+https://nytimes.com/athletic/5631595/2024/07/11/olympics-track-gabby-thomas-alexis-ohanian-athlos/
+
+**Biden’s Pick to Lead F.D.I.C. Faces Little Resistance in Senate Hearing**\
+`Nominated for chair of the Federal Deposit Insurance Corporation, Christy Goldsmith Romero was cheered by Democrats and accepted by Republicans at a hearing.`\
+https://nytimes.com/2024/07/11/business/romero-fdic-confirmation-hearing.html
+
+**Chris Kirchner sentenced to 20 years for fraud**\
+`The FBI arrested Kirchner on Valentine's Day 2023, issuing charges of wire fraud.`\
+https://nytimes.com/athletic/5630588/2024/07/11/chris-kirchner-sentence-fraud/
+
 **Georgia has 2 players arrested on reckless driving charges**\
 `The Georgia athletic department declined to comment Thursday but expects to address the incidents at SEC media days next week in Dallas.`\
 https://nytimes.com/athletic/5631943/2024/07/11/georgia-reckless-driving-charges-smael-mondon/

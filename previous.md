@@ -1,10 +1,18 @@
+**Is women's track the next sport ready to boom? Alexis Ohanian is betting on it**\
+`The latest investment in women's sports is in track, with Alexis Ohanian among those entering the fray. His new event debuts in September.`\
+https://nytimes.com/athletic/5631595/2024/07/11/olympics-track-gabby-thomas-alexis-ohanian-athlos/
+
+**Biden’s Pick to Lead F.D.I.C. Faces Little Resistance in Senate Hearing**\
+`Nominated for chair of the Federal Deposit Insurance Corporation, Christy Goldsmith Romero was cheered by Democrats and accepted by Republicans at a hearing.`\
+https://nytimes.com/2024/07/11/business/romero-fdic-confirmation-hearing.html
+
 **Georgia has 2 players arrested on reckless driving charges**\
 `The Georgia athletic department declined to comment Thursday but expects to address the incidents at SEC media days next week in Dallas.`\
 https://nytimes.com/athletic/5631943/2024/07/11/georgia-reckless-driving-charges-smael-mondon/
 
 **Chris Kirchner sentenced to 20 years for fraud**\
 `The FBI arrested Kirchner on Valentine's Day 2023, issuing charges of wire fraud.`\
-https://nytimes.com/athletic/5630588/2024/07/11/chris-kirchner-sentece-fraud/
+https://nytimes.com/athletic/5630588/2024/07/11/chris-kirchner-sentence-fraud/
 
 **Twins super utilityman Willi Castro named to AL All-Star team as replacement**\
 `This is the first All-Star nod for Castro, who is hitting .268/.354/.430 with 22 doubles, seven home runs, 31 RBIs and 10 stolen bases. `\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/11/world/middleeast/israeli-military-clears-general-
 **Hattie Wiener, Sex-Positive ‘Oldest Cougar,’ Dies at 88**\
 `She was an evangelist for older women having sex with younger men, and the health benefits that she said came with it.`\
 https://nytimes.com/2024/07/11/style/hattie-wiener-dead.html
-
-**Russia Places Navalny’s Widow on Extremist List**\
-`The Russian agency tasked with combating terrorism financing added Yulia Navalnaya to its registry.`\
-https://nytimes.com/2024/07/11/world/europe/russia-yulia-navalnaya-extremist-list.html
-
-**Fantasy baseball bullpen report: Jeff Hoffman is cooking, Josh Hader dealing with gopheritis and more**\
-`Greg Jewett unearths all the developments across MLB bullpens that fantasy baseball managers need to know, like the streaking Jeff Hoffman.`\
-https://nytimes.com/athletic/5631832/2024/07/11/fantasy-baseball-bullpen-saves-holds-2/
 
