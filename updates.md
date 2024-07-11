@@ -1,3 +1,7 @@
+**A Beautiful Inflation Report**\
+`And a vindication for Bidenomics.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/krugman-inflation-report-bidenomics
+
 **Israeli Military Clears General Who Approved Fire on House With Hostages on Oct. 7**\
 `The military conceded that it had “failed in its mission” to protect an Israeli village from attack, but exonerated a general who oversaw the fighting there.`\
 https://nytimes.com/2024/07/11/world/middleeast/israeli-military-clears-general-who-approved-fire-on-house-with-hostages-on-oct-7.html
