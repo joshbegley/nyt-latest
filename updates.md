@@ -1,3 +1,7 @@
+**Team USA finds rhythm in win vs. Canada: Takeaways**\
+`The Americans cruised to an 86-72 win in the summer exhibition opener for both countries Wednesday night in a packed T-Mobile Arena.`\
+https://nytimes.com/athletic/5630562/2024/07/11/team-usa-canada-exhibition-olympics/
+
 **Newcastle's six key issues after ownership shock - including Howe’s future, Saudi role, women’s team**\
 `The questions Newcastle need to address after Staveley and Ghodoussi announce their departures`\
 https://nytimes.com/athletic/5628851/2024/07/11/staveley-ghodoussi-questions-newcastle-need-to-answer/
