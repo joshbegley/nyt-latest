@@ -1,3 +1,11 @@
+**Sheepishly Raises Hand**\
+`Mat Shelden takes us for a ride.`\
+https://nytimes.com/2024/07/10/crosswords/daily-puzzle-2024-07-11.html
+
+**Uruguay 0-1 Colombia: Takeaways as Colombia book a place in the final against Argentina**\
+`All the talking points from an absorbing semifinal `\
+https://nytimes.com/athletic/5630256/2024/07/10/uruguay-colombia-result-argentina-semifinal/
+
 **Peter Welch Explains Why He Thinks Biden Needs to Drop Out**\
 `‘It’s a catastrophe,’ said the senator from Vermont, becoming the first Democrat from that chamber to publicly say the president should step aside.`\
 https://nytimes.com/2024/07/10/us/politics/peter-welch-biden-vt-democratic-senator.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/10/us/tennessee-yard-sign-biden-trump.html
 **Blues sign Ryan Suter to 1-year, $775,000 contract**\
 `Suter is the second player in league history to be bought out twice, after Tony DeAngelo.`\
 https://nytimes.com/athletic/5630130/2024/07/10/blues-sign-ryan-suter/
-
-**A top Democratic fund-raiser wants Biden to make way for a new nominee.**\
-`Andrew Tobias, a longtime treasurer for the Democratic National Committee, thinks the party’s ticket would be stronger in November without the president’s name atop it.`\
-https://nytimes.com/live/2024/07/10/us/biden-trump-election/a-top-democratic-fund-raiser-wants-biden-to-make-way-for-a-new-nominee
-
-**Carnage at Gaza School Compound Adds to Mounting Death Toll at U.N. Buildings**\
-`At least 27 people were killed when an Israeli airstrike exploded as people played soccer at a school turned shelter in southern Gaza.`\
-https://nytimes.com/2024/07/10/world/middleeast/gaza-schoolyard-strike-israel.html
 
