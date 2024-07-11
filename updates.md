@@ -1,3 +1,11 @@
+**‘More Heat, More Often’: Temperature Records Keep Breaking**\
+`The burning of fossil fuels has created more frequent and more intense heat waves. Experts warn these heat waves are “the new normal.”`\
+https://nytimes.com/2024/07/11/climate/global-warming-heat-records.html
+
+**Gun Ammunition Vending Machines Installed at Grocery Stores in 3 States**\
+`The vending machines, sold by a company called American Rounds, sell ammunition that can be used in handguns, rifles and shotguns. They have been installed in Texas, Oklahoma and Alabama so far.`\
+https://nytimes.com/2024/07/11/us/ammunition-vending-machines.html
+
 **Three Day-to-Night Cafes For Your Summer Fridays**\
 `Breakfast sandwiches and lattes give way to kosho cod and Lambrusco.`\
 https://nytimes.com/2024/07/11/dining/summer-fridays-nyc-restaurants.html
