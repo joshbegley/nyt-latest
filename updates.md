@@ -1,3 +1,11 @@
+**Friday Briefing: A Make-or-Break Moment for President Biden**\
+`Plus, a U.S. plan to deploy missiles in Germany angered Russia.`\
+https://nytimes.com/2024/07/11/briefing/biden-nato-germany-missile.html
+
+**Milwaukee’s Mayor, No Fan of Trump, Is Thrilled to Host His Party**\
+`Cavalier Johnson, the Democratic mayor of Milwaukee, was one of the biggest cheerleaders for holding the Republican National Convention in the city.`\
+https://nytimes.com/2024/07/11/us/milwaukee-cavalier-johnson-trump.html
+
 **Hotel Workers Fired After Death of Man at Milwaukee Hyatt**\
 `D’Vontaye Mitchell, 43, died last month outside the hotel after he had been held down by security guards. His death is being investigated as a homicide.`\
 https://nytimes.com/2024/07/11/us/dvontaye-mitchell-milwaukee-hotel.html
