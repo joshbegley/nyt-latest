@@ -1,3 +1,15 @@
+**Concerned About Metals in Tampons? Here’s What to Know.**\
+`A recent study detected a number of metals in many types of tampons. Experts weigh in on the findings and what they could mean for your health.`\
+https://nytimes.com/2024/07/11/well/tampons-arsenic-lead-heavy-metals-toxic.html
+
+**Amid Oppressive Heat, Broiling Airplane Cabins Add to Travelers’ Woes**\
+`The U.S. Department of Transportation is still studying whether to set minimum standards for cabin temperatures.`\
+https://nytimes.com/2024/07/11/us/extreme-heat-planes-flying-airlines.html
+
+**Goodell feels 'very strongly' with stance in Sunday Ticket lawsuit**\
+`Goodell said he and the league "feel very strongly about our position, our policies" in regards to the 2015 lawsuit.`\
+https://nytimes.com/athletic/5631586/2024/07/11/roger-goodell-sunday-ticket-verdict-comments/
+
 **Bill Belichick joining panel for CW's 'Inside the NFL'**\
 `Belichick will join former NFL players Ryan Clark, Chad Johnson and Chris Long for the show's weekly panel.`\
 https://nytimes.com/athletic/5631635/2024/07/11/bill-belichick-inside-the-nfl-show/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/11/us/las-vegas-heat-houston-power.html
 **House Defeats Measure to Fine Garland Over Refusal to Share Biden Audio**\
 `Four Republicans opposed the bid to fine the attorney general $10,000 a day for his refusal to comply with a congressional subpoena for recordings of the president’s interview with a special counsel.`\
 https://nytimes.com/2024/07/11/us/politics/house-fine-garland-biden-contempt.html
-
-**A ‘Simpsons’ Joke Comes True for Cypress Hill**\
-`The famed California hip-hop group played with the London Symphony Orchestra — 28 years after “The Simpsons” dreamed up the collaboration.`\
-https://nytimes.com/2024/07/11/arts/music/cypress-hill-simpsons-london-joke.html
-
-**The Embattled Biden Campaign Tests Kamala Harris’s Strength vs. Trump**\
-`The campaign is quietly carrying out a head-to-head survey of voters between the vice president and Donald Trump, in a sign of the uncertainty even atop the Democratic Party.`\
-https://nytimes.com/2024/07/11/us/politics/biden-kamala-harris-poll-trump.html
-
-**Klopp rebuffs approach to coach USMNT**\
-`The German left Liverpool in May, citing 'running out of energy'`\
-https://nytimes.com/athletic/5630946/2024/07/11/jurgen-klopp-usmnt-next-coach-rejected/
 

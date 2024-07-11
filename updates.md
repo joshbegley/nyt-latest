@@ -1,3 +1,15 @@
+**Concerned About Metals in Tampons? Here’s What to Know.**\
+`A recent study detected a number of metals in many types of tampons. Experts weigh in on the findings and what they could mean for your health.`\
+https://nytimes.com/2024/07/11/well/tampons-arsenic-lead-heavy-metals-toxic.html
+
+**Amid Oppressive Heat, Broiling Airplane Cabins Add to Travelers’ Woes**\
+`The U.S. Department of Transportation is still studying whether to set minimum standards for cabin temperatures.`\
+https://nytimes.com/2024/07/11/us/extreme-heat-planes-flying-airlines.html
+
+**Goodell feels 'very strongly' with stance in Sunday Ticket lawsuit**\
+`Goodell said he and the league "feel very strongly about our position, our policies" in regards to the 2015 lawsuit.`\
+https://nytimes.com/athletic/5631586/2024/07/11/roger-goodell-sunday-ticket-verdict-comments/
+
 **Bill Belichick joining panel for CW's 'Inside the NFL'**\
 `Belichick will join former NFL players Ryan Clark, Chad Johnson and Chris Long for the show's weekly panel.`\
 https://nytimes.com/athletic/5631635/2024/07/11/bill-belichick-inside-the-nfl-show/
