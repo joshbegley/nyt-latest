@@ -1,3 +1,7 @@
+**Russia Places Navalny’s Widow on Extremist List**\
+`The Russian agency tasked with combating terrorism financing added Yulia Navalnaya to its registry.`\
+https://nytimes.com/2024/07/11/world/europe/russia-yulia-navalnaya-extremist-list.html
+
 **Fantasy baseball bullpen report: Jeff Hoffman is cooking, Josh Hader dealing with gopheritis and more**\
 `Greg Jewett unearths all the developments across MLB bullpens that fantasy baseball managers need to know, like the streaking Jeff Hoffman.`\
 https://nytimes.com/athletic/5631832/2024/07/11/fantasy-baseball-bullpen-saves-holds-2/

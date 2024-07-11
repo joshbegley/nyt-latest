@@ -1,3 +1,7 @@
+**Russia Places Navalny’s Widow on Extremist List**\
+`The Russian agency tasked with combating terrorism financing added Yulia Navalnaya to its registry.`\
+https://nytimes.com/2024/07/11/world/europe/russia-yulia-navalnaya-extremist-list.html
+
 **Fantasy baseball bullpen report: Jeff Hoffman is cooking, Josh Hader dealing with gopheritis and more**\
 `Greg Jewett unearths all the developments across MLB bullpens that fantasy baseball managers need to know, like the streaking Jeff Hoffman.`\
 https://nytimes.com/athletic/5631832/2024/07/11/fantasy-baseball-bullpen-saves-holds-2/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/nyregion/nypd-officer-conviction-assault.html
 **Fraud Case Against Rich Exile Who Riled Beijing Goes to Jury**\
 `Guo Wengui fled China and allied with the American right in a quixotic quest to end Communist rule. U.S. prosecutors say he stole over $1 billion from his followers.`\
 https://nytimes.com/2024/07/11/us/guo-wengui-fraud-trial-china.html
-
-**Toronto FC president Bill Manning parting ways with MLSE**\
-`Manning has long played more of a role in the club’s sporting direction than many other presidents of MLS clubs.`\
-https://nytimes.com/athletic/5631714/2024/07/11/toronto-fc-bill-manning-president-parting-ways/
 
