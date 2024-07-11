@@ -16,7 +16,7 @@ https://nytimes.com/2024/07/11/arts/music/new-york-philharmonic-gary-ginstling.h
 
 **What a Linguist Hears When Biden Speaks**\
 `Don’t fixate on a few shaggy phrases. There’s something bigger going on.`\
-https://nytimes.com/2024/07/11/opinion/what-a-linguist-hears-when-biden-speaks.html
+https://nytimes.com/2024/07/11/opinion/biden-speaking-linguist.html
 
 **Biden Campaign Has Long Fed Softball Questions to Friendly Interviewers**\
 `A review of President Biden’s interviews shows he is often asked the same few questions in interviews. It’s not a coincidence.`\
