@@ -1,3 +1,7 @@
+**Three Day-to-Night Cafes For Your Summer Fridays**\
+`Breakfast sandwiches and lattes give way to kosho cod and Lambrusco.`\
+https://nytimes.com/2024/07/11/dining/summer-fridays-nyc-restaurants.html
+
 **Election Setbacks Leave France’s Far Right at a Crossroads**\
 `The National Rally’s campaign was marred by controversies that undercut its effort to convince voters that it was ready for power. Now, leaders are asking where the party goes from here.`\
 https://nytimes.com/2024/07/11/world/europe/france-far-right-bardella-national-rally.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5631888/2024/07/11/argentina-colombia-2024-copa-ame
 **Erik Johnson's return may also be about John Tortorella and Matvei Michkov**\
 `Johnson isn't going to be an every-game contributor, but he should be a crucial role in the locker room.`\
 https://nytimes.com/athletic/5631981/2024/07/11/flyers-johnson-tortorella-michkov/
-
-**Narcissism Is a Trait That’s Hard to Shake, Study Says**\
-`Here’s how to recognize it and cope with the narcissist in your life.`\
-https://nytimes.com/2024/07/11/well/mind/narcissism-age-empathy.html
 

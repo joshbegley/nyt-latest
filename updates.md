@@ -1,3 +1,7 @@
+**Three Day-to-Night Cafes For Your Summer Fridays**\
+`Breakfast sandwiches and lattes give way to kosho cod and Lambrusco.`\
+https://nytimes.com/2024/07/11/dining/summer-fridays-nyc-restaurants.html
+
 **Election Setbacks Leave France’s Far Right at a Crossroads**\
 `The National Rally’s campaign was marred by controversies that undercut its effort to convince voters that it was ready for power. Now, leaders are asking where the party goes from here.`\
 https://nytimes.com/2024/07/11/world/europe/france-far-right-bardella-national-rally.html
