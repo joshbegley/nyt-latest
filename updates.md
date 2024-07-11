@@ -1,3 +1,15 @@
+**Dorothy Lichtenstein, Philanthropist and a Rare ‘Artist’s Widow,’ Dies at 84**\
+`A gregarious yet humble co-founder of the Roy Lichtenstein Foundation, she donated more than 1,000 of her husband’s works, most notably to the Whitney Museum.`\
+https://nytimes.com/2024/07/11/arts/dorothy-lichtenstein-dead.html
+
+**6 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/07/11/books/review/new-books-recommendations.html
+
+**Kamala Harris Says Biden Is a ‘Fighter’ at North Carolina Rally**\
+`At a time when the president’s vigor is an issue, his vice president said he was battle-tough and warned about another Trump term.`\
+https://nytimes.com/2024/07/11/us/politics/kamala-harris-biden-rally-north-carolina.html
+
 **Biden Addresses Reporters at a High-Stakes Moment**\
 `Also, a welcome slowdown in inflation. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/07/11/briefing/biden-news-conference-inflation-report.html

@@ -1,3 +1,15 @@
+**Dorothy Lichtenstein, Philanthropist and a Rare ‘Artist’s Widow,’ Dies at 84**\
+`A gregarious yet humble co-founder of the Roy Lichtenstein Foundation, she donated more than 1,000 of her husband’s works, most notably to the Whitney Museum.`\
+https://nytimes.com/2024/07/11/arts/dorothy-lichtenstein-dead.html
+
+**6 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/07/11/books/review/new-books-recommendations.html
+
+**Kamala Harris Says Biden Is a ‘Fighter’ at North Carolina Rally**\
+`At a time when the president’s vigor is an issue, his vice president said he was battle-tough and warned about another Trump term.`\
+https://nytimes.com/2024/07/11/us/politics/kamala-harris-biden-rally-north-carolina.html
+
 **Biden Addresses Reporters at a High-Stakes Moment**\
 `Also, a welcome slowdown in inflation. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/07/11/briefing/biden-news-conference-inflation-report.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/politics/100000009566744/harris-biden-north-carolin
 **Forza, forza, forza: In tennis' "big", Jasmine Paolini proves that a little can mean a lot**\
 `The 28-year-old Italian has gone from a good tour pro to a two-time Grand Slam finalist in just a few months. What's her secret?`\
 https://nytimes.com/athletic/5632130/2024/07/11/jasmine-paolini-tennis-player/
-
-**Friday Briefing: A Make-or-Break Moment for President Biden**\
-`Plus, a U.S. plan to deploy missiles in Germany angered Russia.`\
-https://nytimes.com/2024/07/11/briefing/biden-nato-germany-missile.html
-
-**Hotel Workers Fired After Death of Man at Milwaukee Hyatt**\
-`D’Vontaye Mitchell, 43, died last month outside the hotel after he had been held down by security guards. His death is being investigated as a homicide.`\
-https://nytimes.com/2024/07/11/us/dvontaye-mitchell-milwaukee-hotel.html
-
-**Democratic senators were mostly unmoved by a visit from top Biden advisers.**\
-`By Robert Jimison and Carl Hulse`\
-https://nytimes.com/live/2024/07/11/us/biden-news-trump-election/democratic-senators-were-mostly-unmoved-by-a-visit-from-top-biden-advisers
 
