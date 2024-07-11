@@ -1,3 +1,7 @@
+**Francois Letexier to referee Spain vs England in Euro 2024 final**\
+`Francois Letexier will referee Sunday&#8217;s European Championship final between Spain and England.`\
+https://nytimes.com/athletic/5630899/2024/07/11/spain-england-letexier-euro-2024-final-referee-who/
+
 **Cooking Oil in Dirty Fuel Tankers? Report Raises Alarms in China**\
 `Officials said they would start an investigation after a newspaper reported that a tanker used to carry liquefied coal was then used to transport soybean oil.`\
 https://nytimes.com/2024/07/11/world/asia/china-cooking-oil.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/world/middleeast/we-want-our-real-lives-back-for-
 **Here are the latest developments.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/07/11/us/biden-news-trump-election/here-are-the-latest-developments
-
-**An appreciation of Andy Ibáñez, the Tigers’ ultimate chess piece **\
-`Andy Ibáñez is hitting .394 with a 1.029 OPS in 71 at-bats against left-handed pitching this season. `\
-https://nytimes.com/athletic/5630464/2024/07/11/tigers-andy-ibanez-hitting-left-handers/
 
