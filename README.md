@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5632500/2024/07/11/pirates-paul-skenes-no-hit-innin
 `Arsenal midfielder Albert Sambi Lokonga is set to undergo a medical on Friday ahead of a season-long loan move to Sevilla.`\
 https://nytimes.com/athletic/5632470/2024/07/11/arsenal-sevilla-lokonga-loan-transfer/
 
-**Dan Collins, Who Sought to Debunk Giuliani as a 9/11 Hero, Dies at 80**\
+**Dan Collins, 80, Author Who Rejected View of Giuliani as a 9/11 Hero, Dies**\
 `A journalist and author, he helped write a revisionist account of Rudolph Giuliani’s role as mayor before and after the terrorist attacks.`\
 https://nytimes.com/2024/07/11/books/dan-collins-dead.html
 
