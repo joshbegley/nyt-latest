@@ -1,3 +1,7 @@
+**A donor group is pledging money for Democrats pushing Biden to exit the race.**\
+`Major donors have committed more than $2 million to a super PAC to help politicians who have publicly called for him to drop his re-election bid.`\
+https://nytimes.com/live/2024/07/11/us/biden-news-trump-election/biden-donors-democrats
+
 **Wisconsin Radio Show Says It Edited Biden Interview at Campaign’s Request**\
 `“The Earl Ingram Show” cut two segments from an interview with the president that aired on July 4.`\
 https://nytimes.com/2024/07/11/us/politics/wisconsin-radio-show-edited-biden-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/movies/shelley-duvall-photos.html
 **Trump’s Team Plans to Go After Kamala Harris at Republican Convention**\
 `His advisers are eager to define the vice president and drive down her approval ratings in case President Biden drops out of the race and she becomes the nominee.`\
 https://nytimes.com/2024/07/11/us/politics/trump-kamala-harris-attacks.html
-
-**CONMEBOL opens investigation into Copa America clash**\
-`The South American Football Confederation (CONMEBOL) have opened an investigation into the altercation involving Uruguay players and Colombia fans following the Copa America semifinal on Wednesday.`\
-https://nytimes.com/athletic/5632635/2024/07/11/colombia-uruguay-copa-america-nunez-clash/
 
