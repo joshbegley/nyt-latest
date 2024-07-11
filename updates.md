@@ -1,3 +1,7 @@
+**Hotel Workers Fired After Death of Man at Milwaukee Hyatt**\
+`D’Vontaye Mitchell, 43, died last month outside the hotel after he had been held down by security guards. His death is being investigated as a homicide.`\
+https://nytimes.com/2024/07/11/us/dvontaye-mitchell-milwaukee-hotel.html
+
 **Democratic senators were mostly unmoved by a visit from top Biden advisers.**\
 `By Robert Jimison and Carl Hulse`\
 https://nytimes.com/live/2024/07/11/us/biden-news-trump-election/democratic-senators-were-mostly-unmoved-by-a-visit-from-top-biden-advisers
