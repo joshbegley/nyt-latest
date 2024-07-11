@@ -1,3 +1,11 @@
+**Georgia has 2 players arrested on reckless driving charges**\
+`The Georgia athletic department declined to comment Thursday but expects to address the incidents at SEC media days next week in Dallas.`\
+https://nytimes.com/athletic/5631943/2024/07/11/georgia-reckless-driving-charges-smael-mondon/
+
+**Chris Kirchner sentenced to 20 years for fraud**\
+`The FBI arrested Kirchner on Valentine's Day 2023, issuing charges of wire fraud.`\
+https://nytimes.com/athletic/5630588/2024/07/11/chris-kirchner-sentece-fraud/
+
 **Twins super utilityman Willi Castro named to AL All-Star team as replacement**\
 `This is the first All-Star nod for Castro, who is hitting .268/.354/.430 with 22 doubles, seven home runs, 31 RBIs and 10 stolen bases. `\
 https://nytimes.com/athletic/5631926/2024/07/11/willi-castro-al-all-star-team-twins/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/11/world/europe/russia-yulia-navalnaya-extremist-lis
 **Fantasy baseball bullpen report: Jeff Hoffman is cooking, Josh Hader dealing with gopheritis and more**\
 `Greg Jewett unearths all the developments across MLB bullpens that fantasy baseball managers need to know, like the streaking Jeff Hoffman.`\
 https://nytimes.com/athletic/5631832/2024/07/11/fantasy-baseball-bullpen-saves-holds-2/
-
-**Utah’s Gerrymandered House Map Ignored Voters’ Will, State Supreme Court Says**\
-`The G.O.P.-run State Legislature was wrong to flout a voter-approved ballot measure calling for fair maps, the court said. A lower court will now hear a challenge to the House map.`\
-https://nytimes.com/2024/07/11/us/utah-supreme-court-gerrymandering.html
-
-**Fighting Isn’t the Only Killer of Gazans Amid the War, Researchers Say**\
-`A letter in a major medical journal has prompted a discussion about the importance, and difficulty, of tallying those killed as an indirect result of the conflict between Israel and Hamas.`\
-https://nytimes.com/2024/07/11/world/middleeast/gaza-war-death-toll-lancet.html
 
