@@ -1,3 +1,11 @@
+**The Call Is Coming From Inside the White House**\
+`Biden takes the stage in Washington as doubts about his candidacy spread among his own staff.`\
+https://nytimes.com/2024/07/11/us/politics/biden-press-conference-democrats.html
+
+**Wimbledon women's semifinals: Ending a 20-year wait, and the pressure of having a match "on your racket"**\
+`On day 11 of Wimbledon, the women's semifinals made history, and the pressure of having a match "on your racket" came to the fore`\
+https://nytimes.com/athletic/5632245/2024/07/11/wimbledon-womens-semifinals-recap-paolini-krejcikova-rybakina-vekic/
+
 **A donor group is pledging money for Democrats pushing Biden to exit the race.**\
 `Major donors have committed more than $2 million to a super PAC to help politicians who have publicly called for him to drop his re-election bid.`\
 https://nytimes.com/live/2024/07/11/us/biden-news-trump-election/biden-donors-democrats

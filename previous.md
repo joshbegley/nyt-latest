@@ -1,6 +1,14 @@
+**The Call Is Coming From Inside the White House**\
+`Biden takes the stage in Washington as doubts about his candidacy spread among his own staff.`\
+https://nytimes.com/2024/07/11/us/politics/biden-press-conference-democrats.html
+
 **A donor group is pledging money for Democrats pushing Biden to exit the race.**\
 `Major donors have committed more than $2 million to a super PAC to help politicians who have publicly called for him to drop his re-election bid.`\
 https://nytimes.com/live/2024/07/11/us/biden-news-trump-election/biden-donors-democrats
+
+**Wimbledon women's semifinals: Ending a 20-year wait, and the pressure of having a match "on your racket"**\
+`On day 11 of Wimbledon, the women's semifinals made history, and the pressure of having a match "on your racket" came to the fore`\
+https://nytimes.com/athletic/5632245/2024/07/11/wimbledon-womens-semifinals-recap-paolini-krejcikova-rybakina-vekic/
 
 **Wisconsin Radio Show Says It Edited Biden Interview at Campaign’s Request**\
 `“The Earl Ingram Show” cut two segments from an interview with the president that aired on July 4.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/11/briefing/biden-news-conference-inflation-report.h
 **Investing in Employee Well-being, One Benefit at a Time**\
 `How businesses can gain a competitive edge with modern group benefits.`\
 https://nytimes.com/paidpost/humana/investing-in-employee-well-being-one-benefit-at-a-time.html
-
-**Shelley Duvall: A Life in Pictures**\
-`With her gossamer frame and toothy smile, she was one of the biggest film stars of the 1970s.`\
-https://nytimes.com/2024/07/11/movies/shelley-duvall-photos.html
-
-**Trump’s Team Plans to Go After Kamala Harris at Republican Convention**\
-`His advisers are eager to define the vice president and drive down her approval ratings in case President Biden drops out of the race and she becomes the nominee.`\
-https://nytimes.com/2024/07/11/us/politics/trump-kamala-harris-attacks.html
 
