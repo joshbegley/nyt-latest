@@ -1,3 +1,11 @@
+**Until Saturday: Big 12 (and Pac-12?) media days takeaways, EA's player No. 100**\
+`Welcome to the Until Saturday, the five-star college football newsletter. `\
+https://nytimes.com/athletic/5631535/2024/07/11/big-12-media-days-college-football-until-saturday/
+
+**Spain not 'protecting' Williams from 'unreasonable' questions on Athletic future**\
+`Athletic Bilbao president Jon Uriarte has criticised the Spanish Football Federation (RFEF) for not &#8220;protecting&#8221; Nico Williams from an &#8220;uncontrolled and unreasonable&#8221; amount of questions about his club future during the European Championship.`\
+https://nytimes.com/athletic/5631110/2024/07/11/nico-williams-athletic-bilbao-spain/
+
 **Jasmine Paolini beats Donna Vekic to reach Wimbledon final after knifeedge mathc tiebreak**\
 `Jasmine Paolini beat Donna Vekic 2-6, 6-4, 7-6(8) to reach her first Wimbledon final, coming through a 10-point match tiebreak that decided one of the most compelling and tense matches of the Championships so far.`\
 https://nytimes.com/athletic/5631403/2024/07/11/donna-vekic-jasmine-paolini-wimbledon-semifinal/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/11/business/cpi-inflation-fed/the-inflation-coo
 **Zirkzee set for Man Utd medical on Friday ahead of €42.5m move**\
 `Joshua Zirkzee will undergo a Manchester United medical on Friday ahead of his proposed transfer from Bologna.`\
 https://nytimes.com/athletic/5621824/2024/07/11/joshua-zirkzee-man-utd-transfer/
-
-**A Covid Infection Can Feel Different Every Time**\
-`Cases are rising across the United States. Here’s what to know about how symptoms of an infection can shift.`\
-https://nytimes.com/2024/07/11/well/covid-symptoms-change.html
-
-**Van Nistelrooy, Hake join Ten Hag's Man Utd coaching staff**\
-`Ruud van Nistelrooy and Rene Hake have joined Erik ten Hag&#8217;s coaching staff at Manchester United, with Mitchell van der Gaag and Benni McCarthy leaving the club.`\
-https://nytimes.com/athletic/5577902/2024/07/11/van-nistelrooy-hake-manchester-united/
 
