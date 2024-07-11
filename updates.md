@@ -1,3 +1,11 @@
+**Sheepishly Raises Hand**\
+`Mat Shelden takes us for a ride.`\
+https://nytimes.com/2024/07/10/crosswords/daily-puzzle-2024-07-11.html
+
+**Uruguay 0-1 Colombia: Takeaways as Colombia book a place in the final against Argentina**\
+`All the talking points from an absorbing semifinal `\
+https://nytimes.com/athletic/5630256/2024/07/10/uruguay-colombia-result-argentina-semifinal/
+
 **Peter Welch Explains Why He Thinks Biden Needs to Drop Out**\
 `‘It’s a catastrophe,’ said the senator from Vermont, becoming the first Democrat from that chamber to publicly say the president should step aside.`\
 https://nytimes.com/2024/07/10/us/politics/peter-welch-biden-vt-democratic-senator.html
