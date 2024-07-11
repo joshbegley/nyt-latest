@@ -1,3 +1,11 @@
+**Red Sox pitching has been a difference-maker, but they need to add more at deadline**\
+`The Red Sox's rotation has been surprisingly good, but they could use reinforcements for a second-half playoff push.`\
+https://nytimes.com/athletic/5630536/2024/07/11/red-sox-trade-deadline-pitching-needs/
+
+**How Liverpool plan to avoid another injury crisis - and why Peeters is key**\
+`Arne Slot's head of physical performance is one of his most trusted lieutenants and will oversee squad's fitness work`\
+https://nytimes.com/athletic/5628599/2024/07/11/liverpool-injuries-ruben-peeters/
+
 **France fell flat at Euro 2024 - so why is Deschamps set to stay as manager?**\
 `Deschamps retains the backing of the French Football Federation - but Zinedine Zidane remains an alluring option to replace him`\
 https://nytimes.com/athletic/5629411/2024/07/11/didier-deschamps-france-manager-future/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/11/world/europe/france-is-busing-homeless-immigrants
 **Could the Yankees' latest bargain-bin pickup Tim Hill be another success story?**\
 `Hill was released by the lowly White Sox in mid-June. Since then, he has impressed in several outings for the Yankees. `\
 https://nytimes.com/athletic/5630513/2024/07/10/yankees-tim-hill-rays-strikeout-success/
-
-**Padres are reminded of pitching lessons of 2021 as trade deadline draws closer**\
-`Relief help remains an urgent need, but it could all become moot if the Padres do not acquire a starter or two before the deadline.`\
-https://nytimes.com/athletic/5630483/2024/07/10/padres-trade-deadline-starting-rotation-help/
-
-**NATO Calls China a ‘Decisive Enabler’ in Russia’s War on Ukraine**\
-`Secretary General Jens Stoltenberg made the accusation, which was in a declaration approved by the 32 leaders of the alliance, during the NATO summit in Washington on Wednesday.`\
-https://nytimes.com/video/world/europe/100000009565443/nato-china-russia-ukraine.html
 
