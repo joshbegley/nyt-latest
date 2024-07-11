@@ -1,5 +1,5 @@
 **Paul Skenes exits after seven no-hit innings**\
-`Pirates manager Derek Shelton pulled rookie starter Paul Skenes after seven no-hit innings on Thursday in Milwaukee.`\
+`It was the latest dominant performance for Skenes, the former No. 1 pick who has taken the National League by storm in his rookie year.`\
 https://nytimes.com/athletic/5632500/2024/07/11/pirates-paul-skenes-no-hit-innings/
 
 **Arsenal's Lokonga to undergo medical ahead of Sevilla loan**\
