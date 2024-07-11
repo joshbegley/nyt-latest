@@ -1,3 +1,35 @@
+**Donald Trump Is Unfit to Lead**\
+`He failed the tests of leadership and betrayed America. Voters must stand up to him in November.`\
+https://nytimes.com/interactive/2024/07/11/opinion/editorials/donald-trump-2024-unfit.html
+
+**Fear and Resolve: Inside a Shattered Ukrainian Neighborhood**\
+`Saltivka, a residential area of Kharkiv, in northern Ukraine, was ravaged by Russian bombardments in 2022. Few residents have returned.`\
+https://nytimes.com/card/2024/07/11/world/europe/ukraine-saltivka
+
+**Meek: Sherrone Moore and Michigan have their recruiting swagger back**\
+`Michigan's June hot streak with 10 pledges shows the Wolverines' recruiting potential under Sherrone Moore despite a slow 2025 start.`\
+https://nytimes.com/athletic/5629412/2024/07/11/michigan-football-recruiting-class-sherrone-moore/
+
+**Bulls haven’t blown up their roster enough to tank ... yet**\
+`The Bulls have quickly developed a promising stable of young prospects`\
+https://nytimes.com/athletic/5630629/2024/07/11/bulls-roster-tank-zach-lavine-nikola-vucevic/
+
+**Falcons mailbag: What does success look like after offseason makeover?**\
+`The new-look Falcons open training camp under new head coach Raheem Morris on July 24.`\
+https://nytimes.com/athletic/5629622/2024/07/11/falcons-mailbag-offseason-makeover/
+
+**The Nomination Crisis Is Far From Over**\
+`This is the minimum Democrats should ask of Biden.`\
+https://nytimes.com/2024/07/11/opinion/biden-democrats-nomination.html
+
+**NATO on the Edge: Biden Praises and Trump Denigrates a 75-Year Alliance**\
+`As leaders gathered in Washington to mark the anniversary of the organization, they heard starkly different messages from two American presidents on NATO’s future.`\
+https://nytimes.com/2024/07/11/us/politics/nato-biden-trump.html
+
+**Biden Offers $1.7 Billion to Help Factories Build Electric Vehicles**\
+`A Jeep plant that closed last year will be among those that will benefit from federal grants meant to help automotive manufacturers and protect jobs.`\
+https://nytimes.com/2024/07/11/business/biden-administration-electric-vehicles.html
+
 **Searching the East Side of Manhattan for a Two-Bedroom Co-op. What Could They Get for Around $1 Million?**\
 `Renting a one-bedroom near two hospitals left a couple yearning for some quiet and a bigger kitchen. Here’s what they found.`\
 https://nytimes.com/interactive/2024/07/11/realestate/11hunt-shoemaker.html
@@ -5,36 +37,4 @@ https://nytimes.com/interactive/2024/07/11/realestate/11hunt-shoemaker.html
 **Everything You Need for Eating Outside This Summer**\
 `Items that will elevate your warm-weather gatherings, from canned rosé to colorful lawn chairs.`\
 https://nytimes.com/2024/07/11/t-magazine/picnic-outdoor-dining-summer.html
-
-**Biden’s High-Stakes Moment: Tonight’s NATO News Conference**\
-`The president’s allies, doubters and enemies will be watching for any evidence of stumbles as he fields questions from reporters.`\
-https://nytimes.com/2024/07/11/us/politics/biden-high-stakes-news-conference.html
-
-**Europe vs. Europe**\
-`The region is still not united against Russia’s threat.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/europe-divided-nato
-
-**I.R.S. Crackdown on Delinquent Millionaires Yields $1 Billion**\
-`The beefed-up enforcement is part of the agency’s modernization initiative aimed at improving customer service and catching wealthy tax evaders.`\
-https://nytimes.com/2024/07/11/business/irs-crackdown-wealthy-taxpayers.html
-
-**At 75, the Aldeburgh Festival Is Bigger Than Benjamin Britten**\
-`The coastal festival, founded by the composer and Peter Pears in the 1940s, has built a reputation for rich, forward-looking programming.`\
-https://nytimes.com/2024/07/11/arts/music/at-75-the-aldeburgh-festival-is-bigger-than-benjamin-britten.html
-
-**Why Chuck Schumer Hasn’t Put the Squeeze on Joe Biden**\
-`The Senate majority leader moves strategically and with an endgame in mind, and he likes building consensus. There is still a lack of it on Mr. Biden.`\
-https://nytimes.com/2024/07/11/opinion/chuck-schumer-joe-biden.html
-
-**How New Hampshire Could Be Slipping From the Democrats**\
-`The state has voted for the Democratic nominee for president for two decades. But a new poll shows a loss of support, and some fed-up voters are considering alternatives.`\
-https://nytimes.com/2024/07/11/us/biden-new-hampshire-support.html
-
-**Project 2025, Suddenly Everywhere, Explained**\
-`How a partisan road map for a hoped-for Republican president came to dominate this important moment in the race.`\
-https://nytimes.com/2024/07/11/podcasts/project-2025-suddenly-everywhere-explained.html
-
-**Fresh Inflation Data Are Expected to Show Continued Cooling**\
-`The Federal Reserve is watching inflation figures as it contemplates when to lower interest rates, and could receive positive news Thursday.`\
-https://nytimes.com/2024/07/11/business/june-inflation-data.html
 
