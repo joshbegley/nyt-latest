@@ -1,3 +1,11 @@
+**Benji Gregory, Child Star on ‘ALF,’ Dies at 46**\
+`Mr. Gregory was found dead on June 13 in his car, along with his service dog.`\
+https://nytimes.com/2024/07/10/arts/television/benji-gregory-alf-dead.html
+
+**Uruguay players, Colombia fans clash in stands after Copa America semifinal**\
+`A number of Uruguayan players, including Darwin Nunez, appeared to clash with Colombian fans after the semi-final of Copa America on Wednesday night.`\
+https://nytimes.com/athletic/5630447/2024/07/10/colombia-uruguay-copa-america-darwin-nunez/
+
 **Corrections: July 11, 2024**\
 `Corrections that appeared in print on Thursday, July 11, 2024.`\
 https://nytimes.com/2024/07/10/pageoneplus/corrections-july-11-2024.html
@@ -29,12 +37,4 @@ https://nytimes.com/article/wildfires-california-forest.html
 **Watkins, Palmer, and an England goal that was worth the wait**\
 `England's winning strike against the Netherlands was proof that patience can pay off`\
 https://nytimes.com/athletic/5630246/2024/07/10/ollie-watkins-cole-palmer-england-euro-2024-goal/
-
-**Is the Deion Sanders way working at Colorado? It depends which way you look at it**\
-`Sanders views his 4-8 debut season with the Buffs more favorably than most. “My wins are totally different than your wins," he said.`\
-https://nytimes.com/athletic/5630236/2024/07/10/deion-sanders-colorado-football-big-12-media-days/
-
-**Home Run Derby field set, Dodgers' Hernández signs up**\
-`Hernández is an All-Star for the second time after a disappointing season in Seattle that impacted his free-agent market.`\
-https://nytimes.com/athletic/5628013/2024/07/10/home-run-derby-field-players/
 
