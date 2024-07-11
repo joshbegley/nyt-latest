@@ -1,3 +1,7 @@
+**Dylcia Pagan, 77, Dies; Puerto Rican Nationalist Who Spent 19 Years in Prison**\
+`She was among 10 members of the F.A.L.N., a terrorist group, who were convicted on arms and conspiracy charges in 1981. She was granted clemency by President Bill Clinton.`\
+https://nytimes.com/2024/07/11/us/dylcia-pagan-dead.html
+
 **New York Philharmonic Chief Abruptly Steps Down**\
 `Gary Ginstling, the orchestra’s president and chief executive, is leaving after just a year on the job.`\
 https://nytimes.com/2024/07/11/arts/music/new-york-philharmonic-gary-ginstling.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/11/world/israel-gaza-war-hamas/world-leaders-ca
 **Montauk Fisherman Who Took Too Much Fluke Gets a 30-Month Sentence**\
 `Chris Winkler went to trial after the government accused him of conspiring to sell illicit fish. Prosecutors said they were trying to preserve the bounty of the sea.`\
 https://nytimes.com/2024/07/11/nyregion/montauk-fisherman-fluke-sentencing.html
-
-**‘Me’ Is a Lovely and Distinctive Tween Drama**\
-`Anchored by beautiful performances, this Apple TV+ superhero show surpasses its own genre clichés.`\
-https://nytimes.com/2024/07/11/arts/television/me-apple-tv-plus-superhero.html
 
