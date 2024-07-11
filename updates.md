@@ -1,3 +1,7 @@
+**U.S. Uncovers Russian Plot to Assassinate C.E.O. of German Arms Maker**\
+`The company produces artillery shells and tanks that Ukraine has used in its war against Russia.`\
+https://nytimes.com/2024/07/11/us/politics/russia-assassination-plot-germany.html
+
 **Tens of Thousands of Students Protest Job Quotas in Bangladesh’s Streets**\
 `University students oppose the reinstatement of a quota system for government jobs that was abolished in 2018.`\
 https://nytimes.com/2024/07/11/world/asia/bandladesh-student-protests-job-quotas.html
