@@ -1,3 +1,11 @@
+**College football vs. Taylor Swift, Turner's future and more: Sports Media Mailbag, Part 2**\
+`College football's ratings showdown with the NFL, where Turner is heading post-NBA, and more of your sports media questions answered.`\
+https://nytimes.com/athletic/5627487/2024/07/11/college-football-taylor-swift-turner-nba-media-rights-mailbag/
+
+**Inside Novak Djokovic's recovery - accepting outsiders, hyperbaric chambers, Jelena's worries**\
+`The tennis world, Djokovic's team, and even his wife Jelena saw his Wimbledon plan as risky. He saw opportunity...`\
+https://nytimes.com/athletic/5629907/2024/07/11/novak-djokovic-knee-injury-wimbledon-recovery/
+
 **After a Bruising Day, Biden Faces a New Test**\
 `Fresh calls from lawmakers and donors to step down have increased pressure on the president, as he prepares to hold a crucial news conference.`\
 https://nytimes.com/2024/07/11/business/dealbook/biden-donors-pelosi-welch-nato.html
