@@ -1,3 +1,7 @@
+**Peter Welch Explains Why He Thinks Biden Needs to Drop Out**\
+`‘It’s a catastrophe,’ said the senator from Vermont, becoming the first Democrat from that chamber to publicly say the president should step aside.`\
+https://nytimes.com/2024/07/10/us/politics/peter-welch-biden-vt-democratic-senator.html
+
 **What to Know About the Wildfires in California**\
 `The state has had more than 3,500 wildfires this year, and the peak of the annual fire season has yet to arrive.`\
 https://nytimes.com/article/wildfires-california-forest.html

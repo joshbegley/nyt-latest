@@ -1,3 +1,7 @@
+**Peter Welch Explains Why He Thinks Biden Needs to Drop Out**\
+`‘It’s a catastrophe,’ said the senator from Vermont, becoming the first Democrat from that chamber to publicly say the president should step aside.`\
+https://nytimes.com/2024/07/10/us/politics/peter-welch-biden-vt-democratic-senator.html
+
 **What to Know About the Wildfires in California**\
 `The state has had more than 3,500 wildfires this year, and the peak of the annual fire season has yet to arrive.`\
 https://nytimes.com/article/wildfires-california-forest.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/10/us/biden-trump-election/a-top-democratic-fun
 **Carnage at Gaza School Compound Adds to Mounting Death Toll at U.N. Buildings**\
 `At least 27 people were killed when an Israeli airstrike exploded as people played soccer at a school turned shelter in southern Gaza.`\
 https://nytimes.com/2024/07/10/world/middleeast/gaza-schoolyard-strike-israel.html
-
-**President Biden, Voters Want Change**\
-`Election results in Britain and France show that voters can get behind liberal candidates as long as they’re fresh faces.`\
-https://nytimes.com/2024/07/10/opinion/biden-france-uk-elections.html
 
