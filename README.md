@@ -1,3 +1,7 @@
+**Apple Settles E.U. Case by Opening Its Payment Service to Rivals**\
+`Customers in Europe may see an influx of new apps and services for making tap-and-go purchases.`\
+https://nytimes.com/2024/07/11/business/apple-european-union-antitrust.html
+
 **Blue Jays hit with a cascade of injuries, including to Bo Bichette and Daulton Varsho**\
 `The Blue Jays can't catch a break on the injury front — prospects Ricky Tiedemann and Adam Macko and even a coach are also hurt.`\
 https://nytimes.com/athletic/5630656/2024/07/11/blue-jays-injuries-bichette-varsho-tiedemann/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5629874/2024/07/11/wild-aron-kiviharju-biggest-stea
 **Is the Bogus Fire for Real? Fire Officials Have a Way With Names.**\
 `Wildfire designations may seem random, but firefighters and dispatchers have their reasons for selecting them.`\
 https://nytimes.com/2024/07/11/us/is-the-bogus-fire-for-real-fire-officials-have-a-way-with-names.html
-
-**How the Netherlands shut down England's midfield advantage - and made Watkins the perfect substitution**\
-`Kobbie Mainoo was key to England's dominance until the Netherlands changed the game. It made one man the perfect answer off the bench`\
-https://nytimes.com/athletic/5630728/2024/07/11/netherlands-england-tactical-analysis/
 
