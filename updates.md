@@ -1,3 +1,11 @@
+**Spurs depth chart 1.0: Analyzing fits for Chris Paul and Harrison Barnes**\
+`Chris Paul and Harrison Barnes will bring some much needed experience to the Spurs lineup, but how will Gregg Popovich deploy them?`\
+https://nytimes.com/athletic/5630203/2024/07/11/spurs-chris-paul-harrison-barnes-depth-chart/
+
+**Canucks offseason mailbag, part 2: Trade targets to upgrade Vancouver's defense**\
+`Plus: Will the Canucks be as good next season as they were in 2023-24? Where do some of Vancouver's 2024 playoff moments rank all time?`\
+https://nytimes.com/athletic/5628360/2024/07/11/canucks-trade-targets-defense/
+
 **Pounding music, thudding bodies, flares and fun - on the march with the orange army**\
 `The Dutch fans descended en masse in Dortmund. The Athletic joined them for a cocktail of noise, colour, flares - and then heartbreak`\
 https://nytimes.com/athletic/5630312/2024/07/11/netherlands-england-dutch-fan-march/
