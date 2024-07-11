@@ -1,3 +1,11 @@
+**Leicester squad audit: De Cordova-Reid, Golding and Okoli in, but plenty out and gaps to fill**\
+`Leicester are a team transformed from when they were last in the Premier League. Here's how they're shaping up...`\
+https://nytimes.com/athletic/5626529/2024/07/11/leicester-squad-audit-2024-25/
+
+**The Phillies' mix-and-match bullpen is thriving. Should they trade for a fifth 'trusted' arm?**\
+`The Phillies trust four of their relievers late in games. They have three weeks to consider whether they need one more high-leverage arm.`\
+https://nytimes.com/athletic/5630538/2024/07/11/phillies-bullpen-trade-deadline-high-leverage-reliever/
+
 **Red Sox pitching has been a difference-maker, but they need to add more at deadline**\
 `The Red Sox's rotation has been surprisingly good, but they could use reinforcements for a second-half playoff push.`\
 https://nytimes.com/athletic/5630536/2024/07/11/red-sox-trade-deadline-pitching-needs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5627266/2024/07/11/mlb-odds-predictions-best-bets-j
 **How Democrats Will Choose a Nominee**\
 `Here is the party’s process for naming a candidate between now and Election Day, whether it is President Biden or someone else.`\
 https://nytimes.com/interactive/2024/07/11/us/politics/2024-election-biden-democratic-nominee.html
-
-**France Is Busing Homeless Immigrants Out of Paris Before the Olympics**\
-`The government promised housing elsewhere. We followed the buses and found a desperate situation.`\
-https://nytimes.com/2024/07/11/world/europe/france-is-busing-homeless-immigrants-out-of-paris-before-the-olympics.html
-
-**Could the Yankees' latest bargain-bin pickup Tim Hill be another success story?**\
-`Hill was released by the lowly White Sox in mid-June. Since then, he has impressed in several outings for the Yankees. `\
-https://nytimes.com/athletic/5630513/2024/07/10/yankees-tim-hill-rays-strikeout-success/
 
