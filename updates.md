@@ -1,3 +1,15 @@
+**Reclaiming Singapore’s Credit for Success: Removing Colonialist Statues**\
+`We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Emma Wang, age 15.`\
+https://nytimes.com/2024/07/11/learning/reclaiming-singapores-credit-for-success-removing-colonialist-statues.html
+
+**Germany to Strip Huawei From Its 5G Networks**\
+`Major telecom companies agreed to stop using critical components made by Chinese companies in their mobile infrastructure by 2029.`\
+https://nytimes.com/2024/07/11/business/huawei-germany-ban.html
+
+**Is Leon Draisaitl the best No. 2 ever? What could it mean for his next contract?**\
+`Could Draisaitl want to be the leading star elsewhere without Connor McDavid? Or strengthen his championship hopes with the Oilers?`\
+https://nytimes.com/athletic/5630087/2024/07/11/leon-draisaitl-oilers-contract-analysis/
+
 **How to Watch Biden’s News Conference on Thursday**\
 `President Biden will be under intense scrutiny when he takes questions from reporters at the end of a three-day NATO summit in Washington.`\
 https://nytimes.com/2024/07/11/us/politics/biden-press-conference-time-watch.html

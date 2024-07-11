@@ -1,3 +1,7 @@
+**Once a G.O.P. Rallying Cry, Debt and Deficits Fall From the Party’s Platform**\
+`Fiscal hawks are lamenting the transformation of the party that claimed to prize fiscal restraint and are warning of dire economic consequences.`\
+https://nytimes.com/2024/07/11/us/politics/republicans-debt-deficit-platform.html
+
 **Reclaiming Singapore’s Credit for Success: Removing Colonialist Statues**\
 `We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Emma Wang, age 15.`\
 https://nytimes.com/2024/07/11/learning/reclaiming-singapores-credit-for-success-removing-colonialist-statues.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/climate/citibank-protests-climate-fossil-fuel-nyc
 **Summer Horror Movies to Send a Chill Down Your Spine**\
 `At the drive-in, under the stars or in your living room, there are plenty of frights to be had before fall arrives.`\
 https://nytimes.com/2024/07/11/movies/summer-horror-movies.html
-
-**36 Hours in Izmir, Turkey**\
-`Thousands of years of culture and history converge in this vibrant, coastal city known as the “Pearl of the Aegean.”`\
-https://nytimes.com/interactive/2024/07/11/travel/things-to-do-izmir-turkey.html
 
