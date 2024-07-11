@@ -1,3 +1,11 @@
+**Biden Calls Zelensky ‘Putin’ at NATO Event**\
+`President Biden introduced President Volodymyr Zelensky of Ukraine as President Putin before correcting himself on Thursday afternoon after a NATO meeting.`\
+https://nytimes.com/video/us/politics/100000009567490/biden-zelensky-putin.html
+
+**10 Great Shelley Duvall Performances to Stream**\
+`In “The Shining,” “Popeye” and more, her unusual presence jumps off the screen. That’s true even in small roles in “Annie Hall” and “Time Bandits.”`\
+https://nytimes.com/2024/07/11/movies/shelley-duvall-movies-streaming.html
+
 **A Hurricane Divide in Houston: Who Has a Generator?**\
 `In the prolonged power outage after Hurricane Beryl, many well-to-do neighborhoods are humming with generators. Other residents are struggling to afford — or even find — one.`\
 https://nytimes.com/2024/07/11/us/houston-beryl-power-generators.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5632245/2024/07/11/wimbledon-womens-semifinals-reca
 **Wisconsin Radio Show Says It Edited Biden Interview at Campaign’s Request**\
 `“The Earl Ingram Show” cut two segments from an interview with the president that aired on July 4.`\
 https://nytimes.com/2024/07/11/us/politics/wisconsin-radio-show-edited-biden-interview.html
-
-**Costco Raises Membership Fees for First Time in 7 Years**\
-`An increase of more than 8 percent will take effect on Sept. 1. The base membership will go up by $5, to $65 per year.`\
-https://nytimes.com/2024/07/11/business/costco-membership-price-increase.html
-
-**Dorothy Lichtenstein, Philanthropist and a Rare ‘Artist’s Widow,’ Dies at 84**\
-`A gregarious yet humble co-founder of the Roy Lichtenstein Foundation, she donated more than 1,000 of her husband’s works, most notably to the Whitney Museum.`\
-https://nytimes.com/2024/07/11/arts/dorothy-lichtenstein-dead.html
 
