@@ -1,3 +1,7 @@
+**Biden Blames Elites, but Voters May Be His Bigger Problem**\
+`Even if President Biden can stem high-level Democratic defections, many Americans will still have grave concerns about his age and abilities.`\
+https://nytimes.com/2024/07/11/us/politics/biden-voters.html
+
 **A Changed Landscape**\
 `As Donald Trump heads to the Republican convention, his criminal cases look a lot less threatening.`\
 https://nytimes.com/2024/07/11/us/politics/trump-trial-republican-convention.html
