@@ -1,3 +1,7 @@
+**Investigators Find No Evidence of Sexual Harassment in Seton Hall Case**\
+`The university’s former president sued the school, saying a former board chairman harassed his wife. A law firm the university hired said no witnesses substantiated the claims.`\
+https://nytimes.com/2024/07/11/nyregion/seton-hall-sexual-harassment-case.html
+
 **NATO’s Pledges to Ukraine Fall Short for a Counteroffensive This Year**\
 `Weapons donations from the United States and European countries will take weeks, if not months, to reach the front lines.`\
 https://nytimes.com/2024/07/11/us/politics/nato-pledges-ukraine-fall-short.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/us/politics/biden-george-clooney-hollywood.html
 **Trump Cites Immunity and Asks Judge to Throw Out Hush-Money Conviction**\
 `A recent Supreme Court ruling should nullify the guilty verdict in Donald Trump’s Manhattan trial, his lawyers said. The argument could be a long shot.`\
 https://nytimes.com/2024/07/11/nyregion/trump-immunity-hush-money-conviction.html
-
-**How the Blues' Ryan Suter signing happened, and what it means for the team's logjam on defense**\
-`St. Louis has nine defensemen on NHL contracts after signing the 39-year-old veteran and will need to make a move at some point.`\
-https://nytimes.com/athletic/5632093/2024/07/11/blues-ryan-suter-defensive-logjam/
 
