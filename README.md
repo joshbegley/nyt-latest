@@ -1,3 +1,7 @@
+**A Beautiful Inflation Report**\
+`And a vindication for Bidenomics.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/krugman-inflation-report-bidenomics
+
 **Israeli Military Clears General Who Approved Fire on House With Hostages on Oct. 7**\
 `The military conceded that it had “failed in its mission” to protect an Israeli village from attack, but exonerated a general who oversaw the fighting there.`\
 https://nytimes.com/2024/07/11/world/middleeast/israeli-military-clears-general-who-approved-fire-on-house-with-hostages-on-oct-7.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/movies/inside-out-2-pixar-box-office.html
 **Bournemouth's Rothwell to undergo medical ahead of Leeds loan move**\
 `Bournemouth midfielder Joe Rothwell is set to undergo a medical ahead of a season-long loan move to Leeds United.`\
 https://nytimes.com/athletic/5631860/2024/07/11/bournemouth-leeds-rothwell-loan-transfer/
-
-**Have Potato Chips Reached Peak Price?**\
-`PepsiCo reports in its earnings that people are buying fewer salty snacks from its Frito-Lay brands. It’s not the only food company that is seeking to lure back consumers stung by high prices.`\
-https://nytimes.com/2024/07/11/business/snack-food-prices-pepsico.html
 
