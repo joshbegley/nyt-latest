@@ -1,3 +1,15 @@
+**Tens of Thousands of Students Protest Job Quotas in Bangladesh’s Streets**\
+`University students oppose the reinstatement of a quota system for government jobs that was abolished in 2018.`\
+https://nytimes.com/2024/07/11/world/asia/bandladesh-student-protests-job-quotas.html
+
+**Police Arrested Man at Capitol in Theft of Congressional Aides’ Phones**\
+`The man, who had been arrested days earlier on the Capitol grounds, was accused of stealing phones and other electronic devices belonging to national security aides who had left them outside a secure space.`\
+https://nytimes.com/2024/07/11/us/politics/congressional-aides-phone-theft.html
+
+**A.I.’s Insatiable Appetite for Energy**\
+`The soaring electricity demands of data centers and A.I. are straining the grid in some areas, pushing up emissions and slowing the energy transition.`\
+https://nytimes.com/2024/07/11/climate/artificial-intelligence-energy-usage.html
+
 **Ocasio-Cortez Loses the Democratic Socialists’ Endorsement Over Israel**\
 `The New York congresswoman was blamed for not being supportive enough of the Palestinian cause and efforts to end the war in Gaza.`\
 https://nytimes.com/2024/07/11/us/politics/aoc-dsa-endorsement.html

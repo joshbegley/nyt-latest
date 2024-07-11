@@ -1,3 +1,15 @@
+**Tens of Thousands of Students Protest Job Quotas in Bangladesh’s Streets**\
+`University students oppose the reinstatement of a quota system for government jobs that was abolished in 2018.`\
+https://nytimes.com/2024/07/11/world/asia/bandladesh-student-protests-job-quotas.html
+
+**Police Arrested Man at Capitol in Theft of Congressional Aides’ Phones**\
+`The man, who had been arrested days earlier on the Capitol grounds, was accused of stealing phones and other electronic devices belonging to national security aides who had left them outside a secure space.`\
+https://nytimes.com/2024/07/11/us/politics/congressional-aides-phone-theft.html
+
+**A.I.’s Insatiable Appetite for Energy**\
+`The soaring electricity demands of data centers and A.I. are straining the grid in some areas, pushing up emissions and slowing the energy transition.`\
+https://nytimes.com/2024/07/11/climate/artificial-intelligence-energy-usage.html
+
 **Ocasio-Cortez Loses the Democratic Socialists’ Endorsement Over Israel**\
 `The New York congresswoman was blamed for not being supportive enough of the Palestinian cause and efforts to end the war in Gaza.`\
 https://nytimes.com/2024/07/11/us/politics/aoc-dsa-endorsement.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/11/arts/music/new-york-philharmonic-gary-ginstling.h
 **What a Linguist Hears When Biden Speaks**\
 `Don’t fixate on a few shaggy phrases. There’s something bigger going on.`\
 https://nytimes.com/2024/07/11/opinion/biden-speaking-linguist.html
-
-**Biden Campaign Has Long Fed Softball Questions to Friendly Interviewers**\
-`A review of President Biden’s interviews shows he is often asked the same few questions in interviews. It’s not a coincidence.`\
-https://nytimes.com/2024/07/11/us/politics/biden-campaign-media-2024.html
-
-**It Turns Out the Picassos Anchoring a Gallery’s Exhibit Were Not by Picasso**\
-`The Museum of Old and New Art in Australia claimed to have placed several Picassos inside a women’s restroom to protest a court ruling against the women-only exhibit. The curator now says they were fake.`\
-https://nytimes.com/2024/07/11/world/australia/fake-picasso-tasmania-museum.html
-
-**In Europe, Tactical Voting Was a Big Winner. In the U.S. It Is Harder.**\
-`In France and England, parties worked to limit voters’ choices to avoid splitting votes.`\
-https://nytimes.com/2024/07/11/world/europe/europe-us-tactical-voting.html
 
