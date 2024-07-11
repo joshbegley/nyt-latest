@@ -1,3 +1,7 @@
+**England, a team of comebacks, late winners and finals. These are extraordinary times**\
+`For so long, England were a team of talent but they could not be relied upon to produce when it mattered most. All that has changed`\
+https://nytimes.com/athletic/5630276/2024/07/11/england-euros-final-netherlands/
+
 **A Trump Ally Is Training 75 Armed Citizens. Is That a Militia?**\
 `Bruce Blakeman, the Nassau County executive, is recruiting “special deputies” to deploy during disaster or unrest. Opponents say the move is dangerous.`\
 https://nytimes.com/2024/07/11/nyregion/bruce-blakeman-armed-citizens-long-island.html

@@ -19,7 +19,7 @@ https://nytimes.com/2024/07/11/arts/television/daily-show-biden.html
 https://nytimes.com/athletic/5630372/2024/07/11/netherlands-england-euro-2024-semi-final-golden-opportunity/
 
 **England, a team of comebacks, late winners and finals. These are extraordinary times**\
-`For so long England were a team of talent but they could not be relied upon to produce when it mattered most. All that has changed`\
+`For so long, England were a team of talent but they could not be relied upon to produce when it mattered most. All that has changed`\
 https://nytimes.com/athletic/5630276/2024/07/11/england-euros-final-netherlands/
 
 **Team USA finds rhythm in win vs. Canada: Takeaways**\
