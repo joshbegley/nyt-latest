@@ -1,3 +1,7 @@
+**Where all 30 teams stand on MLB trade deadline moves heading into the All-Star break**\
+`How is each team approaching the deadline? What needs are they focused on filling? What players could they trade away or look to acquire?`\
+https://nytimes.com/athletic/5628988/2024/07/11/mlb-trade-deadline-latest-30-teams-all-star-break/
+
 **Timberwolves offseason changes have been geared toward jump-starting their offense**\
 `"Going into next season, we’ve got to play faster," Timberwolves coach Chris Finch said.`\
 https://nytimes.com/athletic/5623126/2024/07/11/timberwolves-offseason-changes-offense/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/us/politics/nato-biden-trump.html
 **Biden Offers $1.7 Billion to Help Factories Build Electric Vehicles**\
 `A Jeep plant that closed last year will be among those that will benefit from federal grants meant to help automotive manufacturers and protect jobs.`\
 https://nytimes.com/2024/07/11/business/biden-administration-electric-vehicles.html
-
-**Searching the East Side of Manhattan for a Two-Bedroom Co-op. What Could They Get for Around $1 Million?**\
-`Renting a one-bedroom near two hospitals left a couple yearning for some quiet and a bigger kitchen. Here’s what they found.`\
-https://nytimes.com/interactive/2024/07/11/realestate/11hunt-shoemaker.html
 
