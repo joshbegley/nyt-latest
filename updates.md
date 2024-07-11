@@ -1,3 +1,7 @@
+**Kenya’s President Fires His Cabinet After Nationwide Protests**\
+`President William Ruto dismissed all but one of his cabinet secretaries after demonstrations over a finance bill that would have raised taxes led to the deaths of at least 39 people.`\
+https://nytimes.com/2024/07/11/world/africa/kenya-president-cabinet-protests.html
+
 **Housing costs, long stubborn, show signs of easing.**\
 `By Ben Casselman`\
 https://nytimes.com/live/2024/07/11/business/cpi-inflation-fed/housing-costs-long-stubborn-show-signs-of-easing
