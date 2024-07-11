@@ -1,3 +1,15 @@
+**New York Philharmonic Chief Abruptly Steps Down**\
+`Gary Ginstling, the orchestra’s president and chief executive, is leaving after just a year on the job.`\
+https://nytimes.com/2024/07/11/arts/music/new-york-philharmonic-gary-ginstling.html
+
+**What a Linguist Hears When Biden Speaks**\
+`Don’t fixate on a few shaggy phrases. There’s something bigger going on.`\
+https://nytimes.com/2024/07/11/opinion/what-a-linguist-hears-when-biden-speaks.html
+
+**Biden Campaign Has Long Fed Softball Questions to Friendly Interviewers**\
+`A review of President Biden’s interviews shows he is often asked the same few questions in interviews. It’s not a coincidence.`\
+https://nytimes.com/2024/07/11/us/politics/biden-campaign-media-2024.html
+
 **It Turns Out the Picassos Anchoring a Gallery’s Exhibit Were Not by Picasso**\
 `The Museum of Old and New Art in Australia claimed to have placed several Picassos inside a women’s restroom to protest a court ruling against the women-only exhibit. The curator now says they were fake.`\
 https://nytimes.com/2024/07/11/world/australia/fake-picasso-tasmania-museum.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/11/nyregion/montauk-fisherman-fluke-sentencing.html
 **‘Me’ Is a Lovely and Distinctive Tween Drama**\
 `Anchored by beautiful performances, this Apple TV+ superhero show surpasses its own genre clichés.`\
 https://nytimes.com/2024/07/11/arts/television/me-apple-tv-plus-superhero.html
-
-**Pentagon to Dismantle Temporary Pier Built for Gaza Aid Operation**\
-`The $230 million short-notice project has struggled to overcome rough seas and other problems since it started in May.`\
-https://nytimes.com/2024/07/11/us/politics/gaza-pier-aid.html
-
-**Is women's track the next sport ready to boom? Alexis Ohanian is betting on it**\
-`The latest investment in women's sports is in track, with Alexis Ohanian among those entering the fray. His new event debuts in September.`\
-https://nytimes.com/athletic/5631595/2024/07/11/olympics-track-gabby-thomas-alexis-ohanian-athlos/
-
-**Biden’s Pick to Lead F.D.I.C. Faces Little Resistance in Senate Hearing**\
-`Nominated for chair of the Federal Deposit Insurance Corporation, Christy Goldsmith Romero was cheered by Democrats and accepted by Republicans at a hearing.`\
-https://nytimes.com/2024/07/11/business/romero-fdic-confirmation-hearing.html
 
