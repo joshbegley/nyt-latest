@@ -1,3 +1,15 @@
+**It Turns Out the Picassos Anchoring a Gallery’s Exhibit Were Not by Picasso**\
+`The Museum of Old and New Art in Australia claimed to have placed several Picassos inside a women’s restroom to protest a court ruling against the women-only exhibit. The curator now says they were fake.`\
+https://nytimes.com/2024/07/11/world/australia/fake-picasso-tasmania-museum.html
+
+**In Europe, Tactical Voting Was a Big Winner. In the U.S. It Is Harder.**\
+`In France and England, parties worked to limit voters’ choices to avoid splitting votes.`\
+https://nytimes.com/2024/07/11/world/europe/europe-us-tactical-voting.html
+
+**Astros' Jose Altuve to sit out All-Star Game**\
+`Altuve is a nine-time All-Star, the most selections in franchise history, but has not attended an All-Star Game since 2018.`\
+https://nytimes.com/athletic/5632035/2024/07/11/jose-altuve-all-star-game-replacement-marcus-semien/
+
 **George Clooney’s Plea to President Biden**\
 `Readers discuss the actor’s guest essay about seeing the president’s decline at a fund-raiser he hosted.`\
 https://nytimes.com/2024/07/11/opinion/letters/joe-biden-george-clooney.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5631595/2024/07/11/olympics-track-gabby-thomas-alex
 **Biden’s Pick to Lead F.D.I.C. Faces Little Resistance in Senate Hearing**\
 `Nominated for chair of the Federal Deposit Insurance Corporation, Christy Goldsmith Romero was cheered by Democrats and accepted by Republicans at a hearing.`\
 https://nytimes.com/2024/07/11/business/romero-fdic-confirmation-hearing.html
-
-**Georgia has 2 players arrested on reckless driving charges**\
-`The Georgia athletic department declined to comment Thursday but expects to address the incidents at SEC media days next week in Dallas.`\
-https://nytimes.com/athletic/5631943/2024/07/11/georgia-reckless-driving-charges-smael-mondon/
-
-**Chris Kirchner sentenced to 20 years for fraud**\
-`The FBI arrested Kirchner on Valentine's Day 2023, issuing charges of wire fraud.`\
-https://nytimes.com/athletic/5630588/2024/07/11/chris-kirchner-sentence-fraud/
-
-**Twins super utilityman Willi Castro named to AL All-Star team as replacement**\
-`This is the first All-Star nod for Castro, who is hitting .268/.354/.430 with 22 doubles, seven home runs, 31 RBIs and 10 stolen bases. `\
-https://nytimes.com/athletic/5631926/2024/07/11/willi-castro-al-all-star-team-twins/
 
