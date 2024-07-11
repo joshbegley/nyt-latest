@@ -1,3 +1,11 @@
+**Corrections: July 11, 2024**\
+`Corrections that appeared in print on Thursday, July 11, 2024.`\
+https://nytimes.com/2024/07/10/pageoneplus/corrections-july-11-2024.html
+
+**Quotation of the Day: Swizz Beatz, Camel Races With Robot Jockeys, and the Prince**\
+`Quotation of the Day for Thursday, July 11, 2024.`\
+https://nytimes.com/2024/07/10/pageoneplus/quotation-of-the-day-swizz-beatz-camel-races-with-robot-jockeys-and-the-prince.html
+
 **Homers, speed spark Twins late as they salvage doubleheader, win series over White Sox**\
 `The Twins' streak of consecutive games with a homer stretched to 28 in the doubleheader.`\
 https://nytimes.com/athletic/5630393/2024/07/10/twins-white-sox-double-header-split-brooks-lee/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5630236/2024/07/10/deion-sanders-colorado-football-
 **Home Run Derby field set, Dodgers' Hernández signs up**\
 `Hernández is an All-Star for the second time after a disappointing season in Seattle that impacted his free-agent market.`\
 https://nytimes.com/athletic/5628013/2024/07/10/home-run-derby-field-players/
-
-**What's the latest on the Blue Jackets' coaching search? Who might be out?**\
-`One option to lead Columbus is no longer considered to be the leading candidate.`\
-https://nytimes.com/athletic/5630036/2024/07/10/blue-jackets-coaching-search/
-
-**City Illegally Fined Woman Over Profane Political Yard Sign, U.S. Judge Rules**\
-`A federal judge in Tennessee said that it was unconstitutional for the City of Lakeland, Tenn., to fine Julie Pereira for the sign she posted expressing disapproval of President Biden and Donald J. Trump.`\
-https://nytimes.com/2024/07/10/us/tennessee-yard-sign-biden-trump.html
 

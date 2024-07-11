@@ -1,3 +1,11 @@
+**Corrections: July 11, 2024**\
+`Corrections that appeared in print on Thursday, July 11, 2024.`\
+https://nytimes.com/2024/07/10/pageoneplus/corrections-july-11-2024.html
+
+**Quotation of the Day: Swizz Beatz, Camel Races With Robot Jockeys, and the Prince**\
+`Quotation of the Day for Thursday, July 11, 2024.`\
+https://nytimes.com/2024/07/10/pageoneplus/quotation-of-the-day-swizz-beatz-camel-races-with-robot-jockeys-and-the-prince.html
+
 **Homers, speed spark Twins late as they salvage doubleheader, win series over White Sox**\
 `The Twins' streak of consecutive games with a homer stretched to 28 in the doubleheader.`\
 https://nytimes.com/athletic/5630393/2024/07/10/twins-white-sox-double-header-split-brooks-lee/
