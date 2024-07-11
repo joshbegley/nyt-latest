@@ -1,3 +1,19 @@
+**Paul Skenes exits after seven no-hit innings**\
+`Pirates manager Derek Shelton pulled rookie starter Paul Skenes after seven no-hit innings on Thursday in Milwaukee.`\
+https://nytimes.com/athletic/5632500/2024/07/11/pirates-paul-skenes-no-hit-innings/
+
+**Arsenal's Lokonga to undergo medical ahead of Sevilla loan**\
+`Arsenal midfielder Albert Sambi Lokonga is set to undergo a medical on Friday ahead of a season-long loan move to Sevilla.`\
+https://nytimes.com/athletic/5632470/2024/07/11/arsenal-sevilla-lokonga-loan-transfer/
+
+**Dan Collins, Who Sought to Debunk Giuliani as a 9/11 Hero, Dies at 80**\
+`A journalist and author, he helped write a revisionist account of Rudolph Giuliani’s role as mayor before and after the terrorist attacks.`\
+https://nytimes.com/2024/07/11/books/dan-collins-dead.html
+
+**How should the Mets handle the trade deadline? Making cases for each approach**\
+`Just weeks after sitting 13th in the National League, New York is in playoff position. How will they approach the trade deadline?`\
+https://nytimes.com/athletic/5632306/2024/07/11/mets-trade-deadline-approach-analysis/
+
 **Biden Blames Elites, but Voters May Be His Bigger Problem**\
 `Even if President Biden can stem high-level Democratic defections, many Americans will still have grave concerns about his age and abilities.`\
 https://nytimes.com/2024/07/11/us/politics/biden-voters.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/07/11/climate/global-warming-heat-records.html
 **Gun Ammunition Vending Machines Installed at Grocery Stores in 3 States**\
 `The vending machines, sold by a company called American Rounds, sell ammunition that can be used in handguns, rifles and shotguns. They have been installed in Texas, Oklahoma and Alabama so far.`\
 https://nytimes.com/2024/07/11/us/ammunition-vending-machines.html
-
-**Three Day-to-Night Cafes For Your Summer Fridays**\
-`Breakfast sandwiches and lattes give way to kosho cod and Lambrusco.`\
-https://nytimes.com/2024/07/11/dining/summer-fridays-nyc-restaurants.html
-
-**Election Setbacks Leave France’s Far Right at a Crossroads**\
-`The National Rally’s campaign was marred by controversies that undercut its effort to convince voters that it was ready for power. Now, leaders are asking where the party goes from here.`\
-https://nytimes.com/2024/07/11/world/europe/france-far-right-bardella-national-rally.html
-
-**Real Madrid appoint Wicks as new CEO for the Santiago Bernabéu Stadium**\
-`Real Madrid have appointed their former director of sponsorship, retail and licensing, Alex Wicks, as the CEO of the new Santiago Bernabeu Stadium.`\
-https://nytimes.com/athletic/5632237/2024/07/11/real-madrid-appoint-ceo-wicks/
-
-**U.S. Uncovers Russian Plot to Assassinate C.E.O. of German Arms Maker**\
-`The company produces artillery shells and tanks that Ukraine has used in its war against Russia.`\
-https://nytimes.com/2024/07/11/us/politics/russia-assassination-plot-germany.html
 
