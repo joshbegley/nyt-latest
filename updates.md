@@ -1,3 +1,7 @@
+**Francois Letexier to referee Spain vs England in Euro 2024 final**\
+`Francois Letexier will referee Sunday&#8217;s European Championship final between Spain and England.`\
+https://nytimes.com/athletic/5630899/2024/07/11/spain-england-letexier-euro-2024-final-referee-who/
+
 **Cooking Oil in Dirty Fuel Tankers? Report Raises Alarms in China**\
 `Officials said they would start an investigation after a newspaper reported that a tanker used to carry liquefied coal was then used to transport soybean oil.`\
 https://nytimes.com/2024/07/11/world/asia/china-cooking-oil.html
