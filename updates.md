@@ -1,3 +1,15 @@
+**CONMEBOL open investigation into Copa America clash**\
+`The South American Football Confederation (CONMEBOL) have opened an investigation into the altercation involving Uruguay players and Colombia fans following the Copa America semifinal on Wednesday.`\
+https://nytimes.com/athletic/5632635/2024/07/11/colombia-uruguay-copa-america-nunez-clash/
+
+**Biden ‘Is a Fighter,’ Harris Says in North Carolina**\
+`At a rally in Greensboro, N.C., Vice President Kamala Harris called President Biden a fighter prepared to “get back up” from the challenges facing his campaign.`\
+https://nytimes.com/video/us/politics/100000009566744/harris-biden-north-carolina.html
+
+**Forza, forza, forza: In tennis' "big", Jasmine Paolini proves that a little can mean a lot**\
+`The 28-year-old Italian has gone from a good tour pro to a two-time Grand Slam finalist in just a few months. What's her secret?`\
+https://nytimes.com/athletic/5632130/2024/07/11/jasmine-paolini-tennis-player/
+
 **Friday Briefing: A Make-or-Break Moment for President Biden**\
 `Plus, a U.S. plan to deploy missiles in Germany angered Russia.`\
 https://nytimes.com/2024/07/11/briefing/biden-nato-germany-missile.html

@@ -1,3 +1,15 @@
+**CONMEBOL open investigation into Copa America clash**\
+`The South American Football Confederation (CONMEBOL) have opened an investigation into the altercation involving Uruguay players and Colombia fans following the Copa America semifinal on Wednesday.`\
+https://nytimes.com/athletic/5632635/2024/07/11/colombia-uruguay-copa-america-nunez-clash/
+
+**Biden ‘Is a Fighter,’ Harris Says in North Carolina**\
+`At a rally in Greensboro, N.C., Vice President Kamala Harris called President Biden a fighter prepared to “get back up” from the challenges facing his campaign.`\
+https://nytimes.com/video/us/politics/100000009566744/harris-biden-north-carolina.html
+
+**Forza, forza, forza: In tennis' "big", Jasmine Paolini proves that a little can mean a lot**\
+`The 28-year-old Italian has gone from a good tour pro to a two-time Grand Slam finalist in just a few months. What's her secret?`\
+https://nytimes.com/athletic/5632130/2024/07/11/jasmine-paolini-tennis-player/
+
 **Friday Briefing: A Make-or-Break Moment for President Biden**\
 `Plus, a U.S. plan to deploy missiles in Germany angered Russia.`\
 https://nytimes.com/2024/07/11/briefing/biden-nato-germany-missile.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/100000009566250/heat-power-outage-houston.html
 **Decision Time for Chuck Schumer?**\
 `The majority leader has been caught in an awkward spot as he balances his role as President Biden’s Senate champion with his determination to hold the majority and the White House.`\
 https://nytimes.com/2024/07/11/us/politics/schumer-biden-democrats-senate.html
-
-**Paul Skenes exits after seven no-hit innings**\
-`It was the latest dominant performance for Skenes, the former No. 1 pick who has taken the National League by storm in his rookie year.`\
-https://nytimes.com/athletic/5632500/2024/07/11/pirates-paul-skenes-no-hit-innings/
-
-**Arsenal's Lokonga to undergo medical ahead of Sevilla loan**\
-`Arsenal midfielder Albert Sambi Lokonga is set to undergo a medical on Friday ahead of a season-long loan move to Sevilla.`\
-https://nytimes.com/athletic/5632470/2024/07/11/arsenal-sevilla-lokonga-loan-transfer/
-
-**Dan Collins, 80, Author Who Rejected View of Giuliani as a 9/11 Hero, Dies**\
-`A journalist and author, he helped write a revisionist account of Rudolph Giuliani’s role as mayor before and after the terrorist attacks.`\
-https://nytimes.com/2024/07/11/books/dan-collins-dead.html
 
