@@ -1,3 +1,15 @@
+**‘The Daily Show’ Ribs Biden Over Democratic Detractors**\
+`“You know you’re in trouble if even Danny Ocean is saying, ‘We can’t pull this one off,’” Desi Lydic joked after George Clooney called for Biden to drop out.`\
+https://nytimes.com/2024/07/11/arts/television/daily-show-biden.html
+
+**The Netherlands' new pain: this wasn't a golden generation, but it was a golden opportunity**\
+`Wednesday's 2-1 defeat by England in the Euro 2024 semi-finals is just the latest unfortunate loss the Netherlands have suffered`\
+https://nytimes.com/athletic/5630372/2024/07/11/netherlands-england-euro-2024-semi-final-golden-opportunity/
+
+**Team USA finds rhythm in win vs. Canada: Takeaways**\
+`Anthony Davis produced what could be his first of many double-doubles with 10 points and 11 boards.`\
+https://nytimes.com/athletic/5630562/2024/07/11/team-usa-canada-exhibition-olympics/
+
 **England, a team of comebacks, late winners and finals. These are extraordinary times**\
 `For so long England were a team of talent but they could not be relied upon to produce when it mattered most. All that has changed`\
 https://nytimes.com/athletic/5630276/2024/07/11/england-euros-final-netherlands/
