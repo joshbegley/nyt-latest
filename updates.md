@@ -1,3 +1,11 @@
+**How to Watch Biden’s News Conference on Thursday**\
+`President Biden will be under intense scrutiny when he takes questions from reporters at the end of a three-day NATO summit in Washington.`\
+https://nytimes.com/2024/07/11/us/politics/biden-press-conference-time-watch.html
+
+**After French Election, Voters Are Resigned to Cost-of-Living Crisis**\
+`France’s parliamentary elections were intended to bring change, but many feared the political gridlock meant their struggle to pay bills would continue.`\
+https://nytimes.com/2024/07/11/business/france-elections-voter-discontent.html
+
 **McIlroy: Keegan Bradley’s Ryder Cup captaincy ‘a surprise’**\
 `Bradley will serve as the United States' Ryder Cup captain, a move that caught everyone off guard.`\
 https://nytimes.com/athletic/5631326/2024/07/11/rory-mcilroy-keegan-bradley-ryder-cup/
