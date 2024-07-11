@@ -1,3 +1,7 @@
+**Trump’s Team Plans to Go After Kamala Harris at Republican Convention**\
+`His advisers are eager to define the vice president and drive down her approval ratings in case President Biden drops out of the race and she becomes the nominee.`\
+https://nytimes.com/2024/07/11/us/politics/trump-kamala-harris-attacks.html
+
 **CONMEBOL open investigation into Copa America clash**\
 `The South American Football Confederation (CONMEBOL) have opened an investigation into the altercation involving Uruguay players and Colombia fans following the Copa America semifinal on Wednesday.`\
 https://nytimes.com/athletic/5632635/2024/07/11/colombia-uruguay-copa-america-nunez-clash/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/movies/shelley-duvall-the-shining.html
 **Houston Hospitals Overwhelmed Amid Power Outages and Heat Wave**\
 `Extreme heat in Texas has led officials to build a temporary field hospital in Houston after Hurricane Beryl left millions without power and no air conditioning.`\
 https://nytimes.com/video/us/100000009566250/heat-power-outage-houston.html
-
-**Decision Time for Chuck Schumer?**\
-`The majority leader has been caught in an awkward spot as he balances his role as President Biden’s Senate champion with his determination to hold the majority and the White House.`\
-https://nytimes.com/2024/07/11/us/politics/schumer-biden-democrats-senate.html
 

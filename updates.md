@@ -1,3 +1,7 @@
+**Trump’s Team Plans to Go After Kamala Harris at Republican Convention**\
+`His advisers are eager to define the vice president and drive down her approval ratings in case President Biden drops out of the race and she becomes the nominee.`\
+https://nytimes.com/2024/07/11/us/politics/trump-kamala-harris-attacks.html
+
 **CONMEBOL open investigation into Copa America clash**\
 `The South American Football Confederation (CONMEBOL) have opened an investigation into the altercation involving Uruguay players and Colombia fans following the Copa America semifinal on Wednesday.`\
 https://nytimes.com/athletic/5632635/2024/07/11/colombia-uruguay-copa-america-nunez-clash/
