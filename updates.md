@@ -1,3 +1,7 @@
+**Biden Mixes Up Kamala Harris and Donald Trump at News Conference**\
+`The gaffe referring to his own running mate as “Vice President Trump” during a closely watched news conference came shortly after he introduced the president of Ukraine as “President Putin.”`\
+https://nytimes.com/live/2024/07/11/us/biden-news-trump-election/biden-harris-trump-putin-zelensky
+
 **Investigators Find No Evidence of Sexual Harassment in Seton Hall Case**\
 `The university’s former president sued the school, saying a former board chairman harassed his wife. A law firm the university hired said no witnesses substantiated the claims.`\
 https://nytimes.com/2024/07/11/nyregion/seton-hall-sexual-harassment-case.html
