@@ -1,3 +1,7 @@
+**We Made You a Tomato Meal Plan**\
+`Ali Slagle has three new vegetarian recipes that center on sweet, juicy cherry tomatoes.`\
+https://nytimes.com/2024/07/11/dining/how-to-use-your-summer-tomatoes.html
+
 **Toronto FC president Bill Manning parting ways with MLSE**\
 `Manning has long played more of a role in the club’s sporting direction than many other presidents of MLS clubs.`\
 https://nytimes.com/athletic/5631714/2024/07/11/toronto-fc-bill-manning-president-parting-ways/

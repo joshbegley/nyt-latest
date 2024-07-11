@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5631714/2024/07/11/toronto-fc-bill-manning-president-parting-ways/
 
 **We Made You a Tomato Meal Plan**\
-`By Tanya Sichynsky`\
+`Ali Slagle has three new vegetarian recipes that center on sweet, juicy cherry tomatoes.`\
 https://nytimes.com/2024/07/11/dining/how-to-use-your-summer-tomatoes.html
 
 **Concerned About Metals in Tampons? Here’s What to Know.**\
