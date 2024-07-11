@@ -1,3 +1,11 @@
+**Covering on Spire of a Cathedral That Monet Painted Catches Fire**\
+`The cause of the blaze at the cathedral in Rouen, France, whose facade Claude Monet depicted dozens of times, was unknown.`\
+https://nytimes.com/2024/07/11/world/europe/france-fire-rouen-cathedral.html
+
+**Haaland to be most expensive FPL asset ever**\
+`Erling Haaland will be the most expensive Fantasy Premier League asset ever after his price rose for the 2024-25 season.`\
+https://nytimes.com/athletic/5630970/2024/07/11/fpl-price-reveals-24-25-haaland/
+
 **As inflation cools, political pressure on the Fed ramps up.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/07/11/business/cpi-inflation-fed/as-inflation-cools-political-pressure-on-the-fed-ramps-up

@@ -1,3 +1,11 @@
+**Covering on Spire of a Cathedral That Monet Painted Catches Fire**\
+`The cause of the blaze at the cathedral in Rouen, France, whose facade Claude Monet depicted dozens of times, was unknown.`\
+https://nytimes.com/2024/07/11/world/europe/france-fire-rouen-cathedral.html
+
+**Haaland to be most expensive FPL asset ever**\
+`Erling Haaland will be the most expensive Fantasy Premier League asset ever after his price rose for the 2024-25 season.`\
+https://nytimes.com/athletic/5630970/2024/07/11/fpl-price-reveals-24-25-haaland/
+
 **As inflation cools, political pressure on the Fed ramps up.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/07/11/business/cpi-inflation-fed/as-inflation-cools-political-pressure-on-the-fed-ramps-up
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5629250/2024/07/11/bruins-prospects-roster-2024-25/
 **‘Sorry/Not Sorry’ Review: Does Louis C.K. Get the Last Laugh?**\
 `Cara Mones and Caroline Suh’s earnest and frustrating documentary, produced by The New York Times, has a bitter punchline.`\
 https://nytimes.com/2024/07/11/movies/sorry-not-sorry-review.html
-
-**‘Fly Me to the Moon’ Review: This NASA Rom-Com Stays Earthbound**\
-`Greg Berlanti’s movie, starring Scarlett Johansson and Channing Tatum as only mildly mismatched lovers, is set against the backdrop of the Apollo 11 landing.`\
-https://nytimes.com/2024/07/11/movies/fly-me-to-the-moon-review.html
-
-**‘Dandelion’ Review: The Notes in Between**\
-`KiKi Layne stars as a struggling musician who meets a rakish Scottish singer (Thomas Doherty) while on the road.`\
-https://nytimes.com/2024/07/11/movies/dandelion-review.html
 
