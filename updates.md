@@ -1,3 +1,7 @@
+**How Biden Lost George Clooney and Hollywood**\
+`The president’s stable of big donors, corralled in part by the movie mogul Jeffrey Katzenberg, has been devastated since his debate, with many closing their wallets.`\
+https://nytimes.com/2024/07/11/us/politics/biden-george-clooney-hollywood.html
+
 **Trump Cites Immunity and Asks Judge to Throw Out Hush-Money Conviction**\
 `A recent Supreme Court ruling should nullify the guilty verdict in Donald Trump’s Manhattan trial, his lawyers said. The argument could be a long shot.`\
 https://nytimes.com/2024/07/11/nyregion/trump-immunity-hush-money-conviction.html
