@@ -1,3 +1,11 @@
+**Toronto FC president Bill Manning parting ways with MLSE**\
+`Manning has long played more of a role in the club’s sporting direction than many other presidents of MLS clubs.`\
+https://nytimes.com/athletic/5631714/2024/07/11/toronto-fc-bill-manning-president-parting-ways/
+
+**We Made You a Tomato Meal Plan**\
+`By Tanya Sichynsky`\
+https://nytimes.com/2024/07/11/dining/how-to-use-your-summer-tomatoes.html
+
 **Concerned About Metals in Tampons? Here’s What to Know.**\
 `A recent study detected a number of metals in many types of tampons. Experts weigh in on the findings and what they could mean for your health.`\
 https://nytimes.com/2024/07/11/well/tampons-arsenic-lead-heavy-metals-toxic.html
