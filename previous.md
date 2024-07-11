@@ -1,3 +1,11 @@
+**Flash Flooding Leads to Evacuations and Rescues in Central Vermont**\
+`The downpour took place exactly a year after a storm caused devastating flooding in some of the same towns.`\
+https://nytimes.com/2024/07/11/us/vermont-flood.html
+
+**Once a G.O.P. Rallying Cry, Debt and Deficits Fall From the Party’s Platform**\
+`Fiscal hawks are lamenting the transformation of the party that claimed to prize fiscal restraint and are warning of dire economic consequences.`\
+https://nytimes.com/2024/07/11/us/politics/republicans-debt-deficit-platform.html
+
 **Reclaiming Singapore’s Credit for Success: Removing Colonialist Statues**\
 `We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Emma Wang, age 15.`\
 https://nytimes.com/2024/07/11/learning/reclaiming-singapores-credit-for-success-removing-colonialist-statues.html
@@ -15,7 +23,7 @@ https://nytimes.com/athletic/5630087/2024/07/11/leon-draisaitl-oilers-contract-a
 https://nytimes.com/2024/07/11/us/politics/biden-press-conference-time-watch.html
 
 **After French Election, Voters Are Resigned to Cost-of-Living Crisis**\
-`France’s parliamentary elections were intended to bring change, but many feared the political gridlock meant their struggle to pay bills would continue.`\
+`France’s parliamentary elections were intended to bring change, but many fear the political gridlock means their struggle to pay bills will continue.`\
 https://nytimes.com/2024/07/11/business/france-elections-voter-discontent.html
 
 **McIlroy: Keegan Bradley’s Ryder Cup captaincy ‘a surprise’**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/11/us/politics/teamsters-trump-biden.html
 **In New York, Protesting the Backers of Big Oil With Die-Ins, Drums and Song**\
 `Amid soaring temperatures, hundreds of activists are staging boisterous blockades and solemn marches at banks and insurers that support fossil fuel projects.`\
 https://nytimes.com/2024/07/11/climate/citibank-protests-climate-fossil-fuel-nyc.html
-
-**Summer Horror Movies to Send a Chill Down Your Spine**\
-`At the drive-in, under the stars or in your living room, there are plenty of frights to be had before fall arrives.`\
-https://nytimes.com/2024/07/11/movies/summer-horror-movies.html
-
-**36 Hours in Izmir, Turkey**\
-`Thousands of years of culture and history converge in this vibrant, coastal city known as the “Pearl of the Aegean.”`\
-https://nytimes.com/interactive/2024/07/11/travel/things-to-do-izmir-turkey.html
 

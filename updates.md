@@ -1,3 +1,15 @@
+**Flash Flooding Leads to Evacuations and Rescues in Central Vermont**\
+`The downpour took place exactly a year after a storm caused devastating flooding in some of the same towns.`\
+https://nytimes.com/2024/07/11/us/vermont-flood.html
+
+**Once a G.O.P. Rallying Cry, Debt and Deficits Fall From the Party’s Platform**\
+`Fiscal hawks are lamenting the transformation of the party that claimed to prize fiscal restraint and are warning of dire economic consequences.`\
+https://nytimes.com/2024/07/11/us/politics/republicans-debt-deficit-platform.html
+
+**After French Election, Voters Are Resigned to Cost-of-Living Crisis**\
+`France’s parliamentary elections were intended to bring change, but many fear the political gridlock means their struggle to pay bills will continue.`\
+https://nytimes.com/2024/07/11/business/france-elections-voter-discontent.html
+
 **Reclaiming Singapore’s Credit for Success: Removing Colonialist Statues**\
 `We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Emma Wang, age 15.`\
 https://nytimes.com/2024/07/11/learning/reclaiming-singapores-credit-for-success-removing-colonialist-statues.html
