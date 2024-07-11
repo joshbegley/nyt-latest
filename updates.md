@@ -1,3 +1,7 @@
+**What to Know About the Wildfires in California**\
+`The state has had more than 3,500 wildfires this year, and the peak of the annual fire season has yet to arrive.`\
+https://nytimes.com/article/wildfires-california-forest.html
+
 **Watkins, Palmer, and an England goal that was worth the wait**\
 `England's winning strike against the Netherlands was proof that patience can pay off`\
 https://nytimes.com/athletic/5630246/2024/07/10/ollie-watkins-cole-palmer-england-euro-2024-goal/
