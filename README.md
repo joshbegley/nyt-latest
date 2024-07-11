@@ -1,3 +1,11 @@
+**Trump Cites Immunity and Asks Judge to Throw Out Hush-Money Conviction**\
+`A recent Supreme Court ruling should nullify the guilty verdict in Donald Trump’s Manhattan trial, his lawyers said. The argument could be a long shot.`\
+https://nytimes.com/2024/07/11/nyregion/trump-immunity-hush-money-conviction.html
+
+**How the Blues' Ryan Suter signing happened, and what it means for the team's logjam on defense**\
+`St. Louis has nine defensemen on NHL contracts after signing the 39-year-old veteran and will need to make a move at some point.`\
+https://nytimes.com/athletic/5632093/2024/07/11/blues-ryan-suter-defensive-logjam/
+
 **The Call Is Coming From Inside the White House**\
 `Biden takes the stage in Washington as doubts about his candidacy spread among his own staff.`\
 https://nytimes.com/2024/07/11/us/politics/biden-press-conference-democrats.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/11/books/review/new-books-recommendations.html
 **Kamala Harris Says Biden Is a ‘Fighter’ at North Carolina Rally**\
 `At a time when the president’s vigor is an issue, his vice president said he was battle-tough and warned about another Trump term.`\
 https://nytimes.com/2024/07/11/us/politics/kamala-harris-biden-rally-north-carolina.html
-
-**Biden Addresses Reporters at a High-Stakes Moment**\
-`Also, a welcome slowdown in inflation. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2024/07/11/briefing/biden-news-conference-inflation-report.html
-
-**Investing in Employee Well-being, One Benefit at a Time**\
-`How businesses can gain a competitive edge with modern group benefits.`\
-https://nytimes.com/paidpost/humana/investing-in-employee-well-being-one-benefit-at-a-time.html
 
