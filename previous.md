@@ -1,3 +1,23 @@
+**Klopp rebuffs offer to coach USMNT**\
+`Jurgen Klopp has rebuffed an approach from the United States Soccer Federation (USSF) to take over as the men&#8217;s national team head coach following the dismissal of Gregg Berhalter.`\
+https://nytimes.com/athletic/5630946/2024/07/11/jurgen-klopp-usmnt-next-coach-rejected/
+
+**Witnessing the rise of England hero Ollie Watkins - 'I walked off saying, 'He was too good for me'**\
+`Watkins has become one of the most potent forwards in Europe – The Athletic asked those who tried to stop him in his tracks what it's like`\
+https://nytimes.com/athletic/5561802/2024/07/11/england-hero-ollie-watkins-aston-villa/
+
+**When Fighting Disinformation, Even the Best Tools Are Not Enough**\
+`Researchers have learned plenty about misinformation and how it spreads. But they’re still struggling to figure out how to stop it.`\
+https://nytimes.com/2024/07/11/technology/disinformation-tools.html
+
+**Spain's Euro 2012 winners and Euro 2024 finalists: Who makes the cut in a best XI?**\
+`Who makes our combined XI from Spain's Euro 2012 winners and their finalists who will face England for the title on Sunday?`\
+https://nytimes.com/athletic/5630985/2024/07/11/spain-euro-2024-england-final-line-ups-2012/
+
+**This Is How You Know Trump Smells Victory**\
+`He’s … a bit calmer. Which freaks me out.`\
+https://nytimes.com/2024/07/11/opinion/biden-trump-election-debate.html
+
 **Shelley Duvall, Star of ‘The Shining’ and ‘Nashville,’ Dies at 75**\
 `Her lithesome features and quirky screen presence made her a popular figure in 1970s movies, particularly Robert Altman’s.`\
 https://nytimes.com/2024/07/11/arts/shelley-duvall-dead.html
@@ -17,24 +37,4 @@ https://nytimes.com/live/2024/07/11/world/israel-gaza-war-hamas/gaza-city-reside
 **Cue the Christmas Music: Hallmark Is Finally Joining the Streaming Fray**\
 `Hallmark+, which arrives in September, will include free greeting cards and a “Hallmark Hunk” competition show.`\
 https://nytimes.com/2024/07/11/business/hallmark-plus-streaming.html
-
-**Why Trump Supporters Keep Avoiding Convictions on Election Charges**\
-`Frustrated prosecutors and alarmed election officials are finding that it’s not always easy to make charges stick for those who interfere with elections, including many of the Capitol rioters.`\
-https://nytimes.com/2024/07/11/us/politics/trump-2020-election-convictions.html
-
-**Until Saturday: Big 12 (and Pac-12?) media days takeaways, EA's player No. 100**\
-`Welcome to the Until Saturday, the five-star college football newsletter. `\
-https://nytimes.com/athletic/5631535/2024/07/11/big-12-media-days-college-football-until-saturday/
-
-**Spain not 'protecting' Williams from 'unreasonable' questions on Athletic future**\
-`Athletic Bilbao president Jon Uriarte has criticised the Spanish Football Federation (RFEF) for not &#8220;protecting&#8221; Nico Williams from an &#8220;uncontrolled and unreasonable&#8221; amount of questions about his club future during the European Championship.`\
-https://nytimes.com/athletic/5631110/2024/07/11/nico-williams-athletic-bilbao-spain/
-
-**Jasmine Paolini beats Donna Vekic to reach Wimbledon final after knifeedge match tiebreak**\
-`Jasmine Paolini beat Donna Vekic 2-6, 6-4, 7-6(8) to reach her first Wimbledon final, coming through a 10-point match tiebreak that decided one of the most compelling and tense matches of the Championships so far.`\
-https://nytimes.com/athletic/5631403/2024/07/11/jasmine-paolini-wimbledon-semifinal-donna-vekic/
-
-**Van de Beek completes Girona move**\
-`Donny van de Beek has completed his move to Girona from Manchester United.`\
-https://nytimes.com/athletic/5621551/2024/07/11/man-utd-donny-van-de-beek-girona/
 

@@ -1,3 +1,23 @@
+**Klopp rebuffs offer to coach USMNT**\
+`Jurgen Klopp has rebuffed an approach from the United States Soccer Federation (USSF) to take over as the men&#8217;s national team head coach following the dismissal of Gregg Berhalter.`\
+https://nytimes.com/athletic/5630946/2024/07/11/jurgen-klopp-usmnt-next-coach-rejected/
+
+**Witnessing the rise of England hero Ollie Watkins - 'I walked off saying, 'He was too good for me'**\
+`Watkins has become one of the most potent forwards in Europe – The Athletic asked those who tried to stop him in his tracks what it's like`\
+https://nytimes.com/athletic/5561802/2024/07/11/england-hero-ollie-watkins-aston-villa/
+
+**When Fighting Disinformation, Even the Best Tools Are Not Enough**\
+`Researchers have learned plenty about misinformation and how it spreads. But they’re still struggling to figure out how to stop it.`\
+https://nytimes.com/2024/07/11/technology/disinformation-tools.html
+
+**Spain's Euro 2012 winners and Euro 2024 finalists: Who makes the cut in a best XI?**\
+`Who makes our combined XI from Spain's Euro 2012 winners and their finalists who will face England for the title on Sunday?`\
+https://nytimes.com/athletic/5630985/2024/07/11/spain-euro-2024-england-final-line-ups-2012/
+
+**This Is How You Know Trump Smells Victory**\
+`He’s … a bit calmer. Which freaks me out.`\
+https://nytimes.com/2024/07/11/opinion/biden-trump-election-debate.html
+
 **Shelley Duvall, Star of ‘The Shining’ and ‘Nashville,’ Dies at 75**\
 `Her lithesome features and quirky screen presence made her a popular figure in 1970s movies, particularly Robert Altman’s.`\
 https://nytimes.com/2024/07/11/arts/shelley-duvall-dead.html
