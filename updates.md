@@ -1,3 +1,15 @@
+**Many in Gaza City Ignore Israeli Military’s Calls to Evacuate**\
+`Some civilians are fatigued by their repeated displacements, while others say there is no point in going to other areas that may be just as dangerous.`\
+https://nytimes.com/2024/07/11/world/middleeast/gaza-city-evacuation-israel-military.html
+
+**The Deep Source of Trump’s Appeal**\
+`The problem with identity politics becoming our moral system is that it undermines democracy.`\
+https://nytimes.com/2024/07/11/opinion/trump-biden-authoritarianism.html
+
+**Why Does the G.O.P. Despise America?**\
+`Self-proclaimed patriots keep trash-talking their own country.`\
+https://nytimes.com/2024/07/11/opinion/trump-republican-platform.html
+
 **Biden Calls Zelensky ‘Putin’ at NATO Event**\
 `President Biden introduced President Volodymyr Zelensky of Ukraine as President Putin before correcting himself on Thursday afternoon after a NATO meeting.`\
 https://nytimes.com/video/us/politics/100000009567490/biden-zelensky-putin.html
