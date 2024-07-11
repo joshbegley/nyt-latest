@@ -1,3 +1,7 @@
+**Is the Deion Sanders way working at Colorado? It depends which way you look at it**\
+`Sanders views his 4-8 debut season with the Buffs more favorably than most. “My wins are totally different than your wins," he said.`\
+https://nytimes.com/athletic/5630236/2024/07/10/deion-sanders-colorado-football-big-12-media-days/
+
 **Home Run Derby field set, Dodgers' Hernández signs up**\
 `Hernández is an All-Star for the second time after a disappointing season in Seattle that impacted his free-agent market.`\
 https://nytimes.com/athletic/5628013/2024/07/10/home-run-derby-field-players/

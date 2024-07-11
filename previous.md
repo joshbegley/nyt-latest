@@ -1,3 +1,7 @@
+**Is the Deion Sanders way working at Colorado? It depends which way you look at it**\
+`Sanders views his 4-8 debut season with the Buffs more favorably than most. “My wins are totally different than your wins," he said.`\
+https://nytimes.com/athletic/5630236/2024/07/10/deion-sanders-colorado-football-big-12-media-days/
+
 **Home Run Derby field set, Dodgers' Hernández signs up**\
 `Hernández is an All-Star for the second time after a disappointing season in Seattle that impacted his free-agent market.`\
 https://nytimes.com/athletic/5628013/2024/07/10/home-run-derby-field-players/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/10/us/politics/biden-speech-articulation.html
 **Southgate explains Trippier substitution in England semi-final win**\
 `Gareth Southgate says England &#8220;didn’t want to take any chances&#8221; with Kieran Trippier after he was taken off during their semi-final win over the Netherlands on Wednesday.`\
 https://nytimes.com/athletic/5630134/2024/07/10/kieran-trippier-injury-england/
-
-**David Liederman, Who Found Sweet Success With David’s Cookies, Dies at 75**\
-`His innovative version of the chocolate chip cookie, studded with irregular pieces of dark Swiss chocolate, led to a chain of more than 100 stores worldwide.`\
-https://nytimes.com/2024/07/10/dining/david-liederman-dead.html
 
