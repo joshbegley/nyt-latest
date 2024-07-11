@@ -1,3 +1,11 @@
+**Cincinnati Reds MLB draft preview: Which player is the team eyeing for the No. 2 pick?**\
+`In the end, the Guardians will take away one option — but the second choice won't be one that the team is unhappy with.`\
+https://nytimes.com/athletic/5630607/2024/07/11/reds-mlb-draft-preview/
+
+**U.S. Will Allow Delivery of 500-pound Bombs to Israel, an Official Says**\
+`The bombs had been part of a shipment that President Biden withheld out of concerns over civilian deaths in Gaza.`\
+https://nytimes.com/2024/07/11/world/middleeast/us-israel-bombs.html
+
 **Las Vegas Heat Breaks Records and Stuns Even the Forecasters**\
 `A brutal heat wave that has gripped the West for days will shift eastward on the weekend, while much of sweltering Houston still lacks electricity.`\
 https://nytimes.com/2024/07/11/us/las-vegas-heat-houston-power.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/11/technology/disinformation-tools.html
 **Spain's Euro 2012 winners and Euro 2024 finalists: Who makes the cut in a best XI?**\
 `Who makes our combined XI from Spain's Euro 2012 winners and their finalists who will face England for the title on Sunday?`\
 https://nytimes.com/athletic/5630985/2024/07/11/spain-euro-2024-england-final-line-ups-2012/
-
-**This Is How You Know Trump Smells Victory**\
-`He’s … a bit calmer. Which freaks me out.`\
-https://nytimes.com/2024/07/11/opinion/biden-trump-election-debate.html
-
-**Shelley Duvall, Star of ‘The Shining’ and ‘Nashville,’ Dies at 75**\
-`Her lithesome features and quirky screen presence made her a popular figure in 1970s movies, particularly Robert Altman’s.`\
-https://nytimes.com/2024/07/11/arts/shelley-duvall-dead.html
 
