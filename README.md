@@ -1,3 +1,15 @@
+**House Defeats Measure to Fine Garland Over Refusal to Share Biden Audio**\
+`Four Republicans opposed the bid to fine the attorney general $10,000 a day for his refusal to comply with a congressional subpoena for recordings of the president’s interview with a special counsel.`\
+https://nytimes.com/2024/07/11/us/politics/house-fine-garland-biden-contempt.html
+
+**A ‘Simpsons’ Joke Comes True for Cypress Hill**\
+`The famed California hip-hop group played with the London Symphony Orchestra — 28 years after The Simpsons dreamed up the collaboration.`\
+https://nytimes.com/2024/07/11/arts/music/cypress-hill-simpsons-london-joke.html
+
+**The Embattled Biden Campaign Tests Kamala Harris’s Strength vs. Trump**\
+`The campaign is quietly carrying out a head-to-head survey of voters between the vice president and Donald Trump, in a sign of the uncertainty even atop the Democratic Party.`\
+https://nytimes.com/2024/07/11/us/politics/biden-kamala-harris-poll-trump.html
+
 **Klopp rebuffs approach to coach USMNT**\
 `The German left Liverpool in May, citing 'running out of energy'`\
 https://nytimes.com/athletic/5630946/2024/07/11/jurgen-klopp-usmnt-next-coach-rejected/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/11/arts/shelley-duvall-dead.html
 **Can Movies for Grown-Ups Still Sell Tickets? ‘Fly Me to the Moon’ Is a Test.**\
 `Directed by Greg Berlanti, the film amounts to a Hollywood experiment: Is there still room at the multiplexes for original movies aimed at grown-ups.`\
 https://nytimes.com/2024/07/11/business/media/fly-me-to-the-moon-greg-berlanti.html
-
-**Titans agree to deal with Jamal Adams**\
-`Adams, 28, has only played in 10 games the past two seasons with Seattle.`\
-https://nytimes.com/athletic/5631489/2024/07/11/jamal-adams-titans-contract/
-
-**Gaza City residents say they won’t leave, despite warnings from the Israeli military.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/live/2024/07/11/world/israel-gaza-war-hamas/gaza-city-residents-say-they-wont-leave-despite-warnings-from-the-israeli-military
-
-**Cue the Christmas Music: Hallmark Is Finally Joining the Streaming Fray**\
-`Hallmark+, which arrives in September, will include free greeting cards and a “Hallmark Hunk” competition show.`\
-https://nytimes.com/2024/07/11/business/hallmark-plus-streaming.html
 
