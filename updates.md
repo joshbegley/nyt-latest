@@ -1,3 +1,7 @@
+**Timberwolves offseason changes have been geared toward jump-starting their offense**\
+`"Going into next season, we’ve got to play faster," Timberwolves coach Chris Finch said.`\
+https://nytimes.com/athletic/5623126/2024/07/11/timberwolves-offseason-changes-offense/
+
 **Donald Trump Is Unfit to Lead**\
 `He failed the tests of leadership and betrayed America. Voters must stand up to him in November.`\
 https://nytimes.com/interactive/2024/07/11/opinion/editorials/donald-trump-2024-unfit.html

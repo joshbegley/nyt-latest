@@ -1,3 +1,7 @@
+**Timberwolves offseason changes have been geared toward jump-starting their offense**\
+`"Going into next season, we’ve got to play faster," Timberwolves coach Chris Finch said.`\
+https://nytimes.com/athletic/5623126/2024/07/11/timberwolves-offseason-changes-offense/
+
 **Donald Trump Is Unfit to Lead**\
 `He failed the tests of leadership and betrayed America. Voters must stand up to him in November.`\
 https://nytimes.com/interactive/2024/07/11/opinion/editorials/donald-trump-2024-unfit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/business/biden-administration-electric-vehicles.h
 **Searching the East Side of Manhattan for a Two-Bedroom Co-op. What Could They Get for Around $1 Million?**\
 `Renting a one-bedroom near two hospitals left a couple yearning for some quiet and a bigger kitchen. Here’s what they found.`\
 https://nytimes.com/interactive/2024/07/11/realestate/11hunt-shoemaker.html
-
-**Everything You Need for Eating Outside This Summer**\
-`Items that will elevate your warm-weather gatherings, from canned rosé to colorful lawn chairs.`\
-https://nytimes.com/2024/07/11/t-magazine/picnic-outdoor-dining-summer.html
 
