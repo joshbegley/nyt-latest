@@ -1,3 +1,19 @@
+**Pounding music, thudding bodies, flares and fun - on the march with the orange army**\
+`The Dutch fans descended en masse in Dortmund. The Athletic joined them for a cocktail of noise, colour, flares - and then heartbreak`\
+https://nytimes.com/athletic/5630312/2024/07/11/netherlands-england-dutch-fan-march/
+
+**Aron Kiviharju's 'strong first impression' continues as Wild get to know the player behind the hot-mic intro**\
+`Bill Guerin on Kiviharju and his viral moment: "He’s going to be the biggest steal in the draft. Just for confidence like that, I love it."`\
+https://nytimes.com/athletic/5629874/2024/07/11/wild-aron-kiviharju-biggest-steal-of-draft/
+
+**Is the Bogus Fire for Real? Fire Officials Have a Way With Names.**\
+`Wildfire designations may seem random, but firefighters and dispatchers have their reasons for selecting them.`\
+https://nytimes.com/2024/07/11/us/is-the-bogus-fire-for-real-fire-officials-have-a-way-with-names.html
+
+**How the Netherlands shut down England's midfield advantage - and made Watkins the perfect substitution**\
+`Kobbie Mainoo was key to England's dominance until the Netherlands changed the game. It made one man the perfect answer off the bench`\
+https://nytimes.com/athletic/5630728/2024/07/11/netherlands-england-tactical-analysis/
+
 **Shota Imanaga’s first-half brilliance kept his team relevant. Now the Cubs have to do something about it**\
 `Imanaga continues to keep his team relevant, outdueling Corbin Burnes in Wednesday’s 4-0 win over the Baltimore Orioles.`\
 https://nytimes.com/athletic/5630596/2024/07/11/shota-imanaga-cubs-first-half-mlb-trade-deadline/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5623349/2024/07/11/joao-palhinha-bayern-munich-fulh
 **Should Matthew Coronato start in the NHL or AHL next season? Flames mailbag**\
 `Also, it appears less and less likely that Oliver Kylington will return to the Flames next season. `\
 https://nytimes.com/athletic/5619050/2024/07/11/flames-mailbag-coronato-kylington/
-
-**Broncos position battles: A closer look at 5 spots up for grabs in training camp**\
-`The quarterback race will garner headlines, but the Broncos have competition for starting jobs at other key spots on the roster, too.`\
-https://nytimes.com/athletic/5621741/2024/07/11/broncos-position-battles-training-camp/
-
-**Living an England match through social media: Southgate lookalikes, camera angles and memes**\
-`When watching England, it's no longer enough to lob a pint at a big screen and hug a stranger. Now you must also peruse social media`\
-https://nytimes.com/athletic/5629563/2024/07/11/england-netherlands-euros-social-media/
-
-**‘Touch’ Review: An Old-School Tear-Jerker, With a Twist**\
-`An Icelandic widower revisits London, the site of his first romance, in this film from Baltasar Kormakur.`\
-https://nytimes.com/2024/07/11/movies/touch-review.html
-
-**Bruins prospects watch: 3 players who could make the 2024-25 opening roster**\
-`There is opportunity available for a youngster to kick down the door to support the offense. Here are the leading candidates.`\
-https://nytimes.com/athletic/5629250/2024/07/11/bruins-prospects-roster-2024-25/
 
