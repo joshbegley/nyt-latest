@@ -1,3 +1,19 @@
+**Oakland Ballers fans can buy ownership shares**\
+`The announcement opened the official “testing the waters” phase of the crowdfunding process.`\
+https://nytimes.com/athletic/5630281/2024/07/11/oakland-ballers-crowd-funding-effort-fans-ownership/
+
+**Reuell Walters joins Luton following Arsenal exit**\
+`Luton Town have confirmed the signing of Reuell Walters following the defender’s departure from Arsenal.`\
+https://nytimes.com/athletic/5628601/2024/07/11/reuell-walters-luton-arsenal/
+
+**Food inflation saw a slight uptick in June.**\
+`By Madeleine Ngo`\
+https://nytimes.com/live/2024/07/11/business/cpi-inflation-fed/food-inflation-saw-a-slight-uptick-in-june
+
+**A Furious Start to California’s Fire Season**\
+`Some 207,000 acres have burned so far this year, more than five times the average.`\
+https://nytimes.com/2024/07/11/us/california-fire-season.html
+
 **What we learned about the Canadian men's Olympic basketball team in their debut**\
 `Canada has to shore up its offensive movement as they head to France for the Olympics. `\
 https://nytimes.com/athletic/5630693/2024/07/11/canada-mens-olympic-basketball-team-learnings-usa/
