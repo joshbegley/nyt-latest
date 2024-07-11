@@ -1,3 +1,19 @@
+**Oakland Ballers fans can buy ownership shares**\
+`The announcement opened the official “testing the waters” phase of the crowdfunding process.`\
+https://nytimes.com/athletic/5630281/2024/07/11/oakland-ballers-crowd-funding-effort-fans-ownership/
+
+**Reuell Walters joins Luton following Arsenal exit**\
+`Luton Town have confirmed the signing of Reuell Walters following the defender’s departure from Arsenal.`\
+https://nytimes.com/athletic/5628601/2024/07/11/reuell-walters-luton-arsenal/
+
+**Food inflation saw a slight uptick in June.**\
+`By Madeleine Ngo`\
+https://nytimes.com/live/2024/07/11/business/cpi-inflation-fed/food-inflation-saw-a-slight-uptick-in-june
+
+**A Furious Start to California’s Fire Season**\
+`Some 207,000 acres have burned so far this year, more than five times the average.`\
+https://nytimes.com/2024/07/11/us/california-fire-season.html
+
 **What we learned about the Canadian men's Olympic basketball team in their debut**\
 `Canada has to shore up its offensive movement as they head to France for the Olympics. `\
 https://nytimes.com/athletic/5630693/2024/07/11/canada-mens-olympic-basketball-team-learnings-usa/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/07/11/business/apple-european-union-antitrust.html
 **Blue Jays hit with a cascade of injuries, including to Bo Bichette and Daulton Varsho**\
 `The Blue Jays can't catch a break on the injury front — prospects Ricky Tiedemann and Adam Macko and even a coach are also hurt.`\
 https://nytimes.com/athletic/5630656/2024/07/11/blue-jays-injuries-bichette-varsho-tiedemann/
-
-**College football vs. Taylor Swift, Turner's future and more: Sports Media Mailbag, Part 2**\
-`College football's ratings showdown with the NFL, where Turner is heading post-NBA, and more of your sports media questions answered.`\
-https://nytimes.com/athletic/5627487/2024/07/11/college-football-taylor-swift-turner-nba-media-rights-mailbag/
-
-**Inside Novak Djokovic's recovery - accepting outsiders, hyperbaric chambers, Jelena's worries**\
-`The tennis world, Djokovic's team, and even his wife Jelena saw his Wimbledon plan as risky. He saw opportunity...`\
-https://nytimes.com/athletic/5629907/2024/07/11/novak-djokovic-knee-injury-wimbledon-recovery/
-
-**After a Bruising Day, Biden Faces a New Test**\
-`Fresh calls from lawmakers and donors to step down have increased pressure on the president, as he prepares to hold a crucial news conference.`\
-https://nytimes.com/2024/07/11/business/dealbook/biden-donors-pelosi-welch-nato.html
-
-**Spurs depth chart 1.0: Analyzing fits for Chris Paul and Harrison Barnes**\
-`Chris Paul and Harrison Barnes will bring some much needed experience to the Spurs lineup, but how will Gregg Popovich deploy them?`\
-https://nytimes.com/athletic/5630203/2024/07/11/spurs-chris-paul-harrison-barnes-depth-chart/
 
