@@ -1,3 +1,11 @@
+**The Athletic FC: Candidates to replace Berhalter, Watkins wonder goal, brawl in Copa**\
+`Today in The Athletic FC: We analyse the candidates to replace Berhalter, break down Watkins' goal, and bring reaction after Copa brawl`\
+https://nytimes.com/athletic/5631030/2024/07/11/the-athletic-fc-berhalter-sacked-watkins-copa-brawl/
+
+**The College Football Hall of Fame's Mike Leach problem**\
+`Coaches must win 60 percent of their games to be eligible for the Hall of Fame. Mike Leach finished his career at 59.1 percent.`\
+https://nytimes.com/athletic/5631082/2024/07/11/mike-leach-college-football-hall-of-fame/
+
 **Apple Settles E.U. Case by Opening Its Payment Service to Rivals**\
 `Customers in Europe may see an influx of new apps and services for making tap-and-go purchases.`\
 https://nytimes.com/2024/07/11/business/apple-european-union-antitrust.html

@@ -1,3 +1,11 @@
+**The Athletic FC: Candidates to replace Berhalter, Watkins wonder goal, brawl in Copa**\
+`Today in The Athletic FC: We analyse the candidates to replace Berhalter, break down Watkins' goal, and bring reaction after Copa brawl`\
+https://nytimes.com/athletic/5631030/2024/07/11/the-athletic-fc-berhalter-sacked-watkins-copa-brawl/
+
+**The College Football Hall of Fame's Mike Leach problem**\
+`Coaches must win 60 percent of their games to be eligible for the Hall of Fame. Mike Leach finished his career at 59.1 percent.`\
+https://nytimes.com/athletic/5631082/2024/07/11/mike-leach-college-football-hall-of-fame/
+
 **Apple Settles E.U. Case by Opening Its Payment Service to Rivals**\
 `Customers in Europe may see an influx of new apps and services for making tap-and-go purchases.`\
 https://nytimes.com/2024/07/11/business/apple-european-union-antitrust.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5628360/2024/07/11/canucks-trade-targets-defense/
 **Pounding music, thudding bodies, flares and fun - on the march with the orange army**\
 `The Dutch fans descended en masse in Dortmund. The Athletic joined them for a cocktail of noise, colour, flares - and then heartbreak`\
 https://nytimes.com/athletic/5630312/2024/07/11/netherlands-england-dutch-fan-march/
-
-**Aron Kiviharju's 'strong first impression' continues as Wild get to know the player behind the hot-mic intro**\
-`Bill Guerin on Kiviharju and his viral moment: "He’s going to be the biggest steal in the draft. Just for confidence like that, I love it."`\
-https://nytimes.com/athletic/5629874/2024/07/11/wild-aron-kiviharju-biggest-steal-of-draft/
-
-**Is the Bogus Fire for Real? Fire Officials Have a Way With Names.**\
-`Wildfire designations may seem random, but firefighters and dispatchers have their reasons for selecting them.`\
-https://nytimes.com/2024/07/11/us/is-the-bogus-fire-for-real-fire-officials-have-a-way-with-names.html
 
