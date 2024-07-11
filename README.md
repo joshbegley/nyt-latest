@@ -1,3 +1,7 @@
+**U.S. Uncovers Russian Plot to Assassinate C.E.O. of German Arms Maker**\
+`The company produces artillery shells and tanks that Ukraine has used in its war against Russia.`\
+https://nytimes.com/2024/07/11/us/politics/russia-assassination-plot-germany.html
+
 **Tens of Thousands of Students Protest Job Quotas in Bangladesh’s Streets**\
 `University students oppose the reinstatement of a quota system for government jobs that was abolished in 2018.`\
 https://nytimes.com/2024/07/11/world/asia/bandladesh-student-protests-job-quotas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/us/dylcia-pagan-dead.html
 **New York Philharmonic Chief Abruptly Steps Down**\
 `Gary Ginstling, the orchestra’s president and chief executive, is leaving after just a year on the job.`\
 https://nytimes.com/2024/07/11/arts/music/new-york-philharmonic-gary-ginstling.html
-
-**What a Linguist Hears When Biden Speaks**\
-`Don’t fixate on a few shaggy phrases. There’s something bigger going on.`\
-https://nytimes.com/2024/07/11/opinion/biden-speaking-linguist.html
 
