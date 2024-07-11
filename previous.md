@@ -1,3 +1,7 @@
+**NATO Calls China a ‘Decisive Enabler’ in Russia’s War on Ukraine**\
+`Secretary General Jens Stoltenberg made the accusation, which was in a declaration approved by the 32 leaders of the alliance, during the NATO summit in Washington on Wednesday.`\
+https://nytimes.com/video/world/europe/100000009565443/nato-china-russia-ukraine.html
+
 **Benji Gregory, Child Star on ‘ALF,’ Dies at 46**\
 `Mr. Gregory was found dead on June 13 in his car, along with his service dog.`\
 https://nytimes.com/2024/07/10/arts/television/benji-gregory-alf-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/10/us/politics/peter-welch-biden-vt-democratic-senat
 **What to Know About the Wildfires in California**\
 `The state has had more than 3,500 wildfires this year, and the peak of the annual fire season has yet to arrive.`\
 https://nytimes.com/article/wildfires-california-forest.html
-
-**Watkins, Palmer, and an England goal that was worth the wait**\
-`England's winning strike against the Netherlands was proof that patience can pay off`\
-https://nytimes.com/athletic/5630246/2024/07/10/ollie-watkins-cole-palmer-england-euro-2024-goal/
 

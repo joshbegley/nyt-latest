@@ -1,3 +1,7 @@
+**NATO Calls China a ‘Decisive Enabler’ in Russia’s War on Ukraine**\
+`Secretary General Jens Stoltenberg made the accusation, which was in a declaration approved by the 32 leaders of the alliance, during the NATO summit in Washington on Wednesday.`\
+https://nytimes.com/video/world/europe/100000009565443/nato-china-russia-ukraine.html
+
 **Uruguay players, Colombia fans clash in stands after Copa America semifinal**\
 `A number of Uruguayan players, including Darwin Nunez, appeared to clash with Colombian fans after the semifinal of Copa America on Wednesday night.`\
 https://nytimes.com/athletic/5630447/2024/07/10/colombia-uruguay-copa-america-darwin-nunez/
