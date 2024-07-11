@@ -1,3 +1,7 @@
+**In New York, Protesting the Backers of Big Oil With Die-Ins, Drums and Song**\
+`Amid soaring temperatures, hundreds of activists are staging boisterous blockades and solemn marches at banks and insurers that support fossil fuel projects.`\
+https://nytimes.com/2024/07/11/climate/citibank-protests-climate-fossil-fuel-nyc.html
+
 **Summer Horror Movies to Send a Chill Down Your Spine**\
 `At the drive-in, under the stars or in your living room, there are plenty of frights to be had before fall arrives.`\
 https://nytimes.com/2024/07/11/movies/summer-horror-movies.html

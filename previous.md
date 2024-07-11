@@ -1,3 +1,7 @@
+**In New York, Protesting the Backers of Big Oil With Die-Ins, Drums and Song**\
+`Amid soaring temperatures, hundreds of activists are staging boisterous blockades and solemn marches at banks and insurers that support fossil fuel projects.`\
+https://nytimes.com/2024/07/11/climate/citibank-protests-climate-fossil-fuel-nyc.html
+
 **Summer Horror Movies to Send a Chill Down Your Spine**\
 `At the drive-in, under the stars or in your living room, there are plenty of frights to be had before fall arrives.`\
 https://nytimes.com/2024/07/11/movies/summer-horror-movies.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/11/business/cpi-inflation-fed/housing-costs-lon
 **Oakland Ballers fans can buy ownership shares**\
 `The announcement opened the official “testing the waters” phase of the crowdfunding process.`\
 https://nytimes.com/athletic/5630281/2024/07/11/oakland-ballers-crowd-funding-effort-fans-ownership/
-
-**Reuell Walters joins Luton following Arsenal exit**\
-`Luton Town have confirmed the signing of Reuell Walters following the defender’s departure from Arsenal.`\
-https://nytimes.com/athletic/5628601/2024/07/11/reuell-walters-luton-arsenal/
 
