@@ -1,3 +1,7 @@
+**George Clooney’s Plea to President Biden**\
+`Readers discuss the actor’s guest essay about seeing the president’s decline at a fund-raiser he hosted.`\
+https://nytimes.com/2024/07/11/opinion/letters/joe-biden-george-clooney.html
+
 **World leaders call out Israeli settler violence and West Bank land grabs.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/07/11/world/israel-gaza-war-hamas/world-leaders-call-out-israeli-settler-violence-and-west-bank-land-grabs

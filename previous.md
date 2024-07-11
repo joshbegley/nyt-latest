@@ -1,3 +1,7 @@
+**George Clooney’s Plea to President Biden**\
+`Readers discuss the actor’s guest essay about seeing the president’s decline at a fund-raiser he hosted.`\
+https://nytimes.com/2024/07/11/opinion/letters/joe-biden-george-clooney.html
+
 **World leaders call out Israeli settler violence and West Bank land grabs.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/07/11/world/israel-gaza-war-hamas/world-leaders-call-out-israeli-settler-violence-and-west-bank-land-grabs
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5630588/2024/07/11/chris-kirchner-sentence-fraud/
 **Twins super utilityman Willi Castro named to AL All-Star team as replacement**\
 `This is the first All-Star nod for Castro, who is hitting .268/.354/.430 with 22 doubles, seven home runs, 31 RBIs and 10 stolen bases. `\
 https://nytimes.com/athletic/5631926/2024/07/11/willi-castro-al-all-star-team-twins/
-
-**'I couldn't miss Spain': Carlos Alcaraz's relationship with La Roja goes beyond final dreams**\
-`Carlos Alcaraz is on the cusp of joining Spain's men's football team in a final on Sunday. Their relationship is deeper than symmetry`\
-https://nytimes.com/athletic/5630953/2024/07/11/carlos-alcaraz-wimbledon-spain-football-european-championship/
 
