@@ -1,3 +1,7 @@
+**The Netherlands' new pain: This wasn't a golden generation, but it was a golden opportunity**\
+`Wednesday's 2-1 defeat by England in the Euro 2024 semi-finals is just the latest painful loss the Netherlands have suffered`\
+https://nytimes.com/athletic/5630372/2024/07/11/netherlands-england-euro-2024-semi-final-golden-opportunity/
+
 **Bayern Munich complete Palhinha signing from Fulham**\
 `Bayern Munich have completed the signing of midfielder Joao Palhinha from Fulham.`\
 https://nytimes.com/athletic/5615998/2024/07/11/joao-palhinha-bayern-munich-transfer/
