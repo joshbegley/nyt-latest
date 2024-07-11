@@ -1,3 +1,11 @@
+**What we learned about the Canadian men's Olympic basketball team in their debut**\
+`Canada has to shore up its offensive movement as they head to France for the Olympics. `\
+https://nytimes.com/athletic/5630693/2024/07/11/canada-mens-olympic-basketball-team-learnings-usa/
+
+**Islanders offseason depth chart: Are they better than last year?**\
+`The Islanders haven't changed too much this offseason, but after a couple smart moves with limited cap space, what does the team look like?`\
+https://nytimes.com/athletic/5629684/2024/07/11/new-york-islanders-offseason-depth/
+
 **The Athletic FC: Candidates to replace Berhalter, Watkins wonder goal, brawl in Copa**\
 `Today in The Athletic FC: We analyse the candidates to replace Berhalter, break down Watkins' goal, and bring reaction after Copa brawl`\
 https://nytimes.com/athletic/5631030/2024/07/11/the-athletic-fc-berhalter-sacked-watkins-copa-brawl/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/11/business/dealbook/biden-donors-pelosi-welch-nato.
 **Spurs depth chart 1.0: Analyzing fits for Chris Paul and Harrison Barnes**\
 `Chris Paul and Harrison Barnes will bring some much needed experience to the Spurs lineup, but how will Gregg Popovich deploy them?`\
 https://nytimes.com/athletic/5630203/2024/07/11/spurs-chris-paul-harrison-barnes-depth-chart/
-
-**Canucks offseason mailbag, part 2: Trade targets to upgrade Vancouver's defense**\
-`Plus: Will the Canucks be as good next season as they were in 2023-24? Where do some of Vancouver's 2024 playoff moments rank all time?`\
-https://nytimes.com/athletic/5628360/2024/07/11/canucks-trade-targets-defense/
-
-**Pounding music, thudding bodies, flares and fun - on the march with the orange army**\
-`The Dutch fans descended en masse in Dortmund. The Athletic joined them for a cocktail of noise, colour, flares - and then heartbreak`\
-https://nytimes.com/athletic/5630312/2024/07/11/netherlands-england-dutch-fan-march/
 

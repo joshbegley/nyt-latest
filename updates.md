@@ -1,3 +1,11 @@
+**What we learned about the Canadian men's Olympic basketball team in their debut**\
+`Canada has to shore up its offensive movement as they head to France for the Olympics. `\
+https://nytimes.com/athletic/5630693/2024/07/11/canada-mens-olympic-basketball-team-learnings-usa/
+
+**Islanders offseason depth chart: Are they better than last year?**\
+`The Islanders haven't changed too much this offseason, but after a couple smart moves with limited cap space, what does the team look like?`\
+https://nytimes.com/athletic/5629684/2024/07/11/new-york-islanders-offseason-depth/
+
 **The Athletic FC: Candidates to replace Berhalter, Watkins wonder goal, brawl in Copa**\
 `Today in The Athletic FC: We analyse the candidates to replace Berhalter, break down Watkins' goal, and bring reaction after Copa brawl`\
 https://nytimes.com/athletic/5631030/2024/07/11/the-athletic-fc-berhalter-sacked-watkins-copa-brawl/
