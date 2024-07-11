@@ -1,3 +1,11 @@
+**Democratic senators were mostly unmoved by a visit from top Biden advisers.**\
+`By Robert Jimison and Carl Hulse`\
+https://nytimes.com/live/2024/07/11/us/biden-news-trump-election/democratic-senators-were-mostly-unmoved-by-a-visit-from-top-biden-advisers
+
+**Milwaukee’s Mayor, No Fan of Trump, Is Thrilled to Host His Party**\
+`Cavalier Johnson, the Democratic mayor of Milwaukee, was one of the biggest cheerleaders for holding the Republican National Convention in the city.`\
+https://nytimes.com/2024/07/11/us/milwaukees-mayor-no-fan-of-trump-is-thrilled-to-host-his-party.html
+
 **Shelley Duvall in ‘The Shining’: A Perfect Gothic Heroine Had a Deep Well of Strength**\
 `Her performance was perhaps misunderstood at the time, just as the narrative surrounding her life would be later.`\
 https://nytimes.com/2024/07/11/movies/shelley-duvall-the-shining.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5632306/2024/07/11/mets-trade-deadline-approach-ana
 **Biden Blames Elites, but Voters May Be His Bigger Problem**\
 `Even if President Biden can stem high-level Democratic defections, many Americans will still have grave concerns about his age and abilities.`\
 https://nytimes.com/2024/07/11/us/politics/biden-voters.html
-
-**A Changed Landscape**\
-`As Donald Trump heads to the Republican convention, his criminal cases look a lot less threatening.`\
-https://nytimes.com/2024/07/11/us/politics/trump-trial-republican-convention.html
-
-**Houston Shows Why We Should Make Peace With Ugly Power Lines**\
-`Let’s stop with the NIMBYism around lifesaving infrastructure already.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/hurricane-beryl-houston-power-outage-heat
 
