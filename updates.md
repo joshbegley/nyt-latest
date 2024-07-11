@@ -1,3 +1,7 @@
+**Summer Horror Movies to Send a Chill Down Your Spine**\
+`At the drive-in, under the stars or in your living room, there are plenty of frights to be had before fall arrives.`\
+https://nytimes.com/2024/07/11/movies/summer-horror-movies.html
+
 **36 Hours in Izmir, Turkey**\
 `Thousands of years of culture and history converge in this vibrant, coastal city known as the “Pearl of the Aegean.”`\
 https://nytimes.com/interactive/2024/07/11/travel/things-to-do-izmir-turkey.html
