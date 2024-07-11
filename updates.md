@@ -1,3 +1,7 @@
+**McIlroy: Keegan Bradley’s Ryder Cup captaincy ‘a surprise’**\
+`Bradley will serve as the United States' Ryder Cup captain, a move that caught everyone off guard.`\
+https://nytimes.com/athletic/5631326/2024/07/11/rory-mcilroy-keegan-bradley-ryder-cup/
+
 **McIlroy in 'disbelief' over Keegan Bradley's Ryder Cup captaincy**\
 `Bradley will serve as the United States' Ryder Cup captain, a move that caught everyone off guard.`\
 https://nytimes.com/athletic/5631326/2024/07/11/rory-mcilroy-keegan-bradley-ryder-cup/
