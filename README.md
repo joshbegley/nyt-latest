@@ -1,3 +1,7 @@
+**Summer Horror Movies to Send a Chill Down Your Spine**\
+`At the drive-in, under the stars or in your living room, there are plenty of frights to be had before fall arrives.`\
+https://nytimes.com/2024/07/11/movies/summer-horror-movies.html
+
 **36 Hours in Izmir, Turkey**\
 `Thousands of years of culture and history converge in this vibrant, coastal city known as the “Pearl of the Aegean.”`\
 https://nytimes.com/interactive/2024/07/11/travel/things-to-do-izmir-turkey.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5630281/2024/07/11/oakland-ballers-crowd-funding-ef
 **Reuell Walters joins Luton following Arsenal exit**\
 `Luton Town have confirmed the signing of Reuell Walters following the defender’s departure from Arsenal.`\
 https://nytimes.com/athletic/5628601/2024/07/11/reuell-walters-luton-arsenal/
-
-**Food inflation saw a slight uptick in June.**\
-`By Madeleine Ngo`\
-https://nytimes.com/live/2024/07/11/business/cpi-inflation-fed/food-inflation-saw-a-slight-uptick-in-june
 
