@@ -1,3 +1,11 @@
+**Trump Cites Immunity and Asks Judge to Throw Out Hush-Money Conviction**\
+`A recent Supreme Court ruling should nullify the guilty verdict in Donald Trump’s Manhattan trial, his lawyers said. The argument could be a long shot.`\
+https://nytimes.com/2024/07/11/nyregion/trump-immunity-hush-money-conviction.html
+
+**How the Blues' Ryan Suter signing happened, and what it means for the team's logjam on defense**\
+`St. Louis has nine defensemen on NHL contracts after signing the 39-year-old veteran and will need to make a move at some point.`\
+https://nytimes.com/athletic/5632093/2024/07/11/blues-ryan-suter-defensive-logjam/
+
 **The Call Is Coming From Inside the White House**\
 `Biden takes the stage in Washington as doubts about his candidacy spread among his own staff.`\
 https://nytimes.com/2024/07/11/us/politics/biden-press-conference-democrats.html
