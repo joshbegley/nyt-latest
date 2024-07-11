@@ -1,3 +1,7 @@
+**Why Trump Supporters Keep Avoiding Convictions on Election Charges**\
+`Frustrated prosecutors and alarmed election officials are finding that it’s not always easy to make charges stick for those who interfere with elections, including many of the Capitol rioters.`\
+https://nytimes.com/2024/07/11/us/politics/trump-2020-election-convictions.html
+
 **Until Saturday: Big 12 (and Pac-12?) media days takeaways, EA's player No. 100**\
 `Welcome to the Until Saturday, the five-star college football newsletter. `\
 https://nytimes.com/athletic/5631535/2024/07/11/big-12-media-days-college-football-until-saturday/
@@ -8,7 +12,7 @@ https://nytimes.com/athletic/5631110/2024/07/11/nico-williams-athletic-bilbao-sp
 
 **Jasmine Paolini beats Donna Vekic to reach Wimbledon final after knifeedge mathc tiebreak**\
 `Jasmine Paolini beat Donna Vekic 2-6, 6-4, 7-6(8) to reach her first Wimbledon final, coming through a 10-point match tiebreak that decided one of the most compelling and tense matches of the Championships so far.`\
-https://nytimes.com/athletic/5631403/2024/07/11/donna-vekic-jasmine-paolini-wimbledon-semifinal/
+https://nytimes.com/athletic/5631403/2024/07/11/jasmine-paolini-wimbledon-semifinal-donna-vekic/
 
 **Van de Beek completes Girona move**\
 `Donny van de Beek has completed his move to Girona from Manchester United.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5631320/2024/07/11/raphael-claus-referee-copa-ameri
 **The inflation cool-down was good news for all the right reasons.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/07/11/business/cpi-inflation-fed/the-inflation-cool-down-was-good-news-for-all-the-right-reasons
-
-**Zirkzee set for Man Utd medical on Friday ahead of €42.5m move**\
-`Joshua Zirkzee will undergo a Manchester United medical on Friday ahead of his proposed transfer from Bologna.`\
-https://nytimes.com/athletic/5621824/2024/07/11/joshua-zirkzee-man-utd-transfer/
 
