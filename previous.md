@@ -1,3 +1,7 @@
+**NATO’s Pledges to Ukraine Fall Short for a Counteroffensive This Year**\
+`Weapons donations from the United States and European countries will take weeks, if not months, to reach the front lines.`\
+https://nytimes.com/2024/07/11/us/politics/nato-pledges-ukraine-fall-short.html
+
 **Many in Gaza City Ignore Israeli Military’s Calls to Evacuate**\
 `Some civilians are fatigued by their repeated displacements, while others say there is no point in going to other areas that may be just as dangerous.`\
 https://nytimes.com/2024/07/11/world/middleeast/gaza-city-evacuation-israel-military.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/nyregion/trump-immunity-hush-money-conviction.htm
 **How the Blues' Ryan Suter signing happened, and what it means for the team's logjam on defense**\
 `St. Louis has nine defensemen on NHL contracts after signing the 39-year-old veteran and will need to make a move at some point.`\
 https://nytimes.com/athletic/5632093/2024/07/11/blues-ryan-suter-defensive-logjam/
-
-**The Call Is Coming From Inside the White House**\
-`Biden takes the stage in Washington as doubts about his candidacy spread among his own staff.`\
-https://nytimes.com/2024/07/11/us/politics/biden-press-conference-democrats.html
 

@@ -1,3 +1,7 @@
+**NATO’s Pledges to Ukraine Fall Short for a Counteroffensive This Year**\
+`Weapons donations from the United States and European countries will take weeks, if not months, to reach the front lines.`\
+https://nytimes.com/2024/07/11/us/politics/nato-pledges-ukraine-fall-short.html
+
 **Many in Gaza City Ignore Israeli Military’s Calls to Evacuate**\
 `Some civilians are fatigued by their repeated displacements, while others say there is no point in going to other areas that may be just as dangerous.`\
 https://nytimes.com/2024/07/11/world/middleeast/gaza-city-evacuation-israel-military.html
