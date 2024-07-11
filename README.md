@@ -1,3 +1,7 @@
+**Ten thoughts on Sabres offseason: Trading Matt Savoie, betting on Lindy Ruff and more**\
+`Two weeks into the NHL offseason, we now have a much better idea of what the 2024-25 Sabres will look like. `\
+https://nytimes.com/athletic/5631171/2024/07/11/sabres-offseason-trade-matt-savoie-lindy-ruff/
+
 **Raphael Claus to referee Copa America 2024 final**\
 `The Copa America final between Argentina and Colombia will be officiated by Brazilian referee Raphael Claus.`\
 https://nytimes.com/athletic/5631320/2024/07/11/raphael-claus-referee-copa-america/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/dining/grilled-salmon-salad.html
 **A Mammoth First: 52,000-Year-Old DNA, in 3-D**\
 `A “fossil chromosome” preserves the structure of a woolly mammoth’s genome — and offers a better grasp of how it once worked.`\
 https://nytimes.com/2024/07/11/science/mammoth-dna-genetics.html
-
-**At This Photography Festival, the Camera Points Below the Surface**\
-`There’s always more to a photo than what we see, as shown by standout exhibitions at this year’s Rencontres d’Arles in southern France.`\
-https://nytimes.com/2024/07/11/arts/design/rencontres-d-arles-cophie-calle-coen-friedlander.html
 
