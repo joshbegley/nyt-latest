@@ -1,6 +1,6 @@
 **Biden Says Harris Is Qualified to Be President, but Vows to Remain in Race**\
 `Even as the president promoted his vice president’s qualifications alongside his own, he committed the sort of gaffe that has unnerved Democrats, referring to her as “Vice President Trump.”`\
-https://nytimes.com/live/2024/07/11/us/biden-news-trump-election/biden-news-conference-harris
+https://nytimes.com/2024/07/11/us/politics/kamala-harris-biden-news-conference.html
 
 **After Biden’s News Conference, Doubters and Defenders Weigh In**\
 `More representatives called for the president to end his re-election bid after a session with reporters, while others highlighted his firm grasp of foreign policy after a NATO summit.`\
