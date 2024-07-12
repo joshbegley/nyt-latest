@@ -1,3 +1,7 @@
+**Brighton complete transfer of IFK Gothenburg teenager Yalcouye**\
+`Brighton have completed a deal to sign Malick Yalcouye from IFK Gothenburg.`\
+https://nytimes.com/athletic/5624433/2024/07/12/brighton-transfers-malick-yalcouye/
+
 **Beyond the Classic Barbecue: Three Other Ways to Cook Outdoors**\
 `Chefs from different global culinary traditions demonstrate how they do it — not a hamburger or hot dog in sight.`\
 https://nytimes.com/2024/07/12/t-magazine/outdoor-cooking-grill.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/heat-delivery-workers
 **The resurrection of James Rodriguez: From Colombia's outcast to captain in the Copa America final**\
 `From pariah to superhero, this is how he redeemed himself and could guide his country to glory`\
 https://nytimes.com/athletic/5634156/2024/07/12/james-rodriguez-colombia-copa-america-final-2024/
-
-**The Search for Tulsa Massacre Victims Finally Reveals a Name**\
-`In 1921, an Army veteran who was traveling home stopped in Tulsa, Okla., only to be caught in one of the worst racial attacks in American history.`\
-https://nytimes.com/2024/07/12/us/tulsa-massacre-victim-identified.html
 
