@@ -1,3 +1,7 @@
+**More Than 60 Are Missing in Nepal After Landslide Sweeps Buses Into River**\
+`Rescuers were searching for two late-night buses that disappeared into the swollen waterway amid Nepal’s deadly monsoon season.`\
+https://nytimes.com/2024/07/12/world/asia/nepal-landslide-bus-crash.html
+
 **Helicopter Crashes Off Hawaii Coast, Leaving 1 Dead and 2 Missing**\
 `The helicopter, operated by a tour company, went down in waters off the island of Kauai.`\
 https://nytimes.com/2024/07/12/us/hawaii-kauai-helicopter-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/12/arts/television/late-night-clooney-biden-response
 **In an Outback Town, Praising the Lord and Improvising the Details**\
 `For some churches, it’s all about music. Others translate scripture into Indigenous languages or enlist local artists to depict Bible stories in their own way.`\
 https://nytimes.com/2024/07/12/world/australia/christianity-outback.html
-
-**How will Amario Cozier-Duberry fit in at Brighton?**\
-`Brighton convinced the 19-year-old winger to join them after his departure from Arsenal but where will he fit in?`\
-https://nytimes.com/athletic/5623785/2024/07/12/amario-cozier-duberry-brighton-arsenal/
 

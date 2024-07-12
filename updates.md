@@ -1,3 +1,7 @@
+**More Than 60 Are Missing in Nepal After Landslide Sweeps Buses Into River**\
+`Rescuers were searching for two late-night buses that disappeared into the swollen waterway amid Nepal’s deadly monsoon season.`\
+https://nytimes.com/2024/07/12/world/asia/nepal-landslide-bus-crash.html
+
 **Helicopter Crashes Off Hawaii Coast, Leaving 1 Dead and 2 Missing**\
 `The helicopter, operated by a tour company, went down in waters off the island of Kauai.`\
 https://nytimes.com/2024/07/12/us/hawaii-kauai-helicopter-crash.html
