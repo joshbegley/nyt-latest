@@ -8,7 +8,7 @@ https://nytimes.com/athletic/5634073/2024/07/12/river-seine-contamination-bacter
 
 **The New N.Y.P.D. Motto Is Missing Some Important Words**\
 `The change reflects the department’s aggressive and problematic new attitude under Mayor Eric Adams.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/nypd-slogan-aggressive-adams
+https://nytimes.com/2024/07/09/opinion/nypd-slogan-aggressive-adams.html
 
 **Yankees call up infield prospect Jorbit Vivas**\
 `The New York Yankees are calling up infield prospect Jorbit Vivas, a team source confirmed to The Athletic.`\
