@@ -34,7 +34,7 @@ https://nytimes.com/2024/07/12/movies/action-movies-streaming.html
 `They understand the nature of persecution.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-black-voters
 
-**Donors Tell Pro-Biden Super PAC Roughly $90 Million in Pledges Is Frozen**\
+**Donors to Pro-Biden Super PAC Are Said to Withhold Roughly $90 Million**\
 `The decision to withhold such enormous sums of money is one of the most concrete examples of the fallout from President Biden’s poor debate performance at the end of June.`\
 https://nytimes.com/2024/07/12/us/politics/biden-donors-money.html
 
