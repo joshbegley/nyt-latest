@@ -1,3 +1,15 @@
+**Saudi Arabia Extends Its Embrace of the World of Video Games**\
+`For struggling American video game companies, Saudi Arabia’s investments in the industry have been hard to resist. Not all gamers are happy about it.`\
+https://nytimes.com/2024/07/12/technology/saudi-arabia-video-game-investment.html
+
+**Wimbledon: Eight years and eight winners - why is the women's tournament hard to call?**\
+`Wimbledon will have its eighth different women's winner in eight years. Is it the Grand Slam of chaos, or just good tennis?`\
+https://nytimes.com/athletic/5632302/2024/07/12/wimbledon-womens-singles-final-winners/
+
+**Ndidi signs new Leicester contract**\
+`Wilfred Ndidi has signed a new Leicester City contract.`\
+https://nytimes.com/athletic/5630884/2024/07/12/wilfred-ndidi-leicester-contract/
+
 **Biden’s News Conference Answered Many Questions. But Not the Big One.**\
 `For once, a presidential Q. and A. was must-see TV. But it didn’t put an end to the summer’s biggest drama.`\
 https://nytimes.com/2024/07/12/arts/television/biden-news-conference.html

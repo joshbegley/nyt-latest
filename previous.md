@@ -1,3 +1,15 @@
+**Saudi Arabia Extends Its Embrace of the World of Video Games**\
+`For struggling American video game companies, Saudi Arabia’s investments in the industry have been hard to resist. Not all gamers are happy about it.`\
+https://nytimes.com/2024/07/12/technology/saudi-arabia-video-game-investment.html
+
+**Wimbledon: Eight years and eight winners - why is the women's tournament hard to call?**\
+`Wimbledon will have its eighth different women's winner in eight years. Is it the Grand Slam of chaos, or just good tennis?`\
+https://nytimes.com/athletic/5632302/2024/07/12/wimbledon-womens-singles-final-winners/
+
+**Ndidi signs new Leicester contract**\
+`Wilfred Ndidi has signed a new Leicester City contract.`\
+https://nytimes.com/athletic/5630884/2024/07/12/wilfred-ndidi-leicester-contract/
+
 **Biden’s News Conference Answered Many Questions. But Not the Big One.**\
 `For once, a presidential Q. and A. was must-see TV. But it didn’t put an end to the summer’s biggest drama.`\
 https://nytimes.com/2024/07/12/arts/television/biden-news-conference.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/12/us/wildfire-names.html
 **The 100 Best Books of the 21st Century**\
 `To mark the first 25 years of the century, The New York Times Book Review sent a survey to hundreds of literary luminaries, asking them to name the 10 best books published since Jan. 1, 2000. Gilbert Cruz, editor of the Book Review, gives some highlights from the list.`\
 https://nytimes.com/video/books/100000009563890/the-100-best-books-of-the-21st-century.html
-
-**Finland Passes Law to Turn Away Asylum Seekers at Border**\
-`The country last year closed all land crossings with Russia, accusing Moscow of trying to weaponize migration. Russian authorities have called the accusations “unsubstantiated.”`\
-https://nytimes.com/2024/07/12/world/europe/finland-asylum-russia-border.html
-
-**Yankees' 4 biggest concerns heading into crucial Orioles battle**\
-`Three games in Baltimore separate the Yankees from the All-Star break and being able to put their terrible last month behind them.`\
-https://nytimes.com/athletic/5633071/2024/07/12/yankees-orioles-biggest-concerns/
-
-**On Team USA, Kevin Durant is a mentor for Anthony Edwards — like Kobe once was for him**\
-`In 2012, a young Kevin Durant got a chance to play with his idol, Kobe Bryant, in the Olympics. Now Durant is the idol for Anthony Edwards.`\
-https://nytimes.com/athletic/5632861/2024/07/12/olympics-kevin-durant-anthony-edwards-kobe-bryant-mentor/
 
