@@ -1,3 +1,7 @@
+**Hamas Official: ‘We’re Not Obstinate’ in Peace Talks on Gaza**\
+`Husam Badran said the militant group would give up civilian control in the territory, but would not disband its military wing.`\
+https://nytimes.com/2024/07/12/world/middleeast/hamas-israel-peace-talks-gaza.html
+
 **For Ukraine, an ‘Irreversible’ Path to NATO Clouded by Uncertainty**\
 `Hanging over the alliance’s summit in Washington this week was the shadow of the U.S. presidential election, which added a layer of unpredictability to the war and to the future of the bloc.`\
 https://nytimes.com/2024/07/12/world/europe/nato-ukraine-election-trump.html
