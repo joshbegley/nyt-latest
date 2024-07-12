@@ -1,3 +1,11 @@
+**What Republicans Have Been Up to While Biden’s Drama Has Unfolded**\
+`While Biden has been in the spotlight, Republicans rewrote their platform and used dark rhetoric.`\
+https://nytimes.com/2024/07/12/us/politics/biden-republicans-trump.html
+
+**Meta Rolls Back Restrictions on Trump’s Instagram and Facebook Accounts**\
+`The company said on Friday that its users should be able to hear from all presidential candidates “on the same basis.”`\
+https://nytimes.com/2024/07/12/us/politics/meta-trump-instagram-facebook.html
+
 **U.S. Soccer honors the World Cup winners of 1999 whose struggle paved the way for equal pay**\
 `The World Cup winners were inspired by Billie Jean King to fight for improved pay and working conditions - a struggle they would win`\
 https://nytimes.com/athletic/5634492/2024/07/12/uswnt-1999-equal-pay-honored/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/12/realestate/king-charles-condo-nyc.html
 **Democratic Donors Froze Pro-Biden Contributions**\
 `Also, a look at Donald Trump’s V.P. contenders. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/07/12/briefing/biden-donor-pressure-trump-vice-president.html
-
-**Our 5-Step Guide to the Perfect Beach Day**\
-`From music and snacks to a backup plan if it rains, here’s everything you need for a blissful day in the sand.`\
-https://nytimes.com/2024/07/12/podcasts/culture-desk-summer-beach-day-guide.html
-
-**A Gaza City Neighborhood Is Left in Ruins After Israeli Troops Withdraw**\
-`Intense fighting between soldiers and Hamas militants has left parts of the city uninhabitable, say residents who returned.`\
-https://nytimes.com/2024/07/12/world/middleeast/gaza-city-shajaiya-israel-hamas.html
 
