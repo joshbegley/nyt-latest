@@ -1,3 +1,7 @@
+**The Pulse: The 400-plus job changes thanks to Nick Saban**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5632355/2024/07/12/nick-saban-job-changes-the-pulse/
+
 **President Biden’s Public Test**\
 `We explain his high stakes press conference.`\
 https://nytimes.com/2024/07/12/briefing/president-bidens-public-test.html
