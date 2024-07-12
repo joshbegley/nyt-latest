@@ -1,3 +1,15 @@
+**How Can Europe Reduce Its Military Dependency on the United States?**\
+`With Washington looking toward China, and the possibility of another Trump presidency, Europe should do more for its own defense. Here are four key areas to watch.`\
+https://nytimes.com/2024/07/12/world/europe/nato-europe-military-russia.html
+
+**German court finds El Ghazi unfairly sacked by Mainz over Israel-Gaza war posts**\
+`A German court has found that Anwar El Ghazi was unfairly dismissed by Bundesliga club Mainz 05 after posting on social media about the Israel-Gaza war.`\
+https://nytimes.com/athletic/5633470/2024/07/12/german-court-finds-anwar-el-ghazi-unfairly-sacked-by-mainz-over-israel-gaza-war-posts/
+
+**Summer Reading Contest, Week 6: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by July 19 at 9 a.m. Eastern. This week’s winners will be announced by July 31.`\
+https://nytimes.com/2024/07/12/learning/summer-reading-contest-week-6-what-got-your-attention-in-the-times-this-week.html
+
 **City's Gomez completes permanent Real Sociedad move**\
 `Sergio Gomez has joined Real Sociedad from Manchester City for €10million.`\
 https://nytimes.com/athletic/5633531/2024/07/12/manchester-city-transfers-sergio-gomez/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5632861/2024/07/12/olympics-kevin-durant-anthony-ed
 **Five players who caught the eye at the 2024 Copa America**\
 `Thom Harris picks out five players that have enjoyed a breakthrough summer at the Copa America `\
 https://nytimes.com/athletic/5630923/2024/07/12/copa-america-2024-breakout-stars/
-
-**Inflation Weighs on Nation’s Largest Banks**\
-`JPMorgan and Wells Fargo reported that overall deposits dropped. At Wells Fargo, a core measure of profitability sank.`\
-https://nytimes.com/2024/07/12/business/wells-fargo-jpmorgan-citibank.html
-
-**Did Biden Do Enough?**\
-`The president’s performance in Thursday’s news conference at the NATO summit may not have been enough to calm Democratic donors and officials.`\
-https://nytimes.com/2024/07/12/business/dealbook/biden-news-conference-donors.html
-
-**Olympic softball's divided experience: What playing in OKC instead of L.A. means for 2028**\
-`When softball returns to the Olympics in 2028, the experience will differ from most other Olympics with games in OKC instead of Los Angeles.`\
-https://nytimes.com/athletic/5633323/2024/07/12/olympics-softball-oklahoma-city-los-angeles-2028/
 

@@ -1,3 +1,15 @@
+**How Can Europe Reduce Its Military Dependency on the United States?**\
+`With Washington looking toward China, and the possibility of another Trump presidency, Europe should do more for its own defense. Here are four key areas to watch.`\
+https://nytimes.com/2024/07/12/world/europe/nato-europe-military-russia.html
+
+**German court finds El Ghazi unfairly sacked by Mainz over Israel-Gaza war posts**\
+`A German court has found that Anwar El Ghazi was unfairly dismissed by Bundesliga club Mainz 05 after posting on social media about the Israel-Gaza war.`\
+https://nytimes.com/athletic/5633470/2024/07/12/german-court-finds-anwar-el-ghazi-unfairly-sacked-by-mainz-over-israel-gaza-war-posts/
+
+**Summer Reading Contest, Week 6: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by July 19 at 9 a.m. Eastern. This week’s winners will be announced by July 31.`\
+https://nytimes.com/2024/07/12/learning/summer-reading-contest-week-6-what-got-your-attention-in-the-times-this-week.html
+
 **City's Gomez completes permanent Real Sociedad move**\
 `Sergio Gomez has joined Real Sociedad from Manchester City for €10million.`\
 https://nytimes.com/athletic/5633531/2024/07/12/manchester-city-transfers-sergio-gomez/
