@@ -1,3 +1,11 @@
+**More Than 23 Million Watched Biden’s News Conference, Beating the Oscars**\
+`The drama surrounding the president’s bid for re-election has captured voters’ interest.`\
+https://nytimes.com/2024/07/12/us/politics/bidens-news-conference-ratings.html
+
+**Mercury naming courts after Taurasi at new practice facility**\
+`Taurasi, a three-time WNBA champion, 11-time All-Star and the league's all-time leading scorer, has played her entire career in Phoenix.`\
+https://nytimes.com/athletic/5634536/2024/07/12/diana-taurasi-mercury-courts-practice-facility/
+
 **Speaking at Trump’s Convention: Former Democrats, a Rancher and Trump Employees**\
 `Officials rolled out a list of “everyday Americans” who would address the Republican convention and highlight key themes such as immigration. The list also includes two employees of Donald Trump’s golf properties.`\
 https://nytimes.com/2024/07/12/us/rnc-attendees.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/12/us/phone-data-breach.html
 **Anthea Sylbert, Costume Designer Who Became a Producer, Dies at 84**\
 `Her career unfolded in three phases: as the creator of costumes for movies like “Chinatown,” as a studio executive and as a producer, largely with her friend Goldie Hawn.`\
 https://nytimes.com/2024/07/12/movies/anthea-sylbert-dead.html
-
-**Fantasy baseball waiver wire: Yariel Rodriguez, Rowdy Tellez and more adds**\
-`John Laghezza identifies the best options on the waiver wire, this week pointing fantasy managers towards a current and former Blue Jay.`\
-https://nytimes.com/athletic/5631419/2024/07/12/fantasy-baseball-waiver-wire-yariel-rodriguez-rowdy-tellez-and-more-adds/
-
-**Biden’s Visit to Detroit Draws Few High-Profile Michigan Democrats**\
-`Gov. Gretchen Whitmer posted a welcome on social media but was not on hand. The state’s two Democratic senators, Debbie Stabenow and Gary Peters, and a leading candidate for Ms. Stabenow’s seat, Representative Elissa Slotkin, all were otherwise occupied.`\
-https://nytimes.com/2024/07/12/us/politics/biden-michigan-whitmer-peters-stabenow.html
 
