@@ -1,3 +1,11 @@
+**Alec Baldwin’s Trial Pauses as Unexamined Rounds Are Brought Into Court**\
+`The actor’s lawyers have asked the judge to dismiss the case over the state’s failure to disclose evidence that could help shed light on how live rounds reached the “Rust” film set.`\
+https://nytimes.com/2024/07/12/arts/rust-trial-pause-alec-baldwin-shooting.html
+
+**The Best of Late Night This Week**\
+`The hosts returned from the holiday break to a glut of news, including President Biden doubling down on his decision to seek re-election despite concerns about his health and George Clooney calling for Biden to drop out.`\
+https://nytimes.com/interactive/2024/07/12/arts/television/best-of-late-night-biden-clooney.html
+
 **Carlos Alcaraz beats Daniil Medvedev to reach second Wimbledon final**\
 `Follow live coverage of Wimbledon 2024 here
 Carlos Alcaraz reached his second consecutive Wimbledon final, after beating Daniil Medvedev 6-7, 6-3, 6-4, 6-4 on Centre Court on Friday.`\

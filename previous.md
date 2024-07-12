@@ -1,3 +1,11 @@
+**Alec Baldwin’s Trial Pauses as Unexamined Rounds Are Brought Into Court**\
+`The actor’s lawyers have asked the judge to dismiss the case over the state’s failure to disclose evidence that could help shed light on how live rounds reached the “Rust” film set.`\
+https://nytimes.com/2024/07/12/arts/rust-trial-pause-alec-baldwin-shooting.html
+
+**The Best of Late Night This Week**\
+`The hosts returned from the holiday break to a glut of news, including President Biden doubling down on his decision to seek re-election despite concerns about his health and George Clooney calling for Biden to drop out.`\
+https://nytimes.com/interactive/2024/07/12/arts/television/best-of-late-night-biden-clooney.html
+
 **Carlos Alcaraz beats Daniil Medvedev to reach second Wimbledon final**\
 `Follow live coverage of Wimbledon 2024 here
 Carlos Alcaraz reached his second consecutive Wimbledon final, after beating Daniil Medvedev 6-7, 6-3, 6-4, 6-4 on Centre Court on Friday.`\
@@ -30,12 +38,4 @@ https://nytimes.com/2024/07/12/world/asia/pakistan-parliament-khan.html
 **Jeffries Meets Privately With Biden to Share Democrats’ Concerns**\
 `The House Democratic leader shared few details about the meeting, and he did not say whether he told the president to end his re-election campaign.`\
 https://nytimes.com/2024/07/12/us/politics/hakeem-jeffries-biden-democrats.html
-
-**Residents returning to a Gaza City neighborhood describe a swath of destruction.**\
-`By Hiba Yazbek`\
-https://nytimes.com/live/2024/07/12/world/israel-gaza-war-hamas/residents-returning-to-a-gaza-city-neighborhood-describe-a-swath-of-destruction
-
-**Katy Perry’s ‘World’ of Mixed Signals, and 11 More New Songs**\
-`Hear tracks by Bright Eyes, Johnny Blue Skies (a.k.a. Sturgill Simpson), Magdalena Bay and others.`\
-https://nytimes.com/2024/07/12/arts/music/playlist-katy-perry-zach-bryan-sturgill-simpson.html
 
