@@ -1,3 +1,15 @@
+**USWNT’s Catarina Macario to miss Olympic Games with knee injury**\
+`USWNT forward Catarina Macario will miss this summer&#8217;s Olympics Games with a knee injury.`\
+https://nytimes.com/athletic/5633829/2024/07/12/catarina-macario-uswnt-olympics-knee-injury/
+
+**Counterfeit Ozempic Is on the Rise**\
+`Fake versions of popular drugs used for weight loss are putting people at risk.`\
+https://nytimes.com/2024/07/12/well/ozempic-fake-counterfeit-drugs.html
+
+**Arrizabalaga in talks over potential Al Ittihad move**\
+`Chelsea goalkeeper Kepa Arrizabalaga is in talks over a potential move to Saudi Pro League side Al Ittihad.`\
+https://nytimes.com/athletic/5322991/2024/07/12/kepa-arrizabalaga-saudi-chelsea-madrid/
+
 **Everton close to agreement with Spurs over revised payment terms for Dele**\
 `Everton are close to reaching an agreement with Tottenham Hotspur over a revised payment structure for Dele Alli.`\
 https://nytimes.com/athletic/5633494/2024/07/12/dele-everton-tottenham-contract/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-black-voters
 **Donors Tell Pro-Biden Super PAC Roughly $90 Million in Pledges Is Frozen**\
 `The decision to withhold such enormous sums of money is one of the most concrete examples of the fallout from President Biden’s poor debate performance at the end of June.`\
 https://nytimes.com/2024/07/12/us/politics/biden-donors-money.html
-
-**The Windup: The best rookie starting pitcher ever?**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5633789/2024/07/12/paul-skenes-best-rookie-sp-ever-plus-the-pain-of-not-drafting-gunnar-henderson/
-
-**Evans signs new Manchester United contract**\
-`Jonny Evans has signed a new one-year contract with Manchester United.`\
-https://nytimes.com/athletic/5633730/2024/07/12/jonny-evans-manchester-united-contract-new/
-
-**Bucky Dent's home run gets comic treatment, but autograph and profanity cost extra**\
-`New artwork features Dent's home run against the Red Sox in 1978 and the unprintable nickname he earned as a result.`\
-https://nytimes.com/athletic/5633162/2024/07/12/yankees-bucky-dent-red-sox-comics/
 
