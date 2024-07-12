@@ -1,3 +1,23 @@
+**Villa reach agreement to re-sign Philogene from Hull on five-year contract**\
+`Aston Villa have reached an agreement to re-sign winger Jaden Philogene from Hull City on a five-year contract.`\
+https://nytimes.com/athletic/5630792/2024/07/12/jaden-philogene-aston-vila-transfer-news/
+
+**Finding the Faces of 46 Children Taken From Ukraine**\
+`For a visual investigation, two Times journalists spent a year tracing 46 children who were taken from a foster home in Kherson and brought to Crimea.`\
+https://nytimes.com/2024/07/12/insider/finding-the-faces-of-46-children-taken-from-ukraine.html
+
+**Inzaghi signs Inter contract extension**\
+`Inter Milan head coach Simone Inzaghi has signed a one-year contract extension to keep him at the club until 2026.`\
+https://nytimes.com/athletic/5633390/2024/07/12/simone-inzaghi-inter-milan-contract/
+
+**$95 Million**\
+`The amount unaccounted for after the failure of a company that operated banking software for online financial start-ups.`\
+https://nytimes.com/2024/07/12/business/95-million-synapse-bankruptcy-fintech-fdic.html
+
+**Picking the Copa America best XI: Does Lionel Messi make it?**\
+`Our writers select their best XIs from Copa America`\
+https://nytimes.com/athletic/5631995/2024/07/12/copa-america-messi-best-team-rodriguez/
+
 **Donors to Pro-Biden Super PAC Are Said to Withhold Roughly $90 Million**\
 `The decision to withhold such enormous sums of money is one of the most concrete examples of the fallout from President Biden’s poor debate performance at the end of June.`\
 https://nytimes.com/2024/07/12/us/politics/biden-donors-money.html
