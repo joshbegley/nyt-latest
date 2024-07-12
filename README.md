@@ -1,3 +1,15 @@
+**What to expect from Tottenham's summer coaching shake-up**\
+`Chris Davies has left to become manager of Birmingham City, with Matt Wells stepping up, and a couple of new arrivals...`\
+https://nytimes.com/athletic/5631010/2024/07/12/tottenhams-coaching-staff-wells-montgomery/
+
+**Biden Uses NATO Summit to Assail Trump on Foreign Policy**\
+`At his news conference, the president also acknowledged a new strategy to disrupt the growing ties between China and Russia but provided no details.`\
+https://nytimes.com/2024/07/12/us/politics/biden-trump-foreign-policy.html
+
+**Ramsdale out, Garcia in? The reshaping of Arsenal's goalkeeping department**\
+`Arsenal may have an established first-choice goalkeeper, but there is lots of movement behind him, overseen by the influential Inaki Cana`\
+https://nytimes.com/athletic/5630909/2024/07/12/ramsdale-out-garcia-in-the-reshaping-of-arsenals-goalkeeping-department/
+
 **Connor Wong isn't an All-Star, but he's played like one for the Red Sox**\
 `Wong has put up All-Star numbers. His .314 BA would be fourth in the majors if he had enough at-bats to qualify.`\
 https://nytimes.com/athletic/5633061/2024/07/12/red-sox-connor-wong-performance/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5630833/2024/07/12/ligue-1-tv-deal-broadcast-rights
 **Dani Olmo has been a star of Euro 2024 - which club should trigger his €60m release clause?**\
 `Olmo could make the next move on an interesting career path this summer, but at which club would he fit in best?`\
 https://nytimes.com/athletic/5628946/2024/07/12/dani-olmo-transfer-latest-release-clause/
-
-**Friday Briefing**\
-`A solo news conference from President Biden.`\
-https://nytimes.com/2024/07/12/world/europe/biden-conference-gaza-france.html
-
-**Shearer, Gazza and co relive Euro 96: The Scotland goal, the magic, the heartbreak**\
-`The story of a monumental summer for England, retold by the players who made it all happen`\
-https://nytimes.com/athletic/5490129/2024/07/12/shearer-gazza-euro-96/
-
-**Friday's MLB projections: Best starting pitchers, playoff odds, props and more**\
-`Projections for Friday's MLB games with expert picks for best bets, pitcher props, home run trends and more.`\
-https://nytimes.com/athletic/5627317/2024/07/12/mlb-odds-predictions-best-bets-july-12/
 
