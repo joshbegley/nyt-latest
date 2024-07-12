@@ -1,3 +1,7 @@
+**The Strongest Case for Biden Is His Resilience in the Face of the Onslaught**\
+`Forcing Biden out is an invalidation of the Democratic process.`\
+https://nytimes.com/2024/07/11/opinion/biden-stay-in-race.html
+
 **Biden Mixes Up Trump and Harris**\
 `In an attempt to defend Vice President Kamala Harris, President Biden fumbled his answer to a reporter’s question and referred to “Vice President Trump” instead of Vice President Harris.`\
 https://nytimes.com/video/us/politics/100000009567642/biden-harris-trump.html
