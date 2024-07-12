@@ -1,3 +1,7 @@
+**A Senator’s Fate Is in a Jury’s Hands**\
+`Senator Robert Menendez is charged with 16 separate crimes, including bribery, obstructing justice and acting as an agent of a foreign government.`\
+https://nytimes.com/2024/07/12/nyregion/robert-menendez-trial-bribery.html
+
 **The problem with the Giants selling at the trade deadline**\
 `The Giants' roster is filled with contract situations that make it difficult for them to hold a traditional fire sale. `\
 https://nytimes.com/athletic/5633695/2024/07/12/sf-giants-trade-deadline-sellers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5634094/2024/07/12/yankees-prospect-jorbit-vivas-pr
 **Marathon Oil Agrees to Record Penalty for Alleged Clean Air Act Violations**\
 `The company will spend $242 million to resolve allegations that it released methane, a greenhouse gas, and other pollutants in North Dakota.`\
 https://nytimes.com/2024/07/12/business/energy-environment/epa-marathon-oil-clean-air-act.html
-
-**How News Outlets on the Left and Right Are Covering Kamala Harris**\
-`Some liberal news organizations have started playing up Ms. Harris’s perceived strengths. Conservative ones have stepped up their criticisms of her.`\
-https://nytimes.com/2024/07/12/business/media/news-outlets-kamala-harris.html
 
