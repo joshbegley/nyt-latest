@@ -1,3 +1,7 @@
+**Helicopter Crashes Off Hawaii Coast, Leaving 1 Dead and 2 Missing**\
+`The helicopter, operated by a tour company, went down in waters off the island of Kauai.`\
+https://nytimes.com/2024/07/12/us/hawaii-kauai-helicopter-crash.html
+
 **Highlights from Biden’s News Conference**\
 `President Biden held an hourlong news conference with reporters, stumbling early on but remaining defiant in the face of questions about his fitness to continue his campaign.`\
 https://nytimes.com/video/us/100000009567939/biden-news-conference-takeaways.html

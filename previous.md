@@ -1,3 +1,7 @@
+**Helicopter Crashes Off Hawaii Coast, Leaving 1 Dead and 2 Missing**\
+`The helicopter, operated by a tour company, went down in waters off the island of Kauai.`\
+https://nytimes.com/2024/07/12/us/hawaii-kauai-helicopter-crash.html
+
 **Highlights from Biden’s News Conference**\
 `President Biden held an hourlong news conference with reporters, stumbling early on but remaining defiant in the face of questions about his fitness to continue his campaign.`\
 https://nytimes.com/video/us/100000009567939/biden-news-conference-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/12/world/australia/christianity-outback.html
 **How will Amario Cozier-Duberry fit in at Brighton?**\
 `Brighton convinced the 19-year-old winger to join them after his departure from Arsenal but where will he fit in?`\
 https://nytimes.com/athletic/5623785/2024/07/12/amario-cozier-duberry-brighton-arsenal/
-
-**West Ham's striker hunt - the transfer business they must get right this summer**\
-`West Ham putting their striker recruitment issues to bed this summer would provide Julen Loptegui with a platform for success`\
-https://nytimes.com/athletic/5630996/2024/07/12/west-ham-striker-transfer-ings-antonio/
 
