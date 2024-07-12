@@ -1,3 +1,7 @@
+**France on Eve of Olympics Is at a Political Impasse, With Unrest Brewing**\
+`After elections produced a deadlocked Parliament, both left and right are claiming victory, while President Emmanuel Macron insists no one won. It’s a recipe for turmoil.`\
+https://nytimes.com/2024/07/12/world/europe/france-election-politics-olympics.html
+
 **Daniil Medvedev escapes default in Wimbledon semi-final**\
 `WIMBLEDON — Daniil Medvedev narrowly escaped being defaulted from his Wimbledon semi-final against Carlos Alcaraz after aiming abuse at umpire Eva Asderaki-Moore on Centre Court.`\
 https://nytimes.com/athletic/5634150/2024/07/12/daniil-medvedev-wimbledon-alcaraz-semi-final/
