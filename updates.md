@@ -1,3 +1,7 @@
+**High School Collapses in Nigeria, Killing Several Students**\
+`An unknown number of people were trapped in the rubble of the building in Jos, a city of one million residents in the central part of the country.`\
+https://nytimes.com/2024/07/12/world/africa/nigeria-school-collapse.html
+
 **MLB Futures Game primer: The top 20 hitters Jim Bowden can't wait to watch**\
 `The Futures Game is a great opportunity to evaluate and compare some of the top hitting prospects. Here's who — and what — we're watching. `\
 https://nytimes.com/athletic/5632396/2024/07/12/mlb-futures-game-2024-hitters/
