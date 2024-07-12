@@ -1,3 +1,15 @@
+**Inflation Weighs on Nation’s Largest Banks**\
+`JPMorgan and Wells Fargo reported that overall deposits dropped. At Wells Fargo, a core measure of profitability sank.`\
+https://nytimes.com/2024/07/12/business/wells-fargo-jpmorgan-citibank.html
+
+**Did Biden Do Enough?**\
+`The president’s performance in Thursday’s news conference at the NATO summit may not have been enough to calm Democratic donors and officials.`\
+https://nytimes.com/2024/07/12/business/dealbook/biden-news-conference-donors.html
+
+**AT&T Says Data of ‘Nearly All’ Customers Was Breached in 2022**\
+`The breach affected customers who used the company’s services between May and October 2022. The stolen data does not include content of calls and texts, the company said.`\
+https://nytimes.com/2024/07/12/business/att-data-breach.html
+
 **Olympic softball's divided experience: What playing in OKC instead of L.A. means for 2028**\
 `When softball returns to the Olympics in 2028, the experience will differ from most other Olympics with games in OKC instead of Los Angeles.`\
 https://nytimes.com/athletic/5633323/2024/07/12/olympics-softball-oklahoma-city-los-angeles-2028/

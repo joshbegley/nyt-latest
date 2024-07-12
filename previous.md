@@ -1,9 +1,17 @@
+**Inflation Weighs on Nation’s Largest Banks**\
+`JPMorgan and Wells Fargo reported that overall deposits dropped. At Wells Fargo, a core measure of profitability sank.`\
+https://nytimes.com/2024/07/12/business/wells-fargo-jpmorgan-citibank.html
+
+**Did Biden Do Enough?**\
+`The president’s performance in Thursday’s news conference at the NATO summit may not have been enough to calm Democratic donors and officials.`\
+https://nytimes.com/2024/07/12/business/dealbook/biden-news-conference-donors.html
+
 **Olympic softball's divided experience: What playing in OKC instead of L.A. means for 2028**\
 `When softball returns to the Olympics in 2028, the experience will differ from most other Olympics with games in OKC instead of Los Angeles.`\
 https://nytimes.com/athletic/5633323/2024/07/12/olympics-softball-oklahoma-city-los-angeles-2028/
 
-**AT&T Says Hackers Stole Data of Millions of Customers**\
-`The breach affected “nearly all” AT&T customers who used the company’s services between May and October 2022. The stolen data does not include content of calls and texts, the company said.`\
+**AT&T Says Data of ‘Nearly All’ Customers Was Breached in 2022**\
+`The breach affected customers who used the company’s services between May and October 2022. The stolen data does not include content of calls and texts, the company said.`\
 https://nytimes.com/2024/07/12/business/att-data-breach.html
 
 **Spanish teams and their remarkable record in finals: Since 2001, they just don't lose them**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5632599/2024/07/12/usmnt-head-coach-berhalter-klopp
 **The Athletic’s Friday football quiz question #12**\
 `Every week, we'll serve up a poser from our vault of football conundrums. It won't be easy (unless you're really good…)`\
 https://nytimes.com/athletic/5632320/2024/07/12/the-athletics-friday-football-quiz-question-12/
-
-**State of the 49ers, LB: Will Fred Warner and Dre Greenlaw's tackling bounce back?**\
-`Greenlaw is likely to start the season on the PUP list as he recovers from his Achilles tear. Do the 49ers have the depth to handle that?`\
-https://nytimes.com/athletic/5560534/2024/07/12/san-francisco-49ers-linebackers-2024-warner-greenlaw/
-
-**England vs Spain dissected: Will Watkins start? Is Foden back? Is football coming home?**\
-`Should Southgate make changes? How can his team upset the odds again? And how can Spain be beaten?`\
-https://nytimes.com/athletic/5631072/2024/07/12/england-euro-2024-final-team-predictions/
 
