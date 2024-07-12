@@ -1,3 +1,7 @@
+**The Beastie Boys Sue Chili’s Over Use of ‘Sabotage’**\
+`The band said that the restaurant chain had ripped off the song and its music video in advertising videos posted to social media. The group has won similar cases in the past.`\
+https://nytimes.com/2024/07/11/business/beastie-boys-chilis-lawsuit.html
+
 **Biden Says Harris Is Qualified to Be President, but Vows to Remain in Race**\
 `Even as the president promoted his vice president’s qualifications alongside his own, he committed the sort of gaffe that has unnerved Democrats, referring to her as “Vice President Trump.”`\
 https://nytimes.com/2024/07/11/us/politics/kamala-harris-biden-news-conference.html
