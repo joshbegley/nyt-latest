@@ -1,3 +1,7 @@
+**The New N.Y.P.D. Motto Is Missing Some Important Words**\
+`The change reflects the department’s aggressive and problematic new attitude under Mayor Eric Adams.`\
+https://nytimes.com/2024/07/09/opinion/nypd-slogan-aggressive-adams.html
+
 **At ESPYs, Prince Harry Applauded a Critic While Accepting an Award**\
 `A former N.F.L. player’s mother criticized ESPN for giving an award honoring her son to the British royal. In his speech, Harry said he respects her advocacy.`\
 https://nytimes.com/2024/07/12/style/prince-harry-espys-pat-tillman.html
