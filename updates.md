@@ -1,3 +1,7 @@
+**Russian Prosecutors Have Been Very Busy Lately**\
+`They are spending their time repressing dissent and discouraging real journalism.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/russian-prosecutors-repression
+
 **Baldwin Weeps After ‘Rust’ Case Is Dismissed**\
 `A judge in New Mexico dismissed the case against the actor Alec Baldwin on Friday after finding that the state had withheld evidence.`\
 https://nytimes.com/video/us/100000009569575/alec-baldwin-rust-trial.html

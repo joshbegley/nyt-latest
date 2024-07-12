@@ -1,3 +1,7 @@
+**Russian Prosecutors Have Been Very Busy Lately**\
+`They are spending their time repressing dissent and discouraging real journalism.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/russian-prosecutors-repression
+
 **Baldwin Weeps After ‘Rust’ Case Is Dismissed**\
 `A judge in New Mexico dismissed the case against the actor Alec Baldwin on Friday after finding that the state had withheld evidence.`\
 https://nytimes.com/video/us/100000009569575/alec-baldwin-rust-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5634492/2024/07/12/uswnt-1999-equal-pay-honored/
 **Wimbledon day 12: A women's doubles streak gets snapped, Medvedev calls for tennis VAR**\
 `On men's semifinal day, there were more calls for VAR in tennis, and a women's doubles streak got snapped`\
 https://nytimes.com/athletic/5633768/2024/07/12/wimbledon-recap-hsieh-doubles-streak-medvedev-default/
-
-**Are You an AT&T Customer? Here’s What to Know About the Data Breach**\
-`Nearly all AT&T customers were affected by a recent cyberattack.`\
-https://nytimes.com/2024/07/12/us/phone-data-breach.html
 
