@@ -1,3 +1,7 @@
+**After a high-profile news conference, Biden heads to Michigan. Here’s the latest.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/07/12/us/biden-trump-election/after-a-high-profile-news-conference-biden-heads-to-michigan-heres-the-latest
+
 **As the Tour de France Climbs Higher, It’s a Two-Man Race**\
 `Tadej Pogacar and Jonas Vingegaard, who have split the past four Tour de France wins, are set for a duel in the mountains.`\
 https://nytimes.com/2024/07/12/sports/cycling/tour-de-france-pogacar-vingegaard.html
