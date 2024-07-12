@@ -1,3 +1,15 @@
+**Did King Charles Really Buy a $6 Million New York Condo?**\
+`The reports were tantalizing, but someone else was behind the expensive purchase.`\
+https://nytimes.com/2024/07/12/realestate/king-charles-condo-nyc.html
+
+**Democratic Donors Froze Pro-Biden Contributions**\
+`Also, a look at Donald Trump’s V.P. contenders. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/07/12/briefing/biden-donor-pressure-trump-vice-president.html
+
+**Our 5-Step Guide to the Perfect Beach Day**\
+`From music and snacks to a backup plan if it rains, here’s everything you need for a blissful day in the sand.`\
+https://nytimes.com/2024/07/12/podcasts/culture-desk-summer-beach-day-guide.html
+
 **A Gaza City Neighborhood Is Left in Ruins After Israeli Troops Withdraw**\
 `Intense fighting between soldiers and Hamas militants has left parts of the city uninhabitable, say residents who returned.`\
 https://nytimes.com/2024/07/12/world/middleeast/gaza-city-shajaiya-israel-hamas.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5634076/2024/07/12/tennis-big-three-comparison-djok
 **As Biden Points to His Past, Supporters Are More Worried About His Future**\
 `For many of the president’s allies, it’s not the last three and a half years that concern them. It’s the next four.`\
 https://nytimes.com/2024/07/12/us/politics/biden-record-2024-election.html
-
-**Marcelo Bielsa hits out at Copa America organizers, says it 'has not been professional'**\
-`In an emotional press conference, Bielsa attacked the pitch and security conditions at the tournament, and more`\
-https://nytimes.com/athletic/5634440/2024/07/12/marcelo-bielsa-copa-america-news/
-
-**Brighton complete transfer of IFK Gothenburg teenager Yalcouye**\
-`Brighton have completed a deal to sign Malick Yalcouye from IFK Gothenburg.`\
-https://nytimes.com/athletic/5624433/2024/07/12/brighton-transfers-malick-yalcouye/
-
-**Beyond the Classic Barbecue: Three Other Ways to Cook Outdoors**\
-`Chefs from different global culinary traditions demonstrate how they do it — not a hamburger or hot dog in sight.`\
-https://nytimes.com/2024/07/12/t-magazine/outdoor-cooking-grill.html
 
