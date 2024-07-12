@@ -1,3 +1,11 @@
+**At ESPYs, Prince Harry Applauded a Critic While Accepting an Award**\
+`A former N.F.L. player’s mother criticized ESPN for giving an award honoring her son to the British royal. In his speech, Harry said he respects her advocacy.`\
+https://nytimes.com/2024/07/12/style/prince-harry-espys-pat-tillman.html
+
+**Paris mayor to 'dive in' still-unsafe River Seine next week**\
+`Tests showed that E. Coli levels spiked in two different locations last week, but lessened in recent days earlier this week.`\
+https://nytimes.com/athletic/5634073/2024/07/12/river-seine-contamination-bacteria-mayor-swim/
+
 **The New N.Y.P.D. Motto Is Missing Some Important Words**\
 `The change reflects the department’s aggressive and problematic new attitude under Mayor Eric Adams.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/nypd-slogan-aggressive-adams
@@ -30,12 +38,4 @@ https://nytimes.com/interactive/2024/07/12/arts/television/best-of-late-night-bi
 `Follow live coverage of Wimbledon 2024 here
 Carlos Alcaraz reached his second consecutive Wimbledon final, after beating Daniil Medvedev 6-7, 6-3, 6-4, 6-4 on Centre Court on Friday.`\
 https://nytimes.com/athletic/5633754/2024/07/12/carlos-alcaraz-daniil-medvedev-wimbledon/
-
-**A Leading Environmental Group Calls on Biden to Step Aside**\
-`The Sunrise Movement, expressing concern about the president’s ability to win re-election, said he should “pass the torch to a new nominee.”`\
-https://nytimes.com/2024/07/12/climate/biden-sunrise-movement.html
-
-**Carlos Alcaraz is a Wimbledon finalist - and Spain's Euro 2024 good-luck charm**\
-`Carlos Alcaraz is on the cusp of making tennis history at Wimbledon, as Spain chase the same dream at Euro 2024`\
-https://nytimes.com/athletic/5630953/2024/07/12/carlos-alcaraz-wimbledon-spain-football-european-championship/
 

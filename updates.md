@@ -1,3 +1,11 @@
+**At ESPYs, Prince Harry Applauded a Critic While Accepting an Award**\
+`A former N.F.L. player’s mother criticized ESPN for giving an award honoring her son to the British royal. In his speech, Harry said he respects her advocacy.`\
+https://nytimes.com/2024/07/12/style/prince-harry-espys-pat-tillman.html
+
+**Paris mayor to 'dive in' still-unsafe River Seine next week**\
+`Tests showed that E. Coli levels spiked in two different locations last week, but lessened in recent days earlier this week.`\
+https://nytimes.com/athletic/5634073/2024/07/12/river-seine-contamination-bacteria-mayor-swim/
+
 **The New N.Y.P.D. Motto Is Missing Some Important Words**\
 `The change reflects the department’s aggressive and problematic new attitude under Mayor Eric Adams.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/nypd-slogan-aggressive-adams
