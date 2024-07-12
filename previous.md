@@ -1,3 +1,7 @@
+**Hotel Workers May Face Murder Charges After Death of Man at Milwaukee Hyatt**\
+`The Milwaukee Police Department said it had referred four felony murder charges to prosecutors, who will decide whether to bring criminal charges.`\
+https://nytimes.com/2024/07/12/us/dvontaye-mitchell-milwaukee-hotel-charges.html
+
 **How to Pack for a Short Trip With Just One Personal Item on a Flight**\
 `It's possible to leave your luggage at home.`\
 https://nytimes.com/interactive/2024/07/12/smarter-living/wirecutter/personal-item-pack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/12/us/politics/giuliani-bankruptcy-case-dismissed.ht
 **SpaceX Falcon 9 Rocket Fails in Orbit**\
 `The second stage of a SpaceX Falcon 9 rocket failed on an attempt to deploy the company’s Starlink internet satellites, ending a streak of more than 300 successful Falcon 9 launches.`\
 https://nytimes.com/video/science/space/100000009568187/spacex-falcon-rocket-failure.html
-
-**Talking About the Century’s Best Books**\
-`A roundtable of Book Review editors discuss what surprised them, what delighted them, what will send them back to their own shelves.`\
-https://nytimes.com/2024/07/12/books/review/talking-about-the-centurys-best-books.html
 

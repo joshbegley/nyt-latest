@@ -1,3 +1,7 @@
+**Hotel Workers May Face Murder Charges After Death of Man at Milwaukee Hyatt**\
+`The Milwaukee Police Department said it had referred four felony murder charges to prosecutors, who will decide whether to bring criminal charges.`\
+https://nytimes.com/2024/07/12/us/dvontaye-mitchell-milwaukee-hotel-charges.html
+
 **How to Pack for a Short Trip With Just One Personal Item on a Flight**\
 `It's possible to leave your luggage at home.`\
 https://nytimes.com/interactive/2024/07/12/smarter-living/wirecutter/personal-item-pack.html
