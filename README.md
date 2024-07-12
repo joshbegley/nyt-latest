@@ -1,3 +1,7 @@
+**Twins' scout who initially 'missed' on Brooks Lee is who they trust when drafting hitters**\
+`Scout Tim O’Neil is considered the club's “go-to guy” when it comes to drafting hitters. His initial "miss" on Lee had a happy ending.`\
+https://nytimes.com/athletic/5632460/2024/07/12/twins-mlb-draft-brooks-lee-scout-tim-oneil/
+
 **MLB draft preview: 4 players Cardinals could target with No. 7 pick**\
 `Who will the Cardinals draft with their first top-10 pick in 26 years? Hagen Smith or Bryce Rainer could prove to be ideal fits.`\
 https://nytimes.com/athletic/5632143/2024/07/12/cardinals-mlb-draft-hagen-bryce-rainer/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/12/us/biden-trump-election/after-a-high-profile
 **As the Tour de France Climbs Higher, It’s a Two-Man Race**\
 `Tadej Pogacar and Jonas Vingegaard, who have split the past four Tour de France wins, are set for a duel in the mountains.`\
 https://nytimes.com/2024/07/12/sports/cycling/tour-de-france-pogacar-vingegaard.html
-
-**The New York Times News Quiz, July 12, 2024**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2024/07/12/briefing/biden-nato-france-election-heat-news-quiz.html
 
