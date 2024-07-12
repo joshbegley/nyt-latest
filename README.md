@@ -1,3 +1,7 @@
+**Hamas Official: ‘We’re Not Obstinate’ in Peace Talks on Gaza**\
+`Husam Badran said the militant group would give up civilian control in the territory, but would not disband its military wing.`\
+https://nytimes.com/2024/07/12/world/middleeast/hamas-israel-peace-talks-gaza.html
+
 **For Ukraine, an ‘Irreversible’ Path to NATO Clouded by Uncertainty**\
 `Hanging over the alliance’s summit in Washington this week was the shadow of the U.S. presidential election, which added a layer of unpredictability to the war and to the future of the bloc.`\
 https://nytimes.com/2024/07/12/world/europe/nato-ukraine-election-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/12/world/americas/wildfires-brazil-amazon-rainforest
 **Staveley and Ghodoussi leave Newcastle United**\
 `Newcastle United have confirmed that co-owners Amanda Staveley and Mehrdad Ghodoussi have left the club after three years at St James&#8217; Park.`\
 https://nytimes.com/athletic/5610811/2024/07/12/amanda-staveley-to-leave-newcastle-united/
-
-**Should I Come Clean About My Old Sexual and Financial Betrayals?**\
-`The magazine’s Ethicist columnist on the complications of confession.`\
-https://nytimes.com/2024/07/12/magazine/sexual-financial-betrayals-ethics.html
 
