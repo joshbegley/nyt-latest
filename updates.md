@@ -1,3 +1,15 @@
+**City's Gomez completes permanent Real Sociedad move**\
+`Sergio Gomez has joined Real Sociedad from Manchester City for €10million.`\
+https://nytimes.com/athletic/5633531/2024/07/12/manchester-city-transfers-sergio-gomez/
+
+**How Wildfires Get Their Names**\
+`There isn’t much science to it.`\
+https://nytimes.com/2024/07/12/us/wildfire-names.html
+
+**The 100 Best Books of the 21st Century**\
+`To mark the first 25 years of the century, The New York Times Book Review sent a survey to hundreds of literary luminaries, asking them to name the 10 best books published since Jan. 1, 2000. Gilbert Cruz, editor of the Book Review, gives some highlights from the list.`\
+https://nytimes.com/video/books/100000009563890/the-100-best-books-of-the-21st-century.html
+
 **Finland Passes Law to Turn Away Asylum Seekers at Border**\
 `The country last year closed all land crossings with Russia, accusing Moscow of trying to weaponize migration. Russian authorities have called the accusations “unsubstantiated.”`\
 https://nytimes.com/2024/07/12/world/europe/finland-asylum-russia-border.html

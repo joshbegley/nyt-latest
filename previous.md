@@ -1,3 +1,15 @@
+**City's Gomez completes permanent Real Sociedad move**\
+`Sergio Gomez has joined Real Sociedad from Manchester City for €10million.`\
+https://nytimes.com/athletic/5633531/2024/07/12/manchester-city-transfers-sergio-gomez/
+
+**How Wildfires Get Their Names**\
+`There isn’t much science to it.`\
+https://nytimes.com/2024/07/12/us/wildfire-names.html
+
+**The 100 Best Books of the 21st Century**\
+`To mark the first 25 years of the century, The New York Times Book Review sent a survey to hundreds of literary luminaries, asking them to name the 10 best books published since Jan. 1, 2000. Gilbert Cruz, editor of the Book Review, gives some highlights from the list.`\
+https://nytimes.com/video/books/100000009563890/the-100-best-books-of-the-21st-century.html
+
 **Finland Passes Law to Turn Away Asylum Seekers at Border**\
 `The country last year closed all land crossings with Russia, accusing Moscow of trying to weaponize migration. Russian authorities have called the accusations “unsubstantiated.”`\
 https://nytimes.com/2024/07/12/world/europe/finland-asylum-russia-border.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/12/business/dealbook/biden-news-conference-donors.ht
 **Olympic softball's divided experience: What playing in OKC instead of L.A. means for 2028**\
 `When softball returns to the Olympics in 2028, the experience will differ from most other Olympics with games in OKC instead of Los Angeles.`\
 https://nytimes.com/athletic/5633323/2024/07/12/olympics-softball-oklahoma-city-los-angeles-2028/
-
-**AT&T Says Data of ‘Nearly All’ Customers Was Breached in 2022**\
-`The breach affected customers who used the company’s services between May and October 2022. The stolen data does not include content of calls and texts, the company said.`\
-https://nytimes.com/2024/07/12/business/att-data-breach.html
-
-**Spanish teams and their remarkable record in finals: Since 2001, they just don't lose them**\
-`Luis de la Fuente and his squad will hope to make it 23 finals unbeaten for Spanish teams. History, if nothing else, says they will succeed`\
-https://nytimes.com/athletic/5631859/2024/07/12/spain-finals-dominance-euro-2024/
-
-**Man City Women sign Shimizu from West Ham**\
-`Manchester City Women have completed the signing of full-back Risa Shimizu on a free transfer from West Ham United.`\
-https://nytimes.com/athletic/5631201/2024/07/12/risa-shimizu-manchester-city-transfer/
 
