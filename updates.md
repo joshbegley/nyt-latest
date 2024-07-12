@@ -1,3 +1,7 @@
+**Fact-Checking Biden’s News Conference at the NATO Summit**\
+`The president omitted context or exaggerated in making claims about polling, migration at the border and attacks on his opponent.`\
+https://nytimes.com/2024/07/11/us/biden-fact-check-news-conference.html
+
 **Dodgers swept by Phillies as their prolonged, mistake-filled rut continues**\
 `Manager Dave Roberts after the Dodgers were no match for Phillies: “They're clearly a better team than we are right now."`\
 https://nytimes.com/athletic/5633008/2024/07/11/dodgers-phillies-sweep/
