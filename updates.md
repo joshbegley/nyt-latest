@@ -1,3 +1,7 @@
+**Lyon identify Arsenal's McCabe as summer transfer target**\
+`Arsenal face a challenge to retain one of their leading women’s players, with Katie McCabe identified by Lyon as a firm target this summer.`\
+https://nytimes.com/athletic/5633616/2024/07/12/katie-mccabe-arsenal-lyon-transfer-target/
+
 **Hamas Official: ‘We’re Not Obstinate’ in Peace Talks on Gaza**\
 `Husam Badran said the militant group would give up civilian control in the territory, but would not disband its military wing.`\
 https://nytimes.com/2024/07/12/world/middleeast/hamas-israel-peace-talks-gaza.html
