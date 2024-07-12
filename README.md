@@ -1,3 +1,11 @@
+**Paul Skenes named All-Star Game starting pitcher**\
+`Skenes will be the fifth rookie to start an All-Star Game, joining Hideo Nomo, Fernando Valenzuela, Mark Fidrych and Dave Stenhouse.`\
+https://nytimes.com/athletic/5633934/2024/07/12/pirates-paul-skenes-all-star-game-starter/
+
+**Are Southgate's England lucky? What FIFA's world rankings tell us about their tournament runs**\
+`According to FIFA's world rankings, England have enjoyed one of their easiest tournament runs at Euro 2024. What else do those ratings say?`\
+https://nytimes.com/athletic/5631308/2024/07/12/england-tournaments-euro-2024-difficulty-rankings/
+
 **Director Who Resigned From British Museum in Scandal Has a New Job**\
 `Hartwig Fischer, a German art historian, will be the director of a new museum of world cultures in Saudi Arabia.`\
 https://nytimes.com/2024/07/12/arts/design/hartwig-fischer-saudi-arabia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/12/insider/finding-the-faces-of-46-children-taken-fr
 **Inzaghi signs Inter contract extension**\
 `Inter Milan head coach Simone Inzaghi has signed a one-year contract extension to keep him at the club until 2026.`\
 https://nytimes.com/athletic/5633390/2024/07/12/simone-inzaghi-inter-milan-contract/
-
-**$95 Million**\
-`The amount unaccounted for after the failure of a company that operated banking software for online financial start-ups.`\
-https://nytimes.com/2024/07/12/business/95-million-synapse-bankruptcy-fintech-fdic.html
-
-**Picking the Copa America best XI: Does Lionel Messi make it?**\
-`Our writers select their best XIs from Copa America`\
-https://nytimes.com/athletic/5631995/2024/07/12/copa-america-messi-best-team-rodriguez/
 
