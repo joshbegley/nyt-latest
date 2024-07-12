@@ -1,3 +1,7 @@
+**Fact-Checking Biden’s News Conference at the NATO Summit**\
+`The president omitted context or exaggerated in making claims about polling, migration at the border and attacks on his opponent.`\
+https://nytimes.com/2024/07/11/us/biden-fact-check-news-conference.html
+
 **Dodgers swept by Phillies as their prolonged, mistake-filled rut continues**\
 `Manager Dave Roberts after the Dodgers were no match for Phillies: “They're clearly a better team than we are right now."`\
 https://nytimes.com/athletic/5633008/2024/07/11/dodgers-phillies-sweep/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/opinion/biden-stay-in-race.html
 **Biden Mixes Up Trump and Harris**\
 `In an attempt to defend Vice President Kamala Harris, President Biden fumbled his answer to a reporter’s question and referred to “Vice President Trump” instead of Vice President Harris.`\
 https://nytimes.com/video/us/politics/100000009567642/biden-harris-trump.html
-
-**Jack Schlossberg Is Named a Political Correspondent for Vogue**\
-`Mr. Schlossberg, 31, the only grandson of President John F. Kennedy, has courted attention with outlandish TikTok videos, many of them political.`\
-https://nytimes.com/2024/07/11/style/jack-schlossberg-vogue-correspondent.html
 
