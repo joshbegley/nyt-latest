@@ -1,3 +1,7 @@
+**Chelsea confirm Veiga signing from Basel**\
+`Chelsea have completed the signing of Renato Veiga from FC Basel.`\
+https://nytimes.com/athletic/5633990/2024/07/12/chelsea-transfers-renato-veiga-basel/
+
 **Paul Skenes named All-Star Game starting pitcher**\
 `Skenes will be the fifth rookie to start an All-Star Game, joining Hideo Nomo, Fernando Valenzuela, Mark Fidrych and Dave Stenhouse.`\
 https://nytimes.com/athletic/5633934/2024/07/12/pirates-paul-skenes-all-star-game-starter/

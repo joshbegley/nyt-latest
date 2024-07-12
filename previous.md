@@ -1,3 +1,7 @@
+**Chelsea confirm Veiga signing from Basel**\
+`Chelsea have completed the signing of Renato Veiga from FC Basel.`\
+https://nytimes.com/athletic/5633990/2024/07/12/chelsea-transfers-renato-veiga-basel/
+
 **Paul Skenes named All-Star Game starting pitcher**\
 `Skenes will be the fifth rookie to start an All-Star Game, joining Hideo Nomo, Fernando Valenzuela, Mark Fidrych and Dave Stenhouse.`\
 https://nytimes.com/athletic/5633934/2024/07/12/pirates-paul-skenes-all-star-game-starter/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5630792/2024/07/12/jaden-philogene-aston-vila-trans
 **Finding the Faces of 46 Children Taken From Ukraine**\
 `For a visual investigation, two Times journalists spent a year tracing 46 children who were taken from a foster home in Kherson and brought to Crimea.`\
 https://nytimes.com/2024/07/12/insider/finding-the-faces-of-46-children-taken-from-ukraine.html
-
-**Inzaghi signs Inter contract extension**\
-`Inter Milan head coach Simone Inzaghi has signed a one-year contract extension to keep him at the club until 2026.`\
-https://nytimes.com/athletic/5633390/2024/07/12/simone-inzaghi-inter-milan-contract/
 
