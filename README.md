@@ -1,3 +1,11 @@
+**Are You an AT&T Customer? Here’s What to Know About the Data Breach**\
+`Nearly all AT&T customers were affected by a recent cyberattack.`\
+https://nytimes.com/2024/07/12/us/phone-data-breach.html
+
+**Anthea Sylbert, Costume Designer Who Became a Producer, Dies at 84**\
+`Her career unfolded in three phases: as the creator of costumes for movies like “Chinatown,” as a studio executive and as a producer, largely with her friend Goldie Hawn.`\
+https://nytimes.com/2024/07/12/movies/anthea-sylbert-dead.html
+
 **Fantasy baseball waiver wire: Yariel Rodriguez, Rowdy Tellez and more adds**\
 `John Laghezza identifies the best options on the waiver wire, this week pointing fantasy managers towards a current and former Blue Jay.`\
 https://nytimes.com/athletic/5631419/2024/07/12/fantasy-baseball-waiver-wire-yariel-rodriguez-rowdy-tellez-and-more-adds/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5634456/2024/07/12/pistons-rookie-ron-holland-nba-s
 **118 member states of the United Nations pledge support for UNRWA.**\
 `By Anjana Sankar`\
 https://nytimes.com/live/2024/07/12/world/israel-gaza-war-hamas/118-member-states-of-the-united-nations-pledge-support-for-unrwa
-
-**Canada head coach Jesse Marsch has 'no interest' in vacant USMNT job**\
-`Jesse Marsch has insisted he has zero interest in the vacant job as head coach of the United States men’s national team.`\
-https://nytimes.com/athletic/5634499/2024/07/12/jesse-marsch-usmnt-coach-berhalter/
-
-**Jalen Brunson, Knicks agree to four-year extension: Source**\
-`Though New York offered the most it could in an extension, re-signing now was not the most lucrative path Brunson could have taken.`\
-https://nytimes.com/athletic/5632870/2024/07/12/jalen-brunson-knicks-extension/
 
