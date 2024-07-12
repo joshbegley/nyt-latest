@@ -1,3 +1,7 @@
+**Brighton complete transfer of IFK Gothenburg teenager Yalcouye**\
+`Brighton have completed a deal to sign Malick Yalcouye from IFK Gothenburg.`\
+https://nytimes.com/athletic/5624433/2024/07/12/brighton-transfers-malick-yalcouye/
+
 **Beyond the Classic Barbecue: Three Other Ways to Cook Outdoors**\
 `Chefs from different global culinary traditions demonstrate how they do it — not a hamburger or hot dog in sight.`\
 https://nytimes.com/2024/07/12/t-magazine/outdoor-cooking-grill.html
