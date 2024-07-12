@@ -1,3 +1,7 @@
+**Reds' unheralded "pros" Austin Wynns, Santiago Espinal are helping fill the gaps**\
+`“There’s always those role players, off-the-bench players, and you’ve got to take advantage of the opportunity when it’s given," Wynns said.`\
+https://nytimes.com/athletic/5632902/2024/07/11/reds-austin-wynns-santiago-espinal-roles/
+
 **NASA Mission to Europa Imperiled by Chips Aboard Spacecraft**\
 `Transistors on the Europa Clipper spacecraft, scheduled to launch in October, may not be able to endure the harsh radiation around the planet Jupiter.`\
 https://nytimes.com/2024/07/11/science/europa-clipper-nasa-radiation.html
