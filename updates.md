@@ -1,3 +1,15 @@
+**Beyond the Classic Barbecue: Three Other Ways to Cook Outdoors**\
+`Chefs from different global culinary traditions demonstrate how they do it — not a hamburger or hot dog in sight.`\
+https://nytimes.com/2024/07/12/t-magazine/outdoor-cooking-grill.html
+
+**Atletico Madrid's Saul in advanced talks to join Sevilla on loan**\
+`Atletico Madrid midfielder Saul is in advanced to join Sevilla on a season-long loan deal.`\
+https://nytimes.com/athletic/5626543/2024/07/12/saul-atletico-madrid-transfers-sevilla/
+
+**Hamas Official: ‘We’re Not Obstinate’ in Cease-Fire Talks on Gaza**\
+`Husam Badran said the militant group would give up civilian control in the territory, but would not disband its military wing.`\
+https://nytimes.com/2024/07/12/world/middleeast/hamas-israel-peace-talks-gaza.html
+
 **Hotel Workers May Face Murder Charges After Death of Man at Milwaukee Hyatt**\
 `The Milwaukee Police Department said it had referred four felony murder charges to prosecutors, who will decide whether to bring criminal charges.`\
 https://nytimes.com/2024/07/12/us/dvontaye-mitchell-milwaukee-hotel-charges.html
