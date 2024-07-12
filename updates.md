@@ -1,3 +1,7 @@
+**The Windup: The best rookie starting pitcher ever?**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5633789/2024/07/12/paul-skenes-best-rookie-sp-ever-plus-the-pain-of-not-drafting-gunnar-henderson/
+
 **Evans signs new Manchester United contract**\
 `Jonny Evans has signed a new one-year contract with Manchester United.`\
 https://nytimes.com/athletic/5633730/2024/07/12/jonny-evans-manchester-united-contract-new/
