@@ -1,3 +1,11 @@
+**Fantasy baseball waiver wire: Yariel Rodriguez, Rowdy Tellez and more adds**\
+`John Laghezza identifies the best options on the waiver wire, this week pointing fantasy managers towards a current and former Blue Jay.`\
+https://nytimes.com/athletic/5631419/2024/07/12/fantasy-baseball-waiver-wire-yariel-rodriguez-rowdy-tellez-and-more-adds/
+
+**Biden’s visit to Detroit draws few high-profile Michigan Democrats.**\
+`Gov. Gretchen Whitmer posted a welcome on social media but was not on hand. The state’s two Democratic senators, Debbie Stabenow and Gary Peters, and a leading candidate for Ms. Stabenow’s seat, Representative Elissa Slotkin, all were otherwise occupied.`\
+https://nytimes.com/live/2024/07/12/us/biden-trump-election/bidens-visit-to-detroit-draws-few-high-profile-michigan-democrats
+
 **Did King Charles Really Buy a $6 Million New York Condo?**\
 `The reports were tantalizing, but someone else was behind the expensive purchase.`\
 https://nytimes.com/2024/07/12/realestate/king-charles-condo-nyc.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5634499/2024/07/12/jesse-marsch-usmnt-coach-berhalt
 **Jalen Brunson, Knicks agree to four-year extension: Source**\
 `Though New York offered the most it could in an extension, re-signing now was not the most lucrative path Brunson could have taken.`\
 https://nytimes.com/athletic/5632870/2024/07/12/jalen-brunson-knicks-extension/
-
-**Daniil Medvedev beat the best player in the world at Wimbledon. Then he had to beat another**\
-`The Russian got past Jannik Sinner at the All England Club — but beating the world No 1 doesn't mean winning the title with Alcaraz around`\
-https://nytimes.com/athletic/5634076/2024/07/12/tennis-big-three-comparison-djokovic-alcaraz-medvedev-sinner/
-
-**As Biden Points to His Past, Supporters Are More Worried About His Future**\
-`For many of the president’s allies, it’s not the last three and a half years that concern them. It’s the next four.`\
-https://nytimes.com/2024/07/12/us/politics/biden-record-2024-election.html
 
