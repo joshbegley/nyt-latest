@@ -1,3 +1,11 @@
+**Trump’s Subtle Shift in His V.P. Calculations**\
+`Donald J. Trump appears to be giving more weight to political calculations in selecting a running mate, by picking someone who “helps you get elected.”`\
+https://nytimes.com/2024/07/12/us/politics/trump-vp-vance-rubio-burgum.html
+
+**Sancho available for Man Utd selection after returning to training**\
+`Jadon Sancho has returned to Manchester United training following a meeting with manager Erik ten Hag this week.`\
+https://nytimes.com/athletic/5634056/2024/07/12/jadon-sancho-manchester-united-return-training/
+
 **Court Grants Party of Imprisoned Former Leader More Seats in Pakistan’s Parliament**\
 `A ruling by Pakistan’s high court strips the governing coalition of its two-thirds majority, and thrusts the party of Imran Khan back onto the political main stage.`\
 https://nytimes.com/2024/07/12/world/asia/pakistan-parliament-khan.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5634000/2024/07/12/melvine-malard-manchester-united
 **How Did Biden Do at His News Conference?**\
 `Readers offer varying assessments and call on Donald Trump to hold one as well. Also: Steve Bannon’s chilling answer about U.S. Jews; Gettysburg’s meaning.`\
 https://nytimes.com/2024/07/12/opinion/joe-biden-news-conference.html
-
-**Chelsea confirm Veiga signing from Basel**\
-`Chelsea have completed the signing of Renato Veiga from FC Basel.`\
-https://nytimes.com/athletic/5633990/2024/07/12/chelsea-transfers-renato-veiga-basel/
-
-**Paul Skenes named All-Star Game starting pitcher**\
-`Skenes will be the fifth rookie to start an All-Star Game, joining Hideo Nomo, Fernando Valenzuela, Mark Fidrych and Dave Stenhouse.`\
-https://nytimes.com/athletic/5633934/2024/07/12/pirates-paul-skenes-all-star-game-starter/
 

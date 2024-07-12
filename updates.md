@@ -1,3 +1,7 @@
+**Court Grants Party of Imprisoned Former Leader More Seats in Pakistan’s Parliament**\
+`A ruling by Pakistan’s high court strips the governing coalition of its two-thirds majority, and thrusts the party of Imran Khan back onto the political main stage.`\
+https://nytimes.com/2024/07/12/world/asia/pakistan-parliament-khan.html
+
 **Jeffries Meets Privately With Biden to Share Democrats’ Concerns**\
 `The House Democratic leader shared few details about the meeting, and he did not say whether he told the president to end his re-election campaign.`\
 https://nytimes.com/2024/07/12/us/politics/hakeem-jeffries-biden-democrats.html
