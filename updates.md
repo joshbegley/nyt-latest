@@ -1,3 +1,7 @@
+**How to Pack for a Short Trip With Just One Personal Item on a Flight**\
+`It's possible to leave your luggage at home.`\
+https://nytimes.com/interactive/2024/07/12/smarter-living/wirecutter/personal-item-pack.html
+
 **Lyon identify Arsenal's McCabe as summer transfer target**\
 `Arsenal face a challenge to retain one of their leading women’s players, with Katie McCabe identified by Lyon as a firm target this summer.`\
 https://nytimes.com/athletic/5633616/2024/07/12/katie-mccabe-arsenal-lyon-transfer-target/
