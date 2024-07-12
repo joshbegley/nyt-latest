@@ -1,3 +1,7 @@
+**Daniil Medvedev escapes default in Wimbledon semi-final**\
+`WIMBLEDON — Daniil Medvedev narrowly escaped being defaulted from his Wimbledon semi-final against Carlos Alcaraz after aiming abuse at umpire Eva Asderaki-Moore on Centre Court.`\
+https://nytimes.com/athletic/5634150/2024/07/12/daniil-medvedev-wimbledon-alcaraz-semi-final/
+
 **France on Eve of Olympics Is at a Political Impasse, with Unrest Brewing**\
 `After elections produced a deadlocked parliament, both left and right are claiming victory, while President Emmanuel Macron insists no one won. It’s a recipe for turmoil.`\
 https://nytimes.com/2024/07/12/world/europe/france-election-politics-olympics.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5634073/2024/07/12/river-seine-contamination-bacter
 **The New N.Y.P.D. Motto Is Missing Some Important Words**\
 `The change reflects the department’s aggressive and problematic new attitude under Mayor Eric Adams.`\
 https://nytimes.com/2024/07/09/opinion/nypd-slogan-aggressive-adams.html
-
-**Yankees call up infield prospect Jorbit Vivas**\
-`In 37 games for Triple-A Scranton/Wilkes-Barre, Vivas posted a 122 wRC+ and .404 on-base percentage.`\
-https://nytimes.com/athletic/5634094/2024/07/12/yankees-prospect-jorbit-vivas-promoted/
 
