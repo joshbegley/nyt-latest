@@ -1,3 +1,19 @@
+**118 member states of the United Nations pledge support for UNRWA.**\
+`By Anjana Sankar`\
+https://nytimes.com/live/2024/07/12/world/israel-gaza-war-hamas/118-member-states-of-the-united-nations-pledge-support-for-unrwa
+
+**Canada head coach Jesse Marsch has 'no interest' in vacant USMNT job**\
+`Jesse Marsch has insisted he has zero interest in the vacant job as head coach of the United States men’s national team.`\
+https://nytimes.com/athletic/5634499/2024/07/12/jesse-marsch-usmnt-coach-berhalter/
+
+**Jalen Brunson, Knicks agree to four-year extension: Source**\
+`Though New York offered the most it could in an extension, re-signing now was not the most lucrative path Brunson could have taken.`\
+https://nytimes.com/athletic/5632870/2024/07/12/jalen-brunson-knicks-extension/
+
+**Daniil Medvedev beat the best player in the world at Wimbledon. Then he had to beat another**\
+`The Russian got past Jannik Sinner at the All England Club — but beating the world No 1 doesn't mean winning the title with Alcaraz around`\
+https://nytimes.com/athletic/5634076/2024/07/12/tennis-big-three-comparison-djokovic-alcaraz-medvedev-sinner/
+
 **As Biden Points to His Past, Supporters Are More Worried About His Future**\
 `For many of the president’s allies, it’s not the last three and a half years that concern them. It’s the next four.`\
 https://nytimes.com/2024/07/12/us/politics/biden-record-2024-election.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5626543/2024/07/12/saul-atletico-madrid-transfers-s
 **Hotel Workers May Face Murder Charges After Death of Man at Milwaukee Hyatt**\
 `The Milwaukee Police Department said it had referred four felony murder charges to prosecutors, who will decide whether to bring criminal charges.`\
 https://nytimes.com/2024/07/12/us/dvontaye-mitchell-milwaukee-hotel-charges.html
-
-**How to Pack for a Short Trip With Just One Personal Item on a Flight**\
-`It's possible to leave your luggage at home.`\
-https://nytimes.com/interactive/2024/07/12/smarter-living/wirecutter/personal-item-pack.html
-
-**Lyon identify Arsenal's McCabe as summer transfer target**\
-`Arsenal face a challenge to retain one of their leading women’s players, with Katie McCabe identified by Lyon as a firm target this summer.`\
-https://nytimes.com/athletic/5633616/2024/07/12/katie-mccabe-arsenal-lyon-transfer-target/
-
-**Hamas Official: ‘We’re Not Obstinate’ in Cease-Fire Talks on Gaza**\
-`Husam Badran said the militant group would give up civilian control in the territory, but would not disband its military wing.`\
-https://nytimes.com/2024/07/12/world/middleeast/hamas-israel-peace-talks-gaza.html
-
-**For Ukraine, an ‘Irreversible’ Path to NATO Clouded by Uncertainty**\
-`Hanging over the alliance’s summit in Washington this week was the shadow of the U.S. presidential election, which added a layer of unpredictability to the war and to the future of the bloc.`\
-https://nytimes.com/2024/07/12/world/europe/nato-ukraine-election-trump.html
 
