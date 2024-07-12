@@ -1,3 +1,11 @@
+**Judge Dismisses Giuliani’s Bankruptcy Case**\
+`The decision means that the former New York City mayor and lawyer for Donald Trump will face his creditors without protection from federal bankruptcy laws.`\
+https://nytimes.com/2024/07/12/us/politics/giuliani-bankruptcy-case-dismissed.html
+
+**SpaceX Falcon 9 Rocket Fails in Orbit**\
+`The second stage of a SpaceX Falcon 9 rocket failed on an attempt to deploy the company’s Starlink internet satellites, ending a streak of more than 300 successful Falcon 9 launches.`\
+https://nytimes.com/video/science/space/100000009568187/spacex-falcon-rocket-failure.html
+
 **Talking About the Century’s Best Books**\
 `A roundtable of Book Review editors discuss what surprised them, what delighted them, what will send them back to their own shelves.`\
 https://nytimes.com/2024/07/12/books/review/talking-about-the-centurys-best-books.html

@@ -1,3 +1,11 @@
+**Judge Dismisses Giuliani’s Bankruptcy Case**\
+`The decision means that the former New York City mayor and lawyer for Donald Trump will face his creditors without protection from federal bankruptcy laws.`\
+https://nytimes.com/2024/07/12/us/politics/giuliani-bankruptcy-case-dismissed.html
+
+**SpaceX Falcon 9 Rocket Fails in Orbit**\
+`The second stage of a SpaceX Falcon 9 rocket failed on an attempt to deploy the company’s Starlink internet satellites, ending a streak of more than 300 successful Falcon 9 launches.`\
+https://nytimes.com/video/science/space/100000009568187/spacex-falcon-rocket-failure.html
+
 **Talking About the Century’s Best Books**\
 `A roundtable of Book Review editors discuss what surprised them, what delighted them, what will send them back to their own shelves.`\
 https://nytimes.com/2024/07/12/books/review/talking-about-the-centurys-best-books.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5634233/2024/07/12/phillies-release-whit-merrifield
 **Judy Belushi Pisano, Who Defended Her Husband’s Legacy, Dies at 73**\
 `She was married to John Belushi until his fatal drug overdose in 1982. She went on to celebrate his comic talent in books and a documentary.`\
 https://nytimes.com/2024/07/12/arts/television/judy-belushi-pisano-dead.html
-
-**Daniil Medvedev escapes default in Wimbledon semi-final**\
-`WIMBLEDON — Daniil Medvedev narrowly escaped being defaulted from his Wimbledon semi-final against Carlos Alcaraz after aiming abuse at umpire Eva Asderaki-Moore on Centre Court.`\
-https://nytimes.com/athletic/5634150/2024/07/12/daniil-medvedev-wimbledon-alcaraz-semi-final/
-
-**France on Eve of Olympics Is at a Political Impasse, With Unrest Brewing**\
-`After elections produced a deadlocked Parliament, both left and right are claiming victory, while President Emmanuel Macron insists no one won. It’s a recipe for turmoil.`\
-https://nytimes.com/2024/07/12/world/europe/france-election-politics-olympics.html
 
