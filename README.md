@@ -1,3 +1,23 @@
+**Everton close to agreement with Spurs over revised payment terms for Dele**\
+`Everton are close to reaching an agreement with Tottenham Hotspur over a revised payment structure for Dele Alli.`\
+https://nytimes.com/athletic/5633494/2024/07/12/dele-everton-tottenham-contract/
+
+**Harry Kane seeks his defining moment to secure a place in England's national psyche**\
+`The England captain has been the best player over Gareth Southgate's tenure, but he has lacked his own David Beckham or Geoff Hurst moment`\
+https://nytimes.com/athletic/5620844/2024/07/12/kane-england-southgate-moment/
+
+**It’s Shrimp Weather**\
+`Toss them on the grill, fry them for salt and pepper shrimp rolls, chop them into burgers or poach them for spring rolls.`\
+https://nytimes.com/2024/07/12/dining/its-shrimp-weather.html
+
+**50 Years Ago, ‘Jaws’ Hit Bookstores, Capturing the Angst of a Generation**\
+`The novel became the beach read of the summer, with the shark at its center embodying the unease of an era of political and social upheaval.`\
+https://nytimes.com/2024/07/12/books/booksupdate/jaws-peter-benchley-50.html
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include relationship problems and quirky revenge stories.`\
+https://nytimes.com/2024/07/12/movies/action-movies-streaming.html
+
 **Why Black Democrats May Be Biden’s Last Bulwark**\
 `They understand the nature of persecution.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-black-voters
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5633730/2024/07/12/jonny-evans-manchester-united-co
 **Bucky Dent's home run gets comic treatment, but autograph and profanity cost extra**\
 `New artwork features Dent's home run against the Red Sox in 1978 and the unprintable nickname he earned as a result.`\
 https://nytimes.com/athletic/5633162/2024/07/12/yankees-bucky-dent-red-sox-comics/
-
-**A Bleak View of Soccer’s Future Misses the Full Picture**\
-`Uruguay Coach Marcelo Bielsa lamented that the sport was surrendering its appeal in service to its business. He’s right. And also wrong.`\
-https://nytimes.com/2024/07/12/world/europe/euro-2024-copa-america-bielsa.html
-
-**Southampton's Gomes Rodriguez, 16, close to signing for Lyon**\
-`Southampton forward Alejandro Gomes Rodriguez is close to signing for Lyon.`\
-https://nytimes.com/athletic/5633731/2024/07/12/alejandro-gomes-rodriguez-lyon-southampton/
-
-**Thousands of Prisoners in U.K. to Be Freed Early to Ease Overcrowding**\
-`The Labour government, which took power this past week, said it had been forced into the move because previous Conservative administrations had let the issue fester.`\
-https://nytimes.com/2024/07/12/world/europe/uk-prisons-early-release.html
-
-**France’s Army Is Singing for Ukraine**\
-`The Choir of the French Army will join the Ukrainian Freedom Orchestra in Paris to show support for Ukraine in its war against Russia.`\
-https://nytimes.com/2024/07/12/arts/music/france-army-choir-ukraine-orchestra.html
-
-**A Letter to Midjourney**\
-`We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Justin Kim, age 16.`\
-https://nytimes.com/2024/07/12/learning/a-letter-to-midjourney.html
 
