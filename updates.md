@@ -1,3 +1,11 @@
+**France’s Army Is Singing for Ukraine**\
+`The Choir of the French Army will join the Ukrainian Freedom Orchestra in Paris to show support for Ukraine in its war against Russia.`\
+https://nytimes.com/2024/07/12/arts/music/france-army-choir-ukraine-orchestra.html
+
+**A Letter to Midjourney**\
+`We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Justin Kim, age 16.`\
+https://nytimes.com/2024/07/12/learning/a-letter-to-midjourney.html
+
 **Democrats Fear Safe Blue States Turning Purple as Biden Stays the Course**\
 `Lingering worries about President Biden’s age could make Minnesota, New Hampshire, New Mexico and Virginia competitive, party operatives believe.`\
 https://nytimes.com/2024/07/12/us/politics/democrats-biden-battleground-states.html

@@ -1,3 +1,11 @@
+**France’s Army Is Singing for Ukraine**\
+`The Choir of the French Army will join the Ukrainian Freedom Orchestra in Paris to show support for Ukraine in its war against Russia.`\
+https://nytimes.com/2024/07/12/arts/music/france-army-choir-ukraine-orchestra.html
+
+**A Letter to Midjourney**\
+`We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Justin Kim, age 16.`\
+https://nytimes.com/2024/07/12/learning/a-letter-to-midjourney.html
+
 **Democrats Fear Safe Blue States Turning Purple as Biden Stays the Course**\
 `Lingering worries about President Biden’s age could make Minnesota, New Hampshire, New Mexico and Virginia competitive, party operatives believe.`\
 https://nytimes.com/2024/07/12/us/politics/democrats-biden-battleground-states.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5633470/2024/07/12/german-court-finds-anwar-el-ghaz
 **Summer Reading Contest, Week 6: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by July 19 at 9 a.m. Eastern. This week’s winners will be announced by July 31.`\
 https://nytimes.com/2024/07/12/learning/summer-reading-contest-week-6-what-got-your-attention-in-the-times-this-week.html
-
-**City's Gomez completes permanent Real Sociedad move**\
-`Sergio Gomez has joined Real Sociedad from Manchester City for €10million.`\
-https://nytimes.com/athletic/5633531/2024/07/12/manchester-city-transfers-sergio-gomez/
-
-**How Wildfires Get Their Names**\
-`There isn’t much science to it.`\
-https://nytimes.com/2024/07/12/us/wildfire-names.html
 
