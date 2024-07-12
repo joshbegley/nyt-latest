@@ -1,3 +1,7 @@
+**Jack Schlossberg Is Named a Political Correspondent for Vogue**\
+`Mr. Schlossberg, 31, the only grandson of President John F. Kennedy, has courted attention with outlandish TikTok videos, many of them political.`\
+https://nytimes.com/2024/07/11/style/jack-schlossberg-vogue-correspondent.html
+
 **The Strongest Case for Biden Is His Resilience in the Face of the Onslaught**\
 `Forcing the president out of the race is an invalidation of the democratic process.`\
 https://nytimes.com/2024/07/11/opinion/biden-stay-in-race.html
