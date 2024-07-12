@@ -1,29 +1,40 @@
-**How to Find a Good, Well-Staffed Nursing Home**\
-`Here are the telltale signs to look for in nursing homes to avoid, and resources that can point to better places.`\
-https://nytimes.com/2024/07/12/health/nursing-homes-guide-staff.html
+**$1.5 Million Homes in Milan**\
+`A two-bedroom flat near Castello Sforzesco, a duplex on the banks of the Naviglio Grande canal, and a three-bedroom in Milan’s historical center.`\
+https://nytimes.com/2024/07/12/realestate/1-5-million-homes-in-milan.html
 
-**Methodology for Analysis of Nursing Home Staffing**\
-`More than a million public records were used to assess whether nursing homes were meeting state staffing minimums.`\
-https://nytimes.com/2024/07/12/health/nursing-home-analysis-methodology.html
+**From Scorsese With Love: A Tribute to Powell-Pressburger Movies**\
+`“Made in England” is an essay film about the artists whose passion and cinematography deeply influenced the American director.`\
+https://nytimes.com/2024/07/12/movies/martin-scorsese-made-in-england.html
 
-**A Wedding Puts India’s Gilded Age on Lavish Display**\
-`Many Indians cheer the rise of moguls like Mukesh Ambani, whose son’s wedding has become a global spectacle. To them, India’s poverty is predictable, but such opulence is not.`\
-https://nytimes.com/2024/07/12/world/asia/a-wedding-puts-indias-gilded-age-on-lavish-display.html
+**Word of the Day: surmise**\
+`This word has appeared in 30 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/07/12/learning/word-of-the-day-surmise.html
 
-**Does Joe Biden Realize How Angry These Michigan Voters Are?**\
-`There are over 200,000 registered voters who are Muslim in Michigan, and they could cost Biden the election.`\
-https://nytimes.com/video/opinion/100000009565908/biden-voters-dearborn-michigan.html
+**For This Drama, Some Actors Returned to Prison by Choice**\
+`Alongside Colman Domingo and Paul Raci, ex-inmates shot “Sing Sing” in a decommissioned correctional facility. Then came the screening in the actual prison.`\
+https://nytimes.com/2024/07/12/movies/sing-sing-prison-drama-colman-domingo.html
 
-**Rescued Hostage Describes Months of Uncertainty and Terror in Gaza**\
-`Andrey Kozlov was kept for six months in a family’s apartment by a Hamas operative who moonlighted as a journalist. Then Israeli commandos stormed in.`\
-https://nytimes.com/2024/07/12/world/middleeast/israel-hostage-gaza-koslov-hamas.html
+**I Knew Diddy for Years. What I Now Remember Haunts Me.**\
+`Looking back on my life as a woman in the music industry, I’m unsettled by the inescapable sexism perpetrated by Sean Combs and others.`\
+https://nytimes.com/2024/07/12/magazine/diddy-sean-combs.html
 
-**AZ Alkmaar agree fee with Tottenham for Parrott**\
-`AZ Alkmaar have agreed an €8million fee with Tottenham Hotspur to sign forward Troy Parrott.`\
-https://nytimes.com/athletic/5633218/2024/07/12/troy-parrott-tottenham-az-alkmaar-transfer/
+**The Chrysler Building, the Jewel of the Manhattan Skyline, Loses Its Luster**\
+`Is the building’s reputation enough for it to endure as an icon, even as its ownership and interior crumble?`\
+https://nytimes.com/2024/07/12/realestate/chrysler-building-manhattan.html
 
-**It will take days to know whether talks yield a breakthrough, people briefed on them say.**\
-`By Julian E. Barnes and Adam Rasgon`\
-https://nytimes.com/live/2024/07/12/world/israel-gaza-war-hamas/it-will-take-days-to-know-whether-talks-yield-a-breakthrough-people-briefed-on-them-say
+**Moving Day: 9 Picture Books to Help Kids Cope**\
+`Sometimes we forget that moving is not just about goodbyes. It’s also about hellos.`\
+https://nytimes.com/2024/07/12/books/review/picture-books-children-moving.html
 
-**People in Gaza City talk about why they won’t flee, and other news.**\
+**Why Nursing Home Residents Still Suffer Despite Tough State Laws**\
+`The Biden administration set stringent new federal staffing rules. But for years, nursing homes have failed to meet the toughest standards set by states.`\
+https://nytimes.com/2024/07/12/health/nursing-home-staffing-patients.html
+
+**That’s a Dizzying List! Help Me Choose a Book.**\
+`There’s no getting around the fact that the list of the 100 Best Books of the 21st Century is… daunting. Want to start reading a new book right away? We can help.`\
+https://nytimes.com/interactive/2024/books/21st-century-books-read-next.html
+
+**Our Reporter on the Ups and Downs of an N.Y.C. Landmark**\
+`The Chrysler Building is an icon of New York City’s skyline. But with ownership changes, a crumbling interior and newer, glitzier towers surrounding it, the building is at risk of losing that status.`\
+https://nytimes.com/video/realestate/100000009541740/our-reporter-on-the-ups-and-downs-of-an-nyc-landmark.html
+
