@@ -1,40 +1,40 @@
-**$1.5 Million Homes in Milan**\
-`A two-bedroom flat near Castello Sforzesco, a duplex on the banks of the Naviglio Grande canal, and a three-bedroom in Milan’s historical center.`\
-https://nytimes.com/2024/07/12/realestate/1-5-million-homes-in-milan.html
+**Raptors sophomore Gradey Dick: 'Iron sharpens iron, every single day'**\
+`Gradey Dick speaks about his summer so far, what he took from the Raptors' miserable March and more. `\
+https://nytimes.com/athletic/5632900/2024/07/12/toronto-raptors-gradey-dick-nba-summer-league/
 
-**From Scorsese With Love: A Tribute to Powell-Pressburger Movies**\
-`“Made in England” is an essay film about the artists whose passion and cinematography deeply influenced the American director.`\
-https://nytimes.com/2024/07/12/movies/martin-scorsese-made-in-england.html
+**Buyer beware: From Jonathan Taylor to Nico Collins, Round 2 is a minefield for fantasy football 2024**\
+`Michael Salfino explains why in 2024 drafts, Round 2 is no longer the safe space that it typically has been for fantasy football managers`\
+https://nytimes.com/athletic/5631716/2024/07/12/fantasy-football-2024-strategy-round-2-buyer-beware/
 
-**Word of the Day: surmise**\
-`This word has appeared in 30 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/07/12/learning/word-of-the-day-surmise.html
+**Polls May Shape Biden’s Future. Are They Up to the Job?**\
+`The president’s chances increasingly rely on the possibility that the polls are misfiring.`\
+https://nytimes.com/2024/07/12/upshot/biden-polls-trump.html
 
-**For This Drama, Some Actors Returned to Prison by Choice**\
-`Alongside Colman Domingo and Paul Raci, ex-inmates shot “Sing Sing” in a decommissioned correctional facility. Then came the screening in the actual prison.`\
-https://nytimes.com/2024/07/12/movies/sing-sing-prison-drama-colman-domingo.html
+**6 New Paperbacks to Read This Week**\
+`Including titles by Rachel Louise Snyder, Ayesha Manazir Siddiqi, Michael McGarrity and more. `\
+https://nytimes.com/interactive/2024/07/12/books/review/new-paperbacks-siddiqi.html
 
-**I Knew Diddy for Years. What I Now Remember Haunts Me.**\
-`Looking back on my life as a woman in the music industry, I’m unsettled by the inescapable sexism perpetrated by Sean Combs and others.`\
-https://nytimes.com/2024/07/12/magazine/diddy-sean-combs.html
+**John Roberts Makes His Bid for Infamy**\
+`The chief justice and his allies have rewritten the Constitution to make it say what they want it to say.`\
+https://nytimes.com/2024/07/12/opinion/roberts-supreme-court-immunity-taney.html
 
-**The Chrysler Building, the Jewel of the Manhattan Skyline, Loses Its Luster**\
-`Is the building’s reputation enough for it to endure as an icon, even as its ownership and interior crumble?`\
-https://nytimes.com/2024/07/12/realestate/chrysler-building-manhattan.html
+**U.S. Heat Wave Stretches Into Another Day, and Starts to Move East**\
+`The extreme heat that has lingered over the West for more than a week will push into the Midwest and Northeast by early next week, forecasters said.`\
+https://nytimes.com/2024/07/12/us/us-heat-wave-stretches-into-another-day-and-starts-to-move-east.html
 
-**Moving Day: 9 Picture Books to Help Kids Cope**\
-`Sometimes we forget that moving is not just about goodbyes. It’s also about hellos.`\
-https://nytimes.com/2024/07/12/books/review/picture-books-children-moving.html
+**These Maps Show Biden’s Rapidly Shrinking Path to Re-election**\
+`A Democratic strategist explains just how difficult the Electoral College math is getting for President Biden.`\
+https://nytimes.com/interactive/2024/07/12/opinion/biden-trump-electoral-map-outlook.html
 
-**Why Nursing Home Residents Still Suffer Despite Tough State Laws**\
-`The Biden administration set stringent new federal staffing rules. But for years, nursing homes have failed to meet the toughest standards set by states.`\
-https://nytimes.com/2024/07/12/health/nursing-home-staffing-patients.html
+**5 Things to Do This Weekend**\
+`A selection of entertainment highlights this weekend, including “Eno,” a generative documentary on the musician Brian Eno.`\
+https://nytimes.com/interactive/2024/07/12/arts/weekend-editors-picks-eno.html
 
-**That’s a Dizzying List! Help Me Choose a Book.**\
-`There’s no getting around the fact that the list of the 100 Best Books of the 21st Century is… daunting. Want to start reading a new book right away? We can help.`\
-https://nytimes.com/interactive/2024/books/21st-century-books-read-next.html
+**Paramedics Share One Tip That May Save Your Life**\
+`Every second counts, experts say.`\
+https://nytimes.com/2024/07/12/well/paramedics-health-history.html
 
-**Our Reporter on the Ups and Downs of an N.Y.C. Landmark**\
-`The Chrysler Building is an icon of New York City’s skyline. But with ownership changes, a crumbling interior and newer, glitzier towers surrounding it, the building is at risk of losing that status.`\
-https://nytimes.com/video/realestate/100000009541740/our-reporter-on-the-ups-and-downs-of-an-nyc-landmark.html
+**The Supreme Court Is Gaslighting Us All**\
+`But the conservative justices can’t distance themselves from the significant damage they have caused.`\
+https://nytimes.com/2024/07/12/opinion/supreme-court-psychological-manipulation.html
 
