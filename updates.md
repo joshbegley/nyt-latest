@@ -1,3 +1,7 @@
+**Nepal’s Prime Minister Loses Confidence Vote, Adding to the Turmoil of Monsoon Season**\
+`The latest political upheaval comes as Nepal struggles to cope with deadly disasters like a landslide on Friday that left more than 60 people missing.`\
+https://nytimes.com/2024/07/12/world/asia/nepal-prime-minister-confidence-vote.html
+
 **Trump’s Subtle Shift in His V.P. Calculations**\
 `Donald J. Trump appears to be giving more weight to political calculations in selecting a running mate, by picking someone who “helps you get elected.”`\
 https://nytimes.com/2024/07/12/us/politics/trump-vp-vance-rubio-burgum.html

@@ -1,3 +1,7 @@
+**Nepal’s Prime Minister Loses Confidence Vote, Adding to the Turmoil of Monsoon Season**\
+`The latest political upheaval comes as Nepal struggles to cope with deadly disasters like a landslide on Friday that left more than 60 people missing.`\
+https://nytimes.com/2024/07/12/world/asia/nepal-prime-minister-confidence-vote.html
+
 **Trump’s Subtle Shift in His V.P. Calculations**\
 `Donald J. Trump appears to be giving more weight to political calculations in selecting a running mate, by picking someone who “helps you get elected.”`\
 https://nytimes.com/2024/07/12/us/politics/trump-vp-vance-rubio-burgum.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/12/business/economy/franchise-ftc-antitrust.html
 **Man Utd Women complete permanent transfer of Malard from Lyon**\
 `Manchester United Women have completed the permanent transfer of France international Melvine Malard on a three-year contract from Lyon.`\
 https://nytimes.com/athletic/5634000/2024/07/12/melvine-malard-manchester-united-transfer-news/
-
-**How Did Biden Do at His News Conference?**\
-`Readers offer varying assessments and call on Donald Trump to hold one as well. Also: Steve Bannon’s chilling answer about U.S. Jews; Gettysburg’s meaning.`\
-https://nytimes.com/2024/07/12/opinion/joe-biden-news-conference.html
 
