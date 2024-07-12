@@ -1,3 +1,7 @@
+**Antitrust Regulator Tells Chains: Back Off Your Franchisees**\
+`After a yearlong inquiry, the Federal Trade Commission warned brands not to gag their small business operators or charge them extra fees.`\
+https://nytimes.com/2024/07/12/business/economy/franchise-ftc-antitrust.html
+
 **Man Utd Women complete permanent transfer of Malard from Lyon**\
 `Manchester United Women have completed the permanent transfer of France international Melvine Malard on a three-year contract from Lyon.`\
 https://nytimes.com/athletic/5634000/2024/07/12/melvine-malard-manchester-united-transfer-news/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5632396/2024/07/12/mlb-futures-game-2024-hitters/
 **Carlos Alcaraz beats Daniil Medvedev to reach second Wimbledon final**\
 `Carlos Alcaraz reached his second consecutive Wimbledon final, after beating Daniil Medvedev 6-7, 6-3, 6-4, 6-4 on Centre Court on Friday.`\
 https://nytimes.com/athletic/5633754/2024/07/12/carlos-alcaraz-daniil-medvedev-wimbledon/
-
-**SpaceX Rocket Fails, Breaking Apart in Orbit**\
-`The failure, the first since 2016, ended a streak of more than 300 successful launches for the Falcon 9 rocket.`\
-https://nytimes.com/2024/07/12/science/spacex-falcon-9-rocket-fail-starlink-launch.html
 
