@@ -1,3 +1,7 @@
+**The Pulse: The 400-plus job changes thanks to Nick Saban**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5632355/2024/07/12/nick-saban-job-changes-the-pulse/
+
 **President Biden’s Public Test**\
 `We explain his high stakes press conference.`\
 https://nytimes.com/2024/07/12/briefing/president-bidens-public-test.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/12/podcasts/the-daily/pets-veterinary-bills.html
 **Wordle Review No. 1,120, July 13, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/12/crosswords/wordle-review-1120.html
-
-**The Connections Companion No. 398, July 13, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/12/crosswords/connections-companion-398.html
 
