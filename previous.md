@@ -1,10 +1,22 @@
+**Wimbledon day 12: A women's doubles streak gets snapped, Medvedev calls for tennis VAR**\
+`On men's semifinal day, there were more calls for VAR in tennis, and a women's doubles streak got snapped`\
+https://nytimes.com/athletic/5633768/2024/07/12/wimbledon-recap-hsieh-doubles-streak-medvedev-default/
+
+**Are You an AT&T Customer? Here’s What to Know About the Data Breach**\
+`Nearly all AT&T customers were affected by a recent cyberattack.`\
+https://nytimes.com/2024/07/12/us/phone-data-breach.html
+
+**Anthea Sylbert, Costume Designer Who Became a Producer, Dies at 84**\
+`Her career unfolded in three phases: as the creator of costumes for movies like “Chinatown,” as a studio executive and as a producer, largely with her friend Goldie Hawn.`\
+https://nytimes.com/2024/07/12/movies/anthea-sylbert-dead.html
+
 **Fantasy baseball waiver wire: Yariel Rodriguez, Rowdy Tellez and more adds**\
 `John Laghezza identifies the best options on the waiver wire, this week pointing fantasy managers towards a current and former Blue Jay.`\
 https://nytimes.com/athletic/5631419/2024/07/12/fantasy-baseball-waiver-wire-yariel-rodriguez-rowdy-tellez-and-more-adds/
 
-**Biden’s visit to Detroit draws few high-profile Michigan Democrats.**\
+**Biden’s Visit to Detroit Draws Few High-Profile Michigan Democrats**\
 `Gov. Gretchen Whitmer posted a welcome on social media but was not on hand. The state’s two Democratic senators, Debbie Stabenow and Gary Peters, and a leading candidate for Ms. Stabenow’s seat, Representative Elissa Slotkin, all were otherwise occupied.`\
-https://nytimes.com/live/2024/07/12/us/biden-trump-election/bidens-visit-to-detroit-draws-few-high-profile-michigan-democrats
+https://nytimes.com/2024/07/12/us/politics/bidens-visit-to-detroit-draws-few-high-profile-michigan-democrats.html
 
 **Did King Charles Really Buy a $6 Million New York Condo?**\
 `The reports were tantalizing, but someone else was behind the expensive purchase.`\
@@ -23,18 +35,6 @@ https://nytimes.com/2024/07/12/podcasts/culture-desk-summer-beach-day-guide.html
 https://nytimes.com/2024/07/12/world/middleeast/gaza-city-shajaiya-israel-hamas.html
 
 **Pistons wing Ron Holland Q&A: On J.B. Bickerstaff, cooking and rookie expectations**\
-`Pistons rookie Ron Holland goes one-on-one with The Athletic.`\
+`Just after Holland's first NBA Summer League practice, he spoke to The Athletic on an array of topics, including his favorite dish to make.`\
 https://nytimes.com/athletic/5634456/2024/07/12/pistons-rookie-ron-holland-nba-summer-league/
-
-**118 member states of the United Nations pledge support for UNRWA.**\
-`By Anjana Sankar`\
-https://nytimes.com/live/2024/07/12/world/israel-gaza-war-hamas/118-member-states-of-the-united-nations-pledge-support-for-unrwa
-
-**Canada head coach Jesse Marsch has 'no interest' in vacant USMNT job**\
-`Jesse Marsch has insisted he has zero interest in the vacant job as head coach of the United States men’s national team.`\
-https://nytimes.com/athletic/5634499/2024/07/12/jesse-marsch-usmnt-coach-berhalter/
-
-**Jalen Brunson, Knicks agree to four-year extension: Source**\
-`Though New York offered the most it could in an extension, re-signing now was not the most lucrative path Brunson could have taken.`\
-https://nytimes.com/athletic/5632870/2024/07/12/jalen-brunson-knicks-extension/
 
