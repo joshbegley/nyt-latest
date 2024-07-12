@@ -1,3 +1,7 @@
+**Late Night Laughs Off the Responses to George Clooney’s Essay**\
+`“It’s crazy the election of 2024 could be decided by the Sexiest Man Alive of 1997,” Kumail Nanjiani, the guest host, joked on “Jimmy Kimmel Live.”`\
+https://nytimes.com/2024/07/12/arts/television/late-night-clooney-biden-responses.html
+
 **In an Outback Town, Praising the Lord and Improvising the Details**\
 `For some churches, it’s all about music. Others translate scripture into Indigenous languages or enlist local artists to depict Bible stories in their own way.`\
 https://nytimes.com/2024/07/12/world/australia/christianity-outback.html
