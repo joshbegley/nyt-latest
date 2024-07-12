@@ -1,3 +1,7 @@
+**Review: What Makes ‘Oh, Mary!’ One of the Best Summer Comedies in Years**\
+`Cole Escola’s dragtastic White House farce asks the immortal question: Besides that, Mrs. Lincoln, how did you like the play?`\
+https://nytimes.com/2024/07/11/theater/oh-mary-review-cole-escola.html
+
 **Reds' unheralded "pros" Austin Wynns, Santiago Espinal are helping fill the gaps**\
 `“There’s always those role players, off-the-bench players, and you’ve got to take advantage of the opportunity when it’s given," Wynns said.`\
 https://nytimes.com/athletic/5632902/2024/07/11/reds-austin-wynns-santiago-espinal-roles/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/world/middleeast/gaza-city-evacuation-israel-mili
 **The Deep Source of Trump’s Appeal**\
 `The problem with identity politics becoming our moral system is that it undermines democracy.`\
 https://nytimes.com/2024/07/11/opinion/trump-biden-authoritarianism.html
-
-**Why Does the G.O.P. Despise America?**\
-`Self-proclaimed patriots keep trash-talking their own country.`\
-https://nytimes.com/2024/07/11/opinion/trump-republican-platform.html
 
