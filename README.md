@@ -1,3 +1,11 @@
+**Phillies release Whit Merrifield: Offseason bench pickup ends as $8 million mistake**\
+`By cutting ties now, the Phillies have a runway to evaluate the rest of the bench ahead of the trade deadline. They recalled Weston Wilson.`\
+https://nytimes.com/athletic/5634233/2024/07/12/phillies-release-whit-merrifield-call-up-weston-wilson/
+
+**Judy Belushi Pisano, Who Defended Her Husband’s Legacy, Dies at 73**\
+`She was married to John Belushi until his fatal drug overdose in 1982. She went on to celebrate his comic talent in books and a documentary.`\
+https://nytimes.com/2024/07/12/arts/television/judy-belushi-pisano-dead.html
+
 **Daniil Medvedev escapes default in Wimbledon semi-final**\
 `WIMBLEDON — Daniil Medvedev narrowly escaped being defaulted from his Wimbledon semi-final against Carlos Alcaraz after aiming abuse at umpire Eva Asderaki-Moore on Centre Court.`\
 https://nytimes.com/athletic/5634150/2024/07/12/daniil-medvedev-wimbledon-alcaraz-semi-final/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/12/opinion/democrats-trump-biden-emergency.html
 **At ESPYs, Prince Harry Applauded a Critic While Accepting an Award**\
 `A former N.F.L. player’s mother criticized ESPN for giving an award honoring her son to the British royal. In his speech, Harry said he respects her advocacy.`\
 https://nytimes.com/2024/07/12/style/prince-harry-espys-pat-tillman.html
-
-**Paris mayor to 'dive in' still-unsafe River Seine next week**\
-`Tests showed that E. Coli levels spiked in two different locations last week, but lessened in recent days earlier this week.`\
-https://nytimes.com/athletic/5634073/2024/07/12/river-seine-contamination-bacteria-mayor-swim/
-
-**The New N.Y.P.D. Motto Is Missing Some Important Words**\
-`The change reflects the department’s aggressive and problematic new attitude under Mayor Eric Adams.`\
-https://nytimes.com/2024/07/09/opinion/nypd-slogan-aggressive-adams.html
 
