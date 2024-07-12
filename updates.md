@@ -1,3 +1,7 @@
+**Steven Kwan, the Guardians' new approach, and the 'lucky' power hitter**\
+`Kwan may be making a ton of contact, and pulling more fly balls, but no matter what approach, the numbers don't believe the newfound power.`\
+https://nytimes.com/athletic/5632162/2024/07/12/guardians-steven-kwan-home-run-power/
+
 **Raptors sophomore Gradey Dick: 'Iron sharpens iron, every single day'**\
 `Gradey Dick speaks about his summer so far, what he took from the Raptors' miserable March and more. `\
 https://nytimes.com/athletic/5632900/2024/07/12/toronto-raptors-gradey-dick-nba-summer-league/
