@@ -1,3 +1,11 @@
+**Phillies release Whit Merrifield: Offseason bench pickup ends as $8 million mistake**\
+`By cutting ties now, the Phillies have a runway to evaluate the rest of the bench ahead of the trade deadline. They recalled Weston Wilson.`\
+https://nytimes.com/athletic/5634233/2024/07/12/phillies-release-whit-merrifield-call-up-weston-wilson/
+
+**Judy Belushi Pisano, Who Defended Her Husband’s Legacy, Dies at 73**\
+`She was married to John Belushi until his fatal drug overdose in 1982. She went on to celebrate his comic talent in books and a documentary.`\
+https://nytimes.com/2024/07/12/arts/television/judy-belushi-pisano-dead.html
+
 **France on Eve of Olympics Is at a Political Impasse, With Unrest Brewing**\
 `After elections produced a deadlocked Parliament, both left and right are claiming victory, while President Emmanuel Macron insists no one won. It’s a recipe for turmoil.`\
 https://nytimes.com/2024/07/12/world/europe/france-election-politics-olympics.html
