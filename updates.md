@@ -1,3 +1,11 @@
+**Talking About the Century’s Best Books**\
+`A roundtable of Book Review editors discuss what surprised them, what delighted them, what will send them back to their own shelves.`\
+https://nytimes.com/2024/07/12/books/review/talking-about-the-centurys-best-books.html
+
+**In Brazil, Early Wildfires Break Records — and Raise Alarm**\
+`Huge blazes are spreading hundreds of miles across some of the most biodiverse parts of Brazil, with the worst of the annual fire season still weeks away.`\
+https://nytimes.com/2024/07/12/world/americas/wildfires-brazil-amazon-rainforest.html
+
 **Staveley and Ghodoussi leave Newcastle United**\
 `Newcastle United have confirmed that co-owners Amanda Staveley and Mehrdad Ghodoussi have left the club after three years at St James&#8217; Park.`\
 https://nytimes.com/athletic/5610811/2024/07/12/amanda-staveley-to-leave-newcastle-united/

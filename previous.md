@@ -1,3 +1,11 @@
+**Talking About the Century’s Best Books**\
+`A roundtable of Book Review editors discuss what surprised them, what delighted them, what will send them back to their own shelves.`\
+https://nytimes.com/2024/07/12/books/review/talking-about-the-centurys-best-books.html
+
+**In Brazil, Early Wildfires Break Records — and Raise Alarm**\
+`Huge blazes are spreading hundreds of miles across some of the most biodiverse parts of Brazil, with the worst of the annual fire season still weeks away.`\
+https://nytimes.com/2024/07/12/world/americas/wildfires-brazil-amazon-rainforest.html
+
 **Staveley and Ghodoussi leave Newcastle United**\
 `Newcastle United have confirmed that co-owners Amanda Staveley and Mehrdad Ghodoussi have left the club after three years at St James&#8217; Park.`\
 https://nytimes.com/athletic/5610811/2024/07/12/amanda-staveley-to-leave-newcastle-united/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5634150/2024/07/12/daniil-medvedev-wimbledon-alcara
 **France on Eve of Olympics Is at a Political Impasse, With Unrest Brewing**\
 `After elections produced a deadlocked Parliament, both left and right are claiming victory, while President Emmanuel Macron insists no one won. It’s a recipe for turmoil.`\
 https://nytimes.com/2024/07/12/world/europe/france-election-politics-olympics.html
-
-**A Senator’s Fate Is in a Jury’s Hands**\
-`Senator Robert Menendez is charged with 16 separate crimes, including bribery, obstructing justice and acting as an agent of a foreign government.`\
-https://nytimes.com/2024/07/12/nyregion/bob-menendez-trial-bribery.html
-
-**The problem with the Giants selling at the trade deadline**\
-`The Giants' roster is filled with contract situations that make it difficult for them to hold a traditional fire sale. `\
-https://nytimes.com/athletic/5633695/2024/07/12/sf-giants-trade-deadline-sellers/
 
