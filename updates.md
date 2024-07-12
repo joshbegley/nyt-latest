@@ -1,3 +1,19 @@
+**Yankees call up infield prospect Jorbit Vivas**\
+`The New York Yankees are calling up infield prospect Jorbit Vivas, a team source confirmed to The Athletic.`\
+https://nytimes.com/athletic/5634094/2024/07/12/yankees-prospect-jorbit-vivas-promoted/
+
+**Marathon Oil Agrees to Record Penalty for Alleged Clean Air Act Violations**\
+`The company will spend $242 million to resolve allegations that it released methane, a greenhouse gas, and other pollutants in North Dakota.`\
+https://nytimes.com/2024/07/12/business/energy-environment/epa-marathon-oil-clean-air-act.html
+
+**How News Outlets on the Left and Right Are Covering Kamala Harris**\
+`Some liberal news organizations have started playing up Ms. Harris’s perceived strengths. Conservative ones have stepped up their criticisms of her.`\
+https://nytimes.com/2024/07/12/business/media/news-outlets-kamala-harris.html
+
+**The End of the Affair? Not for Eric Schmidt.**\
+`While Mr. Schmidt was chief executive of Google, he had an extramarital relationship with Marcy Simon, a public relations executive. A decade after they split, things are still messy.`\
+https://nytimes.com/2024/07/12/technology/eric-schmidt-affair.html
+
 **Alec Baldwin’s Trial Pauses as Unexamined Rounds Are Brought Into Court**\
 `The actor’s lawyers have asked the judge to dismiss the case over the state’s failure to disclose evidence that could help shed light on how live rounds reached the “Rust” film set.`\
 https://nytimes.com/2024/07/12/arts/rust-trial-pause-alec-baldwin-shooting.html
