@@ -1,3 +1,11 @@
+**Biden’s Visit to Detroit Draws Few High-Profile Michigan Democrats**\
+`Gov. Gretchen Whitmer posted a welcome on social media but was not on hand. The state’s two Democratic senators, Debbie Stabenow and Gary Peters, and a leading candidate for Ms. Stabenow’s seat, Representative Elissa Slotkin, all were otherwise occupied.`\
+https://nytimes.com/2024/07/12/us/politics/biden-michigan-whitmer-peters-stabenow.html
+
+**118 member states of the United Nations pledge support for UNRWA.**\
+`By Anjana Sankar`\
+https://nytimes.com/live/2024/07/12/world/israel-gaza-war-hamas/118-member-states-of-the-united-nations-pledge-support-for-unrwa
+
 **Wimbledon day 12: A women's doubles streak gets snapped, Medvedev calls for tennis VAR**\
 `On men's semifinal day, there were more calls for VAR in tennis, and a women's doubles streak got snapped`\
 https://nytimes.com/athletic/5633768/2024/07/12/wimbledon-recap-hsieh-doubles-streak-medvedev-default/

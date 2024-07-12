@@ -1,7 +1,3 @@
-**Wimbledon day 12: A women's doubles streak gets snapped, Medvedev calls for tennis VAR**\
-`On men's semifinal day, there were more calls for VAR in tennis, and a women's doubles streak got snapped`\
-https://nytimes.com/athletic/5633768/2024/07/12/wimbledon-recap-hsieh-doubles-streak-medvedev-default/
-
 **Are You an AT&T Customer? Here’s What to Know About the Data Breach**\
 `Nearly all AT&T customers were affected by a recent cyberattack.`\
 https://nytimes.com/2024/07/12/us/phone-data-breach.html
@@ -16,7 +12,7 @@ https://nytimes.com/athletic/5631419/2024/07/12/fantasy-baseball-waiver-wire-yar
 
 **Biden’s Visit to Detroit Draws Few High-Profile Michigan Democrats**\
 `Gov. Gretchen Whitmer posted a welcome on social media but was not on hand. The state’s two Democratic senators, Debbie Stabenow and Gary Peters, and a leading candidate for Ms. Stabenow’s seat, Representative Elissa Slotkin, all were otherwise occupied.`\
-https://nytimes.com/2024/07/12/us/politics/bidens-visit-to-detroit-draws-few-high-profile-michigan-democrats.html
+https://nytimes.com/2024/07/12/us/politics/biden-michigan-whitmer-peters-stabenow.html
 
 **Did King Charles Really Buy a $6 Million New York Condo?**\
 `The reports were tantalizing, but someone else was behind the expensive purchase.`\
@@ -37,4 +33,8 @@ https://nytimes.com/2024/07/12/world/middleeast/gaza-city-shajaiya-israel-hamas.
 **Pistons wing Ron Holland Q&A: On J.B. Bickerstaff, cooking and rookie expectations**\
 `Just after Holland's first NBA Summer League practice, he spoke to The Athletic on an array of topics, including his favorite dish to make.`\
 https://nytimes.com/athletic/5634456/2024/07/12/pistons-rookie-ron-holland-nba-summer-league/
+
+**118 member states of the United Nations pledge support for UNRWA.**\
+`By Anjana Sankar`\
+https://nytimes.com/live/2024/07/12/world/israel-gaza-war-hamas/118-member-states-of-the-united-nations-pledge-support-for-unrwa
 
