@@ -1,3 +1,15 @@
+**MLB Futures Game primer: The top 20 hitters Jim Bowden can't wait to watch**\
+`The Futures Game is a great opportunity to evaluate and compare some of the top hitting prospects. Here's who — and what — we're watching. `\
+https://nytimes.com/athletic/5632396/2024/07/12/mlb-futures-game-2024-hitters/
+
+**Carlos Alcaraz beats Daniil Medvedev to reach second Wimbledon final**\
+`Carlos Alcaraz reached his second consecutive Wimbledon final, after beating Daniil Medvedev 6-7, 6-3, 6-4, 6-4 on Centre Court on Friday.`\
+https://nytimes.com/athletic/5633754/2024/07/12/carlos-alcaraz-daniil-medvedev-wimbledon/
+
+**SpaceX Rocket Fails, Breaking Apart in Orbit**\
+`The failure, the first since 2016, ended a streak of more than 300 successful launches for the Falcon 9 rocket.`\
+https://nytimes.com/2024/07/12/science/spacex-falcon-9-rocket-fail-starlink-launch.html
+
 **Villa reach agreement to re-sign Philogene from Hull on five-year contract**\
 `Aston Villa have reached an agreement to re-sign winger Jaden Philogene from Hull City on a five-year contract.`\
 https://nytimes.com/athletic/5630792/2024/07/12/jaden-philogene-aston-vila-transfer-news/
