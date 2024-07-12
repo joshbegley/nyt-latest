@@ -1,3 +1,7 @@
+**Jack Schlossberg Is Named a Political Correspondent for Vogue**\
+`Mr. Schlossberg, 31, the only grandson of President John F. Kennedy, has recently courted attention with occasionally outlandish TikTok videos, many of them political.`\
+https://nytimes.com/2024/07/11/style/jack-schlossberg-vogue-correspondent.html
+
 **Biden Mixes Up Kamala Harris and Donald Trump After Doing the Same With Zelensky and Putin**\
 `The gaffe referring to his own running mate as “Vice President Trump” during a closely watched news conference came shortly after he introduced the president of Ukraine as “President Putin.”`\
 https://nytimes.com/2024/07/11/us/politics/biden-harris-trump-putin-zelensky.html

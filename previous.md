@@ -1,3 +1,7 @@
+**Jack Schlossberg Is Named a Political Correspondent for Vogue**\
+`Mr. Schlossberg, 31, the only grandson of President John F. Kennedy, has recently courted attention with occasionally outlandish TikTok videos, many of them political.`\
+https://nytimes.com/2024/07/11/style/jack-schlossberg-vogue-correspondent.html
+
 **Review: What Makes ‘Oh, Mary!’ One of the Best Summer Comedies in Years**\
 `Cole Escola’s dragtastic White House farce asks the immortal question: Besides that, Mrs. Lincoln, how did you like the play?`\
 https://nytimes.com/2024/07/11/theater/oh-mary-review-cole-escola.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/us/politics/nato-pledges-ukraine-fall-short.html
 **Many in Gaza City Ignore Israeli Military’s Calls to Evacuate**\
 `Some civilians are fatigued by their repeated displacements, while others say there is no point in going to other areas that may be just as dangerous.`\
 https://nytimes.com/2024/07/11/world/middleeast/gaza-city-evacuation-israel-military.html
-
-**The Deep Source of Trump’s Appeal**\
-`The problem with identity politics becoming our moral system is that it undermines democracy.`\
-https://nytimes.com/2024/07/11/opinion/trump-biden-authoritarianism.html
 
