@@ -1,3 +1,7 @@
+**Five players who caught the eye at the 2024 Copa America**\
+`Thom Harris picks out five players that have enjoyed a breakthrough summer at the Copa America `\
+https://nytimes.com/athletic/5630923/2024/07/12/copa-america-2024-breakout-stars/
+
 **Inflation Weighs on Nation’s Largest Banks**\
 `JPMorgan and Wells Fargo reported that overall deposits dropped. At Wells Fargo, a core measure of profitability sank.`\
 https://nytimes.com/2024/07/12/business/wells-fargo-jpmorgan-citibank.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5630847/2024/07/12/euro-2024-spanish-football-radio
 **If U.S. Soccer has a plan, trying to hire Jurgen Klopp surely can't part of it**\
 `Replacing Gregg Berhalter is a pivotal decision. The optics of approaching the world's most high-profile free agent don't inspire confidence`\
 https://nytimes.com/athletic/5632599/2024/07/12/usmnt-head-coach-berhalter-klopp/
-
-**The Athletic’s Friday football quiz question #12**\
-`Every week, we'll serve up a poser from our vault of football conundrums. It won't be easy (unless you're really good…)`\
-https://nytimes.com/athletic/5632320/2024/07/12/the-athletics-friday-football-quiz-question-12/
 

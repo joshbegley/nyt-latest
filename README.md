@@ -1,3 +1,11 @@
+**Yankees' 4 biggest concerns heading into crucial Orioles battle**\
+`Three games in Baltimore separate the Yankees from the All-Star break and being able to put their terrible last month behind them.`\
+https://nytimes.com/athletic/5633071/2024/07/12/yankees-orioles-biggest-concerns/
+
+**On Team USA, Kevin Durant is a mentor for Anthony Edwards — like Kobe once was for him**\
+`In 2012, a young Kevin Durant got a chance to play with his idol, Kobe Bryant, in the Olympics. Now Durant is the idol for Anthony Edwards.`\
+https://nytimes.com/athletic/5632861/2024/07/12/olympics-kevin-durant-anthony-edwards-kobe-bryant-mentor/
+
 **Five players who caught the eye at the 2024 Copa America**\
 `Thom Harris picks out five players that have enjoyed a breakthrough summer at the Copa America `\
 https://nytimes.com/athletic/5630923/2024/07/12/copa-america-2024-breakout-stars/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5631201/2024/07/12/risa-shimizu-manchester-city-tra
 **Lowetide: 4 late summer free-agent additions the Oilers should consider**\
 `Adding some additional depth in areas that could become a need is wise for the Oilers.`\
 https://nytimes.com/athletic/5631996/2024/07/12/oilers-free-agents-vrana-yamamoto/
-
-**Late night shows after 1am and audience figures in the millions. In Spain, radio is king**\
-`Spanish football fans have a unique relationship with radio — despite the advance of rival forms of media around the world`\
-https://nytimes.com/athletic/5630847/2024/07/12/euro-2024-spanish-football-radio-final-england/
-
-**If U.S. Soccer has a plan, trying to hire Jurgen Klopp surely can't part of it**\
-`Replacing Gregg Berhalter is a pivotal decision. The optics of approaching the world's most high-profile free agent don't inspire confidence`\
-https://nytimes.com/athletic/5632599/2024/07/12/usmnt-head-coach-berhalter-klopp/
 

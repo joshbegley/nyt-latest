@@ -1,3 +1,7 @@
+**Five players who caught the eye at the 2024 Copa America**\
+`Thom Harris picks out five players that have enjoyed a breakthrough summer at the Copa America `\
+https://nytimes.com/athletic/5630923/2024/07/12/copa-america-2024-breakout-stars/
+
 **Inflation Weighs on Nation’s Largest Banks**\
 `JPMorgan and Wells Fargo reported that overall deposits dropped. At Wells Fargo, a core measure of profitability sank.`\
 https://nytimes.com/2024/07/12/business/wells-fargo-jpmorgan-citibank.html
