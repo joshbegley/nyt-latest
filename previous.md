@@ -1,3 +1,11 @@
+**Highlights from Biden’s News Conference**\
+`President Biden held an hourlong news conference with reporters, stumbling early on but remaining defiant in the face of questions about his fitness to continue his campaign.`\
+https://nytimes.com/video/us/100000009567939/biden-news-conference-takeaways.html
+
+**China Reaches Record Trade Surplus, Raising Alarm Abroad**\
+`China’s factories have begun an export blitz, prompting worries around the world about the effect on economies elsewhere.`\
+https://nytimes.com/2024/07/12/business/china-trade-surplus-record.html
+
 **The PGA Tour is the dream, right? This golfer still feels drawn to his Scotland home**\
 `To the world he's Robert Macintyre, 27-year-old PGA Tour winner. In Oban, he's just Bob, the son of the greenskeeper. He likes it that way.`\
 https://nytimes.com/athletic/5632997/2024/07/12/robert-macintyre-pga-tour-oban-scotland/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5623785/2024/07/12/amario-cozier-duberry-brighton-a
 **West Ham's striker hunt - the transfer business they must get right this summer**\
 `West Ham putting their striker recruitment issues to bed this summer would provide Julen Loptegui with a platform for success`\
 https://nytimes.com/athletic/5630996/2024/07/12/west-ham-striker-transfer-ings-antonio/
-
-**Everton's academy approach has shifted - will any youngsters break into Dyche's plans?**\
-`Everton have been recruiting academy talent from across Europe — are any of their youngsters ready to push for the first team yet?`\
-https://nytimes.com/athletic/5631133/2024/07/12/everton-academy-prospects/
-
-**What to expect from Tottenham's summer coaching shake-up**\
-`Chris Davies has left to become manager of Birmingham City, with Matt Wells stepping up, and a couple of new arrivals...`\
-https://nytimes.com/athletic/5631010/2024/07/12/tottenhams-coaching-staff-wells-montgomery/
 

@@ -1,3 +1,11 @@
+**Highlights from Biden’s News Conference**\
+`President Biden held an hourlong news conference with reporters, stumbling early on but remaining defiant in the face of questions about his fitness to continue his campaign.`\
+https://nytimes.com/video/us/100000009567939/biden-news-conference-takeaways.html
+
+**China Reaches Record Trade Surplus, Raising Alarm Abroad**\
+`China’s factories have begun an export blitz, prompting worries around the world about the effect on economies elsewhere.`\
+https://nytimes.com/2024/07/12/business/china-trade-surplus-record.html
+
 **The PGA Tour is the dream, right? This golfer still feels drawn to his Scotland home**\
 `To the world he's Robert Macintyre, 27-year-old PGA Tour winner. In Oban, he's just Bob, the son of the greenskeeper. He likes it that way.`\
 https://nytimes.com/athletic/5632997/2024/07/12/robert-macintyre-pga-tour-oban-scotland/
