@@ -1,3 +1,7 @@
+**Biden Mixes Up Trump and Harris**\
+`In an attempt to defend Vice President Kamala Harris, President Biden fumbled his answer to a reporter’s question and referred to “Vice President Trump” instead of Vice President Harris.`\
+https://nytimes.com/video/us/politics/100000009567642/biden-harris-trump.html
+
 **Jack Schlossberg Is Named a Political Correspondent for Vogue**\
 `Mr. Schlossberg, 31, the only grandson of President John F. Kennedy, has recently courted attention with occasionally outlandish TikTok videos, many of them political.`\
 https://nytimes.com/2024/07/11/style/jack-schlossberg-vogue-correspondent.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/nyregion/seton-hall-sexual-harassment-case.html
 **NATO’s Pledges to Ukraine Fall Short for a Counteroffensive This Year**\
 `Weapons donations from the United States and European countries will take weeks, if not months, to reach the front lines.`\
 https://nytimes.com/2024/07/11/us/politics/nato-pledges-ukraine-fall-short.html
-
-**Many in Gaza City Ignore Israeli Military’s Calls to Evacuate**\
-`Some civilians are fatigued by their repeated displacements, while others say there is no point in going to other areas that may be just as dangerous.`\
-https://nytimes.com/2024/07/11/world/middleeast/gaza-city-evacuation-israel-military.html
 

@@ -1,3 +1,7 @@
+**Biden Mixes Up Trump and Harris**\
+`In an attempt to defend Vice President Kamala Harris, President Biden fumbled his answer to a reporter’s question and referred to “Vice President Trump” instead of Vice President Harris.`\
+https://nytimes.com/video/us/politics/100000009567642/biden-harris-trump.html
+
 **Jack Schlossberg Is Named a Political Correspondent for Vogue**\
 `Mr. Schlossberg, 31, the only grandson of President John F. Kennedy, has recently courted attention with occasionally outlandish TikTok videos, many of them political.`\
 https://nytimes.com/2024/07/11/style/jack-schlossberg-vogue-correspondent.html
