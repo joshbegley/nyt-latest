@@ -1,3 +1,7 @@
+**Thousands of Prisoners in U.K. to Be Freed Early to Ease Overcrowding**\
+`The Labour government, which took power this past week, said it had been forced into the move because previous Conservative administrations had let the issue fester.`\
+https://nytimes.com/2024/07/12/world/europe/uk-prisons-early-release.html
+
 **France’s Army Is Singing for Ukraine**\
 `The Choir of the French Army will join the Ukrainian Freedom Orchestra in Paris to show support for Ukraine in its war against Russia.`\
 https://nytimes.com/2024/07/12/arts/music/france-army-choir-ukraine-orchestra.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/12/world/europe/nato-europe-military-russia.html
 **German court finds El Ghazi unfairly sacked by Mainz over Israel-Gaza war posts**\
 `A German court has found that Anwar El Ghazi was unfairly dismissed by Bundesliga club Mainz 05 after posting on social media about the Israel-Gaza war.`\
 https://nytimes.com/athletic/5633470/2024/07/12/german-court-finds-anwar-el-ghazi-unfairly-sacked-by-mainz-over-israel-gaza-war-posts/
-
-**Summer Reading Contest, Week 6: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by July 19 at 9 a.m. Eastern. This week’s winners will be announced by July 31.`\
-https://nytimes.com/2024/07/12/learning/summer-reading-contest-week-6-what-got-your-attention-in-the-times-this-week.html
 
