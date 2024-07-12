@@ -1,3 +1,7 @@
+**Wimbledon: Eight years and eight winners - why is the women's tournament hard to call?**\
+`Wimbledon will have its eighth different women's winner in eight years. Is it the Grand Slam of chaos, or just good tennis?`\
+https://nytimes.com/athletic/5632302/2024/07/12/wimbledon-womens-singles-final-winners/
+
 **The Windup: The best rookie starting pitcher ever?**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5633789/2024/07/12/paul-skenes-best-rookie-sp-ever-plus-the-pain-of-not-drafting-gunnar-henderson/
