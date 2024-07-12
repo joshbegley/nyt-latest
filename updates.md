@@ -1,3 +1,15 @@
+**Did King Charles Really Buy a $6 Million New York Condo?**\
+`The reports were tantalizing, but someone else was behind the expensive purchase.`\
+https://nytimes.com/2024/07/12/realestate/king-charles-condo-nyc.html
+
+**Democratic Donors Froze Pro-Biden Contributions**\
+`Also, a look at Donald Trump’s V.P. contenders. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/07/12/briefing/biden-donor-pressure-trump-vice-president.html
+
+**Our 5-Step Guide to the Perfect Beach Day**\
+`From music and snacks to a backup plan if it rains, here’s everything you need for a blissful day in the sand.`\
+https://nytimes.com/2024/07/12/podcasts/culture-desk-summer-beach-day-guide.html
+
 **A Gaza City Neighborhood Is Left in Ruins After Israeli Troops Withdraw**\
 `Intense fighting between soldiers and Hamas militants has left parts of the city uninhabitable, say residents who returned.`\
 https://nytimes.com/2024/07/12/world/middleeast/gaza-city-shajaiya-israel-hamas.html
