@@ -1,3 +1,8 @@
+**Carlos Alcaraz beats Daniil Medvedev to reach second Wimbledon final**\
+`Follow live coverage of Wimbledon 2024 here
+Carlos Alcaraz reached his second consecutive Wimbledon final, after beating Daniil Medvedev 6-7, 6-3, 6-4, 6-4 on Centre Court on Friday.`\
+https://nytimes.com/athletic/5633754/2024/07/12/carlos-alcaraz-daniil-medvedev-wimbledon/
+
 **A Leading Environmental Group Calls on Biden to Step Aside**\
 `The Sunrise Movement, expressing concern about the president’s ability to win re-election, said he should “pass the torch to a new nominee.”`\
 https://nytimes.com/2024/07/12/climate/biden-sunrise-movement.html
@@ -33,8 +38,4 @@ https://nytimes.com/live/2024/07/12/world/israel-gaza-war-hamas/residents-return
 **Katy Perry’s ‘World’ of Mixed Signals, and 11 More New Songs**\
 `Hear tracks by Bright Eyes, Johnny Blue Skies (a.k.a. Sturgill Simpson), Magdalena Bay and others.`\
 https://nytimes.com/2024/07/12/arts/music/playlist-katy-perry-zach-bryan-sturgill-simpson.html
-
-**Colorado Governor Says Debate About Biden’s Candidacy Remains ‘Legitimate’**\
-`Gov. Jared Polis, a Democrat, called for Biden to demonstrate “what will change that will enable him” to win in November.`\
-https://nytimes.com/2024/07/12/us/politics/democrats-colorado-biden-2024-polis.html
 
