@@ -1,3 +1,7 @@
+**Novak Djokovic reaches Wimbledon final five weeks after knee surgery**\
+`WIMBLEDON — Novak Djokovic set up a Wimbledon rematch with Carlos Alcaraz by beating Lorenzo Musetti, 6-4, 7-6, 6-3 on Centre Court on Friday, concluding his run to the final at the All England Club that started just 25 days after surgery on a torn meniscus in his right knee.`\
+https://nytimes.com/athletic/5634278/2024/07/12/novak-djokovic-wimbledon-final-carlos-alcaraz/
+
 **Should I Come Clean About My Old Sexual and Financial Betrayals?**\
 `The magazine’s Ethicist columnist on the complications of confession.`\
 https://nytimes.com/2024/07/12/magazine/sexual-financial-betrayals-ethics.html
