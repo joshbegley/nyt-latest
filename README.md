@@ -1,3 +1,7 @@
+**Lyon identify Arsenal's McCabe as summer transfer target**\
+`Arsenal face a challenge to retain one of their leading women’s players, with Katie McCabe identified by Lyon as a firm target this summer.`\
+https://nytimes.com/athletic/5633616/2024/07/12/katie-mccabe-arsenal-lyon-transfer-target/
+
 **Hamas Official: ‘We’re Not Obstinate’ in Peace Talks on Gaza**\
 `Husam Badran said the militant group would give up civilian control in the territory, but would not disband its military wing.`\
 https://nytimes.com/2024/07/12/world/middleeast/hamas-israel-peace-talks-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/12/books/review/talking-about-the-centurys-best-book
 **In Brazil, Early Wildfires Break Records — and Raise Alarm**\
 `Huge blazes are spreading hundreds of miles across some of the most biodiverse parts of Brazil, with the worst of the annual fire season still weeks away.`\
 https://nytimes.com/2024/07/12/world/americas/wildfires-brazil-amazon-rainforest.html
-
-**Staveley and Ghodoussi leave Newcastle United**\
-`Newcastle United have confirmed that co-owners Amanda Staveley and Mehrdad Ghodoussi have left the club after three years at St James&#8217; Park.`\
-https://nytimes.com/athletic/5610811/2024/07/12/amanda-staveley-to-leave-newcastle-united/
 
