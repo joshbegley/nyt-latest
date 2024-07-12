@@ -1,3 +1,11 @@
+**A Leading Environmental Group Calls on Biden to Step Aside**\
+`The Sunrise Movement, expressing concern about the president’s ability to win re-election, said he should “pass the torch to a new nominee.”`\
+https://nytimes.com/2024/07/12/climate/biden-sunrise-movement.html
+
+**Carlos Alcaraz is a Wimbledon finalist - and Spain's Euro 2024 good-luck charm**\
+`Carlos Alcaraz is on the cusp of making tennis history at Wimbledon, as Spain chase the same dream at Euro 2024`\
+https://nytimes.com/athletic/5630953/2024/07/12/carlos-alcaraz-wimbledon-spain-football-european-championship/
+
 **Nepal’s Prime Minister Loses Confidence Vote, Adding to the Turmoil of Monsoon Season**\
 `The latest political upheaval comes as Nepal struggles to cope with deadly disasters like a landslide on Friday that left more than 60 people missing.`\
 https://nytimes.com/2024/07/12/world/asia/nepal-prime-minister-confidence-vote.html
