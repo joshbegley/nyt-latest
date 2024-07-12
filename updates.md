@@ -1,3 +1,7 @@
+**Pistons wing Ron Holland Q&A: On J.B. Bickerstaff, cooking and rookie expectations**\
+`Pistons rookie Ron Holland goes one-on-one with The Athletic.`\
+https://nytimes.com/athletic/5634456/2024/07/12/pistons-rookie-ron-holland-nba-summer-league/
+
 **118 member states of the United Nations pledge support for UNRWA.**\
 `By Anjana Sankar`\
 https://nytimes.com/live/2024/07/12/world/israel-gaza-war-hamas/118-member-states-of-the-united-nations-pledge-support-for-unrwa
