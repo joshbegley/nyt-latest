@@ -20,7 +20,7 @@ https://nytimes.com/2024/07/12/opinion/roberts-supreme-court-immunity-taney.html
 
 **U.S. Heat Wave Stretches Into Another Day, and Starts to Move East**\
 `The extreme heat that has lingered over the West for more than a week will push into the Midwest and Northeast by early next week, forecasters said.`\
-https://nytimes.com/2024/07/12/us/us-heat-wave-stretches-into-another-day-and-starts-to-move-east.html
+https://nytimes.com/2024/07/12/us/us-heat-wave-weather-forecast.html
 
 **These Maps Show Biden’s Rapidly Shrinking Path to Re-election**\
 `A Democratic strategist explains just how difficult the Electoral College math is getting for President Biden.`\
