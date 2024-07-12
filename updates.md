@@ -1,3 +1,8 @@
+**Carlos Alcaraz beats Daniil Medvedev to reach second Wimbledon final**\
+`Follow live coverage of Wimbledon 2024 here
+Carlos Alcaraz reached his second consecutive Wimbledon final, after beating Daniil Medvedev 6-7, 6-3, 6-4, 6-4 on Centre Court on Friday.`\
+https://nytimes.com/athletic/5633754/2024/07/12/carlos-alcaraz-daniil-medvedev-wimbledon/
+
 **A Leading Environmental Group Calls on Biden to Step Aside**\
 `The Sunrise Movement, expressing concern about the president’s ability to win re-election, said he should “pass the torch to a new nominee.”`\
 https://nytimes.com/2024/07/12/climate/biden-sunrise-movement.html
