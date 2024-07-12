@@ -1,3 +1,7 @@
+**Democrats Fear Safe Blue States Turning Purple as Biden Stays the Course**\
+`Lingering worries about President Biden’s age could make Minnesota, New Hampshire, New Mexico and Virginia competitive, party operatives believe.`\
+https://nytimes.com/2024/07/12/us/politics/democrats-biden-battleground-states.html
+
 **Saudi Arabia Extends Its Embrace of the World of Video Games**\
 `For struggling American video game companies, Saudi Arabia’s investments in the industry have been hard to resist. Not all gamers are happy about it.`\
 https://nytimes.com/2024/07/12/technology/saudi-arabia-video-game-investment.html
