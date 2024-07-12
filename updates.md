@@ -1,3 +1,15 @@
+**Extreme Heat Puts Delivery Workers at Risk**\
+`Designating a proxy to face the increasing health risks of a sweltering day reeks of classism.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/heat-delivery-workers
+
+**The resurrection of James Rodriguez: From Colombia's outcast to captain in the Copa America final**\
+`From pariah to superhero, this is how he redeemed himself and could guide his country to glory`\
+https://nytimes.com/athletic/5634156/2024/07/12/james-rodriguez-colombia-copa-america-final-2024/
+
+**The Search for Tulsa Massacre Victims Finally Reveals a Name**\
+`In 1921, an Army veteran who was traveling home stopped in Tulsa, Okla., only to be caught in one of the worst racial attacks in American history.`\
+https://nytimes.com/2024/07/12/us/tulsa-massacre-victim-identified.html
+
 **Judge Dismisses Giuliani’s Bankruptcy Case**\
 `The decision means that the former New York City mayor and lawyer for Donald Trump will face his creditors without protection from federal bankruptcy laws.`\
 https://nytimes.com/2024/07/12/us/politics/giuliani-bankruptcy-case-dismissed.html
