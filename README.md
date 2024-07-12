@@ -1,3 +1,7 @@
+**How will Amario Cozier-Duberry fit in at Brighton?**\
+`Brighton convinced the 19-year-old winger to join them after his departure from Arsenal but where will he fit in?`\
+https://nytimes.com/athletic/5623785/2024/07/12/amario-cozier-duberry-brighton-arsenal/
+
 **West Ham's striker hunt - the transfer business they must get right this summer**\
 `West Ham putting their striker recruitment issues to bed this summer would provide Julen Loptegui with a platform for success`\
 https://nytimes.com/athletic/5630996/2024/07/12/west-ham-striker-transfer-ings-antonio/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5631192/2024/07/12/euro-2024-final-spain-england-pr
 **'A stroke of genius' - How The Killers gave England fans a Euro 2024 moment to savour**\
 `The Las Vegas rock band paused a London concert to share the end of England's Euro 2024 semi-final with fans — then blew them away`\
 https://nytimes.com/athletic/5632176/2024/07/12/the-killers-england-ollie-watkins-euro-2024/
-
-**Spain's De la Fuente: Three hours of sleep a night at Euro 2024 - but dreaming of the title**\
-`Luis de la Fuente has led Spain to the final of Euro 2024 — despite the negative impact on his sleep schedule`\
-https://nytimes.com/athletic/5625989/2024/07/12/spain-luis-de-la-fuente-sleep/
 
