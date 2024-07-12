@@ -1,3 +1,35 @@
+**Spanish teams and their remarkable record in finals: Since 2001, they just don't lose them**\
+`Luis de la Fuente and his squad will hope to make it 23 finals unbeaten for Spanish teams. History, if nothing else, says they will succeed`\
+https://nytimes.com/athletic/5631859/2024/07/12/spain-finals-dominance-euro-2024/
+
+**Man City Women sign Shimizu from West Ham**\
+`Manchester City Women have completed the signing of full-back Risa Shimizu on a free transfer from West Ham United.`\
+https://nytimes.com/athletic/5631201/2024/07/12/risa-shimizu-manchester-city-transfer/
+
+**Lowetide: 4 late summer free-agent additions the Oilers should consider**\
+`Adding some additional depth in areas that could become a need is wise for the Oilers.`\
+https://nytimes.com/athletic/5631996/2024/07/12/oilers-free-agents-vrana-yamamoto/
+
+**Late night shows after 1am and audience figures in the millions. In Spain, radio is king**\
+`Spanish football fans have a unique relationship with radio — despite the advance of rival forms of media around the world`\
+https://nytimes.com/athletic/5630847/2024/07/12/euro-2024-spanish-football-radio-final-england/
+
+**If U.S. Soccer has a plan, trying to hire Jurgen Klopp surely can't part of it**\
+`Replacing Gregg Berhalter is a pivotal decision. The optics of approaching the world's most high-profile free agent don't inspire confidence`\
+https://nytimes.com/athletic/5632599/2024/07/12/usmnt-head-coach-berhalter-klopp/
+
+**The Athletic’s Friday football quiz question #12**\
+`Every week, we'll serve up a poser from our vault of football conundrums. It won't be easy (unless you're really good…)`\
+https://nytimes.com/athletic/5632320/2024/07/12/the-athletics-friday-football-quiz-question-12/
+
+**State of the 49ers, LB: Will Fred Warner and Dre Greenlaw's tackling bounce back?**\
+`Greenlaw is likely to start the season on the PUP list as he recovers from his Achilles tear. Do the 49ers have the depth to handle that?`\
+https://nytimes.com/athletic/5560534/2024/07/12/san-francisco-49ers-linebackers-2024-warner-greenlaw/
+
+**England vs Spain dissected: Will Watkins start? Is Foden back? Is football coming home?**\
+`Should Southgate make changes? How can his team upset the odds again? And how can Spain be beaten?`\
+https://nytimes.com/athletic/5631072/2024/07/12/england-euro-2024-final-team-predictions/
+
 **The Pulse: The 400-plus job changes thanks to Nick Saban**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5632355/2024/07/12/nick-saban-job-changes-the-pulse/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/5632355/2024/07/12/nick-saban-job-changes-the-pulse
 **President Biden’s Public Test**\
 `We explain his high stakes press conference.`\
 https://nytimes.com/2024/07/12/briefing/president-bidens-public-test.html
-
-**Commanders coaches, DBs see optimism forming with revamped secondary**\
-`From helping Emmanuel Forbes reach his full potential to adding Jeremy Chinn, the new staff feels encouraged by the pieces it has in place.`\
-https://nytimes.com/athletic/5629600/2024/07/12/commanders-secondary-emmanuel-forbes/
-
-**Twins' scout who initially 'missed' on Brooks Lee is who they trust when drafting hitters**\
-`Scout Tim O’Neil is considered the club's “go-to guy” when it comes to drafting hitters. His initial "miss" on Lee had a happy ending.`\
-https://nytimes.com/athletic/5632460/2024/07/12/twins-mlb-draft-brooks-lee-scout-tim-oneil/
-
-**MLB draft preview: 4 players Cardinals could target with No. 7 pick**\
-`Who will the Cardinals draft with their first top-10 pick in 26 years? Hagen Smith or Bryce Rainer could prove to be ideal fits.`\
-https://nytimes.com/athletic/5632143/2024/07/12/cardinals-mlb-draft-hagen-bryce-rainer/
-
-**NWSL teams are smashing records, with overall attendance up 42 percent**\
-`The league is a long way away from it's early YouTube live streams, but uniformity is still lagging`\
-https://nytimes.com/athletic/5632884/2024/07/12/nwsl-attendance-records/
-
-**Packers' Jordan Love could ride last season's momentum and become a top fantasy QB**\
-`Love is entering his second season as a full-time starter, is more comfortable in the offense and gets all his top pass catchers back.`\
-https://nytimes.com/athletic/5632758/2024/07/12/packers-jordan-love-fantasy-football/
-
-**Is Luke Richardson the right coach for Blackhawks? This season should help answer that**\
-`Richardson fit what the Blackhawks needed in a lot of ways over his first two seasons as head coach, but can he coach a winning team?`\
-https://nytimes.com/athletic/5630556/2024/07/12/blackhawks-luke-richardson-coach/
-
-**Loving Their Pets to Debt**\
-`Veterinary care has become a multi-billion-dollar industry, creating a fraught emotional and financial landscape for pet owners.`\
-https://nytimes.com/2024/07/12/podcasts/the-daily/pets-veterinary-bills.html
-
-**Wordle Review No. 1,120, July 13, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/12/crosswords/wordle-review-1120.html
 
