@@ -1,3 +1,7 @@
+**Rescued Hostage Describes Months of Uncertainty and Terror in Gaza**\
+`Andrey Kozlov was kept for six months in a family’s apartment by a Hamas operative who moonlighted as a journalist. Then Israeli commandos stormed in.`\
+https://nytimes.com/2024/07/12/world/middleeast/israel-hostage-gaza-koslov-hamas.html
+
 **AZ Alkmaar agree fee with Tottenham for Parrott**\
 `AZ Alkmaar have agreed an €8million fee with Tottenham Hotspur to sign forward Troy Parrott.`\
 https://nytimes.com/athletic/5633218/2024/07/12/troy-parrott-tottenham-az-alkmaar-transfer/
