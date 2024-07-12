@@ -1,3 +1,7 @@
+**Thousands of Prisoners in U.K. to Be Freed Early to Ease Overcrowding**\
+`The Labour government, which took power this past week, said it had been forced into the move because previous Conservative administrations had let the issue fester.`\
+https://nytimes.com/2024/07/12/world/europe/uk-prisons-early-release.html
+
 **France’s Army Is Singing for Ukraine**\
 `The Choir of the French Army will join the Ukrainian Freedom Orchestra in Paris to show support for Ukraine in its war against Russia.`\
 https://nytimes.com/2024/07/12/arts/music/france-army-choir-ukraine-orchestra.html
