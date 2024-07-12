@@ -1,3 +1,7 @@
+**Marcelo Bielsa hits out at Copa America organizers, says it 'has not been professional'**\
+`In an emotional press conference, Bielsa attacked the pitch and security conditions at the tournament, and more`\
+https://nytimes.com/athletic/5634440/2024/07/12/marcelo-bielsa-copa-america-news/
+
 **Brighton complete transfer of IFK Gothenburg teenager Yalcouye**\
 `Brighton have completed a deal to sign Malick Yalcouye from IFK Gothenburg.`\
 https://nytimes.com/athletic/5624433/2024/07/12/brighton-transfers-malick-yalcouye/
