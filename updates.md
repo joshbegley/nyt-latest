@@ -1,3 +1,7 @@
+**Five Takeaways From Biden’s News Conference**\
+`In a nearly hourlong news conference, the president defended his decision to stay in the race amid questions about his age and mental acuity, but also showed a command of foreign policy.`\
+https://nytimes.com/2024/07/11/us/politics/biden-news-conference-takeaways.html
+
 **‘No Poll Says That’: Biden Digs In as Democratic Fears Deepen**\
 `The president put on a competent showing at his pressure cooker of a news conference, but it remained in doubt if he could stem the bleeding of Democratic support.`\
 https://nytimes.com/2024/07/11/us/politics/biden-democrats.html
