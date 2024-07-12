@@ -1,3 +1,15 @@
+**Antitrust Regulator Tells Chains: Back Off Your Franchisees**\
+`After a yearlong inquiry, the Federal Trade Commission warned brands not to gag their small business operators or charge them extra fees.`\
+https://nytimes.com/2024/07/12/business/economy/franchise-ftc-antitrust.html
+
+**Man Utd Women complete permanent transfer of Malard from Lyon**\
+`Manchester United Women have completed the permanent transfer of France international Melvine Malard on a three-year contract from Lyon.`\
+https://nytimes.com/athletic/5634000/2024/07/12/melvine-malard-manchester-united-transfer-news/
+
+**How Did Biden Do at His News Conference?**\
+`Readers offer varying assessments and call on Donald Trump to hold one as well. Also: Steve Bannon’s chilling answer about U.S. Jews; Gettysburg’s meaning.`\
+https://nytimes.com/2024/07/12/opinion/joe-biden-news-conference.html
+
 **Chelsea confirm Veiga signing from Basel**\
 `Chelsea have completed the signing of Renato Veiga from FC Basel.`\
 https://nytimes.com/athletic/5633990/2024/07/12/chelsea-transfers-renato-veiga-basel/

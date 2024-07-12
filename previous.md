@@ -1,3 +1,15 @@
+**Antitrust Regulator Tells Chains: Back Off Your Franchisees**\
+`After a yearlong inquiry, the Federal Trade Commission warned brands not to gag their small business operators or charge them extra fees.`\
+https://nytimes.com/2024/07/12/business/economy/franchise-ftc-antitrust.html
+
+**Man Utd Women complete permanent transfer of Malard from Lyon**\
+`Manchester United Women have completed the permanent transfer of France international Melvine Malard on a three-year contract from Lyon.`\
+https://nytimes.com/athletic/5634000/2024/07/12/melvine-malard-manchester-united-transfer-news/
+
+**How Did Biden Do at His News Conference?**\
+`Readers offer varying assessments and call on Donald Trump to hold one as well. Also: Steve Bannon’s chilling answer about U.S. Jews; Gettysburg’s meaning.`\
+https://nytimes.com/2024/07/12/opinion/joe-biden-news-conference.html
+
 **Chelsea confirm Veiga signing from Basel**\
 `Chelsea have completed the signing of Renato Veiga from FC Basel.`\
 https://nytimes.com/athletic/5633990/2024/07/12/chelsea-transfers-renato-veiga-basel/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5632396/2024/07/12/mlb-futures-game-2024-hitters/
 **Carlos Alcaraz beats Daniil Medvedev to reach second Wimbledon final**\
 `Carlos Alcaraz reached his second consecutive Wimbledon final, after beating Daniil Medvedev 6-7, 6-3, 6-4, 6-4 on Centre Court on Friday.`\
 https://nytimes.com/athletic/5633754/2024/07/12/carlos-alcaraz-daniil-medvedev-wimbledon/
-
-**SpaceX Rocket Fails, Breaking Apart in Orbit**\
-`The failure, the first since 2016, ended a streak of more than 300 successful launches for the Falcon 9 rocket.`\
-https://nytimes.com/2024/07/12/science/spacex-falcon-9-rocket-fail-starlink-launch.html
-
-**Villa reach agreement to re-sign Philogene from Hull on five-year contract**\
-`Aston Villa have reached an agreement to re-sign winger Jaden Philogene from Hull City on a five-year contract.`\
-https://nytimes.com/athletic/5630792/2024/07/12/jaden-philogene-aston-vila-transfer-news/
-
-**Finding the Faces of 46 Children Taken From Ukraine**\
-`For a visual investigation, two Times journalists spent a year tracing 46 children who were taken from a foster home in Kherson and brought to Crimea.`\
-https://nytimes.com/2024/07/12/insider/finding-the-faces-of-46-children-taken-from-ukraine.html
 
