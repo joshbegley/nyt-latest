@@ -1,3 +1,7 @@
+**The Strongest Case for Biden Is His Resilience in the Face of the Onslaught**\
+`Forcing Biden out is an invalidation of the Democratic process.`\
+https://nytimes.com/2024/07/11/opinion/biden-stay-in-race.html
+
 **Biden Mixes Up Trump and Harris**\
 `In an attempt to defend Vice President Kamala Harris, President Biden fumbled his answer to a reporter’s question and referred to “Vice President Trump” instead of Vice President Harris.`\
 https://nytimes.com/video/us/politics/100000009567642/biden-harris-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/us/politics/biden-harris-trump-putin-zelensky.htm
 **Investigators Find No Evidence of Sexual Harassment in Seton Hall Case**\
 `The university’s former president sued the school, saying a former board chairman harassed his wife. A law firm the university hired said no witnesses substantiated the claims.`\
 https://nytimes.com/2024/07/11/nyregion/seton-hall-sexual-harassment-case.html
-
-**NATO’s Pledges to Ukraine Fall Short for a Counteroffensive This Year**\
-`Weapons donations from the United States and European countries will take weeks, if not months, to reach the front lines.`\
-https://nytimes.com/2024/07/11/us/politics/nato-pledges-ukraine-fall-short.html
 
