@@ -1,3 +1,7 @@
+**Does Joe Biden Realize How Angry These Michigan Voters Are?**\
+`There are over 200,000 registered voters who are Muslim in Michigan, and they could cost Biden the election.`\
+https://nytimes.com/video/opinion/100000009565908/biden-voters-dearborn-michigan.html
+
 **Rescued Hostage Describes Months of Uncertainty and Terror in Gaza**\
 `Andrey Kozlov was kept for six months in a family’s apartment by a Hamas operative who moonlighted as a journalist. Then Israeli commandos stormed in.`\
 https://nytimes.com/2024/07/12/world/middleeast/israel-hostage-gaza-koslov-hamas.html
