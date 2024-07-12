@@ -1,3 +1,7 @@
+**Biden Says Harris Is Qualified to Be President, but Vows to Remain in Race**\
+`Even as the president promoted his vice president’s qualifications alongside his own, he committed the sort of gaffe that has unnerved Democrats, referring to her as “Vice President Trump.”`\
+https://nytimes.com/live/2024/07/11/us/biden-news-trump-election/biden-news-conference-harris
+
 **After Biden’s News Conference, Doubters and Defenders Weigh In**\
 `More representatives called for the president to end his re-election bid after a session with reporters, while others highlighted his firm grasp of foreign policy after a NATO summit.`\
 https://nytimes.com/2024/07/11/us/politics/biden-news-conference-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5632902/2024/07/11/reds-austin-wynns-santiago-espin
 **NASA Mission to Europa Imperiled by Chips Aboard Spacecraft**\
 `Transistors on the Europa Clipper spacecraft, scheduled to launch in October, may not be able to endure the harsh radiation around the planet Jupiter.`\
 https://nytimes.com/2024/07/11/science/europa-clipper-nasa-radiation.html
-
-**Monte Kiffin, legendary NFL DC, dies at 84**\
-`Kiffin is celebrated for the 13 years he presided over the Tampa Bay Bucs defense and dominated with a scheme called the Tampa 2.`\
-https://nytimes.com/athletic/5632891/2024/07/11/monte-kiffin-coach-ole-miss-tampa-2/
 

@@ -1,3 +1,11 @@
+**After Biden’s News Conference, Doubters and Defenders Weigh In**\
+`More representatives called for the president to end his re-election bid after a session with reporters, while others highlighted his firm grasp of foreign policy after a NATO summit.`\
+https://nytimes.com/2024/07/11/us/politics/biden-news-conference-reaction.html
+
+**What Connects Money to Everything**\
+`Malaika Handa’s puzzle is lively and satisfying.`\
+https://nytimes.com/2024/07/11/crosswords/daily-puzzle-2024-07-12.html
+
 **Cubs' Cody Bellinger’s broken middle finger might take him out of trade deadline discussions**\
 `Trading Cody Bellinger was never going to be an easy decision. It now might be virtually impossible.`\
 https://nytimes.com/athletic/5632993/2024/07/11/cubs-cody-bellinger-finger-injury-trade-deadline/
