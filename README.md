@@ -1,3 +1,7 @@
+**Pistons wing Ron Holland Q&A: On J.B. Bickerstaff, cooking and rookie expectations**\
+`Pistons rookie Ron Holland goes one-on-one with The Athletic.`\
+https://nytimes.com/athletic/5634456/2024/07/12/pistons-rookie-ron-holland-nba-summer-league/
+
 **118 member states of the United Nations pledge support for UNRWA.**\
 `By Anjana Sankar`\
 https://nytimes.com/live/2024/07/12/world/israel-gaza-war-hamas/118-member-states-of-the-united-nations-pledge-support-for-unrwa
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/12/t-magazine/outdoor-cooking-grill.html
 **Atletico Madrid's Saul in advanced talks to join Sevilla on loan**\
 `Atletico Madrid midfielder Saul is in advanced to join Sevilla on a season-long loan deal.`\
 https://nytimes.com/athletic/5626543/2024/07/12/saul-atletico-madrid-transfers-sevilla/
-
-**Hotel Workers May Face Murder Charges After Death of Man at Milwaukee Hyatt**\
-`The Milwaukee Police Department said it had referred four felony murder charges to prosecutors, who will decide whether to bring criminal charges.`\
-https://nytimes.com/2024/07/12/us/dvontaye-mitchell-milwaukee-hotel-charges.html
 
