@@ -1,5 +1,13 @@
-**Novak Djokovic reaches Wimbledon final five weeks after knee surgery**\
-`Novak Djokovic set up a Wimbledon rematch with Carlos Alcaraz by beating Lorenzo Musetti, 6-4, 7-6, 6-3 on Centre Court on Friday, concluding his run to the final at the All England Club that started just 25 days after surgery on a torn meniscus in his right knee.`\
+**Should I Come Clean About My Old Sexual and Financial Betrayals?**\
+`The magazine’s Ethicist columnist on the complications of confession.`\
+https://nytimes.com/2024/07/12/magazine/sexual-financial-betrayals-ethics.html
+
+**USWNT's 1999 World Cup jerseys reissued but Briana Scurry's goalkeeper top omitted**\
+`The 1999 USWNT World Cup team has assembled in New York City ahead of this weekend’s 25th anniversary celebration at Red Bull Arena, as the current version of the team squares off against Mexico in one of their two final tune-ups ahead of the Olympics.`\
+https://nytimes.com/athletic/5634260/2024/07/12/uswnt-world-cup-jerseys-briana-scurry/
+
+**Novak Djokovic reaches Wimbledon final less than six weeks after knee surgery**\
+`WIMBLEDON — Novak Djokovic set up a Wimbledon rematch with Carlos Alcaraz by beating Lorenzo Musetti, 6-4, 7-6, 6-3 on Centre Court on Friday, concluding his run to the final at the All England Club that started just 25 days after surgery on a torn meniscus in his right knee.`\
 https://nytimes.com/athletic/5634278/2024/07/12/novak-djokovic-wimbledon-final-carlos-alcaraz/
 
 **Phillies release Whit Merrifield: Offseason bench pickup ends as $8 million mistake**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5633695/2024/07/12/sf-giants-trade-deadline-sellers
 **How a Largely Democratic Milwaukee Is Feeling About Welcoming Thousands of Republicans**\
 `Some people voiced indifference or regret that their city was hosting the Republican National Convention. Others welcomed the spotlight.`\
 https://nytimes.com/2024/07/12/us/milwaukee-residents-rnc.html
-
-**Ipswich complete signing of Jacob Greaves from Hull**\
-`Ipswich Town have completed the signing of defender Jacob Greaves from Hull City.`\
-https://nytimes.com/athletic/5623275/2024/07/12/jacob-greaves-ipswich-transfer/
-
-**Do the Democrats Really Think Trump Is an Emergency?**\
-`They haven’t acted like it.`\
-https://nytimes.com/2024/07/12/opinion/democrats-trump-biden-emergency.html
 
