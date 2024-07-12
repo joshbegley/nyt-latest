@@ -1,3 +1,7 @@
+**The New N.Y.P.D. Motto Is Missing Some Important Words**\
+`The change reflects the department’s aggressive and problematic new attitude under Mayor Eric Adams.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/nypd-slogan-aggressive-adams
+
 **Yankees call up infield prospect Jorbit Vivas**\
 `The New York Yankees are calling up infield prospect Jorbit Vivas, a team source confirmed to The Athletic.`\
 https://nytimes.com/athletic/5634094/2024/07/12/yankees-prospect-jorbit-vivas-promoted/
@@ -34,8 +38,4 @@ https://nytimes.com/2024/07/12/climate/biden-sunrise-movement.html
 **Carlos Alcaraz is a Wimbledon finalist - and Spain's Euro 2024 good-luck charm**\
 `Carlos Alcaraz is on the cusp of making tennis history at Wimbledon, as Spain chase the same dream at Euro 2024`\
 https://nytimes.com/athletic/5630953/2024/07/12/carlos-alcaraz-wimbledon-spain-football-european-championship/
-
-**Nepal’s Prime Minister Loses Confidence Vote, Adding to the Turmoil of Monsoon Season**\
-`The latest political upheaval comes as Nepal struggles to cope with deadly disasters like a landslide on Friday that left more than 60 people missing.`\
-https://nytimes.com/2024/07/12/world/asia/nepal-prime-minister-confidence-vote.html
 
