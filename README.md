@@ -1,3 +1,7 @@
+**Late Night Laughs Off the Responses to George Clooney’s Essay**\
+`“It’s crazy the election of 2024 could be decided by the Sexiest Man Alive of 1997,” Kumail Nanjiani, the guest host, joked on “Jimmy Kimmel Live.”`\
+https://nytimes.com/2024/07/12/arts/television/late-night-clooney-biden-responses.html
+
 **In an Outback Town, Praising the Lord and Improvising the Details**\
 `For some churches, it’s all about music. Others translate scripture into Indigenous languages or enlist local artists to depict Bible stories in their own way.`\
 https://nytimes.com/2024/07/12/world/australia/christianity-outback.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5633061/2024/07/12/red-sox-connor-wong-performance/
 **Ronaldo, a complicated relationship with the U.S. and the spectre of the 2026 World Cup**\
 `Cristiano Ronaldo has not kicked a ball in the U.S. for almost a decade, but could he play for Portugal at the World Cup there in 2026?`\
 https://nytimes.com/athletic/5624041/2024/07/12/cristiano-ronaldo-united-states-world-cup/
-
-**Spain vs England: Where the Euro 2024 final could be won and lost**\
-`How can England stop Spain's outstanding wingers? What is De La Fuente's team's weakness? And why Spain's midfield is more than just Rodri`\
-https://nytimes.com/athletic/5631192/2024/07/12/euro-2024-final-spain-england-preview/
 
