@@ -1,3 +1,7 @@
+**Dodgers swept by Phillies as their prolonged, mistake-filled rut continues**\
+`Manager Dave Roberts after the Dodgers were no match for Phillies: “They're clearly a better team than we are right now."`\
+https://nytimes.com/athletic/5633008/2024/07/11/dodgers-phillies-sweep/
+
 **A Coherent News Conference May Buy Biden Some Time**\
 `His team wants to run out the clock on talk of a replacement. Will other Democrats let that happen?`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-news-conference-campaign
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009567642/biden-harris-trump.html
 **Jack Schlossberg Is Named a Political Correspondent for Vogue**\
 `Mr. Schlossberg, 31, the only grandson of President John F. Kennedy, has courted attention with outlandish TikTok videos, many of them political.`\
 https://nytimes.com/2024/07/11/style/jack-schlossberg-vogue-correspondent.html
-
-**Review: What Makes ‘Oh, Mary!’ One of the Best Summer Comedies in Years**\
-`Cole Escola’s dragtastic White House farce asks the immortal question: Besides that, Mrs. Lincoln, how did you like the play?`\
-https://nytimes.com/2024/07/11/theater/oh-mary-review-cole-escola.html
 
