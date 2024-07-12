@@ -1,3 +1,7 @@
+**NASA Mission to Europa Imperiled by Chips Aboard Spacecraft**\
+`Transistors on the Europa Clipper spacecraft, scheduled to launch in October, may not be able to endure the harsh radiation around the planet Jupiter.`\
+https://nytimes.com/2024/07/11/science/europa-clipper-nasa-radiation.html
+
 **Monte Kiffin, legendary NFL DC, dies at 84**\
 `Kiffin is celebrated for the 13 years he presided over the Tampa Bay Bucs defense and dominated with a scheme called the Tampa 2.`\
 https://nytimes.com/athletic/5632891/2024/07/11/monte-kiffin-coach-ole-miss-tampa-2/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/opinion/trump-republican-platform.html
 **Biden Calls Zelensky ‘Putin’ at NATO Event**\
 `President Biden introduced President Volodymyr Zelensky of Ukraine as President Putin before correcting himself on Thursday afternoon after a NATO meeting.`\
 https://nytimes.com/video/us/politics/100000009567490/biden-zelensky-putin.html
-
-**10 Great Shelley Duvall Performances to Stream**\
-`In “The Shining,” “Popeye” and more, her unusual presence jumps off the screen. That’s true even in small roles in “Annie Hall” and “Time Bandits.”`\
-https://nytimes.com/2024/07/11/movies/shelley-duvall-movies-streaming.html
 
