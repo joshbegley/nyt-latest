@@ -1,3 +1,7 @@
+**Villa reach agreement to re-sign Philogene from Hull on five-year contract**\
+`Aston Villa have reached an agreement to re-sign winger Jaden Philogene from Hull City on a five-year contract.`\
+https://nytimes.com/athletic/5630792/2024/07/12/jaden-philogene-aston-vila-transfer-news/
+
 **Finding the Faces of 46 Children Taken From Ukraine**\
 `For a visual investigation, two Times journalists spent a year tracing 46 children who were taken from a foster home in Kherson and brought to Crimea.`\
 https://nytimes.com/2024/07/12/insider/finding-the-faces-of-46-children-taken-from-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5633494/2024/07/12/dele-everton-tottenham-contract/
 **Harry Kane seeks his defining moment to secure a place in England's national psyche**\
 `The England captain has been the best player over Gareth Southgate's tenure, but he has lacked his own David Beckham or Geoff Hurst moment`\
 https://nytimes.com/athletic/5620844/2024/07/12/kane-england-southgate-moment/
-
-**It’s Shrimp Weather**\
-`Toss them on the grill, fry them for salt and pepper shrimp rolls, chop them into burgers or poach them for spring rolls.`\
-https://nytimes.com/2024/07/12/dining/its-shrimp-weather.html
 
