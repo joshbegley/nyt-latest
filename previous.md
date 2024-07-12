@@ -1,40 +1,40 @@
-**Unscripted and Unbowed, Biden Seeks to Overcome Missteps with Policy Talk**\
-`The challenge for President Biden after last month’s debate debacle is that every public appearance between now and November will be scrutinized for evidence of infirmity.`\
-https://nytimes.com/2024/07/11/us/politics/biden-nato-democrats.html
+**Friday Briefing**\
+`A solo news conference from President Biden.`\
+https://nytimes.com/2024/07/12/world/europe/biden-conference-gaza-france.html
 
-**Five Takeaways From Biden’s News Conference**\
-`In a nearly hourlong news conference, the president defended his decision to stay in the race amid questions about his age and mental acuity, but also showed a command of foreign policy.`\
-https://nytimes.com/2024/07/11/us/politics/biden-news-conference-takeaways.html
+**Shearer, Gazza and co relive Euro 96: The Scotland goal, the magic, the heartbreak**\
+`The story of a monumental summer for England, retold by the players who made it all happen`\
+https://nytimes.com/athletic/5490129/2024/07/12/shearer-gazza-euro-96/
 
-**‘No Poll Says That’: Biden Digs In as Democratic Fears Deepen**\
-`The president put on a competent showing at his pressure cooker of a news conference, but it remained in doubt if he could stem the bleeding of Democratic support.`\
-https://nytimes.com/2024/07/11/us/politics/biden-democrats.html
+**Friday's MLB projections: Best starting pitchers, playoff odds, props and more**\
+`Projections for Friday's MLB games with expert picks for best bets, pitcher props, home run trends and more.`\
+https://nytimes.com/athletic/5627317/2024/07/12/mlb-odds-predictions-best-bets-july-12/
 
-**Fact-Checking Biden’s News Conference at the NATO Summit**\
-`The president omitted context or exaggerated in making claims about polling, migration at the border and attacks on his opponent.`\
-https://nytimes.com/2024/07/11/us/biden-fact-check-news-conference.html
+**Quotation of the Day: A Long Island Suburb Is Training an Armed Force. Is It a Militia?**\
+`Quotation of the Day for Friday, July 12, 2024.`\
+https://nytimes.com/2024/07/12/pageoneplus/quotation-of-the-day-a-long-island-suburb-is-training-an-armed-force-is-it-a-militia.html
 
-**Dodgers swept by Phillies as their prolonged, mistake-filled rut continues**\
-`Manager Dave Roberts after the Dodgers were no match for Phillies: “They're clearly a better team than we are right now."`\
-https://nytimes.com/athletic/5633008/2024/07/11/dodgers-phillies-sweep/
+**Corrections: July 12, 2024**\
+`Corrections that appeared in print on Friday, July 12, 2024.`\
+https://nytimes.com/2024/07/12/pageoneplus/corrections-july-12-2024.html
 
-**A Coherent News Conference May Buy Biden Some Time**\
-`His team wants to run out the clock on talk of a replacement. Will other Democrats let that happen?`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-news-conference-campaign
+**After a Rock-Climbing Date, Their Relationship Reached New Heights**\
+`Ona Ferens and Samuel Haselden may have unknowingly crossed paths at the same gym before ever meeting each other.`\
+https://nytimes.com/2024/07/12/style/samuel-haselden-ona-ferens-wedding.html
 
-**The Beastie Boys Sue Chili’s Over Use of ‘Sabotage’**\
-`The band said that the restaurant chain had ripped off the song and its music video in advertising videos posted to social media. The group has won similar cases in the past.`\
-https://nytimes.com/2024/07/11/business/beastie-boys-chilis-lawsuit.html
+**They Sang Their Way Into Each Other’s Hearts**\
+`Jennie Thomas and Jeff Angell met five years ago at a talent competition that they helped put on at Rikers Island in New York.`\
+https://nytimes.com/2024/07/12/style/jennie-thomas-jeff-angell-wedding.html
 
-**Biden Says Harris Is Qualified to Be President, but Vows to Remain in Race**\
-`Even as the president promoted his vice president’s qualifications alongside his own, he committed the sort of gaffe that has unnerved Democrats, referring to her as “Vice President Trump.”`\
-https://nytimes.com/2024/07/11/us/politics/kamala-harris-biden-news-conference.html
+**The Psychic Who Predicted My Romantic Future**\
+`For a millennial with financial burdens, would a home have to be a house?`\
+https://nytimes.com/2024/07/12/style/modern-love-psychic-who-predicted-my-romantic-future.html
 
-**After Biden’s News Conference, Doubters and Defenders Weigh In**\
-`More representatives called for the president to end his re-election bid after a session with reporters, while others highlighted his firm grasp of foreign policy after a NATO summit.`\
-https://nytimes.com/2024/07/11/us/politics/biden-news-conference-reaction.html
+**‘Basically Inseparable’ From the Start**\
+`Thirty minutes into her first date with Karli Gray, Ellie Smith texted her friends to let them know she was falling in love.`\
+https://nytimes.com/2024/07/12/style/karli-gray-ellie-smith-wedding.html
 
-**What Connects Money to Everything**\
-`Malaika Handa’s puzzle is lively and satisfying.`\
-https://nytimes.com/2024/07/11/crosswords/daily-puzzle-2024-07-12.html
+**Finding Happily Ever After in Their Happy Place**\
+`Joe Gorman and Matt Capbarat felt an instant spark when they met through a mutual friend. It took a harrowing climb of Denali to know this was a forever love.`\
+https://nytimes.com/2024/07/12/style/joseph-gorman-matt-capbarat-wedding.html
 
