@@ -1,3 +1,11 @@
+**West Ham's striker hunt - the transfer business they must get right this summer**\
+`West Ham putting their striker recruitment issues to bed this summer would provide Julen Loptegui with a platform for success`\
+https://nytimes.com/athletic/5630996/2024/07/12/west-ham-striker-transfer-ings-antonio/
+
+**Everton's academy approach has shifted - will any youngsters break into Dyche's plans?**\
+`Everton have been recruiting academy talent from across Europe — are any of their youngsters ready to push for the first team yet?`\
+https://nytimes.com/athletic/5631133/2024/07/12/everton-academy-prospects/
+
 **What to expect from Tottenham's summer coaching shake-up**\
 `Chris Davies has left to become manager of Birmingham City, with Matt Wells stepping up, and a couple of new arrivals...`\
 https://nytimes.com/athletic/5631010/2024/07/12/tottenhams-coaching-staff-wells-montgomery/

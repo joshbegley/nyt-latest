@@ -1,3 +1,11 @@
+**West Ham's striker hunt - the transfer business they must get right this summer**\
+`West Ham putting their striker recruitment issues to bed this summer would provide Julen Loptegui with a platform for success`\
+https://nytimes.com/athletic/5630996/2024/07/12/west-ham-striker-transfer-ings-antonio/
+
+**Everton's academy approach has shifted - will any youngsters break into Dyche's plans?**\
+`Everton have been recruiting academy talent from across Europe — are any of their youngsters ready to push for the first team yet?`\
+https://nytimes.com/athletic/5631133/2024/07/12/everton-academy-prospects/
+
 **What to expect from Tottenham's summer coaching shake-up**\
 `Chris Davies has left to become manager of Birmingham City, with Matt Wells stepping up, and a couple of new arrivals...`\
 https://nytimes.com/athletic/5631010/2024/07/12/tottenhams-coaching-staff-wells-montgomery/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5632176/2024/07/12/the-killers-england-ollie-watkin
 **Spain's De la Fuente: Three hours of sleep a night at Euro 2024 - but dreaming of the title**\
 `Luis de la Fuente has led Spain to the final of Euro 2024 — despite the negative impact on his sleep schedule`\
 https://nytimes.com/athletic/5625989/2024/07/12/spain-luis-de-la-fuente-sleep/
-
-**'We must hope for a miracle': How a failed TV deal has put Ligue 1 in crisis mode**\
-`With just over a month to go until the season starts, Ligue 1 clubs are in limbo, unable to set budgets and nervous for their futures`\
-https://nytimes.com/athletic/5630833/2024/07/12/ligue-1-tv-deal-broadcast-rights/
-
-**Dani Olmo has been a star of Euro 2024 - which club should trigger his €60m release clause?**\
-`Olmo could make the next move on an interesting career path this summer, but at which club would he fit in best?`\
-https://nytimes.com/athletic/5628946/2024/07/12/dani-olmo-transfer-latest-release-clause/
 
