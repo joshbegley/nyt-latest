@@ -1,5 +1,9 @@
 **Speaking at Trump’s Convention: Former Democrats, a Rancher and Trump Employees**\
 `Officials rolled out a list of “everyday Americans” who would address the Republican convention and highlight key themes such as immigration. The list also includes two employees of Donald Trump’s golf properties.`\
+https://nytimes.com/2024/07/12/us/rnc-attendees.html
+
+**Speaking at Trump’s Convention: Former Democrats, a Rancher and Trump Employees**\
+`Officials rolled out a list of “everyday Americans” who would address the Republican convention and highlight key themes such as immigration. The list also includes two employees of Donald Trump’s golf properties.`\
 https://nytimes.com/live/2024/07/12/us/biden-trump-election/speaking-at-trumps-convention-former-democrats-a-rancher-and-trump-employees
 
 **‘Touch Me, Poke Me, Ask Me Questions,’ Biden Says of Voters Who Doubt Him**\
