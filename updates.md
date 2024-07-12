@@ -1,3 +1,11 @@
+**'We must hope for a miracle': How a failed TV deal has put Ligue 1 in crisis mode**\
+`With just over a month to go until the season starts, Ligue 1 clubs are in limbo, unable to set budgets and nervous for their futures`\
+https://nytimes.com/athletic/5630833/2024/07/12/ligue-1-tv-deal-broadcast-rights/
+
+**Dani Olmo has been a star of Euro 2024 - which club should trigger his €60m release clause?**\
+`Olmo could make the next move on an interesting career path this summer, but at which club would he fit in best?`\
+https://nytimes.com/athletic/5628946/2024/07/12/dani-olmo-transfer-latest-release-clause/
+
 **Friday Briefing**\
 `A solo news conference from President Biden.`\
 https://nytimes.com/2024/07/12/world/europe/biden-conference-gaza-france.html

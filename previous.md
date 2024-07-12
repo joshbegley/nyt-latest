@@ -1,3 +1,11 @@
+**'We must hope for a miracle': How a failed TV deal has put Ligue 1 in crisis mode**\
+`With just over a month to go until the season starts, Ligue 1 clubs are in limbo, unable to set budgets and nervous for their futures`\
+https://nytimes.com/athletic/5630833/2024/07/12/ligue-1-tv-deal-broadcast-rights/
+
+**Dani Olmo has been a star of Euro 2024 - which club should trigger his €60m release clause?**\
+`Olmo could make the next move on an interesting career path this summer, but at which club would he fit in best?`\
+https://nytimes.com/athletic/5628946/2024/07/12/dani-olmo-transfer-latest-release-clause/
+
 **Friday Briefing**\
 `A solo news conference from President Biden.`\
 https://nytimes.com/2024/07/12/world/europe/biden-conference-gaza-france.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/12/style/jennie-thomas-jeff-angell-wedding.html
 **The Psychic Who Predicted My Romantic Future**\
 `For a millennial with financial burdens, would a home have to be a house?`\
 https://nytimes.com/2024/07/12/style/modern-love-psychic-who-predicted-my-romantic-future.html
-
-**‘Basically Inseparable’ From the Start**\
-`Thirty minutes into her first date with Karli Gray, Ellie Smith texted her friends to let them know she was falling in love.`\
-https://nytimes.com/2024/07/12/style/karli-gray-ellie-smith-wedding.html
-
-**Finding Happily Ever After in Their Happy Place**\
-`Joe Gorman and Matt Capbarat felt an instant spark when they met through a mutual friend. It took a harrowing climb of Denali to know this was a forever love.`\
-https://nytimes.com/2024/07/12/style/joseph-gorman-matt-capbarat-wedding.html
 
