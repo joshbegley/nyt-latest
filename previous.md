@@ -1,3 +1,7 @@
+**The problem with the Giants selling at the trade deadline**\
+`The Giants' roster is filled with contract situations that make it difficult for them to hold a traditional fire sale. `\
+https://nytimes.com/athletic/5633695/2024/07/12/sf-giants-trade-deadline-sellers/
+
 **How a Largely Democratic Milwaukee Is Feeling About Welcoming Thousands of Republicans**\
 `Some people voiced indifference or regret that their city was hosting the Republican National Convention. Others welcomed the spotlight.`\
 https://nytimes.com/2024/07/12/us/milwaukee-residents-rnc.html
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/5634073/2024/07/12/river-seine-contamination-bacter
 https://nytimes.com/2024/07/09/opinion/nypd-slogan-aggressive-adams.html
 
 **Yankees call up infield prospect Jorbit Vivas**\
-`The New York Yankees are calling up infield prospect Jorbit Vivas, a team source confirmed to The Athletic.`\
+`In 37 games for Triple-A Scranton/Wilkes-Barre, Vivas posted a 122 wRC+ and .404 on-base percentage.`\
 https://nytimes.com/athletic/5634094/2024/07/12/yankees-prospect-jorbit-vivas-promoted/
 
 **Marathon Oil Agrees to Record Penalty for Alleged Clean Air Act Violations**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/12/business/energy-environment/epa-marathon-oil-clea
 **How News Outlets on the Left and Right Are Covering Kamala Harris**\
 `Some liberal news organizations have started playing up Ms. Harris’s perceived strengths. Conservative ones have stepped up their criticisms of her.`\
 https://nytimes.com/2024/07/12/business/media/news-outlets-kamala-harris.html
-
-**The End of the Affair? Not for Eric Schmidt.**\
-`While Mr. Schmidt was chief executive of Google, he had an extramarital relationship with Marcy Simon, a public relations executive. A decade after they split, things are still messy.`\
-https://nytimes.com/2024/07/12/technology/eric-schmidt-affair.html
 
