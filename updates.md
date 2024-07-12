@@ -1,3 +1,7 @@
+**President Biden’s Public Test**\
+`We explain his high stakes press conference.`\
+https://nytimes.com/2024/07/12/briefing/president-bidens-public-test.html
+
 **Commanders coaches, DBs see optimism forming with revamped secondary**\
 `From helping Emmanuel Forbes reach his full potential to adding Jeremy Chinn, the new staff feels encouraged by the pieces it has in place.`\
 https://nytimes.com/athletic/5629600/2024/07/12/commanders-secondary-emmanuel-forbes/
