@@ -1,3 +1,15 @@
+**What to expect from Tottenham's summer coaching shake-up**\
+`Chris Davies has left to become manager of Birmingham City, with Matt Wells stepping up, and a couple of new arrivals...`\
+https://nytimes.com/athletic/5631010/2024/07/12/tottenhams-coaching-staff-wells-montgomery/
+
+**Biden Uses NATO Summit to Assail Trump on Foreign Policy**\
+`At his news conference, the president also acknowledged a new strategy to disrupt the growing ties between China and Russia but provided no details.`\
+https://nytimes.com/2024/07/12/us/politics/biden-trump-foreign-policy.html
+
+**Ramsdale out, Garcia in? The reshaping of Arsenal's goalkeeping department**\
+`Arsenal may have an established first-choice goalkeeper, but there is lots of movement behind him, overseen by the influential Inaki Cana`\
+https://nytimes.com/athletic/5630909/2024/07/12/ramsdale-out-garcia-in-the-reshaping-of-arsenals-goalkeeping-department/
+
 **Connor Wong isn't an All-Star, but he's played like one for the Red Sox**\
 `Wong has put up All-Star numbers. His .314 BA would be fourth in the majors if he had enough at-bats to qualify.`\
 https://nytimes.com/athletic/5633061/2024/07/12/red-sox-connor-wong-performance/
