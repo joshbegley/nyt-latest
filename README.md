@@ -1,5 +1,5 @@
 **Biden’s News Conference Answered Many Questions. But Not the Big One.**\
-`For once, a presidential Q-and-A was must-see TV. But it didn’t put an end to the summer’s biggest drama.`\
+`For once, a presidential Q. and A. was must-see TV. But it didn’t put an end to the summer’s biggest drama.`\
 https://nytimes.com/2024/07/12/arts/television/biden-news-conference.html
 
 **How Can Europe Reduce Its Military Dependency on the United States?**\
