@@ -1,3 +1,11 @@
+**For Ukraine, an ‘Irreversible’ Path to NATO Clouded by Uncertainty**\
+`Hanging over the alliance’s summit in Washington this week was the shadow of the U.S. presidential election, which added a layer of unpredictability to the war and to the future of the bloc.`\
+https://nytimes.com/2024/07/12/world/europe/nato-ukraine-election-trump.html
+
+**Extreme Heat Puts Delivery Workers at Risk**\
+`Designating a proxy to face the increasing health risks of a sweltering day reeks of classism.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/heat-delivery-workers
+
 **Novak Djokovic reaches Wimbledon final five weeks after knee surgery**\
 `WIMBLEDON — Novak Djokovic set up a Wimbledon rematch with Carlos Alcaraz by beating Lorenzo Musetti, 6-4, 7-6, 6-3 on Centre Court on Friday, concluding his run to the final at the All England Club that started just 25 days after surgery on a torn meniscus in his right knee.`\
 https://nytimes.com/athletic/5634278/2024/07/12/novak-djokovic-wimbledon-final-carlos-alcaraz/

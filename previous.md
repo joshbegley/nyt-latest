@@ -1,3 +1,11 @@
+**For Ukraine, an ‘Irreversible’ Path to NATO Clouded by Uncertainty**\
+`Hanging over the alliance’s summit in Washington this week was the shadow of the U.S. presidential election, which added a layer of unpredictability to the war and to the future of the bloc.`\
+https://nytimes.com/2024/07/12/world/europe/nato-ukraine-election-trump.html
+
+**Extreme Heat Puts Delivery Workers at Risk**\
+`Designating a proxy to face the increasing health risks of a sweltering day reeks of classism.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/heat-delivery-workers
+
 **The resurrection of James Rodriguez: From Colombia's outcast to captain in the Copa America final**\
 `From pariah to superhero, this is how he redeemed himself and could guide his country to glory`\
 https://nytimes.com/athletic/5634156/2024/07/12/james-rodriguez-colombia-copa-america-final-2024/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5610811/2024/07/12/amanda-staveley-to-leave-newcast
 **Should I Come Clean About My Old Sexual and Financial Betrayals?**\
 `The magazine’s Ethicist columnist on the complications of confession.`\
 https://nytimes.com/2024/07/12/magazine/sexual-financial-betrayals-ethics.html
-
-**USWNT's 1999 World Cup jerseys reissued but Briana Scurry's goalkeeper top omitted**\
-`The 1999 USWNT World Cup team has assembled in New York City ahead of this weekend’s 25th anniversary celebration at Red Bull Arena, as the current version of the team squares off against Mexico in one of their two final tune-ups ahead of the Olympics.`\
-https://nytimes.com/athletic/5634260/2024/07/12/uswnt-world-cup-jerseys-briana-scurry/
-
-**Novak Djokovic reaches Wimbledon final five weeks after knee surgery**\
-`WIMBLEDON — Novak Djokovic set up a Wimbledon rematch with Carlos Alcaraz by beating Lorenzo Musetti, 6-4, 7-6, 6-3 on Centre Court on Friday, concluding his run to the final at the All England Club that started just 25 days after surgery on a torn meniscus in his right knee.`\
-https://nytimes.com/athletic/5634278/2024/07/12/novak-djokovic-wimbledon-final-carlos-alcaraz/
 
