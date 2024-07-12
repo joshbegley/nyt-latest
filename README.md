@@ -1,3 +1,7 @@
+**Democrats Fear Safe Blue States Turning Purple as Biden Stays the Course**\
+`Lingering worries about President Biden’s age could make Minnesota, New Hampshire, New Mexico and Virginia competitive, party operatives believe.`\
+https://nytimes.com/2024/07/12/us/politics/democrats-biden-battleground-states.html
+
 **Saudi Arabia Extends Its Embrace of the World of Video Games**\
 `For struggling American video game companies, Saudi Arabia’s investments in the industry have been hard to resist. Not all gamers are happy about it.`\
 https://nytimes.com/2024/07/12/technology/saudi-arabia-video-game-investment.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5633531/2024/07/12/manchester-city-transfers-sergio
 **How Wildfires Get Their Names**\
 `There isn’t much science to it.`\
 https://nytimes.com/2024/07/12/us/wildfire-names.html
-
-**The 100 Best Books of the 21st Century**\
-`To mark the first 25 years of the century, The New York Times Book Review sent a survey to hundreds of literary luminaries, asking them to name the 10 best books published since Jan. 1, 2000. Gilbert Cruz, editor of the Book Review, gives some highlights from the list.`\
-https://nytimes.com/video/books/100000009563890/the-100-best-books-of-the-21st-century.html
 
