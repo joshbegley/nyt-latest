@@ -1,3 +1,7 @@
+**Finland Passes Law to Turn Away Asylum Seekers at Border**\
+`The country last year closed all land crossings with Russia, accusing Moscow of trying to weaponize migration. Russian authorities have called the accusations “unsubstantiated.”`\
+https://nytimes.com/2024/07/12/world/europe/finland-asylum-russia-border.html
+
 **Yankees' 4 biggest concerns heading into crucial Orioles battle**\
 `Three games in Baltimore separate the Yankees from the All-Star break and being able to put their terrible last month behind them.`\
 https://nytimes.com/athletic/5633071/2024/07/12/yankees-orioles-biggest-concerns/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5631859/2024/07/12/spain-finals-dominance-euro-2024
 **Man City Women sign Shimizu from West Ham**\
 `Manchester City Women have completed the signing of full-back Risa Shimizu on a free transfer from West Ham United.`\
 https://nytimes.com/athletic/5631201/2024/07/12/risa-shimizu-manchester-city-transfer/
-
-**Lowetide: 4 late summer free-agent additions the Oilers should consider**\
-`Adding some additional depth in areas that could become a need is wise for the Oilers.`\
-https://nytimes.com/athletic/5631996/2024/07/12/oilers-free-agents-vrana-yamamoto/
 
