@@ -1,3 +1,15 @@
+**The New York Times News Quiz, July 12, 2024**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2024/07/12/briefing/biden-nato-france-election-heat-news-quiz.html
+
+**X's and Mo's: Team USA wasn't perfect vs. Canada, but it did show superior depth**\
+`Joel Embiid, playing for the first time for Team USA, struggled and finished with just five points and five fouls in 13 minutes.`\
+https://nytimes.com/athletic/5631878/2024/07/12/team-usa-canada-depth-olympics/
+
+**For Tigers Jack Flaherty and Carson Kelly, bouts with failure fueled transformative changes**\
+`Jack Flaherty and Carson Kelly have both tasted bits of success and failure. The waves of the game led them to resurgent years in Detroit.`\
+https://nytimes.com/athletic/5632592/2024/07/12/tigers-jack-flaherty-carson-kelly-success/
+
 **Steven Kwan, the Guardians' new approach, and the 'lucky' power hitter**\
 `Kwan may be making a ton of contact, and pulling more fly balls, but no matter what approach, the numbers don't believe the newfound power.`\
 https://nytimes.com/athletic/5632162/2024/07/12/guardians-steven-kwan-home-run-power/
