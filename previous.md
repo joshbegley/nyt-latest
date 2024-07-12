@@ -1,3 +1,7 @@
+**Novak Djokovic reaches Wimbledon final five weeks after knee surgery**\
+`Novak Djokovic set up a Wimbledon rematch with Carlos Alcaraz by beating Lorenzo Musetti, 6-4, 7-6, 6-3 on Centre Court on Friday, concluding his run to the final at the All England Club that started just 25 days after surgery on a torn meniscus in his right knee.`\
+https://nytimes.com/athletic/5634278/2024/07/12/novak-djokovic-wimbledon-final-carlos-alcaraz/
+
 **Phillies release Whit Merrifield: Offseason bench pickup ends as $8 million mistake**\
 `By cutting ties now, the Phillies have a runway to evaluate the rest of the bench ahead of the trade deadline. They recalled Weston Wilson.`\
 https://nytimes.com/athletic/5634233/2024/07/12/phillies-release-whit-merrifield-call-up-weston-wilson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5623275/2024/07/12/jacob-greaves-ipswich-transfer/
 **Do the Democrats Really Think Trump Is an Emergency?**\
 `They haven’t acted like it.`\
 https://nytimes.com/2024/07/12/opinion/democrats-trump-biden-emergency.html
-
-**At ESPYs, Prince Harry Applauded a Critic While Accepting an Award**\
-`A former N.F.L. player’s mother criticized ESPN for giving an award honoring her son to the British royal. In his speech, Harry said he respects her advocacy.`\
-https://nytimes.com/2024/07/12/style/prince-harry-espys-pat-tillman.html
 
