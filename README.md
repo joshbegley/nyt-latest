@@ -1,3 +1,7 @@
+**A Coherent News Conference May Buy Biden Some Time**\
+`His team wants to run out the clock on talk of a replacement. Will other Democrats let that happen?`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-news-conference-campaign
+
 **The Beastie Boys Sue Chili’s Over Use of ‘Sabotage’**\
 `The band said that the restaurant chain had ripped off the song and its music video in advertising videos posted to social media. The group has won similar cases in the past.`\
 https://nytimes.com/2024/07/11/business/beastie-boys-chilis-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/style/jack-schlossberg-vogue-correspondent.html
 **Review: What Makes ‘Oh, Mary!’ One of the Best Summer Comedies in Years**\
 `Cole Escola’s dragtastic White House farce asks the immortal question: Besides that, Mrs. Lincoln, how did you like the play?`\
 https://nytimes.com/2024/07/11/theater/oh-mary-review-cole-escola.html
-
-**Reds' unheralded "pros" Austin Wynns, Santiago Espinal are helping fill the gaps**\
-`“There’s always those role players, off-the-bench players, and you’ve got to take advantage of the opportunity when it’s given," Wynns said.`\
-https://nytimes.com/athletic/5632902/2024/07/11/reds-austin-wynns-santiago-espinal-roles/
 
