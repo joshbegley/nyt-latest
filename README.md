@@ -1,3 +1,11 @@
+**A Leading Environmental Group Calls on Biden to Step Aside**\
+`The Sunrise Movement, expressing concern about the president’s ability to win re-election, said he should “pass the torch to a new nominee.”`\
+https://nytimes.com/2024/07/12/climate/biden-sunrise-movement.html
+
+**Carlos Alcaraz is a Wimbledon finalist - and Spain's Euro 2024 good-luck charm**\
+`Carlos Alcaraz is on the cusp of making tennis history at Wimbledon, as Spain chase the same dream at Euro 2024`\
+https://nytimes.com/athletic/5630953/2024/07/12/carlos-alcaraz-wimbledon-spain-football-european-championship/
+
 **Nepal’s Prime Minister Loses Confidence Vote, Adding to the Turmoil of Monsoon Season**\
 `The latest political upheaval comes as Nepal struggles to cope with deadly disasters like a landslide on Friday that left more than 60 people missing.`\
 https://nytimes.com/2024/07/12/world/asia/nepal-prime-minister-confidence-vote.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/12/arts/music/playlist-katy-perry-zach-bryan-sturgil
 **Colorado Governor Says Debate About Biden’s Candidacy Remains ‘Legitimate’**\
 `Gov. Jared Polis, a Democrat, called for Biden to demonstrate “what will change that will enable him” to win in November.`\
 https://nytimes.com/2024/07/12/us/politics/democrats-colorado-biden-2024-polis.html
-
-**Antitrust Regulator Tells Chains: Back Off Your Franchisees**\
-`After a yearlong inquiry, the Federal Trade Commission warned brands not to gag their small business operators or charge them extra fees.`\
-https://nytimes.com/2024/07/12/business/economy/franchise-ftc-antitrust.html
-
-**Man Utd Women complete permanent transfer of Malard from Lyon**\
-`Manchester United Women have completed the permanent transfer of France international Melvine Malard on a three-year contract from Lyon.`\
-https://nytimes.com/athletic/5634000/2024/07/12/melvine-malard-manchester-united-transfer-news/
 
