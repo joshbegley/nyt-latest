@@ -1,3 +1,7 @@
+**Biden’s News Conference Answered Many Questions. But Not the Big One.**\
+`For once, a presidential Q. and A. was must-see TV. But it didn’t put an end to the summer’s biggest drama.`\
+https://nytimes.com/2024/07/12/arts/television/biden-news-conference.html
+
 **How Can Europe Reduce Its Military Dependency on the United States?**\
 `With Washington looking toward China, and the possibility of another Trump presidency, Europe should do more for its own defense. Here are four key areas to watch.`\
 https://nytimes.com/2024/07/12/world/europe/nato-europe-military-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5633071/2024/07/12/yankees-orioles-biggest-concerns
 **On Team USA, Kevin Durant is a mentor for Anthony Edwards — like Kobe once was for him**\
 `In 2012, a young Kevin Durant got a chance to play with his idol, Kobe Bryant, in the Olympics. Now Durant is the idol for Anthony Edwards.`\
 https://nytimes.com/athletic/5632861/2024/07/12/olympics-kevin-durant-anthony-edwards-kobe-bryant-mentor/
-
-**Five players who caught the eye at the 2024 Copa America**\
-`Thom Harris picks out five players that have enjoyed a breakthrough summer at the Copa America `\
-https://nytimes.com/athletic/5630923/2024/07/12/copa-america-2024-breakout-stars/
 
