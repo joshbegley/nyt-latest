@@ -1,3 +1,7 @@
+**Unscripted and Unbowed, Biden Seeks to Overcome Missteps with Policy Talk**\
+`The challenge for President Biden after last month’s debate debacle is that every public appearance between now and November will be scrutinized for evidence of infirmity.`\
+https://nytimes.com/2024/07/11/us/politics/biden-nato-democrats.html
+
 **Five Takeaways From Biden’s News Conference**\
 `In a nearly hourlong news conference, the president defended his decision to stay in the race amid questions about his age and mental acuity, but also showed a command of foreign policy.`\
 https://nytimes.com/2024/07/11/us/politics/biden-news-conference-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/us/politics/biden-news-conference-reaction.html
 **What Connects Money to Everything**\
 `Malaika Handa’s puzzle is lively and satisfying.`\
 https://nytimes.com/2024/07/11/crosswords/daily-puzzle-2024-07-12.html
-
-**Cubs' Cody Bellinger’s broken middle finger might take him out of trade deadline discussions**\
-`Trading Cody Bellinger was never going to be an easy decision. It now might be virtually impossible.`\
-https://nytimes.com/athletic/5632993/2024/07/11/cubs-cody-bellinger-finger-injury-trade-deadline/
 
