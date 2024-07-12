@@ -1,3 +1,15 @@
+**How a Largely Democratic Milwaukee Is Feeling About Welcoming Thousands of Republicans**\
+`Some people voiced indifference or regret that their city was hosting the Republican National Convention. Others welcomed the spotlight.`\
+https://nytimes.com/2024/07/12/us/milwaukee-residents-rnc.html
+
+**Ipswich complete signing of Jacob Greaves from Hull**\
+`Ipswich Town have completed the signing of defender Jacob Greaves from Hull City.`\
+https://nytimes.com/athletic/5623275/2024/07/12/jacob-greaves-ipswich-transfer/
+
+**Do the Democrats Really Think Trump Is an Emergency?**\
+`They haven’t acted like it.`\
+https://nytimes.com/2024/07/12/opinion/democrats-trump-biden-emergency.html
+
 **At ESPYs, Prince Harry Applauded a Critic While Accepting an Award**\
 `A former N.F.L. player’s mother criticized ESPN for giving an award honoring her son to the British royal. In his speech, Harry said he respects her advocacy.`\
 https://nytimes.com/2024/07/12/style/prince-harry-espys-pat-tillman.html
@@ -25,17 +37,4 @@ https://nytimes.com/2024/07/12/business/media/news-outlets-kamala-harris.html
 **The End of the Affair? Not for Eric Schmidt.**\
 `While Mr. Schmidt was chief executive of Google, he had an extramarital relationship with Marcy Simon, a public relations executive. A decade after they split, things are still messy.`\
 https://nytimes.com/2024/07/12/technology/eric-schmidt-affair.html
-
-**Alec Baldwin’s Trial Pauses as Unexamined Rounds Are Brought Into Court**\
-`The actor’s lawyers have asked the judge to dismiss the case over the state’s failure to disclose evidence that could help shed light on how live rounds reached the “Rust” film set.`\
-https://nytimes.com/2024/07/12/arts/rust-trial-pause-alec-baldwin-shooting.html
-
-**The Best of Late Night This Week**\
-`The hosts returned from the holiday break to a glut of news, including President Biden doubling down on his decision to seek re-election despite concerns about his health and George Clooney calling for Biden to drop out.`\
-https://nytimes.com/interactive/2024/07/12/arts/television/best-of-late-night-biden-clooney.html
-
-**Carlos Alcaraz beats Daniil Medvedev to reach second Wimbledon final**\
-`Follow live coverage of Wimbledon 2024 here
-Carlos Alcaraz reached his second consecutive Wimbledon final, after beating Daniil Medvedev 6-7, 6-3, 6-4, 6-4 on Centre Court on Friday.`\
-https://nytimes.com/athletic/5633754/2024/07/12/carlos-alcaraz-daniil-medvedev-wimbledon/
 
