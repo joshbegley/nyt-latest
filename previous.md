@@ -1,3 +1,7 @@
+**Director Who Resigned From British Museum in Scandal Has a New Job**\
+`Hartwig Fischer, a German art historian, will be the director of a new museum of world cultures in Saudi Arabia.`\
+https://nytimes.com/2024/07/12/arts/design/hartwig-fischer-saudi-arabia.html
+
 **High School Collapses in Nigeria, Killing Several Students**\
 `An unknown number of people were trapped in the rubble of the building in Jos, a city of one million residents in the central part of the country.`\
 https://nytimes.com/2024/07/12/world/africa/nigeria-school-collapse.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/12/business/95-million-synapse-bankruptcy-fintech-fd
 **Picking the Copa America best XI: Does Lionel Messi make it?**\
 `Our writers select their best XIs from Copa America`\
 https://nytimes.com/athletic/5631995/2024/07/12/copa-america-messi-best-team-rodriguez/
-
-**USWNT’s Catarina Macario to miss Olympic Games with knee injury**\
-`USWNT forward Catarina Macario will miss this summer&#8217;s Olympics Games with a knee injury.`\
-https://nytimes.com/athletic/5633829/2024/07/12/catarina-macario-uswnt-olympics-knee-injury/
 
