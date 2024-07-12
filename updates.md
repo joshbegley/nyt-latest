@@ -1,3 +1,7 @@
+**As the Tour de France Climbs Higher, It’s a Two-Man Race**\
+`Tadej Pogacar and Jonas Vingegaard, who have split the past four Tour de France wins, are set for a duel in the mountains.`\
+https://nytimes.com/2024/07/12/sports/cycling/tour-de-france-pogacar-vingegaard.html
+
 **The New York Times News Quiz, July 12, 2024**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2024/07/12/briefing/biden-nato-france-election-heat-news-quiz.html

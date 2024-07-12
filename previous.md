@@ -1,3 +1,7 @@
+**As the Tour de France Climbs Higher, It’s a Two-Man Race**\
+`Tadej Pogacar and Jonas Vingegaard, who have split the past four Tour de France wins, are set for a duel in the mountains.`\
+https://nytimes.com/2024/07/12/sports/cycling/tour-de-france-pogacar-vingegaard.html
+
 **The New York Times News Quiz, July 12, 2024**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2024/07/12/briefing/biden-nato-france-election-heat-news-quiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/12/books/review/new-paperbacks-siddiqi.h
 **John Roberts Makes His Bid for Infamy**\
 `The chief justice and his allies have rewritten the Constitution to make it say what they want it to say.`\
 https://nytimes.com/2024/07/12/opinion/roberts-supreme-court-immunity-taney.html
-
-**U.S. Heat Wave Stretches Into Another Day, and Starts to Move East**\
-`The extreme heat that has lingered over the West for more than a week will push into the Midwest and Northeast by early next week, forecasters said.`\
-https://nytimes.com/2024/07/12/us/us-heat-wave-weather-forecast.html
 
