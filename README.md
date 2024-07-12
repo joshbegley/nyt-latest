@@ -1,3 +1,7 @@
+**Olympic softball's divided experience: What playing in OKC instead of L.A. means for 2028**\
+`When softball returns to the Olympics in 2028, the experience will differ from most other Olympics with games in OKC instead of Los Angeles.`\
+https://nytimes.com/athletic/5633323/2024/07/12/olympics-softball-oklahoma-city-los-angeles-2028/
+
 **AT&T Says Hackers Stole Data of Millions of Customers**\
 `The breach affected “nearly all” AT&T customers who used the company’s services between May and October 2022. The stolen data does not include content of calls and texts, the company said.`\
 https://nytimes.com/2024/07/12/business/att-data-breach.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5560534/2024/07/12/san-francisco-49ers-linebackers-
 **England vs Spain dissected: Will Watkins start? Is Foden back? Is football coming home?**\
 `Should Southgate make changes? How can his team upset the odds again? And how can Spain be beaten?`\
 https://nytimes.com/athletic/5631072/2024/07/12/england-euro-2024-final-team-predictions/
-
-**The Pulse: The 400-plus job changes thanks to Nick Saban**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5632355/2024/07/12/nick-saban-job-changes-the-pulse/
 
