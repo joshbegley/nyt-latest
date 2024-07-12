@@ -1,3 +1,11 @@
+**U.S. Soccer honors the World Cup winners of 1999 whose struggle paved the way for equal pay**\
+`The World Cup winners were inspired by Billie Jean King to fight for improved pay and working conditions - a struggle they would win`\
+https://nytimes.com/athletic/5634492/2024/07/12/uswnt-1999-equal-pay-honored/
+
+**Wimbledon day 12: A women's doubles streak gets snapped, Medvedev calls for tennis VAR**\
+`On men's semifinal day, there were more calls for VAR in tennis, and a women's doubles streak got snapped`\
+https://nytimes.com/athletic/5633768/2024/07/12/wimbledon-recap-hsieh-doubles-streak-medvedev-default/
+
 **Are You an AT&T Customer? Here’s What to Know About the Data Breach**\
 `Nearly all AT&T customers were affected by a recent cyberattack.`\
 https://nytimes.com/2024/07/12/us/phone-data-breach.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/12/podcasts/culture-desk-summer-beach-day-guide.html
 **A Gaza City Neighborhood Is Left in Ruins After Israeli Troops Withdraw**\
 `Intense fighting between soldiers and Hamas militants has left parts of the city uninhabitable, say residents who returned.`\
 https://nytimes.com/2024/07/12/world/middleeast/gaza-city-shajaiya-israel-hamas.html
-
-**Pistons wing Ron Holland Q&A: On J.B. Bickerstaff, cooking and rookie expectations**\
-`Just after Holland's first NBA Summer League practice, he spoke to The Athletic on an array of topics, including his favorite dish to make.`\
-https://nytimes.com/athletic/5634456/2024/07/12/pistons-rookie-ron-holland-nba-summer-league/
-
-**118 member states of the United Nations pledge support for UNRWA.**\
-`By Anjana Sankar`\
-https://nytimes.com/live/2024/07/12/world/israel-gaza-war-hamas/118-member-states-of-the-united-nations-pledge-support-for-unrwa
 
