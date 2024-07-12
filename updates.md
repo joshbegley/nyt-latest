@@ -1,3 +1,7 @@
+**How will Amario Cozier-Duberry fit in at Brighton?**\
+`Brighton convinced the 19-year-old winger to join them after his departure from Arsenal but where will he fit in?`\
+https://nytimes.com/athletic/5623785/2024/07/12/amario-cozier-duberry-brighton-arsenal/
+
 **West Ham's striker hunt - the transfer business they must get right this summer**\
 `West Ham putting their striker recruitment issues to bed this summer would provide Julen Loptegui with a platform for success`\
 https://nytimes.com/athletic/5630996/2024/07/12/west-ham-striker-transfer-ings-antonio/
