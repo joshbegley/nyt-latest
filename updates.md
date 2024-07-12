@@ -1,3 +1,7 @@
+**Commanders coaches, DBs see optimism forming with revamped secondary**\
+`From helping Emmanuel Forbes reach his full potential to adding Jeremy Chinn, the new staff feels encouraged by the pieces it has in place.`\
+https://nytimes.com/athletic/5629600/2024/07/12/commanders-secondary-emmanuel-forbes/
+
 **Twins' scout who initially 'missed' on Brooks Lee is who they trust when drafting hitters**\
 `Scout Tim O’Neil is considered the club's “go-to guy” when it comes to drafting hitters. His initial "miss" on Lee had a happy ending.`\
 https://nytimes.com/athletic/5632460/2024/07/12/twins-mlb-draft-brooks-lee-scout-tim-oneil/
