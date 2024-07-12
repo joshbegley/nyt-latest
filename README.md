@@ -1,3 +1,7 @@
+**Court Grants Party of Imprisoned Former Leader More Seats in Pakistan’s Parliament**\
+`A ruling by Pakistan’s high court strips the governing coalition of its two-thirds majority, and thrusts the party of Imran Khan back onto the political main stage.`\
+https://nytimes.com/2024/07/12/world/asia/pakistan-parliament-khan.html
+
 **Jeffries Meets Privately With Biden to Share Democrats’ Concerns**\
 `The House Democratic leader shared few details about the meeting, and he did not say whether he told the president to end his re-election campaign.`\
 https://nytimes.com/2024/07/12/us/politics/hakeem-jeffries-biden-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5633990/2024/07/12/chelsea-transfers-renato-veiga-b
 **Paul Skenes named All-Star Game starting pitcher**\
 `Skenes will be the fifth rookie to start an All-Star Game, joining Hideo Nomo, Fernando Valenzuela, Mark Fidrych and Dave Stenhouse.`\
 https://nytimes.com/athletic/5633934/2024/07/12/pirates-paul-skenes-all-star-game-starter/
-
-**Are Southgate's England lucky? What FIFA's world rankings tell us about their tournament runs**\
-`According to FIFA's world rankings, England have enjoyed one of their easiest tournament runs at Euro 2024. What else do those ratings say?`\
-https://nytimes.com/athletic/5631308/2024/07/12/england-tournaments-euro-2024-difficulty-rankings/
 

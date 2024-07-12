@@ -1,3 +1,7 @@
+**Jeffries Meets Privately With Biden to Share Democrats’ Concerns**\
+`The House Democratic leader shared few details about the meeting, and he did not say whether he told the president to end his re-election campaign.`\
+https://nytimes.com/2024/07/12/us/politics/hakeem-jeffries-biden-democrats.html
+
 **Residents returning to a Gaza City neighborhood describe a swath of destruction.**\
 `By Hiba Yazbek`\
 https://nytimes.com/live/2024/07/12/world/israel-gaza-war-hamas/residents-returning-to-a-gaza-city-neighborhood-describe-a-swath-of-destruction
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5633934/2024/07/12/pirates-paul-skenes-all-star-gam
 **Are Southgate's England lucky? What FIFA's world rankings tell us about their tournament runs**\
 `According to FIFA's world rankings, England have enjoyed one of their easiest tournament runs at Euro 2024. What else do those ratings say?`\
 https://nytimes.com/athletic/5631308/2024/07/12/england-tournaments-euro-2024-difficulty-rankings/
-
-**Director Who Resigned From British Museum in Scandal Has a New Job**\
-`Hartwig Fischer, a German art historian, will be the director of a new museum of world cultures in Saudi Arabia.`\
-https://nytimes.com/2024/07/12/arts/design/hartwig-fischer-saudi-arabia.html
 

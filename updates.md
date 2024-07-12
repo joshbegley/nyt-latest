@@ -1,3 +1,7 @@
+**Jeffries Meets Privately With Biden to Share Democrats’ Concerns**\
+`The House Democratic leader shared few details about the meeting, and he did not say whether he told the president to end his re-election campaign.`\
+https://nytimes.com/2024/07/12/us/politics/hakeem-jeffries-biden-democrats.html
+
 **Katy Perry’s ‘World’ of Mixed Signals, and 11 More New Songs**\
 `Hear tracks by Bright Eyes, Johnny Blue Skies (a.k.a. Sturgill Simpson), Magdalena Bay and others.`\
 https://nytimes.com/2024/07/12/arts/music/playlist-katy-perry-zach-bryan-sturgill-simpson.html
