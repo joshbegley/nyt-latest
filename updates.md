@@ -1,3 +1,7 @@
+**As Biden Points to His Past, Supporters Are More Worried About His Future**\
+`For many of the president’s allies, it’s not the last three and a half years that concern them. It’s the next four.`\
+https://nytimes.com/2024/07/12/us/politics/biden-record-2024-election.html
+
 **Marcelo Bielsa hits out at Copa America organizers, says it 'has not been professional'**\
 `In an emotional press conference, Bielsa attacked the pitch and security conditions at the tournament, and more`\
 https://nytimes.com/athletic/5634440/2024/07/12/marcelo-bielsa-copa-america-news/
