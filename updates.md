@@ -1,3 +1,7 @@
+**AT&T Says Hackers Stole Data of Millions of Customers**\
+`The breach affected “nearly all” AT&T customers who used the company’s services between May and October 2022. The stolen data does not include content of calls and texts, the company said.`\
+https://nytimes.com/2024/07/12/business/att-data-breach.html
+
 **Spanish teams and their remarkable record in finals: Since 2001, they just don't lose them**\
 `Luis de la Fuente and his squad will hope to make it 23 finals unbeaten for Spanish teams. History, if nothing else, says they will succeed`\
 https://nytimes.com/athletic/5631859/2024/07/12/spain-finals-dominance-euro-2024/
