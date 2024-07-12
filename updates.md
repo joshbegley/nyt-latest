@@ -1,3 +1,7 @@
+**A Coherent News Conference May Buy Biden Some Time**\
+`His team wants to run out the clock on talk of a replacement. Will other Democrats let that happen?`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-news-conference-campaign
+
 **The Beastie Boys Sue Chili’s Over Use of ‘Sabotage’**\
 `The band said that the restaurant chain had ripped off the song and its music video in advertising videos posted to social media. The group has won similar cases in the past.`\
 https://nytimes.com/2024/07/11/business/beastie-boys-chilis-lawsuit.html
