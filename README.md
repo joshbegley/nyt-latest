@@ -1,3 +1,7 @@
+**Monte Kiffin, legendary NFL DC, dies at 84**\
+`Kiffin is celebrated for the 13 years he presided over the Tampa Bay Bucs defense and dominated with a scheme called the Tampa 2.`\
+https://nytimes.com/athletic/5632891/2024/07/11/monte-kiffin-coach-ole-miss-tampa-2/
+
 **Blue Jays' Kevin Gausman continues tweaks in win, but Bo Bichette injury concern looms**\
 `Bichette is officially dealing with a right calf fascia strain. The Blue Jays have yet to determine whether he will require an IL stint.`\
 https://nytimes.com/athletic/5632864/2024/07/11/blue-jays-kevin-gausman-bo-bichette/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009567490/biden-zelensky-putin.html
 **10 Great Shelley Duvall Performances to Stream**\
 `In “The Shining,” “Popeye” and more, her unusual presence jumps off the screen. That’s true even in small roles in “Annie Hall” and “Time Bandits.”`\
 https://nytimes.com/2024/07/11/movies/shelley-duvall-movies-streaming.html
-
-**A Hurricane Divide in Houston: Who Has a Generator?**\
-`In the prolonged power outage after Hurricane Beryl, many well-to-do neighborhoods are humming with generators. Other residents are struggling to afford — or even find — one.`\
-https://nytimes.com/2024/07/11/us/houston-beryl-power-generators.html
 
