@@ -1,3 +1,7 @@
+**‘No Poll Says That’: Biden Digs In as Democratic Fears Deepen**\
+`The president put on a competent showing at his pressure cooker of a news conference, but it remained in doubt if he could stem the bleeding of Democratic support.`\
+https://nytimes.com/2024/07/11/us/politics/biden-democrats.html
+
 **Fact-Checking Biden’s News Conference at the NATO Summit**\
 `The president omitted context or exaggerated in making claims about polling, migration at the border and attacks on his opponent.`\
 https://nytimes.com/2024/07/11/us/biden-fact-check-news-conference.html

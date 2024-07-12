@@ -1,3 +1,7 @@
+**‘No Poll Says That’: Biden Digs In as Democratic Fears Deepen**\
+`The president put on a competent showing at his pressure cooker of a news conference, but it remained in doubt if he could stem the bleeding of Democratic support.`\
+https://nytimes.com/2024/07/11/us/politics/biden-democrats.html
+
 **Fact-Checking Biden’s News Conference at the NATO Summit**\
 `The president omitted context or exaggerated in making claims about polling, migration at the border and attacks on his opponent.`\
 https://nytimes.com/2024/07/11/us/biden-fact-check-news-conference.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5632993/2024/07/11/cubs-cody-bellinger-finger-injur
 **The Strongest Case for Biden Is His Resilience in the Face of the Onslaught**\
 `Forcing the president out of the race is an invalidation of the democratic process.`\
 https://nytimes.com/2024/07/11/opinion/biden-stay-in-race.html
-
-**Biden Mixes Up Trump and Harris**\
-`In an attempt to defend Vice President Kamala Harris, President Biden fumbled his answer to a reporter’s question and referred to “Vice President Trump” instead of Vice President Harris.`\
-https://nytimes.com/video/us/politics/100000009567642/biden-harris-trump.html
 
