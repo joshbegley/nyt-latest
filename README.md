@@ -1,3 +1,19 @@
+**Evans signs new Manchester United contract**\
+`Jonny Evans has signed a new one-year contract with Manchester United.`\
+https://nytimes.com/athletic/5633730/2024/07/12/jonny-evans-manchester-united-contract-new/
+
+**Bucky Dent's home run gets comic treatment, but autograph and profanity cost extra**\
+`New artwork features Dent's home run against the Red Sox in 1978 and the unprintable nickname he earned as a result.`\
+https://nytimes.com/athletic/5633162/2024/07/12/yankees-bucky-dent-red-sox-comics/
+
+**A Bleak View of Soccer’s Future Misses the Full Picture**\
+`Uruguay Coach Marcelo Bielsa lamented that the sport was surrendering its appeal in service to its business. He’s right. And also wrong.`\
+https://nytimes.com/2024/07/12/world/europe/euro-2024-copa-america-bielsa.html
+
+**Southampton's Gomes Rodriguez, 16, close to signing for Lyon**\
+`Southampton forward Alejandro Gomes Rodriguez is close to signing for Lyon.`\
+https://nytimes.com/athletic/5633731/2024/07/12/alejandro-gomes-rodriguez-lyon-southampton/
+
 **Thousands of Prisoners in U.K. to Be Freed Early to Ease Overcrowding**\
 `The Labour government, which took power this past week, said it had been forced into the move because previous Conservative administrations had let the issue fester.`\
 https://nytimes.com/2024/07/12/world/europe/uk-prisons-early-release.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/07/12/technology/saudi-arabia-video-game-investment.htm
 **Wimbledon: Eight years and eight winners - why is the women's tournament hard to call?**\
 `Wimbledon will have its eighth different women's winner in eight years. Is it the Grand Slam of chaos, or just good tennis?`\
 https://nytimes.com/athletic/5632302/2024/07/12/wimbledon-womens-singles-final-winners/
-
-**Ndidi signs new Leicester contract**\
-`Wilfred Ndidi has signed a new Leicester City contract.`\
-https://nytimes.com/athletic/5630884/2024/07/12/wilfred-ndidi-leicester-contract/
-
-**Biden’s News Conference Answered Many Questions. But Not the Big One.**\
-`For once, a presidential Q. and A. was must-see TV. But it didn’t put an end to the summer’s biggest drama.`\
-https://nytimes.com/2024/07/12/arts/television/biden-news-conference.html
-
-**How Can Europe Reduce Its Military Dependency on the United States?**\
-`With Washington looking toward China, and the possibility of another Trump presidency, Europe should do more for its own defense. Here are four key areas to watch.`\
-https://nytimes.com/2024/07/12/world/europe/nato-europe-military-russia.html
-
-**German court finds El Ghazi unfairly sacked by Mainz over Israel-Gaza war posts**\
-`A German court has found that Anwar El Ghazi was unfairly dismissed by Bundesliga club Mainz 05 after posting on social media about the Israel-Gaza war.`\
-https://nytimes.com/athletic/5633470/2024/07/12/german-court-finds-anwar-el-ghazi-unfairly-sacked-by-mainz-over-israel-gaza-war-posts/
 
