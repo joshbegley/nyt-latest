@@ -1,3 +1,7 @@
+**Marcelo Bielsa hits out at Copa America organizers, says it 'has not been professional'**\
+`In an emotional press conference, Bielsa attacked the pitch and security conditions at the tournament, and more`\
+https://nytimes.com/athletic/5634440/2024/07/12/marcelo-bielsa-copa-america-news/
+
 **Brighton complete transfer of IFK Gothenburg teenager Yalcouye**\
 `Brighton have completed a deal to sign Malick Yalcouye from IFK Gothenburg.`\
 https://nytimes.com/athletic/5624433/2024/07/12/brighton-transfers-malick-yalcouye/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/12/world/europe/nato-ukraine-election-trump.html
 **Extreme Heat Puts Delivery Workers at Risk**\
 `Designating a proxy to face the increasing health risks of a sweltering day reeks of classism.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/heat-delivery-workers
-
-**The resurrection of James Rodriguez: From Colombia's outcast to captain in the Copa America final**\
-`From pariah to superhero, this is how he redeemed himself and could guide his country to glory`\
-https://nytimes.com/athletic/5634156/2024/07/12/james-rodriguez-colombia-copa-america-final-2024/
 
