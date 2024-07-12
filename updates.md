@@ -1,3 +1,11 @@
+**Yankees' 4 biggest concerns heading into crucial Orioles battle**\
+`Three games in Baltimore separate the Yankees from the All-Star break and being able to put their terrible last month behind them.`\
+https://nytimes.com/athletic/5633071/2024/07/12/yankees-orioles-biggest-concerns/
+
+**On Team USA, Kevin Durant is a mentor for Anthony Edwards — like Kobe once was for him**\
+`In 2012, a young Kevin Durant got a chance to play with his idol, Kobe Bryant, in the Olympics. Now Durant is the idol for Anthony Edwards.`\
+https://nytimes.com/athletic/5632861/2024/07/12/olympics-kevin-durant-anthony-edwards-kobe-bryant-mentor/
+
 **Five players who caught the eye at the 2024 Copa America**\
 `Thom Harris picks out five players that have enjoyed a breakthrough summer at the Copa America `\
 https://nytimes.com/athletic/5630923/2024/07/12/copa-america-2024-breakout-stars/
