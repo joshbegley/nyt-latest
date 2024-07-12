@@ -1,3 +1,7 @@
+**Cubs' Cody Bellinger’s broken middle finger might take him out of trade deadline discussions**\
+`Trading Cody Bellinger was never going to be an easy decision. It now might be virtually impossible.`\
+https://nytimes.com/athletic/5632993/2024/07/11/cubs-cody-bellinger-finger-injury-trade-deadline/
+
 **Jack Schlossberg Is Named a Political Correspondent for Vogue**\
 `Mr. Schlossberg, 31, the only grandson of President John F. Kennedy, has courted attention with outlandish TikTok videos, many of them political.`\
 https://nytimes.com/2024/07/11/style/jack-schlossberg-vogue-correspondent.html

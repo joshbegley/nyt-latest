@@ -1,3 +1,7 @@
+**Cubs' Cody Bellinger’s broken middle finger might take him out of trade deadline discussions**\
+`Trading Cody Bellinger was never going to be an easy decision. It now might be virtually impossible.`\
+https://nytimes.com/athletic/5632993/2024/07/11/cubs-cody-bellinger-finger-injury-trade-deadline/
+
 **The Strongest Case for Biden Is His Resilience in the Face of the Onslaught**\
 `Forcing the president out of the race is an invalidation of the democratic process.`\
 https://nytimes.com/2024/07/11/opinion/biden-stay-in-race.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5632864/2024/07/11/blue-jays-kevin-gausman-bo-biche
 **Biden Mixes Up Kamala Harris and Donald Trump After Doing the Same With Zelensky and Putin**\
 `The gaffe referring to his own running mate as “Vice President Trump” during a closely watched news conference came shortly after he introduced the president of Ukraine as “President Putin.”`\
 https://nytimes.com/2024/07/11/us/politics/biden-harris-trump-putin-zelensky.html
-
-**Investigators Find No Evidence of Sexual Harassment in Seton Hall Case**\
-`The university’s former president sued the school, saying a former board chairman harassed his wife. A law firm the university hired said no witnesses substantiated the claims.`\
-https://nytimes.com/2024/07/11/nyregion/seton-hall-sexual-harassment-case.html
 
