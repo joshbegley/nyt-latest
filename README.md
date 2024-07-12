@@ -1,3 +1,7 @@
+**President Biden’s Public Test**\
+`We explain his high stakes press conference.`\
+https://nytimes.com/2024/07/12/briefing/president-bidens-public-test.html
+
 **Commanders coaches, DBs see optimism forming with revamped secondary**\
 `From helping Emmanuel Forbes reach his full potential to adding Jeremy Chinn, the new staff feels encouraged by the pieces it has in place.`\
 https://nytimes.com/athletic/5629600/2024/07/12/commanders-secondary-emmanuel-forbes/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/12/crosswords/wordle-review-1120.html
 **The Connections Companion No. 398, July 13, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/12/crosswords/connections-companion-398.html
-
-**After a high-profile news conference, Biden heads to Michigan. Here’s the latest.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/07/12/us/biden-trump-election/after-a-high-profile-news-conference-biden-heads-to-michigan-heres-the-latest
 
