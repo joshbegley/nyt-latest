@@ -1,3 +1,15 @@
+**How to Find a Good, Well-Staffed Nursing Home**\
+`Here are the telltale signs to look for in nursing homes to avoid, and resources that can point to better places.`\
+https://nytimes.com/2024/07/12/health/nursing-homes-guide-staff.html
+
+**Methodology for Analysis of Nursing Home Staffing**\
+`More than a million public records were used to assess whether nursing homes were meeting state staffing minimums.`\
+https://nytimes.com/2024/07/12/health/nursing-home-analysis-methodology.html
+
+**A Wedding Puts India’s Gilded Age on Lavish Display**\
+`Many Indians cheer the rise of moguls like Mukesh Ambani, whose son’s wedding has become a global spectacle. To them, India’s poverty is predictable, but such opulence is not.`\
+https://nytimes.com/2024/07/12/world/asia/a-wedding-puts-indias-gilded-age-on-lavish-display.html
+
 **Does Joe Biden Realize How Angry These Michigan Voters Are?**\
 `There are over 200,000 registered voters who are Muslim in Michigan, and they could cost Biden the election.`\
 https://nytimes.com/video/opinion/100000009565908/biden-voters-dearborn-michigan.html
