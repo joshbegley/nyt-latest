@@ -1,3 +1,7 @@
+**Donors to Pro-Biden Super PAC Are Said to Withhold Roughly $90 Million**\
+`The decision to withhold such enormous sums of money is one of the most concrete examples of the fallout from President Biden’s poor debate performance at the end of June.`\
+https://nytimes.com/2024/07/12/us/politics/biden-donors-money.html
+
 **USWNT’s Catarina Macario to miss Olympic Games with knee injury**\
 `USWNT forward Catarina Macario will miss this summer&#8217;s Olympics Games with a knee injury.`\
 https://nytimes.com/athletic/5633829/2024/07/12/catarina-macario-uswnt-olympics-knee-injury/
