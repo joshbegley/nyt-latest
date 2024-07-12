@@ -18,7 +18,7 @@ https://nytimes.com/athletic/5632891/2024/07/11/monte-kiffin-coach-ole-miss-tamp
 `Bichette is officially dealing with a right calf fascia strain. The Blue Jays have yet to determine whether he will require an IL stint.`\
 https://nytimes.com/athletic/5632864/2024/07/11/blue-jays-kevin-gausman-bo-bichette/
 
-**Biden Mixes Up Kamala Harris and Donald Trump at News Conference**\
+**Biden Mixes Up Kamala Harris and Donald Trump After Doing the Same With Zelensky and Putin**\
 `The gaffe referring to his own running mate as “Vice President Trump” during a closely watched news conference came shortly after he introduced the president of Ukraine as “President Putin.”`\
 https://nytimes.com/2024/07/11/us/politics/biden-harris-trump-putin-zelensky.html
 
