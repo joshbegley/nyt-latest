@@ -1,3 +1,7 @@
+**Dodgers swept by Phillies as their prolonged, mistake-filled rut continues**\
+`Manager Dave Roberts after the Dodgers were no match for Phillies: “They're clearly a better team than we are right now."`\
+https://nytimes.com/athletic/5633008/2024/07/11/dodgers-phillies-sweep/
+
 **A Coherent News Conference May Buy Biden Some Time**\
 `His team wants to run out the clock on talk of a replacement. Will other Democrats let that happen?`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-news-conference-campaign
