@@ -7,7 +7,7 @@ https://nytimes.com/2024/07/11/opinion/biden-stay-in-race.html
 https://nytimes.com/video/us/politics/100000009567642/biden-harris-trump.html
 
 **Jack Schlossberg Is Named a Political Correspondent for Vogue**\
-`Mr. Schlossberg, 31, the only grandson of President John F. Kennedy, has recently courted attention with occasionally outlandish TikTok videos, many of them political.`\
+`Mr. Schlossberg, 31, the only grandson of President John F. Kennedy, has courted attention with outlandish TikTok videos, many of them political.`\
 https://nytimes.com/2024/07/11/style/jack-schlossberg-vogue-correspondent.html
 
 **Review: What Makes ‘Oh, Mary!’ One of the Best Summer Comedies in Years**\

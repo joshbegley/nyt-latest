@@ -1,4 +1,8 @@
 **The Strongest Case for Biden Is His Resilience in the Face of the Onslaught**\
+`Forcing the president out of the race is an invalidation of the democratic process.`\
+https://nytimes.com/2024/07/11/opinion/biden-stay-in-race.html
+
+**The Strongest Case for Biden Is His Resilience in the Face of the Onslaught**\
 `Forcing Biden out is an invalidation of the Democratic process.`\
 https://nytimes.com/2024/07/11/opinion/biden-stay-in-race.html
 
