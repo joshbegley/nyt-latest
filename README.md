@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5634073/2024/07/12/river-seine-contamination-bacter
 https://nytimes.com/2024/07/09/opinion/nypd-slogan-aggressive-adams.html
 
 **Yankees call up infield prospect Jorbit Vivas**\
-`The New York Yankees are calling up infield prospect Jorbit Vivas, a team source confirmed to The Athletic.`\
+`In 37 games for Triple-A Scranton/Wilkes-Barre, Vivas posted a 122 wRC+ and .404 on-base percentage.`\
 https://nytimes.com/athletic/5634094/2024/07/12/yankees-prospect-jorbit-vivas-promoted/
 
 **Marathon Oil Agrees to Record Penalty for Alleged Clean Air Act Violations**\
