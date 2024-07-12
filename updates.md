@@ -1,3 +1,7 @@
+**In an Outback Town, Praising the Lord and Improvising the Details**\
+`For some churches, it’s all about music. Others translate scripture into Indigenous languages or enlist local artists to depict Bible stories in their own way.`\
+https://nytimes.com/2024/07/12/world/australia/christianity-outback.html
+
 **How will Amario Cozier-Duberry fit in at Brighton?**\
 `Brighton convinced the 19-year-old winger to join them after his departure from Arsenal but where will he fit in?`\
 https://nytimes.com/athletic/5623785/2024/07/12/amario-cozier-duberry-brighton-arsenal/

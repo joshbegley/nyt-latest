@@ -1,3 +1,7 @@
+**In an Outback Town, Praising the Lord and Improvising the Details**\
+`For some churches, it’s all about music. Others translate scripture into Indigenous languages or enlist local artists to depict Bible stories in their own way.`\
+https://nytimes.com/2024/07/12/world/australia/christianity-outback.html
+
 **How will Amario Cozier-Duberry fit in at Brighton?**\
 `Brighton convinced the 19-year-old winger to join them after his departure from Arsenal but where will he fit in?`\
 https://nytimes.com/athletic/5623785/2024/07/12/amario-cozier-duberry-brighton-arsenal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5624041/2024/07/12/cristiano-ronaldo-united-states-
 **Spain vs England: Where the Euro 2024 final could be won and lost**\
 `How can England stop Spain's outstanding wingers? What is De La Fuente's team's weakness? And why Spain's midfield is more than just Rodri`\
 https://nytimes.com/athletic/5631192/2024/07/12/euro-2024-final-spain-england-preview/
-
-**'A stroke of genius' - How The Killers gave England fans a Euro 2024 moment to savour**\
-`The Las Vegas rock band paused a London concert to share the end of England's Euro 2024 semi-final with fans — then blew them away`\
-https://nytimes.com/athletic/5632176/2024/07/12/the-killers-england-ollie-watkins-euro-2024/
 
