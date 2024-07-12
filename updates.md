@@ -1,3 +1,11 @@
+**NASA Mission to Europa Imperiled by Chips Aboard Spacecraft**\
+`Transistors on the Europa Clipper spacecraft, scheduled to launch in October, may not be able to endure the harsh radiation around the planet Jupiter.`\
+https://nytimes.com/2024/07/11/science/europa-clipper-nasa-radiation.html
+
+**Monte Kiffin, legendary NFL DC, dies at 84**\
+`Kiffin is celebrated for the 13 years he presided over the Tampa Bay Bucs defense and dominated with a scheme called the Tampa 2.`\
+https://nytimes.com/athletic/5632891/2024/07/11/monte-kiffin-coach-ole-miss-tampa-2/
+
 **Blue Jays' Kevin Gausman continues tweaks in win, but Bo Bichette injury concern looms**\
 `Bichette is officially dealing with a right calf fascia strain. The Blue Jays have yet to determine whether he will require an IL stint.`\
 https://nytimes.com/athletic/5632864/2024/07/11/blue-jays-kevin-gausman-bo-bichette/
