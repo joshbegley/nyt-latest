@@ -1,3 +1,7 @@
+**As Biden Points to His Past, Supporters Are More Worried About His Future**\
+`For many of the president’s allies, it’s not the last three and a half years that concern them. It’s the next four.`\
+https://nytimes.com/2024/07/12/us/politics/biden-record-2024-election.html
+
 **Marcelo Bielsa hits out at Copa America organizers, says it 'has not been professional'**\
 `In an emotional press conference, Bielsa attacked the pitch and security conditions at the tournament, and more`\
 https://nytimes.com/athletic/5634440/2024/07/12/marcelo-bielsa-copa-america-news/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/12/world/middleeast/hamas-israel-peace-talks-gaza.ht
 **For Ukraine, an ‘Irreversible’ Path to NATO Clouded by Uncertainty**\
 `Hanging over the alliance’s summit in Washington this week was the shadow of the U.S. presidential election, which added a layer of unpredictability to the war and to the future of the bloc.`\
 https://nytimes.com/2024/07/12/world/europe/nato-ukraine-election-trump.html
-
-**Extreme Heat Puts Delivery Workers at Risk**\
-`Designating a proxy to face the increasing health risks of a sweltering day reeks of classism.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/heat-delivery-workers
 
