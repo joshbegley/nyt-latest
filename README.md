@@ -1,3 +1,7 @@
+**The Beastie Boys Sue Chili’s Over Use of ‘Sabotage’**\
+`The band said that the restaurant chain had ripped off the song and its music video in advertising videos posted to social media. The group has won similar cases in the past.`\
+https://nytimes.com/2024/07/11/business/beastie-boys-chilis-lawsuit.html
+
 **Biden Says Harris Is Qualified to Be President, but Vows to Remain in Race**\
 `Even as the president promoted his vice president’s qualifications alongside his own, he committed the sort of gaffe that has unnerved Democrats, referring to her as “Vice President Trump.”`\
 https://nytimes.com/2024/07/11/us/politics/kamala-harris-biden-news-conference.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/11/theater/oh-mary-review-cole-escola.html
 **Reds' unheralded "pros" Austin Wynns, Santiago Espinal are helping fill the gaps**\
 `“There’s always those role players, off-the-bench players, and you’ve got to take advantage of the opportunity when it’s given," Wynns said.`\
 https://nytimes.com/athletic/5632902/2024/07/11/reds-austin-wynns-santiago-espinal-roles/
-
-**NASA Mission to Europa Imperiled by Chips Aboard Spacecraft**\
-`Transistors on the Europa Clipper spacecraft, scheduled to launch in October, may not be able to endure the harsh radiation around the planet Jupiter.`\
-https://nytimes.com/2024/07/11/science/europa-clipper-nasa-radiation.html
 
