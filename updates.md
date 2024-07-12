@@ -1,3 +1,15 @@
+**How a Largely Democratic Milwaukee Is Feeling About Welcoming Thousands of Republicans**\
+`Some people voiced indifference or regret that their city was hosting the Republican National Convention. Others welcomed the spotlight.`\
+https://nytimes.com/2024/07/12/us/milwaukee-residents-rnc.html
+
+**Ipswich complete signing of Jacob Greaves from Hull**\
+`Ipswich Town have completed the signing of defender Jacob Greaves from Hull City.`\
+https://nytimes.com/athletic/5623275/2024/07/12/jacob-greaves-ipswich-transfer/
+
+**Do the Democrats Really Think Trump Is an Emergency?**\
+`They haven’t acted like it.`\
+https://nytimes.com/2024/07/12/opinion/democrats-trump-biden-emergency.html
+
 **The New N.Y.P.D. Motto Is Missing Some Important Words**\
 `The change reflects the department’s aggressive and problematic new attitude under Mayor Eric Adams.`\
 https://nytimes.com/2024/07/09/opinion/nypd-slogan-aggressive-adams.html
