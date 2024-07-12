@@ -1,3 +1,7 @@
+**A Letter to Midjourney**\
+`We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Justin Kim, age 16.`\
+https://nytimes.com/2024/07/12/learning/a-letter-to-midjourney.html
+
 **Democrats Fear Safe Blue States Turning Purple as Biden Stays the Course**\
 `Lingering worries about President Biden’s age could make Minnesota, New Hampshire, New Mexico and Virginia competitive, party operatives believe.`\
 https://nytimes.com/2024/07/12/us/politics/democrats-biden-battleground-states.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/12/learning/summer-reading-contest-week-6-what-got-y
 **City's Gomez completes permanent Real Sociedad move**\
 `Sergio Gomez has joined Real Sociedad from Manchester City for €10million.`\
 https://nytimes.com/athletic/5633531/2024/07/12/manchester-city-transfers-sergio-gomez/
-
-**How Wildfires Get Their Names**\
-`There isn’t much science to it.`\
-https://nytimes.com/2024/07/12/us/wildfire-names.html
 
