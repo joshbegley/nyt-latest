@@ -1,3 +1,7 @@
+**Katy Perry’s ‘World’ of Mixed Signals, and 11 More New Songs**\
+`Hear tracks by Bright Eyes, Johnny Blue Skies (a.k.a. Sturgill Simpson), Magdalena Bay and others.`\
+https://nytimes.com/2024/07/12/arts/music/playlist-katy-perry-zach-bryan-sturgill-simpson.html
+
 **Residents returning to a Gaza City neighborhood describe a swath of destruction.**\
 `By Hiba Yazbek`\
 https://nytimes.com/live/2024/07/12/world/israel-gaza-war-hamas/residents-returning-to-a-gaza-city-neighborhood-describe-a-swath-of-destruction
