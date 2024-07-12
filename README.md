@@ -14,7 +14,7 @@ https://nytimes.com/2024/07/12/movies/anthea-sylbert-dead.html
 `John Laghezza identifies the best options on the waiver wire, this week pointing fantasy managers towards a current and former Blue Jay.`\
 https://nytimes.com/athletic/5631419/2024/07/12/fantasy-baseball-waiver-wire-yariel-rodriguez-rowdy-tellez-and-more-adds/
 
-**Biden’s visit to Detroit draws few high-profile Michigan Democrats.**\
+**Biden’s Visit to Detroit Draws Few High-Profile Michigan Democrats**\
 `Gov. Gretchen Whitmer posted a welcome on social media but was not on hand. The state’s two Democratic senators, Debbie Stabenow and Gary Peters, and a leading candidate for Ms. Stabenow’s seat, Representative Elissa Slotkin, all were otherwise occupied.`\
 https://nytimes.com/2024/07/12/us/politics/bidens-visit-to-detroit-draws-few-high-profile-michigan-democrats.html
 
