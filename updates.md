@@ -1,3 +1,15 @@
+**Residents returning to a Gaza City neighborhood describe a swath of destruction.**\
+`By Hiba Yazbek`\
+https://nytimes.com/live/2024/07/12/world/israel-gaza-war-hamas/residents-returning-to-a-gaza-city-neighborhood-describe-a-swath-of-destruction
+
+**Katy Perry’s ‘World’ of Mixed Signals, and 12 More New Songs**\
+`Hear tracks by Bright Eyes, Johnny Blue Skies (a.k.a. Sturgill Simpson), Magdalena Bay and others.`\
+https://nytimes.com/2024/07/12/arts/music/playlist-katy-perry-zach-bryan-sturgill-simpson.html
+
+**Colorado Governor Says Debate About Biden’s Candidacy Remains ‘Legitimate’**\
+`Gov. Jared Polis, a Democrat, called for Biden to demonstrate “what will change that will enable him” to win in November.`\
+https://nytimes.com/2024/07/12/us/politics/democrats-colorado-biden-2024-polis.html
+
 **Antitrust Regulator Tells Chains: Back Off Your Franchisees**\
 `After a yearlong inquiry, the Federal Trade Commission warned brands not to gag their small business operators or charge them extra fees.`\
 https://nytimes.com/2024/07/12/business/economy/franchise-ftc-antitrust.html
