@@ -1,3 +1,7 @@
+**Baldwin Weeps After ‘Rust’ Case Is Dismissed**\
+`A judge in New Mexico dismissed the case against the actor Alec Baldwin on Friday after finding that the state had withheld evidence.`\
+https://nytimes.com/video/us/100000009569575/alec-baldwin-rust-trial.html
+
 **More Than 23 Million Watched Biden’s News Conference, Beating the Oscars**\
 `The drama surrounding the president’s bid for re-election has captured voters’ interest.`\
 https://nytimes.com/2024/07/12/us/politics/bidens-news-conference-ratings.html

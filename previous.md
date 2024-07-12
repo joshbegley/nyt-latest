@@ -1,3 +1,7 @@
+**Baldwin Weeps After ‘Rust’ Case Is Dismissed**\
+`A judge in New Mexico dismissed the case against the actor Alec Baldwin on Friday after finding that the state had withheld evidence.`\
+https://nytimes.com/video/us/100000009569575/alec-baldwin-rust-trial.html
+
 **More Than 23 Million Watched Biden’s News Conference, Beating the Oscars**\
 `The drama surrounding the president’s bid for re-election has captured voters’ interest.`\
 https://nytimes.com/2024/07/12/us/politics/bidens-news-conference-ratings.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5633768/2024/07/12/wimbledon-recap-hsieh-doubles-st
 **Are You an AT&T Customer? Here’s What to Know About the Data Breach**\
 `Nearly all AT&T customers were affected by a recent cyberattack.`\
 https://nytimes.com/2024/07/12/us/phone-data-breach.html
-
-**Anthea Sylbert, Costume Designer Who Became a Producer, Dies at 84**\
-`Her career unfolded in three phases: as the creator of costumes for movies like “Chinatown,” as a studio executive and as a producer, largely with her friend Goldie Hawn.`\
-https://nytimes.com/2024/07/12/movies/anthea-sylbert-dead.html
 
