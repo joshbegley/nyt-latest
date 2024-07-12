@@ -1,3 +1,15 @@
+**Residents returning to a Gaza City neighborhood describe a swath of destruction.**\
+`By Hiba Yazbek`\
+https://nytimes.com/live/2024/07/12/world/israel-gaza-war-hamas/residents-returning-to-a-gaza-city-neighborhood-describe-a-swath-of-destruction
+
+**Katy Perry’s ‘World’ of Mixed Signals, and 12 More New Songs**\
+`Hear tracks by Bright Eyes, Johnny Blue Skies (a.k.a. Sturgill Simpson), Magdalena Bay and others.`\
+https://nytimes.com/2024/07/12/arts/music/playlist-katy-perry-zach-bryan-sturgill-simpson.html
+
+**Colorado Governor Says Debate About Biden’s Candidacy Remains ‘Legitimate’**\
+`Gov. Jared Polis, a Democrat, called for Biden to demonstrate “what will change that will enable him” to win in November.`\
+https://nytimes.com/2024/07/12/us/politics/democrats-colorado-biden-2024-polis.html
+
 **Antitrust Regulator Tells Chains: Back Off Your Franchisees**\
 `After a yearlong inquiry, the Federal Trade Commission warned brands not to gag their small business operators or charge them extra fees.`\
 https://nytimes.com/2024/07/12/business/economy/franchise-ftc-antitrust.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5631308/2024/07/12/england-tournaments-euro-2024-di
 **Director Who Resigned From British Museum in Scandal Has a New Job**\
 `Hartwig Fischer, a German art historian, will be the director of a new museum of world cultures in Saudi Arabia.`\
 https://nytimes.com/2024/07/12/arts/design/hartwig-fischer-saudi-arabia.html
-
-**High School Collapses in Nigeria, Killing Several Students**\
-`An unknown number of people were trapped in the rubble of the building in Jos, a city of one million residents in the central part of the country.`\
-https://nytimes.com/2024/07/12/world/africa/nigeria-school-collapse.html
-
-**MLB Futures Game primer: The top 20 hitters Jim Bowden can't wait to watch**\
-`The Futures Game is a great opportunity to evaluate and compare some of the top hitting prospects. Here's who — and what — we're watching. `\
-https://nytimes.com/athletic/5632396/2024/07/12/mlb-futures-game-2024-hitters/
-
-**Carlos Alcaraz beats Daniil Medvedev to reach second Wimbledon final**\
-`Carlos Alcaraz reached his second consecutive Wimbledon final, after beating Daniil Medvedev 6-7, 6-3, 6-4, 6-4 on Centre Court on Friday.`\
-https://nytimes.com/athletic/5633754/2024/07/12/carlos-alcaraz-daniil-medvedev-wimbledon/
 
