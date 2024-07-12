@@ -1,3 +1,7 @@
+**A Gaza City Neighborhood Is Left in Ruins After Israeli Troops Withdraw**\
+`Intense fighting between soldiers and Hamas militants has left parts of the city uninhabitable, say residents who returned.`\
+https://nytimes.com/2024/07/12/world/middleeast/gaza-city-shajaiya-israel-hamas.html
+
 **Pistons wing Ron Holland Q&A: On J.B. Bickerstaff, cooking and rookie expectations**\
 `Pistons rookie Ron Holland goes one-on-one with The Athletic.`\
 https://nytimes.com/athletic/5634456/2024/07/12/pistons-rookie-ron-holland-nba-summer-league/

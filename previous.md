@@ -1,3 +1,7 @@
+**A Gaza City Neighborhood Is Left in Ruins After Israeli Troops Withdraw**\
+`Intense fighting between soldiers and Hamas militants has left parts of the city uninhabitable, say residents who returned.`\
+https://nytimes.com/2024/07/12/world/middleeast/gaza-city-shajaiya-israel-hamas.html
+
 **Pistons wing Ron Holland Q&A: On J.B. Bickerstaff, cooking and rookie expectations**\
 `Pistons rookie Ron Holland goes one-on-one with The Athletic.`\
 https://nytimes.com/athletic/5634456/2024/07/12/pistons-rookie-ron-holland-nba-summer-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5624433/2024/07/12/brighton-transfers-malick-yalcou
 **Beyond the Classic Barbecue: Three Other Ways to Cook Outdoors**\
 `Chefs from different global culinary traditions demonstrate how they do it — not a hamburger or hot dog in sight.`\
 https://nytimes.com/2024/07/12/t-magazine/outdoor-cooking-grill.html
-
-**Atletico Madrid's Saul in advanced talks to join Sevilla on loan**\
-`Atletico Madrid midfielder Saul is in advanced to join Sevilla on a season-long loan deal.`\
-https://nytimes.com/athletic/5626543/2024/07/12/saul-atletico-madrid-transfers-sevilla/
 
