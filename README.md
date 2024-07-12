@@ -1,3 +1,7 @@
+**How to Pack for a Short Trip With Just One Personal Item on a Flight**\
+`It's possible to leave your luggage at home.`\
+https://nytimes.com/interactive/2024/07/12/smarter-living/wirecutter/personal-item-pack.html
+
 **Lyon identify Arsenal's McCabe as summer transfer target**\
 `Arsenal face a challenge to retain one of their leading women’s players, with Katie McCabe identified by Lyon as a firm target this summer.`\
 https://nytimes.com/athletic/5633616/2024/07/12/katie-mccabe-arsenal-lyon-transfer-target/
@@ -33,8 +37,4 @@ https://nytimes.com/video/science/space/100000009568187/spacex-falcon-rocket-fai
 **Talking About the Century’s Best Books**\
 `A roundtable of Book Review editors discuss what surprised them, what delighted them, what will send them back to their own shelves.`\
 https://nytimes.com/2024/07/12/books/review/talking-about-the-centurys-best-books.html
-
-**In Brazil, Early Wildfires Break Records — and Raise Alarm**\
-`Huge blazes are spreading hundreds of miles across some of the most biodiverse parts of Brazil, with the worst of the annual fire season still weeks away.`\
-https://nytimes.com/2024/07/12/world/americas/wildfires-brazil-amazon-rainforest.html
 
