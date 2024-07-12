@@ -1,3 +1,11 @@
+**France on Eve of Olympics Is at a Political Impasse, with Unrest Brewing**\
+`After elections produced a deadlocked parliament, both left and right are claiming victory, while President Emmanuel Macron insists no one won. It’s a recipe for turmoil.`\
+https://nytimes.com/2024/07/12/world/europe/france-election-politics-olympics.html
+
+**A Senator’s Fate Is in a Jury’s Hands**\
+`Senator Robert Menendez is charged with 16 separate crimes, including bribery, obstructing justice and acting as an agent of a foreign government.`\
+https://nytimes.com/2024/07/12/nyregion/bob-menendez-trial-bribery.html
+
 **A Senator’s Fate Is in a Jury’s Hands**\
 `Senator Robert Menendez is charged with 16 separate crimes, including bribery, obstructing justice and acting as an agent of a foreign government.`\
 https://nytimes.com/2024/07/12/nyregion/robert-menendez-trial-bribery.html

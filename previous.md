@@ -1,6 +1,10 @@
+**France on Eve of Olympics Is at a Political Impasse, with Unrest Brewing**\
+`After elections produced a deadlocked parliament, both left and right are claiming victory, while President Emmanuel Macron insists no one won. It’s a recipe for turmoil.`\
+https://nytimes.com/2024/07/12/world/europe/france-election-politics-olympics.html
+
 **A Senator’s Fate Is in a Jury’s Hands**\
 `Senator Robert Menendez is charged with 16 separate crimes, including bribery, obstructing justice and acting as an agent of a foreign government.`\
-https://nytimes.com/2024/07/12/nyregion/robert-menendez-trial-bribery.html
+https://nytimes.com/2024/07/12/nyregion/bob-menendez-trial-bribery.html
 
 **The problem with the Giants selling at the trade deadline**\
 `The Giants' roster is filled with contract situations that make it difficult for them to hold a traditional fire sale. `\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/09/opinion/nypd-slogan-aggressive-adams.html
 **Yankees call up infield prospect Jorbit Vivas**\
 `In 37 games for Triple-A Scranton/Wilkes-Barre, Vivas posted a 122 wRC+ and .404 on-base percentage.`\
 https://nytimes.com/athletic/5634094/2024/07/12/yankees-prospect-jorbit-vivas-promoted/
-
-**Marathon Oil Agrees to Record Penalty for Alleged Clean Air Act Violations**\
-`The company will spend $242 million to resolve allegations that it released methane, a greenhouse gas, and other pollutants in North Dakota.`\
-https://nytimes.com/2024/07/12/business/energy-environment/epa-marathon-oil-clean-air-act.html
 
