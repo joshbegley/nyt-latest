@@ -1,3 +1,11 @@
+**Harrison Butker responds to Serena Williams' ESPYs jab**\
+`Williams' dig came as she discussed women's sports while hosting the ESPY Awards on Thursday.`\
+https://nytimes.com/athletic/5634806/2024/07/13/harrison-butker-serena-williams-espy-comments/
+
+**Man City stay above Real Madrid in UEFA rankings, West Ham leapfrog Arsenal**\
+`Manchester City remain as UEFA&#8217;s top-ranked club for the 2024-25 season despite losing their Champions League title to Real Madrid.`\
+https://nytimes.com/athletic/5635503/2024/07/13/man-city-stay-above-real-madrid-in-uefa-rankings-as-west-ham-leapfrog-arsenal-and-barcelona/
+
 **Nottm Forest 'still need to do work' in transfer window - Nuno**\
 `Nuno Espirito Santo says Nottingham Forest still have more to do in the transfer market to prepare them for the new Premier League season.`\
 https://nytimes.com/athletic/5635535/2024/07/13/nottingham-forest-transfers-nuno/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/13/us/rnc-milwaukee-protests.html
 **Deaths of Hamas leaders in Israeli strikes can take weeks to confirm.**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/07/13/world/israel-gaza-war-hamas/deaths-of-hamas-leaders-in-israeli-strikes-can-take-weeks-to-confirm
-
-**Unbowed by Jan. 6 Charges, Republicans Pursue Plans to Contest a Trump Defeat**\
-`Mr. Trump’s allies are preparing to try to short-circuit the election system, if he does not win.`\
-https://nytimes.com/2024/07/13/us/politics/republican-election-campaign-2024.html
-
-**Acquittal for Pakistan’s Khan and Wife in Illegal Marriage Case**\
-`But Imran Khan, the popular former prime minister, remains incarcerated for now, and the authorities have indicated that new charges are likely.`\
-https://nytimes.com/2024/07/13/world/asia/imran-khan-acquittal.html
 

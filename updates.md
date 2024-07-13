@@ -1,3 +1,11 @@
+**Harrison Butker responds to Serena Williams' ESPYs jab**\
+`Williams' dig came as she discussed women's sports while hosting the ESPY Awards on Thursday.`\
+https://nytimes.com/athletic/5634806/2024/07/13/harrison-butker-serena-williams-espy-comments/
+
+**Man City stay above Real Madrid in UEFA rankings, West Ham leapfrog Arsenal**\
+`Manchester City remain as UEFA&#8217;s top-ranked club for the 2024-25 season despite losing their Champions League title to Real Madrid.`\
+https://nytimes.com/athletic/5635503/2024/07/13/man-city-stay-above-real-madrid-in-uefa-rankings-as-west-ham-leapfrog-arsenal-and-barcelona/
+
 **Nottm Forest 'still need to do work' in transfer window - Nuno**\
 `Nuno Espirito Santo says Nottingham Forest still have more to do in the transfer market to prepare them for the new Premier League season.`\
 https://nytimes.com/athletic/5635535/2024/07/13/nottingham-forest-transfers-nuno/
