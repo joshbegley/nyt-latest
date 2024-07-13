@@ -1,3 +1,11 @@
+**The Republicans Are Headed to Milwaukee. So Are Protesters.**\
+`A range of activists, energized over abortion limits, Israel’s military action in Gaza and immigration, say they plan to march in the city.`\
+https://nytimes.com/2024/07/13/us/rnc-milwaukee-protests.html
+
+**Deaths of Hamas leaders in Israeli strikes can take weeks to confirm.**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2024/07/13/world/israel-gaza-war-hamas/deaths-of-hamas-leaders-in-israeli-strikes-can-take-weeks-to-confirm
+
 **Unbowed by Jan. 6 Charges, Republicans Pursue Plans to Contest a Trump Defeat**\
 `Mr. Trump’s allies are preparing to try to short-circuit the election system, if he does not win.`\
 https://nytimes.com/2024/07/13/us/politics/republican-election-campaign-2024.html

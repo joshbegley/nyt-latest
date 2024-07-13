@@ -1,3 +1,11 @@
+**The Republicans Are Headed to Milwaukee. So Are Protesters.**\
+`A range of activists, energized over abortion limits, Israel’s military action in Gaza and immigration, say they plan to march in the city.`\
+https://nytimes.com/2024/07/13/us/rnc-milwaukee-protests.html
+
+**Deaths of Hamas leaders in Israeli strikes can take weeks to confirm.**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2024/07/13/world/israel-gaza-war-hamas/deaths-of-hamas-leaders-in-israeli-strikes-can-take-weeks-to-confirm
+
 **Unbowed by Jan. 6 Charges, Republicans Pursue Plans to Contest a Trump Defeat**\
 `Mr. Trump’s allies are preparing to try to short-circuit the election system, if he does not win.`\
 https://nytimes.com/2024/07/13/us/politics/republican-election-campaign-2024.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/13/dining/korean-corn-cheese.html
 **Ruth Westheimer, the Sex Guru Known as Dr. Ruth, Dies at 96**\
 `Frank and funny, the taboo-breaking psychologist said things on television and radio that would have been shocking coming from almost anyone else.`\
 https://nytimes.com/2024/07/13/arts/television/ruth-westheimer-dead.html
-
-**Alex Sarr, Bub Carrington show they could be game-changers Washington needs**\
-`Two of the Wizards' prized rookies played well in their summer-league debuts. `\
-https://nytimes.com/athletic/5634920/2024/07/13/alex-sarr-bub-carrington-summer-league-debuts/
-
-**Gaza’s collapsing hospitals struggle to deal with the numbers of wounded in the latest strike.**\
-`By Hiba Yazbek and Ameera Harouda`\
-https://nytimes.com/live/2024/07/13/world/israel-gaza-war-hamas/gazas-collapsing-hospitals-struggle-to-deal-with-the-numbers-of-wounded-in-the-latest-strike
 
