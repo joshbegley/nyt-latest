@@ -1,3 +1,7 @@
+**Corrections: July 13, 2024**\
+`Corrections that appeared in print on Saturday, July 13, 2024.`\
+https://nytimes.com/2024/07/13/pageoneplus/corrections-july-13-2024.html
+
 **Kyle Hendricks shows he's not done just yet as red-hot Cubs get back in playoff race**\
 `Even with all his struggles, Hendricks is still doing what he's done well when he's at his best.`\
 https://nytimes.com/athletic/5634789/2024/07/13/kyle-hendricks-cubs-cardinals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5633214/2024/07/13/turkey-switzerland-austria-tacti
 **Euro 2024 and the invasion of the selfie snatchers**\
 `The finals have seen a spate of fans venturing on to the pitch seeking photos with stars despite UEFA promising “additional safety measures"`\
 https://nytimes.com/athletic/5633688/2024/07/13/pitch-invaders-selfies-euro-2024/
-
-**What winning Euro 2024 would mean for 'brand England': 'These are once-in-a-lifetime opportunities'**\
-`England's growing star power and how it will be impacted if England win the final against Spain`\
-https://nytimes.com/athletic/5633455/2024/07/13/what-winning-euro-2024-would-mean-for-the-england-brand-it-would-go-into-folklore/
 
