@@ -1,3 +1,23 @@
+**A Money Guru Bet Big on a Very Long Life. Then He Got Cancer.**\
+`Jonathan Clements, a longtime personal finance columnist for The Wall Street Journal, has a lot of savings. He’s not mad that a fatal illness will keep him from spending it.`\
+https://nytimes.com/2024/07/13/your-money/jonathan-clements-cancer.html
+
+**A Pioneering New York Rabbi Says Goodbye to Her L.G.B.T.Q. Congregation**\
+`Rabbi Sharon Kleinbaum, the senior rabbi at Congregation Beit Simchat Torah in Manhattan, is retiring at a challenging time for the gay rights movement.`\
+https://nytimes.com/2024/07/13/nyregion/rabbi-sharon-kleinbaum-retirement.html
+
+**Police Kill a Boy, and a Refugee Group’s Young Lead the Call for Answers**\
+`A Utica, N.Y., officer’s fatal shooting of a 13-year-old provokes anger among the city’s Karen residents, members of an ethnic group from Myanmar.`\
+https://nytimes.com/2024/07/13/nyregion/utica-police-shooting-nyah-mway.html
+
+**How a Hotel Concierge Spends His Sundays**\
+`George Gaffney, the top concierge at the Beekman hotel, goes restaurant hopping for breakfast with his family, then helps tourists find the best brunch spots.`\
+https://nytimes.com/2024/07/13/nyregion/beekman-hotel-concierge.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/13/crosswords/spelling-bee-forum.html
+
 **On the Hands of India’s Brides, Reminders of a Stark Wealth Divide**\
 `Henna artists’ elaborate designs are a hallmark of Indian weddings. They also highlight a disparity where some are fabulously rich and many earn very little.`\
 https://nytimes.com/2024/07/13/world/asia/india-weddings-henna-wealth-divide.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5634186/2024/07/13/marc-cucurella-interview-chelsea
 **Back in San Francisco first time since failed megadeal, Carlos Correa content, looking ahead**\
 `The Minnesota Twins All-Star shortstop played his first game at Oracle Park on Friday since his possible move to the Giants fell apart.`\
 https://nytimes.com/athletic/5634757/2024/07/13/twins-carlos-correa-back-in-san-francisco/
-
-**Yankees' Jose Trevino leaves game with leg injury**\
-`Trevino injured his quadriceps on a run-scoring slide into home, not in the bench-clearing brawl in the ninth inning.`\
-https://nytimes.com/athletic/5634768/2024/07/13/yankees-jose-trevino-injury/
-
-**Watkins and Leeds: The Sliding Doors missed transfer that feels like a 'What if?'**\
-`Leeds eyed up Ollie Watkins when they were first promoted back to the Premier League but opted for another striking option`\
-https://nytimes.com/athletic/5631473/2024/07/13/ollie-watkins-leeds-united-transfer/
-
-**The clubs that made England - and the players being inspired to follow them**\
-`The Athletic pays tribute to the clubs that made the squad and speaks to players from their old academies who are inspired by them`\
-https://nytimes.com/athletic/5633291/2024/07/13/england-squad-euro-2024-clubs/
-
-**Lamine Yamal and Lionel Messi: The beginnings and the endings of greatness**\
-`At Barcelona, Lamine Yamal is considered the closest thing they have seen to Lionel Messi. That he has been more precocious is undeniable`\
-https://nytimes.com/athletic/5633196/2024/07/13/lamine-yamal-lionel-messi/
-
-**Forget the favourites. Turkey, Switzerland and Austria's tactics are what made Euro 2024 fun**\
-`How the approach of mid-level nations gave the tournament its spark`\
-https://nytimes.com/athletic/5633214/2024/07/13/turkey-switzerland-austria-tactics-euro-2024/
 
