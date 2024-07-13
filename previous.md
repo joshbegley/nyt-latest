@@ -1,3 +1,7 @@
+**Bernie Sanders urges Democrats to stay the course with Biden.**\
+`The Vermont senator, whom President Biden defeated in the 2020 Democratic primary, vouched for the president in a guest essay in The New York Times.`\
+https://nytimes.com/live/2024/07/13/us/biden-trump-election/bernie-sanders-urges-democrats-to-stay-the-course-with-biden
+
 **In summer-league debut, Reed Sheppard flashes traits that made him a top-5 pick**\
 `Early against the Lakers, the Houston rookie watched, learned and processed. Then he hit the court and executed.`\
 https://nytimes.com/athletic/5634721/2024/07/13/reed-sheppard-rockets-nba-summer-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/13/opinion/joe-biden-president.html
 **Game, Set, Match: Barbora Krejcikova beats Jasmine Paolini to win first Wimbledon title**\
 `How Barbora Krejcikova won the Wimbledon women's final against Jasmine Paolini`\
 https://nytimes.com/athletic/5635277/2024/07/13/barbora-krejcikova-jasmine-paolini-wimbledon-final/
-
-**Colorado Reports Three More Presumed Cases of Bird Flu**\
-`The cases, which have yet to be confirmed, were identified in farmworkers culling infected birds. The risk to the public remains low, health officials said.`\
-https://nytimes.com/2024/07/13/science/bird-flu-colorado.html
 

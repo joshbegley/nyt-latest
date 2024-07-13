@@ -1,3 +1,7 @@
+**Bernie Sanders urges Democrats to stay the course with Biden.**\
+`The Vermont senator, whom President Biden defeated in the 2020 Democratic primary, vouched for the president in a guest essay in The New York Times.`\
+https://nytimes.com/live/2024/07/13/us/biden-trump-election/bernie-sanders-urges-democrats-to-stay-the-course-with-biden
+
 **In summer-league debut, Reed Sheppard flashes traits that made him a top-5 pick**\
 `Early against the Lakers, the Houston rookie watched, learned and processed. Then he hit the court and executed.`\
 https://nytimes.com/athletic/5634721/2024/07/13/reed-sheppard-rockets-nba-summer-league/
