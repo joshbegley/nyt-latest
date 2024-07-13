@@ -1,3 +1,11 @@
+**From Jordan Pickford's Sunderland, to Ollie Watkins' Newton Abbot: What England thinks of England**\
+`The Athletic embarked on a road trip to test the temperature of a country that hasn't always seemed entirely enthusiastic during Euro 2024`\
+https://nytimes.com/athletic/5634967/2024/07/13/england-fans-euro-2024-journey/
+
+**Why the Copa America final will a red letter day for Spanish-language broadcasters**\
+`Sunday's final between Argentina and Colombia is a huge moment for Spanish-language broadcasters and their authentic voice`\
+https://nytimes.com/athletic/5635226/2024/07/13/copa-america-final-spanish-language-broadcasters/
+
 **The Republicans Are Headed to Milwaukee. So Are Protesters.**\
 `A range of activists, energized over abortion limits, Israel’s military action in Gaza and immigration, say they plan to march in the city.`\
 https://nytimes.com/2024/07/13/us/rnc-milwaukee-protests.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/13/science/bird-flu-colorado.html
 **Bollywood Stars, Former Prime Ministers and the Kardashians Attend the Ambani Wedding**\
 `After months of lavish prewedding festivities that have captured the attention of onlookers worldwide, Anant Ambani, the youngest son of India’s richest man, married Radhika Merchant in Mumbai.`\
 https://nytimes.com/2024/07/13/fashion/weddings/anant-ambani-wedding-guests.html
-
-**Korean Corn Cheese, Yes Please**\
-`Hot weather calls for this sweet-savory banchan and an ice-cold beer.`\
-https://nytimes.com/2024/07/13/dining/korean-corn-cheese.html
-
-**Ruth Westheimer, the Sex Guru Known as Dr. Ruth, Dies at 96**\
-`Frank and funny, the taboo-breaking psychologist said things on television and radio that would have been shocking coming from almost anyone else.`\
-https://nytimes.com/2024/07/13/arts/television/ruth-westheimer-dead.html
 
