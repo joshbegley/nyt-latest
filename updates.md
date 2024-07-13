@@ -1,3 +1,7 @@
+**Forget the favourites. Turkey, Switzerland and Austria's tactics are what made Euro 2024 fun**\
+`How the approach of mid-level nations gave the tournament its spark`\
+https://nytimes.com/athletic/5633214/2024/07/13/turkey-switzerland-austria-tactics-euro-2024/
+
 **Corrections: July 13, 2024**\
 `Corrections that appeared in print on Saturday, July 13, 2024.`\
 https://nytimes.com/2024/07/13/pageoneplus/corrections-july-13-2024.html

@@ -30,7 +30,7 @@ https://nytimes.com/athletic/5633291/2024/07/13/england-squad-euro-2024-clubs/
 `At Barcelona, Lamine Yamal is considered the closest thing they have seen to Lionel Messi. That he has been more precocious is undeniable`\
 https://nytimes.com/athletic/5633196/2024/07/13/lamine-yamal-lionel-messi/
 
-**Forget the favourites. Turkey, Switzerland and Austria's tactics is what made Euro 2024 fun**\
+**Forget the favourites. Turkey, Switzerland and Austria's tactics are what made Euro 2024 fun**\
 `How the approach of mid-level nations gave the tournament its spark`\
 https://nytimes.com/athletic/5633214/2024/07/13/turkey-switzerland-austria-tactics-euro-2024/
 
