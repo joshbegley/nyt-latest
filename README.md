@@ -1,3 +1,11 @@
+**Some of Dr. Ruth’s Most Memorable Moments**\
+`After rising to fame in the 1980s, Ruth Westheimer, known as Dr. Ruth, mingled with celebrities, wrote dozens of books and was named as New York’s “loneliness ambassador.”`\
+https://nytimes.com/2024/07/13/arts/dr-ruth-westheimer-career-highlights.html
+
+**What Did Dr. Ruth Mean to You?**\
+`Her frank and frequently hilarious advice about sex, love and loneliness reached millions. How did she influence your life?`\
+https://nytimes.com/2024/07/13/well/family/dr-ruth-callout.html
+
 **Alabama lands 5-star WR Caleb Cunningham**\
 `Cunningham is the No. 2 wide receiver and the No. 13 overall player nationally.`\
 https://nytimes.com/athletic/5635637/2024/07/13/alabama-recruiting-caleb-cunningham-five-star/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/13/t-magazine/brooke-williams-josh-liberson-dinner-p
 **Harrison Butker responds to Serena Williams' ESPYs jab**\
 `Williams' dig came as she discussed women's sports while hosting the ESPY Awards on Thursday.`\
 https://nytimes.com/athletic/5634806/2024/07/13/harrison-butker-serena-williams-espy-comments/
-
-**Man City stay above Real Madrid in UEFA rankings, West Ham leapfrog Arsenal**\
-`Manchester City remain as UEFA&#8217;s top-ranked club for the 2024-25 season despite losing their Champions League title to Real Madrid.`\
-https://nytimes.com/athletic/5635503/2024/07/13/man-city-stay-above-real-madrid-in-uefa-rankings-as-west-ham-leapfrog-arsenal-and-barcelona/
-
-**Nottm Forest 'still need to do work' in transfer window - Nuno**\
-`Nuno Espirito Santo says Nottingham Forest still have more to do in the transfer market to prepare them for the new Premier League season.`\
-https://nytimes.com/athletic/5635535/2024/07/13/nottingham-forest-transfers-nuno/
 
