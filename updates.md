@@ -1,3 +1,7 @@
+**Yankees-Orioles fight erupts, benches clear**\
+`Orioles manager Brandon Hyde was ejected as long-simmering tensions between the teams exploded Friday at Camden Yards.`\
+https://nytimes.com/athletic/5634705/2024/07/12/yankees-orioles-benches-clear-fight-mlb/
+
 **Padres' Fernando Tatis Jr. gives positive update on leg injury, will miss less time than feared**\
 `'They were saying in the beginning that I probably would have lost the season,' Tatis Jr. said Friday. 'But it’s definitely not that.”`\
 https://nytimes.com/athletic/5634508/2024/07/12/padres-fernando-tatis-leg-injury/
