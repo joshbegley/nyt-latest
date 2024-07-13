@@ -1,3 +1,7 @@
+**On an Island in Maine, a Meal Worth Traveling For**\
+`A family celebrated the arrival of a special artwork at their home by inviting its maker to stay — and cooking her an oceanside dinner.`\
+https://nytimes.com/2024/07/13/t-magazine/brooke-williams-josh-liberson-dinner-party.html
+
 **Harrison Butker responds to Serena Williams' ESPYs jab**\
 `Williams' dig came as she discussed women's sports while hosting the ESPY Awards on Thursday.`\
 https://nytimes.com/athletic/5634806/2024/07/13/harrison-butker-serena-williams-espy-comments/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5635226/2024/07/13/copa-america-final-spanish-langu
 **The Republicans Are Headed to Milwaukee. So Are Protesters.**\
 `A range of activists, energized over abortion limits, Israel’s military action in Gaza and immigration, say they plan to march in the city.`\
 https://nytimes.com/2024/07/13/us/rnc-milwaukee-protests.html
-
-**Deaths of Hamas leaders in Israeli strikes can take weeks to confirm.**\
-`By Patrick Kingsley`\
-https://nytimes.com/live/2024/07/13/world/israel-gaza-war-hamas/deaths-of-hamas-leaders-in-israeli-strikes-can-take-weeks-to-confirm
 
