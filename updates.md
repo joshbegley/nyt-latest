@@ -1,3 +1,11 @@
+**Dodgers snap cold skid with unorthodox late rally**\
+`Facing a familiar script that spelled looming doom, manager Dave Roberts made some shrewd moves.`\
+https://nytimes.com/athletic/5634735/2024/07/13/dodgers-rally-defeat-tigers/
+
+**Saturday's MLB game odds, best bets: Best and worst starting pitchers, playoff odds, props and more**\
+`Projections for Saturday's MLB games with expert picks for best bets, pitcher props, home run trends and more.`\
+https://nytimes.com/athletic/5627344/2024/07/13/mlb-odds-predictions-best-bets-july-13/
+
 **This Soccer Player Wanted to Wear Her Hijab on the Field. France Wouldn’t Let Her.**\
 `Lina Boussaha joined a team in Saudi Arabia so she could wear her head scarf while playing the sport she calls “a part of my soul.”`\
 https://nytimes.com/2024/07/13/world/europe/soccer-hijab-france.html
