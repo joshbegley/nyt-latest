@@ -1,3 +1,11 @@
+**Some of Dr. Ruth’s Most Memorable Moments**\
+`After rising to fame in the 1980s, Ruth Westheimer, known as Dr. Ruth, mingled with celebrities, wrote dozens of books and was named as New York’s “loneliness ambassador.”`\
+https://nytimes.com/2024/07/13/arts/dr-ruth-westheimer-career-highlights.html
+
+**What Did Dr. Ruth Mean to You?**\
+`Her frank and frequently hilarious advice about sex, love and loneliness reached millions. How did she influence your life?`\
+https://nytimes.com/2024/07/13/well/family/dr-ruth-callout.html
+
 **Alabama lands 5-star WR Caleb Cunningham**\
 `Cunningham is the No. 2 wide receiver and the No. 13 overall player nationally.`\
 https://nytimes.com/athletic/5635637/2024/07/13/alabama-recruiting-caleb-cunningham-five-star/
