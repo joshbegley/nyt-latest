@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5633688/2024/07/13/pitch-invaders-selfies-euro-2024
 `England's growing star power and how it will be impacted if England win the final against Spain`\
 https://nytimes.com/athletic/5633455/2024/07/13/what-winning-euro-2024-would-mean-for-the-england-brand-it-would-go-into-folklore/
 
-**Dodgers snap cold skid with unorthodox late rally**\
+**Dodgers put brakes on bad stretch with unorthodox late rally**\
 `Facing a familiar script that spelled looming doom, manager Dave Roberts made some shrewd moves.`\
 https://nytimes.com/athletic/5634735/2024/07/13/dodgers-rally-defeat-tigers/
 
