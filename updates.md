@@ -1,3 +1,7 @@
+**Robert Putnam Knows Why You’re Lonely**\
+`The author of “Bowling Alone” warned us about social isolation and its effect on democracy a quarter century ago. Things have only gotten worse.`\
+https://nytimes.com/2024/07/13/magazine/robert-putnam-interview.html
+
 **Katz: Jalen Brunson has agreed to the greatest financial favor in NBA history**\
 `Brunson signed with one priority in mind: Take whatever reasonable measures he could to go after a ring.`\
 https://nytimes.com/athletic/5634610/2024/07/13/jalen-brunson-knicks-contract/
