@@ -1,3 +1,7 @@
+**Marc Cucurella: Spain's Euro 2024 cult hero on Cole Palmer, England and change at Chelsea**\
+`The 25-year-old left-back's performances in Germany have surprised some - but he has always backed himself`\
+https://nytimes.com/athletic/5634186/2024/07/13/marc-cucurella-interview-chelsea-spain-euro-2024/
+
 **Back in San Francisco first time since failed megadeal, Carlos Correa content, looking ahead**\
 `The Minnesota Twins All-Star shortstop played his first game at Oracle Park on Friday since his possible move to the Giants fell apart.`\
 https://nytimes.com/athletic/5634757/2024/07/13/twins-carlos-correa-back-in-san-francisco/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5633455/2024/07/13/what-winning-euro-2024-would-mea
 **Dodgers put brakes on bad stretch with unorthodox late rally**\
 `Facing a familiar script that spelled looming doom, manager Dave Roberts made some shrewd moves.`\
 https://nytimes.com/athletic/5634735/2024/07/13/dodgers-rally-defeat-tigers/
-
-**Saturday's MLB game odds, best bets: Best and worst starting pitchers, playoff odds, props and more**\
-`Projections for Saturday's MLB games with expert picks for best bets, pitcher props, home run trends and more.`\
-https://nytimes.com/athletic/5627344/2024/07/13/mlb-odds-predictions-best-bets-july-13/
 
