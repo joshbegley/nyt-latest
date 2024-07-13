@@ -1,3 +1,7 @@
+**Mets reveling in mid-season turnaround: 'We're having a great time'**\
+`New York is 25-12 since May 31, tied with Houston for the best mark in the majors.`\
+https://nytimes.com/athletic/5634737/2024/07/12/mets-wild-card-turnaround/
+
 **Padres' Fernando Tatis Jr. gives positive update on leg injury, will miss less time than feared**\
 `'They were saying in the beginning that I probably would have lost the season,' Tatis Jr. said Friday. 'But it’s definitely not that.”`\
 https://nytimes.com/athletic/5634508/2024/07/12/padres-fernando-tatis-leg-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5634639/2024/07/12/nba-cup-groups-2024/
 **Russian Prosecutors Have Been Very Busy Lately**\
 `They are spending their time repressing dissent and discouraging real journalism.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/russian-prosecutors-repression
-
-**Baldwin Weeps After ‘Rust’ Case Is Dismissed**\
-`A judge in New Mexico dismissed the case against the actor Alec Baldwin on Friday after finding that the state had withheld evidence.`\
-https://nytimes.com/video/us/100000009569575/alec-baldwin-rust-trial.html
 
