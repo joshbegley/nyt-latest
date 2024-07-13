@@ -1,3 +1,7 @@
+**Galaxy fined $100K after supporter group misconduct**\
+`Fans lit off flares in the stands during the rivalry game at the Rose Bowl.`\
+https://nytimes.com/athletic/5634671/2024/07/12/la-galaxy-fine-supporter-groups-mls/
+
 **Kennedy Sent Apologetic Text to Woman Who Accused Him of Sexual Assault**\
 `Robert F. Kennedy Jr. privately reached out last week to a woman who accused him of sexually assaulting her in the late 1990s, an account detailed in a recent magazine article.`\
 https://nytimes.com/2024/07/12/us/politics/kennedy-sexual-assault-accusation.html
