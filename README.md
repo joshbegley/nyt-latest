@@ -1,3 +1,7 @@
+**Report From the Scene: ‘Get Down! Shots Fired!’**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/07/13/us/biden-trump-election/report-from-the-scene-get-down-shots-fired
+
 **Elon Musk endorses Trump, moments after episode at his rally.**\
 `Mr. Musk has drifted rightward considerably during the Biden era.`\
 https://nytimes.com/live/2024/07/13/us/biden-trump-election/elon-musk-endorses-trump-moments-after-episode-at-his-rally
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5635110/2024/07/13/josh-berry-tennis-impressions-in
 **Colombia coach criticizes Copa America plans for halftime show**\
 `Colombia head coach Nestor Lorenzo has criticized plans for a halftime show during Sunday&#8217;s Copa America final with Argentina.`\
 https://nytimes.com/athletic/5635843/2024/07/13/copa-america-halftime-show-shakira/
-
-**Thomas Hoepker, Who Captured an Indelible 9/11 Image, Dies at 88**\
-`His photograph of five young people lounging on the Brooklyn waterfront as smoke engulfed Manhattan mesmerized viewers and stirred controversy.`\
-https://nytimes.com/2024/07/13/arts/thomas-hoepker-dead.html
 
