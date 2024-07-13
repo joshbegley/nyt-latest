@@ -1,3 +1,7 @@
+**Phillies' Whit Merrifield move just the first domino as they rearrange bench, weigh trade options**\
+`The Phillies can be picky about how they tweak their roster this month. They've signaled they're prioritizing a trade for a RHH outfielder. `\
+https://nytimes.com/athletic/5634667/2024/07/12/phillies-trade-options-outfielder-release-whit-merrifield/
+
 **A Fiery Biden, Ignoring Critics, Attacks Trump to Chants of ‘Lock Him Up’**\
 `Facing rising frustration in his party, the president brushed it off in an energetic speech in Michigan. Inside the room, at least, the Democratic mood was defiant, with cheers of “Don’t go, Joe.”`\
 https://nytimes.com/2024/07/12/us/politics/biden-speech-detroit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5634536/2024/07/12/diana-taurasi-mercury-courts-pra
 **Speaking at Trump’s Convention: Former Democrats, a Rancher and Trump Employees**\
 `Officials rolled out a list of “everyday Americans” who would address the Republican convention and highlight key themes such as immigration. The list also includes two employees of Donald Trump’s golf properties.`\
 https://nytimes.com/2024/07/12/us/rnc-attendees.html
-
-**‘Touch Me, Poke Me, Ask Me Questions,’ Biden Says of Voters Who Doubt Him**\
-`President Biden’s remarks were in response to a Democratic lawmaker who told him on a Zoom call that he should withdraw from the 2024 presidential campaign.`\
-https://nytimes.com/2024/07/12/us/politics/biden-voters-doubts.html
 
