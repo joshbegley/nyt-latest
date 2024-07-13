@@ -1,3 +1,7 @@
+**The Irony of Dr. Ruth**\
+`People often laughed when she spoke, but Ruth Westheimer delivered a punch that challenged norms for older women.`\
+https://nytimes.com/2024/07/13/style/dr-ruth.html
+
 **Scaloni, Martinez defend Uruguay players after Colombia fan clashes**\
 `Argentina head coach Lionel Scaloni and goalkeeper Emiliano Martinez have come out in defense of Uruguay’s players following the fan violence that took place on Wednesday night in Charlotte, North Carolina.`\
 https://nytimes.com/athletic/5635866/2024/07/13/argentina-uruguay-colombia-fans/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/13/arts/thomas-hoepker-dead.html
 **A series of pops was heard just minutes into the event. Here’s the latest.**\
 `By Michael Gold, Simon J. Levien and Campbell Robertson`\
 https://nytimes.com/live/2024/07/13/us/biden-trump-election/trump-rally-pennsylvania
-
-**Pritzker Tries to Reassure Fellow Midwestern Democrats Amid Biden Anxiety**\
-`Gov. JB Pritzker of Illinois spoke to Democratic gatherings in Indiana and Ohio as party leaders tried to ease panic about President Biden.`\
-https://nytimes.com/2024/07/13/us/pritzker-biden-democrats.html
 
