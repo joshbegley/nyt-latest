@@ -1,3 +1,15 @@
+**Unbowed by Jan. 6 Charges, Republicans Pursue Plans to Contest a Trump Defeat**\
+`Mr. Trump’s allies are preparing to try to short-circuit the election system, if he does not win.`\
+https://nytimes.com/2024/07/13/us/politics/republican-election-campaign-2024.html
+
+**Acquittal for Pakistan’s Khan and Wife in Illegal Marriage Case**\
+`But Imran Khan, the popular former prime minister, remains incarcerated for now, and the authorities have indicated that new charges are likely.`\
+https://nytimes.com/2024/07/13/world/asia/imran-khan-acquittal.html
+
+**Bernie Sanders: Joe Biden for President**\
+`Enough! It’s time for Democrats to stop the bickering and nit-picking.`\
+https://nytimes.com/2024/07/13/opinion/joe-biden-president.html
+
 **Angry Birds Take on Drones at New York City Beach**\
 `American Oystercatchers are attacking drones that have been deployed to scan for sharks and swimmers in distress.`\
 https://nytimes.com/2024/07/13/nyregion/nyc-beaches-drones-angry-birds.html

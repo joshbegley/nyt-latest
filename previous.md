@@ -1,3 +1,15 @@
+**Unbowed by Jan. 6 Charges, Republicans Pursue Plans to Contest a Trump Defeat**\
+`Mr. Trump’s allies are preparing to try to short-circuit the election system, if he does not win.`\
+https://nytimes.com/2024/07/13/us/politics/republican-election-campaign-2024.html
+
+**Acquittal for Pakistan’s Khan and Wife in Illegal Marriage Case**\
+`But Imran Khan, the popular former prime minister, remains incarcerated for now, and the authorities have indicated that new charges are likely.`\
+https://nytimes.com/2024/07/13/world/asia/imran-khan-acquittal.html
+
+**Bernie Sanders: Joe Biden for President**\
+`Enough! It’s time for Democrats to stop the bickering and nit-picking.`\
+https://nytimes.com/2024/07/13/opinion/joe-biden-president.html
+
 **Game, Set, Match: Barbora Krejcikova beats Jasmine Paolini to win first Wimbledon title**\
 `How Barbora Krejcikova won the Wimbledon women's final against Jasmine Paolini`\
 https://nytimes.com/athletic/5635277/2024/07/13/barbora-krejcikova-jasmine-paolini-wimbledon-final/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5634920/2024/07/13/alex-sarr-bub-carrington-summer-
 **Gaza’s collapsing hospitals struggle to deal with the numbers of wounded in the latest strike.**\
 `By Hiba Yazbek and Ameera Harouda`\
 https://nytimes.com/live/2024/07/13/world/israel-gaza-war-hamas/gazas-collapsing-hospitals-struggle-to-deal-with-the-numbers-of-wounded-in-the-latest-strike
-
-**Bill Viola, Celebrated Video Artist Who Played With Time, Dies at 73**\
-`Inspired by Renaissance painters, he explored life’s passages — birth, death, romantic love, redemption and rebirth — in often moving, often thrilling exhibitions.`\
-https://nytimes.com/2024/07/13/arts/bill-viola-dead.html
-
-**Laurent Blanc: Former France and PSG manager appointed Al Ittihad head coach**\
-`Laurent Blanc has been appointed as the new head coach of Saudi Pro League club Al Ittihad.`\
-https://nytimes.com/athletic/5635285/2024/07/13/laurent-blanc-al-ittihad-head-coach/
-
-**Angry Birds Take on Drones at New York City Beach**\
-`American Oystercatchers are attacking drones that have been deployed to scan for sharks and swimmers in distress.`\
-https://nytimes.com/2024/07/13/nyregion/nyc-beaches-drones-angry-birds.html
 
