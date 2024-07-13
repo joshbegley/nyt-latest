@@ -1,3 +1,7 @@
+**Navas to retire from Spain after Euro 2024 final**\
+`Spain full-back Jesus Navas has announced he will retire from international football following Sunday&#8217;s European Championship final against England and he will end his playing career entirely at the end of the year.`\
+https://nytimes.com/athletic/5635208/2024/07/13/jesus-navas-spain-retirement-euro-2024/
+
 **Some of Dr. Ruth’s Most Memorable Moments**\
 `After rising to fame in the 1980s, Ruth Westheimer, known as Dr. Ruth, mingled with celebrities, wrote dozens of books and was named as New York’s “loneliness ambassador.”`\
 https://nytimes.com/2024/07/13/arts/dr-ruth-westheimer-career-highlights.html
