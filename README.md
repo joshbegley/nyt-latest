@@ -1,3 +1,7 @@
+**On the Hands of India’s Brides, Reminders of a Stark Wealth Divide**\
+`Henna artists’ elaborate designs are a hallmark of Indian weddings. They also highlight a disparity where some are fabulously rich and many earn very little.`\
+https://nytimes.com/2024/07/13/world/asia/india-weddings-henna-wealth-divide.html
+
 **Corrections: July 13, 2024**\
 `Corrections that appeared in print on Saturday, July 13, 2024.`\
 https://nytimes.com/2024/07/13/pageoneplus/corrections-july-13-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5633196/2024/07/13/lamine-yamal-lionel-messi/
 **Forget the favourites. Turkey, Switzerland and Austria's tactics are what made Euro 2024 fun**\
 `How the approach of mid-level nations gave the tournament its spark`\
 https://nytimes.com/athletic/5633214/2024/07/13/turkey-switzerland-austria-tactics-euro-2024/
-
-**Euro 2024 and the invasion of the selfie snatchers**\
-`The finals have seen a spate of fans venturing on to the pitch seeking photos with stars despite UEFA promising “additional safety measures"`\
-https://nytimes.com/athletic/5633688/2024/07/13/pitch-invaders-selfies-euro-2024/
 
