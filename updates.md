@@ -1,3 +1,7 @@
+**De la Fuente insists Spain 'not favourites' for Euro 2024 final vs England**\
+`Spain head coach Luis de la Fuente insists there are &#8220;no favourites&#8221; in the European Championship final between his side and England.`\
+https://nytimes.com/athletic/5635624/2024/07/13/spain-euro-2024-final-luis-de-la-fuente/
+
 **Phillies tie National League record with 8 All-Stars**\
 `Sánchez was named to the All-Star Game as a replacement for Atlanta Braves starting pitcher Chris Sale.`\
 https://nytimes.com/athletic/5635553/2024/07/13/cristopher-sanchez-phillies-national-league-all-star-record/

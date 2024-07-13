@@ -1,3 +1,7 @@
+**De la Fuente insists Spain 'not favourites' for Euro 2024 final vs England**\
+`Spain head coach Luis de la Fuente insists there are &#8220;no favourites&#8221; in the European Championship final between his side and England.`\
+https://nytimes.com/athletic/5635624/2024/07/13/spain-euro-2024-final-luis-de-la-fuente/
+
 **Phillies tie National League record with 8 All-Stars**\
 `Sánchez was named to the All-Star Game as a replacement for Atlanta Braves starting pitcher Chris Sale.`\
 https://nytimes.com/athletic/5635553/2024/07/13/cristopher-sanchez-phillies-national-league-all-star-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5635535/2024/07/13/nottingham-forest-transfers-nuno
 **Onana fits Emery's vision for Aston Villa as a Champions League team**\
 `Amadou Onana is heading for Aston Villa and he looks ideal for an Unai Emery midfield`\
 https://nytimes.com/athletic/5635345/2024/07/13/amadou-onana-aston-villa/
-
-**Bernie Sanders urges Democrats to stay the course with Biden.**\
-`The Vermont senator, whom President Biden defeated in the 2020 Democratic primary, vouched for the president in a guest essay in The New York Times.`\
-https://nytimes.com/live/2024/07/13/us/biden-trump-election/bernie-sanders-urges-democrats-to-stay-the-course-with-biden
 
