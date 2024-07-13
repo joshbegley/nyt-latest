@@ -1,4 +1,8 @@
 **Yankees' Jose Trevino leaves game with leg injury**\
+`Trevino injured his quadriceps on a run-scoring slide into home, not in the bench-clearing brawl in the ninth inning.`\
+https://nytimes.com/athletic/5634768/2024/07/13/yankees-jose-trevino-injury/
+
+**Yankees' Jose Trevino leaves game with leg injury**\
 `Trevino injured his quadriceps
  on a run-scoring slide into home, not in the bench-clearing brawl in the ninth inning.`\
 https://nytimes.com/athletic/5634768/2024/07/13/yankees-jose-trevino-injury/
