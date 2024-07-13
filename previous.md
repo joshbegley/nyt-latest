@@ -1,40 +1,40 @@
-**Works of a Polarizing Composer Will Bring People Together**\
-`A concert series at the Salzburg Festival, along with other events, will celebrate Arnold Schönberg’s 150th birthday and bring his music to new audiences.`\
-https://nytimes.com/2024/07/13/arts/music/arnold-schonberg-salzburg-festival.html
+**After Dismissal of Bankruptcy Case, Here’s What’s Next for Giuliani**\
+`Without the protection of Chapter 11, the former mayor and Trump lawyer could have his assets seized and sold by creditors.`\
+https://nytimes.com/2024/07/13/us/politics/after-dismissal-of-bankruptcy-case-heres-whats-next-for-giuliani.html
 
-**It’s Hot, Humid and Hazardous**\
-`Heat, on average, is the deadliest weather disaster in the U.`\
-https://nytimes.com/video/weather/100000009544347/its-hot-humid-and-hazardous.html
+**What to Expect as a Punishing Heat Wave Shifts East**\
+`The West will get a small break from record-breaking heat, while much of the Midwest and the East Coast swelter into next week.`\
+https://nytimes.com/2024/07/13/us/heat-wave-forecast.html
 
-**Ukraine Is Targeting Crimea, a Critical Base for Russia’s Invasion**\
-`Newly armed with deep-strike missiles, Kyiv is trying to degrade Russian abilities on the peninsula, aiming at airfields, air defenses and logistics hubs.`\
-https://nytimes.com/2024/07/13/world/europe/ukraine-russia-crimea.html
+**A Study in Scarlett**\
+`After avenging herself on Disney and OpenAI, Ms. Johansson stars in a summer rom-com revolving around the race to the moon.`\
+https://nytimes.com/2024/07/13/style/scarlett-johansson-snl-fly-me-to-the-moon.html
 
-**How Janet Yellen Became an Unlikely Culinary Diplomat**\
-`The Treasury secretary views food as a way to connect, and her dining decisions have become the subject of global intrigue.`\
-https://nytimes.com/2024/07/13/us/politics/janet-yellen-food.html
+**Quannah ChasingHorse’s Mother-of-Pearl Septum Tusk**\
+`The pieces that the Indigenous model and activist wears are symbols that reclaim sacred traditions and practices from her communities.`\
+https://nytimes.com/2024/07/13/style/quannah-chasinghorses-mother-of-pearl-septum-tusk.html
 
-**How Do You Tell Immigrant Stories? Dinaw Mengestu Has an Answer.**\
-`The Ethiopian American novelist also talks aesthetics and the inspiration behind his most recent novel, “Someone Like Us.”`\
-https://nytimes.com/2024/07/13/books/booksupdate/dinaw-mengestu-someone-like-us.html
+**The N.R.A. Is Facing a Court Fight for Control of Its Future**\
+`Wayne LaPierre was ousted on the eve of the first phase of the trial. In the second act, the stakes will be far higher.`\
+https://nytimes.com/2024/07/13/nyregion/nra-trial-nyc.html
 
-**Is There a Future in the Doomsday Economy?**\
-`With Fortitude Ranch, the entrepreneur Drew Miller is betting on franchised timeshares for people who are worried about the end of the world.`\
-https://nytimes.com/2024/07/13/business/is-there-a-future-in-the-doomsday-economy.html
+**The Nazi Jurist Who Haunts Our Broken Politics**\
+`A contempt for compromise. An expansive vision of executive power. Both owe much to Carl Schmitt.`\
+https://nytimes.com/2024/07/13/books/review/carl-schmitt-jd-vance.html
 
-**How Young Artists Take Inspiration From Religion in Uncertain Times**\
-`Inheritors of a world shaped by big tech and precarious careers, these New York artists are searching for answers in good faith.`\
-https://nytimes.com/2024/07/13/arts/design/art-spirituality-religion-beliefs-christianity-new-york.html
+**After Homelessness Ruling, Cities Weigh Whether to Clear Encampments**\
+`The Supreme Court decided last month that cities could cite homeless campers. Some say ‘clear them all.’ Others are ramping up outreach.`\
+https://nytimes.com/2024/07/13/us/homeless-camps-supreme-court-ruling.html
 
-**Hidetoshi Nishijima Was ‘Overwhelmed’ by This Filmmaker’s Work**\
-`After seeing “Husbands” and “Minnie and Moskowitz,” the actor from “Drive My Car” and the new Apple TV+ series “Sunny” said, “I couldn’t go home. I just kept bicycling around.”`\
-https://nytimes.com/2024/07/13/arts/television/hidetoshi-nishijima-sunny.html
+**The Secrets to the Best Grilled Chicken**\
+`A chef offers expert advice on yielding perfectly succulent breasts and thighs (bone-in or boneless) every time.`\
+https://nytimes.com/2024/07/13/dining/how-to-grill-chicken.html
 
-**Hispanic Male Democrats Make an Abortion-Rights Pitch to Latino Men**\
-`These candidates say the issue cannot be avoided in 2024, and dismiss the notion that focusing on men, who typically prioritize the economy, is a risk.`\
-https://nytimes.com/2024/07/13/us/politics/hispanic-democrats-abortion-latino-men.html
+**Melding 3 Ancient Versions of the Ultimate Greek Tragedy**\
+`At the Salzburg Festival, a new adaptation of “The Oresteia” will put a classic story of war, democracy and revenge into a modern context.`\
+https://nytimes.com/2024/07/13/arts/salzburg-festival-greek-tragedy.html
 
-**The $25 Trillion System of Retirement Savings Needs Fixing**\
-`Fifty years after Congress passed a landmark retirement law, 401(k) and I.R.A. accounts enrich mostly higher-income households. Here are five ways they can be improved.`\
-https://nytimes.com/2024/07/13/business/the-25-trillion-system-of-retirement-savings-needs-fixing.html
+**Is Your Condo Board Falling Short? Here’s How to Take Over.**\
+`Building administrators sometimes fail to follow their own rules. Legal action is one option, but a more direct approach can also yield results.`\
+https://nytimes.com/2024/07/13/realestate/is-your-condo-board-falling-short-heres-how-to-take-over.html
 
