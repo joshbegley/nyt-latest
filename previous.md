@@ -1,3 +1,7 @@
+**What Is Mawasi, the ‘humanitarian zone’ where a Hamas commander was targeted?**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/07/13/world/israel-gaza-war-hamas/what-is-mawasi-the-humanitarian-zone-where-a-hamas-commander-was-targeted
+
 **On an Island in Maine, a Meal Worth Traveling For**\
 `A family celebrated the arrival of a special artwork at their home by inviting its maker to stay — and cooking her an oceanside dinner.`\
 https://nytimes.com/2024/07/13/t-magazine/brooke-williams-josh-liberson-dinner-party.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5634967/2024/07/13/england-fans-euro-2024-journey/
 **Why the Copa America final will a red letter day for Spanish-language broadcasters**\
 `Sunday's final between Argentina and Colombia is a huge moment for Spanish-language broadcasters and their authentic voice`\
 https://nytimes.com/athletic/5635226/2024/07/13/copa-america-final-spanish-language-broadcasters/
-
-**The Republicans Are Headed to Milwaukee. So Are Protesters.**\
-`A range of activists, energized over abortion limits, Israel’s military action in Gaza and immigration, say they plan to march in the city.`\
-https://nytimes.com/2024/07/13/us/rnc-milwaukee-protests.html
 

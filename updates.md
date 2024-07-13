@@ -1,3 +1,7 @@
+**What Is Mawasi, the ‘humanitarian zone’ where a Hamas commander was targeted?**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/07/13/world/israel-gaza-war-hamas/what-is-mawasi-the-humanitarian-zone-where-a-hamas-commander-was-targeted
+
 **On an Island in Maine, a Meal Worth Traveling For**\
 `A family celebrated the arrival of a special artwork at their home by inviting its maker to stay — and cooking her an oceanside dinner.`\
 https://nytimes.com/2024/07/13/t-magazine/brooke-williams-josh-liberson-dinner-party.html
