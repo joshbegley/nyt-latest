@@ -1,3 +1,7 @@
+**Back in San Francisco first time since failed megadeal, Carlos Correa content, looking ahead**\
+`The Minnesota Twins All-Star shortstop played his first game at Oracle Park on Friday since his possible move to the Giants fell apart.`\
+https://nytimes.com/athletic/5634757/2024/07/13/carlos-correa-back-in-san-francisco/
+
 **Yankees' Jose Trevino leaves game with leg injury**\
 `Trevino injured his quadriceps on a run-scoring slide into home, not in the bench-clearing brawl in the ninth inning.`\
 https://nytimes.com/athletic/5634768/2024/07/13/yankees-jose-trevino-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5634735/2024/07/13/dodgers-rally-defeat-tigers/
 **Saturday's MLB game odds, best bets: Best and worst starting pitchers, playoff odds, props and more**\
 `Projections for Saturday's MLB games with expert picks for best bets, pitcher props, home run trends and more.`\
 https://nytimes.com/athletic/5627344/2024/07/13/mlb-odds-predictions-best-bets-july-13/
-
-**This Soccer Player Wanted to Wear Her Hijab on the Field. France Wouldn’t Let Her.**\
-`Lina Boussaha joined a team in Saudi Arabia so she could wear her head scarf while playing the sport she calls “a part of my soul.”`\
-https://nytimes.com/2024/07/13/world/europe/soccer-hijab-france.html
 
