@@ -1,3 +1,7 @@
+**On an Island in Maine, a Meal Worth Traveling For**\
+`A family celebrated the arrival of a special artwork at their home by inviting its maker to stay — and cooking her an oceanside dinner.`\
+https://nytimes.com/2024/07/13/t-magazine/brooke-williams-josh-liberson-dinner-party.html
+
 **Harrison Butker responds to Serena Williams' ESPYs jab**\
 `Williams' dig came as she discussed women's sports while hosting the ESPY Awards on Thursday.`\
 https://nytimes.com/athletic/5634806/2024/07/13/harrison-butker-serena-williams-espy-comments/
