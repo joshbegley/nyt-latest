@@ -1,3 +1,7 @@
+**Aston Villa in process of finalising agreement with Everton for Onana**\
+`Aston Villa are in the process of finalising an agreement with Everton to sign Amadou Onana.`\
+https://nytimes.com/athletic/5565470/2024/07/13/amadou-onana-transfer-everton-aston-villa/
+
 **Ipswich complete signing of Delap from Manchester City**\
 `Ipswich Town have completed the signing of striker Liam Delap from Manchester City.`\
 https://nytimes.com/athletic/5623663/2024/07/13/liam-delap-ipswich-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/13/style/scarlett-johansson-snl-fly-me-to-the-moon.h
 **Quannah ChasingHorse’s Mother-of-Pearl Septum Tusk**\
 `The pieces that the Indigenous model and activist wears are symbols that reclaim sacred traditions and practices from her communities.`\
 https://nytimes.com/2024/07/13/style/quannah-chasinghorses-mother-of-pearl-septum-tusk.html
-
-**The N.R.A. Is Facing a Court Fight for Control of Its Future**\
-`Wayne LaPierre was ousted on the eve of the first phase of the trial. In the second act, the stakes will be far higher.`\
-https://nytimes.com/2024/07/13/nyregion/nra-trial-nyc.html
 

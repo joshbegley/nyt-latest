@@ -1,3 +1,7 @@
+**Aston Villa in process of finalising agreement with Everton for Onana**\
+`Aston Villa are in the process of finalising an agreement with Everton to sign Amadou Onana.`\
+https://nytimes.com/athletic/5565470/2024/07/13/amadou-onana-transfer-everton-aston-villa/
+
 **Ipswich complete signing of Delap from Manchester City**\
 `Ipswich Town have completed the signing of striker Liam Delap from Manchester City.`\
 https://nytimes.com/athletic/5623663/2024/07/13/liam-delap-ipswich-transfer/
