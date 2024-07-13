@@ -1,3 +1,7 @@
+**Onana fits Emery's vision for Aston Villa as a Champions League team**\
+`Amadou Onana is heading for Aston Villa and he looks ideal for an Unai Emery midfield`\
+https://nytimes.com/athletic/5635345/2024/07/13/amadou-onana-aston-villa/
+
 **Bernie Sanders urges Democrats to stay the course with Biden.**\
 `The Vermont senator, whom President Biden defeated in the 2020 Democratic primary, vouched for the president in a guest essay in The New York Times.`\
 https://nytimes.com/live/2024/07/13/us/biden-trump-election/bernie-sanders-urges-democrats-to-stay-the-course-with-biden
