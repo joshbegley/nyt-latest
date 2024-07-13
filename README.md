@@ -1,3 +1,7 @@
+**Galaxy fined $100K after supporter group misconduct**\
+`Fans lit off flares in the stands during the rivalry game at the Rose Bowl.`\
+https://nytimes.com/athletic/5634671/2024/07/12/la-galaxy-fine-supporter-groups-mls/
+
 **Kennedy Sent Apologetic Text to Woman Who Accused Him of Sexual Assault**\
 `Robert F. Kennedy Jr. privately reached out last week to a woman who accused him of sexually assaulting her in the late 1990s, an account detailed in a recent magazine article.`\
 https://nytimes.com/2024/07/12/us/politics/kennedy-sexual-assault-accusation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/12/us/politics/biden-voters-doubts.html
 **What Republicans Have Been Up to While Biden’s Drama Has Unfolded**\
 `While Biden has been in the spotlight, Republicans rewrote their platform and used dark rhetoric.`\
 https://nytimes.com/2024/07/12/us/politics/biden-republicans-trump.html
-
-**Meta Rolls Back Restrictions on Trump’s Instagram and Facebook Accounts**\
-`The company said on Friday that its users should be able to hear from all presidential candidates “on the same basis.”`\
-https://nytimes.com/2024/07/12/us/politics/meta-trump-instagram-facebook.html
 
