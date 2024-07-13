@@ -1,3 +1,7 @@
+**Angry Birds Take on Drones at New York City Beach**\
+`American Oystercatchers are attacking drones that have been deployed to scan for sharks and swimmers in distress.`\
+https://nytimes.com/2024/07/13/nyregion/nyc-beaches-drones-angry-birds.html
+
 **Why Does a Routine Test of Newborns Reward ‘Pink’ Skin?**\
 `The Apgar test grades infants in five areas, including skin tone. Babies of color score lower, and may be subjected to unnecessary treatment.`\
 https://nytimes.com/2024/07/13/health/apgar-score-black-infants.html
