@@ -1,3 +1,7 @@
+**Kamala Harris calls Trump a politician who ‘incites hate.’**\
+`By Nicholas Nehamas`\
+https://nytimes.com/live/2024/07/13/us/biden-trump-election/kamala-harris-calls-trump-a-politician-who-incites-hate
+
 **It Goes Both Ways**\
 `Jeff Chen’s puzzle takes solvers to the point of no return (and back).`\
 https://nytimes.com/2024/07/13/crosswords/daily-puzzle-2024-07-14.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/13/nyregion/fdny-commissioner-laura-kavanagh-resign.
 **Two Trump Sons Set to Speak at G.O.P. Convention, but No Word on Melania**\
 `Donald Trump’s daughters also were not on the list of next week’s speakers released by the Trump campaign and Republican National Committee.`\
 https://nytimes.com/2024/07/13/us/politics/trump-rnc-speakers.html
-
-**Man Gets 226 Years in Prison in the Alaska Killings of 2 Native Women**\
-`The man was arrested in 2019 after a woman turned over images and a video of one of the murders that she had found on his phone. He confessed to having killed another woman, the authorities said.`\
-https://nytimes.com/2024/07/13/us/brian-smith-sentence-killing-alaska-native-women.html
 
