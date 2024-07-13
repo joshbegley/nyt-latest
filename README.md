@@ -1,3 +1,7 @@
+**In summer-league debut, Reed Sheppard flashes traits that made him a top-5 pick**\
+`Early against the Lakers, the Houston rookie watched, learned and processed. Then he hit the court and executed.`\
+https://nytimes.com/athletic/5634721/2024/07/13/reed-sheppard-rockets-nba-summer-league/
+
 **From Jordan Pickford's Sunderland, to Ollie Watkins' Newton Abbot: What England thinks of England**\
 `The Athletic embarked on a road trip to test the temperature of a country that hasn't always seemed entirely enthusiastic during Euro 2024`\
 https://nytimes.com/athletic/5634967/2024/07/13/england-fans-euro-2024-journey/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5635277/2024/07/13/barbora-krejcikova-jasmine-paoli
 **Colorado Reports Three More Presumed Cases of Bird Flu**\
 `The cases, which have yet to be confirmed, were identified in farmworkers culling infected birds. The risk to the public remains low, health officials said.`\
 https://nytimes.com/2024/07/13/science/bird-flu-colorado.html
-
-**Bollywood Stars, Former Prime Ministers and the Kardashians Attend the Ambani Wedding**\
-`After months of lavish prewedding festivities that have captured the attention of onlookers worldwide, Anant Ambani, the youngest son of India’s richest man, married Radhika Merchant in Mumbai.`\
-https://nytimes.com/2024/07/13/fashion/weddings/anant-ambani-wedding-guests.html
 
