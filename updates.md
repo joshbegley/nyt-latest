@@ -1,3 +1,7 @@
+**Nottm Forest 'still need to do work' in transfer window - Nuno**\
+`Nuno Espirito Santo says Nottingham Forest still have more to do in the transfer market to prepare them for the new Premier League season.`\
+https://nytimes.com/athletic/5635535/2024/07/13/nottingham-forest-transfers-nuno/
+
 **Onana fits Emery's vision for Aston Villa as a Champions League team**\
 `Amadou Onana is heading for Aston Villa and he looks ideal for an Unai Emery midfield`\
 https://nytimes.com/athletic/5635345/2024/07/13/amadou-onana-aston-villa/
