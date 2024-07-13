@@ -1,6 +1,6 @@
 **Back in San Francisco first time since failed megadeal, Carlos Correa content, looking ahead**\
 `The Minnesota Twins All-Star shortstop played his first game at Oracle Park on Friday since his possible move to the Giants fell apart.`\
-https://nytimes.com/athletic/5634757/2024/07/13/carlos-correa-back-in-san-francisco/
+https://nytimes.com/athletic/5634757/2024/07/13/twins-carlos-correa-back-in-san-francisco/
 
 **Yankees' Jose Trevino leaves game with leg injury**\
 `Trevino injured his quadriceps on a run-scoring slide into home, not in the bench-clearing brawl in the ninth inning.`\
