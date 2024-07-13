@@ -1,3 +1,7 @@
+**Trump Is Rushed Offstage During Rally in Pennsylvania After Sounds Like Shots**\
+`Just minutes into the event, a series of pops that sounded like gunshots rang out. Donald Trump’s ear appeared to be bleeding heavily.`\
+https://nytimes.com/2024/07/13/us/trump-rally-pennsylvania.html
+
 **Pritzker Tries to Reassure Fellow Midwestern Democrats Amid Biden Anxiety**\
 `Gov. JB Pritzker of Illinois spoke to Democratic gatherings in Indiana and Ohio as party leaders tried to ease panic about President Biden.`\
 https://nytimes.com/2024/07/13/us/pritzker-biden-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/13/world/middleeast/israel-hamas-deif-mawasi-khan-yo
 **A smiling ghost of Centre Court - and a Wimbledon final in no need of a grand narrative**\
 `Barbora Krejcikova and Jasmine Paolini's Wimbledon final may not be part of a grand tennis narrative. It doesn't need to be – it was enough`\
 https://nytimes.com/athletic/5635592/2024/07/13/wimbledon-final-barbora-krejcikova-jana-novotna/
-
-**Fire Dept. Commissioner Laura Kavanagh to Step Down**\
-`Ms. Kavanagh, the first woman to oversee the New York Fire Department in its nearly 160-year history, gave no explanation for her departure.`\
-https://nytimes.com/2024/07/13/nyregion/fdny-commissioner-laura-kavanagh-resign.html
 
