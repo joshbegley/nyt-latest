@@ -1,3 +1,7 @@
+**Elon Musk endorses Trump, moments after episode at his rally.**\
+`Mr. Musk has drifted rightward considerably during the Biden era.`\
+https://nytimes.com/live/2024/07/13/us/biden-trump-election/elon-musk-endorses-trump-moments-after-episode-at-his-rally
+
 **A series of pops was heard just minutes into the event. Here’s the latest.**\
 `By Michael Gold and Simon J. Levien`\
 https://nytimes.com/live/2024/07/13/us/biden-trump-election/trump-rally-pennsylvania

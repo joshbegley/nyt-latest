@@ -1,3 +1,7 @@
+**Elon Musk endorses Trump, moments after episode at his rally.**\
+`Mr. Musk has drifted rightward considerably during the Biden era.`\
+https://nytimes.com/live/2024/07/13/us/biden-trump-election/elon-musk-endorses-trump-moments-after-episode-at-his-rally
+
 **The Irony of Dr. Ruth**\
 `People often laughed when she spoke, but Ruth Westheimer delivered a punch that challenged norms for older women.`\
 https://nytimes.com/2024/07/13/style/dr-ruth.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5635843/2024/07/13/copa-america-halftime-show-shaki
 **Thomas Hoepker, Who Captured an Indelible 9/11 Image, Dies at 88**\
 `His photograph of five young people lounging on the Brooklyn waterfront as smoke engulfed Manhattan mesmerized viewers and stirred controversy.`\
 https://nytimes.com/2024/07/13/arts/thomas-hoepker-dead.html
-
-**A series of pops was heard just minutes into the event. Here’s the latest.**\
-`By Michael Gold and Simon J. Levien`\
-https://nytimes.com/live/2024/07/13/us/biden-trump-election/trump-rally-pennsylvania
 
