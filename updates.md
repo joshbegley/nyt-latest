@@ -1,3 +1,7 @@
+**Marc Cucurella: Spain's Euro 2024 cult hero on Cole Palmer, England and change at Chelsea**\
+`The 25-year-old left-back's performances in Germany have surprised some - but he has always backed himself`\
+https://nytimes.com/athletic/5634186/2024/07/13/marc-cucurella-interview-chelsea-spain-euro-2024/
+
 **Back in San Francisco first time since failed megadeal, Carlos Correa content, looking ahead**\
 `The Minnesota Twins All-Star shortstop played his first game at Oracle Park on Friday since his possible move to the Giants fell apart.`\
 https://nytimes.com/athletic/5634757/2024/07/13/twins-carlos-correa-back-in-san-francisco/
