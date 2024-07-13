@@ -1,3 +1,7 @@
+**Kennedy Sent Apologetic Text to Woman Who Accused Him of Sexual Assault**\
+`Robert F. Kennedy Jr. privately reached out last week to a woman who accused him of sexually assaulting her in the late 1990s, an account detailed in a recent magazine article.`\
+https://nytimes.com/2024/07/12/us/politics/kennedy-sexual-assault-accusation.html
+
 **NBA Cup groups revealed**\
 `The championship will be held at T-Mobile Arena in Las Vegas.`\
 https://nytimes.com/athletic/5634639/2024/07/12/nba-cup-groups-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/12/us/politics/biden-republicans-trump.html
 **Meta Rolls Back Restrictions on Trump’s Instagram and Facebook Accounts**\
 `The company said on Friday that its users should be able to hear from all presidential candidates “on the same basis.”`\
 https://nytimes.com/2024/07/12/us/politics/meta-trump-instagram-facebook.html
-
-**U.S. Soccer honors the World Cup winners of 1999 whose struggle paved the way for equal pay**\
-`The World Cup winners were inspired by Billie Jean King to fight for improved pay and working conditions - a struggle they would win`\
-https://nytimes.com/athletic/5634492/2024/07/12/uswnt-1999-equal-pay-honored/
 

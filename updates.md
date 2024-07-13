@@ -1,3 +1,7 @@
+**Kennedy Sent Apologetic Text to Woman Who Accused Him of Sexual Assault**\
+`Robert F. Kennedy Jr. privately reached out last week to a woman who accused him of sexually assaulting her in the late 1990s, an account detailed in a recent magazine article.`\
+https://nytimes.com/2024/07/12/us/politics/kennedy-sexual-assault-accusation.html
+
 **NBA Cup groups revealed**\
 `The championship will be held at T-Mobile Arena in Las Vegas.`\
 https://nytimes.com/athletic/5634639/2024/07/12/nba-cup-groups-2024/
