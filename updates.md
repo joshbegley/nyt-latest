@@ -1,3 +1,7 @@
+**Gaza’s collapsing hospitals struggle to deal with the numbers of wounded in the latest strike.**\
+`By Hiba Yazbek and Ameera Harouda`\
+https://nytimes.com/live/2024/07/13/world/israel-gaza-war-hamas/gazas-collapsing-hospitals-struggle-to-deal-with-the-numbers-of-wounded-in-the-latest-strike
+
 **Bill Viola, Celebrated Video Artist Who Played With Time, Dies at 73**\
 `Inspired by Renaissance painters, he explored life’s passages — birth, death, romantic love, redemption and rebirth — in often moving, often thrilling exhibitions.`\
 https://nytimes.com/2024/07/13/arts/bill-viola-dead.html
