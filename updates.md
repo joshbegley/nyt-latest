@@ -1,3 +1,11 @@
+**A smiling ghost of Centre Court - and a Wimbledon final in no need of a grand narrative**\
+`Barbora Krejcikova and Jasmine Paolini's Wimbledon final may not be part of a grand tennis narrative. It doesn't need to be – it was enough`\
+https://nytimes.com/athletic/5635592/2024/07/13/wimbledon-final-barbora-krejcikova-jana-novotna/
+
+**Fire Dept. Commissioner Laura Kavanagh to Step Down**\
+`Ms. Kavanagh, the first woman to oversee the New York Fire Department in its nearly 160-year history, gave no explanation for her departure.`\
+https://nytimes.com/2024/07/13/nyregion/fdny-commissioner-laura-kavanagh-resign.html
+
 **Two Trump Sons Set to Speak at G.O.P. Convention, but No Word on Melania**\
 `Donald Trump’s daughters also were not on the list of next week’s speakers released by the Trump campaign and Republican National Committee.`\
 https://nytimes.com/2024/07/13/us/politics/trump-rnc-speakers.html

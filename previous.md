@@ -1,3 +1,11 @@
+**A smiling ghost of Centre Court - and a Wimbledon final in no need of a grand narrative**\
+`Barbora Krejcikova and Jasmine Paolini's Wimbledon final may not be part of a grand tennis narrative. It doesn't need to be – it was enough`\
+https://nytimes.com/athletic/5635592/2024/07/13/wimbledon-final-barbora-krejcikova-jana-novotna/
+
+**Fire Dept. Commissioner Laura Kavanagh to Step Down**\
+`Ms. Kavanagh, the first woman to oversee the New York Fire Department in its nearly 160-year history, gave no explanation for her departure.`\
+https://nytimes.com/2024/07/13/nyregion/fdny-commissioner-laura-kavanagh-resign.html
+
 **Two Trump Sons Set to Speak at G.O.P. Convention, but No Word on Melania**\
 `Donald Trump’s daughters also were not on the list of next week’s speakers released by the Trump campaign and Republican National Committee.`\
 https://nytimes.com/2024/07/13/us/politics/trump-rnc-speakers.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5635624/2024/07/13/spain-euro-2024-final-luis-de-la
 **Phillies tie National League record with 8 All-Stars**\
 `Sánchez was named to the All-Star Game as a replacement for Atlanta Braves starting pitcher Chris Sale.`\
 https://nytimes.com/athletic/5635553/2024/07/13/cristopher-sanchez-phillies-national-league-all-star-record/
-
-**Southgate 'a believer in dreams' ahead of Euro 2024 final**\
-`Gareth Southgate says he is &#8220;a believer in dreams&#8221; on the eve of England&#8217;s latest date with destiny in the Euro 2024 final with Spain on Sunday.`\
-https://nytimes.com/athletic/5635596/2024/07/13/england-euro-2024-final-gareth-southgate/
-
-**2 Measles Cases Reported in New York City Migrant Shelter**\
-`The highly contagious disease was detected in a shelter in Brooklyn, according to the health department. More cases of measles have been reported in the city this year than in all of 2023.`\
-https://nytimes.com/2024/07/13/nyregion/measles-nyc-migrant-shelter.html
 
