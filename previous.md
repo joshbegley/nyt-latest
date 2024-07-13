@@ -1,3 +1,11 @@
+**Padres' Fernando Tatis Jr. gives positive update on leg injury, will miss less time than feared**\
+`'They were saying in the beginning that I probably would have lost the season,' Tatis Jr. said Friday. 'But it’s definitely not that.”`\
+https://nytimes.com/athletic/5634508/2024/07/12/padres-fernando-tatis-leg-injury/
+
+**Yankees-Orioles fight erupts, benches clear**\
+`Orioles manager Brandon Hyde was ejected.`\
+https://nytimes.com/athletic/5634705/2024/07/12/yankees-orioles-benches-clear-fight-mlb/
+
 **Serving Dishes?**\
 `Eli Cotham’s first Saturday puzzle for The Times gives us something to talk about.`\
 https://nytimes.com/2024/07/12/crosswords/daily-puzzle-2024-07-13.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/russian-prosecutors-repress
 **Baldwin Weeps After ‘Rust’ Case Is Dismissed**\
 `A judge in New Mexico dismissed the case against the actor Alec Baldwin on Friday after finding that the state had withheld evidence.`\
 https://nytimes.com/video/us/100000009569575/alec-baldwin-rust-trial.html
-
-**More Than 23 Million Watched Biden’s News Conference, Beating the Oscars**\
-`The drama surrounding the president’s bid for re-election has captured voters’ interest.`\
-https://nytimes.com/2024/07/12/us/politics/bidens-news-conference-ratings.html
-
-**Mercury naming courts after Taurasi at new practice facility**\
-`Taurasi, a three-time WNBA champion, 11-time All-Star and the league's all-time leading scorer, has played her entire career in Phoenix.`\
-https://nytimes.com/athletic/5634536/2024/07/12/diana-taurasi-mercury-courts-practice-facility/
 
