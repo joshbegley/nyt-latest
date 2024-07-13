@@ -1,3 +1,7 @@
+**The Irony of Dr. Ruth**\
+`People often laughed when she spoke, but Ruth Westheimer delivered a punch that challenged norms for older women.`\
+https://nytimes.com/2024/07/13/style/dr-ruth.html
+
 **Scaloni, Martinez defend Uruguay players after Colombia fan clashes**\
 `Argentina head coach Lionel Scaloni and goalkeeper Emiliano Martinez have come out in defense of Uruguay’s players following the fan violence that took place on Wednesday night in Charlotte, North Carolina.`\
 https://nytimes.com/athletic/5635866/2024/07/13/argentina-uruguay-colombia-fans/
