@@ -1,3 +1,7 @@
+**Terrence Shannon Jr. won't be given a Wolves rotation spot — he just needs to take it**\
+`Shannon finished with 25 points on 9-of-14 shooting, grabbed three rebounds and blocked two shots in Minnesota's 81-74 victory.`\
+https://nytimes.com/athletic/5634503/2024/07/13/terrence-shannon-jr-timberwolves-rotation/
+
 **Robert Putnam Knows Why You’re Lonely**\
 `The author of “Bowling Alone” warned us about social isolation and its effect on democracy a quarter century ago. Things have only gotten worse.`\
 https://nytimes.com/2024/07/13/magazine/robert-putnam-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/13/books/review/carl-schmitt-jd-vance.html
 **After Homelessness Ruling, Cities Weigh Whether to Clear Encampments**\
 `The Supreme Court decided last month that cities could cite homeless campers. Some say ‘clear them all.’ Others are ramping up outreach.`\
 https://nytimes.com/2024/07/13/us/homeless-camps-supreme-court-ruling.html
-
-**The Secrets to the Best Grilled Chicken**\
-`A chef offers expert advice on yielding perfectly succulent breasts and thighs (bone-in or boneless) every time.`\
-https://nytimes.com/2024/07/13/dining/how-to-grill-chicken.html
 
