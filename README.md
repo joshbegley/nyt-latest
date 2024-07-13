@@ -1,3 +1,7 @@
+**Serving Dishes?**\
+`Eli Cotham’s first Saturday puzzle for The Times gives us something to talk about.`\
+https://nytimes.com/2024/07/12/crosswords/daily-puzzle-2024-07-13.html
+
 **Phillies' Whit Merrifield move just the first domino as they rearrange bench, weigh trade options**\
 `The Phillies can be picky about how they tweak their roster this month. They've signaled they're prioritizing a trade for a RHH outfielder. `\
 https://nytimes.com/athletic/5634667/2024/07/12/phillies-trade-options-outfielder-release-whit-merrifield/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/12/us/politics/bidens-news-conference-ratings.html
 **Mercury naming courts after Taurasi at new practice facility**\
 `Taurasi, a three-time WNBA champion, 11-time All-Star and the league's all-time leading scorer, has played her entire career in Phoenix.`\
 https://nytimes.com/athletic/5634536/2024/07/12/diana-taurasi-mercury-courts-practice-facility/
-
-**Speaking at Trump’s Convention: Former Democrats, a Rancher and Trump Employees**\
-`Officials rolled out a list of “everyday Americans” who would address the Republican convention and highlight key themes such as immigration. The list also includes two employees of Donald Trump’s golf properties.`\
-https://nytimes.com/2024/07/12/us/rnc-attendees.html
 
