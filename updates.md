@@ -1,3 +1,7 @@
+**A video captures casualties and damage from the Israeli strike on southern Gaza.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/07/13/world/israel-gaza-war-hamas/a-video-captures-casualties-and-damage-from-the-israeli-strike-on-southern-gaza
+
 **What if the A.I. Boosters Are Wrong?**\
 `A skeptical paper by Daron Acemoglu, a labor economist at M.I.T., has triggered a heated debate over whether artificial intelligence will supercharge productivity.`\
 https://nytimes.com/2024/07/13/business/dealbook/what-if-the-ai-boosters-are-wrong.html
