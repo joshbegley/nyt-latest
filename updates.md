@@ -1,3 +1,7 @@
+**Colorado Reports Three More Presumed Cases of Bird Flu**\
+`The cases, which have yet to be confirmed, were identified in farmworkers culling infected birds. The risk to the public remains low, health officials said.`\
+https://nytimes.com/2024/07/13/science/bird-flu-colorado.html
+
 **Bollywood Stars, Former Prime Ministers and the Kardashians Attend the Ambani Wedding**\
 `After months of lavish prewedding festivities that have captured the attention of onlookers worldwide, Anant Ambani, the youngest son of India’s richest man, married Radhika Merchant in Mumbai.`\
 https://nytimes.com/2024/07/13/fashion/weddings/anant-ambani-wedding-guests.html
