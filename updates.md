@@ -1,3 +1,7 @@
+**Ruth Westheimer, the Sex Guru Known as Dr. Ruth, Dies at 96**\
+`Frank and funny, the taboo-breaking psychologist said things on television and radio that would have been shocking coming from almost anyone else.`\
+https://nytimes.com/2024/07/13/arts/television/ruth-westheimer-dead.html
+
 **Alex Sarr, Bub Carrington show they could be game-changers Washington needs**\
 `Two of the Wizards' prized rookies played well in their summer-league debuts. `\
 https://nytimes.com/athletic/5634920/2024/07/13/alex-sarr-bub-carrington-summer-league-debuts/
