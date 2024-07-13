@@ -1,3 +1,7 @@
+**Southgate 'a believer in dreams' ahead of Euro 2024 final**\
+`Gareth Southgate says he is &#8220;a believer in dreams&#8221; on the eve of England&#8217;s latest date with destiny in the Euro 2024 final with Spain on Sunday.`\
+https://nytimes.com/athletic/5635596/2024/07/13/england-euro-2024-final-gareth-southgate/
+
 **2 Measles Cases Reported in New York City Migrant Shelter**\
 `The highly contagious disease was detected in a shelter in Brooklyn, according to the health department. More cases of measles have been reported in the city this year than in all of 2023.`\
 https://nytimes.com/2024/07/13/nyregion/measles-nyc-migrant-shelter.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/13/us/biden-trump-election/bernie-sanders-urges
 **In summer-league debut, Reed Sheppard flashes traits that made him a top-5 pick**\
 `Early against the Lakers, the Houston rookie watched, learned and processed. Then he hit the court and executed.`\
 https://nytimes.com/athletic/5634721/2024/07/13/reed-sheppard-rockets-nba-summer-league/
-
-**From Jordan Pickford's Sunderland, to Ollie Watkins' Newton Abbot: What England thinks of England**\
-`The Athletic embarked on a road trip to test the temperature of a country that hasn't always seemed entirely enthusiastic during Euro 2024`\
-https://nytimes.com/athletic/5634967/2024/07/13/england-fans-euro-2024-journey/
 
