@@ -1,4 +1,12 @@
 **A series of pops was heard just minutes into the event. Here’s the latest.**\
+`By Michael Gold and Simon J. Levien`\
+https://nytimes.com/live/2024/07/13/us/biden-trump-election/trump-rally-pennsylvania
+
+**USWNT 1-0 Mexico takeaways: How much is left to learn before the Olympics?**\
+`The U.S. is gearing up for this summer's Olympics. Here's what happened when they kicked off their send-off tour.`\
+https://nytimes.com/athletic/5635689/2024/07/13/uswnt-mexico-takeaways-olympic-sendoff/
+
+**A series of pops was heard just minutes into the event. Here’s the latest.**\
 `Just minutes into the event, a series of pops that sounded like gunshots rang out.`\
 https://nytimes.com/live/2024/07/13/us/biden-trump-election/trump-rally-pennsylvania
 
