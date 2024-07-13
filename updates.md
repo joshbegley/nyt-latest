@@ -1,3 +1,23 @@
+**Lamine Yamal and Lionel Messi: The beginnings and the endings of greatness**\
+`At Barcelona, Lamine Yamal is considered the closest thing they have seen to Lionel Messi. That he has been more precocious is undeniable`\
+https://nytimes.com/athletic/5633196/2024/07/13/lamine-yamal-lionel-messi/
+
+**Forget the favourites. Turkey, Switzerland and Austria's tactics is what made Euro 2024 fun**\
+`How the approach of mid-level nations gave the tournament its spark`\
+https://nytimes.com/athletic/5633214/2024/07/13/turkey-switzerland-austria-tactics-euro-2024/
+
+**Euro 2024 and the invasion of the selfie snatchers**\
+`The finals have seen a spate of fans venturing on to the pitch seeking photos with stars despite UEFA promising “additional safety measures"`\
+https://nytimes.com/athletic/5633688/2024/07/13/pitch-invaders-selfies-euro-2024/
+
+**What winning Euro 2024 would mean for 'brand England': 'These are once-in-a-lifetime opportunities'**\
+`England's growing star power and how it will be impacted if England win the final against Spain`\
+https://nytimes.com/athletic/5633455/2024/07/13/what-winning-euro-2024-would-mean-for-the-england-brand-it-would-go-into-folklore/
+
+**Dodgers put brakes on bad stretch with unorthodox late rally**\
+`Facing a familiar script that spelled looming doom, manager Dave Roberts made some shrewd moves.`\
+https://nytimes.com/athletic/5634735/2024/07/13/dodgers-rally-defeat-tigers/
+
 **Dodgers snap cold skid with unorthodox late rally**\
 `Facing a familiar script that spelled looming doom, manager Dave Roberts made some shrewd moves.`\
 https://nytimes.com/athletic/5634735/2024/07/13/dodgers-rally-defeat-tigers/
