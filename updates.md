@@ -1,3 +1,7 @@
+**NBA Cup groups revealed**\
+`The championship will be held at T-Mobile Arena in Las Vegas.`\
+https://nytimes.com/athletic/5634639/2024/07/12/nba-cup-groups-2024/
+
 **Russian Prosecutors Have Been Very Busy Lately**\
 `They are spending their time repressing dissent and discouraging real journalism.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/russian-prosecutors-repression
