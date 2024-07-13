@@ -6,6 +6,10 @@ https://nytimes.com/2024/07/13/arts/dr-ruth-westheimer-career-highlights.html
 `Her frank and frequently hilarious advice about sex, love and loneliness reached millions. How did she influence your life?`\
 https://nytimes.com/2024/07/13/well/family/dr-ruth-callout.html
 
+**Navas to retire from Spain after Euro 2024 final**\
+`Spain full-back Jesus Navas has announced he will retire from international football following Sunday&#8217;s European Championship final against England and he will end his playing career entirely at the end of the year.`\
+https://nytimes.com/athletic/5635208/2024/07/13/jesus-navas-spain-retirement-euro-2024/
+
 **Alabama lands 5-star WR Caleb Cunningham**\
 `Cunningham is the No. 2 wide receiver and the No. 13 overall player nationally.`\
 https://nytimes.com/athletic/5635637/2024/07/13/alabama-recruiting-caleb-cunningham-five-star/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/13/world/israel-gaza-war-hamas/what-is-mawasi-t
 **On an Island in Maine, a Meal Worth Traveling For**\
 `A family celebrated the arrival of a special artwork at their home by inviting its maker to stay — and cooking her an oceanside dinner.`\
 https://nytimes.com/2024/07/13/t-magazine/brooke-williams-josh-liberson-dinner-party.html
-
-**Harrison Butker responds to Serena Williams' ESPYs jab**\
-`Williams' dig came as she discussed women's sports while hosting the ESPY Awards on Thursday.`\
-https://nytimes.com/athletic/5634806/2024/07/13/harrison-butker-serena-williams-espy-comments/
 
