@@ -1,3 +1,7 @@
+**NBA Cup groups revealed**\
+`The championship will be held at T-Mobile Arena in Las Vegas.`\
+https://nytimes.com/athletic/5634639/2024/07/12/nba-cup-groups-2024/
+
 **Russian Prosecutors Have Been Very Busy Lately**\
 `They are spending their time repressing dissent and discouraging real journalism.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/russian-prosecutors-repression
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/12/us/politics/meta-trump-instagram-facebook.html
 **U.S. Soccer honors the World Cup winners of 1999 whose struggle paved the way for equal pay**\
 `The World Cup winners were inspired by Billie Jean King to fight for improved pay and working conditions - a struggle they would win`\
 https://nytimes.com/athletic/5634492/2024/07/12/uswnt-1999-equal-pay-honored/
-
-**Wimbledon day 12: A women's doubles streak gets snapped, Medvedev calls for tennis VAR**\
-`On men's semifinal day, there were more calls for VAR in tennis, and a women's doubles streak got snapped`\
-https://nytimes.com/athletic/5633768/2024/07/12/wimbledon-recap-hsieh-doubles-streak-medvedev-default/
 
