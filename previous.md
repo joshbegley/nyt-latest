@@ -1,3 +1,7 @@
+**Novak Djokovic and Carlos Alcaraz meet in a Wimbledon final duel of the extraordinary**\
+`One seeks the toughest Grand Slam double. The other, what seemed impossible five weeks ago. Something has to give`\
+https://nytimes.com/athletic/5634520/2024/07/13/novak-djokovic-carlos-alcaraz-wimbledon-final/
+
 **Marcell Ozuna homers twice for Braves, who like their postseason chances no matter the path**\
 `So, why are these Braves confident they can make a deep playoff run, regardless of whether they win the division?`\
 https://nytimes.com/athletic/5634844/2024/07/13/marcell-ozuna-two-homers-braves-padres/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/13/pageoneplus/corrections-july-13-2024.html
 **Kyle Hendricks shows he's not done just yet as red-hot Cubs get back in playoff race**\
 `Even with all his struggles, Hendricks is still doing what he's done well when he's at his best.`\
 https://nytimes.com/athletic/5634789/2024/07/13/kyle-hendricks-cubs-cardinals/
-
-**Marc Cucurella: Spain's Euro 2024 cult hero on Cole Palmer, England and change at Chelsea**\
-`The 25-year-old left-back's performances in Germany have surprised some - but he has always backed himself`\
-https://nytimes.com/athletic/5634186/2024/07/13/marc-cucurella-interview-chelsea-spain-euro-2024/
 
