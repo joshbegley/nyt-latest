@@ -1,3 +1,11 @@
+**From Jordan Pickford's Sunderland, to Ollie Watkins' Newton Abbot: What England thinks of England**\
+`The Athletic embarked on a road trip to test the temperature of a country that hasn't always seemed entirely enthusiastic during Euro 2024`\
+https://nytimes.com/athletic/5634967/2024/07/13/england-fans-euro-2024-journey/
+
+**Why the Copa America final will a red letter day for Spanish-language broadcasters**\
+`Sunday's final between Argentina and Colombia is a huge moment for Spanish-language broadcasters and their authentic voice`\
+https://nytimes.com/athletic/5635226/2024/07/13/copa-america-final-spanish-language-broadcasters/
+
 **The Republicans Are Headed to Milwaukee. So Are Protesters.**\
 `A range of activists, energized over abortion limits, Israel’s military action in Gaza and immigration, say they plan to march in the city.`\
 https://nytimes.com/2024/07/13/us/rnc-milwaukee-protests.html
