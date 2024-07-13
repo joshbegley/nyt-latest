@@ -1,3 +1,7 @@
+**Bernie Sanders: Joe Biden for President**\
+`Enough! It’s time for Democrats to stop the bickering and nit-picking.`\
+https://nytimes.com/2024/07/13/opinion/joe-biden-president.html
+
 **Game, Set, Match: Barbora Krejcikova beats Jasmine Paolini to win first Wimbledon title**\
 `How Barbora Krejcikova won the Wimbledon women's final against Jasmine Paolini`\
 https://nytimes.com/athletic/5635277/2024/07/13/barbora-krejcikova-jasmine-paolini-wimbledon-final/
