@@ -1,3 +1,7 @@
+**Southgate 'a believer in dreams' ahead of Euro 2024 final**\
+`Gareth Southgate says he is &#8220;a believer in dreams&#8221; on the eve of England&#8217;s latest date with destiny in the Euro 2024 final with Spain on Sunday.`\
+https://nytimes.com/athletic/5635596/2024/07/13/england-euro-2024-final-gareth-southgate/
+
 **2 Measles Cases Reported in New York City Migrant Shelter**\
 `The highly contagious disease was detected in a shelter in Brooklyn, according to the health department. More cases of measles have been reported in the city this year than in all of 2023.`\
 https://nytimes.com/2024/07/13/nyregion/measles-nyc-migrant-shelter.html
