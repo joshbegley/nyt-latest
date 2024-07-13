@@ -1,4 +1,4 @@
-**Kyle Hendricks shows he's not done just yet as red-hot Cubs get back in the playoff race**\
+**Kyle Hendricks shows he's not done just yet as red-hot Cubs get back in playoff race**\
 `Even with all his struggles, Hendricks is still doing what he's done well when he's at his best.`\
 https://nytimes.com/athletic/5634789/2024/07/13/kyle-hendricks-cubs-cardinals/
 
