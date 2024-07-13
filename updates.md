@@ -1,3 +1,19 @@
+**This Soccer Player Wanted to Wear Her Hijab on the Field. France Wouldn’t Let Her.**\
+`Lina Boussaha joined a team in Saudi Arabia so she could wear her head scarf while playing the sport she calls “a part of my soul.”`\
+https://nytimes.com/2024/07/13/world/europe/soccer-hijab-france.html
+
+**Where Germany’s Immigration Debate Hits Home**\
+`Since the recent killing of a police officer, Mannheim has become the byword for a hard line on deporting those who are denied asylum and commit violent crime.`\
+https://nytimes.com/2024/07/13/world/europe/germany-officer-death-immigration.html
+
+**As struggles against lefty starters continue, Red Sox could use another righty bat**\
+`Against left-handed starting pitchers, the Red Sox are 12-15 this season, 1-8 since June 10.`\
+https://nytimes.com/athletic/5634730/2024/07/12/red-sox-struggle-against-lefty-starters/
+
+**Mets reveling in mid-season turnaround: 'We're having a great time'**\
+`New York is 25-12 since May 31, tied with Houston for the best mark in the majors.`\
+https://nytimes.com/athletic/5634737/2024/07/12/mets-wild-card-turnaround/
+
 **Yankees-Orioles fight erupts, benches clear**\
 `Orioles manager Brandon Hyde was ejected as long-simmering tensions between the teams exploded Friday at Camden Yards.`\
 https://nytimes.com/athletic/5634705/2024/07/12/yankees-orioles-benches-clear-fight-mlb/
