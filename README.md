@@ -1,12 +1,4 @@
-**Scaloni, Martinez defend Uruguay players after Colombia fan clashes**\
-`Argentina head coach Lionel Scaloni and goalkeeper Emiliano Martinez have come out in defense of Uruguay’s players following the fan violence that took place on Wednesday night in Charlotte, North Carolina.`\
-https://nytimes.com/athletic/5635866/2024/07/13/argentina-uruguay-colombia-fans/
-
-**Richard Simmons, Exercise and Fitness Personality, Dies at 76**\
-`With his exuberant can-do spirit, Mr. Simmons appealed to a wide following to get moving with exercise videos like “Sweatin’ to the Oldies.”`\
-https://nytimes.com/2024/07/13/arts/television/richard-simmons-dead.html
-
-**'No excuse': Dodgers' overworked bullpen blows five-run lead in the ninth**\
+**'No excuse': Dodgers' overworked bullpen blows 5-run lead in the ninth**\
 `Over the last month, only one team has logged more bullpen innings than the Dodgers’ 115. It caught up to them against the Tigers.`\
 https://nytimes.com/athletic/5635819/2024/07/13/dodgers-bullpen-woes-evan-phillips/
 
@@ -37,4 +29,12 @@ https://nytimes.com/live/2024/07/13/us/biden-trump-election/trump-rally-pennsylv
 **Pritzker Tries to Reassure Fellow Midwestern Democrats Amid Biden Anxiety**\
 `Gov. JB Pritzker of Illinois spoke to Democratic gatherings in Indiana and Ohio as party leaders tried to ease panic about President Biden.`\
 https://nytimes.com/2024/07/13/us/pritzker-biden-democrats.html
+
+**Kamala Harris calls Trump a politician who ‘incites hate.’**\
+`By Nicholas Nehamas`\
+https://nytimes.com/2024/07/13/us/politics/kamala-harris-calls-trump-a-politician-who-incites-hate.html
+
+**It Goes Both Ways**\
+`Jeff Chen’s puzzle takes solvers to the point of no return (and back).`\
+https://nytimes.com/2024/07/13/crosswords/daily-puzzle-2024-07-14.html
 
