@@ -1,3 +1,7 @@
+**‘Signs of Scorching Prejudice’ Doomed the Case Against Alec Baldwin**\
+`A high-pressure manslaughter case against a movie star turned into an interrogation of the prosecution’s conduct.`\
+https://nytimes.com/2024/07/13/arts/alec-baldwin-rust-prosecutor-kari-morrissey.html
+
 **Ipswich agree deal with Burnley for goalkeeper Muric**\
 `Ipswich Town have agreed a deal with Burnley for goalkeeper Arijanet Muric.`\
 https://nytimes.com/athletic/5635239/2024/07/13/arijanet-muric-ipswich-transfer-burnley/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5634548/2024/07/13/mlb-draft-2024-top-prospects-baz
 **The NHL prospect diet: 4,500 calories per day, 7 meals and a big grocery bill — 'it's a job'**\
 `Bruins nutritionist Julie Nicoletti on young players' diets: “It’s a job. It really is. Gaining weight at their age is really challenging."`\
 https://nytimes.com/athletic/5626626/2024/07/13/nhl-prospect-diet-bruins/
-
-**Who is Muhammad Deif?**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2024/07/13/world/israel-gaza-war-hamas/who-is-muhammad-deif
 
