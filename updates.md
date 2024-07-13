@@ -1,3 +1,7 @@
+**2 Measles Cases Reported in New York City Migrant Shelter**\
+`The highly contagious disease was detected in a shelter in Brooklyn, according to the health department. More cases of measles have been reported in the city this year than in all of 2023.`\
+https://nytimes.com/2024/07/13/nyregion/measles-nyc-migrant-shelter.html
+
 **What Is Mawasi, the ‘humanitarian zone’ where a Hamas commander was targeted?**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/07/13/world/israel-gaza-war-hamas/what-is-mawasi-the-humanitarian-zone-where-a-hamas-commander-was-targeted
