@@ -1,3 +1,7 @@
+**Lamine Yamal and Lionel Messi: The beginnings and the endings of greatness**\
+`At Barcelona, Lamine Yamal is considered the closest thing they have seen to Lionel Messi. That he has been more precocious is undeniable`\
+https://nytimes.com/athletic/5633196/2024/07/13/lamine-yamal-lionel-messi/
+
 **Forget the favourites. Turkey, Switzerland and Austria's tactics is what made Euro 2024 fun**\
 `How the approach of mid-level nations gave the tournament its spark`\
 https://nytimes.com/athletic/5633214/2024/07/13/turkey-switzerland-austria-tactics-euro-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5634730/2024/07/12/red-sox-struggle-against-lefty-s
 **Mets reveling in mid-season turnaround: 'We're having a great time'**\
 `New York is 25-12 since May 31, tied with Houston for the best mark in the majors.`\
 https://nytimes.com/athletic/5634737/2024/07/12/mets-wild-card-turnaround/
-
-**Padres' Fernando Tatis Jr. gives positive update on leg injury, will miss less time than feared**\
-`'They were saying in the beginning that I probably would have lost the season,' Tatis Jr. said Friday. 'But it’s definitely not that.”`\
-https://nytimes.com/athletic/5634508/2024/07/12/padres-fernando-tatis-leg-injury/
 
