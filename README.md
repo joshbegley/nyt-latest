@@ -1,5 +1,5 @@
 **A series of pops was heard just minutes into the event. Here’s the latest.**\
-`Just minutes into the event, a series of pops that sounded like gunshots rang out.`\
+`By Michael Gold and Simon J. Levien`\
 https://nytimes.com/live/2024/07/13/us/biden-trump-election/trump-rally-pennsylvania
 
 **Pritzker Tries to Reassure Fellow Midwestern Democrats Amid Biden Anxiety**\
