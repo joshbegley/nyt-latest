@@ -1,5 +1,5 @@
-**Trump Is Rushed Offstage During Rally in Pennsylvania After Sounds Like Shots**\
-`Just minutes into the event, a series of pops that sounded like gunshots rang out. Donald Trump’s ear appeared to be bleeding heavily.`\
+**A series of pops was heard just minutes into the event. Here’s the latest.**\
+`Just minutes into the event, a series of pops that sounded like gunshots rang out.`\
 https://nytimes.com/2024/07/13/us/trump-rally-pennsylvania.html
 
 **Pritzker Tries to Reassure Fellow Midwestern Democrats Amid Biden Anxiety**\
