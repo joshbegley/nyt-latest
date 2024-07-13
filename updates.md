@@ -1,3 +1,7 @@
+**A series of pops was heard just minutes into the event. Here’s the latest.**\
+`By Michael Gold and Simon J. Levien`\
+https://nytimes.com/live/2024/07/13/us/biden-trump-election/trump-rally-pennsylvania
+
 **The Irony of Dr. Ruth**\
 `People often laughed when she spoke, but Ruth Westheimer delivered a punch that challenged norms for older women.`\
 https://nytimes.com/2024/07/13/style/dr-ruth.html

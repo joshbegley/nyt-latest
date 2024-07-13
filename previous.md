@@ -35,6 +35,6 @@ https://nytimes.com/athletic/5635843/2024/07/13/copa-america-halftime-show-shaki
 https://nytimes.com/2024/07/13/arts/thomas-hoepker-dead.html
 
 **A series of pops was heard just minutes into the event. Here’s the latest.**\
-`By Michael Gold, Simon J. Levien and Campbell Robertson`\
+`By Michael Gold and Simon J. Levien`\
 https://nytimes.com/live/2024/07/13/us/biden-trump-election/trump-rally-pennsylvania
 
