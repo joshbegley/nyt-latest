@@ -1,3 +1,11 @@
+**Dodgers snap cold skid with unorthodox late rally**\
+`Facing a familiar script that spelled looming doom, manager Dave Roberts made some shrewd moves.`\
+https://nytimes.com/athletic/5634735/2024/07/13/dodgers-rally-defeat-tigers/
+
+**Saturday's MLB game odds, best bets: Best and worst starting pitchers, playoff odds, props and more**\
+`Projections for Saturday's MLB games with expert picks for best bets, pitcher props, home run trends and more.`\
+https://nytimes.com/athletic/5627344/2024/07/13/mlb-odds-predictions-best-bets-july-13/
+
 **This Soccer Player Wanted to Wear Her Hijab on the Field. France Wouldn’t Let Her.**\
 `Lina Boussaha joined a team in Saudi Arabia so she could wear her head scarf while playing the sport she calls “a part of my soul.”`\
 https://nytimes.com/2024/07/13/world/europe/soccer-hijab-france.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/12/crosswords/daily-puzzle-2024-07-13.html
 **Phillies' Whit Merrifield move just the first domino as they rearrange bench, weigh trade options**\
 `The Phillies can be picky about how they tweak their roster this month. They've signaled they're prioritizing a trade for a RHH outfielder. `\
 https://nytimes.com/athletic/5634667/2024/07/12/phillies-trade-options-outfielder-release-whit-merrifield/
-
-**A Fiery Biden, Ignoring Critics, Attacks Trump to Chants of ‘Lock Him Up’**\
-`Facing rising frustration in his party, the president brushed it off in an energetic speech in Michigan. Inside the room, at least, the Democratic mood was defiant, with cheers of “Don’t go, Joe.”`\
-https://nytimes.com/2024/07/12/us/politics/biden-speech-detroit.html
-
-**Galaxy fined $100K after supporter group misconduct**\
-`Fans lit off flares in the stands during the rivalry game at the Rose Bowl.`\
-https://nytimes.com/athletic/5634671/2024/07/12/la-galaxy-fine-supporter-groups-mls/
 
