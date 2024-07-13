@@ -1,3 +1,7 @@
+**Phillies tie National League record with 8 All-Stars**\
+`Sánchez was named to the All-Star Game as a replacement for Atlanta Braves starting pitcher Chris Sale.`\
+https://nytimes.com/athletic/5635553/2024/07/13/cristopher-sanchez-phillies-national-league-all-star-record/
+
 **Southgate 'a believer in dreams' ahead of Euro 2024 final**\
 `Gareth Southgate says he is &#8220;a believer in dreams&#8221; on the eve of England&#8217;s latest date with destiny in the Euro 2024 final with Spain on Sunday.`\
 https://nytimes.com/athletic/5635596/2024/07/13/england-euro-2024-final-gareth-southgate/
