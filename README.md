@@ -1,3 +1,7 @@
+**Angry Birds Take on Drones at New York City Beach**\
+`American Oystercatchers are attacking drones that have been deployed to scan for sharks and swimmers in distress.`\
+https://nytimes.com/2024/07/13/nyregion/nyc-beaches-drones-angry-birds.html
+
 **Why Does a Routine Test of Newborns Reward ‘Pink’ Skin?**\
 `The Apgar test grades infants in five areas, including skin tone. Babies of color score lower, and may be subjected to unnecessary treatment.`\
 https://nytimes.com/2024/07/13/health/apgar-score-black-infants.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/13/us/biden-trump-election/trump-will-rally-in-
 **A video captures casualties and damage from the Israeli strike on southern Gaza.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/07/13/world/israel-gaza-war-hamas/a-video-captures-casualties-and-damage-from-the-israeli-strike-on-southern-gaza
-
-**What if the A.I. Boosters Are Wrong?**\
-`A skeptical paper by Daron Acemoglu, a labor economist at M.I.T., has triggered a heated debate over whether artificial intelligence will supercharge productivity.`\
-https://nytimes.com/2024/07/13/business/dealbook/what-if-the-ai-boosters-are-wrong.html
 
