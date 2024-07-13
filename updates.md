@@ -1,3 +1,19 @@
+**'It was like meeting a god': Tennis impressionist Josh Berry on mimicking the GOATs**\
+`Want to speak to Rafael Nadal, Roger Federer, John McEnroe, and Andy Murray? Become a Wimbledon commentator – or just call Josh Berry`\
+https://nytimes.com/athletic/5635110/2024/07/13/josh-berry-tennis-impressions-interview/
+
+**Colombia coach criticizes Copa America plans for halftime show**\
+`Colombia head coach Nestor Lorenzo has criticized plans for a halftime show during Sunday&#8217;s Copa America final with Argentina.`\
+https://nytimes.com/athletic/5635843/2024/07/13/copa-america-halftime-show-shakira/
+
+**Thomas Hoepker, Who Captured an Indelible 9/11 Image, Dies at 88**\
+`His photograph of five young people lounging on the Brooklyn waterfront as smoke engulfed Manhattan mesmerized viewers and stirred controversy.`\
+https://nytimes.com/2024/07/13/arts/thomas-hoepker-dead.html
+
+**A series of pops was heard just minutes into the event. Here’s the latest.**\
+`By Michael Gold, Simon J. Levien and Campbell Robertson`\
+https://nytimes.com/live/2024/07/13/us/biden-trump-election/trump-rally-pennsylvania
+
 **A series of pops was heard just minutes into the event. Here’s the latest.**\
 `By Michael Gold and Simon J. Levien`\
 https://nytimes.com/live/2024/07/13/us/biden-trump-election/trump-rally-pennsylvania
