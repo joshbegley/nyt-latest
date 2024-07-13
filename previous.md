@@ -1,7 +1,3 @@
-**Bernie Sanders: Joe Biden for President**\
-`Enough! It’s time for Democrats to stop the bickering and nit-picking.`\
-https://nytimes.com/2024/07/13/opinion/joe-biden-president.html
-
 **Game, Set, Match: Barbora Krejcikova beats Jasmine Paolini to win first Wimbledon title**\
 `How Barbora Krejcikova won the Wimbledon women's final against Jasmine Paolini`\
 https://nytimes.com/athletic/5635277/2024/07/13/barbora-krejcikova-jasmine-paolini-wimbledon-final/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/07/13/arts/bill-viola-dead.html
 **Laurent Blanc: Former France and PSG manager appointed Al Ittihad head coach**\
 `Laurent Blanc has been appointed as the new head coach of Saudi Pro League club Al Ittihad.`\
 https://nytimes.com/athletic/5635285/2024/07/13/laurent-blanc-al-ittihad-head-coach/
+
+**Angry Birds Take on Drones at New York City Beach**\
+`American Oystercatchers are attacking drones that have been deployed to scan for sharks and swimmers in distress.`\
+https://nytimes.com/2024/07/13/nyregion/nyc-beaches-drones-angry-birds.html
 

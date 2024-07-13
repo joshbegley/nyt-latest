@@ -1,3 +1,7 @@
+**Angry Birds Take on Drones at New York City Beach**\
+`American Oystercatchers are attacking drones that have been deployed to scan for sharks and swimmers in distress.`\
+https://nytimes.com/2024/07/13/nyregion/nyc-beaches-drones-angry-birds.html
+
 **Bernie Sanders: Joe Biden for President**\
 `Enough! It’s time for Democrats to stop the bickering and nit-picking.`\
 https://nytimes.com/2024/07/13/opinion/joe-biden-president.html
