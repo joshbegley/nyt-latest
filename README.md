@@ -1,3 +1,7 @@
+**Bill Viola, Celebrated Video Artist Who Played With Time, Dies at 73**\
+`Inspired by Renaissance painters, he explored life’s passages — birth, death, romantic love, redemption and rebirth — in often moving, often thrilling exhibitions.`\
+https://nytimes.com/2024/07/13/arts/bill-viola-dead.html
+
 **Laurent Blanc: Former France and PSG manager appointed Al Ittihad head coach**\
 `Laurent Blanc has been appointed as the new head coach of Saudi Pro League club Al Ittihad.`\
 https://nytimes.com/athletic/5635285/2024/07/13/laurent-blanc-al-ittihad-head-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5635239/2024/07/13/arijanet-muric-ipswich-transfer-
 **How to Watch the Republican Convention**\
 `Former President Donald J. Trump is scheduled to accept the G.O.P. nomination during the four-day gathering in Milwaukee.`\
 https://nytimes.com/2024/07/13/us/politics/rnc-stream-watch-when-is-it.html
-
-**Trump will rally in Pennsylvania, as Biden allies hit the trail, too. Here’s the latest.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/07/13/us/biden-trump-election/trump-will-rally-in-pennsylvania-as-biden-allies-hit-the-trail-too-heres-the-latest
 
