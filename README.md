@@ -1,3 +1,7 @@
+**Phillies tie National League record with 8 All-Stars**\
+`Sánchez was named to the All-Star Game as a replacement for Atlanta Braves starting pitcher Chris Sale.`\
+https://nytimes.com/athletic/5635553/2024/07/13/cristopher-sanchez-phillies-national-league-all-star-record/
+
 **Southgate 'a believer in dreams' ahead of Euro 2024 final**\
 `Gareth Southgate says he is &#8220;a believer in dreams&#8221; on the eve of England&#8217;s latest date with destiny in the Euro 2024 final with Spain on Sunday.`\
 https://nytimes.com/athletic/5635596/2024/07/13/england-euro-2024-final-gareth-southgate/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5635345/2024/07/13/amadou-onana-aston-villa/
 **Bernie Sanders urges Democrats to stay the course with Biden.**\
 `The Vermont senator, whom President Biden defeated in the 2020 Democratic primary, vouched for the president in a guest essay in The New York Times.`\
 https://nytimes.com/live/2024/07/13/us/biden-trump-election/bernie-sanders-urges-democrats-to-stay-the-course-with-biden
-
-**In summer-league debut, Reed Sheppard flashes traits that made him a top-5 pick**\
-`Early against the Lakers, the Houston rookie watched, learned and processed. Then he hit the court and executed.`\
-https://nytimes.com/athletic/5634721/2024/07/13/reed-sheppard-rockets-nba-summer-league/
 
