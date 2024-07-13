@@ -1,3 +1,7 @@
+**Alabama lands 5-star WR Caleb Cunningham**\
+`Cunningham is the No. 2 wide receiver and the No. 13 overall player nationally.`\
+https://nytimes.com/athletic/5635637/2024/07/13/alabama-recruiting-caleb-cunningham-five-star/
+
 **De la Fuente insists Spain 'not favourites' for Euro 2024 final vs England**\
 `Spain head coach Luis de la Fuente insists there are &#8220;no favourites&#8221; in the European Championship final between his side and England.`\
 https://nytimes.com/athletic/5635624/2024/07/13/spain-euro-2024-final-luis-de-la-fuente/
