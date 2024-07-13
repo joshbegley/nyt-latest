@@ -1,3 +1,8 @@
+**Yankees' Jose Trevino leaves game with leg injury**\
+`Trevino injured his quadriceps
+ on a run-scoring slide into home, not in the bench-clearing brawl in the ninth inning.`\
+https://nytimes.com/athletic/5634768/2024/07/13/yankees-jose-trevino-injury/
+
 **Watkins and Leeds: The Sliding Doors missed transfer that feels like a 'What if?'**\
 `Leeds eyed up Ollie Watkins when they were first promoted back to the Premier League but opted for another striking option`\
 https://nytimes.com/athletic/5631473/2024/07/13/ollie-watkins-leeds-united-transfer/
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/5627344/2024/07/13/mlb-odds-predictions-best-bets-j
 **This Soccer Player Wanted to Wear Her Hijab on the Field. France Wouldn’t Let Her.**\
 `Lina Boussaha joined a team in Saudi Arabia so she could wear her head scarf while playing the sport she calls “a part of my soul.”`\
 https://nytimes.com/2024/07/13/world/europe/soccer-hijab-france.html
-
-**Where Germany’s Immigration Debate Hits Home**\
-`Since the recent killing of a police officer, Mannheim has become the byword for a hard line on deporting those who are denied asylum and commit violent crime.`\
-https://nytimes.com/2024/07/13/world/europe/germany-officer-death-immigration.html
 
