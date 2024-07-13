@@ -1,3 +1,11 @@
+**Do You Have Concerns About Embryo Storage? We Want to Hear From You.**\
+`We’re reporting on the challenges that fertility clinics face as they store a growing number of frozen embryos.`\
+https://nytimes.com/2024/07/13/health/ivf-embryo-storage-callout.html
+
+**Delta Changes Uniform Policy After Employees Seen With Palestinian Flag Pins**\
+`A social media post showing two flight attendants wearing the pins drew criticism and prompted Delta to say that only U.S. flag pins would be permitted.`\
+https://nytimes.com/2024/07/13/business/delta-palestinian-flag-pins.html
+
 **USWNT 1-0 Mexico takeaways: How much is left to learn before the Olympics**\
 `The U.S. is gearing up for this summer's Olympics. Here's what happened when they kicked off their send-off tour.`\
 https://nytimes.com/athletic/5635689/2024/07/13/uswnt-mexico-takeaways-olympic-sendoff/
