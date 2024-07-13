@@ -1,3 +1,7 @@
+**Korean Corn Cheese, Yes Please**\
+`Hot weather calls for this sweet-savory banchan and an ice-cold beer.`\
+https://nytimes.com/2024/07/13/dining/korean-corn-cheese.html
+
 **Ruth Westheimer, the Sex Guru Known as Dr. Ruth, Dies at 96**\
 `Frank and funny, the taboo-breaking psychologist said things on television and radio that would have been shocking coming from almost anyone else.`\
 https://nytimes.com/2024/07/13/arts/television/ruth-westheimer-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/fashion/weddings/100000009569446/india-ambani-wedding-
 **Kevin Durant uncertainty, why Derrick White over Jaylen Brown and more: Team USA notes**\
 `As Team USA arrives in Abu Dhabi, Kevin Durant's status is up in the air. Plus, notes on Derrick White/Jaylen Brown and Anthony Edwards.`\
 https://nytimes.com/athletic/5635107/2024/07/13/kevin-durant-derrick-white-jaylen-brown-olympics-team-usa/
-
-**England's 58 years of hurt - by numbers**\
-`A look at the facts and figures amassed over England's 58-year drought since their only major trophy — a wait that could end this weekend`\
-https://nytimes.com/athletic/5626364/2024/07/13/england-euro2024-hurt-numbers/
 
