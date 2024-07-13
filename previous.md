@@ -1,3 +1,7 @@
+**Katz: Jalen Brunson has agreed to the greatest financial favor in NBA history**\
+`Brunson signed with one priority in mind: Take whatever reasonable measures he could to go after a ring.`\
+https://nytimes.com/athletic/5634610/2024/07/13/jalen-brunson-knicks-contract/
+
 **After Dismissal of Bankruptcy Case, Here’s What’s Next for Giuliani**\
 `Without the protection of Chapter 11, the former mayor and Trump lawyer could have his assets seized and sold by creditors.`\
 https://nytimes.com/2024/07/13/us/politics/after-dismissal-of-bankruptcy-case-heres-whats-next-for-giuliani.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/13/dining/how-to-grill-chicken.html
 **Melding 3 Ancient Versions of the Ultimate Greek Tragedy**\
 `At the Salzburg Festival, a new adaptation of “The Oresteia” will put a classic story of war, democracy and revenge into a modern context.`\
 https://nytimes.com/2024/07/13/arts/salzburg-festival-greek-tragedy.html
-
-**Is Your Condo Board Falling Short? Here’s How to Take Over.**\
-`Building administrators sometimes fail to follow their own rules. Legal action is one option, but a more direct approach can also yield results.`\
-https://nytimes.com/2024/07/13/realestate/is-your-condo-board-falling-short-heres-how-to-take-over.html
 

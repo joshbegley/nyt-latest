@@ -1,3 +1,7 @@
+**Robert Putnam Knows Why You’re Lonely**\
+`The author of “Bowling Alone” warned us about social isolation and its effect on democracy a quarter century ago. Things have only gotten worse.`\
+https://nytimes.com/2024/07/13/magazine/robert-putnam-interview.html
+
 **Katz: Jalen Brunson has agreed to the greatest financial favor in NBA history**\
 `Brunson signed with one priority in mind: Take whatever reasonable measures he could to go after a ring.`\
 https://nytimes.com/athletic/5634610/2024/07/13/jalen-brunson-knicks-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/13/us/homeless-camps-supreme-court-ruling.html
 **The Secrets to the Best Grilled Chicken**\
 `A chef offers expert advice on yielding perfectly succulent breasts and thighs (bone-in or boneless) every time.`\
 https://nytimes.com/2024/07/13/dining/how-to-grill-chicken.html
-
-**Melding 3 Ancient Versions of the Ultimate Greek Tragedy**\
-`At the Salzburg Festival, a new adaptation of “The Oresteia” will put a classic story of war, democracy and revenge into a modern context.`\
-https://nytimes.com/2024/07/13/arts/salzburg-festival-greek-tragedy.html
 

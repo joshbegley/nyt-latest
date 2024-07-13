@@ -1,3 +1,7 @@
+**Katz: Jalen Brunson has agreed to the greatest financial favor in NBA history**\
+`Brunson signed with one priority in mind: Take whatever reasonable measures he could to go after a ring.`\
+https://nytimes.com/athletic/5634610/2024/07/13/jalen-brunson-knicks-contract/
+
 **After Dismissal of Bankruptcy Case, Here’s What’s Next for Giuliani**\
 `Without the protection of Chapter 11, the former mayor and Trump lawyer could have his assets seized and sold by creditors.`\
 https://nytimes.com/2024/07/13/us/politics/after-dismissal-of-bankruptcy-case-heres-whats-next-for-giuliani.html
