@@ -1,3 +1,11 @@
+**How to Watch the Republican Convention**\
+`Former President Donald J. Trump is scheduled to accept the G.O.P. nomination during the four-day gathering in Milwaukee.`\
+https://nytimes.com/2024/07/13/us/politics/rnc-stream-watch-when-is-it.html
+
+**Trump will rally in Pennsylvania, as Biden allies hit the trail, too. Here’s the latest.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/07/13/us/biden-trump-election/trump-will-rally-in-pennsylvania-as-biden-allies-hit-the-trail-too-heres-the-latest
+
 **A video captures casualties and damage from the Israeli strike on southern Gaza.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/07/13/world/israel-gaza-war-hamas/a-video-captures-casualties-and-damage-from-the-israeli-strike-on-southern-gaza
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/13/world/israel-gaza-war-hamas/who-is-muhammad-
 **It’s No Big Deal That a Woman May Be the President. What a Beautiful Thing.**\
 `As we consider who might replace Biden on the ticket, we seem finally to have evolved when it comes to evaluating the female contenders.`\
 https://nytimes.com/2024/07/13/opinion/biden-harris-whitmer.html
-
-**Bucks' MarJon Beauchamp knows what he needs to do this summer league: 'Be undeniable'**\
-`A first-round pick in his third season rarely plays in summer league. But Beauchamp is getting another chance to prove himself this year.`\
-https://nytimes.com/athletic/5634648/2024/07/13/marjon-beauchamp-bucks-summer-league/
-
-**Republicans Will Regret a Second Trump Term**\
-`They should heed the law of unintended consequences.`\
-https://nytimes.com/2024/07/13/opinion/trump-2024-election.html
 
