@@ -1,6 +1,5 @@
 **Yankees' Jose Trevino leaves game with leg injury**\
-`Trevino injured his quadriceps
- on a run-scoring slide into home, not in the bench-clearing brawl in the ninth inning.`\
+`Trevino injured his quadriceps on a run-scoring slide into home, not in the bench-clearing brawl in the ninth inning.`\
 https://nytimes.com/athletic/5634768/2024/07/13/yankees-jose-trevino-injury/
 
 **Watkins and Leeds: The Sliding Doors missed transfer that feels like a 'What if?'**\
