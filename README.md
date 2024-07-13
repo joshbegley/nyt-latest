@@ -1,3 +1,7 @@
+**As struggles against lefty starters continue, Red Sox could use another righty bat**\
+`Against left-handed starting pitchers, the Red Sox are 12-15 this season, 1-8 since June 10.`\
+https://nytimes.com/athletic/5634730/2024/07/12/red-sox-struggle-against-lefty-starters/
+
 **Mets reveling in mid-season turnaround: 'We're having a great time'**\
 `New York is 25-12 since May 31, tied with Houston for the best mark in the majors.`\
 https://nytimes.com/athletic/5634737/2024/07/12/mets-wild-card-turnaround/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/12/us/politics/kennedy-sexual-assault-accusation.htm
 **NBA Cup groups revealed**\
 `The championship will be held at T-Mobile Arena in Las Vegas.`\
 https://nytimes.com/athletic/5634639/2024/07/12/nba-cup-groups-2024/
-
-**Russian Prosecutors Have Been Very Busy Lately**\
-`They are spending their time repressing dissent and discouraging real journalism.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/russian-prosecutors-repression
 
