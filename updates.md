@@ -1,3 +1,7 @@
+**‘Signs of Scorching Prejudice’ Doomed the Case Against Alec Baldwin**\
+`A high-pressure manslaughter case against a movie star turned into an interrogation of the prosecution’s conduct.`\
+https://nytimes.com/2024/07/13/arts/alec-baldwin-rust-prosecutor-kari-morrissey.html
+
 **Ipswich agree deal with Burnley for goalkeeper Muric**\
 `Ipswich Town have agreed a deal with Burnley for goalkeeper Arijanet Muric.`\
 https://nytimes.com/athletic/5635239/2024/07/13/arijanet-muric-ipswich-transfer-burnley/
