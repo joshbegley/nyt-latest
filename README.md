@@ -1,3 +1,7 @@
+**Gaza’s collapsing hospitals struggle to deal with the numbers of wounded in the latest strike.**\
+`By Hiba Yazbek and Ameera Harouda`\
+https://nytimes.com/live/2024/07/13/world/israel-gaza-war-hamas/gazas-collapsing-hospitals-struggle-to-deal-with-the-numbers-of-wounded-in-the-latest-strike
+
 **Bill Viola, Celebrated Video Artist Who Played With Time, Dies at 73**\
 `Inspired by Renaissance painters, he explored life’s passages — birth, death, romantic love, redemption and rebirth — in often moving, often thrilling exhibitions.`\
 https://nytimes.com/2024/07/13/arts/bill-viola-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/13/arts/alec-baldwin-rust-prosecutor-kari-morrissey.
 **Ipswich agree deal with Burnley for goalkeeper Muric**\
 `Ipswich Town have agreed a deal with Burnley for goalkeeper Arijanet Muric.`\
 https://nytimes.com/athletic/5635239/2024/07/13/arijanet-muric-ipswich-transfer-burnley/
-
-**How to Watch the Republican Convention**\
-`Former President Donald J. Trump is scheduled to accept the G.O.P. nomination during the four-day gathering in Milwaukee.`\
-https://nytimes.com/2024/07/13/us/politics/rnc-stream-watch-when-is-it.html
 
