@@ -1,3 +1,7 @@
+**A Fiery Biden, Ignoring Critics, Attacks Trump to Chants of ‘Lock Him Up’**\
+`Facing rising frustration in his party, the president brushed it off in an energetic speech in Michigan. Inside the room, at least, the Democratic mood was defiant, with cheers of “Don’t go, Joe.”`\
+https://nytimes.com/2024/07/12/us/politics/biden-speech-detroit.html
+
 **Galaxy fined $100K after supporter group misconduct**\
 `Fans lit off flares in the stands during the rivalry game at the Rose Bowl.`\
 https://nytimes.com/athletic/5634671/2024/07/12/la-galaxy-fine-supporter-groups-mls/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/12/us/rnc-attendees.html
 **‘Touch Me, Poke Me, Ask Me Questions,’ Biden Says of Voters Who Doubt Him**\
 `President Biden’s remarks were in response to a Democratic lawmaker who told him on a Zoom call that he should withdraw from the 2024 presidential campaign.`\
 https://nytimes.com/2024/07/12/us/politics/biden-voters-doubts.html
-
-**What Republicans Have Been Up to While Biden’s Drama Has Unfolded**\
-`While Biden has been in the spotlight, Republicans rewrote their platform and used dark rhetoric.`\
-https://nytimes.com/2024/07/12/us/politics/biden-republicans-trump.html
 

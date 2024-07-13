@@ -1,3 +1,7 @@
+**A Fiery Biden, Ignoring Critics, Attacks Trump to Chants of ‘Lock Him Up’**\
+`Facing rising frustration in his party, the president brushed it off in an energetic speech in Michigan. Inside the room, at least, the Democratic mood was defiant, with cheers of “Don’t go, Joe.”`\
+https://nytimes.com/2024/07/12/us/politics/biden-speech-detroit.html
+
 **Galaxy fined $100K after supporter group misconduct**\
 `Fans lit off flares in the stands during the rivalry game at the Rose Bowl.`\
 https://nytimes.com/athletic/5634671/2024/07/12/la-galaxy-fine-supporter-groups-mls/
