@@ -1,3 +1,11 @@
+**Scaloni, Martinez defend Uruguay players after Colombia fan clashes**\
+`Argentina head coach Lionel Scaloni and goalkeeper Emiliano Martinez have come out in defense of Uruguay’s players following the fan violence that took place on Wednesday night in Charlotte, North Carolina.`\
+https://nytimes.com/athletic/5635866/2024/07/13/argentina-uruguay-colombia-fans/
+
+**Richard Simmons, Exercise and Fitness Personality, Dies at 76**\
+`With his exuberant can-do spirit, Mr. Simmons appealed to a wide following to get moving with exercise videos like “Sweatin’ to the Oldies.”`\
+https://nytimes.com/2024/07/13/arts/television/richard-simmons-dead.html
+
 **'No excuse': Dodgers' overworked bullpen blows 5-run lead in the ninth**\
 `Over the last month, only one team has logged more bullpen innings than the Dodgers’ 115. It caught up to them against the Tigers.`\
 https://nytimes.com/athletic/5635819/2024/07/13/dodgers-bullpen-woes-evan-phillips/
