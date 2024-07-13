@@ -1,3 +1,7 @@
+**On the Red Carpet at One of India’s Most Lavish Weddings**\
+`After months of anticipation, Anant Ambani, the youngest son of India’s richest man, married Radhika Merchant, a daughter of a fellow business tycoon. Celebrities from Hollywood and Bollywood joined their extravagant multiday celebration on the red carpet.`\
+https://nytimes.com/video/fashion/weddings/100000009569446/india-ambani-wedding-red-carpet-billionaire.html
+
 **Ruth Westheimer, the Sex Guru Known as Dr. Ruth, Dies at 96**\
 `Frank and funny, the taboo-breaking psychologist said things on television and radio that would have been shocking coming from almost anyone else.`\
 https://nytimes.com/2024/07/13/arts/television/ruth-westheimer-dead.html

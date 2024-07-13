@@ -27,7 +27,7 @@ https://nytimes.com/2024/07/13/nyregion/nyc-beaches-drones-angry-birds.html
 https://nytimes.com/2024/07/13/health/apgar-score-black-infants.html
 
 **On the Red Carpet at One of India’s Most Lavish Weddings**\
-`After months of buildup, Anant Ambani, the son of India’s richest man, married Radhika Merchant, the daughter of a fellow business tycoon. Celebrities from Hollywood to Bollywood joined their extravagant multiday celebration on the red carpet.`\
+`After months of anticipation, Anant Ambani, the youngest son of India’s richest man, married Radhika Merchant, a daughter of a fellow business tycoon. Celebrities from Hollywood and Bollywood joined their extravagant multiday celebration on the red carpet.`\
 https://nytimes.com/video/fashion/weddings/100000009569446/india-ambani-wedding-red-carpet-billionaire.html
 
 **Kevin Durant uncertainty, why Derrick White over Jaylen Brown and more: Team USA notes**\
