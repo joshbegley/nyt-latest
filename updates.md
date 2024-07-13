@@ -1,3 +1,7 @@
+**On the Hands of India’s Brides, Reminders of a Stark Wealth Divide**\
+`Henna artists’ elaborate designs are a hallmark of Indian weddings. They also highlight a disparity where some are fabulously rich and many earn very little.`\
+https://nytimes.com/2024/07/13/world/asia/india-weddings-henna-wealth-divide.html
+
 **Forget the favourites. Turkey, Switzerland and Austria's tactics are what made Euro 2024 fun**\
 `How the approach of mid-level nations gave the tournament its spark`\
 https://nytimes.com/athletic/5633214/2024/07/13/turkey-switzerland-austria-tactics-euro-2024/
