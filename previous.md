@@ -1,3 +1,7 @@
+**What if the A.I. Boosters Are Wrong?**\
+`A skeptical paper by Daron Acemoglu, a labor economist at M.I.T., has triggered a heated debate over whether artificial intelligence will supercharge productivity.`\
+https://nytimes.com/2024/07/13/business/dealbook/what-if-the-ai-boosters-are-wrong.html
+
 **So Close and Yet So Far**\
 `A subway run-in, long-distance romance and an emotionally confusing rescue.`\
 https://nytimes.com/2024/07/13/podcasts/so-close-and-yet-so-far-this-american-life-nyt-audio.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/13/opinion/trump-2024-election.html
 **For Biden, a Race Against Time**\
 `The president should be poked — out of the race.`\
 https://nytimes.com/2024/07/13/opinion/biden-president-age-time.html
-
-**Lamine Yamal's 17 defining moments at 17**\
-`Spain's brilliant right-winger turns 17 today - and he has already achieved more than most in his young career`\
-https://nytimes.com/athletic/5633581/2024/07/13/lamine-yamal-spain-euros-17/
 

@@ -1,3 +1,7 @@
+**What if the A.I. Boosters Are Wrong?**\
+`A skeptical paper by Daron Acemoglu, a labor economist at M.I.T., has triggered a heated debate over whether artificial intelligence will supercharge productivity.`\
+https://nytimes.com/2024/07/13/business/dealbook/what-if-the-ai-boosters-are-wrong.html
+
 **So Close and Yet So Far**\
 `A subway run-in, long-distance romance and an emotionally confusing rescue.`\
 https://nytimes.com/2024/07/13/podcasts/so-close-and-yet-so-far-this-american-life-nyt-audio.html
