@@ -1,3 +1,15 @@
+**'No excuse': Dodgers' overworked bullpen blows five-run lead in the ninth**\
+`Over the last month, only one team has logged more bullpen innings than the Dodgers’ 115. It caught up to them against the Tigers.`\
+https://nytimes.com/athletic/5635819/2024/07/13/dodgers-bullpen-woes-evan-phillips/
+
+**Acclimating no longer, Colt Keith puts on a show in Tigers' comeback**\
+`Keith leads all MLB rookies with a .509 slugging percentage since May 11. Detroit beat the Los Angeles Dodgers 11-9.`\
+https://nytimes.com/athletic/5635805/2024/07/13/colt-keith-tigers-comeback/
+
+**Trump Rushed Off Stage At Rally**\
+`Former President Donald J. Trump was escorted off the stage by Secret Service agents and into his motorcade just minutes into a rally after a series of pops rang out.`\
+https://nytimes.com/video/us/elections/100000009570231/trump-rally-shots-butler-pennsylvania.html
+
 **'It was like meeting a god': Tennis impressionist Josh Berry on mimicking the GOATs**\
 `Want to speak to Rafael Nadal, Roger Federer, John McEnroe, and Andy Murray? Become a Wimbledon commentator – or just call Josh Berry`\
 https://nytimes.com/athletic/5635110/2024/07/13/josh-berry-tennis-impressions-interview/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/13/us/biden-trump-election/kamala-harris-calls-
 **It Goes Both Ways**\
 `Jeff Chen’s puzzle takes solvers to the point of no return (and back).`\
 https://nytimes.com/2024/07/13/crosswords/daily-puzzle-2024-07-14.html
-
-**Do You Have Concerns About Embryo Storage? We Want to Hear From You.**\
-`We’re reporting on the challenges that fertility clinics face as they store a growing number of frozen embryos.`\
-https://nytimes.com/2024/07/13/health/ivf-embryo-storage-callout.html
-
-**Delta Changes Uniform Policy After Employees Seen With Palestinian Flag Pins**\
-`A social media post showing two flight attendants wearing the pins drew criticism and prompted Delta to say that only U.S. flag pins would be permitted.`\
-https://nytimes.com/2024/07/13/business/delta-palestinian-flag-pins.html
-
-**USWNT 1-0 Mexico takeaways: How much is left to learn before the Olympics?**\
-`The U.S. is gearing up for this summer's Olympics. Here's what happened when they kicked off their send-off tour.`\
-https://nytimes.com/athletic/5635689/2024/07/13/uswnt-mexico-takeaways-olympic-sendoff/
 
