@@ -1,3 +1,11 @@
+**This Soccer Player Wanted to Wear Her Hijab on the Field. France Wouldn’t Let Her.**\
+`Lina Boussaha joined a team in Saudi Arabia so she could wear her head scarf while playing the sport she calls “a part of my soul.”`\
+https://nytimes.com/2024/07/13/world/europe/soccer-hijab-france.html
+
+**Where Germany’s Immigration Debate Hits Home**\
+`Since the recent killing of a police officer, Mannheim has become the byword for a hard line on deporting those who are denied asylum and commit violent crime.`\
+https://nytimes.com/2024/07/13/world/europe/germany-officer-death-immigration.html
+
 **As struggles against lefty starters continue, Red Sox could use another righty bat**\
 `Against left-handed starting pitchers, the Red Sox are 12-15 this season, 1-8 since June 10.`\
 https://nytimes.com/athletic/5634730/2024/07/12/red-sox-struggle-against-lefty-starters/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/12/us/politics/biden-speech-detroit.html
 **Galaxy fined $100K after supporter group misconduct**\
 `Fans lit off flares in the stands during the rivalry game at the Rose Bowl.`\
 https://nytimes.com/athletic/5634671/2024/07/12/la-galaxy-fine-supporter-groups-mls/
-
-**Kennedy Sent Apologetic Text to Woman Who Accused Him of Sexual Assault**\
-`Robert F. Kennedy Jr. privately reached out last week to a woman who accused him of sexually assaulting her in the late 1990s, an account detailed in a recent magazine article.`\
-https://nytimes.com/2024/07/12/us/politics/kennedy-sexual-assault-accusation.html
-
-**NBA Cup groups revealed**\
-`The championship will be held at T-Mobile Arena in Las Vegas.`\
-https://nytimes.com/athletic/5634639/2024/07/12/nba-cup-groups-2024/
 
