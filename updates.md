@@ -1,3 +1,7 @@
+**USWNT 1-0 Mexico takeaways: How much is left to learn before the Olympics**\
+`The U.S. is gearing up for this summer's Olympics. Here's what happened when they kicked off their send-off tour.`\
+https://nytimes.com/athletic/5635689/2024/07/13/uswnt-mexico-takeaways-olympic-sendoff/
+
 **Abe Krash, Who Fought for a Constitutional Right to Counsel, Dies at 97**\
 `He provided the research and drafts that helped bring about the Supreme Court’s landmark Gideon v. Wainwright decision in 1963.`\
 https://nytimes.com/2024/07/13/us/abe-krash-dead.html
