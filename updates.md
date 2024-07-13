@@ -1,3 +1,11 @@
+**How to Watch the Republican Convention**\
+`Former President Donald J. Trump is scheduled to accept the G.O.P. nomination during the four-day gathering in Milwaukee.`\
+https://nytimes.com/2024/07/13/us/politics/rnc-stream-watch-when-is-it.html
+
+**Trump will rally in Pennsylvania, as Biden allies hit the trail, too. Here’s the latest.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/07/13/us/biden-trump-election/trump-will-rally-in-pennsylvania-as-biden-allies-hit-the-trail-too-heres-the-latest
+
 **A video captures casualties and damage from the Israeli strike on southern Gaza.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/07/13/world/israel-gaza-war-hamas/a-video-captures-casualties-and-damage-from-the-israeli-strike-on-southern-gaza
