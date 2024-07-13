@@ -1,3 +1,7 @@
+**Thomas Hoepker, Who Captured an Indelible 9/11 Image, Dies at 88**\
+`His photograph of five young people lounging on the Brooklyn waterfront as smoke engulfed Manhattan mesmerized viewers and stirred controversy.`\
+https://nytimes.com/2024/07/13/arts/thomas-hoepker-dead.html
+
 **A series of pops was heard just minutes into the event. Here’s the latest.**\
 `By Michael Gold and Simon J. Levien`\
 https://nytimes.com/live/2024/07/13/us/biden-trump-election/trump-rally-pennsylvania
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/13/us/abe-krash-dead.html
 **Israel Launches Major Attack Against a Senior Hamas Commander**\
 `The target, Muhammad Deif, was an architect of the Oct. 7 attacks and has been the object of repeated Israeli assassination attempts over decades.`\
 https://nytimes.com/2024/07/13/world/middleeast/israel-hamas-deif-mawasi-khan-younis.html
-
-**A smiling ghost of Centre Court - and a Wimbledon final in no need of a grand narrative**\
-`Barbora Krejcikova and Jasmine Paolini's Wimbledon final may not be part of a grand tennis narrative. It doesn't need to be – it was enough`\
-https://nytimes.com/athletic/5635592/2024/07/13/wimbledon-final-barbora-krejcikova-jana-novotna/
 
