@@ -1,3 +1,7 @@
+**It Goes Both Ways**\
+`Jeff Chen’s puzzle takes solvers to the point of no return (and back).`\
+https://nytimes.com/2024/07/13/crosswords/daily-puzzle-2024-07-14.html
+
 **Do You Have Concerns About Embryo Storage? We Want to Hear From You.**\
 `We’re reporting on the challenges that fertility clinics face as they store a growing number of frozen embryos.`\
 https://nytimes.com/2024/07/13/health/ivf-embryo-storage-callout.html
