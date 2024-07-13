@@ -1,3 +1,7 @@
+**Alex Sarr, Bub Carrington show they could be game-changers Washington needs**\
+`Two of the Wizards' prized rookies played well in their summer-league debuts. `\
+https://nytimes.com/athletic/5634920/2024/07/13/alex-sarr-bub-carrington-summer-league-debuts/
+
 **Gaza’s collapsing hospitals struggle to deal with the numbers of wounded in the latest strike.**\
 `By Hiba Yazbek and Ameera Harouda`\
 https://nytimes.com/live/2024/07/13/world/israel-gaza-war-hamas/gazas-collapsing-hospitals-struggle-to-deal-with-the-numbers-of-wounded-in-the-latest-strike
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5626364/2024/07/13/england-euro2024-hurt-numbers/
 **‘Signs of Scorching Prejudice’ Doomed the Case Against Alec Baldwin**\
 `A high-pressure manslaughter case against a movie star turned into an interrogation of the prosecution’s conduct.`\
 https://nytimes.com/2024/07/13/arts/alec-baldwin-rust-prosecutor-kari-morrissey.html
-
-**Ipswich agree deal with Burnley for goalkeeper Muric**\
-`Ipswich Town have agreed a deal with Burnley for goalkeeper Arijanet Muric.`\
-https://nytimes.com/athletic/5635239/2024/07/13/arijanet-muric-ipswich-transfer-burnley/
 

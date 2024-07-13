@@ -1,3 +1,7 @@
+**Alex Sarr, Bub Carrington show they could be game-changers Washington needs**\
+`Two of the Wizards' prized rookies played well in their summer-league debuts. `\
+https://nytimes.com/athletic/5634920/2024/07/13/alex-sarr-bub-carrington-summer-league-debuts/
+
 **Gaza’s collapsing hospitals struggle to deal with the numbers of wounded in the latest strike.**\
 `By Hiba Yazbek and Ameera Harouda`\
 https://nytimes.com/live/2024/07/13/world/israel-gaza-war-hamas/gazas-collapsing-hospitals-struggle-to-deal-with-the-numbers-of-wounded-in-the-latest-strike
