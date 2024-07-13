@@ -1,3 +1,7 @@
+**Terrence Shannon Jr. won't be given a Wolves rotation spot — he just needs to take it**\
+`Shannon finished with 25 points on 9-of-14 shooting, grabbed three rebounds and blocked two shots in Minnesota's 81-74 victory.`\
+https://nytimes.com/athletic/5634503/2024/07/13/terrence-shannon-jr-timberwolves-rotation/
+
 **Robert Putnam Knows Why You’re Lonely**\
 `The author of “Bowling Alone” warned us about social isolation and its effect on democracy a quarter century ago. Things have only gotten worse.`\
 https://nytimes.com/2024/07/13/magazine/robert-putnam-interview.html
