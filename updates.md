@@ -1,3 +1,7 @@
+**MLB Draft standouts: Jim Bowden ranks his top 35 prospects in 2024 class**\
+`After studying the top draft-eligible players and talking with evaluators and executives, here is how Bowden ranks the top draft prospects.`\
+https://nytimes.com/athletic/5634548/2024/07/13/mlb-draft-2024-top-prospects-bazzana-condon/
+
 **The NHL prospect diet: 4,500 calories per day, 7 meals and a big grocery bill — 'it's a job'**\
 `Bruins nutritionist Julie Nicoletti on young players' diets: “It’s a job. It really is. Gaining weight at their age is really challenging."`\
 https://nytimes.com/athletic/5626626/2024/07/13/nhl-prospect-diet-bruins/
