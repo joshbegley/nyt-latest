@@ -1,3 +1,11 @@
+**Richard Simmons, Exercise and Fitness Personality, Dies at 76**\
+`With his exuberant can-do spirit, Mr. Simmons appealed to a wide following to get moving with exercise videos like “Sweatin’ to the Oldies.”`\
+https://nytimes.com/2024/07/13/arts/television/richard-simmons-dead.html
+
+**Kamala Harris calls Trump a politician who ‘incites hate.’**\
+`By Nicholas Nehamas`\
+https://nytimes.com/2024/07/13/us/politics/kamala-harris-calls-trump-a-politician-who-incites-hate.html
+
 **'No excuse': Dodgers' overworked bullpen blows five-run lead in the ninth**\
 `Over the last month, only one team has logged more bullpen innings than the Dodgers’ 115. It caught up to them against the Tigers.`\
 https://nytimes.com/athletic/5635819/2024/07/13/dodgers-bullpen-woes-evan-phillips/
