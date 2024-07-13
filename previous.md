@@ -1,3 +1,7 @@
+**Ipswich agree deal with Burnley for goalkeeper Muric**\
+`Ipswich Town have agreed a deal with Burnley for goalkeeper Arijanet Muric.`\
+https://nytimes.com/athletic/5635239/2024/07/13/arijanet-muric-ipswich-transfer-burnley/
+
 **How to Watch the Republican Convention**\
 `Former President Donald J. Trump is scheduled to accept the G.O.P. nomination during the four-day gathering in Milwaukee.`\
 https://nytimes.com/2024/07/13/us/politics/rnc-stream-watch-when-is-it.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5626626/2024/07/13/nhl-prospect-diet-bruins/
 **Who is Muhammad Deif?**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/07/13/world/israel-gaza-war-hamas/who-is-muhammad-deif
-
-**It’s No Big Deal That a Woman May Be the President. What a Beautiful Thing.**\
-`As we consider who might replace Biden on the ticket, we seem finally to have evolved when it comes to evaluating the female contenders.`\
-https://nytimes.com/2024/07/13/opinion/biden-harris-whitmer.html
 
