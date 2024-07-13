@@ -1,3 +1,7 @@
+**Marcell Ozuna homers twice for Braves, who like their postseason chances no matter the path**\
+`So, why are these Braves confident they can make a deep playoff run, regardless of whether they win the division?`\
+https://nytimes.com/athletic/5634844/2024/07/13/marcell-ozuna-two-homers-braves-padres/
+
 **A Money Guru Bet Big on a Very Long Life. Then He Got Cancer.**\
 `Jonathan Clements, a longtime personal finance columnist for The Wall Street Journal, has a lot of savings. He’s not mad that a fatal illness will keep him from spending it.`\
 https://nytimes.com/2024/07/13/your-money/jonathan-clements-cancer.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5634789/2024/07/13/kyle-hendricks-cubs-cardinals/
 **Marc Cucurella: Spain's Euro 2024 cult hero on Cole Palmer, England and change at Chelsea**\
 `The 25-year-old left-back's performances in Germany have surprised some - but he has always backed himself`\
 https://nytimes.com/athletic/5634186/2024/07/13/marc-cucurella-interview-chelsea-spain-euro-2024/
-
-**Back in San Francisco first time since failed megadeal, Carlos Correa content, looking ahead**\
-`The Minnesota Twins All-Star shortstop played his first game at Oracle Park on Friday since his possible move to the Giants fell apart.`\
-https://nytimes.com/athletic/5634757/2024/07/13/twins-carlos-correa-back-in-san-francisco/
 

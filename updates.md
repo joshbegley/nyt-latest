@@ -1,3 +1,7 @@
+**Marcell Ozuna homers twice for Braves, who like their postseason chances no matter the path**\
+`So, why are these Braves confident they can make a deep playoff run, regardless of whether they win the division?`\
+https://nytimes.com/athletic/5634844/2024/07/13/marcell-ozuna-two-homers-braves-padres/
+
 **A Money Guru Bet Big on a Very Long Life. Then He Got Cancer.**\
 `Jonathan Clements, a longtime personal finance columnist for The Wall Street Journal, has a lot of savings. He’s not mad that a fatal illness will keep him from spending it.`\
 https://nytimes.com/2024/07/13/your-money/jonathan-clements-cancer.html
