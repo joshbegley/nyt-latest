@@ -1,3 +1,15 @@
+**On the Red Carpet at One of India’s Most Lavish Weddings**\
+`After months of buildup, Anant Ambani, the son of India’s richest man, married Radhika Merchant, the daughter of a fellow business tycoon. Celebrities from Hollywood to Bollywood joined their extravagant multiday celebration on the red carpet.`\
+https://nytimes.com/video/fashion/weddings/100000009569446/india-ambani-wedding-red-carpet-billionaire.html
+
+**Kevin Durant uncertainty, why Derrick White over Jaylen Brown and more: Team USA notes**\
+`As Team USA arrives in Abu Dhabi, Kevin Durant's status is up in the air. Plus, notes on Derrick White/Jaylen Brown and Anthony Edwards.`\
+https://nytimes.com/athletic/5635107/2024/07/13/kevin-durant-derrick-white-jaylen-brown-olympics-team-usa/
+
+**England's 58 years of hurt - by numbers**\
+`A look at the facts and figures amassed over England's 58-year drought since their only major trophy — a wait that could end this weekend`\
+https://nytimes.com/athletic/5626364/2024/07/13/england-euro2024-hurt-numbers/
+
 **‘Signs of Scorching Prejudice’ Doomed the Case Against Alec Baldwin**\
 `A high-pressure manslaughter case against a movie star turned into an interrogation of the prosecution’s conduct.`\
 https://nytimes.com/2024/07/13/arts/alec-baldwin-rust-prosecutor-kari-morrissey.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/13/business/dealbook/what-if-the-ai-boosters-are-wro
 **So Close and Yet So Far**\
 `A subway run-in, long-distance romance and an emotionally confusing rescue.`\
 https://nytimes.com/2024/07/13/podcasts/so-close-and-yet-so-far-this-american-life-nyt-audio.html
-
-**Amadou Onana exclusive - 'In a very humble way, I feel I can do it all'**\
-`A version of this article was originally published in December 2023.`\
-https://nytimes.com/athletic/5635195/2024/07/13/amadou-onana-in-a-very-humble-way-i-feel-i-can-do-it-all/
-
-**MLB Draft standouts: Jim Bowden ranks his top 35 prospects in 2024 class**\
-`After studying the top draft-eligible players and talking with evaluators and executives, here is how Bowden ranks the top draft prospects.`\
-https://nytimes.com/athletic/5634548/2024/07/13/mlb-draft-2024-top-prospects-bazzana-condon/
-
-**The NHL prospect diet: 4,500 calories per day, 7 meals and a big grocery bill — 'it's a job'**\
-`Bruins nutritionist Julie Nicoletti on young players' diets: “It’s a job. It really is. Gaining weight at their age is really challenging."`\
-https://nytimes.com/athletic/5626626/2024/07/13/nhl-prospect-diet-bruins/
 

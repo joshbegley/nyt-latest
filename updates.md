@@ -1,3 +1,15 @@
+**On the Red Carpet at One of India’s Most Lavish Weddings**\
+`After months of buildup, Anant Ambani, the son of India’s richest man, married Radhika Merchant, the daughter of a fellow business tycoon. Celebrities from Hollywood to Bollywood joined their extravagant multiday celebration on the red carpet.`\
+https://nytimes.com/video/fashion/weddings/100000009569446/india-ambani-wedding-red-carpet-billionaire.html
+
+**Kevin Durant uncertainty, why Derrick White over Jaylen Brown and more: Team USA notes**\
+`As Team USA arrives in Abu Dhabi, Kevin Durant's status is up in the air. Plus, notes on Derrick White/Jaylen Brown and Anthony Edwards.`\
+https://nytimes.com/athletic/5635107/2024/07/13/kevin-durant-derrick-white-jaylen-brown-olympics-team-usa/
+
+**England's 58 years of hurt - by numbers**\
+`A look at the facts and figures amassed over England's 58-year drought since their only major trophy — a wait that could end this weekend`\
+https://nytimes.com/athletic/5626364/2024/07/13/england-euro2024-hurt-numbers/
+
 **‘Signs of Scorching Prejudice’ Doomed the Case Against Alec Baldwin**\
 `A high-pressure manslaughter case against a movie star turned into an interrogation of the prosecution’s conduct.`\
 https://nytimes.com/2024/07/13/arts/alec-baldwin-rust-prosecutor-kari-morrissey.html
