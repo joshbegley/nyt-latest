@@ -1,3 +1,7 @@
+**Two Trump Sons Set to Speak at G.O.P. Convention, but No Word on Melania**\
+`Donald Trump’s daughters also were not on the list of next week’s speakers released by the Trump campaign and Republican National Committee.`\
+https://nytimes.com/2024/07/13/us/politics/trump-rnc-speakers.html
+
 **Man Gets 226 Years in Prison in the Alaska Killings of 2 Native Women**\
 `The man was arrested in 2019 after a woman turned over images and a video of one of the murders that she had found on his phone. He confessed to having killed another woman, the authorities said.`\
 https://nytimes.com/2024/07/13/us/brian-smith-sentence-killing-alaska-native-women.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5635596/2024/07/13/england-euro-2024-final-gareth-s
 **2 Measles Cases Reported in New York City Migrant Shelter**\
 `The highly contagious disease was detected in a shelter in Brooklyn, according to the health department. More cases of measles have been reported in the city this year than in all of 2023.`\
 https://nytimes.com/2024/07/13/nyregion/measles-nyc-migrant-shelter.html
-
-**What Is Mawasi, the ‘humanitarian zone’ where a Hamas commander was targeted?**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2024/07/13/world/israel-gaza-war-hamas/what-is-mawasi-the-humanitarian-zone-where-a-hamas-commander-was-targeted
 
