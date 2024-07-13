@@ -1,7 +1,3 @@
-**Thomas Hoepker, Who Captured an Indelible 9/11 Image, Dies at 88**\
-`His photograph of five young people lounging on the Brooklyn waterfront as smoke engulfed Manhattan mesmerized viewers and stirred controversy.`\
-https://nytimes.com/2024/07/13/arts/thomas-hoepker-dead.html
-
 **A series of pops was heard just minutes into the event. Here’s the latest.**\
 `By Michael Gold and Simon J. Levien`\
 https://nytimes.com/live/2024/07/13/us/biden-trump-election/trump-rally-pennsylvania
@@ -26,7 +22,7 @@ https://nytimes.com/2024/07/13/health/ivf-embryo-storage-callout.html
 `A social media post showing two flight attendants wearing the pins drew criticism and prompted Delta to say that only U.S. flag pins would be permitted.`\
 https://nytimes.com/2024/07/13/business/delta-palestinian-flag-pins.html
 
-**USWNT 1-0 Mexico takeaways: How much is left to learn before the Olympics**\
+**USWNT 1-0 Mexico takeaways: How much is left to learn before the Olympics?**\
 `The U.S. is gearing up for this summer's Olympics. Here's what happened when they kicked off their send-off tour.`\
 https://nytimes.com/athletic/5635689/2024/07/13/uswnt-mexico-takeaways-olympic-sendoff/
 
@@ -37,4 +33,8 @@ https://nytimes.com/2024/07/13/us/abe-krash-dead.html
 **Israel Launches Major Attack Against a Senior Hamas Commander**\
 `The target, Muhammad Deif, was an architect of the Oct. 7 attacks and has been the object of repeated Israeli assassination attempts over decades.`\
 https://nytimes.com/2024/07/13/world/middleeast/israel-hamas-deif-mawasi-khan-younis.html
+
+**A smiling ghost of Centre Court - and a Wimbledon final in no need of a grand narrative**\
+`Barbora Krejcikova and Jasmine Paolini's Wimbledon final may not be part of a grand tennis narrative. It doesn't need to be – it was enough`\
+https://nytimes.com/athletic/5635592/2024/07/13/wimbledon-final-barbora-krejcikova-jana-novotna/
 
