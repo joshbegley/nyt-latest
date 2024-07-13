@@ -1,3 +1,7 @@
+**Ipswich complete signing of Delap from Manchester City**\
+`Ipswich Town have completed the signing of striker Liam Delap from Manchester City.`\
+https://nytimes.com/athletic/5623663/2024/07/13/liam-delap-ipswich-transfer/
+
 **Keeping the Lights on at the Met Museum Is an Art in Itself**\
 `A look behind the scenes at the illumination of the pieces on display. The so-called lampers strike a delicate balance between accentuating the art and protecting it from the effects of light.`\
 https://nytimes.com/2024/07/13/arts/design/metropolitan-art-museum-lighting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/13/style/quannah-chasinghorses-mother-of-pearl-septu
 **The N.R.A. Is Facing a Court Fight for Control of Its Future**\
 `Wayne LaPierre was ousted on the eve of the first phase of the trial. In the second act, the stakes will be far higher.`\
 https://nytimes.com/2024/07/13/nyregion/nra-trial-nyc.html
-
-**The Nazi Jurist Who Haunts Our Broken Politics**\
-`A contempt for compromise. An expansive vision of executive power. Both owe much to Carl Schmitt.`\
-https://nytimes.com/2024/07/13/books/review/carl-schmitt-jd-vance.html
 
