@@ -1,3 +1,7 @@
+**Pritzker Tries to Reassure Fellow Midwestern Democrats Amid Biden Anxiety**\
+`Gov. JB Pritzker of Illinois spoke to Democratic gatherings in Indiana and Ohio as party leaders tried to ease panic about President Biden.`\
+https://nytimes.com/2024/07/13/us/pritzker-biden-democrats.html
+
 **Kamala Harris calls Trump a politician who ‘incites hate.’**\
 `By Nicholas Nehamas`\
 https://nytimes.com/live/2024/07/13/us/biden-trump-election/kamala-harris-calls-trump-a-politician-who-incites-hate

@@ -1,3 +1,7 @@
+**Pritzker Tries to Reassure Fellow Midwestern Democrats Amid Biden Anxiety**\
+`Gov. JB Pritzker of Illinois spoke to Democratic gatherings in Indiana and Ohio as party leaders tried to ease panic about President Biden.`\
+https://nytimes.com/2024/07/13/us/pritzker-biden-democrats.html
+
 **Kamala Harris calls Trump a politician who ‘incites hate.’**\
 `By Nicholas Nehamas`\
 https://nytimes.com/live/2024/07/13/us/biden-trump-election/kamala-harris-calls-trump-a-politician-who-incites-hate
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5635592/2024/07/13/wimbledon-final-barbora-krejciko
 **Fire Dept. Commissioner Laura Kavanagh to Step Down**\
 `Ms. Kavanagh, the first woman to oversee the New York Fire Department in its nearly 160-year history, gave no explanation for her departure.`\
 https://nytimes.com/2024/07/13/nyregion/fdny-commissioner-laura-kavanagh-resign.html
-
-**Two Trump Sons Set to Speak at G.O.P. Convention, but No Word on Melania**\
-`Donald Trump’s daughters also were not on the list of next week’s speakers released by the Trump campaign and Republican National Committee.`\
-https://nytimes.com/2024/07/13/us/politics/trump-rnc-speakers.html
 
