@@ -1,3 +1,7 @@
+**Man Gets 226 Years in Prison in the Alaska Killings of 2 Native Women**\
+`The man was arrested in 2019 after a woman turned over images and a video of one of the murders that she had found on his phone. He confessed to having killed another woman, the authorities said.`\
+https://nytimes.com/2024/07/13/us/brian-smith-sentence-killing-alaska-native-women.html
+
 **Some of Dr. Ruth’s Most Memorable Moments**\
 `After rising to fame in the 1980s, Ruth Westheimer, known as Dr. Ruth, mingled with celebrities, wrote dozens of books and was named as New York’s “loneliness ambassador.”`\
 https://nytimes.com/2024/07/13/arts/dr-ruth-westheimer-career-highlights.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/13/nyregion/measles-nyc-migrant-shelter.html
 **What Is Mawasi, the ‘humanitarian zone’ where a Hamas commander was targeted?**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/07/13/world/israel-gaza-war-hamas/what-is-mawasi-the-humanitarian-zone-where-a-hamas-commander-was-targeted
-
-**On an Island in Maine, a Meal Worth Traveling For**\
-`A family celebrated the arrival of a special artwork at their home by inviting its maker to stay — and cooking her an oceanside dinner.`\
-https://nytimes.com/2024/07/13/t-magazine/brooke-williams-josh-liberson-dinner-party.html
 
