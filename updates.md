@@ -1,3 +1,7 @@
+**The clubs that made England - and the players being inspired to follow them**\
+`The Athletic pays tribute to the clubs that made the squad and speaks to players from their old academies who are inspired by them`\
+https://nytimes.com/athletic/5633291/2024/07/13/england-squad-euro-2024-clubs/
+
 **Lamine Yamal and Lionel Messi: The beginnings and the endings of greatness**\
 `At Barcelona, Lamine Yamal is considered the closest thing they have seen to Lionel Messi. That he has been more precocious is undeniable`\
 https://nytimes.com/athletic/5633196/2024/07/13/lamine-yamal-lionel-messi/
