@@ -1,3 +1,7 @@
+**Serving Dishes?**\
+`Eli Cotham’s first Saturday puzzle for The Times gives us something to talk about.`\
+https://nytimes.com/2024/07/12/crosswords/daily-puzzle-2024-07-13.html
+
 **Phillies' Whit Merrifield move just the first domino as they rearrange bench, weigh trade options**\
 `The Phillies can be picky about how they tweak their roster this month. They've signaled they're prioritizing a trade for a RHH outfielder. `\
 https://nytimes.com/athletic/5634667/2024/07/12/phillies-trade-options-outfielder-release-whit-merrifield/
