@@ -1,3 +1,7 @@
+**Abe Krash, Who Fought for a Constitutional Right to Counsel, Dies at 97**\
+`He provided the research and drafts that helped bring about the Supreme Court’s landmark Gideon v. Wainwright decision in 1963.`\
+https://nytimes.com/2024/07/13/us/abe-krash-dead.html
+
 **Israel Launches Major Attack Against a Senior Hamas Commander**\
 `The target, Muhammad Deif, was an architect of the Oct. 7 attacks and has been the object of repeated Israeli assassination attempts over decades.`\
 https://nytimes.com/2024/07/13/world/middleeast/israel-hamas-deif-mawasi-khan-younis.html
