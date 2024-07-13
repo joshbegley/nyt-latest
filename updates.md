@@ -1,3 +1,7 @@
+**Game, Set, Match: Barbora Krejcikova beats Jasmine Paolini to win first Wimbledon title**\
+`How Barbora Krejcikova won the Wimbledon women's final against Jasmine Paolini`\
+https://nytimes.com/athletic/5635277/2024/07/13/barbora-krejcikova-jasmine-paolini-wimbledon-final/
+
 **Colorado Reports Three More Presumed Cases of Bird Flu**\
 `The cases, which have yet to be confirmed, were identified in farmworkers culling infected birds. The risk to the public remains low, health officials said.`\
 https://nytimes.com/2024/07/13/science/bird-flu-colorado.html

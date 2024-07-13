@@ -1,3 +1,7 @@
+**Game, Set, Match: Barbora Krejcikova beats Jasmine Paolini to win first Wimbledon title**\
+`How Barbora Krejcikova won the Wimbledon women's final against Jasmine Paolini`\
+https://nytimes.com/athletic/5635277/2024/07/13/barbora-krejcikova-jasmine-paolini-wimbledon-final/
+
 **Colorado Reports Three More Presumed Cases of Bird Flu**\
 `The cases, which have yet to be confirmed, were identified in farmworkers culling infected birds. The risk to the public remains low, health officials said.`\
 https://nytimes.com/2024/07/13/science/bird-flu-colorado.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5635285/2024/07/13/laurent-blanc-al-ittihad-head-co
 **Angry Birds Take on Drones at New York City Beach**\
 `American Oystercatchers are attacking drones that have been deployed to scan for sharks and swimmers in distress.`\
 https://nytimes.com/2024/07/13/nyregion/nyc-beaches-drones-angry-birds.html
-
-**Why Does a Routine Test of Newborns Reward ‘Pink’ Skin?**\
-`The Apgar test grades infants in five areas, including skin tone. Babies of color score lower, and may be subjected to unnecessary treatment.`\
-https://nytimes.com/2024/07/13/health/apgar-score-black-infants.html
 
