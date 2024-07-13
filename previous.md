@@ -1,3 +1,7 @@
+**Laurent Blanc: Former France and PSG manager appointed Al Ittihad head coach**\
+`Laurent Blanc has been appointed as the new head coach of Saudi Pro League club Al Ittihad.`\
+https://nytimes.com/athletic/5635285/2024/07/13/laurent-blanc-al-ittihad-head-coach/
+
 **Angry Birds Take on Drones at New York City Beach**\
 `American Oystercatchers are attacking drones that have been deployed to scan for sharks and swimmers in distress.`\
 https://nytimes.com/2024/07/13/nyregion/nyc-beaches-drones-angry-birds.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/13/us/politics/rnc-stream-watch-when-is-it.html
 **Trump will rally in Pennsylvania, as Biden allies hit the trail, too. Here’s the latest.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/07/13/us/biden-trump-election/trump-will-rally-in-pennsylvania-as-biden-allies-hit-the-trail-too-heres-the-latest
-
-**A video captures casualties and damage from the Israeli strike on southern Gaza.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/07/13/world/israel-gaza-war-hamas/a-video-captures-casualties-and-damage-from-the-israeli-strike-on-southern-gaza
 
