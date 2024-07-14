@@ -1,3 +1,7 @@
+**Republicans attacked Democrats whose bill could strip Trump of protection.**\
+`By Robert Jimison`\
+https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/republicans-attacked-democrats-whose-bill-could-strip-trump-of-protection
+
 **Astros' Ronel Blanco had a brilliant first half. Can he sustain it in the second?**\
 `“He’s been unbelievable,” third baseman Alex Bregman said of Blanco, who has become a bona fide starter. He has one of baseball's best ERAs.`\
 https://nytimes.com/athletic/5637315/2024/07/14/astros-ronel-blanco-first-half-success/
