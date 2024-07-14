@@ -1,3 +1,7 @@
+**Astros' Ronel Blanco had a brilliant first half. Can he sustain it in the second?**\
+`“He’s been unbelievable,” third baseman Alex Bregman said of Blanco, who has become a bona fide starter. He has one of baseball's best ERAs.`\
+https://nytimes.com/athletic/5637315/2024/07/14/astros-ronel-blanco-first-half-success/
+
 **The Secret Service fears overreacting to unfounded bystander reports, former agents say.**\
 `By David A. Fahrenthold`\
 https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/the-secret-service-fears-overreacting-to-unfounded-bystander-reports-former-agents-say
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5637223/2024/07/14/dodgers-tigers-walk-off-loss-all
 **The Photographs That Made Trump an Incarnation of Defiance**\
 `In video footage, everything was pandemonium. It was still images that defined the attack and its aftermath.`\
 https://nytimes.com/2024/07/14/arts/design/trump-photo-raised-fist.html
-
-**Republicans attacked Democrats whose bill could strip Trump of protection.**\
-`By Robert Jimison`\
-https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/republicans-attacked-democrats-whose-bill-could-strip-trump-of-protection
 
