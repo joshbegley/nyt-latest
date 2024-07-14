@@ -2,9 +2,13 @@
 `The deal to acquire the cybersecurity company would easily be Google’s most expensive acquisition.`\
 https://nytimes.com/2024/07/14/technology/google-readies-23-billion-deal-for-wiz-a-start-up-despite-antitrust-scrutiny.html
 
-**A New Prince Leads Spain as Its Rules European Soccer Again**\
+**A New Prince Leads Spain as It Rules European Soccer Again**\
 `A 2-1 victory in the Euro 2024 final extended England’s suffering but crowned a generational star in Spain’s teenage forward, Lamine Yamal.`\
 https://nytimes.com/2024/07/14/world/europe/euro-2024-final-spain-lamine-yamal.html
+
+**Dodgers stumble into All-Star break after disastrous ninth inning: 'Hard to be perfect'**\
+`The Dodgers' second spectacular ninth-inning implosion in as many afternoons to the Detroit Tigers capped a miserable stretch.`\
+https://nytimes.com/athletic/5637223/2024/07/14/dodgers-tigers-walk-off-loss-all-star-break/
 
 **The Photographs That Made Trump the Incarnation of Defiance**\
 `In video footage, everything was pandemonium. It was still images that defined the attack and its aftermath.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/14/world/middleeast/israel-mawasi-strike-vehicles.ht
 **A Democratic U.S. representative fires an aide who posted that she wished Trump’s assassin had better aim.**\
 `By Luke Broadwater`\
 https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/a-democratic-us-representative-fires-an-aide-who-posted-that-she-wished-trumps-assassin-had-better-aim
-
-**Sign of Things to Come**\
-`Tarun Krishnamurthy makes his New York Times debut.`\
-https://nytimes.com/2024/07/14/crosswords/daily-puzzle-2024-07-15.html
 
