@@ -1,3 +1,11 @@
+**The AR-15-style rifle is one of the most ubiquitous weapons in the United States.**\
+`By Thomas Gibbons-Neff`\
+https://nytimes.com/live/2024/07/14/us/trump-shooting-election/the-ar-15-style-rifle-is-one-of-the-most-ubiquitous-weapons-in-the-united-states
+
+**Team USA's Steve Kerr, Steph Curry decry assassination attempt on Donald Trump**\
+`Steve Kerr and Stephen Curry — speaking from Abu Dhabi, where the team is preparing for the Olympics — decried the shooting in Pennsylvania.`\
+https://nytimes.com/athletic/5636371/2024/07/14/donald-trump-shooting-team-usa-steve-kerr/
+
 **The Assassination Attempt Against Donald Trump**\
 `What we know about the shooting in Pennsylvania.`\
 https://nytimes.com/2024/07/14/briefing/donald-trump-assassination-attempt.html
