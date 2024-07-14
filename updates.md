@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Mike Ives`\
+https://nytimes.com/live/2024/07/14/us/trump-shooting-election/heres-the-latest
+
+**Live Updates: Trump Safe After Failed Assassination Attempt**\
+`The authorities identified the gunman, who was killed, and said they were working “tirelessly” to investigate the attack on former President Donald J. Trump at a political rally in Pennsylvania.`\
+https://nytimes.com/live/2024/07/14/us/trump-shooting-election
+
+**World leaders express outrage and concern.**\
+`Messages of support poured in from around the worl`\
+https://nytimes.com/live/2024/07/14/us/trump-shooting-election/world-leaders-express-outrage-and-concern
+
 **Corrections: July 14, 2024**\
 `Corrections that appeared in print on Sunday, July 14, 2024.`\
 https://nytimes.com/2024/07/14/pageoneplus/corrections-july-14-2024.html
