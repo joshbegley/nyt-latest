@@ -1,3 +1,7 @@
+**The making of Lamine Yamal and his path to Euro 2024 stardom**\
+`Lamine Yamal's rise has been rapid — this is the story of how he became a teenage superstar`\
+https://nytimes.com/athletic/5635539/2024/07/14/lamine-yamal-spain-euro-2024-barcelona/
+
 **Are Soccer’s Showcase Games the Riskiest Gig in Music?**\
 `Performing before a major match like the Euro 2024 final offers priceless visibility, and the nonzero chance that you’ll be booed.`\
 https://nytimes.com/2024/07/14/world/europe/euro-2024-final-music-performer.html

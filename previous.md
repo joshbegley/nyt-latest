@@ -1,3 +1,7 @@
+**The making of Lamine Yamal and his path to Euro 2024 stardom**\
+`Lamine Yamal's rise has been rapid — this is the story of how he became a teenage superstar`\
+https://nytimes.com/athletic/5635539/2024/07/14/lamine-yamal-spain-euro-2024-barcelona/
+
 **Are Soccer’s Showcase Games the Riskiest Gig in Music?**\
 `Performing before a major match like the Euro 2024 final offers priceless visibility, and the nonzero chance that you’ll be booed.`\
 https://nytimes.com/2024/07/14/world/europe/euro-2024-final-music-performer.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5625918/2024/07/14/england-fans-euro-2024/
 **In England, a Changed Nation Hopes for a Change in Soccer Fortunes**\
 `After installing a Labour government for the first time in 14 years, the country is looking to a historical precedent as a presage to a long-awaited sporting success.`\
 https://nytimes.com/2024/07/14/world/europe/england-euro24-final-spain.html
-
-**A Shooting Changes a Family. And It Can Change a Nation.**\
-`I pray we learn the right lessons from this awful event.`\
-https://nytimes.com/2024/07/14/opinion/trump-rally-shooting-reagan.html
 
