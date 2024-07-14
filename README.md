@@ -1,3 +1,7 @@
+**A Democratic U.S. representative fires an aide who posted that she wished Trump’s assassin had better aim.**\
+`By Luke Broadwater`\
+https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/a-democratic-us-representative-fires-an-aide-who-posted-that-she-wished-trumps-assassin-had-better-aim
+
 **Sign of Things to Come**\
 `Tarun Krishnamurthy makes his New York Times debut.`\
 https://nytimes.com/2024/07/14/crosswords/daily-puzzle-2024-07-15.html
@@ -26,15 +30,11 @@ https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/a-democratic-do
 `Plus, a major Israeli airstrike in Gaza.`\
 https://nytimes.com/2024/07/14/briefing/donald-trump-assassination-israel-gaza.html
 
-**Photographer Who Captured the Rally Shooting: ‘I Just Kept Doing My Job’**\
+**Photographer Who Captured Trump Rally Shooting: ‘I Just Kept Doing My Job’**\
 `Doug Mills, a Times photographer, was at the Trump rally in Butler, Pa., on Saturday when shots rang out. He described his experience to Times Insider.`\
 https://nytimes.com/2024/07/14/insider/doug-mills-trump-rally-shooting.html
 
 **Tennis usually passes the torch. Carlos Alcaraz is running away with it**\
 `Carlos Alcaraz dispatched Novak Djokovic at Wimbledon, in less of a transfer of power than a takeover`\
 https://nytimes.com/athletic/5636892/2024/07/14/carlos-alcaraz-wimbledon-novak-djokovic-tennis/
-
-**Carlos Alcaraz is a Wimbledon champion - and Spain's Euro 2024 good-luck charm**\
-`Carlos Alcaraz makes tennis history at Wimbledon, as Spain chase the same dream at Euro 2024`\
-https://nytimes.com/athletic/5630953/2024/07/14/carlos-alcaraz-wimbledon-spain-football-european-championship/
 
