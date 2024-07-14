@@ -1,3 +1,7 @@
+**Amid the Mayhem, Trump Pumped His Fist and Revealed His Instincts**\
+`A bloodied Donald J. Trump made Secret Service agents wait while he expressed his defiance. The moment epitomized his visceral connection with his supporters, and his mastery of the modern media age.`\
+https://nytimes.com/2024/07/13/us/politics/donald-trump-rally-shooting-2024-campaign.html
+
 **Who is Euro 2024 final referee Letexier? Part-time bailiff and history maker**\
 `France did not make it to the final of the European Championships as they so dreamed of doing.`\
 https://nytimes.com/athletic/5633526/2024/07/13/francois-letexier-euro-2024-final-referee/

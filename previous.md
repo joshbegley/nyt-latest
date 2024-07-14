@@ -1,3 +1,7 @@
+**Amid the Mayhem, Trump Pumped His Fist and Revealed His Instincts**\
+`A bloodied Donald J. Trump made Secret Service agents wait while he expressed his defiance. The moment epitomized his visceral connection with his supporters, and his mastery of the modern media age.`\
+https://nytimes.com/2024/07/13/us/politics/donald-trump-rally-shooting-2024-campaign.html
+
 **Who is Euro 2024 final referee Letexier? Part-time bailiff and history maker**\
 `France did not make it to the final of the European Championships as they so dreamed of doing.`\
 https://nytimes.com/athletic/5633526/2024/07/13/francois-letexier-euro-2024-final-referee/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/13/opinion/donald-trump-rally-shooting.html
 **Why Yankees' Luis Gil is leaning on new slider and dominating again**\
 `“The way he’s throwing it now,” catcher Austin Wells said, “it’s a plus pitch.” New York beat Baltimore 6-1 at Camden Yards. `\
 https://nytimes.com/athletic/5635936/2024/07/13/yankees-luis-gil-slider-dominating/
-
-**Two Attendees Describe the Moment Trump’s Rally Erupted Into Chaos**\
-`Two Republicans who were in the crowd described seeing what looked like “a lot of blood” on a higher level of the seating section behind them.`\
-https://nytimes.com/2024/07/13/us/politics/witnesses-describe-trump-rally-shooting.html
 
