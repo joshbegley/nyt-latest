@@ -1,3 +1,7 @@
+**What My Colleagues Saw at the Trump Rally Shooting**\
+`The shocking twist in the election is another chapter in the nation’s history of political violence.`\
+https://nytimes.com/2024/07/14/us/politics/what-my-colleagues-saw-at-the-trump-rally-shooting.html
+
 **An Attempt to Kill an Ex-President, Caught in Real Time, Stuns the Country**\
 `The shooting targeting Donald J. Trump was the first of its kind in the era of social media, and was followed by a flood of striking images, rich eyewitness accounts and furious, fearful reaction.`\
 https://nytimes.com/2024/07/14/us/politics/trump-shooting-social-media.html
