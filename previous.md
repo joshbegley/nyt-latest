@@ -1,3 +1,7 @@
+**Richard Simmons’s Radical Promise: Exercise Is for Everybody**\
+`By preaching that you didn’t have to already be slim to work out, Simmons reshaped the fitness industry — and ushered in the modern era of exercise.`\
+https://nytimes.com/2024/07/14/well/move/richard-simmons-exercise.html
+
 **Biden Calls on Americans to Unite After Trump Assassination Attempt**\
 `President Biden said that he had a “short but good conversation” with former President Donald J. Trump after the shooting, and that he had demanded a national security review of what happened at Mr. Trump’s rally. Mr. Biden promised to share the results with the American people.`\
 https://nytimes.com/video/us/elections/100000009571124/biden-unity-trump.html
@@ -15,7 +19,7 @@ https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/a-democratic-us
 https://nytimes.com/2024/07/14/crosswords/daily-puzzle-2024-07-15.html
 
 **'I've got fight, and that's all I need': How Bob from Oban won the Scottish Open**\
-`An eagle on 16 tied Macintyre with Adam Scott for the lead. A birdie putt on 18 gave Macintyre the victory at Renaissance Club.`\
+`An eagle on 16 tied MacIntyre with Adam Scott for the lead. A birdie putt on 18 gave MacIntyre the victory at Renaissance Club.`\
 https://nytimes.com/athletic/5637143/2024/07/14/robert-macintyre-scottish-open-win/
 
 **From a playing and personality standout, Jacoby Jones was the perfect fit in Baltimore**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5637046/2024/07/14/yankees-orioles-worst-loss-of-se
 **A Democratic donor draws Republican ire over a ‘martyr’ comment about Trump days before the attack.**\
 `By Theodore Schleifer`\
 https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/a-democratic-donor-draws-republican-ire-over-a-martyr-comment-about-trump-days-before-the-attack
-
-**Monday Briefing: An Assassination Attempt on Donald Trump**\
-`Plus, a major Israeli airstrike in Gaza.`\
-https://nytimes.com/2024/07/14/briefing/donald-trump-assassination-israel-gaza.html
 
