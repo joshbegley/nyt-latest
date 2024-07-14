@@ -1,3 +1,7 @@
+**Carlos Santana and dominant bullpen lift short-handed Twins past Giants**\
+`Minnesota won despite missing four of their best hitters and playing catcher Christian Vázquez at third base.`\
+https://nytimes.com/athletic/5636031/2024/07/14/twins-dominant-bullpen-defeats-giants/
+
 **Toronto Raptors' defensive makeover begins with Jamal Shead at Las Vegas Summer League**\
 `Among Shead, Davion Mitchell and Ochai Agbaji, perhaps the Raptors can do something basic — stop the guy with the ball. `\
 https://nytimes.com/athletic/5636053/2024/07/14/toronto-raptors-defensive-makeover-jamal-shead-summer-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/14/world/europe/euro-2024-final-music-performer.html
 **Max Fried addition gives Braves 3 All-Star pitchers, but  bats continue to underwhelm**\
 `The Braves have a trio of All-Star starting pitchers for the first time since 1997, when it was Greg Maddux. Tom Glavine and Denny Neagle.`\
 https://nytimes.com/athletic/5636012/2024/07/14/braves-max-fried-all-star/
-
-**Who decides Euro 2024's player of the tournament?**\
-`A former Chelsea and West Ham manager, Fabio Capello and a head coach whose Crystal Palace team failed to score a goal feature on the panel`\
-https://nytimes.com/athletic/5634081/2024/07/14/euro2024-player-tournament-benitez-moyes/
 
