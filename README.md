@@ -6,8 +6,8 @@ https://nytimes.com/2024/07/14/insider/doug-mills-trump-rally-shooting.html
 `Carlos Alcaraz makes tennis history at Wimbledon, as Spain chase the same dream at Euro 2024`\
 https://nytimes.com/athletic/5630953/2024/07/14/carlos-alcaraz-wimbledon-spain-football-european-championship/
 
-**Secret Service snipers were strategically placed against threats at the Trump rally.**\
-`By Thomas Gibbons-Neff`\
+**Secret Service Snipers Were Strategically Placed Against Threats at the Trump Rally**\
+`In photographs of the Secret Service snipers, they appeared to be using long-range and powerful rifles that likely fire .300 or .338 cartridges, commonly used by well-trained military snipers.`\
 https://nytimes.com/2024/07/14/us/politics/secret-service-snipers-were-strategically-placed-against-threats-at-the-trump-rally.html
 
 **The Briefing: Spain 2 England 1 - Oyarzabal the unlikely hero with late winner in Euro 2024 final**\
