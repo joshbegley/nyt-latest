@@ -1,3 +1,11 @@
+**Blue Jackets Sunday Gathering: Two coaching candidates will visit Columbus this week**\
+`The Blue Jackets' coaching search, which has transfixed the fan base in the middle of the offseason, is heading into its final stages.`\
+https://nytimes.com/athletic/5635499/2024/07/14/blue-jackets-nhl-coach-candidates/
+
+**New Prime Minister Is Named in Nepal After Government Collapses**\
+`K.P. Sharma Oli, who leads the nation’s largest communist party, is to take office on Monday.`\
+https://nytimes.com/2024/07/14/world/asia/nepal-prime-minister-government.html
+
 **Alabama lands 5-star OT Ty Haywood**\
 `As it stands now, Alabama’s 2025 class has 22 commitments: five composite five-star players, 10 top 100 players and 19 blue-chip prospects.`\
 https://nytimes.com/athletic/5636854/2024/07/14/alabama-ty-haywood-recruiting/
@@ -22,19 +30,11 @@ https://nytimes.com/2024/07/14/us/sadako-sasaki-hiroshima-statue-stolen.html
 `Derek VanRiper lays out Francisco Lindor's argument for the Hall of Fame, explains why Paul Skenes may be the top SP pick in '25 and more.`\
 https://nytimes.com/athletic/5635458/2024/07/14/fantasy-baseball-notebook-top-pick-2025-paul-skenes/
 
-**There is no immediate evidence that the gunman had help, investigators say.**\
-`By Glenn Thrush`\
-https://nytimes.com/2024/07/14/us/politics/no-immediate-evidence-that-gunman-had-help-investigation-shows.html
+**There Is No Immediate Evidence That the Gunman Had Help, Investigators Say**\
+`Law enforcement officials cautioned that the investigation was extremely fluid, and they had yet to extract and analyze information from Thomas Matthew Crooks’s electronic devices.`\
+https://nytimes.com/2024/07/14/us/politics/fbi-trump-shooting-investigation.html
 
 **Shooting Plunges an Already Tumultuous Campaign Into Shock and Uncertainty**\
 `The assassination attempt of Donald J. Trump was the latest escalation of political violence and a reminder of the increasing fragility of peaceful democracy in America.`\
 https://nytimes.com/2024/07/14/us/politics/trump-shooting-campaign-politics-biden.html
-
-**Catherine, Princess of Wales, in Purple, Is a Wimbledon Winner**\
-`In her second public appearance since her cancer diagnosis, the princess once again made a considered choice.`\
-https://nytimes.com/2024/07/14/style/princess-kate-middleton-wimbeldon-style.html
-
-**Game, Set, Match: Carlos Alcaraz dispatches Novak Djokovic for Wimbledon title**\
-`How Carlos Alcaraz used his serve and ruthlessness to beat Novak Djokovic and win his second Wimbledon title`\
-https://nytimes.com/athletic/5636272/2024/07/14/carlos-alcaraz-novak-djokovic-wimbledon-final/
 

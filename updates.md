@@ -1,3 +1,15 @@
+**Blue Jackets Sunday Gathering: Two coaching candidates will visit Columbus this week**\
+`The Blue Jackets' coaching search, which has transfixed the fan base in the middle of the offseason, is heading into its final stages.`\
+https://nytimes.com/athletic/5635499/2024/07/14/blue-jackets-nhl-coach-candidates/
+
+**New Prime Minister Is Named in Nepal After Government Collapses**\
+`K.P. Sharma Oli, who leads the nation’s largest communist party, is to take office on Monday.`\
+https://nytimes.com/2024/07/14/world/asia/nepal-prime-minister-government.html
+
+**There Is No Immediate Evidence That the Gunman Had Help, Investigators Say**\
+`Law enforcement officials cautioned that the investigation was extremely fluid, and they had yet to extract and analyze information from Thomas Matthew Crooks’s electronic devices.`\
+https://nytimes.com/2024/07/14/us/politics/fbi-trump-shooting-investigation.html
+
 **Alabama lands 5-star OT Ty Haywood**\
 `As it stands now, Alabama’s 2025 class has 22 commitments: five composite five-star players, 10 top 100 players and 19 blue-chip prospects.`\
 https://nytimes.com/athletic/5636854/2024/07/14/alabama-ty-haywood-recruiting/
