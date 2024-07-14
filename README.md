@@ -1,3 +1,7 @@
+**Olympic Torch Reaches Paris in Elegant Style**\
+`The flame has been on a long journey since its arrival in May, but hopes that it would bring the country together have foundered on political division.`\
+https://nytimes.com/2024/07/14/world/europe/paris-olympics-torch-carrying.html
+
 **Blue Jackets Sunday Gathering: Two coaching candidates will visit Columbus this week**\
 `The Blue Jackets' coaching search, which has transfixed the fan base in the middle of the offseason, is heading into its final stages.`\
 https://nytimes.com/athletic/5635499/2024/07/14/blue-jackets-nhl-coach-candidates/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5635458/2024/07/14/fantasy-baseball-notebook-top-pi
 **There Is No Immediate Evidence That the Gunman Had Help, Investigators Say**\
 `Law enforcement officials cautioned that the investigation was extremely fluid, and they had yet to extract and analyze information from Thomas Matthew Crooks’s electronic devices.`\
 https://nytimes.com/2024/07/14/us/politics/fbi-trump-shooting-investigation.html
-
-**Shooting Plunges an Already Tumultuous Campaign Into Shock and Uncertainty**\
-`The assassination attempt of Donald J. Trump was the latest escalation of political violence and a reminder of the increasing fragility of peaceful democracy in America.`\
-https://nytimes.com/2024/07/14/us/politics/trump-shooting-campaign-politics-biden.html
 
