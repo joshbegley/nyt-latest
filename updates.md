@@ -1,3 +1,15 @@
+**Man Killed at Trump Rally Shielded His Family From Shots**\
+`Relatives and friends described Corey Comperatore, 50, as a devoted father who served as a volunteer firefighter and loved to fish.`\
+https://nytimes.com/2024/07/14/us/corey-comperatore-trump-shooting-victim.html
+
+**The Response to Violence Should Not Be a Media Blame Game**\
+`Conspiracy mindsets go well beyond news organizations or political parties.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-shooting-conspiracy-mindset
+
+**There is no immediate evidence that the gunman had help, investigators say.**\
+`By Glenn Thrush`\
+https://nytimes.com/2024/07/14/us/politics/no-immediate-evidence-that-gunman-had-help-investigation-shows.html
+
 **Dodgers plan to call up top pitching prospect River Ryan: Sources**\
 `Ryan’s expected start date is unknown, but the righty is expected to help fill a rotation slot for a group that includes three rookies.`\
 https://nytimes.com/athletic/5636821/2024/07/14/river-ryan-dodgers-call-up/
