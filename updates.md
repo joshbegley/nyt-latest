@@ -1,3 +1,7 @@
+**Trump Rushed Off Stage at Rally**\
+`Former President Donald J. Trump was escorted off the stage by Secret Service agents and into his motorcade just minutes into a rally after a series of pops rang out.`\
+https://nytimes.com/video/us/elections/100000009570231/trump-rally-shots-butler-pennsylvania.html
+
 **Dodgers' May out for season after esophageal surgery**\
 `The surgery will prevent Dustin May from being a potential cog for a pitching staff in dire need of reinforcement.`\
 https://nytimes.com/athletic/5635893/2024/07/13/dustin-may-dodgers-esophageal-surgery/
