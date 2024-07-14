@@ -1,3 +1,7 @@
+**After Shooting at Trump Rally, Officials Say R.N.C. Security Is ‘Ready To Go’**\
+`As 50,000 people began arriving in Milwaukee for the Republican National Convention, Secret Service officials and local leaders aimed to reassure the public about safety.`\
+https://nytimes.com/2024/07/14/us/milwaukee-rnc-security-trump.html
+
 **Google Readies $23 Billion Deal for Wiz, a Start-Up, Despite Antitrust Scrutiny**\
 `The deal to acquire the cybersecurity company would easily be Google’s most expensive acquisition.`\
 https://nytimes.com/2024/07/14/technology/google-readies-23-billion-deal-for-wiz-a-start-up-despite-antitrust-scrutiny.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/elections/100000009571124/biden-unity-trump.html
 **Israel Struck Twice in Its Attack on Al-Mawasi, Videos and Photos Show**\
 `Visual evidence from Saturday’s strike in Gaza that left dozens dead appears to show that the Israeli military launched a separate strike near emergency vehicles.`\
 https://nytimes.com/2024/07/14/world/middleeast/israel-mawasi-strike-vehicles.html
-
-**A Democratic U.S. representative fires an aide who posted that she wished Trump’s assassin had better aim.**\
-`By Luke Broadwater`\
-https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/a-democratic-us-representative-fires-an-aide-who-posted-that-she-wished-trumps-assassin-had-better-aim
 

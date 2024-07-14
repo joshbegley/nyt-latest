@@ -1,3 +1,7 @@
+**After Shooting at Trump Rally, Officials Say R.N.C. Security Is ‘Ready To Go’**\
+`As 50,000 people began arriving in Milwaukee for the Republican National Convention, Secret Service officials and local leaders aimed to reassure the public about safety.`\
+https://nytimes.com/2024/07/14/us/milwaukee-rnc-security-trump.html
+
 **The Photographs That Made Trump an Incarnation of Defiance**\
 `In video footage, everything was pandemonium. It was still images that defined the attack and its aftermath.`\
 https://nytimes.com/2024/07/14/arts/design/trump-photo-raised-fist.html
