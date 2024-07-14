@@ -1,3 +1,7 @@
+**The Sound of the Assassin’s Gun Never Goes Away**\
+`It also reverberated in the Ambassador Hotel ballroom in 1968.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/rfk-assassination-political-violence
+
 **Videos Show Suspect Lying Motionless on Nearby Rooftop After Shooting**\
 `An audio analysis by the The New York Times and an another expert suggested that eight shots had been fired by the gunman.`\
 https://nytimes.com/2024/07/13/us/politics/trump-rally-shooting-suspect-video.html
