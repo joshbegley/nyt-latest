@@ -1,3 +1,7 @@
+**Dodgers' May out for season after esophageal surgery**\
+`The surgery will prevent Dustin May from being a potential cog for a pitching staff in dire need of reinforcement.`\
+https://nytimes.com/athletic/5635893/2024/07/13/dustin-may-dodgers-esophageal-surgery/
+
 **Report From the Scene: ‘Get Down! Shots Fired!’**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/07/13/us/biden-trump-election/report-from-the-scene-get-down-shots-fired
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/elections/100000009570231/trump-rally-shots-butler-
 **'It was like meeting a god': Tennis impressionist Josh Berry on mimicking the GOATs**\
 `Want to speak to Rafael Nadal, Roger Federer, John McEnroe, and Andy Murray? Become a Wimbledon commentator – or just call Josh Berry`\
 https://nytimes.com/athletic/5635110/2024/07/13/josh-berry-tennis-impressions-interview/
-
-**Colombia coach criticizes Copa America plans for halftime show**\
-`Colombia head coach Nestor Lorenzo has criticized plans for a halftime show during Sunday&#8217;s Copa America final with Argentina.`\
-https://nytimes.com/athletic/5635843/2024/07/13/copa-america-halftime-show-shakira/
 
