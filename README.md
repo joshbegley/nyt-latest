@@ -1,3 +1,7 @@
+**Our Photographer on Capturing the Bullet Streaking Past Trump**\
+`Doug Mills, a veteran photographer for The New York Times, was only a few feet away from former President Donald J.`\
+https://nytimes.com/video/us/politics/100000009570661/photographer-captures-bullet-streaking-past-trump.html
+
 **Trump Credits Chart for Saving His Life, His Former White House Doctor Says**\
 `The former president said he would have been struck “right in the head” if he hadn’t turned and pointed at an immigration chart, Dr. Ronny Jackson said in an interview.`\
 https://nytimes.com/2024/07/14/us/politics/trump-chart-rally.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/14/world/europe/paris-olympics-torch-carrying.html
 **Blue Jackets Sunday Gathering: Two coaching candidates will visit Columbus this week**\
 `The Blue Jackets' coaching search, which has transfixed the fan base in the middle of the offseason, is heading into its final stages.`\
 https://nytimes.com/athletic/5635499/2024/07/14/blue-jackets-nhl-coach-candidates/
-
-**New Prime Minister Is Named in Nepal After Government Collapses**\
-`K.P. Sharma Oli, who leads the nation’s largest communist party, is to take office on Monday.`\
-https://nytimes.com/2024/07/14/world/asia/nepal-prime-minister-government.html
 
