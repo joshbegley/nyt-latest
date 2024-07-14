@@ -1,3 +1,11 @@
+**Videos Show Suspect Lying Motionless on Nearby Rooftop After Shooting**\
+`An audio analysis by the The New York Times and an another expert suggested that eight shots had been fired by the gunman.`\
+https://nytimes.com/2024/07/13/us/politics/trump-rally-shooting-suspect-video.html
+
+**The Attack on Donald Trump Is Antithetical to America**\
+`Any attempt to resolve an election through violence is abhorrent.`\
+https://nytimes.com/2024/07/13/opinion/donald-trump-rally-shooting.html
+
 **Amid the Mayhem, Trump Pumped His Fist and Revealed His Instincts**\
 `A bloodied Donald J. Trump made Secret Service agents wait while he expressed his defiance. The moment epitomized his visceral connection with his supporters, and his mastery of the modern media age.`\
 https://nytimes.com/2024/07/13/us/politics/donald-trump-rally-shooting-2024-campaign.html
