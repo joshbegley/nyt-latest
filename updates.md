@@ -1,3 +1,7 @@
+**Shannen Doherty, ‘Beverly Hills, 90210’ Star, Dies at 53**\
+`Ms. Doherty, who also had roles in the TV series “Charmed” and the comedy-thriller “Heathers,” had continued to work after a breast cancer diagnosis.`\
+https://nytimes.com/2024/07/14/arts/television/shannen-doherty-dead.html
+
 **Catherine, Princess of Wales, Attends Wimbledon Men’s Final**\
 `The princess has stepped back from the public eye since her cancer diagnosis earlier this year.`\
 https://nytimes.com/2024/07/14/world/europe/kate-princess-of-wales-wimbledon.html
