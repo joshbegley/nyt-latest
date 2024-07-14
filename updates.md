@@ -1,3 +1,15 @@
+**Photo Appears to Capture Path of Bullet Used in Assassination Attempt**\
+`Michael Harrigan, a retired F.B.I. special agent, said the image captured by Doug Mills, a New York Times photographer, seems to show a bullet streaking past former President Donald J. Trump.`\
+https://nytimes.com/2024/07/14/us/politics/photo-path-trump-assassination.html
+
+**Celtics' Baylor Scheierman puts his fingerprints on the game in summer league debut**\
+`Scheierman, who was a renowned quarterback, showed passing prowess. Meanwhile, Jaden Springer had confidence in his defense.`\
+https://nytimes.com/athletic/5636020/2024/07/14/celtics-baylor-scheierman-nba-summer-league/
+
+**Trump Wounded in Assassination Attempt as Hail of Bullets Erupts at Campaign Rally**\
+`Mr. Trump was declared “fine” by his campaign, and the gunman was killed by Secret Service snipers. The explosion of political violence further inflamed the campaign for the White House.`\
+https://nytimes.com/2024/07/14/us/politics/trump-wounded-in-assassination-attempt-as-hail-of-bullets-erupts-at-campaign-rally.html
+
 **What My Colleagues Saw at the Trump Rally Shooting**\
 `The shocking twist in the election is another chapter in the nation’s history of political violence.`\
 https://nytimes.com/2024/07/14/us/politics/what-my-colleagues-saw-at-the-trump-rally-shooting.html
