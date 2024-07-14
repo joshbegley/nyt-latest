@@ -1,3 +1,7 @@
+**Butler, a onetime industrial hub north of Pittsburgh, is a Republican stronghold.**\
+`By Jeanna Smialek and Robert Gebeloff`\
+https://nytimes.com/2024/07/13/us/politics/butler-a-onetime-industrial-hub-north-of-pittsburgh-is-a-republican-stronghold.html
+
 **Shooting at a Trump Rally in Pennsylvania: Diagrams, Maps and Photos**\
 `Former President Donald J. Trump was speaking at a campaign event in Butler, Pa., when shots rang out and Mr. Trump was whisked off the stage.`\
 https://nytimes.com/interactive/2024/07/13/us/trump-rally-shooting-maps-photos.html
