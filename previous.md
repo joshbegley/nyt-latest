@@ -1,3 +1,7 @@
+**Southgate: 'Now is not the time' to talk about my future**\
+`Gareth Southgate refused to be drawn on his future as England manager after watching his side suffer another heartbreak in the final of the European Championship.`\
+https://nytimes.com/athletic/5630974/2024/07/14/gareth-southgate-england-manager-future/
+
 **Richard Simmons’s Radical Promise: Exercise Is for Everybody**\
 `By preaching that you didn’t have to already be slim to work out, Simmons reshaped the fitness industry — and ushered in the modern era of exercise.`\
 https://nytimes.com/2024/07/14/well/move/richard-simmons-exercise.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5637116/2024/07/14/rodri-yamal-euro-2024-best-young
 **Yankees' new worst loss of season mirrors Jekyll-and-Hyde first half**\
 `The Yankees have gone 8-18 in their past 26 games. They head into the All-Star break with a sour taste in their mouths.`\
 https://nytimes.com/athletic/5637046/2024/07/14/yankees-orioles-worst-loss-of-season/
-
-**A Democratic donor draws Republican ire over a ‘martyr’ comment about Trump days before the attack.**\
-`By Theodore Schleifer`\
-https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/a-democratic-donor-draws-republican-ire-over-a-martyr-comment-about-trump-days-before-the-attack
 

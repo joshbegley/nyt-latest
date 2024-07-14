@@ -1,3 +1,7 @@
+**Southgate: 'Now is not the time' to talk about my future**\
+`Gareth Southgate refused to be drawn on his future as England manager after watching his side suffer another heartbreak in the final of the European Championship.`\
+https://nytimes.com/athletic/5630974/2024/07/14/gareth-southgate-england-manager-future/
+
 **Richard Simmons’s Radical Promise: Exercise Is for Everybody**\
 `By preaching that you didn’t have to already be slim to work out, Simmons reshaped the fitness industry — and ushered in the modern era of exercise.`\
 https://nytimes.com/2024/07/14/well/move/richard-simmons-exercise.html
