@@ -1,3 +1,9 @@
+**Questions Swirl After Deadly Strike Targeting Hamas Commander**\
+`The fate of Muhammad Deif remained shrouded in uncertainty after the strike, which killed dozens of Palestinians. It was unclear how the attack would affect talks for a cease-fire deal.`\
+https://nytimes.com/live/2024/07/14/world/israel-gaza-war-hamas
+
+**Israel’s military strikes sites in Syria, and other news.**\
+
 **Tim Wakefield memories, and his No. 49, remain strong at Tahoe golf tournament**\
 `The late Wakefield and his wife, Stacy, were honored at the American Century Championship tournament, where they had been fixtures. `\
 https://nytimes.com/athletic/5635629/2024/07/14/red-sox-tim-wakefield-american-century-championship/
