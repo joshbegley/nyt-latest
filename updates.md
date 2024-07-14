@@ -1,3 +1,7 @@
+**An Attempt to Kill an Ex-President, Caught in Real Time, Stuns the Country**\
+`The shooting targeting Donald J. Trump was the first of its kind in the era of social media, and was followed by a flood of striking images, rich eyewitness accounts and furious, fearful reaction.`\
+https://nytimes.com/2024/07/14/us/politics/trump-shooting-social-media.html
+
 **The making of Lamine Yamal and his path to Euro 2024 stardom**\
 `Lamine Yamal's rise has been rapid — this is the story of how he became a teenage superstar`\
 https://nytimes.com/athletic/5635539/2024/07/14/lamine-yamal-spain-euro-2024-barcelona/

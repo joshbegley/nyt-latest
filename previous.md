@@ -1,3 +1,7 @@
+**An Attempt to Kill an Ex-President, Caught in Real Time, Stuns the Country**\
+`The shooting targeting Donald J. Trump was the first of its kind in the era of social media, and was followed by a flood of striking images, rich eyewitness accounts and furious, fearful reaction.`\
+https://nytimes.com/2024/07/14/us/politics/trump-shooting-social-media.html
+
 **The making of Lamine Yamal and his path to Euro 2024 stardom**\
 `Lamine Yamal's rise has been rapid — this is the story of how he became a teenage superstar`\
 https://nytimes.com/athletic/5635539/2024/07/14/lamine-yamal-spain-euro-2024-barcelona/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5627365/2024/07/14/mlb-odds-predictions-best-bets-j
 **Have the English changed their reputation?**\
 `England fans have behaved in contrast to their reputation during the European Championship in Germany`\
 https://nytimes.com/athletic/5625918/2024/07/14/england-fans-euro-2024/
-
-**In England, a Changed Nation Hopes for a Change in Soccer Fortunes**\
-`After installing a Labour government for the first time in 14 years, the country is looking to a historical precedent as a presage to a long-awaited sporting success.`\
-https://nytimes.com/2024/07/14/world/europe/england-euro24-final-spain.html
 
