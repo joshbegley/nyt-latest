@@ -1,3 +1,7 @@
+**A Texas official recounts ‘an atmosphere of shock’ during the shooting.**\
+`By Eduardo Medina`\
+https://nytimes.com/live/2024/07/13/us/biden-trump-election/a-texas-official-recounts-an-atmosphere-of-shock-during-the-shooting
+
 **A Saturday in St. Louis to forget: Chicago gets swept in doubleheader**\
 `The Cubs felt like they had turned a corner both on the field and mentally. But one very bad day at the ballpark has the doubters back.`\
 https://nytimes.com/athletic/5636061/2024/07/14/chicago-cubs-doubleheader-sweep-cardinals/
