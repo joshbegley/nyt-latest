@@ -1,3 +1,7 @@
+**BlackRock removes an ad from 2022 that included images of the gunman.**\
+`By Michael M. Grynbaum and Maureen Farrell`\
+https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/blackrock-ad-trump-gunman
+
 **Reds select Wake Forest pitcher Chase Burns with the second pick in the 2024 MLB Draft**\
 `Burns, 21, was 10-1 with a 2.70 ERA in 16 starts for the Demon Deacons after transferring from Tennessee.`\
 https://nytimes.com/athletic/5637408/2024/07/14/chase-burns-reds-wake-forest-draft/
