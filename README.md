@@ -1,3 +1,7 @@
+**Trump Supporters Gather at Trump Tower: ‘I’m Going to Be Here All Night’**\
+`Even hours after the shooting, some supporters gathered outside the Manhattan building, seeking solace among the shaken.`\
+https://nytimes.com/2024/07/14/us/politics/trump-tower-rally-shooting.html
+
 **Here’s the latest.**\
 `By Mike Ives`\
 https://nytimes.com/live/2024/07/14/us/trump-shooting-election/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/14/crosswords/spelling-bee-forum.html
 **World leaders express outrage and concern.**\
 `Messages of support poured in from around the worl`\
 https://nytimes.com/live/2024/07/14/us/trump-shooting-election/world-leaders-express-outrage-and-concern
-
-**Here’s What Is Known About the Suspected Gunman**\
-`Authorities identified the gunman as a 20-year-old man from Bethel Park, a town about an hour’s drive from the site of the shooting.`\
-https://nytimes.com/2024/07/14/us/politics/trump-gunman-thomas-crooks.html
 
