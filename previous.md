@@ -1,3 +1,7 @@
+**The Last Time a Former President Was Shot at While Seeking a Comeback**\
+`One hundred and twelve years ago, Theodore Roosevelt was campaigning to return to the presidency when a gunman opened fire. He gave his speech anyway with a bullet in his chest.`\
+https://nytimes.com/2024/07/14/us/politics/theodore-roosevelt-assassination-attempt.html
+
 **The AR-15-style rifle is one of the most ubiquitous weapons in the United States.**\
 `By Thomas Gibbons-Neff`\
 https://nytimes.com/live/2024/07/14/us/trump-shooting-election/the-ar-15-style-rifle-is-one-of-the-most-ubiquitous-weapons-in-the-united-states
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5635453/2024/07/14/argentina-copa-america-messi-tea
 **Fans of the Dead Come Alive in Las Vegas**\
 `Under the kaleidoscopic Sphere, a colorful crowd.`\
 https://nytimes.com/2024/07/14/style/fans-of-the-dead-come-alive-in-las-vegas.html
-
-**After Such Violence, the Center Must Hold**\
-`There has rarely been a better time to love our enemies.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-shooting-healing-america
 
