@@ -1,3 +1,7 @@
+**Trump, on Social Media, Describes Being ‘Shot With a Bullet’ in the Ear**\
+`The former president wrote that he “knew immediately that something was wrong in that I heard a whizzing sound, shots, and immediately felt the bullet ripping through the skin.”`\
+https://nytimes.com/2024/07/13/us/politics/trump-statement-shooting-truth-social.html
+
 **Social Media Platforms Deluged by Unsubstantiated Claims About Trump Rally**\
 `Disinformation experts immediately urged caution, warning people not to jump to conclusions.`\
 https://nytimes.com/2024/07/13/us/politics/trump-rally-disinformation-x-social-media.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/13/us/biden-trump-election/elon-musk-endorses-t
 **The Irony of Dr. Ruth**\
 `People often laughed when she spoke, but Ruth Westheimer delivered a punch that challenged norms for older women.`\
 https://nytimes.com/2024/07/13/style/dr-ruth.html
-
-**Scaloni, Martinez defend Uruguay players after Colombia fan clashes**\
-`Argentina head coach Lionel Scaloni and goalkeeper Emiliano Martinez have come out in defense of Uruguay’s players following the fan violence that took place on Wednesday night in Charlotte, North Carolina.`\
-https://nytimes.com/athletic/5635866/2024/07/13/argentina-uruguay-colombia-fans/
 
