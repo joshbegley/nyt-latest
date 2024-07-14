@@ -1,3 +1,7 @@
+**Ohio Mother Killed Trying to Stop a Carjacking With Her Son Inside**\
+`The woman, 29, was struck by her own vehicle after the suspects began driving away, the police said.`\
+https://nytimes.com/2024/07/14/us/ohio-mother-killed-carjacking.html
+
 **Forest targeting move for Milenkovic from Fiorentina**\
 `Nottingham Forest are working on a deal to sign Nikola Milenkovic from Fiorentina this summer.`\
 https://nytimes.com/athletic/5635700/2024/07/14/nottingham-forest-milenkovic-transfer/
