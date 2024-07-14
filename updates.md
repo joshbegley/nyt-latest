@@ -1,3 +1,7 @@
+**Olympic Torch Reaches Paris in Elegant Style**\
+`The flame has been on a long journey since its arrival in May, but hopes that it would bring the country together have foundered on political division.`\
+https://nytimes.com/2024/07/14/world/europe/paris-olympics-torch-carrying.html
+
 **Blue Jackets Sunday Gathering: Two coaching candidates will visit Columbus this week**\
 `The Blue Jackets' coaching search, which has transfixed the fan base in the middle of the offseason, is heading into its final stages.`\
 https://nytimes.com/athletic/5635499/2024/07/14/blue-jackets-nhl-coach-candidates/
