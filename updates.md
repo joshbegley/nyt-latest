@@ -1,3 +1,7 @@
+**A Saturday in St. Louis to forget: Chicago gets swept in doubleheader**\
+`The Cubs felt like they had turned a corner both on the field and mentally. But one very bad day at the ballpark has the doubters back.`\
+https://nytimes.com/athletic/5636061/2024/07/14/chicago-cubs-doubleheader-sweep-cardinals/
+
 **It’s been 52 years since a presidential candidate was killed or hurt in an attack.**\
 `Gov. George C. Wallace of Alabama was gravely wounded while campaigning in 1972, and Robert F. Kennedy was assassinated after his California primary victory in 1968.`\
 https://nytimes.com/live/2024/07/13/us/biden-trump-election/presidential-candidate-assassination-attempt-history

@@ -1,3 +1,7 @@
+**A Saturday in St. Louis to forget: Chicago gets swept in doubleheader**\
+`The Cubs felt like they had turned a corner both on the field and mentally. But one very bad day at the ballpark has the doubters back.`\
+https://nytimes.com/athletic/5636061/2024/07/14/chicago-cubs-doubleheader-sweep-cardinals/
+
 **It’s been 52 years since a presidential candidate was killed or hurt in an attack.**\
 `Gov. George C. Wallace of Alabama was gravely wounded while campaigning in 1972, and Robert F. Kennedy was assassinated after his California primary victory in 1968.`\
 https://nytimes.com/live/2024/07/13/us/biden-trump-election/presidential-candidate-assassination-attempt-history
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/14/us/politics/what-my-colleagues-saw-at-the-trump-r
 **An Attempt to Kill an Ex-President, Caught in Real Time, Stuns the Country**\
 `The shooting targeting Donald J. Trump was the first of its kind in the era of social media, and was followed by a flood of striking images, rich eyewitness accounts and furious, fearful reaction.`\
 https://nytimes.com/2024/07/14/us/politics/trump-shooting-social-media.html
-
-**The making of Lamine Yamal and his path to Euro 2024 stardom**\
-`Lamine Yamal's rise has been rapid — this is the story of how he became a teenage superstar`\
-https://nytimes.com/athletic/5635539/2024/07/14/lamine-yamal-spain-euro-2024-barcelona/
 
