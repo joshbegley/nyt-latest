@@ -1,3 +1,7 @@
+**What makes Colombia's James Rodriguez so dangerous on set pieces?**\
+`James Rodriguez's set-piece magic could prove crucial against Argentina in the Copa America final`\
+https://nytimes.com/athletic/5635701/2024/07/14/james-rodriguez-colombia-copa-america-set-pieces/
+
 **The GOAT, the showman, the young stars: The Argentina team hoping for Copa America glory**\
 `Argentina have a remarkable record in recent years - here are the men who have been central to their success`\
 https://nytimes.com/athletic/5635453/2024/07/14/argentina-copa-america-messi-team-guide/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/14/crosswords/connections-companion-400.html
 **America’s Gerontocracy Problem Goes Far Beyond the President**\
 `It is a social form of sclerosis that will persist unless and until more power is transferred from the wrinkled to the rest.`\
 https://nytimes.com/2024/07/14/opinion/america-gerontocracy-biden-trump.html
-
-**Wordle Review No. 1,122, July 15, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/14/crosswords/wordle-review-1122.html
 
