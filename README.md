@@ -1,3 +1,7 @@
+**A Texas official recounts ‘an atmosphere of shock’ during the shooting.**\
+`By Eduardo Medina`\
+https://nytimes.com/live/2024/07/13/us/biden-trump-election/a-texas-official-recounts-an-atmosphere-of-shock-during-the-shooting
+
 **A Saturday in St. Louis to forget: Chicago gets swept in doubleheader**\
 `The Cubs felt like they had turned a corner both on the field and mentally. But one very bad day at the ballpark has the doubters back.`\
 https://nytimes.com/athletic/5636061/2024/07/14/chicago-cubs-doubleheader-sweep-cardinals/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/14/us/politics/trump-wounded-in-assassination-attemp
 **What My Colleagues Saw at the Trump Rally Shooting**\
 `The shocking twist in the election is another chapter in the nation’s history of political violence.`\
 https://nytimes.com/2024/07/14/us/politics/what-my-colleagues-saw-at-the-trump-rally-shooting.html
-
-**An Attempt to Kill an Ex-President, Caught in Real Time, Stuns the Country**\
-`The shooting targeting Donald J. Trump was the first of its kind in the era of social media, and was followed by a flood of striking images, rich eyewitness accounts and furious, fearful reaction.`\
-https://nytimes.com/2024/07/14/us/politics/trump-shooting-social-media.html
 
