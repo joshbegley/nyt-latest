@@ -1,3 +1,7 @@
+**‘America’s Under Attack’: A Gleeful Trump Rally Shattered by Gunfire**\
+`Some began to cry and to pray. Others screamed, as law enforcement officers shouted for everyone to get down.`\
+https://nytimes.com/2024/07/14/us/trump-rally-shooting-scene.html
+
 **Carlos Santana and dominant bullpen lift short-handed Twins past Giants**\
 `Minnesota won despite missing four of their best hitters and playing catcher Christian Vázquez at third base.`\
 https://nytimes.com/athletic/5636031/2024/07/14/twins-dominant-bullpen-defeats-giants/
