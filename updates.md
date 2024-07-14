@@ -1,3 +1,7 @@
+**Conspiracy theories have been springing up on Truth Social.**\
+`By David Yaffe-Bellany`\
+https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/trump-shooting-truth-social-memes
+
 **Olympic Torch Reaches Paris in Elegant Style**\
 `The flame has been on a long journey since its arrival in May, but hopes that it would bring the country together have foundered on political division.`\
 https://nytimes.com/2024/07/14/world/europe/paris-olympics-torch-carrying.html

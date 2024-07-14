@@ -1,3 +1,7 @@
+**Conspiracy theories have been springing up on Truth Social.**\
+`By David Yaffe-Bellany`\
+https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/trump-shooting-truth-social-memes
+
 **Olympic Torch Reaches Paris in Elegant Style**\
 `The flame has been on a long journey since its arrival in May, but hopes that it would bring the country together have foundered on political division.`\
 https://nytimes.com/2024/07/14/world/europe/paris-olympics-torch-carrying.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/14/us/sadako-sasaki-hiroshima-statue-stolen.html
 **Fantasy baseball notebook: Francisco Lindor's HOF resume, Paul Skenes' case as the top starter for 2025 and more**\
 `Derek VanRiper lays out Francisco Lindor's argument for the Hall of Fame, explains why Paul Skenes may be the top SP pick in '25 and more.`\
 https://nytimes.com/athletic/5635458/2024/07/14/fantasy-baseball-notebook-top-pick-2025-paul-skenes/
-
-**There Is No Immediate Evidence That the Gunman Had Help, Investigators Say**\
-`Law enforcement officials cautioned that the investigation was extremely fluid, and they had yet to extract and analyze information from Thomas Matthew Crooks’s electronic devices.`\
-https://nytimes.com/2024/07/14/us/politics/fbi-trump-shooting-investigation.html
 
