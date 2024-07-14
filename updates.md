@@ -1,3 +1,7 @@
+**Shooting at a Trump Rally in Pennsylvania: Diagrams, Maps and Photos**\
+`Former President Donald J. Trump was speaking at a campaign event in Butler, Pa., when shots rang out and Mr. Trump was whisked off the stage.`\
+https://nytimes.com/interactive/2024/07/13/us/trump-rally-shooting-maps-photos.html
+
 **Biden Condemns Shooting at Trump Rally**\
 `President Biden said he would try to reach Donald J. Trump after a man fired at the former president during a campaign rally in Pennsylvania.`\
 https://nytimes.com/video/us/politics/100000009570337/biden-condemns-shooting-at-trump-rally.html
