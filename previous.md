@@ -23,7 +23,7 @@ https://nytimes.com/2024/07/13/us/politics/trump-statement-shooting-truth-social
 https://nytimes.com/2024/07/13/us/politics/trump-rally-disinformation-x-social-media.html
 
 **Butler Is a Republican Stronghold**\
-`Trump signs dot local roadsides in the town that is home to about 13,000 people`\
+`Trump signs dot local roadsides in the town that is home to about 13,000 people.`\
 https://nytimes.com/2024/07/13/us/politics/butler-pennsylvania-trump-republicans.html
 
 **How the Mets have prepared Christian Scott for a full big-league season**\

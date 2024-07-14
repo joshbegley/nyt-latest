@@ -1,3 +1,7 @@
+**Butler Is a Republican Stronghold**\
+`Trump signs dot local roadsides in the town that is home to about 13,000 people.`\
+https://nytimes.com/2024/07/13/us/politics/butler-pennsylvania-trump-republicans.html
+
 **Two Attendees Describe the Moment Trump’s Rally Erupted Into Chaos**\
 `Two Republicans who were in the crowd described seeing what looked like “a lot of blood” on a higher level of the seating section behind them.`\
 https://nytimes.com/2024/07/13/us/politics/witnesses-describe-trump-rally-shooting.html
