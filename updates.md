@@ -1,3 +1,11 @@
+**Who is Euro 2024 final referee Letexier? Part-time bailiff and history maker**\
+`France did not make it to the final of the European Championships as they so dreamed of doing.`\
+https://nytimes.com/athletic/5633526/2024/07/13/francois-letexier-euro-2024-final-referee/
+
+**A Times Photographer Who Was Feet Away From Trump Describes the Shooting**\
+`“I hope I get the right shot. I hope I’m not shot myself,” said Doug Mills, who has been photographing presidents since 1983.`\
+https://nytimes.com/2024/07/13/us/politics/doug-mills-trump-photo.html
+
 **Some political figures who condemned Saturday’s violence spoke from experience.**\
 `By Jess Bidgood`\
 https://nytimes.com/live/2024/07/13/us/biden-trump-election/some-political-figures-who-condemned-saturdays-violence-spoke-from-experience
