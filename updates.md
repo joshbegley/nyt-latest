@@ -1,3 +1,7 @@
+**Trump Supporters Gather at Trump Tower: ‘I’m Going to Be Here All Night’**\
+`Even hours after the shooting, some supporters gathered outside the Manhattan building, seeking solace among the shaken.`\
+https://nytimes.com/2024/07/14/us/politics/trump-tower-rally-shooting.html
+
 **Here’s the latest.**\
 `By Mike Ives`\
 https://nytimes.com/live/2024/07/14/us/trump-shooting-election/heres-the-latest
