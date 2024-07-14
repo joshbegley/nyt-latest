@@ -1,3 +1,11 @@
+**The AR-15-style rifle is one of the most ubiquitous weapons in the United States.**\
+`By Thomas Gibbons-Neff`\
+https://nytimes.com/live/2024/07/14/us/trump-shooting-election/the-ar-15-style-rifle-is-one-of-the-most-ubiquitous-weapons-in-the-united-states
+
+**Team USA's Steve Kerr, Steph Curry decry assassination attempt on Donald Trump**\
+`Steve Kerr and Stephen Curry — speaking from Abu Dhabi, where the team is preparing for the Olympics — decried the shooting in Pennsylvania.`\
+https://nytimes.com/athletic/5636371/2024/07/14/donald-trump-shooting-team-usa-steve-kerr/
+
 **The Assassination Attempt Against Donald Trump**\
 `What we know about the shooting in Pennsylvania.`\
 https://nytimes.com/2024/07/14/briefing/donald-trump-assassination-attempt.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/14/style/fans-of-the-dead-come-alive-in-las-vegas.ht
 **After Such Violence, the Center Must Hold**\
 `There has rarely been a better time to love our enemies.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-shooting-healing-america
-
-**The Reason People Are Not Telling Biden the Truth**\
-`Many leaders have faced a similar situation. There are simple solutions.`\
-https://nytimes.com/2024/07/14/opinion/biden-leadership-truth.html
-
-**$2,000 seats, a halftime show and an array of stars: Your guide to the Copa America final**\
-`With so much at stake and Lionel Messi and James Rodriguez going head to head, here's The Athletic's guide to the Copa America fina`\
-https://nytimes.com/athletic/5635864/2024/07/14/argentina-colombia-copa-america-final-guide/
 
