@@ -22,9 +22,9 @@ https://nytimes.com/2024/07/13/us/politics/trump-statement-shooting-truth-social
 `Disinformation experts immediately urged caution, warning people not to jump to conclusions.`\
 https://nytimes.com/2024/07/13/us/politics/trump-rally-disinformation-x-social-media.html
 
-**Butler, a onetime industrial hub north of Pittsburgh, is a Republican stronghold.**\
-`By Jeanna Smialek and Robert Gebeloff`\
-https://nytimes.com/2024/07/13/us/politics/butler-a-onetime-industrial-hub-north-of-pittsburgh-is-a-republican-stronghold.html
+**Butler Is a Republican Stronghold**\
+`Trump signs dot local roadsides in the town that is home to about 13,000 people`\
+https://nytimes.com/2024/07/13/us/politics/butler-pennsylvania-trump-republicans.html
 
 **How the Mets have prepared Christian Scott for a full big-league season**\
 `In the Mets' 7-3 win over Colorado, Scott didn’t make it through the fifth Saturday in as shaky a start as he’s had in the major leagues.`\
