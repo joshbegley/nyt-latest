@@ -1,3 +1,11 @@
+**Secret Service snipers were strategically placed against threats at the Trump rally.**\
+`By Thomas Gibbons-Neff`\
+https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/secret-service-snipers-were-strategically-placed-against-threats-at-the-trump-rally
+
+**The Briefing: Spain 2 England 1 - Oyarzabal the unlikely hero with late winner as Spain win Euro 2024**\
+`Oyarzabal scored in the closing minutes to seal victory for De la Fuente's side and consign England to back-to-back Euro final defeats`\
+https://nytimes.com/athletic/5634616/2024/07/14/spain-euro-2024-champions-oyarzabal/
+
 **Kane, Olmo among shared winners of Euro 2024 Golden Boot**\
 `The 2024 European Championship has been shared six ways after six players finished level on three goals following Sunday&#8217;s final between Spain and England.`\
 https://nytimes.com/athletic/5636763/2024/07/14/golden-boot-euro-2024-kane-olmo-musiala/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/14/us/politics/secret-service-trump.html
 **Our Photographer on Capturing the Bullet Streaking Past Trump**\
 `Doug Mills, a veteran photographer for The New York Times, was only a few feet away from former President Donald J.`\
 https://nytimes.com/video/us/politics/100000009570661/photographer-captures-bullet-streaking-past-trump.html
-
-**Trump Credits Chart for Saving His Life, His Former White House Doctor Says**\
-`The former president said he would have been struck “right in the head” if he hadn’t turned and pointed at an immigration chart, Dr. Ronny Jackson said in an interview.`\
-https://nytimes.com/2024/07/14/us/politics/trump-chart-rally.html
-
-**An Assassination Attempt That Seems Likely to Tear America Further Apart**\
-`The attack on former President Donald J. Trump comes at a time when the United States is already polarized along ideological and cultural lines and is split, it often seems, into two realities.`\
-https://nytimes.com/2024/07/14/us/politics/trump-shooting-violence-divisions.html
 

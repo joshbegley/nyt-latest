@@ -1,3 +1,11 @@
+**Secret Service snipers were strategically placed against threats at the Trump rally.**\
+`By Thomas Gibbons-Neff`\
+https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/secret-service-snipers-were-strategically-placed-against-threats-at-the-trump-rally
+
+**The Briefing: Spain 2 England 1 - Oyarzabal the unlikely hero with late winner as Spain win Euro 2024**\
+`Oyarzabal scored in the closing minutes to seal victory for De la Fuente's side and consign England to back-to-back Euro final defeats`\
+https://nytimes.com/athletic/5634616/2024/07/14/spain-euro-2024-champions-oyarzabal/
+
 **Kane, Olmo among shared winners of Euro 2024 Golden Boot**\
 `The 2024 European Championship has been shared six ways after six players finished level on three goals following Sunday&#8217;s final between Spain and England.`\
 https://nytimes.com/athletic/5636763/2024/07/14/golden-boot-euro-2024-kane-olmo-musiala/
