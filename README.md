@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Mike Ives`\
+https://nytimes.com/live/2024/07/14/us/trump-shooting-election/heres-the-latest
+
+**Live Updates: Trump Safe After Failed Assassination Attempt**\
+`The authorities identified the gunman, who was killed, and said they were working “tirelessly” to investigate the attack on former President Donald J. Trump at a political rally in Pennsylvania.`\
+https://nytimes.com/live/2024/07/14/us/trump-shooting-election
+
 **Corrections: July 14, 2024**\
 `Corrections that appeared in print on Sunday, July 14, 2024.`\
 https://nytimes.com/2024/07/14/pageoneplus/corrections-july-14-2024.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/14/us/trump-shooting-election/world-leaders-exp
 **Here’s What Is Known About the Suspected Gunman**\
 `Authorities identified the gunman as a 20-year-old man from Bethel Park, a town about an hour’s drive from the site of the shooting.`\
 https://nytimes.com/2024/07/14/us/politics/trump-gunman-thomas-crooks.html
-
-**What We Know About the Assassination Attempt Against Trump**\
-`The former president was holding a rally when he said he was shot in his ear. Two people, including the suspected gunman, were killed and two were critically injured.`\
-https://nytimes.com/2024/07/14/us/politics/shooting-trump-rally.html
-
-**For England, I feel everything**\
-`From three lions on the shirt to deep lines on the forehead, Alan Shearer is fizzing and fidgeting. Hunger, pride and desperation are back`\
-https://nytimes.com/athletic/5633856/2024/07/14/alan-shearer-england-feel-everything/
 
