@@ -4,7 +4,7 @@ https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/investigators-b
 
 **How to Watch Shannen Doherty’s Most Notable Performances**\
 `The actress, who died on Saturday, was best known for “Beverly Hills, 90210,” but she wasn’t only a teen idol.`\
-https://nytimes.com/2024/07/14/arts/television/shannen-doherty-streaming.html
+https://nytimes.com/2024/07/14/arts/television/shannen-doherty-movies-tv-shows.html
 
 **Secret Service Under Scrutiny After Assassination Attempt on Trump**\
 `President Biden calls for a review of the protective agency’s actions after the attack, which left an audience member dead and two critically wounded.`\
