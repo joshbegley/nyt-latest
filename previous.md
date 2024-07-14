@@ -1,3 +1,7 @@
+**Game, Set, Match: Carlos Alcaraz dispatches Novak Djokovic for Wimbledon title**\
+`How Carlos Alcaraz used his serve and ruthlessness to beat Novak Djokovic and win his second Wimbledon title`\
+https://nytimes.com/athletic/5636272/2024/07/14/carlos-alcaraz-novak-djokovic-wimbledon-final/
+
 **Food May Be the Last Thing on Your Mind**\
 `Cook anyway, for the benefit of others and yourself.`\
 https://nytimes.com/2024/07/14/dining/food-may-be-the-last-thing-on-your-mind.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/14/us/politics/theodore-roosevelt-assassination-atte
 **Derrick White trades Cabo for Team USA and a chance to chase Olympic gold**\
 `For Derrick White, vacation can wait. A last-minute chance to chase an Olympic gold medal with Team USA was a no-brainer.`\
 https://nytimes.com/athletic/5636282/2024/07/14/derrick-white-team-usa-olympics-basketball/
-
-**The AR-15-style rifle is one of the most ubiquitous weapons in the United States.**\
-`By Thomas Gibbons-Neff`\
-https://nytimes.com/live/2024/07/14/us/trump-shooting-election/the-ar-15-style-rifle-is-one-of-the-most-ubiquitous-weapons-in-the-united-states
 

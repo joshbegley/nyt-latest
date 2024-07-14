@@ -1,3 +1,7 @@
+**Game, Set, Match: Carlos Alcaraz dispatches Novak Djokovic for Wimbledon title**\
+`How Carlos Alcaraz used his serve and ruthlessness to beat Novak Djokovic and win his second Wimbledon title`\
+https://nytimes.com/athletic/5636272/2024/07/14/carlos-alcaraz-novak-djokovic-wimbledon-final/
+
 **Food May Be the Last Thing on Your Mind**\
 `Cook anyway, for the benefit of others and yourself.`\
 https://nytimes.com/2024/07/14/dining/food-may-be-the-last-thing-on-your-mind.html
