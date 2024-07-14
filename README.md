@@ -1,3 +1,7 @@
+**Investigators believe the gunman acted alone, and are seeking a motive.**\
+`By Katie Benner`\
+https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/investigators-believe-the-gunman-acted-alone-and-are-seeking-a-motive
+
 **How to Watch Shannen Doherty’s Most Notable Performances**\
 `The actress, who died on Saturday, was best known for “Beverly Hills, 90210,” but she wasn’t only a teen idol.`\
 https://nytimes.com/2024/07/14/arts/television/shannen-doherty-streaming.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/14/arts/television/shannen-doherty-podcast.html
 **Lowetide: Oilers hidden gems that could impact the 2024-25 season**\
 `A list of players and prospects who could slide in and become effective plug-and-play options for the Oilers next season.`\
 https://nytimes.com/athletic/5635476/2024/07/14/oilers-2024-25-season-prospects-hidden-gems/
-
-**After Trump Attack, Conspiracy Theories Spring Up on Truth Social**\
-`The former president has used his site to share occasional updates. Users are both hailing him as a hero and posting unsubstantiated rumors.`\
-https://nytimes.com/2024/07/14/us/politics/trump-shooting-conspiracy-theories-truth-social.html
 
