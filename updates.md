@@ -1,3 +1,7 @@
+**The Photographs That Made Trump an Incarnation of Defiance**\
+`In video footage, everything was pandemonium. It was still images that defined the attack and its aftermath.`\
+https://nytimes.com/2024/07/14/arts/design/trump-photo-raised-fist.html
+
 **A New Prince Leads Spain as It Rules European Soccer Again**\
 `A 2-1 victory in the Euro 2024 final extended England’s suffering but crowned a generational star in Spain’s teenage forward, Lamine Yamal.`\
 https://nytimes.com/2024/07/14/world/europe/euro-2024-final-spain-lamine-yamal.html

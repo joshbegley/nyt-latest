@@ -10,7 +10,7 @@ https://nytimes.com/2024/07/14/world/europe/euro-2024-final-spain-lamine-yamal.h
 `The Dodgers' second spectacular ninth-inning implosion in as many afternoons to the Detroit Tigers capped a miserable stretch.`\
 https://nytimes.com/athletic/5637223/2024/07/14/dodgers-tigers-walk-off-loss-all-star-break/
 
-**The Photographs That Made Trump the Incarnation of Defiance**\
+**The Photographs That Made Trump an Incarnation of Defiance**\
 `In video footage, everything was pandemonium. It was still images that defined the attack and its aftermath.`\
 https://nytimes.com/2024/07/14/arts/design/trump-photo-raised-fist.html
 
