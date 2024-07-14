@@ -1,3 +1,7 @@
+**Tennis usually passes the torch. Carlos Alcaraz is running away with it**\
+`Carlos Alcaraz's routing of Novak Djokovic cements his place as the runaway torchbearer in men's tennis`\
+https://nytimes.com/athletic/5636892/2024/07/14/carlos-alcaraz-wimbledon-novak-djokovic-tennis/
+
 **Some Trump critics urge a lowering of the nation’s political temperature.**\
 `A number of elected officials came out after the shooting calling for restraint in partisan rhetoric.`\
 https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/some-trump-critics-urge-a-lowering-of-the-nations-political-temperature
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/14/us/politics/trump-shooting-violence-divisions.htm
 **Biden Asks America to Unite and Vows Swift Inquiry of Attempted Assassination of Trump**\
 `In remarks from the White House on Sunday, President Biden called the attack “contrary to everything we stand for as a nation.’’`\
 https://nytimes.com/2024/07/14/us/politics/biden-trump-unity.html
-
-**Assassination Attempt on a Hamas Leader Followed Surveillance of His Deputy**\
-`A compound belonging to the family of Rafa Salameh, a top Hamas deputy in southern Gaza, had been under surveillance for several weeks, Israeli officials said. The strike killed more than 90 people.`\
-https://nytimes.com/2024/07/14/world/middleeast/israel-hamas-deif-assassination-attempt.html
 
