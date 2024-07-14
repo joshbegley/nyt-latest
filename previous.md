@@ -6,6 +6,10 @@ https://nytimes.com/2024/07/14/us/politics/trump-shooting-campaign-politics-bide
 `In her second public appearance since her cancer diagnosis, the princess once again made a considered choice.`\
 https://nytimes.com/2024/07/14/style/princess-kate-middleton-wimbeldon-style.html
 
+**Game, Set, Match: Carlos Alcaraz dispatches Novak Djokovic for Wimbledon title**\
+`How Carlos Alcaraz used his serve and ruthlessness to beat Novak Djokovic and win his second Wimbledon title`\
+https://nytimes.com/athletic/5636272/2024/07/14/carlos-alcaraz-novak-djokovic-wimbledon-final/
+
 **Jacoby Jones, Ravens' Super Bowl star, dies at 40**\
 `His most famous moment came in Super Bowl XLVII, when his 108-yard kickoff return touchdown broke a Super Bowl record for longest play.`\
 https://nytimes.com/athletic/5636564/2024/07/14/jacoby-jones-dead-ravens/
@@ -17,10 +21,6 @@ https://nytimes.com/athletic/5630953/2024/07/14/carlos-alcaraz-wimbledon-spain-f
 **Assassination Attempt on Donald Trump**\
 `Hear how it unfolded, and what comes next.`\
 https://nytimes.com/2024/07/14/podcasts/headlines-donald-trump-assasination-attempt.html
-
-**Game, Set, Match: Carlos Alcaraz dispatches Novak Djokovic for Wimbledon title**\
-`How Carlos Alcaraz used his serve and ruthlessness to beat Novak Djokovic and win his second Wimbledon title`\
-https://nytimes.com/athletic/5636272/2024/07/14/carlos-alcaraz-novak-djokovic-wimbledon-final/
 
 **Food May Be the Last Thing on Your Mind**\
 `Cook anyway, for the benefit of others and yourself.`\
