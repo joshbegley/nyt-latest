@@ -1,3 +1,7 @@
+**The Assassination Attempt Against Donald Trump**\
+`What we know about the shooting in Pennsylvania.`\
+https://nytimes.com/2024/07/14/briefing/donald-trump-assassination-attempt.html
+
 **Kambwala close to Villarreal transfer**\
 `Manchester United defender Willy Kambwala is close to joining Villarreal on a permanent transfer.`\
 https://nytimes.com/athletic/5634933/2024/07/14/willy-kambwala-villarreal-manchester-united/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/14/opinion/biden-leadership-truth.html
 **$2,000 seats, a halftime show and an array of stars: Your guide to the Copa America final**\
 `With so much at stake and Lionel Messi and James Rodriguez going head to head, here's The Athletic's guide to the Copa America fina`\
 https://nytimes.com/athletic/5635864/2024/07/14/argentina-colombia-copa-america-final-guide/
-
-**The Sunday Read: ‘A Republican Election Clerk vs. Trump Die-Hards in a World of Lies’**\
-`Cindy Elgan has overseen elections in rural Nevada without incident for 20 years, but now even her neighbors wonder if she’s part of “the deep state cabal.”`\
-https://nytimes.com/2024/07/14/podcasts/the-daily/esmeralda-republican-election-clerk.html
 
