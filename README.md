@@ -14,8 +14,8 @@ https://nytimes.com/2024/07/14/arts/television/shannen-doherty-podcast.html
 `A list of players and prospects who could slide in and become effective plug-and-play options for the Oilers next season.`\
 https://nytimes.com/athletic/5635476/2024/07/14/oilers-2024-25-season-prospects-hidden-gems/
 
-**Conspiracy theories have been springing up on Truth Social.**\
-`By David Yaffe-Bellany`\
+**After Trump Attack, Conspiracy Theories Spring Up on Truth Social**\
+`The former president has used his site to share occasional updates. Users are both hailing him as a hero and posting unsubstantiated rumors.`\
 https://nytimes.com/2024/07/14/us/politics/trump-shooting-conspiracy-theories-truth-social.html
 
 **Olympic Torch Reaches Paris in Elegant Style**\
