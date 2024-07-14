@@ -1,3 +1,7 @@
+**Assassination Attempt on Donald Trump**\
+`Hear how it unfolded, and what comes next.`\
+https://nytimes.com/2024/07/14/podcasts/headlines-donald-trump-assasination-attempt.html
+
 **Game, Set, Match: Carlos Alcaraz dispatches Novak Djokovic for Wimbledon title**\
 `How Carlos Alcaraz used his serve and ruthlessness to beat Novak Djokovic and win his second Wimbledon title`\
 https://nytimes.com/athletic/5636272/2024/07/14/carlos-alcaraz-novak-djokovic-wimbledon-final/
