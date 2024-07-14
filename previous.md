@@ -1,3 +1,11 @@
+**How to Watch Shannen Doherty’s Most Notable Performances**\
+`The actress, who died on Saturday, was best known for “Beverly Hills, 90210,” but she wasn’t only a teen idol.`\
+https://nytimes.com/2024/07/14/arts/television/shannen-doherty-streaming.html
+
+**Secret Service Under Scrutiny After Assassination Attempt on Trump**\
+`President Biden calls for a review of the protective agency’s actions after the attack, which left an audience member dead and two critically wounded.`\
+https://nytimes.com/2024/07/14/us/politics/secret-service-trump.html
+
 **Our Photographer on Capturing the Bullet Streaking Past Trump**\
 `Doug Mills, a veteran photographer for The New York Times, was only a few feet away from former President Donald J.`\
 https://nytimes.com/video/us/politics/100000009570661/photographer-captures-bullet-streaking-past-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5635476/2024/07/14/oilers-2024-25-season-prospects-
 **After Trump Attack, Conspiracy Theories Spring Up on Truth Social**\
 `The former president has used his site to share occasional updates. Users are both hailing him as a hero and posting unsubstantiated rumors.`\
 https://nytimes.com/2024/07/14/us/politics/trump-shooting-conspiracy-theories-truth-social.html
-
-**Olympic Torch Reaches Paris in Elegant Style**\
-`The flame has been on a long journey since its arrival in May, but hopes that it would bring the country together have foundered on political division.`\
-https://nytimes.com/2024/07/14/world/europe/paris-olympics-torch-carrying.html
-
-**Blue Jackets Sunday Gathering: Two coaching candidates will visit Columbus this week**\
-`The Blue Jackets' coaching search, which has transfixed the fan base in the middle of the offseason, is heading into its final stages.`\
-https://nytimes.com/athletic/5635499/2024/07/14/blue-jackets-nhl-coach-candidates/
 

@@ -1,3 +1,11 @@
+**How to Watch Shannen Doherty’s Most Notable Performances**\
+`The actress, who died on Saturday, was best known for “Beverly Hills, 90210,” but she wasn’t only a teen idol.`\
+https://nytimes.com/2024/07/14/arts/television/shannen-doherty-streaming.html
+
+**Secret Service Under Scrutiny After Assassination Attempt on Trump**\
+`President Biden calls for a review of the protective agency’s actions after the attack, which left an audience member dead and two critically wounded.`\
+https://nytimes.com/2024/07/14/us/politics/secret-service-trump.html
+
 **Our Photographer on Capturing the Bullet Streaking Past Trump**\
 `Doug Mills, a veteran photographer for The New York Times, was only a few feet away from former President Donald J.`\
 https://nytimes.com/video/us/politics/100000009570661/photographer-captures-bullet-streaking-past-trump.html
