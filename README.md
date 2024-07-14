@@ -1,3 +1,7 @@
+**Carlos Alcaraz is a Wimbledon champion - and Spain's Euro 2024 good-luck charm**\
+`Carlos Alcaraz makes tennis history at Wimbledon, as Spain chase the same dream at Euro 2024`\
+https://nytimes.com/athletic/5630953/2024/07/14/carlos-alcaraz-wimbledon-spain-football-european-championship/
+
 **Assassination Attempt on Donald Trump**\
 `Hear how it unfolded, and what comes next.`\
 https://nytimes.com/2024/07/14/podcasts/headlines-donald-trump-assasination-attempt.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5635700/2024/07/14/nottingham-forest-milenkovic-tra
 **Shannen Doherty, ‘Beverly Hills, 90210’ Star, Dies at 53**\
 `Ms. Doherty, who also had roles in the TV series “Charmed” and the comedy-thriller “Heathers,” had continued to work after a breast cancer diagnosis.`\
 https://nytimes.com/2024/07/14/arts/television/shannen-doherty-dead.html
-
-**The Last Time a Former President Was Shot at While Seeking a Comeback**\
-`One hundred and twelve years ago, Theodore Roosevelt was campaigning to return to the presidency when a gunman opened fire. He gave his speech anyway with a bullet in his chest.`\
-https://nytimes.com/2024/07/14/us/politics/theodore-roosevelt-assassination-attempt.html
 
