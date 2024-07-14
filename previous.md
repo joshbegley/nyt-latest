@@ -1,3 +1,7 @@
+**MRI reveals Twins All-Star shortstop Carlos Correa has plantar fasciitis in right foot**\
+`Correa thinks he can be ready to play for the second half, so there's no talk of putting him on the injured list yet.`\
+https://nytimes.com/athletic/5636967/2024/07/14/twins-carlos-correa-plantar-fasciitis-right-foot/
+
 **Investigators believe the gunman acted alone, and are seeking a motive.**\
 `By Katie Benner`\
 https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/investigators-believe-the-gunman-acted-alone-and-are-seeking-a-motive
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/14/world/middleeast/israel-hamas-deif-assassination-
 **Shannen Doherty’s Final Act Was a Podcast That Put It All Out There**\
 `Over the past eight months, the “90210” and “Charmed” star spoke frankly and candidly about her cancer and her tumultuous career.`\
 https://nytimes.com/2024/07/14/arts/television/shannen-doherty-podcast.html
-
-**Lowetide: Oilers hidden gems that could impact the 2024-25 season**\
-`A list of players and prospects who could slide in and become effective plug-and-play options for the Oilers next season.`\
-https://nytimes.com/athletic/5635476/2024/07/14/oilers-2024-25-season-prospects-hidden-gems/
 

@@ -1,3 +1,7 @@
+**MRI reveals Twins All-Star shortstop Carlos Correa has plantar fasciitis in right foot**\
+`Correa thinks he can be ready to play for the second half, so there's no talk of putting him on the injured list yet.`\
+https://nytimes.com/athletic/5636967/2024/07/14/twins-carlos-correa-plantar-fasciitis-right-foot/
+
 **How to Watch Shannen Doherty’s Most Notable Performances**\
 `The actress, who died on Saturday, was best known for “Beverly Hills, 90210,” but she wasn’t only a teen idol.`\
 https://nytimes.com/2024/07/14/arts/television/shannen-doherty-movies-tv-shows.html
