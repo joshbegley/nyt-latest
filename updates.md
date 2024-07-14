@@ -1,3 +1,7 @@
+**Conspiracy theories have been springing up on Truth Social.**\
+`By David Yaffe-Bellany`\
+https://nytimes.com/2024/07/14/us/politics/trump-shooting-conspiracy-theories-truth-social.html
+
 **Assassination Attempt on a Hamas Leader Followed Surveillance of His Deputy**\
 `A compound belonging to the family of Rafa Salameh, a top Hamas deputy in southern Gaza, had been under surveillance for several weeks, Israeli officials said. The strike killed more than 90 people.`\
 https://nytimes.com/2024/07/14/world/middleeast/israel-hamas-deif-assassination-attempt.html
