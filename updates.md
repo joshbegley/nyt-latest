@@ -1,3 +1,11 @@
+**Sign of Things to Come**\
+`Tarun Krishnamurthy makes his New York Times debut.`\
+https://nytimes.com/2024/07/14/crosswords/daily-puzzle-2024-07-15.html
+
+**‘I’ve got fight and that’s all I need’: How Bob from Oban won the Scottish Open**\
+`An eagle on 16 tied Macintyre with Adam Scott for the lead. A birdie putt on 18 gave Macintyre the victory at Renaissance Club.`\
+https://nytimes.com/athletic/5637143/2024/07/14/robert-macintyre-scottish-open-win/
+
 **Yankees' new worst loss of season mirrors Jekyll-and-Hyde first half**\
 `The Yankees have gone 8-18 in their past 26 games. They head into the All-Star break with a sour taste in their mouths.`\
 https://nytimes.com/athletic/5637046/2024/07/14/yankees-orioles-worst-loss-of-season/
