@@ -1,3 +1,15 @@
+**Yankees’ new worst loss of season mirrors Jekyll and Hyde first half**\
+`The Yankees have gone 8-18 in their last 26 games. They head into the All-Star break with a sour taste in their mouths.`\
+https://nytimes.com/athletic/5637046/2024/07/14/yankees-orioles-worst-loss-of-season/
+
+**A Democratic donor draws Republican ire over a ‘martyr’ comment about Trump days before the attack.**\
+`By Theodore Schleifer`\
+https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/a-democratic-donor-draws-republican-ire-over-a-martyr-comment-about-trump-days-before-the-attack
+
+**Monday Briefing: An Assassination Attempt on Donald Trump**\
+`Plus, a major Israeli airstrike in Gaza.`\
+https://nytimes.com/2024/07/14/briefing/donald-trump-assassination-israel-gaza.html
+
 **Photographer Who Captured the Rally Shooting: ‘I Just Kept Doing My Job’**\
 `Doug Mills, a Times photographer, was at the Trump rally in Butler, Pa., on Saturday when shots rang out. He described his experience to Times Insider.`\
 https://nytimes.com/2024/07/14/insider/doug-mills-trump-rally-shooting.html

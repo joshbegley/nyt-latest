@@ -1,3 +1,15 @@
+**Yankees’ new worst loss of season mirrors Jekyll and Hyde first half**\
+`The Yankees have gone 8-18 in their last 26 games. They head into the All-Star break with a sour taste in their mouths.`\
+https://nytimes.com/athletic/5637046/2024/07/14/yankees-orioles-worst-loss-of-season/
+
+**A Democratic donor draws Republican ire over a ‘martyr’ comment about Trump days before the attack.**\
+`By Theodore Schleifer`\
+https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/a-democratic-donor-draws-republican-ire-over-a-martyr-comment-about-trump-days-before-the-attack
+
+**Monday Briefing: An Assassination Attempt on Donald Trump**\
+`Plus, a major Israeli airstrike in Gaza.`\
+https://nytimes.com/2024/07/14/briefing/donald-trump-assassination-israel-gaza.html
+
 **Photographer Who Captured the Rally Shooting: ‘I Just Kept Doing My Job’**\
 `Doug Mills, a Times photographer, was at the Trump rally in Butler, Pa., on Saturday when shots rang out. He described his experience to Times Insider.`\
 https://nytimes.com/2024/07/14/insider/doug-mills-trump-rally-shooting.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5636892/2024/07/14/carlos-alcaraz-wimbledon-novak-d
 **Some Trump critics urge a lowering of the nation’s political temperature.**\
 `A number of elected officials came out after the shooting calling for restraint in partisan rhetoric.`\
 https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/some-trump-critics-urge-a-lowering-of-the-nations-political-temperature
-
-**MRI reveals Twins All-Star shortstop Carlos Correa has plantar fasciitis in right foot**\
-`Correa thinks he can be ready to play for the second half, so there's no talk of putting him on the injured list yet.`\
-https://nytimes.com/athletic/5636967/2024/07/14/twins-carlos-correa-plantar-fasciitis-right-foot/
-
-**Investigators believe the gunman acted alone, and are seeking a motive.**\
-`By Katie Benner`\
-https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/investigators-believe-the-gunman-acted-alone-and-are-seeking-a-motive
-
-**How to Watch Shannen Doherty’s Most Notable Performances**\
-`The actress, who died on Saturday, was best known for “Beverly Hills, 90210,” but she wasn’t only a teen idol.`\
-https://nytimes.com/2024/07/14/arts/television/shannen-doherty-movies-tv-shows.html
 
