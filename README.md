@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5635893/2024/07/13/dustin-may-dodgers-esophageal-su
 
 **Report From the Scene: ‘Get Down! Shots Fired!’**\
 `By Simon J. Levien`\
-https://nytimes.com/live/2024/07/13/us/biden-trump-election/report-from-the-scene-get-down-shots-fired
+https://nytimes.com/2024/07/13/us/politics/trump-rally-shooting-scene.html
 
 **Elon Musk endorses Trump, moments after episode at his rally.**\
 `Mr. Musk has drifted rightward considerably during the Biden era.`\
