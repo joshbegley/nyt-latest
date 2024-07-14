@@ -1,3 +1,7 @@
+**Some Trump critics urge a lowering of the nation’s political temperature.**\
+`A number of elected officials came out after the shooting calling for restraint in partisan rhetoric.`\
+https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/some-trump-critics-urge-a-lowering-of-the-nations-political-temperature
+
 **MRI reveals Twins All-Star shortstop Carlos Correa has plantar fasciitis in right foot**\
 `Correa thinks he can be ready to play for the second half, so there's no talk of putting him on the injured list yet.`\
 https://nytimes.com/athletic/5636967/2024/07/14/twins-carlos-correa-plantar-fasciitis-right-foot/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/14/us/politics/biden-trump-unity.html
 **Assassination Attempt on a Hamas Leader Followed Surveillance of His Deputy**\
 `A compound belonging to the family of Rafa Salameh, a top Hamas deputy in southern Gaza, had been under surveillance for several weeks, Israeli officials said. The strike killed more than 90 people.`\
 https://nytimes.com/2024/07/14/world/middleeast/israel-hamas-deif-assassination-attempt.html
-
-**Shannen Doherty’s Final Act Was a Podcast That Put It All Out There**\
-`Over the past eight months, the “90210” and “Charmed” star spoke frankly and candidly about her cancer and her tumultuous career.`\
-https://nytimes.com/2024/07/14/arts/television/shannen-doherty-podcast.html
 
