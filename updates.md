@@ -1,3 +1,7 @@
+**The Assassination Attempt Against Donald Trump**\
+`What we know about the shooting in Pennsylvania.`\
+https://nytimes.com/2024/07/14/briefing/donald-trump-assassination-attempt.html
+
 **Kambwala close to Villarreal transfer**\
 `Manchester United defender Willy Kambwala is close to joining Villarreal on a permanent transfer.`\
 https://nytimes.com/athletic/5634933/2024/07/14/willy-kambwala-villarreal-manchester-united/
