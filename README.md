@@ -1,7 +1,3 @@
-**Dodgers plan to call up top pitching prospect River Ryan: Sources**\
-`Ryan’s expected start date is unknown, but the righty is expected to help fill a rotation slot for a group that includes three rookies.`\
-https://nytimes.com/athletic/5636821/2024/07/14/river-ryan-dodgers-call-up/
-
 **Statue of Hiroshima Bombing Victim Stolen From Seattle Park**\
 `The statue depicted Sadako Sasaki, who was 12 when she died from cancer likely caused by the Hiroshima bombing. Community members believe a thief saw value in her bronze cast.`\
 https://nytimes.com/2024/07/14/us/sadako-sasaki-hiroshima-statue-stolen.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5630953/2024/07/14/carlos-alcaraz-wimbledon-spain-f
 **Assassination Attempt on Donald Trump**\
 `Hear how it unfolded, and what comes next.`\
 https://nytimes.com/2024/07/14/podcasts/headlines-donald-trump-assasination-attempt.html
+
+**Food May Be the Last Thing on Your Mind**\
+`Cook anyway, for the benefit of others and yourself.`\
+https://nytimes.com/2024/07/14/dining/food-may-be-the-last-thing-on-your-mind.html
 
