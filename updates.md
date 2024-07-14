@@ -1,3 +1,7 @@
+**Catherine, Princess of Wales, in Purple, Is a Wimbledon Winner**\
+`In her second public appearance since her cancer diagnosis, the princess once again made a considered choice.`\
+https://nytimes.com/2024/07/14/style/princess-kate-middleton-wimbeldon-style.html
+
 **Jacoby Jones, Ravens' Super Bowl star, dies at 40**\
 `His most famous moment came in Super Bowl XLVII, when his 108-yard kickoff return touchdown broke a Super Bowl record for longest play.`\
 https://nytimes.com/athletic/5636564/2024/07/14/jacoby-jones-dead-ravens/
