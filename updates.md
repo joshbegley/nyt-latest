@@ -1,3 +1,7 @@
+**Yankees' new worst loss of season mirrors Jekyll-and-Hyde first half**\
+`The Yankees have gone 8-18 in their past 26 games. They head into the All-Star break with a sour taste in their mouths.`\
+https://nytimes.com/athletic/5637046/2024/07/14/yankees-orioles-worst-loss-of-season/
+
 **From a playing and personality standout, Jacoby Jones was the perfect fit in Baltimore**\
 `A locker room and fan favorite, Jones was essential to the Ravens reaching the 2012 Super Bowl and then winning it. `\
 https://nytimes.com/athletic/5637004/2024/07/14/jacoby-jones-dead-baltimore-ravens-super-bowl-legend/
