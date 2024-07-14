@@ -1,3 +1,7 @@
+**Carlos Alcaraz is a Wimbledon champion - and Spain's Euro 2024 good-luck charm**\
+`Carlos Alcaraz makes tennis history at Wimbledon, as Spain chase the same dream at Euro 2024`\
+https://nytimes.com/athletic/5630953/2024/07/14/carlos-alcaraz-wimbledon-spain-football-european-championship/
+
 **Assassination Attempt on Donald Trump**\
 `Hear how it unfolded, and what comes next.`\
 https://nytimes.com/2024/07/14/podcasts/headlines-donald-trump-assasination-attempt.html
