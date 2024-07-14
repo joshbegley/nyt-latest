@@ -14,6 +14,10 @@ https://nytimes.com/2024/07/14/arts/television/shannen-doherty-dead.html
 `One hundred and twelve years ago, Theodore Roosevelt was campaigning to return to the presidency when a gunman opened fire. He gave his speech anyway with a bullet in his chest.`\
 https://nytimes.com/2024/07/14/us/politics/theodore-roosevelt-assassination-attempt.html
 
+**Derrick White trades Cabo for Team USA and a chance to chase Olympic gold**\
+`For Derrick White, vacation can wait. A last-minute chance to chase an Olympic gold medal with Team USA was a no-brainer.`\
+https://nytimes.com/athletic/5636282/2024/07/14/derrick-white-team-usa-olympics-basketball/
+
 **The AR-15-style rifle is one of the most ubiquitous weapons in the United States.**\
 `By Thomas Gibbons-Neff`\
 https://nytimes.com/live/2024/07/14/us/trump-shooting-election/the-ar-15-style-rifle-is-one-of-the-most-ubiquitous-weapons-in-the-united-states
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5634933/2024/07/14/willy-kambwala-villarreal-manche
 **Catherine, Princess of Wales, Attends Wimbledon Men’s Final**\
 `The princess has stepped back from the public eye since her cancer diagnosis earlier this year.`\
 https://nytimes.com/2024/07/14/world/europe/kate-princess-of-wales-wimbledon.html
-
-**Malacia returns to individual training at Man Utd**\
-`Manchester United have confirmed that left-back Tyrell Malacia has returned to individual training after being sidelined for more than a year.`\
-https://nytimes.com/athletic/5636288/2024/07/14/tyrell-malacia-manchester-united-training/
 
