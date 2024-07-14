@@ -1,3 +1,7 @@
+**Shannen Doherty’s Final Act Was a Podcast That Put It All Out There**\
+`Over the past eight months, the “90210” and “Charmed” star spoke frankly and candidly about her cancer and her tumultuous career.`\
+https://nytimes.com/2024/07/14/arts/television/shannen-doherty-podcast.html
+
 **Lowetide: Oilers hidden gems that could impact the 2024-25 season**\
 `A list of players and prospects who could slide in and become effective plug-and-play options for the Oilers next season.`\
 https://nytimes.com/athletic/5635476/2024/07/14/oilers-2024-25-season-prospects-hidden-gems/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-shooting-conspiracy-m
 **Dodgers plan to call up top pitching prospect River Ryan: Sources**\
 `Ryan’s expected start date is unknown, but the righty is expected to help fill a rotation slot for a group that includes three rookies.`\
 https://nytimes.com/athletic/5636821/2024/07/14/river-ryan-dodgers-call-up/
-
-**Statue of Hiroshima Bombing Victim Stolen From Seattle Park**\
-`The statue depicted Sadako Sasaki, who was 12 when she died from cancer likely caused by the Hiroshima bombing. Community members believe a thief saw value in her bronze cast.`\
-https://nytimes.com/2024/07/14/us/sadako-sasaki-hiroshima-statue-stolen.html
 

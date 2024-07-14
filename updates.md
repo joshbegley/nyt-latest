@@ -1,3 +1,7 @@
+**Shannen Doherty’s Final Act Was a Podcast That Put It All Out There**\
+`Over the past eight months, the “90210” and “Charmed” star spoke frankly and candidly about her cancer and her tumultuous career.`\
+https://nytimes.com/2024/07/14/arts/television/shannen-doherty-podcast.html
+
 **Lowetide: Oilers hidden gems that could impact the 2024-25 season**\
 `A list of players and prospects who could slide in and become effective plug-and-play options for the Oilers next season.`\
 https://nytimes.com/athletic/5635476/2024/07/14/oilers-2024-25-season-prospects-hidden-gems/
