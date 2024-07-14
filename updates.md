@@ -1,3 +1,11 @@
+**Corrections: July 14, 2024**\
+`Corrections that appeared in print on Sunday, July 14, 2024.`\
+https://nytimes.com/2024/07/14/pageoneplus/corrections-july-14-2024.html
+
+**Quotation of the Day: How Hollywood’s Big Donors Broke With Biden**\
+`Quotation of the Day for Sunday, July 14, 2024.`\
+https://nytimes.com/2024/07/14/pageoneplus/quotation-of-the-day-how-hollywoods-big-donors-broke-with-biden.html
+
 **Migrants Find Joy and a Taste of Home in a Manhattan Church Kitchen**\
 `At a volunteer-run center, migrants come together across cultures and religions to share flavors from their homelands amid a polarizing crisis. But funding is running low.`\
 https://nytimes.com/2024/07/14/nyregion/nyc-migrant-kitchen.html
