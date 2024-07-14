@@ -1,3 +1,11 @@
+**Biden Condemns Shooting at Trump Rally, Calling it ‘Sick’**\
+`“There’s no place in America for this kind of violence,” President Biden said in a nationally televised statement.`\
+https://nytimes.com/2024/07/13/us/politics/biden-trump-rally.html
+
+**Report From the Shooting at Trump’s Rally: ‘Get Down! Shots Fired!’**\
+`It sounded like a small caliber weapon. Everyone immediately ducked.`\
+https://nytimes.com/2024/07/13/us/politics/trump-rally-shooting-scene.html
+
 **Report From the Scene: ‘Get Down! Shots Fired!’**\
 `It sounded like a small caliber weapon. Everyone immediately ducked.`\
 https://nytimes.com/2024/07/13/us/politics/trump-rally-shooting-scene.html

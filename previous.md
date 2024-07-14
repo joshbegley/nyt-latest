@@ -1,8 +1,12 @@
+**Biden Condemns Shooting at Trump Rally, Calling it ‘Sick’**\
+`“There’s no place in America for this kind of violence,” President Biden said in a nationally televised statement.`\
+https://nytimes.com/2024/07/13/us/politics/biden-trump-rally.html
+
 **Dodgers' May out for season after esophageal surgery**\
 `The surgery will prevent Dustin May from being a potential cog for a pitching staff in dire need of reinforcement.`\
 https://nytimes.com/athletic/5635893/2024/07/13/dustin-may-dodgers-esophageal-surgery/
 
-**Report From the Scene: ‘Get Down! Shots Fired!’**\
+**Report From the Shooting at Trump’s Rally: ‘Get Down! Shots Fired!’**\
 `It sounded like a small caliber weapon. Everyone immediately ducked.`\
 https://nytimes.com/2024/07/13/us/politics/trump-rally-shooting-scene.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5635805/2024/07/13/colt-keith-tigers-comeback/
 **Trump Rushed Off Stage at Rally**\
 `Former President Donald J. Trump was escorted off the stage by Secret Service agents and into his motorcade just minutes into a rally after a series of pops rang out.`\
 https://nytimes.com/video/us/elections/100000009570231/trump-rally-shots-butler-pennsylvania.html
-
-**'It was like meeting a god': Tennis impressionist Josh Berry on mimicking the GOATs**\
-`Want to speak to Rafael Nadal, Roger Federer, John McEnroe, and Andy Murray? Become a Wimbledon commentator – or just call Josh Berry`\
-https://nytimes.com/athletic/5635110/2024/07/13/josh-berry-tennis-impressions-interview/
 
