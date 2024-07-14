@@ -1,3 +1,7 @@
+**American Democracy Must Survive This Political Attack**\
+`It’s crucial that elected leaders of all ideologies stand up for the American political system.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-shooting-political-violence
+
 **A poll last month examined support for political violence in the U.S.**\
 `By Alan Feuer`\
 https://nytimes.com/live/2024/07/13/us/biden-trump-election/a-poll-last-month-examined-support-for-political-violence-in-the-us
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/13/us/politics/trump-statement-shooting-truth-social
 **Social Media Platforms Deluged by Unsubstantiated Claims About Trump Rally**\
 `Disinformation experts immediately urged caution, warning people not to jump to conclusions.`\
 https://nytimes.com/2024/07/13/us/politics/trump-rally-disinformation-x-social-media.html
-
-**Novak Djokovic one win from Federer's Wimbledon record - and dethroning its favourite son**\
-`The 24-time Grand Slam champion is on the edge of history at the All England Club — equalling the record of its favourite son, Roger Federer`\
-https://nytimes.com/athletic/5635500/2024/07/13/wimbledon-final-djokovic-alcaraz-federer-record/
 
