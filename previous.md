@@ -1,3 +1,7 @@
+**Assassination Attempt on a Hamas Leader Followed Surveillance of His Deputy**\
+`A compound belonging to the family of Rafa Salameh, a top Hamas deputy in southern Gaza, had been under surveillance for several weeks, Israeli officials said. The strike killed more than 90 people.`\
+https://nytimes.com/2024/07/14/world/middleeast/israel-hamas-deif-assassination-attempt.html
+
 **Shannen Doherty’s Final Act Was a Podcast That Put It All Out There**\
 `Over the past eight months, the “90210” and “Charmed” star spoke frankly and candidly about her cancer and her tumultuous career.`\
 https://nytimes.com/2024/07/14/arts/television/shannen-doherty-podcast.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/14/us/corey-comperatore-trump-shooting-victim.html
 **The Response to Violence Should Not Be a Media Blame Game**\
 `Conspiracy mindsets go well beyond news organizations or political parties.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-shooting-conspiracy-mindset
-
-**Dodgers plan to call up top pitching prospect River Ryan: Sources**\
-`Ryan’s expected start date is unknown, but the righty is expected to help fill a rotation slot for a group that includes three rookies.`\
-https://nytimes.com/athletic/5636821/2024/07/14/river-ryan-dodgers-call-up/
 
