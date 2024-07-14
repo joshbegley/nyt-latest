@@ -1,3 +1,11 @@
+**Food May Be the Last Thing on Your Mind**\
+`Cook anyway, for the benefit of others and yourself.`\
+https://nytimes.com/2024/07/14/dining/food-may-be-the-last-thing-on-your-mind.html
+
+**At a Trump Rally, a Shocking Act of Violence**\
+`Responses to the assassination attempt against the former president. Also: Abortion and the Supreme Court; children’s online behavior; body image; driving apps.`\
+https://nytimes.com/2024/07/14/opinion/donald-trump-assassination-attempt.html
+
 **Joshua Zirkzee to Manchester United: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate striker Zirkzee's move to Manchester United from Bologna in Italy's Serie A.`\
 https://nytimes.com/athletic/5581805/2024/07/14/joshua-zirkzee-manchester-united-transfer-rating/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5636282/2024/07/14/derrick-white-team-usa-olympics-
 **The AR-15-style rifle is one of the most ubiquitous weapons in the United States.**\
 `By Thomas Gibbons-Neff`\
 https://nytimes.com/live/2024/07/14/us/trump-shooting-election/the-ar-15-style-rifle-is-one-of-the-most-ubiquitous-weapons-in-the-united-states
-
-**Team USA's Steve Kerr, Steph Curry decry assassination attempt on Donald Trump**\
-`Steve Kerr and Stephen Curry — speaking from Abu Dhabi, where the team is preparing for the Olympics — decried the shooting in Pennsylvania.`\
-https://nytimes.com/athletic/5636371/2024/07/14/donald-trump-shooting-team-usa-steve-kerr/
-
-**The Assassination Attempt Against Donald Trump**\
-`What we know about the shooting in Pennsylvania.`\
-https://nytimes.com/2024/07/14/briefing/donald-trump-assassination-attempt.html
 

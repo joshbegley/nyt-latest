@@ -1,3 +1,11 @@
+**Food May Be the Last Thing on Your Mind**\
+`Cook anyway, for the benefit of others and yourself.`\
+https://nytimes.com/2024/07/14/dining/food-may-be-the-last-thing-on-your-mind.html
+
+**At a Trump Rally, a Shocking Act of Violence**\
+`Responses to the assassination attempt against the former president. Also: Abortion and the Supreme Court; children’s online behavior; body image; driving apps.`\
+https://nytimes.com/2024/07/14/opinion/donald-trump-assassination-attempt.html
+
 **Joshua Zirkzee to Manchester United: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate striker Zirkzee's move to Manchester United from Bologna in Italy's Serie A.`\
 https://nytimes.com/athletic/5581805/2024/07/14/joshua-zirkzee-manchester-united-transfer-rating/
