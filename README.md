@@ -1,3 +1,7 @@
+**Shooting Plunges an Already Tumultuous Campaign Into Shock and Uncertainty**\
+`The assassination attempt of Donald J. Trump was the latest escalation of political violence and a reminder of the increasing fragility of peaceful democracy in America.`\
+https://nytimes.com/2024/07/14/us/politics/trump-shooting-campaign-politics-biden.html
+
 **Catherine, Princess of Wales, in Purple, Is a Wimbledon Winner**\
 `In her second public appearance since her cancer diagnosis, the princess once again made a considered choice.`\
 https://nytimes.com/2024/07/14/style/princess-kate-middleton-wimbeldon-style.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5581805/2024/07/14/joshua-zirkzee-manchester-united
 **Man Utd complete Zirkzee signing**\
 `Joshua Zirkzee has completed his move to Manchester United from Bologna.`\
 https://nytimes.com/athletic/5633259/2024/07/14/joshua-zirkzee-transfer-manchester-united/
-
-**Ohio Mother Killed Trying to Stop a Carjacking With Her Son Inside**\
-`The woman, 29, was struck by her own vehicle after the suspects began driving away, the police said.`\
-https://nytimes.com/2024/07/14/us/ohio-mother-killed-carjacking.html
 
