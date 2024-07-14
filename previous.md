@@ -1,3 +1,7 @@
+**Biden Asks America to Unite and Vows Swift Inquiry of Attempted Assassination of Trump**\
+`In remarks from the White House on Sunday, President Biden called the attack “contrary to everything we stand for as a nation.’’`\
+https://nytimes.com/2024/07/14/us/politics/biden-unity-attempted-assassination-trump.html
+
 **Assassination Attempt on a Hamas Leader Followed Surveillance of His Deputy**\
 `A compound belonging to the family of Rafa Salameh, a top Hamas deputy in southern Gaza, had been under surveillance for several weeks, Israeli officials said. The strike killed more than 90 people.`\
 https://nytimes.com/2024/07/14/world/middleeast/israel-hamas-deif-assassination-attempt.html
@@ -10,8 +14,8 @@ https://nytimes.com/2024/07/14/arts/television/shannen-doherty-podcast.html
 `A list of players and prospects who could slide in and become effective plug-and-play options for the Oilers next season.`\
 https://nytimes.com/athletic/5635476/2024/07/14/oilers-2024-25-season-prospects-hidden-gems/
 
-**Conspiracy theories have been springing up on Truth Social.**\
-`By David Yaffe-Bellany`\
+**After Trump Attack, Conspiracy Theories Spring Up on Truth Social**\
+`The former president has used his site to share occasional updates. Users are both hailing him as a hero and posting unsubstantiated rumors.`\
 https://nytimes.com/2024/07/14/us/politics/trump-shooting-conspiracy-theories-truth-social.html
 
 **Olympic Torch Reaches Paris in Elegant Style**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5636854/2024/07/14/alabama-ty-haywood-recruiting/
 **Man Killed at Trump Rally Shielded His Family From Shots**\
 `Relatives and friends described Corey Comperatore, 50, as a devoted father who served as a volunteer firefighter and loved to fish.`\
 https://nytimes.com/2024/07/14/us/corey-comperatore-trump-shooting-victim.html
-
-**The Response to Violence Should Not Be a Media Blame Game**\
-`Conspiracy mindsets go well beyond news organizations or political parties.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-shooting-conspiracy-mindset
 

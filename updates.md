@@ -1,3 +1,11 @@
+**Biden Asks America to Unite and Vows Swift Inquiry of Attempted Assassination of Trump**\
+`In remarks from the White House on Sunday, President Biden called the attack “contrary to everything we stand for as a nation.’’`\
+https://nytimes.com/2024/07/14/us/politics/biden-unity-attempted-assassination-trump.html
+
+**After Trump Attack, Conspiracy Theories Spring Up on Truth Social**\
+`The former president has used his site to share occasional updates. Users are both hailing him as a hero and posting unsubstantiated rumors.`\
+https://nytimes.com/2024/07/14/us/politics/trump-shooting-conspiracy-theories-truth-social.html
+
 **Conspiracy theories have been springing up on Truth Social.**\
 `By David Yaffe-Bellany`\
 https://nytimes.com/2024/07/14/us/politics/trump-shooting-conspiracy-theories-truth-social.html
