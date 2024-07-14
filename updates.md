@@ -1,3 +1,7 @@
+**Some Trump critics urge a lowering of the nation’s political temperature.**\
+`A number of elected officials came out after the shooting calling for restraint in partisan rhetoric.`\
+https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/some-trump-critics-urge-a-lowering-of-the-nations-political-temperature
+
 **MRI reveals Twins All-Star shortstop Carlos Correa has plantar fasciitis in right foot**\
 `Correa thinks he can be ready to play for the second half, so there's no talk of putting him on the injured list yet.`\
 https://nytimes.com/athletic/5636967/2024/07/14/twins-carlos-correa-plantar-fasciitis-right-foot/
