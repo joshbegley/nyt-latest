@@ -1,3 +1,7 @@
+**Tim Wakefield memories, and his No. 49, remain strong at Tahoe golf tournament**\
+`The late Wakefield and his wife, Stacy, were honored at the American Century Championship tournament, where they had been fixtures. `\
+https://nytimes.com/athletic/5635629/2024/07/14/red-sox-tim-wakefield-american-century-championship/
+
 **Argentina vs. Colombia in Miami: A Home Game for Both Teams**\
 `Few would argue there could be a more perfect setting for the final game of the Copa América soccer tournament on Sunday night.`\
 https://nytimes.com/2024/07/14/us/miami-argentina-colombia-copa-america.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/14/fashion/miu-miu-styles-men.html
 **From Exile in London, a Crime Novelist Works to Transform Russia**\
 `Boris Akunin, the creator of a hugely popular detective series, hopes that fomenting a vibrant Russian culture abroad might undermine President Vladimir V. Putin’s government at home.`\
 https://nytimes.com/2024/07/14/world/europe/russia-ukraine-boris-akunin-writers-exile.html
-
-**Think Our Political Leaders Are Selfish? Imagine Working for Alexander the Great.**\
-`In a new telling of the Macedonian leader’s final years, Rachel Kousser shows what happened when dreams of conquest met reality.`\
-https://nytimes.com/2024/07/14/books/review/alexander-at-the-end-of-the-world-rachel-kousser.html
 
