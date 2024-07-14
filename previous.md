@@ -1,3 +1,7 @@
+**Toronto Raptors' defensive makeover begins with Jamal Shead at Las Vegas Summer League**\
+`Among Shead, Davion Mitchell and Ochai Agbaji, perhaps the Raptors can do something basic — stop the guy with the ball. `\
+https://nytimes.com/athletic/5636053/2024/07/14/toronto-raptors-defensive-makeover-jamal-shead-summer-league/
+
 **Photo Appears to Capture Path of Bullet Used in Assassination Attempt**\
 `Michael Harrigan, a retired F.B.I. special agent, said the image captured by Doug Mills, a New York Times photographer, seems to show a bullet streaking past former President Donald J. Trump.`\
 https://nytimes.com/2024/07/14/us/politics/photo-path-trump-assassination.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5636012/2024/07/14/braves-max-fried-all-star/
 **Who decides Euro 2024's player of the tournament?**\
 `A former Chelsea and West Ham manager, Fabio Capello and a head coach whose Crystal Palace team failed to score a goal feature on the panel`\
 https://nytimes.com/athletic/5634081/2024/07/14/euro2024-player-tournament-benitez-moyes/
-
-**Spain vs England: Euro 2024 final predictions and key talking points**\
-`Everything you need to know about the final of Euro 2024 between Spain and England`\
-https://nytimes.com/athletic/5635249/2024/07/14/spain-england-euro-2024-predictions/
 
