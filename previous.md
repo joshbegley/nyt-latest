@@ -1,3 +1,15 @@
+**A poll last month examined support for political violence in the U.S.**\
+`By Alan Feuer`\
+https://nytimes.com/live/2024/07/13/us/biden-trump-election/a-poll-last-month-examined-support-for-political-violence-in-the-us
+
+**The Attack on Donald Trump Cannot Be Justified**\
+`Political violence is antithetical to our democracy.`\
+https://nytimes.com/2024/07/13/opinion/donald-trump-rally-shooting.html
+
+**Why Yankees' Luis Gil is leaning on new slider and dominating again**\
+`“The way he’s throwing it now,” catcher Austin Wells said, “it’s a plus pitch.” New York beat Baltimore 6-1 at Camden Yards. `\
+https://nytimes.com/athletic/5635936/2024/07/13/yankees-luis-gil-slider-dominating/
+
 **Two Attendees Describe the Moment Trump’s Rally Erupted Into Chaos**\
 `Two Republicans who were in the crowd described seeing what looked like “a lot of blood” on a higher level of the seating section behind them.`\
 https://nytimes.com/2024/07/13/us/politics/witnesses-describe-trump-rally-shooting.html
@@ -22,19 +34,7 @@ https://nytimes.com/2024/07/13/us/politics/trump-statement-shooting-truth-social
 `Disinformation experts immediately urged caution, warning people not to jump to conclusions.`\
 https://nytimes.com/2024/07/13/us/politics/trump-rally-disinformation-x-social-media.html
 
-**Butler Is a Republican Stronghold**\
-`Trump signs dot local roadsides in the town that is home to about 13,000 people.`\
-https://nytimes.com/2024/07/13/us/politics/butler-pennsylvania-trump-republicans.html
-
-**How the Mets have prepared Christian Scott for a full big-league season**\
-`In the Mets' 7-3 win over Colorado, Scott didn’t make it through the fifth Saturday in as shaky a start as he’s had in the major leagues.`\
-https://nytimes.com/athletic/5635898/2024/07/13/mets-christian-scott/
-
-**‘I couldn’t stop crying’: An eyewitness on the moments of mayhem**\
-`By Campbell Robertson`\
-https://nytimes.com/live/2024/07/13/us/biden-trump-election/i-couldnt-stop-crying-an-eyewitness-on-the-moments-of-mayhem
-
-**Biden Condemns Shooting at Trump Rally, Calling it ‘Sick’**\
-`“There’s no place in America for this kind of violence,” President Biden said in a nationally televised statement.`\
-https://nytimes.com/2024/07/13/us/politics/biden-trump-rally.html
+**Novak Djokovic one win from Federer's Wimbledon record - and dethroning its favourite son**\
+`The 24-time Grand Slam champion is on the edge of history at the All England Club — equalling the record of its favourite son, Roger Federer`\
+https://nytimes.com/athletic/5635500/2024/07/13/wimbledon-final-djokovic-alcaraz-federer-record/
 
