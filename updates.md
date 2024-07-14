@@ -1,3 +1,7 @@
+**How Will the R.N.C. Change After the Trump Assassination Attempt?**\
+`Trump campaign officials raised concerns that the messaging and tone of the speeches set to be delivered at the Republican National Convention this week might be overly aggressive.`\
+https://nytimes.com/2024/07/14/us/politics/trump-assassination-convention.html
+
 **How will the R.N.C. change after the Trump assassination attempt?**\
 `By Michael Gold and Michael C. Bender`\
 https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/trump-assassination-convention
