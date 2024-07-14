@@ -1,3 +1,11 @@
+**How the Mets have prepared Christian Scott for a full big-league season**\
+`In the Mets' 7-3 win over Colorado, Scott didn’t make it through the fifth Saturday in as shaky a start as he’s had in the major leagues.`\
+https://nytimes.com/athletic/5635898/2024/07/13/mets-christian-scott/
+
+**‘I couldn’t stop crying’: An eyewitness on the moments of mayhem**\
+`By Campbell Robertson`\
+https://nytimes.com/live/2024/07/13/us/biden-trump-election/i-couldnt-stop-crying-an-eyewitness-on-the-moments-of-mayhem
+
 **Biden Condemns Shooting at Trump Rally, Calling it ‘Sick’**\
 `“There’s no place in America for this kind of violence,” President Biden said in a nationally televised statement.`\
 https://nytimes.com/2024/07/13/us/politics/biden-trump-rally.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/13/arts/television/richard-simmons-dead.html
 **'No excuse': Dodgers' overworked bullpen blows 5-run lead in the ninth**\
 `Over the last month, only one team has logged more bullpen innings than the Dodgers’ 115. It caught up to them against the Tigers.`\
 https://nytimes.com/athletic/5635819/2024/07/13/dodgers-bullpen-woes-evan-phillips/
-
-**Acclimating no longer, Colt Keith puts on a show in Tigers' comeback**\
-`Keith leads all MLB rookies with a .509 slugging percentage since May 11. Detroit beat the Los Angeles Dodgers 11-9.`\
-https://nytimes.com/athletic/5635805/2024/07/13/colt-keith-tigers-comeback/
-
-**Trump Rushed Off Stage at Rally**\
-`Former President Donald J. Trump was escorted off the stage by Secret Service agents and into his motorcade just minutes into a rally after a series of pops rang out.`\
-https://nytimes.com/video/us/elections/100000009570231/trump-rally-shots-butler-pennsylvania.html
 

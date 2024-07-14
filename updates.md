@@ -1,3 +1,11 @@
+**How the Mets have prepared Christian Scott for a full big-league season**\
+`In the Mets' 7-3 win over Colorado, Scott didn’t make it through the fifth Saturday in as shaky a start as he’s had in the major leagues.`\
+https://nytimes.com/athletic/5635898/2024/07/13/mets-christian-scott/
+
+**‘I couldn’t stop crying’: An eyewitness on the moments of mayhem**\
+`By Campbell Robertson`\
+https://nytimes.com/live/2024/07/13/us/biden-trump-election/i-couldnt-stop-crying-an-eyewitness-on-the-moments-of-mayhem
+
 **Biden Condemns Shooting at Trump Rally, Calling it ‘Sick’**\
 `“There’s no place in America for this kind of violence,” President Biden said in a nationally televised statement.`\
 https://nytimes.com/2024/07/13/us/politics/biden-trump-rally.html
