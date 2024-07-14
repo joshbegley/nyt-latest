@@ -1,3 +1,11 @@
+**Sign of Things to Come**\
+`Tarun Krishnamurthy makes his New York Times debut.`\
+https://nytimes.com/2024/07/14/crosswords/daily-puzzle-2024-07-15.html
+
+**‘I’ve got fight and that’s all I need’: How Bob from Oban won the Scottish Open**\
+`An eagle on 16 tied Macintyre with Adam Scott for the lead. A birdie putt on 18 gave Macintyre the victory at Renaissance Club.`\
+https://nytimes.com/athletic/5637143/2024/07/14/robert-macintyre-scottish-open-win/
+
 **From a playing and personality standout, Jacoby Jones was the perfect fit in Baltimore**\
 `A locker room and fan favorite, Jones was essential to the Ravens reaching the 2012 Super Bowl and then winning it. `\
 https://nytimes.com/athletic/5637004/2024/07/14/jacoby-jones-dead-baltimore-ravens-super-bowl-legend/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5636892/2024/07/14/carlos-alcaraz-wimbledon-novak-d
 **Carlos Alcaraz is a Wimbledon champion - and Spain's Euro 2024 good-luck charm**\
 `Carlos Alcaraz makes tennis history at Wimbledon, as Spain chase the same dream at Euro 2024`\
 https://nytimes.com/athletic/5630953/2024/07/14/carlos-alcaraz-wimbledon-spain-football-european-championship/
-
-**Secret Service Snipers Were Strategically Placed Against Threats at the Trump Rally**\
-`In photographs of the Secret Service snipers, they appeared to be using long-range and powerful rifles that likely fire .300 or .338 cartridges, commonly used by well-trained military snipers.`\
-https://nytimes.com/2024/07/14/us/politics/secret-service-snipers-were-strategically-placed-against-threats-at-the-trump-rally.html
-
-**The Briefing: Spain 2 England 1 - Oyarzabal the unlikely hero with late winner in Euro 2024 final**\
-`Oyarzabal scored in the closing minutes to seal victory for De la Fuente's side and consign England to back-to-back Euro final defeats`\
-https://nytimes.com/athletic/5634616/2024/07/14/spain-euro-2024-champions-oyarzabal/
 
