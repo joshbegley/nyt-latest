@@ -1,3 +1,7 @@
+**Catherine, Princess of Wales, in Purple, Is a Wimbledon Winner**\
+`In her second public appearance since her cancer diagnosis, the princess once again made a considered choice.`\
+https://nytimes.com/2024/07/14/style/princess-kate-middleton-wimbeldon-style.html
+
 **Jacoby Jones, Ravens' Super Bowl star, dies at 40**\
 `His most famous moment came in Super Bowl XLVII, when his 108-yard kickoff return touchdown broke a Super Bowl record for longest play.`\
 https://nytimes.com/athletic/5636564/2024/07/14/jacoby-jones-dead-ravens/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5633259/2024/07/14/joshua-zirkzee-transfer-manchest
 **Ohio Mother Killed Trying to Stop a Carjacking With Her Son Inside**\
 `The woman, 29, was struck by her own vehicle after the suspects began driving away, the police said.`\
 https://nytimes.com/2024/07/14/us/ohio-mother-killed-carjacking.html
-
-**Forest targeting move for Milenkovic from Fiorentina**\
-`Nottingham Forest are working on a deal to sign Nikola Milenkovic from Fiorentina this summer.`\
-https://nytimes.com/athletic/5635700/2024/07/14/nottingham-forest-milenkovic-transfer/
 
