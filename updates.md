@@ -1,3 +1,7 @@
+**Lowetide: Oilers hidden gems that could impact the 2024-25 season**\
+`A list of players and prospects who could slide in and become effective plug-and-play options for the Oilers next season.`\
+https://nytimes.com/athletic/5635476/2024/07/14/oilers-2024-25-season-prospects-hidden-gems/
+
 **Conspiracy theories have been springing up on Truth Social.**\
 `By David Yaffe-Bellany`\
 https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/trump-shooting-truth-social-memes
