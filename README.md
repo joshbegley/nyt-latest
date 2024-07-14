@@ -1,3 +1,7 @@
+**Reds select Wake Forest pitcher Chase Burns with the second pick in the 2024 MLB Draft**\
+`Burns, 21, was 10-1 with a 2.70 ERA in 16 starts for the Demon Deacons after transferring from Tennessee.`\
+https://nytimes.com/athletic/5637408/2024/07/14/chase-burns-reds-wake-forest-draft/
+
 **It is judgment time for Southgate even if basing it on this final or Spain's superiority is tough**\
 `What we want from finals is definitive judgments, even if the messy nature of any football match makes them almost impossible to draw`\
 https://nytimes.com/athletic/5633433/2024/07/14/southgate-england-judgment/
@@ -34,8 +38,4 @@ https://nytimes.com/2024/07/14/technology/google-readies-23-billion-deal-for-wiz
 **A New Prince Leads Spain as It Rules European Soccer Again**\
 `A 2-1 victory in the Euro 2024 final extended England’s suffering but crowned a generational star in Spain’s teenage forward, Lamine Yamal.`\
 https://nytimes.com/2024/07/14/world/europe/euro-2024-final-spain-lamine-yamal.html
-
-**Dodgers stumble into All-Star break after disastrous ninth inning: 'Hard to be perfect'**\
-`The Dodgers' second spectacular ninth-inning implosion in as many afternoons to the Detroit Tigers capped a miserable stretch.`\
-https://nytimes.com/athletic/5637223/2024/07/14/dodgers-tigers-walk-off-loss-all-star-break/
 
