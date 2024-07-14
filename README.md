@@ -1,3 +1,15 @@
+**Argentina vs. Colombia in Miami: A Home Game for Both Teams**\
+`Few would argue there could be a more perfect setting for the final game of the Copa América soccer tournament on Sunday night.`\
+https://nytimes.com/2024/07/14/us/miami-argentina-colombia-copa-america.html
+
+**A Criminal Case Behind Him, Alec Baldwin Must Navigate ‘Rust’ Lawsuits**\
+`The possibility of a manslaughter conviction is over, but Mr. Baldwin has been accused of negligence in lawsuits related to the fatal shooting of the movie’s cinematographer.`\
+https://nytimes.com/2024/07/14/arts/alec-baldwin-rust-lawsuits.html
+
+**Burns From Scorching-Hot Sidewalks and Roads Are Rising, and Can Be Fatal**\
+`The risk of serious contact burns is increasing as temperatures soar and as more people move to the desert Southwest.`\
+https://nytimes.com/2024/07/14/us/heat-wave-pavement-burns.html
+
 **Snack on This at Your Weekend Barbecue: The Etymology of ‘Pickle’**\
 `Spicy brines, baseball debacles and burger accouterments: Pickles are easy to get caught in, and even easier to enjoy.`\
 https://nytimes.com/2024/07/14/insider/etymology-of-pickle.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/14/world/europe/russia-ukraine-boris-akunin-writers-
 **Think Our Political Leaders Are Selfish? Imagine Working for Alexander the Great.**\
 `In a new telling of the Macedonian leader’s final years, Rachel Kousser shows what happened when dreams of conquest met reality.`\
 https://nytimes.com/2024/07/14/books/review/alexander-at-the-end-of-the-world-rachel-kousser.html
-
-**21 Questions About Literature and Life in the 21st Century (So Far)**\
-`Try this wide-ranging quiz on the best books and the big events from recent years.`\
-https://nytimes.com/interactive/2024/07/14/books/review/bestbookscentury-quiz.html
-
-**How Microsoft’s Satya Nadella Became Tech’s Steely Eyed A.I. Gambler**\
-`Microsoft’s all-in moment on artificial intelligence has been defined by billions in spending and a C.E.O. counting on technology with huge potential and huge risks.`\
-https://nytimes.com/2024/07/14/technology/microsoft-ai-satya-nadella.html
-
-**They’re Two Sisters on a Supernatural Mountain, Trying to Solve a Murder**\
-`Alisa Alering’s debut novel, “Smothermoss,” is an Appalachian mystery tangled with wild magic, queer coming-of-age and sisterly bonds.`\
-https://nytimes.com/2024/07/14/books/review/smothermoss-alisa-alering.html
 
