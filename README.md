@@ -1,3 +1,11 @@
+**Biden Calls on Americans to Unite After Trump Assassination Attempt**\
+`President Biden said that he had a “short but good conversation” with former President Donald J. Trump after the shooting, and that he had demanded a national security review of what happened at Mr. Trump’s rally. Mr. Biden promised to share the results with the American people.`\
+https://nytimes.com/video/us/elections/100000009571124/biden-unity-trump.html
+
+**Israel Struck Twice in Its Attack on Al-Mawasi, Videos and Photos Show**\
+`Visual evidence from Saturday’s strike in Gaza that left dozens dead appears to show that the Israeli military launched a separate strike near emergency vehicles.`\
+https://nytimes.com/2024/07/14/world/middleeast/israel-mawasi-strike-vehicles.html
+
 **A Democratic U.S. representative fires an aide who posted that she wished Trump’s assassin had better aim.**\
 `By Luke Broadwater`\
 https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/a-democratic-us-representative-fires-an-aide-who-posted-that-she-wished-trumps-assassin-had-better-aim
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/a-democratic-do
 **Monday Briefing: An Assassination Attempt on Donald Trump**\
 `Plus, a major Israeli airstrike in Gaza.`\
 https://nytimes.com/2024/07/14/briefing/donald-trump-assassination-israel-gaza.html
-
-**Photographer Who Captured Trump Rally Shooting: ‘I Just Kept Doing My Job’**\
-`Doug Mills, a Times photographer, was at the Trump rally in Butler, Pa., on Saturday when shots rang out. He described his experience to Times Insider.`\
-https://nytimes.com/2024/07/14/insider/doug-mills-trump-rally-shooting.html
-
-**Tennis usually passes the torch. Carlos Alcaraz is running away with it**\
-`Carlos Alcaraz dispatched Novak Djokovic at Wimbledon, in less of a transfer of power than a takeover`\
-https://nytimes.com/athletic/5636892/2024/07/14/carlos-alcaraz-wimbledon-novak-djokovic-tennis/
 
