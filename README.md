@@ -6,7 +6,7 @@ https://nytimes.com/2024/07/13/us/politics/biden-trump-rally.html
 `The surgery will prevent Dustin May from being a potential cog for a pitching staff in dire need of reinforcement.`\
 https://nytimes.com/athletic/5635893/2024/07/13/dustin-may-dodgers-esophageal-surgery/
 
-**Report From the Scene: ‘Get Down! Shots Fired!’**\
+**Report From the Shooting at Trump’s Rally: ‘Get Down! Shots Fired!’**\
 `It sounded like a small caliber weapon. Everyone immediately ducked.`\
 https://nytimes.com/2024/07/13/us/politics/trump-rally-shooting-scene.html
 
