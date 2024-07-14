@@ -1,3 +1,11 @@
+**Carlos Alcaraz is a Wimbledon champion - and Spain's Euro 2024 good-luck charm**\
+`Carlos Alcaraz makes tennis history at Wimbledon, as Spain chase the same dream at Euro 2024`\
+https://nytimes.com/athletic/5630953/2024/07/14/carlos-alcaraz-wimbledon-spain-football-european-championship/
+
+**The Briefing: Spain 2 England 1 - Oyarzabal the unlikely hero with late winner in Euro 2024 final**\
+`Oyarzabal scored in the closing minutes to seal victory for De la Fuente's side and consign England to back-to-back Euro final defeats`\
+https://nytimes.com/athletic/5634616/2024/07/14/spain-euro-2024-champions-oyarzabal/
+
 **Secret Service snipers were strategically placed against threats at the Trump rally.**\
 `By Thomas Gibbons-Neff`\
 https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/secret-service-snipers-were-strategically-placed-against-threats-at-the-trump-rally
