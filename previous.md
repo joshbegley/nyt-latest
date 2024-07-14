@@ -1,3 +1,11 @@
+**The Photographs That Made Trump the Incarnation of Defiance**\
+`In video footage, everything was pandemonium. It was still images that defined the attack and its aftermath.`\
+https://nytimes.com/2024/07/14/arts/design/trump-photo-raised-fist.html
+
+**Republicans attacked Democrats whose bill could strip Trump of protection.**\
+`By Robert Jimison`\
+https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/republicans-attacked-democrats-whose-bill-could-strip-trump-of-protection
+
 **Southgate: 'Now is not the time' to talk about my future**\
 `Gareth Southgate refused to be drawn on his future as England manager after watching his side suffer another heartbreak in the final of the European Championship.`\
 https://nytimes.com/athletic/5630974/2024/07/14/gareth-southgate-england-manager-future/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5637143/2024/07/14/robert-macintyre-scottish-open-w
 **From a playing and personality standout, Jacoby Jones was the perfect fit in Baltimore**\
 `A locker room and fan favorite, Jones was essential to the Ravens reaching the 2012 Super Bowl and then winning it. `\
 https://nytimes.com/athletic/5637004/2024/07/14/jacoby-jones-dead-baltimore-ravens-super-bowl-legend/
-
-**Rodri, Yamal win Euro 2024 player and young player awards**\
-`Spain midfielder Rodri has been named as the best player of the European Championship, with team-mateLamine Yamal named the best young player of the tournament.`\
-https://nytimes.com/athletic/5637116/2024/07/14/rodri-yamal-euro-2024-best-young-player-awards/
-
-**Yankees' new worst loss of season mirrors Jekyll-and-Hyde first half**\
-`The Yankees have gone 8-18 in their past 26 games. They head into the All-Star break with a sour taste in their mouths.`\
-https://nytimes.com/athletic/5637046/2024/07/14/yankees-orioles-worst-loss-of-season/
 

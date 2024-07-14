@@ -1,3 +1,11 @@
+**The Photographs That Made Trump the Incarnation of Defiance**\
+`In video footage, everything was pandemonium. It was still images that defined the attack and its aftermath.`\
+https://nytimes.com/2024/07/14/arts/design/trump-photo-raised-fist.html
+
+**Republicans attacked Democrats whose bill could strip Trump of protection.**\
+`By Robert Jimison`\
+https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/republicans-attacked-democrats-whose-bill-could-strip-trump-of-protection
+
 **Southgate: 'Now is not the time' to talk about my future**\
 `Gareth Southgate refused to be drawn on his future as England manager after watching his side suffer another heartbreak in the final of the European Championship.`\
 https://nytimes.com/athletic/5630974/2024/07/14/gareth-southgate-england-manager-future/
