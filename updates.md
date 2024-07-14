@@ -1,3 +1,7 @@
+**American Democracy Must Survive This Political Attack**\
+`It’s crucial that elected leaders of all ideologies stand up for the American political system.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-shooting-political-violence
+
 **A poll last month examined support for political violence in the U.S.**\
 `By Alan Feuer`\
 https://nytimes.com/live/2024/07/13/us/biden-trump-election/a-poll-last-month-examined-support-for-political-violence-in-the-us
