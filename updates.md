@@ -1,3 +1,15 @@
+**In England, a Changed Nation Hopes for a Change in Soccer Fortunes**\
+`After installing a Labour government for the first time in 14 years, the country is looking to a historical precedent as a presage to a long-awaited sporting success.`\
+https://nytimes.com/2024/07/14/world/europe/england-euro24-final-spain.html
+
+**A Shooting Changes a Family. And It Can Change a Nation.**\
+`I pray we learn the right lessons from this awful event.`\
+https://nytimes.com/2024/07/14/opinion/a-shooting-changes-a-family-and-it-can-change-a-nation.html
+
+**Some political figures who condemned Saturday’s violence spoke from experience.**\
+`By Jess Bidgood`\
+https://nytimes.com/2024/07/13/us/politics/some-political-figures-who-condemned-saturdays-violence-spoke-from-experience.html
+
 **The Sound of the Assassin’s Gun Never Goes Away**\
 `It also reverberated in the Ambassador Hotel ballroom in 1968.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/rfk-assassination-political-violence
