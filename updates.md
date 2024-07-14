@@ -1,3 +1,7 @@
+**Report From the Scene: ‘Get Down! Shots Fired!’**\
+`It sounded like a small caliber weapon. Everyone immediately ducked.`\
+https://nytimes.com/2024/07/13/us/politics/trump-rally-shooting-scene.html
+
 **Trump Rushed Off Stage at Rally**\
 `Former President Donald J. Trump was escorted off the stage by Secret Service agents and into his motorcade just minutes into a rally after a series of pops rang out.`\
 https://nytimes.com/video/us/elections/100000009570231/trump-rally-shots-butler-pennsylvania.html
