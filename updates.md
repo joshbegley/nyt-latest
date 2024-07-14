@@ -1,3 +1,7 @@
+**Investigators believe the gunman acted alone, and are seeking a motive.**\
+`By Katie Benner`\
+https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/investigators-believe-the-gunman-acted-alone-and-are-seeking-a-motive
+
 **How to Watch Shannen Doherty’s Most Notable Performances**\
 `The actress, who died on Saturday, was best known for “Beverly Hills, 90210,” but she wasn’t only a teen idol.`\
 https://nytimes.com/2024/07/14/arts/television/shannen-doherty-streaming.html
