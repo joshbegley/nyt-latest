@@ -1,3 +1,7 @@
+**How will the R.N.C. change after the Trump assassination attempt?**\
+`By Michael Gold and Michael C. Bender`\
+https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/trump-assassination-convention
+
 **BlackRock removes an ad from 2022 that included images of the gunman.**\
 `By Michael M. Grynbaum and Maureen Farrell`\
 https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/blackrock-ad-trump-gunman
