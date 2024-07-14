@@ -1,40 +1,40 @@
-**Trump Supporters Gather at Trump Tower: ‘I’m Going to Be Here All Night’**\
-`Even hours after the shooting, some supporters gathered outside the Manhattan building, seeking solace among the shaken.`\
-https://nytimes.com/2024/07/14/us/politics/trump-tower-rally-shooting.html
+**Snack on This at Your Weekend Barbecue: The Etymology of ‘Pickle’**\
+`Spicy brines, baseball debacles and burger accouterments: Pickles are easy to get caught in, and even easier to enjoy.`\
+https://nytimes.com/2024/07/14/insider/etymology-of-pickle.html
 
-**Here’s the latest.**\
-`By Mike Ives`\
-https://nytimes.com/live/2024/07/14/us/trump-shooting-election/heres-the-latest
+**Should Slim Shady Be Canceled? Eminem’s Young Fans Say No.**\
+`The rapper unleashes more provocative lyrics on his 12th album, and new generations are defending him — rather than rushing to criticize him — online.`\
+https://nytimes.com/2024/07/14/arts/music/eminem-death-of-slim-shady-gen-z-canceled.html
 
-**Live Updates: Trump Safe After Failed Assassination Attempt**\
-`The authorities identified the gunman, who was killed, and said they were working “tirelessly” to investigate the attack on former President Donald J. Trump at a political rally in Pennsylvania.`\
-https://nytimes.com/live/2024/07/14/us/trump-shooting-election
+**Electric Vehicles May Become Harder to Rent**\
+`Rental car firms are offering temporary deals on electric cars, which they are selling after they lost value more quickly than expected.`\
+https://nytimes.com/2024/07/14/business/electric-vehicles-rental-cars.html
 
-**Corrections: July 14, 2024**\
-`Corrections that appeared in print on Sunday, July 14, 2024.`\
-https://nytimes.com/2024/07/14/pageoneplus/corrections-july-14-2024.html
+**The Chinese Base That Isn’t There**\
+`Before and after satellite images show how China transformed one Cambodian navy base.`\
+https://nytimes.com/interactive/2024/07/14/world/asia/china-cambodia-military-warship-base.html
 
-**Quotation of the Day: How Hollywood’s Big Donors Broke With Biden**\
-`Quotation of the Day for Sunday, July 14, 2024.`\
-https://nytimes.com/2024/07/14/pageoneplus/quotation-of-the-day-how-hollywoods-big-donors-broke-with-biden.html
+**ASAP Rocky, Odell Beckham Jr. and John Cleese Are All Wearing It**\
+`Why are men into the women’s wear brand Miu Miu?`\
+https://nytimes.com/2024/07/14/fashion/miu-miu-styles-men.html
 
-**Migrants Find Joy and a Taste of Home in a Manhattan Church Kitchen**\
-`At a volunteer-run center, migrants come together across cultures and religions to share flavors from their homelands amid a polarizing crisis. But funding is running low.`\
-https://nytimes.com/2024/07/14/nyregion/nyc-migrant-kitchen.html
+**From Exile in London, a Crime Novelist Works to Transform Russia**\
+`Boris Akunin, the creator of a hugely popular detective series, hopes that fomenting a vibrant Russian culture abroad might undermine President Vladimir V. Putin’s government at home.`\
+https://nytimes.com/2024/07/14/world/europe/russia-ukraine-boris-akunin-writers-exile.html
 
-**A Reporter Who Sees Meaning in the Stars**\
-`As a science reporter, Katrina Miller covers the cosmos, innovations in physics, space exploration and more.`\
-https://nytimes.com/2024/07/14/insider/space-reporting.html
+**Think Our Political Leaders Are Selfish? Imagine Working for Alexander the Great.**\
+`In a new telling of the Macedonian leader’s final years, Rachel Kousser shows what happened when dreams of conquest met reality.`\
+https://nytimes.com/2024/07/14/books/review/alexander-at-the-end-of-the-world-rachel-kousser.html
 
-**‘The Evening Lights of New York City Were Beginning to Twinkle’**\
-`An unscheduled stop on the M72, an unusual signal for help and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2024/07/14/nyregion/metropolitan-diary.html
+**21 Questions About Literature and Life in the 21st Century (So Far)**\
+`Try this wide-ranging quiz on the best books and the big events from recent years.`\
+https://nytimes.com/interactive/2024/07/14/books/review/bestbookscentury-quiz.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/07/14/crosswords/spelling-bee-forum.html
+**How Microsoft’s Satya Nadella Became Tech’s Steely Eyed A.I. Gambler**\
+`Microsoft’s all-in moment on artificial intelligence has been defined by billions in spending and a C.E.O. counting on technology with huge potential and huge risks.`\
+https://nytimes.com/2024/07/14/technology/microsoft-ai-satya-nadella.html
 
-**World leaders express outrage and concern.**\
-`Messages of support poured in from around the worl`\
-https://nytimes.com/live/2024/07/14/us/trump-shooting-election/world-leaders-express-outrage-and-concern
+**They’re Two Sisters on a Supernatural Mountain, Trying to Solve a Murder**\
+`Alisa Alering’s debut novel, “Smothermoss,” is an Appalachian mystery tangled with wild magic, queer coming-of-age and sisterly bonds.`\
+https://nytimes.com/2024/07/14/books/review/smothermoss-alisa-alering.html
 
