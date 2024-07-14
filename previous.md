@@ -1,10 +1,22 @@
+**Reds select Wake Forest pitcher Chase Burns with the second pick in the 2024 MLB Draft**\
+`Burns, 21, was 10-1 with a 2.70 ERA in 16 starts for the Demon Deacons after transferring from Tennessee.`\
+https://nytimes.com/athletic/5637408/2024/07/14/chase-burns-reds-wake-forest-draft/
+
+**It is judgment time for Southgate even if basing it on this final or Spain's superiority is tough**\
+`What we want from finals is definitive judgments, even if the messy nature of any football match makes them almost impossible to draw`\
+https://nytimes.com/athletic/5633433/2024/07/14/southgate-england-judgment/
+
+**Astros' Ronel Blanco had a brilliant first half. Can he sustain it in the second?**\
+`“He’s been unbelievable,” third baseman Alex Bregman said of Blanco, who has become a bona fide starter. He has one of baseball's best ERAs.`\
+https://nytimes.com/athletic/5637315/2024/07/14/astros-ronel-blanco-first-half-success/
+
 **The Secret Service fears overreacting to unfounded bystander reports, former agents say.**\
 `By David A. Fahrenthold`\
 https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/the-secret-service-fears-overreacting-to-unfounded-bystander-reports-former-agents-say
 
-**Copa America final sees people detained as fans struggle to enter stadium**\
+**Copa America final kick-off delayed as fans struggle to enter stadium**\
 `Follow the latest from the Copa America final between Argentina and Colombia
-The build-up to the Copa America final saw chaotic and dangerous scenes as thousands of supporters were prevented from entering Hard Rock Stadium in Miami for the game.`\
+The kick-off for the Copa America final was delayed after chaotic and dangerous scenes saw thousands of supporters prevented from entering Hard Rock Stadium in Miami for the game.`\
 https://nytimes.com/athletic/5637296/2024/07/14/copa-america-final-fans-tickets/
 
 **Gunman Is Said to Have Acted Alone, but Motives Remain Unclear**\
@@ -26,16 +38,4 @@ https://nytimes.com/2024/07/14/technology/google-readies-23-billion-deal-for-wiz
 **A New Prince Leads Spain as It Rules European Soccer Again**\
 `A 2-1 victory in the Euro 2024 final extended England’s suffering but crowned a generational star in Spain’s teenage forward, Lamine Yamal.`\
 https://nytimes.com/2024/07/14/world/europe/euro-2024-final-spain-lamine-yamal.html
-
-**Dodgers stumble into All-Star break after disastrous ninth inning: 'Hard to be perfect'**\
-`The Dodgers' second spectacular ninth-inning implosion in as many afternoons to the Detroit Tigers capped a miserable stretch.`\
-https://nytimes.com/athletic/5637223/2024/07/14/dodgers-tigers-walk-off-loss-all-star-break/
-
-**The Photographs That Made Trump an Incarnation of Defiance**\
-`In video footage, everything was pandemonium. It was still images that defined the attack and its aftermath.`\
-https://nytimes.com/2024/07/14/arts/design/trump-photo-raised-fist.html
-
-**Republicans attacked Democrats whose bill could strip Trump of protection.**\
-`By Robert Jimison`\
-https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/republicans-attacked-democrats-whose-bill-could-strip-trump-of-protection
 
