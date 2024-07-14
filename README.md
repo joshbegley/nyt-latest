@@ -1,3 +1,7 @@
+**Videos Show Suspect Lying Motionless on Nearby Rooftop After Shooting**\
+`An audio analysis by the The New York Times and an another expert suggested that eight shots had been fired by the gunman.`\
+https://nytimes.com/2024/07/13/us/politics/trump-rally-shooting-suspect-video.html
+
 **Amid the Mayhem, Trump Pumped His Fist and Revealed His Instincts**\
 `A bloodied Donald J. Trump made Secret Service agents wait while he expressed his defiance. The moment epitomized his visceral connection with his supporters, and his mastery of the modern media age.`\
 https://nytimes.com/2024/07/13/us/politics/donald-trump-rally-shooting-2024-campaign.html
@@ -31,10 +35,6 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-shooting-political-vi
 https://nytimes.com/live/2024/07/13/us/biden-trump-election/a-poll-last-month-examined-support-for-political-violence-in-the-us
 
 **The Attack on Donald Trump Is Antithetical to America**\
-`Political violence is antithetical to our democracy.`\
+`Any attempt to resolve an election through violence is abhorrent.`\
 https://nytimes.com/2024/07/13/opinion/donald-trump-rally-shooting.html
-
-**Why Yankees' Luis Gil is leaning on new slider and dominating again**\
-`“The way he’s throwing it now,” catcher Austin Wells said, “it’s a plus pitch.” New York beat Baltimore 6-1 at Camden Yards. `\
-https://nytimes.com/athletic/5635936/2024/07/13/yankees-luis-gil-slider-dominating/
 
