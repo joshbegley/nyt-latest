@@ -1,3 +1,7 @@
+**How will the R.N.C. change after the Trump assassination attempt?**\
+`By Michael Gold and Michael C. Bender`\
+https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/trump-assassination-convention
+
 **BlackRock removes an ad from 2022 that included images of the gunman.**\
 `By Michael M. Grynbaum and Maureen Farrell`\
 https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/blackrock-ad-trump-gunman
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5636587/2024/07/14/travis-bazzana-guardians-mlb-dra
 **After Shooting at Trump Rally, Officials Say R.N.C. Security Is ‘Ready To Go’**\
 `As 50,000 people began arriving in Milwaukee for the Republican National Convention, Secret Service officials and local leaders aimed to reassure the public about safety.`\
 https://nytimes.com/2024/07/14/us/milwaukee-rnc-security-trump.html
-
-**Google Readies $23 Billion Deal for Wiz, a Start-Up, Despite Antitrust Scrutiny**\
-`The deal to acquire the cybersecurity company would easily be Google’s most expensive acquisition.`\
-https://nytimes.com/2024/07/14/technology/google-readies-23-billion-deal-for-wiz-a-start-up-despite-antitrust-scrutiny.html
 
