@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5635893/2024/07/13/dustin-may-dodgers-esophageal-surgery/
 
 **Report From the Scene: ‘Get Down! Shots Fired!’**\
-`By Simon J. Levien`\
+`It sounded like a small caliber weapon. Everyone immediately ducked.`\
 https://nytimes.com/2024/07/13/us/politics/trump-rally-shooting-scene.html
 
 **Elon Musk endorses Trump, moments after episode at his rally.**\
