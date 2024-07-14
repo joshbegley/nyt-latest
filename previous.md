@@ -1,3 +1,11 @@
+**Are Soccer’s Showcase Games the Riskiest Gig in Music?**\
+`Performing before a major match like the Euro 2024 final offers priceless visibility, and the nonzero chance that you’ll be booed.`\
+https://nytimes.com/2024/07/14/world/europe/euro-2024-final-music-performer.html
+
+**Max Fried addition gives Braves 3 All-Star pitchers, but  bats continue to underwhelm**\
+`The Braves have a trio of All-Star starting pitchers for the first time since 1997, when it was Greg Maddux. Tom Glavine and Denny Neagle.`\
+https://nytimes.com/athletic/5636012/2024/07/14/braves-max-fried-all-star/
+
 **Who decides Euro 2024's player of the tournament?**\
 `A former Chelsea and West Ham manager, Fabio Capello and a head coach whose Crystal Palace team failed to score a goal feature on the panel`\
 https://nytimes.com/athletic/5634081/2024/07/14/euro2024-player-tournament-benitez-moyes/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/14/world/europe/england-euro24-final-spain.html
 **A Shooting Changes a Family. And It Can Change a Nation.**\
 `I pray we learn the right lessons from this awful event.`\
 https://nytimes.com/2024/07/14/opinion/trump-rally-shooting-reagan.html
-
-**The Sound of the Assassin’s Gun Never Goes Away**\
-`It also reverberated in the Ambassador Hotel ballroom in 1968.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/rfk-assassination-political-violence
-
-**Videos Show Suspect Lying Motionless on Nearby Rooftop After Shooting**\
-`An audio analysis by the The New York Times and an another expert suggested that eight shots had been fired by the gunman.`\
-https://nytimes.com/2024/07/13/us/politics/trump-rally-shooting-suspect-video.html
 
