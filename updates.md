@@ -1,3 +1,16 @@
+**Astros' Ronel Blanco had a brilliant first half. Can he sustain it in the second?**\
+`“He’s been unbelievable,” third baseman Alex Bregman said of Blanco, who has become a bona fide starter. He has one of baseball's best ERAs.`\
+https://nytimes.com/athletic/5637315/2024/07/14/astros-ronel-blanco-first-half-success/
+
+**The Secret Service fears overreacting to unfounded bystander reports, former agents say.**\
+`By David A. Fahrenthold`\
+https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/the-secret-service-fears-overreacting-to-unfounded-bystander-reports-former-agents-say
+
+**Copa America final sees people detained as fans struggle to enter stadium**\
+`Follow the latest from the Copa America final between Argentina and Colombia
+The build-up to the Copa America final saw chaotic and dangerous scenes as thousands of supporters were prevented from entering Hard Rock Stadium in Miami for the game.`\
+https://nytimes.com/athletic/5637296/2024/07/14/copa-america-final-fans-tickets/
+
 **Copa America final sees people detained as fans struggle to enter stadium**\
 `The build-up to the Copa America final saw chaotic and dangerous scenes as thousands of supporters were prevented from entering Hard Rock Stadium in Miami for the game.`\
 https://nytimes.com/athletic/5637296/2024/07/14/copa-america-final-fans-tickets/
