@@ -1,3 +1,11 @@
+**Photographer Who Captured the Rally Shooting: ‘I Just Kept Doing My Job’**\
+`Doug Mills, a Times photographer, was at the Trump rally in Butler, Pa., on Saturday when shots rang out. He described his experience to Times Insider.`\
+https://nytimes.com/2024/07/14/insider/doug-mills-trump-rally-shooting.html
+
+**Secret Service Snipers Were Strategically Placed Against Threats at the Trump Rally**\
+`In photographs of the Secret Service snipers, they appeared to be using long-range and powerful rifles that likely fire .300 or .338 cartridges, commonly used by well-trained military snipers.`\
+https://nytimes.com/2024/07/14/us/politics/secret-service-snipers-were-strategically-placed-against-threats-at-the-trump-rally.html
+
 **Carlos Alcaraz is a Wimbledon champion - and Spain's Euro 2024 good-luck charm**\
 `Carlos Alcaraz makes tennis history at Wimbledon, as Spain chase the same dream at Euro 2024`\
 https://nytimes.com/athletic/5630953/2024/07/14/carlos-alcaraz-wimbledon-spain-football-european-championship/
