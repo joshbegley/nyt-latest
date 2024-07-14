@@ -1,3 +1,7 @@
+**Butler, a onetime industrial hub north of Pittsburgh, is a Republican stronghold.**\
+`By Jeanna Smialek and Robert Gebeloff`\
+https://nytimes.com/live/2024/07/13/us/biden-trump-election/butler-a-onetime-industrial-hub-north-of-pittsburgh-is-a-republican-stronghold
+
 **How the Mets have prepared Christian Scott for a full big-league season**\
 `In the Mets' 7-3 win over Colorado, Scott didn’t make it through the fifth Saturday in as shaky a start as he’s had in the major leagues.`\
 https://nytimes.com/athletic/5635898/2024/07/13/mets-christian-scott/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5635866/2024/07/13/argentina-uruguay-colombia-fans/
 **Richard Simmons, Exercise and Fitness Personality, Dies at 76**\
 `With his exuberant can-do spirit, Mr. Simmons appealed to a wide following to get moving with exercise videos like “Sweatin’ to the Oldies.”`\
 https://nytimes.com/2024/07/13/arts/television/richard-simmons-dead.html
-
-**'No excuse': Dodgers' overworked bullpen blows 5-run lead in the ninth**\
-`Over the last month, only one team has logged more bullpen innings than the Dodgers’ 115. It caught up to them against the Tigers.`\
-https://nytimes.com/athletic/5635819/2024/07/13/dodgers-bullpen-woes-evan-phillips/
 
