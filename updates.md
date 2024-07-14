@@ -1,3 +1,7 @@
+**Carlos Santana and dominant bullpen lift short-handed Twins past Giants**\
+`Minnesota won despite missing four of their best hitters and playing catcher Christian Vázquez at third base.`\
+https://nytimes.com/athletic/5636031/2024/07/14/twins-dominant-bullpen-defeats-giants/
+
 **Toronto Raptors' defensive makeover begins with Jamal Shead at Las Vegas Summer League**\
 `Among Shead, Davion Mitchell and Ochai Agbaji, perhaps the Raptors can do something basic — stop the guy with the ball. `\
 https://nytimes.com/athletic/5636053/2024/07/14/toronto-raptors-defensive-makeover-jamal-shead-summer-league/
