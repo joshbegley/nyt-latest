@@ -1,3 +1,7 @@
+**A Times Photographer Who Was Feet Away From Trump Describes the Shooting**\
+`“I hope I get the right shot. I hope I’m not shot myself,” said Doug Mills, who has been photographing presidents since 1983.`\
+https://nytimes.com/2024/07/13/us/politics/doug-mills-trump-photo.html
+
 **Some political figures who condemned Saturday’s violence spoke from experience.**\
 `By Jess Bidgood`\
 https://nytimes.com/live/2024/07/13/us/biden-trump-election/some-political-figures-who-condemned-saturdays-violence-spoke-from-experience
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/13/us/politics/witnesses-describe-trump-rally-shooti
 **Shooting at a Trump Rally in Pennsylvania: Diagrams, Maps and Photos**\
 `Former President Donald J. Trump was speaking at a campaign event in Butler, Pa., when shots rang out and Mr. Trump was whisked off the stage.`\
 https://nytimes.com/interactive/2024/07/13/us/trump-rally-shooting-maps-photos.html
-
-**Biden Condemns Shooting at Trump Rally**\
-`President Biden said he would try to reach Donald J. Trump after a man fired at the former president during a campaign rally in Pennsylvania.`\
-https://nytimes.com/video/us/politics/100000009570337/biden-condemns-shooting-at-trump-rally.html
 
