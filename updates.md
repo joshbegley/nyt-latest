@@ -1,3 +1,11 @@
+**Joshua Zirkzee to Manchester United: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate striker Zirkzee's move to Manchester United from Bologna in Italy's Serie A.`\
+https://nytimes.com/athletic/5581805/2024/07/14/joshua-zirkzee-manchester-united-transfer-rating/
+
+**Man Utd complete Zirkzee signing**\
+`Joshua Zirkzee has completed his move to Manchester United from Bologna.`\
+https://nytimes.com/athletic/5633259/2024/07/14/joshua-zirkzee-transfer-manchester-united/
+
 **Derrick White trades Cabo for Team USA and a chance to chase Olympic gold**\
 `For Derrick White, vacation can wait. A last-minute chance to chase an Olympic gold medal with Team USA was a no-brainer.`\
 https://nytimes.com/athletic/5636282/2024/07/14/derrick-white-team-usa-olympics-basketball/
