@@ -1,3 +1,7 @@
+**Jacoby Jones, Ravens' Super Bowl star, dies at 40**\
+`His most famous moment came in Super Bowl XLVII, when his 108-yard kickoff return touchdown broke a Super Bowl record for longest play.`\
+https://nytimes.com/athletic/5636564/2024/07/14/jacoby-jones-dead-ravens/
+
 **Carlos Alcaraz is a Wimbledon champion - and Spain's Euro 2024 good-luck charm**\
 `Carlos Alcaraz makes tennis history at Wimbledon, as Spain chase the same dream at Euro 2024`\
 https://nytimes.com/athletic/5630953/2024/07/14/carlos-alcaraz-wimbledon-spain-football-european-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/14/us/ohio-mother-killed-carjacking.html
 **Forest targeting move for Milenkovic from Fiorentina**\
 `Nottingham Forest are working on a deal to sign Nikola Milenkovic from Fiorentina this summer.`\
 https://nytimes.com/athletic/5635700/2024/07/14/nottingham-forest-milenkovic-transfer/
-
-**Shannen Doherty, ‘Beverly Hills, 90210’ Star, Dies at 53**\
-`Ms. Doherty, who also had roles in the TV series “Charmed” and the comedy-thriller “Heathers,” had continued to work after a breast cancer diagnosis.`\
-https://nytimes.com/2024/07/14/arts/television/shannen-doherty-dead.html
 

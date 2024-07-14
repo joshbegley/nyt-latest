@@ -1,3 +1,7 @@
+**Jacoby Jones, Ravens' Super Bowl star, dies at 40**\
+`His most famous moment came in Super Bowl XLVII, when his 108-yard kickoff return touchdown broke a Super Bowl record for longest play.`\
+https://nytimes.com/athletic/5636564/2024/07/14/jacoby-jones-dead-ravens/
+
 **Carlos Alcaraz is a Wimbledon champion - and Spain's Euro 2024 good-luck charm**\
 `Carlos Alcaraz makes tennis history at Wimbledon, as Spain chase the same dream at Euro 2024`\
 https://nytimes.com/athletic/5630953/2024/07/14/carlos-alcaraz-wimbledon-spain-football-european-championship/
