@@ -1,3 +1,11 @@
+**Corrections: July 14, 2024**\
+`Corrections that appeared in print on Sunday, July 14, 2024.`\
+https://nytimes.com/2024/07/14/pageoneplus/corrections-july-14-2024.html
+
+**Quotation of the Day: How Hollywood’s Big Donors Broke With Biden**\
+`Quotation of the Day for Sunday, July 14, 2024.`\
+https://nytimes.com/2024/07/14/pageoneplus/quotation-of-the-day-how-hollywoods-big-donors-broke-with-biden.html
+
 **Migrants Find Joy and a Taste of Home in a Manhattan Church Kitchen**\
 `At a volunteer-run center, migrants come together across cultures and religions to share flavors from their homelands amid a polarizing crisis. But funding is running low.`\
 https://nytimes.com/2024/07/14/nyregion/nyc-migrant-kitchen.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/14/us/politics/shooting-trump-rally.html
 **For England, I feel everything**\
 `From three lions on the shirt to deep lines on the forehead, Alan Shearer is fizzing and fidgeting. Hunger, pride and desperation are back`\
 https://nytimes.com/athletic/5633856/2024/07/14/alan-shearer-england-feel-everything/
-
-**A Texas official recounts ‘an atmosphere of shock’ during the shooting.**\
-`By Eduardo Medina`\
-https://nytimes.com/live/2024/07/13/us/biden-trump-election/a-texas-official-recounts-an-atmosphere-of-shock-during-the-shooting
-
-**A Saturday in St. Louis to forget: Chicago gets swept in doubleheader**\
-`The Cubs felt like they had turned a corner both on the field and mentally. But one very bad day at the ballpark has the doubters back.`\
-https://nytimes.com/athletic/5636061/2024/07/14/chicago-cubs-doubleheader-sweep-cardinals/
 
