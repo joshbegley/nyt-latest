@@ -1,3 +1,7 @@
+**Derrick White trades Cabo for Team USA and a chance to chase Olympic gold**\
+`For Derrick White, vacation can wait. A last-minute chance to chase an Olympic gold medal with Team USA was a no-brainer.`\
+https://nytimes.com/athletic/5636282/2024/07/14/derrick-white-team-usa-olympics-basketball/
+
 **Ohio Mother Killed Trying to Stop a Carjacking With Her Son Inside**\
 `The woman, 29, was struck by her own vehicle after the suspects began driving away, the police said.`\
 https://nytimes.com/2024/07/14/us/ohio-mother-killed-carjacking.html
