@@ -1,3 +1,7 @@
+**Kane, Olmo among shared winners of Euro 2024 Golden Boot**\
+`The 2024 European Championship has been shared six ways after six players finished level on three goals following Sunday&#8217;s final between Spain and England.`\
+https://nytimes.com/athletic/5636763/2024/07/14/golden-boot-euro-2024-kane-olmo-musiala/
+
 **Tennis usually passes the torch. Carlos Alcaraz is running away with it**\
 `Carlos Alcaraz's routing of Novak Djokovic cements his place as the runaway torchbearer in men's tennis`\
 https://nytimes.com/athletic/5636892/2024/07/14/carlos-alcaraz-wimbledon-novak-djokovic-tennis/
