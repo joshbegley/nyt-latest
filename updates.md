@@ -1,3 +1,11 @@
+**Enter, Luis Suarez: Takeaways as Uruguay clinches third spot at Copa America**\
+`All the key talking points from the third-place playoff at Copa America`\
+https://nytimes.com/athletic/5635912/2024/07/13/suarez-canada-uruguay-copa-america/
+
+**The Attack on Donald Trump Is Antithetical to America**\
+`Political violence is antithetical to our democracy.`\
+https://nytimes.com/2024/07/13/opinion/donald-trump-rally-shooting.html
+
 **American Democracy Must Survive This Political Attack**\
 `It’s crucial that elected leaders of all ideologies stand up for the American political system.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-shooting-political-violence
