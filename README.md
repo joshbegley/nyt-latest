@@ -1,3 +1,7 @@
+**‘America’s Under Attack’: A Gleeful Trump Rally Shattered by Gunfire**\
+`Some began to cry and to pray. Others screamed, as law enforcement officers shouted for everyone to get down.`\
+https://nytimes.com/2024/07/14/us/trump-rally-shooting-scene.html
+
 **Carlos Santana and dominant bullpen lift short-handed Twins past Giants**\
 `Minnesota won despite missing four of their best hitters and playing catcher Christian Vázquez at third base.`\
 https://nytimes.com/athletic/5636031/2024/07/14/twins-dominant-bullpen-defeats-giants/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5635539/2024/07/14/lamine-yamal-spain-euro-2024-bar
 **Are Soccer’s Showcase Games the Riskiest Gig in Music?**\
 `Performing before a major match like the Euro 2024 final offers priceless visibility, and the nonzero chance that you’ll be booed.`\
 https://nytimes.com/2024/07/14/world/europe/euro-2024-final-music-performer.html
-
-**Max Fried addition gives Braves 3 All-Star pitchers, but  bats continue to underwhelm**\
-`The Braves have a trio of All-Star starting pitchers for the first time since 1997, when it was Greg Maddux. Tom Glavine and Denny Neagle.`\
-https://nytimes.com/athletic/5636012/2024/07/14/braves-max-fried-all-star/
 
