@@ -1,3 +1,7 @@
+**Alabama lands 5-star OT Ty Haywood**\
+`As it stands now, Alabama’s 2025 class has 22 commitments: five composite five-star players, 10 top 100 players and 19 blue-chip prospects.`\
+https://nytimes.com/athletic/5636854/2024/07/14/alabama-ty-haywood-recruiting/
+
 **Man Killed at Trump Rally Shielded His Family From Shots**\
 `Relatives and friends described Corey Comperatore, 50, as a devoted father who served as a volunteer firefighter and loved to fish.`\
 https://nytimes.com/2024/07/14/us/corey-comperatore-trump-shooting-victim.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/14/style/princess-kate-middleton-wimbeldon-style.htm
 **Game, Set, Match: Carlos Alcaraz dispatches Novak Djokovic for Wimbledon title**\
 `How Carlos Alcaraz used his serve and ruthlessness to beat Novak Djokovic and win his second Wimbledon title`\
 https://nytimes.com/athletic/5636272/2024/07/14/carlos-alcaraz-novak-djokovic-wimbledon-final/
-
-**Jacoby Jones, Ravens' Super Bowl star, dies at 40**\
-`His most famous moment came in Super Bowl XLVII, when his 108-yard kickoff return touchdown broke a Super Bowl record for longest play.`\
-https://nytimes.com/athletic/5636564/2024/07/14/jacoby-jones-dead-ravens/
 
