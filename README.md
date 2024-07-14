@@ -1,3 +1,7 @@
+**For England, I feel everything**\
+`From three lions on the shirt to deep lines on the forehead, Alan Shearer is fizzing and fidgeting. Hunger, pride and desperation are back`\
+https://nytimes.com/athletic/5633856/2024/07/14/alan-shearer-england-feel-everything/
+
 **A Texas official recounts ‘an atmosphere of shock’ during the shooting.**\
 `By Eduardo Medina`\
 https://nytimes.com/live/2024/07/13/us/biden-trump-election/a-texas-official-recounts-an-atmosphere-of-shock-during-the-shooting
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5636020/2024/07/14/celtics-baylor-scheierman-nba-su
 **Trump Wounded in Assassination Attempt as Hail of Bullets Erupts at Campaign Rally**\
 `Mr. Trump was declared “fine” by his campaign, and the gunman was killed by Secret Service snipers. The explosion of political violence further inflamed the campaign for the White House.`\
 https://nytimes.com/2024/07/14/us/politics/trump-wounded-in-assassination-attempt-as-hail-of-bullets-erupts-at-campaign-rally.html
-
-**What My Colleagues Saw at the Trump Rally Shooting**\
-`The shocking twist in the election is another chapter in the nation’s history of political violence.`\
-https://nytimes.com/2024/07/14/us/politics/what-my-colleagues-saw-at-the-trump-rally-shooting.html
 
