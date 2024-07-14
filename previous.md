@@ -1,3 +1,11 @@
+**Some political figures who condemned Saturday’s violence spoke from experience.**\
+`By Jess Bidgood`\
+https://nytimes.com/live/2024/07/13/us/biden-trump-election/some-political-figures-who-condemned-saturdays-violence-spoke-from-experience
+
+**2024 Futures Game: The performances that stood out — both good and bad**\
+`Cam Collier, Noble Meyer, Drake Baldwin and Kyle Teel were among the notable performers. Xavier Isaac was among those who struggled.`\
+https://nytimes.com/athletic/5635963/2024/07/13/futures-game-2024-performances-cam-collier/
+
 **Enter, Luis Suarez: Takeaways as Uruguay clinches third spot at Copa America**\
 `All the key talking points from the third-place playoff at Copa America`\
 https://nytimes.com/athletic/5635912/2024/07/13/suarez-canada-uruguay-copa-america/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/07/13/us/trump-rally-shooting-maps-photos.h
 **Biden Condemns Shooting at Trump Rally**\
 `President Biden said he would try to reach Donald J. Trump after a man fired at the former president during a campaign rally in Pennsylvania.`\
 https://nytimes.com/video/us/politics/100000009570337/biden-condemns-shooting-at-trump-rally.html
-
-**National and World Leaders Condemn the Shooting at Trump’s Rally**\
-`A wide range of political figures, including President Biden and other political opponents of the former president, denounced political violence and called for national unity.`\
-https://nytimes.com/2024/07/13/us/politics/trump-rally-shooting-reactions.html
-
-**Trump, on Social Media, Describes Being ‘Shot With a Bullet’ in the Ear**\
-`The former president wrote that he “knew immediately that something was wrong in that I heard a whizzing sound, shots, and immediately felt the bullet ripping through the skin.”`\
-https://nytimes.com/2024/07/13/us/politics/trump-statement-shooting-truth-social.html
 

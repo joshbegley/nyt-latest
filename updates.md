@@ -1,3 +1,11 @@
+**Some political figures who condemned Saturday’s violence spoke from experience.**\
+`By Jess Bidgood`\
+https://nytimes.com/live/2024/07/13/us/biden-trump-election/some-political-figures-who-condemned-saturdays-violence-spoke-from-experience
+
+**2024 Futures Game: The performances that stood out — both good and bad**\
+`Cam Collier, Noble Meyer, Drake Baldwin and Kyle Teel were among the notable performers. Xavier Isaac was among those who struggled.`\
+https://nytimes.com/athletic/5635963/2024/07/13/futures-game-2024-performances-cam-collier/
+
 **Enter, Luis Suarez: Takeaways as Uruguay clinches third spot at Copa America**\
 `All the key talking points from the third-place playoff at Copa America`\
 https://nytimes.com/athletic/5635912/2024/07/13/suarez-canada-uruguay-copa-america/
