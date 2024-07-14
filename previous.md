@@ -1,3 +1,7 @@
+**It’s been 52 years since a presidential candidate was killed or hurt in an attack.**\
+`Gov. George C. Wallace of Alabama was gravely wounded while campaigning in 1972, and Robert F. Kennedy was assassinated after his California primary victory in 1968.`\
+https://nytimes.com/live/2024/07/13/us/biden-trump-election/presidential-candidate-assassination-attempt-history
+
 **‘America’s Under Attack’: A Gleeful Trump Rally Shattered by Gunfire**\
 `Some began to cry and to pray. Others screamed, as law enforcement officers shouted for everyone to get down.`\
 https://nytimes.com/2024/07/14/us/trump-rally-shooting-scene.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/14/us/politics/trump-shooting-social-media.html
 **The making of Lamine Yamal and his path to Euro 2024 stardom**\
 `Lamine Yamal's rise has been rapid — this is the story of how he became a teenage superstar`\
 https://nytimes.com/athletic/5635539/2024/07/14/lamine-yamal-spain-euro-2024-barcelona/
-
-**Are Soccer’s Showcase Games the Riskiest Gig in Music?**\
-`Performing before a major match like the Euro 2024 final offers priceless visibility, and the nonzero chance that you’ll be booed.`\
-https://nytimes.com/2024/07/14/world/europe/euro-2024-final-music-performer.html
 

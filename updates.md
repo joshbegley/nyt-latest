@@ -1,3 +1,7 @@
+**It’s been 52 years since a presidential candidate was killed or hurt in an attack.**\
+`Gov. George C. Wallace of Alabama was gravely wounded while campaigning in 1972, and Robert F. Kennedy was assassinated after his California primary victory in 1968.`\
+https://nytimes.com/live/2024/07/13/us/biden-trump-election/presidential-candidate-assassination-attempt-history
+
 **‘America’s Under Attack’: A Gleeful Trump Rally Shattered by Gunfire**\
 `Some began to cry and to pray. Others screamed, as law enforcement officers shouted for everyone to get down.`\
 https://nytimes.com/2024/07/14/us/trump-rally-shooting-scene.html
