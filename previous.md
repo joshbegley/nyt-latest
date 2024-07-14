@@ -1,3 +1,11 @@
+**Google Readies $23 Billion Deal for Wiz, a Start-Up, Despite Antitrust Scrutiny**\
+`The deal to acquire the cybersecurity company would easily be Google’s most expensive acquisition.`\
+https://nytimes.com/2024/07/14/technology/google-readies-23-billion-deal-for-wiz-a-start-up-despite-antitrust-scrutiny.html
+
+**A New Prince Leads Spain as Its Rules European Soccer Again**\
+`A 2-1 victory in the Euro 2024 final extended England’s suffering but crowned a generational star in Spain’s teenage forward, Lamine Yamal.`\
+https://nytimes.com/2024/07/14/world/europe/euro-2024-final-spain-lamine-yamal.html
+
 **The Photographs That Made Trump the Incarnation of Defiance**\
 `In video footage, everything was pandemonium. It was still images that defined the attack and its aftermath.`\
 https://nytimes.com/2024/07/14/arts/design/trump-photo-raised-fist.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/a-democratic-us
 **Sign of Things to Come**\
 `Tarun Krishnamurthy makes his New York Times debut.`\
 https://nytimes.com/2024/07/14/crosswords/daily-puzzle-2024-07-15.html
-
-**'I've got fight, and that's all I need': How Bob from Oban won the Scottish Open**\
-`An eagle on 16 tied MacIntyre with Adam Scott for the lead. A birdie putt on 18 gave MacIntyre the victory at Renaissance Club.`\
-https://nytimes.com/athletic/5637143/2024/07/14/robert-macintyre-scottish-open-win/
-
-**From a playing and personality standout, Jacoby Jones was the perfect fit in Baltimore**\
-`A locker room and fan favorite, Jones was essential to the Ravens reaching the 2012 Super Bowl and then winning it. `\
-https://nytimes.com/athletic/5637004/2024/07/14/jacoby-jones-dead-baltimore-ravens-super-bowl-legend/
 
