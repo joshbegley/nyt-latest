@@ -1,3 +1,7 @@
+**Copa America final sees people detained as fans struggle to enter stadium**\
+`The build-up to the Copa America final saw chaotic and dangerous scenes as thousands of supporters were prevented from entering Hard Rock Stadium in Miami for the game.`\
+https://nytimes.com/athletic/5637296/2024/07/14/copa-america-final-fans-tickets/
+
 **Gunman Is Said to Have Acted Alone, but Motives Remain Unclear**\
 `The 20-year-old man from Pennsylvania who wounded former President Donald Trump left behind little social media presence or clues to what led him to open fire. Officials said he had no known history of mental illness.`\
 https://nytimes.com/2024/07/14/us/politics/trump-gunman-investigation.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/republicans-att
 **Southgate: 'Now is not the time' to talk about my future**\
 `Gareth Southgate refused to be drawn on his future as England manager after watching his side suffer another heartbreak in the final of the European Championship.`\
 https://nytimes.com/athletic/5630974/2024/07/14/gareth-southgate-england-manager-future/
-
-**Richard Simmons’s Radical Promise: Exercise Is for Everybody**\
-`By preaching that you didn’t have to already be slim to work out, Simmons reshaped the fitness industry — and ushered in the modern era of exercise.`\
-https://nytimes.com/2024/07/14/well/move/richard-simmons-exercise.html
 

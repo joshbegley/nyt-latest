@@ -1,3 +1,7 @@
+**Copa America final sees people detained as fans struggle to enter stadium**\
+`The build-up to the Copa America final saw chaotic and dangerous scenes as thousands of supporters were prevented from entering Hard Rock Stadium in Miami for the game.`\
+https://nytimes.com/athletic/5637296/2024/07/14/copa-america-final-fans-tickets/
+
 **Gunman Is Said to Have Acted Alone, but Motives Remain Unclear**\
 `The 20-year-old man from Pennsylvania who wounded former President Donald Trump left behind little social media presence or clues to what led him to open fire. Officials said he had no known history of mental illness.`\
 https://nytimes.com/2024/07/14/us/politics/trump-gunman-investigation.html
