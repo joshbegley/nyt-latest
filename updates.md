@@ -1,3 +1,7 @@
+**Social Media Platforms Deluged by Unsubstantiated Claims About Trump Rally**\
+`Disinformation experts immediately urged caution, warning people not to jump to conclusions.`\
+https://nytimes.com/2024/07/13/us/politics/trump-rally-disinformation-x-social-media.html
+
 **Butler, a onetime industrial hub north of Pittsburgh, is a Republican stronghold.**\
 `By Jeanna Smialek and Robert Gebeloff`\
 https://nytimes.com/live/2024/07/13/us/biden-trump-election/butler-a-onetime-industrial-hub-north-of-pittsburgh-is-a-republican-stronghold
