@@ -1,3 +1,11 @@
+**Biden Condemns Shooting at Trump Rally**\
+`President Biden said he would try to reach Donald J. Trump after a man fired at the former president during a campaign rally in Pennsylvania.`\
+https://nytimes.com/video/us/politics/100000009570337/biden-condemns-shooting-at-trump-rally.html
+
+**National and world leaders condemn the shooting at Trump’s rally.**\
+`The statements condemned political violence, called for national unity and wished for Mr. Trump’s health and safety.`\
+https://nytimes.com/live/2024/07/13/us/biden-trump-election/shooting-trump-rally-reaction
+
 **Trump, on Social Media, Describes Being ‘Shot With a Bullet’ in the Ear**\
 `The former president wrote that he “knew immediately that something was wrong in that I heard a whizzing sound, shots, and immediately felt the bullet ripping through the skin.”`\
 https://nytimes.com/2024/07/13/us/politics/trump-statement-shooting-truth-social.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5635893/2024/07/13/dustin-may-dodgers-esophageal-su
 **Report From the Shooting at Trump’s Rally: ‘Get Down! Shots Fired!’**\
 `It sounded like a small caliber weapon. Everyone immediately ducked.`\
 https://nytimes.com/2024/07/13/us/politics/trump-rally-shooting-scene.html
-
-**Elon Musk endorses Trump, moments after episode at his rally.**\
-`Mr. Musk has drifted rightward considerably during the Biden era.`\
-https://nytimes.com/live/2024/07/13/us/biden-trump-election/elon-musk-endorses-trump-moments-after-episode-at-his-rally
-
-**The Irony of Dr. Ruth**\
-`People often laughed when she spoke, but Ruth Westheimer delivered a punch that challenged norms for older women.`\
-https://nytimes.com/2024/07/13/style/dr-ruth.html
 
