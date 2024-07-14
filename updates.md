@@ -1,3 +1,11 @@
+**From a playing and personality standout, Jacoby Jones was the perfect fit in Baltimore**\
+`A locker room and fan favorite, Jones was essential to the Ravens reaching the 2012 Super Bowl and then winning it. `\
+https://nytimes.com/athletic/5637004/2024/07/14/jacoby-jones-dead-baltimore-ravens-super-bowl-legend/
+
+**Tennis usually passes the torch. Carlos Alcaraz is running away with it**\
+`Carlos Alcaraz dispatched Novak Djokovic at Wimbledon, in less of a transfer of power than a takeover`\
+https://nytimes.com/athletic/5636892/2024/07/14/carlos-alcaraz-wimbledon-novak-djokovic-tennis/
+
 **Rodri, Yamal win Euro 2024 player and young player awards**\
 `Spain midfielder Rodri has been named as the best player of the European Championship, with team-mateLamine Yamal named the best young player of the tournament.`\
 https://nytimes.com/athletic/5637116/2024/07/14/rodri-yamal-euro-2024-best-young-player-awards/
