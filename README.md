@@ -1,3 +1,7 @@
+**Statue of Hiroshima Bombing Victim Stolen From Seattle Park**\
+`The statue depicted Sadako Sasaki, who was 12 when she died from cancer likely caused by the Hiroshima bombing. Community members believe a thief saw value in her bronze cast.`\
+https://nytimes.com/2024/07/14/us/sadako-sasaki-hiroshima-statue-stolen.html
+
 **Fantasy baseball notebook: Francisco Lindor's HOF resume, Paul Skenes' case as the top starter for 2025 and more**\
 `Derek VanRiper lays out Francisco Lindor's argument for the Hall of Fame, explains why Paul Skenes may be the top SP pick in '25 and more.`\
 https://nytimes.com/athletic/5635458/2024/07/14/fantasy-baseball-notebook-top-pick-2025-paul-skenes/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/14/podcasts/headlines-donald-trump-assasination-atte
 **Food May Be the Last Thing on Your Mind**\
 `Cook anyway, for the benefit of others and yourself.`\
 https://nytimes.com/2024/07/14/dining/food-may-be-the-last-thing-on-your-mind.html
-
-**At a Trump Rally, a Shocking Act of Violence**\
-`Responses to the assassination attempt against the former president. Also: Abortion and the Supreme Court; children’s online behavior; body image; driving apps.`\
-https://nytimes.com/2024/07/14/opinion/donald-trump-assassination-attempt.html
 
