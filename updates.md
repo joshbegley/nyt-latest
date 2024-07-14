@@ -1,3 +1,7 @@
+**Rodri, Yamal win Euro 2024 player and young player awards**\
+`Spain midfielder Rodri has been named as the best player of the European Championship, with team-mateLamine Yamal named the best young player of the tournament.`\
+https://nytimes.com/athletic/5637116/2024/07/14/rodri-yamal-euro-2024-best-young-player-awards/
+
 **Yankees’ new worst loss of season mirrors Jekyll and Hyde first half**\
 `The Yankees have gone 8-18 in their last 26 games. They head into the All-Star break with a sour taste in their mouths.`\
 https://nytimes.com/athletic/5637046/2024/07/14/yankees-orioles-worst-loss-of-season/

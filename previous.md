@@ -1,3 +1,7 @@
+**Rodri, Yamal win Euro 2024 player and young player awards**\
+`Spain midfielder Rodri has been named as the best player of the European Championship, with team-mateLamine Yamal named the best young player of the tournament.`\
+https://nytimes.com/athletic/5637116/2024/07/14/rodri-yamal-euro-2024-best-young-player-awards/
+
 **Yankees’ new worst loss of season mirrors Jekyll and Hyde first half**\
 `The Yankees have gone 8-18 in their last 26 games. They head into the All-Star break with a sour taste in their mouths.`\
 https://nytimes.com/athletic/5637046/2024/07/14/yankees-orioles-worst-loss-of-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5636763/2024/07/14/golden-boot-euro-2024-kane-olmo-
 **Tennis usually passes the torch. Carlos Alcaraz is running away with it**\
 `Carlos Alcaraz's routing of Novak Djokovic cements his place as the runaway torchbearer in men's tennis`\
 https://nytimes.com/athletic/5636892/2024/07/14/carlos-alcaraz-wimbledon-novak-djokovic-tennis/
-
-**Some Trump critics urge a lowering of the nation’s political temperature.**\
-`A number of elected officials came out after the shooting calling for restraint in partisan rhetoric.`\
-https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/some-trump-critics-urge-a-lowering-of-the-nations-political-temperature
 
