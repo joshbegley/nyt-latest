@@ -1,3 +1,11 @@
+**Gunman Is Said to Have Acted Alone, but Motives Remain Unclear**\
+`The 20-year-old man from Pennsylvania who wounded former President Donald Trump left behind little social media presence or clues to what led him to open fire. Officials said he had no known history of mental illness.`\
+https://nytimes.com/2024/07/14/us/politics/trump-gunman-investigation.html
+
+**Guardians take Travis Bazzana at No. 1 in MLB Draft**\
+`The Oregon State slugger ranked second on The Athletic's Keith Law's top-100 prospect ranking for this draft.`\
+https://nytimes.com/athletic/5636587/2024/07/14/travis-bazzana-guardians-mlb-draft-2024/
+
 **After Shooting at Trump Rally, Officials Say R.N.C. Security Is ‘Ready To Go’**\
 `As 50,000 people began arriving in Milwaukee for the Republican National Convention, Secret Service officials and local leaders aimed to reassure the public about safety.`\
 https://nytimes.com/2024/07/14/us/milwaukee-rnc-security-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5630974/2024/07/14/gareth-southgate-england-manager
 **Richard Simmons’s Radical Promise: Exercise Is for Everybody**\
 `By preaching that you didn’t have to already be slim to work out, Simmons reshaped the fitness industry — and ushered in the modern era of exercise.`\
 https://nytimes.com/2024/07/14/well/move/richard-simmons-exercise.html
-
-**Biden Calls on Americans to Unite After Trump Assassination Attempt**\
-`President Biden said that he had a “short but good conversation” with former President Donald J. Trump after the shooting, and that he had demanded a national security review of what happened at Mr. Trump’s rally. Mr. Biden promised to share the results with the American people.`\
-https://nytimes.com/video/us/elections/100000009571124/biden-unity-trump.html
-
-**Israel Struck Twice in Its Attack on Al-Mawasi, Videos and Photos Show**\
-`Visual evidence from Saturday’s strike in Gaza that left dozens dead appears to show that the Israeli military launched a separate strike near emergency vehicles.`\
-https://nytimes.com/2024/07/14/world/middleeast/israel-mawasi-strike-vehicles.html
 
