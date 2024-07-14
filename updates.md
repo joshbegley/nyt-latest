@@ -1,3 +1,15 @@
+**Two Attendees Describe the Moment Trump’s Rally Erupted Into Chaos**\
+`Two Republicans who were in the crowd described seeing what looked like “a lot of blood” on a higher level of the seating section behind them.`\
+https://nytimes.com/2024/07/13/us/politics/witnesses-describe-trump-rally-shooting.html
+
+**National and World Leaders Condemn the Shooting at Trump’s Rally**\
+`A wide range of political figures, including President Biden and other political opponents of the former president, denounced political violence and called for national unity.`\
+https://nytimes.com/2024/07/13/us/politics/trump-rally-shooting-reactions.html
+
+**Butler Is a Republican Stronghold**\
+`Trump signs dot local roadsides in the town that is home to about 13,000 people`\
+https://nytimes.com/2024/07/13/us/politics/butler-pennsylvania-trump-republicans.html
+
 **Butler, a onetime industrial hub north of Pittsburgh, is a Republican stronghold.**\
 `By Jeanna Smialek and Robert Gebeloff`\
 https://nytimes.com/2024/07/13/us/politics/butler-a-onetime-industrial-hub-north-of-pittsburgh-is-a-republican-stronghold.html
