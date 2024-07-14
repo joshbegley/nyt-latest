@@ -1,3 +1,7 @@
+**Who is Euro 2024 final referee Letexier? Part-time bailiff and history maker**\
+`France did not make it to the final of the European Championships as they so dreamed of doing.`\
+https://nytimes.com/athletic/5633526/2024/07/13/francois-letexier-euro-2024-final-referee/
+
 **A Times Photographer Who Was Feet Away From Trump Describes the Shooting**\
 `“I hope I get the right shot. I hope I’m not shot myself,” said Doug Mills, who has been photographing presidents since 1983.`\
 https://nytimes.com/2024/07/13/us/politics/doug-mills-trump-photo.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5635936/2024/07/13/yankees-luis-gil-slider-dominati
 **Two Attendees Describe the Moment Trump’s Rally Erupted Into Chaos**\
 `Two Republicans who were in the crowd described seeing what looked like “a lot of blood” on a higher level of the seating section behind them.`\
 https://nytimes.com/2024/07/13/us/politics/witnesses-describe-trump-rally-shooting.html
-
-**Shooting at a Trump Rally in Pennsylvania: Diagrams, Maps and Photos**\
-`Former President Donald J. Trump was speaking at a campaign event in Butler, Pa., when shots rang out and Mr. Trump was whisked off the stage.`\
-https://nytimes.com/interactive/2024/07/13/us/trump-rally-shooting-maps-photos.html
 
