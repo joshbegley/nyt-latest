@@ -1,3 +1,7 @@
+**Kambwala close to Villarreal transfer**\
+`Manchester United defender Willy Kambwala is close to joining Villarreal on a permanent transfer.`\
+https://nytimes.com/athletic/5634933/2024/07/14/willy-kambwala-villarreal-manchester-united/
+
 **Catherine, Princess of Wales, Plans to Attend Wimbledon Men’s Final**\
 `The princess has stepped back from the public eye since her cancer diagnosis earlier this year.`\
 https://nytimes.com/2024/07/14/world/europe/kate-princess-of-wales-wimbledon.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5635864/2024/07/14/argentina-colombia-copa-america-
 **The Sunday Read: ‘A Republican Election Clerk vs. Trump Die-Hards in a World of Lies’**\
 `Cindy Elgan has overseen elections in rural Nevada without incident for 20 years, but now even her neighbors wonder if she’s part of “the deep state cabal.”`\
 https://nytimes.com/2024/07/14/podcasts/the-daily/esmeralda-republican-election-clerk.html
-
-**Something Big Just Happened in Kenya**\
-`The protests and political action of young Kenyans in recent weeks marks a seismic shift for the country.`\
-https://nytimes.com/2024/07/14/opinion/kenya-protests-politics.html
 
