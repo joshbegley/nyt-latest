@@ -1,3 +1,7 @@
+**Catherine, Princess of Wales, Plans to Attend Wimbledon Men’s Final**\
+`The princess has stepped back from the public eye since her cancer diagnosis earlier this year.`\
+https://nytimes.com/2024/07/14/world/europe/kate-princess-of-wales-wimbledon.html
+
 **Malacia returns to individual training at Man Utd**\
 `Manchester United have confirmed that left-back Tyrell Malacia has returned to individual training after being sidelined for more than a year.`\
 https://nytimes.com/athletic/5636288/2024/07/14/tyrell-malacia-manchester-united-training/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/14/podcasts/the-daily/esmeralda-republican-election-
 **Something Big Just Happened in Kenya**\
 `The protests and political action of young Kenyans in recent weeks marks a seismic shift for the country.`\
 https://nytimes.com/2024/07/14/opinion/kenya-protests-politics.html
-
-**The Connections Companion No. 400, July 15, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/14/crosswords/connections-companion-400.html
 
