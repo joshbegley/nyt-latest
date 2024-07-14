@@ -1,3 +1,15 @@
+**Photo Appears to Capture Path of Bullet Used in Assassination Attempt**\
+`Michael Harrigan, a retired F.B.I. special agent, said the image captured by Doug Mills, a New York Times photographer, seems to show a bullet streaking past former President Donald J. Trump.`\
+https://nytimes.com/2024/07/14/us/politics/photo-appears-to-capture-path-of-bullet-used-in-assassination-attempt.html
+
+**Celtics' Baylor Scheierman puts his fingerprints on the game in summer league debut**\
+`Scheierman, who was a renowned quarterback, showed passing prowess. Meanwhile, Jaden Springer had confidence in his defense.`\
+https://nytimes.com/athletic/5636020/2024/07/14/celtics-baylor-scheierman-nba-summer-league/
+
+**Trump Wounded in Assassination Attempt as Hail of Bullets Erupts at Campaign Rally**\
+`Mr. Trump was declared “fine” by his campaign, and the gunman was killed by Secret Service snipers. The explosion of political violence further inflamed the campaign for the White House.`\
+https://nytimes.com/2024/07/14/us/politics/trump-wounded-in-assassination-attempt-as-hail-of-bullets-erupts-at-campaign-rally.html
+
 **What My Colleagues Saw at the Trump Rally Shooting**\
 `The shocking twist in the election is another chapter in the nation’s history of political violence.`\
 https://nytimes.com/2024/07/14/us/politics/what-my-colleagues-saw-at-the-trump-rally-shooting.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5634081/2024/07/14/euro2024-player-tournament-benit
 **Spain vs England: Euro 2024 final predictions and key talking points**\
 `Everything you need to know about the final of Euro 2024 between Spain and England`\
 https://nytimes.com/athletic/5635249/2024/07/14/spain-england-euro-2024-predictions/
-
-**Transfer window update: What you may have missed during the Euros and Copa America**\
-`With focus on the Euros and Copa America, you may have missed some transfer news over the past month - so here's a round-up...`\
-https://nytimes.com/athletic/5630870/2024/07/14/transfer-window-latest-updates/
-
-**England's Starboy: Why fans gave Saka a nickname he avoids using himself**\
-`The meaning behind the moniker for Arsenal and England's 22-year-old talent`\
-https://nytimes.com/athletic/5628752/2024/07/14/bukayo-saka-starboy-england/
-
-**Sunday's MLB game odds: Best bets to make before the All-Star Break**\
-`Projections for Sunday's MLB games with expert picks for best bets, pitcher props, home run trends and more.`\
-https://nytimes.com/athletic/5627365/2024/07/14/mlb-odds-predictions-best-bets-july-14/
 
