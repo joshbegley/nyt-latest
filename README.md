@@ -1,3 +1,7 @@
+**Photographer Who Captured the Rally Shooting: ‘I Just Kept Doing My Job’**\
+`Doug Mills, a Times photographer, was at the Trump rally in Butler, Pa., on Saturday when shots rang out. He described his experience to Times Insider.`\
+https://nytimes.com/2024/07/14/insider/doug-mills-trump-rally-shooting.html
+
 **Carlos Alcaraz is a Wimbledon champion - and Spain's Euro 2024 good-luck charm**\
 `Carlos Alcaraz makes tennis history at Wimbledon, as Spain chase the same dream at Euro 2024`\
 https://nytimes.com/athletic/5630953/2024/07/14/carlos-alcaraz-wimbledon-spain-football-european-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/investigators-b
 **How to Watch Shannen Doherty’s Most Notable Performances**\
 `The actress, who died on Saturday, was best known for “Beverly Hills, 90210,” but she wasn’t only a teen idol.`\
 https://nytimes.com/2024/07/14/arts/television/shannen-doherty-movies-tv-shows.html
-
-**Secret Service Under Scrutiny After Assassination Attempt on Trump**\
-`President Biden calls for a review of the protective agency’s actions after the attack, which left an audience member dead and two critically wounded.`\
-https://nytimes.com/2024/07/14/us/politics/secret-service-trump.html
 
