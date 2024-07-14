@@ -1,3 +1,7 @@
+**Enter, Luis Suarez: Takeaways as Uruguay clinches third spot at Copa America**\
+`All the key talking points from the third-place playoff at Copa America`\
+https://nytimes.com/athletic/5635912/2024/07/13/suarez-canada-uruguay-copa-america/
+
 **American Democracy Must Survive This Political Attack**\
 `It’s crucial that elected leaders of all ideologies stand up for the American political system.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-shooting-political-violence
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/13/us/politics/trump-rally-shooting-reactions.html
 **Trump, on Social Media, Describes Being ‘Shot With a Bullet’ in the Ear**\
 `The former president wrote that he “knew immediately that something was wrong in that I heard a whizzing sound, shots, and immediately felt the bullet ripping through the skin.”`\
 https://nytimes.com/2024/07/13/us/politics/trump-statement-shooting-truth-social.html
-
-**Social Media Platforms Deluged by Unsubstantiated Claims About Trump Rally**\
-`Disinformation experts immediately urged caution, warning people not to jump to conclusions.`\
-https://nytimes.com/2024/07/13/us/politics/trump-rally-disinformation-x-social-media.html
 
