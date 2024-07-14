@@ -1,3 +1,11 @@
+**Gunman Is Said to Have Acted Alone, but Motives Remain Unclear**\
+`The 20-year-old man from Pennsylvania who wounded former President Donald Trump left behind little social media presence or clues to what led him to open fire. Officials said he had no known history of mental illness.`\
+https://nytimes.com/2024/07/14/us/politics/trump-gunman-investigation.html
+
+**Guardians take Travis Bazzana at No. 1 in MLB Draft**\
+`The Oregon State slugger ranked second on The Athletic's Keith Law's top-100 prospect ranking for this draft.`\
+https://nytimes.com/athletic/5636587/2024/07/14/travis-bazzana-guardians-mlb-draft-2024/
+
 **After Shooting at Trump Rally, Officials Say R.N.C. Security Is ‘Ready To Go’**\
 `As 50,000 people began arriving in Milwaukee for the Republican National Convention, Secret Service officials and local leaders aimed to reassure the public about safety.`\
 https://nytimes.com/2024/07/14/us/milwaukee-rnc-security-trump.html
