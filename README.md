@@ -1,6 +1,6 @@
 **Photo Appears to Capture Path of Bullet Used in Assassination Attempt**\
 `Michael Harrigan, a retired F.B.I. special agent, said the image captured by Doug Mills, a New York Times photographer, seems to show a bullet streaking past former President Donald J. Trump.`\
-https://nytimes.com/2024/07/14/us/politics/photo-appears-to-capture-path-of-bullet-used-in-assassination-attempt.html
+https://nytimes.com/2024/07/14/us/politics/photo-path-trump-assassination.html
 
 **Celtics' Baylor Scheierman puts his fingerprints on the game in summer league debut**\
 `Scheierman, who was a renowned quarterback, showed passing prowess. Meanwhile, Jaden Springer had confidence in his defense.`\
