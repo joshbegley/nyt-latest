@@ -1,3 +1,7 @@
+**Lowetide: Oilers hidden gems that could impact the 2024-25 season**\
+`A list of players and prospects who could slide in and become effective plug-and-play options for the Oilers next season.`\
+https://nytimes.com/athletic/5635476/2024/07/14/oilers-2024-25-season-prospects-hidden-gems/
+
 **Conspiracy theories have been springing up on Truth Social.**\
 `By David Yaffe-Bellany`\
 https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/trump-shooting-truth-social-memes
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5636821/2024/07/14/river-ryan-dodgers-call-up/
 **Statue of Hiroshima Bombing Victim Stolen From Seattle Park**\
 `The statue depicted Sadako Sasaki, who was 12 when she died from cancer likely caused by the Hiroshima bombing. Community members believe a thief saw value in her bronze cast.`\
 https://nytimes.com/2024/07/14/us/sadako-sasaki-hiroshima-statue-stolen.html
-
-**Fantasy baseball notebook: Francisco Lindor's HOF resume, Paul Skenes' case as the top starter for 2025 and more**\
-`Derek VanRiper lays out Francisco Lindor's argument for the Hall of Fame, explains why Paul Skenes may be the top SP pick in '25 and more.`\
-https://nytimes.com/athletic/5635458/2024/07/14/fantasy-baseball-notebook-top-pick-2025-paul-skenes/
 
