@@ -1,3 +1,11 @@
+**Joshua Zirkzee to Manchester United: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate striker Zirkzee's move to Manchester United from Bologna in Italy's Serie A.`\
+https://nytimes.com/athletic/5581805/2024/07/14/joshua-zirkzee-manchester-united-transfer-rating/
+
+**Man Utd complete Zirkzee signing**\
+`Joshua Zirkzee has completed his move to Manchester United from Bologna.`\
+https://nytimes.com/athletic/5633259/2024/07/14/joshua-zirkzee-transfer-manchester-united/
+
 **Ohio Mother Killed Trying to Stop a Carjacking With Her Son Inside**\
 `The woman, 29, was struck by her own vehicle after the suspects began driving away, the police said.`\
 https://nytimes.com/2024/07/14/us/ohio-mother-killed-carjacking.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5636371/2024/07/14/donald-trump-shooting-team-usa-s
 **The Assassination Attempt Against Donald Trump**\
 `What we know about the shooting in Pennsylvania.`\
 https://nytimes.com/2024/07/14/briefing/donald-trump-assassination-attempt.html
-
-**Kambwala close to Villarreal transfer**\
-`Manchester United defender Willy Kambwala is close to joining Villarreal on a permanent transfer.`\
-https://nytimes.com/athletic/5634933/2024/07/14/willy-kambwala-villarreal-manchester-united/
-
-**Catherine, Princess of Wales, Attends Wimbledon Men’s Final**\
-`The princess has stepped back from the public eye since her cancer diagnosis earlier this year.`\
-https://nytimes.com/2024/07/14/world/europe/kate-princess-of-wales-wimbledon.html
 
