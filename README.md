@@ -20,7 +20,7 @@ https://nytimes.com/2024/07/13/us/politics/trump-rally-disinformation-x-social-m
 
 **Butler, a onetime industrial hub north of Pittsburgh, is a Republican stronghold.**\
 `By Jeanna Smialek and Robert Gebeloff`\
-https://nytimes.com/live/2024/07/13/us/biden-trump-election/butler-a-onetime-industrial-hub-north-of-pittsburgh-is-a-republican-stronghold
+https://nytimes.com/2024/07/13/us/politics/butler-a-onetime-industrial-hub-north-of-pittsburgh-is-a-republican-stronghold.html
 
 **How the Mets have prepared Christian Scott for a full big-league season**\
 `In the Mets' 7-3 win over Colorado, Scott didn’t make it through the fifth Saturday in as shaky a start as he’s had in the major leagues.`\
