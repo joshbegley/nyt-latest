@@ -1,3 +1,7 @@
+**Dodgers' May out for season after esophageal surgery**\
+`The surgery will prevent Dustin May from being a potential cog for a pitching staff in dire need of reinforcement.`\
+https://nytimes.com/athletic/5635893/2024/07/13/dustin-may-dodgers-esophageal-surgery/
+
 **Report From the Scene: ‘Get Down! Shots Fired!’**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/07/13/us/biden-trump-election/report-from-the-scene-get-down-shots-fired
