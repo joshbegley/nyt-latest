@@ -1,3 +1,7 @@
+**Shannen Doherty, ‘Beverly Hills, 90210’ Star, Dies at 53**\
+`Ms. Doherty, who also had roles in the TV series “Charmed” and the comedy-thriller “Heathers,” had continued to work after a breast cancer diagnosis.`\
+https://nytimes.com/2024/07/14/arts/television/shannen-doherty-dead.html
+
 **The Last Time a Former President Was Shot at While Seeking a Comeback**\
 `One hundred and twelve years ago, Theodore Roosevelt was campaigning to return to the presidency when a gunman opened fire. He gave his speech anyway with a bullet in his chest.`\
 https://nytimes.com/2024/07/14/us/politics/theodore-roosevelt-assassination-attempt.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5635701/2024/07/14/james-rodriguez-colombia-copa-am
 **The GOAT, the showman, the young stars: The Argentina team hoping for Copa America glory**\
 `Argentina have a remarkable record in recent years - here are the men who have been central to their success`\
 https://nytimes.com/athletic/5635453/2024/07/14/argentina-copa-america-messi-team-guide/
-
-**Fans of the Dead Come Alive in Las Vegas**\
-`Under the kaleidoscopic Sphere, a colorful crowd.`\
-https://nytimes.com/2024/07/14/style/fans-of-the-dead-come-alive-in-las-vegas.html
 
