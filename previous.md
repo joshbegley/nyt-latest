@@ -1,3 +1,7 @@
+**World leaders express outrage and concern.**\
+`Messages of support poured in from around the worl`\
+https://nytimes.com/live/2024/07/13/us/biden-trump-election/world-leaders-express-outrage-and-concern
+
 **Here’s What Is Known About the Suspected Gunman**\
 `Authorities identified the gunman as a 20-year-old man from Bethel Park, a town about an hour’s drive from the site of the shooting.`\
 https://nytimes.com/2024/07/14/us/politics/trump-gunman-thomas-crooks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5636031/2024/07/14/twins-dominant-bullpen-defeats-g
 **Toronto Raptors' defensive makeover begins with Jamal Shead at Las Vegas Summer League**\
 `Among Shead, Davion Mitchell and Ochai Agbaji, perhaps the Raptors can do something basic — stop the guy with the ball. `\
 https://nytimes.com/athletic/5636053/2024/07/14/toronto-raptors-defensive-makeover-jamal-shead-summer-league/
-
-**Photo Appears to Capture Path of Bullet Used in Assassination Attempt**\
-`Michael Harrigan, a retired F.B.I. special agent, said the image captured by Doug Mills, a New York Times photographer, seems to show a bullet streaking past former President Donald J. Trump.`\
-https://nytimes.com/2024/07/14/us/politics/photo-path-trump-assassination.html
 

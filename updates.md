@@ -1,3 +1,7 @@
+**World leaders express outrage and concern.**\
+`Messages of support poured in from around the worl`\
+https://nytimes.com/live/2024/07/13/us/biden-trump-election/world-leaders-express-outrage-and-concern
+
 **Here’s What Is Known About the Suspected Gunman**\
 `Authorities identified the gunman as a 20-year-old man from Bethel Park, a town about an hour’s drive from the site of the shooting.`\
 https://nytimes.com/2024/07/14/us/politics/trump-gunman-thomas-crooks.html
