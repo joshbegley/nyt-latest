@@ -1,3 +1,7 @@
+**For England, I feel everything**\
+`From three lions on the shirt to deep lines on the forehead, Alan Shearer is fizzing and fidgeting. Hunger, pride and desperation are back`\
+https://nytimes.com/athletic/5633856/2024/07/14/alan-shearer-england-feel-everything/
+
 **A Texas official recounts ‘an atmosphere of shock’ during the shooting.**\
 `By Eduardo Medina`\
 https://nytimes.com/live/2024/07/13/us/biden-trump-election/a-texas-official-recounts-an-atmosphere-of-shock-during-the-shooting
