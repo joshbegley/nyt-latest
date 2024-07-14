@@ -1,3 +1,7 @@
+**Assassination Attempt on Donald Trump**\
+`Hear how it unfolded, and what comes next.`\
+https://nytimes.com/2024/07/14/podcasts/headlines-donald-trump-assasination-attempt.html
+
 **Game, Set, Match: Carlos Alcaraz dispatches Novak Djokovic for Wimbledon title**\
 `How Carlos Alcaraz used his serve and ruthlessness to beat Novak Djokovic and win his second Wimbledon title`\
 https://nytimes.com/athletic/5636272/2024/07/14/carlos-alcaraz-novak-djokovic-wimbledon-final/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/14/arts/television/shannen-doherty-dead.html
 **The Last Time a Former President Was Shot at While Seeking a Comeback**\
 `One hundred and twelve years ago, Theodore Roosevelt was campaigning to return to the presidency when a gunman opened fire. He gave his speech anyway with a bullet in his chest.`\
 https://nytimes.com/2024/07/14/us/politics/theodore-roosevelt-assassination-attempt.html
-
-**Derrick White trades Cabo for Team USA and a chance to chase Olympic gold**\
-`For Derrick White, vacation can wait. A last-minute chance to chase an Olympic gold medal with Team USA was a no-brainer.`\
-https://nytimes.com/athletic/5636282/2024/07/14/derrick-white-team-usa-olympics-basketball/
 
