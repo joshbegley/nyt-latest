@@ -1,3 +1,7 @@
+**Ohio Mother Killed Trying to Stop a Carjacking With Her Son Inside**\
+`The woman, 29, was struck by her own vehicle after the suspects began driving away, the police said.`\
+https://nytimes.com/2024/07/14/us/ohio-mother-killed-carjacking.html
+
 **Forest targeting move for Milenkovic from Fiorentina**\
 `Nottingham Forest are working on a deal to sign Nikola Milenkovic from Fiorentina this summer.`\
 https://nytimes.com/athletic/5635700/2024/07/14/nottingham-forest-milenkovic-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/14/world/europe/kate-princess-of-wales-wimbledon.htm
 **Malacia returns to individual training at Man Utd**\
 `Manchester United have confirmed that left-back Tyrell Malacia has returned to individual training after being sidelined for more than a year.`\
 https://nytimes.com/athletic/5636288/2024/07/14/tyrell-malacia-manchester-united-training/
-
-**What makes Colombia's James Rodriguez so dangerous on set pieces?**\
-`James Rodriguez's set-piece magic could prove crucial against Argentina in the Copa America final`\
-https://nytimes.com/athletic/5635701/2024/07/14/james-rodriguez-colombia-copa-america-set-pieces/
 
