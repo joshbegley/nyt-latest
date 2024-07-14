@@ -18,7 +18,7 @@ https://nytimes.com/2024/07/14/briefing/donald-trump-assassination-attempt.html
 `Manchester United defender Willy Kambwala is close to joining Villarreal on a permanent transfer.`\
 https://nytimes.com/athletic/5634933/2024/07/14/willy-kambwala-villarreal-manchester-united/
 
-**Catherine, Princess of Wales, Plans to Attend Wimbledon Men’s Final**\
+**Catherine, Princess of Wales, Attends Wimbledon Men’s Final**\
 `The princess has stepped back from the public eye since her cancer diagnosis earlier this year.`\
 https://nytimes.com/2024/07/14/world/europe/kate-princess-of-wales-wimbledon.html
 

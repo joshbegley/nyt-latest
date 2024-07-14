@@ -1,3 +1,7 @@
+**Catherine, Princess of Wales, Attends Wimbledon Men’s Final**\
+`The princess has stepped back from the public eye since her cancer diagnosis earlier this year.`\
+https://nytimes.com/2024/07/14/world/europe/kate-princess-of-wales-wimbledon.html
+
 **The Last Time a Former President Was Shot at While Seeking a Comeback**\
 `One hundred and twelve years ago, Theodore Roosevelt was campaigning to return to the presidency when a gunman opened fire. He gave his speech anyway with a bullet in his chest.`\
 https://nytimes.com/2024/07/14/us/politics/theodore-roosevelt-assassination-attempt.html
