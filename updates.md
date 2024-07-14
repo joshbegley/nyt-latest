@@ -1,3 +1,19 @@
+**Migrants Find Joy and a Taste of Home in a Manhattan Church Kitchen**\
+`At a volunteer-run center, migrants come together across cultures and religions to share flavors from their homelands amid a polarizing crisis. But funding is running low.`\
+https://nytimes.com/2024/07/14/nyregion/nyc-migrant-kitchen.html
+
+**A Reporter Who Sees Meaning in the Stars**\
+`As a science reporter, Katrina Miller covers the cosmos, innovations in physics, space exploration and more.`\
+https://nytimes.com/2024/07/14/insider/space-reporting.html
+
+**‘The Evening Lights of New York City Were Beginning to Twinkle’**\
+`An unscheduled stop on the M72, an unusual signal for help and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/07/14/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/14/crosswords/spelling-bee-forum.html
+
 **World leaders express outrage and concern.**\
 `Messages of support poured in from around the worl`\
 https://nytimes.com/live/2024/07/13/us/biden-trump-election/world-leaders-express-outrage-and-concern
