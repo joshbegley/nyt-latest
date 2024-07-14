@@ -1,6 +1,14 @@
+**Trump Credits Chart for Saving His Life, His Former White House Doctor Says**\
+`The former president said he would have been struck “right in the head” if he hadn’t turned and pointed at an immigration chart, Dr. Ronny Jackson said in an interview.`\
+https://nytimes.com/2024/07/14/us/politics/trump-chart-rally.html
+
+**An Assassination Attempt That Seems Likely to Tear America Further Apart**\
+`The attack on former President Donald J. Trump comes at a time when the United States is already polarized along ideological and cultural lines and is split, it often seems, into two realities.`\
+https://nytimes.com/2024/07/14/us/politics/trump-shooting-violence-divisions.html
+
 **Biden Asks America to Unite and Vows Swift Inquiry of Attempted Assassination of Trump**\
 `In remarks from the White House on Sunday, President Biden called the attack “contrary to everything we stand for as a nation.’’`\
-https://nytimes.com/2024/07/14/us/politics/biden-unity-attempted-assassination-trump.html
+https://nytimes.com/2024/07/14/us/politics/biden-trump-unity.html
 
 **Assassination Attempt on a Hamas Leader Followed Surveillance of His Deputy**\
 `A compound belonging to the family of Rafa Salameh, a top Hamas deputy in southern Gaza, had been under surveillance for several weeks, Israeli officials said. The strike killed more than 90 people.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5635499/2024/07/14/blue-jackets-nhl-coach-candidate
 **New Prime Minister Is Named in Nepal After Government Collapses**\
 `K.P. Sharma Oli, who leads the nation’s largest communist party, is to take office on Monday.`\
 https://nytimes.com/2024/07/14/world/asia/nepal-prime-minister-government.html
-
-**Alabama lands 5-star OT Ty Haywood**\
-`As it stands now, Alabama’s 2025 class has 22 commitments: five composite five-star players, 10 top 100 players and 19 blue-chip prospects.`\
-https://nytimes.com/athletic/5636854/2024/07/14/alabama-ty-haywood-recruiting/
-
-**Man Killed at Trump Rally Shielded His Family From Shots**\
-`Relatives and friends described Corey Comperatore, 50, as a devoted father who served as a volunteer firefighter and loved to fish.`\
-https://nytimes.com/2024/07/14/us/corey-comperatore-trump-shooting-victim.html
 
