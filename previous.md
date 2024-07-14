@@ -1,3 +1,11 @@
+**Fantasy baseball notebook: Francisco Lindor's HOF resume, Paul Skenes' case as the top starter for 2025 and more**\
+`Derek VanRiper lays out Francisco Lindor's argument for the Hall of Fame, explains why Paul Skenes may be the top SP pick in '25 and more.`\
+https://nytimes.com/athletic/5635458/2024/07/14/fantasy-baseball-notebook-top-pick-2025-paul-skenes/
+
+**No immediate evidence that gunman had help, investigation shows.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2024/07/14/us/trump-shooting-election/no-immediate-evidence-that-gunman-had-help-investigation-shows
+
 **Shooting Plunges an Already Tumultuous Campaign Into Shock and Uncertainty**\
 `The assassination attempt of Donald J. Trump was the latest escalation of political violence and a reminder of the increasing fragility of peaceful democracy in America.`\
 https://nytimes.com/2024/07/14/us/politics/trump-shooting-campaign-politics-biden.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/14/dining/food-may-be-the-last-thing-on-your-mind.ht
 **At a Trump Rally, a Shocking Act of Violence**\
 `Responses to the assassination attempt against the former president. Also: Abortion and the Supreme Court; children’s online behavior; body image; driving apps.`\
 https://nytimes.com/2024/07/14/opinion/donald-trump-assassination-attempt.html
-
-**Joshua Zirkzee to Manchester United: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate striker Zirkzee's move to Manchester United from Bologna in Italy's Serie A.`\
-https://nytimes.com/athletic/5581805/2024/07/14/joshua-zirkzee-manchester-united-transfer-rating/
-
-**Man Utd complete Zirkzee signing**\
-`Joshua Zirkzee has completed his move to Manchester United from Bologna.`\
-https://nytimes.com/athletic/5633259/2024/07/14/joshua-zirkzee-transfer-manchester-united/
 

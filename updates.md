@@ -1,3 +1,11 @@
+**Fantasy baseball notebook: Francisco Lindor's HOF resume, Paul Skenes' case as the top starter for 2025 and more**\
+`Derek VanRiper lays out Francisco Lindor's argument for the Hall of Fame, explains why Paul Skenes may be the top SP pick in '25 and more.`\
+https://nytimes.com/athletic/5635458/2024/07/14/fantasy-baseball-notebook-top-pick-2025-paul-skenes/
+
+**No immediate evidence that gunman had help, investigation shows.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2024/07/14/us/trump-shooting-election/no-immediate-evidence-that-gunman-had-help-investigation-shows
+
 **Shooting Plunges an Already Tumultuous Campaign Into Shock and Uncertainty**\
 `The assassination attempt of Donald J. Trump was the latest escalation of political violence and a reminder of the increasing fragility of peaceful democracy in America.`\
 https://nytimes.com/2024/07/14/us/politics/trump-shooting-campaign-politics-biden.html
