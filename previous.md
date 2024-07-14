@@ -1,3 +1,7 @@
+**Forest targeting move for Milenkovic from Fiorentina**\
+`Nottingham Forest are working on a deal to sign Nikola Milenkovic from Fiorentina this summer.`\
+https://nytimes.com/athletic/5635700/2024/07/14/nottingham-forest-milenkovic-transfer/
+
 **Shannen Doherty, ‘Beverly Hills, 90210’ Star, Dies at 53**\
 `Ms. Doherty, who also had roles in the TV series “Charmed” and the comedy-thriller “Heathers,” had continued to work after a breast cancer diagnosis.`\
 https://nytimes.com/2024/07/14/arts/television/shannen-doherty-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5636288/2024/07/14/tyrell-malacia-manchester-united
 **What makes Colombia's James Rodriguez so dangerous on set pieces?**\
 `James Rodriguez's set-piece magic could prove crucial against Argentina in the Copa America final`\
 https://nytimes.com/athletic/5635701/2024/07/14/james-rodriguez-colombia-copa-america-set-pieces/
-
-**The GOAT, the showman, the young stars: The Argentina team hoping for Copa America glory**\
-`Argentina have a remarkable record in recent years - here are the men who have been central to their success`\
-https://nytimes.com/athletic/5635453/2024/07/14/argentina-copa-america-messi-team-guide/
 
