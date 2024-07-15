@@ -1,3 +1,7 @@
+**Who Is Usha Vance, the Wife of J.D. Vance?**\
+`The two met at Yale Law School, and Ms. Vance has helped him along in his political rise ever since — including now to Donald J. Trump’s vice-presidential pick.`\
+https://nytimes.com/2024/07/15/style/usha-vance-jd-vance.html
+
 **J.D. Vance Is an Oil Booster and Doubter of Human-Caused Climate Change**\
 `He once said society had a climate problem but changed his position sharply while seeking Donald Trump’s endorsement in his Senate race.`\
 https://nytimes.com/2024/07/15/climate/jd-vance-climate-change.html
