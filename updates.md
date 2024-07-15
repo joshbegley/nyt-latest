@@ -1,3 +1,7 @@
+**Cardinals draft JJ Wetherholt with No. 7 pick: 'They’re getting a baller'**\
+`St.`\
+https://nytimes.com/athletic/5637514/2024/07/14/cardinals-draft-jj-wetherholt/
+
 **China’s Economy Slows as Housing Troubles Squeeze Spending**\
 `After a strong start to the year, spending has weakened as a real estate downturn weighs on consumers and companies. Communist Party leaders are meeting this week to discuss what to do about it.`\
 https://nytimes.com/2024/07/14/business/chinas-gdp-q2.html
