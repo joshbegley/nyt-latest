@@ -1,3 +1,7 @@
+**Get to know Pirates first-round pick Konnor Griffin, who is speeding towards the big leagues**\
+`Griffin, the first high school player selected, went No. 9 overall to the Pirates. He stole 87 bases his senior season at Jackson Prep.`\
+https://nytimes.com/athletic/5610398/2024/07/14/konnor-griffin-mlb-draft-pirates/
+
 **How Will the R.N.C. Change After the Trump Assassination Attempt?**\
 `Trump campaign officials raised concerns that the messaging and tone of the speeches set to be delivered at the Republican National Convention this week might be overly aggressive.`\
 https://nytimes.com/2024/07/14/us/politics/trump-assassination-convention.html
