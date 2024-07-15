@@ -1,3 +1,7 @@
+**A major legal threat against Trump is dismissed. Here’s the latest.**\
+`By Alan Feuer`\
+https://nytimes.com/live/2024/07/15/us/trump-documents-case-dismissed/a-major-legal-threat-against-trump-is-dismissed-heres-the-latest
+
 **The judge in the case has made a series of unorthodox decisions.**\
 `By Alan Feuer`\
 https://nytimes.com/live/2024/07/15/us/trump-documents-case-dismissed/judge-aileen-cannon-decisions
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/15/us/elections/times-siena-poll-pennsyl
 **Cross-Tabs: July 2024 Times/Siena Poll of Registered Voters in Virginia**\
 `Results of a New York Times/Siena College poll conducted in Virginia among 661 registered voters from July 9 to 12, 2024.`\
 https://nytimes.com/interactive/2024/07/15/us/elections/times-siena-poll-virginia-registered-voter-crosstabs.html
-
-**Toplines: July 2024 Times/Siena Poll of Registered Voters in Virginia**\
-`Results of a New York Times/Siena College poll conducted in Virginia among 661 registered voters from July 9 to 12, 2024.`\
-https://nytimes.com/interactive/2024/07/15/us/elections/times-siena-poll-virginia-toplines.html
 
