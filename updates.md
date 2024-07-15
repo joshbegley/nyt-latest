@@ -1,3 +1,23 @@
+**Many turned to Vance’s book, ‘Hillbilly Elegy,’ after Trump was elected.**\
+`By Elizabeth A. Harris`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/many-turned-to-vances-book-hillbilly-elegy-after-trump-was-elected
+
+**As G.O.P. Convention Begins, ‘the Vibe Is Grim’ for Democrats**\
+`Worries about President Biden persist, and many see Donald Trump as electorally stronger after he survived an assassination attempt.`\
+https://nytimes.com/2024/07/15/us/politics/democrats-trump-biden.html
+
+**‘She Was a Rebel’: Co-Stars Remember Shannen Doherty**\
+`Tori Spelling, Rose McGowan, Alyssa Milano and fans of Ms. Doherty shared tributes to the actress, who died on Saturday.`\
+https://nytimes.com/2024/07/15/style/shannen-doherty-death-reactions.html
+
+**Terrell Davis 'humiliated' after incident with flight attendant**\
+`In a statement, United said the flight attendant has been removed from duty while the case is reviewed.`\
+https://nytimes.com/athletic/5639634/2024/07/15/terrell-davis-united-airlines-incident/
+
+**Fresno State coach stepping down over health concerns**\
+`Tim Skipper, Fresno State’s assistant head coach and linebackers coach, will serve as interim head coach for the 2024 season.`\
+https://nytimes.com/athletic/5639772/2024/07/15/fresno-state-coach-jeff-tedford-stepping-down-health-concerns/
+
 **Before a career in politics, J.D. Vance served in the Marine Corps.**\
 `By Thomas Gibbons-Neff`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/jd-vance-marine-corps
