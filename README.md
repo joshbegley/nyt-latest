@@ -1,3 +1,7 @@
+**The New Calculus for Democrats and Donors: Is Trump Unbeatable?**\
+`The shooting of Donald Trump has galvanized his campaign, prompted Elon Musk to endorse him and forced Democrats rethink plans to oust President Biden.`\
+https://nytimes.com/2024/07/15/business/dealbook/trump-assassination-election-democrats.html
+
 **Trump says he’s revised his campaign speech in wake of shooting.**\
 `Speaking to The New York Post and The Washington Examiner on Sunday, Mr. Trump said that he had thrown out a “tough speech” he had planned to make at the convention.`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/trump-shot-interviews
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/15/briefing/the-rnc-begins.html
 **Biden Calls For Calm, and a Defiant Trump Prepares for the R.N.C.**\
 `Plus, how cord blood banks mislead parents.`\
 https://nytimes.com/2024/07/15/podcasts/biden-trump-shooting-speech.html
-
-**The Attempted Assassination of Donald Trump**\
-`What we know about the shooting at a rally in Pennsylvania.`\
-https://nytimes.com/2024/07/15/podcasts/the-daily/trump-shooting.html
 
