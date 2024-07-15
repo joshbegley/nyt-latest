@@ -1,9 +1,13 @@
+**Homeland Security Chief Calls Trump Shooting a Security ‘Failure’**\
+`“An incident like this cannot happen,” Alejandro N. Mayorkas told CNN, as the Secret Service faces intense scrutiny over the assassination attempt.`\
+https://nytimes.com/2024/07/15/us/politics/mayorkas-trump-shooting-security.html
+
 **Vance Is All In on Immigrant-Bashing**\
 `His willingness to lie on this issue is probably why Trump picked him.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/krugman-vance-immigrant-bashing
 
 **How a friendship with Donald Trump Jr. helped land J.D. Vance a spot on the Republican ticket.**\
-`By Sharon LaFraniere`\
+`In no small part, Mr. Vance owes his quick ascent into the Trump orbit to his unlikely friendship and ideological kinship with the former president’s oldest son.`\
 https://nytimes.com/2024/07/15/us/politics/how-a-friendship-with-donald-trump-jr-helped-land-jd-vance-a-spot-on-the-republican-ticket.html
 
 **Terrell Davis, N.F.L. Hall of Famer, Says He Was Unjustly Detained on Flight**\
@@ -30,11 +34,7 @@ https://nytimes.com/2024/07/15/world/asia/south-korea-everything-bagel-seasoning
 `Attorney General Letitia James wants a monitor appointed to oversee the gun group’s accounts after millions in misspending.`\
 https://nytimes.com/2024/07/15/nyregion/nra-corruption-trial-ny.html
 
-**J.D. Vance Is Closely Aligned With Trump on Key Issues**\
-`Like Donald J. Trump, the Ohio senator has been skeptical of American intervention overseas and argues that raising tariffs will create new jobs.`\
-https://nytimes.com/2024/07/15/us/politics/jd-vance-abortion-immigration-issues.html
-
-**‘Hillbilly Elegy’ Gets a Blockbuster Sequel**\
-`Our critic traces J.D. Vance’s shift from bootstrap memoirist to vice-presidential candidate.`\
-https://nytimes.com/2024/07/15/books/review/jd-vance-vice-president-donald-trump-hillbilly-elegy.html
+**NASCAR Pocono takeaways: Ryan Blaney's continued improvement, NASCAR's crown jewel races**\
+`Ryan Blaney seems like a different driver, IDing NASCAR's true crown-jewel races and more from the weekend at Pocono.`\
+https://nytimes.com/athletic/5639363/2024/07/15/nascar-pocono-takeaways-ryan-blaney-crown-jewel/
 
