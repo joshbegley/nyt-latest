@@ -1,3 +1,15 @@
+**Before a career in politics, J.D. Vance served in the Marine Corps.**\
+`By Thomas Gibbons-Neff`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/jd-vance-marine-corps
+
+**Judge in Young Thug Trial Is Ordered Off the Case**\
+`Judge Ural Glanville, who had overseen the case for more than two years, must step aside for meeting with prosecutors and a key witness without the defense.`\
+https://nytimes.com/2024/07/15/arts/music/young-thug-trial-judge-removed.html
+
+**FIFA opens up bidding for Club World Cup media rights**\
+`FIFA has launched an invitation to tender for media rights covering the Americas, Asia, and the Middle East &amp; North Africa regions for its revamped Club World Cup, effectively ending its proposed broadcast rights deal with Apple.`\
+https://nytimes.com/athletic/5639471/2024/07/15/fifa-club-world-cup-media-rights/
+
 **‘She Was a Rebel’: Co-Stars Remember Shannen Doherty**\
 `Tori Spelling, Rose McGowan, Alyssa Milano and fans of Ms. Doherty shared tributes to the actress who died on Saturday.`\
 https://nytimes.com/2024/07/15/style/shannen-doherty-death-reactions.html
