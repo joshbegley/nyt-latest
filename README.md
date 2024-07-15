@@ -1,3 +1,11 @@
+**The judge in the case has made a series of unorthodox decisions.**\
+`By Alan Feuer`\
+https://nytimes.com/live/2024/07/15/us/trump-documents-case-dismissed/judge-aileen-cannon-decisions
+
+**Spanish Police Find Body Where British Teenager Disappeared**\
+`Jay Slater disappeared on the Spanish island of Tenerife last month. A missing persons group said Monday that a body had been found with his possessions.`\
+https://nytimes.com/2024/07/15/world/europe/jay-slater-missing-spain-remains.html
+
 **Trading Free-Market Ideals for Protectionism, G.O.P. Goes Full Trump**\
 `The Republican Party is rejecting elite economic ideas in a bid for blue-collar votes, abandoning long-held free-market principles in the process.`\
 https://nytimes.com/2024/07/15/business/economy/trump-economy-rnc-policy-free-market.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/07/15/us/elections/times-siena-poll-virgini
 **Toplines: July 2024 Times/Siena Poll of Registered Voters in Virginia**\
 `Results of a New York Times/Siena College poll conducted in Virginia among 661 registered voters from July 9 to 12, 2024.`\
 https://nytimes.com/interactive/2024/07/15/us/elections/times-siena-poll-virginia-toplines.html
-
-**Toplines: July 2024 Times/Siena Poll of Registered Voters in Pennsylvania**\
-`Results of a New York Times/Siena College poll conducted in Pennsylvania among 872 registered voters from July 9 to 11, 2024.`\
-https://nytimes.com/interactive/2024/07/15/us/elections/times-siena-poll-pennsylvania-toplines.html
-
-**Biden Facing Challenges in Two Must-Win States, Times/Siena Polls Find**\
-`The polls, taken before the assassination attempt on Donald J. Trump, found President Biden trailing Mr. Trump in Pennsylvania, a swing state critical to his re-election hopes, and slightly ahead in Virginia, a state he won by 10 points in 2020.`\
-https://nytimes.com/2024/07/15/us/politics/pennsylvania-virginia-polls-biden-trump.html
 
