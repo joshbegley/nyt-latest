@@ -1,3 +1,7 @@
+**Charlie Kirk, Long Accused of Antisemitism, is Set for a Prime-time Speech**\
+`The turnaround for the head of Turning Point USA tells the story of how the Republican Party has united around former President Donald Trump.`\
+https://nytimes.com/2024/07/15/us/politics/charlie-kirk-rnc-antisemitism.html
+
 **Judge Cannon’s Ruling Is Right-Wing Living Constitutionalism**\
 `Her philosophy makes the law subject to her own preferences, not the words on the page.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/documents-case-dismissed
@@ -10,7 +14,7 @@ https://nytimes.com/2024/07/15/us/politics/secret-service-trump-rally-shooting.h
 `He shared the 1982 Nobel Prize in medicine for breakthrough discoveries that led to drugs that treat inflammation, glaucoma and allergies.`\
 https://nytimes.com/2024/07/15/science/bengt-samuelsson-dead.html
 
-**Senator Marco Rubio appears to be out of the running as Trump’s V.P. pick.**\
+**Rubio and Burgum are out of the running as Trump’s V.P. picks.**\
 `By Michael C. Bender, Maggie Haberman and Jonathan Swan`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/senator-marco-rubio-appears-to-be-out-of-the-running-as-trumps-vp-pick
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/15/opinion/trump-political-violence-guns.html
 **How to Watch Biden’s NBC Interview**\
 `The interview, which will be broadcast unedited, was planned before the assassination attempt against former President Donald J. Trump.`\
 https://nytimes.com/2024/07/15/us/politics/biden-interivew-lester-holt-nbc-time.html
-
-**Kenyan Police Arrest Suspected Serial Killer of 42 Women**\
-`The police said that nine mutilated and dismembered bodies had been discovered, and that the suspect had confessed, only the latest violence against women in a rising tide of it in the East African nation.`\
-https://nytimes.com/2024/07/15/world/africa/kenya-serial-killer-women-arrest.html
 

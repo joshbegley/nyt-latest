@@ -1,3 +1,11 @@
+**Charlie Kirk, Long Accused of Antisemitism, is Set for a Prime-time Speech**\
+`The turnaround for the head of Turning Point USA tells the story of how the Republican Party has united around former President Donald Trump.`\
+https://nytimes.com/2024/07/15/us/politics/charlie-kirk-rnc-antisemitism.html
+
+**Rubio and Burgum are out of the running as Trump’s V.P. picks.**\
+`By Michael C. Bender, Maggie Haberman and Jonathan Swan`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/senator-marco-rubio-appears-to-be-out-of-the-running-as-trumps-vp-pick
+
 **Judge Cannon’s Ruling Is Right-Wing Living Constitutionalism**\
 `Her philosophy makes the law subject to her own preferences, not the words on the page.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/documents-case-dismissed
