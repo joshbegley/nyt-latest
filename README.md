@@ -1,40 +1,40 @@
-**Making Scaffolding Artful**\
-`A city program will offer eight designs that developers can use to make ubiquitous scaffolding more attractive.`\
-https://nytimes.com/2024/07/15/nyregion/scaffolding-art-city-canvas.html
+**Protesters Are Expected to March in Milwaukee as R.N.C. Opens**\
+`After the attempted assassination of Donald Trump, protest organizers said their rally would proceed as expected. Law enforcement authorities said they were prepared.`\
+https://nytimes.com/2024/07/15/us/protesters-milwaukee-rnc.html
 
-**What Parents Should Know About Cord Blood Banking**\
-`Millions of parents have paid to bank blood from their infants’ umbilical cords. But storage companies have misled them about the cells’ promise.`\
-https://nytimes.com/2024/07/15/health/cord-blood-banking.html
+**Trump Survived the Violence, and May Benefit From It**\
+`Six political effects of the attempted assassination.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-shooting-effects-tipsheet
 
-**Is This the Craziest Sneaker You Have Ever Seen?**\
-`On and Hellen Obiri are taking the running-shoe game to a whole new level. Yes, spray-on shoes are happening.`\
-https://nytimes.com/2024/07/15/style/on-running-shoes-cloudboom-strike-ls-spray-on.html
+**A Tax Break for Waiters Won’t Convince Working People to Vote for Trump**\
+`Eliminating the tipped minimum wage, and raising the minimum wage for all workers, would have a significantly greater impact on working people than a tax cut on tipped wages.`\
+https://nytimes.com/2024/07/15/opinion/trump-tax-break-waiters.html
 
-**Victoria Beckham Has Learned to Smile**\
-`At 50, and after some promising years for her business, the designer and former Spice Girl has softened up (a little).`\
-https://nytimes.com/2024/07/15/style/victoria-beckham-beauty-fashion-spice-girls.html
+**‘I’m Just Really Glad That Trump’s OK’**\
+`A sense of persecution has long been core to the former president’s message — all the more so after Pennsylvania. It resonates deeply with a group of supporters for whom Jan. 6, 2021, is never far away.`\
+https://nytimes.com/2024/07/15/podcasts/im-just-really-glad-that-trumps-ok.html
 
-**Burberry Replaces C.E.O. Amid ‘Disappointing’ Results**\
-`The British luxury group appointed Joshua Schulman to replace Jonathan Akeroyd, and said it expected earnings to suffer as an industry downturn deepens.`\
-https://nytimes.com/2024/07/15/business/burberry-ceo-departure.html
+**What Does It Mean to Dress Like a Zillennial?**\
+`Our fashion critic offers advice to a young-adult reader struggling to maintain a sense of style during a transitional period of life.`\
+https://nytimes.com/2024/07/15/style/gen-z-millennial-young-fashion.html
 
-**How Poor Sleep Affects Your Risk of Dementia**\
-`For older adults, too much or too little sleep has been tied to cognitive issues.`\
-https://nytimes.com/2024/07/15/well/mind/sleep-dementia.html
+**Democrats Need to Wake Up From Their ‘West Wing’ Fantasy**\
+`In the real world, noble ideals don’t guarantee a victory. `\
+https://nytimes.com/2024/07/15/opinion/democrats-west-wing.html
 
-**Promised Cures, Tainted Cells: How Cord Blood Banks Mislead Parents**\
-`Families pay thousands of dollars to store their children’s stem cells with the hope of a healthier future. But the cells are rarely useful, and sometimes contaminated.`\
-https://nytimes.com/2024/07/15/health/cord-blood-storage-contamination.html
+**After Eight Turbulent Years, A.C.L.U.’s Legal Director to Step Down**\
+`As the Supreme Court veered to the right, David D. Cole oversaw hundreds of lawsuits against the Trump administration and helped secure more wins than losses before the justices.`\
+https://nytimes.com/2024/07/15/us/aclu-david-cole.html
 
-**To Bring Back a College Football Video Game, It Took 11,000 Paydays**\
-`More than a decade after N.C.A.A. Football was shelved amid legal challenges, the rebranded franchise is back. For the first time, the real-life players are getting paid.`\
-https://nytimes.com/2024/07/15/arts/to-bring-back-a-college-football-video-game-it-took-11000-paydays.html
+**The Art Critic Who Changed Many Tastes, Including His Own**\
+`Peter Schjeldahl’s final book collects the essays and reviews he wrote in the years after a cancer diagnosis.`\
+https://nytimes.com/2024/07/15/books/review/peter-schjeldahl-art-of-dying.html
 
-**Of Demigods and Minotaurs: Greeking Out in Athens and Crete**\
-`On a family tour of Greece, the writer followed the small footsteps of some of ancient mythology’s biggest fans.`\
-https://nytimes.com/2024/07/15/travel/family-travel-athens-crete.html
+**Is It Too Late to Save the Southern Grasslands?**\
+`Southern grassland ecosystems, and nearly all the plants and animals they supported, are gone. There is hope of bringing some of them back to life.`\
+https://nytimes.com/2024/07/15/opinion/saving-southern-grasslands.html
 
-**Friend Remembers Victim of Trump Rally Shooting**\
-`Volunteer firefighters in Buffalo Township, Penn., held a memorial for their colleague, Corey Comperatore, who was fatally shot at the Trump rally.`\
-https://nytimes.com/video/us/elections/100000009571513/victims-trump-shooting.html
+**$850,000 Homes in California**\
+`A two-bedroom bungalow with a guest cottage in Oakland, a townhouse in Novato and a renovated midcentury home in Los Angeles.`\
+https://nytimes.com/2024/07/15/realestate/850000-homes-in-california.html
 
