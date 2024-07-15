@@ -1,3 +1,7 @@
+**Don’t Lose Sight of Project 2025. That’s the Real Trump.**\
+`Expanding the frontiers of political cronyism.`\
+https://nytimes.com/2024/07/15/opinion/trump-project-2025.html
+
 **Russia Sentences U.S. Journalist in Absentia for Ukraine War Comments**\
 `Masha A. Gessen was found guilty of spreading “false information” and sentenced to eight years in prison over remarks made in 2022 about the Russian military.`\
 https://nytimes.com/2024/07/15/world/europe/russia-masha-gessen-prison.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/15/us/politics/trump-gunman-witness-video.html
 **Biden Says It Was a Mistake to Say He Wanted to Put Trump in a ‘Bull’s-eye’**\
 `In an interview with NBC’s Lester Holt, President Biden said he regretted using the word but defended his descriptions of the former president as a threat to democracy.`\
 https://nytimes.com/2024/07/15/us/politics/biden-2024-election-trump.html
-
-**J.D. Vance, a Man Who Understands Trump’s Worldview**\
-`He has long spoken the language of the Trump base.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/jd-vance-trump-vp
 
