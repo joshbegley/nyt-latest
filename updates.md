@@ -1,3 +1,15 @@
+**Russia Sentences U.S. Journalist in Absentia for Ukraine War Comments**\
+`Masha A. Gessen was found guilty of spreading “false information” and sentenced to eight years in prison over remarks made in 2022 about the Russian military.`\
+https://nytimes.com/2024/07/15/world/europe/russia-masha-gessen-prison.html
+
+**Former Trump officials defend his immigration policies and vow to ‘take back the narrative.’**\
+`By Jazmine Ulloa and Hamed Aleaziz`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/former-trump-officials-defend-his-immigration-policies-and-vow-to-take-back-the-narrative
+
+**Trump Rally Gunman ‘Didn’t Want Attention’ in School, Classmates Said**\
+`Fellow students described the gunman, Thomas Crooks, as intelligent but solitary, someone who tried to avoid teasing by his classmates.`\
+https://nytimes.com/2024/07/15/us/trump-rally-shooting-crooks.html
+
 **J.D. Vance’s Opposition to U.S. Support for Ukraine: In His Own Words**\
 `“I don’t really care what happens to Ukraine one way or the other,” Senator Vance has said.`\
 https://nytimes.com/2024/07/15/world/europe/ukraine-jd-vance.html
