@@ -1,3 +1,7 @@
+**Trading Free-Market Ideals for Protectionism, G.O.P. Goes Full Trump**\
+`The Republican Party is rejecting elite economic ideas in a bid for blue-collar votes, abandoning long-held free-market principles in the process.`\
+https://nytimes.com/2024/07/15/business/economy/trump-economy-rnc-policy-free-market.html
+
 **Israel is privately discussing withdrawing from the Gaza-Egypt border, officials say.**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/07/15/world/israel-gaza-war-hamas/israel-is-privately-discussing-withdrawing-from-the-gaza-egypt-border-officials-say
