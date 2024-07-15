@@ -1,3 +1,7 @@
+**About Our Investigation Into Cord Blood Banks**\
+`Some families pay thousands of dollars to store their children’s stem cells with the hope of a healthier future for them. But Sarah Kliff, an investigative health care reporter for The New York Times, explains that the cells are rarely useful and are sometimes contaminated.`\
+https://nytimes.com/video/health/100000009563946/about-our-investigation-into-cord-blood-banks.html
+
 **Fires in Southern California Burn 20,000 Acres and Force Evacuations**\
 `In Kern and San Luis Obispo counties, multiple wildfires have forced over 1,000 evacuations and briefly shut down Interstate 5 on Sunday night.`\
 https://nytimes.com/2024/07/15/us/california-fires-evacuation-heat-wave.html
