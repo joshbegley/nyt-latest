@@ -1,3 +1,15 @@
+**Trump’s Republican Convention Is Suddenly Anyone’s Guess**\
+`The former president’s nomination speech may well be the most-watched address in a generation.`\
+https://nytimes.com/2024/07/15/opinion/trump-republican-convention.html
+
+**What’s on TV This Week: Olympic Specials and ‘Big Brother’**\
+`ABC and CNN gear up for the Games. CBS airs the season premiere of the reality competition show.`\
+https://nytimes.com/2024/07/15/arts/television/whats-on-tv-this-week.html
+
+**11 Black Men on What Democrats and Republicans Get Wrong About Their Lives**\
+`The group discusses the former president, the 2024 election, race and more.`\
+https://nytimes.com/interactive/2024/07/15/opinion/focus-group-black-men-trump-voters.html
+
 **With Rivals Restricted, Kagame Looks Set for Another Term in Rwanda**\
 `The Central African nation is voting on a potential fourth term for President Paul Kagame. Opposition figures say they have been threatened and arbitrarily detained.`\
 https://nytimes.com/2024/07/15/world/africa/rwanda-election-kagame.html
