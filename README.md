@@ -1,3 +1,11 @@
+**‘Morning Joe’ Is Pre-empted for Breaking News Coverage**\
+`The change immediately led to questions about whether NBC was blocking the program, which has been loyal to President Biden, for political considerations.`\
+https://nytimes.com/2024/07/15/business/media/morning-joe-msnbc-nbc-biden-trump.html
+
+**Trump said he will reveal his running mate today as the convention begins.**\
+`The former president confirmed to Fox News that he would announce his selection on the first day of the Republican convention.`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/trump-vp-running-mate-rnc
+
 **When Even an Assassination Attempt Becomes a Concert Tee**\
 `Hours after the attempt on Donald Trump’s life, the merch arrived.`\
 https://nytimes.com/2024/07/15/style/trump-shooting-image-t-shirts.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/15/us/trump-documents-case-dismissed/a-major-le
 **Judge Cannon’s Unusual Ruling Is Latest in a Series**\
 `Judge Cannon has shown a willingness to grant a serious audience to some of the former president’s most far-fetched defense claims.`\
 https://nytimes.com/2024/07/15/us/politics/judge-aileen-cannon-decisions.html
-
-**Spanish Police Find Body Where British Teenager Disappeared**\
-`Jay Slater disappeared on the Spanish island of Tenerife last month. A missing persons group said Monday that a body had been found with his possessions.`\
-https://nytimes.com/2024/07/15/world/europe/jay-slater-missing-spain-remains.html
-
-**Trading Free-Market Ideals for Protectionism, G.O.P. Goes Full Trump**\
-`The Republican Party is rejecting elite economic ideas in a bid for blue-collar votes, abandoning long-held free-market principles in the process.`\
-https://nytimes.com/2024/07/15/business/economy/trump-economy-rnc-policy-free-market.html
 
