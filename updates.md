@@ -1,3 +1,7 @@
+**Ryan Reynolds and Hugh Jackman on the Perks and Pitfalls of Playing Superheroes**\
+`The two friends have learned a lot about being the stewards of major pop-culture characters, an education that led them to “Deadpool & Wolverine.”`\
+https://nytimes.com/2024/07/15/movies/ryan-reynolds-hugh-jackman-deadpool-wolverine.html
+
 **Trump says he’s revised his campaign speech in the wake of the shooting.**\
 `Speaking to The New York Post and The Washington Examiner on Sunday, Mr. Trump said that he had thrown out a “tough speech” he had planned to make at the convention.`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/trump-shot-interviews
