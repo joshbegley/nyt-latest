@@ -1,3 +1,7 @@
+**Drop your questions here for the fantasy baseball mailbag**\
+`Dane Martinez is here to help you sort through all your fantasy baseball questions and concerns. Drop your questions here!`\
+https://nytimes.com/athletic/5639784/2024/07/15/drop-your-questions-here-for-the-fantasy-baseball-mailbag-10/
+
 **Israel in Talks Over Withdrawing From Egypt-Gaza Border, Officials Say**\
 `The discussions between Israeli and Egyptian officials comes amid diplomatic activity on several continents over a cease-fire deal and postwar plans for the territory.`\
 https://nytimes.com/2024/07/15/world/middleeast/israel-egypt-gaza-border.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5639634/2024/07/15/terrell-davis-united-airlines-in
 **Dismissal Brings New Scrutiny to Judge With a History of Unorthodox Decisions**\
 `Judge Aileen Cannon’s rulings in the documents case had fueled questions about favoritism and legal acumen even before she threw out the charges that Donald Trump had mishandled classified documents.`\
 https://nytimes.com/2024/07/15/us/politics/judge-aileen-cannon-trump-documents-case.html
-
-**The Gunshots Rang Out. Then the Conspiracy Theories Erupted Online.**\
-`Claims that President Biden and his allies ordered the attack on Donald J. Trump, or that Mr. Trump staged the attack, started quickly and spread fast across social media.`\
-https://nytimes.com/2024/07/15/technology/trump-shooting-conspiracy-theories.html
 

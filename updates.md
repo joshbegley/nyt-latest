@@ -1,3 +1,7 @@
+**Drop your questions here for the fantasy baseball mailbag**\
+`Dane Martinez is here to help you sort through all your fantasy baseball questions and concerns. Drop your questions here!`\
+https://nytimes.com/athletic/5639784/2024/07/15/drop-your-questions-here-for-the-fantasy-baseball-mailbag-10/
+
 **Israel in Talks Over Withdrawing From Egypt-Gaza Border, Officials Say**\
 `The discussions between Israeli and Egyptian officials comes amid diplomatic activity on several continents over a cease-fire deal and postwar plans for the territory.`\
 https://nytimes.com/2024/07/15/world/middleeast/israel-egypt-gaza-border.html
