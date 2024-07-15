@@ -1,3 +1,15 @@
+**‘Kite Man’ Is a Fun, Irreverent ‘Harley Quinn’ Spinoff**\
+`Like “Harley,” the series is set among Gotham’s villains and goons, with a similarly lewd and rowdy vibe.`\
+https://nytimes.com/2024/07/15/arts/television/kite-man-harley-quinn.html
+
+**Giroud officially announces retirement from international football**\
+`France&#8217;s all-time leading scorer, Olivier Giroud, has officially announced his retirement from international football.`\
+https://nytimes.com/athletic/5639854/2024/07/15/olivier-giroud-france-retire/
+
+**What is Unrivaled? A new league that promises high pay and big stars**\
+`Who's the latest star player to sign with the league that will be played in the WNBA offseason?`\
+https://nytimes.com/athletic/5639682/2024/07/15/unrivaled-kelsey-plum-wnba-league/
+
 **Tuesday Briefing: Donald Trump’s Running Mate**\
 `Plus, a judge dismisses a criminal case against Trump.`\
 https://nytimes.com/2024/07/15/briefing/trump-vice-president-trial-vance.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5639519/2024/07/15/sf-giatns-week-in-review-blake-s
 **Few Lawmakers Called for Tougher Gun Laws After Trump Shooting**\
 `Unlike after many mass shootings, there has been no concerted outcry from elected officials to implement stricter gun safety measures.`\
 https://nytimes.com/2024/07/15/us/politics/gun-laws-trump-shooting.html
-
-**Secret Service Faces Questions About Leaving Building Outside Its Security Zone**\
-`Overlapping investigations will focus on the decisions the protection agency made before and immediately after bullets nearly felled former President Trump on Saturday.`\
-https://nytimes.com/2024/07/15/us/politics/secret-service-security-roof-trump-shooting.html
-
-**In Milwaukee, Black Voters Struggle to Find a Home With Either Party**\
-`We spoke to them about why they feel like their votes, while important, don’t seem to translate into the type of change they want to see in their daily lives.`\
-https://nytimes.com/interactive/2024/07/15/us/elections/milwaukee-black-voters.html
-
-**Many turned to Vance’s book, ‘Hillbilly Elegy,’ after Trump was elected.**\
-`By Elizabeth A. Harris`\
-https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/many-turned-to-vances-book-hillbilly-elegy-after-trump-was-elected
 
