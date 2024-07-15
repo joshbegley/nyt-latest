@@ -1,3 +1,11 @@
+**At the Republican National Convention, Climate Change Isn’t a Problem**\
+`As the event opens with a focus on energy, former President Trump and other leaders are calling for more oil, gas and coal development.`\
+https://nytimes.com/2024/07/15/climate/republicans-climate-change-fossil-fuels.html
+
+**Judge Dismisses Classified Documents Case Against Trump**\
+`Judge Aileen Cannon ruled that the entire case should be thrown out because the appointment of the special counsel who brought the case, Jack Smith, had violated the Constitution. Her decision is sure to be appealed.`\
+https://nytimes.com/2024/07/15/us/politics/trump-document-case-dismissed.html
+
 **Accepting Autism: A Sibling’s Perspective**\
 `We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Leela Uppaluri, age 16.`\
 https://nytimes.com/2024/07/15/learning/accepting-autism-a-siblings-perspective.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/trump-shot-interview
 **Ukraine Battles to Contain Russian Advances Across the Front**\
 `Russian forces appear to have captured Urozhaine, a southern village taken back by Ukraine last summer. In the east, they are closing in on a key supply road.`\
 https://nytimes.com/2024/07/15/world/europe/ukraine-war-russia-advances.html
-
-**‘You Think, So You Can Dance?’ Science Is on It.**\
-`The emerging field of dance neuroscience is finding that dance, with its multifaceted demands, engages the mind as intensively as the body.`\
-https://nytimes.com/2024/07/15/arts/dance/dance-neuroscience-body-brain-behavior.html
-
-**The meeting will come as talks about Gaza’s postwar governance take on greater urgency.**\
-`By Adam Rasgon and Vivian Wang`\
-https://nytimes.com/live/2024/07/15/world/israel-gaza-war-hamas/hamas-fatah-gaza
 
