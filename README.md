@@ -1,3 +1,7 @@
+**Spain's Euro 2024 success built around Basque core of Oyarzabal, Williams and Merino**\
+`Goals from Mikel Oyarzabal and Nico Williams a reminder that there's plenty of life in Spain outside Real Madrid and Barcelona`\
+https://nytimes.com/athletic/5636758/2024/07/14/spain-basque-euro-2024-williams-merino-oyarzabal/
+
 **Get to know Pirates first-round pick Konnor Griffin, who is speeding towards the big leagues**\
 `Griffin, the first high school player selected, went No. 9 overall to the Pirates. He stole 87 bases his senior season at Jackson Prep.`\
 https://nytimes.com/athletic/5610398/2024/07/14/konnor-griffin-mlb-draft-pirates/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5637296/2024/07/14/copa-america-final-fans-tickets/
 **Gunman Is Said to Have Acted Alone, but Motives Remain Unclear**\
 `The 20-year-old man from Pennsylvania who wounded former President Donald Trump left behind little social media presence or clues to what led him to open fire. Officials said he had no known history of mental illness.`\
 https://nytimes.com/2024/07/14/us/politics/trump-gunman-investigation.html
-
-**Guardians take Travis Bazzana at No. 1 in MLB Draft**\
-`The Oregon State slugger ranked second on The Athletic's Keith Law's top-100 prospect ranking for this draft.`\
-https://nytimes.com/athletic/5636587/2024/07/14/travis-bazzana-guardians-mlb-draft-2024/
 
