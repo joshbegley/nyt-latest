@@ -1,3 +1,7 @@
+**China’s Economy Slows as Housing Troubles Squeeze Spending**\
+`After a strong start to the year, spending has weakened as a real estate downturn weighs on consumers and companies. Communist Party leaders are meeting this week to discuss what to do about it.`\
+https://nytimes.com/2024/07/14/business/chinas-gdp-q2.html
+
 **‘House of the Dragon’ Season 2, Episode 5 Recap: The Eye Has It**\
 `Prince Aemond makes a move — another move, that is, after the one where he blasted his own brother with dragonfire.`\
 https://nytimes.com/2024/07/14/arts/television/house-of-the-dragon-recap-episode-5.html
