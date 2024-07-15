@@ -1,3 +1,7 @@
+**A video shows people warning law enforcement about the gunman minutes before he fired at Trump.**\
+`By David Botti, Haley Willis and Malachy Browne`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/a-video-shows-people-warning-law-enforcement-about-the-gunman-minutes-before-he-fired-at-trump
+
 **Who Is Gabbriette? Meet the Model ‘Brat.’**\
 `Having spent her career on the cool-girl fringes, the model rocketed to mainstream fame with a high-profile engagement and a mention from Charli XCX.`\
 https://nytimes.com/2024/07/15/style/gabbriette-bechtel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/15/opinion/trump-assassination-attempts-history.html
 **Harris Outdoes Biden in 2 State Polls but Has Her Own Weaknesses**\
 `The polls in Pennsylvania and Virginia were conducted before the Trump rally shooting.`\
 https://nytimes.com/2024/07/15/upshot/kamala-harris-biden-poll.html
-
-**Gambia Votes to Keep Ban on Female Genital Cutting, in Dramatic Reversal**\
-`Lawmakers in the West African country had supported overturning the prohibition, but changed course on Monday after a vociferous campaign led by women.`\
-https://nytimes.com/2024/07/15/world/africa/gambia-ban-female-genital-cutting.html
 
