@@ -1,3 +1,11 @@
+**Former Trump officials defend his immigration policies and vow to ‘take back the narrative.’**\
+`By Jazmine Ulloa and Hamed Aleaziz`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/former-trump-officials-defend-his-immigration-policies-and-vow-to-take-back-the-narrative
+
+**Trump Rally Gunman ‘Didn’t Want Attention’ in School, Classmates Said**\
+`Fellow students described the gunman, Thomas Crooks, as intelligent but solitary, someone who tried to avoid teasing by his classmates.`\
+https://nytimes.com/2024/07/15/us/trump-rally-shooting-crooks.html
+
 **J.D. Vance’s Opposition to U.S. Support for Ukraine: In His Own Words**\
 `“I don’t really care what happens to Ukraine one way or the other,” Senator Vance has said.`\
 https://nytimes.com/2024/07/15/world/europe/ukraine-jd-vance.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/jd-vance-trump-vp
 **Man Dies After Rescuing His 2 Children in Mississippi River**\
 `The authorities found the body of a 41-year-old Minnesota man who had disappeared two days earlier after saving his son and stepdaughter from the swift-moving river.`\
 https://nytimes.com/2024/07/15/us/mississippi-river-missing-man-dead.html
-
-**J.D. Vance is an economic populist skeptical of large corporations.**\
-`By Andrew Duehren`\
-https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/jd-vance-is-an-economic-populist-skeptical-of-large-corporations
-
-**‘This Is the Pick of a Very Confident Presidential Nominee’: Four Columnists Size Up J.D. Vance**\
-`What choosing the Ohio senator as running mate tells us about Trump.`\
-https://nytimes.com/2024/07/15/opinion/jd-vance-donald-trump.html
 

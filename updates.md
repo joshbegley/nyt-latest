@@ -1,3 +1,11 @@
+**J.D. Vance’s Opposition to U.S. Support for Ukraine: In His Own Words**\
+`“I don’t really care what happens to Ukraine one way or the other,” Senator Vance has said.`\
+https://nytimes.com/2024/07/15/world/europe/ukraine-jd-vance.html
+
+**Kamala Harris Is Ready to Debate J.D. Vance, Biden Campaign Says**\
+`The vice president also offered her congratulations to the Ohio senator, Donald Trump’s running mate pick.`\
+https://nytimes.com/2024/07/15/us/politics/kamala-harris-jd-vance-debate.html
+
 **Robert F. Kennedy Jr. Meets With Trump at the R.N.C.**\
 `The political rivals met just hours before Republicans formally named Donald J. Trump their presidential nominee, and as Mr. Kennedy was set to receive Secret Service protection in the wake of the assassination attempt on Mr. Trump.`\
 https://nytimes.com/2024/07/15/us/politics/rfk-jr-trump-rnc.html

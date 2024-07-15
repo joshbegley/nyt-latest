@@ -1,3 +1,11 @@
+**J.D. Vance’s Opposition to U.S. Support for Ukraine: In His Own Words**\
+`“I don’t really care what happens to Ukraine one way or the other,” Senator Vance has said.`\
+https://nytimes.com/2024/07/15/world/europe/ukraine-jd-vance.html
+
+**Kamala Harris Is Ready to Debate J.D. Vance, Biden Campaign Says**\
+`The vice president also offered her congratulations to the Ohio senator, Donald Trump’s running mate pick.`\
+https://nytimes.com/2024/07/15/us/politics/kamala-harris-jd-vance-debate.html
+
 **Robert F. Kennedy Jr. Meets With Trump at the R.N.C.**\
 `The political rivals met just hours before Republicans formally named Donald J. Trump their presidential nominee, and as Mr. Kennedy was set to receive Secret Service protection in the wake of the assassination attempt on Mr. Trump.`\
 https://nytimes.com/2024/07/15/us/politics/rfk-jr-trump-rnc.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/jd-vance-is-an-econo
 **‘This Is the Pick of a Very Confident Presidential Nominee’: Four Columnists Size Up J.D. Vance**\
 `What choosing the Ohio senator as running mate tells us about Trump.`\
 https://nytimes.com/2024/07/15/opinion/jd-vance-donald-trump.html
-
-**Biden Calls J.D. Vance a Trump ‘Clone’ as Democrats Label Him an Extremist**\
-`Democrats quickly went on the attack against the newly anointed Republican vice-presidential nominee, calling out what they called his “extreme MAGA agenda.”`\
-https://nytimes.com/2024/07/15/us/politics/democrats-jd-vance.html
-
-**What is the appointments clause of the Constitution?**\
-`By Tim Balk`\
-https://nytimes.com/live/2024/07/15/us/trump-documents-case-dismissed/appointments-clause-constitution-trump
 
