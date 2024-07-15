@@ -31,7 +31,7 @@ https://nytimes.com/2024/07/15/movies/ryan-reynolds-hugh-jackman-deadpool-wolver
 https://nytimes.com/2024/07/15/us/california-today-will-soon-have-a-different-look.html
 
 **The New Calculus for Democrats and Donors: Is Trump Unbeatable?**\
-`The shooting of Donald Trump has galvanized his campaign, prompted Elon Musk to endorse him and forced Democrats rethink plans to oust President Biden.`\
+`The shooting of Donald Trump has galvanized his campaign, prompted Elon Musk to endorse him and forced Democrats to rethink plans to oust President Biden.`\
 https://nytimes.com/2024/07/15/business/dealbook/trump-assassination-election-democrats.html
 
 **Trump says he’s revised his campaign speech in the wake of the shooting.**\
