@@ -1,3 +1,7 @@
+**Blue Jays 'thrilled' to add college starter Trey Yesavage with 20th pick in MLB Draft**\
+`Yesavage got to the Blue Jays at pick 20 but was ranked 13th in this draft class by Keith Law. “We're really excited to add Trey."`\
+https://nytimes.com/athletic/5637661/2024/07/14/blue-jays-trey-yesavage-first-round/
+
 **Angels draft Tennessee infielder Christian Moore with eyes toward potential quick call-up**\
 `The Angels are trying to establish a younger core. Moore fits right into that plan.`\
 https://nytimes.com/athletic/5637669/2024/07/14/angels-draft-tennessee-christian-moore/

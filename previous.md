@@ -1,3 +1,7 @@
+**Blue Jays 'thrilled' to add college starter Trey Yesavage with 20th pick in MLB Draft**\
+`Yesavage got to the Blue Jays at pick 20 but was ranked 13th in this draft class by Keith Law. “We're really excited to add Trey."`\
+https://nytimes.com/athletic/5637661/2024/07/14/blue-jays-trey-yesavage-first-round/
+
 **Angels draft Tennessee infielder Christian Moore with eyes toward potential quick call-up**\
 `The Angels are trying to establish a younger core. Moore fits right into that plan.`\
 https://nytimes.com/athletic/5637669/2024/07/14/angels-draft-tennessee-christian-moore/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5636758/2024/07/14/spain-basque-euro-2024-williams-
 **Get to know Pirates first-round pick Konnor Griffin, who is speeding towards the big leagues**\
 `Griffin, the first high school player selected, went No. 9 overall to the Pirates. He stole 87 bases his senior season at Jackson Prep.`\
 https://nytimes.com/athletic/5610398/2024/07/14/konnor-griffin-mlb-draft-pirates/
-
-**How Will the R.N.C. Change After the Trump Assassination Attempt?**\
-`Trump campaign officials raised concerns that the messaging and tone of the speeches set to be delivered at the Republican National Convention this week might be overly aggressive.`\
-https://nytimes.com/2024/07/14/us/politics/trump-assassination-convention.html
 
