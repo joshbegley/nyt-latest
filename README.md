@@ -1,3 +1,7 @@
+**Judge in Young Thug Trial Is Ordered Off the Case**\
+`Judge Ural Glanville, who had overseen the case for more than two years, must step aside for meeting with prosecutors and a key witness without the defense.`\
+https://nytimes.com/2024/07/15/arts/music/young-thug-trial-judge-removed.html
+
 **J.D. Vance Was Not Always His Name. But It’s the One That Felt Closest to Home.**\
 `James David Vance has had a number of names in his life, a function of an upbringing marked by domestic instability.`\
 https://nytimes.com/2024/07/15/us/politics/jd-vance-name.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/15/us/politics/who-is-jd-vance-trump-vp.html
 **Who Is Usha Vance, the Wife of J.D. Vance?**\
 `The two met at Yale Law School, and Ms. Vance has helped him along in his political rise ever since — including now to Donald J. Trump’s vice-presidential pick.`\
 https://nytimes.com/2024/07/15/style/usha-vance-jd-vance.html
-
-**J.D. Vance Is an Oil Booster and Doubter of Human-Caused Climate Change**\
-`He once said society had a climate problem but changed his position sharply while seeking Donald Trump’s endorsement in his Senate race.`\
-https://nytimes.com/2024/07/15/climate/jd-vance-climate-change.html
 
