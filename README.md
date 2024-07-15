@@ -1,7 +1,3 @@
-**Political Violence and Guns in America**\
-`Readers discuss heated rhetoric, lax gun laws, a security failure and more. Also: Tips for college; seeking common ground in a dialogue.`\
-https://nytimes.com/2024/07/15/opinion/trump-political-violence-guns.html
-
 **How to Watch Biden’s NBC Interview**\
 `The interview, which will be broadcast unedited, was planned before the assassination attempt against former President Donald J. Trump.`\
 https://nytimes.com/2024/07/15/us/politics/biden-interivew-lester-holt-nbc-time.html

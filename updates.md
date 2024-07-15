@@ -1,3 +1,11 @@
+**Political Violence and Guns in America**\
+`Readers discuss heated rhetoric, lax gun laws, a security failure and more. Also: Tips for college; seeking common ground in a dialogue.`\
+https://nytimes.com/2024/07/15/opinion/trump-political-violence-guns.html
+
+**Kenyan Police Arrest Suspected Serial Killer of 42 Women**\
+`The police said that nine mutilated and dismembered bodies had been discovered, and that the suspect had confessed, only the latest violence against women in a rising tide of it in the East African nation.`\
+https://nytimes.com/2024/07/15/world/africa/kenya-serial-killer-women-arrest.html
+
 **Kenyan Police Arrest Suspected Serial Killer of 42 Women**\
 `The police said that nine mutilated and dismembered bodies had been discovered, and that the suspect had confessed, only the latest violence against women in a rising tide of it in the East African nation.`\
 https://nytimes.com/2024/07/15/world/africa/kenyan-police-arrest-suspected-serial-killer-of-42-women.html
