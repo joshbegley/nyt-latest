@@ -1,3 +1,7 @@
+**Angels draft Tennessee infielder Christian Moore with eyes toward potential quick call-up**\
+`The Angels are trying to establish a younger core. Moore fits right into that plan.`\
+https://nytimes.com/athletic/5637669/2024/07/14/angels-draft-tennessee-christian-moore/
+
 **Cardinals draft JJ Wetherholt with No. 7 pick: 'They’re getting a baller'**\
 `St.`\
 https://nytimes.com/athletic/5637514/2024/07/14/cardinals-draft-jj-wetherholt/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5610398/2024/07/14/konnor-griffin-mlb-draft-pirates
 **How Will the R.N.C. Change After the Trump Assassination Attempt?**\
 `Trump campaign officials raised concerns that the messaging and tone of the speeches set to be delivered at the Republican National Convention this week might be overly aggressive.`\
 https://nytimes.com/2024/07/14/us/politics/trump-assassination-convention.html
-
-**BlackRock removes an ad from 2022 that included images of the gunman.**\
-`By Michael M. Grynbaum and Maureen Farrell`\
-https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/blackrock-ad-trump-gunman
 

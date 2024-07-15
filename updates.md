@@ -1,3 +1,7 @@
+**Angels draft Tennessee infielder Christian Moore with eyes toward potential quick call-up**\
+`The Angels are trying to establish a younger core. Moore fits right into that plan.`\
+https://nytimes.com/athletic/5637669/2024/07/14/angels-draft-tennessee-christian-moore/
+
 **Cardinals draft JJ Wetherholt with No. 7 pick: 'They’re getting a baller'**\
 `St.`\
 https://nytimes.com/athletic/5637514/2024/07/14/cardinals-draft-jj-wetherholt/
