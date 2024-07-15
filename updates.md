@@ -1,3 +1,11 @@
+**Who Is Gabbriette? Meet the Model ‘Brat.’**\
+`Having spent her career on the cool-girl fringes, the model rocketed to mainstream fame with a high-profile engagement and a mention from Charli XCX.`\
+https://nytimes.com/2024/07/15/style/gabbriette-bechtel.html
+
+**Biden Policies Offer Benefits, but Little Political Payoff, in Pennsylvania**\
+`As inflation worries dominate, the Biden administration is struggling to take credit for infrastructure and industrial policy in the battleground state.`\
+https://nytimes.com/2024/07/15/us/politics/biden-economy-pennsylvania.html
+
 **‘Morning Joe’ Is Pre-empted for Breaking News Coverage**\
 `The change immediately led to questions about whether NBC was blocking the program, which has been loyal to President Biden, for political considerations.`\
 https://nytimes.com/2024/07/15/business/media/morning-joe-msnbc-nbc-biden-trump.html
