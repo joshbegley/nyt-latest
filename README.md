@@ -30,8 +30,8 @@ https://nytimes.com/2024/07/15/style/usha-vance-jd-vance.html
 `He once said society had a climate problem but changed his position sharply while seeking Donald Trump’s endorsement in his Senate race.`\
 https://nytimes.com/2024/07/15/climate/jd-vance-climate-change.html
 
-**The Senate newcomer and author of ‘Hillbilly Elegy’ was once an acerbic Trump critic.**\
-`A political newcomer and former Trump critic turned ally, Senator Vance is an ambitious ideologue who relishes the spotlight and has already shown he can energize donors.`\
+**In Vance, Trump Picks an Ambitious Ideologue and First Millennial**\
+`A political newcomer and former Trump critic turned ally, Senator Vance relishes the spotlight and has already shown he can energize donors.`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/trump-vp-pick
 
 **House Schedules Hearing on Trump Assassination Attempt as Inquiries Grow**\
