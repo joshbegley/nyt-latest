@@ -1,3 +1,15 @@
+**When Even an Assassination Attempt Becomes a Concert Tee**\
+`Hours after the attempt on Donald Trump’s Life, the merch arrived.`\
+https://nytimes.com/2024/07/15/style/trump-shooting-image-t-shirts.html
+
+**Do You Know These Movies Based on Shakespeare’s Plays?**\
+`Try this short quiz on modern films that drew their inspiration from classic works written for the stage hundreds of years ago.`\
+https://nytimes.com/interactive/2024/07/15/books/review/shakespeare-adaptations-quiz.html
+
+**A Motorcycle Museum, Elite Dinners and Jason Aldean: G.O.P. Donors Get Ready to Party**\
+`Political conventions are positioned as a reward of sorts for hard work — and the hard cash invested by contributors and fund-raisers.`\
+https://nytimes.com/2024/07/15/us/politics/trump-donors-rnc-milwaukee.html
+
 **Political Violence May Be Un-American, but It Is Not Uncommon**\
 `The assassination attempt against Trump is one on a long list of attacks.`\
 https://nytimes.com/2024/07/15/opinion/trump-assassination-attempts-history.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/15/world/europe/jay-slater-missing-spain-remains.htm
 **Trading Free-Market Ideals for Protectionism, G.O.P. Goes Full Trump**\
 `The Republican Party is rejecting elite economic ideas in a bid for blue-collar votes, abandoning long-held free-market principles in the process.`\
 https://nytimes.com/2024/07/15/business/economy/trump-economy-rnc-policy-free-market.html
-
-**Israel is privately discussing withdrawing from the Gaza-Egypt border, officials say.**\
-`By Patrick Kingsley`\
-https://nytimes.com/live/2024/07/15/world/israel-gaza-war-hamas/israel-is-privately-discussing-withdrawing-from-the-gaza-egypt-border-officials-say
-
-**8 Books for Better Sex**\
-`Sex educators, counselors and coaches recommend their favorites.`\
-https://nytimes.com/2024/07/15/well/books-sex-life.html
-
-**Cross-Tabs: July 2024 Times/Siena Poll of the Likely Electorate in Virginia**\
-`Results of a New York Times/Siena College poll conducted in Virginia among 661 likely voters from July 9 to 12, 2024.`\
-https://nytimes.com/interactive/2024/07/15/us/elections/times-siena-poll-virginia-likely-electorate-crosstabs.html
 
