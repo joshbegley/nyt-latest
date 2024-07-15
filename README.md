@@ -1,3 +1,7 @@
+**Read the Ruling That Dismisses the Documents Case Against Trump**\
+`Judge Aileen Cannon ruled that the classified documents case against former president Donald J. Trump should be thrown out because the appointment of the special counsel violated the Constitution.`\
+https://nytimes.com/interactive/2024/07/15/us/trump-documents.html
+
 **Trump Media Stock Jumps as Traders Bet on His Rising Political Fortunes**\
 `Shares of Donald J. Trump’s social media company surged more than 30 percent on the first day of trading after the assassination attempt on the former president.`\
 https://nytimes.com/2024/07/15/business/trump-media-stock.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/15/us/heat-wave-north-dakota-climate-change.html
 **Taylor Swift Breaks Her Own Record With a 12th Week at No. 1**\
 `Facing a tight battle with Zach Bryan, the pop superstar benefited from the release of three new versions of “The Tortured Poets Department” and shipments of CDs.`\
 https://nytimes.com/2024/07/15/arts/music/taylor-swift-zach-bryan-12-weeks-no-1.html
-
-**Ryan Reynolds and Hugh Jackman on the Perks and Pitfalls of Playing Superheroes**\
-`The two friends have learned a lot about being the stewards of major pop-culture characters, an education that led them to “Deadpool & Wolverine.”`\
-https://nytimes.com/2024/07/15/movies/ryan-reynolds-hugh-jackman-deadpool-wolverine.html
 
