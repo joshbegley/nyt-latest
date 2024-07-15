@@ -1,3 +1,11 @@
+**The Good Mood in Milwaukee**\
+`The way Republicans at the national convention see it, somehow, everything is going their way.`\
+https://nytimes.com/2024/07/15/us/politics/rnc-trump-vance-milwaukee.html
+
+**27 Facts About J.D. Vance**\
+`Mr. Vance spilled scores of details about his life in his coming-of-age memoir. We’ve collected the highlights.`\
+https://nytimes.com/2024/07/15/us/politics/27-facts-about-jd-vance.html
+
 **Anthony Davis' solid play for Team USA creates a tough question for Steve Kerr**\
 `Is Joel Embiid, a former NBA MVP, the right choice to start for Team USA? Right now, with Anthony Davis tearing it up, nothing is certain.`\
 https://nytimes.com/athletic/5639957/2024/07/15/anthony-davis-joel-embiid-steve-kerr-team-usa-olympics/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/15/us/politics/kamala-harris-jd-vance-debate.html
 **Robert F. Kennedy Jr. Meets With Trump at the R.N.C.**\
 `The political rivals met just hours before Republicans formally named Donald J. Trump their presidential nominee, and as Mr. Kennedy was set to receive Secret Service protection in the wake of the assassination attempt on Mr. Trump.`\
 https://nytimes.com/2024/07/15/us/politics/rfk-jr-trump-rnc.html
-
-**Donald Trump, Man of Destiny**\
-`He is a figure touched by the gods of fortune in a way that transcends the normal rules of politics.`\
-https://nytimes.com/2024/07/15/opinion/donald-trump-assassination-destiny.html
-
-**‘He’s Got a Gun!’: Witness Describes Watching Shooter Get Into Position**\
-`The man’s voice can be heard in a bystander video that has been repeatedly featured in news reports about the assassination attempt.`\
-https://nytimes.com/2024/07/15/us/politics/trump-gunman-witness-video.html
 
