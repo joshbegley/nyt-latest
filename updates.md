@@ -1,3 +1,7 @@
+**China’s Economy Slows Sharply as Housing Troubles Squeeze Spending**\
+`After a strong start to the year, spending has slumped as a real estate downturn weighs on consumers. Communist Party leaders are meeting this week to discuss what to do about it.`\
+https://nytimes.com/2024/07/14/business/chinas-gdp-q2.html
+
 **Biden Asks America to ‘Lower the Temperature’**\
 `President Biden’s speech, delivered from the Oval Office, came just a day after the attempted assassination of former President Donald J. Trump, and a day before the Republican National Convention was set to begin.`\
 https://nytimes.com/video/us/elections/100000009571368/biden-trump-unity.html
