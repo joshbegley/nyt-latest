@@ -3,7 +3,7 @@
 https://nytimes.com/2024/07/15/us/politics/biden-interivew-lester-holt-nbc-time.html
 
 **Kenyan Police Arrest Suspected Serial Killer of 42 Women**\
-`Police said that nine mutilated and dismembered bodies were discovered, and that the suspect confessed to killing 42 women, only the latest violence against women in a rising tide of it in the East African nation.`\
+`The police said that nine mutilated and dismembered bodies had been discovered, and that the suspect had confessed, only the latest violence against women in a rising tide of it in the East African nation.`\
 https://nytimes.com/2024/07/15/world/africa/kenyan-police-arrest-suspected-serial-killer-of-42-women.html
 
 **As Republicans hailed the decision, Democrats were mostly quiet.**\
