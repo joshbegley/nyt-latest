@@ -1,3 +1,11 @@
+**J.D. Vance, a Man Who Understands Trump’s Worldview**\
+`He has long spoken the language of the Trump base.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/jd-vance-trump-vp
+
+**Man Dies After Rescuing His 2 Children in Mississippi River**\
+`The authorities found the body of a 41-year-old Minnesota man who had disappeared two days earlier after saving his son and stepdaughter from the swift-moving river.`\
+https://nytimes.com/2024/07/15/us/mississippi-river-missing-man-dead.html
+
 **J.D. Vance is an economic populist skeptical of large corporations.**\
 `By Andrew Duehren`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/jd-vance-is-an-economic-populist-skeptical-of-large-corporations
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/15/us/politics/demolition-ranch-youtube-trump-shooti
 **WFAN taps Craig Carton to call 3 Yankees games in August**\
 `He'll be on during the series at home against the Texas Rangers from Aug. 9 - 11.`\
 https://nytimes.com/athletic/5639895/2024/07/15/craig-carton-yankees-wfan-rangers-series/
-
-**Kawakami: How the Warriors' moves have built a bridge to the next possible era**\
-`It's up to the Warriors to keep Stephen Curry convinced that there is hope and a plan here. The offseason moves probably have done that.`\
-https://nytimes.com/athletic/5637538/2024/07/15/warriors-offseason-moves-era-stephen-curry/
-
-**Trump Picked J.D. Vance as His Running Mate**\
-`Also, the Secret Service is under scrutiny. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2024/07/15/briefing/jd-vance-donald-trump-vp-pick-secret-service.html
 
