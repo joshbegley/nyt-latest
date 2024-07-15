@@ -18,10 +18,6 @@ https://nytimes.com/2024/07/15/us/politics/mayorkas-trump-shooting-security.html
 `His willingness to lie on this issue is probably why Trump picked him.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/krugman-vance-immigrant-bashing
 
-**Fresno State coach stepping down over health concerns**\
-`Tim Skipper, Fresno State’s assistant head coach and linebackers coach, will serve as interim head coach for the 2024 season.`\
-https://nytimes.com/athletic/5639772/2024/07/15/fresno-state-coach-jeff-tedford-stepping-down-health-concerns/
-
 **How a friendship with Donald Trump Jr. helped land J.D. Vance a spot on the Republican ticket.**\
 `In no small part, Mr. Vance owes his quick ascent into the Trump orbit to his unlikely friendship and ideological kinship with the former president’s oldest son.`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/how-a-friendship-with-donald-trump-jr-helped-land-jd-vance-a-spot-on-the-republican-ticket
@@ -37,4 +33,8 @@ https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/jd-vance-marine-corp
 **Judge in Young Thug Trial Is Ordered Off the Case**\
 `Judge Ural Glanville, who had overseen the case for more than two years, must step aside for meeting with prosecutors and a key witness without the defense.`\
 https://nytimes.com/2024/07/15/arts/music/young-thug-trial-judge-removed.html
+
+**FIFA opens up bidding for Club World Cup media rights**\
+`FIFA has launched an invitation to tender for media rights covering the Americas, Asia, and the Middle East &amp; North Africa regions for its revamped Club World Cup, effectively ending its proposed broadcast rights deal with Apple.`\
+https://nytimes.com/athletic/5639471/2024/07/15/fifa-club-world-cup-media-rights/
 
