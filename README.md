@@ -1,3 +1,7 @@
+**The R.N.C. Begins**\
+`The latest on the assassination attempt and presidential campaign — plus, an explanation of why childbirth has gotten so expensive.`\
+https://nytimes.com/2024/07/15/briefing/the-rnc-begins.html
+
 **Biden Calls For Calm, and a Defiant Trump Prepares for the R.N.C.**\
 `Plus, how cord blood banks mislead parents.`\
 https://nytimes.com/2024/07/15/podcasts/biden-trump-shooting-speech.html
