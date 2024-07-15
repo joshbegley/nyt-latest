@@ -1,3 +1,15 @@
+**Dismissal Brings New Scrutiny to Judge With a History of Unorthodox Decisions**\
+`Judge Aileen Cannon’s rulings in the documents case had fueled questions about favoritism and legal acumen even before she threw out the charges that Donald Trump had mishandled classified documents.`\
+https://nytimes.com/2024/07/15/us/politics/judge-aileen-cannon-trump-documents-case.html
+
+**The Gunshots Rang Out. Then the Conspiracy Theories Erupted Online.**\
+`Claims that President Biden and his allies ordered the attack on Donald J. Trump, or that Mr. Trump staged the attack, started quickly and spread fast across social media.`\
+https://nytimes.com/2024/07/15/technology/trump-shooting-conspiracy-theories.html
+
+**In These Thrillers, Everyone Has Secrets. Big Ones.**\
+`Our columnist on three riveting new reads.`\
+https://nytimes.com/2024/07/15/books/review/new-thrillers.html
+
 **Homeland Security Chief Calls Trump Shooting a Security ‘Failure’**\
 `“An incident like this cannot happen,” Alejandro N. Mayorkas told CNN, as the Secret Service faces intense scrutiny over the assassination attempt.`\
 https://nytimes.com/2024/07/15/us/politics/mayorkas-trump-shooting-security.html
@@ -22,19 +34,7 @@ https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/jd-vance-marine-corp
 `Judge Ural Glanville, who had overseen the case for more than two years, must step aside for meeting with prosecutors and a key witness without the defense.`\
 https://nytimes.com/2024/07/15/arts/music/young-thug-trial-judge-removed.html
 
-**J.D. Vance Was Not Always His Name. But It’s the One That Felt Closest to Home.**\
-`James David Vance has had a number of names in his life, a function of an upbringing marked by domestic instability.`\
-https://nytimes.com/2024/07/15/us/politics/jd-vance-name.html
-
-**Why Everything Bagel Seasoning Was Banned in South Korea**\
-`The seasoning is sold by Trader Joe’s, a brand whose popularity has skyrocketed in the region in recent years.`\
-https://nytimes.com/2024/07/15/world/asia/south-korea-everything-bagel-seasoning.html
-
-**Trial to Decide N.R.A.’s Financial Future Begins in Manhattan**\
-`Attorney General Letitia James wants a monitor appointed to oversee the gun group’s accounts after millions in misspending.`\
-https://nytimes.com/2024/07/15/nyregion/nra-corruption-trial-ny.html
-
-**NASCAR Pocono takeaways: Ryan Blaney's continued improvement, NASCAR's crown jewel races**\
-`Ryan Blaney seems like a different driver, IDing NASCAR's true crown-jewel races and more from the weekend at Pocono.`\
-https://nytimes.com/athletic/5639363/2024/07/15/nascar-pocono-takeaways-ryan-blaney-crown-jewel/
+**FIFA opens up bidding for Club World Cup media rights**\
+`FIFA has launched an invitation to tender for media rights covering the Americas, Asia, and the Middle East &amp; North Africa regions for its revamped Club World Cup, effectively ending its proposed broadcast rights deal with Apple.`\
+https://nytimes.com/athletic/5639471/2024/07/15/fifa-club-world-cup-media-rights/
 
