@@ -1,3 +1,7 @@
+**Biden Asks America to ‘Lower the Temperature’**\
+`President Biden’s speech, delivered from the Oval Office, came just a day after the attempted assassination of former President Donald J. Trump, and a day before the Republican National Convention was set to begin.`\
+https://nytimes.com/video/us/elections/100000009571368/biden-trump-unity.html
+
 **Blue Jays 'thrilled' to add college starter Trey Yesavage with 20th pick in MLB Draft**\
 `Yesavage got to the Blue Jays at pick 20 but was ranked 13th in this draft class by Keith Law. “We're really excited to add Trey."`\
 https://nytimes.com/athletic/5637661/2024/07/14/blue-jays-trey-yesavage-first-round/

@@ -1,3 +1,7 @@
+**Biden Asks America to ‘Lower the Temperature’**\
+`President Biden’s speech, delivered from the Oval Office, came just a day after the attempted assassination of former President Donald J. Trump, and a day before the Republican National Convention was set to begin.`\
+https://nytimes.com/video/us/elections/100000009571368/biden-trump-unity.html
+
 **Blue Jays 'thrilled' to add college starter Trey Yesavage with 20th pick in MLB Draft**\
 `Yesavage got to the Blue Jays at pick 20 but was ranked 13th in this draft class by Keith Law. “We're really excited to add Trey."`\
 https://nytimes.com/athletic/5637661/2024/07/14/blue-jays-trey-yesavage-first-round/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/14/us/politics/donald-trump-shooting-campaign-2024.h
 **Spain's Euro 2024 success built around Basque core of Oyarzabal, Williams and Merino**\
 `Goals from Mikel Oyarzabal and Nico Williams a reminder that there's plenty of life in Spain outside Real Madrid and Barcelona`\
 https://nytimes.com/athletic/5636758/2024/07/14/spain-basque-euro-2024-williams-merino-oyarzabal/
-
-**Get to know Pirates first-round pick Konnor Griffin, who is speeding towards the big leagues**\
-`Griffin, the first high school player selected, went No. 9 overall to the Pirates. He stole 87 bases his senior season at Jackson Prep.`\
-https://nytimes.com/athletic/5610398/2024/07/14/konnor-griffin-mlb-draft-pirates/
 
