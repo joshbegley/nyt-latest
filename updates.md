@@ -1,3 +1,7 @@
+**Two Hikers Die in Canyonlands National Park in 100-Degree Temperatures**\
+`A father and daughter were found dead in the park after they texted 911 that they ran out of water and were lost while hiking in triple-digit temperatures.`\
+https://nytimes.com/2024/07/15/us/canyonlands-hiking-deaths-utah.html
+
 **27 Facts About J.D. Vance, Trump’s Pick for V.P.**\
 `Mr. Vance spilled scores of details about his life in his coming-of-age memoir. We’ve collected the highlights.`\
 https://nytimes.com/2024/07/15/us/politics/27-facts-about-jd-vance.html

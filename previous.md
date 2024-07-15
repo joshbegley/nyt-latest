@@ -1,3 +1,7 @@
+**Two Hikers Die in Canyonlands National Park in 100-Degree Temperatures**\
+`A father and daughter were found dead in the park after they texted 911 that they ran out of water and were lost while hiking in triple-digit temperatures.`\
+https://nytimes.com/2024/07/15/us/canyonlands-hiking-deaths-utah.html
+
 **Investigators Unlock Gunman’s Phone in Search of Motive for Trump Shooting**\
 `The F.B.I. said it had gained access to the would-be assassin’s phone, but it was not immediately clear whether it had yielded clues.`\
 https://nytimes.com/2024/07/15/us/politics/trump-shooting-fbi-gunman-phone.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/15/us/trump-rally-shooting-crooks.html
 **J.D. Vance’s Opposition to U.S. Support for Ukraine: In His Own Words**\
 `“I don’t really care what happens to Ukraine one way or the other,” Senator Vance has said.`\
 https://nytimes.com/2024/07/15/world/europe/ukraine-jd-vance.html
-
-**Kamala Harris Is Ready to Debate J.D. Vance, Biden Campaign Says**\
-`The vice president also offered her congratulations to the Ohio senator, Donald Trump’s running mate pick.`\
-https://nytimes.com/2024/07/15/us/politics/kamala-harris-jd-vance-debate.html
 
