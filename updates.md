@@ -1,3 +1,7 @@
+**When Even an Assassination Attempt Becomes a Concert Tee**\
+`Hours after the attempt on Donald Trump’s life, the merch arrived.`\
+https://nytimes.com/2024/07/15/style/trump-shooting-image-t-shirts.html
+
 **Israel is privately discussing withdrawing from the Gaza-Egypt border, officials say.**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/07/15/world/israel-gaza-war-hamas/israel-is-privately-discussing-withdrawing-from-the-gaza-egypt-border-officials-say
