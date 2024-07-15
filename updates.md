@@ -1,3 +1,11 @@
+**At the Republican National Convention, Climate Change Isn’t a Problem**\
+`As the event opens with a focus on energy, former President Trump and other leaders are calling for more oil, gas and coal development.`\
+https://nytimes.com/2024/07/15/climate/republicans-climate-change-fossil-fuels.html
+
+**Judge Dismisses Classified Documents Case Against Trump**\
+`Judge Aileen Cannon ruled that the entire case should be thrown out because the appointment of the special counsel who brought the case, Jack Smith, had violated the Constitution. Her decision is sure to be appealed.`\
+https://nytimes.com/2024/07/15/us/politics/trump-document-case-dismissed.html
+
 **Accepting Autism: A Sibling’s Perspective**\
 `We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Leela Uppaluri, age 16.`\
 https://nytimes.com/2024/07/15/learning/accepting-autism-a-siblings-perspective.html
