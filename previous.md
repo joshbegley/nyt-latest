@@ -1,3 +1,7 @@
+**What We Know About the Trump Rally Shooting Victims So Far**\
+`One person was killed and two were critically injured. The victims, all adult men, include a longtime volunteer firefighter and a Marine Corps veteran.`\
+https://nytimes.com/2024/07/14/us/politics/victims-trump-shooting.html
+
 **Republicans Place Shooting in Trump’s Narrative of Persecution**\
 `Even without a known motive, Donald J. Trump’s allies are casting the attempt on his life as part of the story of oppression at the heart of this campaign.`\
 https://nytimes.com/2024/07/14/us/politics/donald-trump-shooting-campaign-2024.html
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/5637315/2024/07/14/astros-ronel-blanco-first-half-s
 **The Secret Service fears overreacting to unfounded bystander reports, former agents say.**\
 `By David A. Fahrenthold`\
 https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/the-secret-service-fears-overreacting-to-unfounded-bystander-reports-former-agents-say
-
-**Copa America final kick-off delayed as fans struggle to enter stadium**\
-`Follow the latest from the Copa America final between Argentina and Colombia
-The kick-off for the Copa America final was delayed after chaotic and dangerous scenes saw thousands of supporters prevented from entering Hard Rock Stadium in Miami for the game.`\
-https://nytimes.com/athletic/5637296/2024/07/14/copa-america-final-fans-tickets/
 

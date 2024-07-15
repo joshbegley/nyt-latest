@@ -1,3 +1,7 @@
+**What We Know About the Trump Rally Shooting Victims So Far**\
+`One person was killed and two were critically injured. The victims, all adult men, include a longtime volunteer firefighter and a Marine Corps veteran.`\
+https://nytimes.com/2024/07/14/us/politics/victims-trump-shooting.html
+
 **Republicans Place Shooting in Trump’s Narrative of Persecution**\
 `Even without a known motive, Donald J. Trump’s allies are casting the attempt on his life as part of the story of oppression at the heart of this campaign.`\
 https://nytimes.com/2024/07/14/us/politics/donald-trump-shooting-campaign-2024.html
