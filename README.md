@@ -1,3 +1,7 @@
+**Who Is Usha Vance, the Wife of J.D. Vance?**\
+`The two met at Yale Law School, and Ms. Vance has helped him along in his political rise ever since — including now to Donald J. Trump’s vice-presidential pick.`\
+https://nytimes.com/2024/07/15/style/usha-vance-jd-vance.html
+
 **J.D. Vance Is an Oil Booster and Doubter of Human-Caused Climate Change**\
 `He once said society had a climate problem but changed his position sharply while seeking Donald Trump’s endorsement in his Senate race.`\
 https://nytimes.com/2024/07/15/climate/jd-vance-climate-change.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/documents-case-dismissed
 **5 Unanswered Questions for the Secret Service**\
 `Here are some of the key questions about the Secret Service response to the attempted assassination of former President Donald J. Trump.`\
 https://nytimes.com/2024/07/15/us/politics/secret-service-trump-rally-shooting.html
-
-**Bengt Samuelsson, Biochemist and Nobel Laureate, Is Dead at 90**\
-`He shared the 1982 Nobel Prize in medicine for breakthrough discoveries that led to drugs that treat inflammation, glaucoma and allergies.`\
-https://nytimes.com/2024/07/15/science/bengt-samuelsson-dead.html
 
