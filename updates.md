@@ -1,3 +1,11 @@
+**Political Violence May Be Un-American, but It Is Not Uncommon**\
+`The assassination attempt against Trump is one on a long list of attacks.`\
+https://nytimes.com/2024/07/15/opinion/trump-assassination-attempts-history.html
+
+**Harris Outdoes Biden in 2 State Polls but Has Her Own Weaknesses**\
+`The polls in Pennsylvania and Virginia were conducted before the Trump rally shooting.`\
+https://nytimes.com/2024/07/15/upshot/kamala-harris-biden-poll.html
+
 **Gambia Votes to Keep Ban on Female Genital Cutting, in Sharp Reversal**\
 `Lawmakers in the West African country had supported overturning the prohibition, but changed course on Monday after a vociferous campaign led by women.`\
 https://nytimes.com/2024/07/15/world/africa/gambia-ban-female-genital-cutting.html
