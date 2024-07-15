@@ -1,3 +1,7 @@
+**Mark Robinson, North Carolina’s Republican nominee for governor, gets his biggest stage yet.**\
+`Mr. Robinson, has been widely criticized for comments perceived as antisemitic and hateful, instead focused on the economy`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/mark-robinson-north-carolinas-republican-nominee-for-governor-gets-his-biggest-stage-yet
+
 **Two Hikers Die in Canyonlands National Park in 100-Degree Temperatures**\
 `A father and daughter were found dead in the park after they texted 911 that they ran out of water and were lost while hiking in triple-digit temperatures.`\
 https://nytimes.com/2024/07/15/us/canyonlands-hiking-deaths-utah.html
