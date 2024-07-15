@@ -1,3 +1,7 @@
+**Robert F. Kennedy Jr. Meets With Trump at the R.N.C.**\
+`The political rivals met just hours before Republicans formally named Donald J. Trump their presidential nominee, and as Mr. Kennedy was set to receive Secret Service protection in the wake of the assassination attempt on Mr. Trump.`\
+https://nytimes.com/2024/07/15/us/politics/rfk-jr-trump-rnc.html
+
 **Donald Trump, Man of Destiny**\
 `He is a figure touched by the gods of fortune in a way that transcends the normal rules of politics.`\
 https://nytimes.com/2024/07/15/opinion/donald-trump-assassination-destiny.html
