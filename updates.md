@@ -1,3 +1,7 @@
+**27 Facts About J.D. Vance, Trump’s Pick for V.P.**\
+`Mr. Vance spilled scores of details about his life in his coming-of-age memoir. We’ve collected the highlights.`\
+https://nytimes.com/2024/07/15/us/politics/27-facts-about-jd-vance.html
+
 **Investigators Unlock Gunman’s Phone in Search of Motive for Trump Shooting**\
 `The F.B.I. said it had gained access to the would-be assassin’s phone, but it was not immediately clear whether it had yielded clues.`\
 https://nytimes.com/2024/07/15/us/politics/trump-shooting-fbi-gunman-phone.html

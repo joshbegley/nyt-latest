@@ -6,7 +6,7 @@ https://nytimes.com/2024/07/15/us/politics/trump-shooting-fbi-gunman-phone.html
 `The way Republicans at the national convention see it, somehow, everything is going their way.`\
 https://nytimes.com/2024/07/15/us/politics/rnc-trump-vance-milwaukee.html
 
-**27 Facts About J.D. Vance**\
+**27 Facts About J.D. Vance, Trump’s Pick for V.P.**\
 `Mr. Vance spilled scores of details about his life in his coming-of-age memoir. We’ve collected the highlights.`\
 https://nytimes.com/2024/07/15/us/politics/27-facts-about-jd-vance.html
 
