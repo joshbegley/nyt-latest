@@ -1,3 +1,15 @@
+**Monday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/07/15/briefing/trump-assassination-israel-strike.html
+
+**Quotation of the Day: Sanders Still Believes in a Breakthrough for the Buffaloes**\
+`Quotation of the Day for Monday, July 15, 2024.`\
+https://nytimes.com/2024/07/15/pageoneplus/quotation-of-the-day-sanders-still-believes-in-a-breakthrough-for-the-buffaloes.html
+
+**They Were Told They Were in a Safe Area. Then Came the Missiles.**\
+`Survivors of a strike in Gaza on Saturday that Israel said had targeted Hamas’s top military leader described a scene of carnage, with fire, smoke, blood and bodies everywhere.`\
+https://nytimes.com/2024/07/15/world/middleeast/15mideast-crisis-mawasi.html
+
 **With Rivals Restricted, Kagame Looks Set for Another Term in Rwanda**\
 `The Central African nation is voting on a potential fourth term for President Paul Kagame. Opposition figures say they have been threatened and arbitrarily detained.`\
 https://nytimes.com/2024/07/15/world/africa/with-rivals-restricted-kagame-looks-set-for-another-term-in-rwanda.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5637514/2024/07/14/cardinals-draft-jj-wetherholt/
 **China’s Economy Slows Sharply as Housing Troubles Squeeze Spending**\
 `After a strong start to the year, spending has slumped as a real estate downturn weighs on consumers. Communist Party leaders are meeting this week to discuss what to do about it.`\
 https://nytimes.com/2024/07/14/business/chinas-gdp-q2.html
-
-**‘House of the Dragon’ Season 2, Episode 5 Recap: The Eye Has It**\
-`Prince Aemond makes a move — another move, that is, after the one where he blasted his own brother with dragonfire.`\
-https://nytimes.com/2024/07/14/arts/television/house-of-the-dragon-recap-episode-5.html
-
-**Corrections: July 15, 2024**\
-`Corrections that appeared in print on July 15, 2024.`\
-https://nytimes.com/2024/07/14/pageoneplus/corrections-july-15-2024.html
-
-**What We Know About the Trump Rally Shooting Victims So far**\
-`One person was killed and two were critically injured. The victims, all adult men, include a longtime volunteer firefighter and a Marine Corps veteran.`\
-https://nytimes.com/2024/07/14/us/politics/victims-trump-shooting.html
 
