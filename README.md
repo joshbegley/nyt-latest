@@ -1,3 +1,7 @@
+**Russia Sentences U.S. Journalist in Absentia for Ukraine War Comments**\
+`Masha A. Gessen was found guilty of spreading “false information” and sentenced to eight years in prison over remarks made in 2022 about the Russian military.`\
+https://nytimes.com/2024/07/15/world/europe/russia-masha-gesson-prison.html
+
 **Former Trump officials defend his immigration policies and vow to ‘take back the narrative.’**\
 `By Jazmine Ulloa and Hamed Aleaziz`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/former-trump-officials-defend-his-immigration-policies-and-vow-to-take-back-the-narrative
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/15/us/politics/biden-2024-election-trump.html
 **J.D. Vance, a Man Who Understands Trump’s Worldview**\
 `He has long spoken the language of the Trump base.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/jd-vance-trump-vp
-
-**Man Dies After Rescuing His 2 Children in Mississippi River**\
-`The authorities found the body of a 41-year-old Minnesota man who had disappeared two days earlier after saving his son and stepdaughter from the swift-moving river.`\
-https://nytimes.com/2024/07/15/us/mississippi-river-missing-man-dead.html
 
