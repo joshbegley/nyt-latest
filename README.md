@@ -1,3 +1,11 @@
+**Who Is Gabbriette? Meet the Model ‘Brat.’**\
+`Having spent her career on the cool-girl fringes, the model rocketed to mainstream fame with a high-profile engagement and a mention from Charli XCX.`\
+https://nytimes.com/2024/07/15/style/gabbriette-bechtel.html
+
+**Biden Policies Offer Benefits, but Little Political Payoff, in Pennsylvania**\
+`As inflation worries dominate, the Biden administration is struggling to take credit for infrastructure and industrial policy in the battleground state.`\
+https://nytimes.com/2024/07/15/us/politics/biden-economy-pennsylvania.html
+
 **‘Morning Joe’ Is Pre-empted for Breaking News Coverage**\
 `The change immediately led to questions about whether NBC was blocking the program, which has been loyal to President Biden, for political considerations.`\
 https://nytimes.com/2024/07/15/business/media/morning-joe-msnbc-nbc-biden-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/15/upshot/kamala-harris-biden-poll.html
 **Gambia Votes to Keep Ban on Female Genital Cutting, in Dramatic Reversal**\
 `Lawmakers in the West African country had supported overturning the prohibition, but changed course on Monday after a vociferous campaign led by women.`\
 https://nytimes.com/2024/07/15/world/africa/gambia-ban-female-genital-cutting.html
-
-**A major legal threat against Trump is dismissed. Here’s the latest.**\
-`By Alan Feuer`\
-https://nytimes.com/live/2024/07/15/us/trump-documents-case-dismissed/a-major-legal-threat-against-trump-is-dismissed-heres-the-latest
-
-**Judge Cannon’s Unusual Ruling Is Latest in a Series**\
-`Judge Cannon has shown a willingness to grant a serious audience to some of the former president’s most far-fetched defense claims.`\
-https://nytimes.com/2024/07/15/us/politics/judge-aileen-cannon-decisions.html
 
