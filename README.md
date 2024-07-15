@@ -16,7 +16,7 @@ https://nytimes.com/2024/07/15/world/middleeast/15mideast-crisis-mawasi.html
 
 **With Rivals Restricted, Kagame Looks Set for Another Term in Rwanda**\
 `The Central African nation is voting on a potential fourth term for President Paul Kagame. Opposition figures say they have been threatened and arbitrarily detained.`\
-https://nytimes.com/2024/07/15/world/africa/with-rivals-restricted-kagame-looks-set-for-another-term-in-rwanda.html
+https://nytimes.com/2024/07/15/world/africa/rwanda-election-kagame.html
 
 **China Is Holding a Major Meeting on the Economy That You Can’t Watch**\
 `President Xi Jinping is presiding over a conclave to draft a new economic program. The stakes are high, but expectations for big changes are modest.`\
