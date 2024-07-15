@@ -1,3 +1,11 @@
+**‘He’s Got a Gun!’: Witness Describes Watching Shooter Get Into Position**\
+`The man’s voice can be heard in a bystander video that has been repeatedly featured in news reports about the assassination attempt.`\
+https://nytimes.com/2024/07/15/us/politics/trump-gunman-witness-video.html
+
+**Biden Says It Was a Mistake to Say He Wanted to Put Trump in a ‘Bullseye’**\
+`In an interview with NBC’s Lester Holt, President Biden said he regretted using the word but defended his descriptions of the former president as a threat to democracy.`\
+https://nytimes.com/2024/07/15/us/politics/biden-2024-election-trump.html
+
 **J.D. Vance, a Man Who Understands Trump’s Worldview**\
 `He has long spoken the language of the Trump base.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/jd-vance-trump-vp
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5639943/2024/07/15/hwang-wolves-racist-abuse/
 **Trump Weighed Pros and Cons of His V.P. Selection Until Last Minute**\
 `Even as the former president and his team flew Sunday on his private plane from Bedminster, N.J., to Milwaukee, Mr. Trump was said to have peppered aides and family members about his choice.`\
 https://nytimes.com/2024/07/15/us/politics/trump-vp-vance-burgum-rubio.html
-
-**What Is Demolition Ranch, the YouTube Channel on the Gunman’s Shirt?**\
-`The gunman wore a T-shirt from a popular gun-themed YouTube channel. The creator said he was “just in disbelief.”`\
-https://nytimes.com/2024/07/15/us/politics/demolition-ranch-youtube-trump-shooting-suspect.html
-
-**WFAN taps Craig Carton to call 3 Yankees games in August**\
-`He'll be on during the series at home against the Texas Rangers from Aug. 9 - 11.`\
-https://nytimes.com/athletic/5639895/2024/07/15/craig-carton-yankees-wfan-rangers-series/
 
