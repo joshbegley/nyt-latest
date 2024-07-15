@@ -1,3 +1,7 @@
+**Vance Is All In on Immigrant-Bashing**\
+`His willingness to lie on this issue is probably why Trump picked him.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/krugman-vance-immigrant-bashing
+
 **How a friendship with Donald Trump Jr. helped land J.D. Vance a spot on the Republican ticket.**\
 `By Sharon LaFraniere`\
 https://nytimes.com/2024/07/15/us/politics/how-a-friendship-with-donald-trump-jr-helped-land-jd-vance-a-spot-on-the-republican-ticket.html

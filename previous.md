@@ -1,3 +1,7 @@
+**Vance Is All In on Immigrant-Bashing**\
+`His willingness to lie on this issue is probably why Trump picked him.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/krugman-vance-immigrant-bashing
+
 **How a friendship with Donald Trump Jr. helped land J.D. Vance a spot on the Republican ticket.**\
 `By Sharon LaFraniere`\
 https://nytimes.com/2024/07/15/us/politics/how-a-friendship-with-donald-trump-jr-helped-land-jd-vance-a-spot-on-the-republican-ticket.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/15/us/politics/jd-vance-abortion-immigration-issues.
 **‘Hillbilly Elegy’ Gets a Blockbuster Sequel**\
 `Our critic traces J.D. Vance’s shift from bootstrap memoirist to vice-presidential candidate.`\
 https://nytimes.com/2024/07/15/books/review/jd-vance-vice-president-donald-trump-hillbilly-elegy.html
-
-**J.D. Vance Is Trump’s Gift to the Most Extreme MAGA Faithful**\
-`Trump saw no need to venture out of his comfort zone of conservative white guys.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-vance-vp-pick
 
