@@ -6,7 +6,7 @@ https://nytimes.com/2024/07/15/us/california-today-will-soon-have-a-different-lo
 `The shooting of Donald Trump has galvanized his campaign, prompted Elon Musk to endorse him and forced Democrats rethink plans to oust President Biden.`\
 https://nytimes.com/2024/07/15/business/dealbook/trump-assassination-election-democrats.html
 
-**Trump says he’s revised his campaign speech in wake of shooting.**\
+**Trump says he’s revised his campaign speech in the wake of the shooting.**\
 `Speaking to The New York Post and The Washington Examiner on Sunday, Mr. Trump said that he had thrown out a “tough speech” he had planned to make at the convention.`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/trump-shot-interviews
 
