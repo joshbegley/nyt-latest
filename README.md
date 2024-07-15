@@ -1,3 +1,7 @@
+**‘House of the Dragon’ Season 2, Episode 5 Recap: The Eye Has It**\
+`Prince Aemond makes a move — another move, that is, after the one where he blasted his own brother with dragonfire.`\
+https://nytimes.com/2024/07/14/arts/television/house-of-the-dragon-recap-episode-5.html
+
 **Corrections: July 15, 2024**\
 `Corrections that appeared in print on July 15, 2024.`\
 https://nytimes.com/2024/07/14/pageoneplus/corrections-july-15-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5637408/2024/07/14/chase-burns-reds-wake-forest-dra
 **It is judgment time for Southgate even if basing it on this final or Spain's superiority is tough**\
 `What we want from finals is definitive judgments, even if the messy nature of any football match makes them almost impossible to draw`\
 https://nytimes.com/athletic/5633433/2024/07/14/southgate-england-judgment/
-
-**Astros' Ronel Blanco had a brilliant first half. Can he sustain it in the second?**\
-`“He’s been unbelievable,” third baseman Alex Bregman said of Blanco, who has become a bona fide starter. He has one of baseball's best ERAs.`\
-https://nytimes.com/athletic/5637315/2024/07/14/astros-ronel-blanco-first-half-success/
 
