@@ -1,3 +1,7 @@
+**Investigators Unlock Gunman’s Phone in Search of Motive for Trump Shooting**\
+`The F.B.I. said it had gained access to the would-be assassin’s phone, but it was not immediately clear whether it had yielded clues.`\
+https://nytimes.com/2024/07/15/us/politics/trump-shooting-fbi-gunman-phone.html
+
 **Anthony Davis' solid play for Team USA creates a tough question for Steve Kerr**\
 `Is Joel Embiid, a former NBA MVP, the right choice to start for Team USA? Right now, with Davis tearing it up, nothing is certain.`\
 https://nytimes.com/athletic/5639957/2024/07/15/anthony-davis-joel-embiid-steve-kerr-team-usa-olympics/
