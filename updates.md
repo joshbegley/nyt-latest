@@ -1,3 +1,7 @@
+**Three Astros takeaways on the first half of the season**\
+`“We have come a long ways. There was no doubt in my mind we were going to get back in this race,” manager Joe Espada said.`\
+https://nytimes.com/athletic/5634126/2024/07/15/houston-astros-mlb-first-half-season/
+
 **Ryan Reynolds and Hugh Jackman on the Perks and Pitfalls of Playing Superheroes**\
 `The two friends have learned a lot about being the stewards of major pop-culture characters, an education that led them to “Deadpool & Wolverine.”`\
 https://nytimes.com/2024/07/15/movies/ryan-reynolds-hugh-jackman-deadpool-wolverine.html
