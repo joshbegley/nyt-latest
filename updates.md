@@ -1,5 +1,9 @@
 **A video shows people warning law enforcement about the gunman minutes before he fired at Trump.**\
 `By David Botti, Haley Willis and Malachy Browne`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/trump-rally-crowd-gunman
+
+**A video shows people warning law enforcement about the gunman minutes before he fired at Trump.**\
+`By David Botti, Haley Willis and Malachy Browne`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/a-video-shows-people-warning-law-enforcement-about-the-gunman-minutes-before-he-fired-at-trump
 
 **Who Is Gabbriette? Meet the Model ‘Brat.’**\
