@@ -1,3 +1,7 @@
+**Get to know Pirates first-round pick Konnor Griffin, who is speeding towards the big leagues**\
+`Griffin, the first high school player selected, went No. 9 overall to the Pirates. He stole 87 bases his senior season at Jackson Prep.`\
+https://nytimes.com/athletic/5610398/2024/07/14/konnor-griffin-mlb-draft-pirates/
+
 **How Will the R.N.C. Change After the Trump Assassination Attempt?**\
 `Trump campaign officials raised concerns that the messaging and tone of the speeches set to be delivered at the Republican National Convention this week might be overly aggressive.`\
 https://nytimes.com/2024/07/14/us/politics/trump-assassination-convention.html
@@ -34,8 +38,4 @@ https://nytimes.com/2024/07/14/us/politics/trump-gunman-investigation.html
 **Guardians take Travis Bazzana at No. 1 in MLB Draft**\
 `The Oregon State slugger ranked second on The Athletic's Keith Law's top-100 prospect ranking for this draft.`\
 https://nytimes.com/athletic/5636587/2024/07/14/travis-bazzana-guardians-mlb-draft-2024/
-
-**After Shooting at Trump Rally, Officials Say R.N.C. Security Is ‘Ready To Go’**\
-`As 50,000 people began arriving in Milwaukee for the Republican National Convention, Secret Service officials and local leaders aimed to reassure the public about safety.`\
-https://nytimes.com/2024/07/14/us/milwaukee-rnc-security-trump.html
 
