@@ -1,3 +1,7 @@
+**Each Year Flying Ants Emerge Across the U.K. And Yes, They’re Annoying.**\
+`Winged ants emerge from the soil on hot summer days with one goal: find a mate — fast. These insects are annoying, but experts say they play a vital role in the environment.`\
+https://nytimes.com/2024/07/15/world/europe/flying-ant-day-uk.html
+
 **Dr. Ruth, Longtime Manhattanite, Is Remembered as a Neighborhood ‘Anchor’**\
 `Ruth Westheimer, the sex therapist, lived in the same Washington Heights apartment for more than half a century. Her neighbors said she was gregarious, funny and unabashedly herself.`\
 https://nytimes.com/2024/07/15/nyregion/ruth-westheimer-new-york.html

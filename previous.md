@@ -1,3 +1,7 @@
+**Each Year Flying Ants Emerge Across the U.K. And Yes, They’re Annoying.**\
+`Winged ants emerge from the soil on hot summer days with one goal: find a mate — fast. These insects are annoying, but experts say they play a vital role in the environment.`\
+https://nytimes.com/2024/07/15/world/europe/flying-ant-day-uk.html
+
 **Dr. Ruth, Longtime Manhattanite, Is Remembered as a Neighborhood ‘Anchor’**\
 `Ruth Westheimer, the sex therapist, lived in the same Washington Heights apartment for more than half a century. Her neighbors said she was gregarious, funny and unabashedly herself.`\
 https://nytimes.com/2024/07/15/nyregion/ruth-westheimer-new-york.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/15/opinion/focus-group-black-men-trump-v
 **Trump Arrives in Milwaukee for Republican National Convention**\
 `Former President Donald J. Trump was filmed leaving his private jet just one day after surviving an assassination attempt during a political rally.`\
 https://nytimes.com/video/us/elections/100000009571460/trump-milwaukee-arrival.html
-
-**Argentina beats Colombia to win record-breaking Copa America title**\
-`A Lionel Messi-less Argentina beat Colombia to win a record-breaking 16th Copa America title after a dramatic final in Miami.`\
-https://nytimes.com/athletic/5637691/2024/07/15/argentina-colombia-result-copa-america-final/
 
