@@ -1,3 +1,7 @@
+**When Even an Assassination Attempt Becomes a Concert Tee**\
+`Hours after the attempt on Donald Trump’s Life, the merch arrived.`\
+https://nytimes.com/2024/07/15/style/trump-shooting-image-t-shirts.html
+
 **Do You Know These Movies Based on Shakespeare’s Plays?**\
 `Try this short quiz on modern films that drew their inspiration from classic works written for the stage hundreds of years ago.`\
 https://nytimes.com/interactive/2024/07/15/books/review/shakespeare-adaptations-quiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/15/world/europe/jay-slater-missing-spain-remains.htm
 **Trading Free-Market Ideals for Protectionism, G.O.P. Goes Full Trump**\
 `The Republican Party is rejecting elite economic ideas in a bid for blue-collar votes, abandoning long-held free-market principles in the process.`\
 https://nytimes.com/2024/07/15/business/economy/trump-economy-rnc-policy-free-market.html
-
-**Israel is privately discussing withdrawing from the Gaza-Egypt border, officials say.**\
-`By Patrick Kingsley`\
-https://nytimes.com/live/2024/07/15/world/israel-gaza-war-hamas/israel-is-privately-discussing-withdrawing-from-the-gaza-egypt-border-officials-say
 
