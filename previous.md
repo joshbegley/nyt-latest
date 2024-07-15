@@ -18,7 +18,7 @@ https://nytimes.com/2024/07/15/opinion/trump-assassination-attempts-history.html
 `The polls in Pennsylvania and Virginia were conducted before the Trump rally shooting.`\
 https://nytimes.com/2024/07/15/upshot/kamala-harris-biden-poll.html
 
-**Gambia Votes to Keep Ban on Female Genital Cutting, in Sharp Reversal**\
+**Gambia Votes to Keep Ban on Female Genital Cutting, in Dramatic Reversal**\
 `Lawmakers in the West African country had supported overturning the prohibition, but changed course on Monday after a vociferous campaign led by women.`\
 https://nytimes.com/2024/07/15/world/africa/gambia-ban-female-genital-cutting.html
 

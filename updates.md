@@ -1,3 +1,7 @@
+**Gambia Votes to Keep Ban on Female Genital Cutting, in Dramatic Reversal**\
+`Lawmakers in the West African country had supported overturning the prohibition, but changed course on Monday after a vociferous campaign led by women.`\
+https://nytimes.com/2024/07/15/world/africa/gambia-ban-female-genital-cutting.html
+
 **When Even an Assassination Attempt Becomes a Concert Tee**\
 `Hours after the attempt on Donald Trump’s life, the merch arrived.`\
 https://nytimes.com/2024/07/15/style/trump-shooting-image-t-shirts.html
