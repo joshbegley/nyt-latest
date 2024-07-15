@@ -1,3 +1,15 @@
+**Tuesday Briefing: Donald Trump’s Running Mate**\
+`Plus, a judge dismisses a criminal case against Trump.`\
+https://nytimes.com/2024/07/15/briefing/trump-vice-president-trial-vance.html
+
+**Election 2024 Polls: Minnesota**\
+`See the latest election polls and polling averages for Minnesota.`\
+https://nytimes.com/interactive/2024/us/elections/polls-president-minnesota.html
+
+**Election 2024 Polls: Virginia**\
+`See the latest election polls and polling averages for Virginia.`\
+https://nytimes.com/interactive/2024/us/elections/polls-president-virginia.html
+
 **Drop your questions here for the fantasy baseball mailbag**\
 `Dane Martinez is here to help you sort through all your fantasy baseball questions and concerns. Drop your questions here!`\
 https://nytimes.com/athletic/5639784/2024/07/15/drop-your-questions-here-for-the-fantasy-baseball-mailbag-10/
@@ -5,6 +17,10 @@ https://nytimes.com/athletic/5639784/2024/07/15/drop-your-questions-here-for-the
 **Israel in Talks Over Withdrawing From Egypt-Gaza Border, Officials Say**\
 `The discussions between Israeli and Egyptian officials comes amid diplomatic activity on several continents over a cease-fire deal and postwar plans for the territory.`\
 https://nytimes.com/2024/07/15/world/middleeast/israel-egypt-gaza-border.html
+
+**Giants week in review: Blake Snell Cy Young-like, Mike Yastrzemski ice cold (in a good way)**\
+`The Giants welcomed new acquisition Blake Snell after DFA'ing his evil twin, Drake. This Snell has looked like a Cy Young winner.`\
+https://nytimes.com/athletic/5639519/2024/07/15/sf-giatns-week-in-review-blake-snell-mike-yastrzemski/
 
 **Few Lawmakers Called for Tougher Gun Laws After Trump Shooting**\
 `Unlike after many mass shootings, there has been no concerted outcry from elected officials to implement stricter gun safety measures.`\
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2024/07/15/us/elections/milwaukee-black-voters.h
 **Many turned to Vance’s book, ‘Hillbilly Elegy,’ after Trump was elected.**\
 `By Elizabeth A. Harris`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/many-turned-to-vances-book-hillbilly-elegy-after-trump-was-elected
-
-**As G.O.P. Convention Begins, ‘the Vibe Is Grim’ for Democrats**\
-`Worries about President Biden persist, and many see Donald Trump as electorally stronger after he survived an assassination attempt.`\
-https://nytimes.com/2024/07/15/us/politics/democrats-trump-biden.html
-
-**‘She Was a Rebel’: Co-Stars Remember Shannen Doherty**\
-`Tori Spelling, Rose McGowan, Alyssa Milano and fans of Ms. Doherty shared tributes to the actress, who died on Saturday.`\
-https://nytimes.com/2024/07/15/style/shannen-doherty-death-reactions.html
-
-**Terrell Davis 'humiliated' after incident with flight attendant**\
-`In a statement, United said the flight attendant has been removed from duty while the case is reviewed.`\
-https://nytimes.com/athletic/5639634/2024/07/15/terrell-davis-united-airlines-incident/
-
-**Dismissal Brings New Scrutiny to Judge With a History of Unorthodox Decisions**\
-`Judge Aileen Cannon’s rulings in the documents case had fueled questions about favoritism and legal acumen even before she threw out the charges that Donald Trump had mishandled classified documents.`\
-https://nytimes.com/2024/07/15/us/politics/judge-aileen-cannon-trump-documents-case.html
 
