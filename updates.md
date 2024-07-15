@@ -1,3 +1,7 @@
+**Video Shows Crowd Warning Law Enforcement About Gunman Before He Fired at Trump**\
+`People at the rally in Pennsylvania pointed to the suspected shooter two minutes before gunfire rang out, according to an analysis by The New York Times.`\
+https://nytimes.com/2024/07/15/us/politics/trump-rally-crowd-gunman.html
+
 **Trump’s Case Put the Judge, Aileen Cannon, Under a Spotlight**\
 `Before she was assigned Donald J. Trump’s classified documents case, she had little experience with criminal trials, and her impartiality came into question early on.`\
 https://nytimes.com/2024/07/15/us/politics/eileen-cannon-trump-classified-documents-judge.html
