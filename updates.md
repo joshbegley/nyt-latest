@@ -1,3 +1,15 @@
+**Judge Cannon’s Ruling Is Right-Wing Living Constitutionalism**\
+`Her philosophy makes the law subject to her own preferences, not the words on the page.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/documents-case-dismissed
+
+**5 Unanswered Questions for the Secret Service**\
+`Here are some of the key questions about the Secret Service response to the attempted assassination of former President Donald J. Trump.`\
+https://nytimes.com/2024/07/15/us/politics/secret-service-trump-rally-shooting.html
+
+**Bengt Samuelsson, Biochemist and Nobel Laureate, Is Dead at 90**\
+`He shared the 1982 Nobel Prize in medicine for breakthrough discoveries that led to drugs that treat inflammation, glaucoma and allergies.`\
+https://nytimes.com/2024/07/15/science/bengt-samuelsson-dead.html
+
 **Senator Marco Rubio appears to be out of the running as Trump’s V.P. pick.**\
 `By Michael C. Bender, Maggie Haberman and Jonathan Swan`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/senator-marco-rubio-appears-to-be-out-of-the-running-as-trumps-vp-pick
