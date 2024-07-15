@@ -1,3 +1,7 @@
+**Richard Simmons, the Original Queer Eye**\
+`In an era of high machismo and casual homophobia, he was a cheerleader for self-acceptance.`\
+https://nytimes.com/2024/07/15/style/richard-simmons-the-original-queer-eye.html
+
 **Here’s the latest.**\
 `By Jonathan Weisman`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/heres-the-latest
