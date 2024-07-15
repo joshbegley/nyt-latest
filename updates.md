@@ -1,3 +1,7 @@
+**Read the Ruling That Dismisses the Documents Case Against Trump**\
+`Judge Aileen Cannon ruled that the classified documents case against former president Donald J. Trump should be thrown out because the appointment of the special counsel violated the Constitution.`\
+https://nytimes.com/interactive/2024/07/15/us/trump-documents.html
+
 **Trump Media Stock Jumps as Traders Bet on His Rising Political Fortunes**\
 `Shares of Donald J. Trump’s social media company surged more than 30 percent on the first day of trading after the assassination attempt on the former president.`\
 https://nytimes.com/2024/07/15/business/trump-media-stock.html
