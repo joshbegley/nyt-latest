@@ -1,3 +1,11 @@
+**J.D. Vance is an economic populist skeptical of large corporations.**\
+`By Andrew Duehren`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/jd-vance-is-an-economic-populist-skeptical-of-large-corporations
+
+**‘This Is the Pick of a Very Confident Presidential Nominee’: Four Columnists Size Up J.D. Vance**\
+`What choosing the Ohio senator as running mate tells us about Trump.`\
+https://nytimes.com/2024/07/15/opinion/jd-vance-donald-trump.html
+
 **Biden Calls J.D. Vance a Trump ‘Clone’ as Democrats Label Him an Extremist**\
 `Democrats quickly went on the attack against the newly anointed Republican vice-presidential nominee, calling out what they called his “extreme MAGA agenda.”`\
 https://nytimes.com/2024/07/15/us/politics/democrats-jd-vance.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5637538/2024/07/15/warriors-offseason-moves-era-ste
 **Trump Picked J.D. Vance as His Running Mate**\
 `Also, the Secret Service is under scrutiny. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/07/15/briefing/jd-vance-donald-trump-vp-pick-secret-service.html
-
-**‘Kite Man’ Is a Fun, Irreverent ‘Harley Quinn’ Spinoff**\
-`Like “Harley,” the series is set among Gotham’s villains and goons, with a similarly lewd and rowdy vibe.`\
-https://nytimes.com/2024/07/15/arts/television/kite-man-harley-quinn.html
-
-**Giroud officially announces retirement from international football**\
-`France&#8217;s all-time leading scorer, Olivier Giroud, has officially announced his retirement from international football.`\
-https://nytimes.com/athletic/5639854/2024/07/15/olivier-giroud-france-retire/
 

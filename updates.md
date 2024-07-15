@@ -1,3 +1,11 @@
+**J.D. Vance is an economic populist skeptical of large corporations.**\
+`By Andrew Duehren`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/jd-vance-is-an-economic-populist-skeptical-of-large-corporations
+
+**‘This Is the Pick of a Very Confident Presidential Nominee’: Four Columnists Size Up J.D. Vance**\
+`What choosing the Ohio senator as running mate tells us about Trump.`\
+https://nytimes.com/2024/07/15/opinion/jd-vance-donald-trump.html
+
 **Biden Calls J.D. Vance a Trump ‘Clone’ as Democrats Label Him an Extremist**\
 `Democrats quickly went on the attack against the newly anointed Republican vice-presidential nominee, calling out what they called his “extreme MAGA agenda.”`\
 https://nytimes.com/2024/07/15/us/politics/democrats-jd-vance.html
