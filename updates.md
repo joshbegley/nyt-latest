@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Jonathan Weisman`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/heres-the-latest
+
+**Northeast Braces for Dangerous Heat and Humidity**\
+`Forecasters said that temperatures could feel more like 100 degrees in parts of New Jersey and New York City on Monday and into the mid and upper 90s for the rest of the region.`\
+https://nytimes.com/2024/07/15/weather/heat-advisory-forecast-northeast.html
+
 **The Book Bag That Binds Japanese Society**\
 `No rule requires Japan’s elementary school students to wear the boxy, bulky backpack known as the randoseru. But for nearly 150 years, nearly all of them have.`\
 https://nytimes.com/2024/07/15/world/asia/japan-randoseru-backpack.html
