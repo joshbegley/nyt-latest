@@ -1,3 +1,11 @@
+**Trump’s Case Put the Judge, Aileen Cannon, Under a Spotlight**\
+`Before she was assigned Donald J. Trump’s classified documents case, she had little experience with criminal trials, and her impartiality came into question early on.`\
+https://nytimes.com/2024/07/15/us/politics/eileen-cannon-trump-classified-documents-judge.html
+
+**Here Is the Lineup of Speakers for the First Night of the Republican Convention**\
+`Trump has talked of emphasizing “unity” after he survived an assassination attempt. The list features some of the most far-right members of the G.O.P.`\
+https://nytimes.com/2024/07/15/us/politics/rnc-speaker-schedule.html
+
 **A video shows people warning law enforcement about the gunman minutes before he fired at Trump.**\
 `By David Botti, Haley Willis and Malachy Browne`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/trump-rally-crowd-gunman
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/07/15/books/review/shakespeare-adaptations-
 **A Motorcycle Museum, Elite Dinners and Jason Aldean: G.O.P. Donors Get Ready to Party**\
 `Political conventions are positioned as a reward of sorts for hard work — and the hard cash invested by contributors and fund-raisers.`\
 https://nytimes.com/2024/07/15/us/politics/trump-donors-rnc-milwaukee.html
-
-**Political Violence May Be Un-American, but It Is Not Uncommon**\
-`The assassination attempt against Trump is one on a long list of attacks.`\
-https://nytimes.com/2024/07/15/opinion/trump-assassination-attempts-history.html
-
-**Harris Outdoes Biden in 2 State Polls but Has Her Own Weaknesses**\
-`The polls in Pennsylvania and Virginia were conducted before the Trump rally shooting.`\
-https://nytimes.com/2024/07/15/upshot/kamala-harris-biden-poll.html
 
