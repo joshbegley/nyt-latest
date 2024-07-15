@@ -1,3 +1,7 @@
+**Taylor Swift Breaks Her Own Record With a 12th Week at No. 1**\
+`Facing a tight battle with Zach Bryan, the pop superstar benefited from the release of three new versions of “The Tortured Poets Department” and shipments of CDs.`\
+https://nytimes.com/2024/07/15/arts/music/taylor-swift-zach-bryan-12-weeks-no-1.html
+
 **Ryan Reynolds and Hugh Jackman on the Perks and Pitfalls of Playing Superheroes**\
 `The two friends have learned a lot about being the stewards of major pop-culture characters, an education that led them to “Deadpool & Wolverine.”`\
 https://nytimes.com/2024/07/15/movies/ryan-reynolds-hugh-jackman-deadpool-wolverine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/15/world/europe/suitcase-murder-bristol-uk.html
 **About Our Investigation Into Cord Blood Banks**\
 `Some families pay thousands of dollars to store their children’s stem cells with the hope of a healthier future for them. But Sarah Kliff, an investigative health care reporter for The New York Times, explains that the cells are rarely useful and are sometimes contaminated.`\
 https://nytimes.com/video/health/100000009563946/about-our-investigation-into-cord-blood-banks.html
-
-**Three Astros takeaways on the first half of the season**\
-`“We have come a long ways. There was no doubt in my mind we were going to get back in this race,” manager Joe Espada said.`\
-https://nytimes.com/athletic/5634126/2024/07/15/houston-astros-mlb-first-half-season/
 

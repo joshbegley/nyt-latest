@@ -1,3 +1,7 @@
+**Taylor Swift Breaks Her Own Record With a 12th Week at No. 1**\
+`Facing a tight battle with Zach Bryan, the pop superstar benefited from the release of three new versions of “The Tortured Poets Department” and shipments of CDs.`\
+https://nytimes.com/2024/07/15/arts/music/taylor-swift-zach-bryan-12-weeks-no-1.html
+
 **Three Astros takeaways on the first half of the season**\
 `“We have come a long ways. There was no doubt in my mind we were going to get back in this race,” manager Joe Espada said.`\
 https://nytimes.com/athletic/5634126/2024/07/15/houston-astros-mlb-first-half-season/
