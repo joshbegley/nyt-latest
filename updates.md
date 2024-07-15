@@ -1,3 +1,11 @@
+**Accepting Autism: A Sibling’s Perspective**\
+`We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Leela Uppaluri, age 16.`\
+https://nytimes.com/2024/07/15/learning/accepting-autism-a-siblings-perspective.html
+
+**Sizzling Day in North Dakota? Lately, It’s No Surprise.**\
+`At a county fair near Fargo, many residents shrugged off the heat, at least for one day.`\
+https://nytimes.com/2024/07/15/us/heat-wave-north-dakota-climate-change.html
+
 **Taylor Swift Breaks Her Own Record With a 12th Week at No. 1**\
 `Facing a tight battle with Zach Bryan, the pop superstar benefited from the release of three new versions of “The Tortured Poets Department” and shipments of CDs.`\
 https://nytimes.com/2024/07/15/arts/music/taylor-swift-zach-bryan-12-weeks-no-1.html
