@@ -1,3 +1,7 @@
+**California Today Will Soon Have a Different Look**\
+`Our California-focused newsletter will feature a curated collection of New York Times articles about the state.`\
+https://nytimes.com/2024/07/15/us/california-today-will-soon-have-a-different-look.html
+
 **Manhunt in U.K. Ends With Murder Charges After Bodies Found in Suitcases**\
 `A grisly discovery last week in Bristol, England, led the police to a 34-year-old man who had stayed with the victims in London.`\
 https://nytimes.com/2024/07/15/world/europe/suitcase-murder-bristol-uk.html

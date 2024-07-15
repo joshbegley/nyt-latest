@@ -1,3 +1,7 @@
+**California Today Will Soon Have a Different Look**\
+`Our California-focused newsletter will feature a curated collection of New York Times articles about the state.`\
+https://nytimes.com/2024/07/15/us/california-today-will-soon-have-a-different-look.html
+
 **The New Calculus for Democrats and Donors: Is Trump Unbeatable?**\
 `The shooting of Donald Trump has galvanized his campaign, prompted Elon Musk to endorse him and forced Democrats rethink plans to oust President Biden.`\
 https://nytimes.com/2024/07/15/business/dealbook/trump-assassination-election-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/15/us/california-fires-evacuation-heat-wave.html
 **The R.N.C. Begins**\
 `The latest on the assassination attempt and presidential campaign — plus, an explanation of why childbirth has gotten so expensive.`\
 https://nytimes.com/2024/07/15/briefing/the-rnc-begins.html
-
-**Biden Calls For Calm, and a Defiant Trump Prepares for the R.N.C.**\
-`Plus, how cord blood banks mislead parents.`\
-https://nytimes.com/2024/07/15/podcasts/biden-trump-shooting-speech.html
 
