@@ -1,3 +1,7 @@
+**The Book Bag That Binds Japanese Society**\
+`No rule requires Japan’s elementary school students to wear the boxy, bulky backpack known as the randoseru. But for nearly 150 years, nearly all of them have.`\
+https://nytimes.com/2024/07/15/world/asia/japan-randoseru-backpack.html
+
 **Protesters Are Expected to March in Milwaukee as R.N.C. Opens**\
 `After the attempted assassination of Donald Trump, protest organizers said their rally would proceed as expected. Law enforcement authorities said they were prepared.`\
 https://nytimes.com/2024/07/15/us/protesters-milwaukee-rnc.html
