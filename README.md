@@ -1,3 +1,7 @@
+**Trading Free-Market Ideals for Protectionism, G.O.P. Goes Full Trump**\
+`The Republican Party is rejecting elite economic ideas in a bid for blue-collar votes, abandoning long-held free-market principles in the process.`\
+https://nytimes.com/2024/07/15/business/economy/trump-economy-rnc-policy-free-market.html
+
 **Israel is privately discussing withdrawing from the Gaza-Egypt border, officials say.**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/07/15/world/israel-gaza-war-hamas/israel-is-privately-discussing-withdrawing-from-the-gaza-egypt-border-officials-say
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/15/us/elections/times-siena-poll-pennsyl
 **Biden Facing Challenges in Two Must-Win States, Times/Siena Polls Find**\
 `The polls, taken before the assassination attempt on Donald J. Trump, found President Biden trailing Mr. Trump in Pennsylvania, a swing state critical to his re-election hopes, and slightly ahead in Virginia, a state he won by 10 points in 2020.`\
 https://nytimes.com/2024/07/15/us/politics/pennsylvania-virginia-polls-biden-trump.html
-
-**‘Acting Is a Trick’: Anthony Hopkins on ‘Those About to Die’**\
-`In an interview, the actor discusses his new series, humble origins and the freedom age brings. “That gives me a tremendous amount of energy to move forward,” he said.`\
-https://nytimes.com/2024/07/15/arts/television/anthony-hopkins-those-about-to-die.html
 
