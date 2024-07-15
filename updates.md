@@ -1,3 +1,11 @@
+**The Good Mood in Milwaukee**\
+`The way Republicans at the national convention see it, somehow, everything is going their way.`\
+https://nytimes.com/2024/07/15/us/politics/rnc-trump-vance-milwaukee.html
+
+**27 Facts About J.D. Vance**\
+`Mr. Vance spilled scores of details about his life in his coming-of-age memoir. We’ve collected the highlights.`\
+https://nytimes.com/2024/07/15/us/politics/27-facts-about-jd-vance.html
+
 **Anthony Davis' solid play for Team USA creates a tough question for Steve Kerr**\
 `Is Joel Embiid, a former NBA MVP, the right choice to start for Team USA? Right now, with Anthony Davis tearing it up, nothing is certain.`\
 https://nytimes.com/athletic/5639957/2024/07/15/anthony-davis-joel-embiid-steve-kerr-team-usa-olympics/
