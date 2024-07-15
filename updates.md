@@ -1,3 +1,11 @@
+**How a friendship with Donald Trump Jr. helped land J.D. Vance a spot on the Republican ticket.**\
+`By Sharon LaFraniere`\
+https://nytimes.com/2024/07/15/us/politics/how-a-friendship-with-donald-trump-jr-helped-land-jd-vance-a-spot-on-the-republican-ticket.html
+
+**Before a career in politics, J.D. Vance served in the Marine Corps.**\
+`By Thomas Gibbons-Neff`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/jd-vance-marine-corps
+
 **Terrell Davis, N.F.L. Hall of Famer, Says He Was Unjustly Detained on Flight**\
 `The former Denver Broncos running back said that he was handcuffed by the authorities on Saturday after he tapped a United Airlines flight attendant on the arm.`\
 https://nytimes.com/2024/07/15/business/terrell-davis-nfl-united-airlines.html
