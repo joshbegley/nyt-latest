@@ -1,3 +1,7 @@
+**Ryan Reynolds and Hugh Jackman on the Perks and Pitfalls of Playing Superheroes**\
+`The two friends have learned a lot about being the stewards of major pop-culture characters, an education that led them to “Deadpool & Wolverine.”`\
+https://nytimes.com/2024/07/15/movies/ryan-reynolds-hugh-jackman-deadpool-wolverine.html
+
 **California Today Will Soon Have a Different Look**\
 `Our California-focused newsletter will feature a curated collection of New York Times articles about the state.`\
 https://nytimes.com/2024/07/15/us/california-today-will-soon-have-a-different-look.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/health/100000009563946/about-our-investigation-into-co
 **Fires in Southern California Burn 20,000 Acres and Force Evacuations**\
 `In Kern and San Luis Obispo counties, multiple wildfires have forced over 1,000 evacuations and briefly shut down Interstate 5 on Sunday night.`\
 https://nytimes.com/2024/07/15/us/california-fires-evacuation-heat-wave.html
-
-**The R.N.C. Begins**\
-`The latest on the assassination attempt and presidential campaign — plus, an explanation of why childbirth has gotten so expensive.`\
-https://nytimes.com/2024/07/15/briefing/the-rnc-begins.html
 
