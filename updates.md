@@ -1,3 +1,7 @@
+**Trump says he revised his campaign speech in wake of shooting.**\
+`Speaking to The New York Post and The Washington Examiner on Sunday, Mr. Trump said that he had thrown out a “tough speech” he had planned to make at the convention.`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/trump-shot-interviews
+
 **Ukraine Battles to Contain Russian Advances Across the Front**\
 `Russian forces appear to have captured Urozhaine, a southern village taken back by Ukraine last summer. In the east, they are closing in on a key supply road.`\
 https://nytimes.com/2024/07/15/world/europe/ukraine-war-russia-advances.html

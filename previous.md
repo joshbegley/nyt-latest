@@ -1,3 +1,7 @@
+**Trump says he revised his campaign speech in wake of shooting.**\
+`Speaking to The New York Post and The Washington Examiner on Sunday, Mr. Trump said that he had thrown out a “tough speech” he had planned to make at the convention.`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/trump-shot-interviews
+
 **Ukraine Battles to Contain Russian Advances Across the Front**\
 `Russian forces appear to have captured Urozhaine, a southern village taken back by Ukraine last summer. In the east, they are closing in on a key supply road.`\
 https://nytimes.com/2024/07/15/world/europe/ukraine-war-russia-advances.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/15/podcasts/biden-trump-shooting-speech.html
 **The Attempted Assassination of Donald Trump**\
 `What we know about the shooting at a rally in Pennsylvania.`\
 https://nytimes.com/2024/07/15/podcasts/the-daily/trump-shooting.html
-
-**Wordle Review No. 1,123, Tuesday, July 16, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/15/crosswords/wordle-review-1123.html
 
