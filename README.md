@@ -1,6 +1,6 @@
 **A video shows people warning law enforcement about the gunman minutes before he fired at Trump.**\
 `By David Botti, Haley Willis and Malachy Browne`\
-https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/a-video-shows-people-warning-law-enforcement-about-the-gunman-minutes-before-he-fired-at-trump
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/trump-rally-crowd-gunman
 
 **Who Is Gabbriette? Meet the Model ‘Brat.’**\
 `Having spent her career on the cool-girl fringes, the model rocketed to mainstream fame with a high-profile engagement and a mention from Charli XCX.`\
