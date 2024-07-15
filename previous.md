@@ -1,3 +1,7 @@
+**Cannon’s Dismissal of Trump Case Rejects Precedents of Higher Courts**\
+`Her decision rejected what the Supreme Court said in a landmark ruling in 1974.`\
+https://nytimes.com/2024/07/15/us/politics/cannons-dismissal-of-trump-case-rejects-precedents-of-higher-courts.html
+
 **Fed’s Powell Welcomes Cooler Inflation but Steers Clear of Rate Cut Timing**\
 `Jerome H. Powell, the chair of the Federal Reserve, avoided signaling when the Fed would cut rates at a time when some economists are wondering why officials would wait.`\
 https://nytimes.com/2024/07/15/business/economy/federal-reserve-jerome-powell-interest-rate-cut-timing.html
