@@ -1,3 +1,7 @@
+**Senator Marco Rubio appears to be out of the running as Trump’s V.P. pick.**\
+`By Michael C. Bender, Maggie Haberman and Jonathan Swan`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/senator-marco-rubio-appears-to-be-out-of-the-running-as-trumps-vp-pick
+
 **Cannon’s Dismissal of Trump Case Rejects Precedents of Higher Courts**\
 `Her decision rejected what the Supreme Court said in a landmark ruling in 1974.`\
 https://nytimes.com/2024/07/15/us/politics/cannons-dismissal-of-trump-case-rejects-precedents-of-higher-courts.html
