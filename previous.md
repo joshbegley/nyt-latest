@@ -1,6 +1,14 @@
-**The judge in the case has made a series of unorthodox decisions.**\
+**Gambia Votes to Keep Ban on Female Genital Cutting, in Sharp Reversal**\
+`Lawmakers in the West African country had supported overturning the prohibition, but changed course on Monday after a vociferous campaign led by women.`\
+https://nytimes.com/2024/07/15/world/africa/gambia-ban-female-genital-cutting.html
+
+**A major legal threat against Trump is dismissed. Here’s the latest.**\
 `By Alan Feuer`\
-https://nytimes.com/live/2024/07/15/us/trump-documents-case-dismissed/judge-aileen-cannon-decisions
+https://nytimes.com/live/2024/07/15/us/trump-documents-case-dismissed/a-major-legal-threat-against-trump-is-dismissed-heres-the-latest
+
+**Judge Cannon’s Unusual Ruling Is Latest in a Series**\
+`Judge Cannon has shown a willingness to grant a serious audience to some of the former president’s most far-fetched defense claims.`\
+https://nytimes.com/2024/07/15/us/politics/judge-aileen-cannon-decisions.html
 
 **Spanish Police Find Body Where British Teenager Disappeared**\
 `Jay Slater disappeared on the Spanish island of Tenerife last month. A missing persons group said Monday that a body had been found with his possessions.`\
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/07/15/us/elections/times-siena-poll-pennsyl
 **Cross-Tabs: July 2024 Times/Siena Poll of the Likely Electorate in Pennsylvania**\
 `Results of a New York Times/Siena College poll conducted in Pennsylvania among 872 likely voters from July 9 to 11, 2024.`\
 https://nytimes.com/interactive/2024/07/15/us/elections/times-siena-poll-pennsylvania-likely-electorate-crosstabs.html
-
-**Cross-Tabs: July 2024 Times/Siena Poll of Registered Voters in Virginia**\
-`Results of a New York Times/Siena College poll conducted in Virginia among 661 registered voters from July 9 to 12, 2024.`\
-https://nytimes.com/interactive/2024/07/15/us/elections/times-siena-poll-virginia-registered-voter-crosstabs.html
-
-**Toplines: July 2024 Times/Siena Poll of Registered Voters in Virginia**\
-`Results of a New York Times/Siena College poll conducted in Virginia among 661 registered voters from July 9 to 12, 2024.`\
-https://nytimes.com/interactive/2024/07/15/us/elections/times-siena-poll-virginia-toplines.html
 
