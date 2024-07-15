@@ -30,8 +30,8 @@ https://nytimes.com/2024/07/15/crosswords/wordle-review-1123.html
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/15/crosswords/connections-companion-401.html
 
-**Israeli Military Struck Twice in Its Attack on Mawasi, Videos and Photos Show**\
-`Visual evidence from Saturday’s strike in Gaza that left dozens dead appears to show that a separate strike by the Israeli military hit near emergency vehicles.`\
+**China Will Host Senior Officials From Hamas and Fatah, Longtime Rivals**\
+`The meeting will come as talks about Gaza’s postwar governance take on greater urgency. Previous attempts to mediate between the two Palestinian factions have yielded few tangible results.`\
 https://nytimes.com/live/2024/07/15/world/israel-gaza-war-hamas
 
 **A ship in the Red Sea comes under attack, and other news.**\
