@@ -1,6 +1,6 @@
 **Russia Sentences U.S. Journalist in Absentia for Ukraine War Comments**\
 `Masha A. Gessen was found guilty of spreading “false information” and sentenced to eight years in prison over remarks made in 2022 about the Russian military.`\
-https://nytimes.com/2024/07/15/world/europe/russia-masha-gesson-prison.html
+https://nytimes.com/2024/07/15/world/europe/russia-masha-gessen-prison.html
 
 **Former Trump officials defend his immigration policies and vow to ‘take back the narrative.’**\
 `By Jazmine Ulloa and Hamed Aleaziz`\
