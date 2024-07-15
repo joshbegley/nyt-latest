@@ -1,3 +1,11 @@
+**Accepting Autism: A Sibling’s Perspective**\
+`We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Leela Uppaluri, age 16.`\
+https://nytimes.com/2024/07/15/learning/accepting-autism-a-siblings-perspective.html
+
+**Sizzling Day in North Dakota? Lately, It’s No Surprise.**\
+`At a county fair near Fargo, many residents shrugged off the heat, at least for one day.`\
+https://nytimes.com/2024/07/15/us/heat-wave-north-dakota-climate-change.html
+
 **Taylor Swift Breaks Her Own Record With a 12th Week at No. 1**\
 `Facing a tight battle with Zach Bryan, the pop superstar benefited from the release of three new versions of “The Tortured Poets Department” and shipments of CDs.`\
 https://nytimes.com/2024/07/15/arts/music/taylor-swift-zach-bryan-12-weeks-no-1.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/15/arts/dance/dance-neuroscience-body-brain-behavior
 **The meeting will come as talks about Gaza’s postwar governance take on greater urgency.**\
 `By Adam Rasgon and Vivian Wang`\
 https://nytimes.com/live/2024/07/15/world/israel-gaza-war-hamas/hamas-fatah-gaza
-
-**Manhunt in U.K. Ends With Murder Charges After Bodies Found in Suitcases**\
-`A grisly discovery last week in Bristol, England, led the police to a 34-year-old man who had stayed with the victims in London.`\
-https://nytimes.com/2024/07/15/world/europe/suitcase-murder-bristol-uk.html
-
-**About Our Investigation Into Cord Blood Banks**\
-`Some families pay thousands of dollars to store their children’s stem cells with the hope of a healthier future for them. But Sarah Kliff, an investigative health care reporter for The New York Times, explains that the cells are rarely useful and are sometimes contaminated.`\
-https://nytimes.com/video/health/100000009563946/about-our-investigation-into-cord-blood-banks.html
 
