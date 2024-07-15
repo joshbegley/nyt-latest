@@ -1,3 +1,11 @@
+**‘He’s Got a Gun!’: Witness Describes Watching Shooter Get Into Position**\
+`The man’s voice can be heard in a bystander video that has been repeatedly featured in news reports about the assassination attempt.`\
+https://nytimes.com/2024/07/15/us/politics/trump-gunman-witness-video.html
+
+**Biden Says It Was a Mistake to Say He Wanted to Put Trump in a ‘Bullseye’**\
+`In an interview with NBC’s Lester Holt, President Biden said he regretted using the word but defended his descriptions of the former president as a threat to democracy.`\
+https://nytimes.com/2024/07/15/us/politics/biden-2024-election-trump.html
+
 **J.D. Vance, a Man Who Understands Trump’s Worldview**\
 `He has long spoken the language of the Trump base.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/jd-vance-trump-vp
