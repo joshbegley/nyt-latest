@@ -1,3 +1,11 @@
+**J.D. Vance Was Not Always His Name. But It’s the One That Felt Closest to Home.**\
+`James David Vance has had a number of names in his life, a function of an upbringing marked by domestic instability.`\
+https://nytimes.com/2024/07/15/us/politics/jd-vance-name.html
+
+**Why Everything Bagel Seasoning Was Banned in South Korea**\
+`The seasoning is sold by Trader Joe’s, a brand whose popularity has skyrocketed in the region in recent years.`\
+https://nytimes.com/2024/07/15/world/asia/south-korea-everything-bagel-seasoning.html
+
 **Trial to Decide N.R.A.’s Financial Future Begins in Manhattan**\
 `Attorney General Letitia James wants a monitor appointed to oversee the gun group’s accounts after millions in misspending.`\
 https://nytimes.com/2024/07/15/nyregion/nra-corruption-trial-ny.html
