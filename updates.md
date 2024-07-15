@@ -1,3 +1,19 @@
+**J.D. Vance Is Closely Aligned With Trump on Key Issues**\
+`Like Donald J. Trump, the Ohio senator has been skeptical of American intervention overseas and argues that raising tariffs will create new jobs.`\
+https://nytimes.com/2024/07/15/us/politics/jd-vance-abortion-immigration-issues.html
+
+**‘Hillbilly Elegy’ Gets a Blockbuster Sequel**\
+`Our critic traces J.D. Vance’s shift from bootstrap memoirist to vice-presidential candidate.`\
+https://nytimes.com/2024/07/15/books/review/jd-vance-vice-president-donald-trump-hillbilly-elegy.html
+
+**J.D. Vance Is Trump’s Gift to the Most Extreme MAGA Faithful**\
+`Trump saw no need to venture out of his comfort zone of conservative white guys.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-vance-vp-pick
+
+**From Skeptic to Superfan: J.D. Vance’s Turnabout on Trump**\
+`He once called Donald Trump “cultural heroin” and said he feared he could be “America’s Hitler.” But over an eight-year transformation, the Ohio senator became one of his most ardent supporters.`\
+https://nytimes.com/2024/07/15/us/jd-vance-quotes-donald-trump.html
+
 **What to Know About J.D. Vance, Trump’s Running Mate**\
 `The 39-year-old from Ohio was best known as the author of the memoir “Hillbilly Elegy” before his election to the Senate in 2022.`\
 https://nytimes.com/2024/07/15/us/politics/who-is-jd-vance-trump-vp.html
