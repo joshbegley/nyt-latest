@@ -1,3 +1,15 @@
+**‘She Was a Rebel’: Co-Stars Remember Shannen Doherty**\
+`Tori Spelling, Rose McGowan, Alyssa Milano and fans of Ms. Doherty shared tributes to the actress who died on Saturday.`\
+https://nytimes.com/2024/07/15/style/shannen-doherty-death-reactions.html
+
+**Terrell Davis 'humiliated' after incident with flight attendant**\
+`In a statement, United said the flight attendant has been removed from duty while the case is reviewed.`\
+https://nytimes.com/athletic/5639634/2024/07/15/terrell-davis-united-airlines-incident/
+
+**Fresno State coach stepping down over health concerns**\
+`Tim Skipper, Fresno State’s assistant head coach and linebackers coach, will serve as interim head coach for the 2024 season.`\
+https://nytimes.com/athletic/5639772/2024/07/15/fresno-state-coach-jeff-tedford-stepping-down-health-concerns/
+
 **Dismissal Brings New Scrutiny to Judge With a History of Unorthodox Decisions**\
 `Judge Aileen Cannon’s rulings in the documents case had fueled questions about favoritism and legal acumen even before she threw out the charges that Donald Trump had mishandled classified documents.`\
 https://nytimes.com/2024/07/15/us/politics/judge-aileen-cannon-trump-documents-case.html
