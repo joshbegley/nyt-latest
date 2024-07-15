@@ -1,3 +1,7 @@
+**What We Know About the Trump Rally Shooting Victims So far**\
+`One person was killed and two were critically injured. The victims, all adult men, include a longtime volunteer firefighter and a Marine Corps veteran.`\
+https://nytimes.com/2024/07/14/us/politics/victims-trump-shooting.html
+
 **What We Know About the Trump Rally Shooting Victims So Far**\
 `One person was killed and two were critically injured. The victims, all adult men, include a longtime volunteer firefighter and a Marine Corps veteran.`\
 https://nytimes.com/2024/07/14/us/politics/victims-trump-shooting.html
