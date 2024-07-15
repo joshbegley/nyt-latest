@@ -1,3 +1,11 @@
+**Israel in Talks Over Withdrawing From Egypt-Gaza Border, Officials Say**\
+`The discussions between Israeli and Egyptian officials comes amid diplomatic activity on several continents over a cease-fire deal and postwar plans for the territory.`\
+https://nytimes.com/2024/07/15/world/middleeast/israel-egypt-gaza-border.html
+
+**Few Lawmakers Called for Tougher Gun Laws After Trump Shooting**\
+`Unlike after many mass shootings, there has been no concerted outcry from elected officials to implement stricter gun safety measures.`\
+https://nytimes.com/2024/07/15/us/politics/gun-laws-trump-shooting.html
+
 **After the assassination attempt on Trump, few lawmakers called for tougher gun laws.**\
 `By Annie Karni`\
 https://nytimes.com/live/2024/07/15/us/trump-shooting-investigation/trump-shooting-gun-laws
