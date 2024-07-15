@@ -6,9 +6,9 @@ https://nytimes.com/2024/07/15/us/politics/eileen-cannon-trump-classified-docume
 `Trump has talked of emphasizing “unity” after he survived an assassination attempt. The list features some of the most far-right members of the G.O.P.`\
 https://nytimes.com/2024/07/15/us/politics/rnc-speaker-schedule.html
 
-**A video shows people warning law enforcement about the gunman minutes before he fired at Trump.**\
-`By David Botti, Haley Willis and Malachy Browne`\
-https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/trump-rally-crowd-gunman
+**Video Shows Crowd Warning Law Enforcement About Gunman Before He Fired at Trump**\
+`People at the rally in Pennsylvania pointed to the suspected shooter two minutes before gunfire rang out, according to an analysis by The New York Times.`\
+https://nytimes.com/2024/07/15/us/politics/trump-rally-crowd-gunman.html
 
 **Who Is Gabbriette? Meet the Model ‘Brat.’**\
 `Having spent her career on the cool-girl fringes, the model rocketed to mainstream fame with a high-profile engagement and a mention from Charli XCX.`\
