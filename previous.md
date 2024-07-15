@@ -1,3 +1,7 @@
+**Trump Arrives in Milwaukee for Republican National Convention**\
+`Former President Donald J. Trump was filmed leaving his private jet just one day after surviving an assassination attempt during a political rally.`\
+https://nytimes.com/video/us/elections/100000009571460/trump-milwaukee-arrival.html
+
 **Monday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2024/07/15/briefing/trump-assassination-israel-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5637669/2024/07/14/angels-draft-tennessee-christian
 **Cardinals draft JJ Wetherholt with No. 7 pick: 'They’re getting a baller'**\
 `St.`\
 https://nytimes.com/athletic/5637514/2024/07/14/cardinals-draft-jj-wetherholt/
-
-**China’s Economy Slows Sharply as Housing Troubles Squeeze Spending**\
-`After a strong start to the year, spending has slumped as a real estate downturn weighs on consumers. Communist Party leaders are meeting this week to discuss what to do about it.`\
-https://nytimes.com/2024/07/14/business/chinas-gdp-q2.html
 

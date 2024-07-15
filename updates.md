@@ -1,3 +1,7 @@
+**Trump Arrives in Milwaukee for Republican National Convention**\
+`Former President Donald J. Trump was filmed leaving his private jet just one day after surviving an assassination attempt during a political rally.`\
+https://nytimes.com/video/us/elections/100000009571460/trump-milwaukee-arrival.html
+
 **Monday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2024/07/15/briefing/trump-assassination-israel-strike.html
