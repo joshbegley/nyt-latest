@@ -1,4 +1,4 @@
-**Friend Remembers Trump Rally Shooting Victim**\
+**Friend Remembers Victim of Trump Rally Shooting**\
 `Volunteer firefighters in Buffalo Township, Penn., held a memorial for their colleague, Corey Comperatore, who was fatally shot at the Trump rally.`\
 https://nytimes.com/video/us/elections/100000009571513/victims-trump-shooting.html
 
