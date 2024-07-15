@@ -1,3 +1,7 @@
+**Fires in Southern California Burn 20,000 Acres and Force Evacuations**\
+`In Kern and San Luis Obispo counties, multiple wildfires have forced over 1,000 evacuations and briefly shut down Interstate 5 on Sunday night.`\
+https://nytimes.com/2024/07/15/us/california-fires-evacuation-heat-wave.html
+
 **The R.N.C. Begins**\
 `The latest on the assassination attempt and presidential campaign — plus, an explanation of why childbirth has gotten so expensive.`\
 https://nytimes.com/2024/07/15/briefing/the-rnc-begins.html
