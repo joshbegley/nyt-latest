@@ -1,3 +1,7 @@
+**What Is Demolition Ranch, the YouTube Channel on the Gunman’s Shirt?**\
+`The gunman wore a T-shirt from a popular gun-themed YouTube channel. The creator said he was “just in disbelief.”`\
+https://nytimes.com/2024/07/15/us/politics/demolition-ranch-youtube-trump-shooting-suspect.html
+
 **WFAN taps Craig Carton to call 3 Yankees games in August**\
 `He'll be on during the series at home against the Texas Rangers from Aug. 9 - 11.`\
 https://nytimes.com/athletic/5639895/2024/07/15/craig-carton-yankees-wfan-rangers-series/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/us/elections/polls-president-minnesota.html
 **Election 2024 Polls: Virginia**\
 `See the latest election polls and polling averages for Virginia.`\
 https://nytimes.com/interactive/2024/us/elections/polls-president-virginia.html
-
-**Drop your questions here for the fantasy baseball mailbag**\
-`Dane Martinez is here to help you sort through all your fantasy baseball questions and concerns. Drop your questions here!`\
-https://nytimes.com/athletic/5639784/2024/07/15/drop-your-questions-here-for-the-fantasy-baseball-mailbag-10/
 
