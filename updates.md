@@ -1,3 +1,7 @@
+**Corrections: July 15, 2024**\
+`Corrections that appeared in print on July 15, 2024.`\
+https://nytimes.com/2024/07/14/pageoneplus/corrections-july-15-2024.html
+
 **What We Know About the Trump Rally Shooting Victims So far**\
 `One person was killed and two were critically injured. The victims, all adult men, include a longtime volunteer firefighter and a Marine Corps veteran.`\
 https://nytimes.com/2024/07/14/us/politics/victims-trump-shooting.html

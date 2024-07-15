@@ -1,3 +1,7 @@
+**Corrections: July 15, 2024**\
+`Corrections that appeared in print on July 15, 2024.`\
+https://nytimes.com/2024/07/14/pageoneplus/corrections-july-15-2024.html
+
 **What We Know About the Trump Rally Shooting Victims So far**\
 `One person was killed and two were critically injured. The victims, all adult men, include a longtime volunteer firefighter and a Marine Corps veteran.`\
 https://nytimes.com/2024/07/14/us/politics/victims-trump-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5633433/2024/07/14/southgate-england-judgment/
 **Astros' Ronel Blanco had a brilliant first half. Can he sustain it in the second?**\
 `“He’s been unbelievable,” third baseman Alex Bregman said of Blanco, who has become a bona fide starter. He has one of baseball's best ERAs.`\
 https://nytimes.com/athletic/5637315/2024/07/14/astros-ronel-blanco-first-half-success/
-
-**The Secret Service fears overreacting to unfounded bystander reports, former agents say.**\
-`By David A. Fahrenthold`\
-https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/the-secret-service-fears-overreacting-to-unfounded-bystander-reports-former-agents-say
 
