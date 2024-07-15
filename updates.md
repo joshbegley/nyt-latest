@@ -1,3 +1,15 @@
+**Ukraine Battles to Contain Russian Advances Across the Front**\
+`Russian forces appear to have captured Urozhaine, a southern village taken back by Ukraine last summer. In the east, they are closing in on a key supply road.`\
+https://nytimes.com/2024/07/15/world/europe/ukraine-war-russia-advances.html
+
+**‘You Think, So You Can Dance?’ Science Is on It.**\
+`The emerging field of dance neuroscience is finding that dance, with its multifaceted demands, engages the mind as intensively as the body.`\
+https://nytimes.com/2024/07/15/arts/dance/dance-neuroscience-body-brain-behavior.html
+
+**The meeting will come as talks about Gaza’s postwar governance take on greater urgency.**\
+`By Adam Rasgon and Vivian Wang`\
+https://nytimes.com/live/2024/07/15/world/israel-gaza-war-hamas/hamas-fatah-gaza
+
 **Manhunt in U.K. Ends With Murder Charges After Bodies Found in Suitcase**\
 `A grisly discovery last week in Bristol, England, led the police to a 34-year-old man who had stayed with the victims in London.`\
 https://nytimes.com/2024/07/15/world/europe/suitcase-murder-bristol-uk.html

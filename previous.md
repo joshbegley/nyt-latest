@@ -1,3 +1,15 @@
+**Ukraine Battles to Contain Russian Advances Across the Front**\
+`Russian forces appear to have captured Urozhaine, a southern village taken back by Ukraine last summer. In the east, they are closing in on a key supply road.`\
+https://nytimes.com/2024/07/15/world/europe/ukraine-war-russia-advances.html
+
+**‘You Think, So You Can Dance?’ Science Is on It.**\
+`The emerging field of dance neuroscience is finding that dance, with its multifaceted demands, engages the mind as intensively as the body.`\
+https://nytimes.com/2024/07/15/arts/dance/dance-neuroscience-body-brain-behavior.html
+
+**The meeting will come as talks about Gaza’s postwar governance take on greater urgency.**\
+`By Adam Rasgon and Vivian Wang`\
+https://nytimes.com/live/2024/07/15/world/israel-gaza-war-hamas/hamas-fatah-gaza
+
 **Manhunt in U.K. Ends With Murder Charges After Bodies Found in Suitcase**\
 `A grisly discovery last week in Bristol, England, led the police to a 34-year-old man who had stayed with the victims in London.`\
 https://nytimes.com/2024/07/15/world/europe/suitcase-murder-bristol-uk.html
@@ -26,12 +38,3 @@ https://nytimes.com/2024/07/15/podcasts/the-daily/trump-shooting.html
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/15/crosswords/wordle-review-1123.html
 
-**The Connections Companion No. 401, July 16, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/15/crosswords/connections-companion-401.html
-
-**China Will Host Senior Officials From Hamas and Fatah, Longtime Rivals**\
-`The meeting will come as talks about Gaza’s postwar governance take on greater urgency. Previous attempts to mediate between the two Palestinian factions have yielded few tangible results.`\
-https://nytimes.com/live/2024/07/15/world/israel-gaza-war-hamas
-
-**A ship in the Red Sea comes under attack, and other news.**\
