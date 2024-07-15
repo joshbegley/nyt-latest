@@ -1,3 +1,7 @@
+**With Help From His Judges, Trump Keeps Winning Legal Battles**\
+`By Jesse Wegman`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-cannon-documents-case
+
 **Video Shows Crowd Warning Law Enforcement About Gunman Before He Fired at Trump**\
 `People at the rally in Pennsylvania pointed to the suspected shooter two minutes before gunfire rang out, according to an analysis by The New York Times.`\
 https://nytimes.com/2024/07/15/us/politics/trump-rally-crowd-gunman.html
