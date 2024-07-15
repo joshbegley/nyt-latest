@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Jonathan Weisman`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/heres-the-latest
+
+**Northeast Braces for Dangerous Heat and Humidity**\
+`Forecasters said that temperatures could feel more like 100 degrees in parts of New Jersey and New York City on Monday and into the mid and upper 90s for the rest of the region.`\
+https://nytimes.com/2024/07/15/weather/heat-advisory-forecast-northeast.html
+
 **The Book Bag That Binds Japanese Society**\
 `No rule requires Japan’s elementary school students to wear the boxy, bulky backpack known as the randoseru. But for nearly 150 years, nearly all of them have.`\
 https://nytimes.com/2024/07/15/world/asia/japan-randoseru-backpack.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/15/opinion/democrats-west-wing.html
 **After Eight Turbulent Years, A.C.L.U.’s Legal Director to Step Down**\
 `As the Supreme Court veered to the right, David D. Cole oversaw hundreds of lawsuits against the Trump administration and helped secure more wins than losses before the justices.`\
 https://nytimes.com/2024/07/15/us/aclu-david-cole.html
-
-**The Art Critic Who Changed Many Tastes, Including His Own**\
-`Peter Schjeldahl’s final book collects the essays and reviews he wrote in the years after a cancer diagnosis.`\
-https://nytimes.com/2024/07/15/books/review/peter-schjeldahl-art-of-dying.html
-
-**Is It Too Late to Save the Southern Grasslands?**\
-`Southern grassland ecosystems, and nearly all the plants and animals they supported, are gone. There is hope of bringing some of them back to life.`\
-https://nytimes.com/2024/07/15/opinion/saving-southern-grasslands.html
 
