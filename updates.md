@@ -1,3 +1,15 @@
+**Terrell Davis, N.F.L. Hall of Famer, Says He Was Unjustly Detained on Flight**\
+`The former Denver Broncos running back said that he was handcuffed by the authorities on Saturday after he tapped a United Airlines flight attendant on the arm.`\
+https://nytimes.com/2024/07/15/business/terrell-davis-nfl-united-airlines.html
+
+**Before a career in politics, J.D. Vance had a brief stint in the Marine Corps.**\
+`By Thomas Gibbons-Neff`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/jd-vance-marine-corps
+
+**Judge in Young Thug Trial Is Ordered Off the Case**\
+`Judge Ural Glanville, who had overseen the case for more than two years, must step aside for meeting with prosecutors and a key witness without the defense.`\
+https://nytimes.com/2024/07/15/arts/music/young-thug-trial-judge-removed.html
+
 **J.D. Vance Was Not Always His Name. But It’s the One That Felt Closest to Home.**\
 `James David Vance has had a number of names in his life, a function of an upbringing marked by domestic instability.`\
 https://nytimes.com/2024/07/15/us/politics/jd-vance-name.html
