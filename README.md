@@ -1,3 +1,15 @@
+**Fed’s Powell Welcomes Cooler Inflation but Steers Clear of Rate Cut Timing**\
+`Jerome H. Powell, the chair of the Federal Reserve, avoided signaling when the Fed would cut rates at a time when some economists are wondering why officials would wait.`\
+https://nytimes.com/2024/07/15/business/economy/federal-reserve-jerome-powell-interest-rate-cut-timing.html
+
+**Jacqueline de Jong, Rediscovered Avant-Garde Artist, Dies at 85**\
+`A Dutch painter, sculptor and engraver, she worked in experimental mediums, founded an influential multidisciplinary journal and enjoyed a late-career resurgence.`\
+https://nytimes.com/2024/07/15/arts/jacqueline-de-jong-dead.html
+
+**Political Violence and Guns in America**\
+`Readers discuss heated rhetoric, lax gun laws, a security failure and more. Also: Tips for college; seeking common ground in a dialogue.`\
+https://nytimes.com/2024/07/15/opinion/trump-political-violence-guns.html
+
 **How to Watch Biden’s NBC Interview**\
 `The interview, which will be broadcast unedited, was planned before the assassination attempt against former President Donald J. Trump.`\
 https://nytimes.com/2024/07/15/us/politics/biden-interivew-lester-holt-nbc-time.html
