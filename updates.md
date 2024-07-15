@@ -1,3 +1,7 @@
+**Spain's Euro 2024 success built around Basque core of Oyarzabal, Williams and Merino**\
+`Goals from Mikel Oyarzabal and Nico Williams a reminder that there's plenty of life in Spain outside Real Madrid and Barcelona`\
+https://nytimes.com/athletic/5636758/2024/07/14/spain-basque-euro-2024-williams-merino-oyarzabal/
+
 **Get to know Pirates first-round pick Konnor Griffin, who is speeding towards the big leagues**\
 `Griffin, the first high school player selected, went No. 9 overall to the Pirates. He stole 87 bases his senior season at Jackson Prep.`\
 https://nytimes.com/athletic/5610398/2024/07/14/konnor-griffin-mlb-draft-pirates/
