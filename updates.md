@@ -1,3 +1,15 @@
+**Pakistan Says It Will Ban Party of Jailed Former Leader Imran Khan**\
+`The move was widely seen as the latest effort by a weak governing coalition to squash Mr. Khan’s political popularity.`\
+https://nytimes.com/2024/07/15/world/asia/pakistan-ban-khan.html
+
+**The New Calculus for Democrats and Donors: Is Trump Unbeatable?**\
+`The shooting of Donald Trump has galvanized his campaign, prompted Elon Musk to endorse him and forced Democrats to rethink plans to oust President Biden.`\
+https://nytimes.com/2024/07/15/business/dealbook/trump-assassination-election-democrats.html
+
+**Trump Says He’s Revised His Convention Speech in Wake of Shooting**\
+`Speaking to The New York Post and The Washington Examiner, Mr. Trump said he had thrown out a “tough speech” he had planned to make at the Republican National Convention.`\
+https://nytimes.com/2024/07/15/us/politics/trump-shot-interviews.html
+
 **At the Republican National Convention, Climate Change Isn’t a Problem**\
 `As the event opens with a focus on energy, former President Trump and other leaders are calling for more oil, gas and coal development.`\
 https://nytimes.com/2024/07/15/climate/republicans-climate-change-fossil-fuels.html

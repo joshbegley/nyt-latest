@@ -8,7 +8,7 @@ https://nytimes.com/2024/07/15/climate/republicans-climate-change-fossil-fuels.h
 
 **Judge Dismisses Classified Documents Case Against Trump**\
 `Judge Aileen Cannon ruled that the entire case should be thrown out because the appointment of the special counsel who brought the case, Jack Smith, had violated the Constitution. Her decision is sure to be appealed.`\
-https://nytimes.com/2024/07/15/us/politics/trump-document-case-dismissed.html
+https://nytimes.com/live/2024/07/15/us/trump-documents-case-dismissed/trump-document-case-dismissed
 
 **Accepting Autism: A Sibling’s Perspective**\
 `We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Leela Uppaluri, age 16.`\
