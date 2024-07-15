@@ -34,7 +34,7 @@ https://nytimes.com/2024/07/15/arts/television/whats-on-tv-this-week.html
 `The group discusses the former president, the 2024 election, race and more.`\
 https://nytimes.com/interactive/2024/07/15/opinion/focus-group-black-men-trump-voters.html
 
-**Trump Arrives in Milwaukee for Republican National Convention**\
-`Former President Donald J. Trump was filmed leaving his private jet just one day after surviving an assassination attempt during a political rally.`\
-https://nytimes.com/video/us/elections/100000009571460/trump-milwaukee-arrival.html
+**Padres reinforce affinity for high school talent, draft Kash Mayfield at No. 25**\
+`After selecting the two-time Oklahoma Player of the Year, the Padres picked another high school lefty, Boston Bateman.`\
+https://nytimes.com/athletic/5637888/2024/07/15/padres-mlb-draft-kash-mayfield-boston-bateman/
 
