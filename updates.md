@@ -1,3 +1,7 @@
+**Biden Calls J.D. Vance a Trump ‘Clone’ as Democrats Label Him an Extremist**\
+`Democrats quickly went on the attack against the newly anointed Republican vice-presidential nominee, calling out what they called his “extreme MAGA agenda.”`\
+https://nytimes.com/2024/07/15/us/politics/democrats-jd-vance.html
+
 **What is the appointments clause of the Constitution?**\
 `By Tim Balk`\
 https://nytimes.com/live/2024/07/15/us/trump-documents-case-dismissed/appointments-clause-constitution-trump

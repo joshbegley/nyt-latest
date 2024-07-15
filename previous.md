@@ -1,3 +1,7 @@
+**Biden Calls J.D. Vance a Trump ‘Clone’ as Democrats Label Him an Extremist**\
+`Democrats quickly went on the attack against the newly anointed Republican vice-presidential nominee, calling out what they called his “extreme MAGA agenda.”`\
+https://nytimes.com/2024/07/15/us/politics/democrats-jd-vance.html
+
 **What is the appointments clause of the Constitution?**\
 `By Tim Balk`\
 https://nytimes.com/live/2024/07/15/us/trump-documents-case-dismissed/appointments-clause-constitution-trump
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/15/arts/television/kite-man-harley-quinn.html
 **Giroud officially announces retirement from international football**\
 `France&#8217;s all-time leading scorer, Olivier Giroud, has officially announced his retirement from international football.`\
 https://nytimes.com/athletic/5639854/2024/07/15/olivier-giroud-france-retire/
-
-**What is Unrivaled? A new league that promises high pay and big stars**\
-`Who's the latest star player to sign with the league that will be played in the WNBA offseason?`\
-https://nytimes.com/athletic/5639682/2024/07/15/unrivaled-kelsey-plum-wnba-league/
 
