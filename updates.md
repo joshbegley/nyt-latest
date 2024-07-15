@@ -1,3 +1,7 @@
+**Donald Trump, Man of Destiny**\
+`He is a figure touched by the gods of fortune in a way that transcends the normal rules of politics.`\
+https://nytimes.com/2024/07/15/opinion/donald-trump-assassination-destiny.html
+
 **Biden Says It Was a Mistake to Say He Wanted to Put Trump in a ‘Bull’s-eye’**\
 `In an interview with NBC’s Lester Holt, President Biden said he regretted using the word but defended his descriptions of the former president as a threat to democracy.`\
 https://nytimes.com/2024/07/15/us/politics/biden-2024-election-trump.html

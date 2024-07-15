@@ -1,3 +1,7 @@
+**Donald Trump, Man of Destiny**\
+`He is a figure touched by the gods of fortune in a way that transcends the normal rules of politics.`\
+https://nytimes.com/2024/07/15/opinion/donald-trump-assassination-destiny.html
+
 **‘He’s Got a Gun!’: Witness Describes Watching Shooter Get Into Position**\
 `The man’s voice can be heard in a bystander video that has been repeatedly featured in news reports about the assassination attempt.`\
 https://nytimes.com/2024/07/15/us/politics/trump-gunman-witness-video.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/15/us/trump-documents-case-dismissed/appointmen
 **Wolves to file complaint over alleged racist remark aimed at Hwang**\
 `Wolverhampton Wanderers say they will be submitting a formal complaint to UEFA following an alleged racist remark made towards Hwang Hee-chan during Monday’s pre-season match against Como 1907.`\
 https://nytimes.com/athletic/5639943/2024/07/15/hwang-wolves-racist-abuse/
-
-**Trump Weighed Pros and Cons of His V.P. Selection Until Last Minute**\
-`Even as the former president and his team flew Sunday on his private plane from Bedminster, N.J., to Milwaukee, Mr. Trump was said to have peppered aides and family members about his choice.`\
-https://nytimes.com/2024/07/15/us/politics/trump-vp-vance-burgum-rubio.html
 
