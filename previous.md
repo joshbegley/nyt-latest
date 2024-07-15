@@ -1,3 +1,7 @@
+**Republicans Place Shooting in Trump’s Narrative of Persecution**\
+`Even without a known motive, Donald J. Trump’s allies are casting the attempt on his life as part of the story of oppression at the heart of this campaign.`\
+https://nytimes.com/2024/07/14/us/politics/donald-trump-shooting-campaign-2024.html
+
 **Spain's Euro 2024 success built around Basque core of Oyarzabal, Williams and Merino**\
 `Goals from Mikel Oyarzabal and Nico Williams a reminder that there's plenty of life in Spain outside Real Madrid and Barcelona`\
 https://nytimes.com/athletic/5636758/2024/07/14/spain-basque-euro-2024-williams-merino-oyarzabal/
@@ -34,8 +38,4 @@ https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/the-secret-serv
 `Follow the latest from the Copa America final between Argentina and Colombia
 The kick-off for the Copa America final was delayed after chaotic and dangerous scenes saw thousands of supporters prevented from entering Hard Rock Stadium in Miami for the game.`\
 https://nytimes.com/athletic/5637296/2024/07/14/copa-america-final-fans-tickets/
-
-**Gunman Is Said to Have Acted Alone, but Motives Remain Unclear**\
-`The 20-year-old man from Pennsylvania who wounded former President Donald Trump left behind little social media presence or clues to what led him to open fire. Officials said he had no known history of mental illness.`\
-https://nytimes.com/2024/07/14/us/politics/trump-gunman-investigation.html
 

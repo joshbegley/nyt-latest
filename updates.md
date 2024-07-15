@@ -1,3 +1,7 @@
+**Republicans Place Shooting in Trump’s Narrative of Persecution**\
+`Even without a known motive, Donald J. Trump’s allies are casting the attempt on his life as part of the story of oppression at the heart of this campaign.`\
+https://nytimes.com/2024/07/14/us/politics/donald-trump-shooting-campaign-2024.html
+
 **Spain's Euro 2024 success built around Basque core of Oyarzabal, Williams and Merino**\
 `Goals from Mikel Oyarzabal and Nico Williams a reminder that there's plenty of life in Spain outside Real Madrid and Barcelona`\
 https://nytimes.com/athletic/5636758/2024/07/14/spain-basque-euro-2024-williams-merino-oyarzabal/
