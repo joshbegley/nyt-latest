@@ -1,3 +1,11 @@
+**What is the appointments clause of the Constitution?**\
+`By Tim Balk`\
+https://nytimes.com/live/2024/07/15/us/trump-documents-case-dismissed/appointments-clause-constitution-trump
+
+**Wolves to file complaint over alleged racist remark aimed at Hwang**\
+`Wolverhampton Wanderers say they will be submitting a formal complaint to UEFA following an alleged racist remark made towards Hwang Hee-chan during Monday’s pre-season match against Como 1907.`\
+https://nytimes.com/athletic/5639943/2024/07/15/hwang-wolves-racist-abuse/
+
 **Trump Weighed Pros and Cons of His V.P. Selection Until Last Minute**\
 `Even as the former president and his team flew Sunday on his private plane from Bedminster, N.J., to Milwaukee, Mr. Trump was said to have peppered aides and family members about his choice.`\
 https://nytimes.com/2024/07/15/us/politics/trump-vp-vance-burgum-rubio.html
