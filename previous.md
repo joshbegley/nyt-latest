@@ -1,3 +1,11 @@
+**With Rivals Restricted, Kagame Looks Set for Another Term in Rwanda**\
+`The Central African nation is voting on a potential fourth term for President Paul Kagame. Opposition figures say they have been threatened and arbitrarily detained.`\
+https://nytimes.com/2024/07/15/world/africa/with-rivals-restricted-kagame-looks-set-for-another-term-in-rwanda.html
+
+**China Is Holding a Major Meeting on the Economy That You Can’t Watch**\
+`President Xi Jinping will preside over a conclave to draft a new economic program. The stakes are high, but expectations for big changes are modest.`\
+https://nytimes.com/2024/07/15/business/china-economy-third-plenum.html
+
 **Biden Asks America to ‘Lower the Temperature’**\
 `President Biden’s speech, delivered from the Oval Office, came just a day after the attempted assassination of former President Donald J. Trump, and a day before the Republican National Convention was set to begin.`\
 https://nytimes.com/video/us/elections/100000009571368/biden-trump-unity.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/14/pageoneplus/corrections-july-15-2024.html
 **What We Know About the Trump Rally Shooting Victims So far**\
 `One person was killed and two were critically injured. The victims, all adult men, include a longtime volunteer firefighter and a Marine Corps veteran.`\
 https://nytimes.com/2024/07/14/us/politics/victims-trump-shooting.html
-
-**Republicans Place Shooting in Trump’s Narrative of Persecution**\
-`Even without a known motive, Donald J. Trump’s allies are casting the attempt on his life as part of the story of oppression at the heart of this campaign.`\
-https://nytimes.com/2024/07/14/us/politics/donald-trump-shooting-campaign-2024.html
-
-**Spain's Euro 2024 success built around Basque core of Oyarzabal, Williams and Merino**\
-`Goals from Mikel Oyarzabal and Nico Williams a reminder that there's plenty of life in Spain outside Real Madrid and Barcelona`\
-https://nytimes.com/athletic/5636758/2024/07/14/spain-basque-euro-2024-williams-merino-oyarzabal/
 

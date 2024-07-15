@@ -1,3 +1,11 @@
+**With Rivals Restricted, Kagame Looks Set for Another Term in Rwanda**\
+`The Central African nation is voting on a potential fourth term for President Paul Kagame. Opposition figures say they have been threatened and arbitrarily detained.`\
+https://nytimes.com/2024/07/15/world/africa/with-rivals-restricted-kagame-looks-set-for-another-term-in-rwanda.html
+
+**China Is Holding a Major Meeting on the Economy That You Can’t Watch**\
+`President Xi Jinping will preside over a conclave to draft a new economic program. The stakes are high, but expectations for big changes are modest.`\
+https://nytimes.com/2024/07/15/business/china-economy-third-plenum.html
+
 **China’s Economy Slows Sharply as Housing Troubles Squeeze Spending**\
 `After a strong start to the year, spending has slumped as a real estate downturn weighs on consumers. Communist Party leaders are meeting this week to discuss what to do about it.`\
 https://nytimes.com/2024/07/14/business/chinas-gdp-q2.html
