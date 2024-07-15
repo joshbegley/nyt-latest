@@ -1,3 +1,7 @@
+**Manhunt in U.K. Ends With Murder Charges After Bodies Found in Suitcases**\
+`A grisly discovery last week in Bristol, England, led the police to a 34-year-old man who had stayed with the victims in London.`\
+https://nytimes.com/2024/07/15/world/europe/suitcase-murder-bristol-uk.html
+
 **The New Calculus for Democrats and Donors: Is Trump Unbeatable?**\
 `The shooting of Donald Trump has galvanized his campaign, prompted Elon Musk to endorse him and forced Democrats rethink plans to oust President Biden.`\
 https://nytimes.com/2024/07/15/business/dealbook/trump-assassination-election-democrats.html
