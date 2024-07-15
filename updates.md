@@ -1,3 +1,11 @@
+**Argentina beats Colombia to win record-breaking Copa America title**\
+`A Lionel Messi-less Argentina beat Colombia to win a record-breaking 16th Copa America title after a dramatic final in Miami.`\
+https://nytimes.com/athletic/5637691/2024/07/15/argentina-colombia-result-copa-america-final/
+
+**Euro 2024 review: Player of the tournament, goal of the tournament and best team to watch**\
+`Euro 2024 is over, but the key moments will last forever - here are the highlights from The Athletic's writers`\
+https://nytimes.com/athletic/5636547/2024/07/15/euro-2024-review-best-player-goal-team/
+
 **The myth of the Home Run Derby hangover: Why second-half slumps don't mean it's a curse**\
 `Peter Keating and Jordan Brenner explain why the Home Run Derby curse isn't actually a curse at all.`\
 https://nytimes.com/athletic/5633957/2024/07/15/myth-home-run-derby-hangover/

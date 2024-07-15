@@ -14,6 +14,14 @@ https://nytimes.com/interactive/2024/07/15/opinion/focus-group-black-men-trump-v
 `Former President Donald J. Trump was filmed leaving his private jet just one day after surviving an assassination attempt during a political rally.`\
 https://nytimes.com/video/us/elections/100000009571460/trump-milwaukee-arrival.html
 
+**Argentina beats Colombia to win record-breaking Copa America title**\
+`A Lionel Messi-less Argentina beat Colombia to win a record-breaking 16th Copa America title after a dramatic final in Miami.`\
+https://nytimes.com/athletic/5637691/2024/07/15/argentina-colombia-result-copa-america-final/
+
+**Euro 2024 review: Player of the tournament, goal of the tournament and best team to watch**\
+`Euro 2024 is over, but the key moments will last forever - here are the highlights from The Athletic's writers`\
+https://nytimes.com/athletic/5636547/2024/07/15/euro-2024-review-best-player-goal-team/
+
 **Monday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2024/07/15/briefing/trump-assassination-israel-strike.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/15/world/middleeast/15mideast-crisis-mawasi.html
 **With Rivals Restricted, Kagame Looks Set for Another Term in Rwanda**\
 `The Central African nation is voting on a potential fourth term for President Paul Kagame. Opposition figures say they have been threatened and arbitrarily detained.`\
 https://nytimes.com/2024/07/15/world/africa/rwanda-election-kagame.html
-
-**China Is Holding a Major Meeting on the Economy That You Can’t Watch**\
-`President Xi Jinping is presiding over a conclave to draft a new economic program. The stakes are high, but expectations for big changes are modest.`\
-https://nytimes.com/2024/07/15/business/china-economy-third-plenum.html
-
-**The myth of the Home Run Derby hangover: Why second-half slumps don't mean it's a curse**\
-`Peter Keating and Jordan Brenner explain why the Home Run Derby curse isn't actually a curse at all.`\
-https://nytimes.com/athletic/5633957/2024/07/15/myth-home-run-derby-hangover/
 
