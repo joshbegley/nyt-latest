@@ -1,3 +1,7 @@
+**Don’t Lose Sight of Project 2025. That’s the Real Trump.**\
+`Expanding the frontiers of political cronyism.`\
+https://nytimes.com/2024/07/15/opinion/trump-project-2025.html
+
 **Russia Sentences U.S. Journalist in Absentia for Ukraine War Comments**\
 `Masha A. Gessen was found guilty of spreading “false information” and sentenced to eight years in prison over remarks made in 2022 about the Russian military.`\
 https://nytimes.com/2024/07/15/world/europe/russia-masha-gessen-prison.html
