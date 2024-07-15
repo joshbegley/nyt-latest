@@ -19,7 +19,7 @@ https://nytimes.com/2024/07/15/world/middleeast/15mideast-crisis-mawasi.html
 https://nytimes.com/2024/07/15/world/africa/with-rivals-restricted-kagame-looks-set-for-another-term-in-rwanda.html
 
 **China Is Holding a Major Meeting on the Economy That You Can’t Watch**\
-`President Xi Jinping will preside over a conclave to draft a new economic program. The stakes are high, but expectations for big changes are modest.`\
+`President Xi Jinping is presiding over a conclave to draft a new economic program. The stakes are high, but expectations for big changes are modest.`\
 https://nytimes.com/2024/07/15/business/china-economy-third-plenum.html
 
 **Biden Asks America to ‘Lower the Temperature’**\

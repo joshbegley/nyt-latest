@@ -1,3 +1,7 @@
+**China Is Holding a Major Meeting on the Economy That You Can’t Watch**\
+`President Xi Jinping is presiding over a conclave to draft a new economic program. The stakes are high, but expectations for big changes are modest.`\
+https://nytimes.com/2024/07/15/business/china-economy-third-plenum.html
+
 **Trump Arrives in Milwaukee for Republican National Convention**\
 `Former President Donald J. Trump was filmed leaving his private jet just one day after surviving an assassination attempt during a political rally.`\
 https://nytimes.com/video/us/elections/100000009571460/trump-milwaukee-arrival.html
