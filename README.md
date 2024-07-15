@@ -1,3 +1,7 @@
+**China’s Economy Slows as Housing Troubles Squeeze Spending**\
+`After a strong start to the year, spending has weakened as a real estate downturn weighs on consumers and companies. Communist Party leaders are meeting this week to discuss what to do about it.`\
+https://nytimes.com/2024/07/14/business/chinas-gdp-q2.html
+
 **‘House of the Dragon’ Season 2, Episode 5 Recap: The Eye Has It**\
 `Prince Aemond makes a move — another move, that is, after the one where he blasted his own brother with dragonfire.`\
 https://nytimes.com/2024/07/14/arts/television/house-of-the-dragon-recap-episode-5.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/14/us/trump-shooting-news-biden/blackrock-ad-tr
 **Reds select Wake Forest pitcher Chase Burns with the second pick in the 2024 MLB Draft**\
 `Burns, 21, was 10-1 with a 2.70 ERA in 16 starts for the Demon Deacons after transferring from Tennessee.`\
 https://nytimes.com/athletic/5637408/2024/07/14/chase-burns-reds-wake-forest-draft/
-
-**It is judgment time for Southgate even if basing it on this final or Spain's superiority is tough**\
-`What we want from finals is definitive judgments, even if the messy nature of any football match makes them almost impossible to draw`\
-https://nytimes.com/athletic/5633433/2024/07/14/southgate-england-judgment/
 
