@@ -1,3 +1,7 @@
+**Robert F. Kennedy Jr. Meets With Trump at the R.N.C.**\
+`The political rivals met just hours before Republicans formally named Donald J. Trump their presidential nominee, and as Mr. Kennedy was set to receive Secret Service protection in the wake of the assassination attempt on Mr. Trump.`\
+https://nytimes.com/2024/07/15/us/politics/rfk-jr-trump-rnc.html
+
 **Donald Trump, Man of Destiny**\
 `He is a figure touched by the gods of fortune in a way that transcends the normal rules of politics.`\
 https://nytimes.com/2024/07/15/opinion/donald-trump-assassination-destiny.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/15/us/politics/democrats-jd-vance.html
 **What is the appointments clause of the Constitution?**\
 `By Tim Balk`\
 https://nytimes.com/live/2024/07/15/us/trump-documents-case-dismissed/appointments-clause-constitution-trump
-
-**Wolves to file complaint over alleged racist remark aimed at Hwang**\
-`Wolverhampton Wanderers say they will be submitting a formal complaint to UEFA following an alleged racist remark made towards Hwang Hee-chan during Monday’s pre-season match against Como 1907.`\
-https://nytimes.com/athletic/5639943/2024/07/15/hwang-wolves-racist-abuse/
 
