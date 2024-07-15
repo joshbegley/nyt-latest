@@ -1,5 +1,5 @@
 **When Even an Assassination Attempt Becomes a Concert Tee**\
-`Hours after the attempt on Donald Trump’s Life, the merch arrived.`\
+`Hours after the attempt on Donald Trump’s life, the merch arrived.`\
 https://nytimes.com/2024/07/15/style/trump-shooting-image-t-shirts.html
 
 **Do You Know These Movies Based on Shakespeare’s Plays?**\
