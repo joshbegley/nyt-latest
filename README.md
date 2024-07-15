@@ -1,3 +1,7 @@
+**Investigators Unlock Gunman’s Phone in Search of Motive for Trump Shooting**\
+`The F.B.I. said it had gained access to the would-be assassin’s phone, but it was not immediately clear whether it had yielded clues.`\
+https://nytimes.com/2024/07/15/us/politics/trump-shooting-fbi-gunman-phone.html
+
 **The Good Mood in Milwaukee**\
 `The way Republicans at the national convention see it, somehow, everything is going their way.`\
 https://nytimes.com/2024/07/15/us/politics/rnc-trump-vance-milwaukee.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/15/world/europe/ukraine-jd-vance.html
 **Kamala Harris Is Ready to Debate J.D. Vance, Biden Campaign Says**\
 `The vice president also offered her congratulations to the Ohio senator, Donald Trump’s running mate pick.`\
 https://nytimes.com/2024/07/15/us/politics/kamala-harris-jd-vance-debate.html
-
-**Robert F. Kennedy Jr. Meets With Trump at the R.N.C.**\
-`The political rivals met just hours before Republicans formally named Donald J. Trump their presidential nominee, and as Mr. Kennedy was set to receive Secret Service protection in the wake of the assassination attempt on Mr. Trump.`\
-https://nytimes.com/2024/07/15/us/politics/rfk-jr-trump-rnc.html
 
