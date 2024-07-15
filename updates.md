@@ -1,3 +1,7 @@
+**U.A.W. Says Lax Enforcement of Trade Deal Has Cost U.S. Jobs**\
+`The Biden administration declined to pursue a union complaint of labor abuses in Mexico, raising new concerns about offshoring.`\
+https://nytimes.com/2024/07/15/business/economy/uaw-usmca-mexico-trade-caterpillar.html
+
 **Read the Ruling That Dismisses the Documents Case Against Trump**\
 `Judge Aileen Cannon ruled that the classified documents case against former president Donald J. Trump should be thrown out because the appointment of the special counsel violated the Constitution.`\
 https://nytimes.com/interactive/2024/07/15/us/trump-documents.html
