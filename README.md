@@ -1,3 +1,7 @@
+**With Help From His Judges, Trump Keeps Winning Legal Battles**\
+`By Jesse Wegman`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-cannon-documents-case
+
 **Trump’s Case Put the Judge, Aileen Cannon, Under a Spotlight**\
 `Before she was assigned Donald J. Trump’s classified documents case, she had little experience with criminal trials, and her impartiality came into question early on.`\
 https://nytimes.com/2024/07/15/us/politics/eileen-cannon-trump-classified-documents-judge.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/15/style/trump-shooting-image-t-shirts.html
 **Do You Know These Movies Based on Shakespeare’s Plays?**\
 `Try this short quiz on modern films that drew their inspiration from classic works written for the stage hundreds of years ago.`\
 https://nytimes.com/interactive/2024/07/15/books/review/shakespeare-adaptations-quiz.html
-
-**A Motorcycle Museum, Elite Dinners and Jason Aldean: G.O.P. Donors Get Ready to Party**\
-`Political conventions are positioned as a reward of sorts for hard work — and the hard cash invested by contributors and fund-raisers.`\
-https://nytimes.com/2024/07/15/us/politics/trump-donors-rnc-milwaukee.html
 
