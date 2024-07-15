@@ -1,3 +1,7 @@
+**Political Violence May Be Un-American, but It Is Not Uncommon**\
+`The assassination attempt against Trump is one on a long list of attacks.`\
+https://nytimes.com/2024/07/15/opinion/trump-assassination-attempts-history.html
+
 **Harris Outdoes Biden in 2 State Polls but Has Her Own Weaknesses**\
 `The polls in Pennsylvania and Virginia were conducted before the Trump rally shooting.`\
 https://nytimes.com/2024/07/15/upshot/kamala-harris-biden-poll.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/15/well/books-sex-life.html
 **Cross-Tabs: July 2024 Times/Siena Poll of the Likely Electorate in Virginia**\
 `Results of a New York Times/Siena College poll conducted in Virginia among 661 likely voters from July 9 to 12, 2024.`\
 https://nytimes.com/interactive/2024/07/15/us/elections/times-siena-poll-virginia-likely-electorate-crosstabs.html
-
-**Cross-Tabs: July 2024 Times/Siena Poll of Registered Voters in Pennsylvania**\
-`Results of a New York Times/Siena College poll conducted in Pennsylvania among 872 registered voters from July 9 to 11, 2024.`\
-https://nytimes.com/interactive/2024/07/15/us/elections/times-siena-poll-pennsylvania-registered-voter-crosstabs.html
 
