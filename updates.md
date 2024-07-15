@@ -1,3 +1,11 @@
+**J.D. Vance, a Man Who Understands Trump’s Worldview**\
+`He has long spoken the language of the Trump base.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/jd-vance-trump-vp
+
+**Man Dies After Rescuing His 2 Children in Mississippi River**\
+`The authorities found the body of a 41-year-old Minnesota man who had disappeared two days earlier after saving his son and stepdaughter from the swift-moving river.`\
+https://nytimes.com/2024/07/15/us/mississippi-river-missing-man-dead.html
+
 **J.D. Vance is an economic populist skeptical of large corporations.**\
 `By Andrew Duehren`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/jd-vance-is-an-economic-populist-skeptical-of-large-corporations
