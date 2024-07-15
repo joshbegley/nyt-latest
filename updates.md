@@ -1,3 +1,7 @@
+**Padres reinforce affinity for high school talent, draft Kash Mayfield at No. 25**\
+`After selecting the two-time Oklahoma Player of the Year, the Padres picked another high school lefty, Boston Bateman.`\
+https://nytimes.com/athletic/5637888/2024/07/15/padres-mlb-draft-kash-mayfield-boston-bateman/
+
 **Each Year Flying Ants Emerge Across the U.K. And Yes, They’re Annoying.**\
 `Winged ants emerge from the soil on hot summer days with one goal: find a mate — fast. These insects are annoying, but experts say they play a vital role in the environment.`\
 https://nytimes.com/2024/07/15/world/europe/flying-ant-day-uk.html
