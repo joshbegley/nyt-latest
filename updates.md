@@ -1,3 +1,11 @@
+**‘Morning Joe’ Is Pre-empted for Breaking News Coverage**\
+`The change immediately led to questions about whether NBC was blocking the program, which has been loyal to President Biden, for political considerations.`\
+https://nytimes.com/2024/07/15/business/media/morning-joe-msnbc-nbc-biden-trump.html
+
+**Trump said he will reveal his running mate today as the convention begins.**\
+`The former president confirmed to Fox News that he would announce his selection on the first day of the Republican convention.`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/trump-vp-running-mate-rnc
+
 **Gambia Votes to Keep Ban on Female Genital Cutting, in Dramatic Reversal**\
 `Lawmakers in the West African country had supported overturning the prohibition, but changed course on Monday after a vociferous campaign led by women.`\
 https://nytimes.com/2024/07/15/world/africa/gambia-ban-female-genital-cutting.html
