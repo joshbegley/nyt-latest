@@ -8,7 +8,7 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/krugman-vance-immigrant-bas
 
 **How a friendship with Donald Trump Jr. helped land J.D. Vance a spot on the Republican ticket.**\
 `In no small part, Mr. Vance owes his quick ascent into the Trump orbit to his unlikely friendship and ideological kinship with the former president’s oldest son.`\
-https://nytimes.com/2024/07/15/us/politics/how-a-friendship-with-donald-trump-jr-helped-land-jd-vance-a-spot-on-the-republican-ticket.html
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/how-a-friendship-with-donald-trump-jr-helped-land-jd-vance-a-spot-on-the-republican-ticket
 
 **Terrell Davis, N.F.L. Hall of Famer, Says He Was Unjustly Detained on Flight**\
 `The former Denver Broncos running back said that he was handcuffed by the authorities on Saturday after he tapped a United Airlines flight attendant on the arm.`\
