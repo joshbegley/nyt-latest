@@ -1,3 +1,7 @@
+**The Book Bag That Binds Japanese Society**\
+`No rule requires Japan’s elementary school students to wear the boxy, bulky backpack known as the randoseru. But for nearly 150 years, nearly all of them have.`\
+https://nytimes.com/2024/07/15/world/asia/japan-randoseru-backpack.html
+
 **Protesters Are Expected to March in Milwaukee as R.N.C. Opens**\
 `After the attempted assassination of Donald Trump, protest organizers said their rally would proceed as expected. Law enforcement authorities said they were prepared.`\
 https://nytimes.com/2024/07/15/us/protesters-milwaukee-rnc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/15/books/review/peter-schjeldahl-art-of-dying.html
 **Is It Too Late to Save the Southern Grasslands?**\
 `Southern grassland ecosystems, and nearly all the plants and animals they supported, are gone. There is hope of bringing some of them back to life.`\
 https://nytimes.com/2024/07/15/opinion/saving-southern-grasslands.html
-
-**$850,000 Homes in California**\
-`A two-bedroom bungalow with a guest cottage in Oakland, a townhouse in Novato and a renovated midcentury home in Los Angeles.`\
-https://nytimes.com/2024/07/15/realestate/850000-homes-in-california.html
 
