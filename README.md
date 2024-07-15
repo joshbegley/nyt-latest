@@ -1,6 +1,6 @@
 **After the assassination attempt on Trump, few lawmakers called for tougher gun laws.**\
-`By Annie Karni`\
-https://nytimes.com/live/2024/07/15/us/trump-shooting-investigation/trump-shooting-gun-laws
+`Unlike in many mass shootings, there has been no concerted outcry from elected officials to implement tougher gun laws.`\
+https://nytimes.com/2024/07/15/us/politics/gun-laws-trump-shooting.html
 
 **Secret Service Faces Questions About Leaving Building Outside Its Security Zone**\
 `Overlapping investigations will focus on the decisions the protection agency made before and immediately after bullets nearly felled former President Trump on Saturday.`\
