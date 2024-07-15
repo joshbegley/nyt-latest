@@ -1,3 +1,15 @@
+**WFAN taps Craig Carton to call 3 Yankees games in August**\
+`He'll be on during the series at home against the Texas Rangers from Aug. 9 - 11.`\
+https://nytimes.com/athletic/5639895/2024/07/15/craig-carton-yankees-wfan-rangers-series/
+
+**Kawakami: How the Warriors' moves have built a bridge to the next possible era**\
+`It's up to the Warriors to keep Stephen Curry convinced that there is hope and a plan here. The offseason moves probably have done that.`\
+https://nytimes.com/athletic/5637538/2024/07/15/warriors-offseason-moves-era-stephen-curry/
+
+**Trump Picked J.D. Vance as His Running Mate**\
+`Also, the Secret Service is under scrutiny. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/07/15/briefing/jd-vance-donald-trump-vp-pick-secret-service.html
+
 **‘Kite Man’ Is a Fun, Irreverent ‘Harley Quinn’ Spinoff**\
 `Like “Harley,” the series is set among Gotham’s villains and goons, with a similarly lewd and rowdy vibe.`\
 https://nytimes.com/2024/07/15/arts/television/kite-man-harley-quinn.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2024/us/elections/polls-president-virginia.html
 **Drop your questions here for the fantasy baseball mailbag**\
 `Dane Martinez is here to help you sort through all your fantasy baseball questions and concerns. Drop your questions here!`\
 https://nytimes.com/athletic/5639784/2024/07/15/drop-your-questions-here-for-the-fantasy-baseball-mailbag-10/
-
-**Israel in Talks Over Withdrawing From Egypt-Gaza Border, Officials Say**\
-`The discussions between Israeli and Egyptian officials comes amid diplomatic activity on several continents over a cease-fire deal and postwar plans for the territory.`\
-https://nytimes.com/2024/07/15/world/middleeast/israel-egypt-gaza-border.html
-
-**Giants week in review: Blake Snell Cy Young-like, Mike Yastrzemski ice cold (in a good way)**\
-`The Giants welcomed new acquisition Blake Snell after DFA'ing his evil twin, Drake. This Snell has looked like a Cy Young winner.`\
-https://nytimes.com/athletic/5639519/2024/07/15/sf-giatns-week-in-review-blake-snell-mike-yastrzemski/
-
-**Few Lawmakers Called for Tougher Gun Laws After Trump Shooting**\
-`Unlike after many mass shootings, there has been no concerted outcry from elected officials to implement stricter gun safety measures.`\
-https://nytimes.com/2024/07/15/us/politics/gun-laws-trump-shooting.html
 
