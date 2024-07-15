@@ -14,8 +14,8 @@ https://nytimes.com/athletic/5637669/2024/07/14/angels-draft-tennessee-christian
 `St.`\
 https://nytimes.com/athletic/5637514/2024/07/14/cardinals-draft-jj-wetherholt/
 
-**China’s Economy Slows as Housing Troubles Squeeze Spending**\
-`After a strong start to the year, spending has weakened as a real estate downturn weighs on consumers and companies. Communist Party leaders are meeting this week to discuss what to do about it.`\
+**China’s Economy Slows Sharply as Housing Troubles Squeeze Spending**\
+`After a strong start to the year, spending has slumped as a real estate downturn weighs on consumers. Communist Party leaders are meeting this week to discuss what to do about it.`\
 https://nytimes.com/2024/07/14/business/chinas-gdp-q2.html
 
 **‘House of the Dragon’ Season 2, Episode 5 Recap: The Eye Has It**\
