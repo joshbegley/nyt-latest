@@ -1,3 +1,7 @@
+**In Trump’s Moment of Maximum Influence, There Is Reason for Hope**\
+`David French argues “the center has to hold or we’re lost.”`\
+https://nytimes.com/2024/07/15/opinion/trump-assassination-hope.html
+
 **Charlie Kirk, Long Accused of Antisemitism, is Set for a Prime-time Speech**\
 `The turnaround for the head of Turning Point USA tells the story of how the Republican Party has united around former President Donald Trump.`\
 https://nytimes.com/2024/07/15/us/politics/charlie-kirk-rnc-antisemitism.html
