@@ -1,5 +1,9 @@
-**After the assassination attempt on Trump, few lawmakers called for tougher gun laws.**\
-`Unlike in many mass shootings, there has been no concerted outcry from elected officials to implement tougher gun laws.`\
+**Israel in Talks Over Withdrawing From Egypt-Gaza Border, Officials Say**\
+`The discussions between Israeli and Egyptian officials comes amid diplomatic activity on several continents over a cease-fire deal and postwar plans for the territory.`\
+https://nytimes.com/2024/07/15/world/middleeast/israel-egypt-gaza-border.html
+
+**Few Lawmakers Called for Tougher Gun Laws After Trump Shooting**\
+`Unlike after many mass shootings, there has been no concerted outcry from elected officials to implement stricter gun safety measures.`\
 https://nytimes.com/2024/07/15/us/politics/gun-laws-trump-shooting.html
 
 **Secret Service Faces Questions About Leaving Building Outside Its Security Zone**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/15/us/politics/judge-aileen-cannon-trump-documents-c
 **The Gunshots Rang Out. Then the Conspiracy Theories Erupted Online.**\
 `Claims that President Biden and his allies ordered the attack on Donald J. Trump, or that Mr. Trump staged the attack, started quickly and spread fast across social media.`\
 https://nytimes.com/2024/07/15/technology/trump-shooting-conspiracy-theories.html
-
-**In These Thrillers, Everyone Has Secrets. Big Ones.**\
-`Our columnist on three riveting new reads.`\
-https://nytimes.com/2024/07/15/books/review/new-thrillers.html
 
