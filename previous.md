@@ -34,7 +34,7 @@ https://nytimes.com/2024/07/15/world/africa/rwanda-election-kagame.html
 `President Xi Jinping is presiding over a conclave to draft a new economic program. The stakes are high, but expectations for big changes are modest.`\
 https://nytimes.com/2024/07/15/business/china-economy-third-plenum.html
 
-**Biden Asks America to ‘Lower the Temperature’**\
-`President Biden’s speech, delivered from the Oval Office, came just a day after the attempted assassination of former President Donald J. Trump, and a day before the Republican National Convention was set to begin.`\
-https://nytimes.com/video/us/elections/100000009571368/biden-trump-unity.html
+**The myth of the Home Run Derby hangover: Why second-half slumps don't mean it's a curse**\
+`Peter Keating and Jordan Brenner explain why the Home Run Derby curse isn't actually a curse at all.`\
+https://nytimes.com/athletic/5633957/2024/07/15/myth-home-run-derby-hangover/
 

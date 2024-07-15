@@ -1,3 +1,7 @@
+**The myth of the Home Run Derby hangover: Why second-half slumps don't mean it's a curse**\
+`Peter Keating and Jordan Brenner explain why the Home Run Derby curse isn't actually a curse at all.`\
+https://nytimes.com/athletic/5633957/2024/07/15/myth-home-run-derby-hangover/
+
 **Trump’s Republican Convention Is Suddenly Anyone’s Guess**\
 `The former president’s nomination speech may well be the most-watched address in a generation.`\
 https://nytimes.com/2024/07/15/opinion/trump-republican-convention.html
