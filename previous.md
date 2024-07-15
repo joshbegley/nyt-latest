@@ -1,3 +1,7 @@
+**What to Know About J.D. Vance, Trump’s Running Mate**\
+`The 39-year-old from Ohio was best known as the author of the memoir “Hillbilly Elegy” before his election to the Senate in 2022.`\
+https://nytimes.com/2024/07/15/us/politics/who-is-jd-vance-trump-vp.html
+
 **Who Is Usha Vance, the Wife of J.D. Vance?**\
 `The two met at Yale Law School, and Ms. Vance has helped him along in his political rise ever since — including now to Donald J. Trump’s vice-presidential pick.`\
 https://nytimes.com/2024/07/15/style/usha-vance-jd-vance.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/15/us/politics/charlie-kirk-rnc-antisemitism.html
 **Judge Cannon’s Ruling Is Right-Wing Living Constitutionalism**\
 `Her philosophy makes the law subject to her own preferences, not the words on the page.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/documents-case-dismissed
-
-**5 Unanswered Questions for the Secret Service**\
-`Here are some of the key questions about the Secret Service response to the attempted assassination of former President Donald J. Trump.`\
-https://nytimes.com/2024/07/15/us/politics/secret-service-trump-rally-shooting.html
 

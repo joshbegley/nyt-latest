@@ -1,3 +1,11 @@
+**J.D. Vance Is Trump’s Gift to the Most Extreme MAGA Faithful**\
+`Trump saw no need to venture out of his comfort zone of conservative white guys.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-vance-vp-pick
+
+**From Skeptic to Superfan: J.D. Vance’s Turnabout on Trump**\
+`He once called Donald Trump “cultural heroin” and said he feared he could be “America’s Hitler.” But over an eight-year transformation, the Ohio senator became one of his most ardent supporters.`\
+https://nytimes.com/2024/07/15/us/jd-vance-quotes-donald-trump.html
+
 **What to Know About J.D. Vance, Trump’s Running Mate**\
 `The 39-year-old from Ohio was best known as the author of the memoir “Hillbilly Elegy” before his election to the Senate in 2022.`\
 https://nytimes.com/2024/07/15/us/politics/who-is-jd-vance-trump-vp.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/15/arts/television/beverly-hills-90210-shannen-doher
 **In Trump’s Moment of Maximum Influence, There Is Reason for Hope**\
 `David French argues “the center has to hold or we’re lost.”`\
 https://nytimes.com/2024/07/15/opinion/trump-assassination-hope.html
-
-**Charlie Kirk, Long Accused of Antisemitism, is Set for a Prime-time Speech**\
-`The turnaround for the head of Turning Point USA tells the story of how the Republican Party has united around former President Donald Trump.`\
-https://nytimes.com/2024/07/15/us/politics/charlie-kirk-rnc-antisemitism.html
-
-**Judge Cannon’s Ruling Is Right-Wing Living Constitutionalism**\
-`Her philosophy makes the law subject to her own preferences, not the words on the page.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/documents-case-dismissed
 
