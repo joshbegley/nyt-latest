@@ -1,3 +1,7 @@
+**Trump Weighed Pros and Cons of His V.P. Selection Until Last Minute**\
+`Even as the former president and his team flew Sunday on his private plane from Bedminster, N.J., to Milwaukee, Mr. Trump was said to have peppered aides and family members about his choice.`\
+https://nytimes.com/2024/07/15/us/politics/trump-vp-vance-burgum-rubio.html
+
 **What Is Demolition Ranch, the YouTube Channel on the Gunman’s Shirt?**\
 `The gunman wore a T-shirt from a popular gun-themed YouTube channel. The creator said he was “just in disbelief.”`\
 https://nytimes.com/2024/07/15/us/politics/demolition-ranch-youtube-trump-shooting-suspect.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/15/briefing/trump-vice-president-trial-vance.html
 **Election 2024 Polls: Minnesota**\
 `See the latest election polls and polling averages for Minnesota.`\
 https://nytimes.com/interactive/2024/us/elections/polls-president-minnesota.html
-
-**Election 2024 Polls: Virginia**\
-`See the latest election polls and polling averages for Virginia.`\
-https://nytimes.com/interactive/2024/us/elections/polls-president-virginia.html
 
