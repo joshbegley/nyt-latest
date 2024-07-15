@@ -1,3 +1,7 @@
+**Friend Remembers Trump Rally Shooting Victim**\
+`Volunteer firefighters in Buffalo Township, Penn., held a memorial for their colleague, Corey Comperatore, who was fatally shot at the Trump rally.`\
+https://nytimes.com/video/us/elections/100000009571513/victims-trump-shooting.html
+
 **Each Year Flying Ants Emerge Across the U.K. And Yes, They’re Annoying.**\
 `Winged ants emerge from the soil on hot summer days with one goal: find a mate — fast. These insects are annoying, but experts say they play a vital role in the environment.`\
 https://nytimes.com/2024/07/15/world/europe/flying-ant-day-uk.html
@@ -22,19 +26,15 @@ https://nytimes.com/2024/07/15/nyregion/housing-development-community-boards-mar
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/07/15/crosswords/spelling-bee-forum.html
 
+**Twins draft college shortstops Kaelen Culpepper and Kyle DeBarge with first-round picks**\
+`Armed with four Day 1 picks, the Twins took three college hitters coming off strong seasons and a projectable high school pitcher.`\
+https://nytimes.com/athletic/5632558/2024/07/15/twins-draft-kaelen-culpepper-kyle-debarge/
+
+**Braves draft top high school pitcher Cam Caminiti, cousin of Ken, in first round**\
+`Caminiti, a left-hander with a mid-90s fastball, appreciates the bar his relative set as an NL MVP: "I wear No. 11 for Ken."`\
+https://nytimes.com/athletic/5637951/2024/07/15/braves-draft-cam-caminiti/
+
 **Trump’s Republican Convention Is Suddenly Anyone’s Guess**\
 `The former president’s nomination speech may well be the most-watched address in a generation.`\
 https://nytimes.com/2024/07/15/opinion/trump-republican-convention.html
-
-**What’s on TV This Week: Olympic Specials and ‘Big Brother’**\
-`ABC and CNN gear up for the Games. CBS airs the season premiere of the reality competition show.`\
-https://nytimes.com/2024/07/15/arts/television/whats-on-tv-this-week.html
-
-**11 Black Men on What Democrats and Republicans Get Wrong About Their Lives**\
-`The group discusses the former president, the 2024 election, race and more.`\
-https://nytimes.com/interactive/2024/07/15/opinion/focus-group-black-men-trump-voters.html
-
-**Padres reinforce affinity for high school talent, draft Kash Mayfield at No. 25**\
-`After selecting the two-time Oklahoma Player of the Year, the Padres picked another high school lefty, Boston Bateman.`\
-https://nytimes.com/athletic/5637888/2024/07/15/padres-mlb-draft-kash-mayfield-boston-bateman/
 

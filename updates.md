@@ -1,3 +1,15 @@
+**Friend Remembers Trump Rally Shooting Victim**\
+`Volunteer firefighters in Buffalo Township, Penn., held a memorial for their colleague, Corey Comperatore, who was fatally shot at the Trump rally.`\
+https://nytimes.com/video/us/elections/100000009571513/victims-trump-shooting.html
+
+**Twins draft college shortstops Kaelen Culpepper and Kyle DeBarge with first-round picks**\
+`Armed with four Day 1 picks, the Twins took three college hitters coming off strong seasons and a projectable high school pitcher.`\
+https://nytimes.com/athletic/5632558/2024/07/15/twins-draft-kaelen-culpepper-kyle-debarge/
+
+**Braves draft top high school pitcher Cam Caminiti, cousin of Ken, in first round**\
+`Caminiti, a left-hander with a mid-90s fastball, appreciates the bar his relative set as an NL MVP: "I wear No. 11 for Ken."`\
+https://nytimes.com/athletic/5637951/2024/07/15/braves-draft-cam-caminiti/
+
 **Padres reinforce affinity for high school talent, draft Kash Mayfield at No. 25**\
 `After selecting the two-time Oklahoma Player of the Year, the Padres picked another high school lefty, Boston Bateman.`\
 https://nytimes.com/athletic/5637888/2024/07/15/padres-mlb-draft-kash-mayfield-boston-bateman/
