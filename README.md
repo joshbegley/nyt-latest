@@ -1,3 +1,11 @@
+**J.D. Vance Was Not Always His Name. But It’s the One That Felt Closest to Home.**\
+`James David Vance has had a number of names in his life, a function of an upbringing marked by domestic instability.`\
+https://nytimes.com/2024/07/15/us/politics/jd-vance-name.html
+
+**Why Everything Bagel Seasoning Was Banned in South Korea**\
+`The seasoning is sold by Trader Joe’s, a brand whose popularity has skyrocketed in the region in recent years.`\
+https://nytimes.com/2024/07/15/world/asia/south-korea-everything-bagel-seasoning.html
+
 **Trial to Decide N.R.A.’s Financial Future Begins in Manhattan**\
 `Attorney General Letitia James wants a monitor appointed to oversee the gun group’s accounts after millions in misspending.`\
 https://nytimes.com/2024/07/15/nyregion/nra-corruption-trial-ny.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/15/style/usha-vance-jd-vance.html
 **J.D. Vance Is an Oil Booster and Doubter of Human-Caused Climate Change**\
 `He once said society had a climate problem but changed his position sharply while seeking Donald Trump’s endorsement in his Senate race.`\
 https://nytimes.com/2024/07/15/climate/jd-vance-climate-change.html
-
-**In Vance, Trump Picks an Ambitious Ideologue and First Millennial**\
-`A political newcomer and former Trump critic turned ally, Senator Vance relishes the spotlight and has already shown he can energize donors.`\
-https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/trump-vp-pick
-
-**House Schedules Hearing on Trump Assassination Attempt as Inquiries Grow**\
-`Members of Congress have opened multiple inquiries about how a gunman was allowed to get close enough to the former president to shoot at and injure him, as well as kill a rally attendee and wound others.`\
-https://nytimes.com/2024/07/15/us/politics/house-inquiries-trump-assassination-attempt.html
 
