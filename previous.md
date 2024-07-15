@@ -1,10 +1,26 @@
+**Dismissal Brings New Scrutiny to Judge With a History of Unorthodox Decisions**\
+`Judge Aileen Cannon’s rulings in the documents case had fueled questions about favoritism and legal acumen even before she threw out the charges that Donald Trump had mishandled classified documents.`\
+https://nytimes.com/2024/07/15/us/politics/judge-aileen-cannon-trump-documents-case.html
+
+**The Gunshots Rang Out. Then the Conspiracy Theories Erupted Online.**\
+`Claims that President Biden and his allies ordered the attack on Donald J. Trump, or that Mr. Trump staged the attack, started quickly and spread fast across social media.`\
+https://nytimes.com/2024/07/15/technology/trump-shooting-conspiracy-theories.html
+
+**In These Thrillers, Everyone Has Secrets. Big Ones.**\
+`Our columnist on three riveting new reads.`\
+https://nytimes.com/2024/07/15/books/review/new-thrillers.html
+
+**Homeland Security Chief Calls Trump Shooting a Security ‘Failure’**\
+`“An incident like this cannot happen,” Alejandro N. Mayorkas told CNN, as the Secret Service faces intense scrutiny over the assassination attempt.`\
+https://nytimes.com/2024/07/15/us/politics/mayorkas-trump-shooting-security.html
+
 **Vance Is All In on Immigrant-Bashing**\
 `His willingness to lie on this issue is probably why Trump picked him.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/krugman-vance-immigrant-bashing
 
 **How a friendship with Donald Trump Jr. helped land J.D. Vance a spot on the Republican ticket.**\
-`By Sharon LaFraniere`\
-https://nytimes.com/2024/07/15/us/politics/how-a-friendship-with-donald-trump-jr-helped-land-jd-vance-a-spot-on-the-republican-ticket.html
+`In no small part, Mr. Vance owes his quick ascent into the Trump orbit to his unlikely friendship and ideological kinship with the former president’s oldest son.`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/how-a-friendship-with-donald-trump-jr-helped-land-jd-vance-a-spot-on-the-republican-ticket
 
 **Terrell Davis, N.F.L. Hall of Famer, Says He Was Unjustly Detained on Flight**\
 `The former Denver Broncos running back said that he was handcuffed by the authorities on Saturday after he tapped a United Airlines flight attendant on the arm.`\
@@ -18,23 +34,7 @@ https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/jd-vance-marine-corp
 `Judge Ural Glanville, who had overseen the case for more than two years, must step aside for meeting with prosecutors and a key witness without the defense.`\
 https://nytimes.com/2024/07/15/arts/music/young-thug-trial-judge-removed.html
 
-**J.D. Vance Was Not Always His Name. But It’s the One That Felt Closest to Home.**\
-`James David Vance has had a number of names in his life, a function of an upbringing marked by domestic instability.`\
-https://nytimes.com/2024/07/15/us/politics/jd-vance-name.html
-
-**Why Everything Bagel Seasoning Was Banned in South Korea**\
-`The seasoning is sold by Trader Joe’s, a brand whose popularity has skyrocketed in the region in recent years.`\
-https://nytimes.com/2024/07/15/world/asia/south-korea-everything-bagel-seasoning.html
-
-**Trial to Decide N.R.A.’s Financial Future Begins in Manhattan**\
-`Attorney General Letitia James wants a monitor appointed to oversee the gun group’s accounts after millions in misspending.`\
-https://nytimes.com/2024/07/15/nyregion/nra-corruption-trial-ny.html
-
-**J.D. Vance Is Closely Aligned With Trump on Key Issues**\
-`Like Donald J. Trump, the Ohio senator has been skeptical of American intervention overseas and argues that raising tariffs will create new jobs.`\
-https://nytimes.com/2024/07/15/us/politics/jd-vance-abortion-immigration-issues.html
-
-**‘Hillbilly Elegy’ Gets a Blockbuster Sequel**\
-`Our critic traces J.D. Vance’s shift from bootstrap memoirist to vice-presidential candidate.`\
-https://nytimes.com/2024/07/15/books/review/jd-vance-vice-president-donald-trump-hillbilly-elegy.html
+**FIFA opens up bidding for Club World Cup media rights**\
+`FIFA has launched an invitation to tender for media rights covering the Americas, Asia, and the Middle East &amp; North Africa regions for its revamped Club World Cup, effectively ending its proposed broadcast rights deal with Apple.`\
+https://nytimes.com/athletic/5639471/2024/07/15/fifa-club-world-cup-media-rights/
 
