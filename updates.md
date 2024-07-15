@@ -1,3 +1,11 @@
+**Manhunt in U.K. Ends With Murder Charges After Bodies Found in Suitcase**\
+`A grisly discovery last week in Bristol, England, led the police to a 34-year-old man who had stayed with the victims in London.`\
+https://nytimes.com/2024/07/15/world/europe/suitcase-murder-bristol-uk.html
+
+**China Will Host Senior Officials From Hamas and Fatah, Longtime Rivals**\
+`The meeting will come as talks about Gaza’s postwar governance take on greater urgency. Previous attempts to mediate between the two Palestinian factions have yielded few tangible results.`\
+https://nytimes.com/live/2024/07/15/world/israel-gaza-war-hamas
+
 **About Our Investigation Into Cord Blood Banks**\
 `Some families pay thousands of dollars to store their children’s stem cells with the hope of a healthier future for them. But Sarah Kliff, an investigative health care reporter for The New York Times, explains that the cells are rarely useful and are sometimes contaminated.`\
 https://nytimes.com/video/health/100000009563946/about-our-investigation-into-cord-blood-banks.html
