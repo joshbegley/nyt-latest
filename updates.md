@@ -1,3 +1,7 @@
+**Anthony Davis' solid play for Team USA creates a tough question for Steve Kerr**\
+`Is Joel Embiid, a former NBA MVP, the right choice to start for Team USA? Right now, with Anthony Davis tearing it up, nothing is certain.`\
+https://nytimes.com/athletic/5639957/2024/07/15/anthony-davis-joel-embiid-steve-kerr-team-usa-olympics/
+
 **Don’t Lose Sight of Project 2025. That’s the Real Trump.**\
 `Expanding the frontiers of political cronyism.`\
 https://nytimes.com/2024/07/15/opinion/trump-project-2025.html
