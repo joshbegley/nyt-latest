@@ -1,8 +1,12 @@
+**How a friendship with Donald Trump Jr. helped land J.D. Vance a spot on the Republican ticket.**\
+`By Sharon LaFraniere`\
+https://nytimes.com/2024/07/15/us/politics/how-a-friendship-with-donald-trump-jr-helped-land-jd-vance-a-spot-on-the-republican-ticket.html
+
 **Terrell Davis, N.F.L. Hall of Famer, Says He Was Unjustly Detained on Flight**\
 `The former Denver Broncos running back said that he was handcuffed by the authorities on Saturday after he tapped a United Airlines flight attendant on the arm.`\
 https://nytimes.com/2024/07/15/business/terrell-davis-nfl-united-airlines.html
 
-**Before a career in politics, J.D. Vance had a brief stint in the Marine Corps.**\
+**Before a career in politics, J.D. Vance served in the Marine Corps.**\
 `By Thomas Gibbons-Neff`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/jd-vance-marine-corps
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/15/books/review/jd-vance-vice-president-donald-trump
 **J.D. Vance Is Trump’s Gift to the Most Extreme MAGA Faithful**\
 `Trump saw no need to venture out of his comfort zone of conservative white guys.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-vance-vp-pick
-
-**From Skeptic to Superfan: J.D. Vance’s Turnabout on Trump**\
-`He once called Donald Trump “cultural heroin” and said he feared he could be “America’s Hitler.” But over an eight-year transformation, the Ohio senator became one of his most ardent supporters.`\
-https://nytimes.com/2024/07/15/us/jd-vance-quotes-donald-trump.html
 
