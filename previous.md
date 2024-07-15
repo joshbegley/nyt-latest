@@ -1,3 +1,15 @@
+**Trump Media Stock Jumps as Traders Bet on His Rising Political Fortunes**\
+`Shares of Donald J. Trump’s social media company surged more than 30 percent on the first day of trading after the assassination attempt on the former president.`\
+https://nytimes.com/2024/07/15/business/trump-media-stock.html
+
+**France’s Approach to the Olympics: Food, With a Side of Games**\
+`The competitions can seem almost an afterthought as the country rolls out 80 pop-up restaurants and countless dining experiences to wow spectators.`\
+https://nytimes.com/2024/07/15/dining/2024-olympics-france-food.html
+
+**Goldman Sachs’s Revamp Takes Shape With Another Profit Haul**\
+`The Wall Street investment bank earned $3 billion in the second quarter, more than double the tally from a year earlier.`\
+https://nytimes.com/2024/07/15/business/15goldman-sachs-profit.html
+
 **Pakistan Says It Will Ban Party of Jailed Former Leader Imran Khan**\
 `The move was widely seen as the latest effort by a weak governing coalition to squash Mr. Khan’s political popularity.`\
 https://nytimes.com/2024/07/15/world/asia/pakistan-ban-khan.html
@@ -6,9 +18,9 @@ https://nytimes.com/2024/07/15/world/asia/pakistan-ban-khan.html
 `As the event opens with a focus on energy, former President Trump and other leaders are calling for more oil, gas and coal development.`\
 https://nytimes.com/2024/07/15/climate/republicans-climate-change-fossil-fuels.html
 
-**Judge Dismisses Classified Documents Case Against Trump**\
+**A major legal threat against Trump is dismissed. Here’s the latest.**\
 `Judge Aileen Cannon ruled that the entire case should be thrown out because the appointment of the special counsel who brought the case, Jack Smith, had violated the Constitution. Her decision is sure to be appealed.`\
-https://nytimes.com/2024/07/15/us/politics/trump-document-case-dismissed.html
+https://nytimes.com/live/2024/07/15/us/trump-documents-case-dismissed/trump-document-case-dismissed
 
 **Accepting Autism: A Sibling’s Perspective**\
 `We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Leela Uppaluri, age 16.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/15/arts/music/taylor-swift-zach-bryan-12-weeks-no-1.
 **Ryan Reynolds and Hugh Jackman on the Perks and Pitfalls of Playing Superheroes**\
 `The two friends have learned a lot about being the stewards of major pop-culture characters, an education that led them to “Deadpool & Wolverine.”`\
 https://nytimes.com/2024/07/15/movies/ryan-reynolds-hugh-jackman-deadpool-wolverine.html
-
-**California Today Will Soon Have a Different Look**\
-`Our California-focused newsletter will feature a curated collection of New York Times articles about the state.`\
-https://nytimes.com/2024/07/15/us/california-today-will-soon-have-a-different-look.html
-
-**The New Calculus for Democrats and Donors: Is Trump Unbeatable?**\
-`The shooting of Donald Trump has galvanized his campaign, prompted Elon Musk to endorse him and forced Democrats to rethink plans to oust President Biden.`\
-https://nytimes.com/2024/07/15/business/dealbook/trump-assassination-election-democrats.html
-
-**Trump Says He’s Revised His Convention Speech in Wake of Shooting**\
-`Speaking to The New York Post and The Washington Examiner, Mr. Trump said he had thrown out a “tough speech” he had planned to make at the Republican National Convention.`\
-https://nytimes.com/2024/07/15/us/politics/trump-shot-interviews.html
 
