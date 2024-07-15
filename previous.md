@@ -1,3 +1,15 @@
+**After the assassination attempt on Trump, few lawmakers called for tougher gun laws.**\
+`By Annie Karni`\
+https://nytimes.com/live/2024/07/15/us/trump-shooting-investigation/trump-shooting-gun-laws
+
+**Secret Service Faces Questions About Leaving Building Outside Its Security Zone**\
+`Overlapping investigations will focus on the decisions the protection agency made before and immediately after bullets nearly felled former President Trump on Saturday.`\
+https://nytimes.com/2024/07/15/us/politics/secret-service-security-roof-trump-shooting.html
+
+**In Milwaukee, Black Voters Struggle to Find a Home With Either Party**\
+`We spoke to them about why they feel like their votes, while important, don’t seem to translate into the type of change they want to see in their daily lives.`\
+https://nytimes.com/interactive/2024/07/15/us/elections/milwaukee-black-voters.html
+
 **Many turned to Vance’s book, ‘Hillbilly Elegy,’ after Trump was elected.**\
 `By Elizabeth A. Harris`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/many-turned-to-vances-book-hillbilly-elegy-after-trump-was-elected
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/15/technology/trump-shooting-conspiracy-theories.htm
 **In These Thrillers, Everyone Has Secrets. Big Ones.**\
 `Our columnist on three riveting new reads.`\
 https://nytimes.com/2024/07/15/books/review/new-thrillers.html
-
-**Homeland Security Chief Calls Trump Shooting a Security ‘Failure’**\
-`“An incident like this cannot happen,” Alejandro N. Mayorkas told CNN, as the Secret Service faces intense scrutiny over the assassination attempt.`\
-https://nytimes.com/2024/07/15/us/politics/mayorkas-trump-shooting-security.html
-
-**Vance Is All In on Immigrant-Bashing**\
-`His willingness to lie on this issue is probably why Trump picked him.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/krugman-vance-immigrant-bashing
-
-**Fresno State coach stepping down over health concerns**\
-`Tim Skipper, Fresno State’s assistant head coach and linebackers coach, will serve as interim head coach for the 2024 season.`\
-https://nytimes.com/athletic/5639772/2024/07/15/fresno-state-coach-jeff-tedford-stepping-down-health-concerns/
 
