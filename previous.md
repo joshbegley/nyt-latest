@@ -1,3 +1,7 @@
+**Trial to Decide N.R.A.’s Financial Future Begins in Manhattan**\
+`Attorney General Letitia James wants a monitor appointed to oversee the gun group’s accounts after millions in misspending.`\
+https://nytimes.com/2024/07/15/nyregion/nra-corruption-trial-ny.html
+
 **J.D. Vance Is Closely Aligned With Trump on Key Issues**\
 `Like Donald J. Trump, the Ohio senator has been skeptical of American intervention overseas and argues that raising tariffs will create new jobs.`\
 https://nytimes.com/2024/07/15/us/politics/jd-vance-abortion-immigration-issues.html
@@ -26,15 +30,11 @@ https://nytimes.com/2024/07/15/style/usha-vance-jd-vance.html
 `He once said society had a climate problem but changed his position sharply while seeking Donald Trump’s endorsement in his Senate race.`\
 https://nytimes.com/2024/07/15/climate/jd-vance-climate-change.html
 
-**The Senate newcomer and author of ‘Hillbilly Elegy’ was once an acerbic Trump critic.**\
-`A political newcomer and former Trump critic turned ally, Senator Vance is an ambitious ideologue who relishes the spotlight and has already shown he can energize donors.`\
+**In Vance, Trump Picks an Ambitious Ideologue and First Millennial**\
+`A political newcomer and former Trump critic turned ally, Senator Vance relishes the spotlight and has already shown he can energize donors.`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/trump-vp-pick
 
 **House Schedules Hearing on Trump Assassination Attempt as Inquiries Grow**\
 `Members of Congress have opened multiple inquiries about how a gunman was allowed to get close enough to the former president to shoot at and injure him, as well as kill a rally attendee and wound others.`\
 https://nytimes.com/2024/07/15/us/politics/house-inquiries-trump-assassination-attempt.html
-
-**The Yoda-Like Mentor Behind the Masters of Tap Dance**\
-`Michelle Dorrance’s new work, “Shift.,” honors Gene Medler, the teacher who founded the North Carolina Youth Tap Ensemble.`\
-https://nytimes.com/2024/07/15/arts/dance/gene-medler-tap-dance.html
 

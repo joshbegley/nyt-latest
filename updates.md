@@ -1,3 +1,11 @@
+**Trial to Decide N.R.A.’s Financial Future Begins in Manhattan**\
+`Attorney General Letitia James wants a monitor appointed to oversee the gun group’s accounts after millions in misspending.`\
+https://nytimes.com/2024/07/15/nyregion/nra-corruption-trial-ny.html
+
+**In Vance, Trump Picks an Ambitious Ideologue and First Millennial**\
+`A political newcomer and former Trump critic turned ally, Senator Vance relishes the spotlight and has already shown he can energize donors.`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/trump-vp-pick
+
 **J.D. Vance Is Closely Aligned With Trump on Key Issues**\
 `Like Donald J. Trump, the Ohio senator has been skeptical of American intervention overseas and argues that raising tariffs will create new jobs.`\
 https://nytimes.com/2024/07/15/us/politics/jd-vance-abortion-immigration-issues.html
