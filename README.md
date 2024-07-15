@@ -1,3 +1,15 @@
+**House Schedules Hearing on Trump Assassination Attempt as Inquiries Grow**\
+`Members of Congress have opened multiple inquiries about how a gunman was allowed to get close enough to the former president to shoot at and injure him, as well as kill a rally attendee and wound others.`\
+https://nytimes.com/2024/07/15/us/politics/house-inquiries-trump-assassination-attempt.html
+
+**The Yoda-Like Mentor Behind the Masters of Tap Dance**\
+`Michelle Dorrance’s new work, “Shift.,” honors Gene Medler, the teacher who founded the North Carolina Youth Tap Ensemble.`\
+https://nytimes.com/2024/07/15/arts/dance/gene-medler-tap-dance.html
+
+**In ‘Beverly Hills, 90210,’ Shannen Doherty Redefined Teen TV Drama**\
+`As Brenda Walsh, Doherty was the engine of the series that set the template for what a modern teen drama would look like on television.`\
+https://nytimes.com/2024/07/15/arts/television/beverly-hills-90210-shannen-doherty.html
+
 **In Trump’s Moment of Maximum Influence, There Is Reason for Hope**\
 `David French argues “the center has to hold or we’re lost.”`\
 https://nytimes.com/2024/07/15/opinion/trump-assassination-hope.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/senator-marco-rubio-
 **Cannon’s Dismissal of Trump Case Rejects Precedents of Higher Courts**\
 `Her decision rejected what the Supreme Court said in a landmark ruling in 1974.`\
 https://nytimes.com/2024/07/15/us/politics/cannons-dismissal-of-trump-case-rejects-precedents-of-higher-courts.html
-
-**Fed’s Powell Welcomes Cooler Inflation but Steers Clear of Rate Cut Timing**\
-`Jerome H. Powell, the chair of the Federal Reserve, avoided signaling when the Fed would cut rates at a time when some economists are wondering why officials would wait.`\
-https://nytimes.com/2024/07/15/business/economy/federal-reserve-jerome-powell-interest-rate-cut-timing.html
-
-**Jacqueline de Jong, Rediscovered Avant-Garde Artist, Dies at 85**\
-`A Dutch painter, sculptor and engraver, she worked in experimental mediums, founded an influential multidisciplinary journal and enjoyed a late-career resurgence.`\
-https://nytimes.com/2024/07/15/arts/jacqueline-de-jong-dead.html
-
-**Political Violence and Guns in America**\
-`Readers discuss heated rhetoric, lax gun laws, a security failure and more. Also: Tips for college; seeking common ground in a dialogue.`\
-https://nytimes.com/2024/07/15/opinion/trump-political-violence-guns.html
 
