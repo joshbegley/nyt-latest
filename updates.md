@@ -1,3 +1,15 @@
+**The expanded Playoff effect: Suddenly, more SEC teams are more interesting**\
+`At a minimum, half of the SEC can be counted as legitimate Playoff contenders. And that will keep more fan bases engaged for longer. `\
+https://nytimes.com/athletic/5642152/2024/07/16/sec-college-football-playoff-missouri-tennessee/
+
+**Herbert Hoelter, Prison Consultant to the Rich and Infamous, Dies at 73**\
+`He helped Martha Stewart, Leona Helmsley, Michael Milken and other white-collar criminals win lighter sentences, and prepared them for life in prison.`\
+https://nytimes.com/2024/07/16/us/herbert-hoelter-dead.html
+
+**Biden Finally Got Border Numbers Down. Will He See the Political Benefits?**\
+`June had the lowest monthly total for illegal crossings since January 2021. But the downturn comes amid intense focus on President Biden’s candidacy and the attempted assassination of Donald Trump.`\
+https://nytimes.com/2024/07/16/us/politics/biden-border-immigration.html
+
 **Daughter-in-Law and Party Chief: Lara Trump’s Dual Roles**\
 `Since taking the helm at the R.N.C. in March, Donald J. Trump’s daughter-in-law has put a smiling spin on some of the darkest aspects of his campaign for the White House.`\
 https://nytimes.com/2024/07/16/us/politics/lara-trump-republicans-rnc.html
