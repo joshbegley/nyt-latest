@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5641919/2024/07/16/canucks-arturs-silovs-contract/
 `\
 https://nytimes.com/athletic/5641919/2024/07/16/canucks-arturs-silovs-contract/
 
+**Canucks sign Artūrs Šilovs to 2-year contract**\
+`The 23-year-old remains the crown jewel of the club's goalie development pipeline.
+`\
+https://nytimes.com/athletic/5641919/2024/07/16/canucks-arturs-silovs-contract/
+
 **Trump-Vance Administration Could Herald New Era for Dollar**\
 `Both candidates on the Republican ticket have argued that the U.S. currency should be weaker to support American exports.`\
 https://nytimes.com/2024/07/16/us/politics/trump-vance-administration-could-herald-new-era-for-dollar.html
