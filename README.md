@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5638118/2024/07/16/mlb-trade-deadline-team-trends-b
 https://nytimes.com/2024/07/16/briefing/why-trump-picked-vance.html
 
 **Gareth Southgate Quits as England Coach, Leaving Team He Remade**\
-`Despite losing the final of Euro 2024 to Spain, Southgate’s eight years in charge have lifted the men’s side back into the top tier of international soccer.`\
+`Despite losing the final of Euro 2024 to Spain, Southgate’s eight years in charge lifted his country’s men’s team back into the top tier of international soccer.`\
 https://nytimes.com/2024/07/16/world/europe/gareth-southgate-england-manager-resigns.html
 
 **The E.U. sanctioned settlers for ‘human rights abuses against Palestinians.’**\

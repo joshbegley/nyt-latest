@@ -1,3 +1,7 @@
+**MLB trade deadline report: Teams trending toward buying, selling and ... sideways?**\
+`With two weeks until the deadline, it's almost truly trade season. Let's look at where some key teams stand. `\
+https://nytimes.com/athletic/5638118/2024/07/16/mlb-trade-deadline-team-trends-buyers-sellers/
+
 **J.D. Vance’s Chance**\
 `Why Donald Trump tapped Vance to be his successor.`\
 https://nytimes.com/2024/07/16/briefing/why-trump-picked-vance.html
