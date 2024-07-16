@@ -1,3 +1,7 @@
+**The Red Bull RB17: How iconic F1 architect Adrian Newey built his 'utopia' car**\
+`Hypercars exist at the upper limit of automotive performance, a level the RB17 sought to reach by harnessing F1 technology.`\
+https://nytimes.com/athletic/5639137/2024/07/16/rb17-car-red-bull-f1-adrian-newey/
+
 **Introducing ‘Scoop City,’ a new NFL podcast with Dianna Russini and Chase Daniel**\
 `The show debuts Tuesday, with Chiefs coach Andy Reid as the first guest`\
 https://nytimes.com/athletic/5638721/2024/07/16/scoop-city-new-nfl-podcast-dianna-russini-chase-daniel/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/16/pageoneplus/quotation-of-the-day-for-the-gop-free
 **Corrections: July 16, 2024**\
 `Corrections that appeared in print on Tuesday, July 16, 2024.`\
 https://nytimes.com/2024/07/16/pageoneplus/corrections-july-16-2024.html
-
-**A Bandaged Trump Shows a Glimpse of Vulnerability**\
-`Donald J. Trump was unusually emotional in his first public appearance since the attempt on his life.`\
-https://nytimes.com/2024/07/16/us/politics/trump-first-night-rnc.html
 
