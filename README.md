@@ -1,3 +1,15 @@
+**The expanded Playoff effect: Suddenly, more SEC teams are more interesting**\
+`At a minimum, half of the SEC can be counted as legitimate Playoff contenders. And that will keep more fan bases engaged for longer. `\
+https://nytimes.com/athletic/5642152/2024/07/16/sec-college-football-playoff-missouri-tennessee/
+
+**Herbert Hoelter, Prison Consultant to the Rich and Infamous, Dies at 73**\
+`He helped Martha Stewart, Leona Helmsley, Michael Milken and other white-collar criminals win lighter sentences, and prepared them for life in prison.`\
+https://nytimes.com/2024/07/16/us/herbert-hoelter-dead.html
+
+**Biden Finally Got Border Numbers Down. Will He See the Political Benefits?**\
+`June had the lowest monthly total for illegal crossings since January 2021. But the downturn comes amid intense focus on President Biden’s candidacy and the attempted assassination of Donald Trump.`\
+https://nytimes.com/2024/07/16/us/politics/biden-border-immigration.html
+
 **Daughter-in-Law and Party Chief: Lara Trump’s Dual Roles**\
 `Since taking the helm at the R.N.C. in March, Donald J. Trump’s daughter-in-law has put a smiling spin on some of the darkest aspects of his campaign for the White House.`\
 https://nytimes.com/2024/07/16/us/politics/lara-trump-republicans-rnc.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/masha-gessen-press-freedom
 **Widow of Slain Rally Attendee Says She Received Call From Trump**\
 `Corey Comperatore, 50, was killed while attending a rally for Donald J. Trump for the first time.`\
 https://nytimes.com/2024/07/16/us/widow-call-trump-biden.html
-
-**A Giant Offshore Wind Turbine Blade Breaks, Prompting Beach Closures**\
-`It’s unclear why a blade from one of the Vineyard Wind turbines broke into pieces, which are washing up on Nantucket beaches.`\
-https://nytimes.com/2024/07/16/climate/wind-turbine-breaks-nantucket.html
-
-**After Backlash, Marvel Gives an Israeli Superhero a New Backstory**\
-`The studio said Sabra, a Mossad agent in comic books, will be “a high-ranking U.S. government official” in its next Captain America movie.`\
-https://nytimes.com/2024/07/16/movies/sabra-israeli-superhero-marvel.html
-
-**Trump to Rally for First Time Since Assassination Attempt With Vance**\
-`The rally is set for Saturday in Michigan, and will be his first such appearance alongside Senator J.D. Vance of Ohio, whom he selected as his running mate on Monday.`\
-https://nytimes.com/2024/07/16/us/politics/trump-rally-jd-vance-michigan.html
 
