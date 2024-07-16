@@ -1,3 +1,11 @@
+**Father Is Charged After His Infant Daughter Dies in a Hot Car**\
+`The 8-week-old girl’s death came as a wave of extreme heat gripped much of the United States. It was at least the 11th such death so far this year.`\
+https://nytimes.com/2024/07/16/nyregion/infant-dead-hot-car-new-jersey.html
+
+**Chris Christie: Trump’s Enormous Opportunity**\
+`The Republican nominee has the opportunity to rein in some of the worst rhetorical impulses of party and point in a new direction.`\
+https://nytimes.com/2024/07/16/opinion/trump-rnc-chris-christie.html
+
 **The Art of Getting a Real Answer Out of a President**\
 `It was clear to a Times White House correspondent that if he asked President Biden the same question about age, he’d get the same, practiced answer. So he tried something different.`\
 https://nytimes.com/2024/07/16/insider/biden-news-conference-reporter-sanger.html
