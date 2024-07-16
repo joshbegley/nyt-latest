@@ -1,3 +1,7 @@
+**Lindsey Harding joining Lakers' coaching staff as assistant**\
+`Hornets assistant coach Bob Beyer is another coach who is expected to be added to JJ Redick’s staff, according to league sources.`\
+https://nytimes.com/athletic/5642325/2024/07/16/lindsey-harding-lakers-assistant/
+
 **Father Is Charged After His Infant Daughter Dies in a Hot Car**\
 `The 8-week-old girl’s death came as a wave of extreme heat gripped much of the United States. It was at least the 11th such death so far this year.`\
 https://nytimes.com/2024/07/16/nyregion/infant-dead-hot-car-new-jersey.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/16/us/politics/rnc-milwaukee-trump-immigration.html
 **This Bus Only Turns Right**\
 `The concerned women for America are concerned.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/this-bus-only-turns-right
-
-**Sullivan, 14, could break MLS record after being named in Philadelphia squad for first time**\
-`Cavan Sullivan, 14, has been named in the Philadelphia Union&#8217;s squad for Wednesday&#8217;s Major League Soccer fixture against the New England Revolution.`\
-https://nytimes.com/athletic/5642239/2024/07/16/cavan-sullivan-philadelphia-union-squad/
 
