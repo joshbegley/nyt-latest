@@ -1,3 +1,7 @@
+**A Giant Offshore Wind Turbine Blade Breaks, Prompting Beach Closures**\
+`It’s unclear why a blade from one of the Vineyard Wind turbines broke into pieces, which are washing up on Nantucket beaches.`\
+https://nytimes.com/2024/07/16/climate/wind-turbine-breaks-nantucket.html
+
 **After Backlash, Marvel Gives an Israeli Superhero a New Backstory**\
 `The studio said Sabra, a Mossad agent in comic books, will be “a high-ranking U.S. government official” in its next Captain America movie.`\
 https://nytimes.com/2024/07/16/movies/sabra-israeli-superhero-marvel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/16/us/politics/trump-vance-us-dollar.html
 **Blues' Torey Krug could miss 2024-25 season with pre-arthritic ankle condition**\
 `The veteran defenseman will be re-evaluated in six to eight weeks and could need surgery, which would cost him next season.`\
 https://nytimes.com/athletic/5642045/2024/07/16/blues-torey-krug-ankle-condition/
-
-**Elon Musk Says He Will Move X and SpaceX Headquarters to Texas**\
-`The social media and rocket companies are headquartered in California, which the billionaire criticized for its recent transgender legislation.`\
-https://nytimes.com/2024/07/16/technology/elon-musk-x-spacex-headquarters-texas.html
 
