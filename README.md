@@ -1,3 +1,7 @@
+**Caffè Panna Brings Summery Sundaes and Granitas to Greenpoint**\
+`Hallie Meyer’s new Brooklyn branch of her Irving Place spot deploys the signature cloud of panna on sundaes and affogatos.`\
+https://nytimes.com/2024/07/16/dining/new-ice-cream-spot-greenpoint-restaurant-news.html
+
 **Energy is Prosperity: Innovating for a Clean Energy Future**\
 `Breakthrough Energy CTO Eric Toone outlines a path toward sustainable prosperity for our planet. `\
 https://nytimes.com/paidpost/breakthrough-energy/breakthrough-energy-energy-is-prosperity/energy-is-prosperity-innovating-for-a-clean-energy-future.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/16/nyregion/senator-robert-menendez-bribery-convicti
 **Wimbledon 2024 review: Best match, favourite player and most Wimbledon moment**\
 `The Athletic's tennis team reflect on Wimbledon 2024, picking the players, matches, and moments of the tournament`\
 https://nytimes.com/athletic/5640780/2024/07/16/wimbledon-2024-review-best-matches-best-shots-highlights/
-
-**Fact-Checking the Republican National Convention on Energy Claims**\
-`Several speakers focused on the sharp rise in gas and electricity prices under President Biden. We scrutinized their statements.`\
-https://nytimes.com/2024/07/16/climate/fact-checking-rnc-energy.html
 
