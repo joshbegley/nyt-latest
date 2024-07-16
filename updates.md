@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5641919/2024/07/16/canucks-arturs-silovs-contract/
 `\
 https://nytimes.com/athletic/5641919/2024/07/16/canucks-arturs-silovs-contract/
 
+**Canucks sign Artūrs Šilovs to 2-year contract**\
+`The 23-year-old remains the crown jewel of the club's goalie development pipeline.
+`\
+https://nytimes.com/athletic/5641919/2024/07/16/canucks-arturs-silovs-contract/
+
 **Democratic leaders call on Menendez to resign.**\
 `By Tracey Tully`\
 https://nytimes.com/live/2024/07/16/nyregion/bob-menendez-verdict/democratic-leaders-call-on-menendez-to-resign
