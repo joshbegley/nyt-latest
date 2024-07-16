@@ -1,3 +1,7 @@
+**A New York Jury Will Decide a New Jersey Senator’s Fate**\
+`A retired economist and a former Broadway and TV actor are part of the jury that will determine the corruption case against Senator Robert Menendez.`\
+https://nytimes.com/2024/07/16/nyregion/bob-menendez-trial-jury.html
+
 **Neighbors talk about the Trump gunman: ‘He didn’t speak to anyone, and no one spoke to him.’**\
 `By Amy Julia Harris`\
 https://nytimes.com/live/2024/07/16/us/trump-shooting-investigation/neighbors-talk-about-the-trump-gunman-he-didnt-speak-to-anyone-and-no-one-spoke-to-him
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/16/opinion/trump-shooter-radicalization-men.html
 **‘UnPrisoned’ Depicts the Burden of Incarceration With a Light Touch**\
 `Delroy Lindo and Kerry Washington discuss their series, which finds humor and struggle in a father and daughter repairing their relationship after a long prison term.`\
 https://nytimes.com/2024/07/16/arts/television/unprisoned-incarceration-hulu.html
-
-**Funeral Is Set for Man Killed in Trump Rally Shooting**\
-`Services for Corey Comperatore, the volunteer firefighter who shielded family members in his final moments, will take place Friday at the church where he was a longtime member.`\
-https://nytimes.com/2024/07/16/us/trump-rally-shooting-victim-funeral-arrangements.html
 
