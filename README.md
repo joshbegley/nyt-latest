@@ -1,7 +1,3 @@
-**A dispassionate review of Gareth Southgate's eight years in charge of England**\
-`He had his flaws, but if England win either of the next two major tournaments, Southgate will deserve a large share of the credit`\
-https://nytimes.com/athletic/5640672/2024/07/16/southgate-england-manager-football-review/
-
 **How Outlets on the Right and Left Covered Trump’s Pick of J.D. Vance**\
 `Conservative commentators applauded former President Donald J. Trump’s vice-presidential pick. Liberal outlets focused on J.D. Vance’s past criticisms of his new running mate.`\
 https://nytimes.com/2024/07/16/business/media/jd-vance-media-coverage-left-right.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/07/16/well/eat/artificial-sweeteners-sugar-free.html
 **C. Notes: Reds celebrate Triple-A manager Pat Kelly's 2,000th win**\
 `“Everybody in this organization has been influenced by PK in some positive way,” Reds manager David Bell said.`\
 https://nytimes.com/athletic/5640862/2024/07/16/reds-triple-a-manager-pat-kelly-2000-wins/
+
+**Full Time: Bon voyage, USWNT!**\
+`Welcome to Full Time, The Athletic’s weekly women’s soccer newsletter`\
+https://nytimes.com/athletic/5641183/2024/07/16/us-womens-national-team-olympics-emma-hayes-full-time/
 
