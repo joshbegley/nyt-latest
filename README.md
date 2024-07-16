@@ -26,8 +26,8 @@ https://nytimes.com/2024/07/16/world/middleeast/mosque-shooting-shiite-oman-paki
 `By Nicholas Fandos`\
 https://nytimes.com/live/2024/07/16/nyregion/bob-menendez-verdict/the-jury-will-present-its-verdict-soon-heres-the-latest
 
-**Live Updates: Senator Menendez Found Guilty in Federal Corruption Trial**\
-`Senator Robert Menendez of New Jersey, who survived a previous corruption indictment in 2017, was convicted in a bribery case involving businessmen and foreign governments.`\
+**Live Updates: Senator Menendez Found Guilty on All Counts in Corruption Trial**\
+`Senator Robert Menendez of New Jersey, who survived a previous corruption indictment in 2017, was convicted in a federal bribery case involving businessmen and foreign governments.`\
 https://nytimes.com/live/2024/07/16/nyregion/bob-menendez-verdict
 
 **Joe "Jellybean" Bryant, father to Kobe, dies at 69**\
