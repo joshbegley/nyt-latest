@@ -1,3 +1,7 @@
+**Gibraltar complain about Spain's 'extremely provocative' Euro 2024 celebrations**\
+`Gibraltar&#8217;s Football Association (FA) has lodged a complaint with European football&#8217;s governing body UEFA over &#8220;extremely provocative and insulting&#8221; celebrations by players of Spain&#8217;s national team following their European Championship success.`\
+https://nytimes.com/athletic/5640530/2024/07/16/gibraltar-spain-rodri-euro-2024/
+
 **Wales’s First Minister Steps Down After Four Colleagues Quit**\
 `Vaughan Gething became the first minister of the Welsh Parliament in March. But a growing controversy over campaign financing precipitated his decision to step down.`\
 https://nytimes.com/2024/07/16/world/europe/wales-vaughan-gething-resigns.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5638118/2024/07/16/mlb-trade-deadline-team-trends-b
 **How will you remember Gareth Southgate's England tenure? Who should take over?**\
 `With Gareth Southgate stepping down as England manager, we want to hear your views on his time in charge and a possible successor...`\
 https://nytimes.com/athletic/5640551/2024/07/16/gareth-southgate-england-memories/
-
-**J.D. Vance’s Chance**\
-`Why Donald Trump tapped Vance to be his successor.`\
-https://nytimes.com/2024/07/16/briefing/why-trump-picked-vance.html
 
