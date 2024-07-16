@@ -1,3 +1,7 @@
+**Divine Intervention and True Belief on the Convention Floor**\
+`“Trump is still our man,” one delegate said, “and he always will be.”`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-assassination-god-saved
+
 **“They hired 85,000 new I.R.S. agents to harass hard-working Americans.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/they-hired-85000-new-irs-agents-to-harass-hard-working-americans
