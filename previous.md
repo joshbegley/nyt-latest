@@ -1,3 +1,7 @@
+**Chinese Billionaire and Bannon Ally Is Convicted of Fraud**\
+`A federal jury found that Guo Wengui defrauded investors, many his own fervent supporters, of hundreds of millions of dollars. He could face decades in prison.`\
+https://nytimes.com/2024/07/16/nyregion/guo-wengui-fraud-trial-verdict-china.html
+
 **Spanish FA president Rocha suspended for two years for abuse of authority**\
 `Spanish Football Association (RFEF) president Pedro Rocha has been suspended for two years for a &#8220;very serious infringement&#8221; of his authority.`\
 https://nytimes.com/athletic/5641125/2024/07/16/pedro-rocha-spain-suspended/
@@ -11,7 +15,7 @@ https://nytimes.com/video/us/politics/100000009575222/bob-menendez-convicted.htm
 https://nytimes.com/2024/07/16/us/milwaukee-shooting-republican-national-convention.html
 
 **Former Syrian Official in Charge of Notorious Prison Is Arrested in California**\
-`The former official, Samir Ousman al-Sheikh, is accused of falsely describing whether he persecuted anyone for their political beliefs or had been involved in any killings.`\
+`Samir Ousman al-Sheikh, who was seeking U.S. citizenship, is accused of falsely describing whether he persecuted anyone for their political beliefs or had been involved in any killings.`\
 https://nytimes.com/2024/07/16/us/politics/syrian-official-arrested-adra-prison.html
 
 **Canucks sign Artūrs Šilovs to 2-year contract**\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5641920/2024/07/16/gary-trent-jr-bucks-contract/
 **Scenes From Milwaukee as the R.N.C. Begins**\
 `Around 50,000 people have descended on the city, where former President Donald J. Trump was formally nominated to the Republican ticket on Monday.`\
 https://nytimes.com/2024/07/16/us/politics/rnc-milwaukee-photos.html
-
-**Crisis Hotline Has Answered 10 Million Calls, Texts and Chats**\
-`Mental health experts have said that the 988 hotline for mental health emergencies is still a work in progress, in need of more funding, coordination and awareness.`\
-https://nytimes.com/2024/07/16/us/politics/988-suicide-crisis-hotline.html
 

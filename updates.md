@@ -1,3 +1,16 @@
+**Chinese Billionaire and Bannon Ally Is Convicted of Fraud**\
+`A federal jury found that Guo Wengui defrauded investors, many his own fervent supporters, of hundreds of millions of dollars. He could face decades in prison.`\
+https://nytimes.com/2024/07/16/nyregion/guo-wengui-fraud-trial-verdict-china.html
+
+**Former Syrian Official in Charge of Notorious Prison Is Arrested in California**\
+`Samir Ousman al-Sheikh, who was seeking U.S. citizenship, is accused of falsely describing whether he persecuted anyone for their political beliefs or had been involved in any killings.`\
+https://nytimes.com/2024/07/16/us/politics/syrian-official-arrested-adra-prison.html
+
+**Canucks sign Artūrs Šilovs to 2-year contract**\
+`The 23-year-old remains the crown jewel of the club's goalie development pipeline.
+`\
+https://nytimes.com/athletic/5641919/2024/07/16/canucks-arturs-silovs-contract/
+
 **Canucks sign Artūrs Šilovs to 2-year contract**\
 `The 23-year-old remains the crown jewel of the club's goalie development pipeline.
 `\
