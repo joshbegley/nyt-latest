@@ -1,3 +1,11 @@
+**Crisis, controversy and chaos - yet Spain's national teams rule football**\
+`Spanish football is living through turbulent times - so how come their men's, women's and youth sides keep winning trophies?`\
+https://nytimes.com/athletic/5631965/2024/07/16/how-spain-rule-football-controversy/
+
+**Carla Ward interview: 'My life was coming down around me while I was still trying to manage'**\
+`Carla Ward speaks frankly about the pressures of trying to juggle management with being a mum`\
+https://nytimes.com/athletic/5631095/2024/07/16/carla-ward-aston-villa-interview/
+
 **Iran’s New President Promises Changes. Can He Deliver?**\
 `Masoud Pezeshkian, a widowed doctor, portrays himself as a reformer who can bring social and economic shifts. But others have tried and failed before him, and numerous obstacles are in his path.`\
 https://nytimes.com/2024/07/16/world/middleeast/ira-new-president-profile.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/15/us/rnc-fact-check
 **Several Tornadoes Reported in Illinois as Storm Moves to Indiana**\
 `More than 13 million people were under tornado warning or watch alerts on Monday night in Chicago, and parts of Illinois, Indiana and Wisconsin.`\
 https://nytimes.com/2024/07/15/us/tornado-chicago-illinois-storms.html
-
-**Finger-Pointing Follows Mayhem at Copa América Final in Miami**\
-`Chaos at the stadium raised questions about crowd control and security just two years before the U.S. is set to co-host the World Cup in 11 cities.`\
-https://nytimes.com/2024/07/15/us/copa-america-final-miami-world-cup.html
-
-**In J.D. Vance, Donald Trump Selects an Inheritor**\
-`Mr. Trump’s decision to pick Mr. Vance as his running mate signals his concern for the future of his MAGA movement.`\
-https://nytimes.com/2024/07/15/us/politics/trump-vance-running-mate.html
 
