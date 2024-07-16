@@ -1,3 +1,7 @@
+**For Biden, How to Cool the Temperature Without Freezing His Campaign**\
+`Former President Donald J. Trump has gone from being an instigator of political violence to a victim of it. The assassination attempt raised questions about how far language should go in a heated campaign.`\
+https://nytimes.com/2024/07/15/us/politics/biden-campaign-challenge.html
+
 **“South Dakota was the only state in the country that stayed open for business. We didn’t mandate anything.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/south-dakota-was-the-only-state-in-the-country-that-stayed-open-for-business-we-didnt-mandate-anything
