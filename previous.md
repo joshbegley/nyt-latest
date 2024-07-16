@@ -1,3 +1,15 @@
+**Joe Bryant, Basketball Player and Kobe’s Father, Dies at 69**\
+`A forward known as Jellybean, he played in the United States and Europe.`\
+https://nytimes.com/2024/07/16/sports/joe-bryant-dead.html
+
+**Overshadowed by a Senator, Two Businessmen Were Convicted With Menendez**\
+`The businessmen, Fred Daibes and Wael Hana, did not deny giving Senator Robert Menendez and his wife valuables.`\
+https://nytimes.com/2024/07/16/nyregion/wael-hana-fred-daibes-guilty.html
+
+**A House panel summons top security officials for a hearing next week.**\
+`By Luke Broadwater`\
+https://nytimes.com/live/2024/07/16/us/trump-shooting-investigation/a-house-panel-summons-top-security-officials-for-a-hearing-next-week
+
 **49ers' Brandon Aiyuk requests trade: Source**\
 `Aiyuk is coming off a 2023 season where he hauled in 75 receptions for 1,342 yards and seven touchdowns.`\
 https://nytimes.com/athletic/5641543/2024/07/16/brandon-aiyuk-trade-request-49ers/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/16/world/israel-gaza-war-hamas/the-israeli-mili
 **Judge Dismisses Classified Documents Case Against Trump**\
 `A federal judge on Monday dismissed in its entirety the classified documents case against former President Donald J.`\
 https://nytimes.com/video/us/politics/100000009572885/judge-dismisses-classified-documents-case-against-trump.html
-
-**The Judge in Menendez’s Trial Has Overseen Several High-Profile Cases**\
-`Judge Sidney H. Stein, who has almost 30 years of experience on the bench, has instilled a keen sense of order throughout the proceedings.`\
-https://nytimes.com/2024/07/16/nyregion/sidney-stein-menendez.html
-
-**A New York Jury Will Decide a New Jersey Senator’s Fate**\
-`A retired economist and a former Broadway and TV actor are part of the jury that will determine the corruption case against Senator Robert Menendez.`\
-https://nytimes.com/2024/07/16/nyregion/bob-menendez-trial-jury.html
-
-**Neighbors talk about the Trump gunman: ‘He didn’t speak to anyone, and no one spoke to him.’**\
-`By Amy Julia Harris`\
-https://nytimes.com/live/2024/07/16/us/trump-shooting-investigation/neighbors-talk-about-the-trump-gunman-he-didnt-speak-to-anyone-and-no-one-spoke-to-him
 
