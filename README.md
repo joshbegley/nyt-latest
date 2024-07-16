@@ -1,3 +1,11 @@
+**Trump Returns With a Different Look. Does That Mean a Different Tone?**\
+`The first night of the Republican National Convention sought to strike a new note. But some of the lyrics were familiar.`\
+https://nytimes.com/2024/07/16/arts/television/trump-rnc-milwaukee.html
+
+**Jacob Trouba and Kaapo Kakko trades, Ryan Lindgren contract and more Rangers thoughts**\
+`Eight thoughts on the Rangers' moves over the last few weeks, what’s still to come this summer and where the pieces may fit next season.`\
+https://nytimes.com/athletic/5639607/2024/07/16/rangers-jacob-trouba-kaapo-kakko-trade/
+
 **Are Artificial Sweeteners Safer Than Sugar?**\
 `Health concerns have been mounting for decades. Here’s what the research suggests.`\
 https://nytimes.com/2024/07/16/well/eat/artificial-sweeteners-sugar-free.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5640869/2024/07/16/ea-sports-college-football-25-un
 **Hollinger: Why Team USA's next games will be a much different test**\
 `LeBron James, Joel Embiid and company have limited time to tweak their games to the style that makes the most sense in international play.`\
 https://nytimes.com/athletic/5640391/2024/07/16/team-usa-basketball-fiba-rules-lebron-james-joel-embiid/
-
-**SEC coordinator of officials addresses 'Horns Down'**\
-`John McDaid estimates that team signal taunting has led to an unsportsmanlike conduct penalty fewer than five times over the past decade.`\
-https://nytimes.com/athletic/5641161/2024/07/16/horns-down-texas-sec/
-
-**How Vance seeks to reorient the Republicans’ approach to business.**\
-`By Dealbook`\
-https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/how-jd-vance-seeks-to-reorient-the-republicans-approach-to-business
 
