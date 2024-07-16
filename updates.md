@@ -1,3 +1,15 @@
+**Dr. Ruth’s Tips for a Happy Life**\
+`Ruth Westheimer loved to give advice — and often strayed from her area of expertise as she tried, in her words, “to make the world a better place.”`\
+https://nytimes.com/2024/07/15/style/dr-ruths-tips-happiness.html
+
+**Colombian Football Federation president arrested at Copa final**\
+`The arrests are two of the 27 made by Miami-Dade police during the Copa America final.`\
+https://nytimes.com/athletic/5639637/2024/07/15/ramon-jesurun-arrest-copa-america/
+
+**Here is the schedule of speakers at the convention on Monday night.**\
+`By Tim Balk`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/here-is-the-schedule-of-speakers-at-the-convention-on-monday-night
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>SEC Media Days. EA Sports release date. Two more coaching changes in the Mountain West. It&#8217;s all happening here in college football.</p>
 <p>Leave your questions here. Please include your city.</p>

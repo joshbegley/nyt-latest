@@ -1,3 +1,15 @@
+**Dr. Ruth’s Tips for a Happy Life**\
+`Ruth Westheimer loved to give advice — and often strayed from her area of expertise as she tried, in her words, “to make the world a better place.”`\
+https://nytimes.com/2024/07/15/style/dr-ruths-tips-happiness.html
+
+**Colombian Football Federation president arrested at Copa final**\
+`The arrests are two of the 27 made by Miami-Dade police during the Copa America final.`\
+https://nytimes.com/athletic/5639637/2024/07/15/ramon-jesurun-arrest-copa-america/
+
+**Here is the schedule of speakers at the convention on Monday night.**\
+`By Tim Balk`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/here-is-the-schedule-of-speakers-at-the-convention-on-monday-night
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>SEC Media Days. EA Sports release date. Two more coaching changes in the Mountain West. It&#8217;s all happening here in college football.</p>
 <p>Leave your questions here. Please include your city.</p>
@@ -27,16 +39,4 @@ https://nytimes.com/2024/07/15/us/canyonlands-hiking-deaths-utah.html
 **Investigators Unlock Gunman’s Phone in Search of Motive for Trump Shooting**\
 `The F.B.I. said it had gained access to the would-be assassin’s phone, but it was not immediately clear whether it had yielded clues.`\
 https://nytimes.com/2024/07/15/us/politics/trump-shooting-fbi-gunman-phone.html
-
-**The Good Mood in Milwaukee**\
-`The way Republicans at the national convention see it, somehow, everything is going their way.`\
-https://nytimes.com/2024/07/15/us/politics/rnc-trump-vance-milwaukee.html
-
-**27 Facts About J.D. Vance, Trump’s Pick for V.P.**\
-`Mr. Vance spilled scores of details about his life in his coming-of-age memoir. We’ve collected the highlights.`\
-https://nytimes.com/2024/07/15/us/politics/27-facts-about-jd-vance.html
-
-**Anthony Davis' solid play for Team USA creates a tough question for Steve Kerr**\
-`Is Joel Embiid, a former NBA MVP, the right choice to start for Team USA? Right now, with Davis tearing it up, nothing is certain.`\
-https://nytimes.com/athletic/5639957/2024/07/15/anthony-davis-joel-embiid-steve-kerr-team-usa-olympics/
 
