@@ -1,3 +1,7 @@
+**Former President Donald J. Trump’s administration had “energy independence.”**\
+`By Lisa Friedman`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/former-president-donald-j-trumps-administration-had-energy-independence
+
 **“Raises can’t keep up with 30 percent increases in grocery prices and 40 percent increases in gas” and the fixed income of retirees “has been crushed by the silent thief of inflation unleashed by Joe Biden and Kamala Harris.”**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/raises-cant-keep-up-with-30-percent-increases-in-grocery-prices-and-40-percent-increases-in-gas-and-the-fixed-income-of-retirees
