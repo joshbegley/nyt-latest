@@ -1,3 +1,11 @@
+**The hospital that treated Trump was tightly locked down, with other patients receiving care in the parking lot.**\
+`By Heather Knight`\
+https://nytimes.com/live/2024/07/16/us/trump-shooting-investigation/the-hospital-that-treated-trump-was-tightly-locked-down-with-other-patients-receiving-care-in-the-parking-lot
+
+**Red Sox draft David Ortiz's son, D'Angelo, in 19th round**\
+`The Miami Dade College product is listed at 6-foot-1 and weighs 190 pounds, about 2 inches shorter and 40 pounds lighter than his father.`\
+https://nytimes.com/athletic/5642139/2024/07/16/dangelo-ortiz-red-sox-mlb-draft/
+
 **The expanded Playoff effect: Suddenly, more SEC teams are more interesting**\
 `At a minimum, half of the SEC can be counted as legitimate Playoff contenders. And that will keep more fan bases engaged for longer. `\
 https://nytimes.com/athletic/5642152/2024/07/16/sec-college-football-playoff-missouri-tennessee/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/16/briefing/menendez-guilty-verdict-trump-shooting-i
 **The Sex Advice That Changed Us**\
 `When our parents were silent, unsure or sexually repressed, there was always Dr. Ruth.`\
 https://nytimes.com/2024/07/16/well/family/dr-ruth-death-memories.html
-
-**Russia Won’t Silence Masha Gessen**\
-`The journalist unflinchingly asserts the right to seek out and report the truth.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/masha-gessen-press-freedom
-
-**Widow of Slain Rally Attendee Says She Received Call From Trump**\
-`Corey Comperatore, 50, was killed while attending a rally for Donald J. Trump for the first time.`\
-https://nytimes.com/2024/07/16/us/widow-call-trump-biden.html
 
