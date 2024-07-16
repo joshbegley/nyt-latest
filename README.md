@@ -1,3 +1,11 @@
+**Who could replace Gareth Southgate as England manager?**\
+`Gareth Southgate is to leave his role as England manager - these are the candidates to succeed him`\
+https://nytimes.com/athletic/5619843/2024/07/16/england-next-manager/
+
+**Southgate leaves role as England manager**\
+`Gareth Southgate has resigned from his role as manager of the England men&#8217;s side.`\
+https://nytimes.com/athletic/5637301/2024/07/16/gareth-southgate-england-manager-leaves/
+
 **Trump’s Emotional Appearance, and More Republican Convention Takeaways**\
 `Plus, a college football video game breaks new ground.`\
 https://nytimes.com/2024/07/16/podcasts/trump-rnc-vp-pick-vance.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5640025/2024/07/16/cubs-2014-mlb-draft-class/
 **Trump Picks His Running Mate, and Political Heir**\
 `Former President Donald J. Trump chose the 39-year-old Senator J.D. Vance of Ohio as his vice-presidential nominee.`\
 https://nytimes.com/2024/07/16/podcasts/the-daily/trump-jd-vance.html
-
-**Greenberg: Waiting for Paul Skenes to start All-Star Game while pondering Cubs, White Sox**\
-`At long last, the Pirates have both an ace and a superstar in Skenes, whose best comp right now is probably Kerry Wood.`\
-https://nytimes.com/athletic/5639641/2024/07/16/paul-skenes-all-star-game-cubs-white-sox/
-
-**Wordle Review No. 1,124, Wednesday, July 17, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/16/crosswords/wordle-review-1124.html
 
