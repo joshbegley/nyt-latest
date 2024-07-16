@@ -1,3 +1,15 @@
+**‘Imminent’ Risk of Dam Failure Prompts Evacuation in Illinois**\
+`Residents in Nashville, Ill., were told to evacuate their homes on Tuesday amid heavy rain and the risk of a dam failure.`\
+https://nytimes.com/2024/07/16/us/nashville-illinois-dam-failure.html
+
+**Breaking at the 2024 Paris Olympics: How it got here, format and how to watch**\
+`Born from 1970s block parties in the Bronx, N.Y., breaking makes its Olympic debut next month.`\
+https://nytimes.com/athletic/5632505/2024/07/16/breaking-2024-paris-olympics-dance-format-watch/
+
+**Jack Black Ends Tenacious D Tour After Bandmate Jokes About Trump Shooting**\
+`At a concert in Australia, Kyle Gass made a comment suggesting that he wished the shooter had not missed former President Trump during an assassination attempt.`\
+https://nytimes.com/2024/07/16/arts/music/jack-black-tenacious-d-tour-trump-shooting.html
+
 **Trump Returns With a Different Look. Does That Mean a Different Tone?**\
 `The first night of the Republican National Convention sought to strike a new note. But some of the lyrics were familiar.`\
 https://nytimes.com/2024/07/16/arts/television/trump-rnc-milwaukee.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/16/technology/universal-income-openai-silicon-valley
 **How Would Ohio Replace Vance in the Senate if Trump Wins in November?**\
 `State law instructs the governor to appoint a replacement until a special election can be held. Several Republican names are already circulating as potential prospects.`\
 https://nytimes.com/2024/07/16/us/politics/how-would-ohio-replace-vance-in-the-senate-if-trump-wins-in-november.html
-
-**The gunman’s high school guidance counselor: ‘Something snapped.’**\
-`Jim Knapp, who counseled Thomas Crooks, recalled him as someone who stuck to himself, but said there were no early alarms about the trouble to come.`\
-https://nytimes.com/live/2024/07/16/us/trump-shooting-investigation/the-gunmans-high-school-guidance-counselor-something-snapped
-
-**Until Saturday: What we like and what we don't about CFB 25**\
-`Welcome to Until Saturday, the five-star college football newsletter: What do we think about College Football 25?`\
-https://nytimes.com/athletic/5640869/2024/07/16/ea-sports-college-football-25-until-saturday/
-
-**Hollinger: Why Team USA's next games will be a much different test**\
-`LeBron James, Joel Embiid and company have limited time to tweak their games to the style that makes the most sense in international play.`\
-https://nytimes.com/athletic/5640391/2024/07/16/team-usa-basketball-fiba-rules-lebron-james-joel-embiid/
 
