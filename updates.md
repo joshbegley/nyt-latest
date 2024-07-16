@@ -1,3 +1,15 @@
+**Here’s the latest on the investigation.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/07/16/us/trump-shooting-investigation/heres-the-latest-on-the-investigation
+
+**Trump Shooting Live Updates: Investigators Focus on Security Lapses and Gunman’s Motive**\
+`The Secret Service faces growing scrutiny over its failure to stop the would-be assassin, despite crowd warnings about a suspicious person outside the Trump rally venue.`\
+https://nytimes.com/live/2024/07/16/us/trump-shooting-investigation
+
+**Mbappe at Real Madrid unveiling: 'Today, my dream comes true'**\
+`Kylian Mbappe says he dreamed of playing for Real Madrid after being unveiled at the Santiago Bernabeu on Tuesday.`\
+https://nytimes.com/athletic/5640692/2024/07/16/mbappe-real-madrid-unveiling/
+
 **What Trump Sees in J.D. Vance, His New Apprentice**\
 `The former president was probably thinking of 2028 and beyond — and where he wants the G.O.P. to go.`\
 https://nytimes.com/2024/07/16/opinion/jd-vance-trump-apprentice.html
