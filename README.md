@@ -1,3 +1,11 @@
+**A Bandaged Trump Shows a Glimpse of Vulnerability**\
+`Donald J. Trump was unusually emotional in his first public appearance since the attempt on his life.`\
+https://nytimes.com/2024/07/16/us/politics/trump-first-night-rnc.html
+
+**Takeaways From Day One of the Republican Convention**\
+`Donald Trump and his newly minted running mate, J.D. Vance, were officially nominated, but Mr. Trump’s triumphal prime-time emergence in the arena that might prove the indelible moment of the whole event.`\
+https://nytimes.com/2024/07/16/us/politics/trump-vance-rnc-takeaways.html
+
 **Jaylen Brown talks Team USA snub, says Nike involved**\
 `“I do for sure," Brown said Tuesday when asked if he believed the Nike influenced the decision.`\
 https://nytimes.com/athletic/5640340/2024/07/16/jaylen-brown-team-usa-nike/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5638518/2024/07/16/what-leeds-can-expect-joe-rothwe
 **Convention lineup showcases future of G.O.P.**\
 `By Adam Nagourney`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/convention-lineup-showcases-future-of-gop
-
-**How Pep Guardiola takes inspiration from other sports**\
-`Manchester CIty's manager is rightly hailed as an transcendent figure but Guardiola is constantly taking inspiration from other sports `\
-https://nytimes.com/athletic/5628740/2024/07/16/pep-guardiola-celtics-chess-sports/
-
-**Who is on track to win the men's Ballon d'Or for 2023-24?**\
-`In the wake of Euro 2024 and the 2024 Copa America, our writers give their tips for the 2023-24 men's Ballon d'Or award`\
-https://nytimes.com/athletic/5638878/2024/07/16/ballon-dor-rodri-kroos-bellingham-lautaro/
 
