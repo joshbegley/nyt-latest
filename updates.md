@@ -1,3 +1,16 @@
+**Canucks sign Artūrs Šilovs to 2-year contract**\
+`The 23-year-old remains the crown jewel of the club's goalie development pipeline.
+`\
+https://nytimes.com/athletic/5641919/2024/07/16/canucks-arturs-silovs-contract/
+
+**Democratic leaders call on Menendez to resign.**\
+`By Tracey Tully`\
+https://nytimes.com/live/2024/07/16/nyregion/bob-menendez-verdict/democratic-leaders-call-on-menendez-to-resign
+
+**Bears, Caleb Williams agree to terms on $39 million deal**\
+`The 2022 Heisman Trophy winning Williams from USC is the franchise’s third first-round quarterback in the past eight seasons.`\
+https://nytimes.com/athletic/5641900/2024/07/16/caleb-williams-bears-rookie-contract/
+
 **Videos Show Secret Service Snipers Were Focused Toward Gunman at Trump Rally**\
 `Three videos posted to social media show that sniper teams were facing in the direction of the shooter before he fired at former President Donald J. Trump.`\
 https://nytimes.com/2024/07/16/us/trump-shooting-secret-service-snipers.html

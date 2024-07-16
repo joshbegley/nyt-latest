@@ -1,3 +1,16 @@
+**Canucks sign Artūrs Šilovs to 2-year contract**\
+`The 23-year-old remains the crown jewel of the club's goalie development pipeline.
+`\
+https://nytimes.com/athletic/5641919/2024/07/16/canucks-arturs-silovs-contract/
+
+**Democratic leaders call on Menendez to resign.**\
+`By Tracey Tully`\
+https://nytimes.com/live/2024/07/16/nyregion/bob-menendez-verdict/democratic-leaders-call-on-menendez-to-resign
+
+**Bears, Caleb Williams agree to terms on $39 million deal**\
+`The 2022 Heisman Trophy winning Williams from USC is the franchise’s third first-round quarterback in the past eight seasons.`\
+https://nytimes.com/athletic/5641900/2024/07/16/caleb-williams-bears-rookie-contract/
+
 **Gary Trent Jr. signing 1-year deal with Bucks**\
 `Trent appeared in 71 games for the Toronto Raptors last season and started in 41 of those appearances.`\
 https://nytimes.com/athletic/5641920/2024/07/16/gary-trent-jr-bucks-contract/
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/5641898/2024/07/16/sarina-wiegman-england-qualify/
 **How Tucker Carlson Helped Sell J.D. Vance as Trump’s Running Mate**\
 `The former Fox News host warned Donald J. Trump that two other running-mate contenders, Senator Marco Rubio of Florida and Gov. Doug Burgum of North Dakota, could not be trusted.`\
 https://nytimes.com/2024/07/16/us/politics/tucker-carlson-jd-vance-trump.html
-
-**Manfred hints at future ASG uniform changes**\
-`"It’s something we’re going to have a conversation about coming out of the All-Star Game,” Manfred said Tuesday.`\
-https://nytimes.com/athletic/5641816/2024/07/16/rob-manfred-all-star-game-uniforms/
-
-**Can We ‘Make America Affordable Again’? Should We?**\
-`History says that deflation is terrible for the economy.`\
-https://nytimes.com/2024/07/16/opinion/inflation-prices-economy.html
-
-**Southampton complete Flynn Downes transfer from West Ham**\
-`Southampton have completed the signing of midfielder Flynn Downes from West Ham United on a permanent deal.`\
-https://nytimes.com/athletic/5640468/2024/07/16/flynn-downes-southampton-transfer-news/
 
