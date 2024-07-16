@@ -1,6 +1,6 @@
 **Wimbledon 2024 review: Best match, favourite player, and most Wimbledon moment**\
 `The Athletic's tennis team reflect on Wimbledon 2024, picking the players, matches, and moments of the tournament`\
-https://nytimes.com/athletic/5640780/2024/07/16/wimbledon-2024-review-best-match-favourite-player-and-most-wimbledon-moment/
+https://nytimes.com/athletic/5640780/2024/07/16/wimbledon-2024-review-best-matches-best-shots-highlights/
 
 **Fact-Checking the Republican National Convention on Energy Claims**\
 `Several speakers focused on the sharp rise in gas and electricity prices under President Biden. We scrutinized their statements.`\
