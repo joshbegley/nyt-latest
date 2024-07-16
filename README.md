@@ -1,3 +1,7 @@
+**Jets talked to now-Steelers OC Smith in offseason**\
+`Aaron Rodgers was made aware the Jets had conversations this offseason about other offensive coordinator options, Dianna Russini reports.`\
+https://nytimes.com/athletic/5640268/2024/07/16/jets-arthur-smith-hackett-rodgers-scoop-city/
+
 **Civilian casualties in Gaza remain unacceptably high, the State Department says.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/07/16/world/israel-gaza-war-hamas/civilian-casualties-in-gaza-remain-unacceptably-high-the-state-department-says
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5640296/2024/07/16/uswnt-costa-rica-olympics-heat/
 **A ‘Breathtaking’ Dismissal of the Trump Documents Case**\
 `Readers strongly disagree with Judge Aileen Cannon’s decision.`\
 https://nytimes.com/2024/07/16/opinion/letters/trump-documents-case-judge-cannon.html
-
-**Vance is well-known in China, which he calls a threat to the U.S.**\
-`By Keith Bradsher`\
-https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/vance-is-well-known-in-china-which-he-calls-a-threat-to-the-us
 
