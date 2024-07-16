@@ -1,3 +1,15 @@
+**This Bus Only Turns Right**\
+`The concerned women for America are concerned.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/this-bus-only-turns-right
+
+**Sullivan, 14, could break MLS record after being named in Philadelphia squad for first time**\
+`Cavan Sullivan, 14, has been named in the Philadelphia Union&#8217;s squad for Wednesday&#8217;s Major League Soccer fixture against the New England Revolution.`\
+https://nytimes.com/athletic/5642239/2024/07/16/cavan-sullivan-philadelphia-union-squad/
+
+**The Art of Getting a Real Answer Out of a President**\
+`It was clear to The Times’s White House correspondent that if he asked President Biden the same question about age, he’d get the same, practiced answer. So he tried something different.`\
+https://nytimes.com/2024/07/16/insider/biden-news-conference-reporter-sanger.html
+
 **The Art of Getting a Real Answer Out of a President**\
 `It was clear to The Times’s White House correspondent that if he asked President Biden the same question about age, he’d get the same, practiced answer. So he tried something different.`\
 https://nytimes.com/2024/07/16/insider/the-art-of-getting-a-real-answer-out-of-a-president.html

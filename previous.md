@@ -1,6 +1,14 @@
+**This Bus Only Turns Right**\
+`The concerned women for America are concerned.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/this-bus-only-turns-right
+
+**Sullivan, 14, could break MLS record after being named in Philadelphia squad for first time**\
+`Cavan Sullivan, 14, has been named in the Philadelphia Union&#8217;s squad for Wednesday&#8217;s Major League Soccer fixture against the New England Revolution.`\
+https://nytimes.com/athletic/5642239/2024/07/16/cavan-sullivan-philadelphia-union-squad/
+
 **The Art of Getting a Real Answer Out of a President**\
 `It was clear to The Times’s White House correspondent that if he asked President Biden the same question about age, he’d get the same, practiced answer. So he tried something different.`\
-https://nytimes.com/2024/07/16/insider/the-art-of-getting-a-real-answer-out-of-a-president.html
+https://nytimes.com/2024/07/16/insider/biden-news-conference-reporter-sanger.html
 
 **Resurgent Trump Has Democrats in Swing Districts Despondent**\
 `The Democratic plan to hustle through President Biden’s nomination has angered some in the party looking for a change on the ticket, as Republicans project confidence in a drubbing.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/16/us/politics/biden-border-immigration.html
 **Daughter-in-Law and Party Chief: Lara Trump’s Dual Roles**\
 `Since taking the helm at the R.N.C. in March, Donald J. Trump’s daughter-in-law has put a smiling spin on some of the darkest aspects of his campaign for the White House.`\
 https://nytimes.com/2024/07/16/us/politics/lara-trump-republicans-rnc.html
-
-**Israeli Airstrikes Kill Over 20, Gazans Say, and Hit Another U.N. Building**\
-`The Israeli military said it was targeting militants operating in a U.N. school being used as a shelter in Nuseirat. A second strike caused fatalities in Al-Mawasi, the Gazan Health Ministry said.`\
-https://nytimes.com/2024/07/16/world/middleeast/israel-hamas-gaza.html
-
-**Jontay Porter asks judge for permission to play in Greece**\
-`Porter was banned by the NBA after its investigation found that he bet on Raptors games.`\
-https://nytimes.com/athletic/5642134/2024/07/16/jontay-porter-greece-basketball-betting-raptors/
 
