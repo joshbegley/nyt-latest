@@ -1,3 +1,7 @@
+**Ohio Republicans on J.D. Vance: ‘He’s Our Barack Obama’**\
+`But will he stir any voters beyond Trump’s MAGA base?`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/vance-ohio-republican-convention
+
 **Kings sign Quinton Byfield to 5-year extension worth $31.25 million**\
 `Byfield took a major leap in registering career highs in games played (80), goals (20), assists (35) and points (55).`\
 https://nytimes.com/athletic/5640219/2024/07/15/kings-extend-quinton-byfield/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/former-president-don
 **“Raises can’t keep up with 30 percent increases in grocery prices and 40 percent increases in gas” and the fixed income of retirees “has been crushed by the silent thief of inflation unleashed by Joe Biden and Kamala Harris.”**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/raises-cant-keep-up-with-30-percent-increases-in-grocery-prices-and-40-percent-increases-in-gas-and-the-fixed-income-of-retirees
-
-**Skip Bayless leaving FS1's 'Undisputed'**\
-`Bayless arrived with much fanfare at Fox Sports in 2016 following 12 years at ESPN.`\
-https://nytimes.com/athletic/5640129/2024/07/15/skip-bayless-leaving-undisputed-fs1-fox-sports/
 
