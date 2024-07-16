@@ -1,40 +1,40 @@
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/07/16/crosswords/spelling-bee-forum.html
+**D.N.C. Pours $15 Million Into State Parties in Top Battlegrounds**\
+`The Democratic National Committee is investing heavily in seven battleground states, in what it says is the earliest such infusion of cash in recent history.`\
+https://nytimes.com/2024/07/16/us/politics/dnc-money.html
 
-**A Somber Late Night After the Attack on Trump**\
-`Stephen Colbert and Seth Meyers offered sober reflections about democracy. So did Anthony Anderson, though he found some humor in the reaction to the shooting.`\
-https://nytimes.com/2024/07/16/arts/television/late-night-trump.html
+**Republican Convention: Best and Worst Moments From Night 1**\
+`Here’s what our columnists and contributors thought of the opening night for Republicans in Milwaukee.`\
+https://nytimes.com/2024/07/16/opinion/republican-convention-trump-vance.html
 
-**The Red Bull RB17: How iconic F1 architect Adrian Newey built his 'utopia' car**\
-`Hypercars exist at the upper limit of automotive performance, a level the RB17 sought to reach by harnessing F1 technology.`\
-https://nytimes.com/athletic/5639137/2024/07/16/rb17-car-red-bull-f1-adrian-newey/
+**Visiting an Elusive Writer, and Revisiting His Masterpiece**\
+`Our critic talks to Edward P. Jones about how he imagined “The Known World,” recently voted the best work of fiction by an American writer in the 21st century.`\
+https://nytimes.com/2024/07/16/books/review/edward-p-jones-interview-the-known-world.html
 
-**Introducing ‘Scoop City,’ a new NFL podcast with Dianna Russini and Chase Daniel**\
-`The show debuts Tuesday, with Chiefs coach Andy Reid as the first guest`\
-https://nytimes.com/athletic/5638721/2024/07/16/scoop-city-new-nfl-podcast-dianna-russini-chase-daniel/
+**How Osgood Perkins Gave a Jolt to ‘Longlegs’**\
+`The filmmaker, who is the son of the “Psycho” star Anthony Perkins, discusses horror inspirations, his father’s legacy, evil dolls and working with Nicolas Cage.`\
+https://nytimes.com/2024/07/16/movies/longlegs-osgood-perkins-interview.html
 
-**It May Feel Like 100 Degrees in New York on Tuesday**\
-`The hot spell will continue until Thursday, officials predict, and the city and surrounding areas were placed under a heat advisory.`\
-https://nytimes.com/2024/07/16/nyregion/heat-wave-nyc-forecast.html
+**What Trump 2.0 Could Mean for the Environment**\
+`If Donald Trump returns to the White House, he would likely face fewer legal and bureaucratic obstacles to dramatically remake the E.P.A.`\
+https://nytimes.com/2024/07/16/climate/trump-epa-regulation.html
 
-**At Paint Rock, Centuries of Native American Artistry**\
-`Glyphs and pictographs at a site in Texas represent generations of settlement by Indigenous peoples.`\
-https://nytimes.com/2024/07/16/science/paint-rock-texas-native-american.html
+**The ‘Converse Conductor’ Fighting Elitism in Classical Music**\
+`Jonathon Heyward wears sneakers onstage and embraces genres like jazz as part of his effort to bring more people into the concert hall.`\
+https://nytimes.com/2024/07/16/arts/music/the-converse-conductor-fighting-elitism-in-classical-music.html
 
-**Up to $1 Billion May Go to Waste After Hochul’s Congestion Pricing Halt**\
-`Transit leaders had already allocated hundreds of millions of dollars before Gov. Kathy Hochul’s last-minute reversal on the long-awaited tolling plan.`\
-https://nytimes.com/2024/07/16/nyregion/congestion-pricing-cost-hochul.html
+**Cowboy Boots Are the Great American Icebreaker**\
+`Its easier to kick off a conversation when you’re sporting some fine footwear.`\
+https://nytimes.com/2024/07/16/magazine/cowboy-boots-icebreaker.html
 
-**The Transfer DealSheet: Yoro latest, Williams interest and Calafiori update**\
-`This is the weekly edition of The Transfer DealSheet, your place for everything transfers during the summer window`\
-https://nytimes.com/athletic/5638415/2024/07/16/manchester-united-transfer-latest-real-madrid-arsenal/
+**The World Is Pushing Clean Energy. Oil Companies Are Thriving.**\
+`High prices and growing demand have helped U.S. oil producers take in record profits despite global efforts to spur greater use of renewable energy and electric cars.`\
+https://nytimes.com/2024/07/16/business/energy-environment/oil-company-profits.html
 
-**Taiwan’s Blunt-Talking Leader Faces China’s Backlash**\
-`China is putting more military and political pressure on Taiwan and its new president, whose rhetoric has been sharper than his predecessor’s.`\
-https://nytimes.com/2024/07/16/world/asia/taiwan-china-lai-ching-te.html
+**A Brutal Gang, a Dead Baby and a Struggling Immigrant L.A.**\
+`Jesse Katz’s true-crime narrative, “The Rent Collectors,” delivers a nuanced portrait of a community racked by poverty and violence and deprived of opportunities to get ahead.`\
+https://nytimes.com/2024/07/16/books/review/the-rent-collectors-jesse-katz.html
 
-**Inside Spain's celebrations: Morata's star turn, little sleep and De la Fuente's singalong**\
-`Spain celebrated their latest European Championship success with a public party in Madrid that lasted into the early hours`\
-https://nytimes.com/athletic/5640357/2024/07/16/spain-euro-2024-celebrations/
+**With a Killer Onstage and a Body Part in the Back, the Show Went On**\
+`The creators of “Inspired by True Events” wanted their new immersive theater piece to convey ominousness, not a haunted-house riff on “Noises Off.”`\
+https://nytimes.com/2024/07/16/theater/inspired-by-true-events-true-crime-play.html
 
