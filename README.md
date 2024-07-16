@@ -3,7 +3,7 @@
 https://nytimes.com/2024/07/16/business/media/larry-light-dead.html
 
 **Carlos Watson, Ozy Media Founder, Is Found Guilty of Fraud**\
-`Mr. Watson, who denied lying to investors and lenders, could face up to 37 years in prison.`\
+`Mr. Watson, who denied lying to investors and lenders, faces up to 37 years in prison.`\
 https://nytimes.com/2024/07/16/business/media/carlos-watson-ozy-media-guilty.html
 
 **After Trump Assassination Attempt, Right Points Finger at Female Agents**\
