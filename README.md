@@ -1,3 +1,11 @@
+**Steve Kerr aims to bolster Warriors' coaching staff in very specific ways**\
+`Former NBA head coach Terry Stotts and former player Jerry Stackhouse are the new faces on Golden State's bench.`\
+https://nytimes.com/athletic/5634372/2024/07/16/steve-kerr-warriors-terry-stotts-jerry-stackhouse/
+
+**From Reggie to Rooker: Oakland A's memorable All-Star Game moments**\
+`A look at some of the A's most memorable All-Star Game moments as Mason Miller and Mark Kotsay prepare to make the trip to Arlington.`\
+https://nytimes.com/athletic/5609420/2024/07/16/oakland-athletics-all-star-game-moments/
+
 **Como deny allegation of racism towards Wolves' Hwang**\
 `Italian club Como have denied their player was intentionally racist towards Wolverhampton Wanderers forward Hwang Hee-chan and accused Wolves of “blowing the incident out of proportion”.`\
 https://nytimes.com/athletic/5640698/2024/07/16/hwang-hee-chan-racism-como-wolves/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5560535/2024/07/16/san-francisco-49ers-defensive-ba
 **Kylian Mbappe and the story of Real Madrid's decade-long 'obsession' to sign him**\
 `From his visit to the club as a kid to the dramatic U-turn of May 2022, Madrid and Mbappe go back a very long way `\
 https://nytimes.com/athletic/5208094/2024/07/16/kylian-mbappe-real-madrid-psg-florentino-perez/
-
-**The Pulse: NFL stuff is finally happening**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5640370/2024/07/16/nfl-training-camp-aaron-rodgers-texans-matthew-stafford/
-
-**Is the G.O.P. Changing Its Tune on Unions? Don’t Count On It.**\
-`Despite the attempts at a courtship, the Republican Party supports barriers to collective bargaining.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/republicans-unions-trump-teamsters
 
