@@ -1,3 +1,7 @@
+**How the Trump Prosecutions Could End Up Weakening Prosecutors**\
+`The effort to hold Donald Trump to account has already yielded a Supreme Court decision giving former presidents broad immunity. Now another case could make prosecuting political figures more complicated.`\
+https://nytimes.com/2024/07/16/us/politics/trump-prosecutions.html
+
 **Naomi Pomeroy, 49, Chef Who Made Portland a Dining Destination, Dies**\
 `Her refined palate and pursuit of excellence made her the city’s culinary matriarch, attracting diners and talent alike to Oregon. She died in a tubing accident.`\
 https://nytimes.com/2024/07/16/dining/naomi-pomeroy-dead.html

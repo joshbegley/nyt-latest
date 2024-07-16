@@ -1,3 +1,7 @@
+**How the Trump Prosecutions Could End Up Weakening Prosecutors**\
+`The effort to hold Donald Trump to account has already yielded a Supreme Court decision giving former presidents broad immunity. Now another case could make prosecuting political figures more complicated.`\
+https://nytimes.com/2024/07/16/us/politics/trump-prosecutions.html
+
 **Naomi Pomeroy, 49, Chef Who Made Portland a Dining Destination, Dies**\
 `Her refined palate and pursuit of excellence made her the city’s culinary matriarch, attracting diners and talent alike to Oregon. She died in a tubing accident.`\
 https://nytimes.com/2024/07/16/dining/naomi-pomeroy-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/16/us/trump-shooting-investigation/the-hospital
 **Red Sox draft David Ortiz's son, D'Angelo, in 19th round**\
 `The Miami Dade College product is listed at 6-foot-1 and weighs 190 pounds, about 2 inches shorter and 40 pounds lighter than his father.`\
 https://nytimes.com/athletic/5642139/2024/07/16/dangelo-ortiz-red-sox-mlb-draft/
-
-**The expanded Playoff effect: Suddenly, more SEC teams are more interesting**\
-`At a minimum, half of the SEC can be counted as legitimate Playoff contenders. And that will keep more fan bases engaged for longer. `\
-https://nytimes.com/athletic/5642152/2024/07/16/sec-college-football-playoff-missouri-tennessee/
 
