@@ -1,3 +1,7 @@
+**Teoscar Hernández ends Dodgers' Derby drought by playing it cool, calling his shots**\
+`There was something about Teoscar Hernández that seemed like it was made for this moment. He became the first Dodger to win the Derby. `\
+https://nytimes.com/athletic/5640435/2024/07/16/teoscar-hernandez-dodgers-first-home-run-derby-champ/
+
 **D.N.C. Aims to Push Biden Toward Nomination Next Week, Despite Doubts**\
 `Leaders of the Democratic National Committee are aiming for a process that would formalize the nomination by the end of July, even as Democrats remain fiercely split over his candidacy.`\
 https://nytimes.com/2024/07/16/us/politics/dnc-biden-nominee.html
