@@ -1,3 +1,7 @@
+**Skip Bayless leaving FS1's 'Undisputed'**\
+`Bayless arrived with much fanfare at Fox Sports in 2016 following 12 years at ESPN.`\
+https://nytimes.com/athletic/5640129/2024/07/15/skip-bayless-leaving-undisputed-fs1-fox-sports/
+
 **'Today is the reward': From veterans to rookies, first-time MLB All-Stars revel in moment**\
 `When the All-Stars took the field for their first workout on Monday, 37 were there for the first time.`\
 https://nytimes.com/athletic/5640123/2024/07/15/mlb-first-time-all-stars/

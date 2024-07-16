@@ -1,3 +1,7 @@
+**Skip Bayless leaving FS1's 'Undisputed'**\
+`Bayless arrived with much fanfare at Fox Sports in 2016 following 12 years at ESPN.`\
+https://nytimes.com/athletic/5640129/2024/07/15/skip-bayless-leaving-undisputed-fs1-fox-sports/
+
 **“Illegal immigration is crushing American workers.”**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/illegal-immigration-is-crushing-american-workers
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/5640106/2024/07/15/submit-a-question-for-stewart-ma
 **Elon Musk Allies Help Start Pro-Trump Super PAC**\
 `The group, America PAC, is funded by several wealthy tech entrepreneurs in Mr. Musk’s social circle and is said to be likely to draw financial support from the SpaceX and Tesla founder himself.`\
 https://nytimes.com/2024/07/15/us/politics/elon-musk-trump-super-pac.html
-
-**“Our open borders have also unleashed the worst drug crisis in American history. Yet while hundreds of thousands of Americans are suffering, the Democrats spent over $175 billion — your tax dollars — to secure Ukraine’s borders. But they tell us the border wall is too expensive.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/our-open-borders-have-also-unleashed-the-worst-drug-crisis-in-american-history-yet-while-hundreds-of-thousands-of-americans-are-
 
