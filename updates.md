@@ -1,3 +1,19 @@
+**Gary Trent Jr. signing 1-year deal with Bucks**\
+`Trent appeared in 71 games for the Toronto Raptors last season and started in 41 of those appearances.`\
+https://nytimes.com/athletic/5641920/2024/07/16/gary-trent-jr-bucks-contract/
+
+**Scenes From Milwaukee as the R.N.C. Begins**\
+`Around 50,000 people have descended on the city, where former President Donald J. Trump was formally nominated to the Republican ticket on Monday.`\
+https://nytimes.com/2024/07/16/us/politics/republican-national-convention-milwaukee.html
+
+**Videos Show Secret Service Snipers Were Focused Toward Trump Gunman**\
+`Three videos posted to social media show that sniper teams were facing in the direction of the shooter before he fired at former President Donald J. Trump.`\
+https://nytimes.com/2024/07/16/us/trump-shooting-secret-service-snipers.html
+
+**How Tucker Carlson Helped Sell J.D. Vance as Trump’s Running Mate**\
+`The former Fox News host warned Donald J. Trump that two other running-mate contenders, Senator Marco Rubio of Florida and Gov. Doug Burgum of North Dakota, could not be trusted.`\
+https://nytimes.com/2024/07/16/us/politics/tucker-carlson-jd-vance-trump.html
+
 **Crisis Hotline Has Answered 10 Million Calls, Texts and Chats**\
 `Mental health experts have said that the 988 hotline for mental health emergencies is still a work in progress, in need of more funding, coordination and awareness.`\
 https://nytimes.com/2024/07/16/us/politics/988-suicide-crisis-hotline.html
