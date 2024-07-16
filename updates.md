@@ -1,3 +1,7 @@
+**Chris Christie: Will Trump Rise to Meet the Moment?**\
+`The Republican nominee has the opportunity to rein in some of the worst rhetorical impulses of party and point in a new direction.`\
+https://nytimes.com/2024/07/16/opinion/trump-rnc-chris-christie.html
+
 **“The solutions, guys, they’re really simple. First of all, stop the Biden-vasion and build the wall.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/the-solutions-guys-theyre-really-simple-first-of-all-stop-the-biden-vasion-and-build-the-wall

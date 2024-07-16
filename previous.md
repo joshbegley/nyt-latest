@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5642325/2024/07/16/lindsey-harding-lakers-assistant
 `The 8-week-old girl’s death came as a wave of extreme heat gripped much of the United States. It was at least the 11th such death so far this year.`\
 https://nytimes.com/2024/07/16/nyregion/infant-dead-hot-car-new-jersey.html
 
-**Chris Christie: Will Trump Meet the Moment?**\
+**Chris Christie: Will Trump Rise to Meet the Moment?**\
 `The Republican nominee has the opportunity to rein in some of the worst rhetorical impulses of party and point in a new direction.`\
 https://nytimes.com/2024/07/16/opinion/trump-rnc-chris-christie.html
 
