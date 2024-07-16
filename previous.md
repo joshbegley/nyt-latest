@@ -1,3 +1,15 @@
+**Trump-Vance Administration Could Herald New Era for Dollar**\
+`Both candidates on the Republican ticket have argued that the U.S. currency should be weaker to support American exports.`\
+https://nytimes.com/2024/07/16/us/politics/trump-vance-administration-could-herald-new-era-for-dollar.html
+
+**Blues' Torey Krug could miss 2024-25 season with pre-arthritic ankle issues**\
+`The veteran defenseman will be re-evaluated in six to eight weeks and could need surgery, which would cost him next season.`\
+https://nytimes.com/athletic/5642045/2024/07/16/blues-torey-krug-ankle-condition/
+
+**Elon Musk Says He Will Move X and SpaceX Headquarters to Texas**\
+`The social media and rocket companies are headquartered in California, which the billionaire criticized for its recent transgender legislation.`\
+https://nytimes.com/2024/07/16/technology/elon-musk-x-spacex-headquarters-texas.html
+
 **Chinese Billionaire and Bannon Ally Is Convicted of Fraud**\
 `A federal jury found that Guo Wengui defrauded investors, many his own fervent supporters, of hundreds of millions of dollars. He could face decades in prison.`\
 https://nytimes.com/2024/07/16/nyregion/guo-wengui-fraud-trial-verdict-china.html
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/5641919/2024/07/16/canucks-arturs-silovs-contract/
 **Democratic leaders call on Menendez to resign.**\
 `By Tracey Tully`\
 https://nytimes.com/live/2024/07/16/nyregion/bob-menendez-verdict/democratic-leaders-call-on-menendez-to-resign
-
-**Bears, Caleb Williams agree to terms on $39 million deal**\
-`The 2022 Heisman Trophy winning Williams from USC is the franchise’s third first-round quarterback in the past eight seasons.`\
-https://nytimes.com/athletic/5641900/2024/07/16/caleb-williams-bears-rookie-contract/
-
-**Gary Trent Jr. signing 1-year deal with Bucks**\
-`Trent appeared in 71 games for the Toronto Raptors last season and started in 41 of those appearances.`\
-https://nytimes.com/athletic/5641920/2024/07/16/gary-trent-jr-bucks-contract/
-
-**Scenes From Milwaukee as the R.N.C. Begins**\
-`Around 50,000 people have descended on the city, where former President Donald J. Trump was formally nominated to the Republican ticket on Monday.`\
-https://nytimes.com/2024/07/16/us/politics/rnc-milwaukee-photos.html
 

@@ -1,3 +1,20 @@
+**Trump-Vance Administration Could Herald New Era for Dollar**\
+`Both candidates on the Republican ticket have argued that the U.S. currency should be weaker to support American exports.`\
+https://nytimes.com/2024/07/16/us/politics/trump-vance-administration-could-herald-new-era-for-dollar.html
+
+**Blues' Torey Krug could miss 2024-25 season with pre-arthritic ankle issues**\
+`The veteran defenseman will be re-evaluated in six to eight weeks and could need surgery, which would cost him next season.`\
+https://nytimes.com/athletic/5642045/2024/07/16/blues-torey-krug-ankle-condition/
+
+**Elon Musk Says He Will Move X and SpaceX Headquarters to Texas**\
+`The social media and rocket companies are headquartered in California, which the billionaire criticized for its recent transgender legislation.`\
+https://nytimes.com/2024/07/16/technology/elon-musk-x-spacex-headquarters-texas.html
+
+**Canucks sign Artūrs Šilovs to 2-year contract**\
+`The 23-year-old remains the crown jewel of the club's goalie development pipeline.
+`\
+https://nytimes.com/athletic/5641919/2024/07/16/canucks-arturs-silovs-contract/
+
 **Canucks sign Artūrs Šilovs to 2-year contract**\
 `The 23-year-old remains the crown jewel of the club's goalie development pipeline.
 `\
