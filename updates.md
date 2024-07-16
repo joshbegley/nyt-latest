@@ -1,3 +1,11 @@
+**“Our open borders have also unleashed the worst drug crisis in American history. Yet while hundreds of thousands of Americans are suffering, the Democrats spent over $175 billion — your tax dollars — to secure Ukraine’s borders. But they tell us the border wall is too expensive.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/our-open-borders-have-also-unleashed-the-worst-drug-crisis-in-american-history-yet-while-hundreds-of-thousands-of-americans-are-
+
+**“They promised normalcy and gave us Transgender Visibility Day on Easter Sunday.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/they-promised-normalcy-and-gave-us-transgender-visibility-day-on-easter-sunday
+
 **Mark Robinson, North Carolina’s Republican nominee for governor, gets his biggest stage yet.**\
 `Mr. Robinson, has been widely criticized for comments perceived as antisemitic and hateful, instead focused on the economy`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/mark-robinson-north-carolinas-republican-nominee-for-governor-gets-his-biggest-stage-yet
