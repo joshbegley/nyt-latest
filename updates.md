@@ -1,3 +1,19 @@
+**Kamara departs Leeds for Rennes**\
+`Leeds United have confirmed the exit of Glen Kamara as the midfielder joins Stade Rennais on a permanent deal.`\
+https://nytimes.com/athletic/5641663/2024/07/16/glen-kamara-leeds-rennes-transfer/
+
+**Tiny Love Stories: ‘I Was Married to a Terrible Man’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/07/16/style/tiny-modern-love-stories-i-was-married-to-a-terrible-man.html
+
+**Israeli Strikes Kill Several People in Central And Southern Gaza**\
+`The strikes hit a United Nations school-turned-shelter in Nuseirat, central Gaza, and a site in the Mawasi area in Khan Younis, further south. Gaza’s health ministry said both strikes resulted in casualties. The Israeli military said it was targeting Hamas.`\
+https://nytimes.com/video/world/middleeast/100000009574297/strikes-gaza-nuseirat-khan-younis.html
+
+**MLB may test automated strike zone next year**\
+`If the test is successful, the soonest the system would be implemented is 2026, though there are no guarantees it does advance. `\
+https://nytimes.com/athletic/5641760/2024/07/16/mlb-automated-strike-zone-test-2025/
+
 **After a National Anthem Flub, Singer Says She’s Going to Rehab**\
 `Ingrid Andress, a country star, blamed drinking for her performance of “The Star-Spangled Banner” during Major League Baseball’s All-Star Game festivities.`\
 https://nytimes.com/2024/07/16/style/ingrid-andress-national-anthem-rehab.html
