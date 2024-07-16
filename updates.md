@@ -1,3 +1,11 @@
+**King Arthur Is Dead. Long Live King Arthur!**\
+`In Lev Grossman’s new book, “The Bright Sword,” an eager adventurer stumbles into a Camelot that has fallen into hopelessness and disarray after the death of the king.`\
+https://nytimes.com/2024/07/16/books/review/the-bright-sword-lev-grossman.html
+
+**Heavy Downpours and Flooding Kill Dozens Across South Asia**\
+`Climate change has created more intense monsoon seasons in the region, displacing millions and gutting buildings, bridges and villages.`\
+https://nytimes.com/2024/07/16/world/asia/india-bangladesh-nepal-flooding-rain.html
+
 **Southgate leaves role as England manager**\
 `Gareth Southgate has stepped down from his role as manager of the England men&#8217;s side.`\
 https://nytimes.com/athletic/5637301/2024/07/16/gareth-southgate-england-manager-leaves/
