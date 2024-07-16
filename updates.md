@@ -1,3 +1,7 @@
+**Caffè Panna Brings Summery Sundaes and Granitas to Greenpoint**\
+`Hallie Meyer’s new Brooklyn branch of her Irving Place spot deploys the signature cloud of panna on sundaes and affogatos.`\
+https://nytimes.com/2024/07/16/dining/new-ice-cream-spot-greenpoint-restaurant-news.html
+
 **Energy is Prosperity: Innovating for a Clean Energy Future**\
 `Breakthrough Energy CTO Eric Toone outlines a path toward sustainable prosperity for our planet. `\
 https://nytimes.com/paidpost/breakthrough-energy/breakthrough-energy-energy-is-prosperity/energy-is-prosperity-innovating-for-a-clean-energy-future.html
