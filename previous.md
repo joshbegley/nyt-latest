@@ -1,3 +1,13 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>SEC Media Days. EA Sports release date. Two more coaching changes in the Mountain West. It&#8217;s all happening here in college football.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/5640106/2024/07/15/submit-a-question-for-stewart-mandels-college-football-mailbag-265/
+
+**Elon Musk Allies Help Start Pro-Trump Super PAC**\
+`The group, America PAC, is funded by several wealthy tech entrepreneurs in Mr. Musk’s social circle and is said to be likely to draw financial support from the SpaceX and Tesla founder himself.`\
+https://nytimes.com/2024/07/15/us/politics/elon-musk-trump-super-pac.html
+
 **“Our open borders have also unleashed the worst drug crisis in American history. Yet while hundreds of thousands of Americans are suffering, the Democrats spent over $175 billion — your tax dollars — to secure Ukraine’s borders. But they tell us the border wall is too expensive.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/our-open-borders-have-also-unleashed-the-worst-drug-crisis-in-american-history-yet-while-hundreds-of-thousands-of-americans-are-
@@ -29,12 +39,4 @@ https://nytimes.com/2024/07/15/us/politics/27-facts-about-jd-vance.html
 **Anthony Davis' solid play for Team USA creates a tough question for Steve Kerr**\
 `Is Joel Embiid, a former NBA MVP, the right choice to start for Team USA? Right now, with Davis tearing it up, nothing is certain.`\
 https://nytimes.com/athletic/5639957/2024/07/15/anthony-davis-joel-embiid-steve-kerr-team-usa-olympics/
-
-**Don’t Lose Sight of Project 2025. That’s the Real Trump.**\
-`Expanding the frontiers of political cronyism.`\
-https://nytimes.com/2024/07/15/opinion/trump-project-2025.html
-
-**Russia Sentences U.S. Journalist in Absentia for Ukraine War Comments**\
-`Masha A. Gessen was found guilty of spreading “false information” and sentenced to eight years in prison over remarks made in 2022 about the Russian military.`\
-https://nytimes.com/2024/07/15/world/europe/russia-masha-gessen-prison.html
 
