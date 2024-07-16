@@ -1,3 +1,7 @@
+**Kings sign Quinton Byfield to 5-year extension worth $31.25 million**\
+`Byfield took a major leap in registering career highs in games played (80), goals (20), assists (35) and points (55).`\
+https://nytimes.com/athletic/5640219/2024/07/15/kings-extend-quinton-byfield/
+
 **Milwaukee Is a Beach Town? See How Well You Know the Republicans' Host City.**\
 `The Republican National Convention is heading to Milwaukee, the largest city in the key swing state of Wisconsin.`\
 https://nytimes.com/interactive/2024/07/15/us/milwaukee-republican-convention-quiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/raises-cant-keep-up-
 **Skip Bayless leaving FS1's 'Undisputed'**\
 `Bayless arrived with much fanfare at Fox Sports in 2016 following 12 years at ESPN.`\
 https://nytimes.com/athletic/5640129/2024/07/15/skip-bayless-leaving-undisputed-fs1-fox-sports/
-
-**“Illegal immigration is crushing American workers.”**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/illegal-immigration-is-crushing-american-workers
 

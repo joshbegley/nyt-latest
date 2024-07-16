@@ -1,3 +1,7 @@
+**Milwaukee Is a Beach Town? See How Well You Know the Republicans' Host City.**\
+`The Republican National Convention is heading to Milwaukee, the largest city in the key swing state of Wisconsin.`\
+https://nytimes.com/interactive/2024/07/15/us/milwaukee-republican-convention-quiz.html
+
 **For Biden, How to Cool the Temperature Without Freezing His Campaign**\
 `Former President Donald J. Trump has gone from being an instigator of political violence to a victim of it. The assassination attempt raised questions about how far language should go in a heated campaign.`\
 https://nytimes.com/2024/07/15/us/politics/biden-campaign-challenge.html

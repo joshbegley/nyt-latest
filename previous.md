@@ -1,3 +1,7 @@
+**Milwaukee Is a Beach Town? See How Well You Know the Republicans' Host City.**\
+`The Republican National Convention is heading to Milwaukee, the largest city in the key swing state of Wisconsin.`\
+https://nytimes.com/interactive/2024/07/15/us/milwaukee-republican-convention-quiz.html
+
 **For Biden, How to Cool the Temperature Without Freezing His Campaign**\
 `Former President Donald J. Trump has gone from being an instigator of political violence to a victim of it. The assassination attempt raised questions about how far language should go in a heated campaign.`\
 https://nytimes.com/2024/07/15/us/politics/biden-campaign-challenge.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5640129/2024/07/15/skip-bayless-leaving-undisputed-
 **“Illegal immigration is crushing American workers.”**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/illegal-immigration-is-crushing-american-workers
-
-**Astros prioritize college pitching on Day 2 of MLB Draft**\
-`Astros scouting director Cam Pendino supplies scouting reports on the collegians the Astros selected in rounds three through 10.`\
-https://nytimes.com/athletic/5640109/2024/07/15/mlb-draft-astros-college-pitchers/
 
