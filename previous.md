@@ -1,3 +1,11 @@
+**Judge Dismisses Classified Documents Case Against Trump**\
+`A federal judge on Monday dismissed in its entirety the classified documents case against former President Donald J.`\
+https://nytimes.com/video/us/politics/100000009572885/judge-dismisses-classified-documents-case-against-trump.html
+
+**The Judge in Menendez’s Trial Has Overseen Several High-Profile Cases**\
+`Judge Sidney H. Stein, who has almost 30 years of experience on the bench, has instilled a keen sense of order throughout the proceedings.`\
+https://nytimes.com/2024/07/16/nyregion/sidney-stein-menendez.html
+
 **A New York Jury Will Decide a New Jersey Senator’s Fate**\
 `A retired economist and a former Broadway and TV actor are part of the jury that will determine the corruption case against Senator Robert Menendez.`\
 https://nytimes.com/2024/07/16/nyregion/bob-menendez-trial-jury.html
@@ -14,12 +22,12 @@ https://nytimes.com/2024/07/16/nyregion/bob-menendez-senate-future.html
 `Assailants attacked worshipers in Oman observing the Shiite day of mourning Ashura, in an unusual eruption of violence in a normally peaceful Gulf nation that prides itself on religious tolerance.`\
 https://nytimes.com/2024/07/16/world/middleeast/mosque-shooting-shiite-oman-pakistan.html
 
-**Here’s the latest in a sweeping corruption case against a sitting senator.**\
-`By Nicholas Fandos`\
+**The senator was convicted on bribery, fraud and extortion charges.**\
+`By Nicholas Fandos, Tracey Tully and Benjamin Weiser`\
 https://nytimes.com/live/2024/07/16/nyregion/bob-menendez-verdict/the-jury-will-present-its-verdict-soon-heres-the-latest
 
-**Live Updates: Senator Menendez Found Guilty in Federal Corruption Trial**\
-`Senator Robert Menendez of New Jersey, who survived a previous corruption indictment in 2017, was convicted in a bribery case involving businessmen and foreign governments.`\
+**Live Updates: Senator Menendez Found Guilty on All Counts in Corruption Trial**\
+`Senator Robert Menendez of New Jersey, who survived a previous corruption indictment in 2017, was convicted in a federal bribery case involving businessmen and foreign governments.`\
 https://nytimes.com/live/2024/07/16/nyregion/bob-menendez-verdict
 
 **Joe "Jellybean" Bryant, father to Kobe, dies at 69**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5641117/2024/07/16/joe-bryant-dead/
 **James R. Tallon Jr., Who Steered Health Care Reforms, Dies at 82**\
 `As an influential committee leader and the majority leader in the New York Assembly, he led efforts, later embraced in Washington, to expand coverage.`\
 https://nytimes.com/2024/07/16/nyregion/james-r-tallon-dead.html
-
-**The Trump Shooter and the Growing Nihilism of Young Men**\
-`The rise of post-ideological terror.`\
-https://nytimes.com/2024/07/16/opinion/trump-shooter-radicalization-men.html
-
-**‘UnPrisoned’ Depicts the Burden of Incarceration With a Light Touch**\
-`Delroy Lindo and Kerry Washington discuss their series, which finds humor and struggle in a father and daughter repairing their relationship after a long prison term.`\
-https://nytimes.com/2024/07/16/arts/television/unprisoned-incarceration-hulu.html
 
