@@ -1,3 +1,11 @@
+**Fact-Checking the Republican National Convention on Energy Claims**\
+`Several speakers focused on the sharp rise in gas and electricity prices under President Biden. We scrutinized their statements.`\
+https://nytimes.com/2024/07/16/climate/fact-checking-rnc-energy.html
+
+**The Israeli military said it was targeting militants operating in the school.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/07/16/world/israel-gaza-war-hamas/the-israeli-military-said-it-was-targeting-militants-operating-in-the-school
+
 **Judge Dismisses Classified Documents Case Against Trump**\
 `A federal judge on Monday dismissed in its entirety the classified documents case against former President Donald J.`\
 https://nytimes.com/video/us/politics/100000009572885/judge-dismisses-classified-documents-case-against-trump.html
