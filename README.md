@@ -1,6 +1,22 @@
+**Lopetegui's first match analysed: Kilman debut, Guilherme's speed, high-press tactics**\
+`What we learned from Lopetegui's first game in charge`\
+https://nytimes.com/athletic/5639334/2024/07/16/west-ham-lopetegui-ferencvaros-kitzbuhel/
+
+**'Relegation hurt - I'm glad I've left with Southampton back in the Premier League'**\
+`The left-back has swapped Southampton for a new start in Seville with Real Betis - he has fond memories of Hasenhuttl and more in England`\
+https://nytimes.com/athletic/5625885/2024/07/16/romain-perraud-southampton-real-betis/
+
+**Dunk, Euro 2024 finalist - and what comes next for Brighton's captain**\
+`Centre-back did not feature for England at the Euros but he still considers it one of the best experiences of his career`\
+https://nytimes.com/athletic/5631235/2024/07/16/lewis-dunk-euros-england-brighton/
+
 **Tuesday Briefing**\
 `Donald Trump’s running mate.`\
 https://nytimes.com/2024/07/16/briefing/vance-trump-biden-israel.html
+
+**Driving runs, attack-minded play and timely goals: What Leeds can expect from Joe Rothwell**\
+`The experienced midfielder has lots to offer Daniel Farke's side and if he is used wisely will be a useful asset in the hunt for promotion`\
+https://nytimes.com/athletic/5638518/2024/07/16/what-leeds-can-expect-joe-rothwell/
 
 **Convention lineup showcases future of G.O.P.**\
 `By Adam Nagourney`\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5630907/2024/07/16/kylian-mbappe-real-madrid-brand-
 **A Teamsters Boss Delivers Rare Speech to R.N.C.**\
 `Labor leaders are uncommon sights at Republican conventions, and Sean O’Brien used his moment to lace into corporate America. But he also praised the former president.`\
 https://nytimes.com/2024/07/16/us/politics/teamsters-boss-sean-obrien-rnc.html
-
-**Crisis, controversy and chaos - yet Spain's national teams rule football**\
-`Spanish football is living through turbulent times - so how come their men's, women's and youth sides keep winning trophies?`\
-https://nytimes.com/athletic/5631965/2024/07/16/how-spain-rule-football-controversy/
-
-**Carla Ward interview: 'My life was coming down around me while I was still trying to manage'**\
-`Carla Ward speaks frankly about the pressures of trying to juggle management with being a mum`\
-https://nytimes.com/athletic/5631095/2024/07/16/carla-ward-aston-villa-interview/
-
-**Iran’s New President Promises Changes. Can He Deliver?**\
-`Masoud Pezeshkian, a widowed doctor, portrays himself as a reformer who can bring social and economic shifts. But others have tried and failed before him, and numerous obstacles are in his path.`\
-https://nytimes.com/2024/07/16/world/middleeast/ira-new-president-profile.html
-
-**Dysfunction Sidelines Ukraine’s Parliament as Governing Force**\
-`With the president’s party split, the government relies on formerly pro-Russian lawmakers to help it pass legislation and, the opposition says, minimize scrutiny.`\
-https://nytimes.com/2024/07/16/world/europe/ukraine-parliament.html
 
