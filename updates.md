@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/16/crosswords/spelling-bee-forum.html
+
 **A Somber Late Night After the Attack on Trump**\
 `Stephen Colbert and Seth Meyers offered sober reflections about democracy. So did Anthony Anderson, though he found some humor in the reaction to the shooting.`\
 https://nytimes.com/2024/07/16/arts/television/late-night-trump.html

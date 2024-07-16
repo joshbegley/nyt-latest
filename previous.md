@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/16/crosswords/spelling-bee-forum.html
+
 **A Somber Late Night After the Attack on Trump**\
 `Stephen Colbert and Seth Meyers offered sober reflections about democracy. So did Anthony Anderson, though he found some humor in the reaction to the shooting.`\
 https://nytimes.com/2024/07/16/arts/television/late-night-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/16/world/asia/taiwan-china-lai-ching-te.html
 **Inside Spain's celebrations: Morata's star turn, little sleep and De la Fuente's singalong**\
 `Spain celebrated their latest European Championship success with a public party in Madrid that lasted into the early hours`\
 https://nytimes.com/athletic/5640357/2024/07/16/spain-euro-2024-celebrations/
-
-**Quotation of the Day: For the G.O.P., Free-Market Economics Is History**\
-`Quotation of the Day for Tuesday, July 16, 2024.`\
-https://nytimes.com/2024/07/16/pageoneplus/quotation-of-the-day-for-the-gop-free-market-economics-is-history.html
 
