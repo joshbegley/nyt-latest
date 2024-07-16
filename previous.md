@@ -1,3 +1,19 @@
+**Manfred hints at future ASG uniform changes**\
+`'It’s something we’re going to have a conversation about coming out of the All-Star Game,” Manfred said Tuesday.`\
+https://nytimes.com/athletic/5641816/2024/07/16/rob-manfred-all-star-game-uniforms/
+
+**Can We ‘Make America Affordable Again’? Should We?**\
+`History says that deflation is terrible for the economy.`\
+https://nytimes.com/2024/07/16/opinion/inflation-prices-economy.html
+
+**Southampton complete Flynn Downes transfer from West Ham**\
+`Southampton have completed the signing of midfielder Flynn Downes from West Ham United on a permanent deal.`\
+https://nytimes.com/athletic/5640468/2024/07/16/flynn-downes-southampton-transfer-news/
+
+**How the Israeli Hostage Rescue Led to One of Gaza’s Deadliest Days**\
+`A firefight amid a recovery mission. At least 19 Israeli airstrikes. Scores of Palestinians killed. A Times visual analysis shows how the June 8 operation had such a high toll.`\
+https://nytimes.com/interactive/2024/07/16/world/middleeast/israel-hostage-rescue-nuseirat.html
+
 **At Trump Rally, Local Police and Gunman Were in Same Warehouse Complex**\
 `The Secret Service left local law enforcement to secure the building, which was within rifle range of the podium where the former president spoke.`\
 https://nytimes.com/2024/07/16/us/politics/trump-shooting-butler-pennsylvania-police.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/07/16/us/politics/trump-iran-assassination-plot.html
 **Kamara departs Leeds for Rennes**\
 `Leeds United have confirmed the exit of Glen Kamara as the midfielder joins Stade Rennais on a permanent deal.`\
 https://nytimes.com/athletic/5641663/2024/07/16/glen-kamara-leeds-rennes-transfer/
-
-**Tiny Love Stories: ‘I Was Married to a Terrible Man’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/07/16/style/tiny-modern-love-stories-i-was-married-to-a-terrible-man.html
-
-**Israeli Strikes Kill Several People in Central and Southern Gaza**\
-`The strikes hit a United Nations school-turned-shelter in Nuseirat, central Gaza, and a site in the Mawasi area in Khan Younis, further south. Gaza’s health ministry said both strikes resulted in casualties. The Israeli military said it was targeting militants.`\
-https://nytimes.com/video/world/middleeast/100000009574297/strikes-gaza-nuseirat-khan-younis.html
-
-**MLB may test automated strike zone next year**\
-`If the test is successful, the soonest the system would be implemented is 2026, though there are no guarantees it does advance. `\
-https://nytimes.com/athletic/5641760/2024/07/16/mlb-automated-strike-zone-test-2025/
-
-**After a National Anthem Flub, Singer Says She’s Going to Rehab**\
-`Ingrid Andress, a country star, blamed drinking for her performance of “The Star-Spangled Banner” during Major League Baseball’s All-Star Game festivities.`\
-https://nytimes.com/2024/07/16/style/ingrid-andress-national-anthem-rehab.html
 

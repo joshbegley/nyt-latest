@@ -1,3 +1,19 @@
+**Manfred hints at future ASG uniform changes**\
+`'It’s something we’re going to have a conversation about coming out of the All-Star Game,” Manfred said Tuesday.`\
+https://nytimes.com/athletic/5641816/2024/07/16/rob-manfred-all-star-game-uniforms/
+
+**Can We ‘Make America Affordable Again’? Should We?**\
+`History says that deflation is terrible for the economy.`\
+https://nytimes.com/2024/07/16/opinion/inflation-prices-economy.html
+
+**Southampton complete Flynn Downes transfer from West Ham**\
+`Southampton have completed the signing of midfielder Flynn Downes from West Ham United on a permanent deal.`\
+https://nytimes.com/athletic/5640468/2024/07/16/flynn-downes-southampton-transfer-news/
+
+**How the Israeli Hostage Rescue Led to One of Gaza’s Deadliest Days**\
+`A firefight amid a recovery mission. At least 19 Israeli airstrikes. Scores of Palestinians killed. A Times visual analysis shows how the June 8 operation had such a high toll.`\
+https://nytimes.com/interactive/2024/07/16/world/middleeast/israel-hostage-rescue-nuseirat.html
+
 **After a National Anthem Flub, Singer Says She’s Going to Rehab**\
 `Ingrid Andress, a country star, blamed drinking for her performance of “The Star-Spangled Banner” during Major League Baseball’s All-Star Game festivities.`\
 https://nytimes.com/2024/07/16/style/ingrid-andress-national-anthem-rehab.html
