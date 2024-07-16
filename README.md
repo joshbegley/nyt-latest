@@ -1,3 +1,11 @@
+**The Secret of Trump’s Resurrection**\
+`As long as Democrats see nothing of him but his lies and outrages, they’ll miss what makes him strong.`\
+https://nytimes.com/2024/07/16/opinion/trump-election-biden.html
+
+**What to Know About ‘Hillbilly Elegy,’ Based on the J.D. Vance Memoir**\
+`The 2020 film generally follows the book about the Republican vice presidential nominee’s formative years. But there are significant differences.`\
+https://nytimes.com/2024/07/16/movies/hillbilly-elegy-jd-vance.html
+
 **How the Trump Prosecutions Could End Up Weakening Prosecutors**\
 `The effort to hold Donald Trump to account has already yielded a Supreme Court decision giving former presidents broad immunity. Now another case could make prosecuting political figures more complicated.`\
 https://nytimes.com/2024/07/16/us/politics/trump-prosecutions.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/16/insider/biden-news-conference-reporter-sanger.htm
 **Resurgent Trump Has Democrats in Swing Districts Despondent**\
 `The Democratic plan to hustle through President Biden’s nomination has angered some in the party looking for a change on the ticket, as Republicans project confidence in a drubbing.`\
 https://nytimes.com/2024/07/16/us/politics/democrats-house-trump-biden.html
-
-**The hospital that treated Trump was tightly locked down, with other patients receiving care in the parking lot.**\
-`By Heather Knight`\
-https://nytimes.com/live/2024/07/16/us/trump-shooting-investigation/the-hospital-that-treated-trump-was-tightly-locked-down-with-other-patients-receiving-care-in-the-parking-lot
-
-**Red Sox draft David Ortiz's son, D'Angelo, in 19th round**\
-`The Miami Dade College product is listed at 6-foot-1 and weighs 190 pounds, about 2 inches shorter and 40 pounds lighter than his father.`\
-https://nytimes.com/athletic/5642139/2024/07/16/dangelo-ortiz-red-sox-mlb-draft/
 
