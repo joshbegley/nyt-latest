@@ -1,3 +1,15 @@
+**Ten Hag spoke about 'standards' after Rosenborg loss. Is it really a surprise?**\
+`Manchester United lost their first pre-season game against Rosenborg and Erik ten Hag was critical afterwards`\
+https://nytimes.com/athletic/5640131/2024/07/16/erik-ten-hag-manchester-united-rosenborg/
+
+**Ten Hag on Sancho: 'We've drawn a line. We move on'**\
+`Erik ten Hag says he has “drawn a line” under his differences with Jadon Sancho after the Manchester United winger returned to first-team training.`\
+https://nytimes.com/athletic/5533897/2024/07/16/jadon-sancho-manchester-united-ten-hag/
+
+**State of the 49ers, DB: Will rookie Renardo Green emerge as No. 3 cornerback?**\
+`The 49ers were active at cornerback during the offseason, resulting in the deepest unit in recent memory. Safety, however, looks thin.`\
+https://nytimes.com/athletic/5560535/2024/07/16/san-francisco-49ers-defensive-backs-2024-renardo-green/
+
 **Kylian Mbappe and the story of Real Madrid's decade-long 'obsession' to sign him**\
 `From his visit to the club as a kid to the dramatic U-turn of May 2022, Madrid and Mbappe go back a very long way `\
 https://nytimes.com/athletic/5208094/2024/07/16/kylian-mbappe-real-madrid-psg-florentino-perez/
@@ -26,4 +38,3 @@ https://nytimes.com/2024/07/16/world/europe/gareth-southgate-england-manager-res
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/07/16/world/israel-gaza-war-hamas/the-eu-sanctioned-settlers-for-human-rights-abuses-against-palestinians
 
-**The W.H.O. warns of a heightened risk of hepatitis in Gaza, and other news.**\
