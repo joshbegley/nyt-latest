@@ -1,3 +1,7 @@
+**Wimbledon 2024 review: Best match, favourite player, and most Wimbledon moment**\
+`The Athletic's tennis team reflect on Wimbledon 2024, picking the players, matches, and moments of the tournament`\
+https://nytimes.com/athletic/5640780/2024/07/16/wimbledon-2024-review-best-match-favourite-player-and-most-wimbledon-moment/
+
 **Fact-Checking the Republican National Convention on Energy Claims**\
 `Several speakers focused on the sharp rise in gas and electricity prices under President Biden. We scrutinized their statements.`\
 https://nytimes.com/2024/07/16/climate/fact-checking-rnc-energy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/16/world/middleeast/mosque-shooting-shiite-oman-paki
 **The senator was convicted on bribery, fraud and extortion charges.**\
 `By Nicholas Fandos, Tracey Tully and Benjamin Weiser`\
 https://nytimes.com/live/2024/07/16/nyregion/bob-menendez-verdict/the-jury-will-present-its-verdict-soon-heres-the-latest
-
-**Live Updates: Senator Menendez Found Guilty on All Counts in Corruption Trial**\
-`Senator Robert Menendez of New Jersey, who survived a previous corruption indictment in 2017, was convicted in a federal bribery case involving businessmen and foreign governments.`\
-https://nytimes.com/live/2024/07/16/nyregion/bob-menendez-verdict
 
