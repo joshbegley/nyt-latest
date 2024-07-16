@@ -1,3 +1,11 @@
+**The Art of Getting a Real Answer Out of a President**\
+`It was clear to The Times’s White House correspondent that if he asked President Biden the same question about age, he’d get the same, practiced answer. So he tried something different.`\
+https://nytimes.com/2024/07/16/insider/the-art-of-getting-a-real-answer-out-of-a-president.html
+
+**Resurgent Trump Has Democrats in Swing Districts Despondent**\
+`The Democratic plan to hustle through President Biden’s nomination has angered some in the party looking for a change on the ticket, as Republicans project confidence in a drubbing.`\
+https://nytimes.com/2024/07/16/us/politics/democrats-house-trump-biden.html
+
 **The hospital that treated Trump was tightly locked down, with other patients receiving care in the parking lot.**\
 `By Heather Knight`\
 https://nytimes.com/live/2024/07/16/us/trump-shooting-investigation/the-hospital-that-treated-trump-was-tightly-locked-down-with-other-patients-receiving-care-in-the-parking-lot
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/16/world/middleeast/israel-hamas-gaza.html
 **Jontay Porter asks judge for permission to play in Greece**\
 `Porter was banned by the NBA after its investigation found that he bet on Raptors games.`\
 https://nytimes.com/athletic/5642134/2024/07/16/jontay-porter-greece-basketball-betting-raptors/
-
-**Senator Menendez Was Convicted of Corruption**\
-`Also, police were in the complex from which a gunman shot Trump. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/07/16/briefing/menendez-guilty-verdict-trump-shooting-investigation.html
-
-**The Sex Advice That Changed Us**\
-`When our parents were silent, unsure or sexually repressed, there was always Dr. Ruth.`\
-https://nytimes.com/2024/07/16/well/family/dr-ruth-death-memories.html
 

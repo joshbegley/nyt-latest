@@ -1,3 +1,11 @@
+**The Art of Getting a Real Answer Out of a President**\
+`It was clear to The Times’s White House correspondent that if he asked President Biden the same question about age, he’d get the same, practiced answer. So he tried something different.`\
+https://nytimes.com/2024/07/16/insider/the-art-of-getting-a-real-answer-out-of-a-president.html
+
+**Resurgent Trump Has Democrats in Swing Districts Despondent**\
+`The Democratic plan to hustle through President Biden’s nomination has angered some in the party looking for a change on the ticket, as Republicans project confidence in a drubbing.`\
+https://nytimes.com/2024/07/16/us/politics/democrats-house-trump-biden.html
+
 **The hospital that treated Trump was tightly locked down, with other patients receiving care in the parking lot.**\
 `By Heather Knight`\
 https://nytimes.com/live/2024/07/16/us/trump-shooting-investigation/the-hospital-that-treated-trump-was-tightly-locked-down-with-other-patients-receiving-care-in-the-parking-lot
