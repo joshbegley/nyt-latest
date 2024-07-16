@@ -1,3 +1,11 @@
+**Trump Returns With a Different Look. Does That Mean a Different Tone?**\
+`The first night of the Republican National Convention sought to strike a new note. But some of the lyrics were familiar.`\
+https://nytimes.com/2024/07/16/arts/television/trump-rnc-milwaukee.html
+
+**Jacob Trouba and Kaapo Kakko trades, Ryan Lindgren contract and more Rangers thoughts**\
+`Eight thoughts on the Rangers' moves over the last few weeks, what’s still to come this summer and where the pieces may fit next season.`\
+https://nytimes.com/athletic/5639607/2024/07/16/rangers-jacob-trouba-kaapo-kakko-trade/
+
 **Are Artificial Sweeteners Safer Than Sugar?**\
 `Health concerns have been mounting for decades. Here’s what the research suggests.`\
 https://nytimes.com/2024/07/16/well/eat/artificial-sweeteners-sugar-free.html
