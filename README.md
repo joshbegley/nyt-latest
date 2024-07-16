@@ -1,4 +1,4 @@
-**Millions Under Tornado Warnings As Storms Batter Midwest**\
+**Millions Under Tornado Warnings as Storms Batter Midwest**\
 `More than 13 million people were under tornado warning or watch alerts on Monday night in Chicago, and parts of Illinois, Indiana and Wisconsin.`\
 https://nytimes.com/2024/07/15/us/tornado-chicago-illinois-storms.html
 
