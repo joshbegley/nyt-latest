@@ -1,3 +1,15 @@
+**Tuesday Briefing**\
+`Donald Trump’s running mate.`\
+https://nytimes.com/2024/07/16/briefing/vance-trump-biden-israel.html
+
+**Convention lineup showcases future of G.O.P.**\
+`By Adam Nagourney`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/convention-lineup-showcases-future-of-gop
+
+**How Pep Guardiola takes inspiration from other sports**\
+`Manchester CIty's manager is rightly hailed as an transcendent figure but Guardiola is constantly taking inspiration from other sports `\
+https://nytimes.com/athletic/5628740/2024/07/16/pep-guardiola-celtics-chess-sports/
+
 **Who is on track to win the men's Ballon d'Or for 2023-24?**\
 `In the wake of Euro 2024 and the 2024 Copa America, our writers give their tips for the 2023-24 men's Ballon d'Or award`\
 https://nytimes.com/athletic/5638878/2024/07/16/ballon-dor-rodri-kroos-bellingham-lautaro/

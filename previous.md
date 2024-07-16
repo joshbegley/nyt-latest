@@ -1,3 +1,15 @@
+**Tuesday Briefing**\
+`Donald Trump’s running mate.`\
+https://nytimes.com/2024/07/16/briefing/vance-trump-biden-israel.html
+
+**Convention lineup showcases future of G.O.P.**\
+`By Adam Nagourney`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/convention-lineup-showcases-future-of-gop
+
+**How Pep Guardiola takes inspiration from other sports**\
+`Manchester CIty's manager is rightly hailed as an transcendent figure but Guardiola is constantly taking inspiration from other sports `\
+https://nytimes.com/athletic/5628740/2024/07/16/pep-guardiola-celtics-chess-sports/
+
 **Who is on track to win the men's Ballon d'Or for 2023-24?**\
 `In the wake of Euro 2024 and the 2024 Copa America, our writers give their tips for the 2023-24 men's Ballon d'Or award`\
 https://nytimes.com/athletic/5638878/2024/07/16/ballon-dor-rodri-kroos-bellingham-lautaro/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/16/world/middleeast/ira-new-president-profile.html
 **Dysfunction Sidelines Ukraine’s Parliament as Governing Force**\
 `With the president’s party split, the government relies on formerly pro-Russian lawmakers to help it pass legislation and, the opposition says, minimize scrutiny.`\
 https://nytimes.com/2024/07/16/world/europe/ukraine-parliament.html
-
-**Trump, in his first appearance since an assassination attempt, revels in cheers.**\
-`By Michael Gold`\
-https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/trump-rnc-appearance
-
-**Prominent Black Republicans made a prime-time pitch for Trump.**\
-`On Day 1 of the convention, a series of Black Republicans argued that Donald Trump would lift the fortunes of Black Americans, fitting with the campaign’s efforts to court Black men in particular.`\
-https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/black-republicans-rnc-trump
-
-**Teoscar Hernández wins MLB Home Run Derby**\
-`Despite facing elimination at various points, Teoscar Hernández won the MLB Home Run Derby, defeating Bobby Witt Jr. in the final round.`\
-https://nytimes.com/athletic/5640283/2024/07/15/teoscar-hernandez-mlb-home-run-derby-winner/
 
