@@ -1,3 +1,7 @@
+**“They hired 85,000 new I.R.S. agents to harass hard-working Americans.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/they-hired-85000-new-irs-agents-to-harass-hard-working-americans
+
 **King Topper**\
 `Kelly Richardson makes her New York Times Crossword debut.`\
 https://nytimes.com/2024/07/15/crosswords/daily-puzzle-2024-07-16.html
