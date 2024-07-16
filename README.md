@@ -1,7 +1,3 @@
-**How Would Ohio Replace Vance in the Senate if Trump Wins in November?**\
-`State law instructs the governor to appoint a replacement until a special election can be held. Several Republican names are already circulating as potential prospects.`\
-https://nytimes.com/2024/07/16/us/politics/how-would-ohio-replace-vance-in-the-senate-if-trump-wins-in-november.html
-
 **The gunman’s high school guidance counselor: ‘Something snapped.’**\
 `Jim Knapp, who counseled Thomas Crooks, recalled him as someone who stuck to himself, but said there were no early alarms about the trouble to come.`\
 https://nytimes.com/live/2024/07/16/us/trump-shooting-investigation/the-gunmans-high-school-guidance-counselor-something-snapped
@@ -30,11 +26,15 @@ https://nytimes.com/2024/07/16/dining/skillet-chicken-with-schmaltzy-tomatoes.ht
 `Newcastle United &#8220;love&#8221; Eddie Howe and will fight to keep hold of their head coach should the FA look to appoint him as the next England manager, insists Darren Eales, the club&#8217;s CEO.`\
 https://nytimes.com/athletic/5641129/2024/07/16/eddie-howe-england-newcastle-southgate/
 
-**Six People Dead, Apparently by Poisoning, in Thailand, Police Say**\
-`The dead did not show outward signs of injury. Mass violence is unusual in the capital, Bangkok.`\
+**Poisoning Suspected as 6 Are Found Dead in a Bangkok Hotel Room, the Police Say**\
+`The dead did not show outward signs of injury. Mass violence is unusual in the Thai capital.`\
 https://nytimes.com/2024/07/16/world/asia/thailand-six-dead-poisoning.html
 
 **Climate and the Republican Convention**\
 `Here’s where the party stands on global warming, energy and the environment.`\
 https://nytimes.com/2024/07/16/climate/climate-republican-convention.html
+
+**Georgia collective fining players for driving violations**\
+`Seven players have been arrested on driving-related charges since the January 2023 car crash that killed a Georgia player and staffer.`\
+https://nytimes.com/athletic/5641091/2024/07/16/georgia-football-racing-kirby-smart/
 
