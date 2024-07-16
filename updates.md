@@ -1,3 +1,20 @@
+**Man Fatally Shot by Visiting Police Officers Near R.N.C., Official Says**\
+`The officers were part of a contingent of 4,500 law enforcement officials who came to Milwaukee to assist local police with the convention.`\
+https://nytimes.com/2024/07/16/us/milwaukee-shooting-republican-national-convention.html
+
+**Former Syrian Official in Charge of Notorious Prison Is Arrested in California**\
+`The former official, Samir Ousman al-Sheikh, is accused of falsely describing whether he persecuted anyone for their political beliefs or had been involved in any killings.`\
+https://nytimes.com/2024/07/16/us/politics/syrian-official-arrested-adra-prison.html
+
+**Canucks sign Artūrs Šilovs to 2-year contract**\
+`The 23-year-old remains the crown jewel of the club's goalie development pipeline.
+`\
+https://nytimes.com/athletic/5641919/2024/07/16/canucks-arturs-silovs-contract/
+
+**Scenes From Milwaukee as the R.N.C. Begins**\
+`Around 50,000 people have descended on the city, where former President Donald J. Trump was formally nominated to the Republican ticket on Monday.`\
+https://nytimes.com/2024/07/16/us/politics/rnc-milwaukee-photos.html
+
 **Canucks sign Artūrs Šilovs to 2-year contract**\
 `The 23-year-old remains the crown jewel of the club's goalie development pipeline.
 `\
