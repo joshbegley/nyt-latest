@@ -24,7 +24,7 @@ https://nytimes.com/2024/07/15/crosswords/daily-puzzle-2024-07-16.html
 
 **“When Donald Trump was president, I helped him spread economic prosperity with the largest tax cut in American history.”**\
 `By Linda Qiu`\
-https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/when-donald-trump-was-president-i-helped-him-spread-economic-prosperity-with-the-largest-tax-cut-in-american-history
+https://nytimes.com/live/2024/07/15/us/rnc-fact-check/when-donald-trump-was-president-i-helped-him-spread-economic-prosperity-with-the-largest-tax-cut-in-american-history
 
 **Ohio Republicans on J.D. Vance: ‘He’s Our Barack Obama’**\
 `But will he stir any voters beyond Trump’s MAGA base?`\
