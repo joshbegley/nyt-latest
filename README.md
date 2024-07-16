@@ -1,3 +1,11 @@
+**King Arthur Is Dead. Long Live King Arthur!**\
+`In Lev Grossman’s new book, “The Bright Sword,” an eager adventurer stumbles into a Camelot that has fallen into hopelessness and disarray after the death of the king.`\
+https://nytimes.com/2024/07/16/books/review/the-bright-sword-lev-grossman.html
+
+**Heavy Downpours and Flooding Kill Dozens Across South Asia**\
+`Climate change has created more intense monsoon seasons in the region, displacing millions and gutting buildings, bridges and villages.`\
+https://nytimes.com/2024/07/16/world/asia/india-bangladesh-nepal-flooding-rain.html
+
 **Who could replace Gareth Southgate as England manager?**\
 `Gareth Southgate is to leave his role as England manager - these are the candidates to succeed him`\
 https://nytimes.com/athletic/5619843/2024/07/16/england-next-manager/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5639871/2024/07/16/college-football-25-video-game-c
 **What I'm hearing about the Blackhawks: Loaded AHL roster, much more**\
 `The Blackhawks could have as many as 17 draft picks playing with the IceHogs this season.`\
 https://nytimes.com/athletic/5639478/2024/07/16/blackhawks-prospects-rockford-icehogs/
-
-**What Cubs’ monster draft class from 10 years ago says about this year's up-and-down team**\
-`The Cubs miss Kyle Schwarber, their first-round pick in 2014. Luckily they still have Justin Steele, their fifth-rounder from that draft.`\
-https://nytimes.com/athletic/5640025/2024/07/16/cubs-2014-mlb-draft-class/
-
-**Trump Picks His Running Mate, and Political Heir**\
-`Former President Donald J. Trump chose the 39-year-old Senator J.D. Vance of Ohio as his vice-presidential nominee.`\
-https://nytimes.com/2024/07/16/podcasts/the-daily/trump-jd-vance.html
 
