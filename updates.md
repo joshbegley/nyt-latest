@@ -1,3 +1,7 @@
+**Several Tornadoes Reported as Storm Moves Through Chicago Area**\
+`More than 13 million people were under tornado warning or watch alerts on Monday night in Chicago, and parts of Illinois, Indiana and Wisconsin.`\
+https://nytimes.com/2024/07/15/us/tornado-chicago-illinois-storms.html
+
 **“President Trump will make those tax cuts permanent. But if Joe and Kamala are re-elected, they say they are going to let them expire. That will be the biggest tax increase in American history.”**\
 `By Angelo Fichera`\
 https://nytimes.com/live/2024/07/15/us/rnc-fact-check/president-trump-will-make-those-tax-cuts-permanent-but-if-joe-and-kamala-are-re-elected-they-say-they-are-going-to-let-them-expi
