@@ -1,3 +1,7 @@
+**“Raises can’t keep up with 30 percent increases in grocery prices and 40 percent increases in gas” and the fixed income of retirees “has been crushed by the silent thief of inflation unleashed by Joe Biden and Kamala Harris.”**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/raises-cant-keep-up-with-30-percent-increases-in-grocery-prices-and-40-percent-increases-in-gas-and-the-fixed-income-of-retirees
+
 **Skip Bayless leaving FS1's 'Undisputed'**\
 `Bayless arrived with much fanfare at Fox Sports in 2016 following 12 years at ESPN.`\
 https://nytimes.com/athletic/5640129/2024/07/15/skip-bayless-leaving-undisputed-fs1-fox-sports/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/5639963/2024/07/15/la-clippers-nba-kevin-porter-jr/
 <p>Leave your questions here. Please include your city.</p>
 `\
 https://nytimes.com/athletic/5640106/2024/07/15/submit-a-question-for-stewart-mandels-college-football-mailbag-265/
-
-**Elon Musk Allies Help Start Pro-Trump Super PAC**\
-`The group, America PAC, is funded by several wealthy tech entrepreneurs in Mr. Musk’s social circle and is said to be likely to draw financial support from the SpaceX and Tesla founder himself.`\
-https://nytimes.com/2024/07/15/us/politics/elon-musk-trump-super-pac.html
 
