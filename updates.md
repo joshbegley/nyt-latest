@@ -1,3 +1,11 @@
+**'Today is the reward': From veterans to rookies, first-time MLB All-Stars revel in moment**\
+`When the All-Stars took the field for their first workout on Monday, 37 were there for the first time.`\
+https://nytimes.com/athletic/5640123/2024/07/15/mlb-first-time-all-stars/
+
+**Clippers president talks Kevin Porter Jr. signing, potential discipline**\
+`Porter missed the 2023-24 season after he was arrested last September and charged with assault and strangulation of his girlfriend.`\
+https://nytimes.com/athletic/5639963/2024/07/15/la-clippers-nba-kevin-porter-jr/
+
 **Here is the roster of speakers at the convention on Monday night.**\
 `By Tim Balk`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/here-is-the-schedule-of-speakers-at-the-convention-on-monday-night

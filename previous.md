@@ -6,8 +6,8 @@ https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/illegal-immigration-
 `Astros scouting director Cam Pendino supplies scouting reports on the collegians the Astros selected in rounds three through 10.`\
 https://nytimes.com/athletic/5640109/2024/07/15/mlb-draft-astros-college-pitchers/
 
-**From veterans to rookies, first-time MLB All-Stars revel in moment: 'Today is the reward'**\
-`When the All-Stars took the field for their first workout on Monday, 37 of them were there for the first time.`\
+**'Today is the reward': From veterans to rookies, first-time MLB All-Stars revel in moment**\
+`When the All-Stars took the field for their first workout on Monday, 37 were there for the first time.`\
 https://nytimes.com/athletic/5640123/2024/07/15/mlb-first-time-all-stars/
 
 **Dr. Ruth’s Tips for a Happy Life**\
@@ -22,6 +22,10 @@ https://nytimes.com/athletic/5639637/2024/07/15/ramon-jesurun-arrest-copa-americ
 `By Tim Balk`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/here-is-the-schedule-of-speakers-at-the-convention-on-monday-night
 
+**Clippers president talks Kevin Porter Jr. signing, potential discipline**\
+`Porter missed the 2023-24 season after he was arrested last September and charged with assault and strangulation of his girlfriend.`\
+https://nytimes.com/athletic/5639963/2024/07/15/la-clippers-nba-kevin-porter-jr/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>SEC Media Days. EA Sports release date. Two more coaching changes in the Mountain West. It&#8217;s all happening here in college football.</p>
 <p>Leave your questions here. Please include your city.</p>
@@ -35,8 +39,4 @@ https://nytimes.com/2024/07/15/us/politics/elon-musk-trump-super-pac.html
 **“Our open borders have also unleashed the worst drug crisis in American history. Yet while hundreds of thousands of Americans are suffering, the Democrats spent over $175 billion — your tax dollars — to secure Ukraine’s borders. But they tell us the border wall is too expensive.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/our-open-borders-have-also-unleashed-the-worst-drug-crisis-in-american-history-yet-while-hundreds-of-thousands-of-americans-are-
-
-**“They promised normalcy and gave us Transgender Visibility Day on Easter Sunday.”**\
-`By Angelo Fichera`\
-https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/they-promised-normalcy-and-gave-us-transgender-visibility-day-on-easter-sunday
 
