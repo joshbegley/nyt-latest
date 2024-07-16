@@ -1,3 +1,7 @@
+**Latino Republicans and Independents Back Trump’s Deportation Plan, to a Point**\
+`Hispanic voters disillusioned with Democrats want tougher immigration enforcement, but dozens of interviews showed many unfamiliar with details of Trump’s proposal.`\
+https://nytimes.com/2024/07/16/us/politics/trump-latino-voters-deportation.html
+
 **Bangladesh Deploys Border Force to Try to Quell Student Protests**\
 `Across the country, students have taken to the streets over job quotas that they say limit their opportunities.`\
 https://nytimes.com/2024/07/16/world/asia/bangladesh-student-protests.html
