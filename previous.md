@@ -1,3 +1,7 @@
+**Teoscar Hernández wins MLB Home Run Derby**\
+`Despite facing elimination at various points, Teoscar Hernández won the MLB Home Run Derby, defeating Bobby Witt Jr. in the final round. `\
+https://nytimes.com/athletic/5640283/2024/07/15/teoscar-hernandez-mlb-home-run-derby-winner/
+
 **“President Trump will make those tax cuts permanent. But if Joe and Kamala are re-elected, they say they are going to let them expire. That will be the biggest tax increase in American history.”**\
 `By Angelo Fichera`\
 https://nytimes.com/live/2024/07/15/us/rnc-fact-check/president-trump-will-make-those-tax-cuts-permanent-but-if-joe-and-kamala-are-re-elected-they-say-they-are-going-to-let-them-expi
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/15/crosswords/daily-puzzle-2024-07-16.html
 **“When Donald Trump was president, I helped him spread economic prosperity with the largest tax cut in American history.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/15/us/rnc-fact-check/when-donald-trump-was-president-i-helped-him-spread-economic-prosperity-with-the-largest-tax-cut-in-american-history
-
-**Ohio Republicans on J.D. Vance: ‘He’s Our Barack Obama’**\
-`But will he stir any voters beyond Trump’s MAGA base?`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/vance-ohio-republican-convention
 

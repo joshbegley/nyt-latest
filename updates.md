@@ -1,3 +1,7 @@
+**Teoscar Hernández wins MLB Home Run Derby**\
+`Despite facing elimination at various points, Teoscar Hernández won the MLB Home Run Derby, defeating Bobby Witt Jr. in the final round. `\
+https://nytimes.com/athletic/5640283/2024/07/15/teoscar-hernandez-mlb-home-run-derby-winner/
+
 **Several Tornadoes Reported as Storm Moves Through Chicago Area**\
 `More than 13 million people were under tornado warning or watch alerts on Monday night in Chicago, and parts of Illinois, Indiana and Wisconsin.`\
 https://nytimes.com/2024/07/15/us/tornado-chicago-illinois-storms.html
