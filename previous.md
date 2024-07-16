@@ -1,6 +1,22 @@
+**Hollinger: Why Team USA's next games will be a much different test**\
+`LeBron James, Joel Embiid and company have limited time to tweak their games to the style that makes the most sense in international play.`\
+https://nytimes.com/athletic/5640391/2024/07/16/team-usa-basketball-fiba-rules-lebron-james-joel-embiid/
+
+**SEC coordinator of officials addresses 'Horns Down'**\
+`John McDaid estimates that team signal taunting has led to an unsportsmanlike conduct penalty fewer than five times over the past decade.`\
+https://nytimes.com/athletic/5641161/2024/07/16/horns-down-texas-sec/
+
+**How J.D. Vance seeks to reorient the Republicans’ approach to business.**\
+`By Dealbook`\
+https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/how-jd-vance-seeks-to-reorient-the-republicans-approach-to-business
+
 **Skillet Chicken With Schmaltzy (!) Tomatoes**\
 `The delicious drippings you get from roasting chicken thighs are tossed with cherry tomatoes, making them saltier and juicier.`\
 https://nytimes.com/2024/07/16/dining/skillet-chicken-with-schmaltzy-tomatoes.html
+
+**Newcastle will fight to keep Howe amid England vacancy, insists club CEO**\
+`Newcastle United &#8220;love&#8221; Eddie Howe and will fight to keep hold of their head coach should the FA look to appoint him as the next England manager, insists Darren Eales, the club&#8217;s CEO.`\
+https://nytimes.com/athletic/5641129/2024/07/16/eddie-howe-england-newcastle-southgate/
 
 **Six People Dead, Apparently by Poisoning, in Thailand, Police Say**\
 `The dead did not show outward signs of injury. Mass violence is unusual in the capital, Bangkok.`\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5640425/2024/07/16/padres-jackson-merrill-mlb-all-s
 **Pushing Quick End to Ukraine War, Orban Plays Trump’s Messenger to E.U.**\
 `Prime Minister Viktor Orban of Hungary has been on a self-appointed diplomatic mission that aligns with Donald J. Trump’s preferences in the Russia-Ukraine conflict.`\
 https://nytimes.com/2024/07/16/world/europe/orban-trump-ukraine-war-letter.html
-
-**Marseille reach agreement in principle with Greenwood**\
-`Marseille have reached an agreement in principle with Mason Greenwood to sign the forward from Manchester United.`\
-https://nytimes.com/athletic/5628329/2024/07/16/mason-greenwood-marseille-manchester-united/
-
-**Hamas’s leader in Gaza is facing pressure to end the war, the C.I.A. director says**\
-`By Julian E. Barnes`\
-https://nytimes.com/live/2024/07/16/world/israel-gaza-war-hamas/hamass-leader-in-gaza-is-facing-pressure-to-end-the-war-the-cia-director-says
-
-**Schiff Warned of Wipeout for Democrats if Biden Remains in Race**\
-`Representative Adam B. Schiff of California told attendees at a Democratic fund-raiser that the party would lose the Senate and miss a chance to take the House if the president did not drop out.`\
-https://nytimes.com/2024/07/16/us/politics/schiff-biden-democrats.html
-
-**A Poet Goes to War**\
-`“Revolution is the job of poets and artists,” says Ko Maung Saungkha, leader of a rebel militia fighting the Myanmar dictatorship. He is not the only poet commander in a country with a strong tradition of political verse.`\
-https://nytimes.com/2024/07/16/world/asia/myanmar-poet-ko-maung-saungkha.html
 
