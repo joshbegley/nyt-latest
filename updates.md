@@ -1,3 +1,11 @@
+**A Bandaged Trump Shows a Glimpse of Vulnerability**\
+`Donald J. Trump was unusually emotional in his first public appearance since the attempt on his life.`\
+https://nytimes.com/2024/07/16/us/politics/trump-first-night-rnc.html
+
+**Takeaways From Day One of the Republican Convention**\
+`Donald Trump and his newly minted running mate, J.D. Vance, were officially nominated, but Mr. Trump’s triumphal prime-time emergence in the arena that might prove the indelible moment of the whole event.`\
+https://nytimes.com/2024/07/16/us/politics/trump-vance-rnc-takeaways.html
+
 **Jaylen Brown talks Team USA snub, says Nike involved**\
 `“I do for sure," Brown said Tuesday when asked if he believed the Nike influenced the decision.`\
 https://nytimes.com/athletic/5640340/2024/07/16/jaylen-brown-team-usa-nike/
