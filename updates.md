@@ -1,3 +1,15 @@
+**‘Imminent’ Risk of Dam Failure Prompts Evacuation in Illinois**\
+`Residents in Nashville, Ill., were told to evacuate their homes on Tuesday amid heavy rain and the risk of a dam failure.`\
+https://nytimes.com/2024/07/16/us/nashville-illinois-dam-failure.html
+
+**Breaking at the 2024 Paris Olympics: How it got here, format and how to watch**\
+`Born from 1970s block parties in the Bronx, N.Y., breaking makes its Olympic debut next month.`\
+https://nytimes.com/athletic/5632505/2024/07/16/breaking-2024-paris-olympics-dance-format-watch/
+
+**Jack Black Ends Tenacious D Tour After Bandmate Jokes About Trump Shooting**\
+`At a concert in Australia, Kyle Gass made a comment suggesting that he wished the shooter had not missed former President Trump during an assassination attempt.`\
+https://nytimes.com/2024/07/16/arts/music/jack-black-tenacious-d-tour-trump-shooting.html
+
 **Trump Returns With a Different Look. Does That Mean a Different Tone?**\
 `The first night of the Republican National Convention sought to strike a new note. But some of the lyrics were familiar.`\
 https://nytimes.com/2024/07/16/arts/television/trump-rnc-milwaukee.html
