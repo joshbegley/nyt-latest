@@ -1,3 +1,7 @@
+**How Will Vance Affect the Race? Look at 2028, Not 2024.**\
+`The possibility that Trumpism outlasts Donald Trump just went up.`\
+https://nytimes.com/2024/07/16/upshot/vance-trump-vice-president.html
+
 **Steve Kerr aims to bolster Warriors' coaching staff in very specific ways**\
 `Former NBA head coach Terry Stotts and former player Jerry Stackhouse are the new faces on Golden State's bench.`\
 https://nytimes.com/athletic/5634372/2024/07/16/steve-kerr-warriors-terry-stotts-jerry-stackhouse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5533897/2024/07/16/jadon-sancho-manchester-united-t
 **State of the 49ers, DB: Will rookie Renardo Green emerge as No. 3 cornerback?**\
 `The 49ers were active at cornerback during the offseason, resulting in the deepest unit in recent memory. Safety, however, looks thin.`\
 https://nytimes.com/athletic/5560535/2024/07/16/san-francisco-49ers-defensive-backs-2024-renardo-green/
-
-**Kylian Mbappe and the story of Real Madrid's decade-long 'obsession' to sign him**\
-`From his visit to the club as a kid to the dramatic U-turn of May 2022, Madrid and Mbappe go back a very long way `\
-https://nytimes.com/athletic/5208094/2024/07/16/kylian-mbappe-real-madrid-psg-florentino-perez/
 

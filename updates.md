@@ -1,3 +1,7 @@
+**How Will Vance Affect the Race? Look at 2028, Not 2024.**\
+`The possibility that Trumpism outlasts Donald Trump just went up.`\
+https://nytimes.com/2024/07/16/upshot/vance-trump-vice-president.html
+
 **Steve Kerr aims to bolster Warriors' coaching staff in very specific ways**\
 `Former NBA head coach Terry Stotts and former player Jerry Stackhouse are the new faces on Golden State's bench.`\
 https://nytimes.com/athletic/5634372/2024/07/16/steve-kerr-warriors-terry-stotts-jerry-stackhouse/
