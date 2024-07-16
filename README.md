@@ -1,3 +1,7 @@
+**Dr. Ruth’s Tips for a Happy Life**\
+`Ruth Westheimer loved to give advice — and often strayed from her area of expertise as she tried, in her words, “to make the world a better place.”`\
+https://nytimes.com/2024/07/15/style/dr-ruths-tips-happiness.html
+
 **Colombian Football Federation president arrested at Copa final**\
 `The arrests are two of the 27 made by Miami-Dade police during the Copa America final.`\
 https://nytimes.com/athletic/5639637/2024/07/15/ramon-jesurun-arrest-copa-america/
@@ -35,8 +39,4 @@ https://nytimes.com/2024/07/15/us/canyonlands-hiking-deaths-utah.html
 **Investigators Unlock Gunman’s Phone in Search of Motive for Trump Shooting**\
 `The F.B.I. said it had gained access to the would-be assassin’s phone, but it was not immediately clear whether it had yielded clues.`\
 https://nytimes.com/2024/07/15/us/politics/trump-shooting-fbi-gunman-phone.html
-
-**The Good Mood in Milwaukee**\
-`The way Republicans at the national convention see it, somehow, everything is going their way.`\
-https://nytimes.com/2024/07/15/us/politics/rnc-trump-vance-milwaukee.html
 
