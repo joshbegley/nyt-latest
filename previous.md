@@ -1,3 +1,7 @@
+**A Somber Late Night After the Attack on Trump**\
+`Stephen Colbert and Seth Meyers offered sober reflections about democracy. So did Anthony Anderson, though he found some humor in the reaction to the shooting.`\
+https://nytimes.com/2024/07/16/arts/television/late-night-trump.html
+
 **The Red Bull RB17: How iconic F1 architect Adrian Newey built his 'utopia' car**\
 `Hypercars exist at the upper limit of automotive performance, a level the RB17 sought to reach by harnessing F1 technology.`\
 https://nytimes.com/athletic/5639137/2024/07/16/rb17-car-red-bull-f1-adrian-newey/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5640357/2024/07/16/spain-euro-2024-celebrations/
 **Quotation of the Day: For the G.O.P., Free-Market Economics Is History**\
 `Quotation of the Day for Tuesday, July 16, 2024.`\
 https://nytimes.com/2024/07/16/pageoneplus/quotation-of-the-day-for-the-gop-free-market-economics-is-history.html
-
-**Corrections: July 16, 2024**\
-`Corrections that appeared in print on Tuesday, July 16, 2024.`\
-https://nytimes.com/2024/07/16/pageoneplus/corrections-july-16-2024.html
 

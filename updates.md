@@ -1,3 +1,7 @@
+**A Somber Late Night After the Attack on Trump**\
+`Stephen Colbert and Seth Meyers offered sober reflections about democracy. So did Anthony Anderson, though he found some humor in the reaction to the shooting.`\
+https://nytimes.com/2024/07/16/arts/television/late-night-trump.html
+
 **The Red Bull RB17: How iconic F1 architect Adrian Newey built his 'utopia' car**\
 `Hypercars exist at the upper limit of automotive performance, a level the RB17 sought to reach by harnessing F1 technology.`\
 https://nytimes.com/athletic/5639137/2024/07/16/rb17-car-red-bull-f1-adrian-newey/
