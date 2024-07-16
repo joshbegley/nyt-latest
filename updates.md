@@ -1,3 +1,23 @@
+**Could MLB participate in the 2028 Olympics?**\
+`An altered season calendar would be needed to accomodate the 2028 summer games in Los Angeles, though what form that would take is unclear.`\
+https://nytimes.com/athletic/5641866/2024/07/16/mlb-summer-olympics-2028/
+
+**Videos show Secret Service snipers were focused toward the gunman before the shooting.**\
+`By Aric Toler`\
+https://nytimes.com/live/2024/07/16/us/trump-shooting-investigation/trump-shooting-secret-service-snipers
+
+**Wiegman 'happy and relieved' as England qualify for Euro 2025**\
+`Sarina Wiegman says she is &#8220;happy and very relieved&#8221; after England qualified for Euro 2025 with a 0-0 draw against Sweden.`\
+https://nytimes.com/athletic/5641898/2024/07/16/sarina-wiegman-england-qualify/
+
+**How Tucker Carlson helped sell J.D. Vance as Trump’s running mate.**\
+`By Jonathan Swan and Maggie Haberman`\
+https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/how-tucker-carlson-helped-sell-jd-vance-as-trumps-running-mate
+
+**Manfred hints at future ASG uniform changes**\
+`"It’s something we’re going to have a conversation about coming out of the All-Star Game,” Manfred said Tuesday.`\
+https://nytimes.com/athletic/5641816/2024/07/16/rob-manfred-all-star-game-uniforms/
+
 **Manfred hints at future ASG uniform changes**\
 `'It’s something we’re going to have a conversation about coming out of the All-Star Game,” Manfred said Tuesday.`\
 https://nytimes.com/athletic/5641816/2024/07/16/rob-manfred-all-star-game-uniforms/
