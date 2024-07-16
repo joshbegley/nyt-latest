@@ -1,3 +1,11 @@
+**Wales’s First Minister Steps Down After Four Colleagues Quit**\
+`Vaughan Gething became the first minister of the Welsh Parliament in March. But a growing controversy over campaign financing precipitated his decision to step down.`\
+https://nytimes.com/2024/07/16/world/europe/wales-vaughan-gething-resigns.html
+
+**How will you remember Gareth Southgate's England tenure? Who should take over?**\
+`With Gareth Southgate stepping down as England manager, we want to hear your views on his time in charge and a possible successor...`\
+https://nytimes.com/athletic/5640551/2024/07/16/gareth-southgate-england-memories/
+
 **Ten Hag spoke about 'standards' after Rosenborg loss. Is it really a surprise?**\
 `Manchester United lost their first pre-season game against Rosenborg and Erik ten Hag was critical afterwards`\
 https://nytimes.com/athletic/5640131/2024/07/16/erik-ten-hag-manchester-united-rosenborg/
