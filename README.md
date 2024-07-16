@@ -6,8 +6,8 @@ https://nytimes.com/athletic/5641663/2024/07/16/glen-kamara-leeds-rennes-transfe
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/07/16/style/tiny-modern-love-stories-i-was-married-to-a-terrible-man.html
 
-**Israeli Strikes Kill Several People in Central And Southern Gaza**\
-`The strikes hit a United Nations school-turned-shelter in Nuseirat, central Gaza, and a site in the Mawasi area in Khan Younis, further south. Gaza’s health ministry said both strikes resulted in casualties. The Israeli military said it was targeting Hamas.`\
+**Israeli Strikes Kill Several People in Central and Southern Gaza**\
+`The strikes hit a United Nations school-turned-shelter in Nuseirat, central Gaza, and a site in the Mawasi area in Khan Younis, further south. Gaza’s health ministry said both strikes resulted in casualties. The Israeli military said it was targeting militants.`\
 https://nytimes.com/video/world/middleeast/100000009574297/strikes-gaza-nuseirat-khan-younis.html
 
 **MLB may test automated strike zone next year**\
