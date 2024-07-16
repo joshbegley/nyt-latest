@@ -1,3 +1,7 @@
+**Guns Are Woven Into the Life of Shooter’s Hometown**\
+`The gunman who opened fire at a Trump rally grew up in an area where hunting and target shooting have long been popular pastimes. Now, there’s new talk of gun regulation.`\
+https://nytimes.com/2024/07/16/us/guns-crooks-pennsylvania-trump-shooting.html
+
 **Chris Christie: Will Trump Meet the Moment?**\
 `The Republican nominee has the opportunity to rein in some of the worst rhetorical impulses of party and point in a new direction.`\
 https://nytimes.com/2024/07/16/opinion/trump-rnc-chris-christie.html
