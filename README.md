@@ -1,3 +1,7 @@
+**After a National Anthem Flub, Singer Says She’s Going to Rehab**\
+`Ingrid Andress, a country star, blamed drinking for her poor performance of “The Star-Spangled Banner” during Major League Baseball’s All-Star Game festivities.`\
+https://nytimes.com/2024/07/16/style/ingrid-andress-national-anthem-rehab.html
+
 **Larry Light, Marketer Behind Revival of McDonald’s, Dies at 83**\
 `A branding expert, he deployed the “I’m lovin’ it” campaign globally in 2003 to bring customers and sales back to the fast-food giant when it was in a slump.`\
 https://nytimes.com/2024/07/16/business/media/larry-light-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/16/nyregion/menendez-corruption-case-explained.html
 **Two powerful Silicon Valley venture capitalists are said to be ready to back Trump.**\
 `By Erin Griffith and Theodore Schleifer`\
 https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/two-powerful-silicon-valley-venture-capitalists-are-said-to-be-ready-to-back-trump
-
-**Here’s the speaker lineup for Night 2 of the Republican convention.**\
-`Tuesday’s speakers at the Republican National Convention include Republicans who once criticized former President Donald J. Trump and “everyday Americans” who will discuss illegal immigration.`\
-https://nytimes.com/2024/07/16/us/politics/rnc-day-2-speakers.html
 
