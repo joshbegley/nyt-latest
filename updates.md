@@ -1,3 +1,7 @@
+**Two powerful Silicon Valley venture capitalists are said to be ready to back Trump.**\
+`By Erin Griffith and Theodore Schleifer`\
+https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/two-powerful-silicon-valley-venture-capitalists-are-said-to-be-ready-to-back-trump
+
 **Here’s the speaker lineup for Night 2 of the Republican convention.**\
 `Tuesday’s speakers at the Republican National Convention include Republicans who once criticized former President Donald J. Trump and “everyday Americans” who will discuss illegal immigration.`\
 https://nytimes.com/2024/07/16/us/politics/rnc-day-2-speakers.html

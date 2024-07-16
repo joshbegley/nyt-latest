@@ -1,3 +1,7 @@
+**Two powerful Silicon Valley venture capitalists are said to be ready to back Trump.**\
+`By Erin Griffith and Theodore Schleifer`\
+https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/two-powerful-silicon-valley-venture-capitalists-are-said-to-be-ready-to-back-trump
+
 **Here’s the speaker lineup for Night 2 of the Republican convention.**\
 `Tuesday’s speakers at the Republican National Convention include Republicans who once criticized former President Donald J. Trump and “everyday Americans” who will discuss illegal immigration.`\
 https://nytimes.com/2024/07/16/us/politics/rnc-day-2-speakers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/16/sports/joe-bryant-dead.html
 **Overshadowed by a Senator, Two Businessmen Were Convicted With Menendez**\
 `The businessmen, Fred Daibes and Wael Hana, did not deny giving Senator Robert Menendez and his wife valuables.`\
 https://nytimes.com/2024/07/16/nyregion/wael-hana-fred-daibes-guilty.html
-
-**A House panel summons top security officials for a hearing next week.**\
-`By Luke Broadwater`\
-https://nytimes.com/live/2024/07/16/us/trump-shooting-investigation/a-house-panel-summons-top-security-officials-for-a-hearing-next-week
 
