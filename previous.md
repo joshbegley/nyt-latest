@@ -1,3 +1,15 @@
+**Georgia collective fining players for driving violations**\
+`Seven players have been arrested on driving-related charges since the January 2023 car crash that killed a Georgia player and staffer.`\
+https://nytimes.com/athletic/5641091/2024/07/16/georgia-football-racing-kirby-smart/
+
+**How Padres’ Jackson Merrill went from late-blooming high schooler to All-Star rookie**\
+`The 21-year-old Merrill, drafted out of a Baltimore-area high school 36 months ago, will be the youngest player in the All-Star Game.`\
+https://nytimes.com/athletic/5640425/2024/07/16/padres-jackson-merrill-mlb-all-star/
+
+**Pushing Quick End to Ukraine War, Orban Plays Trump’s Messenger to E.U.**\
+`Prime Minister Viktor Orban of Hungary has been on a self-appointed diplomatic mission that aligns with Donald J. Trump’s preferences in the Russia-Ukraine conflict.`\
+https://nytimes.com/2024/07/16/world/europe/orban-trump-ukraine-war-letter.html
+
 **Marseille reach agreement in principle with Greenwood**\
 `Marseille have reached an agreement in principle with Mason Greenwood to sign the forward from Manchester United.`\
 https://nytimes.com/athletic/5628329/2024/07/16/mason-greenwood-marseille-manchester-united/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/16/us/evan-wright-generation-kill-dead.html
 **In Leaked Phone Call, Trump Tries to Coax Kennedy Into His Camp**\
 `Robert F. Kennedy Jr. apologized for a leaked video of the phone call, in which Donald Trump offers anti-vaccine messaging and says the wound to his ear “felt like the world’s largest mosquito.”`\
 https://nytimes.com/2024/07/16/us/politics/rfk-trump-call.html
-
-**FPL managers able to bank up to five transfers in changes to game for 2024-25**\
-`Fantasy Premier League managers will be able to bank up to five free transfers as part of new changes to the game ahead of the 2024-25 season.`\
-https://nytimes.com/athletic/5640967/2024/07/16/fpl-changes-transfers-2024-25/
-
-**Trump’s V.P. Pick Doesn’t Exactly Balance the Ticket**\
-`J.D. Vance wasn’t the most obvious choice.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-vance-vice-president
-
-**After 12 Years of Reviewing Restaurants, I’m Leaving the Table**\
-`Pete Wells is moving on from his role as the Times restaurant critic, a job with many rewards and maybe too many courses.`\
-https://nytimes.com/2024/07/16/dining/pete-wells-steps-down-food-critic.html
 
