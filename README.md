@@ -1,3 +1,7 @@
+**Biden Finally Got Border Numbers Down. Will He See the Political Benefits?**\
+`June had the lowest monthly total for illegal crossings since January 2021. But the downturn comes amid intense focus on President Biden’s candidacy and the attempted assassination of Donald Trump.`\
+https://nytimes.com/2024/07/16/us/politics/biden-border-immigration.html
+
 **Daughter-in-Law and Party Chief: Lara Trump’s Dual Roles**\
 `Since taking the helm at the R.N.C. in March, Donald J. Trump’s daughter-in-law has put a smiling spin on some of the darkest aspects of his campaign for the White House.`\
 https://nytimes.com/2024/07/16/us/politics/lara-trump-republicans-rnc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/16/climate/wind-turbine-breaks-nantucket.html
 **After Backlash, Marvel Gives an Israeli Superhero a New Backstory**\
 `The studio said Sabra, a Mossad agent in comic books, will be “a high-ranking U.S. government official” in its next Captain America movie.`\
 https://nytimes.com/2024/07/16/movies/sabra-israeli-superhero-marvel.html
-
-**Trump to Rally for First Time Since Assassination Attempt With Vance**\
-`The rally is set for Saturday in Michigan, and will be his first such appearance alongside Senator J.D. Vance of Ohio, whom he selected as his running mate on Monday.`\
-https://nytimes.com/2024/07/16/us/politics/trump-rally-jd-vance-michigan.html
 

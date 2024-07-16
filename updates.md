@@ -1,3 +1,19 @@
+**Daughter-in-Law and Party Chief: Lara Trump’s Dual Roles**\
+`Since taking the helm at the R.N.C. in March, Donald J. Trump’s daughter-in-law has put a smiling spin on some of the darkest aspects of his campaign for the White House.`\
+https://nytimes.com/2024/07/16/us/politics/lara-trump-republicans-rnc.html
+
+**Israeli Airstrikes Kill Over 20, Gazans Say, and Hit Another U.N. Building**\
+`The Israeli military said it was targeting militants operating in a U.N. school being used as a shelter in Nuseirat. A second strike caused fatalities in Al-Mawasi, the Gazan Health Ministry said.`\
+https://nytimes.com/2024/07/16/world/middleeast/israel-hamas-gaza.html
+
+**Jontay Porter asks judge for permission to play in Greece**\
+`Porter was banned by the NBA after its investigation found that he bet on Raptors games.`\
+https://nytimes.com/athletic/5642134/2024/07/16/jontay-porter-greece-basketball-betting-raptors/
+
+**Senator Menendez Was Convicted of Corruption**\
+`Also, police were in the complex from which a gunman shot Trump. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/07/16/briefing/menendez-guilty-verdict-trump-shooting-investigation.html
+
 **Families Say Shelters Without Air-Conditioning Are Like ‘Living in Hell’**\
 `Families in many city homeless shelters need a doctor’s note to have air-conditioners. But some residents say shelters still make it difficult to get them.`\
 https://nytimes.com/2024/07/16/nyregion/air-conditioning-homeless-shelters.html

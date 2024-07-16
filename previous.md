@@ -1,3 +1,19 @@
+**Daughter-in-Law and Party Chief: Lara Trump’s Dual Roles**\
+`Since taking the helm at the R.N.C. in March, Donald J. Trump’s daughter-in-law has put a smiling spin on some of the darkest aspects of his campaign for the White House.`\
+https://nytimes.com/2024/07/16/us/politics/lara-trump-republicans-rnc.html
+
+**Israeli Airstrikes Kill Over 20, Gazans Say, and Hit Another U.N. Building**\
+`The Israeli military said it was targeting militants operating in a U.N. school being used as a shelter in Nuseirat. A second strike caused fatalities in Al-Mawasi, the Gazan Health Ministry said.`\
+https://nytimes.com/2024/07/16/world/middleeast/israel-hamas-gaza.html
+
+**Jontay Porter asks judge for permission to play in Greece**\
+`Porter was banned by the NBA after its investigation found that he bet on Raptors games.`\
+https://nytimes.com/athletic/5642134/2024/07/16/jontay-porter-greece-basketball-betting-raptors/
+
+**Senator Menendez Was Convicted of Corruption**\
+`Also, police were in the complex from which a gunman shot Trump. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/07/16/briefing/menendez-guilty-verdict-trump-shooting-investigation.html
+
 **The Sex Advice That Changed Us**\
 `When our parents were silent, unsure or sexually repressed, there was always Dr. Ruth.`\
 https://nytimes.com/2024/07/16/well/family/dr-ruth-death-memories.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/07/16/movies/sabra-israeli-superhero-marvel.html
 **Trump to Rally for First Time Since Assassination Attempt With Vance**\
 `The rally is set for Saturday in Michigan, and will be his first such appearance alongside Senator J.D. Vance of Ohio, whom he selected as his running mate on Monday.`\
 https://nytimes.com/2024/07/16/us/politics/trump-rally-jd-vance-michigan.html
-
-**California Becomes the First State to Ban Student Gender Notification Policies**\
-`Gov. Gavin Newsom signed a bill that prevents educators from having to notify parents if their child asks to switch names or pronouns.`\
-https://nytimes.com/2024/07/16/us/gender-identity-bill-california.html
-
-**U.S. Accuses Former C.I.A. Analyst of Working for South Korea**\
-`Sue Mi Terry, a North Korea expert with the Council on Foreign Relations, was charged with acting as an agent for Seoul after leaving the intelligence agency.`\
-https://nytimes.com/2024/07/16/nyregion/sue-mi-terry-cia-south-korea.html
-
-**Families Say Shelters Without Air-Conditioning Are Like ‘Living in Hell’**\
-`Families in many city homeless shelters need a doctor’s note to have air-conditioners. But some residents say shelters still make it difficult to get them.`\
-https://nytimes.com/2024/07/16/nyregion/air-conditioning-homeless-shelters.html
-
-**Wednesday Briefing: A Turbulent Moment in U.S. Politics**\
-`Plus, Israeli strikes killed more than 20 people in Gaza.`\
-https://nytimes.com/2024/07/16/briefing/biden-nomination-trump-rnc.html
 
