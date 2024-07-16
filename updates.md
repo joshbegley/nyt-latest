@@ -1,3 +1,7 @@
+**Trump’s V.P. Pick Doesn’t Exactly Balance the Ticket**\
+`J.D. Vance wasn’t the most obvious choice.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-vance-vice-president
+
 **After 12 Years of Reviewing Restaurants, I’m Leaving the Table**\
 `Pete Wells is moving on from his role as the Times restaurant critic, a job with many rewards and maybe too many courses.`\
 https://nytimes.com/2024/07/16/dining/pete-wells-steps-down-food-critic.html
