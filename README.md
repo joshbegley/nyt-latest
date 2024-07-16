@@ -1,3 +1,7 @@
+**Euro 2024 team of the tournament: Yamal, Williams and Walker included**\
+`UEFA has confirmed its team of the tournament for Euro 2024, with six Spain internationals and England&#8217;s Kyle Walker included.`\
+https://nytimes.com/athletic/5640686/2024/07/16/euro-2024-team-of-the-tournament/
+
 **How J.D. Vance Seeks to Reorient the Republican’s Approach to Business**\
 `Donald Trump’s running mate is pro-labor, a fan of crypto and the F.T.C.’s Lina Khan, and says Big Tech is too powerful.`\
 https://nytimes.com/2024/07/16/business/dealbook/trump-vance-republicans-business.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5640530/2024/07/16/gibraltar-spain-rodri-euro-2024/
 **Wales’s First Minister Steps Down After Four Colleagues Quit**\
 `Vaughan Gething became the first minister of the Welsh Parliament in March. But a growing controversy over campaign financing precipitated his decision to step down.`\
 https://nytimes.com/2024/07/16/world/europe/wales-vaughan-gething-resigns.html
-
-**Ten Hag spoke about 'standards' after Rosenborg loss. Is it really a surprise?**\
-`Manchester United lost their first pre-season game against Rosenborg and Erik ten Hag was critical afterwards`\
-https://nytimes.com/athletic/5640131/2024/07/16/erik-ten-hag-manchester-united-rosenborg/
 
