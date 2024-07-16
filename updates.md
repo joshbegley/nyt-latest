@@ -1,3 +1,11 @@
+**Como deny allegation of racism towards Wolves' Hwang**\
+`Italian club Como have denied their player was intentionally racist towards Wolverhampton Wanderers forward Hwang Hee-chan and accused Wolves of “blowing the incident out of proportion”.`\
+https://nytimes.com/athletic/5640698/2024/07/16/hwang-hee-chan-racism-como-wolves/
+
+**The Democrats introduce an anti-Vance ad campaign, linking him to Project 2025.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/democrats-open-anti-vance-ad-campaign-linking-him-to-project-2025
+
 **Gibraltar complain about Spain's 'extremely provocative' Euro 2024 celebrations**\
 `Gibraltar&#8217;s Football Association (FA) has lodged a complaint with European football&#8217;s governing body UEFA over &#8220;extremely provocative and insulting&#8221; celebrations by players of Spain&#8217;s national team following their European Championship success.`\
 https://nytimes.com/athletic/5640530/2024/07/16/gibraltar-spain-rodri-euro-2024/
