@@ -1,40 +1,40 @@
-**Liverpool owner FSG withdraws from talks to buy Bordeaux**\
-`Liverpool’s owner Fenway Sports Group (FSG) has withdrawn from talks to buy French club Bordeaux.`\
-https://nytimes.com/athletic/5640517/2024/07/16/liverpool-bordeaux-fsg/
+**Trump’s Emotional Appearance, and More Republican Convention Takeaways**\
+`Plus, a college football video game breaks new ground.`\
+https://nytimes.com/2024/07/16/podcasts/trump-rnc-vp-pick-vance.html
 
-**Nikki Haley to Speak at Convention as Republicans Aim for Show of Unity**\
-`After her bitter campaign against Donald J. Trump for the Republican nomination, Ms. Haley wasn’t originally invited — until the shooting at a Trump rally.`\
-https://nytimes.com/2024/07/16/us/politics/nikki-haley-to-speak-at-convention-as-republicans-aim-for-show-of-unity.html
+**Copa America roundtable: Best player, favorite moments, biggest disappointments and more**\
+`Our team of writers reflect on the Copa America and pick their favourite moments - and lessons that can be learned`\
+https://nytimes.com/athletic/5639399/2024/07/16/copa-america-roundtable-best-player-moment/
 
-**Here’s what to watch for on Day 2 of the Republican National Convention.**\
-`It’s a parade of former foes — and Senate candidates — for an evening focused on crime and illegal immigration.`\
-https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/heres-what-to-watch-for-on-day-2-of-the-republican-national-convention
+**From Caleb Williams to 'Hard Knocks': 10 Bears questions entering training camp**\
+`The Bears open training camp at Halas Hall this week. Along with lots of new faces, there are lots of unknowns.`\
+https://nytimes.com/athletic/5639799/2024/07/16/chicago-bears-nfl-training-camp-caleb-williams/
 
-**Celebrating Film Nostalgia With Ooze and Ahhs at Blobfest**\
-`A festival that celebrates the 1958 film “The Blob” held its 25th annual gathering in Phoenixville, Pa., where much of the movie was shot.`\
-https://nytimes.com/2024/07/16/movies/blobfest-2024-sci-fi-horror-movie.html
+**The cost of NHL glory: How Shea Weber and Carey Price cope with the toll of their careers**\
+`Shea Weber's Hall of Fame induction provided a window into what he has been going through since being forced into retirement.`\
+https://nytimes.com/athletic/5633801/2024/07/16/nhl-shea-weber-carey-price-canadiens/
 
-**Here Is Where It’s Going to Be Hottest on Tuesday**\
-`Dangerous heat is expected from Texas to New Jersey through Wednesday before milder air starts to sweep across the region.`\
-https://nytimes.com/2024/07/16/weather/heat-forecast.html
+**Yes, college football coaches are glad a video game is back too: 'I grew up obsessed'**\
+`The Athletic spoke with more than a dozen coaches about their love for past college football video games and the long-awaited return.`\
+https://nytimes.com/athletic/5639871/2024/07/16/college-football-25-video-game-coaches/
 
-**Teoscar Hernández ends Dodgers' Derby drought by playing it cool, calling his shots**\
-`There was something about Teoscar Hernández that seemed like it was made for this moment. He became the first Dodger to win the Derby. `\
-https://nytimes.com/athletic/5640435/2024/07/16/teoscar-hernandez-dodgers-first-home-run-derby-champ/
+**What I'm hearing about the Blackhawks: Loaded AHL roster, much more**\
+`The Blackhawks could have as many as 17 draft picks playing with the IceHogs this season.`\
+https://nytimes.com/athletic/5639478/2024/07/16/blackhawks-prospects-rockford-icehogs/
 
-**D.N.C. Aims to Push Biden Toward Nomination Next Week, Despite Doubts**\
-`Leaders of the Democratic National Committee are aiming for a process that would formalize the nomination by the end of July, even as Democrats remain fiercely split over his candidacy.`\
-https://nytimes.com/2024/07/16/us/politics/dnc-biden-nominee.html
+**What Cubs’ monster draft class from 10 years ago says about this year's up-and-down team**\
+`The Cubs miss Kyle Schwarber, their first-round pick in 2014. Luckily they still have Justin Steele, their fifth-rounder from that draft.`\
+https://nytimes.com/athletic/5640025/2024/07/16/cubs-2014-mlb-draft-class/
 
-**Biden Returns to Campaigning, Hoping to Refocus on the Basics**\
-`The president plans to address core issues like the economy and housing costs as he courts Black and Hispanic voters in Nevada. The events of recent weeks are sure to follow.`\
-https://nytimes.com/2024/07/16/us/politics/biden-campaigning-nevada.html
+**Trump Picks His Running Mate, and Political Heir**\
+`Former President Donald J. Trump chose the 39-year-old Senator J.D. Vance of Ohio as his vice-presidential nominee.`\
+https://nytimes.com/2024/07/16/podcasts/the-daily/trump-jd-vance.html
 
-**With J.D. Vance and a Bandaged Ear, Trump Gets His Party Started**\
-`A dispatch from Night 1 of the Republican National Convention in Milwaukee.`\
-https://nytimes.com/2024/07/16/podcasts/with-jd-vance-and-a-bandaged-ear-trump-gets-his-party-started.html
+**Greenberg: Waiting for Paul Skenes to start All-Star Game while pondering Cubs, White Sox**\
+`At long last, the Pirates have both an ace and a superstar in Skenes, whose best comp right now is probably Kerry Wood.`\
+https://nytimes.com/athletic/5639641/2024/07/16/paul-skenes-all-star-game-cubs-white-sox/
 
-**What to Expect From Wednesday’s Emmy Nominations**\
-`The top nominees are announced at 11:30 a.m. ET. “Shogun” and “The Bear” are poised to have a big day.`\
-https://nytimes.com/2024/07/16/arts/television/what-to-expect-from-wednesdays-emmy-nominations.html
+**Wordle Review No. 1,124, Wednesday, July 17, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/16/crosswords/wordle-review-1124.html
 
