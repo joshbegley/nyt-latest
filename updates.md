@@ -1,3 +1,19 @@
+**After 12 Years of Reviewing Restaurants, I’m Leaving the Table**\
+`Pete Wells is moving on from his role as the Times restaurant critic, a job with many rewards and maybe too many courses.`\
+https://nytimes.com/2024/07/16/dining/pete-wells-steps-down-food-critic.html
+
+**The Most Memorable Reviews by Pete Wells**\
+`The Times’s restaurant critic is stepping down after a dozen years on the job. Here are some of his most engaging reviews and essays.`\
+https://nytimes.com/2024/07/16/dining/favorite-reads-by-pete-wells.html
+
+**Grass Lawns: Lavish and Lamentable**\
+`We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Lucy Robb, age 17.`\
+https://nytimes.com/2024/07/16/learning/grass-lawns-lavish-and-lamentable.html
+
+**‘As a Muslim, Those Words Pierce My Soul’: The Week 4 Winner of Our Summer Reading Contest**\
+`Jawaher Korichi writes about how the two sides of her family — one wealthy and one not — experience the Hajj differently.`\
+https://nytimes.com/2024/07/16/learning/as-a-muslim-those-words-pierce-my-soul-the-week-4-winner-of-our-summer-reading-contest.html
+
 **Local Police Were Inside Building Used by Gunman, Secret Service Director Says**\
 `“There was local police in the area that were responsible for the outer perimeter of the building,” Kimberly A. Cheatle, the director of the Secret Service said.`\
 https://nytimes.com/2024/07/16/us/local-police-were-inside-building-used-by-gunman-secret-service-director-says.html

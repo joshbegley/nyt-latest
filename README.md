@@ -1,3 +1,7 @@
+**Trump’s V.P. Pick Doesn’t Exactly Balance the Ticket**\
+`J.D. Vance wasn’t the most obvious choice.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-vance-vice-president
+
 **After 12 Years of Reviewing Restaurants, I’m Leaving the Table**\
 `Pete Wells is moving on from his role as the Times restaurant critic, a job with many rewards and maybe too many courses.`\
 https://nytimes.com/2024/07/16/dining/pete-wells-steps-down-food-critic.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5640268/2024/07/16/jets-arthur-smith-hackett-rodger
 **Civilian casualties in Gaza remain unacceptably high, the State Department says.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/07/16/world/israel-gaza-war-hamas/civilian-casualties-in-gaza-remain-unacceptably-high-the-state-department-says
-
-**Here’s the latest on the investigation.**\
-`By The New York Times`\
-https://nytimes.com/live/2024/07/16/us/trump-shooting-investigation/heres-the-latest-on-the-investigation
 
