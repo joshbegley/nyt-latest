@@ -1,3 +1,7 @@
+**The Dismissal of the Trump Classified Documents Case Is Deeply Dangerous**\
+`Eight federal judges have rejected the claim that Judge Eileen Cannon has now endorsed that no law authorizes the appointment of a special counsel.`\
+https://nytimes.com/2024/07/15/opinion/trump-court-classified-documents.html
+
 **Former President Donald J. Trump’s administration had “energy independence.”**\
 `By Lisa Friedman`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/former-president-donald-j-trumps-administration-had-energy-independence
