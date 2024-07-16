@@ -1,3 +1,19 @@
+**Taiwan’s Blunt-Talking Leader Faces China’s Backlash**\
+`China is putting more military and political pressure on Taiwan and its new president, whose rhetoric has been sharper than his predecessor’s.`\
+https://nytimes.com/2024/07/16/world/asia/taiwan-china-lai-ching-te.html
+
+**Inside Spain's celebrations: Morata's star turn, little sleep and De la Fuente's singalong**\
+`Spain celebrated their European Championship success with a party that lasted into the early hours`\
+https://nytimes.com/athletic/5640357/2024/07/16/spain-euro-2024-celebrations/
+
+**Quotation of the Day: For the G.O.P., Free-Market Economics Is History**\
+`Quotation of the Day for Tuesday, July 16, 2024.`\
+https://nytimes.com/2024/07/16/pageoneplus/quotation-of-the-day-for-the-gop-free-market-economics-is-history.html
+
+**Corrections: July 16, 2024**\
+`Corrections that appeared in print on Tuesday, July 16, 2024.`\
+https://nytimes.com/2024/07/16/pageoneplus/corrections-july-16-2024.html
+
 **Jaylen Brown talks Team USA snub, says Nike involved**\
 `“I do for sure," Brown said Tuesday when asked if he believed Nike influenced the decision.`\
 https://nytimes.com/athletic/5640340/2024/07/16/jaylen-brown-team-usa-nike/
