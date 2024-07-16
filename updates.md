@@ -1,3 +1,19 @@
+**Lopetegui's first match analysed: Kilman debut, Guilherme's speed, high-press tactics**\
+`What we learned from Lopetegui's first game in charge`\
+https://nytimes.com/athletic/5639334/2024/07/16/west-ham-lopetegui-ferencvaros-kitzbuhel/
+
+**'Relegation hurt - I'm glad I've left with Southampton back in the Premier League'**\
+`The left-back has swapped Southampton for a new start in Seville with Real Betis - he has fond memories of Hasenhuttl and more in England`\
+https://nytimes.com/athletic/5625885/2024/07/16/romain-perraud-southampton-real-betis/
+
+**Dunk, Euro 2024 finalist - and what comes next for Brighton's captain**\
+`Centre-back did not feature for England at the Euros but he still considers it one of the best experiences of his career`\
+https://nytimes.com/athletic/5631235/2024/07/16/lewis-dunk-euros-england-brighton/
+
+**Driving runs, attack-minded play and timely goals: What Leeds can expect from Joe Rothwell**\
+`The experienced midfielder has lots to offer Daniel Farke's side and if he is used wisely will be a useful asset in the hunt for promotion`\
+https://nytimes.com/athletic/5638518/2024/07/16/what-leeds-can-expect-joe-rothwell/
+
 **Tuesday Briefing**\
 `Donald Trump’s running mate.`\
 https://nytimes.com/2024/07/16/briefing/vance-trump-biden-israel.html
