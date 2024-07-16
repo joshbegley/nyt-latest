@@ -1,3 +1,11 @@
+**Iran’s New President Promises Changes. Can He Deliver?**\
+`Masoud Pezeshkian, a widowed doctor, portrays himself as a reformer who can bring social and economic shifts. But others have tried and failed before him, and numerous obstacles are in his path.`\
+https://nytimes.com/2024/07/16/world/middleeast/ira-new-president-profile.html
+
+**Dysfunction Sidelines Ukraine’s Parliament as Governing Force**\
+`With the president’s party split, the government relies on formerly pro-Russian lawmakers to help it pass legislation and, the opposition says, minimize scrutiny.`\
+https://nytimes.com/2024/07/16/world/europe/ukraine-parliament.html
+
 **Trump, in his first appearance since an assassination attempt, revels in cheers.**\
 `By Michael Gold`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/trump-rnc-appearance
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/15/us/copa-america-final-miami-world-cup.html
 **In J.D. Vance, Donald Trump Selects an Inheritor**\
 `Mr. Trump’s decision to pick Mr. Vance as his running mate signals his concern for the future of his MAGA movement.`\
 https://nytimes.com/2024/07/15/us/politics/trump-vance-running-mate.html
-
-**Divine Intervention and True Belief on the Convention Floor**\
-`“Trump is still our man,” one delegate said, “and he always will be.”`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-assassination-god-saved
-
-**“They hired 85,000 new I.R.S. agents to harass hard-working Americans.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/they-hired-85000-new-irs-agents-to-harass-hard-working-americans
 

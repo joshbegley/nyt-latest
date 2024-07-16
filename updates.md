@@ -1,3 +1,11 @@
+**Iran’s New President Promises Changes. Can He Deliver?**\
+`Masoud Pezeshkian, a widowed doctor, portrays himself as a reformer who can bring social and economic shifts. But others have tried and failed before him, and numerous obstacles are in his path.`\
+https://nytimes.com/2024/07/16/world/middleeast/ira-new-president-profile.html
+
+**Dysfunction Sidelines Ukraine’s Parliament as Governing Force**\
+`With the president’s party split, the government relies on formerly pro-Russian lawmakers to help it pass legislation and, the opposition says, minimize scrutiny.`\
+https://nytimes.com/2024/07/16/world/europe/ukraine-parliament.html
+
 **Several Tornadoes Reported in Illinois as Storm Moves to Indiana**\
 `More than 13 million people were under tornado warning or watch alerts on Monday night in Chicago, and parts of Illinois, Indiana and Wisconsin.`\
 https://nytimes.com/2024/07/15/us/tornado-chicago-illinois-storms.html
