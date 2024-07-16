@@ -1,3 +1,15 @@
+**Who is on track to win the men's Ballon d'Or for 2023-24?**\
+`In the wake of Euro 2024 and the 2024 Copa America, our writers give their tips for the 2023-24 men's Ballon d'Or award`\
+https://nytimes.com/athletic/5638878/2024/07/16/ballon-dor-rodri-kroos-bellingham-lautaro/
+
+**Brand Mbappe: Real Madrid's new galactico and his unique commercial power**\
+`As Real Madrid's new global superstar signing is presented at the Bernabeu, we profile the growth of his off-field brand`\
+https://nytimes.com/athletic/5630907/2024/07/16/kylian-mbappe-real-madrid-brand-business/
+
+**A Teamsters Boss Delivers Rare Speech to R.N.C.**\
+`Labor leaders are uncommon sights at Republican conventions, and Sean O’Brien used his moment to lace into corporate America. But he also praised the former president.`\
+https://nytimes.com/2024/07/16/us/politics/teamsters-boss-sean-obrien-rnc.html
+
 **Crisis, controversy and chaos - yet Spain's national teams rule football**\
 `Spanish football is living through turbulent times - so how come their men's, women's and youth sides keep winning trophies?`\
 https://nytimes.com/athletic/5631965/2024/07/16/how-spain-rule-football-controversy/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/black-republicans-rn
 **Teoscar Hernández wins MLB Home Run Derby**\
 `Despite facing elimination at various points, Teoscar Hernández won the MLB Home Run Derby, defeating Bobby Witt Jr. in the final round.`\
 https://nytimes.com/athletic/5640283/2024/07/15/teoscar-hernandez-mlb-home-run-derby-winner/
-
-**“President Trump will make those tax cuts permanent. But if Joe and Kamala are re-elected, they say they are going to let them expire. That will be the biggest tax increase in American history.”**\
-`By Angelo Fichera`\
-https://nytimes.com/live/2024/07/15/us/rnc-fact-check/president-trump-will-make-those-tax-cuts-permanent-but-if-joe-and-kamala-are-re-elected-they-say-they-are-going-to-let-them-expi
-
-**Fact-Checking Day 1 of the Republican National Convention**\
-`A team of New York Times reporters followed the developments and fact-checked the speakers, providing context and explanation.`\
-https://nytimes.com/live/2024/07/15/us/rnc-fact-check
-
-**Several Tornadoes Reported in Illinois as Storm Moves to Indiana**\
-`More than 13 million people were under tornado warning or watch alerts on Monday night in Chicago, and parts of Illinois, Indiana and Wisconsin.`\
-https://nytimes.com/2024/07/15/us/tornado-chicago-illinois-storms.html
 
