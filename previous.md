@@ -1,3 +1,7 @@
+**Crisis Hotline Has Answered 10 Million Calls, Texts and Chats**\
+`Mental health experts have said that the 988 hotline for mental health emergencies is still a work in progress, in need of more funding, coordination and awareness.`\
+https://nytimes.com/2024/07/16/us/politics/988-suicide-crisis-hotline.html
+
 **Could MLB participate in the 2028 Olympics?**\
 `An altered season calendar would be needed to accomodate the 2028 summer games in Los Angeles, though what form that would take is unclear.`\
 https://nytimes.com/athletic/5641866/2024/07/16/mlb-summer-olympics-2028/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/16/world/middleeast/israel-hostage-rescu
 **At Trump Rally, Local Police and Gunman Were in Same Warehouse Complex**\
 `The Secret Service left local law enforcement to secure the building, which was within rifle range of the podium where the former president spoke.`\
 https://nytimes.com/2024/07/16/us/politics/trump-shooting-butler-pennsylvania-police.html
-
-**Caitlin Clark to be painted on NASCAR hood during Brickyard 400**\
-`Panini America and Stewart-Haas Racing partnered up for a sponsorship and paint scheme featuring Clark.`\
-https://nytimes.com/athletic/5641720/2024/07/16/caitlin-clark-nascar-panini-brickyard-400/
 
