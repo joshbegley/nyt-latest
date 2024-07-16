@@ -1,3 +1,11 @@
+**Trump to Rally for First Time Since Assassination Attempt With Vance**\
+`The rally is set for Saturday in Michigan, and will be his first such appearance alongside Senator J.D. Vance of Ohio, whom he selected as his running mate on Monday.`\
+https://nytimes.com/2024/07/16/us/politics/trump-rally-jd-vance-michigan.html
+
+**California Becomes the First State to Ban Student Gender Notification Policies**\
+`Gov. Gavin Newsom signed a bill that prevents educators from having to notify parents if their child asks to switch names or pronouns.`\
+https://nytimes.com/2024/07/16/us/gender-identity-bill-california.html
+
 **U.S. Accuses Former C.I.A. Analyst of Working for South Korea**\
 `Sue Mi Terry, a North Korea expert with the Council on Foreign Relations, was charged with acting as an agent for Seoul after leaving the intelligence agency.`\
 https://nytimes.com/2024/07/16/nyregion/sue-mi-terry-cia-south-korea.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/16/technology/elon-musk-x-spacex-headquarters-texas.
 **Chinese Billionaire and Bannon Ally Is Convicted of Fraud**\
 `A federal jury found that Guo Wengui defrauded investors, many his own fervent supporters, of hundreds of millions of dollars. He could face decades in prison.`\
 https://nytimes.com/2024/07/16/nyregion/guo-wengui-fraud-trial-verdict-china.html
-
-**Spanish FA president Rocha suspended for two years for abuse of authority**\
-`Spanish Football Association (RFEF) president Pedro Rocha has been suspended for two years for a &#8220;very serious infringement&#8221; of his authority.`\
-https://nytimes.com/athletic/5641125/2024/07/16/pedro-rocha-spain-suspended/
-
-**Menendez ‘Deeply Disappointed’ With Guilty Verdict**\
-`Senator Bob Menendez, Democrat of New Jersey, was convicted on all counts for bribery, fraud and extortion charges for an alleged scheme to sell his office to foreign powers and businessmen in exchange for money, a luxury car and solid gold bars.`\
-https://nytimes.com/video/us/politics/100000009575222/bob-menendez-convicted.html
 

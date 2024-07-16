@@ -1,3 +1,11 @@
+**Trump to Rally for First Time Since Assassination Attempt With Vance**\
+`The rally is set for Saturday in Michigan, and will be his first such appearance alongside Senator J.D. Vance of Ohio, whom he selected as his running mate on Monday.`\
+https://nytimes.com/2024/07/16/us/politics/trump-rally-jd-vance-michigan.html
+
+**California Becomes the First State to Ban Student Gender Notification Policies**\
+`Gov. Gavin Newsom signed a bill that prevents educators from having to notify parents if their child asks to switch names or pronouns.`\
+https://nytimes.com/2024/07/16/us/gender-identity-bill-california.html
+
 **U.S. Accuses Former C.I.A. Analyst of Working for South Korea**\
 `Sue Mi Terry, a North Korea expert with the Council on Foreign Relations, was charged with acting as an agent for Seoul after leaving the intelligence agency.`\
 https://nytimes.com/2024/07/16/nyregion/sue-mi-terry-cia-south-korea.html
