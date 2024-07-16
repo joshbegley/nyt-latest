@@ -1,3 +1,7 @@
+**Appraising J.D. Vance as Trump’s Running Mate**\
+`Readers discuss his credentials, his devotion to the ex-president and how the choice might affect the race.`\
+https://nytimes.com/2024/07/16/opinion/letters/jd-vance-donald-trump.html
+
 **Why did Jaime Jaquez Jr. play in summer league for the Heat?**\
 `Amid a fairly quiet offseason for Miami, the 23-year-old's summer showing was a much-needed boost of optimism.`\
 https://nytimes.com/athletic/5640648/2024/07/16/jaime-jaquez-highlights-heat-summer-league-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/16/arts/television/trump-rnc-milwaukee.html
 **Jacob Trouba and Kaapo Kakko trades, Ryan Lindgren contract and more Rangers thoughts**\
 `Eight thoughts on the Rangers' moves over the last few weeks, what’s still to come this summer and where the pieces may fit next season.`\
 https://nytimes.com/athletic/5639607/2024/07/16/rangers-jacob-trouba-kaapo-kakko-trade/
-
-**Are Artificial Sweeteners Safer Than Sugar?**\
-`Health concerns have been mounting for decades. Here’s what the research suggests.`\
-https://nytimes.com/2024/07/16/well/eat/artificial-sweeteners-sugar-free.html
 

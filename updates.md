@@ -1,3 +1,7 @@
+**Appraising J.D. Vance as Trump’s Running Mate**\
+`Readers discuss his credentials, his devotion to the ex-president and how the choice might affect the race.`\
+https://nytimes.com/2024/07/16/opinion/letters/jd-vance-donald-trump.html
+
 **Why did Jaime Jaquez Jr. play in summer league for the Heat?**\
 `Amid a fairly quiet offseason for Miami, the 23-year-old's summer showing was a much-needed boost of optimism.`\
 https://nytimes.com/athletic/5640648/2024/07/16/jaime-jaquez-highlights-heat-summer-league-nba/
