@@ -1,3 +1,11 @@
+**Millions Under Tornado Warnings as Storms Batter Midwest**\
+`More than 13 million people were under tornado warning or watch alerts on Monday night in Chicago, and parts of Illinois, Indiana and Wisconsin.`\
+https://nytimes.com/2024/07/15/us/tornado-chicago-illinois-storms.html
+
+**“When Donald Trump was president, I helped him spread economic prosperity with the largest tax cut in American history.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/15/us/rnc-fact-check/when-donald-trump-was-president-i-helped-him-spread-economic-prosperity-with-the-largest-tax-cut-in-american-history
+
 **Millions Under Tornado Warnings As Storms Batter Midwest**\
 `More than 13 million people were under tornado warning or watch alerts on Monday night in Chicago, and parts of Illinois, Indiana and Wisconsin.`\
 https://nytimes.com/2024/07/15/us/tornado-chicago-illinois-storms.html
