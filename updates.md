@@ -1,3 +1,7 @@
+**Ohio Republicans on J.D. Vance: ‘He’s Our Barack Obama’**\
+`But will he stir any voters beyond Trump’s MAGA base?`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/vance-ohio-republican-convention
+
 **Kings sign Quinton Byfield to 5-year extension worth $31.25 million**\
 `Byfield took a major leap in registering career highs in games played (80), goals (20), assists (35) and points (55).`\
 https://nytimes.com/athletic/5640219/2024/07/15/kings-extend-quinton-byfield/
