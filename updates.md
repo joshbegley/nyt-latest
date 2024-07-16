@@ -1,3 +1,7 @@
+**Naomi Pomeroy, 49, Chef Who Made Portland a Dining Destination, Dies**\
+`Her refined palate and pursuit of excellence made her the city’s culinary matriarch, attracting diners and talent alike to Oregon. She died in a tubing accident.`\
+https://nytimes.com/2024/07/16/dining/naomi-pomeroy-dead.html
+
 **Biden Considers Pushing for Major Changes to the Supreme Court**\
 `The proposals include term limits for the justices and an enforceable code of ethics. But they would need congressional approval, which is a long shot.`\
 https://nytimes.com/2024/07/16/us/politics/biden-supreme-court-overhaul.html
