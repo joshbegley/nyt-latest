@@ -1,3 +1,11 @@
+**Spanish FA president Rocha suspended for two years for abuse of authority**\
+`Spanish Football Association (RFEF) president Pedro Rocha has been suspended for two years for a &#8220;very serious infringement&#8221; of his authority.`\
+https://nytimes.com/athletic/5641125/2024/07/16/pedro-rocha-spain-suspended/
+
+**Menendez ‘Deeply Disappointed’ With Guilty Verdict**\
+`Senator Bob Menendez, Democrat of New Jersey, was convicted on all counts for bribery, fraud and extortion charges for an alleged scheme to sell his office to foreign powers and businessmen in exchange for money, a luxury car and solid gold bars.`\
+https://nytimes.com/video/us/politics/100000009575222/bob-menendez-convicted.html
+
 **Man Fatally Shot by Visiting Police Officers Near R.N.C., Official Says**\
 `The officers were part of a contingent of 4,500 law enforcement officials who came to Milwaukee to assist local police with the convention.`\
 https://nytimes.com/2024/07/16/us/milwaukee-shooting-republican-national-convention.html
@@ -30,12 +38,4 @@ https://nytimes.com/2024/07/16/us/politics/rnc-milwaukee-photos.html
 **Crisis Hotline Has Answered 10 Million Calls, Texts and Chats**\
 `Mental health experts have said that the 988 hotline for mental health emergencies is still a work in progress, in need of more funding, coordination and awareness.`\
 https://nytimes.com/2024/07/16/us/politics/988-suicide-crisis-hotline.html
-
-**Could MLB participate in the 2028 Olympics?**\
-`An altered season calendar would be needed to accomodate the 2028 summer games in Los Angeles, though what form that would take is unclear.`\
-https://nytimes.com/athletic/5641866/2024/07/16/mlb-summer-olympics-2028/
-
-**Videos Show Secret Service Snipers Were Focused Toward Gunman at Trump Rally**\
-`Three videos posted to social media show that sniper teams were facing in the direction of the shooter before he fired at former President Donald J. Trump.`\
-https://nytimes.com/2024/07/16/us/trump-shooting-secret-service-snipers.html
 

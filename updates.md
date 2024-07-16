@@ -1,3 +1,16 @@
+**Spanish FA president Rocha suspended for two years for abuse of authority**\
+`Spanish Football Association (RFEF) president Pedro Rocha has been suspended for two years for a &#8220;very serious infringement&#8221; of his authority.`\
+https://nytimes.com/athletic/5641125/2024/07/16/pedro-rocha-spain-suspended/
+
+**Menendez ‘Deeply Disappointed’ With Guilty Verdict**\
+`Senator Bob Menendez, Democrat of New Jersey, was convicted on all counts for bribery, fraud and extortion charges for an alleged scheme to sell his office to foreign powers and businessmen in exchange for money, a luxury car and solid gold bars.`\
+https://nytimes.com/video/us/politics/100000009575222/bob-menendez-convicted.html
+
+**Canucks sign Artūrs Šilovs to 2-year contract**\
+`The 23-year-old remains the crown jewel of the club's goalie development pipeline.
+`\
+https://nytimes.com/athletic/5641919/2024/07/16/canucks-arturs-silovs-contract/
+
 **Canucks sign Artūrs Šilovs to 2-year contract**\
 `The 23-year-old remains the crown jewel of the club's goalie development pipeline.
 `\
