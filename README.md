@@ -1,9 +1,17 @@
+**A Poet Goes to War**\
+`“Revolution is the job of poets and artists,” says Ko Maung Saungkha, leader of a rebel militia fighting the Myanmar dictatorship. He is not the only poet commander in a country with a strong tradition of political verse.`\
+https://nytimes.com/2024/07/16/world/asia/myanmar-poet-ko-maung-saungkha.html
+
+**10 Years After Eric Garner’s Death, an Opera Honors His Legacy**\
+`“The Ritual of Breath Is the Rite to Resist,” part of Lincoln Center’s summer festival, aims to shine light on police violence in the United States.`\
+https://nytimes.com/2024/07/16/arts/music/eric-garner-opera-lincoln-center.html
+
 **Evan Wright, Award-Winning Reporter and Author of ‘Generation Kill,’ Dies at 59**\
 `Mr. Wright was known for his immersive journalism that focused on subjects outside mainstream media coverage to explore the nooks and crannies of American life.`\
 https://nytimes.com/2024/07/16/us/evan-wright-generation-kill-dead.html
 
 **In Leaked Phone Call, Trump Tries to Coax Kennedy Into His Camp**\
-`Robert F. Kennedy Jr. apologized for a leaked video of the phone call, in which Donald Trump says an endorsement of him “would be so good for you and so big for you” and offered up anti-vaccine messaging.`\
+`Robert F. Kennedy Jr. apologized for a leaked video of the phone call, in which Donald Trump offers anti-vaccine messaging and says the wound to his ear “felt like the world’s largest mosquito.”`\
 https://nytimes.com/2024/07/16/us/politics/rfk-trump-call.html
 
 **FPL managers able to bank up to five transfers in changes to game for 2024-25**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/16/learning/grass-lawns-lavish-and-lamentable.html
 **‘As a Muslim, Those Words Pierce My Soul’: The Week 4 Winner of Our Summer Reading Contest**\
 `Jawaher Korichi writes about how the two sides of her family — one wealthy and one not — experience the Hajj differently.`\
 https://nytimes.com/2024/07/16/learning/as-a-muslim-those-words-pierce-my-soul-the-week-4-winner-of-our-summer-reading-contest.html
-
-**Local Police Were Inside Building Used by Gunman, Secret Service Director Says**\
-`“There was local police in the area that were responsible for the outer perimeter of the building,” Kimberly A. Cheatle, the director of the Secret Service said.`\
-https://nytimes.com/2024/07/16/us/local-police-were-inside-building-used-by-gunman-secret-service-director-says.html
-
-**Chiefs' Reid addresses retirement, 3-peat talk, Kelce-Swift**\
-`Reid thinks there is no one better able to handle the fame of dating a megastar like Swift than his star tight end.`\
-https://nytimes.com/athletic/5640293/2024/07/16/andy-reid-retirement-travis-kelce-taylor-swift/
 
