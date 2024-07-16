@@ -1,3 +1,11 @@
+**The Secret of Trump’s Resurrection**\
+`As long as Democrats see nothing of him but his lies and outrages, they’ll miss what makes him strong.`\
+https://nytimes.com/2024/07/16/opinion/trump-election-biden.html
+
+**What to Know About ‘Hillbilly Elegy,’ Based on the J.D. Vance Memoir**\
+`The 2020 film generally follows the book about the Republican vice presidential nominee’s formative years. But there are significant differences.`\
+https://nytimes.com/2024/07/16/movies/hillbilly-elegy-jd-vance.html
+
 **How the Trump Prosecutions Could End Up Weakening Prosecutors**\
 `The effort to hold Donald Trump to account has already yielded a Supreme Court decision giving former presidents broad immunity. Now another case could make prosecuting political figures more complicated.`\
 https://nytimes.com/2024/07/16/us/politics/trump-prosecutions.html
