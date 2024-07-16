@@ -1,3 +1,11 @@
+**After a National Anthem Flub, Singer Says She’s Going to Rehab**\
+`Ingrid Andress, a country star, blamed drinking for her performance of “The Star-Spangled Banner” during Major League Baseball’s All-Star Game festivities.`\
+https://nytimes.com/2024/07/16/style/ingrid-andress-national-anthem-rehab.html
+
+**Carlos Watson, Ozy Media Founder, Is Found Guilty of Fraud**\
+`Mr. Watson, who denied lying to investors and lenders, faces up to 37 years in prison.`\
+https://nytimes.com/2024/07/16/business/media/carlos-watson-ozy-media-guilty.html
+
 **Larry Light, Marketer Behind Revival of McDonald’s, Dies at 83**\
 `A branding expert, he deployed the “I’m lovin’ it” campaign globally in 2003 to bring customers and sales back to the fast-food giant when it was in a slump.`\
 https://nytimes.com/2024/07/16/business/media/larry-light-dead.html
