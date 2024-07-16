@@ -1,3 +1,19 @@
+**Taiwan’s Blunt-Talking Leader Faces China’s Backlash**\
+`China is putting more military and political pressure on Taiwan and its new president, whose rhetoric has been sharper than his predecessor’s.`\
+https://nytimes.com/2024/07/16/world/asia/taiwan-china-lai-ching-te.html
+
+**Inside Spain's celebrations: Morata's star turn, little sleep and De la Fuente's singalong**\
+`Spain celebrated their European Championship success with a party that lasted into the early hours`\
+https://nytimes.com/athletic/5640357/2024/07/16/spain-euro-2024-celebrations/
+
+**Quotation of the Day: For the G.O.P., Free-Market Economics Is History**\
+`Quotation of the Day for Tuesday, July 16, 2024.`\
+https://nytimes.com/2024/07/16/pageoneplus/quotation-of-the-day-for-the-gop-free-market-economics-is-history.html
+
+**Corrections: July 16, 2024**\
+`Corrections that appeared in print on Tuesday, July 16, 2024.`\
+https://nytimes.com/2024/07/16/pageoneplus/corrections-july-16-2024.html
+
 **A Bandaged Trump Shows a Glimpse of Vulnerability**\
 `Donald J. Trump was unusually emotional in his first public appearance since the attempt on his life.`\
 https://nytimes.com/2024/07/16/us/politics/trump-first-night-rnc.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5639334/2024/07/16/west-ham-lopetegui-ferencvaros-k
 **'Relegation hurt - I'm glad I've left with Southampton back in the Premier League'**\
 `The left-back has swapped Southampton for a new start in Seville with Real Betis - he has fond memories of Hasenhuttl and more in England`\
 https://nytimes.com/athletic/5625885/2024/07/16/romain-perraud-southampton-real-betis/
-
-**Dunk, Euro 2024 finalist - and what comes next for Brighton's captain**\
-`Centre-back did not feature for England at the Euros but he still considers it one of the best experiences of his career`\
-https://nytimes.com/athletic/5631235/2024/07/16/lewis-dunk-euros-england-brighton/
-
-**Tuesday Briefing**\
-`Donald Trump’s running mate.`\
-https://nytimes.com/2024/07/16/briefing/vance-trump-biden-israel.html
-
-**Driving runs, attack-minded play and timely goals: What Leeds can expect from Joe Rothwell**\
-`The experienced midfielder has lots to offer Daniel Farke's side and if he is used wisely will be a useful asset in the hunt for promotion`\
-https://nytimes.com/athletic/5638518/2024/07/16/what-leeds-can-expect-joe-rothwell/
-
-**Convention lineup showcases future of G.O.P.**\
-`By Adam Nagourney`\
-https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/convention-lineup-showcases-future-of-gop
 
