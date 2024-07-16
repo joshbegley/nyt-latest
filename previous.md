@@ -1,3 +1,7 @@
+**Celebrating Film Nostalgia With Ooze and Ahhs at Blobfest**\
+`A festival that celebrates the 1958 film “The Blob” held its 25th annual gathering in Phoenixville, Pa., where much of the movie was shot.`\
+https://nytimes.com/2024/07/16/movies/blobfest-2024-sci-fi-horror-movie.html
+
 **Here Is Where It’s Going to Be Hottest on Tuesday**\
 `Dangerous heat is expected from Texas to New Jersey through Wednesday before milder air starts to sweep across the region.`\
 https://nytimes.com/2024/07/16/weather/heat-forecast.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/16/us/houston-exodus-climate-hurricane-beryl.html
 **What Polls Tell Us About the State of the 2024 Race**\
 `Why Republicans are jubilant and Democrats are despondent.`\
 https://nytimes.com/2024/07/16/opinion/trump-biden-vance.html
-
-**The Poets Have Taken Governors Island**\
-`Thousands of poetry fans and practitioners took the ferry out over the weekend to absorb one another’s work at the annual New York City Poetry Festival.`\
-https://nytimes.com/2024/07/16/style/nyc-poetry-festival-governors-island.html
 

@@ -1,3 +1,7 @@
+**Celebrating Film Nostalgia With Ooze and Ahhs at Blobfest**\
+`A festival that celebrates the 1958 film “The Blob” held its 25th annual gathering in Phoenixville, Pa., where much of the movie was shot.`\
+https://nytimes.com/2024/07/16/movies/blobfest-2024-sci-fi-horror-movie.html
+
 **Here Is Where It’s Going to Be Hottest on Tuesday**\
 `Dangerous heat is expected from Texas to New Jersey through Wednesday before milder air starts to sweep across the region.`\
 https://nytimes.com/2024/07/16/weather/heat-forecast.html
