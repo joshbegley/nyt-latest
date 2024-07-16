@@ -1,3 +1,7 @@
+**Jaylen Brown talks Team USA snub, says Nike involved**\
+`“I do for sure," Brown said Tuesday when asked if he believed Nike influenced the decision.`\
+https://nytimes.com/athletic/5640340/2024/07/16/jaylen-brown-team-usa-nike/
+
 **A Bandaged Trump Shows a Glimpse of Vulnerability**\
 `Donald J. Trump was unusually emotional in his first public appearance since the attempt on his life.`\
 https://nytimes.com/2024/07/16/us/politics/trump-first-night-rnc.html

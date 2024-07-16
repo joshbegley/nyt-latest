@@ -7,7 +7,7 @@ https://nytimes.com/2024/07/16/us/politics/trump-first-night-rnc.html
 https://nytimes.com/2024/07/16/us/politics/trump-vance-rnc-takeaways.html
 
 **Jaylen Brown talks Team USA snub, says Nike involved**\
-`“I do for sure," Brown said Tuesday when asked if he believed the Nike influenced the decision.`\
+`“I do for sure," Brown said Tuesday when asked if he believed Nike influenced the decision.`\
 https://nytimes.com/athletic/5640340/2024/07/16/jaylen-brown-team-usa-nike/
 
 **Crystal Palace will savour their stars shining at major tournaments**\
