@@ -1,3 +1,11 @@
+**How Outlets on the Right and Left Covered Trump’s Pick of J.D. Vance**\
+`Conservative commentators applauded former President Donald J. Trump’s vice-presidential pick. Liberal outlets focused on J.D. Vance’s past criticisms of his new running mate.`\
+https://nytimes.com/2024/07/16/business/media/jd-vance-media-coverage-left-right.html
+
+**Scoop City: NFC West Preview**\
+`A look at the NFC West: biggest questions, fantasy football sleepers and more.`\
+https://nytimes.com/athletic/5641311/2024/07/16/nfc-west-preview-scoop-city/
+
 **‘Imminent’ Risk of Dam Failure Prompts Evacuation in Illinois**\
 `Residents in Nashville, Ill., were told to evacuate their homes on Tuesday amid heavy rain and the risk of a dam failure.`\
 https://nytimes.com/2024/07/16/us/nashville-illinois-dam-failure.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5640862/2024/07/16/reds-triple-a-manager-pat-kelly-
 **Full Time: Bon voyage, USWNT!**\
 `Welcome to Full Time, The Athletic’s weekly women’s soccer newsletter`\
 https://nytimes.com/athletic/5641183/2024/07/16/us-womens-national-team-olympics-emma-hayes-full-time/
-
-**In the Age of A.I., How Much Is Silicon Valley Prepared to Give Back?**\
-`The tech community, led by Sam Altman of OpenAI, has funded programs that give people unconditional cash. Some say it’s time to scale up.`\
-https://nytimes.com/2024/07/16/technology/universal-income-openai-silicon-valley.html
-
-**How Would Ohio Replace Vance in the Senate if Trump Wins in November?**\
-`State law instructs the governor to appoint a replacement until a special election can be held. Several Republican names are already circulating as potential prospects.`\
-https://nytimes.com/2024/07/16/us/politics/how-would-ohio-replace-vance-in-the-senate-if-trump-wins-in-november.html
 

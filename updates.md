@@ -1,3 +1,11 @@
+**How Outlets on the Right and Left Covered Trump’s Pick of J.D. Vance**\
+`Conservative commentators applauded former President Donald J. Trump’s vice-presidential pick. Liberal outlets focused on J.D. Vance’s past criticisms of his new running mate.`\
+https://nytimes.com/2024/07/16/business/media/jd-vance-media-coverage-left-right.html
+
+**Scoop City: NFC West Preview**\
+`A look at the NFC West: biggest questions, fantasy football sleepers and more.`\
+https://nytimes.com/athletic/5641311/2024/07/16/nfc-west-preview-scoop-city/
+
 **‘Imminent’ Risk of Dam Failure Prompts Evacuation in Illinois**\
 `Residents in Nashville, Ill., were told to evacuate their homes on Tuesday amid heavy rain and the risk of a dam failure.`\
 https://nytimes.com/2024/07/16/us/nashville-illinois-dam-failure.html
