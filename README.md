@@ -1,3 +1,11 @@
+**“President Trump will make those tax cuts permanent. But if Joe and Kamala are re-elected, they say they are going to let them expire. That will be the biggest tax increase in American history.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/07/15/us/rnc-fact-check/president-trump-will-make-those-tax-cuts-permanent-but-if-joe-and-kamala-are-re-elected-they-say-they-are-going-to-let-them-expi
+
+**Fact-Checking Day 1 of the Republican National Convention**\
+`A team of New York Times reporters followed the developments and fact-checked the speakers, providing context and explanation.`\
+https://nytimes.com/live/2024/07/15/us/rnc-fact-check
+
 **Millions Under Tornado Warnings as Storms Batter Midwest**\
 `More than 13 million people were under tornado warning or watch alerts on Monday night in Chicago, and parts of Illinois, Indiana and Wisconsin.`\
 https://nytimes.com/2024/07/15/us/tornado-chicago-illinois-storms.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/15/us/rnc-fact-check/when-donald-trump-was-pres
 **Ohio Republicans on J.D. Vance: ‘He’s Our Barack Obama’**\
 `But will he stir any voters beyond Trump’s MAGA base?`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/vance-ohio-republican-convention
-
-**Kings sign Quinton Byfield to 5-year extension worth $31.25 million**\
-`Byfield took a major leap in registering career highs in games played (80), goals (20), assists (35) and points (55).`\
-https://nytimes.com/athletic/5640219/2024/07/15/kings-extend-quinton-byfield/
-
-**Milwaukee Is a Beach Town? See How Well You Know the Republicans' Host City.**\
-`The Republican National Convention is heading to Milwaukee, the largest city in the key swing state of Wisconsin.`\
-https://nytimes.com/interactive/2024/07/15/us/milwaukee-republican-convention-quiz.html
 
