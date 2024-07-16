@@ -1,3 +1,11 @@
+**Millions Under Tornado Warnings As Storms Batter Midwest**\
+`More than 13 million people were under tornado warning or watch alerts on Monday night in Chicago, and parts of Illinois, Indiana and Wisconsin.`\
+https://nytimes.com/2024/07/15/us/tornado-chicago-illinois-storms.html
+
+**Finger-Pointing Follows Mayhem at Copa América Final in Miami**\
+`Chaos at the stadium raised questions about crowd control and security just two years before the U.S. is set to co-host the World Cup in 11 cities.`\
+https://nytimes.com/2024/07/15/us/copa-america-final-miami-world-cup.html
+
 **In J.D. Vance, Donald Trump Selects an Inheritor**\
 `Mr. Trump’s decision to pick Mr. Vance as his running mate signals his concern for the future of his MAGA movement.`\
 https://nytimes.com/2024/07/15/us/politics/trump-vance-running-mate.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5640219/2024/07/15/kings-extend-quinton-byfield/
 **Milwaukee Is a Beach Town? See How Well You Know the Republicans' Host City.**\
 `The Republican National Convention is heading to Milwaukee, the largest city in the key swing state of Wisconsin.`\
 https://nytimes.com/interactive/2024/07/15/us/milwaukee-republican-convention-quiz.html
-
-**For Biden, How to Cool the Temperature Without Freezing His Campaign**\
-`Former President Donald J. Trump has gone from being an instigator of political violence to a victim of it. The assassination attempt raised questions about how far language should go in a heated campaign.`\
-https://nytimes.com/2024/07/15/us/politics/biden-campaign-challenge.html
-
-**“South Dakota was the only state in the country that stayed open for business. We didn’t mandate anything.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/south-dakota-was-the-only-state-in-the-country-that-stayed-open-for-business-we-didnt-mandate-anything
 
