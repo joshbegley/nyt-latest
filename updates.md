@@ -1,3 +1,7 @@
+**Southgate leaves role as England manager**\
+`Gareth Southgate has stepped down from his role as manager of the England men&#8217;s side.`\
+https://nytimes.com/athletic/5637301/2024/07/16/gareth-southgate-england-manager-leaves/
+
 **Who could replace Gareth Southgate as England manager?**\
 `Gareth Southgate is to leave his role as England manager - these are the candidates to succeed him`\
 https://nytimes.com/athletic/5619843/2024/07/16/england-next-manager/
