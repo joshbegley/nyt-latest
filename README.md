@@ -1,3 +1,23 @@
+**Our Reporter on the G.O.P.’s Hard-Line Immigration Stance**\
+`Republicans have adopted a platform that is in line with former President Donald Trump’s hard-line approach and rhetoric on the issue of immigration.`\
+https://nytimes.com/video/us/politics/100000009574831/our-reporter-on-the-gops-hard-line-immigration-stance.html
+
+**Rupert Murdoch Shows Up at Republican Convention**\
+`The media titan’s attendance in Milwaukee was another extraordinary turn in his contorted relationship with Donald J. Trump.`\
+https://nytimes.com/2024/07/16/business/media/rupert-murdoch-shows-up-at-republican-convention.html
+
+**“And while pockets are pinched, Biden is trying to force you to buy an electric vehicle.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/and-while-pockets-are-pinched-biden-is-trying-to-force-you-to-buy-an-electric-vehicle
+
+**“Just last week, Ruben Gallego voted to let the millions of people who poured into our country illegally cast a ballot in this upcoming election.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/just-last-week-ruben-gallego-voted-to-let-the-millions-of-people-who-poured-into-our-country-illegally-cast-a-ballot-in-this-upc
+
+**Former White House Doctor Describes Tending to Trump’s Wounded Ear**\
+`Ronny Jackson, former President Donald J. Trump’s White House doctor and now a congressman from Texas, replaced the dressing on Mr. Trump’s ear on a flight to Milwaukee on Sunday.`\
+https://nytimes.com/2024/07/16/us/politics/trump-shooting-ear-ronny-jackson-doctor.html
+
 **“The solutions, guys, they’re really simple. First of all, stop the Biden-vasion and build the wall.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/the-solutions-guys-theyre-really-simple-first-of-all-stop-the-biden-vasion-and-build-the-wall
@@ -17,24 +37,4 @@ https://nytimes.com/2024/07/16/opinion/trump-rnc-chris-christie.html
 **The Secret of Trump’s Resurrection**\
 `As long as Democrats see nothing of him but his lies and outrages, they’ll miss what makes him strong.`\
 https://nytimes.com/2024/07/16/opinion/trump-election-biden.html
-
-**What to Know About ‘Hillbilly Elegy,’ Based on the J.D. Vance Memoir**\
-`The 2020 film generally follows the book about the Republican vice presidential nominee’s formative years. But there are significant differences.`\
-https://nytimes.com/2024/07/16/movies/hillbilly-elegy-jd-vance.html
-
-**How the Trump Prosecutions Could End Up Weakening Prosecutors**\
-`The effort to hold Donald Trump to account has already yielded a Supreme Court decision giving former presidents broad immunity. Now another case could make prosecuting political figures more complicated.`\
-https://nytimes.com/2024/07/16/us/politics/trump-prosecutions.html
-
-**Naomi Pomeroy, 49, Chef Who Made Portland a Dining Destination, Dies**\
-`Her refined palate and pursuit of excellence made her the city’s culinary matriarch, attracting diners and talent alike to Oregon. She died in a tubing accident.`\
-https://nytimes.com/2024/07/16/dining/naomi-pomeroy-dead.html
-
-**Biden Considers Pushing for Major Changes to the Supreme Court**\
-`The proposals include term limits for the justices and an enforceable code of ethics. But they would need congressional approval, which is a long shot.`\
-https://nytimes.com/2024/07/16/us/politics/biden-supreme-court-overhaul.html
-
-**For Milwaukee, the R.N.C. Is an Unloved Houseguest**\
-`Outside the arena, an uneasy relationship between the city and the convention has intensified.`\
-https://nytimes.com/2024/07/16/us/politics/rnc-milwaukee-trump-immigration.html
 
