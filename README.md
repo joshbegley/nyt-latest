@@ -1,3 +1,15 @@
+**Here’s the latest on the investigation.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/07/16/us/trump-shooting-investigation/heres-the-latest-on-the-investigation
+
+**Trump Shooting Live Updates: Investigators Focus on Security Lapses and Gunman’s Motive**\
+`The Secret Service faces growing scrutiny over its failure to stop the would-be assassin, despite crowd warnings about a suspicious person outside the Trump rally venue.`\
+https://nytimes.com/live/2024/07/16/us/trump-shooting-investigation
+
+**Mbappe at Real Madrid unveiling: 'Today, my dream comes true'**\
+`Kylian Mbappe says he dreamed of playing for Real Madrid after being unveiled at the Santiago Bernabeu on Tuesday.`\
+https://nytimes.com/athletic/5640692/2024/07/16/mbappe-real-madrid-unveiling/
+
 **What Trump Sees in J.D. Vance, His New Apprentice**\
 `The former president was probably thinking of 2028 and beyond — and where he wants the G.O.P. to go.`\
 https://nytimes.com/2024/07/16/opinion/jd-vance-trump-apprentice.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/vance-is-well-
 **The Stylists Who Dressed Two Ambanis for the Eyes of the World**\
 `Radhika Merchant and Anant Ambani weren’t the only ones in the spotlight at the opulent wedding last weekend. The groom’s sister and sister-in-law worked with stylists of their own.`\
 https://nytimes.com/2024/07/16/style/anant-ambani-wedding-india-stylist.html
-
-**Euro 2024 team of the tournament: Yamal, Williams and Walker included**\
-`UEFA has confirmed its team of the tournament for Euro 2024, with six Spain internationals and England&#8217;s Kyle Walker included.`\
-https://nytimes.com/athletic/5640686/2024/07/16/euro-2024-team-of-the-tournament/
-
-**How J.D. Vance Seeks to Reorient the Republican’s Approach to Business**\
-`Donald Trump’s running mate is pro-labor, a fan of crypto and the F.T.C.’s Lina Khan, and says Big Tech is too powerful.`\
-https://nytimes.com/2024/07/16/business/dealbook/trump-vance-republicans-business.html
-
-**Leicester sign Fatawu after triggering buy option**\
-`Leicester City have completed the permanent signing of winger Abdul Fatawu from Sporting Lisbon.`\
-https://nytimes.com/athletic/5617984/2024/07/16/abdul-fatawu-leicester-transfer-news/
 
