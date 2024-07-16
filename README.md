@@ -1,3 +1,7 @@
+**“They hired 85,000 new I.R.S. agents to harass hard-working Americans.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/they-hired-85000-new-irs-agents-to-harass-hard-working-americans
+
 **King Topper**\
 `Kelly Richardson makes her New York Times Crossword debut.`\
 https://nytimes.com/2024/07/15/crosswords/daily-puzzle-2024-07-16.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/after-a-rocky-state-
 **“Women, Black Americans, Hispanic Americans, Asian Americans all saw a record-low employment.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/women-black-americans-hispanic-americans-asian-americans-all-saw-a-record-low-employment
-
-**The Dismissal of the Trump Classified Documents Case Is Deeply Dangerous**\
-`Eight federal judges have rejected the claim that Judge Eileen Cannon has now endorsed that no law authorizes the appointment of a special counsel.`\
-https://nytimes.com/2024/07/15/opinion/trump-court-classified-documents.html
 
