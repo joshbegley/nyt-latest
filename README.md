@@ -1,40 +1,40 @@
-**‘Bright Objects’ Brings Together a Cult, a Comet and a Widow Out for Justice**\
-`Set among the fevered residents of a remote Australian town, Ruby Todd’s debut novel considers how grief can draw people to extreme beliefs.`\
-https://nytimes.com/2024/07/16/books/review/bright-objects-ruby-todd.html
+**A Brutal Gang, a Dead Baby and a Struggling Immigrant L.A.**\
+`Jesse Katz’s true-crime narrative, “The Rent Collectors,” delivers a nuanced portrait of a community racked by poverty and violence and deprived of opportunities to get ahead.`\
+https://nytimes.com/2024/07/16/books/review/the-rent-collectors-jesse-katz.html
 
-**The Kimchi Masters of South Korea Can Teach You a Thing or Two**\
-`A former pop-singer, a YouTuber and a pioneering C.E.O. are among the select five given a special government designation. And they’re sharing advice for home cooks.`\
-https://nytimes.com/2024/07/16/dining/south-korea-kimchi-masters.html
+**With a Killer Onstage and a Body Part in the Back, the Show Went On**\
+`The creators of “Inspired by True Events” wanted their new immersive theater piece to convey ominousness, not a haunted-house riff on “Noises Off.”`\
+https://nytimes.com/2024/07/16/theater/inspired-by-true-events-true-crime-play.html
 
-**If Your Electric Meter Is So Smart, Why Is the Power Grid So Dumb?**\
-`The data they generate must be standardized and widely available to be useful. Right now, it mostly isn’t.`\
-https://nytimes.com/2024/07/16/opinion/electric-bills-consumers.html
+**Word of the Day: adieu**\
+`This word has appeared in 39 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/07/16/learning/word-of-the-day-adieu.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/07/16/crosswords/spelling-bee-forum.html
+**The Ohio Steel Town That Shaped J.D. Vance’s Life and Politics**\
+`His memoir, “Hillbilly Elegy,” told the down-at-the-heels story of Middletown, Ohio. It’s a depiction that has stuck.`\
+https://nytimes.com/2024/07/16/us/jd-vance-middletown-ohio.html
 
-**A Somber Late Night After the Attack on Trump**\
-`Stephen Colbert and Seth Meyers offered sober reflections about democracy. So did Anthony Anderson, though he found some humor in the reaction to the shooting.`\
-https://nytimes.com/2024/07/16/arts/television/late-night-trump.html
+**A Missy Elliott Song Travels to Venus at the Speed of Light**\
+`NASA sent the song “The Rain (Supa Dupa Fly)” from a radio dish in California last week. It took 14 minutes to travel the 158 million miles.`\
+https://nytimes.com/2024/07/16/arts/nasa-song-space.html
 
-**The Red Bull RB17: How iconic F1 architect Adrian Newey built his 'utopia' car**\
-`Hypercars exist at the upper limit of automotive performance, a level the RB17 sought to reach by harnessing F1 technology.`\
-https://nytimes.com/athletic/5639137/2024/07/16/rb17-car-red-bull-f1-adrian-newey/
+**What Are ‘Macros’ and Should You Track Them?**\
+`We asked nutrition experts if the purported health benefits of tracking macronutrients match up with the science.`\
+https://nytimes.com/2024/07/16/well/eat/macros-tracking-health-benefits.html
 
-**Introducing ‘Scoop City,’ a new NFL podcast with Dianna Russini and Chase Daniel**\
-`The show debuts Tuesday, with Chiefs coach Andy Reid as the first guest`\
-https://nytimes.com/athletic/5638721/2024/07/16/scoop-city-new-nfl-podcast-dianna-russini-chase-daniel/
+**When Gangland Was Jewish**\
+`Two exuberant new books chronicle the heyday of New York City’s criminal underworld on the Lower East Side.`\
+https://nytimes.com/2024/07/16/books/review/the-talented-mrs-mandelbaum-margalit-fox-incorruptibles-dan-slater.html
 
-**It May Feel Like 100 Degrees in New York on Tuesday**\
-`The hot spell will continue until Thursday, officials predict, and the city and surrounding areas were placed under a heat advisory.`\
-https://nytimes.com/2024/07/16/nyregion/heat-wave-nyc-forecast.html
+**Keys to the Pool, Not the Room**\
+`Hotels are increasingly making some of their most enviable amenities available to day pass holders.`\
+https://nytimes.com/2024/07/16/travel/keys-to-the-pool-not-the-room.html
 
-**At Paint Rock, Centuries of Native American Artistry**\
-`Glyphs and pictographs at a site in Texas represent generations of settlement by Indigenous peoples.`\
-https://nytimes.com/2024/07/16/science/paint-rock-texas-native-american.html
+**I Love This T-Shirt. Now, Would You Please Cut It?**\
+`The return of the crop top means that some events are offering stations to help you create your own.`\
+https://nytimes.com/2024/07/16/style/how-to-crop-your-t-shirt.html
 
-**Up to $1 Billion May Go to Waste After Hochul’s Congestion Pricing Halt**\
-`Transit leaders had already allocated hundreds of millions of dollars before Gov. Kathy Hochul’s last-minute reversal on the long-awaited tolling plan.`\
-https://nytimes.com/2024/07/16/nyregion/congestion-pricing-cost-hochul.html
+**How J.D. Vance Won Over Donald Trump**\
+`It started with a meeting at Mar-a-Lago more than three years ago. Later, Tucker Carlson, Elon Musk and other key allies made direct appeals on his behalf.`\
+https://nytimes.com/2024/07/16/us/politics/trump-vance-vp-decision.html
 
