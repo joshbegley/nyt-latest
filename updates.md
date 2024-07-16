@@ -1,3 +1,15 @@
+**Energy is Prosperity: Innovating for a Clean Energy Future**\
+`Breakthrough Energy CTO Eric Toone outlines a path toward sustainable prosperity for our planet. `\
+https://nytimes.com/paidpost/breakthrough-energy/breakthrough-energy-energy-is-prosperity/energy-is-prosperity-innovating-for-a-clean-energy-future.html
+
+**City Ground land made available for sale to Nottingham Forest after council vote**\
+`Nottingham City Council has voted to make the land on which the City Ground stands available for sale to Nottingham Forest.`\
+https://nytimes.com/athletic/5641427/2024/07/16/city-ground-nottingham-forest-sale-council/
+
+**Wimbledon 2024 review: Best match, favourite player and most Wimbledon moment**\
+`The Athletic's tennis team reflect on Wimbledon 2024, picking the players, matches, and moments of the tournament`\
+https://nytimes.com/athletic/5640780/2024/07/16/wimbledon-2024-review-best-matches-best-shots-highlights/
+
 **Joe Bryant, Basketball Player and Kobe’s Father, Dies at 69**\
 `A forward known as Jellybean, he played in the United States and Europe.`\
 https://nytimes.com/2024/07/16/sports/joe-bryant-dead.html
