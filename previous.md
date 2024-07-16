@@ -1,3 +1,7 @@
+**Vance is well-known in China, which he calls a threat to the U.S.**\
+`By Keith Bradsher`\
+https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/vance-is-well-known-in-china-which-he-calls-a-threat-to-the-us
+
 **The Stylists Who Dressed Two Ambanis for the Eyes of the World**\
 `Radhika Merchant and Anant Ambani weren’t the only ones in the spotlight at the opulent wedding last weekend. The groom’s sister and sister-in-law worked with stylists of their own.`\
 https://nytimes.com/2024/07/16/style/anant-ambani-wedding-india-stylist.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5609420/2024/07/16/oakland-athletics-all-star-game-
 **Como deny allegation of racism towards Wolves' Hwang**\
 `Italian club Como have denied their player was intentionally racist towards Wolverhampton Wanderers forward Hwang Hee-chan and accused Wolves of “blowing the incident out of proportion”.`\
 https://nytimes.com/athletic/5640698/2024/07/16/hwang-hee-chan-racism-como-wolves/
-
-**The Democrats introduce an anti-Vance ad campaign, linking him to Project 2025.**\
-`By Simon J. Levien`\
-https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/democrats-open-anti-vance-ad-campaign-linking-him-to-project-2025
 
