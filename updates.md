@@ -1,3 +1,11 @@
+**“The solutions, guys, they’re really simple. First of all, stop the Biden-vasion and build the wall.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/the-solutions-guys-theyre-really-simple-first-of-all-stop-the-biden-vasion-and-build-the-wall
+
+**Chris Christie: Will Trump Meet the Moment?**\
+`The Republican nominee has the opportunity to rein in some of the worst rhetorical impulses of party and point in a new direction.`\
+https://nytimes.com/2024/07/16/opinion/trump-rnc-chris-christie.html
+
 **Lindsey Harding joining Lakers' coaching staff as assistant**\
 `Hornets assistant coach Bob Beyer is another coach who is expected to be added to JJ Redick’s staff, according to league sources.`\
 https://nytimes.com/athletic/5642325/2024/07/16/lindsey-harding-lakers-assistant/
