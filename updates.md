@@ -1,3 +1,11 @@
+**Millions Under Tornado Warnings As Storms Batter Midwest**\
+`More than 13 million people were under tornado warning or watch alerts on Monday night in Chicago, and parts of Illinois, Indiana and Wisconsin.`\
+https://nytimes.com/2024/07/15/us/tornado-chicago-illinois-storms.html
+
+**Finger-Pointing Follows Mayhem at Copa América Final in Miami**\
+`Chaos at the stadium raised questions about crowd control and security just two years before the U.S. is set to co-host the World Cup in 11 cities.`\
+https://nytimes.com/2024/07/15/us/copa-america-final-miami-world-cup.html
+
 **In J.D. Vance, Donald Trump Selects an Inheritor**\
 `Mr. Trump’s decision to pick Mr. Vance as his running mate signals his concern for the future of his MAGA movement.`\
 https://nytimes.com/2024/07/15/us/politics/trump-vance-running-mate.html
