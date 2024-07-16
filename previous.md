@@ -1,3 +1,11 @@
+**King Topper**\
+`Kelly Richardson makes her New York Times Crossword debut.`\
+https://nytimes.com/2024/07/15/crosswords/daily-puzzle-2024-07-16.html
+
+**“When Donald Trump was president, I helped him spread economic prosperity with the largest tax cut in American history.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/when-donald-trump-was-president-i-helped-him-spread-economic-prosperity-with-the-largest-tax-cut-in-american-history
+
 **Ohio Republicans on J.D. Vance: ‘He’s Our Barack Obama’**\
 `But will he stir any voters beyond Trump’s MAGA base?`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/vance-ohio-republican-convention
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/women-black-american
 **The Dismissal of the Trump Classified Documents Case Is Deeply Dangerous**\
 `Eight federal judges have rejected the claim that Judge Eileen Cannon has now endorsed that no law authorizes the appointment of a special counsel.`\
 https://nytimes.com/2024/07/15/opinion/trump-court-classified-documents.html
-
-**Former President Donald J. Trump’s administration had “energy independence.”**\
-`By Lisa Friedman`\
-https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/former-president-donald-j-trumps-administration-had-energy-independence
-
-**“Raises can’t keep up with 30 percent increases in grocery prices and 40 percent increases in gas” and the fixed income of retirees “has been crushed by the silent thief of inflation unleashed by Joe Biden and Kamala Harris.”**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/raises-cant-keep-up-with-30-percent-increases-in-grocery-prices-and-40-percent-increases-in-gas-and-the-fixed-income-of-retirees
 
