@@ -31,7 +31,7 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/this-bus-only-turns-right
 https://nytimes.com/athletic/5642239/2024/07/16/cavan-sullivan-philadelphia-union-squad/
 
 **The Art of Getting a Real Answer Out of a President**\
-`It was clear to The Times’s White House correspondent that if he asked President Biden the same question about age, he’d get the same, practiced answer. So he tried something different.`\
+`It was clear to a Times White House correspondent that if he asked President Biden the same question about age, he’d get the same, practiced answer. So he tried something different.`\
 https://nytimes.com/2024/07/16/insider/biden-news-conference-reporter-sanger.html
 
 **Resurgent Trump Has Democrats in Swing Districts Despondent**\

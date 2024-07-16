@@ -1,3 +1,7 @@
+**The Art of Getting a Real Answer Out of a President**\
+`It was clear to a Times White House correspondent that if he asked President Biden the same question about age, he’d get the same, practiced answer. So he tried something different.`\
+https://nytimes.com/2024/07/16/insider/biden-news-conference-reporter-sanger.html
+
 **The Secret of Trump’s Resurrection**\
 `As long as Democrats see nothing of him but his lies and outrages, they’ll miss what makes him strong.`\
 https://nytimes.com/2024/07/16/opinion/trump-election-biden.html
