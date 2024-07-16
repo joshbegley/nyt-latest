@@ -1,3 +1,7 @@
+**King Topper**\
+`Kelly Richardson makes her New York Times Crossword debut.`\
+https://nytimes.com/2024/07/15/crosswords/daily-puzzle-2024-07-16.html
+
 **“When Donald Trump was president, I helped him spread economic prosperity with the largest tax cut in American history.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/when-donald-trump-was-president-i-helped-him-spread-economic-prosperity-with-the-largest-tax-cut-in-american-history
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/women-black-american
 **The Dismissal of the Trump Classified Documents Case Is Deeply Dangerous**\
 `Eight federal judges have rejected the claim that Judge Eileen Cannon has now endorsed that no law authorizes the appointment of a special counsel.`\
 https://nytimes.com/2024/07/15/opinion/trump-court-classified-documents.html
-
-**Former President Donald J. Trump’s administration had “energy independence.”**\
-`By Lisa Friedman`\
-https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/former-president-donald-j-trumps-administration-had-energy-independence
 
