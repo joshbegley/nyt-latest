@@ -1,3 +1,7 @@
+**Crystal Palace will savour their stars shining at major tournaments**\
+`From Guehi and Eze at Euro 2024 to Lerma and Munoz at the Copa America, Palace players have made their mark this summer`\
+https://nytimes.com/athletic/5626583/2024/07/16/crystal-palace-guehi-lerma-euro-2024-copa-america/
+
 **Lopetegui's first match analysed: Kilman debut, Guilherme's speed, high-press tactics**\
 `What we learned from Lopetegui's first game in charge`\
 https://nytimes.com/athletic/5639334/2024/07/16/west-ham-lopetegui-ferencvaros-kitzbuhel/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5638878/2024/07/16/ballon-dor-rodri-kroos-bellingha
 **Brand Mbappe: Real Madrid's new galactico and his unique commercial power**\
 `As Real Madrid's new global superstar signing is presented at the Bernabeu, we profile the growth of his off-field brand`\
 https://nytimes.com/athletic/5630907/2024/07/16/kylian-mbappe-real-madrid-brand-business/
-
-**A Teamsters Boss Delivers Rare Speech to R.N.C.**\
-`Labor leaders are uncommon sights at Republican conventions, and Sean O’Brien used his moment to lace into corporate America. But he also praised the former president.`\
-https://nytimes.com/2024/07/16/us/politics/teamsters-boss-sean-obrien-rnc.html
 

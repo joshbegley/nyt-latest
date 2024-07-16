@@ -1,3 +1,7 @@
+**Crystal Palace will savour their stars shining at major tournaments**\
+`From Guehi and Eze at Euro 2024 to Lerma and Munoz at the Copa America, Palace players have made their mark this summer`\
+https://nytimes.com/athletic/5626583/2024/07/16/crystal-palace-guehi-lerma-euro-2024-copa-america/
+
 **Lopetegui's first match analysed: Kilman debut, Guilherme's speed, high-press tactics**\
 `What we learned from Lopetegui's first game in charge`\
 https://nytimes.com/athletic/5639334/2024/07/16/west-ham-lopetegui-ferencvaros-kitzbuhel/
