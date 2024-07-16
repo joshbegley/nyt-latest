@@ -1,3 +1,23 @@
+**Neighbors talk about the Trump gunman: ‘He didn’t speak to anyone, and no one spoke to him.’**\
+`By Amy Julia Harris`\
+https://nytimes.com/live/2024/07/16/us/trump-shooting-investigation/neighbors-talk-about-the-trump-gunman-he-didnt-speak-to-anyone-and-no-one-spoke-to-him
+
+**Corruption Verdict Could Decide How Menendez’s Senate Career Ends**\
+`This is likely to be the last year of Robert Menendez’s time in the Senate, no matter the outcome of his trial. But he could resign or be expelled if he’s found guilty.`\
+https://nytimes.com/2024/07/16/nyregion/bob-menendez-senate-future.html
+
+**Rare Attack in Oman on Shiite Worshipers Leaves 6 People Dead**\
+`Assailants attacked worshipers in Oman observing the Shiite day of mourning Ashura, in an unusual eruption of violence in a normally peaceful Gulf nation that prides itself on religious tolerance.`\
+https://nytimes.com/2024/07/16/world/middleeast/mosque-shooting-shiite-oman-pakistan.html
+
+**The jury will present its verdict soon. Here’s the latest.**\
+`By Nicholas Fandos, Tracey Tully and Benjamin Weiser`\
+https://nytimes.com/live/2024/07/16/nyregion/bob-menendez-verdict/the-jury-will-present-its-verdict-soon-heres-the-latest
+
+**Live Updates: Jury Reaches Verdict in Menendez Corruption Trial**\
+`Senator Robert Menendez of New Jersey faces up to 20 years in prison if convicted on charges that he took cash, gold and gifts in a complex bribery scheme involving businessmen and foreign governments.`\
+https://nytimes.com/live/2024/07/16/nyregion/bob-menendez-verdict
+
 **Joe "Jellybean" Bryant, father to Kobe, dies at 69**\
 `Kobe credited his time in Reggio Emilia (the Italian city of Joe's team Reggiana) for being the place where he fell in love with basketball.`\
 https://nytimes.com/athletic/5641117/2024/07/16/joe-bryant-dead/
