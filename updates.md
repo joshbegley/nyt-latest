@@ -1,3 +1,15 @@
+**After Trump Assassination Attempt, Right Points Finger at Female Agents**\
+`The rush by conservatives to pin blame for the shooting on women in the protective detail reflects a broader opposition among Republicans to diversity efforts in hiring.`\
+https://nytimes.com/2024/07/16/us/politics/secret-service-female-agents.html
+
+**Latino Republicans and Independents Back Trump’s Deportation Plan—to a Point**\
+`Hispanic voters disillusioned with Democrats want tougher immigration enforcement, but dozens of interviews showed many unfamiliar with details of Trump’s proposal.`\
+https://nytimes.com/2024/07/16/us/politics/trump-latino-voters-deportation.html
+
+**HR Derby singer Ingrid Andress entering rehab**\
+`"I'm checking myself into a facility today to get the help I need," Andress said Tuesday on X.`\
+https://nytimes.com/athletic/5640160/2024/07/16/ingrid-andress-home-run-derby-national-anthem-response/
+
 **Guess Who’s Not Coming to Milwaukee? Bush, Quayle, Pence, Cheney or Romney**\
 `There is a lot to be learned about today’s Republican Party from who is planning to skip the party’s nominating convention.`\
 https://nytimes.com/2024/07/16/us/politics/rnc-bush-quayle-pence-cheney-romney.html

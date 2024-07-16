@@ -1,3 +1,15 @@
+**After Trump Assassination Attempt, Right Points Finger at Female Agents**\
+`The rush by conservatives to pin blame for the shooting on women in the protective detail reflects a broader opposition among Republicans to diversity efforts in hiring.`\
+https://nytimes.com/2024/07/16/us/politics/secret-service-female-agents.html
+
+**Latino Republicans and Independents Back Trump’s Deportation Plan—to a Point**\
+`Hispanic voters disillusioned with Democrats want tougher immigration enforcement, but dozens of interviews showed many unfamiliar with details of Trump’s proposal.`\
+https://nytimes.com/2024/07/16/us/politics/trump-latino-voters-deportation.html
+
+**HR Derby singer Ingrid Andress entering rehab**\
+`"I'm checking myself into a facility today to get the help I need," Andress said Tuesday on X.`\
+https://nytimes.com/athletic/5640160/2024/07/16/ingrid-andress-home-run-derby-national-anthem-response/
+
 **Guess Who’s Not Coming to Milwaukee? Bush, Quayle, Pence, Cheney or Romney**\
 `There is a lot to be learned about today’s Republican Party from who is planning to skip the party’s nominating convention.`\
 https://nytimes.com/2024/07/16/us/politics/rnc-bush-quayle-pence-cheney-romney.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/16/arts/music/amplifier-newsletter-italian-pop.html
 **Menendez Has Been Convicted. What Happens Next?**\
 `Senator Robert Menendez immediately vowed to appeal his conviction on 16 felony counts. It is not clear whether he plans to resign his Senate seat.`\
 https://nytimes.com/2024/07/16/nyregion/menendez-appeal-verdict-resignation.html
-
-**Five MLS clubs get retro third kits for the remainder of 2024**\
-`Only five clubs get third kits this season, but there will be more to come in 2025. `\
-https://nytimes.com/athletic/5641588/2024/07/16/mls-adidas-third-kits-inter-miami-lafc-sporting-kc-la-galaxy-portland-timbers/
-
-**Caffè Panna Brings Summery Sundaes and Granitas to Greenpoint**\
-`Hallie Meyer’s new Brooklyn branch of her Irving Place spot deploys the signature cloud of panna on sundaes and affogatos.`\
-https://nytimes.com/2024/07/16/dining/new-ice-cream-spot-greenpoint-restaurant-news.html
-
-**Energy is Prosperity: Innovating for a Clean Energy Future**\
-`Breakthrough Energy CTO Eric Toone outlines a path toward sustainable prosperity for our planet. `\
-https://nytimes.com/paidpost/breakthrough-energy/breakthrough-energy-energy-is-prosperity/energy-is-prosperity-innovating-for-a-clean-energy-future.html
 
