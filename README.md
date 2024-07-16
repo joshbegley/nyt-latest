@@ -1,3 +1,7 @@
+**Former President Donald J. Trump’s administration had “energy independence.”**\
+`By Lisa Friedman`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/former-president-donald-j-trumps-administration-had-energy-independence
+
 **“Raises can’t keep up with 30 percent increases in grocery prices and 40 percent increases in gas” and the fixed income of retirees “has been crushed by the silent thief of inflation unleashed by Joe Biden and Kamala Harris.”**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/raises-cant-keep-up-with-30-percent-increases-in-grocery-prices-and-40-percent-increases-in-gas-and-the-fixed-income-of-retirees
@@ -33,10 +37,4 @@ https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/here-is-the-schedule
 **Clippers president talks Kevin Porter Jr. signing, potential discipline**\
 `Porter missed the 2023-24 season after he was arrested last September and charged with assault and strangulation of his girlfriend.`\
 https://nytimes.com/athletic/5639963/2024/07/15/la-clippers-nba-kevin-porter-jr/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>SEC Media Days. EA Sports release date. Two more coaching changes in the Mountain West. It&#8217;s all happening here in college football.</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/5640106/2024/07/15/submit-a-question-for-stewart-mandels-college-football-mailbag-265/
 
