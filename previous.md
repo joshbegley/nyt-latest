@@ -14,7 +14,7 @@ https://nytimes.com/2024/07/16/us/politics/988-suicide-crisis-hotline.html
 `An altered season calendar would be needed to accomodate the 2028 summer games in Los Angeles, though what form that would take is unclear.`\
 https://nytimes.com/athletic/5641866/2024/07/16/mlb-summer-olympics-2028/
 
-**Videos Show Secret Service Snipers Were Focused Toward Trump Gunman**\
+**Videos Show Secret Service Snipers Were Focused Toward Gunman at Trump Rally**\
 `Three videos posted to social media show that sniper teams were facing in the direction of the shooter before he fired at former President Donald J. Trump.`\
 https://nytimes.com/2024/07/16/us/trump-shooting-secret-service-snipers.html
 

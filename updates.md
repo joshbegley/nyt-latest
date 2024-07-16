@@ -1,3 +1,7 @@
+**Videos Show Secret Service Snipers Were Focused Toward Gunman at Trump Rally**\
+`Three videos posted to social media show that sniper teams were facing in the direction of the shooter before he fired at former President Donald J. Trump.`\
+https://nytimes.com/2024/07/16/us/trump-shooting-secret-service-snipers.html
+
 **Gary Trent Jr. signing 1-year deal with Bucks**\
 `Trent appeared in 71 games for the Toronto Raptors last season and started in 41 of those appearances.`\
 https://nytimes.com/athletic/5641920/2024/07/16/gary-trent-jr-bucks-contract/
