@@ -1,3 +1,7 @@
+**USWNT faces Costa Rica amid excessive heat advisory in D.C.**\
+`The gameday temperature in Washington is expected to hit 101 degrees but U.S. Soccer has not yet considered delaying tonight's kickoff time`\
+https://nytimes.com/athletic/5640296/2024/07/16/uswnt-costa-rica-olympics-heat/
+
 **A ‘Breathtaking’ Dismissal of the Trump Documents Case**\
 `Readers strongly disagree with Judge Aileen Cannon’s decision.`\
 https://nytimes.com/2024/07/16/opinion/letters/trump-documents-case-judge-cannon.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5635592/2024/07/16/wimbledon-final-barbora-krejciko
 **Steve Kerr aims to bolster Warriors' coaching staff in very specific ways**\
 `Former NBA head coach Terry Stotts and former player Jerry Stackhouse are the new faces on Golden State's bench.`\
 https://nytimes.com/athletic/5634372/2024/07/16/steve-kerr-warriors-terry-stotts-jerry-stackhouse/
-
-**From Reggie to Rooker: Oakland A's memorable All-Star Game moments**\
-`A look at some of the A's most memorable All-Star Game moments as Mason Miller and Mark Kotsay prepare to make the trip to Arlington.`\
-https://nytimes.com/athletic/5609420/2024/07/16/oakland-athletics-all-star-game-moments/
 
