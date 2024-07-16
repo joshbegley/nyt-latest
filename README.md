@@ -1,3 +1,7 @@
+**After Backlash, Marvel Gives an Israeli Superhero a New Backstory**\
+`The studio said Sabra, a Mossad agent in comic books, will be “a high-ranking U.S. government official” in its next Captain America movie.`\
+https://nytimes.com/2024/07/16/movies/sabra-israeli-superhero-marvel.html
+
 **Trump to Rally for First Time Since Assassination Attempt With Vance**\
 `The rally is set for Saturday in Michigan, and will be his first such appearance alongside Senator J.D. Vance of Ohio, whom he selected as his running mate on Monday.`\
 https://nytimes.com/2024/07/16/us/politics/trump-rally-jd-vance-michigan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5642045/2024/07/16/blues-torey-krug-ankle-condition
 **Elon Musk Says He Will Move X and SpaceX Headquarters to Texas**\
 `The social media and rocket companies are headquartered in California, which the billionaire criticized for its recent transgender legislation.`\
 https://nytimes.com/2024/07/16/technology/elon-musk-x-spacex-headquarters-texas.html
-
-**Chinese Billionaire and Bannon Ally Is Convicted of Fraud**\
-`A federal jury found that Guo Wengui defrauded investors, many his own fervent supporters, of hundreds of millions of dollars. He could face decades in prison.`\
-https://nytimes.com/2024/07/16/nyregion/guo-wengui-fraud-trial-verdict-china.html
 
