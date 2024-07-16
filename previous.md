@@ -1,3 +1,7 @@
+**Climate and the Republican Convention**\
+`Here’s where the party stands on global warming, energy and the environment.`\
+https://nytimes.com/2024/07/16/climate/climate-republican-convention.html
+
 **Georgia collective fining players for driving violations**\
 `Seven players have been arrested on driving-related charges since the January 2023 car crash that killed a Georgia player and staffer.`\
 https://nytimes.com/athletic/5641091/2024/07/16/georgia-football-racing-kirby-smart/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/16/arts/music/eric-garner-opera-lincoln-center.html
 **Evan Wright, Award-Winning Reporter and Author of ‘Generation Kill,’ Dies at 59**\
 `Mr. Wright was known for his immersive journalism that focused on subjects outside mainstream media coverage to explore the nooks and crannies of American life.`\
 https://nytimes.com/2024/07/16/us/evan-wright-generation-kill-dead.html
-
-**In Leaked Phone Call, Trump Tries to Coax Kennedy Into His Camp**\
-`Robert F. Kennedy Jr. apologized for a leaked video of the phone call, in which Donald Trump offers anti-vaccine messaging and says the wound to his ear “felt like the world’s largest mosquito.”`\
-https://nytimes.com/2024/07/16/us/politics/rfk-trump-call.html
 

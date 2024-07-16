@@ -1,3 +1,7 @@
+**Climate and the Republican Convention**\
+`Here’s where the party stands on global warming, energy and the environment.`\
+https://nytimes.com/2024/07/16/climate/climate-republican-convention.html
+
 **Georgia collective fining players for driving violations**\
 `Seven players have been arrested on driving-related charges since the January 2023 car crash that killed a Georgia player and staffer.`\
 https://nytimes.com/athletic/5641091/2024/07/16/georgia-football-racing-kirby-smart/
