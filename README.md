@@ -1,3 +1,7 @@
+**The Dismissal of the Trump Classified Documents Case Is Deeply Dangerous**\
+`Eight federal judges have rejected the claim that Judge Eileen Cannon has now endorsed that no law authorizes the appointment of a special counsel.`\
+https://nytimes.com/2024/07/15/opinion/trump-court-classified-documents.html
+
 **Former President Donald J. Trump’s administration had “energy independence.”**\
 `By Lisa Friedman`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/former-president-donald-j-trumps-administration-had-energy-independence
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5639637/2024/07/15/ramon-jesurun-arrest-copa-americ
 **Here is the roster of speakers at the convention on Monday night.**\
 `By Tim Balk`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/here-is-the-schedule-of-speakers-at-the-convention-on-monday-night
-
-**Clippers president talks Kevin Porter Jr. signing, potential discipline**\
-`Porter missed the 2023-24 season after he was arrested last September and charged with assault and strangulation of his girlfriend.`\
-https://nytimes.com/athletic/5639963/2024/07/15/la-clippers-nba-kevin-porter-jr/
 
