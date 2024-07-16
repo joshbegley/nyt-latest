@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5638415/2024/07/16/manchester-united-transfer-lates
 https://nytimes.com/2024/07/16/world/asia/taiwan-china-lai-ching-te.html
 
 **Inside Spain's celebrations: Morata's star turn, little sleep and De la Fuente's singalong**\
-`Spain celebrated their European Championship success with a party that lasted into the early hours`\
+`Spain celebrated their latest European Championship success with a public party in Madrid that lasted into the early hours`\
 https://nytimes.com/athletic/5640357/2024/07/16/spain-euro-2024-celebrations/
 
 **Quotation of the Day: For the G.O.P., Free-Market Economics Is History**\
