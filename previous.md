@@ -1,3 +1,15 @@
+**“South Dakota was the only state in the country that stayed open for business. We didn’t mandate anything.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/south-dakota-was-the-only-state-in-the-country-that-stayed-open-for-business-we-didnt-mandate-anything
+
+**After a rocky State of the Union response, Katie Britt mounted a comeback at the convention.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/after-a-rocky-state-of-the-union-response-katie-britt-mounted-a-comeback-at-the-convention
+
+**“Women, Black Americans, Hispanic Americans, Asian Americans all saw a record-low employment.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/women-black-americans-hispanic-americans-asian-americans-all-saw-a-record-low-employment
+
 **The Dismissal of the Trump Classified Documents Case Is Deeply Dangerous**\
 `Eight federal judges have rejected the claim that Judge Eileen Cannon has now endorsed that no law authorizes the appointment of a special counsel.`\
 https://nytimes.com/2024/07/15/opinion/trump-court-classified-documents.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5640109/2024/07/15/mlb-draft-astros-college-pitcher
 **'Today is the reward': From veterans to rookies, first-time MLB All-Stars revel in moment**\
 `When the All-Stars took the field for their first workout on Monday, 37 were there for the first time.`\
 https://nytimes.com/athletic/5640123/2024/07/15/mlb-first-time-all-stars/
-
-**Dr. Ruth’s Tips for a Happy Life**\
-`Ruth Westheimer loved to give advice — and often strayed from her area of expertise as she tried, in her words, “to make the world a better place.”`\
-https://nytimes.com/2024/07/15/style/dr-ruths-tips-happiness.html
-
-**Colombian Football Federation president arrested at Copa final**\
-`The arrests are two of the 27 made by Miami-Dade police during the Copa America final.`\
-https://nytimes.com/athletic/5639637/2024/07/15/ramon-jesurun-arrest-copa-america/
-
-**Here is the roster of speakers at the convention on Monday night.**\
-`By Tim Balk`\
-https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/here-is-the-schedule-of-speakers-at-the-convention-on-monday-night
 
