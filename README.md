@@ -1,3 +1,7 @@
+**From veterans to rookies, first-time MLB All-Stars revel in moment: 'Today is the reward'**\
+`When the All-Stars took the field for their first workout on Monday, 37 of them were there for the first time.`\
+https://nytimes.com/athletic/5640123/2024/07/15/mlb-first-time-all-stars/
+
 **Dr. Ruth’s Tips for a Happy Life**\
 `Ruth Westheimer loved to give advice — and often strayed from her area of expertise as she tried, in her words, “to make the world a better place.”`\
 https://nytimes.com/2024/07/15/style/dr-ruths-tips-happiness.html
@@ -35,8 +39,4 @@ https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/mark-robinson-north-
 **Two Hikers Die in Canyonlands National Park in 100-Degree Temperatures**\
 `A father and daughter were found dead in the park after they texted 911 that they ran out of water and were lost while hiking in triple-digit temperatures.`\
 https://nytimes.com/2024/07/15/us/canyonlands-hiking-deaths-utah.html
-
-**Investigators Unlock Gunman’s Phone in Search of Motive for Trump Shooting**\
-`The F.B.I. said it had gained access to the would-be assassin’s phone, but it was not immediately clear whether it had yielded clues.`\
-https://nytimes.com/2024/07/15/us/politics/trump-shooting-fbi-gunman-phone.html
 
