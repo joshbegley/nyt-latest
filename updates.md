@@ -1,3 +1,7 @@
+**Until Saturday: What we like and what we don't about CFB 25**\
+`Welcome to Until Saturday, the five-star college football newsletter: What do we think about College Football 25?`\
+https://nytimes.com/athletic/5640869/2024/07/16/ea-sports-college-football-25-until-saturday/
+
 **Hollinger: Why Team USA's next games will be a much different test**\
 `LeBron James, Joel Embiid and company have limited time to tweak their games to the style that makes the most sense in international play.`\
 https://nytimes.com/athletic/5640391/2024/07/16/team-usa-basketball-fiba-rules-lebron-james-joel-embiid/

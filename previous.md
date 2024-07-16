@@ -1,3 +1,7 @@
+**Until Saturday: What we like and what we don't about CFB 25**\
+`Welcome to Until Saturday, the five-star college football newsletter: What do we think about College Football 25?`\
+https://nytimes.com/athletic/5640869/2024/07/16/ea-sports-college-football-25-until-saturday/
+
 **Hollinger: Why Team USA's next games will be a much different test**\
 `LeBron James, Joel Embiid and company have limited time to tweak their games to the style that makes the most sense in international play.`\
 https://nytimes.com/athletic/5640391/2024/07/16/team-usa-basketball-fiba-rules-lebron-james-joel-embiid/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5641091/2024/07/16/georgia-football-racing-kirby-sm
 **How Padres’ Jackson Merrill went from late-blooming high schooler to All-Star rookie**\
 `The 21-year-old Merrill, drafted out of a Baltimore-area high school 36 months ago, will be the youngest player in the All-Star Game.`\
 https://nytimes.com/athletic/5640425/2024/07/16/padres-jackson-merrill-mlb-all-star/
-
-**Pushing Quick End to Ukraine War, Orban Plays Trump’s Messenger to E.U.**\
-`Prime Minister Viktor Orban of Hungary has been on a self-appointed diplomatic mission that aligns with Donald J. Trump’s preferences in the Russia-Ukraine conflict.`\
-https://nytimes.com/2024/07/16/world/europe/orban-trump-ukraine-war-letter.html
 
