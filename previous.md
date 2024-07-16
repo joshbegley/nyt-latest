@@ -1,3 +1,7 @@
+**Here Is Where It’s Going to Be Hottest on Tuesday**\
+`Dangerous heat is expected from Texas to New Jersey through Wednesday before milder air starts to sweep across the region.`\
+https://nytimes.com/2024/07/16/weather/heat-forecast.html
+
 **Teoscar Hernández ends Dodgers' Derby drought by playing it cool, calling his shots**\
 `There was something about Teoscar Hernández that seemed like it was made for this moment. He became the first Dodger to win the Derby. `\
 https://nytimes.com/athletic/5640435/2024/07/16/teoscar-hernandez-dodgers-first-home-run-derby-champ/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/16/opinion/trump-biden-vance.html
 **The Poets Have Taken Governors Island**\
 `Thousands of poetry fans and practitioners took the ferry out over the weekend to absorb one another’s work at the annual New York City Poetry Festival.`\
 https://nytimes.com/2024/07/16/style/nyc-poetry-festival-governors-island.html
-
-**She Didn’t Like His Song, So She Tried to Eat Him**\
-`It’s not easy being green, golden and male, according to a researcher’s observation of attempted frog cannibalism in Australia.`\
-https://nytimes.com/2024/07/16/science/cannibal-female-frog.html
 

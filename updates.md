@@ -1,3 +1,7 @@
+**Here Is Where It’s Going to Be Hottest on Tuesday**\
+`Dangerous heat is expected from Texas to New Jersey through Wednesday before milder air starts to sweep across the region.`\
+https://nytimes.com/2024/07/16/weather/heat-forecast.html
+
 **Teoscar Hernández ends Dodgers' Derby drought by playing it cool, calling his shots**\
 `There was something about Teoscar Hernández that seemed like it was made for this moment. He became the first Dodger to win the Derby. `\
 https://nytimes.com/athletic/5640435/2024/07/16/teoscar-hernandez-dodgers-first-home-run-derby-champ/
