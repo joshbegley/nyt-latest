@@ -1,3 +1,11 @@
+**Full Time: Bon voyage, USWNT!**\
+`Welcome to Full Time, The Athletic’s weekly women’s soccer newsletter`\
+https://nytimes.com/athletic/5641183/2024/07/16/us-womens-national-team-olympics-emma-hayes-full-time/
+
+**In the Age of A.I., How Much Is Silicon Valley Prepared to Give Back?**\
+`The tech community, led by Sam Altman of OpenAI, has funded programs that give people unconditional cash. Some say it’s time to scale up.`\
+https://nytimes.com/2024/07/16/technology/universal-income-openai-silicon-valley.html
+
 **How Would Ohio Replace Vance in the Senate if Trump Wins in November?**\
 `State law instructs the governor to appoint a replacement until a special election can be held. Several Republican names are already circulating as potential prospects.`\
 https://nytimes.com/2024/07/16/us/politics/how-would-ohio-replace-vance-in-the-senate-if-trump-wins-in-november.html
