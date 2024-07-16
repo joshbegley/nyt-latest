@@ -1,3 +1,7 @@
+**Civilian casualties in Gaza remain unacceptably high, the State Department says.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/07/16/world/israel-gaza-war-hamas/civilian-casualties-in-gaza-remain-unacceptably-high-the-state-department-says
+
 **Here’s the latest on the investigation.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/07/16/us/trump-shooting-investigation/heres-the-latest-on-the-investigation
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/16/opinion/letters/trump-documents-case-judge-cannon
 **Vance is well-known in China, which he calls a threat to the U.S.**\
 `By Keith Bradsher`\
 https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/vance-is-well-known-in-china-which-he-calls-a-threat-to-the-us
-
-**The Stylists Who Dressed Two Ambanis for the Eyes of the World**\
-`Radhika Merchant and Anant Ambani weren’t the only ones in the spotlight at the opulent wedding last weekend. The groom’s sister and sister-in-law worked with stylists of their own.`\
-https://nytimes.com/2024/07/16/style/anant-ambani-wedding-india-stylist.html
 
