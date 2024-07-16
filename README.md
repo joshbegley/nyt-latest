@@ -1,3 +1,15 @@
+**Wimbledon 2024 review: Best match, favourite player, and most Wimbledon moment**\
+`The Athletic's tennis team reflect on Wimbledon 2024, picking the players, matches, and moments of the tournament`\
+https://nytimes.com/athletic/5640780/2024/07/16/wimbledon-2024-review-best-match-favourite-player-and-most-wimbledon-moment/
+
+**Fact-Checking the Republican National Convention on Energy Claims**\
+`Several speakers focused on the sharp rise in gas and electricity prices under President Biden. We scrutinized their statements.`\
+https://nytimes.com/2024/07/16/climate/fact-checking-rnc-energy.html
+
+**The Israeli military said it was targeting militants operating in the school.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/07/16/world/israel-gaza-war-hamas/the-israeli-military-said-it-was-targeting-militants-operating-in-the-school
+
 **Judge Dismisses Classified Documents Case Against Trump**\
 `A federal judge on Monday dismissed in its entirety the classified documents case against former President Donald J.`\
 https://nytimes.com/video/us/politics/100000009572885/judge-dismisses-classified-documents-case-against-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/16/world/middleeast/mosque-shooting-shiite-oman-paki
 **The senator was convicted on bribery, fraud and extortion charges.**\
 `By Nicholas Fandos, Tracey Tully and Benjamin Weiser`\
 https://nytimes.com/live/2024/07/16/nyregion/bob-menendez-verdict/the-jury-will-present-its-verdict-soon-heres-the-latest
-
-**Live Updates: Senator Menendez Found Guilty on All Counts in Corruption Trial**\
-`Senator Robert Menendez of New Jersey, who survived a previous corruption indictment in 2017, was convicted in a federal bribery case involving businessmen and foreign governments.`\
-https://nytimes.com/live/2024/07/16/nyregion/bob-menendez-verdict
-
-**Joe "Jellybean" Bryant, father to Kobe, dies at 69**\
-`Kobe credited his time in Reggio Emilia (the Italian city of Joe's team Reggiana) for being the place where he fell in love with basketball.`\
-https://nytimes.com/athletic/5641117/2024/07/16/joe-bryant-dead/
-
-**James R. Tallon Jr., Who Steered Health Care Reforms, Dies at 82**\
-`As an influential committee leader and the majority leader in the New York Assembly, he led efforts, later embraced in Washington, to expand coverage.`\
-https://nytimes.com/2024/07/16/nyregion/james-r-tallon-dead.html
 
