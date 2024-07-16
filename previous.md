@@ -1,3 +1,11 @@
+**Local Police Were Inside Building Used by Gunman, Secret Service Director Says**\
+`“There was local police in the area that were responsible for the outer perimeter of the building,” Kimberly A. Cheatle, the director of the Secret Service said.`\
+https://nytimes.com/2024/07/16/us/local-police-were-inside-building-used-by-gunman-secret-service-director-says.html
+
+**Chiefs' Reid addresses retirement, 3-peat talk, Kelce-Swift**\
+`Reid thinks there is no one better able to handle the fame of dating a megastar like Swift than his star tight end.`\
+https://nytimes.com/athletic/5640293/2024/07/16/andy-reid-retirement-travis-kelce-taylor-swift/
+
 **What I learned about Lakers' patient offseason strategy — and how long it might last**\
 `After missing out on their initial targets, the Lakers are content to wait out the market before making another move. `\
 https://nytimes.com/athletic/5639681/2024/07/16/lakers-rumors-roster-trade-free-agency/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/16/opinion/jd-vance-trump-apprentice.html
 **I.M.F. Sees Signs of Cooling in U.S. Economy**\
 `The International Monetary Fund warned that inflation remained stubbornly high and that protectionism posed a risk to the global economic outlook.`\
 https://nytimes.com/2024/07/16/business/imf-world-economic-outlook-report.html
-
-**How You Helped Us Cover More Corners of California**\
-`During my time on the newsletter, I had a goal to report from all of the state’s 58 counties. Readers came through with plenty of ideas.`\
-https://nytimes.com/2024/07/16/us/readers-help-cover-california.html
-
-**USWNT faces Costa Rica amid excessive heat advisory in D.C.**\
-`The gameday temperature in Washington is expected to hit 101 degrees but U.S. Soccer has not yet considered delaying tonight's kickoff time`\
-https://nytimes.com/athletic/5640296/2024/07/16/uswnt-costa-rica-olympics-heat/
 

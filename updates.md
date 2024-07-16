@@ -1,3 +1,11 @@
+**Local Police Were Inside Building Used by Gunman, Secret Service Director Says**\
+`“There was local police in the area that were responsible for the outer perimeter of the building,” Kimberly A. Cheatle, the director of the Secret Service said.`\
+https://nytimes.com/2024/07/16/us/local-police-were-inside-building-used-by-gunman-secret-service-director-says.html
+
+**Chiefs' Reid addresses retirement, 3-peat talk, Kelce-Swift**\
+`Reid thinks there is no one better able to handle the fame of dating a megastar like Swift than his star tight end.`\
+https://nytimes.com/athletic/5640293/2024/07/16/andy-reid-retirement-travis-kelce-taylor-swift/
+
 **What I learned about Lakers' patient offseason strategy — and how long it might last**\
 `After missing out on their initial targets, the Lakers are content to wait out the market before making another move. `\
 https://nytimes.com/athletic/5639681/2024/07/16/lakers-rumors-roster-trade-free-agency/
