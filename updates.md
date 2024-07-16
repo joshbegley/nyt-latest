@@ -1,3 +1,7 @@
+**USWNT faces Costa Rica amid excessive heat advisory in D.C.**\
+`The gameday temperature in Washington is expected to hit 101 degrees but U.S. Soccer has not yet considered delaying tonight's kickoff time`\
+https://nytimes.com/athletic/5640296/2024/07/16/uswnt-costa-rica-olympics-heat/
+
 **A ‘Breathtaking’ Dismissal of the Trump Documents Case**\
 `Readers strongly disagree with Judge Aileen Cannon’s decision.`\
 https://nytimes.com/2024/07/16/opinion/letters/trump-documents-case-judge-cannon.html
