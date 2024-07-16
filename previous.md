@@ -1,3 +1,7 @@
+**FPL managers able to bank up to five transfers in changes to game for 2024-25**\
+`Fantasy Premier League managers will be able to bank up to five free transfers as part of new changes to the game ahead of the 2024-25 season.`\
+https://nytimes.com/athletic/5640967/2024/07/16/fpl-changes-transfers-2024-25/
+
 **Trump’s V.P. Pick Doesn’t Exactly Balance the Ticket**\
 `J.D. Vance wasn’t the most obvious choice.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-vance-vice-president
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5639681/2024/07/16/lakers-rumors-roster-trade-free-
 **Jets talked to now-Steelers OC Smith in offseason**\
 `Aaron Rodgers was made aware the Jets had conversations this offseason about other offensive coordinator options, Dianna Russini reports.`\
 https://nytimes.com/athletic/5640268/2024/07/16/jets-arthur-smith-hackett-rodgers-scoop-city/
-
-**Civilian casualties in Gaza remain unacceptably high, the State Department says.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/07/16/world/israel-gaza-war-hamas/civilian-casualties-in-gaza-remain-unacceptably-high-the-state-department-says
 

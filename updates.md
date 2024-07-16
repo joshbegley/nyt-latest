@@ -1,3 +1,7 @@
+**FPL managers able to bank up to five transfers in changes to game for 2024-25**\
+`Fantasy Premier League managers will be able to bank up to five free transfers as part of new changes to the game ahead of the 2024-25 season.`\
+https://nytimes.com/athletic/5640967/2024/07/16/fpl-changes-transfers-2024-25/
+
 **Trump’s V.P. Pick Doesn’t Exactly Balance the Ticket**\
 `J.D. Vance wasn’t the most obvious choice.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-vance-vice-president
