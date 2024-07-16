@@ -1,3 +1,7 @@
+**How Would Ohio Replace Vance in the Senate if Trump Wins in November?**\
+`State law instructs the governor to appoint a replacement until a special election can be held. Several Republican names are already circulating as potential prospects.`\
+https://nytimes.com/2024/07/16/us/politics/how-would-ohio-replace-vance-in-the-senate-if-trump-wins-in-november.html
+
 **The gunman’s high school guidance counselor: ‘Something snapped.’**\
 `Jim Knapp, who counseled Thomas Crooks, recalled him as someone who stuck to himself, but said there were no early alarms about the trouble to come.`\
 https://nytimes.com/live/2024/07/16/us/trump-shooting-investigation/the-gunmans-high-school-guidance-counselor-something-snapped
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/16/world/asia/thailand-six-dead-poisoning.html
 **Climate and the Republican Convention**\
 `Here’s where the party stands on global warming, energy and the environment.`\
 https://nytimes.com/2024/07/16/climate/climate-republican-convention.html
-
-**Georgia collective fining players for driving violations**\
-`Seven players have been arrested on driving-related charges since the January 2023 car crash that killed a Georgia player and staffer.`\
-https://nytimes.com/athletic/5641091/2024/07/16/georgia-football-racing-kirby-smart/
 
