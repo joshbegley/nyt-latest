@@ -1,3 +1,11 @@
+**Bangladesh Deploys Border Force to Try to Quell Student Protests**\
+`Across the country, students have taken to the streets over job quotas that they say limit their opportunities.`\
+https://nytimes.com/2024/07/16/world/asia/bangladesh-student-protests.html
+
+**U.S. Detected Iranian Plot to Kill Trump Separate From Last Weekend’s Shooting**\
+`American intelligence agencies were tracking an Iranian assassination effort even before the attack on former President Donald J. Trump. But officials said the two were unrelated.`\
+https://nytimes.com/2024/07/16/us/politics/trump-iran-assassination-plot.html
+
 **Kamara departs Leeds for Rennes**\
 `Leeds United have confirmed the exit of Glen Kamara as the midfielder joins Stade Rennais on a permanent deal.`\
 https://nytimes.com/athletic/5641663/2024/07/16/glen-kamara-leeds-rennes-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/16/business/media/carlos-watson-ozy-media-guilty.htm
 **After Trump Assassination Attempt, Right Points Finger at Female Agents**\
 `The rush by conservatives to pin blame for the shooting on women in the protective detail reflects a broader opposition among Republicans to diversity efforts in hiring.`\
 https://nytimes.com/2024/07/16/us/politics/secret-service-female-agents.html
-
-**Latino Republicans and Independents Back Trump’s Deportation Plan—to a Point**\
-`Hispanic voters disillusioned with Democrats want tougher immigration enforcement, but dozens of interviews showed many unfamiliar with details of Trump’s proposal.`\
-https://nytimes.com/2024/07/16/us/politics/trump-latino-voters-deportation.html
-
-**HR Derby singer Ingrid Andress entering rehab**\
-`"I'm checking myself into a facility today to get the help I need," Andress said Tuesday on X.`\
-https://nytimes.com/athletic/5640160/2024/07/16/ingrid-andress-home-run-derby-national-anthem-response/
 

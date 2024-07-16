@@ -1,3 +1,11 @@
+**Bangladesh Deploys Border Force to Try to Quell Student Protests**\
+`Across the country, students have taken to the streets over job quotas that they say limit their opportunities.`\
+https://nytimes.com/2024/07/16/world/asia/bangladesh-student-protests.html
+
+**U.S. Detected Iranian Plot to Kill Trump Separate From Last Weekend’s Shooting**\
+`American intelligence agencies were tracking an Iranian assassination effort even before the attack on former President Donald J. Trump. But officials said the two were unrelated.`\
+https://nytimes.com/2024/07/16/us/politics/trump-iran-assassination-plot.html
+
 **Israeli Strikes Kill Several People in Central and Southern Gaza**\
 `The strikes hit a United Nations school-turned-shelter in Nuseirat, central Gaza, and a site in the Mawasi area in Khan Younis, further south. Gaza’s health ministry said both strikes resulted in casualties. The Israeli military said it was targeting militants.`\
 https://nytimes.com/video/world/middleeast/100000009574297/strikes-gaza-nuseirat-khan-younis.html
