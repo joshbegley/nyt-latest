@@ -1,3 +1,11 @@
+**I.M.F. Sees Signs of Cooling in U.S. Economy**\
+`The International Monetary Fund warned that inflation remained stubbornly high and that protectionism posed a risk to the global economic outlook.`\
+https://nytimes.com/2024/07/16/business/imf-world-economic-outlook-report.html
+
+**How You Helped Us Cover More Corners of California**\
+`During my time on the newsletter, I had a goal to report from all of the state’s 58 counties. Readers came through with plenty of ideas.`\
+https://nytimes.com/2024/07/16/us/readers-help-cover-california.html
+
 **USWNT faces Costa Rica amid excessive heat advisory in D.C.**\
 `The gameday temperature in Washington is expected to hit 101 degrees but U.S. Soccer has not yet considered delaying tonight's kickoff time`\
 https://nytimes.com/athletic/5640296/2024/07/16/uswnt-costa-rica-olympics-heat/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5617984/2024/07/16/abdul-fatawu-leicester-transfer-
 **How Will Vance Affect the Race? Look at 2028, Not 2024.**\
 `The possibility that Trumpism outlasts Donald Trump just went up.`\
 https://nytimes.com/2024/07/16/upshot/vance-trump-vice-president.html
-
-**A smiling ghost of Centre Court: How Barbora Krejcikova's title met her mentor's legacy**\
-`Barbora Krejcikova and Jasmine Paolini's Wimbledon final may not be part of a grand tennis narrative. It doesn't need to be – it was enough`\
-https://nytimes.com/athletic/5635592/2024/07/16/wimbledon-final-barbora-krejcikova-jana-novotna/
-
-**Steve Kerr aims to bolster Warriors' coaching staff in very specific ways**\
-`Former NBA head coach Terry Stotts and former player Jerry Stackhouse are the new faces on Golden State's bench.`\
-https://nytimes.com/athletic/5634372/2024/07/16/steve-kerr-warriors-terry-stotts-jerry-stackhouse/
 
