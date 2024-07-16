@@ -1,3 +1,11 @@
+**Who could replace Gareth Southgate as England manager?**\
+`Gareth Southgate is to leave his role as England manager - these are the candidates to succeed him`\
+https://nytimes.com/athletic/5619843/2024/07/16/england-next-manager/
+
+**Southgate leaves role as England manager**\
+`Gareth Southgate has resigned from his role as manager of the England men&#8217;s side.`\
+https://nytimes.com/athletic/5637301/2024/07/16/gareth-southgate-england-manager-leaves/
+
 **Trump’s Emotional Appearance, and More Republican Convention Takeaways**\
 `Plus, a college football video game breaks new ground.`\
 https://nytimes.com/2024/07/16/podcasts/trump-rnc-vp-pick-vance.html
