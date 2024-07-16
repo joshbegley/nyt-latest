@@ -1,3 +1,11 @@
+**Are Artificial Sweeteners Safer Than Sugar?**\
+`Health concerns have been mounting for decades. Here’s what the research suggests.`\
+https://nytimes.com/2024/07/16/well/eat/artificial-sweeteners-sugar-free.html
+
+**C. Notes: Reds celebrate Triple-A manager Pat Kelly's 2,000th win**\
+`“Everybody in this organization has been influenced by PK in some positive way,” Reds manager David Bell said.`\
+https://nytimes.com/athletic/5640862/2024/07/16/reds-triple-a-manager-pat-kelly-2000-wins/
+
 **Full Time: Bon voyage, USWNT!**\
 `Welcome to Full Time, The Athletic’s weekly women’s soccer newsletter`\
 https://nytimes.com/athletic/5641183/2024/07/16/us-womens-national-team-olympics-emma-hayes-full-time/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5641161/2024/07/16/horns-down-texas-sec/
 **How Vance seeks to reorient the Republicans’ approach to business.**\
 `By Dealbook`\
 https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/how-jd-vance-seeks-to-reorient-the-republicans-approach-to-business
-
-**Skillet Chicken With Schmaltzy (!) Tomatoes**\
-`The delicious drippings you get from roasting chicken thighs are tossed with cherry tomatoes, making them saltier and juicier.`\
-https://nytimes.com/2024/07/16/dining/skillet-chicken-with-schmaltzy-tomatoes.html
-
-**Newcastle will fight to keep Howe amid England vacancy, insists club CEO**\
-`Newcastle United &#8220;love&#8221; Eddie Howe and will fight to keep hold of their head coach should the FA look to appoint him as the next England manager, insists Darren Eales, the club&#8217;s CEO.`\
-https://nytimes.com/athletic/5641129/2024/07/16/eddie-howe-england-newcastle-southgate/
 
