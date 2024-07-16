@@ -1,3 +1,15 @@
+**The Trump Shooter and the Growing Nihilism of Young Men**\
+`The rise of post-ideological terror.`\
+https://nytimes.com/2024/07/16/opinion/trump-shooter-radicalization-men.html
+
+**‘UnPrisoned’ Depicts the Burden of Incarceration With a Light Touch**\
+`Delroy Lindo and Kerry Washington discuss their series, which finds humor and struggle in a father and daughter repairing their relationship after a long prison term.`\
+https://nytimes.com/2024/07/16/arts/television/unprisoned-incarceration-hulu.html
+
+**Funeral Is Set for Man Killed in Trump Rally Shooting**\
+`Services for Corey Comperatore, the volunteer firefighter who shielded family members in his final moments, will take place Friday at the church where he was a longtime member.`\
+https://nytimes.com/2024/07/16/us/trump-rally-shooting-victim-funeral-arrangements.html
+
 **France file complaint over 'unacceptable racist' chants by Argentina players**\
 `The French Football Federation (FFF) says it has filed a legal complaint over an &#8220;unacceptable, racist and discriminatory&#8221; chant made by Argentina players following their Copa America success on Sunday night.`\
 https://nytimes.com/athletic/5640776/2024/07/16/france-complaint-fifa-argentina-racist-chant/

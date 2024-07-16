@@ -1,3 +1,15 @@
+**The Trump Shooter and the Growing Nihilism of Young Men**\
+`The rise of post-ideological terror.`\
+https://nytimes.com/2024/07/16/opinion/trump-shooter-radicalization-men.html
+
+**‘UnPrisoned’ Depicts the Burden of Incarceration With a Light Touch**\
+`Delroy Lindo and Kerry Washington discuss their series, which finds humor and struggle in a father and daughter repairing their relationship after a long prison term.`\
+https://nytimes.com/2024/07/16/arts/television/unprisoned-incarceration-hulu.html
+
+**Funeral Is Set for Man Killed in Trump Rally Shooting**\
+`Services for Corey Comperatore, the volunteer firefighter who shielded family members in his final moments, will take place Friday at the church where he was a longtime member.`\
+https://nytimes.com/2024/07/16/us/trump-rally-shooting-victim-funeral-arrangements.html
+
 **France file complaint over 'unacceptable racist' chants by Argentina players**\
 `The French Football Federation (FFF) says it has filed a legal complaint over an &#8220;unacceptable, racist and discriminatory&#8221; chant made by Argentina players following their Copa America success on Sunday night.`\
 https://nytimes.com/athletic/5640776/2024/07/16/france-complaint-fifa-argentina-racist-chant/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5641311/2024/07/16/nfc-west-preview-scoop-city/
 **‘Imminent’ Risk of Dam Failure Prompts Evacuation in Illinois**\
 `Residents in Nashville, Ill., were told to evacuate their homes on Tuesday amid heavy rain and the risk of a dam failure.`\
 https://nytimes.com/2024/07/16/us/nashville-illinois-dam-failure.html
-
-**Breaking at the 2024 Paris Olympics: How it got here, format and how to watch**\
-`Born from 1970s block parties in the Bronx, N.Y., breaking makes its Olympic debut next month.`\
-https://nytimes.com/athletic/5632505/2024/07/16/breaking-2024-paris-olympics-dance-format-watch/
-
-**Jack Black Ends Tenacious D Tour After Bandmate Jokes About Trump Shooting**\
-`At a concert in Australia, Kyle Gass made a comment suggesting that he wished the shooter had not missed former President Trump during an assassination attempt.`\
-https://nytimes.com/2024/07/16/arts/music/jack-black-tenacious-d-tour-trump-shooting.html
-
-**Trump Returns With a Different Look. Does That Mean a Different Tone?**\
-`The first night of the Republican National Convention sought to strike a new note. But some of the lyrics were familiar.`\
-https://nytimes.com/2024/07/16/arts/television/trump-rnc-milwaukee.html
 
