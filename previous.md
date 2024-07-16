@@ -1,3 +1,7 @@
+**The Transfer DealSheet: Yoro latest, Williams interest and Calafiori update**\
+`This is the weekly edition of The Transfer DealSheet, your place for everything transfers during the summer window`\
+https://nytimes.com/athletic/5638415/2024/07/16/manchester-united-transfer-latest-real-madrid-arsenal/
+
 **Taiwan’s Blunt-Talking Leader Faces China’s Backlash**\
 `China is putting more military and political pressure on Taiwan and its new president, whose rhetoric has been sharper than his predecessor’s.`\
 https://nytimes.com/2024/07/16/world/asia/taiwan-china-lai-ching-te.html
@@ -23,7 +27,7 @@ https://nytimes.com/2024/07/16/us/politics/trump-first-night-rnc.html
 https://nytimes.com/2024/07/16/us/politics/trump-vance-rnc-takeaways.html
 
 **Jaylen Brown talks Team USA snub, says Nike involved**\
-`“I do for sure," Brown said Tuesday when asked if he believed Nike influenced the decision.`\
+`“I do for sure," Brown said Monday when asked if he believed Nike influenced the decision.`\
 https://nytimes.com/athletic/5640340/2024/07/16/jaylen-brown-team-usa-nike/
 
 **Crystal Palace will savour their stars shining at major tournaments**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5626583/2024/07/16/crystal-palace-guehi-lerma-euro-
 **Lopetegui's first match analysed: Kilman debut, Guilherme's speed, high-press tactics**\
 `What we learned from Lopetegui's first game in charge`\
 https://nytimes.com/athletic/5639334/2024/07/16/west-ham-lopetegui-ferencvaros-kitzbuhel/
-
-**'Relegation hurt - I'm glad I've left with Southampton back in the Premier League'**\
-`The left-back has swapped Southampton for a new start in Seville with Real Betis - he has fond memories of Hasenhuttl and more in England`\
-https://nytimes.com/athletic/5625885/2024/07/16/romain-perraud-southampton-real-betis/
 

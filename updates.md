@@ -1,3 +1,11 @@
+**The Transfer DealSheet: Yoro latest, Williams interest and Calafiori update**\
+`This is the weekly edition of The Transfer DealSheet, your place for everything transfers during the summer window`\
+https://nytimes.com/athletic/5638415/2024/07/16/manchester-united-transfer-latest-real-madrid-arsenal/
+
+**Jaylen Brown talks Team USA snub, says Nike involved**\
+`“I do for sure," Brown said Monday when asked if he believed Nike influenced the decision.`\
+https://nytimes.com/athletic/5640340/2024/07/16/jaylen-brown-team-usa-nike/
+
 **Taiwan’s Blunt-Talking Leader Faces China’s Backlash**\
 `China is putting more military and political pressure on Taiwan and its new president, whose rhetoric has been sharper than his predecessor’s.`\
 https://nytimes.com/2024/07/16/world/asia/taiwan-china-lai-ching-te.html
