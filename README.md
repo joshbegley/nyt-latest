@@ -1,3 +1,11 @@
+**U.S. Accuses Former C.I.A. Analyst of Working for South Korea**\
+`Sue Mi Terry, a North Korea expert with the Council on Foreign Relations, was charged with acting as an agent for Seoul after leaving the intelligence agency.`\
+https://nytimes.com/2024/07/16/nyregion/sue-mi-terry-cia-south-korea.html
+
+**Air-Conditioning Is a Perk Many New York Homeless Shelters Don’t Allow**\
+`Families living in city homeless shelters need a doctor’s note to install air-conditioning units. But some residents say shelters still make it difficult to get them.`\
+https://nytimes.com/2024/07/16/nyregion/air-conditioning-homeless-shelters.html
+
 **Wednesday Briefing: A Turbulent Moment in U.S. Politics**\
 `Plus, Israeli strikes killed more than 20 people in Gaza.`\
 https://nytimes.com/2024/07/16/briefing/biden-nomination-trump-rnc.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5641125/2024/07/16/pedro-rocha-spain-suspended/
 **Menendez ‘Deeply Disappointed’ With Guilty Verdict**\
 `Senator Bob Menendez, Democrat of New Jersey, was convicted on all counts for bribery, fraud and extortion charges for an alleged scheme to sell his office to foreign powers and businessmen in exchange for money, a luxury car and solid gold bars.`\
 https://nytimes.com/video/us/politics/100000009575222/bob-menendez-convicted.html
-
-**Man Fatally Shot by Visiting Police Officers Near R.N.C., Official Says**\
-`The officers were part of a contingent of 4,500 law enforcement officials who came to Milwaukee to assist local police with the convention.`\
-https://nytimes.com/2024/07/16/us/milwaukee-shooting-republican-national-convention.html
-
-**Former Syrian Official in Charge of Notorious Prison Is Arrested in California**\
-`Samir Ousman al-Sheikh, who was seeking U.S. citizenship, is accused of falsely describing whether he persecuted anyone for their political beliefs or had been involved in any killings.`\
-https://nytimes.com/2024/07/16/us/politics/syrian-official-arrested-adra-prison.html
 
