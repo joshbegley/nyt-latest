@@ -1,3 +1,7 @@
+**What Trump Sees in J.D. Vance, His New Apprentice**\
+`The former president was probably thinking of 2028 and beyond — and where he wants the G.O.P. to go.`\
+https://nytimes.com/2024/07/16/opinion/jd-vance-trump-apprentice.html
+
 **I.M.F. Sees Signs of Cooling in U.S. Economy**\
 `The International Monetary Fund warned that inflation remained stubbornly high and that protectionism posed a risk to the global economic outlook.`\
 https://nytimes.com/2024/07/16/business/imf-world-economic-outlook-report.html
