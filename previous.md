@@ -1,40 +1,40 @@
-**D.N.C. Pours $15 Million Into State Parties in Top Battlegrounds**\
-`The Democratic National Committee is investing heavily in seven battleground states, in what it says is the earliest such infusion of cash in recent history.`\
-https://nytimes.com/2024/07/16/us/politics/dnc-money.html
+**D.N.C. Aims to Push Biden Toward Nomination Next Week, Despite Doubts**\
+`Leaders of the Democratic National Committee are aiming for a process that would formalize the nomination by the end of July, even as Democrats remain fiercely split over his candidacy.`\
+https://nytimes.com/2024/07/16/us/politics/dnc-biden-nominee.html
 
-**Republican Convention: Best and Worst Moments From Night 1**\
-`Here’s what our columnists and contributors thought of the opening night for Republicans in Milwaukee.`\
-https://nytimes.com/2024/07/16/opinion/republican-convention-trump-vance.html
+**Biden Returns to Campaigning, Hoping to Refocus on the Basics**\
+`The president plans to address core issues like the economy and housing costs as he courts Black and Hispanic voters in Nevada. The events of recent weeks are sure to follow.`\
+https://nytimes.com/2024/07/16/us/politics/biden-campaigning-nevada.html
 
-**Visiting an Elusive Writer, and Revisiting His Masterpiece**\
-`Our critic talks to Edward P. Jones about how he imagined “The Known World,” recently voted the best work of fiction by an American writer in the 21st century.`\
-https://nytimes.com/2024/07/16/books/review/edward-p-jones-interview-the-known-world.html
+**With J.D. Vance and a Bandaged Ear, Trump Gets His Party Started**\
+`A dispatch from Night 1 of the Republican National Convention in Milwaukee.`\
+https://nytimes.com/2024/07/16/podcasts/with-jd-vance-and-a-bandaged-ear-trump-gets-his-party-started.html
 
-**How Osgood Perkins Gave a Jolt to ‘Longlegs’**\
-`The filmmaker, who is the son of the “Psycho” star Anthony Perkins, discusses horror inspirations, his father’s legacy, evil dolls and working with Nicolas Cage.`\
-https://nytimes.com/2024/07/16/movies/longlegs-osgood-perkins-interview.html
+**What to Expect From Wednesday’s Emmy Nominations**\
+`The top nominees are announced at 11:30 a.m. ET. “Shogun” and “The Bear” are poised to have a big day.`\
+https://nytimes.com/2024/07/16/arts/television/what-to-expect-from-wednesdays-emmy-nominations.html
 
-**What Trump 2.0 Could Mean for the Environment**\
-`If Donald Trump returns to the White House, he would likely face fewer legal and bureaucratic obstacles to dramatically remake the E.P.A.`\
-https://nytimes.com/2024/07/16/climate/trump-epa-regulation.html
+**Move Over, La Guardia and Newark: 18 Artists to Star at New J.F.K. Terminal**\
+`Terminal 6 at Kennedy International Airport will feature work by Charles Gaines, Barbara Kruger and more. Developers of new terminals must invest in public art.`\
+https://nytimes.com/2024/07/16/arts/design/artists-commissioned-jfk-airport.html
 
-**The ‘Converse Conductor’ Fighting Elitism in Classical Music**\
-`Jonathon Heyward wears sneakers onstage and embraces genres like jazz as part of his effort to bring more people into the concert hall.`\
-https://nytimes.com/2024/07/16/arts/music/the-converse-conductor-fighting-elitism-in-classical-music.html
+**‘This Storm Has Broken People’: After Beryl, Some Consider Leaving**\
+`Devastating, back-to-back power outages have led some in Houston to consider whether they want to stay in the city they love.`\
+https://nytimes.com/2024/07/16/us/houston-exodus-climate-hurricane-beryl.html
 
-**Cowboy Boots Are the Great American Icebreaker**\
-`Its easier to kick off a conversation when you’re sporting some fine footwear.`\
-https://nytimes.com/2024/07/16/magazine/cowboy-boots-icebreaker.html
+**What Polls Tell Us About the State of the 2024 Race**\
+`Why Republicans are jubilant and Democrats are despondent.`\
+https://nytimes.com/2024/07/16/opinion/trump-biden-vance.html
 
-**The World Is Pushing Clean Energy. Oil Companies Are Thriving.**\
-`High prices and growing demand have helped U.S. oil producers take in record profits despite global efforts to spur greater use of renewable energy and electric cars.`\
-https://nytimes.com/2024/07/16/business/energy-environment/oil-company-profits.html
+**The Poets Have Taken Governors Island**\
+`Thousands of poetry fans and practitioners took the ferry out over the weekend to absorb one another’s work at the annual New York City Poetry Festival.`\
+https://nytimes.com/2024/07/16/style/nyc-poetry-festival-governors-island.html
 
-**A Brutal Gang, a Dead Baby and a Struggling Immigrant L.A.**\
-`Jesse Katz’s true-crime narrative, “The Rent Collectors,” delivers a nuanced portrait of a community racked by poverty and violence and deprived of opportunities to get ahead.`\
-https://nytimes.com/2024/07/16/books/review/the-rent-collectors-jesse-katz.html
+**She Didn’t Like His Song, So She Tried to Eat Him**\
+`It’s not easy being green, golden and male, according to a researcher’s observation of attempted frog cannibalism in Australia.`\
+https://nytimes.com/2024/07/16/science/cannibal-female-frog.html
 
-**With a Killer Onstage and a Body Part in the Back, the Show Went On**\
-`The creators of “Inspired by True Events” wanted their new immersive theater piece to convey ominousness, not a haunted-house riff on “Noises Off.”`\
-https://nytimes.com/2024/07/16/theater/inspired-by-true-events-true-crime-play.html
+**After Saturday, Trump’s Devotees See ‘God’s Protection’**\
+`Some of Donald J. Trump’s followers had long viewed him as handpicked by God. The attempted assassination has only increased such quasi-religious devotion and rhetoric.`\
+https://nytimes.com/2024/07/16/us/politics/trump-followers-devotion-shooting.html
 
