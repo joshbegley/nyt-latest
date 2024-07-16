@@ -1,3 +1,7 @@
+**Inside Spain's celebrations: Morata's star turn, little sleep and De la Fuente's singalong**\
+`Spain celebrated their latest European Championship success with a public party in Madrid that lasted into the early hours`\
+https://nytimes.com/athletic/5640357/2024/07/16/spain-euro-2024-celebrations/
+
 **Introducing ‘Scoop City,’ a new NFL podcast with Dianna Russini and Chase Daniel**\
 `The show debuts Tuesday, with Chiefs coach Andy Reid as the first guest`\
 https://nytimes.com/athletic/5638721/2024/07/16/scoop-city-new-nfl-podcast-dianna-russini-chase-daniel/
