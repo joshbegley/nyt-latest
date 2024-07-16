@@ -1,3 +1,11 @@
+**“Illegal immigration is crushing American workers.”**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/illegal-immigration-is-crushing-american-workers
+
+**Astros prioritize college pitching on Day 2 of MLB Draft**\
+`Astros scouting director Cam Pendino supplies scouting reports on the collegians the Astros selected in rounds three through 10.`\
+https://nytimes.com/athletic/5640109/2024/07/15/mlb-draft-astros-college-pitchers/
+
 **From veterans to rookies, first-time MLB All-Stars revel in moment: 'Today is the reward'**\
 `When the All-Stars took the field for their first workout on Monday, 37 of them were there for the first time.`\
 https://nytimes.com/athletic/5640123/2024/07/15/mlb-first-time-all-stars/
@@ -31,12 +39,4 @@ https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/our-open-borders-hav
 **“They promised normalcy and gave us Transgender Visibility Day on Easter Sunday.”**\
 `By Angelo Fichera`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/they-promised-normalcy-and-gave-us-transgender-visibility-day-on-easter-sunday
-
-**Mark Robinson, North Carolina’s Republican nominee for governor, gets his biggest stage yet.**\
-`Mr. Robinson, has been widely criticized for comments perceived as antisemitic and hateful, instead focused on the economy`\
-https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/mark-robinson-north-carolinas-republican-nominee-for-governor-gets-his-biggest-stage-yet
-
-**Two Hikers Die in Canyonlands National Park in 100-Degree Temperatures**\
-`A father and daughter were found dead in the park after they texted 911 that they ran out of water and were lost while hiking in triple-digit temperatures.`\
-https://nytimes.com/2024/07/15/us/canyonlands-hiking-deaths-utah.html
 
