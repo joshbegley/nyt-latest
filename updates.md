@@ -1,3 +1,7 @@
+**Gibraltar complain about Spain's 'extremely provocative' Euro 2024 celebrations**\
+`Gibraltar&#8217;s Football Association (FA) has lodged a complaint with European football&#8217;s governing body UEFA over &#8220;extremely provocative and insulting&#8221; celebrations by players of Spain&#8217;s national team following their European Championship success.`\
+https://nytimes.com/athletic/5640530/2024/07/16/gibraltar-spain-rodri-euro-2024/
+
 **Wales’s First Minister Steps Down After Four Colleagues Quit**\
 `Vaughan Gething became the first minister of the Welsh Parliament in March. But a growing controversy over campaign financing precipitated his decision to step down.`\
 https://nytimes.com/2024/07/16/world/europe/wales-vaughan-gething-resigns.html
