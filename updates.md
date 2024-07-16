@@ -1,3 +1,7 @@
+**After a National Anthem Flub, Singer Says She’s Going to Rehab**\
+`Ingrid Andress, a country star, blamed drinking for her performance of “The Star-Spangled Banner” during Major League Baseball’s All-Star Game festivities.`\
+https://nytimes.com/2024/07/16/style/ingrid-andress-national-anthem-rehab.html
+
 **How the Israeli Hostage Rescue Led to One of Gaza’s Deadliest Days**\
 `A firefight amid a recovery mission. At least 19 Israeli airstrikes. Scores of Palestinians killed. A Times visual analysis shows how the June 8 operation had such a high toll.`\
 https://nytimes.com/interactive/2024/07/16/world/middleeast/israel-hostage-rescue-nuseirat.html
