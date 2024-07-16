@@ -1,3 +1,7 @@
+**France file complaint over 'unacceptable racist' chants by Argentina players**\
+`The French Football Federation (FFF) says it has filed a legal complaint over an &#8220;unacceptable, racist and discriminatory&#8221; chant made by Argentina players following their Copa America success on Sunday night.`\
+https://nytimes.com/athletic/5640776/2024/07/16/france-complaint-fifa-argentina-racist-chant/
+
 **Appraising J.D. Vance as Trump’s Running Mate**\
 `Readers discuss his credentials, his devotion to the ex-president and how the choice might affect the race.`\
 https://nytimes.com/2024/07/16/opinion/letters/jd-vance-donald-trump.html
