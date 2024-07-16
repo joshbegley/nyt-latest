@@ -1,3 +1,7 @@
+**What I learned about Lakers' patient offseason strategy — and how long it might last**\
+`After missing out on their initial targets, the Lakers are content to wait out the market before making another move. `\
+https://nytimes.com/athletic/5639681/2024/07/16/lakers-rumors-roster-trade-free-agency/
+
 **Jets talked to now-Steelers OC Smith in offseason**\
 `Aaron Rodgers was made aware the Jets had conversations this offseason about other offensive coordinator options, Dianna Russini reports.`\
 https://nytimes.com/athletic/5640268/2024/07/16/jets-arthur-smith-hackett-rodgers-scoop-city/
