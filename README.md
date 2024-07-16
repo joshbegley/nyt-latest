@@ -1,3 +1,15 @@
+**‘Bright Objects’ Brings Together a Cult, a Comet and a Widow Out for Justice**\
+`Set among the fevered residents of a remote Australian town, Ruby Todd’s debut novel considers how grief can draw people to extreme beliefs.`\
+https://nytimes.com/2024/07/16/books/review/bright-objects-ruby-todd.html
+
+**The Kimchi Masters of South Korea Can Teach You a Thing or Two**\
+`A former pop-singer, a YouTuber and a pioneering C.E.O. are among the select five given a special government designation. And they’re sharing advice for home cooks.`\
+https://nytimes.com/2024/07/16/dining/south-korea-kimchi-masters.html
+
+**If Your Electric Meter Is So Smart, Why Is the Power Grid So Dumb?**\
+`The data they generate must be standardized and widely available to be useful. Right now, it mostly isn’t.`\
+https://nytimes.com/2024/07/16/opinion/electric-bills-consumers.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/07/16/crosswords/spelling-bee-forum.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/16/science/paint-rock-texas-native-american.html
 **Up to $1 Billion May Go to Waste After Hochul’s Congestion Pricing Halt**\
 `Transit leaders had already allocated hundreds of millions of dollars before Gov. Kathy Hochul’s last-minute reversal on the long-awaited tolling plan.`\
 https://nytimes.com/2024/07/16/nyregion/congestion-pricing-cost-hochul.html
-
-**The Transfer DealSheet: Yoro latest, Williams interest and Calafiori update**\
-`This is the weekly edition of The Transfer DealSheet, your place for everything transfers during the summer window`\
-https://nytimes.com/athletic/5638415/2024/07/16/manchester-united-transfer-latest-real-madrid-arsenal/
-
-**Taiwan’s Blunt-Talking Leader Faces China’s Backlash**\
-`China is putting more military and political pressure on Taiwan and its new president, whose rhetoric has been sharper than his predecessor’s.`\
-https://nytimes.com/2024/07/16/world/asia/taiwan-china-lai-ching-te.html
-
-**Inside Spain's celebrations: Morata's star turn, little sleep and De la Fuente's singalong**\
-`Spain celebrated their latest European Championship success with a public party in Madrid that lasted into the early hours`\
-https://nytimes.com/athletic/5640357/2024/07/16/spain-euro-2024-celebrations/
 
