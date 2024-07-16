@@ -30,7 +30,7 @@ https://nytimes.com/2024/07/16/us/politics/biden-election.html
 `Senator Robert Menendez, Democrat of New Jersey, was found guilty of bribery, conspiracy, extortion, obstruction of justice and acting as a foreign agent.`\
 https://nytimes.com/2024/07/16/nyregion/senator-robert-menendez-bribery-conviction.html
 
-**Wimbledon 2024 review: Best match, favourite player, and most Wimbledon moment**\
+**Wimbledon 2024 review: Best match, favourite player and most Wimbledon moment**\
 `The Athletic's tennis team reflect on Wimbledon 2024, picking the players, matches, and moments of the tournament`\
 https://nytimes.com/athletic/5640780/2024/07/16/wimbledon-2024-review-best-matches-best-shots-highlights/
 
