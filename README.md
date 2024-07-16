@@ -1,3 +1,7 @@
+**Could MLB participate in the 2028 Olympics?**\
+`An altered season calendar would be needed to accomodate the 2028 summer games in Los Angeles, though what form that would take is unclear.`\
+https://nytimes.com/athletic/5641866/2024/07/16/mlb-summer-olympics-2028/
+
 **Videos show Secret Service snipers were focused toward the gunman before the shooting.**\
 `By Aric Toler`\
 https://nytimes.com/live/2024/07/16/us/trump-shooting-investigation/trump-shooting-secret-service-snipers
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/16/us/politics/trump-shooting-butler-pennsylvania-po
 **Caitlin Clark to be painted on NASCAR hood during Brickyard 400**\
 `Panini America and Stewart-Haas Racing partnered up for a sponsorship and paint scheme featuring Clark.`\
 https://nytimes.com/athletic/5641720/2024/07/16/caitlin-clark-nascar-panini-brickyard-400/
-
-**James B. Sikking, Actor Best Known for ‘Hill Street Blues,’ Dies at 90**\
-`His natural rectitude landed him roles on hundreds of TV dramas and comedies, including the beloved “Car Pool Lane” episode of “Curb Your Enthusiasm.”`\
-https://nytimes.com/2024/07/16/arts/television/james-b-sikking-dead.html
 
