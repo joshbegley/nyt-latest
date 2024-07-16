@@ -1,3 +1,7 @@
+**A ‘Breathtaking’ Dismissal of the Trump Documents Case**\
+`Readers strongly disagree with Judge Aileen Cannon’s decision.`\
+https://nytimes.com/2024/07/16/opinion/letters/trump-documents-case-judge-cannon.html
+
 **Vance is well-known in China, which he calls a threat to the U.S.**\
 `By Keith Bradsher`\
 https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/vance-is-well-known-in-china-which-he-calls-a-threat-to-the-us
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5634372/2024/07/16/steve-kerr-warriors-terry-stotts
 **From Reggie to Rooker: Oakland A's memorable All-Star Game moments**\
 `A look at some of the A's most memorable All-Star Game moments as Mason Miller and Mark Kotsay prepare to make the trip to Arlington.`\
 https://nytimes.com/athletic/5609420/2024/07/16/oakland-athletics-all-star-game-moments/
-
-**Como deny allegation of racism towards Wolves' Hwang**\
-`Italian club Como have denied their player was intentionally racist towards Wolverhampton Wanderers forward Hwang Hee-chan and accused Wolves of “blowing the incident out of proportion”.`\
-https://nytimes.com/athletic/5640698/2024/07/16/hwang-hee-chan-racism-como-wolves/
 
