@@ -1,3 +1,16 @@
+**With New York’s Help, a Center of Art and Protest to Get a New Home**\
+`ABC No Rio, a cultural center on the Lower East Side, broke ground on the new building, which will replace the tenement it operated out of for more than 40 years.`\
+https://nytimes.com/2024/07/16/arts/design/abc-no-rio-new-home.html
+
+**Blues' Torey Krug could miss 2024-25 season with pre-arthritic ankle condition**\
+`The veteran defenseman will be re-evaluated in six to eight weeks and could need surgery, which would cost him next season.`\
+https://nytimes.com/athletic/5642045/2024/07/16/blues-torey-krug-ankle-condition/
+
+**Canucks sign Artūrs Šilovs to 2-year contract**\
+`The 23-year-old remains the crown jewel of the club's goalie development pipeline.
+`\
+https://nytimes.com/athletic/5641919/2024/07/16/canucks-arturs-silovs-contract/
+
 **Canucks sign Artūrs Šilovs to 2-year contract**\
 `The 23-year-old remains the crown jewel of the club's goalie development pipeline.
 `\
