@@ -1,3 +1,7 @@
+**Jaylen Brown talks Team USA snub, says Nike involved**\
+`“I do for sure," Brown said Tuesday when asked if he believed the Nike influenced the decision.`\
+https://nytimes.com/athletic/5640340/2024/07/16/jaylen-brown-team-usa-nike/
+
 **Crystal Palace will savour their stars shining at major tournaments**\
 `From Guehi and Eze at Euro 2024 to Lerma and Munoz at the Copa America, Palace players have made their mark this summer`\
 https://nytimes.com/athletic/5626583/2024/07/16/crystal-palace-guehi-lerma-euro-2024-copa-america/

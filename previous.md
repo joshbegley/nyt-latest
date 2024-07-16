@@ -1,3 +1,7 @@
+**Jaylen Brown talks Team USA snub, says Nike involved**\
+`“I do for sure," Brown said Tuesday when asked if he believed the Nike influenced the decision.`\
+https://nytimes.com/athletic/5640340/2024/07/16/jaylen-brown-team-usa-nike/
+
 **Crystal Palace will savour their stars shining at major tournaments**\
 `From Guehi and Eze at Euro 2024 to Lerma and Munoz at the Copa America, Palace players have made their mark this summer`\
 https://nytimes.com/athletic/5626583/2024/07/16/crystal-palace-guehi-lerma-euro-2024-copa-america/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5628740/2024/07/16/pep-guardiola-celtics-chess-spor
 **Who is on track to win the men's Ballon d'Or for 2023-24?**\
 `In the wake of Euro 2024 and the 2024 Copa America, our writers give their tips for the 2023-24 men's Ballon d'Or award`\
 https://nytimes.com/athletic/5638878/2024/07/16/ballon-dor-rodri-kroos-bellingham-lautaro/
-
-**Brand Mbappe: Real Madrid's new galactico and his unique commercial power**\
-`As Real Madrid's new global superstar signing is presented at the Bernabeu, we profile the growth of his off-field brand`\
-https://nytimes.com/athletic/5630907/2024/07/16/kylian-mbappe-real-madrid-brand-business/
 
