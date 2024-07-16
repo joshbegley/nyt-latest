@@ -1,3 +1,15 @@
+**A Poet Goes to War**\
+`“Revolution is the job of poets and artists,” says Ko Maung Saungkha, leader of a rebel militia fighting the Myanmar dictatorship. He is not the only poet commander in a country with a strong tradition of political verse.`\
+https://nytimes.com/2024/07/16/world/asia/myanmar-poet-ko-maung-saungkha.html
+
+**10 Years After Eric Garner’s Death, an Opera Honors His Legacy**\
+`“The Ritual of Breath Is the Rite to Resist,” part of Lincoln Center’s summer festival, aims to shine light on police violence in the United States.`\
+https://nytimes.com/2024/07/16/arts/music/eric-garner-opera-lincoln-center.html
+
+**In Leaked Phone Call, Trump Tries to Coax Kennedy Into His Camp**\
+`Robert F. Kennedy Jr. apologized for a leaked video of the phone call, in which Donald Trump offers anti-vaccine messaging and says the wound to his ear “felt like the world’s largest mosquito.”`\
+https://nytimes.com/2024/07/16/us/politics/rfk-trump-call.html
+
 **Evan Wright, Award-Winning Reporter and Author of ‘Generation Kill,’ Dies at 59**\
 `Mr. Wright was known for his immersive journalism that focused on subjects outside mainstream media coverage to explore the nooks and crannies of American life.`\
 https://nytimes.com/2024/07/16/us/evan-wright-generation-kill-dead.html
