@@ -1,3 +1,7 @@
+**Kylian Mbappe and the story of Real Madrid's decade-long 'obsession' to sign him**\
+`From his visit to the club as a kid to the dramatic U-turn of May 2022, Madrid and Mbappe go back a very long way `\
+https://nytimes.com/athletic/5208094/2024/07/16/kylian-mbappe-real-madrid-psg-florentino-perez/
+
 **The Pulse: NFL stuff is finally happening**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5640370/2024/07/16/nfl-training-camp-aaron-rodgers-texans-matthew-stafford/
