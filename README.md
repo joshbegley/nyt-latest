@@ -1,3 +1,11 @@
+**Grass Lawns: Lavish and Lamentable**\
+`We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Lucy Robb, age 17.`\
+https://nytimes.com/2024/07/16/learning/grass-lawns-lavish-and-lamentable.html
+
+**‘As a Muslim, Those Words Pierce My Soul’: The Week 4 Winner of Our Summer Reading Contest**\
+`Jawaher Korichi writes about how the two sides of her family — one wealthy and one not — experience the Hajj differently.`\
+https://nytimes.com/2024/07/16/learning/as-a-muslim-those-words-pierce-my-soul-the-week-4-winner-of-our-summer-reading-contest.html
+
 **Local Police Were Inside Building Used by Gunman, Secret Service Director Says**\
 `“There was local police in the area that were responsible for the outer perimeter of the building,” Kimberly A. Cheatle, the director of the Secret Service said.`\
 https://nytimes.com/2024/07/16/us/local-police-were-inside-building-used-by-gunman-secret-service-director-says.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/16/us/trump-shooting-investigation
 **Mbappe at Real Madrid unveiling: 'Today, my dream comes true'**\
 `Kylian Mbappe says he dreamed of playing for Real Madrid after being unveiled at the Santiago Bernabeu on Tuesday.`\
 https://nytimes.com/athletic/5640692/2024/07/16/mbappe-real-madrid-unveiling/
-
-**What Trump Sees in J.D. Vance, His New Apprentice**\
-`The former president was probably thinking of 2028 and beyond — and where he wants the G.O.P. to go.`\
-https://nytimes.com/2024/07/16/opinion/jd-vance-trump-apprentice.html
-
-**I.M.F. Sees Signs of Cooling in U.S. Economy**\
-`The International Monetary Fund warned that inflation remained stubbornly high and that protectionism posed a risk to the global economic outlook.`\
-https://nytimes.com/2024/07/16/business/imf-world-economic-outlook-report.html
 
