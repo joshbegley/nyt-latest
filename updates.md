@@ -1,3 +1,11 @@
+**How Would Ohio Replace Vance in the Senate if Trump Wins in November?**\
+`State law instructs the governor to appoint a replacement until a special election can be held. Several Republican names are already circulating as potential prospects.`\
+https://nytimes.com/2024/07/16/us/politics/how-would-ohio-replace-vance-in-the-senate-if-trump-wins-in-november.html
+
+**The gunman’s high school guidance counselor: ‘Something snapped.’**\
+`Jim Knapp, who counseled Thomas Crooks, recalled him as someone who stuck to himself, but said there were no early alarms about the trouble to come.`\
+https://nytimes.com/live/2024/07/16/us/trump-shooting-investigation/the-gunmans-high-school-guidance-counselor-something-snapped
+
 **How Vance seeks to reorient the Republicans’ approach to business.**\
 `By Dealbook`\
 https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/how-jd-vance-seeks-to-reorient-the-republicans-approach-to-business
