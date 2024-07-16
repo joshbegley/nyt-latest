@@ -6,9 +6,9 @@ https://nytimes.com/2024/07/16/us/politics/rnc-day-2-speakers.html
 `Hear songs from Angelina Mango, Patty Pravo and an unexpected hit by Conan Gray.`\
 https://nytimes.com/2024/07/16/arts/music/amplifier-newsletter-italian-pop.html
 
-**Menendez promises to appeal, amid calls for his resignation.**\
-`By Nicholas Fandos`\
-https://nytimes.com/2024/07/16/nyregion/menendez-promises-to-appeal-amid-calls-for-his-resignation.html
+**Menendez Has Been Convicted. What Happens Next?**\
+`Senator Robert Menendez immediately vowed to appeal his conviction on 16 felony counts. It is not clear whether he plans to resign his Senate seat.`\
+https://nytimes.com/2024/07/16/nyregion/menendez-appeal-verdict-resignation.html
 
 **Five MLS clubs get retro third kits for the remainder of 2024**\
 `Only five clubs get third kits this season, but there will be more to come in 2025. `\
