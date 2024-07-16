@@ -1,3 +1,15 @@
+**Guess Who’s Not Coming to Milwaukee? Bush, Quayle, Pence, Cheney or Romney**\
+`There is a lot to be learned about today’s Republican Party from who is planning to skip the party’s nominating convention.`\
+https://nytimes.com/2024/07/16/us/politics/rnc-bush-quayle-pence-cheney-romney.html
+
+**Republican Speakers Wrestle With a ‘Unity’ Theme**\
+`Some of the most bombastic Republicans made calls to tone down the rhetoric after the attempt on Donald Trump’s life, but animosity toward President Biden persisted.`\
+https://nytimes.com/2024/07/16/us/politics/rnc-unity-theme.html
+
+**What to Know About the Intricate Menendez Corruption Case**\
+`Senator Robert Menendez was found guilty of a wide-ranging international conspiracy stretching from New Jersey to Egypt.`\
+https://nytimes.com/2024/07/16/nyregion/menendez-corruption-case-explained.html
+
 **Two powerful Silicon Valley venture capitalists are said to be ready to back Trump.**\
 `By Erin Griffith and Theodore Schleifer`\
 https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/two-powerful-silicon-valley-venture-capitalists-are-said-to-be-ready-to-back-trump
