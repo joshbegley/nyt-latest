@@ -1,3 +1,7 @@
+**The Sex Advice That Changed Us**\
+`When our parents were silent, unsure or sexually repressed, there was always Dr. Ruth.`\
+https://nytimes.com/2024/07/16/well/family/dr-ruth-death-memories.html
+
 **Russia Won’t Silence Masha Gessen**\
 `The journalist unflinchingly asserts the right to seek out and report the truth.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/masha-gessen-press-freedom

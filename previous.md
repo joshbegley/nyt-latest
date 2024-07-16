@@ -1,3 +1,7 @@
+**The Sex Advice That Changed Us**\
+`When our parents were silent, unsure or sexually repressed, there was always Dr. Ruth.`\
+https://nytimes.com/2024/07/16/well/family/dr-ruth-death-memories.html
+
 **Russia Won’t Silence Masha Gessen**\
 `The journalist unflinchingly asserts the right to seek out and report the truth.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/masha-gessen-press-freedom
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/16/nyregion/air-conditioning-homeless-shelters.html
 **Wednesday Briefing: A Turbulent Moment in U.S. Politics**\
 `Plus, Israeli strikes killed more than 20 people in Gaza.`\
 https://nytimes.com/2024/07/16/briefing/biden-nomination-trump-rnc.html
-
-**With New York’s Help, a Center of Art and Protest to Get a New Home**\
-`ABC No Rio, a cultural center on the Lower East Side, broke ground on the new building, which will replace the tenement it operated out of for more than 40 years.`\
-https://nytimes.com/2024/07/16/arts/design/abc-no-rio-new-home.html
 
