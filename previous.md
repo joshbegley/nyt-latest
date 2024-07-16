@@ -1,6 +1,6 @@
 **Trump-Vance Administration Could Herald New Era for Dollar**\
 `Both candidates on the Republican ticket have argued that the U.S. currency should be weaker to support American exports.`\
-https://nytimes.com/2024/07/16/us/politics/trump-vance-administration-could-herald-new-era-for-dollar.html
+https://nytimes.com/2024/07/16/us/politics/trump-vance-us-dollar.html
 
 **Blues' Torey Krug could miss 2024-25 season with pre-arthritic ankle issues**\
 `The veteran defenseman will be re-evaluated in six to eight weeks and could need surgery, which would cost him next season.`\
