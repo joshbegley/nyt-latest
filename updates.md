@@ -1,3 +1,7 @@
+**From veterans to rookies, first-time MLB All-Stars revel in moment: 'Today is the reward'**\
+`When the All-Stars took the field for their first workout on Monday, 37 of them were there for the first time.`\
+https://nytimes.com/athletic/5640123/2024/07/15/mlb-first-time-all-stars/
+
 **Dr. Ruth’s Tips for a Happy Life**\
 `Ruth Westheimer loved to give advice — and often strayed from her area of expertise as she tried, in her words, “to make the world a better place.”`\
 https://nytimes.com/2024/07/15/style/dr-ruths-tips-happiness.html
