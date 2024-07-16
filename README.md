@@ -34,7 +34,7 @@ https://nytimes.com/2024/07/16/business/media/carlos-watson-ozy-media-guilty.htm
 `The rush by conservatives to pin blame for the shooting on women in the protective detail reflects a broader opposition among Republicans to diversity efforts in hiring.`\
 https://nytimes.com/2024/07/16/us/politics/secret-service-female-agents.html
 
-**Latino Republicans and Independents Back Trump’s Deportation Plan—to a Point**\
+**Latino Republicans and Independents Back Trump’s Deportation Plan, to a Point**\
 `Hispanic voters disillusioned with Democrats want tougher immigration enforcement, but dozens of interviews showed many unfamiliar with details of Trump’s proposal.`\
 https://nytimes.com/2024/07/16/us/politics/trump-latino-voters-deportation.html
 
