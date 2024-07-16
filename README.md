@@ -1,3 +1,11 @@
+**Evan Wright, Award-Winning Reporter and Author of ‘Generation Kill,’ Dies at 59**\
+`Mr. Wright was known for his immersive journalism that focused on subjects outside mainstream media coverage to explore the nooks and crannies of American life.`\
+https://nytimes.com/2024/07/16/us/evan-wright-generation-kill-dead.html
+
+**In Leaked Phone Call, Trump Tries to Coax Kennedy Into His Camp**\
+`Robert F. Kennedy Jr. apologized for a leaked video of the phone call, in which Donald Trump says an endorsement of him “would be so good for you and so big for you” and offered up anti-vaccine messaging.`\
+https://nytimes.com/2024/07/16/us/politics/rfk-trump-call.html
+
 **FPL managers able to bank up to five transfers in changes to game for 2024-25**\
 `Fantasy Premier League managers will be able to bank up to five free transfers as part of new changes to the game ahead of the 2024-25 season.`\
 https://nytimes.com/athletic/5640967/2024/07/16/fpl-changes-transfers-2024-25/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/16/us/local-police-were-inside-building-used-by-gunm
 **Chiefs' Reid addresses retirement, 3-peat talk, Kelce-Swift**\
 `Reid thinks there is no one better able to handle the fame of dating a megastar like Swift than his star tight end.`\
 https://nytimes.com/athletic/5640293/2024/07/16/andy-reid-retirement-travis-kelce-taylor-swift/
-
-**What I learned about Lakers' patient offseason strategy — and how long it might last**\
-`After missing out on their initial targets, the Lakers are content to wait out the market before making another move. `\
-https://nytimes.com/athletic/5639681/2024/07/16/lakers-rumors-roster-trade-free-agency/
-
-**Jets talked to now-Steelers OC Smith in offseason**\
-`Aaron Rodgers was made aware the Jets had conversations this offseason about other offensive coordinator options, Dianna Russini reports.`\
-https://nytimes.com/athletic/5640268/2024/07/16/jets-arthur-smith-hackett-rodgers-scoop-city/
 
