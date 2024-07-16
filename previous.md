@@ -1,3 +1,11 @@
+**Joe "Jellybean" Bryant, father to Kobe, dies at 69**\
+`Kobe credited his time in Reggio Emilia (the Italian city of Joe's team Reggiana) for being the place where he fell in love with basketball.`\
+https://nytimes.com/athletic/5641117/2024/07/16/joe-bryant-dead/
+
+**James R. Tallon Jr., Who Steered Health Care Reforms, Dies at 82**\
+`As an influential committee leader and the majority leader in the New York Assembly, he led efforts, later embraced in Washington, to expand coverage.`\
+https://nytimes.com/2024/07/16/nyregion/james-r-tallon-dead.html
+
 **The Trump Shooter and the Growing Nihilism of Young Men**\
 `The rise of post-ideological terror.`\
 https://nytimes.com/2024/07/16/opinion/trump-shooter-radicalization-men.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5640672/2024/07/16/southgate-england-manager-footba
 **How Outlets on the Right and Left Covered Trump’s Pick of J.D. Vance**\
 `Conservative commentators applauded former President Donald J. Trump’s vice-presidential pick. Liberal outlets focused on J.D. Vance’s past criticisms of his new running mate.`\
 https://nytimes.com/2024/07/16/business/media/jd-vance-media-coverage-left-right.html
-
-**Scoop City: NFC West Preview**\
-`A look at the NFC West: biggest questions, fantasy football sleepers and more.`\
-https://nytimes.com/athletic/5641311/2024/07/16/nfc-west-preview-scoop-city/
-
-**‘Imminent’ Risk of Dam Failure Prompts Evacuation in Illinois**\
-`Residents in Nashville, Ill., were told to evacuate their homes on Tuesday amid heavy rain and the risk of a dam failure.`\
-https://nytimes.com/2024/07/16/us/nashville-illinois-dam-failure.html
 

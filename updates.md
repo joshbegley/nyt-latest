@@ -1,3 +1,11 @@
+**Joe "Jellybean" Bryant, father to Kobe, dies at 69**\
+`Kobe credited his time in Reggio Emilia (the Italian city of Joe's team Reggiana) for being the place where he fell in love with basketball.`\
+https://nytimes.com/athletic/5641117/2024/07/16/joe-bryant-dead/
+
+**James R. Tallon Jr., Who Steered Health Care Reforms, Dies at 82**\
+`As an influential committee leader and the majority leader in the New York Assembly, he led efforts, later embraced in Washington, to expand coverage.`\
+https://nytimes.com/2024/07/16/nyregion/james-r-tallon-dead.html
+
 **The Trump Shooter and the Growing Nihilism of Young Men**\
 `The rise of post-ideological terror.`\
 https://nytimes.com/2024/07/16/opinion/trump-shooter-radicalization-men.html
