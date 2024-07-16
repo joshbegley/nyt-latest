@@ -1,3 +1,7 @@
+**Kings sign Quinton Byfield to 5-year extension worth $31.25 million**\
+`Byfield took a major leap in registering career highs in games played (80), goals (20), assists (35) and points (55).`\
+https://nytimes.com/athletic/5640219/2024/07/15/kings-extend-quinton-byfield/
+
 **Milwaukee Is a Beach Town? See How Well You Know the Republicans' Host City.**\
 `The Republican National Convention is heading to Milwaukee, the largest city in the key swing state of Wisconsin.`\
 https://nytimes.com/interactive/2024/07/15/us/milwaukee-republican-convention-quiz.html
