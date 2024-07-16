@@ -1,3 +1,7 @@
+**Civilian casualties in Gaza remain unacceptably high, the State Department says.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/07/16/world/israel-gaza-war-hamas/civilian-casualties-in-gaza-remain-unacceptably-high-the-state-department-says
+
 **Here’s the latest on the investigation.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/07/16/us/trump-shooting-investigation/heres-the-latest-on-the-investigation
