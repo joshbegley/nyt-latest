@@ -1,5 +1,5 @@
 **After a National Anthem Flub, Singer Says She’s Going to Rehab**\
-`Ingrid Andress, a country star, blamed drinking for her poor performance of “The Star-Spangled Banner” during Major League Baseball’s All-Star Game festivities.`\
+`Ingrid Andress, a country star, blamed drinking for her performance of “The Star-Spangled Banner” during Major League Baseball’s All-Star Game festivities.`\
 https://nytimes.com/2024/07/16/style/ingrid-andress-national-anthem-rehab.html
 
 **Larry Light, Marketer Behind Revival of McDonald’s, Dies at 83**\
