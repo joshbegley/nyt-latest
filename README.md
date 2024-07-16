@@ -4,7 +4,7 @@ https://nytimes.com/video/us/politics/100000009574831/our-reporter-on-the-gops-h
 
 **Rupert Murdoch Shows Up at Republican Convention**\
 `The media titan’s attendance in Milwaukee was another extraordinary turn in his contorted relationship with Donald J. Trump.`\
-https://nytimes.com/2024/07/16/business/media/rupert-murdoch-shows-up-at-republican-convention.html
+https://nytimes.com/2024/07/16/business/media/rupert-murdoch-rnc.html
 
 **“And while pockets are pinched, Biden is trying to force you to buy an electric vehicle.”**\
 `By Angelo Fichera`\
