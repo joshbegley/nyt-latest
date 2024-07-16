@@ -1,3 +1,7 @@
+**Israeli Strikes Kill Several People in Central and Southern Gaza**\
+`The strikes hit a United Nations school-turned-shelter in Nuseirat, central Gaza, and a site in the Mawasi area in Khan Younis, further south. Gaza’s health ministry said both strikes resulted in casualties. The Israeli military said it was targeting militants.`\
+https://nytimes.com/video/world/middleeast/100000009574297/strikes-gaza-nuseirat-khan-younis.html
+
 **Kamara departs Leeds for Rennes**\
 `Leeds United have confirmed the exit of Glen Kamara as the midfielder joins Stade Rennais on a permanent deal.`\
 https://nytimes.com/athletic/5641663/2024/07/16/glen-kamara-leeds-rennes-transfer/
