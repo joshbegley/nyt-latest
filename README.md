@@ -1,3 +1,7 @@
+**France file complaint over 'unacceptable racist' chants by Argentina players**\
+`The French Football Federation (FFF) says it has filed a legal complaint over an &#8220;unacceptable, racist and discriminatory&#8221; chant made by Argentina players following their Copa America success on Sunday night.`\
+https://nytimes.com/athletic/5640776/2024/07/16/france-complaint-fifa-argentina-racist-chant/
+
 **Appraising J.D. Vance as Trump’s Running Mate**\
 `Readers discuss his credentials, his devotion to the ex-president and how the choice might affect the race.`\
 https://nytimes.com/2024/07/16/opinion/letters/jd-vance-donald-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/16/arts/music/jack-black-tenacious-d-tour-trump-shoo
 **Trump Returns With a Different Look. Does That Mean a Different Tone?**\
 `The first night of the Republican National Convention sought to strike a new note. But some of the lyrics were familiar.`\
 https://nytimes.com/2024/07/16/arts/television/trump-rnc-milwaukee.html
-
-**Jacob Trouba and Kaapo Kakko trades, Ryan Lindgren contract and more Rangers thoughts**\
-`Eight thoughts on the Rangers' moves over the last few weeks, what’s still to come this summer and where the pieces may fit next season.`\
-https://nytimes.com/athletic/5639607/2024/07/16/rangers-jacob-trouba-kaapo-kakko-trade/
 
