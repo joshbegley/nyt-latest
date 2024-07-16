@@ -1,3 +1,15 @@
+**Marseille reach agreement in principle with Greenwood**\
+`Marseille have reached an agreement in principle with Mason Greenwood to sign the forward from Manchester United.`\
+https://nytimes.com/athletic/5628329/2024/07/16/mason-greenwood-marseille-manchester-united/
+
+**Hamas’s leader in Gaza is facing pressure to end the war, the C.I.A. director says**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2024/07/16/world/israel-gaza-war-hamas/hamass-leader-in-gaza-is-facing-pressure-to-end-the-war-the-cia-director-says
+
+**Schiff Warned of Wipeout for Democrats if Biden Remains in Race**\
+`Representative Adam B. Schiff of California told attendees at a Democratic fund-raiser that the party would lose the Senate and miss a chance to take the House if the president did not drop out.`\
+https://nytimes.com/2024/07/16/us/politics/schiff-biden-democrats.html
+
 **A Poet Goes to War**\
 `“Revolution is the job of poets and artists,” says Ko Maung Saungkha, leader of a rebel militia fighting the Myanmar dictatorship. He is not the only poet commander in a country with a strong tradition of political verse.`\
 https://nytimes.com/2024/07/16/world/asia/myanmar-poet-ko-maung-saungkha.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-vance-vice-president
 **After 12 Years of Reviewing Restaurants, I’m Leaving the Table**\
 `Pete Wells is moving on from his role as the Times restaurant critic, a job with many rewards and maybe too many courses.`\
 https://nytimes.com/2024/07/16/dining/pete-wells-steps-down-food-critic.html
-
-**The Most Memorable Reviews by Pete Wells**\
-`The Times’s restaurant critic is stepping down after a dozen years on the job. Here are some of his most engaging reviews and essays.`\
-https://nytimes.com/2024/07/16/dining/favorite-reads-by-pete-wells.html
-
-**Grass Lawns: Lavish and Lamentable**\
-`We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Lucy Robb, age 17.`\
-https://nytimes.com/2024/07/16/learning/grass-lawns-lavish-and-lamentable.html
-
-**‘As a Muslim, Those Words Pierce My Soul’: The Week 4 Winner of Our Summer Reading Contest**\
-`Jawaher Korichi writes about how the two sides of her family — one wealthy and one not — experience the Hajj differently.`\
-https://nytimes.com/2024/07/16/learning/as-a-muslim-those-words-pierce-my-soul-the-week-4-winner-of-our-summer-reading-contest.html
 
