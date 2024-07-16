@@ -1,3 +1,7 @@
+**Messi out indefinitely with ligament injury in ankle**\
+`The Argentina and Inter Miami captain appeared to slip on the pitch at Hard Rock Stadium in Miami during Sunday's final.`\
+https://nytimes.com/athletic/5642305/2024/07/16/lionel-messi-ankle-injury/
+
 **Our Reporter on the G.O.P.’s Hard-Line Immigration Stance**\
 `Republicans have adopted a platform that is in line with former President Donald Trump’s hard-line approach and rhetoric on the issue of immigration.`\
 https://nytimes.com/video/us/politics/100000009574831/our-reporter-on-the-gops-hard-line-immigration-stance.html

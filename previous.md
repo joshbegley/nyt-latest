@@ -1,3 +1,7 @@
+**Messi out indefinitely with ligament injury in ankle**\
+`The Argentina and Inter Miami captain appeared to slip on the pitch at Hard Rock Stadium in Miami during Sunday's final.`\
+https://nytimes.com/athletic/5642305/2024/07/16/lionel-messi-ankle-injury/
+
 **Our Reporter on the G.O.P.’s Hard-Line Immigration Stance**\
 `Republicans have adopted a platform that is in line with former President Donald Trump’s hard-line approach and rhetoric on the issue of immigration.`\
 https://nytimes.com/video/us/politics/100000009574831/our-reporter-on-the-gops-hard-line-immigration-stance.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/16/nyregion/infant-dead-hot-car-new-jersey.html
 **Chris Christie: Will Trump Rise to Meet the Moment?**\
 `The Republican nominee has the opportunity to rein in some of the worst rhetorical impulses of party and point in a new direction.`\
 https://nytimes.com/2024/07/16/opinion/trump-rnc-chris-christie.html
-
-**The Secret of Trump’s Resurrection**\
-`As long as Democrats see nothing of him but his lies and outrages, they’ll miss what makes him strong.`\
-https://nytimes.com/2024/07/16/opinion/trump-election-biden.html
 
