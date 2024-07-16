@@ -1,3 +1,7 @@
+**Several Tornadoes Reported in Illinois as Storm Moves to Indiana**\
+`More than 13 million people were under tornado warning or watch alerts on Monday night in Chicago, and parts of Illinois, Indiana and Wisconsin.`\
+https://nytimes.com/2024/07/15/us/tornado-chicago-illinois-storms.html
+
 **Trump, in his first appearance since an assassination attempt, revels in cheers.**\
 `By Michael Gold`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/trump-rnc-appearance
