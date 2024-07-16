@@ -1,3 +1,11 @@
+**Larry Light, Marketer Behind Revival of McDonald’s, Dies at 83**\
+`A branding expert, he deployed the “I’m lovin’ it” campaign globally in 2003 to bring customers and sales back to the fast-food giant when it was in a slump.`\
+https://nytimes.com/2024/07/16/business/media/larry-light-dead.html
+
+**Carlos Watson, Ozy Media Founder, Is Found Guilty of Fraud**\
+`Mr. Watson, who denied lying to investors and lenders, could face up to 37 years in prison.`\
+https://nytimes.com/2024/07/16/business/media/carlos-watson-ozy-media-guilty.html
+
 **After Trump Assassination Attempt, Right Points Finger at Female Agents**\
 `The rush by conservatives to pin blame for the shooting on women in the protective detail reflects a broader opposition among Republicans to diversity efforts in hiring.`\
 https://nytimes.com/2024/07/16/us/politics/secret-service-female-agents.html
