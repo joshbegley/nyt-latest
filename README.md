@@ -1,3 +1,15 @@
+**It May Feel Like 100 Degrees in New York on Tuesday**\
+`The hot spell will continue until Thursday, officials predict, and the city and surrounding areas were placed under a heat advisory.`\
+https://nytimes.com/2024/07/16/nyregion/heat-wave-nyc-forecast.html
+
+**At Paint Rock, Centuries of Native American Artistry**\
+`Glyphs and pictographs at a site in Texas represent generations of settlement by Indigenous peoples.`\
+https://nytimes.com/2024/07/16/science/paint-rock-texas-native-american.html
+
+**Up to $1 Billion May Go to Waste After Hochul’s Congestion Pricing Halt**\
+`Transit leaders had already allocated hundreds of millions of dollars before Gov. Kathy Hochul’s last-minute reversal on the long-awaited tolling plan.`\
+https://nytimes.com/2024/07/16/nyregion/congestion-pricing-cost-hochul.html
+
 **The Transfer DealSheet: Yoro latest, Williams interest and Calafiori update**\
 `This is the weekly edition of The Transfer DealSheet, your place for everything transfers during the summer window`\
 https://nytimes.com/athletic/5638415/2024/07/16/manchester-united-transfer-latest-real-madrid-arsenal/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/16/us/politics/trump-first-night-rnc.html
 **Takeaways From Day One of the Republican Convention**\
 `Donald Trump and his newly minted running mate, J.D. Vance, were officially nominated, but Mr. Trump’s triumphal prime-time emergence in the arena that might prove the indelible moment of the whole event.`\
 https://nytimes.com/2024/07/16/us/politics/trump-vance-rnc-takeaways.html
-
-**Jaylen Brown talks Team USA snub, says Nike involved**\
-`“I do for sure," Brown said Monday when asked if he believed Nike influenced the decision.`\
-https://nytimes.com/athletic/5640340/2024/07/16/jaylen-brown-team-usa-nike/
-
-**Crystal Palace will savour their stars shining at major tournaments**\
-`From Guehi and Eze at Euro 2024 to Lerma and Munoz at the Copa America, Palace players have made their mark this summer`\
-https://nytimes.com/athletic/5626583/2024/07/16/crystal-palace-guehi-lerma-euro-2024-copa-america/
-
-**Lopetegui's first match analysed: Kilman debut, Guilherme's speed, high-press tactics**\
-`What we learned from Lopetegui's first game in charge`\
-https://nytimes.com/athletic/5639334/2024/07/16/west-ham-lopetegui-ferencvaros-kitzbuhel/
 
