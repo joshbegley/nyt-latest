@@ -1,3 +1,11 @@
+**Trump, in his first appearance since an assassination attempt, revels in cheers.**\
+`By Michael Gold`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/trump-rnc-appearance
+
+**Prominent Black Republicans made a prime-time pitch for Trump.**\
+`On Day 1 of the convention, a series of Black Republicans argued that Donald Trump would lift the fortunes of Black Americans, fitting with the campaign’s efforts to court Black men in particular.`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/black-republicans-rnc-trump
+
 **Teoscar Hernández wins MLB Home Run Derby**\
 `Despite facing elimination at various points, Teoscar Hernández won the MLB Home Run Derby, defeating Bobby Witt Jr. in the final round.`\
 https://nytimes.com/athletic/5640283/2024/07/15/teoscar-hernandez-mlb-home-run-derby-winner/

@@ -1,4 +1,8 @@
-**Prominent Black Republicans Make a Prime-Time Pitch for Trump**\
+**Trump, in his first appearance since an assassination attempt, revels in cheers.**\
+`By Michael Gold`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/trump-rnc-appearance
+
+**Prominent Black Republicans made a prime-time pitch for Trump.**\
 `On Day 1 of the convention, a series of Black Republicans argued that Donald Trump would lift the fortunes of Black Americans, fitting with the campaign’s efforts to court Black men in particular.`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/black-republicans-rnc-trump
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-assassination-god-sav
 **“They hired 85,000 new I.R.S. agents to harass hard-working Americans.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/they-hired-85000-new-irs-agents-to-harass-hard-working-americans
-
-**King Topper**\
-`Kelly Richardson makes her New York Times Crossword debut.`\
-https://nytimes.com/2024/07/15/crosswords/daily-puzzle-2024-07-16.html
 
