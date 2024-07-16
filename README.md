@@ -1,3 +1,11 @@
+**Como deny allegation of racism towards Wolves' Hwang**\
+`Italian club Como have denied their player was intentionally racist towards Wolverhampton Wanderers forward Hwang Hee-chan and accused Wolves of “blowing the incident out of proportion”.`\
+https://nytimes.com/athletic/5640698/2024/07/16/hwang-hee-chan-racism-como-wolves/
+
+**The Democrats introduce an anti-Vance ad campaign, linking him to Project 2025.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/democrats-open-anti-vance-ad-campaign-linking-him-to-project-2025
+
 **Gibraltar complain about Spain's 'extremely provocative' Euro 2024 celebrations**\
 `Gibraltar&#8217;s Football Association (FA) has lodged a complaint with European football&#8217;s governing body UEFA over &#8220;extremely provocative and insulting&#8221; celebrations by players of Spain&#8217;s national team following their European Championship success.`\
 https://nytimes.com/athletic/5640530/2024/07/16/gibraltar-spain-rodri-euro-2024/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5640370/2024/07/16/nfl-training-camp-aaron-rodgers-
 **Is the G.O.P. Changing Its Tune on Unions? Don’t Count On It.**\
 `Despite the attempts at a courtship, the Republican Party supports barriers to collective bargaining.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/republicans-unions-trump-teamsters
-
-**MLB trade deadline report: Teams trending toward buying, selling and ... sideways?**\
-`With two weeks until the deadline, it's almost truly trade season. Let's look at where some key teams stand. `\
-https://nytimes.com/athletic/5638118/2024/07/16/mlb-trade-deadline-team-trends-buyers-sellers/
-
-**How will you remember Gareth Southgate's England tenure? Who should take over?**\
-`With Gareth Southgate stepping down as England manager, we want to hear your views on his time in charge and a possible successor...`\
-https://nytimes.com/athletic/5640551/2024/07/16/gareth-southgate-england-memories/
 
