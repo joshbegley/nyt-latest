@@ -1,3 +1,7 @@
+**Divine Intervention and True Belief on the Convention Floor**\
+`“Trump is still our man,” one delegate said, “and he always will be.”`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-assassination-god-saved
+
 **“They hired 85,000 new I.R.S. agents to harass hard-working Americans.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/they-hired-85000-new-irs-agents-to-harass-hard-working-americans
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/south-dakota-was-the
 **After a rocky State of the Union response, Katie Britt mounted a comeback at the convention.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/after-a-rocky-state-of-the-union-response-katie-britt-mounted-a-comeback-at-the-convention
-
-**“Women, Black Americans, Hispanic Americans, Asian Americans all saw a record-low employment.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/women-black-americans-hispanic-americans-asian-americans-all-saw-a-record-low-employment
 
