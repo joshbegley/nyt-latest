@@ -1,5 +1,5 @@
 **Fact-Checking the Republican National Convention on Energy Claims**\
-`Several speakers focused on the sharp rise in gas and electricity prices under President Biden. We scrutinized their claims.`\
+`Several speakers focused on the sharp rise in gas and electricity prices under President Biden. We scrutinized their statements.`\
 https://nytimes.com/2024/07/16/climate/fact-checking-rnc-energy.html
 
 **The Israeli military said it was targeting militants operating in the school.**\
