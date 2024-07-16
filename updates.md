@@ -1,3 +1,11 @@
+**“Illegal immigration is crushing American workers.”**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/illegal-immigration-is-crushing-american-workers
+
+**Astros prioritize college pitching on Day 2 of MLB Draft**\
+`Astros scouting director Cam Pendino supplies scouting reports on the collegians the Astros selected in rounds three through 10.`\
+https://nytimes.com/athletic/5640109/2024/07/15/mlb-draft-astros-college-pitchers/
+
 **From veterans to rookies, first-time MLB All-Stars revel in moment: 'Today is the reward'**\
 `When the All-Stars took the field for their first workout on Monday, 37 of them were there for the first time.`\
 https://nytimes.com/athletic/5640123/2024/07/15/mlb-first-time-all-stars/
