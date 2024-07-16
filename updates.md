@@ -1,3 +1,7 @@
+**The Red Bull RB17: How iconic F1 architect Adrian Newey built his 'utopia' car**\
+`Hypercars exist at the upper limit of automotive performance, a level the RB17 sought to reach by harnessing F1 technology.`\
+https://nytimes.com/athletic/5639137/2024/07/16/rb17-car-red-bull-f1-adrian-newey/
+
 **Inside Spain's celebrations: Morata's star turn, little sleep and De la Fuente's singalong**\
 `Spain celebrated their latest European Championship success with a public party in Madrid that lasted into the early hours`\
 https://nytimes.com/athletic/5640357/2024/07/16/spain-euro-2024-celebrations/
