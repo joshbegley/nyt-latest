@@ -1,3 +1,11 @@
+**U.S. Accuses Former C.I.A. Analyst of Working for South Korea**\
+`Sue Mi Terry, a North Korea expert with the Council on Foreign Relations, was charged with acting as an agent for Seoul after leaving the intelligence agency.`\
+https://nytimes.com/2024/07/16/nyregion/sue-mi-terry-cia-south-korea.html
+
+**Air-Conditioning Is a Perk Many New York Homeless Shelters Don’t Allow**\
+`Families living in city homeless shelters need a doctor’s note to install air-conditioning units. But some residents say shelters still make it difficult to get them.`\
+https://nytimes.com/2024/07/16/nyregion/air-conditioning-homeless-shelters.html
+
 **Wednesday Briefing: A Turbulent Moment in U.S. Politics**\
 `Plus, Israeli strikes killed more than 20 people in Gaza.`\
 https://nytimes.com/2024/07/16/briefing/biden-nomination-trump-rnc.html
