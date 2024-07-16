@@ -1,3 +1,11 @@
+**The Stylists Who Dressed Two Ambanis for the Eyes of the World**\
+`Radhika Merchant and Anant Ambani weren’t the only ones in the spotlight at the opulent wedding last weekend. The groom’s sister and sister-in-law worked with stylists of their own.`\
+https://nytimes.com/2024/07/16/style/anant-ambani-wedding-india-stylist.html
+
+**A smiling ghost of Centre Court: How Barbora Krejcikova's title met her mentor's legacy**\
+`Barbora Krejcikova and Jasmine Paolini's Wimbledon final may not be part of a grand tennis narrative. It doesn't need to be – it was enough`\
+https://nytimes.com/athletic/5635592/2024/07/16/wimbledon-final-barbora-krejcikova-jana-novotna/
+
 **Euro 2024 team of the tournament: Yamal, Williams and Walker included**\
 `UEFA has confirmed its team of the tournament for Euro 2024, with six Spain internationals and England&#8217;s Kyle Walker included.`\
 https://nytimes.com/athletic/5640686/2024/07/16/euro-2024-team-of-the-tournament/
