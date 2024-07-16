@@ -1,3 +1,7 @@
+**How Vance seeks to reorient the Republicans’ approach to business.**\
+`By Dealbook`\
+https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/how-jd-vance-seeks-to-reorient-the-republicans-approach-to-business
+
 **Until Saturday: What we like and what we don't about CFB 25**\
 `Welcome to Until Saturday, the five-star college football newsletter: What do we think about College Football 25?`\
 https://nytimes.com/athletic/5640869/2024/07/16/ea-sports-college-football-25-until-saturday/

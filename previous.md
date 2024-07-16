@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5640391/2024/07/16/team-usa-basketball-fiba-rules-l
 `John McDaid estimates that team signal taunting has led to an unsportsmanlike conduct penalty fewer than five times over the past decade.`\
 https://nytimes.com/athletic/5641161/2024/07/16/horns-down-texas-sec/
 
-**How J.D. Vance seeks to reorient the Republicans’ approach to business.**\
+**How Vance seeks to reorient the Republicans’ approach to business.**\
 `By Dealbook`\
 https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/how-jd-vance-seeks-to-reorient-the-republicans-approach-to-business
 
