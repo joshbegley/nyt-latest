@@ -1,3 +1,7 @@
+**Wednesday Briefing: A Turbulent Moment in U.S. Politics**\
+`Plus, Israeli strikes killed more than 20 people in Gaza.`\
+https://nytimes.com/2024/07/16/briefing/biden-nomination-trump-rnc.html
+
 **With New York’s Help, a Center of Art and Protest to Get a New Home**\
 `ABC No Rio, a cultural center on the Lower East Side, broke ground on the new building, which will replace the tenement it operated out of for more than 40 years.`\
 https://nytimes.com/2024/07/16/arts/design/abc-no-rio-new-home.html
@@ -33,9 +37,4 @@ https://nytimes.com/2024/07/16/us/milwaukee-shooting-republican-national-convent
 **Former Syrian Official in Charge of Notorious Prison Is Arrested in California**\
 `Samir Ousman al-Sheikh, who was seeking U.S. citizenship, is accused of falsely describing whether he persecuted anyone for their political beliefs or had been involved in any killings.`\
 https://nytimes.com/2024/07/16/us/politics/syrian-official-arrested-adra-prison.html
-
-**Canucks sign Artūrs Šilovs to 2-year contract**\
-`The 23-year-old remains the crown jewel of the club's goalie development pipeline.
-`\
-https://nytimes.com/athletic/5641919/2024/07/16/canucks-arturs-silovs-contract/
 

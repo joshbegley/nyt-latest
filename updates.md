@@ -1,3 +1,7 @@
+**Wednesday Briefing: A Turbulent Moment in U.S. Politics**\
+`Plus, Israeli strikes killed more than 20 people in Gaza.`\
+https://nytimes.com/2024/07/16/briefing/biden-nomination-trump-rnc.html
+
 **Canucks sign Artūrs Šilovs to 2-year contract**\
 `The 23-year-old remains the crown jewel of the club's goalie development pipeline.
 `\
