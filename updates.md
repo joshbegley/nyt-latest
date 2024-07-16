@@ -1,3 +1,7 @@
+**In J.D. Vance, Donald Trump Selects an Inheritor**\
+`Mr. Trump’s decision to pick Mr. Vance as his running mate signals his concern for the future of his MAGA movement.`\
+https://nytimes.com/2024/07/15/us/politics/trump-vance-running-mate.html
+
 **Divine Intervention and True Belief on the Convention Floor**\
 `“Trump is still our man,” one delegate said, “and he always will be.”`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-assassination-god-saved

@@ -1,3 +1,7 @@
+**In J.D. Vance, Donald Trump Selects an Inheritor**\
+`Mr. Trump’s decision to pick Mr. Vance as his running mate signals his concern for the future of his MAGA movement.`\
+https://nytimes.com/2024/07/15/us/politics/trump-vance-running-mate.html
+
 **Divine Intervention and True Belief on the Convention Floor**\
 `“Trump is still our man,” one delegate said, “and he always will be.”`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-assassination-god-saved
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/15/us/politics/biden-campaign-challenge.html
 **“South Dakota was the only state in the country that stayed open for business. We didn’t mandate anything.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/south-dakota-was-the-only-state-in-the-country-that-stayed-open-for-business-we-didnt-mandate-anything
-
-**After a rocky State of the Union response, Katie Britt mounted a comeback at the convention.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/after-a-rocky-state-of-the-union-response-katie-britt-mounted-a-comeback-at-the-convention
 
