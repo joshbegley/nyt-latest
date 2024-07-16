@@ -1,3 +1,11 @@
+**Skillet Chicken With Schmaltzy (!) Tomatoes**\
+`The delicious drippings you get from roasting chicken thighs are tossed with cherry tomatoes, making them saltier and juicier.`\
+https://nytimes.com/2024/07/16/dining/skillet-chicken-with-schmaltzy-tomatoes.html
+
+**Six People Dead, Apparently by Poisoning, in Thailand, Police Say**\
+`The dead did not show outward signs of injury. Mass violence is unusual in the capital, Bangkok.`\
+https://nytimes.com/2024/07/16/world/asia/thailand-six-dead-poisoning.html
+
 **Climate and the Republican Convention**\
 `Here’s where the party stands on global warming, energy and the environment.`\
 https://nytimes.com/2024/07/16/climate/climate-republican-convention.html
