@@ -1,3 +1,11 @@
+**Biden Considers Pushing for Major Changes to the Supreme Court**\
+`The proposals include term limits for the justices and an enforceable code of ethics. But they would need congressional approval, which is a long shot.`\
+https://nytimes.com/2024/07/16/us/politics/biden-supreme-court-overhaul.html
+
+**For Milwaukee, the R.N.C. Is an Unloved Houseguest**\
+`Outside the arena, an uneasy relationship between the city and the convention has intensified.`\
+https://nytimes.com/2024/07/16/us/politics/rnc-milwaukee-trump-immigration.html
+
 **This Bus Only Turns Right**\
 `The concerned women for America are concerned.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/this-bus-only-turns-right
