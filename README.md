@@ -22,8 +22,8 @@ https://nytimes.com/2024/07/16/nyregion/bob-menendez-senate-future.html
 `Assailants attacked worshipers in Oman observing the Shiite day of mourning Ashura, in an unusual eruption of violence in a normally peaceful Gulf nation that prides itself on religious tolerance.`\
 https://nytimes.com/2024/07/16/world/middleeast/mosque-shooting-shiite-oman-pakistan.html
 
-**Here’s the latest in a sweeping corruption case against a sitting senator.**\
-`By Nicholas Fandos`\
+**The senator was convicted on bribery, fraud and extortion charges.**\
+`By Nicholas Fandos, Tracey Tully and Benjamin Weiser`\
 https://nytimes.com/live/2024/07/16/nyregion/bob-menendez-verdict/the-jury-will-present-its-verdict-soon-heres-the-latest
 
 **Live Updates: Senator Menendez Found Guilty on All Counts in Corruption Trial**\
