@@ -1,3 +1,7 @@
+**Introducing ‘Scoop City,’ a new NFL podcast with Dianna Russini and Chase Daniel**\
+`The show debuts Tuesday, with Chiefs coach Andy Reid as the first guest`\
+https://nytimes.com/athletic/5638721/2024/07/16/scoop-city-new-nfl-podcast-dianna-russini-chase-daniel/
+
 **It May Feel Like 100 Degrees in New York on Tuesday**\
 `The hot spell will continue until Thursday, officials predict, and the city and surrounding areas were placed under a heat advisory.`\
 https://nytimes.com/2024/07/16/nyregion/heat-wave-nyc-forecast.html

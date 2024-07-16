@@ -1,3 +1,7 @@
+**Introducing ‘Scoop City,’ a new NFL podcast with Dianna Russini and Chase Daniel**\
+`The show debuts Tuesday, with Chiefs coach Andy Reid as the first guest`\
+https://nytimes.com/athletic/5638721/2024/07/16/scoop-city-new-nfl-podcast-dianna-russini-chase-daniel/
+
 **It May Feel Like 100 Degrees in New York on Tuesday**\
 `The hot spell will continue until Thursday, officials predict, and the city and surrounding areas were placed under a heat advisory.`\
 https://nytimes.com/2024/07/16/nyregion/heat-wave-nyc-forecast.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/16/pageoneplus/corrections-july-16-2024.html
 **A Bandaged Trump Shows a Glimpse of Vulnerability**\
 `Donald J. Trump was unusually emotional in his first public appearance since the attempt on his life.`\
 https://nytimes.com/2024/07/16/us/politics/trump-first-night-rnc.html
-
-**Takeaways From Day One of the Republican Convention**\
-`Donald Trump and his newly minted running mate, J.D. Vance, were officially nominated, but Mr. Trump’s triumphal prime-time emergence in the arena that might prove the indelible moment of the whole event.`\
-https://nytimes.com/2024/07/16/us/politics/trump-vance-rnc-takeaways.html
 
