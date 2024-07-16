@@ -18,6 +18,11 @@ https://nytimes.com/athletic/5641919/2024/07/16/canucks-arturs-silovs-contract/
 `\
 https://nytimes.com/athletic/5641919/2024/07/16/canucks-arturs-silovs-contract/
 
+**Canucks sign Artūrs Šilovs to 2-year contract**\
+`The 23-year-old remains the crown jewel of the club's goalie development pipeline.
+`\
+https://nytimes.com/athletic/5641919/2024/07/16/canucks-arturs-silovs-contract/
+
 **Man Fatally Shot by Visiting Police Officers Near R.N.C., Official Says**\
 `The officers were part of a contingent of 4,500 law enforcement officials who came to Milwaukee to assist local police with the convention.`\
 https://nytimes.com/2024/07/16/us/milwaukee-shooting-republican-national-convention.html
