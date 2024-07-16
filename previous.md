@@ -1,3 +1,11 @@
+**Russia Won’t Silence Masha Gessen**\
+`The journalist unflinchingly asserts the right to seek out and report the truth.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/masha-gessen-press-freedom
+
+**Widow of Slain Rally Attendee Says She Received Call From Trump**\
+`Corey Comperatore, 50, was killed while attending a rally for Donald J. Trump for the first time.`\
+https://nytimes.com/2024/07/16/us/widow-call-trump-biden.html
+
 **A Giant Offshore Wind Turbine Blade Breaks, Prompting Beach Closures**\
 `It’s unclear why a blade from one of the Vineyard Wind turbines broke into pieces, which are washing up on Nantucket beaches.`\
 https://nytimes.com/2024/07/16/climate/wind-turbine-breaks-nantucket.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/16/briefing/biden-nomination-trump-rnc.html
 **With New York’s Help, a Center of Art and Protest to Get a New Home**\
 `ABC No Rio, a cultural center on the Lower East Side, broke ground on the new building, which will replace the tenement it operated out of for more than 40 years.`\
 https://nytimes.com/2024/07/16/arts/design/abc-no-rio-new-home.html
-
-**Trump-Vance Administration Could Herald New Era for Dollar**\
-`Both candidates on the Republican ticket have argued that the U.S. currency should be weaker to support American exports.`\
-https://nytimes.com/2024/07/16/us/politics/trump-vance-us-dollar.html
-
-**Blues' Torey Krug could miss 2024-25 season with pre-arthritic ankle condition**\
-`The veteran defenseman will be re-evaluated in six to eight weeks and could need surgery, which would cost him next season.`\
-https://nytimes.com/athletic/5642045/2024/07/16/blues-torey-krug-ankle-condition/
 

@@ -1,3 +1,11 @@
+**Russia Won’t Silence Masha Gessen**\
+`The journalist unflinchingly asserts the right to seek out and report the truth.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/masha-gessen-press-freedom
+
+**Widow of Slain Rally Attendee Says She Received Call From Trump**\
+`Corey Comperatore, 50, was killed while attending a rally for Donald J. Trump for the first time.`\
+https://nytimes.com/2024/07/16/us/widow-call-trump-biden.html
+
 **A Giant Offshore Wind Turbine Blade Breaks, Prompting Beach Closures**\
 `It’s unclear why a blade from one of the Vineyard Wind turbines broke into pieces, which are washing up on Nantucket beaches.`\
 https://nytimes.com/2024/07/16/climate/wind-turbine-breaks-nantucket.html
