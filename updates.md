@@ -1,3 +1,11 @@
+**Menendez promises to appeal, amid calls for his resignation.**\
+`By Nicholas Fandos`\
+https://nytimes.com/2024/07/16/nyregion/menendez-promises-to-appeal-amid-calls-for-his-resignation.html
+
+**Five MLS clubs get retro third kits for the remainder of 2024**\
+`Only five clubs get third kits this season, but there will be more to come in 2025. `\
+https://nytimes.com/athletic/5641588/2024/07/16/mls-adidas-third-kits-inter-miami-lafc-sporting-kc-la-galaxy-portland-timbers/
+
 **Caffè Panna Brings Summery Sundaes and Granitas to Greenpoint**\
 `Hallie Meyer’s new Brooklyn branch of her Irving Place spot deploys the signature cloud of panna on sundaes and affogatos.`\
 https://nytimes.com/2024/07/16/dining/new-ice-cream-spot-greenpoint-restaurant-news.html

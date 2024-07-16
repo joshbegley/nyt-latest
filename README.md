@@ -1,3 +1,11 @@
+**Here’s the speaker lineup for Night 2 of the Republican convention.**\
+`Tuesday’s speakers at the Republican National Convention include Republicans who once criticized former President Donald J. Trump and “everyday Americans” who will discuss illegal immigration.`\
+https://nytimes.com/2024/07/16/us/politics/rnc-day-2-speakers.html
+
+**Italian Pop Discoveries From My Vacation**\
+`Hear songs from Angelina Mango, Patty Pravo and an unexpected hit by Conan Gray.`\
+https://nytimes.com/2024/07/16/arts/music/amplifier-newsletter-italian-pop.html
+
 **Menendez promises to appeal, amid calls for his resignation.**\
 `By Nicholas Fandos`\
 https://nytimes.com/2024/07/16/nyregion/menendez-promises-to-appeal-amid-calls-for-his-resignation.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/16/nyregion/wael-hana-fred-daibes-guilty.html
 **A House panel summons top security officials for a hearing next week.**\
 `By Luke Broadwater`\
 https://nytimes.com/live/2024/07/16/us/trump-shooting-investigation/a-house-panel-summons-top-security-officials-for-a-hearing-next-week
-
-**49ers' Brandon Aiyuk requests trade: Source**\
-`Aiyuk is coming off a 2023 season where he hauled in 75 receptions for 1,342 yards and seven touchdowns.`\
-https://nytimes.com/athletic/5641543/2024/07/16/brandon-aiyuk-trade-request-49ers/
-
-**Biden Circle Shrinks as Democrats Fear Election Wipeout**\
-`President Biden, increasingly isolated during the biggest political crisis of his presidency, is in a historic standoff with his party.`\
-https://nytimes.com/2024/07/16/us/politics/biden-election.html
 

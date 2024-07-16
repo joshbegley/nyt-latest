@@ -1,3 +1,11 @@
+**Menendez promises to appeal, amid calls for his resignation.**\
+`By Nicholas Fandos`\
+https://nytimes.com/2024/07/16/nyregion/menendez-promises-to-appeal-amid-calls-for-his-resignation.html
+
+**Five MLS clubs get retro third kits for the remainder of 2024**\
+`Only five clubs get third kits this season, but there will be more to come in 2025. `\
+https://nytimes.com/athletic/5641588/2024/07/16/mls-adidas-third-kits-inter-miami-lafc-sporting-kc-la-galaxy-portland-timbers/
+
 **Caffè Panna Brings Summery Sundaes and Granitas to Greenpoint**\
 `Hallie Meyer’s new Brooklyn branch of her Irving Place spot deploys the signature cloud of panna on sundaes and affogatos.`\
 https://nytimes.com/2024/07/16/dining/new-ice-cream-spot-greenpoint-restaurant-news.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5641543/2024/07/16/brandon-aiyuk-trade-request-49er
 **Biden Circle Shrinks as Democrats Fear Election Wipeout**\
 `President Biden, increasingly isolated during the biggest political crisis of his presidency, is in a historic standoff with his party.`\
 https://nytimes.com/2024/07/16/us/politics/biden-election.html
-
-**Senator Menendez Convicted of Corruption in Broad International Conspiracy**\
-`Senator Robert Menendez, Democrat of New Jersey, was found guilty of bribery, conspiracy, extortion, obstruction of justice and acting as a foreign agent.`\
-https://nytimes.com/2024/07/16/nyregion/senator-robert-menendez-bribery-conviction.html
-
-**Wimbledon 2024 review: Best match, favourite player and most Wimbledon moment**\
-`The Athletic's tennis team reflect on Wimbledon 2024, picking the players, matches, and moments of the tournament`\
-https://nytimes.com/athletic/5640780/2024/07/16/wimbledon-2024-review-best-matches-best-shots-highlights/
 
