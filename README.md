@@ -1,3 +1,11 @@
+**Skillet Chicken With Schmaltzy (!) Tomatoes**\
+`The delicious drippings you get from roasting chicken thighs are tossed with cherry tomatoes, making them saltier and juicier.`\
+https://nytimes.com/2024/07/16/dining/skillet-chicken-with-schmaltzy-tomatoes.html
+
+**Six People Dead, Apparently by Poisoning, in Thailand, Police Say**\
+`The dead did not show outward signs of injury. Mass violence is unusual in the capital, Bangkok.`\
+https://nytimes.com/2024/07/16/world/asia/thailand-six-dead-poisoning.html
+
 **Climate and the Republican Convention**\
 `Here’s where the party stands on global warming, energy and the environment.`\
 https://nytimes.com/2024/07/16/climate/climate-republican-convention.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/16/us/politics/schiff-biden-democrats.html
 **A Poet Goes to War**\
 `“Revolution is the job of poets and artists,” says Ko Maung Saungkha, leader of a rebel militia fighting the Myanmar dictatorship. He is not the only poet commander in a country with a strong tradition of political verse.`\
 https://nytimes.com/2024/07/16/world/asia/myanmar-poet-ko-maung-saungkha.html
-
-**10 Years After Eric Garner’s Death, an Opera Honors His Legacy**\
-`“The Ritual of Breath Is the Rite to Resist,” part of Lincoln Center’s summer festival, aims to shine light on police violence in the United States.`\
-https://nytimes.com/2024/07/16/arts/music/eric-garner-opera-lincoln-center.html
-
-**Evan Wright, Award-Winning Reporter and Author of ‘Generation Kill,’ Dies at 59**\
-`Mr. Wright was known for his immersive journalism that focused on subjects outside mainstream media coverage to explore the nooks and crannies of American life.`\
-https://nytimes.com/2024/07/16/us/evan-wright-generation-kill-dead.html
 
