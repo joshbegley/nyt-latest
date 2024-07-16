@@ -1,3 +1,11 @@
+**How J.D. Vance Seeks to Reorient the Republican’s Approach to Business**\
+`Donald Trump’s running mate is pro-labor, a fan of crypto and the F.T.C.’s Lina Khan, and says Big Tech is too powerful.`\
+https://nytimes.com/2024/07/16/business/dealbook/trump-vance-republicans-business.html
+
+**Leicester sign Fatawu after triggering buy option**\
+`Leicester City have completed the permanent signing of winger Abdul Fatawu from Sporting Lisbon.`\
+https://nytimes.com/athletic/5617984/2024/07/16/abdul-fatawu-leicester-transfer-news/
+
 **How Will Vance Affect the Race? Look at 2028, Not 2024.**\
 `The possibility that Trumpism outlasts Donald Trump just went up.`\
 https://nytimes.com/2024/07/16/upshot/vance-trump-vice-president.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/16/world/europe/wales-vaughan-gething-resigns.html
 **Ten Hag spoke about 'standards' after Rosenborg loss. Is it really a surprise?**\
 `Manchester United lost their first pre-season game against Rosenborg and Erik ten Hag was critical afterwards`\
 https://nytimes.com/athletic/5640131/2024/07/16/erik-ten-hag-manchester-united-rosenborg/
-
-**Ten Hag on Sancho: 'We've drawn a line. We move on'**\
-`Erik ten Hag says he has “drawn a line” under his differences with Jadon Sancho after the Manchester United winger returned to first-team training.`\
-https://nytimes.com/athletic/5533897/2024/07/16/jadon-sancho-manchester-united-ten-hag/
-
-**State of the 49ers, DB: Will rookie Renardo Green emerge as No. 3 cornerback?**\
-`The 49ers were active at cornerback during the offseason, resulting in the deepest unit in recent memory. Safety, however, looks thin.`\
-https://nytimes.com/athletic/5560535/2024/07/16/san-francisco-49ers-defensive-backs-2024-renardo-green/
 

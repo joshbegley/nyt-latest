@@ -1,3 +1,11 @@
+**How J.D. Vance Seeks to Reorient the Republican’s Approach to Business**\
+`Donald Trump’s running mate is pro-labor, a fan of crypto and the F.T.C.’s Lina Khan, and says Big Tech is too powerful.`\
+https://nytimes.com/2024/07/16/business/dealbook/trump-vance-republicans-business.html
+
+**Leicester sign Fatawu after triggering buy option**\
+`Leicester City have completed the permanent signing of winger Abdul Fatawu from Sporting Lisbon.`\
+https://nytimes.com/athletic/5617984/2024/07/16/abdul-fatawu-leicester-transfer-news/
+
 **How Will Vance Affect the Race? Look at 2028, Not 2024.**\
 `The possibility that Trumpism outlasts Donald Trump just went up.`\
 https://nytimes.com/2024/07/16/upshot/vance-trump-vice-president.html
