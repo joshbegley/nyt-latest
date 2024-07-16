@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5641919/2024/07/16/canucks-arturs-silovs-contract/
 `\
 https://nytimes.com/athletic/5641919/2024/07/16/canucks-arturs-silovs-contract/
 
+**Canucks sign Artūrs Šilovs to 2-year contract**\
+`The 23-year-old remains the crown jewel of the club's goalie development pipeline.
+`\
+https://nytimes.com/athletic/5641919/2024/07/16/canucks-arturs-silovs-contract/
+
 **Chinese Billionaire and Bannon Ally Is Convicted of Fraud**\
 `A federal jury found that Guo Wengui defrauded investors, many his own fervent supporters, of hundreds of millions of dollars. He could face decades in prison.`\
 https://nytimes.com/2024/07/16/nyregion/guo-wengui-fraud-trial-verdict-china.html
