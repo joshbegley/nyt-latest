@@ -1,3 +1,7 @@
+**Jets talked to now-Steelers OC Smith in offseason**\
+`Aaron Rodgers was made aware the Jets had conversations this offseason about other offensive coordinator options, Dianna Russini reports.`\
+https://nytimes.com/athletic/5640268/2024/07/16/jets-arthur-smith-hackett-rodgers-scoop-city/
+
 **Civilian casualties in Gaza remain unacceptably high, the State Department says.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/07/16/world/israel-gaza-war-hamas/civilian-casualties-in-gaza-remain-unacceptably-high-the-state-department-says
