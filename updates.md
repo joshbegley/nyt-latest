@@ -1,3 +1,15 @@
+**Here’s the speaker lineup for Night 2 of the Republican convention.**\
+`Tuesday’s speakers at the Republican National Convention include Republicans who once criticized former President Donald J. Trump and “everyday Americans” who will discuss illegal immigration.`\
+https://nytimes.com/2024/07/16/us/politics/rnc-day-2-speakers.html
+
+**Italian Pop Discoveries From My Vacation**\
+`Hear songs from Angelina Mango, Patty Pravo and an unexpected hit by Conan Gray.`\
+https://nytimes.com/2024/07/16/arts/music/amplifier-newsletter-italian-pop.html
+
+**Menendez Has Been Convicted. What Happens Next?**\
+`Senator Robert Menendez immediately vowed to appeal his conviction on 16 felony counts. It is not clear whether he plans to resign his Senate seat.`\
+https://nytimes.com/2024/07/16/nyregion/menendez-appeal-verdict-resignation.html
+
 **Menendez promises to appeal, amid calls for his resignation.**\
 `By Nicholas Fandos`\
 https://nytimes.com/2024/07/16/nyregion/menendez-promises-to-appeal-amid-calls-for-his-resignation.html
