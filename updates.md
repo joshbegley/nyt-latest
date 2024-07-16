@@ -1,3 +1,7 @@
+**Here is the roster of speakers at the convention on Monday night.**\
+`By Tim Balk`\
+https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/here-is-the-schedule-of-speakers-at-the-convention-on-monday-night
+
 **“Illegal immigration is crushing American workers.”**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/07/15/us/trump-rnc-news-biden/illegal-immigration-is-crushing-american-workers
