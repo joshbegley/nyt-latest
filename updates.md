@@ -1,3 +1,7 @@
+**Families Say Shelters Without Air-Conditioning Are Like ‘Living in Hell’**\
+`Families in many city homeless shelters need a doctor’s note to have air-conditioners. But some residents say shelters still make it difficult to get them.`\
+https://nytimes.com/2024/07/16/nyregion/air-conditioning-homeless-shelters.html
+
 **The Sex Advice That Changed Us**\
 `When our parents were silent, unsure or sexually repressed, there was always Dr. Ruth.`\
 https://nytimes.com/2024/07/16/well/family/dr-ruth-death-memories.html
