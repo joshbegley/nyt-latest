@@ -1,3 +1,7 @@
+**Naomi Pomeroy, 49, Chef Who Made Portland a Dining Destination, Dies**\
+`Her refined palate and pursuit of excellence made her the city’s culinary matriarch, attracting diners and talent alike to Oregon. She died in a tubing accident.`\
+https://nytimes.com/2024/07/16/dining/naomi-pomeroy-dead.html
+
 **Biden Considers Pushing for Major Changes to the Supreme Court**\
 `The proposals include term limits for the justices and an enforceable code of ethics. But they would need congressional approval, which is a long shot.`\
 https://nytimes.com/2024/07/16/us/politics/biden-supreme-court-overhaul.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5642139/2024/07/16/dangelo-ortiz-red-sox-mlb-draft/
 **The expanded Playoff effect: Suddenly, more SEC teams are more interesting**\
 `At a minimum, half of the SEC can be counted as legitimate Playoff contenders. And that will keep more fan bases engaged for longer. `\
 https://nytimes.com/athletic/5642152/2024/07/16/sec-college-football-playoff-missouri-tennessee/
-
-**Herbert Hoelter, Prison Consultant to the Rich and Infamous, Dies at 73**\
-`He helped Martha Stewart, Leona Helmsley, Michael Milken and other white-collar criminals win lighter sentences, and prepared them for life in prison.`\
-https://nytimes.com/2024/07/16/us/herbert-hoelter-dead.html
 
