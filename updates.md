@@ -1,3 +1,15 @@
+**It May Feel Like 100 Degrees in New York on Tuesday**\
+`The hot spell will continue until Thursday, officials predict, and the city and surrounding areas were placed under a heat advisory.`\
+https://nytimes.com/2024/07/16/nyregion/heat-wave-nyc-forecast.html
+
+**At Paint Rock, Centuries of Native American Artistry**\
+`Glyphs and pictographs at a site in Texas represent generations of settlement by Indigenous peoples.`\
+https://nytimes.com/2024/07/16/science/paint-rock-texas-native-american.html
+
+**Up to $1 Billion May Go to Waste After Hochul’s Congestion Pricing Halt**\
+`Transit leaders had already allocated hundreds of millions of dollars before Gov. Kathy Hochul’s last-minute reversal on the long-awaited tolling plan.`\
+https://nytimes.com/2024/07/16/nyregion/congestion-pricing-cost-hochul.html
+
 **The Transfer DealSheet: Yoro latest, Williams interest and Calafiori update**\
 `This is the weekly edition of The Transfer DealSheet, your place for everything transfers during the summer window`\
 https://nytimes.com/athletic/5638415/2024/07/16/manchester-united-transfer-latest-real-madrid-arsenal/
