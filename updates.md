@@ -1,3 +1,7 @@
+**In Extreme Heat, Do You Need More Electrolytes?**\
+`We asked experts when you need to replenish these essential minerals, and how best to do so.`\
+https://nytimes.com/2024/07/17/well/heat-hydration-electrolyes-drinks.html
+
 **A Collection for the ‘Summer Girl’**\
 `Fashion’s equivalent of the song of the summer is a skin-baring collaboration between J. Crew and the downtown New York brand Maryam Nassir Zadeh.`\
 https://nytimes.com/2024/07/17/style/j-crew-maryam-nassir-zadeh-summer-collection.html

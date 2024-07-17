@@ -1,3 +1,7 @@
+**In Extreme Heat, Do You Need More Electrolytes?**\
+`We asked experts when you need to replenish these essential minerals, and how best to do so.`\
+https://nytimes.com/2024/07/17/well/heat-hydration-electrolyes-drinks.html
+
 **A Collection for the ‘Summer Girl’**\
 `Fashion’s equivalent of the song of the summer is a skin-baring collaboration between J. Crew and the downtown New York brand Maryam Nassir Zadeh.`\
 https://nytimes.com/2024/07/17/style/j-crew-maryam-nassir-zadeh-summer-collection.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/17/briefing/jd-vance-speech-trump-investigation-emmy
 **Trump Fans Try Playing Nice, but ‘Fight, Fight’ Comes More Easily**\
 `Donald J. Trump signaled he wanted Republicans to tone it down after the attempt on his life. It’s a tough ask for his fired-up supporters at the Republican National Convention.`\
 https://nytimes.com/2024/07/17/us/politics/trump-republicans-rnc.html
-
-**Will Sarah Huckabee Sanders Be America’s First Woman President?**\
-`She might have the biggest head-start in a future race.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/sanders-trump-republicans
 
