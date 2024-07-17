@@ -1,3 +1,15 @@
+**Yamal takes No 19 shirt at Barcelona**\
+`Lamine Yamal will follow in the footsteps of Lionel Messi and wear the N0 19 shirt for Barcelona next season.`\
+https://nytimes.com/athletic/5628680/2024/07/17/lamine-yamal-barcelona-shirt-number/
+
+**Emmy nominations land as TV business remains sluggish.**\
+`The ind`\
+https://nytimes.com/live/2024/07/17/arts/emmy-nominations/emmy-nominations-land-as-tv-business-remains-sluggish
+
+**Who Needs a Recipe to Cook a Hot Dog, Anyway?**\
+`Sometimes, the easiest dishes are the toughest to get just right. Ali Slagle, who develops recipes for Times Cooking, wants to help home chefs make fan-favorite foods ‘with feeling.’`\
+https://nytimes.com/2024/07/17/insider/who-needs-a-recipe-to-cook-a-hot-dog-anyway.html
+
 **What the Main Characters at the R.N.C. Say About Their Party**\
 `Donald Trump is the same man as he was in 1995.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/what-the-main-characters-at-the-rnc-say-about-their-party
