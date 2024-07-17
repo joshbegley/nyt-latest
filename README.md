@@ -1,3 +1,7 @@
+**What to Know About the Trump Shooting Investigations**\
+`Multiple inquiries by law enforcement, Congress and federal agencies aim to understand how a would-be assassin was able to fire at Donald J. Trump.`\
+https://nytimes.com/2024/07/17/us/trump-shooting-investigations.html
+
 **Daniel Craig, Is That You Under Those Bangs?**\
 `A recent ad campaign for Loewe features the former James Bond as he has never been seen.`\
 https://nytimes.com/2024/07/17/style/daniel-craig-loewe-jonathan-anderson.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/17/nyregion/councilwoman-bites-police-protest.html
 **Elizabeth Debicki on Her Second Emmy Nomination for Princess Diana**\
 `The actor’s supporting actress nod was one of 18 nominations the show received for its final season. She called the honor “a really beautiful end” to her time on the show.`\
 https://nytimes.com/2024/07/17/arts/television/elizabeth-debicki-crown-emmy-nomination.html
-
-**Is Maddow in Milwaukee? No, That’s an LED Screen on MSNBC.**\
-`A production technique gave the impression that Rachel Maddow and other star anchors were reporting in Milwaukee, not from 30 Rockefeller Plaza.`\
-https://nytimes.com/2024/07/17/business/media/msnbc-rnc-coverage-led-screen.html
 
