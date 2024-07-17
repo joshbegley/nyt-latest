@@ -1,3 +1,7 @@
+**The Longer Biden Is in Denial, ‘the Better It Is for Us’**\
+`A grim truth from one of Trump’s pollsters.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-biden-denial-polling
+
 **Renaming an Airport After Silvio Berlusconi Divides a Region in Italy**\
 `The decision to name Italy’s second-largest passenger hub after the divisive media mogul and politician, who died in 2023, has prompted outrage and protests.`\
 https://nytimes.com/2024/07/17/world/europe/silvio-berlusconi-airport-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/17/arts/television/baby-reindeer-emmy-nominations.ht
 **Germany's Oberdorf to miss Paris Olympics with severe knee injury**\
 `Bayern Munich midfielder Lena Oberdorf will miss the 2024 Paris Olympics after sustaining a severe knee injury.`\
 https://nytimes.com/athletic/5643698/2024/07/17/lena-oberdorf-germany-injury/
-
-**‘Our Nation Is Not Well’: Voters Fear What Could Happen Next**\
-`There is growing anxiety that the country’s political divide is nearly beyond repair, and the assassination attempt on Donald Trump only made things worse.`\
-https://nytimes.com/2024/07/17/us/elections/voters-trump-assassination-attempt.html
 
