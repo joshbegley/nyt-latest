@@ -1,3 +1,11 @@
+**Nikki Haley Endorses Trump and Urges Republicans to Unite Behind Him**\
+`In a speech at her party’s nominating convention, Ms. Haley gave her full support to the former president after a bruising primary campaign.`\
+https://nytimes.com/2024/07/16/us/politics/haley-endorses-trump.html
+
+**“Gas hit a low of $1.87 a gallon” under the Trump administration**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/gas-hit-a-low-of-1-87-a-gallon-under-the-trump-administration
+
 **Nikki Haley Says Trump Has Her ‘Strong Endorsement’ for President**\
 `Nikki Haley, who was initially not invited to the convention, received an invitation from Mr. Trump following Sunday’s assassination attempt and accepted it in the name of “unity.”`\
 https://nytimes.com/video/us/politics/100000009576171/nikki-haley-trump-endorsement.html
