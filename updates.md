@@ -1,3 +1,11 @@
+**Premier League matches in U.S. in league's 'self-interest', says New Jersey governor**\
+`New Jersey governor Phil Murphy says he “would die” to bring Premier League matches to the United States, explaining that he believes it is in the competition’s “enlightened self-interest” to do so.`\
+https://nytimes.com/athletic/5641285/2024/07/17/premier-league-matches-america-phil-murphy/
+
+**T. Rex Dethroned? A Stegosaurus Fossil Sells for a Record $44.6 Million.**\
+`The stegosaurus had been expected to sell for between $4 million and $6 million. It set a record in the contentious fossil trade, where scientists fear being priced out of the market.`\
+https://nytimes.com/2024/07/17/arts/design/stegosaurus-auction-44-million.html
+
 **Where to Stream 2024 Emmy-Nominated Series: ‘Shogun,’ ‘The Bear’ and More**\
 `Nominations for the 76th Primetime Emmy Awards were announced on Wednesday. The Emmys ceremony is planned for Sept. 15, on ABC.`\
 https://nytimes.com/2024/07/17/arts/television/emmy-nominated-tv-shows-streaming.html
