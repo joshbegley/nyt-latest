@@ -1,3 +1,11 @@
+**Wall St. Journal Reporter Says She Was Fired Over Hong Kong Union Post**\
+`The journalist accused her former employer of failing to stand up for press freedom, a claim that the newspaper rejected.`\
+https://nytimes.com/2024/07/17/world/asia/wsj-reporter-fired-hong-kong.html
+
+**Promise of a Changed U.K. Comes Wrapped in Royal Tradition**\
+`From plans to tackle climate change to ending the role of hereditary legislators, the ceremonial King’s Speech showcased the progressive priorities of Britain’s Labour government.`\
+https://nytimes.com/2024/07/17/world/europe/kings-speech-uk.html
+
 **‘Rust’ Armorer Asks for New Trial After Dismissal of Alec Baldwin’s Case**\
 `Lawyers for the armorer, Hannah Gutierrez-Reed, are seizing on a judge’s dramatic dismissal of the actor’s case to argue for her release from prison.`\
 https://nytimes.com/2024/07/17/arts/rust-armorer-hannah-gutierrez-reed-appeal.html

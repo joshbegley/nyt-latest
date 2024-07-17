@@ -1,3 +1,11 @@
+**Wall St. Journal Reporter Says She Was Fired Over Hong Kong Union Post**\
+`The journalist accused her former employer of failing to stand up for press freedom, a claim that the newspaper rejected.`\
+https://nytimes.com/2024/07/17/world/asia/wsj-reporter-fired-hong-kong.html
+
+**Promise of a Changed U.K. Comes Wrapped in Royal Tradition**\
+`From plans to tackle climate change to ending the role of hereditary legislators, the ceremonial King’s Speech showcased the progressive priorities of Britain’s Labour government.`\
+https://nytimes.com/2024/07/17/world/europe/kings-speech-uk.html
+
 **‘Rust’ Armorer Asks for New Trial After Dismissal of Alec Baldwin’s Case**\
 `Lawyers for the armorer, Hannah Gutierrez-Reed, are seizing on a judge’s dramatic dismissal of the actor’s case to argue for her release from prison.`\
 https://nytimes.com/2024/07/17/arts/rust-armorer-hannah-gutierrez-reed-appeal.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/17/dining/banger-of-a-recipe-easy-and-better-than-th
 **This Is Literally Your Brain on Drugs**\
 `A small new study shows reactions in the brain in people who were given psilocybin in a controlled setting.`\
 https://nytimes.com/2024/07/17/health/psilocybin-psychedelic-mushrooms-brain.html
-
-**‘Shogun’ was once a limited series. Now it’s a drama. Why?**\
-`The distinction between the two categories has gotten muddled in recent years.`\
-https://nytimes.com/live/2024/07/17/arts/emmy-nominations/shogun-was-once-a-limited-series-now-its-a-drama-why
-
-**Moving In Childhood Contributes to Depression, Study Finds**\
-`A study of more than a million Danes found that frequent moves in childhood had a bigger effect than poverty on adult mental health risk.`\
-https://nytimes.com/2024/07/17/health/moving-childhood-depression.html
 
