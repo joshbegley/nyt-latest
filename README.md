@@ -1,3 +1,7 @@
+**Juventus goalkeeper Szczesny’s move to Al Nassr breaks down**\
+`Juventus goalkeeper Wojciech Szczesny’s move to Saudi Pro League side Al Nassr has broken down.`\
+https://nytimes.com/athletic/5643212/2024/07/17/szczesny-juventus-saudi-transfer/
+
 **Mayor of Paris Takes an Olympian Plunge in a Beautified Seine**\
 `Anne Hidalgo swam in the cleaned-up waters of the capital’s river, fulfilling a promise that has become a symbol of the Olympic Games that start this month.`\
 https://nytimes.com/2024/07/17/world/europe/paris-mayor-swims-seine-hidalgo-olympics.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5642755/2024/07/17/angel-city-new-ownership-willow-
 **Could Russell Westbrook help the Nuggets? Examining his potential fit**\
 `Westbrook is still a Clipper, but the future Hall of Fame guard could help the Nuggets in different ways ... if he's managed correctly.`\
 https://nytimes.com/athletic/5640161/2024/07/17/russell-westbrook-clippers-denver-nuggets/
-
-**Luka Modric signs new one-year Real Madrid contract**\
-`Real Madrid and Luka Modric have agreed a new contract extension that will keep the midfielder at the club until June 2025.`\
-https://nytimes.com/athletic/5243327/2024/07/17/luka-modric-real-madrid-contract-new/
 
