@@ -1,3 +1,23 @@
+**There’s No Zealot Like a Trump Convert**\
+`The Republican Party is full of people who have changed their minds about the former president.`\
+https://nytimes.com/2024/07/17/us/politics/vance-speech-rnc-trump.html
+
+**Opposition to Abortion Rights Is at Center of J.D. Vance’s Political Career**\
+`As he joins Donald J. Trump’s presidential ticket, Mr. Vance is seeking to play down, and in some cases rewrite, his views.`\
+https://nytimes.com/2024/07/17/us/politics/jd-vance-abortion.html
+
+**Nevada Conservative Accused of Fraud Over Fund-Raising for Charity**\
+`Michele Fiore, a colorful figure in the state’s politics, took donations intended for a slain officer’s statue and used them for personal expenses, prosecutors said.`\
+https://nytimes.com/2024/07/17/us/michele-fiore-las-vegas-fraud.html
+
+**NASA Spent $450 Million on a Moon Rover. Now It’s Canceling the Mission.**\
+`Delays and concerns about NASA’s future budgets doomed the VIPER mission, which aimed to search for ice near the moon’s south pole.`\
+https://nytimes.com/2024/07/17/science/nasa-viper-moon-rover-canceled.html
+
+**LSU beats Oregon, Miami for 5-star DB DJ Pickett**\
+`Pickett is the third blue-chipper from Florida and the third five-star prospect in the Tigers' 2025 recruiting class.`\
+https://nytimes.com/athletic/5643273/2024/07/17/lsu-recruiting-dj-pickett-commits/
+
 **A View From Milwaukee**\
 `The cheese state welcomed the Republican National Convention this week.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/republican-convention-wisconsin

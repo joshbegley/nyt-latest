@@ -1,3 +1,23 @@
+**There’s No Zealot Like a Trump Convert**\
+`The Republican Party is full of people who have changed their minds about the former president.`\
+https://nytimes.com/2024/07/17/us/politics/vance-speech-rnc-trump.html
+
+**Opposition to Abortion Rights Is at Center of J.D. Vance’s Political Career**\
+`As he joins Donald J. Trump’s presidential ticket, Mr. Vance is seeking to play down, and in some cases rewrite, his views.`\
+https://nytimes.com/2024/07/17/us/politics/jd-vance-abortion.html
+
+**Nevada Conservative Accused of Fraud Over Fund-Raising for Charity**\
+`Michele Fiore, a colorful figure in the state’s politics, took donations intended for a slain officer’s statue and used them for personal expenses, prosecutors said.`\
+https://nytimes.com/2024/07/17/us/michele-fiore-las-vegas-fraud.html
+
+**NASA Spent $450 Million on a Moon Rover. Now It’s Canceling the Mission.**\
+`Delays and concerns about NASA’s future budgets doomed the VIPER mission, which aimed to search for ice near the moon’s south pole.`\
+https://nytimes.com/2024/07/17/science/nasa-viper-moon-rover-canceled.html
+
+**LSU beats Oregon, Miami for 5-star DB DJ Pickett**\
+`Pickett is the third blue-chipper from Florida and the third five-star prospect in the Tigers' 2025 recruiting class.`\
+https://nytimes.com/athletic/5643273/2024/07/17/lsu-recruiting-dj-pickett-commits/
+
 **Donald Trump Jr. Is Building a ‘MAGA Bench.’ J.D. Vance Is Just the Start.**\
 `The former president’s son played a pivotal role in getting Mr. Vance on the G.O.P. ticket. Though he has never held elected office, he has emerged as a key enforcer of MAGA loyalty.`\
 https://nytimes.com/2024/07/17/us/politics/donald-trump-jr-convention.html
@@ -17,24 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/republican-convention-wisco
 **Britain Needs to Move Faster on Climate, Monitoring Group Says**\
 `A report by a government body that oversees efforts to reduce greenhouse gases will help underpin the Labour Party’s plans to accelerate renewable energy and other measures.`\
 https://nytimes.com/2024/07/17/business/britain-climate-change-energy-transition.html
-
-**Republicans’ Depressingly Effective Minority Outreach Strategy**\
-`If Democrats don’t stop laughing at this G.O.P. effort they may soon need an “autopsy” of their own.`\
-https://nytimes.com/2024/07/17/opinion/trump-republican-minority-outreach.html
-
-**Can Democrats Find the Courage to Tell Biden the Truth?**\
-`Democrats are putting loyalty to a leader over country. Sound familiar?`\
-https://nytimes.com/2024/07/17/opinion/biden-democrats-election-2024.html
-
-**While Republicans Put on a Show of Unity, Democrats Wrestle With Their Own Rift**\
-`The discontent with President Biden has not faded and tempers are fraying as he insists on staying in the race over the objections of some fellow Democrats who worry that he cannot win.`\
-https://nytimes.com/2024/07/17/us/politics/biden-democrats-rift.html
-
-**Biden Tests Positive for Covid**\
-`President Biden will “self-isolate and will continue to carry out all of his duties fully during that time,” a White House spokeswoman said.`\
-https://nytimes.com/2024/07/17/us/politics/biden-covid-positive.html
-
-**In Extreme Heat, Do You Need More Electrolytes?**\
-`We asked experts when you need to replenish these essential minerals, and how best to do so.`\
-https://nytimes.com/2024/07/17/well/heat-hydration-electrolyes-drinks.html
 
