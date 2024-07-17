@@ -1,3 +1,11 @@
+**An affordable housing solution hidden in plain sight: Libraries**\
+`Building subsidized housing in America relies on cheap land, and creative ideas`\
+https://nytimes.com/2024/07/17/headway/an-affordable-housing-solution-hidden-in-plain-sight-libraries.html
+
+**Take our quiz to see how well you know the Republicans’ host city.**\
+`By Mitch Smith and Julie Bosman`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/take-our-quiz-to-see-how-well-you-know-the-republicans-host-city
+
 **How to Spot the Signs of Heat Exhaustion**\
 `There are simple ways to address it quickly. Here’s what to know.`\
 https://nytimes.com/2024/07/17/well/heat-exhaustion-symptoms-treatments.html
