@@ -1,3 +1,7 @@
+**City Councilwoman Is Charged With Biting Police Chief During Protest**\
+`Wenyi Susan Zhuang, who represents a Brooklyn district, was protesting at the site of a proposed homeless shelter. The authorities said she resisted arrest with her teeth.`\
+https://nytimes.com/2024/07/17/nyregion/councilwoman-bites-police-protest.html
+
 **Elizabeth Debicki on Her Second Emmy Nomination for Princess Diana**\
 `The actor’s supporting actress nod was one of 18 nominations the show received for its final season. She called the honor “a really beautiful end” to her time on the show.`\
 https://nytimes.com/2024/07/17/arts/television/elizabeth-debicki-crown-emmy-nomination.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/17/business/britain-lab-grown-meat-pet-food.html
 **What’s in Our Queue? ‘Juan Luis Guerra’ and More**\
 `I’m an international correspondent at The New York Times covering culture, sports and news in Latin America. Here are five things I am enjoying recently. `\
 https://nytimes.com/interactive/2024/07/17/arts/editors-recommendations-juanluisguerra.html
-
-**Rubio’s Endorsement of Trump Underscores Reversal for Latino Leader**\
-`Many Hispanic Republicans watched with pride as the Florida senator spoke, but some expressed disappointment over his defense of Trump.`\
-https://nytimes.com/2024/07/17/us/politics/rubio-trump-latinos.html
 
