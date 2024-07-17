@@ -1,3 +1,7 @@
+**“She even promoted a fund to release the criminals from jail. It doesn’t get reported much in our media. One criminal Kamala Harris freed in Minneapolis went on to murder a man in St. Paul, Minn.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/she-even-promoted-a-fund-to-release-the-criminals-from-jail-it-doesnt-get-reported-much-in-our-media-one-criminal-kamala-harris-
+
 **West Virginia Governor Brings His Dog Onstage at R.N.C.**\
 `Gov. Jim Justice of West Virginia, who is running for Senate, was accompanied by his dog, Babydog, during his speech at the Republican National Convention.`\
 https://nytimes.com/video/us/politics/100000009575961/rnc-babydog.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/and-while-pock
 **“Just last week, Ruben Gallego voted to let the millions of people who poured into our country illegally cast a ballot in this upcoming election.”**\
 `By Angelo Fichera`\
 https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/just-last-week-ruben-gallego-voted-to-let-the-millions-of-people-who-poured-into-our-country-illegally-cast-a-ballot-in-this-upc
-
-**Former White House Doctor Describes Tending to Trump’s Wounded Ear**\
-`Ronny Jackson, former President Donald J. Trump’s White House doctor and now a congressman from Texas, replaced the dressing on Mr. Trump’s ear on a flight to Milwaukee on Sunday.`\
-https://nytimes.com/2024/07/16/us/politics/trump-shooting-ear-ronny-jackson-doctor.html
 
