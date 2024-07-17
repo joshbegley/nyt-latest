@@ -1,3 +1,7 @@
+**“On the border, Biden and Harris opened it up to the entire world.”**\
+`By Hamed Aleaziz`\
+https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/on-the-border-biden-and-harris-opened-it-up-to-the-entire-world
+
 **Babydog, a Plump Bulldog Who Is Apparently a Republican, Charms the R.N.C.**\
 `Gov. Jim Justice of West Virginia, running for Senate in his deep-red state, was somewhat upstaged as the crowd shouted “Babydog!” with an energy generally reserved only for former President Donald J. Trump.`\
 https://nytimes.com/2024/07/16/us/politics/jim-justice-babydog.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/16/us/politics/trump-shooting-ear-ronny-jackson-doct
 **“The solutions, guys, they’re really simple. First of all, stop the Biden-vasion and build the wall.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/the-solutions-guys-theyre-really-simple-first-of-all-stop-the-biden-vasion-and-build-the-wall
-
-**Lindsey Harding joining Lakers' coaching staff as assistant**\
-`Hornets assistant coach Bob Beyer is another coach who is expected to be added to JJ Redick’s staff, according to league sources.`\
-https://nytimes.com/athletic/5642325/2024/07/16/lindsey-harding-lakers-assistant/
 
