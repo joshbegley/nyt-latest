@@ -1,3 +1,15 @@
+**Paris Mayor Swims in the Seine to Show It Is Clean Before the Olympics**\
+`Mayor Anne Hidalgo took a plunge in the Seine in an effort to show the river was clean enough to host several swimming events during the Paris Olympics.`\
+https://nytimes.com/video/world/europe/100000009576712/paris-mayor-swim-seine.html
+
+**Biden Says He’d Consider Dropping Out if a ‘Medical Condition’ Emerged**\
+`President Biden has said none of his doctors have told him he has a serious medical condition. But his debate performance last month raised questions about his health and acuity.`\
+https://nytimes.com/2024/07/17/us/politics/biden-says-hed-consider-dropping-out-if-a-medical-condition-emerged.html
+
+**It’s Probably Too Late for Biden to Fix the Supreme Court**\
+`The ideas are good; the timing, not so much.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-supreme-court-reforms
+
 **Spanish court finds individual guilty of racially abusing Vinicius Jr, Rudiger**\
 `A Spanish court has found an individual guilty of racially abusing Real Madrid players Vinicius Junior and Antonio Rudiger online.`\
 https://nytimes.com/athletic/5643349/2024/07/17/real-madrid-vinicius-rudiger-racism/
@@ -22,19 +34,7 @@ https://nytimes.com/athletic/5633308/2024/07/17/liverpool-slot-preseason-salah-e
 `When combined with innocuous acts, “rawdogging” has left its overtly sexual origins behind, just like many other dirty slang words of the past.`\
 https://nytimes.com/2024/07/17/style/rawdog-flights-term.html
 
-**E.U. Court Rebukes Bloc’s Executive Arm Over Covid Vaccine Contract Secrecy**\
-`The court ruled that the European Commission wrongly withheld information, casting a shadow on its leader, Ursula von der Leyen, before a crucial vote on her future.`\
-https://nytimes.com/2024/07/17/world/europe/eu-covid-vaccines.html
-
-**‘The Bear’ Breaks an Emmy Comedy Record. But Is It Actually a Comedy?**\
-`The show set a new high for the most Emmy nominations in a single year for a comedy series, beating out “30 Rock” for the record.`\
-https://nytimes.com/2024/07/17/arts/television/the-bear-emmy-nominations-comedy-record.html
-
-**How would Trump handle the Federal Reserve in a second term?**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/how-would-trump-handle-the-federal-reserve-in-a-second-term
-
-**We Mapped Heat in 3 U.S. Cities. Some Sidewalks Were Over 130 Degrees.**\
-`Air temperature is just one measure of how heat affects cities and people. See how high surface temperatures, which bring additional risks, can get.`\
-https://nytimes.com/interactive/2024/07/17/climate/heat-map-phoenix-sacramento-portland.html
+**Ten years on: Remembering the football fans who died in the MH17 plane crash**\
+`John Alder and Liam Sweeney were on their way to New Zealand to watch Newcastle play when their plane was shot down`\
+https://nytimes.com/athletic/5643008/2024/07/17/mh17-anniversary-football-fans-remembered/
 
