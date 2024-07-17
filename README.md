@@ -1,3 +1,11 @@
+**What Responsibility Do I Have to Ensure the Safety of an Illicit Cat?**\
+`The magazine’s Ethicist columnist on the duty one has to neighbors — and a forbidden pet in harm’s way.`\
+https://nytimes.com/2024/07/17/magazine/cat-mice-repellent-ethics.html
+
+**J.D. Vance Is the First Millennial on a Major Party Ticket**\
+`If elected, the first-term senator would become the third-youngest vice president in history.`\
+https://nytimes.com/2024/07/17/us/politics/vance-millennial-candidate-vice-president.html
+
 **J.D. Vance’s A.I. Agenda: Reduce Regulation**\
 `Trump’s vice-presidential pick has indicated he favors a hands-off approach to A.I. while increasing scrutiny of the biggest tech firms that dominate the field.`\
 https://nytimes.com/2024/07/17/technology/vance-ai-regulation.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/17/opinion/trump-guns-thomas-crooks.html
 **Why MAGA Nation Embraces Trump**\
 `Readers discuss a column by David Brooks about the former president’s appeal. Also: Robert Menendez’s conviction; Joe Biden’s dignity; spirituality in America.`\
 https://nytimes.com/2024/07/17/opinion/donald-trump-appeal-maga.html
-
-**Amazon Workers Narrowly Reject Union Drive at British Warehouse**\
-`The vote, which would have forced the tech giant to negotiate collectively with workers, was the closest an Amazon center in Britain had come to being unionized.`\
-https://nytimes.com/2024/07/17/business/amazon-union-conventry-britain.html
-
-**Lowetide: Oilers' latest trade furthers effort to favor a more rugged style**\
-`Here's a look at the trade and what the organization may be hoping to accomplish with the new focus.`\
-https://nytimes.com/athletic/5641279/2024/07/17/oilers-trade-bourgault-jarventie/
 
