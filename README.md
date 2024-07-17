@@ -1,3 +1,7 @@
+**‘The Buck Stops With Me’: Secret Service Director Soldiers On**\
+`Kimberly Cheatle returned in 2022 to lead the agency she had served for nearly 30 years. Now, an assassination attempt on former President Donald J. Trump has thrown her tenure into uncertainty.`\
+https://nytimes.com/2024/07/17/us/politics/kimberly-cheatle-secret-service.html
+
 **What to Know About the Trump Shooting Investigations**\
 `Multiple inquiries by law enforcement, Congress and federal agencies aim to understand how a would-be assassin was able to fire at Donald J. Trump.`\
 https://nytimes.com/2024/07/17/us/trump-shooting-investigations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/17/us/politics/trump-gunman-crooks-bombs.html
 **City Councilwoman Is Charged With Biting Police Chief During Protest**\
 `Wenyi Susan Zhuang, who represents a Brooklyn district, was protesting at the site of a proposed homeless shelter. The authorities said she resisted arrest with her teeth.`\
 https://nytimes.com/2024/07/17/nyregion/councilwoman-bites-police-protest.html
-
-**Elizabeth Debicki on Her Second Emmy Nomination for Princess Diana**\
-`The actor’s supporting actress nod was one of 18 nominations the show received for its final season. She called the honor “a really beautiful end” to her time on the show.`\
-https://nytimes.com/2024/07/17/arts/television/elizabeth-debicki-crown-emmy-nomination.html
 
