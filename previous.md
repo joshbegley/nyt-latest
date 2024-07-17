@@ -1,3 +1,11 @@
+**Republicans Spread Misinformation About the Fentanyl Crisis**\
+`Many Republicans’ anger over the issue is misplaced.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/fentanyl-border-immigrants
+
+**Dave Loggins, Who Wrote Hits for Himself and Others, Dies at 76**\
+`After tasting fame with “Please Come to Boston” in 1974, he became a major Nashville songwriter. He also wrote the theme to the Masters golf tournament.`\
+https://nytimes.com/2024/07/17/arts/music/dave-loggins-dead.html
+
 **Emmy Nominations: Our Critics on ‘The Bear,’ ‘Baby Reindeer’ and Delightful Surprises**\
 `The categories are more confusing than ever and worthy shows were left out, but this year’s nominations also included some thrilling picks.`\
 https://nytimes.com/2024/07/17/arts/television/emmy-nominations-critics-analysis.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/17/arts/television/jon-hamm-emmys-fargo-morning-show
 **Local Officer Fired at Trump Gunman as Gunshots Rang Out, Official Says**\
 `The officer did not fire the kill shot, but did “engage” the gunman, the Butler County district attorney said.`\
 https://nytimes.com/2024/07/17/us/local-sniper-trump-gunman.html
-
-**The Olympics Should Stand With Afghanistan’s Women Athletes**\
-`None of the women on the Olympic team live in Afghanistan, nor could they visit without risking their lives. They deserve places on the refugee team.`\
-https://nytimes.com/2024/07/17/opinion/afghanistan-women-olympics-taliban.html
-
-**J.D. Vance Once Warned Trump About Lying About Elections. That Was Then.**\
-`Once he ran for office, Mr. Vance, Donald J. Trump’s new running mate, embraced Mr. Trump’s false theories about voter fraud and elections.`\
-https://nytimes.com/2024/07/17/us/politics/donald-trump-jd-vance-republican-2024-election.html
 

@@ -1,3 +1,11 @@
+**Republicans Spread Misinformation About the Fentanyl Crisis**\
+`Many Republicans’ anger over the issue is misplaced.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/fentanyl-border-immigrants
+
+**Dave Loggins, Who Wrote Hits for Himself and Others, Dies at 76**\
+`After tasting fame with “Please Come to Boston” in 1974, he became a major Nashville songwriter. He also wrote the theme to the Masters golf tournament.`\
+https://nytimes.com/2024/07/17/arts/music/dave-loggins-dead.html
+
 **Emmy Nominations: Our Critics on ‘The Bear,’ ‘Baby Reindeer’ and Delightful Surprises**\
 `The categories are more confusing than ever and worthy shows were left out, but this year’s nominations also included some thrilling picks.`\
 https://nytimes.com/2024/07/17/arts/television/emmy-nominations-critics-analysis.html
