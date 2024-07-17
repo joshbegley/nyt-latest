@@ -1,3 +1,11 @@
+**What Responsibility Do I Have to Ensure the Safety of an Illicit Cat?**\
+`The magazine’s Ethicist columnist on the duty one has to neighbors — and a forbidden pet in harm’s way.`\
+https://nytimes.com/2024/07/17/magazine/cat-mice-repellent-ethics.html
+
+**J.D. Vance Is the First Millennial on a Major Party Ticket**\
+`If elected, the first-term senator would become the third-youngest vice president in history.`\
+https://nytimes.com/2024/07/17/us/politics/vance-millennial-candidate-vice-president.html
+
 **J.D. Vance’s A.I. Agenda: Reduce Regulation**\
 `Trump’s vice-presidential pick has indicated he favors a hands-off approach to A.I. while increasing scrutiny of the biggest tech firms that dominate the field.`\
 https://nytimes.com/2024/07/17/technology/vance-ai-regulation.html
