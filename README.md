@@ -1,3 +1,7 @@
+**Six Questions We Asked 65 Republican Convention Attendees**\
+`How the party has changed and where it might be going, according to its most committed members.`\
+https://nytimes.com/interactive/2024/07/17/upshot/rnc-convention-republicans-trump-nominee.html
+
 **Why Iga Swiatek's Wimbledon record is not a simple narrative of surface tension**\
 `Iga Swiatek had another Wimbledon campaign to forget — but how much of that is really about her game on grass?`\
 https://nytimes.com/athletic/5640957/2024/07/17/iga-swiatek-wimbledon-grass-tennis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/17/us/jd-vance-kamala-harris-california.html
 **Why Can’t I Forgive My Husband for Dropping Our Senior Dog?**\
 `A reader is struggling with feelings of resentment toward her husband, whom she accused of imposing a “death sentence” when their pet was paralyzed in a fall.`\
 https://nytimes.com/2024/07/17/style/caregiving-accidents-forgiveness.html
-
-**Lara Trump, Woman in Black**\
-`At the Republican National Convention, Donald Trump’s daughter-in-law and co-chair of the party made it personal.`\
-https://nytimes.com/2024/07/17/style/lara-trump-brooch-rnc.html
 
