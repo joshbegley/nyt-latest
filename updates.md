@@ -1,3 +1,11 @@
+**Peter Navarro, Trump Trade Adviser, Released From Prison and Headed to the R.N.C.**\
+`The former Trump administration official completed a four-month sentence for contempt of Congress and will speak at the Republican National Convention on Wednesday.`\
+https://nytimes.com/2024/07/17/us/politics/peter-navarro-prison-convention.html
+
+**Emmy Nomination Snubs: John Mulaney, ‘The Curse’ and More**\
+`Mulaney’s late-night experiment and the eccentric Showtime satire were mostly ignored by the Emmys. But never bet against Stringer Bell.`\
+https://nytimes.com/2024/07/17/arts/television/emmy-nomination-snubs.html
+
 **HBO Falls to Third at the Emmys for the First Time Since 1996**\
 `HBO earned 91 Emmy nominations, trailing both Netflix, which took 107, and FX, which had 93.`\
 https://nytimes.com/2024/07/17/arts/television/hbo-emmys-nominations.html
