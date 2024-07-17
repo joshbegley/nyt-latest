@@ -1,3 +1,19 @@
+**‘Sinners’ and ‘Russian Talibans’: A Holy War Roils a Once Placid Village**\
+`A battle has erupted in Moldova over its links to the Russian Orthodox Church, seen by many as a tool of Moscow’s influence abroad.`\
+https://nytimes.com/2024/07/17/world/europe/russian-orthodox-church-ukraine-war-moldova.html
+
+**A Guide to the King’s Speech: Crown Jewels, Black Rod and a Mace**\
+`When King Charles unveils the new U.K. government’s agenda in Parliament on Wednesday, he will be surrounded by rituals that nod to hundreds of years of history.`\
+https://nytimes.com/article/kings-speech-uk-parliament.html
+
+**Open Championship pool picks: Aberg, MacIntyre, Rai among the picks**\
+`With the Open Championship coming up later this week, Amos Morale III gives his pool picks for the final major of the year.`\
+https://nytimes.com/athletic/5641693/2024/07/17/open-championship-pool-picks-aberg-macintyre-rai/
+
+**To Revitalize Britain’s Economy, a Plan for a Stronger Government Role**\
+`The Labour Party’s economic agenda, like many other programs around the world, puts political leaders more firmly in charge of industrial policy.`\
+https://nytimes.com/2024/07/17/business/britain-labour-industrial-policy-economy.html
+
 **Mother Whose Son Died of Fentanyl Poisoning Brings Some Delegates to Tears**\
 `Anne Fundner blamed the death of her 15-year-old son, who took fentanyl-laced pills, on President Biden’s border policies.`\
 https://nytimes.com/2024/07/16/us/politics/anne-fundner-rnc-fentanyl-poisoning.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/gas-hit-a-low-
 **Nikki Haley, What Happened to Your Principled Stand?**\
 `She’s just another politician, bending the knee.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/nikki-haley-what-happened-to-your-principled-stand
-
-**Nikki Haley Says Trump Has Her ‘Strong Endorsement’ for President**\
-`Nikki Haley, who was initially not invited to the convention, received an invitation from Mr. Trump following Sunday’s assassination attempt and accepted it in the name of “unity.”`\
-https://nytimes.com/video/us/politics/100000009576171/nikki-haley-trump-endorsement.html
-
-**NBA to turn to 'consideration of expansion' after media rights deal done**\
-`"We did approve this stage of media proposals," Silver said Tuesday, but he cautioned that the process is not done.`\
-https://nytimes.com/athletic/5642601/2024/07/16/nba-expansion-media-rights-silver/
-
-**N.B.A. Board Backs TV Rights Deals, but Steps Remain**\
-`The agreements, set to begin after next season, could potentially pay the league about $76 billion over 11 years.`\
-https://nytimes.com/2024/07/16/business/nba-rights-disney-comcast-amazon.html
-
-**DeSantis celebrates Trump, who once viciously mocked him.**\
-`By Nicholas Nehamas`\
-https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/desantis-trump-rnc
 
