@@ -1,3 +1,7 @@
+**City Councilwoman Is Charged With Biting Police Chief During Protest**\
+`Wenyi Susan Zhuang, who represents a Brooklyn district, was protesting at the site of a proposed homeless shelter. The authorities said she resisted arrest with her teeth.`\
+https://nytimes.com/2024/07/17/nyregion/councilwoman-bites-police-protest.html
+
 **Elizabeth Debicki on Her Second Emmy Nomination for Princess Diana**\
 `The actor’s supporting actress nod was one of 18 nominations the show received for its final season. She called the honor “a really beautiful end” to her time on the show.`\
 https://nytimes.com/2024/07/17/arts/television/elizabeth-debicki-crown-emmy-nomination.html
