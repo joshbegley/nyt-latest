@@ -1,3 +1,7 @@
+**How field conditions played a role in USWNT's Olympic send-off game**\
+`The U.S. played its final game before the Olympics on a patch-filled surface.`\
+https://nytimes.com/athletic/5642728/2024/07/17/uswnt-field-conditions-olympics/
+
 **Anchovies Are Always a Good Idea**\
 `This diminutive fish has been making other things taste great for millenniums.`\
 https://nytimes.com/2024/07/17/opinion/anchovies-umami.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5641987/2024/07/17/england-euro-2025-squad/
 **Revealed: The results of our Premier League season ticket survey**\
 `Our survey reveals a clear trend in pricing - costs for fans are going up as clubs continue to search for new ways to maximise revenue`\
 https://nytimes.com/athletic/5614585/2024/07/17/premier-league-season-ticket-survey/
-
-**Wednesday Briefing**\
-`President Biden’s growing isolation.`\
-https://nytimes.com/2024/07/17/briefing/biden-isolation-gaza-strikes.html
 
