@@ -1,3 +1,7 @@
+**The Briefing - Hearts 1 Tottenham 5: Archie Gray at centre-half, Maddison sharp, young forwards impress**\
+`Jay Harris breaks down the main talking points from Tottenham's friendly in Edinburgh on Wednesday `\
+https://nytimes.com/athletic/5643422/2024/07/17/hearts-tottenham-friendly-result-analysis/
+
 **‘The Buck Stops With Me’: Secret Service Director Soldiers On**\
 `Kimberly Cheatle returned in 2022 to lead the agency she had served for nearly 30 years. Now, an assassination attempt on former President Donald J. Trump has thrown her tenure into uncertainty.`\
 https://nytimes.com/2024/07/17/us/politics/kimberly-cheatle-secret-service.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/17/arts/television/emmy-nominations-critics-analysis
 **Improvised Bombs Found in Gunman’s Car at Trump Rally Used a Radio-Control System**\
 `A report obtained by The Times detailed the bombs’ rudimentary construction, made with the kind of initiators used for fireworks shows.`\
 https://nytimes.com/2024/07/17/us/politics/trump-gunman-crooks-bombs.html
-
-**City Councilwoman Is Charged With Biting Police Chief During Protest**\
-`Wenyi Susan Zhuang, who represents a Brooklyn district, was protesting at the site of a proposed homeless shelter. The authorities said she resisted arrest with her teeth.`\
-https://nytimes.com/2024/07/17/nyregion/councilwoman-bites-police-protest.html
 
