@@ -1,3 +1,11 @@
+**Inside Mbappe's Madrid presentation: Echoes of Ronaldo and warm welcome for family**\
+`Kylian Mbappe was finally unveiled as a Real Madrid player on Tuesday after a long-running saga`\
+https://nytimes.com/athletic/5642720/2024/07/17/kylian-mbappe-real-madrid-presentation/
+
+**U.K. Inflation Steady as Interest Rate Cuts Hang in the Balance**\
+`Consumer prices rose 2 percent in June from a year earlier, in line with the Bank of England’s target for the second month in a row.`\
+https://nytimes.com/2024/07/17/business/britain-inflation.html
+
 **Despite losing 2 picks, Giants added premium talent early in MLB Draft**\
 `The Giants didn't have a second- or third-round pick, but they see promise in Dakota Jordan, taken in Round 4.`\
 https://nytimes.com/athletic/5642696/2024/07/17/sf-giants-2024-draft-analysis/

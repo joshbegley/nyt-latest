@@ -1,3 +1,11 @@
+**Inside Mbappe's Madrid presentation: Echoes of Ronaldo and warm welcome for family**\
+`Kylian Mbappe was finally unveiled as a Real Madrid player on Tuesday after a long-running saga`\
+https://nytimes.com/athletic/5642720/2024/07/17/kylian-mbappe-real-madrid-presentation/
+
+**U.K. Inflation Steady as Interest Rate Cuts Hang in the Balance**\
+`Consumer prices rose 2 percent in June from a year earlier, in line with the Bank of England’s target for the second month in a row.`\
+https://nytimes.com/2024/07/17/business/britain-inflation.html
+
 **Despite losing 2 picks, Giants added premium talent early in MLB Draft**\
 `The Giants didn't have a second- or third-round pick, but they see promise in Dakota Jordan, taken in Round 4.`\
 https://nytimes.com/athletic/5642696/2024/07/17/sf-giants-2024-draft-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5639175/2024/07/17/seamus-coleman-everton-sligo/
 **England's manager search: Potter, Howe, Pochettino - and the FA's key decision-maker**\
 `How the FA reacted to Gareth Southgate's exit, the candidates now in the running and the man who will be key to the final decision…`\
 https://nytimes.com/athletic/5639017/2024/07/17/england-manager-search-potter-howe-pochettino/
-
-**Donald Trump is “an American whom even Barack Obama admits people consider the American dream.”**\
-`By Angelo Fichera`\
-https://nytimes.com/live/2024/07/17/us/rnc-fact-check/donald-trump-is-an-american-whom-even-barack-obama-admits-people-consider-the-american-dream
-
-**Fact-Checking Day 2 of the Republican National Convention**\
-`A team of New York Times reporters followed the developments and fact-checked the speakers, providing context and explanation.`\
-https://nytimes.com/live/2024/07/17/us/rnc-fact-check
 
