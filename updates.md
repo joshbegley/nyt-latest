@@ -1,3 +1,11 @@
+**Menendez Tells Allies He Is Considering Resigning After Conviction**\
+`Senator Robert Menendez of New Jersey was found guilty on Tuesday in a sweeping corruption scheme and faces a potential expulsion vote.`\
+https://nytimes.com/2024/07/17/nyregion/robert-menendez-political-future.html
+
+**A Fist Pump and a Flag: Trump Sneakers for Sale**\
+`A website with close ties to Donald Trump is selling $300 sneakers commemorating his brush with death.`\
+https://nytimes.com/2024/07/17/us/politics/trump-sneakers-assassination-attempt.html
+
 **“Biden’s F.B.I. has even stated that practicing Catholics present an elevated risk of domestic terrorism simply because of their faith.”**\
 `By Angelo Fichera`\
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/bidens-fbi-has-even-stated-that-practicing-catholics-present-an-elevated-risk-of-domestic-terrorism-simply-because-of-their-fait
