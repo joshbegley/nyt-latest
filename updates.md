@@ -1,3 +1,15 @@
+**J.D. Vance’s A.I. Agenda: Reduce Regulation**\
+`Trump’s vice-presidential pick has indicated he favors a hands-off approach to A.I. while increasing scrutiny of the biggest tech firms that dominate the field.`\
+https://nytimes.com/2024/07/17/technology/vance-ai-regulation.html
+
+**Robert Pearson, Hair Stylist Turned Acclaimed Barbecue Chef, Dies at 87**\
+`His Texas-style brisket, made with exacting precision, inspired a generation of New York City pit masters, who opened a wave of smoky joints in the 2000s.`\
+https://nytimes.com/2024/07/17/dining/robert-pearson-dead.html
+
+**Duhatschek mailbag: Which NHL bottom feeder will be competitive first, concussions and more**\
+`Which bottom-feeder team has done the best job rebuilding? And should something be done to address violent contact to the head in the NHL?`\
+https://nytimes.com/athletic/5631812/2024/07/17/nhl-bottom-feeder-teams-concussions/
+
 **Wall St. Journal Reporter Says She Was Fired Over Hong Kong Union Post**\
 `The journalist accused her former employer of failing to stand up for press freedom, a claim that the newspaper rejected.`\
 https://nytimes.com/2024/07/17/world/asia/wsj-reporter-fired-hong-kong.html

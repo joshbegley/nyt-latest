@@ -1,3 +1,11 @@
+**J.D. Vance’s A.I. Agenda: Reduce Regulation**\
+`Trump’s vice-presidential pick has indicated he favors a hands-off approach to A.I. while increasing scrutiny of the biggest tech firms that dominate the field.`\
+https://nytimes.com/2024/07/17/technology/vance-ai-regulation.html
+
+**Robert Pearson, Hair Stylist Turned Acclaimed Barbecue Chef, Dies at 87**\
+`His Texas-style brisket, made with exacting precision, inspired a generation of New York City pit masters, who opened a wave of smoky joints in the 2000s.`\
+https://nytimes.com/2024/07/17/dining/robert-pearson-dead.html
+
 **Wall St. Journal Reporter Says She Was Fired Over Hong Kong Union Post**\
 `The journalist accused her former employer of failing to stand up for press freedom, a claim that the newspaper rejected.`\
 https://nytimes.com/2024/07/17/world/asia/wsj-reporter-fired-hong-kong.html
@@ -9,6 +17,10 @@ https://nytimes.com/2024/07/17/world/europe/kings-speech-uk.html
 **‘Rust’ Armorer Asks for New Trial After Dismissal of Alec Baldwin’s Case**\
 `Lawyers for the armorer, Hannah Gutierrez-Reed, are seizing on a judge’s dramatic dismissal of the actor’s case to argue for her release from prison.`\
 https://nytimes.com/2024/07/17/arts/rust-armorer-hannah-gutierrez-reed-appeal.html
+
+**Duhatschek mailbag: Which NHL bottom feeder will be competitive first, concussions and more**\
+`Which bottom-feeder team has done the best job rebuilding? And should something be done to address violent contact to the head in the NHL?`\
+https://nytimes.com/athletic/5631812/2024/07/17/nhl-bottom-feeder-teams-concussions/
 
 **What if We Learn Nothing About the Man Who Shot Donald Trump?**\
 `America is a country where spectacular violence doesn’t require an explanation`\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/17/business/amazon-union-conventry-britain.html
 **Lowetide: Oilers' latest trade furthers effort to favor a more rugged style**\
 `Here's a look at the trade and what the organization may be hoping to accomplish with the new focus.`\
 https://nytimes.com/athletic/5641279/2024/07/17/oilers-trade-bourgault-jarventie/
-
-**A 'hungry' Jordan Miller makes his case for a Clippers roster spot**\
-`Miller has been explosive on offense and working on his defense this summer in his quest "to be with the big team."`\
-https://nytimes.com/athletic/5642758/2024/07/17/jordan-miller-clippers-summer-league-nba/
-
-**‘Banger of a Recipe, Easy and Better Than the Sum of Its Parts!’**\
-`Hetty Lui McKinnon’s corn salad with mango and halloumi has raves for a reason.`\
-https://nytimes.com/2024/07/17/dining/banger-of-a-recipe-easy-and-better-than-the-sum-of-its-parts.html
-
-**This Is Literally Your Brain on Drugs**\
-`A small new study shows reactions in the brain in people who were given psilocybin in a controlled setting.`\
-https://nytimes.com/2024/07/17/health/psilocybin-psychedelic-mushrooms-brain.html
 
