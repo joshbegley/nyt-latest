@@ -1,3 +1,7 @@
+**Biden Tests Positive for Covid**\
+`President Biden will “self-isolate and will continue to carry out all of his duties fully during that time,” a White House spokeswoman said.`\
+https://nytimes.com/2024/07/17/us/politics/biden-covid-positive.html
+
 **In Extreme Heat, Do You Need More Electrolytes?**\
 `We asked experts when you need to replenish these essential minerals, and how best to do so.`\
 https://nytimes.com/2024/07/17/well/heat-hydration-electrolyes-drinks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/17/us/trump-shooting-crooks-motive.html
 **Vance Will Introduce Himself to American Voters**\
 `Also, new details emerged about the attempted assassination of Donald Trump. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/07/17/briefing/jd-vance-speech-trump-investigation-emmy-nominations.html
-
-**Trump Fans Try Playing Nice, but ‘Fight, Fight’ Comes More Easily**\
-`Donald J. Trump signaled he wanted Republicans to tone it down after the attempt on his life. It’s a tough ask for his fired-up supporters at the Republican National Convention.`\
-https://nytimes.com/2024/07/17/us/politics/trump-republicans-rnc.html
 
