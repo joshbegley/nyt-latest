@@ -6,6 +6,10 @@ https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/kamala-had-one
 `Lozano ends his tenure with Mexico after 21 games and after Mexico’s disappointing performance at the 2024 Copa América.`\
 https://nytimes.com/athletic/5642490/2024/07/16/jaime-lozano-mexico-coach-out/
 
+**Meet the Red Sox 2024 draftees: Breaking down the 20 players selected**\
+`The Red Sox went in heavy on pitching in Days 2 and 3, and they were aiming for a particular type of pitcher.`\
+https://nytimes.com/athletic/5642036/2024/07/16/red-sox-draft-2024-analysis/
+
 **Reservoir Creator**\
 `Alex Eaton-Salners shows signs of life.`\
 https://nytimes.com/2024/07/16/crosswords/daily-puzzle-2024-07-16.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/16/us/politics/desantis-moms-for-liberty-rnc.html
 **“We are facing an invasion on our southern border, not figuratively, a literal invasion. 11.5 million people have crossed our border illegally under Joe Biden.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/we-are-facing-an-invasion-on-our-southern-border-not-figuratively-a-literal-invasion-11-5-million-people-have-crossed-our-border
-
-**Broncos, Quinn Meinerz reach 4-year, $80 million contract**\
-`The deal, which pays Meinerz $20 million annually, makes him among the top five highest-paid players at his position.`\
-https://nytimes.com/athletic/5642465/2024/07/16/broncos-quinn-meinerz-contract/
 

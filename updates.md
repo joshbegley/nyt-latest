@@ -1,3 +1,7 @@
+**Meet the Red Sox 2024 draftees: Breaking down the 20 players selected**\
+`The Red Sox went in heavy on pitching in Days 2 and 3, and they were aiming for a particular type of pitcher.`\
+https://nytimes.com/athletic/5642036/2024/07/16/red-sox-draft-2024-analysis/
+
 **G.O.P. Senate hopefuls are bashing their opponents by tying them to Biden.**\
 `Republican candidates trying to oust resilient Democratic incumbents took the convention stage one after the other. The party needs to flip only one seat to regain control of the chamber if Donald Trump wins in November.`\
 https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/gop-senate-hopefuls-bash-their-opponents-by-tying-them-to-biden
