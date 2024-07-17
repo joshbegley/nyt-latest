@@ -1,3 +1,7 @@
+**‘Our Nation Is Not Well’: Voters Fear What Could Happen Next**\
+`There is growing anxiety that the country’s political divide is nearly beyond repair, and the assassination attempt on Donald Trump only made things worse.`\
+https://nytimes.com/2024/07/17/us/elections/voters-trump-assassination-attempt.html
+
 **Kings mailbag: Byfield's role, draft and prospects**\
 `The Kings need Byfield to play a major role. Also: Will Byfield wear a "C" someday?`\
 https://nytimes.com/athletic/5643616/2024/07/17/la-kings-quinton-byfield-captain/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-supreme-court-reforms
 **Spanish court finds individual guilty of racially abusing Vinicius Jr, Rudiger**\
 `A Spanish court has found an individual guilty of racially abusing Real Madrid players Vinicius Junior and Antonio Rudiger online.`\
 https://nytimes.com/athletic/5643349/2024/07/17/real-madrid-vinicius-rudiger-racism/
-
-**Absent a Father Figure, J.D. Vance Found Notable Mentors**\
-`His father gave him up for adoption when he was 6. Mr. Vance has sought to fill the gap with people who have helped him, including Peter Thiel, the tech investor and entrepreneur.`\
-https://nytimes.com/2024/07/17/us/jd-vance-father-mentors.html
 

@@ -1,3 +1,7 @@
+**‘Our Nation Is Not Well’: Voters Fear What Could Happen Next**\
+`There is growing anxiety that the country’s political divide is nearly beyond repair, and the assassination attempt on Donald Trump only made things worse.`\
+https://nytimes.com/2024/07/17/us/elections/voters-trump-assassination-attempt.html
+
 **Kings mailbag: Byfield's role, draft and prospects**\
 `The Kings need Byfield to play a major role. Also: Will Byfield wear a "C" someday?`\
 https://nytimes.com/athletic/5643616/2024/07/17/la-kings-quinton-byfield-captain/
