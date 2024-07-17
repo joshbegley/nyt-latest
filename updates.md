@@ -1,3 +1,11 @@
+**A Collection for the ‘Summer Girl’**\
+`Fashion’s equivalent of the song of the summer is a skin-baring collaboration between J. Crew and the downtown New York brand Maryam Nassir Zadeh.`\
+https://nytimes.com/2024/07/17/style/j-crew-maryam-nassir-zadeh-summer-collection.html
+
+**The G.O.P. Convention Is No Landslide Win for Milwaukee Businesses**\
+`Many business owners said they were disappointed by a drop in customers during the Republican National Convention. Other places were packed.`\
+https://nytimes.com/2024/07/17/us/milwaukee-rnc-business.html
+
 **Navy Exonerates Black Sailors Unfairly Convicted After World War II Disaster**\
 `The men had objected to working until safety concerns were addressed following an explosion at a port near San Francisco that claimed hundreds of lives.`\
 https://nytimes.com/2024/07/17/us/politics/navy-disaster-black-sailors-exonerated.html

@@ -1,3 +1,11 @@
+**A Collection for the ‘Summer Girl’**\
+`Fashion’s equivalent of the song of the summer is a skin-baring collaboration between J. Crew and the downtown New York brand Maryam Nassir Zadeh.`\
+https://nytimes.com/2024/07/17/style/j-crew-maryam-nassir-zadeh-summer-collection.html
+
+**The G.O.P. Convention Is No Landslide Win for Milwaukee Businesses**\
+`Many business owners said they were disappointed by a drop in customers during the Republican National Convention. Other places were packed.`\
+https://nytimes.com/2024/07/17/us/milwaukee-rnc-business.html
+
 **Navy Exonerates Black Sailors Unfairly Convicted After World War II Disaster**\
 `The men had objected to working until safety concerns were addressed following an explosion at a port near San Francisco that claimed hundreds of lives.`\
 https://nytimes.com/2024/07/17/us/politics/navy-disaster-black-sailors-exonerated.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/17/us/politics/trump-republicans-rnc.html
 **Will Sarah Huckabee Sanders Be America’s First Woman President?**\
 `She might have the biggest head-start in a future race.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/sanders-trump-republicans
-
-**Premier League matches in U.S. in league's 'self-interest', says New Jersey governor**\
-`New Jersey governor Phil Murphy says he “would die” to bring Premier League matches to the United States, explaining that he believes it is in the competition’s “enlightened self-interest” to do so.`\
-https://nytimes.com/athletic/5641285/2024/07/17/premier-league-matches-america-phil-murphy/
-
-**T. Rex Dethroned? A Stegosaurus Fossil Sells for a Record $44.6 Million.**\
-`The stegosaurus had been expected to sell for between $4 million and $6 million. It set a record in the contentious fossil trade, where scientists fear being priced out of the market.`\
-https://nytimes.com/2024/07/17/arts/design/stegosaurus-auction-44-million.html
 
