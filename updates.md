@@ -1,3 +1,7 @@
+**Flash Flooding in Toronto Leads to Rescues and Power Outages**\
+`More than 167,000 customers lost power on Tuesday after severe thunderstorms.`\
+https://nytimes.com/2024/07/17/world/americas/toronto-canada-floods.html
+
 **Takeaways From Day 2 of the R.N.C.: The Republican Unity Show**\
 `A roster of Donald J. Trump’s former rivals, including Nikki Haley, lined up to pledge their allegiance, and a party confident of its November fate drove home an aggressive law-and-order message.`\
 https://nytimes.com/2024/07/17/us/politics/rnc-trump-vivek-haley-takeaways.html
