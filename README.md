@@ -1,3 +1,11 @@
+**‘Rust’ Armorer Asks for New Trial After Dismissal of Alec Baldwin’s Case**\
+`Lawyers for the armorer, Hannah Gutierrez-Reed, are seizing on a judge’s dramatic dismissal of the actor’s case to argue for her release from prison.`\
+https://nytimes.com/2024/07/17/arts/rust-armorer-hannah-gutierrez-reed-appeal.html
+
+**What if We Learn Nothing About the Man Who Shot Donald Trump?**\
+`America is a country where spectacular violence doesn’t require an explanation`\
+https://nytimes.com/2024/07/17/opinion/trump-guns-thomas-crooks.html
+
 **Why MAGA Nation Embraces Trump**\
 `Readers discuss a column by David Brooks about the former president’s appeal. Also: Robert Menendez’s conviction; Joe Biden’s dignity; spirituality in America.`\
 https://nytimes.com/2024/07/17/opinion/donald-trump-appeal-maga.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/17/arts/emmy-nominations/shogun-was-once-a-limi
 **Moving In Childhood Contributes to Depression, Study Finds**\
 `A study of more than a million Danes found that frequent moves in childhood had a bigger effect than poverty on adult mental health risk.`\
 https://nytimes.com/2024/07/17/health/moving-childhood-depression.html
-
-**Ford and Mellon Foundations Name 2024 Disability Futures Fellows**\
-`The 20 recipients, including a Broadway composer, a Marvel video game voice actress and a three-time Pushcart Prize-nominated poet, are the initiative’s final cohort.`\
-https://nytimes.com/2024/07/17/arts/design/ford-mellon-foundations-2024-disability-futures-fellows.html
-
-**Emmy Nominees 2024: The Updating List**\
-`Nominations for the 76th Emmy Awards will be announced on Wednesday. See below for a live list of nominees.`\
-https://nytimes.com/2024/07/17/arts/television/emmy-nominees-list-2024.html
 
