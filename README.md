@@ -1,3 +1,11 @@
+**Nikki Haley Endorses Trump and Urges Republicans to Unite Behind Him**\
+`In a speech at her party’s nominating convention, Ms. Haley gave her full support to the former president after a bruising primary campaign.`\
+https://nytimes.com/2024/07/16/us/politics/haley-endorses-trump.html
+
+**“Gas hit a low of $1.87 a gallon” under the Trump administration**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/gas-hit-a-low-of-1-87-a-gallon-under-the-trump-administration
+
 **Nikki Haley, What Happened to Your Principled Stand?**\
 `She’s just another politician, bending the knee.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/nikki-haley-what-happened-to-your-principled-stand
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5642615/2024/07/16/mlb-all-star-game-shohei-ohtani-
 **Winston, Celebrity Gorilla at the San Diego Zoo Safari Park, Dies at 52**\
 `The great ape was euthanized because his health had declined, staff members said.`\
 https://nytimes.com/2024/07/16/us/winston-gorilla-san-diego-zoo.html
-
-**“Joe Biden created an app to let illegals schedule their arrival.”**\
-`By Hamed Aleaziz`\
-https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/joe-biden-created-an-app-to-let-illegals-schedule-their-arrival
-
-**A's take it 'old school' in their final draft in Oakland, select 18 college players**\
-`The A's 2024 selections were a throwback with a bit of a “Moneyball” feel.`\
-https://nytimes.com/athletic/5642575/2024/07/16/oakland-athletics-2024-mlb-draft-breakdown/
 
