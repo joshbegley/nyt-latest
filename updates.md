@@ -1,3 +1,7 @@
+**The Longer Biden Is in Denial, ‘the Better It Is for Us’**\
+`A grim truth from one of Trump’s pollsters.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-biden-denial-polling
+
 **Renaming an Airport After Silvio Berlusconi Divides a Region in Italy**\
 `The decision to name Italy’s second-largest passenger hub after the divisive media mogul and politician, who died in 2023, has prompted outrage and protests.`\
 https://nytimes.com/2024/07/17/world/europe/silvio-berlusconi-airport-protests.html
