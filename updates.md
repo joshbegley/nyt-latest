@@ -1,3 +1,11 @@
+**Why MAGA Nation Embraces Trump**\
+`Readers discuss a column by David Brooks about the former president’s appeal. Also: Robert Menendez’s conviction; Joe Biden’s dignity; spirituality in America.`\
+https://nytimes.com/2024/07/17/opinion/donald-trump-appeal-maga.html
+
+**Amazon Workers Narrowly Reject Union Drive at British Warehouse**\
+`The vote, which would have forced the tech giant to negotiate collectively with workers, was the closest an Amazon center in Britain had come to being unionized.`\
+https://nytimes.com/2024/07/17/business/amazon-union-conventry-britain.html
+
 **Lowetide: Oilers' latest trade furthers effort to favor a more rugged style**\
 `Here's a look at the trade and what the organization may be hoping to accomplish with the new focus.`\
 https://nytimes.com/athletic/5641279/2024/07/17/oilers-trade-bourgault-jarventie/
