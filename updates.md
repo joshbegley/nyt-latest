@@ -1,3 +1,7 @@
+**Emerson: How good does Billy Napier have to be in Year 3 at Florida?**\
+`Should Florida be patient with Napier and look for stability, or does he need to show improvement for his job security?`\
+https://nytimes.com/athletic/5644116/2024/07/17/florida-football-billy-napier/
+
 **Harris condemns assassination attempt but says debate over election stakes must continue.**\
 `By Nicholas Nehamas`\
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/kamala-harris-michigan
