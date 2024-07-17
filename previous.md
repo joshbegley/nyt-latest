@@ -1,3 +1,11 @@
+**Takeaways From Day 2 of the R.N.C.: The Republican Unity Show**\
+`A roster of Donald J. Trump’s former rivals, including Nikki Haley, lined up to pledge their allegiance, and a party confident of its November fate drove home an aggressive law-and-order message.`\
+https://nytimes.com/2024/07/17/us/politics/rnc-trump-vivek-haley-takeaways.html
+
+**Flash Flooding in Toronto Leads to Rescues, Power Outages**\
+`More than 167,000 customers lost power on Tuesday after severe thunderstorms.`\
+https://nytimes.com/2024/07/17/world/toronto-canada-floods.html
+
 **Seamus Coleman, Everton's £60k 'phenomenon'**\
 `The 35-year-old right-back is heading 'home' to Sligo for pre-season - those who have helped at Everton reflect on 16 years on Merseyside`\
 https://nytimes.com/athletic/5639175/2024/07/17/seamus-coleman-everton-sligo/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/17/briefing/biden-isolation-gaza-strikes.html
 **Morgan Lake interview: What it takes to break two metres and get an Olympic high jump medal in Paris**\
 `We spoke to Lake as she prepares to try to win Britain’s first Olympic medal in the women’s high jump since 1960`\
 https://nytimes.com/athletic/5634397/2024/07/17/morgan-lake-interview-olympics-high-jump/
-
-**What was your Premier League club's best transfer window and why?**\
-`From Diego Costa and Cesc Fabregas to Alisson and Fabinho, this is when Premier League clubs got their transfer windows just right…`\
-https://nytimes.com/athletic/5627094/2024/07/17/premier-league-best-transfer-windows/
-
-**Arsenal and England have a conundrum in common: Who is Rice's long-term midfield partner?**\
-`England struggled to find the right balance alongside Declan Rice and Arsenal's use of Jorginho and Thomas Partey is not a long-term option`\
-https://nytimes.com/athletic/5640816/2024/07/17/rice-england-arsenal-midfield/
 
