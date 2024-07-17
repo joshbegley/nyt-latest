@@ -1,3 +1,7 @@
+**“Biden’s F.B.I. has even stated that practicing Catholics present an elevated risk of domestic terrorism simply because of their faith.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/bidens-fbi-has-even-stated-that-practicing-catholics-present-an-elevated-risk-of-domestic-terrorism-simply-because-of-their-fait
+
 **“She was appointed the border czar.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/she-was-appointed-the-border-czar
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/17/us/politics/donald-trump-jr-convention.html
 **For These Nearly Extinct Crocodiles, Life Found a Way**\
 `The largest population of the endangered Siamese crocodiles this century hatched in Cambodia, a big moment for the conservation of a wild species once on the brink of extinction.`\
 https://nytimes.com/2024/07/17/climate/siamese-crocodile-extinct-hatchlings.html
-
-**Russia’s foreign minister welcomes J.D. Vance’s opposition to American aid for Ukraine.**\
-`By Eve Sampson`\
-https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/russias-foreign-minister-welcomes-jd-vances-opposition-to-american-aid-for-ukraine
 

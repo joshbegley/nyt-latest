@@ -1,3 +1,7 @@
+**“Biden’s F.B.I. has even stated that practicing Catholics present an elevated risk of domestic terrorism simply because of their faith.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/bidens-fbi-has-even-stated-that-practicing-catholics-present-an-elevated-risk-of-domestic-terrorism-simply-because-of-their-fait
+
 **“She was appointed the border czar.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/she-was-appointed-the-border-czar
