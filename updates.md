@@ -1,3 +1,7 @@
+**What to Know About the Trump Shooting Investigations**\
+`Multiple inquiries by law enforcement, Congress and federal agencies aim to understand how a would-be assassin was able to fire at Donald J. Trump.`\
+https://nytimes.com/2024/07/17/us/trump-shooting-investigations.html
+
 **Daniel Craig, Is That You Under Those Bangs?**\
 `A recent ad campaign for Loewe features the former James Bond as he has never been seen.`\
 https://nytimes.com/2024/07/17/style/daniel-craig-loewe-jonathan-anderson.html
