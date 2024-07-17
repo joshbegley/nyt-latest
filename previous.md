@@ -1,3 +1,19 @@
+**A View from Milwaukee**\
+`The cheese state welcomed the Republican National Convention this week.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/republican-convention-wisconsin
+
+**Britain Needs to Move Faster on Climate, Monitoring Group Says**\
+`A report by a government body that oversees efforts to reduce greenhouse gases will help underpin the Labour Party’s plans to accelerate renewable energy and other measures.`\
+https://nytimes.com/2024/07/17/business/britain-climate-change-energy-transition.html
+
+**Republicans’ Depressingly Effective Minority Outreach Strategy**\
+`If Democrats don’t stop laughing at this G.O.P. effort they may soon need an “autopsy” of their own.`\
+https://nytimes.com/2024/07/17/opinion/trump-republican-minority-outreach.html
+
+**Can Democrats Find the Courage to Tell Biden the Truth?**\
+`Democrats are putting loyalty to a leader over country. Sound familiar?`\
+https://nytimes.com/2024/07/17/opinion/biden-democrats-election-2024.html
+
 **While Republicans Put on a Show of Unity, Democrats Wrestle With Their Own Rift**\
 `The discontent with President Biden has not faded and tempers are fraying as he insists on staying in the race over the objections of some fellow Democrats who worry that he cannot win.`\
 https://nytimes.com/2024/07/17/us/politics/biden-democrats-rift.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/07/17/us/milwaukee-rnc-business.html
 **Navy Exonerates Black Sailors Unfairly Convicted After World War II Disaster**\
 `The men had objected to working until safety concerns were addressed following an explosion at a port near San Francisco that claimed hundreds of lives.`\
 https://nytimes.com/2024/07/17/us/politics/navy-disaster-black-sailors-exonerated.html
-
-**An affordable housing solution hidden in plain sight: Libraries**\
-`Building subsidized housing in America relies on cheap land, and creative ideas`\
-https://nytimes.com/2024/07/17/headway/an-affordable-housing-solution-hidden-in-plain-sight-libraries.html
-
-**Take our quiz to see how well you know the Republicans’ host city.**\
-`By Mitch Smith and Julie Bosman`\
-https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/take-our-quiz-to-see-how-well-you-know-the-republicans-host-city
-
-**How to Spot the Signs of Heat Exhaustion**\
-`There are simple ways to address it quickly. Here’s what to know.`\
-https://nytimes.com/2024/07/17/well/heat-exhaustion-symptoms-treatments.html
-
-**Gunman’s Phone Had Details About Both Trump and Biden, F.B.I. Officials Say**\
-`The disclosure, during private briefings to lawmakers in the House and Senate, offered more details from the early stages of the investigation into the attempted assassination of former President Donald J. Trump.`\
-https://nytimes.com/2024/07/17/us/trump-shooting-crooks-motive.html
 

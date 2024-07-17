@@ -1,3 +1,19 @@
+**A View from Milwaukee**\
+`The cheese state welcomed the Republican National Convention this week.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/republican-convention-wisconsin
+
+**Britain Needs to Move Faster on Climate, Monitoring Group Says**\
+`A report by a government body that oversees efforts to reduce greenhouse gases will help underpin the Labour Party’s plans to accelerate renewable energy and other measures.`\
+https://nytimes.com/2024/07/17/business/britain-climate-change-energy-transition.html
+
+**Republicans’ Depressingly Effective Minority Outreach Strategy**\
+`If Democrats don’t stop laughing at this G.O.P. effort they may soon need an “autopsy” of their own.`\
+https://nytimes.com/2024/07/17/opinion/trump-republican-minority-outreach.html
+
+**Can Democrats Find the Courage to Tell Biden the Truth?**\
+`Democrats are putting loyalty to a leader over country. Sound familiar?`\
+https://nytimes.com/2024/07/17/opinion/biden-democrats-election-2024.html
+
 **While Republicans Put on a Show of Unity, Democrats Wrestle With Their Own Rift**\
 `The discontent with President Biden has not faded and tempers are fraying as he insists on staying in the race over the objections of some fellow Democrats who worry that he cannot win.`\
 https://nytimes.com/2024/07/17/us/politics/biden-democrats-rift.html
