@@ -28,7 +28,7 @@ https://nytimes.com/video/us/politics/100000009576171/nikki-haley-trump-endorsem
 
 **NBA to turn to 'consideration of expansion' after media rights deal done**\
 `"We did approve this stage of media proposals," Silver said Tuesday, but he cautioned that the process is not done.`\
-https://nytimes.com/athletic/5642601/2024/07/16/nba-expansion-medial-rights-silver/
+https://nytimes.com/athletic/5642601/2024/07/16/nba-expansion-media-rights-silver/
 
 **N.B.A. Board Backs TV Rights Deals, but Steps Remain**\
 `The agreements, set to begin after next season, could potentially pay the league about $76 billion over 11 years.`\
