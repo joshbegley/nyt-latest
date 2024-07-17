@@ -1,3 +1,7 @@
+**Why Iga Swiatek's Wimbledon record is not a simple narrative of surface tension**\
+`Iga Swiatek had another Wimbledon campaign to forget — but how much of that is really about her game on grass?`\
+https://nytimes.com/athletic/5640957/2024/07/17/iga-swiatek-wimbledon-grass-tennis/
+
 **Judge Orders Boss Who Coughed at Employee During Pandemic to Pay Damages**\
 `The ruling by a tribunal judge in Britain highlighted the challenges and missteps businesses encountered during the early days of the pandemic.`\
 https://nytimes.com/2024/07/17/world/europe/covid-cough-fine-wales.html
