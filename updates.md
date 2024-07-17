@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein Interviews Oren Cass**\
+`The July 17, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/07/17/podcasts/transcript-ezra-klein-interviews-oren-cass.html
+
 **Vaccines Significantly Reduce the Risk of Long Covid, Study Finds**\
 `In the first two years of the pandemic, the rate of long Covid was starkly lower among people who were vaccinated, researchers reported.`\
 https://nytimes.com/2024/07/17/health/long-covid-vaccines.html

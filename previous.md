@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein Interviews Oren Cass**\
+`The July 17, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/07/17/podcasts/transcript-ezra-klein-interviews-oren-cass.html
+
 **Vaccines Significantly Reduce the Risk of Long Covid, Study Finds**\
 `In the first two years of the pandemic, the rate of long Covid was starkly lower among people who were vaccinated, researchers reported.`\
 https://nytimes.com/2024/07/17/health/long-covid-vaccines.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5644219/2024/07/17/mls-contract-buyout-dropped/
 **How Does a Dressing Room Get Into Character?**\
 `The actor Krysta Rodriguez has found an avid audience for her new side business: creating dramatic interiors.`\
 https://nytimes.com/2024/07/17/t-magazine/krysta-rodriguez-dressing-room-design.html
-
-**Monte Kiffin, N.F.L. Defensive Coaching Mastermind, Dies at 84**\
-`He distinguished himself as the defensive coordinator of the Tampa Bay Buccaneers, who rode his game calling to an easy victory in Super Bowl XXXVII in 2003.`\
-https://nytimes.com/2024/07/17/sports/monte-kiffin-dead.html
 
