@@ -1,3 +1,15 @@
+**Amtrak Passengers Face Record Delays From Extreme Weather**\
+`The dated U.S. rail infrastructure is struggling to stay operational as climate change accelerates and intense heat waves, downpours and high winds become more frequent.`\
+https://nytimes.com/2024/07/17/us/politics/amtrak-delays-heat-extreme-weather.html
+
+**D.N.C. Will Proceed With Biden Nomination, but Delays First Steps**\
+`Democrats will nominate the president in a virtual roll call, but will delay setting a date for the vote until next week and will not begin it until August, according to a new letter.`\
+https://nytimes.com/2024/07/17/us/politics/dnc-biden-nomination.html
+
+**The Windup: Skenes impresses before and during ASG debut**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5643456/2024/07/17/mlb-all-star-game-the-windup/
+
 **Long Holes Look Intimidating, but It’s the Short Ones That Often Befuddle Golfers**\
 `At the British Open at Royal Troon, a short hole called the Postage Stamp has ended many title runs.`\
 https://nytimes.com/2024/07/17/sports/golf/british-open-royal-troon.html
