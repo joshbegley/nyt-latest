@@ -1,3 +1,11 @@
+**Why Pascal Vincent is a natural hire as Laval Rocket coach**\
+`Vincent had a difficult season as head coach in Columbus, but that shouldn't take away from his qualifications as an AHL coach.`\
+https://nytimes.com/athletic/5643685/2024/07/17/pascal-vincent-laval-rocket-coach/
+
+**Tadej Pogacar Closes In on a Tour de France Win**\
+`Stage after stage he has taken time from his rival Jonas Vingegaard. Two tough Alpine stages remain before the race ends on Sunday.`\
+https://nytimes.com/2024/07/17/sports/tour-de-france-pogacar-vingegaard.html
+
 **‘Baby Reindeer,’ the Surprise Netflix Hit, Nabs 11 Emmy Nods**\
 `The Netflix drama’s Emmy haul included nominations for the two stars and for best limited series.`\
 https://nytimes.com/2024/07/17/arts/television/baby-reindeer-emmy-nominations.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5643682/2024/07/17/maple-leafs-coverage-reader-surv
 **Flynn Downes to Southampton: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Flynn Downes' move to Southampton`\
 https://nytimes.com/athletic/5639487/2024/07/17/flynn-downes-to-southampton-the-athletic-500-transfer-ratings/
-
-**Paris Mayor Swims in the Seine to Show It Is Clean Before the Olympics**\
-`Mayor Anne Hidalgo took a plunge in the Seine in an effort to show the river was clean enough to host several swimming events during the Paris Olympics.`\
-https://nytimes.com/video/world/europe/100000009576712/paris-mayor-swim-seine.html
-
-**Biden Says He’d Consider Dropping Out if a ‘Medical Condition’ Emerged**\
-`President Biden has said none of his doctors have told him he has a serious medical condition. But his debate performance last month raised questions about his health and acuity.`\
-https://nytimes.com/2024/07/17/us/politics/biden-health-election-drop-out.html
 

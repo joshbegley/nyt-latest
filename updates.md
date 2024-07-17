@@ -1,3 +1,11 @@
+**Why Pascal Vincent is a natural hire as Laval Rocket coach**\
+`Vincent had a difficult season as head coach in Columbus, but that shouldn't take away from his qualifications as an AHL coach.`\
+https://nytimes.com/athletic/5643685/2024/07/17/pascal-vincent-laval-rocket-coach/
+
+**Tadej Pogacar Closes In on a Tour de France Win**\
+`Stage after stage he has taken time from his rival Jonas Vingegaard. Two tough Alpine stages remain before the race ends on Sunday.`\
+https://nytimes.com/2024/07/17/sports/tour-de-france-pogacar-vingegaard.html
+
 **‘Baby Reindeer,’ the Surprise Netflix Hit, Nabs 11 Emmy Nods**\
 `The Netflix drama’s Emmy haul included nominations for the two stars and for best limited series.`\
 https://nytimes.com/2024/07/17/arts/television/baby-reindeer-emmy-nominations.html
