@@ -1,3 +1,11 @@
+**The Pulse: Which sport has the worst All-Star Game?**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5642143/2024/07/17/mlb-all-star-game-the-pulse-2/
+
+**World’s Rarest Whale Washes Up on New Zealand Beach, Scientists Say**\
+`Only six specimens of the spade-toothed whale have ever been identified. This carcass could be the first that scientists are able to dissect.`\
+https://nytimes.com/2024/07/17/world/australia/spade-toothed-whale-new-zealand.html
+
 **Biden vs. His Party**\
 `The Democratic Party’s Biden dilemma is unresolved, even as the momentum against him slows.`\
 https://nytimes.com/2024/07/17/briefing/biden-vs-the-democratic-party.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5640962/2024/07/17/spurs-stephon-castle-gregg-popov
 **A Show of Allegiance to Trump, and Menendez Is Convicted**\
 `Plus, a U.S. crisis hotline answers 10 million calls.`\
 https://nytimes.com/2024/07/17/podcasts/dnc-trump-menendez-convicted.html
-
-**Three options for the 49ers in the aftermath of Brandon Aiyuk's trade request**\
-`Any thought of trading Aiyuk would likely require a team to offer a player who could make the 49ers better in 2024.`\
-https://nytimes.com/athletic/5641703/2024/07/17/brandon-aiyuk-trade-options-49ers/
-
-**How do AFC pass rush groups stack up heading into the 2024 season?**\
-`Can anyone match the Browns' collection of talent up front? We take a look at how each AFC pass rush stands heading into training camps.`\
-https://nytimes.com/athletic/5558588/2024/07/17/afc-edge-rushers-epa-myles-garrett/
 

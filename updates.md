@@ -1,3 +1,11 @@
+**The Pulse: Which sport has the worst All-Star Game?**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5642143/2024/07/17/mlb-all-star-game-the-pulse-2/
+
+**World’s Rarest Whale Washes Up on New Zealand Beach, Scientists Say**\
+`Only six specimens of the spade-toothed whale have ever been identified. This carcass could be the first that scientists are able to dissect.`\
+https://nytimes.com/2024/07/17/world/australia/spade-toothed-whale-new-zealand.html
+
 **Biden vs. His Party**\
 `The Democratic Party’s Biden dilemma is unresolved, even as the momentum against him slows.`\
 https://nytimes.com/2024/07/17/briefing/biden-vs-the-democratic-party.html
