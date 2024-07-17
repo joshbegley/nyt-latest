@@ -1,3 +1,11 @@
+**Mother Whose Son Died of Fentanyl Poisoning Brings Some Delegates to Tears**\
+`Anne Fundner blamed the death of her 15-year-old son, who took fentanyl-laced pills, on President Biden’s border policies.`\
+https://nytimes.com/2024/07/16/us/politics/anne-fundner-rnc-fentanyl-poisoning.html
+
+**Corrections: July 17, 2024**\
+`Corrections that appeared in print on Wednesday, July 17, 2024.`\
+https://nytimes.com/2024/07/16/pageoneplus/corrections-july-17-2024.html
+
 **WNBA set to receive $2.2 billion over 11 years in media rights deals**\
 `The league anticipates it can still sell two other rights packages in addition to the ones it has already made agreements for.`\
 https://nytimes.com/athletic/5642386/2024/07/16/wnba-media-rights-deal-negotiations/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/16/business/nba-rights-disney-comcast-amazon.html
 **DeSantis celebrates Trump, who once viciously mocked him.**\
 `By Nicholas Nehamas`\
 https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/desantis-trump-rnc
-
-**“I’m proud to be the first and only governor in the country to kick Communist China off our farmland and out of my state.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/im-proud-to-be-the-first-and-only-governor-in-the-country-to-kick-communist-china-off-our-farmland-and-out-of-my-state
-
-**Shohei Ohtani goes deep, Jarren Duran delivers as AL resumes All-Star Game dominance**\
-`ARLINGTON, Texas — The pitching was relentless, and the game’s biggest name went deep, but it was a first-time All-Star from the Boston Red Sox who delivered the deciding blow in Tuesday’s All-Star Game.`\
-https://nytimes.com/athletic/5642615/2024/07/16/mlb-all-star-game-shohei-ohtani-jarren-duran/
 
