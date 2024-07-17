@@ -1,3 +1,7 @@
+**While Republicans Put on a Show of Unity, Democrats Wrestle With Their Own Rift**\
+`The discontent with President Biden has not faded and tempers are fraying as he insists on staying in the race over the objections of some fellow Democrats who worry that he cannot win.`\
+https://nytimes.com/2024/07/17/us/politics/biden-democrats-rift.html
+
 **Biden Tests Positive for Covid**\
 `President Biden will “self-isolate and will continue to carry out all of his duties fully during that time,” a White House spokeswoman said.`\
 https://nytimes.com/2024/07/17/us/politics/biden-covid-positive.html
