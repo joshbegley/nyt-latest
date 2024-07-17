@@ -1,3 +1,7 @@
+**Biden vs. His Party**\
+`The Democratic Party’s Biden dilemma is unresolved, even as the momentum against him slows.`\
+https://nytimes.com/2024/07/17/briefing/biden-vs-the-democratic-party.html
+
 **Awoniyi to miss Forest's pre-season camp due to family matter**\
 `Taiwo Awoniyi will not be part of the Nottingham Forest squad that travels for a training camp in Spain.`\
 https://nytimes.com/athletic/5642951/2024/07/17/taiwo-awoniyi-forest-injury-pre-season/
