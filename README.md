@@ -1,3 +1,7 @@
+**We Mapped Heat in 3 U.S Cities. Here’s Where the Sidewalks Are Over 130 Degrees.**\
+`Air temperature is just one measure of how heat affects cities and people. See how high surface temperatures, which bring additional risks, can get.`\
+https://nytimes.com/interactive/2024/07/17/climate/heat-map-phoenix-sacramento-portland.html
+
 **In a Porridge Box, an Ancient Treasure Mysteriously Arrives in Dublin**\
 `The National Museum of Ireland received two copper Bronze Age ax heads in the mail. Now it needs to figure out who found them.`\
 https://nytimes.com/2024/07/17/world/europe/ireland-axe-museum-mystery.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/17/world/europe/kings-speech-uk.html
 **‘Rust’ Armorer Asks for New Trial After Dismissal of Alec Baldwin’s Case**\
 `Lawyers for the armorer, Hannah Gutierrez-Reed, are seizing on a judge’s dramatic dismissal of the actor’s case to argue for her release from prison.`\
 https://nytimes.com/2024/07/17/arts/rust-armorer-hannah-gutierrez-reed-appeal.html
-
-**Duhatschek mailbag: Which NHL bottom feeder will be competitive first, concussions and more**\
-`Which bottom-feeder team has done the best job rebuilding? And should something be done to address violent contact to the head in the NHL?`\
-https://nytimes.com/athletic/5631812/2024/07/17/nhl-bottom-feeder-teams-concussions/
 
