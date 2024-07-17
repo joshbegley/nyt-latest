@@ -1,3 +1,7 @@
+**Renaming an Airport After Silvio Berlusconi Divides a Region in Italy**\
+`The decision to name Italy’s second-largest passenger hub after the divisive media mogul and politician, who died in 2023, has prompted outrage and protests.`\
+https://nytimes.com/2024/07/17/world/europe/silvio-berlusconi-airport-protests.html
+
 **Schiff Calls on Biden to Drop Out of Presidential Race**\
 `Representative Adam Schiff of California, a top House Democrat running for Senate, told The Los Angeles Times that he had serious concerns about whether President Biden could win.`\
 https://nytimes.com/2024/07/17/us/politics/adam-schiff-biden-drop-out-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5643698/2024/07/17/lena-oberdorf-germany-injury/
 **‘Our Nation Is Not Well’: Voters Fear What Could Happen Next**\
 `There is growing anxiety that the country’s political divide is nearly beyond repair, and the assassination attempt on Donald Trump only made things worse.`\
 https://nytimes.com/2024/07/17/us/elections/voters-trump-assassination-attempt.html
-
-**Kings mailbag: Byfield's role, draft and prospects**\
-`The Kings need Byfield to play a major role. Also: Will Byfield wear a "C" someday?`\
-https://nytimes.com/athletic/5643616/2024/07/17/la-kings-quinton-byfield-captain/
 

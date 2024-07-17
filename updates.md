@@ -1,3 +1,7 @@
+**Renaming an Airport After Silvio Berlusconi Divides a Region in Italy**\
+`The decision to name Italy’s second-largest passenger hub after the divisive media mogul and politician, who died in 2023, has prompted outrage and protests.`\
+https://nytimes.com/2024/07/17/world/europe/silvio-berlusconi-airport-protests.html
+
 **Schiff Calls on Biden to Drop Out of Presidential Race**\
 `Representative Adam Schiff of California, a top House Democrat running for Senate, told The Los Angeles Times that he had serious concerns about whether President Biden could win.`\
 https://nytimes.com/2024/07/17/us/politics/adam-schiff-biden-drop-out-election.html
