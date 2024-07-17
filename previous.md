@@ -1,3 +1,15 @@
+**Vaccines Significantly Reduce the Risk of Long Covid, Study Finds**\
+`In the first two years of the pandemic, the rate of long Covid was starkly lower among people who were vaccinated, researchers reported.`\
+https://nytimes.com/2024/07/17/health/long-covid-vaccines.html
+
+**Long Covid and Vaccination: What You Need to Know**\
+`A new study adds to evidence that the shots can reduce the chances of developing one of the most dreaded consequences of Covid.`\
+https://nytimes.com/article/long-covid-vaccine.html
+
+**Vance Set to Give Speech Tying Biography to Conservative Agenda**\
+`Senator J.D. Vance of Ohio will give his first address as the Republicans’ vice-presidential nominee tonight in Milwaukee.`\
+https://nytimes.com/2024/07/17/us/politics/jd-vance-speech-rnc.html
+
 **Thursday Briefing: J.D. Vance Takes the Stage**\
 `Plus, Israel estimates the toll on Hamas.`\
 https://nytimes.com/2024/07/17/briefing/jd-vance-rnc-israel.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/17/t-magazine/krysta-rodriguez-dressing-room-design.
 **Monte Kiffin, N.F.L. Defensive Coaching Mastermind, Dies at 84**\
 `He distinguished himself as the defensive coordinator of the Tampa Bay Buccaneers, who rode his game calling to an easy victory in Super Bowl XXXVII in 2003.`\
 https://nytimes.com/2024/07/17/sports/monte-kiffin-dead.html
-
-**Benj Pasek and Justin Paul Approach EGOT after ‘Only Murders’ Nod**\
-`The hit Hulu comedy moved the action to Broadway for Season 3, which in turn helped the songwriting duo inch closer to joining the exclusive club.`\
-https://nytimes.com/2024/07/17/arts/television/benj-pasek-justin-paul-egot.html
-
-**Sky trading Marina Mabrey to Sun for picks, players**\
-`This is a rare in-season trade for the WNBA, a league whose hard cap and roster sizes limit movement outside of the offseason.`\
-https://nytimes.com/athletic/5644189/2024/07/17/sun-sky-trade-wnba-marina-mabrey/
-
-**Emerson: How good does Billy Napier have to be in Year 3 at Florida?**\
-`Should Florida be patient with Napier and look for stability, or does he need to show improvement for his job security?`\
-https://nytimes.com/athletic/5644116/2024/07/17/florida-football-billy-napier/
 

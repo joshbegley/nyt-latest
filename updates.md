@@ -1,3 +1,15 @@
+**Vaccines Significantly Reduce the Risk of Long Covid, Study Finds**\
+`In the first two years of the pandemic, the rate of long Covid was starkly lower among people who were vaccinated, researchers reported.`\
+https://nytimes.com/2024/07/17/health/long-covid-vaccines.html
+
+**Long Covid and Vaccination: What You Need to Know**\
+`A new study adds to evidence that the shots can reduce the chances of developing one of the most dreaded consequences of Covid.`\
+https://nytimes.com/article/long-covid-vaccine.html
+
+**Vance Set to Give Speech Tying Biography to Conservative Agenda**\
+`Senator J.D. Vance of Ohio will give his first address as the Republicans’ vice-presidential nominee tonight in Milwaukee.`\
+https://nytimes.com/2024/07/17/us/politics/jd-vance-speech-rnc.html
+
 **Thursday Briefing: J.D. Vance Takes the Stage**\
 `Plus, Israel estimates the toll on Hamas.`\
 https://nytimes.com/2024/07/17/briefing/jd-vance-rnc-israel.html
