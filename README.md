@@ -1,3 +1,7 @@
+**Despite losing 2 picks, Giants added premium talent early in MLB Draft**\
+`The Giants didn't have a second- or third-round pick, but they see promise in Dakota Jordan, taken in Round 4.`\
+https://nytimes.com/athletic/5642696/2024/07/17/sf-giants-2024-draft-analysis/
+
 **How field conditions played a role in USWNT's Olympic send-off game**\
 `The U.S. played its final game before the Olympics on a patch-filled surface.`\
 https://nytimes.com/athletic/5642728/2024/07/17/uswnt-field-conditions-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/17/us/rnc-fact-check/donald-trump-is-an-america
 **Fact-Checking Day 2 of the Republican National Convention**\
 `A team of New York Times reporters followed the developments and fact-checked the speakers, providing context and explanation.`\
 https://nytimes.com/live/2024/07/17/us/rnc-fact-check
-
-**England have qualified for Euro 2025 - but are they stronger than two years ago?**\
-`Lionesses do not seem to have progressed much from the team that won Euro 2022. It wouldn't be a huge issue, were it not for Spain…`\
-https://nytimes.com/athletic/5641987/2024/07/17/england-euro-2025-squad/
 
