@@ -1,3 +1,11 @@
+**Spain court finds individual guilty of racially abusing Real Madrid's Vinicius Jr and Antonio Rudiger**\
+`A Spanish court has found an individual guilty of racially abusing Real Madrid players Vinicius Junior and Antonio Rudiger online.`\
+https://nytimes.com/athletic/5643349/2024/07/17/real-madrid-vinicius-rudiger-racism/
+
+**Absent a Father Figure, J.D. Vance Found Notable Mentors**\
+`His father gave him up for adoption when he was 6. Mr. Vance has sought to fill the gap with people who have helped him, including Peter Thiel, the tech investor and entrepreneur.`\
+https://nytimes.com/2024/07/17/us/jd-vance-father-mentors.html
+
 **‘Curb Your Enthusiasm’ gets an Emmy send off.**\
 `By Annie Aguiar`\
 https://nytimes.com/live/2024/07/17/arts/emmy-nominations/curb-your-enthusiasm-gets-an-emmy-send-off
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/how-wou
 **We Mapped Heat in 3 U.S. Cities. Some Sidewalks Were Over 130 Degrees.**\
 `Air temperature is just one measure of how heat affects cities and people. See how high surface temperatures, which bring additional risks, can get.`\
 https://nytimes.com/interactive/2024/07/17/climate/heat-map-phoenix-sacramento-portland.html
-
-**In a Porridge Box, an Ancient Treasure Mysteriously Arrives in Dublin**\
-`The National Museum of Ireland received two copper Bronze Age ax heads in the mail. Now it needs to figure out who found them.`\
-https://nytimes.com/2024/07/17/world/europe/ireland-axe-museum-mystery.html
-
-**Nick Saban talks broadcasting career, relationship with SEC coaches and golf game at media days**\
-`“I'm going to try to continue to be an advocate for the game from wherever I sit," Saban said.`\
-https://nytimes.com/athletic/5643524/2024/07/17/nick-saban-sec-media-days-retirement/
 

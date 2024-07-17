@@ -1,3 +1,11 @@
+**‘Curb Your Enthusiasm’ gets an Emmy send off.**\
+`By Annie Aguiar`\
+https://nytimes.com/live/2024/07/17/arts/emmy-nominations/curb-your-enthusiasm-gets-an-emmy-send-off
+
+**At the R.N.C., Americana Fashion Sparkles**\
+`Elephants, the color red and American flags are common sights.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/rnc-americana-fashion
+
 **Arne Slot faces a challenging pre-season as Liverpool await the cavalry's return**\
 `The new head coach is still without 11 senior players following Euro 2024 and the Copa and unable to work with most of his strongest line-up`\
 https://nytimes.com/athletic/5633308/2024/07/17/liverpool-slot-preseason-salah-euro2024-copa/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/17/world/europe/ireland-axe-museum-mystery.html
 **Nick Saban talks broadcasting career, relationship with SEC coaches and golf game at media days**\
 `“I'm going to try to continue to be an advocate for the game from wherever I sit," Saban said.`\
 https://nytimes.com/athletic/5643524/2024/07/17/nick-saban-sec-media-days-retirement/
-
-**What Responsibility Do I Have to Ensure the Safety of an Illicit Cat?**\
-`The magazine’s Ethicist columnist on the duty one has to neighbors — and a forbidden pet in harm’s way.`\
-https://nytimes.com/2024/07/17/magazine/cat-mice-repellent-ethics.html
-
-**J.D. Vance Is the First Millennial on a Major Party Ticket**\
-`If elected, the first-term senator would become the third-youngest vice president in history.`\
-https://nytimes.com/2024/07/17/us/politics/vance-millennial-candidate-vice-president.html
 
