@@ -1,3 +1,11 @@
+**How Does a Dressing Room Get Into Character?**\
+`The actor Krysta Rodriguez has found an avid audience for her new side business: creating dramatic interiors.`\
+https://nytimes.com/2024/07/17/t-magazine/krysta-rodriguez-dressing-room-design.html
+
+**Monte Kiffin, N.F.L. Defensive Coaching Mastermind, Dies at 84**\
+`He distinguished himself as the defensive coordinator of the Tampa Bay Buccaneers, who rode his game calling to an easy victory in Super Bowl XXXVII in 2003.`\
+https://nytimes.com/2024/07/17/sports/monte-kiffin-dead.html
+
 **Benj Pasek and Justin Paul Approach EGOT after ‘Only Murders’ Nod**\
 `The hit Hulu comedy moved the action to Broadway for Season 3, which in turn helped the songwriting duo inch closer to joining the exclusive club.`\
 https://nytimes.com/2024/07/17/arts/television/benj-pasek-justin-paul-egot.html
