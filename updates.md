@@ -1,3 +1,11 @@
+**R&A CEO concerned about golf's increasing prize money**\
+`Martin Slumbers believes prize money is straining the overall health of the game.`\
+https://nytimes.com/athletic/5643238/2024/07/17/open-championship-golf-prize-money-martin-slumbers/
+
+**Here’s the latest on the investigation.**\
+`By Zolan Kanno-Youngs, Eileen Sullivan, Glenn Thrush and David A. Fahrenthold`\
+https://nytimes.com/live/2024/07/17/us/trump-shooting-investigation/heres-the-latest-on-the-investigation
+
 **Juventus goalkeeper Szczesny’s move to Al Nassr breaks down**\
 `Juventus goalkeeper Wojciech Szczesny’s move to Saudi Pro League side Al Nassr has broken down.`\
 https://nytimes.com/athletic/5643212/2024/07/17/szczesny-juventus-saudi-transfer/

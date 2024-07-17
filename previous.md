@@ -1,3 +1,11 @@
+**R&A CEO concerned about golf's increasing prize money**\
+`Martin Slumbers believes prize money is straining the overall health of the game.`\
+https://nytimes.com/athletic/5643238/2024/07/17/open-championship-golf-prize-money-martin-slumbers/
+
+**Here’s the latest on the investigation.**\
+`By Zolan Kanno-Youngs, Eileen Sullivan, Glenn Thrush and David A. Fahrenthold`\
+https://nytimes.com/live/2024/07/17/us/trump-shooting-investigation/heres-the-latest-on-the-investigation
+
 **Juventus goalkeeper Szczesny’s move to Al Nassr breaks down**\
 `Juventus goalkeeper Wojciech Szczesny’s move to Saudi Pro League side Al Nassr has broken down.`\
 https://nytimes.com/athletic/5643212/2024/07/17/szczesny-juventus-saudi-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/17/books/review/kathleen-sheppard-women-in-the-valle
 **The Fed Under Trump 2.0**\
 `Donald Trump says he will not fire Jay Powell as chairman of the central bank if he is re-elected president, after threatening to do so. But whether the president even has the authority is open to question.`\
 https://nytimes.com/2024/07/17/business/dealbook/trump-powell-fed.html
-
-**How Angel City became 'the most valuable women’s sports team in the world'**\
-`The Los Angeles-based NWSL team's sale to Willow Bay and Bob Iger is expected to become official in 30 to 60 days`\
-https://nytimes.com/athletic/5642755/2024/07/17/angel-city-new-ownership-willow-bay-bob-iger/
-
-**Could Russell Westbrook help the Nuggets? Examining his potential fit**\
-`Westbrook is still a Clipper, but the future Hall of Fame guard could help the Nuggets in different ways ... if he's managed correctly.`\
-https://nytimes.com/athletic/5640161/2024/07/17/russell-westbrook-clippers-denver-nuggets/
 
