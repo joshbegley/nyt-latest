@@ -1,3 +1,7 @@
+**Luka Modric signs new one-year Real Madrid contract**\
+`Real Madrid and Luka Modric have agreed a new contract extension that will keep the midfielder at the club until June 2025.`\
+https://nytimes.com/athletic/5243327/2024/07/17/luka-modric-real-madrid-contract-new/
+
 **Barcelona confirm Thiago role in Hansi Flick coaching staff**\
 `Barcelona have confirmed the temporary return of Thiago Alcantara as part of the club&#8217;s coaching staff.`\
 https://nytimes.com/athletic/5643098/2024/07/17/thiago-barcelona-return-hansi-flick/
