@@ -1,4 +1,4 @@
-**Spain court finds individual guilty of racially abusing Real Madrid's Vinicius Jr and Antonio Rudiger**\
+**Spanish court finds individual guilty of racially abusing Vinicius Jr, Rudiger**\
 `A Spanish court has found an individual guilty of racially abusing Real Madrid players Vinicius Junior and Antonio Rudiger online.`\
 https://nytimes.com/athletic/5643349/2024/07/17/real-madrid-vinicius-rudiger-racism/
 
