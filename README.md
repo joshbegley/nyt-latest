@@ -1,3 +1,11 @@
+**Kings mailbag: Byfield's role, draft and prospects**\
+`The Kings need Byfield to play a major role. Also: Will Byfield wear a "C" someday?`\
+https://nytimes.com/athletic/5643616/2024/07/17/la-kings-quinton-byfield-captain/
+
+**‘UnPrisoned’ Review: Kerry Washington Handles Comedy, Too**\
+`The star of “Scandal” demonstrates her range in the Hulu series about an ex-con’s daughter and her relatable traumas.`\
+https://nytimes.com/2024/07/17/arts/television/unprisoned-review.html
+
 **‘The Gilded Age’ lands a nomination for best drama.**\
 `By Sarah Bahr`\
 https://nytimes.com/live/2024/07/17/arts/emmy-nominations/the-gilded-age-lands-a-nomination-for-best-drama
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5643349/2024/07/17/real-madrid-vinicius-rudiger-rac
 **Absent a Father Figure, J.D. Vance Found Notable Mentors**\
 `His father gave him up for adoption when he was 6. Mr. Vance has sought to fill the gap with people who have helped him, including Peter Thiel, the tech investor and entrepreneur.`\
 https://nytimes.com/2024/07/17/us/jd-vance-father-mentors.html
-
-**‘Curb Your Enthusiasm’ gets an Emmy send-off.**\
-`By Annie Aguiar`\
-https://nytimes.com/live/2024/07/17/arts/emmy-nominations/curb-your-enthusiasm-gets-an-emmy-send-off
-
-**At the R.N.C., Americana Fashion Sparkles**\
-`Elephants, the color red and American flags are common sights.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/rnc-americana-fashion
 
