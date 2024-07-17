@@ -1,3 +1,7 @@
+**HBO Falls to Third at the Emmys for the First Time Since 1996**\
+`HBO earned 91 Emmy nominations, trailing both Netflix, which took 107, and FX, which had 93.`\
+https://nytimes.com/2024/07/17/arts/television/hbo-emmys-nominations.html
+
 **The Longer Biden Is in Denial, ‘the Better It Is for Us’**\
 `A grim truth from one of Trump’s pollsters.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-biden-denial-polling
