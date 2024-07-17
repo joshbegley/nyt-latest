@@ -1,3 +1,7 @@
+**Jon Stewart Razzes a ‘Daily Show’ Guest: Bill O’Reilly**\
+`The former Fox host, a longtime foil of the show, said he knew he had “no friends here.” “Well, not just here,” Stewart replied.`\
+https://nytimes.com/2024/07/17/arts/television/jon-stewart-bill-oreilly.html
+
 **Mbappe will not be part of Real Madrid squad for pre-season tour of U.S.**\
 `Kylian Mbappe will not travel with the Real Madrid squad for their pre-season training camp in the United States.`\
 https://nytimes.com/athletic/5642791/2024/07/17/kylian-mbappe-real-madrid-us-tour/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5642720/2024/07/17/kylian-mbappe-real-madrid-presen
 **U.K. Inflation Steady as Interest Rate Cuts Hang in the Balance**\
 `Consumer prices rose 2 percent in June from a year earlier, in line with the Bank of England’s target for the second month in a row.`\
 https://nytimes.com/2024/07/17/business/britain-inflation.html
-
-**Despite losing 2 picks, Giants added premium talent early in MLB Draft**\
-`The Giants didn't have a second- or third-round pick, but they see promise in Dakota Jordan, taken in Round 4.`\
-https://nytimes.com/athletic/5642696/2024/07/17/sf-giants-2024-draft-analysis/
 

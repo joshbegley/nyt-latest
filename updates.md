@@ -1,3 +1,7 @@
+**Jon Stewart Razzes a ‘Daily Show’ Guest: Bill O’Reilly**\
+`The former Fox host, a longtime foil of the show, said he knew he had “no friends here.” “Well, not just here,” Stewart replied.`\
+https://nytimes.com/2024/07/17/arts/television/jon-stewart-bill-oreilly.html
+
 **Mbappe will not be part of Real Madrid squad for pre-season tour of U.S.**\
 `Kylian Mbappe will not travel with the Real Madrid squad for their pre-season training camp in the United States.`\
 https://nytimes.com/athletic/5642791/2024/07/17/kylian-mbappe-real-madrid-us-tour/
