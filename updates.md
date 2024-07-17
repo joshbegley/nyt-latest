@@ -1,3 +1,11 @@
+**Madeline Brame’s son was fatally stabbed in Harlem in 2018.**\
+`Ms. Brame said she switched her allegiance to the Republican Party because of the handling of her son’s murder case.`\
+https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/who-is-madeline-brame
+
+**Brother of Rachel Morin, Mother Killed While Jogging, Speaks at R.N.C.**\
+`The family was attending the convention “to show the American people that we do have a crisis,” her half sister said earlier in the day.`\
+https://nytimes.com/2024/07/16/us/politics/rachel-morin-family-rnc.html
+
 **Meet the Red Sox 2024 draftees: Breaking down the 20 players selected**\
 `The Red Sox went in heavy on pitching in Days 2 and 3, and they were aiming for a particular type of pitcher.`\
 https://nytimes.com/athletic/5642036/2024/07/16/red-sox-draft-2024-analysis/
