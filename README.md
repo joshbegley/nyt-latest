@@ -4,7 +4,7 @@ https://nytimes.com/video/world/europe/100000009576712/paris-mayor-swim-seine.ht
 
 **Biden Says He’d Consider Dropping Out if a ‘Medical Condition’ Emerged**\
 `President Biden has said none of his doctors have told him he has a serious medical condition. But his debate performance last month raised questions about his health and acuity.`\
-https://nytimes.com/2024/07/17/us/politics/biden-says-hed-consider-dropping-out-if-a-medical-condition-emerged.html
+https://nytimes.com/2024/07/17/us/politics/biden-health-election-drop-out.html
 
 **It’s Probably Too Late for Biden to Fix the Supreme Court**\
 `The ideas are good; the timing, not so much.`\
