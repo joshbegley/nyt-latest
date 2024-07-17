@@ -1,3 +1,11 @@
+**Charles Opens Britain’s Parliament With ‘King’s Speech’**\
+`King Charles III formally opened the country’s Parliament and read the agenda for the newly elected Labour government.`\
+https://nytimes.com/video/world/europe/100000009576481/king-charles-speech-uk-government.html
+
+**Flash Flooding in Arkansas Leads to Rescues and Evacuations**\
+`Rainfall of 6 to 11 inches overnight prompted a rare flash flood emergency in Marion County, where water was rising inside homes and bridges were washed-out.`\
+https://nytimes.com/2024/07/17/us/arkansas-flooding-marion-county.html
+
 **Insulin: Drugs vs. Dividends**\
 `We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Oliver Bohon, age 17.`\
 https://nytimes.com/2024/07/17/learning/insulin-drugs-vs-dividends.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/07/17/upshot/rnc-convention-republicans-tru
 **Why Iga Swiatek's Wimbledon record is not a simple narrative of surface tension**\
 `Iga Swiatek had another Wimbledon campaign to forget — but how much of that is really about her game on grass?`\
 https://nytimes.com/athletic/5640957/2024/07/17/iga-swiatek-wimbledon-grass-tennis/
-
-**Judge Orders Boss Who Coughed at Employee During Pandemic to Pay Damages**\
-`The ruling by a tribunal judge in Britain highlighted the challenges and missteps businesses encountered during the early days of the pandemic.`\
-https://nytimes.com/2024/07/17/world/europe/covid-cough-fine-wales.html
-
-**R&A CEO concerned about golf's increasing prize money**\
-`Martin Slumbers believes prize money is straining the overall health of the game.`\
-https://nytimes.com/athletic/5643238/2024/07/17/open-championship-golf-prize-money-martin-slumbers/
 
