@@ -1,3 +1,11 @@
+**Mother Whose Son Died of Fentanyl Poisoning Brings Some Delegates to Tears**\
+`Anne Fundner blamed the death of her 15-year-old son, who took fentanyl-laced pills, on President Biden’s border policies.`\
+https://nytimes.com/2024/07/16/us/politics/anne-fundner-rnc-fentanyl-poisoning.html
+
+**Corrections: July 17, 2024**\
+`Corrections that appeared in print on Wednesday, July 17, 2024.`\
+https://nytimes.com/2024/07/16/pageoneplus/corrections-july-17-2024.html
+
 **WNBA set to receive $2.2 billion over 11 years in media rights deals**\
 `The league anticipates it can still sell two other rights packages in addition to the ones it has already made agreements for.`\
 https://nytimes.com/athletic/5642386/2024/07/16/wnba-media-rights-deal-negotiations/
