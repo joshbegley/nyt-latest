@@ -1,3 +1,7 @@
+**“Iran is waging a war in Israel and Gaza, with help from Joe Biden.”**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/iran-is-waging-a-war-in-israel-and-gaza-with-help-from-joe-biden
+
 **There’s No Zealot Like a Trump Convert**\
 `The Republican Party is full of people who have changed their minds about the former president.`\
 https://nytimes.com/2024/07/17/us/politics/vance-speech-rnc-trump.html
