@@ -1,3 +1,11 @@
+**Insulin: Drugs vs. Dividends**\
+`We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Oliver Bohon, age 17.`\
+https://nytimes.com/2024/07/17/learning/insulin-drugs-vs-dividends.html
+
+**Here’s the speaker lineup for Night 3 of the Republican convention.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/heres-the-speaker-lineup-for-night-3-of-the-republican-convention
+
 **Bird Flu Is Spreading. Why Aren’t More People Getting Tested?**\
 `Even as the H5N1 virus evolves, gaps remain in the nation’s contingency plans for human testing, scientists say.`\
 https://nytimes.com/2024/07/17/health/bird-flu-tests.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/17/world/europe/covid-cough-fine-wales.html
 **R&A CEO concerned about golf's increasing prize money**\
 `Martin Slumbers believes prize money is straining the overall health of the game.`\
 https://nytimes.com/athletic/5643238/2024/07/17/open-championship-golf-prize-money-martin-slumbers/
-
-**Here’s the latest on the investigation.**\
-`By Zolan Kanno-Youngs, Eileen Sullivan, Glenn Thrush and David A. Fahrenthold`\
-https://nytimes.com/live/2024/07/17/us/trump-shooting-investigation/heres-the-latest-on-the-investigation
-
-**Juventus goalkeeper Szczesny’s move to Al Nassr breaks down**\
-`Juventus goalkeeper Wojciech Szczesny’s move to Saudi Pro League side Al Nassr has broken down.`\
-https://nytimes.com/athletic/5643212/2024/07/17/szczesny-juventus-saudi-transfer/
 
