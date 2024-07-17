@@ -1,3 +1,7 @@
+**“She was appointed the border czar.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/she-was-appointed-the-border-czar
+
 **“Iran is waging a war in Israel and Gaza, with help from Joe Biden.”**\
 `By Julian E. Barnes`\
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/iran-is-waging-a-war-in-israel-and-gaza-with-help-from-joe-biden
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/17/climate/siamese-crocodile-extinct-hatchlings.html
 **Russia’s foreign minister welcomes J.D. Vance’s opposition to American aid for Ukraine.**\
 `By Eve Sampson`\
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/russias-foreign-minister-welcomes-jd-vances-opposition-to-american-aid-for-ukraine
-
-**Wedge Issue**\
-`The cheese state welcomed the Republican National Convention this week.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/republican-convention-wisconsin
 
