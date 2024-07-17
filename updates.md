@@ -1,3 +1,15 @@
+**England's manager search: Potter, Howe, Pochettino - and the FA's key decision-maker**\
+`How the FA reacted to Gareth Southgate's exit, the candidates now in the running and the man who will be key to the final decision…`\
+https://nytimes.com/athletic/5639017/2024/07/17/england-manager-search-potter-howe-pochettino/
+
+**Donald Trump is “an American whom even Barack Obama admits people consider the American dream.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/07/17/us/rnc-fact-check/donald-trump-is-an-american-whom-even-barack-obama-admits-people-consider-the-american-dream
+
+**Fact-Checking Day 2 of the Republican National Convention**\
+`A team of New York Times reporters followed the developments and fact-checked the speakers, providing context and explanation.`\
+https://nytimes.com/live/2024/07/17/us/rnc-fact-check
+
 **England have qualified for Euro 2025 - but are they stronger than two years ago?**\
 `Lionesses do not seem to have progressed much from the team that won Euro 2022. It wouldn't be a huge issue, were it not for Spain…`\
 https://nytimes.com/athletic/5641987/2024/07/17/england-euro-2025-squad/
