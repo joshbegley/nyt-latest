@@ -6,8 +6,8 @@ https://nytimes.com/2024/07/17/us/politics/donald-trump-jd-vance-republican-2024
 `British dogs and cats are set to become the first animals in Europe to chow down on meat cultivated from chicken cells.`\
 https://nytimes.com/2024/07/17/business/britain-lab-grown-meat-pet-food.html
 
-**What’a in Our Queue? ‘Juan Luis Guerra’ and More**\
-`I’m an international correspondent at The New York Times covering culture, sports and news in Latin America. Here are five things I am enjoying recently.`\
+**What’s in Our Queue? ‘Juan Luis Guerra’ and More**\
+`I’m an international correspondent at The New York Times covering culture, sports and news in Latin America. Here are five things I am enjoying recently. `\
 https://nytimes.com/interactive/2024/07/17/arts/editors-recommendations-juanluisguerra.html
 
 **Rubio’s Endorsement of Trump Underscores Reversal for Latino Leader**\
