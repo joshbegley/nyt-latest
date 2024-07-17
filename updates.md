@@ -1,3 +1,11 @@
+**‘Shogun’ Dominates Emmys With 25 Nominations**\
+`The historical drama has been renewed for “likely” two more seasons after being billed originally as a limited series.`\
+https://nytimes.com/2024/07/17/arts/television/shogun-emmy-nominations.html
+
+**This Easy, Summery Bean Salad Has a Cheesy Crunch**\
+`Melissa Clark swaps Parmesan crisps for croutons in this quick, hearty no-cook recipe.`\
+https://nytimes.com/2024/07/17/dining/easy-summer-salad.html
+
 **Why Pascal Vincent is a natural hire as Laval Rocket coach**\
 `Vincent had a difficult season as head coach in Columbus, but that shouldn't take away from his qualifications as an AHL coach.`\
 https://nytimes.com/athletic/5643685/2024/07/17/pascal-vincent-laval-rocket-coach/
