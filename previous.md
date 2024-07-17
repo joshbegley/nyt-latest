@@ -1,3 +1,15 @@
+**“Kamala had one job — one job — and that was to fix the border.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/kamala-had-one-job-one-job-and-that-was-to-fix-the-border
+
+**Jaime Lozano leaves role as Mexico's coach**\
+`Lozano ends his tenure with Mexico after 21 games and after Mexico’s disappointing performance at the 2024 Copa América.`\
+https://nytimes.com/athletic/5642490/2024/07/16/jaime-lozano-mexico-coach-out/
+
+**Reservoir Creator**\
+`Alex Eaton-Salners shows signs of life.`\
+https://nytimes.com/2024/07/16/crosswords/daily-puzzle-2024-07-16.html
+
 **Is That a Meteor Over Manhattan? New Yorkers Glance Up, Then Shrug.**\
 `It had already been a weird few weeks in New York. Then a fireball streaked across the sky.`\
 https://nytimes.com/2024/07/16/nyregion/meteor-manhattan-new-yorkers.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/we-are-facing-
 **Broncos, Quinn Meinerz reach 4-year, $80 million contract**\
 `The deal, which pays Meinerz $20 million annually, makes him among the top five highest-paid players at his position.`\
 https://nytimes.com/athletic/5642465/2024/07/16/broncos-quinn-meinerz-contract/
-
-**“She even promoted a fund to release the criminals from jail. It doesn’t get reported much in our media. One criminal Kamala Harris freed in Minneapolis went on to murder a man in St. Paul, Minn.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/she-even-promoted-a-fund-to-release-the-criminals-from-jail-it-doesnt-get-reported-much-in-our-media-one-criminal-kamala-harris-
-
-**West Virginia Governor Brings His Dog Onstage at R.N.C.**\
-`Gov. Jim Justice of West Virginia, who is running for Senate, was accompanied by his dog, Babydog, during his speech at the Republican National Convention.`\
-https://nytimes.com/video/us/politics/100000009575961/rnc-babydog.html
-
-**“On the border, Biden and Harris opened it up to the entire world.”**\
-`By Hamed Aleaziz`\
-https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/on-the-border-biden-and-harris-opened-it-up-to-the-entire-world
 
