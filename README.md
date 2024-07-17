@@ -1,3 +1,7 @@
+**Harris condemns assassination attempt but says debate over election stakes must continue.**\
+`By Nicholas Nehamas`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/kamala-harris-michigan
+
 **The Briefing - Hearts 1 Tottenham 5: Archie Gray at centre-half, Maddison sharp, young forwards impress**\
 `Jay Harris breaks down the main talking points from Tottenham's friendly in Edinburgh on Wednesday `\
 https://nytimes.com/athletic/5643422/2024/07/17/hearts-tottenham-friendly-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/17/arts/music/dave-loggins-dead.html
 **Emmy Nominations: Our Critics on ‘The Bear,’ ‘Baby Reindeer’ and Delightful Surprises**\
 `The categories are more confusing than ever and worthy shows were left out, but this year’s nominations also included some thrilling picks.`\
 https://nytimes.com/2024/07/17/arts/television/emmy-nominations-critics-analysis.html
-
-**Improvised Bombs Found in Gunman’s Car at Trump Rally Used a Radio-Control System**\
-`A report obtained by The Times detailed the bombs’ rudimentary construction, made with the kind of initiators used for fireworks shows.`\
-https://nytimes.com/2024/07/17/us/politics/trump-gunman-crooks-bombs.html
 
