@@ -1,3 +1,7 @@
+**What Would It Take to Deport Millions of Immigrants? The G.O.P. Plan, Explained**\
+`Donald Trump is calling for the biggest deportation program in American history. The costs and hurdles would be enormous.`\
+https://nytimes.com/2024/07/17/us/trump-immigration-republicans-explained.html
+
 **Peter Navarro, Trump Trade Adviser, Released From Prison and Headed to the R.N.C.**\
 `The former Trump administration official completed a four-month sentence for contempt of Congress and will speak at the Republican National Convention on Wednesday.`\
 https://nytimes.com/2024/07/17/us/politics/peter-navarro-prison-convention.html
