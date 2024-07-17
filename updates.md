@@ -1,3 +1,7 @@
+**Seamus Coleman, Everton's £60k 'phenomenon'**\
+`The 35-year-old right-back is heading 'home' to Sligo for pre-season - those who have helped at Everton reflect on 16 years on Merseyside`\
+https://nytimes.com/athletic/5639175/2024/07/17/seamus-coleman-everton-sligo/
+
 **England's manager search: Potter, Howe, Pochettino - and the FA's key decision-maker**\
 `How the FA reacted to Gareth Southgate's exit, the candidates now in the running and the man who will be key to the final decision…`\
 https://nytimes.com/athletic/5639017/2024/07/17/england-manager-search-potter-howe-pochettino/
