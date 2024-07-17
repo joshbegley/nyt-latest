@@ -1,3 +1,7 @@
+**WNBA set to receive $2.2 billion over 11 years in media rights deals**\
+`The league anticipates it can still sell two other rights packages in addition to the ones it has already made agreements for.`\
+https://nytimes.com/athletic/5642386/2024/07/16/wnba-media-rights-deal-negotiations/
+
 **Nikki Haley Endorses Trump and Urges Republicans to Unite Behind Him**\
 `In a speech at her party’s nominating convention, Ms. Haley gave her full support to the former president after a bruising primary campaign.`\
 https://nytimes.com/2024/07/16/us/politics/haley-endorses-trump.html
