@@ -1,3 +1,27 @@
+**Insulin: Drugs vs. Dividends**\
+`We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Oliver Bohon, age 17.`\
+https://nytimes.com/2024/07/17/learning/insulin-drugs-vs-dividends.html
+
+**Here’s the speaker lineup for Night 3 of the Republican convention.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/heres-the-speaker-lineup-for-night-3-of-the-republican-convention
+
+**Bird Flu Is Spreading. Why Aren’t More People Getting Tested?**\
+`Even as the H5N1 virus evolves, gaps remain in the nation’s contingency plans for human testing, scientists say.`\
+https://nytimes.com/2024/07/17/health/bird-flu-tests.html
+
+**Paris mayor swims in Seine amid bacteria concerns before Olympics**\
+`Just last week high levels of E. coli bacteria continued to make the historic river unsafe for swimming.`\
+https://nytimes.com/athletic/5643203/2024/07/17/paris-mayor-anne-hidalgo-seine-river-olympics-swim/
+
+**‘My Spy the Eternal City’ Review: An Explosive Roman Holiday**\
+`The sequel stars a teenage Sophie (Chloe Coleman), who goes on a school trip to Italy with J.J. (Dave Bautista) as her burly chaperone.`\
+https://nytimes.com/2024/07/17/movies/my-spy-the-eternal-city-review.html
+
+**What to expect from Wednesday’s Emmy nominations.**\
+`The top nominees are announced at 11:30 a.m. ET. “Shogun” and “The Bear” are poised to have a big day.`\
+https://nytimes.com/live/2024/07/17/arts/emmy-nominations/emmy-award-nominations
+
 **Six Questions We Asked 65 Republican Convention Attendees**\
 `How the party has changed and where it might be going, according to its most committed members.`\
 https://nytimes.com/interactive/2024/07/17/upshot/rnc-convention-republicans-trump-nominee.html
