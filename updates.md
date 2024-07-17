@@ -1,5 +1,9 @@
 **Daniel Craig, Is That You Under Those Bangs?**\
 `A recent ad campaign for Loewe features the former James Bond as he has never been seen.`\
+https://nytimes.com/2024/07/17/style/daniel-craig-loewe-jonathan-anderson.html
+
+**Daniel Craig, Is That You Under Those Bangs?**\
+`A recent ad campaign for Loewe features the former James Bond as he has never been seen.`\
 https://nytimes.com/2024/07/17/style/daniel-craig-is-that-you-under-those-bangs.html
 
 **What Would Persuade Biden to Step Aside? Here’s What He’s Said.**\
