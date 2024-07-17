@@ -1,3 +1,35 @@
+**‘Banger of a Recipe, Easy and Better Than the Sum of Its Parts!’**\
+`Hetty Lui McKinnon’s corn salad with mango and halloumi has raves for a reason.`\
+https://nytimes.com/2024/07/17/dining/banger-of-a-recipe-easy-and-better-than-the-sum-of-its-parts.html
+
+**This Is Literally Your Brain on Drugs**\
+`A small new study shows reactions in the brain in people who were given psilocybin in a controlled setting.`\
+https://nytimes.com/2024/07/17/health/psilocybin-psychedelic-mushrooms-brain.html
+
+**‘Shogun’ was once a limited series. Now it’s a drama. Why?**\
+`The distinction between the two categories has gotten muddled in recent years.`\
+https://nytimes.com/live/2024/07/17/arts/emmy-nominations/shogun-was-once-a-limited-series-now-its-a-drama-why
+
+**Moving In Childhood Contributes to Depression, Study Finds**\
+`A study of more than a million Danes found that frequent moves in childhood had a bigger effect than poverty on adult mental health risk.`\
+https://nytimes.com/2024/07/17/health/moving-childhood-depression.html
+
+**Ford and Mellon Foundations Name 2024 Disability Futures Fellows**\
+`The 20 recipients, including a Broadway composer, a Marvel video game voice actress and a three-time Pushcart Prize-nominated poet, are the initiative’s final cohort.`\
+https://nytimes.com/2024/07/17/arts/design/ford-mellon-foundations-2024-disability-futures-fellows.html
+
+**Emmy Nominees 2024: The Updating List**\
+`Nominations for the 76th Emmy Awards will be announced on Wednesday. See below for a live list of nominees.`\
+https://nytimes.com/2024/07/17/arts/television/emmy-nominees-list-2024.html
+
+**Why Donald Glover Is Saying Goodbye to Childish Gambino**\
+`“Bando Stone & the New World,” his new album due Friday, tells a story about the potential end of the world — and the conclusion of his pseudonymous musical project.`\
+https://nytimes.com/2024/07/17/arts/music/donald-glover-childish-gambino-bando-stone.html
+
+**Want to Go Viral? Tell Your Story in 22 Parts.**\
+`A Dickensian tradition finds a new audience on TikTok.`\
+https://nytimes.com/2024/07/17/style/tiktok-stories-videos.html
+
 **Amtrak Passengers Face Record Delays From Extreme Weather**\
 `The dated U.S. rail infrastructure is struggling to stay operational as climate change accelerates and intense heat waves, downpours and high winds become more frequent.`\
 https://nytimes.com/2024/07/17/us/politics/amtrak-delays-heat-extreme-weather.html
@@ -5,36 +37,4 @@ https://nytimes.com/2024/07/17/us/politics/amtrak-delays-heat-extreme-weather.ht
 **D.N.C. Will Proceed With Biden Nomination, but Delays First Steps**\
 `Democrats will nominate the president in a virtual roll call, but will delay setting a date for the vote until next week and will not begin it until August, according to a new letter.`\
 https://nytimes.com/2024/07/17/us/politics/dnc-biden-nomination.html
-
-**The Windup: Skenes impresses before and during ASG debut**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5643456/2024/07/17/mlb-all-star-game-the-windup/
-
-**Long Holes Look Intimidating, but It’s the Short Ones That Often Befuddle Golfers**\
-`At the British Open at Royal Troon, a short hole called the Postage Stamp has ended many title runs.`\
-https://nytimes.com/2024/07/17/sports/golf/british-open-royal-troon.html
-
-**Liverpool appoint Heitinga as assistant coach**\
-`Liverpool have confirmed the appointment of former Netherlands and Everton defender Johnny Heitinga as assistant coach.`\
-https://nytimes.com/athletic/5643438/2024/07/17/johnny-heitinga-liverpool-assistant-coach/
-
-**As Brian Harman Defends His Title, He Reflects on His Career**\
-`He won by six strokes last year, an accomplishment that showed him that he was capable of really big things.`\
-https://nytimes.com/2024/07/17/sports/golf/british-open-brian-harman.html
-
-**The Players to Watch at the British Open**\
-`This is the last major of the year, and it seems that every top golfer will be there. These five may surprise.`\
-https://nytimes.com/2024/07/17/sports/golf/british-open-players.html
-
-**Yamal takes No 19 shirt at Barcelona**\
-`Lamine Yamal will follow in the footsteps of Lionel Messi and wear the N0 19 shirt for Barcelona next season.`\
-https://nytimes.com/athletic/5628680/2024/07/17/lamine-yamal-barcelona-shirt-number/
-
-**Emmy nominations land as TV business remains sluggish.**\
-`The ind`\
-https://nytimes.com/live/2024/07/17/arts/emmy-nominations/emmy-nominations-land-as-tv-business-remains-sluggish
-
-**Who Needs a Recipe to Cook a Hot Dog, Anyway?**\
-`Sometimes, the easiest dishes are the toughest to get just right. Ali Slagle, who develops recipes for Times Cooking, wants to help home chefs make fan-favorite foods ‘with feeling.’`\
-https://nytimes.com/2024/07/17/insider/who-needs-a-recipe-to-cook-a-hot-dog-anyway.html
 
