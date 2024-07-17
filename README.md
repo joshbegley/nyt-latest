@@ -1,3 +1,7 @@
+**At Moms for Liberty Event, Ron DeSantis Was a Throwback to an Earlier Time**\
+`At an event in Milwaukee on Tuesday, Gov. Ron DeSantis of Florida and the conservative parents’ rights group Moms for Liberty recalled what might have been in the 2024 presidential race.`\
+https://nytimes.com/2024/07/16/us/politics/desantis-moms-for-liberty-rnc.html
+
 **“We are facing an invasion on our southern border, not figuratively, a literal invasion. 11.5 million people have crossed our border illegally under Joe Biden.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/we-are-facing-an-invasion-on-our-southern-border-not-figuratively-a-literal-invasion-11-5-million-people-have-crossed-our-border
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5642305/2024/07/16/lionel-messi-ankle-injury/
 **Our Reporter on the G.O.P.’s Hard-Line Immigration Stance**\
 `Republicans have adopted a platform that is in line with former President Donald Trump’s hard-line approach and rhetoric on the issue of immigration.`\
 https://nytimes.com/video/us/politics/100000009574831/our-reporter-on-the-gops-hard-line-immigration-stance.html
-
-**Rupert Murdoch Shows Up at Republican Convention**\
-`The media titan’s attendance in Milwaukee was another extraordinary turn in his contorted relationship with Donald J. Trump.`\
-https://nytimes.com/2024/07/16/business/media/rupert-murdoch-rnc.html
 
