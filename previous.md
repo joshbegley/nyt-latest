@@ -1,3 +1,11 @@
+**Lara Trump, Woman in Black**\
+`At the Republican National Convention, Donald Trump’s daughter-in-law and co-chair of the party made it personal.`\
+https://nytimes.com/2024/07/17/style/lara-trump-brooch-rnc.html
+
+**The Lost Art of Mummy Smuggling**\
+`In “Women in the Valley of the Kings,” Kathleen Sheppard introduces us to a group of 19th-century archaeologists who changed the field forever.`\
+https://nytimes.com/2024/07/17/books/review/kathleen-sheppard-women-in-the-valley-of-the-kings.html
+
 **The Fed Under Trump 2.0**\
 `Donald Trump says he will not fire Jay Powell as chairman of the central bank if he is re-elected president, after threatening to do so. But whether the president even has the authority is open to question.`\
 https://nytimes.com/2024/07/17/business/dealbook/trump-powell-fed.html
@@ -27,11 +35,6 @@ https://nytimes.com/athletic/5616037/2024/07/17/jean-clair-todibo-west-ham-trans
 https://nytimes.com/athletic/5642992/2024/07/17/argentinas-racism-furore-explained-and-the-14-year-old-who-could-debut-in-mls/
 
 **Ipswich complete signing of goalkeeper Muric from Burnley**\
-`Ipswich Town have completed the signing of goalkeeper Arijanet Muric from Burnley.`\
+`Ipswich Town have completed the signing of goalkeeper Arijanet Muric from Burnley on a four-year deal.`\
 https://nytimes.com/athletic/5635430/2024/07/17/arijanet-muric-ipswich-transfer/
 
-**Israel says it has killed or captured around 14,000 combatants, but leaves considerable ambiguity.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/07/17/world/israel-gaza-war-hamas/israel-gaza-hamas-leaders-killed
-
-**A Human Rights Watch report finds that Hamas committed numerous war crimes, and other news.**\
