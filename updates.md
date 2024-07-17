@@ -1,3 +1,11 @@
+**Benj Pasek and Justin Paul Approach EGOT after ‘Only Murders’ Nod**\
+`The hit Hulu comedy moved the action to Broadway for Season 3, which in turn helped the songwriting duo inch closer to joining the exclusive club.`\
+https://nytimes.com/2024/07/17/arts/television/benj-pasek-justin-paul-egot.html
+
+**Sky trading Marina Mabrey to Sun for picks, players**\
+`This is a rare in-season trade for the WNBA, a league whose hard cap and roster sizes limit movement outside of the offseason.`\
+https://nytimes.com/athletic/5644189/2024/07/17/sun-sky-trade-wnba-marina-mabrey/
+
 **Emerson: How good does Billy Napier have to be in Year 3 at Florida?**\
 `Should Florida be patient with Napier and look for stability, or does he need to show improvement for his job security?`\
 https://nytimes.com/athletic/5644116/2024/07/17/florida-football-billy-napier/

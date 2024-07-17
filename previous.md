@@ -1,3 +1,11 @@
+**Benj Pasek and Justin Paul Approach EGOT after ‘Only Murders’ Nod**\
+`The hit Hulu comedy moved the action to Broadway for Season 3, which in turn helped the songwriting duo inch closer to joining the exclusive club.`\
+https://nytimes.com/2024/07/17/arts/television/benj-pasek-justin-paul-egot.html
+
+**Sky trading Marina Mabrey to Sun for picks, players**\
+`This is a rare in-season trade for the WNBA, a league whose hard cap and roster sizes limit movement outside of the offseason.`\
+https://nytimes.com/athletic/5644189/2024/07/17/sun-sky-trade-wnba-marina-mabrey/
+
 **Emerson: How good does Billy Napier have to be in Year 3 at Florida?**\
 `Should Florida be patient with Napier and look for stability, or does he need to show improvement for his job security?`\
 https://nytimes.com/athletic/5644116/2024/07/17/florida-football-billy-napier/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/17/us/politics/biden-drop-out-why.html
 **Why the Pentagon Is Warning That ISIS Attacks Could Double This Year**\
 `Attacks claimed by ISIS in Iraq and Syria are on track to double last year’s total, the U.S. military said in a report, as the terrorist group’s affiliates become increasingly deadly elsewhere around the world.`\
 https://nytimes.com/2024/07/17/world/middleeast/isis-attacks-iraq-syria.html
-
-**Republicans Spread Misinformation About the Fentanyl Crisis**\
-`Many Republicans’ anger over the issue is misplaced.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/fentanyl-border-immigrants
-
-**Dave Loggins, Who Wrote Hits for Himself and Others, Dies at 76**\
-`After tasting fame with “Please Come to Boston” in 1974, he became a major Nashville songwriter. He also wrote the theme to the Masters golf tournament.`\
-https://nytimes.com/2024/07/17/arts/music/dave-loggins-dead.html
 
