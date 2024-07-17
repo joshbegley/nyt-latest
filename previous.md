@@ -1,40 +1,40 @@
-**Chelsea open proceedings against Fernandez after Argentina chant**\
-`Chelsea say they have opened &#8220;internal disciplinary proceedings&#8221; following a video posted online by Enzo Fernandez of him and his Argentina team-mates singing a chant which the French Football Federation (FFF) called “unacceptable, racist and discriminatory&#8221;.`\
-https://nytimes.com/athletic/5642830/2024/07/17/enzo-fernandez-chelsea-argentina-france-chant/
+**Biden Looks to Tackle 3 Big Weaknesses as He Courts Latinos in Nevada**\
+`The president plans to promote his economic and immigration policies as he tries to re-energize his campaign in the battleground state.`\
+https://nytimes.com/2024/07/17/us/politics/biden-nevada-hispanics-latinos.html
 
-**Jon Stewart Razzes a ‘Daily Show’ Guest: Bill O’Reilly**\
-`The former Fox host, a longtime foil of the show, said he knew he had “no friends here.” “Well, not just here,” Stewart replied.`\
-https://nytimes.com/2024/07/17/arts/television/jon-stewart-bill-oreilly.html
+**They Lost to Trump. Now They’re All In.**\
+`A dispatch from Night 2 in Milwaukee.`\
+https://nytimes.com/2024/07/17/podcasts/they-lost-to-trump-now-theyre-all-in.html
 
-**Mbappe will not be part of Real Madrid squad for pre-season tour of U.S.**\
-`Kylian Mbappe will not travel with the Real Madrid squad for their pre-season training camp in the United States.`\
-https://nytimes.com/athletic/5642791/2024/07/17/kylian-mbappe-real-madrid-us-tour/
+**In Milwaukee, a G.O.P. Transformation From Dysfunctional to Unified**\
+`On Tuesday, Republicans effectively took a victory lap in the middle of the presidential race, expressing a sense of invincibility at their convention.`\
+https://nytimes.com/2024/07/17/us/politics/rnc-republicans-unity-trump.html
 
-**Traces of Cyanide Found in Bangkok Hotel Room Where Six Died**\
-`The police said that one of the people found dead in the room on Tuesday was believed to have administered the poison.`\
-https://nytimes.com/2024/07/17/world/asia/bangkok-hotel-deaths-cyanide.html
+**Republicans Share Their Wishlist for Trump**\
+`We posed a question to R.N.C. attendees in Milwaukee: If Donald Trump wins, what is the first thing you want him to do as president?`\
+https://nytimes.com/video/us/politics/100000009575012/rnc-attendees-trump.html
 
-**Scottie Scheffler's fame has found new heights. He's learning to deal with it**\
-`“It’s definitely been a bit trickier,” Scheffler said of a season that’s seen tabloid coverage of two firsts — child and arrest.`\
-https://nytimes.com/athletic/5641649/2024/07/17/scottie-scheffler-pga-tour-famous/
+**We Owe Shannen Doherty an Apology**\
+`Gen X’s quintessential bad girl was never really all that bad.`\
+https://nytimes.com/2024/07/17/opinion/shannen-doherty-gen-x.html
 
-**Open Championship analysis: 10 notes to know on Scheffler, DeChambeau, more**\
-`Scores have traditionally been low at Royal Troon — each of the last four winners here did so with a score of double-digits under par.`\
-https://nytimes.com/athletic/5641912/2024/07/17/open-championship-analysis-scheffler-dechambeau/
+**Is the G.O.P.’s Economic Populism Real?**\
+`Oren Cass discusses the ideological battle within the Republican Party — and just how powerful the populist faction is.`\
+https://nytimes.com/2024/07/17/opinion/ezra-klein-podcast-oren-cass.html
 
-**New York City Tenants Are Entitled to Heat. What About Air-Conditioning?**\
-`Landlords have to keep tenants warm in the winter, but can leave them sweating in the summer. A city councilman wants to change that.`\
-https://nytimes.com/2024/07/17/nyregion/new-york-city-air-conditioners.html
+**Review: ‘Ain’t Done Bad’ Tells a Familiar Gay Story in Dance**\
+`Jakob Karr, from “So You Think You Can Dance?,” has conceived and choreographed a show set to songs by the country musician Orville Peck.`\
+https://nytimes.com/2024/07/17/arts/dance/aint-done-bad-review.html
 
-**Branded a Felon, Menendez Sees His Political Future Fast Evaporating**\
-`Senator Robert Menendez, a New Jersey Democrat, was found guilty of bribery and corruption. Leaders in his party are pressuring him to resign.`\
-https://nytimes.com/2024/07/17/nyregion/robert-menendez-bribery-conviction-future.html
+**‘Memory Saved Us’: How France Blocked the Far Right**\
+`The French had a far-right government before, one that collaborated with the Nazis. When casting ballots even today, that is not an easy thing to forget.`\
+https://nytimes.com/2024/07/17/world/europe/france-left-voters-far-right.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/07/17/crosswords/spelling-bee-forum.html
+**Democrats Need Their Own Project 2025**\
+`“Finish the job” is not going to do it.`\
+https://nytimes.com/2024/07/17/opinion/democrats-2025-election.html
 
-**Inside Mbappe's Madrid presentation: Echoes of Ronaldo and warm welcome for family**\
-`Kylian Mbappe was finally unveiled as a Real Madrid player on Tuesday after a long-running saga`\
-https://nytimes.com/athletic/5642720/2024/07/17/kylian-mbappe-real-madrid-presentation/
+**$400,000 Homes in Oklahoma, Alabama and Nebraska**\
+`A Tudor Revival home in Oklahoma City, a two-bedroom condominium in a converted 1869 warehouse in Mobile and a 1915 American Foursquare house in Omaha.`\
+https://nytimes.com/2024/07/17/realestate/400000-dollar-homes-oklahoma-alabama-nebraska.html
 
