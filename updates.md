@@ -1,3 +1,11 @@
+**What the Main Characters at the R.N.C. Say About Their Party**\
+`Donald Trump is the same man as he was in 1995.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/what-the-main-characters-at-the-rnc-say-about-their-party
+
+**Netanyahu calls for ‘pressure, pressure and more pressure’ on Hamas.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/07/17/world/israel-gaza-war-hamas/netanyahu-calls-for-pressure-pressure-and-more-pressure-on-hamas
+
 **Charles Opens Britain’s Parliament With ‘King’s Speech’**\
 `King Charles III formally opened the country’s Parliament and read the agenda for the newly elected Labour government.`\
 https://nytimes.com/video/world/europe/100000009576481/king-charles-speech-uk-government.html

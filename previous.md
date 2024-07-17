@@ -1,3 +1,11 @@
+**What the Main Characters at the R.N.C. Say About Their Party**\
+`Donald Trump is the same man as he was in 1995.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/what-the-main-characters-at-the-rnc-say-about-their-party
+
+**Netanyahu calls for ‘pressure, pressure and more pressure’ on Hamas.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/07/17/world/israel-gaza-war-hamas/netanyahu-calls-for-pressure-pressure-and-more-pressure-on-hamas
+
 **Charles Opens Britain’s Parliament With ‘King’s Speech’**\
 `King Charles III formally opened the country’s Parliament and read the agenda for the newly elected Labour government.`\
 https://nytimes.com/video/world/europe/100000009576481/king-charles-speech-uk-government.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/17/movies/my-spy-the-eternal-city-review.html
 **What to expect from Wednesday’s Emmy nominations.**\
 `The top nominees are announced at 11:30 a.m. ET. “Shogun” and “The Bear” are poised to have a big day.`\
 https://nytimes.com/live/2024/07/17/arts/emmy-nominations/emmy-award-nominations
-
-**Six Questions We Asked 65 Republican Convention Attendees**\
-`How the party has changed and where it might be going, according to its most committed members.`\
-https://nytimes.com/interactive/2024/07/17/upshot/rnc-convention-republicans-trump-nominee.html
-
-**Why Iga Swiatek's Wimbledon record is not a simple narrative of surface tension**\
-`Iga Swiatek had another Wimbledon campaign to forget — but how much of that is really about her game on grass?`\
-https://nytimes.com/athletic/5640957/2024/07/17/iga-swiatek-wimbledon-grass-tennis/
 
