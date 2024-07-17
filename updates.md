@@ -1,3 +1,19 @@
+**Trump Tells Taiwan to Expect a Higher Price Tag for U.S. Defense**\
+`Trump also accused Taiwan of sinking the U.S. semiconductor sector, signaling he wants a more transactional approach to shielding the island from China.`\
+https://nytimes.com/2024/07/17/world/asia/trump-taiwan-defense-chips.html
+
+**Here’s what to watch on Day 3 of the Republican Convention.**\
+`Senator J.D. Vance of Ohio will deliver a prime-time address to introduce himself as the party’s vice-presidential nominee. And don’t forget about Doug Burgum, his runner-up for running mate.`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/heres-what-to-watch-on-day-3-of-the-republican-convention
+
+**Live Election Updates: J.D. Vance, at His First G.O.P. Convention, Takes a Starring Role**\
+`Donald J. Trump’s newly minted running mate will headline the third night of the Republican convention. Mr. Vance’s memoir about his upbringing in a poor family fueled his political rise.`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden
+
+**Man Utd Women sign striker Terland from Brighton**\
+`Manchester United Women have completed the signing of striker Elisabeth Terland from Brighton &amp; Hove Albion.`\
+https://nytimes.com/athletic/5642917/2024/07/17/elisabeth-terland-man-united-transfer-news/
+
 **Projecting Ravens' 53-man roster and key decisions that await after the preseason**\
 `Will Baltimore keep two or three QBs, and how many undrafted rookies will impress in camp and make the final roster? `\
 https://nytimes.com/athletic/5639543/2024/07/17/ravens-53-man-roster-projection-2024/
