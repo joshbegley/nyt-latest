@@ -2,9 +2,9 @@
 `A roster of Donald J. Trump’s former rivals, including Nikki Haley, lined up to pledge their allegiance, and a party confident of its November fate drove home an aggressive law-and-order message.`\
 https://nytimes.com/2024/07/17/us/politics/rnc-trump-vivek-haley-takeaways.html
 
-**Flash Flooding in Toronto Leads to Rescues, Power Outages**\
+**Flash Flooding in Toronto Leads to Rescues and Power Outages**\
 `More than 167,000 customers lost power on Tuesday after severe thunderstorms.`\
-https://nytimes.com/2024/07/17/world/toronto-canada-floods.html
+https://nytimes.com/2024/07/17/world/americas/toronto-canada-floods.html
 
 **Seamus Coleman, Everton's £60k 'phenomenon'**\
 `The 35-year-old right-back is heading 'home' to Sligo for pre-season - those who have helped at Everton reflect on 16 years on Merseyside`\
