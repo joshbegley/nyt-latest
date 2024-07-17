@@ -1,3 +1,7 @@
+**NBA to turn to 'consideration of expansion' after media rights deal done**\
+`"We did approve this stage of media proposals," Silver said Tuesday, but he cautioned that the process is not done.`\
+https://nytimes.com/athletic/5642601/2024/07/16/nba-expansion-media-rights-silver/
+
 **Mother Whose Son Died of Fentanyl Poisoning Brings Some Delegates to Tears**\
 `Anne Fundner blamed the death of her 15-year-old son, who took fentanyl-laced pills, on President Biden’s border policies.`\
 https://nytimes.com/2024/07/16/us/politics/anne-fundner-rnc-fentanyl-poisoning.html
