@@ -1,3 +1,11 @@
+**Lowetide: Oilers' latest trade furthers effort to favor a more rugged style**\
+`Here's a look at the trade and what the organization may be hoping to accomplish with the new focus.`\
+https://nytimes.com/athletic/5641279/2024/07/17/oilers-trade-bourgault-jarventie/
+
+**A 'hungry' Jordan Miller makes his case for a Clippers roster spot**\
+`Miller has been explosive on offense and working on his defense this summer in his quest "to be with the big team."`\
+https://nytimes.com/athletic/5642758/2024/07/17/jordan-miller-clippers-summer-league-nba/
+
 **‘Banger of a Recipe, Easy and Better Than the Sum of Its Parts!’**\
 `Hetty Lui McKinnon’s corn salad with mango and halloumi has raves for a reason.`\
 https://nytimes.com/2024/07/17/dining/banger-of-a-recipe-easy-and-better-than-the-sum-of-its-parts.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/17/arts/music/donald-glover-childish-gambino-bando-s
 **Want to Go Viral? Tell Your Story in 22 Parts.**\
 `A Dickensian tradition finds a new audience on TikTok.`\
 https://nytimes.com/2024/07/17/style/tiktok-stories-videos.html
-
-**Amtrak Passengers Face Record Delays From Extreme Weather**\
-`The dated U.S. rail infrastructure is struggling to stay operational as climate change accelerates and intense heat waves, downpours and high winds become more frequent.`\
-https://nytimes.com/2024/07/17/us/politics/amtrak-delays-heat-extreme-weather.html
-
-**D.N.C. Will Proceed With Biden Nomination, but Delays First Steps**\
-`Democrats will nominate the president in a virtual roll call, but will delay setting a date for the vote until next week and will not begin it until August, according to a new letter.`\
-https://nytimes.com/2024/07/17/us/politics/dnc-biden-nomination.html
 
