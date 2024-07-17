@@ -1,3 +1,7 @@
+**Tony Clark defends MLBPA's strength in first public remarks since union power struggle**\
+`"If someone wants to challenge us as a result of what they think happened, then challenge us," Clark said ahead of Tuesday's All-Star Game. `\
+https://nytimes.com/athletic/5642476/2024/07/16/tony-clark-mlbpa-union-power-struggle/
+
 **At Moms for Liberty Event, Ron DeSantis Was a Throwback to an Earlier Time**\
 `At an event in Milwaukee on Tuesday, Gov. Ron DeSantis of Florida and the conservative parents’ rights group Moms for Liberty recalled what might have been in the 2024 presidential race.`\
 https://nytimes.com/2024/07/16/us/politics/desantis-moms-for-liberty-rnc.html

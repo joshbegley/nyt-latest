@@ -1,3 +1,7 @@
+**Tony Clark defends MLBPA's strength in first public remarks since union power struggle**\
+`"If someone wants to challenge us as a result of what they think happened, then challenge us," Clark said ahead of Tuesday's All-Star Game. `\
+https://nytimes.com/athletic/5642476/2024/07/16/tony-clark-mlbpa-union-power-struggle/
+
 **At Moms for Liberty Event, Ron DeSantis Was a Throwback to an Earlier Time**\
 `At an event in Milwaukee on Tuesday, Gov. Ron DeSantis of Florida and the conservative parents’ rights group Moms for Liberty recalled what might have been in the 2024 presidential race.`\
 https://nytimes.com/2024/07/16/us/politics/desantis-moms-for-liberty-rnc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/16/us/guns-crooks-pennsylvania-trump-shooting.html
 **Messi out indefinitely with ligament injury in ankle**\
 `The Argentina and Inter Miami captain appeared to slip on the pitch at Hard Rock Stadium in Miami during Sunday's final.`\
 https://nytimes.com/athletic/5642305/2024/07/16/lionel-messi-ankle-injury/
-
-**Our Reporter on the G.O.P.’s Hard-Line Immigration Stance**\
-`Republicans have adopted a platform that is in line with former President Donald Trump’s hard-line approach and rhetoric on the issue of immigration.`\
-https://nytimes.com/video/us/politics/100000009574831/our-reporter-on-the-gops-hard-line-immigration-stance.html
 
