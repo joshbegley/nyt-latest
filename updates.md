@@ -1,3 +1,11 @@
+**Renauld White, Debonair Model Who Broke Barriers, Dies at 80**\
+`The first Black American model to appear on the cover of GQ magazine, he was an avatar of male beauty for nearly half a century.`\
+https://nytimes.com/2024/07/17/fashion/renauld-white-dead.html
+
+**Four Tornadoes Touch Down in Upstate New York, Killing 1**\
+`The tornadoes swept through Western and Central New York during a week of extreme weather in the region. The worst of the damage was in the city of Rome, east of Syracuse.`\
+https://nytimes.com/2024/07/17/nyregion/tornado-rome-new-york.html
+
 **Deshaun Watson 'taking it one day at a time' as Browns training camp nears**\
 `Watson said he's "in a great state" and has been throwing every day while continuing to rehab from his shoulder surgery.`\
 https://nytimes.com/athletic/5643890/2024/07/17/browns-deshaun-watson-training-camp/
