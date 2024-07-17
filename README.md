@@ -1,3 +1,15 @@
+**Amtrak Passengers Face Record Delays From Extreme Weather**\
+`The dated U.S. rail infrastructure is struggling to stay operational as climate change accelerates and intense heat waves, downpours and high winds become more frequent.`\
+https://nytimes.com/2024/07/17/us/politics/amtrak-delays-heat-extreme-weather.html
+
+**D.N.C. Will Proceed With Biden Nomination, but Delays First Steps**\
+`Democrats will nominate the president in a virtual roll call, but will delay setting a date for the vote until next week and will not begin it until August, according to a new letter.`\
+https://nytimes.com/2024/07/17/us/politics/dnc-biden-nomination.html
+
+**The Windup: Skenes impresses before and during ASG debut**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5643456/2024/07/17/mlb-all-star-game-the-windup/
+
 **Long Holes Look Intimidating, but It’s the Short Ones That Often Befuddle Golfers**\
 `At the British Open at Royal Troon, a short hole called the Postage Stamp has ended many title runs.`\
 https://nytimes.com/2024/07/17/sports/golf/british-open-royal-troon.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/17/arts/emmy-nominations/emmy-nominations-land-
 **Who Needs a Recipe to Cook a Hot Dog, Anyway?**\
 `Sometimes, the easiest dishes are the toughest to get just right. Ali Slagle, who develops recipes for Times Cooking, wants to help home chefs make fan-favorite foods ‘with feeling.’`\
 https://nytimes.com/2024/07/17/insider/who-needs-a-recipe-to-cook-a-hot-dog-anyway.html
-
-**What the Main Characters at the R.N.C. Say About Their Party**\
-`Donald Trump is the same man as he was in 1995.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/what-the-main-characters-at-the-rnc-say-about-their-party
-
-**Netanyahu calls for ‘pressure, pressure and more pressure’ on Hamas.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/07/17/world/israel-gaza-war-hamas/netanyahu-calls-for-pressure-pressure-and-more-pressure-on-hamas
-
-**Charles Opens Britain’s Parliament With ‘King’s Speech’**\
-`King Charles III formally opened the country’s Parliament and read the agenda for the newly elected Labour government.`\
-https://nytimes.com/video/world/europe/100000009576481/king-charles-speech-uk-government.html
 
