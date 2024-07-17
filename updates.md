@@ -1,3 +1,7 @@
+**Ukraine’s Devastated Energy Grid Battles a New Foe: A Sizzling Heat Wave**\
+`To prevent a collapse of the electricity system, crippled by months of Russian attacks, the authorities have imposed rolling blackouts. Experts say it’s a harbinger of what’s to come this winter.`\
+https://nytimes.com/2024/07/17/world/europe/ukraine-heat-wave-electricity.html
+
 **Yoro travels for Man Utd medical and to finalise terms ahead of proposed transfer**\
 `Leny Yoro is flying to the UK to undergo a medical and finalise personal terms as Manchester United push to secure a huge coup by signing the coveted centre-back from Lille.`\
 https://nytimes.com/athletic/5626457/2024/07/17/leny-yoro-manchester-united-transfer/
