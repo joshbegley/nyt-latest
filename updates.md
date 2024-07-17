@@ -1,3 +1,7 @@
+**West Virginia Governor Brings His Dog Onstage at R.N.C.**\
+`Gov. Jim Justice of West Virginia, who is running for Senate, was accompanied by his dog, Babydog, during his speech at the Republican National Convention.`\
+https://nytimes.com/video/us/politics/100000009575961/rnc-babydog.html
+
 **“On the border, Biden and Harris opened it up to the entire world.”**\
 `By Hamed Aleaziz`\
 https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/on-the-border-biden-and-harris-opened-it-up-to-the-entire-world
