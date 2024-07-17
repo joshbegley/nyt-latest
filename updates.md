@@ -1,3 +1,7 @@
+**G.O.P. Senate hopefuls are bashing their opponents by tying them to Biden.**\
+`Republican candidates trying to oust resilient Democratic incumbents took the convention stage one after the other. The party needs to flip only one seat to regain control of the chamber if Donald Trump wins in November.`\
+https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/gop-senate-hopefuls-bash-their-opponents-by-tying-them-to-biden
+
 **“Kamala had one job — one job — and that was to fix the border.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/kamala-had-one-job-one-job-and-that-was-to-fix-the-border
