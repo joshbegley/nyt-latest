@@ -1,3 +1,11 @@
+**How Angel City became 'the most valuable women’s sports team in the world'**\
+`The Los Angeles-based NWSL team's sale to Willow Bay and Bob Iger is expected to become official in 30 to 60 days`\
+https://nytimes.com/athletic/5642755/2024/07/17/angel-city-new-ownership-willow-bay-bob-iger/
+
+**Could Russell Westbrook help the Nuggets? Examining his potential fit**\
+`Westbrook is still a Clipper, but the future Hall of Fame guard could help the Nuggets in different ways ... if he's managed correctly.`\
+https://nytimes.com/athletic/5640161/2024/07/17/russell-westbrook-clippers-denver-nuggets/
+
 **Luka Modric signs new one-year Real Madrid contract**\
 `Real Madrid and Luka Modric have agreed a new contract extension that will keep the midfielder at the club until June 2025.`\
 https://nytimes.com/athletic/5243327/2024/07/17/luka-modric-real-madrid-contract-new/
