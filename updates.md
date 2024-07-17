@@ -1,3 +1,11 @@
+**Arne Slot faces a challenging pre-season as Liverpool await the cavalry's return**\
+`The new head coach is still without 11 senior players following Euro 2024 and the Copa and unable to work with most of his strongest line-up`\
+https://nytimes.com/athletic/5633308/2024/07/17/liverpool-slot-preseason-salah-euro2024-copa/
+
+**A Wildly Obscene Term’s Path to Mainstream Usage**\
+`When combined with innocuous acts, “rawdogging” has left its overtly sexual origins behind, just like many other dirty slang words of the past.`\
+https://nytimes.com/2024/07/17/style/rawdog-flights-term.html
+
 **E.U. Court Rebukes Bloc’s Executive Arm Over Covid Vaccine Contract Secrecy**\
 `The court ruled that the European Commission wrongly withheld information, casting a shadow on its leader, Ursula von der Leyen, before a crucial vote on her future.`\
 https://nytimes.com/2024/07/17/world/europe/eu-covid-vaccines.html

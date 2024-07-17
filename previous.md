@@ -1,3 +1,11 @@
+**Arne Slot faces a challenging pre-season as Liverpool await the cavalry's return**\
+`The new head coach is still without 11 senior players following Euro 2024 and the Copa and unable to work with most of his strongest line-up`\
+https://nytimes.com/athletic/5633308/2024/07/17/liverpool-slot-preseason-salah-euro2024-copa/
+
+**A Wildly Obscene Term’s Path to Mainstream Usage**\
+`When combined with innocuous acts, “rawdogging” has left its overtly sexual origins behind, just like many other dirty slang words of the past.`\
+https://nytimes.com/2024/07/17/style/rawdog-flights-term.html
+
 **E.U. Court Rebukes Bloc’s Executive Arm Over Covid Vaccine Contract Secrecy**\
 `The court ruled that the European Commission wrongly withheld information, casting a shadow on its leader, Ursula von der Leyen, before a crucial vote on her future.`\
 https://nytimes.com/2024/07/17/world/europe/eu-covid-vaccines.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/17/magazine/cat-mice-repellent-ethics.html
 **J.D. Vance Is the First Millennial on a Major Party Ticket**\
 `If elected, the first-term senator would become the third-youngest vice president in history.`\
 https://nytimes.com/2024/07/17/us/politics/vance-millennial-candidate-vice-president.html
-
-**J.D. Vance’s A.I. Agenda: Reduce Regulation**\
-`Donald Trump’s vice-presidential pick has indicated he favors a hands-off approach to A.I. but also wants to increase scrutiny of the biggest tech firms in the field.`\
-https://nytimes.com/2024/07/17/technology/vance-ai-regulation.html
-
-**Robert Pearson, Hair Stylist Turned Acclaimed Barbecue Chef, Dies at 87**\
-`His Texas-style brisket, made with exacting precision, inspired a generation of New York City pit masters, who opened a wave of smoky joints in the 2000s.`\
-https://nytimes.com/2024/07/17/dining/robert-pearson-dead.html
 
