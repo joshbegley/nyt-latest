@@ -27,8 +27,7 @@ https://nytimes.com/athletic/5639212/2024/07/17/college-football-25-game-dynasty
 https://nytimes.com/2024/07/17/world/europe/ukraine-heat-wave-electricity.html
 
 **All-Star Game Weird & Wild: Skenes' start, Ohtani's homer and a final 'W' for Oakland**\
-`ARLINGTON, Texas — If there was no such thing as a Weird and Wild column, we’d have to invent one just for the All-Star Game, if only because …
-Paul Skenes happened! … And Shohei Ohtani did yet one more thing that no other human has ever done! … And we can guarantee you that the winning pitcher in this All-Star Game, a 5-3 triumph for the American League, can’t ever do again what he did Tuesday night.`\
+`Four of the best hitters in baseball geared up to face the flamethrower, Ohtani again broke new ground and the Oakland A's left their mark.`\
 https://nytimes.com/athletic/5642801/2024/07/17/mlb-all-star-game-paul-skenes-ohtani-oakland-athletics/
 
 **Yoro travels for Man Utd medical and to finalise terms ahead of proposed transfer**\

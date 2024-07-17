@@ -1,3 +1,7 @@
+**All-Star Game Weird & Wild: Skenes' start, Ohtani's homer and a final 'W' for Oakland**\
+`Four of the best hitters in baseball geared up to face the flamethrower, Ohtani again broke new ground and the Oakland A's left their mark.`\
+https://nytimes.com/athletic/5642801/2024/07/17/mlb-all-star-game-paul-skenes-ohtani-oakland-athletics/
+
 **Trump Tells Taiwan to Expect a Higher Price Tag for U.S. Defense**\
 `Trump also accused Taiwan of sinking the U.S. semiconductor sector, signaling he wants a more transactional approach to shielding the island from China.`\
 https://nytimes.com/2024/07/17/world/asia/trump-taiwan-defense-chips.html
