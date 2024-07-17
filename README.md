@@ -7,7 +7,7 @@ https://nytimes.com/2024/07/17/magazine/cat-mice-repellent-ethics.html
 https://nytimes.com/2024/07/17/us/politics/vance-millennial-candidate-vice-president.html
 
 **J.D. Vance’s A.I. Agenda: Reduce Regulation**\
-`Trump’s vice-presidential pick has indicated he favors a hands-off approach to A.I. while increasing scrutiny of the biggest tech firms that dominate the field.`\
+`Donald Trump’s vice-presidential pick has indicated he favors a hands-off approach to A.I. but also wants to increase scrutiny of the biggest tech firms in the field.`\
 https://nytimes.com/2024/07/17/technology/vance-ai-regulation.html
 
 **Robert Pearson, Hair Stylist Turned Acclaimed Barbecue Chef, Dies at 87**\
