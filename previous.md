@@ -1,3 +1,19 @@
+**Mayor of Paris Takes an Olympian Plunge in a Beautified Seine**\
+`Anne Hidalgo swam in the cleaned-up waters of the capital’s river, fulfilling a promise that has become a symbol of the Olympic Games that start this month.`\
+https://nytimes.com/2024/07/17/world/europe/paris-mayor-swims-seine-hidalgo-olympics.html
+
+**‘Black Pill’ and the Dark Anarchy of Our Political Moment**\
+`A new book by the journalist Elle Reeve describes how the extremist internet bled into the mainstream.`\
+https://nytimes.com/2024/07/17/opinion/black-pill-charlottesville-trump.html
+
+**The California Ties at the Top of the Presidential Ticket**\
+`Vice President Kamala Harris’s credentials are already well-known. But Senator J.D. Vance of Ohio has deep connections to the Golden State, too.`\
+https://nytimes.com/2024/07/17/us/jd-vance-kamala-harris-california.html
+
+**Why Can’t I Forgive My Husband for Dropping Our Senior Dog?**\
+`A reader is struggling with feelings of resentment toward her husband, whom she accused of imposing a “death sentence” when their pet was paralyzed in a fall.`\
+https://nytimes.com/2024/07/17/style/caregiving-accidents-forgiveness.html
+
 **Lara Trump, Woman in Black**\
 `At the Republican National Convention, Donald Trump’s daughter-in-law and co-chair of the party made it personal.`\
 https://nytimes.com/2024/07/17/style/lara-trump-brooch-rnc.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5640161/2024/07/17/russell-westbrook-clippers-denve
 **Luka Modric signs new one-year Real Madrid contract**\
 `Real Madrid and Luka Modric have agreed a new contract extension that will keep the midfielder at the club until June 2025.`\
 https://nytimes.com/athletic/5243327/2024/07/17/luka-modric-real-madrid-contract-new/
-
-**Barcelona confirm Thiago role in Hansi Flick coaching staff**\
-`Barcelona have confirmed the temporary return of Thiago Alcantara as part of the club&#8217;s coaching staff.`\
-https://nytimes.com/athletic/5643098/2024/07/17/thiago-barcelona-return-hansi-flick/
-
-**West Ham agree Todibo deal but fear defender wants Juventus move**\
-`West Ham have agreed a deal to sign Jean-Clair Todibo from French side Nice but fear the defender wants to move to Juventus instead.`\
-https://nytimes.com/athletic/5616037/2024/07/17/jean-clair-todibo-west-ham-transfer-nice/
-
-**The Athletic FC: Argentina’s racism furore explained and the 14-year-old who could debut in MLS**\
-`Today in The Athletic FC: The fallout from video of Argentina players taking part in racially offensive chanting.`\
-https://nytimes.com/athletic/5642992/2024/07/17/argentinas-racism-furore-explained-and-the-14-year-old-who-could-debut-in-mls/
-
-**Ipswich complete signing of goalkeeper Muric from Burnley**\
-`Ipswich Town have completed the signing of goalkeeper Arijanet Muric from Burnley on a four-year deal.`\
-https://nytimes.com/athletic/5635430/2024/07/17/arijanet-muric-ipswich-transfer/
 
