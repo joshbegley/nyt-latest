@@ -1,3 +1,7 @@
+**Jon Hamm Is Back in the Emmys Saddle**\
+`His roles in “Fargo” and “The Morning Show” both earned nominations, the first for playing a blowhard sheriff, the second for an Elon Musk-like character.`\
+https://nytimes.com/2024/07/17/arts/television/jon-hamm-emmys-fargo-morning-show.html
+
 **Local Sniper Fired at Trump Gunman as Gunshots Rang Out, Official Says**\
 `The sniper did not fire the kill shot, but did “engage” the gunman, the Butler County district attorney said.`\
 https://nytimes.com/2024/07/17/us/local-sniper-trump-gunman.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/17/us/politics/vance-senate-trump.html
 **Renauld White, Debonair Model Who Broke Barriers, Dies at 80**\
 `The first Black American model to appear on the cover of GQ magazine, he was an avatar of male beauty for nearly half a century.`\
 https://nytimes.com/2024/07/17/fashion/renauld-white-dead.html
-
-**Four Tornadoes Touch Down in Upstate New York, Killing 1**\
-`The tornadoes swept through Western and Central New York during a week of extreme weather in the region. The worst of the damage was in the city of Rome, east of Syracuse.`\
-https://nytimes.com/2024/07/17/nyregion/tornado-rome-new-york.html
 
