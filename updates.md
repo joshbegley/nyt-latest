@@ -1,3 +1,11 @@
+**J.D. Vance Has Written of His Struggles to Control His Anger**\
+`In his book “Hillbilly Elegy,” Mr. Vance chronicles the conflict and violence that shaped him and says his wife has helped him manage his emotions.`\
+https://nytimes.com/2024/07/17/us/jd-vance-anger-emotions.html
+
+**MLS drops plan for second contract buyout: Sources**\
+`Major League Soccer will not add a second contract buyout this summer as expected, according to multiple sources briefed on the decision.`\
+https://nytimes.com/athletic/5644219/2024/07/17/mls-contract-buyout-dropped/
+
 **How Does a Dressing Room Get Into Character?**\
 `The actor Krysta Rodriguez has found an avid audience for her new side business: creating dramatic interiors.`\
 https://nytimes.com/2024/07/17/t-magazine/krysta-rodriguez-dressing-room-design.html
