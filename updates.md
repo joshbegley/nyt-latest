@@ -1,3 +1,11 @@
+**Thursday Briefing: J.D. Vance Takes the Stage**\
+`Plus, Israel estimates the toll on Hamas.`\
+https://nytimes.com/2024/07/17/briefing/jd-vance-rnc-israel.html
+
+**ACC to provide ESPN agreements to Florida state attorney general**\
+`When asked whether it would pursue the same step with other conferences, the attorney general’s office said, 'Our case pertains to the ACC.'`\
+https://nytimes.com/athletic/5644222/2024/07/17/acc-to-provide-espn-agreements-to-florida-state-attorney-general-by-aug-1/
+
 **Donald Trump, Poet?**\
 `Really?`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-poetry-book

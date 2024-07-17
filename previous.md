@@ -1,6 +1,14 @@
+**Thursday Briefing: J.D. Vance Takes the Stage**\
+`Plus, Israel estimates the toll on Hamas.`\
+https://nytimes.com/2024/07/17/briefing/jd-vance-rnc-israel.html
+
 **Donald Trump, Poet?**\
 `Really?`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-poetry-book
+
+**ACC to provide ESPN agreements to Florida state attorney general**\
+`When asked whether it would pursue the same step with other conferences, the attorney general’s office said, 'Our case pertains to the ACC.'`\
+https://nytimes.com/athletic/5644222/2024/07/17/acc-to-provide-espn-agreements-to-florida-state-attorney-general-by-aug-1/
 
 **J.D. Vance Has Written of His Struggles to Control His Anger**\
 `In his book “Hillbilly Elegy,” Mr. Vance chronicles the conflict and violence that shaped him and says his wife has helped him manage his emotions.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5644189/2024/07/17/sun-sky-trade-wnba-marina-mabrey
 **Emerson: How good does Billy Napier have to be in Year 3 at Florida?**\
 `Should Florida be patient with Napier and look for stability, or does he need to show improvement for his job security?`\
 https://nytimes.com/athletic/5644116/2024/07/17/florida-football-billy-napier/
-
-**Harris condemns assassination attempt but says debate over election stakes must continue.**\
-`By Nicholas Nehamas`\
-https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/kamala-harris-michigan
-
-**The Briefing - Hearts 1 Tottenham 5: Archie Gray at centre-half, Maddison sharp, young forwards impress**\
-`Jay Harris breaks down the main talking points from Tottenham's friendly in Edinburgh on Wednesday `\
-https://nytimes.com/athletic/5643422/2024/07/17/hearts-tottenham-friendly-result-analysis/
 
