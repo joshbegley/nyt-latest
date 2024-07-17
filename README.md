@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5643349/2024/07/17/real-madrid-vinicius-rudiger-rac
 `His father gave him up for adoption when he was 6. Mr. Vance has sought to fill the gap with people who have helped him, including Peter Thiel, the tech investor and entrepreneur.`\
 https://nytimes.com/2024/07/17/us/jd-vance-father-mentors.html
 
-**‘Curb Your Enthusiasm’ gets an Emmy send off.**\
+**‘Curb Your Enthusiasm’ gets an Emmy send-off.**\
 `By Annie Aguiar`\
 https://nytimes.com/live/2024/07/17/arts/emmy-nominations/curb-your-enthusiasm-gets-an-emmy-send-off
 
