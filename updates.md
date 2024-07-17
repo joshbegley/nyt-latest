@@ -1,3 +1,11 @@
+**Charles Opens Britain’s Parliament With ‘King’s Speech’**\
+`King Charles III formally opened the country’s Parliament and read the agenda for the newly elected Labour government.`\
+https://nytimes.com/video/world/europe/100000009576481/king-charles-speech-uk-government.html
+
+**Flash Flooding in Arkansas Leads to Rescues and Evacuations**\
+`Rainfall of 6 to 11 inches overnight prompted a rare flash flood emergency in Marion County, where water was rising inside homes and bridges were washed-out.`\
+https://nytimes.com/2024/07/17/us/arkansas-flooding-marion-county.html
+
 **Insulin: Drugs vs. Dividends**\
 `We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Oliver Bohon, age 17.`\
 https://nytimes.com/2024/07/17/learning/insulin-drugs-vs-dividends.html
