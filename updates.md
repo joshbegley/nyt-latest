@@ -1,3 +1,7 @@
+**Nikki Haley Says Trump Has Her ‘Strong Endorsement’ for President**\
+`Nikki Haley, who was initially not invited to the convention, received an invitation from Mr. Trump following Sunday’s assassination attempt and accepted it in the name of “unity.”`\
+https://nytimes.com/video/us/politics/100000009576171/nikki-haley-trump-endorsement.html
+
 **Nikki Haley, What Happened to Your Principled Stand?**\
 `She’s just another politician, bending the knee.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/nikki-haley-what-happened-to-your-principled-stand
