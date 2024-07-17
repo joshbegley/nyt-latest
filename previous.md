@@ -1,3 +1,16 @@
+**Projecting Ravens' 53-man roster and key decisions that await after the preseason**\
+`Will Baltimore keep two or three QBs, and how many undrafted rookies will impress in camp and make the final roster? `\
+https://nytimes.com/athletic/5639543/2024/07/17/ravens-53-man-roster-projection-2024/
+
+**All-Star Game Weird & Wild: Skenes' start, Ohtani's homer and a final 'W' for Oakland**\
+`ARLINGTON, Texas — If there was no such thing as a Weird and Wild column, we’d have to invent one just for the All-Star Game, if only because …
+Paul Skenes happened! … And Shohei Ohtani did yet one more thing that no other human has ever done! … And we can guarantee you that the winning pitcher in this All-Star Game, a 5-3 triumph for the American League, can’t ever do again what he did Tuesday night.`\
+https://nytimes.com/athletic/5642801/2024/07/17/mlb-all-star-game-paul-skenes-ohtani-oakland-athletics/
+
+**What kind of Dynasty player are you? How to pick your College Football 25 team**\
+`After an 11-year wait for a college football video game, a crucial decision awaits: How big of a Dynasty mode challenge should you take on?`\
+https://nytimes.com/athletic/5639212/2024/07/17/college-football-25-game-dynasty-teams/
+
 **Ukraine’s Devastated Energy Grid Battles a New Foe: A Sizzling Heat Wave**\
 `To prevent a collapse of the electricity system, crippled by months of Russian attacks, the authorities have imposed rolling blackouts. Experts say it’s a harbinger of what’s to come this winter.`\
 https://nytimes.com/2024/07/17/world/europe/ukraine-heat-wave-electricity.html
@@ -25,16 +38,4 @@ https://nytimes.com/2024/07/17/us/politics/rnc-republicans-unity-trump.html
 **Republicans Share Their Wishlist for Trump**\
 `We posed a question to R.N.C. attendees in Milwaukee: If Donald Trump wins, what is the first thing you want him to do as president?`\
 https://nytimes.com/video/us/politics/100000009575012/rnc-attendees-trump.html
-
-**We Owe Shannen Doherty an Apology**\
-`Gen X’s quintessential bad girl was never really all that bad.`\
-https://nytimes.com/2024/07/17/opinion/shannen-doherty-gen-x.html
-
-**Is the G.O.P.’s Economic Populism Real?**\
-`Oren Cass discusses the ideological battle within the Republican Party — and just how powerful the populist faction is.`\
-https://nytimes.com/2024/07/17/opinion/ezra-klein-podcast-oren-cass.html
-
-**Review: ‘Ain’t Done Bad’ Tells a Familiar Gay Story in Dance**\
-`Jakob Karr, from “So You Think You Can Dance?,” has conceived and choreographed a show set to songs by the country musician Orville Peck.`\
-https://nytimes.com/2024/07/17/arts/dance/aint-done-bad-review.html
 
