@@ -1,3 +1,7 @@
+**Donald Trump, Poet?**\
+`Really?`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-poetry-book
+
 **J.D. Vance Has Written of His Struggles to Control His Anger**\
 `In his book “Hillbilly Elegy,” Mr. Vance chronicles the conflict and violence that shaped him and says his wife has helped him manage his emotions.`\
 https://nytimes.com/2024/07/17/us/jd-vance-anger-emotions.html
