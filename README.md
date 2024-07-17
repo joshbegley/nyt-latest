@@ -1,3 +1,7 @@
+**“Iran is waging a war in Israel and Gaza, with help from Joe Biden.”**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/iran-is-waging-a-war-in-israel-and-gaza-with-help-from-joe-biden
+
 **There’s No Zealot Like a Trump Convert**\
 `The Republican Party is full of people who have changed their minds about the former president.`\
 https://nytimes.com/2024/07/17/us/politics/vance-speech-rnc-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/russias
 **A View From Milwaukee**\
 `The cheese state welcomed the Republican National Convention this week.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/republican-convention-wisconsin
-
-**Britain Needs to Move Faster on Climate, Monitoring Group Says**\
-`A report by a government body that oversees efforts to reduce greenhouse gases will help underpin the Labour Party’s plans to accelerate renewable energy and other measures.`\
-https://nytimes.com/2024/07/17/business/britain-climate-change-energy-transition.html
 
