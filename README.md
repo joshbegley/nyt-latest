@@ -1,3 +1,7 @@
+**Renauld White, Debonair Model Who Broke Barriers, Dies at 80**\
+`The first Black American model to appear on the cover of GQ magazine, he was an avatar of male beauty for nearly half a century.`\
+https://nytimes.com/2024/07/17/fashion/renauld-white-dead.html
+
 **Four Tornadoes Touch Down in Upstate New York, Killing 1**\
 `The tornadoes swept through Western and Central New York during a week of extreme weather in the region. The worst of the damage was in the city of Rome, east of Syracuse.`\
 https://nytimes.com/2024/07/17/nyregion/tornado-rome-new-york.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5643826/2024/07/17/ryan-williams-alabama-football-s
 **Wrexham given boost as club granted academy upgrade**\
 `Wrexham have been granted Category Three academy status after being given extra time to bring facilities up to the required standard.`\
 https://nytimes.com/athletic/5643830/2024/07/17/wrexham-academy-upgrade/
-
-**Football’s silence over Argentina’s racist chanting is deafening and damning**\
-`At moments like this, the idea that football is serious about combating racism is very hard to take seriously`\
-https://nytimes.com/athletic/5643556/2024/07/17/argentina-chanting-football-silence/
 
