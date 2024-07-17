@@ -1,3 +1,15 @@
+**Emmy Nominations: Our Critics on ‘The Bear,’ ‘Baby Reindeer’ and Delightful Surprises**\
+`The categories are more confusing than ever and worthy shows were left out, but this year’s nominations also included some thrilling picks.`\
+https://nytimes.com/2024/07/17/arts/television/emmy-nominations-critics-analysis.html
+
+**Improvised Bombs Found in Gunman’s Car at Trump Rally Used a Radio-Control System**\
+`A report obtained by The Times detailed the bombs’ rudimentary construction, made with the kind of initiators used for fireworks shows.`\
+https://nytimes.com/2024/07/17/us/politics/trump-gunman-crooks-bombs.html
+
+**Chip Shares Tumble, Dragging Wall Street to Its Worst Day in Weeks**\
+`The S&P 500 was on track for its worst day since April. The Nasdaq composite was down by the most since late 2022.`\
+https://nytimes.com/2024/07/17/business/stock-market-today.html
+
 **City Councilwoman Is Charged With Biting Police Chief During Protest**\
 `Wenyi Susan Zhuang, who represents a Brooklyn district, was protesting at the site of a proposed homeless shelter. The authorities said she resisted arrest with her teeth.`\
 https://nytimes.com/2024/07/17/nyregion/councilwoman-bites-police-protest.html

@@ -1,3 +1,11 @@
+**Emmy Nominations: Our Critics on ‘The Bear,’ ‘Baby Reindeer’ and Delightful Surprises**\
+`The categories are more confusing than ever and worthy shows were left out, but this year’s nominations also included some thrilling picks.`\
+https://nytimes.com/2024/07/17/arts/television/emmy-nominations-critics-analysis.html
+
+**Improvised Bombs Found in Gunman’s Car at Trump Rally Used a Radio-Control System**\
+`A report obtained by The Times detailed the bombs’ rudimentary construction, made with the kind of initiators used for fireworks shows.`\
+https://nytimes.com/2024/07/17/us/politics/trump-gunman-crooks-bombs.html
+
 **City Councilwoman Is Charged With Biting Police Chief During Protest**\
 `Wenyi Susan Zhuang, who represents a Brooklyn district, was protesting at the site of a proposed homeless shelter. The authorities said she resisted arrest with her teeth.`\
 https://nytimes.com/2024/07/17/nyregion/councilwoman-bites-police-protest.html
@@ -12,7 +20,7 @@ https://nytimes.com/2024/07/17/business/media/msnbc-rnc-coverage-led-screen.html
 
 **Chip Shares Tumble, Dragging Wall Street to Its Worst Day in Weeks**\
 `The S&P 500 was on track for its worst day since April. The Nasdaq composite was down by the most since late 2022.`\
-https://nytimes.com/2024/07/17/business/chip-stocks-market.html
+https://nytimes.com/2024/07/17/business/stock-market-today.html
 
 **Jon Hamm Is Back in the Emmys Saddle**\
 `His roles in “Fargo” and “The Morning Show” both earned nominations, the first for playing a blowhard sheriff, the second for an Elon Musk-like character.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/17/opinion/afghanistan-women-olympics-taliban.html
 **J.D. Vance Once Warned Trump About Lying About Elections. That Was Then.**\
 `Once he ran for office, Mr. Vance, Donald J. Trump’s new running mate, embraced Mr. Trump’s false theories about voter fraud and elections.`\
 https://nytimes.com/2024/07/17/us/politics/donald-trump-jd-vance-republican-2024-election.html
-
-**Britain Approves Lab-Grown Meat for Pet Food**\
-`British dogs and cats are set to become the first animals in Europe to chow down on meat cultivated from chicken cells.`\
-https://nytimes.com/2024/07/17/business/britain-lab-grown-meat-pet-food.html
-
-**What’s in Our Queue? ‘Juan Luis Guerra’ and More**\
-`I’m an international correspondent at The New York Times covering culture, sports and news in Latin America. Here are five things I am enjoying recently. `\
-https://nytimes.com/interactive/2024/07/17/arts/editors-recommendations-juanluisguerra.html
 
