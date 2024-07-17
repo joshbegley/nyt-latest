@@ -1,3 +1,7 @@
+**The Fed Under Trump 2.0**\
+`Donald Trump says he will not fire Jay Powell as chairman of the central bank if he is re-elected president, after threatening to do so. But whether the president even has the authority is open to question.`\
+https://nytimes.com/2024/07/17/business/dealbook/trump-powell-fed.html
+
 **How Angel City became 'the most valuable women’s sports team in the world'**\
 `The Los Angeles-based NWSL team's sale to Willow Bay and Bob Iger is expected to become official in 30 to 60 days`\
 https://nytimes.com/athletic/5642755/2024/07/17/angel-city-new-ownership-willow-bay-bob-iger/
