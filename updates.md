@@ -1,3 +1,7 @@
+**Judge Orders Boss Who Coughed at Employee During Pandemic to Pay Damages**\
+`The ruling by a tribunal judge in Britain highlighted the challenges and missteps businesses encountered during the early days of the pandemic.`\
+https://nytimes.com/2024/07/17/world/europe/covid-cough-fine-wales.html
+
 **R&A CEO concerned about golf's increasing prize money**\
 `Martin Slumbers believes prize money is straining the overall health of the game.`\
 https://nytimes.com/athletic/5643238/2024/07/17/open-championship-golf-prize-money-martin-slumbers/
