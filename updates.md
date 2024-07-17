@@ -1,3 +1,7 @@
+**Six Questions We Asked 65 Republican Convention Attendees**\
+`How the party has changed and where it might be going, according to its most committed members.`\
+https://nytimes.com/interactive/2024/07/17/upshot/rnc-convention-republicans-trump-nominee.html
+
 **Why Iga Swiatek's Wimbledon record is not a simple narrative of surface tension**\
 `Iga Swiatek had another Wimbledon campaign to forget — but how much of that is really about her game on grass?`\
 https://nytimes.com/athletic/5640957/2024/07/17/iga-swiatek-wimbledon-grass-tennis/
