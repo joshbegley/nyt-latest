@@ -1,3 +1,7 @@
+**Winston, Celebrity Gorilla at the San Diego Zoo Safari Park, Dies at 52**\
+`The great ape was euthanized because his health had declined, staff members said.`\
+https://nytimes.com/2024/07/16/us/winston-gorilla-san-diego-zoo.html
+
 **“Joe Biden created an app to let illegals schedule their arrival.”**\
 `By Hamed Aleaziz`\
 https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/joe-biden-created-an-app-to-let-illegals-schedule-their-arrival
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/16/crosswords/daily-puzzle-2024-07-16.html
 **Is That a Meteor Over Manhattan? New Yorkers Glance Up, Then Shrug.**\
 `It had already been a weird few weeks in New York. Then a fireball streaked across the sky.`\
 https://nytimes.com/2024/07/16/nyregion/meteor-manhattan-new-yorkers.html
-
-**G.O.P. Senate hopefuls are bashing their opponents by tying them to Biden.**\
-`Republican candidates trying to oust resilient Democratic incumbents took the convention stage one after the other. The party needs to flip only one seat to regain control of the chamber if Donald Trump wins in November.`\
-https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/gop-senate-hopefuls-bash-their-opponents-by-tying-them-to-biden
 

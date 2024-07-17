@@ -1,3 +1,7 @@
+**Winston, Celebrity Gorilla at the San Diego Zoo Safari Park, Dies at 52**\
+`The great ape was euthanized because his health had declined, staff members said.`\
+https://nytimes.com/2024/07/16/us/winston-gorilla-san-diego-zoo.html
+
 **“Joe Biden created an app to let illegals schedule their arrival.”**\
 `By Hamed Aleaziz`\
 https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/joe-biden-created-an-app-to-let-illegals-schedule-their-arrival
