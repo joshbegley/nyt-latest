@@ -1,3 +1,11 @@
+**England have qualified for Euro 2025 - but are they stronger than two years ago?**\
+`Lionesses do not seem to have progressed much from the team that won Euro 2022. It wouldn't be a huge issue, were it not for Spain…`\
+https://nytimes.com/athletic/5641987/2024/07/17/england-euro-2025-squad/
+
+**Revealed: The results of our Premier League season ticket survey**\
+`Our survey reveals a clear trend in pricing - costs for fans are going up as clubs continue to search for new ways to maximise revenue`\
+https://nytimes.com/athletic/5614585/2024/07/17/premier-league-season-ticket-survey/
+
 **Wednesday Briefing**\
 `President Biden’s growing isolation.`\
 https://nytimes.com/2024/07/17/briefing/biden-isolation-gaza-strikes.html
@@ -29,12 +37,4 @@ https://nytimes.com/article/kings-speech-uk-parliament.html
 **Open Championship pool picks: Aberg, MacIntyre, Rai among the picks**\
 `With the Open Championship coming up later this week, Amos Morale III gives his pool picks for the final major of the year.`\
 https://nytimes.com/athletic/5641693/2024/07/17/open-championship-pool-picks-aberg-macintyre-rai/
-
-**To Revitalize Britain’s Economy, a Plan for a Stronger Government Role**\
-`The Labour Party’s economic agenda, like many other programs around the world, puts political leaders more firmly in charge of industrial policy.`\
-https://nytimes.com/2024/07/17/business/britain-labour-industrial-policy-economy.html
-
-**Mother Whose Son Died of Fentanyl Poisoning Brings Some Delegates to Tears**\
-`Anne Fundner blamed the death of her 15-year-old son, who took fentanyl-laced pills, on President Biden’s border policies.`\
-https://nytimes.com/2024/07/16/us/politics/anne-fundner-rnc-fentanyl-poisoning.html
 
