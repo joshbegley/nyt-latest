@@ -1,3 +1,7 @@
+**How field conditions played a role in USWNT's Olympic send-off game**\
+`The U.S. played its final game before the Olympics on a patch-filled surface.`\
+https://nytimes.com/athletic/5642728/2024/07/17/uswnt-field-conditions-olympics/
+
 **Anchovies Are Always a Good Idea**\
 `This diminutive fish has been making other things taste great for millenniums.`\
 https://nytimes.com/2024/07/17/opinion/anchovies-umami.html
