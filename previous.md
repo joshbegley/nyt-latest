@@ -1,3 +1,7 @@
+**Hiker’s Death Prompts Move to Allow Wider Bear Cull in Romania**\
+`But some experts described the planned cull as excessive and said it would not keep people safe.`\
+https://nytimes.com/2024/07/17/world/europe/romania-bear-kill-hiker-death.html
+
 **Bucks' Gary Trent Jr. addition caps summer of quality under-the-radar moves**\
 `It may not have been splashy, but Milwaukee's depth chart looks better than it did at the end of last season.`\
 https://nytimes.com/athletic/5641144/2024/07/17/gary-trent-jr-bucks-nba-free-agency/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5642143/2024/07/17/mlb-all-star-game-the-pulse-2/
 **World’s Rarest Whale Washes Up on New Zealand Beach, Scientists Say**\
 `Only six specimens of the spade-toothed whale have ever been identified. This carcass could be the first that scientists are able to dissect.`\
 https://nytimes.com/2024/07/17/world/australia/spade-toothed-whale-new-zealand.html
-
-**Biden vs. His Party**\
-`The Democratic Party’s Biden dilemma is unresolved, even as the momentum against him slows.`\
-https://nytimes.com/2024/07/17/briefing/biden-vs-the-democratic-party.html
 

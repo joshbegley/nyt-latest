@@ -1,3 +1,7 @@
+**Hiker’s Death Prompts Move to Allow Wider Bear Cull in Romania**\
+`But some experts described the planned cull as excessive and said it would not keep people safe.`\
+https://nytimes.com/2024/07/17/world/europe/romania-bear-kill-hiker-death.html
+
 **Bucks' Gary Trent Jr. addition caps summer of quality under-the-radar moves**\
 `It may not have been splashy, but Milwaukee's depth chart looks better than it did at the end of last season.`\
 https://nytimes.com/athletic/5641144/2024/07/17/gary-trent-jr-bucks-nba-free-agency/
