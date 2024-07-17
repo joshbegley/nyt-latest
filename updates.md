@@ -1,3 +1,7 @@
+**“On the border, Biden and Harris opened it up to the entire world.”**\
+`By Hamed Aleaziz`\
+https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/on-the-border-biden-and-harris-opened-it-up-to-the-entire-world
+
 **Babydog, a Plump Bulldog Who Is Apparently a Republican, Charms the R.N.C.**\
 `Gov. Jim Justice of West Virginia, running for Senate in his deep-red state, was somewhat upstaged as the crowd shouted “Babydog!” with an energy generally reserved only for former President Donald J. Trump.`\
 https://nytimes.com/2024/07/16/us/politics/jim-justice-babydog.html
