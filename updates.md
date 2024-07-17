@@ -1,3 +1,7 @@
+**Babydog, a Plump Bulldog Who Is Apparently a Republican, Charms the R.N.C.**\
+`Gov. Jim Justice of West Virginia, running for Senate in his deep-red state, was somewhat upstaged as the crowd shouted “Babydog!” with an energy generally reserved only for former President Donald J. Trump.`\
+https://nytimes.com/2024/07/16/us/politics/jim-justice-babydog.html
+
 **Guns Are Woven Into the Life of Shooter’s Hometown**\
 `The gunman who opened fire at a Trump rally grew up in an area where hunting and target shooting have long been popular pastimes. Now, there’s new talk of gun regulation.`\
 https://nytimes.com/2024/07/16/us/guns-crooks-pennsylvania-trump-shooting.html
