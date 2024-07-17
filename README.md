@@ -1,3 +1,7 @@
+**A's take it 'old school' in their final draft in Oakland, select 18 college players**\
+`The A's had a throwback draft in their last season in Oakland, with a "Moneyball"-like 18 college picks out of 21 selections.`\
+https://nytimes.com/athletic/5642575/2024/07/16/oakland-athletics-2024-mlb-draft-breakdown/
+
 **Madeline Brame’s son was fatally stabbed in Harlem in 2018.**\
 `Ms. Brame said she switched her allegiance to the Republican Party because of the handling of her son’s murder case.`\
 https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/who-is-madeline-brame
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/gop-senate-hop
 **Giants 'Hard Knocks' takeaways: Free-agent frenzy and a farewell to Saquon Barkley**\
 `John Mara before the big Barkley move: "I'm going to have a hard time sleeping if Saquon goes to Philly, I'll tell you that."`\
 https://nytimes.com/athletic/5642096/2024/07/16/new-york-giants-hard-knocks-saquon-barkley-free-agency/
-
-**Tony Clark defends MLBPA's strength in first public remarks since union power struggle**\
-`"If someone wants to challenge us as a result of what they think happened, then challenge us," Clark said ahead of Tuesday's All-Star Game. `\
-https://nytimes.com/athletic/5642476/2024/07/16/tony-clark-mlbpa-union-power-struggle/
 
