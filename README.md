@@ -1,3 +1,7 @@
+**WNBA set to receive $2.2 billion over 11 years in media rights deals**\
+`The league anticipates it can still sell two other rights packages in addition to the ones it has already made agreements for.`\
+https://nytimes.com/athletic/5642386/2024/07/16/wnba-media-rights-deal-negotiations/
+
 **Nikki Haley Endorses Trump and Urges Republicans to Unite Behind Him**\
 `In a speech at her party’s nominating convention, Ms. Haley gave her full support to the former president after a bruising primary campaign.`\
 https://nytimes.com/2024/07/16/us/politics/haley-endorses-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/im-proud-to-be
 **Shohei Ohtani goes deep, Jarren Duran delivers as AL resumes All-Star Game dominance**\
 `ARLINGTON, Texas — The pitching was relentless, and the game’s biggest name went deep, but it was a first-time All-Star from the Boston Red Sox who delivered the deciding blow in Tuesday’s All-Star Game.`\
 https://nytimes.com/athletic/5642615/2024/07/16/mlb-all-star-game-shohei-ohtani-jarren-duran/
-
-**Winston, Celebrity Gorilla at the San Diego Zoo Safari Park, Dies at 52**\
-`The great ape was euthanized because his health had declined, staff members said.`\
-https://nytimes.com/2024/07/16/us/winston-gorilla-san-diego-zoo.html
 
