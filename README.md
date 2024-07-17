@@ -1,3 +1,7 @@
+**Manny Jacinto Turns to the Dark Side in ‘The Acolyte’**\
+`The actor discusses his complex role in the latest “Star Wars” series, which wrapped up its first season on Tuesday.`\
+https://nytimes.com/2024/07/17/arts/manny-jacinto-the-acolyte.html
+
 **‘Shogun’ Dominates Emmys With 25 Nominations**\
 `The historical drama has been renewed for “likely” two more seasons after being billed originally as a limited series.`\
 https://nytimes.com/2024/07/17/arts/television/shogun-emmy-nominations.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5643616/2024/07/17/la-kings-quinton-byfield-captain
 **‘UnPrisoned’ Review: Kerry Washington Handles Comedy, Too**\
 `The star of “Scandal” demonstrates her range in the Hulu series about an ex-con’s daughter and her relatable traumas.`\
 https://nytimes.com/2024/07/17/arts/television/unprisoned-review.html
-
-**‘The Gilded Age’ lands a nomination for best drama.**\
-`By Sarah Bahr`\
-https://nytimes.com/live/2024/07/17/arts/emmy-nominations/the-gilded-age-lands-a-nomination-for-best-drama
 
