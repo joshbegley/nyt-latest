@@ -1,3 +1,7 @@
+**Navy Exonerates Black Sailors Unfairly Convicted After World War II Disaster**\
+`The men had objected to working until safety concerns were addressed following an explosion at a port near San Francisco that claimed hundreds of lives.`\
+https://nytimes.com/2024/07/17/us/politics/navy-disaster-black-sailors-exonerated.html
+
 **An affordable housing solution hidden in plain sight: Libraries**\
 `Building subsidized housing in America relies on cheap land, and creative ideas`\
 https://nytimes.com/2024/07/17/headway/an-affordable-housing-solution-hidden-in-plain-sight-libraries.html
