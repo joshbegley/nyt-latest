@@ -1,3 +1,7 @@
+**Mbappe will not be part of Real Madrid squad for pre-season tour of U.S.**\
+`Kylian Mbappe will not travel with the Real Madrid squad for their pre-season training camp in the United States.`\
+https://nytimes.com/athletic/5642791/2024/07/17/kylian-mbappe-real-madrid-us-tour/
+
 **Traces of Cyanide Found in Bangkok Hotel Room Where Six Died**\
 `The police said that one of the people found dead in the room on Tuesday was believed to have administered the poison.`\
 https://nytimes.com/2024/07/17/world/asia/bangkok-hotel-deaths-cyanide.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/17/business/britain-inflation.html
 **Despite losing 2 picks, Giants added premium talent early in MLB Draft**\
 `The Giants didn't have a second- or third-round pick, but they see promise in Dakota Jordan, taken in Round 4.`\
 https://nytimes.com/athletic/5642696/2024/07/17/sf-giants-2024-draft-analysis/
-
-**How field conditions played a role in USWNT's Olympic send-off game**\
-`The U.S. played its final game before the Olympics on a patch-filled surface.`\
-https://nytimes.com/athletic/5642728/2024/07/17/uswnt-field-conditions-olympics/
 
