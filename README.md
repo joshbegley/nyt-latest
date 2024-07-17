@@ -1,11 +1,3 @@
-**Wrexham given boost as club granted academy upgrade**\
-`Wrexham have been granted Category Three academy status after being given extra time to bring facilities up to the required standard.`\
-https://nytimes.com/athletic/5643830/2024/07/17/wrexham-academy-upgrade/
-
-**Football’s silence over Argentina’s racist chanting is deafening and damning**\
-`At moments like this, the idea that football is serious about combating racism is very hard to take seriously`\
-https://nytimes.com/athletic/5643556/2024/07/17/argentina-chanting-football-silence/
-
 **What Would It Take to Deport Millions of Immigrants? The G.O.P. Plan, Explained**\
 `Donald Trump is calling for the biggest deportation program in American history. The costs and hurdles would be enormous.`\
 https://nytimes.com/2024/07/17/us/trump-immigration-republicans-explained.html
@@ -37,4 +29,12 @@ https://nytimes.com/2024/07/17/us/politics/adam-schiff-biden-drop-out-election.h
 **Manny Jacinto Turns to the Dark Side in ‘The Acolyte’**\
 `The actor discusses his complex role in the latest “Star Wars” series, which wrapped up its first season on Tuesday.`\
 https://nytimes.com/2024/07/17/arts/manny-jacinto-the-acolyte.html
+
+**‘Shogun’ Dominates Emmys With 25 Nominations**\
+`The historical drama has been renewed for “likely” two more seasons after being billed originally as a limited series.`\
+https://nytimes.com/2024/07/17/arts/television/shogun-emmy-nominations.html
+
+**This Easy, Summery Bean Salad Has a Cheesy Crunch**\
+`Melissa Clark swaps Parmesan crisps for croutons in this quick, hearty no-cook recipe.`\
+https://nytimes.com/2024/07/17/dining/easy-summer-salad.html
 
