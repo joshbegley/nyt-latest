@@ -1,3 +1,7 @@
+**“She was appointed the border czar.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/she-was-appointed-the-border-czar
+
 **Wedge Issue**\
 `The cheese state welcomed the Republican National Convention this week.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/republican-convention-wisconsin
