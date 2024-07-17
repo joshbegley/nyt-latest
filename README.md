@@ -1,3 +1,11 @@
+**‘Shogun’ Dominates Emmys With 25 Nominations**\
+`The historical drama has been renewed for “likely” two more seasons after being billed originally as a limited series.`\
+https://nytimes.com/2024/07/17/arts/television/shogun-emmy-nominations.html
+
+**This Easy, Summery Bean Salad Has a Cheesy Crunch**\
+`Melissa Clark swaps Parmesan crisps for croutons in this quick, hearty no-cook recipe.`\
+https://nytimes.com/2024/07/17/dining/easy-summer-salad.html
+
 **Why Pascal Vincent is a natural hire as Laval Rocket coach**\
 `Vincent had a difficult season as head coach in Columbus, but that shouldn't take away from his qualifications as an AHL coach.`\
 https://nytimes.com/athletic/5643685/2024/07/17/pascal-vincent-laval-rocket-coach/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/17/arts/television/unprisoned-review.html
 **‘The Gilded Age’ lands a nomination for best drama.**\
 `By Sarah Bahr`\
 https://nytimes.com/live/2024/07/17/arts/emmy-nominations/the-gilded-age-lands-a-nomination-for-best-drama
-
-**The Athletics' Toronto Maple Leafs coverage reader survey**\
-`Much like the Toronto Maple Leafs themselves, we&#8217;re always tinkering here at The Athletic, trying to improve our product for you.`\
-https://nytimes.com/athletic/5643682/2024/07/17/maple-leafs-coverage-reader-survey/
-
-**Flynn Downes to Southampton: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate Flynn Downes' move to Southampton`\
-https://nytimes.com/athletic/5639487/2024/07/17/flynn-downes-to-southampton-the-athletic-500-transfer-ratings/
 
