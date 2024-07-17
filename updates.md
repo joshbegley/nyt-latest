@@ -1,3 +1,7 @@
+**Mbappe will not be part of Real Madrid squad for pre-season tour of U.S.**\
+`Kylian Mbappe will not travel with the Real Madrid squad for their pre-season training camp in the United States.`\
+https://nytimes.com/athletic/5642791/2024/07/17/kylian-mbappe-real-madrid-us-tour/
+
 **Traces of Cyanide Found in Bangkok Hotel Room Where Six Died**\
 `The police said that one of the people found dead in the room on Tuesday was believed to have administered the poison.`\
 https://nytimes.com/2024/07/17/world/asia/bangkok-hotel-deaths-cyanide.html
