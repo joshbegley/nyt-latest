@@ -1,3 +1,11 @@
+**In a Porridge Box, an Ancient Treasure Mysteriously Arrives in Dublin**\
+`The National Museum of Ireland received two copper Bronze Age ax heads in the mail. Now it needs to figure out who found them.`\
+https://nytimes.com/2024/07/17/world/europe/ireland-axe-museum-mystery.html
+
+**Nick Saban talks broadcasting career, relationship with SEC coaches and golf game at media days**\
+`“I'm going to try to continue to be an advocate for the game from wherever I sit," Saban said.`\
+https://nytimes.com/athletic/5643524/2024/07/17/nick-saban-sec-media-days-retirement/
+
 **What Responsibility Do I Have to Ensure the Safety of an Illicit Cat?**\
 `The magazine’s Ethicist columnist on the duty one has to neighbors — and a forbidden pet in harm’s way.`\
 https://nytimes.com/2024/07/17/magazine/cat-mice-repellent-ethics.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/17/arts/rust-armorer-hannah-gutierrez-reed-appeal.ht
 **Duhatschek mailbag: Which NHL bottom feeder will be competitive first, concussions and more**\
 `Which bottom-feeder team has done the best job rebuilding? And should something be done to address violent contact to the head in the NHL?`\
 https://nytimes.com/athletic/5631812/2024/07/17/nhl-bottom-feeder-teams-concussions/
-
-**What if We Learn Nothing About the Man Who Shot Donald Trump?**\
-`America is a country where spectacular violence doesn’t require an explanation`\
-https://nytimes.com/2024/07/17/opinion/trump-guns-thomas-crooks.html
-
-**Why MAGA Nation Embraces Trump**\
-`Readers discuss a column by David Brooks about the former president’s appeal. Also: Robert Menendez’s conviction; Joe Biden’s dignity; spirituality in America.`\
-https://nytimes.com/2024/07/17/opinion/donald-trump-appeal-maga.html
 

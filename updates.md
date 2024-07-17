@@ -1,3 +1,7 @@
+**J.D. Vance’s A.I. Agenda: Reduce Regulation**\
+`Donald Trump’s vice-presidential pick has indicated he favors a hands-off approach to A.I. but also wants to increase scrutiny of the biggest tech firms in the field.`\
+https://nytimes.com/2024/07/17/technology/vance-ai-regulation.html
+
 **What Responsibility Do I Have to Ensure the Safety of an Illicit Cat?**\
 `The magazine’s Ethicist columnist on the duty one has to neighbors — and a forbidden pet in harm’s way.`\
 https://nytimes.com/2024/07/17/magazine/cat-mice-repellent-ethics.html
