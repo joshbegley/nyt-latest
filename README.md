@@ -1,3 +1,7 @@
+**Ipswich complete signing of goalkeeper Muric from Burnley**\
+`Ipswich Town have completed the signing of goalkeeper Arijanet Muric from Burnley.`\
+https://nytimes.com/athletic/5635430/2024/07/17/arijanet-muric-ipswich-transfer/
+
 **Israel says it has killed or captured around 14,000 combatants, but leaves considerable ambiguity.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/07/17/world/israel-gaza-war-hamas/israel-gaza-hamas-leaders-killed
