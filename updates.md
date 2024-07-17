@@ -1,3 +1,7 @@
+**Jon Hamm Is Back in the Emmys Saddle**\
+`His roles in “Fargo” and “The Morning Show” both earned nominations, the first for playing a blowhard sheriff, the second for an Elon Musk-like character.`\
+https://nytimes.com/2024/07/17/arts/television/jon-hamm-emmys-fargo-morning-show.html
+
 **Local Sniper Fired at Trump Gunman as Gunshots Rang Out, Official Says**\
 `The sniper did not fire the kill shot, but did “engage” the gunman, the Butler County district attorney said.`\
 https://nytimes.com/2024/07/17/us/local-sniper-trump-gunman.html
