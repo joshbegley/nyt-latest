@@ -1,3 +1,19 @@
+**Long Holes Look Intimidating, but It’s the Short Ones That Often Befuddle Golfers**\
+`At the British Open at Royal Troon, a short hole called the Postage Stamp has ended many title runs.`\
+https://nytimes.com/2024/07/17/sports/golf/british-open-royal-troon.html
+
+**Liverpool appoint Heitinga as assistant coach**\
+`Liverpool have confirmed the appointment of former Netherlands and Everton defender Johnny Heitinga as assistant coach.`\
+https://nytimes.com/athletic/5643438/2024/07/17/johnny-heitinga-liverpool-assistant-coach/
+
+**As Brian Harman Defends His Title, He Reflects on His Career**\
+`He won by six strokes last year, an accomplishment that showed him that he was capable of really big things.`\
+https://nytimes.com/2024/07/17/sports/golf/british-open-brian-harman.html
+
+**The Players to Watch at the British Open**\
+`This is the last major of the year, and it seems that every top golfer will be there. These five may surprise.`\
+https://nytimes.com/2024/07/17/sports/golf/british-open-players.html
+
 **Yamal takes No 19 shirt at Barcelona**\
 `Lamine Yamal will follow in the footsteps of Lionel Messi and wear the N0 19 shirt for Barcelona next season.`\
 https://nytimes.com/athletic/5628680/2024/07/17/lamine-yamal-barcelona-shirt-number/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/07/17/world/israel-gaza-war-hamas/netanyahu-calls-
 **Charles Opens Britain’s Parliament With ‘King’s Speech’**\
 `King Charles III formally opened the country’s Parliament and read the agenda for the newly elected Labour government.`\
 https://nytimes.com/video/world/europe/100000009576481/king-charles-speech-uk-government.html
-
-**Flash Flooding in Arkansas Leads to Rescues and Evacuations**\
-`Rainfall of 6 to 11 inches overnight prompted a rare flash flood emergency in Marion County, where water was rising inside homes and bridges were washed-out.`\
-https://nytimes.com/2024/07/17/us/arkansas-flooding-marion-county.html
-
-**Insulin: Drugs vs. Dividends**\
-`We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Oliver Bohon, age 17.`\
-https://nytimes.com/2024/07/17/learning/insulin-drugs-vs-dividends.html
-
-**Here’s the speaker lineup for Night 3 of the Republican convention.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/heres-the-speaker-lineup-for-night-3-of-the-republican-convention
-
-**Bird Flu Is Spreading. Why Aren’t More People Getting Tested?**\
-`Even as the H5N1 virus evolves, gaps remain in the nation’s contingency plans for human testing, scientists say.`\
-https://nytimes.com/2024/07/17/health/bird-flu-tests.html
 
