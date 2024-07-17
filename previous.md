@@ -1,3 +1,11 @@
+**Local Sniper Fired at Trump Gunman as Gunshots Rang Out, Official Says**\
+`The sniper did not fire the kill shot, but did “engage” the gunman, the Butler County district attorney said.`\
+https://nytimes.com/2024/07/17/us/local-sniper-trump-gunman.html
+
+**The Olympics Should Stand With Afghanistan’s Women Athletes**\
+`None of the women on the Olympic team live in Afghanistan, nor could they visit without risking their lives. They deserve places on the refugee team.`\
+https://nytimes.com/2024/07/17/opinion/afghanistan-women-olympics-taliban.html
+
 **J.D. Vance Once Warned Trump About Lying About Elections. That Was Then.**\
 `Once he ran for office, Mr. Vance, Donald J. Trump’s new running mate, embraced Mr. Trump’s false theories about voter fraud and elections.`\
 https://nytimes.com/2024/07/17/us/politics/donald-trump-jd-vance-republican-2024-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/17/fashion/renauld-white-dead.html
 **Four Tornadoes Touch Down in Upstate New York, Killing 1**\
 `The tornadoes swept through Western and Central New York during a week of extreme weather in the region. The worst of the damage was in the city of Rome, east of Syracuse.`\
 https://nytimes.com/2024/07/17/nyregion/tornado-rome-new-york.html
-
-**Deshaun Watson 'taking it one day at a time' as Browns training camp nears**\
-`Watson said he's "in a great state" and has been throwing every day while continuing to rehab from his shoulder surgery.`\
-https://nytimes.com/athletic/5643890/2024/07/17/browns-deshaun-watson-training-camp/
-
-**New Polling Shows a Large and Growing Majority Want Biden to Step Aside**\
-`The new survey also shows Americans, including a significant number of Democrats, lack confidence in the president’s ability to do the job and that a sizable share of Democrats think he can’t win.`\
-https://nytimes.com/2024/07/17/us/politics/biden-poll-democrats-drop-out.html
 

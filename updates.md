@@ -1,3 +1,11 @@
+**Local Sniper Fired at Trump Gunman as Gunshots Rang Out, Official Says**\
+`The sniper did not fire the kill shot, but did “engage” the gunman, the Butler County district attorney said.`\
+https://nytimes.com/2024/07/17/us/local-sniper-trump-gunman.html
+
+**The Olympics Should Stand With Afghanistan’s Women Athletes**\
+`None of the women on the Olympic team live in Afghanistan, nor could they visit without risking their lives. They deserve places on the refugee team.`\
+https://nytimes.com/2024/07/17/opinion/afghanistan-women-olympics-taliban.html
+
 **What’s in Our Queue? ‘Juan Luis Guerra’ and More**\
 `I’m an international correspondent at The New York Times covering culture, sports and news in Latin America. Here are five things I am enjoying recently. `\
 https://nytimes.com/interactive/2024/07/17/arts/editors-recommendations-juanluisguerra.html
