@@ -1,3 +1,7 @@
+**Traces of Cyanide Found in Bangkok Hotel Room Where Six Died**\
+`The police said that one of the people found dead in the room on Tuesday was believed to have administered the poison.`\
+https://nytimes.com/2024/07/17/world/asia/bangkok-hotel-deaths-cyanide.html
+
 **Scottie Scheffler's fame has found new heights. He's learning to deal with it**\
 `“It’s definitely been a bit trickier,” Scheffler said of a season that’s seen tabloid coverage of two firsts — child and arrest.`\
 https://nytimes.com/athletic/5641649/2024/07/17/scottie-scheffler-pga-tour-famous/
