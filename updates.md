@@ -1,3 +1,7 @@
+**A's take it 'old school' in their final draft in Oakland, select 18 college players**\
+`The A's had a throwback draft in their last season in Oakland, with a "Moneyball"-like 18 college picks out of 21 selections.`\
+https://nytimes.com/athletic/5642575/2024/07/16/oakland-athletics-2024-mlb-draft-breakdown/
+
 **Madeline Brame’s son was fatally stabbed in Harlem in 2018.**\
 `Ms. Brame said she switched her allegiance to the Republican Party because of the handling of her son’s murder case.`\
 https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/who-is-madeline-brame
