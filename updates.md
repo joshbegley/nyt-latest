@@ -1,3 +1,7 @@
+**At Moms for Liberty Event, Ron DeSantis Was a Throwback to an Earlier Time**\
+`At an event in Milwaukee on Tuesday, Gov. Ron DeSantis of Florida and the conservative parents’ rights group Moms for Liberty recalled what might have been in the 2024 presidential race.`\
+https://nytimes.com/2024/07/16/us/politics/desantis-moms-for-liberty-rnc.html
+
 **“We are facing an invasion on our southern border, not figuratively, a literal invasion. 11.5 million people have crossed our border illegally under Joe Biden.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/we-are-facing-an-invasion-on-our-southern-border-not-figuratively-a-literal-invasion-11-5-million-people-have-crossed-our-border
