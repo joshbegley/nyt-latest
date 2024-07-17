@@ -1,3 +1,7 @@
+**Judge Orders Boss Who Coughed at Employee During Pandemic to Pay Damages**\
+`The ruling by a tribunal judge in Britain highlighted the challenges and missteps businesses encountered during the early days of the pandemic.`\
+https://nytimes.com/2024/07/17/world/europe/covid-cough-fine-wales.html
+
 **R&A CEO concerned about golf's increasing prize money**\
 `Martin Slumbers believes prize money is straining the overall health of the game.`\
 https://nytimes.com/athletic/5643238/2024/07/17/open-championship-golf-prize-money-martin-slumbers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/17/style/lara-trump-brooch-rnc.html
 **The Lost Art of Mummy Smuggling**\
 `In “Women in the Valley of the Kings,” Kathleen Sheppard introduces us to a group of 19th-century archaeologists who changed the field forever.`\
 https://nytimes.com/2024/07/17/books/review/kathleen-sheppard-women-in-the-valley-of-the-kings.html
-
-**The Fed Under Trump 2.0**\
-`Donald Trump says he will not fire Jay Powell as chairman of the central bank if he is re-elected president, after threatening to do so. But whether the president even has the authority is open to question.`\
-https://nytimes.com/2024/07/17/business/dealbook/trump-powell-fed.html
 
