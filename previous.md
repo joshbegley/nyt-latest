@@ -1,3 +1,27 @@
+**Nikki Haley Says Trump Has Her ‘Strong Endorsement’ for President**\
+`Nikki Haley, who was initially not invited to the convention, received an invitation from Mr. Trump following Sunday’s assassination, and accepted it in the sake of “unity.”`\
+https://nytimes.com/video/us/politics/100000009576171/nikki-haley-trump-endorsement.html
+
+**NBA to turn to 'consideration of expansion' after media rights deal done**\
+`"We did approve this stage of media proposals," Silver said Tuesday, but he cautioned that the process is not done.`\
+https://nytimes.com/athletic/5642601/2024/07/16/nba-expansion-medial-rights-silver/
+
+**N.B.A. Board Backs TV Rights Deals, but Steps Remain**\
+`The agreements, set to begin after next season, could potentially pay the league about $76 billion over 11 years.`\
+https://nytimes.com/2024/07/16/business/nba-rights-disney-comcast-amazon.html
+
+**DeSantis celebrates Trump, who once viciously mocked him.**\
+`By Nicholas Nehamas`\
+https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/desantis-trump-rnc
+
+**“I’m proud to be the first and only governor in the country to kick Communist China off our farmland and out of my state.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/im-proud-to-be-the-first-and-only-governor-in-the-country-to-kick-communist-china-off-our-farmland-and-out-of-my-state
+
+**Shohei Ohtani goes deep, Jarren Duran delivers as AL resumes All-Star Game dominance**\
+`ARLINGTON, Texas — The pitching was relentless, and the game’s biggest name went deep, but it was a first-time All-Star from the Boston Red Sox who delivered the deciding blow in Tuesday’s All-Star Game.`\
+https://nytimes.com/athletic/5642615/2024/07/16/mlb-all-star-game-shohei-ohtani-jarren-duran/
+
 **Winston, Celebrity Gorilla at the San Diego Zoo Safari Park, Dies at 52**\
 `The great ape was euthanized because his health had declined, staff members said.`\
 https://nytimes.com/2024/07/16/us/winston-gorilla-san-diego-zoo.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5642575/2024/07/16/oakland-athletics-2024-mlb-draft
 **Madeline Brame’s son was fatally stabbed in Harlem in 2018.**\
 `Ms. Brame said she switched her allegiance to the Republican Party because of the handling of her son’s murder case.`\
 https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/who-is-madeline-brame
-
-**Brother of Rachel Morin, Mother Killed While Jogging, Speaks at R.N.C.**\
-`The family was attending the convention “to show the American people that we do have a crisis,” her half sister said earlier in the day.`\
-https://nytimes.com/2024/07/16/us/politics/rachel-morin-family-rnc.html
-
-**“Kamala had one job — one job — and that was to fix the border.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/kamala-had-one-job-one-job-and-that-was-to-fix-the-border
-
-**Jaime Lozano leaves role as Mexico's coach**\
-`Lozano ends his tenure with Mexico after 21 games and after Mexico’s disappointing performance at the 2024 Copa América.`\
-https://nytimes.com/athletic/5642490/2024/07/16/jaime-lozano-mexico-coach-out/
-
-**Meet the Red Sox 2024 draftees: Breaking down the 20 players selected**\
-`The Red Sox went in heavy on pitching in Days 2 and 3, and they were aiming for a particular type of pitcher.`\
-https://nytimes.com/athletic/5642036/2024/07/16/red-sox-draft-2024-analysis/
-
-**Reservoir Creator**\
-`Alex Eaton-Salners shows signs of life.`\
-https://nytimes.com/2024/07/16/crosswords/daily-puzzle-2024-07-16.html
-
-**Is That a Meteor Over Manhattan? New Yorkers Glance Up, Then Shrug.**\
-`It had already been a weird few weeks in New York. Then a fireball streaked across the sky.`\
-https://nytimes.com/2024/07/16/nyregion/meteor-manhattan-new-yorkers.html
 
