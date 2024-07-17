@@ -1,3 +1,7 @@
+**“We are facing an invasion on our southern border, not figuratively, a literal invasion. 11.5 million people have crossed our border illegally under Joe Biden.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/we-are-facing-an-invasion-on-our-southern-border-not-figuratively-a-literal-invasion-11-5-million-people-have-crossed-our-border
+
 **Broncos, Quinn Meinerz reach 4-year, $80 million contract**\
 `The deal, which pays Meinerz $20 million annually, makes him among the top five highest-paid players at his position.`\
 https://nytimes.com/athletic/5642465/2024/07/16/broncos-quinn-meinerz-contract/

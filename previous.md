@@ -1,3 +1,7 @@
+**“We are facing an invasion on our southern border, not figuratively, a literal invasion. 11.5 million people have crossed our border illegally under Joe Biden.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/we-are-facing-an-invasion-on-our-southern-border-not-figuratively-a-literal-invasion-11-5-million-people-have-crossed-our-border
+
 **Broncos, Quinn Meinerz reach 4-year, $80 million contract**\
 `The deal, which pays Meinerz $20 million annually, makes him among the top five highest-paid players at his position.`\
 https://nytimes.com/athletic/5642465/2024/07/16/broncos-quinn-meinerz-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009574831/our-reporter-on-the-gops-h
 **Rupert Murdoch Shows Up at Republican Convention**\
 `The media titan’s attendance in Milwaukee was another extraordinary turn in his contorted relationship with Donald J. Trump.`\
 https://nytimes.com/2024/07/16/business/media/rupert-murdoch-rnc.html
-
-**“And while pockets are pinched, Biden is trying to force you to buy an electric vehicle.”**\
-`By Angelo Fichera`\
-https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/and-while-pockets-are-pinched-biden-is-trying-to-force-you-to-buy-an-electric-vehicle
 
