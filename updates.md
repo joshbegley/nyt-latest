@@ -1,3 +1,15 @@
+**We Mapped Heat in 3 U.S Cities. Here’s Where the Sidewalks Are Over 130 Degrees.**\
+`Air temperature is just one measure of how heat affects cities and people. See how high surface temperatures, which bring additional risks, can get.`\
+https://nytimes.com/interactive/2024/07/17/climate/heat-map-phoenix-sacramento-portland.html
+
+**In a Porridge Box, an Ancient Treasure Mysteriously Arrives in Dublin**\
+`The National Museum of Ireland received two copper Bronze Age ax heads in the mail. Now it needs to figure out who found them.`\
+https://nytimes.com/2024/07/17/world/europe/ireland-axe-museum-mystery.html
+
+**Nick Saban talks broadcasting career, relationship with SEC coaches and golf game at media days**\
+`“I'm going to try to continue to be an advocate for the game from wherever I sit," Saban said.`\
+https://nytimes.com/athletic/5643524/2024/07/17/nick-saban-sec-media-days-retirement/
+
 **J.D. Vance’s A.I. Agenda: Reduce Regulation**\
 `Donald Trump’s vice-presidential pick has indicated he favors a hands-off approach to A.I. but also wants to increase scrutiny of the biggest tech firms in the field.`\
 https://nytimes.com/2024/07/17/technology/vance-ai-regulation.html
