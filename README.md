@@ -1,3 +1,15 @@
+**Yamal takes No 19 shirt at Barcelona**\
+`Lamine Yamal will follow in the footsteps of Lionel Messi and wear the N0 19 shirt for Barcelona next season.`\
+https://nytimes.com/athletic/5628680/2024/07/17/lamine-yamal-barcelona-shirt-number/
+
+**Emmy nominations land as TV business remains sluggish.**\
+`The ind`\
+https://nytimes.com/live/2024/07/17/arts/emmy-nominations/emmy-nominations-land-as-tv-business-remains-sluggish
+
+**Who Needs a Recipe to Cook a Hot Dog, Anyway?**\
+`Sometimes, the easiest dishes are the toughest to get just right. Ali Slagle, who develops recipes for Times Cooking, wants to help home chefs make fan-favorite foods ‘with feeling.’`\
+https://nytimes.com/2024/07/17/insider/who-needs-a-recipe-to-cook-a-hot-dog-anyway.html
+
 **What the Main Characters at the R.N.C. Say About Their Party**\
 `Donald Trump is the same man as he was in 1995.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/what-the-main-characters-at-the-rnc-say-about-their-party
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/heres-t
 **Bird Flu Is Spreading. Why Aren’t More People Getting Tested?**\
 `Even as the H5N1 virus evolves, gaps remain in the nation’s contingency plans for human testing, scientists say.`\
 https://nytimes.com/2024/07/17/health/bird-flu-tests.html
-
-**Paris mayor swims in Seine amid bacteria concerns before Olympics**\
-`Just last week high levels of E. coli bacteria continued to make the historic river unsafe for swimming.`\
-https://nytimes.com/athletic/5643203/2024/07/17/paris-mayor-anne-hidalgo-seine-river-olympics-swim/
-
-**‘My Spy the Eternal City’ Review: An Explosive Roman Holiday**\
-`The sequel stars a teenage Sophie (Chloe Coleman), who goes on a school trip to Italy with J.J. (Dave Bautista) as her burly chaperone.`\
-https://nytimes.com/2024/07/17/movies/my-spy-the-eternal-city-review.html
-
-**What to expect from Wednesday’s Emmy nominations.**\
-`The top nominees are announced at 11:30 a.m. ET. “Shogun” and “The Bear” are poised to have a big day.`\
-https://nytimes.com/live/2024/07/17/arts/emmy-nominations/emmy-award-nominations
 
