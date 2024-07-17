@@ -1,3 +1,7 @@
+**Biden vs. His Party**\
+`The Democratic Party’s Biden dilemma is unresolved, even as the momentum against him slows.`\
+https://nytimes.com/2024/07/17/briefing/biden-vs-the-democratic-party.html
+
 **Awoniyi to miss Forest's pre-season camp due to family matter**\
 `Taiwo Awoniyi will not be part of the Nottingham Forest squad that travels for a training camp in Spain.`\
 https://nytimes.com/athletic/5642951/2024/07/17/taiwo-awoniyi-forest-injury-pre-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5641703/2024/07/17/brandon-aiyuk-trade-options-49er
 **How do AFC pass rush groups stack up heading into the 2024 season?**\
 `Can anyone match the Browns' collection of talent up front? We take a look at how each AFC pass rush stands heading into training camps.`\
 https://nytimes.com/athletic/5558588/2024/07/17/afc-edge-rushers-epa-myles-garrett/
-
-**Patrick Mahomes challenges Chiefs offense as camp begins: 'It’s time to get better'**\
-`On the way to the Super Bowl, Mahomes acknowledges: "We really didn’t play football the way we wanted to play. ... It wasn’t fun."`\
-https://nytimes.com/athletic/5642241/2024/07/17/patrick-mahomes-chiefs-offense-challenge/
 
