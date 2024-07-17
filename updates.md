@@ -1,3 +1,7 @@
+**Broncos, Quinn Meinerz reach 4-year, $80 million contract**\
+`The deal, which pays Meinerz $20 million annually, makes him among the top five highest-paid players at his position.`\
+https://nytimes.com/athletic/5642465/2024/07/16/broncos-quinn-meinerz-contract/
+
 **“She even promoted a fund to release the criminals from jail. It doesn’t get reported much in our media. One criminal Kamala Harris freed in Minneapolis went on to murder a man in St. Paul, Minn.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/she-even-promoted-a-fund-to-release-the-criminals-from-jail-it-doesnt-get-reported-much-in-our-media-one-criminal-kamala-harris-
