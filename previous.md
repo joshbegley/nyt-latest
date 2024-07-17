@@ -1,3 +1,7 @@
+**Chelsea open proceedings against Fernandez after Argentina chant**\
+`Chelsea say they have opened &#8220;internal disciplinary proceedings&#8221; following a video posted online by Enzo Fernandez of him and his Argentina team-mates singing a chant about French players.`\
+https://nytimes.com/athletic/5642830/2024/07/17/enzo-fernandez-chelsea-argentina-france-chant/
+
 **Jon Stewart Razzes a ‘Daily Show’ Guest: Bill O’Reilly**\
 `The former Fox host, a longtime foil of the show, said he knew he had “no friends here.” “Well, not just here,” Stewart replied.`\
 https://nytimes.com/2024/07/17/arts/television/jon-stewart-bill-oreilly.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/17/crosswords/spelling-bee-forum.html
 **Inside Mbappe's Madrid presentation: Echoes of Ronaldo and warm welcome for family**\
 `Kylian Mbappe was finally unveiled as a Real Madrid player on Tuesday after a long-running saga`\
 https://nytimes.com/athletic/5642720/2024/07/17/kylian-mbappe-real-madrid-presentation/
-
-**U.K. Inflation Steady as Interest Rate Cuts Hang in the Balance**\
-`Consumer prices rose 2 percent in June from a year earlier, in line with the Bank of England’s target for the second month in a row.`\
-https://nytimes.com/2024/07/17/business/britain-inflation.html
 

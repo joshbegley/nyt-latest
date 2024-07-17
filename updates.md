@@ -1,3 +1,7 @@
+**Chelsea open proceedings against Fernandez after Argentina chant**\
+`Chelsea say they have opened &#8220;internal disciplinary proceedings&#8221; following a video posted online by Enzo Fernandez of him and his Argentina team-mates singing a chant about French players.`\
+https://nytimes.com/athletic/5642830/2024/07/17/enzo-fernandez-chelsea-argentina-france-chant/
+
 **Jon Stewart Razzes a ‘Daily Show’ Guest: Bill O’Reilly**\
 `The former Fox host, a longtime foil of the show, said he knew he had “no friends here.” “Well, not just here,” Stewart replied.`\
 https://nytimes.com/2024/07/17/arts/television/jon-stewart-bill-oreilly.html
