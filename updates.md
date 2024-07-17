@@ -1,3 +1,11 @@
+**Trump Fans Try Playing Nice, but ‘Fight, Fight’ Comes More Easily**\
+`Donald J. Trump signaled he wanted Republicans to tone it down after the attempt on his life. It’s a tough ask for his fired-up supporters at the Republican National Convention.`\
+https://nytimes.com/2024/07/17/us/politics/trump-republicans-rnc.html
+
+**Will Sarah Huckabee Sanders Be America’s First Woman President?**\
+`She might have the biggest head-start in a future race.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/sanders-trump-republicans
+
 **Premier League matches in U.S. in league's 'self-interest', says New Jersey governor**\
 `New Jersey governor Phil Murphy says he “would die” to bring Premier League matches to the United States, explaining that he believes it is in the competition’s “enlightened self-interest” to do so.`\
 https://nytimes.com/athletic/5641285/2024/07/17/premier-league-matches-america-phil-murphy/
