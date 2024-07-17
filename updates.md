@@ -1,3 +1,7 @@
+**Manny Jacinto Turns to the Dark Side in ‘The Acolyte’**\
+`The actor discusses his complex role in the latest “Star Wars” series, which wrapped up its first season on Tuesday.`\
+https://nytimes.com/2024/07/17/arts/manny-jacinto-the-acolyte.html
+
 **‘Shogun’ Dominates Emmys With 25 Nominations**\
 `The historical drama has been renewed for “likely” two more seasons after being billed originally as a limited series.`\
 https://nytimes.com/2024/07/17/arts/television/shogun-emmy-nominations.html
