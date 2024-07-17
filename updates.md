@@ -1,3 +1,7 @@
+**Anchovies Are Always a Good Idea**\
+`This diminutive fish has been making other things taste great for millenniums.`\
+https://nytimes.com/2024/07/17/opinion/anchovies-umami.html
+
 **Flash Flooding in Toronto Leads to Rescues and Power Outages**\
 `More than 167,000 customers lost power on Tuesday after severe thunderstorms.`\
 https://nytimes.com/2024/07/17/world/americas/toronto-canada-floods.html

@@ -1,3 +1,7 @@
+**Anchovies Are Always a Good Idea**\
+`This diminutive fish has been making other things taste great for millenniums.`\
+https://nytimes.com/2024/07/17/opinion/anchovies-umami.html
+
 **Takeaways From Day 2 of the R.N.C.: The Republican Unity Show**\
 `A roster of Donald J. Trump’s former rivals, including Nikki Haley, lined up to pledge their allegiance, and a party confident of its November fate drove home an aggressive law-and-order message.`\
 https://nytimes.com/2024/07/17/us/politics/rnc-trump-vivek-haley-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5614585/2024/07/17/premier-league-season-ticket-sur
 **Wednesday Briefing**\
 `President Biden’s growing isolation.`\
 https://nytimes.com/2024/07/17/briefing/biden-isolation-gaza-strikes.html
-
-**Morgan Lake interview: What it takes to break two metres and get an Olympic high jump medal in Paris**\
-`We spoke to Lake as she prepares to try to win Britain’s first Olympic medal in the women’s high jump since 1960`\
-https://nytimes.com/athletic/5634397/2024/07/17/morgan-lake-interview-olympics-high-jump/
 
