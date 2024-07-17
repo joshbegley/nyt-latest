@@ -1,3 +1,31 @@
+**Bucks' Gary Trent Jr. addition caps summer of quality under-the-radar moves**\
+`It may not have been splashy, but Milwaukee's depth chart looks better than it did at the end of last season.`\
+https://nytimes.com/athletic/5641144/2024/07/17/gary-trent-jr-bucks-nba-free-agency/
+
+**Struggles, frustration from Raiders’ Davante Adams captured on Netflix’s ‘Receiver’**\
+`Adams grew increasingly disappointed last season with the play of QB Jimmy Garoppolo, who was benched after coach Josh McDaniels’ firing.`\
+https://nytimes.com/athletic/5639931/2024/07/17/netflix-receiver-davante-adams-raiders/
+
+**Explaining the major changes to FPL in 2024-25 - and how to profit from them**\
+`Our experts explain how Fantasy Premier League has changed and how you can best take advantage`\
+https://nytimes.com/athletic/5642805/2024/07/17/fantasy-premier-league-rule-changes-explained/
+
+**Lucy Bronze to Chelsea is one of the surprises of the summer. Does the move make sense?**\
+`Now 32, the English right-back's switch from Barcelona to west London raises several questions`\
+https://nytimes.com/athletic/5618348/2024/07/17/lucy-bronze-chelsea-barcelona-transfer-column/
+
+**Chargers training camp storylines, part 1: Awaiting Joe Alt's first impression**\
+`It's hard to evaluate offensive line play until the pads come in training camp. Eyes will be locked on Alt, the No. 5 pick.`\
+https://nytimes.com/athletic/5639990/2024/07/17/chargers-training-camp-storylines-joe-alt/
+
+**‘No Fear, No Die’: Claire Denis’s Noir Comes Home to Roost**\
+`The French filmmaker’s confident third feature has been largely overlooked. Thankfully, a newly restored version is getting its first New York run since 1992.`\
+https://nytimes.com/2024/07/17/movies/no-fear-no-die-bam.html
+
+**What Gareth Southgate's exit means for England's Euro 2024 players - and those who might benefit**\
+`Squad audit: which players will hope to make a mark under England's new manager, and who among those ignored might be back in contention?`\
+https://nytimes.com/athletic/5638608/2024/07/17/england-southgate-players-future/
+
 **The Pulse: Which sport has the worst All-Star Game?**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5642143/2024/07/17/mlb-all-star-game-the-pulse-2/
@@ -9,32 +37,4 @@ https://nytimes.com/2024/07/17/world/australia/spade-toothed-whale-new-zealand.h
 **Biden vs. His Party**\
 `The Democratic Party’s Biden dilemma is unresolved, even as the momentum against him slows.`\
 https://nytimes.com/2024/07/17/briefing/biden-vs-the-democratic-party.html
-
-**Awoniyi to miss Forest's pre-season camp due to family matter**\
-`Taiwo Awoniyi will not be part of the Nottingham Forest squad that travels for a training camp in Spain.`\
-https://nytimes.com/athletic/5642951/2024/07/17/taiwo-awoniyi-forest-injury-pre-season/
-
-**First impressions of Cam Smith and the Cubs’ 2024 draft class**\
-`Get to know more about what the Cubs think of first-rounder Smith, Cole Mathis, Ronny Cruz and Ariel Armas.`\
-https://nytimes.com/athletic/5642287/2024/07/17/cubs-cam-smith-draft-class-analysis/
-
-**'I still got it': Can a healthy Cade McNamara make Iowa a CFP contender?**\
-`The quarterback was cleared full-go in early June and is oozing with swagger. His confidence has a foundation.`\
-https://nytimes.com/athletic/5642346/2024/07/17/iowa-cade-mcnamara-offense-quarterback/
-
-**Twins midseason top 20 prospects: Jenkins, Lee, Rodriguez lead farm system on the rise**\
-`One of MLB's most improved farm systems, the Twins now boast three consensus top-50 prospects and a total of six top-100 prospects.`\
-https://nytimes.com/athletic/5631408/2024/07/17/minnesota-twins-midseason-top-20-prospects/
-
-**What does success look like for Sean Payton in Year 2 with the Broncos?**\
-`Painting a clear vision at quarterback is instrumental to Denver's hopes of returning to a championship level.`\
-https://nytimes.com/athletic/5640742/2024/07/17/what-does-success-look-like-for-sean-payton-in-year-2-with-the-broncos/
-
-**How Stephon Castle is tailor-made for Pop, the Spurs present — and their future**\
-`"I know I’ll be able to learn a lot from him," says Castle of his new teammate Chris Paul. `\
-https://nytimes.com/athletic/5640962/2024/07/17/spurs-stephon-castle-gregg-popovich/
-
-**A Show of Allegiance to Trump, and Menendez Is Convicted**\
-`Plus, a U.S. crisis hotline answers 10 million calls.`\
-https://nytimes.com/2024/07/17/podcasts/dnc-trump-menendez-convicted.html
 
