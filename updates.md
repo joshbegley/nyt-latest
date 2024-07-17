@@ -1,3 +1,15 @@
+**How to Spot the Signs of Heat Exhaustion**\
+`There are simple ways to address it quickly. Here’s what to know.`\
+https://nytimes.com/2024/07/17/well/heat-exhaustion-symptoms-treatments.html
+
+**Gunman’s Phone Had Details About Both Trump and Biden, F.B.I. Officials Say**\
+`The disclosure, during private briefings to lawmakers in the House and Senate, offered more details from the early stages of the investigation into the attempted assassination of former President Donald J. Trump.`\
+https://nytimes.com/2024/07/17/us/trump-shooting-crooks-motive.html
+
+**Vance Will Introduce Himself to American Voters**\
+`Also, new details emerged about the attempted assassination of Donald Trump. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/07/17/briefing/jd-vance-speech-trump-investigation-emmy-nominations.html
+
 **Trump Fans Try Playing Nice, but ‘Fight, Fight’ Comes More Easily**\
 `Donald J. Trump signaled he wanted Republicans to tone it down after the attempt on his life. It’s a tough ask for his fired-up supporters at the Republican National Convention.`\
 https://nytimes.com/2024/07/17/us/politics/trump-republicans-rnc.html

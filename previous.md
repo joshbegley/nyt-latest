@@ -1,3 +1,15 @@
+**How to Spot the Signs of Heat Exhaustion**\
+`There are simple ways to address it quickly. Here’s what to know.`\
+https://nytimes.com/2024/07/17/well/heat-exhaustion-symptoms-treatments.html
+
+**Gunman’s Phone Had Details About Both Trump and Biden, F.B.I. Officials Say**\
+`The disclosure, during private briefings to lawmakers in the House and Senate, offered more details from the early stages of the investigation into the attempted assassination of former President Donald J. Trump.`\
+https://nytimes.com/2024/07/17/us/trump-shooting-crooks-motive.html
+
+**Vance Will Introduce Himself to American Voters**\
+`Also, new details emerged about the attempted assassination of Donald Trump. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/07/17/briefing/jd-vance-speech-trump-investigation-emmy-nominations.html
+
 **Trump Fans Try Playing Nice, but ‘Fight, Fight’ Comes More Easily**\
 `Donald J. Trump signaled he wanted Republicans to tone it down after the attempt on his life. It’s a tough ask for his fired-up supporters at the Republican National Convention.`\
 https://nytimes.com/2024/07/17/us/politics/trump-republicans-rnc.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/vance-m
 **Transcript: Ezra Klein Interviews Oren Cass**\
 `The July 17, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/07/17/podcasts/transcript-ezra-klein-interviews-oren-cass.html
-
-**Vaccines Significantly Reduce the Risk of Long Covid, Study Finds**\
-`In the first two years of the pandemic, the rate of long Covid was starkly lower among people who were vaccinated, researchers reported.`\
-https://nytimes.com/2024/07/17/health/long-covid-vaccines.html
-
-**Long Covid and Vaccination: What You Need to Know**\
-`A new study adds to evidence that the shots can reduce the chances of developing one of the most dreaded consequences of Covid.`\
-https://nytimes.com/article/long-covid-vaccine.html
-
-**Vance Set to Give Speech Tying Biography to Conservative Agenda**\
-`Senator J.D. Vance of Ohio will give his first address as the Republicans’ vice-presidential nominee tonight in Milwaukee.`\
-https://nytimes.com/2024/07/17/us/politics/jd-vance-speech-rnc.html
 
