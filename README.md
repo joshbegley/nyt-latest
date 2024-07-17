@@ -1,40 +1,40 @@
-**Trump Tells Taiwan to Expect a Higher Price Tag for U.S. Defense**\
-`Trump also accused Taiwan of sinking the U.S. semiconductor sector, signaling he wants a more transactional approach to shielding the island from China.`\
-https://nytimes.com/2024/07/17/world/asia/trump-taiwan-defense-chips.html
+**Awoniyi to miss Forest's pre-season camp due to family matter**\
+`Taiwo Awoniyi will not be part of the Nottingham Forest squad that travels for a training camp in Spain.`\
+https://nytimes.com/athletic/5642951/2024/07/17/taiwo-awoniyi-forest-injury-pre-season/
 
-**Here’s what to watch on Day 3 of the Republican Convention.**\
-`Senator J.D. Vance of Ohio will deliver a prime-time address to introduce himself as the party’s vice-presidential nominee. And don’t forget about Doug Burgum, his runner-up for running mate.`\
-https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/heres-what-to-watch-on-day-3-of-the-republican-convention
+**First impressions of Cam Smith and the Cubs’ 2024 draft class**\
+`Get to know more about what the Cubs think of first-rounder Smith, Cole Mathis, Ronny Cruz and Ariel Armas.`\
+https://nytimes.com/athletic/5642287/2024/07/17/cubs-cam-smith-draft-class-analysis/
 
-**Live Election Updates: J.D. Vance, at His First G.O.P. Convention, Takes a Starring Role**\
-`Donald J. Trump’s newly minted running mate will headline the third night of the Republican convention. Mr. Vance’s memoir about his upbringing in a poor family fueled his political rise.`\
-https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden
+**'I still got it': Can a healthy Cade McNamara make Iowa a CFP contender?**\
+`The quarterback was cleared full-go in early June and is oozing with swagger. His confidence has a foundation.`\
+https://nytimes.com/athletic/5642346/2024/07/17/iowa-cade-mcnamara-offense-quarterback/
 
-**Man Utd Women sign striker Terland from Brighton**\
-`Manchester United Women have completed the signing of striker Elisabeth Terland from Brighton &amp; Hove Albion.`\
-https://nytimes.com/athletic/5642917/2024/07/17/elisabeth-terland-man-united-transfer-news/
+**Twins midseason top 20 prospects: Jenkins, Lee, Rodriguez lead farm system on the rise**\
+`One of MLB's most improved farm systems, the Twins now boast three consensus top-50 prospects and a total of six top-100 prospects.`\
+https://nytimes.com/athletic/5631408/2024/07/17/minnesota-twins-midseason-top-20-prospects/
 
-**Projecting Ravens' 53-man roster and key decisions that await after the preseason**\
-`Will Baltimore keep two or three QBs, and how many undrafted rookies will impress in camp and make the final roster? `\
-https://nytimes.com/athletic/5639543/2024/07/17/ravens-53-man-roster-projection-2024/
+**What does success look like for Sean Payton in Year 2 with the Broncos?**\
+`Painting a clear vision at quarterback is instrumental to Denver's hopes of returning to a championship level.`\
+https://nytimes.com/athletic/5640742/2024/07/17/what-does-success-look-like-for-sean-payton-in-year-2-with-the-broncos/
 
-**What kind of Dynasty player are you? How to pick your College Football 25 team**\
-`After an 11-year wait for a college football video game, a crucial decision awaits: How big of a Dynasty mode challenge should you take on?`\
-https://nytimes.com/athletic/5639212/2024/07/17/college-football-25-game-dynasty-teams/
+**How Stephon Castle is tailor-made for Pop, the Spurs present — and their future**\
+`"I know I’ll be able to learn a lot from him," says Castle of his new teammate Chris Paul. `\
+https://nytimes.com/athletic/5640962/2024/07/17/spurs-stephon-castle-gregg-popovich/
 
-**Ukraine’s Devastated Energy Grid Battles a New Foe: A Sizzling Heat Wave**\
-`To prevent a collapse of the electricity system, crippled by months of Russian attacks, the authorities have imposed rolling blackouts. Experts say it’s a harbinger of what’s to come this winter.`\
-https://nytimes.com/2024/07/17/world/europe/ukraine-heat-wave-electricity.html
+**A Show of Allegiance to Trump, and Menendez Is Convicted**\
+`Plus, a U.S. crisis hotline answers 10 million calls.`\
+https://nytimes.com/2024/07/17/podcasts/dnc-trump-menendez-convicted.html
 
-**All-Star Game Weird & Wild: Skenes' start, Ohtani's homer and a final 'W' for Oakland**\
-`Four of the best hitters in baseball geared up to face the flamethrower, Ohtani again broke new ground and the Oakland A's left their mark.`\
-https://nytimes.com/athletic/5642801/2024/07/17/mlb-all-star-game-paul-skenes-ohtani-oakland-athletics/
+**Three options for the 49ers in the aftermath of Brandon Aiyuk's trade request**\
+`Any thought of trading Aiyuk would likely require a team to offer a player who could make the 49ers better in 2024.`\
+https://nytimes.com/athletic/5641703/2024/07/17/brandon-aiyuk-trade-options-49ers/
 
-**Yoro travels for Man Utd medical and to finalise terms ahead of proposed transfer**\
-`Leny Yoro is flying to the UK to undergo a medical and finalise personal terms as Manchester United push to secure a huge coup by signing the coveted centre-back from Lille.`\
-https://nytimes.com/athletic/5626457/2024/07/17/leny-yoro-manchester-united-transfer/
+**How do AFC pass rush groups stack up heading into the 2024 season?**\
+`Can anyone match the Browns' collection of talent up front? We take a look at how each AFC pass rush stands heading into training camps.`\
+https://nytimes.com/athletic/5558588/2024/07/17/afc-edge-rushers-epa-myles-garrett/
 
-**Lucy Bronze joins Chelsea on free transfer after Barcelona exit**\
-`Chelsea have signed England international Lucy Bronze on a free transfer.`\
-https://nytimes.com/athletic/5613592/2024/07/17/lucy-bronze-chelsea-transfer/
+**Patrick Mahomes challenges Chiefs offense as camp begins: 'It’s time to get better'**\
+`On the way to the Super Bowl, Mahomes acknowledges: "We really didn’t play football the way we wanted to play. ... It wasn’t fun."`\
+https://nytimes.com/athletic/5642241/2024/07/17/patrick-mahomes-chiefs-offense-challenge/
 
