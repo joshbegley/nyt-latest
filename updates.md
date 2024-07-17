@@ -1,3 +1,11 @@
+**‘Rust’ Armorer Asks for New Trial After Dismissal of Alec Baldwin’s Case**\
+`Lawyers for the armorer, Hannah Gutierrez-Reed, are seizing on a judge’s dramatic dismissal of the actor’s case to argue for her release from prison.`\
+https://nytimes.com/2024/07/17/arts/rust-armorer-hannah-gutierrez-reed-appeal.html
+
+**What if We Learn Nothing About the Man Who Shot Donald Trump?**\
+`America is a country where spectacular violence doesn’t require an explanation`\
+https://nytimes.com/2024/07/17/opinion/trump-guns-thomas-crooks.html
+
 **Why MAGA Nation Embraces Trump**\
 `Readers discuss a column by David Brooks about the former president’s appeal. Also: Robert Menendez’s conviction; Joe Biden’s dignity; spirituality in America.`\
 https://nytimes.com/2024/07/17/opinion/donald-trump-appeal-maga.html
