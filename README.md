@@ -1,3 +1,7 @@
+**Donald Trump, Poet?**\
+`Really?`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-poetry-book
+
 **J.D. Vance Has Written of His Struggles to Control His Anger**\
 `In his book “Hillbilly Elegy,” Mr. Vance chronicles the conflict and violence that shaped him and says his wife has helped him manage his emotions.`\
 https://nytimes.com/2024/07/17/us/jd-vance-anger-emotions.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/kamala-
 **The Briefing - Hearts 1 Tottenham 5: Archie Gray at centre-half, Maddison sharp, young forwards impress**\
 `Jay Harris breaks down the main talking points from Tottenham's friendly in Edinburgh on Wednesday `\
 https://nytimes.com/athletic/5643422/2024/07/17/hearts-tottenham-friendly-result-analysis/
-
-**‘The Buck Stops With Me’: Secret Service Director Soldiers On**\
-`Kimberly Cheatle returned in 2022 to lead the agency she had served for nearly 30 years. Now, an assassination attempt on former President Donald J. Trump has thrown her tenure into uncertainty.`\
-https://nytimes.com/2024/07/17/us/politics/kimberly-cheatle-secret-service.html
 
