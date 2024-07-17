@@ -1,6 +1,6 @@
 **Lara Trump, Woman in Black**\
 `At the Republican National Convention, Donald Trump’s daughter-in-law and co-chair of the party made it personal.`\
-https://nytimes.com/2024/07/17/style/lara-trump-rnc-speech.html
+https://nytimes.com/2024/07/17/style/lara-trump-brooch-rnc.html
 
 **The Lost Art of Mummy Smuggling**\
 `In “Women in the Valley of the Kings,” Kathleen Sheppard introduces us to a group of 19th-century archaeologists who changed the field forever.`\
