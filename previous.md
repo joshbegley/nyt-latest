@@ -1,3 +1,7 @@
+**Nikki Haley, What Happened to Your Principled Stand?**\
+`She’s just another politician, bending the knee.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/nikki-haley-what-happened-to-your-principled-stand
+
 **Nikki Haley Says Trump Has Her ‘Strong Endorsement’ for President**\
 `Nikki Haley, who was initially not invited to the convention, received an invitation from Mr. Trump following Sunday’s assassination, and accepted it in the sake of “unity.”`\
 https://nytimes.com/video/us/politics/100000009576171/nikki-haley-trump-endorsement.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/joe-biden-crea
 **A's take it 'old school' in their final draft in Oakland, select 18 college players**\
 `The A's 2024 selections were a throwback with a bit of a “Moneyball” feel.`\
 https://nytimes.com/athletic/5642575/2024/07/16/oakland-athletics-2024-mlb-draft-breakdown/
-
-**Madeline Brame’s son was fatally stabbed in Harlem in 2018.**\
-`Ms. Brame said she switched her allegiance to the Republican Party because of the handling of her son’s murder case.`\
-https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/who-is-madeline-brame
 
