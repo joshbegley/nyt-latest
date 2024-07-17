@@ -1,9 +1,21 @@
+**Elizabeth Debicki on Her Second Emmy Nomination for Princess Diana**\
+`The actor’s supporting actress nod was one of 18 nominations the show received for its final season. She called the honor “a really beautiful end” to her time on the show.`\
+https://nytimes.com/2024/07/17/arts/television/elizabeth-debicki-crown-emmy-nomination.html
+
+**Is Maddow in Milwaukee? No, That’s an LED Screen on MSNBC.**\
+`A production technique gave the impression that Rachel Maddow and other star anchors were reporting in Milwaukee, not from 30 Rockefeller Plaza.`\
+https://nytimes.com/2024/07/17/business/media/msnbc-rnc-coverage-led-screen.html
+
+**Chip Shares Tumble, Dragging Wall Street to Its Worst Day in Weeks**\
+`The S&P 500 was on track for its worst day since April. The Nasdaq composite was down by the most since late 2022.`\
+https://nytimes.com/2024/07/17/business/chip-stocks-market.html
+
 **Jon Hamm Is Back in the Emmys Saddle**\
 `His roles in “Fargo” and “The Morning Show” both earned nominations, the first for playing a blowhard sheriff, the second for an Elon Musk-like character.`\
 https://nytimes.com/2024/07/17/arts/television/jon-hamm-emmys-fargo-morning-show.html
 
-**Local Sniper Fired at Trump Gunman as Gunshots Rang Out, Official Says**\
-`The sniper did not fire the kill shot, but did “engage” the gunman, the Butler County district attorney said.`\
+**Local Officer Fired at Trump Gunman as Gunshots Rang Out, Official Says**\
+`The officer did not fire the kill shot, but did “engage” the gunman, the Butler County district attorney said.`\
 https://nytimes.com/2024/07/17/us/local-sniper-trump-gunman.html
 
 **The Olympics Should Stand With Afghanistan’s Women Athletes**\
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2024/07/17/arts/editors-recommendations-juanluis
 **Rubio’s Endorsement of Trump Underscores Reversal for Latino Leader**\
 `Many Hispanic Republicans watched with pride as the Florida senator spoke, but some expressed disappointment over his defense of Trump.`\
 https://nytimes.com/2024/07/17/us/politics/rubio-trump-latinos.html
-
-**Bucks' Khris Middleton recovering from 2 ankle surgeries: Sources**\
-`The three-time All-Star has already started light court work and is expected to be ready for the start of the season.`\
-https://nytimes.com/athletic/5643947/2024/07/17/khris-middleton-surgery-milwaukee-bucks/
-
-**Vance Honed Populist Views in the Senate, Auditioning for Trump**\
-`The Ohio Republican has used his brief tenure in the Senate to showcase his willingness to buck party orthodoxy and articulate the MAGA case.`\
-https://nytimes.com/2024/07/17/us/politics/vance-senate-trump.html
-
-**Renauld White, Debonair Model Who Broke Barriers, Dies at 80**\
-`The first Black American model to appear on the cover of GQ magazine, he was an avatar of male beauty for nearly half a century.`\
-https://nytimes.com/2024/07/17/fashion/renauld-white-dead.html
 
