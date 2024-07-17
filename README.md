@@ -1,3 +1,11 @@
+**An affordable housing solution hidden in plain sight: Libraries**\
+`Building subsidized housing in America relies on cheap land, and creative ideas`\
+https://nytimes.com/2024/07/17/headway/an-affordable-housing-solution-hidden-in-plain-sight-libraries.html
+
+**Take our quiz to see how well you know the Republicans’ host city.**\
+`By Mitch Smith and Julie Bosman`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/take-our-quiz-to-see-how-well-you-know-the-republicans-host-city
+
 **How to Spot the Signs of Heat Exhaustion**\
 `There are simple ways to address it quickly. Here’s what to know.`\
 https://nytimes.com/2024/07/17/well/heat-exhaustion-symptoms-treatments.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/17/arts/design/stegosaurus-auction-44-million.html
 **Where to Stream 2024 Emmy-Nominated Series: ‘Shogun,’ ‘The Bear’ and More**\
 `Nominations for the 76th Primetime Emmy Awards were announced on Wednesday. The Emmys ceremony is planned for Sept. 15, on ABC.`\
 https://nytimes.com/2024/07/17/arts/television/emmy-nominated-tv-shows-streaming.html
-
-**Vance makes his first fund-raising appearance as part of Trump’s ticket.**\
-`J.D. Vance, speaking to donors in Milwaukee, spent considerable time discussing his emotional response to the attempt made on Donald Trump’s life at a rally in Pennsylvania.`\
-https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/vance-makes-his-first-fund-raising-appearance-as-part-of-trumps-ticket
-
-**Transcript: Ezra Klein Interviews Oren Cass**\
-`The July 17, 2024, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2024/07/17/podcasts/transcript-ezra-klein-interviews-oren-cass.html
 
