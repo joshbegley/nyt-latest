@@ -1,3 +1,11 @@
+**Where to Stream 2024 Emmy-Nominated Series: ‘Shogun,’ ‘The Bear’ and More**\
+`Nominations for the 76th Primetime Emmy Awards were announced on Wednesday. The Emmys ceremony is planned for Sept. 15, on ABC.`\
+https://nytimes.com/2024/07/17/arts/television/emmy-nominated-tv-shows-streaming.html
+
+**Vance makes his first fund-raising appearance as part of Trump’s ticket.**\
+`J.D. Vance, speaking to donors in Milwaukee, spent considerable time discussing his emotional response to the attempt made on Donald Trump’s life at a rally in Pennsylvania.`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/vance-makes-his-first-fund-raising-appearance-as-part-of-trumps-ticket
+
 **Transcript: Ezra Klein Interviews Oren Cass**\
 `The July 17, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/07/17/podcasts/transcript-ezra-klein-interviews-oren-cass.html
