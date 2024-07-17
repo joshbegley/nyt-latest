@@ -1,3 +1,7 @@
+**Seamus Coleman, Everton's £60k 'phenomenon'**\
+`The 35-year-old right-back is heading 'home' to Sligo for pre-season - those who have helped at Everton reflect on 16 years on Merseyside`\
+https://nytimes.com/athletic/5639175/2024/07/17/seamus-coleman-everton-sligo/
+
 **England's manager search: Potter, Howe, Pochettino - and the FA's key decision-maker**\
 `How the FA reacted to Gareth Southgate's exit, the candidates now in the running and the man who will be key to the final decision…`\
 https://nytimes.com/athletic/5639017/2024/07/17/england-manager-search-potter-howe-pochettino/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5627094/2024/07/17/premier-league-best-transfer-win
 **Arsenal and England have a conundrum in common: Who is Rice's long-term midfield partner?**\
 `England struggled to find the right balance alongside Declan Rice and Arsenal's use of Jorginho and Thomas Partey is not a long-term option`\
 https://nytimes.com/athletic/5640816/2024/07/17/rice-england-arsenal-midfield/
-
-**'It's like a Premier League prep school': Should top clubs target more Championship players???**\
-`The Championship and EFL were the making of many of England’s best players this Euros. Gems can be found again for those looking hard enough`\
-https://nytimes.com/athletic/5640948/2024/07/17/premier-league-championship-transfers/
 
