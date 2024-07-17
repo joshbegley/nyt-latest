@@ -1,3 +1,7 @@
+**Wedge Issue**\
+`The cheese state welcomed the Republican National Convention this week.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/republican-convention-wisconsin
+
 **“Iran is waging a war in Israel and Gaza, with help from Joe Biden.”**\
 `By Julian E. Barnes`\
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/iran-is-waging-a-war-in-israel-and-gaza-with-help-from-joe-biden
