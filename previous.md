@@ -1,3 +1,11 @@
+**‘Baby Reindeer,’ the Surprise Netflix Hit, Nabs 11 Emmy Nods**\
+`The Netflix drama’s Emmy haul included nominations for the two stars and for best limited series.`\
+https://nytimes.com/2024/07/17/arts/television/baby-reindeer-emmy-nominations.html
+
+**Germany's Oberdorf to miss Paris Olympics with severe knee injury**\
+`Bayern Munich midfielder Lena Oberdorf will miss the 2024 Paris Olympics after sustaining a severe knee injury.`\
+https://nytimes.com/athletic/5643698/2024/07/17/lena-oberdorf-germany-injury/
+
 **‘Our Nation Is Not Well’: Voters Fear What Could Happen Next**\
 `There is growing anxiety that the country’s political divide is nearly beyond repair, and the assassination attempt on Donald Trump only made things worse.`\
 https://nytimes.com/2024/07/17/us/elections/voters-trump-assassination-attempt.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000009576712/paris-mayor-swim-seine.ht
 **Biden Says He’d Consider Dropping Out if a ‘Medical Condition’ Emerged**\
 `President Biden has said none of his doctors have told him he has a serious medical condition. But his debate performance last month raised questions about his health and acuity.`\
 https://nytimes.com/2024/07/17/us/politics/biden-health-election-drop-out.html
-
-**It’s Probably Too Late for Biden to Fix the Supreme Court**\
-`The ideas are good; the timing, not so much.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-supreme-court-reforms
-
-**Spanish court finds individual guilty of racially abusing Vinicius Jr, Rudiger**\
-`A Spanish court has found an individual guilty of racially abusing Real Madrid players Vinicius Junior and Antonio Rudiger online.`\
-https://nytimes.com/athletic/5643349/2024/07/17/real-madrid-vinicius-rudiger-racism/
 

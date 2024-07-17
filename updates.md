@@ -1,3 +1,11 @@
+**‘Baby Reindeer,’ the Surprise Netflix Hit, Nabs 11 Emmy Nods**\
+`The Netflix drama’s Emmy haul included nominations for the two stars and for best limited series.`\
+https://nytimes.com/2024/07/17/arts/television/baby-reindeer-emmy-nominations.html
+
+**Germany's Oberdorf to miss Paris Olympics with severe knee injury**\
+`Bayern Munich midfielder Lena Oberdorf will miss the 2024 Paris Olympics after sustaining a severe knee injury.`\
+https://nytimes.com/athletic/5643698/2024/07/17/lena-oberdorf-germany-injury/
+
 **‘Our Nation Is Not Well’: Voters Fear What Could Happen Next**\
 `There is growing anxiety that the country’s political divide is nearly beyond repair, and the assassination attempt on Donald Trump only made things worse.`\
 https://nytimes.com/2024/07/17/us/elections/voters-trump-assassination-attempt.html
