@@ -1,3 +1,7 @@
+**Trump Tells Taiwan to Expect a Higher Price Tag for U.S. Defense**\
+`Trump also accused Taiwan of sinking the U.S. semiconductor sector, signaling he wants a more transactional approach to shielding the island from China.`\
+https://nytimes.com/2024/07/17/world/asia/trump-taiwan-defense-chips.html
+
 **Here’s what to watch on Day 3 of the Republican Convention.**\
 `Senator J.D. Vance of Ohio will deliver a prime-time address to introduce himself as the party’s vice-presidential nominee. And don’t forget about Doug Burgum, his runner-up for running mate.`\
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/heres-what-to-watch-on-day-3-of-the-republican-convention
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5626457/2024/07/17/leny-yoro-manchester-united-tran
 **Lucy Bronze joins Chelsea on free transfer after Barcelona exit**\
 `Chelsea have signed England international Lucy Bronze on a free transfer.`\
 https://nytimes.com/athletic/5613592/2024/07/17/lucy-bronze-chelsea-transfer/
-
-**Biden Looks to Tackle 3 Big Weaknesses as He Courts Latinos in Nevada**\
-`The president plans to promote his economic and immigration policies as he tries to re-energize his campaign in the battleground state.`\
-https://nytimes.com/2024/07/17/us/politics/biden-nevada-hispanics-latinos.html
 
