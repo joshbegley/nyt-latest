@@ -1,3 +1,11 @@
+**Yoro travels for Man Utd medical and to finalise terms ahead of proposed transfer**\
+`Leny Yoro is flying to the UK to undergo a medical and finalise personal terms as Manchester United push to secure a huge coup by signing the coveted centre-back from Lille.`\
+https://nytimes.com/athletic/5626457/2024/07/17/leny-yoro-manchester-united-transfer/
+
+**Lucy Bronze joins Chelsea on free transfer after Barcelona exit**\
+`Chelsea have signed England international Lucy Bronze on a free transfer.`\
+https://nytimes.com/athletic/5613592/2024/07/17/lucy-bronze-chelsea-transfer/
+
 **Biden Looks to Tackle 3 Big Weaknesses as He Courts Latinos in Nevada**\
 `The president plans to promote his economic and immigration policies as he tries to re-energize his campaign in the battleground state.`\
 https://nytimes.com/2024/07/17/us/politics/biden-nevada-hispanics-latinos.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/17/arts/dance/aint-done-bad-review.html
 **‘Memory Saved Us’: How France Blocked the Far Right**\
 `The French had a far-right government before, one that collaborated with the Nazis. When casting ballots even today, that is not an easy thing to forget.`\
 https://nytimes.com/2024/07/17/world/europe/france-left-voters-far-right.html
-
-**Democrats Need Their Own Project 2025**\
-`“Finish the job” is not going to do it.`\
-https://nytimes.com/2024/07/17/opinion/democrats-2025-election.html
-
-**$400,000 Homes in Oklahoma, Alabama and Nebraska**\
-`A Tudor Revival home in Oklahoma City, a two-bedroom condominium in a converted 1869 warehouse in Mobile and a 1915 American Foursquare house in Omaha.`\
-https://nytimes.com/2024/07/17/realestate/400000-dollar-homes-oklahoma-alabama-nebraska.html
 

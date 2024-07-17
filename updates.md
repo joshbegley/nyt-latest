@@ -1,3 +1,11 @@
+**Yoro travels for Man Utd medical and to finalise terms ahead of proposed transfer**\
+`Leny Yoro is flying to the UK to undergo a medical and finalise personal terms as Manchester United push to secure a huge coup by signing the coveted centre-back from Lille.`\
+https://nytimes.com/athletic/5626457/2024/07/17/leny-yoro-manchester-united-transfer/
+
+**Lucy Bronze joins Chelsea on free transfer after Barcelona exit**\
+`Chelsea have signed England international Lucy Bronze on a free transfer.`\
+https://nytimes.com/athletic/5613592/2024/07/17/lucy-bronze-chelsea-transfer/
+
 **Biden Looks to Tackle 3 Big Weaknesses as He Courts Latinos in Nevada**\
 `The president plans to promote his economic and immigration policies as he tries to re-energize his campaign in the battleground state.`\
 https://nytimes.com/2024/07/17/us/politics/biden-nevada-hispanics-latinos.html
