@@ -1,3 +1,27 @@
+**Steph Curry, Team USA thwart Nikola Jokić, Serbia in Olympic exhibition game**\
+`Curry and Adebayo provided the aerial assault for the U.S. in an otherwise muscular, mighty display of dominance that became a 105-79 win.`\
+https://nytimes.com/athletic/5643891/2024/07/17/usa-serbia-olympics-exhibition-basketball-game-results/
+
+**Jessica Gunning of ‘Baby Reindeer’ Never Saw Martha as a ‘Baddie’**\
+`The actress, who plays a stalker in the hit Netflix series, said she has always believed her character is in many ways “quite charming and innocent.”`\
+https://nytimes.com/2024/07/17/arts/television/jessica-gunning-baby-reindeer-emmy-nomination.html
+
+**Halloween in July? Welcome to ‘Summerween.’**\
+`Spookiness meets the heat in a holiday now gaining traction online.`\
+https://nytimes.com/2024/07/17/style/halloween-summerween.html
+
+**Ryan Williams' coach and teammates praise him at SEC media days**\
+`There are high expectations for Williams entering his freshman season at Alabama.`\
+https://nytimes.com/athletic/5643826/2024/07/17/ryan-williams-alabama-football-sec-media-days/
+
+**Wrexham given boost as club granted academy upgrade**\
+`Wrexham have been granted Category Three academy status after being given extra time to bring facilities up to the required standard.`\
+https://nytimes.com/athletic/5643830/2024/07/17/wrexham-academy-upgrade/
+
+**Football’s silence over Argentina’s racist chanting is deafening and damning**\
+`At moments like this, the idea that football is serious about combating racism is very hard to take seriously`\
+https://nytimes.com/athletic/5643556/2024/07/17/argentina-chanting-football-silence/
+
 **What Would It Take to Deport Millions of Immigrants? The G.O.P. Plan, Explained**\
 `Donald Trump is calling for the biggest deportation program in American history. The costs and hurdles would be enormous.`\
 https://nytimes.com/2024/07/17/us/trump-immigration-republicans-explained.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/07/17/arts/television/emmy-nomination-snubs.html
 **HBO Falls to Third at the Emmys for the First Time Since 1996**\
 `HBO earned 91 Emmy nominations, trailing both Netflix, which took 107, and FX, which had 93.`\
 https://nytimes.com/2024/07/17/arts/television/hbo-emmys-nominations.html
-
-**The Longer Biden Is in Denial, ‘the Better It Is for Us’**\
-`A grim truth from one of Trump’s pollsters.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-biden-denial-polling
-
-**Renaming an Airport After Silvio Berlusconi Divides a Region in Italy**\
-`The decision to name Italy’s second-largest passenger hub after the divisive media mogul and politician, who died in 2023, has prompted outrage and protests.`\
-https://nytimes.com/2024/07/17/world/europe/silvio-berlusconi-airport-protests.html
-
-**Schiff Calls on Biden to Drop Out of Presidential Race**\
-`Representative Adam Schiff of California, a top House Democrat running for Senate, told The Los Angeles Times that he had serious concerns about whether President Biden could win.`\
-https://nytimes.com/2024/07/17/us/politics/adam-schiff-biden-drop-out-election.html
-
-**Manny Jacinto Turns to the Dark Side in ‘The Acolyte’**\
-`The actor discusses his complex role in the latest “Star Wars” series, which wrapped up its first season on Tuesday.`\
-https://nytimes.com/2024/07/17/arts/manny-jacinto-the-acolyte.html
-
-**‘Shogun’ Dominates Emmys With 25 Nominations**\
-`The historical drama has been renewed for “likely” two more seasons after being billed originally as a limited series.`\
-https://nytimes.com/2024/07/17/arts/television/shogun-emmy-nominations.html
-
-**This Easy, Summery Bean Salad Has a Cheesy Crunch**\
-`Melissa Clark swaps Parmesan crisps for croutons in this quick, hearty no-cook recipe.`\
-https://nytimes.com/2024/07/17/dining/easy-summer-salad.html
 
