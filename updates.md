@@ -1,3 +1,7 @@
+**A's take it 'old school' in their final draft in Oakland, select 18 college players**\
+`The A's 2024 selections were a throwback with a bit of a “Moneyball” feel.`\
+https://nytimes.com/athletic/5642575/2024/07/16/oakland-athletics-2024-mlb-draft-breakdown/
+
 **Winston, Celebrity Gorilla at the San Diego Zoo Safari Park, Dies at 52**\
 `The great ape was euthanized because his health had declined, staff members said.`\
 https://nytimes.com/2024/07/16/us/winston-gorilla-san-diego-zoo.html

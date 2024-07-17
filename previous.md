@@ -7,7 +7,7 @@ https://nytimes.com/2024/07/16/us/winston-gorilla-san-diego-zoo.html
 https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/joe-biden-created-an-app-to-let-illegals-schedule-their-arrival
 
 **A's take it 'old school' in their final draft in Oakland, select 18 college players**\
-`The A's had a throwback draft in their last season in Oakland, with a "Moneyball"-like 18 college picks out of 21 selections.`\
+`The A's 2024 selections were a throwback with a bit of a “Moneyball” feel.`\
 https://nytimes.com/athletic/5642575/2024/07/16/oakland-athletics-2024-mlb-draft-breakdown/
 
 **Madeline Brame’s son was fatally stabbed in Harlem in 2018.**\
