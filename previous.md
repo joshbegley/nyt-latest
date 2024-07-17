@@ -1,3 +1,15 @@
+**Donald Trump Jr. Is Building a ‘MAGA Bench.’ J.D. Vance Is Just the Start.**\
+`The former president’s son played a pivotal role in getting Mr. Vance on the G.O.P. ticket. Though he has never held elected office, he has emerged as a key enforcer of MAGA loyalty.`\
+https://nytimes.com/2024/07/17/us/politics/donald-trump-jr-convention.html
+
+**For These Nearly Extinct Crocodiles, Life Found a Way**\
+`The largest population of the endangered Siamese crocodiles this century hatched in Cambodia, a big moment for the conservation of a wild species once on the brink of extinction.`\
+https://nytimes.com/2024/07/17/climate/siamese-crocodile-extinct-hatchlings.html
+
+**Russia’s foreign minister welcomes J.D. Vance’s opposition to American aid for Ukraine.**\
+`By Eve Sampson`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/russias-foreign-minister-welcomes-jd-vances-opposition-to-american-aid-for-ukraine
+
 **A View from Milwaukee**\
 `The cheese state welcomed the Republican National Convention this week.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/republican-convention-wisconsin
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/17/us/politics/biden-covid-positive.html
 **In Extreme Heat, Do You Need More Electrolytes?**\
 `We asked experts when you need to replenish these essential minerals, and how best to do so.`\
 https://nytimes.com/2024/07/17/well/heat-hydration-electrolyes-drinks.html
-
-**A Collection for the ‘Summer Girl’**\
-`Fashion’s equivalent of the song of the summer is a skin-baring collaboration between J. Crew and the downtown New York brand Maryam Nassir Zadeh.`\
-https://nytimes.com/2024/07/17/style/j-crew-maryam-nassir-zadeh-summer-collection.html
-
-**The G.O.P. Convention Is No Landslide Win for Milwaukee Businesses**\
-`Many business owners said they were disappointed by a drop in customers during the Republican National Convention. Other places were packed.`\
-https://nytimes.com/2024/07/17/us/milwaukee-rnc-business.html
-
-**Navy Exonerates Black Sailors Unfairly Convicted After World War II Disaster**\
-`The men had objected to working until safety concerns were addressed following an explosion at a port near San Francisco that claimed hundreds of lives.`\
-https://nytimes.com/2024/07/17/us/politics/navy-disaster-black-sailors-exonerated.html
 

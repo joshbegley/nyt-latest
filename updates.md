@@ -1,3 +1,15 @@
+**Donald Trump Jr. Is Building a ‘MAGA Bench.’ J.D. Vance Is Just the Start.**\
+`The former president’s son played a pivotal role in getting Mr. Vance on the G.O.P. ticket. Though he has never held elected office, he has emerged as a key enforcer of MAGA loyalty.`\
+https://nytimes.com/2024/07/17/us/politics/donald-trump-jr-convention.html
+
+**For These Nearly Extinct Crocodiles, Life Found a Way**\
+`The largest population of the endangered Siamese crocodiles this century hatched in Cambodia, a big moment for the conservation of a wild species once on the brink of extinction.`\
+https://nytimes.com/2024/07/17/climate/siamese-crocodile-extinct-hatchlings.html
+
+**Russia’s foreign minister welcomes J.D. Vance’s opposition to American aid for Ukraine.**\
+`By Eve Sampson`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/russias-foreign-minister-welcomes-jd-vances-opposition-to-american-aid-for-ukraine
+
 **A View from Milwaukee**\
 `The cheese state welcomed the Republican National Convention this week.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/republican-convention-wisconsin
