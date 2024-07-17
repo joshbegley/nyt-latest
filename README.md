@@ -1,3 +1,7 @@
+**Ukraine’s Devastated Energy Grid Battles a New Foe: A Sizzling Heat Wave**\
+`To prevent a collapse of the electricity system, crippled by months of Russian attacks, the authorities have imposed rolling blackouts. Experts say it’s a harbinger of what’s to come this winter.`\
+https://nytimes.com/2024/07/17/world/europe/ukraine-heat-wave-electricity.html
+
 **Yoro travels for Man Utd medical and to finalise terms ahead of proposed transfer**\
 `Leny Yoro is flying to the UK to undergo a medical and finalise personal terms as Manchester United push to secure a huge coup by signing the coveted centre-back from Lille.`\
 https://nytimes.com/athletic/5626457/2024/07/17/leny-yoro-manchester-united-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/17/opinion/ezra-klein-podcast-oren-cass.html
 **Review: ‘Ain’t Done Bad’ Tells a Familiar Gay Story in Dance**\
 `Jakob Karr, from “So You Think You Can Dance?,” has conceived and choreographed a show set to songs by the country musician Orville Peck.`\
 https://nytimes.com/2024/07/17/arts/dance/aint-done-bad-review.html
-
-**‘Memory Saved Us’: How France Blocked the Far Right**\
-`The French had a far-right government before, one that collaborated with the Nazis. When casting ballots even today, that is not an easy thing to forget.`\
-https://nytimes.com/2024/07/17/world/europe/france-left-voters-far-right.html
 
