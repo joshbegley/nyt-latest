@@ -1,3 +1,7 @@
+**Wrexham eager for latest North American pre-season with lessons learned from last year**\
+`The Wrex Coast Tour sees games in Santa Barbara, Santa Clara and Vancouver for the men's team with the women's side playing three fixtures`\
+https://nytimes.com/athletic/5624055/2024/07/17/wrexham-us-canada-preseason-parkinson/
+
 **How field conditions played a role in USWNT's Olympic send-off game**\
 `The U.S. played its final game before the Olympics on a patch-filled surface.`\
 https://nytimes.com/athletic/5642728/2024/07/17/uswnt-field-conditions-olympics/

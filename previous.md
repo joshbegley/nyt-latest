@@ -14,6 +14,10 @@ https://nytimes.com/2024/07/17/us/politics/rnc-trump-vivek-haley-takeaways.html
 `More than 167,000 customers lost power on Tuesday after severe thunderstorms.`\
 https://nytimes.com/2024/07/17/world/americas/toronto-canada-floods.html
 
+**Wrexham eager for latest North American pre-season with lessons learned from last year**\
+`The Wrex Coast Tour sees games in Santa Barbara, Santa Clara and Vancouver for the men's team with the women's side playing three fixtures`\
+https://nytimes.com/athletic/5624055/2024/07/17/wrexham-us-canada-preseason-parkinson/
+
 **Seamus Coleman, Everton's £60k 'phenomenon'**\
 `The 35-year-old right-back is heading 'home' to Sligo for pre-season - those who have helped at Everton reflect on 16 years on Merseyside`\
 https://nytimes.com/athletic/5639175/2024/07/17/seamus-coleman-everton-sligo/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/17/us/rnc-fact-check
 **England have qualified for Euro 2025 - but are they stronger than two years ago?**\
 `Lionesses do not seem to have progressed much from the team that won Euro 2022. It wouldn't be a huge issue, were it not for Spain…`\
 https://nytimes.com/athletic/5641987/2024/07/17/england-euro-2025-squad/
-
-**Revealed: The results of our Premier League season ticket survey**\
-`Our survey reveals a clear trend in pricing - costs for fans are going up as clubs continue to search for new ways to maximise revenue`\
-https://nytimes.com/athletic/5614585/2024/07/17/premier-league-season-ticket-survey/
 
