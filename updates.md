@@ -1,3 +1,11 @@
+**New Polling Shows a Large and Growing Majority Want Biden to Step Aside**\
+`The new survey also shows Americans, including a significant number of Democrats, lack confidence in the president’s ability to do the job and that a sizable share of Democrats think he can’t win.`\
+https://nytimes.com/2024/07/17/us/politics/biden-poll-democrats-drop-out.html
+
+**Popcast (Deluxe): Ranking Every Taylor Swift Album, Worst to Best**\
+`Two longtime chroniclers of Swift’s career list their favorites — and least favorites — of the singer’s 11 original studio albums so far.`\
+https://nytimes.com/2024/07/17/arts/music/taylor-swift-album-rankings-popcast.html
+
 **Steph Curry, Team USA thwart Nikola Jokić, Serbia in Olympic exhibition game**\
 `Curry and Adebayo provided the aerial assault for the U.S. in an otherwise muscular, mighty display of dominance that became a 105-79 win.`\
 https://nytimes.com/athletic/5643891/2024/07/17/usa-serbia-olympics-exhibition-basketball-game-results/
