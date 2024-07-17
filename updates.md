@@ -1,3 +1,7 @@
+**Despite losing 2 picks, Giants added premium talent early in MLB Draft**\
+`The Giants didn't have a second- or third-round pick, but they see promise in Dakota Jordan, taken in Round 4.`\
+https://nytimes.com/athletic/5642696/2024/07/17/sf-giants-2024-draft-analysis/
+
 **Wrexham eager for latest North American pre-season with lessons learned from last year**\
 `The Wrex Coast Tour sees games in Santa Barbara, Santa Clara and Vancouver for the men's team with the women's side playing three fixtures`\
 https://nytimes.com/athletic/5624055/2024/07/17/wrexham-us-canada-preseason-parkinson/
