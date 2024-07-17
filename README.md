@@ -1,3 +1,23 @@
+**Scottie Scheffler's fame has found new heights. He's learning to deal with it**\
+`“It’s definitely been a bit trickier,” Scheffler said of a season that’s seen tabloid coverage of two firsts — child and arrest.`\
+https://nytimes.com/athletic/5641649/2024/07/17/scottie-scheffler-pga-tour-famous/
+
+**Open Championship analysis: 10 notes to know on Scheffler, DeChambeau, more**\
+`Scores have traditionally been low at Royal Troon — each of the last four winners here did so with a score of double-digits under par.`\
+https://nytimes.com/athletic/5641912/2024/07/17/open-championship-analysis-scheffler-dechambeau/
+
+**New York City Tenants Are Entitled to Heat. What About Air-Conditioning?**\
+`Landlords have to keep tenants warm in the winter, but can leave them sweating in the summer. A city councilman wants to change that.`\
+https://nytimes.com/2024/07/17/nyregion/new-york-city-air-conditioners.html
+
+**Branded a Felon, Menendez Sees His Political Future Fast Evaporating**\
+`Senator Robert Menendez, a New Jersey Democrat, was found guilty of bribery and corruption. Leaders in his party are pressuring him to resign.`\
+https://nytimes.com/2024/07/17/nyregion/robert-menendez-bribery-conviction-future.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/17/crosswords/spelling-bee-forum.html
+
 **Inside Mbappe's Madrid presentation: Echoes of Ronaldo and warm welcome for family**\
 `Kylian Mbappe was finally unveiled as a Real Madrid player on Tuesday after a long-running saga`\
 https://nytimes.com/athletic/5642720/2024/07/17/kylian-mbappe-real-madrid-presentation/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5642728/2024/07/17/uswnt-field-conditions-olympics/
 **Anchovies Are Always a Good Idea**\
 `This diminutive fish has been making other things taste great for millenniums.`\
 https://nytimes.com/2024/07/17/opinion/anchovies-umami.html
-
-**Takeaways From Day 2 of the R.N.C.: The Republican Unity Show**\
-`A roster of Donald J. Trump’s former rivals, including Nikki Haley, lined up to pledge their allegiance, and a party confident of its November fate drove home an aggressive law-and-order message.`\
-https://nytimes.com/2024/07/17/us/politics/rnc-trump-vivek-haley-takeaways.html
-
-**Flash Flooding in Toronto Leads to Rescues and Power Outages**\
-`More than 167,000 customers lost power on Tuesday after severe thunderstorms.`\
-https://nytimes.com/2024/07/17/world/americas/toronto-canada-floods.html
-
-**Wrexham eager for latest North American pre-season with lessons learned from last year**\
-`The Wrex Coast Tour sees games in Santa Barbara, Santa Clara and Vancouver for the men's team with the women's side playing three fixtures`\
-https://nytimes.com/athletic/5624055/2024/07/17/wrexham-us-canada-preseason-parkinson/
-
-**Seamus Coleman, Everton's £60k 'phenomenon'**\
-`The 35-year-old right-back is heading 'home' to Sligo for pre-season - those who have helped at Everton reflect on 16 years on Merseyside`\
-https://nytimes.com/athletic/5639175/2024/07/17/seamus-coleman-everton-sligo/
-
-**England's manager search: Potter, Howe, Pochettino - and the FA's key decision-maker**\
-`How the FA reacted to Gareth Southgate's exit, the candidates now in the running and the man who will be key to the final decision…`\
-https://nytimes.com/athletic/5639017/2024/07/17/england-manager-search-potter-howe-pochettino/
 
