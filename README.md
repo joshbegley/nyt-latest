@@ -1,3 +1,7 @@
+**HBO Falls to Third at the Emmys for the First Time Since 1996**\
+`HBO earned 91 Emmy nominations, trailing both Netflix, which took 107, and FX, which had 93.`\
+https://nytimes.com/2024/07/17/arts/television/hbo-emmys-nominations.html
+
 **The Longer Biden Is in Denial, ‘the Better It Is for Us’**\
 `A grim truth from one of Trump’s pollsters.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-biden-denial-polling
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/17/sports/tour-de-france-pogacar-vingegaard.html
 **‘Baby Reindeer,’ the Surprise Netflix Hit, Nabs 11 Emmy Nods**\
 `The Netflix drama’s Emmy haul included nominations for the two stars and for best limited series.`\
 https://nytimes.com/2024/07/17/arts/television/baby-reindeer-emmy-nominations.html
-
-**Germany's Oberdorf to miss Paris Olympics with severe knee injury**\
-`Bayern Munich midfielder Lena Oberdorf will miss the 2024 Paris Olympics after sustaining a severe knee injury.`\
-https://nytimes.com/athletic/5643698/2024/07/17/lena-oberdorf-germany-injury/
 
