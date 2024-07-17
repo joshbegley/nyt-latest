@@ -1,3 +1,7 @@
+**Broncos, Quinn Meinerz reach 4-year, $80 million contract**\
+`The deal, which pays Meinerz $20 million annually, makes him among the top five highest-paid players at his position.`\
+https://nytimes.com/athletic/5642465/2024/07/16/broncos-quinn-meinerz-contract/
+
 **“She even promoted a fund to release the criminals from jail. It doesn’t get reported much in our media. One criminal Kamala Harris freed in Minneapolis went on to murder a man in St. Paul, Minn.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/she-even-promoted-a-fund-to-release-the-criminals-from-jail-it-doesnt-get-reported-much-in-our-media-one-criminal-kamala-harris-
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/16/business/media/rupert-murdoch-rnc.html
 **“And while pockets are pinched, Biden is trying to force you to buy an electric vehicle.”**\
 `By Angelo Fichera`\
 https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/and-while-pockets-are-pinched-biden-is-trying-to-force-you-to-buy-an-electric-vehicle
-
-**“Just last week, Ruben Gallego voted to let the millions of people who poured into our country illegally cast a ballot in this upcoming election.”**\
-`By Angelo Fichera`\
-https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/just-last-week-ruben-gallego-voted-to-let-the-millions-of-people-who-poured-into-our-country-illegally-cast-a-ballot-in-this-upc
 
