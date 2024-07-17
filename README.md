@@ -1,3 +1,7 @@
+**What Would It Take to Deport Millions of Immigrants? The G.O.P. Plan, Explained**\
+`Donald Trump is calling for the biggest deportation program in American history. The costs and hurdles would be enormous.`\
+https://nytimes.com/2024/07/17/us/trump-immigration-republicans-explained.html
+
 **Peter Navarro, Trump Trade Adviser, Released From Prison and Headed to the R.N.C.**\
 `The former Trump administration official completed a four-month sentence for contempt of Congress and will speak at the Republican National Convention on Wednesday.`\
 https://nytimes.com/2024/07/17/us/politics/peter-navarro-prison-convention.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/17/arts/television/shogun-emmy-nominations.html
 **This Easy, Summery Bean Salad Has a Cheesy Crunch**\
 `Melissa Clark swaps Parmesan crisps for croutons in this quick, hearty no-cook recipe.`\
 https://nytimes.com/2024/07/17/dining/easy-summer-salad.html
-
-**Why Pascal Vincent is a natural hire as Laval Rocket coach**\
-`Vincent had a difficult season as head coach in Columbus, but that shouldn't take away from his qualifications as an AHL coach.`\
-https://nytimes.com/athletic/5643685/2024/07/17/pascal-vincent-laval-rocket-coach/
 
