@@ -1,3 +1,7 @@
+**Juventus goalkeeper Szczesny’s move to Al Nassr breaks down**\
+`Juventus goalkeeper Wojciech Szczesny’s move to Saudi Pro League side Al Nassr has broken down.`\
+https://nytimes.com/athletic/5643212/2024/07/17/szczesny-juventus-saudi-transfer/
+
 **Mayor of Paris Takes an Olympian Plunge in a Beautified Seine**\
 `Anne Hidalgo swam in the cleaned-up waters of the capital’s river, fulfilling a promise that has become a symbol of the Olympic Games that start this month.`\
 https://nytimes.com/2024/07/17/world/europe/paris-mayor-swims-seine-hidalgo-olympics.html
