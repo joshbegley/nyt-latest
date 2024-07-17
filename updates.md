@@ -1,3 +1,7 @@
+**A View From Milwaukee**\
+`The cheese state welcomed the Republican National Convention this week.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/republican-convention-wisconsin
+
 **Donald Trump Jr. Is Building a ‘MAGA Bench.’ J.D. Vance Is Just the Start.**\
 `The former president’s son played a pivotal role in getting Mr. Vance on the G.O.P. ticket. Though he has never held elected office, he has emerged as a key enforcer of MAGA loyalty.`\
 https://nytimes.com/2024/07/17/us/politics/donald-trump-jr-convention.html

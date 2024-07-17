@@ -10,7 +10,7 @@ https://nytimes.com/2024/07/17/climate/siamese-crocodile-extinct-hatchlings.html
 `By Eve Sampson`\
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/russias-foreign-minister-welcomes-jd-vances-opposition-to-american-aid-for-ukraine
 
-**A View from Milwaukee**\
+**A View From Milwaukee**\
 `The cheese state welcomed the Republican National Convention this week.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/republican-convention-wisconsin
 
