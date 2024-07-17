@@ -1,3 +1,11 @@
+**How Does a Dressing Room Get Into Character?**\
+`The actor Krysta Rodriguez has found an avid audience for her new side business: creating dramatic interiors.`\
+https://nytimes.com/2024/07/17/t-magazine/krysta-rodriguez-dressing-room-design.html
+
+**Monte Kiffin, N.F.L. Defensive Coaching Mastermind, Dies at 84**\
+`He distinguished himself as the defensive coordinator of the Tampa Bay Buccaneers, who rode his game calling to an easy victory in Super Bowl XXXVII in 2003.`\
+https://nytimes.com/2024/07/17/sports/monte-kiffin-dead.html
+
 **Benj Pasek and Justin Paul Approach EGOT after ‘Only Murders’ Nod**\
 `The hit Hulu comedy moved the action to Broadway for Season 3, which in turn helped the songwriting duo inch closer to joining the exclusive club.`\
 https://nytimes.com/2024/07/17/arts/television/benj-pasek-justin-paul-egot.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/17/us/trump-shooting-investigations.html
 **Daniel Craig, Is That You Under Those Bangs?**\
 `A recent ad campaign for Loewe features the former James Bond as he has never been seen.`\
 https://nytimes.com/2024/07/17/style/daniel-craig-loewe-jonathan-anderson.html
-
-**What Would Persuade Biden to Step Aside? Here’s What He’s Said.**\
-`The president has insisted he is committed to running, but his list of scenarios in which he might reconsider has grown.`\
-https://nytimes.com/2024/07/17/us/politics/biden-drop-out-why.html
-
-**Why the Pentagon Is Warning That ISIS Attacks Could Double This Year**\
-`Attacks claimed by ISIS in Iraq and Syria are on track to double last year’s total, the U.S. military said in a report, as the terrorist group’s affiliates become increasingly deadly elsewhere around the world.`\
-https://nytimes.com/2024/07/17/world/middleeast/isis-attacks-iraq-syria.html
 
