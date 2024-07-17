@@ -1,3 +1,15 @@
+**Daniel Craig, Is That You Under Those Bangs?**\
+`A recent ad campaign for Loewe features the former James Bond as he has never been seen.`\
+https://nytimes.com/2024/07/17/style/daniel-craig-is-that-you-under-those-bangs.html
+
+**What Would Persuade Biden to Step Aside? Here’s What He’s Said.**\
+`The president has insisted he is committed to running, but his list of scenarios in which he might reconsider has grown.`\
+https://nytimes.com/2024/07/17/us/politics/biden-drop-out-why.html
+
+**Why the Pentagon Is Warning That ISIS Attacks Could Double This Year**\
+`Attacks claimed by ISIS in Iraq and Syria are on track to double last year’s total, the U.S. military said in a report, as the terrorist group’s affiliates become increasingly deadly elsewhere around the world.`\
+https://nytimes.com/2024/07/17/world/middleeast/isis-attacks-iraq-syria.html
+
 **Republicans Spread Misinformation About the Fentanyl Crisis**\
 `Many Republicans’ anger over the issue is misplaced.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/fentanyl-border-immigrants
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/17/arts/television/elizabeth-debicki-crown-emmy-nomi
 **Is Maddow in Milwaukee? No, That’s an LED Screen on MSNBC.**\
 `A production technique gave the impression that Rachel Maddow and other star anchors were reporting in Milwaukee, not from 30 Rockefeller Plaza.`\
 https://nytimes.com/2024/07/17/business/media/msnbc-rnc-coverage-led-screen.html
-
-**Chip Shares Tumble, Dragging Wall Street to Its Worst Day in Weeks**\
-`The S&P 500 was on track for its worst day since April. The Nasdaq composite was down by the most since late 2022.`\
-https://nytimes.com/2024/07/17/business/stock-market-today.html
-
-**Jon Hamm Is Back in the Emmys Saddle**\
-`His roles in “Fargo” and “The Morning Show” both earned nominations, the first for playing a blowhard sheriff, the second for an Elon Musk-like character.`\
-https://nytimes.com/2024/07/17/arts/television/jon-hamm-emmys-fargo-morning-show.html
-
-**Local Officer Fired at Trump Gunman as Gunshots Rang Out, Official Says**\
-`The officer did not fire the kill shot, but did “engage” the gunman, the Butler County district attorney said.`\
-https://nytimes.com/2024/07/17/us/local-sniper-trump-gunman.html
 
