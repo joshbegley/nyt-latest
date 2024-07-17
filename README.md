@@ -1,3 +1,11 @@
+**Trump Fans Try Playing Nice, but ‘Fight, Fight’ Comes More Easily**\
+`Donald J. Trump signaled he wanted Republicans to tone it down after the attempt on his life. It’s a tough ask for his fired-up supporters at the Republican National Convention.`\
+https://nytimes.com/2024/07/17/us/politics/trump-republicans-rnc.html
+
+**Will Sarah Huckabee Sanders Be America’s First Woman President?**\
+`She might have the biggest head-start in a future race.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/sanders-trump-republicans
+
 **Premier League matches in U.S. in league's 'self-interest', says New Jersey governor**\
 `New Jersey governor Phil Murphy says he “would die” to bring Premier League matches to the United States, explaining that he believes it is in the competition’s “enlightened self-interest” to do so.`\
 https://nytimes.com/athletic/5641285/2024/07/17/premier-league-matches-america-phil-murphy/
@@ -29,12 +37,4 @@ https://nytimes.com/article/long-covid-vaccine.html
 **Vance Set to Give Speech Tying Biography to Conservative Agenda**\
 `Senator J.D. Vance of Ohio will give his first address as the Republicans’ vice-presidential nominee tonight in Milwaukee.`\
 https://nytimes.com/2024/07/17/us/politics/jd-vance-speech-rnc.html
-
-**Thursday Briefing: J.D. Vance Takes the Stage**\
-`Plus, Israel estimates the toll on Hamas.`\
-https://nytimes.com/2024/07/17/briefing/jd-vance-rnc-israel.html
-
-**Donald Trump, Poet?**\
-`Really?`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-poetry-book
 
