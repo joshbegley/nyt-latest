@@ -1,3 +1,7 @@
+**Emerson: How good does Billy Napier have to be in Year 3 at Florida?**\
+`Should Florida be patient with Napier and look for stability, or does he need to show improvement for his job security?`\
+https://nytimes.com/athletic/5644116/2024/07/17/florida-football-billy-napier/
+
 **Harris condemns assassination attempt but says debate over election stakes must continue.**\
 `By Nicholas Nehamas`\
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/kamala-harris-michigan
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/fentanyl-border-immigrants
 **Dave Loggins, Who Wrote Hits for Himself and Others, Dies at 76**\
 `After tasting fame with “Please Come to Boston” in 1974, he became a major Nashville songwriter. He also wrote the theme to the Masters golf tournament.`\
 https://nytimes.com/2024/07/17/arts/music/dave-loggins-dead.html
-
-**Emmy Nominations: Our Critics on ‘The Bear,’ ‘Baby Reindeer’ and Delightful Surprises**\
-`The categories are more confusing than ever and worthy shows were left out, but this year’s nominations also included some thrilling picks.`\
-https://nytimes.com/2024/07/17/arts/television/emmy-nominations-critics-analysis.html
 
