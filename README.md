@@ -1,3 +1,15 @@
+**‘The Gilded Age’ lands a nomination for best drama.**\
+`By Sarah Bahr`\
+https://nytimes.com/live/2024/07/17/arts/emmy-nominations/the-gilded-age-lands-a-nomination-for-best-drama
+
+**The Athletics' Toronto Maple Leafs coverage reader survey**\
+`Much like the Toronto Maple Leafs themselves, we&#8217;re always tinkering here at The Athletic, trying to improve our product for you.`\
+https://nytimes.com/athletic/5643682/2024/07/17/maple-leafs-coverage-reader-survey/
+
+**Flynn Downes to Southampton: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Flynn Downes' move to Southampton`\
+https://nytimes.com/athletic/5639487/2024/07/17/flynn-downes-to-southampton-the-athletic-500-transfer-ratings/
+
 **Paris Mayor Swims in the Seine to Show It Is Clean Before the Olympics**\
 `Mayor Anne Hidalgo took a plunge in the Seine in an effort to show the river was clean enough to host several swimming events during the Paris Olympics.`\
 https://nytimes.com/video/world/europe/100000009576712/paris-mayor-swim-seine.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/17/arts/emmy-nominations/curb-your-enthusiasm-g
 **At the R.N.C., Americana Fashion Sparkles**\
 `Elephants, the color red and American flags are common sights.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/rnc-americana-fashion
-
-**Arne Slot faces a challenging pre-season as Liverpool await the cavalry's return**\
-`The new head coach is still without 11 senior players following Euro 2024 and the Copa and unable to work with most of his strongest line-up`\
-https://nytimes.com/athletic/5633308/2024/07/17/liverpool-slot-preseason-salah-euro2024-copa/
-
-**A Wildly Obscene Term’s Path to Mainstream Usage**\
-`When combined with innocuous acts, “rawdogging” has left its overtly sexual origins behind, just like many other dirty slang words of the past.`\
-https://nytimes.com/2024/07/17/style/rawdog-flights-term.html
-
-**Ten years on: Remembering the football fans who died in the MH17 plane crash**\
-`John Alder and Liam Sweeney were on their way to New Zealand to watch Newcastle play when their plane was shot down`\
-https://nytimes.com/athletic/5643008/2024/07/17/mh17-anniversary-football-fans-remembered/
 
