@@ -1,3 +1,7 @@
+**Schiff Calls on Biden to Drop Out of Presidential Race**\
+`Representative Adam Schiff of California, a top House Democrat running for Senate, told The Los Angeles Times that he had serious concerns about whether President Biden could win.`\
+https://nytimes.com/2024/07/17/us/politics/adam-schiff-biden-drop-out-election.html
+
 **Manny Jacinto Turns to the Dark Side in ‘The Acolyte’**\
 `The actor discusses his complex role in the latest “Star Wars” series, which wrapped up its first season on Tuesday.`\
 https://nytimes.com/2024/07/17/arts/manny-jacinto-the-acolyte.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/17/us/elections/voters-trump-assassination-attempt.h
 **Kings mailbag: Byfield's role, draft and prospects**\
 `The Kings need Byfield to play a major role. Also: Will Byfield wear a "C" someday?`\
 https://nytimes.com/athletic/5643616/2024/07/17/la-kings-quinton-byfield-captain/
-
-**‘UnPrisoned’ Review: Kerry Washington Handles Comedy, Too**\
-`The star of “Scandal” demonstrates her range in the Hulu series about an ex-con’s daughter and her relatable traumas.`\
-https://nytimes.com/2024/07/17/arts/television/unprisoned-review.html
 

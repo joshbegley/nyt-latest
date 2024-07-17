@@ -1,3 +1,7 @@
+**Schiff Calls on Biden to Drop Out of Presidential Race**\
+`Representative Adam Schiff of California, a top House Democrat running for Senate, told The Los Angeles Times that he had serious concerns about whether President Biden could win.`\
+https://nytimes.com/2024/07/17/us/politics/adam-schiff-biden-drop-out-election.html
+
 **Manny Jacinto Turns to the Dark Side in ‘The Acolyte’**\
 `The actor discusses his complex role in the latest “Star Wars” series, which wrapped up its first season on Tuesday.`\
 https://nytimes.com/2024/07/17/arts/manny-jacinto-the-acolyte.html
