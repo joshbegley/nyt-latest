@@ -1,3 +1,7 @@
+**While Republicans Put on a Show of Unity, Democrats Wrestle With Their Own Rift**\
+`The discontent with President Biden has not faded and tempers are fraying as he insists on staying in the race over the objections of some fellow Democrats who worry that he cannot win.`\
+https://nytimes.com/2024/07/17/us/politics/biden-democrats-rift.html
+
 **Biden Tests Positive for Covid**\
 `President Biden will “self-isolate and will continue to carry out all of his duties fully during that time,” a White House spokeswoman said.`\
 https://nytimes.com/2024/07/17/us/politics/biden-covid-positive.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/17/well/heat-exhaustion-symptoms-treatments.html
 **Gunman’s Phone Had Details About Both Trump and Biden, F.B.I. Officials Say**\
 `The disclosure, during private briefings to lawmakers in the House and Senate, offered more details from the early stages of the investigation into the attempted assassination of former President Donald J. Trump.`\
 https://nytimes.com/2024/07/17/us/trump-shooting-crooks-motive.html
-
-**Vance Will Introduce Himself to American Voters**\
-`Also, new details emerged about the attempted assassination of Donald Trump. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/07/17/briefing/jd-vance-speech-trump-investigation-emmy-nominations.html
 
