@@ -1,3 +1,7 @@
+**What’s in Our Queue? ‘Juan Luis Guerra’ and More**\
+`I’m an international correspondent at The New York Times covering culture, sports and news in Latin America. Here are five things I am enjoying recently. `\
+https://nytimes.com/interactive/2024/07/17/arts/editors-recommendations-juanluisguerra.html
+
 **J.D. Vance Once Warned Trump About Lying About Elections. That Was Then.**\
 `Once he ran for office, Mr. Vance, Donald J. Trump’s new running mate, embraced Mr. Trump’s false theories about voter fraud and elections.`\
 https://nytimes.com/2024/07/17/us/politics/donald-trump-jd-vance-republican-2024-election.html
