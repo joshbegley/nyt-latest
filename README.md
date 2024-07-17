@@ -1,3 +1,15 @@
+**England's manager search: Potter, Howe, Pochettino - and the FA's key decision-maker**\
+`How the FA reacted to Gareth Southgate's exit, the candidates now in the running and the man who will be key to the final decision…`\
+https://nytimes.com/athletic/5639017/2024/07/17/england-manager-search-potter-howe-pochettino/
+
+**Donald Trump is “an American whom even Barack Obama admits people consider the American dream.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/07/17/us/rnc-fact-check/donald-trump-is-an-american-whom-even-barack-obama-admits-people-consider-the-american-dream
+
+**Fact-Checking Day 2 of the Republican National Convention**\
+`A team of New York Times reporters followed the developments and fact-checked the speakers, providing context and explanation.`\
+https://nytimes.com/live/2024/07/17/us/rnc-fact-check
+
 **England have qualified for Euro 2025 - but are they stronger than two years ago?**\
 `Lionesses do not seem to have progressed much from the team that won Euro 2022. It wouldn't be a huge issue, were it not for Spain…`\
 https://nytimes.com/athletic/5641987/2024/07/17/england-euro-2025-squad/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5640816/2024/07/17/rice-england-arsenal-midfield/
 **'It's like a Premier League prep school': Should top clubs target more Championship players???**\
 `The Championship and EFL were the making of many of England’s best players this Euros. Gems can be found again for those looking hard enough`\
 https://nytimes.com/athletic/5640948/2024/07/17/premier-league-championship-transfers/
-
-**‘Sinners’ and ‘Russian Talibans’: A Holy War Roils a Once Placid Village**\
-`A battle has erupted in Moldova over its links to the Russian Orthodox Church, seen by many as a tool of Moscow’s influence abroad.`\
-https://nytimes.com/2024/07/17/world/europe/russian-orthodox-church-ukraine-war-moldova.html
-
-**A Guide to the King’s Speech: Crown Jewels, Black Rod and a Mace**\
-`When King Charles unveils the new U.K. government’s agenda in Parliament on Wednesday, he will be surrounded by rituals that nod to hundreds of years of history.`\
-https://nytimes.com/article/kings-speech-uk-parliament.html
-
-**Open Championship pool picks: Aberg, MacIntyre, Rai among the picks**\
-`With the Open Championship coming up later this week, Amos Morale III gives his pool picks for the final major of the year.`\
-https://nytimes.com/athletic/5641693/2024/07/17/open-championship-pool-picks-aberg-macintyre-rai/
 
