@@ -1,3 +1,19 @@
+**E.U. Court Rebukes Bloc’s Executive Arm Over Covid Vaccine Contract Secrecy**\
+`The court ruled that the European Commission wrongly withheld information, casting a shadow on its leader, Ursula von der Leyen, before a crucial vote on her future.`\
+https://nytimes.com/2024/07/17/world/europe/eu-covid-vaccines.html
+
+**‘The Bear’ Breaks an Emmy Comedy Record. But Is It Actually a Comedy?**\
+`The show set a new high for the most Emmy nominations in a single year for a comedy series, beating out “30 Rock” for the record.`\
+https://nytimes.com/2024/07/17/arts/television/the-bear-emmy-nominations-comedy-record.html
+
+**How would Trump handle the Federal Reserve in a second term?**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/how-would-trump-handle-the-federal-reserve-in-a-second-term
+
+**We Mapped Heat in 3 U.S. Cities. Some Sidewalks Were Over 130 Degrees.**\
+`Air temperature is just one measure of how heat affects cities and people. See how high surface temperatures, which bring additional risks, can get.`\
+https://nytimes.com/interactive/2024/07/17/climate/heat-map-phoenix-sacramento-portland.html
+
 **We Mapped Heat in 3 U.S Cities. Here’s Where the Sidewalks Are Over 130 Degrees.**\
 `Air temperature is just one measure of how heat affects cities and people. See how high surface temperatures, which bring additional risks, can get.`\
 https://nytimes.com/interactive/2024/07/17/climate/heat-map-phoenix-sacramento-portland.html

@@ -1,4 +1,16 @@
-**We Mapped Heat in 3 U.S Cities. Here’s Where the Sidewalks Are Over 130 Degrees.**\
+**E.U. Court Rebukes Bloc’s Executive Arm Over Covid Vaccine Contract Secrecy**\
+`The court ruled that the European Commission wrongly withheld information, casting a shadow on its leader, Ursula von der Leyen, before a crucial vote on her future.`\
+https://nytimes.com/2024/07/17/world/europe/eu-covid-vaccines.html
+
+**‘The Bear’ Breaks an Emmy Comedy Record. But Is It Actually a Comedy?**\
+`The show set a new high for the most Emmy nominations in a single year for a comedy series, beating out “30 Rock” for the record.`\
+https://nytimes.com/2024/07/17/arts/television/the-bear-emmy-nominations-comedy-record.html
+
+**How would Trump handle the Federal Reserve in a second term?**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/how-would-trump-handle-the-federal-reserve-in-a-second-term
+
+**We Mapped Heat in 3 U.S. Cities. Some Sidewalks Were Over 130 Degrees.**\
 `Air temperature is just one measure of how heat affects cities and people. See how high surface temperatures, which bring additional risks, can get.`\
 https://nytimes.com/interactive/2024/07/17/climate/heat-map-phoenix-sacramento-portland.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/17/technology/vance-ai-regulation.html
 **Robert Pearson, Hair Stylist Turned Acclaimed Barbecue Chef, Dies at 87**\
 `His Texas-style brisket, made with exacting precision, inspired a generation of New York City pit masters, who opened a wave of smoky joints in the 2000s.`\
 https://nytimes.com/2024/07/17/dining/robert-pearson-dead.html
-
-**Wall St. Journal Reporter Says She Was Fired Over Hong Kong Union Post**\
-`The journalist accused her former employer of failing to stand up for press freedom, a claim that the newspaper rejected.`\
-https://nytimes.com/2024/07/17/world/asia/wsj-reporter-fired-hong-kong.html
-
-**Promise of a Changed U.K. Comes Wrapped in Royal Tradition**\
-`From plans to tackle climate change to ending the role of hereditary legislators, the ceremonial King’s Speech showcased the progressive priorities of Britain’s Labour government.`\
-https://nytimes.com/2024/07/17/world/europe/kings-speech-uk.html
-
-**‘Rust’ Armorer Asks for New Trial After Dismissal of Alec Baldwin’s Case**\
-`Lawyers for the armorer, Hannah Gutierrez-Reed, are seizing on a judge’s dramatic dismissal of the actor’s case to argue for her release from prison.`\
-https://nytimes.com/2024/07/17/arts/rust-armorer-hannah-gutierrez-reed-appeal.html
 
