@@ -1,3 +1,11 @@
+**Barcelona confirm Thiago role in Hansi Flick coaching staff**\
+`Barcelona have confirmed the temporary return of Thiago Alcantara as part of the club&#8217;s coaching staff.`\
+https://nytimes.com/athletic/5643098/2024/07/17/thiago-barcelona-return-hansi-flick/
+
+**West Ham agree Todibo deal but fear defender wants Juventus move**\
+`West Ham have agreed a deal to sign Jean-Clair Todibo from French side Nice but fear the defender wants to move to Juventus instead.`\
+https://nytimes.com/athletic/5616037/2024/07/17/jean-clair-todibo-west-ham-transfer-nice/
+
 **The Athletic FC: Argentina’s racism furore explained and the 14-year-old who could debut in MLS**\
 `Today in The Athletic FC: The fallout from video of Argentina players taking part in racially offensive chanting.`\
 https://nytimes.com/athletic/5642992/2024/07/17/argentinas-racism-furore-explained-and-the-14-year-old-who-could-debut-in-mls/
