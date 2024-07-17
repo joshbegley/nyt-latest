@@ -1,3 +1,15 @@
+**Is That a Meteor Over Manhattan? New Yorkers Glance Up, Then Shrug.**\
+`It had already been a weird few weeks in New York. Then a fireball streaked across the sky.`\
+https://nytimes.com/2024/07/16/nyregion/meteor-manhattan-new-yorkers.html
+
+**G.O.P. Senate Hopefuls Bash Their Opponents by Tying Them to Biden**\
+`Republican candidates trying to oust resilient Democratic incumbents took the convention stage one after the other. The party needs to flip only one seat to regain control of the chamber if Donald Trump wins in November.`\
+https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/gop-senate-hopefuls-bash-their-opponents-by-tying-them-to-biden
+
+**Giants 'Hard Knocks' takeaways: Free-agent frenzy and a farewell to Saquon Barkley**\
+`John Mara before the big Barkley move: "I'm going to have a hard time sleeping if Saquon goes to Philly, I'll tell you that."`\
+https://nytimes.com/athletic/5642096/2024/07/16/new-york-giants-hard-knocks-saquon-barkley-free-agency/
+
 **Tony Clark defends MLBPA's strength in first public remarks since union power struggle**\
 `"If someone wants to challenge us as a result of what they think happened, then challenge us," Clark said ahead of Tuesday's All-Star Game. `\
 https://nytimes.com/athletic/5642476/2024/07/16/tony-clark-mlbpa-union-power-struggle/
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/politics/100000009575961/rnc-babydog.html
 **“On the border, Biden and Harris opened it up to the entire world.”**\
 `By Hamed Aleaziz`\
 https://nytimes.com/live/2024/07/16/us/trump-gop-convention-biden/on-the-border-biden-and-harris-opened-it-up-to-the-entire-world
-
-**Babydog, a Plump Bulldog Who Is Apparently a Republican, Charms the R.N.C.**\
-`Gov. Jim Justice of West Virginia, running for Senate in his deep-red state, was somewhat upstaged as the crowd shouted “Babydog!” with an energy generally reserved only for former President Donald J. Trump.`\
-https://nytimes.com/2024/07/16/us/politics/jim-justice-babydog.html
-
-**Guns Are Woven Into the Life of Shooter’s Hometown**\
-`The gunman who opened fire at a Trump rally grew up in an area where hunting and target shooting have long been popular pastimes. Now, there’s new talk of gun regulation.`\
-https://nytimes.com/2024/07/16/us/guns-crooks-pennsylvania-trump-shooting.html
-
-**Messi out indefinitely with ligament injury in ankle**\
-`The Argentina and Inter Miami captain appeared to slip on the pitch at Hard Rock Stadium in Miami during Sunday's final.`\
-https://nytimes.com/athletic/5642305/2024/07/16/lionel-messi-ankle-injury/
 
