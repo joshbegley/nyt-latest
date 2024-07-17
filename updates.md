@@ -1,3 +1,7 @@
+**Deshaun Watson 'taking it one day at a time' as Browns training camp nears**\
+`Watson said he's "in a great state" and has been throwing every day while continuing to rehab from his shoulder surgery.`\
+https://nytimes.com/athletic/5643890/2024/07/17/browns-deshaun-watson-training-camp/
+
 **New Polling Shows a Large and Growing Majority Want Biden to Step Aside**\
 `The new survey also shows Americans, including a significant number of Democrats, lack confidence in the president’s ability to do the job and that a sizable share of Democrats think he can’t win.`\
 https://nytimes.com/2024/07/17/us/politics/biden-poll-democrats-drop-out.html

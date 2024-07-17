@@ -1,3 +1,7 @@
+**Deshaun Watson 'taking it one day at a time' as Browns training camp nears**\
+`Watson said he's "in a great state" and has been throwing every day while continuing to rehab from his shoulder surgery.`\
+https://nytimes.com/athletic/5643890/2024/07/17/browns-deshaun-watson-training-camp/
+
 **New Polling Shows a Large and Growing Majority Want Biden to Step Aside**\
 `The new survey also shows Americans, including a significant number of Democrats, lack confidence in the president’s ability to do the job and that a sizable share of Democrats think he can’t win.`\
 https://nytimes.com/2024/07/17/us/politics/biden-poll-democrats-drop-out.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5643556/2024/07/17/argentina-chanting-football-sile
 **What Would It Take to Deport Millions of Immigrants? The G.O.P. Plan, Explained**\
 `Donald Trump is calling for the biggest deportation program in American history. The costs and hurdles would be enormous.`\
 https://nytimes.com/2024/07/17/us/trump-immigration-republicans-explained.html
-
-**Peter Navarro, Trump Trade Adviser, Released From Prison and Headed to the R.N.C.**\
-`The former Trump administration official completed a four-month sentence for contempt of Congress and will speak at the Republican National Convention on Wednesday.`\
-https://nytimes.com/2024/07/17/us/politics/peter-navarro-prison-convention.html
 

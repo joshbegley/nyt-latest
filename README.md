@@ -1,3 +1,7 @@
+**Four Tornadoes Touch Down in Upstate New York, Killing 1**\
+`The tornadoes swept through Western and Central New York during a week of extreme weather in the region. The worst of the damage was in the city of Rome, east of Syracuse.`\
+https://nytimes.com/2024/07/17/nyregion/tornado-rome-new-york.html
+
 **Deshaun Watson 'taking it one day at a time' as Browns training camp nears**\
 `Watson said he's "in a great state" and has been throwing every day while continuing to rehab from his shoulder surgery.`\
 https://nytimes.com/athletic/5643890/2024/07/17/browns-deshaun-watson-training-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5643830/2024/07/17/wrexham-academy-upgrade/
 **Football’s silence over Argentina’s racist chanting is deafening and damning**\
 `At moments like this, the idea that football is serious about combating racism is very hard to take seriously`\
 https://nytimes.com/athletic/5643556/2024/07/17/argentina-chanting-football-silence/
-
-**What Would It Take to Deport Millions of Immigrants? The G.O.P. Plan, Explained**\
-`Donald Trump is calling for the biggest deportation program in American history. The costs and hurdles would be enormous.`\
-https://nytimes.com/2024/07/17/us/trump-immigration-republicans-explained.html
 
