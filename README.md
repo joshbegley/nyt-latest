@@ -1,3 +1,7 @@
+**Biden Tests Positive for the Coronavirus, and Senators Berate Secret Service Chief**\
+`Plus, a plunge in the Seine ahead of the Olympics.`\
+https://nytimes.com/2024/07/18/podcasts/biden-vance-rnc.html
+
 **Trump 2.0: He’s Never Sounded Like This Before**\
 `How the former president’s message has changed, and what that means for the country.`\
 https://nytimes.com/2024/07/18/podcasts/the-daily/trump-message.html
@@ -9,6 +13,14 @@ https://nytimes.com/athletic/5643481/2024/07/18/cardinals-trade-deadline-rotatio
 **Cubs second-half storylines to watch, starting with the urgency to win before the trade deadline**\
 `There’s still a path toward October baseball in Chicago, but two months of uninspired play left almost no margin for error.`\
 https://nytimes.com/athletic/5644005/2024/07/18/chicago-cubs-second-half-storylines-trade-deadline/
+
+**Copa America final chaos: What we know and what it means for 2026 World Cup**\
+`The scenes at the match in Miami are being investigated and will have implications for venues staging games at the World Cup in two years`\
+https://nytimes.com/athletic/5644821/2024/07/18/copa-america-final-security-chaos/
+
+**How do NFC pass rush groups stack up heading into the 2024 season?**\
+`There's been a lot of movement about pass rushers in the NFC. Which teams are in the best shape heading into the 2024 season?`\
+https://nytimes.com/athletic/5561750/2024/07/18/nfc-edge-rushers-epa-micah-parsons/
 
 **Astros second-half storylines to watch, starting with trade deadline needs**\
 `Houston returns to action on Friday with glaring holes and still out of playoff position. Here are three storylines to monitor.`\
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/18/us/trump-biden-republican-convention/all-eye
 **Wordle Review No. 1,126, Friday, July 19, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/18/crosswords/wordle-review-1126.html
-
-**New Blackhawks goalie Brossoit eager to prove himself**\
-`Brossoit came to Chicago for the opportunity and could go from playing 20-plus games to 40-plus with the Blackhawks.`\
-https://nytimes.com/athletic/5641694/2024/07/18/blackhawks-laurent-brossoit-goalie/
-
-**The Connections Companion No. 404, July 19, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/18/crosswords/connections-companion-404.html
-
-**Pressure Mounts on Netanyahu to Seal a Cease-Fire Deal Before Speech to Congress**\
-`The Israeli leader told the Knesset, Israel’s Parliament, that applying more military pressure on Hamas would yield concessions in negotiations, suggesting that a deal was not imminent.`\
-https://nytimes.com/2024/07/18/world/middleeast/hostages-netanyahu-congress.html
 
