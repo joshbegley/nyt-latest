@@ -1,3 +1,7 @@
+**U.K. Failed in Handling of Covid Pandemic, Inquiry Finds**\
+`The British authorities prepared for the wrong pandemic, with an outdated plan overly focused on influenza, an official investigation reported.`\
+https://nytimes.com/2024/07/18/world/europe/uk-covid-pandemic-inquiry-report.html
+
 **MSNBC’s Joe Scarborough Urges Biden’s Advisers to ‘Do the Right Thing’**\
 `The host, who had been blunt but sympathetic toward Mr. Biden after the president’s debate performance, all but called on aides to help him exit the race.`\
 https://nytimes.com/2024/07/18/us/politics/biden-joe-scarborough-election-withdraw.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/business/european-central-bank-interest-rates.htm
 **Readers Pick Their 100 Best Books of the 21st Century**\
 `The people have spoken. Here are the books they voted for.`\
 https://nytimes.com/interactive/2024/books/reader-best-books-21st-century.html
-
-**Real Madrid's Iago set to join Sporting Lisbon**\
-`Paulo Iago is set to join Sporting Lisbon and leave Real Madrid following ten years at the academy.`\
-https://nytimes.com/athletic/5645333/2024/07/18/paulo-iago-sporting-lisbon-real-madrid/
 
