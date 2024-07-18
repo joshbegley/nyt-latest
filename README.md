@@ -1,3 +1,7 @@
+**Caitlin Clark breaks WNBA single-game assist record**\
+`Clark is leading first-year players in scoring and assists and is fourth in the league in 3-pointers made (69).`\
+https://nytimes.com/athletic/5644663/2024/07/17/caitlin-clark-wnba-most-assists-in-game/
+
 **Group of Assets**\
 `Like the TARDIS in “Doctor Who,” Kareem Ayas’s puzzle travels through time and space.`\
 https://nytimes.com/2024/07/17/crosswords/daily-puzzle-2024-07-18.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/lets-lo
 **“He is using mandates to shut down reliable baseload electricity. That is why your electric bills have shot upwards.”**\
 `By Lisa Friedman`\
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/he-is-using-mandates-to-shut-down-reliable-baseload-electricity-that-is-why-your-electric-bills-have-shot-upwards
-
-**Kimberly Guilfoyle’s 2020 R.N.C. Speech Was Widely Mocked**\
-`Her volume seemed to draw the most attention four years ago.`\
-https://nytimes.com/2024/07/17/us/politics/kimberly-guilfoyle-2020-rnc-speech.html
 
