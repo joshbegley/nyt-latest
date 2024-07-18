@@ -1,3 +1,7 @@
+**Democrats, Stop Saying It’s Too Late**\
+`The conventional wisdom about Biden ricochets between denialism and fatalism.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/democrats-convention-biden
+
 **Transcript: Ezra Klein Interviews Tim Alberta**\
 `The July 18, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/07/18/podcasts/transcript-ezra-klein-interviews-tim-alberta.html
