@@ -1,3 +1,7 @@
+**For One G.O.P. Leader, Trump Is the New George Washington**\
+`Mike Johnson said that like the first president, Trump escaped death through the hand of providence.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-washington-providence-johnson
+
 **What Democrats Need to Do Now**\
 `If Democrats hope to win, they have to take the MAGA worldview seriously and respectfully make the case, especially to working-class voters, for something better.`\
 https://nytimes.com/2024/07/18/opinion/maga-trump-vance-democrats.html

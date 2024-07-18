@@ -1,3 +1,7 @@
+**For One G.O.P. Leader, Trump Is the New George Washington**\
+`Mike Johnson said that like the first president, Trump escaped death through the hand of providence.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-washington-providence-johnson
+
 **What Democrats Need to Do Now**\
 `If Democrats hope to win, they have to take the MAGA worldview seriously and respectfully make the case, especially to working-class voters, for something better.`\
 https://nytimes.com/2024/07/18/opinion/maga-trump-vance-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/us/politics/biden-fundraising.html
 **From Buoyant to Frail: Two Days in Las Vegas as Biden Tests Positive**\
 `The president’s appearance, and his campaign’s momentum, changed dramatically during a two-day swing in Nevada that was cut short when he tested positive for Covid.`\
 https://nytimes.com/2024/07/18/us/politics/biden-covid-democrats.html
-
-**Vance Lays Out a Blue-Collar Vision That Clashes With Trump’s Record**\
-`J.D. Vance, the Republicans’ vice-presidential nominee, wants to center the working class in a Trump second term, but economists on the left and right question whether his prescriptions would actually help.`\
-https://nytimes.com/2024/07/18/us/politics/vance-jobs-tariffs-economists.html
 
