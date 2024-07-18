@@ -1,3 +1,11 @@
+**A's 2025 schedule: First season in Sacramento includes significant travel, long homestands**\
+`The A's open on the road in Seattle on March 27 and play their first official home game at Sacramento's Sutter Health Park on March 31.`\
+https://nytimes.com/athletic/5645842/2024/07/18/athletics-2025-mlb-schedule-sacramento/
+
+**After Biden Flub, Pentagon Spokeswoman Says Austin Has ‘Absolute Confidence’ in President**\
+`Mr. Biden appeared to forget the name of his Secretary of Defense, Lloyd J. Austin III, and instead refers to him as the “Black man” in an interview with BET.`\
+https://nytimes.com/2024/07/18/us/politics/biden-austin-bet-interview.html
+
 **Read Jamie Raskin’s letter**\
 `In a July 6 letter, Mr. Raskin, a congressman from Maryland, compared President Biden to a tiring baseball pitcher and suggested that he should reconsider his campaign.`\
 https://nytimes.com/interactive/2024/07/18/us/raskinletter.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5643071/2024/07/18/leny-yoro-man-united-transfer/
 **Kings mailbag: Trading veterans? Playoff expectations? Jersey preference?**\
 `As promised, here is Part 2 of the Los Angeles Kings mailbag.`\
 https://nytimes.com/athletic/5645908/2024/07/18/kings-nhl-mailbag-july-2024/
-
-**Russell Westbrook expected to join Nuggets after Clippers-Jazz trade: Sources**\
-`The plan for Westbrook and the Clippers was to part ways this offseason, and the Nuggets were a front-runner.`\
-https://nytimes.com/athletic/5645975/2024/07/18/russell-westbrook-trade-jazz-clippers/
-
-**Founder of Fandango Dies After Plunge From Manhattan Hotel**\
-`J. Michael Cline was the co-founder of an online ticketing company that changed how Americans went to the movies.`\
-https://nytimes.com/2024/07/18/nyregion/fandango-j-michael-cline-dead.html
 

@@ -1,3 +1,11 @@
+**A's 2025 schedule: First season in Sacramento includes significant travel, long homestands**\
+`The A's open on the road in Seattle on March 27 and play their first official home game at Sacramento's Sutter Health Park on March 31.`\
+https://nytimes.com/athletic/5645842/2024/07/18/athletics-2025-mlb-schedule-sacramento/
+
+**After Biden Flub, Pentagon Spokeswoman Says Austin Has ‘Absolute Confidence’ in President**\
+`Mr. Biden appeared to forget the name of his Secretary of Defense, Lloyd J. Austin III, and instead refers to him as the “Black man” in an interview with BET.`\
+https://nytimes.com/2024/07/18/us/politics/biden-austin-bet-interview.html
+
 **Read Jamie Raskin’s letter**\
 `In a July 6 letter, Mr. Raskin, a congressman from Maryland, compared President Biden to a tiring baseball pitcher and suggested that he should reconsider his campaign.`\
 https://nytimes.com/interactive/2024/07/18/us/raskinletter.html
