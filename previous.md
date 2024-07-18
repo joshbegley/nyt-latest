@@ -18,7 +18,7 @@ https://nytimes.com/athletic/5643054/2024/07/18/savinho-manchester-city-transfer
 `Especially when assembled with cold tofu, basil and mint, piled on top of whipped goat cheese or tossed with crunchy almonds and chewy berkoukes.`\
 https://nytimes.com/2024/07/18/dining/tomatoes-and-peaches-summer-bffs.html
 
-**A Vegetable Lovers Guide to the Grill**\
+**A Vegetable Lover’s Guide to the Grill**\
 `These five easy recipes and tips turn savory charred vegetables into fresh, filling main dishes.`\
 https://nytimes.com/2024/07/18/dining/grill-vegetarian-dinner-recipes.html
 

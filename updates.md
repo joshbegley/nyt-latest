@@ -1,3 +1,7 @@
+**A Vegetable Lover’s Guide to the Grill**\
+`These five easy recipes and tips turn savory charred vegetables into fresh, filling main dishes.`\
+https://nytimes.com/2024/07/18/dining/grill-vegetarian-dinner-recipes.html
+
 **Twins will open 2025 season vs. Cardinals, could face Sonny Gray**\
 `The Twins will open next season March 27 in St. Louis and could see their old friend. They host Houston in their home opener on April 3. `\
 https://nytimes.com/athletic/5645768/2024/07/18/twins-2025-opening-day-cardinals-sonny-gray/
