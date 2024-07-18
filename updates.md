@@ -1,3 +1,7 @@
+**A Blind Spot and a Lost Trail: How the Gunman Got So Close to Trump**\
+`Even though the local police was on the lookout for a suspicious man, critical minutes ticked by, allowing a would-be assassin to slip past them, a Times analysis found.`\
+https://nytimes.com/2024/07/17/us/politics/secret-service-trump-shooting.html
+
 **“Your favorite Democrat, Nancy Pelosi, created your favorite committee, the Jan. 6 committee, which demanded that I violate executive privilege.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/your-favorite-democrat-nancy-pelosi-created-your-favorite-committee-the-jan-6-committee-which-demanded-that-i-violate-executive-
