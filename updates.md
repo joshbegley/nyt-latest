@@ -1,3 +1,7 @@
+**The Myth of Migrant Crime**\
+`Republicans suggest that immigrants are especially likely to be criminals. The data shows the opposite.`\
+https://nytimes.com/2024/07/18/briefing/the-myth-of-migrant-crime.html
+
 **Ex-Liverpool goalkeeper Reina joins Como**\
 `Pepe Reina has joined Serie A club Como as a free agent after leaving Villarreal.`\
 https://nytimes.com/athletic/5635442/2024/07/18/pepe-reina-como-transfer/
