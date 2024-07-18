@@ -1,3 +1,11 @@
+**“The guy who advised Obama not to take out Osama. Joe Biden advised against the mission that killed Osama bin Laden.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/the-guy-who-advised-obama-not-to-take-out-osama-joe-biden-advised-against-the-mission-that-killed-osama-bin-laden
+
+**What We Heard at the R.N.C. in 20 Off-Stage Scenes**\
+`Illustrated scenes and thoughts from delegates and others at the Republican convention.`\
+https://nytimes.com/interactive/2024/07/17/us/politics/rnc-quotes-scenes.html
+
 **Caitlin Clark breaks WNBA single-game assist record**\
 `Clark is leading first-year players in scoring and assists and is fourth in the league in 3-pointers made (69).`\
 https://nytimes.com/athletic/5644663/2024/07/17/caitlin-clark-wnba-most-assists-indiana-fever/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5644521/2024/07/17/cavan-sullivan-mls-age-record-un
 **For Sidelined Giuliani, a Tumble Is an Unsubtle Metaphor**\
 `Rudolph W. Giuliani — indicted, disbarred and bankrupt — has no speaking slot at the convention, but he is nevertheless making the rounds in Milwaukee.`\
 https://nytimes.com/2024/07/17/us/politics/rudy-giuliani-rnc-fall.html
-
-**“Let’s look at Biden’s E.V. mandates.”**\
-`By Angelo Fichera`\
-https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/lets-look-at-bidens-ev-mandates
-
-**“He is using mandates to shut down reliable baseload electricity. That is why your electric bills have shot upwards.”**\
-`By Lisa Friedman`\
-https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/he-is-using-mandates-to-shut-down-reliable-baseload-electricity-that-is-why-your-electric-bills-have-shot-upwards
 
