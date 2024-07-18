@@ -1,3 +1,15 @@
+**Democrats in Disarray Over Biden**\
+`Readers discuss growing pressure for him to step aside and an essay by Bernie Sanders supporting him. Also: God and Trump; a raised fist; the First Amendment.`\
+https://nytimes.com/2024/07/18/opinion/joe-biden-democrats-disarray.html
+
+**Barcelona prospect Fernandez, 16, signs first pro deal**\
+`Barcelona prospect Guille Fernandez has signed a new contract with the club.`\
+https://nytimes.com/athletic/5645130/2024/07/18/barcelona-guille-fernandez-contract/
+
+**At 5, She Picked Up Chess as a Pandemic Hobby. At 9, She’s a Prodigy.**\
+`Bodhana Sivanandan, a fourth-grader, has become one of England’s best players just a few years after discovering chess during pandemic lockdown.`\
+https://nytimes.com/2024/07/18/world/europe/bodhana-sivanandan-chess-prodigy-england.html
+
 **No Taxes on Tips? A Trump Idea Gains Ground.**\
 `The sudden popularity of exempting tips from taxes is a reminder of the improvisational nature of economic policymaking under Donald Trump.`\
 https://nytimes.com/2024/07/18/us/politics/tipped-wages-taxes-donald-trump-economic-policy.html
