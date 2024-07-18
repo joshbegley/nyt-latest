@@ -1,3 +1,7 @@
+**The Myth of Migrant Crime**\
+`Republicans suggest that immigrants are especially likely to be criminals. The data shows the opposite.`\
+https://nytimes.com/2024/07/18/briefing/the-myth-of-migrant-crime.html
+
 **Ex-Liverpool goalkeeper Reina joins Como**\
 `Pepe Reina has joined Serie A club Como as a free agent after leaving Villarreal.`\
 https://nytimes.com/athletic/5635442/2024/07/18/pepe-reina-como-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5644821/2024/07/18/copa-america-final-security-chao
 **How do NFC pass rush groups stack up heading into the 2024 season?**\
 `There's been a lot of movement about pass rushers in the NFC. Which teams are in the best shape heading into the 2024 season?`\
 https://nytimes.com/athletic/5561750/2024/07/18/nfc-edge-rushers-epa-micah-parsons/
-
-**Astros second-half storylines to watch, starting with trade deadline needs**\
-`Houston returns to action on Friday with glaring holes and still out of playoff position. Here are three storylines to monitor.`\
-https://nytimes.com/athletic/5643803/2024/07/18/houston-astros-second-half-trade-deadline/
 
