@@ -1,3 +1,7 @@
+**Why Leeds fans are seeing red at their new kit**\
+`Leeds' deal with Red Bull meant its logo was certain to appear on the new home shirt - but there is anger at red featuring`\
+https://nytimes.com/athletic/5640537/2024/07/18/leeds-red-bull-kit-anger/
+
 **Republicans Seek to Remind R.N.C. Viewers About Deadly Afghanistan Withdrawal**\
 `Relatives of several service members who were killed when a suicide bomb exploded at a gate to the airport in Kabul in August 2021 delivered an anguished tribute.`\
 https://nytimes.com/2024/07/18/us/politics/afghanistan-withdrawal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5640827/2024/07/18/why-clubs-are-signing-so-many-ba
 **Charlton, Reading and a pattern of women's teams being cut when clubs face financial trouble**\
 `The story of how Charlton, one of the country's top teams, had their budget drastically slashed and lost almost all their players`\
 https://nytimes.com/athletic/5631196/2024/07/18/charlton-women-demise-reading/
-
-**Southgate, De la Fuente, Scaloni: Why summer 2024 was powered by the federation coach**\
-`Promoting a federation or age-group coach is not foolproof, but it comes with fewer risks than a cycle of appointing club coaches `\
-https://nytimes.com/athletic/5643079/2024/07/18/international-football-federation-coach/
 
