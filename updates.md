@@ -1,3 +1,7 @@
+**MSNBC’s Joe Scarborough Urges Biden’s Advisers to ‘Do the Right Thing’**\
+`The host, who had been blunt but sympathetic toward Mr. Biden after the president’s debate performance, all but called on aides to help him exit the race.`\
+https://nytimes.com/2024/07/18/us/politics/biden-joe-scarborough-election-withdraw.html
+
 **A Letter to a Student From The New York Times Learning Network**\
 `When we ran our new Open Letters Contest, we never imagined that a teenager would choose us as the recipient. Here is our response.`\
 https://nytimes.com/2024/07/18/learning/a-letter-to-a-student-from-the-new-york-times-learning-network.html
