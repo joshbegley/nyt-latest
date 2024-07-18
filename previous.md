@@ -1,3 +1,7 @@
+**From Buoyant to Frail: Two Days in Las Vegas as Biden Tests Positive**\
+`The president’s appearance, and his campaign’s momentum, changed dramatically during a two-day swing in Nevada that was cut short when he tested positive for Covid.`\
+https://nytimes.com/2024/07/18/us/politics/biden-covid-democrats.html
+
 **Vance Lays Out a Blue-Collar Vision That Clashes With Trump’s Record**\
 `J.D. Vance, the Republicans’ vice-presidential nominee, wants to center the working class in a Trump second term, but economists on the left and right question whether his prescriptions would actually help.`\
 https://nytimes.com/2024/07/18/us/politics/vance-jobs-tariffs-economists.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/health/cassava-barbier-alzheimers.html
 **Meta Said to Be in Talks for Minority Stake in Eyewear Maker**\
 `Meta is discussing taking a stake of as much as 5 percent of EssilorLuxottica, which makes eyewear brands like Ray-Ban and Oakley, people with knowledge of the talks said.`\
 https://nytimes.com/2024/07/18/technology/meta-minority-stake-eyewear.html
-
-**Appeals Court Blocks Biden’s Student Loan Repayment Plan, Causing Uncertainty**\
-`Eight million borrowers who are enrolled in the plan, known as SAVE, are left in limbo after a series of rulings tied to two lawsuits brought by Republican-led states.`\
-https://nytimes.com/2024/07/18/business/biden-student-loans-save-block.html
 

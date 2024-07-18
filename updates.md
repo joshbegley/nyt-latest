@@ -1,3 +1,7 @@
+**From Buoyant to Frail: Two Days in Las Vegas as Biden Tests Positive**\
+`The president’s appearance, and his campaign’s momentum, changed dramatically during a two-day swing in Nevada that was cut short when he tested positive for Covid.`\
+https://nytimes.com/2024/07/18/us/politics/biden-covid-democrats.html
+
 **Vance Lays Out a Blue-Collar Vision That Clashes With Trump’s Record**\
 `J.D. Vance, the Republicans’ vice-presidential nominee, wants to center the working class in a Trump second term, but economists on the left and right question whether his prescriptions would actually help.`\
 https://nytimes.com/2024/07/18/us/politics/vance-jobs-tariffs-economists.html
