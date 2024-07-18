@@ -1,3 +1,19 @@
+**Usha Vance and the Iconography of the Trump Women**\
+`The potential second lady models a new kind of Republican image-making.`\
+https://nytimes.com/2024/07/18/style/usha-vance-rnc-maga-trump.html
+
+**CBS beats ESPN to claim U.S. TV rights to EFL - and has bold plan to tap into 'the drama'**\
+`The success of Welcome To Wrexham has emboldened CBS to move for EFL and Carabao Cup rights and tap into the 'passion' outside the top tier`\
+https://nytimes.com/athletic/5643760/2024/07/18/cbs-efl-tv-broadcast-rights-carabao-cup/
+
+**What to Know About California’s Covid Surge**\
+`There are only a few states where Covid is spreading more.`\
+https://nytimes.com/2024/07/18/us/california-covid-surge.html
+
+**What Elon Musk could gain from Donald Trump.**\
+`By Dealbook`\
+https://nytimes.com/live/2024/07/18/us/trump-biden-republican-convention/what-elon-musk-could-gain-from-donald-trump
+
 **Juventus confirm Rabiot exit**\
 `Adrien Rabiot will be leaving Juventus after five seasons at the Italian club.`\
 https://nytimes.com/athletic/5645211/2024/07/18/adrien-rabiot-juventus-leaves/
