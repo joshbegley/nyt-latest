@@ -1,3 +1,11 @@
+**Meta Said to Be in Talks for Minority Stake in Eyewear Maker**\
+`Meta is discussing taking a stake of as much as 5 percent of EssilorLuxottica, which makes eyewear brands like Ray-Ban and Oakley, people with knowledge of the talks said.`\
+https://nytimes.com/2024/07/18/technology/meta-minority-stake-eyewear.html
+
+**Kamala Harris Wastes No Time in Attacking J.D. Vance**\
+`As Democratic speculation grew that President Biden might be forced to give way to his vice president, she rallied supporters in North Carolina and went after her new counterpart on the Republican ticket.`\
+https://nytimes.com/2024/07/18/us/politics/kamala-harris-jd-vance-speech.html
+
 **Appeals Court Blocks Biden’s Student Loan Repayment Plan, Causing Uncertainty**\
 `Eight million borrowers who are enrolled in the plan, known as SAVE, are left in limbo after a series of rulings tied to two lawsuits brought by Republican-led states.`\
 https://nytimes.com/2024/07/18/business/biden-student-loans-save-block.html
