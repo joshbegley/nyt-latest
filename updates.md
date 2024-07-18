@@ -1,3 +1,7 @@
+**No Taxes on Tips? A Trump Idea Gains Ground.**\
+`The sudden popularity of exempting tips from taxes is a reminder of the improvisational nature of economic policymaking under Donald Trump.`\
+https://nytimes.com/2024/07/18/us/politics/tipped-wages-taxes-donald-trump-economic-policy.html
+
 **Amid Uncertainty, Biden Campaign Tries to Keep Control of Delegates**\
 `The campaign is quietly reaching out to its pledged convention delegates to ensure they are still on board. But some want a change.`\
 https://nytimes.com/2024/07/18/us/politics/biden-delegates-democrats.html

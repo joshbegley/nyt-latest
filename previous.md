@@ -1,3 +1,7 @@
+**No Taxes on Tips? A Trump Idea Gains Ground.**\
+`The sudden popularity of exempting tips from taxes is a reminder of the improvisational nature of economic policymaking under Donald Trump.`\
+https://nytimes.com/2024/07/18/us/politics/tipped-wages-taxes-donald-trump-economic-policy.html
+
 **Amid Uncertainty, Biden Campaign Tries to Keep Control of Delegates**\
 `The campaign is quietly reaching out to its pledged convention delegates to ensure they are still on board. But some want a change.`\
 https://nytimes.com/2024/07/18/us/politics/biden-delegates-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/18/world/israel-gaza-war-hamas/about-1000-ultra
 **Democrats wrestle with a rift while Republicans put on a show of unity.**\
 `The discontent with President Biden has not faded and tempers are fraying as he insists on staying in the race over the objections of some fellow Democrats who worry that he cannot win.`\
 https://nytimes.com/live/2024/07/18/us/biden-election-news/democrats-wrestle-with-a-rift-while-republicans-put-on-a-show-of-unity
-
-**The Art Forger Had Fooled Thousands. Then He Met Doug.**\
-`When a man obsessed with woodblocks began to do business with a man obsessed with medical antiques, their relationship flowered — until it soured.`\
-https://nytimes.com/2024/07/18/arts/earl-washington-woodblocks-art-fraud.html
 
