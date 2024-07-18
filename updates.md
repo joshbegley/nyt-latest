@@ -1,3 +1,11 @@
+**J.D. Vance, Breaking the Beard Barrier**\
+`The vice-presidential candidate is the first major party nominee with facial hair in 75 years.`\
+https://nytimes.com/2024/07/18/style/jd-vance-beard-politics.html
+
+**Thursday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/07/18/briefing/biden-covid-trump-assassin.html
+
 **Why clubs are signing so many backup ’keepers: Training help, PSR value and homegrown slots**\
 `The market for backup goalkeepers has been moving this summer - this is why they are in demand`\
 https://nytimes.com/athletic/5640827/2024/07/18/why-clubs-are-signing-so-many-backup-goalkeepers-training-help-psr-value-homegrown-slots/
