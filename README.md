@@ -1,3 +1,11 @@
+**Usha Vance, J.D. Vance’s Wife, Entered the Spotlight. It’s an Unfamiliar Role.**\
+`The couple met while attending Yale Law School. Republicans hope Ms. Vance, the daughter of Indian immigrants, will become the second lady.`\
+https://nytimes.com/2024/07/18/us/politics/usha-vance-jd-wife.html
+
+**Listeria in Milk Alternatives Kills Two Canadians, Sickens 10 More**\
+`The Silk and Great Value brand drinks made from nuts, oats and coconuts were pulled from stores last week.`\
+https://nytimes.com/2024/07/18/world/canada/silk-listeria-milk-deaths.html
+
 **J.D. Vance, Breaking the Beard Barrier**\
 `The vice-presidential candidate is the first major party nominee with facial hair in 75 years.`\
 https://nytimes.com/2024/07/18/style/jd-vance-beard-politics.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5641997/2024/07/18/rodri-best-player-global-interes
 **Emile Smith Rowe departing Arsenal would be painful - but it might be the right move**\
 `Arsenal may have rejected a bid from Fulham for Smith Rowe but they realise someone as talented as the midfielder needs to be playing`\
 https://nytimes.com/athletic/5640847/2024/07/18/emile-smith-rowe-arsenal-future-transfer/
-
-**Clark, Ionescu not in WNBA All-Star 3-point contest**\
-`Ionescu won last year's contest and went up against Stephen Curry in a first-of-its-kind 3-point competition in February.`\
-https://nytimes.com/athletic/5644734/2024/07/18/wnba-3-point-contest-clark-ionescu/
-
-**The Business of Football: Fitting in the Finalissima, Ligue 1 ponder D2C, and EFL 'less distressed'**\
-`From a cluttered schedule to things actually looking up in the English Football League, The Athletic takes a look at matters off the field`\
-https://nytimes.com/athletic/5643210/2024/07/18/finalissima-ligue1-efl-business-football/
 
