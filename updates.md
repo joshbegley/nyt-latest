@@ -1,3 +1,7 @@
+**Criticize Trump, but Don’t Demonize Him**\
+`We won’t preserve American democracy through silence and timidity.`\
+https://nytimes.com/2024/07/18/opinion/trump-assassination-violence.html
+
 **Lou Dobbs, Former Fox Business Host and Trump Booster, Dies at 78**\
 `He rose to prominence as a critic of immigration policies. His Fox Business program was canceled in 2021 after the network was sued for defamation over election fraud claims.`\
 https://nytimes.com/2024/07/18/business/media/lou-dobbs-dead.html
