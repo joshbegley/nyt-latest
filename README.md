@@ -1,3 +1,19 @@
+**Republicans Seek to Remind R.N.C. Viewers About Deadly Afghanistan Withdrawal**\
+`Relatives of several service members who were killed when a suicide bomb exploded at a gate to the airport in Kabul in August 2021 delivered an anguished tribute.`\
+https://nytimes.com/2024/07/18/us/politics/afghanistan-withdrawal.html
+
+**Diaby initially impressed at Villa - would a move to Saudi Arabia suit all parties?**\
+`After a flying start to his Villa career, Diaby's form tailed off — and now there's strong interest from Saudi Arabia after just a season`\
+https://nytimes.com/athletic/5641212/2024/07/18/moussa-diaby-aston-villa-transfer-saudi-arabia/
+
+**Transfers, ownership, PSR and season aims - an audience with Newcastle CEO Eales**\
+`Newcastle's CEO gave a wide-ranging interview this week, so what can we learn from it?`\
+https://nytimes.com/athletic/5642867/2024/07/18/darren-eales-newcastle-transfers-psr/
+
+**Why Rodri winning the Ballon d'Or would be both good and bad news for Manchester City**\
+`The wider football world is realising just how good the Spanish midfielder is - and how irreplaceable he is in Pep Guardiola's side `\
+https://nytimes.com/athletic/5641997/2024/07/18/rodri-best-player-global-interest/
+
 **Emile Smith Rowe departing Arsenal would be painful - but it might be the right move**\
 `Arsenal may have rejected a bid from Fulham for Smith Rowe but they realise someone as talented as the midfielder needs to be playing`\
 https://nytimes.com/athletic/5640847/2024/07/18/emile-smith-rowe-arsenal-future-transfer/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5631196/2024/07/18/charlton-women-demise-reading/
 **Southgate, De la Fuente, Scaloni: Why summer 2024 was powered by the federation coach**\
 `Promoting a federation or age-group coach is not foolproof, but it comes with fewer risks than a cycle of appointing club coaches `\
 https://nytimes.com/athletic/5643079/2024/07/18/international-football-federation-coach/
-
-**G.O.P. Puts Israel and Antisemitism Front and Center, Courting U.S. Jews**\
-`Convention speakers included college students who defended the U.S. flag from pro-Palestinian protesters and the parents of an American still being held by Hamas.`\
-https://nytimes.com/2024/07/18/us/politics/israel-rnc-antisemitism-jews.html
-
-**'Fronting up' experts, stars, local heroes: Who spoke for your country at Euro 2024?**\
-`During Euro 2024, different players spoke for their countries at different times, depending on seniority, locality and results`\
-https://nytimes.com/athletic/5641066/2024/07/18/euro-2024-press-conference-players/
-
-**The ‘Other Marine’ of French Politics Hits Back**\
-`Marine Tondelier, leader of the Green Party, helped bring the left together to win France’s parliamentary elections. Now can she help keep it from falling apart?`\
-https://nytimes.com/2024/07/18/world/europe/the-other-marine-of-french-politics-hits-back.html
-
-**As Clouds Gather Over Europe, Leaders Seek Unity in Churchill’s Birthplace**\
-`More than 40 European leaders will meet at Blenheim Palace on Thursday. Fears over the continent’s security, and the threat of Russia, will loom large.`\
-https://nytimes.com/2024/07/18/world/europe/europe-leaders-meet-blenheim-palace-uk-starmer.html
 
