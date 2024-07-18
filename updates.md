@@ -1,3 +1,7 @@
+**Pressure Builds on Netanyahu as Visit to Washington Nears**\
+`A planned speech to Congress by Prime Minister Benjamin Netanyahu has made clear the serious divisions he faces back home.`\
+https://nytimes.com/2024/07/18/world/middleeast/netanyahu-gaza-congress-speech.html
+
 **What Our Columnists Want to Hear From Trump**\
 `Here’s what they’ll be listening for.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-speech-convention

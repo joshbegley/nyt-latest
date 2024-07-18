@@ -1,3 +1,7 @@
+**Pressure Builds on Netanyahu as Visit to Washington Nears**\
+`A planned speech to Congress by Prime Minister Benjamin Netanyahu has made clear the serious divisions he faces back home.`\
+https://nytimes.com/2024/07/18/world/middleeast/netanyahu-gaza-congress-speech.html
+
 **What Our Columnists Want to Hear From Trump**\
 `Here’s what they’ll be listening for.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-speech-convention
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/sports/fifa-israel-soccer.html
 **Oregon Fugitive Found After Having Used a Stolen Identity for 30 Years**\
 `The escaped prisoner was living in Macon, Ga., for over a decade and was using the identity of a child who died in Texas in 1962, according to the U.S. Marshals Service.`\
 https://nytimes.com/2024/07/18/us/oregon-fugitive-false-identity.html
-
-**How Long Is Covid Contagious?**\
-`It’s a tricky question to answer, but experts say symptoms and rapid tests are still good guides.`\
-https://nytimes.com/2024/07/18/well/covid-contagious-period.html
 
