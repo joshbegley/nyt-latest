@@ -1,3 +1,7 @@
+**Lankshear, Moore and Tottenham's teenagers give Postecoglou plenty to ponder**\
+`The future is looking bright for Tottenham and Postecoglou - homegrown youngsters plus Gray and Bergvall impressed against Hearts`\
+https://nytimes.com/athletic/5644517/2024/07/18/tottenham-ange-postecoglou-academy-players/
+
 **Evan Gershkovich Returns to Court in Russia**\
 `The hearing was the second in the espionage trial of Mr. Gershkovich, a reporter for The Wall Street Journal. The United States and The Journal have strongly rejected the charge against him.`\
 https://nytimes.com/2024/07/18/world/europe/evan-gershkovich-court-russia.html

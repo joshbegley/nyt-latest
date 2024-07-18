@@ -34,7 +34,7 @@ https://nytimes.com/2024/07/18/nyregion/taliban-afghanistan-lawyers.html
 `TROON, Scotland — As the thick, dense gorse plants wave heavily back toward the tee like fine hair in the wind, another golfer steps to Royal Troon’s eighth tee box trying to figure out why exactly this short little hole is so daunting.`\
 https://nytimes.com/athletic/5643452/2024/07/18/open-championship-royal-troon-postage-stamp-hole/
 
-**Late Night Taunts Former Critics Who Changed Their Minds About Trump**\
-`J.D. Vance and Nikki Haley, among other Republicans at the convention, seem to have gotten over their reservations about the former president.`\
-https://nytimes.com/2024/07/18/arts/television/late-night-jd-vance-nikki-haley.html
+**Lankshear, Moore and Tottenham's teenagers give Postecoglou plenty to ponder**\
+`The future is looking bright for Tottenham and Postecoglou - homegrown youngsters plus Gray and Bergvall impressed against Hearts`\
+https://nytimes.com/athletic/5644517/2024/07/18/tottenham-ange-postecoglou-academy-players/
 
