@@ -1,3 +1,11 @@
+**We Underestimated Trump**\
+`He has campaigned smartly, and has shifted the governing philosophy of the Republican Party.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/brooks-underestimating-trump-convention
+
+**Germany Promised to Step Up Militarily. Its Budget Says Differently.**\
+`After Russia’s invasion of Ukraine, Chancellor Olaf Scholz vowed a revolution in defense strategy. But the math is not adding up.`\
+https://nytimes.com/2024/07/18/world/europe/germany-budget-military-spending.html
+
 **How Manchester United beat Real Madrid to the signing of Leny Yoro**\
 `United have landed Lille defender Yoro, considered a 'generational talent' at age 18 - this is the story of how they did it`\
 https://nytimes.com/athletic/5644891/2024/07/18/leny-yoro-transfer-manchester-united-real-madrid/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/18/nyregion/fandango-j-michael-cline-dead.html
 **Royal Troon’s changing winds brought carnage to this Open Championship**\
 `Double- and triple-bogeys stacked up all morning as some of the best players in the world were humbled by the golf course.`\
 https://nytimes.com/athletic/5645798/2024/07/18/open-championship-royal-troon-wind-first-round/
-
-**Pat Williams, Charismatic N.B.A. Executive, Is Dead at 84**\
-`Known for his unorthodox marketing practices, Mr. Williams, a founder of the Orlando Magic, was sometimes called the P.T. Barnum of professional basketball.`\
-https://nytimes.com/2024/07/18/sports/pat-williams-dead.html
-
-**Until Saturday: Latest on FSU and Clemson vs. ACC and Texas' Quinn Ewers**\
-`Welcome to Until Saturday, the five-star college football newsletter: More on the ACC's legal drama and Ewers.`\
-https://nytimes.com/athletic/5645323/2024/07/18/acc-florida-state-clemson-quinn-ewers-texas-until-saturday/
 
