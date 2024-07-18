@@ -1,3 +1,7 @@
+**Vance Lays Out a Blue-Collar Vision That Clashes With Trump’s Record**\
+`J.D. Vance, the Republicans’ vice-presidential nominee, wants to center the working class in a Trump second term, but economists on the left and right question whether his prescriptions would actually help.`\
+https://nytimes.com/2024/07/18/us/politics/vance-jobs-tariffs-economists.html
+
 **Daniel Brown leads after Round 1 of The Open Championship**\
 `Playing in his first major championship, let alone his first Open, Brown led the field in strokes gained off the tee.`\
 https://nytimes.com/athletic/5646414/2024/07/18/daniel-brown-open-championship-round-one/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/technology/meta-minority-stake-eyewear.html
 **Appeals Court Blocks Biden’s Student Loan Repayment Plan, Causing Uncertainty**\
 `Eight million borrowers who are enrolled in the plan, known as SAVE, are left in limbo after a series of rulings tied to two lawsuits brought by Republican-led states.`\
 https://nytimes.com/2024/07/18/business/biden-student-loans-save-block.html
-
-**Kamala Harris Wastes No Time in Attacking J.D. Vance**\
-`As Democratic speculation grew that President Biden might be forced to give way to his vice president, she rallied supporters in North Carolina and went after her new counterpart on the Republican ticket.`\
-https://nytimes.com/2024/07/18/us/politics/kamala-harris-jd-vance-speech.html
 
