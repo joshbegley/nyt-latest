@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein Interviews Tim Alberta**\
+`The July 18, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/07/18/podcasts/transcript-ezra-klein-interviews-tim-alberta.html
+
 **Phoenix Mercury unveil new 'crown jewel' practice facility**\
 `The $100 million practice facility is the third to be built in the WNBA in the last two years.`\
 https://nytimes.com/athletic/5645249/2024/07/18/phoenix-mercury-facility-wnba/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/world/europe/bodhana-sivanandan-chess-prodigy-eng
 **No Taxes on Tips? A Trump Idea Gains Ground.**\
 `The sudden popularity of exempting tips from taxes is a reminder of the improvisational nature of economic policymaking under Donald Trump.`\
 https://nytimes.com/2024/07/18/us/politics/tipped-wages-taxes-donald-trump-economic-policy.html
-
-**Amid Uncertainty, Biden Campaign Tries to Keep Control of Delegates**\
-`The campaign is quietly reaching out to its pledged convention delegates to ensure they are still on board. But some want a change.`\
-https://nytimes.com/2024/07/18/us/politics/biden-delegates-democrats.html
 
