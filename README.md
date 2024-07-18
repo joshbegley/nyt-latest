@@ -1,3 +1,11 @@
+**The director of the Secret Service is scheduled for a hearing on Monday, but she might not show.**\
+`By Kate Kelly`\
+https://nytimes.com/live/2024/07/18/us/trump-rally-shooting-news/the-director-of-the-secret-service-is-scheduled-for-a-hearing-on-monday-but-she-might-not-show
+
+**‘My Lady Jane’ Is a Sly and Sassy Historical Comedy**\
+`Inspired by the very (very) brief reign of Queen Jane, the Amazon series has fun rewriting Tudor history — complete with magical creatures.`\
+https://nytimes.com/2024/07/18/arts/television/my-lady-jane-amazon-streaming.html
+
 **A's 2025 schedule: First season in Sacramento includes significant travel, long homestands**\
 `The A's open on the road in Seattle on March 27 and play their first official home game at Sacramento's Sutter Health Park on March 31.`\
 https://nytimes.com/athletic/5645842/2024/07/18/athletics-2025-mlb-schedule-sacramento/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/18/climate/susan-solomon-q-and-a.html
 **Why Are Democrats Speaking to America in Ancient Greek?**\
 `Democracy is vital. “Democracy,” the word, is inert.`\
 https://nytimes.com/2024/07/18/opinion/democracy-dead-word-language.html
-
-**Man United complete transfer of Lille defender Yoro**\
-`Manchester United have completed the signing of defender Leny Yoro from Lille.`\
-https://nytimes.com/athletic/5643071/2024/07/18/leny-yoro-man-united-transfer/
-
-**Kings mailbag: Trading veterans? Playoff expectations? Jersey preference?**\
-`As promised, here is Part 2 of the Los Angeles Kings mailbag.`\
-https://nytimes.com/athletic/5645908/2024/07/18/kings-nhl-mailbag-july-2024/
 
