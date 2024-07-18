@@ -1,3 +1,7 @@
+**Vazquez to sign Real Madrid contract extension**\
+`Lucas Vazquez is set to sign a one-year contract extension at Real Madrid.`\
+https://nytimes.com/athletic/5644975/2024/07/18/lucas-vazquez-real-madrid-contract/
+
 **NHL’s 10 worst contracts, 2024 edition: Jonathan Huberdeau, Darnell Nurse and more**\
 `According to each player’s projected value over the remainder of their deals, these are the league’s 10 worst contracts.`\
 https://nytimes.com/athletic/5632415/2024/07/18/nhl-10-worst-contracts-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/the-gop-looked-awfully-yout
 **In San Francisco, a Gallerist Followed Her Heart to a New Apartment for Around $1 Million**\
 `A first-time buyer put her savings to work in the expensive Bay Area housing market, using the local tenancy-in-common model to find something she could afford. Here’s where she landed.`\
 https://nytimes.com/interactive/2024/07/18/realestate/san-francisco-apartment-home-mortgage.html
-
-**Homewares Inspired by Hunting Tools and Sea Creatures**\
-`Plus: a Miami riverfront restaurant, cashmere blankets and more recommendations from T Magazine.`\
-https://nytimes.com/2024/07/18/t-magazine/alighieri-jewelry-homeware.html
 

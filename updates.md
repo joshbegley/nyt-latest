@@ -1,3 +1,7 @@
+**Vazquez to sign Real Madrid contract extension**\
+`Lucas Vazquez is set to sign a one-year contract extension at Real Madrid.`\
+https://nytimes.com/athletic/5644975/2024/07/18/lucas-vazquez-real-madrid-contract/
+
 **NHL’s 10 worst contracts, 2024 edition: Jonathan Huberdeau, Darnell Nurse and more**\
 `According to each player’s projected value over the remainder of their deals, these are the league’s 10 worst contracts.`\
 https://nytimes.com/athletic/5632415/2024/07/18/nhl-10-worst-contracts-2024/
