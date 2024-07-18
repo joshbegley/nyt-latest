@@ -1,3 +1,7 @@
+**Four Grilling Pop-Ups Worth Chasing Down**\
+`Burgers and hot dogs, yes, but also jerk oysters and crispy-bottomed seafood paella.`\
+https://nytimes.com/2024/07/18/dining/nyc-summer-pop-ups.html
+
 **For Biden and Harris, a Delicate and Sometimes Awkward Dance**\
 `Even as she has remained diligently loyal to President Biden, Vice President Kamala Harris has sought to avoid having her own political strengths denigrated.`\
 https://nytimes.com/2024/07/18/us/politics/biden-kamala-harris.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5645842/2024/07/18/athletics-2025-mlb-schedule-sacr
 **After Biden Flub, Pentagon Spokeswoman Says Austin Has ‘Absolute Confidence’ in President**\
 `Mr. Biden appeared to forget the name of his Secretary of Defense, Lloyd J. Austin III, and instead refers to him as the “Black man” in an interview with BET.`\
 https://nytimes.com/2024/07/18/us/politics/biden-austin-bet-interview.html
-
-**Read Jamie Raskin’s letter**\
-`In a July 6 letter, Mr. Raskin, a congressman from Maryland, compared President Biden to a tiring baseball pitcher and suggested that he should reconsider his campaign.`\
-https://nytimes.com/interactive/2024/07/18/us/raskinletter.html
 

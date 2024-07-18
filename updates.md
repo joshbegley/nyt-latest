@@ -1,3 +1,7 @@
+**For Biden and Harris, a Delicate and Sometimes Awkward Dance**\
+`Even as she has remained diligently loyal to President Biden, Vice President Kamala Harris has sought to avoid having her own political strengths denigrated.`\
+https://nytimes.com/2024/07/18/us/politics/biden-kamala-harris.html
+
 **Commissioners discussing CFB roster caps of 105: Source**\
 `'Hopefully we can land on a healthy place,' Greg Sankey said. 'We’re just going to have to deal with things in a little different way.'`\
 https://nytimes.com/athletic/5646145/2024/07/18/college-football-roster-caps-house-settlement/
