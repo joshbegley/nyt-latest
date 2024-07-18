@@ -1,3 +1,7 @@
+**People Close to Biden Say He Appears to Accept He May Have to Leave the Race**\
+`One person familiar with President Biden’s thinking cautioned that he had not yet made up his mind to leave the race, after three weeks of insisting that almost nothing would drive him out.`\
+https://nytimes.com/2024/07/18/us/politics/biden-election-drop-out.html
+
 **The Open Championship psychology: How to thrive at one of golf's toughest tests**\
 `The key to winning at Royal Troon is dealing with the right shot gone poorly.`\
 https://nytimes.com/athletic/5646271/2024/07/18/open-championship-golf-mental/
