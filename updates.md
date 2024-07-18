@@ -1,3 +1,15 @@
+**“You didn’t see these spy balloons under President Trump, did you?”**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/you-didnt-see-these-spy-balloons-under-president-trump-did-you
+
+**President Biden “is focused on building electric tanks.”**\
+`By Lisa Friedman`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/president-biden-is-focused-on-building-electric-tanks
+
+**Cavan Sullivan, 14, snaps MLS record with Union debut**\
+`On Wednesday, Sullivan became the youngest player to appear in a Major League Soccer match.`\
+https://nytimes.com/athletic/5644521/2024/07/17/cavan-sullivan-mls-age-record-union/
+
 **Peter Navarro, Released From Prison, Gives Fiery Convention Speech**\
 `Mr. Navarro, a senior trade adviser in the Trump administration who served four months for defying a subpoena in the Jan. 6 investigation, received a hero’s welcome.`\
 https://nytimes.com/2024/07/17/us/politics/peter-navarro-rnc-speech.html
