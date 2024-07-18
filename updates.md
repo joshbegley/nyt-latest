@@ -1,3 +1,7 @@
+**Key Takeaways From the Republican Convention’s Message on Immigration**\
+`If the rhetoric on immigration at this week’s G.O.P. convention matches former President Donald J. Trump’s vision of isolationism, it has also grown darker and more conspiratorial.`\
+https://nytimes.com/2024/07/17/us/politics/rnc-immigration-trump-takeaways.html
+
 **Founder of Fandango Dies After Plunge From Manhattan Hotel**\
 `J. Michael Cline was the co-founder of an online ticketing company that changed how Americans went to the movies.`\
 https://nytimes.com/2024/07/18/nyregion/fandango-j-michael-cline-dead.html

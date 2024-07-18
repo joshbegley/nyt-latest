@@ -31,7 +31,7 @@ https://nytimes.com/athletic/5645722/2024/07/18/sec-championship-game-college-fo
 https://nytimes.com/2024/07/18/us/politics/elon-musk-trump.html
 
 **Key Takeaways From the Republican Convention’s Message on Immigration**\
-`By Jazmine Ulloa, Ken Bensinger and Nick Corasaniti`\
+`If the rhetoric on immigration at this week’s G.O.P. convention matches former President Donald J. Trump’s vision of isolationism, it has also grown darker and more conspiratorial.`\
 https://nytimes.com/2024/07/17/us/politics/rnc-immigration-trump-takeaways.html
 
 **Traditional Marriage for Thee, but Not for J.D. Vance**\
