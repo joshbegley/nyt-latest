@@ -1,3 +1,7 @@
+**The shocking story of Hwang Ui-jo: Secret sex-video charge, blackmail and a family deception**\
+`The story of an international footballer who has gone from being the victim to the accused in a crime tale of many twists`\
+https://nytimes.com/athletic/5640811/2024/07/18/hwang-ui-jo-sex-video-charge/
+
 **MLB bullpen trade deadline primer: Projected buyers, sellers and more**\
 `Greg Jewett offers up a MLB bullpen trade deadline primer, running through team needs, in addition to likely buyers and sellers.`\
 https://nytimes.com/athletic/5644784/2024/07/18/fantasy-baseball-bullpen-report-trade-deadline/
