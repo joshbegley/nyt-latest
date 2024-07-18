@@ -1,3 +1,7 @@
+**How Long Is Covid Contagious?**\
+`It’s a tricky question to answer, but experts say symptoms and rapid tests are still good guides.`\
+https://nytimes.com/2024/07/18/well/covid-contagious-period.html
+
 **Pressure Builds on Netanyahu as Visit to Washington Nears**\
 `A planned speech to Congress by Prime Minister Benjamin Netanyahu has made clear the serious divisions he faces back home.`\
 https://nytimes.com/2024/07/18/world/middleeast/netanyahu-gaza-congress-speech.html
