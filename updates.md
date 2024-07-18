@@ -1,3 +1,7 @@
+**Ever Elusive, Melania Trump Is Expected to Appear at G.O.P. Convention**\
+`The former first lady skipped much of the Trump family reunion in Milwaukee this week.`\
+https://nytimes.com/2024/07/18/us/politics/melania-trump-2024-campaign-republicans.html
+
 **Ever Elusive, Melania Trump Expected to Appear at G.O.P. Convention**\
 `The former first lady skipped much of the Trump family reunion in Milwaukee this week.`\
 https://nytimes.com/2024/07/18/us/politics/melania-trump-2024-campaign-republicans.html
