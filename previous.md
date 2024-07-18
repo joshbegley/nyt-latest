@@ -1,3 +1,7 @@
+**Evan Gershkovich Returns to Court in Russia**\
+`The hearing was the second in the espionage trial of Mr. Gershkovich, a reporter for The Wall Street Journal. The United States and The Journal have strongly rejected the charge against him.`\
+https://nytimes.com/2024/07/18/world/europe/evan-gershkovich-court-russia.html
+
 **Postecoglou: 'My work is not done' at Tottenham amid England job links**\
 `Ange Postecoglou says his &#8220;work is not done&#8221; at Tottenham Hotspur amid links with the vacant England manager role.`\
 https://nytimes.com/athletic/5644856/2024/07/18/ange-postecoglou-england-job-tottenham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5643452/2024/07/18/open-championship-royal-troon-po
 **Late Night Taunts Former Critics Who Changed Their Minds About Trump**\
 `J.D. Vance and Nikki Haley, among other Republicans at the convention, seem to have gotten over their reservations about the former president.`\
 https://nytimes.com/2024/07/18/arts/television/late-night-jd-vance-nikki-haley.html
-
-**The shocking story of Hwang Ui-jo: Secret sex-video charge, blackmail and a family deception**\
-`The story of an international footballer who has gone from being the victim to the accused in a crime tale of many twists`\
-https://nytimes.com/athletic/5640811/2024/07/18/hwang-ui-jo-sex-video-charge/
 

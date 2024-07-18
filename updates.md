@@ -1,3 +1,7 @@
+**Evan Gershkovich Returns to Court in Russia**\
+`The hearing was the second in the espionage trial of Mr. Gershkovich, a reporter for The Wall Street Journal. The United States and The Journal have strongly rejected the charge against him.`\
+https://nytimes.com/2024/07/18/world/europe/evan-gershkovich-court-russia.html
+
 **Postecoglou: 'My work is not done' at Tottenham amid England job links**\
 `Ange Postecoglou says his &#8220;work is not done&#8221; at Tottenham Hotspur amid links with the vacant England manager role.`\
 https://nytimes.com/athletic/5644856/2024/07/18/ange-postecoglou-england-job-tottenham/
