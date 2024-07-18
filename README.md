@@ -1,3 +1,7 @@
+**Why This Star of Georgian Film Isn’t Showing His New Movie in Georgia**\
+`The director Levan Akin is worried that his latest film, “Crossing,” will inflame tensions around L.G.B.T. visibility in the post-Soviet nation.`\
+https://nytimes.com/2024/07/18/movies/crossing-levan-akin-georgia-lgbt.html
+
 **China’s Leaders Offer High Hopes, but Few Details for Road to Recovery**\
 `Top officials emerged from a high-stakes meeting about lifting the economy out of its malaise with few signs of a fundamental rethink.`\
 https://nytimes.com/2024/07/18/business/china-economy-plenum-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/movies/join-or-die-review-come-together.html
 **Los Angeles Dodgers second-half storylines to watch, starting with the trade deadline plan**\
 `Shohei Ohtani and other big hitters keep the Dodgers' top-heavy lineup afloat, but the bottom of the order continues to lag.`\
 https://nytimes.com/athletic/5644689/2024/07/18/dodgers-trade-deadline-needs-2/
-
-**‘Oddity’ Review: Twisted Sister**\
-`A haunted house, a blind psychic and a suspicious death fuel this flawed yet fun supernatural thriller.`\
-https://nytimes.com/2024/07/18/movies/oddity-review.html
 
