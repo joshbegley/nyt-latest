@@ -1,3 +1,7 @@
+**Group of Assets**\
+`Like the TARDIS in “Doctor Who,” Kareem Ayas’s puzzle travels through time and space.`\
+https://nytimes.com/2024/07/17/crosswords/daily-puzzle-2024-07-18.html
+
 **Lee Greenwood’s ‘God Bless the U.S.A.’ Has Become a Trump Rally Anthem**\
 `The country star answered the call to perform the song during the former president’s first public appearance after surviving an assassination attempt.`\
 https://nytimes.com/2024/07/17/us/politics/lee-greenwood-trump-god-bless-usa.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/he-is-u
 **Kimberly Guilfoyle’s 2020 R.N.C. Speech Was Widely Mocked**\
 `Her volume seemed to draw the most attention four years ago.`\
 https://nytimes.com/2024/07/17/us/politics/kimberly-guilfoyle-2020-rnc-speech.html
-
-**President of Florida A&M Resigns Amid Donation Controversy**\
-`Larry Robinson took responsibility for accepting a $237 million gift that is now on hold and under investigation.`\
-https://nytimes.com/2024/07/17/us/hbcu-donation-president-resigns.html
 
