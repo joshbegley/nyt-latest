@@ -1,3 +1,11 @@
+**Sharpton Says He Told Biden That Staying in Race Could Imperil His Legacy**\
+`The message of the call, which Rev. Al Sharpton said took place on Monday, represents a break from the solid core of support influential Black leaders have shown toward President Biden.`\
+https://nytimes.com/2024/07/18/us/politics/al-sharpton-biden.html
+
+**Four Grilling Pop-Ups Worth Chasing Down**\
+`Burgers and hot dogs, yes, but also jerk oysters and crispy-bottomed seafood paella.`\
+https://nytimes.com/2024/07/18/dining/nyc-summer-pop-ups.html
+
 **For Biden and Harris, a Delicate and Sometimes Awkward Dance**\
 `Even as she has remained diligently loyal to President Biden, Vice President Kamala Harris has sought to avoid having her own political strengths denigrated.`\
 https://nytimes.com/2024/07/18/us/politics/biden-kamala-harris.html
