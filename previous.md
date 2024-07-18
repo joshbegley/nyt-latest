@@ -18,7 +18,7 @@ https://nytimes.com/athletic/5645323/2024/07/18/acc-florida-state-clemson-quinn-
 `Mason Greenwood has joined Marseille on a permanent transfer from Manchester United in a deal worth up to €31.`\
 https://nytimes.com/athletic/5641530/2024/07/18/mason-greenwood-marseille-transfer-manchester-united/
 
-**Jamie Raskin, a Key Democrat, Suggested to Biden That He Should Drop Out**\
+**Jamie Raskin, a Key Democrat, Urged Biden to Reconsider Campaign**\
 `Mr. Raskin, a congressman from Maryland, was a key member of the panel that investigated the Capitol riot. In a lengthy letter, he compared President Biden to a tiring baseball pitcher.`\
 https://nytimes.com/2024/07/18/us/politics/jamie-raskin-biden-letter.html
 

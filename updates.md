@@ -1,3 +1,7 @@
+**Jamie Raskin, a Key Democrat, Urged Biden to Reconsider Campaign**\
+`Mr. Raskin, a congressman from Maryland, was a key member of the panel that investigated the Capitol riot. In a lengthy letter, he compared President Biden to a tiring baseball pitcher.`\
+https://nytimes.com/2024/07/18/us/politics/jamie-raskin-biden-letter.html
+
 **Key Takeaways From the Republican Convention’s Message on Immigration**\
 `If the rhetoric on immigration at this week’s G.O.P. convention matches former President Donald J. Trump’s vision of isolationism, it has also grown darker and more conspiratorial.`\
 https://nytimes.com/2024/07/17/us/politics/rnc-immigration-trump-takeaways.html
