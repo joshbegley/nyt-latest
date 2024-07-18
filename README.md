@@ -1,3 +1,7 @@
+**Cubs move on from Seiya Suzuki’s interpreter and look ahead to second half of season**\
+`Nao Masamoto and Shota Imanaga's interpreter, Edwin Stanberry, will assist the Cubs in communicating with Suzuki.`\
+https://nytimes.com/athletic/5646131/2024/07/18/cubs-seiya-suzuki-interpreter/
+
 **6 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/07/18/books/review/new-books-recommendations.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/brooks-underestimating-trum
 **Germany Promised to Step Up Militarily. Its Budget Says Differently.**\
 `After Russia’s invasion of Ukraine, Chancellor Olaf Scholz vowed a revolution in defense strategy. But the math is not adding up.`\
 https://nytimes.com/2024/07/18/world/europe/germany-budget-military-spending.html
-
-**How Manchester United beat Real Madrid to the signing of Leny Yoro**\
-`United have landed Lille defender Yoro, considered a 'generational talent' at age 18 - this is the story of how they did it`\
-https://nytimes.com/athletic/5644891/2024/07/18/leny-yoro-transfer-manchester-united-real-madrid/
 
