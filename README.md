@@ -1,3 +1,11 @@
+**How Long Is Covid Contagious?**\
+`It’s a tricky question to answer, but experts say symptoms and rapid tests are still good guides.`\
+https://nytimes.com/2024/07/18/well/covid-contagious-period.html
+
+**Missouri Supreme Court Clears Release of Woman Who Spent 43 Years in Prison**\
+`Sandra Hemme, 64, was sentenced to life prison in 1981 for the killing of a library worker. Her case was recently overturned after new evidence established her innocence.`\
+https://nytimes.com/2024/07/18/us/sandra-hemme-missouri-supreme-court.html
+
 **Criticize Trump, but Don’t Demonize Him**\
 `We won’t preserve American democracy through silence and timidity.`\
 https://nytimes.com/2024/07/18/opinion/trump-assassination-violence.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/18/t-magazine/celine-jean-arp-ptolemy-necklace.html
 **Hall of Famer Lawrence Taylor arrested in Florida**\
 `Pro Football Hall of Famer Lawrence Taylor was arrested in Florida on Wednesday on a felony warrant for failing to report his residence change as a registered sex offender, the Pembroke Pines (Fla.`\
 https://nytimes.com/athletic/5645863/2024/07/18/lawrence-taylor-arrest-florida/
-
-**Three celebrities scheduled to take the convention stage on Thursday have made racist comments.**\
-`By Richard Fausset`\
-https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/rnc-tucker-carlson-kid-rock-hulk-hogan
-
-**Stream These 6 Great Bob Newhart Performances**\
-`Newhart, who died on Thursday, became a standup star in the early 1960s and later developed two hit sitcoms built around his nervous Everyman persona.`\
-https://nytimes.com/2024/07/18/arts/television/bob-newhart-stream-tv.html
 
