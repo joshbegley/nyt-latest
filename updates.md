@@ -1,3 +1,7 @@
+**Twins will open 2025 season vs. Cardinals, could face Sonny Gray**\
+`The Twins will open next season March 27 in St. Louis and could see their old friend. They host Houston in their home opener on April 3. `\
+https://nytimes.com/athletic/5645768/2024/07/18/twins-2025-opening-day-cardinals-sonny-gray/
+
 **Logan Sargeant stops caring about his critics as he fights for his future**\
 `“It’s quite a draining place,” Sargeant said of social media. “When you’re doing things well, of course people want to drag you down."`\
 https://nytimes.com/athletic/5645675/2024/07/18/f1-logan-sargeant-future-contract-williams/
