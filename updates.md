@@ -1,3 +1,11 @@
+**Lee Greenwood’s ‘God Bless the U.S.A.’ Has Become a Trump Rally Anthem**\
+`The country star answered the call to perform the song during the former president’s first public appearance after surviving an assassination attempt.`\
+https://nytimes.com/2024/07/17/us/politics/lee-greenwood-trump-god-bless-usa.html
+
+**Peter Navarro, the MAGA Martyr Who Went to Prison for You**\
+`His speech at the Republican National Convention was one of the more bizarre convention moments I’ve ever seen.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/peter-navarro-speech-convention
+
 **“You didn’t see these spy balloons under President Trump, did you?”**\
 `By Julian E. Barnes`\
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/you-didnt-see-these-spy-balloons-under-president-trump-did-you
