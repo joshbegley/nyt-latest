@@ -1,3 +1,7 @@
+**Tucker Carlson, Ousted by Fox, Roars Into Milwaukee as a Top Trump Ally**\
+`After time away from the spotlight, the right-wing host is increasingly welcomed by Trump’s inner circle. He also made a surprise visit to Fox’s convention studio.`\
+https://nytimes.com/2024/07/18/business/media/tucker-carlson-trump-rnc.html
+
 **Women’s basketball at the 2024 Paris Olympics: How to watch as U.S. goes for gold again**\
 `Check out the full schedule, TV info, roster breakdown and more for Team USA women's basketball as they go for another gold in Paris.`\
 https://nytimes.com/athletic/5643046/2024/07/18/womens-basketball-2024-paris-olympics-schedule-how-to-watch/
