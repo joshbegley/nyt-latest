@@ -1,3 +1,7 @@
+**Peter Navarro, the MAGA Martyr Who Went to Prison for You**\
+`His speech at the Republican National Convention was one of the more bizarre convention moments I’ve ever seen.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/peter-navarro-speech-convention
+
 **“You didn’t see these spy balloons under President Trump, did you?”**\
 `By Julian E. Barnes`\
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/you-didnt-see-these-spy-balloons-under-president-trump-did-you
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/17/us/hbcu-donation-president-resigns.html
 **Peter Navarro, Released From Prison, Gives Fiery Convention Speech**\
 `Mr. Navarro, a senior trade adviser in the Trump administration who served four months for defying a subpoena in the Jan. 6 investigation, received a hero’s welcome.`\
 https://nytimes.com/2024/07/17/us/politics/peter-navarro-rnc-speech.html
-
-**Inmate Dies After Fight Breaks Out at Troubled Brooklyn Jail**\
-`Edwin Cordero, 36, died at the Metropolitan Detention Center, where his lawyer said conditions were “awful.”`\
-https://nytimes.com/2024/07/17/nyregion/inmate-dies-metropolitan-detention-center.html
 
