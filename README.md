@@ -1,3 +1,7 @@
+**MLB teams trading draft picks, All-Star Game host qualifications, and more from Rob Manfred**\
+`MLB Commissioner Rob Manfred's All-Star Game media session hit on a number of issues and questions throughout the game. `\
+https://nytimes.com/athletic/5644770/2024/07/18/rob-manfred-mlb-draft-picks-all-star-game/
+
 **Five People Die on Mt. Fuji in Deadly Start to Climbing Season**\
 `Japanese officials are urging climbers to be more careful on the mountain after a string of deaths within weeks of the trails opening.`\
 https://nytimes.com/2024/07/18/us/mount-fuji-climbing-deaths.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/movies/crumb-catcher-review.html
 **‘Widow Clicquot’ Review: Champagne Mami**\
 `This muddled film, based on a true story, chronicles the origins of the French champagne house Veuve Clicquot.`\
 https://nytimes.com/2024/07/18/movies/widow-clicquot-review.html
-
-**‘Join or Die’ Review: Come Together**\
-`This documentary about the work of Robert Putnam, who wrote “Bowling Together,” argues that Americans can save democracy by becoming joiners.`\
-https://nytimes.com/2024/07/18/movies/join-or-die-review-come-together.html
 
