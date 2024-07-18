@@ -1,3 +1,19 @@
+**What Our Columnists Want to Hear From Trump**\
+`Here’s what they’ll be listening for.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-speech-convention
+
+**‘I Just Enjoy the Heck Out of Being Patriotic’**\
+`At the Republican National Convention, Americana fashion was on full display.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/republican-convention-fashion
+
+**Who will replace Nick Saban in leadership role in SEC?**\
+`With Saban retired, who will take over a leadership role for SEC football coaches?`\
+https://nytimes.com/athletic/5646315/2024/07/18/nick-saban-sec-college-football/
+
+**Executives Depart Cassava, Maker of Disputed Alzheimer’s Drug**\
+`The chief executive and a lead scientist stepped down weeks after a federal grand jury filed fraud charges against a research collaborator.`\
+https://nytimes.com/2024/07/18/health/cassava-barbier-alzheimers.html
+
 **Meta Said to Be in Talks for Minority Stake in Eyewear Maker**\
 `Meta is discussing taking a stake of as much as 5 percent of EssilorLuxottica, which makes eyewear brands like Ray-Ban and Oakley, people with knowledge of the talks said.`\
 https://nytimes.com/2024/07/18/technology/meta-minority-stake-eyewear.html

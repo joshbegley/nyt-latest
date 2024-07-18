@@ -1,3 +1,19 @@
+**What Our Columnists Want to Hear From Trump**\
+`Here’s what they’ll be listening for.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-speech-convention
+
+**‘I Just Enjoy the Heck Out of Being Patriotic’**\
+`At the Republican National Convention, Americana fashion was on full display.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/republican-convention-fashion
+
+**Who will replace Nick Saban in leadership role in SEC?**\
+`With Saban retired, who will take over a leadership role for SEC football coaches?`\
+https://nytimes.com/athletic/5646315/2024/07/18/nick-saban-sec-college-football/
+
+**Executives Depart Cassava, Maker of Disputed Alzheimer’s Drug**\
+`The chief executive and a lead scientist stepped down weeks after a federal grand jury filed fraud charges against a research collaborator.`\
+https://nytimes.com/2024/07/18/health/cassava-barbier-alzheimers.html
+
 **Meta Said to Be in Talks for Minority Stake in Eyewear Maker**\
 `Meta is discussing taking a stake of as much as 5 percent of EssilorLuxottica, which makes eyewear brands like Ray-Ban and Oakley, people with knowledge of the talks said.`\
 https://nytimes.com/2024/07/18/technology/meta-minority-stake-eyewear.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/07/18/us/oregon-fugitive-false-identity.html
 **How Long Is Covid Contagious?**\
 `It’s a tricky question to answer, but experts say symptoms and rapid tests are still good guides.`\
 https://nytimes.com/2024/07/18/well/covid-contagious-period.html
-
-**Missouri Supreme Court Clears Release of Woman Who Spent 43 Years in Prison**\
-`Sandra Hemme, 64, was sentenced to life prison in 1981 for the killing of a library worker. Her case was recently overturned after new evidence established her innocence.`\
-https://nytimes.com/2024/07/18/us/sandra-hemme-missouri-supreme-court.html
-
-**Criticize Trump, but Don’t Demonize Him**\
-`We won’t preserve American democracy through silence and timidity.`\
-https://nytimes.com/2024/07/18/opinion/trump-assassination-violence.html
-
-**Lou Dobbs, Former Fox Business Host and Trump Booster, Dies at 78**\
-`He rose to prominence as a critic of immigration policies. His Fox Business program was canceled in 2021 after the network was sued for defamation over election fraud claims.`\
-https://nytimes.com/2024/07/18/business/media/lou-dobbs-dead.html
-
-**What to Know About Kimberly Cheatle, the Secret Service Director**\
-`She has spent more than 20 years with the agency and provided security for President Bill Clinton, Vice President Dick Cheney and other leaders.`\
-https://nytimes.com/2024/07/18/us/kimberly-cheatle-secret-service.html
 
