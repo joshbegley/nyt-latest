@@ -1,3 +1,11 @@
+**The Bounce: Jaylen Brown's Bronny moment caps wild month**\
+`Zach Harper and Shams Charania catch you up on league-wide news.`\
+https://nytimes.com/athletic/5645255/2024/07/18/jaylen-brown-bronny-james-nba-summer-league-la-clippers-the-bounce/
+
+**For Golden State, how untouchable is Brandin Podziemski?**\
+`The guard has emerged as a potential swing piece in a possible Lauri Markkanen deal. For both the Warriors and Jazz, his value is clear.`\
+https://nytimes.com/athletic/5644201/2024/07/18/brandin-podziemski-warriors-jazz-lauri-markkanen-trade/
+
 **Democrats in Disarray Over Biden**\
 `Readers discuss growing pressure for him to step aside and an essay by Bernie Sanders supporting him. Also: God and Trump; a raised fist; the First Amendment.`\
 https://nytimes.com/2024/07/18/opinion/joe-biden-democrats-disarray.html
