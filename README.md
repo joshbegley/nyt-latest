@@ -1,3 +1,15 @@
+**Amid Uncertainty, Biden Campaign Tries to Keep Control of Delegates**\
+`The campaign is quietly reaching out to its pledged convention delegates to ensure they are still on board. But some want a change.`\
+https://nytimes.com/2024/07/18/us/politics/biden-delegates-democrats.html
+
+**Ford Will Make Gasoline Trucks, Not Electric Vehicles, in Ontario Plant**\
+`Ford will build large pickups at a Canadian factory that it had previously slated to produce electric vehicles, sales of which have slowed in recent months.`\
+https://nytimes.com/2024/07/18/business/ford-electric-vehicles-canada.html
+
+**Pelosi Told Biden She Is Pessimistic About His Chances to Win Re-Election**\
+`The former speaker has been marshaling her knowledge of the political map, polling data and fund-raising information to press her case with President Biden.`\
+https://nytimes.com/2024/07/18/us/politics/pelosi-told-biden-she-is-pessimistic-about-his-chances-to-win-re-election.html
+
 **Tucker Carlson, Ousted by Fox, Roars Into Milwaukee as a Top Trump Ally**\
 `After time away from the spotlight, the right-wing host is increasingly welcomed by Trump’s inner circle. He also made a surprise visit to Fox’s convention studio.`\
 https://nytimes.com/2024/07/18/business/media/tucker-carlson-trump-rnc.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/18/us/biden-election-news/democrats-wrestle-wit
 **The Art Forger Had Fooled Thousands. Then He Met Doug.**\
 `When a man obsessed with woodblocks began to do business with a man obsessed with medical antiques, their relationship flowered — until it soured.`\
 https://nytimes.com/2024/07/18/arts/earl-washington-woodblocks-art-fraud.html
-
-**Grilled Chicken With Arugula Pesto, Buttermilk Potato Salad With Preserved Lemon**\
-`We’ve reached late July. Time to have some fun with our pestos and potato salads.`\
-https://nytimes.com/2024/07/18/dining/grilled-chicken-with-arugula-pesto-buttermilk-potato-salad-with-preserved-lemon.html
-
-**Even This Tinder Executive Thinks It’s Good to Meet I.R.L.**\
-`Melissa Hobley believes in the power of dating apps, but she’s been moonlighting as an old-fashioned matchmaker for over a decade.`\
-https://nytimes.com/2024/07/18/style/tinder-cmo-matchmaker.html
-
-**A 12-Minute Workout to Build Foot Strength**\
-`Five exercises a few times a week can make a big difference for how you walk and run.`\
-https://nytimes.com/2024/07/18/well/move/foot-workout-exercises.html
 
