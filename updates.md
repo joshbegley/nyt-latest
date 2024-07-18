@@ -1,4 +1,8 @@
 **At R.N.C., Senators Berate Secret Service Director Over Assassination Attempt**\
+`The lawmakers wanted answers about security lapses at the Trump rally in Pennsylvania on Saturday.`\
+https://nytimes.com/2024/07/17/us/politics/rnc-senators-secret-service.html
+
+**At R.N.C., Senators Berate Secret Service Director Over Assassination Attempt**\
 `By Jonathan Swan`\
 https://nytimes.com/2024/07/17/us/politics/at-rnc-senators-berate-secret-service-director-over-assassination-attempt.html
 
