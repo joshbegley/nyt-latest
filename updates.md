@@ -1,3 +1,7 @@
+**Group of Assets**\
+`Like the TARDIS in “Doctor Who,” Kareem Ayas’s puzzle travels through time and space.`\
+https://nytimes.com/2024/07/17/crosswords/daily-puzzle-2024-07-18.html
+
 **Lee Greenwood’s ‘God Bless the U.S.A.’ Has Become a Trump Rally Anthem**\
 `The country star answered the call to perform the song during the former president’s first public appearance after surviving an assassination attempt.`\
 https://nytimes.com/2024/07/17/us/politics/lee-greenwood-trump-god-bless-usa.html
