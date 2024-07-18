@@ -1,3 +1,7 @@
+**Real Madrid's Iago set to join Sporting Lisbon**\
+`Paulo Iago is set to join Sporting Lisbon and leave Real Madrid following ten years at the academy.`\
+https://nytimes.com/athletic/5645333/2024/07/18/paulo-iago-sporting-lisbon-real-madrid/
+
 **Why the Era of China’s Soaring Carbon Emissions Might Be Ending**\
 `Analysts are seeing promising signs from the world’s biggest emitter of greenhouse gases.`\
 https://nytimes.com/2024/07/18/climate/china-greenhouse-gas-emissions-plateau.html
