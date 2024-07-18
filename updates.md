@@ -1,3 +1,7 @@
+**Why This Star of Georgian Film Isn’t Showing His New Movie in Georgia**\
+`The director Levan Akin is worried that his latest film, “Crossing,” will inflame tensions around L.G.B.T. visibility in the post-Soviet nation.`\
+https://nytimes.com/2024/07/18/movies/crossing-levan-akin-georgia-lgbt.html
+
 **China’s Leaders Offer High Hopes, but Few Details for Road to Recovery**\
 `Top officials emerged from a high-stakes meeting about lifting the economy out of its malaise with few signs of a fundamental rethink.`\
 https://nytimes.com/2024/07/18/business/china-economy-plenum-takeaways.html
