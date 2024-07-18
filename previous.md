@@ -1,40 +1,40 @@
+**About 1,000 ultra-Orthodox men will receive initial orders, the Israeli defense minister said.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/07/18/world/israel-gaza-war-hamas/about-1000-ultra-orthodox-men-will-receive-initial-orders-the-israeli-defense-minister-said
+
+**Democrats wrestle with a rift while Republicans put on a show of unity.**\
+`The discontent with President Biden has not faded and tempers are fraying as he insists on staying in the race over the objections of some fellow Democrats who worry that he cannot win.`\
+https://nytimes.com/live/2024/07/18/us/biden-election-news/democrats-wrestle-with-a-rift-while-republicans-put-on-a-show-of-unity
+
+**The Art Forger Had Fooled Thousands. Then He Met Doug.**\
+`When a man obsessed with woodblocks began to do business with a man obsessed with medical antiques, their relationship flowered — until it soured.`\
+https://nytimes.com/2024/07/18/arts/earl-washington-woodblocks-art-fraud.html
+
+**Grilled Chicken With Arugula Pesto, Buttermilk Potato Salad With Preserved Lemon**\
+`We’ve reached late July. Time to have some fun with our pestos and potato salads.`\
+https://nytimes.com/2024/07/18/dining/grilled-chicken-with-arugula-pesto-buttermilk-potato-salad-with-preserved-lemon.html
+
+**Even This Tinder Executive Thinks It’s Good to Meet I.R.L.**\
+`Melissa Hobley believes in the power of dating apps, but she’s been moonlighting as an old-fashioned matchmaker for over a decade.`\
+https://nytimes.com/2024/07/18/style/tinder-cmo-matchmaker.html
+
+**A 12-Minute Workout to Build Foot Strength**\
+`Five exercises a few times a week can make a big difference for how you walk and run.`\
+https://nytimes.com/2024/07/18/well/move/foot-workout-exercises.html
+
+**For a Strong Body, You Need Strong Feet**\
+`These three simple tests could save you a lot of pain in the long run.`\
+https://nytimes.com/2024/07/18/well/move/foot-strength-toes-fitness.html
+
+**J.D. Vance Becomes Trump’s New Apprentice**\
+`In his prime-time debut, the senator and “Hillbilly Elegy” author showed what he has to offer his running mate.`\
+https://nytimes.com/2024/07/18/arts/television/jd-vance-trump-apprentice.html
+
+**A Party Now Molded in Trump’s Image Prepares for a Coronation**\
+`Thursday night, when Donald J. Trump accepts the Republican presidential nomination for the third time, will be the culmination of an extraordinary run of good fortune.`\
+https://nytimes.com/2024/07/18/us/politics/trump-rnc-republican-nominee.html
+
 **U.K. Failed in Handling of Covid Pandemic, Inquiry Finds**\
 `The British authorities prepared for the wrong pandemic, with an outdated plan overly focused on influenza, an official investigation reported.`\
 https://nytimes.com/2024/07/18/world/europe/uk-covid-pandemic-inquiry-report.html
-
-**MSNBC’s Joe Scarborough Urges Biden’s Advisers to ‘Do the Right Thing’**\
-`The host, who had been blunt but sympathetic toward Mr. Biden after the president’s debate performance, all but called on aides to help him exit the race.`\
-https://nytimes.com/2024/07/18/us/politics/biden-joe-scarborough-election-withdraw.html
-
-**A Letter to a Student From The New York Times Learning Network**\
-`When we ran our new Open Letters Contest, we never imagined that a teenager would choose us as the recipient. Here is our response.`\
-https://nytimes.com/2024/07/18/learning/a-letter-to-a-student-from-the-new-york-times-learning-network.html
-
-**Here’s the latest on the Democratic campaign.**\
-`By Michael D. Shear`\
-https://nytimes.com/live/2024/07/18/us/biden-election-news/heres-the-latest-on-the-democratic-campaign
-
-**Knicks roster analysis: Cameron Payne signs, Precious Achiuwa lingers and more**\
-`Head coach Tom Thibodeau is entering the final season of his contract and could re-up for more years soon.`\
-https://nytimes.com/athletic/5645318/2024/07/18/knicks-roster-analysis-precious-achiuwa-cameron-payne/
-
-**A Letter From a ‘Loser’**\
-`We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Anya Wang, age 16.`\
-https://nytimes.com/2024/07/18/learning/a-letter-from-a-loser.html
-
-**Why the Era of China’s Soaring Carbon Emissions Might Be Ending**\
-`Analysts are seeing promising signs from the world’s biggest emitter of greenhouse gases.`\
-https://nytimes.com/2024/07/18/climate/china-greenhouse-gas-emissions-plateau.html
-
-**A Daily Pill to Prevent S.T.I.s? It May Work, Scientists Say.**\
-`A common antibiotic, doxycycline, greatly reduced cases of syphilis, gonorrhea and chlamydia when taken every day, a study found.`\
-https://nytimes.com/2024/07/18/health/doxycycline-sti.html
-
-**E.C.B. Leaves Rates Unchanged but Keeps Door Open for September**\
-`The central bank left its key deposit rate at 3.75 percent as inflation in the eurozone is expected to fluctuate throughout the rest of the year.`\
-https://nytimes.com/2024/07/18/business/european-central-bank-interest-rates.html
-
-**Readers Pick Their 100 Best Books of the 21st Century**\
-`The people have spoken. Here are the books they voted for.`\
-https://nytimes.com/interactive/2024/books/reader-best-books-21st-century.html
 
