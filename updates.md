@@ -1,3 +1,15 @@
+**N.Y. Democrats Split Over Councilwoman Charged With Biting Police Chief**\
+`Susan Zhuang, a new City Council member from Queens, was charged with assault for biting a police officer. Democrats are divided over how harshly to reprimand her.`\
+https://nytimes.com/2024/07/18/nyregion/zhuang-bite-police-council.html
+
+**U.S. Treasury sanctions seek to financially cripple the Yemeni rebels attacking Red Sea shipping.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/07/18/world/israel-gaza-war-hamas/us-treasury-sanctions-seek-to-financially-cripple-the-yemeni-rebels-attacking-red-sea-shipping
+
+**The Irreconcilable Versions of J.D. Vance in ‘Hillbilly Elegy’**\
+`Even before the Republican vice-presidential nominee aligned himself with Donald Trump, contradiction was central to his rags-to-riches biography.`\
+https://nytimes.com/2024/07/18/us/politics/jd-vance-hillbilly-elegy.html
+
 **Ever Elusive, Melania Trump Is Expected to Appear at G.O.P. Convention**\
 `The former first lady skipped much of the Trump family reunion in Milwaukee this week.`\
 https://nytimes.com/2024/07/18/us/politics/melania-trump-2024-campaign-republicans.html
