@@ -1,3 +1,7 @@
+**A Blind Spot and a Lost Trail: How the Gunman Got So Close to Trump**\
+`Even though the local police was on the lookout for a suspicious man, critical minutes ticked by, allowing a would-be assassin to slip past them, a Times analysis found.`\
+https://nytimes.com/2024/07/17/us/politics/secret-service-trump-shooting.html
+
 **“Your favorite Democrat, Nancy Pelosi, created your favorite committee, the Jan. 6 committee, which demanded that I violate executive privilege.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/your-favorite-democrat-nancy-pelosi-created-your-favorite-committee-the-jan-6-committee-which-demanded-that-i-violate-executive-
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/17/us/politics/jd-vance-abortion.html
 **Nevada Conservative Accused of Fraud Over Fund-Raising for Charity**\
 `Michele Fiore, a colorful figure in the state’s politics, took donations intended for a slain officer’s statue and used them for personal expenses, prosecutors said.`\
 https://nytimes.com/2024/07/17/us/michele-fiore-las-vegas-fraud.html
-
-**NASA Spent $450 Million on a Moon Rover. Now It’s Canceling the Mission.**\
-`Delays and concerns about NASA’s future budgets doomed the VIPER mission, which aimed to search for ice near the moon’s south pole.`\
-https://nytimes.com/2024/07/17/science/nasa-viper-moon-rover-canceled.html
 
