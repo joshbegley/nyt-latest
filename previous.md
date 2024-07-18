@@ -1,3 +1,15 @@
+**Open Championship Round 1 analysis: What to know on Daniel Brown's hot start, more**\
+`For the second straight year the Round 1 leader at The Open is a first-time participant.`\
+https://nytimes.com/athletic/5646402/2024/07/18/open-championship-round-1-analysis-what-to-know-on-daniel-browns-hot-start-more/
+
+**Summer Dating Essentials? Indoor Activities and Lots of Deodorant.**\
+`Summers are miserable. Dating doesn’t have to be.`\
+https://nytimes.com/2024/07/18/style/summer-dating-essentials.html
+
+**The speaker list snubs some Trump loyalists in Congress.**\
+`By Annie Karni`\
+https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/the-speaker-list-snubs-some-trump-loyalists-in-congress
+
 **Kid Rock will bring his provocative style to the stage before Trump’s speech.**\
 `By Ben Sisario`\
 https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/kid-rock-will-bring-provocative-style-to-the-stage-before-trumps-speech
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5646414/2024/07/18/daniel-brown-open-championship-r
 **Biden Appears to Begin Considering Dropping Out, People Close to Him Say**\
 `Also, lawmakers call Secret Service’s mistakes inexcusable. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/07/18/briefing/biden-drop-out-trump-convention-speech.html
-
-**Pressure Builds on Netanyahu as Visit to Washington Nears**\
-`A planned speech to Congress by Prime Minister Benjamin Netanyahu has made clear the serious divisions he faces back home.`\
-https://nytimes.com/2024/07/18/world/middleeast/netanyahu-gaza-congress-speech.html
-
-**What Our Columnists Want to Hear From Trump**\
-`Here’s what they’ll be listening for.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-speech-convention
-
-**‘I Just Enjoy the Heck Out of Being Patriotic’**\
-`At the Republican National Convention, Americana fashion was on full display.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/republican-convention-fashion
 
