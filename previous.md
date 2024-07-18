@@ -1,3 +1,7 @@
+**“Your favorite Democrat, Nancy Pelosi, created your favorite committee, the Jan. 6 committee, which demanded that I violate executive privilege.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/your-favorite-democrat-nancy-pelosi-created-your-favorite-committee-the-jan-6-committee-which-demanded-that-i-violate-executive-
+
 **Menendez Tells Allies He Is Considering Resigning After Conviction**\
 `Senator Robert Menendez of New Jersey was found guilty on Tuesday in a sweeping corruption scheme and faces a potential expulsion vote.`\
 https://nytimes.com/2024/07/17/nyregion/robert-menendez-political-future.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/17/us/michele-fiore-las-vegas-fraud.html
 **NASA Spent $450 Million on a Moon Rover. Now It’s Canceling the Mission.**\
 `Delays and concerns about NASA’s future budgets doomed the VIPER mission, which aimed to search for ice near the moon’s south pole.`\
 https://nytimes.com/2024/07/17/science/nasa-viper-moon-rover-canceled.html
-
-**LSU beats Oregon, Miami for 5-star DB DJ Pickett**\
-`Pickett is the third blue-chipper from Florida and the third five-star prospect in the Tigers' 2025 recruiting class.`\
-https://nytimes.com/athletic/5643273/2024/07/17/lsu-recruiting-dj-pickett-commits/
 

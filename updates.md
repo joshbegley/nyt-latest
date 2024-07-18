@@ -1,3 +1,7 @@
+**“Your favorite Democrat, Nancy Pelosi, created your favorite committee, the Jan. 6 committee, which demanded that I violate executive privilege.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/your-favorite-democrat-nancy-pelosi-created-your-favorite-committee-the-jan-6-committee-which-demanded-that-i-violate-executive-
+
 **Menendez Tells Allies He Is Considering Resigning After Conviction**\
 `Senator Robert Menendez of New Jersey was found guilty on Tuesday in a sweeping corruption scheme and faces a potential expulsion vote.`\
 https://nytimes.com/2024/07/17/nyregion/robert-menendez-political-future.html
