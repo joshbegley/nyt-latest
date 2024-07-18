@@ -1,3 +1,11 @@
+**“Meanwhile pro-crime district attorneys have turned our cities into giant crime zones.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/meanwhile-pro-crime-district-attorneys-have-turned-our-cities-into-giant-crime-zones
+
+**Sheriff’s Deputy Faces Charges in Death of Illinois Woman**\
+`The deputy, Sean Grayson, has since been fired. A review of the investigation did not find the use of deadly force “justified.”`\
+https://nytimes.com/2024/07/17/us/sonya-massey-illinois-deputy-charged.html
+
 **Corrections: July 18, 2024**\
 `Corrections that appeared in print on Thursday, July 18, 2024.`\
 https://nytimes.com/2024/07/17/pageoneplus/corrections-july-18-2024.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/17/us/politics/lee-greenwood-trump-god-bless-usa.htm
 **Peter Navarro, the MAGA Martyr Who Went to Prison for You**\
 `His speech at the Republican National Convention was one of the more bizarre convention moments I’ve ever seen.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/peter-navarro-speech-convention
-
-**“You didn’t see these spy balloons under President Trump, did you?”**\
-`By Julian E. Barnes`\
-https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/you-didnt-see-these-spy-balloons-under-president-trump-did-you
-
-**President Biden “is focused on building electric tanks.”**\
-`By Lisa Friedman`\
-https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/president-biden-is-focused-on-building-electric-tanks
 
