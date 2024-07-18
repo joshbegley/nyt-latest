@@ -1,3 +1,7 @@
+**Phoenix Mercury unveil new 'crown jewel' practice facility**\
+`The $100 million practice facility is the third to be built in the WNBA in the last two years.`\
+https://nytimes.com/athletic/5645249/2024/07/18/phoenix-mercury-facility-wnba/
+
 **The Windup: Which managers are on hot-seat watch?**\
 `Levi Weaver and Ken Rosenthal catch you up on league-wide news.`\
 https://nytimes.com/athletic/5645561/2024/07/18/mlb-manager-changes-automated-strike-zone-olympics-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/us/politics/tipped-wages-taxes-donald-trump-econo
 **Amid Uncertainty, Biden Campaign Tries to Keep Control of Delegates**\
 `The campaign is quietly reaching out to its pledged convention delegates to ensure they are still on board. But some want a change.`\
 https://nytimes.com/2024/07/18/us/politics/biden-delegates-democrats.html
-
-**Ford Will Make Gasoline Trucks, Not Electric Vehicles, in Ontario Plant**\
-`Ford will build large pickups at a Canadian factory that it had previously slated to produce electric vehicles, sales of which have slowed in recent months.`\
-https://nytimes.com/2024/07/18/business/ford-electric-vehicles-canada.html
 
