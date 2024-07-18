@@ -1,3 +1,7 @@
+**Pat Williams, Charismatic N.B.A. Executive, Is Dead at 84**\
+`Known for his unorthodox marketing practices, Mr. Williams, a founder of the Orlando Magic, was sometimes called the P.T. Barnum of professional basketball.`\
+https://nytimes.com/2024/07/18/sports/pat-williams-dead.html
+
 **Until Saturday: Latest on FSU and Clemson vs. ACC and Texas' Quinn Ewers**\
 `Welcome to Until Saturday, the five-star college football newsletter: More on the ACC's legal drama and Ewers.`\
 https://nytimes.com/athletic/5645323/2024/07/18/acc-florida-state-clemson-quinn-ewers-texas-until-saturday/
