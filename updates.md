@@ -1,3 +1,7 @@
+**Caitlin Clark breaks WNBA single-game assist record**\
+`Clark is leading first-year players in scoring and assists and is fourth in the league in 3-pointers made (69).`\
+https://nytimes.com/athletic/5644663/2024/07/17/caitlin-clark-wnba-most-assists-indiana-fever/
+
 **Group of Assets**\
 `Like the TARDIS in “Doctor Who,” Kareem Ayas’s puzzle travels through time and space.`\
 https://nytimes.com/2024/07/17/crosswords/daily-puzzle-2024-07-18.html
