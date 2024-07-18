@@ -1,3 +1,23 @@
+**“Let’s look at Biden’s E.V. mandates.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/lets-look-at-bidens-ev-mandates
+
+**“He is using mandates to shut down reliable baseload electricity. That is why your electric bills have shot upwards.”**\
+`By Lisa Friedman`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/he-is-using-mandates-to-shut-down-reliable-baseload-electricity-that-is-why-your-electric-bills-have-shot-upwards
+
+**Kimberly Guilfoyle’s 2020 R.N.C. Speech Was Widely Mocked**\
+`Her volume seemed to draw the most attention four years ago.`\
+https://nytimes.com/2024/07/17/us/politics/kimberly-guilfoyle-2020-rnc-speech.html
+
+**President of Florida A&M Resigns Amid Donation Controversy**\
+`Larry Robinson took responsibility for accepting a $237 million gift that is now on hold and under investigation.`\
+https://nytimes.com/2024/07/17/us/hbcu-donation-president-resigns.html
+
+**From prison to the podium, Peter Navarro receives a hero’s welcome and gives a fiery convention speech.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/from-prison-to-the-podium-peter-navarro-receives-a-heros-welcome-and-gives-a-fiery-convention-speech
+
 **Inmate Dies After Fight Breaks Out at Troubled Brooklyn Jail**\
 `Edwin Cordero, 36, died at the Metropolitan Detention Center, where his lawyer said conditions were “awful.”`\
 https://nytimes.com/2024/07/17/nyregion/inmate-dies-metropolitan-detention-center.html
@@ -17,24 +37,4 @@ https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/your-fa
 **Menendez Tells Allies He Is Considering Resigning After Conviction**\
 `Senator Robert Menendez of New Jersey was found guilty on Tuesday in a sweeping corruption scheme and faces a potential expulsion vote.`\
 https://nytimes.com/2024/07/17/nyregion/robert-menendez-political-future.html
-
-**A Fist Pump and a Flag: Trump Sneakers for Sale**\
-`A website with close ties to Donald Trump is selling $300 sneakers commemorating his brush with death.`\
-https://nytimes.com/2024/07/17/us/politics/trump-sneakers-assassination-attempt.html
-
-**“Biden’s F.B.I. has even stated that practicing Catholics present an elevated risk of domestic terrorism simply because of their faith.”**\
-`By Angelo Fichera`\
-https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/bidens-fbi-has-even-stated-that-practicing-catholics-present-an-elevated-risk-of-domestic-terrorism-simply-because-of-their-fait
-
-**“She was appointed the border czar.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/she-was-appointed-the-border-czar
-
-**“Iran is waging a war in Israel and Gaza, with help from Joe Biden.”**\
-`By Julian E. Barnes`\
-https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/iran-is-waging-a-war-in-israel-and-gaza-with-help-from-joe-biden
-
-**There’s No Zealot Like a Trump Convert**\
-`The Republican Party is full of people who have changed their minds about the former president.`\
-https://nytimes.com/2024/07/17/us/politics/vance-speech-rnc-trump.html
 

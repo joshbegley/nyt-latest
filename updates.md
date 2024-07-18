@@ -1,3 +1,7 @@
+**A Blind Spot and a Lost Trail: How the Gunman Got So Close to Trump**\
+`Even though local police were on the lookout for a suspicious man, critical minutes ticked by, allowing a would-be assassin to slip past, a Times analysis found.`\
+https://nytimes.com/2024/07/17/us/politics/secret-service-trump-shooting.html
+
 **Inmate Dies After Fight Breaks Out at Troubled Brooklyn Jail**\
 `Edwin Cordero, 36, died at the Metropolitan Detention Center, where his lawyer said conditions were “awful.”`\
 https://nytimes.com/2024/07/17/nyregion/inmate-dies-metropolitan-detention-center.html
