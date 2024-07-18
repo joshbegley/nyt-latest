@@ -1,3 +1,11 @@
+**At R.N.C., Senators Berate Secret Service Director Over Assassination Attempt**\
+`By Jonathan Swan`\
+https://nytimes.com/2024/07/17/us/politics/at-rnc-senators-berate-secret-service-director-over-assassination-attempt.html
+
+**“Joe Biden is willing to buy energy from tinpot dictators but not hard-working Americans right here at home.”**\
+`By Lisa Friedman`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/joe-biden-is-willing-to-buy-energy-from-tinpot-dictators-but-not-hard-working-americans-right-here-at-home
+
 **“Somehow, a real estate developer from New York City by the name of Donald J. Trump was right on all of these issues while Biden was wrong.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/somehow-a-real-estate-developer-from-new-york-city-by-the-name-of-donald-j-trump-was-right-on-all-of-these-issues-while-biden-wa
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/07/17/us/politics/rnc-quotes-scenes.html
 **Caitlin Clark breaks WNBA single-game assist record**\
 `Clark is leading first-year players in scoring and assists and is fourth in the league in 3-pointers made (69).`\
 https://nytimes.com/athletic/5644663/2024/07/17/caitlin-clark-wnba-most-assists-indiana-fever/
-
-**Group of Assets**\
-`Like the TARDIS in “Doctor Who,” Kareem Ayas’s puzzle travels through time and space.`\
-https://nytimes.com/2024/07/17/crosswords/daily-puzzle-2024-07-18.html
-
-**Lee Greenwood’s ‘God Bless the U.S.A.’ Has Become a Trump Rally Anthem**\
-`The country star answered the call to perform the song during the former president’s first public appearance after surviving an assassination attempt.`\
-https://nytimes.com/2024/07/17/us/politics/lee-greenwood-trump-god-bless-usa.html
 
