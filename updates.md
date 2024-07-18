@@ -1,3 +1,7 @@
+**Cubs move on from Seiya Suzuki’s interpreter and look ahead to second half of season**\
+`Nao Masamoto and Shota Imanaga's interpreter, Edwin Stanberry, will assist the Cubs in communicating with Suzuki.`\
+https://nytimes.com/athletic/5646131/2024/07/18/cubs-seiya-suzuki-interpreter/
+
 **6 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/07/18/books/review/new-books-recommendations.html
