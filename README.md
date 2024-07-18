@@ -1,3 +1,11 @@
+**How Elon Musk Chose Trump**\
+`The world’s richest man, once deeply skeptical of Donald J. Trump, has now endorsed him and has emerged as a central character in the presidential race.`\
+https://nytimes.com/2024/07/18/us/politics/elon-musk-trump.html
+
+**Here are four takeaways from the Republican convention’s message on immigration.**\
+`By Jazmine Ulloa, Ken Bensinger and Nick Corasaniti`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/rnc-immigration-trump-takeaways
+
 **Traditional Marriage for Thee, but Not for J.D. Vance**\
 `He refers to the elite as if he is not part of it, but then, in all of his lifestyle choices, he acts like any other Ivy League grad.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/vance-wife-marriage
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/18/dining/tomatoes-and-peaches-summer-bffs.html
 **A Vegetable Lover’s Guide to the Grill**\
 `These five easy recipes and tips turn savory charred vegetables into fresh, filling main dishes.`\
 https://nytimes.com/2024/07/18/dining/grill-vegetarian-dinner-recipes.html
-
-**Several Protesters Killed in Clashes with Police in Bangladesh**\
-`Tens of thousands of Bangladeshi citizens joined students who have been protesting for weeks against a quota system for government jobs that benefits certain groups.`\
-https://nytimes.com/video/world/asia/100000009578970/bangladesh-student-protests-dhaka.html
-
-**Sell Steven Kwan, buy Francisco Lindor and more fantasy baseball deals to make for the second half**\
-`Michael Salfino identifies three hitters to buy low, and three to sell high as you embark on the second half of fantasy baseball 2024.`\
-https://nytimes.com/athletic/5645684/2024/07/18/fantasy-baseball-second-half-buy-low-sell-high/
 
