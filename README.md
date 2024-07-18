@@ -1,3 +1,7 @@
+**Read Jamie Raskin’s letter**\
+`In a July 6 letter, Mr. Raskin, a congressman from Maryland, compared President Biden to a tiring baseball pitcher and suggested that he should reconsider his campaign.`\
+https://nytimes.com/interactive/2024/07/18/us/raskinletter.html
+
 **We Underestimated Trump**\
 `He has campaigned smartly, and has shifted the governing philosophy of the Republican Party.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/brooks-underestimating-trump-convention
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5645975/2024/07/18/russell-westbrook-trade-jazz-cli
 **Founder of Fandango Dies After Plunge From Manhattan Hotel**\
 `J. Michael Cline was the co-founder of an online ticketing company that changed how Americans went to the movies.`\
 https://nytimes.com/2024/07/18/nyregion/fandango-j-michael-cline-dead.html
-
-**Royal Troon’s changing winds brought carnage to this Open Championship**\
-`Double- and triple-bogeys stacked up all morning as some of the best players in the world were humbled by the golf course.`\
-https://nytimes.com/athletic/5645798/2024/07/18/open-championship-royal-troon-wind-first-round/
 
