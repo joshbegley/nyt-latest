@@ -1,3 +1,11 @@
+**What Democrats Need to Do Now**\
+`If Democrats hope to win, they have to take the MAGA worldview seriously and respectfully make the case, especially to working-class voters, for something better.`\
+https://nytimes.com/2024/07/18/opinion/maga-trump-vance-democrats.html
+
+**J.D. Vance Puts the Con in Conservatism**\
+`He’s a “populist” who holds contempt for the working class.`\
+https://nytimes.com/2024/07/18/opinion/jd-vance-hillbilly-elegy.html
+
 **Open Championship Round 1 analysis: What to know on Daniel Brown's hot start, more**\
 `For the second straight year the Round 1 leader at The Open is a first-time participant.`\
 https://nytimes.com/athletic/5646402/2024/07/18/open-championship-round-1-analysis-what-to-know-on-daniel-browns-hot-start-more/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/18/us/politics/biden-covid-democrats.html
 **Vance Lays Out a Blue-Collar Vision That Clashes With Trump’s Record**\
 `J.D. Vance, the Republicans’ vice-presidential nominee, wants to center the working class in a Trump second term, but economists on the left and right question whether his prescriptions would actually help.`\
 https://nytimes.com/2024/07/18/us/politics/vance-jobs-tariffs-economists.html
-
-**Daniel Brown leads after Round 1 of The Open Championship**\
-`Playing in his first major championship, let alone his first Open, Brown led the field in strokes gained off the tee.`\
-https://nytimes.com/athletic/5646414/2024/07/18/daniel-brown-open-championship-round-one/
-
-**Biden Appears to Begin Considering Dropping Out, People Close to Him Say**\
-`Also, lawmakers call Secret Service’s mistakes inexcusable. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2024/07/18/briefing/biden-drop-out-trump-convention-speech.html
 
