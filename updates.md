@@ -1,3 +1,7 @@
+**Man Utd Women trigger Parris contract extension**\
+`Manchester United have activated a one-year option on Nikita Parris&#8217; contract to extend her stay at the club until 2025.`\
+https://nytimes.com/athletic/5645129/2024/07/18/nikita-parris-manchester-united-contract/
+
 **Padres second-half storylines to watch, starting with the trade deadline**\
 `Though the Padres remain just one game back of the final wild card, they face stiff a stiff challenge with their pitching and their health`\
 https://nytimes.com/athletic/5642744/2024/07/18/padres-second-half-storylines/
