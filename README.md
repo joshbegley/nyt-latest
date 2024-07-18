@@ -1,7 +1,3 @@
-**People Close to Biden Say He Appears to Accept He May Have to Leave the Race**\
-`One person familiar with President Biden’s thinking cautioned that he had not yet made up his mind to leave the race, after three weeks of insisting that almost nothing would drive him out.`\
-https://nytimes.com/2024/07/18/us/politics/biden-election-drop-out.html
-
 **The Open Championship psychology: How to thrive at one of golf's toughest tests**\
 `The key to winning at Royal Troon is dealing with the right shot gone poorly.`\
 https://nytimes.com/athletic/5646271/2024/07/18/open-championship-golf-mental/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/07/18/world/europe/italy-journalist-defamation-meloni.h
 **It’s Time for Democrats to Hold Hands and Jump**\
 `Those who want a new presidential nominee need to go public.`\
 https://nytimes.com/2024/07/18/opinion/democrats-biden-drop-out.html
+
+**‘The Bite’: Democrats Debate Councilwoman’s Bizarre Assault Charge**\
+`Susan Zhuang, a first-year City Council member from Brooklyn, was charged with assault for biting a police officer. Democrats are split over how harshly to reprimand her.`\
+https://nytimes.com/2024/07/18/nyregion/zhuang-bite-police-council.html
 
