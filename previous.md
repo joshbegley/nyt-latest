@@ -1,3 +1,27 @@
+**Appeals Court Blocks Biden’s Student Loan Repayment Plan, Causing Uncertainty**\
+`Eight million borrowers who are enrolled in the plan, known as SAVE, are left in limbo after a series of rulings tied to two lawsuits brought by Republican-led states.`\
+https://nytimes.com/2024/07/18/business/biden-student-loans-save-block.html
+
+**Kamala Harris Wastes No Time in Attacking J.D. Vance**\
+`As Democratic speculation grew that President Biden might be forced to give way to his vice president, she rallied supporters in North Carolina and went after her new counterpart on the Republican ticket.`\
+https://nytimes.com/live/2024/07/18/us/biden-election-news/kamala-harris-jd-vance-speech
+
+**Palestinian Bid to Ban Israel From Soccer Is Put Off**\
+`A decision by FIFA to delay the resolution of a bitter dispute until August will allow Israel to take part in the men’s tournament at the Paris Olympics.`\
+https://nytimes.com/2024/07/18/sports/fifa-israel-soccer.html
+
+**Oregon Fugitive Found After Having Used a Stolen Identity for 30 Years**\
+`The escaped prisoner was living in Macon, Ga., for over a decade and was using the identity of a child who died in Texas in 1962, according to the U.S. Marshals Service.`\
+https://nytimes.com/2024/07/18/us/oregon-fugitive-false-identity.html
+
+**How Long Is Covid Contagious?**\
+`It’s a tricky question to answer, but experts say symptoms and rapid tests are still good guides.`\
+https://nytimes.com/2024/07/18/well/covid-contagious-period.html
+
+**Missouri Supreme Court Clears Release of Woman Who Spent 43 Years in Prison**\
+`Sandra Hemme, 64, was sentenced to life prison in 1981 for the killing of a library worker. Her case was recently overturned after new evidence established her innocence.`\
+https://nytimes.com/2024/07/18/us/sandra-hemme-missouri-supreme-court.html
+
 **Criticize Trump, but Don’t Demonize Him**\
 `We won’t preserve American democracy through silence and timidity.`\
 https://nytimes.com/2024/07/18/opinion/trump-assassination-violence.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/07/18/us/kimberly-cheatle-secret-service.html
 **People Close to Biden Say He Appears to Accept He May Have to Leave the Race**\
 `One person familiar with President Biden’s thinking cautioned that he had not yet made up his mind to leave the race, after three weeks of insisting that almost nothing would drive him out.`\
 https://nytimes.com/2024/07/18/us/politics/biden-election-drop-out.html
-
-**The Open Championship psychology: How to thrive at one of golf's toughest tests**\
-`The key to winning at Royal Troon is dealing with the right shot gone poorly.`\
-https://nytimes.com/athletic/5646271/2024/07/18/open-championship-golf-mental/
-
-**Friday Briefing: U.S. Presidential Race at a Crossroads**\
-`Plus, security failures at the Trump rally.`\
-https://nytimes.com/2024/07/18/briefing/trump-biden-election-rnc.html
-
-**A Masterpiece of 20th-Century Sculpture That You Can Wear Around Your Neck**\
-`This fall, the French fashion house Celine will release a miniature version of a work by the artist Jean Arp — in the form of a pendant.`\
-https://nytimes.com/2024/07/18/t-magazine/celine-jean-arp-ptolemy-necklace.html
-
-**Hall of Famer Lawrence Taylor arrested in Florida**\
-`Pro Football Hall of Famer Lawrence Taylor was arrested in Florida on Wednesday on a felony warrant for failing to report his residence change as a registered sex offender, the Pembroke Pines (Fla.`\
-https://nytimes.com/athletic/5645863/2024/07/18/lawrence-taylor-arrest-florida/
-
-**Three celebrities scheduled to take the convention stage on Thursday have made racist comments.**\
-`By Richard Fausset`\
-https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/rnc-tucker-carlson-kid-rock-hulk-hogan
-
-**Stream These 6 Great Bob Newhart Performances**\
-`Newhart, who died on Thursday, became a standup star in the early 1960s and later developed two hit sitcoms built around his nervous Everyman persona.`\
-https://nytimes.com/2024/07/18/arts/television/bob-newhart-stream-tv.html
 
