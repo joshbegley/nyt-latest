@@ -1,3 +1,11 @@
+**Jamie Raskin, a Key Democrat, Suggested to Biden That He Should Drop Out**\
+`Mr. Raskin, a congressman from Maryland, was a key member of the panel that investigated the Capitol riot. In a lengthy letter, he compared President Biden to a tiring baseball pitcher.`\
+https://nytimes.com/2024/07/18/us/politics/jamie-raskin-biden-letter.html
+
+**The high-risk, high-reward situation of championship games in expanded Playoff**\
+`Will playing in the SEC Championship Game hurt the teams that lose it? That's a big unknown heading into a 12-team Playoff.`\
+https://nytimes.com/athletic/5645722/2024/07/18/sec-championship-game-college-football-playoff-future-risk/
+
 **How Elon Musk Chose Trump**\
 `The world’s richest man, once deeply skeptical of Donald J. Trump, has now endorsed him and has emerged as a central character in the presidential race.`\
 https://nytimes.com/2024/07/18/us/politics/elon-musk-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5613597/2024/07/18/savinho-to-manchester-city-trans
 **Savinho joins Man City from Troyes**\
 `Manchester City have completed the signing of Savinho from Troyes on a five-year contract in a transfer worth up to €40million (£33.`\
 https://nytimes.com/athletic/5643054/2024/07/18/savinho-manchester-city-transfer/
-
-**Tomatoes and Peaches, Summer BFFs**\
-`Especially when assembled with cold tofu, basil and mint, piled on top of whipped goat cheese or tossed with crunchy almonds and chewy berkoukes.`\
-https://nytimes.com/2024/07/18/dining/tomatoes-and-peaches-summer-bffs.html
-
-**A Vegetable Lover’s Guide to the Grill**\
-`These five easy recipes and tips turn savory charred vegetables into fresh, filling main dishes.`\
-https://nytimes.com/2024/07/18/dining/grill-vegetarian-dinner-recipes.html
 
