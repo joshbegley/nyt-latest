@@ -1,3 +1,7 @@
+**The Pulse: Caitlin Clark is setting records now**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5644592/2024/07/18/caitlin-clark-record-wnba-the-pulse/
+
 **After extending Quinn Meinerz, what's next for Broncos as they build around Bo Nix?**\
 `Denver knows it must improve in the run game on both sides of the ball to successfully support its rookie QB. `\
 https://nytimes.com/athletic/5643185/2024/07/18/broncos-quinn-meinerz-bo-nix/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/podcasts/the-daily/trump-message.html
 **Cardinals second-half storylines to watch, starting with the trade deadline picture**\
 `Ryan Helsley and a stellar bullpen carried the early load, but the Cardinals could add another bat or middle-of-the-rotation starter.`\
 https://nytimes.com/athletic/5643481/2024/07/18/cardinals-trade-deadline-rotation-bullpen/
-
-**Cubs second-half storylines to watch, starting with the urgency to win before the trade deadline**\
-`There’s still a path toward October baseball in Chicago, but two months of uninspired play left almost no margin for error.`\
-https://nytimes.com/athletic/5644005/2024/07/18/chicago-cubs-second-half-storylines-trade-deadline/
 

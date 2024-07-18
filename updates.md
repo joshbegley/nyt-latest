@@ -1,3 +1,7 @@
+**The Pulse: Caitlin Clark is setting records now**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5644592/2024/07/18/caitlin-clark-record-wnba-the-pulse/
+
 **After extending Quinn Meinerz, what's next for Broncos as they build around Bo Nix?**\
 `Denver knows it must improve in the run game on both sides of the ball to successfully support its rookie QB. `\
 https://nytimes.com/athletic/5643185/2024/07/18/broncos-quinn-meinerz-bo-nix/
