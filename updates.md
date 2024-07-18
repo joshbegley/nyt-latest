@@ -1,3 +1,7 @@
+**For Sidelined Giuliani, a Tumble Is an Unsubtle Metaphor**\
+`Rudolph W. Giuliani — indicted, disbarred and bankrupt — has no speaking slot at the convention, but he is nevertheless making the rounds in Milwaukee.`\
+https://nytimes.com/2024/07/17/us/politics/rudy-giuliani-rnc-fall.html
+
 **“Let’s look at Biden’s E.V. mandates.”**\
 `By Angelo Fichera`\
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/lets-look-at-bidens-ev-mandates
