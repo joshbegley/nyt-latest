@@ -1,3 +1,7 @@
+**Emile Smith Rowe departing Arsenal would be painful - but it might be the right move**\
+`Arsenal may have rejected a bid from Fulham for Smith Rowe but they realise someone as talented as the midfielder needs to be playing`\
+https://nytimes.com/athletic/5640847/2024/07/18/emile-smith-rowe-arsenal-future-transfer/
+
 **Clark, Ionescu not in WNBA All-Star 3-point contest**\
 `Ionescu won last year's contest and went up against Stephen Curry in a first-of-its-kind 3-point competition in February.`\
 https://nytimes.com/athletic/5644734/2024/07/18/wnba-3-point-contest-clark-ionescu/
