@@ -1,3 +1,11 @@
+**MLB teams trading draft picks, All-Star Game host qualifications, and more from Rob Manfred**\
+`MLB Commissioner Rob Manfred's All-Star Game media session hit on a number of issues and questions throughout the game. `\
+https://nytimes.com/athletic/5644770/2024/07/18/rob-manfred-mlb-draft-picks-all-star-game/
+
+**Five People Die on Mt. Fuji in Deadly Start to Climbing Season**\
+`Japanese officials are urging climbers to be more careful on the mountain after a string of deaths within weeks of the trails opening.`\
+https://nytimes.com/2024/07/18/us/mount-fuji-climbing-deaths.html
+
 **Why This Star of Georgian Film Isn’t Showing His New Movie in Georgia**\
 `The director Levan Akin is worried that his latest film, “Crossing,” will inflame tensions around L.G.B.T. visibility in the post-Soviet nation.`\
 https://nytimes.com/2024/07/18/movies/crossing-levan-akin-georgia-lgbt.html
