@@ -1,3 +1,11 @@
+**The Windup: Which managers are on hot-seat watch?**\
+`Levi Weaver and Ken Rosenthal catch you up on league-wide news.`\
+https://nytimes.com/athletic/5645561/2024/07/18/mlb-manager-changes-automated-strike-zone-olympics-the-windup/
+
+**Liverpool to face Preston in behind-closed-doors friendly**\
+`Liverpool have organised a behind-closed-doors game against Preston North End at the AXA Training Centre on Friday.`\
+https://nytimes.com/athletic/5645611/2024/07/18/liverpool-preston-friendly/
+
 **The Bounce: Jaylen Brown's Bronny moment caps wild month**\
 `Zach Harper and Shams Charania catch you up on league-wide news.`\
 https://nytimes.com/athletic/5645255/2024/07/18/jaylen-brown-bronny-james-nba-summer-league-la-clippers-the-bounce/

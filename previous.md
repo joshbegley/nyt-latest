@@ -1,3 +1,11 @@
+**The Windup: Which managers are on hot-seat watch?**\
+`Levi Weaver and Ken Rosenthal catch you up on league-wide news.`\
+https://nytimes.com/athletic/5645561/2024/07/18/mlb-manager-changes-automated-strike-zone-olympics-the-windup/
+
+**Liverpool to face Preston in behind-closed-doors friendly**\
+`Liverpool have organised a behind-closed-doors game against Preston North End at the AXA Training Centre on Friday.`\
+https://nytimes.com/athletic/5645611/2024/07/18/liverpool-preston-friendly/
+
 **The Bounce: Jaylen Brown's Bronny moment caps wild month**\
 `Zach Harper and Shams Charania catch you up on league-wide news.`\
 https://nytimes.com/athletic/5645255/2024/07/18/jaylen-brown-bronny-james-nba-summer-league-la-clippers-the-bounce/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/18/us/politics/biden-delegates-democrats.html
 **Ford Will Make Gasoline Trucks, Not Electric Vehicles, in Ontario Plant**\
 `Ford will build large pickups at a Canadian factory that it had previously slated to produce electric vehicles, sales of which have slowed in recent months.`\
 https://nytimes.com/2024/07/18/business/ford-electric-vehicles-canada.html
-
-**Pelosi Told Biden She Is Pessimistic About His Chances to Win Re-Election**\
-`The former speaker has been marshaling her knowledge of the political map, polling data and fund-raising information to press her case with President Biden.`\
-https://nytimes.com/2024/07/18/us/politics/pelosi-told-biden-she-is-pessimistic-about-his-chances-to-win-re-election.html
-
-**Tucker Carlson, Ousted by Fox, Roars Into Milwaukee as a Top Trump Ally**\
-`After time away from the spotlight, the right-wing host is increasingly welcomed by Trump’s inner circle. He also made a surprise visit to Fox’s convention studio.`\
-https://nytimes.com/2024/07/18/business/media/tucker-carlson-trump-rnc.html
 
