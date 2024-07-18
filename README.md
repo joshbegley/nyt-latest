@@ -1,3 +1,7 @@
+**Ohtani, Dodgers to face Imanaga, Cubs in 2025 Japan Series**\
+`It’ll be MLB's sixth time playing regular-season games in Japan, and the first since 2019.`\
+https://nytimes.com/athletic/5645763/2024/07/18/dodgers-cubs-japan-series-2025/
+
 **Twins will open 2025 season vs. Cardinals, could face Sonny Gray**\
 `The Twins will open next season March 27 in St. Louis and could see their old friend. They host Houston in their home opener on April 3. `\
 https://nytimes.com/athletic/5645768/2024/07/18/twins-2025-opening-day-cardinals-sonny-gray/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5645684/2024/07/18/fantasy-baseball-second-half-buy
 **WNBA adds DraftKings as second official betting partner**\
 `The WNBA also has a deal with FanDuel to serve as its official betting partner.`\
 https://nytimes.com/athletic/5645557/2024/07/18/wnba-draftkings-betting-partnership/
-
-**Fearful or Cheerful? World Leaders Mull a Potential Trump Foreign Policy**\
-`Some governments are taking concrete steps to prepare for the possible return of the former U.S. president.`\
-https://nytimes.com/2024/07/18/world/europe/trump-foreign-policy.html
 
