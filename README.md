@@ -1,3 +1,11 @@
+**After extending Quinn Meinerz, what's next for Broncos as they build around Bo Nix?**\
+`Denver knows it must improve in the run game on both sides of the ball to successfully support its rookie QB. `\
+https://nytimes.com/athletic/5643185/2024/07/18/broncos-quinn-meinerz-bo-nix/
+
+**Pierre-Emerick Aubameyang set to join Al Qadsiah**\
+`Pierre-Emerick Aubameyang is set to sign for Saudi Pro League (SPL) club Al Qadsiah.`\
+https://nytimes.com/athletic/5645024/2024/07/18/pierre-emerick-aubameyang-al-qadsiah-transfer/
+
 **The Myth of Migrant Crime**\
 `Republicans suggest that immigrants are especially likely to be criminals. The data shows the opposite.`\
 https://nytimes.com/2024/07/18/briefing/the-myth-of-migrant-crime.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5643481/2024/07/18/cardinals-trade-deadline-rotatio
 **Cubs second-half storylines to watch, starting with the urgency to win before the trade deadline**\
 `There’s still a path toward October baseball in Chicago, but two months of uninspired play left almost no margin for error.`\
 https://nytimes.com/athletic/5644005/2024/07/18/chicago-cubs-second-half-storylines-trade-deadline/
-
-**Copa America final chaos: What we know and what it means for 2026 World Cup**\
-`The scenes at the match in Miami are being investigated and will have implications for venues staging games at the World Cup in two years`\
-https://nytimes.com/athletic/5644821/2024/07/18/copa-america-final-security-chaos/
-
-**How do NFC pass rush groups stack up heading into the 2024 season?**\
-`There's been a lot of movement about pass rushers in the NFC. Which teams are in the best shape heading into the 2024 season?`\
-https://nytimes.com/athletic/5561750/2024/07/18/nfc-edge-rushers-epa-micah-parsons/
 
