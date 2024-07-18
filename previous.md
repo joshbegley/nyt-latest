@@ -1,3 +1,7 @@
+**Until Saturday: Latest on FSU and Clemson vs. ACC and Texas' Quinn Ewers**\
+`Welcome to Until Saturday, the five-star college football newsletter: More on the ACC's legal drama and Ewers.`\
+https://nytimes.com/athletic/5645323/2024/07/18/acc-florida-state-clemson-quinn-ewers-texas-until-saturday/
+
 **Greenwood completes permanent Marseille transfer from Man United for €31.6m**\
 `Mason Greenwood has joined Marseille on a permanent transfer from Manchester United in a deal worth up to €31.`\
 https://nytimes.com/athletic/5641530/2024/07/18/mason-greenwood-marseille-transfer-manchester-united/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5645768/2024/07/18/twins-2025-opening-day-cardinals
 **Logan Sargeant stops caring about his critics as he fights for his future**\
 `“It’s quite a draining place,” Sargeant said of social media. “When you’re doing things well, of course people want to drag you down."`\
 https://nytimes.com/athletic/5645675/2024/07/18/f1-logan-sargeant-future-contract-williams/
-
-**Savinho to Manchester City: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate Savinho's move to Manchester City.`\
-https://nytimes.com/athletic/5613597/2024/07/18/savinho-to-manchester-city-transfer-ratings/
 

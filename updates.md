@@ -1,3 +1,7 @@
+**Until Saturday: Latest on FSU and Clemson vs. ACC and Texas' Quinn Ewers**\
+`Welcome to Until Saturday, the five-star college football newsletter: More on the ACC's legal drama and Ewers.`\
+https://nytimes.com/athletic/5645323/2024/07/18/acc-florida-state-clemson-quinn-ewers-texas-until-saturday/
+
 **Greenwood completes permanent Marseille transfer from Man United for €31.6m**\
 `Mason Greenwood has joined Marseille on a permanent transfer from Manchester United in a deal worth up to €31.`\
 https://nytimes.com/athletic/5641530/2024/07/18/mason-greenwood-marseille-transfer-manchester-united/
