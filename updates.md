@@ -1,3 +1,15 @@
+**Read Jamie Raskin’s letter**\
+`In a July 6 letter, Mr. Raskin, a congressman from Maryland, compared President Biden to a tiring baseball pitcher and suggested that he should reconsider his campaign.`\
+https://nytimes.com/interactive/2024/07/18/us/raskinletter.html
+
+**We Underestimated Trump**\
+`He has campaigned smartly, and has shifted the governing philosophy of the Republican Party.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/brooks-underestimating-trump-convention
+
+**Germany Promised to Step Up Militarily. Its Budget Says Differently.**\
+`After Russia’s invasion of Ukraine, Chancellor Olaf Scholz vowed a revolution in defense strategy. But the math is not adding up.`\
+https://nytimes.com/2024/07/18/world/europe/germany-budget-military-spending.html
+
 **How Manchester United beat Real Madrid to the signing of Leny Yoro**\
 `United have landed Lille defender Yoro, considered a 'generational talent' at age 18 - this is the story of how they did it`\
 https://nytimes.com/athletic/5644891/2024/07/18/leny-yoro-transfer-manchester-united-real-madrid/
