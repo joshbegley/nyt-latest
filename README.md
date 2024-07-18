@@ -1,3 +1,7 @@
+**China’s Leaders Offer High Hopes, but Few Details for Road to Recovery**\
+`Top officials emerged from a high-stakes meeting about lifting the economy out of its malaise with few signs of a fundamental rethink.`\
+https://nytimes.com/2024/07/18/business/china-economy-plenum-takeaways.html
+
 **What can 25 season sims in College Football 25 tell us about 2024?**\
 `In this brand-new world of the 12-team Playoff, it’s too early to call anything impossible.`\
 https://nytimes.com/athletic/5642230/2024/07/18/college-football-25-season-simulations-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5644689/2024/07/18/dodgers-trade-deadline-needs-2/
 **‘Oddity’ Review: Twisted Sister**\
 `A haunted house, a blind psychic and a suspicious death fuel this flawed yet fun supernatural thriller.`\
 https://nytimes.com/2024/07/18/movies/oddity-review.html
-
-**‘Hollywoodgate’ Review: Inside the Taliban**\
-`In a frustrating documentary, the journalist Ibrahim Nash’at shows the Taliban after American troops left Afghanistan.`\
-https://nytimes.com/2024/07/18/movies/hollywoodgate-review.html
 
