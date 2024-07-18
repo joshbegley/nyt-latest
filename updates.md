@@ -1,3 +1,15 @@
+**Women’s basketball at the 2024 Paris Olympics: How to watch as U.S. goes for gold again**\
+`Check out the full schedule, TV info, roster breakdown and more for Team USA women's basketball as they go for another gold in Paris.`\
+https://nytimes.com/athletic/5643046/2024/07/18/womens-basketball-2024-paris-olympics-schedule-how-to-watch/
+
+**Here Are the Speakers for Night 4 of the Republican Convention**\
+`Before Donald J. Trump formally accepts his party’s nomination, the event will feature speeches by Hulk Hogan, Tucker Carlson and Dana White.`\
+https://nytimes.com/2024/07/18/us/politics/rnc-speaker-lineup.html
+
+**A One-Man Telemundo on TikTok**\
+`Carlos Espina is among a new kind of social media personalities whom politicians, especially those in the Biden White House, view as modern-day broadcasters.`\
+https://nytimes.com/2024/07/18/business/media/carlos-espina-tiktok.html
+
 **About 1,000 ultra-Orthodox men will receive initial orders, the Israeli defense minister said.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/07/18/world/israel-gaza-war-hamas/about-1000-ultra-orthodox-men-will-receive-initial-orders-the-israeli-defense-minister-said
