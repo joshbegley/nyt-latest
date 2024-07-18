@@ -1,3 +1,11 @@
+**Real Madrid's Iago in advanced talks with Sporting Lisbon**\
+`Paulo Iago is in advanced talks with Sporting Lisbon and is set to leave Real Madrid following ten years at the academy.`\
+https://nytimes.com/athletic/5645333/2024/07/18/paulo-iago-sporting-lisbon-real-madrid/
+
+**Liverpool suspend ticket sales after cyber attack**\
+`Liverpool have suspended members ticket sales until further notice after falling victim to a cyber attack.`\
+https://nytimes.com/athletic/5645264/2024/07/18/liverpool-tickets-cyber-attack/
+
 **A Win for Gay Rights in South Korea After a Supreme Court Ruling**\
 `A couple who filed a lawsuit in 2021 after their spousal benefits were cancelled celebrated a landmark court decision allowing same-sex couples to qualify for dependent health insurance coverage.`\
 https://nytimes.com/video/world/asia/100000009578832/court-ruling-gay-rights-south-korea.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/18/us/trump-rally-shooting-news/heres-the-lates
 **Trump Shooting Live Updates: Lawmakers Assail Decision to Let Rally Go Ahead**\
 `The Secret Service’s call to let the former president take the stage even as law enforcement searched for a potentially dangerous person has drawn a furious response.`\
 https://nytimes.com/live/2024/07/18/us/trump-rally-shooting-news
-
-**Usha Vance and the Iconography of the Trump Women**\
-`The potential second lady models a new kind of Republican image-making.`\
-https://nytimes.com/2024/07/18/style/usha-vance-rnc-maga-trump.html
-
-**CBS beats ESPN to claim U.S. TV rights to EFL - and has bold plan to tap into 'the drama'**\
-`The success of Welcome To Wrexham has emboldened CBS to move for EFL and Carabao Cup rights and tap into the 'passion' outside the top tier`\
-https://nytimes.com/athletic/5643760/2024/07/18/cbs-efl-tv-broadcast-rights-carabao-cup/
 
