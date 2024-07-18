@@ -1,3 +1,11 @@
+**Founder of Fandango Dies After Plunge From Manhattan Hotel**\
+`J. Michael Cline was the co-founder of an online ticketing company that changed how Americans went to the movies.`\
+https://nytimes.com/2024/07/18/nyregion/fandango-j-michael-cline-dead.html
+
+**Royal Troon’s changing winds brought carnage to this Open Championship**\
+`Double- and triple-bogeys stacked up all morning as some of the best players in the world were humbled by the golf course.`\
+https://nytimes.com/athletic/5645798/2024/07/18/open-championship-royal-troon-wind-first-round/
+
 **Pat Williams, Charismatic N.B.A. Executive, Is Dead at 84**\
 `Known for his unorthodox marketing practices, Mr. Williams, a founder of the Orlando Magic, was sometimes called the P.T. Barnum of professional basketball.`\
 https://nytimes.com/2024/07/18/sports/pat-williams-dead.html
@@ -22,19 +30,11 @@ https://nytimes.com/athletic/5645722/2024/07/18/sec-championship-game-college-fo
 `The world’s richest man, once deeply skeptical of Donald J. Trump, has now endorsed him and has emerged as a central character in the presidential race.`\
 https://nytimes.com/2024/07/18/us/politics/elon-musk-trump.html
 
-**Here are four takeaways from the Republican convention’s message on immigration.**\
+**Key Takeaways From the Republican Convention’s Message on Immigration**\
 `By Jazmine Ulloa, Ken Bensinger and Nick Corasaniti`\
-https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/rnc-immigration-trump-takeaways
+https://nytimes.com/2024/07/17/us/politics/rnc-immigration-trump-takeaways.html
 
 **Traditional Marriage for Thee, but Not for J.D. Vance**\
 `He refers to the elite as if he is not part of it, but then, in all of his lifestyle choices, he acts like any other Ivy League grad.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/vance-wife-marriage
-
-**Ohtani, Dodgers to face Imanaga, Cubs in 2025 Japan Series**\
-`It’ll be MLB's sixth time playing regular-season games in Japan, and the first since 2019.`\
-https://nytimes.com/athletic/5645763/2024/07/18/dodgers-cubs-japan-series-2025/
-
-**Twins will open 2025 season vs. Cardinals, could face Sonny Gray**\
-`The Twins will open next season March 27 in St. Louis and could see their old friend. They host Houston in their home opener on April 3. `\
-https://nytimes.com/athletic/5645768/2024/07/18/twins-2025-opening-day-cardinals-sonny-gray/
 

@@ -1,3 +1,15 @@
+**Founder of Fandango Dies After Plunge From Manhattan Hotel**\
+`J. Michael Cline was the co-founder of an online ticketing company that changed how Americans went to the movies.`\
+https://nytimes.com/2024/07/18/nyregion/fandango-j-michael-cline-dead.html
+
+**Royal Troon’s changing winds brought carnage to this Open Championship**\
+`Double- and triple-bogeys stacked up all morning as some of the best players in the world were humbled by the golf course.`\
+https://nytimes.com/athletic/5645798/2024/07/18/open-championship-royal-troon-wind-first-round/
+
+**Key Takeaways From the Republican Convention’s Message on Immigration**\
+`By Jazmine Ulloa, Ken Bensinger and Nick Corasaniti`\
+https://nytimes.com/2024/07/17/us/politics/rnc-immigration-trump-takeaways.html
+
 **Pat Williams, Charismatic N.B.A. Executive, Is Dead at 84**\
 `Known for his unorthodox marketing practices, Mr. Williams, a founder of the Orlando Magic, was sometimes called the P.T. Barnum of professional basketball.`\
 https://nytimes.com/2024/07/18/sports/pat-williams-dead.html
