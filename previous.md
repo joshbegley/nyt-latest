@@ -8,7 +8,7 @@ https://nytimes.com/athletic/5622822/2024/07/18/bronny-james-lakers-nba-summer-l
 
 **Trump Says ‘I Got Lucky’ in Surviving Assassination Attempt, Video Shows**\
 `A clip first aired by PBS shows Donald Trump addressing a gathering in Milwaukee and discussing the shooting a few days earlier: “God was with me.”`\
-https://nytimes.com/2024/07/18/us/politics/trump-says-i-got-lucky-in-surviving-assassination-attempt-video-shows.html
+https://nytimes.com/2024/07/18/us/politics/trump-i-got-lucky-shooting-video.html
 
 **Wizards have built a temporary home in Las Vegas, and an NBA trend could follow**\
 `Washington is putting its 2023 In-Season Tournament court to good use out west.`\

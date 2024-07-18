@@ -1,3 +1,7 @@
+**Trump Says ‘I Got Lucky’ in Surviving Assassination Attempt, Video Shows**\
+`A clip first aired by PBS shows Donald Trump addressing a gathering in Milwaukee and discussing the shooting a few days earlier: “God was with me.”`\
+https://nytimes.com/2024/07/18/us/politics/trump-i-got-lucky-shooting-video.html
+
 **A Win for Gay Rights in South Korea After a Supreme Court Ruling**\
 `A couple who filed a lawsuit in 2021 after their spousal benefits were cancelled celebrated a landmark court decision allowing same-sex couples to qualify for dependent health insurance coverage.`\
 https://nytimes.com/video/world/asia/100000009578832/court-ruling-gay-rights-south-korea.html
