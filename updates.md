@@ -1,3 +1,11 @@
+**Juventus confirm Rabiot exit**\
+`Adrien Rabiot will be leaving Juventus after five seasons at the Italian club.`\
+https://nytimes.com/athletic/5645211/2024/07/18/adrien-rabiot-juventus-leaves/
+
+**How Musk May Influence Trump Policy**\
+`Space, electric vehicles, artificial intelligence: The tech mogul could influence policy in these areas and others should Donald Trump win re-election.`\
+https://nytimes.com/2024/07/18/business/dealbook/musk-trump-tesla-spacex-starlink.html
+
 **Vieira leaves Strasbourg by mutual consent**\
 `BlueCo, the multi-club ownership group best known for its ownership of Chelsea, have today made a managerial change at their French club Strasbourg, parting company with head coach Patrick Vieira by mutual consent.`\
 https://nytimes.com/athletic/5645228/2024/07/18/patrick-vieira-strasbourg-chelsea-blueco/
