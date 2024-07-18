@@ -1,3 +1,31 @@
+**A Masterpiece of 20th-Century Sculpture That You Can Wear Around Your Neck**\
+`This fall, the French fashion house Celine will release a miniature version of a work by the artist Jean Arp — in the form of a pendant.`\
+https://nytimes.com/2024/07/18/t-magazine/celine-jean-arp-ptolemy-necklace.html
+
+**Hall of Famer Lawrence Taylor arrested in Florida**\
+`Pro Football Hall of Famer Lawrence Taylor was arrested in Florida on Wednesday on a felony warrant for failing to report his residence change as a registered sex offender, the Pembroke Pines (Fla.`\
+https://nytimes.com/athletic/5645863/2024/07/18/lawrence-taylor-arrest-florida/
+
+**Three celebrities scheduled to take the convention stage on Thursday have made racist comments.**\
+`By Richard Fausset`\
+https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/rnc-tucker-carlson-kid-rock-hulk-hogan
+
+**Stream These 6 Great Bob Newhart Performances**\
+`Newhart, who died on Thursday, became a standup star in the early 1960s and later developed two hit sitcoms built around his nervous Everyman persona.`\
+https://nytimes.com/2024/07/18/arts/television/bob-newhart-stream-tv.html
+
+**Biden’s Language Is Sounding a Lot Like Trump’s**\
+`Nicholas Kristof argues that Biden mirroring Trump’s talking points undermines the 46th president’s legacy.`\
+https://nytimes.com/2024/07/18/opinion/biden-rhetoric-trump.html
+
+**Dig at Meloni’s Height Could Cost Reporter in Italy 5,000 Euros**\
+`A lawsuit that Prime Minister Georgia Meloni won is one of several she has filed against critics. Press-freedom groups say it is a concerning practice.`\
+https://nytimes.com/2024/07/18/world/europe/italy-journalist-defamation-meloni.html
+
+**It’s Time for Democrats to Hold Hands and Jump**\
+`Those who want a new presidential nominee need to go public.`\
+https://nytimes.com/2024/07/18/opinion/democrats-biden-drop-out.html
+
 **‘The Bite’: Democrats Debate Councilwoman’s Bizarre Assault Charge**\
 `Susan Zhuang, a first-year City Council member from Queens, was charged with assault for biting a police officer. Democrats are split over how harshly to reprimand her.`\
 https://nytimes.com/2024/07/18/nyregion/zhuang-bite-police-council.html
@@ -9,32 +37,4 @@ https://nytimes.com/live/2024/07/18/world/israel-gaza-war-hamas/us-treasury-sanc
 **The Irreconcilable Versions of J.D. Vance in ‘Hillbilly Elegy’**\
 `Even before the Republican vice-presidential nominee aligned himself with Donald Trump, contradiction was central to his rags-to-riches biography.`\
 https://nytimes.com/2024/07/18/us/politics/jd-vance-hillbilly-elegy.html
-
-**Ever Elusive, Melania Trump Is Expected to Appear at G.O.P. Convention**\
-`The former first lady skipped much of the Trump family reunion in Milwaukee this week.`\
-https://nytimes.com/2024/07/18/us/politics/melania-trump-2024-campaign-republicans.html
-
-**Netflix Adds 8 Million Subscribers**\
-`Shows like “Bridgerton” and “The Roast of Tom Brady” performed well for the streaming service, which now has 278 million subscribers worldwide.`\
-https://nytimes.com/2024/07/18/business/media/netflix-earnings.html
-
-**See How Trump’s and Biden’s Campaign Rhetoric Compares**\
-`Campaign emails show how the candidates discuss each other, their political rivals and what’s at stake in November’s election.`\
-https://nytimes.com/interactive/2024/07/18/us/politics/trump-biden-campaign-rhetoric.html
-
-**Bob Newhart, Soft-Spoken Everyman Who Became a Comedy Star, Dies at 94**\
-`He was a show-business neophyte when he stammered his way to fame in 1960. He went on to star in two of TV’s most memorable sitcoms.`\
-https://nytimes.com/2024/07/18/arts/television/bob-newhart-dead.html
-
-**Sharpton Says He Told Biden That Staying in Race Could Imperil His Legacy**\
-`The message of the call, which Rev. Al Sharpton said took place on Monday, represents a break from the solid core of support influential Black leaders have shown toward President Biden.`\
-https://nytimes.com/2024/07/18/us/politics/al-sharpton-biden.html
-
-**Four Grilling Pop-Ups Worth Chasing Down**\
-`Burgers and hot dogs, yes, but also jerk oysters and crispy-bottomed seafood paella.`\
-https://nytimes.com/2024/07/18/dining/nyc-summer-pop-ups.html
-
-**For Biden and Harris, a Delicate and Sometimes Awkward Dance**\
-`Even as she has remained diligently loyal to President Biden, Vice President Kamala Harris has sought to avoid having her own political strengths denigrated.`\
-https://nytimes.com/2024/07/18/us/politics/biden-kamala-harris.html
 
