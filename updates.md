@@ -1,3 +1,15 @@
+**Biden Tests Positive for the Coronavirus, and Senators Berate Secret Service Chief**\
+`Plus, a plunge in the Seine ahead of the Olympics.`\
+https://nytimes.com/2024/07/18/podcasts/biden-vance-rnc.html
+
+**Copa America final chaos: What we know and what it means for 2026 World Cup**\
+`The scenes at the match in Miami are being investigated and will have implications for venues staging games at the World Cup in two years`\
+https://nytimes.com/athletic/5644821/2024/07/18/copa-america-final-security-chaos/
+
+**How do NFC pass rush groups stack up heading into the 2024 season?**\
+`There's been a lot of movement about pass rushers in the NFC. Which teams are in the best shape heading into the 2024 season?`\
+https://nytimes.com/athletic/5561750/2024/07/18/nfc-edge-rushers-epa-micah-parsons/
+
 **Trump 2.0: He’s Never Sounded Like This Before**\
 `How the former president’s message has changed, and what that means for the country.`\
 https://nytimes.com/2024/07/18/podcasts/the-daily/trump-message.html
