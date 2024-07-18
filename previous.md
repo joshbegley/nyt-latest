@@ -1,3 +1,7 @@
+**Daniel Brown leads after Round 1 of The Open Championship**\
+`Playing in his first major championship, let alone his first Open, Brown led the field in strokes gained off the tee.`\
+https://nytimes.com/athletic/5646414/2024/07/18/daniel-brown-open-championship-round-one/
+
 **Biden Appears to Begin Considering Dropping Out, People Close to Him Say**\
 `Also, lawmakers call Secret Service’s mistakes inexcusable. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/07/18/briefing/biden-drop-out-trump-convention-speech.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/business/biden-student-loans-save-block.html
 **Kamala Harris Wastes No Time in Attacking J.D. Vance**\
 `As Democratic speculation grew that President Biden might be forced to give way to his vice president, she rallied supporters in North Carolina and went after her new counterpart on the Republican ticket.`\
 https://nytimes.com/2024/07/18/us/politics/kamala-harris-jd-vance-speech.html
-
-**Palestinian Bid to Ban Israel From Soccer Is Put Off**\
-`A decision by FIFA to delay the resolution of a bitter dispute until August will allow Israel to take part in the men’s tournament at the Paris Olympics.`\
-https://nytimes.com/2024/07/18/sports/fifa-israel-soccer.html
 
