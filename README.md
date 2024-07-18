@@ -1,3 +1,7 @@
+**For Sidelined Giuliani, a Tumble Is an Unsubtle Metaphor**\
+`Rudolph W. Giuliani — indicted, disbarred and bankrupt — has no speaking slot at the convention, but he is nevertheless making the rounds in Milwaukee.`\
+https://nytimes.com/2024/07/17/us/politics/rudy-giuliani-rnc-fall.html
+
 **“Let’s look at Biden’s E.V. mandates.”**\
 `By Angelo Fichera`\
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/lets-look-at-bidens-ev-mandates
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/17/us/politics/secret-service-trump-shooting.html
 **“Your favorite Democrat, Nancy Pelosi, created your favorite committee, the Jan. 6 committee, which demanded that I violate executive privilege.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/your-favorite-democrat-nancy-pelosi-created-your-favorite-committee-the-jan-6-committee-which-demanded-that-i-violate-executive-
-
-**Menendez Tells Allies He Is Considering Resigning After Conviction**\
-`Senator Robert Menendez of New Jersey was found guilty on Tuesday in a sweeping corruption scheme and faces a potential expulsion vote.`\
-https://nytimes.com/2024/07/17/nyregion/robert-menendez-political-future.html
 
