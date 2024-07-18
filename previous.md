@@ -1,3 +1,7 @@
+**'Fronting up' experts, stars, local heroes: Who spoke for your country at Euro 2024?**\
+`During Euro 2024, different players spoke for their countries at different times, depending on seniority, locality and results`\
+https://nytimes.com/athletic/5641066/2024/07/18/euro-2024-press-conference-players/
+
 **The Other ‘Marine’ of French Politics Hits Back**\
 `Marine Tondelier, leader of the Green Party, helped bring the left together to win France’s parliamentary elections. Now can she help keep it from falling apart?`\
 https://nytimes.com/2024/07/18/world/europe/the-other-marine-of-french-politics-hits-back.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/17/us/politics/kai-trump-granddaughter-rnc.html
 **Why Republicans Keep Calling Kamala Harris the ‘Border Czar’**\
 `The misleading phrase is meant to underscore one of the thorniest issues in her portfolio: immigration.`\
 https://nytimes.com/2024/07/17/us/politics/kamala-harris-border-czar.html
-
-**At R.N.C., Senators Berate Secret Service Director Over Assassination Attempt**\
-`The lawmakers wanted answers about security lapses at the Trump rally in Pennsylvania on Saturday.`\
-https://nytimes.com/2024/07/17/us/politics/rnc-senators-secret-service.html
 
