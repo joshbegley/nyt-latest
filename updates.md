@@ -1,3 +1,7 @@
+**Hunter Biden, Citing Trump’s Classified Documents Ruling, Seeks Dismissal of Cases**\
+`Mr. Biden’s legal team pointed to a decision by a federal judge in Florida, who ruled that the special counsel in Mr. Trump’s case, Jack Smith, had been unconstitutionally appointed.`\
+https://nytimes.com/2024/07/18/us/politics/hunter-biden-seeks-dismissal.html
+
 **Justice Dept. Sues Contractor Over Sexual Abuse of Migrant Children**\
 `Southwest Key, the Texas-based nonprofit that is the largest provider of housing for unaccompanied minors who arrive at the southern border, has faced federal scrutiny before.`\
 https://nytimes.com/2024/07/18/us/doj-migrants-southwest-key-lawsuit.html
