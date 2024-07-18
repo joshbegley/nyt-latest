@@ -1,3 +1,7 @@
+**Postecoglou: 'My work is not done' at Tottenham amid England job links**\
+`Ange Postecoglou says his &#8220;work is not done&#8221; at Tottenham Hotspur amid links with the vacant England manager role.`\
+https://nytimes.com/athletic/5644856/2024/07/18/ange-postecoglou-england-job-tottenham/
+
 **Deadly Fire Consumes Shopping Mall in China**\
 `A thick plume of black smoke rose over the building with people trapped inside.`\
 https://nytimes.com/video/world/asia/100000009578715/china-fire-shopping-mall.html
