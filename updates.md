@@ -1,3 +1,11 @@
+**Quinn Ewers is comfortable being Texas' headliner. Can he take the next step?**\
+`Ewers is good and has been great at times, but can he be great consistently?`\
+https://nytimes.com/athletic/5645161/2024/07/18/quinn-ewers-texas-football-quarterbacks/
+
+**Von der Leyen Secures Second E.U. Term, but It’s a New World Out There**\
+`The German conservative, a steadfast U.S. ally, gained European Parliament approval to lead the European Commission for another five years. She’ll face tumult at home and abroad.`\
+https://nytimes.com/2024/07/18/world/europe/european-commission-von-der-leyen.html
+
 **Man Utd Women trigger Parris contract extension**\
 `Manchester United have activated a one-year option on Nikita Parris&#8217; contract to extend her stay at the club until 2025.`\
 https://nytimes.com/athletic/5645129/2024/07/18/nikita-parris-manchester-united-contract/
