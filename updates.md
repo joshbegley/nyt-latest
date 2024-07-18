@@ -1,3 +1,11 @@
+**Usha Vance, J.D. Vance’s Wife, Entered the Spotlight. It’s an Unfamiliar Role.**\
+`The couple met while attending Yale Law School. Republicans hope Ms. Vance, the daughter of Indian immigrants, will become the second lady.`\
+https://nytimes.com/2024/07/18/us/politics/usha-vance-jd-wife.html
+
+**Listeria in Milk Alternatives Kills Two Canadians, Sickens 10 More**\
+`The Silk and Great Value brand drinks made from nuts, oats and coconuts were pulled from stores last week.`\
+https://nytimes.com/2024/07/18/world/canada/silk-listeria-milk-deaths.html
+
 **J.D. Vance, Breaking the Beard Barrier**\
 `The vice-presidential candidate is the first major party nominee with facial hair in 75 years.`\
 https://nytimes.com/2024/07/18/style/jd-vance-beard-politics.html
