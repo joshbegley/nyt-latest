@@ -1,3 +1,15 @@
+**Ex-Liverpool goalkeeper Reina joins Como**\
+`Pepe Reina has joined Serie A club Como as a free agent after leaving Villarreal.`\
+https://nytimes.com/athletic/5635442/2024/07/18/pepe-reina-como-transfer/
+
+**J.D. Vance Leans Into His Roots in Debut Speech**\
+`Vice-presidential nominee J.`\
+https://nytimes.com/video/us/politics/100000009578135/jd-vance-trump-vp-speech.html
+
+**Who will be the next stars of the Canada men's national team?**\
+`Who's next in line to join the Canada men's national team as attention turns to co-hosting the World Cup in two years?`\
+https://nytimes.com/athletic/5642902/2024/07/18/jesse-marsch-canada-youth-world-cup/
+
 **Biden Tests Positive for the Coronavirus, and Senators Berate Secret Service Chief**\
 `Plus, a plunge in the Seine ahead of the Olympics.`\
 https://nytimes.com/2024/07/18/podcasts/biden-vance-rnc.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5561750/2024/07/18/nfc-edge-rushers-epa-micah-parso
 **Astros second-half storylines to watch, starting with trade deadline needs**\
 `Houston returns to action on Friday with glaring holes and still out of playoff position. Here are three storylines to monitor.`\
 https://nytimes.com/athletic/5643803/2024/07/18/houston-astros-second-half-trade-deadline/
-
-**Bears fan survey results: 'Cautious optimism' for Caleb Williams, 2024 squad**\
-`How excited are Bears fans about their new quarterback? What do they think of the current stadium situation? Fifth annual survey results. `\
-https://nytimes.com/athletic/5642120/2024/07/18/chicago-bears-caleb-williams-rome-odunze/
-
-**All eyes are on Harris as Biden tries to quell a party revolt.**\
-`By Nicholas Nehamas`\
-https://nytimes.com/live/2024/07/18/us/trump-biden-republican-convention/all-eyes-are-on-harris-as-biden-tries-to-quell-a-party-revolt
-
-**Wordle Review No. 1,126, Friday, July 19, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/18/crosswords/wordle-review-1126.html
 

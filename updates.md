@@ -1,3 +1,15 @@
+**Ex-Liverpool goalkeeper Reina joins Como**\
+`Pepe Reina has joined Serie A club Como as a free agent after leaving Villarreal.`\
+https://nytimes.com/athletic/5635442/2024/07/18/pepe-reina-como-transfer/
+
+**J.D. Vance Leans Into His Roots in Debut Speech**\
+`Vice-presidential nominee J.`\
+https://nytimes.com/video/us/politics/100000009578135/jd-vance-trump-vp-speech.html
+
+**Who will be the next stars of the Canada men's national team?**\
+`Who's next in line to join the Canada men's national team as attention turns to co-hosting the World Cup in two years?`\
+https://nytimes.com/athletic/5642902/2024/07/18/jesse-marsch-canada-youth-world-cup/
+
 **Biden Tests Positive for the Coronavirus, and Senators Berate Secret Service Chief**\
 `Plus, a plunge in the Seine ahead of the Olympics.`\
 https://nytimes.com/2024/07/18/podcasts/biden-vance-rnc.html
