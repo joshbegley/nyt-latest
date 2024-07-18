@@ -18,7 +18,7 @@ https://nytimes.com/2024/07/17/us/politics/kimberly-guilfoyle-2020-rnc-speech.ht
 `Larry Robinson took responsibility for accepting a $237 million gift that is now on hold and under investigation.`\
 https://nytimes.com/2024/07/17/us/hbcu-donation-president-resigns.html
 
-**Peter Navarro, Released From Prison, Gives Fiery R.N.C. Speech**\
+**Peter Navarro, Released From Prison, Gives Fiery Convention Speech**\
 `Mr. Navarro, a senior trade adviser in the Trump administration who served four months for defying a subpoena in the Jan. 6 investigation, received a hero’s welcome.`\
 https://nytimes.com/2024/07/17/us/politics/peter-navarro-rnc-speech.html
 
