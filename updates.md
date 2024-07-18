@@ -1,3 +1,23 @@
+**“Let’s look at Biden’s E.V. mandates.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/lets-look-at-bidens-ev-mandates
+
+**“He is using mandates to shut down reliable baseload electricity. That is why your electric bills have shot upwards.”**\
+`By Lisa Friedman`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/he-is-using-mandates-to-shut-down-reliable-baseload-electricity-that-is-why-your-electric-bills-have-shot-upwards
+
+**Kimberly Guilfoyle’s 2020 R.N.C. Speech Was Widely Mocked**\
+`Her volume seemed to draw the most attention four years ago.`\
+https://nytimes.com/2024/07/17/us/politics/kimberly-guilfoyle-2020-rnc-speech.html
+
+**President of Florida A&M Resigns Amid Donation Controversy**\
+`Larry Robinson took responsibility for accepting a $237 million gift that is now on hold and under investigation.`\
+https://nytimes.com/2024/07/17/us/hbcu-donation-president-resigns.html
+
+**From prison to the podium, Peter Navarro receives a hero’s welcome and gives a fiery convention speech.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/from-prison-to-the-podium-peter-navarro-receives-a-heros-welcome-and-gives-a-fiery-convention-speech
+
 **A Blind Spot and a Lost Trail: How the Gunman Got So Close to Trump**\
 `Even though local police were on the lookout for a suspicious man, critical minutes ticked by, allowing a would-be assassin to slip past, a Times analysis found.`\
 https://nytimes.com/2024/07/17/us/politics/secret-service-trump-shooting.html
