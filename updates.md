@@ -1,3 +1,7 @@
+**Donald Trump’s First Term Is a Warning**\
+`Your guide to the perils of a second Trump era.`\
+https://nytimes.com/interactive/2024/07/18/opinion/trump-presidency-record.html
+
 **FIFA ranking: USMNT falls; England, Spain rise**\
 `The USMNT has dropped five places to 16th in the FIFA world rankings following its Copa America group-stage exit.`\
 https://nytimes.com/athletic/5644909/2024/07/18/fifa-world-ranking-usmnt-spain-england/

@@ -1,3 +1,7 @@
+**Donald Trump’s First Term Is a Warning**\
+`Your guide to the perils of a second Trump era.`\
+https://nytimes.com/interactive/2024/07/18/opinion/trump-presidency-record.html
+
 **FIFA ranking: USMNT falls; England, Spain rise**\
 `The USMNT has dropped five places to 16th in the FIFA world rankings following its Copa America group-stage exit.`\
 https://nytimes.com/athletic/5644909/2024/07/18/fifa-world-ranking-usmnt-spain-england/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/insider/sorry-not-sorry-louis-ck.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/07/18/crosswords/spelling-bee-forum.html
-
-**‘My Property, My Trees’: New Tree-Cutting Law Divides N.Y. Town**\
-`A Westchester County suburb updated its law about tree removals from yards, upsetting tree advocates, who want stricter rules, and residents who don’t want to be told what to do.`\
-https://nytimes.com/2024/07/18/nyregion/tree-law-mamaroneck-westchester-county.html
 
