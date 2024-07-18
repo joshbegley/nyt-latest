@@ -1,3 +1,7 @@
+**Sharpton Says He Told Biden That Staying in Race Could Imperil His Legacy**\
+`The message of the call, which Rev. Al Sharpton said took place on Monday, represents a break from the solid core of support influential Black leaders have shown toward President Biden.`\
+https://nytimes.com/2024/07/18/us/politics/al-sharpton-biden.html
+
 **Four Grilling Pop-Ups Worth Chasing Down**\
 `Burgers and hot dogs, yes, but also jerk oysters and crispy-bottomed seafood paella.`\
 https://nytimes.com/2024/07/18/dining/nyc-summer-pop-ups.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/arts/television/my-lady-jane-amazon-streaming.htm
 **A's 2025 schedule: First season in Sacramento includes significant travel, long homestands**\
 `The A's open on the road in Seattle on March 27 and play their first official home game at Sacramento's Sutter Health Park on March 31.`\
 https://nytimes.com/athletic/5645842/2024/07/18/athletics-2025-mlb-schedule-sacramento/
-
-**After Biden Flub, Pentagon Spokeswoman Says Austin Has ‘Absolute Confidence’ in President**\
-`Mr. Biden appeared to forget the name of his Secretary of Defense, Lloyd J. Austin III, and instead refers to him as the “Black man” in an interview with BET.`\
-https://nytimes.com/2024/07/18/us/politics/biden-austin-bet-interview.html
 
