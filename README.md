@@ -1,3 +1,7 @@
+**How Trump’s Security Failed to Stop an Assassination Attempt**\
+`Videos, audio and photographs of the attempted assassination of former President Donald J. Trump at an election rally shows how a clear threat emerged minutes before the shooting, and how law enforcement failed to protect Mr. Trump.`\
+https://nytimes.com/video/us/politics/100000009576871/trump-shooting-assassination-attempt.html
+
 **Read the transcript of J.D. Vance’s convention speech.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/read-the-transcript-of-jd-vances-convention-speech
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5641212/2024/07/18/moussa-diaby-aston-villa-transfe
 **Transfers, ownership, PSR and season aims - an audience with Newcastle CEO Eales**\
 `Newcastle's CEO gave a wide-ranging interview this week, so what can we learn from it?`\
 https://nytimes.com/athletic/5642867/2024/07/18/darren-eales-newcastle-transfers-psr/
-
-**Why Rodri winning the Ballon d'Or would be both good and bad news for Manchester City**\
-`The wider football world is realising just how good the Spanish midfielder is - and how irreplaceable he is in Pep Guardiola's side `\
-https://nytimes.com/athletic/5641997/2024/07/18/rodri-best-player-global-interest/
 
