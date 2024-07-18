@@ -10,7 +10,7 @@ https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/read-th
 `The couple met while attending Yale Law School. Republicans hope Ms. Vance, the daughter of Indian immigrants, will become the second lady.`\
 https://nytimes.com/2024/07/18/us/politics/usha-vance-jd-wife.html
 
-**Listeria in Milk Alternatives Kills Two Canadians, Sickens 10 More**\
+**Listeria in Milk Alternatives Kills Two Canadians and Sickens 10 More**\
 `The Silk and Great Value brand drinks made from nuts, oats and coconuts were pulled from stores last week.`\
 https://nytimes.com/2024/07/18/world/canada/silk-listeria-milk-deaths.html
 
