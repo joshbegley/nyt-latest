@@ -1,3 +1,19 @@
+**Logan Sargeant stops caring about his critics as he fights for his future**\
+`“It’s quite a draining place,” Sargeant said of social media. “When you’re doing things well, of course people want to drag you down."`\
+https://nytimes.com/athletic/5645675/2024/07/18/f1-logan-sargeant-future-contract-williams/
+
+**Savinho to Manchester City: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Savinho's move to Manchester City.`\
+https://nytimes.com/athletic/5613597/2024/07/18/savinho-to-manchester-city-transfer-ratings/
+
+**Savinho joins Man City from Troyes**\
+`Manchester City have completed the signing of Savinho from Troyes on a five-year contract in a transfer worth up to €40million (£33.`\
+https://nytimes.com/athletic/5643054/2024/07/18/savinho-manchester-city-transfer/
+
+**Tomatoes and Peaches, Summer BFFs**\
+`Especially when assembled with cold tofu, basil and mint, piled on top of whipped goat cheese or tossed with crunchy almonds and chewy berkoukes.`\
+https://nytimes.com/2024/07/18/dining/tomatoes-and-peaches-summer-bffs.html
+
 **A Vegetable Lovers Guide to the Grill**\
 `These five easy recipes and tips turn savory charred vegetables into fresh, filling main dishes.`\
 https://nytimes.com/2024/07/18/dining/grill-vegetarian-dinner-recipes.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/07/18/world/europe/trump-foreign-policy.html
 **Submit your questions for Max Bultman's Red Wings mailbag**\
 `Send in your questions, and Max Bultman may answer them in an upcoming mailbag.`\
 https://nytimes.com/athletic/5645674/2024/07/18/red-wings-bultman-mailbag-submissions/
-
-**Republicans Have Muffled Trump’s Election Lies at the R.N.C. Here’s Why.**\
-`The conspiracy theories about fraud in the 2020 election have largely been absent in prime time. But false claims about elections are still circulating.`\
-https://nytimes.com/2024/07/18/us/politics/republican-convention-2024-campaign-elections.html
-
-**Peter Buxtun, Who Exposed Tuskegee Syphilis Study, Dies at 86**\
-`A Public Health Service employee, he turned whistle-blower after learning of decades-long research involving hundreds of poor, infected Black men who were left untreated.`\
-https://nytimes.com/2024/07/18/us/peter-buxtun-dead.html
-
-**Democrats, Stop Saying It’s Too Late**\
-`The conventional wisdom about Biden ricochets between denialism and fatalism.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/democrats-convention-biden
-
-**Transcript: Ezra Klein Interviews Tim Alberta**\
-`The July 18, 2024, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2024/07/18/podcasts/transcript-ezra-klein-interviews-tim-alberta.html
 

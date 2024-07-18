@@ -1,3 +1,19 @@
+**Logan Sargeant stops caring about his critics as he fights for his future**\
+`“It’s quite a draining place,” Sargeant said of social media. “When you’re doing things well, of course people want to drag you down."`\
+https://nytimes.com/athletic/5645675/2024/07/18/f1-logan-sargeant-future-contract-williams/
+
+**Savinho to Manchester City: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Savinho's move to Manchester City.`\
+https://nytimes.com/athletic/5613597/2024/07/18/savinho-to-manchester-city-transfer-ratings/
+
+**Savinho joins Man City from Troyes**\
+`Manchester City have completed the signing of Savinho from Troyes on a five-year contract in a transfer worth up to €40million (£33.`\
+https://nytimes.com/athletic/5643054/2024/07/18/savinho-manchester-city-transfer/
+
+**Tomatoes and Peaches, Summer BFFs**\
+`Especially when assembled with cold tofu, basil and mint, piled on top of whipped goat cheese or tossed with crunchy almonds and chewy berkoukes.`\
+https://nytimes.com/2024/07/18/dining/tomatoes-and-peaches-summer-bffs.html
+
 **A Vegetable Lovers Guide to the Grill**\
 `These five easy recipes and tips turn savory charred vegetables into fresh, filling main dishes.`\
 https://nytimes.com/2024/07/18/dining/grill-vegetarian-dinner-recipes.html
