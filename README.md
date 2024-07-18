@@ -1,3 +1,11 @@
+**Barcelona prospect Fernandez, 16, signs first pro deal**\
+`Barcelona prospect Guille Fernandez has signed a new contract with the club.`\
+https://nytimes.com/athletic/5645130/2024/07/18/barcelona-guille-fernandez-contract/
+
+**At 5, She Picked Up Chess as a Pandemic Hobby. At 9, She’s a Prodigy.**\
+`Bodhana Sivanandan, a fourth-grader, has become one of England’s best players just a few years after discovering chess during pandemic lockdown.`\
+https://nytimes.com/2024/07/18/world/europe/bodhana-sivanandan-chess-prodigy-england.html
+
 **No Taxes on Tips? A Trump Idea Gains Ground.**\
 `The sudden popularity of exempting tips from taxes is a reminder of the improvisational nature of economic policymaking under Donald Trump.`\
 https://nytimes.com/2024/07/18/us/politics/tipped-wages-taxes-donald-trump-economic-policy.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/18/us/politics/rnc-speaker-lineup.html
 **A One-Man Telemundo on TikTok**\
 `Carlos Espina is among a new kind of social media personalities whom politicians, especially those in the Biden White House, view as modern-day broadcasters.`\
 https://nytimes.com/2024/07/18/business/media/carlos-espina-tiktok.html
-
-**About 1,000 ultra-Orthodox men will receive initial orders, the Israeli defense minister said.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/07/18/world/israel-gaza-war-hamas/about-1000-ultra-orthodox-men-will-receive-initial-orders-the-israeli-defense-minister-said
-
-**Democrats wrestle with a rift while Republicans put on a show of unity.**\
-`The discontent with President Biden has not faded and tempers are fraying as he insists on staying in the race over the objections of some fellow Democrats who worry that he cannot win.`\
-https://nytimes.com/live/2024/07/18/us/biden-election-news/democrats-wrestle-with-a-rift-while-republicans-put-on-a-show-of-unity
 
