@@ -1,3 +1,7 @@
+**Friday Briefing: U.S. Presidential Race at a Crossroads**\
+`Plus, security failures at the Trump rally.`\
+https://nytimes.com/2024/07/18/briefing/trump-biden-election-rnc.html
+
 **A Masterpiece of 20th-Century Sculpture That You Can Wear Around Your Neck**\
 `This fall, the French fashion house Celine will release a miniature version of a work by the artist Jean Arp — in the form of a pendant.`\
 https://nytimes.com/2024/07/18/t-magazine/celine-jean-arp-ptolemy-necklace.html
@@ -27,14 +31,10 @@ https://nytimes.com/2024/07/18/world/europe/italy-journalist-defamation-meloni.h
 https://nytimes.com/2024/07/18/opinion/democrats-biden-drop-out.html
 
 **‘The Bite’: Democrats Debate Councilwoman’s Bizarre Assault Charge**\
-`Susan Zhuang, a first-year City Council member from Queens, was charged with assault for biting a police officer. Democrats are split over how harshly to reprimand her.`\
+`Susan Zhuang, a first-year City Council member from Brooklyn, was charged with assault for biting a police officer. Democrats are split over how harshly to reprimand her.`\
 https://nytimes.com/2024/07/18/nyregion/zhuang-bite-police-council.html
 
 **U.S. Treasury sanctions seek to financially cripple the Yemeni rebels attacking Red Sea shipping.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/07/18/world/israel-gaza-war-hamas/us-treasury-sanctions-seek-to-financially-cripple-the-yemeni-rebels-attacking-red-sea-shipping
-
-**The Irreconcilable Versions of J.D. Vance in ‘Hillbilly Elegy’**\
-`Even before the Republican vice-presidential nominee aligned himself with Donald Trump, contradiction was central to his rags-to-riches biography.`\
-https://nytimes.com/2024/07/18/us/politics/jd-vance-hillbilly-elegy.html
 
