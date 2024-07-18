@@ -1,3 +1,7 @@
+**Same-Sex Couples in South Korea Win Landmark Rights Ruling**\
+`The country’s Supreme Court said same-sex couples qualify for dependent coverage under the national health insurance, a decision that could have wider ramifications.`\
+https://nytimes.com/2024/07/18/world/asia/south-korea-same-sex-rights-ruling.html
+
 **Lankshear, Moore and Tottenham's teenagers give Postecoglou plenty to ponder**\
 `The future is looking bright for Tottenham and Postecoglou - homegrown youngsters plus Gray and Bergvall impressed against Hearts`\
 https://nytimes.com/athletic/5644517/2024/07/18/tottenham-ange-postecoglou-academy-players/

@@ -1,3 +1,7 @@
+**Same-Sex Couples in South Korea Win Landmark Rights Ruling**\
+`The country’s Supreme Court said same-sex couples qualify for dependent coverage under the national health insurance, a decision that could have wider ramifications.`\
+https://nytimes.com/2024/07/18/world/asia/south-korea-same-sex-rights-ruling.html
+
 **Evan Gershkovich Returns to Court in Russia**\
 `The hearing was the second in the espionage trial of Mr. Gershkovich, a reporter for The Wall Street Journal. The United States and The Journal have strongly rejected the charge against him.`\
 https://nytimes.com/2024/07/18/world/europe/evan-gershkovich-court-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/nyregion/taliban-afghanistan-lawyers.html
 **Royal Troon’s most famous hole will make some golfers want to return to sender**\
 `TROON, Scotland — As the thick, dense gorse plants wave heavily back toward the tee like fine hair in the wind, another golfer steps to Royal Troon’s eighth tee box trying to figure out why exactly this short little hole is so daunting.`\
 https://nytimes.com/athletic/5643452/2024/07/18/open-championship-royal-troon-postage-stamp-hole/
-
-**Lankshear, Moore and Tottenham's teenagers give Postecoglou plenty to ponder**\
-`The future is looking bright for Tottenham and Postecoglou - homegrown youngsters plus Gray and Bergvall impressed against Hearts`\
-https://nytimes.com/athletic/5644517/2024/07/18/tottenham-ange-postecoglou-academy-players/
 
