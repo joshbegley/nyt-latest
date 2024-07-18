@@ -1,40 +1,40 @@
-**Donald Trump’s First Term Is a Warning**\
-`Your guide to the perils of a second Trump era.`\
-https://nytimes.com/interactive/2024/07/18/opinion/trump-presidency-record.html
+**Republicans Put Trump in Soft Focus, Editing Out Years of Rancor**\
+`Over three days at the Republican National Convention, Donald J. Trump’s party has tried to soften his image. On Thursday, he’ll speak for himself.`\
+https://nytimes.com/2024/07/18/us/politics/donald-trump-republicans-2024-campaign.html
 
-**FIFA ranking: USMNT falls; England, Spain rise**\
-`The USMNT has dropped five places to 16th in the FIFA world rankings following its Copa America group-stage exit.`\
-https://nytimes.com/athletic/5644909/2024/07/18/fifa-world-ranking-usmnt-spain-england/
+**The G.O.P. Looked Awfully Youthful Wednesday Night**\
+`A group of fraternity members emblematized the future of the party.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/the-gop-looked-awfully-youthful-wednesday-night
 
-**Kevin Magnussen to leave Haas F1 at end of 2024 season**\
-`In its ninth season, Haas is a young team by F1 standards, and Magnussen has played a bigger role in its story than any other driver.`\
-https://nytimes.com/athletic/5643869/2024/07/18/kevin-magnussen-haas-leaving/
+**In San Francisco, a Gallerist Followed Her Heart to a New Apartment for Around $1 Million**\
+`A first-time buyer put her savings to work in the expensive Bay Area housing market, using the local tenancy-in-common model to find something she could afford. Here’s where she landed.`\
+https://nytimes.com/interactive/2024/07/18/realestate/san-francisco-apartment-home-mortgage.html
 
-**Same-Sex Couples in South Korea Win Landmark Rights Ruling**\
-`The country’s Supreme Court said same-sex couples qualify for dependent coverage under the national health insurance, a decision that could have wider ramifications.`\
-https://nytimes.com/2024/07/18/world/asia/south-korea-same-sex-rights-ruling.html
+**Homewares Inspired by Hunting Tools and Sea Creatures**\
+`Plus: a Miami riverfront restaurant, cashmere blankets and more recommendations from T Magazine.`\
+https://nytimes.com/2024/07/18/t-magazine/alighieri-jewelry-homeware.html
 
-**Evan Gershkovich Returns to Court in Russia**\
-`The hearing was the second in the espionage trial of Mr. Gershkovich, a reporter for The Wall Street Journal. The United States and The Journal have strongly rejected the charge against him.`\
-https://nytimes.com/2024/07/18/world/europe/evan-gershkovich-court-russia.html
+**The Meaning of Trump’s Fighting Words**\
+`In the canon of Trump books and speeches, “fight” is a constant byword.`\
+https://nytimes.com/2024/07/18/opinion/trump-rhetoric-fighting-words.html
 
-**Postecoglou: 'My work is not done' at Tottenham amid England job links**\
-`Ange Postecoglou says his &#8220;work is not done&#8221; at Tottenham Hotspur amid links with the vacant England manager role.`\
-https://nytimes.com/athletic/5644856/2024/07/18/ange-postecoglou-england-job-tottenham/
+**Colman Domingo Finds Brotherhood in ‘Sing Sing’**\
+`“We made this film as if it was going to be our last.”`\
+https://nytimes.com/2024/07/18/podcasts/colman-domingo-sing-sing.html
 
-**Deadly Fire Consumes Shopping Mall in China**\
-`A thick plume of black smoke rose over the building with people trapped inside.`\
-https://nytimes.com/video/world/asia/100000009578715/china-fire-shopping-mall.html
+**Watching ‘Twisters’ Amid the Wreckage of Hurricane Beryl**\
+`Disaster movies make for thrilling blockbusters. But the reality of a changing climate is slow-motion tragedy, broken bureaucracy and lingering tedium.`\
+https://nytimes.com/2024/07/18/opinion/hurricane-beryl-twisters-movie.html
 
-**Hungarian GP track breakdown: F1's narrow, bumpy, relentless Hungaroring**\
-`As the summer heat settles on Budapest, F1 takes to the Hungaroring, a narrow and bumpy circuit that offers few breaks over 2.72 miles.`\
-https://nytimes.com/athletic/5644054/2024/07/18/f1-hungary-gp-hungaroring-circuit-track-specs/
+**The Soundtrack of Donald Trump**\
+`Lee Greenwood on “God Bless the U.S.A.” and the man he wants back in the White House.`\
+https://nytimes.com/2024/07/18/podcasts/the-soundtrack-of-donald-trump.html
 
-**Documenting a #MeToo Investigation Seven Years Later**\
-`An article on claims of sexual misconduct against Louis C.K. led to backlash against the women who spoke out. “Sorry/Not Sorry,” a New York Times documentary, examined the aftermath.`\
-https://nytimes.com/2024/07/18/insider/sorry-not-sorry-louis-ck.html
+**The Promise of Political Rebirth for Donald Trump**\
+`For his convention speech, Donald Trump faces a new, more promising rhetorical and political situation.`\
+https://nytimes.com/2024/07/18/opinion/trump-republican-convention-speech.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/07/18/crosswords/spelling-bee-forum.html
+**An Algorithm Told Police She Was Safe. Then Her Husband Killed Her.**\
+`Spain has become reliant on an algorithm to score how likely a domestic violence victim may be abused again and what protection to provide — sometimes leading to fatal consequences.`\
+https://nytimes.com/interactive/2024/07/18/technology/spain-domestic-violence-viogen-algorithm.html
 
