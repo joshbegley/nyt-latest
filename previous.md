@@ -1,3 +1,19 @@
+**A Letter to a Student From The New York Times Learning Network**\
+`When we ran our new Open Letters Contest, we never imagined that a teenager would choose us as the recipient. Here is our response.`\
+https://nytimes.com/2024/07/18/learning/a-letter-to-a-student-from-the-new-york-times-learning-network.html
+
+**Here’s the latest on the Democratic campaign.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/07/18/us/biden-election-news/heres-the-latest-on-the-democratic-campaign
+
+**Knicks roster analysis: Cameron Payne signs, Precious Achiuwa lingers and more**\
+`Head coach Tom Thibodeau is entering the final season of his contract and could re-up for more years soon.`\
+https://nytimes.com/athletic/5645318/2024/07/18/knicks-roster-analysis-precious-achiuwa-cameron-payne/
+
+**A Letter From a ‘Loser’**\
+`We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Anya Wang, age 16.`\
+https://nytimes.com/2024/07/18/learning/a-letter-from-a-loser.html
+
 **Why the Era of China’s Soaring Carbon Emissions Might Be Ending**\
 `Analysts are seeing promising signs from the world’s biggest emitter of greenhouse gases.`\
 https://nytimes.com/2024/07/18/climate/china-greenhouse-gas-emissions-plateau.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5645333/2024/07/18/paulo-iago-sporting-lisbon-real-
 **Liverpool suspend ticket sales after cyber attack**\
 `Liverpool have suspended members ticket sales until further notice after falling victim to a cyber attack.`\
 https://nytimes.com/athletic/5645264/2024/07/18/liverpool-tickets-cyber-attack/
-
-**Bears fan survey results: 'Cautious optimism' for Caleb Williams, 2024 squad**\
-`How excited are Bears fans about their new quarterback? What do they think of the current stadium situation? Fifth annual survey results. `\
-https://nytimes.com/athletic/5642120/2024/07/18/chicago-bears-caleb-williams-rome-odunze/
-
-**A Win for Gay Rights in South Korea After a Supreme Court Ruling**\
-`A couple who filed a lawsuit in 2021 after their spousal benefits were cancelled celebrated a landmark court decision allowing same-sex couples to qualify for dependent health insurance coverage.`\
-https://nytimes.com/video/world/asia/100000009578832/court-ruling-gay-rights-south-korea.html
-
-**Lakers not worried about Bronny James' summer struggles: 'He’s trying to find his way'**\
-`Meanwhile, first-round pick Dalton Knecht has shown why many considered him the steal of the draft at No. 17.`\
-https://nytimes.com/athletic/5622822/2024/07/18/bronny-james-lakers-nba-summer-league-lebron/
-
-**Trump Says ‘I Got Lucky’ in Surviving Assassination Attempt, Video Shows**\
-`A clip first aired by PBS shows Donald Trump addressing a gathering in Milwaukee and discussing the shooting a few days earlier: “God was with me.”`\
-https://nytimes.com/2024/07/18/us/politics/trump-i-got-lucky-shooting-video.html
 

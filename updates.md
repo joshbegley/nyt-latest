@@ -1,3 +1,19 @@
+**A Letter to a Student From The New York Times Learning Network**\
+`When we ran our new Open Letters Contest, we never imagined that a teenager would choose us as the recipient. Here is our response.`\
+https://nytimes.com/2024/07/18/learning/a-letter-to-a-student-from-the-new-york-times-learning-network.html
+
+**Here’s the latest on the Democratic campaign.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/07/18/us/biden-election-news/heres-the-latest-on-the-democratic-campaign
+
+**Knicks roster analysis: Cameron Payne signs, Precious Achiuwa lingers and more**\
+`Head coach Tom Thibodeau is entering the final season of his contract and could re-up for more years soon.`\
+https://nytimes.com/athletic/5645318/2024/07/18/knicks-roster-analysis-precious-achiuwa-cameron-payne/
+
+**A Letter From a ‘Loser’**\
+`We are honoring the Top 9 winners of our Student Open Letter Contest by publishing their entries. This one is by Anya Wang, age 16.`\
+https://nytimes.com/2024/07/18/learning/a-letter-from-a-loser.html
+
 **Real Madrid's Iago set to join Sporting Lisbon**\
 `Paulo Iago is set to join Sporting Lisbon and leave Real Madrid following ten years at the academy.`\
 https://nytimes.com/athletic/5645333/2024/07/18/paulo-iago-sporting-lisbon-real-madrid/

@@ -1,3 +1,7 @@
+**MSNBC’s Joe Scarborough Urges Biden’s Advisers to ‘Do the Right Thing’**\
+`The host, who had been blunt but sympathetic toward Mr. Biden after the president’s debate performance, all but called on aides to help him exit the race.`\
+https://nytimes.com/2024/07/18/us/politics/biden-joe-scarborough-election-withdraw.html
+
 **A Letter to a Student From The New York Times Learning Network**\
 `When we ran our new Open Letters Contest, we never imagined that a teenager would choose us as the recipient. Here is our response.`\
 https://nytimes.com/2024/07/18/learning/a-letter-to-a-student-from-the-new-york-times-learning-network.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/books/reader-best-books-21st-century.html
 **Real Madrid's Iago set to join Sporting Lisbon**\
 `Paulo Iago is set to join Sporting Lisbon and leave Real Madrid following ten years at the academy.`\
 https://nytimes.com/athletic/5645333/2024/07/18/paulo-iago-sporting-lisbon-real-madrid/
-
-**Liverpool suspend ticket sales after cyber attack**\
-`Liverpool have suspended members ticket sales until further notice after falling victim to a cyber attack.`\
-https://nytimes.com/athletic/5645264/2024/07/18/liverpool-tickets-cyber-attack/
 
