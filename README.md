@@ -1,3 +1,11 @@
+**A Letter to a Student From The New York Times Learning Network**\
+`When we ran our new Open Letters Contest, we never imagined that a teenager would choose us as the recipient. Here is our response.`\
+https://nytimes.com/2024/07/18/learning/a-letter-to-a-student-from-the-new-york-times-learning-network.html
+
+**Here’s the latest on the Democratic campaign.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/07/18/us/biden-election-news/heres-the-latest-on-the-democratic-campaign
+
 **Knicks roster analysis: Cameron Payne signs, Precious Achiuwa lingers and more**\
 `Head coach Tom Thibodeau is entering the final season of his contract and could re-up for more years soon.`\
 https://nytimes.com/athletic/5645318/2024/07/18/knicks-roster-analysis-precious-achiuwa-cameron-payne/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5645333/2024/07/18/paulo-iago-sporting-lisbon-real-
 **Liverpool suspend ticket sales after cyber attack**\
 `Liverpool have suspended members ticket sales until further notice after falling victim to a cyber attack.`\
 https://nytimes.com/athletic/5645264/2024/07/18/liverpool-tickets-cyber-attack/
-
-**The best (and worst) case scenarios for the Atlanta Falcons' 2024 season**\
-`The Atlanta Falcons open training camp on July 24 with a new head coach, new quarterback and new expectations.`\
-https://nytimes.com/athletic/5641403/2024/07/18/atlanta-falcons-2024-scenarios/
-
-**Bears fan survey results: 'Cautious optimism' for Caleb Williams, 2024 squad**\
-`How excited are Bears fans about their new quarterback? What do they think of the current stadium situation? Fifth annual survey results. `\
-https://nytimes.com/athletic/5642120/2024/07/18/chicago-bears-caleb-williams-rome-odunze/
 
