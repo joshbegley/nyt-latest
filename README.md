@@ -1,7 +1,3 @@
-**What Elon Musk could gain from Donald Trump.**\
-`By Dealbook`\
-https://nytimes.com/live/2024/07/18/us/trump-biden-republican-convention/what-elon-musk-could-gain-from-donald-trump
-
 **Juventus confirm Rabiot exit**\
 `Adrien Rabiot will be leaving Juventus after five seasons at the Italian club.`\
 https://nytimes.com/athletic/5645211/2024/07/18/adrien-rabiot-juventus-leaves/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5643878/2024/07/18/angels-second-half-storylines-tr
 **Takeaways from Team USA in Abu Dhabi: Who's scoring, Kevin Durant's progress and more**\
 `"We're starting to find rhythm, that's what we want," Stephen Curry says as Team USA heads to London for their last pre-Olympics tune-ups.`\
 https://nytimes.com/athletic/5644998/2024/07/18/team-usa-basketball-olympics-kevin-durant-abu-dhabi/
+
+**How Musk May Influence Trump Policy**\
+`Space, electric vehicles, artificial intelligence: The tech mogul could influence policy in these areas and others should Donald Trump win re-election.`\
+https://nytimes.com/2024/07/18/business/dealbook/musk-trump-tesla-spacex-starlink.html
 
