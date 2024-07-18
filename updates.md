@@ -1,3 +1,7 @@
+**The Open Championship psychology: How to thrive at one of golf's toughest tests**\
+`The key to winning at Royal Troon is dealing with the right shot gone poorly.`\
+https://nytimes.com/athletic/5646271/2024/07/18/open-championship-golf-mental/
+
 **Friday Briefing: U.S. Presidential Race at a Crossroads**\
 `Plus, security failures at the Trump rally.`\
 https://nytimes.com/2024/07/18/briefing/trump-biden-election-rnc.html
