@@ -1,3 +1,7 @@
+**Vieira leaves Strasbourg by mutual consent**\
+`BlueCo, the multi-club ownership group best known for its ownership of Chelsea, have today made a managerial change at their French club Strasbourg, parting company with head coach Patrick Vieira by mutual consent.`\
+https://nytimes.com/athletic/5645228/2024/07/18/patrick-vieira-strasbourg-chelsea-blueco/
+
 **Quinn Ewers is comfortable being Texas' headliner. Can he take the next step?**\
 `Ewers is good and has been great at times, but can he be great consistently?`\
 https://nytimes.com/athletic/5645161/2024/07/18/quinn-ewers-texas-football-quarterbacks/

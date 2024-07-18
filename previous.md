@@ -1,3 +1,7 @@
+**Vieira leaves Strasbourg by mutual consent**\
+`BlueCo, the multi-club ownership group best known for its ownership of Chelsea, have today made a managerial change at their French club Strasbourg, parting company with head coach Patrick Vieira by mutual consent.`\
+https://nytimes.com/athletic/5645228/2024/07/18/patrick-vieira-strasbourg-chelsea-blueco/
+
 **Quinn Ewers is comfortable being Texas' headliner. Can he take the next step?**\
 `Ewers is good and has been great at times, but can he be great consistently?`\
 https://nytimes.com/athletic/5645161/2024/07/18/quinn-ewers-texas-football-quarterbacks/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/business/dealbook/musk-trump-tesla-spacex-starlin
 **The Athletic FC: Korea star's secret sex tape charge. Plus: Sullivan, 14, makes MLS debut**\
 `Today in The Athletic FC: The story of Hwang Ui-jo, a secret sex video charge and blackmail. Plus: Sullivan, 14, makes MLS debut.`\
 https://nytimes.com/athletic/5645032/2024/07/18/korea-stars-sex-tape-charge-sullivan-14-debut/
-
-**Ukraine Loses Hard-Won Position Near Dnipro River in the South**\
-`Soldiers and military analysts said an operation to establish a foothold on the river’s Russian-controlled eastern bank was bloody and hard to justify.`\
-https://nytimes.com/2024/07/18/world/europe/ukraine-war-dnipro-river.html
 
