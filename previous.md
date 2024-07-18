@@ -1,3 +1,7 @@
+**Russell Westbrook expected to join Nuggets after Clippers-Jazz trade: Sources**\
+`The plan for Westbrook and the Clippers was to part ways this offseason, and the Nuggets were a front-runner.`\
+https://nytimes.com/athletic/5645975/2024/07/18/russell-westbrook-trade-jazz-clippers/
+
 **Founder of Fandango Dies After Plunge From Manhattan Hotel**\
 `J. Michael Cline was the co-founder of an online ticketing company that changed how Americans went to the movies.`\
 https://nytimes.com/2024/07/18/nyregion/fandango-j-michael-cline-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/us/politics/elon-musk-trump.html
 **Key Takeaways From the Republican Convention’s Message on Immigration**\
 `If the rhetoric on immigration at this week’s G.O.P. convention matches former President Donald J. Trump’s vision of isolationism, it has also grown darker and more conspiratorial.`\
 https://nytimes.com/2024/07/17/us/politics/rnc-immigration-trump-takeaways.html
-
-**Traditional Marriage for Thee, but Not for J.D. Vance**\
-`He refers to the elite as if he is not part of it, but then, in all of his lifestyle choices, he acts like any other Ivy League grad.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/vance-wife-marriage
 

@@ -1,3 +1,7 @@
+**Russell Westbrook expected to join Nuggets after Clippers-Jazz trade: Sources**\
+`The plan for Westbrook and the Clippers was to part ways this offseason, and the Nuggets were a front-runner.`\
+https://nytimes.com/athletic/5645975/2024/07/18/russell-westbrook-trade-jazz-clippers/
+
 **Jamie Raskin, a Key Democrat, Urged Biden to Reconsider Campaign**\
 `Mr. Raskin, a congressman from Maryland, was a key member of the panel that investigated the Capitol riot. In a lengthy letter, he compared President Biden to a tiring baseball pitcher.`\
 https://nytimes.com/2024/07/18/us/politics/jamie-raskin-biden-letter.html
