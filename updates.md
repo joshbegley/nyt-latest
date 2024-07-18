@@ -1,3 +1,11 @@
+**Dig at Meloni’s Height Could Cost Reporter in Italy 5,000 Euros**\
+`A lawsuit that Prime Minister Giorgia Meloni won is one of several she has filed against critics. Press-freedom groups say it is a concerning practice.`\
+https://nytimes.com/2024/07/18/world/europe/italy-journalist-defamation-meloni.html
+
+**‘The Bite’: Democrats Debate Councilwoman’s Bizarre Assault Charge**\
+`Susan Zhuang, a first-year City Council member from Brooklyn, was charged with assault for biting a police officer. Democrats are split over how harshly to reprimand her.`\
+https://nytimes.com/2024/07/18/nyregion/zhuang-bite-police-council.html
+
 **People Close to Biden Say He Appears to Accept He May Have to Leave the Race**\
 `One person familiar with President Biden’s thinking cautioned that he had not yet made up his mind to leave the race, after three weeks of insisting that almost nothing would drive him out.`\
 https://nytimes.com/2024/07/18/us/politics/biden-election-drop-out.html
