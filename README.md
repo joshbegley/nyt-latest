@@ -1,3 +1,11 @@
+**Corrections: July 18, 2024**\
+`Corrections that appeared in print on Thursday, July 18, 2024.`\
+https://nytimes.com/2024/07/17/pageoneplus/corrections-july-18-2024.html
+
+**Quotation of the Day: Extreme Weather Causes Record Amtrak Delays**\
+`Quotation of the Day for Thursday, July 18, 2024.`\
+https://nytimes.com/2024/07/17/pageoneplus/quotation-of-the-day-extreme-weather-causes-record-amtrak-delays.html
+
 **“The guy who advised Obama not to take out Osama. Joe Biden advised against the mission that killed Osama bin Laden.”**\
 `By Angelo Fichera`\
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/the-guy-who-advised-obama-not-to-take-out-osama-joe-biden-advised-against-the-mission-that-killed-osama-bin-laden
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/you-did
 **President Biden “is focused on building electric tanks.”**\
 `By Lisa Friedman`\
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/president-biden-is-focused-on-building-electric-tanks
-
-**Cavan Sullivan, 14, snaps MLS record with Union debut**\
-`On Wednesday, Sullivan became the youngest player to appear in a Major League Soccer match.`\
-https://nytimes.com/athletic/5644521/2024/07/17/cavan-sullivan-mls-age-record-union/
-
-**For Sidelined Giuliani, a Tumble Is an Unsubtle Metaphor**\
-`Rudolph W. Giuliani — indicted, disbarred and bankrupt — has no speaking slot at the convention, but he is nevertheless making the rounds in Milwaukee.`\
-https://nytimes.com/2024/07/17/us/politics/rudy-giuliani-rnc-fall.html
 
