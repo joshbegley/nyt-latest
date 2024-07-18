@@ -1,3 +1,7 @@
+**Emile Smith Rowe departing Arsenal would be painful - but it might be the right move**\
+`Arsenal may have rejected a bid from Fulham for Smith Rowe but they realise someone as talented as the midfielder needs to be playing`\
+https://nytimes.com/athletic/5640847/2024/07/18/emile-smith-rowe-arsenal-future-transfer/
+
 **Clark, Ionescu not in WNBA All-Star 3-point contest**\
 `Ionescu won last year's contest and went up against Stephen Curry in a first-of-its-kind 3-point competition in February.`\
 https://nytimes.com/athletic/5644734/2024/07/18/wnba-3-point-contest-clark-ionescu/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/world/europe/the-other-marine-of-french-politics-
 **As Clouds Gather Over Europe, Leaders Seek Unity in Churchill’s Birthplace**\
 `More than 40 European leaders will meet at Blenheim Palace on Thursday. Fears over the continent’s security, and the threat of Russia, will loom large.`\
 https://nytimes.com/2024/07/18/world/europe/europe-leaders-meet-blenheim-palace-uk-starmer.html
-
-**In Argentina, a Catholic President and His Rabbi**\
-`Javier Milei has developed a public devotion to Judaism unusual for a leader of a predominantly Roman Catholic country.`\
-https://nytimes.com/2024/07/18/world/americas/argentina-milei-judaism.html
 
