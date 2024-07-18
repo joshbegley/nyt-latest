@@ -1,3 +1,11 @@
+**How Trump’s Security Failed to Stop an Assassination Attempt**\
+`Videos, audio and photographs of the attempted assassination of former President Donald J. Trump at an election rally shows how a clear threat emerged minutes before the shooting, and how law enforcement failed to protect Mr. Trump.`\
+https://nytimes.com/video/us/politics/100000009576871/trump-shooting-assassination-attempt.html
+
+**Listeria in Milk Alternatives Kills Two Canadians and Sickens 10 More**\
+`The Silk and Great Value brand drinks made from nuts, oats and coconuts were pulled from stores last week.`\
+https://nytimes.com/2024/07/18/world/canada/silk-listeria-milk-deaths.html
+
 **Read the transcript of J.D. Vance’s convention speech.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/read-the-transcript-of-jd-vances-convention-speech
