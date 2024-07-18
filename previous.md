@@ -1,3 +1,15 @@
+**What to Know About the Student Unrest in Bangladesh**\
+`Seventeen people have been killed in violent clashes between the police and students protesting a quota system used to fill coveted civil service jobs.`\
+https://nytimes.com/2024/07/18/world/asia/bangladesh-student-protests.html
+
+**Here’s the latest on the investigation.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/07/18/us/trump-rally-shooting-news/heres-the-latest-on-the-investigation
+
+**Trump Shooting Live Updates: Lawmakers Assail Decision to Let Rally Go Ahead**\
+`The Secret Service’s call to let the former president take the stage even as law enforcement searched for a potentially dangerous person has drawn a furious response.`\
+https://nytimes.com/live/2024/07/18/us/trump-rally-shooting-news
+
 **Usha Vance and the Iconography of the Trump Women**\
 `The potential second lady models a new kind of Republican image-making.`\
 https://nytimes.com/2024/07/18/style/usha-vance-rnc-maga-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5645228/2024/07/18/patrick-vieira-strasbourg-chelse
 **Quinn Ewers is comfortable being Texas' headliner. Can he take the next step?**\
 `Ewers is good and has been great at times, but can he be great consistently?`\
 https://nytimes.com/athletic/5645161/2024/07/18/quinn-ewers-texas-football-quarterbacks/
-
-**Von der Leyen Secures Second E.U. Term, but It’s a New World Out There**\
-`The German conservative, a steadfast U.S. ally, gained European Parliament approval to lead the European Commission for another five years. She’ll face tumult at home and abroad.`\
-https://nytimes.com/2024/07/18/world/europe/european-commission-von-der-leyen.html
-
-**Man Utd Women trigger Parris contract extension**\
-`Manchester United have activated a one-year option on Nikita Parris&#8217; contract to extend her stay at the club until 2025.`\
-https://nytimes.com/athletic/5645129/2024/07/18/nikita-parris-manchester-united-contract/
-
-**Padres second-half storylines to watch, starting with the trade deadline**\
-`Though the Padres remain just one game back of the final wild card, they face stiff a stiff challenge with their pitching and their health`\
-https://nytimes.com/athletic/5642744/2024/07/18/padres-second-half-storylines/
 

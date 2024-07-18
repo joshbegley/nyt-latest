@@ -1,3 +1,15 @@
+**What to Know About the Student Unrest in Bangladesh**\
+`Seventeen people have been killed in violent clashes between the police and students protesting a quota system used to fill coveted civil service jobs.`\
+https://nytimes.com/2024/07/18/world/asia/bangladesh-student-protests.html
+
+**Here’s the latest on the investigation.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/07/18/us/trump-rally-shooting-news/heres-the-latest-on-the-investigation
+
+**Trump Shooting Live Updates: Lawmakers Assail Decision to Let Rally Go Ahead**\
+`The Secret Service’s call to let the former president take the stage even as law enforcement searched for a potentially dangerous person has drawn a furious response.`\
+https://nytimes.com/live/2024/07/18/us/trump-rally-shooting-news
+
 **Usha Vance and the Iconography of the Trump Women**\
 `The potential second lady models a new kind of Republican image-making.`\
 https://nytimes.com/2024/07/18/style/usha-vance-rnc-maga-trump.html
