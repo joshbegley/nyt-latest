@@ -1,3 +1,7 @@
+**Kid Rock will bring his provocative style to the stage before Trump’s speech.**\
+`By Ben Sisario`\
+https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/kid-rock-will-bring-provocative-style-to-the-stage-before-trumps-speech
+
 **Six thoughts about the San Francisco Giants provisional 2025 schedule**\
 `The Giants open the season in Cincinnati, don't see the Dodgers until July, and have a brutal stretch of consecutive games in April.`\
 https://nytimes.com/athletic/5645928/2024/07/18/sf-giants-2025-schedule-analysis/
