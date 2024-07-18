@@ -1,3 +1,11 @@
+**How Manchester United beat Real Madrid to the signing of Leny Yoro**\
+`United have landed Lille defender Yoro, considered a 'generational talent' at age 18 - this is the story of how they did it`\
+https://nytimes.com/athletic/5644891/2024/07/18/leny-yoro-transfer-manchester-united-real-madrid/
+
+**Solving Problems With Susan Solomon**\
+`She played a crucial role in fixing the ozone hole, and has thoughts on climate change.`\
+https://nytimes.com/2024/07/18/climate/susan-solomon-q-and-a.html
+
 **Why Are Democrats Speaking to America in Ancient Greek?**\
 `Democracy is vital. “Democracy,” the word, is inert.`\
 https://nytimes.com/2024/07/18/opinion/democracy-dead-word-language.html
