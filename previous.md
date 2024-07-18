@@ -1,3 +1,7 @@
+**Pat Williams, Orlando Magic co-founder, dies at 84**\
+`In 1986, Williams left the 76ers and joined Orlando-area businessman Jimmy Hewitt to work to bring an NBA expansion team to Orlando.`\
+https://nytimes.com/athletic/5644749/2024/07/18/pat-williams-orlando-magic-obit/
+
 **Fire at Shopping Mall in Southwestern China Kills 16**\
 `Dozens were trapped inside the building when the fire started on Wednesday evening in Sichuan Province, local authorities said.`\
 https://nytimes.com/2024/07/18/world/zizong-sichuan-mall-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/briefing/biden-covid-trump-assassin.html
 **Why Leeds fans are seeing red at their new kit**\
 `Leeds' deal with Red Bull meant its logo was certain to appear on the new home shirt - but there is anger at red featuring`\
 https://nytimes.com/athletic/5640537/2024/07/18/leeds-red-bull-kit-anger/
-
-**Republicans Seek to Remind R.N.C. Viewers About Deadly Afghanistan Withdrawal**\
-`Relatives of several service members who were killed when a suicide bomb exploded at a gate to the airport in Kabul in August 2021 delivered an anguished tribute.`\
-https://nytimes.com/2024/07/18/us/politics/afghanistan-withdrawal.html
 

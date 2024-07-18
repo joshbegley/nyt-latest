@@ -1,3 +1,7 @@
+**Pat Williams, Orlando Magic co-founder, dies at 84**\
+`In 1986, Williams left the 76ers and joined Orlando-area businessman Jimmy Hewitt to work to bring an NBA expansion team to Orlando.`\
+https://nytimes.com/athletic/5644749/2024/07/18/pat-williams-orlando-magic-obit/
+
 **Fire at Shopping Mall in Southwestern China Kills 16**\
 `Dozens were trapped inside the building when the fire started on Wednesday evening in Sichuan Province, local authorities said.`\
 https://nytimes.com/2024/07/18/world/zizong-sichuan-mall-fire.html
