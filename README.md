@@ -1,4 +1,4 @@
-**Russell Westbrook joining Nuggets in sign-and-trade with Clippers, Jazz**\
+**Russell Westbrook expected to join Nuggets after Clippers-Jazz trade: Sources**\
 `The plan for Westbrook and the Clippers was to part ways this offseason, and the Nuggets were a front-runner.`\
 https://nytimes.com/athletic/5645975/2024/07/18/russell-westbrook-trade-jazz-clippers/
 
