@@ -1,3 +1,15 @@
+**Charlton, Reading and a pattern of women's teams being cut when clubs face financial trouble**\
+`The story of how Charlton, one of the country's top teams, had their budget drastically slashed and lost almost all their players`\
+https://nytimes.com/athletic/5631196/2024/07/18/charlton-women-demise-reading/
+
+**Southgate, De la Fuente, Scaloni: Why summer 2024 was powered by the federation coach**\
+`Promoting a federation or age-group coach is not foolproof, but it comes with fewer risks than a cycle of appointing club coaches `\
+https://nytimes.com/athletic/5643079/2024/07/18/international-football-federation-coach/
+
+**G.O.P. Puts Israel and Antisemitism Front and Center, Courting U.S. Jews**\
+`Convention speakers included college students who defended the U.S. flag from pro-Palestinian protesters and the parents of an American still being held by Hamas.`\
+https://nytimes.com/2024/07/18/us/politics/israel-rnc-antisemitism-jews.html
+
 **'Fronting up' experts, stars, local heroes: Who spoke for your country at Euro 2024?**\
 `During Euro 2024, different players spoke for their countries at different times, depending on seniority, locality and results`\
 https://nytimes.com/athletic/5641066/2024/07/18/euro-2024-press-conference-players/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/18/us/rnc-fact-check
 **How to Become a Player in the Global Mineral Trade**\
 `Kazakhstan’s bounty has enriched the country and grabbed the attention of entrepreneurs scrambling to control the ingredients needed to fight climate change.`\
 https://nytimes.com/2024/07/18/business/kazakhstan-china-electric-vehicles.html
-
-**The Eruption of Mt. Vesuvius Wasn’t Pompeii’s Only Killer**\
-`While the volcano’s eruption was deadly, research shows that many people in the ancient Roman city died in building collapses from the earthquake associated with the outburst.`\
-https://nytimes.com/2024/07/18/science/pompeii-earthquake-vesuvius.html
-
-**Kai Trump Tells Convention Crowd: ‘He’s Just a Normal Grandpa’**\
-`The teenager’s speech in front of thousands of delegates uniquely focused on her personal relationship with former President Donald J. Trump.`\
-https://nytimes.com/2024/07/17/us/politics/kai-trump-granddaughter-rnc.html
-
-**Why Republicans Keep Calling Kamala Harris the ‘Border Czar’**\
-`The misleading phrase is meant to underscore one of the thorniest issues in her portfolio: immigration.`\
-https://nytimes.com/2024/07/17/us/politics/kamala-harris-border-czar.html
 
