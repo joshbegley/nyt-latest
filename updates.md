@@ -1,3 +1,7 @@
+**The Athletic FC: Korea star's secret sex tape charge. Plus: Sullivan, 14, makes MLS debut**\
+`Today in The Athletic FC: The story of Hwang Ui-jo, a secret sex video charge and blackmail. Plus: Sullivan, 14, makes MLS debut.`\
+https://nytimes.com/athletic/5645032/2024/07/18/korea-stars-sex-tape-charge-sullivan-14-debut/
+
 **Ukraine Loses Hard-Won Position Near Dnipro River in the South**\
 `Soldiers and military analysts said an operation to establish a foothold on the river’s Russian-controlled eastern bank was bloody and hard to justify.`\
 https://nytimes.com/2024/07/18/world/europe/ukraine-war-dnipro-river.html
