@@ -1,3 +1,15 @@
+**Lou Dobbs, Former Fox Business Host and Trump Booster, Dies at 78**\
+`He rose to prominence as a critic of immigration policies. His Fox Business program was canceled in 2021 after the network was sued for defamation over election fraud claims.`\
+https://nytimes.com/2024/07/18/business/media/lou-dobbs-dead.html
+
+**What to Know About Kimberly Cheatle, the Secret Service Director**\
+`She has spent more than 20 years with the agency and provided security for President Bill Clinton, Vice President Dick Cheney and other leaders.`\
+https://nytimes.com/2024/07/18/us/kimberly-cheatle-secret-service.html
+
+**People Close to Biden Say He Appears to Accept He May Have to Leave the Race**\
+`One person familiar with President Biden’s thinking cautioned that he had not yet made up his mind to leave the race, after three weeks of insisting that almost nothing would drive him out.`\
+https://nytimes.com/2024/07/18/us/politics/biden-election-drop-out.html
+
 **Dig at Meloni’s Height Could Cost Reporter in Italy 5,000 Euros**\
 `A lawsuit that Prime Minister Giorgia Meloni won is one of several she has filed against critics. Press-freedom groups say it is a concerning practice.`\
 https://nytimes.com/2024/07/18/world/europe/italy-journalist-defamation-meloni.html
