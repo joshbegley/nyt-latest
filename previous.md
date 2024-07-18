@@ -1,3 +1,11 @@
+**Deadly Fire Consumes Shopping Mall in China**\
+`A thick plume of black smoke rose over the building with people trapped inside.`\
+https://nytimes.com/video/world/asia/100000009578715/china-fire-shopping-mall.html
+
+**Hungarian GP track breakdown: F1's narrow, bumpy, relentless Hungaroring**\
+`As the summer heat settles on Budapest, F1 takes to the Hungaroring, a narrow and bumpy circuit that offers few breaks over 2.72 miles.`\
+https://nytimes.com/athletic/5644054/2024/07/18/f1-hungary-gp-hungaroring-circuit-track-specs/
+
 **Documenting a #MeToo Investigation Seven Years Later**\
 `An article on claims of sexual misconduct against Louis C.K. led to backlash against the women who spoke out. “Sorry/Not Sorry,” a New York Times documentary, examined the aftermath.`\
 https://nytimes.com/2024/07/18/insider/sorry-not-sorry-louis-ck.html
@@ -14,6 +22,10 @@ https://nytimes.com/2024/07/18/nyregion/tree-law-mamaroneck-westchester-county.h
 `Nargis Baran was a rising legal star in Afghanistan. She became a target once the government fell.`\
 https://nytimes.com/2024/07/18/nyregion/taliban-afghanistan-lawyers.html
 
+**Royal Troon’s most famous hole will make some golfers want to return to sender**\
+`TROON, Scotland — As the thick, dense gorse plants wave heavily back toward the tee like fine hair in the wind, another golfer steps to Royal Troon’s eighth tee box trying to figure out why exactly this short little hole is so daunting.`\
+https://nytimes.com/athletic/5643452/2024/07/18/open-championship-royal-troon-postage-stamp-hole/
+
 **Late Night Taunts Former Critics Who Changed Their Minds About Trump**\
 `J.D. Vance and Nikki Haley, among other Republicans at the convention, seem to have gotten over their reservations about the former president.`\
 https://nytimes.com/2024/07/18/arts/television/late-night-jd-vance-nikki-haley.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5640811/2024/07/18/hwang-ui-jo-sex-video-charge/
 **MLB bullpen trade deadline primer: Projected buyers, sellers and more**\
 `Greg Jewett offers up a MLB bullpen trade deadline primer, running through team needs, in addition to likely buyers and sellers.`\
 https://nytimes.com/athletic/5644784/2024/07/18/fantasy-baseball-bullpen-report-trade-deadline/
-
-**Pat Williams, Orlando Magic co-founder, dies at 84**\
-`In 1986, Williams left the 76ers and joined Orlando-area businessman Jimmy Hewitt to work to bring an NBA expansion team to Orlando.`\
-https://nytimes.com/athletic/5644749/2024/07/18/pat-williams-orlando-magic-obit/
-
-**Fire at Shopping Mall in Southwestern China Kills 16**\
-`Dozens were trapped inside the building when the fire started on Wednesday evening in Sichuan Province, local authorities said.`\
-https://nytimes.com/2024/07/18/world/zizong-sichuan-mall-fire.html
-
-**Takeaways From Day 3 of the Republican Convention**\
-`Senator J.D. Vance denounced “Wall Street barons” and illegal immigration as the convention’s previous unity message shifted to more aggressive attacks on President Biden.`\
-https://nytimes.com/2024/07/17/us/politics/takeaways-rnc-day-3.html
 

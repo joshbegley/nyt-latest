@@ -1,3 +1,15 @@
+**Deadly Fire Consumes Shopping Mall in China**\
+`A thick plume of black smoke rose over the building with people trapped inside.`\
+https://nytimes.com/video/world/asia/100000009578715/china-fire-shopping-mall.html
+
+**Hungarian GP track breakdown: F1's narrow, bumpy, relentless Hungaroring**\
+`As the summer heat settles on Budapest, F1 takes to the Hungaroring, a narrow and bumpy circuit that offers few breaks over 2.72 miles.`\
+https://nytimes.com/athletic/5644054/2024/07/18/f1-hungary-gp-hungaroring-circuit-track-specs/
+
+**Royal Troon’s most famous hole will make some golfers want to return to sender**\
+`TROON, Scotland — As the thick, dense gorse plants wave heavily back toward the tee like fine hair in the wind, another golfer steps to Royal Troon’s eighth tee box trying to figure out why exactly this short little hole is so daunting.`\
+https://nytimes.com/athletic/5643452/2024/07/18/open-championship-royal-troon-postage-stamp-hole/
+
 **Documenting a #MeToo Investigation Seven Years Later**\
 `An article on claims of sexual misconduct against Louis C.K. led to backlash against the women who spoke out. “Sorry/Not Sorry,” a New York Times documentary, examined the aftermath.`\
 https://nytimes.com/2024/07/18/insider/sorry-not-sorry-louis-ck.html
