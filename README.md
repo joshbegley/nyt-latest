@@ -1,3 +1,7 @@
+**Why Republicans Keep Calling Kamala Harris the ‘Border Czar’**\
+`The misleading phrase is meant to underscore one of the thorniest issues in her portfolio: immigration.`\
+https://nytimes.com/2024/07/17/us/politics/kamala-harris-border-czar.html
+
 **At R.N.C., Senators Berate Secret Service Director Over Assassination Attempt**\
 `The lawmakers wanted answers about security lapses at the Trump rally in Pennsylvania on Saturday.`\
 https://nytimes.com/2024/07/17/us/politics/rnc-senators-secret-service.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/the-guy
 **What We Heard at the R.N.C. in 20 Off-Stage Scenes**\
 `Illustrated scenes and thoughts from delegates and others at the Republican convention.`\
 https://nytimes.com/interactive/2024/07/17/us/politics/rnc-quotes-scenes.html
-
-**Caitlin Clark breaks WNBA single-game assist record**\
-`Clark is leading first-year players in scoring and assists and is fourth in the league in 3-pointers made (69).`\
-https://nytimes.com/athletic/5644663/2024/07/17/caitlin-clark-wnba-most-assists-indiana-fever/
 
