@@ -1,3 +1,7 @@
+**“Somehow, a real estate developer from New York City by the name of Donald J. Trump was right on all of these issues while Biden was wrong.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/somehow-a-real-estate-developer-from-new-york-city-by-the-name-of-donald-j-trump-was-right-on-all-of-these-issues-while-biden-wa
+
 **“Meanwhile pro-crime district attorneys have turned our cities into giant crime zones.”**\
 `By Angelo Fichera`\
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/meanwhile-pro-crime-district-attorneys-have-turned-our-cities-into-giant-crime-zones
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/17/crosswords/daily-puzzle-2024-07-18.html
 **Lee Greenwood’s ‘God Bless the U.S.A.’ Has Become a Trump Rally Anthem**\
 `The country star answered the call to perform the song during the former president’s first public appearance after surviving an assassination attempt.`\
 https://nytimes.com/2024/07/17/us/politics/lee-greenwood-trump-god-bless-usa.html
-
-**Peter Navarro, the MAGA Martyr Who Went to Prison for You**\
-`His speech at the Republican National Convention was one of the more bizarre convention moments I’ve ever seen.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/peter-navarro-speech-convention
 
