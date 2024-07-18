@@ -1,3 +1,7 @@
+**Peter Navarro, Released From Prison, Gives Fiery Convention Speech**\
+`Mr. Navarro, a senior trade adviser in the Trump administration who served four months for defying a subpoena in the Jan. 6 investigation, received a hero’s welcome.`\
+https://nytimes.com/2024/07/17/us/politics/peter-navarro-rnc-speech.html
+
 **Peter Navarro, Released From Prison, Gives Fiery R.N.C. Speech**\
 `Mr. Navarro, a senior trade adviser in the Trump administration who served four months for defying a subpoena in the Jan. 6 investigation, received a hero’s welcome.`\
 https://nytimes.com/2024/07/17/us/politics/peter-navarro-rnc-speech.html
