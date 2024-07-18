@@ -1,3 +1,11 @@
+**Real Madrid's Iago in advanced talks with Sporting Lisbon**\
+`Paulo Iago is in advanced talks with Sporting Lisbon and is set to leave Real Madrid following ten years at the academy.`\
+https://nytimes.com/athletic/5645333/2024/07/18/paulo-iago-sporting-lisbon-real-madrid/
+
+**Liverpool suspend ticket sales after cyber attack**\
+`Liverpool have suspended members ticket sales until further notice after falling victim to a cyber attack.`\
+https://nytimes.com/athletic/5645264/2024/07/18/liverpool-tickets-cyber-attack/
+
 **Trump Says ‘I Got Lucky’ in Surviving Assassination Attempt, Video Shows**\
 `A clip first aired by PBS shows Donald Trump addressing a gathering in Milwaukee and discussing the shooting a few days earlier: “God was with me.”`\
 https://nytimes.com/2024/07/18/us/politics/trump-i-got-lucky-shooting-video.html
