@@ -1,3 +1,7 @@
+**Peter Navarro, Released From Prison, Gives Fiery R.N.C. Speech**\
+`Mr. Navarro, a senior trade adviser in the Trump administration who served four months for defying a subpoena in the Jan. 6 investigation, received a hero’s welcome.`\
+https://nytimes.com/2024/07/17/us/politics/peter-navarro-rnc-speech.html
+
 **For Sidelined Giuliani, a Tumble Is an Unsubtle Metaphor**\
 `Rudolph W. Giuliani — indicted, disbarred and bankrupt — has no speaking slot at the convention, but he is nevertheless making the rounds in Milwaukee.`\
 https://nytimes.com/2024/07/17/us/politics/rudy-giuliani-rnc-fall.html

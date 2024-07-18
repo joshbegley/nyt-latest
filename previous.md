@@ -18,9 +18,9 @@ https://nytimes.com/2024/07/17/us/politics/kimberly-guilfoyle-2020-rnc-speech.ht
 `Larry Robinson took responsibility for accepting a $237 million gift that is now on hold and under investigation.`\
 https://nytimes.com/2024/07/17/us/hbcu-donation-president-resigns.html
 
-**From prison to the podium, Peter Navarro receives a hero’s welcome and gives a fiery convention speech.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/from-prison-to-the-podium-peter-navarro-receives-a-heros-welcome-and-gives-a-fiery-convention-speech
+**Peter Navarro, Released From Prison, Gives Fiery R.N.C. Speech**\
+`Mr. Navarro, a senior trade adviser in the Trump administration who served four months for defying a subpoena in the Jan. 6 investigation, received a hero’s welcome.`\
+https://nytimes.com/2024/07/17/us/politics/peter-navarro-rnc-speech.html
 
 **Inmate Dies After Fight Breaks Out at Troubled Brooklyn Jail**\
 `Edwin Cordero, 36, died at the Metropolitan Detention Center, where his lawyer said conditions were “awful.”`\
