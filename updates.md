@@ -1,3 +1,11 @@
+**Six thoughts about the San Francisco Giants provisional 2025 schedule**\
+`The Giants open the season in Cincinnati, don't see the Dodgers until July, and have a brutal stretch of consecutive games in April.`\
+https://nytimes.com/athletic/5645928/2024/07/18/sf-giants-2025-schedule-analysis/
+
+**Biden’s Support From Big Donors Is Said to Plummet**\
+`The president’s support from major donors in July is on track to raise half of its June amount if he remains in the race, according to four people briefed on his campaign’s finances.`\
+https://nytimes.com/2024/07/18/us/politics/biden-fundraising.html
+
 **From Buoyant to Frail: Two Days in Las Vegas as Biden Tests Positive**\
 `The president’s appearance, and his campaign’s momentum, changed dramatically during a two-day swing in Nevada that was cut short when he tested positive for Covid.`\
 https://nytimes.com/2024/07/18/us/politics/biden-covid-democrats.html
