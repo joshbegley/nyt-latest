@@ -7,7 +7,7 @@ https://nytimes.com/2024/07/17/nyregion/inmate-dies-metropolitan-detention-cente
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/bidens-war-on-energy-hits-every-american-because-the-cost-of-energy-is-in-everything-we-use-or-touch-every-day-his-red-tape-has-
 
 **A Blind Spot and a Lost Trail: How the Gunman Got So Close to Trump**\
-`Even though the local police was on the lookout for a suspicious man, critical minutes ticked by, allowing a would-be assassin to slip past them, a Times analysis found.`\
+`Even though local police were on the lookout for a suspicious man, critical minutes ticked by, allowing a would-be assassin to slip past, a Times analysis found.`\
 https://nytimes.com/2024/07/17/us/politics/secret-service-trump-shooting.html
 
 **“Your favorite Democrat, Nancy Pelosi, created your favorite committee, the Jan. 6 committee, which demanded that I violate executive privilege.”**\

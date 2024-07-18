@@ -1,3 +1,7 @@
+**Inmate Dies After Fight Breaks Out at Troubled Brooklyn Jail**\
+`Edwin Cordero, 36, died at the Metropolitan Detention Center, where his lawyer said conditions were “awful.”`\
+https://nytimes.com/2024/07/17/nyregion/inmate-dies-metropolitan-detention-center.html
+
 **“Biden’s war on energy hits every American because the cost of energy is in everything we use or touch every day. His red tape has raised the price of gas in your car. The cost of food on your table. The clothes on your back.”**\
 `By Lisa Friedman`\
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/bidens-war-on-energy-hits-every-american-because-the-cost-of-energy-is-in-everything-we-use-or-touch-every-day-his-red-tape-has-
