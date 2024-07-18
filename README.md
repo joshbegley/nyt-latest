@@ -1,3 +1,11 @@
+**Abner Haynes, first AFL Player of the Year, dies at 86**\
+`In 1960, Haynes led the league in rushing with 875 yards.`\
+https://nytimes.com/athletic/5646508/2024/07/18/kansas-city-chiefs-abner-haynes-death/
+
+**Republicans Get Pumped for Trump’s Muscular Finale**\
+`The convention culminates in an evening that seems to celebrate literal combat and general brawn.`\
+https://nytimes.com/2024/07/18/us/politics/republicans-get-pumped-for-trumps-muscular-finale.html
+
 **For One G.O.P. Leader, Trump Is the New George Washington**\
 `Mike Johnson said that like the first president, Trump escaped death through the hand of providence.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-washington-providence-johnson
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/kid-rock-
 **Six thoughts about the San Francisco Giants provisional 2025 schedule**\
 `The Giants open the season in Cincinnati, don't see the Dodgers until July, and have a brutal stretch of consecutive games in April.`\
 https://nytimes.com/athletic/5645928/2024/07/18/sf-giants-2025-schedule-analysis/
-
-**Biden’s Support From Big Donors Is Said to Plummet**\
-`The president’s support from major donors in July is on track to raise half of its June amount if he remains in the race, according to four people briefed on his campaign’s finances.`\
-https://nytimes.com/2024/07/18/us/politics/biden-fundraising.html
-
-**From Buoyant to Frail: Two Days in Las Vegas as Biden Tests Positive**\
-`The president’s appearance, and his campaign’s momentum, changed dramatically during a two-day swing in Nevada that was cut short when he tested positive for Covid.`\
-https://nytimes.com/2024/07/18/us/politics/biden-covid-democrats.html
 
