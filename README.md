@@ -1,3 +1,7 @@
+**Democrats, Stop Saying It’s Too Late**\
+`The conventional wisdom about Biden ricochets between denialism and fatalism.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/democrats-convention-biden
+
 **Transcript: Ezra Klein Interviews Tim Alberta**\
 `The July 18, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/07/18/podcasts/transcript-ezra-klein-interviews-tim-alberta.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5645130/2024/07/18/barcelona-guille-fernandez-contr
 **At 5, She Picked Up Chess as a Pandemic Hobby. At 9, She’s a Prodigy.**\
 `Bodhana Sivanandan, a fourth-grader, has become one of England’s best players just a few years after discovering chess during pandemic lockdown.`\
 https://nytimes.com/2024/07/18/world/europe/bodhana-sivanandan-chess-prodigy-england.html
-
-**No Taxes on Tips? A Trump Idea Gains Ground.**\
-`The sudden popularity of exempting tips from taxes is a reminder of the improvisational nature of economic policymaking under Donald Trump.`\
-https://nytimes.com/2024/07/18/us/politics/tipped-wages-taxes-donald-trump-economic-policy.html
 
