@@ -1,3 +1,11 @@
+**After extending Quinn Meinerz, what's next for Broncos as they build around Bo Nix?**\
+`Denver knows it must improve in the run game on both sides of the ball to successfully support its rookie QB. `\
+https://nytimes.com/athletic/5643185/2024/07/18/broncos-quinn-meinerz-bo-nix/
+
+**Pierre-Emerick Aubameyang set to join Al Qadsiah**\
+`Pierre-Emerick Aubameyang is set to sign for Saudi Pro League (SPL) club Al Qadsiah.`\
+https://nytimes.com/athletic/5645024/2024/07/18/pierre-emerick-aubameyang-al-qadsiah-transfer/
+
 **The Myth of Migrant Crime**\
 `Republicans suggest that immigrants are especially likely to be criminals. The data shows the opposite.`\
 https://nytimes.com/2024/07/18/briefing/the-myth-of-migrant-crime.html
