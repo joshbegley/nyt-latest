@@ -1,3 +1,11 @@
+**E.C.B. Leaves Rates Unchanged but Keeps Door Open for September**\
+`The central bank left its key deposit rate at 3.75 percent as inflation in the eurozone is expected to fluctuate throughout the rest of the year.`\
+https://nytimes.com/2024/07/18/business/european-central-bank-interest-rates.html
+
+**Readers Pick Their 100 Best Books of the 21st Century**\
+`The people have spoken. Here are the books they voted for.`\
+https://nytimes.com/interactive/2024/books/reader-best-books-21st-century.html
+
 **Real Madrid's Iago in advanced talks with Sporting Lisbon**\
 `Paulo Iago is in advanced talks with Sporting Lisbon and is set to leave Real Madrid following ten years at the academy.`\
 https://nytimes.com/athletic/5645333/2024/07/18/paulo-iago-sporting-lisbon-real-madrid/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5645328/2024/07/18/blackhawks-mailbag-mark-lazerus/
 **What to Know About the Student Unrest in Bangladesh**\
 `Seventeen people have been killed in violent clashes between the police and students protesting a quota system used to fill coveted civil service jobs.`\
 https://nytimes.com/2024/07/18/world/asia/bangladesh-student-protests.html
-
-**Here’s the latest on the investigation.**\
-`By The New York Times`\
-https://nytimes.com/live/2024/07/18/us/trump-rally-shooting-news/heres-the-latest-on-the-investigation
-
-**Trump Shooting Live Updates: Lawmakers Assail Decision to Let Rally Go Ahead**\
-`The Secret Service’s call to let the former president take the stage even as law enforcement searched for a potentially dangerous person has drawn a furious response.`\
-https://nytimes.com/live/2024/07/18/us/trump-rally-shooting-news
 

@@ -1,3 +1,11 @@
+**E.C.B. Leaves Rates Unchanged but Keeps Door Open for September**\
+`The central bank left its key deposit rate at 3.75 percent as inflation in the eurozone is expected to fluctuate throughout the rest of the year.`\
+https://nytimes.com/2024/07/18/business/european-central-bank-interest-rates.html
+
+**Readers Pick Their 100 Best Books of the 21st Century**\
+`The people have spoken. Here are the books they voted for.`\
+https://nytimes.com/interactive/2024/books/reader-best-books-21st-century.html
+
 **Real Madrid's Iago in advanced talks with Sporting Lisbon**\
 `Paulo Iago is in advanced talks with Sporting Lisbon and is set to leave Real Madrid following ten years at the academy.`\
 https://nytimes.com/athletic/5645333/2024/07/18/paulo-iago-sporting-lisbon-real-madrid/
