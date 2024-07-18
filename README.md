@@ -1,3 +1,7 @@
+**Hunter Biden, Citing Trump’s Classified Documents Ruling, Seeks Dismissal of Cases**\
+`Mr. Biden’s legal team pointed to a decision by a federal judge in Florida, who ruled that the special counsel in Mr. Trump’s case, Jack Smith, had been unconstitutionally appointed.`\
+https://nytimes.com/2024/07/18/us/politics/hunter-biden-seeks-dismissal.html
+
 **Justice Dept. Sues Contractor Over Sexual Abuse of Migrant Children**\
 `Southwest Key, the Texas-based nonprofit that is the largest provider of housing for unaccompanied minors who arrive at the southern border, has faced federal scrutiny before.`\
 https://nytimes.com/2024/07/18/us/doj-migrants-southwest-key-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5646402/2024/07/18/open-championship-round-1-analys
 **Summer Dating Essentials? Indoor Activities and Lots of Deodorant.**\
 `Summers are miserable. Dating doesn’t have to be.`\
 https://nytimes.com/2024/07/18/style/summer-dating-essentials.html
-
-**The speaker list snubs some Trump loyalists in Congress.**\
-`By Annie Karni`\
-https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/the-speaker-list-snubs-some-trump-loyalists-in-congress
 
