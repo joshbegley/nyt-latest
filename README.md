@@ -14,8 +14,8 @@ https://nytimes.com/2024/07/18/business/european-central-bank-interest-rates.htm
 `The people have spoken. Here are the books they voted for.`\
 https://nytimes.com/interactive/2024/books/reader-best-books-21st-century.html
 
-**Real Madrid's Iago in advanced talks with Sporting Lisbon**\
-`Paulo Iago is in advanced talks with Sporting Lisbon and is set to leave Real Madrid following ten years at the academy.`\
+**Real Madrid's Iago set to join Sporting Lisbon**\
+`Paulo Iago is set to join Sporting Lisbon and leave Real Madrid following ten years at the academy.`\
 https://nytimes.com/athletic/5645333/2024/07/18/paulo-iago-sporting-lisbon-real-madrid/
 
 **Liverpool suspend ticket sales after cyber attack**\
