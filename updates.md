@@ -1,3 +1,11 @@
+**Jamie Raskin, a Key Democrat, Suggested to Biden That He Should Drop Out**\
+`Mr. Raskin, a congressman from Maryland, was a key member of the panel that investigated the Capitol riot. In a lengthy letter, he compared President Biden to a tiring baseball pitcher.`\
+https://nytimes.com/2024/07/18/us/politics/jamie-raskin-biden-letter.html
+
+**The high-risk, high-reward situation of championship games in expanded Playoff**\
+`Will playing in the SEC Championship Game hurt the teams that lose it? That's a big unknown heading into a 12-team Playoff.`\
+https://nytimes.com/athletic/5645722/2024/07/18/sec-championship-game-college-football-playoff-future-risk/
+
 **How Elon Musk Chose Trump**\
 `The world’s richest man, once deeply skeptical of Donald J. Trump, has now endorsed him and has emerged as a central character in the presidential race.`\
 https://nytimes.com/2024/07/18/us/politics/elon-musk-trump.html
