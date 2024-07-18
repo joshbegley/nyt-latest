@@ -1,40 +1,40 @@
+**Milenkovic to Forest: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Nikola Milenkovic's move to Nottingham Forest`\
+https://nytimes.com/athletic/5636807/2024/07/18/nikola-milenkovic-to-nottingham-forest-transfer-ratings/
+
+**Chelsea and the Enzo Fernandez fallout: Anger, apologies and investigations**\
+`The song Enzo Fernandez streamed on social media after Argentina's Copa America victory win has caused fallout at Chelsea`\
+https://nytimes.com/athletic/5644814/2024/07/18/chelsea-enzo-fernandez-song-fallout/
+
+**‘Crumb Catcher’ Review: The Smother of Invention**\
+`An obnoxious inventor wreaks havoc on an upstate honeymoon in Chris Skotchdopole’s tepid psychological thriller.`\
+https://nytimes.com/2024/07/18/movies/crumb-catcher-review.html
+
+**‘Widow Clicquot’ Review: Champagne Mami**\
+`This muddled film, based on a true story, chronicles the origins of the French champagne house Veuve Clicquot.`\
+https://nytimes.com/2024/07/18/movies/widow-clicquot-review.html
+
+**‘Join or Die’ Review: Come Together**\
+`This documentary about the work of Robert Putnam, who wrote “Bowling Together,” argues that Americans can save democracy by becoming joiners.`\
+https://nytimes.com/2024/07/18/movies/join-or-die-review-come-together.html
+
+**‘Oddity’ Review: Twisted Sister**\
+`A haunted house, a blind psychic and a suspicious death fuel this flawed yet fun supernatural thriller.`\
+https://nytimes.com/2024/07/18/movies/oddity-review.html
+
+**‘Hollywoodgate’ Review: Inside the Taliban**\
+`In a frustrating documentary, the journalist Ibrahim Nash’at shows the Taliban after American troops left Afghanistan.`\
+https://nytimes.com/2024/07/18/movies/hollywoodgate-review.html
+
+**‘Crossing’ Review: Stories to Tell**\
+`In Levan Akin’s fascinating drama, two strangers connect in Istanbul.`\
+https://nytimes.com/2024/07/18/movies/crossing-review.html
+
+**Nottingham Forest complete signing of Milenkovic from Fiorentina**\
+`Nottingham Forest have completed the signing of defender Nikola Milenkovic from Fiorentina.`\
+https://nytimes.com/athletic/5638542/2024/07/18/nikola-milenkovic-nottingham-forest-transfer/
+
 **The Pulse: Caitlin Clark is setting records now**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5644592/2024/07/18/caitlin-clark-record-wnba-the-pulse/
-
-**After extending Quinn Meinerz, what's next for Broncos as they build around Bo Nix?**\
-`Denver knows it must improve in the run game on both sides of the ball to successfully support its rookie QB. `\
-https://nytimes.com/athletic/5643185/2024/07/18/broncos-quinn-meinerz-bo-nix/
-
-**Pierre-Emerick Aubameyang set to join Al Qadsiah**\
-`Pierre-Emerick Aubameyang is set to sign for Saudi Pro League (SPL) club Al Qadsiah.`\
-https://nytimes.com/athletic/5645024/2024/07/18/pierre-emerick-aubameyang-al-qadsiah-transfer/
-
-**The Myth of Migrant Crime**\
-`Republicans suggest that immigrants are especially likely to be criminals. The data shows the opposite.`\
-https://nytimes.com/2024/07/18/briefing/the-myth-of-migrant-crime.html
-
-**Ex-Liverpool goalkeeper Reina joins Como**\
-`Pepe Reina has joined Serie A club Como as a free agent after leaving Villarreal.`\
-https://nytimes.com/athletic/5635442/2024/07/18/pepe-reina-como-transfer/
-
-**J.D. Vance Leans Into His Roots in Debut Speech**\
-`Vice-presidential nominee J.`\
-https://nytimes.com/video/us/politics/100000009578135/jd-vance-trump-vp-speech.html
-
-**Who will be the next stars of the Canada men's national team?**\
-`Who's next in line to join the Canada men's national team as attention turns to co-hosting the World Cup in two years?`\
-https://nytimes.com/athletic/5642902/2024/07/18/jesse-marsch-canada-youth-world-cup/
-
-**Biden Tests Positive for the Coronavirus, and Senators Berate Secret Service Chief**\
-`Plus, a plunge in the Seine ahead of the Olympics.`\
-https://nytimes.com/2024/07/18/podcasts/biden-vance-rnc.html
-
-**Trump 2.0: He’s Never Sounded Like This Before**\
-`How the former president’s message has changed, and what that means for the country.`\
-https://nytimes.com/2024/07/18/podcasts/the-daily/trump-message.html
-
-**Cardinals second-half storylines to watch, starting with the trade deadline picture**\
-`Ryan Helsley and a stellar bullpen carried the early load, but the Cardinals could add another bat or middle-of-the-rotation starter.`\
-https://nytimes.com/athletic/5643481/2024/07/18/cardinals-trade-deadline-rotation-bullpen/
 
