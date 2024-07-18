@@ -1,3 +1,7 @@
+**U.K. Failed in Handling of Covid Pandemic, Inquiry Finds**\
+`The British authorities prepared for the wrong pandemic, with an outdated plan overly focused on influenza, an official investigation reported.`\
+https://nytimes.com/2024/07/18/world/europe/uk-covid-pandemic-inquiry-report.html
+
 **MSNBC’s Joe Scarborough Urges Biden’s Advisers to ‘Do the Right Thing’**\
 `The host, who had been blunt but sympathetic toward Mr. Biden after the president’s debate performance, all but called on aides to help him exit the race.`\
 https://nytimes.com/2024/07/18/us/politics/biden-joe-scarborough-election-withdraw.html
