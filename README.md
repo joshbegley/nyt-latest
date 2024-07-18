@@ -1,3 +1,7 @@
+**Traditional Marriage for Thee, but Not for J.D. Vance**\
+`He refers to the elite as if he is not part of it, but then, in all of his lifestyle choices, he acts like any other Ivy League grad.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/vance-wife-marriage
+
 **Ohtani, Dodgers to face Imanaga, Cubs in 2025 Japan Series**\
 `It’ll be MLB's sixth time playing regular-season games in Japan, and the first since 2019.`\
 https://nytimes.com/athletic/5645763/2024/07/18/dodgers-cubs-japan-series-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000009578970/bangladesh-student-protests
 **Sell Steven Kwan, buy Francisco Lindor and more fantasy baseball deals to make for the second half**\
 `Michael Salfino identifies three hitters to buy low, and three to sell high as you embark on the second half of fantasy baseball 2024.`\
 https://nytimes.com/athletic/5645684/2024/07/18/fantasy-baseball-second-half-buy-low-sell-high/
-
-**WNBA adds DraftKings as second official betting partner**\
-`The WNBA also has a deal with FanDuel to serve as its official betting partner.`\
-https://nytimes.com/athletic/5645557/2024/07/18/wnba-draftkings-betting-partnership/
 
