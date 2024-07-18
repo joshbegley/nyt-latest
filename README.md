@@ -1,3 +1,7 @@
+**Inmate Dies After Fight Breaks Out at Troubled Brooklyn Jail**\
+`Edwin Cordero, 36, died at the Metropolitan Detention Center, where his lawyer said conditions were “awful.”`\
+https://nytimes.com/2024/07/17/nyregion/inmate-dies-metropolitan-detention-center.html
+
 **“Biden’s war on energy hits every American because the cost of energy is in everything we use or touch every day. His red tape has raised the price of gas in your car. The cost of food on your table. The clothes on your back.”**\
 `By Lisa Friedman`\
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/bidens-war-on-energy-hits-every-american-because-the-cost-of-energy-is-in-everything-we-use-or-touch-every-day-his-red-tape-has-
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/iran-is
 **There’s No Zealot Like a Trump Convert**\
 `The Republican Party is full of people who have changed their minds about the former president.`\
 https://nytimes.com/2024/07/17/us/politics/vance-speech-rnc-trump.html
-
-**Opposition to Abortion Rights Is at Center of J.D. Vance’s Political Career**\
-`As he joins Donald J. Trump’s presidential ticket, Mr. Vance is seeking to play down, and in some cases rewrite, his views.`\
-https://nytimes.com/2024/07/17/us/politics/jd-vance-abortion.html
 
