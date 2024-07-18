@@ -1,3 +1,7 @@
+**Submit your questions for Mark Lazerus' Blackhawks mailbag**\
+`Any questions about the increasingly intriguing Blackhawks? Send them in, and Mark Lazerus may answer them in an upcoming mailbag.`\
+https://nytimes.com/athletic/5645328/2024/07/18/blackhawks-mailbag-mark-lazerus/
+
 **What to Know About the Student Unrest in Bangladesh**\
 `Seventeen people have been killed in violent clashes between the police and students protesting a quota system used to fill coveted civil service jobs.`\
 https://nytimes.com/2024/07/18/world/asia/bangladesh-student-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5645211/2024/07/18/adrien-rabiot-juventus-leaves/
 **Vieira leaves Strasbourg by mutual consent**\
 `BlueCo, the multi-club ownership group best known for its ownership of Chelsea, have today made a managerial change at their French club Strasbourg, parting company with head coach Patrick Vieira by mutual consent.`\
 https://nytimes.com/athletic/5645228/2024/07/18/patrick-vieira-strasbourg-chelsea-blueco/
-
-**Quinn Ewers is comfortable being Texas' headliner. Can he take the next step?**\
-`Ewers is good and has been great at times, but can he be great consistently?`\
-https://nytimes.com/athletic/5645161/2024/07/18/quinn-ewers-texas-football-quarterbacks/
 

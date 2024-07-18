@@ -1,3 +1,7 @@
+**Submit your questions for Mark Lazerus' Blackhawks mailbag**\
+`Any questions about the increasingly intriguing Blackhawks? Send them in, and Mark Lazerus may answer them in an upcoming mailbag.`\
+https://nytimes.com/athletic/5645328/2024/07/18/blackhawks-mailbag-mark-lazerus/
+
 **What to Know About the Student Unrest in Bangladesh**\
 `Seventeen people have been killed in violent clashes between the police and students protesting a quota system used to fill coveted civil service jobs.`\
 https://nytimes.com/2024/07/18/world/asia/bangladesh-student-protests.html
