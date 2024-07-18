@@ -1,3 +1,19 @@
+**A Vegetable Lovers Guide to the Grill**\
+`These five easy recipes and tips turn savory charred vegetables into fresh, filling main dishes.`\
+https://nytimes.com/2024/07/18/dining/grill-vegetarian-dinner-recipes.html
+
+**Several Protesters Killed in Clashes with Police in Bangladesh**\
+`Tens of thousands of Bangladeshi citizens joined students who have been protesting for weeks against a quota system for government jobs that benefits certain groups.`\
+https://nytimes.com/video/world/asia/100000009578970/bangladesh-student-protests-dhaka.html
+
+**Sell Steven Kwan, buy Francisco Lindor and more fantasy baseball deals to make for the second half**\
+`Michael Salfino identifies three hitters to buy low, and three to sell high as you embark on the second half of fantasy baseball 2024.`\
+https://nytimes.com/athletic/5645684/2024/07/18/fantasy-baseball-second-half-buy-low-sell-high/
+
+**WNBA adds DraftKings as second official betting partner**\
+`The WNBA also has a deal with FanDuel to serve as its official betting partner.`\
+https://nytimes.com/athletic/5645557/2024/07/18/wnba-draftkings-betting-partnership/
+
 **Fearful or Cheerful? World Leaders Mull a Potential Trump Foreign Policy**\
 `Some governments are taking concrete steps to prepare for the possible return of the former U.S. president.`\
 https://nytimes.com/2024/07/18/world/europe/trump-foreign-policy.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/democrats-convention-biden
 **Transcript: Ezra Klein Interviews Tim Alberta**\
 `The July 18, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/07/18/podcasts/transcript-ezra-klein-interviews-tim-alberta.html
-
-**Phoenix Mercury unveil new 'crown jewel' practice facility**\
-`The $100 million practice facility is the third to be built in the WNBA in the last two years.`\
-https://nytimes.com/athletic/5645249/2024/07/18/phoenix-mercury-facility-wnba/
-
-**The Windup: Which managers are on hot-seat watch?**\
-`Levi Weaver and Ken Rosenthal catch you up on league-wide news.`\
-https://nytimes.com/athletic/5645561/2024/07/18/mlb-manager-changes-automated-strike-zone-olympics-the-windup/
-
-**Liverpool to face Preston in behind-closed-doors friendly**\
-`Liverpool have organised a behind-closed-doors game against Preston North End at the AXA Training Centre on Friday.`\
-https://nytimes.com/athletic/5645611/2024/07/18/liverpool-preston-friendly/
-
-**The Bounce: Jaylen Brown's Bronny moment caps wild month**\
-`Zach Harper and Shams Charania catch you up on league-wide news.`\
-https://nytimes.com/athletic/5645255/2024/07/18/jaylen-brown-bronny-james-nba-summer-league-la-clippers-the-bounce/
 
