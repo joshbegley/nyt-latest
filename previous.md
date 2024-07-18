@@ -1,11 +1,3 @@
-**J.D. Vance, Breaking the Beard Barrier**\
-`The vice-presidential candidate is the first major party nominee with facial hair in 75 years.`\
-https://nytimes.com/2024/07/18/style/jd-vance-beard-politics.html
-
-**Thursday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2024/07/18/briefing/biden-covid-trump-assassin.html
-
 **Why Leeds fans are seeing red at their new kit**\
 `Leeds' deal with Red Bull meant its logo was certain to appear on the new home shirt - but there is anger at red featuring`\
 https://nytimes.com/athletic/5640537/2024/07/18/leeds-red-bull-kit-anger/
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/5644734/2024/07/18/wnba-3-point-contest-clark-iones
 **The Business of Football: Fitting in the Finalissima, Ligue 1 ponder D2C, and EFL 'less distressed'**\
 `From a cluttered schedule to things actually looking up in the English Football League, The Athletic takes a look at matters off the field`\
 https://nytimes.com/athletic/5643210/2024/07/18/finalissima-ligue1-efl-business-football/
+
+**Why clubs are signing so many backup ’keepers: Training help, PSR value and homegrown slots**\
+`The market for backup goalkeepers has been moving this summer - this is why they are in demand`\
+https://nytimes.com/athletic/5640827/2024/07/18/why-clubs-are-signing-so-many-backup-goalkeepers-training-help-psr-value-homegrown-slots/
+
+**Charlton, Reading and a pattern of women's teams being cut when clubs face financial trouble**\
+`The story of how Charlton, one of the country's top teams, had their budget drastically slashed and lost almost all their players`\
+https://nytimes.com/athletic/5631196/2024/07/18/charlton-women-demise-reading/
 

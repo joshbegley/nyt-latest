@@ -1,3 +1,11 @@
+**Why clubs are signing so many backup ’keepers: Training help, PSR value and homegrown slots**\
+`The market for backup goalkeepers has been moving this summer - this is why they are in demand`\
+https://nytimes.com/athletic/5640827/2024/07/18/why-clubs-are-signing-so-many-backup-goalkeepers-training-help-psr-value-homegrown-slots/
+
+**Charlton, Reading and a pattern of women's teams being cut when clubs face financial trouble**\
+`The story of how Charlton, one of the country's top teams, had their budget drastically slashed and lost almost all their players`\
+https://nytimes.com/athletic/5631196/2024/07/18/charlton-women-demise-reading/
+
 **J.D. Vance, Breaking the Beard Barrier**\
 `The vice-presidential candidate is the first major party nominee with facial hair in 75 years.`\
 https://nytimes.com/2024/07/18/style/jd-vance-beard-politics.html
