@@ -1,3 +1,7 @@
+**French Parliament to Test New Power Balance for First Time**\
+`Lawmakers gathered for the first time since an election produced a deadlocked Parliament to elect a new president of the National Assembly. It was unclear who would come out on top.`\
+https://nytimes.com/2024/07/18/world/europe/france-parliament-assembly.html
+
 **Here’s what to watch on the last day of the Republican convention.**\
 `By Jim Rutenberg`\
 https://nytimes.com/live/2024/07/18/us/trump-biden-republican-convention/heres-what-to-watch-on-the-last-day-of-the-republican-convention
