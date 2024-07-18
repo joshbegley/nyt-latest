@@ -1,4 +1,4 @@
-**FIFA ranking: USMNT fall; England, Spain rise**\
+**FIFA ranking: USMNT falls; England, Spain rise**\
 `The USMNT has dropped five places to 16th in the FIFA world rankings following its Copa America group-stage exit.`\
 https://nytimes.com/athletic/5644909/2024/07/18/fifa-world-ranking-usmnt-spain-england/
 
