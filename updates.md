@@ -1,3 +1,11 @@
+**Abner Haynes, first AFL Player of the Year, dies at 86**\
+`In 1960, Haynes led the league in rushing with 875 yards.`\
+https://nytimes.com/athletic/5646508/2024/07/18/kansas-city-chiefs-abner-haynes-death/
+
+**Republicans Get Pumped for Trump’s Muscular Finale**\
+`The convention culminates in an evening that seems to celebrate literal combat and general brawn.`\
+https://nytimes.com/2024/07/18/us/politics/republicans-get-pumped-for-trumps-muscular-finale.html
+
 **For One G.O.P. Leader, Trump Is the New George Washington**\
 `Mike Johnson said that like the first president, Trump escaped death through the hand of providence.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-washington-providence-johnson
