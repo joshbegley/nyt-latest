@@ -34,7 +34,7 @@ https://nytimes.com/athletic/5643878/2024/07/18/angels-second-half-storylines-tr
 `"We're starting to find rhythm, that's what we want," Stephen Curry says as Team USA heads to London for their last pre-Olympics tune-ups.`\
 https://nytimes.com/athletic/5644998/2024/07/18/team-usa-basketball-olympics-kevin-durant-abu-dhabi/
 
-**What Musk Could Gain from Trump**\
+**How Musk May Influence Trump Policy**\
 `Space, electric vehicles, artificial intelligence: The tech mogul could influence policy in these areas and others should Donald Trump win re-election.`\
 https://nytimes.com/2024/07/18/business/dealbook/musk-trump-tesla-spacex-starlink.html
 
