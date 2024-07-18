@@ -1,3 +1,7 @@
+**Read the transcript of J.D. Vance’s convention speech.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/read-the-transcript-of-jd-vances-convention-speech
+
 **Usha Vance, J.D. Vance’s Wife, Entered the Spotlight. It’s an Unfamiliar Role.**\
 `The couple met while attending Yale Law School. Republicans hope Ms. Vance, the daughter of Indian immigrants, will become the second lady.`\
 https://nytimes.com/2024/07/18/us/politics/usha-vance-jd-wife.html
