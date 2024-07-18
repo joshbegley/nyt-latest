@@ -1,7 +1,3 @@
-**Ever Elusive, Melania Trump Expected to Appear at G.O.P. Convention**\
-`The former first lady skipped much of the Trump family reunion in Milwaukee this week.`\
-https://nytimes.com/2024/07/18/us/politics/melania-trump-2024-campaign-republicans.html
-
 **Netflix Adds 8 Million Subscribers**\
 `Shows like “Bridgerton” and “The Roast of Tom Brady” performed well for the streaming service, which now has 278 million subscribers worldwide.`\
 https://nytimes.com/2024/07/18/business/media/netflix-earnings.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5646131/2024/07/18/cubs-seiya-suzuki-interpreter/
 **6 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/07/18/books/review/new-books-recommendations.html
+
+**Democrats Are in Chaos: ‘You Can’t Win an Election This Way’**\
+`As Republicans rally around Donald J. Trump, Democrats are circling President Biden like sharks. “What a time to be alive!” Larry David said.`\
+https://nytimes.com/2024/07/18/us/politics/democrats-chaos-biden.html
 
