@@ -1,3 +1,11 @@
+**What Democrats Need to Do Now**\
+`If Democrats hope to win, they have to take the MAGA worldview seriously and respectfully make the case, especially to working-class voters, for something better.`\
+https://nytimes.com/2024/07/18/opinion/maga-trump-vance-democrats.html
+
+**J.D. Vance Puts the Con in Conservatism**\
+`He’s a “populist” who holds contempt for the working class.`\
+https://nytimes.com/2024/07/18/opinion/jd-vance-hillbilly-elegy.html
+
 **Open Championship Round 1 analysis: What to know on Daniel Brown's hot start, more**\
 `For the second straight year the Round 1 leader at The Open is a first-time participant.`\
 https://nytimes.com/athletic/5646402/2024/07/18/open-championship-round-1-analysis-what-to-know-on-daniel-browns-hot-start-more/
