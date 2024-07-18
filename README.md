@@ -6,8 +6,8 @@ https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/takeawa
 `Videos, audio and photographs of the attempted assassination of former President Donald J. Trump at an election rally shows how a clear threat emerged minutes before the shooting, and how law enforcement failed to protect Mr. Trump.`\
 https://nytimes.com/video/us/politics/100000009576871/trump-shooting-assassination-attempt.html
 
-**Read the transcript of J.D. Vance’s convention speech.**\
-`By The New York Times`\
+**Read the Transcript of J.D. Vance’s Convention Speech**\
+`The Ohio senator officially accepted the Republican vice-presidential nomination.`\
 https://nytimes.com/2024/07/17/us/politics/read-the-transcript-of-jd-vances-convention-speech.html
 
 **Usha Vance, J.D. Vance’s Wife, Entered the Spotlight. It’s an Unfamiliar Role.**\
