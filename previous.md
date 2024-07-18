@@ -1,3 +1,19 @@
+**Documenting a #MeToo Investigation Seven Years Later**\
+`An article on claims of sexual misconduct against Louis C.K. led to backlash against the women who spoke out. “Sorry/Not Sorry,” a New York Times documentary, examined the aftermath.`\
+https://nytimes.com/2024/07/18/insider/sorry-not-sorry-louis-ck.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/18/crosswords/spelling-bee-forum.html
+
+**‘My Property, My Trees’: New Tree-Cutting Law Divides N.Y. Town**\
+`A Westchester County suburb updated its law about tree removals from yards, upsetting tree advocates, who want stricter rules, and residents who don’t want to be told what to do.`\
+https://nytimes.com/2024/07/18/nyregion/tree-law-mamaroneck-westchester-county.html
+
+**When the Taliban Took Kabul, She Fled, and Made a New Life in New York**\
+`Nargis Baran was a rising legal star in Afghanistan. She became a target once the government fell.`\
+https://nytimes.com/2024/07/18/nyregion/taliban-afghanistan-lawyers.html
+
 **Late Night Taunts Former Critics Who Changed Their Minds About Trump**\
 `J.D. Vance and Nikki Haley, among other Republicans at the convention, seem to have gotten over their reservations about the former president.`\
 https://nytimes.com/2024/07/18/arts/television/late-night-jd-vance-nikki-haley.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/07/18/world/zizong-sichuan-mall-fire.html
 **Takeaways From Day 3 of the Republican Convention**\
 `Senator J.D. Vance denounced “Wall Street barons” and illegal immigration as the convention’s previous unity message shifted to more aggressive attacks on President Biden.`\
 https://nytimes.com/2024/07/17/us/politics/takeaways-rnc-day-3.html
-
-**How Trump’s Security Failed to Stop an Assassination Attempt**\
-`Videos, audio and photographs of the attempted assassination of former President Donald J. Trump at an election rally shows how a clear threat emerged minutes before the shooting, and how law enforcement failed to protect Mr. Trump.`\
-https://nytimes.com/video/us/politics/100000009576871/trump-shooting-assassination-attempt.html
-
-**Read the Transcript of J.D. Vance’s Convention Speech**\
-`The Ohio senator officially accepted the Republican vice-presidential nomination.`\
-https://nytimes.com/2024/07/17/us/politics/read-the-transcript-of-jd-vances-convention-speech.html
-
-**Usha Vance, J.D. Vance’s Wife, Entered the Spotlight. It’s an Unfamiliar Role.**\
-`The couple met while attending Yale Law School. Republicans hope Ms. Vance, the daughter of Indian immigrants, will become the second lady.`\
-https://nytimes.com/2024/07/18/us/politics/usha-vance-jd-wife.html
-
-**Listeria in Milk Alternatives Kills Two Canadians and Sickens 10 More**\
-`The Silk and Great Value brand drinks made from nuts, oats and coconuts were pulled from stores last week.`\
-https://nytimes.com/2024/07/18/world/canada/silk-listeria-milk-deaths.html
 

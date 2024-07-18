@@ -1,3 +1,19 @@
+**Documenting a #MeToo Investigation Seven Years Later**\
+`An article on claims of sexual misconduct against Louis C.K. led to backlash against the women who spoke out. “Sorry/Not Sorry,” a New York Times documentary, examined the aftermath.`\
+https://nytimes.com/2024/07/18/insider/sorry-not-sorry-louis-ck.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/18/crosswords/spelling-bee-forum.html
+
+**‘My Property, My Trees’: New Tree-Cutting Law Divides N.Y. Town**\
+`A Westchester County suburb updated its law about tree removals from yards, upsetting tree advocates, who want stricter rules, and residents who don’t want to be told what to do.`\
+https://nytimes.com/2024/07/18/nyregion/tree-law-mamaroneck-westchester-county.html
+
+**When the Taliban Took Kabul, She Fled, and Made a New Life in New York**\
+`Nargis Baran was a rising legal star in Afghanistan. She became a target once the government fell.`\
+https://nytimes.com/2024/07/18/nyregion/taliban-afghanistan-lawyers.html
+
 **Late Night Taunts Former Critics Who Changed Their Minds About Trump**\
 `J.D. Vance and Nikki Haley, among other Republicans at the convention, seem to have gotten over their reservations about the former president.`\
 https://nytimes.com/2024/07/18/arts/television/late-night-jd-vance-nikki-haley.html
