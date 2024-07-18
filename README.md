@@ -1,3 +1,7 @@
+**Juventus confirm Rabiot exit**\
+`Adrien Rabiot will be leaving Juventus after five seasons at the Italian club.`\
+https://nytimes.com/athletic/5645211/2024/07/18/adrien-rabiot-juventus-leaves/
+
 **Vieira leaves Strasbourg by mutual consent**\
 `BlueCo, the multi-club ownership group best known for its ownership of Chelsea, have today made a managerial change at their French club Strasbourg, parting company with head coach Patrick Vieira by mutual consent.`\
 https://nytimes.com/athletic/5645228/2024/07/18/patrick-vieira-strasbourg-chelsea-blueco/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5644998/2024/07/18/team-usa-basketball-olympics-kev
 **What Musk Could Gain from Trump**\
 `Space, electric vehicles, artificial intelligence: The tech mogul could influence policy in these areas and others should Donald Trump win re-election.`\
 https://nytimes.com/2024/07/18/business/dealbook/musk-trump-tesla-spacex-starlink.html
-
-**The Athletic FC: Korea star's secret sex tape charge. Plus: Sullivan, 14, makes MLS debut**\
-`Today in The Athletic FC: The story of Hwang Ui-jo, a secret sex video charge and blackmail. Plus: Sullivan, 14, makes MLS debut.`\
-https://nytimes.com/athletic/5645032/2024/07/18/korea-stars-sex-tape-charge-sullivan-14-debut/
 
