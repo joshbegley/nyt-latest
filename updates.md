@@ -1,3 +1,11 @@
+**Republicans Have Muffled Trump’s Election Lies at the R.N.C. Here’s Why.**\
+`The conspiracy theories about fraud in the 2020 election have largely been absent in prime time. But false claims about elections are still circulating.`\
+https://nytimes.com/2024/07/18/us/politics/republican-convention-2024-campaign-elections.html
+
+**Peter Buxtun, Who Exposed Tuskegee Syphilis Study, Dies at 86**\
+`A Public Health Service employee, he turned whistle-blower after learning of decades-long research involving hundreds of poor, infected Black men who were left untreated.`\
+https://nytimes.com/2024/07/18/us/peter-buxtun-dead.html
+
 **Democrats, Stop Saying It’s Too Late**\
 `The conventional wisdom about Biden ricochets between denialism and fatalism.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/democrats-convention-biden
