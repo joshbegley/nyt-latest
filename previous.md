@@ -1,3 +1,27 @@
+**NHL’s 10 worst contracts, 2024 edition: Jonathan Huberdeau, Darnell Nurse and more**\
+`According to each player’s projected value over the remainder of their deals, these are the league’s 10 worst contracts.`\
+https://nytimes.com/athletic/5632415/2024/07/18/nhl-10-worst-contracts-2024/
+
+**Red Sox second-half storylines to watch: Trade deadline picture and more**\
+`The Red Sox are in a position to make a postseason push. Will they make the moves to improve their chances?`\
+https://nytimes.com/athletic/5643553/2024/07/18/red-sox-second-half-trade-deadline-outlook/
+
+**Dynasty league football: Receiver battles in Buffalo, Green Bay, and more training camp storylines to watch**\
+`Jeff Haverlack shares the intriguing storylines he's watching as training camps open, including receiver battles in Buffalo and Green Bay.`\
+https://nytimes.com/athletic/5644458/2024/07/18/dynasty-league-football-training-camp-storylines/
+
+**The best (and worst) case scenarios for the Atlanta Falcons' 2024 season**\
+`The Atlanta Falcons open training camp on July 24 with a new head coach, new quarterback and new expectations.`\
+https://nytimes.com/athletic/5641403/2024/07/18/atlanta-falcons-2024-scenarios/
+
+**J.D. Vance Accepts Vice-Presidential Nomination**\
+`Senator J.D. Vance of Ohio delivered a speech at the Republican National Convention that served as both an introduction to party delegates and a blueprint for his campaign with Donald J. Trump.`\
+https://nytimes.com/video/us/politics/100000009578786/jd-vance-speech-rnc.html
+
+**2024 at a Crossroads**\
+`The president’s Covid diagnosis, coming at a galvanizing moment for his opponent, resulted in starkly different images of the two campaigns at a pivotal moment in the race.`\
+https://nytimes.com/2024/07/18/us/politics/trump-biden-election.html
+
 **Republicans Put Trump in Soft Focus, Editing Out Years of Rancor**\
 `Over three days at the Republican National Convention, Donald J. Trump’s party has tried to soften his image. On Thursday, he’ll speak for himself.`\
 https://nytimes.com/2024/07/18/us/politics/donald-trump-republicans-2024-campaign.html
@@ -13,28 +37,4 @@ https://nytimes.com/interactive/2024/07/18/realestate/san-francisco-apartment-ho
 **Homewares Inspired by Hunting Tools and Sea Creatures**\
 `Plus: a Miami riverfront restaurant, cashmere blankets and more recommendations from T Magazine.`\
 https://nytimes.com/2024/07/18/t-magazine/alighieri-jewelry-homeware.html
-
-**The Meaning of Trump’s Fighting Words**\
-`In the canon of Trump books and speeches, “fight” is a constant byword.`\
-https://nytimes.com/2024/07/18/opinion/trump-rhetoric-fighting-words.html
-
-**Colman Domingo Finds Brotherhood in ‘Sing Sing’**\
-`“We made this film as if it was going to be our last.”`\
-https://nytimes.com/2024/07/18/podcasts/colman-domingo-sing-sing.html
-
-**Watching ‘Twisters’ Amid the Wreckage of Hurricane Beryl**\
-`Disaster movies make for thrilling blockbusters. But the reality of a changing climate is slow-motion tragedy, broken bureaucracy and lingering tedium.`\
-https://nytimes.com/2024/07/18/opinion/hurricane-beryl-twisters-movie.html
-
-**The Soundtrack of Donald Trump**\
-`Lee Greenwood on “God Bless the U.S.A.” and the man he wants back in the White House.`\
-https://nytimes.com/2024/07/18/podcasts/the-soundtrack-of-donald-trump.html
-
-**The Promise of Political Rebirth for Donald Trump**\
-`For his convention speech, Donald Trump faces a new, more promising rhetorical and political situation.`\
-https://nytimes.com/2024/07/18/opinion/trump-republican-convention-speech.html
-
-**An Algorithm Told Police She Was Safe. Then Her Husband Killed Her.**\
-`Spain has become reliant on an algorithm to score how likely a domestic violence victim may be abused again and what protection to provide — sometimes leading to fatal consequences.`\
-https://nytimes.com/interactive/2024/07/18/technology/spain-domestic-violence-viogen-algorithm.html
 
