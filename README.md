@@ -1,3 +1,15 @@
+**“You didn’t see these spy balloons under President Trump, did you?”**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/you-didnt-see-these-spy-balloons-under-president-trump-did-you
+
+**President Biden “is focused on building electric tanks.”**\
+`By Lisa Friedman`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/president-biden-is-focused-on-building-electric-tanks
+
+**Cavan Sullivan, 14, snaps MLS record with Union debut**\
+`On Wednesday, Sullivan became the youngest player to appear in a Major League Soccer match.`\
+https://nytimes.com/athletic/5644521/2024/07/17/cavan-sullivan-mls-age-record-union/
+
 **For Sidelined Giuliani, a Tumble Is an Unsubtle Metaphor**\
 `Rudolph W. Giuliani — indicted, disbarred and bankrupt — has no speaking slot at the convention, but he is nevertheless making the rounds in Milwaukee.`\
 https://nytimes.com/2024/07/17/us/politics/rudy-giuliani-rnc-fall.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/17/us/politics/peter-navarro-rnc-speech.html
 **Inmate Dies After Fight Breaks Out at Troubled Brooklyn Jail**\
 `Edwin Cordero, 36, died at the Metropolitan Detention Center, where his lawyer said conditions were “awful.”`\
 https://nytimes.com/2024/07/17/nyregion/inmate-dies-metropolitan-detention-center.html
-
-**“Biden’s war on energy hits every American because the cost of energy is in everything we use or touch every day. His red tape has raised the price of gas in your car. The cost of food on your table. The clothes on your back.”**\
-`By Lisa Friedman`\
-https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/bidens-war-on-energy-hits-every-american-because-the-cost-of-energy-is-in-everything-we-use-or-touch-every-day-his-red-tape-has-
-
-**A Blind Spot and a Lost Trail: How the Gunman Got So Close to Trump**\
-`Even though local police were on the lookout for a suspicious man, critical minutes ticked by, allowing a would-be assassin to slip past, a Times analysis found.`\
-https://nytimes.com/2024/07/17/us/politics/secret-service-trump-shooting.html
-
-**“Your favorite Democrat, Nancy Pelosi, created your favorite committee, the Jan. 6 committee, which demanded that I violate executive privilege.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/your-favorite-democrat-nancy-pelosi-created-your-favorite-committee-the-jan-6-committee-which-demanded-that-i-violate-executive-
 
