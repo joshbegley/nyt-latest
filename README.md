@@ -1,3 +1,7 @@
+**Five People Die on Mt. Fuji in Deadly Start to Climbing Season**\
+`Japanese officials are urging climbers to be more careful on the mountain after a string of deaths within weeks of the trails opening.`\
+https://nytimes.com/2024/07/18/us/mount-fuji-climbing-deaths.html
+
 **Why This Star of Georgian Film Isn’t Showing His New Movie in Georgia**\
 `The director Levan Akin is worried that his latest film, “Crossing,” will inflame tensions around L.G.B.T. visibility in the post-Soviet nation.`\
 https://nytimes.com/2024/07/18/movies/crossing-levan-akin-georgia-lgbt.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/movies/widow-clicquot-review.html
 **‘Join or Die’ Review: Come Together**\
 `This documentary about the work of Robert Putnam, who wrote “Bowling Together,” argues that Americans can save democracy by becoming joiners.`\
 https://nytimes.com/2024/07/18/movies/join-or-die-review-come-together.html
-
-**Los Angeles Dodgers second-half storylines to watch, starting with the trade deadline plan**\
-`Shohei Ohtani and other big hitters keep the Dodgers' top-heavy lineup afloat, but the bottom of the order continues to lag.`\
-https://nytimes.com/athletic/5644689/2024/07/18/dodgers-trade-deadline-needs-2/
 
