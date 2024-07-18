@@ -1,3 +1,7 @@
+**Commissioners discussing CFB roster caps of 105: Source**\
+`'Hopefully we can land on a healthy place,' Greg Sankey said. 'We’re just going to have to deal with things in a little different way.'`\
+https://nytimes.com/athletic/5646145/2024/07/18/college-football-roster-caps-house-settlement/
+
 **Cubs move on from Seiya Suzuki’s interpreter and look ahead to second half of season**\
 `Nao Masamoto and Shota Imanaga's interpreter, Edwin Stanberry, will assist the Cubs in communicating with Suzuki.`\
 https://nytimes.com/athletic/5646131/2024/07/18/cubs-seiya-suzuki-interpreter/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/18/us/raskinletter.html
 **We Underestimated Trump**\
 `He has campaigned smartly, and has shifted the governing philosophy of the Republican Party.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/brooks-underestimating-trump-convention
-
-**Germany Promised to Step Up Militarily. Its Budget Says Differently.**\
-`After Russia’s invasion of Ukraine, Chancellor Olaf Scholz vowed a revolution in defense strategy. But the math is not adding up.`\
-https://nytimes.com/2024/07/18/world/europe/germany-budget-military-spending.html
 
