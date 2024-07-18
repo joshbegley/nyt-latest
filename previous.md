@@ -10,4 +10,4 @@ https://nytimes.com/live/2024/07/18/us/trump-biden-republican-convention/heres-w
 `By Patrick Kingsley, Vivian Yee and Vivian Nereim`\
 https://nytimes.com/live/2024/07/18/world/israel-gaza-war-hamas/as-republicans-meet-for-their-convention-leaders-in-israel-saudi-arabia-and-egypt-are-considering-what-a-second-trump-presidency
 
-**A drone strike in Lebanon kills a militant commander, and other news.**\
+**A hard-line Israeli minister visits a contested holy site, and other news.**\

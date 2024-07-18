@@ -1,3 +1,5 @@
+**A hard-line Israeli minister visits a contested holy site, and other news.**\
+
 **French Parliament to Test New Power Balance for First Time**\
 `Lawmakers gathered for the first time since an election produced a deadlocked Parliament to elect a new president of the National Assembly. It was unclear who would come out on top.`\
 https://nytimes.com/2024/07/18/world/europe/france-parliament-assembly.html
