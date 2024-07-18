@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein Interviews Tim Alberta**\
+`The July 18, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/07/18/podcasts/transcript-ezra-klein-interviews-tim-alberta.html
+
 **Phoenix Mercury unveil new 'crown jewel' practice facility**\
 `The $100 million practice facility is the third to be built in the WNBA in the last two years.`\
 https://nytimes.com/athletic/5645249/2024/07/18/phoenix-mercury-facility-wnba/
