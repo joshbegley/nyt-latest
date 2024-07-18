@@ -1,3 +1,7 @@
+**The ‘Newhart’ Finale Was One of Bob Newhart’s Boldest TV Moments**\
+`The finale has become so famous in part because it offered a rare moment of real surprise from a taped prime-time television sitcom.`\
+https://nytimes.com/2024/07/18/arts/television/bob-newhart-finale.html
+
 **Hunter Biden, Citing Trump’s Classified Documents Ruling, Seeks Dismissal of Cases**\
 `Mr. Biden’s legal team pointed to a decision by a federal judge in Florida, who ruled that the special counsel in Mr. Trump’s case, Jack Smith, had been unconstitutionally appointed.`\
 https://nytimes.com/2024/07/18/us/politics/hunter-biden-seeks-dismissal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/opinion/jd-vance-hillbilly-elegy.html
 **Open Championship Round 1 analysis: What to know on Daniel Brown's hot start, more**\
 `For the second straight year the Round 1 leader at The Open is a first-time participant.`\
 https://nytimes.com/athletic/5646402/2024/07/18/open-championship-round-1-analysis-what-to-know-on-daniel-browns-hot-start-more/
-
-**Summer Dating Essentials? Indoor Activities and Lots of Deodorant.**\
-`Summers are miserable. Dating doesn’t have to be.`\
-https://nytimes.com/2024/07/18/style/summer-dating-essentials.html
 
