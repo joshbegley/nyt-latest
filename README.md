@@ -1,10 +1,14 @@
+**Takeaways From Day 3 of the Republican Convention**\
+`Senator J.D. Vance denounced “Wall Street barons” and illegal immigration as the convention’s previous unity message shifted to more aggressive attacks on President Biden.`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/takeaways-rnc-day-3
+
 **How Trump’s Security Failed to Stop an Assassination Attempt**\
 `Videos, audio and photographs of the attempted assassination of former President Donald J. Trump at an election rally shows how a clear threat emerged minutes before the shooting, and how law enforcement failed to protect Mr. Trump.`\
 https://nytimes.com/video/us/politics/100000009576871/trump-shooting-assassination-attempt.html
 
 **Read the transcript of J.D. Vance’s convention speech.**\
 `By The New York Times`\
-https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/read-the-transcript-of-jd-vances-convention-speech
+https://nytimes.com/2024/07/17/us/politics/read-the-transcript-of-jd-vances-convention-speech.html
 
 **Usha Vance, J.D. Vance’s Wife, Entered the Spotlight. It’s an Unfamiliar Role.**\
 `The couple met while attending Yale Law School. Republicans hope Ms. Vance, the daughter of Indian immigrants, will become the second lady.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/us/politics/afghanistan-withdrawal.html
 **Diaby initially impressed at Villa - would a move to Saudi Arabia suit all parties?**\
 `After a flying start to his Villa career, Diaby's form tailed off — and now there's strong interest from Saudi Arabia after just a season`\
 https://nytimes.com/athletic/5641212/2024/07/18/moussa-diaby-aston-villa-transfer-saudi-arabia/
-
-**Transfers, ownership, PSR and season aims - an audience with Newcastle CEO Eales**\
-`Newcastle's CEO gave a wide-ranging interview this week, so what can we learn from it?`\
-https://nytimes.com/athletic/5642867/2024/07/18/darren-eales-newcastle-transfers-psr/
 
