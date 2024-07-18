@@ -1,3 +1,7 @@
+**Greenwood completes permanent Marseille transfer from Man United for €31.6m**\
+`Mason Greenwood has joined Marseille on a permanent transfer from Manchester United in a deal worth up to €31.`\
+https://nytimes.com/athletic/5641530/2024/07/18/mason-greenwood-marseille-transfer-manchester-united/
+
 **Jamie Raskin, a Key Democrat, Suggested to Biden That He Should Drop Out**\
 `Mr. Raskin, a congressman from Maryland, was a key member of the panel that investigated the Capitol riot. In a lengthy letter, he compared President Biden to a tiring baseball pitcher.`\
 https://nytimes.com/2024/07/18/us/politics/jamie-raskin-biden-letter.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5645675/2024/07/18/f1-logan-sargeant-future-contrac
 **Savinho to Manchester City: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Savinho's move to Manchester City.`\
 https://nytimes.com/athletic/5613597/2024/07/18/savinho-to-manchester-city-transfer-ratings/
-
-**Savinho joins Man City from Troyes**\
-`Manchester City have completed the signing of Savinho from Troyes on a five-year contract in a transfer worth up to €40million (£33.`\
-https://nytimes.com/athletic/5643054/2024/07/18/savinho-manchester-city-transfer/
 
