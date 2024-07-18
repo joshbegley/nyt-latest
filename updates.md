@@ -1,3 +1,15 @@
+**Fire at Shopping Mall in Southwestern China Kills 16**\
+`Dozens were trapped inside the building when the fire started on Wednesday evening in Sichuan Province, local authorities said.`\
+https://nytimes.com/2024/07/18/world/zizong-sichuan-mall-fire.html
+
+**Takeaways From Day 3 of the Republican Convention**\
+`Senator J.D. Vance denounced “Wall Street barons” and illegal immigration as the convention’s previous unity message shifted to more aggressive attacks on President Biden.`\
+https://nytimes.com/2024/07/17/us/politics/takeaways-rnc-day-3.html
+
+**Read the Transcript of J.D. Vance’s Convention Speech**\
+`The Ohio senator officially accepted the Republican vice-presidential nomination.`\
+https://nytimes.com/2024/07/17/us/politics/read-the-transcript-of-jd-vances-convention-speech.html
+
 **How Trump’s Security Failed to Stop an Assassination Attempt**\
 `Videos, audio and photographs of the attempted assassination of former President Donald J. Trump at an election rally shows how a clear threat emerged minutes before the shooting, and how law enforcement failed to protect Mr. Trump.`\
 https://nytimes.com/video/us/politics/100000009576871/trump-shooting-assassination-attempt.html

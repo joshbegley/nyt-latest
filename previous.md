@@ -1,10 +1,18 @@
+**Fire at Shopping Mall in Southwestern China Kills 16**\
+`Dozens were trapped inside the building when the fire started on Wednesday evening in Sichuan Province, local authorities said.`\
+https://nytimes.com/2024/07/18/world/zizong-sichuan-mall-fire.html
+
+**Takeaways From Day 3 of the Republican Convention**\
+`Senator J.D. Vance denounced “Wall Street barons” and illegal immigration as the convention’s previous unity message shifted to more aggressive attacks on President Biden.`\
+https://nytimes.com/2024/07/17/us/politics/takeaways-rnc-day-3.html
+
 **How Trump’s Security Failed to Stop an Assassination Attempt**\
 `Videos, audio and photographs of the attempted assassination of former President Donald J. Trump at an election rally shows how a clear threat emerged minutes before the shooting, and how law enforcement failed to protect Mr. Trump.`\
 https://nytimes.com/video/us/politics/100000009576871/trump-shooting-assassination-attempt.html
 
-**Read the transcript of J.D. Vance’s convention speech.**\
-`By The New York Times`\
-https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/read-the-transcript-of-jd-vances-convention-speech
+**Read the Transcript of J.D. Vance’s Convention Speech**\
+`The Ohio senator officially accepted the Republican vice-presidential nomination.`\
+https://nytimes.com/2024/07/17/us/politics/read-the-transcript-of-jd-vances-convention-speech.html
 
 **Usha Vance, J.D. Vance’s Wife, Entered the Spotlight. It’s an Unfamiliar Role.**\
 `The couple met while attending Yale Law School. Republicans hope Ms. Vance, the daughter of Indian immigrants, will become the second lady.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5640537/2024/07/18/leeds-red-bull-kit-anger/
 **Republicans Seek to Remind R.N.C. Viewers About Deadly Afghanistan Withdrawal**\
 `Relatives of several service members who were killed when a suicide bomb exploded at a gate to the airport in Kabul in August 2021 delivered an anguished tribute.`\
 https://nytimes.com/2024/07/18/us/politics/afghanistan-withdrawal.html
-
-**Diaby initially impressed at Villa - would a move to Saudi Arabia suit all parties?**\
-`After a flying start to his Villa career, Diaby's form tailed off — and now there's strong interest from Saudi Arabia after just a season`\
-https://nytimes.com/athletic/5641212/2024/07/18/moussa-diaby-aston-villa-transfer-saudi-arabia/
-
-**Transfers, ownership, PSR and season aims - an audience with Newcastle CEO Eales**\
-`Newcastle's CEO gave a wide-ranging interview this week, so what can we learn from it?`\
-https://nytimes.com/athletic/5642867/2024/07/18/darren-eales-newcastle-transfers-psr/
 
