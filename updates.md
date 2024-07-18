@@ -1,3 +1,15 @@
+**J.D. Vance, Breaking the Beard Barrier**\
+`The vice-presidential candidate is the first major party nominee with facial hair in 75 years.`\
+https://nytimes.com/2024/07/18/style/jd-vance-beard-politics.html
+
+**Thursday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/07/18/briefing/biden-covid-trump-assassin.html
+
+**Why Leeds fans are seeing red at their new kit**\
+`Leeds' deal with Red Bull meant its logo was certain to appear on the new home shirt - but there is anger at red featuring`\
+https://nytimes.com/athletic/5640537/2024/07/18/leeds-red-bull-kit-anger/
+
 **Republicans Seek to Remind R.N.C. Viewers About Deadly Afghanistan Withdrawal**\
 `Relatives of several service members who were killed when a suicide bomb exploded at a gate to the airport in Kabul in August 2021 delivered an anguished tribute.`\
 https://nytimes.com/2024/07/18/us/politics/afghanistan-withdrawal.html
