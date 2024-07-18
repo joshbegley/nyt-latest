@@ -1,3 +1,19 @@
+**“Meanwhile pro-crime district attorneys have turned our cities into giant crime zones.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/meanwhile-pro-crime-district-attorneys-have-turned-our-cities-into-giant-crime-zones
+
+**Sheriff’s Deputy Faces Charges in Death of Illinois Woman**\
+`The deputy, Sean Grayson, has since been fired. A review of the investigation did not find the use of deadly force “justified.”`\
+https://nytimes.com/2024/07/17/us/sonya-massey-illinois-deputy-charged.html
+
+**Corrections: July 18, 2024**\
+`Corrections that appeared in print on Thursday, July 18, 2024.`\
+https://nytimes.com/2024/07/17/pageoneplus/corrections-july-18-2024.html
+
+**Quotation of the Day: Extreme Weather Causes Record Amtrak Delays**\
+`Quotation of the Day for Thursday, July 18, 2024.`\
+https://nytimes.com/2024/07/17/pageoneplus/quotation-of-the-day-extreme-weather-causes-record-amtrak-delays.html
+
 **“The guy who advised Obama not to take out Osama. Joe Biden advised against the mission that killed Osama bin Laden.”**\
 `By Angelo Fichera`\
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/the-guy-who-advised-obama-not-to-take-out-osama-joe-biden-advised-against-the-mission-that-killed-osama-bin-laden

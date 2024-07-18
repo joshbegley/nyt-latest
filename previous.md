@@ -1,3 +1,19 @@
+**“Meanwhile pro-crime district attorneys have turned our cities into giant crime zones.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/meanwhile-pro-crime-district-attorneys-have-turned-our-cities-into-giant-crime-zones
+
+**Sheriff’s Deputy Faces Charges in Death of Illinois Woman**\
+`The deputy, Sean Grayson, has since been fired. A review of the investigation did not find the use of deadly force “justified.”`\
+https://nytimes.com/2024/07/17/us/sonya-massey-illinois-deputy-charged.html
+
+**Corrections: July 18, 2024**\
+`Corrections that appeared in print on Thursday, July 18, 2024.`\
+https://nytimes.com/2024/07/17/pageoneplus/corrections-july-18-2024.html
+
+**Quotation of the Day: Extreme Weather Causes Record Amtrak Delays**\
+`Quotation of the Day for Thursday, July 18, 2024.`\
+https://nytimes.com/2024/07/17/pageoneplus/quotation-of-the-day-extreme-weather-causes-record-amtrak-delays.html
+
 **“The guy who advised Obama not to take out Osama. Joe Biden advised against the mission that killed Osama bin Laden.”**\
 `By Angelo Fichera`\
 https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/the-guy-who-advised-obama-not-to-take-out-osama-joe-biden-advised-against-the-mission-that-killed-osama-bin-laden
@@ -21,20 +37,4 @@ https://nytimes.com/2024/07/17/us/politics/lee-greenwood-trump-god-bless-usa.htm
 **Peter Navarro, the MAGA Martyr Who Went to Prison for You**\
 `His speech at the Republican National Convention was one of the more bizarre convention moments I’ve ever seen.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/peter-navarro-speech-convention
-
-**“You didn’t see these spy balloons under President Trump, did you?”**\
-`By Julian E. Barnes`\
-https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/you-didnt-see-these-spy-balloons-under-president-trump-did-you
-
-**President Biden “is focused on building electric tanks.”**\
-`By Lisa Friedman`\
-https://nytimes.com/live/2024/07/17/us/trump-republican-convention-biden/president-biden-is-focused-on-building-electric-tanks
-
-**Cavan Sullivan, 14, snaps MLS record with Union debut**\
-`On Wednesday, Sullivan became the youngest player to appear in a Major League Soccer match.`\
-https://nytimes.com/athletic/5644521/2024/07/17/cavan-sullivan-mls-age-record-union/
-
-**For Sidelined Giuliani, a Tumble Is an Unsubtle Metaphor**\
-`Rudolph W. Giuliani — indicted, disbarred and bankrupt — has no speaking slot at the convention, but he is nevertheless making the rounds in Milwaukee.`\
-https://nytimes.com/2024/07/17/us/politics/rudy-giuliani-rnc-fall.html
 
