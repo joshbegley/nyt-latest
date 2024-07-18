@@ -1,5 +1,5 @@
-**N.Y. Democrats Split Over Councilwoman Charged With Biting Police Chief**\
-`Susan Zhuang, a new City Council member from Queens, was charged with assault for biting a police officer. Democrats are divided over how harshly to reprimand her.`\
+**‘The Bite’: Democrats Debate Councilwoman’s Bizarre Assault Charge**\
+`Susan Zhuang, a first-year City Council member from Queens, was charged with assault for biting a police officer. Democrats are split over how harshly to reprimand her.`\
 https://nytimes.com/2024/07/18/nyregion/zhuang-bite-police-council.html
 
 **U.S. Treasury sanctions seek to financially cripple the Yemeni rebels attacking Red Sea shipping.**\
