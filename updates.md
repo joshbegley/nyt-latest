@@ -1,3 +1,11 @@
+**Traditional Marriage for Thee, but Not for J.D. Vance**\
+`He refers to the elite as if he is not part of it, but then, in all of his lifestyle choices, he acts like any other Ivy League grad.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/vance-wife-marriage
+
+**Ohtani, Dodgers to face Imanaga, Cubs in 2025 Japan Series**\
+`It’ll be MLB's sixth time playing regular-season games in Japan, and the first since 2019.`\
+https://nytimes.com/athletic/5645763/2024/07/18/dodgers-cubs-japan-series-2025/
+
 **A Vegetable Lover’s Guide to the Grill**\
 `These five easy recipes and tips turn savory charred vegetables into fresh, filling main dishes.`\
 https://nytimes.com/2024/07/18/dining/grill-vegetarian-dinner-recipes.html
