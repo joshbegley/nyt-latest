@@ -1,3 +1,15 @@
+**N.Y. Democrats Split Over Councilwoman Charged With Biting Police Chief**\
+`Susan Zhuang, a new City Council member from Queens, was charged with assault for biting a police officer. Democrats are divided over how harshly to reprimand her.`\
+https://nytimes.com/2024/07/18/nyregion/zhuang-bite-police-council.html
+
+**U.S. Treasury sanctions seek to financially cripple the Yemeni rebels attacking Red Sea shipping.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/07/18/world/israel-gaza-war-hamas/us-treasury-sanctions-seek-to-financially-cripple-the-yemeni-rebels-attacking-red-sea-shipping
+
+**The Irreconcilable Versions of J.D. Vance in ‘Hillbilly Elegy’**\
+`Even before the Republican vice-presidential nominee aligned himself with Donald Trump, contradiction was central to his rags-to-riches biography.`\
+https://nytimes.com/2024/07/18/us/politics/jd-vance-hillbilly-elegy.html
+
 **Ever Elusive, Melania Trump Is Expected to Appear at G.O.P. Convention**\
 `The former first lady skipped much of the Trump family reunion in Milwaukee this week.`\
 https://nytimes.com/2024/07/18/us/politics/melania-trump-2024-campaign-republicans.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/18/dining/nyc-summer-pop-ups.html
 **For Biden and Harris, a Delicate and Sometimes Awkward Dance**\
 `Even as she has remained diligently loyal to President Biden, Vice President Kamala Harris has sought to avoid having her own political strengths denigrated.`\
 https://nytimes.com/2024/07/18/us/politics/biden-kamala-harris.html
-
-**Commissioners discussing CFB roster caps of 105: Source**\
-`'Hopefully we can land on a healthy place,' Greg Sankey said. 'We’re just going to have to deal with things in a little different way.'`\
-https://nytimes.com/athletic/5646145/2024/07/18/college-football-roster-caps-house-settlement/
-
-**Cubs move on from Seiya Suzuki’s interpreter and look ahead to second half of season**\
-`Nao Masamoto and Shota Imanaga's interpreter, Edwin Stanberry, will assist the Cubs in communicating with Suzuki.`\
-https://nytimes.com/athletic/5646131/2024/07/18/cubs-seiya-suzuki-interpreter/
-
-**6 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/07/18/books/review/new-books-recommendations.html
 
