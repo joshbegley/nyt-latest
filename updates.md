@@ -1,3 +1,11 @@
+**Justice Dept. Sues Contractor Over Sexual Abuse of Migrant Children**\
+`Southwest Key, the Texas-based nonprofit that is the largest provider of housing for unaccompanied minors who arrive at the southern border, has faced federal scrutiny before.`\
+https://nytimes.com/2024/07/18/us/doj-migrants-southwest-key-lawsuit.html
+
+**The Woman Who Sold the World’s Most Expensive Dinosaur**\
+`Phyllis Kao, an auctioneer at Sotheby’s, captivated audiences when she sold the fossil of a stegosaurus for $44.6 million.`\
+https://nytimes.com/2024/07/18/style/phyllis-kao-dinosaur-fossil-sothebys-auction.html
+
 **Abner Haynes, first AFL Player of the Year, dies at 86**\
 `In 1960, Haynes led the league in rushing with 875 yards.`\
 https://nytimes.com/athletic/5646508/2024/07/18/kansas-city-chiefs-abner-haynes-death/
