@@ -1,3 +1,7 @@
+**Kevin Magnussen to leave Haas F1 at end of 2024 season**\
+`In its ninth season, Haas is a young team by F1 standards, and Magnussen has played a bigger role in its story than any other driver.`\
+https://nytimes.com/athletic/5643869/2024/07/18/kevin-magnussen-haas-leaving/
+
 **Same-Sex Couples in South Korea Win Landmark Rights Ruling**\
 `The country’s Supreme Court said same-sex couples qualify for dependent coverage under the national health insurance, a decision that could have wider ramifications.`\
 https://nytimes.com/2024/07/18/world/asia/south-korea-same-sex-rights-ruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/nyregion/tree-law-mamaroneck-westchester-county.h
 **When the Taliban Took Kabul, She Fled, and Made a New Life in New York**\
 `Nargis Baran was a rising legal star in Afghanistan. She became a target once the government fell.`\
 https://nytimes.com/2024/07/18/nyregion/taliban-afghanistan-lawyers.html
-
-**Royal Troon’s most famous hole will make some golfers want to return to sender**\
-`TROON, Scotland — As the thick, dense gorse plants wave heavily back toward the tee like fine hair in the wind, another golfer steps to Royal Troon’s eighth tee box trying to figure out why exactly this short little hole is so daunting.`\
-https://nytimes.com/athletic/5643452/2024/07/18/open-championship-royal-troon-postage-stamp-hole/
 

@@ -1,3 +1,7 @@
+**Kevin Magnussen to leave Haas F1 at end of 2024 season**\
+`In its ninth season, Haas is a young team by F1 standards, and Magnussen has played a bigger role in its story than any other driver.`\
+https://nytimes.com/athletic/5643869/2024/07/18/kevin-magnussen-haas-leaving/
+
 **Same-Sex Couples in South Korea Win Landmark Rights Ruling**\
 `The country’s Supreme Court said same-sex couples qualify for dependent coverage under the national health insurance, a decision that could have wider ramifications.`\
 https://nytimes.com/2024/07/18/world/asia/south-korea-same-sex-rights-ruling.html
