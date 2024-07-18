@@ -1,3 +1,15 @@
+**Why Are Democrats Speaking to America in Ancient Greek?**\
+`Democracy is vital. “Democracy,” the word, is inert.`\
+https://nytimes.com/2024/07/18/opinion/democracy-dead-word-language.html
+
+**Man United complete transfer of Lille defender Yoro**\
+`Manchester United have completed the signing of defender Leny Yoro from Lille.`\
+https://nytimes.com/athletic/5643071/2024/07/18/leny-yoro-man-united-transfer/
+
+**Kings mailbag: Trading veterans? Playoff expectations? Jersey preference?**\
+`As promised, here is Part 2 of the Los Angeles Kings mailbag.`\
+https://nytimes.com/athletic/5645908/2024/07/18/kings-nhl-mailbag-july-2024/
+
 **Russell Westbrook expected to join Nuggets after Clippers-Jazz trade: Sources**\
 `The plan for Westbrook and the Clippers was to part ways this offseason, and the Nuggets were a front-runner.`\
 https://nytimes.com/athletic/5645975/2024/07/18/russell-westbrook-trade-jazz-clippers/
