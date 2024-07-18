@@ -1,3 +1,7 @@
+**Kid Rock will bring his provocative style to the stage before Trump’s speech.**\
+`By Ben Sisario`\
+https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/kid-rock-will-bring-provocative-style-to-the-stage-before-trumps-speech
+
 **Six thoughts about the San Francisco Giants provisional 2025 schedule**\
 `The Giants open the season in Cincinnati, don't see the Dodgers until July, and have a brutal stretch of consecutive games in April.`\
 https://nytimes.com/athletic/5645928/2024/07/18/sf-giants-2025-schedule-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-speech-convention
 **‘I Just Enjoy the Heck Out of Being Patriotic’**\
 `At the Republican National Convention, Americana fashion was on full display.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/republican-convention-fashion
-
-**Who will replace Nick Saban in leadership role in SEC?**\
-`With Saban retired, who will take over a leadership role for SEC football coaches?`\
-https://nytimes.com/athletic/5646315/2024/07/18/nick-saban-sec-college-football/
 
