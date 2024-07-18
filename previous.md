@@ -1,3 +1,7 @@
+**MLB bullpen trade deadline primer: Projected buyers, sellers and more**\
+`Greg Jewett offers up a MLB bullpen trade deadline primer, running through team needs, in addition to likely buyers and sellers.`\
+https://nytimes.com/athletic/5644784/2024/07/18/fantasy-baseball-bullpen-report-trade-deadline/
+
 **Pat Williams, Orlando Magic co-founder, dies at 84**\
 `In 1986, Williams left the 76ers and joined Orlando-area businessman Jimmy Hewitt to work to bring an NBA expansion team to Orlando.`\
 https://nytimes.com/athletic/5644749/2024/07/18/pat-williams-orlando-magic-obit/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/style/jd-vance-beard-politics.html
 **Thursday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2024/07/18/briefing/biden-covid-trump-assassin.html
-
-**Why Leeds fans are seeing red at their new kit**\
-`Leeds' deal with Red Bull meant its logo was certain to appear on the new home shirt - but there is anger at red featuring`\
-https://nytimes.com/athletic/5640537/2024/07/18/leeds-red-bull-kit-anger/
 
