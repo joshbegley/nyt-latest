@@ -1,3 +1,7 @@
+**Democrats in Disarray Over Biden**\
+`Readers discuss growing pressure for him to step aside and an essay by Bernie Sanders supporting him. Also: God and Trump; a raised fist; the First Amendment.`\
+https://nytimes.com/2024/07/18/opinion/joe-biden-democrats-disarray.html
+
 **Barcelona prospect Fernandez, 16, signs first pro deal**\
 `Barcelona prospect Guille Fernandez has signed a new contract with the club.`\
 https://nytimes.com/athletic/5645130/2024/07/18/barcelona-guille-fernandez-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5643046/2024/07/18/womens-basketball-2024-paris-oly
 **Here Are the Speakers for Night 4 of the Republican Convention**\
 `Before Donald J. Trump formally accepts his party’s nomination, the event will feature speeches by Hulk Hogan, Tucker Carlson and Dana White.`\
 https://nytimes.com/2024/07/18/us/politics/rnc-speaker-lineup.html
-
-**A One-Man Telemundo on TikTok**\
-`Carlos Espina is among a new kind of social media personalities whom politicians, especially those in the Biden White House, view as modern-day broadcasters.`\
-https://nytimes.com/2024/07/18/business/media/carlos-espina-tiktok.html
 
