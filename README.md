@@ -1,6 +1,14 @@
+**Between speakers, the house band keeps the crowd entertained.**\
+`By Nick Corasaniti`\
+https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/between-speakers-the-house-band-keeps-the-crowd-entertained
+
 **Gunman Might Have Scoped Out Site Six Days Before Trump Rally**\
 `The would-be assassin also had a bulletproof jacket in his car that he did not wear when he opened fire on the former president, along with several magazines for a rifle.`\
 https://nytimes.com/2024/07/18/us/politics/gunman-site-trump-rally.html
+
+**Mike Elko enjoying quiet first offseason with Texas A&M**\
+`Elko has spent this offseason prodding his Aggies team to keep its head down and move in silence.`\
+https://nytimes.com/athletic/5646566/2024/07/18/texas-am-football-mike-elko-sec/
 
 **The Smartest Way for Democrats to Choose Another Nominee**\
 `Even if it were Harris, she and the party would benefit from a little competition.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5646508/2024/07/18/kansas-city-chiefs-abner-haynes-
 **Republicans Get Pumped for Trump’s Muscular Finale**\
 `The convention culminates in an evening that seems to celebrate literal combat and general brawn.`\
 https://nytimes.com/2024/07/18/us/politics/republicans-get-pumped-for-trumps-muscular-finale.html
-
-**For One G.O.P. Leader, Trump Is the New George Washington**\
-`Mike Johnson said that like the first president, Trump escaped death through the hand of providence.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-washington-providence-johnson
-
-**What Democrats Need to Do Now**\
-`If Democrats hope to win, they have to take the MAGA worldview seriously and respectfully make the case, especially to working-class voters, for something better.`\
-https://nytimes.com/2024/07/18/opinion/maga-trump-vance-democrats.html
 
