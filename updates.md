@@ -1,3 +1,7 @@
+**‘Lady in the Lake’ Review: Not Just Another Baltimore Mystery**\
+`Natalie Portman stars in an elaborate adaptation of Laura Lippman’s novel about a pair of 1960s murders.`\
+https://nytimes.com/2024/07/19/arts/television/lady-in-the-lake-review.html
+
 **Union support for Biden may be starting to fray.**\
 `The food and commercial workers union in Washington State, with 55,000 members, called for President Biden to quit the race.`\
 https://nytimes.com/live/2024/07/19/us/biden-election-news/union-support-for-biden-may-be-starting-to-fray

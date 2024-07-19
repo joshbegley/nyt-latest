@@ -1,3 +1,7 @@
+**‘Lady in the Lake’ Review: Not Just Another Baltimore Mystery**\
+`Natalie Portman stars in an elaborate adaptation of Laura Lippman’s novel about a pair of 1960s murders.`\
+https://nytimes.com/2024/07/19/arts/television/lady-in-the-lake-review.html
+
 **Union support for Biden may be starting to fray.**\
 `The food and commercial workers union in Washington State, with 55,000 members, called for President Biden to quit the race.`\
 https://nytimes.com/live/2024/07/19/us/biden-election-news/union-support-for-biden-may-be-starting-to-fray
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/business/media/sundance-film-festival-locations.h
 **Fact-Checking the Immigration Chart That Trump Says ‘Saved My Life’**\
 `Donald J. Trump escaped an assassination attempt with only an ear wound after he turned to show a graphic, which he again highlighted at the R.N.C. But the facts on immigration are misleading.`\
 https://nytimes.com/2024/07/19/us/politics/trump-immigration-chart-fact-check.html
-
-**Lev Grossman on the Enduring Story of King Arthur**\
-`The novelist discusses his latest book, “The Bright Sword,” in which Arthur has died but Excalibur lives on with a band of misfit knights.`\
-https://nytimes.com/2024/07/19/books/review/podcast-lev-grossman-interview-bright-sword.html
 
