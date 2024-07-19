@@ -1,3 +1,19 @@
+**Union support for Biden may be starting to fray.**\
+`The food and commercial workers union in Washington State, with 55,000 members, called for President Biden to quit the race.`\
+https://nytimes.com/live/2024/07/19/us/biden-election-news/union-support-for-biden-may-be-starting-to-fray
+
+**Teamsters Leader’s Speech to Republicans Still Reverberates**\
+`Sean O’Brien delivered one of the most memorable addresses to the convention, calling out corporations and business groups as anti-worker. It’s divided union leaders.`\
+https://nytimes.com/2024/07/19/us/politics/teamsters-speech.html
+
+**The White House Has a Plan to Slash Plastic Use in the U.S.**\
+`The government said it would phase out its purchases of single-use plastics, a significant step because it is the biggest buyer of consumer goods in the world.`\
+https://nytimes.com/2024/07/19/climate/biden-administration-single-use-plastic-reduction.html
+
+**10 Outstanding Brian Eno Productions**\
+`Inspired by an ever-changing new documentary about the musician and producer, listen to songs he helped construct by David Bowie, Talking Heads, U2 and more.`\
+https://nytimes.com/2024/07/19/arts/music/amplifier-newsletter-brian-eno-productions.html
+
 **Israel’s air defenses handle rockets very well. Drones are harder, experts say.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/07/19/world/israel-gaza-war-hamas/israels-air-defenses-handle-rockets-very-well-drones-are-harder-experts-say
@@ -21,20 +37,4 @@ https://nytimes.com/2024/07/19/us/politics/trump-immigration-chart-fact-check.ht
 **Lev Grossman on the Enduring Story of King Arthur**\
 `The novelist discusses his latest book, “The Bright Sword,” in which Arthur has died but Excalibur lives on with a band of misfit knights.`\
 https://nytimes.com/2024/07/19/books/review/podcast-lev-grossman-interview-bright-sword.html
-
-**Secret Service Director Will Testify Before Congress on Monday**\
-`It will be Kimberly A. Cheatle’s first appearance before lawmakers since the assassination attempt on former President Trump’s life.`\
-https://nytimes.com/2024/07/19/us/politics/kimberly-cheatle-testify.html
-
-**Vice President Kamala Harris to Speak With Major Democratic Donors**\
-`The call comes as turmoil roils the party and its donor base.`\
-https://nytimes.com/2024/07/19/us/politics/kamala-harris-donors.html
-
-**At Least 40 Migrants Killed in Boat Fire off Haitian Coast, U.N. Says**\
-`The boat was carrying over 80 people and bound for Turks and Caicos. The disaster underscores Haiti’s gang-fueled crisis that has spurred many Haitians to leave.`\
-https://nytimes.com/2024/07/19/world/americas/boat-fire-haiti-migrants.html
-
-**Has A.I. Affected the Way You Date Online? We Want to Know.**\
-`The Times is looking for readers who are using generative A.I. services like ChatGPT to craft messages for dating — or who have been on the receiving end of such messages.`\
-https://nytimes.com/2024/07/19/style/ai-chatgpt-online-dating.html
 
