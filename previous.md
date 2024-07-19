@@ -1,3 +1,11 @@
+**“We will drill, baby, drill, and by doing that we will lead to a large-scale decline in prices.”**\
+`By Brad Plumer`\
+https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/we-will-drill-baby-drill-and-by-doing-that-we-will-lead-to-a-large-scale-decline-in-prices
+
+**“We gave you the largest tax cuts.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/we-gave-you-the-largest-tax-cuts
+
 **Frontier Airlines Briefly Grounds All Flights Amid Microsoft Outage**\
 `A problem with Microsoft’s Azure system also hit check-in and booking systems at Allegiant and Sun Country Airlines.`\
 https://nytimes.com/2024/07/18/us/frontier-flights-grounded-microsoft.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/tucker-carlson-republican-c
 **“He decided to leave behind the comforts of an unbelievable business empire. To leave behind everything he had ever built. To answer the call to serve our nation. Unlike his predecessor, it was not a decision born out of necessity. Unlike the current president, it was not a decision that would enrich his family.”**\
 `By Angelo Fichera`\
 https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/he-decided-to-leave-behind-the-comforts-of-an-unbelievable-business-empire-to-leave-behind-everything-he-had-ever-built-to-answe
-
-**Maps: 7.4-Magnitude Earthquake Strikes Chile**\
-`View the location of the quake’s shake area and aftershocks.`\
-https://nytimes.com/interactive/2024/07/18/world/americas/earthquake-tracker-chile.html
-
-**“The U.S. dollar has been diminished.”**\
-`By Alan Rappeport`\
-https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/the-us-dollar-has-been-diminished
 

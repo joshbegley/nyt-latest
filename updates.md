@@ -1,3 +1,11 @@
+**“We will drill, baby, drill, and by doing that we will lead to a large-scale decline in prices.”**\
+`By Brad Plumer`\
+https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/we-will-drill-baby-drill-and-by-doing-that-we-will-lead-to-a-large-scale-decline-in-prices
+
+**“We gave you the largest tax cuts.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/we-gave-you-the-largest-tax-cuts
+
 **Frontier Airlines Briefly Grounds All Flights Amid Microsoft Outage**\
 `A problem with Microsoft’s Azure system also hit check-in and booking systems at Allegiant and Sun Country Airlines.`\
 https://nytimes.com/2024/07/18/us/frontier-flights-grounded-microsoft.html
