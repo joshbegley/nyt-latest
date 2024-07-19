@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5646694/2024/07/19/mlb-trade-deadline-front-offices
 `Eva Hesse’s latex and fiberglass pieces from the late 1960s have been reunited from five institutions. Their rapid deterioration makes their future uncertain — which may be their best quality.`\
 https://nytimes.com/2024/07/19/arts/design/eva-hesse-sculptures-hauser-wirth.html
 
-**Blum: Angels must be aggressive sellers if they want 'growth' narrative to become reality**\
+**Angels must be aggressive sellers if they want 'growth' narrative to become reality**\
 `The Angels face a crucial moment, and they can't take the half-in, half-out approach that has failed them so many times before. `\
 https://nytimes.com/athletic/5641680/2024/07/19/angels-sell-trade-deadline/
 
