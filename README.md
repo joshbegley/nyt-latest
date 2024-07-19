@@ -1,3 +1,7 @@
+**Young Republicans on Why Their Party Isn’t Reaching Gen Z (And What They Can Do About It)**\
+`Polls show that two-thirds of voters aged 18-24 say they don’t identify with the G.O.P. We asked young Republicans why.`\
+https://nytimes.com/video/us/elections/100000009580080/young-republicans-rnc.html
+
 **Melania and Ivanka Trump Fill Out the Family Portrait**\
 `The former president’s wife and his eldest daughter — absent from the campaign — joined him on Thursday for his acceptance of the nomination, at a convention where other close family members have been visible all week.`\
 https://nytimes.com/2024/07/18/us/politics/melania-ivanka-barron-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/the-us-do
 **Edgy and Unscripted, Tucker Carlson Fires Up the Convention Crowd**\
 `The former Fox News host, who is now firmly a part of Donald Trump’s inner circle, appeared to relish his return to the limelight.`\
 https://nytimes.com/2024/07/18/us/politics/tucker-carlson-convention-speech.html
-
-**“He slashed regulations.”**\
-`By Lisa Friedman`\
-https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/he-slashed-regulations
 
