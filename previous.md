@@ -1,3 +1,7 @@
+**White House Pushes Rent Cap, Reigniting Debate on Housing Policy**\
+`A proposal to make landlords’ tax breaks contingent on rent limits has drawn industry pushback, progressive applause and some alternative approaches.`\
+https://nytimes.com/2024/07/19/business/economy/biden-rent-cap-proposal.html
+
 **The Best of Late Night This Week**\
 `Late night was subdued on Monday, after a gunman tried to kill former President Trump. Later in the week, the hosts discussed the R.N.C., J.D. Vance and Matt Gaetz.`\
 https://nytimes.com/interactive/2024/07/19/arts/television/best-of-late-night-jd-vance.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5647258/2024/07/19/mlb-preview-trade-deadline-the-w
 **11 Days in July: Inside the All-Out Push to Save the Biden Campaign**\
 `President Biden has repeatedly tried to erase the concerns over his age and mental acuity. But nothing has changed the narrative.`\
 https://nytimes.com/2024/07/19/us/politics/biden-democrats-campaign.html
-
-**Donald Trump Promised a Softer Image. He Delivered Hulkamania.**\
-`The last night of the Republican National Convention featured glimpses of a more sober tone — and a whole lot of testosterone.`\
-https://nytimes.com/2024/07/19/arts/television/donald-trump-rnc.html
 

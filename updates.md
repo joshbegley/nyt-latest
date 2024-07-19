@@ -1,3 +1,7 @@
+**White House Pushes Rent Cap, Reigniting Debate on Housing Policy**\
+`A proposal to make landlords’ tax breaks contingent on rent limits has drawn industry pushback, progressive applause and some alternative approaches.`\
+https://nytimes.com/2024/07/19/business/economy/biden-rent-cap-proposal.html
+
 **The Best of Late Night This Week**\
 `Late night was subdued on Monday, after a gunman tried to kill former President Trump. Later in the week, the hosts discussed the R.N.C., J.D. Vance and Matt Gaetz.`\
 https://nytimes.com/interactive/2024/07/19/arts/television/best-of-late-night-jd-vance.html
