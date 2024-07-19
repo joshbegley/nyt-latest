@@ -1,3 +1,7 @@
+**Why Hulk Hogan Is Speaking at the Republican National Convention**\
+`Call it Wrestlemania night in Milwaukee.`\
+https://nytimes.com/2024/07/18/us/politics/hulk-hogan-rnc-speech-trump.html
+
 **“We’ve lost more Americans from drugs in the past four years than we lost in World War II. Yeah. Our bloodiest war. More than we lost in World War II. Does anybody care? It is pathetic. It is pathetic. And do you hear a single word from Washington about doing anything about it?”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/weve-lost-more-americans-from-drugs-in-the-past-four-years-than-we-lost-in-world-war-ii-yeah-our-bloodiest-war-more-than-we-lost
