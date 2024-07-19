@@ -1,3 +1,7 @@
+**Alabama to name football field after Nick Saban**\
+`Saban won six national championships in 17 seasons at Alabama and had a 108-9 record at home during his career.`\
+https://nytimes.com/athletic/5647031/2024/07/19/alabama-football-nick-saban-bryant-denny-stadium/
+
 **The Carnage in Donald Trump’s Mind**\
 `Ignoring the facts, he wants to believe crime is rampant.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/krugman-trump-crime
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/19/us/biden-election-news/heres-the-latest-on-t
 **Live Updates: Pressure Grows on Biden as He Isolates With Covid**\
 `The president’s resolve to continue his re-election bid has been shaken by Nancy Pelosi’s comments, worsening state polls and a spending boycott by key donors, some in his camp said.`\
 https://nytimes.com/live/2024/07/19/us/biden-election-news
-
-**Congo’s ‘Other’ Conflict Kills Thousands in West Near the Capital**\
-`Overshadowed by fighting in the east of the Democratic Republic of Congo, a dispute in the west between two ethnic groups has resulted in thousands of civilians killed and more than 550,000 displaced near the capital, Kinshasa.`\
-https://nytimes.com/2024/07/19/world/africa/crisis-western-congo.html
 
