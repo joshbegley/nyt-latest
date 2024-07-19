@@ -1,3 +1,15 @@
+**Summer Reading Contest, Week 7: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by July 26 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 7.`\
+https://nytimes.com/2024/07/19/learning/summer-reading-contest-week-7-what-got-your-attention-in-the-times-this-week.html
+
+**How to Rein In Rising Auto Insurance Rates**\
+`Taking a safe driver course can save you 10 percent on the premium, one expert said. Improving your credit score can also help as can getting married.`\
+https://nytimes.com/2024/07/19/your-money/car-insurance-rates-inflation.html
+
+**Banks Hit With Service Glitches**\
+`Trading and some financial transactions were delayed around the world.`\
+https://nytimes.com/2024/07/19/business/global-it-outage-banks-trading-stocks.html
+
 **La Feria, Flamenco & Sherry**\
 `A once-in-a-lifetime trip dreamed up by Capital One and PRIOR`\
 https://nytimes.com/paidpost/capital-one-venture-x/la-feria-flamenco-and-sherry.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/19/world/middleeast/uk-unrwa-funding-palestinians-ga
 **Residents in the drone strike area describe ‘a crazy reality.’**\
 `By Adam Sella`\
 https://nytimes.com/live/2024/07/19/world/israel-gaza-war-hamas/residents-in-the-drone-strike-area-describe-a-crazy-reality
-
-**Rick Barry ran onto the field to meet Willie Mays. A friendship was born**\
-`Barry wore No 24 in honor of Mays' uniform number, and their unlikely first meeting created a lasting bond. `\
-https://nytimes.com/athletic/5646426/2024/07/19/willie-mays-giants-rick-barry-warriors/
-
-**The global outage has led to long lines and delays at airports around the world.**\
-`Passengers complained as the outage took down airport services and caused delays. Some airports issued handwritten boarding passes.`\
-https://nytimes.com/live/2024/07/19/business/global-tech-outage/airport-delays
-
-**Nguyen Phu Trong, Powerful Vietnamese Leader, Is Dead at 80**\
-`Known for his “blazing furnace” anticorruption campaign, Mr. Trong consolidated power in one of the world’s few remaining Communist dictatorships.`\
-https://nytimes.com/2024/07/19/world/asia/nguyen-phu-trong-dead.html
 
