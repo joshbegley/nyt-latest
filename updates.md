@@ -1,3 +1,11 @@
+**Greenwood 'focusing on club football' after Marseille move from Man Utd**\
+`Mason Greenwood said he is “focusing on club football this season” having signed for Marseille — as the club’s president claimed he understood the complexity around his transfer from Manchester United.`\
+https://nytimes.com/athletic/5647409/2024/07/19/mason-greenwood-marseille-manchester-united-move/
+
+**La Familia team returns to Kentucky to face some unfinished business**\
+`La Familia's roster is loaded and focused on winning a title in The Basketball Tournament.`\
+https://nytimes.com/athletic/5647219/2024/07/19/kentucky-basketball-la-familia-the-basketball-tournament/
+
 **Canada Pledges to Meet NATO Spending Goal. It Won’t Be Easy.**\
 `The country’s struggle to reach an informal military spending target highlights how difficult it is for the alliance to quickly bolster its abilities.`\
 https://nytimes.com/2024/07/19/world/canada/canada-nato-spending.html
