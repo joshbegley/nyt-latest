@@ -1,3 +1,11 @@
+**CBS Sports to continue as Serie A's U.S. English-language broadcaster**\
+`The fee is believed to be significantly less than the previous deal signed in 2021, which was around $60-70 million annually.`\
+https://nytimes.com/athletic/5647206/2024/07/19/serie-a-tv-rights-cbs/
+
+**The Windup: Second-half notes for every MLB team**\
+`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
+https://nytimes.com/athletic/5647258/2024/07/19/mlb-preview-trade-deadline-the-windup/
+
 **11 Days in July: Inside the All-Out Push to Save the Biden Campaign**\
 `President Biden has repeatedly tried to erase the concerns over his age and mental acuity. But nothing has changed the narrative.`\
 https://nytimes.com/2024/07/19/us/politics/biden-democrats-campaign.html
