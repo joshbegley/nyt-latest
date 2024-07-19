@@ -28,7 +28,7 @@ https://nytimes.com/2024/07/19/world/asia/bangladesh-protests-photos.html
 
 **Worldwide Tech Outage Hits Businesses and Grounds Flights**\
 `Airlines, banks and broadcasters reported disruptions, citing technical issues.`\
-https://nytimes.com/2024/07/19/us/crowdstrike-outage-flights-banks.html
+https://nytimes.com/live/2024/07/19/us/global-tech-outage/crowdstrike-outage-flights-banks
 
 **Trump the Lion, or Trump the Lyin’?**\
 `After years on a self-mythologizing hero’s journey, the former president finally has a true story to tell.`\
