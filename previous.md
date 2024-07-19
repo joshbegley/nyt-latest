@@ -1,5 +1,9 @@
+**“The U.S. dollar has been diminished.”**\
+`By Alan Rappeport`\
+https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/the-us-dollar-has-been-diminished
+
 **Edgy and Unscripted, Tucker Carlson Fires Up the Convention Crowd**\
-`The former Fox News host, who is now firmly a part of Donald Trump’s inner circle, gave the crowd what it wanted, and was rewarded.`\
+`The former Fox News host, who is now firmly a part of Donald Trump’s inner circle, appeared to relish his return to the limelight.`\
 https://nytimes.com/2024/07/18/us/politics/tucker-carlson-convention-speech.html
 
 **“He slashed regulations.”**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/us/politics/hulk-hogan-rnc-speech-trump.html
 **“We’ve lost more Americans from drugs in the past four years than we lost in World War II. Yeah. Our bloodiest war. More than we lost in World War II. Does anybody care? It is pathetic. It is pathetic. And do you hear a single word from Washington about doing anything about it?”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/weve-lost-more-americans-from-drugs-in-the-past-four-years-than-we-lost-in-world-war-ii-yeah-our-bloodiest-war-more-than-we-lost
-
-**‘Find Me Falling’ Review: A Romance With an Edge**\
-`Harry Connick Jr. stars as a cranky rocker who returns to Cyprus, the home of the love who inspired a signature hit.`\
-https://nytimes.com/2024/07/18/movies/find-me-falling-review.html
 

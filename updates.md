@@ -1,3 +1,11 @@
+**“The U.S. dollar has been diminished.”**\
+`By Alan Rappeport`\
+https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/the-us-dollar-has-been-diminished
+
+**Edgy and Unscripted, Tucker Carlson Fires Up the Convention Crowd**\
+`The former Fox News host, who is now firmly a part of Donald Trump’s inner circle, appeared to relish his return to the limelight.`\
+https://nytimes.com/2024/07/18/us/politics/tucker-carlson-convention-speech.html
+
 **Edgy and Unscripted, Tucker Carlson Fires Up the Convention Crowd**\
 `The former Fox News host, who is now firmly a part of Donald Trump’s inner circle, gave the crowd what it wanted, and was rewarded.`\
 https://nytimes.com/2024/07/18/us/politics/tucker-carlson-convention-speech.html
