@@ -1,3 +1,19 @@
+**Milan complete Morata deal**\
+`AC Milan have completed the signing of striker Alvaro Morata from Atletico Madrid.`\
+https://nytimes.com/athletic/5640966/2024/07/19/alvaro-morata-milan-transfer-atletico/
+
+**Villa Park becomes main home ground for Aston Villa Women**\
+`Villa Park will become the main home ground for Aston Villa Women, with the club announcing that all 11 Women&#8217;s Super League (WSL) fixtures for the upcoming season will be played at the stadium.`\
+https://nytimes.com/athletic/5646907/2024/07/19/villa-park-aston-villa-women/
+
+**MLB front offices under the most pressure — and the least — this trade deadline**\
+`Major-league front offices have completed the amateur draft and All-Star week and now can turn their full attention to the July 30 trade deadline.`\
+https://nytimes.com/athletic/5646694/2024/07/19/mlb-trade-deadline-front-offices-under-pressure/
+
+**Angels must be aggressive sellers if they want 'growth' narrative to become reality**\
+`The Angels face a crucial moment, and they can't take the half-in, half-out approach that has failed them so many times before. `\
+https://nytimes.com/athletic/5641680/2024/07/19/angels-sell-trade-deadline/
+
 **These Sculptures Changed What Art Could Be, Then Changed Themselves**\
 `Eva Hesse’s latex and fiberglass pieces from the late 1960s have been reunited from five institutions. Their rapid deterioration makes their future uncertain — which may be their best quality.`\
 https://nytimes.com/2024/07/19/arts/design/eva-hesse-sculptures-hauser-wirth.html
