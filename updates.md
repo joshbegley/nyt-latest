@@ -1,3 +1,7 @@
+**Cheng Pei Pei, ‘Crouching Tiger, Hidden Dragon’ Star, Dies at 78**\
+`A trailblazer for women in Asian martial arts cinema, Ms. Cheng rose to fame in the 1960s in Hong Kong.`\
+https://nytimes.com/2024/07/19/movies/cheng-pei-pei-dead.html
+
 **Trump Accepts the Republican Nomination**\
 `Former President Donald J. Trump concluded the Republican National Convention on Thursday with a speech that ran for more than an hour and a half.`\
 https://nytimes.com/video/us/elections/100000009581269/trump-accepts-the-republican-nomination.html

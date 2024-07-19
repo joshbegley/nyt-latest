@@ -1,3 +1,7 @@
+**Cheng Pei Pei, ‘Crouching Tiger, Hidden Dragon’ Star, Dies at 78**\
+`A trailblazer for women in Asian martial arts cinema, Ms. Cheng rose to fame in the 1960s in Hong Kong.`\
+https://nytimes.com/2024/07/19/movies/cheng-pei-pei-dead.html
+
 **Trump Accepts the Republican Nomination**\
 `Former President Donald J. Trump concluded the Republican National Convention on Thursday with a speech that ran for more than an hour and a half.`\
 https://nytimes.com/video/us/elections/100000009581269/trump-accepts-the-republican-nomination.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/us/politics/rnc-trump-takeaways.html
 **Accepting the Republican Nomination, Trump Preaches Unity, Then Reverts to Attacks**\
 `Donald J. Trump, closing a convention that had sought to soften his image and portray him as the leader of an inclusive movement, began with a sober retelling of an assassination attempt but pivoted to grudges and vilifying Democrats.`\
 https://nytimes.com/2024/07/19/us/politics/trump-nomination-speech.html
-
-**Trump Struggles to Turn the Page on ‘American Carnage’**\
-`On the last night of the G.O.P. convention on Thursday, Donald J. Trump promised to bridge political divides, and then returned to delighting in deepening them.`\
-https://nytimes.com/2024/07/19/us/politics/trump-rnc-speech-analysis.html
 
