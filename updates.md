@@ -1,3 +1,11 @@
+**Jimmy Fallon Finds Bright Side of Biden Testing Positive for Covid**\
+`“It’s the first positive news he’s had in months,” Fallon said on Thursday.`\
+https://nytimes.com/2024/07/19/arts/television/late-night-biden-covid-positive.html
+
+**Worldwide Tech Outage Hits Businesses and Grounds Flights**\
+`Airlines, banks and broadcasters reported disruptions, citing technical issues.`\
+https://nytimes.com/live/2024/07/19/us/global-tech-outage/crowdstrike-outage-flights-banks
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/07/19/crosswords/spelling-bee-forum.html
