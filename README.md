@@ -1,3 +1,7 @@
+**This Is Venezuela’s Moment. It Needs the World’s Help.**\
+`The United States can support Venezuelan democracy by creating an off-ramp for President Nicolás Maduro.`\
+https://nytimes.com/2024/07/19/opinion/venezuela-elections-maduro.html
+
 **Newcastle have five goalkeepers - and could sign another in this transfer window**\
 `Newcastle have signed Vlachodimos and Ruddy to bolster their goalkeeping ranks - and another could follow. Why?`\
 https://nytimes.com/athletic/5628391/2024/07/19/newcastle-have-five-goalkeepers-and-could-sign-another-in-this-transfer-window/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5643329/2024/07/19/jake-wightman-interview-olympics
 **Ilia Gruev interview: 'Losing at Wembley was devastating, but I will achieve something at Leeds'**\
 `The Bulgarian midfielder was one of the stars of Daniel Farke's side in 2023-24 and he is determined to come back stronger in this campaign `\
 https://nytimes.com/athletic/5643597/2024/07/19/ilia-gruev-leeds-interview/
-
-**“Probably the best trade deal was the deal I made with China, where they buy $50 billion worth of our product.”**\
-`By Alan Rappeport`\
-https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/probably-the-best-trade-deal-was-the-deal-i-made-with-china-where-they-buy-50-billion-worth-of-our-product
 
