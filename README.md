@@ -1,3 +1,11 @@
+**What We Know About the Global Outage**\
+`Everything from airlines to banks to retailers were impacted in many countries.`\
+https://nytimes.com/2024/07/19/technology/microsoft-crowdstrike-outage-what-happened.html
+
+**At the Republican Convention, Trump Achieves Mythical Status**\
+`While the Republican Party united under former President Donald J. Trump, the Democratic Party has been scrambling.`\
+https://nytimes.com/2024/07/19/podcasts/the-daily/rnc-trump-biden.html
+
 **What Caused Such a Widespread Tech Meltdown?**\
 `There have been two issues affecting Microsoft systems in quick succession, adding to the confusion over a global outage.`\
 https://nytimes.com/2024/07/19/business/microsoft-outage-cause-azure-crowdstrike.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/19/business/global-tech-outage/health-services-
 **Friedkin Group's proposed Everton takeover off**\
 `The Friedkin Group’s proposed takeover of Everton is off, plunging the Premier League club back into crisis.`\
 https://nytimes.com/athletic/5646876/2024/07/19/everton-takeover-friedkin-group-latest/
-
-**George Pickens, now Steelers' unquestioned No. 1 WR, should see his fantasy value rise**\
-`Pickens’ numbers could be much better this season with Russell Wilson at quarterback and Arthur Smith at offensive coordinator. `\
-https://nytimes.com/athletic/5644477/2024/07/19/steelers-george-pickens-fantasy-football/
-
-**Salvador Perez was willing to go to the Rangers at last year's deadline. He and the Royals are glad it didn't happen**\
-`The episode serves as a reminder of how sometimes the best moves are the ones a team doesn’t make.`\
-https://nytimes.com/athletic/5646608/2024/07/19/salvador-perez-royals-rangers-trade-deadline/
 
