@@ -1,3 +1,7 @@
+**Submit your Yankees trade proposals for Jim Bowden's next mailbag**\
+`With the trade deadline fast-approaching, we want to hear your trade proposals that will help the Yankees address their needs.`\
+https://nytimes.com/athletic/5647839/2024/07/19/yankees-trade-questions/
+
 **Chiefs set 6-month deadline to determine where to play after Arrowhead lease ends**\
 `ST.`\
 https://nytimes.com/athletic/5647784/2024/07/19/chiefs-set-6-month-deadline-to-determine-where-to-play-after-arrowhead-lease-ends-in-2030/

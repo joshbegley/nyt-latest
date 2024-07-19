@@ -1,3 +1,7 @@
+**Submit your Yankees trade proposals for Jim Bowden's next mailbag**\
+`With the trade deadline fast-approaching, we want to hear your trade proposals that will help the Yankees address their needs.`\
+https://nytimes.com/athletic/5647839/2024/07/19/yankees-trade-questions/
+
 **Chiefs set 6-month deadline to determine where to play after Arrowhead lease ends**\
 `ST.`\
 https://nytimes.com/athletic/5647784/2024/07/19/chiefs-set-6-month-deadline-to-determine-where-to-play-after-arrowhead-lease-ends-in-2030/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/milwaukee-sign-biden-infras
 **The Best Lip Balms**\
 `We tried more than 80 to find the six best.`\
 https://nytimes.com/interactive/2024/07/19/smarter-living/wirecutter/best-lip-balms.html
-
-**Check, Please: The Pete Wells Exit Interview**\
-`Why our food critic tossed the fake glasses and quit his dream job.`\
-https://nytimes.com/2024/07/19/podcasts/pete-wells-check-please.html
 
