@@ -1,3 +1,11 @@
+**'See Her, Be Her': New documentary aims to create more chances for women in baseball**\
+`Cal Ripken Jr., Ichiro Suzuki and Ken Griffey Jr., among other MLB stars, lent their support to the project. `\
+https://nytimes.com/athletic/5645425/2024/07/19/documentary-women-baseball-see-her-be-her/
+
+**A Post-Euros, Post-Copa Mailbag**\
+`Euro 2024 memories, Copa América issues and the enduring allure of a winning goal.`\
+https://nytimes.com/2024/07/19/world/europe/euro-2024-copa-america.html
+
 **What I'm hearing on the Eagles: Nick Sirianni's job security, relationship with Hurts and more**\
 `Why last year's offensive coordinator is out, who made the call on the new coordinator hires, and just how long is Sirianni’s leash?`\
 https://nytimes.com/athletic/5647091/2024/07/19/eagles-nick-sirianni-job-security-jalen-hurts-howie-roseman-dynamic/
