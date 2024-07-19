@@ -22,8 +22,8 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/tucker-carlson-republican-c
 `By Angelo Fichera`\
 https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/he-decided-to-leave-behind-the-comforts-of-an-unbelievable-business-empire-to-leave-behind-everything-he-had-ever-built-to-answe
 
-**Map: 7.4-Magnitude Earthquake Strikes Chile**\
-`View the location of the quake’s epicenter and shake area.`\
+**Maps: 7.4-Magnitude Earthquake Strikes Chile**\
+`View the location of the quake’s shake area and aftershocks.`\
 https://nytimes.com/interactive/2024/07/18/world/americas/earthquake-tracker-chile.html
 
 **“The U.S. dollar has been diminished.”**\

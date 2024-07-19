@@ -1,3 +1,7 @@
+**Maps: 7.4-Magnitude Earthquake Strikes Chile**\
+`View the location of the quake’s shake area and aftershocks.`\
+https://nytimes.com/interactive/2024/07/18/world/americas/earthquake-tracker-chile.html
+
 **Melania and Ivanka Trump Fill Out the Family Portrait**\
 `The former president’s wife and his eldest daughter — absent from the campaign — joined him on Thursday for his acceptance of the nomination, at a convention where other close family members have been visible all week.`\
 https://nytimes.com/2024/07/18/us/politics/melania-ivanka-barron-trump.html
