@@ -1,3 +1,7 @@
+**Sundance Announces Six Finalists for Its New Home**\
+`The organization, and its influential film festival, may stay in Park City, Utah, or move to another location like Atlanta or Cincinnati.`\
+https://nytimes.com/2024/07/19/business/media/sundance-film-festival-locations.html
+
 **Fact-Checking the Immigration Chart That Trump Says ‘Saved My Life’**\
 `Donald J. Trump escaped an assassination attempt with only an ear wound after he turned to show a graphic, which he again highlighted at the R.N.C. But the facts on immigration are misleading.`\
 https://nytimes.com/2024/07/19/us/politics/trump-immigration-chart-fact-check.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/arts/music/playlist-kim-deal-childish-gambino.htm
 **Kristensen joins Eintracht Frankfurt from Leeds on loan**\
 `Eintracht Frankfurt have completed the loan signing of defender Rasmus Kristensen from Leeds United for the 2024-25 season.`\
 https://nytimes.com/athletic/5646857/2024/07/19/rasmus-kristensen-frankfurt-leeds-transfer/
-
-**Why a security update to Microsoft devices disrupted the economy.**\
-`By Cecilia Kang`\
-https://nytimes.com/live/2024/07/19/business/global-tech-outage/why-microsoft-matters
 
