@@ -1,3 +1,7 @@
+**As Interest in Raw Milk Surges, New Data Sheds Light on a Major Salmonella Outbreak**\
+`At least 171 people were sickened in an outbreak linked to Raw Farm milk. Experts say the number could be far higher.`\
+https://nytimes.com/2024/07/19/well/raw-milk-health-salmonella.html
+
 **6 New Paperbacks to Read This Week**\
 `This week's selection includes titles by Jess Row, Dasha Kiper, Rachel Louise Martin and more. `\
 https://nytimes.com/interactive/2024/07/19/books/review/newpaperbacks-row.html

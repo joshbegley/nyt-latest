@@ -1,3 +1,7 @@
+**As Interest in Raw Milk Surges, New Data Sheds Light on a Major Salmonella Outbreak**\
+`At least 171 people were sickened in an outbreak linked to Raw Farm milk. Experts say the number could be far higher.`\
+https://nytimes.com/2024/07/19/well/raw-milk-health-salmonella.html
+
 **6 New Paperbacks to Read This Week**\
 `This week's selection includes titles by Jess Row, Dasha Kiper, Rachel Louise Martin and more. `\
 https://nytimes.com/interactive/2024/07/19/books/review/newpaperbacks-row.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5647300/2024/07/19/spain-gibraltar-euro-2024-chant/
 **Flying Today? What You Need to Know About the Global Tech Outage.**\
 `While service is slowly recovering, flights have been delayed and canceled worldwide. Here’s information on the most affected airlines and airports, passengers’ rights and how to reach airline customer service.`\
 https://nytimes.com/2024/07/19/travel/crowdstrike-outage-flight-delays-airports.html
-
-**Four more House Democrats call on Biden to quit the campaign.**\
-`By Reid J. Epstein`\
-https://nytimes.com/live/2024/07/19/us/biden-election-news/four-more-house-democrats-call-on-biden-to-quit-the-campaign
 
