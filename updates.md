@@ -1,3 +1,19 @@
+**Fact-Checking the Immigration Chart That Trump Says ‘Saved My Life’**\
+`Donald J. Trump escaped an assassination attempt with only an ear wound after he turned to show a graphic, which he again highlighted at the R.N.C. But the facts on immigration are misleading.`\
+https://nytimes.com/2024/07/19/us/politics/trump-immigration-chart-fact-check.html
+
+**Lev Grossman on the Enduring Story of King Arthur**\
+`The novelist discusses his latest book, “The Bright Sword,” in which Arthur has died but Excalibur lives on with a band of misfit knights.`\
+https://nytimes.com/2024/07/19/books/review/podcast-lev-grossman-interview-bright-sword.html
+
+**Secret Service Director Will Testify Before Congress on Monday**\
+`It will be Kimberly A. Cheatle’s first appearance before lawmakers since the assassination attempt on former President Trump’s life.`\
+https://nytimes.com/2024/07/19/us/politics/kimberly-cheatle-testify.html
+
+**What’s Left for France’s Left?**\
+`Two weeks ago a coalition of left-wing parties came first in the legislative elections. Now some wonder whether it will have any power at all.`\
+https://nytimes.com/2024/07/19/world/europe/france-left-wing-party.html
+
 **Vice President Kamala Harris to Speak With Major Democratic Donors**\
 `The call comes as turmoil roils the party and its donor base.`\
 https://nytimes.com/2024/07/19/us/politics/kamala-harris-donors.html
