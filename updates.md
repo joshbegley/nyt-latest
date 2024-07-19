@@ -1,3 +1,7 @@
+**La Feria, Flamenco & Sherry**\
+`A once-in-a-lifetime trip dreamed up by Capital One and PRIOR`\
+https://nytimes.com/paidpost/capital-one-venture-x/la-feria-flamenco-and-sherry.html
+
 **Counting the Costs of a Global IT Outage**\
 `A “historic” tech failure alarmed investors, after a security update caused problems for Microsoft devices and services, and took down businesses worldwide.`\
 https://nytimes.com/2024/07/19/business/dealbook/tech-outage-crowdstrike-microsoft.html

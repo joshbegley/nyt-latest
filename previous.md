@@ -1,3 +1,7 @@
+**La Feria, Flamenco & Sherry**\
+`A once-in-a-lifetime trip dreamed up by Capital One and PRIOR`\
+https://nytimes.com/paidpost/capital-one-venture-x/la-feria-flamenco-and-sherry.html
+
 **Counting the Costs of a Global IT Outage**\
 `A “historic” tech failure alarmed investors, after a security update caused problems for Microsoft devices and services, and took down businesses worldwide.`\
 https://nytimes.com/2024/07/19/business/dealbook/tech-outage-crowdstrike-microsoft.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/19/business/global-tech-outage/airport-delays
 **Nguyen Phu Trong, Powerful Vietnamese Leader, Is Dead at 80**\
 `Known for his “blazing furnace” anticorruption campaign, Mr. Trong consolidated power in one of the world’s few remaining Communist dictatorships.`\
 https://nytimes.com/2024/07/19/world/asia/nguyen-phu-trong-dead.html
-
-**Zelensky Becomes First Foreign Leader to Visit U.K. Cabinet Since Clinton**\
-`President Volodymyr Zelensky briefed Keir Starmer’s top team in an appearance designed to showcase Britain’s steadfast support for Ukraine in its war against Russia.`\
-https://nytimes.com/2024/07/19/world/europe/zelensky-uk-cabinet-ukraine.html
 
