@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5640966/2024/07/19/alvaro-morata-milan-transfer-atl
 https://nytimes.com/athletic/5646907/2024/07/19/villa-park-aston-villa-women/
 
 **MLB front offices under the most pressure — and the least — this trade deadline**\
-`Major-league front offices have completed the amateur draft and All-Star week and now can turn their full attention to the July 30 trade deadline.`\
+`At this time of year, every front office decision is scrutinized. But these teams and execs are under the most pressure to make major moves.`\
 https://nytimes.com/athletic/5646694/2024/07/19/mlb-trade-deadline-front-offices-under-pressure/
 
 **These Sculptures Changed What Art Could Be, Then Changed Themselves**\
