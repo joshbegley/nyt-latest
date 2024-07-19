@@ -1,3 +1,7 @@
+**What Caused Such a Widespread Tech Meltdown?**\
+`There have been two issues affecting Microsoft systems in quick succession, adding to the confusion over a global outage.`\
+https://nytimes.com/2024/07/19/business/microsoft-outage-cause-azure-crowdstrike.html
+
 **Global IT Outage Wreaks Havoc, and Trump Makes Divisive Speech**\
 `Plus, comedy legend Bob Newhart dies.`\
 https://nytimes.com/2024/07/19/podcasts/it-outage-trump-speech.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5644477/2024/07/19/steelers-george-pickens-fantasy-
 **Salvador Perez was willing to go to the Rangers at last year's deadline. He and the Royals are glad it didn't happen**\
 `The episode serves as a reminder of how sometimes the best moves are the ones a team doesn’t make.`\
 https://nytimes.com/athletic/5646608/2024/07/19/salvador-perez-royals-rangers-trade-deadline/
-
-**Packers mailbag: What impact can rookies MarShawn Lloyd, Edgerrin Cooper have?**\
-`Before training camp kicks off Monday, dive into the latest Packers mailbag with plenty of your questions answered.`\
-https://nytimes.com/athletic/5633085/2024/07/19/green-bay-packers-training-camp-preview/
 
