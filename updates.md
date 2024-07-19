@@ -1,3 +1,7 @@
+**Saudi Arabia investigates worker mistreatment allegations after The Athletic report on Newcastle sponsor Noon**\
+`The government of Saudi Arabia is investigating allegations of serious worker mistreatment in the supply chain of Noon, a Newcastle sponsor`\
+https://nytimes.com/athletic/5646814/2024/07/19/noon-saudi-arabia-newcastle-workers-rights/
+
 **Forest targeting move for Riquelme Fillipi**\
 `Nottingham Forest are willing to spend around £5million ($6.`\
 https://nytimes.com/athletic/5646806/2024/07/19/riquelme-fillipi-nottingham-forest/
