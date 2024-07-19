@@ -1,3 +1,15 @@
+**Israel’s air defenses handle rockets very well. Drones are harder, experts say.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/07/19/world/israel-gaza-war-hamas/israels-air-defenses-handle-rockets-very-well-drones-are-harder-experts-say
+
+**The Convention Outside the Convention**\
+`Americans of all kinds mingled in protest and celebration.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/the-convention-outside-the-convention
+
+**Harvey Weinstein’s Latest Sexual Assault Trial Set to Start in November**\
+`Manhattan prosecutors are proceeding with new charges against the disgraced movie mogul after his previous conviction was overturned.`\
+https://nytimes.com/2024/07/19/nyregion/harvey-weinstein-sexual-assault-trial-date.html
+
 **Sundance Announces Six Finalists for Its New Home**\
 `The organization, and its influential film festival, may stay in Park City, Utah, or move to another location like Atlanta or Cincinnati.`\
 https://nytimes.com/2024/07/19/business/media/sundance-film-festival-locations.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/19/world/americas/boat-fire-haiti-migrants.html
 **Has A.I. Affected the Way You Date Online? We Want to Know.**\
 `The Times is looking for readers who are using generative A.I. services like ChatGPT to craft messages for dating — or who have been on the receiving end of such messages.`\
 https://nytimes.com/2024/07/19/style/ai-chatgpt-online-dating.html
-
-**What’s Left for France’s Left?**\
-`Two weeks ago a coalition of left-wing parties came first in the legislative elections. Now some wonder whether it will have any power at all.`\
-https://nytimes.com/2024/07/19/world/europe/france-left-wing-party.html
-
-**Kim Deal Goes Solo, and 7 More New Songs**\
-`Hear tracks by Alan Sparhawk, Joy Oladokun, Ivan Cornejo and others.`\
-https://nytimes.com/2024/07/19/arts/music/playlist-kim-deal-childish-gambino.html
-
-**Kristensen joins Eintracht Frankfurt from Leeds on loan**\
-`Eintracht Frankfurt have completed the loan signing of defender Rasmus Kristensen from Leeds United for the 2024-25 season.`\
-https://nytimes.com/athletic/5646857/2024/07/19/rasmus-kristensen-frankfurt-leeds-transfer/
 
