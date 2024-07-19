@@ -1,3 +1,7 @@
+**The Carnage in Donald Trump’s Mind**\
+`Ignoring the facts, he wants to believe crime is rampant.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/krugman-trump-crime
+
 **Why We Came to California, and Why We Stay**\
 `The best of our readers’ love letters to California.`\
 https://nytimes.com/2024/07/19/us/california-love-letters.html
