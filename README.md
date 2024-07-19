@@ -1,3 +1,7 @@
+**FIFA delays decision on Israel's suspension until after Paris Olympics**\
+`FIFA has postponed its decision on whether to suspend Israel from international soccer, extending the deadline until after the Paris Olympics.`\
+https://nytimes.com/athletic/5646818/2024/07/19/israel-fifa-paris-olympics/
+
 **Global Court Set to Weigh In on Israel’s Occupation of Palestinian Territories**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/2024/07/19/world/middleeast/global-court-set-to-weigh-in-on-israels-occupation-of-palestinian-territories.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/crosswords/spelling-bee-forum.html
 **Can New York City Ever Win Its War Against Rats?**\
 `Checking in with New York’s rat czar and the progress she has made in reducing the city’s rodent population.`\
 https://nytimes.com/2024/07/19/nyregion/can-new-york-city-ever-win-its-war-against-rats.html
-
-**She Danced Naked at Woodstock. She Dated Serpico. At 93, She’s Not Done.**\
-`Betty Gordon came to New York to become an actress (and have a good time). But her greatest talent may have been helping others.`\
-https://nytimes.com/2024/07/19/nyregion/nyc-betty-gordon-stoned-crow.html
 

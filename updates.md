@@ -1,3 +1,11 @@
+**Global Court Set to Weigh In on Israel’s Occupation of Palestinian Territories**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/2024/07/19/world/middleeast/global-court-set-to-weigh-in-on-israels-occupation-of-palestinian-territories.html
+
+**Houthis Claim Responsibility for Deadly Drone Attack in Tel Aviv**\
+`The drone crashed into a building near the U.S. consulate early Friday, killing at least one person.`\
+https://nytimes.com/live/2024/07/19/world/israel-gaza-war-hamas
+
 **Jaden Philogene to Aston Villa: The Athletic 500 transfer ratings**\
 `The Athletic has rated winger Philogene's move back to Villa a year after leaving for Hull, using our transfer ratings system`\
 https://nytimes.com/athletic/5623734/2024/07/19/jaden-philogene-to-aston-villa-the-athletic-500-transfer-ratings/
