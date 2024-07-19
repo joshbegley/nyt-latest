@@ -1,3 +1,7 @@
+**FIFA delays decision on Israel's suspension until after Paris Olympics**\
+`FIFA has postponed its decision on whether to suspend Israel from international soccer, extending the deadline until after the Paris Olympics.`\
+https://nytimes.com/athletic/5646818/2024/07/19/israel-fifa-paris-olympics/
+
 **Global Court Set to Weigh In on Israel’s Occupation of Palestinian Territories**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/2024/07/19/world/middleeast/global-court-set-to-weigh-in-on-israels-occupation-of-palestinian-territories.html
