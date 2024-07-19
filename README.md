@@ -1,3 +1,11 @@
+**My Favorite Sign in Milwaukee**\
+`A lasting reminder.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/milwaukee-sign-biden-infrastructure
+
+**The Best Lip Balms**\
+`We tried more than 80 to find the six best.`\
+https://nytimes.com/interactive/2024/07/19/smarter-living/wirecutter/best-lip-balms.html
+
 **Check, Please: The Pete Wells Exit Interview**\
 `Why our food critic tossed the fake glasses and quit his dream job.`\
 https://nytimes.com/2024/07/19/podcasts/pete-wells-check-please.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/19/opinion/trump-vance-tariffs.html
 **Isolation and Secrecy: What We Know About Russia’s Notorious Penal Colonies**\
 `Evan Gershkovich, The Wall Street Journal reporter, was convicted on fabricated charges and is expected to serve time in one of the country’s infamous prisons.`\
 https://nytimes.com/2024/07/19/world/europe/russia-gershkovich-penal-colony.html
-
-**JD Vance’s Midwestern Cheer Shouldn’t Fool Anyone**\
-`Behind the fake smile is a highly antagonistic agenda.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/vance-midwestern-agenda
-
-**NBA's new TV deal with Disney, NBC, Amazon won't include matching rights**\
-`Under the NBA's current deal, Warner Bros. Discovery can match to try and retain rights to games.`\
-https://nytimes.com/athletic/5647693/2024/07/19/nba-media-rights-deal-matching-rights/
 

@@ -1,3 +1,7 @@
+**Check, Please: The Pete Wells Exit Interview**\
+`Why our food critic tossed the fake glasses and quit his dream job.`\
+https://nytimes.com/2024/07/19/podcasts/pete-wells-check-please.html
+
 **Democratic Officials Urge Committee to Nominate Biden Through Virtual Vote**\
 `The officials also said the virtual roll call should not happen before Aug. 1. The rules committee for the party convention will vote on the matter next week.`\
 https://nytimes.com/2024/07/19/us/politics/biden-virtual-roll-call-vote.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/vance-midwestern-agenda
 **NBA's new TV deal with Disney, NBC, Amazon won't include matching rights**\
 `Under the NBA's current deal, Warner Bros. Discovery can match to try and retain rights to games.`\
 https://nytimes.com/athletic/5647693/2024/07/19/nba-media-rights-deal-matching-rights/
-
-**Tech Outage Disrupts Flights and Businesses Worldwide**\
-`Airlines, industries and services across the globe were impacted by tech outages attributed to a software update from CrowdStrike, a widely used cybersecurity firm.`\
-https://nytimes.com/video/world/100000009581715/crowdstrike-microsoft-outage-airports.html
 

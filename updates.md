@@ -1,3 +1,7 @@
+**Check, Please: The Pete Wells Exit Interview**\
+`Why our food critic tossed the fake glasses and quit his dream job.`\
+https://nytimes.com/2024/07/19/podcasts/pete-wells-check-please.html
+
 **JD Vance’s Midwestern Cheer Shouldn’t Fool Anyone**\
 `Behind the fake smile is a highly antagonistic agenda.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/vance-midwestern-agenda
