@@ -1,5 +1,5 @@
 **Edgy and Unscripted, Tucker Carlson Fires Up the Convention Crowd**\
-`The former Fox News host, who is now firmly a part of Donald Trump’s inner circle, gave the crowd what it wanted, and was rewarded.`\
+`The former Fox News host, who is now firmly a part of Donald Trump’s inner circle, gave gathered Republicans what they wanted, and was rewarded.`\
 https://nytimes.com/2024/07/18/us/politics/tucker-carlson-convention-speech.html
 
 **“He slashed regulations.”**\
