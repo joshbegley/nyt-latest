@@ -1,3 +1,7 @@
+**Villa complete Philogene signing**\
+`Jaden Philogene has completed his return to Aston Villa on a five-year contract.`\
+https://nytimes.com/athletic/5633958/2024/07/19/jaden-philogene-transfer-aston-villa/
+
 **Saudi Arabia investigates worker mistreatment allegations after The Athletic report on Newcastle sponsor Noon**\
 `The government of Saudi Arabia is investigating allegations of serious worker mistreatment in the supply chain of Noon, a Newcastle sponsor`\
 https://nytimes.com/athletic/5646814/2024/07/19/noon-saudi-arabia-newcastle-workers-rights/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5645653/2024/07/19/erik-ten-hag-ineos-manchester-un
 **The Protests in Bangladesh**\
 `Students, armed mainly with sticks, have been demonstrating for days against a quota system for government jobs they consider unfair. At least 19 people have died.`\
 https://nytimes.com/2024/07/19/world/asia/bangladesh-protests-photos.html
-
-**What to know about the outages.**\
-`Airlines, banks and broadcasters reported disruptions, citing technical issues.`\
-https://nytimes.com/live/2024/07/19/business/global-tech-outage/crowdstrike-outage-flights-banks
 

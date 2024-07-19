@@ -1,3 +1,7 @@
+**Villa complete Philogene signing**\
+`Jaden Philogene has completed his return to Aston Villa on a five-year contract.`\
+https://nytimes.com/athletic/5633958/2024/07/19/jaden-philogene-transfer-aston-villa/
+
 **Saudi Arabia investigates worker mistreatment allegations after The Athletic report on Newcastle sponsor Noon**\
 `The government of Saudi Arabia is investigating allegations of serious worker mistreatment in the supply chain of Noon, a Newcastle sponsor`\
 https://nytimes.com/athletic/5646814/2024/07/19/noon-saudi-arabia-newcastle-workers-rights/
