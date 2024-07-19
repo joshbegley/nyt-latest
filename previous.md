@@ -8,7 +8,7 @@ https://nytimes.com/2024/07/19/us/politics/biden-drop-out-2024-election.html
 
 **The Candidate**\
 `A single image captures supporters of former President Donald J. Trump rallying around him after his attempted assassination.`\
-https://nytimes.com/2024/07/19/us/elections/the-candidate.html
+https://nytimes.com/2024/07/19/us/elections/trump-rnc-2024-election.html
 
 **25 Million Watched Trump’s Speech at the R.N.C. on Thursday**\
 `Viewership peaked on Thursday night starting around the 15-minute mark of Donald Trump’s speech, as he delivered a vivid reconstruction of last weekend’s assassination attempt.`\

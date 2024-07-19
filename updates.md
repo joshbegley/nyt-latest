@@ -1,3 +1,7 @@
+**The Candidate**\
+`A single image captures supporters of former President Donald J. Trump rallying around him after his attempted assassination.`\
+https://nytimes.com/2024/07/19/us/elections/trump-rnc-2024-election.html
+
 **Happy Traum, Mainstay of the Folk Music World, Dies at 86**\
 `A noted guitarist and banjo player, he emerged from the same Greenwich Village folk-revival scene as his friend and sometime collaborator Bob Dylan.`\
 https://nytimes.com/2024/07/19/arts/music/happy-traum-dead.html
