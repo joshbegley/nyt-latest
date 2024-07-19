@@ -1,3 +1,7 @@
+**Counting the Costs of a Global IT Outage**\
+`A “historic” tech failure alarmed investors, after a security update caused problems for Microsoft devices and services, and took down businesses worldwide.`\
+https://nytimes.com/2024/07/19/business/dealbook/tech-outage-crowdstrike-microsoft.html
+
 **Here’s the latest on the Democratic campaign.**\
 `By Michael D. Shear, Peter Baker, Katie Rogers, Reid J. Epstein and Maggie Haberman`\
 https://nytimes.com/live/2024/07/19/us/biden-election-news/heres-the-latest-on-the-democratic-campaign
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/world/asia/nguyen-phu-trong-dead.html
 **Zelensky Becomes First Foreign Leader to Visit U.K. Cabinet Since Clinton**\
 `President Volodymyr Zelensky briefed Keir Starmer’s top team in an appearance designed to showcase Britain’s steadfast support for Ukraine in its war against Russia.`\
 https://nytimes.com/2024/07/19/world/europe/zelensky-uk-cabinet-ukraine.html
-
-**Examining Kawhi Leonard's status and the Clippers' search for more scoring**\
-`With Paul George now in Philly, the Clippers could have a more simplified approach on offense — when healthy.`\
-https://nytimes.com/athletic/5644816/2024/07/19/kawhi-leonard-injury-status-clippers-offseason-nba/
 
