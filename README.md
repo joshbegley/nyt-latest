@@ -1,3 +1,15 @@
+**Why Microsoft matters.**\
+`By Cecilia Kang`\
+https://nytimes.com/live/2024/07/19/business/global-tech-outage/why-microsoft-matters
+
+**If Biden Drops Out: Imagine These Scenarios**\
+`Readers offer suggestions if President Biden ends his campaign. Also: The Republican convention and the election stakes; J.D. Vance’s positions.`\
+https://nytimes.com/2024/07/19/opinion/joe-biden-withdrawal.html
+
+**Black Democrats, resisting calls for Biden to go, insist Harris is the only alternative.**\
+`By Robert Jimison`\
+https://nytimes.com/live/2024/07/19/us/biden-election-news/black-democrats-resisting-calls-for-biden-to-go-insist-harris-is-the-only-alternative
+
 **Blinken says that a cease-fire deal is ‘inside the 10-yard line.’**\
 `By Julian E. Barnes and David E. Sanger`\
 https://nytimes.com/live/2024/07/19/world/israel-gaza-war-hamas/blinken-says-that-a-cease-fire-deal-is-inside-the-10-yard-line
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/19/homepage/global-crowdstrike-outage-photos.html
 **The Roots of Biden’s Defiance: Anger, Fear, Pride and Regret**\
 `President Biden is still bitter about feeling pushed out of the 2016 race by Democratic elites in favor of Hillary Clinton.`\
 https://nytimes.com/2024/07/19/us/politics/biden-defiance.html
-
-**4,010**\
-`The total hours Amtrak trains were delayed in fiscal year 2023`\
-https://nytimes.com/2024/07/19/business/4010-amtrak-delays-heat.html
-
-**Some Republican delegates find their Milwaukee stays have been extended.**\
-`By Robert Chiarito`\
-https://nytimes.com/live/2024/07/19/business/global-tech-outage/some-rnc-delegates-find-their-milwaukee-stays-have-been-extended
-
-**Five Horror Movies to Stream Now**\
-`This month’s picks include Swedish evildoers, South Korean warrior-ghosts and a devil stalking the American frontier.`\
-https://nytimes.com/2024/07/19/movies/horror-movies-streaming.html
 

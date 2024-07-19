@@ -1,3 +1,7 @@
+**Blinken says that a cease-fire deal is ‘inside the 10-yard line.’**\
+`By Julian E. Barnes and David E. Sanger`\
+https://nytimes.com/live/2024/07/19/world/israel-gaza-war-hamas/blinken-says-that-a-cease-fire-deal-is-inside-the-10-yard-line
+
 **Could Baseball Persuade Biden to Step Aside?**\
 `Representative Jamie Raskin’s letter to the president was clever politics.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-raskin-letter
