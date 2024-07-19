@@ -1,3 +1,11 @@
+**Democratic Officials Urge Committee to Nominate Biden Through Virtual Vote**\
+`The officials also said the virtual roll call should not happen before Aug. 1. The rules committee for the party convention will vote on the matter next week.`\
+https://nytimes.com/2024/07/19/us/politics/biden-virtual-roll-call-vote.html
+
+**Michael Moritz, Democratic Megadonor, Urges Biden Exit: ‘Clock Has Run Out’**\
+`Mr. Moritz became one of the party’s top contributors to go public with his fears about the president’s candidacy, saying that Mr. Biden had a choice: “vanity or virtue.”`\
+https://nytimes.com/2024/07/19/us/politics/michael-moritz-biden.html
+
 **Palace exploring transfer for Marseille winger Sarr**\
 `Crystal Palace are exploring the possibility of signing Marseille winger Ismaila Sarr with initial talks taking place between the clubs.`\
 https://nytimes.com/athletic/5647662/2024/07/19/ismaila-sarr-crystal-palace-transfers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5647693/2024/07/19/nba-media-rights-deal-matching-r
 **Tech Outage Disrupts Flights and Businesses Worldwide**\
 `Airlines, industries and services across the globe were impacted by tech outages attributed to a software update from CrowdStrike, a widely used cybersecurity firm.`\
 https://nytimes.com/video/world/100000009581715/crowdstrike-microsoft-outage-airports.html
-
-**U.S. airlines must offer some stranded travelers compensation.**\
-`The move is a significant reversal from how airlines were treating the situation earlier in the day.`\
-https://nytimes.com/live/2024/07/19/business/global-tech-outage/us-airlines-must-offer-some-stranded-travelers-compensation
-
-**Review: A Chameleon’s Dance at Little Island**\
-`Pam Tanowitz’s “Day for Night” flows with and against the current of its surroundings, reflecting the park’s strange mix of the natural and man-made.`\
-https://nytimes.com/2024/07/19/arts/dance/review-pam-tanowitz-day-for-night.html
 
