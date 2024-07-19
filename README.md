@@ -1,3 +1,7 @@
+**Words Used at the Republican National Convention**\
+`Counting frequently spoken words and phrases at the four-day convention.`\
+https://nytimes.com/interactive/2024/07/19/us/politics/trump-rnc-words.html
+
 **Happy Traum, Mainstay of the Folk Music World, Dies at 86**\
 `A noted guitarist and banjo player, he emerged from the same Greenwich Village folk-revival scene as his friend and sometime collaborator Bob Dylan.`\
 https://nytimes.com/2024/07/19/arts/music/happy-traum-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/us/gunman-thomas-crooks-trump-shooting.html
 **Black and Hispanic Democrats Hold Firm for Biden, Eyeing Harris’s Future**\
 `The lawmakers, donors and voters who have been the most outspoken about keeping President Biden in the race are driven by a concern that ditching him could also mean bypassing his vice president.`\
 https://nytimes.com/2024/07/19/us/politics/biden-kamala-harris-black-hispanic-democrats.html
-
-**Miley Cyrus Performs for Kendall Jenner and Law Roach at an L.A. Pool Party**\
-`They were also joined by Salma Hayek, Rumer Willis, Chloe Kim and Kim Petras at an event for Gucci at the Chateau Marmont.`\
-https://nytimes.com/2024/07/19/style/miley-cyrus-gucci-pool-party.html
 
