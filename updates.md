@@ -1,3 +1,11 @@
+**Forest weighing up move for Riquelme Fillipi**\
+`Nottingham Forest are willing to spend around £5million ($6.`\
+https://nytimes.com/athletic/5646806/2024/07/19/riquelme-fillipi-nottingham-forest/
+
+**What to know about the outages.**\
+`Airlines, banks and broadcasters reported disruptions, citing technical issues.`\
+https://nytimes.com/live/2024/07/19/business/global-tech-outage/crowdstrike-outage-flights-banks
+
 **What to know about the outages.**\
 `Airlines, banks and broadcasters reported disruptions, citing technical issues.`\
 https://nytimes.com/live/2024/07/19/us/global-tech-outage/crowdstrike-outage-flights-banks
