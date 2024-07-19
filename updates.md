@@ -1,3 +1,7 @@
+**Miley Cyrus Performs for Kendall Jenner and Law Roach at an L.A. Pool Party**\
+`They were also joined by Salma Hayek, Rumer Willis, Chloe Kim and Kim Petras at an event for Gucci at the Chateau Marmont.`\
+https://nytimes.com/2024/07/19/style/miley-cyrus-gucci-pool-party.html
+
 **Trump From Head to Toe**\
 `The Republican National Convention was a showcase for Donald J. Trump’s dominance over the party — and its fashion.`\
 https://nytimes.com/2024/07/19/style/trump-rnc-fashion.html

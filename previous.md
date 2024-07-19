@@ -1,3 +1,7 @@
+**Miley Cyrus Performs for Kendall Jenner and Law Roach at an L.A. Pool Party**\
+`They were also joined by Salma Hayek, Rumer Willis, Chloe Kim and Kim Petras at an event for Gucci at the Chateau Marmont.`\
+https://nytimes.com/2024/07/19/style/miley-cyrus-gucci-pool-party.html
+
 **Trump From Head to Toe**\
 `The Republican National Convention was a showcase for Donald J. Trump’s dominance over the party — and its fashion.`\
 https://nytimes.com/2024/07/19/style/trump-rnc-fashion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/us/heat-wave-forecast-pacific-northwest.html
 **The Open’s most unlikely contender is the son of a pig farmer who almost quit golf**\
 `Brown, a 29-year-old Englishman playing his first career major, came close to quitting professional golf five years ago.`\
 https://nytimes.com/athletic/5647829/2024/07/19/daniel-brown-the-open-contender-golf/
-
-**Biden’s Successful Border Policy Is a Mixed Blessing**\
-`Migrant crossings have sharply declined. Why didn’t he do this earlier?`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-asylum-migrants-crossings
 
