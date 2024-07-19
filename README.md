@@ -1,3 +1,7 @@
+**The Best of Late Night This Week**\
+`Late night was subdued on Monday, after a gunman tried to kill former President Trump. Later in the week, the hosts discussed the R.N.C., J.D. Vance and Matt Gaetz.`\
+https://nytimes.com/interactive/2024/07/19/arts/television/best-of-late-night-jd-vance.html
+
 **UEFA investigating Spain players' Gibraltar chant**\
 `UEFA has opened a disciplinary investigation into Spain players Rodri and Alvaro Morata over their &#8216;Gibraltar is Spanish&#8217; chants during the nation&#8217;s Euro 2024 celebrations in Madrid.`\
 https://nytimes.com/athletic/5647300/2024/07/19/spain-gibraltar-euro-2024-chant/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/us/politics/biden-democrats-campaign.html
 **Donald Trump Promised a Softer Image. He Delivered Hulkamania.**\
 `The last night of the Republican National Convention featured glimpses of a more sober tone — and a whole lot of testosterone.`\
 https://nytimes.com/2024/07/19/arts/television/donald-trump-rnc.html
-
-**'See Her, Be Her': New documentary aims to create more chances for women in baseball**\
-`Cal Ripken Jr., Ichiro Suzuki and Ken Griffey Jr., among other MLB stars, lent their support to the project. `\
-https://nytimes.com/athletic/5645425/2024/07/19/documentary-women-baseball-see-her-be-her/
 

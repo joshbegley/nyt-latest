@@ -1,3 +1,7 @@
+**UEFA investigating Spain players' Gibraltar chant**\
+`UEFA has opened a disciplinary investigation into Spain players Rodri and Alvaro Morata over their &#8216;Gibraltar is Spanish&#8217; chants during the nation&#8217;s Euro 2024 celebrations in Madrid.`\
+https://nytimes.com/athletic/5647300/2024/07/19/spain-gibraltar-euro-2024-chant/
+
 **Flying Today? What You Need to Know About the Global Tech Outage.**\
 `While service is slowly recovering, flights have been delayed and canceled worldwide. Here’s information on the most affected airlines and airports, passengers’ rights and how to reach airline customer service.`\
 https://nytimes.com/2024/07/19/travel/crowdstrike-outage-flight-delays-airports.html
