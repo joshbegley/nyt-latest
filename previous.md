@@ -1,3 +1,7 @@
+**Biden Administration Pauses Student Loan Payments Amid Legal Challenges**\
+`Eight million borrowers enrolled in the repayment plan known as SAVE will be placed in an interest-free forbearance while the administration deals with legal issues.`\
+https://nytimes.com/2024/07/19/business/biden-student-loans-save-pause.html
+
 **White House Pushes Rent Cap, Reigniting Debate on Housing Policy**\
 `A proposal to make landlords’ tax breaks contingent on rent limits has drawn industry pushback, progressive applause and some alternative approaches.`\
 https://nytimes.com/2024/07/19/business/economy/biden-rent-cap-proposal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5647206/2024/07/19/serie-a-tv-rights-cbs/
 **The Windup: Second-half notes for every MLB team**\
 `Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
 https://nytimes.com/athletic/5647258/2024/07/19/mlb-preview-trade-deadline-the-windup/
-
-**11 Days in July: Inside the All-Out Push to Save the Biden Campaign**\
-`President Biden has repeatedly tried to erase the concerns over his age and mental acuity. But nothing has changed the narrative.`\
-https://nytimes.com/2024/07/19/us/politics/biden-democrats-campaign.html
 

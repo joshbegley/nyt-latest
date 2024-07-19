@@ -1,3 +1,7 @@
+**Biden Administration Pauses Student Loan Payments Amid Legal Challenges**\
+`Eight million borrowers enrolled in the repayment plan known as SAVE will be placed in an interest-free forbearance while the administration deals with legal issues.`\
+https://nytimes.com/2024/07/19/business/biden-student-loans-save-pause.html
+
 **White House Pushes Rent Cap, Reigniting Debate on Housing Policy**\
 `A proposal to make landlords’ tax breaks contingent on rent limits has drawn industry pushback, progressive applause and some alternative approaches.`\
 https://nytimes.com/2024/07/19/business/economy/biden-rent-cap-proposal.html
