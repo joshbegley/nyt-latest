@@ -1,3 +1,7 @@
+**CONMEBOL, Hard Rock Stadium facing lawsuits after Copa América final**\
+`Fans have alleged that organizers failed to control matchday crowds, leading to spectators being denied entry into the stadium.`\
+https://nytimes.com/athletic/5648003/2024/07/19/copa-america-hard-rock-stadium-conmebol-lawsuits/
+
 **Severino jokes about pitching vs. Yankees: 'I'm not afraid of you guys'**\
 `The Mets swept the first Subway Series of the season, winning both games at Citi Field last month.`\
 https://nytimes.com/athletic/5648002/2024/07/19/mets-luis-severino-pitching-yankees/
