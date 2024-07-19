@@ -1,3 +1,7 @@
+**At the 2024 Paris Olympic Games, tennis is as odd a fit as ever**\
+`Squeeze in a clay-court event, or go get ready for the hard-court swing? The Olympics create a complicated situation for many tennis stars.`\
+https://nytimes.com/athletic/5627330/2024/07/19/paris-olympics-2024-tennis-carlos-alcaraz/
+
 **This Is Venezuela’s Moment. It Needs the World’s Help.**\
 `The United States can support Venezuelan democracy by creating an off-ramp for President Nicolás Maduro.`\
 https://nytimes.com/2024/07/19/opinion/venezuela-elections-maduro.html

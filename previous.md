@@ -1,3 +1,7 @@
+**At the 2024 Paris Olympic Games, tennis is as odd a fit as ever**\
+`Squeeze in a clay-court event, or go get ready for the hard-court swing? The Olympics create a complicated situation for many tennis stars.`\
+https://nytimes.com/athletic/5627330/2024/07/19/paris-olympics-2024-tennis-carlos-alcaraz/
+
 **This Is Venezuela’s Moment. It Needs the World’s Help.**\
 `The United States can support Venezuelan democracy by creating an off-ramp for President Nicolás Maduro.`\
 https://nytimes.com/2024/07/19/opinion/venezuela-elections-maduro.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-convention-speech
 **Jake Wightman interview: 'Britain is the best middle-distance nation in the world'**\
 `The 800m runner on his hopes for the Paris Olympics`\
 https://nytimes.com/athletic/5643329/2024/07/19/jake-wightman-interview-olympics-800m/
-
-**Ilia Gruev interview: 'Losing at Wembley was devastating, but I will achieve something at Leeds'**\
-`The Bulgarian midfielder was one of the stars of Daniel Farke's side in 2023-24 and he is determined to come back stronger in this campaign `\
-https://nytimes.com/athletic/5643597/2024/07/19/ilia-gruev-leeds-interview/
 
