@@ -1,3 +1,15 @@
+**Here’s the latest on the Democratic campaign.**\
+`By Michael D. Shear, Peter Baker, Katie Rogers, Reid J. Epstein and Maggie Haberman`\
+https://nytimes.com/live/2024/07/19/us/biden-election-news/heres-the-latest-on-the-democratic-campaign
+
+**Live Updates: Pressure Grows on Biden as He Isolates With Covid**\
+`The president’s resolve to continue his re-election bid has been shaken by Nancy Pelosi’s comments, worsening state polls and a spending boycott by key donors, some in his camp said.`\
+https://nytimes.com/live/2024/07/19/us/biden-election-news
+
+**Congo’s ‘Other’ Conflict Kills Thousands in West Near the Capital**\
+`Overshadowed by fighting in the east of the Democratic Republic of Congo, a dispute in the west between two ethnic groups has resulted in thousands of civilians killed and more than 550,000 displaced near the capital, Kinshasa.`\
+https://nytimes.com/2024/07/19/world/africa/crisis-western-congo.html
+
 **Britain says it’s restoring funding to the U.N. agency that aids Palestinians.**\
 `The country’s new foreign secretary said that the agency, UNRWA, had taken steps to ensure that it meets “the highest standards of neutrality.”`\
 https://nytimes.com/2024/07/19/world/middleeast/uk-unrwa-funding-palestinians-gaza.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/19/world/europe/zelensky-uk-cabinet-ukraine.html
 **Examining Kawhi Leonard's status and the Clippers' search for more scoring**\
 `With Paul George now in Philly, the Clippers could have a more simplified approach on offense — when healthy.`\
 https://nytimes.com/athletic/5644816/2024/07/19/kawhi-leonard-injury-status-clippers-offseason-nba/
-
-**The Athletic FC: United, Real Madrid and a good Yoro deal? Plus: Goalkeepers and goggles**\
-`The Athletic FC is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox`\
-https://nytimes.com/athletic/5646867/2024/07/19/manchester-united-real-madrid-yoro-transfers-the-athletic-fc/
-
-**Milan complete Morata deal**\
-`AC Milan have completed the signing of striker Alvaro Morata from Atletico Madrid.`\
-https://nytimes.com/athletic/5640966/2024/07/19/alvaro-morata-milan-transfer-atletico/
-
-**Villa Park becomes main home ground for Aston Villa Women**\
-`Villa Park will become the main home ground for Aston Villa Women, with the club announcing that all 11 Women&#8217;s Super League (WSL) fixtures for the upcoming season will be played at the stadium.`\
-https://nytimes.com/athletic/5646907/2024/07/19/villa-park-aston-villa-women/
 
