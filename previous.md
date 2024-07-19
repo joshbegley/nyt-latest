@@ -1,6 +1,10 @@
-**New Hampshire Bans Gender-Transition Care for Minors**\
-`The move is in line with what other Republican-led states have done, but it is the first ban on such care in the Northeast.`\
-https://nytimes.com/2024/07/19/us/new-hampshire-gender-transition-care-ban.html
+**Russia Punishes Those Who Seek the Truth**\
+`Evan Gershkovich is a victim of Putin’s campaign to silence independent journalism in Russia.`\
+https://nytimes.com/2024/07/19/opinion/evan-gershkovich-russia-journalist.html
+
+**New Hampshire Bans Gender-Transition Surgery for Minors**\
+`The move is in line with what other Republican-led states have done, but it is the first such ban in the Northeast.`\
+https://nytimes.com/2024/07/19/us/new-hampshire-gender-transition-surgery-ban.html
 
 **Bernice Johnson Reagon, a Musical Voice for Civil Rights, Is Dead at 81**\
 `A singer, composer, curator and founder of the vocal group Sweet Honey in the Rock, she provided a gospel soundtrack for the civil rights movement.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/insider/how-a-school-bus-electrified-a-reporters-
 **West Ham have £15m verbal offer for Kante rejected by Al Ittihad**\
 `West Ham United had a verbal offer in the region of £15million for N&#8217;Golo Kante rejected by Al Ittihad on Thursday.`\
 https://nytimes.com/athletic/5647962/2024/07/19/ngolo-kante-west-ham-transfers/
-
-**A Tech Outage Caused Disruptions Worldwide**\
-`Also, Biden vowed to press on as more allies said he should quit. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/07/19/briefing/tech-outage-worldwide-biden-next-move.html
 
