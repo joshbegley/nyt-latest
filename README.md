@@ -1,3 +1,11 @@
+**Tech Outage Disrupts Flights and Businesses Worldwide**\
+`Airlines, industries and services across the globe were impacted by tech outages attributed to a software update from CrowdStrike, a widely used cybersecurity firm.`\
+https://nytimes.com/video/world/100000009581715/crowdstrike-microsoft-outage-airports.html
+
+**U.S. airlines must offer some stranded travelers compensation.**\
+`The move is a significant reversal from how airlines were treating the situation earlier in the day.`\
+https://nytimes.com/live/2024/07/19/business/global-tech-outage/us-airlines-must-offer-some-stranded-travelers-compensation
+
 **Review: A Chameleon’s Dance at Little Island**\
 `Pam Tanowitz’s “Day for Night” flows with and against the current of its surroundings, reflecting the park’s strange mix of the natural and man-made.`\
 https://nytimes.com/2024/07/19/arts/dance/review-pam-tanowitz-day-for-night.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/19/us/rnc-fact-check/if-you-look-at-the-arrow-a
 **Was the drone in the Tel Aviv strike a newly stealthy model?**\
 `That is what the Houthi rebels in Yemen said while claiming responsibility. But Israel said there was little new or special about it.`\
 https://nytimes.com/live/2024/07/19/world/israel-gaza-war-hamas/houthis-drone-strike-tel-aviv-israel
-
-**Jaguars sue ex-employee Patel for $66.6 million**\
-`Patel was sentenced in U.S. District Court on March 12 to 6 1/2 years in prison.`\
-https://nytimes.com/athletic/5646618/2024/07/19/jaguars-sue-amit-patel/
-
-**Courts close nationwide, and Harvey Weinstein’s case is delayed.**\
-`By Heather Knight`\
-https://nytimes.com/live/2024/07/19/business/global-tech-outage/courts-close-nationwide-and-harvey-weinsteins-case-is-delayed
 
