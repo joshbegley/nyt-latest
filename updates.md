@@ -1,3 +1,11 @@
+**A group urging Biden to end his candidacy is targeting ads on ‘Morning Joe.’**\
+`By Katie Glueck`\
+https://nytimes.com/live/2024/07/19/us/biden-election-news/a-group-urging-biden-to-end-his-candidacy-is-targeting-ads-on-morning-joe
+
+**‘Hello, Dolly!’ Review: Imelda Staunton Has the Wow, Wow, Wow Factor**\
+`The veteran British actress shines in a new revival that is the musical theater highlight of the West End summer.`\
+https://nytimes.com/2024/07/19/theater/hello-dolly-imelda-staunton.html
+
 **Durant practices with Team USA for first time after calf strain**\
 `Durant, USA Basketball’s all-time leading scorer, was injured in a workout days before the start of camp on July 6.`\
 https://nytimes.com/athletic/5647038/2024/07/19/kevin-durant-team-usa-olympics-practice-status/
