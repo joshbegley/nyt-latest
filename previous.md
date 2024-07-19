@@ -1,3 +1,11 @@
+**From Honor Student to the Gunman Who Tried to Kill Donald Trump**\
+`Thomas Crooks was a brainy and quiet young man who built computers and won honors at school, impressing his teachers. Then he became a would-be assassin.`\
+https://nytimes.com/2024/07/19/us/gunman-thomas-crooks-trump-shooting.html
+
+**Black and Hispanic Democrats Hold Firm for Biden, Eyeing Harris’s Future**\
+`The lawmakers, donors and voters who have been the most outspoken about keeping President Biden in the race are driven by a concern that ditching him could also mean bypassing his vice president.`\
+https://nytimes.com/2024/07/19/us/politics/biden-kamala-harris-black-hispanic-democrats.html
+
 **Miley Cyrus Performs for Kendall Jenner and Law Roach at an L.A. Pool Party**\
 `They were also joined by Salma Hayek, Rumer Willis, Chloe Kim and Kim Petras at an event for Gucci at the Chateau Marmont.`\
 https://nytimes.com/2024/07/19/style/miley-cyrus-gucci-pool-party.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/19/world/middleeast/houthis-drone-strike-tel-aviv.ht
 **Corporate Workers Get a Snow Day in July Because of Outage**\
 `“Happy international blue screen day.”`\
 https://nytimes.com/2024/07/19/business/crowdstrike-microsoft-outage-corporate-workers.html
-
-**Pacific Northwest Braces for a Blistering Heat Wave Over the Weekend**\
-`The heat index, an indicator of temperature and humidity, could reach triple digits, well above what is typical for the region.`\
-https://nytimes.com/2024/07/19/us/heat-wave-forecast-pacific-northwest.html
-
-**The Open’s most unlikely contender is the son of a pig farmer who almost quit golf**\
-`Brown, a 29-year-old Englishman playing his first career major, came close to quitting professional golf five years ago.`\
-https://nytimes.com/athletic/5647829/2024/07/19/daniel-brown-the-open-contender-golf/
 
