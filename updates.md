@@ -1,3 +1,11 @@
+**Trump Struggles to Turn the Page on ‘American Carnage’**\
+`On the last night of the G.O.P. convention on Thursday, Donald J. Trump promised to bridge political divides, and then returned to delighting in deepening them.`\
+https://nytimes.com/2024/07/19/us/politics/trump-rnc-speech-analysis.html
+
+**‘It Was Trump Untethered’: Best and Worst Moments From His Acceptance Speech**\
+`Times Opinion writers assess Night 4 of the Republican convention, which included speeches from Hulk Hogan, Mike Pompeo and Donald Trump.`\
+https://nytimes.com/2024/07/19/opinion/trump-acceptance-speech-rnc.html
+
 **At the 2024 Paris Olympic Games, tennis is as odd a fit as ever**\
 `Squeeze in a clay-court event, or go get ready for the hard-court swing? The Olympics create a complicated situation for many tennis stars.`\
 https://nytimes.com/athletic/5627330/2024/07/19/paris-olympics-2024-tennis-carlos-alcaraz/

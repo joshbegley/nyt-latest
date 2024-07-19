@@ -1,3 +1,11 @@
+**Trump Struggles to Turn the Page on ‘American Carnage’**\
+`On the last night of the G.O.P. convention on Thursday, Donald J. Trump promised to bridge political divides, and then returned to delighting in deepening them.`\
+https://nytimes.com/2024/07/19/us/politics/trump-rnc-speech-analysis.html
+
+**‘It Was Trump Untethered’: Best and Worst Moments From His Acceptance Speech**\
+`Times Opinion writers assess Night 4 of the Republican convention, which included speeches from Hulk Hogan, Mike Pompeo and Donald Trump.`\
+https://nytimes.com/2024/07/19/opinion/trump-acceptance-speech-rnc.html
+
 **At the 2024 Paris Olympic Games, tennis is as odd a fit as ever**\
 `Squeeze in a clay-court event, or go get ready for the hard-court swing? The Olympics create a complicated situation for many tennis stars.`\
 https://nytimes.com/athletic/5627330/2024/07/19/paris-olympics-2024-tennis-carlos-alcaraz/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5644312/2024/07/19/arsenal-tour-united-states/
 **Marc Albrighton looks back on his 10 years at Leicester: 'We were going into the unknown'**\
 `How it felt winning the league and FA Cup, the best manager he worked with, and his MLS ambition`\
 https://nytimes.com/athletic/5614460/2024/07/19/marc-albrighton-interview-leicester-city/
-
-**Trump Goes Off the Rails. This Guy Is Still Beatable.**\
-`His speech was thin on unity and heavy on the unhinged.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-convention-speech
-
-**Jake Wightman interview: 'Britain is the best middle-distance nation in the world'**\
-`The 800m runner on his hopes for the Paris Olympics`\
-https://nytimes.com/athletic/5643329/2024/07/19/jake-wightman-interview-olympics-800m/
 
