@@ -1,3 +1,7 @@
+**Happy Traum, Mainstay of the Folk Music World, Dies at 86**\
+`A noted guitarist and banjo player, he emerged from the same Greenwich Village folk-revival scene as his friend and sometime collaborator Bob Dylan.`\
+https://nytimes.com/2024/07/19/arts/music/happy-traum-dead.html
+
 **Secluded in Rehoboth, Biden Stews at Allies’ Pressure to Drop Out of the Race**\
 `As he recovers from Covid, the president has grown resentful toward Democratic congressional leaders and former President Barack Obama.`\
 https://nytimes.com/2024/07/19/us/politics/biden-drop-out-2024-election.html
