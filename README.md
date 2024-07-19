@@ -2,9 +2,9 @@
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5646037/2024/07/19/wnba-all-star-game-olympics-the-pulse/
 
-**What is CrowdStrike?**\
+**What Is CrowdStrike?**\
 `CrowdStrike’s cybersecurity software is used by scores of industries, including airlines, hospitals and retailers, to prevent hacks and data breaches.`\
-https://nytimes.com/live/2024/07/19/business/global-tech-outage/what-is-crowdstrike
+https://nytimes.com/2024/07/19/business/what-is-crowdstrike.html
 
 **What We Know About the Global Outage**\
 `Everything from airlines to banks to retailers were impacted in many countries.`\
