@@ -1,3 +1,11 @@
+**Gymnastics at the 2024 Paris Olympics: Stars in the medal mix, schedule and how to watch**\
+`Will Simone Biles return to the Olympic throne? Here's what to watch, the full schedule and more for the gymnastics competition in Paris.`\
+https://nytimes.com/athletic/5646379/2024/07/19/gymnastics-paris-olympics-simone-biles-teams-schedule-watch/
+
+**Lawsuits Mount Over Software Used by Landlords to Set Rents**\
+`Antitrust cases contend that use of RealPage’s algorithm, which lets property owners share private data, amounts to collusion.`\
+https://nytimes.com/2024/07/19/business/economy/rent-prices-realpage-lawsuit.html
+
 **Biden Administration Pauses Student Loan Payments Amid Legal Challenges**\
 `Eight million borrowers enrolled in the repayment plan known as SAVE will be placed in an interest-free forbearance while the administration deals with legal issues.`\
 https://nytimes.com/2024/07/19/business/biden-student-loans-save-pause.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/19/dining/weekend-pasta-recipe.html
 **Howe wants to stay at Newcastle, but only if he's 'happy'**\
 `Eddie Howe &#8220;wants&#8221; to stay at Newcastle United and says he will reject any approach from England — as long as he is made to feel &#8220;happy&#8221; and is reassured about his position following a summer of upheaval at St James&#8217; Park.`\
 https://nytimes.com/athletic/5647083/2024/07/19/eddie-howe-newcastle-stay/
-
-**CBS Sports to continue as Serie A's U.S. English-language broadcaster**\
-`The fee is believed to be significantly less than the previous deal signed in 2021, which was around $60-70 million annually.`\
-https://nytimes.com/athletic/5647206/2024/07/19/serie-a-tv-rights-cbs/
-
-**The Windup: Second-half notes for every MLB team**\
-`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
-https://nytimes.com/athletic/5647258/2024/07/19/mlb-preview-trade-deadline-the-windup/
 

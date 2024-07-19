@@ -1,3 +1,11 @@
+**Gymnastics at the 2024 Paris Olympics: Stars in the medal mix, schedule and how to watch**\
+`Will Simone Biles return to the Olympic throne? Here's what to watch, the full schedule and more for the gymnastics competition in Paris.`\
+https://nytimes.com/athletic/5646379/2024/07/19/gymnastics-paris-olympics-simone-biles-teams-schedule-watch/
+
+**Lawsuits Mount Over Software Used by Landlords to Set Rents**\
+`Antitrust cases contend that use of RealPage’s algorithm, which lets property owners share private data, amounts to collusion.`\
+https://nytimes.com/2024/07/19/business/economy/rent-prices-realpage-lawsuit.html
+
 **Biden Administration Pauses Student Loan Payments Amid Legal Challenges**\
 `Eight million borrowers enrolled in the repayment plan known as SAVE will be placed in an interest-free forbearance while the administration deals with legal issues.`\
 https://nytimes.com/2024/07/19/business/biden-student-loans-save-pause.html
