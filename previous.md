@@ -1,3 +1,11 @@
+**Jake Wightman interview: 'Britain is the best middle-distance nation in the world'**\
+`The 800m runner on his hopes for the Paris Olympics`\
+https://nytimes.com/athletic/5643329/2024/07/19/jake-wightman-interview-olympics-800m/
+
+**Ilia Gruev interview: 'Losing at Wembley was devastating, but I will achieve something at Leeds'**\
+`The Bulgarian midfielder was one of the stars of Daniel Farke's side in 2023-24 and he is determined to come back stronger in this campaign `\
+https://nytimes.com/athletic/5643597/2024/07/19/ilia-gruev-leeds-interview/
+
 **“Probably the best trade deal was the deal I made with China, where they buy $50 billion worth of our product.”**\
 `By Alan Rappeport`\
 https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/probably-the-best-trade-deal-was-the-deal-i-made-with-china-where-they-buy-50-billion-worth-of-our-product
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/our-oppon
 **“Our planet is teetering on the edge of World War III, and this will be a war like no other.”**\
 `By John Ismay`\
 https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/our-planet-is-teetering-on-the-edge-of-world-war-iii-and-this-will-be-a-war-like-no-other
-
-**Leny Yoro to Manchester United: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate Leny Yoro's move to Manchester United`\
-https://nytimes.com/athletic/5626379/2024/07/19/leny-yoro-manchester-united-transfer-ratings/
-
-**A Border Crossing Shuttered for Months Traps Sick and Wounded in Gaza**\
-`The Rafah crossing to Egypt has been closed since Israel captured it in early May, blocking the only route out of the territory for thousands of Palestinians who desperately need medical care.`\
-https://nytimes.com/2024/07/19/world/middleeast/rafah-palestinians-gaza-trapped.html
 
