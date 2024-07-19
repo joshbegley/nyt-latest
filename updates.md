@@ -1,3 +1,11 @@
+**Map: 7.4-Magnitude Earthquake Strikes Chile**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/07/18/world/americas/earthquake-tracker-chile.html
+
+**‘Trumpmania’: Hulk Hogan Rips Off His Shirt, and Republicans Go Wild**\
+`The theatrical former professional wrestler flexed his muscles — and electrified the crowd — with an impassioned account of how he came to support the former president.`\
+https://nytimes.com/2024/07/18/us/politics/hulk-hogan-rnc-speech-trump.html
+
 **“The U.S. dollar has been diminished.”**\
 `By Alan Rappeport`\
 https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/the-us-dollar-has-been-diminished

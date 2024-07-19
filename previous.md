@@ -1,3 +1,7 @@
+**Map: 7.4-Magnitude Earthquake Strikes Chile**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/07/18/world/americas/earthquake-tracker-chile.html
+
 **“The U.S. dollar has been diminished.”**\
 `By Alan Rappeport`\
 https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/the-us-dollar-has-been-diminished
@@ -31,10 +35,6 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/republican-convention-crowd
 https://nytimes.com/2024/07/18/arts/television/bob-newhart-standup-comedy.html
 
 **‘Trumpmania’: Hulk Hogan Rips Off His Shirt, and Republicans Go Wild**\
-`Call it Wrestlemania night in Milwaukee.`\
+`The theatrical former professional wrestler flexed his muscles — and electrified the crowd — with an impassioned account of how he came to support the former president.`\
 https://nytimes.com/2024/07/18/us/politics/hulk-hogan-rnc-speech-trump.html
-
-**“We’ve lost more Americans from drugs in the past four years than we lost in World War II. Yeah. Our bloodiest war. More than we lost in World War II. Does anybody care? It is pathetic. It is pathetic. And do you hear a single word from Washington about doing anything about it?”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/weve-lost-more-americans-from-drugs-in-the-past-four-years-than-we-lost-in-world-war-ii-yeah-our-bloodiest-war-more-than-we-lost
 
