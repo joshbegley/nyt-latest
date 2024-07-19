@@ -1,3 +1,7 @@
+**Jaden Philogene to Aston Villa: The Athletic 500 transfer ratings**\
+`The Athletic has rated winger Philogene's move back to Villa a year after leaving for Hull, using our transfer ratings system`\
+https://nytimes.com/athletic/5623734/2024/07/19/jaden-philogene-to-aston-villa-the-athletic-500-transfer-ratings/
+
 **Villa complete Philogene signing**\
 `Jaden Philogene has completed his return to Aston Villa on a five-year contract.`\
 https://nytimes.com/athletic/5633958/2024/07/19/jaden-philogene-transfer-aston-villa/
