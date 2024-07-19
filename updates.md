@@ -1,3 +1,7 @@
+**MLB front offices under the most pressure — and the least — this trade deadline**\
+`At this time of year, every front office decision is scrutinized. But these teams and execs are under the most pressure to make major moves.`\
+https://nytimes.com/athletic/5646694/2024/07/19/mlb-trade-deadline-front-offices-under-pressure/
+
 **The Athletic FC: United, Real Madrid and a good Yoro deal? Plus: Goalkeepers and goggles**\
 `The Athletic FC is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox`\
 https://nytimes.com/athletic/5646867/2024/07/19/manchester-united-real-madrid-yoro-transfers-the-athletic-fc/
