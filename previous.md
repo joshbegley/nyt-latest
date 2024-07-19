@@ -1,3 +1,15 @@
+**The Roots of Biden’s Defiance: Anger, Fear, Pride and Regret**\
+`President Biden is still bitter about feeling pushed out of the 2016 race by Democratic elites in favor of Hillary Clinton.`\
+https://nytimes.com/2024/07/19/us/politics/biden-defiance.html
+
+**4,010**\
+`The total hours Amtrak trains were delayed in fiscal year 2023`\
+https://nytimes.com/2024/07/19/business/4010-amtrak-delays-heat.html
+
+**Some Republican delegates find their Milwaukee stays have been extended.**\
+`By Robert Chiarito`\
+https://nytimes.com/live/2024/07/19/business/global-tech-outage/some-rnc-delegates-find-their-milwaukee-stays-have-been-extended
+
 **Five Horror Movies to Stream Now**\
 `This month’s picks include Swedish evildoers, South Korean warrior-ghosts and a devil stalking the American frontier.`\
 https://nytimes.com/2024/07/19/movies/horror-movies-streaming.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/19/world/canada/canada-nato-spending.html
 **As Interest in Raw Milk Surges, New Data Sheds Light on a Major Salmonella Outbreak**\
 `At least 171 people were sickened in an outbreak linked to Raw Farm milk. Experts say the number could be far higher.`\
 https://nytimes.com/2024/07/19/well/raw-milk-health-salmonella.html
-
-**6 New Paperbacks to Read This Week**\
-`This week's selection includes titles by Jess Row, Dasha Kiper, Rachel Louise Martin and more. `\
-https://nytimes.com/interactive/2024/07/19/books/review/newpaperbacks-row.html
-
-**Trump’s Speech Didn’t Project Unity.**\
-`The New York Times Opinion columnist Jamelle Bouie points out the contradictions in Donald Trump’s convention speech.`\
-https://nytimes.com/video/opinion/100000009581799/trumps-speech-didnt-project-unity.html
-
-**Gymnastics at the 2024 Paris Olympics: Stars in the medal mix, schedule and how to watch**\
-`Will Simone Biles return to the Olympic throne? Here's what to watch, the full schedule and more for the gymnastics competition in Paris.`\
-https://nytimes.com/athletic/5646379/2024/07/19/gymnastics-paris-olympics-simone-biles-teams-schedule-watch/
 

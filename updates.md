@@ -1,3 +1,15 @@
+**The Roots of Biden’s Defiance: Anger, Fear, Pride and Regret**\
+`President Biden is still bitter about feeling pushed out of the 2016 race by Democratic elites in favor of Hillary Clinton.`\
+https://nytimes.com/2024/07/19/us/politics/biden-defiance.html
+
+**4,010**\
+`The total hours Amtrak trains were delayed in fiscal year 2023`\
+https://nytimes.com/2024/07/19/business/4010-amtrak-delays-heat.html
+
+**Some Republican delegates find their Milwaukee stays have been extended.**\
+`By Robert Chiarito`\
+https://nytimes.com/live/2024/07/19/business/global-tech-outage/some-rnc-delegates-find-their-milwaukee-stays-have-been-extended
+
 **Five Horror Movies to Stream Now**\
 `This month’s picks include Swedish evildoers, South Korean warrior-ghosts and a devil stalking the American frontier.`\
 https://nytimes.com/2024/07/19/movies/horror-movies-streaming.html
