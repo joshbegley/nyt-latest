@@ -1,6 +1,14 @@
+**Britain says it’s restoring funding to the U.N. agency that aids Palestinians.**\
+`The country’s new foreign secretary said that the agency, UNRWA, had taken steps to ensure that it meets “the highest standards of neutrality.”`\
+https://nytimes.com/2024/07/19/world/middleeast/uk-unrwa-funding-palestinians-gaza.html
+
 **Residents in the drone strike area describe ‘a crazy reality.’**\
 `By Adam Sella`\
 https://nytimes.com/live/2024/07/19/world/israel-gaza-war-hamas/residents-in-the-drone-strike-area-describe-a-crazy-reality
+
+**Rick Barry ran onto the field to meet Willie Mays. A friendship was born**\
+`Barry wore No 24 in honor of Mays' uniform number, and their unlikely first meeting created a lasting bond. `\
+https://nytimes.com/athletic/5646426/2024/07/19/willie-mays-giants-rick-barry-warriors/
 
 **The global outage has led to long lines and delays at airports around the world.**\
 `Passengers complained as the outage took down airport services and caused delays. Some airports issued handwritten boarding passes.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5640966/2024/07/19/alvaro-morata-milan-transfer-atl
 **Villa Park becomes main home ground for Aston Villa Women**\
 `Villa Park will become the main home ground for Aston Villa Women, with the club announcing that all 11 Women&#8217;s Super League (WSL) fixtures for the upcoming season will be played at the stadium.`\
 https://nytimes.com/athletic/5646907/2024/07/19/villa-park-aston-villa-women/
-
-**MLB front offices under the most pressure — and the least — this trade deadline**\
-`At this time of year, every front office decision is scrutinized. But these teams and execs are under the most pressure to make major moves.`\
-https://nytimes.com/athletic/5646694/2024/07/19/mlb-trade-deadline-front-offices-under-pressure/
-
-**These Sculptures Changed What Art Could Be, Then Changed Themselves**\
-`Eva Hesse’s latex and fiberglass pieces from the late 1960s have been reunited from five institutions. Their rapid deterioration makes their future uncertain — which may be their best quality.`\
-https://nytimes.com/2024/07/19/arts/design/eva-hesse-sculptures-hauser-wirth.html
 
