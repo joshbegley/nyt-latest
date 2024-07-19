@@ -1,3 +1,7 @@
+**Please, Please, Please …**\
+`… don’t embarrass me …`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/republican-convention-crowd
+
 **Bob Newhart Holds Up.**\
 `He basically invented the stand-up special in 1960 and continued to be a source of comic brilliance until his final years.`\
 https://nytimes.com/2024/07/18/arts/television/bob-newhart-standup-comedy.html
