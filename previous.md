@@ -1,3 +1,15 @@
+**Ben Sasse Will Step Down as President of University of Florida**\
+`The former senator from Nebraska cited the health of his wife, who has been diagnosed with epilepsy.`\
+https://nytimes.com/2024/07/18/us/ben-sasse-university-of-florida.html
+
+**“We had no inflation.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/we-had-no-inflation
+
+**“They want to raise your taxes four times.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/they-want-to-raise-your-taxes-four-times
+
 **“Democrats are going to destroy Social Security and Medicare.”**\
 `By Alan Rappeport`\
 https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/democrats-are-going-to-destroy-social-security-and-medicare
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/we-gave-y
 **Frontier Airlines Briefly Grounds All Flights Amid Microsoft Outage**\
 `A problem with Microsoft’s Azure system also hit check-in and booking systems at Allegiant and Sun Country Airlines.`\
 https://nytimes.com/2024/07/18/us/frontier-flights-grounded-microsoft.html
-
-**Young Republicans on Why Their Party Isn’t Reaching Gen Z (And What They Can Do About It)**\
-`Polls show that two-thirds of voters aged 18-24 say they don’t identify with the G.O.P. We asked young Republicans why.`\
-https://nytimes.com/video/us/elections/100000009580080/young-republicans-rnc.html
-
-**Melania and Ivanka Trump Fill Out the Family Portrait**\
-`The former president’s wife and his eldest daughter — absent from the campaign — joined him on Thursday for his acceptance of the nomination, at a convention where other close family members have been visible all week.`\
-https://nytimes.com/2024/07/18/us/politics/melania-ivanka-barron-trump.html
-
-**Large Earthquake Rocks Northern Chile**\
-`There were no immediate reports of injuries or damage after the 7.4 magnitude earthquake.`\
-https://nytimes.com/2024/07/18/world/americas/chile-earthquake-atacama.html
 

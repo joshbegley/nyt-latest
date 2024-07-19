@@ -1,3 +1,15 @@
+**Ben Sasse Will Step Down as President of University of Florida**\
+`The former senator from Nebraska cited the health of his wife, who has been diagnosed with epilepsy.`\
+https://nytimes.com/2024/07/18/us/ben-sasse-university-of-florida.html
+
+**“We had no inflation.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/we-had-no-inflation
+
+**“They want to raise your taxes four times.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/they-want-to-raise-your-taxes-four-times
+
 **“Democrats are going to destroy Social Security and Medicare.”**\
 `By Alan Rappeport`\
 https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/democrats-are-going-to-destroy-social-security-and-medicare
