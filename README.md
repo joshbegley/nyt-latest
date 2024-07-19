@@ -1,3 +1,11 @@
+**6 New Paperbacks to Read This Week**\
+`This week's selection includes titles by Jess Row, Dasha Kiper, Rachel Louise Martin and more. `\
+https://nytimes.com/interactive/2024/07/19/books/review/newpaperbacks-row.html
+
+**Trump’s Speech Didn’t Project Unity.**\
+`The New York Times Opinion columnist Jamelle Bouie points out the contradictions in Donald Trump’s convention speech.`\
+https://nytimes.com/video/opinion/100000009581799/trumps-speech-didnt-project-unity.html
+
 **Gymnastics at the 2024 Paris Olympics: Stars in the medal mix, schedule and how to watch**\
 `Will Simone Biles return to the Olympic throne? Here's what to watch, the full schedule and more for the gymnastics competition in Paris.`\
 https://nytimes.com/athletic/5646379/2024/07/19/gymnastics-paris-olympics-simone-biles-teams-schedule-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/19/travel/crowdstrike-outage-flight-delays-airports.
 **Four more House Democrats call on Biden to quit the campaign.**\
 `By Reid J. Epstein`\
 https://nytimes.com/live/2024/07/19/us/biden-election-news/four-more-house-democrats-call-on-biden-to-quit-the-campaign
-
-**A Melissa Clark Pantry Pasta to Greet the Weekend**\
-`We have all weekend for chan chan yaki and cheesy pan pizza. Friday night is for superquick pantry pasta with tuna, scallions and capers.`\
-https://nytimes.com/2024/07/19/dining/weekend-pasta-recipe.html
-
-**Howe wants to stay at Newcastle, but only if he's 'happy'**\
-`Eddie Howe &#8220;wants&#8221; to stay at Newcastle United and says he will reject any approach from England — as long as he is made to feel &#8220;happy&#8221; and is reassured about his position following a summer of upheaval at St James&#8217; Park.`\
-https://nytimes.com/athletic/5647083/2024/07/19/eddie-howe-newcastle-stay/
 
