@@ -1,3 +1,15 @@
+**How a School Bus Electrified a Reporter’s Hometown**\
+`Dionne Searcey traveled to Wymore, Neb., where she grew up, to learn about some residents’ resistance to a new battery-powered bus.`\
+https://nytimes.com/2024/07/19/insider/how-a-school-bus-electrified-a-reporters-hometown.html
+
+**West Ham have £15m verbal offer for Kante rejected by Al Ittihad**\
+`West Ham United had a verbal offer in the region of £15million for N&#8217;Golo Kante rejected by Al Ittihad on Thursday.`\
+https://nytimes.com/athletic/5647962/2024/07/19/ngolo-kante-west-ham-transfers/
+
+**A Tech Outage Caused Disruptions Worldwide**\
+`Also, Biden vowed to press on as more allies said he should quit. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/07/19/briefing/tech-outage-worldwide-biden-next-move.html
+
 **From Honor Student to the Gunman Who Tried to Kill Donald Trump**\
 `Thomas Crooks was a brainy and quiet young man who built computers and won honors at school, impressing his teachers. Then he became a would-be assassin.`\
 https://nytimes.com/2024/07/19/us/gunman-thomas-crooks-trump-shooting.html

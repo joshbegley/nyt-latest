@@ -1,3 +1,15 @@
+**How a School Bus Electrified a Reporter’s Hometown**\
+`Dionne Searcey traveled to Wymore, Neb., where she grew up, to learn about some residents’ resistance to a new battery-powered bus.`\
+https://nytimes.com/2024/07/19/insider/how-a-school-bus-electrified-a-reporters-hometown.html
+
+**West Ham have £15m verbal offer for Kante rejected by Al Ittihad**\
+`West Ham United had a verbal offer in the region of £15million for N&#8217;Golo Kante rejected by Al Ittihad on Thursday.`\
+https://nytimes.com/athletic/5647962/2024/07/19/ngolo-kante-west-ham-transfers/
+
+**A Tech Outage Caused Disruptions Worldwide**\
+`Also, Biden vowed to press on as more allies said he should quit. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/07/19/briefing/tech-outage-worldwide-biden-next-move.html
+
 **From Honor Student to the Gunman Who Tried to Kill Donald Trump**\
 `Thomas Crooks was a brainy and quiet young man who built computers and won honors at school, impressing his teachers. Then he became a would-be assassin.`\
 https://nytimes.com/2024/07/19/us/gunman-thomas-crooks-trump-shooting.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5647901/2024/07/19/max-homa-open-championship-cut/
 **Ravens sign S Eddie Jackson to 1-year deal**\
 `The Ravens lost their No. 3 safety, Geno Stone, in free agency and they’ve been in the market for a potential replacement.`\
 https://nytimes.com/athletic/5647835/2024/07/19/ravens-sign-eddie-jackson/
-
-**Bobby Grier, Who Integrated the Sugar Bowl in 1956, Dies at 91**\
-`The governor of Georgia tried to ban him from the game, but the state’s Board of Regents let him play. ‘Stupid. Why did the governor have to jump into sports?’ Grier asked years later.`\
-https://nytimes.com/2024/07/19/sports/ncaafootball/bobby-grier-dead.html
-
-**Houthis Launch Deadly Drone Strike on Tel Aviv, Evading Israel’s Defenses**\
-`At least one person was killed and eight others injured in a predawn attack on Friday. The Israeli military said it was investigating why it “did not identify it, attack it and intercept it.”`\
-https://nytimes.com/2024/07/19/world/middleeast/houthis-drone-strike-tel-aviv.html
-
-**Corporate Workers Get a Snow Day in July Because of Outage**\
-`“Happy international blue screen day.”`\
-https://nytimes.com/2024/07/19/business/crowdstrike-microsoft-outage-corporate-workers.html
 
