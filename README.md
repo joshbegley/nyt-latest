@@ -26,7 +26,7 @@ https://nytimes.com/athletic/5645653/2024/07/19/erik-ten-hag-ineos-manchester-un
 `Students, armed mainly with sticks, have been demonstrating for days against a quota system for government jobs they consider unfair. At least 19 people have died.`\
 https://nytimes.com/2024/07/19/world/asia/bangladesh-protests-photos.html
 
-**Worldwide Tech Outage Hits Businesses and Grounds Flights**\
+**What to know about the outages.**\
 `Airlines, banks and broadcasters reported disruptions, citing technical issues.`\
 https://nytimes.com/live/2024/07/19/us/global-tech-outage/crowdstrike-outage-flights-banks
 
