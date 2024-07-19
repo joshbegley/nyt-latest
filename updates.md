@@ -1,3 +1,7 @@
+**‘Find Me Falling’ Review: A Romance With an Edge**\
+`Harry Connick Jr. stars as a cranky rocker who returns to Cyprus, the home of the love who inspired a signature hit.`\
+https://nytimes.com/2024/07/18/movies/find-me-falling-review.html
+
 **Between speakers, the house band keeps the crowd entertained.**\
 `By Nick Corasaniti`\
 https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/between-speakers-the-house-band-keeps-the-crowd-entertained
