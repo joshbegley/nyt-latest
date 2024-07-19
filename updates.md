@@ -1,3 +1,7 @@
+**Palace exploring transfer for Marseille winger Sarr**\
+`Crystal Palace are exploring the possibility of signing Marseille winger Ismaila Sarr with initial talks taking place between the clubs.`\
+https://nytimes.com/athletic/5647662/2024/07/19/ismaila-sarr-crystal-palace-transfers/
+
 **In Paris, an Apartment With Views That Look Like Postcards**\
 `A design duo transformed part of a historic building into a home that foregrounds the city’s splendor.`\
 https://nytimes.com/2024/07/19/t-magazine/paris-apartment-rooftop-triplex.html

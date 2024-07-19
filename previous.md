@@ -1,3 +1,7 @@
+**Palace exploring transfer for Marseille winger Sarr**\
+`Crystal Palace are exploring the possibility of signing Marseille winger Ismaila Sarr with initial talks taking place between the clubs.`\
+https://nytimes.com/athletic/5647662/2024/07/19/ismaila-sarr-crystal-palace-transfers/
+
 **In Paris, an Apartment With Views That Look Like Postcards**\
 `A design duo transformed part of a historic building into a home that foregrounds the city’s splendor.`\
 https://nytimes.com/2024/07/19/t-magazine/paris-apartment-rooftop-triplex.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/19/business/global-tech-outage/us-airlines-must
 **Review: A Chameleon’s Dance at Little Island**\
 `Pam Tanowitz’s “Day for Night” flows with and against the current of its surroundings, reflecting the park’s strange mix of the natural and man-made.`\
 https://nytimes.com/2024/07/19/arts/dance/review-pam-tanowitz-day-for-night.html
-
-**Hospitals Cancel Nonessential Surgeries After Global Technology Outage**\
-`Hospital systems across the country reported I.T. disruptions. A spokesman for Kaiser Permanente called the situation “unprecedented.”`\
-https://nytimes.com/2024/07/19/business/hospitals-cancel-nonessential-surgeries-global-technology-outage.html
 
