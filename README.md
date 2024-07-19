@@ -1,3 +1,7 @@
+**Global Court Set to Weigh In on Israel’s Occupation of Palestinian Territories**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/2024/07/19/world/middleeast/global-court-set-to-weigh-in-on-israels-occupation-of-palestinian-territories.html
+
 **Houthis Claim Responsibility for Deadly Drone Attack in Tel Aviv**\
 `The drone crashed into a building near the U.S. consulate early Friday, killing at least one person.`\
 https://nytimes.com/live/2024/07/19/world/israel-gaza-war-hamas
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/nyregion/can-new-york-city-ever-win-its-war-again
 **She Danced Naked at Woodstock. She Dated Serpico. At 93, She’s Not Done.**\
 `Betty Gordon came to New York to become an actress (and have a good time). But her greatest talent may have been helping others.`\
 https://nytimes.com/2024/07/19/nyregion/nyc-betty-gordon-stoned-crow.html
-
-**Wordle Review No. 1,127, Saturday, July 20, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/19/crosswords/wordle-review-1127.html
 
