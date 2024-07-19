@@ -1,3 +1,15 @@
+**Putin Counted on Waning U.S. Interest in Ukraine. It Might Be a Winning Bet.**\
+`The arc of American foreign policy could be moving closer to the Russian president’s view of it. But he has been wrong before about the U.S.`\
+https://nytimes.com/2024/07/19/world/europe/putin-russia-ukraine-trump-election.html
+
+**Russian Court to Deliver Verdict on Evan Gershkovich**\
+`The case against him has been repeatedly denounced by his employer, The Wall Street Journal, and the United States, but a verdict could set the stage for a prisoner exchange.`\
+https://nytimes.com/2024/07/19/world/europe/russia-court-evan-gershkovich-verdict.html
+
+**Tech Outage Strands Passengers at Airports Around the U.S.**\
+`Flights were grounded or canceled across the country as airlines struggled with the outage.`\
+https://nytimes.com/2024/07/19/travel/tech-outage-us-airlines-ground-stops.html
+
 **Sell Reynaldo Lopez, buy Pablo Lopez and more fantasy baseball deals to make for the second half**\
 `Michael Salfino points out the pitchers fantasy managers should be looking to acquire or trade away at the outset of the second half.`\
 https://nytimes.com/athletic/5646080/2024/07/19/fantasy-baseball-buy-low-sell-high-pitchers-second-half/
