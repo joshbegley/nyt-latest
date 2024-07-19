@@ -1,3 +1,15 @@
+**Biden’s Successful Border Policy Is a Mixed Blessing**\
+`Migrant crossings have sharply declined. Why didn’t he do this earlier?`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-asylum-migrants-crossings
+
+**Man United exploring deal to sign youth striker Obi-Martin from Arsenal**\
+`Manchester United are exploring a deal to sign youth striker Chido Obi-Martin following the expiry of his schoolboy terms at Arsenal.`\
+https://nytimes.com/athletic/5647749/2024/07/19/chido-obi-martin-manchester-united-arsenal-transfer/
+
+**'No doubt here': Bears put their trust in Caleb Williams from Day 1**\
+`Williams and the Bears start practices on Saturday. Unlike Mitch Trubisky and Justin Fields, he begins as the undisputed No. 1 quarterback.`\
+https://nytimes.com/athletic/5647765/2024/07/19/caleb-williams-bears-training-camp-begins/
+
 **Submit your Yankees trade proposals for Jim Bowden's next mailbag**\
 `With the trade deadline fast-approaching, we want to hear your trade proposals that will help the Yankees address their needs.`\
 https://nytimes.com/athletic/5647839/2024/07/19/yankees-trade-questions/
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2024/07/19/technology/crowdstrike-outage-explain
 **Shane Lowry leads, Justin Rose tied for second after Round 2 of Open Championship**\
 `Shane Lowry, Daniel Brown and Justin Rose out front going into Saturday.`\
 https://nytimes.com/athletic/5647761/2024/07/19/justin-rose-open-championship-round-2/
-
-**Greenberg: Bears tight end Cole Kmet knows it's time for the team to start winning**\
-`Kmet, who has always been upbeat, is ready for the Bears to meet lofty expectations. “We’ve got to get this thing going quickly," he said.`\
-https://nytimes.com/athletic/5647705/2024/07/19/chicago-bears-cole-kmet-training-camp/
-
-**My Favorite Sign in Milwaukee**\
-`A lasting reminder.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/milwaukee-sign-biden-infrastructure
-
-**The Best Lip Balms**\
-`We tried more than 80 to find the six best.`\
-https://nytimes.com/interactive/2024/07/19/smarter-living/wirecutter/best-lip-balms.html
 
