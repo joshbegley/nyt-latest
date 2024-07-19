@@ -1,3 +1,7 @@
+**What I'm hearing on the Eagles: Nick Sirianni's job security, relationship with Hurts and more**\
+`Why last year's offensive coordinator is out, who made the call on the new coordinator hires, and just how long is Sirianni’s leash?`\
+https://nytimes.com/athletic/5647091/2024/07/19/eagles-nick-sirianni-job-security-jalen-hurts-howie-roseman-dynamic/
+
 **Melania Trump, Bandages and Patriotism: The Most Effective Trump Accessories**\
 `As the Republican National Convention drew to a close, it painted a red, white and blue picture.`\
 https://nytimes.com/2024/07/19/style/rnc-ear-bandages-melania-trump.html
