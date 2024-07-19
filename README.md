@@ -1,3 +1,11 @@
+**11 Days in July: Inside the All-Out Push to Save the Biden Campaign**\
+`President Biden has repeatedly tried to erase the concerns over his age and mental acuity. But nothing has changed the narrative.`\
+https://nytimes.com/2024/07/19/us/politics/biden-democrats-campaign.html
+
+**Donald Trump Promised a Softer Image. He Delivered Hulkamania.**\
+`The last night of the Republican National Convention featured glimpses of a more sober tone — and a whole lot of testosterone.`\
+https://nytimes.com/2024/07/19/arts/television/donald-trump-rnc.html
+
 **'See Her, Be Her': New documentary aims to create more chances for women in baseball**\
 `Cal Ripken Jr., Ichiro Suzuki and Ken Griffey Jr., among other MLB stars, lent their support to the project. `\
 https://nytimes.com/athletic/5645425/2024/07/19/documentary-women-baseball-see-her-be-her/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/19/us/biden-election-news/a-group-urging-biden-
 **‘Hello, Dolly!’ Review: Imelda Staunton Has the Wow, Wow, Wow Factor**\
 `The veteran British actress shines in a new revival that is the musical theater highlight of the West End summer.`\
 https://nytimes.com/2024/07/19/theater/hello-dolly-imelda-staunton.html
-
-**Spanish FA names 11 proposed 2030 World Cup stadiums**\
-`The Spanish Football Association (RFEF) has announced the 11 stadiums proposed to host matches at the 2030 World Cup.`\
-https://nytimes.com/athletic/5646984/2024/07/19/2030-world-cup-stadiums-spain-where/
-
-**Durant practices with Team USA for first time after calf strain**\
-`Durant, USA Basketball’s all-time leading scorer, was injured in a workout days before the start of camp on July 6.`\
-https://nytimes.com/athletic/5647038/2024/07/19/kevin-durant-team-usa-olympics-practice-status/
 
