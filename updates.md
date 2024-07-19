@@ -1,3 +1,11 @@
+**6 New Paperbacks to Read This Week**\
+`This week's selection includes titles by Jess Row, Dasha Kiper, Rachel Louise Martin and more. `\
+https://nytimes.com/interactive/2024/07/19/books/review/newpaperbacks-row.html
+
+**Trump’s Speech Didn’t Project Unity.**\
+`The New York Times Opinion columnist Jamelle Bouie points out the contradictions in Donald Trump’s convention speech.`\
+https://nytimes.com/video/opinion/100000009581799/trumps-speech-didnt-project-unity.html
+
 **Gymnastics at the 2024 Paris Olympics: Stars in the medal mix, schedule and how to watch**\
 `Will Simone Biles return to the Olympic throne? Here's what to watch, the full schedule and more for the gymnastics competition in Paris.`\
 https://nytimes.com/athletic/5646379/2024/07/19/gymnastics-paris-olympics-simone-biles-teams-schedule-watch/
