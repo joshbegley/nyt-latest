@@ -1,3 +1,7 @@
+**Six Takeaways From the Republican Convention**\
+`Donald J. Trump ended a buoyant gathering in Milwaukee with a speech that started solemn, turned rambling and showcased his all-encompassing power over his party.`\
+https://nytimes.com/2024/07/19/us/politics/rnc-trump-takeaways.html
+
 **Accepting the Republican Nomination, Trump Preaches Unity, Then Reverts to Attacks**\
 `Donald J. Trump, closing a convention that had sought to soften his image and portray him as the leader of an inclusive movement, began with a sober retelling of an assassination attempt but pivoted to grudges and vilifying Democrats.`\
 https://nytimes.com/2024/07/19/us/politics/trump-nomination-speech.html
