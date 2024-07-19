@@ -1,3 +1,27 @@
+**Friday Briefing**\
+`A pivotal moment in the White House race.`\
+https://nytimes.com/2024/07/19/briefing/trump-biden-gaza-france.html
+
+**'Everton took me at 20 and looked after me - I know exactly what this club means to people'**\
+`Seamus Coleman is Everton. He has signed for another season and believes in a brighter future - he's determined to go out on a high`\
+https://nytimes.com/athletic/5643821/2024/07/19/seamus-coleman-everton-sean-dyche/
+
+**Seattle Police Officer Fired Over ‘Cruel Comments’ About Pedestrian’s Death**\
+`The officer, Daniel Auderer, was heard laughing as he discussed Jaahnavi Kandula, who was struck and killed by a speeding police S.U.V. driven by another Seattle officer.`\
+https://nytimes.com/2024/07/19/us/seattle-police-jaahnavi-kandula-death.html
+
+**What to expect from Arsenal's pre-season tour of the United States**\
+`Which players are going, who'll be missing and what should fans look out for as Arsenal head back to the USA?`\
+https://nytimes.com/athletic/5644312/2024/07/19/arsenal-tour-united-states/
+
+**Marc Albrighton looks back on his 10 years at Leicester: 'We were going into the unknown'**\
+`How it felt winning the league and FA Cup, the best manager he worked with, and his MLS ambition`\
+https://nytimes.com/athletic/5614460/2024/07/19/marc-albrighton-interview-leicester-city/
+
+**Trump Goes Off the Rails. This Guy Is Still Beatable.**\
+`His speech was thin on unity and heavy on the unhinged.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/trump-convention-speech
+
 **Jake Wightman interview: 'Britain is the best middle-distance nation in the world'**\
 `The 800m runner on his hopes for the Paris Olympics`\
 https://nytimes.com/athletic/5643329/2024/07/19/jake-wightman-interview-olympics-800m/
@@ -13,28 +37,4 @@ https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/probably-
 **Arda Turan exclusive: 'My team will change football in Turkey'**\
 `Former Turkey playmaker played for some of the greatest teams in Spain - and now he could be on his way to becoming a brilliant coach`\
 https://nytimes.com/athletic/5542407/2024/07/19/arda-turan-atletico-barcelona-eyupspor/
-
-**Best transfers so far: Yoro, Zirkzee, Gray, Savinho - who's leading The Athletic 500 ratings?**\
-`From Savinho to Archie Gray to Joshua Zirkzee, we rate this summer's Premier League transfers - how do their scores out of 500 compare?`\
-https://nytimes.com/athletic/5620142/2024/07/19/transfer-ratings-yoro-zirkzee-premier-league/
-
-**England manager search: What should the FA be looking for in Southgate's successor?**\
-`The FA is in a rare position of strength, but now has a huge responsibility to pick the right person to take over the men’s national team`\
-https://nytimes.com/athletic/5642055/2024/07/19/england-manager-southgate-fa/
-
-**Searing pace, daring dribbles, similarities to Sane - what Savinho will bring to City**\
-`The 20-year-old Brazilian starred for Girona - he is an anomaly in today's game: a left-footed left winger, with pace to burn`\
-https://nytimes.com/athletic/5257342/2024/07/19/who-is-savinho/
-
-**Mbappe at Real - how does he fit in with Bellingham, Vinicius Jr and Rodrygo?**\
-`Carlo Ancelotti will have to find a way to fit Mbappe in alongside an all-star cast of forwards - this is how he could do it`\
-https://nytimes.com/athletic/5644938/2024/07/19/kylian-mbappe-real-madrid-tactics/
-
-**“Our opponents inherited a planet at peace and turned in into a planet at war.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/our-opponents-inherited-a-planet-at-peace-and-turned-in-into-a-planet-at-war
-
-**“Our planet is teetering on the edge of World War III, and this will be a war like no other.”**\
-`By John Ismay`\
-https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/our-planet-is-teetering-on-the-edge-of-world-war-iii-and-this-will-be-a-war-like-no-other
 
