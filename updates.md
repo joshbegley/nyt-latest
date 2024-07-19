@@ -1,3 +1,11 @@
+**Pacific Northwest Braces for a Blistering Heat Wave Over the Weekend**\
+`The heat index, an indicator of temperature and humidity, could reach triple digits, well above what is typical for the region.`\
+https://nytimes.com/2024/07/19/us/heat-wave-forecast-pacific-northwest.html
+
+**The Open’s most unlikely contender is the son of a pig farmer who almost quit golf**\
+`Brown, a 29-year-old Englishman playing his first career major, came close to quitting professional golf five years ago.`\
+https://nytimes.com/athletic/5647829/2024/07/19/daniel-brown-the-open-contender-golf/
+
 **Biden’s Successful Border Policy Is a Mixed Blessing**\
 `Migrant crossings have sharply declined. Why didn’t he do this earlier?`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-asylum-migrants-crossings
