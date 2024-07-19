@@ -1,3 +1,7 @@
+**What’s Left for France’s Left?**\
+`Since winning legislative elections, a coalition of left-wing parties has done little more than squabble. Now some wonder whether it will have any power at all.`\
+https://nytimes.com/2024/07/19/world/europe/france-left-wing-party.html
+
 **Why a security update to Microsoft devices disrupted the economy.**\
 `By Cecilia Kang`\
 https://nytimes.com/live/2024/07/19/business/global-tech-outage/why-microsoft-matters
