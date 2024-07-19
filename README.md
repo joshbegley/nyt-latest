@@ -1,3 +1,11 @@
+**Ocasio-Cortez Warns of ‘Enormous Peril’ if Democrats Push Biden Aside**\
+`Representative Alexandria Ocasio-Cortez said the idea of having an open Democratic convention where candidates would compete for the nomination was “crazy.”`\
+https://nytimes.com/2024/07/19/us/politics/aoc-biden-dnc.html
+
+**See How the Global Tech Outage Disrupted Airlines, Subways and More**\
+`See how chaotic moments played out on Friday.`\
+https://nytimes.com/2024/07/19/homepage/global-crowdstrike-outage-photos.html
+
 **The Roots of Biden’s Defiance: Anger, Fear, Pride and Regret**\
 `President Biden is still bitter about feeling pushed out of the 2016 race by Democratic elites in favor of Hillary Clinton.`\
 https://nytimes.com/2024/07/19/us/politics/biden-defiance.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5647409/2024/07/19/mason-greenwood-marseille-manche
 **La Familia team returns to Kentucky to face some unfinished business**\
 `La Familia's roster is loaded and focused on winning a title in The Basketball Tournament.`\
 https://nytimes.com/athletic/5647219/2024/07/19/kentucky-basketball-la-familia-the-basketball-tournament/
-
-**Canada Pledges to Meet NATO Spending Goal. It Won’t Be Easy.**\
-`The country’s struggle to reach an informal military spending target highlights how difficult it is for the alliance to quickly bolster its abilities.`\
-https://nytimes.com/2024/07/19/world/canada/canada-nato-spending.html
-
-**As Interest in Raw Milk Surges, New Data Sheds Light on a Major Salmonella Outbreak**\
-`At least 171 people were sickened in an outbreak linked to Raw Farm milk. Experts say the number could be far higher.`\
-https://nytimes.com/2024/07/19/well/raw-milk-health-salmonella.html
 
