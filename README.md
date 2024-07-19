@@ -1,3 +1,19 @@
+**Portland Thorns name Rob Gale as head coach after 12 games in interim role**\
+`Gale's short tenure has included a six-game winning streak.`\
+https://nytimes.com/athletic/5647798/2024/07/19/portland-thorns-rob-gale-head-coach/
+
+**How a Software Update Crashed Computers Around the World**\
+`Here’s a visual explanation for how a faulty software update crippled machines.`\
+https://nytimes.com/interactive/2024/07/19/technology/crowdstrike-outage-explained.html
+
+**Shane Lowry leads, Justin Rose tied for second after Round 2 of Open Championship**\
+`Shane Lowry, Daniel Brown and Justin Rose out front going into Saturday.`\
+https://nytimes.com/athletic/5647761/2024/07/19/justin-rose-open-championship-round-2/
+
+**Greenberg: Bears tight end Cole Kmet knows it's time for the team to start winning**\
+`Kmet, who has always been upbeat, is ready for the Bears to meet lofty expectations. “We’ve got to get this thing going quickly," he said.`\
+https://nytimes.com/athletic/5647705/2024/07/19/chicago-bears-cole-kmet-training-camp/
+
 **My Favorite Sign in Milwaukee**\
 `A lasting reminder.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/milwaukee-sign-biden-infrastructure
@@ -21,20 +37,4 @@ https://nytimes.com/2024/07/19/us/politics/michael-moritz-biden.html
 **Palace exploring transfer for Marseille winger Sarr**\
 `Crystal Palace are exploring the possibility of signing Marseille winger Ismaila Sarr with initial talks taking place between the clubs.`\
 https://nytimes.com/athletic/5647662/2024/07/19/ismaila-sarr-crystal-palace-transfers/
-
-**In Paris, an Apartment With Views That Look Like Postcards**\
-`A design duo transformed part of a historic building into a home that foregrounds the city’s splendor.`\
-https://nytimes.com/2024/07/19/t-magazine/paris-apartment-rooftop-triplex.html
-
-**I Keep the Family Tree — And I’m Flummoxed About Whom to Include.**\
-`The magazine’s Ethicist columnist on genealogy, record-keeping and notions of relation.`\
-https://nytimes.com/2024/07/19/magazine/family-tree-record-ethics.html
-
-**Trump’s Misguided Fascination with Tariffs**\
-`Trump talks about how great William McKinley was for raising tariffs, but what worked in 1896 isn’t what works in 2024.`\
-https://nytimes.com/2024/07/19/opinion/trump-vance-tariffs.html
-
-**Isolation and Secrecy: What We Know About Russia’s Notorious Penal Colonies**\
-`Evan Gershkovich, The Wall Street Journal reporter, was convicted on fabricated charges and is expected to serve time in one of the country’s infamous prisons.`\
-https://nytimes.com/2024/07/19/world/europe/russia-gershkovich-penal-colony.html
 

@@ -1,3 +1,11 @@
+**My Favorite Sign in Milwaukee**\
+`A lasting reminder.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/milwaukee-sign-biden-infrastructure
+
+**The Best Lip Balms**\
+`We tried more than 80 to find the six best.`\
+https://nytimes.com/interactive/2024/07/19/smarter-living/wirecutter/best-lip-balms.html
+
 **Check, Please: The Pete Wells Exit Interview**\
 `Why our food critic tossed the fake glasses and quit his dream job.`\
 https://nytimes.com/2024/07/19/podcasts/pete-wells-check-please.html
