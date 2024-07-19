@@ -1,3 +1,7 @@
+**Tommy Robinson, Colorful Arkansas Sheriff and Congressman, Dies at 82**\
+`He gained national attention for his unorthodox approaches to policing in Little Rock and then went on to win three terms in the House of Representatives.`\
+https://nytimes.com/2024/07/19/us/politics/tommy-robinson-dead.html
+
 **Portland Thorns name Rob Gale as head coach after 12 games in interim role**\
 `Gale's short tenure has included a six-game winning streak.`\
 https://nytimes.com/athletic/5647798/2024/07/19/portland-thorns-rob-gale-head-coach/

@@ -1,3 +1,7 @@
+**Tommy Robinson, Colorful Arkansas Sheriff and Congressman, Dies at 82**\
+`He gained national attention for his unorthodox approaches to policing in Little Rock and then went on to win three terms in the House of Representatives.`\
+https://nytimes.com/2024/07/19/us/politics/tommy-robinson-dead.html
+
 **Portland Thorns name Rob Gale as head coach after 12 games in interim role**\
 `Gale's short tenure has included a six-game winning streak.`\
 https://nytimes.com/athletic/5647798/2024/07/19/portland-thorns-rob-gale-head-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/us/politics/biden-virtual-roll-call-vote.html
 **Michael Moritz, Democratic Megadonor, Urges Biden Exit: ‘Clock Has Run Out’**\
 `Mr. Moritz became one of the party’s top contributors to go public with his fears about the president’s candidacy, saying that Mr. Biden had a choice: “vanity or virtue.”`\
 https://nytimes.com/2024/07/19/us/politics/michael-moritz-biden.html
-
-**Palace exploring transfer for Marseille winger Sarr**\
-`Crystal Palace are exploring the possibility of signing Marseille winger Ismaila Sarr with initial talks taking place between the clubs.`\
-https://nytimes.com/athletic/5647662/2024/07/19/ismaila-sarr-crystal-palace-transfers/
 
