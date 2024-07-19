@@ -1,3 +1,11 @@
+**At ‘Slave Play’ in London, a ‘Black Out’ Night Emerges From Controversy**\
+`Critics slammed the idea of “restricting audiences on the basis of race,” but at a recent performance, Black spectators praised producers for creating a safe space.`\
+https://nytimes.com/2024/07/19/theater/slave-play-black-out-london.html
+
+**Unai Simon set to be out for four months after wrist surgery**\
+`Athletic Bilbao goalkeeper Unai Simon is set to be sidelined for four months following wrist surgery.`\
+https://nytimes.com/athletic/5646897/2024/07/19/unai-simon-wrist-injury/
+
 **The Pulse: An All-Star Game that actually matters**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5646037/2024/07/19/wnba-all-star-game-olympics-the-pulse/

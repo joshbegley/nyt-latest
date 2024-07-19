@@ -1,10 +1,18 @@
-**The Pulse: An All-Star Game that actually matters**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5646037/2024/07/19/wnba-all-star-game-olympics-the-pulse/
+**At ‘Slave Play’ in London, a ‘Black Out’ Night Emerges From Controversy**\
+`Critics slammed the idea of “restricting audiences on the basis of race,” but at a recent performance, Black spectators praised producers for creating a safe space.`\
+https://nytimes.com/2024/07/19/theater/slave-play-black-out-london.html
 
 **What Is CrowdStrike?**\
 `CrowdStrike’s cybersecurity software is used by scores of industries, including airlines, hospitals and retailers, to prevent hacks and data breaches.`\
 https://nytimes.com/2024/07/19/business/what-is-crowdstrike.html
+
+**Unai Simon set to be out for four months after wrist surgery**\
+`Athletic Bilbao goalkeeper Unai Simon is set to be sidelined for four months following wrist surgery.`\
+https://nytimes.com/athletic/5646897/2024/07/19/unai-simon-wrist-injury/
+
+**The Pulse: An All-Star Game that actually matters**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5646037/2024/07/19/wnba-all-star-game-olympics-the-pulse/
 
 **What We Know About the Global Outage**\
 `Everything from airlines to banks to retailers were impacted in many countries.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5645697/2024/07/19/vikings-fan-survey-jj-mccarthy/
 **Cubs' Dansby Swanson hopes struggles are over: 'I've basically become better for it'**\
 `Swanson is working hard to get back to his best self at the plate. There have been flashes lately.`\
 https://nytimes.com/athletic/5646477/2024/07/19/cubs-dansby-swanson-first-half-struggles/
-
-**Hollinger: Biggest and best cap-nerd moves of the 2024 NBA offseason**\
-`This summer has seen more creative cap-circumventing shenanigans than normal, but these stood out the most.`\
-https://nytimes.com/athletic/5644837/2024/07/19/nba-offseason-sixers-knicks-lebron-lakers/
-
-**Twins teammates remember Joe Mauer's qualities and quirks as he enters Hall of Fame**\
-`Those who played with Mauer found themselves mimicking his consistency, even when it came to their daily meal choices.`\
-https://nytimes.com/athletic/5646389/2024/07/19/baseball-hall-of-fame-2024-joe-mauer/
 
