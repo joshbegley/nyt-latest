@@ -1,3 +1,11 @@
+**Melania and Ivanka Trump Fill Out the Family Portrait**\
+`The former president’s wife and his eldest daughter — absent from the campaign — joined him on Thursday for his acceptance of the nomination, at a convention where other close family members have been visible all week.`\
+https://nytimes.com/2024/07/18/us/politics/melania-ivanka-barron-trump.html
+
+**Large Earthquake Rocks Northern Chile**\
+`There were no immediate reports of injuries or damage after the 7.4 magnitude earthquake.`\
+https://nytimes.com/2024/07/18/world/americas/chile-earthquake-atacama.html
+
 **Israeli Military Says It Is Investigating Explosion in Tel Aviv**\
 `The cause of the blast was not immediately clear, but the military said it was looking into reports that there had been “an aerial target.”`\
 https://nytimes.com/2024/07/18/world/middleeast/israel-tel-aviv-explosion.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/18/us/politics/tucker-carlson-convention-speech.html
 **“He slashed regulations.”**\
 `By Lisa Friedman`\
 https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/he-slashed-regulations
-
-**“In 2019, I was with him at the United Nations when the first president of history of this country stood there to advocate for religious liberty worldwide.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/in-2019-i-was-with-him-at-the-united-nations-when-the-first-president-of-history-of-this-country-stood-there-to-advocate-for-rel
-
-**Head and Shoulders Above the Rest**\
-`Finding your way into Jacob McDermott’s puzzle may be a challenge.`\
-https://nytimes.com/2024/07/18/crosswords/daily-puzzle-2024-07-19.html
 

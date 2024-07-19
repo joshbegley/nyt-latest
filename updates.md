@@ -1,3 +1,11 @@
+**Melania and Ivanka Trump Fill Out the Family Portrait**\
+`The former president’s wife and his eldest daughter — absent from the campaign — joined him on Thursday for his acceptance of the nomination, at a convention where other close family members have been visible all week.`\
+https://nytimes.com/2024/07/18/us/politics/melania-ivanka-barron-trump.html
+
+**Large Earthquake Rocks Northern Chile**\
+`There were no immediate reports of injuries or damage after the 7.4 magnitude earthquake.`\
+https://nytimes.com/2024/07/18/world/americas/chile-earthquake-atacama.html
+
 **Israeli Military Says It Is Investigating Explosion in Tel Aviv**\
 `The cause of the blast was not immediately clear, but the military said it was looking into reports that there had been “an aerial target.”`\
 https://nytimes.com/2024/07/18/world/middleeast/israel-tel-aviv-explosion.html
