@@ -1,3 +1,7 @@
+**The Best of Late Night This Week**\
+`Late night was subdued on Monday, after a gunman tried to kill former President Trump. Later in the week, the hosts discussed the R.N.C., J.D. Vance and Matt Gaetz.`\
+https://nytimes.com/interactive/2024/07/19/arts/television/best-of-late-night-jd-vance.html
+
 **UEFA investigating Spain players' Gibraltar chant**\
 `UEFA has opened a disciplinary investigation into Spain players Rodri and Alvaro Morata over their &#8216;Gibraltar is Spanish&#8217; chants during the nation&#8217;s Euro 2024 celebrations in Madrid.`\
 https://nytimes.com/athletic/5647300/2024/07/19/spain-gibraltar-euro-2024-chant/
