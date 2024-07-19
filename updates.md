@@ -1,3 +1,11 @@
+**Five Horror Movies to Stream Now**\
+`This month’s picks include Swedish evildoers, South Korean warrior-ghosts and a devil stalking the American frontier.`\
+https://nytimes.com/2024/07/19/movies/horror-movies-streaming.html
+
+**Everton takeover: Why the Friedkin Group deal is off and what happens now?**\
+`Everton are back to square one following the Friedkin Group's decision to withdraw their takeover bid, with uncertainty flooding back`\
+https://nytimes.com/athletic/5646879/2024/07/19/everton-friedkin-takeover-off-explained/
+
 **911 Systems Disrupted in at Least 3 States**\
 `Emergency call lines were operating in most major cities, but the authorities in Oregon, Alaska and Arizona said some of their systems had been hit by the outage.`\
 https://nytimes.com/2024/07/19/business/emergency-911-calls-tech-outage.html

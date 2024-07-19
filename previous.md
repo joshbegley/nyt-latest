@@ -1,3 +1,11 @@
+**Five Horror Movies to Stream Now**\
+`This month’s picks include Swedish evildoers, South Korean warrior-ghosts and a devil stalking the American frontier.`\
+https://nytimes.com/2024/07/19/movies/horror-movies-streaming.html
+
+**Everton takeover: Why the Friedkin Group deal is off and what happens now?**\
+`Everton are back to square one following the Friedkin Group's decision to withdraw their takeover bid, with uncertainty flooding back`\
+https://nytimes.com/athletic/5646879/2024/07/19/everton-friedkin-takeover-off-explained/
+
 **911 Systems Disrupted in at Least 3 States**\
 `Emergency call lines were operating in most major cities, but the authorities in Oregon, Alaska and Arizona said some of their systems had been hit by the outage.`\
 https://nytimes.com/2024/07/19/business/emergency-911-calls-tech-outage.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/opinion/100000009581799/trumps-speech-didnt-project-un
 **Gymnastics at the 2024 Paris Olympics: Stars in the medal mix, schedule and how to watch**\
 `Will Simone Biles return to the Olympic throne? Here's what to watch, the full schedule and more for the gymnastics competition in Paris.`\
 https://nytimes.com/athletic/5646379/2024/07/19/gymnastics-paris-olympics-simone-biles-teams-schedule-watch/
-
-**Lawsuits Mount Over Software Used by Landlords to Set Rents**\
-`Antitrust cases contend that use of RealPage’s algorithm, which lets property owners share private data, amounts to collusion.`\
-https://nytimes.com/2024/07/19/business/economy/rent-prices-realpage-lawsuit.html
-
-**Biden Administration Pauses Student Loan Payments Amid Legal Challenges**\
-`Eight million borrowers enrolled in the repayment plan known as SAVE will be placed in an interest-free forbearance while the administration deals with legal issues.`\
-https://nytimes.com/2024/07/19/business/biden-student-loans-save-pause.html
 
