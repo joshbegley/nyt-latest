@@ -1,3 +1,15 @@
+**Biden’s Successful Border Policy Is a Mixed Blessing**\
+`Migrant crossings have sharply declined. Why didn’t he do this earlier?`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-asylum-migrants-crossings
+
+**Man United exploring deal to sign youth striker Obi-Martin from Arsenal**\
+`Manchester United are exploring a deal to sign youth striker Chido Obi-Martin following the expiry of his schoolboy terms at Arsenal.`\
+https://nytimes.com/athletic/5647749/2024/07/19/chido-obi-martin-manchester-united-arsenal-transfer/
+
+**'No doubt here': Bears put their trust in Caleb Williams from Day 1**\
+`Williams and the Bears start practices on Saturday. Unlike Mitch Trubisky and Justin Fields, he begins as the undisputed No. 1 quarterback.`\
+https://nytimes.com/athletic/5647765/2024/07/19/caleb-williams-bears-training-camp-begins/
+
 **Submit your Yankees trade proposals for Jim Bowden's next mailbag**\
 `With the trade deadline fast-approaching, we want to hear your trade proposals that will help the Yankees address their needs.`\
 https://nytimes.com/athletic/5647839/2024/07/19/yankees-trade-questions/
