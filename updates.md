@@ -1,3 +1,11 @@
+**What We Know About the Global Outage**\
+`Everything from airlines to banks to retailers were impacted in many countries.`\
+https://nytimes.com/2024/07/19/technology/microsoft-crowdstrike-outage-what-happened.html
+
+**At the Republican Convention, Trump Achieves Mythical Status**\
+`While the Republican Party united under former President Donald J. Trump, the Democratic Party has been scrambling.`\
+https://nytimes.com/2024/07/19/podcasts/the-daily/rnc-trump-biden.html
+
 **What Caused Such a Widespread Tech Meltdown?**\
 `There have been two issues affecting Microsoft systems in quick succession, adding to the confusion over a global outage.`\
 https://nytimes.com/2024/07/19/business/microsoft-outage-cause-azure-crowdstrike.html
