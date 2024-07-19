@@ -1,3 +1,7 @@
+**Bernice Johnson Reagon, a Musical Voice for Civil Rights, Is Dead at 81**\
+`A singer, composer, curator and founder of the vocal group Sweet Honey in the Rock, she provided a gospel soundtrack for the civil rights movement.`\
+https://nytimes.com/2024/07/19/arts/music/bernice-johnson-reagon-dead.html
+
 **Words Used at the Republican National Convention**\
 `Counting frequently spoken words and phrases at the four-day convention.`\
 https://nytimes.com/interactive/2024/07/19/us/politics/trump-rnc-words.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/briefing/tech-outage-worldwide-biden-next-move.ht
 **From Honor Student to the Gunman Who Tried to Kill Donald Trump**\
 `Thomas Crooks was a brainy and quiet young man who built computers and won honors at school, impressing his teachers. Then he became a would-be assassin.`\
 https://nytimes.com/2024/07/19/us/gunman-thomas-crooks-trump-shooting.html
-
-**Black and Hispanic Democrats Hold Firm for Biden, Eyeing Harris’s Future**\
-`The lawmakers, donors and voters who have been the most outspoken about keeping President Biden in the race are driven by a concern that ditching him could also mean bypassing his vice president.`\
-https://nytimes.com/2024/07/19/us/politics/biden-kamala-harris-black-hispanic-democrats.html
 
