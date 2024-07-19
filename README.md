@@ -1,3 +1,11 @@
+**The Biden administration “demolished Title 42.”**\
+`By Hamed Aleaziz`\
+https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/the-biden-administration-demolished-title-42
+
+**“We defeated 100 percent of ISIS in Syria, something that was going to take five years — ‘It’ll take five years, sir’ — and I did it in two months.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/we-defeated-100-percent-of-isis-in-syria-something-that-was-going-to-take-five-years-itll-take-five-years-sir-and-i-did-it-in-tw
+
 **“Under the Trump administration, just three and a half years ago, we were energy independent. But soon we will actually be better than that. We will be energy dominant and supply not only ourselves, but we supply the rest of the world, with numbers that nobody has ever seen.”**\
 `By Lisa Friedman`\
 https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/under-the-trump-administration-just-three-and-a-half-years-ago-we-were-energy-independent-but-soon-we-will-actually-be-better-th
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/they-want
 **“Democrats are going to destroy Social Security and Medicare.”**\
 `By Alan Rappeport`\
 https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/democrats-are-going-to-destroy-social-security-and-medicare
-
-**“Just a few short years ago under my presidency, we had the most secure border and the best economy in the history of the world.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/just-a-few-short-years-ago-under-my-presidency-we-had-the-most-secure-border-and-the-best-economy-in-the-history-of-the-world
-
-**“We’ve got Right to Try. They were trying to get that for 52 years.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/weve-got-right-to-try-they-were-trying-to-get-that-for-52-years
 
