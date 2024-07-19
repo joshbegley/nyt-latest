@@ -1,3 +1,11 @@
+**Chiefs set 6-month deadline to determine where to play after Arrowhead lease ends**\
+`ST.`\
+https://nytimes.com/athletic/5647784/2024/07/19/chiefs-set-6-month-deadline-to-determine-where-to-play-after-arrowhead-lease-ends-in-2030/
+
+**Are You Ready, Kids?**\
+`Test your knowledge of the beloved Nickelodeon animated series “SpongeBob SquarePants,” which celebrates its 25th anniversary this year.`\
+https://nytimes.com/interactive/2024/07/19/arts/television/spongebob-anniversary-quiz.html
+
 **Tommy Robinson, Colorful Arkansas Sheriff and Congressman, Dies at 82**\
 `He gained national attention for his unorthodox approaches to policing in Little Rock and then went on to win three terms in the House of Representatives.`\
 https://nytimes.com/2024/07/19/us/politics/tommy-robinson-dead.html
