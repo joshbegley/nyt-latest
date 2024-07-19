@@ -1,3 +1,7 @@
+**Durant practices with Team USA for first time after calf strain**\
+`Durant, USA Basketball’s all-time leading scorer, was injured in a workout days before the start of camp on July 6.`\
+https://nytimes.com/athletic/5647038/2024/07/19/kevin-durant-team-usa-olympics-practice-status/
+
 **Alabama to name football field after Nick Saban**\
 `Saban won six national championships in 17 seasons at Alabama and had a 108-9 record at home during his career.`\
 https://nytimes.com/athletic/5647031/2024/07/19/alabama-football-nick-saban-bryant-denny-stadium/
@@ -5,6 +9,10 @@ https://nytimes.com/athletic/5647031/2024/07/19/alabama-football-nick-saban-brya
 **The Carnage in Donald Trump’s Mind**\
 `Ignoring the facts, he wants to believe crime is rampant.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/krugman-trump-crime
+
+**Fantasy baseball bold second-half predictions: Julio Rodriguez, Colt Keith and more**\
+`John Laghezza serves up some second half hot takes for fantasy baseball, including his call for Julio Rodríguez to be the game's top player.`\
+https://nytimes.com/athletic/5629486/2024/07/19/bold-predictions-second-half-fantasy-baseball-julio-rodriguez/
 
 **Why We Came to California, and Why We Stay**\
 `The best of our readers’ love letters to California.`\
@@ -29,12 +37,4 @@ https://nytimes.com/paidpost/capital-one-venture-x/la-feria-flamenco-and-sherry.
 **Counting the Costs of a Global IT Outage**\
 `A “historic” tech failure alarmed investors, after a security update caused problems for Microsoft devices and services, and took down businesses worldwide.`\
 https://nytimes.com/2024/07/19/business/dealbook/tech-outage-crowdstrike-microsoft.html
-
-**Here’s the latest on the Democratic campaign.**\
-`By Michael D. Shear, Peter Baker, Katie Rogers, Reid J. Epstein and Maggie Haberman`\
-https://nytimes.com/live/2024/07/19/us/biden-election-news/heres-the-latest-on-the-democratic-campaign
-
-**Live Updates: Pressure Grows on Biden as He Isolates With Covid**\
-`The president’s resolve to continue his re-election bid has been shaken by Nancy Pelosi’s comments, worsening state polls and a spending boycott by key donors, some in his camp said.`\
-https://nytimes.com/live/2024/07/19/us/biden-election-news
 
