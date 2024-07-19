@@ -1,3 +1,7 @@
+**Newcastle have five goalkeepers - and could sign another in this transfer window**\
+`Newcastle have signed Vlachodimos and Ruddy to bolster their goalkeeping ranks - and another could follow. Why?`\
+https://nytimes.com/athletic/5628391/2024/07/19/newcastle-have-five-goalkeepers-and-could-sign-another-in-this-transfer-window/
+
 **Friday Briefing**\
 `A pivotal moment in the White House race.`\
 https://nytimes.com/2024/07/19/briefing/trump-biden-gaza-france.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5643597/2024/07/19/ilia-gruev-leeds-interview/
 **“Probably the best trade deal was the deal I made with China, where they buy $50 billion worth of our product.”**\
 `By Alan Rappeport`\
 https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/probably-the-best-trade-deal-was-the-deal-i-made-with-china-where-they-buy-50-billion-worth-of-our-product
-
-**Arda Turan exclusive: 'My team will change football in Turkey'**\
-`Former Turkey playmaker played for some of the greatest teams in Spain - and now he could be on his way to becoming a brilliant coach`\
-https://nytimes.com/athletic/5542407/2024/07/19/arda-turan-atletico-barcelona-eyupspor/
 
