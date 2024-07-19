@@ -1,3 +1,7 @@
+**Why Hulk Hogan Is Speaking at the Republican National Convention**\
+`Call it Wrestlemania night in Milwaukee.`\
+https://nytimes.com/2024/07/18/us/politics/hulk-hogan-rnc-speech-trump.html
+
 **“We’ve lost more Americans from drugs in the past four years than we lost in World War II. Yeah. Our bloodiest war. More than we lost in World War II. Does anybody care? It is pathetic. It is pathetic. And do you hear a single word from Washington about doing anything about it?”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/weve-lost-more-americans-from-drugs-in-the-past-four-years-than-we-lost-in-world-war-ii-yeah-our-bloodiest-war-more-than-we-lost
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/us/politics/hunter-biden-seeks-dismissal.html
 **Justice Dept. Sues Contractor Over Sexual Abuse of Migrant Children**\
 `Southwest Key, the Texas-based nonprofit that is the largest provider of housing for unaccompanied minors who arrive at the southern border, has faced federal scrutiny before.`\
 https://nytimes.com/2024/07/18/us/doj-migrants-southwest-key-lawsuit.html
-
-**The Woman Who Sold the World’s Most Expensive Dinosaur**\
-`Phyllis Kao, an auctioneer at Sotheby’s, captivated audiences when she sold the fossil of a stegosaurus for $44.6 million.`\
-https://nytimes.com/2024/07/18/style/phyllis-kao-dinosaur-fossil-sothebys-auction.html
 
