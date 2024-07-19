@@ -1,3 +1,7 @@
+**Accepting the Republican Nomination, Trump Preaches Unity, Then Reverts to Attacks**\
+`Donald J. Trump, closing a convention that had sought to soften his image and portray him as the leader of an inclusive movement, began with a sober retelling of an assassination attempt but pivoted to grudges and vilifying Democrats.`\
+https://nytimes.com/2024/07/19/us/politics/trump-nomination-speech.html
+
 **Trump Struggles to Turn the Page on ‘American Carnage’**\
 `On the last night of the G.O.P. convention on Thursday, Donald J. Trump promised to bridge political divides, and then returned to delighting in deepening them.`\
 https://nytimes.com/2024/07/19/us/politics/trump-rnc-speech-analysis.html
