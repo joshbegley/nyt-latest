@@ -1,3 +1,7 @@
+**Gaziantep finalising deal for Brighton's Kozlowski**\
+`Turkish Super Lig side Gaziantep are finalising a deal for Brighton midfielder Kacper Kozlowski.`\
+https://nytimes.com/athletic/5647118/2024/07/19/kacper-kozlowski-gaziantep-brighton-transfer/
+
 **A group urging Biden to end his candidacy is targeting ads on ‘Morning Joe.’**\
 `By Katie Glueck`\
 https://nytimes.com/live/2024/07/19/us/biden-election-news/a-group-urging-biden-to-end-his-candidacy-is-targeting-ads-on-morning-joe
@@ -5,6 +9,10 @@ https://nytimes.com/live/2024/07/19/us/biden-election-news/a-group-urging-biden-
 **‘Hello, Dolly!’ Review: Imelda Staunton Has the Wow, Wow, Wow Factor**\
 `The veteran British actress shines in a new revival that is the musical theater highlight of the West End summer.`\
 https://nytimes.com/2024/07/19/theater/hello-dolly-imelda-staunton.html
+
+**Spanish FA names 11 proposed 2030 World Cup stadiums**\
+`The Spanish Football Association (RFEF) has announced the 11 stadiums proposed to host matches at the 2030 World Cup.`\
+https://nytimes.com/athletic/5646984/2024/07/19/2030-world-cup-stadiums-spain-where/
 
 **Durant practices with Team USA for first time after calf strain**\
 `Durant, USA Basketball’s all-time leading scorer, was injured in a workout days before the start of camp on July 6.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/19/us/california-love-letters.html
 **Summer Reading Contest, Week 7: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by July 26 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 7.`\
 https://nytimes.com/2024/07/19/learning/summer-reading-contest-week-7-what-got-your-attention-in-the-times-this-week.html
-
-**How to Rein In Rising Auto Insurance Rates**\
-`Taking a safe driver course can save you 10 percent on the premium, one expert said. Improving your credit score can also help as can getting married.`\
-https://nytimes.com/2024/07/19/your-money/car-insurance-rates-inflation.html
-
-**Banks Hit With Service Glitches**\
-`Trading and some financial transactions were delayed around the world.`\
-https://nytimes.com/2024/07/19/business/global-it-outage-banks-trading-stocks.html
 

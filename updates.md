@@ -1,3 +1,11 @@
+**Gaziantep finalising deal for Brighton's Kozlowski**\
+`Turkish Super Lig side Gaziantep are finalising a deal for Brighton midfielder Kacper Kozlowski.`\
+https://nytimes.com/athletic/5647118/2024/07/19/kacper-kozlowski-gaziantep-brighton-transfer/
+
+**Spanish FA names 11 proposed 2030 World Cup stadiums**\
+`The Spanish Football Association (RFEF) has announced the 11 stadiums proposed to host matches at the 2030 World Cup.`\
+https://nytimes.com/athletic/5646984/2024/07/19/2030-world-cup-stadiums-spain-where/
+
 **A group urging Biden to end his candidacy is targeting ads on ‘Morning Joe.’**\
 `By Katie Glueck`\
 https://nytimes.com/live/2024/07/19/us/biden-election-news/a-group-urging-biden-to-end-his-candidacy-is-targeting-ads-on-morning-joe
