@@ -1,3 +1,15 @@
+**What to Do if Your Computer Is Affected by the Microsoft Outage**\
+`A massive outage related to a security update by CrowdStrike, a cybersecurity company, crippled airlines and other businesses on Friday.`\
+https://nytimes.com/2024/07/19/business/fix-computer-microsoft-crowdstrike-outage.html
+
+**J.D. Vance and the Tech-Trad Alliance**\
+`How Silicon Valley and religious conservatism might converge.`\
+https://nytimes.com/2024/07/19/opinion/vance-tech-alliance.html
+
+**Republicans Grapple With Next Moves if Democrats Replace Biden**\
+`Candidates trying to flip congressional seats have spent months yoking their opponents to the president. A new nominee could scramble that strategy.`\
+https://nytimes.com/2024/07/19/us/politics/republicans-biden-congress.html
+
 **“If you look at the arrow at the bottom, that’s the lowest level — the one on the bottom, heavy red arrow — that’s the lowest level of illegal immigrants ever to come into our country in recorded history right there, right there. And that was my last week in office.”**\
 `By Angelo Fichera`\
 https://nytimes.com/live/2024/07/19/us/rnc-fact-check/if-you-look-at-the-arrow-at-the-bottom-thats-the-lowest-level-the-one-on-the-bottom-heavy-red-arrow-thats-the-lowest-level-of-il
