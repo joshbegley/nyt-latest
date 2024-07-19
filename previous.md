@@ -1,3 +1,11 @@
+**Sell Reynaldo Lopez, buy Pablo Lopez and more fantasy baseball deals to make for the second half**\
+`Michael Salfino points out the pitchers fantasy managers should be looking to acquire or trade away at the outset of the second half.`\
+https://nytimes.com/athletic/5646080/2024/07/19/fantasy-baseball-buy-low-sell-high-pitchers-second-half/
+
+**The NFL, Olympic and UFC training experience that drew Notre Dame to its new strength coach**\
+`Inside the Denver facility where Notre Dame strength coach Loren Landow attracted Marcus Freeman's attention with diverse training methods.`\
+https://nytimes.com/athletic/5645601/2024/07/19/notre-dame-football-strength-coach-nfl/
+
 **Donald Trump Concludes R.N.C. With Mixed Message**\
 `Donald J. Trump closed the Republican convention with a speech that began with a call for unity and a sober retelling of the attack on his life, but pivoted to attacks. Maggie Haberman, a senior political correspondent for The New York Times, gives her takeaways.`\
 https://nytimes.com/video/us/politics/100000009580491/donald-trump-concludes-rnc-with-mixed-message.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/07/19/arts/weekend-editors-picks-childish-g
 **The New York Times News Quiz, July 19, 2024**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2024/07/19/briefing/trump-vance-rnc-emmys-news-quiz.html
-
-**Why Anti-Trump Protesters Were a Rare Sight in Milwaukee**\
-`Protests in Milwaukee were far smaller than at many past nominating conventions, reflecting exhaustion and despair among opponents of Donald Trump.`\
-https://nytimes.com/2024/07/19/us/rnc-trump-protests-milwaukee.html
-
-**The Convention Was Just a Pop Star’s Latest Tour Date**\
-`The merger of fandom and politics has become a breeding ground for demagoguery.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/republican-convention-pop-stars
 
