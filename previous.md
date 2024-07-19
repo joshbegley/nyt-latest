@@ -1,3 +1,7 @@
+**In Paris, an Apartment With Views That Look Like Postcards**\
+`A design duo transformed part of a historic building into a home that foregrounds the city’s splendor.`\
+https://nytimes.com/2024/07/19/t-magazine/paris-apartment-rooftop-triplex.html
+
 **I Keep the Family Tree — And I’m Flummoxed About Whom to Include.**\
 `The magazine’s Ethicist columnist on genealogy, record-keeping and notions of relation.`\
 https://nytimes.com/2024/07/19/magazine/family-tree-record-ethics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/arts/dance/review-pam-tanowitz-day-for-night.html
 **Hospitals Cancel Nonessential Surgeries After Global Technology Outage**\
 `Hospital systems across the country reported I.T. disruptions. A spokesman for Kaiser Permanente called the situation “unprecedented.”`\
 https://nytimes.com/2024/07/19/business/hospitals-cancel-nonessential-surgeries-global-technology-outage.html
-
-**Lamar Jackson challenging Troy Aikman's trademark bid for No. 8**\
-`Jackson's attorney said Aikman's "EIGHT" trademark would be "likely to cause confusion" with Jackson's Era 8 Apparel brand.`\
-https://nytimes.com/athletic/5647092/2024/07/19/lamar-jackson-troy-aikman-trademark-8/
 

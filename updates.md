@@ -1,3 +1,7 @@
+**In Paris, an Apartment With Views That Look Like Postcards**\
+`A design duo transformed part of a historic building into a home that foregrounds the city’s splendor.`\
+https://nytimes.com/2024/07/19/t-magazine/paris-apartment-rooftop-triplex.html
+
 **I Keep the Family Tree — And I’m Flummoxed About Whom to Include.**\
 `The magazine’s Ethicist columnist on genealogy, record-keeping and notions of relation.`\
 https://nytimes.com/2024/07/19/magazine/family-tree-record-ethics.html
