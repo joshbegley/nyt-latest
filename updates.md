@@ -1,3 +1,11 @@
+**Durant practices with Team USA for first time after calf strain**\
+`Durant, USA Basketball’s all-time leading scorer, was injured in a workout days before the start of camp on July 6.`\
+https://nytimes.com/athletic/5647038/2024/07/19/kevin-durant-team-usa-olympics-practice-status/
+
+**Fantasy baseball bold second-half predictions: Julio Rodriguez, Colt Keith and more**\
+`John Laghezza serves up some second half hot takes for fantasy baseball, including his call for Julio Rodríguez to be the game's top player.`\
+https://nytimes.com/athletic/5629486/2024/07/19/bold-predictions-second-half-fantasy-baseball-julio-rodriguez/
+
 **Alabama to name football field after Nick Saban**\
 `Saban won six national championships in 17 seasons at Alabama and had a 108-9 record at home during his career.`\
 https://nytimes.com/athletic/5647031/2024/07/19/alabama-football-nick-saban-bryant-denny-stadium/
