@@ -1,3 +1,19 @@
+**“If you look at the arrow at the bottom, that’s the lowest level — the one on the bottom, heavy red arrow — that’s the lowest level of illegal immigrants ever to come into our country in recorded history right there, right there. And that was my last week in office.”**\
+`By Angelo Fichera`\
+https://nytimes.com/live/2024/07/19/us/rnc-fact-check/if-you-look-at-the-arrow-at-the-bottom-thats-the-lowest-level-the-one-on-the-bottom-heavy-red-arrow-thats-the-lowest-level-of-il
+
+**Was the Drone in the Tel Aviv Strike a Newly Stealthy Model?**\
+`That is what the Houthi rebels in Yemen said while claiming responsibility. But Israel said there was little new or special about it.`\
+https://nytimes.com/live/2024/07/19/world/israel-gaza-war-hamas/houthis-drone-strike-tel-aviv-israel
+
+**Jaguars sue ex-employee Patel for $66.6 million**\
+`Patel was sentenced in U.S. District Court on March 12 to 6 1/2 years in prison.`\
+https://nytimes.com/athletic/5646618/2024/07/19/jaguars-sue-amit-patel/
+
+**Courts close nationwide, and Harvey Weinstein’s case is delayed.**\
+`By Heather Knight`\
+https://nytimes.com/live/2024/07/19/business/global-tech-outage/courts-close-nationwide-and-harvey-weinsteins-case-is-delayed
+
 **‘Lady in the Lake’ Review: Not Just Another Baltimore Mystery**\
 `Natalie Portman stars in an elaborate adaptation of Laura Lippman’s novel about a pair of 1960s murders.`\
 https://nytimes.com/2024/07/19/arts/television/lady-in-the-lake-review.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/07/19/arts/music/amplifier-newsletter-brian-eno-product
 **Israel’s air defenses handle rockets very well. Drones are harder, experts say.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/07/19/world/israel-gaza-war-hamas/israels-air-defenses-handle-rockets-very-well-drones-are-harder-experts-say
-
-**The Convention Outside the Convention**\
-`Americans of all kinds mingled in protest and celebration.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/the-convention-outside-the-convention
-
-**Harvey Weinstein’s Latest Sexual Assault Trial Set to Start in November**\
-`Manhattan prosecutors are proceeding with new charges against the disgraced movie mogul after his previous conviction was overturned.`\
-https://nytimes.com/2024/07/19/nyregion/harvey-weinstein-sexual-assault-trial-date.html
-
-**Sundance Announces Six Finalists for Its New Home**\
-`The organization, and its influential film festival, may stay in Park City, Utah, or move to another location like Atlanta or Cincinnati.`\
-https://nytimes.com/2024/07/19/business/media/sundance-film-festival-locations.html
-
-**Fact-Checking the Immigration Chart That Trump Says ‘Saved My Life’**\
-`Donald J. Trump escaped an assassination attempt with only an ear wound after he turned to show a graphic, which he again highlighted at the R.N.C. But the facts on immigration are misleading.`\
-https://nytimes.com/2024/07/19/us/politics/trump-immigration-chart-fact-check.html
 
