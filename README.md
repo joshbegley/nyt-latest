@@ -1,3 +1,7 @@
+**Donald Trump Concludes R.N.C. With Mixed Message**\
+`Donald J. Trump closed the Republican convention with a speech that began with a call for unity and a sober retelling of the attack on his life, but pivoted to attacks. Maggie Haberman, a senior political correspondent for The New York Times, gives her takeaways.`\
+https://nytimes.com/video/us/politics/100000009580491/donald-trump-concludes-rnc-with-mixed-message.html
+
 **Social Media Reacts to an Attempted Assassination; Tech Elites for Trump; and TikTok’s Jawmaxxing Trend**\
 `“The 2024 internet is just different than the internet we lived on four years ago.”`\
 https://nytimes.com/2024/07/19/podcasts/hard-fork-conspiracy-trump-looksmaxxing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/us/rnc-trump-protests-milwaukee.html
 **The Convention Was Just a Pop Star’s Latest Tour Date**\
 `The merger of fandom and politics has become a breeding ground for demagoguery.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/republican-convention-pop-stars
-
-**Will a Movie Faking the Moon Landing Propel a Debunked Conspiracy Theory?**\
-`The screenwriters of “Fly Me to the Moon” say they emphasized the facts of the Apollo 11 landing, but experts worry that clips can be misused.`\
-https://nytimes.com/2024/07/19/movies/fly-me-to-the-moon-conspiracy-theory.html
 
