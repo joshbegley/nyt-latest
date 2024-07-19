@@ -1,3 +1,11 @@
+**Melania Trump, Bandages and Patriotism: The Most Effective Trump Accessories**\
+`As the Republican National Convention drew to a close, it painted a red, white and blue picture.`\
+https://nytimes.com/2024/07/19/style/rnc-ear-bandages-melania-trump.html
+
+**LeBron watching Bronny from afar amid Olympic prep**\
+`Bronny James’ best NBA Summer League game unfolded in the middle of the night in the United Kingdom, where his proud father was watching.`\
+https://nytimes.com/athletic/5647108/2024/07/19/lebron-james-bronny-nba-summer-league-olympics/
+
 **Gaziantep finalising deal for Brighton's Kozlowski**\
 `Turkish Super Lig side Gaziantep are finalising a deal for Brighton midfielder Kacper Kozlowski.`\
 https://nytimes.com/athletic/5647118/2024/07/19/kacper-kozlowski-gaziantep-brighton-transfer/

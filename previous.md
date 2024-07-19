@@ -1,3 +1,11 @@
+**Melania Trump, Bandages and Patriotism: The Most Effective Trump Accessories**\
+`As the Republican National Convention drew to a close, it painted a red, white and blue picture.`\
+https://nytimes.com/2024/07/19/style/rnc-ear-bandages-melania-trump.html
+
+**LeBron watching Bronny from afar amid Olympic prep**\
+`Bronny James’ best NBA Summer League game unfolded in the middle of the night in the United Kingdom, where his proud father was watching.`\
+https://nytimes.com/athletic/5647108/2024/07/19/lebron-james-bronny-nba-summer-league-olympics/
+
 **Gaziantep finalising deal for Brighton's Kozlowski**\
 `Turkish Super Lig side Gaziantep are finalising a deal for Brighton midfielder Kacper Kozlowski.`\
 https://nytimes.com/athletic/5647118/2024/07/19/kacper-kozlowski-gaziantep-brighton-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/krugman-trump-crime
 **Fantasy baseball bold second-half predictions: Julio Rodriguez, Colt Keith and more**\
 `John Laghezza serves up some second half hot takes for fantasy baseball, including his call for Julio Rodríguez to be the game's top player.`\
 https://nytimes.com/athletic/5629486/2024/07/19/bold-predictions-second-half-fantasy-baseball-julio-rodriguez/
-
-**Why We Came to California, and Why We Stay**\
-`The best of our readers’ love letters to California.`\
-https://nytimes.com/2024/07/19/us/california-love-letters.html
-
-**Summer Reading Contest, Week 7: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by July 26 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 7.`\
-https://nytimes.com/2024/07/19/learning/summer-reading-contest-week-7-what-got-your-attention-in-the-times-this-week.html
 
