@@ -1,3 +1,11 @@
+**“We’ve got Right to Try. They were trying to get that for 52 years.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/weve-got-right-to-try-they-were-trying-to-get-that-for-52-years
+
+**“We built most of the wall.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/we-built-most-of-the-wall
+
 **“We will drill, baby, drill, and by doing that we will lead to a large-scale decline in prices.”**\
 `By Brad Plumer`\
 https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/we-will-drill-baby-drill-and-by-doing-that-we-will-lead-to-a-large-scale-decline-in-prices

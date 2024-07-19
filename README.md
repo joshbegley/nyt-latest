@@ -1,3 +1,11 @@
+**“Democrats are going to destroy Social Security and Medicare.”**\
+`By Alan Rappeport`\
+https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/democrats-are-going-to-destroy-social-security-and-medicare
+
+**“Just a few short years ago under my presidency, we had the most secure border and the best economy in the history of the world.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/just-a-few-short-years-ago-under-my-presidency-we-had-the-most-secure-border-and-the-best-economy-in-the-history-of-the-world
+
 **“We’ve got Right to Try. They were trying to get that for 52 years.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/weve-got-right-to-try-they-were-trying-to-get-that-for-52-years
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/18/us/politics/melania-ivanka-barron-trump.html
 **Large Earthquake Rocks Northern Chile**\
 `There were no immediate reports of injuries or damage after the 7.4 magnitude earthquake.`\
 https://nytimes.com/2024/07/18/world/americas/chile-earthquake-atacama.html
-
-**Israeli Military Says It Is Investigating Explosion in Tel Aviv**\
-`The cause of the blast was not immediately clear, but the military said it was looking into reports that there had been “an aerial target.”`\
-https://nytimes.com/2024/07/18/world/middleeast/israel-tel-aviv-explosion.html
-
-**Senator Jon Tester, Facing Tough Re-Election Fight, Urges Biden to Drop Out**\
-`Mr. Tester, the Democratic incumbent in heavily Republican Montana, is now the second sitting senator to publicly call on President Biden to end his re-election campaign.`\
-https://nytimes.com/2024/07/18/us/politics/senator-tester-montana-biden.html
 

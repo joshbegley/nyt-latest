@@ -1,3 +1,11 @@
+**“We’ve got Right to Try. They were trying to get that for 52 years.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/weve-got-right-to-try-they-were-trying-to-get-that-for-52-years
+
+**“We built most of the wall.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/we-built-most-of-the-wall
+
 **“We will drill, baby, drill, and by doing that we will lead to a large-scale decline in prices.”**\
 `By Brad Plumer`\
 https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/we-will-drill-baby-drill-and-by-doing-that-we-will-lead-to-a-large-scale-decline-in-prices
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/18/world/middleeast/israel-tel-aviv-explosion.html
 **Senator Jon Tester, Facing Tough Re-Election Fight, Urges Biden to Drop Out**\
 `Mr. Tester, the Democratic incumbent in heavily Republican Montana, is now the second sitting senator to publicly call on President Biden to end his re-election campaign.`\
 https://nytimes.com/2024/07/18/us/politics/senator-tester-montana-biden.html
-
-**For Tucker Carlson, Trump Is Bigger Than the Presidency**\
-`He may be a superhuman leader.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/tucker-carlson-republican-convention
-
-**“He decided to leave behind the comforts of an unbelievable business empire. To leave behind everything he had ever built. To answer the call to serve our nation. Unlike his predecessor, it was not a decision born out of necessity. Unlike the current president, it was not a decision that would enrich his family.”**\
-`By Angelo Fichera`\
-https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/he-decided-to-leave-behind-the-comforts-of-an-unbelievable-business-empire-to-leave-behind-everything-he-had-ever-built-to-answe
 
