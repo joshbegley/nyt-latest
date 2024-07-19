@@ -6,7 +6,7 @@ https://nytimes.com/2024/07/19/arts/music/playlist-kim-deal-childish-gambino.htm
 `Eintracht Frankfurt have completed the loan signing of defender Rasmus Kristensen from Leeds United for the 2024-25 season.`\
 https://nytimes.com/athletic/5646857/2024/07/19/rasmus-kristensen-frankfurt-leeds-transfer/
 
-**Why Microsoft matters.**\
+**Why a security update to Microsoft devices disrupted the economy.**\
 `By Cecilia Kang`\
 https://nytimes.com/live/2024/07/19/business/global-tech-outage/why-microsoft-matters
 
