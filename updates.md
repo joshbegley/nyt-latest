@@ -1,3 +1,7 @@
+**Words Used at the Republican National Convention**\
+`Counting frequently spoken words and phrases at the four-day convention.`\
+https://nytimes.com/interactive/2024/07/19/us/politics/trump-rnc-words.html
+
 **The Candidate**\
 `A single image captures supporters of former President Donald J. Trump rallying around him after his attempted assassination.`\
 https://nytimes.com/2024/07/19/us/elections/trump-rnc-2024-election.html
