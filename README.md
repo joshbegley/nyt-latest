@@ -1,3 +1,7 @@
+**Saudi Arabia investigates worker mistreatment allegations after The Athletic report on Newcastle sponsor Noon**\
+`The government of Saudi Arabia is investigating allegations of serious worker mistreatment in the supply chain of Noon, a Newcastle sponsor`\
+https://nytimes.com/athletic/5646814/2024/07/19/noon-saudi-arabia-newcastle-workers-rights/
+
 **Forest targeting move for Riquelme Fillipi**\
 `Nottingham Forest are willing to spend around £5million ($6.`\
 https://nytimes.com/athletic/5646806/2024/07/19/riquelme-fillipi-nottingham-forest/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/world/asia/bangladesh-protests-photos.html
 **What to know about the outages.**\
 `Airlines, banks and broadcasters reported disruptions, citing technical issues.`\
 https://nytimes.com/live/2024/07/19/business/global-tech-outage/crowdstrike-outage-flights-banks
-
-**Trump the Lion, or Trump the Lyin’?**\
-`After years on a self-mythologizing hero’s journey, the former president finally has a true story to tell.`\
-https://nytimes.com/2024/07/19/opinion/donald-trump-speech.html
 
