@@ -1,3 +1,11 @@
+**Chiefs set 6-month deadline to determine where to play after Arrowhead lease ends**\
+`ST.`\
+https://nytimes.com/athletic/5647784/2024/07/19/chiefs-set-6-month-deadline-to-determine-where-to-play-after-arrowhead-lease-ends-in-2030/
+
+**Are You Ready, Kids?**\
+`Test your knowledge of the beloved Nickelodeon animated series “SpongeBob SquarePants,” which celebrates its 25th anniversary this year.`\
+https://nytimes.com/interactive/2024/07/19/arts/television/spongebob-anniversary-quiz.html
+
 **Tommy Robinson, Colorful Arkansas Sheriff and Congressman, Dies at 82**\
 `He gained national attention for his unorthodox approaches to policing in Little Rock and then went on to win three terms in the House of Representatives.`\
 https://nytimes.com/2024/07/19/us/politics/tommy-robinson-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/07/19/smarter-living/wirecutter/best-lip-ba
 **Check, Please: The Pete Wells Exit Interview**\
 `Why our food critic tossed the fake glasses and quit his dream job.`\
 https://nytimes.com/2024/07/19/podcasts/pete-wells-check-please.html
-
-**Democratic Officials Urge Committee to Nominate Biden Through Virtual Vote**\
-`The officials also said the virtual roll call should not happen before Aug. 1. The rules committee for the party convention will vote on the matter next week.`\
-https://nytimes.com/2024/07/19/us/politics/biden-virtual-roll-call-vote.html
-
-**Michael Moritz, Democratic Megadonor, Urges Biden Exit: ‘Clock Has Run Out’**\
-`Mr. Moritz became one of the party’s top contributors to go public with his fears about the president’s candidacy, saying that Mr. Biden had a choice: “vanity or virtue.”`\
-https://nytimes.com/2024/07/19/us/politics/michael-moritz-biden.html
 
