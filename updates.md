@@ -1,3 +1,7 @@
+**This Is Venezuela’s Moment. It Needs the World’s Help.**\
+`The United States can support Venezuelan democracy by creating an off-ramp for President Nicolás Maduro.`\
+https://nytimes.com/2024/07/19/opinion/venezuela-elections-maduro.html
+
 **Newcastle have five goalkeepers - and could sign another in this transfer window**\
 `Newcastle have signed Vlachodimos and Ruddy to bolster their goalkeeping ranks - and another could follow. Why?`\
 https://nytimes.com/athletic/5628391/2024/07/19/newcastle-have-five-goalkeepers-and-could-sign-another-in-this-transfer-window/
