@@ -1,3 +1,11 @@
+**The Pulse: An All-Star Game that actually matters**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5646037/2024/07/19/wnba-all-star-game-olympics-the-pulse/
+
+**What Is CrowdStrike?**\
+`CrowdStrike’s cybersecurity software is used by scores of industries, including airlines, hospitals and retailers, to prevent hacks and data breaches.`\
+https://nytimes.com/2024/07/19/business/what-is-crowdstrike.html
+
 **What We Know About the Global Outage**\
 `Everything from airlines to banks to retailers were impacted in many countries.`\
 https://nytimes.com/2024/07/19/technology/microsoft-crowdstrike-outage-what-happened.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5644837/2024/07/19/nba-offseason-sixers-knicks-lebr
 **Twins teammates remember Joe Mauer's qualities and quirks as he enters Hall of Fame**\
 `Those who played with Mauer found themselves mimicking his consistency, even when it came to their daily meal choices.`\
 https://nytimes.com/athletic/5646389/2024/07/19/baseball-hall-of-fame-2024-joe-mauer/
-
-**Health services were experiencing difficulties in several countries.**\
-`By Megan Specia`\
-https://nytimes.com/live/2024/07/19/business/global-tech-outage/health-services-were-experiencing-difficulties-in-several-countries
-
-**Friedkin Group's proposed Everton takeover off**\
-`The Friedkin Group’s proposed takeover of Everton is off, plunging the Premier League club back into crisis.`\
-https://nytimes.com/athletic/5646876/2024/07/19/everton-takeover-friedkin-group-latest/
 
