@@ -1,3 +1,11 @@
+**Trump’s Brush With Death as Political Theater, for One Night Only**\
+`Donald J. Trump used his convention speech to recount the attempt on his life in dark detail. “Bullets were flying over us, yet I felt serene,” he said.`\
+https://nytimes.com/2024/07/19/us/politics/trump-rnc-shooting-speech.html
+
+**Read the Transcript of Donald J. Trump’s Convention Speech**\
+`He spoke for just over 90 minutes.`\
+https://nytimes.com/2024/07/19/us/politics/trump-rnc-speech-transcript.html
+
 **Hulk Hogan Rips Shirt Off During R.N.C. Speech**\
 `Hulk Hogan tore off his shirt to reveal a Trump/Vance tank top during his speech on the last night of the Republican National Convention.`\
 https://nytimes.com/video/us/politics/100000009581267/hulk-hogan-rips-shirt-off-during-rnc-speech.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/19/us/politics/trump-rnc-speech-analysis.html
 **‘It Was Trump Untethered’: Best and Worst Moments From His Acceptance Speech**\
 `Times Opinion writers assess Night 4 of the Republican convention, which included speeches from Hulk Hogan, Mike Pompeo and Donald Trump.`\
 https://nytimes.com/2024/07/19/opinion/trump-acceptance-speech-rnc.html
-
-**At the 2024 Paris Olympic Games, tennis is as odd a fit as ever**\
-`Squeeze in a clay-court event, or go get ready for the hard-court swing? The Olympics create a complicated situation for many tennis stars.`\
-https://nytimes.com/athletic/5627330/2024/07/19/paris-olympics-2024-tennis-carlos-alcaraz/
-
-**This Is Venezuela’s Moment. It Needs the World’s Help.**\
-`The United States can support Venezuelan democracy by creating an off-ramp for President Nicolás Maduro.`\
-https://nytimes.com/2024/07/19/opinion/venezuela-elections-maduro.html
 

@@ -1,3 +1,7 @@
+**Hulk Hogan Rips Shirt Off During R.N.C. Speech**\
+`Hulk Hogan tore off his shirt to reveal a Trump/Vance tank top during his speech on the last night of the Republican National Convention.`\
+https://nytimes.com/video/us/politics/100000009581267/hulk-hogan-rips-shirt-off-during-rnc-speech.html
+
 **What Undecided Voters Thought of Trump’s Speech: Mostly, Not Much**\
 `The former president did not win them over — not that they like the alternative.`\
 https://nytimes.com/2024/07/19/us/undecideds-voters-trump-vance-rnc.html
