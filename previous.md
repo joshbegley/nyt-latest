@@ -1,3 +1,11 @@
+**“They spent $9 billion on eight chargers.”**\
+`By Lisa Friedman`\
+https://nytimes.com/live/2024/07/19/us/rnc-fact-check/they-spent-9-billion-on-eight-chargers
+
+**“I stopped the missile launches from North Korea.”**\
+`By John Ismay`\
+https://nytimes.com/live/2024/07/19/us/rnc-fact-check/i-stopped-the-missile-launches-from-north-korea
+
 **Six Takeaways From the Republican Convention**\
 `Donald J. Trump ended a buoyant gathering in Milwaukee with a speech that started solemn, turned rambling and showcased his all-encompassing power over his party.`\
 https://nytimes.com/2024/07/19/us/politics/rnc-trump-takeaways.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5628391/2024/07/19/newcastle-have-five-goalkeepers-
 **Friday Briefing**\
 `A pivotal moment in the White House race.`\
 https://nytimes.com/2024/07/19/briefing/trump-biden-gaza-france.html
-
-**'Everton took me at 20 and looked after me - I know exactly what this club means to people'**\
-`Seamus Coleman is Everton. He has signed for another season and believes in a brighter future - he's determined to go out on a high`\
-https://nytimes.com/athletic/5643821/2024/07/19/seamus-coleman-everton-sean-dyche/
-
-**Seattle Police Officer Fired Over ‘Cruel Comments’ About Pedestrian’s Death**\
-`The officer, Daniel Auderer, was heard laughing as he discussed Jaahnavi Kandula, who was struck and killed by a speeding police S.U.V. driven by another Seattle officer.`\
-https://nytimes.com/2024/07/19/us/seattle-police-jaahnavi-kandula-death.html
 

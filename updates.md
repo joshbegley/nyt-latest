@@ -1,3 +1,11 @@
+**“They spent $9 billion on eight chargers.”**\
+`By Lisa Friedman`\
+https://nytimes.com/live/2024/07/19/us/rnc-fact-check/they-spent-9-billion-on-eight-chargers
+
+**“I stopped the missile launches from North Korea.”**\
+`By John Ismay`\
+https://nytimes.com/live/2024/07/19/us/rnc-fact-check/i-stopped-the-missile-launches-from-north-korea
+
 **Six Takeaways From the Republican Convention**\
 `Donald J. Trump ended a buoyant gathering in Milwaukee with a speech that started solemn, turned rambling and showcased his all-encompassing power over his party.`\
 https://nytimes.com/2024/07/19/us/politics/rnc-trump-takeaways.html
