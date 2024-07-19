@@ -1,3 +1,15 @@
+**Bobby Grier, Who Integrated the Sugar Bowl in 1956, Dies at 91**\
+`The governor of Georgia tried to ban him from the game, but the state’s Board of Regents let him play. ‘Stupid. Why did the governor have to jump into sports?’ Grier asked years later.`\
+https://nytimes.com/2024/07/19/sports/ncaafootball/bobby-grier-dead.html
+
+**Houthis Launch Deadly Drone Strike on Tel Aviv, Evading Israel’s Defenses**\
+`At least one person was killed and eight others injured in a predawn attack on Friday. The Israeli military said it was investigating why it “did not identify it, attack it and intercept it.”`\
+https://nytimes.com/2024/07/19/world/middleeast/houthis-drone-strike-tel-aviv.html
+
+**Corporate Workers Get a Snow Day in July Because of Outage**\
+`“Happy international blue screen day.”`\
+https://nytimes.com/2024/07/19/business/crowdstrike-microsoft-outage-corporate-workers.html
+
 **Pacific Northwest Braces for a Blistering Heat Wave Over the Weekend**\
 `The heat index, an indicator of temperature and humidity, could reach triple digits, well above what is typical for the region.`\
 https://nytimes.com/2024/07/19/us/heat-wave-forecast-pacific-northwest.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5647839/2024/07/19/yankees-trade-questions/
 **Chiefs set 6-month deadline to determine where to play after Arrowhead lease ends**\
 `ST.`\
 https://nytimes.com/athletic/5647784/2024/07/19/chiefs-set-6-month-deadline-to-determine-where-to-play-after-arrowhead-lease-ends-in-2030/
-
-**Are You Ready, Kids?**\
-`Test your knowledge of the beloved Nickelodeon animated series “SpongeBob SquarePants,” which celebrates its 25th anniversary this year.`\
-https://nytimes.com/interactive/2024/07/19/arts/television/spongebob-anniversary-quiz.html
-
-**Tommy Robinson, Colorful Arkansas Sheriff and Congressman, Dies at 82**\
-`He gained national attention for his unorthodox approaches to policing in Little Rock and then went on to win three terms in the House of Representatives.`\
-https://nytimes.com/2024/07/19/us/politics/tommy-robinson-dead.html
-
-**Portland Thorns name Rob Gale as head coach after 12 games in interim role**\
-`Gale's short tenure has included a six-game winning streak.`\
-https://nytimes.com/athletic/5647798/2024/07/19/portland-thorns-rob-gale-head-coach/
 
