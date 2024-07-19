@@ -1,3 +1,11 @@
+**Greenwood 'focusing on club football' after Marseille move from Man Utd**\
+`Mason Greenwood said he is “focusing on club football this season” having signed for Marseille — as the club’s president claimed he understood the complexity around his transfer from Manchester United.`\
+https://nytimes.com/athletic/5647409/2024/07/19/mason-greenwood-marseille-manchester-united-move/
+
+**La Familia team returns to Kentucky to face some unfinished business**\
+`La Familia's roster is loaded and focused on winning a title in The Basketball Tournament.`\
+https://nytimes.com/athletic/5647219/2024/07/19/kentucky-basketball-la-familia-the-basketball-tournament/
+
 **Canada Pledges to Meet NATO Spending Goal. It Won’t Be Easy.**\
 `The country’s struggle to reach an informal military spending target highlights how difficult it is for the alliance to quickly bolster its abilities.`\
 https://nytimes.com/2024/07/19/world/canada/canada-nato-spending.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/19/business/biden-student-loans-save-pause.html
 **White House Pushes Rent Cap, Reigniting Debate on Housing Policy**\
 `A proposal to make landlords’ tax breaks contingent on rent limits has drawn industry pushback, progressive applause and some alternative approaches.`\
 https://nytimes.com/2024/07/19/business/economy/biden-rent-cap-proposal.html
-
-**The Best of Late Night This Week**\
-`Late night was subdued on Monday, after a gunman tried to kill former President Trump. Later in the week, the hosts discussed the R.N.C., J.D. Vance and Matt Gaetz.`\
-https://nytimes.com/interactive/2024/07/19/arts/television/best-of-late-night-jd-vance.html
-
-**UEFA investigating Spain players' Gibraltar chant**\
-`UEFA has opened a disciplinary investigation into Spain players Rodri and Alvaro Morata over their &#8216;Gibraltar is Spanish&#8217; chants during the nation&#8217;s Euro 2024 celebrations in Madrid.`\
-https://nytimes.com/athletic/5647300/2024/07/19/spain-gibraltar-euro-2024-chant/
 
