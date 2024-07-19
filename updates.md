@@ -1,3 +1,11 @@
+**“Probably the best trade deal was the deal I made with China, where they buy $50 billion worth of our product.”**\
+`By Alan Rappeport`\
+https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/probably-the-best-trade-deal-was-the-deal-i-made-with-china-where-they-buy-50-billion-worth-of-our-product
+
+**Arda Turan exclusive: 'My team will change football in Turkey'**\
+`Former Turkey playmaker played for some of the greatest teams in Spain - and now he could be on his way to becoming a brilliant coach`\
+https://nytimes.com/athletic/5542407/2024/07/19/arda-turan-atletico-barcelona-eyupspor/
+
 **Best transfers so far: Yoro, Zirkzee, Gray, Savinho - who's leading The Athletic 500 ratings?**\
 `From Savinho to Archie Gray to Joshua Zirkzee, we rate this summer's Premier League transfers - how do their scores out of 500 compare?`\
 https://nytimes.com/athletic/5620142/2024/07/19/transfer-ratings-yoro-zirkzee-premier-league/
