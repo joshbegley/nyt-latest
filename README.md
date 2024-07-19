@@ -1,3 +1,11 @@
+**Could Baseball Persuade Biden to Step Aside?**\
+`Representative Jamie Raskin’s letter to the president was clever politics.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-raskin-letter
+
+**The duality of the Irishman leading this Open Championship**\
+`Lowry is among the more affable personalities in golf. But as a cameraman found out Friday, he can also run quite hot. It's working for him.`\
+https://nytimes.com/athletic/5647498/2024/07/19/shane-lowry-open-championship-lead/
+
 **Jeffries refuses to say whether Biden should drop out: ‘It’s his decision.’**\
 `By Carl Hulse`\
 https://nytimes.com/live/2024/07/19/us/biden-election-news/jeffries-refuses-to-say-whether-biden-should-drop-out-its-his-decision
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/19/movies/horror-movies-streaming.html
 **Everton takeover: Why the Friedkin Group deal is off and what happens now?**\
 `Everton are back to square one following the Friedkin Group's decision to withdraw their takeover bid, with uncertainty flooding back`\
 https://nytimes.com/athletic/5646879/2024/07/19/everton-friedkin-takeover-off-explained/
-
-**911 Systems Disrupted in at Least 3 States**\
-`Emergency call lines were operating in most major cities, but the authorities in Oregon, Alaska and Arizona said some of their systems had been hit by the outage.`\
-https://nytimes.com/2024/07/19/business/emergency-911-calls-tech-outage.html
-
-**Greenwood 'focusing on club football' after Marseille move from Man Utd**\
-`Mason Greenwood said he is “focusing on club football this season” having signed for Marseille — as the club’s president claimed he understood the complexity around his transfer from Manchester United.`\
-https://nytimes.com/athletic/5647409/2024/07/19/mason-greenwood-marseille-manchester-united-move/
 
