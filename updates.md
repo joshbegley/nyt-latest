@@ -1,3 +1,7 @@
+**The Athletic FC: United, Real Madrid and a good Yoro deal? Plus: Goalkeepers and goggles**\
+`The Athletic FC is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox`\
+https://nytimes.com/athletic/5646867/2024/07/19/manchester-united-real-madrid-yoro-transfers-the-athletic-fc/
+
 **Milan complete Morata deal**\
 `AC Milan have completed the signing of striker Alvaro Morata from Atletico Madrid.`\
 https://nytimes.com/athletic/5640966/2024/07/19/alvaro-morata-milan-transfer-atletico/
