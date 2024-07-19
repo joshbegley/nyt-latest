@@ -1,3 +1,11 @@
+**“Probably the best trade deal was the deal I made with China, where they buy $50 billion worth of our product.”**\
+`By Alan Rappeport`\
+https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/probably-the-best-trade-deal-was-the-deal-i-made-with-china-where-they-buy-50-billion-worth-of-our-product
+
+**Arda Turan exclusive: 'My team will change football in Turkey'**\
+`Former Turkey playmaker played for some of the greatest teams in Spain - and now he could be on his way to becoming a brilliant coach`\
+https://nytimes.com/athletic/5542407/2024/07/19/arda-turan-atletico-barcelona-eyupspor/
+
 **Best transfers so far: Yoro, Zirkzee, Gray, Savinho - who's leading The Athletic 500 ratings?**\
 `From Savinho to Archie Gray to Joshua Zirkzee, we rate this summer's Premier League transfers - how do their scores out of 500 compare?`\
 https://nytimes.com/athletic/5620142/2024/07/19/transfer-ratings-yoro-zirkzee-premier-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5626379/2024/07/19/leny-yoro-manchester-united-tran
 **A Border Crossing Shuttered for Months Traps Sick and Wounded in Gaza**\
 `The Rafah crossing to Egypt has been closed since Israel captured it in early May, blocking the only route out of the territory for thousands of Palestinians who desperately need medical care.`\
 https://nytimes.com/2024/07/19/world/middleeast/rafah-palestinians-gaza-trapped.html
-
-**Rebuilt Monastery, Aided by Beer Sales, Gives Hope to a Quake-Struck Region**\
-`Eight years after devastating earthquakes ravaged central Italy, the reopening of a monastery is an inspiration for an area still struggling to recover.`\
-https://nytimes.com/2024/07/19/world/europe/italy-earthquakes-monastery-beer.html
-
-**Quotation of the Day: Boom Goes the Oil Industry Amid a Push for Clean Energy**\
-`Quotation of the Day for Friday, July 19, 2024.`\
-https://nytimes.com/2024/07/19/pageoneplus/quotation-of-the-day-boom-goes-the-oil-industry-amid-a-push-for-clean-energy.html
 
