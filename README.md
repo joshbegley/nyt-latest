@@ -1,3 +1,15 @@
+**Fact-Checking the Immigration Chart That Trump Says ‘Saved My Life’**\
+`Donald J. Trump escaped an assassination attempt with only an ear wound after he turned to show a graphic, which he again highlighted at the R.N.C. But the facts on immigration are misleading.`\
+https://nytimes.com/2024/07/19/us/politics/trump-immigration-chart-fact-check.html
+
+**Lev Grossman on the Enduring Story of King Arthur**\
+`The novelist discusses his latest book, “The Bright Sword,” in which Arthur has died but Excalibur lives on with a band of misfit knights.`\
+https://nytimes.com/2024/07/19/books/review/podcast-lev-grossman-interview-bright-sword.html
+
+**Secret Service Director Will Testify Before Congress on Monday**\
+`It will be Kimberly A. Cheatle’s first appearance before lawmakers since the assassination attempt on former President Trump’s life.`\
+https://nytimes.com/2024/07/19/us/politics/kimberly-cheatle-testify.html
+
 **Vice President Kamala Harris to Speak With Major Democratic Donors**\
 `The call comes as turmoil roils the party and its donor base.`\
 https://nytimes.com/2024/07/19/us/politics/kamala-harris-donors.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5646857/2024/07/19/rasmus-kristensen-frankfurt-leed
 **Why a security update to Microsoft devices disrupted the economy.**\
 `By Cecilia Kang`\
 https://nytimes.com/live/2024/07/19/business/global-tech-outage/why-microsoft-matters
-
-**If Biden Drops Out: Imagine These Scenarios**\
-`Readers offer suggestions if President Biden ends his campaign. Also: The Republican convention and the election stakes; J.D. Vance’s positions.`\
-https://nytimes.com/2024/07/19/opinion/joe-biden-withdrawal.html
-
-**Black Democrats, resisting calls for Biden to go, insist Harris is the only alternative.**\
-`By Robert Jimison`\
-https://nytimes.com/live/2024/07/19/us/biden-election-news/black-democrats-resisting-calls-for-biden-to-go-insist-harris-is-the-only-alternative
-
-**Blinken says that a cease-fire deal is ‘inside the 10-yard line.’**\
-`By Julian E. Barnes and David E. Sanger`\
-https://nytimes.com/live/2024/07/19/world/israel-gaza-war-hamas/blinken-says-that-a-cease-fire-deal-is-inside-the-10-yard-line
 
