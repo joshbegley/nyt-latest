@@ -1,3 +1,11 @@
+**Trump’s Brush With Death as Political Theater, for One Night Only**\
+`Donald J. Trump used his convention speech to recount the attempt on his life in dark detail. “Bullets were flying over us, yet I felt serene,” he said.`\
+https://nytimes.com/2024/07/19/us/politics/trump-rnc-shooting-speech.html
+
+**Read the Transcript of Donald J. Trump’s Convention Speech**\
+`He spoke for just over 90 minutes.`\
+https://nytimes.com/2024/07/19/us/politics/trump-rnc-speech-transcript.html
+
 **Hulk Hogan Rips Shirt Off During R.N.C. Speech**\
 `Hulk Hogan tore off his shirt to reveal a Trump/Vance tank top during his speech on the last night of the Republican National Convention.`\
 https://nytimes.com/video/us/politics/100000009581267/hulk-hogan-rips-shirt-off-during-rnc-speech.html
