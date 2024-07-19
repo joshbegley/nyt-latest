@@ -1,3 +1,11 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/19/crosswords/spelling-bee-forum.html
+
+**Worldwide Tech Outage Hits Businesses and Grounds Flights**\
+`Airlines, banks and broadcasters reported disruptions, citing technical issues.`\
+https://nytimes.com/2024/07/19/us/crowdstrike-outage-flights-banks.html
+
 **Can New York City Ever Win Its War Against Rats?**\
 `Checking in with New York’s rat czar and the progress she has made in reducing the city’s rodent population.`\
 https://nytimes.com/2024/07/19/nyregion/can-new-york-city-ever-win-its-war-against-rats.html
