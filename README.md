@@ -1,3 +1,11 @@
+**Pacific Northwest Braces for a Blistering Heat Wave Over the Weekend**\
+`The heat index, an indicator of temperature and humidity, could reach triple digits, well above what is typical for the region.`\
+https://nytimes.com/2024/07/19/us/heat-wave-forecast-pacific-northwest.html
+
+**The Open’s most unlikely contender is the son of a pig farmer who almost quit golf**\
+`Brown, a 29-year-old Englishman playing his first career major, came close to quitting professional golf five years ago.`\
+https://nytimes.com/athletic/5647829/2024/07/19/daniel-brown-the-open-contender-golf/
+
 **Biden’s Successful Border Policy Is a Mixed Blessing**\
 `Migrant crossings have sharply declined. Why didn’t he do this earlier?`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-asylum-migrants-crossings
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/19/us/politics/tommy-robinson-dead.html
 **Portland Thorns name Rob Gale as head coach after 12 games in interim role**\
 `Gale's short tenure has included a six-game winning streak.`\
 https://nytimes.com/athletic/5647798/2024/07/19/portland-thorns-rob-gale-head-coach/
-
-**How a Software Update Crashed Computers Around the World**\
-`Here’s a visual explanation for how a faulty software update crippled machines.`\
-https://nytimes.com/interactive/2024/07/19/technology/crowdstrike-outage-explained.html
-
-**Shane Lowry leads, Justin Rose tied for second after Round 2 of Open Championship**\
-`Shane Lowry, Daniel Brown and Justin Rose out front going into Saturday.`\
-https://nytimes.com/athletic/5647761/2024/07/19/justin-rose-open-championship-round-2/
 
