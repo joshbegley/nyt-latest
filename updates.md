@@ -1,3 +1,7 @@
+**Counting the Costs of a Global IT Outage**\
+`A “historic” tech failure alarmed investors, after a security update caused problems for Microsoft devices and services, and took down businesses worldwide.`\
+https://nytimes.com/2024/07/19/business/dealbook/tech-outage-crowdstrike-microsoft.html
+
 **Here’s the latest on the Democratic campaign.**\
 `By Michael D. Shear, Peter Baker, Katie Rogers, Reid J. Epstein and Maggie Haberman`\
 https://nytimes.com/live/2024/07/19/us/biden-election-news/heres-the-latest-on-the-democratic-campaign
