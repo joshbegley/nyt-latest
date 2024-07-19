@@ -1,3 +1,7 @@
+**What’s Left for France’s Left?**\
+`Since winning legislative elections, a coalition of left-wing parties has done little more than squabble. Now some wonder whether it will have any power at all.`\
+https://nytimes.com/2024/07/19/world/europe/france-left-wing-party.html
+
 **Kim Deal Goes Solo, and 7 More New Songs**\
 `Hear tracks by Alan Sparhawk, Joy Oladokun, Ivan Cornejo and others.`\
 https://nytimes.com/2024/07/19/arts/music/playlist-kim-deal-childish-gambino.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5647498/2024/07/19/shane-lowry-open-championship-le
 **Jeffries refuses to say whether Biden should drop out: ‘It’s his decision.’**\
 `By Carl Hulse`\
 https://nytimes.com/live/2024/07/19/us/biden-election-news/jeffries-refuses-to-say-whether-biden-should-drop-out-its-his-decision
-
-**Ocasio-Cortez Warns of ‘Enormous Peril’ if Democrats Push Biden Aside**\
-`Representative Alexandria Ocasio-Cortez said the idea of having an open Democratic convention where candidates would compete for the nomination was “crazy.”`\
-https://nytimes.com/2024/07/19/us/politics/aoc-biden-dnc.html
 
