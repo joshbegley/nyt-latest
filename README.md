@@ -1,3 +1,7 @@
+**The global outage has led to long lines and delays at airports around the world.**\
+`Passengers complained as the outage took down airport services and caused delays. Some airports issued handwritten boarding passes.`\
+https://nytimes.com/live/2024/07/19/business/global-tech-outage/airport-delays
+
 **Nguyen Phu Trong, Powerful Vietnamese Leader, Is Dead at 80**\
 `Known for his “blazing furnace” anticorruption campaign, Mr. Trong consolidated power in one of the world’s few remaining Communist dictatorships.`\
 https://nytimes.com/2024/07/19/world/asia/nguyen-phu-trong-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/arts/design/eva-hesse-sculptures-hauser-wirth.htm
 **Angels must be aggressive sellers if they want 'growth' narrative to become reality**\
 `The Angels face a crucial moment, and they can't take the half-in, half-out approach that has failed them so many times before. `\
 https://nytimes.com/athletic/5641680/2024/07/19/angels-sell-trade-deadline/
-
-**Lowetide: How Oilers CEO Jeff Jackson has made a big impact one year after arrival**\
-`Jackson stands out as an executive who has shown the ability to make a string of astute decisions.`\
-https://nytimes.com/athletic/5645562/2024/07/19/oilers-ceo-jeff-jackson-impact/
 
