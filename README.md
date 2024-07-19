@@ -23,7 +23,7 @@ https://nytimes.com/2024/07/19/world/americas/boat-fire-haiti-migrants.html
 https://nytimes.com/2024/07/19/style/ai-chatgpt-online-dating.html
 
 **What’s Left for France’s Left?**\
-`Since winning legislative elections, a coalition of left-wing parties has done little more than squabble. Now some wonder whether it will have any power at all.`\
+`Two weeks ago a coalition of left-wing parties came first in the legislative elections. Now some wonder whether it will have any power at all.`\
 https://nytimes.com/2024/07/19/world/europe/france-left-wing-party.html
 
 **Kim Deal Goes Solo, and 7 More New Songs**\
