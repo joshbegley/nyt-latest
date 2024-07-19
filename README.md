@@ -1,3 +1,7 @@
+**Houthis Claim Responsibility for Deadly Drone Attack in Tel Aviv**\
+`The drone crashed into a building near the U.S. consulate early Friday, killing at least one person.`\
+https://nytimes.com/live/2024/07/19/world/israel-gaza-war-hamas
+
 **Jaden Philogene to Aston Villa: The Athletic 500 transfer ratings**\
 `The Athletic has rated winger Philogene's move back to Villa a year after leaving for Hull, using our transfer ratings system`\
 https://nytimes.com/athletic/5623734/2024/07/19/jaden-philogene-to-aston-villa-the-athletic-500-transfer-ratings/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/nyregion/nyc-betty-gordon-stoned-crow.html
 **Wordle Review No. 1,127, Saturday, July 20, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/19/crosswords/wordle-review-1127.html
-
-**Ten Hag: 'Communication broke down' with INEOS after FA Cup final**\
-`Manchester United manager Erik ten Hag says &#8220;communication broke down&#8221; with INEOS following his side&#8217;s FA Cup final victory against Manchester City, during a period of uncertainty regarding his long-term future at Old Trafford.`\
-https://nytimes.com/athletic/5645653/2024/07/19/erik-ten-hag-ineos-manchester-united/
 
