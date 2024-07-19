@@ -1,3 +1,7 @@
+**America’s Unstable Politics**\
+`A remarkable day for both Donald Trump and President Biden highlights our new era of political uncertainty.`\
+https://nytimes.com/2024/07/19/briefing/americas-unstable-politics.html
+
 **At ‘Slave Play’ in London, a ‘Black Out’ Night Emerges From Controversy**\
 `Critics slammed the idea of “restricting audiences on the basis of race,” but at a recent performance, Black spectators praised producers for creating a safe space.`\
 https://nytimes.com/2024/07/19/theater/slave-play-black-out-london.html

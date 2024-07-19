@@ -1,3 +1,7 @@
+**America’s Unstable Politics**\
+`A remarkable day for both Donald Trump and President Biden highlights our new era of political uncertainty.`\
+https://nytimes.com/2024/07/19/briefing/americas-unstable-politics.html
+
 **At ‘Slave Play’ in London, a ‘Black Out’ Night Emerges From Controversy**\
 `Critics slammed the idea of “restricting audiences on the basis of race,” but at a recent performance, Black spectators praised producers for creating a safe space.`\
 https://nytimes.com/2024/07/19/theater/slave-play-black-out-london.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/podcasts/it-outage-trump-speech.html
 **Vikings fan survey: Thoughts on J.J. McCarthy, biggest concerns for 2024 and more**\
 `When should the Vikings' rookie QB take the reins? How confident are you in the coach and GM? Here are the results of our 2024 fan survey.`\
 https://nytimes.com/athletic/5645697/2024/07/19/vikings-fan-survey-jj-mccarthy/
-
-**Cubs' Dansby Swanson hopes struggles are over: 'I've basically become better for it'**\
-`Swanson is working hard to get back to his best self at the plate. There have been flashes lately.`\
-https://nytimes.com/athletic/5646477/2024/07/19/cubs-dansby-swanson-first-half-struggles/
 
