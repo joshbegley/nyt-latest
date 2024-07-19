@@ -1,3 +1,7 @@
+**Blinken says that a cease-fire deal is ‘inside the 10-yard line.’**\
+`By Julian E. Barnes and David E. Sanger`\
+https://nytimes.com/live/2024/07/19/world/israel-gaza-war-hamas/blinken-says-that-a-cease-fire-deal-is-inside-the-10-yard-line
+
 **Could Baseball Persuade Biden to Step Aside?**\
 `Representative Jamie Raskin’s letter to the president was clever politics.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-raskin-letter
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/19/business/global-tech-outage/some-rnc-delegat
 **Five Horror Movies to Stream Now**\
 `This month’s picks include Swedish evildoers, South Korean warrior-ghosts and a devil stalking the American frontier.`\
 https://nytimes.com/2024/07/19/movies/horror-movies-streaming.html
-
-**Everton takeover: Why the Friedkin Group deal is off and what happens now?**\
-`Everton are back to square one following the Friedkin Group's decision to withdraw their takeover bid, with uncertainty flooding back`\
-https://nytimes.com/athletic/5646879/2024/07/19/everton-friedkin-takeover-off-explained/
 
