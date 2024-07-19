@@ -1,3 +1,7 @@
+**Nguyen Phu Trong, Powerful Vietnamese Leader, Is Dead at 80**\
+`Known for his “blazing furnace” anticorruption campaign, Mr. Trong consolidated power in one of the world’s few remaining Communist dictatorships.`\
+https://nytimes.com/2024/07/19/world/asia/nguyen-phu-trong-dead.html
+
 **Zelensky Becomes First Foreign Leader to Visit U.K. Cabinet Since Clinton**\
 `President Volodymyr Zelensky briefed Keir Starmer’s top team in an appearance designed to showcase Britain’s steadfast support for Ukraine in its war against Russia.`\
 https://nytimes.com/2024/07/19/world/europe/zelensky-uk-cabinet-ukraine.html
