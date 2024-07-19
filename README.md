@@ -1,3 +1,7 @@
+**The Athletic FC: United, Real Madrid and a good Yoro deal? Plus: Goalkeepers and goggles**\
+`The Athletic FC is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox`\
+https://nytimes.com/athletic/5646867/2024/07/19/manchester-united-real-madrid-yoro-transfers-the-athletic-fc/
+
 **Milan complete Morata deal**\
 `AC Milan have completed the signing of striker Alvaro Morata from Atletico Madrid.`\
 https://nytimes.com/athletic/5640966/2024/07/19/alvaro-morata-milan-transfer-atletico/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/weather/twisters-tornado-storm-chasers-real.html
 **Chargers training camp storylines, Part 2: Ben Herbert's impact on injury prevention**\
 `Daniel Popper also looks at Jesse Minter’s defensive identity, a battle at nickel, and more. `\
 https://nytimes.com/athletic/5640001/2024/07/19/chargers-training-camp-storylines-ben-herbert-injuries/
-
-**How missing out on Leny Yoro will impact Real Madrid**\
-`The European champions have a tried and tested formula for attracting talent - so why did it fail this time?`\
-https://nytimes.com/athletic/5644218/2024/07/19/leny-yoro-real-madrid-missing-out/
 
