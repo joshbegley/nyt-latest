@@ -1,3 +1,7 @@
+**Forest weighing up move for Riquelme Fillipi**\
+`Nottingham Forest are willing to spend around £5million ($6.`\
+https://nytimes.com/athletic/5646806/2024/07/19/riquelme-fillipi-nottingham-forest/
+
 **Jimmy Fallon Finds Bright Side of Biden Testing Positive for Covid**\
 `“It’s the first positive news he’s had in months,” Fallon said on Thursday.`\
 https://nytimes.com/2024/07/19/arts/television/late-night-biden-covid-positive.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/19/us/global-tech-outage/crowdstrike-outage-fli
 **Trump the Lion, or Trump the Lyin’?**\
 `After years on a self-mythologizing hero’s journey, the former president finally has a true story to tell.`\
 https://nytimes.com/2024/07/19/opinion/donald-trump-speech.html
-
-**Cheng Pei Pei, ‘Crouching Tiger, Hidden Dragon’ Star, Dies at 78**\
-`A trailblazer for women in Asian martial arts cinema, Ms. Cheng rose to fame in the 1960s in Hong Kong.`\
-https://nytimes.com/2024/07/19/movies/cheng-pei-pei-dead.html
 
