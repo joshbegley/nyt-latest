@@ -1,3 +1,15 @@
+**Why Microsoft matters.**\
+`By Cecilia Kang`\
+https://nytimes.com/live/2024/07/19/business/global-tech-outage/why-microsoft-matters
+
+**If Biden Drops Out: Imagine These Scenarios**\
+`Readers offer suggestions if President Biden ends his campaign. Also: The Republican convention and the election stakes; J.D. Vance’s positions.`\
+https://nytimes.com/2024/07/19/opinion/joe-biden-withdrawal.html
+
+**Black Democrats, resisting calls for Biden to go, insist Harris is the only alternative.**\
+`By Robert Jimison`\
+https://nytimes.com/live/2024/07/19/us/biden-election-news/black-democrats-resisting-calls-for-biden-to-go-insist-harris-is-the-only-alternative
+
 **Blinken says that a cease-fire deal is ‘inside the 10-yard line.’**\
 `By Julian E. Barnes and David E. Sanger`\
 https://nytimes.com/live/2024/07/19/world/israel-gaza-war-hamas/blinken-says-that-a-cease-fire-deal-is-inside-the-10-yard-line
