@@ -1,3 +1,7 @@
+**‘Twisters’ | Anatomy of a Scene**\
+`Lee Isaac Chung narrates a sequence from his film, starring Daisy Edgar-Jones and Glen Powell.`\
+https://nytimes.com/video/movies/100000009580520/twisters-scene.html
+
 **FIFA delays decision on Israel's suspension until after Paris Olympics**\
 `FIFA has postponed its decision on whether to suspend Israel from international soccer, extending the deadline until after the Paris Olympics.`\
 https://nytimes.com/athletic/5646818/2024/07/19/israel-fifa-paris-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/arts/television/late-night-biden-covid-positive.h
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/07/19/crosswords/spelling-bee-forum.html
-
-**Can New York City Ever Win Its War Against Rats?**\
-`Checking in with New York’s rat czar and the progress she has made in reducing the city’s rodent population.`\
-https://nytimes.com/2024/07/19/nyregion/can-new-york-city-ever-win-its-war-against-rats.html
 
