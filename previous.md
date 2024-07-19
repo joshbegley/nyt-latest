@@ -1,3 +1,11 @@
+**Trump Can’t Help Himself. Will That Help Him Win?**\
+`The R.N.C. ended with uncertainty about whether Trump can capitalize on the opportunity ahead.`\
+https://nytimes.com/2024/07/19/us/politics/trump-2024-election.html
+
+**With the trade deadline fast approaching, the Cubs can’t afford many more days like this**\
+`The Cubs expect to win when Justin Steele takes the mound, but their first game after the All-Star break didn't go as planned.`\
+https://nytimes.com/athletic/5648036/2024/07/19/mlb-trade-deadline-cubs/
+
 **CONMEBOL, Hard Rock Stadium facing lawsuits after Copa América final**\
 `Fans have alleged that organizers failed to control matchday crowds, leading to spectators being denied entry into the stadium.`\
 https://nytimes.com/athletic/5648003/2024/07/19/copa-america-hard-rock-stadium-conmebol-lawsuits/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/19/arts/music/happy-traum-dead.html
 **Secluded in Rehoboth, Biden Stews at Allies’ Pressure to Drop Out of the Race**\
 `As he recovers from Covid, the president has grown resentful toward Democratic congressional leaders and former President Barack Obama.`\
 https://nytimes.com/2024/07/19/us/politics/biden-drop-out-2024-election.html
-
-**The Candidate**\
-`A single image captures supporters of former President Donald J. Trump rallying around him after his attempted assassination.`\
-https://nytimes.com/2024/07/19/us/elections/trump-rnc-2024-election.html
-
-**25 Million Watched Trump’s Speech at the R.N.C. on Thursday**\
-`Viewership peaked on Thursday night starting around the 15-minute mark of Donald Trump’s speech, as he delivered a vivid reconstruction of last weekend’s assassination attempt.`\
-https://nytimes.com/2024/07/19/business/media/rnc-trump-speech-viewers.html
 
