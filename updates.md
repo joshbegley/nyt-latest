@@ -1,3 +1,15 @@
+**Here’s the latest on the Democratic campaign.**\
+`By Michael D. Shear, Peter Baker, Katie Rogers, Reid J. Epstein and Maggie Haberman`\
+https://nytimes.com/live/2024/07/19/us/biden-election-news/heres-the-latest-on-the-democratic-campaign
+
+**Live Updates: Pressure Grows on Biden as He Isolates With Covid**\
+`The president’s resolve to continue his re-election bid has been shaken by Nancy Pelosi’s comments, worsening state polls and a spending boycott by key donors, some in his camp said.`\
+https://nytimes.com/live/2024/07/19/us/biden-election-news
+
+**Congo’s ‘Other’ Conflict Kills Thousands in West Near the Capital**\
+`Overshadowed by fighting in the east of the Democratic Republic of Congo, a dispute in the west between two ethnic groups has resulted in thousands of civilians killed and more than 550,000 displaced near the capital, Kinshasa.`\
+https://nytimes.com/2024/07/19/world/africa/crisis-western-congo.html
+
 **Britain says it’s restoring funding to the U.N. agency that aids Palestinians.**\
 `The country’s new foreign secretary said that the agency, UNRWA, had taken steps to ensure that it meets “the highest standards of neutrality.”`\
 https://nytimes.com/2024/07/19/world/middleeast/uk-unrwa-funding-palestinians-gaza.html
