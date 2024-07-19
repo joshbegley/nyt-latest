@@ -1,3 +1,7 @@
+**Trump Is Expected to Detail Assassination Attempt in Convention Speech**\
+`According to excepts provided by his campaign, Donald Trump will again portray an America in decay, one that can only be rescued by his restoration to the White House in November.`\
+https://nytimes.com/2024/07/18/us/politics/trump-speech-tonight-rnc.html
+
 **Please, Please, Please …**\
 `… don’t embarrass me …`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/republican-convention-crowd
@@ -6,7 +10,7 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/republican-convention-crowd
 `He basically invented the stand-up special in 1960 and continued to be a source of comic brilliance until his final years.`\
 https://nytimes.com/2024/07/18/arts/television/bob-newhart-standup-comedy.html
 
-**Why Hulk Hogan Is Speaking at the Republican National Convention**\
+**‘Trumpmania’: Hulk Hogan Rips Off His Shirt, and Republicans Go Wild**\
 `Call it Wrestlemania night in Milwaukee.`\
 https://nytimes.com/2024/07/18/us/politics/hulk-hogan-rnc-speech-trump.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5646566/2024/07/18/texas-am-football-mike-elko-sec/
 **The Smartest Way for Democrats to Choose Another Nominee**\
 `Even if it were Harris, she and the party would benefit from a little competition.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/democrats-convention-new-nominee
-
-**The ‘Newhart’ Finale Was One of Bob Newhart’s Boldest TV Moments**\
-`The finale has become so famous in part because it offered a rare moment of real surprise from a taped prime-time television sitcom.`\
-https://nytimes.com/2024/07/18/arts/television/bob-newhart-finale.html
 
