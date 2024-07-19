@@ -1,3 +1,7 @@
+**‘Twisters’ | Anatomy of a Scene**\
+`Lee Isaac Chung narrates a sequence from his film, starring Daisy Edgar-Jones and Glen Powell.`\
+https://nytimes.com/video/movies/100000009580520/twisters-scene.html
+
 **FIFA delays decision on Israel's suspension until after Paris Olympics**\
 `FIFA has postponed its decision on whether to suspend Israel from international soccer, extending the deadline until after the Paris Olympics.`\
 https://nytimes.com/athletic/5646818/2024/07/19/israel-fifa-paris-olympics/
