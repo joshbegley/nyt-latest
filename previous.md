@@ -1,3 +1,7 @@
+**Bob Newhart Holds Up.**\
+`He basically invented the stand-up special in 1960 and continued to be a source of comic brilliance until his final years.`\
+https://nytimes.com/2024/07/18/arts/television/bob-newhart-standup-comedy.html
+
 **Why Hulk Hogan Is Speaking at the Republican National Convention**\
 `Call it Wrestlemania night in Milwaukee.`\
 https://nytimes.com/2024/07/18/us/politics/hulk-hogan-rnc-speech-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/arts/television/bob-newhart-finale.html
 **Hunter Biden, Citing Trump’s Classified Documents Ruling, Seeks Dismissal of Cases**\
 `Mr. Biden’s legal team pointed to a decision by a federal judge in Florida, who ruled that the special counsel in Mr. Trump’s case, Jack Smith, had been unconstitutionally appointed.`\
 https://nytimes.com/2024/07/18/us/politics/hunter-biden-seeks-dismissal.html
-
-**Justice Dept. Sues Contractor Over Sexual Abuse of Migrant Children**\
-`Southwest Key, the Texas-based nonprofit that is the largest provider of housing for unaccompanied minors who arrive at the southern border, has faced federal scrutiny before.`\
-https://nytimes.com/2024/07/18/us/doj-migrants-southwest-key-lawsuit.html
 

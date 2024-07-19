@@ -1,3 +1,7 @@
+**Bob Newhart Holds Up.**\
+`He basically invented the stand-up special in 1960 and continued to be a source of comic brilliance until his final years.`\
+https://nytimes.com/2024/07/18/arts/television/bob-newhart-standup-comedy.html
+
 **Why Hulk Hogan Is Speaking at the Republican National Convention**\
 `Call it Wrestlemania night in Milwaukee.`\
 https://nytimes.com/2024/07/18/us/politics/hulk-hogan-rnc-speech-trump.html
