@@ -1,3 +1,7 @@
+**New Hampshire Bans Gender-Transition Care for Minors**\
+`The move is in line with what other Republican-led states have done, but it is the first ban on such care in the Northeast.`\
+https://nytimes.com/2024/07/19/us/new-hampshire-gender-transition-care-ban.html
+
 **Bernice Johnson Reagon, a Musical Voice for Civil Rights, Is Dead at 81**\
 `A singer, composer, curator and founder of the vocal group Sweet Honey in the Rock, she provided a gospel soundtrack for the civil rights movement.`\
 https://nytimes.com/2024/07/19/arts/music/bernice-johnson-reagon-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5647962/2024/07/19/ngolo-kante-west-ham-transfers/
 **A Tech Outage Caused Disruptions Worldwide**\
 `Also, Biden vowed to press on as more allies said he should quit. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/07/19/briefing/tech-outage-worldwide-biden-next-move.html
-
-**From Honor Student to the Gunman Who Tried to Kill Donald Trump**\
-`Thomas Crooks was a brainy and quiet young man who built computers and won honors at school, impressing his teachers. Then he became a would-be assassin.`\
-https://nytimes.com/2024/07/19/us/gunman-thomas-crooks-trump-shooting.html
 
