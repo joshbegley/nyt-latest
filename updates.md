@@ -1,3 +1,15 @@
+**Jeffries refuses to say whether Biden should drop out: ‘It’s his decision.’**\
+`By Carl Hulse`\
+https://nytimes.com/live/2024/07/19/us/biden-election-news/jeffries-refuses-to-say-whether-biden-should-drop-out-its-his-decision
+
+**Ocasio-Cortez Warns of ‘Enormous Peril’ if Democrats Push Biden Aside**\
+`Representative Alexandria Ocasio-Cortez said the idea of having an open Democratic convention where candidates would compete for the nomination was “crazy.”`\
+https://nytimes.com/2024/07/19/us/politics/aoc-biden-dnc.html
+
+**See How the Global Tech Outage Disrupted Airlines, Subways and More**\
+`See how chaotic moments played out on Friday.`\
+https://nytimes.com/2024/07/19/homepage/global-crowdstrike-outage-photos.html
+
 **The Roots of Biden’s Defiance: Anger, Fear, Pride and Regret**\
 `President Biden is still bitter about feeling pushed out of the 2016 race by Democratic elites in favor of Hillary Clinton.`\
 https://nytimes.com/2024/07/19/us/politics/biden-defiance.html
