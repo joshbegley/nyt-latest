@@ -1,3 +1,7 @@
+**Gunman Might Have Scoped Out Site Six Days Before Trump Rally**\
+`The would-be assassin also had a bulletproof jacket in his car that he did not wear when he opened fire on the former president, along with several magazines for a rifle.`\
+https://nytimes.com/2024/07/18/us/politics/gunman-site-trump-rally.html
+
 **The Smartest Way for Democrats to Choose Another Nominee**\
 `Even if it were Harris, she and the party would benefit from a little competition.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/democrats-convention-new-nominee
