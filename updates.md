@@ -1,3 +1,7 @@
+**The Smartest Way for Democrats to Choose Another Nominee**\
+`Even if it were Harris, she and the party would benefit from a little competition.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/democrats-convention-new-nominee
+
 **The ‘Newhart’ Finale Was One of Bob Newhart’s Boldest TV Moments**\
 `The finale has become so famous in part because it offered a rare moment of real surprise from a taped prime-time television sitcom.`\
 https://nytimes.com/2024/07/18/arts/television/bob-newhart-finale.html

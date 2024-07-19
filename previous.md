@@ -1,3 +1,7 @@
+**The Smartest Way for Democrats to Choose Another Nominee**\
+`Even if it were Harris, she and the party would benefit from a little competition.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/democrats-convention-new-nominee
+
 **The ‘Newhart’ Finale Was One of Bob Newhart’s Boldest TV Moments**\
 `The finale has become so famous in part because it offered a rare moment of real surprise from a taped prime-time television sitcom.`\
 https://nytimes.com/2024/07/18/arts/television/bob-newhart-finale.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/opinion/maga-trump-vance-democrats.html
 **J.D. Vance Puts the Con in Conservatism**\
 `He’s a “populist” who holds contempt for the working class.`\
 https://nytimes.com/2024/07/18/opinion/jd-vance-hillbilly-elegy.html
-
-**Open Championship Round 1 analysis: What to know on Daniel Brown's hot start, more**\
-`For the second straight year the Round 1 leader at The Open is a first-time participant.`\
-https://nytimes.com/athletic/5646402/2024/07/18/open-championship-round-1-analysis-what-to-know-on-daniel-browns-hot-start-more/
 
