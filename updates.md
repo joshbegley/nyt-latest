@@ -1,3 +1,11 @@
+**Between speakers, the house band keeps the crowd entertained.**\
+`By Nick Corasaniti`\
+https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/between-speakers-the-house-band-keeps-the-crowd-entertained
+
+**Mike Elko enjoying quiet first offseason with Texas A&M**\
+`Elko has spent this offseason prodding his Aggies team to keep its head down and move in silence.`\
+https://nytimes.com/athletic/5646566/2024/07/18/texas-am-football-mike-elko-sec/
+
 **Gunman Might Have Scoped Out Site Six Days Before Trump Rally**\
 `The would-be assassin also had a bulletproof jacket in his car that he did not wear when he opened fire on the former president, along with several magazines for a rifle.`\
 https://nytimes.com/2024/07/18/us/politics/gunman-site-trump-rally.html
