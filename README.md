@@ -1,3 +1,7 @@
+**‘Find Me Falling’ Review: A Romance With an Edge**\
+`Harry Connick Jr. stars as a cranky rocker who returns to Cyprus, the home of the love who inspired a signature hit.`\
+https://nytimes.com/2024/07/18/movies/find-me-falling-review.html
+
 **Between speakers, the house band keeps the crowd entertained.**\
 `By Nick Corasaniti`\
 https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/between-speakers-the-house-band-keeps-the-crowd-entertained
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/style/phyllis-kao-dinosaur-fossil-sothebys-auctio
 **Abner Haynes, first AFL Player of the Year, dies at 86**\
 `In 1960, Haynes led the league in rushing with 875 yards.`\
 https://nytimes.com/athletic/5646508/2024/07/18/kansas-city-chiefs-abner-haynes-death/
-
-**Republicans Get Pumped for Trump’s Muscular Finale**\
-`The convention culminates in an evening that seems to celebrate literal combat and general brawn.`\
-https://nytimes.com/2024/07/18/us/politics/republicans-get-pumped-for-trumps-muscular-finale.html
 
