@@ -1,3 +1,7 @@
+**Six Takeaways From the Republican Convention**\
+`Donald J. Trump ended a buoyant gathering in Milwaukee with a speech that started solemn, turned rambling and showcased his all-encompassing power over his party.`\
+https://nytimes.com/2024/07/19/us/politics/rnc-trump-takeaways.html
+
 **Accepting the Republican Nomination, Trump Preaches Unity, Then Reverts to Attacks**\
 `Donald J. Trump, closing a convention that had sought to soften his image and portray him as the leader of an inclusive movement, began with a sober retelling of an assassination attempt but pivoted to grudges and vilifying Democrats.`\
 https://nytimes.com/2024/07/19/us/politics/trump-nomination-speech.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5643821/2024/07/19/seamus-coleman-everton-sean-dych
 **Seattle Police Officer Fired Over ‘Cruel Comments’ About Pedestrian’s Death**\
 `The officer, Daniel Auderer, was heard laughing as he discussed Jaahnavi Kandula, who was struck and killed by a speeding police S.U.V. driven by another Seattle officer.`\
 https://nytimes.com/2024/07/19/us/seattle-police-jaahnavi-kandula-death.html
-
-**What to expect from Arsenal's pre-season tour of the United States**\
-`Which players are going, who'll be missing and what should fans look out for as Arsenal head back to the USA?`\
-https://nytimes.com/athletic/5644312/2024/07/19/arsenal-tour-united-states/
 
