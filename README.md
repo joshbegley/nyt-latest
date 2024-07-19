@@ -1,3 +1,7 @@
+**Jeffries refuses to say whether Biden should drop out: ‘It’s his decision.’**\
+`By Carl Hulse`\
+https://nytimes.com/live/2024/07/19/us/biden-election-news/jeffries-refuses-to-say-whether-biden-should-drop-out-its-his-decision
+
 **Ocasio-Cortez Warns of ‘Enormous Peril’ if Democrats Push Biden Aside**\
 `Representative Alexandria Ocasio-Cortez said the idea of having an open Democratic convention where candidates would compete for the nomination was “crazy.”`\
 https://nytimes.com/2024/07/19/us/politics/aoc-biden-dnc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/business/emergency-911-calls-tech-outage.html
 **Greenwood 'focusing on club football' after Marseille move from Man Utd**\
 `Mason Greenwood said he is “focusing on club football this season” having signed for Marseille — as the club’s president claimed he understood the complexity around his transfer from Manchester United.`\
 https://nytimes.com/athletic/5647409/2024/07/19/mason-greenwood-marseille-manchester-united-move/
-
-**La Familia team returns to Kentucky to face some unfinished business**\
-`La Familia's roster is loaded and focused on winning a title in The Basketball Tournament.`\
-https://nytimes.com/athletic/5647219/2024/07/19/kentucky-basketball-la-familia-the-basketball-tournament/
 
