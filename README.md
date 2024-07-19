@@ -1,3 +1,7 @@
+**Hulk Hogan Rips Shirt Off During R.N.C. Speech**\
+`Hulk Hogan tore off his shirt to reveal a Trump/Vance tank top during his speech on the last night of the Republican National Convention.`\
+https://nytimes.com/video/us/politics/100000009581267/hulk-hogan-rips-shirt-off-during-rnc-speech.html
+
 **What Undecided Voters Thought of Trump’s Speech: Mostly, Not Much**\
 `The former president did not win them over — not that they like the alternative.`\
 https://nytimes.com/2024/07/19/us/undecideds-voters-trump-vance-rnc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5627330/2024/07/19/paris-olympics-2024-tennis-carlo
 **This Is Venezuela’s Moment. It Needs the World’s Help.**\
 `The United States can support Venezuelan democracy by creating an off-ramp for President Nicolás Maduro.`\
 https://nytimes.com/2024/07/19/opinion/venezuela-elections-maduro.html
-
-**Newcastle have five goalkeepers - and could sign another in this transfer window**\
-`Newcastle have signed Vlachodimos and Ruddy to bolster their goalkeeping ranks - and another could follow. Why?`\
-https://nytimes.com/athletic/5628391/2024/07/19/newcastle-have-five-goalkeepers-and-could-sign-another-in-this-transfer-window/
 
