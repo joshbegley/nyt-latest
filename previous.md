@@ -1,3 +1,7 @@
+**Severino jokes about pitching vs. Yankees: 'I'm not afraid of you guys'**\
+`The Mets swept the first Subway Series of the season, winning both games at Citi Field last month.`\
+https://nytimes.com/athletic/5648002/2024/07/19/mets-luis-severino-pitching-yankees/
+
 **Russia Punishes Those Who Seek the Truth**\
 `Evan Gershkovich is a victim of Putin’s campaign to silence independent journalism in Russia.`\
 https://nytimes.com/2024/07/19/opinion/evan-gershkovich-russia-journalist.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/business/media/rnc-trump-speech-viewers.html
 **How a School Bus Electrified a Reporter’s Hometown**\
 `Dionne Searcey traveled to Wymore, Neb., where she grew up, to learn about some residents’ resistance to a new battery-powered bus.`\
 https://nytimes.com/2024/07/19/insider/how-a-school-bus-electrified-a-reporters-hometown.html
-
-**West Ham have £15m verbal offer for Kante rejected by Al Ittihad**\
-`West Ham United had a verbal offer in the region of £15million for N&#8217;Golo Kante rejected by Al Ittihad on Thursday.`\
-https://nytimes.com/athletic/5647962/2024/07/19/ngolo-kante-west-ham-transfers/
 
