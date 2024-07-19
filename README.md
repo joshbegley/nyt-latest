@@ -1,3 +1,7 @@
+**Review: A Chameleon’s Dance at Little Island**\
+`Pam Tanowitz’s “Day for Night” flows with and against the current of its surroundings, reflecting the park’s strange mix of the natural and man-made.`\
+https://nytimes.com/2024/07/19/arts/dance/review-pam-tanowitz-day-for-night.html
+
 **Hospitals Cancel Nonessential Surgeries After Global Technology Outage**\
 `Hospital systems across the country reported I.T. disruptions. A spokesman for Kaiser Permanente called the situation “unprecedented.”`\
 https://nytimes.com/2024/07/19/business/hospitals-cancel-nonessential-surgeries-global-technology-outage.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5646618/2024/07/19/jaguars-sue-amit-patel/
 **Courts close nationwide, and Harvey Weinstein’s case is delayed.**\
 `By Heather Knight`\
 https://nytimes.com/live/2024/07/19/business/global-tech-outage/courts-close-nationwide-and-harvey-weinsteins-case-is-delayed
-
-**‘Lady in the Lake’ Review: Not Just Another Baltimore Mystery**\
-`Natalie Portman stars in an elaborate adaptation of Laura Lippman’s novel about a pair of 1960s murders.`\
-https://nytimes.com/2024/07/19/arts/television/lady-in-the-lake-review.html
 
