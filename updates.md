@@ -1,3 +1,7 @@
+**25 Million Watched Trump’s Speech at the R.N.C. on Thursday**\
+`Viewership peaked on Thursday night starting around the 15-minute mark of Donald Trump’s speech, as he delivered a vivid reconstruction of his assassination attempt.`\
+https://nytimes.com/2024/07/19/business/media/rnc-trump-speech-viewers.html
+
 **How a School Bus Electrified a Reporter’s Hometown**\
 `Dionne Searcey traveled to Wymore, Neb., where she grew up, to learn about some residents’ resistance to a new battery-powered bus.`\
 https://nytimes.com/2024/07/19/insider/how-a-school-bus-electrified-a-reporters-hometown.html
