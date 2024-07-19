@@ -1,3 +1,15 @@
+**Isolation and Secrecy: What We Know About Russia’s Notorious Penal Colonies**\
+`Evan Gershkovich, The Wall Street Journal reporter, was convicted on fabricated charges and is expected to serve time in one of the country’s infamous prisons.`\
+https://nytimes.com/2024/07/19/world/europe/russia-gershkovich-penal-colony.html
+
+**J.D. Vance’s Midwestern Cheer Shouldn’t Fool Anyone**\
+`Behind the fake smile is a highly antagonistic agenda.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/vance-midwestern-agenda
+
+**NBA's new TV deal with Disney, NBC, Amazon won't include matching rights**\
+`Under the NBA's current deal, Warner Bros. Discovery can match to try and retain rights to games.`\
+https://nytimes.com/athletic/5647693/2024/07/19/nba-media-rights-deal-matching-rights/
+
 **Tech Outage Disrupts Flights and Businesses Worldwide**\
 `Airlines, industries and services across the globe were impacted by tech outages attributed to a software update from CrowdStrike, a widely used cybersecurity firm.`\
 https://nytimes.com/video/world/100000009581715/crowdstrike-microsoft-outage-airports.html

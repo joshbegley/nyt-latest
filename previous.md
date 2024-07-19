@@ -1,3 +1,15 @@
+**Isolation and Secrecy: What We Know About Russia’s Notorious Penal Colonies**\
+`Evan Gershkovich, The Wall Street Journal reporter, was convicted on fabricated charges and is expected to serve time in one of the country’s infamous prisons.`\
+https://nytimes.com/2024/07/19/world/europe/russia-gershkovich-penal-colony.html
+
+**J.D. Vance’s Midwestern Cheer Shouldn’t Fool Anyone**\
+`Behind the fake smile is a highly antagonistic agenda.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/vance-midwestern-agenda
+
+**NBA's new TV deal with Disney, NBC, Amazon won't include matching rights**\
+`Under the NBA's current deal, Warner Bros. Discovery can match to try and retain rights to games.`\
+https://nytimes.com/athletic/5647693/2024/07/19/nba-media-rights-deal-matching-rights/
+
 **Tech Outage Disrupts Flights and Businesses Worldwide**\
 `Airlines, industries and services across the globe were impacted by tech outages attributed to a software update from CrowdStrike, a widely used cybersecurity firm.`\
 https://nytimes.com/video/world/100000009581715/crowdstrike-microsoft-outage-airports.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/19/business/fix-computer-microsoft-crowdstrike-outag
 **J.D. Vance and the Tech-Trad Alliance**\
 `How Silicon Valley and religious conservatism might converge.`\
 https://nytimes.com/2024/07/19/opinion/vance-tech-alliance.html
-
-**Republicans Grapple With Next Moves if Democrats Replace Biden**\
-`Candidates trying to flip congressional seats have spent months yoking their opponents to the president. A new nominee could scramble that strategy.`\
-https://nytimes.com/2024/07/19/us/politics/republicans-biden-congress.html
-
-**“If you look at the arrow at the bottom, that’s the lowest level — the one on the bottom, heavy red arrow — that’s the lowest level of illegal immigrants ever to come into our country in recorded history right there, right there. And that was my last week in office.”**\
-`By Angelo Fichera`\
-https://nytimes.com/live/2024/07/19/us/rnc-fact-check/if-you-look-at-the-arrow-at-the-bottom-thats-the-lowest-level-the-one-on-the-bottom-heavy-red-arrow-thats-the-lowest-level-of-il
-
-**Was the drone in the Tel Aviv strike a newly stealthy model?**\
-`That is what the Houthi rebels in Yemen said while claiming responsibility. But Israel said there was little new or special about it.`\
-https://nytimes.com/live/2024/07/19/world/israel-gaza-war-hamas/houthis-drone-strike-tel-aviv-israel
 
