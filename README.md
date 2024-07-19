@@ -1,40 +1,40 @@
-**‘Twisters’ | Anatomy of a Scene**\
-`Lee Isaac Chung narrates a sequence from his film, starring Daisy Edgar-Jones and Glen Powell.`\
-https://nytimes.com/video/movies/100000009580520/twisters-scene.html
+**Social Media Reacts to an Attempted Assassination; Tech Elites for Trump; and TikTok’s Jawmaxxing Trend**\
+`“The 2024 internet is just different than the internet we lived on four years ago.”`\
+https://nytimes.com/2024/07/19/podcasts/hard-fork-conspiracy-trump-looksmaxxing.html
 
-**FIFA delays decision on Israel's suspension until after Paris Olympics**\
-`FIFA has postponed its decision on whether to suspend Israel from international soccer, extending the deadline until after the Paris Olympics.`\
-https://nytimes.com/athletic/5646818/2024/07/19/israel-fifa-paris-olympics/
+**Who Sat in Trump’s V.I.P. Box at the R.N.C.?**\
+`The most prominent seats at the 2024 R.N.C. were three rows of white chairs in Donald J. Trump’s V.I.P. box. Here’s a look at who sat there.`\
+https://nytimes.com/interactive/2024/07/19/us/politics/rnc-attendees-photos.html
 
-**Global Court Set to Weigh In on Israel’s Occupation of Palestinian Territories**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/2024/07/19/world/middleeast/global-court-set-to-weigh-in-on-israels-occupation-of-palestinian-territories.html
+**A Magic Phrase to Defeat Nosy Questions**\
+`Here’s how to shut down “predatory curiosity.”`\
+https://nytimes.com/2024/07/19/well/live/predatory-curiosity-nosy-questions-tips.html
 
-**Houthis Claim Responsibility for Deadly Drone Attack in Tel Aviv**\
-`The drone crashed into a building near the U.S. consulate early Friday, killing at least one person.`\
-https://nytimes.com/live/2024/07/19/world/israel-gaza-war-hamas
+**Funeral for Man Slain at Trump Rally to Be Held in Pennsylvania**\
+`Corey Comperatore’s funeral was set to take place on Friday morning at the church where he was a longtime member.`\
+https://nytimes.com/2024/07/19/us/corey-comperatore-funeral-trump.html
 
-**Jaden Philogene to Aston Villa: The Athletic 500 transfer ratings**\
-`The Athletic has rated winger Philogene's move back to Villa a year after leaving for Hull, using our transfer ratings system`\
-https://nytimes.com/athletic/5623734/2024/07/19/jaden-philogene-to-aston-villa-the-athletic-500-transfer-ratings/
+**The Great Glen Powell Debate**\
+`Our critics discuss Hollywood’s newest leading man.`\
+https://nytimes.com/2024/07/19/podcasts/the-great-glen-powell-debate.html
 
-**Villa complete Philogene signing**\
-`Jaden Philogene has completed his return to Aston Villa on a five-year contract.`\
-https://nytimes.com/athletic/5633958/2024/07/19/jaden-philogene-transfer-aston-villa/
+**5 Things to Do This Weekend**\
+`A selection of entertainment highlights this weekend, including Childish Gambino’s final album.`\
+https://nytimes.com/interactive/2024/07/19/arts/weekend-editors-picks-childish-gambino-bando-stone.html
 
-**Saudi Arabia investigates worker mistreatment allegations after The Athletic report on Newcastle sponsor Noon**\
-`The government of Saudi Arabia is investigating allegations of serious worker mistreatment in the supply chain of Noon, a Newcastle sponsor`\
-https://nytimes.com/athletic/5646814/2024/07/19/noon-saudi-arabia-newcastle-workers-rights/
+**The New York Times News Quiz, July 19, 2024**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2024/07/19/briefing/trump-vance-rnc-emmys-news-quiz.html
 
-**Forest targeting move for Riquelme Fillipi**\
-`Nottingham Forest are willing to spend around £5million ($6.`\
-https://nytimes.com/athletic/5646806/2024/07/19/riquelme-fillipi-nottingham-forest/
+**Why Anti-Trump Protesters Were a Rare Sight in Milwaukee**\
+`Protests in Milwaukee were far smaller than at many past nominating conventions, reflecting exhaustion and despair among opponents of Donald Trump.`\
+https://nytimes.com/2024/07/19/us/rnc-trump-protests-milwaukee.html
 
-**Jimmy Fallon Finds Bright Side of Biden Testing Positive for Covid**\
-`“It’s the first positive news he’s had in months,” Fallon said on Thursday.`\
-https://nytimes.com/2024/07/19/arts/television/late-night-biden-covid-positive.html
+**The Convention Was Just a Pop Star’s Latest Tour Date**\
+`The merger of fandom and politics has become a breeding ground for demagoguery.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/republican-convention-pop-stars
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/07/19/crosswords/spelling-bee-forum.html
+**Will a Movie Faking the Moon Landing Propel a Debunked Conspiracy Theory?**\
+`The screenwriters of “Fly Me to the Moon” say they emphasized the facts of the Apollo 11 landing, but experts worry that clips can be misused.`\
+https://nytimes.com/2024/07/19/movies/fly-me-to-the-moon-conspiracy-theory.html
 
