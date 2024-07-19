@@ -26,7 +26,7 @@ https://nytimes.com/2024/07/19/opinion/trump-vance-tariffs.html
 `Evan Gershkovich, The Wall Street Journal reporter, was convicted on fabricated charges and is expected to serve time in one of the country’s infamous prisons.`\
 https://nytimes.com/2024/07/19/world/europe/russia-gershkovich-penal-colony.html
 
-**J.D. Vance’s Midwestern Cheer Shouldn’t Fool Anyone**\
+**JD Vance’s Midwestern Cheer Shouldn’t Fool Anyone**\
 `Behind the fake smile is a highly antagonistic agenda.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/vance-midwestern-agenda
 

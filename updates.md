@@ -1,3 +1,7 @@
+**JD Vance’s Midwestern Cheer Shouldn’t Fool Anyone**\
+`Behind the fake smile is a highly antagonistic agenda.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/vance-midwestern-agenda
+
 **Democratic Officials Urge Committee to Nominate Biden Through Virtual Vote**\
 `The officials also said the virtual roll call should not happen before Aug. 1. The rules committee for the party convention will vote on the matter next week.`\
 https://nytimes.com/2024/07/19/us/politics/biden-virtual-roll-call-vote.html
