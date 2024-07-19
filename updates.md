@@ -1,3 +1,7 @@
+**Canada Pledges to Meet NATO Spending Goal. It Won’t Be Easy.**\
+`The country’s struggle to reach an informal military spending target highlights how difficult it is for the alliance to quickly bolster its abilities.`\
+https://nytimes.com/2024/07/19/world/canada/canada-nato-spending.html
+
 **As Interest in Raw Milk Surges, New Data Sheds Light on a Major Salmonella Outbreak**\
 `At least 171 people were sickened in an outbreak linked to Raw Farm milk. Experts say the number could be far higher.`\
 https://nytimes.com/2024/07/19/well/raw-milk-health-salmonella.html
