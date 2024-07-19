@@ -1,3 +1,7 @@
+**Jaden Philogene to Aston Villa: The Athletic 500 transfer ratings**\
+`The Athletic has rated winger Philogene's move back to Villa a year after leaving for Hull, using our transfer ratings system`\
+https://nytimes.com/athletic/5623734/2024/07/19/jaden-philogene-to-aston-villa-the-athletic-500-transfer-ratings/
+
 **Villa complete Philogene signing**\
 `Jaden Philogene has completed his return to Aston Villa on a five-year contract.`\
 https://nytimes.com/athletic/5633958/2024/07/19/jaden-philogene-transfer-aston-villa/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/crosswords/wordle-review-1127.html
 **Ten Hag: 'Communication broke down' with INEOS after FA Cup final**\
 `Manchester United manager Erik ten Hag says &#8220;communication broke down&#8221; with INEOS following his side&#8217;s FA Cup final victory against Manchester City, during a period of uncertainty regarding his long-term future at Old Trafford.`\
 https://nytimes.com/athletic/5645653/2024/07/19/erik-ten-hag-ineos-manchester-united/
-
-**The Protests in Bangladesh**\
-`Students, armed mainly with sticks, have been demonstrating for days against a quota system for government jobs they consider unfair. At least 19 people have died.`\
-https://nytimes.com/2024/07/19/world/asia/bangladesh-protests-photos.html
 
