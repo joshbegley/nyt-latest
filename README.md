@@ -1,3 +1,7 @@
+**“We’ve lost more Americans from drugs in the past four years than we lost in World War II. Yeah. Our bloodiest war. More than we lost in World War II. Does anybody care? It is pathetic. It is pathetic. And do you hear a single word from Washington about doing anything about it?”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/weve-lost-more-americans-from-drugs-in-the-past-four-years-than-we-lost-in-world-war-ii-yeah-our-bloodiest-war-more-than-we-lost
+
 **‘Find Me Falling’ Review: A Romance With an Edge**\
 `Harry Connick Jr. stars as a cranky rocker who returns to Cyprus, the home of the love who inspired a signature hit.`\
 https://nytimes.com/2024/07/18/movies/find-me-falling-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/18/us/doj-migrants-southwest-key-lawsuit.html
 **The Woman Who Sold the World’s Most Expensive Dinosaur**\
 `Phyllis Kao, an auctioneer at Sotheby’s, captivated audiences when she sold the fossil of a stegosaurus for $44.6 million.`\
 https://nytimes.com/2024/07/18/style/phyllis-kao-dinosaur-fossil-sothebys-auction.html
-
-**Abner Haynes, first AFL Player of the Year, dies at 86**\
-`In 1960, Haynes led the league in rushing with 875 yards.`\
-https://nytimes.com/athletic/5646508/2024/07/18/kansas-city-chiefs-abner-haynes-death/
 
