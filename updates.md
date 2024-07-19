@@ -1,3 +1,7 @@
+**What Undecided Voters Thought of Trump’s Speech: Mostly, Not Much**\
+`The former president did not win them over — not that they like the alternative.`\
+https://nytimes.com/2024/07/19/us/undecideds-voters-trump-vance-rnc.html
+
 **“They spent $9 billion on eight chargers.”**\
 `By Lisa Friedman`\
 https://nytimes.com/live/2024/07/19/us/rnc-fact-check/they-spent-9-billion-on-eight-chargers

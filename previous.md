@@ -1,3 +1,7 @@
+**What Undecided Voters Thought of Trump’s Speech: Mostly, Not Much**\
+`The former president did not win them over — not that they like the alternative.`\
+https://nytimes.com/2024/07/19/us/undecideds-voters-trump-vance-rnc.html
+
 **“They spent $9 billion on eight chargers.”**\
 `By Lisa Friedman`\
 https://nytimes.com/live/2024/07/19/us/rnc-fact-check/they-spent-9-billion-on-eight-chargers
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/opinion/venezuela-elections-maduro.html
 **Newcastle have five goalkeepers - and could sign another in this transfer window**\
 `Newcastle have signed Vlachodimos and Ruddy to bolster their goalkeeping ranks - and another could follow. Why?`\
 https://nytimes.com/athletic/5628391/2024/07/19/newcastle-have-five-goalkeepers-and-could-sign-another-in-this-transfer-window/
-
-**Friday Briefing**\
-`A pivotal moment in the White House race.`\
-https://nytimes.com/2024/07/19/briefing/trump-biden-gaza-france.html
 
