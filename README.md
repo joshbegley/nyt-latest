@@ -1,3 +1,7 @@
+**Putin Counted on Waning U.S. Interest in Ukraine. It Might Be a Winning Bet.**\
+`The arc of American foreign policy could be moving closer to the Russian president’s view of it. But he has been wrong before about the U.S.`\
+https://nytimes.com/2024/07/19/world/europe/putin-russia-ukraine-trump-election.html
+
 **Russian Court to Deliver Verdict on Evan Gershkovich**\
 `The case against him has been repeatedly denounced by his employer, The Wall Street Journal, and the United States, but a verdict could set the stage for a prisoner exchange.`\
 https://nytimes.com/2024/07/19/world/europe/russia-court-evan-gershkovich-verdict.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/well/live/predatory-curiosity-nosy-questions-tips
 **Funeral for Man Slain at Trump Rally to Be Held in Pennsylvania**\
 `Corey Comperatore’s funeral was set to take place on Friday morning at the church where he was a longtime member.`\
 https://nytimes.com/2024/07/19/us/corey-comperatore-funeral-trump.html
-
-**The Great Glen Powell Debate**\
-`Our critics discuss Hollywood’s newest leading man.`\
-https://nytimes.com/2024/07/19/podcasts/the-great-glen-powell-debate.html
 
