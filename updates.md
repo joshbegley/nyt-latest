@@ -1,3 +1,11 @@
+**Tech Outage Disrupts Flights and Businesses Worldwide**\
+`Airlines, industries and services across the globe were impacted by tech outages attributed to a software update from CrowdStrike, a widely used cybersecurity firm.`\
+https://nytimes.com/video/world/100000009581715/crowdstrike-microsoft-outage-airports.html
+
+**U.S. airlines must offer some stranded travelers compensation.**\
+`The move is a significant reversal from how airlines were treating the situation earlier in the day.`\
+https://nytimes.com/live/2024/07/19/business/global-tech-outage/us-airlines-must-offer-some-stranded-travelers-compensation
+
 **Review: A Chameleon’s Dance at Little Island**\
 `Pam Tanowitz’s “Day for Night” flows with and against the current of its surroundings, reflecting the park’s strange mix of the natural and man-made.`\
 https://nytimes.com/2024/07/19/arts/dance/review-pam-tanowitz-day-for-night.html
