@@ -1,3 +1,11 @@
+**Frontier Airlines Briefly Grounds All Flights Amid Microsoft Outage**\
+`A problem with Microsoft’s Azure system also hit check-in and booking systems at Allegiant and Sun Country Airlines.`\
+https://nytimes.com/2024/07/18/us/frontier-flights-grounded-microsoft.html
+
+**Young Republicans on Why Their Party Isn’t Reaching Gen Z (And What They Can Do About It)**\
+`Polls show that two-thirds of voters aged 18-24 say they don’t identify with the G.O.P. We asked young Republicans why.`\
+https://nytimes.com/video/us/elections/100000009580080/young-republicans-rnc.html
+
 **Maps: 7.4-Magnitude Earthquake Strikes Chile**\
 `View the location of the quake’s shake area and aftershocks.`\
 https://nytimes.com/interactive/2024/07/18/world/americas/earthquake-tracker-chile.html
