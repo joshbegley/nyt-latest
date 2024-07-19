@@ -1,3 +1,7 @@
+**“I will end every single international crisis that the current administration has created — including the horrible war with Russia and Ukraine, which would have never happened if I was president, and the war caused by the attack on Israel, which never would have happened if I were president.”**\
+`By John Ismay`\
+https://nytimes.com/live/2024/07/18/us/trump-rnc-republican-convention/i-will-end-every-single-international-crisis-that-the-current-administration-has-created-including-the-horrible-war-with-russia-
+
 **Ben Sasse Will Step Down as President of University of Florida**\
 `The former senator from Nebraska cited the health of his wife, who has been diagnosed with epilepsy.`\
 https://nytimes.com/2024/07/18/us/ben-sasse-university-of-florida.html
