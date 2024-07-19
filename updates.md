@@ -1,3 +1,11 @@
+**Could Baseball Persuade Biden to Step Aside?**\
+`Representative Jamie Raskin’s letter to the president was clever politics.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-raskin-letter
+
+**The duality of the Irishman leading this Open Championship**\
+`Lowry is among the more affable personalities in golf. But as a cameraman found out Friday, he can also run quite hot. It's working for him.`\
+https://nytimes.com/athletic/5647498/2024/07/19/shane-lowry-open-championship-lead/
+
 **Jeffries refuses to say whether Biden should drop out: ‘It’s his decision.’**\
 `By Carl Hulse`\
 https://nytimes.com/live/2024/07/19/us/biden-election-news/jeffries-refuses-to-say-whether-biden-should-drop-out-its-his-decision
