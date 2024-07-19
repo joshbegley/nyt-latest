@@ -1,3 +1,7 @@
+**What Caused Such a Widespread Tech Meltdown?**\
+`There have been two issues affecting Microsoft systems in quick succession, adding to the confusion over a global outage.`\
+https://nytimes.com/2024/07/19/business/microsoft-outage-cause-azure-crowdstrike.html
+
 **Global IT Outage Wreaks Havoc, and Trump Makes Divisive Speech**\
 `Plus, comedy legend Bob Newhart dies.`\
 https://nytimes.com/2024/07/19/podcasts/it-outage-trump-speech.html
