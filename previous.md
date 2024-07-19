@@ -1,3 +1,31 @@
+**Trump From Head to Toe**\
+`The Republican National Convention was a showcase for Donald J. Trump’s dominance over the party — and its fashion.`\
+https://nytimes.com/2024/07/19/style/trump-rnc-fashion.html
+
+**A Trip Into Tornado Alley With America’s Most Obsessive Storm Chaser**\
+`Reed Timmer streams his pursuits of violent weather to millions of followers on social media, inspiring one of the leads in the new film “Twisters.”`\
+https://nytimes.com/interactive/2024/07/19/magazine/tornado-alley-storm-chaser.html
+
+**The story behind Max Homa's scream: 'Expectation is a hell of a drug'**\
+`The popular Homa has been mired in a slump for most of the 2024 season. He may have had a breakthrough moment Friday.`\
+https://nytimes.com/athletic/5647901/2024/07/19/max-homa-open-championship-cut/
+
+**Ravens sign S Eddie Jackson to 1-year deal**\
+`The Ravens lost their No. 3 safety, Geno Stone, in free agency and they’ve been in the market for a potential replacement.`\
+https://nytimes.com/athletic/5647835/2024/07/19/ravens-sign-eddie-jackson/
+
+**Bobby Grier, Who Integrated the Sugar Bowl in 1956, Dies at 91**\
+`The governor of Georgia tried to ban him from the game, but the state’s Board of Regents let him play. ‘Stupid. Why did the governor have to jump into sports?’ Grier asked years later.`\
+https://nytimes.com/2024/07/19/sports/ncaafootball/bobby-grier-dead.html
+
+**Houthis Launch Deadly Drone Strike on Tel Aviv, Evading Israel’s Defenses**\
+`At least one person was killed and eight others injured in a predawn attack on Friday. The Israeli military said it was investigating why it “did not identify it, attack it and intercept it.”`\
+https://nytimes.com/2024/07/19/world/middleeast/houthis-drone-strike-tel-aviv.html
+
+**Corporate Workers Get a Snow Day in July Because of Outage**\
+`“Happy international blue screen day.”`\
+https://nytimes.com/2024/07/19/business/crowdstrike-microsoft-outage-corporate-workers.html
+
 **Pacific Northwest Braces for a Blistering Heat Wave Over the Weekend**\
 `The heat index, an indicator of temperature and humidity, could reach triple digits, well above what is typical for the region.`\
 https://nytimes.com/2024/07/19/us/heat-wave-forecast-pacific-northwest.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/5647829/2024/07/19/daniel-brown-the-open-contender-
 **Biden’s Successful Border Policy Is a Mixed Blessing**\
 `Migrant crossings have sharply declined. Why didn’t he do this earlier?`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-asylum-migrants-crossings
-
-**Man United exploring deal to sign youth striker Obi-Martin from Arsenal**\
-`Manchester United are exploring a deal to sign youth striker Chido Obi-Martin following the expiry of his schoolboy terms at Arsenal.`\
-https://nytimes.com/athletic/5647749/2024/07/19/chido-obi-martin-manchester-united-arsenal-transfer/
-
-**'No doubt here': Bears put their trust in Caleb Williams from Day 1**\
-`Williams and the Bears start practices on Saturday. Unlike Mitch Trubisky and Justin Fields, he begins as the undisputed No. 1 quarterback.`\
-https://nytimes.com/athletic/5647765/2024/07/19/caleb-williams-bears-training-camp-begins/
-
-**Submit your Yankees trade proposals for Jim Bowden's next mailbag**\
-`With the trade deadline fast-approaching, we want to hear your trade proposals that will help the Yankees address their needs.`\
-https://nytimes.com/athletic/5647839/2024/07/19/yankees-trade-questions/
-
-**Chiefs set 6-month deadline to determine where to play after Arrowhead lease ends**\
-`ST.`\
-https://nytimes.com/athletic/5647784/2024/07/19/chiefs-set-6-month-deadline-to-determine-where-to-play-after-arrowhead-lease-ends-in-2030/
-
-**Are You Ready, Kids?**\
-`Test your knowledge of the beloved Nickelodeon animated series “SpongeBob SquarePants,” which celebrates its 25th anniversary this year.`\
-https://nytimes.com/interactive/2024/07/19/arts/television/spongebob-anniversary-quiz.html
-
-**Tommy Robinson, Colorful Arkansas Sheriff and Congressman, Dies at 82**\
-`He gained national attention for his unorthodox approaches to policing in Little Rock and then went on to win three terms in the House of Representatives.`\
-https://nytimes.com/2024/07/19/us/politics/tommy-robinson-dead.html
-
-**Portland Thorns name Rob Gale as head coach after 12 games in interim role**\
-`Gale's short tenure has included a six-game winning streak.`\
-https://nytimes.com/athletic/5647798/2024/07/19/portland-thorns-rob-gale-head-coach/
 
