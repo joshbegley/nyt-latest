@@ -1,3 +1,7 @@
+**Residents in the drone strike area describe ‘a crazy reality.’**\
+`By Adam Sella`\
+https://nytimes.com/live/2024/07/19/world/israel-gaza-war-hamas/residents-in-the-drone-strike-area-describe-a-crazy-reality
+
 **The global outage has led to long lines and delays at airports around the world.**\
 `Passengers complained as the outage took down airport services and caused delays. Some airports issued handwritten boarding passes.`\
 https://nytimes.com/live/2024/07/19/business/global-tech-outage/airport-delays
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5646694/2024/07/19/mlb-trade-deadline-front-offices
 **These Sculptures Changed What Art Could Be, Then Changed Themselves**\
 `Eva Hesse’s latex and fiberglass pieces from the late 1960s have been reunited from five institutions. Their rapid deterioration makes their future uncertain — which may be their best quality.`\
 https://nytimes.com/2024/07/19/arts/design/eva-hesse-sculptures-hauser-wirth.html
-
-**Angels must be aggressive sellers if they want 'growth' narrative to become reality**\
-`The Angels face a crucial moment, and they can't take the half-in, half-out approach that has failed them so many times before. `\
-https://nytimes.com/athletic/5641680/2024/07/19/angels-sell-trade-deadline/
 

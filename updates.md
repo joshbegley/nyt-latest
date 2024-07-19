@@ -1,3 +1,7 @@
+**Residents in the drone strike area describe ‘a crazy reality.’**\
+`By Adam Sella`\
+https://nytimes.com/live/2024/07/19/world/israel-gaza-war-hamas/residents-in-the-drone-strike-area-describe-a-crazy-reality
+
 **The global outage has led to long lines and delays at airports around the world.**\
 `Passengers complained as the outage took down airport services and caused delays. Some airports issued handwritten boarding passes.`\
 https://nytimes.com/live/2024/07/19/business/global-tech-outage/airport-delays
