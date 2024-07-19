@@ -1,3 +1,15 @@
+**What to Do if Your Computer Is Affected by the Microsoft Outage**\
+`A massive outage related to a security update by CrowdStrike, a cybersecurity company, crippled airlines and other businesses on Friday.`\
+https://nytimes.com/2024/07/19/business/fix-computer-microsoft-crowdstrike-outage.html
+
+**J.D. Vance and the Tech-Trad Alliance**\
+`How Silicon Valley and religious conservatism might converge.`\
+https://nytimes.com/2024/07/19/opinion/vance-tech-alliance.html
+
+**Republicans Grapple With Next Moves if Democrats Replace Biden**\
+`Candidates trying to flip congressional seats have spent months yoking their opponents to the president. A new nominee could scramble that strategy.`\
+https://nytimes.com/2024/07/19/us/politics/republicans-biden-congress.html
+
 **“If you look at the arrow at the bottom, that’s the lowest level — the one on the bottom, heavy red arrow — that’s the lowest level of illegal immigrants ever to come into our country in recorded history right there, right there. And that was my last week in office.”**\
 `By Angelo Fichera`\
 https://nytimes.com/live/2024/07/19/us/rnc-fact-check/if-you-look-at-the-arrow-at-the-bottom-thats-the-lowest-level-the-one-on-the-bottom-heavy-red-arrow-thats-the-lowest-level-of-il
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/19/us/biden-election-news/union-support-for-bid
 **Teamsters Leader’s Speech to Republicans Still Reverberates**\
 `Sean O’Brien delivered one of the most memorable addresses to the convention, calling out corporations and business groups as anti-worker. It’s divided union leaders.`\
 https://nytimes.com/2024/07/19/us/politics/teamsters-speech.html
-
-**The White House Has a Plan to Slash Plastic Use in the U.S.**\
-`The government said it would phase out its purchases of single-use plastics, a significant step because it is the biggest buyer of consumer goods in the world.`\
-https://nytimes.com/2024/07/19/climate/biden-administration-single-use-plastic-reduction.html
-
-**10 Outstanding Brian Eno Productions**\
-`Inspired by an ever-changing new documentary about the musician and producer, listen to songs he helped construct by David Bowie, Talking Heads, U2 and more.`\
-https://nytimes.com/2024/07/19/arts/music/amplifier-newsletter-brian-eno-productions.html
-
-**Israel’s air defenses handle rockets very well. Drones are harder, experts say.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/07/19/world/israel-gaza-war-hamas/israels-air-defenses-handle-rockets-very-well-drones-are-harder-experts-say
 
