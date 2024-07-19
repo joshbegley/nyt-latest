@@ -1,3 +1,15 @@
+**Vice President Kamala Harris to Speak With Major Democratic Donors**\
+`The call comes as turmoil roils the party and its donor base.`\
+https://nytimes.com/2024/07/19/us/politics/kamala-harris-donors.html
+
+**At Least 40 Migrants Killed in Boat Fire off Haitian Coast, U.N. Says**\
+`The boat was carrying over 80 people and bound for Turks and Caicos. The disaster underscores Haiti’s gang-fueled crisis that has spurred many Haitians to leave.`\
+https://nytimes.com/2024/07/19/world/americas/boat-fire-haiti-migrants.html
+
+**Has A.I. Affected the Way You Date Online? We Want to Know.**\
+`The Times is looking for readers who are using generative A.I. services like ChatGPT to craft messages for dating — or who have been on the receiving end of such messages.`\
+https://nytimes.com/2024/07/19/style/ai-chatgpt-online-dating.html
+
 **What’s Left for France’s Left?**\
 `Since winning legislative elections, a coalition of left-wing parties has done little more than squabble. Now some wonder whether it will have any power at all.`\
 https://nytimes.com/2024/07/19/world/europe/france-left-wing-party.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/19/us/biden-election-news/black-democrats-resis
 **Blinken says that a cease-fire deal is ‘inside the 10-yard line.’**\
 `By Julian E. Barnes and David E. Sanger`\
 https://nytimes.com/live/2024/07/19/world/israel-gaza-war-hamas/blinken-says-that-a-cease-fire-deal-is-inside-the-10-yard-line
-
-**Could Baseball Persuade Biden to Step Aside?**\
-`Representative Jamie Raskin’s letter to the president was clever politics.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-raskin-letter
-
-**The duality of the Irishman leading this Open Championship**\
-`Lowry is among the more affable personalities in golf. But as a cameraman found out Friday, he can also run quite hot. It's working for him.`\
-https://nytimes.com/athletic/5647498/2024/07/19/shane-lowry-open-championship-lead/
-
-**Jeffries refuses to say whether Biden should drop out: ‘It’s his decision.’**\
-`By Carl Hulse`\
-https://nytimes.com/live/2024/07/19/us/biden-election-news/jeffries-refuses-to-say-whether-biden-should-drop-out-its-his-decision
 
