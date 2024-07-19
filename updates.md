@@ -1,3 +1,11 @@
+**11 Days in July: Inside the All-Out Push to Save the Biden Campaign**\
+`President Biden has repeatedly tried to erase the concerns over his age and mental acuity. But nothing has changed the narrative.`\
+https://nytimes.com/2024/07/19/us/politics/biden-democrats-campaign.html
+
+**Donald Trump Promised a Softer Image. He Delivered Hulkamania.**\
+`The last night of the Republican National Convention featured glimpses of a more sober tone — and a whole lot of testosterone.`\
+https://nytimes.com/2024/07/19/arts/television/donald-trump-rnc.html
+
 **'See Her, Be Her': New documentary aims to create more chances for women in baseball**\
 `Cal Ripken Jr., Ichiro Suzuki and Ken Griffey Jr., among other MLB stars, lent their support to the project. `\
 https://nytimes.com/athletic/5645425/2024/07/19/documentary-women-baseball-see-her-be-her/
