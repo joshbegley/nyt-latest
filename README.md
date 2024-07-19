@@ -1,3 +1,7 @@
+**What I'm hearing on the Eagles: Nick Sirianni's job security, relationship with Hurts and more**\
+`Why last year's offensive coordinator is out, who made the call on the new coordinator hires, and just how long is Sirianni’s leash?`\
+https://nytimes.com/athletic/5647091/2024/07/19/eagles-nick-sirianni-job-security-jalen-hurts-howie-roseman-dynamic/
+
 **Melania Trump, Bandages and Patriotism: The Most Effective Trump Accessories**\
 `As the Republican National Convention drew to a close, it painted a red, white and blue picture.`\
 https://nytimes.com/2024/07/19/style/rnc-ear-bandages-melania-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5647031/2024/07/19/alabama-football-nick-saban-brya
 **The Carnage in Donald Trump’s Mind**\
 `Ignoring the facts, he wants to believe crime is rampant.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/krugman-trump-crime
-
-**Fantasy baseball bold second-half predictions: Julio Rodriguez, Colt Keith and more**\
-`John Laghezza serves up some second half hot takes for fantasy baseball, including his call for Julio Rodríguez to be the game's top player.`\
-https://nytimes.com/athletic/5629486/2024/07/19/bold-predictions-second-half-fantasy-baseball-julio-rodriguez/
 
