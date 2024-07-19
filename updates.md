@@ -1,3 +1,7 @@
+**Why a security update to Microsoft devices disrupted the economy.**\
+`By Cecilia Kang`\
+https://nytimes.com/live/2024/07/19/business/global-tech-outage/why-microsoft-matters
+
 **Kim Deal Goes Solo, and 7 More New Songs**\
 `Hear tracks by Alan Sparhawk, Joy Oladokun, Ivan Cornejo and others.`\
 https://nytimes.com/2024/07/19/arts/music/playlist-kim-deal-childish-gambino.html
