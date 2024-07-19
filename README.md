@@ -1,3 +1,7 @@
+**CONMEBOL, Hard Rock Stadium facing lawsuits after Copa América final**\
+`Fans have alleged that organizers failed to control matchday crowds, leading to spectators being denied entry into the stadium.`\
+https://nytimes.com/athletic/5648003/2024/07/19/copa-america-hard-rock-stadium-conmebol-lawsuits/
+
 **Severino jokes about pitching vs. Yankees: 'I'm not afraid of you guys'**\
 `The Mets swept the first Subway Series of the season, winning both games at Citi Field last month.`\
 https://nytimes.com/athletic/5648002/2024/07/19/mets-luis-severino-pitching-yankees/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/us/elections/trump-rnc-2024-election.html
 **25 Million Watched Trump’s Speech at the R.N.C. on Thursday**\
 `Viewership peaked on Thursday night starting around the 15-minute mark of Donald Trump’s speech, as he delivered a vivid reconstruction of last weekend’s assassination attempt.`\
 https://nytimes.com/2024/07/19/business/media/rnc-trump-speech-viewers.html
-
-**How a School Bus Electrified a Reporter’s Hometown**\
-`Dionne Searcey traveled to Wymore, Neb., where she grew up, to learn about some residents’ resistance to a new battery-powered bus.`\
-https://nytimes.com/2024/07/19/insider/how-a-school-bus-electrified-a-reporters-hometown.html
 
