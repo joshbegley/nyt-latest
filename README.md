@@ -1,40 +1,40 @@
-**Trump concludes his convention very much on brand. Here’s the latest.**\
-`By Jim Rutenberg and Adam Nagourney`\
-https://nytimes.com/live/2024/07/19/us/trump-rnc-republican-convention/trump-concludes-his-convention-very-much-on-brand-heres-the-latest
+**Global IT Outage Wreaks Havoc, and Trump Makes Divisive Speech**\
+`Plus, comedy legend Bob Newhart dies.`\
+https://nytimes.com/2024/07/19/podcasts/it-outage-trump-speech.html
 
-**Election Live Updates: Republicans Leave Convention Unified Around Trump**\
-`The party’s embrace of Donald J. Trump comes as President Biden’s campaign is in turmoil. Mr. Trump heads out to campaign with his new running mate, J.D. Vance, with a rally set for Michigan on Saturday.`\
-https://nytimes.com/live/2024/07/19/us/trump-rnc-republican-convention
+**Vikings fan survey: Thoughts on J.J. McCarthy, biggest concerns for 2024 and more**\
+`When should the Vikings' rookie QB take the reins? How confident are you in the coach and GM? Here are the results of our 2024 fan survey.`\
+https://nytimes.com/athletic/5645697/2024/07/19/vikings-fan-survey-jj-mccarthy/
 
-**Kasper Hjulmand steps down as Denmark head coach**\
-`Kasper Hjulmand has stepped down from his role as Denmark&#8217;s men&#8217;s head coach.`\
-https://nytimes.com/athletic/5646841/2024/07/19/kasper-hjulmand-denmark-manager-leaves/
+**Cubs' Dansby Swanson hopes struggles are over: 'I've basically become better for it'**\
+`Swanson is working hard to get back to his best self at the plate. There have been flashes lately.`\
+https://nytimes.com/athletic/5646477/2024/07/19/cubs-dansby-swanson-first-half-struggles/
 
-**Why Do Kind Strangers Return Our Wallets?**\
-`Whoever you are, we appreciate it.`\
-https://nytimes.com/2024/07/19/world/asia/lost-and-found-wallet.html
+**Hollinger: Biggest and best cap-nerd moves of the 2024 NBA offseason**\
+`This summer has seen more creative cap-circumventing shenanigans than normal, but these stood out the most.`\
+https://nytimes.com/athletic/5644837/2024/07/19/nba-offseason-sixers-knicks-lebron-lakers/
 
-**Putin Counted on Waning U.S. Interest in Ukraine. It Might Be a Winning Bet.**\
-`The arc of American foreign policy could be moving closer to the Russian president’s view of it. But he has been wrong before about the U.S.`\
-https://nytimes.com/2024/07/19/world/europe/putin-russia-ukraine-trump-election.html
+**Twins teammates remember Joe Mauer's qualities and quirks as he enters Hall of Fame**\
+`Those who played with Mauer found themselves mimicking his consistency, even when it came to their daily meal choices.`\
+https://nytimes.com/athletic/5646389/2024/07/19/baseball-hall-of-fame-2024-joe-mauer/
 
-**Russian Court to Deliver Verdict on Evan Gershkovich**\
-`The case against him has been repeatedly denounced by his employer, The Wall Street Journal, and the United States, but a verdict could set the stage for a prisoner exchange.`\
-https://nytimes.com/2024/07/19/world/europe/russia-court-evan-gershkovich-verdict.html
+**Health services were experiencing difficulties in several countries.**\
+`By Megan Specia`\
+https://nytimes.com/live/2024/07/19/business/global-tech-outage/health-services-were-experiencing-difficulties-in-several-countries
 
-**Tech Outage Strands Passengers at Airports Around the U.S.**\
-`Flights were grounded or canceled across the country as airlines struggled with the outage.`\
-https://nytimes.com/2024/07/19/travel/tech-outage-us-airlines-ground-stops.html
+**Friedkin Group's proposed Everton takeover off**\
+`The Friedkin Group’s proposed takeover of Everton is off, plunging the Premier League club back into crisis.`\
+https://nytimes.com/athletic/5646876/2024/07/19/everton-takeover-friedkin-group-latest/
 
-**Sell Reynaldo Lopez, buy Pablo Lopez and more fantasy baseball deals to make for the second half**\
-`Michael Salfino points out the pitchers fantasy managers should be looking to acquire or trade away at the outset of the second half.`\
-https://nytimes.com/athletic/5646080/2024/07/19/fantasy-baseball-buy-low-sell-high-pitchers-second-half/
+**George Pickens, now Steelers' unquestioned No. 1 WR, should see his fantasy value rise**\
+`Pickens’ numbers could be much better this season with Russell Wilson at quarterback and Arthur Smith at offensive coordinator. `\
+https://nytimes.com/athletic/5644477/2024/07/19/steelers-george-pickens-fantasy-football/
 
-**The NFL, Olympic and UFC training experience that drew Notre Dame to its new strength coach**\
-`Inside the Denver facility where Notre Dame strength coach Loren Landow attracted Marcus Freeman's attention with diverse training methods.`\
-https://nytimes.com/athletic/5645601/2024/07/19/notre-dame-football-strength-coach-nfl/
+**Salvador Perez was willing to go to the Rangers at last year's deadline. He and the Royals are glad it didn't happen**\
+`The episode serves as a reminder of how sometimes the best moves are the ones a team doesn’t make.`\
+https://nytimes.com/athletic/5646608/2024/07/19/salvador-perez-royals-rangers-trade-deadline/
 
-**Donald Trump Concludes R.N.C. With Mixed Message**\
-`Donald J. Trump closed the Republican convention with a speech that began with a call for unity and a sober retelling of the attack on his life, but pivoted to attacks. Maggie Haberman, a senior political correspondent for The New York Times, gives her takeaways.`\
-https://nytimes.com/video/us/politics/100000009580491/donald-trump-concludes-rnc-with-mixed-message.html
+**Packers mailbag: What impact can rookies MarShawn Lloyd, Edgerrin Cooper have?**\
+`Before training camp kicks off Monday, dive into the latest Packers mailbag with plenty of your questions answered.`\
+https://nytimes.com/athletic/5633085/2024/07/19/green-bay-packers-training-camp-preview/
 
