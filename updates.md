@@ -1,3 +1,19 @@
+**Trump concludes his convention very much on brand. Here’s the latest.**\
+`By Jim Rutenberg and Adam Nagourney`\
+https://nytimes.com/live/2024/07/19/us/trump-rnc-republican-convention/trump-concludes-his-convention-very-much-on-brand-heres-the-latest
+
+**Election Live Updates: Republicans Leave Convention Unified Around Trump**\
+`The party’s embrace of Donald J. Trump comes as President Biden’s campaign is in turmoil. Mr. Trump heads out to campaign with his new running mate, J.D. Vance, with a rally set for Michigan on Saturday.`\
+https://nytimes.com/live/2024/07/19/us/trump-rnc-republican-convention
+
+**Kasper Hjulmand steps down as Denmark head coach**\
+`Kasper Hjulmand has stepped down from his role as Denmark&#8217;s men&#8217;s head coach.`\
+https://nytimes.com/athletic/5646841/2024/07/19/kasper-hjulmand-denmark-manager-leaves/
+
+**Why Do Kind Strangers Return Our Wallets?**\
+`Whoever you are, we appreciate it.`\
+https://nytimes.com/2024/07/19/world/asia/lost-and-found-wallet.html
+
 **Putin Counted on Waning U.S. Interest in Ukraine. It Might Be a Winning Bet.**\
 `The arc of American foreign policy could be moving closer to the Russian president’s view of it. But he has been wrong before about the U.S.`\
 https://nytimes.com/2024/07/19/world/europe/putin-russia-ukraine-trump-election.html
