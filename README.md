@@ -1,3 +1,7 @@
+**Trump Accepts the Republican Nomination**\
+`Former President Donald J. Trump concluded the Republican National Convention on Thursday with a speech that ran for more than an hour and a half.`\
+https://nytimes.com/video/us/elections/100000009581269/trump-accepts-the-republican-nomination.html
+
 **Trump’s Brush With Death as Political Theater, for One Night Only**\
 `Donald J. Trump used his convention speech to recount the attempt on his life in dark detail. “Bullets were flying over us, yet I felt serene,” he said.`\
 https://nytimes.com/2024/07/19/us/politics/trump-rnc-shooting-speech.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/us/politics/trump-nomination-speech.html
 **Trump Struggles to Turn the Page on ‘American Carnage’**\
 `On the last night of the G.O.P. convention on Thursday, Donald J. Trump promised to bridge political divides, and then returned to delighting in deepening them.`\
 https://nytimes.com/2024/07/19/us/politics/trump-rnc-speech-analysis.html
-
-**‘It Was Trump Untethered’: Best and Worst Moments From His Acceptance Speech**\
-`Times Opinion writers assess Night 4 of the Republican convention, which included speeches from Hulk Hogan, Mike Pompeo and Donald Trump.`\
-https://nytimes.com/2024/07/19/opinion/trump-acceptance-speech-rnc.html
 
