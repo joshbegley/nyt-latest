@@ -1,3 +1,7 @@
+**Newcastle have five goalkeepers - and could sign another in this transfer window**\
+`Newcastle have signed Vlachodimos and Ruddy to bolster their goalkeeping ranks - and another could follow. Why?`\
+https://nytimes.com/athletic/5628391/2024/07/19/newcastle-have-five-goalkeepers-and-could-sign-another-in-this-transfer-window/
+
 **Friday Briefing**\
 `A pivotal moment in the White House race.`\
 https://nytimes.com/2024/07/19/briefing/trump-biden-gaza-france.html
