@@ -1,3 +1,7 @@
+**Forest targeting move for Riquelme Fillipi**\
+`Nottingham Forest are willing to spend around £5million ($6.`\
+https://nytimes.com/athletic/5646806/2024/07/19/riquelme-fillipi-nottingham-forest/
+
 **Forest weighing up move for Riquelme Fillipi**\
 `Nottingham Forest are willing to spend around £5million ($6.`\
 https://nytimes.com/athletic/5646806/2024/07/19/riquelme-fillipi-nottingham-forest/
