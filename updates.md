@@ -1,3 +1,11 @@
+**Zelensky Becomes First Foreign Leader to Visit U.K. Cabinet Since Clinton**\
+`President Volodymyr Zelensky briefed Keir Starmer’s top team in an appearance designed to showcase Britain’s steadfast support for Ukraine in its war against Russia.`\
+https://nytimes.com/2024/07/19/world/europe/zelensky-uk-cabinet-ukraine.html
+
+**Examining Kawhi Leonard's status and the Clippers' search for more scoring**\
+`With Paul George now in Philly, the Clippers could have a more simplified approach on offense — when healthy.`\
+https://nytimes.com/athletic/5644816/2024/07/19/kawhi-leonard-injury-status-clippers-offseason-nba/
+
 **MLB front offices under the most pressure — and the least — this trade deadline**\
 `At this time of year, every front office decision is scrutinized. But these teams and execs are under the most pressure to make major moves.`\
 https://nytimes.com/athletic/5646694/2024/07/19/mlb-trade-deadline-front-offices-under-pressure/
