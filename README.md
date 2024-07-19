@@ -1,3 +1,7 @@
+**Why We Came to California, and Why We Stay**\
+`The best of our readers’ love letters to California.`\
+https://nytimes.com/2024/07/19/us/california-love-letters.html
+
 **Summer Reading Contest, Week 7: What Got Your Attention in The Times This Week?**\
 `To participate, submit your response here by July 26 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 7.`\
 https://nytimes.com/2024/07/19/learning/summer-reading-contest-week-7-what-got-your-attention-in-the-times-this-week.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/world/africa/crisis-western-congo.html
 **Britain says it’s restoring funding to the U.N. agency that aids Palestinians.**\
 `The country’s new foreign secretary said that the agency, UNRWA, had taken steps to ensure that it meets “the highest standards of neutrality.”`\
 https://nytimes.com/2024/07/19/world/middleeast/uk-unrwa-funding-palestinians-gaza.html
-
-**Residents in the drone strike area describe ‘a crazy reality.’**\
-`By Adam Sella`\
-https://nytimes.com/live/2024/07/19/world/israel-gaza-war-hamas/residents-in-the-drone-strike-area-describe-a-crazy-reality
 
