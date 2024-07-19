@@ -1,3 +1,7 @@
+**Bernice Johnson Reagon, a Musical Voice for Civil Rights, Is Dead at 81**\
+`A singer, composer, curator and founder of the vocal group Sweet Honey in the Rock, she provided a gospel soundtrack for the civil rights movement.`\
+https://nytimes.com/2024/07/19/arts/music/bernice-johnson-reagon-dead.html
+
 **Words Used at the Republican National Convention**\
 `Counting frequently spoken words and phrases at the four-day convention.`\
 https://nytimes.com/interactive/2024/07/19/us/politics/trump-rnc-words.html
