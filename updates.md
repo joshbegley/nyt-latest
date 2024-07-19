@@ -1,3 +1,7 @@
+**911 Systems Disrupted in at Least 3 States**\
+`Emergency call lines were operating in most major cities, but the authorities in Oregon, Alaska and Arizona said some of their systems had been hit by the outage.`\
+https://nytimes.com/2024/07/19/business/emergency-911-calls-tech-outage.html
+
 **Greenwood 'focusing on club football' after Marseille move from Man Utd**\
 `Mason Greenwood said he is “focusing on club football this season” having signed for Marseille — as the club’s president claimed he understood the complexity around his transfer from Manchester United.`\
 https://nytimes.com/athletic/5647409/2024/07/19/mason-greenwood-marseille-manchester-united-move/
