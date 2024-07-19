@@ -1,3 +1,7 @@
+**Alabama to name football field after Nick Saban**\
+`Saban won six national championships in 17 seasons at Alabama and had a 108-9 record at home during his career.`\
+https://nytimes.com/athletic/5647031/2024/07/19/alabama-football-nick-saban-bryant-denny-stadium/
+
 **The Carnage in Donald Trump’s Mind**\
 `Ignoring the facts, he wants to believe crime is rampant.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/krugman-trump-crime
