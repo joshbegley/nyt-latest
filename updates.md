@@ -1,3 +1,11 @@
+**I Keep the Family Tree — And I’m Flummoxed About Whom to Include.**\
+`The magazine’s Ethicist columnist on genealogy, record-keeping and notions of relation.`\
+https://nytimes.com/2024/07/19/magazine/family-tree-record-ethics.html
+
+**Trump’s Misguided Fascination with Tariffs**\
+`Trump talks about how great William McKinley was for raising tariffs, but what worked in 1896 isn’t what works in 2024.`\
+https://nytimes.com/2024/07/19/opinion/trump-vance-tariffs.html
+
 **Isolation and Secrecy: What We Know About Russia’s Notorious Penal Colonies**\
 `Evan Gershkovich, The Wall Street Journal reporter, was convicted on fabricated charges and is expected to serve time in one of the country’s infamous prisons.`\
 https://nytimes.com/2024/07/19/world/europe/russia-gershkovich-penal-colony.html

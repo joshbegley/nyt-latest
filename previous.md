@@ -1,3 +1,11 @@
+**I Keep the Family Tree — And I’m Flummoxed About Whom to Include.**\
+`The magazine’s Ethicist columnist on genealogy, record-keeping and notions of relation.`\
+https://nytimes.com/2024/07/19/magazine/family-tree-record-ethics.html
+
+**Trump’s Misguided Fascination with Tariffs**\
+`Trump talks about how great William McKinley was for raising tariffs, but what worked in 1896 isn’t what works in 2024.`\
+https://nytimes.com/2024/07/19/opinion/trump-vance-tariffs.html
+
 **Isolation and Secrecy: What We Know About Russia’s Notorious Penal Colonies**\
 `Evan Gershkovich, The Wall Street Journal reporter, was convicted on fabricated charges and is expected to serve time in one of the country’s infamous prisons.`\
 https://nytimes.com/2024/07/19/world/europe/russia-gershkovich-penal-colony.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/19/business/hospitals-cancel-nonessential-surgeries-
 **Lamar Jackson challenging Troy Aikman's trademark bid for No. 8**\
 `Jackson's attorney said Aikman's "EIGHT" trademark would be "likely to cause confusion" with Jackson's Era 8 Apparel brand.`\
 https://nytimes.com/athletic/5647092/2024/07/19/lamar-jackson-troy-aikman-trademark-8/
-
-**What to Do if Your Computer Is Affected by the Microsoft Outage**\
-`A massive outage related to a security update by CrowdStrike, a cybersecurity company, crippled airlines and other businesses on Friday.`\
-https://nytimes.com/2024/07/19/business/fix-computer-microsoft-crowdstrike-outage.html
-
-**J.D. Vance and the Tech-Trad Alliance**\
-`How Silicon Valley and religious conservatism might converge.`\
-https://nytimes.com/2024/07/19/opinion/vance-tech-alliance.html
 
