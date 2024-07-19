@@ -1,3 +1,7 @@
+**Review: A Chameleon’s Dance at Little Island**\
+`Pam Tanowitz’s “Day for Night” flows with and against the current of its surroundings, reflecting the park’s strange mix of the natural and man-made.`\
+https://nytimes.com/2024/07/19/arts/dance/review-pam-tanowitz-day-for-night.html
+
 **Hospitals Cancel Nonessential Surgeries After Global Technology Outage**\
 `Hospital systems across the country reported I.T. disruptions. A spokesman for Kaiser Permanente called the situation “unprecedented.”`\
 https://nytimes.com/2024/07/19/business/hospitals-cancel-nonessential-surgeries-global-technology-outage.html
