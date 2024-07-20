@@ -1,3 +1,7 @@
+**Manchester United Jarrad Branthwaite transfer**\
+`Everton have informed Manchester United they do not intend to sanction Jarrad Branthwaite’s exit this summer, irrespective of their proposed takeover by the Friedkin Group (TFG) collapsing.`\
+https://nytimes.com/athletic/5648410/2024/07/20/jarrad-branthwaite-everton-manchester-united-transfer/
+
 **Some Seniors Readily Step Back. Some Never Will.**\
 `Researchers are only beginning to understand why some people embrace retirement while others won’t even consider it.`\
 https://nytimes.com/2024/07/20/health/retirement-mental-health.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/world/asia/china-highway-collapse.html
 **Biden and Trump Have Succeeded in Breaking Reality**\
 `We are living in a realm in which “nothing is true and everything is possible.”`\
 https://nytimes.com/2024/07/20/opinion/biden-trump-campaign-reality.html
-
-**Lord Almighty, Joe, Let It Go!**\
-`It’s sad that the president doesn’t see what’s inescapable.`\
-https://nytimes.com/2024/07/20/opinion/biden-trump-kamala-harris.html
 
