@@ -1,3 +1,7 @@
+**Arsenal accelerating efforts to sign Bologna's Calafiori**\
+`Arsenal are accelerating their efforts to sign Bologna defender Riccardo Calafiori.`\
+https://nytimes.com/athletic/5614190/2024/07/20/riccardo-calafiori-arsenal-transfer-news/
+
 **Bears open training camp with patience for Caleb Williams but sense of urgency on offense**\
 `The Bears want to find a groove on offense as quickly as possible to start training camp. And GM Ryan Poles feels good about the lines.`\
 https://nytimes.com/athletic/5647768/2024/07/20/bears-caleb-williams-offense/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/technology/crowdstrike-microsoft-outage-software.
 **Amid Talk of Border Chaos, Crossings Have Sharply Declined**\
 `Former President Donald J. Trump and the Texas governor are calling for a “secure border.” But actions by Mexico and President Biden have led to a period of relative calm.`\
 https://nytimes.com/2024/07/20/us/border-immigration-current-situation.html
-
-**Did Police in Kenya Catch a Serial Killer or Coerce a Confession?**\
-`After at least 10 sacks with body parts were found in a dump, a suspect was said to admit to 42 murders. But some doubt the case, and people with missing loved ones say the police were slow to help.`\
-https://nytimes.com/2024/07/20/world/africa/nairobi-kenya-serial-killer.html
 

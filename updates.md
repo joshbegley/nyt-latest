@@ -1,3 +1,7 @@
+**Arsenal accelerating efforts to sign Bologna's Calafiori**\
+`Arsenal are accelerating their efforts to sign Bologna defender Riccardo Calafiori.`\
+https://nytimes.com/athletic/5614190/2024/07/20/riccardo-calafiori-arsenal-transfer-news/
+
 **Bears open training camp with patience for Caleb Williams but sense of urgency on offense**\
 `The Bears want to find a groove on offense as quickly as possible to start training camp. And GM Ryan Poles feels good about the lines.`\
 https://nytimes.com/athletic/5647768/2024/07/20/bears-caleb-williams-offense/
