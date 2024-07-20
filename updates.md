@@ -1,3 +1,7 @@
+**USMNT's Adams to miss 2024-25 season start for Bournemouth after back surgery**\
+`Bournemouth midfielder and USMNT international Tyler Adams will miss the start of the 2024-25 season after undergoing back surgery.`\
+https://nytimes.com/athletic/5648297/2024/07/20/tyler-adams-back-injury-usmnt-bournemouth/
+
 **Miguel Vargas' moment sparks Dodgers to win to open second half**\
 `Freddie Freeman's grand slam accounted for all of the scoring, but it was a defensive play by Vargas that seemed to ignite the Dodgers.`\
 https://nytimes.com/athletic/5648271/2024/07/20/miguel-vargas-dodgers-red-sox/
