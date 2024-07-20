@@ -1,3 +1,7 @@
+**Flight Delays and Cancellations Continue Saturday but in Lower Numbers**\
+`An estimated 3,400 flights to, from and within the United States were canceled on Friday because of a tech outage. That made it the worst day of the year for flight cancellations.`\
+https://nytimes.com/2024/07/20/business/tech-outage-flight-delays-cancellations.html
+
 **Is Bird Flu Spreading Widely to Farm Workers? A Small Study Offers Some Reassurance**\
 `Officials found no evidence of silent infections in 35 Michigan dairy workers, but experts noted that much more data was necessary.`\
 https://nytimes.com/2024/07/20/health/bird-flu-h5n1-farm-workers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/business/dealbook/silicon-valley-trump.html
 **2 Los Angeles Novels as Stylish and Wild as the City Itself**\
 `Elizabeth Stromme’s noir about a writer for hire; Karen Tei Yamashita’s magic realist dystopia.`\
 https://nytimes.com/2024/07/20/books/read-like-wind-recommendations-los-angeles-novels.html
-
-**Divisive Far-Right Politician in Ukraine Is Fatally Shot**\
-`Iryna Farion, a former lawmaker, was known for controversial campaigns to discredit Russian-speaking Ukrainians.`\
-https://nytimes.com/2024/07/20/world/europe/ukraine-iryna-farion-shot.html
 
