@@ -1,3 +1,7 @@
+**Israeli Airstrikes Hit Houthi Targets in Yemen**\
+`Israel struck the Yemeni port city of Hodeidah a day after the Houthis claimed responsibility for launching a drone at Tel Aviv that killed one person and wounded several others.`\
+https://nytimes.com/video/world/middleeast/100000009583849/israeli-airstrikes-yemen-houthis.html
+
 **Test Your Focus: Can You Spend 10 Minutes With One Painting?**\
 `It’s very hard to slow down and look closely at something. You may find it’s worth it.`\
 https://nytimes.com/interactive/2024/07/20/upshot/attention-experiment.html

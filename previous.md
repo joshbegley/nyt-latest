@@ -1,3 +1,7 @@
+**Israeli Airstrikes Hit Houthi Targets in Yemen**\
+`Israel struck the Yemeni port city of Hodeidah a day after the Houthis claimed responsibility for launching a drone at Tel Aviv that killed one person and wounded several others.`\
+https://nytimes.com/video/world/middleeast/100000009583849/israeli-airstrikes-yemen-houthis.html
+
 **Test Your Focus: Can You Spend 10 Minutes With One Painting?**\
 `It’s very hard to slow down and look closely at something. You may find it’s worth it.`\
 https://nytimes.com/interactive/2024/07/20/upshot/attention-experiment.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5648592/2024/07/20/jayden-bogle-leeds-transfer/
 **Brittney Griner Announces Birth of Her Son**\
 `Less than two years after her release from a Russian penal colony, the W.N.B.A. center and two-time Olympic gold medal winner said that her son was born on July 8.`\
 https://nytimes.com/2024/07/20/sports/brittney-griner-cherelle-baby.html
-
-**Dozens of Local Police Officers Were at Trump’s Rally. Very Few Were Watching a Critical Area.**\
-`Local law enforcement officials, present in abundance, said they were not assigned security duties around a warehouse used by a man who tried to kill former President Donald Trump.`\
-https://nytimes.com/2024/07/20/us/politics/trump-rally-police-secret-service-shooting.html
 
