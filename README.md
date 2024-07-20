@@ -1,3 +1,7 @@
+**Bears open training camp with patience for Caleb Williams but sense of urgency on offense**\
+`The Bears want to find a groove on offense as quickly as possible to start training camp. And GM Ryan Poles feels good about the lines.`\
+https://nytimes.com/athletic/5647768/2024/07/20/bears-caleb-williams-offense/
+
 **Much Is Still Unknown as Listeria Again Takes Canadian Lives**\
 `While a listeria contamination of 18 nondairy milk alternatives has killed two people and sickened 10 more, Danone seems to be concealing a key fact.`\
 https://nytimes.com/2024/07/20/world/canada/listeria-takes-canadian-lives.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/us/border-immigration-current-situation.html
 **Did Police in Kenya Catch a Serial Killer or Coerce a Confession?**\
 `After at least 10 sacks with body parts were found in a dump, a suspect was said to admit to 42 murders. But some doubt the case, and people with missing loved ones say the police were slow to help.`\
 https://nytimes.com/2024/07/20/world/africa/nairobi-kenya-serial-killer.html
-
-**How Americans Justify Political Violence**\
-`Partisan support for the killing of adversaries is much more widespread than anyone wants to admit.`\
-https://nytimes.com/2024/07/20/magazine/us-political-violence.html
 
