@@ -1,3 +1,7 @@
+**Thomas Neff, Who Turned Soviet Warheads Into Electricity, Dies at 80**\
+`An M.I.T. physicist, he engineered an East-West deal that reduced nuclear threats and produced one of the greatest peace dividends of all time.`\
+https://nytimes.com/2024/07/20/world/europe/thomas-l-neff-dead.html
+
 **Trump Campaign Prepares Attack Plan for Harris in Case Biden Withdraws**\
 `The effort, which includes expansive advertising and polling, assumes that the vice president would be the most likely candidate to replace the president at the top of the Democratic ticket.`\
 https://nytimes.com/2024/07/20/us/politics/trump-harris-strategy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/business/tech-outage-flight-delays-cancellations.
 **Is Bird Flu Spreading Widely to Farm Workers? A Small Study Offers Some Reassurance**\
 `Officials found no evidence of silent infections in 35 Michigan dairy workers, but experts noted that much more data was necessary.`\
 https://nytimes.com/2024/07/20/health/bird-flu-h5n1-farm-workers.html
-
-**Transcript: Ezra Klein Debriefs the 2024 Republican National Convention**\
-`The July 20, 2024 episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2024/07/20/podcasts/transcript-ezra-klein-debriefs-the-2024-republican-national-convention.html
 
