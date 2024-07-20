@@ -1,3 +1,7 @@
+**Buckley: Joe Castiglione joins Red Sox greats in Hall. Fittingly, he'll decide exit plan**\
+`Castiglione, who made all the great Red Sox radio calls since '83, was welcomed to Cooperstown Saturday as the Ford C. Frick Award winner.`\
+https://nytimes.com/athletic/5648781/2024/07/20/boston-red-sox-joe-castiglione-hall-of-fame-ford-frick-award/
+
 **After Fire Destroys Sanctuary, Landmark Dallas Church Mourns What’s Lost**\
 `As officials work to determine the cause, many lament the damage at First Baptist Dallas, a church that grew along with the downtown around it.`\
 https://nytimes.com/2024/07/20/us/first-baptist-dallas-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5648745/2024/07/20/billy-horschel-open-championship
 **Vance makes his V.P. debut at a Trump rally in Michigan.**\
 `By Michael Gold`\
 https://nytimes.com/live/2024/07/20/us/trump-biden-election/vance-makes-his-vp-debut-at-a-trump-rally-in-michigan
-
-**Liverpool U18s walk off pitch twice after alleged racist abuse**\
-`Liverpool Under-18s walked off the pitch twice in successive days at a youth tournament in Germany after one of their players was allegedly racially abused.`\
-https://nytimes.com/athletic/5648635/2024/07/20/liverpool-u18s-racist-abuse/
 
