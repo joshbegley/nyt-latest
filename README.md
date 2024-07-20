@@ -1,3 +1,11 @@
+**Open Championship leader Billy Horschel has waited a career for this moment**\
+`"If it's not meant to be, it's not meant to be," Horschel said of winning his first career major. But make no mistake — he wants it.`\
+https://nytimes.com/athletic/5648745/2024/07/20/billy-horschel-open-championship-leader/
+
+**Vance makes his V.P. debut at a Trump rally in Michigan.**\
+`By Michael Gold`\
+https://nytimes.com/live/2024/07/20/us/trump-biden-election/vance-makes-his-vp-debut-at-a-trump-rally-in-michigan
+
 **Liverpool U18s walk off pitch twice after alleged racist abuse**\
 `Liverpool Under-18s walked off the pitch twice in successive days at a youth tournament in Germany after one of their players was allegedly racially abused.`\
 https://nytimes.com/athletic/5648635/2024/07/20/liverpool-u18s-racist-abuse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5648691/2024/07/20/canucks-sign-daniel-sprong/
 **Israeli Airstrikes Hit Houthi Targets in Yemen**\
 `Israel struck the Yemeni port city of Hodeidah a day after the Houthis claimed responsibility for launching a drone at Tel Aviv that killed one person and wounded several others.`\
 https://nytimes.com/video/world/middleeast/100000009583849/israeli-airstrikes-yemen-houthis.html
-
-**Test Your Focus: Can You Spend 10 Minutes With One Painting?**\
-`It’s very hard to slow down and look closely at something. You may find it’s worth it.`\
-https://nytimes.com/interactive/2024/07/20/upshot/attention-experiment.html
-
-**Billy Horschel leads crowded leaderboard at The Open**\
-`Six players — Dan Brown, Thirston Lawrence, Sam Burns, Russell Henley, Xander Schauffele and Justin Rose — lurk one shot back.`\
-https://nytimes.com/athletic/5648662/2024/07/20/billy-horschel-the-open-round-three-leaderboard/
 
