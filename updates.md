@@ -1,3 +1,7 @@
+**In My Defense …**\
+`John Ewbank’s puzzle teaches us what not to do the next time we’re in an argument.`\
+https://nytimes.com/2024/07/20/crosswords/daily-puzzle-2024-07-21.html
+
 **Open Championship leader Billy Horschel has waited a career for this moment**\
 `"If it's not meant to be, it's not meant to be," Horschel said of winning his first career major. But make no mistake — he wants it.`\
 https://nytimes.com/athletic/5648745/2024/07/20/billy-horschel-open-championship-leader/
