@@ -1,3 +1,7 @@
+**Trump Campaign Prepares Attack Plan for Harris in Case Biden Withdraws**\
+`The effort, which includes expansive advertising and polling, assumes that the vice president would be the most likely candidate to replace the president at the top of the Democratic ticket.`\
+https://nytimes.com/2024/07/20/us/politics/trump-harris-strategy.html
+
 **4 People, Including 2 Children, Are Found Dead in Brooklyn Apartment**\
 `At least one person, a 56-year-old woman, was found with multiple stab wounds in her neck. A man was in custody, the police said, but it was not immediately clear how everyone was connected.`\
 https://nytimes.com/2024/07/20/nyregion/brooklyn-stabbing-children-dead.html
