@@ -1,3 +1,7 @@
+**Houthi Drone Strike Highlights Dilemmas for Israel**\
+`Israel has few options to retaliate for the attack in Tel Aviv, which made clear the weakness of its air defense system against unmanned aircraft and heightened concerns about the threat of Iranian-backed militias.`\
+https://nytimes.com/2024/07/20/world/middleeast/houthi-drone-strike-israel-tel-aviv.html
+
 **Trump and Vance head to Michigan, while Biden publicly stands firm. Here’s the latest.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/07/20/us/trump-biden-election/trump-and-vance-head-to-michigan-while-biden-publicly-stands-firm-heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/20/opinion/republicans-trump-bent-the-kn
 **The Week When So Much Changed**\
 `The assassination attempt, like so much else, should be a wake-up call. It was a near miss for Trump but also for America — and a chance to make things better.`\
 https://nytimes.com/2024/07/20/opinion/trump-biden-america.html
-
-**How Trump Sabotaged His Own Apotheosis**\
-`Having Trump as a dominant figure keeps American politics in a state of unsettlement.`\
-https://nytimes.com/2024/07/20/opinion/donald-trump-republican-convention.html
 

@@ -1,3 +1,7 @@
+**Houthi Drone Strike Highlights Dilemmas for Israel**\
+`Israel has few options to retaliate for the attack in Tel Aviv, which made clear the weakness of its air defense system against unmanned aircraft and heightened concerns about the threat of Iranian-backed militias.`\
+https://nytimes.com/2024/07/20/world/middleeast/houthi-drone-strike-israel-tel-aviv.html
+
 **Trump and Vance head to Michigan, while Biden publicly stands firm. Here’s the latest.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/07/20/us/trump-biden-election/trump-and-vance-head-to-michigan-while-biden-publicly-stands-firm-heres-the-latest
