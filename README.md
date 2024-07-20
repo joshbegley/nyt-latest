@@ -1,3 +1,11 @@
+**While the debate over who will lead the ticket plays out, a Democratic voter group plans battleground initiative.**\
+`By Reid J. Epstein`\
+https://nytimes.com/live/2024/07/19/us/biden-election-news/while-the-debate-over-who-will-lead-the-ticket-plays-out-a-democratic-voter-group-plans-battleground-initiative
+
+**Blinken Says Gaza Cease-Fire Deal Is ‘Inside the 10-Yard Line’**\
+`The national security adviser, Jake Sullivan, was more cautious as both spoke ahead of next week’s visit to Washington by Prime Minister Benjamin Netanyahu of Israel.`\
+https://nytimes.com/2024/07/19/us/politics/blinken-sullivan-gaza-cease-fire.html
+
 **Trump Can’t Help Himself. Will That Help Him Win?**\
 `The R.N.C. ended with uncertainty about whether Trump can capitalize on the opportunity ahead.`\
 https://nytimes.com/2024/07/19/us/politics/trump-2024-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/19/arts/music/bernice-johnson-reagon-dead.html
 **Words Used at the Republican National Convention**\
 `Counting frequently spoken words and phrases at the four-day convention.`\
 https://nytimes.com/interactive/2024/07/19/us/politics/trump-rnc-words.html
-
-**Happy Traum, Mainstay of the Folk Music World, Dies at 86**\
-`A noted guitarist and banjo player, he emerged from the same Greenwich Village folk-revival scene as his friend and sometime collaborator Bob Dylan.`\
-https://nytimes.com/2024/07/19/arts/music/happy-traum-dead.html
-
-**Secluded in Rehoboth, Biden Stews at Allies’ Pressure to Drop Out of the Race**\
-`As he recovers from Covid, the president has grown resentful toward Democratic congressional leaders and former President Barack Obama.`\
-https://nytimes.com/2024/07/19/us/politics/biden-drop-out-2024-election.html
 
