@@ -1,3 +1,7 @@
+**As Biden recovers from Covid, Harris assumes a starring role on the campaign trail.**\
+`By Nicholas Nehamas`\
+https://nytimes.com/live/2024/07/20/us/trump-biden-election/harris-biden-fundraiser-provincetown
+
 **In My Defense …**\
 `John Ewbank’s puzzle teaches us what not to do the next time we’re in an argument.`\
 https://nytimes.com/2024/07/20/crosswords/daily-puzzle-2024-07-21.html
