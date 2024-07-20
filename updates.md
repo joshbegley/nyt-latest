@@ -1,3 +1,7 @@
+**Miguel Vargas' moment sparks Dodgers to win to open second half**\
+`Freddie Freeman's grand slam accounted for all of the scoring, but it was a defensive play by Vargas that seemed to ignite the Dodgers.`\
+https://nytimes.com/athletic/5648271/2024/07/20/miguel-vargas-dodgers-red-sox/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/07/20/crosswords/spelling-bee-forum.html
