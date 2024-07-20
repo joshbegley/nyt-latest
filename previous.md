@@ -1,3 +1,7 @@
+**4 People, Including 2 Children, Are Found Dead in Brooklyn Apartment**\
+`At least one person, a 56-year-old woman, was found with multiple stab wounds in her neck. A man was in custody, the police said, but it was not immediately clear how everyone was connected.`\
+https://nytimes.com/2024/07/20/nyregion/brooklyn-stabbing-children-dead.html
+
 **Israeli Jets Bomb Sites in Yemen Linked to Iran-Backed Houthi Militia**\
 `The strike was in retaliation for a drone attack launched from Yemen a day earlier, which evaded Israel’s defenses and hit a building in Tel Aviv, killing one person.`\
 https://nytimes.com/2024/07/20/world/middleeast/israel-houthis-yemen.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/podcasts/transcript-ezra-klein-debriefs-the-2024-
 **Everton tell Man United they will not sell Branthwaite unless transfer valuation met**\
 `Everton have informed Manchester United they do not intend to sanction Jarrad Branthwaite’s exit this summer, irrespective of their proposed takeover by the Friedkin Group (TFG) collapsing.`\
 https://nytimes.com/athletic/5648410/2024/07/20/jarrad-branthwaite-everton-manchester-united-transfer/
-
-**Some Seniors Readily Step Back. Some Never Will.**\
-`Researchers are only beginning to understand why some people embrace retirement while others won’t even consider it.`\
-https://nytimes.com/2024/07/20/health/retirement-mental-health.html
 

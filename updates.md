@@ -1,3 +1,7 @@
+**4 People, Including 2 Children, Are Found Dead in Brooklyn Apartment**\
+`At least one person, a 56-year-old woman, was found with multiple stab wounds in her neck. A man was in custody, the police said, but it was not immediately clear how everyone was connected.`\
+https://nytimes.com/2024/07/20/nyregion/brooklyn-stabbing-children-dead.html
+
 **Israeli Jets Bomb Sites in Yemen Linked to Iran-Backed Houthi Militia**\
 `The strike was in retaliation for a drone attack launched from Yemen a day earlier, which evaded Israel’s defenses and hit a building in Tel Aviv, killing one person.`\
 https://nytimes.com/2024/07/20/world/middleeast/israel-houthis-yemen.html
