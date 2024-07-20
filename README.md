@@ -1,3 +1,7 @@
+**Trump Campaign Prepares Attack Plan for Harris in Case Biden Withdraws**\
+`The effort, which includes expansive advertising and polling, assumes that the vice president would be the most likely candidate to replace the president at the top of the Democratic ticket.`\
+https://nytimes.com/2024/07/20/us/politics/trump-harris-strategy.html
+
 **4 People, Including 2 Children, Are Found Dead in Brooklyn Apartment**\
 `At least one person, a 56-year-old woman, was found with multiple stab wounds in her neck. A man was in custody, the police said, but it was not immediately clear how everyone was connected.`\
 https://nytimes.com/2024/07/20/nyregion/brooklyn-stabbing-children-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/health/bird-flu-h5n1-farm-workers.html
 **Transcript: Ezra Klein Debriefs the 2024 Republican National Convention**\
 `The July 20, 2024 episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/07/20/podcasts/transcript-ezra-klein-debriefs-the-2024-republican-national-convention.html
-
-**Everton tell Man United they will not sell Branthwaite unless transfer valuation met**\
-`Everton have informed Manchester United they do not intend to sanction Jarrad Branthwaite’s exit this summer, irrespective of their proposed takeover by the Friedkin Group (TFG) collapsing.`\
-https://nytimes.com/athletic/5648410/2024/07/20/jarrad-branthwaite-everton-manchester-united-transfer/
 
