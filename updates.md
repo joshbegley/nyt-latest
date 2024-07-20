@@ -1,3 +1,7 @@
+**As Blue Jays continue losing season, what is there to look forward to in the second half?**\
+`Bo Bichette left Friday's game with a calf injury and Joey Votto was scratched from his Triple-A Buffalo debut after re-injuring his ankle.`\
+https://nytimes.com/athletic/5648146/2024/07/19/toronto-blue-jays-second-half/
+
 **Representative Sheila Jackson Lee Dies at 74**\
 `Ms. Lee, who represented a district in the Houston area for nearly three decades, said in June that she had pancreatic cancer.`\
 https://nytimes.com/2024/07/19/us/sheila-jackson-lee-dead.html
