@@ -1,3 +1,19 @@
+**Corrections: July 20, 2024**\
+`Corrections that appeared in print on Saturday, July 20, 2024.`\
+https://nytimes.com/2024/07/20/pageoneplus/corrections-july-20-2024.html
+
+**Sacked politicians, Chelsea in crisis and team-mates at war - the fallout from Argentina's chant**\
+`The repercussions from the derogatory song have been seismic and transcended football, leaving Argentina and Chelsea in difficult situations`\
+https://nytimes.com/athletic/5647005/2024/07/20/fallout-from-argentina-chant/
+
+**Why has Saudi Arabia been so quiet on transfers this summer? It's all part of the plan**\
+`Saudi clubs being less active in this window after the £700m trolley dash of a year ago fits into an overall strategy to grow their league`\
+https://nytimes.com/athletic/5640572/2024/07/20/saudi-arabia-transfer-window/
+
+**Why Premier League clubs are adopting Real Madrid's buy-back strategy**\
+`Such clauses are far from a new invention, but the way clubs use them has shifted. Here's how they work, and why they're having a moment`\
+https://nytimes.com/athletic/5647010/2024/07/20/buy-back-deals-real-madrid-aston-villa-manchester-united/
+
 **International management remains a glorious mystery - and is all the better for it**\
 `Why international football is a mix of federation figures, big-name club managers, experienced journeymen and home grown coaches`\
 https://nytimes.com/athletic/5647096/2024/07/20/international-management-template-mystery/
