@@ -1,3 +1,7 @@
+**Canucks sign forward Daniel Sprong to 1-year deal**\
+`The 6-foot, 200-pound right-handed shooting winger is an ace finisher, who has scored 39 goals over the past two seasons.`\
+https://nytimes.com/athletic/5648691/2024/07/20/canucks-sign-daniel-sprong/
+
 **Israeli Airstrikes Hit Houthi Targets in Yemen**\
 `Israel struck the Yemeni port city of Hodeidah a day after the Houthis claimed responsibility for launching a drone at Tel Aviv that killed one person and wounded several others.`\
 https://nytimes.com/video/world/middleeast/100000009583849/israeli-airstrikes-yemen-houthis.html
