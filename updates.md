@@ -1,3 +1,7 @@
+**The Big Rethink**\
+`What happens when an event changes the way we see the people who are most important to us.`\
+https://nytimes.com/2024/07/20/podcasts/the-big-rethink.html
+
 **‘Twisters’ and the Appeal of the Sequel**\
 `When a sequel comes out, it can be an occasion to reaffirm why you love the original.`\
 https://nytimes.com/2024/07/20/briefing/twisters-and-the-appeal-of-the-sequel.html
