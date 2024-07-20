@@ -1,3 +1,7 @@
+**What to expect from Manchester City's pre-season tour of the United States**\
+`Which players are going, who'll be missing and what should fans look out for as Manchester City head to the U.S.?`\
+https://nytimes.com/athletic/5647243/2024/07/20/manchester-city-pre-season-tour-america-squad/
+
 **Death of Vietnam’s Top Leader Raises Questions of Succession**\
 `The country’s political workings are notably opaque, but for now the president, who was until recently minister of public security, is carrying out the duties of general secretary.`\
 https://nytimes.com/2024/07/20/world/asia/vietnam-leadership-to-lam.html
