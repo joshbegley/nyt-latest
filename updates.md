@@ -1,3 +1,7 @@
+**Mets' Jeff McNeil shows signs of breakout with two home runs**\
+`McNeil's first two-homer game since 2019 comes after a major shift in his approach at the plate. `\
+https://nytimes.com/athletic/5648212/2024/07/20/mets-jeff-mcneil-home-runs/
+
 **What to expect from Manchester City's pre-season tour of the United States**\
 `Which players are going, who'll be missing and what should fans look out for as Manchester City head to the U.S.?`\
 https://nytimes.com/athletic/5647243/2024/07/20/manchester-city-pre-season-tour-america-squad/

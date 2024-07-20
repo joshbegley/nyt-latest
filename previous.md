@@ -1,3 +1,7 @@
+**Mets' Jeff McNeil shows signs of breakout with two home runs**\
+`McNeil's first two-homer game since 2019 comes after a major shift in his approach at the plate. `\
+https://nytimes.com/athletic/5648212/2024/07/20/mets-jeff-mcneil-home-runs/
+
 **Death of Vietnam’s Top Leader Raises Questions of Succession**\
 `The country’s political workings are notably opaque, but for now the president, who was until recently minister of public security, is carrying out the duties of general secretary.`\
 https://nytimes.com/2024/07/20/world/asia/vietnam-leadership-to-lam.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/pageoneplus/quotation-of-the-day-the-poet-who-com
 **Another José Alvarado stumble opens the door to a different Phillies bullpen mix**\
 `José Alvarado might not be the closer for much longer after blowing a save opportunity for the third time this season.`\
 https://nytimes.com/athletic/5648178/2024/07/19/phillies-bullpen-jose-alvarado-closer/
-
-**As Blue Jays continue losing season, what is there to look forward to in the second half?**\
-`Bo Bichette left Friday's game with a calf injury, and Joey Votto was scratched from his Triple-A Buffalo debut after reinjuring his ankle.`\
-https://nytimes.com/athletic/5648146/2024/07/19/toronto-blue-jays-second-half/
 
