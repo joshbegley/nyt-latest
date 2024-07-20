@@ -1,3 +1,7 @@
+**Hungarian GP preview: McLaren v. Verstappen continues, pressure mounts on Pérez**\
+`Plus: Mercedes slips backward and Williams' Logan Sargeant takes a step forward. `\
+https://nytimes.com/athletic/5648608/2024/07/20/f1-hungarian-gp-preview-mclaren-verstappen-perez-pressure/
+
 **Leeds sign Bogle from Sheffield United on four-year deal**\
 `Leeds United have completed the signing Jayden Bogle from Sheffield United for an undisclosed fee.`\
 https://nytimes.com/athletic/5648592/2024/07/20/jayden-bogle-leeds-transfer/
