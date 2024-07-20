@@ -1,3 +1,11 @@
+**Elon Musk Is a Critical but Shaky Republican Donor**\
+`Elon Musk has undergone a midlife reinvention that has many Republicans salivating about him as the party’s moneymaker — if he delivers. Theodore Schleifer, a New York Times reporter who covers campaign finance and the influence of the ultrawealthy in American politics, explains.`\
+https://nytimes.com/video/us/elections/100000009579899/elon-musk-is-a-critical-but-shaky-republican-donor.html
+
+**Quincy Wilson, teenage track star, breaks U18 men's 400m WR again**\
+`Wilson ran a 44.20 to reset the U18 men's 400m world record and break his own U.S. high school record.`\
+https://nytimes.com/athletic/5648119/2024/07/19/quincy-wilson-breaks-u18-400m-world-record/
+
 **Churchill Downs rescinds Bob Baffert's suspension**\
 `With the suspension rescinded, Baffert will be allowed to race horses at next year's Kentucky Derby.`\
 https://nytimes.com/athletic/5648116/2024/07/19/churchill-downs-bob-baffert-suspension/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/19/us/biden-election-news/while-the-debate-over
 **Blinken Says Gaza Cease-Fire Deal Is ‘Inside the 10-Yard Line’**\
 `The national security adviser, Jake Sullivan, was more cautious as both spoke ahead of next week’s visit to Washington by Prime Minister Benjamin Netanyahu of Israel.`\
 https://nytimes.com/2024/07/19/us/politics/blinken-sullivan-gaza-cease-fire.html
-
-**Trump Can’t Help Himself. Will That Help Him Win?**\
-`The R.N.C. ended with uncertainty about whether Trump can capitalize on the opportunity ahead.`\
-https://nytimes.com/2024/07/19/us/politics/trump-2024-election.html
-
-**With the trade deadline fast approaching, the Cubs can't afford many more days like this**\
-`The Cubs expect to win when Justin Steele takes the mound, but their first game after the All-Star break didn't go as planned.`\
-https://nytimes.com/athletic/5648036/2024/07/19/mlb-trade-deadline-cubs/
 
