@@ -1,3 +1,7 @@
+**Newcastle sign Serbia youth international defender Pivas**\
+`Newcastle United have signed Serbia youth international defender Miodrag Pivas from FK Jedinstvo.`\
+https://nytimes.com/athletic/5648329/2024/07/20/newcastle-transfer-news-pivas/
+
 **Joel Embiid Believes He Could Have Been the GOAT**\
 `The N.B.A. star talks Philly cheesesteaks, Twitter trolling and playing for Team U.S.A. over France in the Olympics.`\
 https://nytimes.com/2024/07/20/magazine/joel-embiid-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/business/wall-street-republicans-trump-jd-vance.h
 **Psychologist Who Waterboarded C.I.A. Prisoners Defends Method’s Use in 9/11 Case**\
 `The man accused of planning the attacks was waterboarded 183 times. The now outlawed “enhanced interrogation” technique is considered a form of torture.`\
 https://nytimes.com/2024/07/20/us/politics/cia-terrorism-waterboarded-prisoners.html
-
-**Indian Americans Become a Political Force, Just as Usha Vance’s Profile Rises**\
-`Indian Americans are now the largest and most politically active group among Asian Americans. Among their recent milestones: Vice President Kamala Harris, two G.O.P. presidential candidates — and a possible second lady.`\
-https://nytimes.com/2024/07/20/us/usha-vance-indian-americans-politics.html
 
