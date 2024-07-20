@@ -1,3 +1,7 @@
+**Magic Words**\
+`Ricky J. Sirois’s themeless puzzle tests our core strength.`\
+https://nytimes.com/2024/07/19/crosswords/daily-puzzle-2024-07-20.html
+
 **Our Solution to the Crisis of Democracy**\
 `Center-left parties must lead the way to restore the social contract the binds democracies together.`\
 https://nytimes.com/2024/07/19/opinion/inequality-democracy-trump-solutions.html
