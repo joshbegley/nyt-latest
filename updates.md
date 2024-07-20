@@ -1,3 +1,7 @@
+**Test Your Focus: Can You Spend 10 Minutes With One Painting?**\
+`It’s very hard to slow down and look closely at something. You may find it’s worth it.`\
+https://nytimes.com/interactive/2024/07/20/upshot/attention-experiment.html
+
 **Billy Horschel leads crowded leaderboard at The Open**\
 `Six players — Dan Brown, Thirston Lawrence, Sam Burns, Russell Henley, Xander Schauffele and Justin Rose — lurk one shot back.`\
 https://nytimes.com/athletic/5648662/2024/07/20/billy-horschel-the-open-round-three-leaderboard/
