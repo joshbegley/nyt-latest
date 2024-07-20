@@ -1,3 +1,7 @@
+**Representative Sheila Jackson Lee Dies at 74**\
+`Ms. Lee, who represented a district in the Houston area for nearly three decades, said in June that she had pancreatic cancer.`\
+https://nytimes.com/2024/07/19/us/sheila-jackson-lee-dead.html
+
 **Braves rookie pitcher Spencer Schwellenbach quickly ascending and impressing**\
 `The Braves are impressed by what they've seen: "If he gets in a sticky situation, you don’t ever see him panic."`\
 https://nytimes.com/athletic/5648141/2024/07/19/braves-spencer-schwellenbach/
