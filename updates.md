@@ -1,3 +1,7 @@
+**Ex-Marine Sentenced to Nearly 5 Years for Role in Jan. 6 Riot**\
+`Tyler Bradley Dykes was charged with assaulting law enforcement after prosecutors said he stole a police officer’s riot shield to help break into the Capitol.`\
+https://nytimes.com/2024/07/19/us/marine-jan-6-riot-sentencing.html
+
 **While the debate over who will lead the ticket plays out, a Democratic voter group plans battleground initiative.**\
 `By Reid J. Epstein`\
 https://nytimes.com/live/2024/07/19/us/biden-election-news/while-the-debate-over-who-will-lead-the-ticket-plays-out-a-democratic-voter-group-plans-battleground-initiative
