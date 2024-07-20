@@ -1,7 +1,3 @@
-**As Blue Jays continue losing season, what is there to look forward to in the second half?**\
-`Bo Bichette left Friday's game with a calf injury and Joey Votto was scratched from his Triple-A Buffalo debut after re-injuring his ankle.`\
-https://nytimes.com/athletic/5648146/2024/07/19/toronto-blue-jays-second-half/
-
 **Representative Sheila Jackson Lee Dies at 74**\
 `Ms. Lee, who represented a district in the Houston area for nearly three decades, said in June that she had pancreatic cancer.`\
 https://nytimes.com/2024/07/19/us/sheila-jackson-lee-dead.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5648114/2024/07/19/wnba-2024-all-star-friday/
 **What Happened to ‘Digital Resilience’?**\
 `With each cascade of digital disaster, new vulnerabilities emerge. The latest chaos wasn’t caused by an adversary, but it provided a road map of American vulnerabilities at a critical moment.`\
 https://nytimes.com/2024/07/19/us/politics/crowdstrike-outage.html
+
+**Magic Words**\
+`Ricky J. Sirois’s themeless puzzle tests our core strength.`\
+https://nytimes.com/2024/07/19/crosswords/daily-puzzle-2024-07-20.html
 
