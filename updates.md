@@ -1,3 +1,7 @@
+**Is Bird Flu Spreading Widely to Farm Workers? A Small Study Offers Some Reassurance**\
+`Officials found no evidence of silent infections in 35 Michigan dairy workers, but experts noted that much more data was necessary.`\
+https://nytimes.com/2024/07/20/health/bird-flu-h5n1-farm-workers.html
+
 **Transcript: Ezra Klein Debriefs the 2024 Republican National Convention**\
 `The July 20, 2024 episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/07/20/podcasts/transcript-ezra-klein-debriefs-the-2024-republican-national-convention.html
