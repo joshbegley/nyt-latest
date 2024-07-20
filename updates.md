@@ -1,3 +1,7 @@
+**Buckley: Joe Castiglione joins Red Sox greats in Hall. Fittingly, he'll decide exit plan**\
+`Castiglione, who made all the great Red Sox radio calls since '83, was welcomed to Cooperstown Saturday as the Ford C. Frick Award winner.`\
+https://nytimes.com/athletic/5648781/2024/07/20/boston-red-sox-joe-castiglione-hall-of-fame-ford-frick-award/
+
 **After Fire Destroys Sanctuary, Landmark Dallas Church Mourns What’s Lost**\
 `As officials work to determine the cause, many lament the damage at First Baptist Dallas, a church that grew along with the downtown around it.`\
 https://nytimes.com/2024/07/20/us/first-baptist-dallas-fire.html
