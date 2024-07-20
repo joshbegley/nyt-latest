@@ -1,3 +1,7 @@
+**Some Seniors Readily Step Back. Some Never Will.**\
+`Researchers are only beginning to understand why some people embrace retirement while others won’t even consider it.`\
+https://nytimes.com/2024/07/20/health/retirement-mental-health.html
+
 **Trump and Zelensky speak by phone as Ukraine worries about U.S. backing.**\
 `By Constant Méheut`\
 https://nytimes.com/live/2024/07/20/us/trump-biden-election/trump-and-zelensky-speak-by-phone-as-ukraine-worries-about-us-backing
