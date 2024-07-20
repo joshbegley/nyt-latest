@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5648508/2024/07/20/liam-rosenior-in-advanced-talks-for-blueco-owned-strasbourg-head-coach-position/
 
 **The Briefing: Rangers 0 Man Utd 2 - Impressive start from Yoro, Amad kicks on, standards improving?**\
-`We break down the key talking points from United’s pre-season friendly at Murrayfield`\
+`We break down the key talking points from United’s pre-season friendly victory at Murrayfield`\
 https://nytimes.com/athletic/5646908/2024/07/20/rangers-manchester-united-friendly-result-analysis/
 
 **Thomas Neff, Who Turned Soviet Warheads Into Electricity, Dies at 80**\

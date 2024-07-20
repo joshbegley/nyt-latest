@@ -1,3 +1,7 @@
+**The Briefing: Rangers 0 Man Utd 2 - Impressive start from Yoro, Amad kicks on, standards improving?**\
+`We break down the key talking points from United’s pre-season friendly victory at Murrayfield`\
+https://nytimes.com/athletic/5646908/2024/07/20/rangers-manchester-united-friendly-result-analysis/
+
 **Liam Rosenior in advanced talks for BlueCo-owned Strasbourg head coach position**\
 `Liam Rosenior is in advanced talks to become the new head coach of Strasbourg and is the club&#8217;s leading candidate for the position.`\
 https://nytimes.com/athletic/5648508/2024/07/20/liam-rosenior-in-advanced-talks-for-blueco-owned-strasbourg-head-coach-position/
