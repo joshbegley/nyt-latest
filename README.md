@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein Debriefs the 2024 Republican National Convention**\
+`The July 20, 2024 episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/07/20/podcasts/transcript-ezra-klein-debriefs-the-2024-republican-national-convention.html
+
 **Everton tell Man United they will not sell Branthwaite unless transfer valuation met**\
 `Everton have informed Manchester United they do not intend to sanction Jarrad Branthwaite’s exit this summer, irrespective of their proposed takeover by the Friedkin Group (TFG) collapsing.`\
 https://nytimes.com/athletic/5648410/2024/07/20/jarrad-branthwaite-everton-manchester-united-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/world/europe/ukraine-iryna-farion-shot.html
 **At Least 12 Dead and Dozens Missing After Highway Collapse in China**\
 `It was the second such rain-related disaster in less than three months, as extreme weather challenges the country’s extensive network of newly built expressways.`\
 https://nytimes.com/2024/07/20/world/asia/china-highway-collapse.html
-
-**Biden and Trump Have Succeeded in Breaking Reality**\
-`We are living in a realm in which “nothing is true and everything is possible.”`\
-https://nytimes.com/2024/07/20/opinion/biden-trump-campaign-reality.html
 
