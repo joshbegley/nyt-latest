@@ -1,3 +1,11 @@
+**Leeds sign Bogle from Sheffield United on four-year deal**\
+`Leeds United have completed the signing Jayden Bogle from Sheffield United for an undisclosed fee.`\
+https://nytimes.com/athletic/5648592/2024/07/20/jayden-bogle-leeds-transfer/
+
+**Brittney Griner Announces Birth of Her Son**\
+`Less than two years after her release from a Russian penal colony, the W.N.B.A. center and two-time Olympic gold medal winner said that her son was born on July 8.`\
+https://nytimes.com/2024/07/20/sports/brittney-griner-cherelle-baby.html
+
 **Dozens of Local Police Officers Were at Trump’s Rally. Very Few Were Watching a Critical Area.**\
 `Local law enforcement officials, present in abundance, said they were not assigned security duties around a warehouse used by a man who tried to kill former President Donald Trump.`\
 https://nytimes.com/2024/07/20/us/politics/trump-rally-police-secret-service-shooting.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5646908/2024/07/20/rangers-manchester-united-friend
 **Thomas Neff, Who Turned Soviet Warheads Into Electricity, Dies at 80**\
 `An M.I.T. physicist, he engineered an East-West deal that reduced nuclear threats and produced one of the greatest peace dividends of all time.`\
 https://nytimes.com/2024/07/20/world/europe/thomas-l-neff-dead.html
-
-**Trump Campaign Prepares Attack Plan for Harris in Case Biden Withdraws**\
-`The effort, which includes expansive advertising and polling, assumes that the vice president would be the most likely candidate to replace the president at the top of the Democratic ticket.`\
-https://nytimes.com/2024/07/20/us/politics/trump-harris-strategy.html
-
-**4 People, Including 2 Children, Are Found Dead in Brooklyn Apartment**\
-`At least one person, a 56-year-old woman, was found with multiple stab wounds in her neck. A man was in custody, the police said.`\
-https://nytimes.com/2024/07/20/nyregion/brooklyn-stabbing-children-dead.html
 

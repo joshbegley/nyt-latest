@@ -1,3 +1,11 @@
+**Leeds sign Bogle from Sheffield United on four-year deal**\
+`Leeds United have completed the signing Jayden Bogle from Sheffield United for an undisclosed fee.`\
+https://nytimes.com/athletic/5648592/2024/07/20/jayden-bogle-leeds-transfer/
+
+**Brittney Griner Announces Birth of Her Son**\
+`Less than two years after her release from a Russian penal colony, the W.N.B.A. center and two-time Olympic gold medal winner said that her son was born on July 8.`\
+https://nytimes.com/2024/07/20/sports/brittney-griner-cherelle-baby.html
+
 **Dozens of Local Police Officers Were at Trump’s Rally. Very Few Were Watching a Critical Area.**\
 `Local law enforcement officials, present in abundance, said they were not assigned security duties around a warehouse used by a man who tried to kill former President Donald Trump.`\
 https://nytimes.com/2024/07/20/us/politics/trump-rally-police-secret-service-shooting.html
