@@ -1,3 +1,11 @@
+**How to Guard Against Scams Tied to the CrowdStrike Crash**\
+`People posing as airline customer service representatives may be making fraudulent attempts to access your money or private data, experts warn.`\
+https://nytimes.com/2024/07/20/business/crowdstrike-tech-outage-scams.html
+
+**Yankees notes: DJ LeMahieu has 'earned' the right to play, Giancarlo Stanton nearing return**\
+`Plus notes on Nestor Cortes, who struggled against the Rays but thinks the Yankees' front office will help them at the trade deadline.`\
+https://nytimes.com/athletic/5648697/2024/07/20/yankees-dj-lemahieu-giancarlo-stanton-nearing-return/
+
 **As Biden recovers from Covid, Harris assumes a starring role on the campaign trail.**\
 `By Nicholas Nehamas`\
 https://nytimes.com/live/2024/07/20/us/trump-biden-election/harris-biden-fundraiser-provincetown
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5648718/2024/07/20/open-championship-golf-weather/
 **Trump’s former White House doctor offers new details about his bullet wound.**\
 `Representative Ronny Jackson, who was Donald J. Trump’s White House doctor during his presidency, said the bullet from an assassination attempt pierced part of the cartilage on Mr. Trump’s ear.`\
 https://nytimes.com/live/2024/07/20/us/trump-biden-election/trump-assassination-attempt-ronny-jackson
-
-**Dolphins' Shaquil Barrett announces abrupt retirement**\
-`His 19.5 sacks in 2019 were more than he tallied his entire five-year run in Denver, and still stand as the Bucs' franchise record.`\
-https://nytimes.com/athletic/5648680/2024/07/20/shaquil-barrett-retirement-dolphins-buccaneers/
-
-**Miami lands top-100 DB Jaboree Antoine**\
-`The Hurricanes are on pace to sign a top-10 class for the third consecutive cycle after being ranked No. 7 in 2023 and No. 4 in 2024. `\
-https://nytimes.com/athletic/5647236/2024/07/20/miami-recruiting-jaboree-antoine/
 
