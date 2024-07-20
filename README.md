@@ -30,11 +30,11 @@ https://nytimes.com/2024/07/20/world/europe/ukraine-iryna-farion-shot.html
 `It was the second such rain-related disaster in less than three months, as extreme weather challenges the country’s extensive network of newly built expressways.`\
 https://nytimes.com/2024/07/20/world/asia/china-highway-collapse.html
 
-**Lord Almighty, Joe, Let It Go!**\
-`It’s sad that the president doesn’t see what’s inescapable.`\
-https://nytimes.com/2024/07/20/opinion/biden-trump-kamala-harris.html
-
 **Biden and Trump Have Succeeded in Breaking Reality**\
 `We are living in a realm in which “nothing is true and everything is possible.”`\
 https://nytimes.com/2024/07/20/opinion/biden-trump-campaign-reality.html
+
+**Lord Almighty, Joe, Let It Go!**\
+`It’s sad that the president doesn’t see what’s inescapable.`\
+https://nytimes.com/2024/07/20/opinion/biden-trump-kamala-harris.html
 
