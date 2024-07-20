@@ -1,3 +1,11 @@
+**Corrections: July 20, 2024**\
+`Corrections that appeared in print on Saturday, July 20, 2024.`\
+https://nytimes.com/2024/07/20/pageoneplus/corrections-july-20-2024.html
+
+**Sacked politicians, Chelsea in crisis and team-mates at war - the fallout from Argentina's chant**\
+`The repercussions from the derogatory song have been seismic and transcended football, leaving Argentina and Chelsea in difficult situations`\
+https://nytimes.com/athletic/5647005/2024/07/20/fallout-from-argentina-chant/
+
 **Why has Saudi Arabia been so quiet on transfers this summer? It's all part of the plan**\
 `Saudi clubs being less active in this window after the £700m trolley dash of a year ago fits into an overall strategy to grow their league`\
 https://nytimes.com/athletic/5640572/2024/07/20/saudi-arabia-transfer-window/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/19/us/sheila-jackson-lee-dead.html
 **Braves rookie pitcher Spencer Schwellenbach quickly ascending and impressing**\
 `The Braves are impressed by what they've seen: "If he gets in a sticky situation, you don’t ever see him panic."`\
 https://nytimes.com/athletic/5648141/2024/07/19/braves-spencer-schwellenbach/
-
-**Pelosi Told Colleagues She Would Favor ‘Open’ Nomination Process if Biden Drops Out**\
-`The former House speaker and fellow California lawmakers were discussing the Democratic Party’s stressful state of affairs.`\
-https://nytimes.com/2024/07/19/us/politics/nancy-pelosi-joe-biden-drop-out.html
-
-**Gunman at Trump Rally Had Drone in Car, Possibly to Scope Out the Site**\
-`Investigators have information that suggests a man intent on assassinating former President Donald J. Trump flew the device over the campaign event location on the day of the shooting.`\
-https://nytimes.com/2024/07/19/us/politics/trump-gunman-drone.html
 
