@@ -1,3 +1,7 @@
+**Bears open training camp with patience for Caleb Williams but sense of urgency on offense**\
+`The Bears want to find a groove on offense as quickly as possible to start training camp. And GM Ryan Poles feels good about the lines.`\
+https://nytimes.com/athletic/5647768/2024/07/20/bears-caleb-williams-offense/
+
 **Much Is Still Unknown as Listeria Again Takes Canadian Lives**\
 `While a listeria contamination of 18 nondairy milk alternatives has killed two people and sickened 10 more, Danone seems to be concealing a key fact.`\
 https://nytimes.com/2024/07/20/world/canada/listeria-takes-canadian-lives.html
