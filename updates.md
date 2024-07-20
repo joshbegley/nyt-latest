@@ -1,3 +1,7 @@
+**What Happened to ‘Digital Resilience’?**\
+`With each cascade of digital disaster, new vulnerabilities emerge. The latest chaos wasn’t caused by an adversary, but it provided a road map of American vulnerabilities at a critical moment.`\
+https://nytimes.com/2024/07/19/us/politics/crowdstrike-outage.html
+
 **Magic Words**\
 `Ricky J. Sirois’s themeless puzzle tests our core strength.`\
 https://nytimes.com/2024/07/19/crosswords/daily-puzzle-2024-07-20.html

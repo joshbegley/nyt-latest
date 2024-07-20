@@ -1,3 +1,7 @@
+**What Happened to ‘Digital Resilience’?**\
+`With each cascade of digital disaster, new vulnerabilities emerge. The latest chaos wasn’t caused by an adversary, but it provided a road map of American vulnerabilities at a critical moment.`\
+https://nytimes.com/2024/07/19/us/politics/crowdstrike-outage.html
+
 **Magic Words**\
 `Ricky J. Sirois’s themeless puzzle tests our core strength.`\
 https://nytimes.com/2024/07/19/crosswords/daily-puzzle-2024-07-20.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5648003/2024/07/19/copa-america-hard-rock-stadium-c
 **Severino jokes about pitching vs. Yankees: 'I'm not afraid of you guys'**\
 `The Mets swept the first Subway Series of the season, winning both games at Citi Field last month.`\
 https://nytimes.com/athletic/5648002/2024/07/19/mets-luis-severino-pitching-yankees/
-
-**Russia Punishes Those Who Seek the Truth**\
-`Evan Gershkovich is a victim of Putin’s campaign to silence independent journalism in Russia.`\
-https://nytimes.com/2024/07/19/opinion/evan-gershkovich-russia-journalist.html
 
