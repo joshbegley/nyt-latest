@@ -1,3 +1,7 @@
+**Miguel Vargas' moment sparks the Dodgers to win to open the second half**\
+`Freddie Freeman's grand slam accounted for all of the scoring, but it was a defensive play by Vargas that seemed to ignite the Dodgers.`\
+https://nytimes.com/athletic/5648271/2024/07/20/miguel-vargas-dodgers-red-sox/
+
 **Eric Cantona interview: What he thinks of Ratcliffe, redundancies and Man Utd's squad**\
 `The Frenchman's on the state of Manchester United, Lamine Yamal and how to run a football club`\
 https://nytimes.com/athletic/5622243/2024/07/20/eric-cantona-manchester-united-takeover-redundances-working-from-home/

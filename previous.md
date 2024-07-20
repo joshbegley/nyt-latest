@@ -1,3 +1,7 @@
+**Miguel Vargas' moment sparks the Dodgers to win to open the second half**\
+`Freddie Freeman's grand slam accounted for all of the scoring, but it was a defensive play by Vargas that seemed to ignite the Dodgers.`\
+https://nytimes.com/athletic/5648271/2024/07/20/miguel-vargas-dodgers-red-sox/
+
 **Eric Cantona interview: What he thinks of Ratcliffe, redundancies and Man Utd's squad**\
 `The Frenchman's on the state of Manchester United, Lamine Yamal and how to run a football club`\
 https://nytimes.com/athletic/5622243/2024/07/20/eric-cantona-manchester-united-takeover-redundances-working-from-home/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5647005/2024/07/20/fallout-from-argentina-chant/
 **Why has Saudi Arabia been so quiet on transfers this summer? It's all part of the plan**\
 `Saudi clubs being less active in this window after the £700m trolley dash of a year ago fits into an overall strategy to grow their league`\
 https://nytimes.com/athletic/5640572/2024/07/20/saudi-arabia-transfer-window/
-
-**Why Premier League clubs are adopting Real Madrid's buy-back strategy**\
-`Such clauses are far from a new invention, but the way clubs use them has shifted. Here's how they work, and why they're having a moment`\
-https://nytimes.com/athletic/5647010/2024/07/20/buy-back-deals-real-madrid-aston-villa-manchester-united/
 
