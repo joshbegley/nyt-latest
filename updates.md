@@ -1,3 +1,7 @@
+**Is This the Summer of the Kamala Harris Coconut Piña Colada?**\
+`As the vice president’s name is floated as a potential presidential candidate, the internet took a goofy Kamala Harris meme and made it a drink.`\
+https://nytimes.com/2024/07/20/style/kamala-harris-coconut-pina-colada-cocktails.html
+
 **Kentucky's Mark Pope needs Jasper Johnson, but Wildcats have competition from Alabama, UNC**\
 `Johnson's recruiting is winding down with Kentucky, North Carolina and Alabama going head-to-head to land a commitment.`\
 https://nytimes.com/athletic/5648621/2024/07/20/jasper-johnson-recruiting-kentucky-alabama-north-carolina/
