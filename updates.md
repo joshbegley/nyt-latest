@@ -1,3 +1,15 @@
+**Liam Rosenior in advanced talks for BlueCo-owned Strasbourg head coach position**\
+`Liam Rosenior is in advanced talks to become the new head coach of Strasbourg and is the club&#8217;s leading candidate for the position.`\
+https://nytimes.com/athletic/5648508/2024/07/20/liam-rosenior-in-advanced-talks-for-blueco-owned-strasbourg-head-coach-position/
+
+**The Briefing: Rangers 0 Man Utd 2 - Impressive start from Yoro, Amad kicks on, standards improving?**\
+`We break down the key talking points from United’s pre-season friendly at Murrayfield`\
+https://nytimes.com/athletic/5646908/2024/07/20/rangers-manchester-united-friendly-result-analysis/
+
+**4 People, Including 2 Children, Are Found Dead in Brooklyn Apartment**\
+`At least one person, a 56-year-old woman, was found with multiple stab wounds in her neck. A man was in custody, the police said.`\
+https://nytimes.com/2024/07/20/nyregion/brooklyn-stabbing-children-dead.html
+
 **Thomas Neff, Who Turned Soviet Warheads Into Electricity, Dies at 80**\
 `An M.I.T. physicist, he engineered an East-West deal that reduced nuclear threats and produced one of the greatest peace dividends of all time.`\
 https://nytimes.com/2024/07/20/world/europe/thomas-l-neff-dead.html
