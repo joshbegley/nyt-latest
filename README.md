@@ -1,3 +1,15 @@
+**Airlines and Passengers Still Struggling, a Day After Global Outage**\
+`The widespread tech failure left carriers trying to recover and passengers waiting for relief, with many flights still delayed or canceled.`\
+https://nytimes.com/2024/07/20/travel/outage-airlines-passengers-effects.html
+
+**Jays' Bichette strains calf again, heading back to IL**\
+`Bichette heads to IL as he reinjures his right calf against the Detroit Tigers.`\
+https://nytimes.com/athletic/5648541/2024/07/20/bo-bichette-injury-blue-jays/
+
+**After another qualifying crash, scrutiny over Pérez's Red Bull future grows**\
+`Pérez’s latest error could hasten considerations of a switch, most likely for Liam Lawson.`\
+https://nytimes.com/athletic/5648458/2024/07/20/sergio-perez-red-bull-f1-hungarian-gp/
+
 **Liam Rosenior in advanced talks for BlueCo-owned Strasbourg head coach position**\
 `Liam Rosenior is in advanced talks to become the new head coach of Strasbourg and is the club&#8217;s leading candidate for the position.`\
 https://nytimes.com/athletic/5648508/2024/07/20/liam-rosenior-in-advanced-talks-for-blueco-owned-strasbourg-head-coach-position/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/20/world/middleeast/israel-houthis-yemen.html
 **An ‘Awful Event’ for the United States, and an Editor**\
 `The assassination of Abraham Lincoln shook the nation. But it was the concurrent attack on the secretary of state that also shook the founder of The New York Times, who considered him a political exemplar.`\
 https://nytimes.com/2024/07/20/insider/an-awful-event-for-the-united-states-and-an-editor.html
-
-**Biden’s Executive Order Forces Migrants to Rethink Routes to U.S.**\
-`In Tapachula, Mexico, human smugglers are profiting off migrants heading north to the United States following President Biden’s executive order suspending and limiting asylum requests.`\
-https://nytimes.com/2024/07/20/video/migrants-us-mexico-biden.html
-
-**Fire Engulfs Landmark Church in Downtown Dallas**\
-`The blaze at First Baptist Dallas appeared to have caused the roof in a historic section of the church to collapse, the church’s pastor said.`\
-https://nytimes.com/video/us/100000009583706/dallas-church-downtown-fire.html
-
-**Orecchiette Salad With Halloumi Croutons**\
-`Crispy, golden, squeaky-centered halloumi croutons.`\
-https://nytimes.com/2024/07/20/dining/pasta-salad-recipes.html
 
