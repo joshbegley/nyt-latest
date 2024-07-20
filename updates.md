@@ -1,3 +1,7 @@
+**2 Los Angeles Novels as Stylish and Wild as the City Itself**\
+`Elizabeth Stromme’s noir about a writer for hire; Karen Tei Yamashita’s magic realist dystopia.`\
+https://nytimes.com/2024/07/20/books/read-like-wind-recommendations-los-angeles-novels.html
+
 **Divisive Far-Right Politician in Ukraine Is Fatally Shot**\
 `Iryna Farion, a former lawmaker, was known for controversial campaigns to discredit Russian-speaking Ukrainians.`\
 https://nytimes.com/2024/07/20/world/europe/ukraine-iryna-farion-shot.html
