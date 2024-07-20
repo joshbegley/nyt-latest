@@ -1,3 +1,7 @@
+**Is This the Summer of the Kamala Harris Coconut Piña Colada?**\
+`As the vice president’s name is floated as a potential presidential candidate, the internet took a goofy Kamala Harris meme and made it a drink.`\
+https://nytimes.com/2024/07/20/style/kamala-harris-coconut-pina-colada-cocktails.html
+
 **Kentucky's Mark Pope needs Jasper Johnson, but Wildcats have competition from Alabama, UNC**\
 `Johnson's recruiting is winding down with Kentucky, North Carolina and Alabama going head-to-head to land a commitment.`\
 https://nytimes.com/athletic/5648621/2024/07/20/jasper-johnson-recruiting-kentucky-alabama-north-carolina/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/travel/outage-airlines-passengers-effects.html
 **Jays' Bichette strains calf again, heading back to IL**\
 `Bichette heads to IL as he reinjures his right calf against the Detroit Tigers.`\
 https://nytimes.com/athletic/5648541/2024/07/20/bo-bichette-injury-blue-jays/
-
-**After another qualifying crash, scrutiny over Pérez's Red Bull future grows**\
-`Pérez’s latest error could hasten considerations of a switch, most likely for Liam Lawson.`\
-https://nytimes.com/athletic/5648458/2024/07/20/sergio-perez-red-bull-f1-hungarian-gp/
 
