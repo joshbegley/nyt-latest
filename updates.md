@@ -1,3 +1,11 @@
+**Eric Cantona interview: What he thinks of Ratcliffe, redundancies and Man Utd's squad**\
+`The Frenchman's on the state of Manchester United, Lamine Yamal and how to run a football club`\
+https://nytimes.com/athletic/5622243/2024/07/20/eric-cantona-manchester-united-takeover-redundances-working-from-home/
+
+**Eddie Howe's comments on England, his future and Newcastle's new structure analysed**\
+`Newcastle's head coach was extraordinarily loose-lipped on Friday and his comments about his future appeared intentionally cryptic`\
+https://nytimes.com/athletic/5647084/2024/07/20/eddie-howe-newcastle-england-future-mitchell/
+
 **Fire Badly Damages Sanctuary of a Landmark Church in Dallas**\
 `The roof of a 19th-century part of the First Baptist Dallas Church in the city’s downtown appeared to have collapsed.`\
 https://nytimes.com/2024/07/20/us/dallas-fire-first-baptist-church-tx.html

@@ -1,3 +1,7 @@
+**Eric Cantona interview: What he thinks of Ratcliffe, redundancies and Man Utd's squad**\
+`The Frenchman's on the state of Manchester United, Lamine Yamal and how to run a football club`\
+https://nytimes.com/athletic/5622243/2024/07/20/eric-cantona-manchester-united-takeover-redundances-working-from-home/
+
 **Fire Badly Damages Sanctuary of a Landmark Church in Dallas**\
 `The roof of a 19th-century part of the First Baptist Dallas Church in the city’s downtown appeared to have collapsed.`\
 https://nytimes.com/2024/07/20/us/dallas-fire-first-baptist-church-tx.html
@@ -14,6 +18,10 @@ https://nytimes.com/2024/07/20/world/asia/vietnam-leadership-to-lam.html
 `Which players are going, who'll be missing and what should fans look out for as Manchester City head to the U.S.?`\
 https://nytimes.com/athletic/5647243/2024/07/20/manchester-city-pre-season-tour-america-squad/
 
+**Eddie Howe's comments on England, his future and Newcastle's new structure analysed**\
+`Newcastle's head coach was extraordinarily loose-lipped on Friday and his comments about his future appeared intentionally cryptic`\
+https://nytimes.com/athletic/5647084/2024/07/20/eddie-howe-newcastle-england-future-mitchell/
+
 **Corrections: July 20, 2024**\
 `Corrections that appeared in print on Saturday, July 20, 2024.`\
 https://nytimes.com/2024/07/20/pageoneplus/corrections-july-20-2024.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5640572/2024/07/20/saudi-arabia-transfer-window/
 **Why Premier League clubs are adopting Real Madrid's buy-back strategy**\
 `Such clauses are far from a new invention, but the way clubs use them has shifted. Here's how they work, and why they're having a moment`\
 https://nytimes.com/athletic/5647010/2024/07/20/buy-back-deals-real-madrid-aston-villa-manchester-united/
-
-**International management remains a glorious mystery - and is all the better for it**\
-`Why international football is a mix of federation figures, big-name club managers, experienced journeymen and home grown coaches`\
-https://nytimes.com/athletic/5647096/2024/07/20/international-management-template-mystery/
-
-**Quotation of the Day: The Poet Who Commands a Rebel Army**\
-`Quotation of the Day for Saturday, July 20, 2024.`\
-https://nytimes.com/2024/07/20/pageoneplus/quotation-of-the-day-the-poet-who-commands-a-rebel-army.html
 
