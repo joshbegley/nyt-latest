@@ -1,3 +1,7 @@
+**Mets' Jeff McNeil shows signs of breakout with 2 home runs**\
+`McNeil's first two-homer game since 2019 comes after a major shift in his approach at the plate. `\
+https://nytimes.com/athletic/5648212/2024/07/20/mets-jeff-mcneil-home-runs/
+
 **Mets' Jeff McNeil shows signs of breakout with two home runs**\
 `McNeil's first two-homer game since 2019 comes after a major shift in his approach at the plate. `\
 https://nytimes.com/athletic/5648212/2024/07/20/mets-jeff-mcneil-home-runs/
