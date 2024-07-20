@@ -1,3 +1,7 @@
+**Liverpool U18s walk off pitch twice after alleged racist abuse**\
+`Liverpool Under-18s walked off the pitch twice in successive days at a youth tournament in Germany after one of their players was allegedly racially abused.`\
+https://nytimes.com/athletic/5648635/2024/07/20/liverpool-u18s-racist-abuse/
+
 **Team USA survives scare from South Sudan**\
 `LeBron James, a two-time Olympic gold medalist and arguably the greatest to ever play, turned in his best game of the summer.`\
 https://nytimes.com/athletic/5648717/2024/07/20/team-usa-basketball-south-sudan-score-results/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/20/upshot/attention-experiment.html
 **Billy Horschel leads crowded leaderboard at The Open**\
 `Six players — Dan Brown, Thirston Lawrence, Sam Burns, Russell Henley, Xander Schauffele and Justin Rose — lurk one shot back.`\
 https://nytimes.com/athletic/5648662/2024/07/20/billy-horschel-the-open-round-three-leaderboard/
-
-**Bears camp: Caleb Williams' smooth start to practice, Velus Jones Jr.'s outlook for the new kickoff**\
-`Plus, Jaylon Johnson is working on his resume for his next contract.`\
-https://nytimes.com/athletic/5648613/2024/07/20/bears-camp-caleb-williams-velus-jones-jr-new-kickoff/
 
