@@ -1,3 +1,7 @@
+**Trump and Zelensky speak by phone as Ukraine worries about U.S. backing.**\
+`By Constant Méheut`\
+https://nytimes.com/live/2024/07/20/us/trump-biden-election/trump-and-zelensky-speak-by-phone-as-ukraine-worries-about-us-backing
+
 **Houthi Drone Strike Highlights Dilemmas for Israel**\
 `Israel has few options to retaliate for the attack in Tel Aviv, which made clear the weakness of its air defense system against unmanned aircraft and heightened concerns about the threat of Iranian-backed militias.`\
 https://nytimes.com/2024/07/20/world/middleeast/houthi-drone-strike-israel-tel-aviv.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/opinion/biden-trump-campaign-reality.html
 **Meet the Flip-Flop Club: 7 Republicans Who Kissed the Ring**\
 `How Donald Trump’s former critics turned from denunciations to praise at the Republican convention.`\
 https://nytimes.com/interactive/2024/07/20/opinion/republicans-trump-bent-the-knee.html
-
-**The Week When So Much Changed**\
-`The assassination attempt, like so much else, should be a wake-up call. It was a near miss for Trump but also for America — and a chance to make things better.`\
-https://nytimes.com/2024/07/20/opinion/trump-biden-america.html
 
