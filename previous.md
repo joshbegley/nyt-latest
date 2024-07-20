@@ -1,3 +1,7 @@
+**Fire Badly Damages Sanctuary of a Landmark Church in Dallas**\
+`The roof of a 19th-century part of the First Baptist Dallas Church in the city’s downtown appeared to have collapsed.`\
+https://nytimes.com/2024/07/20/us/dallas-fire-first-baptist-church-tx.html
+
 **Mets' Jeff McNeil shows signs of breakout with 2 home runs**\
 `McNeil's first two-homer game since 2019 comes after a major shift in his approach at the plate. `\
 https://nytimes.com/athletic/5648212/2024/07/20/mets-jeff-mcneil-home-runs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5647096/2024/07/20/international-management-templat
 **Quotation of the Day: The Poet Who Commands a Rebel Army**\
 `Quotation of the Day for Saturday, July 20, 2024.`\
 https://nytimes.com/2024/07/20/pageoneplus/quotation-of-the-day-the-poet-who-commands-a-rebel-army.html
-
-**Another José Alvarado stumble opens the door to a different Phillies bullpen mix**\
-`José Alvarado might not be the closer for much longer after blowing a save opportunity for the third time this season.`\
-https://nytimes.com/athletic/5648178/2024/07/19/phillies-bullpen-jose-alvarado-closer/
 
