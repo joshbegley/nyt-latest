@@ -1,3 +1,7 @@
+**Some Seniors Readily Step Back. Some Never Will.**\
+`Researchers are only beginning to understand why some people embrace retirement while others won’t even consider it.`\
+https://nytimes.com/2024/07/20/health/retirement-mental-health.html
+
 **Trump and Zelensky speak by phone as Ukraine worries about U.S. backing.**\
 `By Constant Méheut`\
 https://nytimes.com/live/2024/07/20/us/trump-biden-election/trump-and-zelensky-speak-by-phone-as-ukraine-worries-about-us-backing
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/opinion/biden-trump-kamala-harris.html
 **Biden and Trump Have Succeeded in Breaking Reality**\
 `We are living in a realm in which “nothing is true and everything is possible.”`\
 https://nytimes.com/2024/07/20/opinion/biden-trump-campaign-reality.html
-
-**Meet the Flip-Flop Club: 7 Republicans Who Kissed the Ring**\
-`How Donald Trump’s former critics turned from denunciations to praise at the Republican convention.`\
-https://nytimes.com/interactive/2024/07/20/opinion/republicans-trump-bent-the-knee.html
 
