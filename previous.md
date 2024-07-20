@@ -1,3 +1,11 @@
+**Trump and Vance head to Michigan, while Biden publicly stands firm. Here’s the latest.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/07/20/us/trump-biden-election/trump-and-vance-head-to-michigan-while-biden-publicly-stands-firm-heres-the-latest
+
+**Why Some of the Loudest Cheers for Trump Are Coming From Silicon Valley**\
+`Elon Musk, David Sacks, Marc Andreessen and other influential figures in technology have endorsed former President Donald Trump.`\
+https://nytimes.com/2024/07/20/business/dealbook/silicon-valley-trump.html
+
 **2 Los Angeles Novels as Stylish and Wild as the City Itself**\
 `Elizabeth Stromme’s noir about a writer for hire; Karen Tei Yamashita’s magic realist dystopia.`\
 https://nytimes.com/2024/07/20/books/read-like-wind-recommendations-los-angeles-novels.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/20/opinion/trump-biden-america.html
 **How Trump Sabotaged His Own Apotheosis**\
 `Having Trump as a dominant figure keeps American politics in a state of unsettlement.`\
 https://nytimes.com/2024/07/20/opinion/donald-trump-republican-convention.html
-
-**Trump’s Transformation of the Republican Party Is Complete**\
-`With JD Vance at his back, the former president has cemented his legacy.`\
-https://nytimes.com/2024/07/20/opinion/trump-republican-party.html
-
-**I Watched the Republican Convention. The Democrats Can Still Win.**\
-`Ezra Klein discusses the anti-system populism on display at the 2024 G.O.P. convention — and what this might mean for the Democrats.`\
-https://nytimes.com/2024/07/20/opinion/ezra-klein-podcast-rnc.html
 

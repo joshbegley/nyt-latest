@@ -1,3 +1,11 @@
+**Trump and Vance head to Michigan, while Biden publicly stands firm. Here’s the latest.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/07/20/us/trump-biden-election/trump-and-vance-head-to-michigan-while-biden-publicly-stands-firm-heres-the-latest
+
+**Why Some of the Loudest Cheers for Trump Are Coming From Silicon Valley**\
+`Elon Musk, David Sacks, Marc Andreessen and other influential figures in technology have endorsed former President Donald Trump.`\
+https://nytimes.com/2024/07/20/business/dealbook/silicon-valley-trump.html
+
 **2 Los Angeles Novels as Stylish and Wild as the City Itself**\
 `Elizabeth Stromme’s noir about a writer for hire; Karen Tei Yamashita’s magic realist dystopia.`\
 https://nytimes.com/2024/07/20/books/read-like-wind-recommendations-los-angeles-novels.html
