@@ -1,5 +1,5 @@
-**Buckley: Joe Castiglione joins Red Sox greats in Hall. Fittingly, he'll decide exit plan**\
-`Castiglione, who made all the great Red Sox radio calls since '83, was welcomed to Cooperstown Saturday as the Ford C. Frick Award winner.`\
+**Buckley: Joe Castiglione joins Red Sox greats in Cooperstown. Fittingly, he'll decide exit**\
+`Castiglione, who made all the great Red Sox radio calls since '83, received the Hall of Fame’s Ford C. Frick Award winner for broadcasters.`\
 https://nytimes.com/athletic/5648781/2024/07/20/boston-red-sox-joe-castiglione-hall-of-fame-ford-frick-award/
 
 **After Fire Destroys Sanctuary, Landmark Dallas Church Mourns What’s Lost**\
