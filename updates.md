@@ -1,3 +1,19 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/20/crosswords/spelling-bee-forum.html
+
+**How the Head of Luna Park on Coney Island Spends His Sundays**\
+`Alessandro Zamperla, the president of the group that manages the park, makes time for espresso and snacks while keeping an eye on all the rides.`\
+https://nytimes.com/2024/07/20/nyregion/luna-park-coney-island.html
+
+**Fund to Aid Children Harmed at Birth Hasn’t Kept Promises, Families Say**\
+`The Medical Indemnity Fund was to provide worry-free health care to children severely injured at birth. But parents say it has failed them.`\
+https://nytimes.com/2024/07/20/nyregion/malpractice-birth-fund-ny.html
+
+**Ten Hag confirms Man United's De Ligt interest; says Dutch transfers a 'coincidence'**\
+`Erik ten Hag has confirmed Manchester United&#8217;s interest in signing Matthijs de Ligt from Bayern Munich but insisted that the club&#8217;s interest in signing Dutch players is a &#8220;coincidence&#8221;.`\
+https://nytimes.com/athletic/5647783/2024/07/20/manchester-united-transfers-dutch-matthijs-de-ligt/
+
 **Bangladesh Orders Curfew in Effort to Quell Deadly Unrest**\
 `For weeks, university students have been protesting a quota system for government jobs. Suppression led to a cycle of violence and now a paralyzing curfew.`\
 https://nytimes.com/2024/07/20/world/asia/bangladesh-curfew-unrest.html

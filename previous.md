@@ -1,3 +1,19 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/20/crosswords/spelling-bee-forum.html
+
+**How the Head of Luna Park on Coney Island Spends His Sundays**\
+`Alessandro Zamperla, the president of the group that manages the park, makes time for espresso and snacks while keeping an eye on all the rides.`\
+https://nytimes.com/2024/07/20/nyregion/luna-park-coney-island.html
+
+**Fund to Aid Children Harmed at Birth Hasn’t Kept Promises, Families Say**\
+`The Medical Indemnity Fund was to provide worry-free health care to children severely injured at birth. But parents say it has failed them.`\
+https://nytimes.com/2024/07/20/nyregion/malpractice-birth-fund-ny.html
+
+**Ten Hag confirms Man United's De Ligt interest; says Dutch transfers a 'coincidence'**\
+`Erik ten Hag has confirmed Manchester United&#8217;s interest in signing Matthijs de Ligt from Bayern Munich but insisted that the club&#8217;s interest in signing Dutch players is a &#8220;coincidence&#8221;.`\
+https://nytimes.com/athletic/5647783/2024/07/20/manchester-united-transfers-dutch-matthijs-de-ligt/
+
 **Bangladesh Orders Curfew in Effort to Quell Deadly Unrest**\
 `For weeks, university students have been protesting a quota system for government jobs. Suppression led to a cycle of violence and now a paralyzing curfew.`\
 https://nytimes.com/2024/07/20/world/asia/bangladesh-curfew-unrest.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5648212/2024/07/20/mets-jeff-mcneil-home-runs/
 **Death of Vietnam’s Top Leader Raises Questions of Succession**\
 `The country’s political workings are notably opaque, but for now the president, who was until recently minister of public security, is carrying out the duties of general secretary.`\
 https://nytimes.com/2024/07/20/world/asia/vietnam-leadership-to-lam.html
-
-**What to expect from Manchester City's pre-season tour of the United States**\
-`Which players are going, who'll be missing and what should fans look out for as Manchester City head to the U.S.?`\
-https://nytimes.com/athletic/5647243/2024/07/20/manchester-city-pre-season-tour-america-squad/
-
-**Eddie Howe's comments on England, his future and Newcastle's new structure analysed**\
-`Newcastle's head coach was extraordinarily loose-lipped on Friday and his comments about his future appeared intentionally cryptic`\
-https://nytimes.com/athletic/5647084/2024/07/20/eddie-howe-newcastle-england-future-mitchell/
-
-**Corrections: July 20, 2024**\
-`Corrections that appeared in print on Saturday, July 20, 2024.`\
-https://nytimes.com/2024/07/20/pageoneplus/corrections-july-20-2024.html
-
-**Sacked politicians, Chelsea in crisis and team-mates at war - the fallout from Argentina's chant**\
-`The repercussions from the derogatory song have been seismic and transcended football, leaving Argentina and Chelsea in difficult situations`\
-https://nytimes.com/athletic/5647005/2024/07/20/fallout-from-argentina-chant/
 
