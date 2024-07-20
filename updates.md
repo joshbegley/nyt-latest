@@ -1,3 +1,11 @@
+**Elon Musk Is a Critical but Shaky Republican Donor**\
+`Elon Musk has undergone a midlife reinvention that has many Republicans salivating about him as the party’s moneymaker — if he delivers. Theodore Schleifer, a New York Times reporter who covers campaign finance and the influence of the ultrawealthy in American politics, explains.`\
+https://nytimes.com/video/us/elections/100000009579899/elon-musk-is-a-critical-but-shaky-republican-donor.html
+
+**Quincy Wilson, teenage track star, breaks U18 men's 400m WR again**\
+`Wilson ran a 44.20 to reset the U18 men's 400m world record and break his own U.S. high school record.`\
+https://nytimes.com/athletic/5648119/2024/07/19/quincy-wilson-breaks-u18-400m-world-record/
+
 **Churchill Downs rescinds Bob Baffert's suspension**\
 `With the suspension rescinded, Baffert will be allowed to race horses at next year's Kentucky Derby.`\
 https://nytimes.com/athletic/5648116/2024/07/19/churchill-downs-bob-baffert-suspension/
