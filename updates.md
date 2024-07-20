@@ -1,3 +1,11 @@
+**Churchill Downs rescinds Bob Baffert's suspension**\
+`With the suspension rescinded, Baffert will be allowed to race horses at next year's Kentucky Derby.`\
+https://nytimes.com/athletic/5648116/2024/07/19/churchill-downs-bob-baffert-suspension/
+
+**WNBA 2024 All-Star Friday: Allisha Gray wins skills challenge**\
+`In addition to the $2,575 of prize money mandated by the CBA, the winners also receive a $55,000 bonus.`\
+https://nytimes.com/athletic/5648114/2024/07/19/wnba-2024-all-star-friday/
+
 **What Happened to ‘Digital Resilience’?**\
 `With each cascade of digital disaster, new vulnerabilities emerge. The latest chaos wasn’t caused by an adversary, but it provided a road map of American vulnerabilities at a critical moment.`\
 https://nytimes.com/2024/07/19/us/politics/crowdstrike-outage.html

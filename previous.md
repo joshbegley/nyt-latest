@@ -1,3 +1,11 @@
+**Churchill Downs rescinds Bob Baffert's suspension**\
+`With the suspension rescinded, Baffert will be allowed to race horses at next year's Kentucky Derby.`\
+https://nytimes.com/athletic/5648116/2024/07/19/churchill-downs-bob-baffert-suspension/
+
+**WNBA 2024 All-Star Friday: Allisha Gray wins skills challenge**\
+`In addition to the $2,575 of prize money mandated by the CBA, the winners also receive a $55,000 bonus.`\
+https://nytimes.com/athletic/5648114/2024/07/19/wnba-2024-all-star-friday/
+
 **What Happened to ‘Digital Resilience’?**\
 `With each cascade of digital disaster, new vulnerabilities emerge. The latest chaos wasn’t caused by an adversary, but it provided a road map of American vulnerabilities at a critical moment.`\
 https://nytimes.com/2024/07/19/us/politics/crowdstrike-outage.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/19/us/politics/trump-2024-election.html
 **With the trade deadline fast approaching, the Cubs can't afford many more days like this**\
 `The Cubs expect to win when Justin Steele takes the mound, but their first game after the All-Star break didn't go as planned.`\
 https://nytimes.com/athletic/5648036/2024/07/19/mlb-trade-deadline-cubs/
-
-**CONMEBOL, Hard Rock Stadium facing lawsuits after Copa América final**\
-`Fans have alleged that organizers failed to control matchday crowds, leading to spectators being denied entry into the stadium.`\
-https://nytimes.com/athletic/5648003/2024/07/19/copa-america-hard-rock-stadium-conmebol-lawsuits/
-
-**Severino jokes about pitching vs. Yankees: 'I'm not afraid of you guys'**\
-`The Mets swept the first Subway Series of the season, winning both games at Citi Field last month.`\
-https://nytimes.com/athletic/5648002/2024/07/19/mets-luis-severino-pitching-yankees/
 
