@@ -1,3 +1,7 @@
+**Bangladesh Orders Curfew in Effort to Quell Deadly Unrest**\
+`For weeks, university students have been protesting a quota system for government jobs. Suppression led to a cycle of violence and now a paralyzing curfew.`\
+https://nytimes.com/2024/07/20/world/asia/bangladesh-curfew-unrest.html
+
 **Miguel Vargas' moment sparks the Dodgers to win to open the second half**\
 `Freddie Freeman's grand slam accounted for all of the scoring, but it was a defensive play by Vargas that seemed to ignite the Dodgers.`\
 https://nytimes.com/athletic/5648271/2024/07/20/miguel-vargas-dodgers-red-sox/
