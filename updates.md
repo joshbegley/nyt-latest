@@ -1,3 +1,15 @@
+**Much Is Still Unknown as Listeria Again Takes Canadian Lives**\
+`While a listeria contamination of 18 nondairy milk alternatives has killed two people and sickened 10 more, Danone seems to be concealing a key fact.`\
+https://nytimes.com/2024/07/20/world/canada/listeria-takes-canadian-lives.html
+
+**Wordle Review No. 1,127, Sunday, July 21, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/20/crosswords/wordle-review-1127.html
+
+**The Connections Companion No. 406, July 21, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/20/crosswords/connections-companion-406.html
+
 **Newcastle sign Serbia youth international defender Pivas**\
 `Newcastle United have signed Serbia youth international defender Miodrag Pivas from FK Jedinstvo.`\
 https://nytimes.com/athletic/5648329/2024/07/20/newcastle-transfer-news-pivas/
