@@ -1,3 +1,7 @@
+**‘Twisters’ and the Appeal of the Sequel**\
+`When a sequel comes out, it can be an occasion to reaffirm why you love the original.`\
+https://nytimes.com/2024/07/20/briefing/twisters-and-the-appeal-of-the-sequel.html
+
 **Arsenal accelerating efforts to sign Bologna's Calafiori**\
 `Arsenal are accelerating their efforts to sign Bologna defender Riccardo Calafiori.`\
 https://nytimes.com/athletic/5614190/2024/07/20/riccardo-calafiori-arsenal-transfer-news/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/world/americas/venezuela-election-us-role.html
 **When Tech Fails, It Is Usually With a Whimper Instead of a Bang**\
 `While in some corners of Silicon Valley people worry about the risks of A.I., a simple failed software update caused a worldwide outage.`\
 https://nytimes.com/2024/07/20/technology/crowdstrike-microsoft-outage-software.html
-
-**Amid Talk of Border Chaos, Crossings Have Sharply Declined**\
-`Former President Donald J. Trump and the Texas governor are calling for a “secure border.” But actions by Mexico and President Biden have led to a period of relative calm.`\
-https://nytimes.com/2024/07/20/us/border-immigration-current-situation.html
 

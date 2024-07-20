@@ -1,3 +1,7 @@
+**‘Twisters’ and the Appeal of the Sequel**\
+`When a sequel comes out, it can be an occasion to reaffirm why you love the original.`\
+https://nytimes.com/2024/07/20/briefing/twisters-and-the-appeal-of-the-sequel.html
+
 **Arsenal accelerating efforts to sign Bologna's Calafiori**\
 `Arsenal are accelerating their efforts to sign Bologna defender Riccardo Calafiori.`\
 https://nytimes.com/athletic/5614190/2024/07/20/riccardo-calafiori-arsenal-transfer-news/
