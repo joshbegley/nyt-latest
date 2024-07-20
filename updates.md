@@ -1,3 +1,7 @@
+**Newcastle sign Serbia youth international defender Pivas**\
+`Newcastle United have signed Serbia youth international defender Miodrag Pivas from FK Jedinstvo.`\
+https://nytimes.com/athletic/5648329/2024/07/20/newcastle-transfer-news-pivas/
+
 **Joel Embiid Believes He Could Have Been the GOAT**\
 `The N.B.A. star talks Philly cheesesteaks, Twitter trolling and playing for Team U.S.A. over France in the Olympics.`\
 https://nytimes.com/2024/07/20/magazine/joel-embiid-interview.html
