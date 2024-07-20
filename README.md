@@ -1,3 +1,7 @@
+**At Least 2 Dead in Listeria Outbreak Tied to Deli-Sliced Meat**\
+`The federal Centers for Disease Control and Prevention said 28 people had been hospitalized with listeria infections across a dozen states.`\
+https://nytimes.com/2024/07/20/health/listeria-outbreak-deli-meats.html
+
 **Airlines and Passengers Still Struggling, a Day After Global Outage**\
 `The widespread tech failure left carriers trying to recover and passengers waiting for relief, with many flights still delayed or canceled.`\
 https://nytimes.com/2024/07/20/travel/outage-airlines-passengers-effects.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/nyregion/brooklyn-stabbing-children-dead.html
 **Israeli Jets Bomb Sites in Yemen Linked to Iran-Backed Houthi Militia**\
 `The strike was in retaliation for a drone attack launched from Yemen a day earlier, which evaded Israel’s defenses and hit a building in Tel Aviv, killing one person.`\
 https://nytimes.com/2024/07/20/world/middleeast/israel-houthis-yemen.html
-
-**An ‘Awful Event’ for the United States, and an Editor**\
-`The assassination of Abraham Lincoln shook the nation. But it was the concurrent attack on the secretary of state that also shook the founder of The New York Times, who considered him a political exemplar.`\
-https://nytimes.com/2024/07/20/insider/an-awful-event-for-the-united-states-and-an-editor.html
 
