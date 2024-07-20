@@ -1,3 +1,7 @@
+**Liam Rosenior in advanced talks for BlueCo-owned Strasbourg head coach position**\
+`Liam Rosenior is in advanced talks to become the new head coach of Strasbourg and is the club&#8217;s leading candidate for the position.`\
+https://nytimes.com/athletic/5648508/2024/07/20/liam-rosenior-in-advanced-talks-for-blueco-owned-strasbourg-head-coach-position/
+
 **The Briefing: Rangers 0 Man Utd 2 - Impressive start from Yoro, Amad kicks on, standards improving?**\
 `We break down the key talking points from United’s pre-season friendly victory at Murrayfield`\
 https://nytimes.com/athletic/5646908/2024/07/20/rangers-manchester-united-friendly-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009583706/dallas-church-downtown-fire.html
 **Orecchiette Salad With Halloumi Croutons**\
 `Crispy, golden, squeaky-centered halloumi croutons.`\
 https://nytimes.com/2024/07/20/dining/pasta-salad-recipes.html
-
-**Flight Delays and Cancellations Continue Saturday but in Lower Numbers**\
-`An estimated 3,400 flights to, from and within the United States were canceled on Friday because of a tech outage. That made it the worst day of the year for flight cancellations.`\
-https://nytimes.com/2024/07/20/business/tech-outage-flight-delays-cancellations.html
 
