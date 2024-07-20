@@ -1,3 +1,7 @@
+**Thomas Neff, Who Turned Soviet Warheads Into Electricity, Dies at 80**\
+`An M.I.T. physicist, he engineered an East-West deal that reduced nuclear threats and produced one of the greatest peace dividends of all time.`\
+https://nytimes.com/2024/07/20/world/europe/thomas-l-neff-dead.html
+
 **Trump Campaign Prepares Attack Plan for Harris in Case Biden Withdraws**\
 `The effort, which includes expansive advertising and polling, assumes that the vice president would be the most likely candidate to replace the president at the top of the Democratic ticket.`\
 https://nytimes.com/2024/07/20/us/politics/trump-harris-strategy.html
