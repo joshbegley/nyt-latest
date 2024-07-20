@@ -1,3 +1,7 @@
+**Trump and Zelensky Speak by Phone as Ukraine Worries About U.S. Backing**\
+`Kyiv ponders what another Trump administration would mean for its war initiatives.`\
+https://nytimes.com/2024/07/20/us/politics/trump-zelensky-call-ukraine.html
+
 **Orecchiette Salad With Halloumi Croutons**\
 `Crispy, golden, squeaky-centered halloumi croutons.`\
 https://nytimes.com/2024/07/20/dining/pasta-salad-recipes.html

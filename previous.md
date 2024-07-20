@@ -22,8 +22,8 @@ https://nytimes.com/athletic/5648410/2024/07/20/jarrad-branthwaite-everton-manch
 `Researchers are only beginning to understand why some people embrace retirement while others won’t even consider it.`\
 https://nytimes.com/2024/07/20/health/retirement-mental-health.html
 
-**Trump and Zelensky speak by phone as Ukraine worries about U.S. backing.**\
-`By Constant Méheut`\
+**Trump and Zelensky Speak by Phone as Ukraine Worries About U.S. Backing**\
+`Kyiv ponders what another Trump administration would mean for its war initiatives.`\
 https://nytimes.com/2024/07/20/us/politics/trump-zelensky-call-ukraine.html
 
 **Houthi Drone Strike Highlights Dilemmas for Israel**\
