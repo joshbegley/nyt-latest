@@ -1,3 +1,11 @@
+**Braves rookie pitcher Spencer Schwellenbach is quickly ascending and impressing**\
+`The Braves are impressed by what they've seen: "If he gets in a sticky situation, you don’t ever see him panic."`\
+https://nytimes.com/athletic/5648141/2024/07/19/braves-spencer-schwellenbach/
+
+**Pelosi Told Colleagues She Would Favor ‘Open’ Nomination Process if Biden Drops Out**\
+`The former House speaker and fellow California lawmakers were discussing the Democratic Party’s stressful state of affairs.`\
+https://nytimes.com/2024/07/19/us/politics/nancy-pelosi-joe-biden-drop-out.html
+
 **Gunman at Trump Rally Had Drone in Car, Possibly to Scope Out the Site**\
 `Investigators have information that suggests a man intent on assassinating former President Donald J. Trump flew the device over the campaign event location on the day of the shooting.`\
 https://nytimes.com/2024/07/19/us/politics/trump-gunman-drone.html
