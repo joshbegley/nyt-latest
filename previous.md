@@ -1,3 +1,7 @@
+**Gunman at Trump Rally Had Drone in Car, Possibly to Scope Out the Site**\
+`Investigators have information that suggests a man intent on assassinating former President Donald J. Trump flew the device over the campaign event location on the day of the shooting.`\
+https://nytimes.com/2024/07/19/us/politics/trump-gunman-drone.html
+
 **Elon Musk Is a Critical but Shaky Republican Donor**\
 `Elon Musk has undergone a midlife reinvention that has many Republicans salivating about him as the party’s moneymaker — if he delivers. Theodore Schleifer, a New York Times reporter who covers campaign finance and the influence of the ultrawealthy in American politics, explains.`\
 https://nytimes.com/video/us/elections/100000009579899/elon-musk-is-a-critical-but-shaky-republican-donor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/us/marine-jan-6-riot-sentencing.html
 **While the debate over who will lead the ticket plays out, a Democratic voter group plans battleground initiative.**\
 `By Reid J. Epstein`\
 https://nytimes.com/live/2024/07/19/us/biden-election-news/while-the-debate-over-who-will-lead-the-ticket-plays-out-a-democratic-voter-group-plans-battleground-initiative
-
-**Blinken Says Gaza Cease-Fire Deal Is ‘Inside the 10-Yard Line’**\
-`The national security adviser, Jake Sullivan, was more cautious as both spoke ahead of next week’s visit to Washington by Prime Minister Benjamin Netanyahu of Israel.`\
-https://nytimes.com/2024/07/19/us/politics/blinken-sullivan-gaza-cease-fire.html
 
