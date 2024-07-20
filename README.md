@@ -1,3 +1,7 @@
+**Is Bird Flu Spreading Widely to Farm Workers? A Small Study Offers Some Reassurance**\
+`Officials found no evidence of silent infections in 35 Michigan dairy workers, but experts noted that much more data was necessary.`\
+https://nytimes.com/2024/07/20/health/bird-flu-h5n1-farm-workers.html
+
 **Transcript: Ezra Klein Debriefs the 2024 Republican National Convention**\
 `The July 20, 2024 episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/07/20/podcasts/transcript-ezra-klein-debriefs-the-2024-republican-national-convention.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/books/read-like-wind-recommendations-los-angeles-
 **Divisive Far-Right Politician in Ukraine Is Fatally Shot**\
 `Iryna Farion, a former lawmaker, was known for controversial campaigns to discredit Russian-speaking Ukrainians.`\
 https://nytimes.com/2024/07/20/world/europe/ukraine-iryna-farion-shot.html
-
-**At Least 12 Dead and Dozens Missing After Highway Collapse in China**\
-`It was the second such rain-related disaster in less than three months, as extreme weather challenges the country’s extensive network of newly built expressways.`\
-https://nytimes.com/2024/07/20/world/asia/china-highway-collapse.html
 
