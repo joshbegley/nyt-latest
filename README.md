@@ -1,3 +1,7 @@
+**Kentucky's Mark Pope needs Jasper Johnson, but Wildcats have competition from Alabama, UNC**\
+`Johnson's recruiting is winding down with Kentucky, North Carolina and Alabama going head-to-head to land a commitment.`\
+https://nytimes.com/athletic/5648621/2024/07/20/jasper-johnson-recruiting-kentucky-alabama-north-carolina/
+
 **LaJoie on Busch calling him a liar: 'It pisses me off'**\
 `Aside from an incident at Martinsville last year, LaJoie said the drivers haven't had any history and typically race each other well.`\
 https://nytimes.com/athletic/5648622/2024/07/20/corey-lajoie-kyle-busch-pocono-brickyard/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5648541/2024/07/20/bo-bichette-injury-blue-jays/
 **After another qualifying crash, scrutiny over Pérez's Red Bull future grows**\
 `Pérez’s latest error could hasten considerations of a switch, most likely for Liam Lawson.`\
 https://nytimes.com/athletic/5648458/2024/07/20/sergio-perez-red-bull-f1-hungarian-gp/
-
-**Liam Rosenior in advanced talks for BlueCo-owned Strasbourg head coach position**\
-`Liam Rosenior is in advanced talks to become the new head coach of Strasbourg and is the club&#8217;s leading candidate for the position.`\
-https://nytimes.com/athletic/5648508/2024/07/20/liam-rosenior-in-advanced-talks-for-blueco-owned-strasbourg-head-coach-position/
 
