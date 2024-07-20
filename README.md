@@ -1,3 +1,7 @@
+**LaJoie on Busch calling him a liar: 'It pisses me off'**\
+`Aside from an incident at Martinsville last year, LaJoie said the drivers haven't had any history and typically race each other well.`\
+https://nytimes.com/athletic/5648622/2024/07/20/corey-lajoie-kyle-busch-pocono-brickyard/
+
 **Hungarian GP preview: McLaren v. Verstappen continues, pressure mounts on Pérez**\
 `Plus: Mercedes slips backward and Williams' Logan Sargeant takes a step forward. `\
 https://nytimes.com/athletic/5648608/2024/07/20/f1-hungarian-gp-preview-mclaren-verstappen-perez-pressure/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5648458/2024/07/20/sergio-perez-red-bull-f1-hungari
 **Liam Rosenior in advanced talks for BlueCo-owned Strasbourg head coach position**\
 `Liam Rosenior is in advanced talks to become the new head coach of Strasbourg and is the club&#8217;s leading candidate for the position.`\
 https://nytimes.com/athletic/5648508/2024/07/20/liam-rosenior-in-advanced-talks-for-blueco-owned-strasbourg-head-coach-position/
-
-**The Briefing: Rangers 0 Man Utd 2 - Impressive start from Yoro, Amad kicks on, standards improving?**\
-`We break down the key talking points from United’s pre-season friendly victory at Murrayfield`\
-https://nytimes.com/athletic/5646908/2024/07/20/rangers-manchester-united-friendly-result-analysis/
 
