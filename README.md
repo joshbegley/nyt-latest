@@ -1,6 +1,6 @@
-**Buckley: Joe Castiglione joins Red Sox greats in Cooperstown. Fittingly, he'll decide exit**\
+**Joe Castiglione joins Red Sox greats in Cooperstown. Fittingly, he'll decide exit plan**\
 `Castiglione, who made all the great Red Sox radio calls since '83, received the Hall of Fame’s Ford C. Frick Award winner for broadcasters.`\
-https://nytimes.com/athletic/5648781/2024/07/20/boston-red-sox-joe-castiglione-hall-of-fame-ford-frick-award/
+https://nytimes.com/athletic/5648781/2024/07/20/red-sox-joe-castiglione-hall-of-fame-ford-frick-award/
 
 **After Fire Destroys Sanctuary, Landmark Dallas Church Mourns What’s Lost**\
 `As officials work to determine the cause, many lament the damage at First Baptist Dallas, a church that grew along with the downtown around it.`\
