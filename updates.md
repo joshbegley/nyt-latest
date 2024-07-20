@@ -1,3 +1,7 @@
+**Bears camp: Caleb Williams' smooth start to practice, Velus Jones Jr.'s outlook for the new kickoff**\
+`Plus, Jaylon Johnson is working on his resume for his next contract.`\
+https://nytimes.com/athletic/5648613/2024/07/20/bears-camp-caleb-williams-velus-jones-jr-new-kickoff/
+
 **Is This the Summer of the Kamala Harris Coconut Piña Colada?**\
 `As the vice president’s name is floated as a potential presidential candidate, the internet took a goofy Kamala Harris meme and made it a drink.`\
 https://nytimes.com/2024/07/20/style/kamala-harris-coconut-pina-colada-cocktails.html

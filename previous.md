@@ -1,3 +1,7 @@
+**Bears camp: Caleb Williams' smooth start to practice, Velus Jones Jr.'s outlook for the new kickoff**\
+`Plus, Jaylon Johnson is working on his resume for his next contract.`\
+https://nytimes.com/athletic/5648613/2024/07/20/bears-camp-caleb-williams-velus-jones-jr-new-kickoff/
+
 **Is This the Summer of the Kamala Harris Coconut Piña Colada?**\
 `As the vice president’s name is floated as a potential presidential candidate, the internet took a goofy Kamala Harris meme and made it a drink.`\
 https://nytimes.com/2024/07/20/style/kamala-harris-coconut-pina-colada-cocktails.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/health/listeria-outbreak-deli-meats.html
 **Airlines and Passengers Still Struggling, a Day After Global Outage**\
 `The widespread tech failure left carriers trying to recover and passengers waiting for relief, with many flights still delayed or canceled.`\
 https://nytimes.com/2024/07/20/travel/outage-airlines-passengers-effects.html
-
-**Jays' Bichette strains calf again, heading back to IL**\
-`Bichette heads to IL as he reinjures his right calf against the Detroit Tigers.`\
-https://nytimes.com/athletic/5648541/2024/07/20/bo-bichette-injury-blue-jays/
 
