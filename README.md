@@ -1,3 +1,7 @@
+**Orecchiette Salad With Halloumi Croutons**\
+`Crispy, golden, squeaky-centered halloumi croutons.`\
+https://nytimes.com/2024/07/20/dining/pasta-salad-recipes.html
+
 **Flight Delays and Cancellations Continue Saturday but in Lower Numbers**\
 `An estimated 3,400 flights to, from and within the United States were canceled on Friday because of a tech outage. That made it the worst day of the year for flight cancellations.`\
 https://nytimes.com/2024/07/20/business/tech-outage-flight-delays-cancellations.html
@@ -20,7 +24,7 @@ https://nytimes.com/2024/07/20/health/retirement-mental-health.html
 
 **Trump and Zelensky speak by phone as Ukraine worries about U.S. backing.**\
 `By Constant Méheut`\
-https://nytimes.com/live/2024/07/20/us/trump-biden-election/trump-and-zelensky-speak-by-phone-as-ukraine-worries-about-us-backing
+https://nytimes.com/2024/07/20/us/politics/trump-zelensky-call-ukraine.html
 
 **Houthi Drone Strike Highlights Dilemmas for Israel**\
 `Israel has few options to retaliate for the attack in Tel Aviv, which made clear the weakness of its air defense system against unmanned aircraft and heightened concerns about the threat of Iranian-backed militias.`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/20/us/trump-biden-election/trump-and-vance-head
 **Why Some of the Loudest Cheers for Trump Are Coming From Silicon Valley**\
 `Elon Musk, David Sacks, Marc Andreessen and other influential figures in technology have endorsed former President Donald Trump.`\
 https://nytimes.com/2024/07/20/business/dealbook/silicon-valley-trump.html
-
-**2 Los Angeles Novels as Stylish and Wild as the City Itself**\
-`Elizabeth Stromme’s noir about a writer for hire; Karen Tei Yamashita’s magic realist dystopia.`\
-https://nytimes.com/2024/07/20/books/read-like-wind-recommendations-los-angeles-novels.html
 
