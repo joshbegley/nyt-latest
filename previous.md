@@ -1,3 +1,11 @@
+**Team USA survives scare from South Sudan**\
+`LeBron James, a two-time Olympic gold medalist and arguably the greatest to ever play, turned in his best game of the summer.`\
+https://nytimes.com/athletic/5648717/2024/07/20/team-usa-basketball-south-sudan-score-results/
+
+**This Open Championship is not for everyone. That's a good thing**\
+`The final round leaderboard features a pair of stars but many more veterans and underdogs, all of whom have handled the links golf test.`\
+https://nytimes.com/athletic/5648718/2024/07/20/open-championship-golf-weather/
+
 **Trump’s former White House doctor offers new details about his bullet wound.**\
 `Representative Ronny Jackson, who was Donald J. Trump’s White House doctor during his presidency, said the bullet from an assassination attempt pierced part of the cartilage on Mr. Trump’s ear.`\
 https://nytimes.com/live/2024/07/20/us/trump-biden-election/trump-assassination-attempt-ronny-jackson
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5648662/2024/07/20/billy-horschel-the-open-round-th
 **Bears camp: Caleb Williams' smooth start to practice, Velus Jones Jr.'s outlook for the new kickoff**\
 `Plus, Jaylon Johnson is working on his resume for his next contract.`\
 https://nytimes.com/athletic/5648613/2024/07/20/bears-camp-caleb-williams-velus-jones-jr-new-kickoff/
-
-**Is This the Summer of the Kamala Harris Coconut Piña Colada?**\
-`As the vice president’s name is floated as a potential presidential candidate, the internet took a goofy Kamala Harris meme and made it a drink.`\
-https://nytimes.com/2024/07/20/style/kamala-harris-coconut-pina-colada-cocktails.html
-
-**Kentucky's Mark Pope needs Jasper Johnson, but Wildcats have competition from Alabama, UNC**\
-`Johnson's recruiting is winding down with Kentucky, North Carolina and Alabama going head-to-head to land a commitment.`\
-https://nytimes.com/athletic/5648621/2024/07/20/jasper-johnson-recruiting-kentucky-alabama-north-carolina/
 

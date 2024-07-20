@@ -1,3 +1,11 @@
+**Team USA survives scare from South Sudan**\
+`LeBron James, a two-time Olympic gold medalist and arguably the greatest to ever play, turned in his best game of the summer.`\
+https://nytimes.com/athletic/5648717/2024/07/20/team-usa-basketball-south-sudan-score-results/
+
+**This Open Championship is not for everyone. That's a good thing**\
+`The final round leaderboard features a pair of stars but many more veterans and underdogs, all of whom have handled the links golf test.`\
+https://nytimes.com/athletic/5648718/2024/07/20/open-championship-golf-weather/
+
 **Trump’s former White House doctor offers new details about his bullet wound.**\
 `Representative Ronny Jackson, who was Donald J. Trump’s White House doctor during his presidency, said the bullet from an assassination attempt pierced part of the cartilage on Mr. Trump’s ear.`\
 https://nytimes.com/live/2024/07/20/us/trump-biden-election/trump-assassination-attempt-ronny-jackson
