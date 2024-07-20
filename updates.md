@@ -1,3 +1,7 @@
+**With the trade deadline fast approaching, the Cubs can't afford many more days like this**\
+`The Cubs expect to win when Justin Steele takes the mound, but their first game after the All-Star break didn't go as planned.`\
+https://nytimes.com/athletic/5648036/2024/07/19/mlb-trade-deadline-cubs/
+
 **Trump Can’t Help Himself. Will That Help Him Win?**\
 `The R.N.C. ended with uncertainty about whether Trump can capitalize on the opportunity ahead.`\
 https://nytimes.com/2024/07/19/us/politics/trump-2024-election.html
