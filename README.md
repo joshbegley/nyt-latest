@@ -1,3 +1,7 @@
+**Death of Vietnam’s Top Leader Raises Questions of Succession**\
+`The country’s political workings are notably opaque, but for now the president, who was until recently minister of public security, is carrying out the duties of general secretary.`\
+https://nytimes.com/2024/07/20/world/asia/vietnam-leadership-to-lam.html
+
 **Corrections: July 20, 2024**\
 `Corrections that appeared in print on Saturday, July 20, 2024.`\
 https://nytimes.com/2024/07/20/pageoneplus/corrections-july-20-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5648146/2024/07/19/toronto-blue-jays-second-half/
 **Representative Sheila Jackson Lee Dies at 74**\
 `Ms. Lee, who represented a district in the Houston area for nearly three decades, said in June that she had pancreatic cancer.`\
 https://nytimes.com/2024/07/19/us/sheila-jackson-lee-dead.html
-
-**Braves rookie pitcher Spencer Schwellenbach quickly ascending and impressing**\
-`The Braves are impressed by what they've seen: "If he gets in a sticky situation, you don’t ever see him panic."`\
-https://nytimes.com/athletic/5648141/2024/07/19/braves-spencer-schwellenbach/
 
