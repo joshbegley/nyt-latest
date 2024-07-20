@@ -1,4 +1,4 @@
-**Manchester United Jarrad Branthwaite transfer**\
+**Everton tell Man United they will not sell Branthwaite unless transfer valuation met**\
 `Everton have informed Manchester United they do not intend to sanction Jarrad Branthwaite’s exit this summer, irrespective of their proposed takeover by the Friedkin Group (TFG) collapsing.`\
 https://nytimes.com/athletic/5648410/2024/07/20/jarrad-branthwaite-everton-manchester-united-transfer/
 
