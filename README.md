@@ -1,3 +1,7 @@
+**The Big Rethink**\
+`What happens when an event changes the way we see the people who are most important to us.`\
+https://nytimes.com/2024/07/20/podcasts/the-big-rethink.html
+
 **‘Twisters’ and the Appeal of the Sequel**\
 `When a sequel comes out, it can be an occasion to reaffirm why you love the original.`\
 https://nytimes.com/2024/07/20/briefing/twisters-and-the-appeal-of-the-sequel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/magazine/joel-embiid-interview.html
 **How the U.S. Has Played a Role in Venezuela’s Presidential Election**\
 `The Biden administration helped prod the Venezuelan government to hold elections on July 28. Now, it is watching to see if the vote will be free and fair.`\
 https://nytimes.com/2024/07/20/world/americas/venezuela-election-us-role.html
-
-**When Tech Fails, It Is Usually With a Whimper Instead of a Bang**\
-`While in some corners of Silicon Valley people worry about the risks of A.I., a simple failed software update caused a worldwide outage.`\
-https://nytimes.com/2024/07/20/technology/crowdstrike-microsoft-outage-software.html
 
