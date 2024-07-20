@@ -1,3 +1,7 @@
+**An ‘Awful Event’ for the United States, and an Editor**\
+`The assassination of Abraham Lincoln shook the nation. But it was the concurrent attack on the secretary of state that also shook the founder of The New York Times, who considered him a political exemplar.`\
+https://nytimes.com/2024/07/20/insider/an-awful-event-for-the-united-states-and-an-editor.html
+
 **Biden’s Executive Order Forces Migrants to Rethink Routes to U.S.**\
 `In Tapachula, Mexico, human smugglers are profiting off migrants heading north to the United States following President Biden’s executive order suspending and limiting asylum requests.`\
 https://nytimes.com/2024/07/20/video/migrants-us-mexico-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/health/retirement-mental-health.html
 **Trump and Zelensky Speak by Phone as Ukraine Worries About U.S. Backing**\
 `Kyiv ponders what another Trump administration would mean for its war initiatives.`\
 https://nytimes.com/2024/07/20/us/politics/trump-zelensky-call-ukraine.html
-
-**Houthi Drone Strike Highlights Dilemmas for Israel**\
-`Israel has few options to retaliate for the attack in Tel Aviv, which made clear the weakness of its air defense system against unmanned aircraft and heightened concerns about the threat of Iranian-backed militias.`\
-https://nytimes.com/2024/07/20/world/middleeast/houthi-drone-strike-israel-tel-aviv.html
 

@@ -1,3 +1,7 @@
+**An ‘Awful Event’ for the United States, and an Editor**\
+`The assassination of Abraham Lincoln shook the nation. But it was the concurrent attack on the secretary of state that also shook the founder of The New York Times, who considered him a political exemplar.`\
+https://nytimes.com/2024/07/20/insider/an-awful-event-for-the-united-states-and-an-editor.html
+
 **Biden’s Executive Order Forces Migrants to Rethink Routes to U.S.**\
 `In Tapachula, Mexico, human smugglers are profiting off migrants heading north to the United States following President Biden’s executive order suspending and limiting asylum requests.`\
 https://nytimes.com/2024/07/20/video/migrants-us-mexico-biden.html
