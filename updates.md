@@ -1,3 +1,7 @@
+**After Fire Destroys Sanctuary, Landmark Dallas Church Mourns What’s Lost**\
+`As officials work to determine the cause, many lament the damage at First Baptist Dallas, a church that grew along with the downtown around it.`\
+https://nytimes.com/2024/07/20/us/first-baptist-dallas-fire.html
+
 **Before the Alec Baldwin Trial’s End, 2 Jurors Had Doubts About His Guilt**\
 `When the judge threw out the case, the jurors said, they had doubts that Mr. Baldwin was guilty of involuntary manslaughter in the fatal shooting of the cinematographer on the set of the film “Rust.”`\
 https://nytimes.com/2024/07/20/arts/alec-baldwin-rust-jurors.html
