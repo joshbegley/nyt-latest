@@ -1,3 +1,7 @@
+**Dozens of Local Police Officers Were at Trump’s Rally. Very Few Were Watching a Critical Area.**\
+`Local law enforcement officials, present in abundance, said they were not assigned security duties around a warehouse used by a man who tried to kill former President Donald Trump.`\
+https://nytimes.com/2024/07/20/us/politics/trump-rally-police-secret-service-shooting.html
+
 **At Least 2 Dead in Listeria Outbreak Tied to Deli-Sliced Meat**\
 `The federal Centers for Disease Control and Prevention said 28 people had been hospitalized with listeria infections across a dozen states.`\
 https://nytimes.com/2024/07/20/health/listeria-outbreak-deli-meats.html

@@ -1,3 +1,7 @@
+**Dozens of Local Police Officers Were at Trump’s Rally. Very Few Were Watching a Critical Area.**\
+`Local law enforcement officials, present in abundance, said they were not assigned security duties around a warehouse used by a man who tried to kill former President Donald Trump.`\
+https://nytimes.com/2024/07/20/us/politics/trump-rally-police-secret-service-shooting.html
+
 **At Least 2 Dead in Listeria Outbreak Tied to Deli-Sliced Meat**\
 `The federal Centers for Disease Control and Prevention said 28 people had been hospitalized with listeria infections across a dozen states.`\
 https://nytimes.com/2024/07/20/health/listeria-outbreak-deli-meats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/us/politics/trump-harris-strategy.html
 **4 People, Including 2 Children, Are Found Dead in Brooklyn Apartment**\
 `At least one person, a 56-year-old woman, was found with multiple stab wounds in her neck. A man was in custody, the police said.`\
 https://nytimes.com/2024/07/20/nyregion/brooklyn-stabbing-children-dead.html
-
-**Israeli Jets Bomb Sites in Yemen Linked to Iran-Backed Houthi Militia**\
-`The strike was in retaliation for a drone attack launched from Yemen a day earlier, which evaded Israel’s defenses and hit a building in Tel Aviv, killing one person.`\
-https://nytimes.com/2024/07/20/world/middleeast/israel-houthis-yemen.html
 
