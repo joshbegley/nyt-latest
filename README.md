@@ -1,3 +1,7 @@
+**Magic Words**\
+`Ricky J. Sirois’s themeless puzzle tests our core strength.`\
+https://nytimes.com/2024/07/19/crosswords/daily-puzzle-2024-07-20.html
+
 **Our Solution to the Crisis of Democracy**\
 `Center-left parties must lead the way to restore the social contract the binds democracies together.`\
 https://nytimes.com/2024/07/19/opinion/inequality-democracy-trump-solutions.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5648002/2024/07/19/mets-luis-severino-pitching-yank
 **Russia Punishes Those Who Seek the Truth**\
 `Evan Gershkovich is a victim of Putin’s campaign to silence independent journalism in Russia.`\
 https://nytimes.com/2024/07/19/opinion/evan-gershkovich-russia-journalist.html
-
-**New Hampshire Bans Gender-Transition Surgery for Minors**\
-`The move is in line with what other Republican-led states have done, but it is the first such ban in the Northeast.`\
-https://nytimes.com/2024/07/19/us/new-hampshire-gender-transition-surgery-ban.html
 
