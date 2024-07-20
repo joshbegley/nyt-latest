@@ -1,40 +1,40 @@
+**Lord Almighty, Joe, Let It Go!**\
+`It’s sad that the president doesn’t see what’s inescapable.`\
+https://nytimes.com/2024/07/20/opinion/biden-trump-kamala-harris.html
+
+**Biden and Trump Have Succeeded in Breaking Reality**\
+`We are living in a realm in which “nothing is true and everything is possible.”`\
+https://nytimes.com/2024/07/20/opinion/biden-trump-campaign-reality.html
+
+**Meet the Flip-Flop Club: 7 Republicans Who Kissed the Ring**\
+`How Donald Trump’s former critics turned from denunciations to praise at the Republican convention.`\
+https://nytimes.com/interactive/2024/07/20/opinion/republicans-trump-bent-the-knee.html
+
+**The Week When So Much Changed**\
+`The assassination attempt, like so much else, should be a wake-up call. It was a near miss for Trump but also for America — and a chance to make things better.`\
+https://nytimes.com/2024/07/20/opinion/trump-biden-america.html
+
+**How Trump Sabotaged His Own Apotheosis**\
+`Having Trump as a dominant figure keeps American politics in a state of unsettlement.`\
+https://nytimes.com/2024/07/20/opinion/donald-trump-republican-convention.html
+
+**Trump’s Transformation of the Republican Party Is Complete**\
+`With JD Vance at his back, the former president has cemented his legacy.`\
+https://nytimes.com/2024/07/20/opinion/trump-republican-party.html
+
+**I Watched the Republican Convention. The Democrats Can Still Win.**\
+`Ezra Klein discusses the anti-system populism on display at the 2024 G.O.P. convention — and what this might mean for the Democrats.`\
+https://nytimes.com/2024/07/20/opinion/ezra-klein-podcast-rnc.html
+
+**The Republican Party Has a Split-Personality Problem**\
+`The people who would make Trump president want different things from him.`\
+https://nytimes.com/2024/07/20/opinion/trump-bannon-republican-party.html
+
+**Investing in Pediatric Care**\
+`Readers discuss a guest essay about the shortage of pediatricians and what to do about it.`\
+https://nytimes.com/2024/07/20/opinion/pediatric-care.html
+
 **The Big Rethink**\
 `What happens when an event changes the way we see the people who are most important to us.`\
 https://nytimes.com/2024/07/20/podcasts/the-big-rethink.html
-
-**‘Twisters’ and the Appeal of the Sequel**\
-`When a sequel comes out, it can be an occasion to reaffirm why you love the original.`\
-https://nytimes.com/2024/07/20/briefing/twisters-and-the-appeal-of-the-sequel.html
-
-**Arsenal accelerating efforts to sign Bologna's Calafiori**\
-`Arsenal are accelerating their efforts to sign Bologna defender Riccardo Calafiori.`\
-https://nytimes.com/athletic/5614190/2024/07/20/riccardo-calafiori-arsenal-transfer-news/
-
-**Bears open training camp with patience for Caleb Williams but sense of urgency on offense**\
-`The Bears want to find a groove on offense as quickly as possible to start training camp. And GM Ryan Poles feels good about the lines.`\
-https://nytimes.com/athletic/5647768/2024/07/20/bears-caleb-williams-offense/
-
-**Much Is Still Unknown as Listeria Again Takes Canadian Lives**\
-`While a listeria contamination of 18 nondairy milk alternatives has killed two people and sickened 10 more, Danone seems to be concealing a key fact.`\
-https://nytimes.com/2024/07/20/world/canada/listeria-takes-canadian-lives.html
-
-**Wordle Review No. 1,127, Sunday, July 21, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/20/crosswords/wordle-review-1127.html
-
-**The Connections Companion No. 406, July 21, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/20/crosswords/connections-companion-406.html
-
-**Newcastle sign Serbia youth international defender Pivas**\
-`Newcastle United have signed Serbia youth international defender Miodrag Pivas from FK Jedinstvo.`\
-https://nytimes.com/athletic/5648329/2024/07/20/newcastle-transfer-news-pivas/
-
-**Joel Embiid Believes He Could Have Been the GOAT**\
-`The N.B.A. star talks Philly cheesesteaks, Twitter trolling and playing for Team U.S.A. over France in the Olympics.`\
-https://nytimes.com/2024/07/20/magazine/joel-embiid-interview.html
-
-**How the U.S. Has Played a Role in Venezuela’s Presidential Election**\
-`The Biden administration helped prod the Venezuelan government to hold elections on July 28. Now, it is watching to see if the vote will be free and fair.`\
-https://nytimes.com/2024/07/20/world/americas/venezuela-election-us-role.html
 
