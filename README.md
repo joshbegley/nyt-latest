@@ -1,3 +1,7 @@
+**2 Los Angeles Novels as Stylish and Wild as the City Itself**\
+`Elizabeth Stromme’s noir about a writer for hire; Karen Tei Yamashita’s magic realist dystopia.`\
+https://nytimes.com/2024/07/20/books/read-like-wind-recommendations-los-angeles-novels.html
+
 **Divisive Far-Right Politician in Ukraine Is Fatally Shot**\
 `Iryna Farion, a former lawmaker, was known for controversial campaigns to discredit Russian-speaking Ukrainians.`\
 https://nytimes.com/2024/07/20/world/europe/ukraine-iryna-farion-shot.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/opinion/trump-republican-party.html
 **I Watched the Republican Convention. The Democrats Can Still Win.**\
 `Ezra Klein discusses the anti-system populism on display at the 2024 G.O.P. convention — and what this might mean for the Democrats.`\
 https://nytimes.com/2024/07/20/opinion/ezra-klein-podcast-rnc.html
-
-**The Republican Party Has a Split-Personality Problem**\
-`The people who would make Trump president want different things from him.`\
-https://nytimes.com/2024/07/20/opinion/trump-bannon-republican-party.html
 
