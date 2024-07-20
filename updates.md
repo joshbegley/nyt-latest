@@ -1,3 +1,7 @@
+**LaJoie on Busch calling him a liar: 'It pisses me off'**\
+`Aside from an incident at Martinsville last year, LaJoie said the drivers haven't had any history and typically race each other well.`\
+https://nytimes.com/athletic/5648622/2024/07/20/corey-lajoie-kyle-busch-pocono-brickyard/
+
 **Hungarian GP preview: McLaren v. Verstappen continues, pressure mounts on Pérez**\
 `Plus: Mercedes slips backward and Williams' Logan Sargeant takes a step forward. `\
 https://nytimes.com/athletic/5648608/2024/07/20/f1-hungarian-gp-preview-mclaren-verstappen-perez-pressure/
