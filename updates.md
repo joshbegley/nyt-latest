@@ -1,3 +1,15 @@
+**Airlines and Passengers Still Struggling, a Day After Global Outage**\
+`The widespread tech failure left carriers trying to recover and passengers waiting for relief, with many flights still delayed or canceled.`\
+https://nytimes.com/2024/07/20/travel/outage-airlines-passengers-effects.html
+
+**Jays' Bichette strains calf again, heading back to IL**\
+`Bichette heads to IL as he reinjures his right calf against the Detroit Tigers.`\
+https://nytimes.com/athletic/5648541/2024/07/20/bo-bichette-injury-blue-jays/
+
+**After another qualifying crash, scrutiny over Pérez's Red Bull future grows**\
+`Pérez’s latest error could hasten considerations of a switch, most likely for Liam Lawson.`\
+https://nytimes.com/athletic/5648458/2024/07/20/sergio-perez-red-bull-f1-hungarian-gp/
+
 **The Briefing: Rangers 0 Man Utd 2 - Impressive start from Yoro, Amad kicks on, standards improving?**\
 `We break down the key talking points from United’s pre-season friendly victory at Murrayfield`\
 https://nytimes.com/athletic/5646908/2024/07/20/rangers-manchester-united-friendly-result-analysis/
