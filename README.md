@@ -1,3 +1,7 @@
+**USMNT's Adams to miss 2024-25 season start for Bournemouth after back surgery**\
+`Bournemouth midfielder and USMNT international Tyler Adams will miss the start of the 2024-25 season after undergoing back surgery.`\
+https://nytimes.com/athletic/5648297/2024/07/20/tyler-adams-back-injury-usmnt-bournemouth/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/07/20/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/us/dallas-fire-first-baptist-church-tx.html
 **Mets' Jeff McNeil shows signs of breakout with 2 home runs**\
 `McNeil's first two-homer game since 2019 comes after a major shift in his approach at the plate. `\
 https://nytimes.com/athletic/5648212/2024/07/20/mets-jeff-mcneil-home-runs/
-
-**Death of Vietnam’s Top Leader Raises Questions of Succession**\
-`The country’s political workings are notably opaque, but for now the president, who was until recently minister of public security, is carrying out the duties of general secretary.`\
-https://nytimes.com/2024/07/20/world/asia/vietnam-leadership-to-lam.html
 
