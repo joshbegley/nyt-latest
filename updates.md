@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein Debriefs the 2024 Republican National Convention**\
+`The July 20, 2024 episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/07/20/podcasts/transcript-ezra-klein-debriefs-the-2024-republican-national-convention.html
+
 **Everton tell Man United they will not sell Branthwaite unless transfer valuation met**\
 `Everton have informed Manchester United they do not intend to sanction Jarrad Branthwaite’s exit this summer, irrespective of their proposed takeover by the Friedkin Group (TFG) collapsing.`\
 https://nytimes.com/athletic/5648410/2024/07/20/jarrad-branthwaite-everton-manchester-united-transfer/
