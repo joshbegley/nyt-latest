@@ -1,3 +1,11 @@
+**Quotation of the Day: The Poet Who Commands a Rebel Army**\
+`Quotation of the Day for Saturday, July 20, 2024.`\
+https://nytimes.com/2024/07/20/pageoneplus/quotation-of-the-day-the-poet-who-commands-a-rebel-army.html
+
+**Another José Alvarado stumble opens the door to a different Phillies bullpen mix**\
+`José Alvarado might be the closer for much longer after blowing his third save opportunity.`\
+https://nytimes.com/athletic/5648178/2024/07/19/phillies-bullpen-jose-alvarado-closer/
+
 **As Blue Jays continue losing season, what is there to look forward to in the second half?**\
 `Bo Bichette left Friday's game with a calf injury, and Joey Votto was scratched from his Triple-A Buffalo debut after reinjuring his ankle.`\
 https://nytimes.com/athletic/5648146/2024/07/19/toronto-blue-jays-second-half/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5648119/2024/07/19/quincy-wilson-breaks-u18-400m-wo
 **Churchill Downs rescinds Bob Baffert's suspension**\
 `With the suspension rescinded, Baffert will be allowed to race horses at next year's Kentucky Derby.`\
 https://nytimes.com/athletic/5648116/2024/07/19/churchill-downs-bob-baffert-suspension/
-
-**WNBA 2024 All-Star Friday: Allisha Gray wins skills challenge**\
-`In addition to the $2,575 of prize money mandated by the CBA, the winners also receive a $55,000 bonus.`\
-https://nytimes.com/athletic/5648114/2024/07/19/wnba-2024-all-star-friday/
-
-**What Happened to ‘Digital Resilience’?**\
-`With each cascade of digital disaster, new vulnerabilities emerge. The latest chaos wasn’t caused by an adversary, but it provided a road map of American vulnerabilities at a critical moment.`\
-https://nytimes.com/2024/07/19/us/politics/crowdstrike-outage.html
 
