@@ -1,3 +1,7 @@
+**Death of Vietnam’s Top Leader Raises Questions of Succession**\
+`The country’s political workings are notably opaque, but for now the president, who was until recently minister of public security, is carrying out the duties of general secretary.`\
+https://nytimes.com/2024/07/20/world/asia/vietnam-leadership-to-lam.html
+
 **Corrections: July 20, 2024**\
 `Corrections that appeared in print on Saturday, July 20, 2024.`\
 https://nytimes.com/2024/07/20/pageoneplus/corrections-july-20-2024.html
