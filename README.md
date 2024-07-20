@@ -1,7 +1,3 @@
-**Pelosi Told Colleagues She Would Favor ‘Open’ Nomination Process if Biden Drops Out**\
-`The former House speaker and fellow California lawmakers were discussing the Democratic Party’s stressful state of affairs.`\
-https://nytimes.com/2024/07/19/us/politics/nancy-pelosi-joe-biden-drop-out.html
-
 **Gunman at Trump Rally Had Drone in Car, Possibly to Scope Out the Site**\
 `Investigators have information that suggests a man intent on assassinating former President Donald J. Trump flew the device over the campaign event location on the day of the shooting.`\
 https://nytimes.com/2024/07/19/us/politics/trump-gunman-drone.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/07/19/opinion/inequality-democracy-trump-solutions.html
 **Ex-Marine Sentenced to Nearly 5 Years for Role in Jan. 6 Riot**\
 `Tyler Bradley Dykes was charged with assaulting law enforcement after prosecutors said he stole a police officer’s riot shield to help break into the Capitol.`\
 https://nytimes.com/2024/07/19/us/marine-jan-6-riot-sentencing.html
+
+**While the debate over who will lead the ticket plays out, a Democratic voter group plans battleground initiative.**\
+`By Reid J. Epstein`\
+https://nytimes.com/live/2024/07/19/us/biden-election-news/while-the-debate-over-who-will-lead-the-ticket-plays-out-a-democratic-voter-group-plans-battleground-initiative
 
