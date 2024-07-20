@@ -1,3 +1,7 @@
+**Miami lands top-100 DB Jaboree Antoine**\
+`The Hurricanes are on pace to sign a top-10 class for the third consecutive cycle after being ranked No. 7 in 2023 and No. 4 in 2024. `\
+https://nytimes.com/athletic/5647236/2024/07/20/miami-recruiting-jaboree-antoine/
+
 **Canucks sign forward Daniel Sprong to 1-year deal**\
 `The 6-foot, 200-pound right-handed shooting winger is an ace finisher, who has scored 39 goals over the past two seasons.`\
 https://nytimes.com/athletic/5648691/2024/07/20/canucks-sign-daniel-sprong/
