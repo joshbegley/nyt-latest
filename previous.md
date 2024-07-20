@@ -1,40 +1,40 @@
-**Bridal Hats Are Making a Stylish Comeback**\
-`Fashion experts cite the influence of the British royals, along with high-profile events like the Kentucky Derby for the resurgence of this vintage wedding trend.`\
-https://nytimes.com/2024/07/20/style/bridal-hats-trend-veil-british-royals.html
+**How the U.S. Has Played a Role in Venezuela’s Presidential Election**\
+`The Biden administration helped prod the Venezuelan government to hold elections on July 28. Now, it is watching to see if the vote will be free and fair.`\
+https://nytimes.com/2024/07/20/world/americas/venezuela-election-us-role.html
 
-**A 17th-Century Parisian Literary Salon Rife With Stories and Sex**\
-`Clare Pollard’s novel “The Modern Fairies” reanimates 25 classic tales through a contemporary lens.`\
-https://nytimes.com/2024/07/20/books/review/the-modern-fairies-clare-pollard.html
+**When Tech Fails, It Is Usually With a Whimper Instead of a Bang**\
+`While in some corners of Silicon Valley people worry about the risks of A.I., a simple failed software update caused a worldwide outage.`\
+https://nytimes.com/2024/07/20/technology/crowdstrike-microsoft-outage-software.html
 
-**Travis Bazzana begins his journey to the majors with the Guardians: 'It's been a whirlwind'**\
-`The No. 1 overall pick from Australia met José Ramírez on Friday. It may not be too long before they are in the same lineup.`\
-https://nytimes.com/athletic/5648106/2024/07/20/cleveland-guardians-travis-bazzana/
+**Amid Talk of Border Chaos, Crossings Have Sharply Declined**\
+`Former President Donald J. Trump and the Texas governor are calling for a “secure border.” But actions by Mexico and President Biden have led to a period of relative calm.`\
+https://nytimes.com/2024/07/20/us/border-immigration-current-situation.html
 
-**Bus by Bus, Texas’ Governor Changed Migration Across the U.S.**\
-`In two years, Texas has bused more than 119,000 people to Democrat-led cities, shifting both migration patterns and the debate over immigration. The list of cities keeps expanding.`\
-https://nytimes.com/2024/07/20/us/abbott-texas-migrant-buses.html
+**Did Police in Kenya Catch a Serial Killer or Coerce a Confession?**\
+`After at least 10 sacks with body parts were found in a dump, a suspect was said to admit to 42 murders. But some doubt the case, and people with missing loved ones say the police were slow to help.`\
+https://nytimes.com/2024/07/20/world/africa/nairobi-kenya-serial-killer.html
 
-**In These 3 Novels, Power Struggles in Every Era**\
-`Immerse yourself in tales of Machiavellian statecraft, Depression-era scandal and emotional turmoil on an R.A.F. air base.`\
-https://nytimes.com/2024/07/20/books/review/best-new-historical-fiction-books.html
+**How Americans Justify Political Violence**\
+`Partisan support for the killing of adversaries is much more widespread than anyone wants to admit.`\
+https://nytimes.com/2024/07/20/magazine/us-political-violence.html
 
-**Bucks' Chris Livingston on summer-league work, Doc Rivers' coaching**\
-`Playing in his second NBA Summer League, Chris Livingston has been one of the Bucks' most solid players through four games.`\
-https://nytimes.com/athletic/5646759/2024/07/20/bucks-chris-livingston-summer-league/
+**‘Braveheart,’ ‘Grandpa,’ ‘Trumpster’: MAGA in 7 Keywords**\
+`A partial lexicon of modern Republicanism.`\
+https://nytimes.com/2024/07/20/books/review/trump-rnc-maga.html
 
-**The Buried Book That Helped Ukraine’s Literary Revival**\
-`To keep it from Russian forces, a writer hid his last manuscript under a cherry tree. Its rediscovery became part of a flowering of interest in Ukrainian literature.`\
-https://nytimes.com/2024/07/20/world/europe/ukraine-publishing-buried-book.html
+**Wall Street’s Masters of the Universe Are Masters of None in 2024 Race**\
+`The financial world’s heavy hitters fear being marginalized in Washington after former President Trump chose a running mate openly hostile to Wall Street.`\
+https://nytimes.com/2024/07/20/business/wall-street-republicans-trump-jd-vance.html
 
-**Submit your questions for Jen McCaffrey's next Red Sox mailbag!**\
-`Submit your questions for Jen McCaffrey's next Red Sox mailbag!`\
-https://nytimes.com/athletic/5639896/2024/07/20/submit-your-questions-for-jen-mccaffreys-next-red-sox-mailbag/
+**Psychologist Who Waterboarded C.I.A. Prisoners Defends Method’s Use in 9/11 Case**\
+`The man accused of planning the attacks was waterboarded 183 times. The now outlawed “enhanced interrogation” technique is considered a form of torture.`\
+https://nytimes.com/2024/07/20/us/politics/cia-terrorism-waterboarded-prisoners.html
 
-**Four third basemen the Yankees can acquire since they can't rely on DJ LeMahieu**\
-`With LeMahieu struggling, the Yankees could look to add a third baseman at the trade deadline.`\
-https://nytimes.com/athletic/5647983/2024/07/20/yankees-third-base-trade-candidates/
+**Indian Americans Become a Political Force, Just as Usha Vance’s Profile Rises**\
+`Indian Americans are now the largest and most politically active group among Asian Americans. Among their recent milestones: Vice President Kamala Harris, two G.O.P. presidential candidates — and a possible second lady.`\
+https://nytimes.com/2024/07/20/us/usha-vance-indian-americans-politics.html
 
-**Motels Are Having a Moment**\
-`What’s old is new again, and the humble roadside motel that an older generation might dismiss as outmoded is appealing to a new group of younger fans attracted to hit-the-road adventures.`\
-https://nytimes.com/2024/07/20/business/roadside-motels-renovation.html
+**The Jewelry Shiona Turini Never Takes Off**\
+`The costume designer of “Lady in the Lake” and a stylist of looks for Beyoncé’s “Cowboy Carter” understands the value of jewelry people wear every day.`\
+https://nytimes.com/2024/07/20/style/the-jewelry-shiona-turini-never-takes-off.html
 
