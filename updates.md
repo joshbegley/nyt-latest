@@ -1,3 +1,7 @@
+**Fire Engulfs Landmark Church in Downtown Dallas**\
+`The blaze at First Baptist Dallas appeared to have caused the roof in a historic section of the church to collapse, the church’s pastor said.`\
+https://nytimes.com/video/us/100000009583706/dallas-church-downtown-fire.html
+
 **Trump and Zelensky Speak by Phone as Ukraine Worries About U.S. Backing**\
 `Kyiv ponders what another Trump administration would mean for its war initiatives.`\
 https://nytimes.com/2024/07/20/us/politics/trump-zelensky-call-ukraine.html
