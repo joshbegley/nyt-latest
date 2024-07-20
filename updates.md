@@ -1,4 +1,8 @@
 **Joe Castiglione joins Red Sox greats in Cooperstown. Fittingly, he'll decide exit plan**\
+`Castiglione, who made all the great Red Sox radio calls since '83, received the Hall of Fame’s Ford C. Frick Award for broadcasters.`\
+https://nytimes.com/athletic/5648781/2024/07/20/red-sox-joe-castiglione-hall-of-fame-ford-frick-award/
+
+**Joe Castiglione joins Red Sox greats in Cooperstown. Fittingly, he'll decide exit plan**\
 `Castiglione, who made all the great Red Sox radio calls since '83, received the Hall of Fame’s Ford C. Frick Award winner for broadcasters.`\
 https://nytimes.com/athletic/5648781/2024/07/20/red-sox-joe-castiglione-hall-of-fame-ford-frick-award/
 
