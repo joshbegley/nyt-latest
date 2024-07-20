@@ -1,3 +1,7 @@
+**Liverpool U18s walk off pitch twice after alleged racist abuse**\
+`Liverpool Under-18s walked off the pitch twice in successive days at a youth tournament in Germany after one of their players was allegedly racially abused.`\
+https://nytimes.com/athletic/5648635/2024/07/20/liverpool-u18s-racist-abuse/
+
 **Team USA survives scare from South Sudan**\
 `LeBron James, a two-time Olympic gold medalist and arguably the greatest to ever play, turned in his best game of the summer.`\
 https://nytimes.com/athletic/5648717/2024/07/20/team-usa-basketball-south-sudan-score-results/
