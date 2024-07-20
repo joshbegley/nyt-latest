@@ -1,3 +1,7 @@
+**Fire Engulfs Landmark Church in Downtown Dallas**\
+`The blaze at First Baptist Dallas appeared to have caused the roof in a historic section of the church to collapse, the church’s pastor said.`\
+https://nytimes.com/video/us/100000009583706/dallas-church-downtown-fire.html
+
 **Orecchiette Salad With Halloumi Croutons**\
 `Crispy, golden, squeaky-centered halloumi croutons.`\
 https://nytimes.com/2024/07/20/dining/pasta-salad-recipes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/world/middleeast/houthi-drone-strike-israel-tel-a
 **Trump and Vance head to Michigan, while Biden publicly stands firm. Here’s the latest.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/07/20/us/trump-biden-election/trump-and-vance-head-to-michigan-while-biden-publicly-stands-firm-heres-the-latest
-
-**Why Some of the Loudest Cheers for Trump Are Coming From Silicon Valley**\
-`Elon Musk, David Sacks, Marc Andreessen and other influential figures in technology have endorsed former President Donald Trump.`\
-https://nytimes.com/2024/07/20/business/dealbook/silicon-valley-trump.html
 
