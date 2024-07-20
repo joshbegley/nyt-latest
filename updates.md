@@ -1,3 +1,11 @@
+**Before the Alec Baldwin Trial’s End, 2 Jurors Had Doubts About His Guilt**\
+`When the judge threw out the case, the jurors said, they had doubts that Mr. Baldwin was guilty of involuntary manslaughter in the fatal shooting of the cinematographer on the set of the film “Rust.”`\
+https://nytimes.com/2024/07/20/arts/alec-baldwin-rust-jurors.html
+
+**Open Championship analysis: What to know about Round 3 at Royal Troon**\
+`Billy Horschel leads after three rounds at Royal Troon, but a group of six are one stroke back.`\
+https://nytimes.com/athletic/5648771/2024/07/20/open-championship-round-3-analysis-horschel-lowry/
+
 **How to Guard Against Scams Tied to the CrowdStrike Crash**\
 `People posing as airline customer service representatives may be making fraudulent attempts to access your money or private data, experts warn.`\
 https://nytimes.com/2024/07/20/business/crowdstrike-tech-outage-scams.html
