@@ -2,6 +2,10 @@
 `The country’s political workings are notably opaque, but for now the president, who was until recently minister of public security, is carrying out the duties of general secretary.`\
 https://nytimes.com/2024/07/20/world/asia/vietnam-leadership-to-lam.html
 
+**What to expect from Manchester City's pre-season tour of the United States**\
+`Which players are going, who'll be missing and what should fans look out for as Manchester City head to the U.S.?`\
+https://nytimes.com/athletic/5647243/2024/07/20/manchester-city-pre-season-tour-america-squad/
+
 **Corrections: July 20, 2024**\
 `Corrections that appeared in print on Saturday, July 20, 2024.`\
 https://nytimes.com/2024/07/20/pageoneplus/corrections-july-20-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5648178/2024/07/19/phillies-bullpen-jose-alvarado-c
 **As Blue Jays continue losing season, what is there to look forward to in the second half?**\
 `Bo Bichette left Friday's game with a calf injury, and Joey Votto was scratched from his Triple-A Buffalo debut after reinjuring his ankle.`\
 https://nytimes.com/athletic/5648146/2024/07/19/toronto-blue-jays-second-half/
-
-**Representative Sheila Jackson Lee Dies at 74**\
-`Ms. Lee, who represented a district in the Houston area for nearly three decades, said in June that she had pancreatic cancer.`\
-https://nytimes.com/2024/07/19/us/sheila-jackson-lee-dead.html
 
