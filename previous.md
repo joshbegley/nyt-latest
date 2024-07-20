@@ -1,3 +1,7 @@
+**Biden’s Executive Order Forces Migrants to Rethink Routes to U.S.**\
+`In Tapachula, Mexico, human smugglers are profiting off migrants heading north to the United States following President Biden’s executive order suspending and limiting asylum requests.`\
+https://nytimes.com/2024/07/20/video/migrants-us-mexico-biden.html
+
 **Fire Engulfs Landmark Church in Downtown Dallas**\
 `The blaze at First Baptist Dallas appeared to have caused the roof in a historic section of the church to collapse, the church’s pastor said.`\
 https://nytimes.com/video/us/100000009583706/dallas-church-downtown-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/us/politics/trump-zelensky-call-ukraine.html
 **Houthi Drone Strike Highlights Dilemmas for Israel**\
 `Israel has few options to retaliate for the attack in Tel Aviv, which made clear the weakness of its air defense system against unmanned aircraft and heightened concerns about the threat of Iranian-backed militias.`\
 https://nytimes.com/2024/07/20/world/middleeast/houthi-drone-strike-israel-tel-aviv.html
-
-**Trump and Vance head to Michigan, while Biden publicly stands firm. Here’s the latest.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/07/20/us/trump-biden-election/trump-and-vance-head-to-michigan-while-biden-publicly-stands-firm-heres-the-latest
 
