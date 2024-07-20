@@ -1,3 +1,7 @@
+**Divisive Far-Right Politician in Ukraine Is Fatally Shot**\
+`Iryna Farion, a former lawmaker, was known for controversial campaigns to discredit Russian-speaking Ukrainians.`\
+https://nytimes.com/2024/07/20/world/europe/ukraine-iryna-farion-shot.html
+
 **At Least 12 Dead and Dozens Missing After Highway Collapse in China**\
 `It was the second such rain-related disaster in less than three months, as extreme weather challenges the country’s extensive network of newly built expressways.`\
 https://nytimes.com/2024/07/20/world/asia/china-highway-collapse.html
