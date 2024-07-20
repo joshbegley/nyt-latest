@@ -1,3 +1,7 @@
+**Test Your Focus: Can You Spend 10 Minutes With One Painting?**\
+`It’s very hard to slow down and look closely at something. You may find it’s worth it.`\
+https://nytimes.com/interactive/2024/07/20/upshot/attention-experiment.html
+
 **Billy Horschel leads crowded leaderboard at The Open**\
 `Six players — Dan Brown, Thirston Lawrence, Sam Burns, Russell Henley, Xander Schauffele and Justin Rose — lurk one shot back.`\
 https://nytimes.com/athletic/5648662/2024/07/20/billy-horschel-the-open-round-three-leaderboard/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/sports/brittney-griner-cherelle-baby.html
 **Dozens of Local Police Officers Were at Trump’s Rally. Very Few Were Watching a Critical Area.**\
 `Local law enforcement officials, present in abundance, said they were not assigned security duties around a warehouse used by a man who tried to kill former President Donald Trump.`\
 https://nytimes.com/2024/07/20/us/politics/trump-rally-police-secret-service-shooting.html
-
-**At Least 2 Dead in Listeria Outbreak Tied to Deli-Sliced Meat**\
-`The federal Centers for Disease Control and Prevention said 28 people had been hospitalized with listeria infections across a dozen states.`\
-https://nytimes.com/2024/07/20/health/listeria-outbreak-deli-meats.html
 
