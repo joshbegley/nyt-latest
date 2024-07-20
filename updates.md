@@ -1,3 +1,7 @@
+**Our Solution to the Crisis of Democracy**\
+`Center-left parties must lead the way to restore the social contract the binds democracies together.`\
+https://nytimes.com/2024/07/19/opinion/inequality-democracy-trump-solutions.html
+
 **Ex-Marine Sentenced to Nearly 5 Years for Role in Jan. 6 Riot**\
 `Tyler Bradley Dykes was charged with assaulting law enforcement after prosecutors said he stole a police officer’s riot shield to help break into the Capitol.`\
 https://nytimes.com/2024/07/19/us/marine-jan-6-riot-sentencing.html

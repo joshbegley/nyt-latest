@@ -1,3 +1,7 @@
+**Our Solution to the Crisis of Democracy**\
+`Center-left parties must lead the way to restore the social contract the binds democracies together.`\
+https://nytimes.com/2024/07/19/opinion/inequality-democracy-trump-solutions.html
+
 **Ex-Marine Sentenced to Nearly 5 Years for Role in Jan. 6 Riot**\
 `Tyler Bradley Dykes was charged with assaulting law enforcement after prosecutors said he stole a police officer’s riot shield to help break into the Capitol.`\
 https://nytimes.com/2024/07/19/us/marine-jan-6-riot-sentencing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/19/opinion/evan-gershkovich-russia-journalist.html
 **New Hampshire Bans Gender-Transition Surgery for Minors**\
 `The move is in line with what other Republican-led states have done, but it is the first such ban in the Northeast.`\
 https://nytimes.com/2024/07/19/us/new-hampshire-gender-transition-surgery-ban.html
-
-**Bernice Johnson Reagon, a Musical Voice for Civil Rights, Is Dead at 81**\
-`A singer, composer, curator and founder of the vocal group Sweet Honey in the Rock, she provided a gospel soundtrack for the civil rights movement.`\
-https://nytimes.com/2024/07/19/arts/music/bernice-johnson-reagon-dead.html
 
