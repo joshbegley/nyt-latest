@@ -1,3 +1,11 @@
+**Orecchiette Salad With Halloumi Croutons**\
+`Crispy, golden, squeaky-centered halloumi croutons.`\
+https://nytimes.com/2024/07/20/dining/pasta-salad-recipes.html
+
+**Trump and Zelensky speak by phone as Ukraine worries about U.S. backing.**\
+`By Constant Méheut`\
+https://nytimes.com/2024/07/20/us/politics/trump-zelensky-call-ukraine.html
+
 **Flight Delays and Cancellations Continue Saturday but in Lower Numbers**\
 `An estimated 3,400 flights to, from and within the United States were canceled on Friday because of a tech outage. That made it the worst day of the year for flight cancellations.`\
 https://nytimes.com/2024/07/20/business/tech-outage-flight-delays-cancellations.html
