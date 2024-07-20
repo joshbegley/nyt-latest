@@ -1,4 +1,8 @@
 **As Blue Jays continue losing season, what is there to look forward to in the second half?**\
+`Bo Bichette left Friday's game with a calf injury, and Joey Votto was scratched from his Triple-A Buffalo debut after reinjuring his ankle.`\
+https://nytimes.com/athletic/5648146/2024/07/19/toronto-blue-jays-second-half/
+
+**As Blue Jays continue losing season, what is there to look forward to in the second half?**\
 `Bo Bichette left Friday's game with a calf injury and Joey Votto was scratched from his Triple-A Buffalo debut after re-injuring his ankle.`\
 https://nytimes.com/athletic/5648146/2024/07/19/toronto-blue-jays-second-half/
 
