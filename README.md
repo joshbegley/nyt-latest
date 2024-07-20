@@ -1,3 +1,7 @@
+**International management remains a glorious mystery - and is all the better for it**\
+`Why international football is a mix of federation figures, big-name club managers, experienced journeymen and home grown coaches`\
+https://nytimes.com/athletic/5647096/2024/07/20/international-management-template-mystery/
+
 **Quotation of the Day: The Poet Who Commands a Rebel Army**\
 `Quotation of the Day for Saturday, July 20, 2024.`\
 https://nytimes.com/2024/07/20/pageoneplus/quotation-of-the-day-the-poet-who-commands-a-rebel-army.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/elections/100000009579899/elon-musk-is-a-critical-b
 **Quincy Wilson, teenage track star, breaks U18 men's 400m WR again**\
 `Wilson ran a 44.20 to reset the U18 men's 400m world record and break his own U.S. high school record.`\
 https://nytimes.com/athletic/5648119/2024/07/19/quincy-wilson-breaks-u18-400m-world-record/
-
-**Churchill Downs rescinds Bob Baffert's suspension**\
-`With the suspension rescinded, Baffert will be allowed to race horses at next year's Kentucky Derby.`\
-https://nytimes.com/athletic/5648116/2024/07/19/churchill-downs-bob-baffert-suspension/
 
