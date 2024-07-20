@@ -1,3 +1,7 @@
+**Billy Horschel leads crowded leaderboard at The Open**\
+`Six players — Dan Brown, Thirston Lawrence, Sam Burns, Russell Henley, Xander Schauffele and Justin Rose — lurk one shot back.`\
+https://nytimes.com/athletic/5648662/2024/07/20/billy-horschel-the-open-round-three-leaderboard/
+
 **Bears camp: Caleb Williams' smooth start to practice, Velus Jones Jr.'s outlook for the new kickoff**\
 `Plus, Jaylon Johnson is working on his resume for his next contract.`\
 https://nytimes.com/athletic/5648613/2024/07/20/bears-camp-caleb-williams-velus-jones-jr-new-kickoff/

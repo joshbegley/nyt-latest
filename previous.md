@@ -1,3 +1,7 @@
+**Billy Horschel leads crowded leaderboard at The Open**\
+`Six players — Dan Brown, Thirston Lawrence, Sam Burns, Russell Henley, Xander Schauffele and Justin Rose — lurk one shot back.`\
+https://nytimes.com/athletic/5648662/2024/07/20/billy-horschel-the-open-round-three-leaderboard/
+
 **Bears camp: Caleb Williams' smooth start to practice, Velus Jones Jr.'s outlook for the new kickoff**\
 `Plus, Jaylon Johnson is working on his resume for his next contract.`\
 https://nytimes.com/athletic/5648613/2024/07/20/bears-camp-caleb-williams-velus-jones-jr-new-kickoff/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/us/politics/trump-rally-police-secret-service-sho
 **At Least 2 Dead in Listeria Outbreak Tied to Deli-Sliced Meat**\
 `The federal Centers for Disease Control and Prevention said 28 people had been hospitalized with listeria infections across a dozen states.`\
 https://nytimes.com/2024/07/20/health/listeria-outbreak-deli-meats.html
-
-**Airlines and Passengers Still Struggling, a Day After Global Outage**\
-`The widespread tech failure left carriers trying to recover and passengers waiting for relief, with many flights still delayed or canceled.`\
-https://nytimes.com/2024/07/20/travel/outage-airlines-passengers-effects.html
 
