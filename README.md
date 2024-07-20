@@ -1,3 +1,7 @@
+**Hungarian GP preview: McLaren v. Verstappen continues, pressure mounts on Pérez**\
+`Plus: Mercedes slips backward and Williams' Logan Sargeant takes a step forward. `\
+https://nytimes.com/athletic/5648608/2024/07/20/f1-hungarian-gp-preview-mclaren-verstappen-perez-pressure/
+
 **Leeds sign Bogle from Sheffield United on four-year deal**\
 `Leeds United have completed the signing Jayden Bogle from Sheffield United for an undisclosed fee.`\
 https://nytimes.com/athletic/5648592/2024/07/20/jayden-bogle-leeds-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5648508/2024/07/20/liam-rosenior-in-advanced-talks-
 **The Briefing: Rangers 0 Man Utd 2 - Impressive start from Yoro, Amad kicks on, standards improving?**\
 `We break down the key talking points from United’s pre-season friendly victory at Murrayfield`\
 https://nytimes.com/athletic/5646908/2024/07/20/rangers-manchester-united-friendly-result-analysis/
-
-**Thomas Neff, Who Turned Soviet Warheads Into Electricity, Dies at 80**\
-`An M.I.T. physicist, he engineered an East-West deal that reduced nuclear threats and produced one of the greatest peace dividends of all time.`\
-https://nytimes.com/2024/07/20/world/europe/thomas-l-neff-dead.html
 
