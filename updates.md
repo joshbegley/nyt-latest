@@ -1,3 +1,7 @@
+**At Least 2 Dead in Listeria Outbreak Tied to Deli-Sliced Meat**\
+`The federal Centers for Disease Control and Prevention said 28 people had been hospitalized with listeria infections across a dozen states.`\
+https://nytimes.com/2024/07/20/health/listeria-outbreak-deli-meats.html
+
 **Airlines and Passengers Still Struggling, a Day After Global Outage**\
 `The widespread tech failure left carriers trying to recover and passengers waiting for relief, with many flights still delayed or canceled.`\
 https://nytimes.com/2024/07/20/travel/outage-airlines-passengers-effects.html
