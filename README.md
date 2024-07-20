@@ -1,3 +1,7 @@
+**Joel Embiid Believes He Could Have Been the GOAT**\
+`The N.B.A. star talks Philly cheesesteaks, Twitter trolling and playing for Team U.S.A. over France in the Olympics.`\
+https://nytimes.com/2024/07/20/magazine/joel-embiid-interview.html
+
 **How the U.S. Has Played a Role in Venezuela’s Presidential Election**\
 `The Biden administration helped prod the Venezuelan government to hold elections on July 28. Now, it is watching to see if the vote will be free and fair.`\
 https://nytimes.com/2024/07/20/world/americas/venezuela-election-us-role.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/us/politics/cia-terrorism-waterboarded-prisoners.
 **Indian Americans Become a Political Force, Just as Usha Vance’s Profile Rises**\
 `Indian Americans are now the largest and most politically active group among Asian Americans. Among their recent milestones: Vice President Kamala Harris, two G.O.P. presidential candidates — and a possible second lady.`\
 https://nytimes.com/2024/07/20/us/usha-vance-indian-americans-politics.html
-
-**The Jewelry Shiona Turini Never Takes Off**\
-`The costume designer of “Lady in the Lake” and a stylist of looks for Beyoncé’s “Cowboy Carter” understands the value of jewelry people wear every day.`\
-https://nytimes.com/2024/07/20/style/the-jewelry-shiona-turini-never-takes-off.html
 
