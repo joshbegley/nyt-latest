@@ -1,3 +1,11 @@
+**While the debate over who will lead the ticket plays out, a Democratic voter group plans battleground initiative.**\
+`By Reid J. Epstein`\
+https://nytimes.com/live/2024/07/19/us/biden-election-news/while-the-debate-over-who-will-lead-the-ticket-plays-out-a-democratic-voter-group-plans-battleground-initiative
+
+**Blinken Says Gaza Cease-Fire Deal Is ‘Inside the 10-Yard Line’**\
+`The national security adviser, Jake Sullivan, was more cautious as both spoke ahead of next week’s visit to Washington by Prime Minister Benjamin Netanyahu of Israel.`\
+https://nytimes.com/2024/07/19/us/politics/blinken-sullivan-gaza-cease-fire.html
+
 **With the trade deadline fast approaching, the Cubs can't afford many more days like this**\
 `The Cubs expect to win when Justin Steele takes the mound, but their first game after the All-Star break didn't go as planned.`\
 https://nytimes.com/athletic/5648036/2024/07/19/mlb-trade-deadline-cubs/
