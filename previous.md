@@ -1,3 +1,7 @@
+**To Deter Day-Trippers, Venice Tested a €5 Entrance Fee. Did Visitors Stay Away?**\
+`The mayor said preliminary data suggested that the experiment was a success. But the program brought in far more money than predicted, which critics called proof of failure.`\
+https://nytimes.com/2024/07/20/world/europe/venice-italy-entrance-fee.html
+
 **USMNT's Adams to miss 2024-25 season start for Bournemouth after back surgery**\
 `Bournemouth midfielder and USMNT international Tyler Adams will miss the start of the 2024-25 season after undergoing back surgery.`\
 https://nytimes.com/athletic/5648297/2024/07/20/tyler-adams-back-injury-usmnt-bournemouth/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5622243/2024/07/20/eric-cantona-manchester-united-t
 **Fire Badly Damages Sanctuary of a Landmark Church in Dallas**\
 `The roof of a 19th-century part of the First Baptist Dallas Church in the city’s downtown appeared to have collapsed.`\
 https://nytimes.com/2024/07/20/us/dallas-fire-first-baptist-church-tx.html
-
-**Mets' Jeff McNeil shows signs of breakout with 2 home runs**\
-`McNeil's first two-homer game since 2019 comes after a major shift in his approach at the plate. `\
-https://nytimes.com/athletic/5648212/2024/07/20/mets-jeff-mcneil-home-runs/
 
