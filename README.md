@@ -1,3 +1,7 @@
+**Israeli Jets Bomb Sites in Yemen Linked to Iran-Backed Houthi Militia**\
+`The strike was in retaliation for a drone attack launched from Yemen a day earlier, which evaded Israel’s defenses and hit a building in Tel Aviv, killing one person.`\
+https://nytimes.com/2024/07/20/world/middleeast/israel-houthis-yemen.html
+
 **An ‘Awful Event’ for the United States, and an Editor**\
 `The assassination of Abraham Lincoln shook the nation. But it was the concurrent attack on the secretary of state that also shook the founder of The New York Times, who considered him a political exemplar.`\
 https://nytimes.com/2024/07/20/insider/an-awful-event-for-the-united-states-and-an-editor.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5648410/2024/07/20/jarrad-branthwaite-everton-manch
 **Some Seniors Readily Step Back. Some Never Will.**\
 `Researchers are only beginning to understand why some people embrace retirement while others won’t even consider it.`\
 https://nytimes.com/2024/07/20/health/retirement-mental-health.html
-
-**Trump and Zelensky Speak by Phone as Ukraine Worries About U.S. Backing**\
-`Kyiv ponders what another Trump administration would mean for its war initiatives.`\
-https://nytimes.com/2024/07/20/us/politics/trump-zelensky-call-ukraine.html
 
