@@ -1,3 +1,7 @@
+**Another José Alvarado stumble opens the door to a different Phillies bullpen mix**\
+`José Alvarado might not be the closer for much longer after blowing his third save opportunity.`\
+https://nytimes.com/athletic/5648178/2024/07/19/phillies-bullpen-jose-alvarado-closer/
+
 **Quotation of the Day: The Poet Who Commands a Rebel Army**\
 `Quotation of the Day for Saturday, July 20, 2024.`\
 https://nytimes.com/2024/07/20/pageoneplus/quotation-of-the-day-the-poet-who-commands-a-rebel-army.html
