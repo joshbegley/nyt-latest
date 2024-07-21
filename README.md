@@ -1,3 +1,7 @@
+**Review: A Lost Opera Returns, and Shouldn’t Be Lost Again**\
+`Teatro Nuovo is giving Carolina Uccelli’s pioneering “Anna di Resburgo” its first performances since its premiere in 1835.`\
+https://nytimes.com/2024/07/21/arts/music/uccelli-anna-di-resburgo-teatro-nuovo.html
+
 **Blue Jackets Sunday Gathering: Projecting the lineup while awaiting a coaching hire**\
 `How we see the Blue Jackets' forward lines, defensive pairs and goaltending aligning this upcoming season.`\
 https://nytimes.com/athletic/5648440/2024/07/21/blue-jackets-lineup-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5649234/2024/07/21/lando-norris-oscar-piastri-win-h
 **Arsenal name youthful U.S. tour squad with Smith Rowe, Nelson, Nketiah included**\
 `Arsenal have named their 26-man squad for the pre-season tour of the United States with Emile Smith Rowe, Reiss Nelson and Eddie Nketiah travelling despite there being transfer interest in all three.`\
 https://nytimes.com/athletic/5649198/2024/07/21/arsenal-us-tour-squad-smith-rowe/
-
-**Utah State CB Andre Seldon Jr. dies at 22**\
-`USU officials learned he was found by the Utah Department of Public Safety dive team, the school said in a statement.`\
-https://nytimes.com/athletic/5648995/2024/07/21/andre-seldon-jr-death-utah-state/
 
