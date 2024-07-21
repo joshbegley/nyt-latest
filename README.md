@@ -1,7 +1,3 @@
-**How McLaren tangled itself in F1 team orders — and why Norris let Piastri win**\
-`Lando Norris had to choose between "the right thing" and or boosting his own championship hopes. `\
-https://nytimes.com/athletic/5649420/2024/07/21/f1-oscar-piastri-hungary-win-lando-norris-mclaren/
-
 **Biden Made a Courageous Choice. Democrats Must Seize the Opportunity.**\
 `He did what Trump would never do: place the national interest above his own pride and ambition.`\
 https://nytimes.com/2024/07/21/opinion/editorials/joe-biden-drops-out-courage.html
@@ -37,4 +33,8 @@ https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/bidens-decision-
 **Biden Drops Out of Race, Scrambling the Campaign for the White House**\
 `The president’s withdrawal under pressure from fellow Democrats cleared the way for a new nominee to take on former President Donald J. Trump in the fall. He quickly endorsed Vice President Kamala Harris.`\
 https://nytimes.com/2024/07/21/us/politics/biden-drops-out.html
+
+**Biden and Georgia Are Waging a Fight Over Medicaid and the Future of Obamacare**\
+`A fierce battle with Georgia over a Medicaid experiment with stricter enrollment underscores the vast divide between parties over how to cover lower-income Americans.`\
+https://nytimes.com/2024/07/21/us/politics/biden-georgia-medicaid-obamacare.html
 
