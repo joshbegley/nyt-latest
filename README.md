@@ -1,3 +1,7 @@
+**Villa's record signing Diaby set to join Al-Ittihad**\
+`Aston Villa&#8217;s record signing Moussa Diaby is set to join Al-Ittihad in a deal worth around €60million (£50.`\
+https://nytimes.com/athletic/5633268/2024/07/21/moussa-diaby-transfer-al-ittihad/
+
 **What Biden’s Decision Not to Run Means for America**\
 `His decision marks a generational transition in American politics`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-drop-out-meaning
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5649418/2024/07/21/braves-max-fried-injury-2/
 **Tadej Pogacar Returns to the Top, Winning the Tour de France**\
 `Pogacar won his third Tour, beating his rival Jonas Vingegaard by 6:17 after a final time trial victory in Nice on Sunday.`\
 https://nytimes.com/2024/07/21/sports/cycling/pogacar-tour-de-france.html
-
-**How Will Democrats Replace Biden at the Top of the Presidential Ticket?**\
-`The president cleared the way for a successor. He endorsed Vice President Kamala Harris, but there could still be a contest to determine who the nominee will be.`\
-https://nytimes.com/2024/07/21/us/politics/biden-replace-harris.html
 
