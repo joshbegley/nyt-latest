@@ -1,3 +1,11 @@
+**Biden Made a Courageous Choice. Democrats Must Seize the Opportunity.**\
+`He did what Trump would never do: place the national interest above his own pride and ambition.`\
+https://nytimes.com/2024/07/21/opinion/editorials/joe-biden-drops-out-courage.html
+
+**Braves' Max Fried hits IL with nerve irritation in forearm**\
+`Fried's injury could make adding a starting pitcher before the trade deadline a priority for the Braves again.`\
+https://nytimes.com/athletic/5649418/2024/07/21/braves-max-fried-injury-2/
+
 **Review: A Lost Opera Returns, and Shouldn’t Be Lost Again**\
 `Teatro Nuovo is giving Carolina Uccelli’s pioneering “Anna di Resburgo” its first performances since its premiere in 1835.`\
 https://nytimes.com/2024/07/21/arts/music/uccelli-anna-di-resburgo-teatro-nuovo.html
