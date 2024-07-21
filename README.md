@@ -1,3 +1,7 @@
+**Biden Drops His Bid for Re-Election**\
+`A special edition of The Evening on the president’s decision and what comes next.`\
+https://nytimes.com/2024/07/21/briefing/biden-drops-his-bid-for-re-election.html
+
 **What 4 Key Democratic Governors Have Said About Biden Dropping Out**\
 `The governors of Pennsylvania, Michigan, California and Illinois have attracted attention as potential contenders to replace President Biden atop the ticket. Here’s what they have said since he dropped out.`\
 https://nytimes.com/2024/07/21/us/politics/newsom-whitmer-shapiro-biden-drops-out.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/trump-kamala-har
 **On Your Marks, Get Set, Serve!**\
 `Waiters in London competed in an annual footrace designed to test their mettle, their coordination and their skill as servers.`\
 https://nytimes.com/2024/07/21/world/europe/soho-london-waiters-race.html
-
-**Read Vice President Kamala Harris’s full statement.**\
-`In a five-paragraph statement, Ms. Harris hailed President Biden’s accomplishments and said she would run in his place.`\
-https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/read-vice-president-kamala-harriss-full-statement
 
