@@ -1,3 +1,7 @@
+**J.T. Realmuto is back, and the Phillies will feel his presence in obvious and subtle ways**\
+`Along with his talent as a hitter and base runner, Realmuto should help the Phillies via his rapport with the pitching staff.`\
+https://nytimes.com/athletic/5648857/2024/07/20/phillies-jt-realmuto-return/
+
 **Jayson Werth's Dornoch secures Breeders' Cup berth**\
 `The victory comes 42 days after Dornoch and Werth won the Belmont Stakes.`\
 https://nytimes.com/athletic/5648838/2024/07/20/jayson-werth-dornoch-haskell-stakes-breeders/
