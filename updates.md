@@ -1,3 +1,7 @@
+**Utah Officials Backtrack on Untested Execution Drug**\
+`An execution, scheduled for next month, would have used an experimental three-drug combination that critics said could inflict serious pain.`\
+https://nytimes.com/2024/07/20/us/utah-execution-untested-drugs.html
+
 **J.T. Realmuto is back, and the Phillies will feel his presence in obvious and subtle ways**\
 `Along with his talent as a hitter and base runner, Realmuto should help the Phillies via his strong rapport with the pitching staff.`\
 https://nytimes.com/athletic/5648857/2024/07/20/phillies-jt-realmuto-return/
