@@ -1,3 +1,7 @@
+**Jayson Werth's Dornoch secures Breeders' Cup berth**\
+`The victory comes 42 days after Dornoch and Werth won the Belmont Stakes.`\
+https://nytimes.com/athletic/5648838/2024/07/20/jayson-werth-dornoch-haskell-stakes-breeders/
+
 **Joe Castiglione joins Red Sox greats in Cooperstown. Fittingly, he'll decide exit plan**\
 `Castiglione, who made all the great Red Sox radio calls since '83, received the Hall of Fame’s Ford C. Frick Award for broadcasters.`\
 https://nytimes.com/athletic/5648781/2024/07/20/red-sox-joe-castiglione-hall-of-fame-ford-frick-award/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/crosswords/daily-puzzle-2024-07-21.html
 **Open Championship leader Billy Horschel has waited a career for this moment**\
 `"If it's not meant to be, it's not meant to be," Horschel said of winning his first career major. But make no mistake — he wants it.`\
 https://nytimes.com/athletic/5648745/2024/07/20/billy-horschel-open-championship-leader/
-
-**Vance makes his V.P. debut at a Trump rally in Michigan.**\
-`By Michael Gold`\
-https://nytimes.com/live/2024/07/20/us/trump-biden-election/vance-makes-his-vp-debut-at-a-trump-rally-in-michigan
 

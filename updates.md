@@ -1,3 +1,7 @@
+**Jayson Werth's Dornoch secures Breeders' Cup berth**\
+`The victory comes 42 days after Dornoch and Werth won the Belmont Stakes.`\
+https://nytimes.com/athletic/5648838/2024/07/20/jayson-werth-dornoch-haskell-stakes-breeders/
+
 **Open Championship analysis: What to know about Round 3 at Royal Troon**\
 `Horschel leads after three rounds at Royal Troon, but six players are just one stroke back.`\
 https://nytimes.com/athletic/5648771/2024/07/20/open-championship-round-3-analysis-horschel-lowry/
