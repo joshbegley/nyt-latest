@@ -1,3 +1,15 @@
+**Democratic Billionaires and Donors Rush to Back Harris After Biden’s Exit**\
+`Advisers and major givers said they were being inundated with enthusiasm and plans for donations to support Ms. Harris if she won the nomination.`\
+https://nytimes.com/2024/07/21/us/politics/democrat-donors-harris-biden.html
+
+**Kamala Harris or Bust**\
+`The only conversation the Democrats need to be having now is how to line up behind their Vice President.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/kamala-harris-replace-biden
+
+**Inside Biden’s Withdrawal: ‘I Need You and Mike at the House,’ He Told 2 Top Aides**\
+`President Biden did not tell most of his staff until a minute before making an announcement to the world on social media on Sunday. Vice President Kamala Harris, whom Mr. Biden went on to endorse, also learned of his decision on Sunday.`\
+https://nytimes.com/2024/07/21/us/politics/biden-withdrawal-timeline.html
+
 **Biden is out. What happens to his money?**\
 `By Theodore Schleifer`\
 https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/biden-is-out-what-happens-to-his-money
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/21/us/politics/vance-trump-campaign-rally.html
 **Three Questions About What the Democrats Might Do Next**\
 `Many of our columnists, writers and contributors have spent the weeks since Biden’s debate debacle examining the possibilities.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/democrats-convention-biden-drop-out
-
-**Biden has struggled to translate decades of good will into the unifying presidency he promised.**\
-`President Biden arrived`\
-https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/biden-president-legacy
-
-**Villa's record signing Diaby set to join Al-Ittihad**\
-`Aston Villa&#8217;s record signing Moussa Diaby is set to join Al-Ittihad in a deal worth around €60million (£50.`\
-https://nytimes.com/athletic/5633268/2024/07/21/moussa-diaby-transfer-al-ittihad/
-
-**What Biden’s Decision Not to Run Means for America**\
-`His decision marks a generational transition in American politics`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-drop-out-meaning
 
