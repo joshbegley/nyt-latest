@@ -1,3 +1,11 @@
+**Monday Briefing: Biden Ends His Re-Election Bid**\
+`The president endorsed Vice President Kamala Harris to continue the race against Donald Trump.`\
+https://nytimes.com/2024/07/21/briefing/joe-biden-campaign-ends.html
+
+**The Northwest Bakes as the Region Faces Hotter, Longer Heat Waves**\
+`Inland areas farther from the coast are facing particularly dangerous conditions this weekend, forecasters say.`\
+https://nytimes.com/2024/07/21/us/heat-wave-forecast-washington-oregon-idaho.html
+
 **Judge Rejects Bid to Dismiss Trump Libel Suit Against Pulitzer Board**\
 `Donald Trump sued the Pulitzer Prize Board over its 2022 statement reaffirming its decision to award a prize for coverage of the 2016 Trump campaign’s ties to Russia.`\
 https://nytimes.com/2024/07/21/business/media/trump-libel-suit-pulitzer-board.html

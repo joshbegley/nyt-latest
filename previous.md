@@ -1,3 +1,11 @@
+**Monday Briefing: Biden Ends His Re-Election Bid**\
+`The president endorsed Vice President Kamala Harris to continue the race against Donald Trump.`\
+https://nytimes.com/2024/07/21/briefing/joe-biden-campaign-ends.html
+
+**The Northwest Bakes as the Region Faces Hotter, Longer Heat Waves**\
+`Inland areas farther from the coast are facing particularly dangerous conditions this weekend, forecasters say.`\
+https://nytimes.com/2024/07/21/us/heat-wave-forecast-washington-oregon-idaho.html
+
 **Judge Rejects Bid to Dismiss Trump Libel Suit Against Pulitzer Board**\
 `Donald Trump sued the Pulitzer Prize Board over its 2022 statement reaffirming its decision to award a prize for coverage of the 2016 Trump campaign’s ties to Russia.`\
 https://nytimes.com/2024/07/21/business/media/trump-libel-suit-pulitzer-board.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/21/us/politics/kamala-harris.html
 **Kamala Harris Says She’s Running in Biden’s Place**\
 `The vice president said that she was honored by President Biden’s endorsement, and that she intended to “earn and win” the Democratic nomination.`\
 https://nytimes.com/2024/07/21/us/politics/kamala-harris-president-biden.html
-
-**As Biden Withdraws, Words of Praise and Caution**\
-`An early sampling of reactions to the president’s announcement.`\
-https://nytimes.com/2024/07/21/opinion/letters/biden-withdraws.html
-
-**With Biden Out, What Happens Next? Here’s What We Know.**\
-`Democrats are gaming out scenarios, some of them more likely than others. One thing is clear: Kamala Harris has the inside lane.`\
-https://nytimes.com/article/biden-drop-out-nomination-delegates-harris.html
 
