@@ -1,3 +1,7 @@
+**Cardinals' celebration 'definitely not a political statement,' player says**\
+`A veteran player said the gestures are intended to mimic a DJ, as a reference to college rapper Alec Burleson.`\
+https://nytimes.com/athletic/5649601/2024/07/21/cardinals-celebration-alec-burleson-lars-nootbaar/
+
 **Kenny Clark, Packers agree to 3-year, $64 million extension**\
 `Clark entered the league when the Packers drafted him 27th in the 2016 NFL Draft.`\
 https://nytimes.com/athletic/5649679/2024/07/21/kenny-clark-packers-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/republican-candi
 **Chiefs first camp practice: Patrick Mahomes rejoices over deep connection with Xavier Worthy**\
 `In a practice that was a little more than an hour of on-field work, Mahomes and Worthy produced a couple of highlights.`\
 https://nytimes.com/athletic/5649616/2024/07/21/chiefs-first-practice-patrick-mahomes-xavier-worthy/
-
-**Biden Drops His Bid for Re-Election**\
-`A special edition of The Evening on the president’s decision and what comes next.`\
-https://nytimes.com/2024/07/21/briefing/biden-drops-his-bid-for-re-election.html
 
