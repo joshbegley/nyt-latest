@@ -1,3 +1,7 @@
+**Who will replace Biden as the Democratic nominee?**\
+`At the top of the list is Vice President Kamala Harris, whose position at Mr. Biden’s side makes her an obvious first choice to succeed the president. Mr. Biden quickly endorsed her.`\
+https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/democrat-nominee-biden
+
 **The Scale and Scope of Biden’s Sacrifice**\
 `This is an extraordinary moment in American history.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-drop-out-country-first
