@@ -1,3 +1,7 @@
+**Trump’s Conviction and Biden’s Poor Debate Sent Big Money Into the Race**\
+`The Biden campaign also spent six times as much as the Trump campaign did in June, allowing Republicans to gain a financial advantage.`\
+https://nytimes.com/live/2024/07/20/us/trump-biden-election/trump-biden-fundraising
+
 **The Meaning of Prayer at a Political Convention**\
 `Prayers at events such as the Republican National Convention can take on the feel of a religious veneer for certain policies.`\
 https://nytimes.com/2024/07/21/opinion/republican-convention-prayer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/21/business/thanks-but-no-thanks.html
 **How Charlie Morton and Eddie Rosario showed they still can help the Braves**\
 `With Morton and Rosario excelling, you couldn't blame Braves fans who looked back to their World Series championship three years ago.`\
 https://nytimes.com/athletic/5648870/2024/07/20/braves-charlie-morton-eddie-rosario/
-
-**A Week After Shooting, Trump Leaves Unity Behind and Returns to Insults and Election Denial**\
-`A week after an assassination attempt led him to call for unity, former President Donald J. Trump returned to the campaign trail, lashing out at his rivals and claiming persecution.`\
-https://nytimes.com/2024/07/20/us/politics/trump-vance-michigan.html
 
