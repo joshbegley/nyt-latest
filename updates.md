@@ -1,3 +1,7 @@
+**Biden and Georgia Are Waging a Fight Over Medicaid and the Future of Obamacare**\
+`A fierce battle with Georgia over a Medicaid experiment with stricter enrollment underscores the vast divide between parties over how to cover lower-income Americans.`\
+https://nytimes.com/2024/07/21/us/politics/biden-georgia-medicaid-obamacare.html
+
 **Xander Schauffele wins Open Championship for major win No. 2**\
 `Schauffele made three birdies in five holes on the back nine at Royal Troon to win his second career major.`\
 https://nytimes.com/athletic/5649356/2024/07/21/xander-schauffele-open-championship-win-royal-troon/
