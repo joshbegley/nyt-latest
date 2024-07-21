@@ -1,3 +1,11 @@
+**Biden Drops His Bid for Re-Election**\
+`A special edition of The Evening on the president’s decision and what comes next.`\
+https://nytimes.com/2024/07/21/briefing/biden-drops-his-bid-for-re-election.html
+
+**What 4 Key Democratic Governors Have Said About Biden Dropping Out**\
+`The governors of Pennsylvania, Michigan, California and Illinois have attracted attention as potential contenders to replace President Biden atop the ticket. Here’s what they have said since he dropped out.`\
+https://nytimes.com/2024/07/21/us/politics/newsom-whitmer-shapiro-biden-drops-out.html
+
 **Most Hill Democrats rally around Harris, but top leaders and Pelosi stay mum.**\
 `By Luke Broadwater`\
 https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/most-hill-democrats-rally-around-harris-but-top-leaders-and-pelosi-stay-mum
