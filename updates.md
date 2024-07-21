@@ -1,3 +1,7 @@
+**Villa's record signing Diaby set to join Al-Ittihad**\
+`Aston Villa&#8217;s record signing Moussa Diaby is set to join Al-Ittihad in a deal worth around €60million (£50.`\
+https://nytimes.com/athletic/5633268/2024/07/21/moussa-diaby-transfer-al-ittihad/
+
 **What Biden’s Decision Not to Run Means for America**\
 `His decision marks a generational transition in American politics`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-drop-out-meaning
