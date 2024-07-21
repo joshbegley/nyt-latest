@@ -1,4 +1,8 @@
-**Charlie Morton and Eddie Rosario showed Saturday they still can help the Braves**\
+**Thanks, but No Thanks**\
+`If a lunch with your boss makes you feel uncomfortable, you don’t have to go. Suggest an alternative.`\
+https://nytimes.com/2024/07/21/business/thanks-but-no-thanks.html
+
+**How Charlie Morton and Eddie Rosario proved they still can help the Braves**\
 `With Morton and Rosario excelling, you couldn't blame Braves fans who looked back to their World Series championship three years ago.`\
 https://nytimes.com/athletic/5648870/2024/07/20/braves-charlie-morton-eddie-rosario/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5648838/2024/07/20/jayson-werth-dornoch-haskell-sta
 **Joe Castiglione joins Red Sox greats in Cooperstown. Fittingly, he'll decide exit plan**\
 `Castiglione, who made all the great Red Sox radio calls since '83, received the Hall of Fame’s Ford C. Frick Award for broadcasters.`\
 https://nytimes.com/athletic/5648781/2024/07/20/red-sox-joe-castiglione-hall-of-fame-ford-frick-award/
-
-**After Fire Destroys Sanctuary, Landmark Dallas Church Mourns What’s Lost**\
-`As officials work to determine the cause, many lament the damage at First Baptist Dallas, a church that grew along with the downtown around it.`\
-https://nytimes.com/2024/07/20/us/first-baptist-dallas-fire.html
 
