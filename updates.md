@@ -1,3 +1,7 @@
+**What Biden’s Decision Not to Run Means for America**\
+`His decision marks a generational transition in American politics`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-drop-out-meaning
+
 **Who will replace Biden as the Democratic nominee?**\
 `At the top of the list is Vice President Kamala Harris, whose position at Mr. Biden’s side makes her an obvious first choice to succeed the president. Mr. Biden quickly endorsed her.`\
 https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/democrat-nominee-biden
