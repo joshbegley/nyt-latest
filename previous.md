@@ -1,3 +1,7 @@
+**Four lessons from Nottingham Forest's pre-season so far**\
+`Signings bedding in, positive steps from last year's cohort and a renewed attacking focus - Nuno Espirito Santo's side is coming together`\
+https://nytimes.com/athletic/5648423/2024/07/21/forest-lessons-pre-season-so-far/
+
 **Five years of the ‘new’ goal-kick law - this is how it has transformed football**\
 `A subtle tweak to how teams can restart games has led to some fascinating tactical innovations since 2019`\
 https://nytimes.com/athletic/5596295/2024/07/21/how-goal-kick-law-changed-football/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/us/politics/secret-service-trump-shooting.html
 **Cavs, Evan Mobley agree to 5-year extension**\
 `The deal could be worth up to $269 million, a league source confirmed Saturday.`\
 https://nytimes.com/athletic/5648897/2024/07/20/evan-mobley-cavaliers-extension/
-
-**Utah Officials Backtrack on Untested Execution Drug**\
-`An execution, scheduled for next month, would have used an experimental three-drug combination that critics said could inflict serious pain.`\
-https://nytimes.com/2024/07/20/us/utah-execution-untested-drugs.html
 

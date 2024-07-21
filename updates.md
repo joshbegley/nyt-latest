@@ -1,3 +1,7 @@
+**Four lessons from Nottingham Forest's pre-season so far**\
+`Signings bedding in, positive steps from last year's cohort and a renewed attacking focus - Nuno Espirito Santo's side is coming together`\
+https://nytimes.com/athletic/5648423/2024/07/21/forest-lessons-pre-season-so-far/
+
 **Five years of the ‘new’ goal-kick law - this is how it has transformed football**\
 `A subtle tweak to how teams can restart games has led to some fascinating tactical innovations since 2019`\
 https://nytimes.com/athletic/5596295/2024/07/21/how-goal-kick-law-changed-football/
