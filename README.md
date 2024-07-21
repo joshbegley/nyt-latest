@@ -1,3 +1,7 @@
+**What Biden’s Decision Not to Run Means for America**\
+`His decision marks a generational transition in American politics`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-drop-out-meaning
+
 **Who will replace Biden as the Democratic nominee?**\
 `At the top of the list is Vice President Kamala Harris, whose position at Mr. Biden’s side makes her an obvious first choice to succeed the president. Mr. Biden quickly endorsed her.`\
 https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/democrat-nominee-biden
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/21/sports/cycling/pogacar-tour-de-france.html
 **How Will Democrats Replace Biden at the Top of the Presidential Ticket?**\
 `The president cleared the way for a successor. He endorsed Vice President Kamala Harris, but there could still be a contest to determine who the nominee will be.`\
 https://nytimes.com/2024/07/21/us/politics/biden-replace-harris.html
-
-**Where Kamala Harris Stands on the Issues: Abortion, Immigration and More**\
-`She wants to protect the right to abortion nationally. Here’s what else to know about her positions.`\
-https://nytimes.com/2024/07/21/us/politics/kamala-harris-abortion-immigration-economy-israel.html
 
