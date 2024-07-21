@@ -1,5 +1,5 @@
-**Manchin has joined calls in the Senate for Biden to withdraw his candidacy.**\
-`Senator Joe Manchin III, an independent who still caucuses with Democrats, is the fifth senator aligned with the party to call for President Biden to withdraw his candidacy.`\
+**Manchin Calls for Biden to Withdraw His Candidacy**\
+`Senator Joe Manchin III, an independent from West Virginia who caucuses with Democrats, is the fifth senator aligned with the party to urge President Biden not to seek re-election.`\
 https://nytimes.com/2024/07/21/us/politics/joe-manchin-biden-withdraw.html
 
 **Submit MLB trade deadline questions, trade proposals for Jim Bowden's mailbag**\
