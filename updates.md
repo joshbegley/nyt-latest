@@ -1,3 +1,11 @@
+**Cardinals' celebration 'definitely not a political statement,' player says**\
+`A veteran player said the gestures are intended to mimic a DJ, as a reference to college rapper Alec Burleson.`\
+https://nytimes.com/athletic/5649601/2024/07/21/cardinals-celebration-alec-burleson-lars-nootbaar/
+
+**Kenny Clark, Packers agree to 3-year, $64 million extension**\
+`Clark entered the league when the Packers drafted him 27th in the 2016 NFL Draft.`\
+https://nytimes.com/athletic/5649679/2024/07/21/kenny-clark-packers-extension/
+
 **Can Kamala Harris Step Up? Asking for a Friend.**\
 `What are the alternatives? And about those Republicans ...`\
 https://nytimes.com/2024/07/21/opinion/kamala-harris-joe-biden-drops-out.html
