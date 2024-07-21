@@ -1,3 +1,7 @@
+**Lowetide: Oilers have major scoring talent ticketed for the AHL in 2024-25**\
+`Matt Savoie not having an NHL job entering camp despite his special talent is a rare thing in Oilers history.`\
+https://nytimes.com/athletic/5648202/2024/07/21/oilers-bakersfield-condors-matt-savoie/
+
 **Oscar Piastri wins the Hungarian GP**\
 `The Australian rookie finished ahead of teammate Lando Norris in a finish that tested their bond as teammates.`\
 https://nytimes.com/athletic/5649234/2024/07/21/lando-norris-oscar-piastri-win-hungarian-gp-f1/
