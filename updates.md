@@ -1,3 +1,7 @@
+**Watching a West Ham game with George Earthy's dad: 'I kick and head every ball for him'**\
+`Last season was a breakthrough campaign for the young midfielder - now he is ready to kick on in 2024-25 under Julen Lopetegui`\
+https://nytimes.com/athletic/5648933/2024/07/21/watching-george-earthy-west-ham/
+
 **Behind Bangladesh Protests, Rage Over Inequality**\
 `The demonstrations began over a quota system for government jobs but have extended to corruption, the cost of living and income disparities.`\
 https://nytimes.com/2024/07/21/world/asia/bangladesh-protests-quotas-jobs.html

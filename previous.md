@@ -1,3 +1,7 @@
+**Watching a West Ham game with George Earthy's dad: 'I kick and head every ball for him'**\
+`Last season was a breakthrough campaign for the young midfielder - now he is ready to kick on in 2024-25 under Julen Lopetegui`\
+https://nytimes.com/athletic/5648933/2024/07/21/watching-george-earthy-west-ham/
+
 **Behind Bangladesh Protests, Rage Over Inequality**\
 `The demonstrations began over a quota system for government jobs but have extended to corruption, the cost of living and income disparities.`\
 https://nytimes.com/2024/07/21/world/asia/bangladesh-protests-quotas-jobs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/21/style/lam-teddy-riner-charles-leclerc-joseph-delb
 **‘I Was Settling Into My Morning Commute on the 4 Train’**\
 `Catching up on the news, appreciating a counterman’s skills and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2024/07/21/nyregion/metropolitan-diary.html
-
-**Could This Van Help People Quit Fentanyl?**\
-`Methadone has been used for decades to treat opioid addiction. It is also difficult to come by, a problem health providers hope to ease with a new fleet of vans that can provide the drug.`\
-https://nytimes.com/2024/07/21/nyregion/mobile-methadone-vans-fentanyl.html
 
