@@ -1,3 +1,7 @@
+**Judge Rejects Bid to Dismiss Trump Libel Suit Against Pulitzer Board**\
+`Donald Trump sued the Pulitzer Prize Board over its 2022 statement reaffirming its decision to award a prize for coverage of the 2016 Trump campaign’s ties to Russia.`\
+https://nytimes.com/2024/07/21/business/media/trump-libel-suit-pulitzer-board.html
+
 **A Harris Economy Could Prove More Progressive Than ‘Bidenomics’**\
 `As a presidential candidate in the past, the former California senator pushed for higher taxes and bigger housing investments.`\
 https://nytimes.com/2024/07/21/us/politics/kamala-harris-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/21/opinion/letters/biden-withdraws.html
 **With Biden Out, What Happens Next? Here’s What We Know.**\
 `Democrats are gaming out scenarios, some of them more likely than others. One thing is clear: Kamala Harris has the inside lane.`\
 https://nytimes.com/article/biden-drop-out-nomination-delegates-harris.html
-
-**Clintons Endorse Kamala Harris to Be Democrats’ Nominee for President**\
-`The former president and the former secretary of state swiftly backed Vice President Kamala Harris to replace President Biden atop the Democratic ticket.`\
-https://nytimes.com/2024/07/21/us/politics/clintons-kamala-harris-endorsement.html
 
