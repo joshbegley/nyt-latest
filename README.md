@@ -1,3 +1,11 @@
+**Biden is out. What happens to his money?**\
+`By Theodore Schleifer`\
+https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/biden-is-out-what-happens-to-his-money
+
+**Truman and Johnson Also Stepped Aside, but ‘the Circumstances Are Quite Different’**\
+`The candidates who secured the Democratic nomination after the two presidents dropped out would go on to lose the election. But historians say political history doesn’t necessarily repeat itself.`\
+https://nytimes.com/2024/07/21/us/truman-johnson-president-stepped-aside.html
+
 **How Kamala Harris Performs Against Donald Trump in the Polls**\
 `The vice president could enter the general election campaign in a better position than President Biden.`\
 https://nytimes.com/2024/07/21/us/politics/kamala-harris-trump-polls.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5633268/2024/07/21/moussa-diaby-transfer-al-ittihad
 **What Biden’s Decision Not to Run Means for America**\
 `His decision marks a generational transition in American politics`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-drop-out-meaning
-
-**Who will replace Biden as the Democratic nominee?**\
-`At the top of the list is Vice President Kamala Harris, whose position at Mr. Biden’s side makes her an obvious first choice to succeed the president. Mr. Biden quickly endorsed her.`\
-https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/democrat-nominee-biden
-
-**The Scale and Scope of Biden’s Sacrifice**\
-`This is an extraordinary moment in American history.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-drop-out-country-first
 

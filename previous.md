@@ -1,6 +1,6 @@
 **How Kamala Harris Performs Against Donald Trump in the Polls**\
 `The vice president could enter the general election campaign in a better position than President Biden.`\
-https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/kamala-harris-trump-polls
+https://nytimes.com/2024/07/21/us/politics/kamala-harris-trump-polls.html
 
 **European politicians and analysts are praising Biden for leaving the race.**\
 `By Steven Erlanger`\
