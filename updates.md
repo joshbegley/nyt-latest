@@ -1,3 +1,7 @@
+**Israel Intercepts Missile Fired From Yemen as Conflict With Houthis Continues**\
+`The missile launch suggested that the Yemen-based Houthi militia, which is backed by Iran, would keep up its attacks despite Israeli airstrikes on a port it controls.`\
+https://nytimes.com/2024/07/21/world/middleeast/israel-houthis-missile-yemen.html
+
 **WNBA All-Star Game grades: How did Angel Reese, Diana Taurasi, Caitlin Clark perform?**\
 `Brittney Griner and Diana Taurasi earned high marks for Team USA playing in front of a hometown Phoenix crowd.`\
 https://nytimes.com/athletic/5649076/2024/07/21/wnba-all-star-game-grades-how-did-angel-reese-caitlin-clark-aja-wilson-perform/
