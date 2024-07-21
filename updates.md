@@ -1,3 +1,7 @@
+**Review: A Lost Opera Returns, and Shouldn’t Be Lost Again**\
+`Teatro Nuovo is giving Carolina Uccelli’s pioneering “Anna di Resburgo” its first performances since its premiere in 1835.`\
+https://nytimes.com/2024/07/21/arts/music/uccelli-anna-di-resburgo-teatro-nuovo.html
+
 **Blue Jackets Sunday Gathering: Projecting the lineup while awaiting a coaching hire**\
 `How we see the Blue Jackets' forward lines, defensive pairs and goaltending aligning this upcoming season.`\
 https://nytimes.com/athletic/5648440/2024/07/21/blue-jackets-lineup-coach/
