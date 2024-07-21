@@ -1,3 +1,11 @@
+**At a rally, Trump jeered at the Democratic Party’s infighting. Here’s the latest.**\
+`Former Pr`\
+https://nytimes.com/live/2024/07/21/us/trump-biden-election/at-a-rally-trump-jeered-at-the-democratic-partys-infighting-heres-the-latest
+
+**Election Live Updates: Trump, Leaving Unity Behind, Insults Biden, Who Remains Sidelined With Covid**\
+`At a campaign event in Michigan on Saturday, former President Donald J. Trump abandoned his call for unity, lobbing personal attacks at President Biden and other Democrats.`\
+https://nytimes.com/live/2024/07/21/us/trump-biden-election
+
 **You Ask, We Answer**\
 `We’re answering reader questions about this newsletter, and the news in general.`\
 https://nytimes.com/2024/07/21/briefing/the-morning-reader-questions.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5633068/2024/07/21/blackhawks-prospects-sacha-boisv
 **Democratic Elites Were Slow to See What Voters Already Knew**\
 `Be skeptical when you hear that this is all a plot.`\
 https://nytimes.com/2024/07/21/opinion/biden-aoc-democratic-elites.html
-
-**The Lesson of the Trump Coronation**\
-`Democrats can’t defeat Trump with Biden at the top of the ticket.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/republican-convention-trump-democrats
-
-**One of the Republican Convention’s Weirdest Lies**\
-`It was one long exercise in creating memories of a Trump term that never existed.`\
-https://nytimes.com/2024/07/21/opinion/trump-administration-chaos.html
 
