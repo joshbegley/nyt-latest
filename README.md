@@ -1,40 +1,40 @@
-**Djed Spence is having a decent pre-season - but does he have a future at Tottenham?**\
-`The talent is undoubtedly there but will Spence be displaying it for Spurs or someone else in 2024-25?`\
-https://nytimes.com/athletic/5649031/2024/07/21/djed-spence-pre-season-prospects/
+**For Biden, a Decision to Step Aside Would Raise Another Question**\
+`As President Biden grapples with the possibility of dropping his bid for re-election, a secondary question looms: Should he endorse his own vice president as the nominee?`\
+https://nytimes.com/2024/07/21/us/politics/biden-harris-nomination.html
 
-**Marseille closing in on deal to sign Hojbjerg**\
-`Marseille have agreed a fee with Tottenham Hotspur for the signing of Pierre-Emile Hojbjerg.`\
-https://nytimes.com/athletic/5649044/2024/07/21/pierre-emile-hojbjerg-tottenham-marseille/
+**Biden’s Fate Hangs Over Baldwin and Democrats in Congress as Voters Question His Fitness**\
+`Voters are deeply skeptical about President Biden’s prospects, posing challenges for Senator Tammy Baldwin in Wisconsin and other Democrats once thought to be relatively safe in their seats.`\
+https://nytimes.com/2024/07/21/us/politics/baldwin-biden-democrats-congress-wisconsin.html
 
-**Watching a West Ham game with George Earthy's dad: 'I kick and head every ball for him'**\
-`Last season was a breakthrough campaign for the young midfielder - now he is ready to kick on in 2024-25 under Julen Lopetegui`\
-https://nytimes.com/athletic/5648933/2024/07/21/watching-george-earthy-west-ham/
+**‘Love Island USA’ Finds Its Magic Formula for Success**\
+`A new host, an embrace of social media and some excellent casting led to the former also-ran becoming the summer’s buzziest show.`\
+https://nytimes.com/2024/07/21/style/love-island-usa.html
 
-**Behind Bangladesh Protests, Rage Over Inequality**\
-`The demonstrations began over a quota system for government jobs but have extended to corruption, the cost of living and income disparities.`\
-https://nytimes.com/2024/07/21/world/asia/bangladesh-protests-quotas-jobs.html
+**‘Twisters’ Takes Off at the Box Office**\
+`The disaster movie was on pace to sell roughly $80 million in tickets in North America over the weekend, 60 percent more than expected.`\
+https://nytimes.com/2024/07/21/business/twisters-box-office.html
 
-**Corrections: July 21, 2024**\
-`Corrections that appeared in print on Sunday, July 21, 2024.`\
-https://nytimes.com/2024/07/21/corrections/corrections-july-21-2024.html
+**Alex Izenberg Was Almost a Teen Rock Star. His Second Chance Is Here.**\
+`He was discovered by a star songwriter and hit the road before schizophrenia turned his world upside down. Two decades later, he’s releasing an LP he’d longed to make.`\
+https://nytimes.com/2024/07/21/arts/music/alex-izenberg.html
 
-**Answers to Questions From Morning Readers**\
-`Times journalists from around the newsroom talk about their beats and our work.`\
-https://nytimes.com/2024/07/21/briefing/answers-to-questions-from-morning-readers.html
+**Corvette Bucked a Sports Cars Decline. Can It Thrive in an E.V. Era?**\
+`The General Motors sports car, which enjoyed strong sales after a big design change, now has a hybrid version and may get a fully electric model that may turn off some gas-loving customers.`\
+https://nytimes.com/2024/07/21/business/chevrolet-corvette-electric-vehicles.html
 
-**Quotation of the Day: Methadone Vans Aim to Bring Help Closer to Addicts**\
-`Quotation of the Day for Sunday, July 21, 2024.`\
-https://nytimes.com/2024/07/21/pageoneplus/quotation-of-the-day-methadone-vans-aim-to-bring-help-closer-to-addicts.html
+**On TikTok, True Crime Survivors Take Control**\
+`The genre is wildly popular across media, but often produced without input from those most affected. Viral videos are helping survivors own their stories.`\
+https://nytimes.com/2024/07/21/arts/tiktok-true-crime.html
 
-**Eight Decades Later, a Celebration of Faith Renewed**\
-`More than 50,000 American Catholics gathered at the first National Eucharistic Congress since the 1940s.`\
-https://nytimes.com/2024/07/21/us/national-eucharist-congress-catholics.html
+**7 Takeaways From Our Investigation Into a Secret Investor in Jack Ma’s Companies**\
+`Behind the scenes, China’s most celebrated and its most notorious billionaires were linked through investments worth at least $1 billion.`\
+https://nytimes.com/2024/07/21/world/asia/jack-ma-xiao-jianhua-takaeaways.html
 
-**Cars, but Make It Fashion**\
-`Ferrari has positioned itself as a high-end fashion and lifestyle brand that appeals to more than just Formula 1 fans. Could Jeep follow that lead?`\
-https://nytimes.com/2024/07/21/style/ferrari-jeep-fashion.html
+**A Critical Gap in Democracy? ‘Yawn,’ Say Canadian Politicians.**\
+`China and India have been accused of exploiting the opaque nomination contests of Canadian political parties to meddle in elections.`\
+https://nytimes.com/2024/07/21/world/americas/canada-democracy-foreign-interference.html
 
-**For Fashion, Sports Stars Are the New Superstars**\
-`Here’s why, and how the balance of power between individual brand and company brand is changing.`\
-https://nytimes.com/2024/07/21/style/fashion-sports-stars-ambassadors.html
+**Hong Kong’s Bouncy ‘Wonders’ Leave Some Wondering, ‘Why?’**\
+`Inflatable replicas of famous monuments popped up in a park, raising questions about art and Hong Kong’s changing place in the world.`\
+https://nytimes.com/2024/07/21/world/asia/hong-kong-inflatable-wonders-art.html
 
