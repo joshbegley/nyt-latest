@@ -1,3 +1,7 @@
+**Biden Drops Out of Race, Scrambling the Campaign for the White House**\
+`The president’s withdrawal under pressure from fellow Democrats cleared the way for a new nominee to take on former President Donald J. Trump in the fall. He quickly endorsed Vice President Kamala Harris.`\
+https://nytimes.com/2024/07/21/us/politics/biden-drops-out.html
+
 **Where Kamala Harris Stands on the Issues: Abortion, Immigration and More**\
 `She wants to protect the right to abortion nationally. Here’s what else to know about her positions.`\
 https://nytimes.com/2024/07/21/us/politics/kamala-harris-abortion-immigration-economy-israel.html
