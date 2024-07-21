@@ -1,3 +1,7 @@
+**Caitlin Clark, Angel Reese show they belong among elites in WNBA All-Star Game**\
+`How did the rookies combine on the court together? `\
+https://nytimes.com/athletic/5649003/2024/07/21/caitlin-clark-angel-reese-wnba-all-star-game-rookies/
+
 **Dodgers' Kiké Hernández punctuates 10 years of service with tying hits**\
 `For one night in an underwhelming season for Hernández, he was exactly what the Dodgers envisioned.`\
 https://nytimes.com/athletic/5648974/2024/07/21/dodgers-red-sox-kike-hernandez/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5645367/2024/07/21/germany-pink-shirt-adidas-sales/
 **Life after Mbappe: Transfers, training and (lack of) tours - how PSG are moving on**\
 `With Mbappe now at Real Madrid, what does it mean for his former club PSG?`\
 https://nytimes.com/athletic/5648302/2024/07/21/mbappe-psg-osimhen-kvaratskhelia-transfers/
-
-**Thanks, but No Thanks**\
-`If a lunch with your boss makes you feel uncomfortable, you don’t have to go. Suggest an alternative.`\
-https://nytimes.com/2024/07/21/business/thanks-but-no-thanks.html
 
