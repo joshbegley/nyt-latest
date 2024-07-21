@@ -1,3 +1,7 @@
+**A pro-Trump super PAC posted an ad attacking Harris.**\
+`By Maggie Haberman and Jonathan Swan`\
+https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/trump-kamala-harris-ad-pac
+
 **On Your Marks, Get Set, Serve!**\
 `Waiters in London competed in an annual footrace designed to test their mettle, their coordination and their skill as servers.`\
 https://nytimes.com/2024/07/21/world/europe/soho-london-waiters-race.html
@@ -15,7 +19,7 @@ https://nytimes.com/2024/07/21/us/politics/kamala-harris.html
 https://nytimes.com/2024/07/21/us/politics/kamala-harris-president-biden.html
 
 **As Biden Withdraws, Words of Praise and Caution**\
-`An early sampling of reaction to the president’s announcement.`\
+`An early sampling of reactions to the president’s announcement.`\
 https://nytimes.com/2024/07/21/opinion/letters/biden-withdraws.html
 
 **With Biden Out, What Happens Next? Here’s What We Know.**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/21/us/politics/democrat-voters-react-biden.html
 **After Biden Drops Out, Trump Says He Was ‘Never’ Fit to Be President**\
 `In his first statement since President Biden dropped out of the race, the former president accused Democrats of covering up concerns about Biden’s age.`\
 https://nytimes.com/2024/07/21/us/politics/trump-reaction-biden-drop-out.html
-
-**Democratic Billionaires and Donors Rush to Back Harris After Biden’s Exit**\
-`Advisers and major givers said they were being inundated with enthusiasm and plans for donations to support Ms. Harris if she won the nomination.`\
-https://nytimes.com/2024/07/21/us/politics/democrat-donors-harris-biden.html
 
