@@ -1,3 +1,7 @@
+**Marseille closing in on deal to sign Hojbjerg**\
+`Marseille have agreed a fee with Tottenham Hotspur for the signing of Pierre-Emile Hojbjerg.`\
+https://nytimes.com/athletic/5649044/2024/07/21/pierre-emile-hojbjerg-tottenham-marseille/
+
 **Watching a West Ham game with George Earthy's dad: 'I kick and head every ball for him'**\
 `Last season was a breakthrough campaign for the young midfielder - now he is ready to kick on in 2024-25 under Julen Lopetegui`\
 https://nytimes.com/athletic/5648933/2024/07/21/watching-george-earthy-west-ham/
