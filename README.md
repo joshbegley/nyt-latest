@@ -1,6 +1,18 @@
+**Can Kamala Harris Step Up? Asking for a Friend.**\
+`What are the alternatives? And about those Republicans ...`\
+https://nytimes.com/2024/07/21/opinion/kamala-harris-joe-biden-drops-out.html
+
+**Biden’s announcement, and reactions, unfolded on X.**\
+`By Rebecca Robbins`\
+https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/bidens-announcement-and-reactions-unfolded-on-x
+
 **World Leaders, With Outlook Uncertain, Praise Biden but Speak Carefully**\
 `Foreign leaders did not wade into the turmoil of U.S. politics, opting instead for statements of empathy for a leader who reached the pinnacle of power only to find it necessary to bow out.`\
 https://nytimes.com/2024/07/21/world/europe/biden-election-world-leaders-reaction.html
+
+**Beltré, Mauer, Helton, Leyland inducted into Baseball Hall of Fame**\
+`Hall of Famers Adrián Beltré, Joe Mauer, Todd Helton and Jim Leyland officially took their places among the game's immortals in Cooperstown.`\
+https://nytimes.com/athletic/5648473/2024/07/21/baseball-hall-of-fame-induction-2024/
 
 **Can Harris Inherit Biden’s Campaign Cash? Most Likely, Yes.**\
 `“In my view, this is not an open question,” said one Federal Election Commission member. But Republicans are likely to try to block the transfer.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/21/briefing/biden-drops-his-bid-for-re-election.html
 **'The cork is out': Xander Schauffele, 2-time major champion, is a different golfer now**\
 `In two months Schauffele has gone from zero majors to two. How he won Sunday at Royal Troon showed he's found what it takes to win now.`\
 https://nytimes.com/athletic/5649614/2024/07/21/xander-schauffele-open-championship-golf-major/
-
-**What 4 Key Democratic Governors Have Said About Biden Dropping Out**\
-`The governors of Pennsylvania, Michigan, California and Illinois have attracted attention as potential contenders to replace President Biden atop the ticket. Here’s what they have said since he dropped out.`\
-https://nytimes.com/2024/07/21/us/politics/newsom-whitmer-shapiro-biden-drops-out.html
-
-**Most Hill Democrats rally around Harris, but top leaders and Pelosi stay mum.**\
-`By Luke Broadwater`\
-https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/most-hill-democrats-rally-around-harris-but-top-leaders-and-pelosi-stay-mum
-
-**Monday Briefing: Biden Ends His Re-Election Bid**\
-`The president endorsed Vice President Kamala Harris to continue the race against Donald Trump.`\
-https://nytimes.com/2024/07/21/briefing/joe-biden-campaign-ends.html
 
