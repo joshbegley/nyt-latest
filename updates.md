@@ -1,3 +1,15 @@
+**Where Kamala Harris Stands on the Issues: Abortion, Immigration and More**\
+`She wants to protect the right to abortion nationally. Here’s what else to know about her positions.`\
+https://nytimes.com/2024/07/21/us/politics/kamala-harris-abortion-immigration-economy-israel.html
+
+**Florida lands in-state 5-star WR Vernell Brown III**\
+`Brown, the son of a former Gator, is ranked No. 25 overall and the No. 6 wide receiver in the Class of 2025.`\
+https://nytimes.com/athletic/5649316/2024/07/21/florida-recruiting-vernell-brown-wide-receiver/
+
+**Read Biden’s Letter Withdrawing From the Race**\
+`President Biden announced on social media that he was abandoning his re-election bid.`\
+https://nytimes.com/interactive/2024/07/21/us/biden-withdraw-letter.html
+
 **Biden’s decision throws the 2024 race into disarray. Here’s the latest.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/07/21/us/trump-biden-election/bidens-decision-throws-the-2024-race-into-disarray-heres-the-latest
