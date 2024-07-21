@@ -1,3 +1,7 @@
+**Corrections: July 21, 2024**\
+`Corrections that appeared in print on Sunday, July 21, 2024.`\
+https://nytimes.com/2024/07/21/corrections/corrections-july-21-2024.html
+
 **Answers to Questions From Morning Readers**\
 `Times journalists from around the newsroom talk about their beats and our work.`\
 https://nytimes.com/2024/07/21/briefing/answers-to-questions-from-morning-readers.html

@@ -1,3 +1,7 @@
+**Corrections: July 21, 2024**\
+`Corrections that appeared in print on Sunday, July 21, 2024.`\
+https://nytimes.com/2024/07/21/corrections/corrections-july-21-2024.html
+
 **Answers to Questions From Morning Readers**\
 `Times journalists from around the newsroom talk about their beats and our work.`\
 https://nytimes.com/2024/07/21/briefing/answers-to-questions-from-morning-readers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/21/nyregion/mobile-methadone-vans-fentanyl.html
 **For LVMH, the Olympics Are Welcome, but Not Without Risk**\
 `The reaction to the conglomerate’s involvement in the Games has been relatively — and surprisingly — free of criticism, yet the stakes are high.`\
 https://nytimes.com/2024/07/21/style/lvmh-olympics-antoine-arnault.html
-
-**How Two Wandering Cows Started a Culture War**\
-`When Hornee and Blackee strayed from their pasture, they set off a chaotic chain of events involving death threats, chicken rustlers and Joaquin Phoenix. The town of Newfane, N.Y., hasn’t been the same since.`\
-https://nytimes.com/2024/07/21/nyregion/missing-cows-animal-sanctuary-newfane-ny.html
 
