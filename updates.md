@@ -1,3 +1,7 @@
+**Oscar Piastri wins the Hungarian GP**\
+`The Australian rookie finished ahead of teammate Lando Norris in a finish that tested their bond as teammates.`\
+https://nytimes.com/athletic/5649234/2024/07/21/lando-norris-oscar-piastri-win-hungarian-gp-f1/
+
 **Arsenal name youthful U.S. tour squad with Smith Rowe, Nelson, Nketiah included**\
 `Arsenal have named their 26-man squad for the pre-season tour of the United States with Emile Smith Rowe, Reiss Nelson and Eddie Nketiah travelling despite there being transfer interest in all three.`\
 https://nytimes.com/athletic/5649198/2024/07/21/arsenal-us-tour-squad-smith-rowe/
