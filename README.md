@@ -1,3 +1,7 @@
+**WNBA All-Star Game grades: How did Angel Reese, Diana Taurasi, Caitlin Clark perform?**\
+`Brittney Griner and Diana Taurasi earned high marks for Team USA playing in front of a hometown Phoenix crowd.`\
+https://nytimes.com/athletic/5649076/2024/07/21/wnba-all-star-game-grades-how-did-angel-reese-caitlin-clark-aja-wilson-perform/
+
 **Pacific Northwest Faces Critical Fire Risk as Wildfires Burn**\
 `About 1.7 million people were under fire danger warnings on Sunday as a heat wave hit the region and several large blazes burned in Oregon.`\
 https://nytimes.com/2024/07/21/us/wildfires-lightning-oregon-washington.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/21/arts/tiktok-true-crime.html
 **7 Takeaways From Our Investigation Into a Secret Investor in Jack Ma’s Companies**\
 `Behind the scenes, China’s most celebrated and its most notorious billionaires were linked through investments worth at least $1 billion.`\
 https://nytimes.com/2024/07/21/world/asia/jack-ma-xiao-jianhua-takaeaways.html
-
-**A Critical Gap in Democracy? ‘Yawn,’ Say Canadian Politicians.**\
-`China and India have been accused of exploiting the opaque nomination contests of Canadian political parties to meddle in elections.`\
-https://nytimes.com/2024/07/21/world/americas/canada-democracy-foreign-interference.html
 
