@@ -1,3 +1,7 @@
+**I Was a White House Doctor. Presidents Should Have to Take Cognitive Tests.**\
+`We need to rethink how we assess and evaluate physical and mental fitness for the presidency.`\
+https://nytimes.com/2024/07/21/opinion/president-physician-cognitive-testing.html
+
 **Israeli Strike on Yemeni Port Will Harm Civilians, Not Houthis, Experts Say**\
 `Israel’s counterattack on the Houthis, which set a vital Yemeni port ablaze, will do little to deter the militia, Yemeni and international experts said.`\
 https://nytimes.com/2024/07/21/world/middleeast/israel-yemen-hudaydah-port.html
