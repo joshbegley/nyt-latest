@@ -1,3 +1,19 @@
+**Braves' Max Fried hits IL with nerve irritation in forearm**\
+`Fried's injury could make adding a starting pitcher before the trade deadline a priority for the Braves again.`\
+https://nytimes.com/athletic/5649418/2024/07/21/braves-max-fried-injury-2/
+
+**Tadej Pogacar Returns to the Top, Winning the Tour de France**\
+`Pogacar won his third Tour, beating his rival Jonas Vingegaard by 6:17 after a final time trial victory in Nice on Sunday.`\
+https://nytimes.com/2024/07/21/sports/cycling/tour-de-france-result.html
+
+**How Will Democrats Replace Biden at the Top of the Presidential Ticket?**\
+`The president cleared the way for a successor. He endorsed Vice President Kamala Harris, but there could still be a contest to determine who the nominee will be.`\
+https://nytimes.com/2024/07/21/us/politics/biden-replace-harris.html
+
+**Biden’s decision throws the 2024 race into disarray. Here’s the latest.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/bidens-decision-throws-the-2024-race-into-disarray-heres-the-latest
+
 **Biden Drops Out of Race, Scrambling the Campaign for the White House**\
 `The president’s withdrawal under pressure from fellow Democrats cleared the way for a new nominee to take on former President Donald J. Trump in the fall. He quickly endorsed Vice President Kamala Harris.`\
 https://nytimes.com/2024/07/21/us/politics/biden-drops-out.html
