@@ -1,3 +1,11 @@
+**On Your Marks, Get Set, Serve!**\
+`Waiters in London competed in an annual footrace designed to test their mettle, their coordination and their skill as servers.`\
+https://nytimes.com/2024/07/21/world/europe/soho-london-waiters-race.html
+
+**Read Vice President Kamala Harris’s full statement.**\
+`In a five-paragraph statement, Ms. Harris hailed President Biden’s accomplishments and said she would run in his place.`\
+https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/read-vice-president-kamala-harriss-full-statement
+
 **Once Derided, Harris Suddenly Stands at Brink of Leading Democratic Ticket**\
 `Vice President Kamala Harris got off to a rocky start in office. She is now at the heart of a political drama that could make her the first Black woman to become a major party presidential nominee.`\
 https://nytimes.com/2024/07/21/us/politics/kamala-harris.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/21/us/politics/trump-reaction-biden-drop-out.html
 **Democratic Billionaires and Donors Rush to Back Harris After Biden’s Exit**\
 `Advisers and major givers said they were being inundated with enthusiasm and plans for donations to support Ms. Harris if she won the nomination.`\
 https://nytimes.com/2024/07/21/us/politics/democrat-donors-harris-biden.html
-
-**Kamala Harris or Bust**\
-`The only conversation the Democrats need to be having now is how to line up behind their Vice President.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/kamala-harris-replace-biden
-
-**Timeline: Inside Biden’s Withdrawal From the 2024 Race**\
-`President Biden did not tell most of his staff until a minute before making an announcement to the world on social media on Sunday. Vice President Kamala Harris, whom Mr. Biden went on to endorse, also learned of his decision on Sunday.`\
-https://nytimes.com/2024/07/21/us/politics/biden-withdrawal-timeline.html
 
