@@ -1,3 +1,15 @@
+**Can Kamala Harris Step Up? Asking for a Friend.**\
+`What are the alternatives? And about those Republicans ...`\
+https://nytimes.com/2024/07/21/opinion/kamala-harris-joe-biden-drops-out.html
+
+**Biden’s announcement, and reactions, unfolded on X.**\
+`By Rebecca Robbins`\
+https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/bidens-announcement-and-reactions-unfolded-on-x
+
+**Beltré, Mauer, Helton, Leyland inducted into Baseball Hall of Fame**\
+`Hall of Famers Adrián Beltré, Joe Mauer, Todd Helton and Jim Leyland officially took their places among the game's immortals in Cooperstown.`\
+https://nytimes.com/athletic/5648473/2024/07/21/baseball-hall-of-fame-induction-2024/
+
 **Chiefs first camp practice: Patrick Mahomes rejoices over deep connection with Xavier Worthy**\
 `In a practice that was a little more than an hour of on-field work, Mahomes and Worthy produced a couple of highlights.`\
 https://nytimes.com/athletic/5649616/2024/07/21/chiefs-first-practice-patrick-mahomes-xavier-worthy/
