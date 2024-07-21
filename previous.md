@@ -1,3 +1,7 @@
+**Dodgers' Kiké Hernández punctuates 10 years of service with tying hits**\
+`For one night in an underwhelming season for Hernández, he was exactly what the Dodgers envisioned.`\
+https://nytimes.com/athletic/5648974/2024/07/21/dodgers-red-sox-kike-hernandez/
+
 **Trump’s Conviction and Biden’s Poor Debate Sent Big Money Into the Race**\
 `The Biden campaign also spent six times as much as the Trump campaign did in June, allowing Republicans to gain a financial advantage.`\
 https://nytimes.com/2024/07/20/us/politics/trump-biden-fundraising.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5648302/2024/07/21/mbappe-psg-osimhen-kvaratskhelia
 **Thanks, but No Thanks**\
 `If a lunch with your boss makes you feel uncomfortable, you don’t have to go. Suggest an alternative.`\
 https://nytimes.com/2024/07/21/business/thanks-but-no-thanks.html
-
-**How Charlie Morton and Eddie Rosario showed they still can help the Braves**\
-`With Morton and Rosario excelling, you couldn't blame Braves fans who looked back to their World Series championship three years ago.`\
-https://nytimes.com/athletic/5648870/2024/07/20/braves-charlie-morton-eddie-rosario/
 

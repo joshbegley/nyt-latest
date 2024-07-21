@@ -1,3 +1,7 @@
+**Dodgers' Kiké Hernández punctuates 10 years of service with tying hits**\
+`For one night in an underwhelming season for Hernández, he was exactly what the Dodgers envisioned.`\
+https://nytimes.com/athletic/5648974/2024/07/21/dodgers-red-sox-kike-hernandez/
+
 **Trump’s Conviction and Biden’s Poor Debate Sent Big Money Into the Race**\
 `The Biden campaign also spent six times as much as the Trump campaign did in June, allowing Republicans to gain a financial advantage.`\
 https://nytimes.com/2024/07/20/us/politics/trump-biden-fundraising.html
