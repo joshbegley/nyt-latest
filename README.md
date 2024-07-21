@@ -1,3 +1,15 @@
+**Braves' Max Fried hits IL with nerve irritation in forearm**\
+`Fried's injury could make adding a starting pitcher before the trade deadline a priority for the Braves again.`\
+https://nytimes.com/athletic/5649418/2024/07/21/braves-max-fried-injury-2/
+
+**Tadej Pogacar Returns to the Top, Winning the Tour de France**\
+`Pogacar won his third Tour, beating his rival Jonas Vingegaard by 6:17 after a final time trial victory in Nice on Sunday.`\
+https://nytimes.com/2024/07/21/sports/cycling/tour-de-france-result.html
+
+**How Will Democrats Replace Biden at the Top of the Presidential Ticket?**\
+`The president cleared the way for a successor. He endorsed Vice President Kamala Harris, but there could still be a contest to determine who the nominee will be.`\
+https://nytimes.com/2024/07/21/us/politics/biden-replace-harris.html
+
 **Where Kamala Harris Stands on the Issues: Abortion, Immigration and More**\
 `She wants to protect the right to abortion nationally. Here’s what else to know about her positions.`\
 https://nytimes.com/2024/07/21/us/politics/kamala-harris-abortion-immigration-economy-israel.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/21/us/politics/biden-georgia-medicaid-obamacare.html
 **Xander Schauffele wins Open Championship for major win No. 2**\
 `Schauffele made three birdies in five holes on the back nine at Royal Troon to win his second career major.`\
 https://nytimes.com/athletic/5649356/2024/07/21/xander-schauffele-open-championship-win-royal-troon/
-
-**Review: A Lost Opera Returns, and Shouldn’t Be Lost Again**\
-`Teatro Nuovo is giving Carolina Uccelli’s pioneering “Anna di Resburgo” its first performances since its premiere in 1835.`\
-https://nytimes.com/2024/07/21/arts/music/uccelli-anna-di-resburgo-teatro-nuovo.html
-
-**Blue Jackets Sunday Gathering: Projecting the lineup while awaiting a coaching hire**\
-`How we see the Blue Jackets' forward lines, defensive pairs and goaltending aligning this upcoming season.`\
-https://nytimes.com/athletic/5648440/2024/07/21/blue-jackets-lineup-coach/
-
-**Thom Brennaman returning to broadcasting with The CW**\
-`If The CW is his only opportunity and he ends his career with them, Brennaman said he will be eternally grateful.`\
-https://nytimes.com/athletic/5648471/2024/07/21/thom-brennaman-broadcasting-return-cw/
 
