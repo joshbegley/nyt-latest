@@ -1,3 +1,7 @@
+**Cavs, Evan Mobley agree to 5-year extension**\
+`The deal could be worth up to $269 million, a league source confirmed Saturday.`\
+https://nytimes.com/athletic/5648897/2024/07/20/evan-mobley-cavaliers-extension/
+
 **Utah Officials Backtrack on Untested Execution Drug**\
 `An execution, scheduled for next month, would have used an experimental three-drug combination that critics said could inflict serious pain.`\
 https://nytimes.com/2024/07/20/us/utah-execution-untested-drugs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/business/crowdstrike-tech-outage-scams.html
 **Yankees notes: DJ LeMahieu has 'earned' the right to play, Giancarlo Stanton nearing return**\
 `Plus notes on Nestor Cortes, who struggled against the Rays but thinks the Yankees' front office will help them at the trade deadline.`\
 https://nytimes.com/athletic/5648697/2024/07/20/yankees-dj-lemahieu-giancarlo-stanton-nearing-return/
-
-**As Biden recovers from Covid, Harris assumes a starring role on the campaign trail.**\
-`By Nicholas Nehamas`\
-https://nytimes.com/live/2024/07/20/us/trump-biden-election/harris-biden-fundraiser-provincetown
 
