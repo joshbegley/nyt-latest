@@ -1,3 +1,11 @@
+**Biden is out. What happens to his money?**\
+`By Theodore Schleifer`\
+https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/biden-is-out-what-happens-to-his-money
+
+**Truman and Johnson Also Stepped Aside, but ‘the Circumstances Are Quite Different’**\
+`The candidates who secured the Democratic nomination after the two presidents dropped out would go on to lose the election. But historians say political history doesn’t necessarily repeat itself.`\
+https://nytimes.com/2024/07/21/us/truman-johnson-president-stepped-aside.html
+
 **How Kamala Harris Performs Against Donald Trump in the Polls**\
 `The vice president could enter the general election campaign in a better position than President Biden.`\
 https://nytimes.com/2024/07/21/us/politics/kamala-harris-trump-polls.html
