@@ -1,3 +1,7 @@
+**How Charlie Morton and Eddie Rosario showed they still can help the Braves**\
+`With Morton and Rosario excelling, you couldn't blame Braves fans who looked back to their World Series championship three years ago.`\
+https://nytimes.com/athletic/5648870/2024/07/20/braves-charlie-morton-eddie-rosario/
+
 **Four lessons from Nottingham Forest's pre-season so far**\
 `Signings bedding in, positive steps from last year's cohort and a renewed attacking focus - Nuno Espirito Santo's side is coming together`\
 https://nytimes.com/athletic/5648423/2024/07/21/forest-lessons-pre-season-so-far/
