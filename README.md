@@ -1,3 +1,7 @@
+**Behind Bangladesh Protests, Rage Over Inequality**\
+`The demonstrations began over a quota system for government jobs but have extended to corruption, the cost of living and income disparities.`\
+https://nytimes.com/2024/07/21/world/asia/bangladesh-protests-quotas-jobs.html
+
 **Corrections: July 21, 2024**\
 `Corrections that appeared in print on Sunday, July 21, 2024.`\
 https://nytimes.com/2024/07/21/corrections/corrections-july-21-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/21/nyregion/metropolitan-diary.html
 **Could This Van Help People Quit Fentanyl?**\
 `Methadone has been used for decades to treat opioid addiction. It is also difficult to come by, a problem health providers hope to ease with a new fleet of vans that can provide the drug.`\
 https://nytimes.com/2024/07/21/nyregion/mobile-methadone-vans-fentanyl.html
-
-**For LVMH, the Olympics Are Welcome, but Not Without Risk**\
-`The reaction to the conglomerate’s involvement in the Games has been relatively — and surprisingly — free of criticism, yet the stakes are high.`\
-https://nytimes.com/2024/07/21/style/lvmh-olympics-antoine-arnault.html
 
