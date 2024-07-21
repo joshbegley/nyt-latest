@@ -1,3 +1,11 @@
+**Biden’s decision throws the 2024 race into disarray. Here’s the latest.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/07/21/us/trump-biden-election/bidens-decision-throws-the-2024-race-into-disarray-heres-the-latest
+
+**Biden Drops Out of Race, Scrambling the Campaign for the White House**\
+`The president’s withdrawal under pressure from fellow Democrats after a disastrous debate cleared the way for a new nominee to take on former President Donald J. Trump in the fall.`\
+https://nytimes.com/2024/07/21/us/politics/biden-drops-out.html
+
 **Biden and Georgia Are Waging a Fight Over Medicaid and the Future of Obamacare**\
 `A fierce battle with Georgia over a Medicaid experiment with stricter enrollment underscores the vast divide between parties over how to cover lower-income Americans.`\
 https://nytimes.com/2024/07/21/us/politics/biden-georgia-medicaid-obamacare.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5649252/2024/07/21/submit-mlb-trade-deadline-questi
 **Antisemitism on Campuses, Ivy and Beyond**\
 `Responses to a column by Bret Stephens. Also: Pharmacy benefit managers; the Supreme Court; a potential second Trump term and the environment.`\
 https://nytimes.com/2024/07/21/opinion/antisemitism-college-gaza.html
-
-**Roasted Salmon With Peas and Radishes, Hasselback Kielbasa With Jalapeño Honey**\
-`Cook whatever you want to cook, however you want to cook it, without judgment.`\
-https://nytimes.com/2024/07/21/dining/roasted-salmon-plus-more-recipes.html
-
-**Lowetide: Oilers have major scoring talent ticketed for the AHL in 2024-25**\
-`Matt Savoie not having an NHL job entering camp despite his special talent is a rare thing in Oilers history.`\
-https://nytimes.com/athletic/5648202/2024/07/21/oilers-bakersfield-condors-matt-savoie/
 
