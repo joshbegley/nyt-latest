@@ -1,3 +1,7 @@
+**Utah State CB Andre Seldon Jr. dies at 22**\
+`USU officials learned he was found by the Utah Department of Public Safety dive team, the school said in a statement.`\
+https://nytimes.com/athletic/5648995/2024/07/21/andre-seldon-jr-death-utah-state/
+
 **China Shows Few Signs of Tilting Economy Toward Consumers in New Plan**\
 `The Communist Party rebuffed calls from economists to shift away from investment-led growth and toward consumer spending.`\
 https://nytimes.com/2024/07/21/business/china-economy-third-plenum-decision.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5648747/2024/07/21/sancho-amad-manchester-united/
 **Ten Hag: Man Utd must sell players to help with further signings**\
 `Erik ten Hag says Manchester United need to sell players in order to raise funds for further signings this summer.`\
 https://nytimes.com/athletic/5649075/2024/07/21/erik-ten-hag-manchester-united-signings/
-
-**From Naples to New Orleans, Murder and Mayhem**\
-`Our crime columnist on four new novels.`\
-https://nytimes.com/2024/07/21/books/review/new-crime-fiction.html
 
