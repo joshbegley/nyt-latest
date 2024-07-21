@@ -1,3 +1,7 @@
+**With Biden Out, What Happens Next? Here’s What We Know.**\
+`Democrats are gaming out scenarios, some of them more likely than others. One thing is clear: Kamala Harris has the inside lane.`\
+https://nytimes.com/article/biden-drop-out-nomination-delegates-harris.html
+
 **Clintons Endorse Kamala Harris to Be Democrats’ Nominee for President**\
 `The former president and the former secretary of state swiftly backed Vice President Kamala Harris to replace President Biden atop the Democratic ticket.`\
 https://nytimes.com/2024/07/21/us/politics/clintons-kamala-harris-endorsement.html
