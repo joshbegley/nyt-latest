@@ -1,3 +1,7 @@
+**Pacific Northwest Faces Critical Fire Risk as Wildfires Burn**\
+`About 1.7 million people were under fire danger warnings on Sunday as a heat wave hit the region and several large blazes burned in Oregon.`\
+https://nytimes.com/2024/07/21/us/wildfires-lightning-oregon-washington.html
+
 **For Biden, a Decision to Step Aside Would Raise Another Question**\
 `As President Biden grapples with the possibility of dropping his bid for re-election, a secondary question looms: Should he endorse his own vice president as the nominee?`\
 https://nytimes.com/2024/07/21/us/politics/biden-harris-nomination.html
