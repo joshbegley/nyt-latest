@@ -11,7 +11,7 @@ https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/biden-drops-out-
 https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/republican-candidates-down-the-ballot-use-bidens-decision-to-hammer-rivals
 
 **Chiefs first camp practice: Patrick Mahomes rejoices deep connection with WR Xavier Worthy**\
-`In a practice that was a little more than an hour of on-field work, Mahomes and Worthy produced a couple highlights.`\
+`In a practice that was a little more than an hour of on-field work, Mahomes and Worthy produced a couple of highlights.`\
 https://nytimes.com/athletic/5649616/2024/07/21/chiefs-first-practice-patrick-mahomes-xavier-worthy/
 
 **Biden Drops His Bid for Re-Election**\

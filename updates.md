@@ -1,3 +1,7 @@
+**Chiefs first camp practice: Patrick Mahomes rejoices deep connection with WR Xavier Worthy**\
+`In a practice that was a little more than an hour of on-field work, Mahomes and Worthy produced a couple of highlights.`\
+https://nytimes.com/athletic/5649616/2024/07/21/chiefs-first-practice-patrick-mahomes-xavier-worthy/
+
 **Can Harris Inherit Biden’s Campaign Cash? Most Likely, Yes.**\
 `“In my view, this is not an open question,” said one Federal Election Commission member. But Republicans are likely to try to block the transfer.`\
 https://nytimes.com/2024/07/21/us/politics/harris-biden-campaign-money.html
