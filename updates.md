@@ -1,3 +1,11 @@
+**Thanks, but No Thanks**\
+`If a lunch with your boss makes you feel uncomfortable, you don’t have to go. Suggest an alternative.`\
+https://nytimes.com/2024/07/21/business/thanks-but-no-thanks.html
+
+**How Charlie Morton and Eddie Rosario proved they still can help the Braves**\
+`With Morton and Rosario excelling, you couldn't blame Braves fans who looked back to their World Series championship three years ago.`\
+https://nytimes.com/athletic/5648870/2024/07/20/braves-charlie-morton-eddie-rosario/
+
 **Charlie Morton and Eddie Rosario showed Saturday they still can help the Braves**\
 `With Morton and Rosario excelling, you couldn't blame Braves fans who looked back to their World Series championship three years ago.`\
 https://nytimes.com/athletic/5648870/2024/07/20/braves-charlie-morton-eddie-rosario/
