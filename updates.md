@@ -1,3 +1,7 @@
+**Dodgers' Yoshinobu Yamamoto sets sights on 2024 return but timeline unclear**\
+`How hard the Dodgers will push to get him back is complicated: "You want to do what’s best for Yoshinobu."`\
+https://nytimes.com/athletic/5649715/2024/07/21/dodgers-yoshinobu-yamamoto-return/
+
 **Biden’s exit leads to the biggest day for Democratic donations online in years — $30 million and counting.**\
 `By Shane Goldmacher`\
 https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/bidens-exit-leads-to-the-biggest-day-for-democratic-donations-online-in-years
