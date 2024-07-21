@@ -24,7 +24,7 @@ https://nytimes.com/interactive/2024/07/21/us/biden-withdraw-letter.html
 
 **Biden’s decision throws the 2024 race into disarray. Here’s the latest.**\
 `By Michael D. Shear`\
-https://nytimes.com/live/2024/07/21/us/trump-biden-election/bidens-decision-throws-the-2024-race-into-disarray-heres-the-latest
+https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/bidens-decision-throws-the-2024-race-into-disarray-heres-the-latest
 
 **Biden Drops Out of Race, Scrambling the Campaign for the White House**\
 `The president’s withdrawal under pressure from fellow Democrats cleared the way for a new nominee to take on former President Donald J. Trump in the fall. He quickly endorsed Vice President Kamala Harris.`\
