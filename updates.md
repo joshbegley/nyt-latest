@@ -1,3 +1,11 @@
+**Biden’s exit leads to the biggest day for Democratic donations online in years — $30 million and counting.**\
+`By Shane Goldmacher`\
+https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/bidens-exit-leads-to-the-biggest-day-for-democratic-donations-online-in-years
+
+**Major news story? Let's tune in to Nick Castellanos' next at-bat**\
+`It's gotten to the point where seemingly every noteworthy occurrence is followed by a drive into deep left field by Castellanos.`\
+https://nytimes.com/athletic/5649648/2024/07/21/nick-castellanos-major-news-story/
+
 **Astros All-Star Yordan Alvarez hits for cycle vs. Mariners**\
 `Alvarez’s cycle is the first of his career and the first by an Astro since Jose Altuve's last season at Fenway Park.`\
 https://nytimes.com/athletic/5649713/2024/07/21/yordan-alvarez-astros-cycle/
