@@ -1,3 +1,15 @@
+**Five years of the ‘new’ goal-kick law - this is how it has transformed football**\
+`A subtle tweak to how teams can restart games has led to some fascinating tactical innovations since 2019`\
+https://nytimes.com/athletic/5596295/2024/07/21/how-goal-kick-law-changed-football/
+
+**How Germany's pink shirt soared above the culture wars**\
+`Away jersey of Euro 2024 hosts was one of Germany’s fastest-selling of all time. Embraced by fans, it made a mockery of its detractors`\
+https://nytimes.com/athletic/5645367/2024/07/21/germany-pink-shirt-adidas-sales/
+
+**Life after Mbappe: Transfers, training and (lack of) tours - how PSG are moving on**\
+`With Mbappe now at Real Madrid, what does it mean for his former club PSG?`\
+https://nytimes.com/athletic/5648302/2024/07/21/mbappe-psg-osimhen-kvaratskhelia-transfers/
+
 **Thanks, but No Thanks**\
 `If a lunch with your boss makes you feel uncomfortable, you don’t have to go. Suggest an alternative.`\
 https://nytimes.com/2024/07/21/business/thanks-but-no-thanks.html

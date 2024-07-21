@@ -1,3 +1,15 @@
+**Five years of the ‘new’ goal-kick law - this is how it has transformed football**\
+`A subtle tweak to how teams can restart games has led to some fascinating tactical innovations since 2019`\
+https://nytimes.com/athletic/5596295/2024/07/21/how-goal-kick-law-changed-football/
+
+**How Germany's pink shirt soared above the culture wars**\
+`Away jersey of Euro 2024 hosts was one of Germany’s fastest-selling of all time. Embraced by fans, it made a mockery of its detractors`\
+https://nytimes.com/athletic/5645367/2024/07/21/germany-pink-shirt-adidas-sales/
+
+**Life after Mbappe: Transfers, training and (lack of) tours - how PSG are moving on**\
+`With Mbappe now at Real Madrid, what does it mean for his former club PSG?`\
+https://nytimes.com/athletic/5648302/2024/07/21/mbappe-psg-osimhen-kvaratskhelia-transfers/
+
 **Thanks, but No Thanks**\
 `If a lunch with your boss makes you feel uncomfortable, you don’t have to go. Suggest an alternative.`\
 https://nytimes.com/2024/07/21/business/thanks-but-no-thanks.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5648897/2024/07/20/evan-mobley-cavaliers-extension/
 **Utah Officials Backtrack on Untested Execution Drug**\
 `An execution, scheduled for next month, would have used an experimental three-drug combination that critics said could inflict serious pain.`\
 https://nytimes.com/2024/07/20/us/utah-execution-untested-drugs.html
-
-**J.T. Realmuto is back, and the Phillies will feel his presence in obvious and subtle ways**\
-`Along with his talent as a hitter and base runner, Realmuto should help the Phillies via his strong rapport with the pitching staff.`\
-https://nytimes.com/athletic/5648857/2024/07/20/phillies-jt-realmuto-return/
-
-**Jayson Werth's Dornoch secures Breeders' Cup berth**\
-`The victory comes 42 days after Dornoch and Werth won the Belmont Stakes.`\
-https://nytimes.com/athletic/5648838/2024/07/20/jayson-werth-dornoch-haskell-stakes-breeders/
-
-**Joe Castiglione joins Red Sox greats in Cooperstown. Fittingly, he'll decide exit plan**\
-`Castiglione, who made all the great Red Sox radio calls since '83, received the Hall of Fame’s Ford C. Frick Award for broadcasters.`\
-https://nytimes.com/athletic/5648781/2024/07/20/red-sox-joe-castiglione-hall-of-fame-ford-frick-award/
 
