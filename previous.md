@@ -1,3 +1,11 @@
+**Once Derided, Harris Suddenly Stands at Brink of Leading Democratic Ticket**\
+`Vice President Kamala Harris got off to a rocky start in office. She is now at the heart of a political drama that could make her the first Black woman to become a major party presidential nominee.`\
+https://nytimes.com/2024/07/21/us/politics/kamala-harris.html
+
+**Kamala Harris Says She’s Running in Biden’s Place**\
+`The vice president said that she was honored by President Biden’s endorsement, and that she intended to “earn and win” the Democratic nomination.`\
+https://nytimes.com/2024/07/21/us/politics/kamala-harris-president-biden.html
+
 **As Biden Withdraws, Words of Praise and Caution**\
 `An early sampling of reaction to the president’s announcement.`\
 https://nytimes.com/2024/07/21/opinion/letters/biden-withdraws.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/kamala-harris-replace-biden
 **Timeline: Inside Biden’s Withdrawal From the 2024 Race**\
 `President Biden did not tell most of his staff until a minute before making an announcement to the world on social media on Sunday. Vice President Kamala Harris, whom Mr. Biden went on to endorse, also learned of his decision on Sunday.`\
 https://nytimes.com/2024/07/21/us/politics/biden-withdrawal-timeline.html
-
-**Biden is out. What happens to his money?**\
-`By Theodore Schleifer`\
-https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/biden-is-out-what-happens-to-his-money
-
-**Truman and Johnson Also Stepped Aside, but ‘the Circumstances Are Quite Different’**\
-`The candidates who secured the Democratic nomination after the two presidents dropped out would go on to lose the election. But historians say political history doesn’t necessarily repeat itself.`\
-https://nytimes.com/2024/07/21/us/truman-johnson-president-stepped-aside.html
 

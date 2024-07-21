@@ -1,3 +1,11 @@
+**Once Derided, Harris Suddenly Stands at Brink of Leading Democratic Ticket**\
+`Vice President Kamala Harris got off to a rocky start in office. She is now at the heart of a political drama that could make her the first Black woman to become a major party presidential nominee.`\
+https://nytimes.com/2024/07/21/us/politics/kamala-harris.html
+
+**Kamala Harris Says She’s Running in Biden’s Place**\
+`The vice president said that she was honored by President Biden’s endorsement, and that she intended to “earn and win” the Democratic nomination.`\
+https://nytimes.com/2024/07/21/us/politics/kamala-harris-president-biden.html
+
 **As Biden Withdraws, Words of Praise and Caution**\
 `An early sampling of reaction to the president’s announcement.`\
 https://nytimes.com/2024/07/21/opinion/letters/biden-withdraws.html
