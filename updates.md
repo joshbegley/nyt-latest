@@ -1,3 +1,15 @@
+**How Kamala Harris Performs Against Donald Trump in the Polls**\
+`The vice president could enter the general election campaign in a better position than President Biden.`\
+https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/kamala-harris-trump-polls
+
+**European politicians and analysts are praising Biden for leaving the race.**\
+`By Steven Erlanger`\
+https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/european-politicians-and-analysts-are-praising-biden-for-leaving-the-race
+
+**With Biden Out, Vice President Kamala Harris Has a Chance to Make History Again**\
+`Ms. Harris, the first woman and person of color to be vice president, has faced sexist and racist attacks, but she has energized a network of support.`\
+https://nytimes.com/2024/07/21/us/politics/kamala-harris-nominee-president.html
+
 **On the Trail With Trump, Vance Shows He Knows His Place: Offstage, Mostly**\
 `JD Vance, the Republican nominee for vice president, was a mere warm-up act to Donald J. Trump at their first joint rally.`\
 https://nytimes.com/2024/07/21/us/politics/vance-trump-campaign-rally.html
