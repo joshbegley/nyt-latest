@@ -1,3 +1,7 @@
+**Astros All-Star Yordan Alvarez hits for cycle vs. Mariners**\
+`Alvarez’s cycle is the first of his career and the first by an Astro since Jose Altuve's last season at Fenway Park.`\
+https://nytimes.com/athletic/5649713/2024/07/21/yordan-alvarez-astros-cycle/
+
 **Schumer told Biden privately that Senate Democrats were done with him.**\
 `The president is said to have told the Senate majority leader he wanted to hang on for another week during a tense meeting last weekend.`\
 https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/schumer-told-biden-privately-that-senate-democrats-were-done-with-him
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5648473/2024/07/21/baseball-hall-of-fame-induction-
 **Can Harris Inherit Biden’s Campaign Cash? Most Likely, Yes.**\
 `“In my view, this is not an open question,” said one Federal Election Commission member. But Republicans are likely to try to block the transfer.`\
 https://nytimes.com/2024/07/21/us/politics/harris-biden-campaign-money.html
-
-**On TV, weekend anchors scrambled to cover a political earthquake.**\
-`Major networks broke into regular programming as journalists abandoned Sunday plans and dialed in from home.`\
-https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/biden-drops-out-media
 
