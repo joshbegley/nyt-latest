@@ -14,7 +14,7 @@ https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/biden-drops-out-
 `Republican congressional candidates lost their favorite lines of attack, but they quickly pivoted to trying to turn the withdrawal into baggage for Democrats.`\
 https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/republican-candidates-down-the-ballot-use-bidens-decision-to-hammer-rivals
 
-**Chiefs first camp practice: Patrick Mahomes rejoices deep connection with WR Xavier Worthy**\
+**Chiefs first camp practice: Patrick Mahomes rejoices over deep connection with Xavier Worthy**\
 `In a practice that was a little more than an hour of on-field work, Mahomes and Worthy produced a couple of highlights.`\
 https://nytimes.com/athletic/5649616/2024/07/21/chiefs-first-practice-patrick-mahomes-xavier-worthy/
 

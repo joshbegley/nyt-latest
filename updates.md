@@ -1,3 +1,7 @@
+**Chiefs first camp practice: Patrick Mahomes rejoices over deep connection with Xavier Worthy**\
+`In a practice that was a little more than an hour of on-field work, Mahomes and Worthy produced a couple of highlights.`\
+https://nytimes.com/athletic/5649616/2024/07/21/chiefs-first-practice-patrick-mahomes-xavier-worthy/
+
 **World Leaders, With Outlook Uncertain, Praise Biden but Speak Carefully**\
 `Foreign leaders did not wade into the turmoil of U.S. politics, opting instead for statements of empathy for a leader who reached the pinnacle of power only to find it necessary to bow out.`\
 https://nytimes.com/2024/07/21/world/europe/biden-election-world-leaders-reaction.html
