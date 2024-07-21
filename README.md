@@ -1,3 +1,7 @@
+**Submit MLB trade deadline questions, trade proposals for Jim Bowden's mailbag**\
+`Former GM Jim Bowden will answer subscribers' trade deadline questions and share his thoughts on their trade proposals in his next mailbag. `\
+https://nytimes.com/athletic/5649252/2024/07/21/submit-mlb-trade-deadline-questions-trade-proposals-for-jim-bowdens-mailbag/
+
 **Antisemitism on Campuses, Ivy and Beyond**\
 `Responses to a column by Bret Stephens. Also: Pharmacy benefit managers; the Supreme Court; a potential second Trump term and the environment.`\
 https://nytimes.com/2024/07/21/opinion/antisemitism-college-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/21/opinion/president-physician-cognitive-testing.htm
 **Israeli Strike on Yemeni Port Will Harm Civilians, Not Houthis, Experts Say**\
 `Israel’s counterattack on the Houthis, which set a vital Yemeni port ablaze, will do little to deter the militia, Yemeni and international experts said.`\
 https://nytimes.com/2024/07/21/world/middleeast/israel-yemen-hudaydah-port.html
-
-**At a rally, Trump jeered at the Democratic Party’s infighting. Here’s the latest.**\
-`Former Pr`\
-https://nytimes.com/live/2024/07/21/us/trump-biden-election/at-a-rally-trump-jeered-at-the-democratic-partys-infighting-heres-the-latest
 

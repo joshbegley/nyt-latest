@@ -1,3 +1,11 @@
+**Antisemitism on Campuses, Ivy and Beyond**\
+`Responses to a column by Bret Stephens. Also: Pharmacy benefit managers; the Supreme Court; a potential second Trump term and the environment.`\
+https://nytimes.com/2024/07/21/opinion/antisemitism-college-gaza.html
+
+**Roasted Salmon With Peas and Radishes, Hasselback Kielbasa With Jalapeño Honey**\
+`Cook whatever you want to cook, however you want to cook it, without judgment.`\
+https://nytimes.com/2024/07/21/dining/roasted-salmon-plus-more-recipes.html
+
 **Lowetide: Oilers have major scoring talent ticketed for the AHL in 2024-25**\
 `Matt Savoie not having an NHL job entering camp despite his special talent is a rare thing in Oilers history.`\
 https://nytimes.com/athletic/5648202/2024/07/21/oilers-bakersfield-condors-matt-savoie/
