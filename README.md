@@ -24,7 +24,7 @@ https://nytimes.com/athletic/5649418/2024/07/21/braves-max-fried-injury-2/
 
 **Tadej Pogacar Returns to the Top, Winning the Tour de France**\
 `Pogacar won his third Tour, beating his rival Jonas Vingegaard by 6:17 after a final time trial victory in Nice on Sunday.`\
-https://nytimes.com/2024/07/21/sports/cycling/tour-de-france-result.html
+https://nytimes.com/2024/07/21/sports/cycling/pogacar-tour-de-france.html
 
 **How Will Democrats Replace Biden at the Top of the Presidential Ticket?**\
 `The president cleared the way for a successor. He endorsed Vice President Kamala Harris, but there could still be a contest to determine who the nominee will be.`\
