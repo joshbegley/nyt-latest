@@ -1,10 +1,18 @@
+**Kyle Larson wins Brickyard 400 for first time**\
+`Larson then beat Blaney again on a second overtime restart and won under caution.`\
+https://nytimes.com/athletic/5649779/2024/07/21/kyle-larson-brickyard-400/
+
+**Overjoyed.’ ‘Desperate.’ ‘Too Late.’ Democrats React to Biden’s Exit**\
+`Democratic voters said they were relieved that President Biden was ending his campaign, but many said they remain worried about the political path ahead.`\
+https://nytimes.com/2024/07/21/us/biden-voters-democrats.html
+
 **Dodgers' Yoshinobu Yamamoto sets sights on 2024 return but timeline unclear**\
 `How hard the Dodgers will push to get him back is complicated: "You want to do what’s best for Yoshinobu."`\
 https://nytimes.com/athletic/5649715/2024/07/21/dodgers-yoshinobu-yamamoto-return/
 
 **Biden’s exit leads to the biggest day for Democratic donations online in years — $30 million and counting.**\
 `By Shane Goldmacher`\
-https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/bidens-exit-leads-to-the-biggest-day-for-democratic-donations-online-in-years
+https://nytimes.com/2024/07/21/us/politics/bidens-exit-leads-to-the-biggest-day-for-democratic-donations-online-in-years.html
 
 **Major news story? Let's tune in to Nick Castellanos' next at-bat**\
 `It's gotten to the point where seemingly every noteworthy occurrence is followed by a drive into deep left field by Castellanos.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5649601/2024/07/21/cardinals-celebration-alec-burle
 **Kenny Clark, Packers agree to 3-year, $64 million extension**\
 `Clark entered the league when the Packers drafted him 27th in the 2016 NFL Draft.`\
 https://nytimes.com/athletic/5649679/2024/07/21/kenny-clark-packers-extension/
-
-**Can Kamala Harris Step Up? Asking for a Friend.**\
-`What are the alternatives? And about those Republicans ...`\
-https://nytimes.com/2024/07/21/opinion/kamala-harris-joe-biden-drops-out.html
-
-**Biden’s announcement, and reactions, unfolded on X.**\
-`By Rebecca Robbins`\
-https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/bidens-announcement-and-reactions-unfolded-on-x
 

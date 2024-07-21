@@ -1,3 +1,15 @@
+**Kyle Larson wins Brickyard 400 for first time**\
+`Larson then beat Blaney again on a second overtime restart and won under caution.`\
+https://nytimes.com/athletic/5649779/2024/07/21/kyle-larson-brickyard-400/
+
+**Overjoyed.’ ‘Desperate.’ ‘Too Late.’ Democrats React to Biden’s Exit**\
+`Democratic voters said they were relieved that President Biden was ending his campaign, but many said they remain worried about the political path ahead.`\
+https://nytimes.com/2024/07/21/us/biden-voters-democrats.html
+
+**Biden’s exit leads to the biggest day for Democratic donations online in years — $30 million and counting.**\
+`By Shane Goldmacher`\
+https://nytimes.com/2024/07/21/us/politics/bidens-exit-leads-to-the-biggest-day-for-democratic-donations-online-in-years.html
+
 **Dodgers' Yoshinobu Yamamoto sets sights on 2024 return but timeline unclear**\
 `How hard the Dodgers will push to get him back is complicated: "You want to do what’s best for Yoshinobu."`\
 https://nytimes.com/athletic/5649715/2024/07/21/dodgers-yoshinobu-yamamoto-return/
