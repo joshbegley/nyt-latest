@@ -1,3 +1,7 @@
+**Arsenal name youthful U.S. tour squad with Smith Rowe, Nelson, Nketiah included**\
+`Arsenal have named their 26-man squad for the pre-season tour of the United States with Emile Smith Rowe, Reiss Nelson and Eddie Nketiah travelling despite there being transfer interest in all three.`\
+https://nytimes.com/athletic/5649198/2024/07/21/arsenal-us-tour-squad-smith-rowe/
+
 **Utah State CB Andre Seldon Jr. dies at 22**\
 `USU officials learned he was found by the Utah Department of Public Safety dive team, the school said in a statement.`\
 https://nytimes.com/athletic/5648995/2024/07/21/andre-seldon-jr-death-utah-state/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5636528/2024/07/21/arsenal-tommy-setford-transfer/
 **Jadon Sancho, Amad and the battle out wide at Manchester United**\
 `Leny Yoro's first game for United was supposed to be the main attraction but the performance of the wingers was an interesting subplot`\
 https://nytimes.com/athletic/5648747/2024/07/21/sancho-amad-manchester-united/
-
-**Ten Hag: Man Utd must sell players to help with further signings**\
-`Erik ten Hag says Manchester United need to sell players in order to raise funds for further signings this summer.`\
-https://nytimes.com/athletic/5649075/2024/07/21/erik-ten-hag-manchester-united-signings/
 
