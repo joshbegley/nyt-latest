@@ -1,3 +1,7 @@
+**Djed Spence is having a decent pre-season - but does he have a future at Tottenham?**\
+`The talent is undoubtedly there but will Spence be displaying it for Spurs or someone else in 2024-25?`\
+https://nytimes.com/athletic/5649031/2024/07/21/djed-spence-pre-season-prospects/
+
 **Marseille closing in on deal to sign Hojbjerg**\
 `Marseille have agreed a fee with Tottenham Hotspur for the signing of Pierre-Emile Hojbjerg.`\
 https://nytimes.com/athletic/5649044/2024/07/21/pierre-emile-hojbjerg-tottenham-marseille/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/21/style/ferrari-jeep-fashion.html
 **For Fashion, Sports Stars Are the New Superstars**\
 `Here’s why, and how the balance of power between individual brand and company brand is changing.`\
 https://nytimes.com/2024/07/21/style/fashion-sports-stars-ambassadors.html
-
-**The Kingmakers**\
-`The French agency L’AM specializes in connecting elite athletes with luxury fashion brands.`\
-https://nytimes.com/2024/07/21/style/lam-teddy-riner-charles-leclerc-joseph-delbadjo.html
 
