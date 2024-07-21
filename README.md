@@ -1,3 +1,7 @@
+**Where Kamala Harris Stands on the Issues: Abortion, Immigration and More**\
+`She wants to protect the right to abortion nationally. Here’s what else to know about her positions.`\
+https://nytimes.com/2024/07/21/us/politics/kamala-harris-abortion-immigration-economy-israel.html
+
 **Florida lands in-state 5-star WR Vernell Brown III**\
 `Brown, the son of a former Gator, is ranked No. 25 overall and the No. 6 wide receiver in the Class of 2025.`\
 https://nytimes.com/athletic/5649316/2024/07/21/florida-recruiting-vernell-brown-wide-receiver/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5648440/2024/07/21/blue-jackets-lineup-coach/
 **Thom Brennaman returning to broadcasting with The CW**\
 `If The CW is his only opportunity and he ends his career with them, Brennaman said he will be eternally grateful.`\
 https://nytimes.com/athletic/5648471/2024/07/21/thom-brennaman-broadcasting-return-cw/
-
-**Manchin Calls for Biden to Withdraw His Candidacy**\
-`Senator Joe Manchin III, an independent from West Virginia who caucuses with Democrats, is the fifth senator aligned with the party to urge President Biden not to seek re-election.`\
-https://nytimes.com/2024/07/21/us/politics/joe-manchin-biden-withdraw.html
 
