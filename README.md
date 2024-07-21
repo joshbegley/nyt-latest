@@ -1,3 +1,7 @@
+**Bangladesh Scales Back Policy on Public-Sector Hiring That Sparked Unrest**\
+`A court ruling has sharply reduced a quota system for filling government jobs, after protests over the issue turned violent and were brutally suppressed.`\
+https://nytimes.com/2024/07/21/world/asia/bangladesh-quota-court-ruling.html
+
 **Israel Intercepts Missile Fired From Yemen as Conflict With Houthis Continues**\
 `The missile launch suggested that the Yemen-based Houthi militia, which is backed by Iran, would keep up its attacks despite Israeli airstrikes on a port it controls.`\
 https://nytimes.com/2024/07/21/world/middleeast/israel-houthis-missile-yemen.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/21/arts/music/alex-izenberg.html
 **Corvette Bucked a Sports Cars Decline. Can It Thrive in an E.V. Era?**\
 `The General Motors sports car, which enjoyed strong sales after a big design change, now has a hybrid version and may get a fully electric model that may turn off some gas-loving customers.`\
 https://nytimes.com/2024/07/21/business/chevrolet-corvette-electric-vehicles.html
-
-**On TikTok, True Crime Survivors Take Control**\
-`The genre is wildly popular across media, but often produced without input from those most affected. Viral videos are helping survivors own their stories.`\
-https://nytimes.com/2024/07/21/arts/tiktok-true-crime.html
 
