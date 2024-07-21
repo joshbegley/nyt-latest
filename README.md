@@ -1,3 +1,7 @@
+**Answers to Questions From Morning Readers**\
+`Times journalists from around the newsroom talk about their beats and our work.`\
+https://nytimes.com/2024/07/21/briefing/answers-to-questions-from-morning-readers.html
+
 **Quotation of the Day: Methadone Vans Aim to Bring Help Closer to Addicts**\
 `Quotation of the Day for Sunday, July 21, 2024.`\
 https://nytimes.com/2024/07/21/pageoneplus/quotation-of-the-day-methadone-vans-aim-to-bring-help-closer-to-addicts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/21/style/lvmh-olympics-antoine-arnault.html
 **How Two Wandering Cows Started a Culture War**\
 `When Hornee and Blackee strayed from their pasture, they set off a chaotic chain of events involving death threats, chicken rustlers and Joaquin Phoenix. The town of Newfane, N.Y., hasn’t been the same since.`\
 https://nytimes.com/2024/07/21/nyregion/missing-cows-animal-sanctuary-newfane-ny.html
-
-**The World’s Most Fashionable Judoka Is Looking for Clothes in His Size**\
-`Teddy Riner has long had trouble finding stylish apparel for his 6-foot-8 frame. Could it be time to create his own line?`\
-https://nytimes.com/2024/07/21/style/teddy-riner-judo-olympics.html
 
