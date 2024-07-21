@@ -1,4 +1,4 @@
-**Trump Leaves Unity Behind and Returns to Insults and Election Denial**\
+**A Week After Shooting, Trump Leaves Unity Behind and Returns to Insults and Election Denial**\
 `A week after an assassination attempt led him to call for unity, former President Donald J. Trump returned to the campaign trail, lashing out at his rivals and claiming persecution.`\
 https://nytimes.com/2024/07/20/us/politics/trump-vance-michigan.html
 
