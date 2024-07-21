@@ -1,3 +1,11 @@
+**Schumer told Biden privately that Senate Democrats were done with him.**\
+`The president is said to have told the Senate majority leader he wanted to hang on for another week during a tense meeting last weekend.`\
+https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/schumer-told-biden-privately-that-senate-democrats-were-done-with-him
+
+**How Undecided Voters Are Responding to Biden Dropping Out**\
+`Many who had been dissatisfied with their choices now face a whole new race — and a new set of questions.`\
+https://nytimes.com/2024/07/21/us/undecided-voters-biden-trump-harris.html
+
 **Cardinals' celebration 'definitely not a political statement,' player says**\
 `A veteran player said the gestures are intended to mimic a DJ, as a reference to college rapper Alec Burleson.`\
 https://nytimes.com/athletic/5649601/2024/07/21/cardinals-celebration-alec-burleson-lars-nootbaar/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/21/us/politics/harris-biden-campaign-money.html
 **On TV, weekend anchors scrambled to cover a political earthquake.**\
 `Major networks broke into regular programming as journalists abandoned Sunday plans and dialed in from home.`\
 https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/biden-drops-out-media
-
-**Republican candidates down the ballot use Biden’s decision to hammer rivals.**\
-`Republican congressional candidates lost their favorite lines of attack, but they quickly pivoted to trying to turn the withdrawal into baggage for Democrats.`\
-https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/republican-candidates-down-the-ballot-use-bidens-decision-to-hammer-rivals
-
-**Chiefs first camp practice: Patrick Mahomes rejoices over deep connection with Xavier Worthy**\
-`In a practice that was a little more than an hour of on-field work, Mahomes and Worthy produced a couple of highlights.`\
-https://nytimes.com/athletic/5649616/2024/07/21/chiefs-first-practice-patrick-mahomes-xavier-worthy/
 
