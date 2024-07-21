@@ -1,3 +1,7 @@
+**What 4 Key Democratic Governors Have Said About Biden Dropping Out**\
+`The governors of Pennsylvania, Michigan, California and Illinois have attracted attention as potential contenders to replace President Biden atop the ticket. Here’s what they have said since he dropped out.`\
+https://nytimes.com/2024/07/21/us/politics/newsom-whitmer-shapiro-biden-drops-out.html
+
 **Most Hill Democrats rally around Harris, but top leaders and Pelosi stay mum.**\
 `By Luke Broadwater`\
 https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/most-hill-democrats-rally-around-harris-but-top-leaders-and-pelosi-stay-mum
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/21/world/europe/soho-london-waiters-race.html
 **Read Vice President Kamala Harris’s full statement.**\
 `In a five-paragraph statement, Ms. Harris hailed President Biden’s accomplishments and said she would run in his place.`\
 https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/read-vice-president-kamala-harriss-full-statement
-
-**Once Derided, Harris Suddenly Stands at Brink of Leading Democratic Ticket**\
-`Vice President Kamala Harris got off to a rocky start in office. She is now at the heart of a political drama that could make her the first woman of color to become a major party presidential nominee.`\
-https://nytimes.com/2024/07/21/us/politics/kamala-harris.html
 

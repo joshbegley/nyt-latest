@@ -1,3 +1,7 @@
+**Most Hill Democrats rally around Harris, but top leaders and Pelosi stay mum.**\
+`By Luke Broadwater`\
+https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/most-hill-democrats-rally-around-harris-but-top-leaders-and-pelosi-stay-mum
+
 **Once Derided, Harris Suddenly Stands at Brink of Leading Democratic Ticket**\
 `Vice President Kamala Harris got off to a rocky start in office. She is now at the heart of a political drama that could make her the first woman of color to become a major party presidential nominee.`\
 https://nytimes.com/2024/07/21/us/politics/kamala-harris.html
