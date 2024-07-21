@@ -1,3 +1,7 @@
+**Arsenal confirm signing of Ajax youth goalkeeper Setford**\
+`Arsenal have confirmed the signing of goalkeeper Tommy Setford from Ajax.`\
+https://nytimes.com/athletic/5636528/2024/07/21/arsenal-tommy-setford-transfer/
+
 **Jadon Sancho, Amad and the battle out wide at Manchester United**\
 `Leny Yoro's first game for United was supposed to be the main attraction but the performance of the wingers was an interesting subplot`\
 https://nytimes.com/athletic/5648747/2024/07/21/sancho-amad-manchester-united/
