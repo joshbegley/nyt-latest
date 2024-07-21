@@ -1,3 +1,11 @@
+**Biden Made a Courageous Choice. Democrats Must Seize the Opportunity.**\
+`He did what Trump would never do: place the national interest above his own pride and ambition.`\
+https://nytimes.com/2024/07/21/opinion/editorials/joe-biden-drops-out-courage.html
+
+**Braves' Max Fried hits IL with nerve irritation in forearm**\
+`Fried's injury could make adding a starting pitcher before the trade deadline a priority for the Braves again.`\
+https://nytimes.com/athletic/5649418/2024/07/21/braves-max-fried-injury-2/
+
 **Tadej Pogacar Returns to the Top, Winning the Tour de France**\
 `Pogacar won his third Tour, beating his rival Jonas Vingegaard by 6:17 after a final time trial victory in Nice on Sunday.`\
 https://nytimes.com/2024/07/21/sports/cycling/tour-de-france-result.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/21/us/politics/biden-drops-out.html
 **Biden and Georgia Are Waging a Fight Over Medicaid and the Future of Obamacare**\
 `A fierce battle with Georgia over a Medicaid experiment with stricter enrollment underscores the vast divide between parties over how to cover lower-income Americans.`\
 https://nytimes.com/2024/07/21/us/politics/biden-georgia-medicaid-obamacare.html
-
-**Xander Schauffele wins Open Championship for major win No. 2**\
-`Schauffele made three birdies in five holes on the back nine at Royal Troon to win his second career major.`\
-https://nytimes.com/athletic/5649356/2024/07/21/xander-schauffele-open-championship-win-royal-troon/
-
-**Review: A Lost Opera Returns, and Shouldn’t Be Lost Again**\
-`Teatro Nuovo is giving Carolina Uccelli’s pioneering “Anna di Resburgo” its first performances since its premiere in 1835.`\
-https://nytimes.com/2024/07/21/arts/music/uccelli-anna-di-resburgo-teatro-nuovo.html
 
