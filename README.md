@@ -1,3 +1,11 @@
+**Florida lands in-state 5-star WR Vernell Brown III**\
+`Brown, the son of a former Gator, is ranked No. 25 overall and the No. 6 wide receiver in the Class of 2025.`\
+https://nytimes.com/athletic/5649316/2024/07/21/florida-recruiting-vernell-brown-wide-receiver/
+
+**Read Biden’s Letter Withdrawing From the Race**\
+`President Biden announced on social media that he was abandoning his re-election bid.`\
+https://nytimes.com/interactive/2024/07/21/us/biden-withdraw-letter.html
+
 **Biden’s decision throws the 2024 race into disarray. Here’s the latest.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/07/21/us/trump-biden-election/bidens-decision-throws-the-2024-race-into-disarray-heres-the-latest
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5648471/2024/07/21/thom-brennaman-broadcasting-retu
 **Manchin Calls for Biden to Withdraw His Candidacy**\
 `Senator Joe Manchin III, an independent from West Virginia who caucuses with Democrats, is the fifth senator aligned with the party to urge President Biden not to seek re-election.`\
 https://nytimes.com/2024/07/21/us/politics/joe-manchin-biden-withdraw.html
-
-**Submit MLB trade deadline questions, trade proposals for Jim Bowden's mailbag**\
-`Former GM Jim Bowden will answer subscribers' trade deadline questions and share his thoughts on their trade proposals in his next mailbag. `\
-https://nytimes.com/athletic/5649252/2024/07/21/submit-mlb-trade-deadline-questions-trade-proposals-for-jim-bowdens-mailbag/
-
-**Antisemitism on Campuses, Ivy and Beyond**\
-`Responses to a column by Bret Stephens. Also: Pharmacy benefit managers; the Supreme Court; a potential second Trump term and the environment.`\
-https://nytimes.com/2024/07/21/opinion/antisemitism-college-gaza.html
 
