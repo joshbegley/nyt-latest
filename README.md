@@ -1,3 +1,7 @@
+**China Shows Few Signs of Tilting Economy Toward Consumers in New Plan**\
+`The Communist Party rebuffed calls from economists to shift away from investment-led growth and toward consumer spending.`\
+https://nytimes.com/2024/07/21/business/china-economy-third-plenum-decision.html
+
 **I Was a White House Doctor. Presidents Should Have to Take Cognitive Tests.**\
 `We need to rethink how we assess and evaluate physical and mental fitness for the presidency.`\
 https://nytimes.com/2024/07/21/opinion/president-physician-cognitive-testing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5649075/2024/07/21/erik-ten-hag-manchester-united-s
 **From Naples to New Orleans, Murder and Mayhem**\
 `Our crime columnist on four new novels.`\
 https://nytimes.com/2024/07/21/books/review/new-crime-fiction.html
-
-**Catching up with Cubs legend Jon Lester on David Ross, Justin Steele and the Hall of Fame**\
-`Lester is beginning a trial run as an analyst for Marquee Sports Network and could get Hall of Fame consideration.`\
-https://nytimes.com/athletic/5648880/2024/07/21/cubs-jon-lester-david-ross-justin-steele-hall-of-fame/
 
