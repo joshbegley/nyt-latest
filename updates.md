@@ -1,3 +1,7 @@
+**As Biden Withdraws, Words of Praise and Caution**\
+`An early sampling of reaction to the president’s announcement.`\
+https://nytimes.com/2024/07/21/opinion/letters/biden-withdraws.html
+
 **With Biden Out, What Happens Next? Here’s What We Know.**\
 `Democrats are gaming out scenarios, some of them more likely than others. One thing is clear: Kamala Harris has the inside lane.`\
 https://nytimes.com/article/biden-drop-out-nomination-delegates-harris.html
