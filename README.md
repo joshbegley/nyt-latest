@@ -1,3 +1,7 @@
+**Utah Officials Backtrack on Untested Execution Drug**\
+`An execution, scheduled for next month, would have used an experimental three-drug combination that critics said could inflict serious pain.`\
+https://nytimes.com/2024/07/20/us/utah-execution-untested-drugs.html
+
 **J.T. Realmuto is back, and the Phillies will feel his presence in obvious and subtle ways**\
 `Along with his talent as a hitter and base runner, Realmuto should help the Phillies via his strong rapport with the pitching staff.`\
 https://nytimes.com/athletic/5648857/2024/07/20/phillies-jt-realmuto-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5648697/2024/07/20/yankees-dj-lemahieu-giancarlo-st
 **As Biden recovers from Covid, Harris assumes a starring role on the campaign trail.**\
 `By Nicholas Nehamas`\
 https://nytimes.com/live/2024/07/20/us/trump-biden-election/harris-biden-fundraiser-provincetown
-
-**In My Defense …**\
-`John Ewbank’s puzzle teaches us what not to do the next time we’re in an argument.`\
-https://nytimes.com/2024/07/20/crosswords/daily-puzzle-2024-07-21.html
 
