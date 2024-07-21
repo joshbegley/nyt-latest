@@ -1,3 +1,7 @@
+**Submit MLB trade deadline questions, trade proposals for Jim Bowden's mailbag**\
+`Former GM Jim Bowden will answer subscribers' trade deadline questions and share his thoughts on their trade proposals in his next mailbag. `\
+https://nytimes.com/athletic/5649252/2024/07/21/submit-mlb-trade-deadline-questions-trade-proposals-for-jim-bowdens-mailbag/
+
 **Antisemitism on Campuses, Ivy and Beyond**\
 `Responses to a column by Bret Stephens. Also: Pharmacy benefit managers; the Supreme Court; a potential second Trump term and the environment.`\
 https://nytimes.com/2024/07/21/opinion/antisemitism-college-gaza.html
