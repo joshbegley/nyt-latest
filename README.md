@@ -1,3 +1,11 @@
+**What’s Next for the Harris Campaign**\
+`Vice President Kamala Harris faces many questions, from the management of her campaign to the selection of her running mate, should she be the Democratic Party’s nominee.`\
+https://nytimes.com/2024/07/21/us/politics/harris-campaign.html
+
+**Ozzie Albies fractures wrist, Braves expected to call up prospect Nacho Alvarez**\
+`Alvarez, 21, has been sensational since a midseason promotion from from Double A to Triple A.`\
+https://nytimes.com/athletic/5649723/2024/07/21/braves-ozzie-albies-nacho-alvarez/
+
 **Kyle Larson wins Brickyard 400 for first time**\
 `Larson then beat Blaney again on a second overtime restart and won under caution.`\
 https://nytimes.com/athletic/5649779/2024/07/21/kyle-larson-brickyard-400/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/schumer-told-bid
 **How Undecided Voters Are Responding to Biden Dropping Out**\
 `Many who had been dissatisfied with their choices now face a whole new race — and a new set of questions.`\
 https://nytimes.com/2024/07/21/us/undecided-voters-biden-trump-harris.html
-
-**Cardinals' celebration 'definitely not a political statement,' player says**\
-`A veteran player said the gestures are intended to mimic a DJ, as a reference to college rapper Alec Burleson.`\
-https://nytimes.com/athletic/5649601/2024/07/21/cardinals-celebration-alec-burleson-lars-nootbaar/
-
-**Kenny Clark, Packers agree to 3-year, $64 million extension**\
-`Clark entered the league when the Packers drafted him 27th in the 2016 NFL Draft.`\
-https://nytimes.com/athletic/5649679/2024/07/21/kenny-clark-packers-extension/
 
