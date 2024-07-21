@@ -1,3 +1,7 @@
+**Team WNBA wins All-Star Game behind Arike Ogunbowale's performance**\
+`Ogunbowale, who was named All-Star MVP,  shot 6-of-10 in the third quarter to go along with four assists and two steals.`\
+https://nytimes.com/athletic/5648917/2024/07/20/wnba-all-star-game-result/
+
 **Secret Service Says It Denied Earlier Trump Requests for More Federal Resources**\
 `In a reversal, a spokesman said the service had turned down requests from former President Donald J. Trump’s team over the past two years, though he said the requests did not include the recent rally in Pennsylvania.`\
 https://nytimes.com/2024/07/20/us/politics/secret-service-trump-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/20/arts/alec-baldwin-rust-jurors.html
 **Open Championship analysis: What to know about Round 3 at Royal Troon**\
 `Horschel leads after three rounds at Royal Troon, but six players are just one stroke back.`\
 https://nytimes.com/athletic/5648771/2024/07/20/open-championship-round-3-analysis-horschel-lowry/
-
-**How to Guard Against Scams Tied to the CrowdStrike Crash**\
-`People posing as airline customer service representatives may be making fraudulent attempts to access your money or private data, experts warn.`\
-https://nytimes.com/2024/07/20/business/crowdstrike-tech-outage-scams.html
 
