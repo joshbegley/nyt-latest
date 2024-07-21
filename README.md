@@ -1,3 +1,7 @@
+**Pacific Northwest Faces Critical Fire Risk as Wildfires Burn**\
+`About 1.7 million people were under fire danger warnings on Sunday as a heat wave hit the region and several large blazes burned in Oregon.`\
+https://nytimes.com/2024/07/21/us/wildfires-lightning-oregon-washington.html
+
 **For Biden, a Decision to Step Aside Would Raise Another Question**\
 `As President Biden grapples with the possibility of dropping his bid for re-election, a secondary question looms: Should he endorse his own vice president as the nominee?`\
 https://nytimes.com/2024/07/21/us/politics/biden-harris-nomination.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/21/world/asia/jack-ma-xiao-jianhua-takaeaways.html
 **A Critical Gap in Democracy? ‘Yawn,’ Say Canadian Politicians.**\
 `China and India have been accused of exploiting the opaque nomination contests of Canadian political parties to meddle in elections.`\
 https://nytimes.com/2024/07/21/world/americas/canada-democracy-foreign-interference.html
-
-**Hong Kong’s Bouncy ‘Wonders’ Leave Some Wondering, ‘Why?’**\
-`Inflatable replicas of famous monuments popped up in a park, raising questions about art and Hong Kong’s changing place in the world.`\
-https://nytimes.com/2024/07/21/world/asia/hong-kong-inflatable-wonders-art.html
 
