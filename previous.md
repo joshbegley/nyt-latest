@@ -1,3 +1,15 @@
+**The Meaning of Prayer at a Political Convention**\
+`Prayers at events such as the Republican National Convention can take on the feel of a religious veneer for certain policies.`\
+https://nytimes.com/2024/07/21/opinion/republican-convention-prayer.html
+
+**Have a Foreign Language Love Affair This Summer**\
+`Have translation tools made learning a language pointless? Not a chance.`\
+https://nytimes.com/2024/07/21/opinion/foreign-language-learning.html
+
+**Twins lose Carlos Correa to injured list, then fall to Brewers in 12 innings**\
+`The move was made retroactive to Tuesday, which means Correa is out of action at least through Thursday.`\
+https://nytimes.com/athletic/5648960/2024/07/21/minnesota-twins-carlos-correa-injured-list/
+
 **Four lessons from Nottingham Forest's pre-season so far**\
 `Signings bedding in, positive steps from last year's cohort and a renewed attacking focus - Nuno Espirito Santo's side is coming together`\
 https://nytimes.com/athletic/5648423/2024/07/21/forest-lessons-pre-season-so-far/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5648870/2024/07/20/braves-charlie-morton-eddie-rosa
 **A Week After Shooting, Trump Leaves Unity Behind and Returns to Insults and Election Denial**\
 `A week after an assassination attempt led him to call for unity, former President Donald J. Trump returned to the campaign trail, lashing out at his rivals and claiming persecution.`\
 https://nytimes.com/2024/07/20/us/politics/trump-vance-michigan.html
-
-**Team WNBA wins All-Star Game behind Arike Ogunbowale's performance**\
-`Ogunbowale, who was named All-Star MVP,  shot 6-of-10 in the third quarter to go along with four assists and two steals.`\
-https://nytimes.com/athletic/5648917/2024/07/20/wnba-all-star-game-result/
-
-**Secret Service Says It Denied Earlier Trump Requests for More Federal Resources**\
-`In a reversal, a spokesman said the service had turned down requests from former President Donald J. Trump’s team over the past two years, though he said the requests did not include the recent rally in Pennsylvania.`\
-https://nytimes.com/2024/07/20/us/politics/secret-service-trump-shooting.html
-
-**Cavs, Evan Mobley agree to 5-year extension**\
-`The deal could be worth up to $269 million, a league source confirmed Saturday.`\
-https://nytimes.com/athletic/5648897/2024/07/20/evan-mobley-cavaliers-extension/
 

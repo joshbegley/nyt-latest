@@ -1,3 +1,15 @@
+**The Meaning of Prayer at a Political Convention**\
+`Prayers at events such as the Republican National Convention can take on the feel of a religious veneer for certain policies.`\
+https://nytimes.com/2024/07/21/opinion/republican-convention-prayer.html
+
+**Have a Foreign Language Love Affair This Summer**\
+`Have translation tools made learning a language pointless? Not a chance.`\
+https://nytimes.com/2024/07/21/opinion/foreign-language-learning.html
+
+**Twins lose Carlos Correa to injured list, then fall to Brewers in 12 innings**\
+`The move was made retroactive to Tuesday, which means Correa is out of action at least through Thursday.`\
+https://nytimes.com/athletic/5648960/2024/07/21/minnesota-twins-carlos-correa-injured-list/
+
 **How Charlie Morton and Eddie Rosario showed they still can help the Braves**\
 `With Morton and Rosario excelling, you couldn't blame Braves fans who looked back to their World Series championship three years ago.`\
 https://nytimes.com/athletic/5648870/2024/07/20/braves-charlie-morton-eddie-rosario/
