@@ -1,3 +1,7 @@
+**Team WNBA wins All-Star Game behind Arike Ogunbowale's performance**\
+`Ogunbowale, who was named All-Star MVP,  shot 6-of-10 in the third quarter to go along with four assists and two steals.`\
+https://nytimes.com/athletic/5648917/2024/07/20/wnba-all-star-game-result/
+
 **Secret Service Says It Denied Earlier Trump Requests for More Federal Resources**\
 `In a reversal, a spokesman said the service had turned down requests from former President Donald J. Trump’s team over the past two years, though he said the requests did not include the recent rally in Pennsylvania.`\
 https://nytimes.com/2024/07/20/us/politics/secret-service-trump-shooting.html
