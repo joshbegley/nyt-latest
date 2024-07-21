@@ -1,3 +1,7 @@
+**Overjoyed.’ ‘Desperate.’ ‘Too Late.’ Democrats React to Biden’s Exit**\
+`Democratic voters said they were relieved that President Biden was ending his campaign, but many said they remain worried about the political path ahead.`\
+https://nytimes.com/2024/07/21/us/biden-voters-democrats.html
+
 **Dodgers' Yoshinobu Yamamoto sets sights on 2024 return but timeline unclear**\
 `How hard the Dodgers will push to get him back is complicated: "You want to do what’s best for Yoshinobu."`\
 https://nytimes.com/athletic/5649715/2024/07/21/dodgers-yoshinobu-yamamoto-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5649679/2024/07/21/kenny-clark-packers-extension/
 **Can Kamala Harris Step Up? Asking for a Friend.**\
 `What are the alternatives? And about those Republicans ...`\
 https://nytimes.com/2024/07/21/opinion/kamala-harris-joe-biden-drops-out.html
-
-**Biden’s announcement, and reactions, unfolded on X.**\
-`By Rebecca Robbins`\
-https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/bidens-announcement-and-reactions-unfolded-on-x
 
