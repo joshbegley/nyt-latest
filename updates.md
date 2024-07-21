@@ -1,3 +1,7 @@
+**Judge Rejects Bid to Dismiss Trump Libel Suit Against Pulitzer Board**\
+`Donald Trump sued the Pulitzer Prize Board over its 2022 statement reaffirming its decision to award a prize for coverage of the 2016 Trump campaign’s ties to Russia.`\
+https://nytimes.com/2024/07/21/business/media/trump-libel-suit-pulitzer-board.html
+
 **A Harris Economy Could Prove More Progressive Than ‘Bidenomics’**\
 `As a presidential candidate in the past, the former California senator pushed for higher taxes and bigger housing investments.`\
 https://nytimes.com/2024/07/21/us/politics/kamala-harris-economy.html
