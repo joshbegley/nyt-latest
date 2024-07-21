@@ -1,3 +1,7 @@
+**Who will replace Biden as the Democratic nominee?**\
+`At the top of the list is Vice President Kamala Harris, whose position at Mr. Biden’s side makes her an obvious first choice to succeed the president. Mr. Biden quickly endorsed her.`\
+https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/democrat-nominee-biden
+
 **The Scale and Scope of Biden’s Sacrifice**\
 `This is an extraordinary moment in American history.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/biden-drop-out-country-first
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/21/us/politics/biden-replace-harris.html
 **Where Kamala Harris Stands on the Issues: Abortion, Immigration and More**\
 `She wants to protect the right to abortion nationally. Here’s what else to know about her positions.`\
 https://nytimes.com/2024/07/21/us/politics/kamala-harris-abortion-immigration-economy-israel.html
-
-**Florida lands in-state 5-star WR Vernell Brown III**\
-`Brown, the son of a former Gator, is ranked No. 25 overall and the No. 6 wide receiver in the Class of 2025.`\
-https://nytimes.com/athletic/5649316/2024/07/21/florida-recruiting-vernell-brown-wide-receiver/
 
