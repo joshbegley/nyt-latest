@@ -1,3 +1,7 @@
+**Behind Bangladesh Protests, Rage Over Inequality**\
+`The demonstrations began over a quota system for government jobs but have extended to corruption, the cost of living and income disparities.`\
+https://nytimes.com/2024/07/21/world/asia/bangladesh-protests-quotas-jobs.html
+
 **Corrections: July 21, 2024**\
 `Corrections that appeared in print on Sunday, July 21, 2024.`\
 https://nytimes.com/2024/07/21/corrections/corrections-july-21-2024.html
