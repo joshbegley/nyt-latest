@@ -1,3 +1,7 @@
+**You Ask, We Answer**\
+`We’re answering reader questions about this newsletter, and the news in general.`\
+https://nytimes.com/2024/07/21/briefing/the-morning-reader-questions.html
+
 **Arsenal confirm signing of Ajax youth goalkeeper Setford**\
 `Arsenal have confirmed the signing of goalkeeper Tommy Setford from Ajax.`\
 https://nytimes.com/athletic/5636528/2024/07/21/arsenal-tommy-setford-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/republican-convention-trump
 **One of the Republican Convention’s Weirdest Lies**\
 `It was one long exercise in creating memories of a Trump term that never existed.`\
 https://nytimes.com/2024/07/21/opinion/trump-administration-chaos.html
-
-**JD Vance, D.E.I. Candidate**\
-`He benefited from one of the most powerful forms of affirmative action that elite universities practice.`\
-https://nytimes.com/2024/07/21/opinion/jd-vance-kamala-harris.html
 
