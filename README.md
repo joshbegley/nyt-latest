@@ -1,3 +1,7 @@
+**J.T. Realmuto is back, and the Phillies will feel his presence in obvious and subtle ways**\
+`Along with his talent as a hitter and base runner, Realmuto should help the Phillies via his rapport with the pitching staff.`\
+https://nytimes.com/athletic/5648857/2024/07/20/phillies-jt-realmuto-return/
+
 **Jayson Werth's Dornoch secures Breeders' Cup berth**\
 `The victory comes 42 days after Dornoch and Werth won the Belmont Stakes.`\
 https://nytimes.com/athletic/5648838/2024/07/20/jayson-werth-dornoch-haskell-stakes-breeders/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/20/us/trump-biden-election/harris-biden-fundrai
 **In My Defense …**\
 `John Ewbank’s puzzle teaches us what not to do the next time we’re in an argument.`\
 https://nytimes.com/2024/07/20/crosswords/daily-puzzle-2024-07-21.html
-
-**Open Championship leader Billy Horschel has waited a career for this moment**\
-`"If it's not meant to be, it's not meant to be," Horschel said of winning his first career major. But make no mistake — he wants it.`\
-https://nytimes.com/athletic/5648745/2024/07/20/billy-horschel-open-championship-leader/
 
