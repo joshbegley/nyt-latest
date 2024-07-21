@@ -1,6 +1,6 @@
 **Trump’s Conviction and Biden’s Poor Debate Sent Big Money Into the Race**\
 `The Biden campaign also spent six times as much as the Trump campaign did in June, allowing Republicans to gain a financial advantage.`\
-https://nytimes.com/live/2024/07/20/us/trump-biden-election/trump-biden-fundraising
+https://nytimes.com/2024/07/20/us/politics/trump-biden-fundraising.html
 
 **The Meaning of Prayer at a Political Convention**\
 `Prayers at events such as the Republican National Convention can take on the feel of a religious veneer for certain policies.`\
