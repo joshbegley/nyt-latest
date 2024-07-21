@@ -1,3 +1,7 @@
+**As Biden Withdraws, Words of Praise and Caution**\
+`An early sampling of reaction to the president’s announcement.`\
+https://nytimes.com/2024/07/21/opinion/letters/biden-withdraws.html
+
 **With Biden Out, What Happens Next? Here’s What We Know.**\
 `Democrats are gaming out scenarios, some of them more likely than others. One thing is clear: Kamala Harris has the inside lane.`\
 https://nytimes.com/article/biden-drop-out-nomination-delegates-harris.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/biden-is-out-wha
 **Truman and Johnson Also Stepped Aside, but ‘the Circumstances Are Quite Different’**\
 `The candidates who secured the Democratic nomination after the two presidents dropped out would go on to lose the election. But historians say political history doesn’t necessarily repeat itself.`\
 https://nytimes.com/2024/07/21/us/truman-johnson-president-stepped-aside.html
-
-**How Kamala Harris Performs Against Donald Trump in the Polls**\
-`The vice president could enter the general election campaign in a better position than President Biden.`\
-https://nytimes.com/2024/07/21/us/politics/kamala-harris-trump-polls.html
 
