@@ -1,3 +1,7 @@
+**Secret Service Says It Denied Earlier Trump Requests for More Federal Resources**\
+`In a reversal, a spokesman said the service had turned down requests from former President Donald J. Trump’s team over the past two years, though he said the requests did not include the recent rally in Pennsylvania.`\
+https://nytimes.com/2024/07/20/us/politics/secret-service-trump-shooting.html
+
 **Cavs, Evan Mobley agree to 5-year extension**\
 `The deal could be worth up to $269 million, a league source confirmed Saturday.`\
 https://nytimes.com/athletic/5648897/2024/07/20/evan-mobley-cavaliers-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5648771/2024/07/20/open-championship-round-3-analys
 **How to Guard Against Scams Tied to the CrowdStrike Crash**\
 `People posing as airline customer service representatives may be making fraudulent attempts to access your money or private data, experts warn.`\
 https://nytimes.com/2024/07/20/business/crowdstrike-tech-outage-scams.html
-
-**Yankees notes: DJ LeMahieu has 'earned' the right to play, Giancarlo Stanton nearing return**\
-`Plus notes on Nestor Cortes, who struggled against the Rays but thinks the Yankees' front office will help them at the trade deadline.`\
-https://nytimes.com/athletic/5648697/2024/07/20/yankees-dj-lemahieu-giancarlo-stanton-nearing-return/
 
