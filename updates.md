@@ -1,3 +1,7 @@
+**Secret Service Says It Denied Earlier Trump Requests for More Federal Resources**\
+`In a reversal, a spokesman said the service had turned down requests from former President Donald J. Trump’s team over the past two years, though he said the requests did not include the recent rally in Pennsylvania.`\
+https://nytimes.com/2024/07/20/us/politics/secret-service-trump-shooting.html
+
 **Cavs, Evan Mobley agree to 5-year extension**\
 `The deal could be worth up to $269 million, a league source confirmed Saturday.`\
 https://nytimes.com/athletic/5648897/2024/07/20/evan-mobley-cavaliers-extension/
