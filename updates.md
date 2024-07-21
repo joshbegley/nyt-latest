@@ -1,3 +1,7 @@
+**Thom Brennaman returning to broadcasting with The CW**\
+`If The CW is his only opportunity and he ends his career with them, Brennaman said he will be eternally grateful.`\
+https://nytimes.com/athletic/5648471/2024/07/21/thom-brennaman-broadcasting-return-cw/
+
 **Manchin Calls for Biden to Withdraw His Candidacy**\
 `Senator Joe Manchin III, an independent from West Virginia who caucuses with Democrats, is the fifth senator aligned with the party to urge President Biden not to seek re-election.`\
 https://nytimes.com/2024/07/21/us/politics/joe-manchin-biden-withdraw.html
