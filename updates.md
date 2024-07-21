@@ -1,3 +1,15 @@
+**On the Trail With Trump, Vance Shows He Knows His Place: Offstage, Mostly**\
+`JD Vance, the Republican nominee for vice president, was a mere warm-up act to Donald J. Trump at their first joint rally.`\
+https://nytimes.com/2024/07/21/us/politics/vance-trump-campaign-rally.html
+
+**Three Questions About What the Democrats Might Do Next**\
+`Many of our columnists, writers and contributors have spent the weeks since Biden’s debate debacle examining the possibilities.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/democrats-convention-biden-drop-out
+
+**Biden has struggled to translate decades of good will into the unifying presidency he promised.**\
+`President Biden arrived`\
+https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/biden-president-legacy
+
 **Villa's record signing Diaby set to join Al-Ittihad**\
 `Aston Villa&#8217;s record signing Moussa Diaby is set to join Al-Ittihad in a deal worth around €60million (£50.`\
 https://nytimes.com/athletic/5633268/2024/07/21/moussa-diaby-transfer-al-ittihad/

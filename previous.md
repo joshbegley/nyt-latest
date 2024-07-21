@@ -1,3 +1,15 @@
+**On the Trail With Trump, Vance Shows He Knows His Place: Offstage, Mostly**\
+`JD Vance, the Republican nominee for vice president, was a mere warm-up act to Donald J. Trump at their first joint rally.`\
+https://nytimes.com/2024/07/21/us/politics/vance-trump-campaign-rally.html
+
+**Three Questions About What the Democrats Might Do Next**\
+`Many of our columnists, writers and contributors have spent the weeks since Biden’s debate debacle examining the possibilities.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/democrats-convention-biden-drop-out
+
+**Biden has struggled to translate decades of good will into the unifying presidency he promised.**\
+`President Biden arrived`\
+https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/biden-president-legacy
+
 **Villa's record signing Diaby set to join Al-Ittihad**\
 `Aston Villa&#8217;s record signing Moussa Diaby is set to join Al-Ittihad in a deal worth around €60million (£50.`\
 https://nytimes.com/athletic/5633268/2024/07/21/moussa-diaby-transfer-al-ittihad/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/21/opinion/joe-biden-drops-out-2024-history.html
 **How McLaren tangled itself in F1 team orders — and why Norris let Piastri win**\
 `Lando Norris had to choose between "the right thing" and or boosting his own championship hopes. `\
 https://nytimes.com/athletic/5649420/2024/07/21/f1-oscar-piastri-hungary-win-lando-norris-mclaren/
-
-**Biden Made a Courageous Choice. Democrats Must Seize the Opportunity.**\
-`He did what Trump would never do: place the national interest above his own pride and ambition.`\
-https://nytimes.com/2024/07/21/opinion/editorials/joe-biden-drops-out-courage.html
-
-**Braves' Max Fried hits IL with nerve irritation in forearm**\
-`Fried's injury could make adding a starting pitcher before the trade deadline a priority for the Braves again.`\
-https://nytimes.com/athletic/5649418/2024/07/21/braves-max-fried-injury-2/
-
-**Tadej Pogacar Returns to the Top, Winning the Tour de France**\
-`Pogacar won his third Tour, beating his rival Jonas Vingegaard by 6:17 after a final time trial victory in Nice on Sunday.`\
-https://nytimes.com/2024/07/21/sports/cycling/pogacar-tour-de-france.html
 
