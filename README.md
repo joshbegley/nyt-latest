@@ -1,3 +1,7 @@
+**After Biden Drops Out, Trump Says He Was ‘Never’ Fit to Be President**\
+`In his first statement since President Biden dropped out of the race, the former president accused Democrats of covering up concerns about Biden’s age.`\
+https://nytimes.com/2024/07/21/us/politics/trump-reaction-biden-drop-out.html
+
 **Democratic Billionaires and Donors Rush to Back Harris After Biden’s Exit**\
 `Advisers and major givers said they were being inundated with enthusiasm and plans for donations to support Ms. Harris if she won the nomination.`\
 https://nytimes.com/2024/07/21/us/politics/democrat-donors-harris-biden.html
@@ -6,7 +10,7 @@ https://nytimes.com/2024/07/21/us/politics/democrat-donors-harris-biden.html
 `The only conversation the Democrats need to be having now is how to line up behind their Vice President.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/kamala-harris-replace-biden
 
-**Inside Biden’s Withdrawal: ‘I Need You and Mike at the House,’ He Told 2 Top Aides**\
+**Timeline: Inside Biden’s Withdrawal From the 2024 Race**\
 `President Biden did not tell most of his staff until a minute before making an announcement to the world on social media on Sunday. Vice President Kamala Harris, whom Mr. Biden went on to endorse, also learned of his decision on Sunday.`\
 https://nytimes.com/2024/07/21/us/politics/biden-withdrawal-timeline.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/21/us/politics/kamala-harris-nominee-president.html
 **On the Trail With Trump, Vance Shows He Knows His Place: Offstage, Mostly**\
 `JD Vance, the Republican nominee for vice president, was a mere warm-up act to Donald J. Trump at their first joint rally.`\
 https://nytimes.com/2024/07/21/us/politics/vance-trump-campaign-rally.html
-
-**Three Questions About What the Democrats Might Do Next**\
-`Many of our columnists, writers and contributors have spent the weeks since Biden’s debate debacle examining the possibilities.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/democrats-convention-biden-drop-out
 
