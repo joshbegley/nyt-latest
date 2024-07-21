@@ -1,3 +1,7 @@
+**Can Harris Inherit Biden’s Campaign Cash? Most Likely, Yes.**\
+`“In my view, this is not an open question,” said one Federal Election Commission member. But Republicans are likely to try to block the transfer.`\
+https://nytimes.com/2024/07/21/us/politics/harris-biden-campaign-money.html
+
 **On TV, weekend anchors scrambled to cover a political earthquake.**\
 `Major networks broke into regular programming as journalists abandoned Sunday plans and dialed in from home.`\
 https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/biden-drops-out-media
