@@ -1,3 +1,11 @@
+**What’s Next for the Harris Campaign**\
+`Vice President Kamala Harris faces many questions, from the management of her campaign to the selection of her running mate, should she be the Democratic Party’s nominee.`\
+https://nytimes.com/2024/07/21/us/politics/harris-campaign.html
+
+**Ozzie Albies fractures wrist, Braves expected to call up prospect Nacho Alvarez**\
+`Alvarez, 21, has been sensational since a midseason promotion from from Double A to Triple A.`\
+https://nytimes.com/athletic/5649723/2024/07/21/braves-ozzie-albies-nacho-alvarez/
+
 **‘Overjoyed.’ ‘Desperate.’ ‘Too Late.’ Democrats React to Biden’s Exit**\
 `Democratic voters said they were relieved that President Biden was ending his campaign, but many said they remain worried about the political path ahead.`\
 https://nytimes.com/2024/07/21/us/biden-voters-democrats.html
