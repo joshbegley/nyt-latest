@@ -1,4 +1,4 @@
-**Charlie Morton and Eddie Rosario showed Saturday that they still can help the Braves**\
+**Charlie Morton and Eddie Rosario showed Saturday they still can help the Braves**\
 `With Morton and Rosario excelling, you couldn't blame Braves fans who looked back to their World Series championship three years ago.`\
 https://nytimes.com/athletic/5648870/2024/07/20/braves-charlie-morton-eddie-rosario/
 
