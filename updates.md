@@ -1,3 +1,19 @@
+**A pro-Trump super PAC posted an ad attacking Harris.**\
+`By Maggie Haberman and Jonathan Swan`\
+https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/trump-kamala-harris-ad-pac
+
+**On Your Marks, Get Set, Serve!**\
+`Waiters in London competed in an annual footrace designed to test their mettle, their coordination and their skill as servers.`\
+https://nytimes.com/2024/07/21/world/europe/soho-london-waiters-race.html
+
+**Read Vice President Kamala Harris’s full statement.**\
+`In a five-paragraph statement, Ms. Harris hailed President Biden’s accomplishments and said she would run in his place.`\
+https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/read-vice-president-kamala-harriss-full-statement
+
+**As Biden Withdraws, Words of Praise and Caution**\
+`An early sampling of reactions to the president’s announcement.`\
+https://nytimes.com/2024/07/21/opinion/letters/biden-withdraws.html
+
 **Once Derided, Harris Suddenly Stands at Brink of Leading Democratic Ticket**\
 `Vice President Kamala Harris got off to a rocky start in office. She is now at the heart of a political drama that could make her the first Black woman to become a major party presidential nominee.`\
 https://nytimes.com/2024/07/21/us/politics/kamala-harris.html
