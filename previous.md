@@ -1,3 +1,7 @@
+**Charlie Morton and Eddie Rosario showed Saturday that they still can help the Braves**\
+`With Morton and Rosario excelling, you couldn't blame Braves fans who looked back to their World Series championship three years ago.`\
+https://nytimes.com/athletic/5648870/2024/07/20/braves-charlie-morton-eddie-rosario/
+
 **A Week After Shooting, Trump Leaves Unity Behind and Returns to Insults and Election Denial**\
 `A week after an assassination attempt led him to call for unity, former President Donald J. Trump returned to the campaign trail, lashing out at his rivals and claiming persecution.`\
 https://nytimes.com/2024/07/20/us/politics/trump-vance-michigan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5648781/2024/07/20/red-sox-joe-castiglione-hall-of-
 **After Fire Destroys Sanctuary, Landmark Dallas Church Mourns What’s Lost**\
 `As officials work to determine the cause, many lament the damage at First Baptist Dallas, a church that grew along with the downtown around it.`\
 https://nytimes.com/2024/07/20/us/first-baptist-dallas-fire.html
-
-**Before the Alec Baldwin Trial’s End, 2 Jurors Had Doubts About His Guilt**\
-`When the judge threw out the case, the jurors said, they had doubts that Mr. Baldwin was guilty of involuntary manslaughter in the fatal shooting of the cinematographer on the set of the film “Rust.”`\
-https://nytimes.com/2024/07/20/arts/alec-baldwin-rust-jurors.html
 
