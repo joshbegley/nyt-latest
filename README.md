@@ -1,3 +1,7 @@
+**Dodgers' Yoshinobu Yamamoto sets sights on 2024 return but timeline unclear**\
+`How hard the Dodgers will push to get him back is complicated: "You want to do what’s best for Yoshinobu."`\
+https://nytimes.com/athletic/5649715/2024/07/21/dodgers-yoshinobu-yamamoto-return/
+
 **Biden’s exit leads to the biggest day for Democratic donations online in years — $30 million and counting.**\
 `By Shane Goldmacher`\
 https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/bidens-exit-leads-to-the-biggest-day-for-democratic-donations-online-in-years
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/21/opinion/kamala-harris-joe-biden-drops-out.html
 **Biden’s announcement, and reactions, unfolded on X.**\
 `By Rebecca Robbins`\
 https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/bidens-announcement-and-reactions-unfolded-on-x
-
-**World Leaders, With Outlook Uncertain, Praise Biden but Speak Carefully**\
-`Foreign leaders did not wade into the turmoil of U.S. politics, opting instead for statements of empathy for a leader who reached the pinnacle of power only to find it necessary to bow out.`\
-https://nytimes.com/2024/07/21/world/europe/biden-election-world-leaders-reaction.html
 
