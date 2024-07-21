@@ -1,3 +1,7 @@
+**Once Derided, Harris Suddenly Stands at Brink of Leading Democratic Ticket**\
+`Vice President Kamala Harris got off to a rocky start in office. She is now at the heart of a political drama that could make her the first woman of color to become a major party presidential nominee.`\
+https://nytimes.com/2024/07/21/us/politics/kamala-harris.html
+
 **Monday Briefing: Biden Ends His Re-Election Bid**\
 `The president endorsed Vice President Kamala Harris to continue the race against Donald Trump.`\
 https://nytimes.com/2024/07/21/briefing/joe-biden-campaign-ends.html

@@ -31,7 +31,7 @@ https://nytimes.com/2024/07/21/world/europe/soho-london-waiters-race.html
 https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/read-vice-president-kamala-harriss-full-statement
 
 **Once Derided, Harris Suddenly Stands at Brink of Leading Democratic Ticket**\
-`Vice President Kamala Harris got off to a rocky start in office. She is now at the heart of a political drama that could make her the first Black woman to become a major party presidential nominee.`\
+`Vice President Kamala Harris got off to a rocky start in office. She is now at the heart of a political drama that could make her the first woman of color to become a major party presidential nominee.`\
 https://nytimes.com/2024/07/21/us/politics/kamala-harris.html
 
 **Kamala Harris Says She’s Running in Biden’s Place**\
