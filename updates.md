@@ -1,3 +1,7 @@
+**China Shows Few Signs of Tilting Economy Toward Consumers in New Plan**\
+`The Communist Party rebuffed calls from economists to shift away from investment-led growth and toward consumer spending.`\
+https://nytimes.com/2024/07/21/business/china-economy-third-plenum-decision.html
+
 **I Was a White House Doctor. Presidents Should Have to Take Cognitive Tests.**\
 `We need to rethink how we assess and evaluate physical and mental fitness for the presidency.`\
 https://nytimes.com/2024/07/21/opinion/president-physician-cognitive-testing.html
