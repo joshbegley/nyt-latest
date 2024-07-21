@@ -1,3 +1,7 @@
+**From Naples to New Orleans, Murder and Mayhem**\
+`Our crime columnist on four new novels.`\
+https://nytimes.com/2024/07/21/books/review/new-crime-fiction.html
+
 **Catching up with Cubs legend Jon Lester on David Ross, Justin Steele and the Hall of Fame**\
 `Lester is beginning a trial run as an analyst for Marquee Sports Network and could get Hall of Fame consideration.`\
 https://nytimes.com/athletic/5648880/2024/07/21/cubs-jon-lester-david-ross-justin-steele-hall-of-fame/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/21/crosswords/connections-companion-407.html
 **Wordle Review No. 1,129, Monday, July 22, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/21/crosswords/wordle-review-1129.html
-
-**Bangladesh Scales Back Policy on Public-Sector Hiring That Sparked Unrest**\
-`A court ruling has sharply reduced a quota system for filling government jobs, after protests over the issue turned violent and were brutally suppressed.`\
-https://nytimes.com/2024/07/21/world/asia/bangladesh-quota-court-ruling.html
 
