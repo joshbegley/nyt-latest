@@ -1,3 +1,7 @@
+**Quotation of the Day: Methadone Vans Aim to Bring Help Closer to Addicts**\
+`Quotation of the Day for Sunday, July 21, 2024.`\
+https://nytimes.com/2024/07/21/pageoneplus/quotation-of-the-day-methadone-vans-aim-to-bring-help-closer-to-addicts.html
+
 **Eight Decades Later, a Celebration of Faith Renewed**\
 `More than 50,000 American Catholics gathered at the first National Eucharistic Congress since the 1940s.`\
 https://nytimes.com/2024/07/21/us/national-eucharist-congress-catholics.html
