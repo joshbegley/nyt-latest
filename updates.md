@@ -1,3 +1,7 @@
+**Open Championship analysis: What to know about Round 3 at Royal Troon**\
+`Horschel leads after three rounds at Royal Troon, but six players are just one stroke back.`\
+https://nytimes.com/athletic/5648771/2024/07/20/open-championship-round-3-analysis-horschel-lowry/
+
 **Joe Castiglione joins Red Sox greats in Cooperstown. Fittingly, he'll decide exit plan**\
 `Castiglione, who made all the great Red Sox radio calls since '83, received the Hall of Fame’s Ford C. Frick Award for broadcasters.`\
 https://nytimes.com/athletic/5648781/2024/07/20/red-sox-joe-castiglione-hall-of-fame-ford-frick-award/
