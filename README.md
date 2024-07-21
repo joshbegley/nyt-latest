@@ -1,3 +1,7 @@
+**Israeli Strike on Yemeni Port Will Harm Civilians, Not Houthis, Experts Say**\
+`Israel’s counterattack on the Houthis, which set a vital Yemeni port ablaze, will do little to deter the militia, Yemeni and international experts said.`\
+https://nytimes.com/2024/07/21/world/middleeast/israel-yemen-hudaydah-port.html
+
 **At a rally, Trump jeered at the Democratic Party’s infighting. Here’s the latest.**\
 `Former Pr`\
 https://nytimes.com/live/2024/07/21/us/trump-biden-election/at-a-rally-trump-jeered-at-the-democratic-partys-infighting-heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5648880/2024/07/21/cubs-jon-lester-david-ross-justi
 **Blackhawks first-round pick Sacha Boisvert: Q&A, highlights, projection**\
 `Chicago traded up two spots and took Boisvert. Here's what to know about the forward headed to the University of North Dakota.`\
 https://nytimes.com/athletic/5633068/2024/07/21/blackhawks-prospects-sacha-boisvert/
-
-**Democratic Elites Were Slow to See What Voters Already Knew**\
-`Be skeptical when you hear that this is all a plot.`\
-https://nytimes.com/2024/07/21/opinion/biden-aoc-democratic-elites.html
 
