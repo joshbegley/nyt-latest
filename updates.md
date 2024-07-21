@@ -1,3 +1,11 @@
+**Clintons Endorse Kamala Harris to Be Democrats’ Nominee for President**\
+`The former president and the former secretary of state swiftly backed Vice President Kamala Harris to replace President Biden atop the Democratic ticket.`\
+https://nytimes.com/2024/07/21/us/politics/clintons-kamala-harris-endorsement.html
+
+**Democratic Voters Express Relief and Optimism at Biden’s Announcement**\
+`Several ardent Democrats said they were grateful to the president for stepping aside and enthusiastic about Kamala Harris as his replacement in the race.`\
+https://nytimes.com/2024/07/21/us/politics/democrat-voters-react-biden.html
+
 **After Biden Drops Out, Trump Says He Was ‘Never’ Fit to Be President**\
 `In his first statement since President Biden dropped out of the race, the former president accused Democrats of covering up concerns about Biden’s age.`\
 https://nytimes.com/2024/07/21/us/politics/trump-reaction-biden-drop-out.html
