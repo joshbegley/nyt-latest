@@ -1,3 +1,7 @@
+**With Biden Out, What Happens Next? Here’s What We Know.**\
+`Democrats are gaming out scenarios, some of them more likely than others. One thing is clear: Kamala Harris has the inside lane.`\
+https://nytimes.com/article/biden-drop-out-nomination-delegates-harris.html
+
 **Clintons Endorse Kamala Harris to Be Democrats’ Nominee for President**\
 `The former president and the former secretary of state swiftly backed Vice President Kamala Harris to replace President Biden atop the Democratic ticket.`\
 https://nytimes.com/2024/07/21/us/politics/clintons-kamala-harris-endorsement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/21/us/truman-johnson-president-stepped-aside.html
 **How Kamala Harris Performs Against Donald Trump in the Polls**\
 `The vice president could enter the general election campaign in a better position than President Biden.`\
 https://nytimes.com/2024/07/21/us/politics/kamala-harris-trump-polls.html
-
-**European politicians and analysts are praising Biden for leaving the race.**\
-`By Steven Erlanger`\
-https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/european-politicians-and-analysts-are-praising-biden-for-leaving-the-race
 
