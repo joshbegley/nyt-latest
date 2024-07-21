@@ -1,3 +1,7 @@
+**Xander Schauffele wins Open Championship for major win No. 2**\
+`Schauffele made three birdies in five holes on the back nine at Royal Troon to win his second career major.`\
+https://nytimes.com/athletic/5649356/2024/07/21/xander-schauffele-open-championship-win-royal-troon/
+
 **Review: A Lost Opera Returns, and Shouldn’t Be Lost Again**\
 `Teatro Nuovo is giving Carolina Uccelli’s pioneering “Anna di Resburgo” its first performances since its premiere in 1835.`\
 https://nytimes.com/2024/07/21/arts/music/uccelli-anna-di-resburgo-teatro-nuovo.html

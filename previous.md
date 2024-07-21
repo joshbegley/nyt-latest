@@ -1,3 +1,7 @@
+**Xander Schauffele wins Open Championship for major win No. 2**\
+`Schauffele made three birdies in five holes on the back nine at Royal Troon to win his second career major.`\
+https://nytimes.com/athletic/5649356/2024/07/21/xander-schauffele-open-championship-win-royal-troon/
+
 **Review: A Lost Opera Returns, and Shouldn’t Be Lost Again**\
 `Teatro Nuovo is giving Carolina Uccelli’s pioneering “Anna di Resburgo” its first performances since its premiere in 1835.`\
 https://nytimes.com/2024/07/21/arts/music/uccelli-anna-di-resburgo-teatro-nuovo.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5648202/2024/07/21/oilers-bakersfield-condors-matt-
 **Oscar Piastri wins the Hungarian GP**\
 `The Australian rookie finished ahead of teammate Lando Norris in a finish that tested their bond as teammates.`\
 https://nytimes.com/athletic/5649234/2024/07/21/lando-norris-oscar-piastri-win-hungarian-gp-f1/
-
-**Arsenal name youthful U.S. tour squad with Smith Rowe, Nelson, Nketiah included**\
-`Arsenal have named their 26-man squad for the pre-season tour of the United States with Emile Smith Rowe, Reiss Nelson and Eddie Nketiah travelling despite there being transfer interest in all three.`\
-https://nytimes.com/athletic/5649198/2024/07/21/arsenal-us-tour-squad-smith-rowe/
 
