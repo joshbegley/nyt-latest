@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: Projecting the lineup while awaiting a coaching hire**\
+`How we see the Blue Jackets' forward lines, defensive pairs and goaltending aligning this upcoming season.`\
+https://nytimes.com/athletic/5648440/2024/07/21/blue-jackets-lineup-coach/
+
 **Thom Brennaman returning to broadcasting with The CW**\
 `If The CW is his only opportunity and he ends his career with them, Brennaman said he will be eternally grateful.`\
 https://nytimes.com/athletic/5648471/2024/07/21/thom-brennaman-broadcasting-return-cw/

@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: Projecting the lineup while awaiting a coaching hire**\
+`How we see the Blue Jackets' forward lines, defensive pairs and goaltending aligning this upcoming season.`\
+https://nytimes.com/athletic/5648440/2024/07/21/blue-jackets-lineup-coach/
+
 **Thom Brennaman returning to broadcasting with The CW**\
 `If The CW is his only opportunity and he ends his career with them, Brennaman said he will be eternally grateful.`\
 https://nytimes.com/athletic/5648471/2024/07/21/thom-brennaman-broadcasting-return-cw/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5649198/2024/07/21/arsenal-us-tour-squad-smith-rowe
 **Utah State CB Andre Seldon Jr. dies at 22**\
 `USU officials learned he was found by the Utah Department of Public Safety dive team, the school said in a statement.`\
 https://nytimes.com/athletic/5648995/2024/07/21/andre-seldon-jr-death-utah-state/
-
-**China Shows Few Signs of Tilting Economy Toward Consumers in New Plan**\
-`The Communist Party rebuffed calls from economists to shift away from investment-led growth and toward consumer spending.`\
-https://nytimes.com/2024/07/21/business/china-economy-third-plenum-decision.html
 
