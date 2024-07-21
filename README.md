@@ -1,3 +1,7 @@
+**Biden and Georgia Are Waging a Fight Over Medicaid and the Future of Obamacare**\
+`A fierce battle with Georgia over a Medicaid experiment with stricter enrollment underscores the vast divide between parties over how to cover lower-income Americans.`\
+https://nytimes.com/2024/07/21/us/politics/biden-georgia-medicaid-obamacare.html
+
 **Xander Schauffele wins Open Championship for major win No. 2**\
 `Schauffele made three birdies in five holes on the back nine at Royal Troon to win his second career major.`\
 https://nytimes.com/athletic/5649356/2024/07/21/xander-schauffele-open-championship-win-royal-troon/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/21/dining/roasted-salmon-plus-more-recipes.html
 **Lowetide: Oilers have major scoring talent ticketed for the AHL in 2024-25**\
 `Matt Savoie not having an NHL job entering camp despite his special talent is a rare thing in Oilers history.`\
 https://nytimes.com/athletic/5648202/2024/07/21/oilers-bakersfield-condors-matt-savoie/
-
-**Oscar Piastri wins the Hungarian GP**\
-`The Australian rookie finished ahead of teammate Lando Norris in a finish that tested their bond as teammates.`\
-https://nytimes.com/athletic/5649234/2024/07/21/lando-norris-oscar-piastri-win-hungarian-gp-f1/
 
