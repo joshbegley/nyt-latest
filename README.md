@@ -1,3 +1,11 @@
+**Biden’s exit leads to the biggest day for Democratic donations online in years — $30 million and counting.**\
+`By Shane Goldmacher`\
+https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/bidens-exit-leads-to-the-biggest-day-for-democratic-donations-online-in-years
+
+**Major news story? Let's tune in to Nick Castellanos' next at-bat**\
+`It's gotten to the point where seemingly every noteworthy occurrence is followed by a drive into deep left field by Castellanos.`\
+https://nytimes.com/athletic/5649648/2024/07/21/nick-castellanos-major-news-story/
+
 **Astros All-Star Yordan Alvarez hits for cycle vs. Mariners**\
 `Alvarez’s cycle is the first of his career and the first by an Astro since Jose Altuve's last season at Fenway Park.`\
 https://nytimes.com/athletic/5649713/2024/07/21/yordan-alvarez-astros-cycle/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/bidens-announcem
 **World Leaders, With Outlook Uncertain, Praise Biden but Speak Carefully**\
 `Foreign leaders did not wade into the turmoil of U.S. politics, opting instead for statements of empathy for a leader who reached the pinnacle of power only to find it necessary to bow out.`\
 https://nytimes.com/2024/07/21/world/europe/biden-election-world-leaders-reaction.html
-
-**Beltré, Mauer, Helton, Leyland inducted into Baseball Hall of Fame**\
-`Hall of Famers Adrián Beltré, Joe Mauer, Todd Helton and Jim Leyland officially took their places among the game's immortals in Cooperstown.`\
-https://nytimes.com/athletic/5648473/2024/07/21/baseball-hall-of-fame-induction-2024/
-
-**Can Harris Inherit Biden’s Campaign Cash? Most Likely, Yes.**\
-`“In my view, this is not an open question,” said one Federal Election Commission member. But Republicans are likely to try to block the transfer.`\
-https://nytimes.com/2024/07/21/us/politics/harris-biden-campaign-money.html
 
