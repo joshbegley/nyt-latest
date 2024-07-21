@@ -1,3 +1,15 @@
+**Eight Decades Later, a Celebration of Faith Renewed**\
+`More than 50,000 American Catholics gathered at the first National Eucharistic Congress since the 1940s.`\
+https://nytimes.com/2024/07/21/us/national-eucharist-congress-catholics.html
+
+**Cars, but Make It Fashion**\
+`Ferrari has positioned itself as a high-end fashion and lifestyle brand that appeals to more than just Formula 1 fans. Could Jeep follow that lead?`\
+https://nytimes.com/2024/07/21/style/ferrari-jeep-fashion.html
+
+**For Fashion, Sports Stars Are the New Superstars**\
+`Here’s why, and how the balance of power between individual brand and company brand is changing.`\
+https://nytimes.com/2024/07/21/style/fashion-sports-stars-ambassadors.html
+
 **The Kingmakers**\
 `The French agency L’AM specializes in connecting elite athletes with luxury fashion brands.`\
 https://nytimes.com/2024/07/21/style/lam-teddy-riner-charles-leclerc-joseph-delbadjo.html
