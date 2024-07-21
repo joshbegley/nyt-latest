@@ -11,7 +11,7 @@ https://nytimes.com/2024/07/20/us/first-baptist-dallas-fire.html
 https://nytimes.com/2024/07/20/arts/alec-baldwin-rust-jurors.html
 
 **Open Championship analysis: What to know about Round 3 at Royal Troon**\
-`Billy Horschel leads after three rounds at Royal Troon, but a group of six are one stroke back.`\
+`Horschel leads after three rounds at Royal Troon, but six players are just one stroke back.`\
 https://nytimes.com/athletic/5648771/2024/07/20/open-championship-round-3-analysis-horschel-lowry/
 
 **How to Guard Against Scams Tied to the CrowdStrike Crash**\
