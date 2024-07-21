@@ -1,3 +1,7 @@
+**World Leaders, With Outlook Uncertain, Praise Biden but Speak Carefully**\
+`Foreign leaders did not wade into the turmoil of U.S. politics, opting instead for statements of empathy for a leader who reached the pinnacle of power only to find it necessary to bow out.`\
+https://nytimes.com/2024/07/21/world/europe/biden-election-world-leaders-reaction.html
+
 **Can Harris Inherit Biden’s Campaign Cash? Most Likely, Yes.**\
 `“In my view, this is not an open question,” said one Federal Election Commission member. But Republicans are likely to try to block the transfer.`\
 https://nytimes.com/2024/07/21/us/politics/harris-biden-campaign-money.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/most-hill-democr
 **Monday Briefing: Biden Ends His Re-Election Bid**\
 `The president endorsed Vice President Kamala Harris to continue the race against Donald Trump.`\
 https://nytimes.com/2024/07/21/briefing/joe-biden-campaign-ends.html
-
-**The Northwest Bakes as the Region Faces Hotter, Longer Heat Waves**\
-`Inland areas farther from the coast are facing particularly dangerous conditions this weekend, forecasters say.`\
-https://nytimes.com/2024/07/21/us/heat-wave-forecast-washington-oregon-idaho.html
 
