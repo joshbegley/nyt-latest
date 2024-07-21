@@ -1,3 +1,7 @@
+**Chiefs first camp practice: Patrick Mahomes rejoices deep connection with WR Xavier Worthy**\
+`In a practice that was a little more than an hour of on-field work, Mahomes and Worthy produced a couple highlights.`\
+https://nytimes.com/athletic/5649616/2024/07/21/chiefs-first-practice-patrick-mahomes-xavier-worthy/
+
 **Biden Drops His Bid for Re-Election**\
 `A special edition of The Evening on the president’s decision and what comes next.`\
 https://nytimes.com/2024/07/21/briefing/biden-drops-his-bid-for-re-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/21/us/politics/kamala-harris-economy.html
 **Open Championship analysis: 10 things to know about Xander Schauffele's win**\
 `Schauffele shot a 65 in the final round to win for the second major this season, something no one else has ever done.`\
 https://nytimes.com/athletic/5649581/2024/07/21/open-championship-analysis-xander-schauffele-win/
-
-**A pro-Trump super PAC posted an ad attacking Harris.**\
-`By Maggie Haberman and Jonathan Swan`\
-https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/trump-kamala-harris-ad-pac
 

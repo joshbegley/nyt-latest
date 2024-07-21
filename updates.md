@@ -1,3 +1,7 @@
+**Chiefs first camp practice: Patrick Mahomes rejoices deep connection with WR Xavier Worthy**\
+`In a practice that was a little more than an hour of on-field work, Mahomes and Worthy produced a couple highlights.`\
+https://nytimes.com/athletic/5649616/2024/07/21/chiefs-first-practice-patrick-mahomes-xavier-worthy/
+
 **'The cork is out': Xander Schauffele, 2-time major champion, is a different golfer now**\
 `In 2 months Schauffele has gone from zero majors to two. How he won on Sunday at Royal Troon showed he's found what it takes to win now.`\
 https://nytimes.com/athletic/5649614/2024/07/21/xander-schauffele-open-championship-golf-major/
