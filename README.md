@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5649616/2024/07/21/chiefs-first-practice-patrick-ma
 https://nytimes.com/2024/07/21/briefing/biden-drops-his-bid-for-re-election.html
 
 **'The cork is out': Xander Schauffele, 2-time major champion, is a different golfer now**\
-`In 2 months Schauffele has gone from zero majors to two. How he won Sunday at Royal Troon showed he's found what it takes to win now.`\
+`In two months Schauffele has gone from zero majors to two. How he won Sunday at Royal Troon showed he's found what it takes to win now.`\
 https://nytimes.com/athletic/5649614/2024/07/21/xander-schauffele-open-championship-golf-major/
 
 **What 4 Key Democratic Governors Have Said About Biden Dropping Out**\
