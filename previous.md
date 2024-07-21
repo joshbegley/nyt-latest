@@ -1,3 +1,11 @@
+**Jadon Sancho, Amad and the battle out wide at Manchester United**\
+`Leny Yoro's first game for United was supposed to be the main attraction but the performance of the wingers was an interesting subplot`\
+https://nytimes.com/athletic/5648747/2024/07/21/sancho-amad-manchester-united/
+
+**Ten Hag: Man Utd must sell players to help with further signings**\
+`Erik ten Hag says Manchester United need to sell players in order to raise funds for further signings this summer.`\
+https://nytimes.com/athletic/5649075/2024/07/21/erik-ten-hag-manchester-united-signings/
+
 **From Naples to New Orleans, Murder and Mayhem**\
 `Our crime columnist on four new novels.`\
 https://nytimes.com/2024/07/21/books/review/new-crime-fiction.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/21/opinion/jd-vance-kamala-harris.html
 **Aaron Sorkin: How I Would Script This Moment for Biden and the Democrats**\
 `What would President Bartlet do?`\
 https://nytimes.com/2024/07/21/opinion/biden-west-wing-aaron-sorkin.html
-
-**The Connections Companion No. 407, July 22, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/21/crosswords/connections-companion-407.html
-
-**Wordle Review No. 1,129, Monday, July 22, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/21/crosswords/wordle-review-1129.html
 
