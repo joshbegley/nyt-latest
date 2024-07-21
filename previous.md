@@ -1,3 +1,7 @@
+**Manchin has joined calls in the Senate for Biden to withdraw his candidacy.**\
+`By Luke Broadwater`\
+https://nytimes.com/live/2024/07/21/us/trump-biden-election/manchin-has-joined-calls-in-the-senate-for-biden-to-withdraw-his-candidacy
+
 **Submit MLB trade deadline questions, trade proposals for Jim Bowden's mailbag**\
 `Former GM Jim Bowden will answer subscribers' trade deadline questions and share his thoughts on their trade proposals in his next mailbag. `\
 https://nytimes.com/athletic/5649252/2024/07/21/submit-mlb-trade-deadline-questions-trade-proposals-for-jim-bowdens-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/21/business/china-economy-third-plenum-decision.html
 **I Was a White House Doctor. Presidents Should Have to Take Cognitive Tests.**\
 `We need to rethink how we assess and evaluate physical and mental fitness for the presidency.`\
 https://nytimes.com/2024/07/21/opinion/president-physician-cognitive-testing.html
-
-**Israeli Strike on Yemeni Port Will Harm Civilians, Not Houthis, Experts Say**\
-`Israel’s counterattack on the Houthis, which set a vital Yemeni port ablaze, will do little to deter the militia, Yemeni and international experts said.`\
-https://nytimes.com/2024/07/21/world/middleeast/israel-yemen-hudaydah-port.html
 

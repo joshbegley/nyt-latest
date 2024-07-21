@@ -1,3 +1,7 @@
+**Manchin has joined calls in the Senate for Biden to withdraw his candidacy.**\
+`By Luke Broadwater`\
+https://nytimes.com/live/2024/07/21/us/trump-biden-election/manchin-has-joined-calls-in-the-senate-for-biden-to-withdraw-his-candidacy
+
 **Submit MLB trade deadline questions, trade proposals for Jim Bowden's mailbag**\
 `Former GM Jim Bowden will answer subscribers' trade deadline questions and share his thoughts on their trade proposals in his next mailbag. `\
 https://nytimes.com/athletic/5649252/2024/07/21/submit-mlb-trade-deadline-questions-trade-proposals-for-jim-bowdens-mailbag/
