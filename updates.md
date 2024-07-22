@@ -1,3 +1,11 @@
+**Padres takeaways: What is the value of Michael King’s efficiency?**\
+`Notes on how King is making the most of his innings and on who would start a potential Game 2 in the postseason.`\
+https://nytimes.com/athletic/5648983/2024/07/22/padres-takeaways-michael-king-innings/
+
+**Three Dodgers takeaways: Gavin Lux's surge, rotation is a trade deadline priority and more**\
+`Lux got off to a hot start in the second half and Clayton Kershaw is joining the rotation. But the Dodgers front office should be busy soon.`\
+https://nytimes.com/athletic/5650013/2024/07/22/dodgers-takeaways-gavin-lux-rotation-bullpen/
+
 **LeBron to carry U.S. flag at Paris opening ceremony**\
 `James was selected by a vote of all Team USA athletes competing in the Paris Olympics.`\
 https://nytimes.com/athletic/5650284/2024/07/22/lebron-james-us-olympics-flag-bearer-paris/

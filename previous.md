@@ -1,3 +1,11 @@
+**Padres takeaways: What is the value of Michael King’s efficiency?**\
+`Notes on how King is making the most of his innings and on who would start a potential Game 2 in the postseason.`\
+https://nytimes.com/athletic/5648983/2024/07/22/padres-takeaways-michael-king-innings/
+
+**Three Dodgers takeaways: Gavin Lux's surge, rotation is a trade deadline priority and more**\
+`Lux got off to a hot start in the second half and Clayton Kershaw is joining the rotation. But the Dodgers front office should be busy soon.`\
+https://nytimes.com/athletic/5650013/2024/07/22/dodgers-takeaways-gavin-lux-rotation-bullpen/
+
 **LeBron to carry U.S. flag at Paris opening ceremony**\
 `James was selected by a vote of all Team USA athletes competing in the Paris Olympics.`\
 https://nytimes.com/athletic/5650284/2024/07/22/lebron-james-us-olympics-flag-bearer-paris/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5649694/2024/07/22/ravens-lamar-jackson-john-harbau
 **Two Astros takeaways: Hunter Brown's rise, how luxury tax could impact the trade deadline**\
 `With Houston now in a tie for first in the AL West, the Astros will look to add at the deadline. But how much extra money will they take on?`\
 https://nytimes.com/athletic/5649838/2024/07/22/astros-luxury-tax-trade-deadline-hunter-brown/
-
-**Cardinals trade deadline takeaways: 3 ways to improve the roster**\
-`Expect the Cardinals to explore upper-to-middle rotation arms and an outfielder with power as the deadline approaches.`\
-https://nytimes.com/athletic/5648538/2024/07/22/cardinals-trade-deadline-targets/
-
-**Blues' Jake Neighbours is putting in the work this summer to prove last season was no fluke**\
-`The 22-year-old forward scored 27 goals last season, and with no recent contract talks, he could be in for a big payday next summer.`\
-https://nytimes.com/athletic/5643775/2024/07/22/blues-jake-neighbours-stats/
 
