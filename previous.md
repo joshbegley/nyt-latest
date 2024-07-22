@@ -1,3 +1,11 @@
+**How to Eat Like You’re in Paris for the Olympics**\
+`Dorie Greenspan, a beloved cookbook author and longtime Paris resident, knows that the French way of snacking is also the easiest.`\
+https://nytimes.com/2024/07/22/dining/how-to-eat-and-cook-paris-olympics-2024.html
+
+**The Bounce: Your WNBA stretch-run primer**\
+`Zach Harper catches you up on league-wide news.`\
+https://nytimes.com/athletic/5650446/2024/07/22/caitlin-clark-angel-reese-wnba-all-star-olympics-nba-summer-league-the-bounce/
+
 **SoftBank’s Chief Pitches a New Path for Self-Driving Cars**\
 `Masayoshi Son, the billionaire founder of SoftBank, is trying to rally automakers around the world to join forces on autonomous-driving technologies.`\
 https://nytimes.com/2024/07/22/business/softbank-self-driving-cars.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/22/us/politics/trump-truth-social-biden-drop-out.htm
 **Projecting the Jets’ opening-night roster in 2024, 2025 and 2026**\
 `Step by step, decision by decision and with aging curves considered, let's project the Jets' future for the next three seasons.`\
 https://nytimes.com/athletic/5643784/2024/07/22/winnipeg-jets-roster-2024-2025-2026/
-
-**Packers QB Love won't practice until he gets new contract**\
-`Green Bay Packers quarterback Jordan Love will not practice until he gets a contract extension, general manager Brian Gutekunst said Monday.`\
-https://nytimes.com/athletic/5650668/2024/07/22/jordan-love-contract-green-bay-packers/
-
-**‘Homicide: Life on the Street’ Will Finally Be Available to Stream**\
-`The celebrated 1990s police procedural is coming to Peacock in August.`\
-https://nytimes.com/2024/07/22/arts/television/homicide-life-on-the-street-streaming-peacock.html
 

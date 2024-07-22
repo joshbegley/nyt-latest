@@ -1,3 +1,11 @@
+**How to Eat Like You’re in Paris for the Olympics**\
+`Dorie Greenspan, a beloved cookbook author and longtime Paris resident, knows that the French way of snacking is also the easiest.`\
+https://nytimes.com/2024/07/22/dining/how-to-eat-and-cook-paris-olympics-2024.html
+
+**The Bounce: Your WNBA stretch-run primer**\
+`Zach Harper catches you up on league-wide news.`\
+https://nytimes.com/athletic/5650446/2024/07/22/caitlin-clark-angel-reese-wnba-all-star-olympics-nba-summer-league-the-bounce/
+
 **SoftBank’s Chief Pitches a New Path for Self-Driving Cars**\
 `Masayoshi Son, the billionaire founder of SoftBank, is trying to rally automakers around the world to join forces on autonomous-driving technologies.`\
 https://nytimes.com/2024/07/22/business/softbank-self-driving-cars.html
