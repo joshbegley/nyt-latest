@@ -1,3 +1,7 @@
+**Bowden: Why the rebuilding White Sox, A's and Tigers should trade their star pitchers**\
+`Jim Bowden explains why all three teams should try to trade their young pitching stars now if they can get the right value in return. `\
+https://nytimes.com/athletic/5650347/2024/07/22/rebuilding-mlb-team-trades-white-sox-athletics-tigers/
+
 **Live Updates: Secret Service Chief Set to Testify ‘We Failed’ at Trump Rally**\
 `Kimberly A. Cheatle intends to take “full responsibility” for security lapses, according to an excerpt of remarks she will give before a congressional committee on Monday.`\
 https://nytimes.com/live/2024/07/22/us/secret-service-hearing-trump-cheatle
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/22/nyregion/adams-ccrb-chairwoman.html
 **How Well Do You Know Literary Brooklyn?**\
 `This bustling borough of New York City has been the setting for many novels — including the books in this short quiz.`\
 https://nytimes.com/interactive/2024/07/22/books/review/brooklyn-books-quiz.html
-
-**WSL 2024-25 fixtures: Arsenal host Man City on opening weekend**\
-`The Women&#8217;s Super League (WSL) fixtures for the 2024-25 season have been released, with Arsenal hosting Manchester City on the opening weekend.`\
-https://nytimes.com/athletic/5650454/2024/07/22/womens-super-league-fixtures-2024-25/
 

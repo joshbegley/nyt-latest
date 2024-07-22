@@ -1,3 +1,7 @@
+**Bowden: Why the rebuilding White Sox, A's and Tigers should trade their star pitchers**\
+`Jim Bowden explains why all three teams should try to trade their young pitching stars now if they can get the right value in return. `\
+https://nytimes.com/athletic/5650347/2024/07/22/rebuilding-mlb-team-trades-white-sox-athletics-tigers/
+
 **Live Updates: Secret Service Chief Set to Testify ‘We Failed’ at Trump Rally**\
 `Kimberly A. Cheatle intends to take “full responsibility” for security lapses, according to an excerpt of remarks she will give before a congressional committee on Monday.`\
 https://nytimes.com/live/2024/07/22/us/secret-service-hearing-trump-cheatle
