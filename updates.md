@@ -1,3 +1,7 @@
+**Chair of Police Oversight Board Resigns After Mayor Adams Pushes Her Out**\
+`Arva Rice, who led the Civilian Complaint Review Board, had criticized the Police Department and sought more power and funding for the independent agency.`\
+https://nytimes.com/2024/07/22/nyregion/adams-ccrb-chairwoman.html
+
 **How Well Do You Know Literary Brooklyn?**\
 `This bustling borough of New York City has been the setting for many novels — including the books in this short quiz.`\
 https://nytimes.com/interactive/2024/07/22/books/review/brooklyn-books-quiz.html
