@@ -1,3 +1,7 @@
+**Why Obama hasn’t endorsed Harris.**\
+`The former president has positioned himself as an impartial elder statesman above intraparty machinations and was neutral during the 2020 Democratic primaries.`\
+https://nytimes.com/2024/07/21/us/politics/why-obama-hasnt-endorsed-harris.html
+
 **Kamala Harris Rapidly Picks Up Democratic Support as 2024 Race Is Reborn**\
 `Endorsements cascaded in as the vice president took swift control of the Biden campaign in a transformed contest, though Democrats including Barack Obama did not immediately back her.`\
 https://nytimes.com/2024/07/21/us/politics/harris-democrats-campaign-nominee-biden.html

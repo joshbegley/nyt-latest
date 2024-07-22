@@ -4,7 +4,7 @@ https://nytimes.com/2024/07/21/us/politics/harris-democrats-campaign-nominee-bid
 
 **Why Obama hasn’t endorsed Harris.**\
 `The former president has positioned himself as an impartial elder statesman above intraparty machinations and was neutral during the 2020 Democratic primaries.`\
-https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/why-obama-hasnt-endorsed-harris
+https://nytimes.com/2024/07/21/us/politics/why-obama-hasnt-endorsed-harris.html
 
 **Shohei Ohtani blasts 473-foot home run at Dodger Stadium**\
 `It marked the farthest home run hit at Dodger Stadium since Stanton’s 475-foot blast in 2015.`\
