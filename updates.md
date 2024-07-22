@@ -1,3 +1,19 @@
+**What to expect from Scott Parker's Burnley as they plot immediate return to Premier League**\
+`The club's new head coach is not without flaws but history shows he understands how to guide Championship clubs to promotion `\
+https://nytimes.com/athletic/5649111/2024/07/22/scott-parker-burnley-what-to-expect/
+
+**After Stefan Bajcetic's long road to fitness, where does he fit in at Liverpool?**\
+`Stefan Bajcetic's battle for fitness and what his future entails`\
+https://nytimes.com/athletic/5635222/2024/07/22/liverpool-rebuilding-stefan-bajcetic/
+
+**Who is Jack Wilson, Wolves' first set-piece coach?**\
+`Wilson, who started his career in Scotland and went on to work for Brentford and Manchester City, will oversee Wolves' set-piece strategy`\
+https://nytimes.com/athletic/5647329/2024/07/22/jack-wilson-wolves-manchester-city-brentford/
+
+**Arsenal's Myles Lewis-Skelly and mum Marcia, an unlikely footballing double act**\
+`The teenager's mum had little interest in football but has become a qualified agent in an attempt to help her son`\
+https://nytimes.com/athletic/5649065/2024/07/22/myles-lewis-skelly-marcia-agent/
+
 **Special report: Why is snus rife in football?**\
 `For years it has been known that many footballers use snus, but in this special report we try to understand the reasons why`\
 https://nytimes.com/athletic/5529700/2024/07/22/special-report-why-is-snus-rife-in-football/
