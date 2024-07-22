@@ -1,3 +1,7 @@
+**Rob Dillingham flourishes in summer-league finale, giving a glimpse of what he can become**\
+`The Wolves do not need Dillingham to be an All-Star right away, but they do need him to be a factor on a very good team.`\
+https://nytimes.com/athletic/5649925/2024/07/22/rob-dillingham-timberwolves-flourishes-summer-league/
+
 **Chair of Police Oversight Board Resigns After Mayor Adams Pushes Her Out**\
 `Arva Rice, who led the Civilian Complaint Review Board, had criticized the Police Department and sought more power and funding for the independent agency.`\
 https://nytimes.com/2024/07/22/nyregion/adams-ccrb-chairwoman.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/22/learning/word-of-the-day-futile.html
 **The Athletic FC: Why snus 'a huge problem,' United eye Obi-Martin, a pre-season wonder goal**\
 `Today in The Athletic FC: Why nicotine pouches are a 'huge problem' for players. Plus: Tyler Adams' latest surgery and a pre-season worldie.`\
 https://nytimes.com/athletic/5650211/2024/07/22/snus-huge-problem-united-obi-martin-the-athletic-fc/
-
-**Paul Watson, Anti-Whaling Activist, Is Detained in Greenland**\
-`Mr. Watson, the founder of the conservation group Sea Shepherd, was arrested when his boat docked in Nuuk. He could face extradition to Japan.`\
-https://nytimes.com/2024/07/22/world/europe/paul-watson-whaling-arrest-greenland.html
 
