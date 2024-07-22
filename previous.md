@@ -1,3 +1,15 @@
+**Which Country Will Win the Paris Olympics? Don’t Just Count Medals.**\
+`Conventional ranking methods are flawed, but there’s a better way.`\
+https://nytimes.com/2024/07/22/opinion/paris-olympics-medals-winner.html
+
+**‘Politics Is About Tomorrow, Not Yesterday’**\
+`Joe Biden must have accepted that he is yesterday, and chose to let the party move on.`\
+https://nytimes.com/2024/07/22/opinion/joe-biden-lyndon-johnson-truman.html
+
+**Biden’s Resignation, a Reporter’s Call to Action**\
+`Reid J. Epstein, a politics reporter at The New York Times, had just finished eating cupcakes at his son’s birthday party when he saw Biden’s bombshell announcement. He raced home, and got to work.`\
+https://nytimes.com/2024/07/22/insider/how-times-reporter-covered-biden-dropping-out.html
+
 **U.S. Olympic Committee Sues Logan Paul’s Drink Company**\
 `The suit accuses Prime Hydration of using trademarked terms including “Olympic” and “Team USA” to promote a sports drink that features Kevin Durant.`\
 https://nytimes.com/2024/07/22/us/logan-paul-prime-lawsuit-olympic-committee.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/22/us/politics/uss-cole-bombing-trial.html
 **The Spotlight Turns to Kamala Harris**\
 `Readers differ on whether she is the best Democratic candidate and praise President Biden for putting patriotism over pride.`\
 https://nytimes.com/2024/07/22/opinion/letters/joe-biden-kamala-harris.html
-
-**Duke Fakir, Last Surviving Member of the Four Tops, Dies at 88**\
-`He sang tenor on hits like “Standing in the Shadow of Love,” “Reach Out, I’ll Be There” and “I Can’t Help Myself (Sugar Pie Honey Bunch).”`\
-https://nytimes.com/2024/07/22/arts/music/abdul-duke-fakir-dead.html
-
-**Mavericks, Spencer Dinwiddie agree to 1-year deal**\
-`In 76 games played last season, Dinwiddie averaged 10.5 points, 2.7 rebounds and 4.7 assists.`\
-https://nytimes.com/athletic/5650960/2024/07/22/mavericks-spencer-dinwiddie-deal/
-
-**The Questions the Secret Service Director Did Not Answer**\
-`On Monday, Kimberly A. Cheatle told a House committee that she could not reveal — or did not know — key details about the attempted assassination of President Trump. Here’s what was missing.`\
-https://nytimes.com/2024/07/22/us/politics/kimberly-cheatle-secret-service-hearing-questions.html
 

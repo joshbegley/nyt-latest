@@ -1,3 +1,15 @@
+**Which Country Will Win the Paris Olympics? Don’t Just Count Medals.**\
+`Conventional ranking methods are flawed, but there’s a better way.`\
+https://nytimes.com/2024/07/22/opinion/paris-olympics-medals-winner.html
+
+**‘Politics Is About Tomorrow, Not Yesterday’**\
+`Joe Biden must have accepted that he is yesterday, and chose to let the party move on.`\
+https://nytimes.com/2024/07/22/opinion/joe-biden-lyndon-johnson-truman.html
+
+**Biden’s Resignation, a Reporter’s Call to Action**\
+`Reid J. Epstein, a politics reporter at The New York Times, had just finished eating cupcakes at his son’s birthday party when he saw Biden’s bombshell announcement. He raced home, and got to work.`\
+https://nytimes.com/2024/07/22/insider/how-times-reporter-covered-biden-dropping-out.html
+
 **U.S. Olympic Committee Sues Logan Paul’s Drink Company**\
 `The suit accuses Prime Hydration of using trademarked terms including “Olympic” and “Team USA” to promote a sports drink that features Kevin Durant.`\
 https://nytimes.com/2024/07/22/us/logan-paul-prime-lawsuit-olympic-committee.html
