@@ -1,3 +1,7 @@
+**What to Know About Kamala Harris’s Husband, Doug Emhoff**\
+`As the spouse of the first woman to be vice president, Doug Emhoff has focused on combating antisemitism and expanding access to legal aid.`\
+https://nytimes.com/2024/07/22/us/politics/doug-emhoff-kamala-harris-husband.html
+
 **Seven things learned, confirmed talking with Mike Brown, Bengals brass on Monday**\
 `From Joe Burrow's health to Ja'Marr Chase's future, Brown, Duke Tobin, Zac Taylor and coaches addressed several topics.`\
 https://nytimes.com/athletic/5651572/2024/07/22/bengals-media-luncheon-mike-brown/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/europe-c
 **Kamala Harris and the Political Power of Joy**\
 `Suddenly, a campaign that felt like a bleak death march has become fun.`\
 https://nytimes.com/2024/07/22/opinion/kamala-harris-excitement.html
-
-**‘Two American Families’ Is a Knockout Documentary**\
-`This latest installment in a long-term Frontline series is an intimate look at two American families, who work hard but struggle to make ends meet.`\
-https://nytimes.com/2024/07/22/arts/television/two-american-families-pbs-frontline.html
 

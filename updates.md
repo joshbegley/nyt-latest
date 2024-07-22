@@ -1,3 +1,7 @@
+**What to Know About Kamala Harris’s Husband, Doug Emhoff**\
+`As the spouse of the first woman to be vice president, Doug Emhoff has focused on combating antisemitism and expanding access to legal aid.`\
+https://nytimes.com/2024/07/22/us/politics/doug-emhoff-kamala-harris-husband.html
+
 **Seven things learned, confirmed talking with Mike Brown, Bengals brass on Monday**\
 `From Joe Burrow's health to Ja'Marr Chase's future, Brown, Duke Tobin, Zac Taylor and coaches addressed several topics.`\
 https://nytimes.com/athletic/5651572/2024/07/22/bengals-media-luncheon-mike-brown/
