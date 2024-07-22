@@ -1,3 +1,7 @@
+**Delta Cancels More Flights as it Struggles to Recover From Tech Outage**\
+`Transportation Secretary Pete Buttigieg singled out the airline on Sunday for continued disruptions and “unacceptable” customer service as it canceled another 1,300 flights.`\
+https://nytimes.com/2024/07/22/business/delta-global-tech-outage-pete-buttigieg.html
+
 **They Drive for a Living and Say New York Traffic Is ‘the Worst Ever’**\
 `There are more than 90,000 taxis, Ubers and Lyfts in New York City, making it hard for those drivers — and everyone else — to maneuver through the streets.`\
 https://nytimes.com/2024/07/22/nyregion/street-wars-traffic-uber-taxi-new-york-city.html
