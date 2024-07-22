@@ -1,3 +1,7 @@
+**Kamala Harris Takes Control**\
+`President Biden has dropped out of the race. We answer four questions about what happens next.`\
+https://nytimes.com/2024/07/22/briefing/biden-harris-election-trump.html
+
 **Barton charged with alleged malicious communications towards Aluko**\
 `Joey Barton has been charged with alleged malicious communications towards Eni Aluko.`\
 https://nytimes.com/athletic/5650186/2024/07/22/joey-barton-charged-eni-aluko/
