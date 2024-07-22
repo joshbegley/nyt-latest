@@ -1,3 +1,7 @@
+**Joe Biden Dropped Out. What’s Next?**\
+`President Biden on Sunday abruptly abandoned his campaign for a second term under intense pressure from fellow Democrats and threw his support to Vice President Kamala Harris to lead their party in a dramatic last-minute bid to stop former President Donald J.`\
+https://nytimes.com/video/us/politics/100000009584698/joe-biden-dropped-out-whats-next.html
+
 **Esta TerBlanche, ‘All My Children’ Star, Dies at 51**\
 `Ms. TerBlanche played Gillian Andrassy, a Hungarian princess whose story line was beloved by fans.`\
 https://nytimes.com/2024/07/21/arts/esta-terblanche-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/21/us/politics/panel-trump-assassination-attempt.htm
 **Phillies' Tyler Phillips finding fuel for his starts as he lives his big-league dream**\
 `Phillips used his rough spring outing against the Pirates as motivation Sunday. He has an opportunity to be a summer hero for the Phillies.`\
 https://nytimes.com/athletic/5649848/2024/07/21/tyler-phillips-phillies-motivation/
-
-**Biden Is Out, and Democrats Have a Whole New Set of Questions**\
-`An earthshaking political moment finally arrived, and the transformation of the campaign starts now.`\
-https://nytimes.com/2024/07/21/us/politics/kamala-harris-campaign-nomination-biden.html
 
