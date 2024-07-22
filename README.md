@@ -1,3 +1,7 @@
+**The Weak Republican Response to Kamala Harris**\
+`The G.O.P. arguments suggest that party leaders are more flustered than they let on.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/republican-response-to-harris
+
 **What are the terms of David Taylor's contract with Oklahoma State?**\
 `David Taylor signed a six-year contract to be the wrestling coach at Oklahoma State.`\
 https://nytimes.com/athletic/5650722/2024/07/22/david-taylor-oklahoma-state-wrestling/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/22/business/media/hunter-biden-fox-news-lawsuit.html
 **Harris Commends Biden’s Record at N.C.A.A. White House Event**\
 `A day after being endorsed by President Biden, Vice President Kamala Harris spoke at an event celebrating N.C.A.A. champions where she praised Biden and spoke fondly about her friendship with Beau Biden.`\
 https://nytimes.com/video/us/politics/100000009585765/harris-biden-beau.html
-
-**The Windup: Castellanos can’t keep doing this**\
-`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
-https://nytimes.com/athletic/5650801/2024/07/22/nick-castellanos-shohei-ohtani-hall-of-fame-the-windup/
 
