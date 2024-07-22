@@ -1,3 +1,19 @@
+**Harris Raises More Than $50 Million as Biden’s Exit Unleashes Cash Wave**\
+`The funds will help rebuild a Democratic war chest that was at risk of getting depleted in the weeks of uncertainty after President Biden’s poor debate, as big donors put a pause on fund-raising.`\
+https://nytimes.com/2024/07/22/us/politics/harris-fundraising-biden-actblue.html
+
+**Biden Is Out of the Race. Trump Is Still Attacking Him.**\
+`In his posts since Mr. Biden’s announcement, Mr. Trump has so far not taken direct aim at Kamala Harris, who is seeking the Democratic nomination.`\
+https://nytimes.com/2024/07/22/us/politics/trump-truth-social-biden-drop-out.html
+
+**Projecting the Jets’ opening-night roster in 2024, 2025 and 2026**\
+`Step by step, decision by decision and with aging curves considered, let's project the Jets' future for the next three seasons.`\
+https://nytimes.com/athletic/5643784/2024/07/22/winnipeg-jets-roster-2024-2025-2026/
+
+**Packers QB Love won't practice until he gets new contract**\
+`Green Bay Packers quarterback Jordan Love will not practice until he gets a contract extension, general manager Brian Gutekunst said Monday.`\
+https://nytimes.com/athletic/5650668/2024/07/22/jordan-love-contract-green-bay-packers/
+
 **‘Homicide: Life on the Street’ Will Finally Be Available to Stream**\
 `The celebrated 1990s police procedural is coming to Peacock in August.`\
 https://nytimes.com/2024/07/22/arts/television/homicide-life-on-the-street-streaming-peacock.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/07/22/books/review/hebe-uhart-question-of-belonging.htm
 **Six Key Democratic Governors Endorse Kamala Harris**\
 `Gretchen Whitmer, JB Pritzker, Tim Walz, Wes Moore, Andy Beshear and Tony Evers all backed Ms. Harris, cutting off nearly all potential avenues to a challenge for the nomination.`\
 https://nytimes.com/2024/07/22/us/politics/governors-endorse-harris.html
-
-**Joe Manchin Says He ‘Not Going to be a Candidate for President’**\
-`Manchin has flirted with running his own presidential bid as an independent.`\
-https://nytimes.com/2024/07/22/us/politics/joe-manchin-presidential-run.html
-
-**In Silicon Valley, Where Trump Made Inroads, Democrats Are Now Invigorated**\
-`Elon Musk, Marc Andreessen and others have endorsed Donald J. Trump. But President Biden’s withdrawal has re-energized Democrats across the tech industry and may blunt that momentum.`\
-https://nytimes.com/2024/07/22/technology/silicon-valley-trump-biden-democrats.html
-
-**Aston Villa complete Amadou Onana transfer from Everton**\
-`Aston Villa have completed the signing of Amadou Onana from Everton.`\
-https://nytimes.com/athletic/5635383/2024/07/22/amadou-onana-aston-villa-transfer-everton/
-
-**Impulsive and Hyperactive? It Doesn’t Mean You Have A.D.H.D.**\
-`Many other conditions have similar symptoms, experts say, so avoid the pull of self-diagnosis.`\
-https://nytimes.com/2024/07/22/well/mind/adhd-depression-anxiety-symptoms.html
 
