@@ -1,3 +1,7 @@
+**At the 2024 Baseball Hall of Fame induction ceremony, reciprocal gratitude was everywhere**\
+`The class – Jim Leyland, Adrian Beltre, Todd Helton and Joe Mauer – featured a beloved manager and three players with deep community bonds.`\
+https://nytimes.com/athletic/5649770/2024/07/21/baseball-hall-of-fame-mauer-beltre-leyland-helton/
+
 **What’s Next for the Harris Campaign**\
 `Vice President Kamala Harris faces many questions, from the management of her campaign to the selection of her running mate, should she be the Democratic Party’s nominee.`\
 https://nytimes.com/2024/07/21/us/politics/harris-campaign.html
@@ -18,9 +22,9 @@ https://nytimes.com/2024/07/21/us/biden-voters-democrats.html
 `How hard the Dodgers will push to get him back is complicated: "You want to do what’s best for Yoshinobu."`\
 https://nytimes.com/athletic/5649715/2024/07/21/dodgers-yoshinobu-yamamoto-return/
 
-**Biden’s exit leads to the biggest day for Democratic donations online in years — $30 million and counting.**\
-`By Shane Goldmacher`\
-https://nytimes.com/2024/07/21/us/politics/bidens-exit-leads-to-the-biggest-day-for-democratic-donations-online-in-years.html
+**Democrats Donate More Than $30 Million Online After Biden’s Exit**\
+`Sunday was the single biggest day for online Democratic donations in years — a significant show of enthusiasm after weeks of sluggish fund-raising.`\
+https://nytimes.com/2024/07/21/us/politics/bidens-exit-democratic-donations.html
 
 **Major news story? Let's tune in to Nick Castellanos' next at-bat**\
 `It's gotten to the point where seemingly every noteworthy occurrence is followed by a drive into deep left field by Castellanos.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5649713/2024/07/21/yordan-alvarez-astros-cycle/
 **Schumer told Biden privately that Senate Democrats were done with him.**\
 `The president is said to have told the Senate majority leader he wanted to hang on for another week during a tense meeting last weekend.`\
 https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/schumer-told-biden-privately-that-senate-democrats-were-done-with-him
-
-**How Undecided Voters Are Responding to Biden Dropping Out**\
-`Many who had been dissatisfied with their choices now face a whole new race — and a new set of questions.`\
-https://nytimes.com/2024/07/21/us/undecided-voters-biden-trump-harris.html
 
