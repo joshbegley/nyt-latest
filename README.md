@@ -1,3 +1,7 @@
+**Parents of Teen Driver Who Killed Girl in High-Speed Crash Are Sentenced**\
+`The boy, then 16, survived and has been charged in the death of his 14-year-old passenger. His parents were sentenced to probation and ordered to take parenting classes.`\
+https://nytimes.com/2024/07/22/nyregion/teen-driver-queens-crash-parents-sentence.html
+
 **Women Who Support Kamala Harris Say a Lot Has Changed Since 2016**\
 `Voters eager to elect the first female president pointed to anger over a loss of abortion rights, but also acknowledged a fear that sexism would remain difficult for Ms. Harris to overcome.`\
 https://nytimes.com/2024/07/22/us/kamala-harris-women-voters.html
@@ -27,14 +31,10 @@ https://nytimes.com/athletic/5651717/2024/07/22/rachel-minaya-death-omar-yankees
 https://nytimes.com/2024/07/22/us/politics/democrats-pick-nominee-aug-7.html
 
 **Assessing the Contentious Hearing on the Secret Service**\
-`We look at claims made by lawmakers and the director of the Secret Service during a hearing on the agency’s role in the attempted assassination of former President Donald J. Trump.`\
+`We look at claims made by lawmakers and the director of the Secret Service during a hearing on the agency’s handling of the attempted assassination of former President Donald J. Trump.`\
 https://nytimes.com/2024/07/22/us/politics/secret-service-cheatle-hearing-fact-check.html
 
 **A Senator Will Preside at Netanyahu’s Speech to Congress After Harris Declines**\
 `An aide to Vice President Kamala Harris said she would be speaking to one of the nation’s oldest Black sororities at the time of the Israeli prime minister’s address but would to meet with him this week.`\
 https://nytimes.com/2024/07/22/world/middleeast/kamala-harris-netanyahu-congress-speech.html
-
-**No one can accuse Jim Phillips of having his head in the sand anymore**\
-`Phillips swam against the current of change in college sports as long as he could. Were those efforts well-meaning, or wide-eyed?`\
-https://nytimes.com/athletic/5651750/2024/07/22/jim-phillips-acc-realignment/
 
