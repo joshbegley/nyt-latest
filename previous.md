@@ -1,3 +1,7 @@
+**One Night of TV Canceled a President**\
+`President Biden’s decision to bow out after a disastrous debate confirms that in a TikTok era, TV is still the biggest political arena.`\
+https://nytimes.com/2024/07/22/arts/television/biden-withdraw-debate-tiktok.html
+
 **The Athletic's first-ever MLB Power Rankings Readers' Edition: Cast your vote now**\
 `The Athletic's July 23 edition of the Power Rankings will be voted upon by you, the readers. `\
 https://nytimes.com/athletic/5650485/2024/07/22/mlb-power-rankings-readers-edition/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5650454/2024/07/22/womens-super-league-fixtures-202
 **The Mountain West and Pac-2 are still far apart. Are they running out of time?**\
 `Both sides say an agreement on a 2025 football schedule needs to happen before the 2024 season kicks off. So will it?`\
 https://nytimes.com/athletic/5650358/2024/07/22/mountain-west-pac-12-schedules-merger/
-
-**Couple Who Attempted to Cross Atlantic Found Dead in Lifeboat**\
-`James Brett Clibbery and his wife, Sarah Justine Packwood, had left Nova Scotia on June 11, bound for the Azores. The authorities recovered remains believed to be theirs earlier this month.`\
-https://nytimes.com/2024/07/22/world/canada/atlantic-ocean-sailing-deaths.html
 

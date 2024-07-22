@@ -1,3 +1,7 @@
+**One Night of TV Canceled a President**\
+`President Biden’s decision to bow out after a disastrous debate confirms that in a TikTok era, TV is still the biggest political arena.`\
+https://nytimes.com/2024/07/22/arts/television/biden-withdraw-debate-tiktok.html
+
 **The Athletic's first-ever MLB Power Rankings Readers' Edition: Cast your vote now**\
 `The Athletic's July 23 edition of the Power Rankings will be voted upon by you, the readers. `\
 https://nytimes.com/athletic/5650485/2024/07/22/mlb-power-rankings-readers-edition/
