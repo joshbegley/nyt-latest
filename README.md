@@ -1,3 +1,7 @@
+**Two Killed in Plane Crash Near Wisconsin Air Show**\
+`Emergency responders found a plane engulfed in flames in a farm field near the Experimental Aircraft Association AirVenture showcase in Oshkosh.`\
+https://nytimes.com/2024/07/22/us/eaa-airventure-oshkosh-plane-crash.html
+
 **How Kamala Harris Will Try to Put Trump on Defense**\
 `Democrats are eager for her to deploy lines of attack that come more naturally than they did for President Biden, including on issues like abortion rights and the rule of law.`\
 https://nytimes.com/2024/07/22/us/politics/kamala-harris-trump-presidential-election.html
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/5651014/2024/07/22/nba-tnt-sports-amazon-media-righ
 `As Democratic leaders fall in line behind Harris, her strengths and weaknesses warrant a closer look.`\
 https://nytimes.com/2024/07/22/opinion/kamala-harris-democrats.html
 
-**Trump Donated to Kamala Harris’s Campaign for California Attorney General**\
+**Trump Donated to Kamala Harris’s Campaigns for California Attorney General**\
 `Years before either came close to the White House, Donald J. Trump gave $6,000 to her campaigns for statewide office. His daughter, Ivanka, gave $2,000.`\
 https://nytimes.com/2024/07/22/us/politics/trump-kamala-harris-donation.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/22/opinion/thepoint/vice-president-diversity
 **Blue Jackets hire Dean Evason as third head coach in four years**\
 `Evason spent 4 1/2 seasons leading the Wild, going 251-147-77 and qualifying for the playoffs in all four of his full seasons.`\
 https://nytimes.com/athletic/5651178/2024/07/22/blue-jackets-dean-evason-coach/
-
-**Hostage families plan to push Netanyahu to seal a deal before speaking to Congress.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/07/22/world/israel-gaza-war-hamas/hostage-families-plan-to-push-netanyahu-to-seal-a-deal-before-speaking-to-congress
 
