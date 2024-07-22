@@ -1,3 +1,7 @@
+**Congress Calls for Tech Outage Hearing to Grill Executive**\
+`The House Homeland Security Committee called on the chief executive of the cybersecurity firm CrowdStrike to testify on the disruption.`\
+https://nytimes.com/2024/07/22/technology/crowdstrike-outage-congress-hearing.html
+
 **Parents of Teen Driver Who Killed Girl in High-Speed Crash Are Sentenced**\
 `The boy, then 16, survived and has been charged in the death of his 14-year-old passenger. His parents were sentenced to probation and ordered to take parenting classes.`\
 https://nytimes.com/2024/07/22/nyregion/teen-driver-queens-crash-parents-sentence.html
