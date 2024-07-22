@@ -1,3 +1,7 @@
+**Women Who Support Kamala Harris Say a Lot Has Changed Since 2016**\
+`Voters eager to elect the first female president pointed to anger over a loss of abortion rights, but also acknowledged a fear that sexism would remain difficult for Ms. Harris to overcome.`\
+https://nytimes.com/2024/07/22/us/kamala-harris-women-voters.html
+
 **The far right spreads baseless claims about Biden’s whereabouts.**\
 `By Stuart A. Thompson`\
 https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/the-far-right-spreads-baseless-claims-about-bidens-whereabouts
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/22/world/middleeast/kamala-harris-netanyahu-congress
 **No one can accuse Jim Phillips of having his head in the sand anymore**\
 `Phillips swam against the current of change in college sports as long as he could. Were those efforts well-meaning, or wide-eyed?`\
 https://nytimes.com/athletic/5651750/2024/07/22/jim-phillips-acc-realignment/
-
-**Biden: ‘I’m Not Going Anywhere’**\
-`The president called into a meeting with Vice President Kamala Harris at what was once their joint campaign headquarters, the first time he has been heard since isolating with Covid last week.`\
-https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/biden-harris-2024-election-campaign
 
