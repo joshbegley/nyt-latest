@@ -1,3 +1,11 @@
+**The Mountain West and Pac-2 are still far apart. Are they running out of time?**\
+`Both sides say an agreement on a 2025 football schedule needs to happen before the 2024 season kicks off. So will it?`\
+https://nytimes.com/athletic/5650358/2024/07/22/mountain-west-pac-12-schedules-merger/
+
+**Couple Who Attempted to Cross Atlantic Found Dead in Lifeboat**\
+`James Brett Clibbery and his wife, Sarah Justine Packwood, had left Nova Scotia on June 11, bound for the Azores. The authorities recovered remains believed to be theirs earlier this month.`\
+https://nytimes.com/2024/07/22/world/canada/atlantic-ocean-sailing-deaths.html
+
 **With Biden’s Endorsement of Harris, What’s Next?**\
 `Many Democrats endorsed the vice president as their party’s standard-bearer, but some donors questioned whether more competition for the role was needed.`\
 https://nytimes.com/2024/07/22/business/dealbook/harris-president-donors.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/22/world/israel-gaza-war-hamas/china-hosts-talk
 **Padres takeaways: What is the value of Michael King’s efficiency?**\
 `Notes on how King is making the most of his innings and on who would start a potential Game 2 in the postseason.`\
 https://nytimes.com/athletic/5648983/2024/07/22/padres-takeaways-michael-king-innings/
-
-**Three Dodgers takeaways: Gavin Lux's surge, rotation is a trade deadline priority and more**\
-`Lux got off to a hot start in the second half and Clayton Kershaw is joining the rotation. But the Dodgers front office should be busy soon.`\
-https://nytimes.com/athletic/5650013/2024/07/22/dodgers-takeaways-gavin-lux-rotation-bullpen/
-
-**LeBron to carry U.S. flag at Paris opening ceremony**\
-`James was selected by a vote of all Team USA athletes competing in the Paris Olympics.`\
-https://nytimes.com/athletic/5650284/2024/07/22/lebron-james-us-olympics-flag-bearer-paris/
 
