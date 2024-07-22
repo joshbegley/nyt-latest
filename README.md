@@ -1,3 +1,7 @@
+**Esta TerBlanche, ‘All My Children’ Star, Dies at 51**\
+`Ms. TerBlanche played Gillian Andrassy, a Hungarian princess whose story line was beloved by fans.`\
+https://nytimes.com/2024/07/21/arts/esta-terblanche-dead.html
+
 **How Kamala Harris rose as a California moderate.**\
 `Ms. Harris, who was born in the state, amassed power through her work as a prosecutor.`\
 https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/kamala-harris-history-career-california
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5649848/2024/07/21/tyler-phillips-phillies-motivati
 **Biden Is Out, and Democrats Have a Whole New Set of Questions**\
 `An earthshaking political moment finally arrived, and the transformation of the campaign starts now.`\
 https://nytimes.com/2024/07/21/us/politics/kamala-harris-campaign-nomination-biden.html
-
-**Xander Schauffele and the 2 choices he had to make to become a major champion**\
-`Schauffele moved away from his father as his primary swing coach this year, but kept his longtime friend as caddie.`\
-https://nytimes.com/athletic/5649753/2024/07/21/xander-schauffele-open-championship-father-caddie/
 
