@@ -1,3 +1,7 @@
+**At Brickyard 400, restart rule leaves Ryan Blaney wondering what could've been**\
+`"We should've won the race," Ryan Blaney said Sunday after a late restart let Kyle Larson slip into the inside row and take the victory.`\
+https://nytimes.com/athletic/5650050/2024/07/22/at-brickyard-400-restart-rule-leaves-ryan-blaney-wondering-what-couldve-been/
+
 **Word of the Day: futile**\
 `This word has appeared in 184 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/07/22/learning/word-of-the-day-futile.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5650284/2024/07/22/lebron-james-us-olympics-flag-be
 **It’s Time for ‘Anything Is Possible’ Democratic Boldness**\
 `Harris may be the best candidate, but she needs to prove it before being nominated.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/harris-earn-nomination-democrats
-
-**The Pulse: NFL coaches on the hot seat**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5649911/2024/07/22/nfl-coaches-hot-seat-the-pulse/
 
