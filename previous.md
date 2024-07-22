@@ -1,3 +1,7 @@
+**A Campaign That Started Slowly Gets Its Inevitable Upheaval**\
+`“I know it’s been a roller coaster,” Vice President Kamala Harris told her campaign staff on Monday.`\
+https://nytimes.com/2024/07/22/us/politics/harris-trump-vp-presidential-campaign.html
+
 **Ground breaks on Flames' new arena, expected to be completed in 2027**\
 `The new event centre is expected to be completed in time for the 2027-28 NHL season and will have a capacity of 18,400.`\
 https://nytimes.com/athletic/5644365/2024/07/22/flames-arena-calgary-scotia-place/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5651552/2024/07/22/usa-germany-olympic-basketball-e
 **Ethics Committee Moves Swiftly to Tee Up Possible Expulsion of Menendez**\
 `Senator Robert Menendez of New Jersey was found guilty of bribery and corruption last week.`\
 https://nytimes.com/2024/07/22/nyregion/robert-menendez-bribery-ethics-vote.html
-
-**Illinois State Police Releases Footage of Deputy Fatally Shooting Woman**\
-`The woman, Sonya Massey, 36, called 911 on July 6 because she believed there was an intruder in her home. She was fatally shot by a sheriff’s deputy who has been fired and is charged with murder.`\
-https://nytimes.com/2024/07/22/us/illinois-sonya-massey-body-cam-footage.html
 

@@ -1,3 +1,7 @@
+**A Campaign That Started Slowly Gets Its Inevitable Upheaval**\
+`“I know it’s been a roller coaster,” Vice President Kamala Harris told her campaign staff on Monday.`\
+https://nytimes.com/2024/07/22/us/politics/harris-trump-vp-presidential-campaign.html
+
 **Jordan Addison's status, the QB depth chart and more Vikings news ahead of training camp**\
 `Before training camp, GM Kwesi Adofo-Mensah and coach Kevin O'Connell touched on several intriguing topics facing the team.`\
 https://nytimes.com/athletic/5651504/2024/07/22/vikings-jordan-addison-jj-mccarthy-training-camp/
