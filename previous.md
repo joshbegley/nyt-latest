@@ -1,3 +1,15 @@
+**Every Running Mate Is a Diversity Pick**\
+`Modern running mates are chosen to balance tickets.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/vice-president-diversity
+
+**Blue Jackets hire Dean Evason as third head coach in four years**\
+`Evason spent 4 1/2 seasons leading the Wild, going 251-147-77 and qualifying for the playoffs in all four of his full seasons.`\
+https://nytimes.com/athletic/5651178/2024/07/22/blue-jackets-dean-evason-coach/
+
+**Hostage families plan to push Netanyahu to seal a deal before speaking to Congress.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/07/22/world/israel-gaza-war-hamas/hostage-families-plan-to-push-netanyahu-to-seal-a-deal-before-speaking-to-congress
+
 **Which Country Will Win the Paris Olympics? Don’t Just Count Medals.**\
 `Conventional ranking methods are flawed, but there’s a better way.`\
 https://nytimes.com/2024/07/22/opinion/paris-olympics-medals-winner.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5651053/2024/07/22/connor-stalions-netflix-document
 **Chalobah left out of Chelsea pre-season tour squad, raising doubts about future**\
 `Trevoh Chalobah has been left out of Enzo Maresca’s squad for Chelsea’s pre-season tour of the United States, signalling that he is considered surplus to requirements at Stamford Bridge.`\
 https://nytimes.com/athletic/5650996/2024/07/22/chelsea-trevoh-chalobah-pre-season-tranfsfer/
-
-**Pelosi Endorses Harris, Ending Speculation She Would Push for Open Primary**\
-`Before President Biden dropped out, the former House speaker had told her some colleagues privately that if he were to do so, she would favor a competitive primary.`\
-https://nytimes.com/2024/07/22/us/politics/pelosi-harris-endorsement.html
-
-**Trial in Bombing of U.S. Warship Set to Start 25 Years After Attack**\
-`The judge reserved a courtroom for fall 2025. Seventeen U.S. sailors were killed in the bombing, which was a precursor to the 9/11 terrorist attacks.`\
-https://nytimes.com/2024/07/22/us/politics/uss-cole-bombing-trial.html
-
-**The Spotlight Turns to Kamala Harris**\
-`Readers differ on whether she is the best Democratic candidate and praise President Biden for putting patriotism over pride.`\
-https://nytimes.com/2024/07/22/opinion/letters/joe-biden-kamala-harris.html
 

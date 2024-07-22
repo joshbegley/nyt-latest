@@ -1,3 +1,15 @@
+**Every Running Mate Is a Diversity Pick**\
+`Modern running mates are chosen to balance tickets.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/vice-president-diversity
+
+**Blue Jackets hire Dean Evason as third head coach in four years**\
+`Evason spent 4 1/2 seasons leading the Wild, going 251-147-77 and qualifying for the playoffs in all four of his full seasons.`\
+https://nytimes.com/athletic/5651178/2024/07/22/blue-jackets-dean-evason-coach/
+
+**Hostage families plan to push Netanyahu to seal a deal before speaking to Congress.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/07/22/world/israel-gaza-war-hamas/hostage-families-plan-to-push-netanyahu-to-seal-a-deal-before-speaking-to-congress
+
 **Which Country Will Win the Paris Olympics? Don’t Just Count Medals.**\
 `Conventional ranking methods are flawed, but there’s a better way.`\
 https://nytimes.com/2024/07/22/opinion/paris-olympics-medals-winner.html
