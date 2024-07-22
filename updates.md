@@ -1,3 +1,7 @@
+**Spurs leave Gil, Reguilon out of tour squad to 'explore transfer opportunities'**\
+`Sergio Reguilon and Bryan Gil have been left out of Tottenham Hotspur’s squad for their pre-season tour to Japan and South Korea.`\
+https://nytimes.com/athletic/5650779/2024/07/22/tottenham-transfers-bryan-gil-sergio-reguilon/
+
 **With Surprise Reversal, Biden Rewrites His Legacy and Makes a Play for History**\
 `Long concerned about his “epitaph,” the president reluctantly surrendered his bid for a second term, but Democrats argue that his willingness to give up power may yet enhance his role in posterity.`\
 https://nytimes.com/2024/07/22/us/politics/biden-election-legacy-harris-trump.html
