@@ -1,3 +1,9 @@
+**Netanyahu plans to meet with Biden and is set to address Congress this week.**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2024/07/22/world/israel-gaza-war-hamas/netanyahu-is-set-to-meet-with-biden-and-address-congress-this-week
+
+**Israel will vaccinate troops in Gaza against polio, and other news.**\
+
 **Players, coaches, collective reps talk NIL: College basketball confidential**\
 `Players, coaches, agents and collective reps are getting smarter about how to play the game as NIL and the transfer portal evolve.`\
 https://nytimes.com/athletic/5648790/2024/07/22/college-basketball-transfer-portal-nil/
