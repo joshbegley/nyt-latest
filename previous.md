@@ -1,3 +1,7 @@
+**Who Might Kamala Harris Pick as Her Running Mate?**\
+`The first big decision for Ms. Harris: Who will be her running mate if she is nominated by the Democratic Party to run for president in August.`\
+https://nytimes.com/interactive/2024/us/politics/kamala-harris-vp-pick.html
+
 **Marseille sign Hojbjerg from Tottenham on loan with obligation to buy**\
 `Marseille have completed the signing of Pierre-Emile Hojbjerg from Tottenham Hotspur on loan with an obligation to make the move permanent.`\
 https://nytimes.com/athletic/5651413/2024/07/22/spurs-marseille-hojberg-transfer-loan/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/5651413/2024/07/22/spurs-marseille-hojberg-transfer
 `The first in a series of conversations with authors appearing on our “Best Books of the 21st Century” list.`\
 https://nytimes.com/2024/07/22/books/review/colson-whitehead-underground-railroad-podcast.html
 
-**Harris, tasked with helping stem migration into the U.S., ended up angering Republicans and progressives.**\
+**Revisiting Kamala Harris’s rocky first trip abroad as vice president.**\
 `By Natalie Kitroeff`\
 https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/harris-tasked-with-helping-stem-migration-into-the-us-ended-up-angering-republicans-and-progressives
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5651324/2024/07/22/jim-phillips-acc-will-fight-for-
 **Female Donors Mobilize for Harris, Moving to Stamp Out Opposition**\
 `Vice President Kamala Harris has an orbit of Bay Area billionaires and loyalists, all women, who can power her bid for the Democratic nomination. But some big donors are still seeking other options.`\
 https://nytimes.com/2024/07/22/us/politics/kamala-harris-donors-women.html
-
-**Two Killed in Plane Crash Near Wisconsin Air Show**\
-`Emergency responders found a plane engulfed in flames in a farm field near the Experimental Aircraft Association AirVenture showcase in Oshkosh.`\
-https://nytimes.com/2024/07/22/us/eaa-airventure-oshkosh-plane-crash.html
 

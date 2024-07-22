@@ -1,3 +1,11 @@
+**Who Might Kamala Harris Pick as Her Running Mate?**\
+`The first big decision for Ms. Harris: Who will be her running mate if she is nominated by the Democratic Party to run for president in August.`\
+https://nytimes.com/interactive/2024/us/politics/kamala-harris-vp-pick.html
+
+**Revisiting Kamala Harris’s rocky first trip abroad as vice president.**\
+`By Natalie Kitroeff`\
+https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/harris-tasked-with-helping-stem-migration-into-the-us-ended-up-angering-republicans-and-progressives
+
 **Marseille sign Hojbjerg from Tottenham on loan with obligation to buy**\
 `Marseille have completed the signing of Pierre-Emile Hojbjerg from Tottenham Hotspur on loan with an obligation to make the move permanent.`\
 https://nytimes.com/athletic/5651413/2024/07/22/spurs-marseille-hojberg-transfer-loan/
