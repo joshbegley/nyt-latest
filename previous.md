@@ -1,3 +1,7 @@
+**Ground breaks on Flames' new arena, expected to be completed in 2027**\
+`The new event centre is expected to be completed in time for the 2027-28 NHL season and will have a capacity of 18,400.`\
+https://nytimes.com/athletic/5644365/2024/07/22/flames-arena-calgary-scotia-place/
+
 **Swindled Savings**\
 `Articles in this series examine a rise in cybercrime targeting older Americans and their retirement savings.`\
 https://nytimes.com/series/swindled-savings
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/22/nyregion/robert-menendez-bribery-ethics-vote.html
 **Illinois State Police Releases Footage of Deputy Fatally Shooting Woman**\
 `The woman, Sonya Massey, 36, called 911 on July 6 because she believed there was an intruder in her home. She was fatally shot by a sheriff’s deputy who has been fired and is charged with murder.`\
 https://nytimes.com/2024/07/22/us/illinois-sonya-massey-body-cam-footage.html
-
-**Europe cheered on Biden after his exit, and Russia yawned.**\
-`By Tim Balk`\
-https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/europe-cheered-on-biden-after-his-exit-and-russia-yawned
 

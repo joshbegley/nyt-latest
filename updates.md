@@ -1,3 +1,7 @@
+**Ground breaks on Flames' new arena, expected to be completed in 2027**\
+`The new event centre is expected to be completed in time for the 2027-28 NHL season and will have a capacity of 18,400.`\
+https://nytimes.com/athletic/5644365/2024/07/22/flames-arena-calgary-scotia-place/
+
 **Swindled Savings**\
 `Articles in this series examine a rise in cybercrime targeting older Americans and their retirement savings.`\
 https://nytimes.com/series/swindled-savings
