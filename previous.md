@@ -1,3 +1,7 @@
+**Map: 5.7-Magnitude Earthquake Strikes off the Coast of Panama**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/07/22/world/americas/panama-quake.html
+
 **Who Might Kamala Harris Pick as Her Running Mate?**\
 `The first big decision for Ms. Harris: Who will be her running mate if she is nominated by the Democratic Party to run for president in August.`\
 https://nytimes.com/interactive/2024/us/politics/kamala-harris-vp-pick.html
@@ -33,8 +37,4 @@ https://nytimes.com/article/kamala-harris-celebrity-endorsements.html
 **ACC commissioner vows to fight FSU, Clemson lawsuits 'for as long as it takes'**\
 `With the ACC mired in four different lawsuits in three separate states, Phillips doubled down on the league's position at media days.`\
 https://nytimes.com/athletic/5651324/2024/07/22/jim-phillips-acc-will-fight-for-as-long-as-it-takes-in-defending-grant-of-rights/
-
-**Female Donors Mobilize for Harris, Moving to Stamp Out Opposition**\
-`Vice President Kamala Harris has an orbit of Bay Area billionaires and loyalists, all women, who can power her bid for the Democratic nomination. But some big donors are still seeking other options.`\
-https://nytimes.com/2024/07/22/us/politics/kamala-harris-donors-women.html
 

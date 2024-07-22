@@ -1,3 +1,7 @@
+**Map: 5.7-Magnitude Earthquake Strikes off the Coast of Panama**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/07/22/world/americas/panama-quake.html
+
 **Who Might Kamala Harris Pick as Her Running Mate?**\
 `The first big decision for Ms. Harris: Who will be her running mate if she is nominated by the Democratic Party to run for president in August.`\
 https://nytimes.com/interactive/2024/us/politics/kamala-harris-vp-pick.html
