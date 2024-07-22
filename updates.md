@@ -1,3 +1,11 @@
+**Russia Sentences Alsu Kurmasheva, American Editor, to a Penal Colony**\
+`Ms. Kurmasheva, a Russian American working for Radio Free Europe/Radio Liberty, had been charged in relation to an antiwar book she edited.`\
+https://nytimes.com/2024/07/22/world/europe/alsu-kurmasheva-sentence-russia.html
+
+**He Replaced the King of Sexy. Now He’s Leaving.**\
+`After spending 25 years as Tom Ford’s right-hand man — at Gucci and then at his namesake label — Peter Hawkings survived less than a year as his successor.`\
+https://nytimes.com/2024/07/22/style/peter-hawkings-tom-ford-exit.html
+
 **A Kamala Harris Impersonator Is Ready for Her Moment**\
 `Allison Reese, a comedian, does TikTok’s favorite impression of the vice president. She’s about to have a busy week.`\
 https://nytimes.com/2024/07/22/style/kamala-harris-impersonator-allison-reece.html
