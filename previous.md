@@ -1,3 +1,15 @@
+**Harris, tasked with helping stem migration into the U.S., ended up angering Republicans and progressives.**\
+`By Natalie Kitroeff`\
+https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/harris-tasked-with-helping-stem-migration-into-the-us-ended-up-angering-republicans-and-progressives
+
+**Bears camp: Defense stifles Caleb Williams, Teven Jenkins' contract talks and more**\
+`The defensive line had a good day at practice with DeMarcus Walker showing off his versatility.`\
+https://nytimes.com/athletic/5651267/2024/07/22/chicago-bears-caleb-williams-defense/
+
+**Brickyard 400 takeaways: NASCAR's return to Indianapolis oval was a test of strength**\
+`Kyle Larson's win Sunday continued a trend at the Brickyard oval, where NASCAR's elite drivers tend to end up in victory lane.`\
+https://nytimes.com/athletic/5649199/2024/07/22/brickyard-400-nascar-kyle-larson-takeaways/
+
 **How Media Outlets on the Left and Right Covered Biden’s Withdrawal**\
 `Progressive publications said President Biden’s decision to withdraw from the 2024 election was heroic. Conservative commentators suggested that if he is unable to campaign, he should step down from the presidency, too.`\
 https://nytimes.com/2024/07/22/business/media/media-left-right-biden-withdrawal.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/22/us/politics/kamala-harris-trump-presidential-elec
 **TNT to match Amazon's media rights deal with NBA**\
 `The NBA is expected to decline TNT Sports' right to simply take the agreed upon Amazon package, sources briefed on the NBA's plans said.`\
 https://nytimes.com/athletic/5651014/2024/07/22/nba-tnt-sports-amazon-media-rights-deal-match/
-
-**Is It a Mistake for Democrats to Go All In on Harris? Four Columnists on the Party’s Moves.**\
-`As Democratic leaders fall in line behind Harris, her strengths and weaknesses warrant a closer look.`\
-https://nytimes.com/2024/07/22/opinion/kamala-harris-democrats.html
-
-**Trump Donated to Kamala Harris’s Campaigns for California Attorney General**\
-`Years before either came close to the White House, Donald J. Trump gave $6,000 to her campaigns for statewide office. His daughter, Ivanka, gave $2,000.`\
-https://nytimes.com/2024/07/22/us/politics/trump-kamala-harris-donation.html
-
-**A U.K. Deportation Plan Cost $900 Million. Only Four People Left.**\
-`Britain’s last Conservative government spent almost a billion dollars on its controversial plan to send asylum seekers to Rwanda, the newly appointed minister for immigration said Monday.`\
-https://nytimes.com/2024/07/22/world/europe/uk-rwanda-deportation-plan.html
 
