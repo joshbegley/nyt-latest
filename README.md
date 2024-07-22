@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5651413/2024/07/22/spurs-marseille-hojberg-transfer
 `The first in a series of conversations with authors appearing on our “Best Books of the 21st Century” list.`\
 https://nytimes.com/2024/07/22/books/review/colson-whitehead-underground-railroad-podcast.html
 
-**Harris, tasked with helping stem migration into the U.S., ended up angering Republicans and progressives.**\
+**Revisiting Kamala Harris’s rocky first trip abroad as vice president.**\
 `By Natalie Kitroeff`\
 https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/harris-tasked-with-helping-stem-migration-into-the-us-ended-up-angering-republicans-and-progressives
 
