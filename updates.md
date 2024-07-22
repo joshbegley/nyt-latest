@@ -1,3 +1,15 @@
+**Kamala Harris and the Political Power of Joy**\
+`Suddenly, a campaign that felt like a bleak death march has become fun.`\
+https://nytimes.com/2024/07/22/opinion/kamala-harris-excitement.html
+
+**‘Two American Families’ Is a Knockout Documentary**\
+`This latest installment in a long-term Frontline series is an intimate look at two American families, who work hard but struggle to make ends meet.`\
+https://nytimes.com/2024/07/22/arts/television/two-american-families-pbs-frontline.html
+
+**Maps: 5.7-Magnitude Earthquake Strikes Off the Coast of Panama**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/07/22/world/americas/panama-quake.html
+
 **Marseille sign Hojbjerg from Tottenham on loan with obligation to buy**\
 `Marseille have completed the signing of Pierre-Emile Hojbjerg from Tottenham Hotspur on loan with an obligation to make the move permanent.`\
 https://nytimes.com/athletic/5651413/2024/07/22/spurs-marseille-hojberg-transfer-loan/
