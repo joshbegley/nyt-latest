@@ -1,14 +1,6 @@
-**Some Black Voters Say They Wonder If a Black Woman Can Win**\
-`In interviews, some Black voters expressed concern about whether Americans were ready to elect Kamala Harris, who has the backing of President Biden.`\
-https://nytimes.com/2024/07/21/us/black-voters-kamala-harris.html
-
 **In Wisconsin, Baldwin endorses Harris and voters heave a sigh of relief.**\
 `By Catie Edmondson`\
 https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/in-wisconsin-baldwin-endorses-harris-and-voters-heave-a-sigh-of-relief
-
-**Missed opportunities cost Twins yet again as Milwaukee completes 2-game series sweep**\
-`The Twins had ample chances to beat the Brewers but the bullpen faltered and the offense squandered too many chances on Sunday.`\
-https://nytimes.com/athletic/5649807/2024/07/21/twins-swept-by-brewers-missed-opportunities/
 
 **At the 2024 Baseball Hall of Fame ceremony, reciprocal gratitude was everywhere**\
 `The class – Jim Leyland, Adrian Beltre, Todd Helton and Joe Mauer – featured a beloved manager and three players with deep community bonds.`\
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/5649715/2024/07/21/dodgers-yoshinobu-yamamoto-retur
 **Democrats Donate More Than $30 Million Online After Biden’s Exit**\
 `Sunday was the single biggest day for online Democratic donations in years — a significant show of enthusiasm after weeks of sluggish fund-raising.`\
 https://nytimes.com/2024/07/21/us/politics/bidens-exit-democratic-donations.html
+
+**Major news story? Let's tune in to Nick Castellanos' next at-bat**\
+`It's gotten to the point where seemingly every noteworthy occurrence is followed by a drive into deep left field by Castellanos.`\
+https://nytimes.com/athletic/5649648/2024/07/21/nick-castellanos-major-news-story/
+
+**Astros All-Star Yordan Alvarez hits for cycle vs. Mariners**\
+`Alvarez’s cycle is the first of his career and the first by an Astro since Jose Altuve's last season at Fenway Park.`\
+https://nytimes.com/athletic/5649713/2024/07/21/yordan-alvarez-astros-cycle/
 
