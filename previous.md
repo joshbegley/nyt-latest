@@ -1,40 +1,40 @@
-**Big Ten media days preview: Coach in the spotlight, sleeper storylines**\
-`With 18 teams converging on Indianapolis for the first time, coaches and players will have a lot to talk about.`\
-https://nytimes.com/athletic/5648655/2024/07/22/big-ten-media-days-coach-schedule/
+**Vance to Hit Campaign Trail in an Upended Race**\
+`JD Vance will hold events in Ohio and Virginia, his first solo campaign stops since becoming Donald Trump’s running mate.`\
+https://nytimes.com/2024/07/22/us/politics/vance-trump-rallies.html
 
-**Norwegian match abandoned after fans throw fishcakes onto pitch**\
-`The Norwegian top-flight match between Rosenborg and Lillestrom was abandoned on Sunday after supporters threw tennis balls and fishcakes onto the pitch in protest against the use of video assistant referees (VAR).`\
-https://nytimes.com/athletic/5650159/2024/07/22/norway-var-rosenborg-lillestrom-fishcakes/
+**Al Sharpton: Joe Biden Has a Legacy in Black America. Kamala Harris Can Keep It Going.**\
+`History will remember what this former lion of the Senate accomplished from the West Wing to improve Black communities across the nation.`\
+https://nytimes.com/2024/07/22/opinion/al-sharpton-kamala-harris.html
 
-**They Drive for a Living and Say New York Traffic Is ‘the Worst Ever’**\
-`There are more than 90,000 taxis, Ubers and Lyfts in New York City, making it hard for those drivers — and everyone else — to maneuver through the streets.`\
-https://nytimes.com/2024/07/22/nyregion/street-wars-traffic-uber-taxi-new-york-city.html
+**Secret Service Director to Face Questions on Agency’s Failures in Hearing**\
+`Kimberly A. Cheatle will appear before a House committee amid criticism over the way her agency handled security for the rally at which former President Donald J. Trump was injured by a would-be assassin.`\
+https://nytimes.com/2024/07/22/us/politics/kimberly-cheatle-hearing-secret-service.html
 
-**Can Robert Menendez’s Bribery Conviction Survive an Appeal?**\
-`The Supreme Court has narrowed the legal definition of corruption, with political figures in New York and elsewhere having their convictions overturned as a result.`\
-https://nytimes.com/2024/07/22/nyregion/robert-menendez-bribery-conviction-appeal.html
+**Kamala Harris Turns to Selecting a Possible Vice President**\
+`The first big decision for Ms. Harris: Who will be her running mate if she is nominated by the Democratic Party to run for president in August.`\
+https://nytimes.com/2024/07/22/us/politics/kamala-harris-vp-list.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/07/22/crosswords/spelling-bee-forum.html
+**He Loves Soccer and Portugal. So He Bought a Team.**\
+`Gifford Miller, a former City Council speaker who was Mayor Michael Bloomberg’s principal antagonist, has plunged into a new project since leaving politics.`\
+https://nytimes.com/2024/07/22/nyregion/he-loves-soccer-and-portugal-so-he-bought-a-team.html
 
-**Delta Cancels More Flights as it Struggles to Recover From Tech Outage**\
-`Transportation Secretary Pete Buttigieg singled out the airline on Sunday for continued disruptions and “unacceptable” customer service as it canceled another 1,300 flights.`\
-https://nytimes.com/2024/07/22/business/delta-global-tech-outage-pete-buttigieg.html
+**What Should I Wear to the Olympics?**\
+`A reader visiting Paris for the Summer Games wonders about the fashion guidelines for spectators. Our fashion critic offers advice on how to dress practically and respectfully.`\
+https://nytimes.com/2024/07/22/style/olympics-paris-attendee-fashion.html
 
-**What’s on TV This Week: The Olympics and ‘Surreal Life: Villa of Secrets’**\
-`The opening ceremony airs on NBC. MTV reboots a reality show.`\
-https://nytimes.com/2024/07/22/arts/television/whats-on-tv-this-week-the-olympics-and-surreal-life-villa-of-secrets.html
+**Why Are There Neo-Nazis on the Streets of Nashville?**\
+`The shameless presence of white supremacists here tells us something about the similarity between the politics of the past and our political moment.`\
+https://nytimes.com/2024/07/22/opinion/white-supremacist-nashville-south.html
 
-**The Promise, and Risks, in Turning to Kamala Harris**\
-`In a sprint of a race, Ms. Harris is poised to attack Donald Trump on his felonies and, in a 2024 twist, his age, but Republicans will be galvanized to fight her, too.`\
-https://nytimes.com/2024/07/22/us/politics/kamala-harris-democratic-nominee.html
+**If Harris Is the Nominee, It Still Won’t Be Easy to Beat Trump**\
+`Biden’s age hasn’t been the only concern voters have been telling pollsters about in recent years.`\
+https://nytimes.com/2024/07/22/upshot/kamala-harris-polls-trump.html
 
-**Monday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2024/07/22/briefing/biden-election-kamala-harris.html
+**Joe Biden, My Friend and an American Hero**\
+`He never surrendered the hope that a frail and fallible world could be made stronger if people could summon enough goodness and courage to build, rather than tear down.`\
+https://nytimes.com/2024/07/22/opinion/joe-biden-american-hero.html
 
-**Many Elected Democrats Quickly Endorsed Kamala Harris. See Who Did.**\
-`A majority of Democrats in Congress and at least 10 Democratic governors have come out in support of Ms. Harris’s candidacy.`\
-https://nytimes.com/interactive/2024/07/22/us/politics/kamala-harris-democrats-endorsement-list.html
+**The 10 Best Candidates to Replace Biden, Rated by Our Columnists and Writers**\
+`Many party leaders are coalescing behind Kamala Harris, but some veteran Democrats — and many voters — are still grappling with who would fare best against Trump.`\
+https://nytimes.com/interactive/2024/07/22/opinion/best-worst-candidates-to-replace-biden.html
 
