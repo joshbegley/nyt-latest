@@ -1,7 +1,3 @@
-**An official at a major hospital in Gaza said hundreds of injured people had arrived there.**\
-`By Matthew Mpoke Bigg and Iyad Abuheweila`\
-https://nytimes.com/live/2024/07/22/world/israel-gaza-war-hamas/an-official-at-a-major-hospital-in-gaza-said-hundreds-of-injured-people-had-arrived-there
-
 **Bowden: Why the rebuilding White Sox, A's and Tigers should trade their star pitchers**\
 `Jim Bowden explains why all three teams should try to trade their young pitching stars now if they can get the right value in return. `\
 https://nytimes.com/athletic/5650347/2024/07/22/rebuilding-mlb-team-trades-white-sox-athletics-tigers/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5649925/2024/07/22/rob-dillingham-timberwolves-flou
 **Chair of Police Oversight Board Resigns After Mayor Adams Pushes Her Out**\
 `Arva Rice, who led the Civilian Complaint Review Board, had criticized the Police Department and sought more power and funding for the independent agency.`\
 https://nytimes.com/2024/07/22/nyregion/adams-ccrb-chairwoman.html
+
+**How Well Do You Know Literary Brooklyn?**\
+`This bustling borough of New York City has been the setting for many novels — including the books in this short quiz.`\
+https://nytimes.com/interactive/2024/07/22/books/review/brooklyn-books-quiz.html
 
