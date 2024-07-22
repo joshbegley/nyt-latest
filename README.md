@@ -1,3 +1,7 @@
+**Kamala Harris Rapidly Picks Up Democratic Support as 2024 Race Is Reborn**\
+`Endorsements cascaded in as the vice president took swift control of the Biden campaign in a transformed contest, though Democrats including Barack Obama did not immediately back her.`\
+https://nytimes.com/2024/07/21/us/politics/harris-democrats-campaign-nominee-biden.html
+
 **Why Obama hasn’t endorsed Harris.**\
 `The former president has positioned himself as an impartial elder statesman above intraparty machinations and was neutral during the 2020 Democratic primaries.`\
 https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/why-obama-hasnt-endorsed-harris
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/in-wisconsin-bal
 **Missed opportunities cost Twins again as Milwaukee completes 2-game series sweep**\
 `The Twins had ample chances to beat the Brewers, but the bullpen faltered and the offense squandered too many chances Sunday.`\
 https://nytimes.com/athletic/5649807/2024/07/21/twins-swept-by-brewers-missed-opportunities/
-
-**At the 2024 Baseball Hall of Fame ceremony, reciprocal gratitude was everywhere**\
-`The class ‚ Jim Leyland, Adrián Beltré, Todd Helton and Joe Mauer — featured a beloved manager and three players with deep community bonds.`\
-https://nytimes.com/athletic/5649770/2024/07/21/baseball-hall-of-fame-mauer-beltre-leyland-helton/
 
