@@ -1,3 +1,7 @@
+**With Biden’s Endorsement of Harris, What’s Next?**\
+`Many Democrats endorsed the vice president as their party’s standard-bearer, but some donors questioned whether more competition for the role was needed.`\
+https://nytimes.com/2024/07/22/business/dealbook/harris-president-donors.html
+
 **At Brickyard 400, restart rule leaves Ryan Blaney wondering what could've been**\
 `"We should've won the race," Ryan Blaney said Sunday after a late restart let Kyle Larson slip into the inside row and take the victory.`\
 https://nytimes.com/athletic/5650050/2024/07/22/at-brickyard-400-restart-rule-leaves-ryan-blaney-wondering-what-couldve-been/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5650013/2024/07/22/dodgers-takeaways-gavin-lux-rota
 **LeBron to carry U.S. flag at Paris opening ceremony**\
 `James was selected by a vote of all Team USA athletes competing in the Paris Olympics.`\
 https://nytimes.com/athletic/5650284/2024/07/22/lebron-james-us-olympics-flag-bearer-paris/
-
-**The Most Urgent Question Facing Harris Isn’t About Trump**\
-`Harris may be the best candidate, but she needs to prove it before being nominated.`\
-https://nytimes.com/live/2024/07/09/opinion/thepoint/harris-earn-nomination-democrats
 
