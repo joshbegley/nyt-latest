@@ -2,7 +2,7 @@
 `By Catie Edmondson`\
 https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/in-wisconsin-baldwin-endorses-harris-and-voters-heave-a-sigh-of-relief
 
-**At the 2024 Baseball Hall of Fame induction ceremony, reciprocal gratitude was everywhere**\
+**At the 2024 Baseball Hall of Fame ceremony, reciprocal gratitude was everywhere**\
 `The class – Jim Leyland, Adrian Beltre, Todd Helton and Joe Mauer – featured a beloved manager and three players with deep community bonds.`\
 https://nytimes.com/athletic/5649770/2024/07/21/baseball-hall-of-fame-mauer-beltre-leyland-helton/
 
