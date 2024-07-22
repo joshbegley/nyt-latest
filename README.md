@@ -4,7 +4,7 @@ https://nytimes.com/2024/07/22/us/politics/kimberly-cheatle-secret-service-heari
 
 **Kamala Harris’s Presidential Bid Is Getting a Pop Music Rollout Online**\
 `Charli XCX, John Legend and other musicians posted messages supporting the vice president’s nomination, while fans remixed an old speech into pop hits on TikTok.`\
-https://nytimes.com/2024/07/22/arts/music/kamala-harris-musician-endorsements.html
+https://nytimes.com/2024/07/22/arts/music/kamala-harris-charli-xcx-taylor-swift-endorsements.html
 
 **The Weak Republican Response to Kamala Harris**\
 `The G.O.P. arguments suggest that party leaders are more flustered than they let on.`\
