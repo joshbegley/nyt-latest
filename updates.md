@@ -1,3 +1,7 @@
+**Goddess of the Dawn**\
+`Laura Dershewitz’s first solo puzzle is a musical Monday grid.`\
+https://nytimes.com/2024/07/21/crosswords/daily-puzzle-2024-07-22.html
+
 **Why Obama hasn’t endorsed Harris.**\
 `The former president has positioned himself as an impartial elder statesman above intraparty machinations and was neutral during the 2020 Democratic primaries.`\
 https://nytimes.com/2024/07/21/us/politics/why-obama-hasnt-endorsed-harris.html
