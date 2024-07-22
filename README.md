@@ -1,3 +1,7 @@
+**LeBron to carry U.S. flag at Paris opening ceremony**\
+`James was selected by a vote of all Team USA athletes competing in the Paris Olympics.`\
+https://nytimes.com/athletic/5650284/2024/07/22/lebron-james-us-olympics-flag-bearer-paris/
+
 **It’s Time for ‘Anything Is Possible’ Democratic Boldness**\
 `Harris may be the best candidate, but she needs to prove it before being nominated.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/harris-earn-nomination-democrats
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5648538/2024/07/22/cardinals-trade-deadline-targets
 **Blues' Jake Neighbours is putting in the work this summer to prove last season was no fluke**\
 `The 22-year-old forward scored 27 goals last season, and with no recent contract talks, he could be in for a big payday next summer.`\
 https://nytimes.com/athletic/5643775/2024/07/22/blues-jake-neighbours-stats/
-
-**Is Jordan Love worth it? Why the Packers will bet big on their quarterback**\
-`A small but brilliant sample during the last half of the 2023 season shows the prototype signal caller teams seek.`\
-https://nytimes.com/athletic/5557919/2024/07/22/jordan-love-film-breakdown/
 
