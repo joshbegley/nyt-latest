@@ -1,3 +1,11 @@
+**The Questions the Secret Service Director Did Not Answer**\
+`On Monday, Kimberly A. Cheatle told a House committee that she could not reveal — or did not know — key details about the attempted assassination of President Trump. Here’s what was missing.`\
+https://nytimes.com/2024/07/22/us/politics/kimberly-cheatle-secret-service-hearing-questions.html
+
+**Kamala Harris’s Presidential Bid Is Getting a Pop Music Rollout Online**\
+`Charli XCX, John Legend and other musicians posted messages supporting the vice president’s nomination, while fans remixed an old speech into pop hits on TikTok.`\
+https://nytimes.com/2024/07/22/arts/music/kamala-harris-musician-endorsements.html
+
 **The Weak Republican Response to Kamala Harris**\
 `The G.O.P. arguments suggest that party leaders are more flustered than they let on.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/republican-response-to-harris
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/in-press
 **Women Voters: Is the Country Ready for a Female President? Tell Us.**\
 `Let us know how you feel about a woman running for president in 2024.`\
 https://nytimes.com/2024/07/22/us/women-voters-female-president-feedback.html
-
-**Hunter Biden Drops Lawsuit Against Fox News Over Nude Photos**\
-`The president’s son withdrew his litigation on the same day that his father said he would not run for re-election.`\
-https://nytimes.com/2024/07/22/business/media/hunter-biden-fox-news-lawsuit.html
-
-**Harris Commends Biden’s Record at N.C.A.A. White House Event**\
-`A day after being endorsed by President Biden, Vice President Kamala Harris spoke at an event celebrating N.C.A.A. champions where she praised Biden and spoke fondly about her friendship with Beau Biden.`\
-https://nytimes.com/video/us/politics/100000009585765/harris-biden-beau.html
 
