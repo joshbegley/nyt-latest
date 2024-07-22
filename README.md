@@ -1,3 +1,7 @@
+**Kamala Harris Takes Control**\
+`President Biden has dropped out of the race. We answer four questions about what happens next.`\
+https://nytimes.com/2024/07/22/briefing/biden-harris-election-trump.html
+
 **Barton charged with alleged malicious communications towards Aluko**\
 `Joey Barton has been charged with alleged malicious communications towards Eni Aluko.`\
 https://nytimes.com/athletic/5650186/2024/07/22/joey-barton-charged-eni-aluko/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/22/podcasts/the-daily/biden-drops-out.html
 **Top Democrats Swing Behind Harris after Biden Exits Race**\
 `Plus, Secret Service chief to face a House hearing.`\
 https://nytimes.com/2024/07/22/podcasts/biden-withdraws-harris.html
-
-**Wordle Review No. 1,130, Tuesday, July 23, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/22/crosswords/wordle-review-1130.html
 
