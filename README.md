@@ -1,3 +1,11 @@
+**Here’s Where Kamala Harris Stands on Climate**\
+`She pursued polluters as attorney general in California and later staked out bold positions as a senator, including sponsorship of the Green New Deal.`\
+https://nytimes.com/2024/07/22/climate/kamala-harris-climate-environment.html
+
+**Memes, Texts and Other Jarring Ways Some Americans Heard the Biden News**\
+`When the president announced he was suspending his re-election bid, the news spread via some unexpected sources.`\
+https://nytimes.com/2024/07/22/style/biden-social-media-news.html
+
 **Rob Dillingham flourishes in summer-league finale, giving a glimpse of what he can become**\
 `The Wolves do not need Dillingham to be an All-Star right away, but they do need him to be a factor on a very good team.`\
 https://nytimes.com/athletic/5649925/2024/07/22/rob-dillingham-timberwolves-flourishes-summer-league/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/22/business/dealbook/harris-president-donors.html
 **At Brickyard 400, restart rule leaves Ryan Blaney wondering what could've been**\
 `"We should've won the race," Ryan Blaney said Sunday after a late restart let Kyle Larson slip into the inside row and take the victory.`\
 https://nytimes.com/athletic/5650050/2024/07/22/at-brickyard-400-restart-rule-leaves-ryan-blaney-wondering-what-couldve-been/
-
-**Word of the Day: futile**\
-`This word has appeared in 184 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/07/22/learning/word-of-the-day-futile.html
-
-**The Athletic FC: Why snus 'a huge problem,' United eye Obi-Martin, a pre-season wonder goal**\
-`Today in The Athletic FC: Why nicotine pouches are a 'huge problem' for players. Plus: Tyler Adams' latest surgery and a pre-season worldie.`\
-https://nytimes.com/athletic/5650211/2024/07/22/snus-huge-problem-united-obi-martin-the-athletic-fc/
 
