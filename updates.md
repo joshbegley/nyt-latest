@@ -1,3 +1,7 @@
+**Trump Donated to Kamala Harris’s Campaign for California Attorney General**\
+`Years before either came close to the White House, Donald J. Trump gave $6,000 to her campaigns for statewide office. His daughter, Ivanka, gave $2,000.`\
+https://nytimes.com/2024/07/22/us/politics/trump-kamala-harris-donation.html
+
 **A U.K. Deportation Plan Cost $900 Million. Only Four People Left.**\
 `Britain’s last Conservative government spent almost a billion dollars on its controversial plan to send asylum seekers to Rwanda, the newly appointed minister for immigration said Monday.`\
 https://nytimes.com/2024/07/22/world/europe/uk-rwanda-deportation-plan.html
