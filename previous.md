@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5651572/2024/07/22/bengals-media-luncheon-mike-brow
 https://nytimes.com/2024/07/22/style/olympians-unboxing-sponsored-gear.html
 
 **Jordan Addison's status, the QB depth chart and more Vikings news ahead of training camp**\
-`Before training camp, GM Kwesi Adofo-Mensah and coach Kevin O'Connell touched on several intriguing topics facing the Vikings.`\
+`Before training camp, GM Kwesi Adofo-Mensah and coach Kevin O'Connell touched on several intriguing topics facing the team.`\
 https://nytimes.com/athletic/5651504/2024/07/22/vikings-jordan-addison-jj-mccarthy-training-camp/
 
 **Democrats Cleared the Path for Harris’s Nomination**\
