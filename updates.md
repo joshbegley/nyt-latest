@@ -1,3 +1,7 @@
+**Olympians Are Getting Loads and Loads of Gear**\
+`Athletes are unboxing sponsored merchandise and sharing try-on hauls on TikTok, featuring brands like Nike and Lululemon.`\
+https://nytimes.com/2024/07/22/style/olympians-unboxing-sponsored-gear.html
+
 **Ground breaks on Flames' new arena, expected to be completed in 2027**\
 `The new event centre is expected to be completed in time for the 2027-28 NHL season and will have a capacity of 18,400.`\
 https://nytimes.com/athletic/5644365/2024/07/22/flames-arena-calgary-scotia-place/

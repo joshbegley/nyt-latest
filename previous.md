@@ -14,7 +14,7 @@ https://nytimes.com/2024/07/22/us/politics/doug-emhoff-kamala-harris-husband.htm
 `From Joe Burrow's health to Ja'Marr Chase's future, Brown, Duke Tobin, Zac Taylor and coaches addressed several topics.`\
 https://nytimes.com/athletic/5651572/2024/07/22/bengals-media-luncheon-mike-brown/
 
-**Olympians are Getting Loads and Loads of Gear**\
+**Olympians Are Getting Loads and Loads of Gear**\
 `Athletes are unboxing sponsored merchandise and sharing try-on hauls on TikTok, featuring brands like Nike and Lululemon.`\
 https://nytimes.com/2024/07/22/style/olympians-unboxing-sponsored-gear.html
 
