@@ -1,3 +1,7 @@
+**Phillies' Tyler Phillips finding ways to fuel his starts as he lives his big-league dream**\
+`Phillips used his rough spring outing against the Pirates as motivation Sunday. He has an opportunity to be a summer hero for the Phillies.`\
+https://nytimes.com/athletic/5649848/2024/07/21/tyler-phillips-phillies-motivation/
+
 **Biden Is Out, and Democrats Have a Whole New Set of Questions**\
 `An earthshaking political moment finally arrived, and the transformation of the campaign starts now.`\
 https://nytimes.com/2024/07/21/us/politics/kamala-harris-campaign-nomination-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5649723/2024/07/21/braves-ozzie-albies-nacho-alvare
 **Kyle Larson wins Brickyard 400 for first time**\
 `Larson then beat Blaney again on a second overtime restart and won under caution.`\
 https://nytimes.com/athletic/5649779/2024/07/21/kyle-larson-brickyard-400/
-
-**‘Overjoyed.’ ‘Desperate.’ ‘Too Late.’ Democrats React to Biden’s Exit**\
-`Democratic voters said they were relieved that President Biden was ending his campaign, but many said they remain worried about the political path ahead.`\
-https://nytimes.com/2024/07/21/us/biden-voters-democrats.html
 
