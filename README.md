@@ -1,3 +1,11 @@
+**Hunter Biden Drops Lawsuit Against Fox News Over Nude Photos**\
+`The president’s son withdrew his litigation on the same day that his father said he would not run for re-election.`\
+https://nytimes.com/2024/07/22/business/media/hunter-biden-fox-news-lawsuit.html
+
+**Harris Commends Biden’s Record at N.C.A.A. White House Event**\
+`A day after being endorsed by President Biden, Vice President Kamala Harris spoke at an event celebrating N.C.A.A. champions where she praised Biden and spoke fondly about her friendship with Beau Biden.`\
+https://nytimes.com/video/us/politics/100000009585765/harris-biden-beau.html
+
 **The Windup: Castellanos can’t keep doing this**\
 `Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
 https://nytimes.com/athletic/5650801/2024/07/22/nick-castellanos-shohei-ohtani-hall-of-fame-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5650446/2024/07/22/caitlin-clark-angel-reese-wnba-a
 **SoftBank’s Chief Pitches a New Path for Self-Driving Cars**\
 `Masayoshi Son, the billionaire founder of SoftBank, is trying to rally automakers around the world to join forces on autonomous-driving technologies.`\
 https://nytimes.com/2024/07/22/business/softbank-self-driving-cars.html
-
-**Israel Risks All-Out War With Hezbollah. A Truce in Gaza May Reduce That Threat.**\
-`After nine months of low-level conflict between Israel and Hezbollah, the risk of all-out war is higher than ever. A cease-fire in Gaza would provide an offramp for both sides, diplomats say.`\
-https://nytimes.com/2024/07/22/world/middleeast/israel-hezbollah-gaza-war.html
-
-**Three thoughts on Canucks' Daniel Sprong signing: Cap space, fit and shooting efficiency**\
-`Signing Sprong adds much-needed firepower to Vancouver's offensive arsenal.`\
-https://nytimes.com/athletic/5650081/2024/07/22/canucks-daniel-sprong-contract/
 
