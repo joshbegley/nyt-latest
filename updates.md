@@ -1,3 +1,7 @@
+**The Windup: Castellanos can’t keep doing this**\
+`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
+https://nytimes.com/athletic/5650801/2024/07/22/nick-castellanos-shohei-ohtani-hall-of-fame-the-windup/
+
 **Spurs leave Gil, Reguilon out of tour squad to 'explore transfer opportunities'**\
 `Sergio Reguilon and Bryan Gil have been left out of Tottenham Hotspur’s squad for their pre-season tour to Japan and South Korea.`\
 https://nytimes.com/athletic/5650779/2024/07/22/tottenham-transfers-bryan-gil-sergio-reguilon/
