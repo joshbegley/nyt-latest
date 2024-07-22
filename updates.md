@@ -1,3 +1,15 @@
+**Gunman Kills at Least 6 at Nursing Home in Croatia**\
+`President Zoran Milanovic called for stricter gun control after an attack that shook Croatia, where mass killings are rare. A suspect was arrested nearby.`\
+https://nytimes.com/2024/07/22/world/europe/croatia-senior-home-shooting.html
+
+**In pressing for Harris, her campaign cites her law enforcement and abortion record.**\
+`By Kate Kelly`\
+https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/in-pressing-for-harris-her-campaign-cites-her-law-enforcement-and-abortion-record
+
+**Women Voters: Is the Country Ready for a Female President? Tell Us.**\
+`Let us know how you feel about a woman running for president in 2024.`\
+https://nytimes.com/2024/07/22/us/women-voters-female-president-feedback.html
+
 **Hunter Biden Drops Lawsuit Against Fox News Over Nude Photos**\
 `The president’s son withdrew his litigation on the same day that his father said he would not run for re-election.`\
 https://nytimes.com/2024/07/22/business/media/hunter-biden-fox-news-lawsuit.html
