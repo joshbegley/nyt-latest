@@ -1,3 +1,7 @@
+**McLaren may need to be ruthless to beat Red Bull — and it could get uncomfortable**\
+`The closer McLaren gets to Red Bull, the more its preferred way of fighting will be tested.`\
+https://nytimes.com/athletic/5650582/2024/07/22/f1-mclaren-red-bull-championship-battle/
+
 **Harris Raises More Than $50 Million as Biden’s Exit Unleashes Cash Wave**\
 `The funds will help rebuild a Democratic war chest that was at risk of getting depleted in the weeks of uncertainty after President Biden’s poor debate, as big donors put a pause on fund-raising.`\
 https://nytimes.com/2024/07/22/us/politics/harris-fundraising-biden-actblue.html
