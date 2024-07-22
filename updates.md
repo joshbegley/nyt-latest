@@ -1,3 +1,15 @@
+**In Silicon Valley, Where Trump Made Inroads, Democrats Are Now Invigorated**\
+`Elon Musk, Marc Andreessen and others have endorsed Donald J. Trump. But President Biden’s withdrawal has re-energized Democrats across the tech industry and may blunt that momentum.`\
+https://nytimes.com/2024/07/22/technology/silicon-valley-trump-biden-democrats.html
+
+**Aston Villa complete Amadou Onana transfer from Everton**\
+`Aston Villa have completed the signing of Amadou Onana from Everton.`\
+https://nytimes.com/athletic/5635383/2024/07/22/amadou-onana-aston-villa-transfer-everton/
+
+**Impulsive and Hyperactive? It Doesn’t Mean You Have A.D.H.D.**\
+`Many other conditions have similar symptoms, experts say, so avoid the pull of self-diagnosis.`\
+https://nytimes.com/2024/07/22/well/mind/adhd-depression-anxiety-symptoms.html
+
 **Lowetide: How the Oilers can extend the Connor McDavid window to win**\
 `The Oilers appear to be aggressive in attacking issues that have long plagued the team.`\
 https://nytimes.com/athletic/5649400/2024/07/22/edmonton-oilers-connor-mcdavid-window/
