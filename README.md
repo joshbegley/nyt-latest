@@ -34,7 +34,7 @@ https://nytimes.com/2024/07/22/opinion/paris-olympics-medals-winner.html
 `Joe Biden must have accepted that he is yesterday, and chose to let the party move on.`\
 https://nytimes.com/2024/07/22/opinion/joe-biden-lyndon-johnson-truman.html
 
-**Biden’s Resignation, a Reporter’s Call to Action**\
+**Biden’s Withdrawal From Race, a Reporter’s Call to Action**\
 `Reid J. Epstein, a politics reporter at The New York Times, had just finished eating cupcakes at his son’s birthday party when he saw Biden’s bombshell announcement. He raced home, and got to work.`\
 https://nytimes.com/2024/07/22/insider/how-times-reporter-covered-biden-dropping-out.html
 
