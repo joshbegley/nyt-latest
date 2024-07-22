@@ -1,3 +1,11 @@
+**Lowetide: How the Oilers can extend the Connor McDavid window to win**\
+`The Oilers appear to be aggressive in attacking issues that have long plagued the team.`\
+https://nytimes.com/athletic/5649400/2024/07/22/edmonton-oilers-connor-mcdavid-window/
+
+**Live Updates: Secret Service Chief Testifies on ‘Failed’ Response at Trump Rally**\
+`Kimberly A. Cheatle called the assassination attempt on former President Donald J. Trump “the most significant operational failure” of the security agency in decades.`\
+https://nytimes.com/live/2024/07/22/us/secret-service-hearing-trump-cheatle
+
 **Eminem Ends Taylor Swift’s Chart Run With His 11th No. 1 Album**\
 `The rapper’s “The Death of Slim Shady (Coup de Grâce)” replaced the pop superstar’s “The Tortured Poets Department” after 12 weeks of dominance at the top.`\
 https://nytimes.com/2024/07/22/arts/music/eminem-taylor-swift-billboard-chart.html

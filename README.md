@@ -1,7 +1,3 @@
-**Lowetide: How the Oilers can extend the Connor McDavid window to win**\
-`The Oilers appear to be aggressive in attacking issues that have long plagued the team.`\
-https://nytimes.com/athletic/5649400/2024/07/22/edmonton-oilers-connor-mcdavid-window/
-
 **Eminem Ends Taylor Swift’s Chart Run With His 11th No. 1 Album**\
 `The rapper’s “The Death of Slim Shady (Coup de Grâce)” replaced the pop superstar’s “The Tortured Poets Department” after 12 weeks of dominance at the top.`\
 https://nytimes.com/2024/07/22/arts/music/eminem-taylor-swift-billboard-chart.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5650485/2024/07/22/mlb-power-rankings-readers-editi
 **The Athletic's first-ever MLB Power Rankings Readers' Edition: Cast your vote now**\
 `The Athletic's July 23 edition of the Power Rankings will be voted upon by you, the readers. `\
 https://nytimes.com/athletic/5650441/2024/07/22/the-athletics-first-ever-mlb-power-rankings-readers-edition-cast-your-vote-now/
+
+**Here’s Where Kamala Harris Stands on Climate**\
+`She pursued polluters as attorney general in California and later staked out bold positions as a senator, including sponsorship of the Green New Deal.`\
+https://nytimes.com/2024/07/22/climate/kamala-harris-climate-environment.html
 
