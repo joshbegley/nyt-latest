@@ -1,3 +1,7 @@
+**Chelsea make approach to sign goalkeeper Jorgensen from Villareal**\
+`Chelsea have made an approach to sign goalkeeper Filip Jorgensen from Villareal.`\
+https://nytimes.com/athletic/5651010/2024/07/22/chelsea-jorgensen-transfer-approach-villareal/
+
 **Connor Stalions to appear in Netflix 'Sign Stealer' documentary**\
 `Connor Stalions, the ex-Michigan staffer implicated in a sign-stealing scandal, will be part of a Netflix documentary released Aug. 27.`\
 https://nytimes.com/athletic/5651053/2024/07/22/connor-stalions-netflix-documentary-michigan-sign-stealer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/22/us/politics/kimberly-cheatle-secret-service-heari
 **Kamala Harris’s Presidential Bid Is Getting a Pop Music Rollout Online**\
 `Charli XCX, John Legend and other musicians posted messages supporting the vice president’s nomination, while fans remixed an old speech into pop hits on TikTok.`\
 https://nytimes.com/2024/07/22/arts/music/kamala-harris-charli-xcx-taylor-swift-endorsements.html
-
-**The Weak Republican Response to Kamala Harris**\
-`The G.O.P. arguments suggest that party leaders are more flustered than they let on.`\
-https://nytimes.com/live/2024/07/22/opinion/thepoint/republican-response-to-harris
 
