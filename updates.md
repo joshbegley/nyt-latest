@@ -1,3 +1,7 @@
+**Barton charged with alleged malicious communications towards Aluko**\
+`Joey Barton has been charged with alleged malicious communications towards Eni Aluko.`\
+https://nytimes.com/athletic/5650186/2024/07/22/joey-barton-charged-eni-aluko/
+
 **Cardinals trade deadline takeaways: 3 ways to improve the roster**\
 `Expect the Cardinals to explore upper-to-middle rotation arms and an outfielder with power as the deadline approaches.`\
 https://nytimes.com/athletic/5648538/2024/07/22/cardinals-trade-deadline-targets/
