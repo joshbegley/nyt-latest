@@ -1,3 +1,7 @@
+**It’s Time for ‘Anything Is Possible’ Democratic Boldness**\
+`Harris may be the best candidate, but she needs to prove it before being nominated.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/harris-earn-nomination-democrats
+
 **The Pulse: NFL coaches on the hot seat**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5649911/2024/07/22/nfl-coaches-hot-seat-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5643775/2024/07/22/blues-jake-neighbours-stats/
 **Is Jordan Love worth it? Why the Packers will bet big on their quarterback**\
 `A small but brilliant sample during the last half of the 2023 season shows the prototype signal caller teams seek.`\
 https://nytimes.com/athletic/5557919/2024/07/22/jordan-love-film-breakdown/
-
-**Joe Biden Drops Out**\
-`The president’s decision not to seek re-election upended the race and set the stage for a raucous and unpredictable campaign.`\
-https://nytimes.com/2024/07/22/podcasts/the-daily/biden-drops-out.html
 
