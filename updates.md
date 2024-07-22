@@ -1,3 +1,7 @@
+**Silicon Valley Investors’ Plans for a New City Put on Hold**\
+`Plan for new city near San Francisco has been delayed at least two years to study its impact on the environment.`\
+https://nytimes.com/2024/07/22/business/economy/california-forever-solano-county-city-on-hold.html
+
 **Every Running Mate Is a Diversity Pick**\
 `Modern running mates are chosen to balance tickets.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/vice-president-diversity
