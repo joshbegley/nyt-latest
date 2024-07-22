@@ -1,3 +1,7 @@
+**Why Obama hasn’t endorsed Harris.**\
+`By Peter Baker and Glenn Thrush`\
+https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/why-obama-hasnt-endorsed-harris
+
 **Shohei Ohtani blasts 473-foot home run at Dodger Stadium**\
 `It marked the farthest home run hit at Dodger Stadium since Stanton’s 475-foot blast in 2015.`\
 https://nytimes.com/athletic/5649912/2024/07/21/shohei-ohtani-home-run-dodger-stadium/
