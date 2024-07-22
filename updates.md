@@ -1,3 +1,11 @@
+**Special report: Why is snus rife in football?**\
+`For years it has been known that many footballers use snus, but in this special report we try to understand the reasons why`\
+https://nytimes.com/athletic/5529700/2024/07/22/special-report-why-is-snus-rife-in-football/
+
+**Investors React to Election Upheaval, Reassessing Their Political Bets**\
+`A new Democratic ticket could alter investors’ perceived election odds, with implications for stocks, bonds, the dollar and more.`\
+https://nytimes.com/2024/07/22/us/politics/biden-market-reaction.html
+
 **Marseille: A city divided over Mason Greenwood transfer**\
 `After the forward’s transfer to the Ligue 1 side, The Athletic travelled to Marseille to see how the move has been received by fans`\
 https://nytimes.com/athletic/5649315/2024/07/22/marseille-divided-mason-greenwood-manchester-united/
