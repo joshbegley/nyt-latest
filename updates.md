@@ -1,3 +1,11 @@
+**Swindled Savings**\
+`Articles in this series examine a rise in cybercrime targeting older Americans and their retirement savings.`\
+https://nytimes.com/series/swindled-savings
+
+**Jordan Addison's status, the QB depth chart and more Vikings news ahead of training camp**\
+`Before training camp, GM Kwesi Adofo-Mensah and coach Kevin O'Connell touched on several intriguing topics facing the Vikings.`\
+https://nytimes.com/athletic/5651504/2024/07/22/vikings-jordan-addison-jj-mccarthy-training-camp/
+
 **What to Know About Kamala Harris’s Husband, Doug Emhoff**\
 `As the spouse of the first woman to be vice president, Doug Emhoff has focused on combating antisemitism and expanding access to legal aid.`\
 https://nytimes.com/2024/07/22/us/politics/doug-emhoff-kamala-harris-husband.html
