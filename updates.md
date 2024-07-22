@@ -1,3 +1,11 @@
+**Cardinals trade deadline takeaways: 3 ways to improve the roster**\
+`Expect the Cardinals to explore upper-to-middle rotation arms and an outfielder with power as the deadline approaches.`\
+https://nytimes.com/athletic/5648538/2024/07/22/cardinals-trade-deadline-targets/
+
+**Is Jordan Love worth it? Why the Packers will bet big on their quarterback**\
+`A small but brilliant sample during the last half of the 2023 season shows the prototype signal caller teams seek.`\
+https://nytimes.com/athletic/5557919/2024/07/22/jordan-love-film-breakdown/
+
 **Broncos 53-man roster prediction: Bo Nix and the QB battle is just the start**\
 `The Broncos must figure out a pecking order among skill-position players during what should be a hotly contested training camp.`\
 https://nytimes.com/athletic/5649148/2024/07/22/denver-broncos-roster-prediction-training-camp/

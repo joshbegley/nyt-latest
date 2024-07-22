@@ -10,9 +10,17 @@ https://nytimes.com/athletic/5649694/2024/07/22/ravens-lamar-jackson-john-harbau
 `With Houston now in a tie for first in the AL West, the Astros will look to add at the deadline. But how much extra money will they take on?`\
 https://nytimes.com/athletic/5649838/2024/07/22/astros-luxury-tax-trade-deadline-hunter-brown/
 
+**Cardinals trade deadline takeaways: 3 ways to improve the roster**\
+`Expect the Cardinals to explore upper-to-middle rotation arms and an outfielder with power as the deadline approaches.`\
+https://nytimes.com/athletic/5648538/2024/07/22/cardinals-trade-deadline-targets/
+
 **Blues' Jake Neighbours is putting in the work this summer to prove last season was no fluke**\
 `The 22-year-old forward scored 27 goals last season, and with no recent contract talks, he could be in for a big payday next summer.`\
 https://nytimes.com/athletic/5643775/2024/07/22/blues-jake-neighbours-stats/
+
+**Is Jordan Love worth it? Why the Packers will bet big on their quarterback**\
+`A small but brilliant sample during the last half of the 2023 season shows the prototype signal caller teams seek.`\
+https://nytimes.com/athletic/5557919/2024/07/22/jordan-love-film-breakdown/
 
 **Joe Biden Drops Out**\
 `The president’s decision not to seek re-election upended the race and set the stage for a raucous and unpredictable campaign.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/22/crosswords/wordle-review-1130.html
 **The Connections Companion No. 408, July 23, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/22/crosswords/connections-companion-408.html
-
-**Harris seeks to unify the Democratic Party and fend off opposition. Here’s the latest.**\
-`By Peter Baker`\
-https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/harris-seeks-to-unify-the-democratic-party-and-fend-off-opposition-heres-the-latest
-
-**Netanyahu plans to meet with Biden and is set to address Congress this week.**\
-`By Patrick Kingsley`\
-https://nytimes.com/live/2024/07/22/world/israel-gaza-war-hamas/netanyahu-is-set-to-meet-with-biden-and-address-congress-this-week
 
