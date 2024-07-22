@@ -1,3 +1,7 @@
+**U.S. Olympic Committee Sues Logan Paul’s Drink Company**\
+`The suit accuses Prime Hydration of using trademarked terms including “Olympic” and “Team USA” to promote a sports drink that features Kevin Durant.`\
+https://nytimes.com/2024/07/22/us/logan-paul-prime-lawsuit-olympic-committee.html
+
 **Chelsea make approach to sign goalkeeper Jorgensen from Villarreal**\
 `Chelsea have made an approach to sign goalkeeper Filip Jorgensen from Villarreal.`\
 https://nytimes.com/athletic/5651010/2024/07/22/chelsea-jorgensen-transfer-approach-villarreal/
