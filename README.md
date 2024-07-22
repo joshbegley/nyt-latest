@@ -18,8 +18,8 @@ https://nytimes.com/live/2024/07/22/world/israel-gaza-war-hamas/an-official-at-a
 `Jim Bowden explains why he thinks all three teams should trade their young pitching stars now if they can get enough in return. `\
 https://nytimes.com/athletic/5650347/2024/07/22/rebuilding-mlb-team-trades-white-sox-athletics-tigers/
 
-**Live Updates: Secret Service Chief Set to Testify ‘We Failed’ at Trump Rally**\
-`Kimberly A. Cheatle intends to take “full responsibility” for security lapses, according to an excerpt of remarks she will give before a congressional committee on Monday.`\
+**Live Updates: Secret Service Chief Testifies on ‘Failed’ Response at Trump Rally**\
+`Kimberly A. Cheatle called the assassination attempt on former President Donald J. Trump “the most significant operational failure” of the security agency in decades.`\
 https://nytimes.com/live/2024/07/22/us/secret-service-hearing-trump-cheatle
 
 **One Night of TV Canceled a President**\
