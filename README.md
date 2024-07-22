@@ -6,7 +6,7 @@ https://nytimes.com/2024/07/21/us/politics/kamala-harris-campaign-nomination-bid
 `Schauffele moved away from his father as his primary swing coach this year, but kept his longtime friend as caddie.`\
 https://nytimes.com/athletic/5649753/2024/07/21/xander-schauffele-open-championship-father-caddie/
 
-**Some Black Voters Say They Wonder If a Black Woman Can Win**\
+**Some Black Voters Say They Wonder if a Black Woman Can Win**\
 `In interviews, some Black voters expressed concern about whether Americans were ready to elect Kamala Harris, who has the backing of President Biden.`\
 https://nytimes.com/2024/07/21/us/black-voters-kamala-harris.html
 
