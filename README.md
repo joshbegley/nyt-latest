@@ -1,3 +1,7 @@
+**A Kamala Harris Impersonator Is Ready for Her Moment**\
+`Allison Reese, a comedian, does TikTok’s favorite impression of the vice president. She’s about to have a busy week.`\
+https://nytimes.com/2024/07/22/style/kamala-harris-impersonator-allison-reece.html
+
 **Gunman Kills at Least 6 at Nursing Home in Croatia**\
 `President Zoran Milanovic called for stricter gun control after an attack that shook Croatia, where mass killings are rare. A suspect was arrested nearby.`\
 https://nytimes.com/2024/07/22/world/europe/croatia-senior-home-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/22/us/politics/biden-election-legacy-harris-trump.ht
 **Darren Walker, Who Reoriented the Ford Foundation, to Step Down**\
 `Mr. Walker, who oversaw $7 billion in grants, plans to leave at the end of 2025 after what will have been 12 years.`\
 https://nytimes.com/2024/07/22/arts/darren-walker-ford-foundation-stepping-down.html
-
-**Howe: Gordon 'integral'; Newcastle must learn from PSR mistakes**\
-`Eddie Howe insists Anthony Gordon is &#8220;integral&#8221; to Newcastle United&#8217;s plans and stresses that the club will fight to keep hold of &#8220;our best players&#8221;.`\
-https://nytimes.com/athletic/5650201/2024/07/22/anthony-gordon-newcastle-transfers-psr/
 
