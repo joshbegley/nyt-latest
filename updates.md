@@ -1,3 +1,7 @@
+**Mavericks, Spencer Dinwiddie agree to 1-year deal**\
+`In 76 games played last season, Dinwiddie averaged 10.5 points, 2.7 rebounds and 4.7 assists.`\
+https://nytimes.com/athletic/5650960/2024/07/22/mavericks-spencer-dinwiddie-deal/
+
 **Kamala Harris’s Presidential Bid Is Getting a Pop Music Rollout Online**\
 `Charli XCX, John Legend and other musicians posted messages supporting the vice president’s nomination, while fans remixed an old speech into pop hits on TikTok.`\
 https://nytimes.com/2024/07/22/arts/music/kamala-harris-charli-xcx-taylor-swift-endorsements.html
