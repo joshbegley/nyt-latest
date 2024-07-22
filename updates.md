@@ -1,3 +1,15 @@
+**Illinois State Police Releases Footage of Deputy Fatally Shooting Woman**\
+`The woman, Sonya Massey, 36, called 911 on July 6 because she believed there was an intruder in her home. She was fatally shot by a sheriff’s deputy who has been fired and is charged with murder.`\
+https://nytimes.com/2024/07/22/us/illinois-sonya-massey-body-cam-footage.html
+
+**Europe cheered on Biden after his exit, and Russia yawned.**\
+`By Tim Balk`\
+https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/europe-cheered-on-biden-after-his-exit-and-russia-yawned
+
+**Robert L. Allen, Who Shed Light on a Navy Yard Blast and Trial, Dies at 82**\
+`He wrote of how 50 Black sailors were court-martialed for refusing to keep loading munitions after explosions in 1944 killed hundreds. They were exonerated this month.`\
+https://nytimes.com/2024/07/22/us/robert-l-allen-dead.html
+
 **Kamala Harris and the Political Power of Joy**\
 `Suddenly, a campaign that felt like a bleak death march has become fun.`\
 https://nytimes.com/2024/07/22/opinion/kamala-harris-excitement.html
