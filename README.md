@@ -1,3 +1,7 @@
+**Paul Watson, Anti-Whaling Activist, Is Detained in Greenland**\
+`Mr. Watson, the founder of the conservation group Sea Shepherd, was arrested when his boat docked in Nuuk. He could face extradition to Japan.`\
+https://nytimes.com/2024/07/22/world/europe/paul-watson-whaling-arrest-greenland.html
+
 **Biden Shepherded Europe on Ukraine and NATO. What Happens Now?**\
 `President Biden’s stance on Ukraine was shaped by a deep commitment to America’s trans-Atlantic alliance. Some Europeans fear he may be among the last of his kind.`\
 https://nytimes.com/2024/07/22/world/europe/biden-ukraine-nato.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/22/briefing/biden-harris-election-trump.html
 **Barton charged with alleged malicious communications towards Aluko**\
 `Joey Barton has been charged with alleged malicious communications towards Eni Aluko.`\
 https://nytimes.com/athletic/5650186/2024/07/22/joey-barton-charged-eni-aluko/
-
-**Broncos 53-man roster prediction: Bo Nix and the QB battle is just the start**\
-`The Broncos must figure out a pecking order among skill-position players during what should be a hotly contested training camp.`\
-https://nytimes.com/athletic/5649148/2024/07/22/denver-broncos-roster-prediction-training-camp/
 
