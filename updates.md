@@ -1,3 +1,7 @@
+**Is It a Mistake for Democrats to Go All In on Harris? Four Columnists on the Party’s Moves.**\
+`As Democratic leaders fall in line behind Harris, her strengths and weaknesses warrant a closer look.`\
+https://nytimes.com/2024/07/22/opinion/kamala-harris-democrats.html
+
 **Trump Donated to Kamala Harris’s Campaign for California Attorney General**\
 `Years before either came close to the White House, Donald J. Trump gave $6,000 to her campaigns for statewide office. His daughter, Ivanka, gave $2,000.`\
 https://nytimes.com/2024/07/22/us/politics/trump-kamala-harris-donation.html
