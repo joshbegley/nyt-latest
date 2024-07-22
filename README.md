@@ -1,3 +1,11 @@
+**Harris Steps Into the Spotlight, Reintroducing Herself on Her Own Terms**\
+`Vice President Kamala Harris scooped up endorsements and wasted no time starting to build her new profile as the presumptive nominee and the new hope for defeating former President Donald J. Trump.`\
+https://nytimes.com/2024/07/22/us/politics/kamala-harris-campaign.html
+
+**Packers don't seem worried as Jordan Love holds in: 'He's our franchise quarterback'**\
+`Love isn't practicing until he has a new deal, but he's participating in everything else as the Packers kick off training camp.`\
+https://nytimes.com/athletic/5650953/2024/07/22/packers-jordan-love-contract-hold-in/
+
 **Map: 5.7-Magnitude Earthquake Strikes off the Coast of Panama**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/07/22/world/americas/panama-quake.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5649199/2024/07/22/brickyard-400-nascar-kyle-larson
 **How Media Outlets on the Left and Right Covered Biden’s Withdrawal**\
 `Progressive publications said President Biden’s decision to withdraw from the 2024 election was heroic. Conservative commentators suggested that if he is unable to campaign, he should step down from the presidency, too.`\
 https://nytimes.com/2024/07/22/business/media/media-left-right-biden-withdrawal.html
-
-**Barbra Streisand Endorses Harris. Where Do Other Stars Stand?**\
-`Robert De Niro thanked President Biden, Aaron Sorkin backed Vice President Kamala Harris (not Mitt Romney) as his replacement and George Clooney is keeping quiet.`\
-https://nytimes.com/article/kamala-harris-celebrity-endorsements.html
-
-**ACC commissioner vows to fight FSU, Clemson lawsuits 'for as long as it takes'**\
-`With the ACC mired in four different lawsuits in three separate states, Phillips doubled down on the league's position at media days.`\
-https://nytimes.com/athletic/5651324/2024/07/22/jim-phillips-acc-will-fight-for-as-long-as-it-takes-in-defending-grant-of-rights/
 
