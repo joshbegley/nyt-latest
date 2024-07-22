@@ -1,3 +1,11 @@
+**Special report: Why is snus rife in football?**\
+`For years it has been known that many footballers use snus, but in this special report we try to understand the reasons why`\
+https://nytimes.com/athletic/5529700/2024/07/22/special-report-why-is-snus-rife-in-football/
+
+**Investors React to Election Upheaval, Reassessing Their Political Bets**\
+`A new Democratic ticket could alter investors’ perceived election odds, with implications for stocks, bonds, the dollar and more.`\
+https://nytimes.com/2024/07/22/us/politics/biden-market-reaction.html
+
 **Marseille: A city divided over Mason Greenwood transfer**\
 `After the forward’s transfer to the Ligue 1 side, The Athletic travelled to Marseille to see how the move has been received by fans`\
 https://nytimes.com/athletic/5649315/2024/07/22/marseille-divided-mason-greenwood-manchester-united/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/21/us/politics/harris-democrats-campaign-nominee-bid
 **Why Obama hasn’t endorsed Harris.**\
 `The former president has positioned himself as an impartial elder statesman above intraparty machinations and was neutral during the 2020 Democratic primaries.`\
 https://nytimes.com/2024/07/21/us/politics/why-obama-hasnt-endorsed-harris.html
-
-**Shohei Ohtani blasts 473-foot home run at Dodger Stadium**\
-`It marked the farthest home run hit at Dodger Stadium since Stanton’s 475-foot blast in 2015.`\
-https://nytimes.com/athletic/5649912/2024/07/21/shohei-ohtani-home-run-dodger-stadium/
-
-**Homeland Security Secretary Announces Panel on Trump Assassination Attempt**\
-`Secretary Alejandro N. Mayorkas said the bipartisan group of experts would get to the bottom of decisions that allowed a gunman to wound the former president at a rally in Pennsylvania.`\
-https://nytimes.com/2024/07/21/us/politics/panel-trump-assassination-attempt.html
 
