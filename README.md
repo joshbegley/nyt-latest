@@ -1,3 +1,7 @@
+**Barton charged with alleged malicious communications towards Aluko**\
+`Joey Barton has been charged with alleged malicious communications towards Eni Aluko.`\
+https://nytimes.com/athletic/5650186/2024/07/22/joey-barton-charged-eni-aluko/
+
 **Broncos 53-man roster prediction: Bo Nix and the QB battle is just the start**\
 `The Broncos must figure out a pecking order among skill-position players during what should be a hotly contested training camp.`\
 https://nytimes.com/athletic/5649148/2024/07/22/denver-broncos-roster-prediction-training-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/22/podcasts/biden-withdraws-harris.html
 **Wordle Review No. 1,130, Tuesday, July 23, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/22/crosswords/wordle-review-1130.html
-
-**The Connections Companion No. 408, July 23, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/22/crosswords/connections-companion-408.html
 
