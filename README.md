@@ -1,3 +1,7 @@
+**China is hosting talks between the two main Palestinian factions, but expectations are low.**\
+`By Alexandra Stevenson and Adam Rasgon`\
+https://nytimes.com/live/2024/07/22/world/israel-gaza-war-hamas/china-hosts-talks-between-the-two-main-palestinian-factions-but-expectations-are-low
+
 **Padres takeaways: What is the value of Michael King’s efficiency?**\
 `Notes on how King is making the most of his innings and on who would start a potential Game 2 in the postseason.`\
 https://nytimes.com/athletic/5648983/2024/07/22/padres-takeaways-michael-king-innings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5649148/2024/07/22/denver-broncos-roster-prediction
 **Ravens coach John Harbaugh reveals grand 'vision' for two-time MVP Lamar Jackson**\
 `Plus, Marlon Humphrey shined on the first day of training camp and Eddie Jackson took the practice field after officially signing his deal. `\
 https://nytimes.com/athletic/5649694/2024/07/22/ravens-lamar-jackson-john-harbaugh/
-
-**Two Astros takeaways: Hunter Brown's rise, how luxury tax could impact the trade deadline**\
-`With Houston now in a tie for first in the AL West, the Astros will look to add at the deadline. But how much extra money will they take on?`\
-https://nytimes.com/athletic/5649838/2024/07/22/astros-luxury-tax-trade-deadline-hunter-brown/
 
