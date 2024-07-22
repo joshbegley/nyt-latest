@@ -34,7 +34,7 @@ https://nytimes.com/athletic/5650013/2024/07/22/dodgers-takeaways-gavin-lux-rota
 `James was selected by a vote of all Team USA athletes competing in the Paris Olympics.`\
 https://nytimes.com/athletic/5650284/2024/07/22/lebron-james-us-olympics-flag-bearer-paris/
 
-**It’s Time for ‘Anything Is Possible’ Democratic Boldness**\
+**The Most Urgent Question Facing Harris Isn’t About Trump**\
 `Harris may be the best candidate, but she needs to prove it before being nominated.`\
 https://nytimes.com/live/2024/07/09/opinion/thepoint/harris-earn-nomination-democrats
 
