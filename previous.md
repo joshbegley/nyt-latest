@@ -1,3 +1,11 @@
+**How Well Do You Know Literary Brooklyn?**\
+`This bustling borough of New York City has been the setting for many novels — including the books in this short quiz.`\
+https://nytimes.com/interactive/2024/07/22/books/review/brooklyn-books-quiz.html
+
+**WSL 2024-25 fixtures: Arsenal host Man City on opening weekend**\
+`The Women&#8217;s Super League (WSL) fixtures for the 2024-25 season have been released, with Arsenal hosting Manchester City on the opening weekend.`\
+https://nytimes.com/athletic/5650454/2024/07/22/womens-super-league-fixtures-2024-25/
+
 **The Mountain West and Pac-2 are still far apart. Are they running out of time?**\
 `Both sides say an agreement on a 2025 football schedule needs to happen before the 2024 season kicks off. So will it?`\
 https://nytimes.com/athletic/5650358/2024/07/22/mountain-west-pac-12-schedules-merger/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/22/world/europe/paul-watson-whaling-arrest-greenland
 **Biden Shepherded Europe on Ukraine and NATO. What Happens Now?**\
 `President Biden’s stance on Ukraine was shaped by a deep commitment to America’s trans-Atlantic alliance. Some Europeans fear he may be among the last of his kind.`\
 https://nytimes.com/2024/07/22/world/europe/biden-ukraine-nato.html
-
-**China is hosting talks between the two main Palestinian factions, but expectations are low.**\
-`By Alexandra Stevenson and Adam Rasgon`\
-https://nytimes.com/live/2024/07/22/world/israel-gaza-war-hamas/china-hosts-talks-between-the-two-main-palestinian-factions-but-expectations-are-low
-
-**Padres takeaways: What is the value of Michael King’s efficiency?**\
-`Notes on how King is making the most of his innings and on who would start a potential Game 2 in the postseason.`\
-https://nytimes.com/athletic/5648983/2024/07/22/padres-takeaways-michael-king-innings/
 

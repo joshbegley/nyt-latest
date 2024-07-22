@@ -1,3 +1,11 @@
+**How Well Do You Know Literary Brooklyn?**\
+`This bustling borough of New York City has been the setting for many novels — including the books in this short quiz.`\
+https://nytimes.com/interactive/2024/07/22/books/review/brooklyn-books-quiz.html
+
+**WSL 2024-25 fixtures: Arsenal host Man City on opening weekend**\
+`The Women&#8217;s Super League (WSL) fixtures for the 2024-25 season have been released, with Arsenal hosting Manchester City on the opening weekend.`\
+https://nytimes.com/athletic/5650454/2024/07/22/womens-super-league-fixtures-2024-25/
+
 **The Mountain West and Pac-2 are still far apart. Are they running out of time?**\
 `Both sides say an agreement on a 2025 football schedule needs to happen before the 2024 season kicks off. So will it?`\
 https://nytimes.com/athletic/5650358/2024/07/22/mountain-west-pac-12-schedules-merger/
