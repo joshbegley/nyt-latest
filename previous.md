@@ -1,3 +1,11 @@
+**Three thoughts on Canucks' Daniel Sprong signing: Cap space, fit and shooting efficiency**\
+`Signing Sprong adds much-needed firepower to Vancouver's offensive arsenal.`\
+https://nytimes.com/athletic/5650081/2024/07/22/canucks-daniel-sprong-contract/
+
+**Tennis Briefing: How will Rafael Nadal feel? What was behind Zverev and Fils' handshake?**\
+`Tennis goes back to clay before the Olympics, with Nadal back in a final and the Hall of Fame Open becoming a mixed event`\
+https://nytimes.com/athletic/5650123/2024/07/22/tennis-briefing-rafael-nadal-bastad-zverev-fils-hamburg/
+
 **McLaren may need to be ruthless to beat Red Bull — and it could get uncomfortable**\
 `The closer McLaren gets to Red Bull, the more its preferred way of fighting will be tested.`\
 https://nytimes.com/athletic/5650582/2024/07/22/f1-mclaren-red-bull-championship-battle/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/22/dining/tiny-tomatoes-big-flavor.html
 **Bucks summer league observations: AJ Johnson's speed, MarJon Beauchamp's struggles**\
 `The Bucks' first-round pick showed the athleticism that wowed them at the Draft Combine, but he'll need to get stronger going forward.`\
 https://nytimes.com/athletic/5645404/2024/07/22/milwaukee-bucks-summer-league-observations/
-
-**Amadou Onana to Aston Villa: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate Amadou Onana's move to Aston Villa`\
-https://nytimes.com/athletic/5638487/2024/07/22/amadou-onana-to-aston-villa-the-athletic-500-transfer-ratings/
-
-**She Found Bounties in Small Towns, Local Talk and Everyday Life**\
-`The simple pleasures keep coming in this keenly observed collection by the Argentinian writer Hebe Uhart.`\
-https://nytimes.com/2024/07/22/books/review/hebe-uhart-question-of-belonging.html
 
