@@ -1,3 +1,7 @@
+**Esta TerBlanche, ‘All My Children’ Star, Dies at 51**\
+`Ms. TerBlanche played Gillian Andrassy, a Hungarian princess whose story line was beloved by fans.`\
+https://nytimes.com/2024/07/21/arts/esta-terblanche-dead.html
+
 **How Kamala Harris rose as a California moderate.**\
 `Ms. Harris, who was born in the state, amassed power through her work as a prosecutor.`\
 https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/kamala-harris-history-career-california
