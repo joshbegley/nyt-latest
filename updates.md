@@ -1,3 +1,7 @@
+**Jordan Addison’s status, the QB depth chart and more Vikings news ahead of training camp**\
+`Ahead of training camp, GM Kwesi Adofo-Mensah and coach Kevin O’Connell touched on a number of intriguing topics facing the Vikings.`\
+https://nytimes.com/athletic/5651504/2024/07/22/vikings-jordan-addison-jj-mccarthy-training-camp/
+
 **Team USA narrowly outlasts Germany in final exhibition before Olympics**\
 `LeBron James scored 11 of his game-high 20 points in the final 3:57 of the fourth quarter to help the U.S. win 92-88.`\
 https://nytimes.com/athletic/5651552/2024/07/22/usa-germany-olympic-basketball-exhibition-results/

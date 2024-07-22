@@ -1,3 +1,7 @@
+**Jordan Addison’s status, the QB depth chart and more Vikings news ahead of training camp**\
+`Ahead of training camp, GM Kwesi Adofo-Mensah and coach Kevin O’Connell touched on a number of intriguing topics facing the Vikings.`\
+https://nytimes.com/athletic/5651504/2024/07/22/vikings-jordan-addison-jj-mccarthy-training-camp/
+
 **Democrats Cleared the Path for Harris’s Nomination**\
 `Also, lawmakers called for the Secret Service director to resign. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/07/22/briefing/democrats-kamala-harris-secret-service-director.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5651444/2024/07/22/dodgers-james-paxton-designated-
 **Robert L. Allen, Who Shed Light on a Navy Yard Blast and Trial, Dies at 82**\
 `He wrote of how 50 Black sailors were court-martialed for refusing to keep loading munitions after explosions in 1944 killed hundreds. They were exonerated this month.`\
 https://nytimes.com/2024/07/22/us/robert-l-allen-dead.html
-
-**Tuesday Briefing: Support Builds for Kamala Harris**\
-`Plus, the head of the Secret Service testified before Congress about the assassination attempt on Donald Trump.`\
-https://nytimes.com/2024/07/22/briefing/kamala-harris-endorsement-secret-service.html
 
