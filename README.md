@@ -1,7 +1,3 @@
-**Who is Kimberly Cheatle, the embattled Secret Service director?**\
-`By Tim Balk`\
-https://nytimes.com/live/2024/07/22/us/secret-service-hearing-trump-cheatle/who-is-kimberly-cheatle-the-embattled-secret-service-director
-
 **Ukraine Strikes Preliminary $20 Billion Debt Restructuring Deal**\
 `The deal with private bondholders will help preserve Kyiv’s limited state budget, which is crucial to fund its military. An agreement to suspend debt payments was to expire on Aug. 1.`\
 https://nytimes.com/2024/07/22/world/europe/ukraine-strikes-preliminary-20-billion-debt-restructuring-deal.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/07/22/climate/kamala-harris-climate-environment.html
 **Memes, Texts and Other Jarring Ways Some Americans Heard the Biden News**\
 `When the president announced he was suspending his re-election bid, the news spread via some unexpected sources.`\
 https://nytimes.com/2024/07/22/style/biden-social-media-news.html
+
+**Rob Dillingham flourishes in summer-league finale, giving a glimpse of what he can become**\
+`The Wolves do not need Dillingham to be an All-Star right away, but they do need him to be a factor on a very good team.`\
+https://nytimes.com/athletic/5649925/2024/07/22/rob-dillingham-timberwolves-flourishes-summer-league/
 
