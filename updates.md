@@ -1,3 +1,7 @@
+**The Pulse: NFL coaches on the hot seat**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5649911/2024/07/22/nfl-coaches-hot-seat-the-pulse/
+
 **Kamala Harris Takes Control**\
 `President Biden has dropped out of the race. We answer four questions about what happens next.`\
 https://nytimes.com/2024/07/22/briefing/biden-harris-election-trump.html
