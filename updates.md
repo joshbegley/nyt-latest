@@ -1,3 +1,7 @@
+**Paul Watson, Anti-Whaling Activist, Is Detained in Greenland**\
+`Mr. Watson, the founder of the conservation group Sea Shepherd, was arrested when his boat docked in Nuuk. He could face extradition to Japan.`\
+https://nytimes.com/2024/07/22/world/europe/paul-watson-whaling-arrest-greenland.html
+
 **Biden Shepherded Europe on Ukraine and NATO. What Happens Now?**\
 `President Biden’s stance on Ukraine was shaped by a deep commitment to America’s trans-Atlantic alliance. Some Europeans fear he may be among the last of his kind.`\
 https://nytimes.com/2024/07/22/world/europe/biden-ukraine-nato.html
