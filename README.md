@@ -1,3 +1,7 @@
+**Congress Calls for Tech Outage Hearing to Grill Executive**\
+`The House Homeland Security Committee called on the chief executive of the cybersecurity firm CrowdStrike to testify on the disruption.`\
+https://nytimes.com/2024/07/22/technology/crowdstrike-outage-congress-hearing.html
+
 **Parents of Teen Driver Who Killed Girl in High-Speed Crash Are Sentenced**\
 `The boy, then 16, survived and has been charged in the death of his 14-year-old passenger. His parents were sentenced to probation and ordered to take parenting classes.`\
 https://nytimes.com/2024/07/22/nyregion/teen-driver-queens-crash-parents-sentence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/22/us/politics/democrats-pick-nominee-aug-7.html
 **Assessing the Contentious Hearing on the Secret Service**\
 `We look at claims made by lawmakers and the director of the Secret Service during a hearing on the agency’s handling of the attempted assassination of former President Donald J. Trump.`\
 https://nytimes.com/2024/07/22/us/politics/secret-service-cheatle-hearing-fact-check.html
-
-**A Senator Will Preside at Netanyahu’s Speech to Congress After Harris Declines**\
-`An aide to Vice President Kamala Harris said she would be speaking to one of the nation’s oldest Black sororities at the time of the Israeli prime minister’s address but would to meet with him this week.`\
-https://nytimes.com/2024/07/22/world/middleeast/kamala-harris-netanyahu-congress-speech.html
 
