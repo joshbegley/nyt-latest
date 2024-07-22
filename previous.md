@@ -1,3 +1,15 @@
+**She Found Bounties in Small Towns, Local Talk and Everyday Life**\
+`The simple pleasures keep coming in this keenly observed collection by the Argentinian writer Hebe Uhart.`\
+https://nytimes.com/2024/07/22/books/review/hebe-uhart-question-of-belonging.html
+
+**Six Key Democratic Governors Endorse Kamala Harris**\
+`Gretchen Whitmer, JB Pritzker, Tim Walz, Wes Moore, Andy Beshear and Tony Evers all backed Ms. Harris, cutting off nearly all potential avenues to a challenge for the nomination.`\
+https://nytimes.com/2024/07/22/us/politics/governors-endorse-harris.html
+
+**Joe Manchin Says He ‘Not Going to be a Candidate for President’**\
+`Manchin has flirted with running his own presidential bid as an independent.`\
+https://nytimes.com/2024/07/22/us/politics/joe-manchin-presidential-run.html
+
 **In Silicon Valley, Where Trump Made Inroads, Democrats Are Now Invigorated**\
 `Elon Musk, Marc Andreessen and others have endorsed Donald J. Trump. But President Biden’s withdrawal has re-energized Democrats across the tech industry and may blunt that momentum.`\
 https://nytimes.com/2024/07/22/technology/silicon-valley-trump-biden-democrats.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/22/us/secret-service-hearing-trump-cheatle/who-
 **Ukraine Strikes Preliminary $20 Billion Debt Restructuring Deal**\
 `The deal with private bondholders will help preserve Kyiv’s limited state budget, which is crucial to fund its military. An agreement to suspend debt payments was to expire on Aug. 1.`\
 https://nytimes.com/2024/07/22/world/europe/ukraine-strikes-preliminary-20-billion-debt-restructuring-deal.html
-
-**An official at a major hospital in Gaza said hundreds of injured people had arrived there.**\
-`By Matthew Mpoke Bigg and Iyad Abuheweila`\
-https://nytimes.com/live/2024/07/22/world/israel-gaza-war-hamas/an-official-at-a-major-hospital-in-gaza-said-hundreds-of-injured-people-had-arrived-there
-
-**Bowden: Why the rebuilding White Sox, A's and Tigers should trade their star pitchers**\
-`Jim Bowden explains why he thinks all three teams should trade their young pitching stars now if they can get enough in return. `\
-https://nytimes.com/athletic/5650347/2024/07/22/rebuilding-mlb-team-trades-white-sox-athletics-tigers/
-
-**Live Updates: Secret Service Chief Testifies on ‘Failed’ Response at Trump Rally**\
-`Kimberly A. Cheatle called the assassination attempt on former President Donald J. Trump “the most significant operational failure” of the security agency in decades.`\
-https://nytimes.com/live/2024/07/22/us/secret-service-hearing-trump-cheatle
 

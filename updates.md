@@ -1,3 +1,15 @@
+**She Found Bounties in Small Towns, Local Talk and Everyday Life**\
+`The simple pleasures keep coming in this keenly observed collection by the Argentinian writer Hebe Uhart.`\
+https://nytimes.com/2024/07/22/books/review/hebe-uhart-question-of-belonging.html
+
+**Six Key Democratic Governors Endorse Kamala Harris**\
+`Gretchen Whitmer, JB Pritzker, Tim Walz, Wes Moore, Andy Beshear and Tony Evers all backed Ms. Harris, cutting off nearly all potential avenues to a challenge for the nomination.`\
+https://nytimes.com/2024/07/22/us/politics/governors-endorse-harris.html
+
+**Joe Manchin Says He ‘Not Going to be a Candidate for President’**\
+`Manchin has flirted with running his own presidential bid as an independent.`\
+https://nytimes.com/2024/07/22/us/politics/joe-manchin-presidential-run.html
+
 **In Silicon Valley, Where Trump Made Inroads, Democrats Are Now Invigorated**\
 `Elon Musk, Marc Andreessen and others have endorsed Donald J. Trump. But President Biden’s withdrawal has re-energized Democrats across the tech industry and may blunt that momentum.`\
 https://nytimes.com/2024/07/22/technology/silicon-valley-trump-biden-democrats.html
