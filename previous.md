@@ -1,4 +1,12 @@
-**Democrats Will Select Nominee by Aug. 7 in a Virtual Vote**\
+**Judge Who Threatened to Shoot Black Teens Should Be Removed, Panel Says**\
+`Justice Erin P. Gall of upstate New York engaged in a “racially offensive, profane” diatribe after people crashed a large party she was attending, a disciplinary body found.`\
+https://nytimes.com/2024/07/22/nyregion/judge-erin-gall-party-ny-supreme-court.html
+
+**Wife of Yankees executive Omar Minaya dies at 55**\
+`Minaya died Saturday after she was found unconscious in a private residence in Harrington Park, N.J.`\
+https://nytimes.com/athletic/5651717/2024/07/22/rachel-minaya-death-omar-yankees/
+
+**Democrats Will Select Nominee by Aug. 7 in a Online Vote**\
 `The party, which has rapidly consolidated behind Vice President Kamala Harris to replace President Biden, did not set an exact date for the vote.`\
 https://nytimes.com/2024/07/22/us/politics/democrats-pick-nominee-aug-7.html
 
@@ -7,7 +15,7 @@ https://nytimes.com/2024/07/22/us/politics/democrats-pick-nominee-aug-7.html
 https://nytimes.com/2024/07/22/us/politics/secret-service-cheatle-hearing-fact-check.html
 
 **A Senator Will Preside at Netanyahu’s Speech to Congress After Harris Declines**\
-`An aide to Vice President Kamala Harris said she would be speaking to one of the nation’s oldest Black sororities at the time of the Israeli prime minister’s address but was scheduled to meet with him this week.`\
+`An aide to Vice President Kamala Harris said she would be speaking to one of the nation’s oldest Black sororities at the time of the Israeli prime minister’s address but would to meet with him this week.`\
 https://nytimes.com/2024/07/22/world/middleeast/kamala-harris-netanyahu-congress-speech.html
 
 **No one can accuse Jim Phillips of having his head in the sand anymore**\
@@ -32,12 +40,4 @@ https://nytimes.com/2024/07/22/world/middleeast/israel-gaza-khan-younis.html
 **Trump’s Cynical Attempt to Pit Recent Immigrants Against Black Americans**\
 `No, Black workers aren’t being “decimated” by new immigrants.`\
 https://nytimes.com/2024/07/22/opinion/trump-immigration-black-voters.html
-
-**A Campaign That Started Slowly Gets Its Inevitable Upheaval**\
-`“I know it’s been a roller coaster,” Vice President Kamala Harris told her campaign staff on Monday.`\
-https://nytimes.com/2024/07/22/us/politics/harris-trump-vp-presidential-campaign.html
-
-**Ground breaks on Flames' new arena, expected to be completed in 2027**\
-`The new event centre is expected to be completed in time for the 2027-28 NHL season and will have a capacity of 18,400.`\
-https://nytimes.com/athletic/5644365/2024/07/22/flames-arena-calgary-scotia-place/
 

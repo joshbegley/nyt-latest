@@ -1,3 +1,19 @@
+**Judge Who Threatened to Shoot Black Teens Should Be Removed, Panel Says**\
+`Justice Erin P. Gall of upstate New York engaged in a “racially offensive, profane” diatribe after people crashed a large party she was attending, a disciplinary body found.`\
+https://nytimes.com/2024/07/22/nyregion/judge-erin-gall-party-ny-supreme-court.html
+
+**Wife of Yankees executive Omar Minaya dies at 55**\
+`Minaya died Saturday after she was found unconscious in a private residence in Harrington Park, N.J.`\
+https://nytimes.com/athletic/5651717/2024/07/22/rachel-minaya-death-omar-yankees/
+
+**Democrats Will Select Nominee by Aug. 7 in a Online Vote**\
+`The party, which has rapidly consolidated behind Vice President Kamala Harris to replace President Biden, did not set an exact date for the vote.`\
+https://nytimes.com/2024/07/22/us/politics/democrats-pick-nominee-aug-7.html
+
+**A Senator Will Preside at Netanyahu’s Speech to Congress After Harris Declines**\
+`An aide to Vice President Kamala Harris said she would be speaking to one of the nation’s oldest Black sororities at the time of the Israeli prime minister’s address but would to meet with him this week.`\
+https://nytimes.com/2024/07/22/world/middleeast/kamala-harris-netanyahu-congress-speech.html
+
 **Democrats Will Select Nominee by Aug. 7 in a Virtual Vote**\
 `The party, which has rapidly consolidated behind Vice President Kamala Harris to replace President Biden, did not set an exact date for the vote.`\
 https://nytimes.com/2024/07/22/us/politics/democrats-pick-nominee-aug-7.html
