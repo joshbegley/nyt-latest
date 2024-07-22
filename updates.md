@@ -1,3 +1,7 @@
+**Ethics Committee Moves Swiftly to Tee Up Possible Expulsion of Menendez**\
+`Senator Robert Menendez of New Jersey was found guilty of bribery and corruption last week.`\
+https://nytimes.com/2024/07/22/nyregion/robert-menendez-bribery-ethics-vote.html
+
 **Illinois State Police Releases Footage of Deputy Fatally Shooting Woman**\
 `The woman, Sonya Massey, 36, called 911 on July 6 because she believed there was an intruder in her home. She was fatally shot by a sheriff’s deputy who has been fired and is charged with murder.`\
 https://nytimes.com/2024/07/22/us/illinois-sonya-massey-body-cam-footage.html
