@@ -1,3 +1,7 @@
+**Israel Risks All-Out War With Hezbollah. A Truce in Gaza May Reduce That Threat.**\
+`After nine months of low-level conflict between Israel and Hezbollah, the risk of all-out war is higher than ever. A cease-fire in Gaza would provide an offramp for both sides, diplomats say.`\
+https://nytimes.com/2024/07/22/world/middleeast/israel-hezbollah-gaza-war.html
+
 **Three thoughts on Canucks' Daniel Sprong signing: Cap space, fit and shooting efficiency**\
 `Signing Sprong adds much-needed firepower to Vancouver's offensive arsenal.`\
 https://nytimes.com/athletic/5650081/2024/07/22/canucks-daniel-sprong-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/22/arts/television/homicide-life-on-the-street-strea
 **Tiny Tomatoes, Big Flavor**\
 `While we wait for big heirlooms to peak, dive into curry tomatoes and chickpeas, chile-crisp tofu and vegan pesto pasta salad.`\
 https://nytimes.com/2024/07/22/dining/tiny-tomatoes-big-flavor.html
-
-**Bucks summer league observations: AJ Johnson's speed, MarJon Beauchamp's struggles**\
-`The Bucks' first-round pick showed the athleticism that wowed them at the Draft Combine, but he'll need to get stronger going forward.`\
-https://nytimes.com/athletic/5645404/2024/07/22/milwaukee-bucks-summer-league-observations/
 
