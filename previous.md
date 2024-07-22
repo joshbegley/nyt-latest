@@ -1,3 +1,7 @@
+**Players, coaches, collective reps talk NIL: College basketball confidential**\
+`Players, coaches, agents and collective reps are getting smarter about how to play the game as NIL and the transfer portal evolve.`\
+https://nytimes.com/athletic/5648790/2024/07/22/college-basketball-transfer-portal-nil/
+
 **Vance to Hit Campaign Trail in an Upended Race**\
 `JD Vance will hold events in Ohio and Virginia, his first solo campaign stops since becoming Donald Trump’s running mate.`\
 https://nytimes.com/2024/07/22/us/politics/vance-trump-rallies.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/22/upshot/kamala-harris-polls-trump.html
 **Joe Biden, My Friend and an American Hero**\
 `He never surrendered the hope that a frail and fallible world could be made stronger if people could summon enough goodness and courage to build, rather than tear down.`\
 https://nytimes.com/2024/07/22/opinion/joe-biden-american-hero.html
-
-**The 10 Best Candidates to Replace Biden, Rated by Our Columnists and Writers**\
-`Many party leaders are coalescing behind Kamala Harris, but some veteran Democrats — and many voters — are still grappling with who would fare best against Trump.`\
-https://nytimes.com/interactive/2024/07/22/opinion/best-worst-candidates-to-replace-biden.html
 

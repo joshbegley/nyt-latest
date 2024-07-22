@@ -1,3 +1,7 @@
+**Players, coaches, collective reps talk NIL: College basketball confidential**\
+`Players, coaches, agents and collective reps are getting smarter about how to play the game as NIL and the transfer portal evolve.`\
+https://nytimes.com/athletic/5648790/2024/07/22/college-basketball-transfer-portal-nil/
+
 **Vance to Hit Campaign Trail in an Upended Race**\
 `JD Vance will hold events in Ohio and Virginia, his first solo campaign stops since becoming Donald Trump’s running mate.`\
 https://nytimes.com/2024/07/22/us/politics/vance-trump-rallies.html
