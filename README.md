@@ -1,3 +1,7 @@
+**‘Two American Families’ Is a Knockout Documentary**\
+`This latest installment in a long-term Frontline series is an intimate look at two American families, who work hard but struggle to make ends meet.`\
+https://nytimes.com/2024/07/22/arts/television/two-american-families-pbs-frontline.html
+
 **Dodgers designating lefty pitcher James Paxton for assignment**\
 `The Dodgers will have 10 days to pass Paxton through waivers or find a trade partner for him ahead of the July 30 trade deadline.`\
 https://nytimes.com/athletic/5651444/2024/07/22/dodgers-james-paxton-designated-assignment/
@@ -26,15 +30,11 @@ https://nytimes.com/2024/07/22/us/politics/kamala-harris-campaign.html
 `Love isn't practicing until he has a new deal, but he's participating in everything else as the Packers kick off training camp.`\
 https://nytimes.com/athletic/5650953/2024/07/22/packers-jordan-love-contract-hold-in/
 
-**Map: 5.7-Magnitude Earthquake Strikes off the Coast of Panama**\
+**Map: 5.7-Magnitude Earthquake Strikes Off the Coast of Panama**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/07/22/world/americas/panama-quake.html
 
 **Who Might Kamala Harris Pick as Her Running Mate?**\
 `The first big decision for Ms. Harris: Who will be her running mate if she is nominated by the Democratic Party to run for president in August.`\
 https://nytimes.com/interactive/2024/us/politics/kamala-harris-vp-pick.html
-
-**Marseille sign Hojbjerg from Tottenham on loan with obligation to buy**\
-`Marseille have completed the signing of Pierre-Emile Hojbjerg from Tottenham Hotspur on loan with an obligation to make the move permanent.`\
-https://nytimes.com/athletic/5651413/2024/07/22/spurs-marseille-hojberg-transfer-loan/
 
