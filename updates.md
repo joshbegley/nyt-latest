@@ -1,3 +1,7 @@
+**Word of the Day: futile**\
+`This word has appeared in 184 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/07/22/learning/word-of-the-day-futile.html
+
 **The Athletic FC: Why snus 'a huge problem,' United eye Obi-Martin, a pre-season wonder goal**\
 `Today in The Athletic FC: Why nicotine pouches are a 'huge problem' for players. Plus: Tyler Adams' latest surgery and a pre-season worldie.`\
 https://nytimes.com/athletic/5650211/2024/07/22/snus-huge-problem-united-obi-martin-the-athletic-fc/

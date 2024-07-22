@@ -1,3 +1,7 @@
+**Word of the Day: futile**\
+`This word has appeared in 184 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/07/22/learning/word-of-the-day-futile.html
+
 **The Athletic FC: Why snus 'a huge problem,' United eye Obi-Martin, a pre-season wonder goal**\
 `Today in The Athletic FC: Why nicotine pouches are a 'huge problem' for players. Plus: Tyler Adams' latest surgery and a pre-season worldie.`\
 https://nytimes.com/athletic/5650211/2024/07/22/snus-huge-problem-united-obi-martin-the-athletic-fc/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/09/opinion/thepoint/harris-earn-nomination-demo
 **The Pulse: NFL coaches on the hot seat**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5649911/2024/07/22/nfl-coaches-hot-seat-the-pulse/
-
-**Kamala Harris Takes Control**\
-`President Biden has dropped out of the race. We answer four questions about what happens next.`\
-https://nytimes.com/2024/07/22/briefing/biden-harris-election-trump.html
 
