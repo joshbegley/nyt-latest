@@ -1,3 +1,11 @@
+**Hunter Biden Drops Lawsuit Against Fox News Over Nude Photos**\
+`The president’s son withdrew his litigation on the same day that his father said he would not run for re-election.`\
+https://nytimes.com/2024/07/22/business/media/hunter-biden-fox-news-lawsuit.html
+
+**Harris Commends Biden’s Record at N.C.A.A. White House Event**\
+`A day after being endorsed by President Biden, Vice President Kamala Harris spoke at an event celebrating N.C.A.A. champions where she praised Biden and spoke fondly about her friendship with Beau Biden.`\
+https://nytimes.com/video/us/politics/100000009585765/harris-biden-beau.html
+
 **The Windup: Castellanos can’t keep doing this**\
 `Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
 https://nytimes.com/athletic/5650801/2024/07/22/nick-castellanos-shohei-ohtani-hall-of-fame-the-windup/
