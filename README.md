@@ -6,7 +6,7 @@ https://nytimes.com/2024/07/22/nyregion/judge-erin-gall-party-ny-supreme-court.h
 `Minaya died Saturday after she was found unconscious in a private residence in Harrington Park, N.J.`\
 https://nytimes.com/athletic/5651717/2024/07/22/rachel-minaya-death-omar-yankees/
 
-**Democrats Will Select Nominee by Aug. 7 in a Virtual Vote**\
+**Democrats Will Select Nominee by Aug. 7 in a Online Vote**\
 `The party, which has rapidly consolidated behind Vice President Kamala Harris to replace President Biden, did not set an exact date for the vote.`\
 https://nytimes.com/2024/07/22/us/politics/democrats-pick-nominee-aug-7.html
 
