@@ -1,3 +1,11 @@
+**Marseille sign Hojbjerg from Tottenham on loan with obligation to buy**\
+`Marseille have completed the signing of Pierre-Emile Hojbjerg from Tottenham Hotspur on loan with an obligation to make the move permanent.`\
+https://nytimes.com/athletic/5651413/2024/07/22/spurs-marseille-hojberg-transfer-loan/
+
+**Colson Whitehead Looks Back at ‘The Underground Railroad’**\
+`The first in a series of conversations with authors appearing on our “Best Books of the 21st Century” list.`\
+https://nytimes.com/2024/07/22/books/review/colson-whitehead-underground-railroad-podcast.html
+
 **Harris, tasked with helping stem migration into the U.S., ended up angering Republicans and progressives.**\
 `By Natalie Kitroeff`\
 https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/harris-tasked-with-helping-stem-migration-into-the-us-ended-up-angering-republicans-and-progressives

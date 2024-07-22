@@ -1,3 +1,11 @@
+**Marseille sign Hojbjerg from Tottenham on loan with obligation to buy**\
+`Marseille have completed the signing of Pierre-Emile Hojbjerg from Tottenham Hotspur on loan with an obligation to make the move permanent.`\
+https://nytimes.com/athletic/5651413/2024/07/22/spurs-marseille-hojberg-transfer-loan/
+
+**Colson Whitehead Looks Back at ‘The Underground Railroad’**\
+`The first in a series of conversations with authors appearing on our “Best Books of the 21st Century” list.`\
+https://nytimes.com/2024/07/22/books/review/colson-whitehead-underground-railroad-podcast.html
+
 **Harris, tasked with helping stem migration into the U.S., ended up angering Republicans and progressives.**\
 `By Natalie Kitroeff`\
 https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/harris-tasked-with-helping-stem-migration-into-the-us-ended-up-angering-republicans-and-progressives
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/22/us/politics/kamala-harris-donors-women.html
 **Two Killed in Plane Crash Near Wisconsin Air Show**\
 `Emergency responders found a plane engulfed in flames in a farm field near the Experimental Aircraft Association AirVenture showcase in Oshkosh.`\
 https://nytimes.com/2024/07/22/us/eaa-airventure-oshkosh-plane-crash.html
-
-**How Kamala Harris Will Try to Put Trump on Defense**\
-`Democrats are eager for her to deploy lines of attack that come more naturally than they did for President Biden, including on issues like abortion rights and the rule of law.`\
-https://nytimes.com/2024/07/22/us/politics/kamala-harris-trump-presidential-election.html
-
-**TNT to match Amazon's media rights deal with NBA**\
-`The NBA is expected to decline TNT Sports' right to simply take the agreed upon Amazon package, sources briefed on the NBA's plans said.`\
-https://nytimes.com/athletic/5651014/2024/07/22/nba-tnt-sports-amazon-media-rights-deal-match/
 
