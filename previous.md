@@ -1,3 +1,11 @@
+**‘Homicide: Life on the Street’ Will Finally Be Available to Stream**\
+`The celebrated 1990s police procedural is coming to Peacock in August.`\
+https://nytimes.com/2024/07/22/arts/television/homicide-life-on-the-street-streaming-peacock.html
+
+**Tiny Tomatoes, Big Flavor**\
+`While we wait for big heirlooms to peak, dive into curry tomatoes and chickpeas, chile-crisp tofu and vegan pesto pasta salad.`\
+https://nytimes.com/2024/07/22/dining/tiny-tomatoes-big-flavor.html
+
 **Bucks summer league observations: AJ Johnson's speed, MarJon Beauchamp's struggles**\
 `The Bucks' first-round pick showed the athleticism that wowed them at the Draft Combine, but he'll need to get stronger going forward.`\
 https://nytimes.com/athletic/5645404/2024/07/22/milwaukee-bucks-summer-league-observations/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5635383/2024/07/22/amadou-onana-aston-villa-transfe
 **Impulsive and Hyperactive? It Doesn’t Mean You Have A.D.H.D.**\
 `Many other conditions have similar symptoms, experts say, so avoid the pull of self-diagnosis.`\
 https://nytimes.com/2024/07/22/well/mind/adhd-depression-anxiety-symptoms.html
-
-**Lowetide: How the Oilers can extend the Connor McDavid window to win**\
-`The Oilers appear to be aggressive in attacking issues that have long plagued the team.`\
-https://nytimes.com/athletic/5649400/2024/07/22/edmonton-oilers-connor-mcdavid-window/
-
-**Eminem Ends Taylor Swift’s Chart Run With His 11th No. 1 Album**\
-`The rapper’s “The Death of Slim Shady (Coup de Grâce)” replaced the pop superstar’s “The Tortured Poets Department” after 12 weeks of dominance at the top.`\
-https://nytimes.com/2024/07/22/arts/music/eminem-taylor-swift-billboard-chart.html
 

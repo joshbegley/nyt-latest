@@ -1,3 +1,11 @@
+**‘Homicide: Life on the Street’ Will Finally Be Available to Stream**\
+`The celebrated 1990s police procedural is coming to Peacock in August.`\
+https://nytimes.com/2024/07/22/arts/television/homicide-life-on-the-street-streaming-peacock.html
+
+**Tiny Tomatoes, Big Flavor**\
+`While we wait for big heirlooms to peak, dive into curry tomatoes and chickpeas, chile-crisp tofu and vegan pesto pasta salad.`\
+https://nytimes.com/2024/07/22/dining/tiny-tomatoes-big-flavor.html
+
 **Bucks summer league observations: AJ Johnson's speed, MarJon Beauchamp's struggles**\
 `The Bucks' first-round pick showed the athleticism that wowed them at the Draft Combine, but he'll need to get stronger going forward.`\
 https://nytimes.com/athletic/5645404/2024/07/22/milwaukee-bucks-summer-league-observations/
