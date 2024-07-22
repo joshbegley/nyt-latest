@@ -1,3 +1,14 @@
+**Biden: ‘I’m Not Going Anywhere’**\
+`The president called into a meeting with Vice President Kamala Harris at what was once their joint campaign headquarters, the first time he has been heard since isolating with Covid last week.`\
+https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/biden-harris-2024-election-campaign
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>It&#8217;s a busy week for Media Days: ACC, AAC, Big Ten and Conference USA. At which point we&#8217;ll be officially done with Talking Season.</p>
+<p>But not in the Mailbag!</p>
+<p>Leave your questions here, and please include your city.</p>
+`\
+https://nytimes.com/athletic/5651780/2024/07/22/submit-a-question-for-stewart-mandels-college-football-mailbag-266/
+
 **Israel Orders New Evacuation in Gaza as Aid Workers Say Bombing Kills Dozens**\
 `Israeli forces said they struck dozens of sites in Khan Younis where Hamas operated and fired rockets, and they shrunk the ‘humanitarian zone’ where civilians were told to flee.`\
 https://nytimes.com/2024/07/22/world/middleeast/israel-gaza-khan-younis.html

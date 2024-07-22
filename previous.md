@@ -1,3 +1,14 @@
+**Biden: ‘I’m Not Going Anywhere’**\
+`The president called into a meeting with Vice President Kamala Harris at what was once their joint campaign headquarters, the first time he has been heard since isolating with Covid last week.`\
+https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/biden-harris-2024-election-campaign
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>It&#8217;s a busy week for Media Days: ACC, AAC, Big Ten and Conference USA. At which point we&#8217;ll be officially done with Talking Season.</p>
+<p>But not in the Mailbag!</p>
+<p>Leave your questions here, and please include your city.</p>
+`\
+https://nytimes.com/athletic/5651780/2024/07/22/submit-a-question-for-stewart-mandels-college-football-mailbag-266/
+
 **Israel Orders New Evacuation in Gaza as Aid Workers Say Bombing Kills Dozens**\
 `Israeli forces said they struck dozens of sites in Khan Younis where Hamas operated and fired rockets, and they shrunk the ‘humanitarian zone’ where civilians were told to flee.`\
 https://nytimes.com/2024/07/22/world/middleeast/israel-gaza-khan-younis.html
@@ -29,12 +40,4 @@ https://nytimes.com/athletic/5651572/2024/07/22/bengals-media-luncheon-mike-brow
 **Olympians Are Getting Loads and Loads of Gear**\
 `Athletes are unboxing sponsored merchandise and sharing try-on hauls on TikTok, featuring brands like Nike and Lululemon.`\
 https://nytimes.com/2024/07/22/style/olympians-unboxing-sponsored-gear.html
-
-**Jordan Addison's status, the QB depth chart and more Vikings news ahead of training camp**\
-`Before training camp, GM Kwesi Adofo-Mensah and coach Kevin O'Connell touched on several intriguing topics facing the team.`\
-https://nytimes.com/athletic/5651504/2024/07/22/vikings-jordan-addison-jj-mccarthy-training-camp/
-
-**Democrats Cleared the Path for Harris’s Nomination**\
-`Also, lawmakers called for the Secret Service director to resign. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2024/07/22/briefing/democrats-kamala-harris-secret-service-director.html
 
