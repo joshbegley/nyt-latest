@@ -1,3 +1,7 @@
+**Israel Risks All-Out War With Hezbollah. A Truce in Gaza May Reduce That Threat.**\
+`After nine months of low-level conflict between Israel and Hezbollah, the risk of all-out war is higher than ever. A cease-fire in Gaza would provide an offramp for both sides, diplomats say.`\
+https://nytimes.com/2024/07/22/world/middleeast/israel-hezbollah-gaza-war.html
+
 **Three thoughts on Canucks' Daniel Sprong signing: Cap space, fit and shooting efficiency**\
 `Signing Sprong adds much-needed firepower to Vancouver's offensive arsenal.`\
 https://nytimes.com/athletic/5650081/2024/07/22/canucks-daniel-sprong-contract/
