@@ -1,3 +1,15 @@
+**Gunman Kills at Least 6 at Nursing Home in Croatia**\
+`President Zoran Milanovic called for stricter gun control after an attack that shook Croatia, where mass killings are rare. A suspect was arrested nearby.`\
+https://nytimes.com/2024/07/22/world/europe/croatia-senior-home-shooting.html
+
+**In pressing for Harris, her campaign cites her law enforcement and abortion record.**\
+`By Kate Kelly`\
+https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/in-pressing-for-harris-her-campaign-cites-her-law-enforcement-and-abortion-record
+
+**Women Voters: Is the Country Ready for a Female President? Tell Us.**\
+`Let us know how you feel about a woman running for president in 2024.`\
+https://nytimes.com/2024/07/22/us/women-voters-female-president-feedback.html
+
 **Hunter Biden Drops Lawsuit Against Fox News Over Nude Photos**\
 `The president’s son withdrew his litigation on the same day that his father said he would not run for re-election.`\
 https://nytimes.com/2024/07/22/business/media/hunter-biden-fox-news-lawsuit.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/22/arts/darren-walker-ford-foundation-stepping-down.
 **Howe: Gordon 'integral'; Newcastle must learn from PSR mistakes**\
 `Eddie Howe insists Anthony Gordon is &#8220;integral&#8221; to Newcastle United&#8217;s plans and stresses that the club will fight to keep hold of &#8220;our best players&#8221;.`\
 https://nytimes.com/athletic/5650201/2024/07/22/anthony-gordon-newcastle-transfers-psr/
-
-**How to Eat Like You’re in Paris for the Olympics**\
-`Dorie Greenspan, a beloved cookbook author and longtime Paris resident, knows that the French way of snacking is also the easiest.`\
-https://nytimes.com/2024/07/22/dining/how-to-eat-and-cook-paris-olympics-2024.html
-
-**The Bounce: Your WNBA stretch-run primer**\
-`Zach Harper catches you up on league-wide news.`\
-https://nytimes.com/athletic/5650446/2024/07/22/caitlin-clark-angel-reese-wnba-all-star-olympics-nba-summer-league-the-bounce/
-
-**SoftBank’s Chief Pitches a New Path for Self-Driving Cars**\
-`Masayoshi Son, the billionaire founder of SoftBank, is trying to rally automakers around the world to join forces on autonomous-driving technologies.`\
-https://nytimes.com/2024/07/22/business/softbank-self-driving-cars.html
 
