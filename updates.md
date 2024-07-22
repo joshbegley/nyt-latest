@@ -1,3 +1,7 @@
+**Chelsea make approach to sign goalkeeper Jorgensen from Villarreal**\
+`Chelsea have made an approach to sign goalkeeper Filip Jorgensen from Villarreal.`\
+https://nytimes.com/athletic/5651010/2024/07/22/chelsea-jorgensen-transfer-approach-villarreal/
+
 **Connor Stalions to appear in Netflix 'Sign Stealer' documentary**\
 `Connor Stalions, the ex-Michigan staffer implicated in a sign-stealing scandal, will be part of a Netflix documentary released Aug. 27.`\
 https://nytimes.com/athletic/5651053/2024/07/22/connor-stalions-netflix-documentary-michigan-sign-stealer/
