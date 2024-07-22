@@ -1,3 +1,7 @@
+**Barbra Streisand Endorses Harris. Where Do Other Stars Stand?**\
+`Robert De Niro thanked President Biden, Aaron Sorkin backed Vice President Kamala Harris (not Mitt Romney) as his replacement and George Clooney is keeping quiet.`\
+https://nytimes.com/article/kamala-harris-celebrity-endorsements.html
+
 **ACC commissioner vows to fight FSU, Clemson lawsuits 'for as long as it takes'**\
 `With the ACC mired in four different lawsuits in three separate states, Phillips doubled down on the league's position at media days.`\
 https://nytimes.com/athletic/5651324/2024/07/22/jim-phillips-acc-will-fight-for-as-long-as-it-takes-in-defending-grant-of-rights/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/22/world/europe/uk-rwanda-deportation-plan.html
 **Schumer and Jeffries Stop Short of Endorsing Harris**\
 `The two top Democrats in Congress praised the vice president for pursuing the nomination in accordance with party rules.`\
 https://nytimes.com/2024/07/22/us/politics/nancy-pelosi-dem-leaders-kamala-harris.html
-
-**Silicon Valley Investors’ Plans for a New City Put on Hold**\
-`The plan for a new city near San Francisco has been delayed at least two years to study its impact on the environment.`\
-https://nytimes.com/2024/07/22/business/economy/california-forever-solano-county-city-on-hold.html
 
