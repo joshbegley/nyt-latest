@@ -1,3 +1,11 @@
+**A U.K. Deportation Plan Cost $900 Million. Only Four People Left.**\
+`Britain’s last Conservative government spent almost a billion dollars on its controversial plan to send asylum seekers to Rwanda, the newly appointed minister for immigration said Monday.`\
+https://nytimes.com/2024/07/22/world/europe/uk-rwanda-deportation-plan.html
+
+**Schumer and Jeffries Stop Short of Endorsing Harris**\
+`The two top Democrats in Congress praised the vice president for pursuing the nomination in accordance with party rules.`\
+https://nytimes.com/2024/07/22/us/politics/nancy-pelosi-dem-leaders-kamala-harris.html
+
 **Silicon Valley Investors’ Plans for a New City Put on Hold**\
 `The plan for a new city near San Francisco has been delayed at least two years to study its impact on the environment.`\
 https://nytimes.com/2024/07/22/business/economy/california-forever-solano-county-city-on-hold.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/22/insider/how-times-reporter-covered-biden-dropping
 **U.S. Olympic Committee Sues Logan Paul’s Drink Company**\
 `The suit accuses Prime Hydration of using trademarked terms including “Olympic” and “Team USA” to promote a sports drink that features Kevin Durant.`\
 https://nytimes.com/2024/07/22/us/logan-paul-prime-lawsuit-olympic-committee.html
-
-**Chelsea make approach to sign goalkeeper Jorgensen from Villarreal**\
-`Chelsea have made an approach to sign goalkeeper Filip Jorgensen from Villarreal.`\
-https://nytimes.com/athletic/5651010/2024/07/22/chelsea-jorgensen-transfer-approach-villarreal/
-
-**Connor Stalions to appear in Netflix 'Sign Stealer' documentary**\
-`Connor Stalions, the ex-Michigan staffer implicated in a sign-stealing scandal, will be part of a Netflix documentary released Aug. 27.`\
-https://nytimes.com/athletic/5651053/2024/07/22/connor-stalions-netflix-documentary-michigan-sign-stealer/
 

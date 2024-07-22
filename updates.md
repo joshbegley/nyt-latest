@@ -1,3 +1,11 @@
+**A U.K. Deportation Plan Cost $900 Million. Only Four People Left.**\
+`Britain’s last Conservative government spent almost a billion dollars on its controversial plan to send asylum seekers to Rwanda, the newly appointed minister for immigration said Monday.`\
+https://nytimes.com/2024/07/22/world/europe/uk-rwanda-deportation-plan.html
+
+**Schumer and Jeffries Stop Short of Endorsing Harris**\
+`The two top Democrats in Congress praised the vice president for pursuing the nomination in accordance with party rules.`\
+https://nytimes.com/2024/07/22/us/politics/nancy-pelosi-dem-leaders-kamala-harris.html
+
 **Silicon Valley Investors’ Plans for a New City Put on Hold**\
 `The plan for a new city near San Francisco has been delayed at least two years to study its impact on the environment.`\
 https://nytimes.com/2024/07/22/business/economy/california-forever-solano-county-city-on-hold.html
