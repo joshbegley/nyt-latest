@@ -1,3 +1,7 @@
+**What’s on TV This Week: The Olympics and ‘Surreal Life: Villa of Secrets’**\
+`The opening ceremony airs on NBC. MTV reboots a reality show.`\
+https://nytimes.com/2024/07/22/arts/television/whats-on-tv-this-week-the-olympics-and-surreal-life-villa-of-secrets.html
+
 **The Promise, and Risks, in Turning to Kamala Harris**\
 `In a sprint of a race, Ms. Harris is poised to attack Donald Trump on his felonies and, in a 2024 twist, his age, but Republicans will be galvanized to fight her, too.`\
 https://nytimes.com/2024/07/22/us/politics/kamala-harris-democratic-nominee.html
