@@ -1,3 +1,7 @@
+**Seven things learned, confirmed talking with Mike Brown, Bengals brass on Monday**\
+`From Joe Burrow's health to Ja'Marr Chase's future, Brown, Duke Tobin, Zac Taylor and coaches addressed several topics.`\
+https://nytimes.com/athletic/5651572/2024/07/22/bengals-media-luncheon-mike-brown/
+
 **Olympians are Getting Loads and Loads of Gear**\
 `Athletes are unboxing sponsored merchandise and sharing try-on hauls on TikTok, featuring brands like Nike and Lululemon.`\
 https://nytimes.com/2024/07/22/style/olympians-unboxing-sponsored-gear.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/22/opinion/kamala-harris-excitement.html
 **‘Two American Families’ Is a Knockout Documentary**\
 `This latest installment in a long-term Frontline series is an intimate look at two American families, who work hard but struggle to make ends meet.`\
 https://nytimes.com/2024/07/22/arts/television/two-american-families-pbs-frontline.html
-
-**Dodgers designating lefty pitcher James Paxton for assignment**\
-`The Dodgers will have 10 days to pass Paxton through waivers or find a trade partner for him ahead of the July 30 trade deadline.`\
-https://nytimes.com/athletic/5651444/2024/07/22/dodgers-james-paxton-designated-assignment/
 
