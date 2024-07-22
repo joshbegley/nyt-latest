@@ -1,3 +1,11 @@
+**Democrats Cleared the Path for Harris’s Nomination**\
+`Also, lawmakers called for the Secret Service director to resign. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/07/22/briefing/democrats-kamala-harris-secret-service-director.html
+
+**Team USA narrowly outlasts Germany in final exhibition game before Olympics**\
+`LeBron James scored 11 of his game-high 20 points in the final 3:57 of the fourth quarter to help the U.S. win 92-88.`\
+https://nytimes.com/athletic/5651552/2024/07/22/usa-germany-olympic-basketball-exhibition-results/
+
 **Ethics Committee Moves Swiftly to Tee Up Possible Expulsion of Menendez**\
 `Senator Robert Menendez of New Jersey was found guilty of bribery and corruption last week.`\
 https://nytimes.com/2024/07/22/nyregion/robert-menendez-bribery-ethics-vote.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/22/us/robert-l-allen-dead.html
 **Tuesday Briefing: Support Builds for Kamala Harris**\
 `Plus, the head of the Secret Service testified before Congress about the assassination attempt on Donald Trump.`\
 https://nytimes.com/2024/07/22/briefing/kamala-harris-endorsement-secret-service.html
-
-**Seeking Answers, Lawmakers From Both Parties Ask Secret Service Chief to Quit**\
-`In a hearing on Capitol Hill, Director Kimberly A. Cheatle declined to answer questions about the lapses in protection that allowed a gunman to fire at former President Donald Trump in Butler, Pa.`\
-https://nytimes.com/2024/07/22/us/politics/kimberly-cheatle-secret-service-hearing.html
-
-**In Jamaica, cautious joy as Kamala Harris tries to secure the presidential nomination.**\
-`By Emiliano Rodríguez Mega`\
-https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/in-jamaica-cautious-joy-as-kamala-harris-tries-to-secure-the-presidential-nomination
 
