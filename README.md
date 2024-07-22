@@ -1,3 +1,7 @@
+**Is It a Mistake for Democrats to Go All In on Harris? Four Columnists on the Party’s Moves.**\
+`As Democratic leaders fall in line behind Harris, her strengths and weaknesses warrant a closer look.`\
+https://nytimes.com/2024/07/22/opinion/kamala-harris-democrats.html
+
 **Trump Donated to Kamala Harris’s Campaign for California Attorney General**\
 `Years before either came close to the White House, Donald J. Trump gave $6,000 to her campaigns for statewide office. His daughter, Ivanka, gave $2,000.`\
 https://nytimes.com/2024/07/22/us/politics/trump-kamala-harris-donation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/22/opinion/paris-olympics-medals-winner.html
 **‘Politics Is About Tomorrow, Not Yesterday’**\
 `Joe Biden must have accepted that he is yesterday, and chose to let the party move on.`\
 https://nytimes.com/2024/07/22/opinion/joe-biden-lyndon-johnson-truman.html
-
-**Biden’s Withdrawal From Race, a Reporter’s Call to Action**\
-`Reid J. Epstein, a politics reporter at The New York Times, had just finished eating cupcakes at his son’s birthday party when he saw Biden’s bombshell announcement. He raced home, and got to work.`\
-https://nytimes.com/2024/07/22/insider/how-times-reporter-covered-biden-dropping-out.html
 
