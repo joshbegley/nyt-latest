@@ -1,3 +1,7 @@
+**No one can accuse Jim Phillips of having his head in the sand anymore**\
+`Phillips swam against the current of change in college sports as long as he could. Were those efforts well-meaning, or wide-eyed?`\
+https://nytimes.com/athletic/5651750/2024/07/22/jim-phillips-acc-realignment/
+
 **Biden: ‘I’m Not Going Anywhere’**\
 `The president called into a meeting with Vice President Kamala Harris at what was once their joint campaign headquarters, the first time he has been heard since isolating with Covid last week.`\
 https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/biden-harris-2024-election-campaign
@@ -36,8 +40,4 @@ https://nytimes.com/2024/07/22/us/politics/doug-emhoff-kamala-harris-husband.htm
 **Seven things learned, confirmed talking with Mike Brown, Bengals brass on Monday**\
 `From Joe Burrow's health to Ja'Marr Chase's future, Brown, Duke Tobin, Zac Taylor and coaches addressed several topics.`\
 https://nytimes.com/athletic/5651572/2024/07/22/bengals-media-luncheon-mike-brown/
-
-**Olympians Are Getting Loads and Loads of Gear**\
-`Athletes are unboxing sponsored merchandise and sharing try-on hauls on TikTok, featuring brands like Nike and Lululemon.`\
-https://nytimes.com/2024/07/22/style/olympians-unboxing-sponsored-gear.html
 
