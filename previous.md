@@ -15,7 +15,7 @@ https://nytimes.com/2024/07/21/us/black-voters-kamala-harris.html
 https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/in-wisconsin-baldwin-endorses-harris-and-voters-heave-a-sigh-of-relief
 
 **Missed opportunities cost Twins yet again as Milwaukee completes 2-game series sweep**\
-`The Twins had ample chances to beat the Brewers but the bullpen faltered and the offense squandered too many chances on Sunday.`\
+`The Twins had ample chances to beat the Brewers, but the bullpen faltered and the offense squandered too many chances Sunday.`\
 https://nytimes.com/athletic/5649807/2024/07/21/twins-swept-by-brewers-missed-opportunities/
 
 **At the 2024 Baseball Hall of Fame ceremony, reciprocal gratitude was everywhere**\

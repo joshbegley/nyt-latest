@@ -1,3 +1,7 @@
+**Missed opportunities cost Twins yet again as Milwaukee completes 2-game series sweep**\
+`The Twins had ample chances to beat the Brewers, but the bullpen faltered and the offense squandered too many chances Sunday.`\
+https://nytimes.com/athletic/5649807/2024/07/21/twins-swept-by-brewers-missed-opportunities/
+
 **Biden Is Out, and Democrats Have a Whole New Set of Questions**\
 `An earthshaking political moment finally arrived, and the transformation of the campaign starts now.`\
 https://nytimes.com/2024/07/21/us/politics/kamala-harris-campaign-nomination-biden.html
