@@ -1,3 +1,11 @@
+**Trial in Bombing of U.S. Warship Set to Start 25 Years After Attack**\
+`The judge reserved a courtroom for fall 2025. Seventeen U.S. sailors were killed in the bombing, which was a precursor to the 9/11 terrorist attacks.`\
+https://nytimes.com/2024/07/22/us/politics/uss-cole-bombing-trial.html
+
+**The Spotlight Turns to Kamala Harris**\
+`Readers differ on whether she is the best Democratic candidate and praise President Biden for putting patriotism over pride.`\
+https://nytimes.com/2024/07/22/opinion/letters/joe-biden-kamala-harris.html
+
 **Duke Fakir, Last Surviving Member of the Four Tops, Dies at 88**\
 `He sang tenor on hits like “Standing in the Shadow of Love,” “Reach Out, I’ll Be There” and “I Can’t Help Myself (Sugar Pie Honey Bunch).”`\
 https://nytimes.com/2024/07/22/arts/music/abdul-duke-fakir-dead.html

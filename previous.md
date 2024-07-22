@@ -1,3 +1,11 @@
+**Trial in Bombing of U.S. Warship Set to Start 25 Years After Attack**\
+`The judge reserved a courtroom for fall 2025. Seventeen U.S. sailors were killed in the bombing, which was a precursor to the 9/11 terrorist attacks.`\
+https://nytimes.com/2024/07/22/us/politics/uss-cole-bombing-trial.html
+
+**The Spotlight Turns to Kamala Harris**\
+`Readers differ on whether she is the best Democratic candidate and praise President Biden for putting patriotism over pride.`\
+https://nytimes.com/2024/07/22/opinion/letters/joe-biden-kamala-harris.html
+
 **Duke Fakir, Last Surviving Member of the Four Tops, Dies at 88**\
 `He sang tenor on hits like “Standing in the Shadow of Love,” “Reach Out, I’ll Be There” and “I Can’t Help Myself (Sugar Pie Honey Bunch).”`\
 https://nytimes.com/2024/07/22/arts/music/abdul-duke-fakir-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/22/world/europe/alsu-kurmasheva-sentence-russia.html
 **He Replaced the King of Sexy. Now He’s Leaving.**\
 `After spending 25 years as Tom Ford’s right-hand man — at Gucci and then at his namesake label — Peter Hawkings survived less than a year as his successor.`\
 https://nytimes.com/2024/07/22/style/peter-hawkings-tom-ford-exit.html
-
-**A Kamala Harris Impersonator Is Ready for Her Moment**\
-`Allison Reese, a comedian, does TikTok’s favorite impression of the vice president. She’s about to have a busy week.`\
-https://nytimes.com/2024/07/22/style/kamala-harris-impersonator-allison-reece.html
-
-**Gunman Kills at Least 6 at Nursing Home in Croatia**\
-`President Zoran Milanovic called for stricter gun control after an attack that shook Croatia, where mass killings are rare. A suspect was arrested nearby.`\
-https://nytimes.com/2024/07/22/world/europe/croatia-senior-home-shooting.html
 
