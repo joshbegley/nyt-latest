@@ -1,3 +1,7 @@
+**It’s Time for ‘Anything Is Possible’ Democratic Boldness**\
+`Harris may be the best candidate, but she needs to prove it before being nominated.`\
+https://nytimes.com/live/2024/07/09/opinion/thepoint/harris-earn-nomination-democrats
+
 **The Pulse: NFL coaches on the hot seat**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5649911/2024/07/22/nfl-coaches-hot-seat-the-pulse/
