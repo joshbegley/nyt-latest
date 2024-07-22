@@ -1,3 +1,7 @@
+**Biden Shepherded Europe on Ukraine and NATO. What Happens Now?**\
+`President Biden’s stance on Ukraine was shaped by a deep commitment to America’s trans-Atlantic alliance. Some Europeans fear he may be among the last of his kind.`\
+https://nytimes.com/2024/07/22/world/europe/biden-ukraine-nato.html
+
 **China is hosting talks between the two main Palestinian factions, but expectations are low.**\
 `By Alexandra Stevenson and Adam Rasgon`\
 https://nytimes.com/live/2024/07/22/world/israel-gaza-war-hamas/china-hosts-talks-between-the-two-main-palestinian-factions-but-expectations-are-low
