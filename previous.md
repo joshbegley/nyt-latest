@@ -1,3 +1,7 @@
+**Pelosi Endorses Harris, Ending Speculation She Would Push for Open Primary**\
+`Before President Biden dropped out, the former House speaker had told her some colleagues privately that if he were to do so, she would favor a competitive primary.`\
+https://nytimes.com/2024/07/22/us/politics/pelosi-harris-endorsement.html
+
 **Trial in Bombing of U.S. Warship Set to Start 25 Years After Attack**\
 `The judge reserved a courtroom for fall 2025. Seventeen U.S. sailors were killed in the bombing, which was a precursor to the 9/11 terrorist attacks.`\
 https://nytimes.com/2024/07/22/us/politics/uss-cole-bombing-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5650722/2024/07/22/david-taylor-oklahoma-state-wres
 **Russia Sentences Alsu Kurmasheva, American Editor, to a Penal Colony**\
 `Ms. Kurmasheva, a Russian American working for Radio Free Europe/Radio Liberty, had been charged in relation to an antiwar book she edited.`\
 https://nytimes.com/2024/07/22/world/europe/alsu-kurmasheva-sentence-russia.html
-
-**He Replaced the King of Sexy. Now He’s Leaving.**\
-`After spending 25 years as Tom Ford’s right-hand man — at Gucci and then at his namesake label — Peter Hawkings survived less than a year as his successor.`\
-https://nytimes.com/2024/07/22/style/peter-hawkings-tom-ford-exit.html
 

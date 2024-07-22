@@ -1,3 +1,7 @@
+**Pelosi Endorses Harris, Ending Speculation She Would Push for Open Primary**\
+`Before President Biden dropped out, the former House speaker had told her some colleagues privately that if he were to do so, she would favor a competitive primary.`\
+https://nytimes.com/2024/07/22/us/politics/pelosi-harris-endorsement.html
+
 **Trial in Bombing of U.S. Warship Set to Start 25 Years After Attack**\
 `The judge reserved a courtroom for fall 2025. Seventeen U.S. sailors were killed in the bombing, which was a precursor to the 9/11 terrorist attacks.`\
 https://nytimes.com/2024/07/22/us/politics/uss-cole-bombing-trial.html
