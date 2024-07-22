@@ -1,3 +1,15 @@
+**They Drive for a Living and Say New York Traffic Is ‘the Worst Ever’**\
+`There are more than 90,000 taxis, Ubers and Lyfts in New York City, making it hard for those drivers — and everyone else — to maneuver through the streets.`\
+https://nytimes.com/2024/07/22/nyregion/street-wars-traffic-uber-taxi-new-york-city.html
+
+**Can Robert Menendez’s Bribery Conviction Survive an Appeal?**\
+`The Supreme Court has narrowed the legal definition of corruption, with political figures in New York and elsewhere having their convictions overturned as a result.`\
+https://nytimes.com/2024/07/22/nyregion/robert-menendez-bribery-conviction-appeal.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/22/crosswords/spelling-bee-forum.html
+
 **Delta Cancels More Flights as It Struggles to Recover From Tech Outage**\
 `Transportation Secretary Pete Buttigieg singled out the airline on Sunday for continued disruptions and “unacceptable” customer service as it canceled another 1,300 flights.`\
 https://nytimes.com/2024/07/22/business/delta-global-tech-outage-pete-buttigieg.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/22/pageoneplus/quotation-of-the-day-ready-to-realize
 **What to expect from Scott Parker's Burnley as they plot immediate return to Premier League**\
 `The club's new head coach is not without flaws but history shows he understands how to guide Championship clubs to promotion `\
 https://nytimes.com/athletic/5649111/2024/07/22/scott-parker-burnley-what-to-expect/
-
-**After Stefan Bajcetic's long road to fitness, where does he fit in at Liverpool?**\
-`Stefan Bajcetic's battle for fitness and what his future entails`\
-https://nytimes.com/athletic/5635222/2024/07/22/liverpool-rebuilding-stefan-bajcetic/
-
-**Who is Jack Wilson, Wolves' first set-piece coach?**\
-`Wilson, who started his career in Scotland and went on to work for Brentford and Manchester City, will oversee Wolves' set-piece strategy`\
-https://nytimes.com/athletic/5647329/2024/07/22/jack-wilson-wolves-manchester-city-brentford/
-
-**Arsenal's Myles Lewis-Skelly and mum Marcia, an unlikely footballing double act**\
-`The teenager's mum had little interest in football but has become a qualified agent in an attempt to help her son`\
-https://nytimes.com/athletic/5649065/2024/07/22/myles-lewis-skelly-marcia-agent/
 
