@@ -1,3 +1,7 @@
+**Kamala Harris’s Presidential Bid Is Getting a Pop Music Rollout Online**\
+`Charli XCX, John Legend and other musicians posted messages supporting the vice president’s nomination, while fans remixed an old speech into pop hits on TikTok.`\
+https://nytimes.com/2024/07/22/arts/music/kamala-harris-charli-xcx-taylor-swift-endorsements.html
+
 **The Questions the Secret Service Director Did Not Answer**\
 `On Monday, Kimberly A. Cheatle told a House committee that she could not reveal — or did not know — key details about the attempted assassination of President Trump. Here’s what was missing.`\
 https://nytimes.com/2024/07/22/us/politics/kimberly-cheatle-secret-service-hearing-questions.html
