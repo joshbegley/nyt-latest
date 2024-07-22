@@ -1,3 +1,11 @@
+**Seeking Answers, Lawmakers From Both Parties Ask Secret Service Chief to Quit**\
+`In a hearing on Capitol Hill, Director Kimberly A. Cheatle declined to answer questions about the lapses in protection that allowed a gunman to fire at former President Donald Trump in Butler, Pa.`\
+https://nytimes.com/2024/07/22/us/politics/kimberly-cheatle-secret-service-hearing.html
+
+**In Jamaica, cautious joy as Kamala Harris tries to secure the presidential nomination.**\
+`By Emiliano Rodríguez Mega`\
+https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/in-jamaica-cautious-joy-as-kamala-harris-tries-to-secure-the-presidential-nomination
+
 **Harris Steps Into the Spotlight, Reintroducing Herself on Her Own Terms**\
 `Vice President Kamala Harris scooped up endorsements and wasted no time starting to build her new profile as the presumptive nominee and the new hope for defeating former President Donald J. Trump.`\
 https://nytimes.com/2024/07/22/us/politics/kamala-harris-campaign.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/harris-t
 **Bears camp: Defense stifles Caleb Williams, Teven Jenkins' contract talks and more**\
 `The defensive line had a good day at practice with DeMarcus Walker showing off his versatility.`\
 https://nytimes.com/athletic/5651267/2024/07/22/chicago-bears-caleb-williams-defense/
-
-**Brickyard 400 takeaways: NASCAR's return to Indianapolis oval was a test of strength**\
-`Kyle Larson's win Sunday continued a trend at the Brickyard oval, where NASCAR's elite drivers tend to end up in victory lane.`\
-https://nytimes.com/athletic/5649199/2024/07/22/brickyard-400-nascar-kyle-larson-takeaways/
-
-**How Media Outlets on the Left and Right Covered Biden’s Withdrawal**\
-`Progressive publications said President Biden’s decision to withdraw from the 2024 election was heroic. Conservative commentators suggested that if he is unable to campaign, he should step down from the presidency, too.`\
-https://nytimes.com/2024/07/22/business/media/media-left-right-biden-withdrawal.html
 

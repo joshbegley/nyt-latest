@@ -1,3 +1,15 @@
+**Dodgers designating lefty pitcher James Paxton for assignment**\
+`The Dodgers will have 10 days to pass Paxton through waivers or find a trade partner for him ahead of the July 30 trade deadline.`\
+https://nytimes.com/athletic/5651444/2024/07/22/dodgers-james-paxton-designated-assignment/
+
+**Robert L. Allen, Who Shed Light on a Navy Yard Blast and Trial, Dies at 82**\
+`He wrote of how Black sailors were court-martialed for refusing to keep loading munitions after explosions in 1944 killed hundreds. They were exonerated 80 years later.`\
+https://nytimes.com/2024/07/22/us/robert-l-allen-dead.html
+
+**Tuesday Briefing: Support Builds for Kamala Harris**\
+`Plus, the head of the Secret Service testified before Congress about the assassination attempt on Donald Trump.`\
+https://nytimes.com/2024/07/22/briefing/kamala-harris-endorsement-secret-service.html
+
 **Seeking Answers, Lawmakers From Both Parties Ask Secret Service Chief to Quit**\
 `In a hearing on Capitol Hill, Director Kimberly A. Cheatle declined to answer questions about the lapses in protection that allowed a gunman to fire at former President Donald Trump in Butler, Pa.`\
 https://nytimes.com/2024/07/22/us/politics/kimberly-cheatle-secret-service-hearing.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2024/us/politics/kamala-harris-vp-pick.html
 **Marseille sign Hojbjerg from Tottenham on loan with obligation to buy**\
 `Marseille have completed the signing of Pierre-Emile Hojbjerg from Tottenham Hotspur on loan with an obligation to make the move permanent.`\
 https://nytimes.com/athletic/5651413/2024/07/22/spurs-marseille-hojberg-transfer-loan/
-
-**Colson Whitehead Looks Back at ‘The Underground Railroad’**\
-`The first in a series of conversations with authors appearing on our “Best Books of the 21st Century” list.`\
-https://nytimes.com/2024/07/22/books/review/colson-whitehead-underground-railroad-podcast.html
-
-**Revisiting Kamala Harris’s rocky first trip abroad as vice president.**\
-`By Natalie Kitroeff`\
-https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/harris-tasked-with-helping-stem-migration-into-the-us-ended-up-angering-republicans-and-progressives
-
-**Bears camp: Defense stifles Caleb Williams, Teven Jenkins' contract talks and more**\
-`The defensive line had a good day at practice with DeMarcus Walker showing off his versatility.`\
-https://nytimes.com/athletic/5651267/2024/07/22/chicago-bears-caleb-williams-defense/
 
