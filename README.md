@@ -1,3 +1,7 @@
+**Marseille: A city divided over Mason Greenwood transfer**\
+`After the forward’s transfer to the Ligue 1 side, The Athletic travelled to Marseille to see how the move has been received by fans`\
+https://nytimes.com/athletic/5649315/2024/07/22/marseille-divided-mason-greenwood-manchester-united/
+
 **Joe Biden Dropped Out. What’s Next?**\
 `President Biden on Sunday abruptly abandoned his campaign for a second term under intense pressure from fellow Democrats and threw his support to Vice President Kamala Harris to lead their party in a dramatic last-minute bid to stop former President Donald J.`\
 https://nytimes.com/video/us/politics/100000009584698/joe-biden-dropped-out-whats-next.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5649912/2024/07/21/shohei-ohtani-home-run-dodger-st
 **Homeland Security Secretary Announces Panel on Trump Assassination Attempt**\
 `Secretary Alejandro N. Mayorkas said the bipartisan group of experts would get to the bottom of decisions that allowed a gunman to wound the former president at a rally in Pennsylvania.`\
 https://nytimes.com/2024/07/21/us/politics/panel-trump-assassination-attempt.html
-
-**Phillies' Tyler Phillips finding fuel for his starts as he lives his big-league dream**\
-`Phillips used his rough spring outing against the Pirates as motivation Sunday. He has an opportunity to be a summer hero for the Phillies.`\
-https://nytimes.com/athletic/5649848/2024/07/21/tyler-phillips-phillies-motivation/
 
