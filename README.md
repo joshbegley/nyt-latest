@@ -1,4 +1,4 @@
-**Phillies' Tyler Phillips finding ways to fuel his starts as he lives his big-league dream**\
+**Phillies' Tyler Phillips finding fuel for his starts as he lives his big-league dream**\
 `Phillips used his rough spring outing against the Pirates as motivation Sunday. He has an opportunity to be a summer hero for the Phillies.`\
 https://nytimes.com/athletic/5649848/2024/07/21/tyler-phillips-phillies-motivation/
 
