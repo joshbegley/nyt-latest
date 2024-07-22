@@ -1,3 +1,7 @@
+**Amadou Onana to Aston Villa: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Amadou Onana's move to Aston Villa`\
+https://nytimes.com/athletic/5638487/2024/07/22/amadou-onana-to-aston-villa-the-athletic-500-transfer-ratings/
+
 **She Found Bounties in Small Towns, Local Talk and Everyday Life**\
 `The simple pleasures keep coming in this keenly observed collection by the Argentinian writer Hebe Uhart.`\
 https://nytimes.com/2024/07/22/books/review/hebe-uhart-question-of-belonging.html

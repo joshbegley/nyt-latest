@@ -1,3 +1,7 @@
+**Amadou Onana to Aston Villa: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Amadou Onana's move to Aston Villa`\
+https://nytimes.com/athletic/5638487/2024/07/22/amadou-onana-to-aston-villa-the-athletic-500-transfer-ratings/
+
 **She Found Bounties in Small Towns, Local Talk and Everyday Life**\
 `The simple pleasures keep coming in this keenly observed collection by the Argentinian writer Hebe Uhart.`\
 https://nytimes.com/2024/07/22/books/review/hebe-uhart-question-of-belonging.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/22/arts/music/eminem-taylor-swift-billboard-chart.ht
 **Who is Kimberly Cheatle, the embattled Secret Service director?**\
 `By Tim Balk`\
 https://nytimes.com/live/2024/07/22/us/secret-service-hearing-trump-cheatle/who-is-kimberly-cheatle-the-embattled-secret-service-director
-
-**Ukraine Strikes Preliminary $20 Billion Debt Restructuring Deal**\
-`The deal with private bondholders will help preserve Kyiv’s limited state budget, which is crucial to fund its military. An agreement to suspend debt payments was to expire on Aug. 1.`\
-https://nytimes.com/2024/07/22/world/europe/ukraine-strikes-preliminary-20-billion-debt-restructuring-deal.html
 
