@@ -1,3 +1,7 @@
+**Bowden: Why the rebuilding White Sox, A's and Tigers should trade their star pitchers**\
+`Jim Bowden explains why he thinks all three teams should trade their young pitching stars now if they can get enough in return. `\
+https://nytimes.com/athletic/5650347/2024/07/22/rebuilding-mlb-team-trades-white-sox-athletics-tigers/
+
 **An official at a major hospital in Gaza said hundreds of injured people had arrived there.**\
 `By Matthew Mpoke Bigg and Iyad Abuheweila`\
 https://nytimes.com/live/2024/07/22/world/israel-gaza-war-hamas/an-official-at-a-major-hospital-in-gaza-said-hundreds-of-injured-people-had-arrived-there
