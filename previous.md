@@ -1,3 +1,7 @@
+**The Athletic FC: Why snus 'a huge problem,' United eye Obi-Martin, a pre-season wonder goal**\
+`Today in The Athletic FC: Why nicotine pouches are a 'huge problem' for players. Plus: Tyler Adams' latest surgery and a pre-season worldie.`\
+https://nytimes.com/athletic/5650211/2024/07/22/snus-huge-problem-united-obi-martin-the-athletic-fc/
+
 **Paul Watson, Anti-Whaling Activist, Is Detained in Greenland**\
 `Mr. Watson, the founder of the conservation group Sea Shepherd, was arrested when his boat docked in Nuuk. He could face extradition to Japan.`\
 https://nytimes.com/2024/07/22/world/europe/paul-watson-whaling-arrest-greenland.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5649911/2024/07/22/nfl-coaches-hot-seat-the-pulse/
 **Kamala Harris Takes Control**\
 `President Biden has dropped out of the race. We answer four questions about what happens next.`\
 https://nytimes.com/2024/07/22/briefing/biden-harris-election-trump.html
-
-**Barton charged with alleged malicious communications towards Aluko**\
-`Joey Barton has been charged with alleged malicious communications towards Eni Aluko.`\
-https://nytimes.com/athletic/5650186/2024/07/22/joey-barton-charged-eni-aluko/
 
