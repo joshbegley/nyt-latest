@@ -1,3 +1,19 @@
+**The Athletic's first-ever MLB Power Rankings Readers' Edition: Cast your vote now**\
+`The Athletic's July 23 edition of the Power Rankings will be voted upon by you, the readers. `\
+https://nytimes.com/athletic/5650485/2024/07/22/mlb-power-rankings-readers-edition/
+
+**The Athletic's first-ever MLB Power Rankings Readers' Edition: Cast your vote now**\
+`The Athletic's July 23 edition of the Power Rankings will be voted upon by you, the readers. `\
+https://nytimes.com/athletic/5650441/2024/07/22/the-athletics-first-ever-mlb-power-rankings-readers-edition-cast-your-vote-now/
+
+**Here’s Where Kamala Harris Stands on Climate**\
+`She pursued polluters as attorney general in California and later staked out bold positions as a senator, including sponsorship of the Green New Deal.`\
+https://nytimes.com/2024/07/22/climate/kamala-harris-climate-environment.html
+
+**Memes, Texts and Other Jarring Ways Some Americans Heard the Biden News**\
+`When the president announced he was suspending his re-election bid, the news spread via some unexpected sources.`\
+https://nytimes.com/2024/07/22/style/biden-social-media-news.html
+
 **Rob Dillingham flourishes in summer-league finale, giving a glimpse of what he can become**\
 `The Wolves do not need Dillingham to be an All-Star right away, but they do need him to be a factor on a very good team.`\
 https://nytimes.com/athletic/5649925/2024/07/22/rob-dillingham-timberwolves-flourishes-summer-league/
