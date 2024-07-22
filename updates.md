@@ -1,3 +1,7 @@
+**Duke Fakir, Last Surviving Member of the Four Tops, Dies at 88**\
+`He sang tenor on hits like “Standing in the Shadow of Love,” “Reach Out, I’ll Be There” and “I Can’t Help Myself (Sugar Pie Honey Bunch).”`\
+https://nytimes.com/2024/07/22/arts/music/abdul-duke-fakir-dead.html
+
 **Mavericks, Spencer Dinwiddie agree to 1-year deal**\
 `In 76 games played last season, Dinwiddie averaged 10.5 points, 2.7 rebounds and 4.7 assists.`\
 https://nytimes.com/athletic/5650960/2024/07/22/mavericks-spencer-dinwiddie-deal/
