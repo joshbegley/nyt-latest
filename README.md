@@ -1,3 +1,7 @@
+**Biden Shepherded Europe on Ukraine and NATO. What Happens Now?**\
+`President Biden’s stance on Ukraine was shaped by a deep commitment to America’s trans-Atlantic alliance. Some Europeans fear he may be among the last of his kind.`\
+https://nytimes.com/2024/07/22/world/europe/biden-ukraine-nato.html
+
 **China is hosting talks between the two main Palestinian factions, but expectations are low.**\
 `By Alexandra Stevenson and Adam Rasgon`\
 https://nytimes.com/live/2024/07/22/world/israel-gaza-war-hamas/china-hosts-talks-between-the-two-main-palestinian-factions-but-expectations-are-low
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5650186/2024/07/22/joey-barton-charged-eni-aluko/
 **Broncos 53-man roster prediction: Bo Nix and the QB battle is just the start**\
 `The Broncos must figure out a pecking order among skill-position players during what should be a hotly contested training camp.`\
 https://nytimes.com/athletic/5649148/2024/07/22/denver-broncos-roster-prediction-training-camp/
-
-**Ravens coach John Harbaugh reveals grand 'vision' for two-time MVP Lamar Jackson**\
-`Plus, Marlon Humphrey shined on the first day of training camp and Eddie Jackson took the practice field after officially signing his deal. `\
-https://nytimes.com/athletic/5649694/2024/07/22/ravens-lamar-jackson-john-harbaugh/
 
