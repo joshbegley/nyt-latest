@@ -1,3 +1,7 @@
+**Swindled Savings**\
+`Articles in this series examine a rise in cybercrime targeting older Americans and their retirement savings.`\
+https://nytimes.com/series/swindled-savings
+
 **What to Know About Kamala Harris’s Husband, Doug Emhoff**\
 `As the spouse of the first woman to be vice president, Doug Emhoff has focused on combating antisemitism and expanding access to legal aid.`\
 https://nytimes.com/2024/07/22/us/politics/doug-emhoff-kamala-harris-husband.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/22/us/illinois-sonya-massey-body-cam-footage.html
 **Europe cheered on Biden after his exit, and Russia yawned.**\
 `By Tim Balk`\
 https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/europe-cheered-on-biden-after-his-exit-and-russia-yawned
-
-**Kamala Harris and the Political Power of Joy**\
-`Suddenly, a campaign that felt like a bleak death march has become fun.`\
-https://nytimes.com/2024/07/22/opinion/kamala-harris-excitement.html
 
