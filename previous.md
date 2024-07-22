@@ -1,3 +1,11 @@
+**Israel Orders New Evacuation in Gaza as Aid Workers Say Bombing Kills Dozens**\
+`Israeli forces said they struck dozens of sites in Khan Younis where Hamas operated and fired rockets, and they shrunk the ‘humanitarian zone’ where civilians were told to flee.`\
+https://nytimes.com/2024/07/22/world/middleeast/israel-gaza-khan-younis.html
+
+**Trump’s Cynical Attempt to Pit Recent Immigrants Against Black Americans**\
+`No, Black workers aren’t being “decimated” by new immigrants.`\
+https://nytimes.com/2024/07/22/opinion/trump-immigration-black-voters.html
+
 **A Campaign That Started Slowly Gets Its Inevitable Upheaval**\
 `“I know it’s been a roller coaster,” Vice President Kamala Harris told her campaign staff on Monday.`\
 https://nytimes.com/2024/07/22/us/politics/harris-trump-vp-presidential-campaign.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5651504/2024/07/22/vikings-jordan-addison-jj-mccart
 **Democrats Cleared the Path for Harris’s Nomination**\
 `Also, lawmakers called for the Secret Service director to resign. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/07/22/briefing/democrats-kamala-harris-secret-service-director.html
-
-**Team USA narrowly outlasts Germany in final exhibition before Olympics**\
-`LeBron James scored 11 of his game-high 20 points in the final 3:57 of the fourth quarter to help the U.S. win 92-88.`\
-https://nytimes.com/athletic/5651552/2024/07/22/usa-germany-olympic-basketball-exhibition-results/
-
-**Ethics Committee Moves Swiftly to Tee Up Possible Expulsion of Menendez**\
-`Senator Robert Menendez of New Jersey was found guilty of bribery and corruption last week.`\
-https://nytimes.com/2024/07/22/nyregion/robert-menendez-bribery-ethics-vote.html
 

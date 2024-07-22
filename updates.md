@@ -1,3 +1,11 @@
+**Israel Orders New Evacuation in Gaza as Aid Workers Say Bombing Kills Dozens**\
+`Israeli forces said they struck dozens of sites in Khan Younis where Hamas operated and fired rockets, and they shrunk the ‘humanitarian zone’ where civilians were told to flee.`\
+https://nytimes.com/2024/07/22/world/middleeast/israel-gaza-khan-younis.html
+
+**Trump’s Cynical Attempt to Pit Recent Immigrants Against Black Americans**\
+`No, Black workers aren’t being “decimated” by new immigrants.`\
+https://nytimes.com/2024/07/22/opinion/trump-immigration-black-voters.html
+
 **A Campaign That Started Slowly Gets Its Inevitable Upheaval**\
 `“I know it’s been a roller coaster,” Vice President Kamala Harris told her campaign staff on Monday.`\
 https://nytimes.com/2024/07/22/us/politics/harris-trump-vp-presidential-campaign.html
