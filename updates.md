@@ -1,3 +1,11 @@
+**The Mountain West and Pac-2 are still far apart. Are they running out of time?**\
+`Both sides say an agreement on a 2025 football schedule needs to happen before the 2024 season kicks off. So will it?`\
+https://nytimes.com/athletic/5650358/2024/07/22/mountain-west-pac-12-schedules-merger/
+
+**Couple Who Attempted to Cross Atlantic Found Dead in Lifeboat**\
+`James Brett Clibbery and his wife, Sarah Justine Packwood, had left Nova Scotia on June 11, bound for the Azores. The authorities recovered remains believed to be theirs earlier this month.`\
+https://nytimes.com/2024/07/22/world/canada/atlantic-ocean-sailing-deaths.html
+
 **With Biden’s Endorsement of Harris, What’s Next?**\
 `Many Democrats endorsed the vice president as their party’s standard-bearer, but some donors questioned whether more competition for the role was needed.`\
 https://nytimes.com/2024/07/22/business/dealbook/harris-president-donors.html
