@@ -15,7 +15,7 @@ https://nytimes.com/2024/07/22/us/politics/democrats-pick-nominee-aug-7.html
 https://nytimes.com/2024/07/22/us/politics/secret-service-cheatle-hearing-fact-check.html
 
 **A Senator Will Preside at Netanyahu’s Speech to Congress After Harris Declines**\
-`An aide to Vice President Kamala Harris said she would be speaking to one of the nation’s oldest Black sororities at the time of the Israeli prime minister’s address but was scheduled to meet with him this week.`\
+`An aide to Vice President Kamala Harris said she would be speaking to one of the nation’s oldest Black sororities at the time of the Israeli prime minister’s address but would to meet with him this week.`\
 https://nytimes.com/2024/07/22/world/middleeast/kamala-harris-netanyahu-congress-speech.html
 
 **No one can accuse Jim Phillips of having his head in the sand anymore**\
