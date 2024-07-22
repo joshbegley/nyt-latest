@@ -1,3 +1,11 @@
+**Harris Steps Into the Spotlight, Reintroducing Herself on Her Own Terms**\
+`Vice President Kamala Harris scooped up endorsements and wasted no time starting to build her new profile as the presumptive nominee and the new hope for defeating former President Donald J. Trump.`\
+https://nytimes.com/2024/07/22/us/politics/kamala-harris-campaign.html
+
+**Packers don't seem worried as Jordan Love holds in: 'He's our franchise quarterback'**\
+`Love isn't practicing until he has a new deal, but he's participating in everything else as the Packers kick off training camp.`\
+https://nytimes.com/athletic/5650953/2024/07/22/packers-jordan-love-contract-hold-in/
+
 **Map: 5.7-Magnitude Earthquake Strikes off the Coast of Panama**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/07/22/world/americas/panama-quake.html
