@@ -1,3 +1,7 @@
+**Ukraine Strikes Preliminary $20 Billion Debt Restructuring Deal**\
+`The deal with private bondholders will help preserve Kyiv’s limited state budget, which is crucial to fund its military. An agreement to suspend debt payments was to expire on Aug. 1.`\
+https://nytimes.com/2024/07/22/world/europe/ukraine-strikes-preliminary-20-billion-debt-restructuring-deal.html
+
 **Bowden: Why the rebuilding White Sox, A's and Tigers should trade their star pitchers**\
 `Jim Bowden explains why he thinks all three teams should trade their young pitching stars now if they can get enough in return. `\
 https://nytimes.com/athletic/5650347/2024/07/22/rebuilding-mlb-team-trades-white-sox-athletics-tigers/
