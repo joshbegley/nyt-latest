@@ -1,3 +1,7 @@
+**How Media Outlets on the Left and Right Covered Biden’s Withdrawal**\
+`Progressive publications said President Biden’s decision to withdraw from the 2024 election was heroic. Conservative commentators suggested that if he is unable to campaign, he should step down from the presidency, too.`\
+https://nytimes.com/2024/07/22/business/media/media-left-right-biden-withdrawal.html
+
 **Barbra Streisand Endorses Harris. Where Do Other Stars Stand?**\
 `Robert De Niro thanked President Biden, Aaron Sorkin backed Vice President Kamala Harris (not Mitt Romney) as his replacement and George Clooney is keeping quiet.`\
 https://nytimes.com/article/kamala-harris-celebrity-endorsements.html
