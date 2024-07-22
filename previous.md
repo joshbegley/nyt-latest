@@ -1,3 +1,7 @@
+**‘House of the Dragon’ Season 2, Episode 6 Recap: The Black Queen’s Gambit**\
+`Rhaenyra sends a gift to the small folk. There may be some strings attached.`\
+https://nytimes.com/2024/07/21/arts/television/house-of-the-dragon-season-2-recap-episode-6.html
+
 **Goddess of the Dawn**\
 `Laura Dershewitz’s first solo puzzle is a musical Monday grid.`\
 https://nytimes.com/2024/07/21/crosswords/daily-puzzle-2024-07-22.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5649753/2024/07/21/xander-schauffele-open-champions
 **Some Black Voters Say They Wonder if a Black Woman Can Win**\
 `In interviews, some Black voters expressed concern about whether Americans were ready to elect Kamala Harris, who has the backing of President Biden.`\
 https://nytimes.com/2024/07/21/us/black-voters-kamala-harris.html
-
-**In Wisconsin, Baldwin endorses Harris and voters heave a sigh of relief.**\
-`By Catie Edmondson`\
-https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/in-wisconsin-baldwin-endorses-harris-and-voters-heave-a-sigh-of-relief
 

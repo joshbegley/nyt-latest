@@ -1,3 +1,7 @@
+**‘House of the Dragon’ Season 2, Episode 6 Recap: The Black Queen’s Gambit**\
+`Rhaenyra sends a gift to the small folk. There may be some strings attached.`\
+https://nytimes.com/2024/07/21/arts/television/house-of-the-dragon-season-2-recap-episode-6.html
+
 **Goddess of the Dawn**\
 `Laura Dershewitz’s first solo puzzle is a musical Monday grid.`\
 https://nytimes.com/2024/07/21/crosswords/daily-puzzle-2024-07-22.html
