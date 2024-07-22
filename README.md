@@ -1,3 +1,7 @@
+**What’s on TV This Week: The Olympics and ‘Surreal Life: Villa of Secrets’**\
+`The opening ceremony airs on NBC. MTV reboots a reality show.`\
+https://nytimes.com/2024/07/22/arts/television/whats-on-tv-this-week-the-olympics-and-surreal-life-villa-of-secrets.html
+
 **The Promise, and Risks, in Turning to Kamala Harris**\
 `In a sprint of a race, Ms. Harris is poised to attack Donald Trump on his felonies and, in a 2024 twist, his age, but Republicans will be galvanized to fight her, too.`\
 https://nytimes.com/2024/07/22/us/politics/kamala-harris-democratic-nominee.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5649065/2024/07/22/myles-lewis-skelly-marcia-agent/
 **Special report: Why is snus rife in football?**\
 `For years it has been known that many footballers use snus, but in this special report we try to understand the reasons why`\
 https://nytimes.com/athletic/5529700/2024/07/22/special-report-why-is-snus-rife-in-football/
-
-**Investors React to Election Upheaval, Reassessing Their Political Bets**\
-`A new Democratic ticket could alter investors’ perceived election odds, with implications for stocks, bonds, the dollar and more.`\
-https://nytimes.com/2024/07/22/us/politics/biden-market-reaction.html
 

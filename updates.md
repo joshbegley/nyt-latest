@@ -1,3 +1,15 @@
+**The Promise, and Risks, in Turning to Kamala Harris**\
+`In a sprint of a race, Ms. Harris is poised to attack Donald Trump on his felonies and, in a 2024 twist, his age, but Republicans will be galvanized to fight her, too.`\
+https://nytimes.com/2024/07/22/us/politics/kamala-harris-democratic-nominee.html
+
+**Monday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/07/22/briefing/biden-election-kamala-harris.html
+
+**Many Elected Democrats Quickly Endorsed Kamala Harris. See Who Did.**\
+`A majority of Democrats in Congress and at least 10 Democratic governors have come out in support of Ms. Harris’s candidacy.`\
+https://nytimes.com/interactive/2024/07/22/us/politics/kamala-harris-democrats-endorsement-list.html
+
 **Quotation of the Day: Ready to Realize a New Dream**\
 `Quotation of the Day for Monday, July 22, 2024.`\
 https://nytimes.com/2024/07/22/pageoneplus/quotation-of-the-day-ready-to-realize-a-new-dream.html
