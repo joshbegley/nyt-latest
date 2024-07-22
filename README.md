@@ -1,3 +1,7 @@
+**Spurs leave Gil, Reguilon out of tour squad to 'explore transfer opportunities'**\
+`Sergio Reguilon and Bryan Gil have been left out of Tottenham Hotspur’s squad for their pre-season tour to Japan and South Korea.`\
+https://nytimes.com/athletic/5650779/2024/07/22/tottenham-transfers-bryan-gil-sergio-reguilon/
+
 **With Surprise Reversal, Biden Rewrites His Legacy and Makes a Play for History**\
 `Long concerned about his “epitaph,” the president reluctantly surrendered his bid for a second term, but Democrats argue that his willingness to give up power may yet enhance his role in posterity.`\
 https://nytimes.com/2024/07/22/us/politics/biden-election-legacy-harris-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5650081/2024/07/22/canucks-daniel-sprong-contract/
 **Tennis Briefing: How will Rafael Nadal feel? What was behind Zverev and Fils' handshake?**\
 `Tennis goes back to clay before the Olympics, with Nadal back in a final and the Hall of Fame Open becoming a mixed event`\
 https://nytimes.com/athletic/5650123/2024/07/22/tennis-briefing-rafael-nadal-bastad-zverev-fils-hamburg/
-
-**McLaren may need to be ruthless to beat Red Bull — and it could get uncomfortable**\
-`The closer McLaren gets to Red Bull, the more its preferred way of fighting will be tested.`\
-https://nytimes.com/athletic/5650582/2024/07/22/f1-mclaren-red-bull-championship-battle/
 

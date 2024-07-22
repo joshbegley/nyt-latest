@@ -1,3 +1,15 @@
+**With Surprise Reversal, Biden Rewrites His Legacy and Makes a Play for History**\
+`Long concerned about his “epitaph,” the president reluctantly surrendered his bid for a second term, but Democrats argue that his willingness to give up power may yet enhance his role in posterity.`\
+https://nytimes.com/2024/07/22/us/politics/biden-election-legacy-harris-trump.html
+
+**Darren Walker, Who Reoriented the Ford Foundation, to Step Down**\
+`Mr. Walker, who oversaw $7 billion in grants, plans to leave at the end of 2025 after what will have been 12 years.`\
+https://nytimes.com/2024/07/22/arts/darren-walker-ford-foundation-stepping-down.html
+
+**Howe: Gordon 'integral'; Newcastle must learn from PSR mistakes**\
+`Eddie Howe insists Anthony Gordon is &#8220;integral&#8221; to Newcastle United&#8217;s plans and stresses that the club will fight to keep hold of &#8220;our best players&#8221;.`\
+https://nytimes.com/athletic/5650201/2024/07/22/anthony-gordon-newcastle-transfers-psr/
+
 **How to Eat Like You’re in Paris for the Olympics**\
 `Dorie Greenspan, a beloved cookbook author and longtime Paris resident, knows that the French way of snacking is also the easiest.`\
 https://nytimes.com/2024/07/22/dining/how-to-eat-and-cook-paris-olympics-2024.html
