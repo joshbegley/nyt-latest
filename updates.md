@@ -1,3 +1,11 @@
+**At the 2024 Baseball Hall of Fame induction ceremony, reciprocal gratitude was everywhere**\
+`The class – Jim Leyland, Adrian Beltre, Todd Helton and Joe Mauer – featured a beloved manager and three players with deep community bonds.`\
+https://nytimes.com/athletic/5649770/2024/07/21/baseball-hall-of-fame-mauer-beltre-leyland-helton/
+
+**Democrats Donate More Than $30 Million Online After Biden’s Exit**\
+`Sunday was the single biggest day for online Democratic donations in years — a significant show of enthusiasm after weeks of sluggish fund-raising.`\
+https://nytimes.com/2024/07/21/us/politics/bidens-exit-democratic-donations.html
+
 **What’s Next for the Harris Campaign**\
 `Vice President Kamala Harris faces many questions, from the management of her campaign to the selection of her running mate, should she be the Democratic Party’s nominee.`\
 https://nytimes.com/2024/07/21/us/politics/harris-campaign.html
