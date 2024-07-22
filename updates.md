@@ -1,3 +1,15 @@
+**Barbra Streisand Endorses Harris. Where Do Other Stars Stand?**\
+`Robert De Niro thanked President Biden, Aaron Sorkin backed Vice President Kamala Harris (not Mitt Romney) as his replacement and George Clooney is keeping quiet.`\
+https://nytimes.com/article/kamala-harris-celebrity-endorsements.html
+
+**ACC commissioner vows to fight FSU, Clemson lawsuits 'for as long as it takes'**\
+`With the ACC mired in four different lawsuits in three separate states, Phillips doubled down on the league's position at media days.`\
+https://nytimes.com/athletic/5651324/2024/07/22/jim-phillips-acc-will-fight-for-as-long-as-it-takes-in-defending-grant-of-rights/
+
+**Female Donors Mobilize for Harris, Moving to Stamp Out Opposition**\
+`Vice President Kamala Harris has an orbit of Bay Area billionaires and loyalists, all women, who can power her bid for the Democratic nomination. But some big donors are still seeking other options.`\
+https://nytimes.com/2024/07/22/us/politics/kamala-harris-donors-women.html
+
 **Two Killed in Plane Crash Near Wisconsin Air Show**\
 `Emergency responders found a plane engulfed in flames in a farm field near the Experimental Aircraft Association AirVenture showcase in Oshkosh.`\
 https://nytimes.com/2024/07/22/us/eaa-airventure-oshkosh-plane-crash.html
