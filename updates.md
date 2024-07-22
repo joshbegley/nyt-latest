@@ -1,4 +1,8 @@
 **Silicon Valley Investors’ Plans for a New City Put on Hold**\
+`The plan for a new city near San Francisco has been delayed at least two years to study its impact on the environment.`\
+https://nytimes.com/2024/07/22/business/economy/california-forever-solano-county-city-on-hold.html
+
+**Silicon Valley Investors’ Plans for a New City Put on Hold**\
 `Plan for new city near San Francisco has been delayed at least two years to study its impact on the environment.`\
 https://nytimes.com/2024/07/22/business/economy/california-forever-solano-county-city-on-hold.html
 
