@@ -1,3 +1,11 @@
+**How Kamala Harris Will Try to Put Trump on Defense**\
+`Democrats are eager for her to deploy lines of attack that come more naturally than they did for President Biden, including on issues like abortion rights and the rule of law.`\
+https://nytimes.com/2024/07/22/us/politics/kamala-harris-trump-presidential-election.html
+
+**TNT to match Amazon's media rights deal with NBA**\
+`The NBA is expected to decline TNT Sports' right to simply take the agreed upon Amazon package, sources briefed on the NBA's plans said.`\
+https://nytimes.com/athletic/5651014/2024/07/22/nba-tnt-sports-amazon-media-rights-deal-match/
+
 **Is It a Mistake for Democrats to Go All In on Harris? Four Columnists on the Party’s Moves.**\
 `As Democratic leaders fall in line behind Harris, her strengths and weaknesses warrant a closer look.`\
 https://nytimes.com/2024/07/22/opinion/kamala-harris-democrats.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5651178/2024/07/22/blue-jackets-dean-evason-coach/
 **Hostage families plan to push Netanyahu to seal a deal before speaking to Congress.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/07/22/world/israel-gaza-war-hamas/hostage-families-plan-to-push-netanyahu-to-seal-a-deal-before-speaking-to-congress
-
-**Which Country Will Win the Paris Olympics? Don’t Just Count Medals.**\
-`Conventional ranking methods are flawed, but there’s a better way.`\
-https://nytimes.com/2024/07/22/opinion/paris-olympics-medals-winner.html
-
-**‘Politics Is About Tomorrow, Not Yesterday’**\
-`Joe Biden must have accepted that he is yesterday, and chose to let the party move on.`\
-https://nytimes.com/2024/07/22/opinion/joe-biden-lyndon-johnson-truman.html
 
