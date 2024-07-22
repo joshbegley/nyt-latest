@@ -1,3 +1,7 @@
+**The Windup: Castellanos can’t keep doing this**\
+`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
+https://nytimes.com/athletic/5650801/2024/07/22/nick-castellanos-shohei-ohtani-hall-of-fame-the-windup/
+
 **Spurs leave Gil, Reguilon out of tour squad to 'explore transfer opportunities'**\
 `Sergio Reguilon and Bryan Gil have been left out of Tottenham Hotspur’s squad for their pre-season tour to Japan and South Korea.`\
 https://nytimes.com/athletic/5650779/2024/07/22/tottenham-transfers-bryan-gil-sergio-reguilon/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/22/world/middleeast/israel-hezbollah-gaza-war.html
 **Three thoughts on Canucks' Daniel Sprong signing: Cap space, fit and shooting efficiency**\
 `Signing Sprong adds much-needed firepower to Vancouver's offensive arsenal.`\
 https://nytimes.com/athletic/5650081/2024/07/22/canucks-daniel-sprong-contract/
-
-**Tennis Briefing: How will Rafael Nadal feel? What was behind Zverev and Fils' handshake?**\
-`Tennis goes back to clay before the Olympics, with Nadal back in a final and the Hall of Fame Open becoming a mixed event`\
-https://nytimes.com/athletic/5650123/2024/07/22/tennis-briefing-rafael-nadal-bastad-zverev-fils-hamburg/
 
