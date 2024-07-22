@@ -1,3 +1,7 @@
+**Mavericks, Spencer Dinwiddie agree to 1-year deal**\
+`In 76 games played last season, Dinwiddie averaged 10.5 points, 2.7 rebounds and 4.7 assists.`\
+https://nytimes.com/athletic/5650960/2024/07/22/mavericks-spencer-dinwiddie-deal/
+
 **The Questions the Secret Service Director Did Not Answer**\
 `On Monday, Kimberly A. Cheatle told a House committee that she could not reveal — or did not know — key details about the attempted assassination of President Trump. Here’s what was missing.`\
 https://nytimes.com/2024/07/22/us/politics/kimberly-cheatle-secret-service-hearing-questions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/22/world/europe/croatia-senior-home-shooting.html
 **In pressing for Harris, her campaign cites her law enforcement and abortion record.**\
 `By Kate Kelly`\
 https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/in-pressing-for-harris-her-campaign-cites-her-law-enforcement-and-abortion-record
-
-**Women Voters: Is the Country Ready for a Female President? Tell Us.**\
-`Let us know how you feel about a woman running for president in 2024.`\
-https://nytimes.com/2024/07/22/us/women-voters-female-president-feedback.html
 
