@@ -1,3 +1,7 @@
+**Bucks summer league observations: AJ Johnson's speed, MarJon Beauchamp's struggles**\
+`The Bucks' first-round pick showed the athleticism that wowed them at the Draft Combine, but he'll need to get stronger going forward.`\
+https://nytimes.com/athletic/5645404/2024/07/22/milwaukee-bucks-summer-league-observations/
+
 **Amadou Onana to Aston Villa: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Amadou Onana's move to Aston Villa`\
 https://nytimes.com/athletic/5638487/2024/07/22/amadou-onana-to-aston-villa-the-athletic-500-transfer-ratings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5649400/2024/07/22/edmonton-oilers-connor-mcdavid-w
 **Eminem Ends Taylor Swift’s Chart Run With His 11th No. 1 Album**\
 `The rapper’s “The Death of Slim Shady (Coup de Grâce)” replaced the pop superstar’s “The Tortured Poets Department” after 12 weeks of dominance at the top.`\
 https://nytimes.com/2024/07/22/arts/music/eminem-taylor-swift-billboard-chart.html
-
-**Who is Kimberly Cheatle, the embattled Secret Service director?**\
-`By Tim Balk`\
-https://nytimes.com/live/2024/07/22/us/secret-service-hearing-trump-cheatle/who-is-kimberly-cheatle-the-embattled-secret-service-director
 

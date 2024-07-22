@@ -1,3 +1,7 @@
+**Bucks summer league observations: AJ Johnson's speed, MarJon Beauchamp's struggles**\
+`The Bucks' first-round pick showed the athleticism that wowed them at the Draft Combine, but he'll need to get stronger going forward.`\
+https://nytimes.com/athletic/5645404/2024/07/22/milwaukee-bucks-summer-league-observations/
+
 **Amadou Onana to Aston Villa: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Amadou Onana's move to Aston Villa`\
 https://nytimes.com/athletic/5638487/2024/07/22/amadou-onana-to-aston-villa-the-athletic-500-transfer-ratings/
