@@ -1,3 +1,7 @@
+**Why Obama hasn’t endorsed Harris.**\
+`By Peter Baker and Glenn Thrush`\
+https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/why-obama-hasnt-endorsed-harris
+
 **Shohei Ohtani blasts 473-foot home run at Dodger Stadium**\
 `It marked the farthest home run hit at Dodger Stadium since Stanton’s 475-foot blast in 2015.`\
 https://nytimes.com/athletic/5649912/2024/07/21/shohei-ohtani-home-run-dodger-stadium/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5649807/2024/07/21/twins-swept-by-brewers-missed-op
 **At the 2024 Baseball Hall of Fame ceremony, reciprocal gratitude was everywhere**\
 `The class ‚ Jim Leyland, Adrián Beltré, Todd Helton and Joe Mauer — featured a beloved manager and three players with deep community bonds.`\
 https://nytimes.com/athletic/5649770/2024/07/21/baseball-hall-of-fame-mauer-beltre-leyland-helton/
-
-**What’s Next for the Harris Campaign**\
-`Vice President Kamala Harris faces many questions, from the management of her campaign to the selection of her running mate, should she be the Democratic Party’s nominee.`\
-https://nytimes.com/2024/07/21/us/politics/harris-campaign.html
 

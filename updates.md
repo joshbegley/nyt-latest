@@ -1,3 +1,15 @@
+**Shohei Ohtani blasts 473-foot home run at Dodger Stadium**\
+`It marked the farthest home run hit at Dodger Stadium since Stanton’s 475-foot blast in 2015.`\
+https://nytimes.com/athletic/5649912/2024/07/21/shohei-ohtani-home-run-dodger-stadium/
+
+**Homeland Security Secretary Announces Panel on Trump Assassination Attempt**\
+`Secretary Alejandro N. Mayorkas said the bipartisan group of experts would get to the bottom of decisions that allowed a gunman to wound the former president at a rally in Pennsylvania.`\
+https://nytimes.com/2024/07/21/us/politics/panel-trump-assassination-attempt.html
+
+**At the 2024 Baseball Hall of Fame ceremony, reciprocal gratitude was everywhere**\
+`The class ‚ Jim Leyland, Adrián Beltré, Todd Helton and Joe Mauer — featured a beloved manager and three players with deep community bonds.`\
+https://nytimes.com/athletic/5649770/2024/07/21/baseball-hall-of-fame-mauer-beltre-leyland-helton/
+
 **Phillies' Tyler Phillips finding fuel for his starts as he lives his big-league dream**\
 `Phillips used his rough spring outing against the Pirates as motivation Sunday. He has an opportunity to be a summer hero for the Phillies.`\
 https://nytimes.com/athletic/5649848/2024/07/21/tyler-phillips-phillies-motivation/
