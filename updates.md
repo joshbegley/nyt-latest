@@ -1,3 +1,7 @@
+**China is hosting talks between the two main Palestinian factions, but expectations are low.**\
+`By Alexandra Stevenson and Adam Rasgon`\
+https://nytimes.com/live/2024/07/22/world/israel-gaza-war-hamas/china-hosts-talks-between-the-two-main-palestinian-factions-but-expectations-are-low
+
 **Padres takeaways: What is the value of Michael King’s efficiency?**\
 `Notes on how King is making the most of his innings and on who would start a potential Game 2 in the postseason.`\
 https://nytimes.com/athletic/5648983/2024/07/22/padres-takeaways-michael-king-innings/
