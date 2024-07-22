@@ -31,7 +31,7 @@ https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/in-wisconsin-bal
 https://nytimes.com/athletic/5649807/2024/07/21/twins-swept-by-brewers-missed-opportunities/
 
 **At the 2024 Baseball Hall of Fame ceremony, reciprocal gratitude was everywhere**\
-`The class – Jim Leyland, Adrian Beltre, Todd Helton and Joe Mauer – featured a beloved manager and three players with deep community bonds.`\
+`The class ‚ Jim Leyland, Adrián Beltré, Todd Helton and Joe Mauer — featured a beloved manager and three players with deep community bonds.`\
 https://nytimes.com/athletic/5649770/2024/07/21/baseball-hall-of-fame-mauer-beltre-leyland-helton/
 
 **What’s Next for the Harris Campaign**\
