@@ -1,4 +1,8 @@
 **Why Obama hasn’t endorsed Harris.**\
+`The former president has positioned himself as an impartial elder statesman above intraparty machinations and was neutral during the 2020 Democratic primaries.`\
+https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/why-obama-hasnt-endorsed-harris
+
+**Why Obama hasn’t endorsed Harris.**\
 `By Peter Baker and Glenn Thrush`\
 https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/why-obama-hasnt-endorsed-harris
 
