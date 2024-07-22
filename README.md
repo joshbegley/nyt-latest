@@ -1,3 +1,7 @@
+**Chair of Police Oversight Board Resigns After Mayor Adams Pushes Her Out**\
+`Arva Rice, who led the Civilian Complaint Review Board, had criticized the Police Department and sought more power and funding for the independent agency.`\
+https://nytimes.com/2024/07/22/nyregion/adams-ccrb-chairwoman.html
+
 **How Well Do You Know Literary Brooklyn?**\
 `This bustling borough of New York City has been the setting for many novels — including the books in this short quiz.`\
 https://nytimes.com/interactive/2024/07/22/books/review/brooklyn-books-quiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5650211/2024/07/22/snus-huge-problem-united-obi-mar
 **Paul Watson, Anti-Whaling Activist, Is Detained in Greenland**\
 `Mr. Watson, the founder of the conservation group Sea Shepherd, was arrested when his boat docked in Nuuk. He could face extradition to Japan.`\
 https://nytimes.com/2024/07/22/world/europe/paul-watson-whaling-arrest-greenland.html
-
-**Biden Shepherded Europe on Ukraine and NATO. What Happens Now?**\
-`President Biden’s stance on Ukraine was shaped by a deep commitment to America’s trans-Atlantic alliance. Some Europeans fear he may be among the last of his kind.`\
-https://nytimes.com/2024/07/22/world/europe/biden-ukraine-nato.html
 
