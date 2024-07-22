@@ -1,3 +1,7 @@
+**How Kamala Harris rose as a California moderate.**\
+`Ms. Harris, who was born in the state, amassed power through her work as a prosecutor.`\
+https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/kamala-harris-history-career-california
+
 **‘House of the Dragon’ Season 2, Episode 6 Recap: The Black Queen’s Gambit**\
 `Rhaenyra sends a gift to the small folk. There may be some strings attached.`\
 https://nytimes.com/2024/07/21/arts/television/house-of-the-dragon-season-2-recap-episode-6.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/21/us/politics/kamala-harris-campaign-nomination-bid
 **Xander Schauffele and the 2 choices he had to make to become a major champion**\
 `Schauffele moved away from his father as his primary swing coach this year, but kept his longtime friend as caddie.`\
 https://nytimes.com/athletic/5649753/2024/07/21/xander-schauffele-open-championship-father-caddie/
-
-**Some Black Voters Say They Wonder if a Black Woman Can Win**\
-`In interviews, some Black voters expressed concern about whether Americans were ready to elect Kamala Harris, who has the backing of President Biden.`\
-https://nytimes.com/2024/07/21/us/black-voters-kamala-harris.html
 
