@@ -2,7 +2,7 @@
 `Also, lawmakers called for the Secret Service director to resign. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/07/22/briefing/democrats-kamala-harris-secret-service-director.html
 
-**Team USA narrowly outlasts Germany in final exhibition game before Olympics**\
+**Team USA narrowly outlasts Germany in final exhibition before Olympics**\
 `LeBron James scored 11 of his game-high 20 points in the final 3:57 of the fourth quarter to help the U.S. win 92-88.`\
 https://nytimes.com/athletic/5651552/2024/07/22/usa-germany-olympic-basketball-exhibition-results/
 
