@@ -1,3 +1,7 @@
+**How Kamala Harris rose as a California moderate.**\
+`Ms. Harris, who was born in the state, amassed power through her work as a prosecutor.`\
+https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/kamala-harris-history-career-california
+
 **‘House of the Dragon’ Season 2, Episode 6 Recap: The Black Queen’s Gambit**\
 `Rhaenyra sends a gift to the small folk. There may be some strings attached.`\
 https://nytimes.com/2024/07/21/arts/television/house-of-the-dragon-season-2-recap-episode-6.html
