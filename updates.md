@@ -1,3 +1,7 @@
+**Women Who Support Kamala Harris Say a Lot Has Changed Since 2016**\
+`Voters eager to elect the first female president pointed to anger over a loss of abortion rights, but also acknowledged a fear that sexism would remain difficult for Ms. Harris to overcome.`\
+https://nytimes.com/2024/07/22/us/kamala-harris-women-voters.html
+
 **The far right spreads baseless claims about Biden’s whereabouts.**\
 `By Stuart A. Thompson`\
 https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/the-far-right-spreads-baseless-claims-about-bidens-whereabouts
