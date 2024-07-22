@@ -1,6 +1,6 @@
-**Delta Cancels More Flights as it Struggles to Recover From Tech Outage**\
+**Delta Cancels More Flights as It Struggles to Recover From Tech Outage**\
 `Transportation Secretary Pete Buttigieg singled out the airline on Sunday for continued disruptions and “unacceptable” customer service as it canceled another 1,300 flights.`\
-https://nytimes.com/2024/07/22/us/delta-global-tech-outage-pete-buttigieg.html
+https://nytimes.com/2024/07/22/business/delta-global-tech-outage-pete-buttigieg.html
 
 **What’s on TV This Week: The Olympics and ‘Surreal Life: Villa of Secrets’**\
 `The opening ceremony airs on NBC. MTV reboots a reality show.`\
