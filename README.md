@@ -3,7 +3,7 @@
 https://nytimes.com/live/2024/07/22/world/israel-gaza-war-hamas/an-official-at-a-major-hospital-in-gaza-said-hundreds-of-injured-people-had-arrived-there
 
 **Bowden: Why the rebuilding White Sox, A's and Tigers should trade their star pitchers**\
-`Jim Bowden explains why all three teams should try to trade their young pitching stars now if they can get the right value in return. `\
+`Jim Bowden explains why he thinks all three teams should trade their young pitching stars now if they can get enough in return. `\
 https://nytimes.com/athletic/5650347/2024/07/22/rebuilding-mlb-team-trades-white-sox-athletics-tigers/
 
 **Live Updates: Secret Service Chief Set to Testify ‘We Failed’ at Trump Rally**\
