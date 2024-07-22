@@ -1,3 +1,7 @@
+**The Weak Republican Response to Kamala Harris**\
+`The G.O.P. arguments suggest that party leaders are more flustered than they let on.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/republican-response-to-harris
+
 **What are the terms of David Taylor's contract with Oklahoma State?**\
 `David Taylor signed a six-year contract to be the wrestling coach at Oklahoma State.`\
 https://nytimes.com/athletic/5650722/2024/07/22/david-taylor-oklahoma-state-wrestling/
