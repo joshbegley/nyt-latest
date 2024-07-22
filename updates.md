@@ -1,3 +1,7 @@
+**Norwegian match abandoned after fans throw fishcakes onto pitch**\
+`The Norwegian top-flight match between Rosenborg and Lillestrom was abandoned on Sunday after supporters threw tennis balls and fishcakes onto the pitch in protest against the use of video assistant referees (VAR).`\
+https://nytimes.com/athletic/5650159/2024/07/22/norway-var-rosenborg-lillestrom-fishcakes/
+
 **Delta Cancels More Flights as it Struggles to Recover From Tech Outage**\
 `Transportation Secretary Pete Buttigieg singled out the airline on Sunday for continued disruptions and “unacceptable” customer service as it canceled another 1,300 flights.`\
 https://nytimes.com/2024/07/22/business/delta-global-tech-outage-pete-buttigieg.html

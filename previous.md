@@ -1,3 +1,7 @@
+**Norwegian match abandoned after fans throw fishcakes onto pitch**\
+`The Norwegian top-flight match between Rosenborg and Lillestrom was abandoned on Sunday after supporters threw tennis balls and fishcakes onto the pitch in protest against the use of video assistant referees (VAR).`\
+https://nytimes.com/athletic/5650159/2024/07/22/norway-var-rosenborg-lillestrom-fishcakes/
+
 **They Drive for a Living and Say New York Traffic Is ‘the Worst Ever’**\
 `There are more than 90,000 taxis, Ubers and Lyfts in New York City, making it hard for those drivers — and everyone else — to maneuver through the streets.`\
 https://nytimes.com/2024/07/22/nyregion/street-wars-traffic-uber-taxi-new-york-city.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/22/us/politics/kamala-harris-democrats-e
 **Quotation of the Day: Ready to Realize a New Dream**\
 `Quotation of the Day for Monday, July 22, 2024.`\
 https://nytimes.com/2024/07/22/pageoneplus/quotation-of-the-day-ready-to-realize-a-new-dream.html
-
-**What to expect from Scott Parker's Burnley as they plot immediate return to Premier League**\
-`The club's new head coach is not without flaws but history shows he understands how to guide Championship clubs to promotion `\
-https://nytimes.com/athletic/5649111/2024/07/22/scott-parker-burnley-what-to-expect/
 
