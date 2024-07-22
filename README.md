@@ -1,3 +1,7 @@
+**Ukraine Strikes Preliminary $20 Billion Debt Restructuring Deal**\
+`The deal with private bondholders will help preserve Kyiv’s limited state budget, which is crucial to fund its military. An agreement to suspend debt payments was to expire on Aug. 1.`\
+https://nytimes.com/2024/07/22/world/europe/ukraine-strikes-preliminary-20-billion-debt-restructuring-deal.html
+
 **An official at a major hospital in Gaza said hundreds of injured people had arrived there.**\
 `By Matthew Mpoke Bigg and Iyad Abuheweila`\
 https://nytimes.com/live/2024/07/22/world/israel-gaza-war-hamas/an-official-at-a-major-hospital-in-gaza-said-hundreds-of-injured-people-had-arrived-there
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/22/style/biden-social-media-news.html
 **Rob Dillingham flourishes in summer-league finale, giving a glimpse of what he can become**\
 `The Wolves do not need Dillingham to be an All-Star right away, but they do need him to be a factor on a very good team.`\
 https://nytimes.com/athletic/5649925/2024/07/22/rob-dillingham-timberwolves-flourishes-summer-league/
-
-**Chair of Police Oversight Board Resigns After Mayor Adams Pushes Her Out**\
-`Arva Rice, who led the Civilian Complaint Review Board, had criticized the Police Department and sought more power and funding for the independent agency.`\
-https://nytimes.com/2024/07/22/nyregion/adams-ccrb-chairwoman.html
 
