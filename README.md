@@ -1,3 +1,11 @@
+**Connor Stalions to appear in Netflix 'Sign Stealer' documentary**\
+`Connor Stalions, the ex-Michigan staffer implicated in a sign-stealing scandal, will be part of a Netflix documentary released Aug. 27.`\
+https://nytimes.com/athletic/5651053/2024/07/22/connor-stalions-netflix-documentary-michigan-sign-stealer/
+
+**Chalobah left out of Chelsea pre-season tour squad, raising doubts about future**\
+`Trevoh Chalobah has been left out of Enzo Maresca’s squad for Chelsea’s pre-season tour of the United States, signalling that he is considered surplus to requirements at Stamford Bridge.`\
+https://nytimes.com/athletic/5650996/2024/07/22/chelsea-trevoh-chalobah-pre-season-tranfsfer/
+
 **Pelosi Endorses Harris, Ending Speculation She Would Push for Open Primary**\
 `Before President Biden dropped out, the former House speaker had told her some colleagues privately that if he were to do so, she would favor a competitive primary.`\
 https://nytimes.com/2024/07/22/us/politics/pelosi-harris-endorsement.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/22/arts/music/kamala-harris-charli-xcx-taylor-swift-
 **The Weak Republican Response to Kamala Harris**\
 `The G.O.P. arguments suggest that party leaders are more flustered than they let on.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/republican-response-to-harris
-
-**What are the terms of David Taylor's contract with Oklahoma State?**\
-`David Taylor signed a six-year contract to be the wrestling coach at Oklahoma State.`\
-https://nytimes.com/athletic/5650722/2024/07/22/david-taylor-oklahoma-state-wrestling/
-
-**Russia Sentences Alsu Kurmasheva, American Editor, to a Penal Colony**\
-`Ms. Kurmasheva, a Russian American working for Radio Free Europe/Radio Liberty, had been charged in relation to an antiwar book she edited.`\
-https://nytimes.com/2024/07/22/world/europe/alsu-kurmasheva-sentence-russia.html
 
