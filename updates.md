@@ -1,3 +1,11 @@
+**Parents of Teen Driver Who Killed Girl in High-Speed Crash Are Sentenced**\
+`The boy, then 16, survived and has been charged in the death of his 14-year-old passenger. His parents were sentenced to probation and ordered to take parenting classes.`\
+https://nytimes.com/2024/07/22/nyregion/teen-driver-queens-crash-parents-sentence.html
+
+**Assessing the Contentious Hearing on the Secret Service**\
+`We look at claims made by lawmakers and the director of the Secret Service during a hearing on the agency’s handling of the attempted assassination of former President Donald J. Trump.`\
+https://nytimes.com/2024/07/22/us/politics/secret-service-cheatle-hearing-fact-check.html
+
 **Women Who Support Kamala Harris Say a Lot Has Changed Since 2016**\
 `Voters eager to elect the first female president pointed to anger over a loss of abortion rights, but also acknowledged a fear that sexism would remain difficult for Ms. Harris to overcome.`\
 https://nytimes.com/2024/07/22/us/kamala-harris-women-voters.html
