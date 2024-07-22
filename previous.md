@@ -1,3 +1,7 @@
+**In Wisconsin, Baldwin endorses Harris and voters heave a sigh of relief.**\
+`By Catie Edmondson`\
+https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/in-wisconsin-baldwin-endorses-harris-and-voters-heave-a-sigh-of-relief
+
 **At the 2024 Baseball Hall of Fame induction ceremony, reciprocal gratitude was everywhere**\
 `The class – Jim Leyland, Adrian Beltre, Todd Helton and Joe Mauer – featured a beloved manager and three players with deep community bonds.`\
 https://nytimes.com/athletic/5649770/2024/07/21/baseball-hall-of-fame-mauer-beltre-leyland-helton/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5649648/2024/07/21/nick-castellanos-major-news-stor
 **Astros All-Star Yordan Alvarez hits for cycle vs. Mariners**\
 `Alvarez’s cycle is the first of his career and the first by an Astro since Jose Altuve's last season at Fenway Park.`\
 https://nytimes.com/athletic/5649713/2024/07/21/yordan-alvarez-astros-cycle/
-
-**Schumer told Biden privately that Senate Democrats were done with him.**\
-`The president is said to have told the Senate majority leader he wanted to hang on for another week during a tense meeting last weekend.`\
-https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/schumer-told-biden-privately-that-senate-democrats-were-done-with-him
 
