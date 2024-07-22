@@ -1,3 +1,7 @@
+**Olympians are Getting Loads and Loads of Gear**\
+`Athletes are unboxing sponsored merchandise and sharing try-on hauls on TikTok, featuring brands like Nike and Lululemon.`\
+https://nytimes.com/2024/07/22/style/olympians-unboxing-sponsored-gear.html
+
 **Jordan Addison’s status, the QB depth chart and more Vikings news ahead of training camp**\
 `Ahead of training camp, GM Kwesi Adofo-Mensah and coach Kevin O’Connell touched on a number of intriguing topics facing the Vikings.`\
 https://nytimes.com/athletic/5651504/2024/07/22/vikings-jordan-addison-jj-mccarthy-training-camp/

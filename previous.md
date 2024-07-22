@@ -1,3 +1,7 @@
+**Olympians are Getting Loads and Loads of Gear**\
+`Athletes are unboxing sponsored merchandise and sharing try-on hauls on TikTok, featuring brands like Nike and Lululemon.`\
+https://nytimes.com/2024/07/22/style/olympians-unboxing-sponsored-gear.html
+
 **Jordan Addison’s status, the QB depth chart and more Vikings news ahead of training camp**\
 `Ahead of training camp, GM Kwesi Adofo-Mensah and coach Kevin O’Connell touched on a number of intriguing topics facing the Vikings.`\
 https://nytimes.com/athletic/5651504/2024/07/22/vikings-jordan-addison-jj-mccarthy-training-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/22/arts/television/two-american-families-pbs-frontli
 **Dodgers designating lefty pitcher James Paxton for assignment**\
 `The Dodgers will have 10 days to pass Paxton through waivers or find a trade partner for him ahead of the July 30 trade deadline.`\
 https://nytimes.com/athletic/5651444/2024/07/22/dodgers-james-paxton-designated-assignment/
-
-**Robert L. Allen, Who Shed Light on a Navy Yard Blast and Trial, Dies at 82**\
-`He wrote of how 50 Black sailors were court-martialed for refusing to keep loading munitions after explosions in 1944 killed hundreds. They were exonerated this month.`\
-https://nytimes.com/2024/07/22/us/robert-l-allen-dead.html
 
