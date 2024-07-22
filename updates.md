@@ -1,3 +1,7 @@
+**Quotation of the Day: Ready to Realize a New Dream**\
+`Quotation of the Day for Monday, July 22, 2024.`\
+https://nytimes.com/2024/07/22/pageoneplus/quotation-of-the-day-ready-to-realize-a-new-dream.html
+
 **What to expect from Scott Parker's Burnley as they plot immediate return to Premier League**\
 `The club's new head coach is not without flaws but history shows he understands how to guide Championship clubs to promotion `\
 https://nytimes.com/athletic/5649111/2024/07/22/scott-parker-burnley-what-to-expect/

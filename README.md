@@ -1,3 +1,15 @@
+**The Promise, and Risks, in Turning to Kamala Harris**\
+`In a sprint of a race, Ms. Harris is poised to attack Donald Trump on his felonies and, in a 2024 twist, his age, but Republicans will be galvanized to fight her, too.`\
+https://nytimes.com/2024/07/22/us/politics/kamala-harris-democratic-nominee.html
+
+**Monday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/07/22/briefing/biden-election-kamala-harris.html
+
+**Many Elected Democrats Quickly Endorsed Kamala Harris. See Who Did.**\
+`A majority of Democrats in Congress and at least 10 Democratic governors have come out in support of Ms. Harris’s candidacy.`\
+https://nytimes.com/interactive/2024/07/22/us/politics/kamala-harris-democrats-endorsement-list.html
+
 **Quotation of the Day: Ready to Realize a New Dream**\
 `Quotation of the Day for Monday, July 22, 2024.`\
 https://nytimes.com/2024/07/22/pageoneplus/quotation-of-the-day-ready-to-realize-a-new-dream.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5529700/2024/07/22/special-report-why-is-snus-rife-
 **Investors React to Election Upheaval, Reassessing Their Political Bets**\
 `A new Democratic ticket could alter investors’ perceived election odds, with implications for stocks, bonds, the dollar and more.`\
 https://nytimes.com/2024/07/22/us/politics/biden-market-reaction.html
-
-**Marseille: A city divided over Mason Greenwood transfer**\
-`After the forward’s transfer to the Ligue 1 side, The Athletic travelled to Marseille to see how the move has been received by fans`\
-https://nytimes.com/athletic/5649315/2024/07/22/marseille-divided-mason-greenwood-manchester-united/
-
-**Joe Biden Dropped Out. What’s Next?**\
-`President Biden on Sunday abruptly abandoned his campaign for a second term under intense pressure from fellow Democrats and threw his support to Vice President Kamala Harris to lead their party in a dramatic last-minute bid to stop former President Donald J.`\
-https://nytimes.com/video/us/politics/100000009584698/joe-biden-dropped-out-whats-next.html
-
-**Esta TerBlanche, ‘All My Children’ Star, Dies at 51**\
-`Ms. TerBlanche played Gillian Andrassy, a Hungarian princess whose story line was beloved by fans.`\
-https://nytimes.com/2024/07/21/arts/esta-terblanche-dead.html
 

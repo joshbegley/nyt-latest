@@ -1,3 +1,7 @@
+**Quotation of the Day: Ready to Realize a New Dream**\
+`Quotation of the Day for Monday, July 22, 2024.`\
+https://nytimes.com/2024/07/22/pageoneplus/quotation-of-the-day-ready-to-realize-a-new-dream.html
+
 **What to expect from Scott Parker's Burnley as they plot immediate return to Premier League**\
 `The club's new head coach is not without flaws but history shows he understands how to guide Championship clubs to promotion `\
 https://nytimes.com/athletic/5649111/2024/07/22/scott-parker-burnley-what-to-expect/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009584698/joe-biden-dropped-out-what
 **Esta TerBlanche, ‘All My Children’ Star, Dies at 51**\
 `Ms. TerBlanche played Gillian Andrassy, a Hungarian princess whose story line was beloved by fans.`\
 https://nytimes.com/2024/07/21/arts/esta-terblanche-dead.html
-
-**How Kamala Harris rose as a California moderate.**\
-`Ms. Harris, who was born in the state, amassed power through her work as a prosecutor.`\
-https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/kamala-harris-history-career-california
 
