@@ -1,3 +1,7 @@
+**Live Updates: Secret Service Chief Set to Testify ‘We Failed’ at Trump Rally**\
+`Kimberly A. Cheatle intends to take “full responsibility” for security lapses, according to an excerpt of remarks she will give before a congressional committee on Monday.`\
+https://nytimes.com/live/2024/07/22/us/secret-service-hearing-trump-cheatle
+
 **One Night of TV Canceled a President**\
 `President Biden’s decision to bow out after a disastrous debate confirms that in a TikTok era, TV is still the biggest political arena.`\
 https://nytimes.com/2024/07/22/arts/television/biden-withdraw-debate-tiktok.html
