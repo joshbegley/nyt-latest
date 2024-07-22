@@ -1,3 +1,11 @@
+**Shohei Ohtani blasts 473-foot home run at Dodger Stadium**\
+`It marked the farthest home run hit at Dodger Stadium since Stanton’s 475-foot blast in 2015.`\
+https://nytimes.com/athletic/5649912/2024/07/21/shohei-ohtani-home-run-dodger-stadium/
+
+**Homeland Security Secretary Announces Panel on Trump Assassination Attempt**\
+`Secretary Alejandro N. Mayorkas said the bipartisan group of experts would get to the bottom of decisions that allowed a gunman to wound the former president at a rally in Pennsylvania.`\
+https://nytimes.com/2024/07/21/us/politics/panel-trump-assassination-attempt.html
+
 **Phillies' Tyler Phillips finding fuel for his starts as he lives his big-league dream**\
 `Phillips used his rough spring outing against the Pirates as motivation Sunday. He has an opportunity to be a summer hero for the Phillies.`\
 https://nytimes.com/athletic/5649848/2024/07/21/tyler-phillips-phillies-motivation/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5649770/2024/07/21/baseball-hall-of-fame-mauer-belt
 **What’s Next for the Harris Campaign**\
 `Vice President Kamala Harris faces many questions, from the management of her campaign to the selection of her running mate, should she be the Democratic Party’s nominee.`\
 https://nytimes.com/2024/07/21/us/politics/harris-campaign.html
-
-**Ozzie Albies fractures wrist, Braves expected to call up prospect Nacho Alvarez**\
-`Alvarez, 21, has been sensational since a midseason promotion from from Double A to Triple A.`\
-https://nytimes.com/athletic/5649723/2024/07/21/braves-ozzie-albies-nacho-alvarez/
-
-**Kyle Larson wins Brickyard 400 for first time**\
-`Larson then beat Blaney again on a second overtime restart and won under caution.`\
-https://nytimes.com/athletic/5649779/2024/07/21/kyle-larson-brickyard-400/
 
