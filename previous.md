@@ -1,3 +1,15 @@
+**Democrats Will Select Nominee by Aug. 7 in a Virtual Vote**\
+`The party, which has rapidly consolidated behind Vice President Kamala Harris to replace President Biden, did not set an exact date for the vote.`\
+https://nytimes.com/2024/07/22/us/politics/democrats-pick-nominee-aug-7.html
+
+**Assessing the Contentious Hearing on the Secret Service**\
+`We look at claims made by lawmakers and the director of the Secret Service during a hearing on the agency’s role in the attempted assassination of former President Donald J. Trump.`\
+https://nytimes.com/2024/07/22/us/politics/secret-service-cheatle-hearing-fact-check.html
+
+**A Senator Will Preside at Netanyahu’s Speech to Congress After Harris Declines**\
+`An aide to Vice President Kamala Harris said she would be speaking to one of the nation’s oldest Black sororities at the time of the Israeli prime minister’s address but was scheduled to meet with him this week.`\
+https://nytimes.com/2024/07/22/world/middleeast/kamala-harris-netanyahu-congress-speech.html
+
 **No one can accuse Jim Phillips of having his head in the sand anymore**\
 `Phillips swam against the current of change in college sports as long as he could. Were those efforts well-meaning, or wide-eyed?`\
 https://nytimes.com/athletic/5651750/2024/07/22/jim-phillips-acc-realignment/
@@ -28,16 +40,4 @@ https://nytimes.com/2024/07/22/us/politics/harris-trump-vp-presidential-campaign
 **Ground breaks on Flames' new arena, expected to be completed in 2027**\
 `The new event centre is expected to be completed in time for the 2027-28 NHL season and will have a capacity of 18,400.`\
 https://nytimes.com/athletic/5644365/2024/07/22/flames-arena-calgary-scotia-place/
-
-**Swindled Savings**\
-`Articles in this series examine a rise in cybercrime targeting older Americans and their retirement savings.`\
-https://nytimes.com/series/swindled-savings
-
-**What to Know About Kamala Harris’s Husband, Doug Emhoff**\
-`As the spouse of the first woman to be vice president, Doug Emhoff has focused on combating antisemitism and expanding access to legal aid.`\
-https://nytimes.com/2024/07/22/us/politics/doug-emhoff-kamala-harris-husband.html
-
-**Seven things learned, confirmed talking with Mike Brown, Bengals brass on Monday**\
-`From Joe Burrow's health to Ja'Marr Chase's future, Brown, Duke Tobin, Zac Taylor and coaches addressed several topics.`\
-https://nytimes.com/athletic/5651572/2024/07/22/bengals-media-luncheon-mike-brown/
 
