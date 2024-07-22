@@ -1,3 +1,7 @@
+**U.S. Olympic Committee Sues Logan Paul’s Drink Company**\
+`The suit accuses Prime Hydration of using trademarked terms including “Olympic” and “Team USA” to promote a sports drink that features Kevin Durant.`\
+https://nytimes.com/2024/07/22/us/logan-paul-prime-lawsuit-olympic-committee.html
+
 **Chelsea make approach to sign goalkeeper Jorgensen from Villarreal**\
 `Chelsea have made an approach to sign goalkeeper Filip Jorgensen from Villarreal.`\
 https://nytimes.com/athletic/5651010/2024/07/22/chelsea-jorgensen-transfer-approach-villarreal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5650960/2024/07/22/mavericks-spencer-dinwiddie-deal
 **The Questions the Secret Service Director Did Not Answer**\
 `On Monday, Kimberly A. Cheatle told a House committee that she could not reveal — or did not know — key details about the attempted assassination of President Trump. Here’s what was missing.`\
 https://nytimes.com/2024/07/22/us/politics/kimberly-cheatle-secret-service-hearing-questions.html
-
-**Kamala Harris’s Presidential Bid Is Getting a Pop Music Rollout Online**\
-`Charli XCX, John Legend and other musicians posted messages supporting the vice president’s nomination, while fans remixed an old speech into pop hits on TikTok.`\
-https://nytimes.com/2024/07/22/arts/music/kamala-harris-charli-xcx-taylor-swift-endorsements.html
 
