@@ -1,3 +1,7 @@
+**A Kamala Harris Impersonator Is Ready for Her Moment**\
+`Allison Reese, a comedian, does TikTok’s favorite impression of the vice president. She’s about to have a busy week.`\
+https://nytimes.com/2024/07/22/style/kamala-harris-impersonator-allison-reece.html
+
 **Gunman Kills at Least 6 at Nursing Home in Croatia**\
 `President Zoran Milanovic called for stricter gun control after an attack that shook Croatia, where mass killings are rare. A suspect was arrested nearby.`\
 https://nytimes.com/2024/07/22/world/europe/croatia-senior-home-shooting.html

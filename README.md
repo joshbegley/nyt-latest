@@ -1,3 +1,7 @@
+**He Replaced the King of Sexy. Now He’s Leaving.**\
+`After spending 25 years as Tom Ford’s right-hand man — at Gucci and then at his namesake label — Peter Hawkings survived less than a year as his successor.`\
+https://nytimes.com/2024/07/22/style/peter-hawkings-tom-ford-exit.html
+
 **A Kamala Harris Impersonator Is Ready for Her Moment**\
 `Allison Reese, a comedian, does TikTok’s favorite impression of the vice president. She’s about to have a busy week.`\
 https://nytimes.com/2024/07/22/style/kamala-harris-impersonator-allison-reece.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5650779/2024/07/22/tottenham-transfers-bryan-gil-se
 **With Surprise Reversal, Biden Rewrites His Legacy and Makes a Play for History**\
 `Long concerned about his “epitaph,” the president reluctantly surrendered his bid for a second term, but Democrats argue that his willingness to give up power may yet enhance his role in posterity.`\
 https://nytimes.com/2024/07/22/us/politics/biden-election-legacy-harris-trump.html
-
-**Darren Walker, Who Reoriented the Ford Foundation, to Step Down**\
-`Mr. Walker, who oversaw $7 billion in grants, plans to leave at the end of 2025 after what will have been 12 years.`\
-https://nytimes.com/2024/07/22/arts/darren-walker-ford-foundation-stepping-down.html
 
