@@ -1,3 +1,7 @@
+**What are the terms of David Taylor's contract with Oklahoma State?**\
+`David Taylor signed a six-year contract to be the wrestling coach at Oklahoma State.`\
+https://nytimes.com/athletic/5650722/2024/07/22/david-taylor-oklahoma-state-wrestling/
+
 **Russia Sentences Alsu Kurmasheva, American Editor, to a Penal Colony**\
 `Ms. Kurmasheva, a Russian American working for Radio Free Europe/Radio Liberty, had been charged in relation to an antiwar book she edited.`\
 https://nytimes.com/2024/07/22/world/europe/alsu-kurmasheva-sentence-russia.html

@@ -1,3 +1,7 @@
+**What are the terms of David Taylor's contract with Oklahoma State?**\
+`David Taylor signed a six-year contract to be the wrestling coach at Oklahoma State.`\
+https://nytimes.com/athletic/5650722/2024/07/22/david-taylor-oklahoma-state-wrestling/
+
 **Russia Sentences Alsu Kurmasheva, American Editor, to a Penal Colony**\
 `Ms. Kurmasheva, a Russian American working for Radio Free Europe/Radio Liberty, had been charged in relation to an antiwar book she edited.`\
 https://nytimes.com/2024/07/22/world/europe/alsu-kurmasheva-sentence-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009585765/harris-biden-beau.html
 **The Windup: Castellanos can’t keep doing this**\
 `Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
 https://nytimes.com/athletic/5650801/2024/07/22/nick-castellanos-shohei-ohtani-hall-of-fame-the-windup/
-
-**Spurs leave Gil, Reguilon out of tour squad to 'explore transfer opportunities'**\
-`Sergio Reguilon and Bryan Gil have been left out of Tottenham Hotspur’s squad for their pre-season tour to Japan and South Korea.`\
-https://nytimes.com/athletic/5650779/2024/07/22/tottenham-transfers-bryan-gil-sergio-reguilon/
 
