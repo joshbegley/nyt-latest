@@ -1,3 +1,7 @@
+**Goddess of the Dawn**\
+`Laura Dershewitz’s first solo puzzle is a musical Monday grid.`\
+https://nytimes.com/2024/07/21/crosswords/daily-puzzle-2024-07-22.html
+
 **Kamala Harris Rapidly Picks Up Democratic Support as 2024 Race Is Reborn**\
 `Endorsements cascaded in as the vice president took swift control of the Biden campaign in a transformed contest, though Democrats including Barack Obama did not immediately back her.`\
 https://nytimes.com/2024/07/21/us/politics/harris-democrats-campaign-nominee-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/21/us/black-voters-kamala-harris.html
 **In Wisconsin, Baldwin endorses Harris and voters heave a sigh of relief.**\
 `By Catie Edmondson`\
 https://nytimes.com/live/2024/07/21/us/biden-drops-out-election/in-wisconsin-baldwin-endorses-harris-and-voters-heave-a-sigh-of-relief
-
-**Missed opportunities cost Twins again as Milwaukee completes 2-game series sweep**\
-`The Twins had ample chances to beat the Brewers, but the bullpen faltered and the offense squandered too many chances Sunday.`\
-https://nytimes.com/athletic/5649807/2024/07/21/twins-swept-by-brewers-missed-opportunities/
 
