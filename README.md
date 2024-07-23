@@ -1,3 +1,7 @@
+**Lavitta’s Creole Serves Beignets and More in a 1940s Harlem Barbershop**\
+`Crawfish cakes with Creole aioli, a classic wild shrimp po’ boy and grits with red-eye lamb gravy are also on the menu.`\
+https://nytimes.com/2024/07/23/dining/lavittas-creole-harlem.html
+
 **What Kamala Harris’s Path to the White House Looks Like**\
 `Vice President Harris has begun a new concerted effort to reintroduce herself to the American electorate after President Biden endorsed her to lead the Democratic ticket. Zolan Kanno-Youngs, a White House correspondent for The New York Times, explains what this new path will look like.`\
 https://nytimes.com/video/us/elections/100000009585351/kamala-harris-path-to-white-house.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5653367/2024/07/23/mlb-trade-deadline-braves-infiel
 **JD Vance Is Still Figuring Out How to Attack Kamala Harris**\
 `But nothing has proved particularly effective yet.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/vance-harris-campaign
-
-**Joelinton confident of Bruno Guimares staying at Newcastle**\
-`Joelinton is confident that Bruno Guimaraes will stay at Newcastle United this summer, following positive conversations with his best friend.`\
-https://nytimes.com/athletic/5652340/2024/07/23/bruno-guimaraes-newcastle-transfer-news/
 
