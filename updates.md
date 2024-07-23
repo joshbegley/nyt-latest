@@ -1,3 +1,15 @@
+**A.I. Can Write Poetry, but It Struggles With Math**\
+`A.I.’s math problem reflects how much the new technology is a break with computing’s past.`\
+https://nytimes.com/2024/07/23/technology/ai-chatbots-chatgpt-math.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/23/crosswords/spelling-bee-forum.html
+
+**Frustrated Californians May Be Ready for a Tougher Approach to Crime**\
+`Shoplifting and fentanyl use have tested the patience of California voters, who will decide in November whether to impose stricter laws that would lead to more incarceration.`\
+https://nytimes.com/2024/07/23/us/frustrated-californians-may-be-ready-for-a-tougher-approach-to-crime.html
+
 **Adams joins Torino on free transfer after Southampton exit**\
 `Che Adams has joined Serie A side Torino on a free transfer after leaving Southampton following the end of his contract.`\
 https://nytimes.com/athletic/5649489/2024/07/23/che-adams-torino-free-transfer/
