@@ -1,3 +1,11 @@
+**Rams QB Matthew Stafford's deal gets done — for many reasons**\
+`Reworking Stafford's contract is, of course, good for the Rams' QB, but it's also good for the rest of the team.`\
+https://nytimes.com/athletic/5654081/2024/07/23/rams-matthew-stafford-contract-quarterback/
+
+**Proposed Charter Revision Hints at Mayor Adams’s Spat With City Council**\
+`New York City voters will most likely be confronted in November with a referendum that may dilute the City Council’s power on public safety issues.`\
+https://nytimes.com/2024/07/23/nyregion/charter-revision-adams-council.html
+
 **Record high discrimination reports received in 23-24 season, says Kick It Out**\
 `Kick It Out, a leading UK anti-discrimination charity, says it received the highest number of reports of discrimination it has ever had in a season during the 2023-24 campaign.`\
 https://nytimes.com/athletic/5653325/2024/07/23/kick-it-out-discrimination/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/23/nyregion/jan-6-gregory-yetman-sentenced.html
 **Harris’s Views on Israel Are in the Spotlight as Netanyahu Visits Washington**\
 `The vice president will be closely watched this week for signs of her approach to the war in Gaza should she win the White House in November.`\
 https://nytimes.com/2024/07/23/us/politics/harris-netanyahu-israel-gaza.html
-
-**How Democrats Learned to Love the Smoke-Filled Room Again**\
-`It’s because they want to win.`\
-https://nytimes.com/2024/07/23/us/politics/kamala-harris-election-democrats.html
-
-**Packers training camp: 'Attacking' defensive line showing out on first two days**\
-`Under new defensive coordinator Jeff Hafley, the Packers defensive line has a different mindset from last season.`\
-https://nytimes.com/athletic/5653964/2024/07/23/packers-training-camp-defensive-line/
 
