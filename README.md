@@ -1,3 +1,7 @@
+**This Week in Mets: What do the Mets need to know before the deadline?**\
+`Jose Quintana might make sense to move as a veteran about to be a free agent, but he's been a significant part of the Mets’ turnaround.`\
+https://nytimes.com/athletic/5651527/2024/07/23/mets-trade-deadline-kodai-senga-2/
+
 **How Jake Rogers became the heartbeat of the surging Tigers**\
 `Before his highlight dash around the bases, Rogers took an oblong developmental path to becoming the Tigers' backstop.`\
 https://nytimes.com/athletic/5652138/2024/07/23/tigers-jake-rogers-success-story/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5651711/2024/07/23/dallas-cowboys-training-camp-sto
 **Dr. Ruth Talked About Sex Like No One Else Could**\
 `How the sex therapist disarmed her audience.`\
 https://nytimes.com/2024/07/23/podcasts/dr-ruth-talked-about-sex-like-no-one-else-could.html
-
-**Can Kamala Harris Sell ‘Bidenomics’?**\
-`Much of President Biden’s agenda polls well, but voters roundly dislike his handling of the economy. That’s a campaign challenge for his vice president, as she mounts a presidential bid.`\
-https://nytimes.com/2024/07/23/us/politics/can-kamala-harris-sell-bidenomics.html
 
