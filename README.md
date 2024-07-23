@@ -1,3 +1,7 @@
+**‘A Voice Can Change You’: The Week 5 Winner of Our Summer Reading Contest**\
+`In her 90-second video, Annie Ma, 14, explains how an essay by the singer Dessa hit home for her.`\
+https://nytimes.com/2024/07/23/learning/a-voice-can-change-you-the-week-5-winner-of-our-summer-reading-contest.html
+
 **Giants' 10-step plan revisited: Was splash trade for Brian Burns best use of resources?**\
 `Most of the Giants' offseason moves made sense, but did they do enough to fix the offensive line? `\
 https://nytimes.com/athletic/5651356/2024/07/23/new-york-giants-offseason-joe-schoen-brian-burns/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden
 **Hollinger: How French rookies (and many others) struggled in Las Vegas**\
 `While the draft's top two picks had their issues, for various reasons, those struggles didn't come under as big a spotlight as usual.`\
 https://nytimes.com/athletic/5651448/2024/07/23/nba-summer-league-rookies-disappointments-zaccharie-risacher-alex-sarr/
-
-**The Athletic FC: How goal-kick law transformed the game; U.S. players to watch at Olympics**\
-`The Athletic FC: How the goal-kick law has revolutionised the game, which U.S. players to watch at the Olympics, and De Gea's future`\
-https://nytimes.com/athletic/5652475/2024/07/23/u-s-players-olympics-greenwood-getafe-clause-the-athletic-fc/
 
