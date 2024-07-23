@@ -1,3 +1,11 @@
+**Why Some Donors Are Holding Back on Endorsing Harris (for Now)**\
+`Fear of being seen as circumventing an open nomination process is one reason that some backers have not yet publicly endorsed the vice president.`\
+https://nytimes.com/2024/07/23/business/dealbook/harris-donors-endorsements.html
+
+**Palestinian Factions Hail Declaration of Unity in Beijing, but Skepticism Is High**\
+`A joint statement from Fatah and Hamas supports the formation of a consensus government, but for many Palestinians the announcement doesn’t mean much.`\
+https://nytimes.com/2024/07/23/world/middleeast/fatah-hamas-china-statement.html
+
 **‘A Voice Can Change You’: The Week 5 Winner of Our Summer Reading Contest**\
 `In her 90-second video, Annie Ma, 14, explains how an essay by the singer Dessa hit home for her.`\
 https://nytimes.com/2024/07/23/learning/a-voice-can-change-you-the-week-5-winner-of-our-summer-reading-contest.html
