@@ -1,3 +1,7 @@
+**Should the Group of 5 set up a second playoff for its champs? Leaders' opinions are mixed**\
+`The AAC's Tim Pernetti became the first commissioner to openly float the idea of an additional tournament for non-CFP conference champs.`\
+https://nytimes.com/athletic/5654291/2024/07/23/g5-playoff-tim-pernetti-aac-cusa/
+
 **For the second time in a week, a U.N. convoy comes under fire in Gaza.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/07/23/world/israel-gaza-war-hamas/for-the-second-time-in-a-week-a-un-convoy-comes-under-fire-in-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden/trump-ca
 **Harris Holds First Rally as the Likely Democratic Nominee**\
 `Vice President Kamala Harris listed her campaign pledges, which included expanding abortion rights, building a strong middle class and protecting unions.`\
 https://nytimes.com/video/us/politics/100000009588095/harris-speech-wisconsin-rally.html
-
-**The D.N.C. lays out a timeline for when Harris’s nomination will be set in stone.**\
-`By Nicholas Nehamas`\
-https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden/the-dnc-lays-out-a-timeline-for-when-harriss-nomination-will-be-set-in-stone
 
