@@ -26,7 +26,7 @@ https://nytimes.com/2024/07/23/technology/google-wiz-deal-ipo.html
 `Sarah Sinclair and Amie Walker have put together a charming Tuesday crossword with a lot of breadth.`\
 https://nytimes.com/2024/07/22/crosswords/daily-puzzle-2024-07-23.html
 
-**Harris Has Enough Support for a Nomination. Here’s Which State Delegations Endorsed Her.**\
+**Here Are the State Delegations That Have Endorsed Kamala Harris**\
 `In a show of party unity, state delegations have endorsed Vice President Kamala Harris, giving her more than enough delegates to clinch the Democratic Party's nomination.`\
 https://nytimes.com/interactive/2024/07/22/us/politics/harris-democratic-nominee-endorsements.html
 
