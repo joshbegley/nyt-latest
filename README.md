@@ -1,3 +1,11 @@
+**For the second time in a week, a U.N. convoy comes under fire in Gaza.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/07/23/world/israel-gaza-war-hamas/for-the-second-time-in-a-week-a-un-convoy-comes-under-fire-in-gaza
+
+**Does Beyoncé Granting Kamala Harris Permission to Use Her Song Mean Something More?**\
+`Not quite a full-throated endorsement, but the use of the pop star’s song “Freedom” marked a moment.`\
+https://nytimes.com/2024/07/23/style/does-beyonce-granting-kamala-harris-permission-to-use-her-song-mean-something-more.html
+
 **Judge Refuses to Block F.T.C.’s Noncompete Ban as Lawsuits Play Out**\
 `A judge in Pennsylvania denied a request to delay the rule, siding with the agency and diverging from a Texas court’s decision earlier this month.`\
 https://nytimes.com/2024/07/23/business/economy/noncompete-ban-ftc.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000009588095/harris-speech-wisconsin-ra
 **The D.N.C. lays out a timeline for when Harris’s nomination will be set in stone.**\
 `By Nicholas Nehamas`\
 https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden/the-dnc-lays-out-a-timeline-for-when-harriss-nomination-will-be-set-in-stone
-
-**A blueprint for a successful second half for the San Francisco Giants**\
-`It's not time for the Giants to give up. But it's certainly not time to keep trying the same things that got them here in the first place.`\
-https://nytimes.com/athletic/5653663/2024/07/23/sf-giants-blueprint-second-half-success/
-
-**An Oscar Mayer Wienermobile Rolls Over. The ‘Hotdoggers’ Are OK.**\
-`No one was injured when the promotional car struck another vehicle and rolled over on a highway in Illinois, the police said.`\
-https://nytimes.com/2024/07/23/us/oscar-mayer-wienermobile-crash-illinois.html
 
