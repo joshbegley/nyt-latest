@@ -1,3 +1,7 @@
+**Arsenal boss Arteta 'excited' about 'leader' Timber**\
+`Arsenal manager Mikel Arteta says he is “excited” about the return of Jurrien Timber to his side.`\
+https://nytimes.com/athletic/5652443/2024/07/23/arsenal-timber-arteta-return-leader/
+
 **Noriko Ohara, Who Gave Voice to Nobita in ‘Doraemon,’ Dies at 88**\
 `Her voice became widely recognized in Japan after she starred in animated shows watched by nearly every child in the country and beyond.`\
 https://nytimes.com/2024/07/23/arts/noriko-ohara-dead.html

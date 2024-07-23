@@ -1,3 +1,7 @@
+**Arsenal boss Arteta 'excited' about 'leader' Timber**\
+`Arsenal manager Mikel Arteta says he is “excited” about the return of Jurrien Timber to his side.`\
+https://nytimes.com/athletic/5652443/2024/07/23/arsenal-timber-arteta-return-leader/
+
 **Noriko Ohara, Who Gave Voice to Nobita in ‘Doraemon,’ Dies at 88**\
 `Her voice became widely recognized in Japan after she starred in animated shows watched by nearly every child in the country and beyond.`\
 https://nytimes.com/2024/07/23/arts/noriko-ohara-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/opinion/kamala-harris-polls-democrats.html
 **Trump’s New Rival May Bring Out His Harshest Instincts**\
 `After years planning to face President Biden, Donald J. Trump and his team will be campaigning against Kamala Harris. He has attacked female rivals and critics in brutal and personal terms.`\
 https://nytimes.com/2024/07/23/us/politics/trump-harris-attack-lines.html
-
-**Are Democrats Right to Unite Around Kamala Harris?**\
-`The Democratic Party has a chance to organize for victory.`\
-https://nytimes.com/2024/07/23/opinion/ezra-klein-podcast-biden-harris-essay.html
 
