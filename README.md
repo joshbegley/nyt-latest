@@ -1,3 +1,7 @@
+**The D.N.C. lays out a timeline for when Harris’s nomination will be set in stone.**\
+`By Nicholas Nehamas`\
+https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden/the-dnc-lays-out-a-timeline-for-when-harriss-nomination-will-be-set-in-stone
+
 **A blueprint for a successful second half for the San Francisco Giants**\
 `It's not time for the Giants to give up. But it's certainly not time to keep trying the same things that got them here in the first place.`\
 https://nytimes.com/athletic/5653663/2024/07/23/sf-giants-blueprint-second-half-success/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5653874/2024/07/23/carolina-panthers-bryce-young-fu
 **Macron Rejects French Left’s Pick for Prime Minister**\
 `The left-wing parties stopped quarreling and tapped a little-known civil servant for the job. But President Emmanuel Macron said he would not appoint anyone until after the Paris Summer Olympics.`\
 https://nytimes.com/2024/07/23/world/europe/france-macron-left-wing-prime-minister.html
-
-**Alphabet Reports a 29% Jump in Profit**\
-`Google’s parent company narrowly topped revenue and profit expectations, driven by its search engine, while growth in YouTube ad sales fell short.`\
-https://nytimes.com/2024/07/23/technology/alphabet-google-earnings.html
 
