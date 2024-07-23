@@ -1,3 +1,7 @@
+**49ers' George Kittle is ready for 2024 after offseason of wild weight fluctuation**\
+`Kittle lost about 30 pounds recovering from offseason core surgery but is back at his playing weight as he reported to camp.`\
+https://nytimes.com/athletic/5654125/2024/07/23/george-kittle-49ers-training-camp-weight/
+
 **Vikings tackle Christian Darrisaw signs massive extension worth up to $113M**\
 `The 25-year-old's new deal hoists him to the top of NFL left tackles in terms of average annual value.`\
 https://nytimes.com/athletic/5654377/2024/07/23/vikings-christian-darrisaw-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/opinion/netanyahu-israel-gaza-congress.html
 **See How Biden Lost Support in the Polls Before He Dropped Out**\
 `President Biden’s polling deficits grew in every single swing state between the debate and Sunday, when he exited the race.`\
 https://nytimes.com/interactive/2024/07/23/us/politics/polls-biden-trump-debate-shift.html
-
-**Ex-Military Police Officer Sentenced to Prison for Role in Capitol Riot**\
-`Gregory C. Yetman, the subject of a manhunt last fall, admitted to pepper-spraying law enforcement officers during the Jan. 6, 2021, attack.`\
-https://nytimes.com/2024/07/23/nyregion/jan-6-gregory-yetman-sentenced.html
 
