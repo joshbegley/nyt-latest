@@ -1,3 +1,7 @@
+**Fantasy football 2024 strategy mock draft: From best available to zeroRB, and everything in between**\
+`The Athletic fantasy football staff reveals their mock draft in which they were all tasked with carrying out a particular draft strategy.`\
+https://nytimes.com/athletic/5642369/2024/07/23/fantasy-football-2024-strategy-mock-draft-zero-rb/
+
 **When All Else Fails, Blame the Dogs**\
 `Turkey’s four million stray dogs are inseparable from the idea of the country itself. But maybe not for much longer.`\
 https://nytimes.com/2024/07/23/opinion/turkey-stray-dogs.html

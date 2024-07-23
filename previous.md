@@ -1,3 +1,7 @@
+**Fantasy football 2024 strategy mock draft: From best available to zeroRB, and everything in between**\
+`The Athletic fantasy football staff reveals their mock draft in which they were all tasked with carrying out a particular draft strategy.`\
+https://nytimes.com/athletic/5642369/2024/07/23/fantasy-football-2024-strategy-mock-draft-zero-rb/
+
 **When All Else Fails, Blame the Dogs**\
 `Turkey’s four million stray dogs are inseparable from the idea of the country itself. But maybe not for much longer.`\
 https://nytimes.com/2024/07/23/opinion/turkey-stray-dogs.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/23/us/trump-shooting-gunman-snipers.html
 **Aston Villa vs West Brom: Two clubs battling for supremacy in the same talent pool**\
 `A number of players and coaches at academy level have moved from West Brom to Aston Villa in recent years - this is why`\
 https://nytimes.com/athletic/5553920/2024/07/23/aston-villa-west-brom-academy-talent-rivalry/
-
-**'My Guys': Bijan Robinson, Chris Godwin and more of Jay Felicio's priority targets for fantasy football 2024**\
-`Jay Felicio reveals the players, like Bijan Robinson, he'll be most passionately looking to acquire in early 2024 fantasy football drafts.`\
-https://nytimes.com/athletic/5649839/2024/07/23/fantasy-football-2024-my-guys-bijan-robinson-chris-godwin/
 
