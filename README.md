@@ -1,3 +1,7 @@
+**How the Biden Campaign Transformed Into the Harris Campaign**\
+`Staff members inside and outside the room have described the past handful of hours as hectic, overwhelming and emotional.`\
+https://nytimes.com/2024/07/23/us/politics/biden-harris-campaign-transformation.html
+
 **Democratic Delegates See Harris as the Strongest Candidate Against Trump**\
 `With Vice President Kamala Harris locking up support, interviews with Democratic National Committee delegates indicated there was no consensus over whom she should pick as a running mate.`\
 https://nytimes.com/2024/07/23/us/politics/kamala-harris-delegates-vp.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5653568/2024/07/23/matthew-stafford-rams-training-c
 **Doug Emhoff attacks Trump over abortion during visit to Virginia clinic.**\
 `By Noah Weiland`\
 https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden/doug-emhoff-attacks-trump-over-abortion-during-visit-to-virginia-clinic
-
-**Trump Says He Is Willing to Debate Harris Multiple Times**\
-`But for the second time since President Biden dropped out of the race, he indicated he didn’t want the debate to be held by ABC News.`\
-https://nytimes.com/2024/07/23/us/politics/trump-kamala-harris-debate.html
 
