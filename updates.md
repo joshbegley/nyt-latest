@@ -1,3 +1,15 @@
+**Congress Leaders Agree to Form Task Force on Trump Assassination Attempt**\
+`The top Republican and Democrat in the House have struck a deal to form a bipartisan task force to lead congressional investigations into the attempted assassination of Donald J. Trump.`\
+https://nytimes.com/2024/07/23/us/politics/trump-assassination-attempt-task-force.html
+
+**MLB trade deadline Q&A: Bowden on deal scenarios and the latest buzz**\
+`Jim Bowden answered more than 30 trade deadline questions from subscribers, sharing the latest he's hearing on various players and teams. `\
+https://nytimes.com/athletic/5651981/2024/07/23/mlb-mlb-trade-deadline-scenarios-rumors/
+
+**Live Election Updates: Harris Hits Trail With Delegates, Cash and Energy at Her Back**\
+`Vice President Kamala Harris, who has secured commitments from enough delegates to win the Democratic presidential nomination, will campaign in Wisconsin, a crucial battleground.`\
+https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden
+
 **Walker Buehler explains why 'I needed to be somewhere else' and away from the Dodgers**\
 `Buehler needed time away to get his body and mind back on track: "There's nothing worse than costing your team games."`\
 https://nytimes.com/athletic/5652221/2024/07/23/dodgers-walker-buehler-florida/
