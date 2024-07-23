@@ -1,3 +1,11 @@
+**The Secret Service Is Becoming a Symbol of Incompetence**\
+`Members of both parties are furious at the agency’s failure to protect Trump from a shooter.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/cheatle-secret-service-hearing
+
+**Warner Bros. Discovery Matches Rival Bid to Keep N.B.A. Broadcast Rights**\
+`The company, a longtime broadcaster of N.B.A. games, is trying to keep the lucrative broadcast rights as the league negotiates a new contract.`\
+https://nytimes.com/2024/07/22/business/warner-bros-discovery-amazon-nba-rights.html
+
 **Mets' trade deadline outlook: Here's how industry sources expect they'll play it**\
 `The Mets are unlikely to trade Pete Alonso as they instead look to add to their bullpen.`\
 https://nytimes.com/athletic/5651832/2024/07/22/mets-trade-deadline-outlook/
