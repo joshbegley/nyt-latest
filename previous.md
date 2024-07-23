@@ -1,6 +1,10 @@
-**Trump accuses the Biden-Harris administration of failing to ‘properly protect me.’**\
-`By Maggie Haberman and Jonathan Swan`\
-https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden/trump-accuses-the-biden-harris-administration-of-failing-to-properly-protect-me
+**Biden Plans to Address the Nation on Wednesday Night**\
+`In announcing the address, President Biden said he would discuss “what lies ahead, and how I will finish the job for the American people.”`\
+https://nytimes.com/2024/07/23/us/politics/biden-address-nation.html
+
+**Trump Accuses Biden-Harris Administration of Failing to ‘Properly Protect Me’**\
+`The former president’s comments suggest that he will more aggressively turn the assassination attempt into a political cudgel.`\
+https://nytimes.com/2024/07/23/us/politics/trump-biden-harris-security.html
 
 **Agents weigh in on Jordan Love: How small sample size could affect Packers deal**\
 `Our annual agent poll offers perspective on how Love should be viewed and the situation Green Bay faces.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/us/politics/katharine-graham-house-georgetown.htm
 **Patriots enter camp with Brissett as QB1, leave door open for Maye**\
 `New England signed Brissett to a one-year, $8 million contract this offseason.`\
 https://nytimes.com/athletic/5653207/2024/07/23/patriots-jacoby-brissett-starter/
-
-**When It Comes to Food and Politics, Kamala Harris Is Riffing on the Recipe**\
-`From giving turkey-roasting advice to making dosas with Mindy Kaling, Ms. Harris has leaned into cooking in a way no other candidate has.`\
-https://nytimes.com/2024/07/23/dining/kamala-harris-home-cooking.html
 
