@@ -1,3 +1,8 @@
+**Blue Jackets drawn to coach Dean Evason's passion and his demand for accountability**\
+`Evason was hired by a team looking for a stronger personality and a firmer hand from its coach.
+`\
+https://nytimes.com/athletic/5653439/2024/07/23/blue-jackets-coach-dean-evason/
+
 **This Version of Kamala Harris Is Having More Fun Than You**\
 `And she doesn’t care what anyone thinks of her.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/kamala-harris-brat-meme
