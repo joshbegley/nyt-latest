@@ -1,3 +1,7 @@
+**Track and field at the 2024 Paris Olympics: World-record watch, schedule and how to watch**\
+`There will be 48 athletics events at the Olympics, making track and field by far the most contested sport in Paris.`\
+https://nytimes.com/athletic/5636961/2024/07/23/track-and-field-2024-paris-olympics-schedule-tv/
+
 **Can 'good village' around Bo Nix prepare Broncos' rookie QB to start Week 1?**\
 `Nix is trying to win a three-way battle for the starting job, but the Broncos must also prioritize the rookie's long-term development.`\
 https://nytimes.com/athletic/5650934/2024/07/23/bo-nix-broncos-training-camp/

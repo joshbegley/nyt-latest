@@ -1,3 +1,7 @@
+**Track and field at the 2024 Paris Olympics: World-record watch, schedule and how to watch**\
+`There will be 48 athletics events at the Olympics, making track and field by far the most contested sport in Paris.`\
+https://nytimes.com/athletic/5636961/2024/07/23/track-and-field-2024-paris-olympics-schedule-tv/
+
 **Harris is set to speak in the Milwaukee area. Here’s the latest.**\
 `By Nicholas Nehamas and Chris Cameron`\
 https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden/harris-is-set-to-speak-in-the-milwaukee-area-heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5651121/2024/07/23/jordan-love-holdout-packers-the-
 **Getafe to continue to profit from Greenwood due to unusual clause in Man Utd deal**\
 `Getafe will continue to make money from Mason Greenwood due to an unusual sell-on clause inserted into his loan move from Manchester United last summer.`\
 https://nytimes.com/athletic/5651714/2024/07/23/mason-greenwood-man-united-getafe-marseille-sell-on/
-
-**Premier League joins legal action over 'beyond saturated' FIFA calendar**\
-`The Premier League is part of a formal complaint being made to the European Commission against FIFA, accusing world football&#8217;s governing body&#8217;s international match calendar of being &#8220;beyond saturation&#8221;.`\
-https://nytimes.com/athletic/5652381/2024/07/23/premier-league-legal-action-fifa-calendar/
 
