@@ -1,3 +1,7 @@
+**Sean Payton wants Broncos training camp QB competition to unfold 'organically'**\
+`The Broncos won't give even reps to Bo Nix, Jarrett Stidham and Zach Wilson "for the long term," but they will "mix it up" to start camp`\
+https://nytimes.com/athletic/5653777/2024/07/23/sean-payton-broncos-training-camp-qbs/
+
 **Panthers are playing the long game, but it all hinges on Bryce Young**\
 `Coming off a 2-15 season, Bryce Young and the Panthers have goals for 2024 and beyond. "That's a big-picture thing," the QB said.`\
 https://nytimes.com/athletic/5653874/2024/07/23/carolina-panthers-bryce-young-future-success/

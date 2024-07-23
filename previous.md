@@ -1,3 +1,7 @@
+**Sean Payton wants Broncos training camp QB competition to unfold 'organically'**\
+`The Broncos won't give even reps to Bo Nix, Jarrett Stidham and Zach Wilson "for the long term," but they will "mix it up" to start camp`\
+https://nytimes.com/athletic/5653777/2024/07/23/sean-payton-broncos-training-camp-qbs/
+
 **Panthers are playing the long game, but it all hinges on Bryce Young**\
 `Coming off a 2-15 season, Bryce Young and the Panthers have goals for 2024 and beyond. "That's a big-picture thing," the QB said.`\
 https://nytimes.com/athletic/5653874/2024/07/23/carolina-panthers-bryce-young-future-success/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/us/politics/kamala-harris-delegates-vp.html
 **Senator Menendez’s Resignation Letter**\
 `Senator Robert Menendez announced in a letter to Gov. Philip D. Murphy of New Jersey that he would resign as of Aug. 20.`\
 https://nytimes.com/interactive/2024/07/23/nyregion/menendez-letter.html
-
-**Tesla’s Profit Fell 45% in the Second Quarter on Weak E.V. Sales**\
-`The company led by Elon Musk is selling fewer electric cars, and its big bets on driverless taxis and artificial intelligence could take many years to pay off.`\
-https://nytimes.com/2024/07/23/business/tesla-q2-earnings-elon-musk.html
 
