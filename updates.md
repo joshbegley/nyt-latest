@@ -1,3 +1,7 @@
+**Tari Eason opens up on lows of injury-riddled season and his journey back**\
+`"There was a point where I really was sad, a low point," Eason said of not playing. "I didn’t know what was going to happen."`\
+https://nytimes.com/athletic/5650732/2024/07/23/houston-rockets-tari-eason-interview-nba/
+
 **Why Team USA is willing to wait for Kevin Durant's Olympic debut: 'We need him out there'**\
 `Kevin Durant still hasn't set foot on the court for the Americans. But the team's all-time leading scorer brings something no one else can.`\
 https://nytimes.com/athletic/5651862/2024/07/23/kevin-durant-injury-olympics-debut-team-usa/
