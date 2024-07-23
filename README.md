@@ -1,3 +1,27 @@
+**What Caldentey and Miedema signings tell us about Arsenal and City plans for new WSL season**\
+`Will Arsenal or Manchester City beat Chelsea to the title now Emma Hayes has gone?`\
+https://nytimes.com/athletic/5650627/2024/07/23/caldentey-miedema-arsenal-manchester/
+
+**When Pakistan Tightened a Border, Thousands of Lives Were Upended**\
+`Traders in Chaman have done business in Afghanistan for generations, but that stopped when officials made it much harder to cross.`\
+https://nytimes.com/2024/07/23/world/asia/chaman-border-pakistan-afghanistan.html
+
+**Tuesday's MLB odds, best bets: Pitching matchups, playoff odds, props and more**\
+`See pitching matchups, playoff projections, win projections and more for Tuesday's MLB games.`\
+https://nytimes.com/athletic/5651447/2024/07/23/mlb-odds-best-bets-projections-july-23/
+
+**In Georgia’s Depressed Heartland, Pining for the Soviet Past**\
+`While most Georgians support closer integration with Western Europe, many people in industrial areas that collapsed along with Communism in the 1990s express nostalgia for the old Soviet prosperity.`\
+https://nytimes.com/2024/07/23/world/europe/georgia-heartland-soviet-union.html
+
+**An Olympian’s Awkward Packing List: Toothbrush? Check. Rifle? Check.**\
+`For members of the U.S. shooting team, competitions may be the easy part. Just getting to them takes steely nerves and careful planning.`\
+https://nytimes.com/2024/07/23/world/olympics/paris-olympics-shooting-travel.html
+
+**Google’s $23 Billion Plan to Buy Cybersecurity Start-Up Wiz Falls Apart**\
+`Wiz’s chief executive said the company walked away from a “humbling offer” and would pursue an initial public offering instead.`\
+https://nytimes.com/2024/07/23/technology/google-wiz-deal-ipo.html
+
 **Pampered Pets**\
 `Sarah Sinclair and Amie Walker have put together a charming Tuesday crossword with a lot of breadth.`\
 https://nytimes.com/2024/07/22/crosswords/daily-puzzle-2024-07-23.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5652044/2024/07/22/dodgers-james-paxton-trade-deadl
 **Four takeaways on the Cubs’ likely sell-off at the looming trade deadline   **\
 `The Cubs are putting the focus on 2025. What does that mean for Chicago's roster?`\
 https://nytimes.com/athletic/5652069/2024/07/22/takeaways-cubs-sell-off-trade-deadline/
-
-**Founder of Korean Tech Giant Arrested Over K-Pop Deal**\
-`Kim Beom-Su, the billionaire behind Kakao, was taken into custody on Tuesday on allegations of stock manipulation during a bidding war over a major K-pop agency.`\
-https://nytimes.com/2024/07/22/business/kakao-founder-arrest-warrant-south-korea.html
-
-**The Secret Service Is Becoming a Symbol of Incompetence**\
-`Members of both parties are furious at the agency’s failure to protect Trump from a shooter.`\
-https://nytimes.com/live/2024/07/22/opinion/thepoint/cheatle-secret-service-hearing
-
-**Mets' trade deadline outlook: Here's how industry sources expect they'll play it**\
-`The Mets are unlikely to trade Pete Alonso as they instead look to add to their bullpen.`\
-https://nytimes.com/athletic/5651832/2024/07/22/mets-trade-deadline-outlook/
-
-**Trump Appeals $454 Million Fraud Judgment, Saying It Was Excessive**\
-`Lawyers for Donald J. Trump challenged the judgment handed down by Justice Arthur F. Engoron, who found that Mr. Trump had conspired to manipulate his net worth to receive favorable terms on loans.`\
-https://nytimes.com/2024/07/22/nyregion/trump-fraud-appeal.html
-
-**Warner Bros. Discovery Matches Rival Bid to Keep N.B.A. Broadcast Rights**\
-`The company, a longtime broadcaster of N.B.A. games, is trying to keep the lucrative broadcast rights as the league negotiates a new contract.`\
-https://nytimes.com/2024/07/22/business/warner-bros-discovery-amazon-nba-rights.html
-
-**Kamala Harris will meet with Benjamin Netanyahu this week, but will miss his address to Congress.**\
-`By Michael D. Shear`\
-https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/kamala-harris-will-meet-with-benjamin-netanyahu-this-week-but-will-miss-his-address-to-congress
 
