@@ -1,3 +1,11 @@
+**Two Landslides Kill More Than 150 People in Ethiopia**\
+`A waterlogged hillside above a village gave way, burying several houses in mud. Neighbors and rescue workers who had rushed to help were hit by a second slide.`\
+https://nytimes.com/2024/07/23/world/landslides-ethiopia-village.html
+
+**Vecenie: The good, bad and ugly from Bronny James' summer-league performances**\
+`LeBron James' son showed some promising flashes of athleticism and potential, but he has a long way to go in several areas. `\
+https://nytimes.com/athletic/5650131/2024/07/23/bronny-james-summer-league-performance-lakers/
+
 **Unions tell the Biden administration to stop sending military aid to Israel.**\
 `Several unions with millions of members demanded that the president secure a cease-fire in Gaza.`\
 https://nytimes.com/2024/07/23/us/politics/union-biden-letter-israel-gaza.html
