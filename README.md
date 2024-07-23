@@ -1,3 +1,11 @@
+**Mets' trade deadline outlook: Here's how industry sources expect they'll play it**\
+`The Mets are unlikely to trade Pete Alonso as they instead look to add to their bullpen.`\
+https://nytimes.com/athletic/5651832/2024/07/22/mets-trade-deadline-outlook/
+
+**Trump Appeals $454 Million Fraud Judgment, Saying It Was Excessive**\
+`Lawyers for Donald J. Trump challenged the judgment handed down by Justice Arthur F. Engoron, who found that Mr. Trump had conspired to manipulate his net worth to receive favorable terms on loans.`\
+https://nytimes.com/2024/07/22/nyregion/trump-fraud-appeal.html
+
 **Warner Bros. Discovery Says It Has Matched a Rival Bid for N.B.A. TV Deal**\
 `The company, a longtime broadcaster of N.B.A. games, is trying to keep the lucrative broadcast rights as the league negotiates a new contract.`\
 https://nytimes.com/2024/07/22/business/warner-bros-discovery-amazon-nba-rights.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/22/us/kamala-harris-women-voters.html
 **The far right spreads baseless claims about Biden’s whereabouts.**\
 `By Stuart A. Thompson`\
 https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/the-far-right-spreads-baseless-claims-about-bidens-whereabouts
-
-**Secret Service Director Faces Bipartisan Calls to Resign**\
-`The Secret Service director, Kimberly A. Cheatle, repeatedly refused to answer specific questions in a House oversight committee hearing on security failures that led to an assassination attempt on former President Donald J. Trump.`\
-https://nytimes.com/video/us/elections/100000009586735/secret-service-hearing-trump-assassination-attempt.html
-
-**Harris Seizes Control, Clearing Field, Raising Cash and Slamming Trump**\
-`On her first full day in the race, Kamala Harris was endorsed by her final possible rivals, appeared at what had been the Biden campaign headquarters and stepped up her search for a running mate.`\
-https://nytimes.com/2024/07/22/us/politics/kamala-harris-trump-2024-election.html
 
