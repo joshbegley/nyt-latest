@@ -1,3 +1,7 @@
+**Writing Helped Her Realize She Was a Woman. It Also Made Her Famous.**\
+`Camila Sosa Villada, an Argentine transgender author, first inhabited a female voice in stories she wrote as a child. Now her novels are translated in more than 20 languages and being adapted for the screen.`\
+https://nytimes.com/2024/07/23/books/booksupdate/camila-sosa-villada.html
+
 **Submit your trade deadline questions for the Yankees mailbag**\
 `<p>The trade deadline is one week away.`\
 https://nytimes.com/athletic/5653185/2024/07/23/yankees-trade-deadline-questions-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5652659/2024/07/23/sean-mcvay-on-improving-as-a-coa
 **Vecenie: The good, bad and ugly from Bronny James' summer-league performances**\
 `LeBron James' son showed some promising flashes of athleticism and potential, but he has a long way to go in several areas. `\
 https://nytimes.com/athletic/5650131/2024/07/23/bronny-james-summer-league-performance-lakers/
-
-**De Gea's year out of football - training at Altrincham, playing padel and where he might return**\
-`It is 417 days since De Gea last played after his Manchester United exit, but he appears to be nearing a new club`\
-https://nytimes.com/athletic/5652703/2024/07/23/david-de-gea-manchester-united-return/
 

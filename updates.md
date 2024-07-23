@@ -1,3 +1,7 @@
+**Writing Helped Her Realize She Was a Woman. It Also Made Her Famous.**\
+`Camila Sosa Villada, an Argentine transgender author, first inhabited a female voice in stories she wrote as a child. Now her novels are translated in more than 20 languages and being adapted for the screen.`\
+https://nytimes.com/2024/07/23/books/booksupdate/camila-sosa-villada.html
+
 **Submit your trade deadline questions for the Yankees mailbag**\
 `<p>The trade deadline is one week away.`\
 https://nytimes.com/athletic/5653185/2024/07/23/yankees-trade-deadline-questions-mailbag/
