@@ -1,3 +1,7 @@
+**‘Veep’ Is Re-elected**\
+`After news broke that President Biden would endorse Vice President Kamala Harris as the Democratic nominee, the internet was rife with clips and memes from the show.`\
+https://nytimes.com/2024/07/23/arts/television/veep-kamala-harris.html
+
 **Why Liverpool are back in the U.S. after six-year absence - and who stands to benefit**\
 `The club's pre-season tour is a big moment for Arne Slot... and the club's commercial department`\
 https://nytimes.com/athletic/5650869/2024/07/23/liverpool-us-tour-arne-slot/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5651356/2024/07/23/new-york-giants-offseason-joe-sc
 **‘Joker: Folie à Deux’ to Compete at Venice Film Festival**\
 `Pedro Almodóvar’s first English-language feature and new movies from Luca Guadagnino and Pablo Larraín will also debut at this year’s event.`\
 https://nytimes.com/2024/07/23/movies/venice-film-festival-joker-folie-a-deux.html
-
-**Congress Leaders Agree to Form Task Force on Trump Assassination Attempt**\
-`The top Republican and Democrat in the House have struck a deal to form a bipartisan task force to lead congressional investigations into the attempted assassination of Donald J. Trump.`\
-https://nytimes.com/2024/07/23/us/politics/trump-assassination-attempt-task-force.html
 
