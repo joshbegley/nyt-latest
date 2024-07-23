@@ -1,3 +1,11 @@
+**Giants' 10-step plan revisited: Was splash trade for Brian Burns best use of resources?**\
+`Most of the Giants' offseason moves made sense, but did they do enough to fix the offensive line? `\
+https://nytimes.com/athletic/5651356/2024/07/23/new-york-giants-offseason-joe-schoen-brian-burns/
+
+**The Athletic FC: How goal-kick law transformed the game; U.S. players to watch at Olympics**\
+`The Athletic FC: How the goal-kick law has revolutionised the game, which U.S. players to watch at the Olympics, and De Gea's future`\
+https://nytimes.com/athletic/5652475/2024/07/23/u-s-players-olympics-greenwood-getafe-clause-the-athletic-fc/
+
 **‘Joker: Folie à Deux’ to Compete at Venice Film Festival**\
 `Pedro Almodóvar’s first English-language feature and new movies from Luca Guadagnino and Pablo Larraín will also debut at this year’s event.`\
 https://nytimes.com/2024/07/23/movies/venice-film-festival-joker-folie-a-deux.html

@@ -1,3 +1,7 @@
+**Giants' 10-step plan revisited: Was splash trade for Brian Burns best use of resources?**\
+`Most of the Giants' offseason moves made sense, but did they do enough to fix the offensive line? `\
+https://nytimes.com/athletic/5651356/2024/07/23/new-york-giants-offseason-joe-schoen-brian-burns/
+
 **‘Joker: Folie à Deux’ to Compete at Venice Film Festival**\
 `Pedro Almodóvar’s first English-language feature and new movies from Luca Guadagnino and Pablo Larraín will also debut at this year’s event.`\
 https://nytimes.com/2024/07/23/movies/venice-film-festival-joker-folie-a-deux.html
@@ -30,11 +34,7 @@ https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden
 `While the draft's top two picks had their issues, for various reasons, those struggles didn't come under as big a spotlight as usual.`\
 https://nytimes.com/athletic/5651448/2024/07/23/nba-summer-league-rookies-disappointments-zaccharie-risacher-alex-sarr/
 
-**What to watch at Raiders training camp: Roster moves, QB battle and more**\
-`The Raiders still have some holes on their roster — especially at cornerback — and the salary-cap space to patch them.`\
-https://nytimes.com/athletic/5650793/2024/07/23/raiders-training-camp-quarterback-battle/
-
-**Is it OK for Blackhawks fans to actually root for wins? Lazerus mailbag, Part I**\
-`No fan should ever be put in the position to root against their own team.`\
-https://nytimes.com/athletic/5650852/2024/07/23/blackhawks-tanking-lazerus-mailbag/
+**The Athletic FC: How goal-kick law transformed the game; U.S. players to watch at Olympics**\
+`The Athletic FC: How the goal-kick law has revolutionised the game, which U.S. players to watch at the Olympics, and De Gea's future`\
+https://nytimes.com/athletic/5652475/2024/07/23/u-s-players-olympics-greenwood-getafe-clause-the-athletic-fc/
 
