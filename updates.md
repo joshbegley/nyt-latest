@@ -1,3 +1,11 @@
+**Vecenie: The good, bad and ugly from Bronny James' summer league performances**\
+`LeBron James' son showed some promising flashes of athleticism and potential, but he has a long way to go in several areas. `\
+https://nytimes.com/athletic/5650131/2024/07/23/bronny-james-summer-league-performance-lakers/
+
+**De Gea's year out of football - training at Altrincham, playing padel and where he might return**\
+`It is 417 days since De Gea last played after his Manchester United exit, but he appears to be nearing a new club`\
+https://nytimes.com/athletic/5652703/2024/07/23/david-de-gea-manchester-united-return/
+
 **Transportation Department to Investigate Delta After Flight Delays**\
 `Pete Buttigieg, the transportation secretary, made the announcement after the airline suspended travel for unaccompanied minors.`\
 https://nytimes.com/2024/07/23/us/pete-buttigieg-delta-outage.html
