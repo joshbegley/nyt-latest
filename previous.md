@@ -1,3 +1,7 @@
+**Walker Buehler explains why 'I needed to be somewhere else' and away from the Dodgers**\
+`Buehler needed time away to get his body and mind back on track: "There's nothing worse than costing your team games."`\
+https://nytimes.com/athletic/5652221/2024/07/23/dodgers-walker-buehler-florida/
+
 **Track and field at the 2024 Paris Olympics: World-record watch, schedule and how to watch**\
 `There will be 48 athletics events at the Olympics, making track and field by far the most contested sport in Paris.`\
 https://nytimes.com/athletic/5636961/2024/07/23/track-and-field-2024-paris-olympics-schedule-tv/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/us/los-angeles-sewage-spill-beaches-venice.html
 **The Pulse: The NFL's next biggest contract ever**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5651121/2024/07/23/jordan-love-holdout-packers-the-pulse/
-
-**Getafe to continue to profit from Greenwood due to unusual clause in Man Utd deal**\
-`Getafe will continue to make money from Mason Greenwood due to an unusual sell-on clause inserted into his loan move from Manchester United last summer.`\
-https://nytimes.com/athletic/5651714/2024/07/23/mason-greenwood-man-united-getafe-marseille-sell-on/
 

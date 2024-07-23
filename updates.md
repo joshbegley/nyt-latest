@@ -1,3 +1,7 @@
+**Walker Buehler explains why 'I needed to be somewhere else' and away from the Dodgers**\
+`Buehler needed time away to get his body and mind back on track: "There's nothing worse than costing your team games."`\
+https://nytimes.com/athletic/5652221/2024/07/23/dodgers-walker-buehler-florida/
+
 **Live Election Updates: Harris Hits Trail With Delegates, Cash and Energy at Her Back**\
 `Vice President Kamala Harris, who has secured commitments from enough delegates to win the Democratic presidential nomination, will campaign in Wisconsin, a crucial battleground state.`\
 https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden
