@@ -6,6 +6,10 @@ https://nytimes.com/2024/07/23/us/politics/elon-musk-super-pac-desantis.html
 `Kittle lost about 30 pounds recovering from offseason core surgery but is back at his playing weight as he reported to camp.`\
 https://nytimes.com/athletic/5654125/2024/07/23/george-kittle-49ers-training-camp-weight/
 
+**Florida coach Napier asks court to dismiss Rashada lawsuit**\
+`Rashada's lawsuit alleges the defendants made “false and fraudulent promises” to induce Rashada to sign with the program in 2022.`\
+https://nytimes.com/athletic/5654349/2024/07/23/billy-napier-jaden-rashada-lawsuit/
+
 **Vikings tackle Christian Darrisaw signs massive extension worth up to $113M**\
 `The 25-year-old's new deal hoists him to the top of NFL left tackles in terms of average annual value.`\
 https://nytimes.com/athletic/5654377/2024/07/23/vikings-christian-darrisaw-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/world/middleeast/hamas-fatah-unity-china.html
 **Democrats Deserved a Contest, Not a Coronation**\
 `The party will pay the price for anointing Kamala Harris.`\
 https://nytimes.com/2024/07/23/opinion/kamala-harris-democrats.html
-
-**Netanyahu: A Small Man in a Big Time?**\
-`Prime Minister Benjamin Netanyahu of Israel addresses Congress when the biggest chance to reshape the Middle East since Camp David in the 1970s is at hand.`\
-https://nytimes.com/2024/07/23/opinion/netanyahu-israel-gaza-congress.html
 

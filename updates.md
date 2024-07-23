@@ -1,3 +1,7 @@
+**Florida coach Napier asks court to dismiss Rashada lawsuit**\
+`Rashada's lawsuit alleges the defendants made “false and fraudulent promises” to induce Rashada to sign with the program in 2022.`\
+https://nytimes.com/athletic/5654349/2024/07/23/billy-napier-jaden-rashada-lawsuit/
+
 **Rams QB Matthew Stafford's deal gets done — for many reasons**\
 `Reworking Stafford's contract is, of course, good for the quarterback, but it's also good for the rest of the team.`\
 https://nytimes.com/athletic/5654081/2024/07/23/rams-matthew-stafford-contract-quarterback/
