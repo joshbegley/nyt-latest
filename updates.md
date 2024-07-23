@@ -1,3 +1,15 @@
+**Trump Announces He Will Meet with Netanyahu on Friday at Mar-a-Lago**\
+`The pair, who were close allies, will meet after the Israeli prime minister gives a speech to Congress and meets with President Biden at the White House.`\
+https://nytimes.com/2024/07/23/us/politics/trump-netanyahu-mar-a-lago-meeting.html
+
+**A different kind of noise as the Jets' second training camp with Aaron Rodgers opens**\
+`The quarterback isn't the one drawing attention as training camp practices are set to begin`\
+https://nytimes.com/athletic/5653772/2024/07/23/a-different-kind-of-noise-as-the-jets-second-training-camp-with-aaron-rodgers-opens/
+
+**Paul George introduced, 76ers anticipate 'a special season'**\
+`The best fit for George at this point is the fact that he will be without question the third option, which is probably where his game is.`\
+https://nytimes.com/athletic/5654010/2024/07/23/76ers-paul-george-introduction-news-conference/
+
 **Stafford reporting to training camp with reworked contract**\
 `Stafford is coming off a 2023 season where he threw for 3,965 yards with 24 TDs and 11 interceptions.`\
 https://nytimes.com/athletic/5653568/2024/07/23/matthew-stafford-rams-training-camp/
