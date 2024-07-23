@@ -1,3 +1,11 @@
+**Tony Petitti says Big Ten 'focused on 18 right now'**\
+`Petitti touted his league’s strength and position in an ever-changing college sports landscape.`\
+https://nytimes.com/athletic/5653307/2024/07/23/tony-petitti-big-ten-expansion/
+
+**The Attacks on Kamala Harris for Not Having Kids Will Backfire**\
+`Being a parent doesn’t make you a better politician.`\
+https://nytimes.com/2024/07/23/opinion/kamala-harris-jd-vance.html
+
 **USWNT prepares for Olympic opener, Hayes stresses one-game-at-a-time approach**\
 `The USWNT begins its Olympic group stage on Thursday against Zambia, with head coach Emma Hayes confirming that everyone on the team is healthy and available for selection.`\
 https://nytimes.com/athletic/5653433/2024/07/23/uswnt-olympics-hayes-fox-smith/
