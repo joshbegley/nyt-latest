@@ -4,7 +4,7 @@ https://nytimes.com/2024/07/23/style/president-biden-wilmington-delaware-support
 
 **Not Your Usual Secondhand Book Sale**\
 `Bibliophiles and film fans leafed through hundreds of books that once belonged to the eminent editor Robert Gottlieb.`\
-https://nytimes.com/2024/07/23/style/not-your-usual-secondhand-book-sale.html
+https://nytimes.com/2024/07/23/style/robert-gottlieb-book-sale.html
 
 **Why Some Donors Are Holding Back on Endorsing Harris (for Now)**\
 `Fear of being seen as circumventing an open nomination process is one reason that some backers have not yet publicly endorsed the vice president.`\
