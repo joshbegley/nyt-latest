@@ -1,3 +1,7 @@
+**49ers' George Kittle is ready for 2024 after offseason of wild weight fluctuation**\
+`Kittle lost about 30 pounds recovering from offseason core surgery but is back at his playing weight as he reported to camp.`\
+https://nytimes.com/athletic/5654125/2024/07/23/george-kittle-49ers-training-camp-weight/
+
 **Vikings tackle Christian Darrisaw signs massive extension worth up to $113M**\
 `The 25-year-old's new deal hoists him to the top of NFL left tackles in terms of average annual value.`\
 https://nytimes.com/athletic/5654377/2024/07/23/vikings-christian-darrisaw-extension/
