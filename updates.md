@@ -1,3 +1,15 @@
+**Canada Evacuates Jasper National Park as Wildfires Burn in Alberta**\
+`Large blazes in the province have led to the evacuation of thousands of people.`\
+https://nytimes.com/2024/07/23/world/canada/jasper-national-park-wildfires-canada.html
+
+**Dissension in the ranks: Debating Ja'Marr Chase vs. Justin Jefferson for fantasy football 2024**\
+`Theo Gremminger and Adam Ronis try to break a virtual fantasy football ADP tie between alpha receivers Ja'Marr Chase and Justin Jefferson.`\
+https://nytimes.com/athletic/5639960/2024/07/23/rankings-debate-jamarr-chase-vs-justin-jefferson-fantasy-football-2024/
+
+**Mexico appoint Aguirre head coach and Marquez assistant**\
+`Javier Aguirre has been appointed head coach of Mexico for a third time with former national team captain Rafael Marquez as his assistant — with an agreement in place for Marquez to take over in 2026.`\
+https://nytimes.com/athletic/5648660/2024/07/23/rafa-marquez-mexico-coach-javier-aguirre/
+
 **Corrections: July 23, 2024**\
 `Corrections that appeared in print on Tuesday, July 23, 2024.`\
 https://nytimes.com/2024/07/23/pageoneplus/corrections-july-23-2024.html
