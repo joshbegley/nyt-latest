@@ -1,3 +1,15 @@
+**Rival Palestinian Factions Project Unity, but Deep Divisions Remain**\
+`In a move brokered by China, Fatah and Hamas endorsed a unified government for the West Bank and Gaza, but Palestinians are skeptical that the two parties can put aside their differences.`\
+https://nytimes.com/2024/07/23/world/middleeast/hamas-fatah-unity-china.html
+
+**Democrats Deserved a Contest, Not a Coronation**\
+`The party will pay the price for anointing Kamala Harris.`\
+https://nytimes.com/2024/07/23/opinion/kamala-harris-democrats.html
+
+**Netanyahu: A Small Man in a Big Time?**\
+`Prime Minister Benjamin Netanyahu of Israel addresses Congress when the biggest chance to reshape the Middle East since Camp David in the 1970s is at hand.`\
+https://nytimes.com/2024/07/23/opinion/netanyahu-israel-gaza-congress.html
+
 **See How Biden Lost Support in the Polls Before He Dropped Out**\
 `President Biden’s polling deficits grew in every single swing state between the debate and Sunday, when he exited the race.`\
 https://nytimes.com/interactive/2024/07/23/us/politics/polls-biden-trump-debate-shift.html
@@ -14,8 +26,8 @@ https://nytimes.com/2024/07/23/us/politics/harris-netanyahu-israel-gaza.html
 `It’s because they want to win.`\
 https://nytimes.com/2024/07/23/us/politics/kamala-harris-election-democrats.html
 
-**Packers training camp: 'Crazy' defensive line showing out on first two days**\
-`Under new defensive coordinator Jeff Hafley, the Packers' defensive line has a different mindset from last season.`\
+**Packers training camp: 'Attacking' defensive line showing out on first two days**\
+`Under new defensive coordinator Jeff Hafley, the Packers defensive line has a different mindset from last season.`\
 https://nytimes.com/athletic/5653964/2024/07/23/packers-training-camp-defensive-line/
 
 **Police Commander Provides More Details on Trump Rally Shooting**\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/23/us/politics/trump-rally-shooting-police.html
 **Hillary Clinton: I Know Kamala Harris Can Beat Donald Trump**\
 `I’ve been called a witch, a “nasty woman” and much worse. Harris will face unique additional challenges. But we shouldn’t be afraid.`\
 https://nytimes.com/2024/07/23/opinion/kamala-harris-donald-trump.html
-
-**Should the Group of 5 set up a second playoff for its champs? Leaders' opinions are mixed**\
-`The AAC's Tim Pernetti became the first commissioner to openly float the idea of an additional tournament for non-CFP conference champs.`\
-https://nytimes.com/athletic/5654291/2024/07/23/g5-playoff-tim-pernetti-aac-cusa/
-
-**For the second time in a week, a U.N. convoy comes under fire in Gaza.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2024/07/23/world/israel-gaza-war-hamas/for-the-second-time-in-a-week-a-un-convoy-comes-under-fire-in-gaza
-
-**Does Beyoncé Granting Kamala Harris Permission to Use Her Song Mean Something More?**\
-`Not quite a full-throated endorsement, but the use of the pop star’s song “Freedom” marked a moment.`\
-https://nytimes.com/2024/07/23/style/beyonce-kamala-harris-freedom.html
 
