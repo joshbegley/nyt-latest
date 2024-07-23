@@ -1,3 +1,16 @@
+**USWNT defender Tierna Davidson on 'difficult situation' created by Korbin Albert's previous posts**\
+`U.`\
+https://nytimes.com/athletic/5654006/2024/07/23/uswnt-tierna-davidson-korbin-albert/
+
+**Michigan Man Ran Over 80-Year-Old Putting Up Trump Signs, Police Say**\
+`The suspect killed himself after a series of politically motivated incidents, including one that left the 80-year-old victim critically injured, law enforcement officials said.`\
+https://nytimes.com/2024/07/23/us/michigan-trump-signs-violence.html
+
+**Blue Jackets drawn to coach Dean Evason's passion and his demand for accountability**\
+`Evason was hired by a team looking for a stronger personality and a firmer hand from its coach.
+`\
+https://nytimes.com/athletic/5653439/2024/07/23/blue-jackets-coach-dean-evason/
+
 **Blue Jackets drawn to coach Dean Evason's passion and his demand for accountability**\
 `Evason was hired by a team looking for a stronger personality and a firmer hand from its coach.
 `\
