@@ -1,3 +1,23 @@
+**Judge Refuses to Block F.T.C.’s Noncompete Ban as Lawsuits Play Out**\
+`A judge in Pennsylvania denied a request to delay the rule, siding with the agency and diverging from a Texas court’s decision earlier this month.`\
+https://nytimes.com/2024/07/23/business/economy/noncompete-ban-ftc.html
+
+**The Secret Service Director Resigned**\
+`Also, Harris went on the offensive against Trump. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/07/23/briefing/secret-service-director-resign-harris-campaign-rally.html
+
+**Mattel Unveils Blind Barbie**\
+`A second new doll, a Black Barbie with Down syndrome, is part of the toymaker’s effort to be more inclusive.`\
+https://nytimes.com/2024/07/23/style/blind-barbie-mattel.html
+
+**‘Deadpool & Wolverine’ Review: Nothing Ever Ends**\
+`The wisecracking semi-hero is back, but now he’s part of a bigger universe.`\
+https://nytimes.com/2024/07/23/movies/deadpool-and-wolverine-review.html
+
+**Tiny Love Stories: ‘He Liked to Give Me Gifts’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/07/23/style/tiny-modern-love-stories-he-liked-to-give-me-gifts.html
+
 **Sean Payton wants Broncos training camp QB competition to unfold 'organically'**\
 `The Broncos won't give even reps to Bo Nix, Jarrett Stidham and Zach Wilson "for the long term," but they will "mix it up" to start camp`\
 https://nytimes.com/athletic/5653777/2024/07/23/sean-payton-broncos-training-camp-qbs/
