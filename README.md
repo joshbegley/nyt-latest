@@ -1,5 +1,5 @@
 **Team GB's Dujardin out of Olympics after 'error of judgement'**\
-`Britain&#8217;s joint-most decorated female Olympian Charlotte Dujardin has withdrawn from the Paris Olympics after a video surfaced of her &#8220;making an error of judgement&#8221; during a coaching session.`\
+`Team GB&#8217;s joint-most decorated female Olympian Charlotte Dujardin has withdrawn from the Paris Olympics after a video surfaced of her &#8220;making an error of judgement&#8221; during a coaching session.`\
 https://nytimes.com/athletic/5653218/2024/07/23/charlotte-dujardin-olympics-video/
 
 **Tracking Typhoon Gaemi**\
