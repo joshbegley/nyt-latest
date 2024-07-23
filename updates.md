@@ -1,3 +1,15 @@
+**For Dean Phillips, Biden’s Withdrawal Offers ‘Unfulfilling’ Vindication**\
+`The congressman from Minnesota waged a quixotic challenge in the Democratic primaries, warning that the president was too old to win. No one paid attention then. They are now.`\
+https://nytimes.com/2024/07/23/us/politics/dean-phillips-biden.html
+
+**Mattia Binotto returning to F1 with Audi team**\
+`This management realignment comes at a time when Audi is ramping up its preparations for its debut, when it takes over the Sauber-run team. `\
+https://nytimes.com/athletic/5652786/2024/07/23/mattia-binotto-sauber-audi-f1-team/
+
+**George Clooney Endorses Kamala Harris, Says Biden Is ‘Saving Democracy’**\
+`In a statement, the actor and Democratic donor praised the president for stepping aside and vowed to do “whatever we can” to support Vice President Kamala Harris’s presidential campaign.`\
+https://nytimes.com/2024/07/23/us/politics/george-clooney-endorses-kamala-harris.html
+
 **Scoop City: Green Bay's latest franchise QB awaits payday**\
 `We also hear directly from Saquon Barkley on how his time in New York ended.`\
 https://nytimes.com/athletic/5652767/2024/07/23/jordan-love-holdin-scoop-city/
