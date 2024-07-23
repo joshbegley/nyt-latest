@@ -1,3 +1,7 @@
+**Have Immigrants Been Taking Away Our Jobs?**\
+`Why the economic impact of immigration is positive.`\
+https://nytimes.com/2024/07/23/opinion/immigration-unemployment-inflation.html
+
 **Vance Adjusts to His New Role, Aboard a Plane With His Name on It**\
 `As Donald Trump’s running mate, JD Vance has his own jet to fly him across the country. On Monday, he was still getting comfortable, both on the ground and in the air.`\
 https://nytimes.com/2024/07/23/us/politics/vance-trump-campaign.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/us/michigan-trump-signs-violence.html
 **This Version of Kamala Harris Is Having More Fun Than You**\
 `And she doesn’t care what anyone thinks of her.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/kamala-harris-brat-meme
-
-**How the Biden Campaign Transformed Into the Harris Campaign**\
-`Staff members inside and outside the room have described the past handful of hours as hectic, overwhelming and emotional.`\
-https://nytimes.com/2024/07/23/us/politics/biden-harris-campaign-transformation.html
 
