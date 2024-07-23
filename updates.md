@@ -1,3 +1,15 @@
+**From Gowanus to Rhinebeck: ‘It’s a Whole Lifestyle Change.’**\
+`The two designers never planned to leave Brooklyn. But upstate New York beckoned.`\
+https://nytimes.com/2024/07/23/realestate/gowanus-brooklyn-rhinebeck-ny-homes.html
+
+**How QAnon Rips Families Apart**\
+`In “The Quiet Damage,” Jesselyn Cook traces the effects of the conspiracy theory on the spouses, children and siblings of believers.`\
+https://nytimes.com/2024/07/23/books/review/the-quiet-damage-jesselyn-cook.html
+
+**Why Is My Hairstyle Giving Me a Headache?**\
+`The tension from tight box braids, ponytails and buns can cause pain and lead to hair loss, experts said.`\
+https://nytimes.com/2024/07/23/well/hairstyle-headache-migraine.html
+
 **De Bruyne 'not leaving' Manchester City this summer - Guardiola**\
 `Manchester City head coach Pep Guardiola has ruled out the prospect of Kevin De Bruyne leaving the club this summer.`\
 https://nytimes.com/athletic/5652350/2024/07/23/kevin-de-bruyne-manchester-city-transfer/
