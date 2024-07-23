@@ -1,3 +1,11 @@
+**Harris’s Views on Israel Are in the Spotlight as Netanyahu Visits Washington**\
+`The vice president will be closely watched this week for signs of her approach to the war in Gaza should she win the White House in November.`\
+https://nytimes.com/2024/07/23/us/politics/harris-netanyahu-israel-gaza.html
+
+**How Democrats Learned to Love the Smoke-Filled Room Again**\
+`It’s because they want to win.`\
+https://nytimes.com/2024/07/23/us/politics/kamala-harris-election-democrats.html
+
 **Packers training camp: 'Crazy' defensive line showing out on first two days**\
 `Under new defensive coordinator Jeff Hafley, the Packers' defensive line has a different mindset from last season.`\
 https://nytimes.com/athletic/5653964/2024/07/23/packers-training-camp-defensive-line/
