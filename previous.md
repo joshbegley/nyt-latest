@@ -1,3 +1,7 @@
+**‘Joker: Folie à Deux’ to Compete at Venice Film Festival**\
+`Pedro Almodóvar’s first English-language feature and new movies from Luca Guadagnino and Pablo Larraín will also debut at this year’s event.`\
+https://nytimes.com/2024/07/23/movies/venice-film-festival-joker-folie-a-deux.html
+
 **Congress Leaders Agree to Form Task Force on Trump Assassination Attempt**\
 `The top Republican and Democrat in the House have struck a deal to form a bipartisan task force to lead congressional investigations into the attempted assassination of Donald J. Trump.`\
 https://nytimes.com/2024/07/23/us/politics/trump-assassination-attempt-task-force.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5650793/2024/07/23/raiders-training-camp-quarterbac
 **Is it OK for Blackhawks fans to actually root for wins? Lazerus mailbag, Part I**\
 `No fan should ever be put in the position to root against their own team.`\
 https://nytimes.com/athletic/5650852/2024/07/23/blackhawks-tanking-lazerus-mailbag/
-
-**Can 'good village' around Bo Nix prepare Broncos' rookie QB to start Week 1?**\
-`Nix is trying to win a three-way battle for the starting job, but the Broncos must also prioritize the rookie's long-term development.`\
-https://nytimes.com/athletic/5650934/2024/07/23/bo-nix-broncos-training-camp/
 

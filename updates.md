@@ -1,3 +1,7 @@
+**‘Joker: Folie à Deux’ to Compete at Venice Film Festival**\
+`Pedro Almodóvar’s first English-language feature and new movies from Luca Guadagnino and Pablo Larraín will also debut at this year’s event.`\
+https://nytimes.com/2024/07/23/movies/venice-film-festival-joker-folie-a-deux.html
+
 **Congress Leaders Agree to Form Task Force on Trump Assassination Attempt**\
 `The top Republican and Democrat in the House have struck a deal to form a bipartisan task force to lead congressional investigations into the attempted assassination of Donald J. Trump.`\
 https://nytimes.com/2024/07/23/us/politics/trump-assassination-attempt-task-force.html
