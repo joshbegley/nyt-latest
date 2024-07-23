@@ -1,3 +1,7 @@
+**Trump campaign files complaint over transfer of Biden funds to Harris.**\
+`By Maggie Haberman`\
+https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden/trump-campaign-files-complaint-over-transfer-of-biden-funds-to-harris
+
 **Immigration Is Great for Jobs, Actually**\
 `Why the economic impact of immigration is positive.`\
 https://nytimes.com/2024/07/23/opinion/immigration-unemployment-inflation.html
