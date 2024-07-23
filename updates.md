@@ -1,3 +1,11 @@
+**In Wilmington, They Like ‘Delaware Joe.’ But They’re Glad He Quit**\
+`Support is strong for President Biden in the city that has been his home base. But, as a local put it, “You got to know when to hold ’em, know when to fold ’em.”`\
+https://nytimes.com/2024/07/23/style/president-biden-wilmington-delaware-supporters-withdrawal.html
+
+**Not Your Usual Secondhand Book Sale**\
+`Bibliophiles and film fans leafed through hundreds of books that once belonged to the eminent editor Robert Gottlieb.`\
+https://nytimes.com/2024/07/23/style/robert-gottlieb-book-sale.html
+
 **Why Some Donors Are Holding Back on Endorsing Harris (for Now)**\
 `Fear of being seen as circumventing an open nomination process is one reason that some backers have not yet publicly endorsed the vice president.`\
 https://nytimes.com/2024/07/23/business/dealbook/harris-donors-endorsements.html

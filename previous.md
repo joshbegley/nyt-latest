@@ -1,3 +1,11 @@
+**In Wilmington, They Like ‘Delaware Joe.’ But They’re Glad He Quit**\
+`Support is strong for President Biden in the city that has been his home base. But, as a local put it, “You got to know when to hold ’em, know when to fold ’em.”`\
+https://nytimes.com/2024/07/23/style/president-biden-wilmington-delaware-supporters-withdrawal.html
+
+**Not Your Usual Secondhand Book Sale**\
+`Bibliophiles and film fans leafed through hundreds of books that once belonged to the eminent editor Robert Gottlieb.`\
+https://nytimes.com/2024/07/23/style/robert-gottlieb-book-sale.html
+
 **Why Some Donors Are Holding Back on Endorsing Harris (for Now)**\
 `Fear of being seen as circumventing an open nomination process is one reason that some backers have not yet publicly endorsed the vice president.`\
 https://nytimes.com/2024/07/23/business/dealbook/harris-donors-endorsements.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5651981/2024/07/23/mlb-mlb-trade-deadline-scenarios
 **Walker Buehler explains why 'I needed to be somewhere else' and away from the Dodgers**\
 `Buehler needed time away to get his body and mind back on track: "There's nothing worse than costing your team games."`\
 https://nytimes.com/athletic/5652221/2024/07/23/dodgers-walker-buehler-florida/
-
-**Track and field at the 2024 Paris Olympics: World-record watch, schedule and how to watch**\
-`There will be 48 athletics events at the Olympics, making track and field by far the most contested sport in Paris.`\
-https://nytimes.com/athletic/5636961/2024/07/23/track-and-field-2024-paris-olympics-schedule-tv/
-
-**Harris is set to speak in the Milwaukee area. Here’s the latest.**\
-`By Nicholas Nehamas and Chris Cameron`\
-https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden/harris-is-set-to-speak-in-the-milwaukee-area-heres-the-latest
 
