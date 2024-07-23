@@ -1,3 +1,11 @@
+**Biden Should Have Treated Harris as a Future President**\
+`She was not set up for success.`\
+https://nytimes.com/2024/07/22/opinion/harris-biden-vice-president.html
+
+**Between Attacks on Electric Cars, Trump Says They’re ‘Incredible’**\
+`The former president’s comments on E.V.s have shifted since he has grown more friendly with Elon Musk, the billionaire Tesla founder.`\
+https://nytimes.com/2024/07/23/climate/trump-electric-vehicles-musk.html
+
 **Tony Petitti says Big Ten 'focused on 18 right now'**\
 `Petitti touted his league’s strength and position in an ever-changing college sports landscape.`\
 https://nytimes.com/athletic/5653307/2024/07/23/tony-petitti-big-ten-expansion/
