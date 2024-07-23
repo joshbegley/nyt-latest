@@ -1,3 +1,7 @@
+**Tari Eason opens up on lows of injury-riddled season and his journey back**\
+`"There was a point where I really was sad, a low point," Eason said of not playing. "I didn’t know what was going to happen."`\
+https://nytimes.com/athletic/5650732/2024/07/23/houston-rockets-tari-eason-interview-nba/
+
 **Why Team USA is willing to wait for Kevin Durant's Olympic debut: 'We need him out there'**\
 `Kevin Durant still hasn't set foot on the court for the Americans. But the team's all-time leading scorer brings something no one else can.`\
 https://nytimes.com/athletic/5651862/2024/07/23/kevin-durant-injury-olympics-debut-team-usa/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/us/politics/outside-groups-that-support-paid-fami
 **Wordle Review No. 1,131, Day of Week, July 24, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/23/crosswords/wordle-review-1131.html
-
-**The Connections Companion No. 409, July 24, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/23/crosswords/connections-companion-409.html
 
