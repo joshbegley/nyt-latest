@@ -1,3 +1,15 @@
+**Amari Cooper agrees to restructured contract with Browns, reports to training camp**\
+`The deal reportedly guarantees the $20 million remaining on Cooper's contract and includes an incentive package worth around $5 million.  `\
+https://nytimes.com/athletic/5653876/2024/07/23/browns-amari-cooper-restructured-contract/
+
+**Bears camp: Gervon Dexter preps for big role, defense stands tall in 2-minute drill**\
+`The Bears' D-line made big plays to keep Caleb Williams out of the end zone in the two-minute drill. Plus, Dexter's big opportunity.`\
+https://nytimes.com/athletic/5653863/2024/07/23/bears-camp-gervon-dexter-preps-for-big-role-defense-stands-tall-in-2-minute-drill/
+
+**Everton close in on deal to sign Lindstrom from Napoli**\
+`Everton are edging closer to a deal for Napoli winger Jesper Lindstrom.`\
+https://nytimes.com/athletic/5634909/2024/07/23/jesper-lindstrom-everton-napoli/
+
 **Harris Rallies Exuberant Democrats in Wisconsin: ‘The Baton Is in Our Hands’**\
 `Vice President Kamala Harris gave her first speech as the de facto Democratic nominee to a deafening crowd, keeping up her offensive against Donald Trump.`\
 https://nytimes.com/2024/07/23/us/politics/harris-speech-wisconsin-rally.html

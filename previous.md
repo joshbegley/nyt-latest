@@ -1,3 +1,15 @@
+**Amari Cooper agrees to restructured contract with Browns, reports to training camp**\
+`The deal reportedly guarantees the $20 million remaining on Cooper's contract and includes an incentive package worth around $5 million.  `\
+https://nytimes.com/athletic/5653876/2024/07/23/browns-amari-cooper-restructured-contract/
+
+**Bears camp: Gervon Dexter preps for big role, defense stands tall in 2-minute drill**\
+`The Bears' D-line made big plays to keep Caleb Williams out of the end zone in the two-minute drill. Plus, Dexter's big opportunity.`\
+https://nytimes.com/athletic/5653863/2024/07/23/bears-camp-gervon-dexter-preps-for-big-role-defense-stands-tall-in-2-minute-drill/
+
+**Everton close in on deal to sign Lindstrom from Napoli**\
+`Everton are edging closer to a deal for Napoli winger Jesper Lindstrom.`\
+https://nytimes.com/athletic/5634909/2024/07/23/jesper-lindstrom-everton-napoli/
+
 **Harris Rallies Exuberant Democrats in Wisconsin: ‘The Baton Is in Our Hands’**\
 `Vice President Kamala Harris gave her first speech as the de facto Democratic nominee to a deafening crowd, keeping up her offensive against Donald Trump.`\
 https://nytimes.com/2024/07/23/us/politics/harris-speech-wisconsin-rally.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/22/opinion/thepoint/candace-owens-trump-fundras
 **Travelers Delayed or Stuck by the CrowdStrike Outage: What Did Your Airline Provide?**\
 `The flight disruptions brought on by the global I.T. failure were deemed within the control of the airlines, meaning airlines have to reimburse passengers for meals, transportation and hotels. Did your carrier living up to the requirement?`\
 https://nytimes.com/2024/07/23/travel/outage-airlines-vouchers-hotel-refund.html
-
-**Caught in the CrowdStrike Outage? Here’s How to Get Compensated.**\
-`Air travelers paying for last-minute lodging and other expenses are entitled to be reimbursed if their flight was impacted by an event in the airline’s control, like the CrowdStrike failure. Here’s how to get your money back.`\
-https://nytimes.com/2024/07/23/travel/crowdstrike-tech-outage-flight-compensation.html
-
-**The Secret Service Has Failed Americans Since the Trump Shooting**\
-`Conspiracy theorists have been able to fill the information void with their own versions of the truth.`\
-https://nytimes.com/2024/07/23/opinion/trump-shooting-secret-service-conspiracy.html
-
-**Quinn and Peters set tone for Commanders camp, preach patience with Daniels**\
-`"When he's ready, we'll know. And when he's ready, he'll also know," Washington's new head coach said about the prized rookie QB. `\
-https://nytimes.com/athletic/5653716/2024/07/23/commanders-dan-quinn-adam-peters-jayden-daniels/
 
