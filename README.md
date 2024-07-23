@@ -1,3 +1,7 @@
+**Buckley: Jerod Mayo whistles while he works, says it's real now as Patriots begin camp**\
+`After six months of front-end preparation, Mayo was eager to commence with the actual coaching Tuesday. "It's about competition," he said. `\
+https://nytimes.com/athletic/5653650/2024/07/23/patriots-jerod-mayo-training-camp/
+
 **Who Might Run With Kamala Harris?**\
 `Readers offer both Democrats and Republicans as well as a retired general as possibilities. Also: A quick race; Trump’s age; Biden and Netanyahu.`\
 https://nytimes.com/2024/07/23/opinion/kamala-harris-vice-president.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/sports/charlotte-dujardin-equestrian-olympics-vid
 **Menendez Will Resign From Senate, Avoiding an Ugly, Intraparty Battle**\
 `Senator Robert Menendez of New Jersey was facing a possible expulsion vote after his conviction on federal corruption charges last Tuesday.`\
 https://nytimes.com/2024/07/23/nyregion/senator-bob-menendez-resignation.html
-
-**Until Saturday: Ohio State, Oregon step into spotlight at Big Ten media days**\
-`Welcome to Until Saturday, the five-star college football newsletter: Oregon and Ohio State likely will be the focus in Indianapolis. `\
-https://nytimes.com/athletic/5652782/2024/07/23/big-ten-ohio-state-oregon-g5-until-saturday/
 
