@@ -1,3 +1,11 @@
+**Stafford reporting to training camp with reworked contract**\
+`Stafford is coming off a 2023 season where he threw for 3,965 yards with 24 TDs and 11 interceptions.`\
+https://nytimes.com/athletic/5653568/2024/07/23/matthew-stafford-rams-training-camp/
+
+**Doug Emhoff attacks Trump over abortion during visit to Virginia clinic.**\
+`By Noah Weiland`\
+https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden/doug-emhoff-attacks-trump-over-abortion-during-visit-to-virginia-clinic
+
 **Trump Says He Is Willing to Debate Harris Multiple Times**\
 `But for the second time since President Biden dropped out of the race, he indicated he didn’t want the debate to be held by ABC News.`\
 https://nytimes.com/2024/07/23/us/politics/trump-kamala-harris-debate.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/23/realestate/2024-election-voters-leave-america.htm
 **Can Kamala Harris Finish Biden’s Climate Agenda?**\
 `If elected to the White House, Vice President Harris will face the challenge of implementing President Biden’s signature climate policies.`\
 https://nytimes.com/2024/07/23/climate/kamala-harris-biden-climate-policy.html
-
-**49ers' Aiyuk reports to camp despite requesting trade**\
-`The 49ers drafted wideout Ricky Pearsall in the first round in this year's draft, making Aiyuk's future past the 2024 season tenuous.`\
-https://nytimes.com/athletic/5653124/2024/07/23/brandon-aiyuk-training-camp-report-49ers/
-
-**The Antisemite Coming to the Trump Fund-Raiser**\
-`Maybe the campaign thought no one would notice.`\
-https://nytimes.com/live/2024/07/22/opinion/thepoint/candace-owens-trump-fundrasier
 
