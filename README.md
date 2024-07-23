@@ -2,7 +2,7 @@
 `With Vice President Kamala Harris locking up support, interviews with Democratic National Committee delegates indicated there was no consensus over whom she should pick as a running mate.`\
 https://nytimes.com/2024/07/23/us/politics/kamala-harris-delegates-vp.html
 
-**Senator Menendez’s resignation letter**\
+**Senator Menendez’s Resignation Letter**\
 `Senator Robert Menendez announced in a letter to Gov. Philip D. Murphy of New Jersey that he would resign as of Aug. 20.`\
 https://nytimes.com/interactive/2024/07/23/nyregion/menendez-letter.html
 
