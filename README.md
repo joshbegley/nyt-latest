@@ -1,3 +1,11 @@
+**USWNT defender Tierna Davidson on 'difficult situation' created by Korbin Albert's previous posts**\
+`U.`\
+https://nytimes.com/athletic/5654006/2024/07/23/uswnt-tierna-davidson-korbin-albert/
+
+**Michigan Man Ran Over 80-Year-Old Putting Up Trump Signs, Police Say**\
+`The suspect killed himself after a series of politically motivated incidents, including one that left the 80-year-old victim critically injured, law enforcement officials said.`\
+https://nytimes.com/2024/07/23/us/michigan-trump-signs-violence.html
+
 **This Version of Kamala Harris Is Having More Fun Than You**\
 `And she doesn’t care what anyone thinks of her.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/kamala-harris-brat-meme
@@ -30,12 +38,4 @@ https://nytimes.com/2024/07/23/us/politics/trump-netanyahu-mar-a-lago-meeting.ht
 **A different kind of noise as the Jets' second training camp with Aaron Rodgers opens**\
 `The quarterback isn't the one drawing attention as training camp practices are set to begin`\
 https://nytimes.com/athletic/5653772/2024/07/23/a-different-kind-of-noise-as-the-jets-second-training-camp-with-aaron-rodgers-opens/
-
-**Paul George introduced, 76ers anticipate 'a special season'**\
-`The best fit for George at this point is the fact that he will be without question the third option, which is probably where his game is.`\
-https://nytimes.com/athletic/5654010/2024/07/23/76ers-paul-george-introduction-news-conference/
-
-**Stafford reporting to training camp with reworked contract**\
-`Stafford is coming off a 2023 season where he threw for 3,965 yards with 24 TDs and 11 interceptions.`\
-https://nytimes.com/athletic/5653568/2024/07/23/matthew-stafford-rams-training-camp/
 
