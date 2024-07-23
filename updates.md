@@ -1,3 +1,7 @@
+**Transportation Department to Investigate Delta After Flight Delays**\
+`Pete Buttigieg, the transportation secretary, made the announcement after the airline suspended travel for unaccompanied minors.`\
+https://nytimes.com/2024/07/23/us/pete-buttigieg-delta-outage.html
+
 **Army Sees No Link to Blast Exposure in Maine Gunman’s Mental Issues**\
 `Investigators found lapses in the handling of a troubled reservist who went on to kill 18 people, but they rejected suggestions that his Army work had damaged his brain.`\
 https://nytimes.com/2024/07/23/us/maine-gunman-army-robert-card.html
