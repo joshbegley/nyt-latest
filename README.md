@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5654125/2024/07/23/george-kittle-49ers-training-cam
 https://nytimes.com/athletic/5654377/2024/07/23/vikings-christian-darrisaw-extension/
 
 **Rams QB Matthew Stafford's deal gets done — for many reasons**\
-`Reworking Stafford's contract is, of course, good for the Rams' QB, but it's also good for the rest of the team.`\
+`Reworking Stafford's contract is, of course, good for the quarterback, but it's also good for the rest of the team.`\
 https://nytimes.com/athletic/5654081/2024/07/23/rams-matthew-stafford-contract-quarterback/
 
 **Proposed Charter Revision Hints at Mayor Adams’s Spat With City Council**\
