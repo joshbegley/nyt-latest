@@ -1,3 +1,7 @@
+**Sean Payton wants Broncos training camp QB competition to unfold 'organically'**\
+`The Broncos won't give even reps to Bo Nix, Jarrett Stidham and Zach Wilson "for the long term," but they will "mix it up" to start camp`\
+https://nytimes.com/athletic/5653777/2024/07/23/sean-payton-broncos-training-camp-qbs/
+
 **Tiny Love Stories: ‘He Liked to Give Me Gifts’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/07/23/style/tiny-modern-love-stories-he-liked-to-give-me-gifts.html
