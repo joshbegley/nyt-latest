@@ -1,3 +1,19 @@
+**'My Guys': Raheem Mostert, Nico Collins and more of Renee Miller's must-haves for fantasy football 2024**\
+`Renee Miller reveals the players, like Raheem Mostert, she'll be most passionately looking to acquire in early 2024 fantasy football drafts.`\
+https://nytimes.com/athletic/5649436/2024/07/23/fantasy-football-2024-my-guys-raheem-mostert-nico-collins/
+
+**Nacho Alvarez makes highly anticipated debut, but Braves listless again in loss to Reds**\
+`The best position-player prospect in the Braves organization will take over at second base, with Whit Merrifield signed as insurance.`\
+https://nytimes.com/athletic/5652202/2024/07/23/braves-nacho-alvarez-debut-mlb/
+
+**Tuesday Briefing**\
+`Kamala Harris’s first campaign appearance.`\
+https://nytimes.com/2024/07/23/briefing/kamala-harris-gaza-strike.html
+
+**'My Guys': Derrick Henry, Kyle Pitts and more of Dane Martinez's key acquisitions for fantasy football 2024**\
+`Dane Martinez reveals the players, like Kyle Pitts, he'll be most passionately looking to acquire in early 2024 fantasy football drafts.`\
+https://nytimes.com/athletic/5649966/2024/07/23/fantasy-football-2024-my-guys-derrick-henry-kyle-pitts/
+
 **How the Trump Rally Gunman Had an Edge Over the Countersnipers**\
 `The Times recreated, in 3-D, the lines of sight for the three countersniper teams and the would-be assassin.`\
 https://nytimes.com/interactive/2024/07/23/us/trump-shooting-gunman-snipers.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5649909/2024/07/23/fantasy-football-2024-my-guys-ca
 **‘Right-sizing’ Manchester United - what it's like when INEOS 'rips off the Band-Aid'**\
 `After Man Utd staff were told of the club’s intention to cut 250 jobs, the room fell silent. We explore the realities of working for INEOS`\
 https://nytimes.com/athletic/5633918/2024/07/23/ineos-manchester-united-cuts/
-
-**Zone defense and pre-snap motion: Two NFL trends you should exploit for fantasy football success**\
-`Jake Ciely takes a deep-dive look at the rise in zone defenses and pre-snap motion, and how those developments impact fantasy football.`\
-https://nytimes.com/athletic/5635728/2024/07/23/zone-defense-and-pre-snap-motion-two-nfl-trends-you-should-exploit-for-fantasy-football-success/
-
-**What is Fantasy EFL? All you need to know about the Football League version of FPL**\
-`What is Fantasy EFL? How is it different from FPL? And how do you come up with that all-important punny team name? The Athletic explains all`\
-https://nytimes.com/athletic/5650661/2024/07/23/what-is-fantasy-efl-all-you-need-to-know-about-the-football-league-version-of-fpl/
-
-**How France became the Premier League's biggest shopping market**\
-`No other league has seen more more invested in it by English clubs in the last 10 years than Ligue 1 — but why?`\
-https://nytimes.com/athletic/5650712/2024/07/23/premier-league-transfers-ligue-1/
-
-**The Gold Medalist Starring in India’s Olympic Dreams**\
-`Neeraj Chopra’s triumph in Tokyo inspired athletes across the world’s most populous nation. Now his country is chasing a bigger prize: a chance to host the Games for the first time.`\
-https://nytimes.com/2024/07/23/world/asia/india-olympics-neeraj-chopra.html
 
