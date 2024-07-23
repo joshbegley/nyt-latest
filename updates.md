@@ -1,3 +1,7 @@
+**The D.N.C. lays out a timeline for when Harris’s nomination will be set in stone.**\
+`By Nicholas Nehamas`\
+https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden/the-dnc-lays-out-a-timeline-for-when-harriss-nomination-will-be-set-in-stone
+
 **A blueprint for a successful second half for the San Francisco Giants**\
 `It's not time for the Giants to give up. But it's certainly not time to keep trying the same things that got them here in the first place.`\
 https://nytimes.com/athletic/5653663/2024/07/23/sf-giants-blueprint-second-half-success/
