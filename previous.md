@@ -1,3 +1,7 @@
+**The Triumphant Comeback of the Kamala Harris Meme**\
+`The same unflattering supercuts and Photoshop jobs once used to denigrate Harris have now been flipped into celebratory artifacts of her candidacy.`\
+https://nytimes.com/2024/07/23/arts/kamala-harris-tiktok-trump.html
+
 **Biden Plans to Address the Nation on Wednesday Night**\
 `In announcing the address, President Biden said he would discuss “what lies ahead, and how I will finish the job for the American people.”`\
 https://nytimes.com/2024/07/23/us/politics/biden-address-nation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5652567/2024/07/23/khiara-keating-manchester-city-c
 **A Fabled Washington Home, Kept Empty by a 22-Year Battle**\
 `The home of Katharine Graham, the former Washington Post publisher, was once a hub of power and comity. But after an “insane” renovation spat, its new owner is looking to sell.`\
 https://nytimes.com/2024/07/23/us/politics/katharine-graham-house-georgetown.html
-
-**Patriots enter camp with Brissett as QB1, leave door open for Maye**\
-`New England signed Brissett to a one-year, $8 million contract this offseason.`\
-https://nytimes.com/athletic/5653207/2024/07/23/patriots-jacoby-brissett-starter/
 

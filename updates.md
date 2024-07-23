@@ -1,3 +1,7 @@
+**The Triumphant Comeback of the Kamala Harris Meme**\
+`The same unflattering supercuts and Photoshop jobs once used to denigrate Harris have now been flipped into celebratory artifacts of her candidacy.`\
+https://nytimes.com/2024/07/23/arts/kamala-harris-tiktok-trump.html
+
 **Biden Plans to Address the Nation on Wednesday Night**\
 `In announcing the address, President Biden said he would discuss “what lies ahead, and how I will finish the job for the American people.”`\
 https://nytimes.com/2024/07/23/us/politics/biden-address-nation.html
