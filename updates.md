@@ -1,3 +1,7 @@
+**Have Immigrants Been Taking Away Our Jobs?**\
+`Why the economic impact of immigration is positive.`\
+https://nytimes.com/2024/07/23/opinion/immigration-unemployment-inflation.html
+
 **Vance Adjusts to His New Role, Aboard a Plane With His Name on It**\
 `As Donald Trump’s running mate, JD Vance has his own jet to fly him across the country. On Monday, he was still getting comfortable, both on the ground and in the air.`\
 https://nytimes.com/2024/07/23/us/politics/vance-trump-campaign.html
