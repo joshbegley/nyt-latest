@@ -1,3 +1,11 @@
+**Macron Rejects French Left’s Pick for Prime Minister**\
+`The left-wing parties stopped quarreling and tapped a little-known civil servant for the job. But President Emmanuel Macron said he would not appoint anyone until after the Paris Summer Olympics.`\
+https://nytimes.com/2024/07/23/world/europe/france-macron-left-wing-prime-minister.html
+
+**Alphabet Reports a 29% Jump in Profit**\
+`Google’s parent company narrowly topped revenue and profit expectations, driven by its search engine, while growth in YouTube ad sales fell short.`\
+https://nytimes.com/2024/07/23/technology/alphabet-google-earnings.html
+
 **USWNT defender Tierna Davidson on 'difficult situation' created by Korbin Albert's previous posts**\
 `U.`\
 https://nytimes.com/athletic/5654006/2024/07/23/uswnt-tierna-davidson-korbin-albert/
@@ -30,12 +38,4 @@ https://nytimes.com/2024/07/23/business/tesla-q2-earnings-elon-musk.html
 `Evason was hired by a team looking for a stronger personality and a firmer hand from its coach.
 `\
 https://nytimes.com/athletic/5653439/2024/07/23/blue-jackets-coach-dean-evason/
-
-**Trump Announces He Will Meet with Netanyahu on Friday at Mar-a-Lago**\
-`The pair, who were close allies, will meet after the Israeli prime minister gives a speech to Congress and meets with President Biden at the White House.`\
-https://nytimes.com/2024/07/23/us/politics/trump-netanyahu-mar-a-lago-meeting.html
-
-**A different kind of noise as the Jets' second training camp with Aaron Rodgers opens**\
-`The quarterback isn't the one drawing attention as training camp practices are set to begin`\
-https://nytimes.com/athletic/5653772/2024/07/23/a-different-kind-of-noise-as-the-jets-second-training-camp-with-aaron-rodgers-opens/
 
