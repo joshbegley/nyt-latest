@@ -1,3 +1,11 @@
+**When All Else Fails, Blame the Dogs**\
+`Turkey’s four million stray dogs are inseparable from the idea of the country itself. But maybe not for much longer.`\
+https://nytimes.com/2024/07/23/opinion/turkey-stray-dogs.html
+
+**Fantasy football sleepers: Jayden Daniels, Jaxon Smith-Njigba and more staff picks**\
+`The Athletic fantasy football staff offers up their favorite sleepers for fantasy football 2024, including Seattle's Jaxon Smith-Njigba.`\
+https://nytimes.com/athletic/5649887/2024/07/23/fantasy-football-sleepers-staff-picks-from-jayden-daniels-to-jaxon-smith-njigba-and-more/
+
 **IDP rankings for fantasy football 2024: Top 100 overall, top 50 by position; plus undervalued, overvalued and sleepers**\
 `Gary Davenport is here to help IDP league managers with his rankings, sleepers, undervalues and overvalues at all the defensive positions.`\
 https://nytimes.com/athletic/5647603/2024/07/23/fantasy-football-2024-idp-rankings-top-100/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5553920/2024/07/23/aston-villa-west-brom-academy-ta
 **'My Guys': Bijan Robinson, Chris Godwin and more of Jay Felicio's priority targets for fantasy football 2024**\
 `Jay Felicio reveals the players, like Bijan Robinson, he'll be most passionately looking to acquire in early 2024 fantasy football drafts.`\
 https://nytimes.com/athletic/5649839/2024/07/23/fantasy-football-2024-my-guys-bijan-robinson-chris-godwin/
-
-**How Hurzeler can get the best out of seven key Brighton players hit by injury last season**\
-`The manager will be confident he can mould those returning from the sidelines into the types of players that will benefit his system`\
-https://nytimes.com/athletic/5596996/2024/07/23/hurzeler-brighton-injured-players/
-
-**'My Guys': Caleb Williams, Amari Cooper and more from Gary Davenport's wish list for fantasy football 2024**\
-`Gary Davenport reveals the players, like Caleb Williams, he'll be most passionately looking to select in early 2024 fantasy football drafts.`\
-https://nytimes.com/athletic/5649909/2024/07/23/fantasy-football-2024-my-guys-caleb-williams-amari-cooper/
 

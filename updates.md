@@ -1,3 +1,11 @@
+**When All Else Fails, Blame the Dogs**\
+`Turkey’s four million stray dogs are inseparable from the idea of the country itself. But maybe not for much longer.`\
+https://nytimes.com/2024/07/23/opinion/turkey-stray-dogs.html
+
+**Fantasy football sleepers: Jayden Daniels, Jaxon Smith-Njigba and more staff picks**\
+`The Athletic fantasy football staff offers up their favorite sleepers for fantasy football 2024, including Seattle's Jaxon Smith-Njigba.`\
+https://nytimes.com/athletic/5649887/2024/07/23/fantasy-football-sleepers-staff-picks-from-jayden-daniels-to-jaxon-smith-njigba-and-more/
+
 **Nacho Alvarez makes highly anticipated debut, but listless Braves lose to Reds**\
 `The best position-player prospect in the Braves organization will take over at second base, with Whit Merrifield signed as insurance.`\
 https://nytimes.com/athletic/5652202/2024/07/23/braves-nacho-alvarez-debut-mlb/
