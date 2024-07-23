@@ -1,3 +1,7 @@
+**Warner Bros. Discovery Says It Has Matched a Rival Bid for N.B.A. TV Deal**\
+`The company, a longtime broadcaster of N.B.A. games, is trying to keep the lucrative broadcast rights as the league negotiates a new contract.`\
+https://nytimes.com/2024/07/22/business/warner-bros-discovery-amazon-nba-rights.html
+
 **Kamala Harris will meet with Benjamin Netanyahu this week, but will miss his address to Congress.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/kamala-harris-will-meet-with-benjamin-netanyahu-this-week-but-will-miss-his-address-to-congress
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/elections/100000009586735/secret-service-hearing-tr
 **Harris Seizes Control, Clearing Field, Raising Cash and Slamming Trump**\
 `On her first full day in the race, Kamala Harris was endorsed by her final possible rivals, appeared at what had been the Biden campaign headquarters and stepped up her search for a running mate.`\
 https://nytimes.com/2024/07/22/us/politics/kamala-harris-trump-2024-election.html
-
-**Judge Who Threatened to Shoot Black Teens Should Be Removed, Panel Says**\
-`Justice Erin P. Gall of upstate New York engaged in a “racially offensive, profane” diatribe after people crashed a large party she was attending, a disciplinary body found.`\
-https://nytimes.com/2024/07/22/nyregion/judge-erin-gall-party-ny-supreme-court.html
 
