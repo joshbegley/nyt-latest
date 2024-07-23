@@ -1,3 +1,7 @@
+**Trump campaign files complaint over transfer of Biden funds to Harris.**\
+`By Maggie Haberman`\
+https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden/trump-campaign-files-complaint-over-transfer-of-biden-funds-to-harris
+
 **Harris Holds First Rally as the Likely Democratic Nominee**\
 `Vice President Kamala Harris listed her campaign pledges, which included expanding abortion rights, building a strong middle class and protecting unions.`\
 https://nytimes.com/video/us/politics/100000009588095/harris-speech-wisconsin-rally.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/briefing/kamala-harris-delegates-secret-service.h
 **Sean Payton wants Broncos training camp QB competition to unfold 'organically'**\
 `The Broncos won't give even reps to Bo Nix, Jarrett Stidham and Zach Wilson "for the long term," but they will "mix it up" to start camp`\
 https://nytimes.com/athletic/5653777/2024/07/23/sean-payton-broncos-training-camp-qbs/
-
-**Panthers are playing the long game, but it all hinges on Bryce Young**\
-`Coming off a 2-15 season, Bryce Young and the Panthers have goals for 2024 and beyond. "That's a big-picture thing," the QB said.`\
-https://nytimes.com/athletic/5653874/2024/07/23/carolina-panthers-bryce-young-future-success/
 
