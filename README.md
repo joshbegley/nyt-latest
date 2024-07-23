@@ -18,6 +18,10 @@ https://nytimes.com/athletic/5650793/2024/07/23/raiders-training-camp-quarterbac
 `No fan should ever be put in the position to root against their own team.`\
 https://nytimes.com/athletic/5650852/2024/07/23/blackhawks-tanking-lazerus-mailbag/
 
+**Can 'good village' around Bo Nix prepare Broncos' rookie QB to start Week 1?**\
+`Nix is trying to win a three-way battle for the starting job, but the Broncos must also prioritize the rookie's long-term development.`\
+https://nytimes.com/athletic/5650934/2024/07/23/bo-nix-broncos-training-camp/
+
 **Sewage Spill Spoils Summer Plans at Two Los Angeles Beaches**\
 `An estimated 15,000 gallons of sewage spilled into a creek near Venice and Dockweiler State beaches on Saturday, officials said, causing them to be shut down.`\
 https://nytimes.com/2024/07/23/us/los-angeles-sewage-spill-beaches-venice.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5651714/2024/07/23/mason-greenwood-man-united-getaf
 **Premier League joins legal action over 'beyond saturated' FIFA calendar**\
 `The Premier League is part of a formal complaint being made to the European Commission against FIFA, accusing world football&#8217;s governing body&#8217;s international match calendar of being &#8220;beyond saturation&#8221;.`\
 https://nytimes.com/athletic/5652381/2024/07/23/premier-league-legal-action-fifa-calendar/
-
-**As the Astros reconfigure their bench, Chas McCormick's struggles are magnified**\
-`It's worth asking whether someone else could take McCormick's place on the Astros' bench.`\
-https://nytimes.com/athletic/5652159/2024/07/23/astros-chas-mccormick-struggles-analysis/
 
