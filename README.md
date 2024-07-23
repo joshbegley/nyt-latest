@@ -1,3 +1,7 @@
+**Secret Service Director Resigns After Trump Assassination Attempt**\
+`Kimberly A. Cheatle gave up her post after security failures that allowed a gunman to shoot at former President Donald J. Trump at an open-air rally.`\
+https://nytimes.com/2024/07/23/us/politics/cheatle-secret-service-director-resigns.html
+
 **Two Landslides Kill More Than 150 People in Ethiopia**\
 `A waterlogged hillside above a village gave way, burying several houses in mud. Neighbors and rescue workers who had rushed to help were hit by a second slide.`\
 https://nytimes.com/2024/07/23/world/landslides-ethiopia-village.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/us/maine-gunman-army-robert-card.html
 **Art Student Pulls Off a (Very Brief) Coin Heist at the British Museum**\
 `The artist aimed to use sleight of hand to point to what he described as the museum’s problematic legacy of colonial-era acquisitions.`\
 https://nytimes.com/2024/07/23/world/europe/british-museum-coin-fake.html
-
-**Jets' Haason Reddick holds out for start of training camp**\
-`After the trade in March, Reddick told reporters as it relates to his contract that “whatever happens, I’m going to be happy."`\
-https://nytimes.com/athletic/5652718/2024/07/23/haason-reddick-holdout-jets/
 
