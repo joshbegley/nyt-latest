@@ -1,3 +1,11 @@
+**Army Sees No Link to Blast Exposure in Maine Gunman’s Mental Issues**\
+`Investigators found lapses in the handling of a troubled reservist who went on to kill 18 people, but they rejected suggestions that his Army work had damaged his brain.`\
+https://nytimes.com/2024/07/23/us/maine-gunman-army-robert-card.html
+
+**Art Student Pulls Off a (Very Brief) Coin Heist at the British Museum**\
+`The artist aimed to use sleight of hand to point to what he described as the museum’s problematic legacy of colonial-era acquisitions.`\
+https://nytimes.com/2024/07/23/world/europe/british-museum-coin-fake.html
+
 **Jets' Haason Reddick holds out for start of training camp**\
 `After the trade in March, Reddick told reporters as it relates to his contract that “whatever happens, I’m going to be happy."`\
 https://nytimes.com/athletic/5652718/2024/07/23/haason-reddick-holdout-jets/
