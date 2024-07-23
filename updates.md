@@ -1,3 +1,7 @@
+**The Transfer DealSheet: Ivan Toney latest, De Gea future, PSG want Williams**\
+`This is your weekly update on everything that is going on in the world of football transfers`\
+https://nytimes.com/athletic/5650178/2024/07/23/manchester-united-transfer-latest-arsenal-liverpool-real-madrid/
+
 **Twins rebound behind Bailey Ober to beat Phillies as reinforcements are ready to return**\
 `Royce Lewis and Jose Miranda could return later this week in Detroit, and Carlos Correa has a target return date in mind.`\
 https://nytimes.com/athletic/5652247/2024/07/23/twins-bailey-ober-beat-phillies/
