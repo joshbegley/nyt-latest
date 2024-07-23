@@ -1,3 +1,7 @@
+**Harris Has Enough Support for a Nomination. Here’s Which State Delegations Endorsed Her.**\
+`In a show of party unity, state delegations have endorsed Vice President Kamala Harris, giving her more than enough delegates to clinch the Democratic Party's nomination.`\
+https://nytimes.com/interactive/2024/07/22/us/politics/harris-democratic-nominee-endorsements.html
+
 **Dodgers cut James Paxton, still seeking 'impact' starting pitching at the deadline**\
 `There should be a market for Paxton, but it was hard to see a scenario where he would make starts for the Dodgers in October.`\
 https://nytimes.com/athletic/5652044/2024/07/22/dodgers-james-paxton-trade-deadline/
