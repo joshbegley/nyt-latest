@@ -1,3 +1,11 @@
+**Stafford reporting to training camp with reworked contract**\
+`Stafford is coming off a 2023 season where he threw for 3,965 yards with 24 TDs and 11 interceptions.`\
+https://nytimes.com/athletic/5653568/2024/07/23/matthew-stafford-rams-training-camp/
+
+**Doug Emhoff attacks Trump over abortion during visit to Virginia clinic.**\
+`By Noah Weiland`\
+https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden/doug-emhoff-attacks-trump-over-abortion-during-visit-to-virginia-clinic
+
 **Trump Says He Is Willing to Debate Harris Multiple Times**\
 `But for the second time since President Biden dropped out of the race, he indicated he didn’t want the debate to be held by ABC News.`\
 https://nytimes.com/2024/07/23/us/politics/trump-kamala-harris-debate.html
