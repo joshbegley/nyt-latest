@@ -1,3 +1,11 @@
+**An Unbending Leader’s Crackdown Rains Carnage on Bangladesh**\
+`Prime Minister Sheikh Hasina’s deadly response to student-led protests has grown into the biggest challenge ever to her dominance.`\
+https://nytimes.com/2024/07/23/world/asia/bangladesh-protests-sheikh-hasina.html
+
+**Transportation Department to Investigate Delta Air Lines**\
+`The department opened an investigation into Delta Air Lines’ treatment of passengers after a widespread tech outage disrupted air travel worldwide on Friday.`\
+https://nytimes.com/video/us/100000009587481/delta-airlines-flight-disruptions.html
+
 **8 New Songs You Should Hear Now**\
 `Listen to songs by Clairo, Dawn Richard and Sturgill Simpson plus more.`\
 https://nytimes.com/2024/07/23/arts/music/amplifier-newsletter-clairo-new-songs.html

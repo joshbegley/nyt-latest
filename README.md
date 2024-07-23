@@ -11,7 +11,7 @@ https://nytimes.com/video/us/100000009587481/delta-airlines-flight-disruptions.h
 https://nytimes.com/2024/07/23/arts/music/amplifier-newsletter-clairo-new-songs.html
 
 **U.A.W. Holds Off on Endorsing Harris**\
-`Unlike other prominent unions, the auto workers are taking their time to ensure that the vice president is aligned with it on key policy questions.`\
+`Unlike other prominent unions, the auto workers are taking their time to ensure that the vice president is aligned with them on key policy questions.`\
 https://nytimes.com/2024/07/23/us/politics/uaw-harris-endorsement.html
 
 **Top British Equestrian Out of Olympics Over Video**\

@@ -1,3 +1,11 @@
+**An Unbending Leader’s Crackdown Rains Carnage on Bangladesh**\
+`Prime Minister Sheikh Hasina’s deadly response to student-led protests has grown into the biggest challenge ever to her dominance.`\
+https://nytimes.com/2024/07/23/world/asia/bangladesh-protests-sheikh-hasina.html
+
+**Transportation Department to Investigate Delta Air Lines**\
+`The department opened an investigation into Delta Air Lines’ treatment of passengers after a widespread tech outage disrupted air travel worldwide on Friday.`\
+https://nytimes.com/video/us/100000009587481/delta-airlines-flight-disruptions.html
+
 **8 New Songs You Should Hear Now**\
 `Listen to songs by Clairo, Dawn Richard and Sturgill Simpson plus more.`\
 https://nytimes.com/2024/07/23/arts/music/amplifier-newsletter-clairo-new-songs.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/23/arts/design/matthew-barney-review-gladstone.html
 **Walter Shapiro, Political Columnist With a Contrarian Streak, Dies at 77**\
 `He brought to his writing a sharp sense of humor, honed in stand-up comedy clubs, and never pulled punches even though he was an unabashed Democrat.`\
 https://nytimes.com/2024/07/23/business/media/walter-shapiro-dead.html
-
-**Biden Should Have Treated Harris as a Future President**\
-`She was not set up for success.`\
-https://nytimes.com/2024/07/22/opinion/harris-biden-vice-president.html
-
-**Between Attacks on Electric Cars, Trump Says They’re ‘Incredible’**\
-`The former president’s comments on E.V.s have shifted since he has grown more friendly with Elon Musk, the billionaire Tesla founder.`\
-https://nytimes.com/2024/07/23/climate/trump-electric-vehicles-musk.html
 
