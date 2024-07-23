@@ -1,3 +1,11 @@
+**Packers training camp: 'Crazy' defensive line showing out on first two days**\
+`Under new defensive coordinator Jeff Hafley, the Packers' defensive line has a different mindset from last season.`\
+https://nytimes.com/athletic/5653964/2024/07/23/packers-training-camp-defensive-line/
+
+**Police Commander Provides More Details on Trump Rally Shooting**\
+`A Pennsylvania State Police colonel testifying before a House panel gave more answers about security for the rally than the Secret Service director had, but raised more questions.`\
+https://nytimes.com/2024/07/23/us/politics/trump-rally-shooting-police.html
+
 **Hillary Clinton: I Know Kamala Harris Can Beat Donald Trump**\
 `I’ve been called a witch, a “nasty woman” and much worse. Harris will face unique additional challenges. But we shouldn’t be afraid.`\
 https://nytimes.com/2024/07/23/opinion/kamala-harris-donald-trump.html
@@ -15,7 +23,7 @@ https://nytimes.com/live/2024/07/23/world/israel-gaza-war-hamas/for-the-second-t
 https://nytimes.com/2024/07/23/style/beyonce-kamala-harris-freedom.html
 
 **Judge Refuses to Block F.T.C.’s Noncompete Ban as Lawsuits Play Out**\
-`A federal judge in Pennsylvania denied a request to delay the rule, siding with the agency and diverging from a Texas court’s decision earlier this month.`\
+`A federal judge in Pennsylvania denied a request to delay the rule, siding with the agency and diverging from another court’s decision earlier this month.`\
 https://nytimes.com/2024/07/23/business/economy/noncompete-ban-ftc.html
 
 **The Secret Service Director Resigned**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/23/style/blind-barbie-mattel.html
 **‘Deadpool & Wolverine’ Review: Nothing Ever Ends**\
 `The wisecracking semi-hero is back, but now he’s part of a bigger universe.`\
 https://nytimes.com/2024/07/23/movies/deadpool-and-wolverine-review.html
-
-**Tiny Love Stories: ‘He Liked to Give Me Gifts’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/07/23/style/tiny-modern-love-stories-he-liked-to-give-me-gifts.html
-
-**Trump campaign files complaint over transfer of Biden funds to Harris.**\
-`By Maggie Haberman`\
-https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden/trump-campaign-files-complaint-over-transfer-of-biden-funds-to-harris
 
