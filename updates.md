@@ -1,3 +1,7 @@
+**Can 'good village' around Bo Nix prepare Broncos' rookie QB to start Week 1?**\
+`Nix is trying to win a three-way battle for the starting job, but the Broncos must also prioritize the rookie's long-term development.`\
+https://nytimes.com/athletic/5650934/2024/07/23/bo-nix-broncos-training-camp/
+
 **Harris is set to speak in the Milwaukee area. Here’s the latest.**\
 `By Nicholas Nehamas and Chris Cameron`\
 https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden/harris-is-set-to-speak-in-the-milwaukee-area-heres-the-latest
