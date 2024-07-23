@@ -1,3 +1,7 @@
+**De Bruyne 'not leaving' Manchester City this summer - Guardiola**\
+`Manchester City head coach Pep Guardiola has ruled out the prospect of Kevin de Bruyne leaving the club this summer.`\
+https://nytimes.com/athletic/5652350/2024/07/23/kevin-de-bruyne-manchester-city-transfer/
+
 **Fantasy football 2024 outlooks for Nick Chubb, T.J. Hockenson and more players returning from injury**\
 `Greg Scholz of Inside Injuries offers insights into the players, like Nick Chubb and T.J. Hockenson, looking to return from injury in 2024.`\
 https://nytimes.com/athletic/5645915/2024/07/23/nfl-fantasy-football-injury-report-nick-chubb-tj-hockenson/
