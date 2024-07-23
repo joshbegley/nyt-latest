@@ -1,3 +1,19 @@
+**How the Trump Rally Gunman Had an Edge Over the Countersnipers**\
+`The Times recreated, in 3-D, the lines of sight for the three countersniper teams and the would-be assassin.`\
+https://nytimes.com/interactive/2024/07/23/us/trump-shooting-gunman-snipers.html
+
+**Aston Villa vs West Brom: Two clubs battling for supremacy in the same talent pool**\
+`A number of players and coaches at academy level have moved from West Brom to Aston Villa in recent years - this is why`\
+https://nytimes.com/athletic/5553920/2024/07/23/aston-villa-west-brom-academy-talent-rivalry/
+
+**'My Guys': Bijan Robinson, Chris Godwin and more of Jay Felicio's priority targets for fantasy football 2024**\
+`Jay Felicio reveals the players, like Bijan Robinson, he'll be most passionately looking to acquire in early 2024 fantasy football drafts.`\
+https://nytimes.com/athletic/5649839/2024/07/23/fantasy-football-2024-my-guys-bijan-robinson-chris-godwin/
+
+**How Hurzeler can get the best out of seven key Brighton players hit by injury last season**\
+`The manager will be confident he can mould those returning from the sidelines into the types of players that will benefit his system`\
+https://nytimes.com/athletic/5596996/2024/07/23/hurzeler-brighton-injured-players/
+
 **'My Guys': Caleb Williams, Amari Cooper and more from Gary Davenport's wish list for fantasy football 2024**\
 `Gary Davenport reveals the players, like Caleb Williams, he'll be most passionately looking to select in early 2024 fantasy football drafts.`\
 https://nytimes.com/athletic/5649909/2024/07/23/fantasy-football-2024-my-guys-caleb-williams-amari-cooper/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5650712/2024/07/23/premier-league-transfers-ligue-1
 **The Gold Medalist Starring in India’s Olympic Dreams**\
 `Neeraj Chopra’s triumph in Tokyo inspired athletes across the world’s most populous nation. Now his country is chasing a bigger prize: a chance to host the Games for the first time.`\
 https://nytimes.com/2024/07/23/world/asia/india-olympics-neeraj-chopra.html
-
-**'My Guys': Kyler Murray, Cooper Kupp and more of Dom Petrillo's passion picks for fantasy football 2024**\
-`Dom Petrillo reveals the players, like Kyler Murray, he'll be most passionately looking to acquire in early 2024 fantasy football drafts.`\
-https://nytimes.com/athletic/5641264/2024/07/23/fantasy-football-2024-my-guys-cooper-kupp-kyler-murray/
-
-**What Caldentey and Miedema signings tell us about Arsenal and City plans for new WSL season**\
-`Will Arsenal or Manchester City beat Chelsea to the title now Emma Hayes has gone?`\
-https://nytimes.com/athletic/5650627/2024/07/23/caldentey-miedema-arsenal-manchester/
-
-**When Pakistan Tightened a Border, Thousands of Lives Were Upended**\
-`Traders in Chaman have done business in Afghanistan for generations, but that stopped when officials made it much harder to cross.`\
-https://nytimes.com/2024/07/23/world/asia/chaman-border-pakistan-afghanistan.html
-
-**Tuesday's MLB odds, best bets: Pitching matchups, playoff odds, props and more**\
-`See pitching matchups, playoff projections, win projections and more for Tuesday's MLB games.`\
-https://nytimes.com/athletic/5651447/2024/07/23/mlb-odds-best-bets-projections-july-23/
 
