@@ -1,3 +1,7 @@
+**Can Kamala Harris Finish Biden’s Climate Agenda?**\
+`If elected to the White House, Vice President Harris will face the challenge of implementing President Biden’s signature climate policies.`\
+https://nytimes.com/2024/07/23/climate/kamala-harris-biden-climate-policy.html
+
 **49ers' Aiyuk reports to camp despite requesting trade**\
 `The 49ers drafted wideout Ricky Pearsall in the first round in this year's draft, making Aiyuk's future past the 2024 season tenuous.`\
 https://nytimes.com/athletic/5653124/2024/07/23/brandon-aiyuk-training-camp-report-49ers/
