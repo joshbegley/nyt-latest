@@ -1,3 +1,7 @@
+**As Phillies stumble again, Ranger Suárez shows progress born from a longer break**\
+`He did not look like the dominant Suárez from earlier this season. But he was better than the recent version.`\
+https://nytimes.com/athletic/5652255/2024/07/23/phillies-ranger-suarez-innings-twins/
+
 **2024 fantasy football cheat sheet: A fully customizable rankings and projections generator**\
 `Ready to win your fantasy football leagues with a customizable set of rankings and projections? Jake Ciely shows you the way!`\
 https://nytimes.com/athletic/5475262/2024/07/23/2024-fantasy-football-cheat-sheet-generator-customizable-rankings-and-projections-tool/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/briefing/kamala-harris-gaza-strike.html
 **'My Guys': Derrick Henry, Kyle Pitts and more of Dane Martinez's key acquisitions for fantasy football 2024**\
 `Dane Martinez reveals the players, like Kyle Pitts, he'll be most passionately looking to acquire in early 2024 fantasy football drafts.`\
 https://nytimes.com/athletic/5649966/2024/07/23/fantasy-football-2024-my-guys-derrick-henry-kyle-pitts/
-
-**How the Trump Rally Gunman Had an Edge Over the Countersnipers**\
-`The Times recreated, in 3-D, the lines of sight for the three countersniper teams and the would-be assassin.`\
-https://nytimes.com/interactive/2024/07/23/us/trump-shooting-gunman-snipers.html
 
