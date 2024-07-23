@@ -1,3 +1,7 @@
+**Vikings tackle Christian Darrisaw signs massive extension worth up to $113M**\
+`The 25-year-old's new deal hoists him to the top of NFL left tackles in terms of average annual value.`\
+https://nytimes.com/athletic/5654377/2024/07/23/vikings-christian-darrisaw-extension/
+
 **Rams QB Matthew Stafford's deal gets done — for many reasons**\
 `Reworking Stafford's contract is, of course, good for the Rams' QB, but it's also good for the rest of the team.`\
 https://nytimes.com/athletic/5654081/2024/07/23/rams-matthew-stafford-contract-quarterback/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/23/us/politics/polls-biden-trump-debate-
 **Ex-Military Police Officer Sentenced to Prison for Role in Capitol Riot**\
 `Gregory C. Yetman, the subject of a manhunt last fall, admitted to pepper-spraying law enforcement officers during the Jan. 6, 2021, attack.`\
 https://nytimes.com/2024/07/23/nyregion/jan-6-gregory-yetman-sentenced.html
-
-**Harris’s Views on Israel Are in the Spotlight as Netanyahu Visits Washington**\
-`The vice president will be closely watched this week for signs of her approach to the war in Gaza should she win the White House in November.`\
-https://nytimes.com/2024/07/23/us/politics/harris-netanyahu-israel-gaza.html
 

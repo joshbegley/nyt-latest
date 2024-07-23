@@ -1,3 +1,7 @@
+**Vikings tackle Christian Darrisaw signs massive extension worth up to $113M**\
+`The 25-year-old's new deal hoists him to the top of NFL left tackles in terms of average annual value.`\
+https://nytimes.com/athletic/5654377/2024/07/23/vikings-christian-darrisaw-extension/
+
 **Rams QB Matthew Stafford's deal gets done — for many reasons**\
 `Reworking Stafford's contract is, of course, good for the Rams' QB, but it's also good for the rest of the team.`\
 https://nytimes.com/athletic/5654081/2024/07/23/rams-matthew-stafford-contract-quarterback/
