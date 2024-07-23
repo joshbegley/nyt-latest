@@ -1,3 +1,11 @@
+**Full Time: Bookmark this USWNT guide for the Olympics**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/5651877/2024/07/22/us-womens-national-team-olympics-roster-guide-full-time/
+
+**Nursing Home Owner Gets 3 Years’ Probation in Deadly Hurricane Evacuation**\
+`Bob Glynn Dean Jr. of Louisiana, who pleaded no contest to cruelty to the infirmed, Medicaid fraud and other criminal charges, will avoid prison time if he successfully completes probation.`\
+https://nytimes.com/2024/07/22/us/bob-dean-ida-nursing-home-owner.html
+
 **Congress Calls for Tech Outage Hearing to Grill Executive**\
 `The House Homeland Security Committee called on the chief executive of the cybersecurity firm CrowdStrike to testify on the disruption.`\
 https://nytimes.com/2024/07/22/technology/crowdstrike-outage-congress-hearing.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/22/nyregion/judge-erin-gall-party-ny-supreme-court.h
 **Wife of Yankees executive Omar Minaya dies at 55**\
 `Minaya died Saturday after she was found unconscious in a private residence in Harrington Park, N.J.`\
 https://nytimes.com/athletic/5651717/2024/07/22/rachel-minaya-death-omar-yankees/
-
-**Democrats Will Select Nominee by Aug. 7 in an Online Vote**\
-`The party, which has rapidly consolidated behind Vice President Kamala Harris to replace President Biden, did not set an exact date for the vote.`\
-https://nytimes.com/2024/07/22/us/politics/democrats-pick-nominee-aug-7.html
-
-**Assessing the Contentious Hearing on the Secret Service**\
-`We look at claims made by lawmakers and the director of the Secret Service during a hearing on the agency’s handling of the attempted assassination of former President Donald J. Trump.`\
-https://nytimes.com/2024/07/22/us/politics/secret-service-cheatle-hearing-fact-check.html
 
