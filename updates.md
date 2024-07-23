@@ -1,3 +1,11 @@
+**Dodgers cut James Paxton, still seeking 'impact' starting pitching at the deadline**\
+`There should be a market for Paxton, but it was hard to see a scenario where he would make starts for the Dodgers in October.`\
+https://nytimes.com/athletic/5652044/2024/07/22/dodgers-james-paxton-trade-deadline/
+
+**Four takeaways on the Cubs’ likely sell-off at the looming trade deadline   **\
+`The Cubs are putting the focus on 2025. What does that mean for Chicago's roster?`\
+https://nytimes.com/athletic/5652069/2024/07/22/takeaways-cubs-sell-off-trade-deadline/
+
 **The Gold Medalist Starring in India’s Olympic Dreams**\
 `Neeraj Chopra’s triumph in Tokyo inspired athletes across the world’s most populous nation. Now his country is chasing a bigger prize: a chance to host the Games for the first time.`\
 https://nytimes.com/2024/07/23/world/asia/india-olympics-neeraj-chopra.html
