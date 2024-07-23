@@ -1,3 +1,7 @@
+**Noriko Ohara, Who Gave Voice to Nobita in ‘Doraemon,’ Dies at 88**\
+`Her voice became widely recognized in Japan after she starred in animated shows watched by nearly every child in the country and beyond.`\
+https://nytimes.com/2024/07/23/arts/noriko-ohara-dead.html
+
 **Bordeaux relegated after Liverpool owner FSG withdraws from takeover talks**\
 `Bordeaux have been administratively relegated to the third tier of French football after Liverpool&#8217;s owner Fenway Sports Group (FSG) withdrew from takeover talks.`\
 https://nytimes.com/athletic/5652410/2024/07/23/bordeaux-relegated-fsg-takeover-liverpool/
