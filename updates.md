@@ -43,6 +43,11 @@ https://nytimes.com/athletic/5653439/2024/07/23/blue-jackets-coach-dean-evason/
 `\
 https://nytimes.com/athletic/5653439/2024/07/23/blue-jackets-coach-dean-evason/
 
+**Blue Jackets drawn to coach Dean Evason's passion and his demand for accountability**\
+`Evason was hired by a team looking for a stronger personality and a firmer hand from its coach.
+`\
+https://nytimes.com/athletic/5653439/2024/07/23/blue-jackets-coach-dean-evason/
+
 **How the Biden Campaign Transformed Into the Harris Campaign**\
 `Staff members inside and outside the room have described the past handful of hours as hectic, overwhelming and emotional.`\
 https://nytimes.com/2024/07/23/us/politics/biden-harris-campaign-transformation.html

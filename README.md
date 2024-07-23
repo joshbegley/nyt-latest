@@ -1,3 +1,7 @@
+**This Version of Kamala Harris Is Having More Fun Than You**\
+`And she doesn’t care what anyone thinks of her.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/kamala-harris-brat-meme
+
 **How the Biden Campaign Transformed Into the Harris Campaign**\
 `Staff members inside and outside the room have described the past handful of hours as hectic, overwhelming and emotional.`\
 https://nytimes.com/2024/07/23/us/politics/biden-harris-campaign-transformation.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5654010/2024/07/23/76ers-paul-george-introduction-n
 **Stafford reporting to training camp with reworked contract**\
 `Stafford is coming off a 2023 season where he threw for 3,965 yards with 24 TDs and 11 interceptions.`\
 https://nytimes.com/athletic/5653568/2024/07/23/matthew-stafford-rams-training-camp/
-
-**Doug Emhoff attacks Trump over abortion during visit to Virginia clinic.**\
-`By Noah Weiland`\
-https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden/doug-emhoff-attacks-trump-over-abortion-during-visit-to-virginia-clinic
 
