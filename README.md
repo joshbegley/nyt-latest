@@ -1,3 +1,7 @@
+**Can Kamala Harris Finish Biden’s Climate Agenda?**\
+`If elected to the White House, Vice President Harris will face the challenge of implementing President Biden’s signature climate policies.`\
+https://nytimes.com/2024/07/23/climate/kamala-harris-biden-climate-policy.html
+
 **49ers' Aiyuk reports to camp despite requesting trade**\
 `The 49ers drafted wideout Ricky Pearsall in the first round in this year's draft, making Aiyuk's future past the 2024 season tenuous.`\
 https://nytimes.com/athletic/5653124/2024/07/23/brandon-aiyuk-training-camp-report-49ers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/opinion/kamala-harris-vice-president.html
 **JD Vance Hits the Money Circuit After Joining Trump’s Ticket**\
 `Presidential running mates are always responsible for bringing in cash, but Mr. Vance, who has old ties to Silicon Valley, appears to be leaning into the role heavily.`\
 https://nytimes.com/2024/07/23/us/politics/jd-vance-fundraising-trump.html
-
-**Real Madrid surpass €1bn in revenue for 2023-24 season**\
-`Real Madrid surpassed €1billion ($1.`\
-https://nytimes.com/athletic/5653696/2024/07/23/real-madrid-revenue-club-accounts/
 

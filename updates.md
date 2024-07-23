@@ -1,3 +1,15 @@
+**49ers' Aiyuk reports to camp despite requesting trade**\
+`The 49ers drafted wideout Ricky Pearsall in the first round in this year's draft, making Aiyuk's future past the 2024 season tenuous.`\
+https://nytimes.com/athletic/5653124/2024/07/23/brandon-aiyuk-training-camp-report-49ers/
+
+**The Antisemite Coming to the Trump Fund-Raiser**\
+`Maybe the campaign thought no one would notice.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/candace-owens-trump-fundrasier
+
+**Travelers Delayed or Stuck by the CrowdStrike Outage: What Did Your Airline Provide?**\
+`The flight disruptions brought on by the global I.T. failure were deemed within the control of the airlines, meaning airlines have to reimburse passengers for meals, transportation and hotels. Did your carrier living up to the requirement?`\
+https://nytimes.com/2024/07/23/travel/outage-airlines-vouchers-hotel-refund.html
+
 **Caught in the CrowdStrike Outage? Here’s How to Get Compensated.**\
 `Air travelers paying for last-minute lodging and other expenses are entitled to be reimbursed if their flight was impacted by an event in the airline’s control, like the CrowdStrike failure. Here’s how to get your money back.`\
 https://nytimes.com/2024/07/23/travel/crowdstrike-tech-outage-flight-compensation.html
