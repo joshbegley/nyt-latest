@@ -1,40 +1,40 @@
-**From Gowanus to Rhinebeck: ‘It’s a Whole Lifestyle Change.’**\
-`The two designers never planned to leave Brooklyn. But upstate New York beckoned.`\
-https://nytimes.com/2024/07/23/realestate/gowanus-brooklyn-rhinebeck-ny-homes.html
+**Tottenham Women's head coach Vilahamn signs new contract**\
+`Tottenham Hotspur Women&#8217;s head coach Robert Vilahamn has signed a new contract until 2027.`\
+https://nytimes.com/athletic/5652376/2024/07/23/robert-vilahamn-tottenham-contract/
 
-**How QAnon Rips Families Apart**\
-`In “The Quiet Damage,” Jesselyn Cook traces the effects of the conspiracy theory on the spouses, children and siblings of believers.`\
-https://nytimes.com/2024/07/23/books/review/the-quiet-damage-jesselyn-cook.html
+**What Polling Tells Us About a Kamala Harris Candidacy**\
+`Sorting out whether she’s an upgrade for Democrats.`\
+https://nytimes.com/2024/07/23/opinion/kamala-harris-polls-democrats.html
 
-**Why Is My Hairstyle Giving Me a Headache?**\
-`The tension from tight box braids, ponytails and buns can cause pain and lead to hair loss, experts said.`\
-https://nytimes.com/2024/07/23/well/hairstyle-headache-migraine.html
+**Trump’s New Rival May Bring Out His Harshest Instincts**\
+`After years planning to face President Biden, Donald J. Trump and his team will be campaigning against Kamala Harris. He has attacked female rivals and critics in brutal and personal terms.`\
+https://nytimes.com/2024/07/23/us/politics/trump-harris-attack-lines.html
 
-**De Bruyne 'not leaving' Manchester City this summer - Guardiola**\
-`Manchester City head coach Pep Guardiola has ruled out the prospect of Kevin De Bruyne leaving the club this summer.`\
-https://nytimes.com/athletic/5652350/2024/07/23/kevin-de-bruyne-manchester-city-transfer/
+**Are Democrats Right to Unite Around Kamala Harris?**\
+`The Democratic Party has a chance to organize for victory.`\
+https://nytimes.com/2024/07/23/opinion/ezra-klein-podcast-biden-harris-essay.html
 
-**Fantasy football 2024 outlooks for Nick Chubb, T.J. Hockenson and more players returning from injury**\
-`Greg Scholz of Inside Injuries offers insights into the players, like Nick Chubb and T.J. Hockenson, looking to return from injury in 2024.`\
-https://nytimes.com/athletic/5645915/2024/07/23/nfl-fantasy-football-injury-report-nick-chubb-tj-hockenson/
+**Cowboys training camp week: No shortage of storylines, from CeeDee Lamb to Jerry Jones**\
+`An unexpected delay. Will Lamb report to camp? Can the Cowboys put their postseason woes behind them?`\
+https://nytimes.com/athletic/5651711/2024/07/23/dallas-cowboys-training-camp-storylines-ceedee-lamb/
 
-**Andy Murray confirms tennis retirement after Paris Olympics**\
-`Andy Murray has confirmed he will retire from tennis after competing at this summer&#8217;s Paris Olympics.`\
-https://nytimes.com/athletic/5652332/2024/07/23/andy-murray-retirement-tennis-olympics/
+**Dr. Ruth Talked About Sex Like No One Else Could**\
+`How the sex therapist disarmed her audience.`\
+https://nytimes.com/2024/07/23/podcasts/dr-ruth-talked-about-sex-like-no-one-else-could.html
 
-**Canada Evacuates Jasper National Park as Wildfires Burn in Alberta**\
-`Large blazes in the province have led to the evacuation of thousands of people.`\
-https://nytimes.com/2024/07/23/world/canada/jasper-national-park-wildfires-canada.html
+**Can Kamala Harris Sell ‘Bidenomics’?**\
+`Much of President Biden’s agenda polls well, but voters roundly dislike his handling of the economy. That’s a campaign challenge for his vice president, as she mounts a presidential bid.`\
+https://nytimes.com/2024/07/23/us/politics/can-kamala-harris-sell-bidenomics.html
 
-**Dissension in the ranks: Debating Ja'Marr Chase vs. Justin Jefferson for fantasy football 2024**\
-`Theo Gremminger and Adam Ronis try to break a virtual fantasy football ADP tie between alpha receivers Ja'Marr Chase and Justin Jefferson.`\
-https://nytimes.com/athletic/5639960/2024/07/23/rankings-debate-jamarr-chase-vs-justin-jefferson-fantasy-football-2024/
+**Trump Tries to Flip the Script on Democracy After Biden’s Withdrawal**\
+`Donald J. Trump and his allies said President Biden’s primary voters were disenfranchised. Democrats noted Mr. Trump had once tried to toss out millions of ballots.`\
+https://nytimes.com/2024/07/23/us/politics/trump-biden-harris-democracy.html
 
-**Mexico appoint Aguirre head coach and Marquez assistant**\
-`Javier Aguirre has been appointed head coach of Mexico for a third time with former national team captain Rafael Marquez as his assistant — with an agreement in place for Marquez to take over in 2026.`\
-https://nytimes.com/athletic/5648660/2024/07/23/rafa-marquez-mexico-coach-javier-aguirre/
+**What Comes Next for Robert Menendez?**\
+`The Senate Ethics Committee is starting to lay the groundwork to possibly expel the New Jersey lawmaker. He faces intensifying pressure to resign before that can happen.`\
+https://nytimes.com/2024/07/23/nyregion/robert-menendez-conviction-future.html
 
-**Corrections: July 23, 2024**\
-`Corrections that appeared in print on Tuesday, July 23, 2024.`\
-https://nytimes.com/2024/07/23/pageoneplus/corrections-july-23-2024.html
+**Judge Cannon and JD Vance Are on the Same Team**\
+`Precedent and the rule of law? Not if it gets in the way.`\
+https://nytimes.com/2024/07/23/opinion/cannon-trump-documents-vance.html
 
