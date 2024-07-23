@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5647603/2024/07/23/fantasy-football-2024-idp-rankin
 `Renee Miller reveals the players, like Raheem Mostert, she'll be most passionately looking to acquire in early 2024 fantasy football drafts.`\
 https://nytimes.com/athletic/5649436/2024/07/23/fantasy-football-2024-my-guys-raheem-mostert-nico-collins/
 
-**Nacho Alvarez makes highly anticipated debut, but Braves listless again in loss to Reds**\
+**Nacho Alvarez makes highly anticipated debut, but listless Braves lose to Reds**\
 `The best position-player prospect in the Braves organization will take over at second base, with Whit Merrifield signed as insurance.`\
 https://nytimes.com/athletic/5652202/2024/07/23/braves-nacho-alvarez-debut-mlb/
 

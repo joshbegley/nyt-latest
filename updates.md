@@ -1,3 +1,7 @@
+**Nacho Alvarez makes highly anticipated debut, but listless Braves lose to Reds**\
+`The best position-player prospect in the Braves organization will take over at second base, with Whit Merrifield signed as insurance.`\
+https://nytimes.com/athletic/5652202/2024/07/23/braves-nacho-alvarez-debut-mlb/
+
 **IDP rankings for fantasy football 2024: Top 100 overall, top 50 by position; plus undervalued, overvalued and sleepers**\
 `Gary Davenport is here to help IDP league managers with his rankings, sleepers, undervalues and overvalues at all the defensive positions.`\
 https://nytimes.com/athletic/5647603/2024/07/23/fantasy-football-2024-idp-rankings-top-100/
