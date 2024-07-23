@@ -1,3 +1,11 @@
+**Why Liverpool are back in the U.S. after six-year absence - and who stands to benefit**\
+`The club's pre-season tour is a big moment for Arne Slot... and the club's commercial department`\
+https://nytimes.com/athletic/5650869/2024/07/23/liverpool-us-tour-arne-slot/
+
+**Families Left Scrambling After Delta Bars Minors From Flying Alone in Wake of Outage**\
+`Pete Buttigieg said on Tuesday that the U.S. Department of Transportation had opened an investigation into Delta’s ongoing response to Friday’s global tech outage.`\
+https://nytimes.com/2024/07/23/business/delta-it-outage-flights-minors.html
+
 **Families Left Scrambling After Delta Bars Minors From Flying Alone in Wake of Outage**\
 `The temporary move, made after Friday’s global tech outage, stranded some children across state lines or even in different countries.`\
 https://nytimes.com/2024/07/23/business/delta-it-outage-flights-minors.html
