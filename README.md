@@ -1,3 +1,11 @@
+**Biden Should Have Treated Harris as a Future President**\
+`She was not set up for success.`\
+https://nytimes.com/2024/07/22/opinion/harris-biden-vice-president.html
+
+**Between Attacks on Electric Cars, Trump Says They’re ‘Incredible’**\
+`The former president’s comments on E.V.s have shifted since he has grown more friendly with Elon Musk, the billionaire Tesla founder.`\
+https://nytimes.com/2024/07/23/climate/trump-electric-vehicles-musk.html
+
 **Tony Petitti says Big Ten 'focused on 18 right now'**\
 `Petitti touted his league’s strength and position in an ever-changing college sports landscape.`\
 https://nytimes.com/athletic/5653307/2024/07/23/tony-petitti-big-ten-expansion/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/23/arts/kamala-harris-tiktok-trump.html
 **Biden Plans to Address the Nation on Wednesday Night**\
 `In announcing the address, President Biden said he would discuss “what lies ahead, and how I will finish the job for the American people.” His physician said the president has now tested negative for Covid.`\
 https://nytimes.com/2024/07/23/us/politics/biden-address-nation.html
-
-**Trump Accuses Biden-Harris Administration of Failing to ‘Properly Protect Me’**\
-`The former president’s comments suggest that he will more aggressively turn the assassination attempt into a political cudgel.`\
-https://nytimes.com/2024/07/23/us/politics/trump-biden-harris-security.html
-
-**Agents weigh in on Jordan Love: How small sample size could affect Packers deal**\
-`Our annual agent poll offers perspective on how Love should be viewed and the situation Green Bay faces.`\
-https://nytimes.com/athletic/5653332/2024/07/23/jordan-love-contract-packers-agents/
 
