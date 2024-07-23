@@ -1,3 +1,15 @@
+**A blueprint for a successful second half for the San Francisco Giants**\
+`It's not time for the Giants to give up. But it's certainly not time to keep trying the same things that got them here in the first place.`\
+https://nytimes.com/athletic/5653663/2024/07/23/sf-giants-blueprint-second-half-success/
+
+**An Oscar Mayer Wienermobile Rolls Over. The ‘Hotdoggers’ Are OK.**\
+`No one was injured when the promotional car struck another vehicle and rolled over on a highway in Illinois, the police said.`\
+https://nytimes.com/2024/07/23/us/oscar-mayer-wienermobile-crash-illinois.html
+
+**Lawmaker flags concern over X users being blocked from following Harris.**\
+`By Kate Conger`\
+https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden/lawmaker-flags-concern-over-x-users-being-blocked-from-following-harris
+
 **Have Immigrants Been Taking Away Our Jobs?**\
 `Why the economic impact of immigration is positive.`\
 https://nytimes.com/2024/07/23/opinion/immigration-unemployment-inflation.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/23/world/europe/france-macron-left-wing-prime-minist
 **Alphabet Reports a 29% Jump in Profit**\
 `Google’s parent company narrowly topped revenue and profit expectations, driven by its search engine, while growth in YouTube ad sales fell short.`\
 https://nytimes.com/2024/07/23/technology/alphabet-google-earnings.html
-
-**USWNT defender Tierna Davidson on 'difficult situation' created by Korbin Albert's previous posts**\
-`U.`\
-https://nytimes.com/athletic/5654006/2024/07/23/uswnt-tierna-davidson-korbin-albert/
-
-**Michigan Man Ran Over 80-Year-Old Putting Up Trump Signs, Police Say**\
-`The suspect killed himself after a series of politically motivated incidents, including one that left the 80-year-old victim critically injured, law enforcement officials said.`\
-https://nytimes.com/2024/07/23/us/michigan-trump-signs-violence.html
-
-**This Version of Kamala Harris Is Having More Fun Than You**\
-`And she doesn’t care what anyone thinks of her.`\
-https://nytimes.com/live/2024/07/22/opinion/thepoint/kamala-harris-brat-meme
 
