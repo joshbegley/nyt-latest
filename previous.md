@@ -1,3 +1,7 @@
+**Harris Holds First Rally as the Likely Democratic Nominee**\
+`Vice President Kamala Harris listed her campaign pledges, which included expanding abortion rights, building a strong middle class and protecting unions.`\
+https://nytimes.com/video/us/politics/100000009588095/harris-speech-wisconsin-rally.html
+
 **The D.N.C. lays out a timeline for when Harris’s nomination will be set in stone.**\
 `By Nicholas Nehamas`\
 https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden/the-dnc-lays-out-a-timeline-for-when-harriss-nomination-will-be-set-in-stone
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5653777/2024/07/23/sean-payton-broncos-training-cam
 **Panthers are playing the long game, but it all hinges on Bryce Young**\
 `Coming off a 2-15 season, Bryce Young and the Panthers have goals for 2024 and beyond. "That's a big-picture thing," the QB said.`\
 https://nytimes.com/athletic/5653874/2024/07/23/carolina-panthers-bryce-young-future-success/
-
-**Macron Rejects French Left’s Pick for Prime Minister**\
-`The left-wing parties stopped quarreling and tapped a little-known civil servant for the job. But President Emmanuel Macron said he would not appoint anyone until after the Paris Summer Olympics.`\
-https://nytimes.com/2024/07/23/world/europe/france-macron-left-wing-prime-minister.html
 
