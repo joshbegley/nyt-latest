@@ -1,3 +1,11 @@
+**See How Biden Lost Support in the Polls Before He Dropped Out**\
+`President Biden’s polling deficits grew in every single swing state between the debate and Sunday, when he exited the race.`\
+https://nytimes.com/interactive/2024/07/23/us/politics/polls-biden-trump-debate-shift.html
+
+**Ex-Military Police Officer Sentenced to Prison for Role in Capitol Riot**\
+`Gregory C. Yetman, the subject of a manhunt last fall, admitted to pepper-spraying law enforcement officers during the Jan. 6, 2021, attack.`\
+https://nytimes.com/2024/07/23/nyregion/jan-6-gregory-yetman-sentenced.html
+
 **Harris’s Views on Israel Are in the Spotlight as Netanyahu Visits Washington**\
 `The vice president will be closely watched this week for signs of her approach to the war in Gaza should she win the White House in November.`\
 https://nytimes.com/2024/07/23/us/politics/harris-netanyahu-israel-gaza.html
