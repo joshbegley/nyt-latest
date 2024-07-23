@@ -1,3 +1,15 @@
+**Unions tell the Biden administration to stop sending military aid to Israel.**\
+`Several unions with millions of members demanded that the president secure a cease-fire in Gaza.`\
+https://nytimes.com/2024/07/23/us/politics/union-biden-letter-israel-gaza.html
+
+**Reality Show Contestant Apologizes After Eating Protected Bird**\
+`A contestant on the reality show “Race to Survive: New Zealand” killed and ate a weka during filming. The contestant, who said he was hungry, has apologized for “disrespecting New Zealand.”`\
+https://nytimes.com/2024/07/23/world/australia/new-zealand-reality-show-weka-bird.html
+
+**Sean McVay on improving as a coach, Puka’s breakout, work-life balance**\
+`The Rams coach sits down with The Athletic Football Show podcast`\
+https://nytimes.com/athletic/5652659/2024/07/23/sean-mcvay-on-improving-as-a-coach-pukas-breakout-work-life-balance/
+
 **Vecenie: The good, bad and ugly from Bronny James' summer league performances**\
 `LeBron James' son showed some promising flashes of athleticism and potential, but he has a long way to go in several areas. `\
 https://nytimes.com/athletic/5650131/2024/07/23/bronny-james-summer-league-performance-lakers/
