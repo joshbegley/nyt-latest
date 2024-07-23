@@ -1,3 +1,15 @@
+**Team GB's Dujardin out of Olympics after 'error of judgement'**\
+`Team GB&#8217;s joint-most decorated female Olympian Charlotte Dujardin has withdrawn from the Paris Olympics after a video surfaced of her &#8220;making an error of judgement&#8221; during a coaching session.`\
+https://nytimes.com/athletic/5653218/2024/07/23/charlotte-dujardin-olympics-video/
+
+**Tracking Typhoon Gaemi**\
+`See the likely path for Gaemi.`\
+https://nytimes.com/interactive/2024/07/23/world/asia/gaemi-map-path-tracker.html
+
+**Mark Zuckerberg Stumps for ‘Open Source’ A.I.**\
+`The chief executive of Meta said in an open letter that it was important that the technology was not controlled by a handful of giant companies — including his own.`\
+https://nytimes.com/2024/07/23/technology/mark-zuckerberg-meta-open-source-ai.html
+
 **Writing Helped Her Realize She Was a Woman. It Also Made Her Famous.**\
 `Camila Sosa Villada, an Argentine transgender author, first inhabited a female voice in stories she wrote as a child. Now her novels are translated in more than 20 languages and being adapted for the screen.`\
 https://nytimes.com/2024/07/23/books/booksupdate/camila-sosa-villada.html
