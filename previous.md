@@ -1,3 +1,7 @@
+**Stephen Colbert Retires His Joe Biden Sunglasses**\
+`The “Late Show” host is putting his aviators on a shelf, now that the president has ended his re-election campaign.`\
+https://nytimes.com/2024/07/23/arts/television/colbert-biden-sunglasses.html
+
 **As Phillies stumble again, Ranger Suárez shows progress born from a longer break**\
 `He did not look like the dominant Suárez from earlier this season. But he was better than the recent version.`\
 https://nytimes.com/athletic/5652255/2024/07/23/phillies-ranger-suarez-innings-twins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5652202/2024/07/23/braves-nacho-alvarez-debut-mlb/
 **Tuesday Briefing**\
 `Kamala Harris’s first campaign appearance.`\
 https://nytimes.com/2024/07/23/briefing/kamala-harris-gaza-strike.html
-
-**'My Guys': Derrick Henry, Kyle Pitts and more of Dane Martinez's key acquisitions for fantasy football 2024**\
-`Dane Martinez reveals the players, like Kyle Pitts, he'll be most passionately looking to acquire in early 2024 fantasy football drafts.`\
-https://nytimes.com/athletic/5649966/2024/07/23/fantasy-football-2024-my-guys-derrick-henry-kyle-pitts/
 

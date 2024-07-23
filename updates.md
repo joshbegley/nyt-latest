@@ -1,3 +1,7 @@
+**Stephen Colbert Retires His Joe Biden Sunglasses**\
+`The “Late Show” host is putting his aviators on a shelf, now that the president has ended his re-election campaign.`\
+https://nytimes.com/2024/07/23/arts/television/colbert-biden-sunglasses.html
+
 **As Phillies stumble again, Ranger Suárez shows progress born from a longer break**\
 `He did not look like the dominant Suárez from earlier this season. But he was better than the recent version.`\
 https://nytimes.com/athletic/5652255/2024/07/23/phillies-ranger-suarez-innings-twins/
