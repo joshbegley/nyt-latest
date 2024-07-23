@@ -1,3 +1,31 @@
+**'My Guys': Caleb Williams, Amari Cooper and more from Gary Davenport's wish list for fantasy football 2024**\
+`Gary Davenport reveals the players, like Caleb Williams, he'll be most passionately looking to select in early 2024 fantasy football drafts.`\
+https://nytimes.com/athletic/5649909/2024/07/23/fantasy-football-2024-my-guys-caleb-williams-amari-cooper/
+
+**‘Right-sizing’ Manchester United - what it's like when INEOS 'rips off the Band-Aid'**\
+`After Man Utd staff were told of the club’s intention to cut 250 jobs, the room fell silent. We explore the realities of working for INEOS`\
+https://nytimes.com/athletic/5633918/2024/07/23/ineos-manchester-united-cuts/
+
+**Zone defense and pre-snap motion: Two NFL trends you should exploit for fantasy football success**\
+`Jake Ciely takes a deep-dive look at the rise in zone defenses and pre-snap motion, and how those developments impact fantasy football.`\
+https://nytimes.com/athletic/5635728/2024/07/23/zone-defense-and-pre-snap-motion-two-nfl-trends-you-should-exploit-for-fantasy-football-success/
+
+**What is Fantasy EFL? All you need to know about the Football League version of FPL**\
+`What is Fantasy EFL? How is it different from FPL? And how do you come up with that all-important punny team name? The Athletic explains all`\
+https://nytimes.com/athletic/5650661/2024/07/23/what-is-fantasy-efl-all-you-need-to-know-about-the-football-league-version-of-fpl/
+
+**How France became the Premier League's biggest shopping market**\
+`No other league has seen more more invested in it by English clubs in the last 10 years than Ligue 1 — but why?`\
+https://nytimes.com/athletic/5650712/2024/07/23/premier-league-transfers-ligue-1/
+
+**The Gold Medalist Starring in India’s Olympic Dreams**\
+`Neeraj Chopra’s triumph in Tokyo inspired athletes across the world’s most populous nation. Now his country is chasing a bigger prize: a chance to host the Games for the first time.`\
+https://nytimes.com/2024/07/23/world/asia/india-olympics-neeraj-chopra.html
+
+**'My Guys': Kyler Murray, Cooper Kupp and more of Dom Petrillo's passion picks for fantasy football 2024**\
+`Dom Petrillo reveals the players, like Kyler Murray, he'll be most passionately looking to acquire in early 2024 fantasy football drafts.`\
+https://nytimes.com/athletic/5641264/2024/07/23/fantasy-football-2024-my-guys-cooper-kupp-kyler-murray/
+
 **Dodgers cut James Paxton, still seeking 'impact' starting pitching at the deadline**\
 `There should be a market for Paxton, but it was hard to see a scenario where he would make starts for the Dodgers in October.`\
 https://nytimes.com/athletic/5652044/2024/07/22/dodgers-james-paxton-trade-deadline/
