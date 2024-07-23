@@ -1,3 +1,7 @@
+**Super PAC Tied to Elon Musk Is Being Guided by Ex-DeSantis Aides**\
+`The group, America PAC, which is funded by allies of Elon Musk, is said to be steered by two well-known Republican operatives who worked on behalf of Ron DeSantis’s presidential bid.`\
+https://nytimes.com/2024/07/23/us/politics/elon-musk-super-pac-desantis.html
+
 **49ers' George Kittle is ready for 2024 after offseason of wild weight fluctuation**\
 `Kittle lost about 30 pounds recovering from offseason core surgery but is back at his playing weight as he reported to camp.`\
 https://nytimes.com/athletic/5654125/2024/07/23/george-kittle-49ers-training-camp-weight/
