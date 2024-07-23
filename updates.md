@@ -1,3 +1,15 @@
+**Caught in the CrowdStrike Outage? Here’s How to Get Compensated.**\
+`Air travelers paying for last-minute lodging and other expenses are entitled to be reimbursed if their flight was impacted by an event in the airline’s control, like the CrowdStrike failure. Here’s how to get your money back.`\
+https://nytimes.com/2024/07/23/travel/crowdstrike-tech-outage-flight-compensation.html
+
+**The Secret Service Has Failed Americans Since the Trump Shooting**\
+`Conspiracy theorists have been able to fill the information void with their own versions of the truth.`\
+https://nytimes.com/2024/07/23/opinion/trump-shooting-secret-service-conspiracy.html
+
+**Quinn and Peters set tone for Commanders camp, preach patience with Daniels**\
+`"When he's ready, we'll know. And when he's ready, he'll also know," Washington's new head coach said about the prized rookie QB. `\
+https://nytimes.com/athletic/5653716/2024/07/23/commanders-dan-quinn-adam-peters-jayden-daniels/
+
 **Buckley: Jerod Mayo whistles while he works, says it's real now as Patriots begin camp**\
 `After six months of front-end preparation, Mayo was eager to commence with the actual coaching Tuesday. "It's about competition," he said. `\
 https://nytimes.com/athletic/5653650/2024/07/23/patriots-jerod-mayo-training-camp/
