@@ -1,3 +1,11 @@
+**Who Will Replace Robert Menendez in the Senate?**\
+`Senator Robert Menendez of New Jersey announced that he would resign in August. Gov. Philip D. Murphy will choose someone to serve the remainder of his term.`\
+https://nytimes.com/2024/07/23/nyregion/robert-menendez-senate-replacement.html
+
+**Canada's Olympic Committee apologizes after alleged spying attempt**\
+`A drone was flown over a Ferns training session in Saint-Étienne on July 22.`\
+https://nytimes.com/athletic/5654570/2024/07/23/new-zealand-soccer-spy-canada-olympics/
+
 **John Mayall, Pioneer of British Blues, Is Dead at 90**\
 `Mr. Mayall was best known for recruiting and polishing the talents of one gifted young lead guitarist after another, starting with Eric Clapton.`\
 https://nytimes.com/2024/07/23/arts/music/john-mayall-dead.html

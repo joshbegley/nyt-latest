@@ -1,3 +1,11 @@
+**Who Will Replace Robert Menendez in the Senate?**\
+`Senator Robert Menendez of New Jersey announced that he would resign in August. Gov. Philip D. Murphy will choose someone to serve the remainder of his term.`\
+https://nytimes.com/2024/07/23/nyregion/robert-menendez-senate-replacement.html
+
+**Canada's Olympic Committee apologizes after alleged spying attempt**\
+`A drone was flown over a Ferns training session in Saint-Étienne on July 22.`\
+https://nytimes.com/athletic/5654570/2024/07/23/new-zealand-soccer-spy-canada-olympics/
+
 **John Mayall, Pioneer of British Blues, Is Dead at 90**\
 `Mr. Mayall was best known for recruiting and polishing the talents of one gifted young lead guitarist after another, starting with Eric Clapton.`\
 https://nytimes.com/2024/07/23/arts/music/john-mayall-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5654081/2024/07/23/rams-matthew-stafford-contract-q
 **Proposed Charter Revision Hints at Mayor Adams’s Spat With City Council**\
 `New York City voters will most likely be confronted in November with a referendum that may dilute the City Council’s power on public safety issues.`\
 https://nytimes.com/2024/07/23/nyregion/charter-revision-adams-council.html
-
-**Record high discrimination reports received in 23-24 season, says Kick It Out**\
-`Kick It Out, a leading UK anti-discrimination charity, says it received the highest number of reports of discrimination it has ever had in a season during the 2023-24 campaign.`\
-https://nytimes.com/athletic/5653325/2024/07/23/kick-it-out-discrimination/
-
-**Secrets Emerge From a Fossil’s Taco Shell-Like Cover**\
-`An examination of an aquatic, shrimplike creatures that lived half a billion years ago offers insight into how arthropods with mandibles became so common.`\
-https://nytimes.com/2024/07/23/science/taco-shell-fossil.html
 
