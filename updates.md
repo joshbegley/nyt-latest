@@ -1,3 +1,15 @@
+**Panthers are playing the long game, but it all hinges on Bryce Young**\
+`Coming off a 2-15 season, Bryce Young and the Panthers have goals for 2024 and beyond. "That's a big-picture thing," the QB said.`\
+https://nytimes.com/athletic/5653874/2024/07/23/carolina-panthers-bryce-young-future-success/
+
+**Macron Rejects French Left’s Pick for Prime Minister**\
+`The left-wing parties stopped quarreling and tapped a little-known civil servant for the job. But President Emmanuel Macron said he would not appoint anyone until after the Paris Summer Olympics.`\
+https://nytimes.com/2024/07/23/world/europe/france-macron-left-wing-prime-minister.html
+
+**Alphabet Reports a 29% Jump in Profit**\
+`Google’s parent company narrowly topped revenue and profit expectations, driven by its search engine, while growth in YouTube ad sales fell short.`\
+https://nytimes.com/2024/07/23/technology/alphabet-google-earnings.html
+
 **Blue Jackets drawn to coach Dean Evason's passion and his demand for accountability**\
 `Evason was hired by a team looking for a stronger personality and a firmer hand from its coach.
 `\

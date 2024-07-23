@@ -1,3 +1,15 @@
+**Panthers are playing the long game, but it all hinges on Bryce Young**\
+`Coming off a 2-15 season, Bryce Young and the Panthers have goals for 2024 and beyond. "That's a big-picture thing," the QB said.`\
+https://nytimes.com/athletic/5653874/2024/07/23/carolina-panthers-bryce-young-future-success/
+
+**Macron Rejects French Left’s Pick for Prime Minister**\
+`The left-wing parties stopped quarreling and tapped a little-known civil servant for the job. But President Emmanuel Macron said he would not appoint anyone until after the Paris Summer Olympics.`\
+https://nytimes.com/2024/07/23/world/europe/france-macron-left-wing-prime-minister.html
+
+**Alphabet Reports a 29% Jump in Profit**\
+`Google’s parent company narrowly topped revenue and profit expectations, driven by its search engine, while growth in YouTube ad sales fell short.`\
+https://nytimes.com/2024/07/23/technology/alphabet-google-earnings.html
+
 **USWNT defender Tierna Davidson on 'difficult situation' created by Korbin Albert's previous posts**\
 `U.`\
 https://nytimes.com/athletic/5654006/2024/07/23/uswnt-tierna-davidson-korbin-albert/
@@ -25,17 +37,4 @@ https://nytimes.com/interactive/2024/07/23/nyregion/menendez-letter.html
 **Tesla’s Profit Fell 45% in the Second Quarter on Weak E.V. Sales**\
 `The company led by Elon Musk is selling fewer electric cars, and its big bets on driverless taxis and artificial intelligence could take many years to pay off.`\
 https://nytimes.com/2024/07/23/business/tesla-q2-earnings-elon-musk.html
-
-**Blue Jackets drawn to coach Dean Evason's passion and his demand for accountability**\
-`Evason was hired by a team looking for a stronger personality and a firmer hand from its coach.
-`\
-https://nytimes.com/athletic/5653439/2024/07/23/blue-jackets-coach-dean-evason/
-
-**Trump Announces He Will Meet with Netanyahu on Friday at Mar-a-Lago**\
-`The pair, who were close allies, will meet after the Israeli prime minister gives a speech to Congress and meets with President Biden at the White House.`\
-https://nytimes.com/2024/07/23/us/politics/trump-netanyahu-mar-a-lago-meeting.html
-
-**A different kind of noise as the Jets' second training camp with Aaron Rodgers opens**\
-`The quarterback isn't the one drawing attention as training camp practices are set to begin`\
-https://nytimes.com/athletic/5653772/2024/07/23/a-different-kind-of-noise-as-the-jets-second-training-camp-with-aaron-rodgers-opens/
 
