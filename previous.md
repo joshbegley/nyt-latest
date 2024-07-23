@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5653207/2024/07/23/patriots-jacoby-brissett-starter
 https://nytimes.com/2024/07/23/dining/kamala-harris-home-cooking.html
 
 **What Is the KHive?**\
-`Coconut emojis, Charli XCX mash-ups and a bunch of grainy lime green video clips. Welcome to the latest iteration of the Kamala Harris fandom.`\
+`Coconut emojis, Charli XCX mash-ups and a bunch of grainy lime green video clips. What to know about the latest iteration of the Kamala Harris fandom.`\
 https://nytimes.com/2024/07/23/style/khive-kamala-harris-supporters.html
 
 **Jaguars, CB Tyson Campbell agree to 4-year contract extension: Source**\

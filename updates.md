@@ -1,3 +1,7 @@
+**What Is the KHive?**\
+`Coconut emojis, Charli XCX mash-ups and a bunch of grainy lime green video clips. What to know about the latest iteration of the Kamala Harris fandom.`\
+https://nytimes.com/2024/07/23/style/khive-kamala-harris-supporters.html
+
 **Joelinton confident of Bruno Guimares staying at Newcastle**\
 `Joelinton is confident that Bruno Guimaraes will stay at Newcastle United this summer, following positive conversations with his best friend.`\
 https://nytimes.com/athletic/5652340/2024/07/23/bruno-guimaraes-newcastle-transfer-news/
