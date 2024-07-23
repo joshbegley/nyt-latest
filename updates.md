@@ -1,3 +1,7 @@
+**In Wilmington, They Like ‘Delaware Joe.’ But They’re Glad He Quit.**\
+`Support is strong for President Biden in the city that has been his home base. But, as a local put it, “You got to know when to hold ’em, know when to fold ’em.”`\
+https://nytimes.com/2024/07/23/style/president-biden-wilmington-delaware-supporters-withdrawal.html
+
 **In Wilmington, They Like ‘Delaware Joe.’ But They’re Glad He Quit**\
 `Support is strong for President Biden in the city that has been his home base. But, as a local put it, “You got to know when to hold ’em, know when to fold ’em.”`\
 https://nytimes.com/2024/07/23/style/president-biden-wilmington-delaware-supporters-withdrawal.html
