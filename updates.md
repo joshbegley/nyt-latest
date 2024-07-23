@@ -1,3 +1,7 @@
+**Corrections: July 23, 2024**\
+`Corrections that appeared in print on Tuesday, July 23, 2024.`\
+https://nytimes.com/2024/07/23/pageoneplus/corrections-july-23-2024.html
+
 **A.I. Can Write Poetry, but It Struggles With Math**\
 `A.I.’s math problem reflects how much the new technology is a break with computing’s past.`\
 https://nytimes.com/2024/07/23/technology/ai-chatbots-chatgpt-math.html

@@ -1,3 +1,7 @@
+**Corrections: July 23, 2024**\
+`Corrections that appeared in print on Tuesday, July 23, 2024.`\
+https://nytimes.com/2024/07/23/pageoneplus/corrections-july-23-2024.html
+
 **A.I. Can Write Poetry, but It Struggles With Math**\
 `A.I.’s math problem reflects how much the new technology is a break with computing’s past.`\
 https://nytimes.com/2024/07/23/technology/ai-chatbots-chatgpt-math.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/arts/television/colbert-biden-sunglasses.html
 **As Phillies stumble again, Ranger Suárez shows progress born from a longer break**\
 `He did not look like the dominant Suárez from earlier this season. But he was better than the recent version.`\
 https://nytimes.com/athletic/5652255/2024/07/23/phillies-ranger-suarez-innings-twins/
-
-**2024 fantasy football cheat sheet: A fully customizable rankings and projections generator**\
-`Ready to win your fantasy football leagues with a customizable set of rankings and projections? Jake Ciely shows you the way!`\
-https://nytimes.com/athletic/5475262/2024/07/23/2024-fantasy-football-cheat-sheet-generator-customizable-rankings-and-projections-tool/
 
