@@ -1,3 +1,19 @@
+**'My Guys': Raheem Mostert, Nico Collins and more of Renee Miller's must-haves for fantasy football 2024**\
+`Renee Miller reveals the players, like Raheem Mostert, she'll be most passionately looking to acquire in early 2024 fantasy football drafts.`\
+https://nytimes.com/athletic/5649436/2024/07/23/fantasy-football-2024-my-guys-raheem-mostert-nico-collins/
+
+**Nacho Alvarez makes highly anticipated debut, but Braves listless again in loss to Reds**\
+`The best position-player prospect in the Braves organization will take over at second base, with Whit Merrifield signed as insurance.`\
+https://nytimes.com/athletic/5652202/2024/07/23/braves-nacho-alvarez-debut-mlb/
+
+**Tuesday Briefing**\
+`Kamala Harris’s first campaign appearance.`\
+https://nytimes.com/2024/07/23/briefing/kamala-harris-gaza-strike.html
+
+**'My Guys': Derrick Henry, Kyle Pitts and more of Dane Martinez's key acquisitions for fantasy football 2024**\
+`Dane Martinez reveals the players, like Kyle Pitts, he'll be most passionately looking to acquire in early 2024 fantasy football drafts.`\
+https://nytimes.com/athletic/5649966/2024/07/23/fantasy-football-2024-my-guys-derrick-henry-kyle-pitts/
+
 **How the Trump Rally Gunman Had an Edge Over the Countersnipers**\
 `The Times recreated, in 3-D, the lines of sight for the three countersniper teams and the would-be assassin.`\
 https://nytimes.com/interactive/2024/07/23/us/trump-shooting-gunman-snipers.html
