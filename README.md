@@ -1,3 +1,7 @@
+**USWNT prepares for Olympic opener, Hayes stresses one-game-at-a-time approach**\
+`The USWNT begins its Olympic group stage on Thursday against Zambia, with head coach Emma Hayes confirming that everyone on the team is healthy and available for selection.`\
+https://nytimes.com/athletic/5653433/2024/07/23/uswnt-olympics-hayes-fox-smith/
+
 **Lavitta’s Creole Serves Beignets and More in a 1940s Harlem Barbershop**\
 `Crawfish cakes with Creole aioli, a classic wild shrimp po’ boy and grits with red-eye lamb gravy are also on the menu.`\
 https://nytimes.com/2024/07/23/dining/lavittas-creole-harlem.html
@@ -15,7 +19,7 @@ https://nytimes.com/2024/07/23/sports/japan-olympics-gymnastics-smoking.html
 https://nytimes.com/2024/07/23/arts/kamala-harris-tiktok-trump.html
 
 **Biden Plans to Address the Nation on Wednesday Night**\
-`In announcing the address, President Biden said he would discuss “what lies ahead, and how I will finish the job for the American people.”`\
+`In announcing the address, President Biden said he would discuss “what lies ahead, and how I will finish the job for the American people.” His physician said the president has now tested negative for Covid.`\
 https://nytimes.com/2024/07/23/us/politics/biden-address-nation.html
 
 **Trump Accuses Biden-Harris Administration of Failing to ‘Properly Protect Me’**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/arts/television/time-bandits-review.html
 **The Windup: Trade deadline countdown is on**\
 `Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
 https://nytimes.com/athletic/5653367/2024/07/23/mlb-trade-deadline-braves-infield-james-paxton-the-windup/
-
-**JD Vance Is Still Figuring Out How to Attack Kamala Harris**\
-`But nothing has proved particularly effective yet.`\
-https://nytimes.com/live/2024/07/22/opinion/thepoint/vance-harris-campaign
 
