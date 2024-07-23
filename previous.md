@@ -1,3 +1,7 @@
+**Founder of Korean Tech Giant Arrested Over K-Pop Deal**\
+`Kim Beom-Su, the billionaire behind Kakao, was taken into custody on Tuesday on allegations of stock manipulation during a bidding war over a major K-pop agency.`\
+https://nytimes.com/2024/07/22/business/kakao-founder-arrest-warrant-south-korea.html
+
 **The Secret Service Is Becoming a Symbol of Incompetence**\
 `Members of both parties are furious at the agency’s failure to protect Trump from a shooter.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/cheatle-secret-service-hearing
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/22/technology/crowdstrike-outage-congress-hearing.ht
 **Parents of Teen Driver Who Killed Girl in High-Speed Crash Are Sentenced**\
 `The boy, then 16, survived and has been charged in the death of his 14-year-old passenger. His parents were sentenced to probation and ordered to take parenting classes.`\
 https://nytimes.com/2024/07/22/nyregion/teen-driver-queens-crash-parents-sentence.html
-
-**A Lot Has Changed for Women Since 2016. What Does That Mean for Kamala Harris?**\
-`Voters eager to elect the first female president pointed to anger over a loss of abortion rights, but also acknowledged a fear that sexism would remain difficult for Ms. Harris to overcome.`\
-https://nytimes.com/2024/07/22/us/kamala-harris-women-voters.html
 

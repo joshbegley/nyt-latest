@@ -1,3 +1,7 @@
+**Founder of Korean Tech Giant Arrested Over K-Pop Deal**\
+`Kim Beom-Su, the billionaire behind Kakao, was taken into custody on Tuesday on allegations of stock manipulation during a bidding war over a major K-pop agency.`\
+https://nytimes.com/2024/07/22/business/kakao-founder-arrest-warrant-south-korea.html
+
 **The Secret Service Is Becoming a Symbol of Incompetence**\
 `Members of both parties are furious at the agency’s failure to protect Trump from a shooter.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/cheatle-secret-service-hearing
