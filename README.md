@@ -15,7 +15,7 @@ https://nytimes.com/live/2024/07/23/world/israel-gaza-war-hamas/for-the-second-t
 https://nytimes.com/2024/07/23/style/beyonce-kamala-harris-freedom.html
 
 **Judge Refuses to Block F.T.C.’s Noncompete Ban as Lawsuits Play Out**\
-`A judge in Pennsylvania denied a request to delay the rule, siding with the agency and diverging from a Texas court’s decision earlier this month.`\
+`A federal judge in Pennsylvania denied a request to delay the rule, siding with the agency and diverging from a Texas court’s decision earlier this month.`\
 https://nytimes.com/2024/07/23/business/economy/noncompete-ban-ftc.html
 
 **The Secret Service Director Resigned**\
