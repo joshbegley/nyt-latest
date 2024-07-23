@@ -1,3 +1,11 @@
+**Kamala Harris will meet with Benjamin Netanyahu this week, but will miss his address to Congress.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/kamala-harris-will-meet-with-benjamin-netanyahu-this-week-but-will-miss-his-address-to-congress
+
+**A Lot Has Changed for Women Since 2016. What Does That Mean for Kamala Harris?**\
+`Voters eager to elect the first female president pointed to anger over a loss of abortion rights, but also acknowledged a fear that sexism would remain difficult for Ms. Harris to overcome.`\
+https://nytimes.com/2024/07/22/us/kamala-harris-women-voters.html
+
 **Full Time: Bookmark this USWNT guide for the Olympics**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/5651877/2024/07/22/us-womens-national-team-olympics-roster-guide-full-time/

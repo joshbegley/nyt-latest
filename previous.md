@@ -1,3 +1,7 @@
+**Kamala Harris will meet with Benjamin Netanyahu this week, but will miss his address to Congress.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/kamala-harris-will-meet-with-benjamin-netanyahu-this-week-but-will-miss-his-address-to-congress
+
 **Full Time: Bookmark this USWNT guide for the Olympics**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/5651877/2024/07/22/us-womens-national-team-olympics-roster-guide-full-time/
@@ -14,7 +18,7 @@ https://nytimes.com/2024/07/22/technology/crowdstrike-outage-congress-hearing.ht
 `The boy, then 16, survived and has been charged in the death of his 14-year-old passenger. His parents were sentenced to probation and ordered to take parenting classes.`\
 https://nytimes.com/2024/07/22/nyregion/teen-driver-queens-crash-parents-sentence.html
 
-**Women Who Support Kamala Harris Say a Lot Has Changed Since 2016**\
+**A Lot Has Changed for Women Since 2016. What Does That Mean for Kamala Harris?**\
 `Voters eager to elect the first female president pointed to anger over a loss of abortion rights, but also acknowledged a fear that sexism would remain difficult for Ms. Harris to overcome.`\
 https://nytimes.com/2024/07/22/us/kamala-harris-women-voters.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/22/us/politics/kamala-harris-trump-2024-election.htm
 **Judge Who Threatened to Shoot Black Teens Should Be Removed, Panel Says**\
 `Justice Erin P. Gall of upstate New York engaged in a “racially offensive, profane” diatribe after people crashed a large party she was attending, a disciplinary body found.`\
 https://nytimes.com/2024/07/22/nyregion/judge-erin-gall-party-ny-supreme-court.html
-
-**Wife of Yankees executive Omar Minaya dies at 55**\
-`Minaya died Saturday after she was found unconscious in a private residence in Harrington Park, N.J.`\
-https://nytimes.com/athletic/5651717/2024/07/22/rachel-minaya-death-omar-yankees/
 
