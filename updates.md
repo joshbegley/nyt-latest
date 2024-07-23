@@ -1,3 +1,11 @@
+**Submit your trade deadline questions for the Yankees mailbag**\
+`<p>The trade deadline is one week away.`\
+https://nytimes.com/athletic/5653185/2024/07/23/yankees-trade-deadline-questions-mailbag/
+
+**WNBA All-Star Game shatters all-time ratings mark**\
+`It is the 17th WNBA game this year that has topped 1 million viewers. Caitlin Clark has played in 15 of those 17 games.`\
+https://nytimes.com/athletic/5652893/2024/07/23/wnba-all-star-game-ratings-viewership/
+
 **Secret Service Director Resigns After Trump Assassination Attempt**\
 `Kimberly A. Cheatle gave up her post Tuesday after security failures that allowed a gunman to shoot at former President Donald J. Trump at an open-air rally.`\
 https://nytimes.com/2024/07/23/us/politics/cheatle-secret-service-director-resigns.html
