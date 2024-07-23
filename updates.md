@@ -1,3 +1,15 @@
+**Harris Rallies Exuberant Democrats in Wisconsin: ‘The Baton Is in Our Hands’**\
+`Vice President Kamala Harris gave her first speech as the de facto Democratic nominee to a deafening crowd, keeping up her offensive against Donald Trump.`\
+https://nytimes.com/2024/07/23/us/politics/harris-speech-wisconsin-rally.html
+
+**Restaurant Review: Is Coqodaq a Fancy Fried-Chicken Joint or the End of the World?**\
+`With drumsticks in buckets and hundreds of Champagnes, Coqodaq leans into the city’s weird, giddy, and-the-band-played-on mood.`\
+https://nytimes.com/2024/07/23/dining/restaurant-review-is-coqodaq-a-fancy-fried-chicken-joint-or-the-end-of-the-world.html
+
+**Are You Planning to Leave the U.S. if the Election Doesn’t Go Your Way? We’d Like to Hear From You.**\
+`As the 2024 election season heats up, some Americans are considering leaving the country. We want to hear about their plans and perspective.`\
+https://nytimes.com/2024/07/23/realestate/2024-election-voters-leave-america.html
+
 **Can Kamala Harris Finish Biden’s Climate Agenda?**\
 `If elected to the White House, Vice President Harris will face the challenge of implementing President Biden’s signature climate policies.`\
 https://nytimes.com/2024/07/23/climate/kamala-harris-biden-climate-policy.html

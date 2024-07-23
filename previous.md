@@ -1,3 +1,15 @@
+**Harris Rallies Exuberant Democrats in Wisconsin: ‘The Baton Is in Our Hands’**\
+`Vice President Kamala Harris gave her first speech as the de facto Democratic nominee to a deafening crowd, keeping up her offensive against Donald Trump.`\
+https://nytimes.com/2024/07/23/us/politics/harris-speech-wisconsin-rally.html
+
+**Restaurant Review: Is Coqodaq a Fancy Fried-Chicken Joint or the End of the World?**\
+`With drumsticks in buckets and hundreds of Champagnes, Coqodaq leans into the city’s weird, giddy, and-the-band-played-on mood.`\
+https://nytimes.com/2024/07/23/dining/restaurant-review-is-coqodaq-a-fancy-fried-chicken-joint-or-the-end-of-the-world.html
+
+**Are You Planning to Leave the U.S. if the Election Doesn’t Go Your Way? We’d Like to Hear From You.**\
+`As the 2024 election season heats up, some Americans are considering leaving the country. We want to hear about their plans and perspective.`\
+https://nytimes.com/2024/07/23/realestate/2024-election-voters-leave-america.html
+
 **Can Kamala Harris Finish Biden’s Climate Agenda?**\
 `If elected to the White House, Vice President Harris will face the challenge of implementing President Biden’s signature climate policies.`\
 https://nytimes.com/2024/07/23/climate/kamala-harris-biden-climate-policy.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/23/opinion/trump-shooting-secret-service-conspiracy.
 **Quinn and Peters set tone for Commanders camp, preach patience with Daniels**\
 `"When he's ready, we'll know. And when he's ready, he'll also know," Washington's new head coach said about the prized rookie QB. `\
 https://nytimes.com/athletic/5653716/2024/07/23/commanders-dan-quinn-adam-peters-jayden-daniels/
-
-**Buckley: Jerod Mayo whistles while he works, says it's real now as Patriots begin camp**\
-`After six months of front-end preparation, Mayo was eager to commence with the actual coaching Tuesday. "It's about competition," he said. `\
-https://nytimes.com/athletic/5653650/2024/07/23/patriots-jerod-mayo-training-camp/
-
-**Who Might Run With Kamala Harris?**\
-`Readers offer both Democrats and Republicans as well as a retired general as possibilities. Also: A quick race; Trump’s age; Biden and Netanyahu.`\
-https://nytimes.com/2024/07/23/opinion/kamala-harris-vice-president.html
-
-**JD Vance Hits the Money Circuit After Joining Trump’s Ticket**\
-`Presidential running mates are always responsible for bringing in cash, but Mr. Vance, who has old ties to Silicon Valley, appears to be leaning into the role heavily.`\
-https://nytimes.com/2024/07/23/us/politics/jd-vance-fundraising-trump.html
 
