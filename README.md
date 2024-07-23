@@ -1,3 +1,7 @@
+**Ex-Military Police Officer Sentenced to Prison for Role in Capitol Riot**\
+`Gregory C. Yetman, the subject of a manhunt last fall, admitted to pepper-spraying law enforcement officers during the Jan. 6, 2021, attack.`\
+https://nytimes.com/2024/07/23/nyregion/jan-6-gregory-yetman-sentenced.html
+
 **Harris’s Views on Israel Are in the Spotlight as Netanyahu Visits Washington**\
 `The vice president will be closely watched this week for signs of her approach to the war in Gaza should she win the White House in November.`\
 https://nytimes.com/2024/07/23/us/politics/harris-netanyahu-israel-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/style/beyonce-kamala-harris-freedom.html
 **Judge Refuses to Block F.T.C.’s Noncompete Ban as Lawsuits Play Out**\
 `A federal judge in Pennsylvania denied a request to delay the rule, siding with the agency and diverging from another court’s decision earlier this month.`\
 https://nytimes.com/2024/07/23/business/economy/noncompete-ban-ftc.html
-
-**The Secret Service Director Resigned**\
-`Also, Harris went on the offensive against Trump. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/07/23/briefing/secret-service-director-resign-harris-campaign-rally.html
 
