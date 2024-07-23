@@ -1,3 +1,11 @@
+**A Fabled Washington Home, Kept Empty by a 22-Year Battle**\
+`The home of Katharine Graham, the former Washington Post publisher, was once a hub of power and comity. But after an “insane” renovation spat, its new owner is looking to sell.`\
+https://nytimes.com/2024/07/23/us/politics/katharine-graham-house-georgetown.html
+
+**Patriots enter camp with Brissett as QB1, leave door open for Maye**\
+`New England signed Brissett to a one-year, $8 million contract this offseason.`\
+https://nytimes.com/athletic/5653207/2024/07/23/patriots-jacoby-brissett-starter/
+
 **When It Comes to Food and Politics, Kamala Harris Is Riffing on the Recipe**\
 `From giving turkey-roasting advice to making dosas with Mindy Kaling, Ms. Harris has leaned into cooking in a way no other candidate has.`\
 https://nytimes.com/2024/07/23/dining/kamala-harris-home-cooking.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/23/books/booksupdate/camila-sosa-villada.html
 **Submit your trade deadline questions for the Yankees mailbag**\
 `<p>The trade deadline is one week away.`\
 https://nytimes.com/athletic/5653185/2024/07/23/yankees-trade-deadline-questions-mailbag/
-
-**Hear Us Out: Angel Hair Pasta**\
-`Dan Pelosi’s new recipe tosses the strands with olive oil, butter, garlic, herbs and blistered cherry tomatoes for a perfect pan of pasta.`\
-https://nytimes.com/2024/07/23/dining/capellini-angel-hair-pasta.html
-
-**WNBA All-Star Game shatters all-time ratings mark**\
-`It is the 17th WNBA game this year that has topped 1 million viewers. Caitlin Clark has played in 15 of those 17 games.`\
-https://nytimes.com/athletic/5652893/2024/07/23/wnba-all-star-game-ratings-viewership/
 

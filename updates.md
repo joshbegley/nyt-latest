@@ -1,3 +1,11 @@
+**A Fabled Washington Home, Kept Empty by a 22-Year Battle**\
+`The home of Katharine Graham, the former Washington Post publisher, was once a hub of power and comity. But after an “insane” renovation spat, its new owner is looking to sell.`\
+https://nytimes.com/2024/07/23/us/politics/katharine-graham-house-georgetown.html
+
+**Patriots enter camp with Brissett as QB1, leave door open for Maye**\
+`New England signed Brissett to a one-year, $8 million contract this offseason.`\
+https://nytimes.com/athletic/5653207/2024/07/23/patriots-jacoby-brissett-starter/
+
 **When It Comes to Food and Politics, Kamala Harris Is Riffing on the Recipe**\
 `From giving turkey-roasting advice to making dosas with Mindy Kaling, Ms. Harris has leaned into cooking in a way no other candidate has.`\
 https://nytimes.com/2024/07/23/dining/kamala-harris-home-cooking.html
