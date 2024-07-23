@@ -1,3 +1,7 @@
+**Noriko Ohara, Who Gave Voice to Nobita in ‘Doraemon,’ Dies at 88**\
+`Her voice became widely recognized in Japan after she starred in animated shows watched by nearly every child in the country and beyond.`\
+https://nytimes.com/2024/07/23/arts/noriko-ohara-dead.html
+
 **Bordeaux relegated after Liverpool owner FSG withdraws from takeover talks**\
 `Bordeaux have been administratively relegated to the third tier of French football after Liverpool&#8217;s owner Fenway Sports Group (FSG) withdrew from takeover talks.`\
 https://nytimes.com/athletic/5652410/2024/07/23/bordeaux-relegated-fsg-takeover-liverpool/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/us/politics/trump-harris-attack-lines.html
 **Are Democrats Right to Unite Around Kamala Harris?**\
 `The Democratic Party has a chance to organize for victory.`\
 https://nytimes.com/2024/07/23/opinion/ezra-klein-podcast-biden-harris-essay.html
-
-**Cowboys training camp week: No shortage of storylines, from CeeDee Lamb to Jerry Jones**\
-`An unexpected delay. Will Lamb report to camp? Can the Cowboys put their postseason woes behind them?`\
-https://nytimes.com/athletic/5651711/2024/07/23/dallas-cowboys-training-camp-storylines-ceedee-lamb/
 
