@@ -1,3 +1,15 @@
+**Who Might Run With Kamala Harris?**\
+`Readers offer both Democrats and Republicans as well as a retired general as possibilities. Also: A quick race; Trump’s age; Biden and Netanyahu.`\
+https://nytimes.com/2024/07/23/opinion/kamala-harris-vice-president.html
+
+**JD Vance Hits the Money Circuit After Joining Trump’s Ticket**\
+`Presidential running mates are always responsible for bringing in cash, but Mr. Vance, who has old ties to Silicon Valley, appears to be leaning into the role heavily.`\
+https://nytimes.com/2024/07/23/us/politics/jd-vance-fundraising-trump.html
+
+**Real Madrid surpass €1bn in revenue for 2023-24 season**\
+`Real Madrid surpassed €1billion ($1.`\
+https://nytimes.com/athletic/5653696/2024/07/23/real-madrid-revenue-club-accounts/
+
 **Menendez Will Resign From Senate, Avoiding an Ugly, Intraparty Battle**\
 `Senator Robert Menendez of New Jersey was facing a possible expulsion vote after his conviction on federal corruption charges last Tuesday.`\
 https://nytimes.com/2024/07/23/nyregion/senator-bob-menendez-resignation.html
