@@ -1,3 +1,7 @@
+**Families Left Scrambling After Delta Bars Minors From Flying Alone in Wake of Outage**\
+`The temporary move, made after Friday’s global tech outage, stranded some children across state lines or even in different countries.`\
+https://nytimes.com/2024/07/23/business/delta-it-outage-flights-minors.html
+
 **In Wilmington, They Like ‘Delaware Joe.’ But They’re Glad He Quit.**\
 `Support is strong for President Biden in the city that has been his home base. But, as a local put it, “You got to know when to hold ’em, know when to fold ’em.”`\
 https://nytimes.com/2024/07/23/style/president-biden-wilmington-delaware-supporters-withdrawal.html
