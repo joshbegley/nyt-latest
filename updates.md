@@ -1,3 +1,7 @@
+**Menendez Will Resign From Senate, Avoiding an Ugly, Intraparty Battle**\
+`Senator Robert Menendez of New Jersey was facing a possible expulsion vote after his conviction on federal corruption charges last Tuesday.`\
+https://nytimes.com/2024/07/23/nyregion/senator-bob-menendez-resignation.html
+
 **U.A.W. Holds Off on Endorsing Harris**\
 `Unlike other prominent unions, the auto workers are taking their time to ensure that the vice president is aligned with them on key policy questions.`\
 https://nytimes.com/2024/07/23/us/politics/uaw-harris-endorsement.html

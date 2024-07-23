@@ -19,7 +19,7 @@ https://nytimes.com/2024/07/23/us/politics/uaw-harris-endorsement.html
 https://nytimes.com/2024/07/23/sports/charlotte-dujardin-equestrian-olympics-video.html
 
 **Menendez Will Resign From Senate, Avoiding an Ugly, Intraparty Battle**\
-`Senator Robert Menendez of New Jersey was convicted of bribery and corruption in federal court last Tuesday.`\
+`Senator Robert Menendez of New Jersey was facing a possible expulsion vote after his conviction on federal corruption charges last Tuesday.`\
 https://nytimes.com/2024/07/23/nyregion/senator-bob-menendez-resignation.html
 
 **Until Saturday: Ohio State, Oregon step into spotlight at Big Ten media days**\
