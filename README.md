@@ -1,3 +1,11 @@
+**Why Some Donors Are Holding Back on Endorsing Harris (for Now)**\
+`Fear of being seen as circumventing an open nomination process is one reason that some backers have not yet publicly endorsed the vice president.`\
+https://nytimes.com/2024/07/23/business/dealbook/harris-donors-endorsements.html
+
+**Palestinian Factions Hail Declaration of Unity in Beijing, but Skepticism Is High**\
+`A joint statement from Fatah and Hamas supports the formation of a consensus government, but for many Palestinians the announcement doesn’t mean much.`\
+https://nytimes.com/2024/07/23/world/middleeast/fatah-hamas-china-statement.html
+
 **‘A Voice Can Change You’: The Week 5 Winner of Our Summer Reading Contest**\
 `In her 90-second video, Annie Ma, 14, explains how an essay by the singer Dessa hit home for her.`\
 https://nytimes.com/2024/07/23/learning/a-voice-can-change-you-the-week-5-winner-of-our-summer-reading-contest.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5636961/2024/07/23/track-and-field-2024-paris-olymp
 **Harris is set to speak in the Milwaukee area. Here’s the latest.**\
 `By Nicholas Nehamas and Chris Cameron`\
 https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden/harris-is-set-to-speak-in-the-milwaukee-area-heres-the-latest
-
-**Live Election Updates: Harris Hits Trail With Delegates, Cash and Energy at Her Back**\
-`Vice President Kamala Harris, who has secured commitments from enough delegates to win the Democratic presidential nomination, will campaign in Wisconsin, a crucial battleground.`\
-https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden
-
-**Hollinger: How French rookies (and many others) struggled in Las Vegas**\
-`While the draft's top two picks had their issues, for various reasons, those struggles didn't come under as big a spotlight as usual.`\
-https://nytimes.com/athletic/5651448/2024/07/23/nba-summer-league-rookies-disappointments-zaccharie-risacher-alex-sarr/
 
