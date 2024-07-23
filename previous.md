@@ -1,7 +1,3 @@
-**Walter Shapiro, Political Columnist With a Contrarian Streak, Dies at 77**\
-`He brought to his writing a sharp sense of humor, honed in stand-up comedy clubs, and never pulled punches even though he was an unabashed Democrat.`\
-https://nytimes.com/2024/07/23/business/media/walter-shapiro-dead.html
-
 **Biden Should Have Treated Harris as a Future President**\
 `She was not set up for success.`\
 https://nytimes.com/2024/07/22/opinion/harris-biden-vice-president.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/07/23/sports/japan-olympics-gymnastics-smoking.html
 **The Triumphant Comeback of the Kamala Harris Meme**\
 `The same unflattering supercuts and Photoshop jobs once used to denigrate Harris have now been flipped into celebratory artifacts of her candidacy.`\
 https://nytimes.com/2024/07/23/arts/kamala-harris-tiktok-trump.html
+
+**Biden Plans to Address the Nation on Wednesday Night**\
+`In announcing the address, President Biden said he would discuss “what lies ahead, and how I will finish the job for the American people.” His physician said the president has now tested negative for Covid.`\
+https://nytimes.com/2024/07/23/us/politics/biden-address-nation.html
 
