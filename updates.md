@@ -1,3 +1,7 @@
+**U.A.W. Holds Off on Endorsing Harris**\
+`Unlike other prominent unions, the auto workers are taking their time to ensure that the vice president is aligned with them on key policy questions.`\
+https://nytimes.com/2024/07/23/us/politics/uaw-harris-endorsement.html
+
 **An Unbending Leader’s Crackdown Rains Carnage on Bangladesh**\
 `Prime Minister Sheikh Hasina’s deadly response to student-led protests has grown into the biggest challenge ever to her dominance.`\
 https://nytimes.com/2024/07/23/world/asia/bangladesh-protests-sheikh-hasina.html
