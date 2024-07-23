@@ -1,3 +1,9 @@
+**The military was using tanks and fighter jets to strike what it said were Hamas facilities.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/07/23/world/israel-gaza-war-hamas/the-military-was-using-tanks-and-fighter-jets-to-strike-what-it-said-were-hamas-facilities
+
+**Israeli raids in West Bank kill at least 3, Palestinian officials say, and other news.**\
+
 **Tari Eason opens up on lows of injury-riddled season and his journey back**\
 `"There was a point where I really was sad, a low point," Eason said of not playing. "I didn’t know what was going to happen."`\
 https://nytimes.com/athletic/5650732/2024/07/23/houston-rockets-tari-eason-interview-nba/
