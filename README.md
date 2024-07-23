@@ -2,6 +2,10 @@
 `Dan Pelosi’s new recipe tosses the strands with olive oil, butter, garlic, herbs and blistered cherry tomatoes for a perfect pan of pasta.`\
 https://nytimes.com/2024/07/23/dining/capellini-angel-hair-pasta.html
 
+**WNBA All-Star Game draws largest broadcast audience since 1997**\
+`It is the 17th WNBA game this year that has topped 1 million viewers. Caitlin Clark has played in 15 of those 17 games.`\
+https://nytimes.com/athletic/5652893/2024/07/23/wnba-all-star-game-ratings-viewership/
+
 **Secret Service Director Resigns After Trump Assassination Attempt**\
 `Kimberly A. Cheatle gave up her post after security failures that allowed a gunman to shoot at former President Donald J. Trump at an open-air rally.`\
 https://nytimes.com/2024/07/23/us/politics/cheatle-secret-service-director-resigns.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5652703/2024/07/23/david-de-gea-manchester-united-r
 **Transportation Department to Investigate Delta After Flight Delays**\
 `Pete Buttigieg, the transportation secretary, made the announcement after the airline suspended travel for unaccompanied minors.`\
 https://nytimes.com/2024/07/23/us/pete-buttigieg-delta-outage.html
-
-**Army Sees No Link to Blast Exposure in Maine Gunman’s Mental Issues**\
-`Investigators found lapses in the handling of a troubled reservist who went on to kill 18 people, but they rejected suggestions that his Army work had damaged his brain.`\
-https://nytimes.com/2024/07/23/us/maine-gunman-army-robert-card.html
 
