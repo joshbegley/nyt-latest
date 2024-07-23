@@ -1,3 +1,11 @@
+**Snoop Dogg to carry Olympic torch in final stretch**\
+`The torch has spent the past two months making its way through France, and it will travel to 68 different stages before opening ceremony.`\
+https://nytimes.com/athletic/5652649/2024/07/23/snoop-dogg-olympic-torchbearer/
+
+**Why Liverpool are back in the U.S. after five-year absence – and who stands to benefit**\
+`The club's pre-season tour is a big moment for Arne Slot... and the club's commercial department`\
+https://nytimes.com/athletic/5650869/2024/07/23/liverpool-us-tour-arne-slot/
+
 **Why Liverpool are back in the U.S. after five-year absence - and who stands to benefit**\
 `The club's pre-season tour is a big moment for Arne Slot... and the club's commercial department`\
 https://nytimes.com/athletic/5650869/2024/07/23/liverpool-us-tour-arne-slot/
