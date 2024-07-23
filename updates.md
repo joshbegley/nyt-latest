@@ -1,3 +1,15 @@
+**Packers training camp: 'Crazy' defensive line showing out on first two days**\
+`Under new defensive coordinator Jeff Hafley, the Packers' defensive line has a different mindset from last season.`\
+https://nytimes.com/athletic/5653964/2024/07/23/packers-training-camp-defensive-line/
+
+**Police Commander Provides More Details on Trump Rally Shooting**\
+`A Pennsylvania State Police colonel testifying before a House panel gave more answers about security for the rally than the Secret Service director had, but raised more questions.`\
+https://nytimes.com/2024/07/23/us/politics/trump-rally-shooting-police.html
+
+**Judge Refuses to Block F.T.C.’s Noncompete Ban as Lawsuits Play Out**\
+`A federal judge in Pennsylvania denied a request to delay the rule, siding with the agency and diverging from another court’s decision earlier this month.`\
+https://nytimes.com/2024/07/23/business/economy/noncompete-ban-ftc.html
+
 **Hillary Clinton: I Know Kamala Harris Can Beat Donald Trump**\
 `I’ve been called a witch, a “nasty woman” and much worse. Harris will face unique additional challenges. But we shouldn’t be afraid.`\
 https://nytimes.com/2024/07/23/opinion/kamala-harris-donald-trump.html
