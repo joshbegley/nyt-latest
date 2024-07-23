@@ -1,3 +1,7 @@
+**Two Landslides Kill More Than 150 People in Ethiopia**\
+`A waterlogged hillside above a village gave way, burying several houses in mud. Neighbors and rescue workers who had rushed to help were hit by a second slide.`\
+https://nytimes.com/2024/07/23/world/landslides-ethiopia-village.html
+
 **Unions tell the Biden administration to stop sending military aid to Israel.**\
 `Several unions with millions of members demanded that the president secure a cease-fire in Gaza.`\
 https://nytimes.com/2024/07/23/us/politics/union-biden-letter-israel-gaza.html
@@ -10,7 +14,7 @@ https://nytimes.com/2024/07/23/world/australia/new-zealand-reality-show-weka-bir
 `The Rams coach sits down with The Athletic Football Show podcast`\
 https://nytimes.com/athletic/5652659/2024/07/23/sean-mcvay-on-improving-as-a-coach-pukas-breakout-work-life-balance/
 
-**Vecenie: The good, bad and ugly from Bronny James' summer league performances**\
+**Vecenie: The good, bad and ugly from Bronny James' summer-league performances**\
 `LeBron James' son showed some promising flashes of athleticism and potential, but he has a long way to go in several areas. `\
 https://nytimes.com/athletic/5650131/2024/07/23/bronny-james-summer-league-performance-lakers/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/world/europe/british-museum-coin-fake.html
 **Jets' Haason Reddick holds out for start of training camp**\
 `After the trade in March, Reddick told reporters as it relates to his contract that “whatever happens, I’m going to be happy."`\
 https://nytimes.com/athletic/5652718/2024/07/23/haason-reddick-holdout-jets/
-
-**For Dean Phillips, Biden’s Withdrawal Offers ‘Unfulfilling’ Vindication**\
-`The congressman from Minnesota waged a quixotic challenge in the Democratic primaries, warning that the president was too old to win. No one paid attention then. They are now.`\
-https://nytimes.com/2024/07/23/us/politics/dean-phillips-biden.html
 
