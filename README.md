@@ -1,3 +1,7 @@
+**See How Biden Lost Support in the Polls Before He Dropped Out**\
+`President Biden’s polling deficits grew in every single swing state between the debate and Sunday, when he exited the race.`\
+https://nytimes.com/interactive/2024/07/23/us/politics/polls-biden-trump-debate-shift.html
+
 **Ex-Military Police Officer Sentenced to Prison for Role in Capitol Riot**\
 `Gregory C. Yetman, the subject of a manhunt last fall, admitted to pepper-spraying law enforcement officers during the Jan. 6, 2021, attack.`\
 https://nytimes.com/2024/07/23/nyregion/jan-6-gregory-yetman-sentenced.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/23/world/israel-gaza-war-hamas/for-the-second-t
 **Does Beyoncé Granting Kamala Harris Permission to Use Her Song Mean Something More?**\
 `Not quite a full-throated endorsement, but the use of the pop star’s song “Freedom” marked a moment.`\
 https://nytimes.com/2024/07/23/style/beyonce-kamala-harris-freedom.html
-
-**Judge Refuses to Block F.T.C.’s Noncompete Ban as Lawsuits Play Out**\
-`A federal judge in Pennsylvania denied a request to delay the rule, siding with the agency and diverging from another court’s decision earlier this month.`\
-https://nytimes.com/2024/07/23/business/economy/noncompete-ban-ftc.html
 
