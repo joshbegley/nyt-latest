@@ -1,3 +1,7 @@
+**Secret Service Director Resigns After Trump Assassination Attempt**\
+`Kimberly A. Cheatle gave up her post after security failures that allowed a gunman to shoot at former President Donald J. Trump at an open-air rally.`\
+https://nytimes.com/2024/07/23/us/politics/cheatle-secret-service-director-resigns.html
+
 **Two Landslides Kill More Than 150 People in Ethiopia**\
 `A waterlogged hillside above a village gave way, burying several houses in mud. Neighbors and rescue workers who had rushed to help were hit by a second slide.`\
 https://nytimes.com/2024/07/23/world/landslides-ethiopia-village.html
