@@ -8,7 +8,7 @@ https://nytimes.com/live/2024/07/23/world/israel-gaza-war-hamas/for-the-second-t
 
 **Does Beyoncé Granting Kamala Harris Permission to Use Her Song Mean Something More?**\
 `Not quite a full-throated endorsement, but the use of the pop star’s song “Freedom” marked a moment.`\
-https://nytimes.com/2024/07/23/style/does-beyonce-granting-kamala-harris-permission-to-use-her-song-mean-something-more.html
+https://nytimes.com/2024/07/23/style/beyonce-kamala-harris-freedom.html
 
 **Judge Refuses to Block F.T.C.’s Noncompete Ban as Lawsuits Play Out**\
 `A judge in Pennsylvania denied a request to delay the rule, siding with the agency and diverging from a Texas court’s decision earlier this month.`\
