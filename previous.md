@@ -1,3 +1,7 @@
+**IDP rankings for fantasy football 2024: Top 100 overall, top 50 by position; plus undervalued, overvalued and sleepers**\
+`Gary Davenport is here to help IDP league managers with his rankings, sleepers, undervalues and overvalues at all the defensive positions.`\
+https://nytimes.com/athletic/5647603/2024/07/23/fantasy-football-2024-idp-rankings-top-100/
+
 **'My Guys': Raheem Mostert, Nico Collins and more of Renee Miller's must-haves for fantasy football 2024**\
 `Renee Miller reveals the players, like Raheem Mostert, she'll be most passionately looking to acquire in early 2024 fantasy football drafts.`\
 https://nytimes.com/athletic/5649436/2024/07/23/fantasy-football-2024-my-guys-raheem-mostert-nico-collins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5596996/2024/07/23/hurzeler-brighton-injured-player
 **'My Guys': Caleb Williams, Amari Cooper and more from Gary Davenport's wish list for fantasy football 2024**\
 `Gary Davenport reveals the players, like Caleb Williams, he'll be most passionately looking to select in early 2024 fantasy football drafts.`\
 https://nytimes.com/athletic/5649909/2024/07/23/fantasy-football-2024-my-guys-caleb-williams-amari-cooper/
-
-**‘Right-sizing’ Manchester United - what it's like when INEOS 'rips off the Band-Aid'**\
-`After Man Utd staff were told of the club’s intention to cut 250 jobs, the room fell silent. We explore the realities of working for INEOS`\
-https://nytimes.com/athletic/5633918/2024/07/23/ineos-manchester-united-cuts/
 
