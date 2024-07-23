@@ -1,3 +1,7 @@
+**Why Liverpool are back in the U.S. after six-year absence - and who stands to benefit**\
+`The club's pre-season tour is a big moment for Arne Slot... and the club's commercial department`\
+https://nytimes.com/athletic/5650869/2024/07/23/liverpool-us-tour-arne-slot/
+
 **Families Left Scrambling After Delta Bars Minors From Flying Alone in Wake of Outage**\
 `The temporary move, made after Friday’s global tech outage, stranded some children across state lines or even in different countries.`\
 https://nytimes.com/2024/07/23/business/delta-it-outage-flights-minors.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/movies/venice-film-festival-joker-folie-a-deux.ht
 **Congress Leaders Agree to Form Task Force on Trump Assassination Attempt**\
 `The top Republican and Democrat in the House have struck a deal to form a bipartisan task force to lead congressional investigations into the attempted assassination of Donald J. Trump.`\
 https://nytimes.com/2024/07/23/us/politics/trump-assassination-attempt-task-force.html
-
-**MLB trade deadline Q&A: Bowden on deal scenarios and the latest buzz**\
-`Jim Bowden answered more than 30 trade deadline questions from subscribers, sharing the latest he's hearing on various players and teams. `\
-https://nytimes.com/athletic/5651981/2024/07/23/mlb-mlb-trade-deadline-scenarios-rumors/
 
