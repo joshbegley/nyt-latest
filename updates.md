@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘He Liked to Give Me Gifts’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/07/23/style/tiny-modern-love-stories-he-liked-to-give-me-gifts.html
+
 **Trump campaign files complaint over transfer of Biden funds to Harris.**\
 `By Maggie Haberman`\
 https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden/trump-campaign-files-complaint-over-transfer-of-biden-funds-to-harris
