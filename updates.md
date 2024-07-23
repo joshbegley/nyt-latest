@@ -1,3 +1,11 @@
+**Full Time: Bookmark this USWNT guide for the Olympics**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/5651877/2024/07/22/us-womens-national-team-olympics-roster-guide-full-time/
+
+**Nursing Home Owner Gets 3 Years’ Probation in Deadly Hurricane Evacuation**\
+`Bob Glynn Dean Jr. of Louisiana, who pleaded no contest to cruelty to the infirmed, Medicaid fraud and other criminal charges, will avoid prison time if he successfully completes probation.`\
+https://nytimes.com/2024/07/22/us/bob-dean-ida-nursing-home-owner.html
+
 **Congress Calls for Tech Outage Hearing to Grill Executive**\
 `The House Homeland Security Committee called on the chief executive of the cybersecurity firm CrowdStrike to testify on the disruption.`\
 https://nytimes.com/2024/07/22/technology/crowdstrike-outage-congress-hearing.html
