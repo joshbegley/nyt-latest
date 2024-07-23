@@ -1,3 +1,15 @@
+**Lavitta’s Creole Serves Beignets and More in a 1940s Harlem Barbershop**\
+`Crawfish cakes with Creole aioli, a classic wild shrimp po’ boy and grits with red-eye lamb gravy are also on the menu.`\
+https://nytimes.com/2024/07/23/dining/lavittas-creole-harlem.html
+
+**What Kamala Harris’s Path to the White House Looks Like**\
+`Vice President Harris has begun a new concerted effort to reintroduce herself to the American electorate after President Biden endorsed her to lead the Democratic ticket. Zolan Kanno-Youngs, a White House correspondent for The New York Times, explains what this new path will look like.`\
+https://nytimes.com/video/us/elections/100000009585351/kamala-harris-path-to-white-house.html
+
+**Top Japanese Gymnast Withdraws From Paris 2024 for Smoking and Drinking Alcohol**\
+`Shoko Miyata, the team’s captain, withdrew from the Games after an investigation by the country’s gymnastics board found she had violated its code of conduct.`\
+https://nytimes.com/2024/07/23/sports/japan-olympics-gymnastics-smoking.html
+
 **The Triumphant Comeback of the Kamala Harris Meme**\
 `The same unflattering supercuts and Photoshop jobs once used to denigrate Harris have now been flipped into celebratory artifacts of her candidacy.`\
 https://nytimes.com/2024/07/23/arts/kamala-harris-tiktok-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5653367/2024/07/23/mlb-trade-deadline-braves-infiel
 **JD Vance Is Still Figuring Out How to Attack Kamala Harris**\
 `But nothing has proved particularly effective yet.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/vance-harris-campaign
-
-**Joelinton confident of Bruno Guimares staying at Newcastle**\
-`Joelinton is confident that Bruno Guimaraes will stay at Newcastle United this summer, following positive conversations with his best friend.`\
-https://nytimes.com/athletic/5652340/2024/07/23/bruno-guimaraes-newcastle-transfer-news/
-
-**Man City goalkeeper Keating charged with possession of nitrous oxide**\
-`Manchester City and England goalkeeper Khiara Keating and her mother Nicola appeared in court today (Tuesday) after being charged with possession of the Class C drug nitrous oxide.`\
-https://nytimes.com/athletic/5652567/2024/07/23/khiara-keating-manchester-city-charged/
-
-**A Fabled Washington Home, Kept Empty by a 22-Year Battle**\
-`The home of Katharine Graham, the former Washington Post publisher, was once a hub of power and comity. But after an “insane” renovation spat, its new owner is looking to sell.`\
-https://nytimes.com/2024/07/23/us/politics/katharine-graham-house-georgetown.html
 
