@@ -1,3 +1,7 @@
+**Trump Says He Is Willing to Debate Harris Multiple Times**\
+`But for the second time since President Biden dropped out of the race, he indicated he didn’t want the debate to be held by ABC News.`\
+https://nytimes.com/2024/07/23/us/politics/trump-kamala-harris-debate.html
+
 **Amari Cooper agrees to restructured contract with Browns, reports to training camp**\
 `The deal reportedly guarantees the $20 million remaining on Cooper's contract and includes an incentive package worth around $5 million.  `\
 https://nytimes.com/athletic/5653876/2024/07/23/browns-amari-cooper-restructured-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5653124/2024/07/23/brandon-aiyuk-training-camp-repo
 **The Antisemite Coming to the Trump Fund-Raiser**\
 `Maybe the campaign thought no one would notice.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/candace-owens-trump-fundrasier
-
-**Travelers Delayed or Stuck by the CrowdStrike Outage: What Did Your Airline Provide?**\
-`The flight disruptions brought on by the global I.T. failure were deemed within the control of the airlines, meaning airlines have to reimburse passengers for meals, transportation and hotels. Did your carrier living up to the requirement?`\
-https://nytimes.com/2024/07/23/travel/outage-airlines-vouchers-hotel-refund.html
 

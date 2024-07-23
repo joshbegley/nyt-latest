@@ -1,3 +1,7 @@
+**Trump Says He Is Willing to Debate Harris Multiple Times**\
+`But for the second time since President Biden dropped out of the race, he indicated he didn’t want the debate to be held by ABC News.`\
+https://nytimes.com/2024/07/23/us/politics/trump-kamala-harris-debate.html
+
 **Amari Cooper agrees to restructured contract with Browns, reports to training camp**\
 `The deal reportedly guarantees the $20 million remaining on Cooper's contract and includes an incentive package worth around $5 million.  `\
 https://nytimes.com/athletic/5653876/2024/07/23/browns-amari-cooper-restructured-contract/
