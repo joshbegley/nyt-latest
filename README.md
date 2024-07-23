@@ -1,4 +1,4 @@
-**Vecenie: The good, the bad and the ugly from Bronny James' Summer League performances**\
+**Vecenie: The good, bad and ugly from Bronny James' summer league performances**\
 `LeBron James' son showed some promising flashes of athleticism and potential, but he has a long way to go in several areas. `\
 https://nytimes.com/athletic/5650131/2024/07/23/bronny-james-summer-league-performance-lakers/
 
