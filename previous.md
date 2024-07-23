@@ -1,3 +1,7 @@
+**Four takeaways on the Cubs’ likely sell-off at the looming trade deadline   **\
+`The Cubs are putting the focus on 2025. What does that mean for Chicago's roster?`\
+https://nytimes.com/athletic/5652069/2024/07/22/takeaways-cubs-sell-off-trade-deadline/
+
 **Founder of Korean Tech Giant Arrested Over K-Pop Deal**\
 `Kim Beom-Su, the billionaire behind Kakao, was taken into custody on Tuesday on allegations of stock manipulation during a bidding war over a major K-pop agency.`\
 https://nytimes.com/2024/07/22/business/kakao-founder-arrest-warrant-south-korea.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/22/us/bob-dean-ida-nursing-home-owner.html
 **Congress Calls for Tech Outage Hearing to Grill Executive**\
 `The House Homeland Security Committee called on the chief executive of the cybersecurity firm CrowdStrike to testify on the disruption.`\
 https://nytimes.com/2024/07/22/technology/crowdstrike-outage-congress-hearing.html
-
-**Parents of Teen Driver Who Killed Girl in High-Speed Crash Are Sentenced**\
-`The boy, then 16, survived and has been charged in the death of his 14-year-old passenger. His parents were sentenced to probation and ordered to take parenting classes.`\
-https://nytimes.com/2024/07/22/nyregion/teen-driver-queens-crash-parents-sentence.html
 
