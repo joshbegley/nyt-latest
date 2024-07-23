@@ -1,7 +1,3 @@
-**Man City goalkeeper Keating charged with possession of nitrous oxide**\
-`Manchester City and England goalkeeper Khiara Keating and her mother Nicola appeared in court today (Tuesday) after being charged with possession of the Class C drug nitrous oxide.`\
-https://nytimes.com/athletic/5652567/2024/07/23/khiara-keating-manchester-city-charged/
-
 **A Fabled Washington Home, Kept Empty by a 22-Year Battle**\
 `The home of Katharine Graham, the former Washington Post publisher, was once a hub of power and comity. But after an “insane” renovation spat, its new owner is looking to sell.`\
 https://nytimes.com/2024/07/23/us/politics/katharine-graham-house-georgetown.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/07/23/technology/mark-zuckerberg-meta-open-source-ai.ht
 **Writing Helped Her Realize She Was a Woman. It Also Made Her Famous.**\
 `Camila Sosa Villada, an Argentine transgender author, first inhabited a female voice in stories she wrote as a child. Now her novels are translated in more than 20 languages and being adapted for the screen.`\
 https://nytimes.com/2024/07/23/books/booksupdate/camila-sosa-villada.html
+
+**Submit your trade deadline questions for the Yankees mailbag**\
+`<p>The trade deadline is one week away.`\
+https://nytimes.com/athletic/5653185/2024/07/23/yankees-trade-deadline-questions-mailbag/
 

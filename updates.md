@@ -1,3 +1,7 @@
+**Man City goalkeeper Keating charged with possession of nitrous oxide**\
+`Manchester City and England goalkeeper Khiara Keating and her mother Nicola appeared in court today (Tuesday) after being charged with possession of the Class C drug nitrous oxide.`\
+https://nytimes.com/athletic/5652567/2024/07/23/khiara-keating-manchester-city-charged/
+
 **A Fabled Washington Home, Kept Empty by a 22-Year Battle**\
 `The home of Katharine Graham, the former Washington Post publisher, was once a hub of power and comity. But after an “insane” renovation spat, its new owner is looking to sell.`\
 https://nytimes.com/2024/07/23/us/politics/katharine-graham-house-georgetown.html
