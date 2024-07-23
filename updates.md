@@ -1,3 +1,11 @@
+**Record high discrimination reports received in 23-24 season, says Kick It Out**\
+`Kick It Out, a leading UK anti-discrimination charity, says it received the highest number of reports of discrimination it has ever had in a season during the 2023-24 campaign.`\
+https://nytimes.com/athletic/5653325/2024/07/23/kick-it-out-discrimination/
+
+**Secrets Emerge From a Fossil’s Taco Shell-Like Cover**\
+`An examination of an aquatic, shrimplike creatures that lived half a billion years ago offers insight into how arthropods with mandibles became so common.`\
+https://nytimes.com/2024/07/23/science/taco-shell-fossil.html
+
 **Rival Palestinian Factions Project Unity, but Deep Divisions Remain**\
 `In a move brokered by China, Fatah and Hamas endorsed a unified government for the West Bank and Gaza, but Palestinians are skeptical that the two parties can put aside their differences.`\
 https://nytimes.com/2024/07/23/world/middleeast/hamas-fatah-unity-china.html

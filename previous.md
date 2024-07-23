@@ -1,3 +1,11 @@
+**Record high discrimination reports received in 23-24 season, says Kick It Out**\
+`Kick It Out, a leading UK anti-discrimination charity, says it received the highest number of reports of discrimination it has ever had in a season during the 2023-24 campaign.`\
+https://nytimes.com/athletic/5653325/2024/07/23/kick-it-out-discrimination/
+
+**Secrets Emerge From a Fossil’s Taco Shell-Like Cover**\
+`An examination of an aquatic, shrimplike creatures that lived half a billion years ago offers insight into how arthropods with mandibles became so common.`\
+https://nytimes.com/2024/07/23/science/taco-shell-fossil.html
+
 **Rival Palestinian Factions Project Unity, but Deep Divisions Remain**\
 `In a move brokered by China, Fatah and Hamas endorsed a unified government for the West Bank and Gaza, but Palestinians are skeptical that the two parties can put aside their differences.`\
 https://nytimes.com/2024/07/23/world/middleeast/hamas-fatah-unity-china.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/23/us/politics/kamala-harris-election-democrats.html
 **Packers training camp: 'Attacking' defensive line showing out on first two days**\
 `Under new defensive coordinator Jeff Hafley, the Packers defensive line has a different mindset from last season.`\
 https://nytimes.com/athletic/5653964/2024/07/23/packers-training-camp-defensive-line/
-
-**Police Commander Provides More Details on Trump Rally Shooting**\
-`A Pennsylvania State Police colonel testifying before a House panel gave more answers about security for the rally than the Secret Service director had, but raised more questions.`\
-https://nytimes.com/2024/07/23/us/politics/trump-rally-shooting-police.html
-
-**Hillary Clinton: I Know Kamala Harris Can Beat Donald Trump**\
-`I’ve been called a witch, a “nasty woman” and much worse. Harris will face unique additional challenges. But we shouldn’t be afraid.`\
-https://nytimes.com/2024/07/23/opinion/kamala-harris-donald-trump.html
 
