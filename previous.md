@@ -1,3 +1,7 @@
+**Jets' Haason Reddick holds out for start of training camp**\
+`After the trade in March, Reddick told reporters as it relates to his contract that “whatever happens, I’m going to be happy."`\
+https://nytimes.com/athletic/5652718/2024/07/23/haason-reddick-holdout-jets/
+
 **For Dean Phillips, Biden’s Withdrawal Offers ‘Unfulfilling’ Vindication**\
 `The congressman from Minnesota waged a quixotic challenge in the Democratic primaries, warning that the president was too old to win. No one paid attention then. They are now.`\
 https://nytimes.com/2024/07/23/us/politics/dean-phillips-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/business/delta-it-outage-flights-minors.html
 **In Wilmington, They Like ‘Delaware Joe.’ But They’re Glad He Quit.**\
 `Support is strong for President Biden in the city that has been his home base. But, as a local put it, “You got to know when to hold ’em, know when to fold ’em.”`\
 https://nytimes.com/2024/07/23/style/president-biden-wilmington-delaware-supporters-withdrawal.html
-
-**Not Your Usual Secondhand Book Sale**\
-`Bibliophiles and film fans leafed through hundreds of books that once belonged to the eminent editor Robert Gottlieb.`\
-https://nytimes.com/2024/07/23/style/robert-gottlieb-book-sale.html
 

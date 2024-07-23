@@ -1,3 +1,7 @@
+**Jets' Haason Reddick holds out for start of training camp**\
+`After the trade in March, Reddick told reporters as it relates to his contract that “whatever happens, I’m going to be happy."`\
+https://nytimes.com/athletic/5652718/2024/07/23/haason-reddick-holdout-jets/
+
 **For Dean Phillips, Biden’s Withdrawal Offers ‘Unfulfilling’ Vindication**\
 `The congressman from Minnesota waged a quixotic challenge in the Democratic primaries, warning that the president was too old to win. No one paid attention then. They are now.`\
 https://nytimes.com/2024/07/23/us/politics/dean-phillips-biden.html
