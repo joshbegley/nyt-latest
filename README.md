@@ -1,40 +1,40 @@
-**Arsenal boss Arteta 'excited' about 'leader' Timber**\
-`Arsenal manager Mikel Arteta says he is “excited” about the return of Jurrien Timber to his side.`\
-https://nytimes.com/athletic/5652443/2024/07/23/arsenal-timber-arteta-return-leader/
+**Why Team USA is willing to wait for Kevin Durant's Olympic debut: 'We need him out there'**\
+`Kevin Durant still hasn't set foot on the court for the Americans. But the team's all-time leading scorer brings something no one else can.`\
+https://nytimes.com/athletic/5651862/2024/07/23/kevin-durant-injury-olympics-debut-team-usa/
 
-**Noriko Ohara, Who Gave Voice to Nobita in ‘Doraemon,’ Dies at 88**\
-`Her voice became widely recognized in Japan after she starred in animated shows watched by nearly every child in the country and beyond.`\
-https://nytimes.com/2024/07/23/arts/noriko-ohara-dead.html
+**Matthew Stafford's contract, new DC: Top Rams' storylines entering 2024 training camp**\
+`Will Stafford's contract be an issue during training camp? What to expect from Chris Shula and who are sleepers and potential odd men out?`\
+https://nytimes.com/athletic/5651553/2024/07/23/rams-training-camp-storylines-matthew-stafford/
 
-**Bordeaux relegated after Liverpool owner FSG withdraws from takeover talks**\
-`Bordeaux have been administratively relegated to the third tier of French football after Liverpool&#8217;s owner Fenway Sports Group (FSG) withdrew from takeover talks.`\
-https://nytimes.com/athletic/5652410/2024/07/23/bordeaux-relegated-fsg-takeover-liverpool/
+**Harris Closes In on Nomination, and Secret Service Chief Berated**\
+`Plus, A.I. chatbots are flunking math.`\
+https://nytimes.com/2024/07/23/podcasts/kamala-harris-nomination-secret-service.html
 
-**This Week in Mets: What do the Mets need to know before the deadline?**\
-`Jose Quintana might make sense to move as a veteran about to be a free agent, but he's been a significant part of the Mets’ turnaround.`\
-https://nytimes.com/athletic/5651527/2024/07/23/mets-trade-deadline-kodai-senga-2/
+**Hornets co-owner Schwartzberg joining board at English club Leeds**\
+`Leeds United have appointed two new board members with Andrew Schwartzberg and Eugene Schneur joining the English football club&#8217;s senior leadership team.`\
+https://nytimes.com/athletic/5652378/2024/07/23/leeds-andrew-schwartzberg-gene-schneur/
 
-**How Jake Rogers became the heartbeat of the surging Tigers**\
-`Before his highlight dash around the bases, Rogers took an oblong developmental path to becoming the Tigers' backstop.`\
-https://nytimes.com/athletic/5652138/2024/07/23/tigers-jake-rogers-success-story/
+**NFL Draft summer scouting: Can anyone challenge Colston Loveland as TE1 this season?**\
+`The tight end position produced a rare top-15 pick in April. Could the 2025 class repeat history? How strong is it at the top?`\
+https://nytimes.com/athletic/5649974/2024/07/23/nfl-draft-2025-colston-loveland-scouting-report/
 
-**Big Board: Top 100 picks for fantasy football 2024, from Christian McCaffrey to Jayden Daniels**\
-`Brandon Funston offers up his Top 100 picks for 2024 half-PPR leagues, starting with San Francisco's do-it-all back Christian McCaffrey.`\
-https://nytimes.com/athletic/5649562/2024/07/23/big-board-top-100-rankings-fantasy-football-2024/
+**Jonathan Owens ready to lock in and root for wife, Simone Biles, at Paris Olympics**\
+`The Bears employ Biles' biggest fan, her husband, safety Jonathan Owens, who says he'll "be stressed out" at the Olympics.`\
+https://nytimes.com/athletic/5651640/2024/07/23/bears-jonathan-owens-simone-biles-olympics/
 
-**MLB trade deadline report: Drilling down on interesting arms and bats and teams' needs**\
-`Let's look at which players are most likely available via trade and which teams are most desperate for their services.`\
-https://nytimes.com/athletic/5651622/2024/07/23/mlb-trade-deadline-pitchers-hitters-team-needs/
+**The Coronation of Kamala Harris**\
+`The vice president has no real competition for the Democratic nomination, despite polling that shows weaknesses in her candidacy.`\
+https://nytimes.com/2024/07/23/podcasts/the-daily/kamala-harris.html
 
-**Tottenham Women's head coach Vilahamn signs new contract**\
-`Tottenham Hotspur Women&#8217;s head coach Robert Vilahamn has signed a new contract until 2027.`\
-https://nytimes.com/athletic/5652376/2024/07/23/robert-vilahamn-tottenham-contract/
+**Outside groups that support paid family leave plan an ad for Kamala Harris.**\
+`By Reid J. Epstein`\
+https://nytimes.com/2024/07/23/us/politics/outside-groups-that-support-paid-family-leave-plan-an-ad-for-kamala-harris.html
 
-**What Polling Tells Us About a Kamala Harris Candidacy**\
-`Sorting out whether she’s an upgrade for Democrats.`\
-https://nytimes.com/2024/07/23/opinion/kamala-harris-polls-democrats.html
+**Wordle Review No. 1,131, Day of Week, July 24, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/23/crosswords/wordle-review-1131.html
 
-**Trump’s New Rival May Bring Out His Harshest Instincts**\
-`After years planning to face President Biden, Donald J. Trump and his team will be campaigning against Kamala Harris. He has attacked female rivals and critics in brutal and personal terms.`\
-https://nytimes.com/2024/07/23/us/politics/trump-harris-attack-lines.html
+**The Connections Companion No. 409, July 24, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/23/crosswords/connections-companion-409.html
 
