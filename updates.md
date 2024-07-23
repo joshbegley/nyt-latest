@@ -1,3 +1,7 @@
+**John Mayall, Pioneer of British Blues, Is Dead at 90**\
+`Mr. Mayall was best known for recruiting and polishing the talents of one gifted young lead guitarist after another, starting with Eric Clapton.`\
+https://nytimes.com/2024/07/23/arts/music/john-mayall-dead.html
+
 **Hydrothermal Explosion at Yellowstone Sends Tourists Racing for Safety**\
 `The explosion at Biscuit Basin, which sent a column of boiling water, mud and rock shooting into the sky on Tuesday, was caught in dramatic videos.`\
 https://nytimes.com/2024/07/23/us/yellowstone-biscuit-basin-hydrothermal-explosion.html
