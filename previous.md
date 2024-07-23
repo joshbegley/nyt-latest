@@ -1,5 +1,17 @@
+**When It Comes to Food and Politics, Kamala Harris Is Riffing on the Recipe**\
+`From giving turkey-roasting advice to making dosas with Mindy Kaling, Ms. Harris has leaned into cooking in a way no other candidate has.`\
+https://nytimes.com/2024/07/23/dining/kamala-harris-home-cooking.html
+
+**What Is the KHive?**\
+`Coconut emojis, Charli XCX mash-ups and a bunch of grainy lime green video clips. Welcome to the latest iteration of the Kamala Harris fandom.`\
+https://nytimes.com/2024/07/23/style/khive-kamala-harris-supporters.html
+
+**Jaguars, CB Tyson Campbell agree to 4-year contract extension: Source**\
+`Campbell is coming off a 2023 season where he played 11 games compiling one interception and five pass defenses.`\
+https://nytimes.com/athletic/5653214/2024/07/23/tyson-campbell-contract-jaguars/
+
 **Team GB's Dujardin out of Olympics after 'error of judgement'**\
-`Team GB&#8217;s joint-most decorated female Olympian Charlotte Dujardin has withdrawn from the Paris Olympics after a video surfaced of her &#8220;making an error of judgement&#8221; during a coaching session.`\
+`Dujardin has won six Olympic medals across three Games in individual and team dressage`\
 https://nytimes.com/athletic/5653218/2024/07/23/charlotte-dujardin-olympics-video/
 
 **Tracking Typhoon Gaemi**\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/23/dining/capellini-angel-hair-pasta.html
 **WNBA All-Star Game shatters all-time ratings mark**\
 `It is the 17th WNBA game this year that has topped 1 million viewers. Caitlin Clark has played in 15 of those 17 games.`\
 https://nytimes.com/athletic/5652893/2024/07/23/wnba-all-star-game-ratings-viewership/
-
-**Secret Service Director Resigns After Trump Assassination Attempt**\
-`Kimberly A. Cheatle gave up her post Tuesday after security failures that allowed a gunman to shoot at former President Donald J. Trump at an open-air rally.`\
-https://nytimes.com/2024/07/23/us/politics/cheatle-secret-service-director-resigns.html
-
-**Two Landslides Kill More Than 150 People in Ethiopia**\
-`A waterlogged hillside above a village gave way, burying several houses in mud. Neighbors and rescue workers who had rushed to help were hit by a second slide.`\
-https://nytimes.com/2024/07/23/world/landslides-ethiopia-village.html
-
-**Unions tell the Biden administration to stop sending military aid to Israel.**\
-`Several unions with millions of members demanded that the president secure a cease-fire in Gaza.`\
-https://nytimes.com/2024/07/23/us/politics/union-biden-letter-israel-gaza.html
 

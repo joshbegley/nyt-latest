@@ -1,3 +1,19 @@
+**When It Comes to Food and Politics, Kamala Harris Is Riffing on the Recipe**\
+`From giving turkey-roasting advice to making dosas with Mindy Kaling, Ms. Harris has leaned into cooking in a way no other candidate has.`\
+https://nytimes.com/2024/07/23/dining/kamala-harris-home-cooking.html
+
+**What Is the KHive?**\
+`Coconut emojis, Charli XCX mash-ups and a bunch of grainy lime green video clips. Welcome to the latest iteration of the Kamala Harris fandom.`\
+https://nytimes.com/2024/07/23/style/khive-kamala-harris-supporters.html
+
+**Jaguars, CB Tyson Campbell agree to 4-year contract extension: Source**\
+`Campbell is coming off a 2023 season where he played 11 games compiling one interception and five pass defenses.`\
+https://nytimes.com/athletic/5653214/2024/07/23/tyson-campbell-contract-jaguars/
+
+**Team GB's Dujardin out of Olympics after 'error of judgement'**\
+`Dujardin has won six Olympic medals across three Games in individual and team dressage`\
+https://nytimes.com/athletic/5653218/2024/07/23/charlotte-dujardin-olympics-video/
+
 **Team GB's Dujardin out of Olympics after 'error of judgement'**\
 `Team GB&#8217;s joint-most decorated female Olympian Charlotte Dujardin has withdrawn from the Paris Olympics after a video surfaced of her &#8220;making an error of judgement&#8221; during a coaching session.`\
 https://nytimes.com/athletic/5653218/2024/07/23/charlotte-dujardin-olympics-video/
