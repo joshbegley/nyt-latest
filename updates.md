@@ -1,3 +1,7 @@
+**Rams QB Matthew Stafford's deal gets done — for many reasons**\
+`Reworking Stafford's contract is, of course, good for the quarterback, but it's also good for the rest of the team.`\
+https://nytimes.com/athletic/5654081/2024/07/23/rams-matthew-stafford-contract-quarterback/
+
 **Super PAC Tied to Elon Musk Is Being Guided by Ex-DeSantis Aides**\
 `The group, America PAC, which is funded by allies of Elon Musk, is said to be steered by two well-known Republican operatives who worked on behalf of Ron DeSantis’s presidential bid.`\
 https://nytimes.com/2024/07/23/us/politics/elon-musk-super-pac-desantis.html
