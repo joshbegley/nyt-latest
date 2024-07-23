@@ -1,3 +1,7 @@
+**Scoop City: Green Bay's latest franchise QB awaits payday**\
+`We also hear directly from Saquon Barkley on how his time in New York ended.`\
+https://nytimes.com/athletic/5652767/2024/07/23/jordan-love-holdin-scoop-city/
+
 **Snoop Dogg to carry Olympic torch in final stretch**\
 `The torch has spent the past two months making its way through France, and it will travel to 68 different stages before opening ceremony.`\
 https://nytimes.com/athletic/5652649/2024/07/23/snoop-dogg-olympic-torchbearer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/world/middleeast/fatah-hamas-china-statement.html
 **‘A Voice Can Change You’: The Week 5 Winner of Our Summer Reading Contest**\
 `In her 90-second video, Annie Ma, 14, explains how an essay by the singer Dessa hit home for her.`\
 https://nytimes.com/2024/07/23/learning/a-voice-can-change-you-the-week-5-winner-of-our-summer-reading-contest.html
-
-**Giants' 10-step plan revisited: Was splash trade for Brian Burns best use of resources?**\
-`Most of the Giants' offseason moves made sense, but did they do enough to fix the offensive line? `\
-https://nytimes.com/athletic/5651356/2024/07/23/new-york-giants-offseason-joe-schoen-brian-burns/
 

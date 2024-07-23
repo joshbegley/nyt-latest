@@ -1,3 +1,7 @@
+**Scoop City: Green Bay's latest franchise QB awaits payday**\
+`We also hear directly from Saquon Barkley on how his time in New York ended.`\
+https://nytimes.com/athletic/5652767/2024/07/23/jordan-love-holdin-scoop-city/
+
 **Snoop Dogg to carry Olympic torch in final stretch**\
 `The torch has spent the past two months making its way through France, and it will travel to 68 different stages before opening ceremony.`\
 https://nytimes.com/athletic/5652649/2024/07/23/snoop-dogg-olympic-torchbearer/
