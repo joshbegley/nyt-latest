@@ -1,10 +1,14 @@
+**U.A.W. Holds Off on Endorsing Harris**\
+`Unlike other prominent unions, the auto workers are taking their time to ensure that the vice president is aligned with it on key policy questions.`\
+https://nytimes.com/2024/07/23/us/politics/uaw-harris-endorsement.html
+
 **Top British Equestrian Out of Olympics Over Video**\
 `“There is no excuse,” Charlotte Dujardin said. “I am deeply ashamed and should have set a better example in that moment.”`\
 https://nytimes.com/2024/07/23/sports/charlotte-dujardin-equestrian-olympics-video.html
 
 **Menendez Will Resign From Senate, Avoiding an Ugly, Intraparty Battle**\
 `Senator Robert Menendez of New Jersey was convicted of bribery and corruption in federal court last Tuesday.`\
-https://nytimes.com/2024/07/23/nyregion/robert-menendez-resignation.html
+https://nytimes.com/2024/07/23/nyregion/senator-bob-menendez-resignation.html
 
 **Until Saturday: Ohio State, Oregon step into spotlight at Big Ten media days**\
 `Welcome to Until Saturday, the five-star college football newsletter: Oregon and Ohio State likely will be the focus in Indianapolis. `\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/climate/trump-electric-vehicles-musk.html
 **Tony Petitti says Big Ten 'focused on 18 right now'**\
 `Petitti touted his league’s strength and position in an ever-changing college sports landscape.`\
 https://nytimes.com/athletic/5653307/2024/07/23/tony-petitti-big-ten-expansion/
-
-**The Attacks on Kamala Harris for Not Having Kids Will Backfire**\
-`Being a parent doesn’t make you a better politician.`\
-https://nytimes.com/2024/07/23/opinion/kamala-harris-jd-vance.html
 
