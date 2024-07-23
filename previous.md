@@ -3,7 +3,7 @@
 https://nytimes.com/2024/07/23/dining/capellini-angel-hair-pasta.html
 
 **Secret Service Director Resigns After Trump Assassination Attempt**\
-`Kimberly A. Cheatle gave up her post after security failures that allowed a gunman to shoot at former President Donald J. Trump at an open-air rally.`\
+`Kimberly A. Cheatle gave up her post Tuesday after security failures that allowed a gunman to shoot at former President Donald J. Trump at an open-air rally.`\
 https://nytimes.com/2024/07/23/us/politics/cheatle-secret-service-director-resigns.html
 
 **Two Landslides Kill More Than 150 People in Ethiopia**\

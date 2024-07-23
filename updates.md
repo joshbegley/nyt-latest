@@ -1,3 +1,7 @@
+**Secret Service Director Resigns After Trump Assassination Attempt**\
+`Kimberly A. Cheatle gave up her post Tuesday after security failures that allowed a gunman to shoot at former President Donald J. Trump at an open-air rally.`\
+https://nytimes.com/2024/07/23/us/politics/cheatle-secret-service-director-resigns.html
+
 **Hear Us Out: Angel Hair Pasta**\
 `Dan Pelosi’s new recipe tosses the strands with olive oil, butter, garlic, herbs and blistered cherry tomatoes for a perfect pan of pasta.`\
 https://nytimes.com/2024/07/23/dining/capellini-angel-hair-pasta.html
