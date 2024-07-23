@@ -1,3 +1,7 @@
+**Hear Us Out: Angel Hair Pasta**\
+`Dan Pelosi’s new recipe tosses the strands with olive oil, butter, garlic, herbs and blistered cherry tomatoes for a perfect pan of pasta.`\
+https://nytimes.com/2024/07/23/dining/capellini-angel-hair-pasta.html
+
 **Secret Service Director Resigns After Trump Assassination Attempt**\
 `Kimberly A. Cheatle gave up her post after security failures that allowed a gunman to shoot at former President Donald J. Trump at an open-air rally.`\
 https://nytimes.com/2024/07/23/us/politics/cheatle-secret-service-director-resigns.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/us/pete-buttigieg-delta-outage.html
 **Army Sees No Link to Blast Exposure in Maine Gunman’s Mental Issues**\
 `Investigators found lapses in the handling of a troubled reservist who went on to kill 18 people, but they rejected suggestions that his Army work had damaged his brain.`\
 https://nytimes.com/2024/07/23/us/maine-gunman-army-robert-card.html
-
-**Art Student Pulls Off a (Very Brief) Coin Heist at the British Museum**\
-`The artist aimed to use sleight of hand to point to what he described as the museum’s problematic legacy of colonial-era acquisitions.`\
-https://nytimes.com/2024/07/23/world/europe/british-museum-coin-fake.html
 
