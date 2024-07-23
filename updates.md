@@ -1,3 +1,7 @@
+**Word of the Day: revue**\
+`This word has appeared in 52 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/07/23/learning/word-of-the-day-revue.html
+
 **Stephen Colbert Retires His Joe Biden Sunglasses**\
 `The “Late Show” host is putting his aviators on a shelf, now that the president has ended his re-election campaign.`\
 https://nytimes.com/2024/07/23/arts/television/colbert-biden-sunglasses.html
