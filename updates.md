@@ -1,3 +1,7 @@
+**Twins rebound behind Bailey Ober to beat Phillies as reinforcements are ready to return**\
+`Royce Lewis and Jose Miranda could return later this week in Detroit, and Carlos Correa has a target return date in mind.`\
+https://nytimes.com/athletic/5652247/2024/07/23/twins-bailey-ober-beat-phillies/
+
 **Word of the Day: revue**\
 `This word has appeared in 52 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/07/23/learning/word-of-the-day-revue.html
