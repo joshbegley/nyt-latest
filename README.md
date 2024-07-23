@@ -1,3 +1,7 @@
+**De Bruyne 'not leaving' Manchester City this summer - Guardiola**\
+`Manchester City head coach Pep Guardiola has ruled out the prospect of Kevin de Bruyne leaving the club this summer.`\
+https://nytimes.com/athletic/5652350/2024/07/23/kevin-de-bruyne-manchester-city-transfer/
+
 **Fantasy football 2024 outlooks for Nick Chubb, T.J. Hockenson and more players returning from injury**\
 `Greg Scholz of Inside Injuries offers insights into the players, like Nick Chubb and T.J. Hockenson, looking to return from injury in 2024.`\
 https://nytimes.com/athletic/5645915/2024/07/23/nfl-fantasy-football-injury-report-nick-chubb-tj-hockenson/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/crosswords/spelling-bee-forum.html
 **Frustrated Californians May Be Ready for a Tougher Approach to Crime**\
 `Shoplifting and fentanyl use have tested the patience of California voters, who will decide in November whether to impose stricter laws that would lead to more incarceration.`\
 https://nytimes.com/2024/07/23/us/frustrated-californians-may-be-ready-for-a-tougher-approach-to-crime.html
-
-**Adams joins Torino on free transfer after Southampton exit**\
-`Che Adams has joined Serie A side Torino on a free transfer after leaving Southampton following the end of his contract.`\
-https://nytimes.com/athletic/5649489/2024/07/23/che-adams-torino-free-transfer/
 
