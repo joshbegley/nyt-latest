@@ -1,3 +1,7 @@
+**Joelinton confident of Bruno Guimares staying at Newcastle**\
+`Joelinton is confident that Bruno Guimaraes will stay at Newcastle United this summer, following positive conversations with his best friend.`\
+https://nytimes.com/athletic/5652340/2024/07/23/bruno-guimaraes-newcastle-transfer-news/
+
 **Man City goalkeeper Keating charged with possession of nitrous oxide**\
 `Manchester City and England goalkeeper Khiara Keating and her mother Nicola appeared in court today (Tuesday) after being charged with possession of the Class C drug nitrous oxide.`\
 https://nytimes.com/athletic/5652567/2024/07/23/khiara-keating-manchester-city-charged/

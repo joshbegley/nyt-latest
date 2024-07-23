@@ -1,3 +1,7 @@
+**Joelinton confident of Bruno Guimares staying at Newcastle**\
+`Joelinton is confident that Bruno Guimaraes will stay at Newcastle United this summer, following positive conversations with his best friend.`\
+https://nytimes.com/athletic/5652340/2024/07/23/bruno-guimaraes-newcastle-transfer-news/
+
 **Man City goalkeeper Keating charged with possession of nitrous oxide**\
 `Manchester City and England goalkeeper Khiara Keating and her mother Nicola appeared in court today (Tuesday) after being charged with possession of the Class C drug nitrous oxide.`\
 https://nytimes.com/athletic/5652567/2024/07/23/khiara-keating-manchester-city-charged/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/23/world/asia/gaemi-map-path-tracker.htm
 **Mark Zuckerberg Stumps for ‘Open Source’ A.I.**\
 `The chief executive of Meta said in an open letter that it was important that the technology was not controlled by a handful of giant companies — including his own.`\
 https://nytimes.com/2024/07/23/technology/mark-zuckerberg-meta-open-source-ai.html
-
-**Writing Helped Her Realize She Was a Woman. It Also Made Her Famous.**\
-`Camila Sosa Villada, an Argentine transgender author, first inhabited a female voice in stories she wrote as a child. Now her novels are translated in more than 20 languages and being adapted for the screen.`\
-https://nytimes.com/2024/07/23/books/booksupdate/camila-sosa-villada.html
 
