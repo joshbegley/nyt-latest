@@ -1,3 +1,7 @@
+**Pampered Pets**\
+`Sarah Sinclair and Amie Walker have put together a charming Tuesday crossword with a lot of breadth.`\
+https://nytimes.com/2024/07/22/crosswords/daily-crossword-2024-07-23.html
+
 **Harris Has Enough Support for a Nomination. Here’s Which State Delegations Endorsed Her.**\
 `In a show of party unity, state delegations have endorsed Vice President Kamala Harris, giving her more than enough delegates to clinch the Democratic Party's nomination.`\
 https://nytimes.com/interactive/2024/07/22/us/politics/harris-democratic-nominee-endorsements.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/22/business/warner-bros-discovery-amazon-nba-rights.
 **Kamala Harris will meet with Benjamin Netanyahu this week, but will miss his address to Congress.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/kamala-harris-will-meet-with-benjamin-netanyahu-this-week-but-will-miss-his-address-to-congress
-
-**Full Time: Bookmark this USWNT guide for the Olympics**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/5651877/2024/07/22/us-womens-national-team-olympics-roster-guide-full-time/
 
