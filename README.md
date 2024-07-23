@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5650869/2024/07/23/liverpool-us-tour-arne-slot/
 
 **Families Left Scrambling After Delta Bars Minors From Flying Alone in Wake of Outage**\
-`The temporary move, made after Friday’s global tech outage, stranded some children across state lines or even in different countries.`\
+`Pete Buttigieg said on Tuesday that the U.S. Department of Transportation had opened an investigation into Delta’s ongoing response to Friday’s global tech outage.`\
 https://nytimes.com/2024/07/23/business/delta-it-outage-flights-minors.html
 
 **In Wilmington, They Like ‘Delaware Joe.’ But They’re Glad He Quit.**\
