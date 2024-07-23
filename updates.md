@@ -1,3 +1,7 @@
+**Warner Bros. Discovery Says It Has Matched a Rival Bid for N.B.A. TV Deal**\
+`The company, a longtime broadcaster of N.B.A. games, is trying to keep the lucrative broadcast rights as the league negotiates a new contract.`\
+https://nytimes.com/2024/07/22/business/warner-bros-discovery-amazon-nba-rights.html
+
 **Kamala Harris will meet with Benjamin Netanyahu this week, but will miss his address to Congress.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/kamala-harris-will-meet-with-benjamin-netanyahu-this-week-but-will-miss-his-address-to-congress
