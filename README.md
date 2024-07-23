@@ -1,3 +1,7 @@
+**Transportation Department to Investigate Delta After Flight Delays**\
+`Pete Buttigieg, the transportation secretary, made the announcement after the airline suspended travel for unaccompanied minors.`\
+https://nytimes.com/2024/07/23/us/pete-buttigieg-delta-outage.html
+
 **Army Sees No Link to Blast Exposure in Maine Gunman’s Mental Issues**\
 `Investigators found lapses in the handling of a troubled reservist who went on to kill 18 people, but they rejected suggestions that his Army work had damaged his brain.`\
 https://nytimes.com/2024/07/23/us/maine-gunman-army-robert-card.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5652649/2024/07/23/snoop-dogg-olympic-torchbearer/
 **‘Veep’ Is Re-elected**\
 `After news broke that President Biden would endorse Vice President Kamala Harris as the Democratic nominee, the internet was rife with clips and memes from the show.`\
 https://nytimes.com/2024/07/23/arts/television/veep-kamala-harris.html
-
-**Why Liverpool are back in the U.S. after five-year absence – and who stands to benefit**\
-`The club's pre-season tour is a big moment for Arne Slot... and the club's commercial department`\
-https://nytimes.com/athletic/5650869/2024/07/23/liverpool-us-tour-arne-slot/
 
