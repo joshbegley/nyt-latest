@@ -1,3 +1,7 @@
+**Hillary Clinton: I Know Kamala Harris Can Beat Donald Trump**\
+`I’ve been called a witch, a “nasty woman” and much worse. Harris will face unique additional challenges. But we shouldn’t be afraid.`\
+https://nytimes.com/2024/07/23/opinion/kamala-harris-donald-trump.html
+
 **Should the Group of 5 set up a second playoff for its champs? Leaders' opinions are mixed**\
 `The AAC's Tim Pernetti became the first commissioner to openly float the idea of an additional tournament for non-CFP conference champs.`\
 https://nytimes.com/athletic/5654291/2024/07/23/g5-playoff-tim-pernetti-aac-cusa/
@@ -11,7 +15,7 @@ https://nytimes.com/live/2024/07/23/world/israel-gaza-war-hamas/for-the-second-t
 https://nytimes.com/2024/07/23/style/beyonce-kamala-harris-freedom.html
 
 **Judge Refuses to Block F.T.C.’s Noncompete Ban as Lawsuits Play Out**\
-`A judge in Pennsylvania denied a request to delay the rule, siding with the agency and diverging from a Texas court’s decision earlier this month.`\
+`A federal judge in Pennsylvania denied a request to delay the rule, siding with the agency and diverging from a Texas court’s decision earlier this month.`\
 https://nytimes.com/2024/07/23/business/economy/noncompete-ban-ftc.html
 
 **The Secret Service Director Resigned**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/style/tiny-modern-love-stories-he-liked-to-give-m
 **Trump campaign files complaint over transfer of Biden funds to Harris.**\
 `By Maggie Haberman`\
 https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden/trump-campaign-files-complaint-over-transfer-of-biden-funds-to-harris
-
-**Harris Holds First Rally as the Likely Democratic Nominee**\
-`Vice President Kamala Harris listed her campaign pledges, which included expanding abortion rights, building a strong middle class and protecting unions.`\
-https://nytimes.com/video/us/politics/100000009588095/harris-speech-wisconsin-rally.html
 
