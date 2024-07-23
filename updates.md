@@ -1,3 +1,15 @@
+**The Gold Medalist Starring in India’s Olympic Dreams**\
+`Neeraj Chopra’s triumph in Tokyo inspired athletes across the world’s most populous nation. Now his country is chasing a bigger prize: a chance to host the Games for the first time.`\
+https://nytimes.com/2024/07/23/world/asia/india-olympics-neeraj-chopra.html
+
+**'My Guys': Kyler Murray, Cooper Kupp and more of Dom Petrillo's passion picks for fantasy football 2024**\
+`Dom Petrillo reveals the players, like Kyler Murray, he'll be most passionately looking to acquire in early 2024 fantasy football drafts.`\
+https://nytimes.com/athletic/5641264/2024/07/23/fantasy-football-2024-my-guys-cooper-kupp-kyler-murray/
+
+**Here Are the State Delegations That Have Endorsed Kamala Harris**\
+`In a show of party unity, state delegations have endorsed Vice President Kamala Harris, giving her more than enough delegates to clinch the Democratic Party's nomination.`\
+https://nytimes.com/interactive/2024/07/22/us/politics/harris-democratic-nominee-endorsements.html
+
 **What Caldentey and Miedema signings tell us about Arsenal and City plans for new WSL season**\
 `Will Arsenal or Manchester City beat Chelsea to the title now Emma Hayes has gone?`\
 https://nytimes.com/athletic/5650627/2024/07/23/caldentey-miedema-arsenal-manchester/
