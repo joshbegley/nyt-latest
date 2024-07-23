@@ -18,7 +18,7 @@ https://nytimes.com/2024/07/23/us/oscar-mayer-wienermobile-crash-illinois.html
 `By Kate Conger`\
 https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden/lawmaker-flags-concern-over-x-users-being-blocked-from-following-harris
 
-**Have Immigrants Been Taking Away Our Jobs?**\
+**Immigration Is Great for Jobs, Actually**\
 `Why the economic impact of immigration is positive.`\
 https://nytimes.com/2024/07/23/opinion/immigration-unemployment-inflation.html
 

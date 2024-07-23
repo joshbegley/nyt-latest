@@ -1,3 +1,7 @@
+**Immigration Is Great for Jobs, Actually**\
+`Why the economic impact of immigration is positive.`\
+https://nytimes.com/2024/07/23/opinion/immigration-unemployment-inflation.html
+
 **Harris Holds First Rally as the Likely Democratic Nominee**\
 `Vice President Kamala Harris listed her campaign pledges, which included expanding abortion rights, building a strong middle class and protecting unions.`\
 https://nytimes.com/video/us/politics/100000009588095/harris-speech-wisconsin-rally.html
