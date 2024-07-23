@@ -1,3 +1,7 @@
+**Bordeaux relegated after Liverpool owner FSG withdraws from takeover talks**\
+`Bordeaux have been administratively relegated to the third tier of French football after Liverpool&#8217;s owner Fenway Sports Group (FSG) withdrew from takeover talks.`\
+https://nytimes.com/athletic/5652410/2024/07/23/bordeaux-relegated-fsg-takeover-liverpool/
+
 **This Week in Mets: What do the Mets need to know before the deadline?**\
 `Jose Quintana might make sense to move as a veteran about to be a free agent, but he's been a significant part of the Mets’ turnaround.`\
 https://nytimes.com/athletic/5651527/2024/07/23/mets-trade-deadline-kodai-senga-2/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/opinion/ezra-klein-podcast-biden-harris-essay.htm
 **Cowboys training camp week: No shortage of storylines, from CeeDee Lamb to Jerry Jones**\
 `An unexpected delay. Will Lamb report to camp? Can the Cowboys put their postseason woes behind them?`\
 https://nytimes.com/athletic/5651711/2024/07/23/dallas-cowboys-training-camp-storylines-ceedee-lamb/
-
-**Dr. Ruth Talked About Sex Like No One Else Could**\
-`How the sex therapist disarmed her audience.`\
-https://nytimes.com/2024/07/23/podcasts/dr-ruth-talked-about-sex-like-no-one-else-could.html
 

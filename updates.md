@@ -1,3 +1,7 @@
+**Bordeaux relegated after Liverpool owner FSG withdraws from takeover talks**\
+`Bordeaux have been administratively relegated to the third tier of French football after Liverpool&#8217;s owner Fenway Sports Group (FSG) withdrew from takeover talks.`\
+https://nytimes.com/athletic/5652410/2024/07/23/bordeaux-relegated-fsg-takeover-liverpool/
+
 **This Week in Mets: What do the Mets need to know before the deadline?**\
 `Jose Quintana might make sense to move as a veteran about to be a free agent, but he's been a significant part of the Mets’ turnaround.`\
 https://nytimes.com/athletic/5651527/2024/07/23/mets-trade-deadline-kodai-senga-2/
