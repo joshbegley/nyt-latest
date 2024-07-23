@@ -1,3 +1,15 @@
+**49ers' Aiyuk reports to camp despite requesting trade**\
+`The 49ers drafted wideout Ricky Pearsall in the first round in this year's draft, making Aiyuk's future past the 2024 season tenuous.`\
+https://nytimes.com/athletic/5653124/2024/07/23/brandon-aiyuk-training-camp-report-49ers/
+
+**The Antisemite Coming to the Trump Fund-Raiser**\
+`Maybe the campaign thought no one would notice.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/candace-owens-trump-fundrasier
+
+**Travelers Delayed or Stuck by the CrowdStrike Outage: What Did Your Airline Provide?**\
+`The flight disruptions brought on by the global I.T. failure were deemed within the control of the airlines, meaning airlines have to reimburse passengers for meals, transportation and hotels. Did your carrier living up to the requirement?`\
+https://nytimes.com/2024/07/23/travel/outage-airlines-vouchers-hotel-refund.html
+
 **Caught in the CrowdStrike Outage? Here’s How to Get Compensated.**\
 `Air travelers paying for last-minute lodging and other expenses are entitled to be reimbursed if their flight was impacted by an event in the airline’s control, like the CrowdStrike failure. Here’s how to get your money back.`\
 https://nytimes.com/2024/07/23/travel/crowdstrike-tech-outage-flight-compensation.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/23/us/politics/jd-vance-fundraising-trump.html
 **Real Madrid surpass €1bn in revenue for 2023-24 season**\
 `Real Madrid surpassed €1billion ($1.`\
 https://nytimes.com/athletic/5653696/2024/07/23/real-madrid-revenue-club-accounts/
-
-**An Unbending Leader’s Crackdown Rains Carnage on Bangladesh**\
-`Prime Minister Sheikh Hasina’s deadly response to student-led protests has grown into the biggest challenge ever to her dominance.`\
-https://nytimes.com/2024/07/23/world/asia/bangladesh-protests-sheikh-hasina.html
-
-**Transportation Department to Investigate Delta Air Lines**\
-`The department opened an investigation into Delta Air Lines’ treatment of passengers after a widespread tech outage disrupted air travel worldwide on Friday.`\
-https://nytimes.com/video/us/100000009587481/delta-airlines-flight-disruptions.html
-
-**8 New Songs You Should Hear Now**\
-`Listen to songs by Clairo, Dawn Richard and Sturgill Simpson plus more.`\
-https://nytimes.com/2024/07/23/arts/music/amplifier-newsletter-clairo-new-songs.html
 
