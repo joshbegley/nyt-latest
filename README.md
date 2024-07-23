@@ -1,3 +1,7 @@
+**John Mayall, Pioneer of British Blues, Is Dead at 90**\
+`Mr. Mayall was best known for recruiting and polishing the talents of one gifted young lead guitarist after another, starting with Eric Clapton.`\
+https://nytimes.com/2024/07/23/arts/music/john-mayall-dead.html
+
 **Hydrothermal Explosion at Yellowstone Sends Tourists Racing for Safety**\
 `The explosion at Biscuit Basin, which sent a column of boiling water, mud and rock shooting into the sky on Tuesday, was caught in dramatic videos.`\
 https://nytimes.com/2024/07/23/us/yellowstone-biscuit-basin-hydrothermal-explosion.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5653325/2024/07/23/kick-it-out-discrimination/
 **Secrets Emerge From a Fossil’s Taco Shell-Like Cover**\
 `An examination of an aquatic, shrimplike creatures that lived half a billion years ago offers insight into how arthropods with mandibles became so common.`\
 https://nytimes.com/2024/07/23/science/taco-shell-fossil.html
-
-**Rival Palestinian Factions Project Unity, but Deep Divisions Remain**\
-`In a move brokered by China, Fatah and Hamas endorsed a unified government for the West Bank and Gaza, but Palestinians are skeptical that the two parties can put aside their differences.`\
-https://nytimes.com/2024/07/23/world/middleeast/hamas-fatah-unity-china.html
 
