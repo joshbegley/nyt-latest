@@ -1,3 +1,7 @@
+**8 New Songs You Should Hear Now**\
+`Listen to songs by Clairo, Dawn Richard and Sturgill Simpson plus more.`\
+https://nytimes.com/2024/07/23/arts/music/amplifier-newsletter-clairo-new-songs.html
+
 **U.A.W. Holds Off on Endorsing Harris**\
 `Unlike other prominent unions, the auto workers are taking their time to ensure that the vice president is aligned with it on key policy questions.`\
 https://nytimes.com/2024/07/23/us/politics/uaw-harris-endorsement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/22/opinion/harris-biden-vice-president.html
 **Between Attacks on Electric Cars, Trump Says They’re ‘Incredible’**\
 `The former president’s comments on E.V.s have shifted since he has grown more friendly with Elon Musk, the billionaire Tesla founder.`\
 https://nytimes.com/2024/07/23/climate/trump-electric-vehicles-musk.html
-
-**Tony Petitti says Big Ten 'focused on 18 right now'**\
-`Petitti touted his league’s strength and position in an ever-changing college sports landscape.`\
-https://nytimes.com/athletic/5653307/2024/07/23/tony-petitti-big-ten-expansion/
 
