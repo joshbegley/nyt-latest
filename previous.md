@@ -1,3 +1,7 @@
+**Adams joins Torino on free transfer after Southampton exit**\
+`Che Adams has joined Serie A side Torino on a free transfer after leaving Southampton following the end of his contract.`\
+https://nytimes.com/athletic/5649489/2024/07/23/che-adams-torino-free-transfer/
+
 **The Transfer DealSheet: Ivan Toney latest, De Gea future, PSG want Williams**\
 `This is your weekly update on everything that is going on in the world of football transfers`\
 https://nytimes.com/athletic/5650178/2024/07/23/manchester-united-transfer-latest-arsenal-liverpool-real-madrid/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/opinion/turkey-stray-dogs.html
 **Fantasy football sleepers: Jayden Daniels, Jaxon Smith-Njigba and more staff picks**\
 `The Athletic fantasy football staff offers up their favorite sleepers for fantasy football 2024, including Seattle's Jaxon Smith-Njigba.`\
 https://nytimes.com/athletic/5649887/2024/07/23/fantasy-football-sleepers-staff-picks-from-jayden-daniels-to-jaxon-smith-njigba-and-more/
-
-**IDP rankings for fantasy football 2024: Top 100 overall, top 50 by position; plus undervalued, overvalued and sleepers**\
-`Gary Davenport is here to help IDP league managers with his rankings, sleepers, undervalues and overvalues at all the defensive positions.`\
-https://nytimes.com/athletic/5647603/2024/07/23/fantasy-football-2024-idp-rankings-top-100/
 

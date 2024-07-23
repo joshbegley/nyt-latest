@@ -1,3 +1,7 @@
+**Adams joins Torino on free transfer after Southampton exit**\
+`Che Adams has joined Serie A side Torino on a free transfer after leaving Southampton following the end of his contract.`\
+https://nytimes.com/athletic/5649489/2024/07/23/che-adams-torino-free-transfer/
+
 **The Transfer DealSheet: Ivan Toney latest, De Gea future, PSG want Williams**\
 `This is your weekly update on everything that is going on in the world of football transfers`\
 https://nytimes.com/athletic/5650178/2024/07/23/manchester-united-transfer-latest-arsenal-liverpool-real-madrid/
