@@ -1,3 +1,11 @@
+**Fantasy football 2024 outlooks for Nick Chubb, T.J. Hockenson and more players returning from injury**\
+`Greg Scholz of Inside Injuries offers insights into the players, like Nick Chubb and T.J. Hockenson, looking to return from injury in 2024.`\
+https://nytimes.com/athletic/5645915/2024/07/23/nfl-fantasy-football-injury-report-nick-chubb-tj-hockenson/
+
+**Andy Murray confirms tennis retirement after Paris Olympics**\
+`Andy Murray has confirmed he will retire from tennis after competing at this summer&#8217;s Paris Olympics.`\
+https://nytimes.com/athletic/5652332/2024/07/23/andy-murray-retirement-tennis-olympics/
+
 **Canada Evacuates Jasper National Park as Wildfires Burn in Alberta**\
 `Large blazes in the province have led to the evacuation of thousands of people.`\
 https://nytimes.com/2024/07/23/world/canada/jasper-national-park-wildfires-canada.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/23/us/frustrated-californians-may-be-ready-for-a-tou
 **Adams joins Torino on free transfer after Southampton exit**\
 `Che Adams has joined Serie A side Torino on a free transfer after leaving Southampton following the end of his contract.`\
 https://nytimes.com/athletic/5649489/2024/07/23/che-adams-torino-free-transfer/
-
-**The Transfer DealSheet: Ivan Toney latest, De Gea future, PSG want Williams**\
-`This is your weekly update on everything that is going on in the world of football transfers`\
-https://nytimes.com/athletic/5650178/2024/07/23/manchester-united-transfer-latest-arsenal-liverpool-real-madrid/
-
-**Twins rebound behind Bailey Ober to beat Phillies as reinforcements are ready to return**\
-`Royce Lewis and Jose Miranda could return later this week in Detroit, and Carlos Correa has a target return date in mind.`\
-https://nytimes.com/athletic/5652247/2024/07/23/twins-bailey-ober-beat-phillies/
 

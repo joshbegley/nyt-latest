@@ -1,3 +1,11 @@
+**Fantasy football 2024 outlooks for Nick Chubb, T.J. Hockenson and more players returning from injury**\
+`Greg Scholz of Inside Injuries offers insights into the players, like Nick Chubb and T.J. Hockenson, looking to return from injury in 2024.`\
+https://nytimes.com/athletic/5645915/2024/07/23/nfl-fantasy-football-injury-report-nick-chubb-tj-hockenson/
+
+**Andy Murray confirms tennis retirement after Paris Olympics**\
+`Andy Murray has confirmed he will retire from tennis after competing at this summer&#8217;s Paris Olympics.`\
+https://nytimes.com/athletic/5652332/2024/07/23/andy-murray-retirement-tennis-olympics/
+
 **Canada Evacuates Jasper National Park as Wildfires Burn in Alberta**\
 `Large blazes in the province have led to the evacuation of thousands of people.`\
 https://nytimes.com/2024/07/23/world/canada/jasper-national-park-wildfires-canada.html
