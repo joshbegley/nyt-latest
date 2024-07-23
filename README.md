@@ -2,7 +2,7 @@
 `In announcing the address, President Biden said he would discuss “what lies ahead, and how I will finish the job for the American people.”`\
 https://nytimes.com/2024/07/23/us/politics/biden-address-nation.html
 
-**Trump Accuses Biden-Harris Administration of Failing to ‘Properly Protect Me.’**\
+**Trump Accuses Biden-Harris Administration of Failing to ‘Properly Protect Me’**\
 `The former president’s comments suggest that he will more aggressively turn the assassination attempt into a political cudgel.`\
 https://nytimes.com/2024/07/23/us/politics/trump-biden-harris-security.html
 
