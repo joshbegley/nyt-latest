@@ -14,7 +14,7 @@ https://nytimes.com/2024/07/22/technology/crowdstrike-outage-congress-hearing.ht
 `The boy, then 16, survived and has been charged in the death of his 14-year-old passenger. His parents were sentenced to probation and ordered to take parenting classes.`\
 https://nytimes.com/2024/07/22/nyregion/teen-driver-queens-crash-parents-sentence.html
 
-**Women Who Support Kamala Harris Say a Lot Has Changed Since 2016**\
+**A Lot Has Changed for Women Since 2016. What Does That Mean for Kamala Harris?**\
 `Voters eager to elect the first female president pointed to anger over a loss of abortion rights, but also acknowledged a fear that sexism would remain difficult for Ms. Harris to overcome.`\
 https://nytimes.com/2024/07/22/us/kamala-harris-women-voters.html
 
