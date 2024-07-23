@@ -1,3 +1,7 @@
+**8 New Songs You Should Hear Now**\
+`Listen to songs by Clairo, Dawn Richard and Sturgill Simpson plus more.`\
+https://nytimes.com/2024/07/23/arts/music/amplifier-newsletter-clairo-new-songs.html
+
 **U.A.W. Holds Off on Endorsing Harris**\
 `Unlike other prominent unions, the auto workers are taking their time to ensure that the vice president is aligned with it on key policy questions.`\
 https://nytimes.com/2024/07/23/us/politics/uaw-harris-endorsement.html
