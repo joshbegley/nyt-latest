@@ -1,3 +1,15 @@
+**How Jake Rogers became the heartbeat of the surging Tigers**\
+`Before his highlight dash around the bases, Rogers took an oblong developmental path to becoming the Tigers' backstop.`\
+https://nytimes.com/athletic/5652138/2024/07/23/tigers-jake-rogers-success-story/
+
+**Big Board: Top 100 picks for fantasy football 2024, from Christian McCaffrey to Jayden Daniels**\
+`Brandon Funston offers up his Top 100 picks for 2024 half-PPR leagues, starting with San Francisco's do-it-all back Christian McCaffrey.`\
+https://nytimes.com/athletic/5649562/2024/07/23/big-board-top-100-rankings-fantasy-football-2024/
+
+**MLB trade deadline report: Drilling down on interesting arms and bats and teams' needs**\
+`Let's look at which players are most likely available via trade and which teams are most desperate for their services.`\
+https://nytimes.com/athletic/5651622/2024/07/23/mlb-trade-deadline-pitchers-hitters-team-needs/
+
 **Tottenham Women's head coach Vilahamn signs new contract**\
 `Tottenham Hotspur Women&#8217;s head coach Robert Vilahamn has signed a new contract until 2027.`\
 https://nytimes.com/athletic/5652376/2024/07/23/robert-vilahamn-tottenham-contract/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/23/podcasts/dr-ruth-talked-about-sex-like-no-one-els
 **Can Kamala Harris Sell ‘Bidenomics’?**\
 `Much of President Biden’s agenda polls well, but voters roundly dislike his handling of the economy. That’s a campaign challenge for his vice president, as she mounts a presidential bid.`\
 https://nytimes.com/2024/07/23/us/politics/can-kamala-harris-sell-bidenomics.html
-
-**Trump Tries to Flip the Script on Democracy After Biden’s Withdrawal**\
-`Donald J. Trump and his allies said President Biden’s primary voters were disenfranchised. Democrats noted Mr. Trump had once tried to toss out millions of ballots.`\
-https://nytimes.com/2024/07/23/us/politics/trump-biden-harris-democracy.html
-
-**What Comes Next for Robert Menendez?**\
-`The Senate Ethics Committee is starting to lay the groundwork to possibly expel the New Jersey lawmaker. He faces intensifying pressure to resign before that can happen.`\
-https://nytimes.com/2024/07/23/nyregion/robert-menendez-conviction-future.html
-
-**Judge Cannon and JD Vance Are on the Same Team**\
-`Precedent and the rule of law? Not if it gets in the way.`\
-https://nytimes.com/2024/07/23/opinion/cannon-trump-documents-vance.html
 
