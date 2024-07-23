@@ -1,3 +1,15 @@
+**Trump accuses the Biden-Harris administration of failing to ‘properly protect me.’**\
+`By Maggie Haberman and Jonathan Swan`\
+https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden/trump-accuses-the-biden-harris-administration-of-failing-to-properly-protect-me
+
+**Agents weigh in on Jordan Love: How small sample size could affect Packers deal**\
+`Our annual agent poll offers perspective on how Love should be viewed and the situation Green Bay faces.`\
+https://nytimes.com/athletic/5653332/2024/07/23/jordan-love-contract-packers-agents/
+
+**‘Time Bandits’ Review: A Flatter Adventure**\
+`An adaptation of the 1981 film on Apple TV+ gives us time-traveling bandits of greater height and lesser amusement.`\
+https://nytimes.com/2024/07/23/arts/television/time-bandits-review.html
+
 **The Windup: Trade deadline countdown is on**\
 `Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
 https://nytimes.com/athletic/5653367/2024/07/23/mlb-trade-deadline-braves-infield-james-paxton-the-windup/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5653207/2024/07/23/patriots-jacoby-brissett-starter
 **When It Comes to Food and Politics, Kamala Harris Is Riffing on the Recipe**\
 `From giving turkey-roasting advice to making dosas with Mindy Kaling, Ms. Harris has leaned into cooking in a way no other candidate has.`\
 https://nytimes.com/2024/07/23/dining/kamala-harris-home-cooking.html
-
-**What Is the KHive?**\
-`Coconut emojis, Charli XCX mash-ups and a bunch of grainy lime green video clips. What to know about the latest iteration of the Kamala Harris fandom.`\
-https://nytimes.com/2024/07/23/style/khive-kamala-harris-supporters.html
-
-**Jaguars, CB Tyson Campbell agree to 4-year contract extension: Source**\
-`Campbell is coming off a 2023 season where he played 11 games compiling one interception and five pass defenses.`\
-https://nytimes.com/athletic/5653214/2024/07/23/tyson-campbell-contract-jaguars/
-
-**Team GB's Dujardin out of Olympics after 'error of judgement'**\
-`Dujardin has won six Olympic medals across three Games in individual and team dressage`\
-https://nytimes.com/athletic/5653218/2024/07/23/charlotte-dujardin-olympics-video/
 

@@ -1,3 +1,11 @@
+**The Windup: Trade deadline countdown is on**\
+`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
+https://nytimes.com/athletic/5653367/2024/07/23/mlb-trade-deadline-braves-infield-james-paxton-the-windup/
+
+**JD Vance Is Still Figuring Out How to Attack Kamala Harris**\
+`But nothing has proved particularly effective yet.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/vance-harris-campaign
+
 **Joelinton confident of Bruno Guimares staying at Newcastle**\
 `Joelinton is confident that Bruno Guimaraes will stay at Newcastle United this summer, following positive conversations with his best friend.`\
 https://nytimes.com/athletic/5652340/2024/07/23/bruno-guimaraes-newcastle-transfer-news/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5653214/2024/07/23/tyson-campbell-contract-jaguars/
 **Team GB's Dujardin out of Olympics after 'error of judgement'**\
 `Dujardin has won six Olympic medals across three Games in individual and team dressage`\
 https://nytimes.com/athletic/5653218/2024/07/23/charlotte-dujardin-olympics-video/
-
-**Tracking Typhoon Gaemi**\
-`See the likely path for Gaemi.`\
-https://nytimes.com/interactive/2024/07/23/world/asia/gaemi-map-path-tracker.html
-
-**Mark Zuckerberg Stumps for ‘Open Source’ A.I.**\
-`The chief executive of Meta said in an open letter that it was important that the technology was not controlled by a handful of giant companies — including his own.`\
-https://nytimes.com/2024/07/23/technology/mark-zuckerberg-meta-open-source-ai.html
 

@@ -1,3 +1,11 @@
+**The Windup: Trade deadline countdown is on**\
+`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
+https://nytimes.com/athletic/5653367/2024/07/23/mlb-trade-deadline-braves-infield-james-paxton-the-windup/
+
+**JD Vance Is Still Figuring Out How to Attack Kamala Harris**\
+`But nothing has proved particularly effective yet.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/vance-harris-campaign
+
 **What Is the KHive?**\
 `Coconut emojis, Charli XCX mash-ups and a bunch of grainy lime green video clips. What to know about the latest iteration of the Kamala Harris fandom.`\
 https://nytimes.com/2024/07/23/style/khive-kamala-harris-supporters.html
