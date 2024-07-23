@@ -1,3 +1,7 @@
+**Harris Has Enough Support for a Nomination. Here’s Which State Delegations Endorsed Her.**\
+`In a show of party unity, state delegations have endorsed Vice President Kamala Harris, giving her more than enough delegates to clinch the Democratic Party's nomination.`\
+https://nytimes.com/interactive/2024/07/22/us/politics/harris-democratic-nominee-endorsements.html
+
 **Dodgers cut James Paxton, still seeking 'impact' starting pitching at the deadline**\
 `There should be a market for Paxton, but it was hard to see a scenario where he would make starts for the Dodgers in October.`\
 https://nytimes.com/athletic/5652044/2024/07/22/dodgers-james-paxton-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/22/us/biden-harris-trump-news-election/kamala-h
 **Full Time: Bookmark this USWNT guide for the Olympics**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/5651877/2024/07/22/us-womens-national-team-olympics-roster-guide-full-time/
-
-**Nursing Home Owner Gets 3 Years’ Probation in Deadly Hurricane Evacuation**\
-`Bob Glynn Dean Jr. of Louisiana, who pleaded no contest to cruelty to the infirmed, Medicaid fraud and other criminal charges, will avoid prison time if he successfully completes probation.`\
-https://nytimes.com/2024/07/22/us/bob-dean-ida-nursing-home-owner.html
 
