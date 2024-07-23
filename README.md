@@ -1,8 +1,12 @@
+**Snoop Dogg to carry Olympic torch in final stretch**\
+`The torch has spent the past two months making its way through France, and it will travel to 68 different stages before opening ceremony.`\
+https://nytimes.com/athletic/5652649/2024/07/23/snoop-dogg-olympic-torchbearer/
+
 **‘Veep’ Is Re-elected**\
 `After news broke that President Biden would endorse Vice President Kamala Harris as the Democratic nominee, the internet was rife with clips and memes from the show.`\
 https://nytimes.com/2024/07/23/arts/television/veep-kamala-harris.html
 
-**Why Liverpool are back in the U.S. after five-year absence - and who stands to benefit**\
+**Why Liverpool are back in the U.S. after five-year absence – and who stands to benefit**\
 `The club's pre-season tour is a big moment for Arne Slot... and the club's commercial department`\
 https://nytimes.com/athletic/5650869/2024/07/23/liverpool-us-tour-arne-slot/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/learning/a-voice-can-change-you-the-week-5-winner
 **Giants' 10-step plan revisited: Was splash trade for Brian Burns best use of resources?**\
 `Most of the Giants' offseason moves made sense, but did they do enough to fix the offensive line? `\
 https://nytimes.com/athletic/5651356/2024/07/23/new-york-giants-offseason-joe-schoen-brian-burns/
-
-**‘Joker: Folie à Deux’ to Compete at Venice Film Festival**\
-`Pedro Almodóvar’s first English-language feature and new movies from Luca Guadagnino and Pablo Larraín will also debut at this year’s event.`\
-https://nytimes.com/2024/07/23/movies/venice-film-festival-joker-folie-a-deux.html
 
