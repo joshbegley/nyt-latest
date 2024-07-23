@@ -14,8 +14,8 @@ https://nytimes.com/2024/07/23/us/politics/harris-netanyahu-israel-gaza.html
 `It’s because they want to win.`\
 https://nytimes.com/2024/07/23/us/politics/kamala-harris-election-democrats.html
 
-**Packers training camp: 'Crazy' defensive line showing out on first two days**\
-`Under new defensive coordinator Jeff Hafley, the Packers' defensive line has a different mindset from last season.`\
+**Packers training camp: Attacking defensive line showing out on first two days**\
+`Under new defensive coordinator Jeff Hafley, the Packers defensive line has a different mindset from last season.`\
 https://nytimes.com/athletic/5653964/2024/07/23/packers-training-camp-defensive-line/
 
 **Police Commander Provides More Details on Trump Rally Shooting**\
