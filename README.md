@@ -1,3 +1,7 @@
+**Dodgers cut James Paxton, still seeking 'impact' starting pitching at the deadline**\
+`There should be a market for Paxton, but it was hard to see a scenario where he would make starts for the Dodgers in October.`\
+https://nytimes.com/athletic/5652044/2024/07/22/dodgers-james-paxton-trade-deadline/
+
 **Four takeaways on the Cubs’ likely sell-off at the looming trade deadline   **\
 `The Cubs are putting the focus on 2025. What does that mean for Chicago's roster?`\
 https://nytimes.com/athletic/5652069/2024/07/22/takeaways-cubs-sell-off-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5651877/2024/07/22/us-womens-national-team-olympics
 **Nursing Home Owner Gets 3 Years’ Probation in Deadly Hurricane Evacuation**\
 `Bob Glynn Dean Jr. of Louisiana, who pleaded no contest to cruelty to the infirmed, Medicaid fraud and other criminal charges, will avoid prison time if he successfully completes probation.`\
 https://nytimes.com/2024/07/22/us/bob-dean-ida-nursing-home-owner.html
-
-**Congress Calls for Tech Outage Hearing to Grill Executive**\
-`The House Homeland Security Committee called on the chief executive of the cybersecurity firm CrowdStrike to testify on the disruption.`\
-https://nytimes.com/2024/07/22/technology/crowdstrike-outage-congress-hearing.html
 
