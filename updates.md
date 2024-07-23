@@ -1,3 +1,7 @@
+**Live Election Updates: Harris Hits Trail With Delegates, Cash and Energy at Her Back**\
+`Vice President Kamala Harris, who has secured commitments from enough delegates to win the Democratic presidential nomination, will campaign in Wisconsin, a crucial battleground state.`\
+https://nytimes.com/live/2024/07/23/us/harris-trump-news-election-biden
+
 **Track and field at the 2024 Paris Olympics: World-record watch, schedule and how to watch**\
 `There will be 48 athletics events at the Olympics, making track and field by far the most contested sport in Paris.`\
 https://nytimes.com/athletic/5636961/2024/07/23/track-and-field-2024-paris-olympics-schedule-tv/
