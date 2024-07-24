@@ -1,3 +1,7 @@
+**The Pulse: An Olympics spy scandal**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5654694/2024/07/24/canada-new-zealand-spy-scandal-olympics-the-pulse/
+
 **New Zealand's Ali Riley ruled out of Paris Olympics**\
 `New Zealand&#8217;s Ali Riley has been ruled out of the women&#8217;s soccer tournament at the Paris Olympics.`\
 https://nytimes.com/athletic/5655203/2024/07/24/ali-riley-new-zealand-olympics/
