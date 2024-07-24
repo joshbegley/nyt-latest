@@ -1,3 +1,7 @@
+**North Korean Trash Balloons Hit South Korean President’s Compound**\
+`Officials found nothing hazardous in the balloons’ payloads, as the North’s slow barrage of airborne garbage showed few signs of letting up.`\
+https://nytimes.com/2024/07/24/world/asia/north-korean-balloons-south-president.html
+
 **Deadly Blast Hits Tequila Factory in Mexico**\
 `Surveillance footage shows the moment of an explosion at a Jose Cuervo factory in Tequila, Mexico.`\
 https://nytimes.com/video/world/americas/100000009589265/explosion-jose-cuervo-tequila-factory-mexico.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5654960/2024/07/24/nick-castellanos-phillies-resurg
 **Jhoan Duran doesn't concern Twins even after late struggles in loss to Phillies**\
 `Two walks issued by Duran led to the Phillies scoring three runs and holding off the Twins 3-0. Rocco Baldelli considers it a one-off.`\
 https://nytimes.com/athletic/5654943/2024/07/24/twins-loss-phillies-jhoan-duran/
-
-**Palace need to replace Olise - is Sarr the answer?**\
-`Winger's departure has left a void in the squad, but Marseille forward has qualities which would suit Palace well`\
-https://nytimes.com/athletic/5643672/2024/07/24/crystal-palace-ismaila-sarr-michael-olise/
 
