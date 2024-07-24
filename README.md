@@ -1,3 +1,11 @@
+**'Indispensable' Yamal is Barca's great hope - they need him more than ever**\
+`Yamal was the star of this summer's European Championship and his emergence couldn't have come at a better time for Barca`\
+https://nytimes.com/athletic/5653311/2024/07/24/lamine-yamal-barcelona-spain-euros/
+
+**2024 Paris Olympics tickets: How much they cost, what's available, and how to resell**\
+`Everything you need to know about tickets for Paris 2024`\
+https://nytimes.com/athletic/5638683/2024/07/24/paris-2024-olympics-tickets-explainer/
+
 **2024 Paris Olympics - 10 footballers to keep an eye on during the Games**\
 `The Olympic football tournament is a proving ground for future international stars - so here are some to monitor over the next few weeks`\
 https://nytimes.com/athletic/5652803/2024/07/24/paris-olympics-footballers-to-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5652306/2024/07/24/arsenal-away-kit-labrum-black-cu
 **The Country Where You Can Buy Meat Grown in a Lab**\
 `Singapore, which subsists on imported food, is looking to secure its future with new ways of feeding its people.`\
 https://nytimes.com/2024/07/24/world/asia/singapore-cultivated-lab-meat.html
-
-**Grieving Ukrainians Turn to ‘Death Doulas’ for Support**\
-`The work of those who guide people coping with acute grief has grown in importance in war-torn Ukraine, where death has become a daily reality since the Russian invasion.`\
-https://nytimes.com/2024/07/24/world/europe/ukraine-death-doula-russia-war.html
-
-**Wednesday's MLB odds, best bets: Pitching matchups, playoff odds, props and more**\
-`See pitching matchups, playoff projections, win projections and more for Wednesday's MLB games.`\
-https://nytimes.com/athletic/5654033/2024/07/24/mlb-odds-best-bets-projections-july-24/
 
