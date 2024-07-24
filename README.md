@@ -1,3 +1,7 @@
+**Raiders training camp: Quarterback battle likely to come down to the preseason games**\
+`Antonio Pierce says there's no timetable on selecting a starting QB and it will likely come down to the Raiders' three preseason games.`\
+https://nytimes.com/athletic/5657018/2024/07/24/raiders-training-camp-qb-battle-minshew-oconnell/
+
 **With Cubs trending toward selling at trade deadline, players are trying to rise above rumors**\
 `“We’re doing a good job of not paying too much attention to it,” Justin Steele said.`\
 https://nytimes.com/athletic/5657017/2024/07/24/cubs-selling-trade-deadline-rumors/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/24/opinion/kamala-harris-maga.html
 **Watchdog Finds No Evidence of Political Interference in Stone Sentencing**\
 `The Justice Department’s in-house watchdog released its report on the reduction of Roger Stone’s sentence in a 2019 case related to the Trump-Russia investigation.`\
 https://nytimes.com/2024/07/24/us/politics/doj-watchdog-roger-stone-sentencing.html
-
-**10 Injured at Kennedy Airport After Smoke Spreads in Terminal**\
-`The injuries were not life-threatening, airport officials said. The cause of the smoke, which came from an escalator, was under investigation.`\
-https://nytimes.com/2024/07/24/nyregion/jfk-airport-fire.html
 
