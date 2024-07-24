@@ -1,3 +1,7 @@
+**The Briefing: Man City 3 Celtic 4 - McAtee impresses, Phillips struggles, Haaland scores**\
+`Sam Lee addresses the main talking points from Manchester City's friendly defeat by Celtic`\
+https://nytimes.com/athletic/5652540/2024/07/23/manchester-city-celtic-friendly-haaland/
+
 **Lamb not expected to report to Cowboys' camp amid contract talks**\
 `Lamb is entering the last year of a deal scheduled to pay him $17.99 million this season.`\
 https://nytimes.com/athletic/5654669/2024/07/23/ceedee-lamb-holdout-dallas-cowboys-training-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/us/politics/elon-musk-super-pac-desantis.html
 **49ers' George Kittle ready for 2024 after offseason of wild weight fluctuation**\
 `Kittle lost about 30 pounds recovering from offseason core surgery but is back at his playing weight as he reported to camp.`\
 https://nytimes.com/athletic/5654125/2024/07/23/george-kittle-49ers-training-camp-weight/
-
-**Florida coach Napier asks court to dismiss Rashada lawsuit**\
-`Rashada's lawsuit alleges the defendants made “false and fraudulent promises” to induce Rashada to sign with the program in 2022.`\
-https://nytimes.com/athletic/5654349/2024/07/23/billy-napier-jaden-rashada-lawsuit/
 

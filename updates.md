@@ -1,3 +1,7 @@
+**The Briefing: Man City 3 Celtic 4 - McAtee impresses, Phillips struggles, Haaland scores**\
+`Sam Lee addresses the main talking points from Manchester City's friendly defeat by Celtic`\
+https://nytimes.com/athletic/5652540/2024/07/23/manchester-city-celtic-friendly-haaland/
+
 **Lamb not expected to report to Cowboys' camp amid contract talks**\
 `Lamb is entering the last year of a deal scheduled to pay him $17.99 million this season.`\
 https://nytimes.com/athletic/5654669/2024/07/23/ceedee-lamb-holdout-dallas-cowboys-training-camp/
