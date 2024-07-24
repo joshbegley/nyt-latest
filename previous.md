@@ -1,3 +1,7 @@
+**Assessing Netanyahu’s Speech to Congress**\
+`Some of his remarks have been disputed by human rights groups, and others are unverifiable or lacked context. Here’s a closer look.`\
+https://nytimes.com/2024/07/24/world/middleeast/netanyahu-speech-congress-assessment.html
+
 **Toumani Diabaté, Malian Master of the Kora, Is Dead at 58**\
 `He believed that music could transcend national borders set by colonialism and restore ancient ties, even as it embraced the changes of a globalizing society.`\
 https://nytimes.com/2024/07/24/arts/music/toumani-diabate-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5656786/2024/07/24/phillies-trade-deadline-targets/
 **Brewers' Yelich may need season-ending surgery**\
 `Yelich will undergo an exam Thursday in Milwaukee that will determine the course of treatment for a recurring lower back condition.`\
 https://nytimes.com/athletic/5656815/2024/07/24/christian-yelich-brewers-back-injury/
-
-**Tackling the Falsehoods About Kamala Harris**\
-`The likely Democratic presidential nominee faces toxic discourse unlike anything Biden ever has.`\
-https://nytimes.com/2024/07/24/us/politics/kamala-harris-falsehoods-political-positions.html
 
