@@ -1,14 +1,22 @@
+**Watchdog Attributes Reduced Sentencing in Stone Case to Poor Leadership**\
+`The reduction of Roger Stone’s sentence in a 2019 case related to the Trump-Russia investigation incited accusations of political interference at the time.`\
+https://nytimes.com/2024/07/24/us/politics/doj-watchdog-roger-stone-sentencing.html
+
+**10 Injured at Kennedy Airport After Smoke Spreads in Terminal**\
+`The injuries were not life-threatening, airport officials said. The cause of the smoke, which came from an escalator, was under investigation.`\
+https://nytimes.com/2024/07/24/nyregion/jfk-airport-fire.html
+
 **Fulham close to agreement with Arsenal for Smith Rowe**\
 `Fulham are close to reaching an agreement with Arsenal to sign midfielder Emile Smith Rowe.`\
 https://nytimes.com/athletic/5655192/2024/07/24/emile-smith-rowe-transfer-fulham/
 
-**Brewers' Yelich may need season-ending surgery**\
-`Yelich will undergo an exam Thursday in Milwaukee that will determine the course of treatment for a recurring lower back condition.`\
-https://nytimes.com/athletic/5656815/2024/07/24/christian-yelich-brewers-back-injury/
-
 **Phillies takeaways: Latest on trade deadline aims, bullpen letdowns and more**\
 `They remain engaged in finding a late-inning reliever and a platoon partner for Brandon Marsh in left field, sources say. Here's the latest.`\
 https://nytimes.com/athletic/5656786/2024/07/24/phillies-trade-deadline-targets/
+
+**Brewers' Yelich may need season-ending surgery**\
+`Yelich will undergo an exam Thursday in Milwaukee that will determine the course of treatment for a recurring lower back condition.`\
+https://nytimes.com/athletic/5656815/2024/07/24/christian-yelich-brewers-back-injury/
 
 **Tackling the Falsehoods About Kamala Harris**\
 `The likely Democratic presidential nominee faces toxic discourse unlike anything Biden ever has.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5656819/2024/07/24/twins-takeaways-david-festa-phil
 **Cardinals' disappointing series highlights roster needs ahead of trade deadline**\
 `Multiple industry sources believe the Cardinals are focusing on pitching, both starting and relief.`\
 https://nytimes.com/athletic/5655981/2024/07/24/cardinals-trade-deadline-pitching/
-
-**Fake Filming Notices Started Appearing Around the City. Who Was Behind Them?**\
-`New Yorkers have been baffled by posters with fictitious plotlines for the show “And Just Like That …” We tracked down their creator.`\
-https://nytimes.com/2024/07/24/style/and-just-like-that-fake-film-notices.html
-
-**Sunday Night Basketball on NBC — part of new NBA media rights deal — could be a hit**\
-`NBC plans on Mike Tirico being the “A” voice on the network's NBA games.`\
-https://nytimes.com/athletic/5656665/2024/07/24/nba-media-rights-deal-nbc-tv/
 
