@@ -1,3 +1,11 @@
+**Dancers Drop Threat to Strike During Paris Olympics Opening Ceremony**\
+`Organizers avoided disruption by agreeing to give performers on temporary contracts a greater cut of broadcast royalties.`\
+https://nytimes.com/2024/07/24/arts/dance/olympic-dancers-strike-opening-ceremony.html
+
+**Fossil Hints That Jurassic Mammals Lived Slow and Died Old**\
+`Scientists found an unexpected aging pattern in a mostly intact juvenile mammal skeleton from the paleontological period.`\
+https://nytimes.com/2024/07/24/science/fossil-mammal-jurassic-age.html
+
 **March for Our Lives, the gun violence prevention group, endorses Harris.**\
 `By Erica L. Green`\
 https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/march-for-our-lives-the-gun-violence-prevention-group-endorses-harris
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5655645/2024/07/24/olympics-swimming-chinese-doping
 **Should the Orioles trade top prospect Jackson Holliday?**\
 `The Orioles may move some of their best prospects to upgrade their pitching. But it's hard to imagine that would include Jackson Holliday.`\
 https://nytimes.com/athletic/5655534/2024/07/24/orioles-trade-deadline-jackson-holliday/
-
-**Man Ud tell several academy staff they are up for redundancies**\
-`Manchester United have informed several long-serving academy coaches and staff their roles may no longer be required as part of the drastic cost-cutting measures announced by the Sir Jim Ratcliffe regime.`\
-https://nytimes.com/athletic/5655304/2024/07/24/manchester-united-academy-staff-cuts/
-
-**The Windup: Paul Skenes' brutal first loss**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5655646/2024/07/24/paul-skenes-record-the-windup/
 
