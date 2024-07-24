@@ -1,3 +1,11 @@
+**Why isn’t Cubs manager Craig Counsell worried about a trade deadline sell-off?**\
+`Chicago's roster likely won’t look much different on July 31. And, Counsell said: "... for us, it’s go out there and compete.”`\
+https://nytimes.com/athletic/5654913/2024/07/24/cubs-craig-counsell-trade-deadline/
+
+**Yankees' surprising lineup moves can't force Mets to pitch to Aaron Judge**\
+`Judge walked four times before striking out in the ninth inning of the Yankees' loss to the Mets.`\
+https://nytimes.com/athletic/5654953/2024/07/24/yankees-lineup-mets-aaron-judge/
+
 **Jhoan Duran doesn't concern Twins even after late struggles in loss to Phillies**\
 `Two walks issued by Duran led to the Phillies scoring three runs and holding off the Twins 3-0. Rocco Baldelli considers it a one-off.`\
 https://nytimes.com/athletic/5654943/2024/07/24/twins-loss-phillies-jhoan-duran/
