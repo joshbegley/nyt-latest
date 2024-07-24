@@ -1,3 +1,15 @@
+**Ukraine Presses China to Help Seek End to War With Russia**\
+`A visit by the foreign minister of Ukraine to Guangzhou this week signals Kyiv’s desire to involve Beijing in peace talks that China has thus far largely snubbed.`\
+https://nytimes.com/2024/07/24/business/ukraine-kuleba-china-russia-war.html
+
+**When the Paris Olympics Begin, the Seine Is His Stage**\
+`To open the Games, the theater director Thomas Jolly has masterminded a spectacular waterborne ceremony depicting 12 scenes from French history.`\
+https://nytimes.com/2024/07/24/world/olympics/thomas-jolly-olympics-opening-ceremony.html
+
+**Lawmakers Press Wray Over Attempted Assassination of Trump**\
+`It is unclear whether the F.B.I. will share new details during the hearing before the House Judiciary Committee, but the bureau has been forthcoming with information about the shooting.`\
+https://nytimes.com/2024/07/24/us/politics/fbi-director-wray-trump-shooting-hearing.html
+
 **How to Watch President Biden’s Address From the Oval Office Tonight**\
 `Mr. Biden is the first sitting president since Lyndon B. Johnson in 1968 not to seek a second term in the White House.`\
 https://nytimes.com/2024/07/24/us/politics/biden-speech-tonight.html
