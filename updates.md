@@ -1,3 +1,7 @@
+**Fernandez return to Chelsea squad should not cause any issues, says Maresca**\
+`Chelsea head coach Enzo Maresca is confident there will be no problems in the squad when midfielder Enzo Fernandez joins up for their pre-season tour next week.`\
+https://nytimes.com/athletic/5654672/2024/07/23/enzo-fernandez-enzo-maresca-chelsea/
+
 **Texas Woman Is Sentenced to 15 Years in Fraud Scheme**\
 `Janet Yamanaka Mello, 57, stole over $100 million from a youth development grant program for children of military families, spending the money on a lavish lifestyle, prosecutors said.`\
 https://nytimes.com/2024/07/23/us/army-civilian-employee-fraud.html
