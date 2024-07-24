@@ -1,3 +1,7 @@
+**With Cubs trending toward selling at trade deadline, players are trying to rise above rumors**\
+`“We’re doing a good job of not paying too much attention to it,” Justin Steele said.`\
+https://nytimes.com/athletic/5657017/2024/07/24/cubs-selling-trade-deadline-rumors/
+
 **Here’s the latest from the White House.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/biden-speech-oval-office
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/24/us/politics/doj-watchdog-roger-stone-sentencing.h
 **10 Injured at Kennedy Airport After Smoke Spreads in Terminal**\
 `The injuries were not life-threatening, airport officials said. The cause of the smoke, which came from an escalator, was under investigation.`\
 https://nytimes.com/2024/07/24/nyregion/jfk-airport-fire.html
-
-**Fulham close to agreement with Arsenal for Smith Rowe**\
-`Fulham are close to reaching an agreement with Arsenal to sign midfielder Emile Smith Rowe.`\
-https://nytimes.com/athletic/5655192/2024/07/24/emile-smith-rowe-transfer-fulham/
 
