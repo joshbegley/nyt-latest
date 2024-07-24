@@ -1,3 +1,11 @@
+**The Inexact Science of Box Office Projections**\
+`Opening-weekend estimates have been a Hollywood fixture since the 1980s. But surveys of moviegoers can fail to capture those who infrequently visit the theater.`\
+https://nytimes.com/article/box-office-projections-tracking.html
+
+**Patriots' Matthew Judon frustrated by lack of new contract — but doesn't hold out**\
+`The veteran edge rusher, soon to be 32, opened up Wednesday about his desire for a contract extension with the Patriots.`\
+https://nytimes.com/athletic/5656189/2024/07/24/matthew-judon-patriots-contract-2/
+
 **Netanyahu portrayed Iran as the main threat to Israel. Here is some context.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/07/24/world/israel-gaza-war-hamas-netanyahu/netanyahu-portrayed-iran-as-the-main-threat-to-israel-here-is-some-context

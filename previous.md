@@ -1,3 +1,11 @@
+**The Inexact Science of Box Office Projections**\
+`Opening-weekend estimates have been a Hollywood fixture since the 1980s. But surveys of moviegoers can fail to capture those who infrequently visit the theater.`\
+https://nytimes.com/article/box-office-projections-tracking.html
+
+**Patriots' Matthew Judon frustrated by lack of new contract — but doesn't hold out**\
+`The veteran edge rusher, soon to be 32, opened up Wednesday about his desire for a contract extension with the Patriots.`\
+https://nytimes.com/athletic/5656189/2024/07/24/matthew-judon-patriots-contract-2/
+
 **Netanyahu portrayed Iran as the main threat to Israel. Here is some context.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/07/24/world/israel-gaza-war-hamas-netanyahu/netanyahu-portrayed-iran-as-the-main-threat-to-israel-here-is-some-context
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5655843/2024/07/24/nba-tnt-sports-tv-deal-match-rej
 **Kathy Willens, Photojournalist Seemingly Everywhere, Is Dead at 74**\
 `Guided by a keen sense of timing, she covered wars, sports, riots, politics and more for The A.P. in the ’70s, when few women worked as news photographers.`\
 https://nytimes.com/2024/07/24/business/media/kathy-willens-dead.html
-
-**Slimmed-down Javonte Williams impresses Sean Payton at Broncos camp**\
-`The fourth-year running back enters a critical training camp after the Broncos added real competition at his position.`\
-https://nytimes.com/athletic/5656086/2024/07/24/javonte-williams-broncos-camp/
-
-**Giants camp takeaways: Daniel Jones rusty in return; Daboll's dizzying display of creativity**\
-`Rule No. 1 of covering training camp is not to overreact to the first practice. That said, let's overanalyze everything that happened. `\
-https://nytimes.com/athletic/5656198/2024/07/24/new-york-giants-training-camp-daniel-jones-brian-daboll/
 
