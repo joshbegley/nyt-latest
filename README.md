@@ -11,7 +11,7 @@ https://nytimes.com/2024/07/24/us/karen-bass-intruder-sentenced.html
 https://nytimes.com/2024/07/24/briefing/netanyahu-defended-israels-war-effort-to-congress.html
 
 **MLB will redirect luxury tax dollars to help teams losing TV money**\
-`MLB and the Players Association agreed to send luxury tax money to help teams losing revenue amidst ongoing media lanscape disruption. `\
+`MLB and the Players Association agreed to send luxury tax money to help teams losing revenue amidst ongoing media landscape disruption. `\
 https://nytimes.com/athletic/5656610/2024/07/24/mlb-luxury-tax-tv-money/
 
 **Packers training camp: Time to buy back in on Eric Stokes at cornerback?**\
