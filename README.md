@@ -1,3 +1,11 @@
+**Here’s the latest from the White House.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/biden-speech-oval-office
+
+**Trump Attacks Harris as ‘Radical’ in First Rally Since Her Ascent**\
+`The Trump campaign has sought to tie Vice President Kamala Harris to unpopular Biden administration policies and paint her as too liberal for independent or moderate voters.`\
+https://nytimes.com/2024/07/24/us/politics/trump-rally-kamala-harris.html
+
 **Assessing Netanyahu’s Speech to Congress**\
 `Some of his remarks have been disputed by human rights groups, and others are unverifiable or lacked context. Here’s a closer look.`\
 https://nytimes.com/2024/07/24/world/middleeast/netanyahu-speech-congress-assessment.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/24/nyregion/jfk-airport-fire.html
 **Fulham close to agreement with Arsenal for Smith Rowe**\
 `Fulham are close to reaching an agreement with Arsenal to sign midfielder Emile Smith Rowe.`\
 https://nytimes.com/athletic/5655192/2024/07/24/emile-smith-rowe-transfer-fulham/
-
-**Phillies takeaways: Latest on trade deadline aims, bullpen letdowns and more**\
-`They remain engaged in finding a late-inning reliever and a platoon partner for Brandon Marsh in left field, sources say. Here's the latest.`\
-https://nytimes.com/athletic/5656786/2024/07/24/phillies-trade-deadline-targets/
-
-**Brewers' Yelich may need season-ending surgery**\
-`Yelich will undergo an exam Thursday in Milwaukee that will determine the course of treatment for a recurring lower back condition.`\
-https://nytimes.com/athletic/5656815/2024/07/24/christian-yelich-brewers-back-injury/
 
