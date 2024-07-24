@@ -1,3 +1,7 @@
+**Canada's Olympic Committee apologizes after alleged spying attempt**\
+`A drone was flown over a Ferns training session in Saint-Étienne, France, on July 22.`\
+https://nytimes.com/athletic/5654570/2024/07/23/new-zealand-soccer-spy-canada-olympics/
+
 **Who Will Replace Robert Menendez in the Senate?**\
 `Senator Robert Menendez of New Jersey announced that he would resign in August. Gov. Philip D. Murphy will choose someone to serve the remainder of his term.`\
 https://nytimes.com/2024/07/23/nyregion/robert-menendez-senate-replacement.html
