@@ -1,3 +1,11 @@
+**Democrats Set Aug. 1 for Harris Nomination Vote**\
+`Vice President Kamala Harris has already secured the support of enough delegates to win the nomination, according to The Associated Press.`\
+https://nytimes.com/2024/07/24/us/politics/democrat-nominee-date-kamala-harris.html
+
+**Judge denies Houston Christian's motion to intervene in House settlement**\
+`Had it been granted, the motion would have essentially added HCU as a defendant to the case alongside the power conferences and the NCAA.`\
+https://nytimes.com/athletic/5656185/2024/07/24/houston-christian-house-settlement/
+
 **Power conference commissioners plan to set roster limits for House settlement: Sources**\
 `Power conference commissioners have decided on roster limits that will be filed this week as part of the settlement in the House-NCAA case.`\
 https://nytimes.com/athletic/5656304/2024/07/24/ncaa-scholarships-limits/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/24/us/whale-boat-capsize-new-hampshire.html
 **Abner Haynes, a Star of the A.F.L.’s Early Years, Dies at 86**\
 `He was a threat as a halfback, receiver and returner for the Dallas Texans, the team that became the Kansas City Chiefs. But he still had to deal with racism.`\
 https://nytimes.com/2024/07/24/sports/football/abner-haynes-dead.html
-
-**Comcast nears TV deal to re-air 12 MLB teams**\
-`A dozen teams using Bally-branded RSN channels have been unavailable on Comcast services since the beginning of June. `\
-https://nytimes.com/athletic/5656272/2024/07/24/comcast-tv-deal-12-mlb-teams/
-
-**Lewis H. Lapham, Longtime Editor of Harper’s, Dies at 89**\
-`Born into a patrician family, he used Harper’s and later his own Lapham’s Quarterly to denounce what he saw as the hypocrisies and injustices of a spoiled United States.`\
-https://nytimes.com/2024/07/24/business/media/lewis-h-lapham-dead.html
 
