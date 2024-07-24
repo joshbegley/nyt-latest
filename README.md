@@ -1,3 +1,7 @@
+**Lawmakers Press Wray Over Attempted Assassination of Trump**\
+`It is unclear whether the F.B.I. will share new details during the hearing before the House Judiciary Committee, but the bureau has been forthcoming with information about the shooting.`\
+https://nytimes.com/2024/07/24/us/politics/fbi-director-wray-trump-shooting-hearing.html
+
 **How to Watch President Biden’s Address From the Oval Office Tonight**\
 `Mr. Biden is the first sitting president since Lyndon B. Johnson in 1968 not to seek a second term in the White House.`\
 https://nytimes.com/2024/07/24/us/politics/biden-speech-tonight.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/24/world/asia/new-zealand-abuse-in-care-report.html
 **Notre Dame QB Riley Leonard says he's fully healthy for fall**\
 `Leonard's right ankle troubles began when he was sacked by Irish defensive lineman Howard Cross at the end of Notre Dame’s win at Duke.`\
 https://nytimes.com/athletic/5655489/2024/07/24/riley-leonard-notre-dame-ankle-surgery/
-
-**Arsenal on cusp of Riccardo Calafiori signing with defender set for medical**\
-`All agreements are now in place for Arsenal to sign Bologna defender Riccardo Calafiori.`\
-https://nytimes.com/athletic/5648360/2024/07/24/riccardo-calafiori-arsenal-transfer-update/
 
