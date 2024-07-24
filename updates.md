@@ -1,3 +1,11 @@
+**Watchdog Attributes Reduced Sentencing in Stone Case to Poor Leadership**\
+`The reduction of Roger Stone’s sentence in a 2019 case related to the Trump-Russia investigation incited accusations of political interference at the time.`\
+https://nytimes.com/2024/07/24/us/politics/doj-watchdog-roger-stone-sentencing.html
+
+**10 Injured at Kennedy Airport After Smoke Spreads in Terminal**\
+`The injuries were not life-threatening, airport officials said. The cause of the smoke, which came from an escalator, was under investigation.`\
+https://nytimes.com/2024/07/24/nyregion/jfk-airport-fire.html
+
 **Fulham close to agreement with Arsenal for Smith Rowe**\
 `Fulham are close to reaching an agreement with Arsenal to sign midfielder Emile Smith Rowe.`\
 https://nytimes.com/athletic/5655192/2024/07/24/emile-smith-rowe-transfer-fulham/
