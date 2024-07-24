@@ -1,3 +1,7 @@
+**He Wrote Michael Jackson’s ‘Human Nature’ and Has 2 More in the Vault**\
+`Steve Porcaro of Toto, who played on some of the biggest hits of the ’80s, has sold the rights to his music, including a pair of unreleased tracks with the superstar.`\
+https://nytimes.com/2024/07/24/arts/music/steve-porcaro-toto-michael-jackson.html
+
 **Donald Trump and Greg Abbott vs. Migrants**\
 `Readers object to Republican actions against migrants. Also: “Unpromising” students; romance fiction; sleep and longevity; scaffolding in New York.`\
 https://nytimes.com/2024/07/24/opinion/donald-trump-greg-abbott-migrants.html

@@ -1,3 +1,7 @@
+**He Wrote Michael Jackson’s ‘Human Nature’ and Has 2 More in the Vault**\
+`Steve Porcaro of Toto, who played on some of the biggest hits of the ’80s, has sold the rights to his music, including a pair of unreleased tracks with the superstar.`\
+https://nytimes.com/2024/07/24/arts/music/steve-porcaro-toto-michael-jackson.html
+
 **Donald Trump and Greg Abbott vs. Migrants**\
 `Readers object to Republican actions against migrants. Also: “Unpromising” students; romance fiction; sleep and longevity; scaffolding in New York.`\
 https://nytimes.com/2024/07/24/opinion/donald-trump-greg-abbott-migrants.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/24/science/fossil-mammal-jurassic-age.html
 **March for Our Lives, the gun violence prevention group, endorses Harris.**\
 `By Erica L. Green`\
 https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/march-for-our-lives-the-gun-violence-prevention-group-endorses-harris
-
-**Rosa Ross, Late-Blooming Author of Asian Cookbooks, Dies at 86**\
-`She was, she said, unable to cook a basic meal into her mid-20s. But she went on to a successful career as a restaurateur and an authority on Asian cuisine.`\
-https://nytimes.com/2024/07/24/dining/rosa-ross-dead.html
 
