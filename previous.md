@@ -1,3 +1,11 @@
+**Chelsea mutually terminate Sarr contract, defender agrees Lens move**\
+`Malang Sarr has agreed terms with Lens after Chelsea released him with a year left on his contract.`\
+https://nytimes.com/athletic/5645583/2024/07/24/malang-sarr-chelsea-transfer-lens/
+
+**Lisa Kudrow Brings Her Daffy Charm to ‘Time Bandits’**\
+`The actress dialed up the zany comedy in the TV reboot of a Terry Gilliam fantasy classic, created by the team behind “What We Do in the Shadows.”`\
+https://nytimes.com/2024/07/24/arts/television/lisa-kudrow-time-bandits.html
+
 **Gavin Newsom recalls getting the Biden news and says Harris is ‘lighting it up.’**\
 `By Shawn Hubler`\
 https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/gavin-newsom-recalls-getting-the-biden-news-and-says-harris-is-lighting-it-up
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/24/world/israel-gaza-war-hamas-netanyahu/protes
 **‘Coup’ and ‘Cover-Up’: How the G.O.P. Is Reacting to the Harris Candidacy**\
 `Republican officials have largely treated President Biden’s decision to withdraw from the race with suspicion and scorn, a Times analysis found, with some calling the development a “coup” or demanding that Mr. Biden resign.`\
 https://nytimes.com/interactive/2024/07/24/us/politics/harris-biden-republican-reactions.html
-
-**Kerr critical of Team USA's performance vs. Germany**\
-`Team USA will face Nikola Jokić and Serbia Sunday in pool play.`\
-https://nytimes.com/athletic/5655892/2024/07/24/steve-kerr-usa-germany-olympics/
-
-**The Israeli leader is no stranger to Congress, or to controversy.**\
-`By Anjana Sankar`\
-https://nytimes.com/live/2024/07/24/world/israel-gaza-war-hamas-netanyahu/the-israeli-leader-is-no-stranger-to-congress-or-to-controversy
 

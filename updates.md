@@ -1,3 +1,11 @@
+**Chelsea mutually terminate Sarr contract, defender agrees Lens move**\
+`Malang Sarr has agreed terms with Lens after Chelsea released him with a year left on his contract.`\
+https://nytimes.com/athletic/5645583/2024/07/24/malang-sarr-chelsea-transfer-lens/
+
+**Lisa Kudrow Brings Her Daffy Charm to ‘Time Bandits’**\
+`The actress dialed up the zany comedy in the TV reboot of a Terry Gilliam fantasy classic, created by the team behind “What We Do in the Shadows.”`\
+https://nytimes.com/2024/07/24/arts/television/lisa-kudrow-time-bandits.html
+
 **Gavin Newsom recalls getting the Biden news and says Harris is ‘lighting it up.’**\
 `By Shawn Hubler`\
 https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/gavin-newsom-recalls-getting-the-biden-news-and-says-harris-is-lighting-it-up
