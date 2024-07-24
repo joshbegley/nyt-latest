@@ -1,3 +1,7 @@
+**Video Captures Plane Crashing After Takeoff in Nepal**\
+`A small Saurya Airlines plane crashed shortly after taking off from Tribhuvan International Airport in Kathmandu on Wednesday, killing 18 passengers on board. The pilot was the only survivor.`\
+https://nytimes.com/video/world/asia/100000009589437/nepal-plane-crash.html
+
 **Not Afraid of Sharks? Well, Now They’re on Cocaine.**\
 `Researchers have confirmed the presence of cocaine in sharks off the coast of Rio de Janeiro, though questions remain about the effects of the drug.`\
 https://nytimes.com/2024/07/24/science/cocaine-sharks-brazil.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5654694/2024/07/24/canada-new-zealand-spy-scandal-o
 **New Zealand's Ali Riley ruled out of Paris Olympics**\
 `New Zealand&#8217;s Ali Riley has been ruled out of the women&#8217;s soccer tournament at the Paris Olympics.`\
 https://nytimes.com/athletic/5655203/2024/07/24/ali-riley-new-zealand-olympics/
-
-**Salt Lake City gets 2034 Winter Olympics, 2030 to French Alps: Why now, and what it means**\
-`As options for Winter Olympics hosts dwindle, the IOC on Wednesday awarded the 2030 and 2034 Games to familiar places.`\
-https://nytimes.com/athletic/5654824/2024/07/24/salt-lake-city-2034-olympics-french-alps-2030/
 
