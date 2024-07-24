@@ -1,3 +1,7 @@
+**Scott Fish Bowl draft review: All in on the Falcons, the arbitrage Jahmyr Gibbs and De'Von Achane, and more**\
+`Michael Salfino shares his Scott Fish Bowl 14 fantasy football draft results, and how he secured an early Atlanta Falcons stack.`\
+https://nytimes.com/athletic/5653516/2024/07/24/fantasy-football-scott-fish-bowl-14-draft-review/
+
 **Why isn’t Cubs manager Craig Counsell worried about a trade deadline sell-off?**\
 `Chicago's roster likely won’t look much different on July 31. And, Counsell said: "... for us, it’s go out there and compete.”`\
 https://nytimes.com/athletic/5654913/2024/07/24/cubs-craig-counsell-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5650150/2024/07/24/enciso-olympics-paraguay-brighto
 **The end has come for Chalobah at Chelsea - this was just one battle too many**\
 `Defender's omission for the tour of the U.S. looks like the final blow to his hopes of staying at a club he has called home for 17 years`\
 https://nytimes.com/athletic/5652657/2024/07/24/chalobah-chelsea-battle-too-far/
-
-**Inside Mason Greenwood's exit from Manchester United**\
-`A chapter of United’s history has finally come to a close in the only way it could: a parting of ways that many felt necessary `\
-https://nytimes.com/athletic/5652658/2024/07/24/mason-greenwood-manchester-united-exit/
 

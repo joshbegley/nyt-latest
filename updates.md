@@ -1,3 +1,7 @@
+**Scott Fish Bowl draft review: All in on the Falcons, the arbitrage Jahmyr Gibbs and De'Von Achane, and more**\
+`Michael Salfino shares his Scott Fish Bowl 14 fantasy football draft results, and how he secured an early Atlanta Falcons stack.`\
+https://nytimes.com/athletic/5653516/2024/07/24/fantasy-football-scott-fish-bowl-14-draft-review/
+
 **'He’s getting results now': Nick Castellanos' long climb out of deep hole helping Phillies**\
 `The Phillies may add an outfielder at the deadline, but Castellanos' continued improvement could make a bigger difference.`\
 https://nytimes.com/athletic/5654960/2024/07/24/nick-castellanos-phillies-resurgence-twins/
