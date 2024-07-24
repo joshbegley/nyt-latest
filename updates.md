@@ -1,3 +1,7 @@
+**Video Captures Plane Crashing After Takeoff in Nepal**\
+`A small Saurya Airlines plane crashed shortly after taking off from Tribhuvan International Airport in Kathmandu on Wednesday, killing 18 passengers on board. The pilot was the only survivor.`\
+https://nytimes.com/video/world/asia/100000009589437/nepal-plane-crash.html
+
 **Not Afraid of Sharks? Well, Now They’re on Cocaine.**\
 `Researchers have confirmed the presence of cocaine in sharks off the coast of Rio de Janeiro, though questions remain about the effects of the drug.`\
 https://nytimes.com/2024/07/24/science/cocaine-sharks-brazil.html
