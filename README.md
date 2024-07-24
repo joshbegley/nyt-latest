@@ -1,3 +1,7 @@
+**Nephew Says Trump Suggested Some Disabled People ‘Should Just Die’**\
+`In a new memoir, Fred C. Trump III claims his uncle, Donald J. Trump, made cruel and racist comments.`\
+https://nytimes.com/2024/07/24/us/politics/donald-trump-nephew-book-fred-trump.html
+
 **A Volatile Election Is Intensifying Conspiracy Theories Online**\
 `Users on X, Truth Social, Rumble and Gab have benefited from a series of major events to spread baseless falsehoods as their followers and engagement skyrocket.`\
 https://nytimes.com/2024/07/24/business/election-conspiracy-social-media.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/24/magazine/relative-pronouns-allyship-ethics.html
 **Dancers Drop Threat to Strike During Paris Olympics Opening Ceremony**\
 `Organizers avoided disruption by agreeing to give performers on temporary contracts a greater cut of broadcast royalties.`\
 https://nytimes.com/2024/07/24/arts/dance/olympic-dancers-strike-opening-ceremony.html
-
-**Fossil Hints That Jurassic Mammals Lived Slow and Died Old**\
-`Scientists found an unexpected aging pattern in a mostly intact juvenile mammal skeleton from the paleontological period.`\
-https://nytimes.com/2024/07/24/science/fossil-mammal-jurassic-age.html
 
