@@ -1,3 +1,7 @@
+**Kathy Willens, Photojournalist Seemingly Everywhere, Is Dead at 74**\
+`Guided by a keen sense of timing, she covered wars, sports, riots, politics and more for The A.P. in the ’70s, when few women worked as news photographers.`\
+https://nytimes.com/2024/07/24/business/media/kathy-willens-dead.html
+
 **Slimmed-down Javonte Williams impresses Sean Payton at Broncos camp**\
 `The fourth-year running back enters a critical training camp after the Broncos added real competition at his position.`\
 https://nytimes.com/athletic/5656086/2024/07/24/javonte-williams-broncos-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/24/us/politics/democrat-nominee-date-kamala-harris.h
 **Judge denies Houston Christian's motion to intervene in House settlement**\
 `Had it been granted, the motion would have essentially added HCU as a defendant to the case alongside the power conferences and the NCAA.`\
 https://nytimes.com/athletic/5656185/2024/07/24/houston-christian-house-settlement/
-
-**Power conference commissioners plan to set roster limits for House settlement: Sources**\
-`Power conference commissioners have decided on roster limits that will be filed this week as part of the settlement in the House-NCAA case.`\
-https://nytimes.com/athletic/5656304/2024/07/24/ncaa-scholarships-limits/
 
