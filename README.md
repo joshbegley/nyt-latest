@@ -1,3 +1,11 @@
+**2024 Paris Olympics - 10 footballers to keep an eye on during the Games**\
+`The Olympic football tournament is a proving ground for future international stars - so here are some to monitor over the next few weeks`\
+https://nytimes.com/athletic/5652803/2024/07/24/paris-olympics-footballers-to-watch/
+
+**'Bleak', 'Gutting', 'Disastrous': What was your Premier League club's worst transfer window and why?**\
+`When transfer spending sprees go wrong - featuring Jamie O'Hara, Paul Konchesky and Guido Carrillo, among others`\
+https://nytimes.com/athletic/5629456/2024/07/24/premier-league-worst-transfer-window/
+
 **Netanyahu to Address a Congress Deeply Divided Over His Leadership**\
 `A boycott by some Democrats of the Israeli prime minister’s speech will highlight the deep anger within the party’s base about his conduct of the war against Hamas.`\
 https://nytimes.com/2024/07/24/us/politics/netanyahu-congress-democrats.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/24/world/europe/ukraine-death-doula-russia-war.html
 **Wednesday's MLB odds, best bets: Pitching matchups, playoff odds, props and more**\
 `See pitching matchups, playoff projections, win projections and more for Wednesday's MLB games.`\
 https://nytimes.com/athletic/5654033/2024/07/24/mlb-odds-best-bets-projections-july-24/
-
-**Corrections: July 24, 2024**\
-`Corrections that appeared in print on Wednesday, July 24, 2024.`\
-https://nytimes.com/2024/07/24/pageoneplus/corrections-july-24-2024.html
-
-**Quotation of the Day: Twin Ethiopia Landslide Kill at Least 229, Including Many Rescuers**\
-`Quotation of the Day for Wednesday, July 24, 2024.`\
-https://nytimes.com/2024/07/24/pageoneplus/quotation-of-the-day-twin-ethiopia-landslide-kill-at-least-229-including-many-rescuers.html
 
