@@ -1,3 +1,27 @@
+**March for Our Lives, the gun violence prevention group, endorses Harris.**\
+`By Erica L. Green`\
+https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/march-for-our-lives-the-gun-violence-prevention-group-endorses-harris
+
+**Rosa Ross, Late-Blooming Author of Asian Cookbooks, Dies at 86**\
+`She was, she said, unable to cook a basic meal into her mid-20s. But she went on to a successful career as restaurateur and an authority on Asian cuisine.`\
+https://nytimes.com/2024/07/24/dining/rosa-ross-dead.html
+
+**Man Utd tour squad: Sancho included but Malacia misses out**\
+`Manchester United have named their squad for their pre-season tour of the United States.`\
+https://nytimes.com/athletic/5655263/2024/07/24/manchester-united-usa-tour-squad/
+
+**What Do Olympians Eat for Breakfast?**\
+`Six Paris-bound athletes share how pancakes, Pop-Tarts and mid-game Skittles power their training.`\
+https://nytimes.com/2024/07/24/well/eat/olympic-athletes-breakfast-nutrition.html
+
+**A Choose-Your-Adventure Summer Pantry Pasta**\
+`By Melissa Clark`\
+https://nytimes.com/2024/07/24/dining/a-choose-your-adventure-summer-pantry-pasta.html
+
+**A Rarely Seen David Bowie Rom-Com Gets a New Life**\
+`“The Linguini Incident,” a low-budget ’90s film directed by Richard Shepard and featuring Bowie and Rosanna Arquette, makes its way to Blu-ray in a director’s cut.`\
+https://nytimes.com/2024/07/24/movies/david-bowie-movie-linguini-incident.html
+
 **As doping scandal hovers over Olympics' start, U.S. swim team calls for fairness**\
 `With swimming still reckoning with a doping scandal involving Chinese swimmers, Katie Ledecky and others on Team USA called for change.`\
 https://nytimes.com/athletic/5655645/2024/07/24/olympics-swimming-chinese-doping-scandal/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5655304/2024/07/24/manchester-united-academy-staff-
 **The Windup: Paul Skenes' brutal first loss**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5655646/2024/07/24/paul-skenes-record-the-windup/
-
-**Premier League, EFL, FA, and WSL introduce code of conduct for gambling sponsorships**\
-`The Premier League, EFL, FA, and Women’s Super League (WSL) have announced a new code of conduct for gambling-related agreements in football.`\
-https://nytimes.com/athletic/5655482/2024/07/24/premier-league-gambling-sponsorship-code/
-
-**Ukraine Presses China to Help Seek End to War With Russia**\
-`A visit by the foreign minister of Ukraine to Guangzhou this week signals Kyiv’s desire to involve Beijing in peace talks that China has thus far largely snubbed.`\
-https://nytimes.com/2024/07/24/business/ukraine-kuleba-china-russia-war.html
-
-**When the Paris Olympics Begin, the Seine Is His Stage**\
-`To open the Games, the theater director Thomas Jolly has masterminded a spectacular waterborne ceremony depicting 12 scenes from French history.`\
-https://nytimes.com/2024/07/24/world/olympics/thomas-jolly-olympics-opening-ceremony.html
-
-**F.B.I. Director Shares New Details in Attempted Assassination of Trump**\
-`The F.B.I. director disclosed that the gunman flew a drone for about 11 minutes, just two hours before the former president was shot during a hearing before the House Judiciary Committee.`\
-https://nytimes.com/2024/07/24/us/politics/fbi-director-wray-trump-shooting-hearing.html
-
-**What is Unrivaled? A new league that promises high pay and big stars, including Angel Reese**\
-`Who's the latest star player to sign with the league, which will be played in the WNBA offseason?`\
-https://nytimes.com/athletic/5639682/2024/07/24/unrivaled-kelsey-plum-wnba-league-angel-reese/
-
-**How to Watch President Biden’s Address From the Oval Office Tonight**\
-`Mr. Biden is the first sitting president since Lyndon B. Johnson in 1968 not to seek a second term in the White House.`\
-https://nytimes.com/2024/07/24/us/politics/biden-speech-tonight.html
 
