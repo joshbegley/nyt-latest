@@ -1,3 +1,11 @@
+**Packers training camp: Time to buy back in on Eric Stokes at cornerback?**\
+`The 2021 first-round pick was the star of the day on Wednesday, perhaps a sign of things to come if he finally stays healthy.`\
+https://nytimes.com/athletic/5656327/2024/07/24/packers-training-camp-eric-stokes/
+
+**Halting the Bird Flu Outbreak in Cows May Require Thinking Beyond Milk**\
+`A new study paints a complex picture of the outbreak, suggesting that the virus could be spreading in multiple ways and that it is not always mild in cows.`\
+https://nytimes.com/2024/07/24/health/bird-flu-cows-milk.html
+
 **Matvei Michkov's arrival gives jolt to Flyers' rebuild, fan base**\
 `The No. 7 draft pick in 2023 is a foundational piece for what the Flyers are trying to accomplish.`\
 https://nytimes.com/athletic/5656366/2024/07/24/flyers-matvei-michkov-arrival/
