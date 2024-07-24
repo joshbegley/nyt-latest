@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5654287/2024/07/24/f1-max-verstappen-radio-messages
 `Leeds have released their new yellow away kit, which also features a return to a fan favourite badge`\
 https://nytimes.com/athletic/5650533/2024/07/24/leeds-smiley-badge-away-kit/
 
-**18 People Killed In Small Plane Crash in Nepal**\
+**18 People Killed In Plane Crash in Nepal**\
 `The pilot of the Saurya Airlines flight, which was departing from Kathmandu, was the only survivor, officials said.`\
 https://nytimes.com/2024/07/24/world/asia/nepal-plane-crash-saurya.html
 
