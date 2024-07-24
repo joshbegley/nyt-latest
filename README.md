@@ -1,3 +1,7 @@
+**Donald Trump and Greg Abbott vs. Migrants**\
+`Readers object to Republican actions against migrants. Also: “Unpromising” students; romance fiction; sleep and longevity; scaffolding in New York.`\
+https://nytimes.com/2024/07/24/opinion/donald-trump-greg-abbott-migrants.html
+
 **Jannik Sinner withdraws from Olympic tennis with tonsillitis**\
 `Jannik Sinner has withdrawn from the 2024 Paris Olympics with tonsillitis.`\
 https://nytimes.com/athletic/5655750/2024/07/24/jannik-sinner-withdraws-olympic-tennis/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/march-for-our
 **Rosa Ross, Late-Blooming Author of Asian Cookbooks, Dies at 86**\
 `She was, she said, unable to cook a basic meal into her mid-20s. But she went on to a successful career as a restaurateur and an authority on Asian cuisine.`\
 https://nytimes.com/2024/07/24/dining/rosa-ross-dead.html
-
-**Man Utd tour squad: Sancho included but Malacia misses out**\
-`Manchester United have named their squad for their pre-season tour of the United States.`\
-https://nytimes.com/athletic/5655263/2024/07/24/manchester-united-usa-tour-squad/
 
