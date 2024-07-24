@@ -1,3 +1,11 @@
+**Edmonton Oilers hire Stan Bowman as general manager**\
+`Bowman has been out of the NHL for three years after an "inadequate response" to sexual assault allegations brought forth by Kyle Beach.`\
+https://nytimes.com/athletic/5629117/2024/07/24/stan-bowman-oilers-general-manager/
+
+**Black Sororities and Fraternities Line Up Behind Kamala Harris**\
+`A united “Divine Nine” could be a formidable political advantage as the vice president, a member of Alpha Kappa Alpha, looks to shore up the Democratic base. She’ll address another Black sorority on Wednesday.`\
+https://nytimes.com/2024/07/24/us/politics/kamala-harris-sorority.html
+
 **Ryan Blaney on NASCAR success, wedding prep and meeting Daisy Ridley again: 12 Questions**\
 `Defending NASCAR Cup Series champion Ryan Blaney talks about keys to NASCAR success, his upcoming wedding and meeting a Star Wars hero.`\
 https://nytimes.com/athletic/5649180/2024/07/24/ryan-blaney-nascar-daisy-ridley-12-questions/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/24/arts/design/met-museum-attendance.html
 **Why Do My In-Laws Help Their Daughter With Her Children, but Not Me?**\
 `A reader bristles at the child care that her mother-in-law provides for her wealthy daughter, who the reader doesn’t think needs free help as much as she does.`\
 https://nytimes.com/2024/07/24/style/in-laws-child-care.html
-
-**Why Tesla Is Still Struggling**\
-`Sluggish car sales and a tough price war with rivals are weighing on Elon Musk’s electric vehicle company.`\
-https://nytimes.com/2024/07/24/business/dealbook/tesla-earnings-musk.html
-
-**Giants takeaways: Monitoring Tyler Fitzgerald's power streak, Jordan Hicks' role change**\
-`Fitzgerald, Hicks and Robbie Ray are three players whose performances will be worth watching down the stretch. Here's why.`\
-https://nytimes.com/athletic/5655103/2024/07/24/sf-giants-tyler-fitzgerald-jordan-hicks/
 
