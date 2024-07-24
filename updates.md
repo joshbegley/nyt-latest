@@ -1,3 +1,7 @@
+**Men's basketball at the 2024 Paris Olympics: NBA player list, how to watch and more**\
+`The 2024 men's Olympic basketball tournament at the Paris Games is overflowing with star power — and not just from Team USA.`\
+https://nytimes.com/athletic/5653667/2024/07/24/mens-basketball-paris-olympics-schedule-how-to-watch/
+
 **Timberwolves coach Chris Hines makes the most of summer-league chance**\
 `"I'll be forever grateful to the organization for this opportunity," Hines said. "You get to watch young guys with talent grow."`\
 https://nytimes.com/athletic/5651127/2024/07/24/timberwolves-chris-hines-anthony-edwards-summer-league/
