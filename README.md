@@ -31,7 +31,7 @@ https://nytimes.com/2024/07/23/nyregion/robert-menendez-senate-replacement.html
 https://nytimes.com/athletic/5654570/2024/07/23/new-zealand-soccer-spy-canada-olympics/
 
 **John Mayall, Pioneer of British Blues, Is Dead at 90**\
-`Mr. Mayall was best known for recruiting and polishing the talents of one gifted young lead guitarist after another, starting with Eric Clapton.`\
+`He was best known not for his own playing or singing but for recruiting and polishing the talents of one gifted lead guitarist after another, starting with Eric Clapton.`\
 https://nytimes.com/2024/07/23/arts/music/john-mayall-dead.html
 
 **Hydrothermal Explosion at Yellowstone Sends Tourists Racing for Safety**\
