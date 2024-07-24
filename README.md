@@ -1,3 +1,7 @@
+**MLB trade deadline comps: What history says about how 2024 teams will buy or sell**\
+`What did bubble teams end up doing at the deadline in recent years, and what can we learn about this year’s deadline from that history?`\
+https://nytimes.com/athletic/5654770/2024/07/24/mlb-trade-deadline-historical-comps-buyers-sellers/
+
 **Coco Gauff to be flag bearer for Team USA at Paris Olympics**\
 `Coco Gauff will become the first tennis player in history to act as Team USA flag bearer when she joins LeBron James at the opening ceremony for the 2024 Paris Olympics.`\
 https://nytimes.com/athletic/5655264/2024/07/24/coco-gauff-paris-olympics-tennis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/24/world/olympics/salt-lake-city-winter-olympics-203
 **Why Twins should prioritize rotation help at trade deadline despite limited options**\
 `Minnesota needs rotation help, but will ownership's unwillingness to add payroll limit the front office to two-month rental options?`\
 https://nytimes.com/athletic/5652287/2024/07/24/twins-trade-deadline-starting-pitcher/
-
-**Jessie Fleming interview: Adapting to the NWSL, her Chelsea exit and pushing for environmental change**\
-`Jessie Fleming discusses life in the NWSL and WSL, the upcoming Olympics with Canada and her passion for pursuing environmental change`\
-https://nytimes.com/athletic/5616387/2024/07/24/jessie-fleming-thorns-chelsea-environment/
 
