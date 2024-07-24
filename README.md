@@ -1,11 +1,3 @@
-**Netanyahu has recently signaled hope on cease-fire talks, but there are major stumbling blocks.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/07/24/world/israel-gaza-war-hamas-netanyahu/netanyahu-has-recently-signaled-hope-on-cease-fire-talks-but-there-are-major-stumbling-blocks
-
-**NBA to ink $77 billion deals with ESPN, NBC and Amazon**\
-`When the current agreements were signed a decade ago, streaming was on the horizon, but not part of the deals.`\
-https://nytimes.com/athletic/5655843/2024/07/24/nba-tnt-sports-tv-deal-match-rejected/
-
 **Kathy Willens, Photojournalist Seemingly Everywhere, Is Dead at 74**\
 `Guided by a keen sense of timing, she covered wars, sports, riots, politics and more for The A.P. in the ’70s, when few women worked as news photographers.`\
 https://nytimes.com/2024/07/24/business/media/kathy-willens-dead.html
@@ -37,4 +29,12 @@ https://nytimes.com/2024/07/24/us/politics/netanyahu-congress.html
 **49ers' Williams holding out over contract dispute**\
 `GM John Lynch spoke with Williams' reps Wednesday and Shanahan said "discussions have been going on for a while" with Williams.`\
 https://nytimes.com/athletic/5656326/2024/07/24/49ers-tackle-trent-williams-holding-out-of-training-camp-over-contract-dispute/
+
+**Democrats Set Aug. 1 for Harris Nomination Vote**\
+`Vice President Kamala Harris has already secured the support of enough delegates to win the nomination, according to The Associated Press.`\
+https://nytimes.com/2024/07/24/us/politics/democrat-nominee-date-kamala-harris.html
+
+**Judge denies Houston Christian's motion to intervene in House settlement**\
+`Had it been granted, the motion would have essentially added HCU as a defendant to the case alongside the power conferences and the NCAA.`\
+https://nytimes.com/athletic/5656185/2024/07/24/houston-christian-house-settlement/
 
