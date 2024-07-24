@@ -1,3 +1,11 @@
+**On Economic Policy, Harris Has Played Limited Role**\
+`President Biden has not given his vice president an expansive economic portfolio. But she has engaged on issues of small-business lending, help for parents and more.`\
+https://nytimes.com/2024/07/24/us/politics/kamala-harris-economic-policy.html
+
+**How Fast Is That Going?**\
+`We measured the speeds of eight objects to make our own Olympic game. Can you guess how fast the discus flies? An arrow? The badminton birdie?`\
+https://nytimes.com/interactive/2024/07/24/world/olympics/paris-olympics-speeds-quiz.html
+
 **At the Biggest Fish Market in the U.S., 3 A.M. Is Prime Time**\
 `New York’s Fulton Fish Market, which supplies the city with nearly half its seafood, is run by third-, fourth-, even sixth-generation fishmongers.`\
 https://nytimes.com/2024/07/24/t-magazine/fulton-fish-market-ny.html

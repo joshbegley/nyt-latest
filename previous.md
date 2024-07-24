@@ -1,3 +1,11 @@
+**On Economic Policy, Harris Has Played Limited Role**\
+`President Biden has not given his vice president an expansive economic portfolio. But she has engaged on issues of small-business lending, help for parents and more.`\
+https://nytimes.com/2024/07/24/us/politics/kamala-harris-economic-policy.html
+
+**How Fast Is That Going?**\
+`We measured the speeds of eight objects to make our own Olympic game. Can you guess how fast the discus flies? An arrow? The badminton birdie?`\
+https://nytimes.com/interactive/2024/07/24/world/olympics/paris-olympics-speeds-quiz.html
+
 **At the Biggest Fish Market in the U.S., 3 A.M. Is Prime Time**\
 `New York’s Fulton Fish Market, which supplies the city with nearly half its seafood, is run by third-, fourth-, even sixth-generation fishmongers.`\
 https://nytimes.com/2024/07/24/t-magazine/fulton-fish-market-ny.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5655901/2024/07/24/training-camp-learnings-scoop-ci
 **Dancers call off Olympics opening ceremony strike threat**\
 `Attention on the dancers' protests reached a boiling point Monday when more than 200 dancers refused to continue rehearsing.`\
 https://nytimes.com/athletic/5655668/2024/07/24/opening-ceremony-strike-threat-dancers/
-
-**Nephew Says Trump Suggested Some Disabled People ‘Should Just Die’**\
-`In a new memoir, Fred C. Trump III claims his uncle, Donald J. Trump, made cruel and racist comments.`\
-https://nytimes.com/2024/07/24/us/politics/donald-trump-nephew-book-fred-trump.html
-
-**A Volatile Election Is Intensifying Conspiracy Theories Online**\
-`Users on X, Truth Social, Rumble and Gab have benefited from a series of major events to spread baseless falsehoods as their followers and engagement skyrocket.`\
-https://nytimes.com/2024/07/24/business/election-conspiracy-social-media.html
 
