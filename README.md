@@ -1,3 +1,31 @@
+**Why Twins should prioritize rotation help at trade deadline despite limited options**\
+`Minnesota needs rotation help, but will ownership's unwillingness to add payroll limit the front office to two-month rental options?`\
+https://nytimes.com/athletic/5652287/2024/07/24/twins-trade-deadline-starting-pitcher/
+
+**Yohe: The 2024 Penguins Yinzer travel guide, Part 2**\
+`The second part of our annual look at the best trips for Penguins fans who want to see Sidney Crosby and his teammates in enemy territory.`\
+https://nytimes.com/athletic/5650538/2024/07/24/penguins-schedule-travel-guide-2024-25-part-2/
+
+**Fantasy football best ball stack strategy: Projected stack leaders, plus the best and worst values**\
+`John Laghezza researches the best and worst stacks for best ball drafts, including what who he considers the NFL's narrowest target tree.`\
+https://nytimes.com/athletic/5640947/2024/07/24/fantasy-football-best-ball-stack-strategy-projected-stack-leaders-plus-the-best-and-worst-values/
+
+**How the Secret Service Failed to Protect Trump**\
+`The monumental security failures have led to the service’s director giving up her post.`\
+https://nytimes.com/2024/07/24/podcasts/the-daily/secret-service-trump.html
+
+**Harris Hits Campaign Trail, and Netanyahu Heads to Congress**\
+`Plus, two high profile resignations.`\
+https://nytimes.com/2024/07/24/podcasts/harris-campaign-netanyahu-congress.html
+
+**The Connections Companion No. 410, July 25, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/24/crosswords/the-connections-companion-no-410-july-25-2024.html
+
+**Wordle Review No. 1,132, July 25, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/24/crosswords/wordle-review-1132.html
+
 **Men's basketball at the 2024 Paris Olympics: NBA player list, how to watch and more**\
 `The 2024 men's Olympic basketball tournament at the Paris Games is overflowing with star power — and not just from Team USA.`\
 https://nytimes.com/athletic/5653667/2024/07/24/mens-basketball-paris-olympics-schedule-how-to-watch/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/5651127/2024/07/24/timberwolves-chris-hines-anthony
 **A leaner Marlon Humphrey opts for new approach after injury-plagued 2023 season**\
 `Also, Daniel Faalele is getting a shot to earn the starting right guard job and Arthur Maulet is constantly making plays in practice. `\
 https://nytimes.com/athletic/5654335/2024/07/24/ravens-marlon-humphrey-training-camp/
-
-**What we got wrong: Revisiting our MLB trade grades from last year's deadline**\
-`The Athletic's trade graders look back at the grades that didn't quite land from the 2023 trade deadline. `\
-https://nytimes.com/athletic/5653453/2024/07/24/mlb-trade-grades-2023-revisited/
-
-**What does an ideal (and realistic) trade deadline look like for the Yankees?**\
-`With the team in need of reinforcements, let's look at a third baseman, a starter and some relief help the Yankees could target.`\
-https://nytimes.com/athletic/5654316/2024/07/24/yankees-trade-deadline-rumors-plans/
-
-**Emeka Egbuka shouldn't be Ohio State's forgotten star. He's ready to lead**\
-`Egbuka has often been a standout player at Ohio State, but he's also been overshadowed. Now healthy, it's his time to lead.`\
-https://nytimes.com/athletic/5654370/2024/07/24/emeka-egbuka-ohio-state-football-draft/
-
-**From Barcelona to Paris to Brooklyn, Jordi Fernández has grinded for his basketball life**\
-`In coaching Canada and the Brooklyn Nets, Jordi Fernández is tackling two very different challenges this year.`\
-https://nytimes.com/athletic/5646257/2024/07/24/canada-basketball-jordi-fernandez-olympcs/
-
-**'He has to become his own player': NBA fathers and sons relate to Bronny James scrutiny**\
-`The attention doesn't stop with Bronny. Bryce James, his younger brother, drew large crowds at the recent Peach Jam recruiting event.`\
-https://nytimes.com/athletic/5654184/2024/07/24/lebron-james-bronny-nba-la-lakers/
-
-**In a New Docuseries, Pete Rose Hustles for Redemption**\
-`“Charlie Hustle & the Matter of Pete Rose” examines the contradictions of one of the best (and most complicated) players in baseball history.`\
-https://nytimes.com/2024/07/24/arts/pete-rose-gambling-documentary.html
-
-**Black Voters Feel Excited, and Worried, about a Kamala Harris Campaign**\
-`In interviews around the country, Black voters voiced enthusiasm for the reshaped campaign. They also worried about how a polarized country would see it.`\
-https://nytimes.com/2024/07/24/us/kamala-harris-black-voters.html
 
