@@ -1,3 +1,7 @@
+**Typhoon Gaemi Heads for Taiwan With Category 4 Strength**\
+`The tropical cyclone was expected to make landfall on the island late Wednesday, a day after battering the Philippines with heavy rain.`\
+https://nytimes.com/2024/07/24/weather/typhoon-gaemi-taiwan-philippines.html
+
 **Why isn’t Cubs manager Craig Counsell worried about a trade deadline sell-off?**\
 `Chicago's roster likely won’t look much different July 31. And, Counsell said: "For us, it’s go out there and compete.”`\
 https://nytimes.com/athletic/5654913/2024/07/24/cubs-craig-counsell-trade-deadline/
