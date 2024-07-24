@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5654913/2024/07/24/cubs-craig-counsell-trade-deadli
 `Judge walked four times before striking out in the ninth inning of the Yankees' loss to the Mets.`\
 https://nytimes.com/athletic/5654953/2024/07/24/yankees-lineup-mets-aaron-judge/
 
-**'He’s getting results now': Nick Castellanos' long climb out of a deep hole is helping Phillies**\
+**'He’s getting results now': Nick Castellanos' long climb out of deep hole helping Phillies**\
 `The Phillies may add an outfielder at the deadline, but Castellanos' continued improvement could make a bigger difference.`\
 https://nytimes.com/athletic/5654960/2024/07/24/nick-castellanos-phillies-resurgence-twins/
 
