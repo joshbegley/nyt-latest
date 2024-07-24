@@ -1,3 +1,7 @@
+**Ryan Blaney on NASCAR success, wedding prep and meeting Daisy Ridley again: 12 Questions**\
+`Defending NASCAR Cup Series champion Ryan Blaney talks about keys to NASCAR success, his upcoming wedding and meeting a Star Wars hero.`\
+https://nytimes.com/athletic/5649180/2024/07/24/ryan-blaney-nascar-daisy-ridley-12-questions/
+
 **Planet Sets Record for Hottest Day Twice in a Row**\
 `Researchers with the European Union’s Copernicus Climate Change Service said Sunday was Earth’s hottest day. Then it happened again on Monday.`\
 https://nytimes.com/2024/07/24/climate/hottest-day-earth-record.html
