@@ -1,3 +1,11 @@
+**H​ow Long Will A.I.’s ‘Slop’ Era Last?**\
+`Consumer-facing A.I. has become a nuisance. But the big breakthroughs may be on the horizon.`\
+https://nytimes.com/2024/07/24/opinion/ai-annoying-future.html
+
+**Book Prompts Investigation Into Nashville’s Unsolved Civil Rights-Era Bombings**\
+`The mayor of Nashville, Freddie O’Connell, asked the police to investigate three bombings after a book said that the attacks were tied to racist terrorism.`\
+https://nytimes.com/2024/07/24/us/nashville-civil-rights-bombings.html
+
 **Scoop City: Early training camp learnings**\
 `Takeaways from the early portion of training camp, including haircuts, holdouts and contracts.`\
 https://nytimes.com/athletic/5655901/2024/07/24/training-camp-learnings-scoop-city/
