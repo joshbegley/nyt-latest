@@ -1,3 +1,7 @@
+**This Was the Message Netanyahu Took to Congress**\
+`Here are six takeaways from Prime Minister Benjamin Netanyahu’s speech to U.S. lawmakers.`\
+https://nytimes.com/2024/07/24/world/middleeast/netanyahu-congress-speech-takeaways.html
+
 **Raiders training camp: Quarterback battle likely to come down to the preseason games**\
 `Antonio Pierce says there's no timetable on selecting a starting QB and it will likely come down to the Raiders' three preseason games.`\
 https://nytimes.com/athletic/5657018/2024/07/24/raiders-training-camp-qb-battle-minshew-oconnell/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/24/opinion/dan-collins-gail-obit-marriage.html
 **Democrats, All of Them, Must Protect Harris**\
 `MAGA won’t be content to beat the vice president. It’ll try to destroy her.`\
 https://nytimes.com/2024/07/24/opinion/kamala-harris-maga.html
-
-**Watchdog Finds No Evidence of Political Interference in Stone Sentencing**\
-`The Justice Department’s in-house watchdog released its report on the reduction of Roger Stone’s sentence in a 2019 case related to the Trump-Russia investigation.`\
-https://nytimes.com/2024/07/24/us/politics/doj-watchdog-roger-stone-sentencing.html
 

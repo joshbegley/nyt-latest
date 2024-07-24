@@ -1,3 +1,7 @@
+**This Was the Message Netanyahu Took to Congress**\
+`Here are six takeaways from Prime Minister Benjamin Netanyahu’s speech to U.S. lawmakers.`\
+https://nytimes.com/2024/07/24/world/middleeast/netanyahu-congress-speech-takeaways.html
+
 **Raiders training camp: Quarterback battle likely to come down to the preseason games**\
 `Antonio Pierce says there's no timetable on selecting a starting QB and it will likely come down to the Raiders' three preseason games.`\
 https://nytimes.com/athletic/5657018/2024/07/24/raiders-training-camp-qb-battle-minshew-oconnell/
