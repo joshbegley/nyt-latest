@@ -1,3 +1,7 @@
+**Winter Olympics Will Return to Salt Lake City, Site of Bidding Scandal, in 2034**\
+`The Utah capital’s victory was ratified only after Olympic officials threatened to pull the Games if the U.S. authorities undermined the World Anti-Doping Agency.`\
+https://nytimes.com/2024/07/24/world/olympics/salt-lake-city-winter-olympics-2034.html
+
 **Why Twins should prioritize rotation help at trade deadline despite limited options**\
 `Minnesota needs rotation help, but will ownership's unwillingness to add payroll limit the front office to two-month rental options?`\
 https://nytimes.com/athletic/5652287/2024/07/24/twins-trade-deadline-starting-pitcher/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/24/crosswords/the-connections-companion-no-410-july-
 **Wordle Review No. 1,132, July 25, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/24/crosswords/wordle-review-1132.html
-
-**Don Garber: 25 years of the most powerful man in American soccer**\
-`Don Garber has been the driving force behind the growth of soccer in the U.S. in his role as MLS commissioner`\
-https://nytimes.com/athletic/5653462/2024/07/24/don-garber-mls-commissioner-25-years/
 
