@@ -1,3 +1,7 @@
+**Netanyahu will speak at 2 p.m. Eastern. Here’s the latest.**\
+`By Shashank Bengali`\
+https://nytimes.com/live/2024/07/24/world/israel-gaza-war-hamas-netanyahu/netanyahu-will-speak-at-2-pm-eastern-heres-the-latest
+
 **Edmonton Oilers hire Stan Bowman as general manager**\
 `Bowman has been out of the NHL for three years after an "inadequate response" to sexual assault allegations brought forth by Kyle Beach.`\
 https://nytimes.com/athletic/5629117/2024/07/24/stan-bowman-oilers-general-manager/
