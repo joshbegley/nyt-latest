@@ -1,3 +1,11 @@
+**Sunday Night Basketball on NBC — part of new NBA media rights deal — could be a hit**\
+`NBC plans on Mike Tirico being the “A” voice on the network's NBA games.`\
+https://nytimes.com/athletic/5656665/2024/07/24/nba-media-rights-deal-nbc-tv/
+
+**Tennessee Gas Station Clerk Stole $1 Million Lottery Ticket, Police Say**\
+`Meer Patel was working behind the counter when a man handed him the $1 million ticket. He hid the value from the buyer and tried to cash the ticket himself, the authorities said.`\
+https://nytimes.com/2024/07/24/us/tennessee-stolen-lottery-ticket.html
+
 **'A lot of guys with a lot to prove': Commanders open training camp with up-tempo vibe**\
 `On Day 1, Washington's primary focus was on red zone work. Plus, rookie DT Johnny Newton was activated off the non-football injury list. `\
 https://nytimes.com/athletic/5656478/2024/07/24/commanders-training-camp-jayden-daniels/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/24/health/bird-flu-cows-milk.html
 **Trump’s Lawsuit Against ABC and Stephanopoulos Can Move Forward**\
 `The litigation stems from a March 10 interview in which George Stephanopoulos, the network’s star anchor, referred to a civil case brought against Mr. Trump by E. Jean Carroll.`\
 https://nytimes.com/2024/07/24/business/media/trump-lawsuit-abc-stephanopoulos.html
-
-**Diaby completes Al Ittihad move from Aston Villa**\
-`Aston Villa forward Moussa Diaby has joined Al Ittihad in a permanent transfer.`\
-https://nytimes.com/athletic/5652608/2024/07/24/moussa-diaby-al-ittihad-transfer/
-
-**Thousands Protest Netanyahu’s Address to Congress**\
-`Prime Minister Benjamin Netanyahu of Israel forcefully defended Israel’s military campaign in Gaza during his address to a joint meeting of Congress on Wednesday.`\
-https://nytimes.com/video/us/politics/100000009590962/netanyahu-congress-protest.html
 
