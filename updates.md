@@ -1,3 +1,7 @@
+**Explosion and Fire Reported at Jose Cuervo Tequila Factory in Mexico**\
+`The explosion occurred on Tuesday in the city of Tequila, near Guadalajara. The scale of the damage was not immediately clear.`\
+https://nytimes.com/2024/07/23/world/americas/explosion-jose-cuervo-tequila-factory-mexico.html
+
 **Fernandez return to Chelsea squad should not cause any issues, says Maresca**\
 `Chelsea head coach Enzo Maresca is confident there will be no problems in the squad when midfielder Enzo Fernandez joins up for their pre-season tour next week.`\
 https://nytimes.com/athletic/5654672/2024/07/23/enzo-fernandez-enzo-maresca-chelsea/

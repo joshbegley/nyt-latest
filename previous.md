@@ -1,3 +1,7 @@
+**Explosion and Fire Reported at Jose Cuervo Tequila Factory in Mexico**\
+`The explosion occurred on Tuesday in the city of Tequila, near Guadalajara. The scale of the damage was not immediately clear.`\
+https://nytimes.com/2024/07/23/world/americas/explosion-jose-cuervo-tequila-factory-mexico.html
+
 **Fernandez return to Chelsea squad should not cause any issues, says Maresca**\
 `Chelsea head coach Enzo Maresca is confident there will be no problems in the squad when midfielder Enzo Fernandez joins up for their pre-season tour next week.`\
 https://nytimes.com/athletic/5654672/2024/07/23/enzo-fernandez-enzo-maresca-chelsea/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5652540/2024/07/23/manchester-city-celtic-friendly-
 **Lamb not expected to report to Cowboys' camp amid contract talks**\
 `Lamb is entering the last year of a deal scheduled to pay him $17.99 million this season.`\
 https://nytimes.com/athletic/5654669/2024/07/23/ceedee-lamb-holdout-dallas-cowboys-training-camp/
-
-**F.B.I. Searches $3.5 Million Home of Former Aide to Gov. Hochul**\
-`The early-morning raid took place on Long Island’s North Shore at the house of Ms. Hochul’s former deputy chief of staff, Linda Sun.`\
-https://nytimes.com/2024/07/23/nyregion/fbi-raid-linda-sun.html
 
