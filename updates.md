@@ -1,3 +1,7 @@
+**Fake Filming Notices Started Appearing Around the City. Who Was Behind Them?**\
+`New Yorkers have been baffled by posters with fictitious plotlines for the show “And Just Like That …” We tracked down their creator.`\
+https://nytimes.com/2024/07/24/style/and-just-like-that-fake-film-notices.html
+
 **Sunday Night Basketball on NBC — part of new NBA media rights deal — could be a hit**\
 `NBC plans on Mike Tirico being the “A” voice on the network's NBA games.`\
 https://nytimes.com/athletic/5656665/2024/07/24/nba-media-rights-deal-nbc-tv/
