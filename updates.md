@@ -1,3 +1,11 @@
+**Kathy Willens, Photojournalist Seemingly Everywhere, Is Dead at 74**\
+`Guided by a keen sense of timing, she covered wars, sports, riots, politics and more for The A.P. in the ’70s, when few women worked as news photographers.`\
+https://nytimes.com/2024/07/24/business/media/kathy-willens-dead.html
+
+**Netanyahu Delivers a Forceful Defense of Israel to Applause in Congress**\
+`The symbolism of the speech by Israel’s leader was almost as notable as anything he said, as criticism of the country’s war in Gaza grows.`\
+https://nytimes.com/2024/07/24/us/politics/netanyahu-congress.html
+
 **Slimmed-down Javonte Williams impresses Sean Payton at Broncos camp**\
 `The fourth-year running back enters a critical training camp after the Broncos added real competition at his position.`\
 https://nytimes.com/athletic/5656086/2024/07/24/javonte-williams-broncos-camp/
