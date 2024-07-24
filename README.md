@@ -1,3 +1,11 @@
+**Ukraine Presses China to Help Seek End to War With Russia**\
+`A visit by the foreign minister of Ukraine to Guangzhou this week signals Kyiv’s desire to involve Beijing in peace talks that China has thus far largely snubbed.`\
+https://nytimes.com/2024/07/24/business/ukraine-kuleba-china-russia-war.html
+
+**When the Paris Olympics Begin, the Seine Is His Stage**\
+`To open the Games, the theater director Thomas Jolly has masterminded a spectacular waterborne ceremony depicting 12 scenes from French history.`\
+https://nytimes.com/2024/07/24/world/olympics/thomas-jolly-olympics-opening-ceremony.html
+
 **Lawmakers Press Wray Over Attempted Assassination of Trump**\
 `It is unclear whether the F.B.I. will share new details during the hearing before the House Judiciary Committee, but the bureau has been forthcoming with information about the shooting.`\
 https://nytimes.com/2024/07/24/us/politics/fbi-director-wray-trump-shooting-hearing.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5649180/2024/07/24/ryan-blaney-nascar-daisy-ridley-
 **Planet Sets Record for Hottest Day Twice in a Row**\
 `Researchers with the European Union’s Copernicus Climate Change Service said Sunday was Earth’s hottest day. Then it happened again on Monday.`\
 https://nytimes.com/2024/07/24/climate/hottest-day-earth-record.html
-
-**200,000 Children and Vulnerable Adults Abused in New Zealand, Report Finds**\
-`The head of a six-year investigation into mistreatment in orphanages, mental health institutions and elsewhere said it found an “unthinkable national catastrophe” unfolding over decades.`\
-https://nytimes.com/2024/07/24/world/asia/new-zealand-abuse-in-care-report.html
-
-**Notre Dame QB Riley Leonard says he's fully healthy for fall**\
-`Leonard's right ankle troubles began when he was sacked by Irish defensive lineman Howard Cross at the end of Notre Dame’s win at Duke.`\
-https://nytimes.com/athletic/5655489/2024/07/24/riley-leonard-notre-dame-ankle-surgery/
 
