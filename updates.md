@@ -1,3 +1,11 @@
+**Knicks ink Tom Thibodeau to extension**\
+`His .550 winning percentage ranks sixth in franchise history among coaches who lasted more than one season.`\
+https://nytimes.com/athletic/5656037/2024/07/24/tom-thibodeau-knicks-contract-extension/
+
+**Arsenal poaching analyst Darren Rogerson from Manchester City**\
+`Manchester City’s elite development squad analyst Darren Rogerson is leaving the club to join Arsenal’s first team.`\
+https://nytimes.com/athletic/5655119/2024/07/24/darren-rogerson-arsenal-man-city/
+
 **Arsenal poach analyst Darren Rogerson from Manchester City**\
 `Manchester City’s elite development squad analyst Darren Rogerson has left the club to join Arsenal’s first team.`\
 https://nytimes.com/athletic/5655119/2024/07/24/darren-rogerson-arsenal-man-city/
