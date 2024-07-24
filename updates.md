@@ -1,3 +1,7 @@
+**What we learned from Maresca's 'first day' at Chelsea (and what we didnt)**\
+`New manager has already shown 'aura' on the training field but knows that tougher days await at Stamford Bridge`\
+https://nytimes.com/athletic/5654880/2024/07/24/enzo-maresca-chelsea-press-conference/
+
 **A TV Show Set Up a Fake Campus Protest. Then Real Protesters Arrived.**\
 `A police procedural drama staged a tent encampment for a film shoot at Queens College. Pro-Palestinian demonstrators felt it trivialized their movement.`\
 https://nytimes.com/2024/07/24/nyregion/queens-college-protest-encampment.html

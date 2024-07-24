@@ -1,3 +1,7 @@
+**What we learned from Maresca's 'first day' at Chelsea (and what we didnt)**\
+`New manager has already shown 'aura' on the training field but knows that tougher days await at Stamford Bridge`\
+https://nytimes.com/athletic/5654880/2024/07/24/enzo-maresca-chelsea-press-conference/
+
 **A TV Show Set Up a Fake Campus Protest. Then Real Protesters Arrived.**\
 `A police procedural drama staged a tent encampment for a film shoot at Queens College. Pro-Palestinian demonstrators felt it trivialized their movement.`\
 https://nytimes.com/2024/07/24/nyregion/queens-college-protest-encampment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/24/weather/typhoon-gaemi-taiwan-philippines.html
 **Scott Fish Bowl draft review: All in on the Falcons, the arbitrage Jahmyr Gibbs and De'Von Achane, and more**\
 `Michael Salfino shares his Scott Fish Bowl 14 fantasy football draft results, and how he secured an early Atlanta Falcons stack.`\
 https://nytimes.com/athletic/5653516/2024/07/24/fantasy-football-scott-fish-bowl-14-draft-review/
-
-**Why isn’t Cubs manager Craig Counsell worried about a trade deadline sell-off?**\
-`Chicago's roster likely won’t look much different July 31. And, Counsell said: "For us, it’s go out there and compete.”`\
-https://nytimes.com/athletic/5654913/2024/07/24/cubs-craig-counsell-trade-deadline/
 
