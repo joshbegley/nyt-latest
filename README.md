@@ -1,3 +1,11 @@
+**Here’s the latest from the campaign trail.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/heres-the-latest-from-the-campaign-trail
+
+**Rays' Taylor Walls says gesture wasn't meant as Trump endorsement**\
+`Walls said Tuesday the gesture was "kind of more of a joke that we have with guys in the locker room," according to the Associated Press.`\
+https://nytimes.com/athletic/5654852/2024/07/24/taylor-walls-trump-gesture-comments/
+
 **MLB trade deadline comps: What history says about how 2024 teams will buy or sell**\
 `What did bubble teams end up doing at the deadline in recent years, and what can we learn about this year’s deadline from that history?`\
 https://nytimes.com/athletic/5654770/2024/07/24/mlb-trade-deadline-historical-comps-buyers-sellers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5654221/2024/07/24/giants-camp-daboll-scohen-must-a
 **The Harris-______ Campaign**\
 `We cover the four leading vice-presidential contenders.`\
 https://nytimes.com/2024/07/24/briefing/vice-president-candidates.html
-
-**Winter Olympics Will Return to Salt Lake City, Site of Bidding Scandal, in 2034**\
-`The Utah capital’s victory was ratified only after Olympic officials threatened to pull the Games if the U.S. authorities undermined the World Anti-Doping Agency.`\
-https://nytimes.com/2024/07/24/world/olympics/salt-lake-city-winter-olympics-2034.html
-
-**Why Twins should prioritize rotation help at trade deadline despite limited options**\
-`Minnesota needs rotation help, but will ownership's unwillingness to add payroll limit the front office to two-month rental options?`\
-https://nytimes.com/athletic/5652287/2024/07/24/twins-trade-deadline-starting-pitcher/
 
