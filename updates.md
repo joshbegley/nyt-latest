@@ -1,3 +1,11 @@
+**Texas Woman Is Sentenced to 15 Years in Fraud Scheme**\
+`Janet Yamanaka Mello, 57, stole over $100 million from a youth development grant program for children of military families, spending the money on a lavish lifestyle, prosecutors said.`\
+https://nytimes.com/2024/07/23/us/army-civilian-employee-fraud.html
+
+**Whit Merrifield hasn't yet played for the Braves but he's had an eventful first two days**\
+`It's been a whirlwind for Merrifield, who sustained a "gnarly" finger injury Monday then sat in on a players-only meeting a day later.`\
+https://nytimes.com/athletic/5654767/2024/07/23/braves-whit-merrifield-finger-injury-arrival/
+
 **Trump Demands Equal Airtime in Light of Biden’s Planned Address**\
 `President Biden is set to address the nation on Wednesday night from the Oval Office to discuss the end of his re-election bid.`\
 https://nytimes.com/2024/07/23/us/trump-equal-airtime-biden-speech.html
