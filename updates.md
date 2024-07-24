@@ -1,3 +1,7 @@
+**The E.P.A. Moves Toward Regulating a Widely Used, Dangerous Chemical**\
+`Vinyl chloride, used to make things like PVC pipes and packaging, is also toxic and highly flammable, and was at the center of a major train disaster in Ohio last year.`\
+https://nytimes.com/2024/07/24/climate/epa-vinyl-chloride-regulation.html
+
 **Steelers' Najee Harris talks contract situation: 'I like it here ... but it's a business'**\
 `Harris was "disappointed for a minute" when the Steelers declined his option but would "most definitely" consider re-signing long-term.`\
 https://nytimes.com/athletic/5656087/2024/07/24/najee-harris-contract-steelers-training-camp/

@@ -1,3 +1,7 @@
+**The E.P.A. Moves Toward Regulating a Widely Used, Dangerous Chemical**\
+`Vinyl chloride, used to make things like PVC pipes and packaging, is also toxic and highly flammable, and was at the center of a major train disaster in Ohio last year.`\
+https://nytimes.com/2024/07/24/climate/epa-vinyl-chloride-regulation.html
+
 **Steelers' Najee Harris talks contract situation: 'I like it here ... but it's a business'**\
 `Harris was "disappointed for a minute" when the Steelers declined his option but would "most definitely" consider re-signing long-term.`\
 https://nytimes.com/athletic/5656087/2024/07/24/najee-harris-contract-steelers-training-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/gavin-newsom-
 **Tesla and Alphabet Earnings Prompt Big Tech Stock Decline**\
 `Disappointing earnings reports from the tech giants dragged the Nasdaq composite down 2.9 percent, amid a shift by investors to stocks of smaller companies.`\
 https://nytimes.com/2024/07/24/business/tesla-alphabet-stock-earnings.html
-
-**How Kamala Harris Took Command of the Democratic Party in 48 Hours**\
-`She worked the phones. Her team worked the delegates. When it was over, she had quickly locked down the nomination in a “well-orchestrated cascade,” as one party leader put it.`\
-https://nytimes.com/2024/07/24/us/politics/kamala-harris-democrats-nomination.html
 
