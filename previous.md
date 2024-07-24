@@ -1,3 +1,19 @@
+**Eddie Howe, 'alignment' and the end of Newcastle's era of intimacy**\
+`So much change means they automatically become a less personal, less intimate club. It does not make it worse, but does make it different`\
+https://nytimes.com/athletic/5652769/2024/07/24/newcastle-eddie-howe-structure/
+
+**Wednesday Briefing**\
+`Kamala Harris’s rally in Wisconsin.`\
+https://nytimes.com/2024/07/24/briefing/kamala-harris-netanyahu-macron.html
+
+**Enciso is fulfilling his Olympics dream - but what will it mean for him and Brighton?**\
+`The Paraguayan is playing in the competition in France and missing his club's tour of Japan — how will this affect Fabian Hurzeler's plans?`\
+https://nytimes.com/athletic/5650150/2024/07/24/enciso-olympics-paraguay-brighton/
+
+**The end has come for Chalobah at Chelsea - this was just one battle too many**\
+`Defender's omission for the tour of the U.S. looks like the final blow to his hopes of staying at a club he has called home for 17 years`\
+https://nytimes.com/athletic/5652657/2024/07/24/chalobah-chelsea-battle-too-far/
+
 **Inside Mason Greenwood's exit from Manchester United**\
 `A chapter of United’s history has finally come to a close in the only way it could: a parting of ways that many felt necessary `\
 https://nytimes.com/athletic/5652658/2024/07/24/mason-greenwood-manchester-united-exit/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5629456/2024/07/24/premier-league-worst-transfer-wi
 **Netanyahu to Address a Congress Deeply Divided Over His Leadership**\
 `A boycott by some Democrats of the Israeli prime minister’s speech will highlight the deep anger within the party’s base about his conduct of the war against Hamas.`\
 https://nytimes.com/2024/07/24/us/politics/netanyahu-congress-democrats.html
-
-**Beefed-Up Olympics Security Thins Out Tourists, Squeezing Merchants**\
-`French businesses had hoped the Games would bring an economic boom, but metal fences and police checkpoints have turned some areas of Paris into dead zones.`\
-https://nytimes.com/2024/07/24/business/olympics-paris-tourists-small-business.html
-
-**After Losing Crops to Drought, Sicily Fears Losing Tourism, Too**\
-`Parts of Southern Italy and other countries in the region are experiencing one of their worst droughts in decades. The authorities say they are working to at least save tourism.`\
-https://nytimes.com/2024/07/24/world/europe/after-losing-crops-to-drought-sicily-fears-losing-tourism-too.html
-
-**Molly Nilsson’s Synth-Pop Puts Politics Front and Center**\
-`She is her own manager, books her own tours and has never had a publicist. And her latest album features a song about communism in the style of Madonna’s “Vogue.”`\
-https://nytimes.com/2024/07/24/arts/music/molly-nilsson.html
-
-**Arsenal's Africa-inspired away kit tells the story of their unique connection to Black culture**\
-`The Athletic speaks to the designer behind an Arsenal kit that pays homage to the club's players and fans shaped by the African diaspora`\
-https://nytimes.com/athletic/5652306/2024/07/24/arsenal-away-kit-labrum-black-culture/
 

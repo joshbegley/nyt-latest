@@ -1,3 +1,19 @@
+**Eddie Howe, 'alignment' and the end of Newcastle's era of intimacy**\
+`So much change means they automatically become a less personal, less intimate club. It does not make it worse, but does make it different`\
+https://nytimes.com/athletic/5652769/2024/07/24/newcastle-eddie-howe-structure/
+
+**Wednesday Briefing**\
+`Kamala Harris’s rally in Wisconsin.`\
+https://nytimes.com/2024/07/24/briefing/kamala-harris-netanyahu-macron.html
+
+**Enciso is fulfilling his Olympics dream - but what will it mean for him and Brighton?**\
+`The Paraguayan is playing in the competition in France and missing his club's tour of Japan — how will this affect Fabian Hurzeler's plans?`\
+https://nytimes.com/athletic/5650150/2024/07/24/enciso-olympics-paraguay-brighton/
+
+**The end has come for Chalobah at Chelsea - this was just one battle too many**\
+`Defender's omission for the tour of the U.S. looks like the final blow to his hopes of staying at a club he has called home for 17 years`\
+https://nytimes.com/athletic/5652657/2024/07/24/chalobah-chelsea-battle-too-far/
+
 **Inside Mason Greenwood's exit from Manchester United**\
 `A chapter of United’s history has finally come to a close in the only way it could: a parting of ways that many felt necessary `\
 https://nytimes.com/athletic/5652658/2024/07/24/mason-greenwood-manchester-united-exit/
