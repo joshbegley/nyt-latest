@@ -1,3 +1,7 @@
+**Fernandez return to Chelsea squad should not cause any issues, says Maresca**\
+`Chelsea head coach Enzo Maresca is confident there will be no problems in the squad when midfielder Enzo Fernandez joins up for their pre-season tour next week.`\
+https://nytimes.com/athletic/5654672/2024/07/23/enzo-fernandez-enzo-maresca-chelsea/
+
 **Texas Woman Is Sentenced to 15 Years in Fraud Scheme**\
 `Janet Yamanaka Mello, 57, stole over $100 million from a youth development grant program for children of military families, spending the money on a lavish lifestyle, prosecutors said.`\
 https://nytimes.com/2024/07/23/us/army-civilian-employee-fraud.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5654669/2024/07/23/ceedee-lamb-holdout-dallas-cowbo
 **F.B.I. Searches $3.5 Million Home of Former Aide to Gov. Hochul**\
 `The early-morning raid took place on Long Island’s North Shore at the house of Ms. Hochul’s former deputy chief of staff, Linda Sun.`\
 https://nytimes.com/2024/07/23/nyregion/fbi-raid-linda-sun.html
-
-**Reds are shopping their relievers — but they're not selling yet**\
-`The Reds have a reliever logjam and could look to move some who are on expiring contracts.`\
-https://nytimes.com/athletic/5654659/2024/07/23/reds-relievers-trade-deadline-direction/
 
