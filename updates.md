@@ -1,3 +1,11 @@
+**What’s More Exciting Than a Veepstakes? A Surprise Veepstakes.**\
+`This year’s election had been a no-fun zone for Democrats. Suddenly, they have a new candidate, and can’t stop breathlessly speculating about her buffet of white-guy options for No. 2.`\
+https://nytimes.com/2024/07/24/us/politics/harris-vice-president-search.html
+
+**Harris Warns Black Women That Trump Is a Threat to Children and Families**\
+`Her speech was a clear effort to make the election a referendum on the former president.`\
+https://nytimes.com/2024/07/24/us/politics/harris-trump-black-women.html
+
 **Chelsea mutually terminate Sarr contract, defender agrees Lens move**\
 `Malang Sarr has agreed terms with Lens after Chelsea released him with a year left on his contract.`\
 https://nytimes.com/athletic/5645583/2024/07/24/malang-sarr-chelsea-transfer-lens/
