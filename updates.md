@@ -1,3 +1,15 @@
+**What we got wrong: Revisiting our MLB trade grades from last year's deadline**\
+`The Athletic's trade graders look back at the grades that didn't quite land from the 2023 trade deadline. `\
+https://nytimes.com/athletic/5653453/2024/07/24/mlb-trade-grades-2023-revisited/
+
+**What does an ideal (and realistic) trade deadline look like for the Yankees?**\
+`With the team in need of reinforcements, let's look at a third baseman, a starter and some relief help the Yankees could target.`\
+https://nytimes.com/athletic/5654316/2024/07/24/yankees-trade-deadline-rumors-plans/
+
+**Emeka Egbuka shouldn't be Ohio State's forgotten star. He's ready to lead**\
+`Egbuka has often been a standout player at Ohio State, but he's also been overshadowed. Now healthy, it's his time to lead.`\
+https://nytimes.com/athletic/5654370/2024/07/24/emeka-egbuka-ohio-state-football-draft/
+
 **From Barcelona to Paris to Brooklyn, Jordi Fernández has grinded for his basketball life**\
 `In coaching Canada and the Brooklyn Nets, Jordi Fernández is tackling two very different challenges this year.`\
 https://nytimes.com/athletic/5646257/2024/07/24/canada-basketball-jordi-fernandez-olympcs/
