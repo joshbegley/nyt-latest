@@ -1,3 +1,7 @@
+**Donald Trump and Greg Abbott vs. Migrants**\
+`Readers object to Republican actions against migrants. Also: “Unpromising” students; romance fiction; sleep and longevity; scaffolding in New York.`\
+https://nytimes.com/2024/07/24/opinion/donald-trump-greg-abbott-migrants.html
+
 **Jannik Sinner withdraws from Olympic tennis with tonsillitis**\
 `Jannik Sinner has withdrawn from the 2024 Paris Olympics with tonsillitis.`\
 https://nytimes.com/athletic/5655750/2024/07/24/jannik-sinner-withdraws-olympic-tennis/
