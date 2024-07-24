@@ -1,3 +1,11 @@
+**Dancers Drop Threat to Strike During Paris Olympics Opening Ceremony**\
+`Organizers avoided disruption by agreeing to give performers on temporary contracts a greater cut of broadcast royalties.`\
+https://nytimes.com/2024/07/24/arts/dance/olympic-dancers-strike-opening-ceremony.html
+
+**Fossil Hints That Jurassic Mammals Lived Slow and Died Old**\
+`Scientists found an unexpected aging pattern in a mostly intact juvenile mammal skeleton from the paleontological period.`\
+https://nytimes.com/2024/07/24/science/fossil-mammal-jurassic-age.html
+
 **March for Our Lives, the gun violence prevention group, endorses Harris.**\
 `By Erica L. Green`\
 https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/march-for-our-lives-the-gun-violence-prevention-group-endorses-harris
