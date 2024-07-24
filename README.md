@@ -1,3 +1,11 @@
+**Gavin Newsom recalls getting the Biden news and says Harris is ‘lighting it up.’**\
+`By Shawn Hubler`\
+https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/gavin-newsom-recalls-getting-the-biden-news-and-says-harris-is-lighting-it-up
+
+**Tesla and Alphabet Earnings Prompt Big Tech Stock Decline**\
+`Disappointing earnings reports from the tech giants dragged the Nasdaq composite down 2.9 percent, amid a shift by investors to stocks of smaller companies.`\
+https://nytimes.com/2024/07/24/business/tesla-alphabet-stock-earnings.html
+
 **How Kamala Harris Took Command of the Democratic Party in 48 Hours**\
 `She worked the phones. Her team worked the delegates. When it was over, she had quickly locked down the nomination in a “well-orchestrated cascade,” as one party leader put it.`\
 https://nytimes.com/2024/07/24/us/politics/kamala-harris-democrats-nomination.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5655892/2024/07/24/steve-kerr-usa-germany-olympics/
 **The Israeli leader is no stranger to Congress, or to controversy.**\
 `By Anjana Sankar`\
 https://nytimes.com/live/2024/07/24/world/israel-gaza-war-hamas-netanyahu/the-israeli-leader-is-no-stranger-to-congress-or-to-controversy
-
-**Harris Works to Build Bridges to the Business World**\
-`The vice president has sought to raise her profile among executives, to whom she has been something of an enigma.`\
-https://nytimes.com/2024/07/24/business/kamala-harris-business-policies-economy.html
-
-**Harris’s Indian Heritage Is Deeply Felt if Little Advertised**\
-`Many Indian Americans see Kamala Harris as another example of the diaspora’s success and influence.`\
-https://nytimes.com/2024/07/24/world/asia/kamala-harris-india.html
 
