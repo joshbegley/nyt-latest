@@ -1,3 +1,7 @@
+**Premier League, EFL, FA, and WSL introduce code of conduct for gambling sponsorships**\
+`The Premier League, EFL, FA, and Women’s Super League (WSL) have announced a new code of conduct for gambling-related agreements in football.`\
+https://nytimes.com/athletic/5655482/2024/07/24/premier-league-gambling-sponsorship-code/
+
 **Ukraine Presses China to Help Seek End to War With Russia**\
 `A visit by the foreign minister of Ukraine to Guangzhou this week signals Kyiv’s desire to involve Beijing in peace talks that China has thus far largely snubbed.`\
 https://nytimes.com/2024/07/24/business/ukraine-kuleba-china-russia-war.html
@@ -9,6 +13,10 @@ https://nytimes.com/2024/07/24/world/olympics/thomas-jolly-olympics-opening-cere
 **Lawmakers Press Wray Over Attempted Assassination of Trump**\
 `It is unclear whether the F.B.I. will share new details during the hearing before the House Judiciary Committee, but the bureau has been forthcoming with information about the shooting.`\
 https://nytimes.com/2024/07/24/us/politics/fbi-director-wray-trump-shooting-hearing.html
+
+**What is Unrivaled? A new league that promises high pay and big stars, including Angel Ree**\
+`Who's the latest star player to sign with the league, which will be played in the WNBA offseason?`\
+https://nytimes.com/athletic/5639682/2024/07/24/unrivaled-kelsey-plum-wnba-league-angel-reese/
 
 **How to Watch President Biden’s Address From the Oval Office Tonight**\
 `Mr. Biden is the first sitting president since Lyndon B. Johnson in 1968 not to seek a second term in the White House.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5629117/2024/07/24/stan-bowman-oilers-general-manag
 **Black Sororities and Fraternities Line Up Behind Kamala Harris**\
 `A united “Divine Nine” could be a formidable political advantage as the vice president, a member of Alpha Kappa Alpha, looks to shore up the Democratic base. She’ll address another Black sorority on Wednesday.`\
 https://nytimes.com/2024/07/24/us/politics/kamala-harris-sorority.html
-
-**Ryan Blaney on NASCAR success, wedding prep and meeting Daisy Ridley again: 12 Questions**\
-`Defending NASCAR Cup Series champion Ryan Blaney talks about keys to NASCAR success, his upcoming wedding and meeting a Star Wars hero.`\
-https://nytimes.com/athletic/5649180/2024/07/24/ryan-blaney-nascar-daisy-ridley-12-questions/
-
-**Planet Sets Record for Hottest Day Twice in a Row**\
-`Researchers with the European Union’s Copernicus Climate Change Service said Sunday was Earth’s hottest day. Then it happened again on Monday.`\
-https://nytimes.com/2024/07/24/climate/hottest-day-earth-record.html
 

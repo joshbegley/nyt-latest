@@ -1,3 +1,11 @@
+**Premier League, EFL, FA, and WSL introduce code of conduct for gambling sponsorships**\
+`The Premier League, EFL, FA, and Women’s Super League (WSL) have announced a new code of conduct for gambling-related agreements in football.`\
+https://nytimes.com/athletic/5655482/2024/07/24/premier-league-gambling-sponsorship-code/
+
+**What is Unrivaled? A new league that promises high pay and big stars, including Angel Ree**\
+`Who's the latest star player to sign with the league, which will be played in the WNBA offseason?`\
+https://nytimes.com/athletic/5639682/2024/07/24/unrivaled-kelsey-plum-wnba-league-angel-reese/
+
 **Ukraine Presses China to Help Seek End to War With Russia**\
 `A visit by the foreign minister of Ukraine to Guangzhou this week signals Kyiv’s desire to involve Beijing in peace talks that China has thus far largely snubbed.`\
 https://nytimes.com/2024/07/24/business/ukraine-kuleba-china-russia-war.html
