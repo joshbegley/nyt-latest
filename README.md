@@ -1,3 +1,15 @@
+**Not Afraid of Sharks? Well, Now They’re on Cocaine.**\
+`Researchers have confirmed the presence of cocaine in sharks off the coast of Rio de Janeiro, though questions remain about the effects of the drug.`\
+https://nytimes.com/2024/07/24/science/cocaine-sharks-brazil.html
+
+**Brighton signings Minteh and Cozier-Duberry score in Kashima Antlers friendly win**\
+`Brighton defeated J1 League side Kashima Antlers 5-1 in Japan with new signings Yankuba Minteh and Amario Cozier-Duberry among the scorers.`\
+https://nytimes.com/athletic/5655336/2024/07/24/brighton-friendly-win-kashima-antlers/
+
+**Ducks mailbag, Part 1: Offseason moves, Mitch Marner, John Gibson and more**\
+`It's clear readers are not pleased with how the offseason has gone for Anaheim. `\
+https://nytimes.com/athletic/5654131/2024/07/24/ducks-offseason-john-gibson-mitch-marner/
+
 **Here’s the latest from the campaign trail.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/heres-the-latest-from-the-campaign-trail
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5655203/2024/07/24/ali-riley-new-zealand-olympics/
 **Salt Lake City gets 2034 Winter Olympics, 2030 to French Alps: Why now, and what it means**\
 `As options for Winter Olympics hosts dwindle, the IOC on Wednesday awarded the 2030 and 2034 Games to familiar places.`\
 https://nytimes.com/athletic/5654824/2024/07/24/salt-lake-city-2034-olympics-french-alps-2030/
-
-**How the Cardinals and John Mozeliak are navigating MLB's trade deadline uncertainty**\
-`Targeting a high-leverage reliever from the right side could alleviate stress in the Cardinals' busy bullpen.`\
-https://nytimes.com/athletic/5654420/2024/07/24/cardinals-mlb-trade-deadline-john-mozeliak/
-
-**Giants camp: Daboll, Scohen must avoid self-scouting gaffes that helped doom 2023 season**\
-`The Giants aren’t going to get every decision right when evaluating their roster, but mistakes from 2023 cost them the benefit of the doubt.`\
-https://nytimes.com/athletic/5654221/2024/07/24/giants-camp-daboll-scohen-must-avoid-self-scouting-gaffes-that-helped-doom-2023-season/
-
-**The Harris-______ Campaign**\
-`We cover the four leading vice-presidential contenders.`\
-https://nytimes.com/2024/07/24/briefing/vice-president-candidates.html
 
