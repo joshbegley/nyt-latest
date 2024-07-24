@@ -1,3 +1,11 @@
+**Villa's Duran on his future: ‘Let’s hope something happens’**\
+`Aston Villa striker Jhon Duran says he hopes something comes of rumours linking him to “big teams” this summer.`\
+https://nytimes.com/athletic/5655569/2024/07/24/jhon-duran-aston-villa-transfer-west-ham/
+
+**Netanyahu will speak at 2 p.m. Eastern. Here’s the latest.**\
+`By Shashank Bengali`\
+https://nytimes.com/live/2024/07/24/world/israel-gaza-war-hamas-netanyahu/netanyahu-will-speak-at-2-pm-eastern-heres-the-latest
+
 **Edmonton Oilers hire Stan Bowman as general manager**\
 `Bowman has been out of the NHL for three years after an "inadequate response" to sexual assault allegations brought forth by Kyle Beach.`\
 https://nytimes.com/athletic/5629117/2024/07/24/stan-bowman-oilers-general-manager/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5648360/2024/07/24/riccardo-calafiori-arsenal-trans
 **Kyle Shanahan on Purdy, Belichick and not obsessing over the OL**\
 `Shanahan on Belichick, who politely declined an offer to join the 49ers: "I can't believe that he's not a head coach of a team right now."`\
 https://nytimes.com/athletic/5654473/2024/07/24/kyle-shanahan-49ers-brock-purdy-bill-belichick/
-
-**The Met Museum Is Rebounding, but Not With International Visitors**\
-`The museum said it attracted more local visitors during the past year than it did before the pandemic, but only half the international visitors.`\
-https://nytimes.com/2024/07/24/arts/design/met-museum-attendance.html
-
-**Why Do My In-Laws Help Their Daughter With Her Children, but Not Me?**\
-`A reader bristles at the child care that her mother-in-law provides for her wealthy daughter, who the reader doesn’t think needs free help as much as she does.`\
-https://nytimes.com/2024/07/24/style/in-laws-child-care.html
 
