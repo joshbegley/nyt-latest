@@ -1,3 +1,7 @@
+**Harris Hits Campaign Trail, and Netanyahu Heads to Congress**\
+`Plus, two high-profile resignations.`\
+https://nytimes.com/2024/07/24/podcasts/harris-campaign-netanyahu-congress.html
+
 **Jessie Fleming interview: Adapting to the NWSL, her Chelsea exit and pushing for environmental change**\
 `Jessie Fleming discusses life in the NWSL and WSL, the upcoming Olympics with Canada and her passion for pursuing environmental change`\
 https://nytimes.com/athletic/5616387/2024/07/24/jessie-fleming-thorns-chelsea-environment/
