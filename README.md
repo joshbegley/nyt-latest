@@ -1,3 +1,11 @@
+**The Israeli leader is no stranger to Congress, or to controversy.**\
+`By Anjana Sankar`\
+https://nytimes.com/live/2024/07/24/world/israel-gaza-war-hamas-netanyahu/the-israeli-leader-is-no-stranger-to-congress-or-to-controversy
+
+**Harris Works to Build Bridges to the Business World**\
+`The vice president has sought to raise her profile among executives, to whom she has been something of an enigma.`\
+https://nytimes.com/2024/07/24/business/kamala-harris-business-policies-economy.html
+
 **Harris’s Indian Heritage Is Deeply Felt if Little Advertised**\
 `Many Indian Americans see Kamala Harris as another example of the diaspora’s success and influence.`\
 https://nytimes.com/2024/07/24/world/asia/kamala-harris-india.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/07/24/arts/editors-recommendations-rectify.
 **H​ow Long Will A.I.’s ‘Slop’ Era Last?**\
 `Consumer-facing A.I. has become a nuisance. But the big breakthroughs may be on the horizon.`\
 https://nytimes.com/2024/07/24/opinion/ai-annoying-future.html
-
-**Book Prompts Investigation Into Nashville’s Unsolved Civil Rights-Era Bombings**\
-`The mayor of Nashville, Freddie O’Connell, asked the police to investigate three bombings after a book said that the attacks were tied to racist terrorism.`\
-https://nytimes.com/2024/07/24/us/nashville-civil-rights-bombings.html
-
-**Scoop City: Early training camp learnings**\
-`Takeaways from the early portion of training camp, including haircuts, holdouts and contracts.`\
-https://nytimes.com/athletic/5655901/2024/07/24/training-camp-learnings-scoop-city/
 
