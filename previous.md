@@ -1,3 +1,15 @@
+**200,000 Children and Vulnerable Adults Abused in New Zealand, Report Finds**\
+`The head of a six-year investigation into mistreatment in orphanages, mental health institutions and elsewhere said it found an “unthinkable national catastrophe” unfolding over decades.`\
+https://nytimes.com/2024/07/24/world/asia/new-zealand-abuse-in-care-report.html
+
+**Notre Dame QB Riley Leonard says he's fully healthy for fall**\
+`Leonard's right ankle troubles began when he was sacked by Irish defensive lineman Howard Cross at the end of Notre Dame’s win at Duke.`\
+https://nytimes.com/athletic/5655489/2024/07/24/riley-leonard-notre-dame-ankle-surgery/
+
+**Arsenal on cusp of Riccardo Calafiori signing with defender set for medical**\
+`All agreements are now in place for Arsenal to sign Bologna defender Riccardo Calafiori.`\
+https://nytimes.com/athletic/5648360/2024/07/24/riccardo-calafiori-arsenal-transfer-update/
+
 **Kyle Shanahan on Purdy, Belichick and not obsessing over the OL**\
 `Shanahan on Belichick, who politely declined an offer to join the 49ers: "I can't believe that he's not a head coach of a team right now."`\
 https://nytimes.com/athletic/5654473/2024/07/24/kyle-shanahan-49ers-brock-purdy-bill-belichick/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5655132/2024/07/24/chelsea-filip-jorgensen-transfer
 **Video Captures Plane Crashing After Takeoff in Nepal**\
 `A small Saurya Airlines plane crashed shortly after taking off from Tribhuvan International Airport in Kathmandu on Wednesday, killing 18 passengers on board. The pilot was the only survivor.`\
 https://nytimes.com/video/world/asia/100000009589437/nepal-plane-crash.html
-
-**Not Afraid of Sharks? Well, Now They’re on Cocaine.**\
-`Researchers have confirmed the presence of cocaine in sharks off the coast of Rio de Janeiro, though questions remain about the effects of the drug.`\
-https://nytimes.com/2024/07/24/science/cocaine-sharks-brazil.html
-
-**Brighton signings Minteh and Cozier-Duberry score in Kashima Antlers friendly win**\
-`Brighton defeated J1 League side Kashima Antlers 5-1 in Japan with new signings Yankuba Minteh and Amario Cozier-Duberry among the scorers.`\
-https://nytimes.com/athletic/5655336/2024/07/24/brighton-friendly-win-kashima-antlers/
-
-**Ducks mailbag, Part 1: Offseason moves, Mitch Marner, John Gibson and more**\
-`It's clear readers are not pleased with how the offseason has gone for Anaheim. `\
-https://nytimes.com/athletic/5654131/2024/07/24/ducks-offseason-john-gibson-mitch-marner/
 
