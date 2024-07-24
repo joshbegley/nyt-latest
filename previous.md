@@ -1,3 +1,7 @@
+**Cardinals' disappointing series highlights roster needs ahead of trade deadline**\
+`Multiple industry sources believe the Cardinals are focusing on pitching, both starting and relief.`\
+https://nytimes.com/athletic/5655981/2024/07/24/cardinals-trade-deadline-pitching/
+
 **Fake Filming Notices Started Appearing Around the City. Who Was Behind Them?**\
 `New Yorkers have been baffled by posters with fictitious plotlines for the show “And Just Like That …” We tracked down their creator.`\
 https://nytimes.com/2024/07/24/style/and-just-like-that-fake-film-notices.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5656610/2024/07/24/mlb-luxury-tax-tv-money/
 **Packers training camp: Time to buy back in on Eric Stokes at cornerback?**\
 `The 2021 first-round pick was the star of the day on Wednesday, perhaps a sign of things to come if he finally stays healthy.`\
 https://nytimes.com/athletic/5656327/2024/07/24/packers-training-camp-eric-stokes/
-
-**Halting the Bird Flu Outbreak in Cows May Require Thinking Beyond Milk**\
-`A new study paints a complex picture of the outbreak, suggesting that the virus could be spreading in multiple ways and that it is not always mild in cows.`\
-https://nytimes.com/2024/07/24/health/bird-flu-cows-milk.html
 

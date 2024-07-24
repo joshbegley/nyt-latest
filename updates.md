@@ -1,3 +1,7 @@
+**Cardinals' disappointing series highlights roster needs ahead of trade deadline**\
+`Multiple industry sources believe the Cardinals are focusing on pitching, both starting and relief.`\
+https://nytimes.com/athletic/5655981/2024/07/24/cardinals-trade-deadline-pitching/
+
 **Fake Filming Notices Started Appearing Around the City. Who Was Behind Them?**\
 `New Yorkers have been baffled by posters with fictitious plotlines for the show “And Just Like That …” We tracked down their creator.`\
 https://nytimes.com/2024/07/24/style/and-just-like-that-fake-film-notices.html
