@@ -1,7 +1,3 @@
-**‘Coup’ and ‘Cover-Up’: How the G.O.P. Is Reacting to the Harris Candidacy**\
-`Republican officials have largely treated President Biden’s decision to withdraw from the race with suspicion and scorn, a Times analysis found, with some calling the development a “coup” or demanding that Mr. Biden resign.`\
-https://nytimes.com/interactive/2024/07/24/us/politics/harris-biden-republican-reactions.html
-
 **Kerr critical of Team USA's performance vs. Germany**\
 `Team USA will face Nikola Jokić and Serbia Sunday in pool play.`\
 https://nytimes.com/athletic/5655892/2024/07/24/steve-kerr-usa-germany-olympics/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/07/24/realestate/tal-oren-alexander-sexual-assault.html
 **Pat McAfee will return to ESPN's 'College GameDay' for 2024 season**\
 `McAfee said late last year that he would return to the program but entered the summer without a deal signed.`\
 https://nytimes.com/athletic/5655893/2024/07/24/pat-mcafee-college-gameday-espn/
+
+**What’s in Our Queue? ‘Rectify’ and More**\
+`I am a photographer, and I primarily cover the military, Congress and the White House. Here are a few favorites.`\
+https://nytimes.com/interactive/2024/07/24/arts/editors-recommendations-rectify.html
 
