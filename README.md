@@ -1,3 +1,7 @@
+**What’s in Our Queue? ‘Rectify’ and More**\
+`I am a photographer, and I primarily cover the military, Congress and the White House. Here are a few favorites.`\
+https://nytimes.com/interactive/2024/07/24/arts/editors-recommendations-rectify.html
+
 **H​ow Long Will A.I.’s ‘Slop’ Era Last?**\
 `Consumer-facing A.I. has become a nuisance. But the big breakthroughs may be on the horizon.`\
 https://nytimes.com/2024/07/24/opinion/ai-annoying-future.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/24/opinion/donald-trump-greg-abbott-migrants.html
 **Jannik Sinner withdraws from Olympic tennis with tonsillitis**\
 `Jannik Sinner has withdrawn from the 2024 Paris Olympics with tonsillitis.`\
 https://nytimes.com/athletic/5655750/2024/07/24/jannik-sinner-withdraws-olympic-tennis/
-
-**This Year’s BroadwayCon Raises the Curtain on Mental Health**\
-`The ninth annual fan event will include discussions on topics such as sobriety, self-care and body image. Here are six to look out for.`\
-https://nytimes.com/2024/07/24/theater/broadwaycon-mental-health-panels.html
 
