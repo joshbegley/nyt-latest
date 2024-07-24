@@ -1,3 +1,15 @@
+**Not Afraid of Sharks? Well, Now They’re on Cocaine.**\
+`Researchers have confirmed the presence of cocaine in sharks off the coast of Rio de Janeiro, though questions remain about the effects of the drug.`\
+https://nytimes.com/2024/07/24/science/cocaine-sharks-brazil.html
+
+**Brighton signings Minteh and Cozier-Duberry score in Kashima Antlers friendly win**\
+`Brighton defeated J1 League side Kashima Antlers 5-1 in Japan with new signings Yankuba Minteh and Amario Cozier-Duberry among the scorers.`\
+https://nytimes.com/athletic/5655336/2024/07/24/brighton-friendly-win-kashima-antlers/
+
+**Ducks mailbag, Part 1: Offseason moves, Mitch Marner, John Gibson and more**\
+`It's clear readers are not pleased with how the offseason has gone for Anaheim. `\
+https://nytimes.com/athletic/5654131/2024/07/24/ducks-offseason-john-gibson-mitch-marner/
+
 **Here’s the latest from the campaign trail.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/heres-the-latest-from-the-campaign-trail
