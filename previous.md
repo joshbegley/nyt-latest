@@ -10,6 +10,10 @@ https://nytimes.com/athletic/5655203/2024/07/24/ali-riley-new-zealand-olympics/
 `As options for Winter Olympics hosts dwindle, the IOC on Wednesday awarded the 2030 and 2034 Games to familiar places.`\
 https://nytimes.com/athletic/5654824/2024/07/24/salt-lake-city-2034-olympics-french-alps-2030/
 
+**How the Cardinals and John Mozeliak are navigating MLB's trade deadline uncertainty**\
+`Targeting a high-leverage reliever from the right side could alleviate stress in the Cardinals' busy bullpen.`\
+https://nytimes.com/athletic/5654420/2024/07/24/cardinals-mlb-trade-deadline-john-mozeliak/
+
 **Giants camp: Daboll, Scohen must avoid self-scouting gaffes that helped doom 2023 season**\
 `The Giants aren’t going to get every decision right when evaluating their roster, but mistakes from 2023 cost them the benefit of the doubt.`\
 https://nytimes.com/athletic/5654221/2024/07/24/giants-camp-daboll-scohen-must-avoid-self-scouting-gaffes-that-helped-doom-2023-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5616387/2024/07/24/jessie-fleming-thorns-chelsea-en
 **Yohe: The 2024 Penguins Yinzer travel guide, Part 2**\
 `The second part of our annual look at the best trips for Penguins fans who want to see Sidney Crosby and his teammates in enemy territory.`\
 https://nytimes.com/athletic/5650538/2024/07/24/penguins-schedule-travel-guide-2024-25-part-2/
-
-**Kadarius Toney working at running back in bid to reclaim spot in Chiefs offense**\
-`Toney is splitting camp reps at receiver and running back as the Chiefs look to capitalize on his versatility.`\
-https://nytimes.com/athletic/5654080/2024/07/24/chiefs-kadarius-toney-running-back/
 

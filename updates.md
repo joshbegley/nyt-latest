@@ -1,3 +1,7 @@
+**How the Cardinals and John Mozeliak are navigating MLB's trade deadline uncertainty**\
+`Targeting a high-leverage reliever from the right side could alleviate stress in the Cardinals' busy bullpen.`\
+https://nytimes.com/athletic/5654420/2024/07/24/cardinals-mlb-trade-deadline-john-mozeliak/
+
 **The Pulse: An Olympics spy scandal**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5654694/2024/07/24/canada-new-zealand-spy-scandal-olympics-the-pulse/
