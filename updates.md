@@ -1,3 +1,7 @@
+**Harris’s Indian Heritage Is Deeply Felt if Little Advertised**\
+`Many Indian Americans see Kamala Harris as another example of the diaspora’s success and influence.`\
+https://nytimes.com/2024/07/24/world/asia/kamala-harris-india.html
+
 **On Economic Policy, Harris Has Played Limited Role**\
 `President Biden has not given his vice president an expansive economic portfolio. But she has engaged on issues of small-business lending, help for parents and more.`\
 https://nytimes.com/2024/07/24/us/politics/kamala-harris-economic-policy.html
