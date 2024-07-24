@@ -1,3 +1,7 @@
+**Mets' Christian Scott hopes to avoid surgery with rest and rehab for right elbow**\
+`Losing Scott even for the next few weeks is a blow to a Mets rotation about to welcome Kodai Senga back.`\
+https://nytimes.com/athletic/5657118/2024/07/24/mets-christian-scott-injury/
+
 **This Was the Message Netanyahu Took to Congress**\
 `Here are six takeaways from Prime Minister Benjamin Netanyahu’s speech to U.S. lawmakers.`\
 https://nytimes.com/2024/07/24/world/middleeast/netanyahu-congress-speech-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5656871/2024/07/24/chargers-training-camp-quentin-j
 **In Memory of My Husband, Dan**\
 `One of the great joys of a long marriage is how the personal and pragmatic moosh together.`\
 https://nytimes.com/2024/07/24/opinion/dan-collins-gail-obit-marriage.html
-
-**Democrats, All of Them, Must Protect Harris**\
-`MAGA won’t be content to beat the vice president. It’ll try to destroy her.`\
-https://nytimes.com/2024/07/24/opinion/kamala-harris-maga.html
 
