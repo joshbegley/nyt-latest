@@ -26,7 +26,7 @@ https://nytimes.com/2024/07/24/briefing/netanyahu-congress-kamala-harris-disinfo
 `France's win puts them in the driving seat in Group A but a young U.S. team can hold their heads high after an impressive opening hour`\
 https://nytimes.com/athletic/5656545/2024/07/24/france-united-states-olympics-soccer-analysis/
 
-**Matvei Michkov's arrival gives jolt to Flyers rebuild, fan base**\
+**Matvei Michkov's arrival gives jolt to Flyers' rebuild, fan base**\
 `The No. 7 draft pick in 2023 is a foundational piece for what the Flyers are trying to accomplish.`\
 https://nytimes.com/athletic/5656366/2024/07/24/flyers-matvei-michkov-arrival/
 
