@@ -1,3 +1,11 @@
+**The Met Museum Is Rebounding, but Not With International Visitors**\
+`The museum said it attracted more local visitors during the past year than it did before the pandemic, but only half the international visitors.`\
+https://nytimes.com/2024/07/24/arts/design/met-museum-attendance.html
+
+**Why Do My In-Laws Help Their Daughter With Her Children, but Not Me?**\
+`A reader bristles at the child care that her mother-in-law provides for her wealthy daughter, who the reader doesn’t think needs free help as much as she does.`\
+https://nytimes.com/2024/07/24/style/in-laws-child-care.html
+
 **Chelsea close to agreeing deal to sign Villarreal goalkeeper Filip Jorgensen**\
 `Chelsea are close to agreeing a deal to sign Villarreal goalkeeper Filip Jorgensen, with the player preferring a move to Stamford Bridge over Marseille.`\
 https://nytimes.com/athletic/5655132/2024/07/24/chelsea-filip-jorgensen-transfer/

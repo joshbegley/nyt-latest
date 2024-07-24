@@ -1,3 +1,11 @@
+**The Met Museum Is Rebounding, but Not With International Visitors**\
+`The museum said it attracted more local visitors during the past year than it did before the pandemic, but only half the international visitors.`\
+https://nytimes.com/2024/07/24/arts/design/met-museum-attendance.html
+
+**Why Do My In-Laws Help Their Daughter With Her Children, but Not Me?**\
+`A reader bristles at the child care that her mother-in-law provides for her wealthy daughter, who the reader doesn’t think needs free help as much as she does.`\
+https://nytimes.com/2024/07/24/style/in-laws-child-care.html
+
 **Why Tesla Is Still Struggling**\
 `Sluggish car sales and a tough price war with rivals are weighing on Elon Musk’s electric vehicle company.`\
 https://nytimes.com/2024/07/24/business/dealbook/tesla-earnings-musk.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5654131/2024/07/24/ducks-offseason-john-gibson-mitc
 **Here’s the latest from the campaign trail.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/heres-the-latest-from-the-campaign-trail
-
-**Rays' Taylor Walls says gesture wasn't meant as Trump endorsement**\
-`Walls said Tuesday the gesture was "kind of more of a joke that we have with guys in the locker room," according to the Associated Press.`\
-https://nytimes.com/athletic/5654852/2024/07/24/taylor-walls-trump-gesture-comments/
-
-**Coco Gauff to be flag bearer for Team USA at Paris Olympics**\
-`Coco Gauff will become the first tennis player in history to act as Team USA flag bearer when she joins LeBron James at the opening ceremony for the 2024 Paris Olympics.`\
-https://nytimes.com/athletic/5655264/2024/07/24/coco-gauff-paris-olympics-tennis/
 
