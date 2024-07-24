@@ -1,3 +1,7 @@
+**Padres' Jackson Merrill, Nationals' James Wood reunite on major-league stage**\
+`Almost two years ago Wood was traded to Washington in the Juan Soto deal. Now he and Merrill find themselves as core members of their teams.`\
+https://nytimes.com/athletic/5651123/2024/07/23/padres-nationals-jackson-merrill-james-wood-reunion/
+
 **Explosion and Fire Reported at Jose Cuervo Tequila Factory in Mexico**\
 `The explosion occurred on Tuesday in the city of Tequila, near Guadalajara. The scale of the damage was not immediately clear.`\
 https://nytimes.com/2024/07/23/world/americas/explosion-jose-cuervo-tequila-factory-mexico.html
