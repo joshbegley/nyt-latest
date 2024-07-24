@@ -1,3 +1,7 @@
+**Planet Sets Record for Hottest Day Twice in a Row**\
+`Researchers with the European Union’s Copernicus Climate Change Service said Sunday was Earth’s hottest day. Then it happened again on Monday.`\
+https://nytimes.com/2024/07/24/climate/hottest-day-earth-record.html
+
 **200,000 Children and Vulnerable Adults Abused in New Zealand, Report Finds**\
 `The head of a six-year investigation into mistreatment in orphanages, mental health institutions and elsewhere said it found an “unthinkable national catastrophe” unfolding over decades.`\
 https://nytimes.com/2024/07/24/world/asia/new-zealand-abuse-in-care-report.html
