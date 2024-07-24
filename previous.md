@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5654960/2024/07/24/nick-castellanos-phillies-resurgence-twins/
 
 **Jhoan Duran doesn't concern Twins even after late struggles in loss to Phillies**\
-`Two walks issued by Duran led to the Phillies’ scoring three runs and holding off the Twins 3-0. Rocco Baldelli considers it a one-off.`\
+`Two walks issued by Duran led to the Phillies scoring three runs and holding off the Twins 3-0. Rocco Baldelli considers it a one-off.`\
 https://nytimes.com/athletic/5654943/2024/07/24/twins-loss-phillies-jhoan-duran/
 
 **Palace need to replace Olise - is Sarr the answer?**\
