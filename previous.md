@@ -1,3 +1,7 @@
+**Kyle Shanahan on Purdy, Belichick and not obsessing over the OL**\
+`Shanahan on Belichick, who politely declined an offer to join the 49ers: "I can't believe that he's not a head coach of a team right now."`\
+https://nytimes.com/athletic/5654473/2024/07/24/kyle-shanahan-49ers-brock-purdy-bill-belichick/
+
 **The Met Museum Is Rebounding, but Not With International Visitors**\
 `The museum said it attracted more local visitors during the past year than it did before the pandemic, but only half the international visitors.`\
 https://nytimes.com/2024/07/24/arts/design/met-museum-attendance.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5655336/2024/07/24/brighton-friendly-win-kashima-an
 **Ducks mailbag, Part 1: Offseason moves, Mitch Marner, John Gibson and more**\
 `It's clear readers are not pleased with how the offseason has gone for Anaheim. `\
 https://nytimes.com/athletic/5654131/2024/07/24/ducks-offseason-john-gibson-mitch-marner/
-
-**Here’s the latest from the campaign trail.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/heres-the-latest-from-the-campaign-trail
 

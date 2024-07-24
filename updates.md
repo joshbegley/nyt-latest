@@ -1,3 +1,7 @@
+**Kyle Shanahan on Purdy, Belichick and not obsessing over the OL**\
+`Shanahan on Belichick, who politely declined an offer to join the 49ers: "I can't believe that he's not a head coach of a team right now."`\
+https://nytimes.com/athletic/5654473/2024/07/24/kyle-shanahan-49ers-brock-purdy-bill-belichick/
+
 **The Met Museum Is Rebounding, but Not With International Visitors**\
 `The museum said it attracted more local visitors during the past year than it did before the pandemic, but only half the international visitors.`\
 https://nytimes.com/2024/07/24/arts/design/met-museum-attendance.html
