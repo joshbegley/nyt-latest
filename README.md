@@ -1,3 +1,7 @@
+**Knicks ink Tom Thibodeau to extension**\
+`His .550 winning percentage ranks sixth in franchise history among coaches who lasted more than one season.`\
+https://nytimes.com/athletic/5656037/2024/07/24/tom-thibodeau-knicks-contract-extension/
+
 **Arsenal poach analyst Darren Rogerson from Manchester City**\
 `Manchester City’s elite development squad analyst Darren Rogerson has left the club to join Arsenal’s first team.`\
 https://nytimes.com/athletic/5655119/2024/07/24/darren-rogerson-arsenal-man-city/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/24/us/politics/kamala-harris-economic-policy.html
 **How Fast Is That Going?**\
 `We measured the speeds of eight objects to make our own Olympic game. Can you guess how fast the discus flies? An arrow? The badminton birdie?`\
 https://nytimes.com/interactive/2024/07/24/world/olympics/paris-olympics-speeds-quiz.html
-
-**At the Biggest Fish Market in the U.S., 3 A.M. Is Prime Time**\
-`New York’s Fulton Fish Market, which supplies the city with nearly half its seafood, is run by third-, fourth-, even sixth-generation fishmongers.`\
-https://nytimes.com/2024/07/24/t-magazine/fulton-fish-market-ny.html
 
