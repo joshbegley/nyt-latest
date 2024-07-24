@@ -1,3 +1,7 @@
+**Germany Bans Islamic Group Accused of Supporting Hezbollah**\
+`The authorities also searched dozens of properties linked to the Islamic Center Hamburg, which has long faced accusations of being a front for the Iranian government.`\
+https://nytimes.com/2024/07/24/world/europe/germany-hamburg-islamist-ban-hezbollah.html
+
 **18 People Killed In Plane Crash in Nepal**\
 `The pilot of the Saurya Airlines flight, which was departing from Kathmandu, was the only survivor, officials said.`\
 https://nytimes.com/2024/07/24/world/asia/nepal-plane-crash-saurya.html
