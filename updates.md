@@ -1,3 +1,7 @@
+**Inside Mason Greenwood's exit from Manchester United**\
+`A chapter of United’s history has finally come to a close in the only way it could: a parting of ways that many felt necessary `\
+https://nytimes.com/athletic/5652658/2024/07/24/mason-greenwood-manchester-united-exit/
+
 **'Indispensable' Yamal is Barca's great hope - they need him more than ever**\
 `Yamal was the star of this summer's European Championship and his emergence couldn't have come at a better time for Barca`\
 https://nytimes.com/athletic/5653311/2024/07/24/lamine-yamal-barcelona-spain-euros/
