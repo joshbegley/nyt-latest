@@ -1,3 +1,11 @@
+**Red Sox, Alex Cora engaged in talks on new deal**\
+`Cora, who recently moved into fourth place all-time in franchise history in wins, entered 2024 in the final year of his contract.`\
+https://nytimes.com/athletic/5656238/2024/07/24/red-sox-alex-cora-contract-talks/
+
+**Rosenthal: What I'm hearing about the MLB trade deadline including Mariners, Rangers and more**\
+`The Mariners could be looking to add bats, the Rangers are no longer outright sellers and what do the injured Braves do at the deadline?`\
+https://nytimes.com/athletic/5656244/2024/07/24/mlb-trade-deadline-mariners-rangers-garrett-crochet/
+
 **Whale Capsizes Fishing Boat Off New Hampshire Coast**\
 `Two boaters were rescued by nearby fishermen without injuries, and the dramatic flip was caught on video.`\
 https://nytimes.com/2024/07/24/us/whale-boat-capsize-new-hampshire.html
@@ -6,7 +14,7 @@ https://nytimes.com/2024/07/24/us/whale-boat-capsize-new-hampshire.html
 `He was a threat as a halfback, receiver and returner for the Dallas Texans, the team that became the Kansas City Chiefs. But he still had to deal with racism.`\
 https://nytimes.com/2024/07/24/sports/football/abner-haynes-dead.html
 
-**Comcast near TV deal to re-air 12 MLB teams**\
+**Comcast nears TV deal to re-air 12 MLB teams**\
 `A dozen teams using Bally-branded RSN channels have been unavailable on Comcast services since the beginning of June. `\
 https://nytimes.com/athletic/5656272/2024/07/24/comcast-tv-deal-12-mlb-teams/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/24/nyregion/salman-rushdie-stabbing-terrorism.html
 **Jeffrey Katzenberg: Biden Did What Was Best for the Country**\
 `On Sunday, the president selflessly let go of the reins but not before ensuring we were in good hands.`\
 https://nytimes.com/2024/07/24/opinion/katzenberg-biden-kamala-harris.html
-
-**What’s More Exciting Than a Veepstakes? A Surprise Veepstakes.**\
-`This year’s election had been a no-fun zone for Democrats. Suddenly, they have a new candidate, and can’t stop breathlessly speculating about her buffet of white-guy options for No. 2.`\
-https://nytimes.com/2024/07/24/us/politics/harris-vice-president-search.html
-
-**Harris Warns Black Women That Trump Is a Threat to Children and Families**\
-`Her speech was a clear effort to make the election a referendum on the former president.`\
-https://nytimes.com/2024/07/24/us/politics/harris-trump-black-women.html
 

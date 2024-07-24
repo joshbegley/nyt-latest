@@ -1,3 +1,15 @@
+**Red Sox, Alex Cora engaged in talks on new deal**\
+`Cora, who recently moved into fourth place all-time in franchise history in wins, entered 2024 in the final year of his contract.`\
+https://nytimes.com/athletic/5656238/2024/07/24/red-sox-alex-cora-contract-talks/
+
+**Rosenthal: What I'm hearing about the MLB trade deadline including Mariners, Rangers and more**\
+`The Mariners could be looking to add bats, the Rangers are no longer outright sellers and what do the injured Braves do at the deadline?`\
+https://nytimes.com/athletic/5656244/2024/07/24/mlb-trade-deadline-mariners-rangers-garrett-crochet/
+
+**Comcast nears TV deal to re-air 12 MLB teams**\
+`A dozen teams using Bally-branded RSN channels have been unavailable on Comcast services since the beginning of June. `\
+https://nytimes.com/athletic/5656272/2024/07/24/comcast-tv-deal-12-mlb-teams/
+
 **Whale Capsizes Fishing Boat Off New Hampshire Coast**\
 `Two boaters were rescued by nearby fishermen without injuries, and the dramatic flip was caught on video.`\
 https://nytimes.com/2024/07/24/us/whale-boat-capsize-new-hampshire.html
