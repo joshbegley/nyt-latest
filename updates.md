@@ -1,3 +1,7 @@
+**Two dismal days in Oakland accentuate Astros' trade deadline needs**\
+`Any momentum gained during Houston's series win against Seattle melted away across 18 excruciating innings in Oakland.`\
+https://nytimes.com/athletic/5655048/2024/07/24/astros-trade-deadline-needs-oakland/
+
 **Word of the Day: exacting**\
 `This word has appeared in 265 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/07/24/learning/word-of-the-day-exacting.html
