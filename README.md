@@ -1,3 +1,7 @@
+**Complete Reversals**\
+`Shaun Phillips makes his New York Times Crossword debut.`\
+https://nytimes.com/2024/07/23/crosswords/daily-puzzle-2024-07-24.html
+
 **Giants ‘Hard Knocks’ takeaways: The hunt for a new franchise QB**\
 `So, just how close did the Giants come to trading up for a quarterback ahead of the 2024 NFL Draft?`\
 https://nytimes.com/athletic/5653893/2024/07/23/giants-hard-knocks-drake-maye-jayden-daniels/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/arts/music/john-mayall-dead.html
 **Hydrothermal Explosion at Yellowstone Sends Tourists Racing for Safety**\
 `The explosion at Biscuit Basin, which sent a column of boiling water, mud and rock shooting into the sky on Tuesday, was caught in dramatic videos.`\
 https://nytimes.com/2024/07/23/us/yellowstone-biscuit-basin-hydrothermal-explosion.html
-
-**Super PAC Tied to Elon Musk Is Being Guided by Ex-DeSantis Aides**\
-`The group, America PAC, which is funded by allies of Elon Musk, is said to be steered by two well-known Republican operatives who worked on behalf of Ron DeSantis’s presidential bid.`\
-https://nytimes.com/2024/07/23/us/politics/elon-musk-super-pac-desantis.html
 
