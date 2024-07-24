@@ -1,3 +1,7 @@
+**Fake Filming Notices Started Appearing Around the City. Who Was Behind Them?**\
+`New Yorkers have been baffled by posters with fictitious plotlines for the show “And Just Like That …” We tracked down their creator.`\
+https://nytimes.com/2024/07/24/style/and-just-like-that-fake-film-notices.html
+
 **Sunday Night Basketball on NBC — part of new NBA media rights deal — could be a hit**\
 `NBC plans on Mike Tirico being the “A” voice on the network's NBA games.`\
 https://nytimes.com/athletic/5656665/2024/07/24/nba-media-rights-deal-nbc-tv/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5656327/2024/07/24/packers-training-camp-eric-stoke
 **Halting the Bird Flu Outbreak in Cows May Require Thinking Beyond Milk**\
 `A new study paints a complex picture of the outbreak, suggesting that the virus could be spreading in multiple ways and that it is not always mild in cows.`\
 https://nytimes.com/2024/07/24/health/bird-flu-cows-milk.html
-
-**Trump’s Lawsuit Against ABC and Stephanopoulos Can Move Forward**\
-`The litigation stems from a March 10 interview in which George Stephanopoulos, the network’s star anchor, referred to a civil case brought against Mr. Trump by E. Jean Carroll.`\
-https://nytimes.com/2024/07/24/business/media/trump-lawsuit-abc-stephanopoulos.html
 
