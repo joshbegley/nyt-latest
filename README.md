@@ -1,3 +1,7 @@
+**Typhoon Gaemi Heads for Taiwan With Category 4 Strength**\
+`The tropical cyclone was expected to make landfall on the island late Wednesday, a day after battering the Philippines with heavy rain.`\
+https://nytimes.com/2024/07/24/weather/typhoon-gaemi-taiwan-philippines.html
+
 **Scott Fish Bowl draft review: All in on the Falcons, the arbitrage Jahmyr Gibbs and De'Von Achane, and more**\
 `Michael Salfino shares his Scott Fish Bowl 14 fantasy football draft results, and how he secured an early Atlanta Falcons stack.`\
 https://nytimes.com/athletic/5653516/2024/07/24/fantasy-football-scott-fish-bowl-14-draft-review/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/24/briefing/kamala-harris-netanyahu-macron.html
 **Enciso is fulfilling his Olympics dream - but what will it mean for him and Brighton?**\
 `The Paraguayan is playing in the competition in France and missing his club's tour of Japan — how will this affect Fabian Hurzeler's plans?`\
 https://nytimes.com/athletic/5650150/2024/07/24/enciso-olympics-paraguay-brighton/
-
-**The end has come for Chalobah at Chelsea - this was just one battle too many**\
-`Defender's omission for the tour of the U.S. looks like the final blow to his hopes of staying at a club he has called home for 17 years`\
-https://nytimes.com/athletic/5652657/2024/07/24/chalobah-chelsea-battle-too-far/
 
