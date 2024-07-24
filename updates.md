@@ -1,3 +1,7 @@
+**Jannik Sinner withdraws from Olympic tennis with tonsillitis**\
+`Jannik Sinner has withdrawn from the 2024 Paris Olympics with tonsillitis.`\
+https://nytimes.com/athletic/5655750/2024/07/24/jannik-sinner-withdraws-olympic-tennis/
+
 **This Year’s BroadwayCon Raises the Curtain on Mental Health**\
 `The ninth annual fan event will include discussions on topics such as sobriety, self-care and body image. Here are six to look out for.`\
 https://nytimes.com/2024/07/24/theater/broadwaycon-mental-health-panels.html
