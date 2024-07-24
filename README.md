@@ -1,3 +1,7 @@
+**Why isn’t Cubs manager Craig Counsell worried about a trade deadline sell-off?**\
+`Chicago's roster likely won’t look much different on July 31. And, Counsell said: "... for us, it’s go out there and compete.”`\
+https://nytimes.com/athletic/5654913/2024/07/24/cubs-craig-counsell-trade-deadline/
+
 **Yankees' surprising lineup moves can't force Mets to pitch to Aaron Judge**\
 `Judge walked four times before striking out in the ninth inning of the Yankees' loss to the Mets.`\
 https://nytimes.com/athletic/5654953/2024/07/24/yankees-lineup-mets-aaron-judge/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5652657/2024/07/24/chalobah-chelsea-battle-too-far/
 **Inside Mason Greenwood's exit from Manchester United**\
 `A chapter of United’s history has finally come to a close in the only way it could: a parting of ways that many felt necessary `\
 https://nytimes.com/athletic/5652658/2024/07/24/mason-greenwood-manchester-united-exit/
-
-**'Indispensable' Yamal is Barca's great hope - they need him more than ever**\
-`Yamal was the star of this summer's European Championship and his emergence couldn't have come at a better time for Barca`\
-https://nytimes.com/athletic/5653311/2024/07/24/lamine-yamal-barcelona-spain-euros/
 
