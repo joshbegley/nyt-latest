@@ -1,3 +1,7 @@
+**Villa's Duran on his future: ‘Let’s hope something happens’**\
+`Aston Villa striker Jhon Duran says he hopes something comes of rumours linking him to “big teams” this summer.`\
+https://nytimes.com/athletic/5655569/2024/07/24/jhon-duran-aston-villa-transfer-west-ham/
+
 **Netanyahu will speak at 2 p.m. Eastern. Here’s the latest.**\
 `By Shashank Bengali`\
 https://nytimes.com/live/2024/07/24/world/israel-gaza-war-hamas-netanyahu/netanyahu-will-speak-at-2-pm-eastern-heres-the-latest
