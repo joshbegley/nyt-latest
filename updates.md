@@ -1,3 +1,7 @@
+**Why isn’t Cubs manager Craig Counsell worried about a trade deadline sell-off?**\
+`Chicago's roster likely won’t look much different July 31. And, Counsell said: "For us, it’s go out there and compete.”`\
+https://nytimes.com/athletic/5654913/2024/07/24/cubs-craig-counsell-trade-deadline/
+
 **Scott Fish Bowl draft review: All in on the Falcons, the arbitrage Jahmyr Gibbs and De'Von Achane, and more**\
 `Michael Salfino shares his Scott Fish Bowl 14 fantasy football draft results, and how he secured an early Atlanta Falcons stack.`\
 https://nytimes.com/athletic/5653516/2024/07/24/fantasy-football-scott-fish-bowl-14-draft-review/
