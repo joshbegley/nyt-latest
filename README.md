@@ -1,3 +1,7 @@
+**Germany Bans Islamic Group Accused of Supporting Hezbollah**\
+`The authorities also searched dozens of properties linked to the Islamic Center Hamburg, which has long faced accusations of being a front for the Iranian government.`\
+https://nytimes.com/2024/07/24/world/europe/germany-hamburg-islamist-ban-hezbollah.html
+
 **Max Verstappen's frustrated radio messages show the growing pressure at Red Bull**\
 `The reigning champion's vexation with Red Bull's performance signals how different 2024 is going for the once-dominant team.`\
 https://nytimes.com/athletic/5654287/2024/07/24/f1-max-verstappen-radio-messages-hungary-red-bull/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/24/crosswords/spelling-bee-forum.html
 **North Korean Trash Balloons Hit South Korean President’s Compound**\
 `Officials found nothing hazardous in the balloons’ payloads, as the North’s slow barrage of airborne garbage showed few signs of letting up.`\
 https://nytimes.com/2024/07/24/world/asia/north-korean-balloons-south-president.html
-
-**Deadly Blast Hits Tequila Factory in Mexico**\
-`Surveillance footage shows the moment of an explosion at a Jose Cuervo factory in Tequila, Mexico.`\
-https://nytimes.com/video/world/americas/100000009589265/explosion-jose-cuervo-tequila-factory-mexico.html
 
