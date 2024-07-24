@@ -1,3 +1,11 @@
+**Leeds' return to the 'smiley' badge on their new away kit: The treasure hunt and the history**\
+`Leeds have released their new yellow away kit, which also features a return to a fan favourite badge`\
+https://nytimes.com/athletic/5650533/2024/07/24/leeds-smiley-badge-away-kit/
+
+**18 People Killed After Small Plane Crashes in Nepal**\
+`The pilot of the Saurya Airlines flight, which was departing from Kathmandu, was the only survivor, officials said.`\
+https://nytimes.com/2024/07/24/world/asia/nepal-plane-crash-saurya.html
+
 **Late Night Breaks Down ‘Kamala Is Brat’**\
 `The Harris campaign’s embrace of the Gen Z term puzzled cable news analysts of a certain age, but Stephen Colbert was glad to clear things up.`\
 https://nytimes.com/2024/07/24/arts/television/late-night-kamala-brat.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/americas/100000009589265/explosion-jose-cuervo-t
 **Two dismal days in Oakland accentuate Astros' trade deadline needs**\
 `Any momentum gained during Houston's series win against Seattle melted away across 18 excruciating innings in Oakland.`\
 https://nytimes.com/athletic/5655048/2024/07/24/astros-trade-deadline-needs-oakland/
-
-**Word of the Day: exacting**\
-`This word has appeared in 265 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/07/24/learning/word-of-the-day-exacting.html
-
-**Typhoon Gaemi Heads for Taiwan With Category 4 Strength**\
-`The tropical cyclone was expected to make landfall on the island late Wednesday, a day after battering the Philippines with heavy rain.`\
-https://nytimes.com/2024/07/24/weather/typhoon-gaemi-taiwan-philippines.html
 
