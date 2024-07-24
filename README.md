@@ -1,3 +1,11 @@
+**What’s More Exciting Than a Veepstakes? A Surprise Veepstakes.**\
+`This year’s election had been a no-fun zone for Democrats. Suddenly, they have a new candidate, and can’t stop breathlessly speculating about her buffet of white-guy options for No. 2.`\
+https://nytimes.com/2024/07/24/us/politics/harris-vice-president-search.html
+
+**Harris Warns Black Women That Trump Is a Threat to Children and Families**\
+`Her speech was a clear effort to make the election a referendum on the former president.`\
+https://nytimes.com/2024/07/24/us/politics/harris-trump-black-women.html
+
 **Chelsea mutually terminate Sarr contract, defender agrees Lens move**\
 `Malang Sarr has agreed terms with Lens after Chelsea released him with a year left on his contract.`\
 https://nytimes.com/athletic/5645583/2024/07/24/malang-sarr-chelsea-transfer-lens/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5656037/2024/07/24/tom-thibodeau-knicks-contract-ex
 **Arsenal poaching analyst Darren Rogerson from Manchester City**\
 `Manchester City’s elite development squad analyst Darren Rogerson is leaving the club to join Arsenal’s first team.`\
 https://nytimes.com/athletic/5655119/2024/07/24/darren-rogerson-arsenal-man-city/
-
-**Protesters mass on Capitol Hill to denounce Netanyahu speech to Congress.**\
-`By Maya C. Miller, Robert Jimison and Luke Broadwater`\
-https://nytimes.com/live/2024/07/24/world/israel-gaza-war-hamas-netanyahu/protesters-mass-on-capitol-hill-to-denounce-netanyahu-speech-to-congress
-
-**‘Coup’ and ‘Cover-Up’: How the G.O.P. Is Reacting to the Harris Candidacy**\
-`Republican officials have largely treated President Biden’s decision to withdraw from the race with suspicion and scorn, a Times analysis found, with some calling the development a “coup” or demanding that Mr. Biden resign.`\
-https://nytimes.com/interactive/2024/07/24/us/politics/harris-biden-republican-reactions.html
 
