@@ -1,3 +1,11 @@
+**Gavin Newsom recalls getting the Biden news and says Harris is ‘lighting it up.’**\
+`By Shawn Hubler`\
+https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/gavin-newsom-recalls-getting-the-biden-news-and-says-harris-is-lighting-it-up
+
+**Tesla and Alphabet Earnings Prompt Big Tech Stock Decline**\
+`Disappointing earnings reports from the tech giants dragged the Nasdaq composite down 2.9 percent, amid a shift by investors to stocks of smaller companies.`\
+https://nytimes.com/2024/07/24/business/tesla-alphabet-stock-earnings.html
+
 **How Kamala Harris Took Command of the Democratic Party in 48 Hours**\
 `She worked the phones. Her team worked the delegates. When it was over, she had quickly locked down the nomination in a “well-orchestrated cascade,” as one party leader put it.`\
 https://nytimes.com/2024/07/24/us/politics/kamala-harris-democrats-nomination.html
