@@ -1,3 +1,7 @@
+**Where Do Harris’s Potential Running Mates Stand on Climate?**\
+`Possible contenders to join the Harris ticket include three governors who welcome clean energy and a senator concerned by extreme heat and drought.`\
+https://nytimes.com/2024/07/24/climate/harris-veepstakes-climate.html
+
 **NiJaree Canady, softball’s player of the year, commits to Texas Tech with $1M NIL deal: Source**\
 `Stanford softball ace NiJaree Canady announced Wednesday she is transferring to Texas Tech after a wave of programs competed to land the USA Softball Player of the Year in the month since she entered the transfer portal.`\
 https://nytimes.com/athletic/5656382/2024/07/24/nijaree-canady-softball-texas-tech-1m-nil-deal/
