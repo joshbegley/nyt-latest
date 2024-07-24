@@ -1,3 +1,11 @@
+**F.B.I. Searches $3.5 Million Home of Former Aide to Gov. Hochul**\
+`The early-morning raid took place on Long Island’s North Shore at the house of Ms. Hochul’s former deputy chief of staff, Linda Sun.`\
+https://nytimes.com/2024/07/23/nyregion/fbi-raid-linda-sun.html
+
+**Reds are shopping their relievers — but they're not selling**\
+`The Reds have a reliever logjam and could look to move some who are on expiring contracts.`\
+https://nytimes.com/athletic/5654659/2024/07/23/reds-relievers-trade-deadline-direction/
+
 **Who Will Replace Robert Menendez in the Senate?**\
 `Senator Robert Menendez of New Jersey announced that he would resign in August. Gov. Philip D. Murphy will choose someone to serve the remainder of his term.`\
 https://nytimes.com/2024/07/23/nyregion/robert-menendez-senate-replacement.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5654349/2024/07/23/billy-napier-jaden-rashada-lawsu
 **Vikings tackle Christian Darrisaw signs massive extension worth up to $113M**\
 `The 25-year-old's deal, which includes $77 million guaranteed, lifts him to the top of NFL left tackles in terms of average annual value.`\
 https://nytimes.com/athletic/5654377/2024/07/23/vikings-christian-darrisaw-extension/
-
-**Rams QB Matthew Stafford's deal gets done — for many reasons**\
-`Reworking Stafford's contract is, of course, good for the quarterback, but it's also good for the rest of the team.`\
-https://nytimes.com/athletic/5654081/2024/07/23/rams-matthew-stafford-contract-quarterback/
-
-**Proposed Charter Revision Hints at Mayor Adams’s Spat With City Council**\
-`New York City voters will most likely be confronted in November with a referendum that may dilute the City Council’s power on public safety issues.`\
-https://nytimes.com/2024/07/23/nyregion/charter-revision-adams-council.html
 
