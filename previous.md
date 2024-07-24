@@ -1,3 +1,15 @@
+**For Too Many Kids, Books Are Uncool and Unread**\
+`It’s hard to develop a reading habit when you have no time to open a book.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/childrens-books-reading-decline
+
+**49ers training camp: Brock Purdy added pounds — and zip — in the offseason**\
+`The 49ers didn't fare too well at left tackle Wednesday with Trent Williams holding out. The full report from Day 1 of training camp ...`\
+https://nytimes.com/athletic/5656757/2024/07/24/49ers-training-camp-brock-purdy-weight/
+
+**Five Twins takeaways: David Festa wows, Byron Buxton not injured, pending returns and more**\
+`Festa put out some fires Wednesday and impressed in doing so. Buxton came away unscathed from a HBP. And other notes.`\
+https://nytimes.com/athletic/5656819/2024/07/24/twins-takeaways-david-festa-phillies-byron-buxton/
+
 **Cardinals' disappointing series highlights roster needs ahead of trade deadline**\
 `Multiple industry sources believe the Cardinals are focusing on pitching, both starting and relief.`\
 https://nytimes.com/athletic/5655981/2024/07/24/cardinals-trade-deadline-pitching/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/24/us/elections/harris-trump-polling.html
 **Man Who Broke Into Los Angeles Mayor’s Home Is Sentenced to Drug Treatment**\
 `A 29-year-old intruder who smashed a glass door to enter Mayor Karen Bass’s official residence pleaded no contest to a vandalism charge.`\
 https://nytimes.com/2024/07/24/us/karen-bass-intruder-sentenced.html
-
-**Netanyahu Defended Israel’s War Effort to Congress**\
-`Also, the secret battle for the future of the Murdoch empire. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/07/24/briefing/netanyahu-defended-israels-war-effort-to-congress.html
-
-**MLB will redirect luxury tax dollars to help teams losing TV money**\
-`MLB and the Players Association agreed to send luxury tax money to help teams losing revenue amidst ongoing media landscape disruption. `\
-https://nytimes.com/athletic/5656610/2024/07/24/mlb-luxury-tax-tv-money/
-
-**Packers training camp: Time to buy back in on Eric Stokes at cornerback?**\
-`The 2021 first-round pick was the star of the day on Wednesday, perhaps a sign of things to come if he finally stays healthy.`\
-https://nytimes.com/athletic/5656327/2024/07/24/packers-training-camp-eric-stokes/
 
