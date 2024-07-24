@@ -1,3 +1,7 @@
+**Lamb not expected to report to Cowboys' camp amid contract talks**\
+`Lamb is entering the last year of a deal scheduled to pay him $17.99 million this season.`\
+https://nytimes.com/athletic/5654669/2024/07/23/ceedee-lamb-holdout-dallas-cowboys-training-camp/
+
 **F.B.I. Searches $3.5 Million Home of Former Aide to Gov. Hochul**\
 `The early-morning raid took place on Long Island’s North Shore at the house of Ms. Hochul’s former deputy chief of staff, Linda Sun.`\
 https://nytimes.com/2024/07/23/nyregion/fbi-raid-linda-sun.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5654125/2024/07/23/george-kittle-49ers-training-cam
 **Florida coach Napier asks court to dismiss Rashada lawsuit**\
 `Rashada's lawsuit alleges the defendants made “false and fraudulent promises” to induce Rashada to sign with the program in 2022.`\
 https://nytimes.com/athletic/5654349/2024/07/23/billy-napier-jaden-rashada-lawsuit/
-
-**Vikings tackle Christian Darrisaw signs massive extension worth up to $113M**\
-`The 25-year-old's deal, which includes $77 million guaranteed, lifts him to the top of NFL left tackles in terms of average annual value.`\
-https://nytimes.com/athletic/5654377/2024/07/23/vikings-christian-darrisaw-extension/
 

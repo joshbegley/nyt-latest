@@ -1,3 +1,7 @@
+**Reds are shopping their relievers — but they're not selling yet**\
+`The Reds have a reliever logjam and could look to move some who are on expiring contracts.`\
+https://nytimes.com/athletic/5654659/2024/07/23/reds-relievers-trade-deadline-direction/
+
 **F.B.I. Searches $3.5 Million Home of Former Aide to Gov. Hochul**\
 `The early-morning raid took place on Long Island’s North Shore at the house of Ms. Hochul’s former deputy chief of staff, Linda Sun.`\
 https://nytimes.com/2024/07/23/nyregion/fbi-raid-linda-sun.html
