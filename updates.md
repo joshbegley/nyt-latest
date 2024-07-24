@@ -1,3 +1,11 @@
+**Jhoan Duran doesn't concern Twins even after late struggles in loss to Phillies**\
+`Two walks issued by Duran led to the Phillies’ scoring three runs and holding off the Twins 3-0. Rocco Baldelli considers it a one-off.`\
+https://nytimes.com/athletic/5654943/2024/07/24/twins-loss-phillies-jhoan-duran/
+
+**Palace need to replace Olise - is Sarr the answer?**\
+`Winger's departure has left a void in the squad, but Marseille forward has qualities which would suit Palace well`\
+https://nytimes.com/athletic/5643672/2024/07/24/crystal-palace-ismaila-sarr-michael-olise/
+
 **Eddie Howe, 'alignment' and the end of Newcastle's era of intimacy**\
 `So much change means they automatically become a less personal, less intimate club. It does not make it worse, but does make it different`\
 https://nytimes.com/athletic/5652769/2024/07/24/newcastle-eddie-howe-structure/
