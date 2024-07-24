@@ -1,3 +1,11 @@
+**'Indispensable' Yamal is Barca's great hope - they need him more than ever**\
+`Yamal was the star of this summer's European Championship and his emergence couldn't have come at a better time for Barca`\
+https://nytimes.com/athletic/5653311/2024/07/24/lamine-yamal-barcelona-spain-euros/
+
+**2024 Paris Olympics tickets: How much they cost, what's available, and how to resell**\
+`Everything you need to know about tickets for Paris 2024`\
+https://nytimes.com/athletic/5638683/2024/07/24/paris-2024-olympics-tickets-explainer/
+
 **2024 Paris Olympics - 10 footballers to keep an eye on during the Games**\
 `The Olympic football tournament is a proving ground for future international stars - so here are some to monitor over the next few weeks`\
 https://nytimes.com/athletic/5652803/2024/07/24/paris-olympics-footballers-to-watch/
