@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5653516/2024/07/24/fantasy-football-scott-fish-bowl-14-draft-review/
 
 **Why isn’t Cubs manager Craig Counsell worried about a trade deadline sell-off?**\
-`Chicago's roster likely won’t look much different on July 31. And, Counsell said: "... for us, it’s go out there and compete.”`\
+`Chicago's roster likely won’t look much different July 31. And, Counsell said: "For us, it’s go out there and compete.”`\
 https://nytimes.com/athletic/5654913/2024/07/24/cubs-craig-counsell-trade-deadline/
 
 **Yankees' surprising lineup moves can't force Mets to pitch to Aaron Judge**\
