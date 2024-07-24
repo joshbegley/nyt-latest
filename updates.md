@@ -1,3 +1,7 @@
+**What’s in Our Queue? ‘Rectify’ and More**\
+`I am a photographer, and I primarily cover the military, Congress and the White House. Here are a few favorites.`\
+https://nytimes.com/interactive/2024/07/24/arts/editors-recommendations-rectify.html
+
 **H​ow Long Will A.I.’s ‘Slop’ Era Last?**\
 `Consumer-facing A.I. has become a nuisance. But the big breakthroughs may be on the horizon.`\
 https://nytimes.com/2024/07/24/opinion/ai-annoying-future.html
