@@ -1,3 +1,11 @@
+**2024 Paris Olympics - 10 footballers to keep an eye on during the Games**\
+`The Olympic football tournament is a proving ground for future international stars - so here are some to monitor over the next few weeks`\
+https://nytimes.com/athletic/5652803/2024/07/24/paris-olympics-footballers-to-watch/
+
+**'Bleak', 'Gutting', 'Disastrous': What was your Premier League club's worst transfer window and why?**\
+`When transfer spending sprees go wrong - featuring Jamie O'Hara, Paul Konchesky and Guido Carrillo, among others`\
+https://nytimes.com/athletic/5629456/2024/07/24/premier-league-worst-transfer-window/
+
 **Netanyahu to Address a Congress Deeply Divided Over His Leadership**\
 `A boycott by some Democrats of the Israeli prime minister’s speech will highlight the deep anger within the party’s base about his conduct of the war against Hamas.`\
 https://nytimes.com/2024/07/24/us/politics/netanyahu-congress-democrats.html
