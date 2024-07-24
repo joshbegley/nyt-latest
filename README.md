@@ -1,3 +1,7 @@
+**Small Plane Crashes While Taking Off in Nepal, Killing 18**\
+`The pilot of the Saurya Airlines flight, which was departing from Kathmandu, was the only survivor, officials said.`\
+https://nytimes.com/2024/07/24/world/asia/nepal-plane-crash-saurya.html
+
 **Late Night Breaks Down ‘Kamala Is Brat’**\
 `The Harris campaign’s embrace of the Gen Z term puzzled cable news analysts of a certain age, but Stephen Colbert was glad to clear things up.`\
 https://nytimes.com/2024/07/24/arts/television/late-night-kamala-brat.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5655048/2024/07/24/astros-trade-deadline-needs-oakl
 **Word of the Day: exacting**\
 `This word has appeared in 265 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/07/24/learning/word-of-the-day-exacting.html
-
-**Typhoon Gaemi Heads for Taiwan With Category 4 Strength**\
-`The tropical cyclone was expected to make landfall on the island late Wednesday, a day after battering the Philippines with heavy rain.`\
-https://nytimes.com/2024/07/24/weather/typhoon-gaemi-taiwan-philippines.html
 
