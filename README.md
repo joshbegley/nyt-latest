@@ -1,3 +1,7 @@
+**Chelsea close to agreeing personal terms with Villarreal goalkeeper Jorgensen**\
+`Chelsea are close to agreeing personal terms with Villarreal goalkeeper Filip Jorgensen, with the player preferring a move to Stamford Bridge over Marseille.`\
+https://nytimes.com/athletic/5655132/2024/07/24/chelsea-filip-jorgensen-transfer/
+
 **Video Captures Plane Crashing After Takeoff in Nepal**\
 `A small Saurya Airlines plane crashed shortly after taking off from Tribhuvan International Airport in Kathmandu on Wednesday, killing 18 passengers on board. The pilot was the only survivor.`\
 https://nytimes.com/video/world/asia/100000009589437/nepal-plane-crash.html
@@ -21,10 +25,6 @@ https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/heres-the-lat
 **Rays' Taylor Walls says gesture wasn't meant as Trump endorsement**\
 `Walls said Tuesday the gesture was "kind of more of a joke that we have with guys in the locker room," according to the Associated Press.`\
 https://nytimes.com/athletic/5654852/2024/07/24/taylor-walls-trump-gesture-comments/
-
-**MLB trade deadline comps: What history says about how 2024 teams will buy or sell**\
-`What did bubble teams end up doing at the deadline in recent years, and what can we learn about this year’s deadline from that history?`\
-https://nytimes.com/athletic/5654770/2024/07/24/mlb-trade-deadline-historical-comps-buyers-sellers/
 
 **Coco Gauff to be flag bearer for Team USA at Paris Olympics**\
 `Coco Gauff will become the first tennis player in history to act as Team USA flag bearer when she joins LeBron James at the opening ceremony for the 2024 Paris Olympics.`\
