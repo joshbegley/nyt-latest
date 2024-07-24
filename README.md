@@ -1,6 +1,10 @@
+**'A lot of guys with a lot to prove': Commanders open training camp with up-tempo vibe**\
+`On Day 1, Washington's primary focus was on red zone work. Plus, rookie DT Johnny Newton was activated off the non-football injury list. `\
+https://nytimes.com/athletic/5656478/2024/07/24/commanders-training-camp-jayden-daniels/
+
 **Biden Dropped Out 3 Days Ago. Ready or Not, Here Come the Polls.**\
 `Some pollsters were already in the field when news of his withdrawal broke; others scrambled to conduct quick surveys.`\
-https://nytimes.com/2024/07/24/us/elections/biden-dropped-out-3-days-ago-ready-or-not-here-come-the-polls.html
+https://nytimes.com/2024/07/24/us/elections/harris-trump-polling.html
 
 **Man Who Broke Into Los Angeles Mayor’s Home Is Sentenced to Drug Treatment**\
 `A 29-year-old intruder who smashed a glass door to enter Mayor Karen Bass’s official residence pleaded no contest to a vandalism charge.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5652608/2024/07/24/moussa-diaby-al-ittihad-transfer
 **Thousands Protest Netanyahu’s Address to Congress**\
 `Prime Minister Benjamin Netanyahu of Israel forcefully defended Israel’s military campaign in Gaza during his address to a joint meeting of Congress on Wednesday.`\
 https://nytimes.com/video/us/politics/100000009590962/netanyahu-congress-protest.html
-
-**A Hit-Parade Speech by Netanyahu Was Largely for Show**\
-`Many in the congressional audience clearly didn’t want him there.`\
-https://nytimes.com/live/2024/07/22/opinion/thepoint/netanyahu-speech-congress
 

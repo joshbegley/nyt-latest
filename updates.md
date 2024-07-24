@@ -1,3 +1,7 @@
+**MLB will redirect luxury tax dollars to help teams losing TV money**\
+`MLB and the Players Association agreed to send luxury tax money to help teams losing revenue amidst ongoing media landscape disruption. `\
+https://nytimes.com/athletic/5656610/2024/07/24/mlb-luxury-tax-tv-money/
+
 **Biden Dropped Out 3 Days Ago. Ready or Not, Here Come the Polls.**\
 `Some pollsters were already in the field when news of his withdrawal broke; others scrambled to conduct quick surveys.`\
 https://nytimes.com/2024/07/24/us/elections/biden-dropped-out-3-days-ago-ready-or-not-here-come-the-polls.html
