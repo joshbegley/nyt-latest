@@ -1,3 +1,7 @@
+**Fulham close to agreement with Arsenal for Smith Rowe**\
+`Fulham are close to reaching an agreement with Arsenal to sign midfielder Emile Smith Rowe.`\
+https://nytimes.com/athletic/5655192/2024/07/24/emile-smith-rowe-transfer-fulham/
+
 **Brewers' Yelich may need season-ending surgery**\
 `Yelich will undergo an exam Thursday in Milwaukee that will determine the course of treatment for a recurring lower back condition.`\
 https://nytimes.com/athletic/5656815/2024/07/24/christian-yelich-brewers-back-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/24/style/and-just-like-that-fake-film-notices.html
 **Sunday Night Basketball on NBC — part of new NBA media rights deal — could be a hit**\
 `NBC plans on Mike Tirico being the “A” voice on the network's NBA games.`\
 https://nytimes.com/athletic/5656665/2024/07/24/nba-media-rights-deal-nbc-tv/
-
-**Tennessee Gas Station Clerk Stole $1 Million Lottery Ticket, Police Say**\
-`Meer Patel was working behind the counter when a man handed him the $1 million ticket. He hid the value from the buyer and tried to cash the ticket himself, the authorities said.`\
-https://nytimes.com/2024/07/24/us/tennessee-stolen-lottery-ticket.html
 
