@@ -1,3 +1,7 @@
+**Chelsea close to agreeing deal to sign Villarreal goalkeeper Filip Jorgensen**\
+`Chelsea are close to agreeing a deal to sign Villarreal goalkeeper Filip Jorgensen, with the player preferring a move to Stamford Bridge over Marseille.`\
+https://nytimes.com/athletic/5655132/2024/07/24/chelsea-filip-jorgensen-transfer/
+
 **Why Tesla Is Still Struggling**\
 `Sluggish car sales and a tough price war with rivals are weighing on Elon Musk’s electric vehicle company.`\
 https://nytimes.com/2024/07/24/business/dealbook/tesla-earnings-musk.html
