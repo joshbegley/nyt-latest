@@ -1,3 +1,27 @@
+**From Barcelona to Paris to Brooklyn, Jordi Fernández has grinded for his basketball life**\
+`In coaching Canada and the Brooklyn Nets, Jordi Fernández is tackling two very different challenges this year.`\
+https://nytimes.com/athletic/5646257/2024/07/24/canada-basketball-jordi-fernandez-olympcs/
+
+**'He has to become his own player': NBA fathers and sons relate to Bronny James scrutiny**\
+`The attention doesn't stop with Bronny. Bryce James, his younger brother, drew large crowds at the recent Peach Jam recruiting event.`\
+https://nytimes.com/athletic/5654184/2024/07/24/lebron-james-bronny-nba-la-lakers/
+
+**In a New Docuseries, Pete Rose Hustles for Redemption**\
+`“Charlie Hustle & the Matter of Pete Rose” examines the contradictions of one of the best (and most complicated) players in baseball history.`\
+https://nytimes.com/2024/07/24/arts/pete-rose-gambling-documentary.html
+
+**Black Voters Feel Excited, and Worried, about a Kamala Harris Campaign**\
+`In interviews around the country, Black voters voiced enthusiasm for the reshaped campaign. They also worried about how a polarized country would see it.`\
+https://nytimes.com/2024/07/24/us/kamala-harris-black-voters.html
+
+**If A.I. Is Coming for Comedy Writers, Simon Rich Is Ready**\
+`The author of humorous short stories finds emotional connections in tales that engage with tech. But he’s more interested in the ties between humans.`\
+https://nytimes.com/2024/07/24/arts/television/simon-rich-saturday-night-live-glory-days.html
+
+**The ‘Iron Lady’ of Venezuela Threatens to Unseat Its Autocrat**\
+`Spurned by the country’s authoritarian president and even her own colleagues in the opposition, María Corina Machado has built the most significant voter mobilization since Hugo Chávez.`\
+https://nytimes.com/2024/07/24/world/americas/venezuela-election-opposition-machado.html
+
 **New York’s Secret Signatures**\
 `Across New York City, people have written their names in places that only a select few ever get to see.`\
 https://nytimes.com/2024/07/24/nyregion/new-yorks-secret-signatures.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/07/24/upshot/kamala-harris-trump-polls.html
 **Can a Political Spectacle Make a Horror More Real?**\
 `With Netanyahu’s visit, Congress can’t ignore its role in Gaza’s carnage.`\
 https://nytimes.com/2024/07/24/opinion/benjamin-netanyahu-congress-gaza.html
-
-**There Is an Antidote to Political Violence**\
-`When political violence is on the rise, accountability at all levels of society is the only way to stop it.`\
-https://nytimes.com/2024/07/24/opinion/secret-service-trump-assassination-attempt.html
-
-**A Bistro Boom, Lesser-Known Museums, Sesame Croissants: What to Do, Eat, See in Paris**\
-`Heading to France’s capital for the Olympics, or after the crowds have thinned? A travel editor picks some recent Paris stories to help plan your trip.`\
-https://nytimes.com/2024/07/24/travel/paris-museums-bakeries-petit-palais.html
-
-**Nancy Pelosi and the Art of Nudging Out Presidents**\
-`It is strangely gratifying that the most ruthless political operator in the country is also a woman.`\
-https://nytimes.com/2024/07/24/opinion/nancy-pelosi-joe-biden.html
-
-**If You’re Worried Kamala Harris Can’t Win, Listen to This**\
-`I profiled her in 2019. Here’s why 2024 is her year.`\
-https://nytimes.com/2024/07/24/opinion/kamala-harris-background.html
-
-**Fashion’s Fake News Epidemic**\
-`Between designer-less brands and rampant gossip, fashion is having a meltdown. And it’s not because of the heat.`\
-https://nytimes.com/2024/07/24/style/tom-ford-john-galliano-dior-chanel-fashion-chaos.html
-
-**A Kamala Harris Presidency Could Mean More of the Same on A.I. Regulation**\
-`The presumptive Democratic nominee has won concessions from Big Tech leaders on A.I., but she hasn’t successfully pushed Congress to regulate.`\
-https://nytimes.com/2024/07/24/technology/kamala-harris-ai-regulation.html
 
