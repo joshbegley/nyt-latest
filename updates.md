@@ -1,3 +1,7 @@
+**Toumani Diabaté, Malian Master of the Kora, Is Dead at 58**\
+`He believed that music could transcend national borders set by colonialism and restore ancient ties, even as it embraced the changes of a globalizing society.`\
+https://nytimes.com/2024/07/24/arts/music/toumani-diabate-dead.html
+
 **Chargers training camp: Quentin Johnston's strong start, Cam Hart makes play of the day**\
 `Jim Harbaugh on the first day of Chargers training camp: “It feels like being born. It feels like coming out of the womb."`\
 https://nytimes.com/athletic/5656871/2024/07/24/chargers-training-camp-quentin-johnston-cam-hart/
