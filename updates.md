@@ -1,3 +1,11 @@
+**Arsenal poach analyst Darren Rogerson from Manchester City**\
+`Manchester City’s elite development squad analyst Darren Rogerson has left the club to join Arsenal’s first team.`\
+https://nytimes.com/athletic/5655119/2024/07/24/darren-rogerson-arsenal-man-city/
+
+**Protesters mass on Capitol Hill to denounce Netanyahu speech to Congress.**\
+`By Maya C. Miller, Robert Jimison and Luke Broadwater`\
+https://nytimes.com/live/2024/07/24/world/israel-gaza-war-hamas-netanyahu/protesters-mass-on-capitol-hill-to-denounce-netanyahu-speech-to-congress
+
 **‘Coup’ and ‘Cover-Up’: How the G.O.P. Is Reacting to the Harris Candidacy**\
 `Republican officials have largely treated President Biden’s decision to withdraw from the race with suspicion and scorn, a Times analysis found, with some calling the development a “coup” or demanding that Mr. Biden resign.`\
 https://nytimes.com/interactive/2024/07/24/us/politics/harris-biden-republican-reactions.html

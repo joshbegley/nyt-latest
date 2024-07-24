@@ -1,3 +1,11 @@
+**Arsenal poach analyst Darren Rogerson from Manchester City**\
+`Manchester City’s elite development squad analyst Darren Rogerson has left the club to join Arsenal’s first team.`\
+https://nytimes.com/athletic/5655119/2024/07/24/darren-rogerson-arsenal-man-city/
+
+**Protesters mass on Capitol Hill to denounce Netanyahu speech to Congress.**\
+`By Maya C. Miller, Robert Jimison and Luke Broadwater`\
+https://nytimes.com/live/2024/07/24/world/israel-gaza-war-hamas-netanyahu/protesters-mass-on-capitol-hill-to-denounce-netanyahu-speech-to-congress
+
 **‘Coup’ and ‘Cover-Up’: How the G.O.P. Is Reacting to the Harris Candidacy**\
 `Republican officials have largely treated President Biden’s decision to withdraw from the race with suspicion and scorn, a Times analysis found, with some calling the development a “coup” or demanding that Mr. Biden resign.`\
 https://nytimes.com/interactive/2024/07/24/us/politics/harris-biden-republican-reactions.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/07/24/world/olympics/paris-olympics-speeds-
 **At the Biggest Fish Market in the U.S., 3 A.M. Is Prime Time**\
 `New York’s Fulton Fish Market, which supplies the city with nearly half its seafood, is run by third-, fourth-, even sixth-generation fishmongers.`\
 https://nytimes.com/2024/07/24/t-magazine/fulton-fish-market-ny.html
-
-**They Were Hotshot Real Estate Agents. Some Women Say They Were Predators.**\
-`Tal and Oren Alexander, who had lifestyles as flashy as their real estate deals, are now accused of a string of sexual assaults.`\
-https://nytimes.com/2024/07/24/realestate/tal-oren-alexander-sexual-assault.html
-
-**Pat McAfee will return to ESPN's 'College GameDay' for 2024 season**\
-`McAfee said late last year that he would return to the program but entered the summer without a deal signed.`\
-https://nytimes.com/athletic/5655893/2024/07/24/pat-mcafee-college-gameday-espn/
 
