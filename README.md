@@ -1,3 +1,7 @@
+**Book Prompts Investigation Into Nashville’s Unsolved Civil Rights-Era Bombings**\
+`The mayor of Nashville, Freddie O’Connell, asked the police to investigate three bombings after a book said that the attacks were tied to racist terrorism.`\
+https://nytimes.com/2024/07/24/us/nashville-civil-rights-bombings.html
+
 **Scoop City: Early training camp learnings**\
 `Takeaways from the early portion of training camp, including haircuts, holdouts and contracts.`\
 https://nytimes.com/athletic/5655901/2024/07/24/training-camp-learnings-scoop-city/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/24/theater/broadwaycon-mental-health-panels.html
 **New York Bans Active Shooter Drills That Use Props and Actors in Schools**\
 `The state is adding restrictions meant to make lockdown drills less scary for children, and will also require schools to notify parents about the exercises ahead of time.`\
 https://nytimes.com/2024/07/24/nyregion/school-lockdown-drills.html
-
-**Lincoln Center’s Audiences Deserve Music Worthy of Them**\
-`When listeners were given the power to program an orchestral concert, the results were surprising.`\
-https://nytimes.com/2024/07/24/arts/music/festival-orchestra-of-lincoln-center.html
 

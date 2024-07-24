@@ -1,3 +1,7 @@
+**Scoop City: Early training camp learnings**\
+`Takeaways from the early portion of training camp, including haircuts, holdouts and contracts.`\
+https://nytimes.com/athletic/5655901/2024/07/24/training-camp-learnings-scoop-city/
+
 **Dancers call off Olympics opening ceremony strike threat**\
 `Attention on the dancers' protests reached a boiling point Monday when more than 200 dancers refused to continue rehearsing.`\
 https://nytimes.com/athletic/5655668/2024/07/24/opening-ceremony-strike-threat-dancers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/24/nyregion/school-lockdown-drills.html
 **Lincoln Center’s Audiences Deserve Music Worthy of Them**\
 `When listeners were given the power to program an orchestral concert, the results were surprising.`\
 https://nytimes.com/2024/07/24/arts/music/festival-orchestra-of-lincoln-center.html
-
-**My Relative Isn’t Trans or Nonbinary But Wants to Use ‘They/Them’ Pronouns.**\
-`The magazine’s Ethicist columnist on allyship and forms of solidarity.`\
-https://nytimes.com/2024/07/24/magazine/relative-pronouns-allyship-ethics.html
 

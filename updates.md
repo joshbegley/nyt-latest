@@ -1,3 +1,7 @@
+**Scoop City: Early training camp learnings**\
+`Takeaways from the early portion of training camp, including haircuts, holdouts and contracts.`\
+https://nytimes.com/athletic/5655901/2024/07/24/training-camp-learnings-scoop-city/
+
 **Dancers call off Olympics opening ceremony strike threat**\
 `Attention on the dancers' protests reached a boiling point Monday when more than 200 dancers refused to continue rehearsing.`\
 https://nytimes.com/athletic/5655668/2024/07/24/opening-ceremony-strike-threat-dancers/
