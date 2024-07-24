@@ -1,3 +1,7 @@
+**New Zealand's Ali Riley ruled out of Paris Olympics**\
+`New Zealand&#8217;s Ali Riley has been ruled out of the women&#8217;s soccer tournament at the Paris Olympics.`\
+https://nytimes.com/athletic/5655203/2024/07/24/ali-riley-new-zealand-olympics/
+
 **Salt Lake City gets 2034 Winter Olympics, 2030 to French Alps: Why now, and what it means**\
 `As options for Winter Olympics hosts dwindle, the IOC on Wednesday awarded the 2030 and 2034 Games to familiar places.`\
 https://nytimes.com/athletic/5654824/2024/07/24/salt-lake-city-2034-olympics-french-alps-2030/
