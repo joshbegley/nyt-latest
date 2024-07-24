@@ -1,3 +1,11 @@
+**Lincoln Center’s Audiences Deserve Music Worthy of Them**\
+`When listeners were given the power to program an orchestral concert, the results were surprising.`\
+https://nytimes.com/2024/07/24/arts/music/festival-orchestra-of-lincoln-center.html
+
+**My Relative Isn’t Trans or Nonbinary But Wants to Use ‘They/Them’ Pronouns.**\
+`The magazine’s Ethicist columnist on allyship and forms of solidarity.`\
+https://nytimes.com/2024/07/24/magazine/relative-pronouns-allyship-ethics.html
+
 **Dancers Drop Threat to Strike During Paris Olympics Opening Ceremony**\
 `Organizers avoided disruption by agreeing to give performers on temporary contracts a greater cut of broadcast royalties.`\
 https://nytimes.com/2024/07/24/arts/dance/olympic-dancers-strike-opening-ceremony.html
@@ -11,7 +19,7 @@ https://nytimes.com/2024/07/24/science/fossil-mammal-jurassic-age.html
 https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/march-for-our-lives-the-gun-violence-prevention-group-endorses-harris
 
 **Rosa Ross, Late-Blooming Author of Asian Cookbooks, Dies at 86**\
-`She was, she said, unable to cook a basic meal into her mid-20s. But she went on to a successful career as restaurateur and an authority on Asian cuisine.`\
+`She was, she said, unable to cook a basic meal into her mid-20s. But she went on to a successful career as a restaurateur and an authority on Asian cuisine.`\
 https://nytimes.com/2024/07/24/dining/rosa-ross-dead.html
 
 **Man Utd tour squad: Sancho included but Malacia misses out**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/24/dining/a-choose-your-adventure-summer-pantry-past
 **A Rarely Seen David Bowie Rom-Com Gets a New Life**\
 `“The Linguini Incident,” a low-budget ’90s film directed by Richard Shepard and featuring Bowie and Rosanna Arquette, makes its way to Blu-ray in a director’s cut.`\
 https://nytimes.com/2024/07/24/movies/david-bowie-movie-linguini-incident.html
-
-**As doping scandal hovers over Olympics' start, U.S. swim team calls for fairness**\
-`With swimming still reckoning with a doping scandal involving Chinese swimmers, Katie Ledecky and others on Team USA called for change.`\
-https://nytimes.com/athletic/5655645/2024/07/24/olympics-swimming-chinese-doping-scandal/
-
-**Should the Orioles trade top prospect Jackson Holliday?**\
-`The Orioles may move some of their best prospects to upgrade their pitching. But it's hard to imagine that would include Jackson Holliday.`\
-https://nytimes.com/athletic/5655534/2024/07/24/orioles-trade-deadline-jackson-holliday/
 

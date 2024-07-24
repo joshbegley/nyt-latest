@@ -1,3 +1,15 @@
+**Lincoln Center’s Audiences Deserve Music Worthy of Them**\
+`When listeners were given the power to program an orchestral concert, the results were surprising.`\
+https://nytimes.com/2024/07/24/arts/music/festival-orchestra-of-lincoln-center.html
+
+**My Relative Isn’t Trans or Nonbinary But Wants to Use ‘They/Them’ Pronouns.**\
+`The magazine’s Ethicist columnist on allyship and forms of solidarity.`\
+https://nytimes.com/2024/07/24/magazine/relative-pronouns-allyship-ethics.html
+
+**Rosa Ross, Late-Blooming Author of Asian Cookbooks, Dies at 86**\
+`She was, she said, unable to cook a basic meal into her mid-20s. But she went on to a successful career as a restaurateur and an authority on Asian cuisine.`\
+https://nytimes.com/2024/07/24/dining/rosa-ross-dead.html
+
 **Dancers Drop Threat to Strike During Paris Olympics Opening Ceremony**\
 `Organizers avoided disruption by agreeing to give performers on temporary contracts a greater cut of broadcast royalties.`\
 https://nytimes.com/2024/07/24/arts/dance/olympic-dancers-strike-opening-ceremony.html
