@@ -1,4 +1,4 @@
-**Aston Villa's Moussa Diaby joins Al Ittihad**\
+**Diaby completes Al Ittihad move from Aston Villa**\
 `Aston Villa forward Moussa Diaby has joined Al Ittihad in a permanent transfer.`\
 https://nytimes.com/athletic/5652608/2024/07/24/moussa-diaby-al-ittihad-transfer/
 
