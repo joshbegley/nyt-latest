@@ -1,5 +1,17 @@
-**Watchdog Attributes Reduced Sentencing in Stone Case to Poor Leadership**\
-`The reduction of Roger Stone’s sentence in a 2019 case related to the Trump-Russia investigation incited accusations of political interference at the time.`\
+**Chargers training camp: Quentin Johnston's strong start, Cam Hart makes play of the day**\
+`Jim Harbaugh on the first day of Chargers training camp: “It feels like being born. It feels like coming out of the womb."`\
+https://nytimes.com/athletic/5656871/2024/07/24/chargers-training-camp-quentin-johnston-cam-hart/
+
+**In Memory of My Husband, Dan**\
+`One of the great joys of a long marriage is how the personal and pragmatic moosh together.`\
+https://nytimes.com/2024/07/24/opinion/dan-collins-gail-obit-marriage.html
+
+**Democrats, All of Them, Must Protect Harris**\
+`MAGA won’t be content to beat the vice president. It’ll try to destroy her.`\
+https://nytimes.com/2024/07/24/opinion/kamala-harris-maga.html
+
+**Watchdog Finds No Evidence of Political Interference in Stone Sentencing**\
+`The Justice Department’s in-house watchdog released its report on the reduction of Roger Stone’s sentence in a 2019 case related to the Trump-Russia investigation.`\
 https://nytimes.com/2024/07/24/us/politics/doj-watchdog-roger-stone-sentencing.html
 
 **10 Injured at Kennedy Airport After Smoke Spreads in Terminal**\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/24/us/politics/kamala-harris-falsehoods-political-po
 **For Too Many Kids, Books Are Uncool and Unread**\
 `It’s hard to develop a reading habit when you have no time to open a book.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/childrens-books-reading-decline
-
-**49ers training camp: Brock Purdy added pounds — and zip — in the offseason**\
-`The 49ers didn't fare too well at left tackle Wednesday with Trent Williams holding out. Here's the full report from Day 1 of training camp.`\
-https://nytimes.com/athletic/5656757/2024/07/24/49ers-training-camp-brock-purdy-weight/
-
-**Five Twins takeaways: David Festa wows, Byron Buxton not injured, pending returns and more**\
-`Festa put out some fires Wednesday and impressed in doing so. Buxton came away unscathed from a HBP. And other notes.`\
-https://nytimes.com/athletic/5656819/2024/07/24/twins-takeaways-david-festa-phillies-byron-buxton/
-
-**Cardinals' disappointing series highlights roster needs ahead of trade deadline**\
-`Multiple industry sources believe the Cardinals are focusing on pitching, both starting and relief.`\
-https://nytimes.com/athletic/5655981/2024/07/24/cardinals-trade-deadline-pitching/
 

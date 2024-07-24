@@ -1,3 +1,19 @@
+**Chargers training camp: Quentin Johnston's strong start, Cam Hart makes play of the day**\
+`Jim Harbaugh on the first day of Chargers training camp: “It feels like being born. It feels like coming out of the womb."`\
+https://nytimes.com/athletic/5656871/2024/07/24/chargers-training-camp-quentin-johnston-cam-hart/
+
+**In Memory of My Husband, Dan**\
+`One of the great joys of a long marriage is how the personal and pragmatic moosh together.`\
+https://nytimes.com/2024/07/24/opinion/dan-collins-gail-obit-marriage.html
+
+**Democrats, All of Them, Must Protect Harris**\
+`MAGA won’t be content to beat the vice president. It’ll try to destroy her.`\
+https://nytimes.com/2024/07/24/opinion/kamala-harris-maga.html
+
+**Watchdog Finds No Evidence of Political Interference in Stone Sentencing**\
+`The Justice Department’s in-house watchdog released its report on the reduction of Roger Stone’s sentence in a 2019 case related to the Trump-Russia investigation.`\
+https://nytimes.com/2024/07/24/us/politics/doj-watchdog-roger-stone-sentencing.html
+
 **Watchdog Attributes Reduced Sentencing in Stone Case to Poor Leadership**\
 `The reduction of Roger Stone’s sentence in a 2019 case related to the Trump-Russia investigation incited accusations of political interference at the time.`\
 https://nytimes.com/2024/07/24/us/politics/doj-watchdog-roger-stone-sentencing.html
