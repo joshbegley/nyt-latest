@@ -1,3 +1,11 @@
+**They Were Hotshot Real Estate Agents. Some Women Say They Were Predators.**\
+`Tal and Oren Alexander, who had lifestyles as flashy as their real estate deals, are now accused of a string of sexual assaults.`\
+https://nytimes.com/2024/07/24/realestate/tal-oren-alexander-sexual-assault.html
+
+**Pat McAfee will return to ESPN's 'College GameDay' for 2024 season**\
+`McAfee said late last year that he would return to the program but entered the summer without a deal signed.`\
+https://nytimes.com/athletic/5655893/2024/07/24/pat-mcafee-college-gameday-espn/
+
 **What’s in Our Queue? ‘Rectify’ and More**\
 `I am a photographer, and I primarily cover the military, Congress and the White House. Here are a few favorites.`\
 https://nytimes.com/interactive/2024/07/24/arts/editors-recommendations-rectify.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/24/business/election-conspiracy-social-media.html
 **He Wrote Michael Jackson’s ‘Human Nature’ and Has 2 More in the Vault**\
 `Steve Porcaro of Toto, who played on some of the biggest hits of the ’80s, has sold the rights to his music, including a pair of unreleased tracks with the superstar.`\
 https://nytimes.com/2024/07/24/arts/music/steve-porcaro-toto-michael-jackson.html
-
-**Donald Trump and Greg Abbott vs. Migrants**\
-`Readers object to Republican actions against migrants. Also: “Unpromising” students; romance fiction; sleep and longevity; scaffolding in New York.`\
-https://nytimes.com/2024/07/24/opinion/donald-trump-greg-abbott-migrants.html
-
-**Jannik Sinner withdraws from Olympic tennis with tonsillitis**\
-`Jannik Sinner has withdrawn from the 2024 Paris Olympics with tonsillitis.`\
-https://nytimes.com/athletic/5655750/2024/07/24/jannik-sinner-withdraws-olympic-tennis/
 
