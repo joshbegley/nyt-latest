@@ -27,7 +27,7 @@ https://nytimes.com/athletic/5654125/2024/07/23/george-kittle-49ers-training-cam
 https://nytimes.com/athletic/5654349/2024/07/23/billy-napier-jaden-rashada-lawsuit/
 
 **Vikings tackle Christian Darrisaw signs massive extension worth up to $113M**\
-`The 25-year-old's new deal hoists him to the top of NFL left tackles in terms of average annual value.`\
+`The 25-year-old's deal, which includes $77 million guaranteed, lifts him to the top of NFL left tackles in terms of average annual value.`\
 https://nytimes.com/athletic/5654377/2024/07/23/vikings-christian-darrisaw-extension/
 
 **Rams QB Matthew Stafford's deal gets done — for many reasons**\
