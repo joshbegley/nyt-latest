@@ -1,3 +1,7 @@
+**The Harris-______ Campaign**\
+`We cover the four leading vice-presidential contenders.`\
+https://nytimes.com/2024/07/24/briefing/vice-president-candidates.html
+
 **Winter Olympics Will Return to Salt Lake City, Site of Bidding Scandal, in 2034**\
 `The Utah capital’s victory was ratified only after Olympic officials threatened to pull the Games if the U.S. authorities undermined the World Anti-Doping Agency.`\
 https://nytimes.com/2024/07/24/world/olympics/salt-lake-city-winter-olympics-2034.html
@@ -27,14 +31,10 @@ https://nytimes.com/athletic/5640947/2024/07/24/fantasy-football-best-ball-stack
 https://nytimes.com/2024/07/24/podcasts/the-daily/secret-service-trump.html
 
 **Harris Hits Campaign Trail, and Netanyahu Heads to Congress**\
-`Plus, two high-profile resignations.`\
+`Plus, U.S. to host 2034 Winter Olympics.`\
 https://nytimes.com/2024/07/24/podcasts/harris-campaign-netanyahu-congress.html
 
 **The Connections Companion No. 410, July 25, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/24/crosswords/the-connections-companion-no-410-july-25-2024.html
-
-**Wordle Review No. 1,132, July 25, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/24/crosswords/wordle-review-1132.html
 
