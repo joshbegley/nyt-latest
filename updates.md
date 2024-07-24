@@ -1,3 +1,7 @@
+**18 People Killed In Plane Crash in Nepal**\
+`The pilot of the Saurya Airlines flight, which was departing from Kathmandu, was the only survivor, officials said.`\
+https://nytimes.com/2024/07/24/world/asia/nepal-plane-crash-saurya.html
+
 **Max Verstappen's frustrated radio messages show the growing pressure at Red Bull**\
 `The reigning champion's vexation with Red Bull's performance signals how different 2024 is going for the once-dominant team.`\
 https://nytimes.com/athletic/5654287/2024/07/24/f1-max-verstappen-radio-messages-hungary-red-bull/
