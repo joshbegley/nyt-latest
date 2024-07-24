@@ -1,3 +1,19 @@
+**Sunday Night Basketball on NBC — part of new NBA media rights deal — could be a hit**\
+`NBC plans on Mike Tirico being the “A” voice on the network's NBA games.`\
+https://nytimes.com/athletic/5656665/2024/07/24/nba-media-rights-deal-nbc-tv/
+
+**Tennessee Gas Station Clerk Stole $1 Million Lottery Ticket, Police Say**\
+`Meer Patel was working behind the counter when a man handed him the $1 million ticket. He hid the value from the buyer and tried to cash the ticket himself, the authorities said.`\
+https://nytimes.com/2024/07/24/us/tennessee-stolen-lottery-ticket.html
+
+**'A lot of guys with a lot to prove': Commanders open training camp with up-tempo vibe**\
+`On Day 1, Washington's primary focus was on red zone work. Plus, rookie DT Johnny Newton was activated off the non-football injury list. `\
+https://nytimes.com/athletic/5656478/2024/07/24/commanders-training-camp-jayden-daniels/
+
+**Biden Dropped Out 3 Days Ago. Ready or Not, Here Come the Polls.**\
+`Some pollsters were already in the field when news of his withdrawal broke; others scrambled to conduct quick surveys.`\
+https://nytimes.com/2024/07/24/us/elections/harris-trump-polling.html
+
 **MLB will redirect luxury tax dollars to help teams losing TV money**\
 `MLB and the Players Association agreed to send luxury tax money to help teams losing revenue amidst ongoing media landscape disruption. `\
 https://nytimes.com/athletic/5656610/2024/07/24/mlb-luxury-tax-tv-money/
