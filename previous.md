@@ -1,3 +1,7 @@
+**Why Tesla Is Still Struggling**\
+`Sluggish car sales and a tough price war with rivals are weighing on Elon Musk’s electric vehicle company.`\
+https://nytimes.com/2024/07/24/business/dealbook/tesla-earnings-musk.html
+
 **Giants takeaways: Monitoring Tyler Fitzgerald's power streak, Jordan Hicks' role change**\
 `Fitzgerald, Hicks and Robbie Ray are three players whose performances will be worth watching down the stretch. Here's why.`\
 https://nytimes.com/athletic/5655103/2024/07/24/sf-giants-tyler-fitzgerald-jordan-hicks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5654852/2024/07/24/taylor-walls-trump-gesture-comme
 **Coco Gauff to be flag bearer for Team USA at Paris Olympics**\
 `Coco Gauff will become the first tennis player in history to act as Team USA flag bearer when she joins LeBron James at the opening ceremony for the 2024 Paris Olympics.`\
 https://nytimes.com/athletic/5655264/2024/07/24/coco-gauff-paris-olympics-tennis/
-
-**The Pulse: An Olympics spy scandal**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5654694/2024/07/24/canada-new-zealand-spy-scandal-olympics-the-pulse/
 

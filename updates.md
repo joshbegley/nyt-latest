@@ -1,3 +1,7 @@
+**Why Tesla Is Still Struggling**\
+`Sluggish car sales and a tough price war with rivals are weighing on Elon Musk’s electric vehicle company.`\
+https://nytimes.com/2024/07/24/business/dealbook/tesla-earnings-musk.html
+
 **Giants takeaways: Monitoring Tyler Fitzgerald's power streak, Jordan Hicks' role change**\
 `Fitzgerald, Hicks and Robbie Ray are three players whose performances will be worth watching down the stretch. Here's why.`\
 https://nytimes.com/athletic/5655103/2024/07/24/sf-giants-tyler-fitzgerald-jordan-hicks/
