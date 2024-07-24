@@ -1,5 +1,9 @@
 **Where Do Harris’s Potential Running Mates Stand on Climate?**\
 `Possible contenders to join the Harris ticket include three governors who welcome clean energy and a senator concerned by extreme heat and drought.`\
+https://nytimes.com/2024/07/24/climate/harris-vp-climate.html
+
+**Where Do Harris’s Potential Running Mates Stand on Climate?**\
+`Possible contenders to join the Harris ticket include three governors who welcome clean energy and a senator concerned by extreme heat and drought.`\
 https://nytimes.com/2024/07/24/climate/harris-veepstakes-climate.html
 
 **NiJaree Canady, softball’s player of the year, commits to Texas Tech with $1M NIL deal: Source**\
