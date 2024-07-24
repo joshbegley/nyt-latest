@@ -1,3 +1,7 @@
+**Word of the Day: exacting**\
+`This word has appeared in 265 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/07/24/learning/word-of-the-day-exacting.html
+
 **Typhoon Gaemi Heads for Taiwan With Category 4 Strength**\
 `The tropical cyclone was expected to make landfall on the island late Wednesday, a day after battering the Philippines with heavy rain.`\
 https://nytimes.com/2024/07/24/weather/typhoon-gaemi-taiwan-philippines.html

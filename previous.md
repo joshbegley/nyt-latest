@@ -1,3 +1,7 @@
+**Word of the Day: exacting**\
+`This word has appeared in 265 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/07/24/learning/word-of-the-day-exacting.html
+
 **Typhoon Gaemi Heads for Taiwan With Category 4 Strength**\
 `The tropical cyclone was expected to make landfall on the island late Wednesday, a day after battering the Philippines with heavy rain.`\
 https://nytimes.com/2024/07/24/weather/typhoon-gaemi-taiwan-philippines.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5652769/2024/07/24/newcastle-eddie-howe-structure/
 **Wednesday Briefing**\
 `Kamala Harris’s rally in Wisconsin.`\
 https://nytimes.com/2024/07/24/briefing/kamala-harris-netanyahu-macron.html
-
-**Enciso is fulfilling his Olympics dream - but what will it mean for him and Brighton?**\
-`The Paraguayan is playing in the competition in France and missing his club's tour of Japan — how will this affect Fabian Hurzeler's plans?`\
-https://nytimes.com/athletic/5650150/2024/07/24/enciso-olympics-paraguay-brighton/
 
