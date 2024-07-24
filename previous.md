@@ -1,3 +1,7 @@
+**Dancers call off Olympics opening ceremony strike threat**\
+`Attention on the dancers' protests reached a boiling point Monday when more than 200 dancers refused to continue rehearsing.`\
+https://nytimes.com/athletic/5655668/2024/07/24/opening-ceremony-strike-threat-dancers/
+
 **Nephew Says Trump Suggested Some Disabled People ‘Should Just Die’**\
 `In a new memoir, Fred C. Trump III claims his uncle, Donald J. Trump, made cruel and racist comments.`\
 https://nytimes.com/2024/07/24/us/politics/donald-trump-nephew-book-fred-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/24/arts/music/festival-orchestra-of-lincoln-center.h
 **My Relative Isn’t Trans or Nonbinary But Wants to Use ‘They/Them’ Pronouns.**\
 `The magazine’s Ethicist columnist on allyship and forms of solidarity.`\
 https://nytimes.com/2024/07/24/magazine/relative-pronouns-allyship-ethics.html
-
-**Dancers Drop Threat to Strike During Paris Olympics Opening Ceremony**\
-`Organizers avoided disruption by agreeing to give performers on temporary contracts a greater cut of broadcast royalties.`\
-https://nytimes.com/2024/07/24/arts/dance/olympic-dancers-strike-opening-ceremony.html
 

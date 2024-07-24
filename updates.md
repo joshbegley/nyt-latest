@@ -1,3 +1,7 @@
+**Dancers call off Olympics opening ceremony strike threat**\
+`Attention on the dancers' protests reached a boiling point Monday when more than 200 dancers refused to continue rehearsing.`\
+https://nytimes.com/athletic/5655668/2024/07/24/opening-ceremony-strike-threat-dancers/
+
 **Nephew Says Trump Suggested Some Disabled People ‘Should Just Die’**\
 `In a new memoir, Fred C. Trump III claims his uncle, Donald J. Trump, made cruel and racist comments.`\
 https://nytimes.com/2024/07/24/us/politics/donald-trump-nephew-book-fred-trump.html
