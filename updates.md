@@ -1,4 +1,8 @@
 **NiJaree Canady, softball’s player of the year, commits to Texas Tech with $1M NIL deal: Source**\
+`Stanford softball ace NiJaree Canady announced Wednesday she is transferring to Texas Tech after a wave of programs competed to land the USA Softball Player of the Year in the month since she entered the transfer portal.`\
+https://nytimes.com/athletic/5656382/2024/07/24/nijaree-canady-softball-texas-tech-1m-nil-deal/
+
+**NiJaree Canady, softball’s player of the year, commits to Texas Tech with $1M NIL deal: Source**\
 `Stanford softball ace NiJaree Canady announced she is transferring to Texas Tech on Wednesday after a wave of programs competed to land the USA Softball Player of the Year in the month since she entered the transfer portal.`\
 https://nytimes.com/athletic/5656382/2024/07/24/nijaree-canady-softball-texas-tech-1m-nil-deal/
 
