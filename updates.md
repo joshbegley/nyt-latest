@@ -1,3 +1,7 @@
+**Lamb not expected to report to Cowboys' camp amid contract talks**\
+`Lamb is entering the last year of a deal scheduled to pay him $17.99 million this season.`\
+https://nytimes.com/athletic/5654669/2024/07/23/ceedee-lamb-holdout-dallas-cowboys-training-camp/
+
 **Reds are shopping their relievers — but they're not selling yet**\
 `The Reds have a reliever logjam and could look to move some who are on expiring contracts.`\
 https://nytimes.com/athletic/5654659/2024/07/23/reds-relievers-trade-deadline-direction/
