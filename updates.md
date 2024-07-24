@@ -1,3 +1,7 @@
+**Coco Gauff to be flag bearer for Team USA at Paris Olympics**\
+`Coco Gauff will become the first tennis player in history to act as Team USA flag bearer when she joins LeBron James at the opening ceremony for the 2024 Paris Olympics.`\
+https://nytimes.com/athletic/5655264/2024/07/24/coco-gauff-paris-olympics-tennis/
+
 **How the Cardinals and John Mozeliak are navigating MLB's trade deadline uncertainty**\
 `Targeting a high-leverage reliever from the right side could alleviate stress in the Cardinals' busy bullpen.`\
 https://nytimes.com/athletic/5654420/2024/07/24/cardinals-mlb-trade-deadline-john-mozeliak/
