@@ -1,4 +1,4 @@
-**Phillies takeaways: Latest on trade deadline aims, the bullpen blues and more**\
+**Phillies takeaways: Latest on trade deadline aims, bullpen letdowns and more**\
 `They remain engaged in finding a late-inning reliever and a platoon partner for Brandon Marsh in left field, sources say. Here's the latest.`\
 https://nytimes.com/athletic/5656786/2024/07/24/phillies-trade-deadline-targets/
 
