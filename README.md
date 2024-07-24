@@ -1,3 +1,7 @@
+**How to Watch President Biden’s Address From the Oval Office Tonight**\
+`Mr. Biden is the first sitting president since Lyndon B. Johnson in 1968 not to seek a second term in the White House.`\
+https://nytimes.com/2024/07/24/us/politics/biden-speech-tonight.html
+
 **Villa's Duran on his future: ‘Let’s hope something happens’**\
 `Aston Villa striker Jhon Duran says he hopes something comes of rumours linking him to “big teams” this summer.`\
 https://nytimes.com/athletic/5655569/2024/07/24/jhon-duran-aston-villa-transfer-west-ham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5655489/2024/07/24/riley-leonard-notre-dame-ankle-s
 **Arsenal on cusp of Riccardo Calafiori signing with defender set for medical**\
 `All agreements are now in place for Arsenal to sign Bologna defender Riccardo Calafiori.`\
 https://nytimes.com/athletic/5648360/2024/07/24/riccardo-calafiori-arsenal-transfer-update/
-
-**Kyle Shanahan on Purdy, Belichick and not obsessing over the OL**\
-`Shanahan on Belichick, who politely declined an offer to join the 49ers: "I can't believe that he's not a head coach of a team right now."`\
-https://nytimes.com/athletic/5654473/2024/07/24/kyle-shanahan-49ers-brock-purdy-bill-belichick/
 
