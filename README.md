@@ -1,3 +1,7 @@
+**'He’s getting results now': Nick Castellanos' long climb out of a deep hole is helping Phillies**\
+`The Phillies may add an outfielder at the deadline, but Castellanos' continued improvement could make a bigger difference.`\
+https://nytimes.com/athletic/5654960/2024/07/24/nick-castellanos-phillies-resurgence-twins/
+
 **Jhoan Duran doesn't concern Twins even after late struggles in loss to Phillies**\
 `Two walks issued by Duran led to the Phillies’ scoring three runs and holding off the Twins 3-0. Rocco Baldelli considers it a one-off.`\
 https://nytimes.com/athletic/5654943/2024/07/24/twins-loss-phillies-jhoan-duran/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5653311/2024/07/24/lamine-yamal-barcelona-spain-eur
 **2024 Paris Olympics tickets: How much they cost, what's available, and how to resell**\
 `Everything you need to know about tickets for Paris 2024`\
 https://nytimes.com/athletic/5638683/2024/07/24/paris-2024-olympics-tickets-explainer/
-
-**2024 Paris Olympics - 10 footballers to keep an eye on during the Games**\
-`The Olympic football tournament is a proving ground for future international stars - so here are some to monitor over the next few weeks`\
-https://nytimes.com/athletic/5652803/2024/07/24/paris-olympics-footballers-to-watch/
 
