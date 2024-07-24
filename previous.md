@@ -1,3 +1,19 @@
+**Lions training camp notes: Dan Campbell vows team won't lose its identity, and more**\
+`Plus, Amon-Ra St. Brown talks Super Bowl aspirations and James Houston feels refreshed and renewed.`\
+https://nytimes.com/athletic/5655962/2024/07/24/detroit-lions-training-camp-dan-campbell-super-bowl/
+
+**Aaron Rodgers explains Egypt trip — and struggles in red zone: Jets' first training-camp practice**\
+`Plus, rookie DBs shine, a Lazard resurgence, and much more from the Jets' first training-camp practice of 2024.`\
+https://nytimes.com/athletic/5656268/2024/07/24/new-york-jets-first-training-camp-practice-report-aaron-rodgers-egypt-trip/
+
+**Netanyahu Delivers a Forceful Defense of Israel to Applause in Congress**\
+`The speech by Israel’s leader was almost as notable as anything he said as criticism of the country’s war in Gaza grows.`\
+https://nytimes.com/2024/07/24/us/politics/netanyahu-congress.html
+
+**49ers' Williams holding out over contract dispute**\
+`GM John Lynch spoke with Williams' reps Wednesday and Shanahan said "discussions have been going on for a while" with Williams.`\
+https://nytimes.com/athletic/5656326/2024/07/24/49ers-tackle-trent-williams-holding-out-of-training-camp-over-contract-dispute/
+
 **Democrats Set Aug. 1 for Harris Nomination Vote**\
 `Vice President Kamala Harris has already secured the support of enough delegates to win the nomination, according to The Associated Press.`\
 https://nytimes.com/2024/07/24/us/politics/democrat-nominee-date-kamala-harris.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/07/22/opinion/thepoint/harris-sorority-alpha-kappa
 **Red Sox, Alex Cora engaged in talks on new deal**\
 `Cora, who recently moved into fourth place all-time in franchise history in wins, entered 2024 in the final year of his contract.`\
 https://nytimes.com/athletic/5656238/2024/07/24/red-sox-alex-cora-contract-talks/
-
-**Rosenthal: What I'm hearing about the MLB trade deadline including Mariners, Rangers and more**\
-`The Mariners could be looking to add bats, the Rangers are no longer outright sellers and what do the injured Braves do at the deadline?`\
-https://nytimes.com/athletic/5656244/2024/07/24/mlb-trade-deadline-mariners-rangers-garrett-crochet/
-
-**Explaining the ‘circus’ at the Argentina-Morocco Olympic soccer match**\
-`Why the game restarted nearly two hours after it had appeared to finish following crowd trouble and a last-minute 'equaliser'`\
-https://nytimes.com/athletic/5656069/2024/07/24/argentina-morocco-olympics-soccer-disallowed-goal/
-
-**Whale Capsizes Fishing Boat Off New Hampshire Coast**\
-`Two boaters were rescued by nearby fishermen without injuries, and the dramatic flip was caught on video.`\
-https://nytimes.com/2024/07/24/us/whale-boat-capsize-new-hampshire.html
-
-**Abner Haynes, a Star of the A.F.L.’s Early Years, Dies at 86**\
-`He was a threat as a halfback, receiver and returner for the Dallas Texans, the team that became the Kansas City Chiefs. But he still had to deal with racism.`\
-https://nytimes.com/2024/07/24/sports/football/abner-haynes-dead.html
 

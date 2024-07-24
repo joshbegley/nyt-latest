@@ -1,3 +1,19 @@
+**Lions training camp notes: Dan Campbell vows team won't lose its identity, and more**\
+`Plus, Amon-Ra St. Brown talks Super Bowl aspirations and James Houston feels refreshed and renewed.`\
+https://nytimes.com/athletic/5655962/2024/07/24/detroit-lions-training-camp-dan-campbell-super-bowl/
+
+**Aaron Rodgers explains Egypt trip — and struggles in red zone: Jets' first training-camp practice**\
+`Plus, rookie DBs shine, a Lazard resurgence, and much more from the Jets' first training-camp practice of 2024.`\
+https://nytimes.com/athletic/5656268/2024/07/24/new-york-jets-first-training-camp-practice-report-aaron-rodgers-egypt-trip/
+
+**Netanyahu Delivers a Forceful Defense of Israel to Applause in Congress**\
+`The speech by Israel’s leader was almost as notable as anything he said as criticism of the country’s war in Gaza grows.`\
+https://nytimes.com/2024/07/24/us/politics/netanyahu-congress.html
+
+**49ers' Williams holding out over contract dispute**\
+`GM John Lynch spoke with Williams' reps Wednesday and Shanahan said "discussions have been going on for a while" with Williams.`\
+https://nytimes.com/athletic/5656326/2024/07/24/49ers-tackle-trent-williams-holding-out-of-training-camp-over-contract-dispute/
+
 **Democrats Set Aug. 1 for Harris Nomination Vote**\
 `Vice President Kamala Harris has already secured the support of enough delegates to win the nomination, according to The Associated Press.`\
 https://nytimes.com/2024/07/24/us/politics/democrat-nominee-date-kamala-harris.html
