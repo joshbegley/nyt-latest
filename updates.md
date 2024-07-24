@@ -1,3 +1,19 @@
+**NiJaree Canady, softball’s player of the year, commits to Texas Tech with $1M NIL deal: Source**\
+`Stanford softball ace NiJaree Canady announced she is transferring to Texas Tech on Wednesday after a wave of programs competed to land the USA Softball Player of the Year in the month since she entered the transfer portal.`\
+https://nytimes.com/athletic/5656382/2024/07/24/nijaree-canady-softball-texas-tech-1m-nil-deal/
+
+**N.B.A. Announces Lucrative Rights Deals With Disney, Comcast and Amazon**\
+`The league rejected a bid by Warner Bros. Discovery to match Amazon’s offer.`\
+https://nytimes.com/2024/07/24/business/nba-tv-rights.html
+
+**Netanyahu has recently signaled hope on cease-fire talks, but there are major stumbling blocks.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/07/24/world/israel-gaza-war-hamas-netanyahu/netanyahu-has-recently-signaled-hope-on-cease-fire-talks-but-there-are-major-stumbling-blocks
+
+**NBA announces $77 billion deals with ESPN, NBC and Amazon**\
+`When the current agreements were signed a decade ago, streaming was on the horizon, but not part of the deals.`\
+https://nytimes.com/athletic/5655843/2024/07/24/nba-tnt-sports-tv-deal-match-rejected/
+
 **Kathy Willens, Photojournalist Seemingly Everywhere, Is Dead at 74**\
 `Guided by a keen sense of timing, she covered wars, sports, riots, politics and more for The A.P. in the ’70s, when few women worked as news photographers.`\
 https://nytimes.com/2024/07/24/business/media/kathy-willens-dead.html
