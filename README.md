@@ -1,3 +1,7 @@
+**Kerr critical of Team USA's performance vs. Germany**\
+`Team USA will face Nikola Jokić and Serbia Sunday in pool play.`\
+https://nytimes.com/athletic/5655892/2024/07/24/steve-kerr-usa-germany-olympics/
+
 **The Israeli leader is no stranger to Congress, or to controversy.**\
 `By Anjana Sankar`\
 https://nytimes.com/live/2024/07/24/world/israel-gaza-war-hamas-netanyahu/the-israeli-leader-is-no-stranger-to-congress-or-to-controversy
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5655893/2024/07/24/pat-mcafee-college-gameday-espn/
 **What’s in Our Queue? ‘Rectify’ and More**\
 `I am a photographer, and I primarily cover the military, Congress and the White House. Here are a few favorites.`\
 https://nytimes.com/interactive/2024/07/24/arts/editors-recommendations-rectify.html
-
-**H​ow Long Will A.I.’s ‘Slop’ Era Last?**\
-`Consumer-facing A.I. has become a nuisance. But the big breakthroughs may be on the horizon.`\
-https://nytimes.com/2024/07/24/opinion/ai-annoying-future.html
 
