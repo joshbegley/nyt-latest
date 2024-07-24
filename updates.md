@@ -1,3 +1,11 @@
+**The Harris-______ Campaign**\
+`We cover the four leading vice-presidential contenders.`\
+https://nytimes.com/2024/07/24/briefing/vice-president-candidates.html
+
+**Harris Hits Campaign Trail, and Netanyahu Heads to Congress**\
+`Plus, U.S. to host 2034 Winter Olympics.`\
+https://nytimes.com/2024/07/24/podcasts/harris-campaign-netanyahu-congress.html
+
 **Winter Olympics Will Return to Salt Lake City, Site of Bidding Scandal, in 2034**\
 `The Utah capital’s victory was ratified only after Olympic officials threatened to pull the Games if the U.S. authorities undermined the World Anti-Doping Agency.`\
 https://nytimes.com/2024/07/24/world/olympics/salt-lake-city-winter-olympics-2034.html
