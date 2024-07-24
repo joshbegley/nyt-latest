@@ -1,3 +1,7 @@
+**MLB will redirect luxury tax dollars to help teams losing TV money**\
+`MLB and the Players Association agreed to send luxury tax money to help teams losing revenue amidst ongoing media lanscape disruption. `\
+https://nytimes.com/athletic/5656610/2024/07/24/mlb-luxury-tax-tv-money/
+
 **Packers training camp: Time to buy back in on Eric Stokes at cornerback?**\
 `The 2021 first-round pick was the star of the day on Wednesday, perhaps a sign of things to come if he finally stays healthy.`\
 https://nytimes.com/athletic/5656327/2024/07/24/packers-training-camp-eric-stokes/
