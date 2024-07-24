@@ -1,3 +1,7 @@
+**Vikings tackle Christian Darrisaw signs massive extension worth up to $113M**\
+`The 25-year-old's deal, which includes $77 million guaranteed, lifts him to the top of NFL left tackles in terms of average annual value.`\
+https://nytimes.com/athletic/5654377/2024/07/23/vikings-christian-darrisaw-extension/
+
 **Canada's Olympic Committee apologizes after alleged spying attempt**\
 `A drone was flown over a Ferns training session in Saint-Étienne, France, on July 22.`\
 https://nytimes.com/athletic/5654570/2024/07/23/new-zealand-soccer-spy-canada-olympics/
