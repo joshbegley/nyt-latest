@@ -1,3 +1,7 @@
+**Should the Orioles trade top prospect Jackson Holliday?**\
+`The Orioles may move some of their best prospects to upgrade their pitching. But it's hard to imagine that would include Jackson Holliday.`\
+https://nytimes.com/athletic/5655534/2024/07/24/orioles-trade-deadline-jackson-holliday/
+
 **Man Ud tell several academy staff they are up for redundancies**\
 `Manchester United have informed several long-serving academy coaches and staff their roles may no longer be required as part of the drastic cost-cutting measures announced by the Sir Jim Ratcliffe regime.`\
 https://nytimes.com/athletic/5655304/2024/07/24/manchester-united-academy-staff-cuts/

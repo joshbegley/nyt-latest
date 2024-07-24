@@ -1,3 +1,7 @@
+**Should the Orioles trade top prospect Jackson Holliday?**\
+`The Orioles may move some of their best prospects to upgrade their pitching. But it's hard to imagine that would include Jackson Holliday.`\
+https://nytimes.com/athletic/5655534/2024/07/24/orioles-trade-deadline-jackson-holliday/
+
 **Man Ud tell several academy staff they are up for redundancies**\
 `Manchester United have informed several long-serving academy coaches and staff their roles may no longer be required as part of the drastic cost-cutting measures announced by the Sir Jim Ratcliffe regime.`\
 https://nytimes.com/athletic/5655304/2024/07/24/manchester-united-academy-staff-cuts/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/24/us/politics/biden-speech-tonight.html
 **Villa's Duran on his future: ‘Let’s hope something happens’**\
 `Aston Villa striker Jhon Duran says he hopes something comes of rumours linking him to “big teams” this summer.`\
 https://nytimes.com/athletic/5655569/2024/07/24/jhon-duran-aston-villa-transfer-west-ham/
-
-**Netanyahu will speak at 2 p.m. Eastern. Here’s the latest.**\
-`By Shashank Bengali`\
-https://nytimes.com/live/2024/07/24/world/israel-gaza-war-hamas-netanyahu/netanyahu-will-speak-at-2-pm-eastern-heres-the-latest
 
