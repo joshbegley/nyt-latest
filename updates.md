@@ -1,3 +1,11 @@
+**Timberwolves coach Chris Hines makes the most of summer-league chance**\
+`"I'll be forever grateful to the organization for this opportunity," Hines said. "You get to watch young guys with talent grow."`\
+https://nytimes.com/athletic/5651127/2024/07/24/timberwolves-chris-hines-anthony-edwards-summer-league/
+
+**A leaner Marlon Humphrey opts for new approach after injury-plagued 2023 season**\
+`Also, Daniel Faalele is getting a shot to earn the starting right guard job and Arthur Maulet is constantly making plays in practice. `\
+https://nytimes.com/athletic/5654335/2024/07/24/ravens-marlon-humphrey-training-camp/
+
 **What we got wrong: Revisiting our MLB trade grades from last year's deadline**\
 `The Athletic's trade graders look back at the grades that didn't quite land from the 2023 trade deadline. `\
 https://nytimes.com/athletic/5653453/2024/07/24/mlb-trade-grades-2023-revisited/

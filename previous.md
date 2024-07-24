@@ -1,3 +1,11 @@
+**Timberwolves coach Chris Hines makes the most of summer-league chance**\
+`"I'll be forever grateful to the organization for this opportunity," Hines said. "You get to watch young guys with talent grow."`\
+https://nytimes.com/athletic/5651127/2024/07/24/timberwolves-chris-hines-anthony-edwards-summer-league/
+
+**A leaner Marlon Humphrey opts for new approach after injury-plagued 2023 season**\
+`Also, Daniel Faalele is getting a shot to earn the starting right guard job and Arthur Maulet is constantly making plays in practice. `\
+https://nytimes.com/athletic/5654335/2024/07/24/ravens-marlon-humphrey-training-camp/
+
 **What we got wrong: Revisiting our MLB trade grades from last year's deadline**\
 `The Athletic's trade graders look back at the grades that didn't quite land from the 2023 trade deadline. `\
 https://nytimes.com/athletic/5653453/2024/07/24/mlb-trade-grades-2023-revisited/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/24/us/kamala-harris-black-voters.html
 **If A.I. Is Coming for Comedy Writers, Simon Rich Is Ready**\
 `The author of humorous short stories finds emotional connections in tales that engage with tech. But he’s more interested in the ties between humans.`\
 https://nytimes.com/2024/07/24/arts/television/simon-rich-saturday-night-live-glory-days.html
-
-**The ‘Iron Lady’ of Venezuela Threatens to Unseat Its Autocrat**\
-`Spurned by the country’s authoritarian president and even her own colleagues in the opposition, María Corina Machado has built the most significant voter mobilization since Hugo Chávez.`\
-https://nytimes.com/2024/07/24/world/americas/venezuela-election-opposition-machado.html
-
-**New York’s Secret Signatures**\
-`Across New York City, people have written their names in places that only a select few ever get to see.`\
-https://nytimes.com/2024/07/24/nyregion/new-yorks-secret-signatures.html
 
