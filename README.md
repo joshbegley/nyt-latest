@@ -1,40 +1,40 @@
-**Germany Bans Islamic Group, Accusing It of Supporting Hezbollah**\
-`The authorities also searched dozens of properties linked to the Islamic Center Hamburg, which has long faced accusations of being a front for the Iranian government.`\
-https://nytimes.com/2024/07/24/world/europe/germany-hamburg-islamist-ban-hezbollah.html
+**New York’s Secret Signatures**\
+`Across New York City, people have written their names in places that only a select few ever get to see.`\
+https://nytimes.com/2024/07/24/nyregion/new-yorks-secret-signatures.html
 
-**Max Verstappen's frustrated radio messages show the growing pressure at Red Bull**\
-`The reigning champion's vexation with Red Bull's performance signals how different 2024 is going for the once-dominant team.`\
-https://nytimes.com/athletic/5654287/2024/07/24/f1-max-verstappen-radio-messages-hungary-red-bull/
+**Trump and Vance Are More Radical Together Than Alone**\
+`In cobbling together a core constituency of voters who are both culturally conservative and financially hard-pressed, they are changing politics.`\
+https://nytimes.com/2024/07/24/opinion/trump-vance-republicans-populism.html
 
-**Leeds' return to the 'smiley' badge on their new away kit: The treasure hunt and the history**\
-`Leeds have released their new yellow away kit, which also features a return to a fan favourite badge`\
-https://nytimes.com/athletic/5650533/2024/07/24/leeds-smiley-badge-away-kit/
+**How Kamala Harris Changes the Race**\
+`In some ways, the new matchup figures to be strangely familiar.`\
+https://nytimes.com/2024/07/24/upshot/kamala-harris-trump-polls.html
 
-**18 People Killed In Plane Crash in Nepal**\
-`The pilot of the Saurya Airlines flight, which was departing from Kathmandu, was the only survivor, officials said.`\
-https://nytimes.com/2024/07/24/world/asia/nepal-plane-crash-saurya.html
+**Can a Political Spectacle Make a Horror More Real?**\
+`With Netanyahu’s visit, Congress can’t ignore its role in Gaza’s carnage.`\
+https://nytimes.com/2024/07/24/opinion/benjamin-netanyahu-congress-gaza.html
 
-**Late Night Breaks Down ‘Kamala Is Brat’**\
-`The Harris campaign’s embrace of the Gen Z term puzzled cable news analysts of a certain age, but Stephen Colbert was glad to clear things up.`\
-https://nytimes.com/2024/07/24/arts/television/late-night-kamala-brat.html
+**There Is an Antidote to Political Violence**\
+`When political violence is on the rise, accountability at all levels of society is the only way to stop it.`\
+https://nytimes.com/2024/07/24/opinion/secret-service-trump-assassination-attempt.html
 
-**What we learned from Maresca's 'first day' at Chelsea (and what we didn't)**\
-`New manager has already shown 'aura' on the training field but knows that tougher days await at Stamford Bridge`\
-https://nytimes.com/athletic/5654880/2024/07/24/enzo-maresca-chelsea-press-conference/
+**A Bistro Boom, Lesser-Known Museums, Sesame Croissants: What to Do, Eat, See in Paris**\
+`Heading to France’s capital for the Olympics, or after the crowds have thinned? A travel editor picks some recent Paris stories to help plan your trip.`\
+https://nytimes.com/2024/07/24/travel/paris-museums-bakeries-petit-palais.html
 
-**A TV Show Set Up a Fake Campus Protest. Then Real Protesters Arrived.**\
-`A police procedural drama staged a tent encampment for a film shoot at Queens College. Pro-Palestinian demonstrators felt it trivialized their movement.`\
-https://nytimes.com/2024/07/24/nyregion/queens-college-protest-encampment.html
+**Nancy Pelosi and the Art of Nudging Out Presidents**\
+`It is strangely gratifying that the most ruthless political operator in the country is also a woman.`\
+https://nytimes.com/2024/07/24/opinion/nancy-pelosi-joe-biden.html
 
-**Why Paper Checks Refuse to Die**\
-`It’s hard to avoid hassle — or fraud — when you’re required to pay with paper and ink. Here’s why checks persist and why some people don’t mind.`\
-https://nytimes.com/2024/07/24/business/paper-check-payment-fraud-scam.html
+**If You’re Worried Kamala Harris Can’t Win, Listen to This**\
+`I profiled her in 2019. Here’s why 2024 is her year.`\
+https://nytimes.com/2024/07/24/opinion/kamala-harris-background.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/07/24/crosswords/spelling-bee-forum.html
+**Fashion’s Fake News Epidemic**\
+`Between designer-less brands and rampant gossip, fashion is having a meltdown. And it’s not because of the heat.`\
+https://nytimes.com/2024/07/24/style/tom-ford-john-galliano-dior-chanel-fashion-chaos.html
 
-**North Korean Trash Balloons Hit South Korean President’s Compound**\
-`Officials found nothing hazardous in the balloons’ payloads, as the North’s slow barrage of airborne garbage showed few signs of letting up.`\
-https://nytimes.com/2024/07/24/world/asia/north-korean-balloons-south-president.html
+**A Kamala Harris Presidency Could Mean More of the Same on A.I. Regulation**\
+`The presumptive Democratic nominee has won concessions from Big Tech leaders on A.I., but she hasn’t successfully pushed Congress to regulate.`\
+https://nytimes.com/2024/07/24/technology/kamala-harris-ai-regulation.html
 
