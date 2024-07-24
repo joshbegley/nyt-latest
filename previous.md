@@ -1,3 +1,11 @@
+**Giants camp takeaways: Daniel Jones rusty in return; Daboll's dizzying display of creativity**\
+`Rule No. 1 of covering training camp is not to overreact to the first practice. That said, let's overanalyze everything that happened. `\
+https://nytimes.com/athletic/5656198/2024/07/24/new-york-giants-training-camp-daniel-jones-brian-daboll/
+
+**Some congressional staff aides walked out in protest ahead of Netanyahu’s speech.**\
+`Congressional aides joined thousands of protesters outside the Capitol as Israel’s prime minister prepared to address some of their bosses in a joint meeting of Congress.`\
+https://nytimes.com/live/2024/07/24/world/israel-gaza-war-hamas-netanyahu/some-congressional-staff-aides-walked-out-in-protest-ahead-of-netanyahus-speech
+
 **Lions training camp notes: Dan Campbell vows team won't lose its identity, and more**\
 `Plus, Amon-Ra St. Brown talks Super Bowl aspirations and James Houston feels refreshed and renewed.`\
 https://nytimes.com/athletic/5655962/2024/07/24/detroit-lions-training-camp-dan-campbell-super-bowl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5656304/2024/07/24/ncaa-scholarships-limits/
 **Maestro Accused of Striking Singer Won’t Return to His Ensembles**\
 `John Eliot Gardiner is stepping down from three renowned period groups he founded, after he was accused of hitting a singer last year.`\
 https://nytimes.com/2024/07/24/arts/music/john-eliot-gardiner-out.html
-
-**Harris’s Huge Sorority Gets to Work on Her Behalf**\
-`The women of Black organizations are a significant political force.`\
-https://nytimes.com/live/2024/07/22/opinion/thepoint/harris-sorority-alpha-kappa-alpha
-
-**Red Sox, Alex Cora engaged in talks on new deal**\
-`Cora, who recently moved into fourth place all-time in franchise history in wins, entered 2024 in the final year of his contract.`\
-https://nytimes.com/athletic/5656238/2024/07/24/red-sox-alex-cora-contract-talks/
 

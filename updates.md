@@ -1,3 +1,11 @@
+**Giants camp takeaways: Daniel Jones rusty in return; Daboll's dizzying display of creativity**\
+`Rule No. 1 of covering training camp is not to overreact to the first practice. That said, let's overanalyze everything that happened. `\
+https://nytimes.com/athletic/5656198/2024/07/24/new-york-giants-training-camp-daniel-jones-brian-daboll/
+
+**Some congressional staff aides walked out in protest ahead of Netanyahu’s speech.**\
+`Congressional aides joined thousands of protesters outside the Capitol as Israel’s prime minister prepared to address some of their bosses in a joint meeting of Congress.`\
+https://nytimes.com/live/2024/07/24/world/israel-gaza-war-hamas-netanyahu/some-congressional-staff-aides-walked-out-in-protest-ahead-of-netanyahus-speech
+
 **Lions training camp notes: Dan Campbell vows team won't lose its identity, and more**\
 `Plus, Amon-Ra St. Brown talks Super Bowl aspirations and James Houston feels refreshed and renewed.`\
 https://nytimes.com/athletic/5655962/2024/07/24/detroit-lions-training-camp-dan-campbell-super-bowl/
