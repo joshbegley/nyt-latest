@@ -1,3 +1,7 @@
+**Max Verstappen's frustrated radio messages show the growing pressure at Red Bull**\
+`The reigning champion's vexation with Red Bull's performance signals how different 2024 is going for the once-dominant team.`\
+https://nytimes.com/athletic/5654287/2024/07/24/f1-max-verstappen-radio-messages-hungary-red-bull/
+
 **Leeds' return to the 'smiley' badge on their new away kit: The treasure hunt and the history**\
 `Leeds have released their new yellow away kit, which also features a return to a fan favourite badge`\
 https://nytimes.com/athletic/5650533/2024/07/24/leeds-smiley-badge-away-kit/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/24/world/asia/north-korean-balloons-south-president.
 **Deadly Blast Hits Tequila Factory in Mexico**\
 `Surveillance footage shows the moment of an explosion at a Jose Cuervo factory in Tequila, Mexico.`\
 https://nytimes.com/video/world/americas/100000009589265/explosion-jose-cuervo-tequila-factory-mexico.html
-
-**Two dismal days in Oakland accentuate Astros' trade deadline needs**\
-`Any momentum gained during Houston's series win against Seattle melted away across 18 excruciating innings in Oakland.`\
-https://nytimes.com/athletic/5655048/2024/07/24/astros-trade-deadline-needs-oakland/
 
