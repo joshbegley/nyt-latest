@@ -1,3 +1,11 @@
+**Netanyahu portrayed Iran as the main threat to Israel. Here is some context.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/07/24/world/israel-gaza-war-hamas-netanyahu/netanyahu-portrayed-iran-as-the-main-threat-to-israel-here-is-some-context
+
+**The Secret Battle for the Future of the Murdoch Empire**\
+`Rupert Murdoch, the patriarch, has moved to change the family’s irrevocable trust to preserve his media businesses as a conservative force. Several of his children are fighting back.`\
+https://nytimes.com/2024/07/24/business/media/rupert-murdoch-succession-fox.html
+
 **Where Do Harris’s Potential Running Mates Stand on Climate?**\
 `Possible contenders to join the Harris ticket include three governors who welcome clean energy and a senator concerned by extreme heat and drought.`\
 https://nytimes.com/2024/07/24/climate/harris-vp-climate.html
