@@ -1,3 +1,15 @@
+**Why Paper Checks Refuse to Die**\
+`It’s hard to avoid hassle — or fraud — when you’re required to pay with paper and ink. Here’s why checks persist and why some people don’t mind.`\
+https://nytimes.com/2024/07/24/business/paper-check-payment-fraud-scam.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/24/crosswords/spelling-bee-forum.html
+
+**North Korean Trash Balloons Hit South Korean President’s Compound**\
+`Officials found nothing hazardous in the balloons’ payloads, as the North’s slow barrage of airborne garbage showed few signs of letting up.`\
+https://nytimes.com/2024/07/24/world/asia/north-korean-balloons-south-president.html
+
 **Deadly Blast Hits Tequila Factory in Mexico**\
 `Surveillance footage shows the moment of an explosion at a Jose Cuervo factory in Tequila, Mexico.`\
 https://nytimes.com/video/world/americas/100000009589265/explosion-jose-cuervo-tequila-factory-mexico.html
