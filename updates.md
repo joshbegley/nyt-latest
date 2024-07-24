@@ -1,3 +1,11 @@
+**Phillies takeaways: Latest on trade deadline aims, bullpen letdowns and more**\
+`They remain engaged in finding a late-inning reliever and a platoon partner for Brandon Marsh in left field, sources say. Here's the latest.`\
+https://nytimes.com/athletic/5656786/2024/07/24/phillies-trade-deadline-targets/
+
+**Tackling the Falsehoods About Kamala Harris**\
+`The likely Democratic presidential nominee faces toxic discourse unlike anything Biden ever has.`\
+https://nytimes.com/2024/07/24/us/politics/kamala-harris-falsehoods-political-positions.html
+
 **For Too Many Kids, Books Are Uncool and Unread**\
 `It’s hard to develop a reading habit when you have no time to open a book.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/childrens-books-reading-decline

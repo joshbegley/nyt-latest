@@ -1,3 +1,7 @@
+**Brewers' Yelich may need season-ending surgery**\
+`Yelich will undergo an exam Thursday in Milwaukee that will determine the course of treatment for a recurring lower back condition.`\
+https://nytimes.com/athletic/5656815/2024/07/24/christian-yelich-brewers-back-injury/
+
 **Phillies takeaways: Latest on trade deadline aims, bullpen letdowns and more**\
 `They remain engaged in finding a late-inning reliever and a platoon partner for Brandon Marsh in left field, sources say. Here's the latest.`\
 https://nytimes.com/athletic/5656786/2024/07/24/phillies-trade-deadline-targets/
@@ -11,7 +15,7 @@ https://nytimes.com/2024/07/24/us/politics/kamala-harris-falsehoods-political-po
 https://nytimes.com/live/2024/07/22/opinion/thepoint/childrens-books-reading-decline
 
 **49ers training camp: Brock Purdy added pounds — and zip — in the offseason**\
-`The 49ers didn't fare too well at left tackle Wednesday with Trent Williams holding out. The full report from Day 1 of training camp ...`\
+`The 49ers didn't fare too well at left tackle Wednesday with Trent Williams holding out. Here's the full report from Day 1 of training camp.`\
 https://nytimes.com/athletic/5656757/2024/07/24/49ers-training-camp-brock-purdy-weight/
 
 **Five Twins takeaways: David Festa wows, Byron Buxton not injured, pending returns and more**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5656665/2024/07/24/nba-media-rights-deal-nbc-tv/
 **Tennessee Gas Station Clerk Stole $1 Million Lottery Ticket, Police Say**\
 `Meer Patel was working behind the counter when a man handed him the $1 million ticket. He hid the value from the buyer and tried to cash the ticket himself, the authorities said.`\
 https://nytimes.com/2024/07/24/us/tennessee-stolen-lottery-ticket.html
-
-**'A lot of guys with a lot to prove': Commanders open training camp with up-tempo vibe**\
-`On Day 1, Washington's primary focus was on red zone work. Plus, rookie DT Johnny Newton was activated off the non-football injury list. `\
-https://nytimes.com/athletic/5656478/2024/07/24/commanders-training-camp-jayden-daniels/
 
