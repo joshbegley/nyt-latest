@@ -1,3 +1,7 @@
+**Netanyahu will speak at 2 p.m. Eastern. Here’s the latest.**\
+`By Shashank Bengali`\
+https://nytimes.com/live/2024/07/24/world/israel-gaza-war-hamas-netanyahu/netanyahu-will-speak-at-2-pm-eastern-heres-the-latest
+
 **Edmonton Oilers hire Stan Bowman as general manager**\
 `Bowman has been out of the NHL for three years after an "inadequate response" to sexual assault allegations brought forth by Kyle Beach.`\
 https://nytimes.com/athletic/5629117/2024/07/24/stan-bowman-oilers-general-manager/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5654473/2024/07/24/kyle-shanahan-49ers-brock-purdy-
 **The Met Museum Is Rebounding, but Not With International Visitors**\
 `The museum said it attracted more local visitors during the past year than it did before the pandemic, but only half the international visitors.`\
 https://nytimes.com/2024/07/24/arts/design/met-museum-attendance.html
-
-**Why Do My In-Laws Help Their Daughter With Her Children, but Not Me?**\
-`A reader bristles at the child care that her mother-in-law provides for her wealthy daughter, who the reader doesn’t think needs free help as much as she does.`\
-https://nytimes.com/2024/07/24/style/in-laws-child-care.html
 
