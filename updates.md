@@ -1,3 +1,15 @@
+**Trump’s Lawsuit Against ABC and Stephanopoulos Can Move Forward**\
+`The litigation stems from a March 10 interview in which George Stephanopoulos, the network’s star anchor, referred to a civil case brought against Mr. Trump by E. Jean Carroll.`\
+https://nytimes.com/2024/07/24/business/media/trump-lawsuit-abc-stephanopoulos.html
+
+**Diaby completes Al Ittihad move from Aston Villa**\
+`Aston Villa forward Moussa Diaby has joined Al Ittihad in a permanent transfer.`\
+https://nytimes.com/athletic/5652608/2024/07/24/moussa-diaby-al-ittihad-transfer/
+
+**Matvei Michkov's arrival gives jolt to Flyers rebuild, fan base**\
+`The No. 7 draft pick in 2023 is a foundational piece for what the Flyers are trying to accomplish.`\
+https://nytimes.com/athletic/5656366/2024/07/24/flyers-matvei-michkov-arrival/
+
 **Aston Villa's Moussa Diaby joins Al Ittihad**\
 `Aston Villa forward Moussa Diaby has joined Al Ittihad in a permanent transfer.`\
 https://nytimes.com/athletic/5652608/2024/07/24/moussa-diaby-al-ittihad-transfer/
