@@ -1,3 +1,7 @@
+**What we learned from Maresca's 'first day' at Chelsea (and what we didn't)**\
+`New manager has already shown 'aura' on the training field but knows that tougher days await at Stamford Bridge`\
+https://nytimes.com/athletic/5654880/2024/07/24/enzo-maresca-chelsea-press-conference/
+
 **Germany Bans Islamic Group Accused of Supporting Hezbollah**\
 `The authorities also searched dozens of properties linked to the Islamic Center Hamburg, which has long faced accusations of being a front for the Iranian government.`\
 https://nytimes.com/2024/07/24/world/europe/germany-hamburg-islamist-ban-hezbollah.html

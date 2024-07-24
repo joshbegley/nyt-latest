@@ -18,7 +18,7 @@ https://nytimes.com/2024/07/24/world/asia/nepal-plane-crash-saurya.html
 `The Harris campaign’s embrace of the Gen Z term puzzled cable news analysts of a certain age, but Stephen Colbert was glad to clear things up.`\
 https://nytimes.com/2024/07/24/arts/television/late-night-kamala-brat.html
 
-**What we learned from Maresca's 'first day' at Chelsea (and what we didnt)**\
+**What we learned from Maresca's 'first day' at Chelsea (and what we didn't)**\
 `New manager has already shown 'aura' on the training field but knows that tougher days await at Stamford Bridge`\
 https://nytimes.com/athletic/5654880/2024/07/24/enzo-maresca-chelsea-press-conference/
 
