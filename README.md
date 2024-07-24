@@ -1,3 +1,7 @@
+**The Pulse: An Olympics spy scandal**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5654694/2024/07/24/canada-new-zealand-spy-scandal-olympics-the-pulse/
+
 **New Zealand's Ali Riley ruled out of Paris Olympics**\
 `New Zealand&#8217;s Ali Riley has been ruled out of the women&#8217;s soccer tournament at the Paris Olympics.`\
 https://nytimes.com/athletic/5655203/2024/07/24/ali-riley-new-zealand-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5650538/2024/07/24/penguins-schedule-travel-guide-2
 **Kadarius Toney working at running back in bid to reclaim spot in Chiefs offense**\
 `Toney is splitting camp reps at receiver and running back as the Chiefs look to capitalize on his versatility.`\
 https://nytimes.com/athletic/5654080/2024/07/24/chiefs-kadarius-toney-running-back/
-
-**Fantasy football best ball stack strategy: Projected stack leaders, plus the best and worst values**\
-`John Laghezza researches the best and worst stacks for best ball drafts, including what who he considers the NFL's narrowest target tree.`\
-https://nytimes.com/athletic/5640947/2024/07/24/fantasy-football-best-ball-stack-strategy-projected-stack-leaders-plus-the-best-and-worst-values/
 
