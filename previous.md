@@ -1,3 +1,7 @@
+**Giants ‘Hard Knocks’ takeaways: The hunt for a new franchise QB**\
+`So, just how close did the Giants come to trading up for a quarterback ahead of the 2024 NFL Draft?`\
+https://nytimes.com/athletic/5653893/2024/07/23/giants-hard-knocks-drake-maye-jayden-daniels/
+
 **The Briefing: Man City 3 Celtic 4 - McAtee impresses, Phillips struggles, Haaland scores**\
 `Sam Lee addresses the main talking points from Manchester City's friendly defeat by Celtic`\
 https://nytimes.com/athletic/5652540/2024/07/23/manchester-city-celtic-friendly-haaland/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/us/yellowstone-biscuit-basin-hydrothermal-explosi
 **Super PAC Tied to Elon Musk Is Being Guided by Ex-DeSantis Aides**\
 `The group, America PAC, which is funded by allies of Elon Musk, is said to be steered by two well-known Republican operatives who worked on behalf of Ron DeSantis’s presidential bid.`\
 https://nytimes.com/2024/07/23/us/politics/elon-musk-super-pac-desantis.html
-
-**49ers' George Kittle ready for 2024 after offseason of wild weight fluctuation**\
-`Kittle lost about 30 pounds recovering from offseason core surgery but is back at his playing weight as he reported to camp.`\
-https://nytimes.com/athletic/5654125/2024/07/23/george-kittle-49ers-training-camp-weight/
 

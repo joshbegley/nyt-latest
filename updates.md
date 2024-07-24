@@ -1,3 +1,7 @@
+**Giants ‘Hard Knocks’ takeaways: The hunt for a new franchise QB**\
+`So, just how close did the Giants come to trading up for a quarterback ahead of the 2024 NFL Draft?`\
+https://nytimes.com/athletic/5653893/2024/07/23/giants-hard-knocks-drake-maye-jayden-daniels/
+
 **The Briefing: Man City 3 Celtic 4 - McAtee impresses, Phillips struggles, Haaland scores**\
 `Sam Lee addresses the main talking points from Manchester City's friendly defeat by Celtic`\
 https://nytimes.com/athletic/5652540/2024/07/23/manchester-city-celtic-friendly-haaland/
