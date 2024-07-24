@@ -1,3 +1,7 @@
+**Slimmed-down Javonte Williams impresses Sean Payton at Broncos camp**\
+`The fourth-year running back enters a critical training camp after the Broncos added real competition at his position.`\
+https://nytimes.com/athletic/5656086/2024/07/24/javonte-williams-broncos-camp/
+
 **Giants camp takeaways: Daniel Jones rusty in return; Daboll's dizzying display of creativity**\
 `Rule No. 1 of covering training camp is not to overreact to the first practice. That said, let's overanalyze everything that happened. `\
 https://nytimes.com/athletic/5656198/2024/07/24/new-york-giants-training-camp-daniel-jones-brian-daboll/
