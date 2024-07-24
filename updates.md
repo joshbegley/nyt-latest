@@ -1,3 +1,11 @@
+**Complete Reversals**\
+`Shaun Phillips makes his New York Times Crossword debut.`\
+https://nytimes.com/2024/07/23/crosswords/daily-puzzle-2024-07-24.html
+
+**John Mayall, Pioneer of British Blues, Is Dead at 90**\
+`He was best known not for his own playing or singing but for recruiting and polishing the talents of one gifted lead guitarist after another, starting with Eric Clapton.`\
+https://nytimes.com/2024/07/23/arts/music/john-mayall-dead.html
+
 **Giants ‘Hard Knocks’ takeaways: The hunt for a new franchise QB**\
 `So, just how close did the Giants come to trading up for a quarterback ahead of the 2024 NFL Draft?`\
 https://nytimes.com/athletic/5653893/2024/07/23/giants-hard-knocks-drake-maye-jayden-daniels/
