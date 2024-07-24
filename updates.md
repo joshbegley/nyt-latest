@@ -1,3 +1,11 @@
+**Here’s the latest from the White House.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/biden-speech-oval-office
+
+**Trump Attacks Harris as ‘Radical’ in First Rally Since Her Ascent**\
+`The Trump campaign has sought to tie Vice President Kamala Harris to unpopular Biden administration policies and paint her as too liberal for independent or moderate voters.`\
+https://nytimes.com/2024/07/24/us/politics/trump-rally-kamala-harris.html
+
 **Assessing Netanyahu’s Speech to Congress**\
 `Some of his remarks have been disputed by human rights groups, and others are unverifiable or lacked context. Here’s a closer look.`\
 https://nytimes.com/2024/07/24/world/middleeast/netanyahu-speech-congress-assessment.html
