@@ -1,3 +1,11 @@
+**Jhoan Duran doesn't concern Twins even after late struggles in loss to Phillies**\
+`Two walks issued by Duran led to the Phillies’ scoring three runs and holding off the Twins 3-0. Rocco Baldelli considers it a one-off.`\
+https://nytimes.com/athletic/5654943/2024/07/24/twins-loss-phillies-jhoan-duran/
+
+**Palace need to replace Olise - is Sarr the answer?**\
+`Winger's departure has left a void in the squad, but Marseille forward has qualities which would suit Palace well`\
+https://nytimes.com/athletic/5643672/2024/07/24/crystal-palace-ismaila-sarr-michael-olise/
+
 **Eddie Howe, 'alignment' and the end of Newcastle's era of intimacy**\
 `So much change means they automatically become a less personal, less intimate club. It does not make it worse, but does make it different`\
 https://nytimes.com/athletic/5652769/2024/07/24/newcastle-eddie-howe-structure/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5638683/2024/07/24/paris-2024-olympics-tickets-expl
 **2024 Paris Olympics - 10 footballers to keep an eye on during the Games**\
 `The Olympic football tournament is a proving ground for future international stars - so here are some to monitor over the next few weeks`\
 https://nytimes.com/athletic/5652803/2024/07/24/paris-olympics-footballers-to-watch/
-
-**'Bleak', 'Gutting', 'Disastrous': What was your Premier League club's worst transfer window and why?**\
-`When transfer spending sprees go wrong - featuring Jamie O'Hara, Paul Konchesky and Guido Carrillo, among others`\
-https://nytimes.com/athletic/5629456/2024/07/24/premier-league-worst-transfer-window/
-
-**Netanyahu to Address a Congress Deeply Divided Over His Leadership**\
-`A boycott by some Democrats of the Israeli prime minister’s speech will highlight the deep anger within the party’s base about his conduct of the war against Hamas.`\
-https://nytimes.com/2024/07/24/us/politics/netanyahu-congress-democrats.html
 
