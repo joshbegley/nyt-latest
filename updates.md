@@ -1,3 +1,15 @@
+**Fulham close to agreement with Arsenal for Smith Rowe**\
+`Fulham are close to reaching an agreement with Arsenal to sign midfielder Emile Smith Rowe.`\
+https://nytimes.com/athletic/5655192/2024/07/24/emile-smith-rowe-transfer-fulham/
+
+**Brewers' Yelich may need season-ending surgery**\
+`Yelich will undergo an exam Thursday in Milwaukee that will determine the course of treatment for a recurring lower back condition.`\
+https://nytimes.com/athletic/5656815/2024/07/24/christian-yelich-brewers-back-injury/
+
+**49ers training camp: Brock Purdy added pounds — and zip — in the offseason**\
+`The 49ers didn't fare too well at left tackle Wednesday with Trent Williams holding out. Here's the full report from Day 1 of training camp.`\
+https://nytimes.com/athletic/5656757/2024/07/24/49ers-training-camp-brock-purdy-weight/
+
 **Phillies takeaways: Latest on trade deadline aims, bullpen letdowns and more**\
 `They remain engaged in finding a late-inning reliever and a platoon partner for Brandon Marsh in left field, sources say. Here's the latest.`\
 https://nytimes.com/athletic/5656786/2024/07/24/phillies-trade-deadline-targets/
