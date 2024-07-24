@@ -1,3 +1,7 @@
+**Thousands Protest Netanyahu’s Address to Congress**\
+`Prime Minister Benjamin Netanyahu of Israel forcefully defended Israel’s military campaign in Gaza during his address to a joint meeting of Congress on Wednesday.`\
+https://nytimes.com/video/us/politics/100000009590962/netanyahu-congress-protest.html
+
 **A Hit-Parade Speech by Netanyahu Was Largely for Show**\
 `Many in the congressional audience clearly didn’t want him there.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/netanyahu-speech-congress
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/24/business/media/rupert-murdoch-succession-fox.html
 **Where Do Harris’s Potential Running Mates Stand on Climate?**\
 `Possible contenders to join the Harris ticket include three governors who welcome clean energy and a senator concerned by extreme heat and drought.`\
 https://nytimes.com/2024/07/24/climate/harris-vp-climate.html
-
-**NiJaree Canady, softball’s player of the year, commits to Texas Tech with $1M NIL deal: Source**\
-`Stanford softball ace NiJaree Canady announced Wednesday she is transferring to Texas Tech after a wave of programs competed to land the USA Softball Player of the Year in the month since she entered the transfer portal.`\
-https://nytimes.com/athletic/5656382/2024/07/24/nijaree-canady-softball-texas-tech-1m-nil-deal/
 
