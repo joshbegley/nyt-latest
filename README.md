@@ -1,3 +1,7 @@
+**Inside Mason Greenwood's exit from Manchester United**\
+`A chapter of United’s history has finally come to a close in the only way it could: a parting of ways that many felt necessary `\
+https://nytimes.com/athletic/5652658/2024/07/24/mason-greenwood-manchester-united-exit/
+
 **'Indispensable' Yamal is Barca's great hope - they need him more than ever**\
 `Yamal was the star of this summer's European Championship and his emergence couldn't have come at a better time for Barca`\
 https://nytimes.com/athletic/5653311/2024/07/24/lamine-yamal-barcelona-spain-euros/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/24/arts/music/molly-nilsson.html
 **Arsenal's Africa-inspired away kit tells the story of their unique connection to Black culture**\
 `The Athletic speaks to the designer behind an Arsenal kit that pays homage to the club's players and fans shaped by the African diaspora`\
 https://nytimes.com/athletic/5652306/2024/07/24/arsenal-away-kit-labrum-black-culture/
-
-**The Country Where You Can Buy Meat Grown in a Lab**\
-`Singapore, which subsists on imported food, is looking to secure its future with new ways of feeding its people.`\
-https://nytimes.com/2024/07/24/world/asia/singapore-cultivated-lab-meat.html
 
