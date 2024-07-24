@@ -1,3 +1,7 @@
+**'He’s getting results now': Nick Castellanos' long climb out of deep hole helping Phillies**\
+`The Phillies may add an outfielder at the deadline, but Castellanos' continued improvement could make a bigger difference.`\
+https://nytimes.com/athletic/5654960/2024/07/24/nick-castellanos-phillies-resurgence-twins/
+
 **Why isn’t Cubs manager Craig Counsell worried about a trade deadline sell-off?**\
 `Chicago's roster likely won’t look much different on July 31. And, Counsell said: "... for us, it’s go out there and compete.”`\
 https://nytimes.com/athletic/5654913/2024/07/24/cubs-craig-counsell-trade-deadline/
