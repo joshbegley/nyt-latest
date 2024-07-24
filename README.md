@@ -1,3 +1,11 @@
+**Packers training camp: Time to buy back in on Eric Stokes at cornerback?**\
+`The 2021 first-round pick was the star of the day on Wednesday, perhaps a sign of things to come if he finally stays healthy.`\
+https://nytimes.com/athletic/5656327/2024/07/24/packers-training-camp-eric-stokes/
+
+**Halting the Bird Flu Outbreak in Cows May Require Thinking Beyond Milk**\
+`A new study paints a complex picture of the outbreak, suggesting that the virus could be spreading in multiple ways and that it is not always mild in cows.`\
+https://nytimes.com/2024/07/24/health/bird-flu-cows-milk.html
+
 **Trump’s Lawsuit Against ABC and Stephanopoulos Can Move Forward**\
 `The litigation stems from a March 10 interview in which George Stephanopoulos, the network’s star anchor, referred to a civil case brought against Mr. Trump by E. Jean Carroll.`\
 https://nytimes.com/2024/07/24/business/media/trump-lawsuit-abc-stephanopoulos.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5656545/2024/07/24/france-united-states-olympics-so
 **Matvei Michkov's arrival gives jolt to Flyers' rebuild, fan base**\
 `The No. 7 draft pick in 2023 is a foundational piece for what the Flyers are trying to accomplish.`\
 https://nytimes.com/athletic/5656366/2024/07/24/flyers-matvei-michkov-arrival/
-
-**The Inexact Science of Box Office Projections**\
-`Opening-weekend estimates have been a Hollywood fixture since the 1980s. But surveys of moviegoers can fail to capture those who infrequently visit the theater.`\
-https://nytimes.com/article/box-office-projections-tracking.html
-
-**Patriots' Matthew Judon frustrated by lack of new contract — but doesn't hold out**\
-`The veteran edge rusher, soon to be 32, opened up Wednesday about his desire for a contract extension with the Patriots.`\
-https://nytimes.com/athletic/5656189/2024/07/24/matthew-judon-patriots-contract-2/
 
