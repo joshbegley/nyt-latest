@@ -1,3 +1,7 @@
+**Chelsea close to agreeing personal terms with Villarreal goalkeeper Jorgensen**\
+`Chelsea are close to agreeing personal terms with Villarreal goalkeeper Filip Jorgensen, with the player preferring a move to Stamford Bridge over Marseille.`\
+https://nytimes.com/athletic/5655132/2024/07/24/chelsea-filip-jorgensen-transfer/
+
 **Video Captures Plane Crashing After Takeoff in Nepal**\
 `A small Saurya Airlines plane crashed shortly after taking off from Tribhuvan International Airport in Kathmandu on Wednesday, killing 18 passengers on board. The pilot was the only survivor.`\
 https://nytimes.com/video/world/asia/100000009589437/nepal-plane-crash.html
