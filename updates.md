@@ -1,3 +1,15 @@
+**As doping scandal hovers over Olympics' start, U.S. swim team calls for fairness**\
+`With swimming still reckoning with a doping scandal involving Chinese swimmers, Katie Ledecky and others on Team USA called for change.`\
+https://nytimes.com/athletic/5655645/2024/07/24/olympics-swimming-chinese-doping-scandal/
+
+**F.B.I. Director Shares New Details in Attempted Assassination of Trump**\
+`The F.B.I. director disclosed that the gunman flew a drone for about 11 minutes, just two hours before the former president was shot during a hearing before the House Judiciary Committee.`\
+https://nytimes.com/2024/07/24/us/politics/fbi-director-wray-trump-shooting-hearing.html
+
+**What is Unrivaled? A new league that promises high pay and big stars, including Angel Reese**\
+`Who's the latest star player to sign with the league, which will be played in the WNBA offseason?`\
+https://nytimes.com/athletic/5639682/2024/07/24/unrivaled-kelsey-plum-wnba-league-angel-reese/
+
 **Should the Orioles trade top prospect Jackson Holliday?**\
 `The Orioles may move some of their best prospects to upgrade their pitching. But it's hard to imagine that would include Jackson Holliday.`\
 https://nytimes.com/athletic/5655534/2024/07/24/orioles-trade-deadline-jackson-holliday/
