@@ -1,3 +1,15 @@
+**Whale Capsizes Fishing Boat Off New Hampshire Coast**\
+`Two boaters were rescued by nearby fishermen without injuries, and the dramatic flip was caught on video.`\
+https://nytimes.com/2024/07/24/us/whale-boat-capsize-new-hampshire.html
+
+**Abner Haynes, a Star of the A.F.L.’s Early Years, Dies at 86**\
+`He was a threat as a halfback, receiver and returner for the Dallas Texans, the team that became the Kansas City Chiefs. But he still had to deal with racism.`\
+https://nytimes.com/2024/07/24/sports/football/abner-haynes-dead.html
+
+**Comcast near TV deal to re-air 12 MLB teams**\
+`A dozen teams using Bally-branded RSN channels have been unavailable on Comcast services since the beginning of June. `\
+https://nytimes.com/athletic/5656272/2024/07/24/comcast-tv-deal-12-mlb-teams/
+
 **Lewis H. Lapham, Longtime Editor of Harper’s, Dies at 89**\
 `Born into a patrician family, he used Harper’s and later his own Lapham’s Quarterly to denounce what he saw as the hypocrisies and injustices of a spoiled United States.`\
 https://nytimes.com/2024/07/24/business/media/lewis-h-lapham-dead.html
