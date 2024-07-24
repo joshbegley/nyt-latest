@@ -1,3 +1,11 @@
+**Phillies takeaways: Latest on trade deadline aims, the bullpen blues and more**\
+`They remain engaged in finding a late-inning reliever and a platoon partner for Brandon Marsh in left field, sources say. Here's the latest.`\
+https://nytimes.com/athletic/5656786/2024/07/24/phillies-trade-deadline-targets/
+
+**Tackling the Falsehoods About Kamala Harris**\
+`The likely Democratic presidential nominee faces toxic discourse unlike anything Biden ever has.`\
+https://nytimes.com/2024/07/24/us/politics/kamala-harris-falsehoods-political-positions.html
+
 **For Too Many Kids, Books Are Uncool and Unread**\
 `It’s hard to develop a reading habit when you have no time to open a book.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/childrens-books-reading-decline
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/24/us/tennessee-stolen-lottery-ticket.html
 **'A lot of guys with a lot to prove': Commanders open training camp with up-tempo vibe**\
 `On Day 1, Washington's primary focus was on red zone work. Plus, rookie DT Johnny Newton was activated off the non-football injury list. `\
 https://nytimes.com/athletic/5656478/2024/07/24/commanders-training-camp-jayden-daniels/
-
-**Biden Dropped Out 3 Days Ago. Ready or Not, Here Come the Polls.**\
-`Some pollsters were already in the field when news of his withdrawal broke; others scrambled to conduct quick surveys.`\
-https://nytimes.com/2024/07/24/us/elections/harris-trump-polling.html
-
-**Man Who Broke Into Los Angeles Mayor’s Home Is Sentenced to Drug Treatment**\
-`A 29-year-old intruder who smashed a glass door to enter Mayor Karen Bass’s official residence pleaded no contest to a vandalism charge.`\
-https://nytimes.com/2024/07/24/us/karen-bass-intruder-sentenced.html
 
