@@ -1,3 +1,11 @@
+**Whale Capsizes Fishing Boat Off New Hampshire Coast**\
+`Two boaters were rescued by nearby fishermen without injuries, and the dramatic flip was caught on video.`\
+https://nytimes.com/2024/07/24/us/whale-boat-capsize-new-hampshire.html
+
+**Abner Haynes, a Star of the A.F.L.’s Early Years, Dies at 86**\
+`He was a threat as a halfback, receiver and returner for the Dallas Texans, the team that became the Kansas City Chiefs. But he still had to deal with racism.`\
+https://nytimes.com/2024/07/24/sports/football/abner-haynes-dead.html
+
 **Comcast near TV deal to re-air 12 MLB teams**\
 `A dozen teams using Bally-branded RSN channels have been unavailable on Comcast services since the beginning of June. `\
 https://nytimes.com/athletic/5656272/2024/07/24/comcast-tv-deal-12-mlb-teams/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/24/us/politics/harris-vice-president-search.html
 **Harris Warns Black Women That Trump Is a Threat to Children and Families**\
 `Her speech was a clear effort to make the election a referendum on the former president.`\
 https://nytimes.com/2024/07/24/us/politics/harris-trump-black-women.html
-
-**Chelsea mutually terminate Sarr contract, defender agrees Lens move**\
-`Malang Sarr has agreed terms with Lens after Chelsea released him with a year left on his contract.`\
-https://nytimes.com/athletic/5645583/2024/07/24/malang-sarr-chelsea-transfer-lens/
-
-**Lisa Kudrow Brings Her Daffy Charm to ‘Time Bandits’**\
-`The actress dialed up the zaniness in the TV reboot of a Terry Gilliam fantasy classic, created by the team behind “What We Do in the Shadows.”`\
-https://nytimes.com/2024/07/24/arts/television/lisa-kudrow-time-bandits.html
 
