@@ -1,3 +1,7 @@
+**Two dismal days in Oakland accentuate Astros' trade deadline needs**\
+`Any momentum gained during Houston's series win against Seattle melted away across 18 excruciating innings in Oakland.`\
+https://nytimes.com/athletic/5655048/2024/07/24/astros-trade-deadline-needs-oakland/
+
 **Word of the Day: exacting**\
 `This word has appeared in 265 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/07/24/learning/word-of-the-day-exacting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5643672/2024/07/24/crystal-palace-ismaila-sarr-mich
 **Eddie Howe, 'alignment' and the end of Newcastle's era of intimacy**\
 `So much change means they automatically become a less personal, less intimate club. It does not make it worse, but does make it different`\
 https://nytimes.com/athletic/5652769/2024/07/24/newcastle-eddie-howe-structure/
-
-**Wednesday Briefing**\
-`Kamala Harris’s rally in Wisconsin.`\
-https://nytimes.com/2024/07/24/briefing/kamala-harris-netanyahu-macron.html
 
