@@ -1,3 +1,7 @@
+**A Volatile Election Is Intensifying Conspiracy Theories Online**\
+`Users on X, Truth Social, Rumble and Gab have benefited from a series of major events to spread baseless falsehoods as their followers and engagement skyrocket.`\
+https://nytimes.com/2024/07/24/business/election-conspiracy-social-media.html
+
 **He Wrote Michael Jackson’s ‘Human Nature’ and Has 2 More in the Vault**\
 `Steve Porcaro of Toto, who played on some of the biggest hits of the ’80s, has sold the rights to his music, including a pair of unreleased tracks with the superstar.`\
 https://nytimes.com/2024/07/24/arts/music/steve-porcaro-toto-michael-jackson.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/24/arts/dance/olympic-dancers-strike-opening-ceremon
 **Fossil Hints That Jurassic Mammals Lived Slow and Died Old**\
 `Scientists found an unexpected aging pattern in a mostly intact juvenile mammal skeleton from the paleontological period.`\
 https://nytimes.com/2024/07/24/science/fossil-mammal-jurassic-age.html
-
-**March for Our Lives, the gun violence prevention group, endorses Harris.**\
-`By Erica L. Green`\
-https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/march-for-our-lives-the-gun-violence-prevention-group-endorses-harris
 
