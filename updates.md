@@ -1,3 +1,15 @@
+**Steelers' Najee Harris talks contract situation: 'I like it here ... but it's a business'**\
+`Harris was "disappointed for a minute" when the Steelers declined his option but would "most definitely" consider re-signing long-term.`\
+https://nytimes.com/athletic/5656087/2024/07/24/najee-harris-contract-steelers-training-camp/
+
+**Man Charged in Rushdie Stabbing Is Also Accused of Supporting Terrorism**\
+`Hadi Matar, 26, provided “material support and resources” to Hezbollah, according to a federal indictment unsealed on Wednesday.`\
+https://nytimes.com/2024/07/24/nyregion/salman-rushdie-stabbing-terrorism.html
+
+**Jeffrey Katzenberg: Biden Did What Was Best for the Country**\
+`On Sunday, the president selflessly let go of the reins but not before ensuring we were in good hands.`\
+https://nytimes.com/2024/07/24/opinion/katzenberg-biden-kamala-harris.html
+
 **What’s More Exciting Than a Veepstakes? A Surprise Veepstakes.**\
 `This year’s election had been a no-fun zone for Democrats. Suddenly, they have a new candidate, and can’t stop breathlessly speculating about her buffet of white-guy options for No. 2.`\
 https://nytimes.com/2024/07/24/us/politics/harris-vice-president-search.html
