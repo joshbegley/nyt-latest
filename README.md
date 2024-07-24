@@ -1,3 +1,7 @@
+**Lions training camp notes: Dan Campbell vows team won't lose its identity, and more**\
+`Plus, Amon-Ra St. Brown talks Super Bowl aspirations and James Houston feels refreshed and renewed.`\
+https://nytimes.com/athletic/5655962/2024/07/24/detroit-lions-training-camp-dan-campbell-super-bowl/
+
 **Aaron Rodgers explains Egypt trip — and struggles in red zone: Jets' first training-camp practice**\
 `Plus, rookie DBs shine, a Lazard resurgence, and much more from the Jets' first training-camp practice of 2024.`\
 https://nytimes.com/athletic/5656268/2024/07/24/new-york-jets-first-training-camp-practice-report-aaron-rodgers-egypt-trip/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/22/opinion/thepoint/harris-sorority-alpha-kappa
 **Red Sox, Alex Cora engaged in talks on new deal**\
 `Cora, who recently moved into fourth place all-time in franchise history in wins, entered 2024 in the final year of his contract.`\
 https://nytimes.com/athletic/5656238/2024/07/24/red-sox-alex-cora-contract-talks/
-
-**Rosenthal: What I'm hearing about the MLB trade deadline including Mariners, Rangers and more**\
-`The Mariners could be looking to add bats, the Rangers are no longer outright sellers and what do the injured Braves do at the deadline?`\
-https://nytimes.com/athletic/5656244/2024/07/24/mlb-trade-deadline-mariners-rangers-garrett-crochet/
 
