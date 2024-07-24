@@ -1,3 +1,11 @@
+**This Year’s BroadwayCon Raises the Curtain on Mental Health**\
+`The ninth annual fan event will include discussions on topics such as sobriety, self-care and body image. Here are six to look out for.`\
+https://nytimes.com/2024/07/24/theater/broadwaycon-mental-health-panels.html
+
+**New York Bans Active Shooter Drills That Use Props and Actors in Schools**\
+`The state is adding restrictions meant to make lockdown drills less scary for children, and will also require schools to notify parents about the exercises ahead of time.`\
+https://nytimes.com/2024/07/24/nyregion/school-lockdown-drills.html
+
 **Lincoln Center’s Audiences Deserve Music Worthy of Them**\
 `When listeners were given the power to program an orchestral concert, the results were surprising.`\
 https://nytimes.com/2024/07/24/arts/music/festival-orchestra-of-lincoln-center.html
