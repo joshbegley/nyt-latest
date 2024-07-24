@@ -1,3 +1,19 @@
+**Power conference commissioners plan to set roster limits for House settlement: Sources**\
+`Power conference commissioners have decided on roster limits that will be filed this week as part of the settlement in the House-NCAA case.`\
+https://nytimes.com/athletic/5656304/2024/07/24/ncaa-scholarships-limits/
+
+**Maestro Accused of Striking Singer Won’t Return to His Ensembles**\
+`John Eliot Gardiner is stepping down from three renowned period groups he founded, after he was accused of hitting a singer last year.`\
+https://nytimes.com/2024/07/24/arts/music/john-eliot-gardiner-out.html
+
+**Harris’s Huge Sorority Gets to Work on Her Behalf**\
+`The women of Black organizations are a significant political force.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/harris-sorority-alpha-kappa-alpha
+
+**Explaining the ‘circus’ at the Argentina-Morocco Olympic soccer match**\
+`Why the game restarted nearly two hours after it had appeared to finish following crowd trouble and a last-minute 'equaliser'`\
+https://nytimes.com/athletic/5656069/2024/07/24/argentina-morocco-olympics-soccer-disallowed-goal/
+
 **Red Sox, Alex Cora engaged in talks on new deal**\
 `Cora, who recently moved into fourth place all-time in franchise history in wins, entered 2024 in the final year of his contract.`\
 https://nytimes.com/athletic/5656238/2024/07/24/red-sox-alex-cora-contract-talks/
