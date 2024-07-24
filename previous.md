@@ -1,3 +1,7 @@
+**Trump Demands Equal Airtime in Light of Biden’s Planned Address**\
+`President Biden is set to address the nation on Wednesday night from the Oval Office to discuss the end of his re-election bid.`\
+https://nytimes.com/2024/07/23/us/trump-equal-airtime-biden-speech.html
+
 **U.K. Royal Family Gets Financial Boost From Offshore Wind and Palaces**\
 `Profits at the Crown Estate doubled thanks to offshore wind deals, while visitors to royal palaces are almost back to prepandemic levels.`\
 https://nytimes.com/2024/07/23/world/europe/uk-royal-family-finances.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/23/nyregion/robert-menendez-senate-replacement.html
 **Canada's Olympic Committee apologizes after alleged spying attempt**\
 `A drone was flown over a Ferns training session in Saint-Étienne, France, on July 22.`\
 https://nytimes.com/athletic/5654570/2024/07/23/new-zealand-soccer-spy-canada-olympics/
-
-**John Mayall, Pioneer of British Blues, Is Dead at 90**\
-`He was best known not for his own playing or singing but for recruiting and polishing the talents of one gifted lead guitarist after another, starting with Eric Clapton.`\
-https://nytimes.com/2024/07/23/arts/music/john-mayall-dead.html
 
