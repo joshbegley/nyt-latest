@@ -1,3 +1,11 @@
+**Salt Lake City gets 2034 Winter Olympics, 2030 to French Alps: Why now, and what it means**\
+`As options for Winter Olympics hosts dwindle, the IOC on Wednesday awarded the 2030 and 2034 Games to familiar places.`\
+https://nytimes.com/athletic/5654824/2024/07/24/salt-lake-city-2034-olympics-french-alps-2030/
+
+**Giants camp: Daboll, Scohen must avoid self-scouting gaffes that helped doom 2023 season**\
+`The Giants aren’t going to get every decision right when evaluating their roster, but mistakes from 2023 cost them the benefit of the doubt.`\
+https://nytimes.com/athletic/5654221/2024/07/24/giants-camp-daboll-scohen-must-avoid-self-scouting-gaffes-that-helped-doom-2023-season/
+
 **The Harris-______ Campaign**\
 `We cover the four leading vice-presidential contenders.`\
 https://nytimes.com/2024/07/24/briefing/vice-president-candidates.html
