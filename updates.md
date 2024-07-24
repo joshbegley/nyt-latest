@@ -1,3 +1,7 @@
+**Giants takeaways: Monitoring Tyler Fitzgerald's power streak, Jordan Hicks' role change**\
+`Fitzgerald, Hicks and Robbie Ray are three players whose performances will be worth watching down the stretch. Here's why.`\
+https://nytimes.com/athletic/5655103/2024/07/24/sf-giants-tyler-fitzgerald-jordan-hicks/
+
 **Chelsea close to agreeing personal terms with Villarreal goalkeeper Jorgensen**\
 `Chelsea are close to agreeing personal terms with Villarreal goalkeeper Filip Jorgensen, with the player preferring a move to Stamford Bridge over Marseille.`\
 https://nytimes.com/athletic/5655132/2024/07/24/chelsea-filip-jorgensen-transfer/

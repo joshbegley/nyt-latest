@@ -1,3 +1,7 @@
+**Giants takeaways: Monitoring Tyler Fitzgerald's power streak, Jordan Hicks' role change**\
+`Fitzgerald, Hicks and Robbie Ray are three players whose performances will be worth watching down the stretch. Here's why.`\
+https://nytimes.com/athletic/5655103/2024/07/24/sf-giants-tyler-fitzgerald-jordan-hicks/
+
 **Chelsea close to agreeing personal terms with Villarreal goalkeeper Jorgensen**\
 `Chelsea are close to agreeing personal terms with Villarreal goalkeeper Filip Jorgensen, with the player preferring a move to Stamford Bridge over Marseille.`\
 https://nytimes.com/athletic/5655132/2024/07/24/chelsea-filip-jorgensen-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5655264/2024/07/24/coco-gauff-paris-olympics-tennis
 **The Pulse: An Olympics spy scandal**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5654694/2024/07/24/canada-new-zealand-spy-scandal-olympics-the-pulse/
-
-**New Zealand's Ali Riley ruled out of Paris Olympics**\
-`New Zealand&#8217;s Ali Riley has been ruled out of the women&#8217;s soccer tournament at the Paris Olympics.`\
-https://nytimes.com/athletic/5655203/2024/07/24/ali-riley-new-zealand-olympics/
 
