@@ -1,3 +1,7 @@
+**Nephew Says Trump Suggested Some Disabled People ‘Should Just Die’**\
+`In a new memoir, Fred C. Trump III claims his uncle, Donald J. Trump, made cruel and racist comments.`\
+https://nytimes.com/2024/07/24/us/politics/donald-trump-nephew-book-fred-trump.html
+
 **A Volatile Election Is Intensifying Conspiracy Theories Online**\
 `Users on X, Truth Social, Rumble and Gab have benefited from a series of major events to spread baseless falsehoods as their followers and engagement skyrocket.`\
 https://nytimes.com/2024/07/24/business/election-conspiracy-social-media.html
