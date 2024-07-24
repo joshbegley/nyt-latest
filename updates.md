@@ -1,3 +1,7 @@
+**At the Biggest Fish Market in the U.S., 3 A.M. Is Prime Time**\
+`New York’s Fulton Fish Market, which supplies the city with nearly half its seafood, is run by third-, fourth-, even sixth-generation fishmongers.`\
+https://nytimes.com/2024/07/24/t-magazine/fulton-fish-market-ny.html
+
 **They Were Hotshot Real Estate Agents. Some Women Say They Were Predators.**\
 `Tal and Oren Alexander, who had lifestyles as flashy as their real estate deals, are now accused of a string of sexual assaults.`\
 https://nytimes.com/2024/07/24/realestate/tal-oren-alexander-sexual-assault.html

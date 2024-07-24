@@ -1,3 +1,7 @@
+**At the Biggest Fish Market in the U.S., 3 A.M. Is Prime Time**\
+`New York’s Fulton Fish Market, which supplies the city with nearly half its seafood, is run by third-, fourth-, even sixth-generation fishmongers.`\
+https://nytimes.com/2024/07/24/t-magazine/fulton-fish-market-ny.html
+
 **They Were Hotshot Real Estate Agents. Some Women Say They Were Predators.**\
 `Tal and Oren Alexander, who had lifestyles as flashy as their real estate deals, are now accused of a string of sexual assaults.`\
 https://nytimes.com/2024/07/24/realestate/tal-oren-alexander-sexual-assault.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/24/us/politics/donald-trump-nephew-book-fred-trump.h
 **A Volatile Election Is Intensifying Conspiracy Theories Online**\
 `Users on X, Truth Social, Rumble and Gab have benefited from a series of major events to spread baseless falsehoods as their followers and engagement skyrocket.`\
 https://nytimes.com/2024/07/24/business/election-conspiracy-social-media.html
-
-**He Wrote Michael Jackson’s ‘Human Nature’ and Has 2 More in the Vault**\
-`Steve Porcaro of Toto, who played on some of the biggest hits of the ’80s, has sold the rights to his music, including a pair of unreleased tracks with the superstar.`\
-https://nytimes.com/2024/07/24/arts/music/steve-porcaro-toto-michael-jackson.html
 
