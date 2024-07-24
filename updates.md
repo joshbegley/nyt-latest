@@ -1,3 +1,11 @@
+**Man Ud tell several academy staff they are up for redundancies**\
+`Manchester United have informed several long-serving academy coaches and staff their roles may no longer be required as part of the drastic cost-cutting measures announced by the Sir Jim Ratcliffe regime.`\
+https://nytimes.com/athletic/5655304/2024/07/24/manchester-united-academy-staff-cuts/
+
+**The Windup: Paul Skenes' brutal first loss**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5655646/2024/07/24/paul-skenes-record-the-windup/
+
 **Premier League, EFL, FA, and WSL introduce code of conduct for gambling sponsorships**\
 `The Premier League, EFL, FA, and Women’s Super League (WSL) have announced a new code of conduct for gambling-related agreements in football.`\
 https://nytimes.com/athletic/5655482/2024/07/24/premier-league-gambling-sponsorship-code/

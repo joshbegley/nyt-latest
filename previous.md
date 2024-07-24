@@ -1,3 +1,11 @@
+**Man Ud tell several academy staff they are up for redundancies**\
+`Manchester United have informed several long-serving academy coaches and staff their roles may no longer be required as part of the drastic cost-cutting measures announced by the Sir Jim Ratcliffe regime.`\
+https://nytimes.com/athletic/5655304/2024/07/24/manchester-united-academy-staff-cuts/
+
+**The Windup: Paul Skenes' brutal first loss**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5655646/2024/07/24/paul-skenes-record-the-windup/
+
 **Premier League, EFL, FA, and WSL introduce code of conduct for gambling sponsorships**\
 `The Premier League, EFL, FA, and Women’s Super League (WSL) have announced a new code of conduct for gambling-related agreements in football.`\
 https://nytimes.com/athletic/5655482/2024/07/24/premier-league-gambling-sponsorship-code/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5655569/2024/07/24/jhon-duran-aston-villa-transfer-
 **Netanyahu will speak at 2 p.m. Eastern. Here’s the latest.**\
 `By Shashank Bengali`\
 https://nytimes.com/live/2024/07/24/world/israel-gaza-war-hamas-netanyahu/netanyahu-will-speak-at-2-pm-eastern-heres-the-latest
-
-**Edmonton Oilers hire Stan Bowman as general manager**\
-`Bowman has been out of the NHL for three years after an "inadequate response" to sexual assault allegations brought forth by Kyle Beach.`\
-https://nytimes.com/athletic/5629117/2024/07/24/stan-bowman-oilers-general-manager/
-
-**Black Sororities and Fraternities Line Up Behind Kamala Harris**\
-`A united “Divine Nine” could be a formidable political advantage as the vice president, a member of Alpha Kappa Alpha, looks to shore up the Democratic base. She’ll address another Black sorority on Wednesday.`\
-https://nytimes.com/2024/07/24/us/politics/kamala-harris-sorority.html
 
