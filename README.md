@@ -1,3 +1,7 @@
+**Coco Gauff to be flag bearer for Team USA at Paris Olympics**\
+`Coco Gauff will become the first tennis player in history to act as Team USA flag bearer when she joins LeBron James at the opening ceremony for the 2024 Paris Olympics.`\
+https://nytimes.com/athletic/5655264/2024/07/24/coco-gauff-paris-olympics-tennis/
+
 **The Pulse: An Olympics spy scandal**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5654694/2024/07/24/canada-new-zealand-spy-scandal-olympics-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5652287/2024/07/24/twins-trade-deadline-starting-pi
 **Jessie Fleming interview: Adapting to the NWSL, her Chelsea exit and pushing for environmental change**\
 `Jessie Fleming discusses life in the NWSL and WSL, the upcoming Olympics with Canada and her passion for pursuing environmental change`\
 https://nytimes.com/athletic/5616387/2024/07/24/jessie-fleming-thorns-chelsea-environment/
-
-**Yohe: The 2024 Penguins Yinzer travel guide, Part 2**\
-`The second part of our annual look at the best trips for Penguins fans who want to see Sidney Crosby and his teammates in enemy territory.`\
-https://nytimes.com/athletic/5650538/2024/07/24/penguins-schedule-travel-guide-2024-25-part-2/
 
