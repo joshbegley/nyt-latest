@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5640947/2024/07/24/fantasy-football-best-ball-stack
 https://nytimes.com/2024/07/24/podcasts/the-daily/secret-service-trump.html
 
 **Harris Hits Campaign Trail, and Netanyahu Heads to Congress**\
-`Plus, two high profile resignations.`\
+`Plus, two high-profile resignations.`\
 https://nytimes.com/2024/07/24/podcasts/harris-campaign-netanyahu-congress.html
 
 **The Connections Companion No. 410, July 25, 2024**\
