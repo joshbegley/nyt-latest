@@ -1,3 +1,7 @@
+**U.K. Royal Family Gets Financial Boost From Offshore Wind and Palaces**\
+`Profits at the Crown Estate doubled thanks to offshore wind deals, while visitors to royal palaces are almost back to prepandemic levels.`\
+https://nytimes.com/2024/07/23/world/europe/uk-royal-family-finances.html
+
 **Complete Reversals**\
 `Shaun Phillips makes his New York Times Crossword debut.`\
 https://nytimes.com/2024/07/23/crosswords/daily-puzzle-2024-07-24.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5654570/2024/07/23/new-zealand-soccer-spy-canada-ol
 **John Mayall, Pioneer of British Blues, Is Dead at 90**\
 `He was best known not for his own playing or singing but for recruiting and polishing the talents of one gifted lead guitarist after another, starting with Eric Clapton.`\
 https://nytimes.com/2024/07/23/arts/music/john-mayall-dead.html
-
-**Hydrothermal Explosion at Yellowstone Sends Tourists Racing for Safety**\
-`The explosion at Biscuit Basin, which sent a column of boiling water, mud and rock shooting into the sky on Tuesday, was caught in dramatic videos.`\
-https://nytimes.com/2024/07/23/us/yellowstone-biscuit-basin-hydrothermal-explosion.html
 

@@ -1,3 +1,7 @@
+**U.K. Royal Family Gets Financial Boost From Offshore Wind and Palaces**\
+`Profits at the Crown Estate doubled thanks to offshore wind deals, while visitors to royal palaces are almost back to prepandemic levels.`\
+https://nytimes.com/2024/07/23/world/europe/uk-royal-family-finances.html
+
 **Complete Reversals**\
 `Shaun Phillips makes his New York Times Crossword debut.`\
 https://nytimes.com/2024/07/23/crosswords/daily-puzzle-2024-07-24.html
