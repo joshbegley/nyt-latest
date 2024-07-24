@@ -1,3 +1,7 @@
+**Deadly Blast Hits Tequila Factory in Mexico**\
+`Surveillance footage shows the moment of an explosion at a Jose Cuervo factory in Tequila, Mexico.`\
+https://nytimes.com/video/world/americas/100000009589265/explosion-jose-cuervo-tequila-factory-mexico.html
+
 **Two dismal days in Oakland accentuate Astros' trade deadline needs**\
 `Any momentum gained during Houston's series win against Seattle melted away across 18 excruciating innings in Oakland.`\
 https://nytimes.com/athletic/5655048/2024/07/24/astros-trade-deadline-needs-oakland/
