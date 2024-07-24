@@ -1,3 +1,15 @@
+**Jessie Fleming interview: Adapting to the NWSL, her Chelsea exit and pushing for environmental change**\
+`Jessie Fleming discusses life in the NWSL and WSL, the upcoming Olympics with Canada and her passion for pursuing environmental change`\
+https://nytimes.com/athletic/5616387/2024/07/24/jessie-fleming-thorns-chelsea-environment/
+
+**Kadarius Toney working at running back in bid to reclaim spot in Chiefs offense**\
+`Toney is splitting camp reps at receiver and running back as the Chiefs look to capitalize on his versatility.`\
+https://nytimes.com/athletic/5654080/2024/07/24/chiefs-kadarius-toney-running-back/
+
+**Don Garber: 25 years of the most powerful man in American soccer**\
+`Don Garber has been the driving force behind the growth of soccer in the U.S. in his role as MLS commissioner`\
+https://nytimes.com/athletic/5653462/2024/07/24/don-garber-mls-commissioner-25-years/
+
 **Why Twins should prioritize rotation help at trade deadline despite limited options**\
 `Minnesota needs rotation help, but will ownership's unwillingness to add payroll limit the front office to two-month rental options?`\
 https://nytimes.com/athletic/5652287/2024/07/24/twins-trade-deadline-starting-pitcher/
