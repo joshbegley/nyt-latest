@@ -1,3 +1,15 @@
+**Biden Dropped Out 3 Days Ago. Ready or Not, Here Come the Polls.**\
+`Some pollsters were already in the field when news of his withdrawal broke; others scrambled to conduct quick surveys.`\
+https://nytimes.com/2024/07/24/us/elections/biden-dropped-out-3-days-ago-ready-or-not-here-come-the-polls.html
+
+**Man Who Broke Into Los Angeles Mayor’s Home Is Sentenced to Drug Treatment**\
+`A 29-year-old intruder who smashed a glass door to enter Mayor Karen Bass’s official residence pleaded no contest to a vandalism charge.`\
+https://nytimes.com/2024/07/24/us/karen-bass-intruder-sentenced.html
+
+**Netanyahu Defended Israel’s War Effort to Congress**\
+`Also, the secret battle for the future of the Murdoch empire. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/07/24/briefing/netanyahu-defended-israels-war-effort-to-congress.html
+
 **MLB will redirect luxury tax dollars to help teams losing TV money**\
 `MLB and the Players Association agreed to send luxury tax money to help teams losing revenue amidst ongoing media lanscape disruption. `\
 https://nytimes.com/athletic/5656610/2024/07/24/mlb-luxury-tax-tv-money/
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/politics/100000009590962/netanyahu-congress-protest
 **A Hit-Parade Speech by Netanyahu Was Largely for Show**\
 `Many in the congressional audience clearly didn’t want him there.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/netanyahu-speech-congress
-
-**Israel Rolls Into Paris Olympics Amid Cheers, Boos and Police Sirens**\
-`France has promised an unusually heavy blanket of security for Israeli athletes at the Games. In its first test, it pulled out all the stops.`\
-https://nytimes.com/2024/07/24/world/olympics/paris-olympics-israel-soccer.html
-
-**Thursday Briefing: Netanyahu’s Address to Congress**\
-`Plus, disinformation floods the internet during the U.S. presidential race.`\
-https://nytimes.com/2024/07/24/briefing/netanyahu-congress-kamala-harris-disinformation.html
-
-**France 3 United States 0: Olise and Lacazette show class, Mihailovic nearly scores Olympic wondergoal**\
-`France's win puts them in the driving seat in Group A but a young U.S. team can hold their heads high after an impressive opening hour`\
-https://nytimes.com/athletic/5656545/2024/07/24/france-united-states-olympics-soccer-analysis/
 

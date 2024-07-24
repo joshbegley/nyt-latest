@@ -1,3 +1,15 @@
+**Biden Dropped Out 3 Days Ago. Ready or Not, Here Come the Polls.**\
+`Some pollsters were already in the field when news of his withdrawal broke; others scrambled to conduct quick surveys.`\
+https://nytimes.com/2024/07/24/us/elections/biden-dropped-out-3-days-ago-ready-or-not-here-come-the-polls.html
+
+**Man Who Broke Into Los Angeles Mayor’s Home Is Sentenced to Drug Treatment**\
+`A 29-year-old intruder who smashed a glass door to enter Mayor Karen Bass’s official residence pleaded no contest to a vandalism charge.`\
+https://nytimes.com/2024/07/24/us/karen-bass-intruder-sentenced.html
+
+**Netanyahu Defended Israel’s War Effort to Congress**\
+`Also, the secret battle for the future of the Murdoch empire. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/07/24/briefing/netanyahu-defended-israels-war-effort-to-congress.html
+
 **MLB will redirect luxury tax dollars to help teams losing TV money**\
 `MLB and the Players Association agreed to send luxury tax money to help teams losing revenue amidst ongoing media lanscape disruption. `\
 https://nytimes.com/athletic/5656610/2024/07/24/mlb-luxury-tax-tv-money/
