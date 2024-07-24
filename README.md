@@ -1,3 +1,7 @@
+**As doping scandal hovers over Olympics' start, U.S. swim team calls for fairness**\
+`With swimming still reckoning with a doping scandal involving Chinese swimmers, Katie Ledecky and others on Team USA called for change.`\
+https://nytimes.com/athletic/5655645/2024/07/24/olympics-swimming-chinese-doping-scandal/
+
 **Should the Orioles trade top prospect Jackson Holliday?**\
 `The Orioles may move some of their best prospects to upgrade their pitching. But it's hard to imagine that would include Jackson Holliday.`\
 https://nytimes.com/athletic/5655534/2024/07/24/orioles-trade-deadline-jackson-holliday/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5639682/2024/07/24/unrivaled-kelsey-plum-wnba-leagu
 **How to Watch President Biden’s Address From the Oval Office Tonight**\
 `Mr. Biden is the first sitting president since Lyndon B. Johnson in 1968 not to seek a second term in the White House.`\
 https://nytimes.com/2024/07/24/us/politics/biden-speech-tonight.html
-
-**Villa's Duran on his future: ‘Let’s hope something happens’**\
-`Aston Villa striker Jhon Duran says he hopes something comes of rumours linking him to “big teams” this summer.`\
-https://nytimes.com/athletic/5655569/2024/07/24/jhon-duran-aston-villa-transfer-west-ham/
 
