@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5655962/2024/07/24/detroit-lions-training-camp-dan-
 https://nytimes.com/athletic/5656268/2024/07/24/new-york-jets-first-training-camp-practice-report-aaron-rodgers-egypt-trip/
 
 **Netanyahu Delivers a Forceful Defense of Israel to Applause in Congress**\
-`The speech by Israel’s leader was almost as notable as anything he said as criticism of the country’s war in Gaza grows.`\
+`The symbolism of the speech by Israel’s leader was almost as notable as anything he said, as criticism of the country’s war in Gaza grows.`\
 https://nytimes.com/2024/07/24/us/politics/netanyahu-congress.html
 
 **49ers' Williams holding out over contract dispute**\
