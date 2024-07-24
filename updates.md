@@ -1,3 +1,7 @@
+**A TV Show Set Up a Fake Campus Protest. Then Real Protesters Arrived.**\
+`A police procedural drama staged a tent encampment for a film shoot at Queens College. Pro-Palestinian demonstrators felt it trivialized their movement.`\
+https://nytimes.com/2024/07/24/nyregion/queens-college-protest-encampment.html
+
 **Why Paper Checks Refuse to Die**\
 `It’s hard to avoid hassle — or fraud — when you’re required to pay with paper and ink. Here’s why checks persist and why some people don’t mind.`\
 https://nytimes.com/2024/07/24/business/paper-check-payment-fraud-scam.html

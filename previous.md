@@ -1,3 +1,7 @@
+**A TV Show Set Up a Fake Campus Protest. Then Real Protesters Arrived.**\
+`A police procedural drama staged a tent encampment for a film shoot at Queens College. Pro-Palestinian demonstrators felt it trivialized their movement.`\
+https://nytimes.com/2024/07/24/nyregion/queens-college-protest-encampment.html
+
 **Why Paper Checks Refuse to Die**\
 `It’s hard to avoid hassle — or fraud — when you’re required to pay with paper and ink. Here’s why checks persist and why some people don’t mind.`\
 https://nytimes.com/2024/07/24/business/paper-check-payment-fraud-scam.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5653516/2024/07/24/fantasy-football-scott-fish-bowl
 **Why isn’t Cubs manager Craig Counsell worried about a trade deadline sell-off?**\
 `Chicago's roster likely won’t look much different July 31. And, Counsell said: "For us, it’s go out there and compete.”`\
 https://nytimes.com/athletic/5654913/2024/07/24/cubs-craig-counsell-trade-deadline/
-
-**Yankees' surprising lineup moves can't force Mets to pitch to Aaron Judge**\
-`Judge walked four times before striking out in the ninth inning of the Yankees' loss to the Mets.`\
-https://nytimes.com/athletic/5654953/2024/07/24/yankees-lineup-mets-aaron-judge/
 
