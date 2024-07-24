@@ -1,3 +1,7 @@
+**Lewis H. Lapham, Longtime Editor of Harper’s, Dies at 89**\
+`Born into a patrician family, he used Harper’s and later his own Lapham’s Quarterly to denounce what he saw as the hypocrisies and injustices of a spoiled United States.`\
+https://nytimes.com/2024/07/24/business/media/lewis-h-lapham-dead.html
+
 **The E.P.A. Moves Toward Regulating a Widely Used, Dangerous Chemical**\
 `Vinyl chloride, used to make things like PVC pipes and packaging, is also toxic and highly flammable, and was at the center of a major train disaster in Ohio last year.`\
 https://nytimes.com/2024/07/24/climate/epa-vinyl-chloride-regulation.html
@@ -27,14 +31,10 @@ https://nytimes.com/2024/07/24/us/politics/harris-trump-black-women.html
 https://nytimes.com/athletic/5645583/2024/07/24/malang-sarr-chelsea-transfer-lens/
 
 **Lisa Kudrow Brings Her Daffy Charm to ‘Time Bandits’**\
-`The actress dialed up the zany comedy in the TV reboot of a Terry Gilliam fantasy classic, created by the team behind “What We Do in the Shadows.”`\
+`The actress dialed up the zaniness in the TV reboot of a Terry Gilliam fantasy classic, created by the team behind “What We Do in the Shadows.”`\
 https://nytimes.com/2024/07/24/arts/television/lisa-kudrow-time-bandits.html
 
 **Gavin Newsom recalls getting the Biden news and says Harris is ‘lighting it up.’**\
 `By Shawn Hubler`\
 https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/gavin-newsom-recalls-getting-the-biden-news-and-says-harris-is-lighting-it-up
-
-**Tesla and Alphabet Earnings Prompt Big Tech Stock Decline**\
-`Disappointing earnings reports from the tech giants dragged the Nasdaq composite down 2.9 percent, amid a shift by investors to stocks of smaller companies.`\
-https://nytimes.com/2024/07/24/business/tesla-alphabet-stock-earnings.html
 

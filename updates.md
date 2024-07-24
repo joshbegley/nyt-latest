@@ -1,3 +1,11 @@
+**Lewis H. Lapham, Longtime Editor of Harper’s, Dies at 89**\
+`Born into a patrician family, he used Harper’s and later his own Lapham’s Quarterly to denounce what he saw as the hypocrisies and injustices of a spoiled United States.`\
+https://nytimes.com/2024/07/24/business/media/lewis-h-lapham-dead.html
+
+**Lisa Kudrow Brings Her Daffy Charm to ‘Time Bandits’**\
+`The actress dialed up the zaniness in the TV reboot of a Terry Gilliam fantasy classic, created by the team behind “What We Do in the Shadows.”`\
+https://nytimes.com/2024/07/24/arts/television/lisa-kudrow-time-bandits.html
+
 **The E.P.A. Moves Toward Regulating a Widely Used, Dangerous Chemical**\
 `Vinyl chloride, used to make things like PVC pipes and packaging, is also toxic and highly flammable, and was at the center of a major train disaster in Ohio last year.`\
 https://nytimes.com/2024/07/24/climate/epa-vinyl-chloride-regulation.html

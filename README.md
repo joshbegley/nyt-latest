@@ -1,3 +1,7 @@
+**Comcast near TV deal to re-air 12 MLB teams**\
+`A dozen teams using Bally-branded RSN channels have been unavailable on Comcast services since the beginning of June. `\
+https://nytimes.com/athletic/5656272/2024/07/24/comcast-tv-deal-12-mlb-teams/
+
 **Lewis H. Lapham, Longtime Editor of Harper’s, Dies at 89**\
 `Born into a patrician family, he used Harper’s and later his own Lapham’s Quarterly to denounce what he saw as the hypocrisies and injustices of a spoiled United States.`\
 https://nytimes.com/2024/07/24/business/media/lewis-h-lapham-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5645583/2024/07/24/malang-sarr-chelsea-transfer-len
 **Lisa Kudrow Brings Her Daffy Charm to ‘Time Bandits’**\
 `The actress dialed up the zaniness in the TV reboot of a Terry Gilliam fantasy classic, created by the team behind “What We Do in the Shadows.”`\
 https://nytimes.com/2024/07/24/arts/television/lisa-kudrow-time-bandits.html
-
-**Gavin Newsom recalls getting the Biden news and says Harris is ‘lighting it up.’**\
-`By Shawn Hubler`\
-https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/gavin-newsom-recalls-getting-the-biden-news-and-says-harris-is-lighting-it-up
 
