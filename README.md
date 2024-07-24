@@ -1,3 +1,7 @@
+**Jannik Sinner withdraws from Olympic tennis with tonsillitis**\
+`Jannik Sinner has withdrawn from the 2024 Paris Olympics with tonsillitis.`\
+https://nytimes.com/athletic/5655750/2024/07/24/jannik-sinner-withdraws-olympic-tennis/
+
 **This Year’s BroadwayCon Raises the Curtain on Mental Health**\
 `The ninth annual fan event will include discussions on topics such as sobriety, self-care and body image. Here are six to look out for.`\
 https://nytimes.com/2024/07/24/theater/broadwaycon-mental-health-panels.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/24/dining/rosa-ross-dead.html
 **Man Utd tour squad: Sancho included but Malacia misses out**\
 `Manchester United have named their squad for their pre-season tour of the United States.`\
 https://nytimes.com/athletic/5655263/2024/07/24/manchester-united-usa-tour-squad/
-
-**What Do Olympians Eat for Breakfast?**\
-`Six Paris-bound athletes share how pancakes, Pop-Tarts and mid-game Skittles power their training.`\
-https://nytimes.com/2024/07/24/well/eat/olympic-athletes-breakfast-nutrition.html
 
