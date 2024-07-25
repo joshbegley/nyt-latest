@@ -1,3 +1,7 @@
+**A Lot of Major Shifts Beneath the Surface in a New Trump-Harris Poll**\
+`The changes among groups cancel out for now, and Trump leads narrowly, but there’s a tie when candidates like Kennedy Jr. are considered.`\
+https://nytimes.com/2024/07/25/upshot/poll-kamala-harris-trump.html
+
 **Colts plan to let QB Anthony Richardson run: 'Are you gonna limit Steph Curry from shooting 3s'?**\
 `Richardson: “My legs (have) always been one of my superpowers. (Taking) that away from me, I don’t think that’s a good thing."`\
 https://nytimes.com/athletic/5658943/2024/07/25/anthony-richardson-colts-run-steph-curry/

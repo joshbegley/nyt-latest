@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5658943/2024/07/25/anthony-richardson-colts-run-steph-curry/
 
 **A Lot of Major Shifts Beneath the Surface in a New Trump-Harris Poll**\
-`The changes among groups cancel out for now, and Trump leads narrowly, but there’s a tie when all minor-party candidates are considered.`\
+`The changes among groups cancel out for now, and Trump leads narrowly, but there’s a tie when candidates like Kennedy Jr. are considered.`\
 https://nytimes.com/2024/07/25/upshot/poll-kamala-harris-trump.html
 
 **Harris Narrows Gap Against Trump, Times/Siena Poll Finds**\
