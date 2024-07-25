@@ -1,3 +1,11 @@
+**Max Verstappen denies reports of Red Bull sim racing ban, will not change radio approach**\
+`Lewis Hamilton also weighed in on the Red Bull driver's frustrations, saying that "you have to act like a world champion." `\
+https://nytimes.com/athletic/5658599/2024/07/25/max-verstappen-f1-sim-racing-red-bull-radio/
+
+**The Summer Olympics: How to Watch. What to Watch.**\
+`Gymnastics. Track. Swimming. Basketball. Break dancing.`\
+https://nytimes.com/2024/07/25/world/olympics/the-summer-olympics-how-to-watch-what-to-watch.html
+
 **Manchester United is a loss-making company - yet 250 people have paid for it with their jobs**\
 `United staff are not at fault for the club's previous mistakes yet have felt the sting with widespread redundancies`\
 https://nytimes.com/athletic/5658467/2024/07/25/manchester-united-job-cuts-loss/
