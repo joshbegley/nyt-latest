@@ -1,3 +1,19 @@
+**Mayor of London calls for Premier League games to be played in the U.S.**\
+`The Mayor of London Sadiq Khan has called for Premier League games to be played in the United States.`\
+https://nytimes.com/athletic/5659282/2024/07/25/premier-league-games-united-states-america/
+
+**Oakland A's place closer Mason Miller on IL**\
+`Miller broke his non-throwing hand in a training room accident earlier this week.`\
+https://nytimes.com/athletic/5659295/2024/07/25/mason-miller-oakland-athletics-injured-trade/
+
+**Jets training camp observations: Aaron Rodgers-Garrett Wilson connection heats up**\
+`FLORHAM PARK, N.`\
+https://nytimes.com/athletic/5658989/2024/07/25/jets-training-camp-practice-report-day-2-aaron-rodgers-garrett-wilson/
+
+**Vance Denigrated Harris for Being Childless. Her Blended Family Is Defending Her.**\
+`JD Vance’s 2021 insult of  “childless cat ladies” has sparked bipartisan outrage at a moment when women’s choices are seen as a galvanizing political force.`\
+https://nytimes.com/2024/07/25/us/politics/jd-vance-kamala-harris-childless.html
+
 **Oakland A's closer Mason Miller headed to IL**\
 `The trade market for one of baseball’s best relievers got more complicated Thursday when the Oakland Athletics placed Mason Miller, their All-Star closer, on the 15-day injured list with a broken left hand.`\
 https://nytimes.com/athletic/5659211/2024/07/25/mason-miller-oakland-athletics-trade-injured/
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2024/07/25/magazine/olympics-breaking-sports-his
 **Have the Olympics Ever Been This Dangerous?**\
 `Teahupo'o has one of the deadliest surf breaks in the world. Athletes could face waves up to 50 feet.`\
 https://nytimes.com/interactive/2024/07/25/magazine/olympics-surfing-teahupoo-french-polynesia.html
-
-**Lions training camp: Jake Bates' leg on display, Sione Vaki improving and more**\
-`Plus, DJ Reader isn't ready to practice and an update on the safety competition.`\
-https://nytimes.com/athletic/5658877/2024/07/25/detroit-lions-training-camp-jake-bates-kicker-sione-vaki/
-
-**Spots on Mars Rock Share Similarities With Fossilized Life on Earth**\
-`The rock, studied by NASA’s Perseverance Rover, has been closely analyzed by scientists on Earth who say that nonmicrobial processes could also explain the features.`\
-https://nytimes.com/2024/07/25/science/nasa-perseverance-rover-mars-rock.html
-
-**Sylvain Saudan, ‘Skier of the Impossible,’ Is Dead at 87**\
-`His audacious descents around the world inspired a generation of extreme skiers. “One mistake,” he once said, “you die.”`\
-https://nytimes.com/2024/07/25/world/europe/sylvain-saudan-dead.html
-
-**Prosecutors Say Immunity Ruling Has No Bearing on Trump’s Conviction**\
-`The Manhattan district attorney’s office argued that a recent Supreme Court ruling did not apply to the type of evidence it had deployed against the former president.`\
-https://nytimes.com/2024/07/25/nyregion/trump-conviction-immunity.html
 
