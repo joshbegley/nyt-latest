@@ -1,3 +1,11 @@
+**Rams camp observations and notes: Matthew Stafford speaks, tight ends impress**\
+`"I'm happy to be here," Stafford said on the first day of practice a day after he agreed to adjusted terms on his existing contract.`\
+https://nytimes.com/athletic/5657437/2024/07/25/rams-training-camp-matthew-stafford-tight-ends/
+
+**Yohe: The 2024 Penguins Yinzer travel guide, Part 3**\
+`The final part of our annual look at the best trips for Penguins fans who want to see Sidney Crosby and his teammates in enemy territory.`\
+https://nytimes.com/athletic/5650540/2024/07/25/penguins-schedule-travel-guide-2024-25-part-3/
+
 **Biden Says It’s Time for ‘Fresh Voices,’ and Netanyahu Defends Israel**\
 `Plus, the illicit flow of technology to Russia.`\
 https://nytimes.com/2024/07/25/podcasts/biden-speech-and-netanyahu-congress.html

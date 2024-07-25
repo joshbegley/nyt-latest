@@ -1,3 +1,7 @@
+**Rams camp observations and notes: Matthew Stafford speaks, tight ends impress**\
+`"I'm happy to be here," Stafford said on the first day of practice a day after he agreed to adjusted terms on his existing contract.`\
+https://nytimes.com/athletic/5657437/2024/07/25/rams-training-camp-matthew-stafford-tight-ends/
+
 **Biden Says It’s Time for ‘Fresh Voices,’ and Netanyahu Defends Israel**\
 `Plus, the illicit flow of technology to Russia.`\
 https://nytimes.com/2024/07/25/podcasts/biden-speech-and-netanyahu-congress.html
@@ -18,6 +22,10 @@ https://nytimes.com/athletic/5654579/2024/07/25/nba-summer-league-rookies-reed-s
 `After missing the first three days of training camp, Jackson participated in some individual drills and got some full-team reps.`\
 https://nytimes.com/athletic/5656891/2024/07/25/lamar-jackson-ravens-training-camp/
 
+**Yohe: The 2024 Penguins Yinzer travel guide, Part 3**\
+`The final part of our annual look at the best trips for Penguins fans who want to see Sidney Crosby and his teammates in enemy territory.`\
+https://nytimes.com/athletic/5650540/2024/07/25/penguins-schedule-travel-guide-2024-25-part-3/
+
 **The Harris Campaign Is Born**\
 `What Vice President Kamala Harris’s election bid might look and sound like.`\
 https://nytimes.com/2024/07/25/podcasts/the-daily/kamala-harris-campaign.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/25/crosswords/wordle-review-1133.html
 **The Connections Companion No. 411, July 26, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/25/crosswords/connections-companion-411.html
-
-**Dissension in the ranks: Debating Travis Etienne vs. De'Von Achane for fantasy football 2024**\
-`Gary Davenport and John Laghezza try to break a virtual fantasy football ADP tie between alpha receivers Travis Etienne and De'Von Achane.`\
-https://nytimes.com/athletic/5656046/2024/07/25/rankings-debate-travis-etienne-devon-achane-fantasy-football-2024/
-
-**In the right-field stands, an Oakland A's die-hard faces an empty future**\
-`Will MacNeil, known as "RF Will," has sat in the same seat for every A's home game for 20 years. Next season, he isn't sure what he'll do.`\
-https://nytimes.com/athletic/5656140/2024/07/25/oakland-as-fan-right-field-will/
 
