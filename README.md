@@ -1,3 +1,7 @@
+**Ukraine Detains Suspect in Killing of Nationalist Politician**\
+`An 18-year-old suspect was arrested after an intense manhunt. The authorities are investigating evidence that suggests that the suspect planned the killing with others.`\
+https://nytimes.com/2024/07/25/world/europe/ukraine-iryna-farion-killing-arrest.html
+
 **What Rupert Murdoch Owns, and How He Built His Media Empire**\
 `Over seven decades, the Australian-born magnate assembled an array of news outlets, book publishers, and film and television properties into a global behemoth.`\
 https://nytimes.com/2024/07/25/business/rupert-murdoch-empire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5658506/2024/07/25/alex-cora-red-sox-bally-diamond-
 **Norris ‘not too proud’ McLaren F1 team orders tension distracted from Piastri win**\
 `Lando Norris admitted the end to the Hungarian GP “could have been handled slightly differently from both a team side and a personal side."`\
 https://nytimes.com/athletic/5658298/2024/07/25/f1-lando-norris-oscar-piastri-mclaren-hungary/
-
-**It’s Chigger Season. Here’s What to Know About the Pests.**\
-`The mites, which are commonly found in humid regions, can leave itchy bites all over the skin.`\
-https://nytimes.com/2024/07/25/well/chiggers-bites-symptoms-treatment.html
 
