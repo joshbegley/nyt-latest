@@ -1,3 +1,11 @@
+**Harris Rallies Teachers Union With Dire Warnings About Trump**\
+`“We want to ban assault weapons, and they want to ban books,” she told the crowd of 3,500 people at the convention of the American Federation of Teachers.`\
+https://nytimes.com/2024/07/25/us/politics/harris-teachers-unions.html
+
+**'I know it's a business': Panthers kicker Eddy Pineiro ready to show new staff what he's got**\
+`Despite missing just two field goal attempts the past two seasons, Eddy Pineiro finds himself in a kicking competition in Panthers camp.`\
+https://nytimes.com/athletic/5659083/2024/07/25/carolina-panthers-eddy-pineiro-kicker-contract/
+
 **Pair Your Vietnamese Iced Coffee With Pandan Cakes**\
 `A perfect Vietnamese coffee is reason enough to celebrate. But a few sweet treats can’t hurt.`\
 https://nytimes.com/2024/07/25/dining/vietnamese-iced-coffee-nyc.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/25/opinion/kamala-nomination-democrats.html
 **Dan Quinn, Commanders focused on defensive identity early in training camp**\
 `Newcomer Frankie Luvu and fifth-round rookie Jordan Magee stand out on Day 2 of camp. Plus, where does Jamin Davis fit among the team's LBs?`\
 https://nytimes.com/athletic/5658937/2024/07/25/commanders-defense-identity-training-camp/
-
-**Child Online Safety Bill Scales Senate Hurdle, but Fate Remains Uncertain**\
-`The bipartisan legislation would impose stricter privacy rules and safeguards for children on the internet and social media, but free speech concerns and fierce industry lobbying pose obstacles.`\
-https://nytimes.com/2024/07/25/us/politics/child-online-safety-bill-senate.html
-
-**Passengers Loved Southwest Airlines’ Open Boarding. Now What?**\
-`On Thursday, the airline announced it would eliminate a boarding process that allowed passengers to choose their seats. Many Southwest fans were not happy — and expressed worry that more changes might be coming.`\
-https://nytimes.com/2024/07/25/travel/southwest-open-boarding-change-reactions.html
 
