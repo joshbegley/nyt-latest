@@ -1,3 +1,7 @@
+**Esteban Ocon joins Haas F1 for 2025 season**\
+`Esteban Ocon will race for Haas in Formula One from 2025 after signing a multi-year deal with the American team.`\
+https://nytimes.com/athletic/5657632/2024/07/25/esteban-ocon-haas-deal/
+
 **Microsoft’s World of Warcraft Workers Vote to Unionize**\
 `The move adds more than 500 to the unionized video game staff at Microsoft, which has pledged to remain neutral on organizing efforts.`\
 https://nytimes.com/2024/07/25/business/world-of-warcraft-microsoft-union.html
