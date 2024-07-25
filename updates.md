@@ -1,3 +1,11 @@
+**Trading for Garrett Crochet: Which teams (and prospect packages) could land him?**\
+`Which teams could put together strong enough prospect packages to land the All-Star lefty if the White Sox deal him? `\
+https://nytimes.com/athletic/5658365/2024/07/25/garrett-crochet-trade-possible-prospect-packages/
+
+**Earth’s Hottest Days Ever**\
+`Twice this week, global temperatures broke records, but scientists are more concerned about a longer-term pattern of hotter weather.`\
+https://nytimes.com/2024/07/25/climate/earths-hottest-days-ever.html
+
 **A Lot of Major Shifts Beneath the Surface in a New Trump-Harris Poll**\
 `The changes among groups cancel out for now, and Trump leads narrowly, but there’s a tie when candidates like Kennedy Jr. are considered.`\
 https://nytimes.com/2024/07/25/upshot/poll-kamala-harris-trump.html
