@@ -1,3 +1,7 @@
+**The Chimps Who Learned to Say ‘Mama’**\
+`Old recordings show captive chimps uttering the word, which some scientists believe may offer clues to the origins of human speech.`\
+https://nytimes.com/2024/07/25/science/chimpanzee-speech-mama.html
+
 **Oklahoma Superintendent Vows to Force Schools to Teach Bible, Issuing Guidance**\
 `The state superintendent said he would crack down on “rogue districts” opposing the mandate. The guidelines detail how the Bible should be taught by subject and grade levels from five to 12.`\
 https://nytimes.com/2024/07/25/us/oklahoma-superintendent-school-bible-mandate.html
@@ -7,7 +11,7 @@ https://nytimes.com/2024/07/25/us/oklahoma-superintendent-school-bible-mandate.h
 https://nytimes.com/2024/07/25/health/rabies-cape-fur-seals-south-africa.html
 
 **The Kamala Harris Report Card**\
-`A strong politician in some ways but also deeply flawed and now she’s ours.`\
+`A strong politician in some ways, but also deeply flawed. Now, she’s ours.`\
 https://nytimes.com/2024/07/25/opinion/kamala-nomination-democrats.html
 
 **Dan Quinn, Commanders focused on defensive identity early in training camp**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/25/dining/afghan-shrimp-dumplings.html
 **We’re Asking the Wrong Question About Harris and Race**\
 `When it comes to people of mixed racial origin, our assumptions are sometimes strangely at odds with our ideals.`\
 https://nytimes.com/2024/07/25/opinion/kamala-harris-race.html
-
-**Western Wildfire Smoke Reaches the East Coast**\
-`Wildfire smoke from the Western United States and Canada is blowing across the Northeast, lowering air quality and endangering vulnerable populations.`\
-https://nytimes.com/2024/07/25/climate/wildfire-smoke-climate.html
 
