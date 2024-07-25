@@ -1,3 +1,11 @@
+**Zambia faces USWNT at the Olympics hoping to cause one of the great upsets**\
+`The Copper Queens have defied the odds to reach a third consecutive major tournament, but beating the U.S. would be the finest moment yet`\
+https://nytimes.com/athletic/5657247/2024/07/25/zambia-uswnt-olympics/
+
+**Angelique Kerber to retire from tennis after Paris Olympics**\
+`The three-time Grand Slam winner Angelique Kerber has announced she will retire from tennis after playing at the Olympic Games in Paris.`\
+https://nytimes.com/athletic/5657671/2024/07/25/angelique-kerber-olympics-retire/
+
 **For an Astros pitching corps short on experience, Alex Bregman has been a guiding voice**\
 `Alex Bregman is holding the Astros' young pitchers accountable and helping them assimilate to the major leagues.`\
 https://nytimes.com/athletic/5657100/2024/07/25/astros-alex-bregman-influence-pitching-catchers/
