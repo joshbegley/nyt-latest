@@ -1,3 +1,7 @@
+**Mitoma is on the road to recovery in Japan - and Brighton are making the most of it**\
+`The winger was injured for the end of the 2023-24 season and his absence coincided with a poor run of results. His return is welcomed`\
+https://nytimes.com/athletic/5631051/2024/07/25/mitoma-brighton-japan-recovery/
+
 **Andy Irving has taken the road less travelled. He's grabbing his West Ham chance**\
 `The 24-year-old midfielder is playing in his fourth country - but has impressed in West Ham's pre-season. Will Lopetegui keep faith?`\
 https://nytimes.com/athletic/5643233/2024/07/25/andy-irving-has-taken-the-road-less-travelled-hes-grabbing-his-west-ham-chance/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5655375/2024/07/25/chelsea-wrexham-friendly-analysi
 **Training to music, playing politics - sure and smart: Kompany's start at Bayern**\
 `The new Bayern head coach is determined not to follow Thomas Tuchel's approach as he sets out his vision for the club`\
 https://nytimes.com/athletic/5654030/2024/07/25/bayern-munich-vincent-kompany-start/
-
-**Will the Paris Olympics kickstart France's interest in women's football?**\
-`International success at this home tournament could be a big factor in encouraging domestic intrigue - and France’s players are aware of it`\
-https://nytimes.com/athletic/5655551/2024/07/25/womens-football-olympics-france/
 

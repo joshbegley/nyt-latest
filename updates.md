@@ -1,3 +1,7 @@
+**Mitoma is on the road to recovery in Japan - and Brighton are making the most of it**\
+`The winger was injured for the end of the 2023-24 season and his absence coincided with a poor run of results. His return is welcomed`\
+https://nytimes.com/athletic/5631051/2024/07/25/mitoma-brighton-japan-recovery/
+
 **Andy Irving has taken the road less travelled. He's grabbing his West Ham chance**\
 `The 24-year-old midfielder is playing in his fourth country - but has impressed in West Ham's pre-season. Will Lopetegui keep faith?`\
 https://nytimes.com/athletic/5643233/2024/07/25/andy-irving-has-taken-the-road-less-travelled-hes-grabbing-his-west-ham-chance/
