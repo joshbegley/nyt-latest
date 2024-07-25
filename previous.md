@@ -1,3 +1,11 @@
+**In the right-field stands, an Oakland A's die-hard faces an empty future**\
+`Will MacNeil, known as "RF Will," has sat in the same seat for every A's home game for 20 years. Next season, he isn't sure what he'll do.`\
+https://nytimes.com/athletic/5656140/2024/07/25/oakland-as-fan-right-field-will/
+
+**Sessegnon undergoing Fulham medical ahead of rejoining club as free agent**\
+`Ryan Sessegnon is set to undergo a medical at Fulham ahead of rejoining the club as a free agent.`\
+https://nytimes.com/athletic/5608048/2024/07/25/ryan-sessegnon-fulham-transfer/
+
 **For Years, TikTok Told Us What to Buy. Now the Trend Is to Consume Less.**\
 `The trend of “underconsumption core” romanticizes buying and using only what you need. Yes, being normal is now trending. Experts say it’s a response to a period of economic hardship.`\
 https://nytimes.com/2024/07/25/style/tiktok-underconsumption-influencers.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5653490/2024/07/25/olympics-2024-medal-projection-m
 **3 Braves takeaways: Reflections on team meeting, Matt Olson's woeful slump and more**\
 `Braves players tend to address things in smaller groups, so the organized players-only meeting meant something extra. `\
 https://nytimes.com/athletic/5657011/2024/07/25/braves-team-meeting-matt-olson/
-
-**Clemson and Florida State's fit and why we can't quit talking realignment: SEC mailbag**\
-`Which league team, player or coach deserve more hype heading into the season?`\
-https://nytimes.com/athletic/5653971/2024/07/25/sec-realignment-clemson-florida-state/
-
-**Trump and His Allies Adapt to a New Role: Fighting for Attention**\
-`In the days since President Biden ended his re-election bid and passed the torch to Vice President Kamala Harris, Donald Trump’s campaign has been crowded out of the headlines.`\
-https://nytimes.com/2024/07/25/us/politics/trump-gop-kamala-harris.html
 
