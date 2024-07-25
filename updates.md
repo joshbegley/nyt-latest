@@ -1,3 +1,19 @@
+**Zendaya, Mick Jagger and Snoop Dogg Step Out in Paris for the Olympics**\
+`Athletes, actors and fashion designers celebrated before the opening of the Games in Paris at a bash hosted by LVMH, the French luxury goods conglomerate.`\
+https://nytimes.com/2024/07/25/style/olympics-paris-party-lvmh.html
+
+**Chicago Is Prepared to Safely Host Democrats’ Convention, Officials Say**\
+`The Secret Service, which has been under scrutiny since the assassination attempt against Donald J. Trump, says it has reviewed its security plan for the convention in August.`\
+https://nytimes.com/2024/07/25/us/chicago-democratic-national-convention-security.html
+
+**F.B.I. Examining Bullet Fragments Found at Trump Rally Site**\
+`The bureau is assessing what caused the former president’s wound during an assassination attempt. The question has turned political.`\
+https://nytimes.com/2024/07/25/us/politics/fbi-bullet-trump-rally.html
+
+**49ers training camp: Brandon Aiyuk and John Lynch watch good DB play together**\
+`Though Aiyuk's hold-in continues, he was on the field to watch the entirety of Thursday's practice — including the first chunk with Lynch. `\
+https://nytimes.com/athletic/5659090/2024/07/25/49ers-training-camp-brandon-aiyuk-john-lynch-malik-mustapha/
+
 **Israeli Forces Retrieve Bodies of 5 Hostages From Tunnel in Gaza**\
 `The military said that intelligence, including information from detained Palestinian militants, had led to the bodies in the Khan Younis area.`\
 https://nytimes.com/2024/07/25/world/middleeast/israel-hostages-bodies-gaza.html
