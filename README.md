@@ -1,3 +1,7 @@
+**Andy Irving has taken the road less travelled. He's grabbing his West Ham chance**\
+`The 24-year-old midfielder is playing in his fourth country - but has impressed in West Ham's pre-season. Will Lopetegui keep faith?`\
+https://nytimes.com/athletic/5643233/2024/07/25/andy-irving-has-taken-the-road-less-travelled-hes-grabbing-his-west-ham-chance/
+
 **Why are Man City willing to sell Ederson - and why does he want to go?**\
 `City could sell Ederson this summer — and there is a reason the goalkeeper might want to leave the Etihad Stadium`\
 https://nytimes.com/athletic/5655283/2024/07/25/ederson-manchester-city-future-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5654030/2024/07/25/bayern-munich-vincent-kompany-st
 **Will the Paris Olympics kickstart France's interest in women's football?**\
 `International success at this home tournament could be a big factor in encouraging domestic intrigue - and France’s players are aware of it`\
 https://nytimes.com/athletic/5655551/2024/07/25/womens-football-olympics-france/
-
-**Paris 2024 opening ceremony outfits: USA's jeans, Mongolia's deels and Canada's red on red**\
-`Which country's outfits will be the talk of the Olympic Games' opening ceremony on Friday?`\
-https://nytimes.com/athletic/5652506/2024/07/25/paris-2024-opening-ceremony-outfits-assessed/
 
