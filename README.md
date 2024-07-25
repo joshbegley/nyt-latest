@@ -1,3 +1,23 @@
+**Kamala Harris’s Fund-Raising Machine Cranks Into High Gear**\
+`Given weeks instead of years to cultivate donors, the vice president’s allies are armed with a new logo and burning up the phones.`\
+https://nytimes.com/2024/07/25/us/politics/kamala-harris-donors-fund-raising.html
+
+**MLB bullpen report: Trade deadline buyers, sellers; plus a high-leverage shift for the Dodgers**\
+`Greg Jewett runs through MLB team bullpen needs, in addition to likely buyers and sellers, and tracks all the changes, like in Los Angeles.`\
+https://nytimes.com/athletic/5658619/2024/07/25/fantasy-baseball-bullpen-report-saves-holds-buyers-sellers/
+
+**Tottenham agree deal to sign South Korean teenager Yang Min-hyuk**\
+`Tottenham Hotspur have agreed a deal to sign South Korean winger Yang Min-hyuk from Gangwon FC.`\
+https://nytimes.com/athletic/5658120/2024/07/25/tottenham-yang-min-hyuk-transfer/
+
+**Is there an officiating problem? Do LTIR rules need changes? Vote now in our NHL fan poll**\
+`We’re inviting you to give us your takes in a 2024 NHL state-of-the-league survey.`\
+https://nytimes.com/athletic/5657595/2024/07/25/nhl-fan-survey-athletic-refs-ltir/
+
+**W.N.B.A.’s Popularity Booms, but Money for Players Hasn’t Kept Pace**\
+`Fans and brands have embraced the league, but rules have kept its growing financial success from fully trickling down to the players.`\
+https://nytimes.com/2024/07/25/business/wnba-players-salaries-money.html
+
 **Max Verstappen denies reports of Red Bull sim racing ban, will not change radio approach**\
 `Lewis Hamilton also weighed in on the Red Bull driver's frustrations, saying that "you have to act like a world champion." `\
 https://nytimes.com/athletic/5658599/2024/07/25/max-verstappen-f1-sim-racing-red-bull-radio/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/07/25/obituaries/willy-de-bruyn-overlooked.html
 **As Olympic opener nears, Steve Kerr again sounds alarm for Team USA: 'It's time'**\
 `With the Olympics about to begin, Steve Kerr continued to sound the alarm Thursday over the U.S. men's basketball team's recent struggles.`\
 https://nytimes.com/athletic/5658593/2024/07/25/steve-kerr-olympics-usa-basketball-comments/
-
-**Rybakina withdraws from Paris Olympics tennis competition**\
-`Elena Rybakina has withdrawn from the women&#8217;s tennis competition at the Paris Olympics.`\
-https://nytimes.com/athletic/5658609/2024/07/25/elena-rybakina-olympics-out/
-
-**Michael Hardy, Sharpton’s Longtime Lawyer and Confidant, Dies at 69**\
-`He was general counsel of Mr. Sharpton’s civil rights group, the National Action Network, and defended him in a defamation suit arising from the Tawana Brawley case.`\
-https://nytimes.com/2024/07/25/us/michael-hardy-dead.html
-
-**Read about U.S. arms transfers to Israel since Oct. 7**\
-`A tally of publicly known deliveries, as compiled by the Jewish Institute for National Security of America.`\
-https://nytimes.com/interactive/2024/07/25/us/jinsa-arms-transfer.html
-
-**On Immigration, Harris Is a Bit of a Chameleon**\
-`She has championed the rights of undocumented kids and thrown the book at undocumented criminals.`\
-https://nytimes.com/live/2024/07/22/opinion/thepoint/harris-immigration-record
-
-**Olympics tennis betting odds: Swiatek, Alcaraz enter as clear favorites on clay**\
-`Coco Gauff, Iga Swiatek, Carlos Alcaraz, Rafael Nadal and Novak Djokovic are all among the favorites to win gold in Paris.`\
-https://nytimes.com/athletic/5655694/2024/07/25/olympics-tennis-betting-odds-swiatek-alcaraz/
 
