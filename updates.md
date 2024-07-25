@@ -1,3 +1,7 @@
+**Who the Giants have to trade at the deadline, and which teams should have interest**\
+`The Giants' roster and contract situations are a little too weird for a blockbuster deadline. But there could be surprises.`\
+https://nytimes.com/athletic/5656257/2024/07/24/sf-giants-trade-deadline-scenarios-approach/
+
 **Biden Says It Is Time to Step Aside for a Fresh, Younger Voice**\
 `In an Oval Office address, President Biden praised Vice President Kamala Harris and said “it’s been the privilege of my life to serve this nation for over 50 years.”`\
 https://nytimes.com/2024/07/24/us/politics/biden-address.html

@@ -2,6 +2,10 @@
 `In an Oval Office address, President Biden praised Vice President Kamala Harris and said “it’s been the privilege of my life to serve this nation for over 50 years.”`\
 https://nytimes.com/2024/07/24/us/politics/biden-address.html
 
+**Who the Giants have to trade at the deadline, and which teams should have interest**\
+`The Giants' roster and contract situations are a little too weird for a blockbuster deadline. But there could be surprises.`\
+https://nytimes.com/athletic/5656257/2024/07/24/sf-giants-trade-deadline-scenarios-approach/
+
 **Seahawks, Julian Love agree to 3-year extension**\
 `Love was a Pro Bowl selection last season after starting 12 of 17 games.`\
 https://nytimes.com/athletic/5657127/2024/07/24/julian-love-seahawks-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5657018/2024/07/24/raiders-training-camp-qb-battle-
 **With Cubs trending toward selling at trade deadline, players are trying to rise above rumors**\
 `“We’re doing a good job of not paying too much attention to it,” Justin Steele said.`\
 https://nytimes.com/athletic/5657017/2024/07/24/cubs-selling-trade-deadline-rumors/
-
-**Here’s the latest on the president’s address.**\
-`By Michael D. Shear`\
-https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/biden-speech-oval-office
 
