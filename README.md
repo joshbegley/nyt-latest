@@ -1,3 +1,11 @@
+**Full Transcript of Biden’s Speech on Ending His Run for Re-election**\
+`“The best way forward is to pass the torch to a new generation,” the president said in a rare Oval Office address. And he told voters, “History is in your hands.”`\
+https://nytimes.com/2024/07/24/us/politics/biden-speech-transcript.html
+
+**In Alex Cora, Red Sox retain the one constant through a period of whiplash**\
+`It’s been hard to know where ownership stands on anything the last several years, except for the manager. This has long been Cora’s team.`\
+https://nytimes.com/athletic/5657229/2024/07/24/red-sox-alex-cora-three-year-contract-analysis/
+
 **Biden Says It Is Time to Step Aside for a Fresh, Younger Voice**\
 `In an Oval Office address, President Biden praised Vice President Kamala Harris and said “it’s been the privilege of my life to serve this nation for over 50 years.”`\
 https://nytimes.com/2024/07/24/us/politics/biden-address.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5657118/2024/07/24/mets-christian-scott-injury/
 **This Was the Message Netanyahu Took to Congress**\
 `Here are six takeaways from Prime Minister Benjamin Netanyahu’s speech to U.S. lawmakers.`\
 https://nytimes.com/2024/07/24/world/middleeast/netanyahu-congress-speech-takeaways.html
-
-**Raiders training camp: Quarterback battle likely to come down to the preseason games**\
-`Antonio Pierce says there's no timetable on selecting a starting QB and it will likely come down to the Raiders' three preseason games.`\
-https://nytimes.com/athletic/5657018/2024/07/24/raiders-training-camp-qb-battle-minshew-oconnell/
-
-**With Cubs trending toward selling at trade deadline, players are trying to rise above rumors**\
-`“We’re doing a good job of not paying too much attention to it,” Justin Steele said.`\
-https://nytimes.com/athletic/5657017/2024/07/24/cubs-selling-trade-deadline-rumors/
 
