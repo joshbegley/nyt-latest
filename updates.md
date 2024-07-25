@@ -1,3 +1,15 @@
+**The Kamala Harris Vibe Shift**\
+`For many Democrats, a race that felt like a dispiriting slog suddenly feels light. Even hopeful.`\
+https://nytimes.com/2024/07/25/us/politics/kamala-harris-biden-poll.html
+
+**Dehner Jr: Thoughts on Ja’Marr Chase’s absence, rise of Iosivas, teachable moments**\
+`Zac Taylor says there's a plan for the star wide receiver as Chase sits out the first two days of camp.`\
+https://nytimes.com/athletic/5659546/2024/07/25/jamarr-chase-bengals-camp-absence/
+
+**What Harris’s First Campaign Ad Reveals About Her Candidacy**\
+`She will try to present herself both as a fresh new voice and as an incumbent.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/kamala-harris-campaign-ad
+
 **49ers training camp: Brandon Aiyuk and John Lynch watch good DB play together**\
 `While Aiyuk's hold-in continues, he was on the field to watch the entirety of Thursday's practice — including the first chunk with Lynch. `\
 https://nytimes.com/athletic/5659090/2024/07/25/49ers-training-camp-brandon-aiyuk-john-lynch-malik-mustapha/

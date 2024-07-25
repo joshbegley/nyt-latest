@@ -1,3 +1,11 @@
+**The Kamala Harris Vibe Shift**\
+`For many Democrats, a race that felt like a dispiriting slog suddenly feels light. Even hopeful.`\
+https://nytimes.com/2024/07/25/us/politics/kamala-harris-biden-poll.html
+
+**Dehner Jr: Thoughts on Ja’Marr Chase’s absence, rise of Iosivas, teachable moments**\
+`Zac Taylor says there's a plan for the star wide receiver as Chase sits out the first two days of camp.`\
+https://nytimes.com/athletic/5659546/2024/07/25/jamarr-chase-bengals-camp-absence/
+
 **49ers training camp: Brandon Aiyuk and John Lynch watch good DB play together**\
 `While Aiyuk's hold-in continues, he was on the field to watch the entirety of Thursday's practice — including the first chunk with Lynch. `\
 https://nytimes.com/athletic/5659090/2024/07/25/49ers-training-camp-brandon-aiyuk-john-lynch-malik-mustapha/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/5659090/2024/07/25/49ers-training-camp-brandon-aiyu
 https://nytimes.com/athletic/5659272/2024/07/25/blue-jays-trade-deadline-starting-pitching/
 
 **What Harris’s First Campaign Ad Reveals About Her Candidacy**\
-`Candidate Harris will try to present herself both as a new, fresh voice and as an incumbent.`\
+`She will try to present herself both as a fresh new voice and as an incumbent.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/kamala-harris-campaign-ad
 
 **U.S. Indicts North Korean in Ransomware Attacks and Theft of Military Data**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/25/opinion/kamala-harris-jd-vance.html
 **Browns coach Kevin Stefanski to keep play-calling duties**\
 `Stefanski said OC Ken Dorsey will be "the main voice" with the QBs, and play calling and game planning will be done collaboratively. `\
 https://nytimes.com/athletic/5659494/2024/07/25/browns-kevin-stefanski-offensive-play-caller/
-
-**Scenes From the Front Lines as Wildfires Rage in Canada and the West**\
-`Fires burned hundreds of thousands of acres in California, Oregon and Alberta, causing evacuations and blanketing cities in smoke.`\
-https://nytimes.com/2024/07/25/world/canada/wildfires-canada-california.html
-
-**QB Dillon Gabriel talked with Ohio State before Oregon commitment**\
-`Before making his commitment to Oregon, transfer quarterback Dillon Gabriel said he spoke with two other programs, including Ohio State.`\
-https://nytimes.com/athletic/5659428/2024/07/25/dillon-gabriel-ohio-state-conversation-oregon/
 
