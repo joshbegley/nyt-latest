@@ -10,7 +10,7 @@ https://nytimes.com/2024/07/25/well/mind/child-free-adults-pew-study.html
 `Prosecutors said the teacher, who worked for Saint Ann’s School in Brooklyn, lured students from four different schools to share explicit images with him via social media.`\
 https://nytimes.com/2024/07/25/nyregion/saint-anns-winston-nguyen-sexual-images.html
 
-**Submit your New York Rangers questions for Peter Baugh's mailbag**\
+**Submit your New York Rangers mailbag questions**\
 `Your questions may be used for an upcoming Rangers mailbag.`\
 https://nytimes.com/athletic/5658281/2024/07/25/ny-rangers-mailbag-prompt-peter-baugh/
 
