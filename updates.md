@@ -1,3 +1,19 @@
+**In a World of Fast Fashion, They Take Pride in Taking Their Time**\
+`Some younger people have become obsessed with learning old-fashioned hand crafts like leather-making, millinery and lacework.`\
+https://nytimes.com/2024/07/25/nyregion/hand-craft-evan-o-hara-janos-papai.html
+
+**The revival of Richard Bland: Inside the late-career resurgence of the LIV standout**\
+`Bland won his first two senior major starts but is skipping the Senior Open in Carnoustie to play in LIV's England event.`\
+https://nytimes.com/athletic/5656756/2024/07/25/richard-bland-liv-senior-major-golf/
+
+**Gun-Detecting Technology Will Soon Appear in Subway System**\
+`A set of weapon-screening devices will be deployed at various stations over the course of a month.`\
+https://nytimes.com/2024/07/25/nyregion/gun-detecting-technology-nyc-subway.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/25/crosswords/spelling-bee-forum.html
+
 **Dodgers' Chris Taylor likely going on IL with groin tightness**\
 `The news comes just hours after the Dodgers placed shortstop Miguel Rojas on the injured list.`\
 https://nytimes.com/athletic/5657501/2024/07/25/chris-taylor-dodgers-injuries/
