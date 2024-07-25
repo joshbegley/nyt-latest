@@ -1,3 +1,7 @@
+**The Bounce: Your 2024 Olympic basketball primer**\
+`Zach Harper catches you up on league-wide news.`\
+https://nytimes.com/athletic/5658040/2024/07/25/olympic-basketball-nba-media-rights-tnt-the-bounce/
+
 **Move Over, Mathematicians, Here Comes AlphaProof**\
 `A.I. is getting good at math — and might soon make a worthy collaborator for humans.`\
 https://nytimes.com/2024/07/25/science/ai-math-alphaproof-deepmind.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/25/health/breast-cancer-double-mastectomy-study.html
 **This Ratatouille Always Sticks the Landing**\
 `Melissa Clark’s five-star recipe turns summer’s vibrant produce — tomatoes, eggplant, zucchini and peppers — into a must-eat French delight.`\
 https://nytimes.com/2024/07/25/dining/ratatouille.html
-
-**Why the Olympics’ Parade of Nations Is the World’s Costume Party**\
-`When the athletes march in — or float in, as they will in Paris on Friday — you can enjoy the illusion that it’s a small world after all.`\
-https://nytimes.com/2024/07/25/arts/television/olympics-parade-nations-opening-ceremony.html
 
