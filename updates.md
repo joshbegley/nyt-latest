@@ -1,3 +1,7 @@
+**‘Ready, Steady, Slow’: Championship Snail Racing at 0.006 M.P.H.**\
+`Last one to the finish line is a miserable slug.`\
+https://nytimes.com/card/2024/07/25/science/snail-racing
+
 **Until Saturday: DeShaun Foster made his Big Ten debut, while drama continues in ACC**\
 `Welcome to Until Saturday, the five-star college football newsletter: Foster made his Big Ten debut while the ACC's drama continues.`\
 https://nytimes.com/athletic/5657030/2024/07/25/deshaun-foster-pat-mcafee-acc-media-days-until-saturday/

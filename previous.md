@@ -20,7 +20,7 @@ https://nytimes.com/athletic/5657923/2024/07/25/usc-football-big-ten-nil-recruit
 
 **‘Ready, Steady, Slow’: Championship Snail Racing at 0.006 M.P.H.**\
 `Last one to the finish line is a miserable slug.`\
-https://nytimes.com/card/2024/07/25/science/20240725-sciencesnails-racing-competitionhtml
+https://nytimes.com/card/2024/07/25/science/snail-racing
 
 **Robbie Ray dazzles with five hitless innings in Giants debut: 'I knew that my stuff was going to play'**\
 `Ray needed an inning to channel his adrenaline, but once he got a handle on his stuff, it was as suffocating as ever.`\
