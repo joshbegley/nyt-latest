@@ -1,3 +1,7 @@
+**Bills training camp: Khalil Shakir a model of consistency, and more**\
+`Plus, Curtis Samuel is proving his versatility and DE2 could be up for grabs.`\
+https://nytimes.com/athletic/5659181/2024/07/25/buffalo-bills-training-camp-khalil-shakir-joe-brady-curtis-samuel/
+
 **Israeli forces press forward in Khan Younis. At least 30 people are reported killed in 24 hours.**\
 `By Anjana Sankar`\
 https://nytimes.com/live/2024/07/25/world/israel-gaza-war-hamas-netanyahu/israeli-forces-press-forward-in-khan-younis-at-least-30-people-are-reported-killed-in-24-hours
@@ -18,7 +22,7 @@ https://nytimes.com/live/2024/07/22/opinion/thepoint/trump-sexual-misconduct
 `Plus, a new poll shows Kamala Harris closing in on Donald Trump.`\
 https://nytimes.com/2024/07/25/briefing/olympics-paris-trump-harris-poll.html
 
-**USWNT 3-0 Zambia takeaways: Rodman, Swanson score to help U.S. win Olympic opener**\
+**USWNT 3-0 Zambia takeaways: Rodman and Swanson score to help win Olympic opener**\
 `The U.S. opened its Olympic tournament with a win. Here's how it happened...`\
 https://nytimes.com/athletic/5659018/2024/07/25/uswnt-zambia-takeaways-rodman-swanson/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5659268/2024/07/25/michigan-ohio-state-sherrone-moo
 **Obama Has Been in Touch With Harris and Is Expected to Endorse Her Soon**\
 `Former President Barack Obama had been reluctant to endorse Ms. Harris too quickly, to avoid the perception that he was overseeing her coronation, people familiar with his thinking say.`\
 https://nytimes.com/2024/07/25/us/politics/obama-harris-endorsement.html
-
-**Mayor of London calls for Premier League games to be played in the U.S.**\
-`The Mayor of London Sadiq Khan has called for Premier League games to be played in the United States.`\
-https://nytimes.com/athletic/5659282/2024/07/25/premier-league-games-united-states-america/
 
