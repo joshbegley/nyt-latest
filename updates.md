@@ -1,3 +1,15 @@
+**What Rupert Murdoch Owns, and How He Built His Media Empire**\
+`Over seven decades, the Australian-born magnate assembled an array of news outlets, book publishers, and film and television properties into a global behemoth.`\
+https://nytimes.com/2024/07/25/business/rupert-murdoch-empire.html
+
+**Bob Booker, Whose J.F.K. Parody Was a Runaway Hit, Dies at 91**\
+`Most record companies didn’t think “The First Family,” which he and his writing partner created, was a good idea. It went on to become the fastest-selling album of the pre-Beatles era.`\
+https://nytimes.com/2024/07/25/arts/bob-booker-dead.html
+
+**With Speech to Teachers, Harris Waded into a Fiery Education Debate**\
+`Kamala Harris has been a longtime ally of teachers’ unions, even when their positions have divided the Democratic coalition.`\
+https://nytimes.com/2024/07/25/us/with-speech-to-teachers-harris-wades-into-a-fiery-education-debate.html
+
 **The Bounce: Your 2024 Olympic basketball primer**\
 `Zach Harper catches you up on league-wide news.`\
 https://nytimes.com/athletic/5658040/2024/07/25/olympic-basketball-nba-media-rights-tnt-the-bounce/
