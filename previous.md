@@ -1,3 +1,7 @@
+**Seahawks training camp: Geno Smith's sharp start and more observations from Day 1**\
+`Smith was really feeling it on Day 1 of camp. Meanwhile, Abe Lucas remains without a timetable for a return from his knee injury.`\
+https://nytimes.com/athletic/5657042/2024/07/24/seahawks-training-camp-notes-observations/
+
 **Mets' Christian Scott hopes to avoid surgery with rest and rehab for right elbow**\
 `Losing Scott even for the next few weeks is a blow to a Mets rotation about to welcome Kodai Senga back.`\
 https://nytimes.com/athletic/5657118/2024/07/24/mets-christian-scott-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/24/arts/music/toumani-diabate-dead.html
 **Chargers training camp: Quentin Johnston's strong start, Cam Hart makes play of the day**\
 `Jim Harbaugh on the first day of Chargers training camp: “It feels like being born. It feels like coming out of the womb."`\
 https://nytimes.com/athletic/5656871/2024/07/24/chargers-training-camp-quentin-johnston-cam-hart/
-
-**In Memory of My Husband, Dan**\
-`One of the great joys of a long marriage is how the personal and pragmatic moosh together.`\
-https://nytimes.com/2024/07/24/opinion/dan-collins-gail-obit-marriage.html
 

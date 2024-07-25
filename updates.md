@@ -1,3 +1,7 @@
+**Seahawks training camp: Geno Smith's sharp start and more observations from Day 1**\
+`Smith was really feeling it on Day 1 of camp. Meanwhile, Abe Lucas remains without a timetable for a return from his knee injury.`\
+https://nytimes.com/athletic/5657042/2024/07/24/seahawks-training-camp-notes-observations/
+
 **Mets' Christian Scott hopes to avoid surgery with rest and rehab for right elbow**\
 `Losing Scott even for the next few weeks is a blow to a Mets rotation about to welcome Kodai Senga back.`\
 https://nytimes.com/athletic/5657118/2024/07/24/mets-christian-scott-injury/
