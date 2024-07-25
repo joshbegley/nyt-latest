@@ -1,3 +1,7 @@
+**Child Online Safety Bill Scales Senate Hurdle, but Fate Remains Uncertain**\
+`The bipartisan legislation would impose stricter privacy rules and safeguards for children on the internet and social media, but free speech concerns and fierce industry lobbying pose obstacles.`\
+https://nytimes.com/2024/07/25/us/politics/child-online-safety-bill-senate.html
+
 **Passengers Loved Southwest Airlines’ Open Boarding. Now What?**\
 `On Thursday, the airline announced it would eliminate a boarding process that allowed passengers to choose their seats. Many Southwest fans were not happy — and expressed worry that more changes might be coming.`\
 https://nytimes.com/2024/07/25/travel/southwest-open-boarding-change-reactions.html
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/5658365/2024/07/25/garrett-crochet-trade-possible-p
 `Twice this week, global temperatures broke records, but scientists are more concerned about a longer-term pattern of hotter weather.`\
 https://nytimes.com/2024/07/25/climate/earths-hottest-days-ever.html
 
-**Colts plan to let QB Anthony Richardson run: 'Are you gonna limit Steph Curry from shooting 3s'?**\
+**Colts plan to let QB Anthony Richardson run: 'Are you gonna limit Steph Curry from shooting 3s?'**\
 `Richardson: “My legs (have) always been one of my superpowers. (Taking) that away from me, I don’t think that’s a good thing."`\
 https://nytimes.com/athletic/5658943/2024/07/25/anthony-richardson-colts-run-steph-curry/
-
-**A Lot of Major Shifts Beneath the Surface in a New Trump-Harris Poll**\
-`The changes among groups cancel out for now, and Trump leads narrowly, but there’s a tie when candidates like Kennedy Jr. are considered.`\
-https://nytimes.com/2024/07/25/upshot/poll-kamala-harris-trump.html
 
