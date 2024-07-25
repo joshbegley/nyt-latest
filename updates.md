@@ -1,3 +1,7 @@
+**Padres offense makes statement in 12-3 comeback win as trade deadline approaches**\
+`The Padres immediately erased a three-run deficit on their way to a comeback win, the kind of response that doubled as a statement.`\
+https://nytimes.com/athletic/5657457/2024/07/24/padres-nationals-comeback-statement-win/
+
 **Blue Jays' Kevin Kiermaier plans to retire after season**\
 `Kiermaier cited concerns about how he feels physically as well as wanting to spend more time with his family.`\
 https://nytimes.com/athletic/5657414/2024/07/24/kevin-kiermaier-retirement-mlb-blue-jays/
