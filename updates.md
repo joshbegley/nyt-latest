@@ -1,3 +1,7 @@
+**4 Mets takeaways from their five-homer demolishing of the Yankees**\
+`The Mets got two homers from Francisco Lindor and one each from Tyrone Taylor, Pete Alonso and Mark Vientos as they roughed up Gerrit Cole.`\
+https://nytimes.com/athletic/5657482/2024/07/25/mets-yankees-francisco-lindor/
+
 **Mitoma is on the road to recovery in Japan - and Brighton are making the most of it**\
 `The winger was injured for the end of the 2023-24 season and his absence coincided with a poor run of results. His return is welcomed`\
 https://nytimes.com/athletic/5631051/2024/07/25/mitoma-brighton-japan-recovery/
