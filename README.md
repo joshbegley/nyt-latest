@@ -1,7 +1,3 @@
-**Biden Says It Is Time to Step Aside for a Fresh, Younger Voice**\
-`In an Oval Office address, President Biden praised Vice President Kamala Harris and said “it’s been the privilege of my life to serve this nation for over 50 years.”`\
-https://nytimes.com/2024/07/24/us/politics/biden-address.html
-
 **Seahawks, Julian Love agree to 3-year extension**\
 `Love was a Pro Bowl selection last season after starting 12 of 17 games.`\
 https://nytimes.com/athletic/5657127/2024/07/24/julian-love-seahawks-extension/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5657017/2024/07/24/cubs-selling-trade-deadline-rumo
 **Here’s the latest on the president’s address.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/biden-speech-oval-office
+
+**Trump Attacks Harris as ‘Radical’ in First Rally Since Her Ascent**\
+`The Trump campaign has sought to tie Vice President Kamala Harris to unpopular Biden administration policies and paint her as too liberal for independent or moderate voters.`\
+https://nytimes.com/2024/07/24/us/politics/trump-rally-kamala-harris.html
 
