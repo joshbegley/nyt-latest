@@ -1,3 +1,7 @@
+**Robbie Ray dazzles with five hitless innings in Giants debut: 'I knew that my stuff was going to play'**\
+`Ray needed an inning to channel his adrenaline, but once he got a handle on his stuff, it was as suffocating as ever.`\
+https://nytimes.com/athletic/5657651/2024/07/25/robbie-ray-sf-giants-debut/
+
 **Teachers, How Do You Handle Classroom Conversations About Hot-Button Issues?**\
 `What has worked? What has been difficult? We’d love to hear from educators at all levels and across subject areas.`\
 https://nytimes.com/2024/07/25/learning/teachers-how-do-you-handle-classroom-conversations-about-hot-button-issues.html
