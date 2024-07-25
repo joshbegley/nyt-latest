@@ -1,3 +1,11 @@
+**Fantasy football draft strategy primer: Hero RB, bully TE, early QB, value-based drafting and more**\
+`When it comes to building out a fantasy football team, there's more than one way to skin a cat, and Theo Gremminger explains those options.`\
+https://nytimes.com/athletic/5657121/2024/07/25/fantasy-football-draft-strategy-options-zero-hero-rb/
+
+**The Briefing: Arsenal 1-1 Bournemouth - Implications of Smith Rowe exit, Vieira scores, Nwaneri impresses**\
+`James McNicholas addresses the main talking points from Arsenal's friendly draw against Bournemouth`\
+https://nytimes.com/athletic/5655378/2024/07/25/arsenal-bournemouth-friendly-analysis/
+
 **4 Mets takeaways from their five-homer demolishing of the Yankees**\
 `The Mets got two homers from Francisco Lindor and one each from Tyrone Taylor, Pete Alonso and Mark Vientos as they roughed up Gerrit Cole.`\
 https://nytimes.com/athletic/5657482/2024/07/25/mets-yankees-francisco-lindor/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5650155/2024/07/25/liverpool-firmino-keita-milner-o
 **A history of spying in football: Drones, interns at training and kit men in ceilings**\
 `Canada's Olympic women's football team have been caught in a spying scandal. Here's a history of such skullduggery in that sport and others`\
 https://nytimes.com/athletic/5655833/2024/07/25/canada-olympic-spying-history-soccer-football/
-
-**Thursday Briefing**\
-`Why Biden quit the race.`\
-https://nytimes.com/2024/07/25/briefing/thursday-briefing.html
-
-**The Briefing: Chelsea 2-2 Wrexham - Draw in Maresca's first game, Nkunku scores, inverted full-backs**\
-`Simon Johnson addresses the main talking points from Chelsea's pre-season friendly draw against Wrexham`\
-https://nytimes.com/athletic/5655375/2024/07/25/chelsea-wrexham-friendly-analysis/
 
