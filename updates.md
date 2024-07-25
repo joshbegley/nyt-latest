@@ -1,3 +1,23 @@
+**Steelers training camp: Justin Fields up and down in surprise opportunity as QB1**\
+`Yes, Fields made some terrific plays, but he also had some big mistakes, with Russell Wilson watching on the first day of training camp.`\
+https://nytimes.com/athletic/5658732/2024/07/25/justin-fields-russell-wilson-steelers-training-camp/
+
+**JD Vance’s ‘Cat Ladies’ Riff Has Serious ‘Handmaid’s Tale’ Vibes**\
+`The far right wants to turn the clock back on women’s rights.`\
+https://nytimes.com/2024/07/25/opinion/kamala-harris-jd-vance.html
+
+**Browns coach Kevin Stefanski to keep play-calling duties**\
+`Stefanski said OC Ken Dorsey will be "the main voice" with the QBs, and play calling and game planning will be done collaboratively. `\
+https://nytimes.com/athletic/5659494/2024/07/25/browns-kevin-stefanski-offensive-play-caller/
+
+**Scenes From the Front Lines as Wildfires Rage in Canada and the West**\
+`Fires burned hundreds of thousands of acres in California, Oregon and Alberta, causing evacuations and blanketing cities in smoke.`\
+https://nytimes.com/2024/07/25/world/canada/wildfires-canada-california.html
+
+**QB Dillon Gabriel talked with Ohio State before Oregon commitment**\
+`Before making his commitment to Oregon, transfer quarterback Dillon Gabriel said he spoke with two other programs, including Ohio State.`\
+https://nytimes.com/athletic/5659428/2024/07/25/dillon-gabriel-ohio-state-conversation-oregon/
+
 **Raiders training camp: A fire is lit, while quarterbacks get off to a cold start**\
 `Linebacker Robert Spillane doesn't like the prognostications about the Raiders: "“I’m angry. ... And of course, that adds fuel to the fire."`\
 https://nytimes.com/athletic/5659358/2024/07/25/raiders-training-camp-quarterback-struggles/

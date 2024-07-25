@@ -1,3 +1,23 @@
+**Steelers training camp: Justin Fields up and down in surprise opportunity as QB1**\
+`Yes, Fields made some terrific plays, but he also had some big mistakes, with Russell Wilson watching on the first day of training camp.`\
+https://nytimes.com/athletic/5658732/2024/07/25/justin-fields-russell-wilson-steelers-training-camp/
+
+**JD Vance’s ‘Cat Ladies’ Riff Has Serious ‘Handmaid’s Tale’ Vibes**\
+`The far right wants to turn the clock back on women’s rights.`\
+https://nytimes.com/2024/07/25/opinion/kamala-harris-jd-vance.html
+
+**Browns coach Kevin Stefanski to keep play-calling duties**\
+`Stefanski said OC Ken Dorsey will be "the main voice" with the QBs, and play calling and game planning will be done collaboratively. `\
+https://nytimes.com/athletic/5659494/2024/07/25/browns-kevin-stefanski-offensive-play-caller/
+
+**Scenes From the Front Lines as Wildfires Rage in Canada and the West**\
+`Fires burned hundreds of thousands of acres in California, Oregon and Alberta, causing evacuations and blanketing cities in smoke.`\
+https://nytimes.com/2024/07/25/world/canada/wildfires-canada-california.html
+
+**QB Dillon Gabriel talked with Ohio State before Oregon commitment**\
+`Before making his commitment to Oregon, transfer quarterback Dillon Gabriel said he spoke with two other programs, including Ohio State.`\
+https://nytimes.com/athletic/5659428/2024/07/25/dillon-gabriel-ohio-state-conversation-oregon/
+
 **Raiders training camp: A fire is lit, while quarterbacks get off to a cold start**\
 `Linebacker Robert Spillane doesn't like the prognostications about the Raiders: "“I’m angry. ... And of course, that adds fuel to the fire."`\
 https://nytimes.com/athletic/5659358/2024/07/25/raiders-training-camp-quarterback-struggles/
@@ -17,24 +37,4 @@ https://nytimes.com/live/2024/07/25/us/harris-trump-biden-election/the-main-supe
 **Judge John Hodgman on Proper Garbage-Disposal Use**\
 `Can potato peels “wear out” the dark, bladed maw that lives in your sink?`\
 https://nytimes.com/2024/07/25/magazine/judge-john-hodgman-on-proper-garbage-disposal-use.html
-
-**Woman Sentenced to 41 Months for Blocking Entrance to Planned Parenthood**\
-`Bevelyn Beatty Williams, an anti-abortion activist, physically confronted patients in 2020 as they tried to enter a health clinic in Manhattan, prosecutors said.`\
-https://nytimes.com/2024/07/25/nyregion/planned-parenthood-woman-sentenced.html
-
-**Astros among teams expressing interest in trading for Cubs pitcher Jameson Taillon: Sources**\
-`Taillon, 32, has posted a 2.96 ERA in 17 starts`\
-https://nytimes.com/athletic/5659506/2024/07/25/astros-cubs-jameson-taillon-trade/
-
-**Real Madrid U.S tour squad: Endrick and Vinicius in, Mbappe and Bellingham miss out**\
-`Real Madrid will be without Kylian Mbappe and Jude Bellingham for their tour of the United States.`\
-https://nytimes.com/athletic/5659421/2024/07/25/real-madrid-u-s-tour-squad/
-
-**Raiders mock Patrick Mahomes with 'Kermit the Frog' doll**\
-`A video circulated Thursday of Raiders safety Trey Taylor holding a fan's "Kermit the Frog" doll donning a Patrick Mahomes jersey and wig.`\
-https://nytimes.com/athletic/5659431/2024/07/25/raiders-mock-patrick-mahomes-with-kermit-the-frog-doll-at-training-camp/
-
-**Harris Bets Her Ties to Teachers’ Unions Will Help Her. Republicans Hope Otherwise.**\
-`Republicans are already seeking to link Vice President Kamala Harris to pandemic school closures, which local teachers’ unions pushed to extend.`\
-https://nytimes.com/2024/07/25/us/kamala-harris-teachers-education.html
 
