@@ -1,3 +1,11 @@
+**Biden Says It’s Time to ‘Pass the Torch’ to a New Generation**\
+`Speaking from the Resolute Desk in the Oval Office, President Biden defended his record and celebrated the vice president, Kamala Harris, saying it’s time for new, younger voices to lead the country.`\
+https://nytimes.com/video/us/elections/100000009591459/biden-2024-election-pass-torch.html
+
+**Dodgers sign Nick Ahmed to 'lock down shortstop'**\
+`Ahmed, a two-time Gold Glove winner, stayed in shape at his Arizona home after being released by the Giants two weeks ago.`\
+https://nytimes.com/athletic/5657246/2024/07/24/dodgers-nick-ahmed-miguel-rojas/
+
 **Full Transcript of Biden’s Speech on Ending His Run for Re-election**\
 `“The best way forward is to pass the torch to a new generation,” the president said in a rare Oval Office address. And he told voters, “History is in your hands.”`\
 https://nytimes.com/2024/07/24/us/politics/biden-speech-transcript.html

@@ -1,3 +1,11 @@
+**Biden Says It’s Time to ‘Pass the Torch’ to a New Generation**\
+`Speaking from the Resolute Desk in the Oval Office, President Biden defended his record and celebrated the vice president, Kamala Harris, saying it’s time for new, younger voices to lead the country.`\
+https://nytimes.com/video/us/elections/100000009591459/biden-2024-election-pass-torch.html
+
+**Dodgers sign Nick Ahmed to 'lock down shortstop'**\
+`Ahmed, a two-time Gold Glove winner, stayed in shape at his Arizona home after being released by the Giants two weeks ago.`\
+https://nytimes.com/athletic/5657246/2024/07/24/dodgers-nick-ahmed-miguel-rojas/
+
 **Full Transcript of Biden’s Speech on Ending His Run for Re-election**\
 `“The best way forward is to pass the torch to a new generation,” the president said in a rare Oval Office address. And he told voters, “History is in your hands.”`\
 https://nytimes.com/2024/07/24/us/politics/biden-speech-transcript.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5657120/2024/07/24/deshaun-foster-big-ten-media-day
 **Seahawks training camp: Geno Smith's sharp start and more observations from Day 1**\
 `Smith was really feeling it on Day 1 of camp. Meanwhile, Abraham Lucas remains without a timetable for a return from his knee injury.`\
 https://nytimes.com/athletic/5657042/2024/07/24/seahawks-training-camp-notes-observations/
-
-**Mets' Christian Scott hopes to avoid surgery with rest and rehab for right elbow**\
-`Losing Scott even for the next few weeks is a blow to a Mets rotation about to welcome Kodai Senga back.`\
-https://nytimes.com/athletic/5657118/2024/07/24/mets-christian-scott-injury/
-
-**This Was the Message Netanyahu Took to Congress**\
-`Here are six takeaways from Prime Minister Benjamin Netanyahu’s speech to U.S. lawmakers.`\
-https://nytimes.com/2024/07/24/world/middleeast/netanyahu-congress-speech-takeaways.html
 
