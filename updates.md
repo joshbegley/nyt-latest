@@ -1,3 +1,7 @@
+**Hochul Faces 2 New Lawsuits Over Her Decision to Halt Congestion Pricing**\
+`The lawsuits are among the first legal efforts aiming to force Gov. Kathy Hochul to move forward with the tolling program as planned.`\
+https://nytimes.com/2024/07/25/nyregion/kathy-hochul-congestion-pricing-lawsuit.html
+
 **OpenAI Is Testing an A.I.-Powered Search Engine**\
 `The prominent A.I. start-up said it planned to eventually fold the new technology into its popular online chatbot, ChatGPT.`\
 https://nytimes.com/2024/07/25/technology/openai-ai-search-engine.html
