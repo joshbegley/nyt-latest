@@ -1,3 +1,7 @@
+**Obama Has Been in Touch With Harris and Is Expected to Endorse Her Soon**\
+`Former President Barack Obama had been reluctant to endorse Ms. Harris too quickly, to avoid the perception that he was overseeing her coronation, people familiar with his thinking say.`\
+https://nytimes.com/2024/07/25/us/politics/obama-harris-endorsement.html
+
 **Mayor of London calls for Premier League games to be played in the U.S.**\
 `The Mayor of London Sadiq Khan has called for Premier League games to be played in the United States.`\
 https://nytimes.com/athletic/5659282/2024/07/25/premier-league-games-united-states-america/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/25/books/review/6-new-books-we-recommend-this-week.h
 **Breaking in New Sports at the Olympics**\
 `Breaking, sport climbing and skateboarding may seem untraditional, but they embody the true spirit of the games.`\
 https://nytimes.com/interactive/2024/07/25/magazine/olympics-breaking-sports-history.html
-
-**Have the Olympics Ever Been This Dangerous?**\
-`Teahupo'o has one of the deadliest surf breaks in the world. Athletes could face waves up to 50 feet.`\
-https://nytimes.com/interactive/2024/07/25/magazine/olympics-surfing-teahupoo-french-polynesia.html
 
