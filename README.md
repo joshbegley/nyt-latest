@@ -1,3 +1,15 @@
+**On Immigration, Harris Is a Bit of a Chameleon**\
+`She has championed the rights of undocumented kids and thrown the book at undocumented criminals.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/harris-immigration-record
+
+**Olympics tennis betting odds: Swiatek, Alcaraz enter as clear favorites on clay**\
+`Coco Gauff, Iga Swiatek, Carlos Alcaraz, Rafael Nadal and Novak Djokovic are all among the favorites to win gold in Paris.`\
+https://nytimes.com/athletic/5655694/2024/07/25/olympics-tennis-betting-odds-swiatek-alcaraz/
+
+**The U.S. has sent thousands of bombs and missiles to Israel, a report found.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2024/07/25/world/israel-gaza-war-hamas-netanyahu/the-us-has-sent-thousands-of-bombs-and-missiles-to-israel-a-report-found
+
 **China Rules Solar Energy, but Its Industry at Home Is in Trouble**\
 `The solar sector shows how China conducts industrial policy: It chooses industries to dominate, floods them with loans and lets companies fight it out.`\
 https://nytimes.com/2024/07/25/business/china-solar-energy.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5658588/2024/07/25/igor-thiago-injury-brentford-ton
 **Jack Nelson didn't have the season he expected in 2023. That's why he's back for more at Wisconsin**\
 `Nelson knows he has more to prove after leading the Big Ten in penalties in 2023. So he delayed his NFL Draft hopes and is back in Madison.`\
 https://nytimes.com/athletic/5658558/2024/07/25/jack-nelson-wisconsin-college-football-nfl/
-
-**Pop the Cork? A Shipwreck Brims With Unopened Sparkling Wine**\
-`Polish divers think they have found cases of Champagne on a 19th-century merchant vessel that sank off Sweden.`\
-https://nytimes.com/2024/07/25/world/europe/pop-the-cork-a-shipwreck-brims-with-unopened-sparkling-wine.html
-
-**Lowetide: Oilers' Stan Bowman hire continues familiar pattern in GM history**\
-`The Oilers organization's version of best practices in hiring a general manager has never wavered.`\
-https://nytimes.com/athletic/5655760/2024/07/25/stan-bowman-edmonton-oilers-gm-history/
-
-**Strong Women Are Driving Donald Trump Crazy**\
-`Against the former misogynist in chief, Kamala Harris’s gender is an asset.`\
-https://nytimes.com/2024/07/25/opinion/kamala-harris-trump-pelosi.html
 
