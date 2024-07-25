@@ -1,3 +1,23 @@
+**Why are Man City willing to sell Ederson - and why does he want to go?**\
+`City could sell Ederson this summer — and there is a reason the goalkeeper might want to leave the Etihad Stadium`\
+https://nytimes.com/athletic/5655283/2024/07/25/ederson-manchester-city-future-transfer/
+
+**Toby Collyer has impressed in Man Utd's pre-season - can he follow in Mainoo's footsteps?**\
+`The 20-year-old midfielder has been impressive this summer and is likely to feature in the first-team picture for a while longer`\
+https://nytimes.com/athletic/5641512/2024/07/25/toby-collyer-pre-season-performances/
+
+**Could Tottenham's Asia tour be the platform for Will Lankshear's breakout season?**\
+`The 19-year-old striker has spent pre-season with Tottenham's senior squad, now he must prove he is worthy of staying there`\
+https://nytimes.com/athletic/5650357/2024/07/25/will-lankshear-tottenham/
+
+**Firmino, Keita, Milner and the Ox, one year on: What do their futures hold?**\
+`A year since four of Anfield's biggest stars departed, what has happened to them - and where could they go next?`\
+https://nytimes.com/athletic/5650155/2024/07/25/liverpool-firmino-keita-milner-oxlade-chamberlain/
+
+**A history of spying in football: Drones, interns at training and kit men in ceilings**\
+`Canada's Olympic women's football team have been caught in a spying scandal. Here's a history of such skullduggery in that sport and others`\
+https://nytimes.com/athletic/5655833/2024/07/25/canada-olympic-spying-history-soccer-football/
+
 **Thursday Briefing**\
 `Why Biden quit the race.`\
 https://nytimes.com/2024/07/25/briefing/thursday-briefing.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5655551/2024/07/25/womens-football-olympics-france/
 **Paris 2024 opening ceremony outfits: USA's jeans, Mongolia's deels and Canada's red on red**\
 `Which country's outfits will be the talk of the Olympic Games' opening ceremony on Friday?`\
 https://nytimes.com/athletic/5652506/2024/07/25/paris-2024-opening-ceremony-outfits-assessed/
-
-**Thursday's MLB odds, best bets: Pitching matchups, playoff odds, props and more**\
-`See pitching matchups, playoff projections, win projections and more for Thursday's MLB games.`\
-https://nytimes.com/athletic/5656657/2024/07/25/mlb-odds-best-bets-projections-july-25/
-
-**U.K.’s Policy on Israel, Long Aligned With America’s, Veers Away**\
-`Britain’s new government is likely to withdraw objections to the International Criminal Court prosecutor’s pursuit of a warrant for Benjamin Netanyahu, two people told The Times.`\
-https://nytimes.com/2024/07/25/world/europe/uk-israel-gaza-war-policy.html
-
-**What a Professor’s Firing Shows About Sexual Harassment in China**\
-`A top Chinese university described the conduct of a professor accused of sexual harassment as a moral failing, language feminists say downplays harm to women.`\
-https://nytimes.com/2024/07/25/world/asia/china-professor-sexual-harassment.html
-
-**The Illicit Flow of Technology to Russia Goes Through This Hong Kong Address**\
-`Defying sanctions, Russia has obtained nearly $4 billion in restricted chips since the war began in Ukraine. Many were shipped through a cluster of shell companies in Hong Kong.`\
-https://nytimes.com/2024/07/25/technology/russia-sanctions-chips.html
-
-**Before Paris, London Showed How the Olympics Could Be Sustainable**\
-`Paris aims to be the most sustainable Olympic Games in history, but it was London over a decade ago that proved host cities didn’t have to end up with empty stadiums in disrepair long after the Games were over.`\
-https://nytimes.com/2024/07/25/business/london-paris-olympic-stadium.html
 
