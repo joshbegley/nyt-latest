@@ -1,3 +1,11 @@
+**West Ham close on deal for Mazrouai from Bayern**\
+`West Ham United are closing in on a deal to sign Bayern Munich defender Noussair Mazrouai.`\
+https://nytimes.com/athletic/5657806/2024/07/25/west-ham-mazrouai-transfer-bayern-munich/
+
+**Possibility and playfulness: How USWNT's next generation is redefining itself**\
+`Youth is a defining aspect of Emma Hayes' first USWNT Olympic roster`\
+https://nytimes.com/athletic/5657035/2024/07/25/uswnt-2024-paris-olympics-womens-soccer/
+
 **‘Only the River Flows’ Review: A Spiraling Murder Investigation**\
 `In this Chinese police procedural, directed by Wei Shujun, solutions are murkier than they first appear.`\
 https://nytimes.com/2024/07/25/movies/only-the-river-flows-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5657172/2024/07/25/olympic-soccer-argentina-morocco
 **A New Insight into Donald Trump’s Rise**\
 `We examine data on economic mobility.`\
 https://nytimes.com/2024/07/25/briefing/a-new-insight-into-donald-trumps-rise.html
-
-**Zambia faces USWNT at the Olympics hoping to cause one of the great upsets**\
-`The Copper Queens have defied the odds to reach a third consecutive major tournament, but beating the U.S. would be the finest moment yet`\
-https://nytimes.com/athletic/5657247/2024/07/25/zambia-uswnt-olympics/
-
-**Angelique Kerber to retire from tennis after Paris Olympics**\
-`The three-time Grand Slam winner Angelique Kerber has announced she will retire from tennis after playing at the Olympic Games in Paris.`\
-https://nytimes.com/athletic/5657671/2024/07/25/angelique-kerber-olympics-retire/
 
