@@ -1,3 +1,11 @@
+**U.S. Indicts North Korean in Ransomware Attacks and Theft of Military Data**\
+`Funds from the ransomware attacks on hospitals subsidized military espionage activities, prosecutors say.`\
+https://nytimes.com/2024/07/25/us/politics/north-korea-ransomware-computer-hacking.html
+
+**Mayor’s Commission Scales Back Plan to Curb City Council’s Power**\
+`New Yorkers will be able to vote on a plan to add 30 days to City Council deliberations on public safety legislation. An earlier plan would have slowed the process further.`\
+https://nytimes.com/2024/07/25/nyregion/new-york-city-charter.html
+
 **Steelers training camp: Justin Fields up and down in surprise opportunity as QB1**\
 `Yes, Fields made some terrific plays, but he also had some big mistakes, with Russell Wilson watching on the first day of training camp.`\
 https://nytimes.com/athletic/5658732/2024/07/25/justin-fields-russell-wilson-steelers-training-camp/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/07/25/smarter-living/wirecutter/clean-purse
 **Trump Urges Netanyahu to End War in Gaza Ahead of Friday Meeting**\
 `The Israeli leader is scheduled to visit Mar-a-Lago in Florida before he returns home.`\
 https://nytimes.com/2024/07/25/world/middleeast/trump-netanyahu-israel-gaza.html
-
-**The main super PAC that backed Biden begins a $50 million ad buy for Harris.**\
-`By Reid J. Epstein`\
-https://nytimes.com/live/2024/07/25/us/harris-trump-biden-election/the-main-super-pac-that-backed-biden-begins-a-50-billion-ad-buy-for-harris
-
-**Judge John Hodgman on Proper Garbage-Disposal Use**\
-`Can potato peels “wear out” the dark, bladed maw that lives in your sink?`\
-https://nytimes.com/2024/07/25/magazine/judge-john-hodgman-on-proper-garbage-disposal-use.html
 
