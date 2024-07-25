@@ -1,3 +1,7 @@
+**Manchester United is a loss-making company - yet 250 people have paid for it with their jobs**\
+`United staff are not at fault for the club's previous mistakes yet have felt the sting with widespread redundancies`\
+https://nytimes.com/athletic/5658467/2024/07/25/manchester-united-job-cuts-loss/
+
 **Overlooked No More: Willy de Bruyn, Cycling Champion Who Broke Gender Boundaries**\
 `A premiere cyclist in women’s competitions, he helped pave the way for future athletes when he announced that he wanted to live the rest of his life as a man.`\
 https://nytimes.com/2024/07/25/obituaries/willy-de-bruyn-overlooked.html
