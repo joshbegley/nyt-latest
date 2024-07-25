@@ -1,3 +1,11 @@
+**Predicting the 2024 Paris Olympics medal count: 7 factors for winningest countries**\
+`Our underdogs experts use a statistical model to predict the winningest countries at the Paris Games, and how many medals they'll win.`\
+https://nytimes.com/athletic/5653490/2024/07/25/olympics-2024-medal-projection-model/
+
+**3 Braves takeaways: Reflections on team meeting, Matt Olson's woeful slump and more**\
+`Braves players tend to address things in smaller groups, so the organized players-only meeting meant something extra. `\
+https://nytimes.com/athletic/5657011/2024/07/25/braves-team-meeting-matt-olson/
+
 **Clemson and Florida State's fit and why we can't quit talking realignment: SEC mailbag**\
 `Which league team, player or coach deserve more hype heading into the season?`\
 https://nytimes.com/athletic/5653971/2024/07/25/sec-realignment-clemson-florida-state/
