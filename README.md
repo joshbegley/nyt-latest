@@ -1,3 +1,27 @@
+**It’s Chigger Season. Here’s What to Know About the Pests.**\
+`The mites, which are commonly found in humid regions, can leave itchy bites all over the skin.`\
+https://nytimes.com/2024/07/25/well/chiggers-bites-symptoms-treatment.html
+
+**Breast Cancer Survival Not Boosted by Double Mastectomy, Study Says**\
+`A large study showed that for most patients, having both breasts removed after cancer was detected in one made no difference.`\
+https://nytimes.com/2024/07/25/health/breast-cancer-double-mastectomy-study.html
+
+**Why the Olympics’ Parade of Nations Is the World’s Costume Party**\
+`When the athletes march in — or float in, as they will in Paris on Friday — you can enjoy the illusion that it’s a small world after all.`\
+https://nytimes.com/2024/07/25/arts/television/olympics-parade-nations-opening-ceremony.html
+
+**This Ratatouille Always Sticks the Landing**\
+`Melissa Clark’s five-star recipe turns summer’s vibrant produce — tomatoes, eggplant, zucchini and peppers — into a must-eat French delight.`\
+https://nytimes.com/2024/07/25/dining/ratatouille.html
+
+**You Don’t Need a French Vineyard to Have a Prolonged Divorce Proceeding**\
+`The sticking points in a breakup aren’t the same for every couple, but lawyers who have brokered countless divorces have some advice for keeping things simple.`\
+https://nytimes.com/2024/07/25/style/divorce-breakup-advice.html
+
+**John Hinckley Jr. and the Madness of American Political Violence**\
+`Forty-three years ago, he shot the president in a delusional bid for attention — one in a long line of disturbed young men who have bent the arc of the nation’s history.`\
+https://nytimes.com/2024/07/25/magazine/john-hinckley-jr-president-reagan-assassination.html
+
 **Palace agree deal in principle to sign Sarr from Marseille**\
 `Crystal Palace have agreed a €15million (£12.`\
 https://nytimes.com/athletic/5652532/2024/07/25/crystal-palace-ismaila-sarr-transfer/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/07/25/sports/autoracing/f1-red-bull-mclaren-championshi
 **The glory and tragedy of F1's Circuit de Spa-Francorchamps**\
 `One of F1's oldest tracks, Spa is huge, fast, dangerous and utterly epic. `\
 https://nytimes.com/athletic/5658345/2024/07/25/belgian-gp-spa-track-breakdown-specs/
-
-**Tracking Tropical Storm Bud**\
-`See the likely path and wind arrival times for Bud.`\
-https://nytimes.com/interactive/2024/07/25/weather/bud-map-path-tracker.html
-
-**Scoop City: The 49ers, without their star left tackle**\
-`Everything you should know from the last 24-hours in the NFL, including Trent Williams' holdout, Dan Campbell's lectern.`\
-https://nytimes.com/athletic/5608018/2024/07/25/day-1-training-camp-takeaways-scoop-city/
-
-**A look at Browns' contract situations as training camp at Greenbrier Resort begins**\
-`Wide receiver Amari Cooper recently had his contract reworked for this season, but what other decisions still loom large for Cleveland?`\
-https://nytimes.com/athletic/5655647/2024/07/25/cleveland-browns-contracts-amari-cooper-jeremiah-owusu-koramoah/
-
-**Just One Question for Trump and Vance: What Is Wrong With You People?**\
-`Say what you will about Biden, but he is not a bully.`\
-https://nytimes.com/2024/07/22/opinion/trump-vance-biden-speech.html
-
-**Austin Mock's model ranks the top 25 college football teams**\
-`Austin Mock's projection model shows how it ranks the top 25 teams in college football ahead of the 2024 season.`\
-https://nytimes.com/athletic/5653691/2024/07/25/college-football-model-projection-preseason-top-25/
-
-**The Brandon Aiyuk, Trent Williams situations mark a tougher 49ers negotiating era**\
-`Nick Bosa's deal reset the 49ers' landscape last year. Brock Purdy could do it again next offseason. In between, there might be trouble.`\
-https://nytimes.com/athletic/5656737/2024/07/25/brandon-aiyuk-trent-williams-49ers-negotiating/
 
