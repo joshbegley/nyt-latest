@@ -22,6 +22,10 @@ https://nytimes.com/2024/07/24/us/politics/biden-speech-transcript.html
 `It’s been hard to know where ownership stands on anything the last several years, except for the manager. This has long been Cora’s team.`\
 https://nytimes.com/athletic/5657229/2024/07/24/red-sox-alex-cora-three-year-contract-analysis/
 
+**Vikings CB Mekhi Blackmon tears ACL: Source**\
+`He was expected to have an increased role in the Vikings' secondary in his second year.`\
+https://nytimes.com/athletic/5657211/2024/07/24/mekhi-blackmon-vikings-acl-tear/
+
 **Biden Says It Is Time to Step Aside for a Fresh, Younger Voice**\
 `In an Oval Office address, President Biden praised Vice President Kamala Harris and said “it’s been the privilege of my life to serve this nation for over 50 years.”`\
 https://nytimes.com/2024/07/24/us/politics/biden-address.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5656257/2024/07/24/sf-giants-trade-deadline-scenari
 **Seahawks, Julian Love agree to 3-year extension**\
 `Love was a Pro Bowl selection last season after starting 12 of 17 games.`\
 https://nytimes.com/athletic/5657127/2024/07/24/julian-love-seahawks-extension/
-
-**Canada's Olympic soccer spying scandal explained: Who's involved, what's next and more**\
-`The New Zealand Olympic Committee issued a complaint about a drone being flown over its women’s soccer team’s practice. Here’s what we know.`\
-https://nytimes.com/athletic/5657110/2024/07/24/canada-soccer-olympic-spying-scandal-explained/
 

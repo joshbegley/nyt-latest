@@ -1,3 +1,7 @@
+**Vikings CB Mekhi Blackmon tears ACL: Source**\
+`He was expected to have an increased role in the Vikings' secondary in his second year.`\
+https://nytimes.com/athletic/5657211/2024/07/24/mekhi-blackmon-vikings-acl-tear/
+
 **Most Valuable Player: A Star Raises the Profile of Women’s Soccer in Africa**\
 `In seven years, Racheal Kundananji went from playing her first organized game to signing a multimillion-dollar contract. Her rise could have lasting effects.`\
 https://nytimes.com/2024/07/24/world/olympics/zambia-uswnt-rachael-kundananji.html
