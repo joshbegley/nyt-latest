@@ -1,3 +1,11 @@
+**The Moon’s Most Shadowy Places Can’t Hide From NASA’s New Camera**\
+`ShadowCam, a NASA instrument aboard a South Korean spacecraft, is taking pictures of the moon where the sun doesn’t shine.`\
+https://nytimes.com/2024/07/25/science/moon-nasa-shadowcam-craters.html
+
+**Yates signs new Forest contract**\
+`Nottingham Forest midfielder Ryan Yates has signed a new and improved contract with the club.`\
+https://nytimes.com/athletic/5656636/2024/07/25/ryan-yates-nottingham-forest-contract/
+
 **Southwest Airlines Will End Its Longstanding Open-Seating Policy**\
 `The airline said it was scrapping its trademark, 50-year tradition of offering open seating, where passengers choose seats once they have boarded the plane.`\
 https://nytimes.com/2024/07/25/business/southwest-airlines-assigned-seating.html
