@@ -1,3 +1,7 @@
+**U.S. Economy Grew at 2.8% Rate in Latest Quarter**\
+`The report on gross domestic product offered new evidence of the economy’s resilience in the face of high interest rates.`\
+https://nytimes.com/2024/07/25/business/economy/us-gdp-economy-inflation.html
+
 **Prince Harry Says Battle With U.K. Tabloids Deepened Family Rift**\
 `In a TV interview airing on Thursday, Harry said his fight with British newspapers over illegal information gathering was a “central piece” of his estrangement from other royals.`\
 https://nytimes.com/2024/07/25/world/europe/uk-prince-harry-tabloids-royal-family.html
