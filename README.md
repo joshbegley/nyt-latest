@@ -1,4 +1,4 @@
-**Bowden: 7 deadline trades I'd like to see happen, starting with a Yankees-Rays swap**\
+**Bowden: 7 deadline trades I'd like to see, starting with a Yankees-Rays swap**\
 `As rumors swirl across the industry and we wait for the first big deals to go down, here are seven trade proposals to whet your appetite. `\
 https://nytimes.com/athletic/5657415/2024/07/25/mlb-deadline-trade-proposals/
 
