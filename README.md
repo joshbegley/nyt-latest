@@ -1,3 +1,7 @@
+**Esteban Ocon joins Haas F1 for 2025 season**\
+`Esteban Ocon will race for Haas in Formula One from 2025 after signing a multi-year deal with the American team.`\
+https://nytimes.com/athletic/5657632/2024/07/25/esteban-ocon-haas-deal/
+
 **Microsoft’s World of Warcraft Workers Vote to Unionize**\
 `The move adds more than 500 to the unionized video game staff at Microsoft, which has pledged to remain neutral on organizing efforts.`\
 https://nytimes.com/2024/07/25/business/world-of-warcraft-microsoft-union.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/25/learning/word-of-the-day-defector.html
 **Are the Yankees being honest with themselves about this awful stretch?**\
 `After a beatdown by the Mets, the Yankees manager and players sounded off about the team's struggles, and our writers provide perspective.`\
 https://nytimes.com/athletic/5657527/2024/07/25/yankees-lose-to-mets/
-
-**Stephen Colbert Wants a Kamala Harris-Glen Powell Ticket**\
-`“I guarantee he will attract suburban women, and I already have his slogan: ‘Yes, We Glen!’” Colbert said.`\
-https://nytimes.com/2024/07/25/arts/television/stephen-colbert-glen-powell-kamala-harris.html
 
