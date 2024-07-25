@@ -1,3 +1,7 @@
+**The Bounce: Your 2024 Olympic basketball primer**\
+`Zach Harper catches you up on league-wide news.`\
+https://nytimes.com/athletic/5658040/2024/07/25/olympic-basketball-nba-media-rights-tnt-the-bounce/
+
 **Move Over, Mathematicians, Here Comes AlphaProof**\
 `A.I. is getting good at math — and might soon make a worthy collaborator for humans.`\
 https://nytimes.com/2024/07/25/science/ai-math-alphaproof-deepmind.html
