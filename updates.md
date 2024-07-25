@@ -1,3 +1,7 @@
+**Typhoon Gaemi Heads for China as Cargo Ship Sinks Off Taiwan**\
+`Nine sailors were missing after a cargo ship sank near the island in bad weather. The storm was forecast to make landfall in mainland China on Thursday.`\
+https://nytimes.com/2024/07/25/world/asia/typhoon-gaemi-china-taiwan.html
+
 **Are the Yankees being honest with themselves about this awful stretch?**\
 `After a beatdown by the Mets, the Yankees manager and players sounded off about the team's struggles, and our writers provide perspective.`\
 https://nytimes.com/athletic/5657527/2024/07/25/yankees-lose-to-mets/
