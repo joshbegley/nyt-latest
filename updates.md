@@ -1,4 +1,8 @@
 **Vikings CB Mekhi Blackmon tears ACL: Source**\
+`This is another massive, emotional blow to a team that has not been devoid of them in recent weeks.`\
+https://nytimes.com/athletic/5657211/2024/07/24/mekhi-blackmon-vikings-acl-tear/
+
+**Vikings CB Mekhi Blackmon tears ACL: Source**\
 `He was expected to have an increased role in the Vikings' secondary in his second year.`\
 https://nytimes.com/athletic/5657211/2024/07/24/mekhi-blackmon-vikings-acl-tear/
 
