@@ -1,3 +1,19 @@
+**Countering Concerns About Kamala Harris**\
+`Readers react to Bret Stephens’s criticisms of Kamala Harris. Also: Gail Collins’s loss; barring felons from office; no taxes on tips?`\
+https://nytimes.com/2024/07/25/opinion/kamala-harris.html
+
+**Thiago injury throws Toney's Brentford status in doubt**\
+`Brentford fear that their club-record signing Igor Thiago will miss the first few weeks of the new season after injuring his right knee in a friendly against AFC Wimbledon last Saturday — which could have implications for Ivan Toney&#8217;s future in west London.`\
+https://nytimes.com/athletic/5658588/2024/07/25/igor-thiago-injury-brentford-toney/
+
+**Jack Nelson didn't have the season he expected in 2023. That's why he's back for more at Wisconsin**\
+`Nelson knows he has more to prove after leading the Big Ten in penalties in 2023. So he delayed his NFL Draft hopes and is back in Madison.`\
+https://nytimes.com/athletic/5658558/2024/07/25/jack-nelson-wisconsin-college-football-nfl/
+
+**Pop the Cork? A Shipwreck Brims With Unopened Sparkling Wine**\
+`Polish divers think they have found cases of Champagne on a 19th-century merchant vessel that sank off Sweden.`\
+https://nytimes.com/2024/07/25/world/europe/pop-the-cork-a-shipwreck-brims-with-unopened-sparkling-wine.html
+
 **Lowetide: Oilers' Stan Bowman hire continues familiar pattern in GM history**\
 `The Oilers organization's version of best practices in hiring a general manager has never wavered.`\
 https://nytimes.com/athletic/5655760/2024/07/25/stan-bowman-edmonton-oilers-gm-history/
