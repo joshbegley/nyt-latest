@@ -1,3 +1,15 @@
+**On Immigration, Harris Is a Bit of a Chameleon**\
+`She has championed the rights of undocumented kids and thrown the book at undocumented criminals.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/harris-immigration-record
+
+**Olympics tennis betting odds: Swiatek, Alcaraz enter as clear favorites on clay**\
+`Coco Gauff, Iga Swiatek, Carlos Alcaraz, Rafael Nadal and Novak Djokovic are all among the favorites to win gold in Paris.`\
+https://nytimes.com/athletic/5655694/2024/07/25/olympics-tennis-betting-odds-swiatek-alcaraz/
+
+**The U.S. has sent thousands of bombs and missiles to Israel, a report found.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2024/07/25/world/israel-gaza-war-hamas-netanyahu/the-us-has-sent-thousands-of-bombs-and-missiles-to-israel-a-report-found
+
 **China Rules Solar Energy, but Its Industry at Home Is in Trouble**\
 `The solar sector shows how China conducts industrial policy: It chooses industries to dominate, floods them with loans and lets companies fight it out.`\
 https://nytimes.com/2024/07/25/business/china-solar-energy.html
