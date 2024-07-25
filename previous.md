@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5657100/2024/07/25/astros-alex-bregman-influence-pi
 `"I'm happy to be here," Stafford said on the first day of practice a day after he agreed to adjusted terms on his existing contract.`\
 https://nytimes.com/athletic/5657437/2024/07/25/rams-training-camp-matthew-stafford-tight-ends/
 
-**Biden Says It’s Time for ‘Fresh Voices,’ and Netanyahu Defends Israel**\
+**Biden Says It’s Time for ‘Fresh Voices,’ and Netanyahu Defends War in Gaza**\
 `Plus, the illicit flow of technology to Russia.`\
 https://nytimes.com/2024/07/25/podcasts/biden-speech-and-netanyahu-congress.html
 

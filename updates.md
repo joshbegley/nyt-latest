@@ -1,3 +1,7 @@
+**Biden Says It’s Time for ‘Fresh Voices,’ and Netanyahu Defends War in Gaza**\
+`Plus, the illicit flow of technology to Russia.`\
+https://nytimes.com/2024/07/25/podcasts/biden-speech-and-netanyahu-congress.html
+
 **Zambia faces USWNT at the Olympics hoping to cause one of the great upsets**\
 `The Copper Queens have defied the odds to reach a third consecutive major tournament, but beating the U.S. would be the finest moment yet`\
 https://nytimes.com/athletic/5657247/2024/07/25/zambia-uswnt-olympics/
