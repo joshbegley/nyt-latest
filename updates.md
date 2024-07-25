@@ -1,5 +1,13 @@
 **49ers training camp: Brandon Aiyuk and John Lynch watch good DB play together**\
 `While Aiyuk's hold-in continues, he was on the field to watch the entirety of Thursday's practice — including the first chunk with Lynch. `\
+https://nytimes.com/athletic/5659090/2024/07/25/49ers-training-camp-brandon-aiyuk-john-lynch-malik-mustapha/
+
+**What Harris’s First Campaign Ad Reveals About Her Candidacy**\
+`Candidate Harris will try to present herself both as a new, fresh voice and as an incumbent.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/kamala-harris-campaign-ad
+
+**49ers training camp: Brandon Aiyuk and John Lynch watch good DB play together**\
+`While Aiyuk's hold-in continues, he was on the field to watch the entirety of Thursday's practice — including the first chunk with Lynch. `\
 https://nytimes.com/athletic/5659090/2024/07/25/49ers-training-camp-brandon-aiyuk-and-john-lynch-watch-good-db-play-together/
 
 **Blue Jays targeting starting pitching depth at trade deadline**\
