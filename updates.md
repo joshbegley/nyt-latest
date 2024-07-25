@@ -1,3 +1,7 @@
+**USWNT 3-0 Zambia takeaways: Rodman, Swanson score in U.S. Olympic win**\
+`The U.S. opened its Olympic tournament with a win. Here's how it happened...`\
+https://nytimes.com/athletic/5659018/2024/07/25/uswnt-zambia-takeaways-rodman-swanson/
+
 **Justice Dept. Watchdog Criticizes Barr’s Role in Election Inquiry**\
 `The inspector general said he was troubled by William Barr’s decision in 2020 to brief President Trump on an inquiry over nine discarded ballots, which might have encouraged Mr. Trump’s false election claims.`\
 https://nytimes.com/2024/07/25/us/politics/doj-watchdog-barr-trump-election.html

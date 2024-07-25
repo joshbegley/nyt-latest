@@ -1,3 +1,7 @@
+**USWNT 3-0 Zambia takeaways: Rodman, Swanson score in U.S. Olympic win**\
+`The U.S. opened its Olympic tournament with a win. Here's how it happened...`\
+https://nytimes.com/athletic/5659018/2024/07/25/uswnt-zambia-takeaways-rodman-swanson/
+
 **Justice Dept. Watchdog Criticizes Barr’s Role in Election Inquiry**\
 `The inspector general said he was troubled by William Barr’s decision in 2020 to brief President Trump on an inquiry over nine discarded ballots, which might have encouraged Mr. Trump’s false election claims.`\
 https://nytimes.com/2024/07/25/us/politics/doj-watchdog-barr-trump-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5659211/2024/07/25/mason-miller-oakland-athletics-t
 **Wildfire Roars Through a Canadian Town Popular with Tourists**\
 `As much as half of Jasper, Alberta, which lies inside one of the country’s most-visited national parks, has been destroyed, officials said.`\
 https://nytimes.com/2024/07/25/world/canada/jasper-wildfire-canada-national-park.html
-
-**GM Omar Khan expects Cam Heyward to be a Steeler 'for years to come'**\
-`Heyward said he wants to play three more NFL seasons, but he's not yet sure whether that will be with the Steelers or elsewhere.`\
-https://nytimes.com/athletic/5659106/2024/07/25/cam-heyward-contract-steelers-omar-khan/
 
