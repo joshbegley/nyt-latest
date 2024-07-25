@@ -1,40 +1,40 @@
-**Esteban Ocon joins Haas F1 for 2025 season**\
-`Esteban Ocon will race for Haas in Formula One from 2025 after signing a multi-year deal with the American team.`\
-https://nytimes.com/athletic/5657632/2024/07/25/esteban-ocon-haas-deal/
+**Trump and His Allies Adapt to a New Role: Fighting for Attention**\
+`In the days since President Biden ended his re-election bid and passed the torch to Vice President Kamala Harris, Donald Trump’s campaign has been crowded out of the headlines.`\
+https://nytimes.com/2024/07/25/us/politics/trump-gop-kamala-harris.html
 
-**Microsoft’s World of Warcraft Workers Vote to Unionize**\
-`The move adds more than 500 to the unionized video game staff at Microsoft, which has pledged to remain neutral on organizing efforts.`\
-https://nytimes.com/2024/07/25/business/world-of-warcraft-microsoft-union.html
+**Homicides in U.S. Continue to Fall from Pandemic Highs**\
+`An analysis by the Council on Criminal Justice cautions that progress has been uneven, with the trend being driven by declines in a handful of big cities`\
+https://nytimes.com/2024/07/25/us/homicides-crime-report.html
 
-**In a World of Fast Fashion, They Take Pride in Taking Their Time**\
-`Some younger people have become obsessed with learning old-fashioned hand crafts like leather-making, millinery and lacework.`\
-https://nytimes.com/2024/07/25/nyregion/hand-craft-evan-o-hara-janos-papai.html
+**Tech Stocks Are Out. Small Stocks Are In. Can That Last?**\
+`Shifting views on the economy have led to a “rotation” in the stock market. Small stocks and companies geared toward the economic cycle are rising. Big Tech is lagging.`\
+https://nytimes.com/2024/07/25/business/small-cap-stock-market-rotation.html
 
-**The revival of Richard Bland: Inside the late-career resurgence of the LIV standout**\
-`Bland won his first two senior major starts but is skipping the Senior Open in Carnoustie to play in LIV's England event.`\
-https://nytimes.com/athletic/5656756/2024/07/25/richard-bland-liv-senior-major-golf/
+**They Crossed the Country With a Dream of Manhattan and $800,000 to Spend**\
+`Two longtime Californians searched the East Side for a comfortable one-bedroom, with an eye on Central Park and Lincoln Center.`\
+https://nytimes.com/interactive/2024/07/25/realestate/manhattan-nyc-home-buying.html
 
-**Gun-Detecting Technology Will Soon Appear in Subway System**\
-`A set of weapon-screening devices will be deployed at various stations over the course of a month.`\
-https://nytimes.com/2024/07/25/nyregion/gun-detecting-technology-nyc-subway.html
+**Kamala Harris on Kamala Harris**\
+`The entire political world is now watching and wondering who she is and what she stands for. Let her tell you herself.`\
+https://nytimes.com/2024/07/25/podcasts/kamala-harris-on-kamala-harris.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/07/25/crosswords/spelling-bee-forum.html
+**Two Uvalde Police Officers to Enter Pleas Over Shooting Response**\
+`A grand jury charged the officers with abandoning and endangering the children who were left holed up with a gunman at Robb Elementary School in Texas.`\
+https://nytimes.com/2024/07/25/us/uvalde-shooting-police-arraigned.html
 
-**Wildfire Smoke Spreads Over Pacific Northwest and Western Canada**\
-`The blazes have prompted air quality warnings in several states and Canada’s Alberta Province.`\
-https://nytimes.com/2024/07/25/us/wildfires-canada-california-oregon.html
+**‘The Decameron’ Review: They Take a Holiday. Death Doesn’t.**\
+`A loose Netflix adaptation turns Boccaccio’s story cycle into a gleeful satire of class war in plague times.`\
+https://nytimes.com/2024/07/25/arts/television/the-decameron-review-netflix.html
 
-**Dodgers' Chris Taylor likely going on IL with groin tightness**\
-`The news comes just hours after the Dodgers placed shortstop Miguel Rojas on the injured list.`\
-https://nytimes.com/athletic/5657501/2024/07/25/chris-taylor-dodgers-injuries/
+**Why Afghanistan Shouldn’t Compete in the Paris Olympics**\
+`That nation’s first female Olympian argues that Taliban rule is disqualifying.`\
+https://nytimes.com/2024/07/25/opinion/paris-olympics-afghanistan.html
 
-**Word of the Day: defector**\
-`This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/07/25/learning/word-of-the-day-defector.html
+**The G.O.P.’s Problem With the Elite Begins With Its Own**\
+`The Republican Party has turned its own ignorance into a point of pride.`\
+https://nytimes.com/2024/07/25/opinion/vance-trump-republicans-elite.html
 
-**Are the Yankees being honest with themselves about this awful stretch?**\
-`After a beatdown by the Mets, the Yankees manager and players sounded off about the team's struggles, and our writers provide perspective.`\
-https://nytimes.com/athletic/5657527/2024/07/25/yankees-lose-to-mets/
+**Kremlin Uses Olympic Ban as Another Arrow to Shoot at the West**\
+`Only 15 athletes from Russia will compete at the Paris Games, under a “neutral” designation. The Kremlin is framing the ban as part of its showdown with Western adversaries.`\
+https://nytimes.com/2024/07/25/world/europe/russia-olympic-ban-athletes-putin.html
 
