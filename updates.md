@@ -1,3 +1,15 @@
+**Bats Already Had Problems. Now, Add Taxidermy Listings on Etsy and eBay.**\
+`Online sales appear to be compounding threats from climate change and habitat loss, according to new research.`\
+https://nytimes.com/2024/07/25/climate/taxidermy-bats-kerivoula-picta.html
+
+**Where There’s Smoke, There’s Grilled Vegetables**\
+`Including a robust barbecue vegetable salad with peaches and crushed corn chips that I need to eat off a soggy paper plate by a pool, immediately.`\
+https://nytimes.com/2024/07/25/dining/where-theres-smoke-theres-grilled-vegetables.html
+
+**Russia and China Carry Out First Joint Bomber Patrol Near Alaska**\
+`Two Russian and two Chinese bombers patrolled the airspace near American territory and were intercepted by U.S. and Canadian jets.`\
+https://nytimes.com/2024/07/25/world/asia/russia-and-china-carry-out-first-joint-bomber-patrol-near-alaska.html
+
 **The Summer Olympics: How to Watch. What to Watch.**\
 `Gymnastics. Track. Swimming. Basketball. Break dancing.`\
 https://nytimes.com/2024/07/25/world/olympics/summer-olympics-how-to-watch.html
