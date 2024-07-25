@@ -1,3 +1,11 @@
+**The Pulse: *Another* Olympic controversy, already**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5657172/2024/07/25/olympic-soccer-argentina-morocco-the-pulse/
+
+**A New Insight into Donald Trump’s Rise**\
+`We examine data on economic mobility.`\
+https://nytimes.com/2024/07/25/briefing/a-new-insight-into-donald-trumps-rise.html
+
 **Zambia faces USWNT at the Olympics hoping to cause one of the great upsets**\
 `The Copper Queens have defied the odds to reach a third consecutive major tournament, but beating the U.S. would be the finest moment yet`\
 https://nytimes.com/athletic/5657247/2024/07/25/zambia-uswnt-olympics/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5478150/2024/07/25/tnt-inside-the-nba-media-tv-righ
 **Hollinger: My 2024 summer-league standouts, some of whom you may not know**\
 `Don't let anyone tell you summer league doesn't matter. In many cases, it can be a sign of things to come.`\
 https://nytimes.com/athletic/5654579/2024/07/25/nba-summer-league-rookies-reed-sheppard-tristan-da-silva-vegas/
-
-**Lamar Jackson returns to Ravens training camp but has relatively short stay**\
-`After missing the first three days of training camp, Jackson participated in some individual drills and got some full-team reps.`\
-https://nytimes.com/athletic/5656891/2024/07/25/lamar-jackson-ravens-training-camp/
-
-**Yohe: The 2024 Penguins Yinzer travel guide, Part 3**\
-`The final part of our annual look at the best trips for Penguins fans who want to see Sidney Crosby and his teammates in enemy territory.`\
-https://nytimes.com/athletic/5650540/2024/07/25/penguins-schedule-travel-guide-2024-25-part-3/
 

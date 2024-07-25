@@ -1,3 +1,11 @@
+**The Pulse: *Another* Olympic controversy, already**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5657172/2024/07/25/olympic-soccer-argentina-morocco-the-pulse/
+
+**A New Insight into Donald Trump’s Rise**\
+`We examine data on economic mobility.`\
+https://nytimes.com/2024/07/25/briefing/a-new-insight-into-donald-trumps-rise.html
+
 **Biden Says It’s Time for ‘Fresh Voices,’ and Netanyahu Defends War in Gaza**\
 `Plus, the illicit flow of technology to Russia.`\
 https://nytimes.com/2024/07/25/podcasts/biden-speech-and-netanyahu-congress.html
