@@ -1,3 +1,19 @@
+**In a World of Fast Fashion, They Take Pride in Taking Their Time**\
+`Some younger people have become obsessed with learning old-fashioned hand crafts like leather-making, millinery and lacework.`\
+https://nytimes.com/2024/07/25/nyregion/hand-craft-evan-o-hara-janos-papai.html
+
+**The revival of Richard Bland: Inside the late-career resurgence of the LIV standout**\
+`Bland won his first two senior major starts but is skipping the Senior Open in Carnoustie to play in LIV's England event.`\
+https://nytimes.com/athletic/5656756/2024/07/25/richard-bland-liv-senior-major-golf/
+
+**Gun-Detecting Technology Will Soon Appear in Subway System**\
+`A set of weapon-screening devices will be deployed at various stations over the course of a month.`\
+https://nytimes.com/2024/07/25/nyregion/gun-detecting-technology-nyc-subway.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/25/crosswords/spelling-bee-forum.html
+
 **Wildfire Smoke Spreads Over Pacific Northwest and Western Canada**\
 `The blazes have prompted air quality warnings in several states and Canada’s Alberta Province.`\
 https://nytimes.com/2024/07/25/us/wildfires-canada-california-oregon.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/07/25/arts/television/stephen-colbert-glen-powell-kamal
 **Fuel Tanker Sinks in Philippine Waters, Spilling Oil**\
 `The coast guard rescued 16 of the vessel’s 17 crew members, but Typhoon Gaemi’s remnants were complicating efforts to contain the oil spill in Manila Bay.`\
 https://nytimes.com/2024/07/25/world/asia/philippines-tanker-capsizes-oil-spill.html
-
-**Call Beijing’s Bluff in the South China Sea**\
-`China could seize control of a strategically vital waterway without firing a shot.`\
-https://nytimes.com/2024/07/25/opinion/china-us-military-south-china-sea.html
-
-**Typhoon Gaemi Heads for China as Cargo Ship Sinks Off Taiwan**\
-`Nine sailors were missing after a cargo ship sank near the island in bad weather. The storm was forecast to make landfall in mainland China on Thursday.`\
-https://nytimes.com/2024/07/25/world/asia/typhoon-gaemi-china-taiwan.html
-
-**Fantasy football draft strategy primer: Hero RB, bully TE, early QB, value-based drafting and more**\
-`When it comes to building out a fantasy football team, there's more than one way to skin a cat, and Theo Gremminger explains those options.`\
-https://nytimes.com/athletic/5657121/2024/07/25/fantasy-football-draft-strategy-options-zero-hero-rb/
-
-**The Briefing: Arsenal 1-1 Bournemouth - Implications of Smith Rowe exit, Vieira scores, Nwaneri impresses**\
-`James McNicholas addresses the main talking points from Arsenal's friendly draw against Bournemouth`\
-https://nytimes.com/athletic/5655378/2024/07/25/arsenal-bournemouth-friendly-analysis/
 
