@@ -1,3 +1,7 @@
+**The Brandon Aiyuk, Trent Williams situations mark a tougher 49ers negotiating era**\
+`Nick Bosa's deal reset the 49ers' landscape last year. Brock Purdy could do it again next offseason. In between, there might be trouble.`\
+https://nytimes.com/athletic/5656737/2024/07/25/brandon-aiyuk-trent-williams-49ers-negotiating/
+
 **Kids? A Growing Number of Americans Say, ‘No Thanks.’**\
 `A new study breaks down the reasons more U.S. adults don’t plan to have children.`\
 https://nytimes.com/2024/07/25/well/mind/child-free-adults-pew-study.html
@@ -7,7 +11,7 @@ https://nytimes.com/2024/07/25/well/mind/child-free-adults-pew-study.html
 https://nytimes.com/2024/07/25/nyregion/saint-anns-winston-nguyen-sexual-images.html
 
 **Submit your New York Rangers questions for Peter Baugh's mailbag**\
-`The Rangers are making progress toward finalizing a roster for two months or so from now, when training camp begins.`\
+`Your questions may be used for an upcoming Rangers mailbag.`\
 https://nytimes.com/athletic/5658281/2024/07/25/ny-rangers-mailbag-prompt-peter-baugh/
 
 **Kanjuruhan Stadium disaster: Indonesia firm apologies to victims' families after Gate 13 demolition**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000009591858/prince-harry-tabloids-int
 **The Moon’s Most Shadowy Places Can’t Hide From NASA’s New Camera**\
 `ShadowCam, a NASA instrument aboard a South Korean spacecraft, is taking pictures of the moon where the sun doesn’t shine.`\
 https://nytimes.com/2024/07/25/science/moon-nasa-shadowcam-craters.html
-
-**Yates signs new Forest contract**\
-`Nottingham Forest midfielder Ryan Yates has signed a new and improved contract with the club.`\
-https://nytimes.com/athletic/5656636/2024/07/25/ryan-yates-nottingham-forest-contract/
 
