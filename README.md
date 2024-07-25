@@ -1,4 +1,16 @@
-**USWNT 3-0 Zambia takeaways: Rodman, Swanson score in U.S. Olympic win**\
+**OpenAI Is Testing an A.I.-Powered Search Engine**\
+`The prominent A.I. start-up said it planned to eventually fold the new technology into its popular online chatbot, ChatGPT.`\
+https://nytimes.com/2024/07/25/technology/openai-ai-search-engine.html
+
+**Why Did Trump Promote a Book by One of His Accusers?**\
+`Could he really not have noticed this?`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/trump-sexual-misconduct
+
+**Friday Briefing: The Olympics Begin**\
+`Plus, a new poll shows Kamala Harris closing in on Donald Trump.`\
+https://nytimes.com/2024/07/25/briefing/olympics-paris-trump-harris-poll.html
+
+**USWNT 3-0 Zambia takeaways: Rodman, Swanson score to help U.S. win Olympic opener**\
 `The U.S. opened its Olympic tournament with a win. Here's how it happened...`\
 https://nytimes.com/athletic/5659018/2024/07/25/uswnt-zambia-takeaways-rodman-swanson/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5659295/2024/07/25/mason-miller-oakland-athletics-i
 **Jets training camp observations: Aaron Rodgers-Garrett Wilson connection heats up**\
 `FLORHAM PARK, N.`\
 https://nytimes.com/athletic/5658989/2024/07/25/jets-training-camp-practice-report-day-2-aaron-rodgers-garrett-wilson/
-
-**Vance Denigrated Harris for Being Childless. Her Blended Family Is Defending Her.**\
-`JD Vance’s 2021 insult of “childless cat ladies” has sparked bipartisan outrage at a moment when women’s choices are seen as a galvanizing political force.`\
-https://nytimes.com/2024/07/25/us/politics/jd-vance-kamala-harris-childless.html
-
-**Oakland A's closer Mason Miller headed to IL**\
-`The trade market for one of baseball’s best relievers got more complicated Thursday when the Oakland Athletics placed Mason Miller, their All-Star closer, on the 15-day injured list with a broken left hand.`\
-https://nytimes.com/athletic/5659211/2024/07/25/mason-miller-oakland-athletics-trade-injured/
-
-**Wildfire Roars Through a Canadian Town Popular with Tourists**\
-`As much as half of Jasper, Alberta, which lies inside one of the country’s most-visited national parks, has been destroyed, officials said.`\
-https://nytimes.com/2024/07/25/world/canada/jasper-wildfire-canada-national-park.html
 
