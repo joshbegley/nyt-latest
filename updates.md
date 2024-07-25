@@ -1,3 +1,11 @@
+**The Brandon Aiyuk, Trent Williams situations mark a tougher 49ers negotiating era**\
+`Nick Bosa's deal reset the 49ers' landscape last year. Brock Purdy could do it again next offseason. In between, there might be trouble.`\
+https://nytimes.com/athletic/5656737/2024/07/25/brandon-aiyuk-trent-williams-49ers-negotiating/
+
+**Submit your New York Rangers mailbag questions**\
+`Your questions may be used for an upcoming Rangers mailbag.`\
+https://nytimes.com/athletic/5658281/2024/07/25/ny-rangers-mailbag-prompt-peter-baugh/
+
 **Kids? A Growing Number of Americans Say, ‘No Thanks.’**\
 `A new study breaks down the reasons more U.S. adults don’t plan to have children.`\
 https://nytimes.com/2024/07/25/well/mind/child-free-adults-pew-study.html
