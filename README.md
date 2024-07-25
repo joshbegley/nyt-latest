@@ -1,3 +1,7 @@
+**Bowden: 7 deadline trades I'd like to see happen, starting with a Yankees-Rays swap**\
+`As rumors swirl across the industry and we wait for the first big deals to go down, here are seven trade proposals to whet your appetite. `\
+https://nytimes.com/athletic/5657415/2024/07/25/mlb-deadline-trade-proposals/
+
 **West Ham close on deal for Mazraoui from Bayern**\
 `West Ham United are closing in on a deal to sign Bayern Munich defender Noussair Mazraoui.`\
 https://nytimes.com/athletic/5657806/2024/07/25/west-ham-mazrouai-transfer-bayern-munich/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5657755/2024/07/25/curry-durant-embiid-usa-olympics
 **The Pulse: *Another* Olympic controversy, already**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5657172/2024/07/25/olympic-soccer-argentina-morocco-the-pulse/
-
-**A New Insight into Donald Trump’s Rise**\
-`We examine data on economic mobility.`\
-https://nytimes.com/2024/07/25/briefing/a-new-insight-into-donald-trumps-rise.html
 
