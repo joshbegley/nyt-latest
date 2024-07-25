@@ -1,3 +1,11 @@
+**How can the Mets' long-term outlook affect their trade deadline plans?**\
+`Beyond the obvious Pete Alonso decision, the Mets will have calls to make about their outfield and Mark Vientos’ long-term home.`\
+https://nytimes.com/athletic/5657385/2024/07/25/how-can-the-mets-long-term-outlook-affect-their-trade-deadline-plans/
+
+**Australian Field Hockey Player Is Paris-Bound, Minus a Finger Joint**\
+`After the tip of his ring finger was mangled in a practice match two weeks ago, Matthew Dawson chose amputation over a long, uncertain recovery.`\
+https://nytimes.com/2024/07/25/world/olympics/australia-hockey-finger-paris-olympics.html
+
 **Predicting the 2024 Paris Olympics medal count: 7 factors for winningest countries**\
 `Our underdogs experts use a statistical model to predict the winningest countries at the Paris Games, and how many medals they'll win.`\
 https://nytimes.com/athletic/5653490/2024/07/25/olympics-2024-medal-projection-model/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/07/25/realestate/manhattan-nyc-home-buying.
 **Kamala Harris on Kamala Harris**\
 `The entire political world is now watching and wondering who she is and what she stands for. Let her tell you herself.`\
 https://nytimes.com/2024/07/25/podcasts/kamala-harris-on-kamala-harris.html
-
-**Two Uvalde Police Officers to Enter Pleas Over Shooting Response**\
-`A grand jury charged the officers with abandoning and endangering the children who were left holed up with a gunman at Robb Elementary School in Texas.`\
-https://nytimes.com/2024/07/25/us/uvalde-shooting-police-arraigned.html
-
-**‘The Decameron’ Review: They Take a Holiday. Death Doesn’t.**\
-`A loose Netflix adaptation turns Boccaccio’s story cycle into a gleeful satire of class war in plague times.`\
-https://nytimes.com/2024/07/25/arts/television/the-decameron-review-netflix.html
 
