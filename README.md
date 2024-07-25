@@ -1,3 +1,7 @@
+**Pair Your Vietnamese Iced Coffee With Pandan Cakes**\
+`A perfect Vietnamese coffee is reason enough to celebrate. But a few sweet treats can’t hurt.`\
+https://nytimes.com/2024/07/25/dining/vietnamese-iced-coffee-nyc.html
+
 **Giants training camp: Malik Nabers already looks like focal point of offense**\
 `The Giants have gotten the ball to Nabers in a variety of ways in the first two practices of camp.`\
 https://nytimes.com/athletic/5658947/2024/07/25/new-york-giants-malik-nabers-training-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/25/us/politics/child-online-safety-bill-senate.html
 **Passengers Loved Southwest Airlines’ Open Boarding. Now What?**\
 `On Thursday, the airline announced it would eliminate a boarding process that allowed passengers to choose their seats. Many Southwest fans were not happy — and expressed worry that more changes might be coming.`\
 https://nytimes.com/2024/07/25/travel/southwest-open-boarding-change-reactions.html
-
-**How Jerod Mayo has changed Patriots training camp from the Bill Belichick era**\
-`The new head coach in New England has already made a few notable changes to the way Belichick used to run things with the Patriots.`\
-https://nytimes.com/athletic/5658918/2024/07/25/patriots-jerod-mayo-bill-belichick-training-camp/
 
