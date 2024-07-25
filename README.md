@@ -1,7 +1,3 @@
-**Word of the Day: defector**\
-`This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/07/25/learning/word-of-the-day-defector.html
-
 **Are the Yankees being honest with themselves about this awful stretch?**\
 `After a beatdown by the Mets, the Yankees manager and players sounded off about the team's struggles, and our writers provide perspective.`\
 https://nytimes.com/athletic/5657527/2024/07/25/yankees-lose-to-mets/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5657482/2024/07/25/mets-yankees-francisco-lindor/
 **Mitoma is on the road to recovery in Japan - and Brighton are making the most of it**\
 `The winger was injured for the end of the 2023-24 season and his absence coincided with a poor run of results. His return is welcomed`\
 https://nytimes.com/athletic/5631051/2024/07/25/mitoma-brighton-japan-recovery/
+
+**Andy Irving has taken the road less travelled. He's grabbing his West Ham chance**\
+`The 24-year-old midfielder is playing in his fourth country - but has impressed in West Ham's pre-season. Will Lopetegui keep faith?`\
+https://nytimes.com/athletic/5643233/2024/07/25/andy-irving-has-taken-the-road-less-travelled-hes-grabbing-his-west-ham-chance/
 
