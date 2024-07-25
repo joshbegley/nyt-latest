@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5657030/2024/07/25/deshaun-foster-pat-mcafee-acc-me
 https://nytimes.com/2024/07/25/business/economy/2025-economy-president.html
 
 **Prince Harry Says Struggle With U.K. Tabloids Deepened Family Rift**\
-`In a TV interview airing on Thursday, Harry said his efforts against British newspapers over illegal information gathering were a “central piece” of his estrangement from other royals.`\
+`In a TV interview airing on Thursday, Harry said his dispute against some newspapers over illegal information gathering was a “central piece” of his estrangement from other royals.`\
 https://nytimes.com/2024/07/25/world/europe/uk-prince-harry-tabloids-royal-family.html
 
 **U.S. Economy Grew at 2.8% Rate in Latest Quarter**\
