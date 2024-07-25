@@ -1,3 +1,7 @@
+**Robbie Ray dazzles with five hitless innings in Giants debut: 'I knew that my stuff was going to play'**\
+`Ray needed an inning to channel his adrenaline, but once he got a handle on his stuff, it was as suffocating as ever.`\
+https://nytimes.com/athletic/5657651/2024/07/25/robbie-ray-sf-giants-debut/
+
 **Teachers, How Do You Handle Classroom Conversations About Hot-Button Issues?**\
 `What has worked? What has been difficult? We’d love to hear from educators at all levels and across subject areas.`\
 https://nytimes.com/2024/07/25/learning/teachers-how-do-you-handle-classroom-conversations-about-hot-button-issues.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5657403/2024/07/25/blue-jays-mlb-trade-deadline-pla
 **The Athletic FC: The chaos of Argentina-Morocco; A brief history of spying in sport**\
 `What happened in Argentina vs Morocco? Canada, New Zealand, spying: what's going on?`\
 https://nytimes.com/athletic/5657748/2024/07/25/argentina-morocco-canada-new-zealand-spying/
-
-**Israelis Contrast Netanyahu’s Speech in Congress With Grim Reality at Home**\
-`Commentators noted the gap between the applause the Israeli leader received in Congress and the widespread sense of government failure in Israel as the war drags on.`\
-https://nytimes.com/2024/07/25/world/middleeast/netanyahu-congress-speech-israel.html
 
