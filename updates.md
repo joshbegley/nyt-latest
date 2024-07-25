@@ -1,3 +1,7 @@
+**Move Over, Mathematicians, Here Comes AlphaProof**\
+`A.I. is getting good at math — and might soon make a worthy collaborator for humans.`\
+https://nytimes.com/2024/07/25/science/ai-math-alphaproof-deepmind.html
+
 **‘Deadpool & Wolverine’ Reviews Are In: Amusing or Exhausting?**\
 `Few critics could deny that the highly anticipated super spectacle, starring Ryan Reynolds and Hugh Jackman, has its charms — but most left wanting more.`\
 https://nytimes.com/2024/07/25/movies/deadpool-wolverine-movie-reviews.html
