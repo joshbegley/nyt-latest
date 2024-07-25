@@ -1,4 +1,8 @@
-**China Is Closing the A.I. Gap with the United States**\
+**China Rules Solar Energy, but Its Industry at Home Is in Trouble**\
+`The solar sector shows how China conducts industrial policy: It chooses industries to dominate, floods them with loans and lets companies fight it out.`\
+https://nytimes.com/2024/07/25/business/china-solar-energy.html
+
+**China Is Closing the A.I. Gap With the United States**\
 `In recent weeks, Chinese tech companies have unveiled technologies that rival American systems — and they are already in the hands of consumers and software developers.`\
 https://nytimes.com/2024/07/25/technology/china-open-source-ai.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5655760/2024/07/25/stan-bowman-edmonton-oilers-gm-h
 **Strong Women Are Driving Donald Trump Crazy**\
 `Against the former misogynist in chief, Kamala Harris’s gender is an asset.`\
 https://nytimes.com/2024/07/25/opinion/kamala-harris-trump-pelosi.html
-
-**Ukraine Detains Suspect in Killing of Nationalist Politician**\
-`An 18-year-old suspect was arrested after an intense manhunt. The authorities are investigating evidence that suggests that the suspect planned the killing with others.`\
-https://nytimes.com/2024/07/25/world/europe/ukraine-iryna-farion-killing-arrest.html
 
