@@ -1,3 +1,7 @@
+**Stephen Colbert Wants a Kamala Harris-Glen Powell Ticket**\
+`“I guarantee he will attract suburban women, and I already have his slogan: ‘Yes, We Glen!’” Colbert said.`\
+https://nytimes.com/2024/07/25/arts/television/stephen-colbert-glen-powell-kamala-harris.html
+
 **Fuel Tanker Sinks in Philippine Waters, Spilling Oil**\
 `The coast guard rescued 16 of the vessel’s 17 crew members, but Typhoon Gaemi’s remnants were complicating efforts to contain the oil spill in Manila Bay.`\
 https://nytimes.com/2024/07/25/world/asia/philippines-tanker-capsizes-oil-spill.html
