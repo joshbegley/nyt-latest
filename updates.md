@@ -1,3 +1,11 @@
+**Are the Yankees being honest with themselves about this awful stretch?**\
+`After a beatdown by the Mets, the Yankees manager and players sounded off about the team's struggles, and our writers provide perspective.`\
+https://nytimes.com/athletic/5657527/2024/07/25/yankees-lose-to-mets/
+
+**Typhoon Gaemi Heads for China as Cargo Ship Sinks off Taiwan**\
+`Nine sailors were missing after a cargo ship sank near the island in bad weather. The storm was forecast to make landfall in mainland China on Thursday.`\
+https://nytimes.com/2024/07/25/world/asia/typhoon-gaemi-china-taiwan.html
+
 **Stephen Colbert Wants a Kamala Harris-Glen Powell Ticket**\
 `“I guarantee he will attract suburban women, and I already have his slogan: ‘Yes, We Glen!’” Colbert said.`\
 https://nytimes.com/2024/07/25/arts/television/stephen-colbert-glen-powell-kamala-harris.html

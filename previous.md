@@ -1,3 +1,7 @@
+**Are the Yankees being honest with themselves about this awful stretch?**\
+`After a beatdown by the Mets, the Yankees manager and players sounded off about the team's struggles, and our writers provide perspective.`\
+https://nytimes.com/athletic/5657527/2024/07/25/yankees-lose-to-mets/
+
 **Stephen Colbert Wants a Kamala Harris-Glen Powell Ticket**\
 `“I guarantee he will attract suburban women, and I already have his slogan: ‘Yes, We Glen!’” Colbert said.`\
 https://nytimes.com/2024/07/25/arts/television/stephen-colbert-glen-powell-kamala-harris.html
@@ -10,8 +14,8 @@ https://nytimes.com/2024/07/25/world/asia/philippines-tanker-capsizes-oil-spill.
 `China could seize control of a strategically vital waterway without firing a shot.`\
 https://nytimes.com/2024/07/25/opinion/china-us-military-south-china-sea.html
 
-**Typhoon Gaemi Heads for China’s Coast After Pummeling Taiwan**\
-`The tropical cyclone was weakening as it crossed the Taiwan Strait on Thursday afternoon, and was forecast to make landfall later in the day.`\
+**Typhoon Gaemi Heads for China as Cargo Ship Sinks off Taiwan**\
+`Nine sailors were missing after a cargo ship sank near the island in bad weather. The storm was forecast to make landfall in mainland China on Thursday.`\
 https://nytimes.com/2024/07/25/world/asia/typhoon-gaemi-china-taiwan.html
 
 **Fantasy football draft strategy primer: Hero RB, bully TE, early QB, value-based drafting and more**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5631051/2024/07/25/mitoma-brighton-japan-recovery/
 **Andy Irving has taken the road less travelled. He's grabbing his West Ham chance**\
 `The 24-year-old midfielder is playing in his fourth country - but has impressed in West Ham's pre-season. Will Lopetegui keep faith?`\
 https://nytimes.com/athletic/5643233/2024/07/25/andy-irving-has-taken-the-road-less-travelled-hes-grabbing-his-west-ham-chance/
-
-**Why are Man City willing to sell Ederson - and why does he want to go?**\
-`City could sell Ederson this summer — and there is a reason the goalkeeper might want to leave the Etihad Stadium`\
-https://nytimes.com/athletic/5655283/2024/07/25/ederson-manchester-city-future-transfer/
 
