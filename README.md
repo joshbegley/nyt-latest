@@ -1,3 +1,15 @@
+**Colts plan to let QB Anthony Richardson run: 'Are you gonna limit Steph Curry from shooting 3s'?**\
+`Richardson: “My legs (have) always been one of my superpowers. (Taking) that away from me, I don’t think that’s a good thing."`\
+https://nytimes.com/athletic/5658943/2024/07/25/anthony-richardson-colts-run-steph-curry/
+
+**A Lot of Major Shifts Beneath the Surface in a New Trump-Harris Poll**\
+`The changes among groups cancel out for now, and Trump leads narrowly, but there’s a tie when candidates like Kennedy Jr. are considered.`\
+https://nytimes.com/2024/07/25/upshot/poll-kamala-harris-trump.html
+
+**Harris Narrows Gap Against Trump, Times/Siena Poll Finds**\
+`In a survey taken after President Biden stepped aside, Donald Trump and Kamala Harris are locked in a tight race separated by a single percentage point among likely voters.`\
+https://nytimes.com/2024/07/25/us/politics/poll-kamala-harris-donald-trump.html
+
 **Toplines: July 2024 Times/Siena Poll of Registered Voters Nationwide**\
 `Results of a nationwide New York Times/Siena College poll conducted among 1,142 registered voters from July 22 to 24, 2024.`\
 https://nytimes.com/interactive/2024/07/25/us/elections/times-siena-poll-toplines.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/25/arts/television/playground-hulu.html
 **They Got a Mysterious $24,000 Water Bill. Then the Shut-Off Notice Came.**\
 `A federal lawsuit accuses New York City of defying state and city regulations meant to protect vulnerable homeowners from losing water service.`\
 https://nytimes.com/2024/07/25/nyregion/water-bill-lawsuit-nyc.html
-
-**Concerns about Garrett Crochet's playoff availability and desire for contract extension cloud trade picture: Sources**\
-`The uncertainty has fueled a belief that the White Sox may wait until the offseason, when more teams could be interested in a trade.`\
-https://nytimes.com/athletic/5658807/2024/07/25/garrett-crochet-white-sox-trade-deadline/
-
-**Biden’s Ambition Was a Sign of His Patriotism**\
-`When we peer into the soul of America, we should always find both.`\
-https://nytimes.com/2024/07/22/opinion/biden-ambition-decision.html
-
-**Submit your Islanders questions for Arthur Staple's mailbag**\
-`Your questions may be used in an upcoming Islanders mailbag.`\
-https://nytimes.com/athletic/5658865/2024/07/25/ny-islanders-mailbag-arthur-staple/
 
