@@ -1,3 +1,7 @@
+**Biden’s Ambition Was a Sign of His Patriotism**\
+`When we peer into the soul of America, we should always find both.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/biden-ambition-decision
+
 **Submit your Islanders questions for Arthur Staple's mailbag**\
 `Your questions may be used in an upcoming Islanders mailbag.`\
 https://nytimes.com/athletic/5658865/2024/07/25/ny-islanders-mailbag-arthur-staple/
