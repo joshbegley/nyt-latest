@@ -1,3 +1,19 @@
+**Submit your Islanders questions for Arthur Staple's mailbag**\
+`Your questions may be used in an upcoming Islanders mailbag.`\
+https://nytimes.com/athletic/5658865/2024/07/25/ny-islanders-mailbag-arthur-staple/
+
+**Biden and Netanyahu Meet With a Show of Amiable Relations Amid Their Tension**\
+`The Israeli prime minister, who has defied the American president’s pressure to reach a cease-fire in Gaza, nonetheless praised Mr. Biden for “50 years of support for the state of Israel.”`\
+https://nytimes.com/2024/07/25/us/politics/biden-and-netanyahu-meet-with-a-show-of-amiable-relations-amid-their-tension.html
+
+**Emily’s list begins a $2 million ad blitz for Harris.**\
+`By Reid J. Epstein and Shane Goldmacher`\
+https://nytimes.com/live/2024/07/25/us/harris-trump-biden-election/emilys-list-begins-a-2-million-ad-blitz-for-harris
+
+**JD Vance and the Age-Old Trope of ‘Childless Cat Ladies’**\
+`In a relentlessly newsy phase of the presidential contest, the long history of bias against cosmopolitan cat-owning women finds its place.`\
+https://nytimes.com/2024/07/25/nyregion/jd-vance-kamala-harris-cat-lady.html
+
 **Slot on Liverpool's transfer activity: 'We are waiting on the right ones to sign'**\
 `Arne Slot insists he&#8217;s relaxed about Liverpool&#8217;s lack of activity in the transfer market as he expects business to happen later in the window.`\
 https://nytimes.com/athletic/5658802/2024/07/25/liverpool-transfer-news-arne-slot/

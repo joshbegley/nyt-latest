@@ -1,3 +1,19 @@
+**Submit your Islanders questions for Arthur Staple's mailbag**\
+`Your questions may be used in an upcoming Islanders mailbag.`\
+https://nytimes.com/athletic/5658865/2024/07/25/ny-islanders-mailbag-arthur-staple/
+
+**Biden and Netanyahu Meet With a Show of Amiable Relations Amid Their Tension**\
+`The Israeli prime minister, who has defied the American president’s pressure to reach a cease-fire in Gaza, nonetheless praised Mr. Biden for “50 years of support for the state of Israel.”`\
+https://nytimes.com/2024/07/25/us/politics/biden-and-netanyahu-meet-with-a-show-of-amiable-relations-amid-their-tension.html
+
+**Emily’s list begins a $2 million ad blitz for Harris.**\
+`By Reid J. Epstein and Shane Goldmacher`\
+https://nytimes.com/live/2024/07/25/us/harris-trump-biden-election/emilys-list-begins-a-2-million-ad-blitz-for-harris
+
+**JD Vance and the Age-Old Trope of ‘Childless Cat Ladies’**\
+`In a relentlessly newsy phase of the presidential contest, the long history of bias against cosmopolitan cat-owning women finds its place.`\
+https://nytimes.com/2024/07/25/nyregion/jd-vance-kamala-harris-cat-lady.html
+
 **Slot on Liverpool's transfer activity: 'We are waiting on the right ones to sign'**\
 `Arne Slot insists he&#8217;s relaxed about Liverpool&#8217;s lack of activity in the transfer market as he expects business to happen later in the window.`\
 https://nytimes.com/athletic/5658802/2024/07/25/liverpool-transfer-news-arne-slot/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/07/25/arts/joe-cool-dead-snoop-dogg-doggystyle.html
 **How the (even bigger) Big Ten's TV deal will work in Year 2**\
 `Last season, five of the eight CFB games with at least 10 million viewers and 10 of the 15 highest-rated games included current B1G teams.`\
 https://nytimes.com/athletic/5658646/2024/07/25/big-ten-football-tv-partners-schedule/
-
-**Corey LaJoie not returning to Spire Motorsports for 2025 NASCAR Cup Series season**\
-`LaJoie signed a multiyear contract extension with Spire last summer.`\
-https://nytimes.com/athletic/5658446/2024/07/25/corey-lajoie-nascar-cup-series-season-not-returning-2025/
-
-**Trump Workshops Jabs at Harris, but Nothing Plays Like the Classics**\
-`Donald J. Trump began turning Vice President Kamala Harris, his new opponent, into a nemesis. But his crowd still wanted to hear the hits.`\
-https://nytimes.com/2024/07/25/us/politics/trump-kamala-harris-insults-rally-speech.html
-
-**Bats Already Had Problems. Now, Add Taxidermy Listings on Etsy and eBay.**\
-`Online sales appear to be compounding threats from climate change and habitat loss, according to new research.`\
-https://nytimes.com/2024/07/25/climate/taxidermy-bats-kerivoula-picta.html
-
-**Where There’s Smoke, There’s Grilled Vegetables**\
-`Including a robust barbecue vegetable salad with peaches and crushed corn chips that I need to eat off a soggy paper plate by a pool, immediately.`\
-https://nytimes.com/2024/07/25/dining/where-theres-smoke-theres-grilled-vegetables.html
 
