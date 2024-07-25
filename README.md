@@ -1,3 +1,15 @@
+**Bats Already Had Problems. Now, Add Taxidermy Listings on Etsy and eBay.**\
+`Online sales appear to be compounding threats from climate change and habitat loss, according to new research.`\
+https://nytimes.com/2024/07/25/climate/taxidermy-bats-kerivoula-picta.html
+
+**Where There’s Smoke, There’s Grilled Vegetables**\
+`Including a robust barbecue vegetable salad with peaches and crushed corn chips that I need to eat off a soggy paper plate by a pool, immediately.`\
+https://nytimes.com/2024/07/25/dining/where-theres-smoke-theres-grilled-vegetables.html
+
+**Russia and China Carry Out First Joint Bomber Patrol Near Alaska**\
+`Two Russian and two Chinese bombers patrolled the airspace near American territory and were intercepted by U.S. and Canadian jets.`\
+https://nytimes.com/2024/07/25/world/asia/russia-and-china-carry-out-first-joint-bomber-patrol-near-alaska.html
+
 **Kamala Harris’s Fund-Raising Machine Cranks Into High Gear**\
 `Given weeks instead of years to cultivate donors, the vice president’s allies are armed with a new logo and burning up the phones.`\
 https://nytimes.com/2024/07/25/us/politics/kamala-harris-donors-fund-raising.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5658599/2024/07/25/max-verstappen-f1-sim-racing-red
 **The Summer Olympics: How to Watch. What to Watch.**\
 `Gymnastics. Track. Swimming. Basketball. Break dancing.`\
 https://nytimes.com/2024/07/25/world/olympics/summer-olympics-how-to-watch.html
-
-**Manchester United is a loss-making company - yet 250 people have paid for it with their jobs**\
-`United staff are not at fault for the club's previous mistakes yet have felt the sting with widespread redundancies`\
-https://nytimes.com/athletic/5658467/2024/07/25/manchester-united-job-cuts-loss/
-
-**Overlooked No More: Willy de Bruyn, Cycling Champion Who Broke Gender Boundaries**\
-`A premiere cyclist in women’s competitions, he helped pave the way for future athletes when he announced that he wanted to live the rest of his life as a man.`\
-https://nytimes.com/2024/07/25/obituaries/willy-de-bruyn-overlooked.html
-
-**As Olympic opener nears, Steve Kerr again sounds alarm for Team USA: 'It's time'**\
-`With the Olympics about to begin, Steve Kerr continued to sound the alarm Thursday over the U.S. men's basketball team's recent struggles.`\
-https://nytimes.com/athletic/5658593/2024/07/25/steve-kerr-olympics-usa-basketball-comments/
 
