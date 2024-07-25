@@ -1,3 +1,15 @@
+**Tracking Tropical Storm Bud**\
+`See the likely path and wind arrival times for Bud.`\
+https://nytimes.com/interactive/2024/07/25/weather/bud-map-path-tracker.html
+
+**Scoop City: The 49ers, without their star left tackle**\
+`Everything you should know from the last 24-hours in the NFL, including Trent Williams' holdout, Dan Campbell's lectern.`\
+https://nytimes.com/athletic/5608018/2024/07/25/day-1-training-camp-takeaways-scoop-city/
+
+**A look at Browns' contract situations as training camp at Greenbrier Resort begins**\
+`Wide receiver Amari Cooper recently had his contract reworked for this season, but what other decisions still loom large for Cleveland?`\
+https://nytimes.com/athletic/5655647/2024/07/25/cleveland-browns-contracts-amari-cooper-jeremiah-owusu-koramoah/
+
 **Just One Question for Trump and Vance: What is Wrong With You People?**\
 `Say what you will about Biden, but he is not a bully.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/trump-vance-biden-speech
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5658281/2024/07/25/ny-rangers-mailbag-prompt-peter-
 **Kanjuruhan Stadium disaster: Indonesia firm apologies to victims' families after Gate 13 demolition**\
 `The company in charge of redevelopment work at the Kanjuruhan Stadium in Indonesia — where 135 fans died on October 1, 2022 in one of the world&#8217;s worst football disasters — has apologised to victims&#8217; families after demolishing one of the gates that was going to be retained as a memorial.`\
 https://nytimes.com/athletic/5658199/2024/07/25/kanjuruhan-stadium-disaster-tragedy/
-
-**Tennis at the 2024 Olympics: Alcaraz, Swiatek, Sinner, and Gauff return to Roland Garros**\
-`Coco Gauff leads Team USA's hopes, while Carlos Alcaraz and Iga Swiatek look to recapture their Roland Garros success.`\
-https://nytimes.com/athletic/5652736/2024/07/25/tennis-olympics-2024-paris-players-schedule-draws/
-
-**Bournemouth agree deal with Juventus for Dean Huijsen**\
-`Bournemouth have agreed a €15million deal with Juventus to sign defender Dean Huijsen.`\
-https://nytimes.com/athletic/5658109/2024/07/25/dean-huijsen-juventus-bournemouth-transfer/
-
-**Forest, Palace warned over unlicensed betting sponsor Kaiyun Sports**\
-`Nottingham Forest and Crystal Palace have been warned about their commercial relationship with shirt sponsors Kaiyun Sports, after it emerged that the betting website is not licensed to trade in the UK.`\
-https://nytimes.com/athletic/5657650/2024/07/25/forest-palace-kaiyun-sports-sponsor/
 
