@@ -1,3 +1,7 @@
+**Rallying Teachers Union, Harris Defies Trump to ‘Bring It On’**\
+`“We want to ban assault weapons, and they want to ban books,” she told the crowd of 3,500 people at the convention of the American Federation of Teachers.`\
+https://nytimes.com/2024/07/25/us/politics/harris-teachers-unions.html
+
 **Harris Rallies Teachers Union With Dire Warnings About Trump**\
 `“We want to ban assault weapons, and they want to ban books,” she told the crowd of 3,500 people at the convention of the American Federation of Teachers.`\
 https://nytimes.com/2024/07/25/us/politics/harris-teachers-unions.html
