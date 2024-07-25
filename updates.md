@@ -1,3 +1,23 @@
+**49ers training camp: Brandon Aiyuk and John Lynch watch good DB play together**\
+`While Aiyuk's hold-in continues, he was on the field to watch the entirety of Thursday's practice — including the first chunk with Lynch. `\
+https://nytimes.com/athletic/5659090/2024/07/25/49ers-training-camp-brandon-aiyuk-and-john-lynch-watch-good-db-play-together/
+
+**Blue Jays targeting starting pitching depth at trade deadline**\
+`Players with control remaining — including Vladimir Guerrero Jr., Bo Bichette and Chris Bassitt — remain off-limits in trade talks.`\
+https://nytimes.com/athletic/5659272/2024/07/25/blue-jays-trade-deadline-starting-pitching/
+
+**What Kamala Harris’ First Campaign Ad Reveals About Her Candidacy**\
+`Candidate Harris will try to present herself both as a new, fresh voice and as an incumbent.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/kamala-harris-campaign-ad
+
+**U.S. Indicts North Korean in Ransomware Attacks and Theft of Military Data**\
+`Funds from the ransomware attacks on hospitals subsidized military espionage activities, prosecutors say.`\
+https://nytimes.com/2024/07/25/us/politics/north-korea-ransomware-computer-hacking.html
+
+**Mayor’s Commission Scales Back Plan to Curb City Council’s Power**\
+`New Yorkers will be able to vote on a plan to add 30 days to City Council deliberations on public safety legislation. An earlier plan would have slowed the process further.`\
+https://nytimes.com/2024/07/25/nyregion/new-york-city-charter.html
+
 **Steelers training camp: Justin Fields up and down in surprise opportunity as QB1**\
 `Yes, Fields made some terrific plays, but he also had some big mistakes, with Russell Wilson watching on the first day of training camp.`\
 https://nytimes.com/athletic/5658732/2024/07/25/justin-fields-russell-wilson-steelers-training-camp/
