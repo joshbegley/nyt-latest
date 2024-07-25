@@ -1,3 +1,7 @@
+**Trump Workshops Jabs at Harris, but Nothing Plays Like the Classics**\
+`Donald J. Trump began turning Vice President Kamala Harris, his new opponent, into a nemesis. But his crowd still wanted to hear the hits.`\
+https://nytimes.com/2024/07/25/us/politics/trump-kamala-harris-insults-rally-speech.html
+
 **Bats Already Had Problems. Now, Add Taxidermy Listings on Etsy and eBay.**\
 `Online sales appear to be compounding threats from climate change and habitat loss, according to new research.`\
 https://nytimes.com/2024/07/25/climate/taxidermy-bats-kerivoula-picta.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/25/business/wnba-players-salaries-money.html
 **Max Verstappen denies reports of Red Bull sim racing ban, will not change radio approach**\
 `Lewis Hamilton also weighed in on the Red Bull driver's frustrations, saying that "you have to act like a world champion." `\
 https://nytimes.com/athletic/5658599/2024/07/25/max-verstappen-f1-sim-racing-red-bull-radio/
-
-**The Summer Olympics: How to Watch. What to Watch.**\
-`Gymnastics. Track. Swimming. Basketball. Break dancing.`\
-https://nytimes.com/2024/07/25/world/olympics/summer-olympics-how-to-watch.html
 

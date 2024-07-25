@@ -1,3 +1,7 @@
+**Trump Workshops Jabs at Harris, but Nothing Plays Like the Classics**\
+`Donald J. Trump began turning Vice President Kamala Harris, his new opponent, into a nemesis. But his crowd still wanted to hear the hits.`\
+https://nytimes.com/2024/07/25/us/politics/trump-kamala-harris-insults-rally-speech.html
+
 **Bats Already Had Problems. Now, Add Taxidermy Listings on Etsy and eBay.**\
 `Online sales appear to be compounding threats from climate change and habitat loss, according to new research.`\
 https://nytimes.com/2024/07/25/climate/taxidermy-bats-kerivoula-picta.html
