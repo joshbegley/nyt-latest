@@ -1,3 +1,23 @@
+**Overlooked No More: Willy de Bruyn, Cycling Champion Who Broke Gender Boundaries**\
+`A premiere cyclist in women’s competitions, he helped pave the way for future athletes when he announced that he wanted to live the rest of his life as a man.`\
+https://nytimes.com/2024/07/25/obituaries/willy-de-bruyn-overlooked.html
+
+**As Olympic opener nears, Steve Kerr again sounds alarm for Team USA: 'It's time'**\
+`With the Olympics about to begin, Steve Kerr continued to sound the alarm Thursday over the U.S. men's basketball team's recent struggles.`\
+https://nytimes.com/athletic/5658593/2024/07/25/steve-kerr-olympics-usa-basketball-comments/
+
+**Rybakina withdraws from Paris Olympics tennis competition**\
+`Elena Rybakina has withdrawn from the women&#8217;s tennis competition at the Paris Olympics.`\
+https://nytimes.com/athletic/5658609/2024/07/25/elena-rybakina-olympics-out/
+
+**Michael Hardy, Sharpton’s Longtime Lawyer and Confidant, Dies at 69**\
+`He was general counsel of Mr. Sharpton’s civil rights group, the National Action Network, and defended him in a defamation suit arising from the Tawana Brawley case.`\
+https://nytimes.com/2024/07/25/us/michael-hardy-dead.html
+
+**Read about U.S. arms transfers to Israel since Oct. 7**\
+`A tally of publicly known deliveries, as compiled by the Jewish Institute for National Security of America.`\
+https://nytimes.com/interactive/2024/07/25/us/jinsa-arms-transfer.html
+
 **On Immigration, Harris Is a Bit of a Chameleon**\
 `She has championed the rights of undocumented kids and thrown the book at undocumented criminals.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/harris-immigration-record
@@ -17,24 +37,4 @@ https://nytimes.com/2024/07/25/business/china-solar-energy.html
 **China Is Closing the A.I. Gap With the United States**\
 `In recent weeks, Chinese tech companies have unveiled technologies that rival American systems — and they are already in the hands of consumers and software developers.`\
 https://nytimes.com/2024/07/25/technology/china-open-source-ai.html
-
-**Are Chipotle Burritos Getting Smaller? Not on Purpose, Its C.E.O. Says**\
-`“There was never a directive to provide less to our customers,” the chief executive said. Still, he said the company would review practices across all its stores.`\
-https://nytimes.com/2024/07/25/business/chipotle-portion-size-ceo.html
-
-**On Eve of Olympics, a Curious Mix of Security and Silence**\
-`Even if Paris weren’t scarred by terrorist attacks, protecting the opening ceremony, which will float down the Seine, offers a daunting challenge.`\
-https://nytimes.com/2024/07/25/world/olympics/olympics-paris-security-opening-ceremony.html
-
-**Countering Concerns About Kamala Harris**\
-`Readers react to Bret Stephens’s criticisms of Kamala Harris. Also: Gail Collins’s loss; barring felons from office; no taxes on tips?`\
-https://nytimes.com/2024/07/25/opinion/kamala-harris.html
-
-**Thiago injury throws Toney's Brentford status in doubt**\
-`Brentford fear that their club-record signing Igor Thiago will miss the first few weeks of the new season after injuring his right knee in a friendly against AFC Wimbledon last Saturday — which could have implications for Ivan Toney&#8217;s future in west London.`\
-https://nytimes.com/athletic/5658588/2024/07/25/igor-thiago-injury-brentford-toney/
-
-**Jack Nelson didn't have the season he expected in 2023. That's why he's back for more at Wisconsin**\
-`Nelson knows he has more to prove after leading the Big Ten in penalties in 2023. So he delayed his NFL Draft hopes and is back in Madison.`\
-https://nytimes.com/athletic/5658558/2024/07/25/jack-nelson-wisconsin-college-football-nfl/
 
