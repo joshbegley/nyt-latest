@@ -1,4 +1,8 @@
-**Bowden: 7 deadline trades I'd like to see, starting with a Yankees-Rays swap**\
+**How is Olympic gymnastics scored? A guide to understanding the competition**\
+`Follow our Olympics coverage from the Paris Games.`\
+https://nytimes.com/athletic/5653423/2024/07/25/gymnastics-paris-olympics-scoring-faq/
+
+**Bowden: 7 deadline trades I'd like to see, starting with a big Yankees-Rays swap**\
 `As rumors swirl across the industry and we wait for the first big deals to go down, here are seven trade proposals to whet your appetite. `\
 https://nytimes.com/athletic/5657415/2024/07/25/mlb-deadline-trade-proposals/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/25/movies/cirque-du-soleil-without-a-net-review.html
 **Durant, Curry address Embiid's comments on LeBron and Team USA's age**\
 `Joel Embiid had said Lebron James 'is not the Lebron of a couple years ago' last week`\
 https://nytimes.com/athletic/5657755/2024/07/25/curry-durant-embiid-usa-olympics/
-
-**The Pulse: *Another* Olympic controversy, already**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5657172/2024/07/25/olympic-soccer-argentina-morocco-the-pulse/
 
