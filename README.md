@@ -14,7 +14,7 @@ https://nytimes.com/2024/07/25/world/asia/philippines-tanker-capsizes-oil-spill.
 `China could seize control of a strategically vital waterway without firing a shot.`\
 https://nytimes.com/2024/07/25/opinion/china-us-military-south-china-sea.html
 
-**Typhoon Gaemi Heads for China as Cargo Ship Sinks off Taiwan**\
+**Typhoon Gaemi Heads for China as Cargo Ship Sinks Off Taiwan**\
 `Nine sailors were missing after a cargo ship sank near the island in bad weather. The storm was forecast to make landfall in mainland China on Thursday.`\
 https://nytimes.com/2024/07/25/world/asia/typhoon-gaemi-china-taiwan.html
 
