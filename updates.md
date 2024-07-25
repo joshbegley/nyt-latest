@@ -1,3 +1,7 @@
+**Jack Flaherty, Tarik Skubal and where the Tigers stand ahead of the trade deadline**\
+`Jack Flaherty remains the Tigers' most likely trade asset, even as chatter swirls around Tarik Skubal. `\
+https://nytimes.com/athletic/5657358/2024/07/25/jack-flaherty-tarik-skubal-tigers-trade-deadline-rumors/
+
 **How can the Mets' long-term outlook affect their trade deadline plans?**\
 `Beyond the obvious Pete Alonso decision, the Mets will have calls to make about their outfield and Mark Vientos’ long-term home.`\
 https://nytimes.com/athletic/5657385/2024/07/25/how-can-the-mets-long-term-outlook-affect-their-trade-deadline-plans/
