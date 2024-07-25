@@ -4,7 +4,7 @@ https://nytimes.com/2024/07/25/us/wildfires-canada-california-oregon.html
 
 **Dodgers' Chris Taylor likely going on IL with groin tightness**\
 `The news comes just hours after the Dodgers placed shortstop Miguel Rojas on the injured list.`\
-https://nytimes.com/athletic/5657501/2024/07/25/chris-taylor-dodgers-injuries-hamstring/
+https://nytimes.com/athletic/5657501/2024/07/25/chris-taylor-dodgers-injuries/
 
 **Word of the Day: defector**\
 `This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\

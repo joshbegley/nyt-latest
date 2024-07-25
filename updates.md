@@ -1,3 +1,7 @@
+**Dodgers' Chris Taylor likely going on IL with groin tightness**\
+`The news comes just hours after the Dodgers placed shortstop Miguel Rojas on the injured list.`\
+https://nytimes.com/athletic/5657501/2024/07/25/chris-taylor-dodgers-injuries/
+
 **Wildfire Smoke Spreads Over Pacific Northwest and Western Canada**\
 `The blazes have prompted air quality warnings in several states and Canada’s Alberta Province.`\
 https://nytimes.com/2024/07/25/us/wildfires-canada-california-oregon.html
