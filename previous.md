@@ -1,3 +1,11 @@
+**Raiders mock Patrick Mahomes with 'Kermit the Frog' doll**\
+`A video circulated Thursday of Raiders safety Trey Taylor holding a fan's "Kermit the Frog" doll donning a Patrick Mahomes jersey and wig.`\
+https://nytimes.com/athletic/5659431/2024/07/25/raiders-mock-patrick-mahomes-with-kermit-the-frog-doll-at-training-camp/
+
+**Harris Bets Her Ties to Teachers’ Unions Will Help Her. Republicans Hope Otherwise.**\
+`Republicans are already seeking to link Vice President Kamala Harris to pandemic school closures, which local teachers’ unions pushed to extend.`\
+https://nytimes.com/2024/07/25/us/kamala-harris-teachers-education.html
+
 **Eagles training camp: Jordan Mailata, offensive line take accountability, and more**\
 `Plus, the field for the spot opposite Darius Slay at cornerback is crowded.`\
 https://nytimes.com/athletic/5658843/2024/07/25/philadelphia-eagles-training-camp-jordan-mailata-offensive-line-take-accountability-and-more/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/25/world/israel-gaza-war-hamas-netanyahu/israel
 **Hochul Faces 2 New Lawsuits Over Her Decision to Halt Congestion Pricing**\
 `The lawsuits are among the first legal efforts aiming to force Gov. Kathy Hochul to move forward with the tolling program as planned.`\
 https://nytimes.com/2024/07/25/nyregion/kathy-hochul-congestion-pricing-lawsuit.html
-
-**OpenAI Is Testing an A.I.-Powered Search Engine**\
-`The prominent A.I. start-up said it planned to eventually fold the new technology into its popular online chatbot, ChatGPT.`\
-https://nytimes.com/2024/07/25/technology/openai-ai-search-engine.html
-
-**Why Did Trump Promote a Book by One of His Accusers?**\
-`Could he really not have noticed this?`\
-https://nytimes.com/live/2024/07/22/opinion/thepoint/trump-sexual-misconduct
 
