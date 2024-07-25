@@ -1,3 +1,7 @@
+**Ukraine Detains Suspect in Killing of Nationalist Politician**\
+`An 18-year-old suspect was arrested after an intense manhunt. The authorities are investigating evidence that suggests that the suspect planned the killing with others.`\
+https://nytimes.com/2024/07/25/world/europe/ukraine-iryna-farion-killing-arrest.html
+
 **What Rupert Murdoch Owns, and How He Built His Media Empire**\
 `Over seven decades, the Australian-born magnate assembled an array of news outlets, book publishers, and film and television properties into a global behemoth.`\
 https://nytimes.com/2024/07/25/business/rupert-murdoch-empire.html
