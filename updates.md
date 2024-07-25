@@ -1,3 +1,11 @@
+**China Unexpectedly Cuts Interest Rate as World Markets Sag**\
+`The central bank lowered a key rate in its latest effort to steady China’s economy, as Asian stock markets followed Wall Street down.`\
+https://nytimes.com/2024/07/24/business/china-rate-cut-markets.html
+
+**The Beginning of Biden’s Long Goodbye**\
+`In a speech from the Oval Office, President Biden said it was time to “pass the torch to a new generation.” But he said nothing about his own age or capacity that led so many Democrats to desert him.`\
+https://nytimes.com/2024/07/24/us/politics/biden-long-goodbye.html
+
 **Given No Choice by His Party, Biden Says the Right Thing**\
 `It’s tempting to salute him for courage, but that would overlook the deception about his deterioration.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/biden-oval-office-speech
