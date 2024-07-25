@@ -1,3 +1,7 @@
+**Judge John Hodgman on Proper Garbage-Disposal Use**\
+`Can potato peels “wear out” the dark, bladed maw that lives in your sink?`\
+https://nytimes.com/2024/07/25/magazine/judge-john-hodgman-on-proper-garbage-disposal-use.html
+
 **Woman Sentenced to 41 Months for Blocking Entrance to Planned Parenthood**\
 `Bevelyn Beatty Williams, an anti-abortion activist, physically confronted patients in 2020 as they tried to enter a health clinic in Manhattan, prosecutors said.`\
 https://nytimes.com/2024/07/25/nyregion/planned-parenthood-woman-sentenced.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/25/briefing/harris-trump-poll-wildfire-canada.html
 **Bad Bunny agency case pushed to arbitrator**\
 `The MLBPA has revoked the agent status of William Arroyo, employed by the Bad Bunny-backed agencyRimas Sports. Rimas appealed. `\
 https://nytimes.com/athletic/5659267/2024/07/25/bad-bunny-sports-agency-mlbpa-ruling/
-
-**Big Ten commish Tony Petitti 'open-minded' on judging, expanding 12-team CFP**\
-`Petitti on the Playoff's future: 'Whether it's 12 or 14, we'll see. But I focus on the fact that we're really deep. We're 18 (teams) deep.'`\
-https://nytimes.com/athletic/5659362/2024/07/25/tony-petitti-big-ten-college-football-playoff/
 

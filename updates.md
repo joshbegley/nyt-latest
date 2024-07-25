@@ -1,3 +1,7 @@
+**Judge John Hodgman on Proper Garbage-Disposal Use**\
+`Can potato peels “wear out” the dark, bladed maw that lives in your sink?`\
+https://nytimes.com/2024/07/25/magazine/judge-john-hodgman-on-proper-garbage-disposal-use.html
+
 **Woman Sentenced to 41 Months for Blocking Entrance to Planned Parenthood**\
 `Bevelyn Beatty Williams, an anti-abortion activist, physically confronted patients in 2020 as they tried to enter a health clinic in Manhattan, prosecutors said.`\
 https://nytimes.com/2024/07/25/nyregion/planned-parenthood-woman-sentenced.html
