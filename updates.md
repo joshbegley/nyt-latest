@@ -1,3 +1,15 @@
+**Woman Sentenced to 41 Months for Blocking Entrance to Planned Parenthood**\
+`Bevelyn Beatty Williams, an anti-abortion activist, physically confronted patients in 2020 as they tried to enter a health clinic in Manhattan, prosecutors said.`\
+https://nytimes.com/2024/07/25/nyregion/planned-parenthood-woman-sentenced.html
+
+**Astros among teams expressing interest in trading for Cubs pitcher Jameson Taillon: Sources**\
+`Taillon, 32, has posted a 2.96 ERA in 17 starts`\
+https://nytimes.com/athletic/5659506/2024/07/25/astros-cubs-jameson-taillon-trade/
+
+**Real Madrid U.S tour squad: Endrick and Vinicius in, Mbappe and Bellingham miss out**\
+`Real Madrid will be without Kylian Mbappe and Jude Bellingham for their tour of the United States.`\
+https://nytimes.com/athletic/5659421/2024/07/25/real-madrid-u-s-tour-squad/
+
 **Raiders mock Patrick Mahomes with 'Kermit the Frog' doll**\
 `A video circulated Thursday of Raiders safety Trey Taylor holding a fan's "Kermit the Frog" doll donning a Patrick Mahomes jersey and wig.`\
 https://nytimes.com/athletic/5659431/2024/07/25/raiders-mock-patrick-mahomes-with-kermit-the-frog-doll-at-training-camp/

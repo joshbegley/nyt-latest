@@ -1,3 +1,15 @@
+**Woman Sentenced to 41 Months for Blocking Entrance to Planned Parenthood**\
+`Bevelyn Beatty Williams, an anti-abortion activist, physically confronted patients in 2020 as they tried to enter a health clinic in Manhattan, prosecutors said.`\
+https://nytimes.com/2024/07/25/nyregion/planned-parenthood-woman-sentenced.html
+
+**Astros among teams expressing interest in trading for Cubs pitcher Jameson Taillon: Sources**\
+`Taillon, 32, has posted a 2.96 ERA in 17 starts`\
+https://nytimes.com/athletic/5659506/2024/07/25/astros-cubs-jameson-taillon-trade/
+
+**Real Madrid U.S tour squad: Endrick and Vinicius in, Mbappe and Bellingham miss out**\
+`Real Madrid will be without Kylian Mbappe and Jude Bellingham for their tour of the United States.`\
+https://nytimes.com/athletic/5659421/2024/07/25/real-madrid-u-s-tour-squad/
+
 **Raiders mock Patrick Mahomes with 'Kermit the Frog' doll**\
 `A video circulated Thursday of Raiders safety Trey Taylor holding a fan's "Kermit the Frog" doll donning a Patrick Mahomes jersey and wig.`\
 https://nytimes.com/athletic/5659431/2024/07/25/raiders-mock-patrick-mahomes-with-kermit-the-frog-doll-at-training-camp/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5659267/2024/07/25/bad-bunny-sports-agency-mlbpa-ru
 **Big Ten commish Tony Petitti 'open-minded' on judging, expanding 12-team CFP**\
 `Petitti on the Playoff's future: 'Whether it's 12 or 14, we'll see. But I focus on the fact that we're really deep. We're 18 (teams) deep.'`\
 https://nytimes.com/athletic/5659362/2024/07/25/tony-petitti-big-ten-college-football-playoff/
-
-**Bills training camp: Khalil Shakir a model of consistency, and more**\
-`Plus, Curtis Samuel is proving his versatility and DE2 could be up for grabs.`\
-https://nytimes.com/athletic/5659181/2024/07/25/buffalo-bills-training-camp-khalil-shakir-joe-brady-curtis-samuel/
-
-**Israeli forces press forward in Khan Younis. At least 30 people are reported killed in 24 hours.**\
-`By Anjana Sankar`\
-https://nytimes.com/live/2024/07/25/world/israel-gaza-war-hamas-netanyahu/israeli-forces-press-forward-in-khan-younis-at-least-30-people-are-reported-killed-in-24-hours
-
-**Hochul Faces 2 New Lawsuits Over Her Decision to Halt Congestion Pricing**\
-`The lawsuits are among the first legal efforts aiming to force Gov. Kathy Hochul to move forward with the tolling program as planned.`\
-https://nytimes.com/2024/07/25/nyregion/kathy-hochul-congestion-pricing-lawsuit.html
 
