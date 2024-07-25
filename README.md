@@ -1,3 +1,7 @@
+**Hochul Faces 2 New Lawsuits Over Her Decision to Halt Congestion Pricing**\
+`The lawsuits are among the first legal efforts aiming to force Gov. Kathy Hochul to move forward with the tolling program as planned.`\
+https://nytimes.com/2024/07/25/nyregion/kathy-hochul-congestion-pricing-lawsuit.html
+
 **OpenAI Is Testing an A.I.-Powered Search Engine**\
 `The prominent A.I. start-up said it planned to eventually fold the new technology into its popular online chatbot, ChatGPT.`\
 https://nytimes.com/2024/07/25/technology/openai-ai-search-engine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5659282/2024/07/25/premier-league-games-united-stat
 **Oakland A's place closer Mason Miller on IL**\
 `Miller broke his non-throwing hand in a training room accident earlier this week.`\
 https://nytimes.com/athletic/5659295/2024/07/25/mason-miller-oakland-athletics-injured-trade/
-
-**Jets training camp observations: Aaron Rodgers-Garrett Wilson connection heats up**\
-`FLORHAM PARK, N.`\
-https://nytimes.com/athletic/5658989/2024/07/25/jets-training-camp-practice-report-day-2-aaron-rodgers-garrett-wilson/
 
