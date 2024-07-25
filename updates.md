@@ -1,3 +1,15 @@
+**We’re Asking the Wrong Question About Harris and Race**\
+`When it comes to people of mixed racial origin, our assumptions are sometimes strangely at odds with our ideals.`\
+https://nytimes.com/2024/07/25/opinion/kamala-harris-race.html
+
+**Western Wildfire Smoke Reaches the East Coast**\
+`Wildfire smoke from the Western United States and Canada is blowing across the Northeast, lowering air quality and endangering vulnerable populations.`\
+https://nytimes.com/2024/07/25/climate/wildfire-smoke-climate.html
+
+**An Australian Island With ‘Wild’ Saunas and Pagan Festivals**\
+`A local’s guide to Tasmania, with tips on where to sleep, eat and surf.`\
+https://nytimes.com/2024/07/25/t-magazine/tasmania-australia-guide.html
+
 **Trading for Garrett Crochet: Which teams (and prospect packages) could land him?**\
 `Which teams could put together strong enough prospect packages to land the All-Star lefty if the White Sox deal him? `\
 https://nytimes.com/athletic/5658365/2024/07/25/garrett-crochet-trade-possible-prospect-packages/

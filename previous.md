@@ -1,3 +1,15 @@
+**We’re Asking the Wrong Question About Harris and Race**\
+`When it comes to people of mixed racial origin, our assumptions are sometimes strangely at odds with our ideals.`\
+https://nytimes.com/2024/07/25/opinion/kamala-harris-race.html
+
+**Western Wildfire Smoke Reaches the East Coast**\
+`Wildfire smoke from the Western United States and Canada is blowing across the Northeast, lowering air quality and endangering vulnerable populations.`\
+https://nytimes.com/2024/07/25/climate/wildfire-smoke-climate.html
+
+**An Australian Island With ‘Wild’ Saunas and Pagan Festivals**\
+`A local’s guide to Tasmania, with tips on where to sleep, eat and surf.`\
+https://nytimes.com/2024/07/25/t-magazine/tasmania-australia-guide.html
+
 **Trading for Garrett Crochet: Which teams (and prospect packages) could land him?**\
 `Which teams could put together strong enough prospect packages to land the All-Star lefty if the White Sox deal him? `\
 https://nytimes.com/athletic/5658365/2024/07/25/garrett-crochet-trade-possible-prospect-packages/
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2024/07/25/us/elections/times-siena-poll-topline
 **Cross-Tabs: July 2024 Times/Siena Poll of Registered Voters Nationwide**\
 `Results of a nationwide New York Times/Siena College poll conducted among 1,142 registered voters from July 22 to 24, 2024.`\
 https://nytimes.com/interactive/2024/07/25/us/elections/times-siena-poll-registered-voter-crosstabs.html
-
-**Cross-Tabs: July 2024 Times/Siena Poll of the Likely Electorate**\
-`Results of a nationwide New York Times/Siena College poll conducted among 1,142 likely voters from July 22 to 24, 2024.`\
-https://nytimes.com/interactive/2024/07/25/us/elections/times-siena-poll-likely-electorate-crosstabs.html
-
-**Sean Clifford struggles, safeties vie for spot: 5 observations from Packers camp**\
-`Clifford hasn't exactly seized his opportunity as the first-team quarterback with Jordan Love sidelined while awaiting a new contract.`\
-https://nytimes.com/athletic/5658194/2024/07/25/packers-training-camp-sean-clifford/
-
-**The Overlooked Reason That Planes Crash So Often in Nepal**\
-`Each new disaster, including a crash that killed 18 people on Wednesday, leads to another investigation. A serious conflict of interest is always left unaddressed.`\
-https://nytimes.com/2024/07/25/world/asia/nepal-plane-crash.html
 
