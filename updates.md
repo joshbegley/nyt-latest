@@ -1,3 +1,15 @@
+**Bills training camp: Khalil Shakir a model of consistency, and more**\
+`Plus, Curtis Samuel is proving his versatility and DE2 could be up for grabs.`\
+https://nytimes.com/athletic/5659181/2024/07/25/buffalo-bills-training-camp-khalil-shakir-joe-brady-curtis-samuel/
+
+**Israeli forces press forward in Khan Younis. At least 30 people are reported killed in 24 hours.**\
+`By Anjana Sankar`\
+https://nytimes.com/live/2024/07/25/world/israel-gaza-war-hamas-netanyahu/israeli-forces-press-forward-in-khan-younis-at-least-30-people-are-reported-killed-in-24-hours
+
+**USWNT 3-0 Zambia takeaways: Rodman and Swanson score to help win Olympic opener**\
+`The U.S. opened its Olympic tournament with a win. Here's how it happened...`\
+https://nytimes.com/athletic/5659018/2024/07/25/uswnt-zambia-takeaways-rodman-swanson/
+
 **Hochul Faces 2 New Lawsuits Over Her Decision to Halt Congestion Pricing**\
 `The lawsuits are among the first legal efforts aiming to force Gov. Kathy Hochul to move forward with the tolling program as planned.`\
 https://nytimes.com/2024/07/25/nyregion/kathy-hochul-congestion-pricing-lawsuit.html
