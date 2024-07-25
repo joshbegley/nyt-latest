@@ -1,3 +1,11 @@
+**Full Transcript of Biden’s Speech on Ending His Run for Re-election**\
+`“The best way forward is to pass the torch to a new generation,” the president said in a rare Oval Office address. And he told voters, “History is in your hands.”`\
+https://nytimes.com/2024/07/24/us/politics/biden-speech-transcript.html
+
+**In Alex Cora, Red Sox retain the one constant through a period of whiplash**\
+`It’s been hard to know where ownership stands on anything the last several years, except for the manager. This has long been Cora’s team.`\
+https://nytimes.com/athletic/5657229/2024/07/24/red-sox-alex-cora-three-year-contract-analysis/
+
 **Who the Giants have to trade at the deadline, and which teams should have interest**\
 `The Giants' roster and contract situations are a little too weird for a blockbuster deadline. But there could be surprises.`\
 https://nytimes.com/athletic/5656257/2024/07/24/sf-giants-trade-deadline-scenarios-approach/
