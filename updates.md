@@ -1,3 +1,11 @@
+**Laïcité Comes for French Olympians**\
+`The country’s staunch approach to secularism has for decades caused tension with the French Muslim community.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/hijab-france-olympics
+
+**Bad Bunny agency case pushed to arbitrator**\
+`The MLBPA has revoked the agent status of William Arroyo, employed by the Bad Bunny-backed agencyRimas Sports. Rimas appealed. `\
+https://nytimes.com/athletic/5659267/2024/07/25/bad-bunny-sports-agency-mlbpa-ruling/
+
 **Harris Narrowed Trump’s Lead in Polls**\
 `Also, wildfires roar through western Canada. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/07/25/briefing/harris-trump-poll-wildfire-canada.html
