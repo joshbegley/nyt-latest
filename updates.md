@@ -1,3 +1,11 @@
+**Teachers, How Do You Handle Classroom Conversations About Hot-Button Issues?**\
+`What has worked? What has been difficult? We’d love to hear from educators at all levels and across subject areas.`\
+https://nytimes.com/2024/07/25/learning/teachers-how-do-you-handle-classroom-conversations-about-hot-button-issues.html
+
+**Our 2024-25 Student Contest Calendar**\
+`Ten challenges that invite teenagers to engage, experiment, reflect and create — via writing, photography, audio, video and more.`\
+https://nytimes.com/2024/07/25/learning/our-2024-25-student-contest-calendar.html
+
 **Rupert Murdoch’s Game of Thrones**\
 `The battle between the media mogul and three of his children over control of his empire has big ramifications for politics, media and more.`\
 https://nytimes.com/2024/07/25/business/dealbook/murdoch-family-fight.html
