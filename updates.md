@@ -1,3 +1,7 @@
+**Clemson and Florida State's fit and why we can't quit talking realignment: SEC mailbag**\
+`Which league team, player or coach deserve more hype heading into the season?`\
+https://nytimes.com/athletic/5653971/2024/07/25/sec-realignment-clemson-florida-state/
+
 **Trump and His Allies Adapt to a New Role: Fighting for Attention**\
 `In the days since President Biden ended his re-election bid and passed the torch to Vice President Kamala Harris, Donald Trump’s campaign has been crowded out of the headlines.`\
 https://nytimes.com/2024/07/25/us/politics/trump-gop-kamala-harris.html

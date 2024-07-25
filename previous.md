@@ -1,3 +1,7 @@
+**Clemson and Florida State's fit and why we can't quit talking realignment: SEC mailbag**\
+`Which league team, player or coach deserve more hype heading into the season?`\
+https://nytimes.com/athletic/5653971/2024/07/25/sec-realignment-clemson-florida-state/
+
 **Trump and His Allies Adapt to a New Role: Fighting for Attention**\
 `In the days since President Biden ended his re-election bid and passed the torch to Vice President Kamala Harris, Donald Trump’s campaign has been crowded out of the headlines.`\
 https://nytimes.com/2024/07/25/us/politics/trump-gop-kamala-harris.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/25/opinion/paris-olympics-afghanistan.html
 **The G.O.P.’s Problem With the Elite Begins With Its Own**\
 `The Republican Party has turned its own ignorance into a point of pride.`\
 https://nytimes.com/2024/07/25/opinion/vance-trump-republicans-elite.html
-
-**Kremlin Uses Olympic Ban as Another Arrow to Shoot at the West**\
-`Only 15 athletes from Russia will compete at the Paris Games, under a “neutral” designation. The Kremlin is framing the ban as part of its showdown with Western adversaries.`\
-https://nytimes.com/2024/07/25/world/europe/russia-olympic-ban-athletes-putin.html
 
