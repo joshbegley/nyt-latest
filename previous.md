@@ -1,4 +1,4 @@
-**Wildfire Smoke Spreads over Pacific Northwest and Western Canada**\
+**Wildfire Smoke Spreads Over Pacific Northwest and Western Canada**\
 `The blazes have prompted air quality warnings in several states and Canada’s Alberta Province.`\
 https://nytimes.com/2024/07/25/us/wildfires-canada-california-oregon.html
 
