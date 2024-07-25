@@ -1,3 +1,7 @@
+**Manchester United is a loss-making company - yet 250 people have paid for it with their jobs**\
+`United staff are not at fault for the club's previous mistakes yet have felt the sting with widespread redundancies`\
+https://nytimes.com/athletic/5658467/2024/07/25/manchester-united-job-cuts-loss/
+
 **Overlooked No More: Willy de Bruyn, Cycling Champion Who Broke Gender Boundaries**\
 `A premiere cyclist in women’s competitions, he helped pave the way for future athletes when he announced that he wanted to live the rest of his life as a man.`\
 https://nytimes.com/2024/07/25/obituaries/willy-de-bruyn-overlooked.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/25/world/israel-gaza-war-hamas-netanyahu/the-us
 **China Rules Solar Energy, but Its Industry at Home Is in Trouble**\
 `The solar sector shows how China conducts industrial policy: It chooses industries to dominate, floods them with loans and lets companies fight it out.`\
 https://nytimes.com/2024/07/25/business/china-solar-energy.html
-
-**China Is Closing the A.I. Gap With the United States**\
-`In recent weeks, Chinese tech companies have unveiled technologies that rival American systems — and they are already in the hands of consumers and software developers.`\
-https://nytimes.com/2024/07/25/technology/china-open-source-ai.html
 
