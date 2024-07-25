@@ -1,3 +1,11 @@
+**The glory and tragedy of F1's Circuit de Spa-Francorchamps**\
+`One of F1's oldest tracks, Spa is huge, fast, dangerous and utterly epic. `\
+https://nytimes.com/athletic/5658345/2024/07/25/belgian-gp-spa-track-breakdown-specs/
+
+**Just One Question for Trump and Vance: What Is Wrong With You People?**\
+`Say what you will about Biden, but he is not a bully.`\
+https://nytimes.com/2024/07/22/opinion/trump-vance-biden-speech.html
+
 **Just One Question for Trump and Vance: What Is Wrong With You People?**\
 `Say what you will about Biden, but he is not a bully.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/trump-vance-biden-speech
