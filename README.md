@@ -1,3 +1,7 @@
+**Israeli forces press forward in Khan Younis. At least 30 people are reported killed in 24 hours.**\
+`By Anjana Sankar`\
+https://nytimes.com/live/2024/07/25/world/israel-gaza-war-hamas-netanyahu/israeli-forces-press-forward-in-khan-younis-at-least-30-people-are-reported-killed-in-24-hours
+
 **Hochul Faces 2 New Lawsuits Over Her Decision to Halt Congestion Pricing**\
 `The lawsuits are among the first legal efforts aiming to force Gov. Kathy Hochul to move forward with the tolling program as planned.`\
 https://nytimes.com/2024/07/25/nyregion/kathy-hochul-congestion-pricing-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/25/us/politics/obama-harris-endorsement.html
 **Mayor of London calls for Premier League games to be played in the U.S.**\
 `The Mayor of London Sadiq Khan has called for Premier League games to be played in the United States.`\
 https://nytimes.com/athletic/5659282/2024/07/25/premier-league-games-united-states-america/
-
-**Oakland A's place closer Mason Miller on IL**\
-`Miller broke his non-throwing hand in a training room accident earlier this week.`\
-https://nytimes.com/athletic/5659295/2024/07/25/mason-miller-oakland-athletics-injured-trade/
 
