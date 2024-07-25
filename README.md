@@ -1,3 +1,15 @@
+**For Years, TikTok Told Us What to Buy. Now the Trend Is to Consume Less.**\
+`The trend of “underconsumption core” romanticizes buying and using only what you need. Yes, being normal is now trending. Experts say it’s a response to a period of economic hardship.`\
+https://nytimes.com/2024/07/25/style/tiktok-underconsumption-influencers.html
+
+**Gaza’s Death Toll Was Largely Accurate in Early Days of War, Study Finds**\
+`Though the war has clearly devastated the civilian population, the credibility of the Gazan Health Ministry’s toll has been a subject of debate.`\
+https://nytimes.com/2024/07/25/world/middleeast/gaza-death-toll-israel-war.html
+
+**The hostages were already presumed dead by Israeli officials.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/07/25/world/israel-gaza-war-hamas/the-hostages-were-already-presumed-dead-by-israeli-officials
+
 **Jack Flaherty, Tarik Skubal and where the Tigers stand ahead of the trade deadline**\
 `Jack Flaherty remains the Tigers' most likely trade asset, even as chatter swirls around Tarik Skubal. `\
 https://nytimes.com/athletic/5657358/2024/07/25/jack-flaherty-tarik-skubal-tigers-trade-deadline-rumors/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5653971/2024/07/25/sec-realignment-clemson-florida-
 **Trump and His Allies Adapt to a New Role: Fighting for Attention**\
 `In the days since President Biden ended his re-election bid and passed the torch to Vice President Kamala Harris, Donald Trump’s campaign has been crowded out of the headlines.`\
 https://nytimes.com/2024/07/25/us/politics/trump-gop-kamala-harris.html
-
-**Homicides in U.S. Continue to Fall from Pandemic Highs**\
-`An analysis by the Council on Criminal Justice cautions that progress has been uneven, with the trend being driven by declines in a handful of big cities`\
-https://nytimes.com/2024/07/25/us/homicides-crime-report.html
-
-**Tech Stocks Are Out. Small Stocks Are In. Can That Last?**\
-`Shifting views on the economy have led to a “rotation” in the stock market. Small stocks and companies geared toward the economic cycle are rising. Big Tech is lagging.`\
-https://nytimes.com/2024/07/25/business/small-cap-stock-market-rotation.html
-
-**They Crossed the Country With a Dream of Manhattan and $800,000 to Spend**\
-`Two longtime Californians searched the East Side for a comfortable one-bedroom, with an eye on Central Park and Lincoln Center.`\
-https://nytimes.com/interactive/2024/07/25/realestate/manhattan-nyc-home-buying.html
 
