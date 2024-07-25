@@ -1,3 +1,27 @@
+**'Inside the NBA' memories: From 'SNL' spoofs to cookie storage, show left its mark**\
+`There may be more attempts to duplicate the show's success, but there's really no comparison.`\
+https://nytimes.com/athletic/5478150/2024/07/25/tnt-inside-the-nba-media-tv-rights/
+
+**Hollinger: My 2024 summer-league standouts, some of whom you may not know**\
+`Don't let anyone tell you summer league doesn't matter. In many cases, it can be a sign of things to come.`\
+https://nytimes.com/athletic/5654579/2024/07/25/nba-summer-league-rookies-reed-sheppard-tristan-da-silva-vegas/
+
+**Lamar Jackson returns to Ravens training camp but has relatively short stay**\
+`After missing the first three days of training camp, Jackson participated in some individual drills and got some full-team reps.`\
+https://nytimes.com/athletic/5656891/2024/07/25/lamar-jackson-ravens-training-camp/
+
+**The Harris Campaign Is Born**\
+`What Vice President Kamala Harris’s election bid might look and sound like.`\
+https://nytimes.com/2024/07/25/podcasts/the-daily/kamala-harris-campaign.html
+
+**Wordle Review No. 1,133, Friday, July 26, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/25/crosswords/wordle-review-1133.html
+
+**The Connections Companion No. 411, July 26, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/25/crosswords/connections-companion-411.html
+
 **Dissension in the ranks: Debating Travis Etienne vs. De'Von Achane for fantasy football 2024**\
 `Gary Davenport and John Laghezza try to break a virtual fantasy football ADP tie between alpha receivers Travis Etienne and De'Von Achane.`\
 https://nytimes.com/athletic/5656046/2024/07/25/rankings-debate-travis-etienne-devon-achane-fantasy-football-2024/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5608048/2024/07/25/ryan-sessegnon-fulham-transfer/
 **For Years, TikTok Told Us What to Buy. Now the Trend Is to Consume Less.**\
 `The trend of “underconsumption core” romanticizes buying and using only what you need. Yes, being normal is now trending. Experts say it’s a response to a period of economic hardship.`\
 https://nytimes.com/2024/07/25/style/tiktok-underconsumption-influencers.html
-
-**Gaza’s Death Toll Was Largely Accurate in Early Days of War, Study Finds**\
-`Though the war has clearly devastated the civilian population, the credibility of the Gazan Health Ministry’s toll has been a subject of debate.`\
-https://nytimes.com/2024/07/25/world/middleeast/gaza-death-toll-israel-war.html
-
-**The hostages were already presumed dead by Israeli officials.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/07/25/world/israel-gaza-war-hamas-netanyahu/the-hostages-were-already-presumed-dead-by-israeli-officials
-
-**Jack Flaherty, Tarik Skubal and where the Tigers stand ahead of the trade deadline**\
-`Jack Flaherty remains the Tigers' most likely trade asset, even as chatter swirls around Tarik Skubal. `\
-https://nytimes.com/athletic/5657358/2024/07/25/jack-flaherty-tarik-skubal-tigers-trade-deadline-rumors/
-
-**How can the Mets' long-term outlook affect their trade deadline plans?**\
-`Beyond the obvious Pete Alonso decision, the Mets will have calls to make about their outfield and Mark Vientos’ long-term home.`\
-https://nytimes.com/athletic/5657385/2024/07/25/how-can-the-mets-long-term-outlook-affect-their-trade-deadline-plans/
-
-**Australian Field Hockey Player Is Paris-Bound, Minus a Finger Joint**\
-`After the tip of his ring finger was mangled in a practice match two weeks ago, Matthew Dawson chose amputation over a long, uncertain recovery.`\
-https://nytimes.com/2024/07/25/world/olympics/australia-hockey-finger-paris-olympics.html
-
-**Predicting the 2024 Paris Olympics medal count: 7 factors for winningest countries**\
-`Our underdogs experts use a statistical model to predict the winningest countries at the Paris Games, and how many medals they'll win.`\
-https://nytimes.com/athletic/5653490/2024/07/25/olympics-2024-medal-projection-model/
 

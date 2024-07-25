@@ -1,3 +1,27 @@
+**'Inside the NBA' memories: From 'SNL' spoofs to cookie storage, show left its mark**\
+`There may be more attempts to duplicate the show's success, but there's really no comparison.`\
+https://nytimes.com/athletic/5478150/2024/07/25/tnt-inside-the-nba-media-tv-rights/
+
+**Hollinger: My 2024 summer-league standouts, some of whom you may not know**\
+`Don't let anyone tell you summer league doesn't matter. In many cases, it can be a sign of things to come.`\
+https://nytimes.com/athletic/5654579/2024/07/25/nba-summer-league-rookies-reed-sheppard-tristan-da-silva-vegas/
+
+**Lamar Jackson returns to Ravens training camp but has relatively short stay**\
+`After missing the first three days of training camp, Jackson participated in some individual drills and got some full-team reps.`\
+https://nytimes.com/athletic/5656891/2024/07/25/lamar-jackson-ravens-training-camp/
+
+**The Harris Campaign Is Born**\
+`What Vice President Kamala Harris’s election bid might look and sound like.`\
+https://nytimes.com/2024/07/25/podcasts/the-daily/kamala-harris-campaign.html
+
+**Wordle Review No. 1,133, Friday, July 26, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/25/crosswords/wordle-review-1133.html
+
+**The Connections Companion No. 411, July 26, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/25/crosswords/connections-companion-411.html
+
 **Dissension in the ranks: Debating Travis Etienne vs. De'Von Achane for fantasy football 2024**\
 `Gary Davenport and John Laghezza try to break a virtual fantasy football ADP tie between alpha receivers Travis Etienne and De'Von Achane.`\
 https://nytimes.com/athletic/5656046/2024/07/25/rankings-debate-travis-etienne-devon-achane-fantasy-football-2024/
