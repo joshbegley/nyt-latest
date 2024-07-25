@@ -1,3 +1,15 @@
+**Rosenior appointed head coach at BlueCo-owned Strasbourg**\
+`Liam Rosenior has been appointed as the head coach of Strasbourg on a three-year deal.`\
+https://nytimes.com/athletic/5649314/2024/07/25/liam-rosenior-strasbourg-blueco/
+
+**Koozies, Key Chains and T-Shirts: Who’s Buying All That Billy Joel Merch?**\
+`The singer-songwriter is scheduled to perform his 150th show at Madison Square Garden, and fans are ready to collect.`\
+https://nytimes.com/2024/07/25/style/billy-joel-concert-merch.html
+
+**Newsom Will Order California Officials to Remove Homeless Encampments**\
+`The directive from Gov. Gavin Newsom is the nation’s most sweeping response to a Supreme Court decision last month that gave local leaders greater authority to remove homeless campers.`\
+https://nytimes.com/2024/07/25/us/newsom-homeless-california.html
+
 **Until Saturday: DeShaun Foster made his Big Ten debut, while drama continues in ACC**\
 `Welcome to Until Saturday, the five-star college football newsletter: Foster made his Big Ten debut while the ACC's drama continues.`\
 https://nytimes.com/athletic/5657030/2024/07/25/deshaun-foster-pat-mcafee-acc-media-days-until-saturday/
@@ -25,16 +37,4 @@ https://nytimes.com/card/2024/07/25/science/snail-racing
 **Robbie Ray dazzles with five hitless innings in Giants debut: 'I knew that my stuff was going to play'**\
 `Ray needed an inning to channel his adrenaline, but once he got a handle on his stuff, it was as suffocating as ever.`\
 https://nytimes.com/athletic/5657651/2024/07/25/robbie-ray-sf-giants-debut/
-
-**Teachers, How Do You Handle Classroom Conversations About Hot-Button Issues?**\
-`What has worked? What has been difficult? We’d love to hear from educators at all levels and across subject areas.`\
-https://nytimes.com/2024/07/25/learning/teachers-how-do-you-handle-classroom-conversations-about-hot-button-issues.html
-
-**Our 2024-25 Student Contest Calendar**\
-`Ten challenges that invite teenagers to engage, experiment, reflect and create — via writing, photography, audio, video and more.`\
-https://nytimes.com/2024/07/25/learning/our-2024-25-student-contest-calendar.html
-
-**Rupert Murdoch’s Game of Thrones**\
-`The battle between the media mogul and three of his children over control of his empire has big ramifications for politics, media and more.`\
-https://nytimes.com/2024/07/25/business/dealbook/murdoch-family-fight.html
 

@@ -1,3 +1,15 @@
+**Rosenior appointed head coach at BlueCo-owned Strasbourg**\
+`Liam Rosenior has been appointed as the head coach of Strasbourg on a three-year deal.`\
+https://nytimes.com/athletic/5649314/2024/07/25/liam-rosenior-strasbourg-blueco/
+
+**Koozies, Key Chains and T-Shirts: Who’s Buying All That Billy Joel Merch?**\
+`The singer-songwriter is scheduled to perform his 150th show at Madison Square Garden, and fans are ready to collect.`\
+https://nytimes.com/2024/07/25/style/billy-joel-concert-merch.html
+
+**Newsom Will Order California Officials to Remove Homeless Encampments**\
+`The directive from Gov. Gavin Newsom is the nation’s most sweeping response to a Supreme Court decision last month that gave local leaders greater authority to remove homeless campers.`\
+https://nytimes.com/2024/07/25/us/newsom-homeless-california.html
+
 **‘Ready, Steady, Slow’: Championship Snail Racing at 0.006 M.P.H.**\
 `Last one to the finish line is a miserable slug.`\
 https://nytimes.com/card/2024/07/25/science/snail-racing
