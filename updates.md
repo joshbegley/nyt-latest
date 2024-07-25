@@ -1,3 +1,7 @@
+**Israelis Contrast Netanyahu’s Speech in Congress With Grim Reality at Home**\
+`Commentators noted the gap between the applause the Israeli leader received in Congress and the widespread sense of government failure in Israel as the war drags on.`\
+https://nytimes.com/2024/07/25/world/middleeast/netanyahu-congress-speech-israel.html
+
 **West Ham close on deal for Mazraoui from Bayern**\
 `West Ham United are closing in on a deal to sign Bayern Munich defender Noussair Mazraoui.`\
 https://nytimes.com/athletic/5657806/2024/07/25/west-ham-mazraoui-transfer-bayern-munich/
