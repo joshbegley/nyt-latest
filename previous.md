@@ -1,3 +1,7 @@
+**Big Ten commish Tony Petitti 'open-minded' on judging, expanding 12-team CFP**\
+`Petitti on the Playoff's future: 'Whether it's 12 or 14, we'll see. But I focus on the fact that we're really deep. We're 18 (teams) deep.'`\
+https://nytimes.com/athletic/5659362/2024/07/25/tony-petitti-big-ten-college-football-playoff/
+
 **Bills training camp: Khalil Shakir a model of consistency, and more**\
 `Plus, Curtis Samuel is proving his versatility and DE2 could be up for grabs.`\
 https://nytimes.com/athletic/5659181/2024/07/25/buffalo-bills-training-camp-khalil-shakir-joe-brady-curtis-samuel/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/25/us/politics/doj-watchdog-barr-trump-election.html
 **Ohio State is desperate. Michigan is not. What comes next for the Wolverines?**\
 `Michigan put everything into beating Ohio State and turned the rivalry on its head. Now, the Buckeyes are fighting back. `\
 https://nytimes.com/athletic/5659268/2024/07/25/michigan-ohio-state-sherrone-moore/
-
-**Obama Has Been in Touch With Harris and Is Expected to Endorse Her Soon**\
-`Former President Barack Obama had been reluctant to endorse Ms. Harris too quickly, to avoid the perception that he was overseeing her coronation, people familiar with his thinking say.`\
-https://nytimes.com/2024/07/25/us/politics/obama-harris-endorsement.html
 
