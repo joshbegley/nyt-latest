@@ -1,3 +1,11 @@
+**The Moon’s Most Shadowy Places Can’t Hide From NASA’s New Camera**\
+`ShadowCam, a NASA instrument aboard a South Korean spacecraft, is taking pictures of the moon where the sun doesn’t shine.`\
+https://nytimes.com/2024/07/25/science/moon-nasa-shadowcam-craters.html
+
+**Yates signs new Forest contract**\
+`Nottingham Forest midfielder Ryan Yates has signed a new and improved contract with the club.`\
+https://nytimes.com/athletic/5656636/2024/07/25/ryan-yates-nottingham-forest-contract/
+
 **Southwest Airlines Will End Its Longstanding Open-Seating Policy**\
 `The airline said it was scrapping its trademark, 50-year tradition of offering open seating, where passengers choose seats once they have boarded the plane.`\
 https://nytimes.com/2024/07/25/business/southwest-airlines-assigned-seating.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/25/business/economy/2025-economy-president.html
 **Prince Harry Says Struggle With U.K. Tabloids Deepened Family Rift**\
 `In a TV interview airing on Thursday, Harry said his dispute against some newspapers over illegal information gathering was a “central piece” of his estrangement from other royals.`\
 https://nytimes.com/2024/07/25/world/europe/uk-prince-harry-tabloids-royal-family.html
-
-**U.S. Economy Grew at 2.8% Rate in Latest Quarter**\
-`The report on gross domestic product offered new evidence of the economy’s resilience in the face of high interest rates.`\
-https://nytimes.com/2024/07/25/business/economy/us-gdp-economy-inflation.html
-
-**What we learned from USC's trip to Big Ten media days**\
-`Lincoln Riley touched on NIL, scheduling and the overall state of his rebuild during his session with the media in Indianapolis. `\
-https://nytimes.com/athletic/5657923/2024/07/25/usc-football-big-ten-nil-recruiting/
 
