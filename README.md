@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5657121/2024/07/25/fantasy-football-draft-strategy-
 `James McNicholas addresses the main talking points from Arsenal's friendly draw against Bournemouth`\
 https://nytimes.com/athletic/5655378/2024/07/25/arsenal-bournemouth-friendly-analysis/
 
-**4 Mets takeaways from their five-homer demolishing of the Yankees**\
+**Four Mets takeaways from their 5-homer demolishing of the Yankees**\
 `The Mets got two homers from Francisco Lindor and one each from Tyrone Taylor, Pete Alonso and Mark Vientos as they roughed up Gerrit Cole.`\
 https://nytimes.com/athletic/5657482/2024/07/25/mets-yankees-francisco-lindor/
 
