@@ -1,3 +1,15 @@
+**Your Purse Is Filthy. Here’s How to Clean It Up.**\
+`A few simple tips can help get rid of stains.`\
+https://nytimes.com/interactive/2024/07/25/smarter-living/wirecutter/clean-purse.html
+
+**Trump Urges Netanyahu to End War in Gaza Ahead of Friday Meeting**\
+`The Israeli leader is scheduled to visit Mar-a-Lago in Florida before he returns home.`\
+https://nytimes.com/2024/07/25/world/middleeast/trump-netanyahu-israel-gaza.html
+
+**The main super PAC that backed Biden begins a $50 million ad buy for Harris.**\
+`By Reid J. Epstein`\
+https://nytimes.com/live/2024/07/25/us/harris-trump-biden-election/the-main-super-pac-that-backed-biden-begins-a-50-billion-ad-buy-for-harris
+
 **Judge John Hodgman on Proper Garbage-Disposal Use**\
 `Can potato peels “wear out” the dark, bladed maw that lives in your sink?`\
 https://nytimes.com/2024/07/25/magazine/judge-john-hodgman-on-proper-garbage-disposal-use.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/25/us/kamala-harris-teachers-education.html
 **Eagles training camp: Jordan Mailata, offensive line take accountability, and more**\
 `Plus, the field for the spot opposite Darius Slay at cornerback is crowded.`\
 https://nytimes.com/athletic/5658843/2024/07/25/philadelphia-eagles-training-camp-jordan-mailata-offensive-line-take-accountability-and-more/
-
-**Laïcité Comes for French Olympians**\
-`The country’s staunch approach to secularism has for decades caused tension with the French Muslim community.`\
-https://nytimes.com/live/2024/07/22/opinion/thepoint/hijab-france-olympics
-
-**Harris Narrowed Trump’s Lead in Polls**\
-`Also, wildfires roar through western Canada. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2024/07/25/briefing/harris-trump-poll-wildfire-canada.html
-
-**Bad Bunny agency case pushed to arbitrator**\
-`The MLBPA has revoked the agent status of William Arroyo, employed by the Bad Bunny-backed agencyRimas Sports. Rimas appealed. `\
-https://nytimes.com/athletic/5659267/2024/07/25/bad-bunny-sports-agency-mlbpa-ruling/
 
