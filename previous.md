@@ -1,3 +1,11 @@
+**Harris Narrowed Trump’s Lead in Polls**\
+`Also, wildfires roar through western Canada. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/07/25/briefing/harris-trump-poll-wildfire-canada.html
+
+**Bad bunny agency case pushed to arbitrator**\
+`The MLBPA has revoked the agent status of William Arroyo, employed by the Bad Bunny-backed agencyRimas Sports. Rimas appealed. `\
+https://nytimes.com/athletic/5659267/2024/07/25/bad-bunny-sports-agency-mlbpa-ruling/
+
 **Big Ten commish Tony Petitti 'open-minded' on judging, expanding 12-team CFP**\
 `Petitti on the Playoff's future: 'Whether it's 12 or 14, we'll see. But I focus on the fact that we're really deep. We're 18 (teams) deep.'`\
 https://nytimes.com/athletic/5659362/2024/07/25/tony-petitti-big-ten-college-football-playoff/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/25/briefing/olympics-paris-trump-harris-poll.html
 **USWNT 3-0 Zambia takeaways: Rodman and Swanson score to help win Olympic opener**\
 `The U.S. opened its Olympic tournament with a win. Here's how it happened...`\
 https://nytimes.com/athletic/5659018/2024/07/25/uswnt-zambia-takeaways-rodman-swanson/
-
-**Justice Dept. Watchdog Criticizes Barr’s Role in Election Inquiry**\
-`The inspector general said he was troubled by William Barr’s decision in 2020 to brief President Trump on an inquiry over nine discarded ballots, which might have encouraged Mr. Trump’s false election claims.`\
-https://nytimes.com/2024/07/25/us/politics/doj-watchdog-barr-trump-election.html
-
-**Ohio State is desperate. Michigan is not. What comes next for the Wolverines?**\
-`Michigan put everything into beating Ohio State and turned the rivalry on its head. Now, the Buckeyes are fighting back. `\
-https://nytimes.com/athletic/5659268/2024/07/25/michigan-ohio-state-sherrone-moore/
 

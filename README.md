@@ -1,8 +1,12 @@
+**Laïcité Comes for French Olympians**\
+`The country’s staunch approach to secularism has for decades caused tension with the French Muslim community.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/hijab-france-olympics
+
 **Harris Narrowed Trump’s Lead in Polls**\
 `Also, wildfires roar through western Canada. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/07/25/briefing/harris-trump-poll-wildfire-canada.html
 
-**Bad bunny agency case pushed to arbitrator**\
+**Bad Bunny agency case pushed to arbitrator**\
 `The MLBPA has revoked the agent status of William Arroyo, employed by the Bad Bunny-backed agencyRimas Sports. Rimas appealed. `\
 https://nytimes.com/athletic/5659267/2024/07/25/bad-bunny-sports-agency-mlbpa-ruling/
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/22/opinion/thepoint/trump-sexual-misconduct
 **Friday Briefing: The Olympics Begin**\
 `Plus, a new poll shows Kamala Harris closing in on Donald Trump.`\
 https://nytimes.com/2024/07/25/briefing/olympics-paris-trump-harris-poll.html
-
-**USWNT 3-0 Zambia takeaways: Rodman and Swanson score to help win Olympic opener**\
-`The U.S. opened its Olympic tournament with a win. Here's how it happened...`\
-https://nytimes.com/athletic/5659018/2024/07/25/uswnt-zambia-takeaways-rodman-swanson/
 

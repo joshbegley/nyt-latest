@@ -1,3 +1,11 @@
+**Harris Narrowed Trump’s Lead in Polls**\
+`Also, wildfires roar through western Canada. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/07/25/briefing/harris-trump-poll-wildfire-canada.html
+
+**Bad bunny agency case pushed to arbitrator**\
+`The MLBPA has revoked the agent status of William Arroyo, employed by the Bad Bunny-backed agencyRimas Sports. Rimas appealed. `\
+https://nytimes.com/athletic/5659267/2024/07/25/bad-bunny-sports-agency-mlbpa-ruling/
+
 **Big Ten commish Tony Petitti 'open-minded' on judging, expanding 12-team CFP**\
 `Petitti on the Playoff's future: 'Whether it's 12 or 14, we'll see. But I focus on the fact that we're really deep. We're 18 (teams) deep.'`\
 https://nytimes.com/athletic/5659362/2024/07/25/tony-petitti-big-ten-college-football-playoff/
