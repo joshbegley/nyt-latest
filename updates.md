@@ -1,3 +1,11 @@
+**Thursday Briefing**\
+`Why Biden quit the race.`\
+https://nytimes.com/2024/07/25/briefing/thursday-briefing.html
+
+**The Briefing: Chelsea 2-2 Wrexham - Draw in Maresca's first game, Nkunku scores, inverted full-backs**\
+`Simon Johnson addresses the main talking points from Chelsea's pre-season friendly draw against Wrexham`\
+https://nytimes.com/athletic/5655375/2024/07/25/chelsea-wrexham-friendly-analysis/
+
 **Training to music, playing politics - sure and smart: Kompany's start at Bayern**\
 `The new Bayern head coach is determined not to follow Thomas Tuchel's approach as he sets out his vision for the club`\
 https://nytimes.com/athletic/5654030/2024/07/25/bayern-munich-vincent-kompany-start/
