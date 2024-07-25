@@ -1,3 +1,11 @@
+**Justice Dept. Watchdog Criticizes Barr’s Role in Election Inquiry**\
+`The inspector general said he was troubled by William Barr’s decision in 2020 to brief President Trump on an inquiry over nine discarded ballots, which might have encouraged Mr. Trump’s false election claims.`\
+https://nytimes.com/2024/07/25/us/politics/doj-watchdog-barr-trump-election.html
+
+**Ohio State is desperate. Michigan is not. What comes next for the Wolverines?**\
+`Michigan put everything into beating Ohio State and turned the rivalry on its head. Now, the Buckeyes are fighting back. `\
+https://nytimes.com/athletic/5659268/2024/07/25/michigan-ohio-state-sherrone-moore/
+
 **Obama Has Been in Touch With Harris and Is Expected to Endorse Her Soon**\
 `Former President Barack Obama had been reluctant to endorse Ms. Harris too quickly, to avoid the perception that he was overseeing her coronation, people familiar with his thinking say.`\
 https://nytimes.com/2024/07/25/us/politics/obama-harris-endorsement.html
@@ -15,7 +23,7 @@ https://nytimes.com/athletic/5659295/2024/07/25/mason-miller-oakland-athletics-i
 https://nytimes.com/athletic/5658989/2024/07/25/jets-training-camp-practice-report-day-2-aaron-rodgers-garrett-wilson/
 
 **Vance Denigrated Harris for Being Childless. Her Blended Family Is Defending Her.**\
-`JD Vance’s 2021 insult of  “childless cat ladies” has sparked bipartisan outrage at a moment when women’s choices are seen as a galvanizing political force.`\
+`JD Vance’s 2021 insult of “childless cat ladies” has sparked bipartisan outrage at a moment when women’s choices are seen as a galvanizing political force.`\
 https://nytimes.com/2024/07/25/us/politics/jd-vance-kamala-harris-childless.html
 
 **Oakland A's closer Mason Miller headed to IL**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/25/world/canada/jasper-wildfire-canada-national-park
 **GM Omar Khan expects Cam Heyward to be a Steeler 'for years to come'**\
 `Heyward said he wants to play three more NFL seasons, but he's not yet sure whether that will be with the Steelers or elsewhere.`\
 https://nytimes.com/athletic/5659106/2024/07/25/cam-heyward-contract-steelers-omar-khan/
-
-**6 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/07/25/books/review/6-new-books-we-recommend-this-week.html
-
-**Breaking in New Sports at the Olympics**\
-`Breaking, sport climbing and skateboarding may seem untraditional, but they embody the true spirit of the games.`\
-https://nytimes.com/interactive/2024/07/25/magazine/olympics-breaking-sports-history.html
 
