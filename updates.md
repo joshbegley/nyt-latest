@@ -1,3 +1,23 @@
+**Padres' Dylan Cease throws second no-hitter in team history**\
+`Cease finished with nine strikeouts, a career-high three pitches of at least 100.0 mph and 114 total pitches, a new personal record.`\
+https://nytimes.com/athletic/5659072/2024/07/25/dylan-cease-padres-no-hitter/
+
+**The Chimps Who Learned to Say ‘Mama’**\
+`Old recordings show captive chimps uttering the word, which some scientists believe may offer clues to the origins of human speech.`\
+https://nytimes.com/2024/07/25/science/chimpanzee-speech-mama.html
+
+**Oklahoma Superintendent Vows to Force Schools to Teach Bible, Issuing Guidance**\
+`The state superintendent said he would crack down on “rogue districts” opposing the mandate. The guidelines detail how the Bible should be taught by subject and grade levels from five to 12.`\
+https://nytimes.com/2024/07/25/us/oklahoma-superintendent-school-bible-mandate.html
+
+**Rabies Is Spreading in South African Seals, Scientists Say**\
+`The outbreak may be the first ever documented in marine mammals.`\
+https://nytimes.com/2024/07/25/health/rabies-cape-fur-seals-south-africa.html
+
+**The Kamala Harris Report Card**\
+`A strong politician in some ways, but also deeply flawed. Now, she’s ours.`\
+https://nytimes.com/2024/07/25/opinion/kamala-nomination-democrats.html
+
 **The Kamala Harris Report Card**\
 `A strong politician in some ways but also deeply flawed and now she’s ours.`\
 https://nytimes.com/2024/07/25/opinion/kamala-nomination-democrats.html
