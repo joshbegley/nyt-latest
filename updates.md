@@ -1,3 +1,15 @@
+**Training to music, playing politics - sure and smart: Kompany's start at Bayern**\
+`The new Bayern head coach is determined not to follow Thomas Tuchel's approach as he sets out his vision for the club`\
+https://nytimes.com/athletic/5654030/2024/07/25/bayern-munich-vincent-kompany-start/
+
+**Will the Paris Olympics kickstart France's interest in women's football?**\
+`International success at this home tournament could be a big factor in encouraging domestic intrigue - and France’s players are aware of it`\
+https://nytimes.com/athletic/5655551/2024/07/25/womens-football-olympics-france/
+
+**Paris 2024 opening ceremony outfits: USA's jeans, Mongolia's deels and Canada's red on red**\
+`Which country's outfits will be the talk of the Olympic Games' opening ceremony on Friday?`\
+https://nytimes.com/athletic/5652506/2024/07/25/paris-2024-opening-ceremony-outfits-assessed/
+
 **Thursday's MLB odds, best bets: Pitching matchups, playoff odds, props and more**\
 `See pitching matchups, playoff projections, win projections and more for Thursday's MLB games.`\
 https://nytimes.com/athletic/5656657/2024/07/25/mlb-odds-best-bets-projections-july-25/
