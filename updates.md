@@ -1,3 +1,7 @@
+**West Ham close on deal for Mazraoui from Bayern**\
+`West Ham United are closing in on a deal to sign Bayern Munich defender Noussair Mazraoui.`\
+https://nytimes.com/athletic/5657806/2024/07/25/west-ham-mazraoui-transfer-bayern-munich/
+
 **How is Olympic gymnastics scored? A guide to understanding the competition**\
 `Follow our Olympics coverage from the Paris Games.`\
 https://nytimes.com/athletic/5653423/2024/07/25/gymnastics-paris-olympics-scoring-faq/

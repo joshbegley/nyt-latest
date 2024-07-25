@@ -8,7 +8,7 @@ https://nytimes.com/athletic/5657415/2024/07/25/mlb-deadline-trade-proposals/
 
 **West Ham close on deal for Mazraoui from Bayern**\
 `West Ham United are closing in on a deal to sign Bayern Munich defender Noussair Mazraoui.`\
-https://nytimes.com/athletic/5657806/2024/07/25/west-ham-mazrouai-transfer-bayern-munich/
+https://nytimes.com/athletic/5657806/2024/07/25/west-ham-mazraoui-transfer-bayern-munich/
 
 **Possibility and playfulness: How USWNT's next generation is redefining itself**\
 `Youth is a defining aspect of Emma Hayes' first USWNT Olympic roster`\

@@ -1,3 +1,7 @@
+**Israelis Contrast Netanyahu’s Speech in Congress With Grim Reality at Home**\
+`Commentators noted the gap between the applause the Israeli leader received in Congress and the widespread sense of government failure in Israel as the war drags on.`\
+https://nytimes.com/2024/07/25/world/middleeast/netanyahu-congress-speech-israel.html
+
 **How is Olympic gymnastics scored? A guide to understanding the competition**\
 `Follow our Olympics coverage from the Paris Games.`\
 https://nytimes.com/athletic/5653423/2024/07/25/gymnastics-paris-olympics-scoring-faq/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/25/movies/the-fabulous-four-review.html
 **‘Cirque du Soleil: Without a Net’ Review: How the Magic Happens**\
 `This documentary chronicles the reboot and reopening in Las Vegas of the acrobatic show “O,” which shutdown during the pandemic.`\
 https://nytimes.com/2024/07/25/movies/cirque-du-soleil-without-a-net-review.html
-
-**Durant, Curry address Embiid's comments on LeBron and Team USA's age**\
-`Joel Embiid had said Lebron James 'is not the Lebron of a couple years ago' last week`\
-https://nytimes.com/athletic/5657755/2024/07/25/curry-durant-embiid-usa-olympics/
 
