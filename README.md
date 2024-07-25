@@ -20,7 +20,7 @@ https://nytimes.com/athletic/5658865/2024/07/25/ny-islanders-mailbag-arthur-stap
 
 **Biden and Netanyahu Meet With a Show of Amiable Relations Amid Their Tension**\
 `The Israeli prime minister, who has defied the American president’s pressure to reach a cease-fire in Gaza, nonetheless praised Mr. Biden for “50 years of support for the state of Israel.”`\
-https://nytimes.com/2024/07/25/us/politics/biden-and-netanyahu-meet-with-a-show-of-amiable-relations-amid-their-tension.html
+https://nytimes.com/live/2024/07/25/world/israel-gaza-war-hamas-netanyahu/biden-and-netanyahu-meet-with-a-show-of-amiable-relations-amid-their-tension
 
 **Emily’s list begins a $2 million ad blitz for Harris.**\
 `By Reid J. Epstein and Shane Goldmacher`\

@@ -1,3 +1,19 @@
+**‘Playground’ Is Throwback Reality TV, in More Ways Than One**\
+`The new Hulu series, set at a prestigious Los Angeles dance studio, harks back to the vibes of an earlier age.`\
+https://nytimes.com/2024/07/25/arts/television/playground-hulu.html
+
+**They Got a Mysterious $24,000 Water Bill. Then the Shut-Off Notice Came.**\
+`A federal lawsuit accuses New York City of defying state and city regulations meant to protect vulnerable homeowners from losing water service.`\
+https://nytimes.com/2024/07/25/nyregion/water-bill-lawsuit-nyc.html
+
+**Concerns about Garrett Crochet's playoff availability and desire for contract extension cloud trade picture: Sources**\
+`The uncertainty has fueled a belief that the White Sox may wait until the offseason, when more teams could be interested in a trade.`\
+https://nytimes.com/athletic/5658807/2024/07/25/garrett-crochet-white-sox-trade-deadline/
+
+**Who will light the Olympic cauldron? Here are 10 potential candidates**\
+`With just one day until opening ceremony, the identity of the individual who will light the cauldron remains unknown.`\
+https://nytimes.com/athletic/5658280/2024/07/25/olympic-cauldron-lighting-opening-ceremony-candidates/
+
 **Biden’s Ambition Was a Sign of His Patriotism**\
 `When we peer into the soul of America, we should always find both.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/biden-ambition-decision
