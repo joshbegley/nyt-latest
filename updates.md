@@ -1,3 +1,11 @@
+**Just One Question for Trump and Vance: What is Wrong With You People?**\
+`Say what you will about Biden, but he is not a bully.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/trump-vance-biden-speech
+
+**Austin Mock's model ranks the top 25 college football teams**\
+`Austin Mock's projection model shows how it ranks the top 25 teams in college football ahead of the 2024 season.`\
+https://nytimes.com/athletic/5653691/2024/07/25/college-football-model-projection-preseason-top-25/
+
 **The Brandon Aiyuk, Trent Williams situations mark a tougher 49ers negotiating era**\
 `Nick Bosa's deal reset the 49ers' landscape last year. Brock Purdy could do it again next offseason. In between, there might be trouble.`\
 https://nytimes.com/athletic/5656737/2024/07/25/brandon-aiyuk-trent-williams-49ers-negotiating/
