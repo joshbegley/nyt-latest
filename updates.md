@@ -1,3 +1,7 @@
+**Raiders training camp: A fire is lit, while quarterbacks get off to a cold start**\
+`Linebacker Robert Spillane doesn't like the prognostications about the Raiders: "“I’m angry. ... And of course, that adds fuel to the fire."`\
+https://nytimes.com/athletic/5659358/2024/07/25/raiders-training-camp-quarterback-struggles/
+
 **Your Purse Is Filthy. Here’s How to Clean It Up.**\
 `A few simple tips can help get rid of stains.`\
 https://nytimes.com/interactive/2024/07/25/smarter-living/wirecutter/clean-purse.html

@@ -1,3 +1,7 @@
+**Raiders training camp: A fire is lit, while quarterbacks get off to a cold start**\
+`Linebacker Robert Spillane doesn't like the prognostications about the Raiders: "“I’m angry. ... And of course, that adds fuel to the fire."`\
+https://nytimes.com/athletic/5659358/2024/07/25/raiders-training-camp-quarterback-struggles/
+
 **Your Purse Is Filthy. Here’s How to Clean It Up.**\
 `A few simple tips can help get rid of stains.`\
 https://nytimes.com/interactive/2024/07/25/smarter-living/wirecutter/clean-purse.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5659431/2024/07/25/raiders-mock-patrick-mahomes-wit
 **Harris Bets Her Ties to Teachers’ Unions Will Help Her. Republicans Hope Otherwise.**\
 `Republicans are already seeking to link Vice President Kamala Harris to pandemic school closures, which local teachers’ unions pushed to extend.`\
 https://nytimes.com/2024/07/25/us/kamala-harris-teachers-education.html
-
-**Eagles training camp: Jordan Mailata, offensive line take accountability, and more**\
-`Plus, the field for the spot opposite Darius Slay at cornerback is crowded.`\
-https://nytimes.com/athletic/5658843/2024/07/25/philadelphia-eagles-training-camp-jordan-mailata-offensive-line-take-accountability-and-more/
 
