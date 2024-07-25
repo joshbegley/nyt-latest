@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5608018/2024/07/25/day-1-training-camp-takeaways-sc
 `Wide receiver Amari Cooper recently had his contract reworked for this season, but what other decisions still loom large for Cleveland?`\
 https://nytimes.com/athletic/5655647/2024/07/25/cleveland-browns-contracts-amari-cooper-jeremiah-owusu-koramoah/
 
-**Just One Question for Trump and Vance: What is Wrong With You People?**\
+**Just One Question for Trump and Vance: What Is Wrong With You People?**\
 `Say what you will about Biden, but he is not a bully.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/trump-vance-biden-speech
 

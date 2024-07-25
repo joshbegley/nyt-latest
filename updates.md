@@ -1,3 +1,7 @@
+**Just One Question for Trump and Vance: What Is Wrong With You People?**\
+`Say what you will about Biden, but he is not a bully.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/trump-vance-biden-speech
+
 **Tracking Tropical Storm Bud**\
 `See the likely path and wind arrival times for Bud.`\
 https://nytimes.com/interactive/2024/07/25/weather/bud-map-path-tracker.html
