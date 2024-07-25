@@ -1,3 +1,11 @@
+**Kids? A Growing Number of Americans Say, ‘No Thanks.’**\
+`A new study breaks down the reasons more U.S. adults don’t plan to have children.`\
+https://nytimes.com/2024/07/25/well/mind/child-free-adults-pew-study.html
+
+**Private-School Teacher Charged With Sharing Sexual Images of Students**\
+`Prosecutors said the teacher, who worked for Saint Ann’s School in Brooklyn, lured students from four different schools to share explicit images with him via social media.`\
+https://nytimes.com/2024/07/25/nyregion/saint-anns-winston-nguyen-sexual-images.html
+
 **Submit your New York Rangers questions for Peter Baugh's mailbag**\
 `The Rangers are making progress toward finalizing a roster for two months or so from now, when training camp begins.`\
 https://nytimes.com/athletic/5658281/2024/07/25/ny-rangers-mailbag-prompt-peter-baugh/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/25/science/moon-nasa-shadowcam-craters.html
 **Yates signs new Forest contract**\
 `Nottingham Forest midfielder Ryan Yates has signed a new and improved contract with the club.`\
 https://nytimes.com/athletic/5656636/2024/07/25/ryan-yates-nottingham-forest-contract/
-
-**Southwest Airlines Will End Its Longstanding Open-Seating Policy**\
-`The airline said it was scrapping its trademark, 50-year tradition of offering open seating, where passengers choose seats once they have boarded the plane.`\
-https://nytimes.com/2024/07/25/business/southwest-airlines-assigned-seating.html
-
-**Fashion Doesn’t Get More Personal Than Drawn-On Clothes**\
-`Plus: new French hotels, eel bento boxes in Long Island City and more recommendations from T Magazine.`\
-https://nytimes.com/2024/07/25/t-magazine/drawn-on-clothing-fashion-small-talk-studio.html
 

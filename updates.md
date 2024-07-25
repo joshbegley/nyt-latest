@@ -1,3 +1,11 @@
+**Kids? A Growing Number of Americans Say, ‘No Thanks.’**\
+`A new study breaks down the reasons more U.S. adults don’t plan to have children.`\
+https://nytimes.com/2024/07/25/well/mind/child-free-adults-pew-study.html
+
+**Private-School Teacher Charged With Sharing Sexual Images of Students**\
+`Prosecutors said the teacher, who worked for Saint Ann’s School in Brooklyn, lured students from four different schools to share explicit images with him via social media.`\
+https://nytimes.com/2024/07/25/nyregion/saint-anns-winston-nguyen-sexual-images.html
+
 **Submit your New York Rangers questions for Peter Baugh's mailbag**\
 `The Rangers are making progress toward finalizing a roster for two months or so from now, when training camp begins.`\
 https://nytimes.com/athletic/5658281/2024/07/25/ny-rangers-mailbag-prompt-peter-baugh/
