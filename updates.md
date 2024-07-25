@@ -1,3 +1,15 @@
+**Martin S. Indyk, Diplomat Who Sought Middle East Peace, Dies at 73**\
+`As ambassador to Israel in the Clinton administration and as a special envoy under Barack Obama, he was skeptical of Israeli settlements.`\
+https://nytimes.com/2024/07/25/world/middleeast/martin-s-indyk-dead.html
+
+**California Supreme Court Upholds Gig-Worker Proposition**\
+`Passed by voters in 2020, the ballot measure classifies Uber and Lyft drivers as independent contractors rather than as employees.`\
+https://nytimes.com/2024/07/25/technology/california-gig-worker-court-decision.html
+
+**Darryl Daniel, Illustrator of Snoop Dogg’s First Album Cover, Dies at 56**\
+`The 1993 album “Doggystyle” went on to sell millions of copies around the world and solidified the career of Mr. Daniel, known as Joe Cool, as a hip-hop illustrator.`\
+https://nytimes.com/2024/07/25/arts/joe-cool-dead-snoop-dogg-doggystyle.html
+
 **How the (even bigger) Big Ten's TV deal will work in Year 2**\
 `Last season, five of the eight CFB games with at least 10 million viewers and 10 of the 15 highest-rated games included current B1G teams.`\
 https://nytimes.com/athletic/5658646/2024/07/25/big-ten-football-tv-partners-schedule/
