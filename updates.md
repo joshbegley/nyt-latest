@@ -1,3 +1,7 @@
+**Seahawks training camp: Geno Smith's sharp start and more observations from Day 1**\
+`Smith was really feeling it on Day 1 of camp. Meanwhile, Abraham Lucas remains without a timetable for a return from his knee injury.`\
+https://nytimes.com/athletic/5657042/2024/07/24/seahawks-training-camp-notes-observations/
+
 **Here’s the latest on the president’s address.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/biden-speech-oval-office
