@@ -1,3 +1,7 @@
+**Israeli Forces Retrieve Bodies of 5 Hostages From Tunnel in Gaza**\
+`The military said that intelligence, including information from detained Palestinian militants, had led to the bodies in the Khan Younis area.`\
+https://nytimes.com/2024/07/25/world/middleeast/israel-hostages-bodies-gaza.html
+
 **The Kamala Harris Vibe Shift**\
 `For many Democrats, a race that felt like a dispiriting slog suddenly feels light. Even hopeful.`\
 https://nytimes.com/2024/07/25/us/politics/kamala-harris-biden-poll.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5658732/2024/07/25/justin-fields-russell-wilson-ste
 **JD Vance’s ‘Cat Ladies’ Riff Has Serious ‘Handmaid’s Tale’ Vibes**\
 `The far right wants to turn the clock back on women’s rights.`\
 https://nytimes.com/2024/07/25/opinion/kamala-harris-jd-vance.html
-
-**Browns coach Kevin Stefanski to keep play-calling duties**\
-`Stefanski said OC Ken Dorsey will be "the main voice" with the QBs, and play calling and game planning will be done collaboratively. `\
-https://nytimes.com/athletic/5659494/2024/07/25/browns-kevin-stefanski-offensive-play-caller/
 

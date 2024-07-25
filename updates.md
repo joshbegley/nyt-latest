@@ -1,3 +1,7 @@
+**Israeli Forces Retrieve Bodies of 5 Hostages From Tunnel in Gaza**\
+`The military said that intelligence, including information from detained Palestinian militants, had led to the bodies in the Khan Younis area.`\
+https://nytimes.com/2024/07/25/world/middleeast/israel-hostages-bodies-gaza.html
+
 **The Kamala Harris Vibe Shift**\
 `For many Democrats, a race that felt like a dispiriting slog suddenly feels light. Even hopeful.`\
 https://nytimes.com/2024/07/25/us/politics/kamala-harris-biden-poll.html
