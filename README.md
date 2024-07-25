@@ -1,3 +1,11 @@
+**Teachers, How Do You Handle Classroom Conversations About Hot-Button Issues?**\
+`What has worked? What has been difficult? We’d love to hear from educators at all levels and across subject areas.`\
+https://nytimes.com/2024/07/25/learning/teachers-how-do-you-handle-classroom-conversations-about-hot-button-issues.html
+
+**Our 2024-25 Student Contest Calendar**\
+`Ten challenges that invite teenagers to engage, experiment, reflect and create — via writing, photography, audio, video and more.`\
+https://nytimes.com/2024/07/25/learning/our-2024-25-student-contest-calendar.html
+
 **Rupert Murdoch’s Game of Thrones**\
 `The battle between the media mogul and three of his children over control of his empire has big ramifications for politics, media and more.`\
 https://nytimes.com/2024/07/25/business/dealbook/murdoch-family-fight.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5657748/2024/07/25/argentina-morocco-canada-new-zea
 **Israelis Contrast Netanyahu’s Speech in Congress With Grim Reality at Home**\
 `Commentators noted the gap between the applause the Israeli leader received in Congress and the widespread sense of government failure in Israel as the war drags on.`\
 https://nytimes.com/2024/07/25/world/middleeast/netanyahu-congress-speech-israel.html
-
-**How is Olympic gymnastics scored? A guide to understanding the competition**\
-`Follow our Olympics coverage from the Paris Games.`\
-https://nytimes.com/athletic/5653423/2024/07/25/gymnastics-paris-olympics-scoring-faq/
-
-**Bowden: 7 deadline trades I'd like to see, starting with a big Yankees-Rays swap**\
-`As rumors swirl across the industry and we wait for the first big deals to go down, here are seven trade proposals to whet your appetite. `\
-https://nytimes.com/athletic/5657415/2024/07/25/mlb-deadline-trade-proposals/
 
