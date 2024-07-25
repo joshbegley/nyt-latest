@@ -1,3 +1,15 @@
+**Tracking Tropical Storm Bud**\
+`See the likely path and wind arrival times for Bud.`\
+https://nytimes.com/interactive/2024/07/25/weather/bud-map-path-tracker.html
+
+**Scoop City: The 49ers, without their star left tackle**\
+`Everything you should know from the last 24-hours in the NFL, including Trent Williams' holdout, Dan Campbell's lectern.`\
+https://nytimes.com/athletic/5608018/2024/07/25/day-1-training-camp-takeaways-scoop-city/
+
+**A look at Browns' contract situations as training camp at Greenbrier Resort begins**\
+`Wide receiver Amari Cooper recently had his contract reworked for this season, but what other decisions still loom large for Cleveland?`\
+https://nytimes.com/athletic/5655647/2024/07/25/cleveland-browns-contracts-amari-cooper-jeremiah-owusu-koramoah/
+
 **Kids? A Growing Number of Americans Say, ‘No Thanks.’**\
 `A new study breaks down the reasons more U.S. adults say they are unlikely to have children.`\
 https://nytimes.com/2024/07/25/well/mind/child-free-adults-pew-study.html
