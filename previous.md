@@ -1,3 +1,7 @@
+**Microsoft’s World of Warcraft Workers Vote to Unionize**\
+`The move adds more than 500 to the unionized video game staff at Microsoft, which has pledged to remain neutral on organizing efforts.`\
+https://nytimes.com/2024/07/25/business/world-of-warcraft-microsoft-union.html
+
 **In a World of Fast Fashion, They Take Pride in Taking Their Time**\
 `Some younger people have become obsessed with learning old-fashioned hand crafts like leather-making, millinery and lacework.`\
 https://nytimes.com/2024/07/25/nyregion/hand-craft-evan-o-hara-janos-papai.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5657527/2024/07/25/yankees-lose-to-mets/
 **Stephen Colbert Wants a Kamala Harris-Glen Powell Ticket**\
 `“I guarantee he will attract suburban women, and I already have his slogan: ‘Yes, We Glen!’” Colbert said.`\
 https://nytimes.com/2024/07/25/arts/television/stephen-colbert-glen-powell-kamala-harris.html
-
-**Fuel Tanker Sinks in Philippine Waters, Spilling Oil**\
-`The coast guard rescued 16 of the vessel’s 17 crew members, but Typhoon Gaemi’s remnants were complicating efforts to contain the oil spill in Manila Bay.`\
-https://nytimes.com/2024/07/25/world/asia/philippines-tanker-capsizes-oil-spill.html
 

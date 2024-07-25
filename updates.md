@@ -1,3 +1,7 @@
+**Microsoft’s World of Warcraft Workers Vote to Unionize**\
+`The move adds more than 500 to the unionized video game staff at Microsoft, which has pledged to remain neutral on organizing efforts.`\
+https://nytimes.com/2024/07/25/business/world-of-warcraft-microsoft-union.html
+
 **In a World of Fast Fashion, They Take Pride in Taking Their Time**\
 `Some younger people have become obsessed with learning old-fashioned hand crafts like leather-making, millinery and lacework.`\
 https://nytimes.com/2024/07/25/nyregion/hand-craft-evan-o-hara-janos-papai.html
