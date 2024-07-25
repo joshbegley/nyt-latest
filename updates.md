@@ -1,3 +1,7 @@
+**Norris ‘not too proud’ McLaren F1 team orders tension distracted from Piastri win**\
+`Lando Norris admitted the end to the Hungarian GP “could have been handled slightly differently from both a team side and a personal side."`\
+https://nytimes.com/athletic/5658298/2024/07/25/f1-lando-norris-oscar-piastri-mclaren-hungary/
+
 **It’s Chigger Season. Here’s What to Know About the Pests.**\
 `The mites, which are commonly found in humid regions, can leave itchy bites all over the skin.`\
 https://nytimes.com/2024/07/25/well/chiggers-bites-symptoms-treatment.html
