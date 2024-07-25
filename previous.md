@@ -1,3 +1,15 @@
+**Passengers Loved Southwest Airlines’ Open Boarding. Now What?**\
+`On Thursday, the airline announced it would eliminate a boarding process that allowed passengers to choose their seats. Many Southwest fans were not happy — and expressed worry that more changes might be coming.`\
+https://nytimes.com/2024/07/25/travel/southwest-open-boarding-change-reactions.html
+
+**How Jerod Mayo has changed Patriots training camp from the Bill Belichick era**\
+`The new head coach in New England has already made a few notable changes to the way Belichick used to run things with the Patriots.`\
+https://nytimes.com/athletic/5658918/2024/07/25/patriots-jerod-mayo-bill-belichick-training-camp/
+
+**These Fragrant Shrimp Dumplings Tell a Family’s Story**\
+`At Lapis in Washington, D.C., the beloved shrimp mantoo are inspired by the chef Shamim Popal’s life and her love for Afghanistan.`\
+https://nytimes.com/2024/07/25/dining/afghan-shrimp-dumplings.html
+
 **We’re Asking the Wrong Question About Harris and Race**\
 `When it comes to people of mixed racial origin, our assumptions are sometimes strangely at odds with our ideals.`\
 https://nytimes.com/2024/07/25/opinion/kamala-harris-race.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5658943/2024/07/25/anthony-richardson-colts-run-ste
 **A Lot of Major Shifts Beneath the Surface in a New Trump-Harris Poll**\
 `The changes among groups cancel out for now, and Trump leads narrowly, but there’s a tie when candidates like Kennedy Jr. are considered.`\
 https://nytimes.com/2024/07/25/upshot/poll-kamala-harris-trump.html
-
-**Harris Narrows Gap Against Trump, Times/Siena Poll Finds**\
-`In a survey taken after President Biden stepped aside, Donald Trump and Kamala Harris are locked in a tight race separated by a single percentage point among likely voters.`\
-https://nytimes.com/2024/07/25/us/politics/poll-kamala-harris-donald-trump.html
-
-**Toplines: July 2024 Times/Siena Poll of Registered Voters Nationwide**\
-`Results of a nationwide New York Times/Siena College poll conducted among 1,142 registered voters from July 22 to 24, 2024.`\
-https://nytimes.com/interactive/2024/07/25/us/elections/times-siena-poll-toplines.html
-
-**Cross-Tabs: July 2024 Times/Siena Poll of Registered Voters Nationwide**\
-`Results of a nationwide New York Times/Siena College poll conducted among 1,142 registered voters from July 22 to 24, 2024.`\
-https://nytimes.com/interactive/2024/07/25/us/elections/times-siena-poll-registered-voter-crosstabs.html
 

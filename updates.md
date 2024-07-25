@@ -1,3 +1,15 @@
+**Passengers Loved Southwest Airlines’ Open Boarding. Now What?**\
+`On Thursday, the airline announced it would eliminate a boarding process that allowed passengers to choose their seats. Many Southwest fans were not happy — and expressed worry that more changes might be coming.`\
+https://nytimes.com/2024/07/25/travel/southwest-open-boarding-change-reactions.html
+
+**How Jerod Mayo has changed Patriots training camp from the Bill Belichick era**\
+`The new head coach in New England has already made a few notable changes to the way Belichick used to run things with the Patriots.`\
+https://nytimes.com/athletic/5658918/2024/07/25/patriots-jerod-mayo-bill-belichick-training-camp/
+
+**These Fragrant Shrimp Dumplings Tell a Family’s Story**\
+`At Lapis in Washington, D.C., the beloved shrimp mantoo are inspired by the chef Shamim Popal’s life and her love for Afghanistan.`\
+https://nytimes.com/2024/07/25/dining/afghan-shrimp-dumplings.html
+
 **We’re Asking the Wrong Question About Harris and Race**\
 `When it comes to people of mixed racial origin, our assumptions are sometimes strangely at odds with our ideals.`\
 https://nytimes.com/2024/07/25/opinion/kamala-harris-race.html
