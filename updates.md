@@ -1,3 +1,7 @@
+**Sean Clifford struggles, safeties vie for spot: 5 observations from Packers camp**\
+`Clifford hasn't exactly seized his opportunity as the first-team quarterback with Jordan Love sidelined while awaiting a new contract.`\
+https://nytimes.com/athletic/5658194/2024/07/25/packers-training-camp-sean-clifford/
+
 **The Overlooked Reason That Planes Crash So Often in Nepal**\
 `Each new disaster, including a crash that killed 18 people on Wednesday, leads to another investigation. A serious conflict of interest is always left unaddressed.`\
 https://nytimes.com/2024/07/25/world/asia/nepal-plane-crash.html

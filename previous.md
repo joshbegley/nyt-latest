@@ -1,3 +1,7 @@
+**Sean Clifford struggles, safeties vie for spot: 5 observations from Packers camp**\
+`Clifford hasn't exactly seized his opportunity as the first-team quarterback with Jordan Love sidelined while awaiting a new contract.`\
+https://nytimes.com/athletic/5658194/2024/07/25/packers-training-camp-sean-clifford/
+
 **The Overlooked Reason That Planes Crash So Often in Nepal**\
 `Each new disaster, including a crash that killed 18 people on Wednesday, leads to another investigation. A serious conflict of interest is always left unaddressed.`\
 https://nytimes.com/2024/07/25/world/asia/nepal-plane-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/25/us/harris-trump-biden-election/emilys-list-b
 **JD Vance and the Age-Old Trope of ‘Childless Cat Ladies’**\
 `In a relentlessly newsy phase of the presidential contest, the long history of bias against cosmopolitan cat-owning women finds its place.`\
 https://nytimes.com/2024/07/25/nyregion/jd-vance-kamala-harris-cat-lady.html
-
-**Who will light the Olympic cauldron? Here are 10 potential candidates**\
-`With just one day until opening ceremony, the identity of the individual who will light the cauldron remains unknown.`\
-https://nytimes.com/athletic/5658280/2024/07/25/olympic-cauldron-lighting-opening-ceremony-candidates/
 
