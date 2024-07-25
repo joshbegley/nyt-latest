@@ -1,3 +1,7 @@
+**For an Astros pitching corps short on experience, Alex Bregman has been a guiding voice**\
+`Alex Bregman is holding the Astros' young pitchers accountable and helping them assimilate to the major leagues.`\
+https://nytimes.com/athletic/5657100/2024/07/25/astros-alex-bregman-influence-pitching-catchers/
+
 **Rams camp observations and notes: Matthew Stafford speaks, tight ends impress**\
 `"I'm happy to be here," Stafford said on the first day of practice a day after he agreed to adjusted terms on his existing contract.`\
 https://nytimes.com/athletic/5657437/2024/07/25/rams-training-camp-matthew-stafford-tight-ends/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/25/podcasts/the-daily/kamala-harris-campaign.html
 **Wordle Review No. 1,133, Friday, July 26, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/25/crosswords/wordle-review-1133.html
-
-**The Connections Companion No. 411, July 26, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/25/crosswords/connections-companion-411.html
 
