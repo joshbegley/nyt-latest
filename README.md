@@ -1,3 +1,11 @@
+**California Supreme Court Upholds Gig-Worker Proposition**\
+`Passed by voters in 2020, the ballot measure classifies Uber and Lyft drivers as independent contractors rather than as employees.`\
+https://nytimes.com/2024/07/25/technology/california-gig-worker-court-decision.html
+
+**Darryl Daniel, Illustrator of Snoop Dogg’s First Album Cover, Dies at 56**\
+`The 1993 album “Doggystyle” went on to sell millions of copies around the world and solidified the career of Mr. Daniel, known as Joe Cool, as a hip-hop illustrator.`\
+https://nytimes.com/2024/07/25/arts/joe-cool-dead-snoop-dogg-doggystyle.html
+
 **How the (even bigger) Big Ten's TV deal will work in Year 2**\
 `Last season, five of the eight CFB games with at least 10 million viewers and 10 of the 15 highest-rated games included current B1G teams.`\
 https://nytimes.com/athletic/5658646/2024/07/25/big-ten-football-tv-partners-schedule/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/25/us/politics/kamala-harris-donors-fund-raising.htm
 **MLB bullpen report: Trade deadline buyers, sellers; plus a high-leverage shift for the Dodgers**\
 `Greg Jewett runs through MLB team bullpen needs, in addition to likely buyers and sellers, and tracks all the changes, like in Los Angeles.`\
 https://nytimes.com/athletic/5658619/2024/07/25/fantasy-baseball-bullpen-report-saves-holds-buyers-sellers/
-
-**Tottenham agree deal to sign South Korean teenager Yang Min-hyuk**\
-`Tottenham Hotspur have agreed a deal to sign South Korean winger Yang Min-hyuk from Gangwon FC.`\
-https://nytimes.com/athletic/5658120/2024/07/25/tottenham-yang-min-hyuk-transfer/
-
-**Is there an officiating problem? Do LTIR rules need changes? Vote now in our NHL fan poll**\
-`We’re inviting you to give us your takes in a 2024 NHL state-of-the-league survey.`\
-https://nytimes.com/athletic/5657595/2024/07/25/nhl-fan-survey-athletic-refs-ltir/
 
