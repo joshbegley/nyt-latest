@@ -1,3 +1,11 @@
+**Slot on Liverpool's transfer activity: 'We are waiting on the right ones to sign'**\
+`Arne Slot insists he&#8217;s relaxed about Liverpool&#8217;s lack of activity in the transfer market as he expects business to happen later in the window.`\
+https://nytimes.com/athletic/5658802/2024/07/25/liverpool-transfer-news-arne-slot/
+
+**Flyers' Travis Konecny signs 8-year extension**\
+`Last season, Konecny posted 33 goals and 68 points — both team highs — in 76 games.`\
+https://nytimes.com/athletic/5658757/2024/07/25/travis-konecny-flyers-contract-extension/
+
 **Martin S. Indyk, Diplomat Who Sought Middle East Peace, Dies at 73**\
 `As ambassador to Israel in the Clinton administration and as a special envoy under Barack Obama, he was skeptical of Israeli settlements.`\
 https://nytimes.com/2024/07/25/world/middleeast/martin-s-indyk-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/25/climate/taxidermy-bats-kerivoula-picta.html
 **Where There’s Smoke, There’s Grilled Vegetables**\
 `Including a robust barbecue vegetable salad with peaches and crushed corn chips that I need to eat off a soggy paper plate by a pool, immediately.`\
 https://nytimes.com/2024/07/25/dining/where-theres-smoke-theres-grilled-vegetables.html
-
-**Russia and China Carry Out First Joint Bomber Patrol Near Alaska**\
-`Two Russian and two Chinese bombers patrolled the airspace near American territory and were intercepted by U.S. and Canadian jets.`\
-https://nytimes.com/2024/07/25/world/asia/russia-and-china-carry-out-first-joint-bomber-patrol-near-alaska.html
-
-**Kamala Harris’s Fund-Raising Machine Cranks Into High Gear**\
-`Given weeks instead of years to cultivate donors, the vice president’s allies are armed with a new logo and burning up the phones.`\
-https://nytimes.com/2024/07/25/us/politics/kamala-harris-donors-fund-raising.html
 

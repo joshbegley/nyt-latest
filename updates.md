@@ -1,3 +1,11 @@
+**Slot on Liverpool's transfer activity: 'We are waiting on the right ones to sign'**\
+`Arne Slot insists he&#8217;s relaxed about Liverpool&#8217;s lack of activity in the transfer market as he expects business to happen later in the window.`\
+https://nytimes.com/athletic/5658802/2024/07/25/liverpool-transfer-news-arne-slot/
+
+**Flyers' Travis Konecny signs 8-year extension**\
+`Last season, Konecny posted 33 goals and 68 points — both team highs — in 76 games.`\
+https://nytimes.com/athletic/5658757/2024/07/25/travis-konecny-flyers-contract-extension/
+
 **Martin S. Indyk, Diplomat Who Sought Middle East Peace, Dies at 73**\
 `As ambassador to Israel in the Clinton administration and as a special envoy under Barack Obama, he was skeptical of Israeli settlements.`\
 https://nytimes.com/2024/07/25/world/middleeast/martin-s-indyk-dead.html
