@@ -1,3 +1,7 @@
+**Padres' Dylan Cease throws second no-hitter in team history**\
+`Cease finished with nine strikeouts, a career-high three pitches of at least 100.0 mph and 114 total pitches, a new personal record.`\
+https://nytimes.com/athletic/5659072/2024/07/25/dylan-cease-padres-no-hitter/
+
 **The Chimps Who Learned to Say ‘Mama’**\
 `Old recordings show captive chimps uttering the word, which some scientists believe may offer clues to the origins of human speech.`\
 https://nytimes.com/2024/07/25/science/chimpanzee-speech-mama.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5658918/2024/07/25/patriots-jerod-mayo-bill-belichi
 **These Fragrant Shrimp Dumplings Tell a Family’s Story**\
 `At Lapis in Washington, D.C., the beloved shrimp mantoo are inspired by the chef Shamim Popal’s life and her love for Afghanistan.`\
 https://nytimes.com/2024/07/25/dining/afghan-shrimp-dumplings.html
-
-**We’re Asking the Wrong Question About Harris and Race**\
-`When it comes to people of mixed racial origin, our assumptions are sometimes strangely at odds with our ideals.`\
-https://nytimes.com/2024/07/25/opinion/kamala-harris-race.html
 
