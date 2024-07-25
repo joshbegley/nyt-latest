@@ -1,3 +1,11 @@
+**Call Beijing’s Bluff in the South China Sea**\
+`China could seize control of a strategically vital waterway without firing a shot.`\
+https://nytimes.com/2024/07/25/opinion/china-us-military-south-china-sea.html
+
+**Typhoon Gaemi Heads for China’s Coast After Pummeling Taiwan**\
+`The tropical cyclone was weakening as it crossed the Taiwan Strait on Thursday afternoon, and was forecast to make landfall later in the day.`\
+https://nytimes.com/2024/07/25/world/asia/typhoon-gaemi-china-taiwan.html
+
 **Four Mets takeaways from their 5-homer rout of the Yankees**\
 `The Mets got two homers from Francisco Lindor and one each from Tyrone Taylor, Pete Alonso and Mark Vientos as they roughed up Gerrit Cole.`\
 https://nytimes.com/athletic/5657482/2024/07/25/mets-yankees-francisco-lindor/
