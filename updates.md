@@ -1,3 +1,11 @@
+**The Kamala Harris Report Card**\
+`A strong politician in some ways but also deeply flawed and now she’s ours.`\
+https://nytimes.com/2024/07/25/opinion/kamala-nomination-democrats.html
+
+**Dan Quinn, Commanders focused on defensive identity early in training camp**\
+`Newcomer Frankie Luvu and fifth-round rookie Jordan Magee stand out on Day 2 of camp. Plus, where does Jamin Davis fit among the team's LBs?`\
+https://nytimes.com/athletic/5658937/2024/07/25/commanders-defense-identity-training-camp/
+
 **Child Online Safety Bill Scales Senate Hurdle, but Fate Remains Uncertain**\
 `The bipartisan legislation would impose stricter privacy rules and safeguards for children on the internet and social media, but free speech concerns and fierce industry lobbying pose obstacles.`\
 https://nytimes.com/2024/07/25/us/politics/child-online-safety-bill-senate.html

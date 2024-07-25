@@ -1,3 +1,11 @@
+**The Kamala Harris Report Card**\
+`A strong politician in some ways but also deeply flawed and now she’s ours.`\
+https://nytimes.com/2024/07/25/opinion/kamala-nomination-democrats.html
+
+**Dan Quinn, Commanders focused on defensive identity early in training camp**\
+`Newcomer Frankie Luvu and fifth-round rookie Jordan Magee stand out on Day 2 of camp. Plus, where does Jamin Davis fit among the team's LBs?`\
+https://nytimes.com/athletic/5658937/2024/07/25/commanders-defense-identity-training-camp/
+
 **Child Online Safety Bill Scales Senate Hurdle, but Fate Remains Uncertain**\
 `The bipartisan legislation would impose stricter privacy rules and safeguards for children on the internet and social media, but free speech concerns and fierce industry lobbying pose obstacles.`\
 https://nytimes.com/2024/07/25/us/politics/child-online-safety-bill-senate.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/25/t-magazine/tasmania-australia-guide.html
 **Trading for Garrett Crochet: Which teams (and prospect packages) could land him?**\
 `Which teams could put together strong enough prospect packages to land the All-Star lefty if the White Sox deal him? `\
 https://nytimes.com/athletic/5658365/2024/07/25/garrett-crochet-trade-possible-prospect-packages/
-
-**Earth’s Hottest Days Ever**\
-`Twice this week, global temperatures broke records, but scientists are more concerned about a longer-term pattern of hotter weather.`\
-https://nytimes.com/2024/07/25/climate/earths-hottest-days-ever.html
-
-**Colts plan to let QB Anthony Richardson run: 'Are you gonna limit Steph Curry from shooting 3s?'**\
-`Richardson: “My legs (have) always been one of my superpowers. (Taking) that away from me, I don’t think that’s a good thing."`\
-https://nytimes.com/athletic/5658943/2024/07/25/anthony-richardson-colts-run-steph-curry/
 
