@@ -1,3 +1,11 @@
+**Breaking in New Sports at the Olympics**\
+`Breaking, sport climbing and skateboarding may seem untraditional, but they embody the true spirit of the games.`\
+https://nytimes.com/interactive/2024/07/25/magazine/olympics-breaking-sports-history.html
+
+**Have the Olympics Ever Been This Dangerous?**\
+`Teahupo'o has one of the deadliest surf breaks in the world. Athletes could face waves up to 50 feet.`\
+https://nytimes.com/interactive/2024/07/25/magazine/olympics-surfing-teahupoo-french-polynesia.html
+
 **Lions training camp: Jake Bates' leg on display, Sione Vaki improving and more**\
 `Plus, DJ Reader isn't ready to practice and an update on the safety competition.`\
 https://nytimes.com/athletic/5658877/2024/07/25/detroit-lions-training-camp-jake-bates-kicker-sione-vaki/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/25/us/politics/harris-teachers-unions.html
 **'I know it's a business': Panthers kicker Eddy Pineiro ready to show new staff what he's got**\
 `Despite missing just two field goal attempts the past two seasons, Eddy Pineiro finds himself in a kicking competition in Panthers camp.`\
 https://nytimes.com/athletic/5659083/2024/07/25/carolina-panthers-eddy-pineiro-kicker-contract/
-
-**Pair Your Vietnamese Iced Coffee With Pandan Cakes**\
-`A perfect Vietnamese coffee is reason enough to celebrate. But a few sweet treats can’t hurt.`\
-https://nytimes.com/2024/07/25/dining/vietnamese-iced-coffee-nyc.html
-
-**Giants training camp: Malik Nabers already looks like focal point of offense**\
-`The Giants have gotten the ball to Nabers in a variety of ways in the first two practices of camp.`\
-https://nytimes.com/athletic/5658947/2024/07/25/new-york-giants-malik-nabers-training-camp/
 

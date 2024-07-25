@@ -1,3 +1,11 @@
+**Breaking in New Sports at the Olympics**\
+`Breaking, sport climbing and skateboarding may seem untraditional, but they embody the true spirit of the games.`\
+https://nytimes.com/interactive/2024/07/25/magazine/olympics-breaking-sports-history.html
+
+**Have the Olympics Ever Been This Dangerous?**\
+`Teahupo'o has one of the deadliest surf breaks in the world. Athletes could face waves up to 50 feet.`\
+https://nytimes.com/interactive/2024/07/25/magazine/olympics-surfing-teahupoo-french-polynesia.html
+
 **Lions training camp: Jake Bates' leg on display, Sione Vaki improving and more**\
 `Plus, DJ Reader isn't ready to practice and an update on the safety competition.`\
 https://nytimes.com/athletic/5658877/2024/07/25/detroit-lions-training-camp-jake-bates-kicker-sione-vaki/
