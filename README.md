@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5657110/2024/07/24/canada-soccer-olympic-spying-sca
 https://nytimes.com/athletic/5657120/2024/07/24/deshaun-foster-big-ten-media-days-ucla-football/
 
 **Seahawks training camp: Geno Smith's sharp start and more observations from Day 1**\
-`Smith was really feeling it on Day 1 of camp. Meanwhile, Abe Lucas remains without a timetable for a return from his knee injury.`\
+`Smith was really feeling it on Day 1 of camp. Meanwhile, Abraham Lucas remains without a timetable for a return from his knee injury.`\
 https://nytimes.com/athletic/5657042/2024/07/24/seahawks-training-camp-notes-observations/
 
 **Mets' Christian Scott hopes to avoid surgery with rest and rehab for right elbow**\
