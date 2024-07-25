@@ -1,3 +1,7 @@
+**Move Over, Mathematicians, Here Comes AlphaProof**\
+`A.I. is getting good at math — and might soon make a worthy collaborator for humans.`\
+https://nytimes.com/2024/07/25/science/ai-math-alphaproof-deepmind.html
+
 **‘Deadpool & Wolverine’ Reviews Are In: Amusing or Exhausting?**\
 `Few critics could deny that the highly anticipated super spectacle, starring Ryan Reynolds and Hugh Jackman, has its charms — but most left wanting more.`\
 https://nytimes.com/2024/07/25/movies/deadpool-wolverine-movie-reviews.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/25/dining/ratatouille.html
 **Why the Olympics’ Parade of Nations Is the World’s Costume Party**\
 `When the athletes march in — or float in, as they will in Paris on Friday — you can enjoy the illusion that it’s a small world after all.`\
 https://nytimes.com/2024/07/25/arts/television/olympics-parade-nations-opening-ceremony.html
-
-**You Don’t Need a French Vineyard to Have a Prolonged Divorce Proceeding**\
-`The sticking points in a breakup aren’t the same for every couple, but lawyers who have brokered countless divorces have some advice for keeping things simple.`\
-https://nytimes.com/2024/07/25/style/divorce-breakup-advice.html
 
