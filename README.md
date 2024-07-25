@@ -1,3 +1,11 @@
+**Trading for Garrett Crochet: Which teams (and prospect packages) could land him?**\
+`Which teams could put together strong enough prospect packages to land the All-Star lefty if the White Sox deal him? `\
+https://nytimes.com/athletic/5658365/2024/07/25/garrett-crochet-trade-possible-prospect-packages/
+
+**Earth’s Hottest Days Ever**\
+`Twice this week, global temperatures broke records, but scientists are more concerned about a longer-term pattern of hotter weather.`\
+https://nytimes.com/2024/07/25/climate/earths-hottest-days-ever.html
+
 **Colts plan to let QB Anthony Richardson run: 'Are you gonna limit Steph Curry from shooting 3s'?**\
 `Richardson: “My legs (have) always been one of my superpowers. (Taking) that away from me, I don’t think that’s a good thing."`\
 https://nytimes.com/athletic/5658943/2024/07/25/anthony-richardson-colts-run-steph-curry/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5658194/2024/07/25/packers-training-camp-sean-cliff
 **The Overlooked Reason That Planes Crash So Often in Nepal**\
 `Each new disaster, including a crash that killed 18 people on Wednesday, leads to another investigation. A serious conflict of interest is always left unaddressed.`\
 https://nytimes.com/2024/07/25/world/asia/nepal-plane-crash.html
-
-**‘Playground’ Is Throwback Reality TV, in More Ways Than One**\
-`The new Hulu series, set at a prestigious Los Angeles dance studio, harks back to the vibes of an earlier age.`\
-https://nytimes.com/2024/07/25/arts/television/playground-hulu.html
-
-**They Got a Mysterious $24,000 Water Bill. Then the Shut-Off Notice Came.**\
-`A federal lawsuit accuses New York City of defying state and city regulations meant to protect vulnerable homeowners from losing water service.`\
-https://nytimes.com/2024/07/25/nyregion/water-bill-lawsuit-nyc.html
 
