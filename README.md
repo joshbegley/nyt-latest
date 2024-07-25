@@ -4,7 +4,7 @@ https://nytimes.com/2024/07/25/world/europe/uk-prince-harry-tabloids-royal-famil
 
 **U.S. Economy Grew at 2.8% Rate in Latest Quarter**\
 `The report on gross domestic product offered new evidence of the economy’s resilience in the face of high interest rates.`\
-https://nytimes.com/2024/07/25/business/economy/gdp-economy-gross-domestic-product.html
+https://nytimes.com/2024/07/25/business/economy/us-gdp-economy-inflation.html
 
 **What we learned from USC's trip to Big Ten media days**\
 `Lincoln Riley touched on NIL, scheduling and the overall state of his rebuild during his session with the media in Indianapolis. `\
