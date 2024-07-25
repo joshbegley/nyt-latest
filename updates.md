@@ -1,3 +1,19 @@
+**OpenAI Is Testing an A.I.-Powered Search Engine**\
+`The prominent A.I. start-up said it planned to eventually fold the new technology into its popular online chatbot, ChatGPT.`\
+https://nytimes.com/2024/07/25/technology/openai-ai-search-engine.html
+
+**Why Did Trump Promote a Book by One of His Accusers?**\
+`Could he really not have noticed this?`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/trump-sexual-misconduct
+
+**Friday Briefing: The Olympics Begin**\
+`Plus, a new poll shows Kamala Harris closing in on Donald Trump.`\
+https://nytimes.com/2024/07/25/briefing/olympics-paris-trump-harris-poll.html
+
+**USWNT 3-0 Zambia takeaways: Rodman, Swanson score to help U.S. win Olympic opener**\
+`The U.S. opened its Olympic tournament with a win. Here's how it happened...`\
+https://nytimes.com/athletic/5659018/2024/07/25/uswnt-zambia-takeaways-rodman-swanson/
+
 **USWNT 3-0 Zambia takeaways: Rodman, Swanson score in U.S. Olympic win**\
 `The U.S. opened its Olympic tournament with a win. Here's how it happened...`\
 https://nytimes.com/athletic/5659018/2024/07/25/uswnt-zambia-takeaways-rodman-swanson/
