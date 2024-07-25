@@ -1,3 +1,11 @@
+**Biden Says It’s Time for ‘Fresh Voices,’ and Netanyahu Defends Israel**\
+`Plus, the illicit flow of technology to Russia.`\
+https://nytimes.com/2024/07/25/podcasts/biden-speech-and-netanyahu-congress.html
+
+**Jordan Addison discusses arrest and other news: Vikings training camp Day 1 takeaways**\
+`We discuss Christian Darrisaw's new contract, Aaron Jones' motivation and whether experts are underestimating the Vikings in 2024.`\
+https://nytimes.com/athletic/5657038/2024/07/25/vikings-training-camp-jordan-addison/
+
 **'Inside the NBA' memories: From 'SNL' spoofs to cookie storage, show left its mark**\
 `There may be more attempts to duplicate the show's success, but there's really no comparison.`\
 https://nytimes.com/athletic/5478150/2024/07/25/tnt-inside-the-nba-media-tv-rights/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5656046/2024/07/25/rankings-debate-travis-etienne-d
 **In the right-field stands, an Oakland A's die-hard faces an empty future**\
 `Will MacNeil, known as "RF Will," has sat in the same seat for every A's home game for 20 years. Next season, he isn't sure what he'll do.`\
 https://nytimes.com/athletic/5656140/2024/07/25/oakland-as-fan-right-field-will/
-
-**Sessegnon undergoing Fulham medical ahead of rejoining club as free agent**\
-`Ryan Sessegnon is set to undergo a medical at Fulham ahead of rejoining the club as a free agent.`\
-https://nytimes.com/athletic/5608048/2024/07/25/ryan-sessegnon-fulham-transfer/
-
-**For Years, TikTok Told Us What to Buy. Now the Trend Is to Consume Less.**\
-`The trend of “underconsumption core” romanticizes buying and using only what you need. Yes, being normal is now trending. Experts say it’s a response to a period of economic hardship.`\
-https://nytimes.com/2024/07/25/style/tiktok-underconsumption-influencers.html
 
