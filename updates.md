@@ -1,3 +1,7 @@
+**For an Astros pitching corps short on experience, Alex Bregman has been a guiding voice**\
+`Alex Bregman is holding the Astros' young pitchers accountable and helping them assimilate to the major leagues.`\
+https://nytimes.com/athletic/5657100/2024/07/25/astros-alex-bregman-influence-pitching-catchers/
+
 **Rams camp observations and notes: Matthew Stafford speaks, tight ends impress**\
 `"I'm happy to be here," Stafford said on the first day of practice a day after he agreed to adjusted terms on his existing contract.`\
 https://nytimes.com/athletic/5657437/2024/07/25/rams-training-camp-matthew-stafford-tight-ends/
