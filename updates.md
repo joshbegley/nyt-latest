@@ -1,3 +1,11 @@
+**Canada's Olympic soccer spying scandal explained: Who's involved, what's next and more**\
+`The New Zealand Olympic Committee issued a complaint about a drone being flown over its women’s soccer team’s practice. Here’s what we know.`\
+https://nytimes.com/athletic/5657110/2024/07/24/canada-soccer-olympic-spying-scandal-explained/
+
+**New coach jitters? DeShaun Foster's freeze-up isn't distracting him from what's ahead**\
+`“I’ll probably get on Twitter and see some jokes," the first-year UCLA coach said about an awkward interaction on stage in Indianapolis. `\
+https://nytimes.com/athletic/5657120/2024/07/24/deshaun-foster-big-ten-media-days-ucla-football/
+
 **Seahawks training camp: Geno Smith's sharp start and more observations from Day 1**\
 `Smith was really feeling it on Day 1 of camp. Meanwhile, Abe Lucas remains without a timetable for a return from his knee injury.`\
 https://nytimes.com/athletic/5657042/2024/07/24/seahawks-training-camp-notes-observations/

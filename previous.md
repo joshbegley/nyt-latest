@@ -1,3 +1,11 @@
+**Canada's Olympic soccer spying scandal explained: Who's involved, what's next and more**\
+`The New Zealand Olympic Committee issued a complaint about a drone being flown over its women’s soccer team’s practice. Here’s what we know.`\
+https://nytimes.com/athletic/5657110/2024/07/24/canada-soccer-olympic-spying-scandal-explained/
+
+**New coach jitters? DeShaun Foster's freeze-up isn't distracting him from what's ahead**\
+`“I’ll probably get on Twitter and see some jokes," the first-year UCLA coach said about an awkward interaction on stage in Indianapolis. `\
+https://nytimes.com/athletic/5657120/2024/07/24/deshaun-foster-big-ten-media-days-ucla-football/
+
 **Seahawks training camp: Geno Smith's sharp start and more observations from Day 1**\
 `Smith was really feeling it on Day 1 of camp. Meanwhile, Abe Lucas remains without a timetable for a return from his knee injury.`\
 https://nytimes.com/athletic/5657042/2024/07/24/seahawks-training-camp-notes-observations/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/24/us/politics/trump-rally-kamala-harris.html
 **Assessing Netanyahu’s Speech to Congress**\
 `Some of his remarks have been disputed by human rights groups, and others are unverifiable or lacked context. Here’s a closer look.`\
 https://nytimes.com/2024/07/24/world/middleeast/netanyahu-speech-congress-assessment.html
-
-**Toumani Diabaté, Malian Master of the Kora, Is Dead at 58**\
-`He believed that music could transcend national borders set by colonialism and restore ancient ties, even as it embraced the changes of a globalizing society.`\
-https://nytimes.com/2024/07/24/arts/music/toumani-diabate-dead.html
-
-**Chargers training camp: Quentin Johnston's strong start, Cam Hart makes play of the day**\
-`Jim Harbaugh on the first day of Chargers training camp: “It feels like being born. It feels like coming out of the womb."`\
-https://nytimes.com/athletic/5656871/2024/07/24/chargers-training-camp-quentin-johnston-cam-hart/
 
