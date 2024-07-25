@@ -1,3 +1,7 @@
+**The Windup: Baseball's TV mess might be ending**\
+`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
+https://nytimes.com/athletic/5658506/2024/07/25/alex-cora-red-sox-bally-diamond-rsn-the-windup/
+
 **Norris ‘not too proud’ McLaren F1 team orders tension distracted from Piastri win**\
 `Lando Norris admitted the end to the Hungarian GP “could have been handled slightly differently from both a team side and a personal side."`\
 https://nytimes.com/athletic/5658298/2024/07/25/f1-lando-norris-oscar-piastri-mclaren-hungary/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5652532/2024/07/25/crystal-palace-ismaila-sarr-tran
 **Israeli security officials hope Biden will push Netanyahu to drop some demands in cease-fire talks.**\
 `By Lara Jakes and Ronen Bergman`\
 https://nytimes.com/live/2024/07/25/world/israel-gaza-war-hamas-netanyahu/israeli-security-officials-hope-biden-will-push-netanyahu-to-drop-some-demands-in-cease-fire-talks
-
-**The F1 Season Is Not Turning Into a Red Bull Runaway**\
-`Max Verstappen is still firmly on top of the drivers’ championship, but McLaren is mounting a challenge for the team title.`\
-https://nytimes.com/2024/07/25/sports/autoracing/f1-red-bull-mclaren-championship.html
 

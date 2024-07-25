@@ -1,3 +1,7 @@
+**The Windup: Baseball's TV mess might be ending**\
+`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
+https://nytimes.com/athletic/5658506/2024/07/25/alex-cora-red-sox-bally-diamond-rsn-the-windup/
+
 **Norris ‘not too proud’ McLaren F1 team orders tension distracted from Piastri win**\
 `Lando Norris admitted the end to the Hungarian GP “could have been handled slightly differently from both a team side and a personal side."`\
 https://nytimes.com/athletic/5658298/2024/07/25/f1-lando-norris-oscar-piastri-mclaren-hungary/
