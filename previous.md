@@ -1,3 +1,7 @@
+**Blue Jays' Kevin Kiermaier plans to retire after season**\
+`Kiermaier cited concerns about how he feels physically as well as wanting to spend more time with his family.`\
+https://nytimes.com/athletic/5657414/2024/07/24/kevin-kiermaier-retirement-mlb-blue-jays/
+
 **China Unexpectedly Cuts Interest Rate as World Markets Sag**\
 `The central bank lowered a key rate in its latest effort to steady China’s economy, as Asian stock markets followed Wall Street down.`\
 https://nytimes.com/2024/07/24/business/china-rate-cut-markets.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/24/us/politics/biden-speech-transcript.html
 **In Alex Cora, Red Sox retain the one constant through a period of whiplash**\
 `It’s been hard to know where ownership stands on anything the last several years, except for the manager. This has long been Cora’s team.`\
 https://nytimes.com/athletic/5657229/2024/07/24/red-sox-alex-cora-three-year-contract-analysis/
-
-**Vikings CB Mekhi Blackmon tears ACL: Source**\
-`This is another massive, emotional blow to a team that has not been devoid of them in recent weeks.`\
-https://nytimes.com/athletic/5657211/2024/07/24/mekhi-blackmon-vikings-acl-tear/
 

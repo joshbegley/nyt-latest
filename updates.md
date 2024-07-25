@@ -1,3 +1,7 @@
+**Blue Jays' Kevin Kiermaier plans to retire after season**\
+`Kiermaier cited concerns about how he feels physically as well as wanting to spend more time with his family.`\
+https://nytimes.com/athletic/5657414/2024/07/24/kevin-kiermaier-retirement-mlb-blue-jays/
+
 **China Unexpectedly Cuts Interest Rate as World Markets Sag**\
 `The central bank lowered a key rate in its latest effort to steady China’s economy, as Asian stock markets followed Wall Street down.`\
 https://nytimes.com/2024/07/24/business/china-rate-cut-markets.html
