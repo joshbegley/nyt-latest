@@ -1,3 +1,11 @@
+**Dissension in the ranks: Debating Travis Etienne vs. De'Von Achane for fantasy football 2024**\
+`Gary Davenport and John Laghezza try to break a virtual fantasy football ADP tie between alpha receivers Travis Etienne and De'Von Achane.`\
+https://nytimes.com/athletic/5656046/2024/07/25/rankings-debate-travis-etienne-devon-achane-fantasy-football-2024/
+
+**The hostages were already presumed dead by Israeli officials.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/07/25/world/israel-gaza-war-hamas-netanyahu/the-hostages-were-already-presumed-dead-by-israeli-officials
+
 **In the right-field stands, an Oakland A's die-hard faces an empty future**\
 `Will MacNeil, known as "RF Will," has sat in the same seat for every A's home game for 20 years. Next season, he isn't sure what he'll do.`\
 https://nytimes.com/athletic/5656140/2024/07/25/oakland-as-fan-right-field-will/

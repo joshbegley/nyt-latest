@@ -1,3 +1,7 @@
+**Dissension in the ranks: Debating Travis Etienne vs. De'Von Achane for fantasy football 2024**\
+`Gary Davenport and John Laghezza try to break a virtual fantasy football ADP tie between alpha receivers Travis Etienne and De'Von Achane.`\
+https://nytimes.com/athletic/5656046/2024/07/25/rankings-debate-travis-etienne-devon-achane-fantasy-football-2024/
+
 **In the right-field stands, an Oakland A's die-hard faces an empty future**\
 `Will MacNeil, known as "RF Will," has sat in the same seat for every A's home game for 20 years. Next season, he isn't sure what he'll do.`\
 https://nytimes.com/athletic/5656140/2024/07/25/oakland-as-fan-right-field-will/
@@ -16,7 +20,7 @@ https://nytimes.com/2024/07/25/world/middleeast/gaza-death-toll-israel-war.html
 
 **The hostages were already presumed dead by Israeli officials.**\
 `By Aaron Boxerman`\
-https://nytimes.com/live/2024/07/25/world/israel-gaza-war-hamas/the-hostages-were-already-presumed-dead-by-israeli-officials
+https://nytimes.com/live/2024/07/25/world/israel-gaza-war-hamas-netanyahu/the-hostages-were-already-presumed-dead-by-israeli-officials
 
 **Jack Flaherty, Tarik Skubal and where the Tigers stand ahead of the trade deadline**\
 `Jack Flaherty remains the Tigers' most likely trade asset, even as chatter swirls around Tarik Skubal. `\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/25/world/olympics/australia-hockey-finger-paris-olym
 **Predicting the 2024 Paris Olympics medal count: 7 factors for winningest countries**\
 `Our underdogs experts use a statistical model to predict the winningest countries at the Paris Games, and how many medals they'll win.`\
 https://nytimes.com/athletic/5653490/2024/07/25/olympics-2024-medal-projection-model/
-
-**3 Braves takeaways: Reflections on team meeting, Matt Olson's woeful slump and more**\
-`Braves players tend to address things in smaller groups, so the organized players-only meeting meant something extra. `\
-https://nytimes.com/athletic/5657011/2024/07/25/braves-team-meeting-matt-olson/
 
