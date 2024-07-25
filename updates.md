@@ -1,3 +1,7 @@
+**Andy Irving has taken the road less travelled. He's grabbing his West Ham chance**\
+`The 24-year-old midfielder is playing in his fourth country - but has impressed in West Ham's pre-season. Will Lopetegui keep faith?`\
+https://nytimes.com/athletic/5643233/2024/07/25/andy-irving-has-taken-the-road-less-travelled-hes-grabbing-his-west-ham-chance/
+
 **Why are Man City willing to sell Ederson - and why does he want to go?**\
 `City could sell Ederson this summer — and there is a reason the goalkeeper might want to leave the Etihad Stadium`\
 https://nytimes.com/athletic/5655283/2024/07/25/ederson-manchester-city-future-transfer/
