@@ -1,3 +1,7 @@
+**Biden Says It Is Time to Step Aside for a Fresh, Younger Voice**\
+`In an Oval Office address, President Biden praised Vice President Kamala Harris and said “it’s been the privilege of my life to serve this nation for over 50 years.”`\
+https://nytimes.com/2024/07/24/us/politics/biden-address.html
+
 **Seahawks training camp: Geno Smith's sharp start and more observations from Day 1**\
 `Smith was really feeling it on Day 1 of camp. Meanwhile, Abraham Lucas remains without a timetable for a return from his knee injury.`\
 https://nytimes.com/athletic/5657042/2024/07/24/seahawks-training-camp-notes-observations/
