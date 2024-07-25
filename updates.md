@@ -1,3 +1,7 @@
+**Given No Choice by His Party, Biden Says the Right Thing**\
+`It’s tempting to salute him for courage, but that would overlook the deception about his deterioration.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/biden-oval-office-speech
+
 **Vikings CB Mekhi Blackmon tears ACL: Source**\
 `This is another massive, emotional blow to a team that has not been devoid of them in recent weeks.`\
 https://nytimes.com/athletic/5657211/2024/07/24/mekhi-blackmon-vikings-acl-tear/
