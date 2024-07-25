@@ -1,3 +1,15 @@
+**For Years, TikTok Told Us What to Buy. Now the Trend Is to Consume Less.**\
+`The trend of “underconsumption core” romanticizes buying and using only what you need. Yes, being normal is now trending. Experts say it’s a response to a period of economic hardship.`\
+https://nytimes.com/2024/07/25/style/tiktok-underconsumption-influencers.html
+
+**Gaza’s Death Toll Was Largely Accurate in Early Days of War, Study Finds**\
+`Though the war has clearly devastated the civilian population, the credibility of the Gazan Health Ministry’s toll has been a subject of debate.`\
+https://nytimes.com/2024/07/25/world/middleeast/gaza-death-toll-israel-war.html
+
+**The hostages were already presumed dead by Israeli officials.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/07/25/world/israel-gaza-war-hamas/the-hostages-were-already-presumed-dead-by-israeli-officials
+
 **Jack Flaherty, Tarik Skubal and where the Tigers stand ahead of the trade deadline**\
 `Jack Flaherty remains the Tigers' most likely trade asset, even as chatter swirls around Tarik Skubal. `\
 https://nytimes.com/athletic/5657358/2024/07/25/jack-flaherty-tarik-skubal-tigers-trade-deadline-rumors/
