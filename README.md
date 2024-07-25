@@ -1,3 +1,7 @@
+**Pop the Cork? A Shipwreck Brims With Unopened Sparkling Wine**\
+`Polish divers think they have found cases of Champagne on a 19th-century merchant vessel that sank off Sweden.`\
+https://nytimes.com/2024/07/25/world/europe/pop-the-cork-a-shipwreck-brims-with-unopened-sparkling-wine.html
+
 **Lowetide: Oilers' Stan Bowman hire continues familiar pattern in GM history**\
 `The Oilers organization's version of best practices in hiring a general manager has never wavered.`\
 https://nytimes.com/athletic/5655760/2024/07/25/stan-bowman-edmonton-oilers-gm-history/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/25/movies/deadpool-wolverine-movie-reviews.html
 **With Speech to Teachers, Harris Waded into a Fiery Education Debate**\
 `Kamala Harris has been a longtime ally of teachers’ unions, even when their positions have divided the Democratic coalition.`\
 https://nytimes.com/2024/07/25/us/with-speech-to-teachers-harris-wades-into-a-fiery-education-debate.html
-
-**Why Businesses Need to Reinvent Their Approach to Change**\
-`Accenture research shows that 90% of organizations have gone through two or more major transformations in the past three years. If there was ever a time for organizations to get better at managing change, that time is now.`\
-https://nytimes.com/paidpost/accenture-episode-40/why-businesses-need-to-reinvent-their-approach-to-change.html
 

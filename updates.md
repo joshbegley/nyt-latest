@@ -1,3 +1,11 @@
+**Lowetide: Oilers' Stan Bowman hire continues familiar pattern in GM history**\
+`The Oilers organization's version of best practices in hiring a general manager has never wavered.`\
+https://nytimes.com/athletic/5655760/2024/07/25/stan-bowman-edmonton-oilers-gm-history/
+
+**Strong Women Are Driving Donald Trump Crazy**\
+`Against the former misogynist in chief, Kamala Harris’s gender is an asset.`\
+https://nytimes.com/2024/07/25/opinion/kamala-harris-trump-pelosi.html
+
 **Ukraine Detains Suspect in Killing of Nationalist Politician**\
 `An 18-year-old suspect was arrested after an intense manhunt. The authorities are investigating evidence that suggests that the suspect planned the killing with others.`\
 https://nytimes.com/2024/07/25/world/europe/ukraine-iryna-farion-killing-arrest.html

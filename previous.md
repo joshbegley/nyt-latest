@@ -1,3 +1,11 @@
+**Lowetide: Oilers' Stan Bowman hire continues familiar pattern in GM history**\
+`The Oilers organization's version of best practices in hiring a general manager has never wavered.`\
+https://nytimes.com/athletic/5655760/2024/07/25/stan-bowman-edmonton-oilers-gm-history/
+
+**Strong Women Are Driving Donald Trump Crazy**\
+`Against the former misogynist in chief, Kamala Harris’s gender is an asset.`\
+https://nytimes.com/2024/07/25/opinion/kamala-harris-trump-pelosi.html
+
 **Ukraine Detains Suspect in Killing of Nationalist Politician**\
 `An 18-year-old suspect was arrested after an intense manhunt. The authorities are investigating evidence that suggests that the suspect planned the killing with others.`\
 https://nytimes.com/2024/07/25/world/europe/ukraine-iryna-farion-killing-arrest.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/25/us/with-speech-to-teachers-harris-wades-into-a-fi
 **Why Businesses Need to Reinvent Their Approach to Change**\
 `Accenture research shows that 90% of organizations have gone through two or more major transformations in the past three years. If there was ever a time for organizations to get better at managing change, that time is now.`\
 https://nytimes.com/paidpost/accenture-episode-40/why-businesses-need-to-reinvent-their-approach-to-change.html
-
-**The Windup: Baseball's TV mess might be ending**\
-`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
-https://nytimes.com/athletic/5658506/2024/07/25/alex-cora-red-sox-bally-diamond-rsn-the-windup/
-
-**Norris ‘not too proud’ McLaren F1 team orders tension distracted from Piastri win**\
-`Lando Norris admitted the end to the Hungarian GP “could have been handled slightly differently from both a team side and a personal side."`\
-https://nytimes.com/athletic/5658298/2024/07/25/f1-lando-norris-oscar-piastri-mclaren-hungary/
 
