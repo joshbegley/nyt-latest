@@ -1,3 +1,11 @@
+**Southwest Airlines Will End Its Longstanding Open-Seating Policy**\
+`The airline said it was scrapping its trademark, 50-year tradition of offering open seating, where passengers choose seats once they have boarded the plane.`\
+https://nytimes.com/2024/07/25/business/southwest-airlines-assigned-seating.html
+
+**Fashion Doesn’t Get More Personal Than Drawn-On Clothes**\
+`Plus: new French hotels, eel bento boxes in Long Island City and more recommendations from T Magazine.`\
+https://nytimes.com/2024/07/25/t-magazine/drawn-on-clothing-fashion-small-talk-studio.html
+
 **Prince Harry Says Struggle With U.K. Tabloids Deepened Family Rift**\
 `In a TV interview airing on Thursday, Harry said his dispute against some newspapers over illegal information gathering was a “central piece” of his estrangement from other royals.`\
 https://nytimes.com/2024/07/25/world/europe/uk-prince-harry-tabloids-royal-family.html

@@ -1,3 +1,11 @@
+**Southwest Airlines Will End Its Longstanding Open-Seating Policy**\
+`The airline said it was scrapping its trademark, 50-year tradition of offering open seating, where passengers choose seats once they have boarded the plane.`\
+https://nytimes.com/2024/07/25/business/southwest-airlines-assigned-seating.html
+
+**Fashion Doesn’t Get More Personal Than Drawn-On Clothes**\
+`Plus: new French hotels, eel bento boxes in Long Island City and more recommendations from T Magazine.`\
+https://nytimes.com/2024/07/25/t-magazine/drawn-on-clothing-fashion-small-talk-studio.html
+
 **Rosenior appointed head coach at BlueCo-owned Strasbourg**\
 `Liam Rosenior has been appointed as the head coach of Strasbourg on a three-year deal.`\
 https://nytimes.com/athletic/5649314/2024/07/25/liam-rosenior-strasbourg-blueco/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/25/business/economy/us-gdp-economy-inflation.html
 **What we learned from USC's trip to Big Ten media days**\
 `Lincoln Riley touched on NIL, scheduling and the overall state of his rebuild during his session with the media in Indianapolis. `\
 https://nytimes.com/athletic/5657923/2024/07/25/usc-football-big-ten-nil-recruiting/
-
-**‘Ready, Steady, Slow’: Championship Snail Racing at 0.006 M.P.H.**\
-`Last one to the finish line is a miserable slug.`\
-https://nytimes.com/card/2024/07/25/science/snail-racing
-
-**Robbie Ray dazzles with five hitless innings in Giants debut: 'I knew that my stuff was going to play'**\
-`Ray needed an inning to channel his adrenaline, but once he got a handle on his stuff, it was as suffocating as ever.`\
-https://nytimes.com/athletic/5657651/2024/07/25/robbie-ray-sf-giants-debut/
 
