@@ -1,7 +1,3 @@
-**We’re Asking the Wrong Question About Harris and Race**\
-`When it comes to people of mixed racial origin, our assumptions are sometimes strangely at odds with our ideals.`\
-https://nytimes.com/2024/07/25/opinion/kamala-harris-race.html
-
 **Western Wildfire Smoke Reaches the East Coast**\
 `Wildfire smoke from the Western United States and Canada is blowing across the Northeast, lowering air quality and endangering vulnerable populations.`\
 https://nytimes.com/2024/07/25/climate/wildfire-smoke-climate.html
@@ -37,4 +33,8 @@ https://nytimes.com/interactive/2024/07/25/us/elections/times-siena-poll-topline
 **Cross-Tabs: July 2024 Times/Siena Poll of Registered Voters Nationwide**\
 `Results of a nationwide New York Times/Siena College poll conducted among 1,142 registered voters from July 22 to 24, 2024.`\
 https://nytimes.com/interactive/2024/07/25/us/elections/times-siena-poll-registered-voter-crosstabs.html
+
+**Cross-Tabs: July 2024 Times/Siena Poll of the Likely Electorate**\
+`Results of a nationwide New York Times/Siena College poll conducted among 1,142 likely voters from July 22 to 24, 2024.`\
+https://nytimes.com/interactive/2024/07/25/us/elections/times-siena-poll-likely-electorate-crosstabs.html
 
