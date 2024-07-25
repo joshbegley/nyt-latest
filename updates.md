@@ -1,3 +1,11 @@
+**The Overlooked Reason That Planes Crash So Often in Nepal**\
+`Each new disaster, including a crash that killed 18 people on Wednesday, leads to another investigation. A serious conflict of interest is always left unaddressed.`\
+https://nytimes.com/2024/07/25/world/asia/nepal-plane-crash.html
+
+**Biden and Netanyahu meet with a show of amiable relations despite tensions.**\
+`The Israeli prime minister, who has defied the American president’s pressure to reach a cease-fire in Gaza, nonetheless praised Mr. Biden for “50 years of support for the state of Israel.”`\
+https://nytimes.com/live/2024/07/25/world/israel-gaza-war-hamas-netanyahu/biden-and-netanyahu-meet-with-a-show-of-amiable-relations-amid-their-tension
+
 **‘Playground’ Is Throwback Reality TV, in More Ways Than One**\
 `The new Hulu series, set at a prestigious Los Angeles dance studio, harks back to the vibes of an earlier age.`\
 https://nytimes.com/2024/07/25/arts/television/playground-hulu.html

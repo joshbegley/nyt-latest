@@ -1,3 +1,7 @@
+**The Overlooked Reason That Planes Crash So Often in Nepal**\
+`Each new disaster, including a crash that killed 18 people on Wednesday, leads to another investigation. A serious conflict of interest is always left unaddressed.`\
+https://nytimes.com/2024/07/25/world/asia/nepal-plane-crash.html
+
 **‘Playground’ Is Throwback Reality TV, in More Ways Than One**\
 `The new Hulu series, set at a prestigious Los Angeles dance studio, harks back to the vibes of an earlier age.`\
 https://nytimes.com/2024/07/25/arts/television/playground-hulu.html
@@ -18,9 +22,9 @@ https://nytimes.com/live/2024/07/22/opinion/thepoint/biden-ambition-decision
 `Your questions may be used in an upcoming Islanders mailbag.`\
 https://nytimes.com/athletic/5658865/2024/07/25/ny-islanders-mailbag-arthur-staple/
 
-**Biden and Netanyahu Meet With a Show of Amiable Relations Amid Their Tension**\
+**Biden and Netanyahu meet with a show of amiable relations despite tensions.**\
 `The Israeli prime minister, who has defied the American president’s pressure to reach a cease-fire in Gaza, nonetheless praised Mr. Biden for “50 years of support for the state of Israel.”`\
-https://nytimes.com/2024/07/25/us/politics/biden-and-netanyahu-meet-with-a-show-of-amiable-relations-amid-their-tension.html
+https://nytimes.com/live/2024/07/25/world/israel-gaza-war-hamas-netanyahu/biden-and-netanyahu-meet-with-a-show-of-amiable-relations-amid-their-tension
 
 **Emily’s list begins a $2 million ad blitz for Harris.**\
 `By Reid J. Epstein and Shane Goldmacher`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/25/nyregion/jd-vance-kamala-harris-cat-lady.html
 **Who will light the Olympic cauldron? Here are 10 potential candidates**\
 `With just one day until opening ceremony, the identity of the individual who will light the cauldron remains unknown.`\
 https://nytimes.com/athletic/5658280/2024/07/25/olympic-cauldron-lighting-opening-ceremony-candidates/
-
-**Slot on Liverpool's transfer activity: 'We are waiting on the right ones to sign'**\
-`Arne Slot insists he&#8217;s relaxed about Liverpool&#8217;s lack of activity in the transfer market as he expects business to happen later in the window.`\
-https://nytimes.com/athletic/5658802/2024/07/25/liverpool-transfer-news-arne-slot/
 
