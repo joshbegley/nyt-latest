@@ -1,3 +1,7 @@
+**Fuel Tanker Sinks in Philippine Waters, Spilling Oil**\
+`The coast guard rescued 16 of the vessel’s 17 crew members, but Typhoon Gaemi’s remnants were complicating efforts to contain the oil spill in Manila Bay.`\
+https://nytimes.com/2024/07/25/world/asia/philippines-tanker-capsizes-oil-spill.html
+
 **Call Beijing’s Bluff in the South China Sea**\
 `China could seize control of a strategically vital waterway without firing a shot.`\
 https://nytimes.com/2024/07/25/opinion/china-us-military-south-china-sea.html

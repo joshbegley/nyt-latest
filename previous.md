@@ -1,3 +1,7 @@
+**Fuel Tanker Sinks in Philippine Waters, Spilling Oil**\
+`The coast guard rescued 16 of the vessel’s 17 crew members, but Typhoon Gaemi’s remnants were complicating efforts to contain the oil spill in Manila Bay.`\
+https://nytimes.com/2024/07/25/world/asia/philippines-tanker-capsizes-oil-spill.html
+
 **Call Beijing’s Bluff in the South China Sea**\
 `China could seize control of a strategically vital waterway without firing a shot.`\
 https://nytimes.com/2024/07/25/opinion/china-us-military-south-china-sea.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5655283/2024/07/25/ederson-manchester-city-future-t
 **Toby Collyer has impressed in Man Utd's pre-season - can he follow in Mainoo's footsteps?**\
 `The 20-year-old midfielder has been impressive this summer and is likely to feature in the first-team picture for a while longer`\
 https://nytimes.com/athletic/5641512/2024/07/25/toby-collyer-pre-season-performances/
-
-**Could Tottenham's Asia tour be the platform for Will Lankshear's breakout season?**\
-`The 19-year-old striker has spent pre-season with Tottenham's senior squad, now he must prove he is worthy of staying there`\
-https://nytimes.com/athletic/5650357/2024/07/25/will-lankshear-tottenham/
 
