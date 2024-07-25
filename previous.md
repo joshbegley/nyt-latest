@@ -1,3 +1,7 @@
+**Submit your New York Rangers questions for Peter Baugh's mailbag**\
+`The Rangers are making progress toward finalizing a roster for two months or so from now, when training camp begins.`\
+https://nytimes.com/athletic/5658281/2024/07/25/ny-rangers-mailbag-prompt-peter-baugh/
+
 **Kanjuruhan Stadium disaster: Indonesia firm apologies to victims' families after Gate 13 demolition**\
 `The company in charge of redevelopment work at the Kanjuruhan Stadium in Indonesia — where 135 fans died on October 1, 2022 in one of the world&#8217;s worst football disasters — has apologised to victims&#8217; families after demolishing one of the gates that was going to be retained as a memorial.`\
 https://nytimes.com/athletic/5658199/2024/07/25/kanjuruhan-stadium-disaster-tragedy/
@@ -5,6 +9,10 @@ https://nytimes.com/athletic/5658199/2024/07/25/kanjuruhan-stadium-disaster-trag
 **Tennis at the 2024 Olympics: Alcaraz, Swiatek, Sinner, and Gauff return to Roland Garros**\
 `Coco Gauff leads Team USA's hopes, while Carlos Alcaraz and Iga Swiatek look to recapture their Roland Garros success.`\
 https://nytimes.com/athletic/5652736/2024/07/25/tennis-olympics-2024-paris-players-schedule-draws/
+
+**Bournemouth agree deal with Juventus for Dean Huijsen**\
+`Bournemouth have agreed a €15million deal with Juventus to sign defender Dean Huijsen.`\
+https://nytimes.com/athletic/5658109/2024/07/25/dean-huijsen-juventus-bournemouth-transfer/
 
 **Forest, Palace warned over unlicensed betting sponsor Kaiyun Sports**\
 `Nottingham Forest and Crystal Palace have been warned about their commercial relationship with shirt sponsors Kaiyun Sports, after it emerged that the betting website is not licensed to trade in the UK.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/25/business/southwest-airlines-assigned-seating.html
 **Fashion Doesn’t Get More Personal Than Drawn-On Clothes**\
 `Plus: new French hotels, eel bento boxes in Long Island City and more recommendations from T Magazine.`\
 https://nytimes.com/2024/07/25/t-magazine/drawn-on-clothing-fashion-small-talk-studio.html
-
-**Rosenior appointed head coach at BlueCo-owned Strasbourg**\
-`Liam Rosenior has been appointed as the head coach of Strasbourg on a three-year deal.`\
-https://nytimes.com/athletic/5649314/2024/07/25/liam-rosenior-strasbourg-blueco/
-
-**Koozies, Key Chains and T-Shirts: Who’s Buying All That Billy Joel Merch?**\
-`The singer-songwriter is scheduled to perform his 150th show at Madison Square Garden, and fans are ready to collect.`\
-https://nytimes.com/2024/07/25/style/billy-joel-concert-merch.html
 

@@ -1,3 +1,11 @@
+**Submit your New York Rangers questions for Peter Baugh's mailbag**\
+`The Rangers are making progress toward finalizing a roster for two months or so from now, when training camp begins.`\
+https://nytimes.com/athletic/5658281/2024/07/25/ny-rangers-mailbag-prompt-peter-baugh/
+
+**Bournemouth agree deal with Juventus for Dean Huijsen**\
+`Bournemouth have agreed a €15million deal with Juventus to sign defender Dean Huijsen.`\
+https://nytimes.com/athletic/5658109/2024/07/25/dean-huijsen-juventus-bournemouth-transfer/
+
 **Kanjuruhan Stadium disaster: Indonesia firm apologies to victims' families after Gate 13 demolition**\
 `The company in charge of redevelopment work at the Kanjuruhan Stadium in Indonesia — where 135 fans died on October 1, 2022 in one of the world&#8217;s worst football disasters — has apologised to victims&#8217; families after demolishing one of the gates that was going to be retained as a memorial.`\
 https://nytimes.com/athletic/5658199/2024/07/25/kanjuruhan-stadium-disaster-tragedy/
