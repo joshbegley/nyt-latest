@@ -1,3 +1,11 @@
+**Blue Jays expected to be conservative sellers at trade deadline. Is that the right move?**\
+`Going for it again next season with a similar group may be relying too much on faith rather than the hard facts.`\
+https://nytimes.com/athletic/5657403/2024/07/25/blue-jays-mlb-trade-deadline-plans/
+
+**The Athletic FC: The chaos of Argentina-Morocco; A brief history of spying in sport**\
+`What happened in Argentina vs Morocco? Canada, New Zealand, spying: what's going on?`\
+https://nytimes.com/athletic/5657748/2024/07/25/argentina-morocco-canada-new-zealand-spying/
+
 **Israelis Contrast Netanyahu’s Speech in Congress With Grim Reality at Home**\
 `Commentators noted the gap between the applause the Israeli leader received in Congress and the widespread sense of government failure in Israel as the war drags on.`\
 https://nytimes.com/2024/07/25/world/middleeast/netanyahu-congress-speech-israel.html

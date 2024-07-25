@@ -1,3 +1,11 @@
+**Blue Jays expected to be conservative sellers at trade deadline. Is that the right move?**\
+`Going for it again next season with a similar group may be relying too much on faith rather than the hard facts.`\
+https://nytimes.com/athletic/5657403/2024/07/25/blue-jays-mlb-trade-deadline-plans/
+
+**The Athletic FC: The chaos of Argentina-Morocco; A brief history of spying in sport**\
+`What happened in Argentina vs Morocco? Canada, New Zealand, spying: what's going on?`\
+https://nytimes.com/athletic/5657748/2024/07/25/argentina-morocco-canada-new-zealand-spying/
+
 **Israelis Contrast Netanyahu’s Speech in Congress With Grim Reality at Home**\
 `Commentators noted the gap between the applause the Israeli leader received in Congress and the widespread sense of government failure in Israel as the war drags on.`\
 https://nytimes.com/2024/07/25/world/middleeast/netanyahu-congress-speech-israel.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/25/movies/rhinegold-review.html
 **Davante Adams ready to bounce back after Raiders' frustrating season: 'It's a fresh slate'**\
 `After expressing his displeasure on screen last season, the star receiver is in "a really good place" at the start of training camp.`\
 https://nytimes.com/athletic/5656704/2024/07/25/davante-adams-raiders-receiver/
-
-**‘The Fabulous Four’ Review: Beaches (and Lots of Mojitos)**\
-`This raunchy comedy features Bette Midler, Susan Sarandon, Sheryl Lee Ralph and Megan Mullally on a bachelorette weekend.`\
-https://nytimes.com/2024/07/25/movies/the-fabulous-four-review.html
-
-**‘Cirque du Soleil: Without a Net’ Review: How the Magic Happens**\
-`This documentary chronicles the reboot and reopening in Las Vegas of the acrobatic show “O,” which shutdown during the pandemic.`\
-https://nytimes.com/2024/07/25/movies/cirque-du-soleil-without-a-net-review.html
 
