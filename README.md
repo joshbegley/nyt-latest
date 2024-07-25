@@ -1,7 +1,3 @@
-**F.B.I. Examining Bullet Fragments Found at Trump Rally Site**\
-`The bureau is assessing what caused the former president’s wound during an assassination attempt. The question has turned political.`\
-https://nytimes.com/2024/07/25/us/politics/fbi-bullet-trump-rally.html
-
 **Israeli Forces Retrieve Bodies of 5 Hostages From Tunnel in Gaza**\
 `The military said that intelligence, including information from detained Palestinian militants, had led to the bodies in the Khan Younis area.`\
 https://nytimes.com/2024/07/25/world/middleeast/israel-hostages-bodies-gaza.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/07/25/nyregion/new-york-city-charter.html
 **Steelers training camp: Justin Fields up and down in surprise opportunity as QB1**\
 `Yes, Fields made some terrific plays, but he also had some big mistakes, with Russell Wilson watching on the first day of training camp.`\
 https://nytimes.com/athletic/5658732/2024/07/25/justin-fields-russell-wilson-steelers-training-camp/
+
+**JD Vance’s ‘Cat Ladies’ Riff Has Serious ‘Handmaid’s Tale’ Vibes**\
+`The far right wants to turn the clock back on women’s rights.`\
+https://nytimes.com/2024/07/25/opinion/kamala-harris-jd-vance.html
 
