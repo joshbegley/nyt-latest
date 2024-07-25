@@ -1,3 +1,7 @@
+**Here’s the latest on the president’s address.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/biden-speech-oval-office
+
 **Seahawks, Julian Love agree to 3-year extension**\
 `Love was a Pro Bowl selection last season after starting 12 of 17 games.`\
 https://nytimes.com/athletic/5657127/2024/07/24/julian-love-seahawks-extension/

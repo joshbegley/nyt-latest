@@ -30,7 +30,7 @@ https://nytimes.com/athletic/5657018/2024/07/24/raiders-training-camp-qb-battle-
 `“We’re doing a good job of not paying too much attention to it,” Justin Steele said.`\
 https://nytimes.com/athletic/5657017/2024/07/24/cubs-selling-trade-deadline-rumors/
 
-**Here’s the latest from the White House.**\
+**Here’s the latest on the president’s address.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/biden-speech-oval-office
 
