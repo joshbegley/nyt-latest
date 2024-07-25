@@ -1,3 +1,11 @@
+**Wildfire Smoke Spreads over Pacific Northwest and Western Canada**\
+`The blazes have prompted air quality warnings in several states and Canada’s Alberta Province.`\
+https://nytimes.com/2024/07/25/us/wildfires-canada-california-oregon.html
+
+**Dodgers' Chris Taylor likely going on IL with groin tightness**\
+`The news comes just hours after the Dodgers placed shortstop Miguel Rojas on the injured list.`\
+https://nytimes.com/athletic/5657501/2024/07/25/chris-taylor-dodgers-injuries-hamstring/
+
 **Word of the Day: defector**\
 `This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/07/25/learning/word-of-the-day-defector.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5657121/2024/07/25/fantasy-football-draft-strategy-
 **The Briefing: Arsenal 1-1 Bournemouth - Implications of Smith Rowe exit, Vieira scores, Nwaneri impresses**\
 `James McNicholas addresses the main talking points from Arsenal's friendly draw against Bournemouth`\
 https://nytimes.com/athletic/5655378/2024/07/25/arsenal-bournemouth-friendly-analysis/
-
-**Four Mets takeaways from their 5-homer rout of the Yankees**\
-`The Mets got two homers from Francisco Lindor and one each from Tyrone Taylor, Pete Alonso and Mark Vientos as they roughed up Gerrit Cole.`\
-https://nytimes.com/athletic/5657482/2024/07/25/mets-yankees-francisco-lindor/
-
-**Mitoma is on the road to recovery in Japan - and Brighton are making the most of it**\
-`The winger was injured for the end of the 2023-24 season and his absence coincided with a poor run of results. His return is welcomed`\
-https://nytimes.com/athletic/5631051/2024/07/25/mitoma-brighton-japan-recovery/
 

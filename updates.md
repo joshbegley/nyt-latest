@@ -1,3 +1,11 @@
+**Wildfire Smoke Spreads over Pacific Northwest and Western Canada**\
+`The blazes have prompted air quality warnings in several states and Canada’s Alberta Province.`\
+https://nytimes.com/2024/07/25/us/wildfires-canada-california-oregon.html
+
+**Dodgers' Chris Taylor likely going on IL with groin tightness**\
+`The news comes just hours after the Dodgers placed shortstop Miguel Rojas on the injured list.`\
+https://nytimes.com/athletic/5657501/2024/07/25/chris-taylor-dodgers-injuries-hamstring/
+
 **Word of the Day: defector**\
 `This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/07/25/learning/word-of-the-day-defector.html
