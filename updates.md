@@ -1,3 +1,7 @@
+**Word of the Day: defector**\
+`This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/07/25/learning/word-of-the-day-defector.html
+
 **Typhoon Gaemi Heads for China as Cargo Ship Sinks Off Taiwan**\
 `Nine sailors were missing after a cargo ship sank near the island in bad weather. The storm was forecast to make landfall in mainland China on Thursday.`\
 https://nytimes.com/2024/07/25/world/asia/typhoon-gaemi-china-taiwan.html
