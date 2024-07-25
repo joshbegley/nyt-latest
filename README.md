@@ -1,3 +1,11 @@
+**Forest, Palace warned over unlicensed betting sponsor Kaiyun Sports**\
+`Nottingham Forest and Crystal Palace have been warned about their commercial relationship with shirt sponsors Kaiyun Sports, after it emerged that the betting website is not licensed to trade in the UK.`\
+https://nytimes.com/athletic/5657650/2024/07/25/forest-palace-kaiyun-sports-sponsor/
+
+**Prince Harry Says Battling Tabloids Was ‘Central Piece’ to Family Rift**\
+`In an interview airing on ITV on Thursday, Prince Harry talks about his marathon battle with British tabloids over privacy and the effect it had on his relationship with other royals.`\
+https://nytimes.com/video/world/europe/100000009591858/prince-harry-tabloids-interview-royal-family.html
+
 **The Moon’s Most Shadowy Places Can’t Hide From NASA’s New Camera**\
 `ShadowCam, a NASA instrument aboard a South Korean spacecraft, is taking pictures of the moon where the sun doesn’t shine.`\
 https://nytimes.com/2024/07/25/science/moon-nasa-shadowcam-craters.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/25/us/newsom-homeless-california.html
 **Until Saturday: DeShaun Foster made his Big Ten debut, while drama continues in ACC**\
 `Welcome to Until Saturday, the five-star college football newsletter: Foster made his Big Ten debut while the ACC's drama continues.`\
 https://nytimes.com/athletic/5657030/2024/07/25/deshaun-foster-pat-mcafee-acc-media-days-until-saturday/
-
-**2025 Could Be a Great Time to Be President, Economically Speaking**\
-`Trends already underway make for a sunny outlook over the next few years. The question is who will get to take credit.`\
-https://nytimes.com/2024/07/25/business/economy/2025-economy-president.html
-
-**Prince Harry Says Struggle With U.K. Tabloids Deepened Family Rift**\
-`In a TV interview airing on Thursday, Harry said his dispute against some newspapers over illegal information gathering was a “central piece” of his estrangement from other royals.`\
-https://nytimes.com/2024/07/25/world/europe/uk-prince-harry-tabloids-royal-family.html
 
