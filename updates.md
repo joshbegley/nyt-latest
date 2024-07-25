@@ -1,3 +1,11 @@
+**Biden Says It’s Time for ‘Fresh Voices,’ and Netanyahu Defends Israel**\
+`Plus, the illicit flow of technology to Russia.`\
+https://nytimes.com/2024/07/25/podcasts/biden-speech-and-netanyahu-congress.html
+
+**Jordan Addison discusses arrest and other news: Vikings training camp Day 1 takeaways**\
+`We discuss Christian Darrisaw's new contract, Aaron Jones' motivation and whether experts are underestimating the Vikings in 2024.`\
+https://nytimes.com/athletic/5657038/2024/07/25/vikings-training-camp-jordan-addison/
+
 **'Inside the NBA' memories: From 'SNL' spoofs to cookie storage, show left its mark**\
 `There may be more attempts to duplicate the show's success, but there's really no comparison.`\
 https://nytimes.com/athletic/5478150/2024/07/25/tnt-inside-the-nba-media-tv-rights/
