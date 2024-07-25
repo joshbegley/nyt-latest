@@ -1,3 +1,15 @@
+**Toplines: July 2024 Times/Siena Poll of Registered Voters Nationwide**\
+`Results of a nationwide New York Times/Siena College poll conducted among 1,142 registered voters from July 22 to 24, 2024.`\
+https://nytimes.com/interactive/2024/07/25/us/elections/times-siena-poll-toplines.html
+
+**Cross-Tabs: July 2024 Times/Siena Poll of Registered Voters Nationwide**\
+`Results of a nationwide New York Times/Siena College poll conducted among 1,142 registered voters from July 22 to 24, 2024.`\
+https://nytimes.com/interactive/2024/07/25/us/elections/times-siena-poll-registered-voter-crosstabs.html
+
+**Cross-Tabs: July 2024 Times/Siena Poll of the Likely Electorate**\
+`Results of a nationwide New York Times/Siena College poll conducted among 1,142 likely voters from July 22 to 24, 2024.`\
+https://nytimes.com/interactive/2024/07/25/us/elections/times-siena-poll-likely-electorate-crosstabs.html
+
 **Sean Clifford struggles, safeties vie for spot: 5 observations from Packers camp**\
 `Clifford hasn't exactly seized his opportunity as the first-team quarterback with Jordan Love sidelined while awaiting a new contract.`\
 https://nytimes.com/athletic/5658194/2024/07/25/packers-training-camp-sean-clifford/

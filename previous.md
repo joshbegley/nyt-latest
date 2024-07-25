@@ -1,3 +1,15 @@
+**Toplines: July 2024 Times/Siena Poll of Registered Voters Nationwide**\
+`Results of a nationwide New York Times/Siena College poll conducted among 1,142 registered voters from July 22 to 24, 2024.`\
+https://nytimes.com/interactive/2024/07/25/us/elections/times-siena-poll-toplines.html
+
+**Cross-Tabs: July 2024 Times/Siena Poll of Registered Voters Nationwide**\
+`Results of a nationwide New York Times/Siena College poll conducted among 1,142 registered voters from July 22 to 24, 2024.`\
+https://nytimes.com/interactive/2024/07/25/us/elections/times-siena-poll-registered-voter-crosstabs.html
+
+**Cross-Tabs: July 2024 Times/Siena Poll of the Likely Electorate**\
+`Results of a nationwide New York Times/Siena College poll conducted among 1,142 likely voters from July 22 to 24, 2024.`\
+https://nytimes.com/interactive/2024/07/25/us/elections/times-siena-poll-likely-electorate-crosstabs.html
+
 **Sean Clifford struggles, safeties vie for spot: 5 observations from Packers camp**\
 `Clifford hasn't exactly seized his opportunity as the first-team quarterback with Jordan Love sidelined while awaiting a new contract.`\
 https://nytimes.com/athletic/5658194/2024/07/25/packers-training-camp-sean-clifford/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/22/opinion/thepoint/biden-ambition-decision
 **Submit your Islanders questions for Arthur Staple's mailbag**\
 `Your questions may be used in an upcoming Islanders mailbag.`\
 https://nytimes.com/athletic/5658865/2024/07/25/ny-islanders-mailbag-arthur-staple/
-
-**Biden and Netanyahu meet with a show of amiable relations despite tensions.**\
-`The Israeli prime minister, who has defied the American president’s pressure to reach a cease-fire in Gaza, nonetheless praised Mr. Biden for “50 years of support for the state of Israel.”`\
-https://nytimes.com/live/2024/07/25/world/israel-gaza-war-hamas-netanyahu/biden-and-netanyahu-meet-with-a-show-of-amiable-relations-amid-their-tension
-
-**Emily’s list begins a $2 million ad blitz for Harris.**\
-`By Reid J. Epstein and Shane Goldmacher`\
-https://nytimes.com/live/2024/07/25/us/harris-trump-biden-election/emilys-list-begins-a-2-million-ad-blitz-for-harris
-
-**JD Vance and the Age-Old Trope of ‘Childless Cat Ladies’**\
-`In a relentlessly newsy phase of the presidential contest, the long history of bias against cosmopolitan cat-owning women finds its place.`\
-https://nytimes.com/2024/07/25/nyregion/jd-vance-kamala-harris-cat-lady.html
 
