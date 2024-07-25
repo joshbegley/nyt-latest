@@ -1,3 +1,15 @@
+**Countering Concerns About Kamala Harris**\
+`Readers react to Bret Stephens’s criticisms of Kamala Harris. Also: Gail Collins’s loss; barring felons from office; no taxes on tips?`\
+https://nytimes.com/2024/07/25/opinion/kamala-harris.html
+
+**Thiago injury throws Toney's Brentford status in doubt**\
+`Brentford fear that their club-record signing Igor Thiago will miss the first few weeks of the new season after injuring his right knee in a friendly against AFC Wimbledon last Saturday — which could have implications for Ivan Toney&#8217;s future in west London.`\
+https://nytimes.com/athletic/5658588/2024/07/25/igor-thiago-injury-brentford-toney/
+
+**Jack Nelson didn't have the season he expected in 2023. That's why he's back for more at Wisconsin**\
+`Nelson knows he has more to prove after leading the Big Ten in penalties in 2023. So he delayed his NFL Draft hopes and is back in Madison.`\
+https://nytimes.com/athletic/5658558/2024/07/25/jack-nelson-wisconsin-college-football-nfl/
+
 **Pop the Cork? A Shipwreck Brims With Unopened Sparkling Wine**\
 `Polish divers think they have found cases of Champagne on a 19th-century merchant vessel that sank off Sweden.`\
 https://nytimes.com/2024/07/25/world/europe/pop-the-cork-a-shipwreck-brims-with-unopened-sparkling-wine.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/25/arts/bob-booker-dead.html
 **The Bounce: Your 2024 Olympic basketball primer**\
 `Zach Harper catches you up on league-wide news.`\
 https://nytimes.com/athletic/5658040/2024/07/25/olympic-basketball-nba-media-rights-tnt-the-bounce/
-
-**Move Over, Mathematicians, Here Comes AlphaProof**\
-`A.I. is getting good at math — and might soon make a worthy collaborator for humans.`\
-https://nytimes.com/2024/07/25/science/ai-math-alphaproof-deepmind.html
-
-**‘Deadpool & Wolverine’ Reviews Are In: Amusing or Exhausting?**\
-`Few critics could deny that the highly anticipated super spectacle, starring Ryan Reynolds and Hugh Jackman, has its charms — but most left wanting more.`\
-https://nytimes.com/2024/07/25/movies/deadpool-wolverine-movie-reviews.html
-
-**With Speech to Teachers, Harris Waded into a Fiery Education Debate**\
-`Kamala Harris has been a longtime ally of teachers’ unions, even when their positions have divided the Democratic coalition.`\
-https://nytimes.com/2024/07/25/us/with-speech-to-teachers-harris-wades-into-a-fiery-education-debate.html
 
