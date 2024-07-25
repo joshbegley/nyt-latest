@@ -1,3 +1,7 @@
+**Seahawks, Julian Love agree to 3-year extension**\
+`Love was a Pro Bowl selection last season after starting 12 of 17 games.`\
+https://nytimes.com/athletic/5657127/2024/07/24/julian-love-seahawks-extension/
+
 **Canada's Olympic soccer spying scandal explained: Who's involved, what's next and more**\
 `The New Zealand Olympic Committee issued a complaint about a drone being flown over its women’s soccer team’s practice. Here’s what we know.`\
 https://nytimes.com/athletic/5657110/2024/07/24/canada-soccer-olympic-spying-scandal-explained/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/biden-speech-
 **Trump Attacks Harris as ‘Radical’ in First Rally Since Her Ascent**\
 `The Trump campaign has sought to tie Vice President Kamala Harris to unpopular Biden administration policies and paint her as too liberal for independent or moderate voters.`\
 https://nytimes.com/2024/07/24/us/politics/trump-rally-kamala-harris.html
-
-**Assessing Netanyahu’s Speech to Congress**\
-`Some of his remarks have been disputed by human rights groups, and others are unverifiable or lacked context. Here’s a closer look.`\
-https://nytimes.com/2024/07/24/world/middleeast/netanyahu-speech-congress-assessment.html
 
