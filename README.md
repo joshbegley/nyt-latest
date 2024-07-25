@@ -1,3 +1,7 @@
+**Biden’s Ambition Was a Sign of His Patriotism**\
+`When we peer into the soul of America, we should always find both.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/biden-ambition-decision
+
 **Submit your Islanders questions for Arthur Staple's mailbag**\
 `Your questions may be used in an upcoming Islanders mailbag.`\
 https://nytimes.com/athletic/5658865/2024/07/25/ny-islanders-mailbag-arthur-staple/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/25/technology/california-gig-worker-court-decision.h
 **Darryl Daniel, Illustrator of Snoop Dogg’s First Album Cover, Dies at 56**\
 `The 1993 album “Doggystyle” went on to sell millions of copies around the world and solidified the career of Mr. Daniel, known as Joe Cool, as a hip-hop illustrator.`\
 https://nytimes.com/2024/07/25/arts/joe-cool-dead-snoop-dogg-doggystyle.html
-
-**How the (even bigger) Big Ten's TV deal will work in Year 2**\
-`Last season, five of the eight CFB games with at least 10 million viewers and 10 of the 15 highest-rated games included current B1G teams.`\
-https://nytimes.com/athletic/5658646/2024/07/25/big-ten-football-tv-partners-schedule/
 
