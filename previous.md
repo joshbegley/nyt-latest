@@ -1,3 +1,31 @@
+**West Ham close on deal for Mazrouai from Bayern**\
+`West Ham United are closing in on a deal to sign Bayern Munich defender Noussair Mazrouai.`\
+https://nytimes.com/athletic/5657806/2024/07/25/west-ham-mazrouai-transfer-bayern-munich/
+
+**Possibility and playfulness: How USWNT's next generation is redefining itself**\
+`Youth is a defining aspect of Emma Hayes' first USWNT Olympic roster`\
+https://nytimes.com/athletic/5657035/2024/07/25/uswnt-2024-paris-olympics-womens-soccer/
+
+**‘Only the River Flows’ Review: A Spiraling Murder Investigation**\
+`In this Chinese police procedural, directed by Wei Shujun, solutions are murkier than they first appear.`\
+https://nytimes.com/2024/07/25/movies/only-the-river-flows-review.html
+
+**‘Rhinegold’ Review: Rapping With a Rap Sheet**\
+`Based on the life of an Iranian German drug dealer and rapper, Fatih Akin’s interminable drama feels uncomfortably partial to its violent subject.`\
+https://nytimes.com/2024/07/25/movies/rhinegold-review.html
+
+**Davante Adams ready to bounce back after Raiders' frustrating season: 'It's a fresh slate'**\
+`After expressing his displeasure on screen last season, the star receiver is in "a really good place" at the start of training camp.`\
+https://nytimes.com/athletic/5656704/2024/07/25/davante-adams-raiders-receiver/
+
+**‘The Fabulous Four’ Review: Beaches (and Lots of Mojitos)**\
+`This raunchy comedy features Bette Midler, Susan Sarandon, Sheryl Lee Ralph and Megan Mullally on a bachelorette weekend.`\
+https://nytimes.com/2024/07/25/movies/the-fabulous-four-review.html
+
+**‘Cirque du Soleil: Without a Net’ Review: How the Magic Happens**\
+`This documentary chronicles the reboot and reopening in Las Vegas of the acrobatic show “O,” which shutdown during the pandemic.`\
+https://nytimes.com/2024/07/25/movies/cirque-du-soleil-without-a-net-review.html
+
 **Durant, Curry address Embiid's comments on LeBron and Team USA's age**\
 `Joel Embiid had said Lebron James 'is not the Lebron of a couple years ago' last week`\
 https://nytimes.com/athletic/5657755/2024/07/25/curry-durant-embiid-usa-olympics/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/5657172/2024/07/25/olympic-soccer-argentina-morocco
 **A New Insight into Donald Trump’s Rise**\
 `We examine data on economic mobility.`\
 https://nytimes.com/2024/07/25/briefing/a-new-insight-into-donald-trumps-rise.html
-
-**Zambia faces USWNT at the Olympics hoping to cause one of the great upsets**\
-`The Copper Queens have defied the odds to reach a third consecutive major tournament, but beating the U.S. would be the finest moment yet`\
-https://nytimes.com/athletic/5657247/2024/07/25/zambia-uswnt-olympics/
-
-**Angelique Kerber to retire from tennis after Paris Olympics**\
-`The three-time Grand Slam winner Angelique Kerber has announced she will retire from tennis after playing at the Olympic Games in Paris.`\
-https://nytimes.com/athletic/5657671/2024/07/25/angelique-kerber-olympics-retire/
-
-**For an Astros pitching corps short on experience, Alex Bregman has been a guiding voice**\
-`Alex Bregman is holding the Astros' young pitchers accountable and helping them assimilate to the major leagues.`\
-https://nytimes.com/athletic/5657100/2024/07/25/astros-alex-bregman-influence-pitching-catchers/
-
-**Rams camp observations and notes: Matthew Stafford speaks, tight ends impress**\
-`"I'm happy to be here," Stafford said on the first day of practice a day after he agreed to adjusted terms on his existing contract.`\
-https://nytimes.com/athletic/5657437/2024/07/25/rams-training-camp-matthew-stafford-tight-ends/
-
-**Biden Says It’s Time for ‘Fresh Voices,’ and Netanyahu Defends War in Gaza**\
-`Plus, the illicit flow of technology to Russia.`\
-https://nytimes.com/2024/07/25/podcasts/biden-speech-and-netanyahu-congress.html
-
-**Jordan Addison discusses arrest and other news: Vikings training camp Day 1 takeaways**\
-`We discuss Christian Darrisaw's new contract, Aaron Jones' motivation and whether experts are underestimating the Vikings in 2024.`\
-https://nytimes.com/athletic/5657038/2024/07/25/vikings-training-camp-jordan-addison/
-
-**'Inside the NBA' memories: From 'SNL' spoofs to cookie storage, show left its mark**\
-`There may be more attempts to duplicate the show's success, but there's really no comparison.`\
-https://nytimes.com/athletic/5478150/2024/07/25/tnt-inside-the-nba-media-tv-rights/
 
