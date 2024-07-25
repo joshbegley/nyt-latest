@@ -1,3 +1,15 @@
+**Obama Has Been in Touch With Harris and Is Expected to Endorse Her Soon**\
+`Former President Barack Obama had been reluctant to endorse Ms. Harris too quickly, to avoid the perception that he was overseeing her coronation, people familiar with his thinking say.`\
+https://nytimes.com/2024/07/25/us/politics/obama-harris-endorsement.html
+
+**Mayor of London calls for Premier League games to be played in the U.S.**\
+`The Mayor of London Sadiq Khan has called for Premier League games to be played in the United States.`\
+https://nytimes.com/athletic/5659282/2024/07/25/premier-league-games-united-states-america/
+
+**Oakland A's place closer Mason Miller on IL**\
+`Miller broke his non-throwing hand in a training room accident earlier this week.`\
+https://nytimes.com/athletic/5659295/2024/07/25/mason-miller-oakland-athletics-injured-trade/
+
 **Jets training camp observations: Aaron Rodgers-Garrett Wilson connection heats up**\
 `FLORHAM PARK, N.`\
 https://nytimes.com/athletic/5658989/2024/07/25/jets-training-camp-practice-report-day-2-aaron-rodgers-garrett-wilson/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/25/books/review/6-new-books-we-recommend-this-week.h
 **Breaking in New Sports at the Olympics**\
 `Breaking, sport climbing and skateboarding may seem untraditional, but they embody the true spirit of the games.`\
 https://nytimes.com/interactive/2024/07/25/magazine/olympics-breaking-sports-history.html
-
-**Have the Olympics Ever Been This Dangerous?**\
-`Teahupo'o has one of the deadliest surf breaks in the world. Athletes could face waves up to 50 feet.`\
-https://nytimes.com/interactive/2024/07/25/magazine/olympics-surfing-teahupoo-french-polynesia.html
-
-**Lions training camp: Jake Bates' leg on display, Sione Vaki improving and more**\
-`Plus, DJ Reader isn't ready to practice and an update on the safety competition.`\
-https://nytimes.com/athletic/5658877/2024/07/25/detroit-lions-training-camp-jake-bates-kicker-sione-vaki/
-
-**Spots on Mars Rock Share Similarities With Fossilized Life on Earth**\
-`The rock, studied by NASA’s Perseverance Rover, has been closely analyzed by scientists on Earth who say that nonmicrobial processes could also explain the features.`\
-https://nytimes.com/2024/07/25/science/nasa-perseverance-rover-mars-rock.html
 

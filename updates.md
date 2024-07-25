@@ -1,3 +1,15 @@
+**Obama Has Been in Touch With Harris and Is Expected to Endorse Her Soon**\
+`Former President Barack Obama had been reluctant to endorse Ms. Harris too quickly, to avoid the perception that he was overseeing her coronation, people familiar with his thinking say.`\
+https://nytimes.com/2024/07/25/us/politics/obama-harris-endorsement.html
+
+**Mayor of London calls for Premier League games to be played in the U.S.**\
+`The Mayor of London Sadiq Khan has called for Premier League games to be played in the United States.`\
+https://nytimes.com/athletic/5659282/2024/07/25/premier-league-games-united-states-america/
+
+**Oakland A's place closer Mason Miller on IL**\
+`Miller broke his non-throwing hand in a training room accident earlier this week.`\
+https://nytimes.com/athletic/5659295/2024/07/25/mason-miller-oakland-athletics-injured-trade/
+
 **Jets training camp observations: Aaron Rodgers-Garrett Wilson connection heats up**\
 `FLORHAM PARK, N.`\
 https://nytimes.com/athletic/5658989/2024/07/25/jets-training-camp-practice-report-day-2-aaron-rodgers-garrett-wilson/
