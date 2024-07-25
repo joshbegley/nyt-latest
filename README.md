@@ -1,3 +1,7 @@
+**Flyers' Travis Konecny signs 8-year extension**\
+`Last season, Konecny posted 33 goals and 68 points — both team highs — in 76 games.`\
+https://nytimes.com/athletic/5658757/2024/07/25/travis-konecny-flyers-contract-extension/
+
 **Martin S. Indyk, Diplomat Who Sought Middle East Peace, Dies at 73**\
 `As ambassador to Israel in the Clinton administration and as a special envoy under Barack Obama, he was skeptical of Israeli settlements.`\
 https://nytimes.com/2024/07/25/world/middleeast/martin-s-indyk-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/25/dining/where-theres-smoke-theres-grilled-vegetabl
 **Russia and China Carry Out First Joint Bomber Patrol Near Alaska**\
 `Two Russian and two Chinese bombers patrolled the airspace near American territory and were intercepted by U.S. and Canadian jets.`\
 https://nytimes.com/2024/07/25/world/asia/russia-and-china-carry-out-first-joint-bomber-patrol-near-alaska.html
-
-**Kamala Harris’s Fund-Raising Machine Cranks Into High Gear**\
-`Given weeks instead of years to cultivate donors, the vice president’s allies are armed with a new logo and burning up the phones.`\
-https://nytimes.com/2024/07/25/us/politics/kamala-harris-donors-fund-raising.html
 
