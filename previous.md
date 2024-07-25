@@ -1,5 +1,13 @@
-**Prince Harry Says Battle With U.K. Tabloids Deepened Family Rift**\
-`In a TV interview airing on Thursday, Harry said his fight with British newspapers over illegal information gathering was a “central piece” of his estrangement from other royals.`\
+**Until Saturday: DeShaun Foster made his Big Ten debut, while drama continues in ACC**\
+`Welcome to Until Saturday, the five-star college football newsletter: Foster made his Big Ten debut while the ACC's drama continues.`\
+https://nytimes.com/athletic/5657030/2024/07/25/deshaun-foster-pat-mcafee-acc-media-days-until-saturday/
+
+**2025 Could Be a Great Time to Be President, Economically Speaking**\
+`Trends already underway make for a sunny outlook over the next few years. The question is who will get to take credit.`\
+https://nytimes.com/2024/07/25/business/economy/2025-economy-president.html
+
+**Prince Harry Says Struggle With U.K. Tabloids Deepened Family Rift**\
+`In a TV interview airing on Thursday, Harry said his efforts against British newspapers over illegal information gathering were a “central piece” of his estrangement from other royals.`\
 https://nytimes.com/2024/07/25/world/europe/uk-prince-harry-tabloids-royal-family.html
 
 **U.S. Economy Grew at 2.8% Rate in Latest Quarter**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/25/learning/our-2024-25-student-contest-calendar.htm
 **Rupert Murdoch’s Game of Thrones**\
 `The battle between the media mogul and three of his children over control of his empire has big ramifications for politics, media and more.`\
 https://nytimes.com/2024/07/25/business/dealbook/murdoch-family-fight.html
-
-**Harris keeps up her campaign sprint. Here’s the latest.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/07/25/us/harris-trump-biden-election/harris-keeps-up-her-campaign-sprint-heres-the-latest
-
-**Ducks mailbag, Part 2: Trevor Zegras, Pat Verbeek, next captain and more**\
-`Thoughts on a season at a crossroads for Zegras where the 23-year-old’s future could go in many ways.`\
-https://nytimes.com/athletic/5656481/2024/07/25/ducks-trevor-zegras-pat-verbeek-captain/
 

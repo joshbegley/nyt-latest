@@ -1,3 +1,15 @@
+**Until Saturday: DeShaun Foster made his Big Ten debut, while drama continues in ACC**\
+`Welcome to Until Saturday, the five-star college football newsletter: Foster made his Big Ten debut while the ACC's drama continues.`\
+https://nytimes.com/athletic/5657030/2024/07/25/deshaun-foster-pat-mcafee-acc-media-days-until-saturday/
+
+**2025 Could Be a Great Time to Be President, Economically Speaking**\
+`Trends already underway make for a sunny outlook over the next few years. The question is who will get to take credit.`\
+https://nytimes.com/2024/07/25/business/economy/2025-economy-president.html
+
+**Prince Harry Says Struggle With U.K. Tabloids Deepened Family Rift**\
+`In a TV interview airing on Thursday, Harry said his efforts against British newspapers over illegal information gathering were a “central piece” of his estrangement from other royals.`\
+https://nytimes.com/2024/07/25/world/europe/uk-prince-harry-tabloids-royal-family.html
+
 **U.S. Economy Grew at 2.8% Rate in Latest Quarter**\
 `The report on gross domestic product offered new evidence of the economy’s resilience in the face of high interest rates.`\
 https://nytimes.com/2024/07/25/business/economy/us-gdp-economy-inflation.html
