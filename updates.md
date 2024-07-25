@@ -1,3 +1,15 @@
+**Colts plan to let QB Anthony Richardson run: 'Are you gonna limit Steph Curry from shooting 3s'?**\
+`Richardson: “My legs (have) always been one of my superpowers. (Taking) that away from me, I don’t think that’s a good thing."`\
+https://nytimes.com/athletic/5658943/2024/07/25/anthony-richardson-colts-run-steph-curry/
+
+**A Lot of Major Shifts Beneath the Surface in a New Trump-Harris Poll**\
+`The changes among groups cancel out for now, and Trump leads narrowly, but there’s a tie when all minor-party candidates are considered.`\
+https://nytimes.com/2024/07/25/upshot/poll-kamala-harris-trump.html
+
+**Harris Narrows Gap Against Trump, Times/Siena Poll Finds**\
+`In a survey taken after President Biden stepped aside, Donald Trump and Kamala Harris are locked in a tight race separated by a single percentage point among likely voters.`\
+https://nytimes.com/2024/07/25/us/politics/poll-kamala-harris-donald-trump.html
+
 **Toplines: July 2024 Times/Siena Poll of Registered Voters Nationwide**\
 `Results of a nationwide New York Times/Siena College poll conducted among 1,142 registered voters from July 22 to 24, 2024.`\
 https://nytimes.com/interactive/2024/07/25/us/elections/times-siena-poll-toplines.html
