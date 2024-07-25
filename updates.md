@@ -1,3 +1,7 @@
+**Durant, Curry address Embiid's comments on LeBron and Team USA's age**\
+`Joel Embiid had said Lebron James 'is not the Lebron of a couple years ago' last week`\
+https://nytimes.com/athletic/5657755/2024/07/25/curry-durant-embiid-usa-olympics/
+
 **The Pulse: *Another* Olympic controversy, already**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5657172/2024/07/25/olympic-soccer-argentina-morocco-the-pulse/

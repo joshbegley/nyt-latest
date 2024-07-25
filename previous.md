@@ -1,3 +1,7 @@
+**Durant, Curry address Embiid's comments on LeBron and Team USA's age**\
+`Joel Embiid had said Lebron James 'is not the Lebron of a couple years ago' last week`\
+https://nytimes.com/athletic/5657755/2024/07/25/curry-durant-embiid-usa-olympics/
+
 **The Pulse: *Another* Olympic controversy, already**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5657172/2024/07/25/olympic-soccer-argentina-morocco-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5657038/2024/07/25/vikings-training-camp-jordan-add
 **'Inside the NBA' memories: From 'SNL' spoofs to cookie storage, show left its mark**\
 `There may be more attempts to duplicate the show's success, but there's really no comparison.`\
 https://nytimes.com/athletic/5478150/2024/07/25/tnt-inside-the-nba-media-tv-rights/
-
-**Hollinger: My 2024 summer-league standouts, some of whom you may not know**\
-`Don't let anyone tell you summer league doesn't matter. In many cases, it can be a sign of things to come.`\
-https://nytimes.com/athletic/5654579/2024/07/25/nba-summer-league-rookies-reed-sheppard-tristan-da-silva-vegas/
 
