@@ -1,3 +1,7 @@
+**The Summer Olympics: How to Watch. What to Watch.**\
+`Gymnastics. Track. Swimming. Basketball. Break dancing.`\
+https://nytimes.com/2024/07/25/world/olympics/summer-olympics-how-to-watch.html
+
 **Kamala Harris’s Fund-Raising Machine Cranks Into High Gear**\
 `Given weeks instead of years to cultivate donors, the vice president’s allies are armed with a new logo and burning up the phones.`\
 https://nytimes.com/2024/07/25/us/politics/kamala-harris-donors-fund-raising.html
