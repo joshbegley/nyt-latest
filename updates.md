@@ -1,3 +1,7 @@
+**Prince Harry Says Struggle With U.K. Tabloids Deepened Family Rift**\
+`In a TV interview airing on Thursday, Harry said his dispute against some newspapers over illegal information gathering was a “central piece” of his estrangement from other royals.`\
+https://nytimes.com/2024/07/25/world/europe/uk-prince-harry-tabloids-royal-family.html
+
 **Rosenior appointed head coach at BlueCo-owned Strasbourg**\
 `Liam Rosenior has been appointed as the head coach of Strasbourg on a three-year deal.`\
 https://nytimes.com/athletic/5649314/2024/07/25/liam-rosenior-strasbourg-blueco/
