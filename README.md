@@ -1,3 +1,15 @@
+**China Is Closing the A.I. Gap with the United States**\
+`In recent weeks, Chinese tech companies have unveiled technologies that rival American systems — and they are already in the hands of consumers and software developers.`\
+https://nytimes.com/2024/07/25/technology/china-open-source-ai.html
+
+**Are Chipotle Burritos Getting Smaller? Not on Purpose, Its C.E.O. Says**\
+`“There was never a directive to provide less to our customers,” the chief executive said. Still, he said the company would review practices across all its stores.`\
+https://nytimes.com/2024/07/25/business/chipotle-portion-size-ceo.html
+
+**On Eve of Olympics, a Curious Mix of Security and Silence**\
+`Even if Paris weren’t scarred by terrorist attacks, protecting the opening ceremony, which will float down the Seine, offers a daunting challenge.`\
+https://nytimes.com/2024/07/25/world/olympics/olympics-paris-security-opening-ceremony.html
+
 **Countering Concerns About Kamala Harris**\
 `Readers react to Bret Stephens’s criticisms of Kamala Harris. Also: Gail Collins’s loss; barring felons from office; no taxes on tips?`\
 https://nytimes.com/2024/07/25/opinion/kamala-harris.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/25/opinion/kamala-harris-trump-pelosi.html
 **Ukraine Detains Suspect in Killing of Nationalist Politician**\
 `An 18-year-old suspect was arrested after an intense manhunt. The authorities are investigating evidence that suggests that the suspect planned the killing with others.`\
 https://nytimes.com/2024/07/25/world/europe/ukraine-iryna-farion-killing-arrest.html
-
-**What Rupert Murdoch Owns, and How He Built His Media Empire**\
-`Over seven decades, the Australian-born magnate assembled an array of news outlets, book publishers, and film and television properties into a global behemoth.`\
-https://nytimes.com/2024/07/25/business/rupert-murdoch-empire.html
-
-**Bob Booker, Whose J.F.K. Parody Was a Runaway Hit, Dies at 91**\
-`Most record companies didn’t think “The First Family,” which he and his writing partner created, was a good idea. It went on to become the fastest-selling album of the pre-Beatles era.`\
-https://nytimes.com/2024/07/25/arts/bob-booker-dead.html
-
-**The Bounce: Your 2024 Olympic basketball primer**\
-`Zach Harper catches you up on league-wide news.`\
-https://nytimes.com/athletic/5658040/2024/07/25/olympic-basketball-nba-media-rights-tnt-the-bounce/
 
