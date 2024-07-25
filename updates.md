@@ -1,3 +1,7 @@
+**Four Mets takeaways from their 5-homer rout of the Yankees**\
+`The Mets got two homers from Francisco Lindor and one each from Tyrone Taylor, Pete Alonso and Mark Vientos as they roughed up Gerrit Cole.`\
+https://nytimes.com/athletic/5657482/2024/07/25/mets-yankees-francisco-lindor/
+
 **Fantasy football draft strategy primer: Hero RB, bully TE, early QB, value-based drafting and more**\
 `When it comes to building out a fantasy football team, there's more than one way to skin a cat, and Theo Gremminger explains those options.`\
 https://nytimes.com/athletic/5657121/2024/07/25/fantasy-football-draft-strategy-options-zero-hero-rb/
