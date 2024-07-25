@@ -1,3 +1,27 @@
+**Oakland A's closer Mason Miller headed to IL**\
+`The trade market for one of baseball’s best relievers got more complicated Thursday when the Oakland Athletics placed Mason Miller, their All-Star closer, on the 15-day injured list with a broken left hand.`\
+https://nytimes.com/athletic/5659211/2024/07/25/mason-miller-oakland-athletics-trade-injured/
+
+**Wildfire Roars Through a Canadian Town Popular with Tourists**\
+`As much as half of Jasper, Alberta, which lies inside one of the country’s most-visited national parks, has been destroyed, officials said.`\
+https://nytimes.com/2024/07/25/world/canada/jasper-wildfire-canada-national-park.html
+
+**GM Omar Khan expects Cam Heyward to be a Steeler 'for years to come'**\
+`Heyward said he wants to play three more NFL seasons, but he's not yet sure whether that will be with the Steelers or elsewhere.`\
+https://nytimes.com/athletic/5659106/2024/07/25/cam-heyward-contract-steelers-omar-khan/
+
+**6 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/07/25/books/review/6-new-books-we-recommend-this-week.html
+
+**Breaking in New Sports at the Olympics**\
+`Breaking, sport climbing and skateboarding may seem untraditional, but they embody the true spirit of the games.`\
+https://nytimes.com/interactive/2024/07/25/magazine/olympics-breaking-sports-history.html
+
+**Have the Olympics Ever Been This Dangerous?**\
+`Teahupo'o has one of the deadliest surf breaks in the world. Athletes could face waves up to 50 feet.`\
+https://nytimes.com/interactive/2024/07/25/magazine/olympics-surfing-teahupoo-french-polynesia.html
+
 **Lions training camp: Jake Bates' leg on display, Sione Vaki improving and more**\
 `Plus, DJ Reader isn't ready to practice and an update on the safety competition.`\
 https://nytimes.com/athletic/5658877/2024/07/25/detroit-lions-training-camp-jake-bates-kicker-sione-vaki/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/07/25/world/europe/sylvain-saudan-dead.html
 **Prosecutors Say Immunity Ruling Has No Bearing on Trump’s Conviction**\
 `The Manhattan district attorney’s office argued that a recent Supreme Court ruling did not apply to the type of evidence it had deployed against the former president.`\
 https://nytimes.com/2024/07/25/nyregion/trump-conviction-immunity.html
-
-**Bears camp: Center battle set to heat up, defense wins the day vs. Caleb Williams**\
-`Coleman Shelton discusses the center competition, which goes up a level when pads come on Friday. Plus observations from practice.`\
-https://nytimes.com/athletic/5659007/2024/07/25/bears-camp-center-battle-caleb-williams/
-
-**Hollywood Actors to Go on Strike Against Video Game Companies**\
-`The SAG-AFTRA union wants higher pay for the use of voices and images and protection from losing jobs to artificial intelligence.`\
-https://nytimes.com/2024/07/25/business/hollywood-actors-strike-video-game-companies.html
-
-**Harris Rallies Teachers Union With Dire Warnings About Trump**\
-`“We want to ban assault weapons, and they want to ban books,” she told the crowd of 3,500 people at the convention of the American Federation of Teachers.`\
-https://nytimes.com/2024/07/25/us/politics/harris-teachers-unions.html
-
-**'I know it's a business': Panthers kicker Eddy Pineiro ready to show new staff what he's got**\
-`Despite missing just two field goal attempts the past two seasons, Eddy Pineiro finds himself in a kicking competition in Panthers camp.`\
-https://nytimes.com/athletic/5659083/2024/07/25/carolina-panthers-eddy-pineiro-kicker-contract/
-
-**Pair Your Vietnamese Iced Coffee With Pandan Cakes**\
-`A perfect Vietnamese coffee is reason enough to celebrate. But a few sweet treats can’t hurt.`\
-https://nytimes.com/2024/07/25/dining/vietnamese-iced-coffee-nyc.html
-
-**Giants training camp: Malik Nabers already looks like focal point of offense**\
-`The Giants have gotten the ball to Nabers in a variety of ways in the first two practices of camp.`\
-https://nytimes.com/athletic/5658947/2024/07/25/new-york-giants-malik-nabers-training-camp/
 

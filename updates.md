@@ -1,3 +1,11 @@
+**Pair Your Vietnamese Iced Coffee With Pandan Cakes**\
+`A perfect Vietnamese coffee is reason enough to celebrate. But a few sweet treats can’t hurt.`\
+https://nytimes.com/2024/07/25/dining/vietnamese-iced-coffee-nyc.html
+
+**Giants training camp: Malik Nabers already looks like focal point of offense**\
+`The Giants have gotten the ball to Nabers in a variety of ways in the first two practices of camp.`\
+https://nytimes.com/athletic/5658947/2024/07/25/new-york-giants-malik-nabers-training-camp/
+
 **Breaking in New Sports at the Olympics**\
 `Breaking, sport climbing and skateboarding may seem untraditional, but they embody the true spirit of the games.`\
 https://nytimes.com/interactive/2024/07/25/magazine/olympics-breaking-sports-history.html
