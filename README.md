@@ -1,3 +1,11 @@
+**Most Valuable Player: A Star Raises the Profile of Women’s Soccer in Africa**\
+`In seven years, Racheal Kundananji went from playing her first organized game to signing a multimillion-dollar contract. Her rise could have lasting effects.`\
+https://nytimes.com/2024/07/24/world/olympics/zambia-uswnt-rachael-kundananji.html
+
+**Finishes in Grand Style**\
+`Damon Gulczynski’s crossword packs a wallop.`\
+https://nytimes.com/2024/07/24/crosswords/daily-puzzle-2024-07-25.html
+
 **Biden Says It’s Time to ‘Pass the Torch’ to a New Generation**\
 `Speaking from the Resolute Desk in the Oval Office, President Biden defended his record and celebrated the vice president, Kamala Harris, saying it’s time for new, younger voices to lead the country.`\
 https://nytimes.com/video/us/elections/100000009591459/biden-2024-election-pass-torch.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5657127/2024/07/24/julian-love-seahawks-extension/
 **Canada's Olympic soccer spying scandal explained: Who's involved, what's next and more**\
 `The New Zealand Olympic Committee issued a complaint about a drone being flown over its women’s soccer team’s practice. Here’s what we know.`\
 https://nytimes.com/athletic/5657110/2024/07/24/canada-soccer-olympic-spying-scandal-explained/
-
-**New coach jitters? DeShaun Foster's freeze-up isn't distracting him from what's ahead**\
-`“I’ll probably get on Twitter and see some jokes," the first-year UCLA coach said about an awkward interaction on stage in Indianapolis. `\
-https://nytimes.com/athletic/5657120/2024/07/24/deshaun-foster-big-ten-media-days-ucla-football/
-
-**Seahawks training camp: Geno Smith's sharp start and more observations from Day 1**\
-`Smith was really feeling it on Day 1 of camp. Meanwhile, Abraham Lucas remains without a timetable for a return from his knee injury.`\
-https://nytimes.com/athletic/5657042/2024/07/24/seahawks-training-camp-notes-observations/
 
