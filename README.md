@@ -1,3 +1,7 @@
+**Stephen Colbert Wants a Kamala Harris-Glen Powell Ticket**\
+`“I guarantee he will attract suburban women, and I already have his slogan: ‘Yes, We Glen!’” Colbert said.`\
+https://nytimes.com/2024/07/25/arts/television/stephen-colbert-glen-powell-kamala-harris.html
+
 **Fuel Tanker Sinks in Philippine Waters, Spilling Oil**\
 `The coast guard rescued 16 of the vessel’s 17 crew members, but Typhoon Gaemi’s remnants were complicating efforts to contain the oil spill in Manila Bay.`\
 https://nytimes.com/2024/07/25/world/asia/philippines-tanker-capsizes-oil-spill.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5643233/2024/07/25/andy-irving-has-taken-the-road-l
 **Why are Man City willing to sell Ederson - and why does he want to go?**\
 `City could sell Ederson this summer — and there is a reason the goalkeeper might want to leave the Etihad Stadium`\
 https://nytimes.com/athletic/5655283/2024/07/25/ederson-manchester-city-future-transfer/
-
-**Toby Collyer has impressed in Man Utd's pre-season - can he follow in Mainoo's footsteps?**\
-`The 20-year-old midfielder has been impressive this summer and is likely to feature in the first-team picture for a while longer`\
-https://nytimes.com/athletic/5641512/2024/07/25/toby-collyer-pre-season-performances/
 
