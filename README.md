@@ -1,3 +1,7 @@
+**Padres offense makes statement in 12-3 comeback win as trade deadline approaches**\
+`The Padres immediately erased a three-run deficit on their way to a comeback win, the kind of response that doubled as a statement.`\
+https://nytimes.com/athletic/5657457/2024/07/24/padres-nationals-comeback-statement-win/
+
 **Blue Jays' Kevin Kiermaier plans to retire after season**\
 `Kiermaier cited concerns about how he feels physically as well as wanting to spend more time with his family.`\
 https://nytimes.com/athletic/5657414/2024/07/24/kevin-kiermaier-retirement-mlb-blue-jays/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5657246/2024/07/24/dodgers-nick-ahmed-miguel-rojas/
 **Full Transcript of Biden’s Speech on Ending His Run for Re-election**\
 `“The best way forward is to pass the torch to a new generation,” the president said in a rare Oval Office address. And he told voters, “History is in your hands.”`\
 https://nytimes.com/2024/07/24/us/politics/biden-speech-transcript.html
-
-**In Alex Cora, Red Sox retain the one constant through a period of whiplash**\
-`It’s been hard to know where ownership stands on anything the last several years, except for the manager. This has long been Cora’s team.`\
-https://nytimes.com/athletic/5657229/2024/07/24/red-sox-alex-cora-three-year-contract-analysis/
 
