@@ -1,3 +1,7 @@
+**Giants training camp: Malik Nabers already looks like focal point of offense**\
+`The Giants have gotten the ball to Nabers in a variety of ways in the first two practices of camp.`\
+https://nytimes.com/athletic/5658947/2024/07/25/new-york-giants-malik-nabers-training-camp/
+
 **Padres' Dylan Cease throws second no-hitter in team history**\
 `Cease finished with nine strikeouts, a career-high three pitches of at least 100.0 mph and 114 total pitches, a new personal record.`\
 https://nytimes.com/athletic/5659072/2024/07/25/dylan-cease-padres-no-hitter/
