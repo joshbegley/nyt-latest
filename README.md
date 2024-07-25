@@ -10,6 +10,10 @@ https://nytimes.com/live/2024/07/25/us/harris-trump-biden-election/harris-keeps-
 `Thoughts on a season at a crossroads for Zegras where the 23-year-old’s future could go in many ways.`\
 https://nytimes.com/athletic/5656481/2024/07/25/ducks-trevor-zegras-pat-verbeek-captain/
 
+**A candid Scott Perunovich on his future with Blues: 'You only have so many chances'**\
+`The 25-year-old defenseman, who signed a one-year, $1.15 million contract extension this summer, still has a lot to prove.`\
+https://nytimes.com/athletic/5634031/2024/07/25/blues-scott-perunovich-future/
+
 **The unusual crash course Ohio State gave Ross Bjork before he even started as AD**\
 `Bjork replaced Gene Smith as Ohio State's athletic director on July 1, but he had already hired four new coaches before actually starting.`\
 https://nytimes.com/athletic/5657940/2024/07/25/ohio-state-ross-bjork-athletic-director/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5653423/2024/07/25/gymnastics-paris-olympics-scorin
 **Bowden: 7 deadline trades I'd like to see, starting with a big Yankees-Rays swap**\
 `As rumors swirl across the industry and we wait for the first big deals to go down, here are seven trade proposals to whet your appetite. `\
 https://nytimes.com/athletic/5657415/2024/07/25/mlb-deadline-trade-proposals/
-
-**West Ham close on deal for Mazraoui from Bayern**\
-`West Ham United are closing in on a deal to sign Bayern Munich defender Noussair Mazraoui.`\
-https://nytimes.com/athletic/5657806/2024/07/25/west-ham-mazraoui-transfer-bayern-munich/
 
