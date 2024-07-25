@@ -1,3 +1,11 @@
+**How the (even bigger) Big Ten's TV deal will work in Year 2**\
+`Last season, five of the eight CFB games with at least 10 million viewers and 10 of the 15 highest-rated games included current B1G teams.`\
+https://nytimes.com/athletic/5658646/2024/07/25/big-ten-football-tv-partners-schedule/
+
+**Corey LaJoie not returning to Spire Motorsports for 2025 NASCAR Cup Series season**\
+`LaJoie signed a multiyear contract extension with Spire last summer.`\
+https://nytimes.com/athletic/5658446/2024/07/25/corey-lajoie-nascar-cup-series-season-not-returning-2025/
+
 **Trump Workshops Jabs at Harris, but Nothing Plays Like the Classics**\
 `Donald J. Trump began turning Vice President Kamala Harris, his new opponent, into a nemesis. But his crowd still wanted to hear the hits.`\
 https://nytimes.com/2024/07/25/us/politics/trump-kamala-harris-insults-rally-speech.html

@@ -1,3 +1,11 @@
+**How the (even bigger) Big Ten's TV deal will work in Year 2**\
+`Last season, five of the eight CFB games with at least 10 million viewers and 10 of the 15 highest-rated games included current B1G teams.`\
+https://nytimes.com/athletic/5658646/2024/07/25/big-ten-football-tv-partners-schedule/
+
+**Corey LaJoie not returning to Spire Motorsports for 2025 NASCAR Cup Series season**\
+`LaJoie signed a multiyear contract extension with Spire last summer.`\
+https://nytimes.com/athletic/5658446/2024/07/25/corey-lajoie-nascar-cup-series-season-not-returning-2025/
+
 **Trump Workshops Jabs at Harris, but Nothing Plays Like the Classics**\
 `Donald J. Trump began turning Vice President Kamala Harris, his new opponent, into a nemesis. But his crowd still wanted to hear the hits.`\
 https://nytimes.com/2024/07/25/us/politics/trump-kamala-harris-insults-rally-speech.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5658120/2024/07/25/tottenham-yang-min-hyuk-transfer
 **Is there an officiating problem? Do LTIR rules need changes? Vote now in our NHL fan poll**\
 `We’re inviting you to give us your takes in a 2024 NHL state-of-the-league survey.`\
 https://nytimes.com/athletic/5657595/2024/07/25/nhl-fan-survey-athletic-refs-ltir/
-
-**W.N.B.A.’s Popularity Booms, but Money for Players Hasn’t Kept Pace**\
-`Fans and brands have embraced the league, but rules have kept its growing financial success from fully trickling down to the players.`\
-https://nytimes.com/2024/07/25/business/wnba-players-salaries-money.html
-
-**Max Verstappen denies reports of Red Bull sim racing ban, will not change radio approach**\
-`Lewis Hamilton also weighed in on the Red Bull driver's frustrations, saying that "you have to act like a world champion." `\
-https://nytimes.com/athletic/5658599/2024/07/25/max-verstappen-f1-sim-racing-red-bull-radio/
 
