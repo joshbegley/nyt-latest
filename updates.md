@@ -1,3 +1,11 @@
+**Most Valuable Player: A Star Raises the Profile of Women’s Soccer in Africa**\
+`In seven years, Racheal Kundananji went from playing her first organized game to signing a multimillion-dollar contract. Her rise could have lasting effects.`\
+https://nytimes.com/2024/07/24/world/olympics/zambia-uswnt-rachael-kundananji.html
+
+**Finishes in Grand Style**\
+`Damon Gulczynski’s crossword packs a wallop.`\
+https://nytimes.com/2024/07/24/crosswords/daily-puzzle-2024-07-25.html
+
 **Biden Says It’s Time to ‘Pass the Torch’ to a New Generation**\
 `Speaking from the Resolute Desk in the Oval Office, President Biden defended his record and celebrated the vice president, Kamala Harris, saying it’s time for new, younger voices to lead the country.`\
 https://nytimes.com/video/us/elections/100000009591459/biden-2024-election-pass-torch.html
