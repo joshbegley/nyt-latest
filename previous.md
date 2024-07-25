@@ -1,3 +1,7 @@
+**Eagles training camp: Jordan Mailata, offensive line take accountability, and more**\
+`Plus, the field for the spot opposite Darius Slay at cornerback is crowded.`\
+https://nytimes.com/athletic/5658843/2024/07/25/philadelphia-eagles-training-camp-jordan-mailata-offensive-line-take-accountability-and-more/
+
 **Laïcité Comes for French Olympians**\
 `The country’s staunch approach to secularism has for decades caused tension with the French Muslim community.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/hijab-france-olympics
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/25/technology/openai-ai-search-engine.html
 **Why Did Trump Promote a Book by One of His Accusers?**\
 `Could he really not have noticed this?`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/trump-sexual-misconduct
-
-**Friday Briefing: The Olympics Begin**\
-`Plus, a new poll shows Kamala Harris closing in on Donald Trump.`\
-https://nytimes.com/2024/07/25/briefing/olympics-paris-trump-harris-poll.html
 
