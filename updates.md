@@ -1,3 +1,7 @@
+**Kids? A Growing Number of Americans Say, ‘No Thanks.’**\
+`A new study breaks down the reasons more U.S. adults say they are unlikely to have children.`\
+https://nytimes.com/2024/07/25/well/mind/child-free-adults-pew-study.html
+
 **Just One Question for Trump and Vance: What is Wrong With You People?**\
 `Say what you will about Biden, but he is not a bully.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/trump-vance-biden-speech

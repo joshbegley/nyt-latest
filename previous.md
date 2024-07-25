@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5653691/2024/07/25/college-football-model-projectio
 https://nytimes.com/athletic/5656737/2024/07/25/brandon-aiyuk-trent-williams-49ers-negotiating/
 
 **Kids? A Growing Number of Americans Say, ‘No Thanks.’**\
-`A new study breaks down the reasons more U.S. adults don’t plan to have children.`\
+`A new study breaks down the reasons more U.S. adults say they are unlikely to have children.`\
 https://nytimes.com/2024/07/25/well/mind/child-free-adults-pew-study.html
 
 **Private-School Teacher Charged With Sharing Sexual Images of Students**\
