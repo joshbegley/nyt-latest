@@ -1,5 +1,5 @@
 **‘Playground’ Is Throwback Reality TV, in More Ways Than One**\
-`The new Hulu competition series, set at a prestigious Los Angeles dance studio, harks back to the vibes of an earlier age.`\
+`The new Hulu series, set at a prestigious Los Angeles dance studio, harks back to the vibes of an earlier age.`\
 https://nytimes.com/2024/07/25/arts/television/playground-hulu.html
 
 **They Got a Mysterious $24,000 Water Bill. Then the Shut-Off Notice Came.**\
