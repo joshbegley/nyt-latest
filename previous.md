@@ -1,3 +1,27 @@
+**Justice Dept. Settles Lawsuit With Former F.B.I. Officials Targeted by Trump**\
+`Peter Strzok, a former F.B.I. agent, and Lisa Page, a former lawyer for the bureau, accused the Trump administration of violating their privacy after it provided explosive texts to the news media.`\
+https://nytimes.com/2024/07/26/us/politics/fbi-texts-strzok-page-trump.html
+
+**Bears camp: Caleb Williams steps into middle of first scuffle, fires TD in hurry-up**\
+`The Bears had their first padded practice, and naturally their first dust-up. Who went to break it up? No. 1 pick Caleb Williams. `\
+https://nytimes.com/athletic/5661239/2024/07/26/chicago-bears-caleb-williams-training-camp-scuffle/
+
+**Orioles to add right-hander Zach Eflin in deal with Rays: Source**\
+`The Orioles have added to their rotation in an inter-division deal that send three prospects to aggressive seller Tampa Bay.`\
+https://nytimes.com/athletic/5661439/2024/07/26/orioles-rays-zach-eflin-trade/
+
+**The Best of Late Night This Week**\
+`The head-spinning pace of U.S. political news continues to give the hosts plenty to talk about.`\
+https://nytimes.com/interactive/2024/07/26/arts/television/best-of-late-night-kamala-running.html
+
+**Amid Deadly Listeria Outbreak, Boar’s Head Recalls Some Deli Meats**\
+`The U.S. Department of Agriculture is investigating whether Boar’s Head meat sliced at deli counters has played a role in an outbreak of listeriosis that has caused two deaths.`\
+https://nytimes.com/2024/07/26/us/boars-head-deli-meat-recall-listeria.html
+
+**A walk along the Seine for the Olympic opening ceremony, where the joy was back**\
+`On Friday in Paris, the Olympics brought spectators and athletes together again in a way the spectacle sorely needed. `\
+https://nytimes.com/athletic/5661136/2024/07/26/2024-olympics-opening-ceremony-seine-paris-fans/
+
 **Tigers' Riley Greene hits the IL: 'One of my goals was not to get hurt, and I did'**\
 `This is the fourth time Riley Greene has been injured in the past three seasons. `\
 https://nytimes.com/athletic/5661383/2024/07/26/tigers-riley-greene-injury-2/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/07/26/movies/celebrities-plan-metro-theater-movie-upper
 **W.H.O. plans to send one million polio vaccines to Gaza.**\
 `By Anjana Sankar`\
 https://nytimes.com/live/2024/07/26/world/israel-gaza-war-hamas-netanyahu/who-plans-to-send-one-million-polio-vaccines-to-gaza
-
-**Giants camp: Brian Daboll lets rookie WR Malik Nabers call his own number**\
-`“It shows how much trust they have in me,” Nabers said of calling his own play. “Wanting to give me the ball ... and let me be me.”`\
-https://nytimes.com/athletic/5661080/2024/07/26/giants-training-camp-malik-nabers-brian-daboll/
-
-**Man City's Couto in advanced talks to join Dortmund**\
-`Borussia Dortmund are in advanced talks to sign defender Yan Couto from Manchester City with a deal expected to be concluded in the coming days.`\
-https://nytimes.com/athletic/5660815/2024/07/26/yan-couto-dortmund-man-city-transfer/
-
-**TNT Sports suing NBA after league rejected network's media rights offer**\
-`The NBA announced its 11-year, $77 billion agreements with ESPN, NBC and Amazon Prime Video earlier this week.`\
-https://nytimes.com/athletic/5661247/2024/07/26/tnt-sports-nba-lawsuit-media-rights/
-
-**Vance Calls ‘Cat Ladies’ Remark ‘Sarcasm’ but Amplifies Birthrate Argument**\
-`Donald J. Trump’s running mate said in an interview with Megyn Kelly that Democrats believed they could “replace American children with immigrants.”`\
-https://nytimes.com/2024/07/26/us/politics/vance-megyn-kelly-harris-birthrate.html
-
-**The Obamas Called Kamala Harris. Cameras Rolled. Hokeyness Ensued.**\
-`Calling to offer their endorsement, the former president and first lady sounded like parents in a Lifetime movie talking to their child at summer camp.`\
-https://nytimes.com/2024/07/26/us/politics/barack-michelle-obama-harris-video.html
-
-**Georgson joins Ten Hag’s Manchester United coaching staff**\
-`Manchester United have appointed Lillestrom head coach Andreas Georgson as a new first-team coach.`\
-https://nytimes.com/athletic/5661297/2024/07/26/andreas-georgson-manchester-united-coach/
 
