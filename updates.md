@@ -1,3 +1,23 @@
+**How the U.S. Captured One of Mexico’s Biggest Drug Lords**\
+`The improbable arrest of Ismael Zambada García, who for decades had evaded the authorities, at a small airport outside El Paso appears to be a tale of subterfuge and betrayal.`\
+https://nytimes.com/2024/07/26/us/politics/el-mayo-arrest.html
+
+**When the Game Does Not End at the Final Whistle**\
+`Most soccer fans long ago internalized the idea that truth is a slippery concept.`\
+https://nytimes.com/2024/07/26/world/europe/olympics-morocco-argentina-score.html
+
+**Arkansas lands 5-star recruit Darius Acuff**\
+`The 6-foot-3, 180-pound prospect is the No. 1 point guard and the No. 2 player in Florida, per the 247Sports Composite rankings.`\
+https://nytimes.com/athletic/5658948/2024/07/26/darius-acuff-arkansas-basketball/
+
+**Bears camp: Caleb Williams steps into middle of first scuffle, fires TD in hurry-up**\
+`The Bears conducted their first padded practice and, naturally, their first dust-up. Who went to break it up? No. 1 pick Caleb Williams. `\
+https://nytimes.com/athletic/5661239/2024/07/26/chicago-bears-caleb-williams-training-camp-scuffle/
+
+**Orioles to add right-hander Zach Eflin in deal with Rays: Source**\
+`The Orioles have added to their rotation in an intra-division deal that sends three prospects to aggressive seller Tampa Bay.`\
+https://nytimes.com/athletic/5661439/2024/07/26/orioles-rays-zach-eflin-trade/
+
 **Justice Dept. Settles Lawsuit With Former F.B.I. Officials Targeted by Trump**\
 `Peter Strzok, a former F.B.I. agent, and Lisa Page, a former lawyer for the bureau, accused the Trump administration of violating their privacy after it provided explosive texts to the news media.`\
 https://nytimes.com/2024/07/26/us/politics/fbi-texts-strzok-page-trump.html
