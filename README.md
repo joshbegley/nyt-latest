@@ -1,40 +1,40 @@
-**Maguire: End-of-season injury toughest moment of my career**\
-`Harry Maguire has described missing out on Manchester United’s FA Cup victory and England’s run to the European Championship final as “the toughest moment of my career”.`\
-https://nytimes.com/athletic/5660120/2024/07/26/harry-maguire-man-utd-injury/
+**America Has Questions for Kamala Harris and Donald Trump**\
+`Voters need a chance to see how the two candidates handle close public scrutiny in debates, interviews and informal events.`\
+https://nytimes.com/2024/07/26/opinion/kamala-harris-donald-trump-debate.html
 
-**‘Deadpool & Wolverine’ | Anatomy of a Scene**\
-`The director Shawn Levy narrates a sequence from his film starring Ryan Reynolds and Hugh Jackman.`\
-https://nytimes.com/video/movies/100000009589114/deadpool-and-wolverine-scene.html
+**Watch Buyers Are on the Road Again**\
+`Swiss brands from Omega to Bulgari are expanding their travel retail offerings to match the resurgence in tourism.`\
+https://nytimes.com/2024/07/26/fashion/watches-travel-retail.html
 
-**Arson attacks disrupt trains in France on day of Olympic opening ceremony**\
-`An apparent arson attack on France's high-speed rail network early Friday disrupted travel on the morning of the Olympic opening ceremony.`\
-https://nytimes.com/athletic/5660168/2024/07/26/arson-attacks-disrupt-trains-in-france-on-day-of-olympic-opening-ceremony/
+**The One Thing Watermelon Experts Do to Pick Sweet Ones**\
+`It’s not a myth: You really do need to slap them and listen carefully.`\
+https://nytimes.com/2024/07/26/dining/how-to-pick-a-watermelon.html
 
-**'Slot's Liverpool tactics will suit me more than Klopp's. I can "do me" more'**\
-`The midfielder is desperate to become a part of Arne Slot's Liverpool rebuild - he says the Dutchman's style will get the best out of him`\
-https://nytimes.com/athletic/5659575/2024/07/26/curtis-jones-liverpool-arne-slot-jurgen-klopp/
+**You Can’t Escape This Color**\
+`“This is not millennial pink. The energy behind it is alive.”`\
+https://nytimes.com/2024/07/26/style/what-is-brat-green.html
 
-**Bordeaux lose professional status as club files for bankruptcy**\
-`Bordeaux have lost their professional status after being administratively relegated to the third tier of French football.`\
-https://nytimes.com/athletic/5658621/2024/07/26/bordeaux-relegation-french-football/
+**K Street Pivots for a Possible Harris Administration**\
+`Lobbyists and lawyers are raising money for Vice President Kamala Harris, the likely Democratic presidential nominee, and assessing what her term might look like.`\
+https://nytimes.com/2024/07/26/us/politics/kamala-harris-lobbyists.html
 
-**In Love and Hoping for Asylum, Migrants Line Up for City Hall Weddings**\
-`The steady parade of couples seeking civil marriage ceremonies in New York City has expanded in recent months to include newly arrived migrants.`\
-https://nytimes.com/2024/07/26/nyregion/migrants-wedding-marriage-asylum.html
+**The Stages of Vance’s Political Conversion**\
+`A review of JD Vance’s writings and interviews reveals the gradual, complicated process behind his conversion from anti-Trump author to pro-Trump senator.`\
+https://nytimes.com/2024/07/26/us/politics/vance-political-conversion.html
 
-**Wordle Review No. 1,135, Saturday, July 27, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/26/crosswords/wordle-review-1135.html
+**I Created ‘Veep.’ The Real-Life Version Isn’t So Funny.**\
+`Politics has become so much like entertainment that the first thing we do to make sense of the moment is to test it against a sitcom.`\
+https://nytimes.com/2024/07/26/opinion/veep-selina-meyer-kamala-harris.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/07/26/crosswords/spelling-bee-forum.html
+**Unlikely Heroes and Heroines in These Gems From Mexico Cinema’s Golden Age**\
+`A Lincoln Center retrospective puts the spotlight on midcentury movies aimed at the masses that continue to influence filmmakers.`\
+https://nytimes.com/2024/07/26/movies/mexico-cantinflas-maria-felix.html
 
-**Here are the latest updates on the train line attacks.**\
-`The national railway company said three lines were disrupted by the attacks, causing massive delays.`\
-https://nytimes.com/live/2024/world/olympics-opening-ceremony/arson-france-trains-olympics
+**A Test for Harris: How to Talk About the Green New Deal**\
+`In the Senate, Kamala Harris backed an expansive climate plan. Young activists want her to embrace it again, but so do Republicans.`\
+https://nytimes.com/2024/07/26/climate/kamala-harris-green-new-deal.html
 
-**Whose Politics Are More Turbulent, America’s or Australia’s?**\
-`Prime Minister Anthony Albanese, citing the revolving door of prime ministers, said his own country was in no position to criticize the United States.`\
-https://nytimes.com/2024/07/26/world/australia/turbulent-politics-australia-america.html
+**Watch a Reynolds and Jackman Diner Chat in ‘Deadpool & Wolverine’**\
+`The director Shawn Levy narrates a scene from the latest sequel in the franchise.`\
+https://nytimes.com/2024/07/26/movies/deadpool-and-wolverine-clip.html
 
