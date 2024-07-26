@@ -18,7 +18,7 @@ https://nytimes.com/video/world/middleeast/100000009590334/breaking-down-netanya
 `The Olympics are opening amid outright antagonism between international sports authorities and the United States over American investigations into the handling of doping allegations abroad.`\
 https://nytimes.com/2024/07/25/us/politics/olympics-us-antidoping-wada.html
 
-**Two Top Mexican Cartel Leaders Surrender to U.S. Authorities**\
+**Two Top Mexican Cartel Leaders Arrested by U.S. Authorities**\
 `The two men, Ismael Zambada García and Joaquín Guzmán López, run the Sinaloa Cartel, one of the most dominant criminal groups in Mexico.`\
 https://nytimes.com/2024/07/25/world/americas/mexico-cartel-ismael-zambada-garcia-joaquin-guzman-lopez.html
 
