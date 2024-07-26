@@ -1,3 +1,7 @@
+**Steelers training camp Day 2: Seven Shots returns, Russell Wilson does not**\
+`While Wilson recovers from "calf tightness," Justin Fields got another chance with the first-string offense. He didn't disappoint.`\
+https://nytimes.com/athletic/5661028/2024/07/26/steelers-training-camp-russell-wilson/
+
 **Lamar Jackson again misses practice, continues to be evaluated by Ravens doctors**\
 `Jackson has participated in just one of Baltimore's five training camp practices this week. `\
 https://nytimes.com/athletic/5661590/2024/07/26/ravens-lamar-jackson-illness-training-camp/
