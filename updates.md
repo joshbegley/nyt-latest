@@ -1,3 +1,11 @@
+**Jaylen Clark's gratitude shines through in his first action since a devastating injury**\
+`Clark's long wait to get back on the court is over. An Achilles injury is no longer holding him back.`\
+https://nytimes.com/athletic/5644755/2024/07/26/jaylen-clark-timberwolves-injury-summer-league/
+
+**Mets shouldn't be buyers. They should be aggressive buyers at the deadline**\
+`The goal is to pounce on legitimate opportunities to win divisions, pennants and championships. The Mets are there.`\
+https://nytimes.com/athletic/5659793/2024/07/26/mets-mlb-trade-deadline-buyers/
+
 **Submit your Ohio State football questions for Cameron Teague Robinson's mailbag**\
 `What's on your mind about the Buckeyes before preseason practices begin?`\
 https://nytimes.com/athletic/5658571/2024/07/26/ohio-state-football-mailbag-questions-6/
