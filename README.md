@@ -1,3 +1,15 @@
+**104 Shows. $260 Million. After 10 Years, Billy Joel Closes a Chapter.**\
+`The singer and songwriter, 75, wrapped his decade-long residency at Madison Square Garden on Thursday night. Up next? A new era in his live career.`\
+https://nytimes.com/2024/07/26/arts/music/billy-joel-msg-residency-final-show.html
+
+**Summer Reading Contest, Week 8: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by Aug. 2 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 14.`\
+https://nytimes.com/2024/07/26/learning/summer-reading-contest-week-8-what-got-your-attention-in-the-times-this-week.html
+
+**Chase to Bar Customers From Using Credit Cards for ‘Pay Later’ Loans**\
+`Financial regulators and consumer advocates frown upon using credit cards to pay off installment loans because of the risk that consumers will dig themselves further into debt.`\
+https://nytimes.com/2024/07/26/your-money/chase-pay-later-loans-credit-cards.html
+
 **Lemina named new Wolves captain**\
 `Mario Lemina has been named as Wolves’ new captain following Max Kilman’s departure for West Ham United.`\
 https://nytimes.com/athletic/5660506/2024/07/26/mario-lemina-wolves-captain-new/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5660212/2024/07/26/athletic-newsletter-premier-leag
 **Here’s How The New York Times Is Bringing You the Olympics**\
 `Our reporters, photographers, editors and graphics team are in Paris to tell you the stories of triumph, disappointment and much more.`\
 https://nytimes.com/2024/07/26/insider/olympics-paris-coverage.html
-
-**Behind the Democrats’ Fight Over Lina Khan’s Future**\
-`A debate over whether the F.T.C. chair should stay reflects broader anxiety over how Kamala Harris would regulate business.`\
-https://nytimes.com/2024/07/26/business/dealbook/behind-the-democrats-fight-over-lina-khans-future.html
-
-**Yang, Gray and Bergvall signings point to a clear plan - Spurs are investing in the future**\
-`Spurs have signed some of the best teenage talent in the world in recent months — can Postecoglou help them reach their potential?`\
-https://nytimes.com/athletic/5658689/2024/07/26/tottenham-transfers-yang-gray-bergvall/
-
-**Arson Attacks on French Rail Leave People Stranded**\
-`Hundreds were stuck at train stations in Paris and London as operators canceled and delayed trains on Friday after the attacks.`\
-https://nytimes.com/2024/07/26/world/olympics/paris-london-train-station.html
 
