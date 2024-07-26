@@ -1,3 +1,7 @@
+**Why LeBron, Gauff are U.S. Olympic flag bearers**\
+`Gauff, 20, is the youngest flag bearer in U.S. Olympic history, overtaking Cindy Nelson (1976 Winter Olympics, Innsbruck, Austria).`\
+https://nytimes.com/athletic/5660834/2024/07/26/lebron-coco-gauff-olympic-flag-bearers-faq/
+
 **Book Club: Let’s Talk About ‘The Talented Mr. Ripley’**\
 `Patricia Highsmith’s classic thriller mixes glamour, betrayal, self-invention and murder. What’s not to love?`\
 https://nytimes.com/2024/07/26/books/review/podcast-talent-mr-ripley-patricia-highsmith.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/26/movies/international-movies-streaming.html
 **Roland Dumas Dies at 101; French Foreign Minister Tainted by Scandal**\
 `A lawyer and confidant of François Mitterrand, he was in the forefront of French politics for decades, only to be undone by his taste for the high life.`\
 https://nytimes.com/2024/07/26/world/europe/roland-dumas-dead.html
-
-**Spectators are mostly undeterred by rainy conditions in Paris.**\
-`By Emily Schmall and Andrew Keh`\
-https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/spectators-are-mostly-undeterred-by-rainy-conditions-in-paris
 

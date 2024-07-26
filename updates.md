@@ -1,3 +1,7 @@
+**Why LeBron, Gauff are U.S. Olympic flag bearers**\
+`Gauff, 20, is the youngest flag bearer in U.S. Olympic history, overtaking Cindy Nelson (1976 Winter Olympics, Innsbruck, Austria).`\
+https://nytimes.com/athletic/5660834/2024/07/26/lebron-coco-gauff-olympic-flag-bearers-faq/
+
 **Book Club: Let’s Talk About ‘The Talented Mr. Ripley’**\
 `Patricia Highsmith’s classic thriller mixes glamour, betrayal, self-invention and murder. What’s not to love?`\
 https://nytimes.com/2024/07/26/books/review/podcast-talent-mr-ripley-patricia-highsmith.html
