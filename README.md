@@ -1,3 +1,7 @@
+**Justice Dept. Settles Lawsuit With Former F.B.I. Officials Targeted by Trump**\
+`Peter Strzok, a former F.B.I. agent, and Lisa Page, a former lawyer for the bureau, accused the Trump administration of violating their privacy after it provided explosive texts to the news media.`\
+https://nytimes.com/2024/07/26/us/politics/fbi-texts-strzok-page-trump.html
+
 **Bears camp: Caleb Williams steps into middle of first scuffle, fires TD in hurry-up**\
 `The Bears had their first padded practice, and naturally their first dust-up. Who went to break it up? No. 1 pick Caleb Williams. `\
 https://nytimes.com/athletic/5661239/2024/07/26/chicago-bears-caleb-williams-training-camp-scuffle/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/26/movies/celebrities-plan-metro-theater-movie-upper
 **W.H.O. plans to send one million polio vaccines to Gaza.**\
 `By Anjana Sankar`\
 https://nytimes.com/live/2024/07/26/world/israel-gaza-war-hamas-netanyahu/who-plans-to-send-one-million-polio-vaccines-to-gaza
-
-**Giants camp: Brian Daboll lets rookie WR Malik Nabers call his own number**\
-`“It shows how much trust they have in me,” Nabers said of calling his own play. “Wanting to give me the ball ... and let me be me.”`\
-https://nytimes.com/athletic/5661080/2024/07/26/giants-training-camp-malik-nabers-brian-daboll/
 
