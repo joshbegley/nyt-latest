@@ -1,3 +1,15 @@
+**Fantasy baseball waiver wire: Drew Thorpe, Eugenio Suárez and more; plus, two-start pitchers and stashes adds**\
+`John Laghezza sifts through the advanced analytics to uncover waiver wire gems, like the suddenly surging Eugenio Suárez.`\
+https://nytimes.com/athletic/5656472/2024/07/26/fantasy-baseball-waiver-wire-drew-thorpe-eugenio-suarez-adds/
+
+**'I'm back at Everton to make a bigger impact - I've worked all summer to do that'**\
+`Jack Harrison talks openly about Everton improvements, his Leeds exit after playing through pain barrier, and hopes for the future`\
+https://nytimes.com/athletic/5657997/2024/07/26/jack-harrison-everton-leeds-interview/
+
+**The transfer decisions Wolves need to make: Kilman replacement, Podence plan, Neto uncertainty**\
+`The questions Gary O'Neil and the Wolves hierarchy will need to answer before the end of the summer window on August 30`\
+https://nytimes.com/athletic/5647064/2024/07/26/the-transfer-decisions-wolves-need-to-make-kilman-replacement-podence-plan-neto-uncertainty/
+
 **Madueke faces a battle to prove himself once again as he tries to impress a fourth head coach**\
 `The 22-year-old seemed to have established himself under Mauricio Pochettino but now he has to do it all again under Enzo Maresca`\
 https://nytimes.com/athletic/5659336/2024/07/26/noni-madueke-chelsea-maresca/
