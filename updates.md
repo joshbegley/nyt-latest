@@ -1,3 +1,7 @@
+**The USWNT has arrived at the 2024 Olympics and so has Trinity Rodman and her 'Trin Spin'**\
+`Emma Hayes' work with the USWNT is only just beginning but there are signs of improvement and togetherness already`\
+https://nytimes.com/athletic/5660287/2024/07/26/uswnt-trin-spin-olympics-zambia/
+
 **What We Know About the Attacks on France’s Rail Network**\
 `Coordinated arson attacks on France’s national high-speed rail network have disrupted travel ahead of the opening ceremony for the Olympics in Paris.`\
 https://nytimes.com/2024/07/26/world/europe/frances-rail-network-attacks-paris-olympics.html

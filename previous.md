@@ -22,7 +22,7 @@ https://nytimes.com/athletic/5658689/2024/07/26/tottenham-transfers-yang-gray-be
 `Hundreds were stuck at train stations in Paris and London as operators canceled and delayed trains on Friday after the attacks.`\
 https://nytimes.com/2024/07/26/world/olympics/paris-london-train-station.html
 
-**The USWNT has arrived at the Olympics… and so has the Trin Spin**\
+**The USWNT has arrived at the 2024 Olympics and so has Trinity Rodman and her 'Trin Spin'**\
 `Emma Hayes' work with the USWNT is only just beginning but there are signs of improvement and togetherness already`\
 https://nytimes.com/athletic/5660287/2024/07/26/uswnt-trin-spin-olympics-zambia/
 
