@@ -1,3 +1,7 @@
+**Mike Trout gets good news following knee MRI**\
+`Trout, who is recovering from knee surgery, plans to resume a running program soon.`\
+https://nytimes.com/athletic/5661692/2024/07/26/mike-trout-knee-mri-angels/
+
 **MLB trade deadline Q&A: Bowden on the market and latest rumblings as deals pick up**\
 `Answering questions on the seller's market, teams that are surprising me, the latest I'm hearing on big-name targets and much more.`\
 https://nytimes.com/athletic/5661443/2024/07/26/mlb-trade-deadline-market-rumors/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5661267/2024/07/26/browns-nick-chubb-return-trainin
 **The Paris Olympics Opened in Spectacular Style**\
 `Also, a stunning betrayal led to the arrest of cartel leaders. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/07/26/briefing/paris-olympics-ceremony-harris-vp-search.html
-
-**Best moments of 2024 Olympics Opening Ceremony**\
-`If you missed the official start of the 2024 Olympics or want to reflect on all the pomp and circumstance, here's highlights from Friday.`\
-https://nytimes.com/athletic/5660981/2024/07/26/opening-ceremony-paris-olympics-2024-best-moments/
 
