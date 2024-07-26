@@ -1,3 +1,7 @@
+**Lady Gaga opens with an ode to French cabaret.**\
+`The ceremony will also provide a showcase for Aya Nakamura, a French-Malian singer, and a range of musical styles including disco, French hip-hop and zouk from the French Caribbean.`\
+https://nytimes.com/article/olympics-ceremony-performers.html
+
 **Two Women Killed in Upper East Side Murder-Suicide**\
 `The shooting took place just a half block from Gracie Mansion, the official residence of the New York City mayor, and was related to a child-custody dispute, according to the police.`\
 https://nytimes.com/2024/07/26/nyregion/upper-east-side-murder-suicide.html

@@ -30,8 +30,8 @@ https://nytimes.com/athletic/5660937/2024/07/26/mlb-trade-grades-hays-dominguez-
 `By Catherine Porter and Ségolène Le Stradic`\
 https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/how-did-a-city-scarred-by-terrorism-prepare-an-olympic-opening-without-walls
 
-**Aya Nakamura Is Among the Confirmed Musical Performers. Surprise Acts Are Expected.**\
-`The ceremony will provide a showcase for Aya Nakamura, a French-Malian singer, and a range of musical styles including disco, French hip-hop and zouk from the French Caribbean.`\
+**Lady Gaga opens with an ode to French cabaret.**\
+`The ceremony will also provide a showcase for Aya Nakamura, a French-Malian singer, and a range of musical styles including disco, French hip-hop and zouk from the French Caribbean.`\
 https://nytimes.com/article/olympics-ceremony-performers.html
 
 **Why LeBron, Gauff are U.S. Olympic flag bearers**\
