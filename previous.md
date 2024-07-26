@@ -1,3 +1,11 @@
+**With Patrik Laine cleared, Blue Jackets trade talks set to heat up**\
+`Patrik Laine has been cleared by the NHL/NHLPA players' assistance program. The veteran winger has requested a 'change of scenery.'`\
+https://nytimes.com/athletic/5660939/2024/07/26/patrik-laine-blue-jackets-trade-nhl/
+
+**Breakers and ballet dancers keep the opening ceremony moving.**\
+`By Laura Cappelle`\
+https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/breakers-and-ballet-dancers-keep-the-opening-ceremony-moving
+
 **Kamala Harris Needs a 3 P.M. Agenda**\
 `To steer the economy well, the president must see beyond what keeps voters up at night.`\
 https://nytimes.com/2024/07/26/opinion/kamala-harris-3pm-agenda.html
@@ -11,8 +19,8 @@ https://nytimes.com/2024/07/26/opinion/kamala-harris-campaign-advice.html
 https://nytimes.com/live/2024/07/22/opinion/thepoint/trump-may-pay-a-steep-price-for-vance
 
 **What was with that heavy metal band? That was Gojira.**\
-`By Alex Marshall`\
-https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/what-was-with-that-heavy-metal-band-that-was-gojira
+`Gojira, a popular French band, became the first hard rock act to perform in an Olympic Games opening ceremony when it did a metal version of “Ah! Ça Ira,” a song that was popular during the French Revolution.`\
+https://nytimes.com/article/opening-ceremony-heavy-metal-band-gojira.html
 
 **Patrick Mahomes on Raiders' Kermit the Frog incident: 'It’ll get handled when it gets handled'**\
 `A video circulated Thursday of Raiders safety Trey Taylor holding a fan's "Kermit the Frog" doll donning a Patrick Mahomes jersey and wig.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/26/us/park-fire-california-chico.html
 **The director of the opening ceremony made the Seine his stage.**\
 `By Catherine Porter`\
 https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/the-director-of-the-opening-ceremony-made-the-seine-his-stage
-
-**Rail Sabotage Blights an Olympic Moment for France**\
-`The arson attacks were carefully planned to cause maximum disruption on a train network so vast it is virtually impossible to fully secure.`\
-https://nytimes.com/2024/07/26/world/europe/rail-sabotage-france-olympics.html
-
-**Anger Lingers Over Positive Doping Tests for Chinese Swimmers**\
-`In Paris, Chinese swimmers have been under extra scrutiny by doping watchdogs, but that hasn’t satisfied competitors like American star Caeleb Dressel.`\
-https://nytimes.com/2024/07/26/world/olympics/chinese-swimming-doping-paris.html
 
