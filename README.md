@@ -1,3 +1,7 @@
+**Bears camp: Caleb Williams steps into middle of first scuffle, fires TD in hurry-up**\
+`The Bears had their first padded practice, and naturally their first dust-up. Who went to break it up? No. 1 pick Caleb Williams. `\
+https://nytimes.com/athletic/5661239/2024/07/26/chicago-bears-caleb-williams-training-camp-scuffle/
+
 **Orioles to add right-hander Zach Eflin in deal with Rays: Source**\
 `The Orioles have added to their rotation in an inter-division deal that send three prospects to aggressive seller Tampa Bay.`\
 https://nytimes.com/athletic/5661439/2024/07/26/orioles-rays-zach-eflin-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/26/world/israel-gaza-war-hamas-netanyahu/who-pl
 **Giants camp: Brian Daboll lets rookie WR Malik Nabers call his own number**\
 `“It shows how much trust they have in me,” Nabers said of calling his own play. “Wanting to give me the ball ... and let me be me.”`\
 https://nytimes.com/athletic/5661080/2024/07/26/giants-training-camp-malik-nabers-brian-daboll/
-
-**Man City's Couto in advanced talks to join Dortmund**\
-`Borussia Dortmund are in advanced talks to sign defender Yan Couto from Manchester City with a deal expected to be concluded in the coming days.`\
-https://nytimes.com/athletic/5660815/2024/07/26/yan-couto-dortmund-man-city-transfer/
 
