@@ -1,3 +1,7 @@
+**Here’s the latest on the train disruption.**\
+`The national railway company said three lines were disrupted by the attacks, causing massive delays.`\
+https://nytimes.com/live/2024/world/olympics-opening-ceremony/arson-france-trains-olympics
+
 **Arson attacks disrupt trains in France on day of Olympic opening ceremony**\
 `An apparent arson attack on France's high-speed rail network early Friday disrupted travel on the morning of the Olympic opening ceremony.`\
 https://nytimes.com/athletic/5660168/2024/07/26/arson-attacks-disrupt-trains-in-france-on-day-of-olympic-opening-ceremony/
