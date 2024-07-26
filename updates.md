@@ -1,3 +1,7 @@
+**Australia, Canada and New Zealand press Netanyahu on a Gaza cease-fire.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/07/26/world/israel-gaza-war-hamas-netanyahu/australia-canada-and-new-zealand-press-netanyahu-on-a-gaza-cease-fire
+
 **The New Race**\
 `We explain three key points about the coming election.`\
 https://nytimes.com/2024/07/26/briefing/the-new-race.html
