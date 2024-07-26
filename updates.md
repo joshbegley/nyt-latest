@@ -1,3 +1,7 @@
+**Nick Chubb working out at Browns training camp, slowly preparing for his return**\
+`“I’d say Nick is progressing exactly where he should be,” Cleveland coach Kevin Stefanski said about the four-time Pro Bowl running back.`\
+https://nytimes.com/athletic/5661267/2024/07/26/browns-nick-chubb-return-training-camp/
+
 **The Paris Olympics Opened in Spectacular Style**\
 `Also, a stunning betrayal led to the arrest of cartel leaders. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/07/26/briefing/paris-olympics-ceremony-harris-vp-search.html

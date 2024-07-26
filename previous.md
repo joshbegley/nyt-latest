@@ -1,3 +1,7 @@
+**Nick Chubb working out at Browns training camp, slowly preparing for his return**\
+`“I’d say Nick is progressing exactly where he should be,” Cleveland coach Kevin Stefanski said about the four-time Pro Bowl running back.`\
+https://nytimes.com/athletic/5661267/2024/07/26/browns-nick-chubb-return-training-camp/
+
 **The Paris Olympics Opened in Spectacular Style**\
 `Also, a stunning betrayal led to the arrest of cartel leaders. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/07/26/briefing/paris-olympics-ceremony-harris-vp-search.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5661444/2024/07/26/mariners-blue-jays-yimi-garcia-t
 **Though Critical on Gaza, Trump Cites Good Relations With Netanyahu**\
 `The former president met with the Israeli leader in Florida, a day after his main opponent, Vice President Kamala Harris, and he both criticized Israel’s conduct of the war.`\
 https://nytimes.com/2024/07/26/world/middleeast/israel-hamas-gaza-trump-netanyahu.html
-
-**Warner Bros. Discovery Sues N.B.A. Over Rights Deal**\
-`The company is trying to make the league accept its match of Amazon’s bid to broadcast games starting with the 2025-26 season.`\
-https://nytimes.com/2024/07/26/business/nba-warner-bros-discovery-lawsuit.html
 
