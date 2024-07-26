@@ -1,3 +1,15 @@
+**Saying Goodbye to the Messy, Murderous World of ‘Elite’**\
+`A diverse cast of characters and a murder to solve each school year have helped make this teen drama one of Netflix’s longest-running original shows.`\
+https://nytimes.com/2024/07/26/arts/television/elite-netflix-season-eight.html
+
+**Automakers Sold Driver Data for Pennies, Senators Say**\
+`Ron Wyden and Edward Markey urged the F.T.C. to investigate how car companies handled the data from millions of car owners.`\
+https://nytimes.com/2024/07/26/technology/driver-data-sold-for-pennies.html
+
+**Full Time: Olympics begin with blockbuster drama**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/5660635/2024/07/26/uswnt-olympics-trinity-rodman-canada-drones-full-time/
+
 **New York Will Allow Beth Israel Hospital to Close**\
 `The health facility’s potential closure had been contentious following the shuttering of other hospitals serving Lower Manhattan.`\
 https://nytimes.com/2024/07/26/nyregion/mount-sinai-beth-israel-hospital-closure.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5660523/2024/07/26/notre-dame-marcus-freeman-receiv
 **Twins pitcher's mom catches Topps' attention for haggling over his baseball card**\
 `Kody Funderburk's mom tried to get a better deal on her son's card and her efforts ended up on social media `\
 https://nytimes.com/athletic/5659954/2024/07/26/kody-funderburk-twins-baseball-cards/
-
-**He Wrote a Story About Joy, Then Built a Tiny World to Match**\
-`Loren Long has illustrated books by Barack Obama, Madonna and Amanda Gorman. His No. 1 best seller, “The Yellow Bus,” took him in a different direction — one that required time, patience and toothpicks.`\
-https://nytimes.com/2024/07/26/books/loren-long-yellow-bus.html
-
-**‘Coup’ and ‘Cover-Up’: How the G.O.P. is reacting to the Harris candidacy.**\
-`By Karen Yourish and Lazaro Gamio`\
-https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/coup-and-cover-up-how-the-gop-is-reacting-to-the-harris-candidacy
-
-**104 Shows. $260 Million. After 10 Years, Billy Joel Closes a Chapter.**\
-`The singer and songwriter, 75, wrapped his decade-long residency at Madison Square Garden on Thursday night. Up next? A new era in his live career.`\
-https://nytimes.com/2024/07/26/arts/music/billy-joel-msg-residency-final-show.html
 
