@@ -1,3 +1,11 @@
+**They’re Around Two Feet**\
+`Andy Kravis returns after a two-year absence with a lively puzzle.`\
+https://nytimes.com/2024/07/25/crosswords/daily-puzzle-2024-07-26.html
+
+**Marlins trade reliever A.J. Puk to D-Backs**\
+`The Marlins will receive infielder Deyvison De Los Santos and outfielder Andrew Pintar from the Diamondbacks.`\
+https://nytimes.com/athletic/5659879/2024/07/25/miami-marlins-aj-puk-arizona-diamondbacks/
+
 **The Evolution of Usha Vance**\
 `An accomplished Yale-educated lawyer, she has left her job at a top firm as she adjusts to the life of a high-profile political spouse.`\
 https://nytimes.com/2024/07/25/style/usha-vance-jd-vance-trump-political-wife.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/25/us/politics/olympics-us-antidoping-wada.html
 **Two Top Mexican Cartel Leaders Arrested by U.S. Authorities**\
 `The two men, Ismael Zambada García and Joaquín Guzmán López, run the Sinaloa Cartel, one of the most dominant criminal groups in Mexico.`\
 https://nytimes.com/2024/07/25/world/americas/mexico-cartel-ismael-zambada-garcia-joaquin-guzman-lopez.html
-
-**Chargers training camp, Day 2: Highlights from starter-on-starter team drills**\
-`The Chargers made some adjustments in practice after Jim Harbaugh reminded them to avoid contact and diving during non-padded sessions.`\
-https://nytimes.com/athletic/5659667/2024/07/25/chargers-training-camp-highlights-starters-justin-herbert/
-
-**Zendaya, Mick Jagger and Snoop Dogg Step Out in Paris for the Olympics**\
-`Athletes, actors and fashion designers celebrated before the opening of the Games in Paris at a bash hosted by LVMH, the French luxury goods conglomerate.`\
-https://nytimes.com/2024/07/25/style/olympics-paris-party-lvmh.html
 

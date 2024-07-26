@@ -1,3 +1,11 @@
+**They’re Around Two Feet**\
+`Andy Kravis returns after a two-year absence with a lively puzzle.`\
+https://nytimes.com/2024/07/25/crosswords/daily-puzzle-2024-07-26.html
+
+**Marlins trade reliever A.J. Puk to D-Backs**\
+`The Marlins will receive infielder Deyvison De Los Santos and outfielder Andrew Pintar from the Diamondbacks.`\
+https://nytimes.com/athletic/5659879/2024/07/25/miami-marlins-aj-puk-arizona-diamondbacks/
+
 **The Evolution of Usha Vance**\
 `An accomplished Yale-educated lawyer, she has left her job at a top firm as she adjusts to the life of a high-profile political spouse.`\
 https://nytimes.com/2024/07/25/style/usha-vance-jd-vance-trump-political-wife.html
