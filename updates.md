@@ -1,3 +1,7 @@
+**A Weapons Scanner Arrives in the Subway. Adams Says It Isn’t Optional.**\
+`Mayor Eric Adams announced that a new scanner would search for guns on the subway. Riders who refuse to be scanned, he said, will not be allowed to enter the system.`\
+https://nytimes.com/2024/07/26/nyregion/subway-gun-scanner-nyc.html
+
 **Steelers training camp Day 2: Seven Shots returns, Russell Wilson does not**\
 `While Wilson recovers from "calf tightness," Justin Fields got another chance with the first-string offense. He didn't disappoint.`\
 https://nytimes.com/athletic/5661028/2024/07/26/steelers-training-camp-russell-wilson/
