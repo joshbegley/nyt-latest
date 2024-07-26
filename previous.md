@@ -1,3 +1,15 @@
+**Jayden Daniels 'off to a really good start' as Commanders wrap up Day 3 of camp**\
+`"He’s got the humility and hard work of a rookie, with a little bit of swag of an older guy," Washington coach Dan Quinn said of Daniels. `\
+https://nytimes.com/athletic/5661112/2024/07/26/commanders-jayden-daniels-training-camp/
+
+**Celebrities Support Plan to Reopen Upper West Side Movie Theater**\
+`Martin Scorsese, Ethan Hawke and John Turturro are all listed as advisers to a new proposal to buy the former Metro Theater, which closed in 2005.`\
+https://nytimes.com/2024/07/26/movies/celebrities-plan-metro-theater-movie-upper-west-side.html
+
+**W.H.O. plans to send one million polio vaccines to Gaza.**\
+`By Anjana Sankar`\
+https://nytimes.com/live/2024/07/26/world/israel-gaza-war-hamas-netanyahu/who-plans-to-send-one-million-polio-vaccines-to-gaza
+
 **Giants camp: Brian Daboll lets rookie WR Malik Nabers call his own number**\
 `“It shows how much trust they have in me,” Nabers said of calling his own play. “Wanting to give me the ball ... and let me be me.”`\
 https://nytimes.com/athletic/5661080/2024/07/26/giants-training-camp-malik-nabers-brian-daboll/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5661297/2024/07/26/andreas-georgson-manchester-unit
 **Sunny recorded scenes peek through the rainy festivities.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/sunny-recorded-scenes-peak-through-the-rainy-festivities
-
-**My Partner Told Me About His Fights With His Ex. I Think I’m on Her Side.**\
-`The magazine’s Ethicist columnist on how partners can evaluate their romantic histories together — and be honest and respectful in their assessments.`\
-https://nytimes.com/2024/07/26/magazine/partner-ex-girlfriend-ethics.html
-
-**NASA Aims to Restore Space Station Traffic After SpaceX and Boeing Problems**\
-`With the Falcon 9 rocket set to fly again, and testing of the Starliner capsule progressing, the agency is seeking to turn the page on a brief, troubled chapter in orbit.`\
-https://nytimes.com/2024/07/26/science/nasa-spacex-boeing-iss.html
-
-**It’s too early too worry about the Patriots offense … right?**\
-`The Patriots offense is off to a rough start. But it's still early, and there's plenty of time for that to change. (Right?)`\
-https://nytimes.com/athletic/5661132/2024/07/26/patriots-offense-maye-brissett/
 
