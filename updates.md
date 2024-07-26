@@ -1,3 +1,11 @@
+**Saboteurs targeted a rail network so vast that it’s impossible to fully secure.**\
+`The French system`\
+https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/saboteurs-targeted-a-rail-network-so-vast-that-its-impossible-to-fully-secure
+
+**U.K. Drops Opposition to International Criminal Court Warrant for Netanyahu**\
+`The new Labour government confirmed it would drop the previous government’s objection to I.C.C. arrest warrants for Israel’s Prime Minister Benjamin Netanyahu and the defense minister, Yoav Gallant.`\
+https://nytimes.com/2024/07/26/world/middleeast/israel-gaza-icc-warrants-britain.html
+
 **Battling Inflation, Russia Raises Key Interest Rate to 18 Percent**\
 `The move underscored the wartime risks for the Kremlin as the government pumps enormous sums of money into the Russian economy.`\
 https://nytimes.com/2024/07/26/world/europe/russia-inflation-interest-rate.html
