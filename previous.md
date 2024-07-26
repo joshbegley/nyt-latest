@@ -1,3 +1,7 @@
+**Whose Politics Are More Turbulent, America’s or Australia’s?**\
+`Prime Minister Anthony Albanese, citing the revolving door of prime ministers, said his own country was in no position to criticize the United States.`\
+https://nytimes.com/2024/07/26/world/australia/turbulent-politics-australia-america.html
+
 **Word of the Day: haptic**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/07/26/learning/word-of-the-day-haptic.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/26/briefing/election-olympics-gaza.html
 **Fantasy baseball waiver wire: Drew Thorpe, Eugenio Suárez and more; plus, two-start pitchers and stashes adds**\
 `John Laghezza sifts through the advanced analytics to uncover waiver wire gems, like the suddenly surging Eugenio Suárez.`\
 https://nytimes.com/athletic/5656472/2024/07/26/fantasy-baseball-waiver-wire-drew-thorpe-eugenio-suarez-adds/
-
-**'I'm back at Everton to make a bigger impact - I've worked all summer to do that'**\
-`Jack Harrison talks openly about Everton improvements, his Leeds exit after playing through pain barrier, and hopes for the future`\
-https://nytimes.com/athletic/5657997/2024/07/26/jack-harrison-everton-leeds-interview/
 

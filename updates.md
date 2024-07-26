@@ -1,3 +1,7 @@
+**Whose Politics Are More Turbulent, America’s or Australia’s?**\
+`Prime Minister Anthony Albanese, citing the revolving door of prime ministers, said his own country was in no position to criticize the United States.`\
+https://nytimes.com/2024/07/26/world/australia/turbulent-politics-australia-america.html
+
 **Word of the Day: haptic**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/07/26/learning/word-of-the-day-haptic.html
