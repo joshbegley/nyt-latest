@@ -1,3 +1,11 @@
+**Jaylen Clark's gratitude shines through in his first action since a devastating injury**\
+`Clark's long wait to get back on the court is over. An Achilles injury is no longer holding him back.`\
+https://nytimes.com/athletic/5644755/2024/07/26/jaylen-clark-timberwolves-injury-summer-league/
+
+**Mets shouldn't be buyers. They should be aggressive buyers at the deadline**\
+`The goal is to pounce on legitimate opportunities to win divisions, pennants and championships. The Mets are there.`\
+https://nytimes.com/athletic/5659793/2024/07/26/mets-mlb-trade-deadline-buyers/
+
 **Submit your Ohio State football questions for Cameron Teague Robinson's mailbag**\
 `What's on your mind about the Buckeyes before preseason practices begin?`\
 https://nytimes.com/athletic/5658571/2024/07/26/ohio-state-football-mailbag-questions-6/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/26/well/family/dating-yellow-flags-relationship.html
 **The New York Times News Quiz, July 26, 2024**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2024/07/26/briefing/harris-biden-netanyahu-trump-news-quiz.html
-
-**Kamala Harris May Bring Out Trump’s Harshest Instincts**\
-`After years planning to face President Biden, Donald J. Trump and his team will now be campaigning against Kamala Harris. Maggie Haberman, a senior political correspondent for The New York Times, describes how Mr. Trump may try to frame his new opponent.`\
-https://nytimes.com/video/us/elections/100000009592584/kamala-harris-may-bring-out-trumps-harshest-instincts.html
-
-**The Unnerving Changeability of JD Vance**\
-`Vance has a history of remaking himself to suit the men in his life.`\
-https://nytimes.com/2024/07/26/opinion/jd-vance-changeability.html
 
