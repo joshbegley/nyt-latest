@@ -1,3 +1,7 @@
+**MLB Trade Grades: Mariners nab Randy Arozarena from Rays to add thump**\
+`Randy Arozarena was acquired to thicken the Mariners' lineup. Does this trade get a thumbs-up from our graders? `\
+https://nytimes.com/athletic/5660311/2024/07/26/mlb-trade-grades-randy-arozarena-mariners-rays/
+
 **Precautions Failed to Halt Rail Sabotage**\
 `The attacks on several high-speed rail lines happened despite the sweeping mobilization of recent weeks.`\
 https://nytimes.com/2024/07/26/world/olympics/olympics-paris-train-arson.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/26/world/israel-gaza-war-hamas-netanyahu/austra
 **The New Race**\
 `We explain three key points about the coming election.`\
 https://nytimes.com/2024/07/26/briefing/the-new-race.html
-
-**Rams starting CB Darious Williams dealing with potential injury; more notes from camp**\
-`Darious Williams limped off after the final play with a possible hamstring injury and Sean McVay confirmed Derion Kendrick tore his ACL.`\
-https://nytimes.com/athletic/5660034/2024/07/26/la-rams-injury-update-darious-williams-derion-kendrick/
 
