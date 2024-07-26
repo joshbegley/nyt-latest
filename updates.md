@@ -1,3 +1,7 @@
+**Venezuela Is Ready for Change. Maduro Must Allow It.**\
+`It is clear Venezuelans have chosen to oust President Maduro. Whether that will happen remains in question.`\
+https://nytimes.com/2024/07/26/opinion/venezuela-elections-gonzalez-maduro.html
+
 **Friday Briefing**\
 `A new poll from the U.S. presidential race.`\
 https://nytimes.com/2024/07/26/briefing/election-olympics-gaza.html
