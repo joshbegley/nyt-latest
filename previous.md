@@ -1,3 +1,7 @@
+**Trump to Meet With Netanyahu After Urging Israel to End War in Gaza**\
+`Ahead of the meeting, Mr. Trump insisted Israel needed to end the war as quickly as possible.`\
+https://nytimes.com/2024/07/26/us/politics/trump-netanyahu.html
+
 **Firefighters from Around the World Headed to Canada to Battle Wildfires**\
 `Fast-moving fires have destroyed as much as half of the picturesque town of Jasper, Alberta, and have ravaged Jasper National Park.`\
 https://nytimes.com/2024/07/26/world/americas/canada-wildfires-jasper-alberta-firefighters.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/trans
 **Heirs of Jews Who Fled the Nazis Return Art to Heirs Whose Family Could Not**\
 `An Egon Schiele drawing was returned on Friday at the Manhattan district attorney’s office. The heirs said in a statement that relinquishing the work was “the right thing to do.”`\
 https://nytimes.com/2024/07/26/arts/design/schiele-fritz-grunbaum-nazis-return.html
-
-**The Windup: Why the Mariners are betting on Arozarena**\
-`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
-https://nytimes.com/athletic/5660668/2024/07/26/randy-arozarena-mariners-trade-no-hitter-the-windup/
 

@@ -1,3 +1,7 @@
+**Trump to Meet With Netanyahu After Urging Israel to End War in Gaza**\
+`Ahead of the meeting, Mr. Trump insisted Israel needed to end the war as quickly as possible.`\
+https://nytimes.com/2024/07/26/us/politics/trump-netanyahu.html
+
 **Firefighters from Around the World Headed to Canada to Battle Wildfires**\
 `Fast-moving fires have destroyed as much as half of the picturesque town of Jasper, Alberta, and have ravaged Jasper National Park.`\
 https://nytimes.com/2024/07/26/world/americas/canada-wildfires-jasper-alberta-firefighters.html
