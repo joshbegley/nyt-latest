@@ -1,3 +1,15 @@
+**House v. NCAA settlement takes next step toward schools paying athletes**\
+`New documents were filed in the historic House v.`\
+https://nytimes.com/athletic/5660945/2024/07/26/ncaa-house-settlement-college-sports/
+
+**Seattle Mariners acquire reliever Yimi García from Toronto Blue Jays**\
+`The Blue Jays are expected to be significant sellers over the next few days and they've traded one of their best chips in Garcia.`\
+https://nytimes.com/athletic/5661444/2024/07/26/mariners-blue-jays-yimi-garcia-trade/
+
+**Though Critical on Gaza, Trump Cites Good Relations With Netanyahu**\
+`The former president met with the Israeli leader in Florida, a day after his main opponent, Vice President Kamala Harris, and he both criticized Israel’s conduct of the war.`\
+https://nytimes.com/2024/07/26/world/middleeast/trump-netanyahu-israel-hamas-gaza.html
+
 **Seattle Mariners acquire reliever Yimi García from Toronto Blue Jays: Source**\
 `The Blue Jays are expected to be significant sellers over the next few days and they've traded one of their best chips in Garcia.`\
 https://nytimes.com/athletic/5661444/2024/07/26/mariners-blue-jays-yimi-garcia-trade/
