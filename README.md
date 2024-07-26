@@ -1,3 +1,11 @@
+**New York Will Allow Beth Israel Hospital to Close**\
+`The health facility’s potential closure had been contentious following the shuttering of other hospitals serving Lower Manhattan.`\
+https://nytimes.com/2024/07/26/nyregion/mount-sinai-beth-israel-hospital-closure.html
+
+**Spaceman, Senator, V.P. Pick? Kamala Harris Sizes Up Mark Kelly.**\
+`The Arizona senator, a Navy veteran and former astronaut, has an almost impossibly strong political résumé. But an overlooked asset is his expertise on the Southern border.`\
+https://nytimes.com/2024/07/26/us/politics/mark-kelly-kamala-harris-vp.html
+
 **130 Years After Sinking, Ship is Found on the Bottom of Lake Michigan**\
 `The Margaret A. Muir schooner sank during a storm in 1893. Shipwreck hunters found it near the mouth of a popular Wisconsin harbor.`\
 https://nytimes.com/2024/07/26/us/lake-michigan-shipwreck-found.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/coup-and-cove
 **104 Shows. $260 Million. After 10 Years, Billy Joel Closes a Chapter.**\
 `The singer and songwriter, 75, wrapped his decade-long residency at Madison Square Garden on Thursday night. Up next? A new era in his live career.`\
 https://nytimes.com/2024/07/26/arts/music/billy-joel-msg-residency-final-show.html
-
-**Summer Reading Contest, Week 8: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by Aug. 2 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 14.`\
-https://nytimes.com/2024/07/26/learning/summer-reading-contest-week-8-what-got-your-attention-in-the-times-this-week.html
-
-**Chase to Bar Customers From Using Credit Cards for ‘Pay Later’ Loans**\
-`Financial regulators and consumer advocates frown upon using credit cards to pay off installment loans because of the risk that consumers will dig themselves further into debt.`\
-https://nytimes.com/2024/07/26/your-money/chase-pay-later-loans-credit-cards.html
 
