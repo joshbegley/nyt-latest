@@ -1,3 +1,7 @@
+**The pros and cons of selecting Bills TE Dalton Kincaid in fantasy drafts**\
+`With Stefon Diggs and Gabe Davis gone, could the second-year TE become Josh Allen's favorite target and an elite player at his position?`\
+https://nytimes.com/athletic/5658628/2024/07/26/bills-dalton-kincaid-fantasy-football/
+
 **Jaylen Clark's gratitude shines through in his first action since a devastating injury**\
 `Clark's long wait to get back on the court is over. An Achilles injury is no longer holding him back.`\
 https://nytimes.com/athletic/5644755/2024/07/26/jaylen-clark-timberwolves-injury-summer-league/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/26/arts/weekend-editors-picks-deadpool-w
 **Slow Down if You See These Dating ‘Yellow Flags’**\
 `Are they deal-breakers? Here is how to tell.`\
 https://nytimes.com/2024/07/26/well/family/dating-yellow-flags-relationship.html
-
-**The New York Times News Quiz, July 26, 2024**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2024/07/26/briefing/harris-biden-netanyahu-trump-news-quiz.html
 
