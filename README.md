@@ -1,3 +1,7 @@
+**Battling Inflation, Russia Raises Key Interest Rate to 18 Percent**\
+`The move underscored the wartime risks for the Kremlin as the government pumps enormous sums of money into the Russian economy.`\
+https://nytimes.com/2024/07/26/world/europe/russia-inflation-interest-rate.html
+
 **45%**\
 `Tesla’s drop in profit in the second quarter.`\
 https://nytimes.com/2024/07/26/business/45-tesla-q2-earnings.html
@@ -6,12 +10,12 @@ https://nytimes.com/2024/07/26/business/45-tesla-q2-earnings.html
 `An Iraqi judoka has recorded the first positive doping test of the 2024 Paris Olympics, the International Testing Agency (ITA) said on Friday.`\
 https://nytimes.com/athletic/5660781/2024/07/26/olympics-paris-doping-positive-judo/
 
-**Trump to Meet With Netanyahu After Urging Israel to End War in Gaza**\
+**Trump Meets With Netanyahu After Urging Israel to End War in Gaza**\
 `Ahead of the meeting, Mr. Trump insisted Israel needed to end the war as quickly as possible.`\
 https://nytimes.com/2024/07/26/us/politics/trump-netanyahu.html
 
-**Firefighters from Around the World Headed to Canada to Battle Wildfires**\
-`Fast-moving fires have destroyed as much as half of the picturesque town of Jasper, Alberta, and have ravaged Jasper National Park.`\
+**Firefighters From Around the World Headed to Canada to Battle Wildfires**\
+`Fast-moving fires may have destroyed as much as half of the picturesque town of Jasper, Alberta, and have ravaged Jasper National Park.`\
 https://nytimes.com/2024/07/26/world/americas/canada-wildfires-jasper-alberta-firefighters.html
 
 **Bucks GM Jon Horst details team's quiet offseason, Giannis at Olympics and Year 2 of Lillard**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/26/dining/cherries-for-black-forest-cake-tomatoes-fo
 **Billy Joel at the Garden: Scenes From a Celebration**\
 `At the close of his 10-year Madison Square Garden residency, the singer took a victory lap with some of his most ardent fans.`\
 https://nytimes.com/2024/07/26/arts/music/billy-joel-madison-square-garden-photos.html
-
-**Scandal Hits U.K.’s ‘Strictly Come Dancing,’ the Original ‘Dancing With the Stars’**\
-`The BBC said it would add chaperones to rehearsals after allegations of abusive behavior at a hugely popular dance show that inspired international versions.`\
-https://nytimes.com/2024/07/26/world/europe/strictly-come-dancing-bbc-scandal.html
 
