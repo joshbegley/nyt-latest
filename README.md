@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5659940/2024/07/25/mlb-trade-deadline-rangers-angel
 `Thousands of people piled into Madison Square Garden on Thursday to hear Billy Joel glide from rock song to soulful blues in the final show of his long residency at the arena on Thursday night.`\
 https://nytimes.com/2024/07/25/arts/music/billy-joel-madison-square-garden.html
 
-**MLB Trade grades: Diamondbacks add A.J. Puk from Marlins to bolster bullpen**\
+**MLB Trade Grades: Diamondbacks add A.J. Puk from Marlins to bolster bullpen**\
 `Puk adds versatility and another late-inning option to the Diamondbacks bullpen; how did both teams do in the deal?  `\
 https://nytimes.com/athletic/5659948/2024/07/25/diamondbacks-marlins-aj-puk-trade-grades/
 
