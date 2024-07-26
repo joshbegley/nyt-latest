@@ -1,6 +1,6 @@
-**Now facing Harris, Trump backs off his commitment to debate in September.**\
-`By Maggie Haberman and Shane Goldmacher`\
-https://nytimes.com/live/2024/07/25/us/harris-trump-biden-election/trump-harris-biden-debate
+**Now Facing Harris, Trump Backs Off Commitment to Debate in September**\
+`The former president suggested moving a debate from ABC News to Fox.`\
+https://nytimes.com/2024/07/25/us/politics/trump-harris-biden-debate.html
 
 **Rosenthal: What I'm hearing about the MLB trade deadline including the Rangers, Angels and more**\
 `The Rangers are going for it, the Angels are open to offers and the Pirates are scouting the Marlins' Jazz Chisholm Jr. `\

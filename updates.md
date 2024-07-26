@@ -1,3 +1,7 @@
+**Now Facing Harris, Trump Backs Off Commitment to Debate in September**\
+`The former president suggested moving a debate from ABC News to Fox.`\
+https://nytimes.com/2024/07/25/us/politics/trump-harris-biden-debate.html
+
 **Now facing Harris, Trump backs off his commitment to debate in September.**\
 `By Maggie Haberman and Shane Goldmacher`\
 https://nytimes.com/live/2024/07/25/us/harris-trump-biden-election/trump-harris-biden-debate
