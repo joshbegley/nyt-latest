@@ -1,3 +1,7 @@
+**How Julian Love exemplifies the Seahawks' plan under Mike Macdonald**\
+`Shortly after being rewarded with a new contract, Love made a huge play in practice that perfectly illustrated his new coach's approach.`\
+https://nytimes.com/athletic/5659704/2024/07/25/julian-love-contract-seahawks-training-camp/
+
 **Canada removes coach Priestman after more drone revelations**\
 `Priestman is suspended for the remainder of the Games and until an independent external review is complete after "new revelations."`\
 https://nytimes.com/athletic/5659693/2024/07/25/bev-priestman-removed-canada-soccer-coach-olympics/

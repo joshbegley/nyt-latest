@@ -1,3 +1,7 @@
+**How Julian Love exemplifies the Seahawks' plan under Mike Macdonald**\
+`Shortly after being rewarded with a new contract, Love made a huge play in practice that perfectly illustrated his new coach's approach.`\
+https://nytimes.com/athletic/5659704/2024/07/25/julian-love-contract-seahawks-training-camp/
+
 **Canada removes coach Priestman after more drone revelations**\
 `Priestman is suspended for the remainder of the Games and until an independent external review is complete after "new revelations."`\
 https://nytimes.com/athletic/5659693/2024/07/25/bev-priestman-removed-canada-soccer-coach-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/25/us/politics/fbi-bullet-trump-rally.html
 **Israeli Forces Retrieve Bodies of 5 Hostages From Tunnel in Gaza**\
 `The military said that intelligence, including information from detained Palestinian militants, had led to the bodies in the Khan Younis area.`\
 https://nytimes.com/2024/07/25/world/middleeast/israel-hostages-bodies-gaza.html
-
-**The Kamala Harris Vibe Shift**\
-`For many Democrats, a race that felt like a dispiriting slog suddenly feels light. Even hopeful.`\
-https://nytimes.com/2024/07/25/us/politics/kamala-harris-biden-poll.html
 
