@@ -1,3 +1,7 @@
+**Arson Attacks Disrupts Trains in France Hours Before Opening Ceremony of Olympics**\
+`The national railway company said three lines were disrupted by the attacks, causing massive delays.`\
+https://nytimes.com/2024/07/26/world/olympics/arson-france-trains-olympics.html
+
 **Bordeaux lose professional status as club files for bankruptcy**\
 `Bordeaux have lost their professional status after being administratively relegated to the third tier of French football.`\
 https://nytimes.com/athletic/5658621/2024/07/26/bordeaux-relegation-french-football/
