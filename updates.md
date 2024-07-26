@@ -1,3 +1,7 @@
+**Saboteurs Targeted a Rail Network So Vast That It’s Impossible to Fully Secure**\
+`Thousands of miles of tracks leave the French system vulnerable to sabotage. But the suspected arsonists also knew just where to strike.`\
+https://nytimes.com/article/saboteurs-targeted-a-rail-network-so-vast-that-its-impossible-to-fully-secure.html
+
 **Dodgers trade James Paxton to Red Sox**\
 `The 35-year-old Paxton is returning to Boston, the team he played for last season.`\
 https://nytimes.com/athletic/5660848/2024/07/26/dodgers-trade-james-paxton-red-sox/
