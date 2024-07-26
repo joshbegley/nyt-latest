@@ -1,40 +1,40 @@
-**Maguire: End-of-season injury toughest moment of my career**\
-`Harry Maguire has described missing out on Manchester United’s FA Cup victory and England’s run to the European Championship final as “the toughest moment of my career”.`\
-https://nytimes.com/athletic/5660120/2024/07/26/harry-maguire-man-utd-injury/
+**Kamala Harris’s Bratty Coconut Memescape + What Does $1,000 a Month Do? + The Empire CrowdStrikes Back**\
+`An episode unburdened by what has been.`\
+https://nytimes.com/2024/07/26/podcasts/kamala-harriss-bratty-coconut-memescape-what-does-1000-a-month-do-the-empire-crowdstrikes-back.html
 
-**‘Deadpool & Wolverine’ | Anatomy of a Scene**\
-`The director Shawn Levy narrates a sequence from his film starring Ryan Reynolds and Hugh Jackman.`\
-https://nytimes.com/video/movies/100000009589114/deadpool-and-wolverine-scene.html
+**6 Paperbacks to Read This Week **\
+`Recommended reading from the Book Review, including titles by Safiya Sinclair, Michael Cunningham, Tasha Sylva and more. `\
+https://nytimes.com/interactive/2024/07/26/books/review/new-paperbacks-vandermeer.html
 
-**Arson attacks disrupt trains in France on day of Olympic opening ceremony**\
-`An apparent arson attack on France's high-speed rail network early Friday disrupted travel on the morning of the Olympic opening ceremony.`\
-https://nytimes.com/athletic/5660168/2024/07/26/arson-attacks-disrupt-trains-in-france-on-day-of-olympic-opening-ceremony/
+**The 5 biggest storylines as Kirk Cousins, new-look Falcons open training camp**\
+`Quarterback Kirk Cousins took every first-team rep Thursday as the Falcons opened training camp under coach Raheem Morris.`\
+https://nytimes.com/athletic/5659300/2024/07/26/atlanta-falcons-training-camp-storylines/
 
-**'Slot's Liverpool tactics will suit me more than Klopp's. I can "do me" more'**\
-`The midfielder is desperate to become a part of Arne Slot's Liverpool rebuild - he says the Dutchman's style will get the best out of him`\
-https://nytimes.com/athletic/5659575/2024/07/26/curtis-jones-liverpool-arne-slot-jurgen-klopp/
+**5 Things to Do This Weekend**\
+`A selection of entertainment highlights this weekend, including “Deadpool & Wolverine.”`\
+https://nytimes.com/interactive/2024/07/26/arts/weekend-editors-picks-deadpool-wolverine.html
 
-**Bordeaux lose professional status as club files for bankruptcy**\
-`Bordeaux have lost their professional status after being administratively relegated to the third tier of French football.`\
-https://nytimes.com/athletic/5658621/2024/07/26/bordeaux-relegation-french-football/
+**Slow Down if You See These Dating ‘Yellow Flags’**\
+`Are they deal-breakers? Here is how to tell.`\
+https://nytimes.com/2024/07/26/well/family/dating-yellow-flags-relationship.html
 
-**In Love and Hoping for Asylum, Migrants Line Up for City Hall Weddings**\
-`The steady parade of couples seeking civil marriage ceremonies in New York City has expanded in recent months to include newly arrived migrants.`\
-https://nytimes.com/2024/07/26/nyregion/migrants-wedding-marriage-asylum.html
+**The New York Times News Quiz, July 26, 2024**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2024/07/26/briefing/harris-biden-netanyahu-trump-news-quiz.html
 
-**Wordle Review No. 1,135, Saturday, July 27, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/26/crosswords/wordle-review-1135.html
+**Kamala Harris May Bring Out Trump’s Harshest Instincts**\
+`After years planning to face President Biden, Donald J. Trump and his team will now be campaigning against Kamala Harris. Maggie Haberman, a senior political correspondent for The New York Times, describes how Mr. Trump may try to frame his new opponent.`\
+https://nytimes.com/video/us/elections/100000009592584/kamala-harris-may-bring-out-trumps-harshest-instincts.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/07/26/crosswords/spelling-bee-forum.html
+**The Unnerving Changeability of JD Vance**\
+`Vance has a history of remaking himself to suit the men in his life.`\
+https://nytimes.com/2024/07/26/opinion/jd-vance-changeability.html
 
-**Here are the latest updates on the train line attacks.**\
-`The national railway company said three lines were disrupted by the attacks, causing massive delays.`\
-https://nytimes.com/live/2024/world/olympics-opening-ceremony/arson-france-trains-olympics
+**Americans May Not Agree on Much, but They Agree Biden Made the Right Choice**\
+`The president’s decision to exit the race received overwhelming support. Only a few other things have drawn as much consensus in polling.`\
+https://nytimes.com/2024/07/26/upshot/biden-polling-exit-approval.html
 
-**Whose Politics Are More Turbulent, America’s or Australia’s?**\
-`Prime Minister Anthony Albanese, citing the revolving door of prime ministers, said his own country was in no position to criticize the United States.`\
-https://nytimes.com/2024/07/26/world/australia/turbulent-politics-australia-america.html
+**This Is How Democrats Win in Wisconsin**\
+`Ben Wikler, the chair of the Democratic Party of Wisconsin, discusses whether Kamala Harris can appeal to voters in the swing state.`\
+https://nytimes.com/2024/07/26/opinion/ezra-klein-podcast-ben-wikler.html
 
