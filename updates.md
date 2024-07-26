@@ -1,3 +1,11 @@
+**Billy Joel at the Garden: Scenes From a Celebration**\
+`At the close of his 10-year Madison Square Garden residency, the singer took a victory lap with some of his most ardent fans.`\
+https://nytimes.com/2024/07/26/arts/music/billy-joel-madison-square-garden-photos.html
+
+**Scandal Hits U.K.’s ‘Strictly Come Dancing,’ the Original ‘Dancing With the Stars’**\
+`The BBC said it would add chaperones to rehearsals after allegations of abusive behavior at a hugely popular dance show that inspired international versions.`\
+https://nytimes.com/2024/07/26/world/europe/strictly-come-dancing-bbc-scandal.html
+
 **Transportation disruptions in France are expected to last through Monday.**\
 `By Liz Alderman`\
 https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/transportation-disruptions-in-france-are-expected-to-last-through-monday

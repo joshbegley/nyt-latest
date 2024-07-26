@@ -1,3 +1,11 @@
+**Billy Joel at the Garden: Scenes From a Celebration**\
+`At the close of his 10-year Madison Square Garden residency, the singer took a victory lap with some of his most ardent fans.`\
+https://nytimes.com/2024/07/26/arts/music/billy-joel-madison-square-garden-photos.html
+
+**Scandal Hits U.K.’s ‘Strictly Come Dancing,’ the Original ‘Dancing With the Stars’**\
+`The BBC said it would add chaperones to rehearsals after allegations of abusive behavior at a hugely popular dance show that inspired international versions.`\
+https://nytimes.com/2024/07/26/world/europe/strictly-come-dancing-bbc-scandal.html
+
 **Transportation disruptions in France are expected to last through Monday.**\
 `By Liz Alderman`\
 https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/transportation-disruptions-in-france-are-expected-to-last-through-monday
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/26/us/politics/blinken-asia-us-election.html
 **With Kamala Harris, U.S. Free Trade Skepticism May Continue**\
 `The vice president has been critical of past trade deals. But her record suggests she could push for trade measures that address environmental issues.`\
 https://nytimes.com/2024/07/26/us/politics/kamala-harris-trade-trump.html
-
-**Saying Goodbye to the Messy, Murderous World of ‘Elite’**\
-`A diverse cast of characters and a murder to solve each school year have helped make this teen drama one of Netflix’s longest-running original shows.`\
-https://nytimes.com/2024/07/26/arts/television/elite-netflix-season-eight.html
-
-**Automakers Sold Driver Data for Pennies, Senators Say**\
-`Ron Wyden and Edward Markey urged the F.T.C. to investigate how car companies handled the data from millions of car owners.`\
-https://nytimes.com/2024/07/26/technology/driver-data-sold-for-pennies.html
 
