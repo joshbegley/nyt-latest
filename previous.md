@@ -1,3 +1,7 @@
+**Chargers training camp, Day 2: Highlights from starter-on-starter team drills**\
+`The Chargers made some adjustments in practice after Jim Harbaugh reminded them to avoid contact and diving during non-padded sessions.`\
+https://nytimes.com/athletic/5659667/2024/07/25/chargers-training-camp-highlights-starters-justin-herbert/
+
 **Zendaya, Mick Jagger and Snoop Dogg Step Out in Paris for the Olympics**\
 `Athletes, actors and fashion designers celebrated before the opening of the Games in Paris at a bash hosted by LVMH, the French luxury goods conglomerate.`\
 https://nytimes.com/2024/07/25/style/olympics-paris-party-lvmh.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5659272/2024/07/25/blue-jays-trade-deadline-startin
 **What Harris’s First Campaign Ad Reveals About Her Candidacy**\
 `She will try to present herself both as a fresh new voice and as an incumbent.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/kamala-harris-campaign-ad
-
-**U.S. Indicts North Korean in Ransomware Attacks and Theft of Military Data**\
-`Funds from the ransomware attacks on hospitals subsidized military espionage activities, prosecutors say.`\
-https://nytimes.com/2024/07/25/us/politics/north-korea-ransomware-computer-hacking.html
 
