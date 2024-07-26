@@ -1,3 +1,7 @@
+**Now facing Harris, Trump backs off his commitment to debate in September.**\
+`By Maggie Haberman and Shane Goldmacher`\
+https://nytimes.com/live/2024/07/25/us/harris-trump-biden-election/trump-harris-biden-debate
+
 **Rosenthal: What I'm hearing about the MLB trade deadline including the Rangers, Angels and more**\
 `The Rangers are going for it, the Angels are open to offers and the Pirates are scouting the Marlins' Jazz Chisholm Jr. `\
 https://nytimes.com/athletic/5659940/2024/07/25/mlb-trade-deadline-rangers-angels-pirates/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/25/style/usha-vance-jd-vance-trump-political-wife.ht
 **Dodgers' Clayton Kershaw returns with appreciation: 'I'm not going to take it for granted'**\
 `Dave Roberts said Kershaw's first start back gave him confidence that the pitcher would ready for a postseason run.`\
 https://nytimes.com/athletic/5659769/2024/07/25/dodgers-clayton-kershaw-returns/
-
-**Dak Prescott is at peace with this perhaps being his final year with the Cowboys**\
-`Will Prescott's ninth season with the Cowboys be his last? "I think Dak wants to be a Cowboy," Stephen Jones said.`\
-https://nytimes.com/athletic/5659771/2024/07/25/dak-prescott-cowboys-final-season/
 

@@ -1,3 +1,7 @@
+**Now facing Harris, Trump backs off his commitment to debate in September.**\
+`By Maggie Haberman and Shane Goldmacher`\
+https://nytimes.com/live/2024/07/25/us/harris-trump-biden-election/trump-harris-biden-debate
+
 **For Billy Joel Fans, a New York Night to Remember**\
 `Thousands of people piled into Madison Square Garden on Thursday to hear Billy Joel glide from rock song to soulful blues in the final show of his long residency at the arena.`\
 https://nytimes.com/2024/07/25/arts/music/billy-joel-madison-square-garden.html
