@@ -1,3 +1,15 @@
+**Roland Dumas Dies at 101; French Foreign Minister Tainted by Scandal**\
+`A lawyer and confidant of François Mitterrand, he was in the forefront of French politics for decades, only to be undone by his taste for the high life.`\
+https://nytimes.com/2024/07/26/world/europe/roland-dumas-dead.html
+
+**Spectators are mostly undeterred by rainy conditions in Paris.**\
+`By Emily Schmall and Andrew Keh`\
+https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/spectators-are-mostly-undeterred-by-rainy-conditions-in-paris
+
+**Prominent Short Seller Made Millions Off Bait-and-Switch Scheme, U.S. Says**\
+`Federal authorities filed charges against Andrew Left, founder of Citron Research, who they said made at least $16 million from a multiyear scheme to manipulate market prices.`\
+https://nytimes.com/2024/07/26/business/andrew-left-short-seller-fraud.html
+
 **In JD Vance Country, an Addiction Scourge That Won’t Go Away**\
 `The Republican vice-presidential nominee has spoken often about drug-afflicted communities like the one he escaped. But those communities have tempered their expectations for his help.`\
 https://nytimes.com/2024/07/26/us/politics/vance-addiction.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/26/business/45-tesla-q2-earnings.html
 **Iraqi judoka records first positive doping test of Paris Olympics**\
 `An Iraqi judoka has recorded the first positive doping test of the 2024 Paris Olympics, the International Testing Agency (ITA) said on Friday.`\
 https://nytimes.com/athletic/5660781/2024/07/26/olympics-paris-doping-positive-judo/
-
-**Trump Meets With Netanyahu After Urging Israel to End War in Gaza**\
-`Ahead of the meeting, Mr. Trump insisted Israel needed to end the war as quickly as possible.`\
-https://nytimes.com/2024/07/26/us/politics/trump-netanyahu.html
-
-**Firefighters From Around the World Headed to Canada to Battle Wildfires**\
-`Fast-moving fires may have destroyed as much as half of the picturesque town of Jasper, Alberta, and have ravaged Jasper National Park.`\
-https://nytimes.com/2024/07/26/world/americas/canada-wildfires-jasper-alberta-firefighters.html
-
-**Bucks GM Jon Horst details team's quiet offseason, Giannis at Olympics and Year 2 of Lillard**\
-`"None of us are happy with the results last season," Horst told The Athletic. He believes the Bucks are one of the best teams in the NBA.`\
-https://nytimes.com/athletic/5658320/2024/07/26/bucks-jon-horst-qa-giannis-lillard/
 
