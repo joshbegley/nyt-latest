@@ -1,3 +1,7 @@
+**Sunny recorded scenes peak through the rainy festivities.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/sunny-recorded-scenes-peak-through-the-rainy-festivities
+
 **My Partner Told Me About His Fights With His Ex. I Think I’m on Her Side.**\
 `The magazine’s Ethicist columnist on how partners can evaluate their romantic histories together — and be honest and respectful in their assessments.`\
 https://nytimes.com/2024/07/26/magazine/partner-ex-girlfriend-ethics.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5661121/2024/07/26/ryan-sessegnon-fulham-transfer-r
 `By Dianna Russini, Jeff Howe, Larry Holder and Amos Morale III
 The Miami Dolphins and quarterback Tua Tagovailoa have agreed to a four-year, $212.`\
 https://nytimes.com/athletic/5596745/2024/07/26/tua-tagovailoa-contract-miami-dolphins/
-
-**A woman’s long overlooked contributions to the Olympics are recognized.**\
-`By John Branch`\
-https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/a-womans-long-overlooked-contributions-to-the-olympics-are-recognized
 

@@ -1,3 +1,15 @@
+**My Partner Told Me About His Fights With His Ex. I Think I’m on Her Side.**\
+`The magazine’s Ethicist columnist on how partners can evaluate their romantic histories together — and be honest and respectful in their assessments.`\
+https://nytimes.com/2024/07/26/magazine/partner-ex-girlfriend-ethics.html
+
+**NASA Aims to Restore Space Station Traffic After SpaceX and Boeing Problems**\
+`With the Falcon 9 rocket set to fly again, and testing of the Starliner capsule progressing, the agency is seeking to turn the page on a brief, troubled chapter in orbit.`\
+https://nytimes.com/2024/07/26/science/nasa-spacex-boeing-iss.html
+
+**It’s too early too worry about the Patriots offense … right?**\
+`The Patriots offense is off to a rough start. But it's still early, and there's plenty of time for that to change. (Right?)`\
+https://nytimes.com/athletic/5661132/2024/07/26/patriots-offense-maye-brissett/
+
 **Team U.S.A. is wearing navy blazers — again.**\
 `By Vanessa Friedman`\
 https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/team-usa-is-wearing-navy-blazers-again-fashion
