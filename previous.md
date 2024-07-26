@@ -1,3 +1,11 @@
+**49ers training camp: Deebo Samuel eager to score some kick-return TDs; O-line banged up**\
+`While three of the 49ers' rookie draft picks missed Friday's practice with injuries, one found himself lining up with the starters.`\
+https://nytimes.com/athletic/5661415/2024/07/26/49ers-training-camp-deebo-samuel-kick-return/
+
+**Clear Encampments? Mind Your Own Business, Los Angeles Says.**\
+`In California, Gov. Gavin Newsom’s declaration urging cities to clear homeless camps met its strongest opposition in Los Angeles.`\
+https://nytimes.com/2024/07/26/us/homeless-encampments-newsom-los-angeles.html
+
 **Nick Chubb working out at Browns training camp, slowly preparing for his return**\
 `“I’d say Nick is progressing exactly where he should be,” Cleveland coach Kevin Stefanski said about the four-time Pro Bowl running back.`\
 https://nytimes.com/athletic/5661267/2024/07/26/browns-nick-chubb-return-training-camp/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/26/nyregion/omny-metrocards-students-nyc.html
 **House v. NCAA settlement takes next step toward schools paying athletes**\
 `New documents were filed in the historic House v.`\
 https://nytimes.com/athletic/5660945/2024/07/26/ncaa-house-settlement-college-sports/
-
-**Seattle Mariners acquire reliever Yimi García from Toronto Blue Jays**\
-`The Blue Jays are expected to be significant sellers over the next few days and they've traded one of their best chips in García.`\
-https://nytimes.com/athletic/5661444/2024/07/26/mariners-blue-jays-yimi-garcia-trade/
-
-**Though Critical on Gaza, Trump Cites Good Relations With Netanyahu**\
-`The former president met with the Israeli leader in Florida, a day after his main opponent, Vice President Kamala Harris, and he both criticized Israel’s conduct of the war.`\
-https://nytimes.com/2024/07/26/world/middleeast/israel-hamas-gaza-trump-netanyahu.html
 
