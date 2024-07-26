@@ -1,3 +1,19 @@
+**The Athletic FC: Why Premier League loves France; More fallout from Olympic spying scandal**\
+`Why France's Ligue 1 is the favourite hunting ground for Premier League scouts, and what's the latest with the Olympic spying controversy?`\
+https://nytimes.com/athletic/5660212/2024/07/26/athletic-newsletter-premier-league-transfers/
+
+**Here’s How The New York Times Is Bringing You the Olympics**\
+`Our reporters, photographers, editors and graphics team are in Paris to tell you the stories of triumph, disappointment and much more.`\
+https://nytimes.com/2024/07/26/insider/olympics-paris-coverage.html
+
+**Behind the Democrats’ Fight Over Lina Khan’s Future**\
+`A debate over whether the F.T.C. chair should stay reflects broader anxiety over how Kamala Harris would regulate business.`\
+https://nytimes.com/2024/07/26/business/dealbook/behind-the-democrats-fight-over-lina-khans-future.html
+
+**The USWNT has arrived at the Olympics… and so has the Trin Spin**\
+`Emma Hayes' work with the USWNT is only just beginning but there are signs of improvement and togetherness already`\
+https://nytimes.com/athletic/5660287/2024/07/26/uswnt-trin-spin-olympics-zambia/
+
 **Yang, Gray and Bergvall signings point to a clear plan - Spurs are investing in the future**\
 `Spurs have signed some of the best teenage talent in the world in recent months — can Postecoglou help them reach their potential?`\
 https://nytimes.com/athletic/5658689/2024/07/26/tottenham-transfers-yang-gray-bergvall/

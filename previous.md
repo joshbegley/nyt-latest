@@ -1,3 +1,15 @@
+**The Athletic FC: Why Premier League loves France; More fallout from Olympic spying scandal**\
+`Why France's Ligue 1 is the favourite hunting ground for Premier League scouts, and what's the latest with the Olympic spying controversy?`\
+https://nytimes.com/athletic/5660212/2024/07/26/athletic-newsletter-premier-league-transfers/
+
+**Here’s How The New York Times Is Bringing You the Olympics**\
+`Our reporters, photographers, editors and graphics team are in Paris to tell you the stories of triumph, disappointment and much more.`\
+https://nytimes.com/2024/07/26/insider/olympics-paris-coverage.html
+
+**Behind the Democrats’ Fight Over Lina Khan’s Future**\
+`A debate over whether the F.T.C. chair should stay reflects broader anxiety over how Kamala Harris would regulate business.`\
+https://nytimes.com/2024/07/26/business/dealbook/behind-the-democrats-fight-over-lina-khans-future.html
+
 **Yang, Gray and Bergvall signings point to a clear plan - Spurs are investing in the future**\
 `Spurs have signed some of the best teenage talent in the world in recent months — can Postecoglou help them reach their potential?`\
 https://nytimes.com/athletic/5658689/2024/07/26/tottenham-transfers-yang-gray-bergvall/
@@ -6,7 +18,7 @@ https://nytimes.com/athletic/5658689/2024/07/26/tottenham-transfers-yang-gray-be
 `Hundreds were stuck at train stations in Paris and London as operators canceled and delayed trains on Friday after the attacks.`\
 https://nytimes.com/2024/07/26/world/olympics/paris-london-train-station.html
 
-**The USWNT have arrived at the Olympics and so has the Trin Spin**\
+**The USWNT has arrived at the Olympics… and so has the Trin Spin**\
 `Emma Hayes' work with the USWNT is only just beginning but there are signs of improvement and togetherness already`\
 https://nytimes.com/athletic/5660287/2024/07/26/uswnt-trin-spin-olympics-zambia/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/26/world/olympics/olympics-paris-train-arson.html
 **Broncos QB battle: Finding a 'happy medium' between safe and soaring pass attempts**\
 `The participants in the Broncos' quarterback competition have largely avoided mistakes, but progress must be made in attacking up the field.`\
 https://nytimes.com/athletic/5659254/2024/07/26/broncos-qb-battle-passing/
-
-**For Jerry Stackhouse, chance to join Warriors' coaching staff came at 'perfect' time**\
-`The two-time All-Star had plans to reach out and visit with NBA teams, including the Warriors. But they called him first.`\
-https://nytimes.com/athletic/5658907/2024/07/26/jerry-stackhouse-warriors-coaching-staff/
-
-**Lowetide: Who are Connor McDavid's 'perfect fit' linemates for 2024-25?**\
-`One of the keys for Edmonton this coming season is to ice several outscoring lines.`\
-https://nytimes.com/athletic/5650814/2024/07/26/connor-mcdavid-oilers-lines-2024/
-
-**Rohan Bopanna: A short walk and a long stretch to late-career glory**\
-`Rohan Bopanna's path to world No 1 in doubles and a Grand Slam title with Matt Ebden is built on yoga in southern India`\
-https://nytimes.com/athletic/5430231/2024/07/26/rohan-bopanna-tennis-doubles-olympics-yoga/
 
