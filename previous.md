@@ -1,3 +1,11 @@
+**For Billy Joel Fans, a New York Night to Remember**\
+`Thousands of people piled into Madison Square Garden on Thursday to hear Billy Joel glide from rock song to soulful blues in the final show of his long residency at the arena on Thursday night.`\
+https://nytimes.com/2024/07/25/arts/music/billy-joel-madison-square-garden.html
+
+**Harris Said to Be Planning to Announce V.P. Pick by Aug. 7**\
+`The first rounds of interviews will be held by video calls, as the Harris campaign aims to condense a typically monthslong process into a few weeks.`\
+https://nytimes.com/live/2024/07/25/us/harris-trump-biden-election/harris-said-to-be-planning-to-announce-vp-pick-by-aug-7
+
 **Even if Giants aggressively sell, go-for-broke season's luxury tax implications are inescapable**\
 `The Giants have some players they could make available after a 2-5 road trip, but the team's financial standing will likely remain the same.`\
 https://nytimes.com/athletic/5659860/2024/07/25/sf-giants-trade-deadline-luxury-tax/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5659704/2024/07/25/julian-love-contract-seahawks-tr
 **Canada removes coach Priestman after more drone revelations**\
 `Priestman is suspended for the remainder of the Games and until an independent external review is complete after "new revelations."`\
 https://nytimes.com/athletic/5659693/2024/07/25/bev-priestman-removed-canada-soccer-coach-olympics/
-
-**Breaking Down Netanyahu’s Speech in Congress**\
-`In his fourth speech to Congress, a record for a foreign leader, Prime Minister Benjamin Netanyahu of Israel attempted to change the narrative about the fallout from the war in Gaza.`\
-https://nytimes.com/video/world/middleeast/100000009590334/breaking-down-netanyahus-speech-in-congress.html
-
-**How a U.S. Antidoping Law Fueled Global Tensions**\
-`The Olympics are opening amid outright antagonism between international sports authorities and the United States over American investigations into the handling of doping allegations abroad.`\
-https://nytimes.com/2024/07/25/us/politics/olympics-us-antidoping-wada.html
 

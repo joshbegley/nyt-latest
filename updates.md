@@ -1,3 +1,11 @@
+**For Billy Joel Fans, a New York Night to Remember**\
+`Thousands of people piled into Madison Square Garden on Thursday to hear Billy Joel glide from rock song to soulful blues in the final show of his long residency at the arena on Thursday night.`\
+https://nytimes.com/2024/07/25/arts/music/billy-joel-madison-square-garden.html
+
+**Harris Said to Be Planning to Announce V.P. Pick by Aug. 7**\
+`The first rounds of interviews will be held by video calls, as the Harris campaign aims to condense a typically monthslong process into a few weeks.`\
+https://nytimes.com/live/2024/07/25/us/harris-trump-biden-election/harris-said-to-be-planning-to-announce-vp-pick-by-aug-7
+
 **Even if Giants aggressively sell, go-for-broke season's luxury tax implications are inescapable**\
 `The Giants have some players they could make available after a 2-5 road trip, but the team's financial standing will likely remain the same.`\
 https://nytimes.com/athletic/5659860/2024/07/25/sf-giants-trade-deadline-luxury-tax/
