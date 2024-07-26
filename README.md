@@ -19,8 +19,8 @@ https://nytimes.com/2024/07/26/opinion/kamala-harris-campaign-advice.html
 https://nytimes.com/live/2024/07/22/opinion/thepoint/trump-may-pay-a-steep-price-for-vance
 
 **What was with that heavy metal band? That was Gojira.**\
-`By Alex Marshall`\
-https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/what-was-with-that-heavy-metal-band-that-was-gojira
+`Gojira, a popular French band, became the first hard rock act to perform in an Olympic Games opening ceremony when it did a metal version of “Ah! Ça Ira,” a song that was popular during the French Revolution.`\
+https://nytimes.com/article/opening-ceremony-heavy-metal-band-gojira.html
 
 **Patrick Mahomes on Raiders' Kermit the Frog incident: 'It’ll get handled when it gets handled'**\
 `A video circulated Thursday of Raiders safety Trey Taylor holding a fan's "Kermit the Frog" doll donning a Patrick Mahomes jersey and wig.`\
