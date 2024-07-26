@@ -1,3 +1,11 @@
+**The Evolution of Usha Vance**\
+`An accomplished Yale-educated lawyer, she has left her job at a top firm as she adjusts to the life of a high-profile political spouse.`\
+https://nytimes.com/2024/07/25/style/usha-vance-jd-vance-trump-political-wife.html
+
+**Dodgers' Clayton Kershaw returns with appreciation: 'I'm not going to take it for granted'**\
+`Dave Roberts said Kershaw's first start back gave him confidence that the pitcher would ready for a postseason run.`\
+https://nytimes.com/athletic/5659769/2024/07/25/dodgers-clayton-kershaw-returns/
+
 **Dak Prescott is at peace with this perhaps being his final year with the Cowboys**\
 `Will Prescott's ninth season with the Cowboys be his last? "I think Dak wants to be a Cowboy," Stephen Jones said.`\
 https://nytimes.com/athletic/5659771/2024/07/25/dak-prescott-cowboys-final-season/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5659667/2024/07/25/chargers-training-camp-highlight
 **Zendaya, Mick Jagger and Snoop Dogg Step Out in Paris for the Olympics**\
 `Athletes, actors and fashion designers celebrated before the opening of the Games in Paris at a bash hosted by LVMH, the French luxury goods conglomerate.`\
 https://nytimes.com/2024/07/25/style/olympics-paris-party-lvmh.html
-
-**Chicago Is Prepared to Safely Host Democrats’ Convention, Officials Say**\
-`The Secret Service, which has been under scrutiny since the assassination attempt against Donald J. Trump, says it has reviewed its security plan for the convention in August.`\
-https://nytimes.com/2024/07/25/us/chicago-democratic-national-convention-security.html
-
-**F.B.I. Examining Bullet Fragments Found at Trump Rally Site**\
-`The bureau is assessing what caused the former president’s wound during an assassination attempt. The question has turned political.`\
-https://nytimes.com/2024/07/25/us/politics/fbi-bullet-trump-rally.html
 
