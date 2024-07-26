@@ -1,40 +1,40 @@
-**Now Facing Harris, Trump Backs Off Commitment to Debate in September**\
-`The former president suggested moving a debate from ABC News to Fox.`\
-https://nytimes.com/2024/07/25/us/politics/trump-harris-biden-debate.html
+**As Starvation Spreads in Sudan, Military Blocks Aid Trucks at Border**\
+`A country torn apart by civil war could soon face one of the world’s worst famines in decades, experts said.`\
+https://nytimes.com/2024/07/26/world/africa/sudan-starvation-military-border.html
 
-**Rosenthal: What I'm hearing about the MLB trade deadline including the Rangers, Angels and more**\
-`The Rangers are going for it, the Angels are open to offers and the Pirates are scouting the Marlins' Jazz Chisholm Jr. `\
-https://nytimes.com/athletic/5659940/2024/07/25/mlb-trade-deadline-rangers-angels-pirates/
+**Full Stands, Full Volume: The Olympics You Remember Are Back**\
+`Family, friends and fans were missing from two straight Covid Games. In Paris, one athlete said, competitors will have the kind of experience they dream about.`\
+https://nytimes.com/2024/07/26/world/olympics/paris-athletes-pandemic.html
 
-**For Billy Joel Fans, a New York Night to Remember**\
-`Thousands of people piled into Madison Square Garden on Thursday to hear Billy Joel’s catalog of hits in the final show of his long residency at the arena.`\
-https://nytimes.com/2024/07/25/arts/music/billy-joel-madison-square-garden.html
+**Will These Sensational Skateboarding Tricks Win Japan Olympic Gold?**\
+`They have landed some of the most difficult tricks in the history of skateboarding. But in Paris, they may have a problem.`\
+https://nytimes.com/interactive/2024/07/26/world/asia/japan-skateboarding.html
 
-**MLB Trade Grades: Diamondbacks add A.J. Puk from Marlins to bolster bullpen**\
-`Puk adds versatility and another late-inning option to the Diamondbacks bullpen; how did both teams do in the deal?  `\
-https://nytimes.com/athletic/5659948/2024/07/25/diamondbacks-marlins-aj-puk-trade-grades/
+**In Japan, Turning the Tables on Rude Customers**\
+`The country is famous for its hospitality. But businesses have had enough of people screaming at workers or tormenting them on social media.`\
+https://nytimes.com/2024/07/26/world/asia/in-japan-turning-the-tables-on-rude-customers.html
 
-**Harris is said to be planning to announce her V.P. pick by Aug. 7.**\
-`The first rounds of interviews will be held by video calls, as the Harris campaign aims to condense a typically monthslong process into a few weeks.`\
-https://nytimes.com/live/2024/07/25/us/harris-trump-biden-election/harris-said-to-be-planning-to-announce-vp-pick-by-aug-7
+**Vintage of War**\
+`A single image captures the change in fortunes for a wine cellar turned field hospital in Russian-occupied Ukraine.`\
+https://nytimes.com/2024/07/26/world/europe/vintage-of-war.html
 
-**Even if Giants aggressively sell, go-for-broke season's luxury tax implications are inescapable**\
-`The Giants have some players they could make available after a 2-5 road trip, but the team's financial standing will likely remain the same.`\
-https://nytimes.com/athletic/5659860/2024/07/25/sf-giants-trade-deadline-luxury-tax/
+**Corrections: July 26, 2024**\
+`Corrections that appeared in print on Friday, July 26, 2024.`\
+https://nytimes.com/2024/07/26/pageoneplus/corrections-july-26-2024.html
 
-**They’re Around Two Feet**\
-`Andy Kravis returns after a two-year absence with a lively puzzle.`\
-https://nytimes.com/2024/07/25/crosswords/daily-puzzle-2024-07-26.html
+**Quotation of the Day: Out of Isolation Ward, Olympics Regain Fervor**\
+`Quotation of the Day for Friday, July 26, 2024.`\
+https://nytimes.com/2024/07/26/pageoneplus/quotation-of-the-day-out-of-isolation-ward-olympics-regain-fervor.html
 
-**Marlins trade reliever A.J. Puk to D-Backs**\
-`The Marlins will receive infielder Deyvison De Los Santos and outfielder Andrew Pintar from the Diamondbacks.`\
-https://nytimes.com/athletic/5659879/2024/07/25/miami-marlins-aj-puk-arizona-diamondbacks/
+**A Life Shaken by an Old Love Letter**\
+`To be drawn into the past is to experience it anew.`\
+https://nytimes.com/2024/07/26/style/modern-love-life-shaken-by-old-love-letter.html
 
-**The Evolution of Usha Vance**\
-`An accomplished Yale-educated lawyer, she has left her job at a top firm as she adjusts to the life of a high-profile political spouse.`\
-https://nytimes.com/2024/07/25/style/usha-vance-jd-vance-trump-political-wife.html
+**Home is Wherever They Are Together**\
+`Paulina Krzysztoszek and Cory Bolotsky, who met in Mexico and continue to live a nomadic lifestyle, have grown their relationship in 29 countries and counting.`\
+https://nytimes.com/2024/07/26/style/paulina-krzysztoszek-cory-bolotsky-wedding.html
 
-**Dodgers' Clayton Kershaw returns with appreciation: 'I'm not going to take it for granted'**\
-`Dave Roberts said Kershaw's first start back gave him confidence that the pitcher would ready for a postseason run.`\
-https://nytimes.com/athletic/5659769/2024/07/25/dodgers-clayton-kershaw-returns/
+**A Bubbly Start, Then ‘Totally in Love’ by the Second Date**\
+`Kelly Lyles and Ron Verstappen coincidentally each sipped Champagne as they first chatted on the phone. They soon began sharing a glass daily.`\
+https://nytimes.com/2024/07/26/style/kelly-lyles-and-ron-verstappen-wedding.html
 

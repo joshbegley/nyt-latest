@@ -1,3 +1,7 @@
+**For Billy Joel Fans, a New York Night to Remember**\
+`Thousands of people piled into Madison Square Garden on Thursday to hear Billy Joel’s catalog of hits in the final show of his long residency at the arena.`\
+https://nytimes.com/2024/07/25/arts/music/billy-joel-madison-square-garden.html
+
 **Now Facing Harris, Trump Backs Off Commitment to Debate in September**\
 `The former president suggested moving a debate from ABC News to Fox.`\
 https://nytimes.com/2024/07/25/us/politics/trump-harris-biden-debate.html
