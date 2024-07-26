@@ -1,3 +1,7 @@
+**Arson Attacks on French Rail Leave People Stranded**\
+`Hundreds were stuck at train stations in Paris and London as operators canceled and delayed trains on Friday after the attacks.`\
+https://nytimes.com/2024/07/26/world/olympics/paris-london-train-station.html
+
 **The USWNT have arrived at the Olympics and so has the Trin Spin**\
 `Emma Hayes' work with the USWNT is only just beginning but there are signs of improvement and togetherness already`\
 https://nytimes.com/athletic/5660287/2024/07/26/uswnt-trin-spin-olympics-zambia/
