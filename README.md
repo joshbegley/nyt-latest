@@ -1,3 +1,7 @@
+**When A.I. Fails the Language Test, Who Is Left Out of the Conversation?**\
+`The use of artificial intelligence is exploding around the world, but the technology’s language models are primarily trained in English, leaving many speakers of other languages behind.`\
+https://nytimes.com/2024/07/26/technology/ai-language-gap.html
+
 **Park Fire, Now California’s Largest This Year, Spreads Rapidly**\
 `One man is being held without bail after a witness saw him push a flaming vehicle down an embankment on Wednesday, the authorities said. The Park fire has burned more than 164,000 acres.`\
 https://nytimes.com/2024/07/26/us/park-fire-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/26/books/review/new-paperbacks-vandermee
 **The 5 biggest storylines as Kirk Cousins, new-look Falcons open training camp**\
 `Quarterback Kirk Cousins took every first-team rep Thursday as the Falcons opened training camp under coach Raheem Morris.`\
 https://nytimes.com/athletic/5659300/2024/07/26/atlanta-falcons-training-camp-storylines/
-
-**5 Things to Do This Weekend**\
-`A selection of entertainment highlights this weekend, including “Deadpool & Wolverine.”`\
-https://nytimes.com/interactive/2024/07/26/arts/weekend-editors-picks-deadpool-wolverine.html
 
