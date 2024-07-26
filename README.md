@@ -1,3 +1,7 @@
+**Venezuela Is Ready for Change. Maduro Must Allow It.**\
+`It is clear Venezuelans have chosen to oust President Maduro. Whether that will happen remains in question.`\
+https://nytimes.com/2024/07/26/opinion/venezuela-elections-gonzalez-maduro.html
+
 **Friday Briefing**\
 `A new poll from the U.S. presidential race.`\
 https://nytimes.com/2024/07/26/briefing/election-olympics-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5652363/2024/07/26/leny-yoro-at-lille-and-his-early
 **Adrian exclusive: Why he had to leave Liverpool - and building his perfect goalkeeper**\
 `The Spanish goalkeeper has returned 'home' after five years at Anfield and is in no mood to wind down`\
 https://nytimes.com/athletic/5655740/2024/07/26/adrian-liverpool-betis-interview/
-
-**Endrick, Mbappe and Real Madrid's €1.8billion squad value explained**\
-`The CIES Football Observatory values Madrid's squad highly - here's what the figures mean`\
-https://nytimes.com/athletic/5657702/2024/07/26/real-madrid-endrick-mbappe-values/
 
