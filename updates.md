@@ -1,3 +1,7 @@
+**45%**\
+`Tesla’s drop in profit in the second quarter.`\
+https://nytimes.com/2024/07/26/business/45-tesla-q2-earnings.html
+
 **Iraqi judoka records first positive doping test of Paris Olympics**\
 `An Iraqi judoka has recorded the first positive doping test of the 2024 Paris Olympics, the International Testing Agency (ITA) said on Friday.`\
 https://nytimes.com/athletic/5660781/2024/07/26/olympics-paris-doping-positive-judo/

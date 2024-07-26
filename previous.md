@@ -1,3 +1,7 @@
+**45%**\
+`Tesla’s drop in profit in the second quarter.`\
+https://nytimes.com/2024/07/26/business/45-tesla-q2-earnings.html
+
 **Iraqi judoka records first positive doping test of Paris Olympics**\
 `An Iraqi judoka has recorded the first positive doping test of the 2024 Paris Olympics, the International Testing Agency (ITA) said on Friday.`\
 https://nytimes.com/athletic/5660781/2024/07/26/olympics-paris-doping-positive-judo/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/26/arts/music/billy-joel-madison-square-garden-photo
 **Scandal Hits U.K.’s ‘Strictly Come Dancing,’ the Original ‘Dancing With the Stars’**\
 `The BBC said it would add chaperones to rehearsals after allegations of abusive behavior at a hugely popular dance show that inspired international versions.`\
 https://nytimes.com/2024/07/26/world/europe/strictly-come-dancing-bbc-scandal.html
-
-**Transportation disruptions in France are expected to last through Monday.**\
-`By Liz Alderman`\
-https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/transportation-disruptions-in-france-are-expected-to-last-through-monday
 
