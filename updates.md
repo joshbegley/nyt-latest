@@ -1,3 +1,7 @@
+**Maguire: End-of-season injury toughest moment of my career**\
+`Harry Maguire has described missing out on Manchester United’s FA Cup victory and England’s run to the European Championship final as “the toughest moment of my career”.`\
+https://nytimes.com/athletic/5660120/2024/07/26/harry-maguire-man-utd-injury/
+
 **‘Deadpool & Wolverine’ | Anatomy of a Scene**\
 `The director Shawn Levy narrates a sequence from his film starring Ryan Reynolds and Hugh Jackman.`\
 https://nytimes.com/video/movies/100000009589114/deadpool-and-wolverine-scene.html

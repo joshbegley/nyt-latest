@@ -1,3 +1,7 @@
+**Maguire: End-of-season injury toughest moment of my career**\
+`Harry Maguire has described missing out on Manchester United’s FA Cup victory and England’s run to the European Championship final as “the toughest moment of my career”.`\
+https://nytimes.com/athletic/5660120/2024/07/26/harry-maguire-man-utd-injury/
+
 **‘Deadpool & Wolverine’ | Anatomy of a Scene**\
 `The director Shawn Levy narrates a sequence from his film starring Ryan Reynolds and Hugh Jackman.`\
 https://nytimes.com/video/movies/100000009589114/deadpool-and-wolverine-scene.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/world/olympics-opening-ceremony/arson-france-train
 **Whose Politics Are More Turbulent, America’s or Australia’s?**\
 `Prime Minister Anthony Albanese, citing the revolving door of prime ministers, said his own country was in no position to criticize the United States.`\
 https://nytimes.com/2024/07/26/world/australia/turbulent-politics-australia-america.html
-
-**Word of the Day: haptic**\
-`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/07/26/learning/word-of-the-day-haptic.html
 
