@@ -1,3 +1,11 @@
+**For Epidemics to Cross Oceans, Viruses on Ships Had to Beat the Odds**\
+`In the era when people traveled by sailing ship and steamer, illnesses usually burned themselves out before boats reached shore, a new study finds.`\
+https://nytimes.com/2024/07/26/health/viruses-ships-transmission.html
+
+**Phillies acquire Austin Hays from Orioles in trade for Seranthony Domínguez, Cristian Pache**\
+`The Phillies found their platoon partner for Brandon Marsh from an unexpected source — another contending team.`\
+https://nytimes.com/athletic/5660904/2024/07/26/phillies-orioles-trade-austin-hays-seranthony-dominguez-cristian-pache/
+
 **Five International Movies to Stream Now**\
 `This month’s picks include a ’90s coming-of-age tale from India, a Turkish noir set in a zoo, a Romanian drama about provincial politics and more.`\
 https://nytimes.com/2024/07/26/movies/international-movies-streaming.html
@@ -29,12 +37,4 @@ https://nytimes.com/article/saboteurs-targeted-a-rail-network-so-vast-that-its-i
 **Dewsbury-Hall: 'Will Maresca surprise people at Chelsea? Definitely.'**\
 `The Chelsea midfielder on telling his new team-mates all about their manager, his England hopes, and why Maresca can have a big impact`\
 https://nytimes.com/athletic/5660209/2024/07/26/dewsbury-hall-chelsea-maresca-interview/
-
-**Battling Inflation, Russia Raises Key Interest Rate to 18 Percent**\
-`The move underscored the wartime risks for the Kremlin as the government pumps enormous sums of money into the Russian economy.`\
-https://nytimes.com/2024/07/26/world/europe/russia-inflation-interest-rate.html
-
-**45%**\
-`Tesla’s drop in profit in the second quarter.`\
-https://nytimes.com/2024/07/26/business/45-tesla-q2-earnings.html
 

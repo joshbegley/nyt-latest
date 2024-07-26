@@ -1,3 +1,11 @@
+**For Epidemics to Cross Oceans, Viruses on Ships Had to Beat the Odds**\
+`In the era when people traveled by sailing ship and steamer, illnesses usually burned themselves out before boats reached shore, a new study finds.`\
+https://nytimes.com/2024/07/26/health/viruses-ships-transmission.html
+
+**Phillies acquire Austin Hays from Orioles in trade for Seranthony Domínguez, Cristian Pache**\
+`The Phillies found their platoon partner for Brandon Marsh from an unexpected source — another contending team.`\
+https://nytimes.com/athletic/5660904/2024/07/26/phillies-orioles-trade-austin-hays-seranthony-dominguez-cristian-pache/
+
 **Five International Movies to Stream Now**\
 `This month’s picks include a ’90s coming-of-age tale from India, a Turkish noir set in a zoo, a Romanian drama about provincial politics and more.`\
 https://nytimes.com/2024/07/26/movies/international-movies-streaming.html
