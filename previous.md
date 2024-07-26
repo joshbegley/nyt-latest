@@ -1,3 +1,15 @@
+**Two Women Killed in Upper East Side Murder-Suicide**\
+`The shooting took place just a half block from Gracie Mansion, the official residence of the New York City mayor, and was related to a child-custody dispute, according to the police.`\
+https://nytimes.com/2024/07/26/nyregion/upper-east-side-murder-suicide.html
+
+**Pegula first appearance since cardiac arrest**\
+`Kim Pegula suffered a debilitating heart attack in summer of 2022.`\
+https://nytimes.com/athletic/5661014/2024/07/26/kim-pegula-buffalo-bills-first-appearance-cardiac-arrest/
+
+**The Olympic medals will have a piece of the Eiffel Tower.**\
+`By Aurelien Breeden`\
+https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/the-olympic-medals-will-have-a-piece-of-the-eiffel-tower
+
 **Fast-Moving Wildfires Burn Canada’s Jasper National Park**\
 `Devastating wildfires have forced thousands of residents and tourists to evacuate Jasper, Canada.`\
 https://nytimes.com/video/weather/100000009594302/jasper-canada-wildfire.html
@@ -25,16 +37,4 @@ https://nytimes.com/article/olympics-ceremony-performers.html
 **Why LeBron, Gauff are U.S. Olympic flag bearers**\
 `Gauff, 20, is the youngest flag bearer in U.S. Olympic history, overtaking Cindy Nelson (1976 Winter Olympics, Innsbruck, Austria).`\
 https://nytimes.com/athletic/5660834/2024/07/26/lebron-coco-gauff-olympic-flag-bearers-faq/
-
-**Book Club: Let’s Talk About ‘The Talented Mr. Ripley’**\
-`Patricia Highsmith’s classic thriller mixes glamour, betrayal, self-invention and murder. What’s not to love?`\
-https://nytimes.com/2024/07/26/books/review/podcast-talent-mr-ripley-patricia-highsmith.html
-
-**It’s Shark Season. How Worried Should You Be?**\
-`Attacks are rare, but they do happen. Here's what you need to know.`\
-https://nytimes.com/interactive/2024/07/26/well/shark-season-attacks-survival-tips.html
-
-**A city of light and shadows is redrawn for the Olympics.**\
-`By Roger Cohen`\
-https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/a-city-of-light-and-shadows-is-redrawn-for-the-olympics
 
