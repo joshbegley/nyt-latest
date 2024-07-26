@@ -26,7 +26,7 @@ https://nytimes.com/2024/07/26/crosswords/wordle-review-1135.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/07/26/crosswords/spelling-bee-forum.html
 
-**Here’s the latest on the train disruption.**\
+**Here are the latest updates on the train line attacks.**\
 `The national railway company said three lines were disrupted by the attacks, causing massive delays.`\
 https://nytimes.com/live/2024/world/olympics-opening-ceremony/arson-france-trains-olympics
 
