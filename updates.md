@@ -1,3 +1,7 @@
+**Craig Breslow aggressive ahead of deadline, hoping to add more pitching**\
+`“I think our expectation is we can walk out of the deadline a better team than we were going into it,” Breslow said.`\
+https://nytimes.com/athletic/5661735/2024/07/26/red-sox-craig-breslow-trade-deadline-strategy/
+
 **Doused by Rain, Paris Opens Its Games With a Boat Party on the Seine**\
 `Undeterred by arson attacks on rail lines earlier in the day, the Parade of Nations continued beneath a glittering Eiffel Tower, where Celine Dion belted out a love anthem.`\
 https://nytimes.com/2024/07/26/world/olympics/paris-olympics-opening-ceremony.html
