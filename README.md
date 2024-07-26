@@ -1,3 +1,7 @@
+**With Long Hours and a No-Fail Mission, the Secret Service Tries to Make Do**\
+`The agency charged with protecting presidents and foreign leaders has its largest ever budget but employees say it is still unable to recruit and retain enough people to carry the load.`\
+https://nytimes.com/2024/07/26/business/with-long-hours-and-a-no-fail-mission-the-secret-service-tries-to-make-do.html
+
 **At the opening ceremony, the illusion persists that it’s a small world after all.**\
 `By Jason Farago`\
 https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/at-the-opening-ceremony-the-illusion-persists-that-its-a-small-world-after-all
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/a-cit
 **Charles Barkley to entertain deals if TNT doesn't honor contract**\
 `Barkley said he planned to retire during the NBA Finals, but said he would be “stupid” not to listen to offers from ESPN, NBC and Amazon.`\
 https://nytimes.com/athletic/5660857/2024/07/26/charles-barkley-tnt-contract-free-agent-espn-nbc-amazon/
-
-**Can Fees on Polluting Cars Clean the Air? London Has New Evidence.**\
-`The city’s expanded low-emissions zone, which was politically fraught, has cut emissions that contribute to health problems like asthma, new numbers show.`\
-https://nytimes.com/2024/07/26/climate/congestion-pricing-ulez-london-pollution.html
 
