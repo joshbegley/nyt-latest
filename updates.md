@@ -1,3 +1,7 @@
+**Fed’s Preferred Inflation Measure Cooled Overall in June**\
+`The Personal Consumption Expenditures Index climbed 2.5 percent, still more than the Fed’s 2 percent target, as price increases take time to come down.`\
+https://nytimes.com/2024/07/26/business/economy/federal-reserve-inflation-cooled.html
+
 **Twins pitcher's mom catches Topps' attention for haggling over his baseball card**\
 `Kody Funderburk's mom tried to get a better deal on her son's card and her efforts ended up on social media `\
 https://nytimes.com/athletic/5659954/2024/07/26/kody-funderburk-twins-baseball-cards/

@@ -26,7 +26,7 @@ https://nytimes.com/2024/07/26/your-money/chase-pay-later-loans-credit-cards.htm
 `Mario Lemina has been named as Wolves’ new captain following Max Kilman’s departure for West Ham United.`\
 https://nytimes.com/athletic/5660506/2024/07/26/mario-lemina-wolves-captain-new/
 
-**Fed’s Preferred Inflation Number Cooled Overall in June**\
+**Fed’s Preferred Inflation Measure Cooled Overall in June**\
 `The Personal Consumption Expenditures Index climbed 2.5 percent, still more than the Fed’s 2 percent target, as price increases take time to come down.`\
 https://nytimes.com/2024/07/26/business/economy/federal-reserve-inflation-cooled.html
 
