@@ -1,3 +1,11 @@
+**The Evolution of Usha Vance**\
+`An accomplished Yale-educated lawyer, she has left her job at a top firm as she adjusts to the life of a high-profile political spouse.`\
+https://nytimes.com/2024/07/25/style/usha-vance-jd-vance-trump-political-wife.html
+
+**Dodgers' Clayton Kershaw returns with appreciation: 'I'm not going to take it for granted'**\
+`Dave Roberts said Kershaw's first start back gave him confidence that the pitcher would ready for a postseason run.`\
+https://nytimes.com/athletic/5659769/2024/07/25/dodgers-clayton-kershaw-returns/
+
 **Dak Prescott is at peace with this perhaps being his final year with the Cowboys**\
 `Will Prescott's ninth season with the Cowboys be his last? "I think Dak wants to be a Cowboy," Stephen Jones said.`\
 https://nytimes.com/athletic/5659771/2024/07/25/dak-prescott-cowboys-final-season/
