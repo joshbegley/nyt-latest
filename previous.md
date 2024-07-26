@@ -14,7 +14,7 @@ https://nytimes.com/2024/07/26/crosswords/wordle-review-1135.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/07/26/crosswords/spelling-bee-forum.html
 
-**Arson Attacks Disrupts Trains in France Hours Before Opening Ceremony of Olympics**\
+**Arson Attacks Disrupt Trains in France Hours Before Opening Ceremony of Olympics**\
 `The national railway company said three lines were disrupted by the attacks, causing massive delays.`\
 https://nytimes.com/2024/07/26/world/olympics/arson-france-trains-olympics.html
 
