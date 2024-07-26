@@ -1,40 +1,40 @@
-**America Has Questions for Kamala Harris and Donald Trump**\
-`Voters need a chance to see how the two candidates handle close public scrutiny in debates, interviews and informal events.`\
-https://nytimes.com/2024/07/26/opinion/kamala-harris-donald-trump-debate.html
+**Kamala Harris’s Bratty Coconut Memescape + What Does $1,000 a Month Do? + The Empire CrowdStrikes Back**\
+`An episode unburdened by what has been.`\
+https://nytimes.com/2024/07/26/podcasts/kamala-harriss-bratty-coconut-memescape-what-does-1000-a-month-do-the-empire-crowdstrikes-back.html
 
-**Watch Buyers Are on the Road Again**\
-`Swiss brands from Omega to Bulgari are expanding their travel retail offerings to match the resurgence in tourism.`\
-https://nytimes.com/2024/07/26/fashion/watches-travel-retail.html
+**6 Paperbacks to Read This Week **\
+`Recommended reading from the Book Review, including titles by Safiya Sinclair, Michael Cunningham, Tasha Sylva and more. `\
+https://nytimes.com/interactive/2024/07/26/books/review/new-paperbacks-vandermeer.html
 
-**The One Thing Watermelon Experts Do to Pick Sweet Ones**\
-`It’s not a myth: You really do need to slap them and listen carefully.`\
-https://nytimes.com/2024/07/26/dining/how-to-pick-a-watermelon.html
+**The 5 biggest storylines as Kirk Cousins, new-look Falcons open training camp**\
+`Quarterback Kirk Cousins took every first-team rep Thursday as the Falcons opened training camp under coach Raheem Morris.`\
+https://nytimes.com/athletic/5659300/2024/07/26/atlanta-falcons-training-camp-storylines/
 
-**You Can’t Escape This Color**\
-`“This is not millennial pink. The energy behind it is alive.”`\
-https://nytimes.com/2024/07/26/style/what-is-brat-green.html
+**5 Things to Do This Weekend**\
+`A selection of entertainment highlights this weekend, including “Deadpool & Wolverine.”`\
+https://nytimes.com/interactive/2024/07/26/arts/weekend-editors-picks-deadpool-wolverine.html
 
-**K Street Pivots for a Possible Harris Administration**\
-`Lobbyists and lawyers are raising money for Vice President Kamala Harris, the likely Democratic presidential nominee, and assessing what her term might look like.`\
-https://nytimes.com/2024/07/26/us/politics/kamala-harris-lobbyists.html
+**Slow Down if You See These Dating ‘Yellow Flags’**\
+`Are they deal-breakers? Here is how to tell.`\
+https://nytimes.com/2024/07/26/well/family/dating-yellow-flags-relationship.html
 
-**The Stages of Vance’s Political Conversion**\
-`A review of JD Vance’s writings and interviews reveals the gradual, complicated process behind his conversion from anti-Trump author to pro-Trump senator.`\
-https://nytimes.com/2024/07/26/us/politics/vance-political-conversion.html
+**The New York Times News Quiz, July 26, 2024**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2024/07/26/briefing/harris-biden-netanyahu-trump-news-quiz.html
 
-**I Created ‘Veep.’ The Real-Life Version Isn’t So Funny.**\
-`Politics has become so much like entertainment that the first thing we do to make sense of the moment is to test it against a sitcom.`\
-https://nytimes.com/2024/07/26/opinion/veep-selina-meyer-kamala-harris.html
+**Kamala Harris May Bring Out Trump’s Harshest Instincts**\
+`After years planning to face President Biden, Donald J. Trump and his team will now be campaigning against Kamala Harris. Maggie Haberman, a senior political correspondent for The New York Times, describes how Mr. Trump may try to frame his new opponent.`\
+https://nytimes.com/video/us/elections/100000009592584/kamala-harris-may-bring-out-trumps-harshest-instincts.html
 
-**Unlikely Heroes and Heroines in These Gems From Mexico Cinema’s Golden Age**\
-`A Lincoln Center retrospective puts the spotlight on midcentury movies aimed at the masses that continue to influence filmmakers.`\
-https://nytimes.com/2024/07/26/movies/mexico-cantinflas-maria-felix.html
+**The Unnerving Changeability of JD Vance**\
+`Vance has a history of remaking himself to suit the men in his life.`\
+https://nytimes.com/2024/07/26/opinion/jd-vance-changeability.html
 
-**A Test for Harris: How to Talk About the Green New Deal**\
-`In the Senate, Kamala Harris backed an expansive climate plan. Young activists want her to embrace it again, but so do Republicans.`\
-https://nytimes.com/2024/07/26/climate/kamala-harris-green-new-deal.html
+**Americans May Not Agree on Much, but They Agree Biden Made the Right Choice**\
+`The president’s decision to exit the race received overwhelming support. Only a few other things have drawn as much consensus in polling.`\
+https://nytimes.com/2024/07/26/upshot/biden-polling-exit-approval.html
 
-**Watch a Reynolds and Jackman Diner Chat in ‘Deadpool & Wolverine’**\
-`The director Shawn Levy narrates a scene from the latest sequel in the franchise.`\
-https://nytimes.com/2024/07/26/movies/deadpool-and-wolverine-clip.html
+**This Is How Democrats Win in Wisconsin**\
+`Ben Wikler, the chair of the Democratic Party of Wisconsin, discusses whether Kamala Harris can appeal to voters in the swing state.`\
+https://nytimes.com/2024/07/26/opinion/ezra-klein-podcast-ben-wikler.html
 
