@@ -1,3 +1,15 @@
+**The Paris Olympics Opened in Spectacular Style**\
+`Also, a stunning betrayal led to the arrest of cartel leaders. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/07/26/briefing/paris-olympics-ceremony-harris-vp-search.html
+
+**Best moments of 2024 Olympics Opening Ceremony**\
+`If you missed the official start of the 2024 Olympics or want to reflect on all the pomp and circumstance, here's highlights from Friday.`\
+https://nytimes.com/athletic/5660981/2024/07/26/opening-ceremony-paris-olympics-2024-best-moments/
+
+**MLB Trade Grades: Is Yimi García good value for Mariners at this price?**\
+`García is a rental, but he's also having a career year, so this is the time to get him. `\
+https://nytimes.com/athletic/5661506/2024/07/26/mlb-trade-grades-yimi-garcia-mariners-blue-jays/
+
 **N.C.A.A. Settlement Agreement Reveals How Colleges Would Pay Athletes**\
 `The agreement, if approved by a federal judge, could deliver the final hammer blow to the amateur model of college athletics.`\
 https://nytimes.com/2024/07/26/us/ncaa-house-settlement-filed.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/26/world/middleeast/israel-hamas-gaza-trump-netanyah
 **Warner Bros. Discovery Sues N.B.A. Over Rights Deal**\
 `The company is trying to make the league accept its match of Amazon’s bid to broadcast games starting with the 2025-26 season.`\
 https://nytimes.com/2024/07/26/business/nba-warner-bros-discovery-lawsuit.html
-
-**Jon Rahm's quest for a first LIV win may be finally ending**\
-`The Spaniard shot an 8-under 63 in the first round on Friday, without a birdie on any of the par 5s. It continues a trend at Royal Troon.`\
-https://nytimes.com/athletic/5661195/2024/07/26/jon-rahm-liv-golf-uk/
-
-**MLB Trade Grades: Did Orioles do well getting Zach Eflin for their rotation?**\
-`Zach Eflin is a decent arm, who has success in his past. But does slotting him into the Baltimore staff mean they won't pursue more impact?`\
-https://nytimes.com/athletic/5661441/2024/07/26/mlb-trade-grades-rays-orioles-zach-eflin/
-
-**Ten Hag '100 per cent confident' in Rashford return to best Man United form**\
-`Erik ten Hag has said he is “100 per cent” confident Marcus Rashford can return to the scoring form of his first season as Manchester United manager.`\
-https://nytimes.com/athletic/5661402/2024/07/26/marcus-rashford-manchester-united-erik-ten-hag/
 
