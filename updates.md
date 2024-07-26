@@ -1,3 +1,11 @@
+**Opening Ceremony Misses the Boat**\
+`The Paris Games began with a new look and sparkled with Celine Dion. But the show suffered from bloat similar to TV’s other spectacles.`\
+https://nytimes.com/2024/07/26/arts/television/olympics-opening-ceremony-tv.html
+
+**Elon Musk’s Transgender Daughter Says He Was ‘Cruel’ and ‘Uncaring’**\
+`Vivian Jenna Wilson’s remarks, in an exclusive interview with NBC News, were a response to Mr. Musk’s comments about her transgender identity.`\
+https://nytimes.com/2024/07/26/business/media/elon-musk-daughter-interview-nbc.html
+
 **The best boats of the 2024 Olympic opening ceremony**\
 `The Seine entertained 85 boats carrying 205 delegations.`\
 https://nytimes.com/athletic/5661317/2024/07/26/olympics-opening-ceremony-boat-rankings/
