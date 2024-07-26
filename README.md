@@ -1,3 +1,7 @@
+**Transportation disruptions in France are expected to last through Monday.**\
+`By Liz Alderman`\
+https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/transportation-disruptions-in-france-are-expected-to-last-through-monday
+
 **Heirs of Jews Who Fled the Nazis Return Art to Heirs Whose Family Could Not**\
 `An Egon Schiele drawing was returned on Friday at the Manhattan district attorney’s office. The heirs said in a statement that relinquishing the work was “the right thing to do.”`\
 https://nytimes.com/2024/07/26/arts/design/schiele-fritz-grunbaum-nazis-return.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/26/arts/television/elite-netflix-season-eight.html
 **Automakers Sold Driver Data for Pennies, Senators Say**\
 `Ron Wyden and Edward Markey urged the F.T.C. to investigate how car companies handled the data from millions of car owners.`\
 https://nytimes.com/2024/07/26/technology/driver-data-sold-for-pennies.html
-
-**Full Time: Olympics begin with blockbuster drama**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/5660635/2024/07/26/uswnt-olympics-trinity-rodman-canada-drones-full-time/
 
