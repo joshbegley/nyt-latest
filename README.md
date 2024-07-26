@@ -1,3 +1,11 @@
+**Opening Ceremony Misses the Boat**\
+`The Paris Games began with a new look and sparkled with Celine Dion. But the show suffered from bloat similar to TV’s other spectacles.`\
+https://nytimes.com/2024/07/26/arts/television/olympics-opening-ceremony-tv.html
+
+**Elon Musk’s Transgender Daughter Says He Was ‘Cruel’ and ‘Uncaring’**\
+`Vivian Jenna Wilson’s remarks, in an exclusive interview with NBC News, were a response to Mr. Musk’s comments about her transgender identity.`\
+https://nytimes.com/2024/07/26/business/media/elon-musk-daughter-interview-nbc.html
+
 **The best boats of the 2024 Olympic opening ceremony**\
 `The Seine entertained 85 boats carrying 205 delegations.`\
 https://nytimes.com/athletic/5661317/2024/07/26/olympics-opening-ceremony-boat-rankings/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5661028/2024/07/26/steelers-training-camp-russell-w
 **Lamar Jackson again misses practice, continues to be evaluated by Ravens doctors**\
 `Jackson has participated in just one of Baltimore's five training camp practices this week. `\
 https://nytimes.com/athletic/5661590/2024/07/26/ravens-lamar-jackson-illness-training-camp/
-
-**Chiefs camp: First padded practice puts spotlight on Kingsley Suamataia, Felix Anudike-Uzomah**\
-`One of the best performers in Friday's practice was Anudike-Uzomah, the 2023 first-round pick.`\
-https://nytimes.com/athletic/5661479/2024/07/26/kansas-city-chiefs-training-camp-kingsley-suamataia-felix-anudike-uzomah/
-
-**49ers training camp: Deebo Samuel eager to score some kick-return TDs; O-line banged up**\
-`Though three of the 49ers' rookie draft picks missed Friday's practice with injuries, one found himself lining up with the starters.`\
-https://nytimes.com/athletic/5661415/2024/07/26/49ers-training-camp-deebo-samuel-kick-return/
 
