@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`A new poll from the U.S. presidential race.`\
+https://nytimes.com/2024/07/26/briefing/election-olympics-gaza.html
+
 **Fantasy baseball waiver wire: Drew Thorpe, Eugenio Suárez and more; plus, two-start pitchers and stashes adds**\
 `John Laghezza sifts through the advanced analytics to uncover waiver wire gems, like the suddenly surging Eugenio Suárez.`\
 https://nytimes.com/athletic/5656472/2024/07/26/fantasy-baseball-waiver-wire-drew-thorpe-eugenio-suarez-adds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5655740/2024/07/26/adrian-liverpool-betis-interview
 **Endrick, Mbappe and Real Madrid's €1.8billion squad value explained**\
 `The CIES Football Observatory values Madrid's squad highly - here's what the figures mean`\
 https://nytimes.com/athletic/5657702/2024/07/26/real-madrid-endrick-mbappe-values/
-
-**Who's who at Newcastle United: The club's new hierarchy explained**\
-`After ownership changes and staff being brought in, here's who does what at Newcastle`\
-https://nytimes.com/athletic/5655094/2024/07/26/newcastle-structure-owners-staff-coaches/
 

@@ -1,3 +1,7 @@
+**Friday Briefing**\
+`A new poll from the U.S. presidential race.`\
+https://nytimes.com/2024/07/26/briefing/election-olympics-gaza.html
+
 **Fantasy baseball waiver wire: Drew Thorpe, Eugenio Suárez and more; plus, two-start pitchers and stashes adds**\
 `John Laghezza sifts through the advanced analytics to uncover waiver wire gems, like the suddenly surging Eugenio Suárez.`\
 https://nytimes.com/athletic/5656472/2024/07/26/fantasy-baseball-waiver-wire-drew-thorpe-eugenio-suarez-adds/
