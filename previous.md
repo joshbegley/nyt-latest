@@ -2,7 +2,7 @@
 `This is the fourth time Riley Greene has been injured in the past three seasons. `\
 https://nytimes.com/athletic/5661383/2024/07/26/tigers-riley-greene-injury-2/
 
-**Jayden Daniels 'off to a really good start' as Commanders wrap up Day 3 of camp**\
+**Jayden Daniels' chill vibe hides competitor within: 'You can’t be content with your job'**\
 `"He’s got the humility and hard work of a rookie, with a little bit of swag of an older guy," Washington coach Dan Quinn said of Daniels. `\
 https://nytimes.com/athletic/5661112/2024/07/26/commanders-jayden-daniels-training-camp/
 
