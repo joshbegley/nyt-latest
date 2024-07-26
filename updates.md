@@ -1,3 +1,7 @@
+**Lamar Jackson again misses practice, continues to be evaluated by Ravens doctors**\
+`Jackson has participated in just one of Baltimore's five training camp practices this week. `\
+https://nytimes.com/athletic/5661590/2024/07/26/ravens-lamar-jackson-illness-training-camp/
+
 **Chiefs camp: First padded practice puts spotlight on Kingsley Suamataia, Felix Anudike-Uzomah**\
 `One of the best performers in Friday’s practice was Anudike-Uzomah, the 2023 first-round pick.`\
 https://nytimes.com/athletic/5661479/2024/07/26/chiefs-camp-first-padded-practice-puts-spotlight-on-kingsley-suamataia-felix-anudike-uzomah/
