@@ -1,3 +1,15 @@
+**Canada removes coach Priestman after more drone revelations**\
+`Priestman is suspended for the remainder of the Games and until an independent external review is complete after "new revelations."`\
+https://nytimes.com/athletic/5659693/2024/07/25/bev-priestman-removed-canada-soccer-coach-olympics/
+
+**Breaking Down Netanyahu’s Speech in Congress**\
+`In his fourth speech to Congress, a record for a foreign leader, Prime Minister Benjamin Netanyahu of Israel attempted to change the narrative about the fallout from the war in Gaza.`\
+https://nytimes.com/video/world/middleeast/100000009590334/breaking-down-netanyahus-speech-in-congress.html
+
+**How a U.S. Antidoping Law Fueled Global Tensions**\
+`The Olympics are opening amid outright antagonism between international sports authorities and the United States over American investigations into the handling of doping allegations abroad.`\
+https://nytimes.com/2024/07/25/us/politics/olympics-us-antidoping-wada.html
+
 **Two Top Mexican Cartel Leaders Surrender to U.S. Authorities**\
 `The two men, Ismael Zambada García and Joaquín Guzmán López, run the Sinaloa Cartel, one of the most dominant criminal groups in Mexico.`\
 https://nytimes.com/2024/07/25/world/americas/mexico-cartel-ismael-zambada-garcia-joaquin-guzman-lopez.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/25/world/middleeast/israel-hostages-bodies-gaza.html
 **The Kamala Harris Vibe Shift**\
 `For many Democrats, a race that felt like a dispiriting slog suddenly feels light. Even hopeful.`\
 https://nytimes.com/2024/07/25/us/politics/kamala-harris-biden-poll.html
-
-**Dehner Jr.: Thoughts on Ja’Marr Chase’s absence, rise of Iosivas, teachable moments**\
-`Zac Taylor says there's a plan for the star wide receiver as Chase sits out the first two days of camp.`\
-https://nytimes.com/athletic/5659546/2024/07/25/jamarr-chase-bengals-camp-absence/
-
-**49ers training camp: Brandon Aiyuk and John Lynch watch good DB play together**\
-`Though Aiyuk's hold-in continues, he was on the field to watch the entirety of Thursday's practice — including the first chunk with Lynch. `\
-https://nytimes.com/athletic/5659090/2024/07/25/49ers-training-camp-brandon-aiyuk-john-lynch-malik-mustapha/
-
-**Blue Jays targeting starting pitching depth at trade deadline**\
-`Players with control remaining — including Vladimir Guerrero Jr., Bo Bichette and Chris Bassitt — remain off-limits in trade talks.`\
-https://nytimes.com/athletic/5659272/2024/07/25/blue-jays-trade-deadline-starting-pitching/
 
