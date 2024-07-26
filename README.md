@@ -1,3 +1,7 @@
+**Yang, Gray and Bergvall signings point to a clear plan - Spurs are investing in the future**\
+`Spurs have signed some of the best teenage talent in the world in recent months — can Postecoglou help them reach their potential?`\
+https://nytimes.com/athletic/5658689/2024/07/26/tottenham-transfers-yang-gray-bergvall/
+
 **Arson Attacks on French Rail Leave People Stranded**\
 `Hundreds were stuck at train stations in Paris and London as operators canceled and delayed trains on Friday after the attacks.`\
 https://nytimes.com/2024/07/26/world/olympics/paris-london-train-station.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5650814/2024/07/26/connor-mcdavid-oilers-lines-2024
 **Rohan Bopanna: A short walk and a long stretch to late-career glory**\
 `Rohan Bopanna's path to world No 1 in doubles and a Grand Slam title with Matt Ebden is built on yoga in southern India`\
 https://nytimes.com/athletic/5430231/2024/07/26/rohan-bopanna-tennis-doubles-olympics-yoga/
-
-**The Athletic’s Friday football quiz question #14**\
-`Every week, we'll serve up a poser from our vault of football conundrums. It won't be easy (unless you're really good…)`\
-https://nytimes.com/athletic/5660207/2024/07/26/the-athletics-friday-football-quiz-question-14/
 
