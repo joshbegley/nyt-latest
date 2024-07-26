@@ -1,3 +1,7 @@
+**Even if Giants aggressively sell, go-for-broke season's luxury tax implications are inescapable**\
+`The Giants have some players they could make available after a 2-5 road trip, but the team's financial standing will likely remain the same.`\
+https://nytimes.com/athletic/5659860/2024/07/25/sf-giants-trade-deadline-luxury-tax/
+
 **They’re Around Two Feet**\
 `Andy Kravis returns after a two-year absence with a lively puzzle.`\
 https://nytimes.com/2024/07/25/crosswords/daily-puzzle-2024-07-26.html

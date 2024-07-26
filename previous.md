@@ -1,3 +1,7 @@
+**Even if Giants aggressively sell, go-for-broke season's luxury tax implications are inescapable**\
+`The Giants have some players they could make available after a 2-5 road trip, but the team's financial standing will likely remain the same.`\
+https://nytimes.com/athletic/5659860/2024/07/25/sf-giants-trade-deadline-luxury-tax/
+
 **They’re Around Two Feet**\
 `Andy Kravis returns after a two-year absence with a lively puzzle.`\
 https://nytimes.com/2024/07/25/crosswords/daily-puzzle-2024-07-26.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009590334/breaking-down-netanya
 **How a U.S. Antidoping Law Fueled Global Tensions**\
 `The Olympics are opening amid outright antagonism between international sports authorities and the United States over American investigations into the handling of doping allegations abroad.`\
 https://nytimes.com/2024/07/25/us/politics/olympics-us-antidoping-wada.html
-
-**Two Top Mexican Cartel Leaders Arrested by U.S. Authorities**\
-`The two men, Ismael Zambada García and Joaquín Guzmán López, run the Sinaloa Cartel, one of the most dominant criminal groups in Mexico.`\
-https://nytimes.com/2024/07/25/world/americas/mexico-cartel-ismael-zambada-garcia-joaquin-guzman-lopez.html
 
