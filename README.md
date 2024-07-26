@@ -1,3 +1,7 @@
+**At the opening ceremony, the illusion persists that it’s a small world after all.**\
+`By Jason Farago`\
+https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/at-the-opening-ceremony-the-illusion-persists-that-its-a-small-world-after-all
+
 **MLB Trade Grades: In Austin Hays deal, Phillies, Orioles shore up weak spots**\
 `The Phillies and Orioles swapped major leaguers. Did both teams fill their needs? `\
 https://nytimes.com/athletic/5660937/2024/07/26/mlb-trade-grades-hays-dominguez-phillies-orioles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5660857/2024/07/26/charles-barkley-tnt-contract-fre
 **Can Fees on Polluting Cars Clean the Air? London Has New Evidence.**\
 `The city’s expanded low-emissions zone, which was politically fraught, has cut emissions that contribute to health problems like asthma, new numbers show.`\
 https://nytimes.com/2024/07/26/climate/congestion-pricing-ulez-london-pollution.html
-
-**For Epidemics to Cross Oceans, Viruses on Ships Had to Beat the Odds**\
-`In the era when people traveled by sailing ship and steamer, illnesses usually burned themselves out before boats reached shore, a new study finds.`\
-https://nytimes.com/2024/07/26/health/viruses-ships-transmission.html
 
