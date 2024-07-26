@@ -1,3 +1,15 @@
+**The Windup: Why the Mariners are betting on Arozarena**\
+`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
+https://nytimes.com/athletic/5660668/2024/07/26/randy-arozarena-mariners-trade-no-hitter-the-windup/
+
+**Some airdropped aid packages, intended for Gaza, have fallen far off-target.**\
+`By Rawan Sheikh Ahmad`\
+https://nytimes.com/live/2024/07/17/world/israel-gaza-war-hamas/some-airdropped-aid-packages-intended-for-gaza-fall-far-off-target-even-landing-in-israel
+
+**Top Real Estate Agent Faces Another Claim of Sexual Assault**\
+`A fourth woman filed a lawsuit against Oren Alexander, once a star agent of luxury real estate.`\
+https://nytimes.com/2024/07/26/realestate/oren-alexander-sexual-assault.html
+
 **Georgia wide receiver Rara Thomas arrested**\
 `Georgia wide receiver Rara Thomas was arrested early Friday morning, his second arrest since joining the program.`\
 https://nytimes.com/athletic/5660628/2024/07/26/rara-thomas-arrested-georgia/
