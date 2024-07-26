@@ -1,7 +1,3 @@
-**Mike Trout gets good news following knee MRI**\
-`Trout, who is recovering from knee surgery, plans to resume a running program soon.`\
-https://nytimes.com/athletic/5661692/2024/07/26/mike-trout-knee-mri-angels/
-
 **MLB trade deadline Q&A: Bowden on the market and latest rumblings as deals pick up**\
 `Answering questions on the seller's market, teams that are surprising me, the latest I'm hearing on big-name targets and much more.`\
 https://nytimes.com/athletic/5661443/2024/07/26/mlb-trade-deadline-market-rumors/
@@ -20,7 +16,7 @@ https://nytimes.com/athletic/5661590/2024/07/26/ravens-lamar-jackson-illness-tra
 
 **Chiefs camp: First padded practice puts spotlight on Kingsley Suamataia, Felix Anudike-Uzomah**\
 `One of the best performers in Friday’s practice was Anudike-Uzomah, the 2023 first-round pick.`\
-https://nytimes.com/athletic/5661479/2024/07/26/chiefs-camp-first-padded-practice-puts-spotlight-on-kingsley-suamataia-felix-anudike-uzomah/
+https://nytimes.com/athletic/5661479/2024/07/26/kansas-city-chiefs-training-camp-kingsley-suamataia-felix-anudike-uzomah/
 
 **49ers training camp: Deebo Samuel eager to score some kick-return TDs; O-line banged up**\
 `Though three of the 49ers' rookie draft picks missed Friday's practice with injuries, one found himself lining up with the starters.`\
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5661267/2024/07/26/browns-nick-chubb-return-trainin
 **The Paris Olympics Opened in Spectacular Style**\
 `Also, a stunning betrayal led to the arrest of cartel leaders. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/07/26/briefing/paris-olympics-ceremony-harris-vp-search.html
+
+**Best moments of 2024 Olympics Opening Ceremony**\
+`If you missed the official start of the 2024 Olympics or want to reflect on all the pomp and circumstance, here's highlights from Friday.`\
+https://nytimes.com/athletic/5660981/2024/07/26/opening-ceremony-paris-olympics-2024-best-moments/
 
