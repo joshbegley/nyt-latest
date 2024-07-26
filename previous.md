@@ -1,3 +1,7 @@
+**Fed’s Preferred Inflation Number Cooled Overall in June**\
+`The Personal Consumption Expenditures Index climbed 2.5 percent, still more than the Fed’s 2 percent target, as price increases take time to come down.`\
+https://nytimes.com/2024/07/26/business/economy/federal-reserve-inflation-cooled.html
+
 **The Pulse: The Olympics watch guide you need**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5660005/2024/07/26/olympics-watch-guide-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/26/world/olympics/paris-london-train-station.html
 **The USWNT has arrived at the 2024 Olympics and so has Trinity Rodman and her 'Trin Spin'**\
 `Emma Hayes' work with the USWNT is only just beginning but there are signs of improvement and togetherness already`\
 https://nytimes.com/athletic/5660287/2024/07/26/uswnt-trin-spin-olympics-zambia/
-
-**Eno's take: Which Randy Arozarena are the Mariners going to get?**\
-`Will the M's get the Arozarena who hit .158/.257/.312 through May? Or the one who has hit .290/.402/.517 since June 1? Analyzing the pickup.`\
-https://nytimes.com/athletic/5660362/2024/07/26/randy-arozarena-mariners-rays-trade-analysis/
 

@@ -1,3 +1,7 @@
+**Fed’s Preferred Inflation Number Cooled Overall in June**\
+`The Personal Consumption Expenditures Index climbed 2.5 percent, still more than the Fed’s 2 percent target, as price increases take time to come down.`\
+https://nytimes.com/2024/07/26/business/economy/federal-reserve-inflation-cooled.html
+
 **The Pulse: The Olympics watch guide you need**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5660005/2024/07/26/olympics-watch-guide-the-pulse/
