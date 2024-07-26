@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5659940/2024/07/25/mlb-trade-deadline-rangers-angels-pirates/
 
 **For Billy Joel Fans, a New York Night to Remember**\
-`Thousands of people piled into Madison Square Garden on Thursday to hear Billy Joel glide from rock song to soulful blues in the final show of his long residency at the arena on Thursday night.`\
+`Thousands of people piled into Madison Square Garden on Thursday to hear Billy Joel glide from rock song to soulful blues in the final show of his long residency at the arena.`\
 https://nytimes.com/2024/07/25/arts/music/billy-joel-madison-square-garden.html
 
 **MLB Trade Grades: Diamondbacks add A.J. Puk from Marlins to bolster bullpen**\
