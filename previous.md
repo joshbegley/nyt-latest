@@ -1,7 +1,3 @@
-**Gail Lumet Buckley, Chronicler of Black Family History, Dies at 86**\
-`She wrote two books about multiple generations of her forebears, including her mother, Lena Horne.`\
-https://nytimes.com/2024/07/26/books/gail-lumet-buckley-dead.html
-
 **Silent No More, Harris Seeks Her Own Voice Without Breaking With Biden**\
 `The vice president’s expressions of concern for Palestinian suffering marked a shift in emphasis from the president’s statements as she moved to establish herself as the leader of her party.`\
 https://nytimes.com/2024/07/26/us/politics/kamala-harris-gaza-biden.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5661415/2024/07/26/49ers-training-camp-deebo-samuel
 **Clear Encampments? Mind Your Own Business, Los Angeles Says.**\
 `In California, Gov. Gavin Newsom’s declaration urging cities to clear homeless camps met its strongest opposition in Los Angeles.`\
 https://nytimes.com/2024/07/26/us/homeless-encampments-newsom-los-angeles.html
+
+**Nick Chubb working out at Browns training camp, slowly preparing for his return**\
+`“I’d say Nick is progressing exactly where he should be,” Cleveland coach Kevin Stefanski said about the four-time Pro Bowl running back.`\
+https://nytimes.com/athletic/5661267/2024/07/26/browns-nick-chubb-return-training-camp/
 
