@@ -1,3 +1,19 @@
+**N.C.A.A. Settlement Agreement Reveals How Colleges Would Pay Athletes**\
+`The agreement, if approved by a federal judge, could deliver the final hammer blow to the amateur model of college athletics.`\
+https://nytimes.com/2024/07/26/us/ncaa-house-settlement-filed.html
+
+**Riner, Pérec light Olympic cauldron to kick off 2024 Summer Games**\
+`On Sunday, Paris 2024 organizing committee president Tony Estanguet said only about a dozen people in the world knew who was selected.`\
+https://nytimes.com/athletic/5661113/2024/07/26/olympic-cauldron-torchbearer-summer-games-paris/
+
+**New York to Replace Student MetroCards With Less Restrictive OMNY Cards**\
+`New OMNY transit cards for public school students, rolling out in September, will be usable 24 hours a day throughout the calendar year.`\
+https://nytimes.com/2024/07/26/nyregion/omny-metrocards-students-nyc.html
+
+**Though Critical on Gaza, Trump Cites Good Relations With Netanyahu**\
+`The former president met with the Israeli leader in Florida, a day after his main opponent, Vice President Kamala Harris, and he both criticized Israel’s conduct of the war.`\
+https://nytimes.com/2024/07/26/world/middleeast/israel-hamas-gaza-trump-netanyahu.html
+
 **House v. NCAA settlement takes next step toward schools paying athletes**\
 `New documents were filed in the historic House v.`\
 https://nytimes.com/athletic/5660945/2024/07/26/ncaa-house-settlement-college-sports/

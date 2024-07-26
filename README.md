@@ -15,7 +15,7 @@ https://nytimes.com/2024/07/26/nyregion/omny-metrocards-students-nyc.html
 https://nytimes.com/athletic/5660945/2024/07/26/ncaa-house-settlement-college-sports/
 
 **Seattle Mariners acquire reliever Yimi García from Toronto Blue Jays**\
-`The Blue Jays are expected to be significant sellers over the next few days and they've traded one of their best chips in Garcia.`\
+`The Blue Jays are expected to be significant sellers over the next few days and they've traded one of their best chips in García.`\
 https://nytimes.com/athletic/5661444/2024/07/26/mariners-blue-jays-yimi-garcia-trade/
 
 **Though Critical on Gaza, Trump Cites Good Relations With Netanyahu**\
