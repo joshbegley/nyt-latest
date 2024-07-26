@@ -1,3 +1,19 @@
+**Rams starting CB Darious Williams dealing with potential injury; more notes from camp**\
+`Darious Williams limped off after the final play with a possible hamstring injury and Sean McVay confirmed Derion Kendrick tore his ACL.`\
+https://nytimes.com/athletic/5660034/2024/07/26/la-rams-injury-update-darious-williams-derion-kendrick/
+
+**Everton hope Jesper Lindstrom is a transfer gamble worth taking**\
+`Fast, direct and versatile, former Napoli and Frankfurt winger has flaws but could be an exciting option for Sean Dyche`\
+https://nytimes.com/athletic/5655539/2024/07/26/everton-jesper-lindstrom-transfer-napoli/
+
+**Lindstrom joins Everton on loan from Napoli**\
+`Everton have confirmed the signing of Jesper Lindstrom from Napoli on an initial season-long loan deal.`\
+https://nytimes.com/athletic/5654273/2024/07/26/jesper-lindstrom-everton-transfer/
+
+**Malang Sarr joins Lens after termination of Chelsea contract**\
+`Malang Sarr has completed his move to Lens after Chelsea released him from his contract.`\
+https://nytimes.com/athletic/5660211/2024/07/26/malang-sarr-lens-chelsea-transfer/
+
 **Arson Disrupts Olympics Travel, and Obama Endorses Harris**\
 `Plus, top Mexican cartel leaders arrested.`\
 https://nytimes.com/2024/07/26/podcasts/obama-harris-poll.html
