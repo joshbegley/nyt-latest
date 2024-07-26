@@ -19,7 +19,7 @@ https://nytimes.com/2024/07/26/us/politics/fbi-texts-strzok-page-trump.html
 https://nytimes.com/athletic/5661239/2024/07/26/chicago-bears-caleb-williams-training-camp-scuffle/
 
 **Orioles to add right-hander Zach Eflin in deal with Rays: Source**\
-`The Orioles have added to their rotation in an inter-division deal that sends three prospects to aggressive seller Tampa Bay.`\
+`The Orioles have added to their rotation in an intra-division deal that sends three prospects to aggressive seller Tampa Bay.`\
 https://nytimes.com/athletic/5661439/2024/07/26/orioles-rays-zach-eflin-trade/
 
 **The Best of Late Night This Week**\
