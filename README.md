@@ -1,3 +1,7 @@
+**Saboteurs targeted a rail network so vast that it’s impossible to fully secure.**\
+`The French system`\
+https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/saboteurs-targeted-a-rail-network-so-vast-that-its-impossible-to-fully-secure
+
 **Battling Inflation, Russia Raises Key Interest Rate to 18 Percent**\
 `The move underscored the wartime risks for the Kremlin as the government pumps enormous sums of money into the Russian economy.`\
 https://nytimes.com/2024/07/26/world/europe/russia-inflation-interest-rate.html
@@ -23,7 +27,7 @@ https://nytimes.com/2024/07/26/world/americas/canada-wildfires-jasper-alberta-fi
 https://nytimes.com/athletic/5658320/2024/07/26/bucks-jon-horst-qa-giannis-lillard/
 
 **U.K. Drops Opposition to International Criminal Court Warrant for Netanyahu**\
-`The new Labour government said it would drop the previous government’s objection to I.C.C. arrest warrants for Israel’s Prime Minister Benjamin Netanyahu and the defense minister, Yoav Gallant.`\
+`The new Labour government confirmed it would drop the previous government’s objection to I.C.C. arrest warrants for Israel’s Prime Minister Benjamin Netanyahu and the defense minister, Yoav Gallant.`\
 https://nytimes.com/2024/07/26/world/middleeast/israel-gaza-icc-warrants-britain.html
 
 **Bruno Famin to leave role as Alpine F1 chief**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5660653/2024/07/26/bruno-famin-alpine-f1/
 **Cherries for Black Forest Cake, Tomatoes for Gazpacho, Swordfish for Piccata**\
 `Something out there, something delicious, is speaking to you. Heed its call.`\
 https://nytimes.com/2024/07/26/dining/cherries-for-black-forest-cake-tomatoes-for-gazpacho-swordfish-for-piccata.html
-
-**Billy Joel at the Garden: Scenes From a Celebration**\
-`At the close of his 10-year Madison Square Garden residency, the singer took a victory lap with some of his most ardent fans.`\
-https://nytimes.com/2024/07/26/arts/music/billy-joel-madison-square-garden-photos.html
 
