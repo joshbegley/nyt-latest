@@ -1,3 +1,11 @@
+**Dak Prescott is at peace with this perhaps being his final year with the Cowboys**\
+`Will Prescott's ninth season with the Cowboys be his last? "I think Dak wants to be a Cowboy," Stephen Jones said.`\
+https://nytimes.com/athletic/5659771/2024/07/25/dak-prescott-cowboys-final-season/
+
+**Two Top Mexican Cartel Leaders Arrested by U.S. Authorities**\
+`The two men, Ismael Zambada García and Joaquín Guzmán López, run the Sinaloa Cartel, one of the most dominant criminal groups in Mexico.`\
+https://nytimes.com/2024/07/25/world/americas/mexico-cartel-ismael-zambada-garcia-joaquin-guzman-lopez.html
+
 **Dak Prescott at peace with possibility of this being final year with Cowboys**\
 `Will Prescott's ninth season with the Cowboys be his last? “I think Dak wants to be a Cowboy,” Stephen Jones said.`\
 https://nytimes.com/athletic/5659771/2024/07/25/dak-prescott-cowboys-final-season/

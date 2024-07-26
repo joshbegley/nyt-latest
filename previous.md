@@ -1,5 +1,5 @@
-**Dak Prescott at peace with possibility of this being final year with Cowboys**\
-`Will Prescott's ninth season with the Cowboys be his last? “I think Dak wants to be a Cowboy,” Stephen Jones said.`\
+**Dak Prescott is at peace with this perhaps being his final year with the Cowboys**\
+`Will Prescott's ninth season with the Cowboys be his last? "I think Dak wants to be a Cowboy," Stephen Jones said.`\
 https://nytimes.com/athletic/5659771/2024/07/25/dak-prescott-cowboys-final-season/
 
 **How Julian Love exemplifies the Seahawks' plan under Mike Macdonald**\
@@ -18,7 +18,7 @@ https://nytimes.com/video/world/middleeast/100000009590334/breaking-down-netanya
 `The Olympics are opening amid outright antagonism between international sports authorities and the United States over American investigations into the handling of doping allegations abroad.`\
 https://nytimes.com/2024/07/25/us/politics/olympics-us-antidoping-wada.html
 
-**Two Top Mexican Cartel Leaders Surrender to U.S. Authorities**\
+**Two Top Mexican Cartel Leaders Arrested by U.S. Authorities**\
 `The two men, Ismael Zambada García and Joaquín Guzmán López, run the Sinaloa Cartel, one of the most dominant criminal groups in Mexico.`\
 https://nytimes.com/2024/07/25/world/americas/mexico-cartel-ismael-zambada-garcia-joaquin-guzman-lopez.html
 
