@@ -1,6 +1,10 @@
+**The director of the opening ceremony made the Seine his stage.**\
+`By Catherine Porter`\
+https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/the-director-of-the-opening-ceremony-made-the-seine-his-stage
+
 **Rail Sabotage Blights an Olympic Moment for France**\
 `The arson attacks were carefully planned to cause maximum disruption on a train network so vast it is virtually impossible to fully secure.`\
-https://nytimes.com/2024/07/26/world/europe/rail-sabotage-blights-an-olympic-moment-for-france.html
+https://nytimes.com/2024/07/26/world/europe/rail-sabotage-france-olympics.html
 
 **Anger Lingers Over Positive Doping Tests for Chinese Swimmers**\
 `In Paris, Chinese swimmers have been under extra scrutiny by doping watchdogs, but that hasn’t satisfied competitors like American star Caeleb Dressel.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/26/podcasts/transcript-ezra-klein-interviews-ben-wik
 **Two Women Killed in Upper East Side Murder-Suicide**\
 `The shooting took place just a half block from Gracie Mansion, the official residence of the New York City mayor, and was related to a child-custody dispute, according to the police.`\
 https://nytimes.com/2024/07/26/nyregion/upper-east-side-murder-suicide.html
-
-**Pegula first appearance since cardiac arrest**\
-`Kim Pegula suffered a debilitating heart attack in summer of 2022.`\
-https://nytimes.com/athletic/5661014/2024/07/26/kim-pegula-buffalo-bills-first-appearance-cardiac-arrest/
 
