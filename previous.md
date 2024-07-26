@@ -1,3 +1,7 @@
+**Word of the Day: haptic**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/07/26/learning/word-of-the-day-haptic.html
+
 **What We Know About the Sinaloa Cartel Arrests**\
 `The U.S. said it had arrested Ismael Zambada García, a co-founder, and Joaquín Guzmán López, a son of another co-founder. Both are accused of involvement in fentanyl trafficking.`\
 https://nytimes.com/2024/07/26/world/americas/sinaloa-cartel-arrests-what-we-know.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5656472/2024/07/26/fantasy-baseball-waiver-wire-dre
 **'I'm back at Everton to make a bigger impact - I've worked all summer to do that'**\
 `Jack Harrison talks openly about Everton improvements, his Leeds exit after playing through pain barrier, and hopes for the future`\
 https://nytimes.com/athletic/5657997/2024/07/26/jack-harrison-everton-leeds-interview/
-
-**Madueke faces a battle to prove himself once again as he tries to impress a fourth head coach**\
-`The 22-year-old seemed to have established himself under Mauricio Pochettino but now he has to do it all again under Enzo Maresca`\
-https://nytimes.com/athletic/5659336/2024/07/26/noni-madueke-chelsea-maresca/
 

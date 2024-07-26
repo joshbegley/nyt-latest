@@ -1,3 +1,7 @@
+**Word of the Day: haptic**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/07/26/learning/word-of-the-day-haptic.html
+
 **What We Know About the Sinaloa Cartel Arrests**\
 `The U.S. said it had arrested Ismael Zambada García, a co-founder, and Joaquín Guzmán López, a son of another co-founder. Both are accused of involvement in fentanyl trafficking.`\
 https://nytimes.com/2024/07/26/world/americas/sinaloa-cartel-arrests-what-we-know.html
