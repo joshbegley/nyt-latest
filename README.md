@@ -1,6 +1,10 @@
+**Dodgers trade James Paxton to Red Sox**\
+`The 35-year-old Paxton is returning to Boston, the team he played for last season.`\
+https://nytimes.com/athletic/5660848/2024/07/26/dodgers-trade-james-paxton-red-sox/
+
 **Saboteurs targeted a rail network so vast that it’s impossible to fully secure.**\
-`The French system`\
-https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/saboteurs-targeted-a-rail-network-so-vast-that-its-impossible-to-fully-secure
+`Thousands of miles of tracks leave the French system vulnerable to sabotage. But the arsonists also knew just where to strike.`\
+https://nytimes.com/article/saboteurs-targeted-a-rail-network-so-vast-that-its-impossible-to-fully-secure.html
 
 **Dewsbury-Hall: 'Will Maresca surprise people at Chelsea? Definitely.'**\
 `The Chelsea midfielder on telling his new team-mates all about their manager, his England hopes, and why Maresca can have a big impact`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5658320/2024/07/26/bucks-jon-horst-qa-giannis-lilla
 **U.K. Drops Opposition to International Criminal Court Warrant for Netanyahu**\
 `The new Labour government confirmed it would drop the previous government’s objection to I.C.C. arrest warrants for Israel’s Prime Minister Benjamin Netanyahu and the defense minister, Yoav Gallant.`\
 https://nytimes.com/2024/07/26/world/middleeast/israel-gaza-icc-warrants-britain.html
-
-**Bruno Famin to leave role as Alpine F1 chief**\
-`SPA, Belgium — Alpine Formula One team principal Bruno Famin will leave his role to focus on the brand’s wider motorsport activities, including a planned end of its factory engine program by 2026.`\
-https://nytimes.com/athletic/5660653/2024/07/26/bruno-famin-alpine-f1/
 
