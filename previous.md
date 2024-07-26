@@ -1,3 +1,7 @@
+**Twins pitcher's mom catches Topps' attention for haggling over his baseball card**\
+`Kody Funderburk's mom tried to get a better deal on her son's card and her efforts ended up on social media `\
+https://nytimes.com/athletic/5659954/2024/07/26/kody-funderburk-twins-baseball-cards/
+
 **He Wrote a Story About Joy, Then Built a Tiny World to Match**\
 `Loren Long has illustrated books by Barack Obama, Madonna and Amanda Gorman. His No. 1 best seller, “The Yellow Bus,” took him in a different direction — one that required time, patience and toothpicks.`\
 https://nytimes.com/2024/07/26/books/loren-long-yellow-bus.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5660005/2024/07/26/olympics-watch-guide-the-pulse/
 **Biles submits new skill on uneven bars: Could it be sixth named after her?**\
 `PARIS — Simone Biles is not only ready to compete in the Olympics; she’s ready to leave a lasting impression.`\
 https://nytimes.com/athletic/5660448/2024/07/26/simone-biles-uneven-bars-original-element/
-
-**What We Know About the Attacks on France’s Rail Network**\
-`Coordinated arson attacks on France’s national high-speed rail network have disrupted travel ahead of the opening ceremony for the Olympics in Paris.`\
-https://nytimes.com/2024/07/26/world/europe/frances-rail-network-attacks-paris-olympics.html
 

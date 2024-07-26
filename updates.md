@@ -1,3 +1,7 @@
+**Twins pitcher's mom catches Topps' attention for haggling over his baseball card**\
+`Kody Funderburk's mom tried to get a better deal on her son's card and her efforts ended up on social media `\
+https://nytimes.com/athletic/5659954/2024/07/26/kody-funderburk-twins-baseball-cards/
+
 **He Wrote a Story About Joy, Then Built a Tiny World to Match**\
 `Loren Long has illustrated books by Barack Obama, Madonna and Amanda Gorman. His No. 1 best seller, “The Yellow Bus,” took him in a different direction — one that required time, patience and toothpicks.`\
 https://nytimes.com/2024/07/26/books/loren-long-yellow-bus.html
