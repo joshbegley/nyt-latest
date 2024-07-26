@@ -1,3 +1,15 @@
+**Canada Soccer CEO reveals drone usage at Copa**\
+`Kevin Blue insisted the players themselves have not been involved in any unethical behavior.`\
+https://nytimes.com/athletic/5660501/2024/07/26/bev-priestman-canada-soccer-olympics-suspension-drone-usage-culture/
+
+**A New Batman Is Less a Dark Knight Than a ‘Weird and Creepy’ One**\
+`“Batman: Caped Crusader,” a new animated series, is not concerned with making its hero likable — either to the citizens of Gotham or to its audience.`\
+https://nytimes.com/2024/07/26/arts/television/batman-caped-crusader.html
+
+**Notre Dame mailbag: What's wrong with WR recruiting? Are CFP preparations premature?**\
+`With preseason camp less than a week away, let's tackle your Notre Dame questions about recruiting, rising stars, best away trips and more.`\
+https://nytimes.com/athletic/5660523/2024/07/26/notre-dame-marcus-freeman-receiver-recruiting/
+
 **Twins pitcher's mom catches Topps' attention for haggling over his baseball card**\
 `Kody Funderburk's mom tried to get a better deal on her son's card and her efforts ended up on social media `\
 https://nytimes.com/athletic/5659954/2024/07/26/kody-funderburk-twins-baseball-cards/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/26/your-money/chase-pay-later-loans-credit-cards.htm
 **Lemina named new Wolves captain**\
 `Mario Lemina has been named as Wolves’ new captain following Max Kilman’s departure for West Ham United.`\
 https://nytimes.com/athletic/5660506/2024/07/26/mario-lemina-wolves-captain-new/
-
-**Fed’s Preferred Inflation Measure Cooled Overall in June**\
-`The Personal Consumption Expenditures Index climbed 2.5 percent, still more than the Fed’s 2 percent target, as price increases take time to come down.`\
-https://nytimes.com/2024/07/26/business/economy/federal-reserve-inflation-cooled.html
-
-**The Pulse: The Olympics watch guide you need**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5660005/2024/07/26/olympics-watch-guide-the-pulse/
-
-**Biles submits new skill on uneven bars: Could it be sixth named after her?**\
-`PARIS — Simone Biles is not only ready to compete in the Olympics; she’s ready to leave a lasting impression.`\
-https://nytimes.com/athletic/5660448/2024/07/26/simone-biles-uneven-bars-original-element/
 
