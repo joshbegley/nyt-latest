@@ -1,3 +1,7 @@
+**Yang, Gray and Bergvall signings point to a clear plan - Spurs are investing in the future**\
+`Spurs have signed some of the best teenage talent in the world in recent months — can Postecoglou help them reach their potential?`\
+https://nytimes.com/athletic/5658689/2024/07/26/tottenham-transfers-yang-gray-bergvall/
+
 **Arson Attacks on French Rail Leave People Stranded**\
 `Hundreds were stuck at train stations in Paris and London as operators canceled and delayed trains on Friday after the attacks.`\
 https://nytimes.com/2024/07/26/world/olympics/paris-london-train-station.html
