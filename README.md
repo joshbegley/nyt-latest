@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5658948/2024/07/26/darius-acuff-arkansas-basketball
 https://nytimes.com/2024/07/26/us/politics/fbi-texts-strzok-page-trump.html
 
 **Bears camp: Caleb Williams steps into middle of first scuffle, fires TD in hurry-up**\
-`The Bears had their first padded practice, and naturally their first dust-up. Who went to break it up? No. 1 pick Caleb Williams. `\
+`The Bears conducted their first padded practice and, naturally, their first dust-up. Who went to break it up? No. 1 pick Caleb Williams. `\
 https://nytimes.com/athletic/5661239/2024/07/26/chicago-bears-caleb-williams-training-camp-scuffle/
 
 **Orioles to add right-hander Zach Eflin in deal with Rays: Source**\
