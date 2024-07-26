@@ -1,3 +1,7 @@
+**At the opening ceremony, the illusion persists that it’s a small world after all.**\
+`By Jason Farago`\
+https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/at-the-opening-ceremony-the-illusion-persists-that-its-a-small-world-after-all
+
 **MLB Trade Grades: In Austin Hays deal, Phillies, Orioles shore up weak spots**\
 `The Phillies and Orioles swapped major leaguers. Did both teams fill their needs? `\
 https://nytimes.com/athletic/5660937/2024/07/26/mlb-trade-grades-hays-dominguez-phillies-orioles/
