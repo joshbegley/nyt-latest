@@ -1,3 +1,7 @@
+**The Pulse: The Olympics watch guide you need**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5660005/2024/07/26/olympics-watch-guide-the-pulse/
+
 **Biles submits new skill on uneven bars: Could it be sixth named after her?**\
 `PARIS — Simone Biles is not only ready to compete in the Olympics; she’s ready to leave a lasting impression.`\
 https://nytimes.com/athletic/5660448/2024/07/26/simone-biles-uneven-bars-original-element/
