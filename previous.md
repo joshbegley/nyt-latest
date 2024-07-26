@@ -1,3 +1,7 @@
+**Cherries for Black Forest Cake, Tomatoes for Gazpacho, Swordfish for Piccata**\
+`Something out there, something delicious, is speaking to you. Heed its call.`\
+https://nytimes.com/2024/07/26/dining/cherries-for-black-forest-cake-tomatoes-for-gazpacho-swordfish-for-piccata.html
+
 **Billy Joel at the Garden: Scenes From a Celebration**\
 `At the close of his 10-year Madison Square Garden residency, the singer took a victory lap with some of his most ardent fans.`\
 https://nytimes.com/2024/07/26/arts/music/billy-joel-madison-square-garden-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5660628/2024/07/26/rara-thomas-arrested-georgia/
 **As Trump Looms, Blinken Aims to Reassure Allies on U.S. Commitment to Asia**\
 `Asian officials will press Secretary of State Antony J. Blinken about the former president and about Kamala Harris as he visits the region.`\
 https://nytimes.com/2024/07/26/us/politics/blinken-asia-us-election.html
-
-**With Kamala Harris, U.S. Free Trade Skepticism May Continue**\
-`The vice president has been critical of past trade deals. But her record suggests she could push for trade measures that address environmental issues.`\
-https://nytimes.com/2024/07/26/us/politics/kamala-harris-trade-trump.html
 

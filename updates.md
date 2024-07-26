@@ -1,3 +1,7 @@
+**Cherries for Black Forest Cake, Tomatoes for Gazpacho, Swordfish for Piccata**\
+`Something out there, something delicious, is speaking to you. Heed its call.`\
+https://nytimes.com/2024/07/26/dining/cherries-for-black-forest-cake-tomatoes-for-gazpacho-swordfish-for-piccata.html
+
 **Billy Joel at the Garden: Scenes From a Celebration**\
 `At the close of his 10-year Madison Square Garden residency, the singer took a victory lap with some of his most ardent fans.`\
 https://nytimes.com/2024/07/26/arts/music/billy-joel-madison-square-garden-photos.html
