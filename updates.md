@@ -1,3 +1,7 @@
+**With Kamala Harris, U.S. Free Trade Skepticism May Continue**\
+`The vice president has been critical of past trade deals. But her record suggests she could push for trade measures that address environmental issues.`\
+https://nytimes.com/2024/07/26/us/politics/kamala-harris-trade-trump.html
+
 **Saying Goodbye to the Messy, Murderous World of ‘Elite’**\
 `A diverse cast of characters and a murder to solve each school year have helped make this teen drama one of Netflix’s longest-running original shows.`\
 https://nytimes.com/2024/07/26/arts/television/elite-netflix-season-eight.html

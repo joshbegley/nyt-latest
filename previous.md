@@ -1,3 +1,7 @@
+**With Kamala Harris, U.S. Free Trade Skepticism May Continue**\
+`The vice president has been critical of past trade deals. But her record suggests she could push for trade measures that address environmental issues.`\
+https://nytimes.com/2024/07/26/us/politics/kamala-harris-trade-trump.html
+
 **Saying Goodbye to the Messy, Murderous World of ‘Elite’**\
 `A diverse cast of characters and a murder to solve each school year have helped make this teen drama one of Netflix’s longest-running original shows.`\
 https://nytimes.com/2024/07/26/arts/television/elite-netflix-season-eight.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/26/arts/television/batman-caped-crusader.html
 **Notre Dame mailbag: What's wrong with WR recruiting? Are CFP preparations premature?**\
 `With preseason camp less than a week away, let's tackle your Notre Dame questions about recruiting, rising stars, best away trips and more.`\
 https://nytimes.com/athletic/5660523/2024/07/26/notre-dame-marcus-freeman-receiver-recruiting/
-
-**Twins pitcher's mom catches Topps' attention for haggling over his baseball card**\
-`Kody Funderburk's mom tried to get a better deal on her son's card and her efforts ended up on social media `\
-https://nytimes.com/athletic/5659954/2024/07/26/kody-funderburk-twins-baseball-cards/
 
