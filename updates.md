@@ -1,3 +1,7 @@
+**Fast-Moving Wildfires Burn Canada’s Jasper National Park**\
+`Devastating wildfires have forced thousands of residents and tourists to evacuate Jasper, Canada.`\
+https://nytimes.com/video/weather/100000009594302/jasper-canada-wildfire.html
+
 **With Long Hours and a No-Fail Mission, the Secret Service Tries to Make Do**\
 `The agency charged with protecting presidents and foreign leaders has its largest ever budget but employees say it is still unable to recruit and retain enough people to carry the load.`\
 https://nytimes.com/2024/07/26/business/with-long-hours-and-a-no-fail-mission-the-secret-service-tries-to-make-do.html

@@ -1,3 +1,7 @@
+**Fast-Moving Wildfires Burn Canada’s Jasper National Park**\
+`Devastating wildfires have forced thousands of residents and tourists to evacuate Jasper, Canada.`\
+https://nytimes.com/video/weather/100000009594302/jasper-canada-wildfire.html
+
 **With Long Hours and a No-Fail Mission, the Secret Service Tries to Make Do**\
 `The agency charged with protecting presidents and foreign leaders has its largest ever budget but employees say it is still unable to recruit and retain enough people to carry the load.`\
 https://nytimes.com/2024/07/26/business/with-long-hours-and-a-no-fail-mission-the-secret-service-tries-to-make-do.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/26/well/shark-season-attacks-survival-ti
 **A city of light and shadows is redrawn for the Olympics.**\
 `By Roger Cohen`\
 https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/a-city-of-light-and-shadows-is-redrawn-for-the-olympics
-
-**Charles Barkley to entertain deals if TNT doesn't honor contract**\
-`Barkley said he planned to retire during the NBA Finals, but said he would be “stupid” not to listen to offers from ESPN, NBC and Amazon.`\
-https://nytimes.com/athletic/5660857/2024/07/26/charles-barkley-tnt-contract-free-agent-espn-nbc-amazon/
 
