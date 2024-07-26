@@ -1,3 +1,7 @@
+**Craig Breslow aggressive ahead of deadline, hoping to add more pitching**\
+`“I think our expectation is we can walk out of the deadline a better team than we were going into it,” Breslow said.`\
+https://nytimes.com/athletic/5661735/2024/07/26/red-sox-craig-breslow-trade-deadline-strategy/
+
 **Doused by Rain, Paris Opens Its Games With a Boat Party on the Seine**\
 `Undeterred by arson attacks on rail lines earlier in the day, the Parade of Nations continued beneath a glittering Eiffel Tower, where Celine Dion belted out a love anthem.`\
 https://nytimes.com/2024/07/26/world/olympics/paris-olympics-opening-ceremony.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/26/us/politics/kamala-harris-gaza-biden.html
 **Mike Trout gets good news following knee MRI**\
 `Trout, who is recovering from knee surgery, plans to resume a running program soon.`\
 https://nytimes.com/athletic/5661692/2024/07/26/mike-trout-knee-mri-angels/
-
-**MLB trade deadline Q&A: Bowden on the market and latest rumblings as deals pick up**\
-`Answering questions on the seller's market, teams that are surprising me, the latest I'm hearing on big-name targets and much more.`\
-https://nytimes.com/athletic/5661443/2024/07/26/mlb-trade-deadline-market-rumors/
 
