@@ -1,5 +1,5 @@
-**Dak Prescott at peace with possibility of this being final year with Cowboys**\
-`Will Prescott's ninth season with the Cowboys be his last? “I think Dak wants to be a Cowboy,” Stephen Jones said.`\
+**Dak Prescott is at peace with this perhaps being his final year with the Cowboys**\
+`Will Prescott's ninth season with the Cowboys be his last? "I think Dak wants to be a Cowboy," Stephen Jones said.`\
 https://nytimes.com/athletic/5659771/2024/07/25/dak-prescott-cowboys-final-season/
 
 **How Julian Love exemplifies the Seahawks' plan under Mike Macdonald**\
