@@ -1,3 +1,7 @@
+**Heirs of Jews Who Fled the Nazis Return Art to Heirs Whose Family Could Not**\
+`An Egon Schiele drawing was returned on Friday at the Manhattan district attorney’s office. The heirs said in a statement that relinquishing the work was “the right thing to do.”`\
+https://nytimes.com/2024/07/26/arts/design/schiele-fritz-grunbaum-nazis-return.html
+
 **The Windup: Why the Mariners are betting on Arozarena**\
 `Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
 https://nytimes.com/athletic/5660668/2024/07/26/randy-arozarena-mariners-trade-no-hitter-the-windup/

@@ -1,3 +1,7 @@
+**Heirs of Jews Who Fled the Nazis Return Art to Heirs Whose Family Could Not**\
+`An Egon Schiele drawing was returned on Friday at the Manhattan district attorney’s office. The heirs said in a statement that relinquishing the work was “the right thing to do.”`\
+https://nytimes.com/2024/07/26/arts/design/schiele-fritz-grunbaum-nazis-return.html
+
 **The Windup: Why the Mariners are betting on Arozarena**\
 `Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
 https://nytimes.com/athletic/5660668/2024/07/26/randy-arozarena-mariners-trade-no-hitter-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/26/technology/driver-data-sold-for-pennies.html
 **Full Time: Olympics begin with blockbuster drama**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/5660635/2024/07/26/uswnt-olympics-trinity-rodman-canada-drones-full-time/
-
-**New York Will Allow Beth Israel Hospital to Close**\
-`The health facility’s potential closure had been contentious following the shuttering of other hospitals serving Lower Manhattan.`\
-https://nytimes.com/2024/07/26/nyregion/mount-sinai-beth-israel-hospital-closure.html
 
