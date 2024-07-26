@@ -1,3 +1,7 @@
+**Chiefs camp: First padded practice puts spotlight on rookies Kingsley Suamataia, Felix Anudike-Uzomah**\
+`One of the best performers in Friday’s practice was Anudike-Uzomah, the 2023 first-round pick.`\
+https://nytimes.com/athletic/5661479/2024/07/26/chiefs-camp-first-padded-practice-puts-spotlight-on-kingsley-suamataia-felix-anudike-uzomah/
+
 **49ers training camp: Deebo Samuel eager to score some kick-return TDs; O-line banged up**\
 `While three of the 49ers' rookie draft picks missed Friday's practice with injuries, one found himself lining up with the starters.`\
 https://nytimes.com/athletic/5661415/2024/07/26/49ers-training-camp-deebo-samuel-kick-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5661113/2024/07/26/olympic-cauldron-torchbearer-sum
 **New York to Replace Student MetroCards With Less Restrictive OMNY Cards**\
 `New OMNY transit cards for public school students, rolling out in September, will be usable 24 hours a day throughout the calendar year.`\
 https://nytimes.com/2024/07/26/nyregion/omny-metrocards-students-nyc.html
-
-**House v. NCAA settlement takes next step toward schools paying athletes**\
-`New documents were filed in the historic House v.`\
-https://nytimes.com/athletic/5660945/2024/07/26/ncaa-house-settlement-college-sports/
 
