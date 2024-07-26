@@ -1,3 +1,7 @@
+**Bordeaux lose professional status as club files for bankruptcy**\
+`Bordeaux have lost their professional status after being administratively relegated to the third tier of French football.`\
+https://nytimes.com/athletic/5658621/2024/07/26/bordeaux-relegation-french-football/
+
 **In Love and Hoping for Asylum, Migrants Line Up for City Hall Weddings**\
 `The steady parade of couples seeking civil marriage ceremonies in New York City has expanded in recent months to include newly arrived migrants.`\
 https://nytimes.com/2024/07/26/nyregion/migrants-wedding-marriage-asylum.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/26/world/asia/typhoon-gaemi-china-taiwan.html
 **Stephen Colbert Mocks Trump for Recycling His Old Insults**\
 `Colbert said the ex-president was “focused on the real issue gripping the country: desperately workshopping a new nickname for Kamala Harris.”`\
 https://nytimes.com/2024/07/26/arts/television/stephen-colbert-donald-trump.html
-
-**Harris Joins TikTok, Another Sign of the App’s Value in Reaching Young Voters**\
-`Vice President Kamala Harris launched her account on Thursday with an eight-second video that has since been viewed 5.8 million times.`\
-https://nytimes.com/2024/07/26/us/politics/kamala-harris-tiktok.html
 
