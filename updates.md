@@ -1,3 +1,7 @@
+**A Canadian Wildfire Grew So Intense It Made Its Own Weather**\
+`Blazes that generate such stormy conditions can be nearly impossible to put out and pose special dangers to firefighters.`\
+https://nytimes.com/2024/07/26/climate/wildfire-weather-pyrocbs.html
+
 **Jerry Miller, Moby Grape Guitarist, Dies at 81**\
 `He drew praise for his blues-inflected fretwork as his critically acclaimed band rode high, if briefly, during San Francisco’s Summer of Love.`\
 https://nytimes.com/2024/07/26/arts/music/jerry-miller-moby-grape-dead.html
