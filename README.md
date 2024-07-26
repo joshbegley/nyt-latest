@@ -1,3 +1,7 @@
+**It’s Shark Season. How Worried Should You Be?**\
+`Attacks are rare, but they do happen. Here's what you need to know.`\
+https://nytimes.com/interactive/2024/07/26/well/shark-season-attacks-survival-tips.html
+
 **A city of light and shadows is redrawn for the Olympics.**\
 `By Roger Cohen`\
 https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/a-city-of-light-and-shadows-is-redrawn-for-the-olympics
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/spect
 **Prominent Short Seller Made Millions Off Bait-and-Switch Scheme, U.S. Says**\
 `Federal authorities filed charges against Andrew Left, founder of Citron Research, who they said made at least $16 million from a multiyear scheme to manipulate market prices.`\
 https://nytimes.com/2024/07/26/business/andrew-left-short-seller-fraud.html
-
-**In JD Vance Country, an Addiction Scourge That Won’t Go Away**\
-`The Republican vice-presidential nominee has spoken often about drug-afflicted communities like the one he escaped. But those communities have tempered their expectations for his help.`\
-https://nytimes.com/2024/07/26/us/politics/vance-addiction.html
 

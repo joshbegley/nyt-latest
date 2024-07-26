@@ -1,3 +1,11 @@
+**A city of light and shadows is redrawn for the Olympics.**\
+`By Roger Cohen`\
+https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/a-city-of-light-and-shadows-is-redrawn-for-the-olympics
+
+**Charles Barkley to entertain deals if TNT doesn't honor contract**\
+`Barkley said he planned to retire during the NBA Finals, but said he would be “stupid” not to listen to offers from ESPN, NBC and Amazon.`\
+https://nytimes.com/athletic/5660857/2024/07/26/charles-barkley-tnt-contract-free-agent-espn-nbc-amazon/
+
 **Can Fees on Polluting Cars Clean the Air? London Has New Evidence.**\
 `The city’s expanded low-emissions zone, which was politically fraught, has cut emissions that contribute to health problems like asthma, new numbers show.`\
 https://nytimes.com/2024/07/26/climate/congestion-pricing-ulez-london-pollution.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/26/business/andrew-left-short-seller-fraud.html
 **In JD Vance Country, an Addiction Scourge That Won’t Go Away**\
 `The Republican vice-presidential nominee has spoken often about drug-afflicted communities like the one he escaped. But those communities have tempered their expectations for his help.`\
 https://nytimes.com/2024/07/26/us/politics/vance-addiction.html
-
-**Dodgers trade James Paxton to Red Sox**\
-`The 35-year-old Paxton is returning to Boston, the team he played for last season.`\
-https://nytimes.com/athletic/5660848/2024/07/26/dodgers-trade-james-paxton-red-sox/
-
-**Saboteurs Targeted a Rail Network So Vast That It’s Impossible to Fully Secure**\
-`Thousands of miles of tracks leave the French system vulnerable to sabotage. But the suspected arsonists also knew just where to strike.`\
-https://nytimes.com/article/saboteurs-targeted-a-rail-network-so-vast-that-its-impossible-to-fully-secure.html
 

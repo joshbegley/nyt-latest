@@ -1,3 +1,11 @@
+**A city of light and shadows is redrawn for the Olympics.**\
+`By Roger Cohen`\
+https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/a-city-of-light-and-shadows-is-redrawn-for-the-olympics
+
+**Charles Barkley to entertain deals if TNT doesn't honor contract**\
+`Barkley said he planned to retire during the NBA Finals, but said he would be “stupid” not to listen to offers from ESPN, NBC and Amazon.`\
+https://nytimes.com/athletic/5660857/2024/07/26/charles-barkley-tnt-contract-free-agent-espn-nbc-amazon/
+
 **Can Fees on Polluting Cars Clean the Air? London Has New Evidence.**\
 `The city’s expanded low-emissions zone, which was politically fraught, has cut emissions that contribute to health problems like asthma, new numbers show.`\
 https://nytimes.com/2024/07/26/climate/congestion-pricing-ulez-london-pollution.html
