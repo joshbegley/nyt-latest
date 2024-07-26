@@ -1,3 +1,7 @@
+**Lamar Jackson again misses practice, continues to be evaluated by Ravens doctors**\
+`Jackson has participated in just one of Baltimore's five training camp practices this week. `\
+https://nytimes.com/athletic/5661590/2024/07/26/ravens-lamar-jackson-illness-training-camp/
+
 **Chiefs camp: First padded practice puts spotlight on Kingsley Suamataia, Felix Anudike-Uzomah**\
 `One of the best performers in Friday’s practice was Anudike-Uzomah, the 2023 first-round pick.`\
 https://nytimes.com/athletic/5661479/2024/07/26/chiefs-camp-first-padded-practice-puts-spotlight-on-kingsley-suamataia-felix-anudike-uzomah/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/26/us/ncaa-house-settlement-filed.html
 **Riner, Pérec light Olympic cauldron to kick off 2024 Summer Games**\
 `On Sunday, Paris 2024 organizing committee president Tony Estanguet said only about a dozen people in the world knew who was selected.`\
 https://nytimes.com/athletic/5661113/2024/07/26/olympic-cauldron-torchbearer-summer-games-paris/
-
-**New York to Replace Student MetroCards With Less Restrictive OMNY Cards**\
-`New OMNY transit cards for public school students, rolling out in September, will be usable 24 hours a day throughout the calendar year.`\
-https://nytimes.com/2024/07/26/nyregion/omny-metrocards-students-nyc.html
 
