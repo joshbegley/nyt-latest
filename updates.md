@@ -1,3 +1,15 @@
+**Firefighters from Around the World Headed to Canada to Battle Wildfires**\
+`Fast-moving fires have destroyed as much as half of the picturesque town of Jasper, Alberta, and have ravaged Jasper National Park.`\
+https://nytimes.com/2024/07/26/world/americas/canada-wildfires-jasper-alberta-firefighters.html
+
+**Bucks GM Jon Horst details team's quiet offseason, Giannis at Olympics and Year 2 of Lillard**\
+`"None of us are happy with the results last season," Horst told The Athletic. He believes the Bucks are one of the best teams in the NBA.`\
+https://nytimes.com/athletic/5658320/2024/07/26/bucks-jon-horst-qa-giannis-lillard/
+
+**U.K. Drops Opposition to International Criminal Court Warrant for Netanyahu**\
+`The new Labour government said it would drop the previous government’s objection to I.C.C. arrest warrants for Israel’s Prime Minister Benjamin Netanyahu and the defense minister, Yoav Gallant.`\
+https://nytimes.com/2024/07/26/world/middleeast/israel-gaza-icc-warrants-britain.html
+
 **Bruno Famin to leave role as Alpine F1 chief**\
 `SPA, Belgium — Alpine Formula One team principal Bruno Famin will leave his role to focus on the brand’s wider motorsport activities, including a planned end of its factory engine program by 2026.`\
 https://nytimes.com/athletic/5660653/2024/07/26/bruno-famin-alpine-f1/
