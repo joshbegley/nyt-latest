@@ -1,3 +1,7 @@
+**The best boats of the 2024 Olympic opening ceremony**\
+`The Seine entertained 85 boats carrying 205 delegations.`\
+https://nytimes.com/athletic/5661317/2024/07/26/olympics-opening-ceremony-boat-rankings/
+
 **Gail Lumet Buckley, Chronicler of Black Family History, Dies at 86**\
 `She wrote two books about multiple generations of her forebears, including her mother, Lena Horne.`\
 https://nytimes.com/2024/07/26/books/gail-lumet-buckley-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5661479/2024/07/26/kansas-city-chiefs-training-camp
 **49ers training camp: Deebo Samuel eager to score some kick-return TDs; O-line banged up**\
 `Though three of the 49ers' rookie draft picks missed Friday's practice with injuries, one found himself lining up with the starters.`\
 https://nytimes.com/athletic/5661415/2024/07/26/49ers-training-camp-deebo-samuel-kick-return/
-
-**Clear Encampments? Mind Your Own Business, Los Angeles Says.**\
-`In California, Gov. Gavin Newsom’s declaration urging cities to clear homeless camps met its strongest opposition in Los Angeles.`\
-https://nytimes.com/2024/07/26/us/homeless-encampments-newsom-los-angeles.html
 
