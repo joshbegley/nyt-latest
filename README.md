@@ -1,3 +1,7 @@
+**Australia, Canada and New Zealand press Netanyahu on a Gaza cease-fire.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/07/26/world/israel-gaza-war-hamas-netanyahu/australia-canada-and-new-zealand-press-netanyahu-on-a-gaza-cease-fire
+
 **The New Race**\
 `We explain three key points about the coming election.`\
 https://nytimes.com/2024/07/26/briefing/the-new-race.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5654273/2024/07/26/jesper-lindstrom-everton-transfe
 **Malang Sarr joins Lens after termination of Chelsea contract**\
 `Malang Sarr has completed his move to Lens after Chelsea released him from his contract.`\
 https://nytimes.com/athletic/5660211/2024/07/26/malang-sarr-lens-chelsea-transfer/
-
-**When A.I. Fails the Language Test, Who Is Left Out of the Conversation?**\
-`The use of artificial intelligence is exploding around the world, but the technology’s language models are primarily trained in English, leaving many speakers of other languages behind.`\
-https://nytimes.com/2024/07/26/technology/ai-language-gap.html
 
