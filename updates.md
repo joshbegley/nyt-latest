@@ -1,3 +1,7 @@
+**With Long Hours and a No-Fail Mission, the Secret Service Tries to Make Do**\
+`The agency charged with protecting presidents and foreign leaders has its largest ever budget but employees say it is still unable to recruit and retain enough people to carry the load.`\
+https://nytimes.com/2024/07/26/business/with-long-hours-and-a-no-fail-mission-the-secret-service-tries-to-make-do.html
+
 **At the opening ceremony, the illusion persists that it’s a small world after all.**\
 `By Jason Farago`\
 https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/at-the-opening-ceremony-the-illusion-persists-that-its-a-small-world-after-all
