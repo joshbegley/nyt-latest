@@ -1,3 +1,7 @@
+**Park Fire, Now California’s Largest This Year, Spreads Rapidly**\
+`One man is being held without bail after a witness saw him push a flaming vehicle down an embankment on Wednesday, the authorities said. The Park fire has burned more than 164,000 acres.`\
+https://nytimes.com/2024/07/26/us/park-fire-california.html
+
 **The pros and cons of selecting Bills TE Dalton Kincaid in fantasy drafts**\
 `With Stefon Diggs and Gabe Davis gone, could the second-year TE become Josh Allen's favorite target and an elite player at his position?`\
 https://nytimes.com/athletic/5658628/2024/07/26/bills-dalton-kincaid-fantasy-football/

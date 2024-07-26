@@ -1,3 +1,7 @@
+**Park Fire, Now California’s Largest This Year, Spreads Rapidly**\
+`One man is being held without bail after a witness saw him push a flaming vehicle down an embankment on Wednesday, the authorities said. The Park fire has burned more than 164,000 acres.`\
+https://nytimes.com/2024/07/26/us/park-fire-california.html
+
 **The pros and cons of selecting Bills TE Dalton Kincaid in fantasy drafts**\
 `With Stefon Diggs and Gabe Davis gone, could the second-year TE become Josh Allen's favorite target and an elite player at his position?`\
 https://nytimes.com/athletic/5658628/2024/07/26/bills-dalton-kincaid-fantasy-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5659300/2024/07/26/atlanta-falcons-training-camp-st
 **5 Things to Do This Weekend**\
 `A selection of entertainment highlights this weekend, including “Deadpool & Wolverine.”`\
 https://nytimes.com/interactive/2024/07/26/arts/weekend-editors-picks-deadpool-wolverine.html
-
-**Slow Down if You See These Dating ‘Yellow Flags’**\
-`Are they deal-breakers? Here is how to tell.`\
-https://nytimes.com/2024/07/26/well/family/dating-yellow-flags-relationship.html
 
