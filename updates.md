@@ -1,3 +1,7 @@
+**Giants camp: Brian Daboll lets rookie WR Malik Nabers call his own number**\
+`“It shows how much trust they have in me,” Nabers said of calling his own play. “Wanting to give me the ball ... and let me be me.”`\
+https://nytimes.com/athletic/5661080/2024/07/26/giants-training-camp-malik-nabers-brian-daboll/
+
 **Man City's Couto in advanced talks to join Dortmund**\
 `Borussia Dortmund are in advanced talks to sign defender Yan Couto from Manchester City with a deal expected to be concluded in the coming days.`\
 https://nytimes.com/athletic/5660815/2024/07/26/yan-couto-dortmund-man-city-transfer/

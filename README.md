@@ -1,3 +1,7 @@
+**W.H.O. plans to send one million polio vaccines to Gaza.**\
+`By Anjana Sankar`\
+https://nytimes.com/live/2024/07/26/world/israel-gaza-war-hamas-netanyahu/who-plans-to-send-one-million-polio-vaccines-to-gaza
+
 **Giants camp: Brian Daboll lets rookie WR Malik Nabers call his own number**\
 `“It shows how much trust they have in me,” Nabers said of calling his own play. “Wanting to give me the ball ... and let me be me.”`\
 https://nytimes.com/athletic/5661080/2024/07/26/giants-training-camp-malik-nabers-brian-daboll/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/26/magazine/partner-ex-girlfriend-ethics.html
 **NASA Aims to Restore Space Station Traffic After SpaceX and Boeing Problems**\
 `With the Falcon 9 rocket set to fly again, and testing of the Starliner capsule progressing, the agency is seeking to turn the page on a brief, troubled chapter in orbit.`\
 https://nytimes.com/2024/07/26/science/nasa-spacex-boeing-iss.html
-
-**It’s too early too worry about the Patriots offense … right?**\
-`The Patriots offense is off to a rough start. But it's still early, and there's plenty of time for that to change. (Right?)`\
-https://nytimes.com/athletic/5661132/2024/07/26/patriots-offense-maye-brissett/
 
