@@ -1,3 +1,7 @@
+**The New Race**\
+`We explain three key points about the coming election.`\
+https://nytimes.com/2024/07/26/briefing/the-new-race.html
+
 **Rams starting CB Darious Williams dealing with potential injury; more notes from camp**\
 `Darious Williams limped off after the final play with a possible hamstring injury and Sean McVay confirmed Derion Kendrick tore his ACL.`\
 https://nytimes.com/athletic/5660034/2024/07/26/la-rams-injury-update-darious-williams-derion-kendrick/

@@ -1,3 +1,7 @@
+**The New Race**\
+`We explain three key points about the coming election.`\
+https://nytimes.com/2024/07/26/briefing/the-new-race.html
+
 **Rams starting CB Darious Williams dealing with potential injury; more notes from camp**\
 `Darious Williams limped off after the final play with a possible hamstring injury and Sean McVay confirmed Derion Kendrick tore his ACL.`\
 https://nytimes.com/athletic/5660034/2024/07/26/la-rams-injury-update-darious-williams-derion-kendrick/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5660211/2024/07/26/malang-sarr-lens-chelsea-transfe
 **When A.I. Fails the Language Test, Who Is Left Out of the Conversation?**\
 `The use of artificial intelligence is exploding around the world, but the technology’s language models are primarily trained in English, leaving many speakers of other languages behind.`\
 https://nytimes.com/2024/07/26/technology/ai-language-gap.html
-
-**Park Fire, Now California’s Largest This Year, Spreads Rapidly**\
-`One man is being held without bail after a witness saw him push a flaming vehicle down an embankment on Wednesday, the authorities said. The Park fire has burned more than 164,000 acres.`\
-https://nytimes.com/2024/07/26/us/park-fire-california.html
 
