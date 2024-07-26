@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein Interviews Ben Wikler**\
+`The July 26, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/07/26/podcasts/transcript-ezra-klein-interviews-ben-wikler.html
+
 **Lady Gaga opens with an ode to French cabaret.**\
 `The ceremony will also provide a showcase for Aya Nakamura, a French-Malian singer, and a range of musical styles including disco, French hip-hop and zouk from the French Caribbean.`\
 https://nytimes.com/article/olympics-ceremony-performers.html
