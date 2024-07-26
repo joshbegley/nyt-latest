@@ -1,4 +1,20 @@
-**Sunny recorded scenes peak through the rainy festivities.**\
+**TNT Sports suing NBA after league rejected network's media rights offer**\
+`The NBA announced its 11-year, $77 billion agreements with ESPN, NBC and Amazon Prime Video earlier this week.`\
+https://nytimes.com/athletic/5661247/2024/07/26/tnt-sports-nba-lawsuit-media-rights/
+
+**Vance Calls ‘Cat Ladies’ Remark ‘Sarcasm’ but Amplifies Birthrate Argument**\
+`Donald J. Trump’s running mate said in an interview with Megyn Kelly that Democrats believed they could “replace American children with immigrants.”`\
+https://nytimes.com/2024/07/26/us/politics/vance-megyn-kelly-harris-birthrate.html
+
+**The Obamas Called Kamala Harris. Cameras Rolled. Hokeyness Ensued.**\
+`Calling to offer their endorsement, the former president and first lady sounded like parents in a Lifetime movie talking to their child at summer camp.`\
+https://nytimes.com/2024/07/26/us/politics/barack-michelle-obama-harris-video.html
+
+**Georgson joins Ten Hag’s Manchester United coaching staff**\
+`Manchester United have appointed Lillestrom head coach Andreas Georgson as a new first-team coach.`\
+https://nytimes.com/athletic/5661297/2024/07/26/andreas-georgson-manchester-united-coach/
+
+**Sunny recorded scenes peek through the rainy festivities.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/sunny-recorded-scenes-peak-through-the-rainy-festivities
 
@@ -21,21 +37,4 @@ https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/team-
 **A Canadian Wildfire Grew So Intense It Made Its Own Weather**\
 `Blazes that generate such stormy conditions can be nearly impossible to put out and pose special dangers to firefighters.`\
 https://nytimes.com/2024/07/26/climate/wildfire-weather-pyrocbs.html
-
-**Jerry Miller, Moby Grape Guitarist, Dies at 81**\
-`He drew praise for his blues-inflected fretwork as his critically acclaimed band rode high, if briefly, during San Francisco’s Summer of Love.`\
-https://nytimes.com/2024/07/26/arts/music/jerry-miller-moby-grape-dead.html
-
-**LeBron James and Coco Gauff are the U.S. Flag Bearers**\
-`The N.B.A. star LeBron James of the Los Angeles Lakers and the tennis star Coco Gauff were chosen by their peers to lead the United States at the opening ceremony in Paris.`\
-https://nytimes.com/2024/07/26/world/olympics/lebron-james-coco-gauff-us-flag-bearers.html
-
-**Sessegnon rejoins Fulham on two-year contract after Tottenham exit**\
-`Ryan Sessegnon has rejoined Fulham as a free agent, five years after leaving the club for Tottenham Hotspur.`\
-https://nytimes.com/athletic/5661121/2024/07/26/ryan-sessegnon-fulham-transfer-return/
-
-**Dolphins, Tagovailoa agree to long-term extension**\
-`By Dianna Russini, Jeff Howe, Larry Holder and Amos Morale III
-The Miami Dolphins and quarterback Tua Tagovailoa have agreed to a four-year, $212.`\
-https://nytimes.com/athletic/5596745/2024/07/26/tua-tagovailoa-contract-miami-dolphins/
 
