@@ -1,3 +1,11 @@
+**Who's who at Newcastle United: The club's new hierarchy explained**\
+`After ownership changes and staff being brought in, here's who does what at Newcastle`\
+https://nytimes.com/athletic/5655094/2024/07/26/newcastle-structure-owners-staff-coaches/
+
+**Arteta and Arsenal seem relaxed over new contract but agreeing one is fundamental**\
+`Mikel Arteta's contract expires next summer but there seems to be no tension over it right now`\
+https://nytimes.com/athletic/5640748/2024/07/26/mikel-arteta-arsenal-contract-future/
+
 **As Starvation Spreads in Sudan, Military Blocks Aid Trucks at Border**\
 `A country torn apart by civil war could soon face one of the world’s worst famines in decades, experts said.`\
 https://nytimes.com/2024/07/26/world/africa/sudan-starvation-military-border.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/26/pageoneplus/quotation-of-the-day-out-of-isolation
 **A Life Shaken by an Old Love Letter**\
 `To be drawn into the past is to experience it anew.`\
 https://nytimes.com/2024/07/26/style/modern-love-life-shaken-by-old-love-letter.html
-
-**Home is Wherever They Are Together**\
-`Paulina Krzysztoszek and Cory Bolotsky, who met in Mexico and continue to live a nomadic lifestyle, have grown their relationship in 29 countries and counting.`\
-https://nytimes.com/2024/07/26/style/paulina-krzysztoszek-cory-bolotsky-wedding.html
-
-**A Bubbly Start, Then ‘Totally in Love’ by the Second Date**\
-`Kelly Lyles and Ron Verstappen coincidentally each sipped Champagne as they first chatted on the phone. They soon began sharing a glass daily.`\
-https://nytimes.com/2024/07/26/style/kelly-lyles-and-ron-verstappen-wedding.html
 
