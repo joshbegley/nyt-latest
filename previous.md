@@ -1,3 +1,7 @@
+**‘Deadpool & Wolverine’ | Anatomy of a Scene**\
+`The director Shawn Levy narrates a sequence from his film starring Ryan Reynolds and Hugh Jackman.`\
+https://nytimes.com/video/movies/100000009589114/deadpool-and-wolverine-scene.html
+
 **Arson attacks disrupt trains in France on day of Olympic opening ceremony**\
 `An apparent arson attack on France's high-speed rail network early Friday disrupted travel on the morning of the Olympic opening ceremony.`\
 https://nytimes.com/athletic/5660168/2024/07/26/arson-attacks-disrupt-trains-in-france-on-day-of-olympic-opening-ceremony/
@@ -22,7 +26,7 @@ https://nytimes.com/2024/07/26/crosswords/wordle-review-1135.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/07/26/crosswords/spelling-bee-forum.html
 
-**Here’s the latest on the train disruption.**\
+**Here are the latest updates on the train line attacks.**\
 `The national railway company said three lines were disrupted by the attacks, causing massive delays.`\
 https://nytimes.com/live/2024/world/olympics-opening-ceremony/arson-france-trains-olympics
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/26/world/australia/turbulent-politics-australia-amer
 **Word of the Day: haptic**\
 `This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/07/26/learning/word-of-the-day-haptic.html
-
-**What We Know About the Sinaloa Cartel Arrests**\
-`The U.S. said it had arrested Ismael Zambada García, a co-founder, and Joaquín Guzmán López, a son of another co-founder. Both are accused of involvement in fentanyl trafficking.`\
-https://nytimes.com/2024/07/26/world/americas/sinaloa-cartel-arrests-what-we-know.html
 

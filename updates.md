@@ -1,3 +1,11 @@
+**‘Deadpool & Wolverine’ | Anatomy of a Scene**\
+`The director Shawn Levy narrates a sequence from his film starring Ryan Reynolds and Hugh Jackman.`\
+https://nytimes.com/video/movies/100000009589114/deadpool-and-wolverine-scene.html
+
+**Here are the latest updates on the train line attacks.**\
+`The national railway company said three lines were disrupted by the attacks, causing massive delays.`\
+https://nytimes.com/live/2024/world/olympics-opening-ceremony/arson-france-trains-olympics
+
 **Here’s the latest on the train disruption.**\
 `The national railway company said three lines were disrupted by the attacks, causing massive delays.`\
 https://nytimes.com/live/2024/world/olympics-opening-ceremony/arson-france-trains-olympics
