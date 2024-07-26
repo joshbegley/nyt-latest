@@ -1,3 +1,11 @@
+**Stephen Colbert Mocks Trump for Recycling His Old Insults**\
+`Colbert said the ex-president was “focused on the real issue gripping the country: desperately workshopping a new nickname for Kamala Harris.”`\
+https://nytimes.com/2024/07/26/arts/television/stephen-colbert-donald-trump.html
+
+**Harris Joins TikTok, Another Sign of the App’s Value in Reaching Young Voters**\
+`Vice President Kamala Harris launched her account on Thursday with an eight-second video that has since been viewed 5.8 million times.`\
+https://nytimes.com/2024/07/26/us/politics/kamala-harris-tiktok.html
+
 **Mariners acquire Randy Arozarena from Rays**\
 `Arozarena, 29, is slashing .211/.318/.394 with 15 home runs through 100 games this season, his fifth with Tampa Bay.`\
 https://nytimes.com/athletic/5660097/2024/07/26/mariners-acquire-randy-arozarena-from-rays-source/

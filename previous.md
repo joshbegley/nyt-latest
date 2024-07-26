@@ -1,3 +1,11 @@
+**Stephen Colbert Mocks Trump for Recycling His Old Insults**\
+`Colbert said the ex-president was “focused on the real issue gripping the country: desperately workshopping a new nickname for Kamala Harris.”`\
+https://nytimes.com/2024/07/26/arts/television/stephen-colbert-donald-trump.html
+
+**Harris Joins TikTok, Another Sign of the App’s Value in Reaching Young Voters**\
+`Vice President Kamala Harris launched her account on Thursday with an eight-second video that has since been viewed 5.8 million times.`\
+https://nytimes.com/2024/07/26/us/politics/kamala-harris-tiktok.html
+
 **Mariners acquire Randy Arozarena from Rays**\
 `Arozarena, 29, is slashing .211/.318/.394 with 15 home runs through 100 games this season, his fifth with Tampa Bay.`\
 https://nytimes.com/athletic/5660097/2024/07/26/mariners-acquire-randy-arozarena-from-rays-source/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5647064/2024/07/26/the-transfer-decisions-wolves-ne
 **Explained: The rules for under-18s competing in the Paris Olympics**\
 `There is an 11-year-old skateboarder competing in Paris and hundreds of under-18s - so how will children be looked after at the Olympics?`\
 https://nytimes.com/athletic/5653164/2024/07/26/under-18s-paris-olympics/
-
-**Jon Rudkin: The powerful Leicester City figure who shuns the spotlight**\
-`Trusted hugely by Leicester's owners but a lightning rod for fan criticism, director of football Rudkin is keen to stay in the background`\
-https://nytimes.com/athletic/5492795/2024/07/26/jon-rudkin-leicester-city-director-football/
-
-**Leny Yoro, from Paris boy to Man Utd: 'He had the same speed as Kylian Mbappe'**\
-`The story of Yoro's development from a boy in Paris to being watched by Real Madrid, PSG and his new employers Manchester United`\
-https://nytimes.com/athletic/5652363/2024/07/26/leny-yoro-at-lille-and-his-early-life/
 
