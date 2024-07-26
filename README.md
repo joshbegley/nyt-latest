@@ -1,3 +1,7 @@
+**Arson Attacks on French Rail Leave People Stranded**\
+`Hundreds were stuck at train stations in Paris and London as operators canceled and delayed trains on Friday after the attacks.`\
+https://nytimes.com/2024/07/26/world/olympics/paris-london-train-station.html
+
 **The USWNT have arrived at the Olympics and so has the Trin Spin**\
 `Emma Hayes' work with the USWNT is only just beginning but there are signs of improvement and togetherness already`\
 https://nytimes.com/athletic/5660287/2024/07/26/uswnt-trin-spin-olympics-zambia/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5430231/2024/07/26/rohan-bopanna-tennis-doubles-oly
 **The Athletic’s Friday football quiz question #14**\
 `Every week, we'll serve up a poser from our vault of football conundrums. It won't be easy (unless you're really good…)`\
 https://nytimes.com/athletic/5660207/2024/07/26/the-athletics-friday-football-quiz-question-14/
-
-**If his Giants' rebuild is going to work, GM Joe Schoen needs draft picks to thrive in 2024**\
-`Schoen is entering Year 3 at the helm of the Giants. If his picks don’t develop, his three-year review won’t be pretty.`\
-https://nytimes.com/athletic/5659788/2024/07/26/new-york-giants-joe-schoen-nfl-draft-year-3/
 
