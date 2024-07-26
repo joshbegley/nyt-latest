@@ -14,9 +14,9 @@ https://nytimes.com/2024/07/26/crosswords/wordle-review-1135.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/07/26/crosswords/spelling-bee-forum.html
 
-**Arson Disrupts Trains in France Hours Before Opening Ceremony of Olympics**\
+**Arson Attacks Disrupts Trains in France Hours Before Opening Ceremony of Olympics**\
 `The national railway company said three lines were disrupted by the attacks, causing massive delays.`\
-https://nytimes.com/2024/07/26/world/olympics/paris-fire-trains-delays.html
+https://nytimes.com/2024/07/26/world/olympics/arson-france-trains-olympics.html
 
 **Whose Politics Are More Turbulent, America’s or Australia’s?**\
 `Prime Minister Anthony Albanese, citing the revolving door of prime ministers, said his own country was in no position to criticize the United States.`\
