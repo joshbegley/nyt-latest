@@ -1,3 +1,7 @@
+**Arson attacks disrupt trains in France on day of Olympic opening ceremony**\
+`An apparent arson attack on France's high-speed rail network early Friday disrupted travel on the morning of the Olympic opening ceremony.`\
+https://nytimes.com/athletic/5660168/2024/07/26/arson-attacks-disrupt-trains-in-france-on-day-of-olympic-opening-ceremony/
+
 **'Slot's Liverpool tactics will suit me more than Klopp's. I can "do me" more'**\
 `The midfielder is desperate to become a part of Arne Slot's Liverpool rebuild - he says the Dutchman's style will get the best out of him`\
 https://nytimes.com/athletic/5659575/2024/07/26/curtis-jones-liverpool-arne-slot-jurgen-klopp/
@@ -20,7 +24,7 @@ https://nytimes.com/2024/07/26/crosswords/spelling-bee-forum.html
 
 **Arson Attacks Disrupt Trains in France Hours Before Opening Ceremony of Olympics**\
 `The national railway company said three lines were disrupted by the attacks, causing massive delays.`\
-https://nytimes.com/2024/07/26/world/olympics/arson-france-trains-olympics.html
+https://nytimes.com/live/2024/world/olympics-opening-ceremony/arson-france-trains-olympics
 
 **Whose Politics Are More Turbulent, America’s or Australia’s?**\
 `Prime Minister Anthony Albanese, citing the revolving door of prime ministers, said his own country was in no position to criticize the United States.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/26/learning/word-of-the-day-haptic.html
 **What We Know About the Sinaloa Cartel Arrests**\
 `The U.S. said it had arrested Ismael Zambada García, a co-founder, and Joaquín Guzmán López, a son of another co-founder. Both are accused of involvement in fentanyl trafficking.`\
 https://nytimes.com/2024/07/26/world/americas/sinaloa-cartel-arrests-what-we-know.html
-
-**China on Alert for Heavy Rain and Floods From Typhoon Gaemi**\
-`The storm has already left a trail of destruction in Taiwan and the Philippines, where it killed at least 15 people.`\
-https://nytimes.com/2024/07/26/world/asia/typhoon-gaemi-china-taiwan.html
 
