@@ -1,3 +1,15 @@
+**MLB Trade Grades: In Austin Hays deal, Phillies, Orioles shore up weak spots**\
+`The Phillies and Orioles swapped major leaguers. Did both teams fill their needs? `\
+https://nytimes.com/athletic/5660937/2024/07/26/mlb-trade-grades-hays-dominguez-phillies-orioles/
+
+**How did a city scarred by terrorism prepare an Olympic opening without walls?**\
+`By Catherine Porter and Ségolène Le Stradic`\
+https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/how-did-a-city-scarred-by-terrorism-prepare-an-olympic-opening-without-walls
+
+**Aya Nakamura Is Among the Confirmed Musical Performers. Surprise Acts Are Expected.**\
+`The ceremony will provide a showcase for Aya Nakamura, a French-Malian singer, and a range of musical styles including disco, French hip-hop and zouk from the French Caribbean.`\
+https://nytimes.com/article/olympics-ceremony-performers.html
+
 **Why LeBron, Gauff are U.S. Olympic flag bearers**\
 `Gauff, 20, is the youngest flag bearer in U.S. Olympic history, overtaking Cindy Nelson (1976 Winter Olympics, Innsbruck, Austria).`\
 https://nytimes.com/athletic/5660834/2024/07/26/lebron-coco-gauff-olympic-flag-bearers-faq/

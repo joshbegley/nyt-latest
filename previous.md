@@ -1,3 +1,15 @@
+**MLB Trade Grades: In Austin Hays deal, Phillies, Orioles shore up weak spots**\
+`The Phillies and Orioles swapped major leaguers. Did both teams fill their needs? `\
+https://nytimes.com/athletic/5660937/2024/07/26/mlb-trade-grades-hays-dominguez-phillies-orioles/
+
+**How did a city scarred by terrorism prepare an Olympic opening without walls?**\
+`By Catherine Porter and Ségolène Le Stradic`\
+https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/how-did-a-city-scarred-by-terrorism-prepare-an-olympic-opening-without-walls
+
+**Aya Nakamura Is Among the Confirmed Musical Performers. Surprise Acts Are Expected.**\
+`The ceremony will provide a showcase for Aya Nakamura, a French-Malian singer, and a range of musical styles including disco, French hip-hop and zouk from the French Caribbean.`\
+https://nytimes.com/article/olympics-ceremony-performers.html
+
 **Why LeBron, Gauff are U.S. Olympic flag bearers**\
 `Gauff, 20, is the youngest flag bearer in U.S. Olympic history, overtaking Cindy Nelson (1976 Winter Olympics, Innsbruck, Austria).`\
 https://nytimes.com/athletic/5660834/2024/07/26/lebron-coco-gauff-olympic-flag-bearers-faq/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/26/climate/congestion-pricing-ulez-london-pollution.
 **For Epidemics to Cross Oceans, Viruses on Ships Had to Beat the Odds**\
 `In the era when people traveled by sailing ship and steamer, illnesses usually burned themselves out before boats reached shore, a new study finds.`\
 https://nytimes.com/2024/07/26/health/viruses-ships-transmission.html
-
-**Phillies acquire Austin Hays from Orioles in trade for Seranthony Domínguez, Cristian Pache**\
-`The Phillies found their platoon partner for Brandon Marsh from an unexpected source — another contending team.`\
-https://nytimes.com/athletic/5660904/2024/07/26/phillies-orioles-trade-austin-hays-seranthony-dominguez-cristian-pache/
-
-**Five International Movies to Stream Now**\
-`This month’s picks include a ’90s coming-of-age tale from India, a Turkish noir set in a zoo, a Romanian drama about provincial politics and more.`\
-https://nytimes.com/2024/07/26/movies/international-movies-streaming.html
-
-**Roland Dumas Dies at 101; French Foreign Minister Tainted by Scandal**\
-`A lawyer and confidant of François Mitterrand, he was in the forefront of French politics for decades, only to be undone by his taste for the high life.`\
-https://nytimes.com/2024/07/26/world/europe/roland-dumas-dead.html
 
