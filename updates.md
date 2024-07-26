@@ -1,3 +1,11 @@
+**He Wrote a Story About Joy, Then Built a Tiny World to Match**\
+`Loren Long has illustrated books by Barack Obama, Madonna and Amanda Gorman. His No. 1 best seller, “The Yellow Bus,” took him in a different direction — one that required time, patience and toothpicks.`\
+https://nytimes.com/2024/07/26/books/loren-long-yellow-bus.html
+
+**‘Coup’ and ‘Cover-Up’: How the G.O.P. is reacting to the Harris candidacy.**\
+`By Karen Yourish and Lazaro Gamio`\
+https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/coup-and-cover-up-how-the-gop-is-reacting-to-the-harris-candidacy
+
 **104 Shows. $260 Million. After 10 Years, Billy Joel Closes a Chapter.**\
 `The singer and songwriter, 75, wrapped his decade-long residency at Madison Square Garden on Thursday night. Up next? A new era in his live career.`\
 https://nytimes.com/2024/07/26/arts/music/billy-joel-msg-residency-final-show.html
