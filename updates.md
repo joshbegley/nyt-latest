@@ -1,3 +1,15 @@
+**Battling Inflation, Russia Raises Key Interest Rate to 18 Percent**\
+`The move underscored the wartime risks for the Kremlin as the government pumps enormous sums of money into the Russian economy.`\
+https://nytimes.com/2024/07/26/world/europe/russia-inflation-interest-rate.html
+
+**Trump Meets With Netanyahu After Urging Israel to End War in Gaza**\
+`Ahead of the meeting, Mr. Trump insisted Israel needed to end the war as quickly as possible.`\
+https://nytimes.com/2024/07/26/us/politics/trump-netanyahu.html
+
+**Firefighters From Around the World Headed to Canada to Battle Wildfires**\
+`Fast-moving fires may have destroyed as much as half of the picturesque town of Jasper, Alberta, and have ravaged Jasper National Park.`\
+https://nytimes.com/2024/07/26/world/americas/canada-wildfires-jasper-alberta-firefighters.html
+
 **45%**\
 `Tesla’s drop in profit in the second quarter.`\
 https://nytimes.com/2024/07/26/business/45-tesla-q2-earnings.html
