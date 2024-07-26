@@ -1,3 +1,7 @@
+**Giants camp: Brian Daboll lets rookie WR Malik Nabers call his own number**\
+`“It shows how much trust they have in me,” Nabers said of calling his own play. “Wanting to give me the ball ... and let me be me.”`\
+https://nytimes.com/athletic/5661080/2024/07/26/giants-training-camp-malik-nabers-brian-daboll/
+
 **Man City's Couto in advanced talks to join Dortmund**\
 `Borussia Dortmund are in advanced talks to sign defender Yan Couto from Manchester City with a deal expected to be concluded in the coming days.`\
 https://nytimes.com/athletic/5660815/2024/07/26/yan-couto-dortmund-man-city-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/26/science/nasa-spacex-boeing-iss.html
 **It’s too early too worry about the Patriots offense … right?**\
 `The Patriots offense is off to a rough start. But it's still early, and there's plenty of time for that to change. (Right?)`\
 https://nytimes.com/athletic/5661132/2024/07/26/patriots-offense-maye-brissett/
-
-**Team U.S.A. is wearing navy blazers — again.**\
-`By Vanessa Friedman`\
-https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/team-usa-is-wearing-navy-blazers-again-fashion
 
