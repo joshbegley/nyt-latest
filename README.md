@@ -1,3 +1,15 @@
+**Madueke faces a battle to prove himself once again as he tries to impress a fourth head coach**\
+`The 22-year-old seemed to have established himself under Mauricio Pochettino but now he has to do it all again under Enzo Maresca`\
+https://nytimes.com/athletic/5659336/2024/07/26/noni-madueke-chelsea-maresca/
+
+**Explained: The rules for under-18s competing in the Paris Olympics**\
+`There is an 11-year-old skateboarder competing in Paris and hundreds of under-18s - so how will children be looked after at the Olympics?`\
+https://nytimes.com/athletic/5653164/2024/07/26/under-18s-paris-olympics/
+
+**Jon Rudkin: The powerful Leicester City figure who shuns the spotlight**\
+`Trusted hugely by Leicester's owners but a lightning rod for fan criticism, director of football Rudkin is keen to stay in the background`\
+https://nytimes.com/athletic/5492795/2024/07/26/jon-rudkin-leicester-city-director-football/
+
 **Leny Yoro, from Paris boy to Man Utd: 'He had the same speed as Kylian Mbappe'**\
 `The story of Yoro's development from a boy in Paris to being watched by Real Madrid, PSG and his new employers Manchester United`\
 https://nytimes.com/athletic/5652363/2024/07/26/leny-yoro-at-lille-and-his-early-life/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/26/world/africa/sudan-starvation-military-border.htm
 **Full Stands, Full Volume: The Olympics You Remember Are Back**\
 `Family, friends and fans were missing from two straight Covid Games. In Paris, one athlete said, competitors will have the kind of experience they dream about.`\
 https://nytimes.com/2024/07/26/world/olympics/paris-athletes-pandemic.html
-
-**Will These Sensational Skateboarding Tricks Win Japan Olympic Gold?**\
-`They have landed some of the most difficult tricks in the history of skateboarding. But in Paris, they may have a problem.`\
-https://nytimes.com/interactive/2024/07/26/world/asia/japan-skateboarding.html
-
-**In Japan, Turning the Tables on Rude Customers**\
-`The country is famous for its hospitality. But businesses have had enough of people screaming at workers or tormenting them on social media.`\
-https://nytimes.com/2024/07/26/world/asia/in-japan-turning-the-tables-on-rude-customers.html
-
-**Vintage of War**\
-`A single image captures the change in fortunes for a wine cellar turned field hospital in Russian-occupied Ukraine.`\
-https://nytimes.com/2024/07/26/world/europe/vintage-of-war.html
 
