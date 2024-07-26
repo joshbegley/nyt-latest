@@ -1,3 +1,7 @@
+**Georgson joins Ten Hag’s Manchester United coaching staff**\
+`Manchester United have appointed Lillestrom head coach Andreas Georgson as a new first-team coach.`\
+https://nytimes.com/athletic/5661297/2024/07/26/andreas-georgson-manchester-united-coach/
+
 **Sunny recorded scenes peak through the rainy festivities.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/sunny-recorded-scenes-peak-through-the-rainy-festivities
@@ -33,9 +37,4 @@ https://nytimes.com/2024/07/26/world/olympics/lebron-james-coco-gauff-us-flag-be
 **Sessegnon rejoins Fulham on two-year contract after Tottenham exit**\
 `Ryan Sessegnon has rejoined Fulham as a free agent, five years after leaving the club for Tottenham Hotspur.`\
 https://nytimes.com/athletic/5661121/2024/07/26/ryan-sessegnon-fulham-transfer-return/
-
-**Dolphins, Tagovailoa agree to long-term extension**\
-`By Dianna Russini, Jeff Howe, Larry Holder and Amos Morale III
-The Miami Dolphins and quarterback Tua Tagovailoa have agreed to a four-year, $212.`\
-https://nytimes.com/athletic/5596745/2024/07/26/tua-tagovailoa-contract-miami-dolphins/
 

@@ -1,3 +1,7 @@
+**Sunny recorded scenes peak through the rainy festivities.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/sunny-recorded-scenes-peak-through-the-rainy-festivities
+
 **My Partner Told Me About His Fights With His Ex. I Think I’m on Her Side.**\
 `The magazine’s Ethicist columnist on how partners can evaluate their romantic histories together — and be honest and respectful in their assessments.`\
 https://nytimes.com/2024/07/26/magazine/partner-ex-girlfriend-ethics.html
