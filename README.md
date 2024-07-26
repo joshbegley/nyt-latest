@@ -1,3 +1,11 @@
+**The USWNT have arrived at the Olympics and so has the Trin Spin**\
+`Emma Hayes' work with the USWNT is only just beginning but there are signs of improvement and togetherness already`\
+https://nytimes.com/athletic/5660287/2024/07/26/uswnt-trin-spin-olympics-zambia/
+
+**Eno's take: Which Randy Arozarena are the Mariners going to get?**\
+`Will the M's get the Arozarena who hit .158/.257/.312 through May? Or the one who has hit .290/.402/.517 since June 1? Analyzing the pickup.`\
+https://nytimes.com/athletic/5660362/2024/07/26/randy-arozarena-mariners-rays-trade-analysis/
+
 **MLB Trade Grades: Mariners nab Randy Arozarena from Rays to add thump**\
 `Randy Arozarena was acquired to thicken the Mariners' lineup. Does this trade get a thumbs-up from our graders? `\
 https://nytimes.com/athletic/5660311/2024/07/26/mlb-trade-grades-randy-arozarena-mariners-rays/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5660207/2024/07/26/the-athletics-friday-football-qu
 **If his Giants' rebuild is going to work, GM Joe Schoen needs draft picks to thrive in 2024**\
 `Schoen is entering Year 3 at the helm of the Giants. If his picks don’t develop, his three-year review won’t be pretty.`\
 https://nytimes.com/athletic/5659788/2024/07/26/new-york-giants-joe-schoen-nfl-draft-year-3/
-
-**Australia, Canada and New Zealand press Netanyahu on a Gaza cease-fire.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/07/26/world/israel-gaza-war-hamas-netanyahu/australia-canada-and-new-zealand-press-netanyahu-on-a-gaza-cease-fire
-
-**The New Race**\
-`We explain three key points about the coming election.`\
-https://nytimes.com/2024/07/26/briefing/the-new-race.html
 
