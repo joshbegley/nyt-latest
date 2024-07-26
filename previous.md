@@ -1,3 +1,7 @@
+**Five International Movies to Stream Now**\
+`This month’s picks include a ’90s coming-of-age tale from India, a Turkish noir set in a zoo, a Romanian drama about provincial politics and more.`\
+https://nytimes.com/2024/07/26/movies/international-movies-streaming.html
+
 **Roland Dumas Dies at 101; French Foreign Minister Tainted by Scandal**\
 `A lawyer and confidant of François Mitterrand, he was in the forefront of French politics for decades, only to be undone by his taste for the high life.`\
 https://nytimes.com/2024/07/26/world/europe/roland-dumas-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/26/world/europe/russia-inflation-interest-rate.html
 **45%**\
 `Tesla’s drop in profit in the second quarter.`\
 https://nytimes.com/2024/07/26/business/45-tesla-q2-earnings.html
-
-**Iraqi judoka records first positive doping test of Paris Olympics**\
-`An Iraqi judoka has recorded the first positive doping test of the 2024 Paris Olympics, the International Testing Agency (ITA) said on Friday.`\
-https://nytimes.com/athletic/5660781/2024/07/26/olympics-paris-doping-positive-judo/
 

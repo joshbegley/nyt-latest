@@ -1,3 +1,7 @@
+**Five International Movies to Stream Now**\
+`This month’s picks include a ’90s coming-of-age tale from India, a Turkish noir set in a zoo, a Romanian drama about provincial politics and more.`\
+https://nytimes.com/2024/07/26/movies/international-movies-streaming.html
+
 **Roland Dumas Dies at 101; French Foreign Minister Tainted by Scandal**\
 `A lawyer and confidant of François Mitterrand, he was in the forefront of French politics for decades, only to be undone by his taste for the high life.`\
 https://nytimes.com/2024/07/26/world/europe/roland-dumas-dead.html
