@@ -1,3 +1,7 @@
+**Team U.S.A. is wearing navy blazers — again.**\
+`By Vanessa Friedman`\
+https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/team-usa-is-wearing-navy-blazers-again-fashion
+
 **A Canadian Wildfire Grew So Intense It Made Its Own Weather**\
 `Blazes that generate such stormy conditions can be nearly impossible to put out and pose special dangers to firefighters.`\
 https://nytimes.com/2024/07/26/climate/wildfire-weather-pyrocbs.html

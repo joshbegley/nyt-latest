@@ -1,3 +1,7 @@
+**Team U.S.A. is wearing navy blazers — again.**\
+`By Vanessa Friedman`\
+https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/team-usa-is-wearing-navy-blazers-again-fashion
+
 **A Canadian Wildfire Grew So Intense It Made Its Own Weather**\
 `Blazes that generate such stormy conditions can be nearly impossible to put out and pose special dangers to firefighters.`\
 https://nytimes.com/2024/07/26/climate/wildfire-weather-pyrocbs.html
@@ -34,8 +38,4 @@ https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/break
 **Kamala Harris Needs a 3 P.M. Agenda**\
 `To steer the economy well, the president must see beyond what keeps voters up at night.`\
 https://nytimes.com/2024/07/26/opinion/kamala-harris-3pm-agenda.html
-
-**Campaign Advice for Kamala Harris**\
-`Readers offer an array of suggestions to the presumptive Democratic nominee. Also: Secret Service women; evangelicals and MAGA.`\
-https://nytimes.com/2024/07/26/opinion/kamala-harris-campaign-advice.html
 
