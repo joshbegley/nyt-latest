@@ -1,3 +1,7 @@
+**Bruno Famin to leave role as Alpine F1 chief**\
+`Alpine Formula One team principal Bruno Famin will leave his role to focus on the brand’s wider motorsport activities, including a planned end of its factory engine program by 2026.`\
+https://nytimes.com/athletic/5660653/2024/07/26/bruno-famin-alpine-f1/
+
 **Cherries for Black Forest Cake, Tomatoes for Gazpacho, Swordfish for Piccata**\
 `Something out there, something delicious, is speaking to you. Heed its call.`\
 https://nytimes.com/2024/07/26/dining/cherries-for-black-forest-cake-tomatoes-for-gazpacho-swordfish-for-piccata.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/26/realestate/oren-alexander-sexual-assault.html
 **Georgia wide receiver Rara Thomas arrested**\
 `Georgia wide receiver Rara Thomas was arrested early Friday morning, his second arrest since joining the program.`\
 https://nytimes.com/athletic/5660628/2024/07/26/rara-thomas-arrested-georgia/
-
-**As Trump Looms, Blinken Aims to Reassure Allies on U.S. Commitment to Asia**\
-`Asian officials will press Secretary of State Antony J. Blinken about the former president and about Kamala Harris as he visits the region.`\
-https://nytimes.com/2024/07/26/us/politics/blinken-asia-us-election.html
 
