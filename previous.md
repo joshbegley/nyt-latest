@@ -1,3 +1,15 @@
+**Gail Lumet Buckley, Chronicler of Black Family History, Dies at 86**\
+`She wrote two books about multiple generations of her forebears, including her mother, Lena Horne.`\
+https://nytimes.com/2024/07/26/books/gail-lumet-buckley-dead.html
+
+**Silent No More, Harris Seeks Her Own Voice Without Breaking With Biden**\
+`The vice president’s expressions of concern for Palestinian suffering marked a shift in emphasis from the president’s statements as she moved to establish herself as the leader of her party.`\
+https://nytimes.com/2024/07/26/us/politics/kamala-harris-gaza-biden.html
+
+**Mike Trout gets good news following knee MRI**\
+`Trout, who is recovering from knee surgery, plans to resume a running program soon.`\
+https://nytimes.com/athletic/5661692/2024/07/26/mike-trout-knee-mri-angels/
+
 **MLB trade deadline Q&A: Bowden on the market and latest rumblings as deals pick up**\
 `Answering questions on the seller's market, teams that are surprising me, the latest I'm hearing on big-name targets and much more.`\
 https://nytimes.com/athletic/5661443/2024/07/26/mlb-trade-deadline-market-rumors/
@@ -15,7 +27,7 @@ https://nytimes.com/athletic/5661028/2024/07/26/steelers-training-camp-russell-w
 https://nytimes.com/athletic/5661590/2024/07/26/ravens-lamar-jackson-illness-training-camp/
 
 **Chiefs camp: First padded practice puts spotlight on Kingsley Suamataia, Felix Anudike-Uzomah**\
-`One of the best performers in Friday’s practice was Anudike-Uzomah, the 2023 first-round pick.`\
+`One of the best performers in Friday's practice was Anudike-Uzomah, the 2023 first-round pick.`\
 https://nytimes.com/athletic/5661479/2024/07/26/kansas-city-chiefs-training-camp-kingsley-suamataia-felix-anudike-uzomah/
 
 **49ers training camp: Deebo Samuel eager to score some kick-return TDs; O-line banged up**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5661415/2024/07/26/49ers-training-camp-deebo-samuel
 **Clear Encampments? Mind Your Own Business, Los Angeles Says.**\
 `In California, Gov. Gavin Newsom’s declaration urging cities to clear homeless camps met its strongest opposition in Los Angeles.`\
 https://nytimes.com/2024/07/26/us/homeless-encampments-newsom-los-angeles.html
-
-**Nick Chubb working out at Browns training camp, slowly preparing for his return**\
-`“I’d say Nick is progressing exactly where he should be,” Cleveland coach Kevin Stefanski said about the four-time Pro Bowl running back.`\
-https://nytimes.com/athletic/5661267/2024/07/26/browns-nick-chubb-return-training-camp/
-
-**The Paris Olympics Opened in Spectacular Style**\
-`Also, a stunning betrayal led to the arrest of cartel leaders. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/07/26/briefing/paris-olympics-ceremony-harris-vp-search.html
-
-**Best moments of 2024 Olympics Opening Ceremony**\
-`If you missed the official start of the 2024 Olympics or want to reflect on all the pomp and circumstance, here's highlights from Friday.`\
-https://nytimes.com/athletic/5660981/2024/07/26/opening-ceremony-paris-olympics-2024-best-moments/
 

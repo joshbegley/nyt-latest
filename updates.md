@@ -1,3 +1,19 @@
+**Gail Lumet Buckley, Chronicler of Black Family History, Dies at 86**\
+`She wrote two books about multiple generations of her forebears, including her mother, Lena Horne.`\
+https://nytimes.com/2024/07/26/books/gail-lumet-buckley-dead.html
+
+**Silent No More, Harris Seeks Her Own Voice Without Breaking With Biden**\
+`The vice president’s expressions of concern for Palestinian suffering marked a shift in emphasis from the president’s statements as she moved to establish herself as the leader of her party.`\
+https://nytimes.com/2024/07/26/us/politics/kamala-harris-gaza-biden.html
+
+**Mike Trout gets good news following knee MRI**\
+`Trout, who is recovering from knee surgery, plans to resume a running program soon.`\
+https://nytimes.com/athletic/5661692/2024/07/26/mike-trout-knee-mri-angels/
+
+**Chiefs camp: First padded practice puts spotlight on Kingsley Suamataia, Felix Anudike-Uzomah**\
+`One of the best performers in Friday's practice was Anudike-Uzomah, the 2023 first-round pick.`\
+https://nytimes.com/athletic/5661479/2024/07/26/kansas-city-chiefs-training-camp-kingsley-suamataia-felix-anudike-uzomah/
+
 **Chiefs camp: First padded practice puts spotlight on Kingsley Suamataia, Felix Anudike-Uzomah**\
 `One of the best performers in Friday’s practice was Anudike-Uzomah, the 2023 first-round pick.`\
 https://nytimes.com/athletic/5661479/2024/07/26/kansas-city-chiefs-training-camp-kingsley-suamataia-felix-anudike-uzomah/
