@@ -1,3 +1,7 @@
+**Can Fees on Polluting Cars Clean the Air? London Has New Evidence.**\
+`The city’s expanded low-emissions zone, which was politically fraught, has cut emissions that contribute to health problems like asthma, new numbers show.`\
+https://nytimes.com/2024/07/26/climate/congestion-pricing-ulez-london-pollution.html
+
 **For Epidemics to Cross Oceans, Viruses on Ships Had to Beat the Odds**\
 `In the era when people traveled by sailing ship and steamer, illnesses usually burned themselves out before boats reached shore, a new study finds.`\
 https://nytimes.com/2024/07/26/health/viruses-ships-transmission.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5660848/2024/07/26/dodgers-trade-james-paxton-red-s
 **Saboteurs Targeted a Rail Network So Vast That It’s Impossible to Fully Secure**\
 `Thousands of miles of tracks leave the French system vulnerable to sabotage. But the suspected arsonists also knew just where to strike.`\
 https://nytimes.com/article/saboteurs-targeted-a-rail-network-so-vast-that-its-impossible-to-fully-secure.html
-
-**Dewsbury-Hall: 'Will Maresca surprise people at Chelsea? Definitely.'**\
-`The Chelsea midfielder on telling his new team-mates all about their manager, his England hopes, and why Maresca can have a big impact`\
-https://nytimes.com/athletic/5660209/2024/07/26/dewsbury-hall-chelsea-maresca-interview/
 

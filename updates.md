@@ -1,3 +1,7 @@
+**Can Fees on Polluting Cars Clean the Air? London Has New Evidence.**\
+`The city’s expanded low-emissions zone, which was politically fraught, has cut emissions that contribute to health problems like asthma, new numbers show.`\
+https://nytimes.com/2024/07/26/climate/congestion-pricing-ulez-london-pollution.html
+
 **For Epidemics to Cross Oceans, Viruses on Ships Had to Beat the Odds**\
 `In the era when people traveled by sailing ship and steamer, illnesses usually burned themselves out before boats reached shore, a new study finds.`\
 https://nytimes.com/2024/07/26/health/viruses-ships-transmission.html
