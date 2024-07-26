@@ -1,3 +1,15 @@
+**Rosenthal: What I'm hearing about the MLB trade deadline including the Rangers, Angels and more**\
+`The Rangers are going for it, the Angels are open to offers and the Pirates are scouting the Marlins' Jazz Chisholm Jr. `\
+https://nytimes.com/athletic/5659940/2024/07/25/mlb-trade-deadline-rangers-angels-pirates/
+
+**MLB Trade grades: Diamondbacks add A.J. Puk from Marlins to bolster bullpen**\
+`Puk adds versatility and another late-inning option to the Diamondbacks bullpen; how did both teams do in the deal?  `\
+https://nytimes.com/athletic/5659948/2024/07/25/diamondbacks-marlins-aj-puk-trade-grades/
+
+**Harris is said to be planning to announce her V.P. pick by Aug. 7.**\
+`The first rounds of interviews will be held by video calls, as the Harris campaign aims to condense a typically monthslong process into a few weeks.`\
+https://nytimes.com/live/2024/07/25/us/harris-trump-biden-election/harris-said-to-be-planning-to-announce-vp-pick-by-aug-7
+
 **For Billy Joel Fans, a New York Night to Remember**\
 `Thousands of people piled into Madison Square Garden on Thursday to hear Billy Joel glide from rock song to soulful blues in the final show of his long residency at the arena on Thursday night.`\
 https://nytimes.com/2024/07/25/arts/music/billy-joel-madison-square-garden.html
