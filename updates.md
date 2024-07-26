@@ -1,3 +1,7 @@
+**'Slot's Liverpool tactics will suit me more than Klopp's. I can "do me" more'**\
+`The midfielder is desperate to become a part of Arne Slot's Liverpool rebuild - he says the Dutchman's style will get the best out of him`\
+https://nytimes.com/athletic/5659575/2024/07/26/curtis-jones-liverpool-arne-slot-jurgen-klopp/
+
 **Arson Attacks Disrupt Trains in France Hours Before Opening Ceremony of Olympics**\
 `The national railway company said three lines were disrupted by the attacks, causing massive delays.`\
 https://nytimes.com/2024/07/26/world/olympics/arson-france-trains-olympics.html

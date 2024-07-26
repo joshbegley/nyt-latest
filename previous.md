@@ -1,3 +1,7 @@
+**'Slot's Liverpool tactics will suit me more than Klopp's. I can "do me" more'**\
+`The midfielder is desperate to become a part of Arne Slot's Liverpool rebuild - he says the Dutchman's style will get the best out of him`\
+https://nytimes.com/athletic/5659575/2024/07/26/curtis-jones-liverpool-arne-slot-jurgen-klopp/
+
 **Bordeaux lose professional status as club files for bankruptcy**\
 `Bordeaux have lost their professional status after being administratively relegated to the third tier of French football.`\
 https://nytimes.com/athletic/5658621/2024/07/26/bordeaux-relegation-french-football/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/26/world/americas/sinaloa-cartel-arrests-what-we-kno
 **China on Alert for Heavy Rain and Floods From Typhoon Gaemi**\
 `The storm has already left a trail of destruction in Taiwan and the Philippines, where it killed at least 15 people.`\
 https://nytimes.com/2024/07/26/world/asia/typhoon-gaemi-china-taiwan.html
-
-**Stephen Colbert Mocks Trump for Recycling His Old Insults**\
-`Colbert said the ex-president was “focused on the real issue gripping the country: desperately workshopping a new nickname for Kamala Harris.”`\
-https://nytimes.com/2024/07/26/arts/television/stephen-colbert-donald-trump.html
 
