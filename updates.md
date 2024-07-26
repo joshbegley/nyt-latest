@@ -1,3 +1,15 @@
+**Madueke faces a battle to prove himself once again as he tries to impress a fourth head coach**\
+`The 22-year-old seemed to have established himself under Mauricio Pochettino but now he has to do it all again under Enzo Maresca`\
+https://nytimes.com/athletic/5659336/2024/07/26/noni-madueke-chelsea-maresca/
+
+**Explained: The rules for under-18s competing in the Paris Olympics**\
+`There is an 11-year-old skateboarder competing in Paris and hundreds of under-18s - so how will children be looked after at the Olympics?`\
+https://nytimes.com/athletic/5653164/2024/07/26/under-18s-paris-olympics/
+
+**Jon Rudkin: The powerful Leicester City figure who shuns the spotlight**\
+`Trusted hugely by Leicester's owners but a lightning rod for fan criticism, director of football Rudkin is keen to stay in the background`\
+https://nytimes.com/athletic/5492795/2024/07/26/jon-rudkin-leicester-city-director-football/
+
 **Leny Yoro, from Paris boy to Man Utd: 'He had the same speed as Kylian Mbappe'**\
 `The story of Yoro's development from a boy in Paris to being watched by Real Madrid, PSG and his new employers Manchester United`\
 https://nytimes.com/athletic/5652363/2024/07/26/leny-yoro-at-lille-and-his-early-life/
