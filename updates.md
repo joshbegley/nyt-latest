@@ -1,3 +1,11 @@
+**The USWNT have arrived at the Olympics and so has the Trin Spin**\
+`Emma Hayes' work with the USWNT is only just beginning but there are signs of improvement and togetherness already`\
+https://nytimes.com/athletic/5660287/2024/07/26/uswnt-trin-spin-olympics-zambia/
+
+**Eno's take: Which Randy Arozarena are the Mariners going to get?**\
+`Will the M's get the Arozarena who hit .158/.257/.312 through May? Or the one who has hit .290/.402/.517 since June 1? Analyzing the pickup.`\
+https://nytimes.com/athletic/5660362/2024/07/26/randy-arozarena-mariners-rays-trade-analysis/
+
 **MLB Trade Grades: Mariners nab Randy Arozarena from Rays to add thump**\
 `Randy Arozarena was acquired to thicken the Mariners' lineup. Does this trade get a thumbs-up from our graders? `\
 https://nytimes.com/athletic/5660311/2024/07/26/mlb-trade-grades-randy-arozarena-mariners-rays/
