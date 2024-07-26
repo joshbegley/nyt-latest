@@ -1,3 +1,15 @@
+**In Love and Hoping for Asylum, Migrants Line Up for City Hall Weddings**\
+`The steady parade of couples seeking civil marriage ceremonies in New York City has expanded in recent months to include newly arrived migrants.`\
+https://nytimes.com/2024/07/26/nyregion/migrants-wedding-marriage-asylum.html
+
+**Wordle Review No. 1,135, Saturday, July 27, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/26/crosswords/wordle-review-1135.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/26/crosswords/spelling-bee-forum.html
+
 **Paris Commuter Trains Delayed After Reports of Fires**\
 `The operator of the trains said firefighters were responding to two episodes on rail lines that end in Paris, which was preparing for the Opening Ceremony of the Olympics on Friday.`\
 https://nytimes.com/2024/07/26/world/olympics/paris-fire-trains-delays.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/26/arts/television/stephen-colbert-donald-trump.html
 **Harris Joins TikTok, Another Sign of the App’s Value in Reaching Young Voters**\
 `Vice President Kamala Harris launched her account on Thursday with an eight-second video that has since been viewed 5.8 million times.`\
 https://nytimes.com/2024/07/26/us/politics/kamala-harris-tiktok.html
-
-**Mariners acquire Randy Arozarena from Rays**\
-`Arozarena, 29, is slashing .211/.318/.394 with 15 home runs through 100 games this season, his fifth with Tampa Bay.`\
-https://nytimes.com/athletic/5660097/2024/07/26/mariners-acquire-randy-arozarena-from-rays-source/
-
-**Venezuela Is Ready for Change. Maduro Must Allow It.**\
-`It is clear Venezuelans have chosen to oust President Maduro. Whether that will happen remains in question.`\
-https://nytimes.com/2024/07/26/opinion/venezuela-elections-gonzalez-maduro.html
-
-**Friday Briefing**\
-`A new poll from the U.S. presidential race.`\
-https://nytimes.com/2024/07/26/briefing/election-olympics-gaza.html
 

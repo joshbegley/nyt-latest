@@ -1,3 +1,15 @@
+**In Love and Hoping for Asylum, Migrants Line Up for City Hall Weddings**\
+`The steady parade of couples seeking civil marriage ceremonies in New York City has expanded in recent months to include newly arrived migrants.`\
+https://nytimes.com/2024/07/26/nyregion/migrants-wedding-marriage-asylum.html
+
+**Wordle Review No. 1,135, Saturday, July 27, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/26/crosswords/wordle-review-1135.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/26/crosswords/spelling-bee-forum.html
+
 **Paris Commuter Trains Delayed After Reports of Fires**\
 `The operator of the trains said firefighters were responding to two episodes on rail lines that end in Paris, which was preparing for the Opening Ceremony of the Olympics on Friday.`\
 https://nytimes.com/2024/07/26/world/olympics/paris-fire-trains-delays.html
