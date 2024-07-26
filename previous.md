@@ -1,3 +1,16 @@
+**Sessegnon rejoins Fulham on two-year contract after Tottenham exit**\
+`Ryan Sessegnon has rejoined Fulham as a free agent, five years after leaving the club for Tottenham Hotspur.`\
+https://nytimes.com/athletic/5661121/2024/07/26/ryan-sessegnon-fulham-transfer-return/
+
+**Dolphins, Tagovailoa agree to long-term extension**\
+`By Dianna Russini, Jeff Howe, Larry Holder and Amos Morale III
+The Miami Dolphins and quarterback Tua Tagovailoa have agreed to a four-year, $212.`\
+https://nytimes.com/athletic/5596745/2024/07/26/tua-tagovailoa-contract-miami-dolphins/
+
+**A woman’s long overlooked contributions to the Olympics are recognized.**\
+`By John Branch`\
+https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/a-womans-long-overlooked-contributions-to-the-olympics-are-recognized
+
 **With Patrik Laine cleared, Blue Jackets trade talks set to heat up**\
 `Patrik Laine has been cleared by the NHL/NHLPA players' assistance program. The veteran winger has requested a 'change of scenery.'`\
 https://nytimes.com/athletic/5660939/2024/07/26/patrik-laine-blue-jackets-trade-nhl/
@@ -25,16 +38,4 @@ https://nytimes.com/article/opening-ceremony-heavy-metal-band-gojira.html
 **Patrick Mahomes on Raiders' Kermit the Frog incident: 'It’ll get handled when it gets handled'**\
 `A video circulated Thursday of Raiders safety Trey Taylor holding a fan's "Kermit the Frog" doll donning a Patrick Mahomes jersey and wig.`\
 https://nytimes.com/athletic/5661045/2024/07/26/patrick-mahomes-chiefs-raiders-trey-taylor/
-
-**Museum of Natural History Says It Is Repatriating 124 Human Remains**\
-`The museum reports having hundreds of consultations with Native American groups and says it is also returning 90 objects.`\
-https://nytimes.com/2024/07/26/arts/design/american-museum-natural-history-native-american.html
-
-**California Wildfire Races Through a Forest Community, in a Haunting Reminder**\
-`The Park fire in Northern California quickly became the state’s largest and most destructive wildfire this year, not far from where Paradise, Calif., was decimated in 2018.`\
-https://nytimes.com/2024/07/26/us/park-fire-california-chico.html
-
-**The director of the opening ceremony made the Seine his stage.**\
-`By Catherine Porter`\
-https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/the-director-of-the-opening-ceremony-made-the-seine-his-stage
 
