@@ -1,3 +1,7 @@
+**Patrick Mahomes on Raiders' Kermit the Frog incident: 'It’ll get handled when it gets handled'**\
+`A video circulated Thursday of Raiders safety Trey Taylor holding a fan's "Kermit the Frog" doll donning a Patrick Mahomes jersey and wig.`\
+https://nytimes.com/athletic/5661045/2024/07/26/patrick-mahomes-chiefs-raiders-trey-taylor/
+
 **What was with that heavy metal band? That was Gojira.**\
 `By Alex Marshall`\
 https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/what-was-with-that-heavy-metal-band-that-was-gojira
