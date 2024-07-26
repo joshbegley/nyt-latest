@@ -1,3 +1,11 @@
+**He Wrote a Story About Joy, Then Built a Tiny World to Match**\
+`Loren Long has illustrated books by Barack Obama, Madonna and Amanda Gorman. His No. 1 best seller, “The Yellow Bus,” took him in a different direction — one that required time, patience and toothpicks.`\
+https://nytimes.com/2024/07/26/books/loren-long-yellow-bus.html
+
+**‘Coup’ and ‘Cover-Up’: How the G.O.P. is reacting to the Harris candidacy.**\
+`By Karen Yourish and Lazaro Gamio`\
+https://nytimes.com/live/2024/07/24/us/harris-trump-biden-election/coup-and-cover-up-how-the-gop-is-reacting-to-the-harris-candidacy
+
 **104 Shows. $260 Million. After 10 Years, Billy Joel Closes a Chapter.**\
 `The singer and songwriter, 75, wrapped his decade-long residency at Madison Square Garden on Thursday night. Up next? A new era in his live career.`\
 https://nytimes.com/2024/07/26/arts/music/billy-joel-msg-residency-final-show.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5660448/2024/07/26/simone-biles-uneven-bars-origina
 **What We Know About the Attacks on France’s Rail Network**\
 `Coordinated arson attacks on France’s national high-speed rail network have disrupted travel ahead of the opening ceremony for the Olympics in Paris.`\
 https://nytimes.com/2024/07/26/world/europe/frances-rail-network-attacks-paris-olympics.html
-
-**The Athletic FC: Why Premier League loves France; More fallout from Olympic spying scandal**\
-`Why France's Ligue 1 is the favourite hunting ground for Premier League scouts, and what's the latest with the Olympic spying controversy?`\
-https://nytimes.com/athletic/5660212/2024/07/26/athletic-newsletter-premier-league-transfers/
-
-**Here’s How The New York Times Is Bringing You the Olympics**\
-`Our reporters, photographers, editors and graphics team are in Paris to tell you the stories of triumph, disappointment and much more.`\
-https://nytimes.com/2024/07/26/insider/olympics-paris-coverage.html
 
