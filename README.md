@@ -20,7 +20,7 @@ https://nytimes.com/athletic/5661444/2024/07/26/mariners-blue-jays-yimi-garcia-t
 
 **Though Critical on Gaza, Trump Cites Good Relations With Netanyahu**\
 `The former president met with the Israeli leader in Florida, a day after his main opponent, Vice President Kamala Harris, and he both criticized Israel’s conduct of the war.`\
-https://nytimes.com/2024/07/26/world/middleeast/trump-netanyahu-israel-hamas-gaza.html
+https://nytimes.com/2024/07/26/world/middleeast/israel-hamas-gaza-trump-netanyahu.html
 
 **Warner Bros. Discovery Sues N.B.A. Over Rights Deal**\
 `The company is trying to make the league accept its match of Amazon’s bid to broadcast games starting with the 2025-26 season.`\
