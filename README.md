@@ -1,3 +1,15 @@
+**How the U.S. Captured One of Mexico’s Biggest Drug Lords**\
+`The improbable arrest of Ismael Zambada García, who for decades had evaded the authorities, at a small airport outside El Paso appears to be a tale of subterfuge and betrayal.`\
+https://nytimes.com/2024/07/26/us/politics/el-mayo-arrest.html
+
+**When the Game Does Not End at the Final Whistle**\
+`Most soccer fans long ago internalized the idea that truth is a slippery concept.`\
+https://nytimes.com/2024/07/26/world/europe/olympics-morocco-argentina-score.html
+
+**Arkansas lands 5-star recruit Darius Acuff**\
+`The 6-foot-3, 180-pound prospect is the No. 1 point guard and the No. 2 player in Florida, per the 247Sports Composite rankings.`\
+https://nytimes.com/athletic/5658948/2024/07/26/darius-acuff-arkansas-basketball/
+
 **Justice Dept. Settles Lawsuit With Former F.B.I. Officials Targeted by Trump**\
 `Peter Strzok, a former F.B.I. agent, and Lisa Page, a former lawyer for the bureau, accused the Trump administration of violating their privacy after it provided explosive texts to the news media.`\
 https://nytimes.com/2024/07/26/us/politics/fbi-texts-strzok-page-trump.html
@@ -7,7 +19,7 @@ https://nytimes.com/2024/07/26/us/politics/fbi-texts-strzok-page-trump.html
 https://nytimes.com/athletic/5661239/2024/07/26/chicago-bears-caleb-williams-training-camp-scuffle/
 
 **Orioles to add right-hander Zach Eflin in deal with Rays: Source**\
-`The Orioles have added to their rotation in an inter-division deal that send three prospects to aggressive seller Tampa Bay.`\
+`The Orioles have added to their rotation in an inter-division deal that sends three prospects to aggressive seller Tampa Bay.`\
 https://nytimes.com/athletic/5661439/2024/07/26/orioles-rays-zach-eflin-trade/
 
 **The Best of Late Night This Week**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5661136/2024/07/26/2024-olympics-opening-ceremony-s
 **Tigers' Riley Greene hits the IL: 'One of my goals was not to get hurt, and I did'**\
 `This is the fourth time Riley Greene has been injured in the past three seasons. `\
 https://nytimes.com/athletic/5661383/2024/07/26/tigers-riley-greene-injury-2/
-
-**Jayden Daniels' chill vibe hides competitor within: 'You can’t be content with your job'**\
-`"He’s got the humility and hard work of a rookie, with a little bit of swag of an older guy," Washington coach Dan Quinn said of Daniels. `\
-https://nytimes.com/athletic/5661112/2024/07/26/commanders-jayden-daniels-training-camp/
-
-**Celebrities Support Plan to Reopen Upper West Side Movie Theater**\
-`Martin Scorsese, Ethan Hawke and John Turturro are all listed as advisers to a new proposal to buy the former Metro Theater, which closed in 2005.`\
-https://nytimes.com/2024/07/26/movies/celebrities-plan-metro-theater-movie-upper-west-side.html
-
-**W.H.O. plans to send one million polio vaccines to Gaza.**\
-`By Anjana Sankar`\
-https://nytimes.com/live/2024/07/26/world/israel-gaza-war-hamas-netanyahu/who-plans-to-send-one-million-polio-vaccines-to-gaza
 
