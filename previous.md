@@ -1,3 +1,7 @@
+**What We Know About the Attacks on France’s Rail Network**\
+`Coordinated arson attacks on France’s national high-speed rail network have disrupted travel ahead of the opening ceremony for the Olympics in Paris.`\
+https://nytimes.com/2024/07/26/world/europe/frances-rail-network-attacks-paris-olympics.html
+
 **The Athletic FC: Why Premier League loves France; More fallout from Olympic spying scandal**\
 `Why France's Ligue 1 is the favourite hunting ground for Premier League scouts, and what's the latest with the Olympic spying controversy?`\
 https://nytimes.com/athletic/5660212/2024/07/26/athletic-newsletter-premier-league-transfers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5660311/2024/07/26/mlb-trade-grades-randy-arozarena
 **Precautions Failed to Halt Rail Sabotage**\
 `The attacks on several high-speed rail lines happened despite the sweeping mobilization of recent weeks.`\
 https://nytimes.com/2024/07/26/world/olympics/olympics-paris-train-arson.html
-
-**Broncos QB battle: Finding a 'happy medium' between safe and soaring pass attempts**\
-`The participants in the Broncos' quarterback competition have largely avoided mistakes, but progress must be made in attacking up the field.`\
-https://nytimes.com/athletic/5659254/2024/07/26/broncos-qb-battle-passing/
 

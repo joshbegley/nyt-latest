@@ -1,3 +1,7 @@
+**What We Know About the Attacks on France’s Rail Network**\
+`Coordinated arson attacks on France’s national high-speed rail network have disrupted travel ahead of the opening ceremony for the Olympics in Paris.`\
+https://nytimes.com/2024/07/26/world/europe/frances-rail-network-attacks-paris-olympics.html
+
 **The Athletic FC: Why Premier League loves France; More fallout from Olympic spying scandal**\
 `Why France's Ligue 1 is the favourite hunting ground for Premier League scouts, and what's the latest with the Olympic spying controversy?`\
 https://nytimes.com/athletic/5660212/2024/07/26/athletic-newsletter-premier-league-transfers/
