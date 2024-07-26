@@ -1,8 +1,12 @@
-**Seattle Mariners acquire reliever Yimi García from Toronto Blue Jays: Source**\
+**House v. NCAA settlement takes next step toward schools paying athletes**\
+`New documents were filed in the historic House v.`\
+https://nytimes.com/athletic/5660945/2024/07/26/ncaa-house-settlement-college-sports/
+
+**Seattle Mariners acquire reliever Yimi García from Toronto Blue Jays**\
 `The Blue Jays are expected to be significant sellers over the next few days and they've traded one of their best chips in Garcia.`\
 https://nytimes.com/athletic/5661444/2024/07/26/mariners-blue-jays-yimi-garcia-trade/
 
-**Trump, Though Critical on Gaza, Says He and Netanyahu Remain on Good Terms**\
+**Though Critical on Gaza, Trump Cites Good Relations With Netanyahu**\
 `The former president met with the Israeli leader in Florida, a day after his main opponent, Vice President Kamala Harris, and he both criticized Israel’s conduct of the war.`\
 https://nytimes.com/2024/07/26/world/middleeast/trump-netanyahu-israel-hamas-gaza.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5661169/2024/07/26/bills-training-camp-josh-allen-g
 **How the U.S. Captured One of Mexico’s Biggest Drug Lords**\
 `The improbable arrest of Ismael Zambada García, who for decades had evaded the authorities, at a small airport outside El Paso appears to be a tale of subterfuge and betrayal.`\
 https://nytimes.com/2024/07/26/us/politics/el-mayo-arrest.html
-
-**When the Game Does Not End at the Final Whistle**\
-`Most soccer fans long ago internalized the idea that truth is a slippery concept.`\
-https://nytimes.com/2024/07/26/world/europe/olympics-morocco-argentina-score.html
 
