@@ -1,4 +1,8 @@
 **Bruno Famin to leave role as Alpine F1 chief**\
+`SPA, Belgium — Alpine Formula One team principal Bruno Famin will leave his role to focus on the brand’s wider motorsport activities, including a planned end of its factory engine program by 2026.`\
+https://nytimes.com/athletic/5660653/2024/07/26/bruno-famin-alpine-f1/
+
+**Bruno Famin to leave role as Alpine F1 chief**\
 `Alpine Formula One team principal Bruno Famin will leave his role to focus on the brand’s wider motorsport activities, including a planned end of its factory engine program by 2026.`\
 https://nytimes.com/athletic/5660653/2024/07/26/bruno-famin-alpine-f1/
 
