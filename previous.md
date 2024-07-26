@@ -1,3 +1,11 @@
+**Jerry Miller, Moby Grape Guitarist, Dies at 81**\
+`He drew praise for his blues-inflected fretwork as his critically acclaimed band rode high, if briefly, during San Francisco’s Summer of Love.`\
+https://nytimes.com/2024/07/26/arts/music/jerry-miller-moby-grape-dead.html
+
+**LeBron James and Coco Gauff are the U.S. Flag Bearers**\
+`The N.B.A. star LeBron James of the Los Angeles Lakers and the tennis star Coco Gauff were chosen by their peers to lead the United States at the opening ceremony in Paris.`\
+https://nytimes.com/2024/07/26/world/olympics/lebron-james-coco-gauff-us-flag-bearers.html
+
 **Sessegnon rejoins Fulham on two-year contract after Tottenham exit**\
 `Ryan Sessegnon has rejoined Fulham as a free agent, five years after leaving the club for Tottenham Hotspur.`\
 https://nytimes.com/athletic/5661121/2024/07/26/ryan-sessegnon-fulham-transfer-return/
@@ -30,12 +38,4 @@ https://nytimes.com/2024/07/26/opinion/kamala-harris-campaign-advice.html
 **Trump May Pay a Steep Price for Vance**\
 `Vance wasn’t five feet from the altar when his ugliness dominated the discussion.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/trump-may-pay-a-steep-price-for-vance
-
-**What was with that heavy metal band? That was Gojira.**\
-`Gojira, a popular French band, became the first hard rock act to perform in an Olympic Games opening ceremony when it did a metal version of “Ah! Ça Ira,” a song that was popular during the French Revolution.`\
-https://nytimes.com/article/opening-ceremony-heavy-metal-band-gojira.html
-
-**Patrick Mahomes on Raiders' Kermit the Frog incident: 'It’ll get handled when it gets handled'**\
-`A video circulated Thursday of Raiders safety Trey Taylor holding a fan's "Kermit the Frog" doll donning a Patrick Mahomes jersey and wig.`\
-https://nytimes.com/athletic/5661045/2024/07/26/patrick-mahomes-chiefs-raiders-trey-taylor/
 
