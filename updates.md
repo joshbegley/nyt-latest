@@ -1,3 +1,7 @@
+**What We Know About the Sinaloa Cartel Arrests**\
+`The U.S. said it had arrested Ismael Zambada García, a co-founder, and Joaquín Guzmán López, a son of another co-founder. Both are accused of involvement in fentanyl trafficking.`\
+https://nytimes.com/2024/07/26/world/americas/sinaloa-cartel-arrests-what-we-know.html
+
 **China on Alert for Heavy Rain and Floods From Typhoon Gaemi**\
 `The storm has already left a trail of destruction in Taiwan and the Philippines, where it killed at least 15 people.`\
 https://nytimes.com/2024/07/26/world/asia/typhoon-gaemi-china-taiwan.html
