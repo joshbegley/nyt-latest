@@ -1,6 +1,18 @@
+**Fantasy baseball waiver wire: Drew Thorpe, Eugenio Suárez and more; plus, two-start pitchers and stashes adds**\
+`John Laghezza sifts through the advanced analytics to uncover waiver wire gems, like the suddenly surging Eugenio Suárez.`\
+https://nytimes.com/athletic/5656472/2024/07/26/fantasy-baseball-waiver-wire-drew-thorpe-eugenio-suarez-adds/
+
+**'I'm back at Everton to make a bigger impact - I've worked all summer to do that'**\
+`Jack Harrison talks openly about Everton improvements, his Leeds exit after playing through pain barrier, and hopes for the future`\
+https://nytimes.com/athletic/5657997/2024/07/26/jack-harrison-everton-leeds-interview/
+
 **Madueke faces a battle to prove himself once again as he tries to impress a fourth head coach**\
 `The 22-year-old seemed to have established himself under Mauricio Pochettino but now he has to do it all again under Enzo Maresca`\
 https://nytimes.com/athletic/5659336/2024/07/26/noni-madueke-chelsea-maresca/
+
+**The transfer decisions Wolves need to make: Kilman replacement, Podence plan, Neto uncertainty**\
+`The questions Gary O'Neil and the Wolves hierarchy will need to answer before the end of the summer window on August 30`\
+https://nytimes.com/athletic/5647064/2024/07/26/the-transfer-decisions-wolves-need-to-make-kilman-replacement-podence-plan-neto-uncertainty/
 
 **Explained: The rules for under-18s competing in the Paris Olympics**\
 `There is an 11-year-old skateboarder competing in Paris and hundreds of under-18s - so how will children be looked after at the Olympics?`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5657702/2024/07/26/real-madrid-endrick-mbappe-value
 **Who's who at Newcastle United: The club's new hierarchy explained**\
 `After ownership changes and staff being brought in, here's who does what at Newcastle`\
 https://nytimes.com/athletic/5655094/2024/07/26/newcastle-structure-owners-staff-coaches/
-
-**Arteta and Arsenal seem relaxed over new contract but agreeing one is fundamental**\
-`Mikel Arteta's contract expires next summer but there seems to be no tension over it right now`\
-https://nytimes.com/athletic/5640748/2024/07/26/mikel-arteta-arsenal-contract-future/
-
-**As Starvation Spreads in Sudan, Military Blocks Aid Trucks at Border**\
-`A country torn apart by civil war could soon face one of the world’s worst famines in decades, experts said.`\
-https://nytimes.com/2024/07/26/world/africa/sudan-starvation-military-border.html
-
-**Full Stands, Full Volume: The Olympics You Remember Are Back**\
-`Family, friends and fans were missing from two straight Covid Games. In Paris, one athlete said, competitors will have the kind of experience they dream about.`\
-https://nytimes.com/2024/07/26/world/olympics/paris-athletes-pandemic.html
 
