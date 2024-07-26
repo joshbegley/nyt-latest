@@ -1,3 +1,7 @@
+**Biles submits new skill on uneven bars: Could it be sixth named after her?**\
+`PARIS — Simone Biles is not only ready to compete in the Olympics; she’s ready to leave a lasting impression.`\
+https://nytimes.com/athletic/5660448/2024/07/26/simone-biles-uneven-bars-original-element/
+
 **What We Know About the Attacks on France’s Rail Network**\
 `Coordinated arson attacks on France’s national high-speed rail network have disrupted travel ahead of the opening ceremony for the Olympics in Paris.`\
 https://nytimes.com/2024/07/26/world/europe/frances-rail-network-attacks-paris-olympics.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5660362/2024/07/26/randy-arozarena-mariners-rays-tr
 **MLB Trade Grades: Mariners nab Randy Arozarena from Rays to add thump**\
 `Randy Arozarena was acquired to thicken the Mariners' lineup. Does this trade get a thumbs-up from our graders? `\
 https://nytimes.com/athletic/5660311/2024/07/26/mlb-trade-grades-randy-arozarena-mariners-rays/
-
-**Precautions Failed to Halt Rail Sabotage**\
-`The attacks on several high-speed rail lines happened despite the sweeping mobilization of recent weeks.`\
-https://nytimes.com/2024/07/26/world/olympics/olympics-paris-train-arson.html
 
