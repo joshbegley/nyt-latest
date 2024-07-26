@@ -1,3 +1,11 @@
+**Dodgers trade James Paxton to Red Sox**\
+`The 35-year-old Paxton is returning to Boston, the team he played for last season.`\
+https://nytimes.com/athletic/5660848/2024/07/26/dodgers-trade-james-paxton-red-sox/
+
+**Saboteurs targeted a rail network so vast that it’s impossible to fully secure.**\
+`Thousands of miles of tracks leave the French system vulnerable to sabotage. But the arsonists also knew just where to strike.`\
+https://nytimes.com/article/saboteurs-targeted-a-rail-network-so-vast-that-its-impossible-to-fully-secure.html
+
 **Dewsbury-Hall: 'Will Maresca surprise people at Chelsea? Definitely.'**\
 `The Chelsea midfielder on telling his new team-mates all about their manager, his England hopes, and why Maresca can have a big impact`\
 https://nytimes.com/athletic/5660209/2024/07/26/dewsbury-hall-chelsea-maresca-interview/
