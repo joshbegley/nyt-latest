@@ -1,3 +1,7 @@
+**Mariners acquire Randy Arozarena from Rays**\
+`Arozarena, 29, is slashing .211/.318/.394 with 15 home runs through 100 games this season, his fifth with Tampa Bay.`\
+https://nytimes.com/athletic/5660097/2024/07/26/mariners-acquire-randy-arozarena-from-rays-source/
+
 **Venezuela Is Ready for Change. Maduro Must Allow It.**\
 `It is clear Venezuelans have chosen to oust President Maduro. Whether that will happen remains in question.`\
 https://nytimes.com/2024/07/26/opinion/venezuela-elections-gonzalez-maduro.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5492795/2024/07/26/jon-rudkin-leicester-city-direct
 **Leny Yoro, from Paris boy to Man Utd: 'He had the same speed as Kylian Mbappe'**\
 `The story of Yoro's development from a boy in Paris to being watched by Real Madrid, PSG and his new employers Manchester United`\
 https://nytimes.com/athletic/5652363/2024/07/26/leny-yoro-at-lille-and-his-early-life/
-
-**Adrian exclusive: Why he had to leave Liverpool - and building his perfect goalkeeper**\
-`The Spanish goalkeeper has returned 'home' after five years at Anfield and is in no mood to wind down`\
-https://nytimes.com/athletic/5655740/2024/07/26/adrian-liverpool-betis-interview/
 

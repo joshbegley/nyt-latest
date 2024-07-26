@@ -1,3 +1,7 @@
+**Mariners acquire Randy Arozarena from Rays**\
+`Arozarena, 29, is slashing .211/.318/.394 with 15 home runs through 100 games this season, his fifth with Tampa Bay.`\
+https://nytimes.com/athletic/5660097/2024/07/26/mariners-acquire-randy-arozarena-from-rays-source/
+
 **Venezuela Is Ready for Change. Maduro Must Allow It.**\
 `It is clear Venezuelans have chosen to oust President Maduro. Whether that will happen remains in question.`\
 https://nytimes.com/2024/07/26/opinion/venezuela-elections-gonzalez-maduro.html
