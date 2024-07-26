@@ -1,3 +1,7 @@
+**Chiefs camp: First padded practice puts spotlight on Kingsley Suamataia, Felix Anudike-Uzomah**\
+`One of the best performers in Friday’s practice was Anudike-Uzomah, the 2023 first-round pick.`\
+https://nytimes.com/athletic/5661479/2024/07/26/kansas-city-chiefs-training-camp-kingsley-suamataia-felix-anudike-uzomah/
+
 **MLB trade deadline Q&A: Bowden on the market and latest rumblings as deals pick up**\
 `Answering questions on the seller's market, teams that are surprising me, the latest I'm hearing on big-name targets and much more.`\
 https://nytimes.com/athletic/5661443/2024/07/26/mlb-trade-deadline-market-rumors/
