@@ -1,3 +1,7 @@
+**Iraqi judoka records first positive doping test of Paris Olympics**\
+`An Iraqi judoka has recorded the first positive doping test of the 2024 Paris Olympics, the International Testing Agency (ITA) said on Friday.`\
+https://nytimes.com/athletic/5660781/2024/07/26/olympics-paris-doping-positive-judo/
+
 **Trump to Meet With Netanyahu After Urging Israel to End War in Gaza**\
 `Ahead of the meeting, Mr. Trump insisted Israel needed to end the war as quickly as possible.`\
 https://nytimes.com/2024/07/26/us/politics/trump-netanyahu.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/26/world/europe/strictly-come-dancing-bbc-scandal.ht
 **Transportation disruptions in France are expected to last through Monday.**\
 `By Liz Alderman`\
 https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/transportation-disruptions-in-france-are-expected-to-last-through-monday
-
-**Heirs of Jews Who Fled the Nazis Return Art to Heirs Whose Family Could Not**\
-`An Egon Schiele drawing was returned on Friday at the Manhattan district attorney’s office. The heirs said in a statement that relinquishing the work was “the right thing to do.”`\
-https://nytimes.com/2024/07/26/arts/design/schiele-fritz-grunbaum-nazis-return.html
 

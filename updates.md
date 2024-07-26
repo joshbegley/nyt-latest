@@ -1,3 +1,7 @@
+**Iraqi judoka records first positive doping test of Paris Olympics**\
+`An Iraqi judoka has recorded the first positive doping test of the 2024 Paris Olympics, the International Testing Agency (ITA) said on Friday.`\
+https://nytimes.com/athletic/5660781/2024/07/26/olympics-paris-doping-positive-judo/
+
 **Trump to Meet With Netanyahu After Urging Israel to End War in Gaza**\
 `Ahead of the meeting, Mr. Trump insisted Israel needed to end the war as quickly as possible.`\
 https://nytimes.com/2024/07/26/us/politics/trump-netanyahu.html
