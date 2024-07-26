@@ -1,3 +1,7 @@
+**Man City's Couto in advanced talks to join Dortmund**\
+`Borussia Dortmund are in advanced talks to sign defender Yan Couto from Manchester City with a deal expected to be concluded in the coming days.`\
+https://nytimes.com/athletic/5660815/2024/07/26/yan-couto-dortmund-man-city-transfer/
+
 **TNT Sports suing NBA after league rejected network's media rights offer**\
 `The NBA announced its 11-year, $77 billion agreements with ESPN, NBC and Amazon Prime Video earlier this week.`\
 https://nytimes.com/athletic/5661247/2024/07/26/tnt-sports-nba-lawsuit-media-rights/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5661132/2024/07/26/patriots-offense-maye-brissett/
 **Team U.S.A. is wearing navy blazers — again.**\
 `By Vanessa Friedman`\
 https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/team-usa-is-wearing-navy-blazers-again-fashion
-
-**A Canadian Wildfire Grew So Intense It Made Its Own Weather**\
-`Blazes that generate such stormy conditions can be nearly impossible to put out and pose special dangers to firefighters.`\
-https://nytimes.com/2024/07/26/climate/wildfire-weather-pyrocbs.html
 
