@@ -1,3 +1,7 @@
+**130 Years After Sinking, Ship is Found on the Bottom of Lake Michigan**\
+`The Margaret A. Muir schooner sank during a storm in 1893. Shipwreck hunters found it near the mouth of a popular Wisconsin harbor.`\
+https://nytimes.com/2024/07/26/us/lake-michigan-shipwreck-found.html
+
 **Canada Soccer CEO reveals drone usage at Copa**\
 `Kevin Blue insisted the players themselves have not been involved in any unethical behavior.`\
 https://nytimes.com/athletic/5660501/2024/07/26/bev-priestman-canada-soccer-olympics-suspension-drone-usage-culture/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/26/learning/summer-reading-contest-week-8-what-got-y
 **Chase to Bar Customers From Using Credit Cards for ‘Pay Later’ Loans**\
 `Financial regulators and consumer advocates frown upon using credit cards to pay off installment loans because of the risk that consumers will dig themselves further into debt.`\
 https://nytimes.com/2024/07/26/your-money/chase-pay-later-loans-credit-cards.html
-
-**Lemina named new Wolves captain**\
-`Mario Lemina has been named as Wolves’ new captain following Max Kilman’s departure for West Ham United.`\
-https://nytimes.com/athletic/5660506/2024/07/26/mario-lemina-wolves-captain-new/
 

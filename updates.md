@@ -1,3 +1,7 @@
+**130 Years After Sinking, Ship is Found on the Bottom of Lake Michigan**\
+`The Margaret A. Muir schooner sank during a storm in 1893. Shipwreck hunters found it near the mouth of a popular Wisconsin harbor.`\
+https://nytimes.com/2024/07/26/us/lake-michigan-shipwreck-found.html
+
 **Canada Soccer CEO reveals drone usage at Copa**\
 `Kevin Blue insisted the players themselves have not been involved in any unethical behavior.`\
 https://nytimes.com/athletic/5660501/2024/07/26/bev-priestman-canada-soccer-olympics-suspension-drone-usage-culture/
