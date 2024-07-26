@@ -1,3 +1,7 @@
+**A Canadian Wildfire Grew So Intense It Made Its Own Weather**\
+`Blazes that generate such stormy conditions can be nearly impossible to put out and pose special dangers to firefighters.`\
+https://nytimes.com/2024/07/26/climate/wildfire-weather-pyrocbs.html
+
 **Jerry Miller, Moby Grape Guitarist, Dies at 81**\
 `He drew praise for his blues-inflected fretwork as his critically acclaimed band rode high, if briefly, during San Francisco’s Summer of Love.`\
 https://nytimes.com/2024/07/26/arts/music/jerry-miller-moby-grape-dead.html
@@ -34,8 +38,4 @@ https://nytimes.com/2024/07/26/opinion/kamala-harris-3pm-agenda.html
 **Campaign Advice for Kamala Harris**\
 `Readers offer an array of suggestions to the presumptive Democratic nominee. Also: Secret Service women; evangelicals and MAGA.`\
 https://nytimes.com/2024/07/26/opinion/kamala-harris-campaign-advice.html
-
-**Trump May Pay a Steep Price for Vance**\
-`Vance wasn’t five feet from the altar when his ugliness dominated the discussion.`\
-https://nytimes.com/live/2024/07/22/opinion/thepoint/trump-may-pay-a-steep-price-for-vance
 
