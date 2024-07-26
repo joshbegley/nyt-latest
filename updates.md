@@ -1,3 +1,7 @@
+**Dewsbury-Hall: 'Will Maresca surprise people at Chelsea? Definitely.'**\
+`The Chelsea midfielder on telling his new team-mates all about their manager, his England hopes, and why Maresca can have a big impact`\
+https://nytimes.com/athletic/5660209/2024/07/26/dewsbury-hall-chelsea-maresca-interview/
+
 **Saboteurs targeted a rail network so vast that it’s impossible to fully secure.**\
 `The French system`\
 https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/saboteurs-targeted-a-rail-network-so-vast-that-its-impossible-to-fully-secure
