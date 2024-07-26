@@ -1,3 +1,19 @@
+**The Paris Olympics Opened in Spectacular Style**\
+`Also, a stunning betrayal led to the arrest of cartel leaders. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/07/26/briefing/paris-olympics-ceremony-harris-vp-search.html
+
+**Best moments of 2024 Olympics Opening Ceremony**\
+`If you missed the official start of the 2024 Olympics or want to reflect on all the pomp and circumstance, here's highlights from Friday.`\
+https://nytimes.com/athletic/5660981/2024/07/26/opening-ceremony-paris-olympics-2024-best-moments/
+
+**MLB Trade Grades: Is Yimi García good value for Mariners at this price?**\
+`García is a rental, but he's also having a career year, so this is the time to get him. `\
+https://nytimes.com/athletic/5661506/2024/07/26/mlb-trade-grades-yimi-garcia-mariners-blue-jays/
+
+**Seattle Mariners acquire reliever Yimi García from Toronto Blue Jays**\
+`The Blue Jays are expected to be significant sellers over the next few days and they've traded one of their best chips in García.`\
+https://nytimes.com/athletic/5661444/2024/07/26/mariners-blue-jays-yimi-garcia-trade/
+
 **N.C.A.A. Settlement Agreement Reveals How Colleges Would Pay Athletes**\
 `The agreement, if approved by a federal judge, could deliver the final hammer blow to the amateur model of college athletics.`\
 https://nytimes.com/2024/07/26/us/ncaa-house-settlement-filed.html
