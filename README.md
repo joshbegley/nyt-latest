@@ -1,3 +1,7 @@
+**Dak Prescott at peace with possibility of this being final year with Cowboys**\
+`Will Prescott's ninth season with the Cowboys be his last? “I think Dak wants to be a Cowboy,” Stephen Jones said.`\
+https://nytimes.com/athletic/5659771/2024/07/25/dak-prescott-cowboys-final-season/
+
 **How Julian Love exemplifies the Seahawks' plan under Mike Macdonald**\
 `Shortly after being rewarded with a new contract, Love made a huge play in practice that perfectly illustrated his new coach's approach.`\
 https://nytimes.com/athletic/5659704/2024/07/25/julian-love-contract-seahawks-training-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/25/us/chicago-democratic-national-convention-securit
 **F.B.I. Examining Bullet Fragments Found at Trump Rally Site**\
 `The bureau is assessing what caused the former president’s wound during an assassination attempt. The question has turned political.`\
 https://nytimes.com/2024/07/25/us/politics/fbi-bullet-trump-rally.html
-
-**Israeli Forces Retrieve Bodies of 5 Hostages From Tunnel in Gaza**\
-`The military said that intelligence, including information from detained Palestinian militants, had led to the bodies in the Khan Younis area.`\
-https://nytimes.com/2024/07/25/world/middleeast/israel-hostages-bodies-gaza.html
 
