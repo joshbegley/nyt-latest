@@ -1,5 +1,9 @@
 **Two Top Mexican Cartel Leaders Surrender to U.S. Authorities**\
 `The two men, Ismael Zambada García and Joaquín Guzmán López, run the Sinaloa Cartel, one of the most dominant criminal groups in Mexico.`\
+https://nytimes.com/2024/07/25/world/americas/mexico-cartel-ismael-zambada-garcia-joaquin-guzman-lopez.html
+
+**Two Top Mexican Cartel Leaders Surrender to U.S. Authorities**\
+`The two men, Ismael Zambada García and Joaquín Guzmán López, run the Sinaloa Cartel, one of the most dominant criminal groups in Mexico.`\
 https://nytimes.com/2024/07/25/world/americas/mexico-texas-cartel-arrests-ismael-zambada-garcia-joaquin-guzman-lopez.html
 
 **Dehner Jr.: Thoughts on Ja’Marr Chase’s absence, rise of Iosivas, teachable moments**\
