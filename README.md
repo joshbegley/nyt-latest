@@ -1,3 +1,7 @@
+**A Weapons Scanner Arrives in the Subway. Adams Says It Isn’t Optional.**\
+`Mayor Eric Adams announced that a new scanner would search for guns on the subway. Riders who refuse to be scanned, he said, will not be allowed to enter the system.`\
+https://nytimes.com/2024/07/26/nyregion/subway-gun-scanner-nyc.html
+
 **Steelers training camp Day 2: Seven Shots returns, Russell Wilson does not**\
 `While Wilson recovers from "calf tightness," Justin Fields got another chance with the first-string offense. He didn't disappoint.`\
 https://nytimes.com/athletic/5661028/2024/07/26/steelers-training-camp-russell-wilson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5660981/2024/07/26/opening-ceremony-paris-olympics-
 **MLB Trade Grades: Is Yimi García good value for Mariners at this price?**\
 `García is a rental, but he's also having a career year, so this is the time to get him. `\
 https://nytimes.com/athletic/5661506/2024/07/26/mlb-trade-grades-yimi-garcia-mariners-blue-jays/
-
-**N.C.A.A. Settlement Agreement Reveals How Colleges Would Pay Athletes**\
-`The agreement, if approved by a federal judge, could deliver the final hammer blow to the amateur model of college athletics.`\
-https://nytimes.com/2024/07/26/us/ncaa-house-settlement-filed.html
 
