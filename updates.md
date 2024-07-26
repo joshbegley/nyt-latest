@@ -1,3 +1,7 @@
+**China on Alert for Heavy Rain and Floods From Typhoon Gaemi**\
+`The storm has already left a trail of destruction in Taiwan and the Philippines, where it killed at least 15 people.`\
+https://nytimes.com/2024/07/26/world/asia/typhoon-gaemi-china-taiwan.html
+
 **Stephen Colbert Mocks Trump for Recycling His Old Insults**\
 `Colbert said the ex-president was “focused on the real issue gripping the country: desperately workshopping a new nickname for Kamala Harris.”`\
 https://nytimes.com/2024/07/26/arts/television/stephen-colbert-donald-trump.html

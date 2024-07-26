@@ -1,3 +1,7 @@
+**China on Alert for Heavy Rain and Floods From Typhoon Gaemi**\
+`The storm has already left a trail of destruction in Taiwan and the Philippines, where it killed at least 15 people.`\
+https://nytimes.com/2024/07/26/world/asia/typhoon-gaemi-china-taiwan.html
+
 **Stephen Colbert Mocks Trump for Recycling His Old Insults**\
 `Colbert said the ex-president was “focused on the real issue gripping the country: desperately workshopping a new nickname for Kamala Harris.”`\
 https://nytimes.com/2024/07/26/arts/television/stephen-colbert-donald-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5659336/2024/07/26/noni-madueke-chelsea-maresca/
 **The transfer decisions Wolves need to make: Kilman replacement, Podence plan, Neto uncertainty**\
 `The questions Gary O'Neil and the Wolves hierarchy will need to answer before the end of the summer window on August 30`\
 https://nytimes.com/athletic/5647064/2024/07/26/the-transfer-decisions-wolves-need-to-make-kilman-replacement-podence-plan-neto-uncertainty/
-
-**Explained: The rules for under-18s competing in the Paris Olympics**\
-`There is an 11-year-old skateboarder competing in Paris and hundreds of under-18s - so how will children be looked after at the Olympics?`\
-https://nytimes.com/athletic/5653164/2024/07/26/under-18s-paris-olympics/
 
