@@ -1,3 +1,11 @@
+**Georgia wide receiver Rara Thomas arrested**\
+`Georgia wide receiver Rara Thomas was arrested early Friday morning, his second arrest since joining the program.`\
+https://nytimes.com/athletic/5660628/2024/07/26/rara-thomas-arrested-georgia/
+
+**As Trump Looms, Blinken Aims to Reassure Allies on U.S. Commitment to Asia**\
+`Asian officials will press Secretary of State Antony J. Blinken about the former president and about Kamala Harris as he visits the region.`\
+https://nytimes.com/2024/07/26/us/politics/blinken-asia-us-election.html
+
 **With Kamala Harris, U.S. Free Trade Skepticism May Continue**\
 `The vice president has been critical of past trade deals. But her record suggests she could push for trade measures that address environmental issues.`\
 https://nytimes.com/2024/07/26/us/politics/kamala-harris-trade-trump.html
