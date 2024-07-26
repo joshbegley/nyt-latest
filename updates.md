@@ -1,3 +1,7 @@
+**Arson Disrupts Trains in France Hours Before Opening Ceremony of Olympics**\
+`The national railway company said three lines were disrupted by the attacks, causing massive delays.`\
+https://nytimes.com/2024/07/26/world/olympics/paris-fire-trains-delays.html
+
 **In Love and Hoping for Asylum, Migrants Line Up for City Hall Weddings**\
 `The steady parade of couples seeking civil marriage ceremonies in New York City has expanded in recent months to include newly arrived migrants.`\
 https://nytimes.com/2024/07/26/nyregion/migrants-wedding-marriage-asylum.html

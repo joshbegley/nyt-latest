@@ -10,8 +10,8 @@ https://nytimes.com/2024/07/26/crosswords/wordle-review-1135.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/07/26/crosswords/spelling-bee-forum.html
 
-**Paris Commuter Trains Delayed After Reports of Fires**\
-`The operator of the trains said firefighters were responding to two episodes on rail lines that end in Paris, which was preparing for the Opening Ceremony of the Olympics on Friday.`\
+**Arson Disrupts Trains in France Hours Before Opening Ceremony of Olympics**\
+`The national railway company said three lines were disrupted by the attacks, causing massive delays.`\
 https://nytimes.com/2024/07/26/world/olympics/paris-fire-trains-delays.html
 
 **Whose Politics Are More Turbulent, America’s or Australia’s?**\
