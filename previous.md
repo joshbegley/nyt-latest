@@ -1,3 +1,7 @@
+**In JD Vance Country, an Addiction Scourge That Won’t Go Away**\
+`The Republican vice-presidential nominee has spoken often about drug-afflicted communities like the one he escaped. But those communities have tempered their expectations for his help.`\
+https://nytimes.com/2024/07/26/us/politics/vance-addiction.html
+
 **Dodgers trade James Paxton to Red Sox**\
 `The 35-year-old Paxton is returning to Boston, the team he played for last season.`\
 https://nytimes.com/athletic/5660848/2024/07/26/dodgers-trade-james-paxton-red-sox/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/26/world/americas/canada-wildfires-jasper-alberta-fi
 **Bucks GM Jon Horst details team's quiet offseason, Giannis at Olympics and Year 2 of Lillard**\
 `"None of us are happy with the results last season," Horst told The Athletic. He believes the Bucks are one of the best teams in the NBA.`\
 https://nytimes.com/athletic/5658320/2024/07/26/bucks-jon-horst-qa-giannis-lillard/
-
-**U.K. Drops Opposition to International Criminal Court Warrant for Netanyahu**\
-`The new Labour government confirmed it would drop the previous government’s objection to I.C.C. arrest warrants for Israel’s Prime Minister Benjamin Netanyahu and the defense minister, Yoav Gallant.`\
-https://nytimes.com/2024/07/26/world/middleeast/israel-gaza-icc-warrants-britain.html
 

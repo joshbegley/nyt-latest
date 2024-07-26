@@ -1,3 +1,7 @@
+**In JD Vance Country, an Addiction Scourge That Won’t Go Away**\
+`The Republican vice-presidential nominee has spoken often about drug-afflicted communities like the one he escaped. But those communities have tempered their expectations for his help.`\
+https://nytimes.com/2024/07/26/us/politics/vance-addiction.html
+
 **Saboteurs Targeted a Rail Network So Vast That It’s Impossible to Fully Secure**\
 `Thousands of miles of tracks leave the French system vulnerable to sabotage. But the suspected arsonists also knew just where to strike.`\
 https://nytimes.com/article/saboteurs-targeted-a-rail-network-so-vast-that-its-impossible-to-fully-secure.html
