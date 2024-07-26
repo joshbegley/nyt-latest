@@ -1,3 +1,19 @@
+**Arson Disrupts Olympics Travel, and Obama Endorses Harris**\
+`Plus, top Mexican cartel leaders arrested.`\
+https://nytimes.com/2024/07/26/podcasts/obama-harris-poll.html
+
+**Hope in Venezuela**\
+`After years of repressive government and economic collapse, many Venezuelans think this weekend’s election might be different.`\
+https://nytimes.com/2024/07/26/podcasts/the-daily/venezuela-election.html
+
+**The Connections Companion No. 412, July 27, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/26/crosswords/connections-companion-412.html
+
+**Canada, New Zealand and how an Olympics spying scandal played out over 72 hours**\
+`Canada beat New Zealand in their Olympics opener on Thursday, but the match was just a footnote to a remarkable few days`\
+https://nytimes.com/athletic/5659670/2024/07/26/canada-spying-new-zealand-olympics/
+
 **When A.I. Fails the Language Test, Who Is Left Out of the Conversation?**\
 `The use of artificial intelligence is exploding around the world, but the technology’s language models are primarily trained in English, leaving many speakers of other languages behind.`\
 https://nytimes.com/2024/07/26/technology/ai-language-gap.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5659793/2024/07/26/mets-mlb-trade-deadline-buyers/
 **Submit your Ohio State football questions for Cameron Teague Robinson's mailbag**\
 `What's on your mind about the Buckeyes before preseason practices begin?`\
 https://nytimes.com/athletic/5658571/2024/07/26/ohio-state-football-mailbag-questions-6/
-
-**Katz: Why the Knicks' backup center issue doesn't have to be solved now**\
-`New York's goal is not to construct the league’s best roster on Day 1. It’s to be the last team standing by possibly getting creative.`\
-https://nytimes.com/athletic/5659459/2024/07/26/katz-knicks-backup-center-issue/
-
-**Kamala Harris’s Bratty Coconut Memescape + What Does $1,000 a Month Do? + The Empire CrowdStrikes Back**\
-`An episode unburdened by what has been.`\
-https://nytimes.com/2024/07/26/podcasts/kamala-harriss-bratty-coconut-memescape-what-does-1000-a-month-do-the-empire-crowdstrikes-back.html
-
-**6 Paperbacks to Read This Week **\
-`Recommended reading from the Book Review, including titles by Safiya Sinclair, Michael Cunningham, Tasha Sylva and more. `\
-https://nytimes.com/interactive/2024/07/26/books/review/new-paperbacks-vandermeer.html
-
-**The 5 biggest storylines as Kirk Cousins, new-look Falcons open training camp**\
-`Quarterback Kirk Cousins took every first-team rep Thursday as the Falcons opened training camp under coach Raheem Morris.`\
-https://nytimes.com/athletic/5659300/2024/07/26/atlanta-falcons-training-camp-storylines/
 
