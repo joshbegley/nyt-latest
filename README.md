@@ -1,6 +1,6 @@
 **Two Top Mexican Cartel Leaders Surrender to U.S. Authorities**\
 `The two men, Ismael Zambada García and Joaquín Guzmán López, run the Sinaloa Cartel, one of the most dominant criminal groups in Mexico.`\
-https://nytimes.com/2024/07/25/world/americas/mexico-texas-cartel-arrests-ismael-zambada-garcia-joaquin-guzman-lopez.html
+https://nytimes.com/2024/07/25/world/americas/mexico-cartel-ismael-zambada-garcia-joaquin-guzman-lopez.html
 
 **Chargers training camp, Day 2: Highlights from starter-on-starter team drills**\
 `The Chargers made some adjustments in practice after Jim Harbaugh reminded them to avoid contact and diving during non-padded sessions.`\

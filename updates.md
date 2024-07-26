@@ -1,3 +1,11 @@
+**Two Top Mexican Cartel Leaders Surrender to U.S. Authorities**\
+`The two men, Ismael Zambada García and Joaquín Guzmán López, run the Sinaloa Cartel, one of the most dominant criminal groups in Mexico.`\
+https://nytimes.com/2024/07/25/world/americas/mexico-texas-cartel-arrests-ismael-zambada-garcia-joaquin-guzman-lopez.html
+
+**Dehner Jr.: Thoughts on Ja’Marr Chase’s absence, rise of Iosivas, teachable moments**\
+`Zac Taylor says there's a plan for the star wide receiver as Chase sits out the first two days of camp.`\
+https://nytimes.com/athletic/5659546/2024/07/25/jamarr-chase-bengals-camp-absence/
+
 **Chargers training camp, Day 2: Highlights from starter-on-starter team drills**\
 `The Chargers made some adjustments in practice after Jim Harbaugh reminded them to avoid contact and diving during non-padded sessions.`\
 https://nytimes.com/athletic/5659667/2024/07/25/chargers-training-camp-highlights-starters-justin-herbert/
