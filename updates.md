@@ -1,3 +1,7 @@
+**MLB Trade Grades: Diamondbacks add A.J. Puk from Marlins to bolster bullpen**\
+`Puk adds versatility and another late-inning option to the Diamondbacks bullpen; how did both teams do in the deal?  `\
+https://nytimes.com/athletic/5659948/2024/07/25/diamondbacks-marlins-aj-puk-trade-grades/
+
 **Rosenthal: What I'm hearing about the MLB trade deadline including the Rangers, Angels and more**\
 `The Rangers are going for it, the Angels are open to offers and the Pirates are scouting the Marlins' Jazz Chisholm Jr. `\
 https://nytimes.com/athletic/5659940/2024/07/25/mlb-trade-deadline-rangers-angels-pirates/
