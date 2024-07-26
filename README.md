@@ -1,4 +1,4 @@
-**Chiefs camp: First padded practice puts spotlight on rookies Kingsley Suamataia, Felix Anudike-Uzomah**\
+**Chiefs camp: First padded practice puts spotlight on Kingsley Suamataia, Felix Anudike-Uzomah**\
 `One of the best performers in Friday’s practice was Anudike-Uzomah, the 2023 first-round pick.`\
 https://nytimes.com/athletic/5661479/2024/07/26/chiefs-camp-first-padded-practice-puts-spotlight-on-kingsley-suamataia-felix-anudike-uzomah/
 
