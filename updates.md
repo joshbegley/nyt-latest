@@ -1,3 +1,11 @@
+**MLB trade deadline Q&A: Bowden on the market and latest rumblings as deals pick up**\
+`Answering questions on the seller's market, teams that are surprising me, the latest I'm hearing on big-name targets and much more.`\
+https://nytimes.com/athletic/5661443/2024/07/26/mlb-trade-deadline-market-rumors/
+
+**49ers training camp: Deebo Samuel eager to score some kick-return TDs; O-line banged up**\
+`Though three of the 49ers' rookie draft picks missed Friday's practice with injuries, one found himself lining up with the starters.`\
+https://nytimes.com/athletic/5661415/2024/07/26/49ers-training-camp-deebo-samuel-kick-return/
+
 **A Weapons Scanner Arrives in the Subway. Adams Says It Isn’t Optional.**\
 `Mayor Eric Adams announced that a new scanner would search for guns on the subway. Riders who refuse to be scanned, he said, will not be allowed to enter the system.`\
 https://nytimes.com/2024/07/26/nyregion/subway-gun-scanner-nyc.html
