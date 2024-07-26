@@ -1,3 +1,7 @@
+**Paris Commuter Trains Delayed After Reports of Fires**\
+`The operator of the trains said firefighters were responding to two episodes on rail lines that end in Paris, which was preparing for the Opening Ceremony of the Olympics on Friday.`\
+https://nytimes.com/2024/07/26/world/olympics/paris-fire-trains-delays.html
+
 **Whose Politics Are More Turbulent, America’s or Australia’s?**\
 `Prime Minister Anthony Albanese, citing the revolving door of prime ministers, said his own country was in no position to criticize the United States.`\
 https://nytimes.com/2024/07/26/world/australia/turbulent-politics-australia-america.html
