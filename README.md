@@ -4,7 +4,7 @@ https://nytimes.com/2024/07/26/health/viruses-ships-transmission.html
 
 **Phillies acquire Austin Hays from Orioles in trade for Seranthony Domínguez, Cristian Pache**\
 `The Phillies found their platoon partner for Brandon Marsh from an unexpected source — another contending team.`\
-https://nytimes.com/athletic/5660904/2024/07/26/phillies-acquire-austin-hays-from-orioles-in-trade-for-seranthony-dominguez-cristian-pache/
+https://nytimes.com/athletic/5660904/2024/07/26/phillies-orioles-trade-austin-hays-seranthony-dominguez-cristian-pache/
 
 **Five International Movies to Stream Now**\
 `This month’s picks include a ’90s coming-of-age tale from India, a Turkish noir set in a zoo, a Romanian drama about provincial politics and more.`\
