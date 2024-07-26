@@ -1,3 +1,15 @@
+**Canada Soccer CEO reveals drone usage at Copa**\
+`Kevin Blue insisted the players themselves have not been involved in any unethical behavior.`\
+https://nytimes.com/athletic/5660501/2024/07/26/bev-priestman-canada-soccer-olympics-suspension-drone-usage-culture/
+
+**A New Batman Is Less a Dark Knight Than a ‘Weird and Creepy’ One**\
+`“Batman: Caped Crusader,” a new animated series, is not concerned with making its hero likable — either to the citizens of Gotham or to its audience.`\
+https://nytimes.com/2024/07/26/arts/television/batman-caped-crusader.html
+
+**Notre Dame mailbag: What's wrong with WR recruiting? Are CFP preparations premature?**\
+`With preseason camp less than a week away, let's tackle your Notre Dame questions about recruiting, rising stars, best away trips and more.`\
+https://nytimes.com/athletic/5660523/2024/07/26/notre-dame-marcus-freeman-receiver-recruiting/
+
 **Fed’s Preferred Inflation Measure Cooled Overall in June**\
 `The Personal Consumption Expenditures Index climbed 2.5 percent, still more than the Fed’s 2 percent target, as price increases take time to come down.`\
 https://nytimes.com/2024/07/26/business/economy/federal-reserve-inflation-cooled.html
