@@ -1,3 +1,15 @@
+**Rail Sabotage Blights an Olympic Moment for France**\
+`The arson attacks were carefully planned to cause maximum disruption on a train network so vast it is virtually impossible to fully secure.`\
+https://nytimes.com/2024/07/26/world/europe/rail-sabotage-blights-an-olympic-moment-for-france.html
+
+**Anger Lingers Over Positive Doping Tests for Chinese Swimmers**\
+`In Paris, Chinese swimmers have been under extra scrutiny by doping watchdogs, but that hasn’t satisfied competitors like American star Caeleb Dressel.`\
+https://nytimes.com/2024/07/26/world/olympics/chinese-swimming-doping-paris.html
+
+**Why Randy Arozarena trade is a win-win for Mariners, Rays**\
+`The Mariners got some of the offensive help they needed, while the Rays got two legitimate prospects and a PTBNL to build for the future.`\
+https://nytimes.com/athletic/5661030/2024/07/26/mariners-rays-randy-arozarena-trade-analysis/
+
 **Rail Sabotage in France Causes Delays Ahead of Olympics**\
 `The Paris Olympic Games are opening under tightened security after a coordinated arson attack disrupted France’s national rail system.`\
 https://nytimes.com/video/world/europe/100000009594801/paris-olympics-attack-rail-sabotage.html
