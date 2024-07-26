@@ -1,3 +1,7 @@
+**MLB Trade Grades: Mariners nab Randy Arozarena from Rays to add thump**\
+`Randy Arozarena was acquired to thicken the Mariners' lineup. Does this trade get a thumbs-up from our graders? `\
+https://nytimes.com/athletic/5660311/2024/07/26/mlb-trade-grades-randy-arozarena-mariners-rays/
+
 **Precautions Failed to Halt Rail Sabotage**\
 `The attacks on several high-speed rail lines happened despite the sweeping mobilization of recent weeks.`\
 https://nytimes.com/2024/07/26/world/olympics/olympics-paris-train-arson.html
