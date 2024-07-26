@@ -1,3 +1,7 @@
+**Lemina named new Wolves captain**\
+`Mario Lemina has been named as Wolves’ new captain following Max Kilman’s departure for West Ham United.`\
+https://nytimes.com/athletic/5660506/2024/07/26/mario-lemina-wolves-captain-new/
+
 **Fed’s Preferred Inflation Number Cooled Overall in June**\
 `The Personal Consumption Expenditures Index climbed 2.5 percent, still more than the Fed’s 2 percent target, as price increases take time to come down.`\
 https://nytimes.com/2024/07/26/business/economy/federal-reserve-inflation-cooled.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5658689/2024/07/26/tottenham-transfers-yang-gray-be
 **Arson Attacks on French Rail Leave People Stranded**\
 `Hundreds were stuck at train stations in Paris and London as operators canceled and delayed trains on Friday after the attacks.`\
 https://nytimes.com/2024/07/26/world/olympics/paris-london-train-station.html
-
-**The USWNT has arrived at the 2024 Olympics and so has Trinity Rodman and her 'Trin Spin'**\
-`Emma Hayes' work with the USWNT is only just beginning but there are signs of improvement and togetherness already`\
-https://nytimes.com/athletic/5660287/2024/07/26/uswnt-trin-spin-olympics-zambia/
 
