@@ -26,7 +26,7 @@ https://nytimes.com/2024/07/25/world/middleeast/israel-hostages-bodies-gaza.html
 `For many Democrats, a race that felt like a dispiriting slog suddenly feels light. Even hopeful.`\
 https://nytimes.com/2024/07/25/us/politics/kamala-harris-biden-poll.html
 
-**Dehner Jr: Thoughts on Ja’Marr Chase’s absence, rise of Iosivas, teachable moments**\
+**Dehner Jr.: Thoughts on Ja’Marr Chase’s absence, rise of Iosivas, teachable moments**\
 `Zac Taylor says there's a plan for the star wide receiver as Chase sits out the first two days of camp.`\
 https://nytimes.com/athletic/5659546/2024/07/25/jamarr-chase-bengals-camp-absence/
 
