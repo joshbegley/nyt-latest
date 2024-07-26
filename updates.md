@@ -1,3 +1,15 @@
+**Leny Yoro, from Paris boy to Man Utd: 'He had the same speed as Kylian Mbappe'**\
+`The story of Yoro's development from a boy in Paris to being watched by Real Madrid, PSG and his new employers Manchester United`\
+https://nytimes.com/athletic/5652363/2024/07/26/leny-yoro-at-lille-and-his-early-life/
+
+**Adrian exclusive: Why he had to leave Liverpool - and building his perfect goalkeeper**\
+`The Spanish goalkeeper has returned 'home' after five years at Anfield and is in no mood to wind down`\
+https://nytimes.com/athletic/5655740/2024/07/26/adrian-liverpool-betis-interview/
+
+**Endrick, Mbappe and Real Madrid's €1.8billion squad value explained**\
+`The CIES Football Observatory values Madrid's squad highly - here's what the figures mean`\
+https://nytimes.com/athletic/5657702/2024/07/26/real-madrid-endrick-mbappe-values/
+
 **Who's who at Newcastle United: The club's new hierarchy explained**\
 `After ownership changes and staff being brought in, here's who does what at Newcastle`\
 https://nytimes.com/athletic/5655094/2024/07/26/newcastle-structure-owners-staff-coaches/
