@@ -1,3 +1,7 @@
+**Rosenthal: What I'm hearing about the MLB trade deadline including the Rangers, Angels and more**\
+`The Rangers are going for it, the Angels are open to offers and the Pirates are scouting the Marlins' Jazz Chisholm Jr. `\
+https://nytimes.com/athletic/5659940/2024/07/25/mlb-trade-deadline-rangers-angels-pirates/
+
 **For Billy Joel Fans, a New York Night to Remember**\
 `Thousands of people piled into Madison Square Garden on Thursday to hear Billy Joel glide from rock song to soulful blues in the final show of his long residency at the arena on Thursday night.`\
 https://nytimes.com/2024/07/25/arts/music/billy-joel-madison-square-garden.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5659769/2024/07/25/dodgers-clayton-kershaw-returns/
 **Dak Prescott is at peace with this perhaps being his final year with the Cowboys**\
 `Will Prescott's ninth season with the Cowboys be his last? "I think Dak wants to be a Cowboy," Stephen Jones said.`\
 https://nytimes.com/athletic/5659771/2024/07/25/dak-prescott-cowboys-final-season/
-
-**How Julian Love exemplifies the Seahawks' plan under Mike Macdonald**\
-`Shortly after being rewarded with a new contract, Love made a huge play in practice that perfectly illustrated his new coach's approach.`\
-https://nytimes.com/athletic/5659704/2024/07/25/julian-love-contract-seahawks-training-camp/
 
