@@ -1,3 +1,15 @@
+**Kamala Harris Needs a 3 P.M. Agenda**\
+`To steer the economy well, the president must see beyond what keeps voters up at night.`\
+https://nytimes.com/2024/07/26/opinion/kamala-harris-3pm-agenda.html
+
+**Campaign Advice for Kamala Harris**\
+`Readers offer an array of suggestions to the presumptive Democratic nominee. Also: Secret Service women; evangelicals and MAGA.`\
+https://nytimes.com/2024/07/26/opinion/kamala-harris-campaign-advice.html
+
+**Trump May Pay a Steep Price for Vance**\
+`Vance wasn’t five feet from the altar when his ugliness dominated the discussion.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/trump-may-pay-a-steep-price-for-vance
+
 **What was with that heavy metal band? That was Gojira.**\
 `By Alex Marshall`\
 https://nytimes.com/live/2024/world/olympics-paris-attack-opening-ceremony/what-was-with-that-heavy-metal-band-that-was-gojira
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/26/world/europe/rail-sabotage-france-olympics.html
 **Anger Lingers Over Positive Doping Tests for Chinese Swimmers**\
 `In Paris, Chinese swimmers have been under extra scrutiny by doping watchdogs, but that hasn’t satisfied competitors like American star Caeleb Dressel.`\
 https://nytimes.com/2024/07/26/world/olympics/chinese-swimming-doping-paris.html
-
-**Why Randy Arozarena trade is a win-win for Mariners, Rays**\
-`The Mariners got some of the offensive help they needed, while the Rays got two legitimate prospects and a PTBNL to build for the future.`\
-https://nytimes.com/athletic/5661030/2024/07/26/mariners-rays-randy-arozarena-trade-analysis/
-
-**Rail Sabotage in France Causes Delays Ahead of Olympics**\
-`The Paris Olympic Games are opening under tightened security after a coordinated arson attack disrupted France’s national rail system.`\
-https://nytimes.com/video/world/europe/100000009594801/paris-olympics-attack-rail-sabotage.html
-
-**Westbrook to join Nuggets on two-year deal**\
-`The former NBA MVP's deal with Denver includes a player option for 2025-26.`\
-https://nytimes.com/athletic/5661062/2024/07/26/russell-westbrook-denver-nuggets/
 
