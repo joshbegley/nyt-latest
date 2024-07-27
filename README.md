@@ -1,3 +1,7 @@
+**The Big 5-0**\
+`Paolo Pasco puts solvers (us!) on the podium.`\
+https://nytimes.com/2024/07/27/crosswords/daily-puzzle-2024-07-28.html
+
 **MLB Trade Grades: Will Jazz Chisholm Jr. help fix the Yankees' struggles?**\
 `The Yankees hope Chisholm can help bolster a struggling lineup and fill a need at second base. Was the return they sent to Miami worth it?`\
 https://nytimes.com/athletic/5662923/2024/07/27/mlb-trade-grades-yankees-marlins-chisholm/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/27/us/politics/harris-fundraiser-berkshires.html
 **Despite Park Fire’s Rapid Spread, Some Residents Are Determined to Stay Put**\
 `In Butte County, Calif., some defied evacuation orders so they could protect their property from the fire that has quickly become the state’s largest this year.`\
 https://nytimes.com/2024/07/27/us/park-fires-california-evacuation-order.html
-
-**De Gea in talks to join Genoa**\
-`Former Manchester United goalkeeper David de Gea is in talks to join Genoa on a free transfer.`\
-https://nytimes.com/athletic/5662860/2024/07/27/david-de-gea-genoa/
 
