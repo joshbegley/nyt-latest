@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/5661917/2024/07/26/rays-trades-randy-arozarena-zach-eflin/
 
+**Payroll-shedding trades of Randy Arozarena and Zach Eflin in line with Rays’ philosophy**\
+`“We are a worse team today than we were 24 hours ago," Erik Neander said. "That’s not something we can shy away from.”
+`\
+https://nytimes.com/athletic/5661917/2024/07/26/rays-trades-randy-arozarena-zach-eflin/
+
 **The French Swimmer Who Is Carrying His Country on His Back**\
 `Léon Marchand, who has the potential to win medals in four individual events, bears much of the weight of France’s expectations. He is ready, he says, but adds, “it does feel weird.”`\
 https://nytimes.com/2024/07/27/world/olympics/leon-marchand-france-swimming-olympics.html
