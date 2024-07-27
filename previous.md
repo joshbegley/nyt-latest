@@ -1,3 +1,7 @@
+**Miso, Butter, Salmon**\
+`Chan chan yaki takes three superb ingredients and adds sautéed veggies and a glug of sake for a fast, filling, salty-sweet dinner.`\
+https://nytimes.com/2024/07/27/dining/miso-butter-salmon.html
+
 **The Briefing: Hull 0 Newcastle 2 - Isak and Murphy shine, but Eddie Howe's options look thin**\
 `Chris Waugh breaks down the main talking points from Newcastle's 2-0 win over Hull City`\
 https://nytimes.com/athletic/5659064/2024/07/27/hull-0-newcastle-2-howe-isak-murphy-transfers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5662314/2024/07/27/gretchen-walsh-2024-paris-olympi
 **Tearful Endrick can't hide emotion at Real Madrid unveiling**\
 `A tearful Endrick couldn&#8217;t hide his emotions as he was introduced to the Real Madrid crowd for the first time.`\
 https://nytimes.com/athletic/5662328/2024/07/27/endrick-real-madrid-bernabeu/
-
-**Embattled Democrats Express New Hope With Harris at Top of Ticket**\
-`Incumbents who had feared President Biden would drag them down to defeat say the electoral environment has improved rapidly since he left the race.`\
-https://nytimes.com/2024/07/27/us/democrats-congress-biden-harris.html
 
