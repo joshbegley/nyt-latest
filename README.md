@@ -28,7 +28,7 @@ https://nytimes.com/athletic/5639391/2024/07/26/jordan-love-packers-contract-ext
 https://nytimes.com/athletic/5658972/2024/07/26/olympics-opening-ceremony-nbc-broadcast-review/
 
 **Mets ace Kodai Senga returns, then leaves with left calf strain**\
-`The strain will send Senga to the injured list. How long he’ll be out depends results of an MRI.`\
+`The strain will send Senga to the injured list. How long he’ll be out depends on the results of an MRI.`\
 https://nytimes.com/athletic/5661888/2024/07/26/mets-kodai-senga-calf-injury/
 
 **Packers, Jordan Love agree to 4-year, $220 million extension**\
