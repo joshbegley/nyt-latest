@@ -148,6 +148,11 @@ https://nytimes.com/athletic/5661917/2024/07/26/rays-trades-randy-arozarena-zach
 `\
 https://nytimes.com/athletic/5661917/2024/07/26/rays-trades-randy-arozarena-zach-eflin/
 
+**Payroll-shedding trades of Randy Arozarena and Zach Eflin in line with Rays’ philosophy**\
+`“We are a worse team today than we were 24 hours ago," Erik Neander said. "That’s not something we can shy away from.”
+`\
+https://nytimes.com/athletic/5661917/2024/07/26/rays-trades-randy-arozarena-zach-eflin/
+
 **Level, Essentially**\
 `You’ll need good balance to take on Barbara Lin and Matthew Stock’s collaboration.`\
 https://nytimes.com/2024/07/26/crosswords/daily-puzzle-2024-07-27.html
