@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5662541/2024/07/27/garrett-crochet-white-sox-trade-
 `A pre-season friendly match between Devon rivals Torquay United and Plymouth Argyle twice had to be stopped on Saturday following multiple medical emergencies in the crowd at Plainmoor Stadium.`\
 https://nytimes.com/athletic/5662639/2024/07/27/torquay-plymouth-medical-emergencies/
 
-**FIFA suspends Canada's Priestman 1 year, docks team 6 points**\
+**FIFA docks Canada women's soccer 6 points for drone spying**\
 `FIFA suspended Canada women&#8217;s soccer coach Bev Priestman for one year, deducted six points from the team&#8217;s Olympic group stage total and issued a fine on Saturday in response to Canada flying a drone over New Zealand&#8217;s training sessions before the start of the Games.`\
 https://nytimes.com/athletic/5662610/2024/07/27/canada-soccer-spying-drone-bev-priestman-fifa/
 
