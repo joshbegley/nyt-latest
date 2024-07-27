@@ -1,11 +1,3 @@
-**Bullet or Fragment of One Struck Trump’s Ear, F.B.I. Says**\
-`The explanation was the most definitive to date after the bureau’s director had earlier suggested the former president might have been hit by shrapnel, igniting a political storm.`\
-https://nytimes.com/2024/07/26/us/politics/fbi-trump-bullet-ear.html
-
-**Zach Eflin gives Orioles a much-needed rotation boost at a minimal cost**\
-`The Orioles needed rotation stability and that's what they get in Eflin, and they didn't have to give up too much to get him.`\
-https://nytimes.com/athletic/5661791/2024/07/26/orioles-rays-zach-eflin-trade-analysis/
-
 **Mets add to bullpen with trade for Ryne Stanek**\
 `Stanek’s role is likely to come in the sixth and seventh innings. That’s still important for a bullpen that needs to get healthy.`\
 https://nytimes.com/athletic/5661783/2024/07/26/mets-trade-ryne-stanek/
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/5661743/2024/07/26/yankees-gleyber-torres-trade-dea
 **Opening Ceremony Misses the Boat**\
 `The Paris Games began with a new look and sparkled with Celine Dion. But the show suffered from bloat similar to TV’s other spectacles.`\
 https://nytimes.com/2024/07/26/arts/television/olympics-opening-ceremony-tv.html
+
+**Elon Musk’s Transgender Daughter Says He Was ‘Cruel’ and ‘Uncaring’**\
+`Vivian Jenna Wilson’s remarks, in an exclusive interview with NBC News, were a response to Mr. Musk’s comments about her transgender identity.`\
+https://nytimes.com/2024/07/26/business/media/elon-musk-daughter-interview-nbc.html
+
+**Dodgers' Freddie Freeman steps away for family reasons**\
+`Freeman's 3-year-old son was hospitalized this week and there is no timetable for the first baseman's return.`\
+https://nytimes.com/athletic/5661699/2024/07/26/dodgers-freddie-freeman-family/
 
