@@ -1,3 +1,7 @@
+**Your Guide to Olympic Gymnastics: Balance Beam**\
+`Want to follow the women’s gymnastics competition in Paris, but don’t understand the skills or how they’re scored? Here’s a guide.`\
+https://nytimes.com/2024/07/27/world/olympics/balance-beam-gymnastics.html
+
 **New Israeli Evacuation Order in Gaza Displaces Palestinians Again**\
 `The Israeli military said its recent evacuations and operations in the Khan Younis area of southern Gaza have targeted a renewed Hamas insurgency.`\
 https://nytimes.com/2024/07/27/world/middleeast/israel-evacuation-order-gaza.html

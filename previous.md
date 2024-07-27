@@ -1,3 +1,7 @@
+**Your Guide to Olympic Gymnastics: Balance Beam**\
+`Want to follow the women’s gymnastics competition in Paris, but don’t understand the skills or how they’re scored? Here’s a guide.`\
+https://nytimes.com/2024/07/27/world/olympics/balance-beam-gymnastics.html
+
 **New Israeli Evacuation Order in Gaza Displaces Palestinians Again**\
 `The Israeli military said its recent evacuations and operations in the Khan Younis area of southern Gaza have targeted a renewed Hamas insurgency.`\
 https://nytimes.com/2024/07/27/world/middleeast/israel-evacuation-order-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5660690/2024/07/27/kenny-clark-packers-third-contra
 **I Was a Kamala Harris Skeptic. Here’s How I Got Coconut-Pilled.**\
 `Harris’s success and setbacks could make her the ideal candidate against a man who admits no mistakes, has no humility and is utterly unrelatable.`\
 https://nytimes.com/2024/07/27/opinion/kamala-harris-campaign-skeptic.html
-
-**The Police Killing of Sonya Massey Argues for Alternatives to Reform**\
-`Until we narrow the scope of what police officers can do, we’ll continue to see officers bring violence into situations that don’t require it.`\
-https://nytimes.com/2024/07/27/opinion/sonya-massey-illinois-police-reform.html
 
