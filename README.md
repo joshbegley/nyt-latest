@@ -1,4 +1,4 @@
-**Mets' ace Kodai Senga's returns, then leaves with left calf strain**\
+**Mets ace Kodai Senga returns, then leaves with left calf strain**\
 `Any additional time Senga misses would be critical to the Mets, who have been counting on the return of their ace.`\
 https://nytimes.com/athletic/5661888/2024/07/26/mets-kodai-senga-calf-injury/
 
