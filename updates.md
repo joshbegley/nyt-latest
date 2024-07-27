@@ -1,3 +1,7 @@
+**MLB Trade Grades: Cubs land Nate Pearson and are betting on his potential**\
+`Can Pearson, a former first-rounder, rediscover his spark in Chicago? The Cubs are hoping so, and parted with two minor-leagers to find out.`\
+https://nytimes.com/athletic/5662635/2024/07/27/mlb-trade-grades-blue-jays-cubs/
+
 **Three Members of the Nelons Gospel Group Are Killed in a Plane Crash**\
 `The band members were traveling on Friday to a performance when their plane crashed in Wyoming. Four others on board were killed.`\
 https://nytimes.com/2024/07/27/arts/music/nelons-plane-crash-wyoming.html

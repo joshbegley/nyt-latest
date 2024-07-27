@@ -2,6 +2,10 @@
 `The band members were traveling on Friday to a performance when their plane crashed in Wyoming. Four others on board were killed.`\
 https://nytimes.com/2024/07/27/arts/music/nelons-plane-crash-wyoming.html
 
+**MLB Trade Grades: Cubs land Nate Pearson and are betting on his potential**\
+`Can Pearson, a former first-rounder, rediscover his spark in Chicago? The Cubs are hoping so, and parted with two minor-leagers to find out.`\
+https://nytimes.com/athletic/5662635/2024/07/27/mlb-trade-grades-blue-jays-cubs/
+
 **Blue Jays top prospect Ricky Tiedemann to have Tommy John surgery**\
 `Tiedemann has been limited to just 61 1/3 innings over the last two seasons and is likely to miss most — if not all — of next season.`\
 https://nytimes.com/athletic/5662716/2024/07/27/ricky-tiedemann-blue-jays-tommy-john-surgery/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5662544/2024/07/27/ben-doak-loan-liverpool/
 **Cubs acquire former first rounder Nate Pearson from Blue Jays: Sources**\
 `Pearson was once the Blue Jays’ top pitching prospect and was projected to be a frontline starter. But injuries have derailed his career.`\
 https://nytimes.com/athletic/5662618/2024/07/27/nate-pearson-cubs-blue-jays-trade/
-
-**Rosenthal: Garrett Crochet's reported stance on his playoff usage shouldn't deter teams from trading for him**\
-`Clubs continue to pursue the White Sox pitcher despite a reported refusal to pitch in the playoffs without a contract extension.`\
-https://nytimes.com/athletic/5662541/2024/07/27/garrett-crochet-white-sox-trade-playoffs/
 
