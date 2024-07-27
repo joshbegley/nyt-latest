@@ -1,3 +1,7 @@
+**Justice Dept. Defends TikTok Law That Forces App’s Sale or Ban**\
+`In its first detailed response to a legal challenge, the agency said TikTok’s proposed changes wouldn’t prevent China from using it to collect U.S. users’ data or spread propaganda.`\
+https://nytimes.com/2024/07/27/technology/tiktok-ban-appeal-doj.html
+
 **'Elite' potential, confident and focused on football: This is Chelsea new boy Renato Veiga**\
 `Portuguese youngster Veiga is one of Chelsea's new signings this summer - this is the 20-year-old's story so far`\
 https://nytimes.com/athletic/5658013/2024/07/27/renato-veiga-chelsea-profile/
