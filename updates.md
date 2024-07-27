@@ -1,3 +1,7 @@
+**What are 2024 Olympic gold medals made of? Explaining the Eiffel Tower connection**\
+`Paris 2024 is significant because, when athletes win gold, they will take home a piece of the Eiffel Tower.`\
+https://nytimes.com/athletic/5661154/2024/07/27/paris-olympics-gold-medals-eiffel-tower-louis-vuitton/
+
 **24 Hours at the Golden Apple**\
 `We document one day in a Chicago diner called the Golden Apple, starting at 5 a.m. and going until 5 a.m. the next morning.`\
 https://nytimes.com/2024/07/27/podcasts/24-hours-at-the-golden-apple.html

@@ -1,3 +1,7 @@
+**A New Wave**\
+`Michael February, a boundary-breaking surfer and the first Black South African on the World Surf League Championship Tour, embarks on a transformative journey.`\
+https://nytimes.com/video/opinion/100000009382183/a-new-wave.html
+
 **24 Hours at the Golden Apple**\
 `We document one day in a Chicago diner called the Golden Apple, starting at 5 a.m. and going until 5 a.m. the next morning.`\
 https://nytimes.com/2024/07/27/podcasts/24-hours-at-the-golden-apple.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/27/crosswords/connections-companion-413.html
 **Team USA scouting report: Serbia's Bogdan Bogdanović discusses looming showdown**\
 `As Team USA shows cracks, Serbia gets the first crack at them in Olympic play. Here's what one player thinks of the matchup.`\
 https://nytimes.com/athletic/5660830/2024/07/27/usa-serbia-olympic-basketball-bogdan-bogdanovic/
-
-**Atletico reach agreement to sign Le Normand from Real Sociedad**\
-`Atletico Madrid have reached an agreement to sign Spain international defender Robin Le Normand from Real Sociedad.`\
-https://nytimes.com/athletic/5661067/2024/07/27/atletico-madrid-transfer-le-normand/
 
