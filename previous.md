@@ -1,3 +1,7 @@
+**Latino Leaders Set Aside Their Rocky Past With Kamala Harris on Immigration**\
+`Hispanic leaders and civil-rights groups are backing the vice president, despite their clashes with the Biden administration on border policy.`\
+https://nytimes.com/2024/07/27/us/politics/latino-kamala-harris-immigration.html
+
 **Everton set to sign Lyon defender O'Brien**\
 `Everton are close to completing a deal to sign Lyon defender Jake O&#8217;Brien for a €20million (£16.`\
 https://nytimes.com/athletic/5662413/2024/07/27/jake-obrien-everton-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5662032/2024/07/27/justin-herbert-chargers-training
 **Can American men's gymnastics team give a waning U.S. sport a boost in Paris?**\
 `One of the strongest U.S. Olympic men's gymnastics teams in years competes in Paris at a vital time for the sport in America.`\
 https://nytimes.com/athletic/5646175/2024/07/27/olympics-usa-mens-gymnastics-ncaa-college/
-
-**Gretchen Walsh, 'bathtub swimmer' no more, arrives at her big Olympic moment**\
-`Gretchen Walsh spent years hearing that she could only excel in short-course pools. Now she is competing in Paris as a medal favorite.`\
-https://nytimes.com/athletic/5662314/2024/07/27/gretchen-walsh-2024-paris-olympics-swimming/
 

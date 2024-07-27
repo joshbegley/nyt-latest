@@ -1,3 +1,7 @@
+**Latino Leaders Set Aside Their Rocky Past With Kamala Harris on Immigration**\
+`Hispanic leaders and civil-rights groups are backing the vice president, despite their clashes with the Biden administration on border policy.`\
+https://nytimes.com/2024/07/27/us/politics/latino-kamala-harris-immigration.html
+
 **Everton set to sign Lyon defender O'Brien**\
 `Everton are close to completing a deal to sign Lyon defender Jake O&#8217;Brien for a €20million (£16.`\
 https://nytimes.com/athletic/5662413/2024/07/27/jake-obrien-everton-transfer/
