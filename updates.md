@@ -1,3 +1,7 @@
+**Level, Essentially**\
+`You’ll need good balance to take on Barbara Lin and Matthew Stock’s collaboration.`\
+https://nytimes.com/2024/07/26/crosswords/daily-puzzle-2024-07-27.html
+
 **Astros' GM Dana Brown: Starting pitching remains top priority at trade deadline**\
 `Brown said the Astros are looking for a No. 3 or 4 starter, preferably one who is controllable beyond this season.`\
 https://nytimes.com/athletic/5661905/2024/07/26/astros-dana-brown-trade-deadline-starting-pitching/

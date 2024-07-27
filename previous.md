@@ -1,3 +1,7 @@
+**Level, Essentially**\
+`You’ll need good balance to take on Barbara Lin and Matthew Stock’s collaboration.`\
+https://nytimes.com/2024/07/26/crosswords/daily-puzzle-2024-07-27.html
+
 **Astros' GM Dana Brown: Starting pitching remains top priority at trade deadline**\
 `Brown said the Astros are looking for a No. 3 or 4 starter, preferably one who is controllable beyond this season.`\
 https://nytimes.com/athletic/5661905/2024/07/26/astros-dana-brown-trade-deadline-starting-pitching/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5661793/2024/07/26/mlb-trade-grades-mets-mariners-s
 **Blake Snell trade scenarios: Ranking the teams who might have the most interest in him**\
 `From the Dodgers to the Royals, a look at the teams that would match-up best for the Giants in a potential Snell deal.`\
 https://nytimes.com/athletic/5661210/2024/07/26/blake-snell-trade-scenarios-sf-giants/
-
-**Bullet or Fragment of One Struck Trump’s Ear, F.B.I. Says**\
-`The explanation was the most definitive to date after the bureau’s director had earlier suggested the former president might have been hit by shrapnel, igniting a political storm.`\
-https://nytimes.com/2024/07/26/us/politics/fbi-trump-bullet-ear.html
 
