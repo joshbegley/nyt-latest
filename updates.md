@@ -1,3 +1,7 @@
+**The Big 5-0**\
+`Paolo Pasco puts solvers (us!) on the podium.`\
+https://nytimes.com/2024/07/27/crosswords/daily-puzzle-2024-07-28.html
+
 **MLB Trade Grades: Will Jazz Chisholm Jr. help fix the Yankees' struggles?**\
 `The Yankees hope Chisholm can help bolster a struggling lineup and fill a need at second base. Was the return they sent to Miami worth it?`\
 https://nytimes.com/athletic/5662923/2024/07/27/mlb-trade-grades-yankees-marlins-chisholm/
