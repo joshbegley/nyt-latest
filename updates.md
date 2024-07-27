@@ -1,3 +1,7 @@
+**The Briefing: Vissel Kobe 2 Spurs 3 - Is Bergvall ready? Where should Gray play?**\
+`The major talking points from Tokyo as Spurs made it three wins out of three in pre-season`\
+https://nytimes.com/athletic/5659063/2024/07/27/tottenham-vissel-kobe-result-analysis/
+
 **Angels fail to sign third-round pick, raising questions about pre-draft due diligence**\
 `Ryan Prager spurned the Angels, electing to return to Texas A&M. “We weren’t going to settle or take a situation that wasn’t the very best.”`\
 https://nytimes.com/athletic/5661952/2024/07/27/angels-ryan-prager-mlb-draft-unsigned/
