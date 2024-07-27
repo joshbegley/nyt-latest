@@ -1,3 +1,7 @@
+**Everton set to sign Lyon defender O'Brien**\
+`Everton are close to completing a deal to sign Lyon defender Jake O&#8217;Brien for a €20million (£16.`\
+https://nytimes.com/athletic/5662413/2024/07/27/jake-obrien-everton-transfer/
+
 **Miso, Butter, Salmon**\
 `Chan chan yaki takes three superb ingredients and adds sautéed veggies and a glug of sake for a fast, filling, salty-sweet dinner.`\
 https://nytimes.com/2024/07/27/dining/miso-butter-salmon.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5646175/2024/07/27/olympics-usa-mens-gymnastics-nca
 **Gretchen Walsh, 'bathtub swimmer' no more, arrives at her big Olympic moment**\
 `Gretchen Walsh spent years hearing that she could only excel in short-course pools. Now she is competing in Paris as a medal favorite.`\
 https://nytimes.com/athletic/5662314/2024/07/27/gretchen-walsh-2024-paris-olympics-swimming/
-
-**Tearful Endrick can't hide emotion at Real Madrid unveiling**\
-`A tearful Endrick couldn&#8217;t hide his emotions as he was introduced to the Real Madrid crowd for the first time.`\
-https://nytimes.com/athletic/5662328/2024/07/27/endrick-real-madrid-bernabeu/
 
