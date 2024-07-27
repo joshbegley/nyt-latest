@@ -1,3 +1,7 @@
+**Why Yankees' latest meltdown emphasizes desperate trade deadline needs**\
+`Nestor Cortes: “I think we were the best rotation in baseball for two months. Now we’re the worst rotation or the worst pitching staff.”`\
+https://nytimes.com/athletic/5662159/2024/07/27/yankees-pitching-bullpen-starters-trade-deadline/
+
 **Mets blast into NL's top wild-card spot. Is more help on the way?**\
 `New York has checked in on left-handed batters, including former Mets outfielder Michael Conforto.`\
 https://nytimes.com/athletic/5662105/2024/07/27/mets-mlb-trade-deadline-jd-martinez/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5662094/2024/07/27/braves-losing-streak-brian-snitk
 **Inside Flick's unusual Barca start - and the youngsters who could impress him in pre-season**\
 `Flick hasn't had the easiest of starts as Barcelona's new head coach — now they go on a three-match tour in the United States`\
 https://nytimes.com/athletic/5660303/2024/07/27/hansi-flick-barcelona-la-liga/
-
-**Guardiola, his expiring contract and a question that is not going away any time soon**\
-`The Manchester City manager's future is likely to be a constant source of speculation until an announcement is made either way`\
-https://nytimes.com/athletic/5661675/2024/07/27/pep-guardiola-contract-manchester-city/
 
