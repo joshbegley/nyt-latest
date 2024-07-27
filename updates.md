@@ -1,3 +1,11 @@
+**New Israeli Evacuation Order in Gaza Displaces Palestinians Again**\
+`The Israeli military said its recent evacuations and operations in the Khan Younis area of southern Gaza have targeted a renewed Hamas insurgency.`\
+https://nytimes.com/2024/07/27/world/middleeast/israel-evacuation-order-gaza.html
+
+**South Korea stung by Paris Olympics opening ceremony introduction as North Korea**\
+`South Korea is seeking a meeting with International Olympic Committee (IOC) president Thomas Bach after its athletes were wrongly introduced as North Korean during the opening ceremony for the Paris Olympics.`\
+https://nytimes.com/athletic/5662302/2024/07/27/south-korea-stung-by-introduction-at-paris-olympics-opening-ceremony-as-north-korea/
+
 **The Briefing: Vissel Kobe 2 Spurs 3 - Is Bergvall ready? Where should Gray play?**\
 `The major talking points from Tokyo as Spurs made it three wins out of three in pre-season`\
 https://nytimes.com/athletic/5659063/2024/07/27/tottenham-vissel-kobe-result-analysis/
