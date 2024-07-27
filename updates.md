@@ -1,3 +1,7 @@
+**Olympic opening ceremony has total audience of 28.6 million viewers**\
+`NBCUniversal’s said the ceremony drew a total audience delivery of 28.6 million viewers.`\
+https://nytimes.com/athletic/5663150/2024/07/27/olympic-opening-ceremony-viewers/
+
 **The Briefing: Chelsea 1 Celtic 4 - Defensive issues, goalkeeper dilemma and Mudryk vs Sterling**\
 `Simon Johnson addresses the key talking points from Chelsea's heavy pre-season friendly defeat by Celtic`\
 https://nytimes.com/athletic/5659065/2024/07/27/chelsea-celtic-friendly-anaysis/

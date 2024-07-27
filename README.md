@@ -1,3 +1,7 @@
+**MLB Trade Grades: Nick Mears, a Rockies unicorn, heads to Milwaukee**\
+`The Brewers, comfortably atop the NL Central, acquired Colorado Rockies right-hander Nick Mears to add to their bullpen for the stretch run.`\
+https://nytimes.com/athletic/5663153/2024/07/27/mlb-trade-grades-nick-mears-brewers-rockies/
+
 **Olympic opening ceremony has total audience of 28.6 million viewers**\
 `NBCUniversal’s said the ceremony drew a total audience delivery of 28.6 million viewers.`\
 https://nytimes.com/athletic/5663150/2024/07/27/olympic-opening-ceremony-viewers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5662812/2024/07/27/broncos-bo-nix-qb-competition/
 **Bears camp: False starts hinder offense, Matt Eberflus looking for 'focus and finish'**\
 `The offense struggled to get in a rhythm Saturday after a slew of false starts, limiting Caleb Williams at padded practice No. 2.`\
 https://nytimes.com/athletic/5662871/2024/07/27/bears-training-camp-matt-eberflus/
-
-**Canada’s Olympic soccer spying scandal explained: What we know, who’s involved and what's next**\
-`The New Zealand Olympic Committee issued a complaint about a drone being flown over its women’s soccer team’s practice. Here’s what we know.`\
-https://nytimes.com/athletic/5657110/2024/07/27/canada-soccer-olympic-spying-scandal-explained/
 
