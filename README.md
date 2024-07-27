@@ -1,3 +1,7 @@
+**Can American men's gymnastics team give a waning U.S. sport a boost in Paris?**\
+`One of the strongest U.S. Olympic men's gymnastics teams in years competes in Paris at a vital time for the sport in America.`\
+https://nytimes.com/athletic/5646175/2024/07/27/olympics-usa-mens-gymnastics-ncaa-college/
+
 **Gretchen Walsh, 'bathtub swimmer' no more, arrives at her big Olympic moment**\
 `Gretchen Walsh spent years hearing that she could only excel in short-course pools. Now she is competing in Paris as a medal favorite.`\
 https://nytimes.com/athletic/5662314/2024/07/27/gretchen-walsh-2024-paris-olympics-swimming/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/27/world/olympics/balance-beam-gymnastics.html
 **New Israeli Evacuation Order in Gaza Displaces Palestinians Again**\
 `The Israeli military said its recent evacuations and operations in the Khan Younis area of southern Gaza have targeted a renewed Hamas insurgency.`\
 https://nytimes.com/2024/07/27/world/middleeast/israel-evacuation-order-gaza.html
-
-**South Korea stung by Paris Olympics opening ceremony introduction as North Korea**\
-`South Korea is seeking a meeting with International Olympic Committee (IOC) president Thomas Bach after its 143 athletes were wrongly introduced as North Korean during the opening ceremony for the Paris Olympics.`\
-https://nytimes.com/athletic/5662302/2024/07/27/south-korea-stung-by-introduction-at-paris-olympics-opening-ceremony-as-north-korea/
 
