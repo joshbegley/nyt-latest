@@ -1,3 +1,11 @@
+**Mets ace Kodai Senga returns, then leaves with left calf strain**\
+`Any additional time Senga misses would be critical to the Mets, who have been counting on the return of their ace.`\
+https://nytimes.com/athletic/5661888/2024/07/26/mets-kodai-senga-calf-injury/
+
+**MLB Trade Grades: Can Mets' move for Ryne Stanek give them the bullpen boost they need?**\
+`The Mets are looking to provide stability in their bullpen, and the acquisition of Stanek appears to be one way to address that. `\
+https://nytimes.com/athletic/5661793/2024/07/26/mlb-trade-grades-mets-mariners-stanek/
+
 **Mets' ace Kodai Senga's returns, then leaves with left calf strain**\
 `Any additional time Senga misses would be critical to the Mets, who have been counting on the return of their ace.`\
 https://nytimes.com/athletic/5661888/2024/07/26/mets-kodai-senga-calf-injury/
