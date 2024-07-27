@@ -1,3 +1,7 @@
+**Howe holds 'positive talks' with Newcastle, no England approach**\
+`Eddie Howe has held &#8220;positive talks&#8221; with Newcastle United&#8217;s hierarchy and has reiterated that he wants &#8220;collaboration&#8221; on transfers, rather than the &#8220;final say&#8221;.`\
+https://nytimes.com/athletic/5662527/2024/07/27/eddie-howe-newcastle-england/
+
 **Liverpool's Carvalho determined to 'make a statement' on pre-season tour**\
 `Fabio Carvalho is determined to use Liverpool’s tour of America to force his way into Arne Slot’s plans for the coming season.`\
 https://nytimes.com/athletic/5662376/2024/07/27/liverpool-fabio-carvalho-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5659064/2024/07/27/hull-0-newcastle-2-howe-isak-mur
 **Trump Tells Christians ‘You Won’t Have to Vote Anymore’ If He’s Elected**\
 `Donald Trump, after lamenting that conservative Christians are not “big voters,” urged the religious right to turn out for him “just this time.”`\
 https://nytimes.com/2024/07/27/us/politics/trump-votes-christians.html
-
-**Blinken and a Top Chinese Official in Talks on U.S.-China Tensions**\
-`The U.S. secretary of state pressed China’s top foreign policy official on Beijing’s support for Russia’s efforts to rebuild its military industries  during the Ukraine war.`\
-https://nytimes.com/2024/07/27/world/asia/blinken-wang-yi-china-united-states-tensions.html
 
