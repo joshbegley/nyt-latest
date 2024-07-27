@@ -1,3 +1,11 @@
+**Cardinals' decisions loom ahead of trade deadline: 3 players to watch**\
+`Dylan Carlson, once considered part of the Cardinals' future, may be better off with a change of scenery.`\
+https://nytimes.com/athletic/5662543/2024/07/27/cardninals-mlb-trade-deadline-dylan-carlson/
+
+**Lions training camp: What we learned from Week 1**\
+`Some things are starting to take shape as practice with pads begins next week.`\
+https://nytimes.com/athletic/5662705/2024/07/27/detroit-lions-training-camp-dan-campbell-brian-branch-jameson-williams/
+
 **Ariarne Titmus beats Summer McIntosh, Katie Ledecky for second straight gold in 400-meter free**\
 `Titmus has not lost this race in competition since 2019.`\
 https://nytimes.com/athletic/5662595/2024/07/27/katie-ledecky-ariarne-titmus-summer-mcintosh-400-meter-freestyle-swimming-paris-olympics/
