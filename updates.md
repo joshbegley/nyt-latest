@@ -1,3 +1,7 @@
+**Villa investigating Duran over alleged West Ham gesture**\
+`Aston Villa forward Jhon Duran faces disciplinary action after appearing to cross his arms to make an Irons-shaped gesture, amid ongoing interest from West Ham.`\
+https://nytimes.com/athletic/5663030/2024/07/27/aston-villa-investigating-jhon-duran/
+
 **Canada’s Olympic soccer spying scandal explained: What we know, who’s involved and what's next**\
 `The New Zealand Olympic Committee issued a complaint about a drone being flown over its women’s soccer team’s practice. Here’s what we know.`\
 https://nytimes.com/athletic/5657110/2024/07/27/canada-soccer-olympic-spying-scandal-explained/
