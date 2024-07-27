@@ -1,3 +1,7 @@
+**Justin Herbert, offense get a chance to air it out at Chargers training camp**\
+`Also, Rashawn Slater raises some concern with an early exit from Friday's practice.`\
+https://nytimes.com/athletic/5662032/2024/07/27/justin-herbert-chargers-training-camp/
+
 **Can American men's gymnastics team give a waning U.S. sport a boost in Paris?**\
 `One of the strongest U.S. Olympic men's gymnastics teams in years competes in Paris at a vital time for the sport in America.`\
 https://nytimes.com/athletic/5646175/2024/07/27/olympics-usa-mens-gymnastics-ncaa-college/
