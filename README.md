@@ -1,3 +1,11 @@
+**Cardinals' decisions loom ahead of trade deadline: 3 players to watch**\
+`Dylan Carlson, once considered part of the Cardinals' future, may be better off with a change of scenery.`\
+https://nytimes.com/athletic/5662543/2024/07/27/cardninals-mlb-trade-deadline-dylan-carlson/
+
+**Lions training camp: What we learned from Week 1**\
+`Some things are starting to take shape as practice with pads begins next week.`\
+https://nytimes.com/athletic/5662705/2024/07/27/detroit-lions-training-camp-dan-campbell-brian-branch-jameson-williams/
+
 **Ariarne Titmus beats Summer McIntosh, Katie Ledecky for second straight gold in 400-meter free**\
 `Titmus has not lost this race in competition since 2019.`\
 https://nytimes.com/athletic/5662595/2024/07/27/katie-ledecky-ariarne-titmus-summer-mcintosh-400-meter-freestyle-swimming-paris-olympics/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5662716/2024/07/27/ricky-tiedemann-blue-jays-tommy-
 **15-Year-Old Dies in Queens, Likely From ‘Subway Surfing,’ Police Say**\
 `The teenage boy was found unconscious at a subway station in the Rockaways early Friday evening.`\
 https://nytimes.com/2024/07/27/nyregion/teen-boy-killed-subway-queens.html
-
-**Mets' Senga likely to miss regular season**\
-`The injury occurred Friday night — in Senga’s first start of the season after being sidelined because of shoulder and triceps issues.`\
-https://nytimes.com/athletic/5662734/2024/07/27/kodai-senga-mets-out-regular-season/
-
-**Rocket From Lebanon Kills at Least 10 in Israeli-Controlled Golan Heights**\
-`It was the deadliest single attack from across Israel’s northern border in months of hostilities, according to the military. Israel blamed Iran-backed Hezbollah, which denied responsibility.`\
-https://nytimes.com/2024/07/27/world/middleeast/israel-golan-heights-lebanon-rocket.html
 
