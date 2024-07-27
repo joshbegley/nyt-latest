@@ -1,3 +1,11 @@
+**Rosenthal: Garrett Crochet's reported stance on his playoff usage shouldn't deter teams from trading for him**\
+`Clubs continue to pursue the White Sox pitcher despite a reported refusal to pitch in the playoffs without a contract extension.`\
+https://nytimes.com/athletic/5662541/2024/07/27/garrett-crochet-white-sox-trade-playoffs/
+
+**Multiple medical stoppages for ill fans during Torquay vs Plymouth**\
+`A pre-season friendly match between Devon rivals Torquay United and Plymouth Argyle twice had to be stopped on Saturday following multiple medical emergencies in the crowd at Plainmoor Stadium.`\
+https://nytimes.com/athletic/5662639/2024/07/27/torquay-plymouth-medical-emergencies/
+
 **FIFA suspends Canada's Priestman 1 year, docks team 6 points**\
 `FIFA suspended Canada women&#8217;s soccer coach Bev Priestman for one year, deducted six points from the team&#8217;s Olympic group stage total and issued a fine on Saturday in response to Canada flying a drone over New Zealand&#8217;s training sessions before the start of the Games.`\
 https://nytimes.com/athletic/5662610/2024/07/27/canada-soccer-spying-drone-bev-priestman-fifa/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5662376/2024/07/27/liverpool-fabio-carvalho-future/
 **Italy flag bearer apologizes to wife after losing wedding ring in Seine**\
 `"It will remain forever in the riverbed of the city of love," Gianmarco Tamberi said of his lost wedding ring.`\
 https://nytimes.com/athletic/5662426/2024/07/27/italy-flag-bearer-wedding-ring-seine/
-
-**Meet the deadly Teahupo'o waves: Why Olympic surfing is in Tahiti**\
-`The origins of surfing date back to Tahiti's region, as it was invented by ancient Polynesians who later took the sport to Hawaii.`\
-https://nytimes.com/athletic/5662331/2024/07/27/where-will-2024-olympic-surfing-take-place/
-
-**Chelsea set to sign goalkeeper Jorgensen from Villarreal**\
-`Chelsea are set to sign Villarreal goalkeeper Filip Jorgensen.`\
-https://nytimes.com/athletic/5662484/2024/07/27/chelsea-filip-jorgensen-transfer-medical/
 
