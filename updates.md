@@ -1,3 +1,11 @@
+**Rocket From Lebanon Kills at Least 10 in Israeli-Controlled Golan Heights**\
+`Israel blamed Iran-backed Hezbollah for the attack, but the Lebanese militant group denied responsibility.`\
+https://nytimes.com/2024/07/27/world/middleeast/israel-golan-heights-lebanon-rocket.html
+
+**Belgian GP preview: Ferrari looks to capitalize at Spa, Checo's big chance**\
+`Plus: Can Max Verstappen win from the back half of the grid? `\
+https://nytimes.com/athletic/5662578/2024/07/27/f1-belgian-gp-preview-ferrari-verstpapen-perez/
+
 **Palmer, Cucurella and Gallagher given extended summer breaks**\
 `Chelsea have told Cole Palmer, Marc Cucurella and Conor Gallagher they do not have to join their pre-season tour of the United States and can begin training at Cobham in early August instead.`\
 https://nytimes.com/athletic/5662680/2024/07/27/chelsea-cole-palmer-break/
