@@ -1,3 +1,7 @@
+**Blue Jays top prospect Ricky Tiedemann to have Tommy John surgery**\
+`Tiedemann has been limited to just 61 1/3 innings over the last two seasons and is likely to miss most — if not all — of next season.`\
+https://nytimes.com/athletic/5662716/2024/07/27/ricky-tiedemann-blue-jays-tommy-john-surgery/
+
 **15-Year-Old Dies in Queens, Likely From ‘Subway Surfing,’ Police Say**\
 `The teenage boy was found unconscious at a subway station in the Rockaways early Friday evening.`\
 https://nytimes.com/2024/07/27/nyregion/teen-boy-killed-subway-queens.html
