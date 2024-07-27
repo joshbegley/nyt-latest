@@ -1,3 +1,7 @@
+**MLB Trade Grades: Phillies acquire Carlos Estévez with the World Series in mind**\
+`Both teams, Phillies and Angels, did exactly what they should do — one getting better right now and one getting better for the future. `\
+https://nytimes.com/athletic/5663234/2024/07/27/mlb-trade-grades-phillies-angels-estevez/
+
 **Red Sox acquire Danny Jansen from Blue Jays**\
 `Jansen, 29, was the longest-tenured Blue Jay. He'll share time behind the plate in Boston with Connor Wong. `\
 https://nytimes.com/athletic/5663139/2024/07/27/danny-jansen-trade-red-sox-blue-jays/
