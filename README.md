@@ -1,3 +1,15 @@
+**Liverpool's Carvalho determined to 'make a statement' on pre-season tour**\
+`Fabio Carvalho is determined to use Liverpool’s tour of America to force his way into Arne Slot’s plans for the coming season.`\
+https://nytimes.com/athletic/5662376/2024/07/27/liverpool-fabio-carvalho-future/
+
+**Italy flag bearer apologizes to wife after losing wedding ring in Seine**\
+`"It will remain forever in the riverbed of the city of love," Gianmarco Tamberi said of his lost wedding ring.`\
+https://nytimes.com/athletic/5662426/2024/07/27/italy-flag-bearer-wedding-ring-seine/
+
+**Meet the deadly Teahupo'o waves: Why Olympic surfing is in Tahiti**\
+`The origins of surfing date back to Tahiti's region, as it was invented by ancient Polynesians who later took the sport to Hawaii.`\
+https://nytimes.com/athletic/5662331/2024/07/27/where-will-2024-olympic-surfing-take-place/
+
 **Chelsea set to sign goalkeeper Jorgensen from Villarreal**\
 `Chelsea are set to sign Villarreal goalkeeper Filip Jorgensen.`\
 https://nytimes.com/athletic/5662484/2024/07/27/chelsea-filip-jorgensen-transfer-medical/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/27/us/politics/trump-votes-christians.html
 **Blinken and a Top Chinese Official in Talks on U.S.-China Tensions**\
 `The U.S. secretary of state pressed China’s top foreign policy official on Beijing’s support for Russia’s efforts to rebuild its military industries  during the Ukraine war.`\
 https://nytimes.com/2024/07/27/world/asia/blinken-wang-yi-china-united-states-tensions.html
-
-**Explained: Russia's Paris Olympics 'ban' and who's on the AIN team**\
-`How are Russian athletes able to compete in Paris despite their Olympic ban?`\
-https://nytimes.com/athletic/5662339/2024/07/27/ain-russia-belarus-paris-olympics-2024/
-
-**Seahawks training camp: Plenty of intrigue in receiver-cornerback red zone battle**\
-`Seattle's offense has been sharp through three days, but the defense is making it work for everything, which is what Mike Macdonald wants.`\
-https://nytimes.com/athletic/5661805/2024/07/27/seahawks-training-camp-red-zone-battles/
-
-**Justin Herbert, offense get a chance to air it out at Chargers training camp**\
-`Also, Rashawn Slater raises some concern with an early exit from Friday's practice.`\
-https://nytimes.com/athletic/5662032/2024/07/27/justin-herbert-chargers-training-camp/
 
