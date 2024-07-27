@@ -1,3 +1,7 @@
+**California School Official Who Embezzled $16.7 Million Gets Nearly 6 Years in Prison**\
+`Jorge Armando Contreras used his position at a school district in Orange County to fund a luxurious lifestyle, prosecutors said.`\
+https://nytimes.com/2024/07/27/us/california-school-embezzlement.html
+
 **Villa investigating Duran over alleged West Ham gesture**\
 `Aston Villa forward Jhon Duran faces disciplinary action after appearing to cross his arms to make an Irons-shaped gesture, amid ongoing interest from West Ham.`\
 https://nytimes.com/athletic/5663030/2024/07/27/aston-villa-investigating-jhon-duran/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5662942/2024/07/27/trade-deadline-mlb-royals-oriole
 **Nadal, Alcaraz victorious in first doubles match together at Paris 2024**\
 `Both players are French Open champions at Roland Garros, with Nadal winning 14 and Alcaraz winning his first this year.`\
 https://nytimes.com/athletic/5662827/2024/07/27/nadal-alcaraz-doubles-tennis-paris-2024/
-
-**Katie Ledecky’s relentless march toward history begins with a bronze in Paris.**\
-`Ledecky won her 11th Olympic medal, but was outpaced by Ariarne Titmus of Australia.`\
-https://nytimes.com/2024/07/27/world/olympics/katie-ledecky-medal.html
 
