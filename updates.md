@@ -1,3 +1,11 @@
+**Embattled Democrats Express New Hope With Harris at Top of Ticket**\
+`Incumbents who had feared President Biden would drag them down to defeat say the electoral environment has improved rapidly since he left the race.`\
+https://nytimes.com/2024/07/27/us/democrats-congress-biden-harris.html
+
+**Your Guide to Olympic Gymnastics: Vault**\
+`Want to follow the women’s gymnastics competition in Paris, but don’t understand the skills or how they’re scored? Here’s a guide.`\
+https://nytimes.com/2024/07/27/world/olympics/gymnastics-vault.html
+
 **Your Guide to Olympic Gymnastics: Floor Exercise**\
 `Want to follow the women’s gymnastics competition in Paris, but don’t understand the skills or how they’re scored? Here’s a guide.`\
 https://nytimes.com/2024/07/27/world/olympics/gymnastics-floor-exercise.html
