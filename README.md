@@ -1,5 +1,5 @@
 **Why Yankees' latest meltdown emphasizes desperate trade deadline needs**\
-`Nestor Cortes: “I think we were the best rotation in baseball for two months. Now we’re the worst rotation or the worst pitching staff.”`\
+`Nestor Cortes: "I think we were the best rotation in baseball for two months. Now we're the worst rotation or the worst pitching staff."`\
 https://nytimes.com/athletic/5662159/2024/07/27/yankees-pitching-bullpen-starters-trade-deadline/
 
 **Mets blast into NL's top wild-card spot. Is more help on the way?**\
