@@ -1,3 +1,7 @@
+**Cubs acquire former first rounder Nate Pearson from Blue Jays: Sources**\
+`Pearson was once the Blue Jays’ top pitching prospect and was projected to be a frontline starter. But injuries have derailed his career.`\
+https://nytimes.com/athletic/5662618/2024/07/27/nate-pearson-cubs-blue-jays-trade/
+
 **Rosenthal: Garrett Crochet's reported stance on his playoff usage shouldn't deter teams from trading for him**\
 `Clubs continue to pursue the White Sox pitcher despite a reported refusal to pitch in the playoffs without a contract extension.`\
 https://nytimes.com/athletic/5662541/2024/07/27/garrett-crochet-white-sox-trade-playoffs/
