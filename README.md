@@ -1,3 +1,7 @@
+**Your Guide to Olympic Gymnastics: Floor Exercise**\
+`Want to follow the women’s gymnastics competition in Paris, but don’t understand the skills or how they’re scored? Here’s a guide.`\
+https://nytimes.com/2024/07/27/world/olympics/gymnastics-floor-exercise.html
+
 **South Korea Reports Leak From Its Military Intelligence Command**\
 `It’s highly unusual for the nation’s authorities to publicly acknowledge a leak from the command​, which is one of South Korea’s top two spy agencies.`\
 https://nytimes.com/2024/07/27/world/asia/south-korea-intelligence-leaks-north-korea.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5659063/2024/07/27/tottenham-vissel-kobe-result-ana
 **Chinese Swimmer Denies Cheating in First Public Comments on Doping Case**\
 `Zhang Yufei, one of 23 athletes who tested positive for a banned substance before the last Olympics, said China did not allow doping, and offered a window into the stress the accusations have caused.`\
 https://nytimes.com/2024/07/27/world/asia/china-doping-zhang-yufei.html
-
-**Broncos made concerted shift in the secondary — and early returns are promising**\
-`The Broncos have big plans for second-year cornerback Riley Moss.`\
-https://nytimes.com/athletic/5661144/2024/07/27/broncos-training-camp-secondary/
 
