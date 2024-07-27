@@ -1,3 +1,7 @@
+**The Olympics Have Arrived**\
+`The Games present untold opportunities to geek out on sports you haven’t thought about for several years, or ever.`\
+https://nytimes.com/2024/07/27/briefing/the-olympics-have-arrived.html
+
 **The trade deadline that blindsided Pete Crow-Armstrong**\
 `Crow-Armstrong might be the Cubs' best hope to salvage their 2021 sell-off.`\
 https://nytimes.com/athletic/5661940/2024/07/27/pete-crow-armstrong-2021-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/27/magazine/pete-buttigieg-interview-election-democr
 **At the Olympic opening ceremony, a force of nature upset the plan but not the point**\
 `After years of coordination, Paris' audacious opening ceremony finally arrived. And then the rain came. And came. But no one seemed to mind.`\
 https://nytimes.com/athletic/5662021/2024/07/27/2024-paris-olympics-opening-ceremony-rain/
-
-**More Trains, but Few Answers, After Railway Sabotage in France**\
-`France’s national railway company said traffic was gradually returning to normal a day after arsonists disrupted three high-speed rail lines. No one has claimed responsibility for the attacks.`\
-https://nytimes.com/2024/07/27/world/europe/france-trains-arson-olympics.html
 
