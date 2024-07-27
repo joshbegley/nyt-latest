@@ -1,3 +1,7 @@
+**24 Hours at the Golden Apple**\
+`We document one day in a Chicago diner called the Golden Apple, starting at 5 a.m. and going until 5 a.m. the next morning.`\
+https://nytimes.com/2024/07/27/podcasts/24-hours-at-the-golden-apple.html
+
 **Durant set to play in Team USA's Paris Olympics opener**\
 `PARIS – Barring any last minute setbacks, Kevin Durant will make his 2024 debut with Team USA Sunday in game 1 of the Paris Olympics vs.`\
 https://nytimes.com/athletic/5662289/2024/07/27/kevin-durant-injury-team-usa-olympics/
