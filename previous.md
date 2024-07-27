@@ -1,3 +1,7 @@
+**Man Charged in Death Threats to Trump Trial Judge and Prosecutor**\
+`A judge ordered Spencer Gear into custody, citing threats to the district attorney and judge in New York days after Donald Trump’s conviction in his hush-money case.`\
+https://nytimes.com/2024/07/27/us/politics/las-vegas-man-charged-threats-federal-officials.html
+
 **Sophia Smith fit for Germany, while the USWNT holds its own opening ceremony in Marseille**\
 `“We got in our uniforms, in our Ralph Lauren get-up, and we took pictures,” forward Lynn Williams said.`\
 https://nytimes.com/athletic/5662856/2024/07/27/uswnt-olympic-schedule-2024-paris/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5662593/2024/07/27/new-zealand-1-united-states-4-ol
 **France wins first gold medal of Paris Games in men's rugby sevens**\
 `For the first time in 100 years, the last time the Olympics were held in Paris, the French team medaled at the Olympics in rugby.`\
 https://nytimes.com/athletic/5662738/2024/07/27/france-first-gold-medal-rugby-sevens-fiji/
-
-**Three Members of the Nelons Gospel Group Are Killed in a Plane Crash**\
-`The band members were traveling on Friday to a performance when their plane crashed in Wyoming. Four others on board were killed.`\
-https://nytimes.com/2024/07/27/arts/music/nelons-plane-crash-wyoming.html
 

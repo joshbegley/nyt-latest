@@ -1,3 +1,7 @@
+**Man Charged in Death Threats to Trump Trial Judge and Prosecutor**\
+`A judge ordered Spencer Gear into custody, citing threats to the district attorney and judge in New York days after Donald Trump’s conviction in his hush-money case.`\
+https://nytimes.com/2024/07/27/us/politics/las-vegas-man-charged-threats-federal-officials.html
+
 **Sophia Smith fit for Germany, while the USWNT holds its own opening ceremony in Marseille**\
 `“We got in our uniforms, in our Ralph Lauren get-up, and we took pictures,” forward Lynn Williams said.`\
 https://nytimes.com/athletic/5662856/2024/07/27/uswnt-olympic-schedule-2024-paris/
