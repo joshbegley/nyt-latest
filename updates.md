@@ -1,3 +1,7 @@
+**Why Is It So Hard for Olympic Host Cities to Control Costs?**\
+`An Oxford study estimates that despite cost-cutting efforts, Paris is spending more than $1 billion above the Games’ historical median cost.`\
+https://nytimes.com/2024/07/27/business/dealbook/olympic-host-city-costs.html
+
 **The Briefing: Vissel Kobe 2 Spurs 3 - Is Bergvall ready and where should Gray play?**\
 `The major talking points from Tokyo as Spurs made it three wins out of three in pre-season`\
 https://nytimes.com/athletic/5659063/2024/07/27/tottenham-vissel-kobe-result-analysis/
