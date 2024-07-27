@@ -1,3 +1,7 @@
+**Using a drone to spy on another team... what's the point? Is it really worth the risk?**\
+`Maybe they'll see a formation being worked on. Perhaps a set-piece routine. Or maybe it's about having control and lowering anxiety levels`\
+https://nytimes.com/athletic/5660652/2024/07/27/drone-canada-soccer-olympics-spying/
+
 **How cricket became the next big thing for sport's wealthiest investors**\
 `We explore how cricket became just the ticket for every serious multi-sport investor, how America fits in and where the sport is heading`\
 https://nytimes.com/athletic/5659059/2024/07/27/cricket-olympics-usa-india-investors/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5658808/2024/07/27/olympics-2024-watch-guide-day-2-
 **Quotation of the Day: Rising Star of Surfing is at Peace, and on Roll**\
 `Quotation of the Day for Saturday, July 27, 2024.`\
 https://nytimes.com/2024/07/27/pageoneplus/quotation-of-the-day-rising-star-of-surfing-is-at-peace-and-on-roll.html
-
-**Why Padres' Leodalis De Vries, who played with Xander Bogaerts, may be off-limits at the trade deadline**\
-`Xander Bogaerts got to play with the 17-year-old De Vries and thinks his future is bright. The Padres think so, too.`\
-https://nytimes.com/athletic/5660935/2024/07/26/padres-trade-deadline-leodalis-de-vries/
 
