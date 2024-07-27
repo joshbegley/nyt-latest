@@ -1,3 +1,7 @@
+**Sophia Smith fit for Germany, while the USWNT holds its own opening ceremony in Marseille**\
+`“We got in our uniforms, in our Ralph Lauren get-up, and we took pictures,” forward Lynn Williams said.`\
+https://nytimes.com/athletic/5662856/2024/07/27/uswnt-olympic-schedule-2024-paris/
+
 **Team USA dominates 4x100 freestyle relay for first gold medal of Paris Games**\
 `Italy took home silver and Australia bronze.`\
 https://nytimes.com/athletic/5662750/2024/07/27/usa-swimming-caeleb-dressel-freestyle-relay-paris-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5662738/2024/07/27/france-first-gold-medal-rugby-se
 **Three Members of the Nelons Gospel Group Are Killed in a Plane Crash**\
 `The band members were traveling on Friday to a performance when their plane crashed in Wyoming. Four others on board were killed.`\
 https://nytimes.com/2024/07/27/arts/music/nelons-plane-crash-wyoming.html
-
-**MLB Trade Grades: Cubs land Nate Pearson and are betting on his potential**\
-`Can Pearson, a former first-rounder, rediscover his spark in Chicago? The Cubs are hoping so, and parted with two minor-leagers to find out.`\
-https://nytimes.com/athletic/5662635/2024/07/27/mlb-trade-grades-blue-jays-cubs/
 
