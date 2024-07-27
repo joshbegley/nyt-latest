@@ -1,3 +1,7 @@
+**France wins first gold medal of Paris Games in men's rugby sevens**\
+`For the first time in 100 years, the last time the Olympics were held in Paris, the French team medaled at the Olympics in rugby.`\
+https://nytimes.com/athletic/5662738/2024/07/27/france-first-gold-medal-rugby-sevens-fiji/
+
 **MLB Trade Grades: Cubs land Nate Pearson and are betting on his potential**\
 `Can Pearson, a former first-rounder, rediscover his spark in Chicago? The Cubs are hoping so, and parted with two minor-leagers to find out.`\
 https://nytimes.com/athletic/5662635/2024/07/27/mlb-trade-grades-blue-jays-cubs/

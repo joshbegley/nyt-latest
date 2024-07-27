@@ -1,3 +1,7 @@
+**France wins first gold medal of Paris Games in men's rugby sevens**\
+`For the first time in 100 years, the last time the Olympics were held in Paris, the French team medaled at the Olympics in rugby.`\
+https://nytimes.com/athletic/5662738/2024/07/27/france-first-gold-medal-rugby-sevens-fiji/
+
 **Three Members of the Nelons Gospel Group Are Killed in a Plane Crash**\
 `The band members were traveling on Friday to a performance when their plane crashed in Wyoming. Four others on board were killed.`\
 https://nytimes.com/2024/07/27/arts/music/nelons-plane-crash-wyoming.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5662680/2024/07/27/chelsea-cole-palmer-break/
 **Liverpool considering sending Doak on loan**\
 `Ben Doak is attracting interest from a number of Premier League clubs as Liverpool consider sanctioning a loan move for him this season.`\
 https://nytimes.com/athletic/5662544/2024/07/27/ben-doak-loan-liverpool/
-
-**Cubs acquire former first rounder Nate Pearson from Blue Jays: Sources**\
-`Pearson was once the Blue Jays’ top pitching prospect and was projected to be a frontline starter. But injuries have derailed his career.`\
-https://nytimes.com/athletic/5662618/2024/07/27/nate-pearson-cubs-blue-jays-trade/
 
