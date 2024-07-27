@@ -1,3 +1,7 @@
+**Trump Tells Christians ‘You Won’t Have to Vote Anymore’ If He’s Elected**\
+`Donald Trump, after lamenting that conservative Christians are not “big voters,” urged the religious right to turn out for him “just this time.”`\
+https://nytimes.com/2024/07/27/us/politics/trump-votes-christians.html
+
 **Blinken and a Top Chinese Official in Talks on U.S.-China Tensions**\
 `The U.S. secretary of state pressed China’s top foreign policy official on Beijing’s support for Russia’s efforts to rebuild its military industries  during the Ukraine war.`\
 https://nytimes.com/2024/07/27/world/asia/blinken-wang-yi-china-united-states-tensions.html
