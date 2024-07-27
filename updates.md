@@ -1,3 +1,7 @@
+**Angels fail to sign third-round pick, raising questions about pre-draft due diligence**\
+`Ryan Prager spurned the Angels, electing to return to Texas A&M. “We weren’t going to settle or take a situation that wasn’t the very best.”`\
+https://nytimes.com/athletic/5661952/2024/07/27/angels-ryan-prager-mlb-draft-unsigned/
+
 **Why Is It So Hard for Olympic Host Cities to Control Costs?**\
 `An Oxford study estimates that despite cost-cutting efforts, Paris is spending more than $1 billion above the Games’ historical median cost.`\
 https://nytimes.com/2024/07/27/business/dealbook/olympic-host-city-costs.html
