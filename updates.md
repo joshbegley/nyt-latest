@@ -1,3 +1,11 @@
+**Elon Musk’s Transgender Daughter Says He Was ‘Cruel’ and ‘Uncaring’**\
+`Vivian Jenna Wilson’s remarks, in an exclusive interview with NBC News, were a response to Mr. Musk’s comments about her transgender identity.`\
+https://nytimes.com/2024/07/26/business/media/elon-musk-daughter-interview-nbc.html
+
+**Dodgers' Freddie Freeman steps away for family reasons**\
+`Freeman's 3-year-old son was hospitalized this week and there is no timetable for the first baseman's return.`\
+https://nytimes.com/athletic/5661699/2024/07/26/dodgers-freddie-freeman-family/
+
 **Bullet or Fragment of One Struck Trump’s Ear, F.B.I. Says**\
 `The explanation was the most definitive to date after the bureau’s director had earlier suggested the former president might have been hit by shrapnel, igniting a political storm.`\
 https://nytimes.com/2024/07/26/us/politics/fbi-trump-bullet-ear.html
