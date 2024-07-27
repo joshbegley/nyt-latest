@@ -1,3 +1,7 @@
+**The trade deadline that blindsided Pete Crow-Armstrong**\
+`Crow-Armstrong might be the Cubs' best hope to salvage their 2021 sell-off.`\
+https://nytimes.com/athletic/5661940/2024/07/27/pete-crow-armstrong-2021-trade-deadline/
+
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/07/27/us/harris-trump-biden-election/heres-the-latest-on-the-presidential-race
