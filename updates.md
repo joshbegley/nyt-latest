@@ -1,3 +1,15 @@
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/07/27/us/harris-trump-biden-election/heres-the-latest-on-the-presidential-race
+
+**Wordle Review No. 1,135, Sunday, July 28, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/27/crosswords/wordle-review-1135.html
+
+**The Connections Companion No. 413, July 28, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/27/crosswords/connections-companion-413.html
+
 **Team USA scouting report: Serbia's Bogdan Bogdanović discusses looming showdown**\
 `As Team USA shows cracks, Serbia gets the first crack at them in Olympic play. Here's what one player thinks of the matchup.`\
 https://nytimes.com/athletic/5660830/2024/07/27/usa-serbia-olympic-basketball-bogdan-bogdanovic/

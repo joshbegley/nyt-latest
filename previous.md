@@ -1,3 +1,15 @@
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/07/27/us/harris-trump-biden-election/heres-the-latest-on-the-presidential-race
+
+**Wordle Review No. 1,135, Sunday, July 28, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/27/crosswords/wordle-review-1135.html
+
+**The Connections Companion No. 413, July 28, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/27/crosswords/connections-companion-413.html
+
 **Team USA scouting report: Serbia's Bogdan Bogdanović discusses looming showdown**\
 `As Team USA shows cracks, Serbia gets the first crack at them in Olympic play. Here's what one player thinks of the matchup.`\
 https://nytimes.com/athletic/5660830/2024/07/27/usa-serbia-olympic-basketball-bogdan-bogdanovic/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/27/world/europe/france-trains-arson-olympics.html
 **Spoiler Alert: Here’s a Guide to the Cameos in ‘Deadpool & Wolverine’**\
 `Ryan Reynolds and Hugh Jackman are the stars, but they get help from a host of actors you may know from other superhero movies.`\
 https://nytimes.com/2024/07/27/movies/deadpool-and-wolverine-cameos.html
-
-**5 Excerpts From JD Vance’s Emails to a Transgender Classmate**\
-`A former Yale Law School classmate shared with The Times about 90 emails and text messages with Mr. Vance. Here are some of the most revealing moments in their correspondence.`\
-https://nytimes.com/2024/07/27/us/jd-vance-emails-transgender-classmate-highlights.html
-
-**The Amiable Attack Dog From Kentucky Who Could Join the Harris Ticket**\
-`Andy Beshear, the Democratic governor of a deep-red state, is an intriguing Southern contender to become Kamala Harris’s running mate. He’s already straining to go after JD Vance.`\
-https://nytimes.com/2024/07/27/us/politics/andy-beshear-kamala-harris-vp.html
-
-**What to Know About Kamala Harris’s Foreign Policy Positions**\
-`Here is what we know about the presumptive Democratic presidential nominee’s views on issues like migration and the wars in Ukraine and Gaza.`\
-https://nytimes.com/2024/07/27/world/kamala-harris-foreign-policy-positions.html
 
