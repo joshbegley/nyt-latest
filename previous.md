@@ -1,3 +1,7 @@
+**Nadal, Alcaraz victorious in first doubles match together at Paris 2024**\
+`Both players are French Open champions at Roland Garros, with Nadal winning 14 and Alcaraz winning his first this year.`\
+https://nytimes.com/athletic/5662827/2024/07/27/nadal-alcaraz-doubles-tennis-paris-2024/
+
 **Katie Ledecky’s relentless march toward history begins with a bronze in Paris.**\
 `Ledecky won her 11th Olympic medal, but was outpaced by Ariarne Titmus of Australia.`\
 https://nytimes.com/2024/07/27/world/olympics/katie-ledecky-medal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5662595/2024/07/27/katie-ledecky-ariarne-titmus-sum
 **JD Vance Hits Back at Jennifer Aniston, Defending ‘Childless Cat Ladies’ Remarks**\
 `The “Friends” actress, who has been open about her fertility struggles, recently criticized Mr. Vance’s 2021 comments on social media.`\
 https://nytimes.com/2024/07/27/us/politics/jd-vance-jennifer-aniston-childless-cat-lady.html
-
-**New Zealand 1 United States 4: Dead balls help clinical U.S. clinch record-breaking win**\
-`Jeff Rueter breaks down the main talking points from the USMNT's 4-1 win over New Zealand at the 2024 Olympic Games`\
-https://nytimes.com/athletic/5662593/2024/07/27/new-zealand-1-united-states-4-olympics-paris/
 

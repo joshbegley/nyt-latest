@@ -1,3 +1,7 @@
+**Nadal, Alcaraz victorious in first doubles match together at Paris 2024**\
+`Both players are French Open champions at Roland Garros, with Nadal winning 14 and Alcaraz winning his first this year.`\
+https://nytimes.com/athletic/5662827/2024/07/27/nadal-alcaraz-doubles-tennis-paris-2024/
+
 **Katie Ledecky’s relentless march toward history begins with a bronze in Paris.**\
 `Ledecky won her 11th Olympic medal, but was outpaced by Ariarne Titmus of Australia.`\
 https://nytimes.com/2024/07/27/world/olympics/katie-ledecky-medal.html
