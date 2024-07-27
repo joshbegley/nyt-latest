@@ -1,3 +1,7 @@
+**Firefighters Race to Contain Wildfires in California and Oregon**\
+`In California, the Park fire has charred more than 307,000 acres, becoming the country’s largest this year. The Durkee fire in Oregon has covered at least 288,000 acres.`\
+https://nytimes.com/2024/07/27/us/california-oregon-wildfires-smoke.html
+
 **Inside a Twister With the World’s Most Famous Storm Chaser**\
 `For a recent assignment, a photographer found herself taking images from inside a tornado.`\
 https://nytimes.com/2024/07/27/insider/reed-timmer-storm-chaser.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/27/technology/tiktok-ban-appeal-doj.html
 **'Elite' potential, confident and focused on football: This is Chelsea new boy Renato Veiga**\
 `Portuguese youngster Veiga is one of Chelsea's new signings this summer - this is the 20-year-old's story so far`\
 https://nytimes.com/athletic/5658013/2024/07/27/renato-veiga-chelsea-profile/
-
-**Why Smith Rowe's Arsenal exit makes tactical sense - and joining Fulham does too**\
-`Emile Smith Rowe is on the brink of leaving Arsenal for Fulham - this is why a switch to Craven Cottage would make sense`\
-https://nytimes.com/athletic/5660782/2024/07/27/emile-smith-rowe-arsenal-fulham/
 

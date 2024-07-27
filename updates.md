@@ -1,3 +1,7 @@
+**Firefighters Race to Contain Wildfires in California and Oregon**\
+`In California, the Park fire has charred more than 307,000 acres, becoming the country’s largest this year. The Durkee fire in Oregon has covered at least 288,000 acres.`\
+https://nytimes.com/2024/07/27/us/california-oregon-wildfires-smoke.html
+
 **Inside a Twister With the World’s Most Famous Storm Chaser**\
 `For a recent assignment, a photographer found herself taking images from inside a tornado.`\
 https://nytimes.com/2024/07/27/insider/reed-timmer-storm-chaser.html
