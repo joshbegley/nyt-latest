@@ -1,3 +1,7 @@
+**MLB Trade Grades: Will Jazz Chisholm Jr. help fix the Yankees' struggles?**\
+`The Yankees hope Chisholm can help bolster a struggling lineup and fill a need at second base. Was the return they sent to Miami worth it?`\
+https://nytimes.com/athletic/5662923/2024/07/27/mlb-trade-grades-yankees-marlins-chisholm/
+
 **Victor Wembanyama's Olympic debut for France: What players and coaches thought**\
 `How did Victor Wembanyama's first Olympic game go? We asked his teammates, coach and oponents.`\
 https://nytimes.com/athletic/5662943/2024/07/27/victor-wembanyama-olympics-debut-france/
