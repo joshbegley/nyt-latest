@@ -1,3 +1,11 @@
+**Embattled Democrats Express New Hope With Harris at Top of Ticket**\
+`Incumbents who had feared President Biden would drag them down to defeat say the electoral environment has improved rapidly since he left the race.`\
+https://nytimes.com/2024/07/27/us/democrats-congress-biden-harris.html
+
+**Your Guide to Olympic Gymnastics: Vault**\
+`Want to follow the women’s gymnastics competition in Paris, but don’t understand the skills or how they’re scored? Here’s a guide.`\
+https://nytimes.com/2024/07/27/world/olympics/gymnastics-vault.html
+
 **Your Guide to Olympic Gymnastics: Floor Exercise**\
 `Want to follow the women’s gymnastics competition in Paris, but don’t understand the skills or how they’re scored? Here’s a guide.`\
 https://nytimes.com/2024/07/27/world/olympics/gymnastics-floor-exercise.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5661952/2024/07/27/angels-ryan-prager-mlb-draft-uns
 **Why Is It So Hard for Olympic Host Cities to Control Costs?**\
 `An Oxford study estimates that despite cost-cutting efforts, Paris is spending more than $1 billion above the Games’ historical median cost.`\
 https://nytimes.com/2024/07/27/business/dealbook/olympic-host-city-costs.html
-
-**The Briefing: Vissel Kobe 2 Spurs 3 - Is Bergvall ready? Where should Gray play?**\
-`The major talking points from Tokyo as Spurs made it three wins out of three in pre-season`\
-https://nytimes.com/athletic/5659063/2024/07/27/tottenham-vissel-kobe-result-analysis/
-
-**Chinese Swimmer Denies Cheating in First Public Comments on Doping Case**\
-`Zhang Yufei, one of 23 athletes who tested positive for a banned substance before the last Olympics, said China did not allow doping, and offered a window into the stress the accusations have caused.`\
-https://nytimes.com/2024/07/27/world/asia/china-doping-zhang-yufei.html
 
