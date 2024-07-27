@@ -1,3 +1,15 @@
+**Team USA scouting report: Serbia's Bogdan Bogdanović discusses looming showdown**\
+`As Team USA shows cracks, Serbia gets the first crack at them in Olympic play. Here's what one player thinks of the matchup.`\
+https://nytimes.com/athletic/5660830/2024/07/27/usa-serbia-olympic-basketball-bogdan-bogdanovic/
+
+**Atletico reach agreement to sign Le Normand from Real Sociedad**\
+`Atletico Madrid have reached an agreement to sign Spain international defender Robin Le Normand from Real Sociedad.`\
+https://nytimes.com/athletic/5661067/2024/07/27/atletico-madrid-transfer-le-normand/
+
+**Kamala Harris Is Known Abroad for a Personal Touch, and Tough Talk**\
+`Heads of state and diplomats who have interacted with the presumptive Democratic presidential nominee say she uses humor, and talk of food, to help leaven hard discussions.`\
+https://nytimes.com/2024/07/27/world/europe/kamala-harris-foreign-policy.html
+
 **Pete Buttigieg Thinks the Trump Fever Could Break**\
 `The Democrat talks about the election vibe shift and what a Kamala Harris win would mean for both parties.`\
 https://nytimes.com/2024/07/27/magazine/pete-buttigieg-interview-election-democrats.html
