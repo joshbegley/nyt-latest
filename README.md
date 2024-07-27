@@ -1,3 +1,7 @@
+**24 Hours at the Golden Apple**\
+`We document one day in a Chicago diner called the Golden Apple, starting at 5 a.m. and going until 5 a.m. the next morning.`\
+https://nytimes.com/2024/07/27/podcasts/24-hours-at-the-golden-apple.html
+
 **Durant set to play in Team USA's Paris Olympics opener**\
 `PARIS – Barring any last minute setbacks, Kevin Durant will make his 2024 debut with Team USA Sunday in game 1 of the Paris Olympics vs.`\
 https://nytimes.com/athletic/5662289/2024/07/27/kevin-durant-injury-team-usa-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5661067/2024/07/27/atletico-madrid-transfer-le-norm
 **Kamala Harris Is Known Abroad for a Personal Touch, and Tough Talk**\
 `Heads of state and diplomats who have interacted with the presumptive Democratic presidential nominee say she uses humor, and talk of food, to help leaven hard discussions.`\
 https://nytimes.com/2024/07/27/world/europe/kamala-harris-foreign-policy.html
-
-**Pete Buttigieg Thinks the Trump Fever Could Break**\
-`The Democrat talks about the election vibe shift and what a Kamala Harris win would mean for both parties.`\
-https://nytimes.com/2024/07/27/magazine/pete-buttigieg-interview-election-democrats.html
 
