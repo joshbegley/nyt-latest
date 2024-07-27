@@ -1,7 +1,3 @@
-**Harris Holds First Fund-Raiser as Democrats Rally: ‘We Are the Underdogs’**\
-`At the event, which her campaign said raised more than $1.4 million, Vice President Kamala Harris deployed a sharpened message against Donald J. Trump and his running mate, JD Vance.`\
-https://nytimes.com/2024/07/27/us/politics/harris-fundraiser-berkshires.html
-
 **Despite Park Fire’s Rapid Spread, Some Residents Are Determined to Stay Put**\
 `In Butte County, Calif., some defied evacuation orders so they could protect their property from the fire that has quickly become the state’s largest this year.`\
 https://nytimes.com/2024/07/27/us/park-fires-california-evacuation-order.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5662750/2024/07/27/usa-swimming-caeleb-dressel-free
 **Yankees acquire Jazz Chisholm Jr. from Marlins**\
 `The 26-year-old can play second base and multiple outfield positions. `\
 https://nytimes.com/athletic/5662905/2024/07/27/yankees-marlins-jazz-chisholm-trade/
+
+**Cardinals' decisions loom ahead of trade deadline: 3 players to watch**\
+`Dylan Carlson, once considered part of the Cardinals' future, may be better off with a change of scenery.`\
+https://nytimes.com/athletic/5662543/2024/07/27/cardninals-mlb-trade-deadline-dylan-carlson/
 
