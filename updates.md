@@ -1,3 +1,11 @@
+**Bullet or Fragment of One Struck Trump’s Ear, F.B.I. Says**\
+`The explanation was the most definitive to date after the bureau’s director had earlier suggested the former president might have been hit by shrapnel, igniting a political storm.`\
+https://nytimes.com/2024/07/26/us/politics/fbi-trump-bullet-ear.html
+
+**Zach Eflin gives Orioles a much-needed rotation boost at a minimal cost**\
+`The Orioles needed rotation stability and that's what they get in Eflin, and they didn't have to give up too much to get him.`\
+https://nytimes.com/athletic/5661791/2024/07/26/orioles-rays-zach-eflin-trade-analysis/
+
 **Mets add to bullpen with trade for Ryne Stanek**\
 `Stanek’s role is likely to come in the sixth and seventh innings. That’s still important for a bullpen that needs to get healthy.`\
 https://nytimes.com/athletic/5661783/2024/07/26/mets-trade-ryne-stanek/
