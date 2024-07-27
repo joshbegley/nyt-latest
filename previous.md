@@ -1,3 +1,7 @@
+**‘All We Think of Is Him’: Putting Names and Faces to Bangladesh Carnage**\
+`The partial lifting of a communications blackout is providing a picture of the young victims of a brutal crackdown on protesters. Thousands of others have been swept into jails.`\
+https://nytimes.com/2024/07/27/world/asia/bangladesh-protest-victims.html
+
 **Howe holds 'positive talks' with Newcastle, no England approach**\
 `Eddie Howe has held &#8220;positive talks&#8221; with Newcastle United&#8217;s hierarchy and has reiterated that he wants &#8220;collaboration&#8221; on transfers, rather than the &#8220;final say&#8221;.`\
 https://nytimes.com/athletic/5662527/2024/07/27/eddie-howe-newcastle-england/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/27/dining/miso-butter-salmon.html
 **The Briefing: Hull City 0 Newcastle United 2 - Isak and Murphy shine, but Eddie Howe's options look thin**\
 `Chris Waugh breaks down the main talking points from Newcastle's 2-0 win over Hull City`\
 https://nytimes.com/athletic/5659064/2024/07/27/hull-0-newcastle-2-howe-isak-murphy-transfers/
-
-**Trump Tells Christians ‘You Won’t Have to Vote Anymore’ If He’s Elected**\
-`Donald Trump, after lamenting that conservative Christians are not “big voters,” urged the religious right to turn out for him “just this time.”`\
-https://nytimes.com/2024/07/27/us/politics/trump-votes-christians.html
 
