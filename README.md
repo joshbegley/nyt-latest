@@ -1,3 +1,7 @@
+**Red Sox acquire Danny Jansen from Blue Jays**\
+`Jansen, 29, was the longest-tenured Blue Jay. He'll share time behind the plate in Boston with Connor Wong. `\
+https://nytimes.com/athletic/5663139/2024/07/27/danny-jansen-trade-red-sox-blue-jays/
+
 **The great America-Australia relay rivalry gets another worthy chapter in Paris**\
 `On Saturday night, Australia and the U.S. each won one of the two 4x100-meter freestyle relays. And that feels right.`\
 https://nytimes.com/athletic/5663050/2024/07/27/2024-paris-olympics-swimming-relay-america-australia/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5662923/2024/07/27/mlb-trade-grades-yankees-marlins
 **Victor Wembanyama's Olympic debut for France: What players and coaches thought**\
 `How did Wembanyama's first Olympic game go? We asked his teammates, coach and opponents.`\
 https://nytimes.com/athletic/5662943/2024/07/27/victor-wembanyama-olympics-debut-france/
-
-**California School Official Who Embezzled $16.7 Million Gets Nearly 6 Years in Prison**\
-`Jorge Armando Contreras used his position at a school district in Orange County to fund a luxurious lifestyle, prosecutors said.`\
-https://nytimes.com/2024/07/27/us/california-school-embezzlement.html
 
