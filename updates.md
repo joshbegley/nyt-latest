@@ -1,3 +1,12 @@
+**Why Padres' Leodalis De Vries, who played with Xander Bogaerts, may be off-limits at the trade deadline**\
+`Xander Bogaerts got to play with the 17-year-old De Vries and thinks his future is bright. The Padres think so, too.`\
+https://nytimes.com/athletic/5660935/2024/07/26/padres-trade-deadline-leodalis-de-vries/
+
+**Payroll-shedding trades of Randy Arozarena and Zach Eflin in line with Rays’ philosophy**\
+`“We are a worse team today than we were 24 hours ago," Erik Neander said. "That’s not something we can shy away from.”
+`\
+https://nytimes.com/athletic/5661917/2024/07/26/rays-trades-randy-arozarena-zach-eflin/
+
 **Payroll-shedding trades of Randy Arozarena and Zach Eflin in line with Rays’ philosophy**\
 `“We are a worse team today than we were 24 hours ago," Erik Neander said. "That’s not something we can shy away from.”
 `\

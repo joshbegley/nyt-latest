@@ -1,3 +1,7 @@
+**Why Padres' Leodalis De Vries, who played with Xander Bogaerts, may be off-limits at the trade deadline**\
+`Xander Bogaerts got to play with the 17-year-old De Vries and thinks his future is bright. The Padres think so, too.`\
+https://nytimes.com/athletic/5660935/2024/07/26/padres-trade-deadline-leodalis-de-vries/
+
 **Trump, Honing Attacks on Harris, Casts Her as a Far-Left Threat**\
 `Speaking to religious conservatives in Florida, former President Donald J. Trump accused Vice President Kamala Harris of wanting to use left-wing values to transform the United States.`\
 https://nytimes.com/2024/07/26/us/politics/trump-harris-turning-point-action.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5658972/2024/07/26/olympics-opening-ceremony-nbc-br
 **Mets ace Kodai Senga returns, then leaves with left calf strain**\
 `The strain will send Senga to the injured list. How long he’ll be out depends on the results of an MRI.`\
 https://nytimes.com/athletic/5661888/2024/07/26/mets-kodai-senga-calf-injury/
-
-**Packers, Jordan Love agree to 4-year, $220 million extension**\
-`Love threw for 4,159 yards, 32 touchdowns and 11 interceptions in 17 regular-season games.`\
-https://nytimes.com/athletic/5654084/2024/07/26/jordan-love-deal-contract-green-bay-packers/
 
