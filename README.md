@@ -1,3 +1,15 @@
+**Team USA scouting report: Serbia's Bogdan Bogdanović discusses looming showdown**\
+`As Team USA shows cracks, Serbia gets the first crack at them in Olympic play. Here's what one player thinks of the matchup.`\
+https://nytimes.com/athletic/5660830/2024/07/27/usa-serbia-olympic-basketball-bogdan-bogdanovic/
+
+**Atletico reach agreement to sign Le Normand from Real Sociedad**\
+`Atletico Madrid have reached an agreement to sign Spain international defender Robin Le Normand from Real Sociedad.`\
+https://nytimes.com/athletic/5661067/2024/07/27/atletico-madrid-transfer-le-normand/
+
+**Kamala Harris Is Known Abroad for a Personal Touch, and Tough Talk**\
+`Heads of state and diplomats who have interacted with the presumptive Democratic presidential nominee say she uses humor, and talk of food, to help leaven hard discussions.`\
+https://nytimes.com/2024/07/27/world/europe/kamala-harris-foreign-policy.html
+
 **Pete Buttigieg Thinks the Trump Fever Could Break**\
 `The Democrat talks about the election vibe shift and what a Kamala Harris win would mean for both parties.`\
 https://nytimes.com/2024/07/27/magazine/pete-buttigieg-interview-election-democrats.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/27/us/politics/andy-beshear-kamala-harris-vp.html
 **What to Know About Kamala Harris’s Foreign Policy Positions**\
 `Here is what we know about the presumptive Democratic presidential nominee’s views on issues like migration and the wars in Ukraine and Gaza.`\
 https://nytimes.com/2024/07/27/world/kamala-harris-foreign-policy-positions.html
-
-**Sophia Roe’s Charm Earring**\
-`The James Beard Award-winning chef is at her best when her bangs and eyeliner are right and her earrings are asymmetrical.`\
-https://nytimes.com/2024/07/27/style/sophia-roes-charm-earring.html
-
-**Cowboys training camp: Micah Parsons adjusting to changes, says, 'I'm going to be all over'**\
-`Parsons is enjoying getting reps at off-ball linebacker, but rushing the passer will still a big part of what he does.`\
-https://nytimes.com/athletic/5661876/2024/07/27/dallas-cowboys-micah-parsons-training-camp-position/
-
-**The 3 Biggest Mistakes You Can Make With Your 401(k)**\
-`Here is what experts say are the costliest stumbles people make with their retirement savings accounts — and how to get back on course.`\
-https://nytimes.com/2024/07/27/business/401k-mistakes-retirement-savings.html
 
