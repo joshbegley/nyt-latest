@@ -1,3 +1,11 @@
+**Paying Jordan Love this much is a big risk, which Packers are no strangers to with QBs**\
+`Green Bay made their quarterback the highest-paid in the league with a four-year, $220 million extension on Friday.`\
+https://nytimes.com/athletic/5639391/2024/07/26/jordan-love-packers-contract-extension/
+
+**It rained on NBC's opening ceremony parade. Will the viewers still come?**\
+`Paris Olympic organizers had grand plans for a sunset opening ceremony. It didn't quite go that way, but it was still a big spectacle.`\
+https://nytimes.com/athletic/5658972/2024/07/26/olympics-opening-ceremony-nbc-broadcast-review/
+
 **Mets ace Kodai Senga returns, then leaves with left calf strain**\
 `Any additional time Senga misses would be critical to the Mets, who have been counting on the return of their ace.`\
 https://nytimes.com/athletic/5661888/2024/07/26/mets-kodai-senga-calf-injury/
