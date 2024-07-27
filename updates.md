@@ -1,3 +1,7 @@
+**Chelsea set to sign goalkeeper Jorgensen from Villarreal**\
+`Chelsea are set to sign Villarreal goalkeeper Filip Jorgensen.`\
+https://nytimes.com/athletic/5662484/2024/07/27/chelsea-filip-jorgensen-transfer-medical/
+
 **Latino Leaders Set Aside Their Rocky Past With Kamala Harris on Immigration**\
 `Hispanic leaders and civil-rights groups are backing the vice president, despite their clashes with the Biden administration on border policy.`\
 https://nytimes.com/2024/07/27/us/politics/latino-kamala-harris-immigration.html
