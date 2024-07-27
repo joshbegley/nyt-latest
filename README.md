@@ -1,3 +1,7 @@
+**Team USA dominates 4x100 freestyle relay for first gold medal of Paris Games**\
+`Italy took home silver and Australia bronze.`\
+https://nytimes.com/athletic/5662750/2024/07/27/usa-swimming-caeleb-dressel-freestyle-relay-paris-olympics/
+
 **Yankees acquire Jazz Chisholm Jr. from Marlins**\
 `The 26-year-old can play second base and multiple outfield positions. `\
 https://nytimes.com/athletic/5662905/2024/07/27/yankees-marlins-jazz-chisholm-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/27/arts/music/nelons-plane-crash-wyoming.html
 **MLB Trade Grades: Cubs land Nate Pearson and are betting on his potential**\
 `Can Pearson, a former first-rounder, rediscover his spark in Chicago? The Cubs are hoping so, and parted with two minor-leagers to find out.`\
 https://nytimes.com/athletic/5662635/2024/07/27/mlb-trade-grades-blue-jays-cubs/
-
-**Blue Jays top prospect Ricky Tiedemann to have Tommy John surgery**\
-`Tiedemann has been limited to just 61 1/3 innings over the last two seasons and is likely to miss most — if not all — of next season.`\
-https://nytimes.com/athletic/5662716/2024/07/27/ricky-tiedemann-blue-jays-tommy-john-surgery/
 
