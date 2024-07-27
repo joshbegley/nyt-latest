@@ -1,3 +1,7 @@
+**Broncos QB race: Bo Nix rebounds from early mistake as derby ends first week**\
+`The rookie threw his first interception of training camp Saturday but followed it with some quality touchdown passes.`\
+https://nytimes.com/athletic/5662812/2024/07/27/broncos-bo-nix-qb-competition/
+
 **Bears camp: False starts hinder offense, Matt Eberflus looking for 'focus and finish'**\
 `The offense struggled to get in a rhythm Saturday after a slew of false starts, limiting Caleb Williams at padded practice No. 2.`\
 https://nytimes.com/athletic/5662871/2024/07/27/bears-training-camp-matt-eberflus/

@@ -1,3 +1,7 @@
+**Broncos QB race: Bo Nix rebounds from early mistake as derby ends first week**\
+`The rookie threw his first interception of training camp Saturday but followed it with some quality touchdown passes.`\
+https://nytimes.com/athletic/5662812/2024/07/27/broncos-bo-nix-qb-competition/
+
 **Bears camp: False starts hinder offense, Matt Eberflus looking for 'focus and finish'**\
 `The offense struggled to get in a rhythm Saturday after a slew of false starts, limiting Caleb Williams at padded practice No. 2.`\
 https://nytimes.com/athletic/5662871/2024/07/27/bears-training-camp-matt-eberflus/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/27/us/politics/las-vegas-man-charged-threats-federal
 **Sophia Smith fit for Germany, while the USWNT holds its own opening ceremony in Marseille**\
 `“We got in our uniforms, in our Ralph Lauren get-up, and we took pictures,” forward Lynn Williams said.`\
 https://nytimes.com/athletic/5662856/2024/07/27/uswnt-olympic-schedule-2024-paris/
-
-**Team USA dominates 4x100 freestyle relay for first gold medal of Paris Games**\
-`Australia took home silver and Italy won bronze.`\
-https://nytimes.com/athletic/5662750/2024/07/27/usa-swimming-caeleb-dressel-freestyle-relay-paris-olympics/
 
