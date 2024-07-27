@@ -1,3 +1,11 @@
+**MLB Trade Grades: Can Mets' move for Ryne Stanek give them the bullpen boost they need?**\
+`The Mets are looking to provide stability in their bullpen and the acquisition of Ryne Stanek appears to be one way to address that. `\
+https://nytimes.com/athletic/5661793/2024/07/26/mlb-trade-grades-mets-mariners-stanek/
+
+**Blake Snell trade scenarios: Ranking the teams who might have the most interest in him**\
+`From the Dodgers to the Royals, a look at the teams that would match-up best for the Giants in a potential Snell deal.`\
+https://nytimes.com/athletic/5661210/2024/07/26/blake-snell-trade-scenarios-sf-giants/
+
 **Bullet or Fragment of One Struck Trump’s Ear, F.B.I. Says**\
 `The explanation was the most definitive to date after the bureau’s director had earlier suggested the former president might have been hit by shrapnel, igniting a political storm.`\
 https://nytimes.com/2024/07/26/us/politics/fbi-trump-bullet-ear.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5661735/2024/07/26/red-sox-craig-breslow-trade-dead
 **Doused by Rain, Paris Opens Its Games With a Boat Party on the Seine**\
 `Undeterred by arson attacks on rail lines earlier in the day, the Parade of Nations continued beneath a glittering Eiffel Tower, where Celine Dion belted out a love anthem.`\
 https://nytimes.com/2024/07/26/world/olympics/paris-olympics-opening-ceremony.html
-
-**Yankees' Gleyber Torres on trade deadline rumors, rebound after benching**\
-`Torres worked on his swing during the All-Star break with Gio Urshela, his friend and former teammate. `\
-https://nytimes.com/athletic/5661743/2024/07/26/yankees-gleyber-torres-trade-deadline-rumors/
-
-**Opening Ceremony Misses the Boat**\
-`The Paris Games began with a new look and sparkled with Celine Dion. But the show suffered from bloat similar to TV’s other spectacles.`\
-https://nytimes.com/2024/07/26/arts/television/olympics-opening-ceremony-tv.html
 
