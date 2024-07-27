@@ -1,3 +1,7 @@
+**Elon Musk Shares Manipulated Harris Video, in Seeming Violation of X’s Policies**\
+`The billionaire owner of the social media platform X reposted a video that mimics Vice President Kamala Harris’s voice, without disclosing that it had been altered.`\
+https://nytimes.com/2024/07/27/us/politics/elon-musk-kamala-harris-deepfake.html
+
 **With precise passes and flying chest bumps, Lamar Jackson proves he's feeling better**\
 `The two-time MVP returned and showed no obvious effects from the illness that forced him to miss four of Baltimore's practices this week. `\
 https://nytimes.com/athletic/5663171/2024/07/27/lamar-jackson-ravens-training-camp-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5663150/2024/07/27/olympic-opening-ceremony-viewers
 **The Briefing: Chelsea 1 Celtic 4 - Defensive issues, goalkeeper dilemma and Mudryk vs Sterling**\
 `Simon Johnson addresses the key talking points from Chelsea's heavy pre-season friendly defeat by Celtic`\
 https://nytimes.com/athletic/5659065/2024/07/27/chelsea-celtic-friendly-anaysis/
-
-**The Big 5-0**\
-`Paolo Pasco puts solvers (us!) on the podium.`\
-https://nytimes.com/2024/07/27/crosswords/daily-puzzle-2024-07-28.html
 
