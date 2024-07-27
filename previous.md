@@ -11,7 +11,7 @@ https://nytimes.com/2024/07/27/crosswords/daily-puzzle-2024-07-28.html
 https://nytimes.com/athletic/5662923/2024/07/27/mlb-trade-grades-yankees-marlins-chisholm/
 
 **Victor Wembanyama's Olympic debut for France: What players and coaches thought**\
-`How did Victor Wembanyama's first Olympic game go? We asked his teammates, coach and oponents.`\
+`How did Wembanyama's first Olympic game go? We asked his teammates, coach and opponents.`\
 https://nytimes.com/athletic/5662943/2024/07/27/victor-wembanyama-olympics-debut-france/
 
 **California School Official Who Embezzled $16.7 Million Gets Nearly 6 Years in Prison**\
