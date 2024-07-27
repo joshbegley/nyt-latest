@@ -1,3 +1,11 @@
+**2 Dutch Novels Plumb the Gulf Between Order and Chaos**\
+`A late-life fantasia; a surviving twin’s breakthrough.`\
+https://nytimes.com/2024/07/27/books/read-like-wind-recommendations-dutch-novels.html
+
+**Samoa's Olympic boxing coach dies in athletes' village at Paris Games**\
+`Lionel Fatu Elika was the national boxing coach of Samoa. The country's lone boxer at the Games said Elika "was a kind and generous coach."`\
+https://nytimes.com/athletic/5662512/2024/07/27/samoa-boxing-coach-death-paris-olympics/
+
 **‘All We Think of Is Him’: Putting Names and Faces to Bangladesh Carnage**\
 `The partial lifting of a communications blackout is providing a picture of the young victims of a brutal crackdown on protesters. Thousands of others have been swept into jails.`\
 https://nytimes.com/2024/07/27/world/asia/bangladesh-protest-victims.html
