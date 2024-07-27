@@ -1,3 +1,7 @@
+**Your Guide to Olympic Gymnastics: Floor Exercise**\
+`Want to follow the women’s gymnastics competition in Paris, but don’t understand the skills or how they’re scored? Here’s a guide.`\
+https://nytimes.com/2024/07/27/world/olympics/gymnastics-floor-exercise.html
+
 **South Korea Reports Leak From Its Military Intelligence Command**\
 `It’s highly unusual for the nation’s authorities to publicly acknowledge a leak from the command​, which is one of South Korea’s top two spy agencies.`\
 https://nytimes.com/2024/07/27/world/asia/south-korea-intelligence-leaks-north-korea.html
@@ -15,7 +19,7 @@ https://nytimes.com/2024/07/27/world/olympics/balance-beam-gymnastics.html
 https://nytimes.com/2024/07/27/world/middleeast/israel-evacuation-order-gaza.html
 
 **South Korea stung by Paris Olympics opening ceremony introduction as North Korea**\
-`South Korea is seeking a meeting with International Olympic Committee (IOC) president Thomas Bach after its athletes were wrongly introduced as North Korean during the opening ceremony for the Paris Olympics.`\
+`South Korea is seeking a meeting with International Olympic Committee (IOC) president Thomas Bach after its 143 athletes were wrongly introduced as North Korean during the opening ceremony for the Paris Olympics.`\
 https://nytimes.com/athletic/5662302/2024/07/27/south-korea-stung-by-introduction-at-paris-olympics-opening-ceremony-as-north-korea/
 
 **Angels fail to sign third-round pick, raising questions about pre-draft due diligence**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5659063/2024/07/27/tottenham-vissel-kobe-result-ana
 **Chinese Swimmer Denies Cheating in First Public Comments on Doping Case**\
 `Zhang Yufei, one of 23 athletes who tested positive for a banned substance before the last Olympics, said China did not allow doping, and offered a window into the stress the accusations have caused.`\
 https://nytimes.com/2024/07/27/world/asia/china-doping-zhang-yufei.html
-
-**Broncos made concerted shift in the secondary — and early returns are promising**\
-`The Broncos have big plans for second-year cornerback Riley Moss.`\
-https://nytimes.com/athletic/5661144/2024/07/27/broncos-training-camp-secondary/
 

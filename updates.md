@@ -1,3 +1,11 @@
+**Your Guide to Olympic Gymnastics: Floor Exercise**\
+`Want to follow the women’s gymnastics competition in Paris, but don’t understand the skills or how they’re scored? Here’s a guide.`\
+https://nytimes.com/2024/07/27/world/olympics/gymnastics-floor-exercise.html
+
+**South Korea stung by Paris Olympics opening ceremony introduction as North Korea**\
+`South Korea is seeking a meeting with International Olympic Committee (IOC) president Thomas Bach after its 143 athletes were wrongly introduced as North Korean during the opening ceremony for the Paris Olympics.`\
+https://nytimes.com/athletic/5662302/2024/07/27/south-korea-stung-by-introduction-at-paris-olympics-opening-ceremony-as-north-korea/
+
 **South Korea Reports Leak From Its Military Intelligence Command**\
 `It’s highly unusual for the nation’s authorities to publicly acknowledge a leak from the command​, which is one of South Korea’s top two spy agencies.`\
 https://nytimes.com/2024/07/27/world/asia/south-korea-intelligence-leaks-north-korea.html
