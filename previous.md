@@ -1,3 +1,7 @@
+**Three Members of the Nelons Gospel Group Are Killed in a Plane Crash**\
+`The band members were traveling on Friday to a performance when their plane crashed in Wyoming. Four others on board were killed.`\
+https://nytimes.com/2024/07/27/arts/music/nelons-plane-crash-wyoming.html
+
 **Blue Jays top prospect Ricky Tiedemann to have Tommy John surgery**\
 `Tiedemann has been limited to just 61 1/3 innings over the last two seasons and is likely to miss most — if not all — of next season.`\
 https://nytimes.com/athletic/5662716/2024/07/27/ricky-tiedemann-blue-jays-tommy-john-surgery/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5662618/2024/07/27/nate-pearson-cubs-blue-jays-trad
 **Rosenthal: Garrett Crochet's reported stance on his playoff usage shouldn't deter teams from trading for him**\
 `Clubs continue to pursue the White Sox pitcher despite a reported refusal to pitch in the playoffs without a contract extension.`\
 https://nytimes.com/athletic/5662541/2024/07/27/garrett-crochet-white-sox-trade-playoffs/
-
-**Multiple medical stoppages for ill fans during Torquay vs Plymouth**\
-`A pre-season friendly match between Devon rivals Torquay United and Plymouth Argyle twice had to be stopped on Saturday following multiple medical emergencies in the crowd at Plainmoor Stadium.`\
-https://nytimes.com/athletic/5662639/2024/07/27/torquay-plymouth-medical-emergencies/
 
