@@ -1,3 +1,11 @@
+**Mets add to bullpen with trade for Ryne Stanek**\
+`Stanek’s role is likely to come in the sixth and seventh innings. That’s still important for a bullpen that needs to get healthy.`\
+https://nytimes.com/athletic/5661783/2024/07/26/mets-trade-ryne-stanek/
+
+**Raiders training camp: Confident secondary dominates as quarterback struggles continue**\
+`As the Raiders' passing game continued its slow start, the defensive secondary made lots of plays and looks to be gaining confidence.`\
+https://nytimes.com/athletic/5661544/2024/07/26/raiders-training-camp-secondary-qbs/
+
 **Why the Phillies traded for Austin Hays and how they view him, as focus shifts to bullpen**\
 `The Phillies think they can find a better use for Hays than the Orioles did. The focus now turns to the bullpen. They have scouted closers. `\
 https://nytimes.com/athletic/5661706/2024/07/26/phillies-austin-hays-trade-deadine-bullpen/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/26/business/media/elon-musk-daughter-interview-nbc.h
 **Dodgers' Freddie Freeman steps away for family reasons**\
 `Freeman's 3-year-old son was hospitalized this week and there is no timetable for the first baseman's return.`\
 https://nytimes.com/athletic/5661699/2024/07/26/dodgers-freddie-freeman-family/
-
-**The best boats of the 2024 Olympic opening ceremony**\
-`The Seine entertained 85 boats carrying 205 delegations.`\
-https://nytimes.com/athletic/5661317/2024/07/26/olympics-opening-ceremony-boat-rankings/
-
-**Gail Lumet Buckley, Chronicler of Black Family History, Dies at 86**\
-`She wrote two books about multiple generations of her forebears, including her mother, Lena Horne.`\
-https://nytimes.com/2024/07/26/books/gail-lumet-buckley-dead.html
 

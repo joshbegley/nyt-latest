@@ -1,3 +1,11 @@
+**Mets add to bullpen with trade for Ryne Stanek**\
+`Stanek’s role is likely to come in the sixth and seventh innings. That’s still important for a bullpen that needs to get healthy.`\
+https://nytimes.com/athletic/5661783/2024/07/26/mets-trade-ryne-stanek/
+
+**Raiders training camp: Confident secondary dominates as quarterback struggles continue**\
+`As the Raiders' passing game continued its slow start, the defensive secondary made lots of plays and looks to be gaining confidence.`\
+https://nytimes.com/athletic/5661544/2024/07/26/raiders-training-camp-secondary-qbs/
+
 **Why the Phillies traded for Austin Hays and how they view him, as focus shifts to bullpen**\
 `The Phillies think they can find a better use for Hays than the Orioles did. The focus now turns to the bullpen. They have scouted closers. `\
 https://nytimes.com/athletic/5661706/2024/07/26/phillies-austin-hays-trade-deadine-bullpen/
