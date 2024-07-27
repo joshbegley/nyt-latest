@@ -1,3 +1,11 @@
+**Why the Phillies traded for Austin Hays and how they view him, as focus shifts to bullpen**\
+`The Phillies think they can find a better use for Hays than the Orioles did. The focus now turns to the bullpen. They have scouted closers. `\
+https://nytimes.com/athletic/5661706/2024/07/26/phillies-austin-hays-trade-deadine-bullpen/
+
+**Snoop Dogg, NBC’s New Voice of the People**\
+`The network hired the rapper for an expanded role on its broadcasts of the Summer Games in Paris after posting record-low viewership of the Tokyo competition.`\
+https://nytimes.com/2024/07/26/world/olympics/snoop-dogg-nbc-olympics.html
+
 **Craig Breslow aggressive ahead of deadline, hoping to add more pitching**\
 `“I think our expectation is we can walk out of the deadline a better team than we were going into it,” Breslow said.`\
 https://nytimes.com/athletic/5661735/2024/07/26/red-sox-craig-breslow-trade-deadline-strategy/

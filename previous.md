@@ -1,3 +1,11 @@
+**Why the Phillies traded for Austin Hays and how they view him, as focus shifts to bullpen**\
+`The Phillies think they can find a better use for Hays than the Orioles did. The focus now turns to the bullpen. They have scouted closers. `\
+https://nytimes.com/athletic/5661706/2024/07/26/phillies-austin-hays-trade-deadine-bullpen/
+
+**Snoop Dogg, NBC’s New Voice of the People**\
+`The network hired the rapper for an expanded role on its broadcasts of the Summer Games in Paris after posting record-low viewership of the Tokyo competition.`\
+https://nytimes.com/2024/07/26/world/olympics/snoop-dogg-nbc-olympics.html
+
 **Craig Breslow aggressive ahead of deadline, hoping to add more pitching**\
 `“I think our expectation is we can walk out of the deadline a better team than we were going into it,” Breslow said.`\
 https://nytimes.com/athletic/5661735/2024/07/26/red-sox-craig-breslow-trade-deadline-strategy/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5661317/2024/07/26/olympics-opening-ceremony-boat-r
 **Gail Lumet Buckley, Chronicler of Black Family History, Dies at 86**\
 `She wrote two books about multiple generations of her forebears, including her mother, Lena Horne.`\
 https://nytimes.com/2024/07/26/books/gail-lumet-buckley-dead.html
-
-**Silent No More, Harris Seeks Her Own Voice Without Breaking With Biden**\
-`The vice president’s expressions of concern for Palestinian suffering marked a shift in emphasis from the president’s statements as she moved to establish herself as the leader of her party.`\
-https://nytimes.com/2024/07/26/us/politics/kamala-harris-gaza-biden.html
-
-**Mike Trout gets good news following knee MRI**\
-`Trout, who is recovering from knee surgery, plans to resume a running program soon.`\
-https://nytimes.com/athletic/5661692/2024/07/26/mike-trout-knee-mri-angels/
 
