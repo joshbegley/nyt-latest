@@ -1,3 +1,7 @@
+**The Briefing: Vissel Kobe 2 Spurs 3 - Is Bergvall ready and where should Gray play?**\
+`The major talking points from Tokyo as Spurs made it three wins out of three in pre-season`\
+https://nytimes.com/athletic/5659063/2024/07/27/tottenham-vissel-kobe-result-analysis/
+
 **Chinese Swimmer Denies Cheating in First Public Comments on Doping Case**\
 `Zhang Yufei, one of 23 athletes who tested positive for a banned substance before the last Olympics, said China did not allow doping, and offered a window into the stress the accusations have caused.`\
 https://nytimes.com/2024/07/27/world/asia/china-doping-zhang-yufei.html
