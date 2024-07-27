@@ -1,3 +1,15 @@
+**Sophia Smith fit for Germany, while the USWNT holds its own opening ceremony in Marseille**\
+`“We got in our uniforms, in our Ralph Lauren get-up, and we took pictures,” forward Lynn Williams said.`\
+https://nytimes.com/athletic/5662856/2024/07/27/uswnt-olympic-schedule-2024-paris/
+
+**Team USA dominates 4x100 freestyle relay for first gold medal of Paris Games**\
+`Italy took home silver and Australia bronze.`\
+https://nytimes.com/athletic/5662750/2024/07/27/usa-swimming-caeleb-dressel-freestyle-relay-paris-olympics/
+
+**Yankees acquire Jazz Chisholm Jr. from Marlins**\
+`The 26-year-old can play second base and multiple outfield positions. `\
+https://nytimes.com/athletic/5662905/2024/07/27/yankees-marlins-jazz-chisholm-trade/
+
 **Cardinals' decisions loom ahead of trade deadline: 3 players to watch**\
 `Dylan Carlson, once considered part of the Cardinals' future, may be better off with a change of scenery.`\
 https://nytimes.com/athletic/5662543/2024/07/27/cardninals-mlb-trade-deadline-dylan-carlson/

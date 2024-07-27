@@ -1,3 +1,15 @@
+**Sophia Smith fit for Germany, while the USWNT holds its own opening ceremony in Marseille**\
+`“We got in our uniforms, in our Ralph Lauren get-up, and we took pictures,” forward Lynn Williams said.`\
+https://nytimes.com/athletic/5662856/2024/07/27/uswnt-olympic-schedule-2024-paris/
+
+**Team USA dominates 4x100 freestyle relay for first gold medal of Paris Games**\
+`Italy took home silver and Australia bronze.`\
+https://nytimes.com/athletic/5662750/2024/07/27/usa-swimming-caeleb-dressel-freestyle-relay-paris-olympics/
+
+**Yankees acquire Jazz Chisholm Jr. from Marlins**\
+`The 26-year-old can play second base and multiple outfield positions. `\
+https://nytimes.com/athletic/5662905/2024/07/27/yankees-marlins-jazz-chisholm-trade/
+
 **Cardinals' decisions loom ahead of trade deadline: 3 players to watch**\
 `Dylan Carlson, once considered part of the Cardinals' future, may be better off with a change of scenery.`\
 https://nytimes.com/athletic/5662543/2024/07/27/cardninals-mlb-trade-deadline-dylan-carlson/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5662738/2024/07/27/france-first-gold-medal-rugby-se
 **Three Members of the Nelons Gospel Group Are Killed in a Plane Crash**\
 `The band members were traveling on Friday to a performance when their plane crashed in Wyoming. Four others on board were killed.`\
 https://nytimes.com/2024/07/27/arts/music/nelons-plane-crash-wyoming.html
-
-**MLB Trade Grades: Cubs land Nate Pearson and are betting on his potential**\
-`Can Pearson, a former first-rounder, rediscover his spark in Chicago? The Cubs are hoping so, and parted with two minor-leagers to find out.`\
-https://nytimes.com/athletic/5662635/2024/07/27/mlb-trade-grades-blue-jays-cubs/
-
-**Blue Jays top prospect Ricky Tiedemann to have Tommy John surgery**\
-`Tiedemann has been limited to just 61 1/3 innings over the last two seasons and is likely to miss most — if not all — of next season.`\
-https://nytimes.com/athletic/5662716/2024/07/27/ricky-tiedemann-blue-jays-tommy-john-surgery/
-
-**15-Year-Old Dies in Queens, Likely From ‘Subway Surfing,’ Police Say**\
-`The teenage boy was found unconscious at a subway station in the Rockaways early Friday evening.`\
-https://nytimes.com/2024/07/27/nyregion/teen-boy-killed-subway-queens.html
 
