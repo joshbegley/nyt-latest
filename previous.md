@@ -1,3 +1,7 @@
+**The Briefing: Chelsea 1 Celtic 4 - Defensive issues, keeper dilemma and Mudryk vs Sterling**\
+`Simon Johnson addresses the key talking points from Chelsea's heavy pre-season friendly defeat by Celtic`\
+https://nytimes.com/athletic/5659065/2024/07/27/chelsea-celtic-friendly-anaysis/
+
 **The Big 5-0**\
 `Paolo Pasco puts solvers (us!) on the podium.`\
 https://nytimes.com/2024/07/27/crosswords/daily-puzzle-2024-07-28.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5657110/2024/07/27/canada-soccer-olympic-spying-sca
 **Harris Holds First Fund-Raiser as Democrats Rally: ‘We Are the Underdogs’**\
 `At the event, which her campaign said raised more than $1.4 million, Vice President Kamala Harris deployed a sharpened message against Donald J. Trump and his running mate, JD Vance.`\
 https://nytimes.com/2024/07/27/us/politics/harris-fundraiser-berkshires.html
-
-**Despite Park Fire’s Rapid Spread, Some Residents Are Determined to Stay Put**\
-`In Butte County, Calif., some defied evacuation orders so they could protect their property from the fire that has quickly become the state’s largest this year.`\
-https://nytimes.com/2024/07/27/us/park-fires-california-evacuation-order.html
 
