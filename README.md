@@ -1,3 +1,11 @@
+**Rocket From Lebanon Kills at Least 10 in Israeli-Controlled Golan Heights**\
+`Israel blamed Iran-backed Hezbollah for the attack, but the Lebanese militant group denied responsibility.`\
+https://nytimes.com/2024/07/27/world/middleeast/israel-golan-heights-lebanon-rocket.html
+
+**Belgian GP preview: Ferrari looks to capitalize at Spa, Checo's big chance**\
+`Plus: Can Max Verstappen win from the back half of the grid? `\
+https://nytimes.com/athletic/5662578/2024/07/27/f1-belgian-gp-preview-ferrari-verstpapen-perez/
+
 **Palmer, Cucurella and Gallagher given extended summer breaks**\
 `Chelsea have told Cole Palmer, Marc Cucurella and Conor Gallagher they do not have to join their pre-season tour of the United States and can begin training at Cobham in early August instead.`\
 https://nytimes.com/athletic/5662680/2024/07/27/chelsea-cole-palmer-break/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/27/us/politics/peter-thiel-trump-jd-vance.html
 **2 Dutch Novels Plumb the Gulf Between Order and Chaos**\
 `A late-life fantasia; a surviving twin’s breakthrough.`\
 https://nytimes.com/2024/07/27/books/read-like-wind-recommendations-dutch-novels.html
-
-**Samoa's Olympic boxing coach dies in athletes' village at Paris Games**\
-`Lionel Fatu Elika was the national boxing coach of Samoa. The country's lone boxer at the Games said Elika "was a kind and generous coach."`\
-https://nytimes.com/athletic/5662512/2024/07/27/samoa-boxing-coach-death-paris-olympics/
-
-**‘All We Think of Is Him’: Putting Names and Faces to Bangladesh Carnage**\
-`The partial lifting of a communications blackout is providing a picture of the young victims of a brutal crackdown on protesters. Thousands of others have been swept into jails.`\
-https://nytimes.com/2024/07/27/world/asia/bangladesh-protest-victims.html
 
