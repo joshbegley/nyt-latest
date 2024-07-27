@@ -1,3 +1,7 @@
+**Justice Dept. Defends TikTok Law That Forces App’s Sale or Ban**\
+`In its first detailed response to a legal challenge, the agency said TikTok’s proposed changes wouldn’t prevent China from using it to collect U.S. users’ data or spread propaganda.`\
+https://nytimes.com/2024/07/27/technology/tiktok-ban-appeal-doj.html
+
 **'Elite' potential, confident and focused on football: This is Chelsea new boy Renato Veiga**\
 `Portuguese youngster Veiga is one of Chelsea's new signings this summer - this is the 20-year-old's story so far`\
 https://nytimes.com/athletic/5658013/2024/07/27/renato-veiga-chelsea-profile/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5661675/2024/07/27/pep-guardiola-contract-mancheste
 **As hot stove heats up, Blue Jays' Yusei Kikuchi expects to be moved by deadline**\
 `Kikuchi made what could be his last start with the Blue Jays on Friday, as the left-hander is expected to be traded by the deadline.`\
 https://nytimes.com/athletic/5662108/2024/07/27/yusei-kikuchi-blue-jays-trade-scenarios/
-
-**The French Swimmer Who Is Carrying His Country on His Back**\
-`Léon Marchand, who has the potential to win medals in four individual events, bears much of the weight of France’s expectations. He is ready, he says, but adds, “it does feel weird.”`\
-https://nytimes.com/2024/07/27/world/olympics/leon-marchand-france-swimming-olympics.html
 
