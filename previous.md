@@ -1,3 +1,7 @@
+**Gretchen Walsh, 'bathtub swimmer' no more, arrives at her big Olympic moment**\
+`Gretchen Walsh spent years hearing that she could only excel in short-course pools. Now she is competing in Paris as a medal favorite.`\
+https://nytimes.com/athletic/5662314/2024/07/27/gretchen-walsh-2024-paris-olympics-swimming/
+
 **Tearful Endrick can't hide emotion at Real Madrid unveiling**\
 `A tearful Endrick couldn&#8217;t hide his emotions as he was introduced to the Real Madrid crowd for the first time.`\
 https://nytimes.com/athletic/5662328/2024/07/27/endrick-real-madrid-bernabeu/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/27/world/middleeast/israel-evacuation-order-gaza.htm
 **South Korea stung by Paris Olympics opening ceremony introduction as North Korea**\
 `South Korea is seeking a meeting with International Olympic Committee (IOC) president Thomas Bach after its 143 athletes were wrongly introduced as North Korean during the opening ceremony for the Paris Olympics.`\
 https://nytimes.com/athletic/5662302/2024/07/27/south-korea-stung-by-introduction-at-paris-olympics-opening-ceremony-as-north-korea/
-
-**Angels fail to sign third-round pick, raising questions about pre-draft due diligence**\
-`Ryan Prager spurned the Angels, electing to return to Texas A&M. “We weren’t going to settle or take a situation that wasn’t the very best.”`\
-https://nytimes.com/athletic/5661952/2024/07/27/angels-ryan-prager-mlb-draft-unsigned/
 

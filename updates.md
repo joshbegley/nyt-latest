@@ -1,3 +1,7 @@
+**Gretchen Walsh, 'bathtub swimmer' no more, arrives at her big Olympic moment**\
+`Gretchen Walsh spent years hearing that she could only excel in short-course pools. Now she is competing in Paris as a medal favorite.`\
+https://nytimes.com/athletic/5662314/2024/07/27/gretchen-walsh-2024-paris-olympics-swimming/
+
 **Tearful Endrick can't hide emotion at Real Madrid unveiling**\
 `A tearful Endrick couldn&#8217;t hide his emotions as he was introduced to the Real Madrid crowd for the first time.`\
 https://nytimes.com/athletic/5662328/2024/07/27/endrick-real-madrid-bernabeu/
