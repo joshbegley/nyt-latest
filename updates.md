@@ -1,3 +1,7 @@
+**Rocket From Lebanon Kills at Least 10 in Israeli-Controlled Golan Heights**\
+`It was the deadliest single attack from across Israel’s northern border in months of hostilities, according to the military. Israel blamed Iran-backed Hezbollah, which denied responsibility.`\
+https://nytimes.com/2024/07/27/world/middleeast/israel-golan-heights-lebanon-rocket.html
+
 **Blue Jays top prospect Ricky Tiedemann to have Tommy John surgery**\
 `Tiedemann has been limited to just 61 1/3 innings over the last two seasons and is likely to miss most — if not all — of next season.`\
 https://nytimes.com/athletic/5662716/2024/07/27/ricky-tiedemann-blue-jays-tommy-john-surgery/
