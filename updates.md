@@ -1,3 +1,7 @@
+**Howe holds 'positive talks' with Newcastle, no England approach**\
+`Eddie Howe has held &#8220;positive talks&#8221; with Newcastle United&#8217;s hierarchy and has reiterated that he wants &#8220;collaboration&#8221; on transfers, rather than the &#8220;final say&#8221;.`\
+https://nytimes.com/athletic/5662527/2024/07/27/eddie-howe-newcastle-england/
+
 **Liverpool's Carvalho determined to 'make a statement' on pre-season tour**\
 `Fabio Carvalho is determined to use Liverpool’s tour of America to force his way into Arne Slot’s plans for the coming season.`\
 https://nytimes.com/athletic/5662376/2024/07/27/liverpool-fabio-carvalho-future/
