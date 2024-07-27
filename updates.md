@@ -1,3 +1,7 @@
+**FIFA docks Canada women's soccer 6 points for drone spying**\
+`FIFA suspended Canada women&#8217;s soccer coach Bev Priestman for one year, deducted six points from the team&#8217;s Olympic group stage total and issued a fine on Saturday in response to Canada flying a drone over New Zealand&#8217;s training sessions before the start of the Games.`\
+https://nytimes.com/athletic/5662610/2024/07/27/canada-soccer-spying-drone-bev-priestman-fifa/
+
 **Cubs acquire former first rounder Nate Pearson from Blue Jays: Sources**\
 `Pearson was once the Blue Jays’ top pitching prospect and was projected to be a frontline starter. But injuries have derailed his career.`\
 https://nytimes.com/athletic/5662618/2024/07/27/nate-pearson-cubs-blue-jays-trade/
