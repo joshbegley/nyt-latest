@@ -1,3 +1,7 @@
+**Peter Thiel, Elated by the JD Vance Pick, Warms to Trump Again**\
+`Mr. Thiel, the Silicon Valley billionaire, is coming around to Donald Trump’s candidacy again after bumps in their relationship. But he thinks his money wouldn’t really help Trump.`\
+https://nytimes.com/2024/07/27/us/politics/peter-thiel-trump-jd-vance.html
+
 **2 Dutch Novels Plumb the Gulf Between Order and Chaos**\
 `A late-life fantasia; a surviving twin’s breakthrough.`\
 https://nytimes.com/2024/07/27/books/read-like-wind-recommendations-dutch-novels.html

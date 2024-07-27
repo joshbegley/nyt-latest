@@ -1,3 +1,7 @@
+**Peter Thiel, Elated by the JD Vance Pick, Warms to Trump Again**\
+`Mr. Thiel, the Silicon Valley billionaire, is coming around to Donald Trump’s candidacy again after bumps in their relationship. But he thinks his money wouldn’t really help Trump.`\
+https://nytimes.com/2024/07/27/us/politics/peter-thiel-trump-jd-vance.html
+
 **2 Dutch Novels Plumb the Gulf Between Order and Chaos**\
 `A late-life fantasia; a surviving twin’s breakthrough.`\
 https://nytimes.com/2024/07/27/books/read-like-wind-recommendations-dutch-novels.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5662484/2024/07/27/chelsea-filip-jorgensen-transfer
 **Latino Leaders Set Aside Their Rocky Past With Kamala Harris on Immigration**\
 `Hispanic leaders and civil-rights groups are backing the vice president, despite their clashes with the Biden administration on border policy.`\
 https://nytimes.com/2024/07/27/us/politics/latino-kamala-harris-immigration.html
-
-**Everton set to sign Lyon defender O'Brien**\
-`Everton are close to completing a deal to sign Lyon defender Jake O&#8217;Brien for a €20million (£16.`\
-https://nytimes.com/athletic/5662413/2024/07/27/jake-obrien-everton-transfer/
 
