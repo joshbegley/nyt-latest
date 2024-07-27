@@ -1,3 +1,11 @@
+**Why the Phillies traded for Austin Hays and how they view him, as focus shifts to bullpen**\
+`The Phillies think they can find a better use for Hays than the Orioles did. The focus now turns to the bullpen. They have scouted closers. `\
+https://nytimes.com/athletic/5661706/2024/07/26/phillies-austin-hays-trade-deadine-bullpen/
+
+**Snoop Dogg, NBC’s New Voice of the People**\
+`The network hired the rapper for an expanded role on its broadcasts of the Summer Games in Paris after posting record-low viewership of the Tokyo competition.`\
+https://nytimes.com/2024/07/26/world/olympics/snoop-dogg-nbc-olympics.html
+
 **Paying Jordan Love this much is a big risk, which Packers are no strangers to with QBs**\
 `Green Bay made their quarterback the highest-paid in the league with a four-year, $220 million extension on Friday.`\
 https://nytimes.com/athletic/5639391/2024/07/26/jordan-love-packers-contract-extension/
