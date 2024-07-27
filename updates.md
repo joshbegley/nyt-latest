@@ -1,3 +1,15 @@
+**Pete Buttigieg Thinks the Trump Fever Could Break**\
+`The Democrat talks about the election vibe shift and what a Kamala Harris win would mean for both parties.`\
+https://nytimes.com/2024/07/27/magazine/pete-buttigieg-interview-election-democrats.html
+
+**At the Olympic opening ceremony, a force of nature upset the plan but not the vibes**\
+`After years of coordination, Paris' audacious opening ceremony finally arrived. And then the rain came. And came. But no one seemed to mind.`\
+https://nytimes.com/athletic/5662021/2024/07/27/2024-paris-olympics-opening-ceremony-rain/
+
+**More Trains, but Few Answers, After Railway Sabotage in France**\
+`France’s national railway company said traffic was gradually returning to normal a day after arsonists disrupted three high-speed rail lines. No one has claimed responsibility for the attacks.`\
+https://nytimes.com/2024/07/27/world/europe/france-trains-arson-olympics.html
+
 **Spoiler Alert: Here’s a Guide to the Cameos in ‘Deadpool & Wolverine’**\
 `Ryan Reynolds and Hugh Jackman are the stars, but they get help from a host of actors you may know from other superhero movies.`\
 https://nytimes.com/2024/07/27/movies/deadpool-and-wolverine-cameos.html
