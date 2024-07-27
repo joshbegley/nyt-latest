@@ -1,3 +1,7 @@
+**Mets' ace Kodai Senga's returns, then leaves with left calf strain**\
+`Any additional time Senga misses would be critical to the Mets, who have been counting on the return of their ace.`\
+https://nytimes.com/athletic/5661888/2024/07/26/mets-kodai-senga-calf-injury/
+
 **Packers, Jordan Love agree to 4-year, $220 million extension**\
 `Love threw for 4,159 yards, 32 touchdowns and 11 interceptions in 17 regular-season games.`\
 https://nytimes.com/athletic/5654084/2024/07/26/jordan-love-deal-contract-green-bay-packers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5661706/2024/07/26/phillies-austin-hays-trade-deadi
 **Snoop Dogg, NBC’s New Voice of the People**\
 `The network hired the rapper for an expanded role on its broadcasts of the Summer Games in Paris after posting record-low viewership of the Tokyo competition.`\
 https://nytimes.com/2024/07/26/world/olympics/snoop-dogg-nbc-olympics.html
-
-**Craig Breslow aggressive ahead of deadline, hoping to add more pitching**\
-`“I think our expectation is we can walk out of the deadline a better team than we were going into it,” Breslow said.`\
-https://nytimes.com/athletic/5661735/2024/07/26/red-sox-craig-breslow-trade-deadline-strategy/
 
