@@ -2,7 +2,7 @@
 `Chan chan yaki takes three superb ingredients and adds sautéed veggies and a glug of sake for a fast, filling, salty-sweet dinner.`\
 https://nytimes.com/2024/07/27/dining/miso-butter-salmon.html
 
-**The Briefing: Hull 0 Newcastle 2 - Isak and Murphy shine, but Eddie Howe's options look thin**\
+**The Briefing: Hull City 0 Newcastle United 2 - Isak and Murphy shine, but Eddie Howe's options look thin**\
 `Chris Waugh breaks down the main talking points from Newcastle's 2-0 win over Hull City`\
 https://nytimes.com/athletic/5659064/2024/07/27/hull-0-newcastle-2-howe-isak-murphy-transfers/
 
