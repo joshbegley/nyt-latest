@@ -1,3 +1,7 @@
+**Canada’s Olympic soccer spying scandal explained: What we know, who’s involved and what's next**\
+`The New Zealand Olympic Committee issued a complaint about a drone being flown over its women’s soccer team’s practice. Here’s what we know.`\
+https://nytimes.com/athletic/5657110/2024/07/27/canada-soccer-olympic-spying-scandal-explained/
+
 **Broncos QB race: Bo Nix rebounds from early mistake as derby ends first week**\
 `The rookie threw his first interception of training camp Saturday but followed it with some quality touchdown passes.`\
 https://nytimes.com/athletic/5662812/2024/07/27/broncos-bo-nix-qb-competition/

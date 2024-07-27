@@ -6,6 +6,10 @@ https://nytimes.com/athletic/5662812/2024/07/27/broncos-bo-nix-qb-competition/
 `The offense struggled to get in a rhythm Saturday after a slew of false starts, limiting Caleb Williams at padded practice No. 2.`\
 https://nytimes.com/athletic/5662871/2024/07/27/bears-training-camp-matt-eberflus/
 
+**Canada’s Olympic soccer spying scandal explained: What we know, who’s involved and what's next**\
+`The New Zealand Olympic Committee issued a complaint about a drone being flown over its women’s soccer team’s practice. Here’s what we know.`\
+https://nytimes.com/athletic/5657110/2024/07/27/canada-soccer-olympic-spying-scandal-explained/
+
 **Harris Holds First Fund-Raiser as Democrats Rally: ‘We Are the Underdogs’**\
 `At the event, which her campaign said raised more than $1.4 million, Vice President Kamala Harris deployed a sharpened message against Donald J. Trump and his running mate, JD Vance.`\
 https://nytimes.com/2024/07/27/us/politics/harris-fundraiser-berkshires.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/27/world/olympics/katie-ledecky-medal.html
 **Man Charged in Death Threats to Trump Trial Judge and Prosecutor**\
 `A judge ordered Spencer Gear into custody, citing threats to the district attorney and judge in New York days after Donald Trump’s conviction in his hush-money case.`\
 https://nytimes.com/2024/07/27/us/politics/las-vegas-man-charged-threats-federal-officials.html
-
-**Sophia Smith fit for Germany, while the USWNT holds its own opening ceremony in Marseille**\
-`“We got in our uniforms, in our Ralph Lauren get-up, and we took pictures,” forward Lynn Williams said.`\
-https://nytimes.com/athletic/5662856/2024/07/27/uswnt-olympic-schedule-2024-paris/
 
