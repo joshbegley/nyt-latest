@@ -1,3 +1,7 @@
+**Olympic opening ceremony has total audience of 28.6 million viewers**\
+`NBCUniversal’s said the ceremony drew a total audience delivery of 28.6 million viewers.`\
+https://nytimes.com/athletic/5663150/2024/07/27/olympic-opening-ceremony-viewers/
+
 **The Briefing: Chelsea 1 Celtic 4 - Defensive issues, goalkeeper dilemma and Mudryk vs Sterling**\
 `Simon Johnson addresses the key talking points from Chelsea's heavy pre-season friendly defeat by Celtic`\
 https://nytimes.com/athletic/5659065/2024/07/27/chelsea-celtic-friendly-anaysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5662871/2024/07/27/bears-training-camp-matt-eberflu
 **Canada’s Olympic soccer spying scandal explained: What we know, who’s involved and what's next**\
 `The New Zealand Olympic Committee issued a complaint about a drone being flown over its women’s soccer team’s practice. Here’s what we know.`\
 https://nytimes.com/athletic/5657110/2024/07/27/canada-soccer-olympic-spying-scandal-explained/
-
-**Harris Holds First Fund-Raiser as Democrats Rally: ‘We Are the Underdogs’**\
-`At the event, which her campaign said raised more than $1.4 million, Vice President Kamala Harris deployed a sharpened message against Donald J. Trump and his running mate, JD Vance.`\
-https://nytimes.com/2024/07/27/us/politics/harris-fundraiser-berkshires.html
 
