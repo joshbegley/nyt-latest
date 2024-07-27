@@ -1,3 +1,19 @@
+**The French Swimmer Who Is Carrying His Country on His Back**\
+`Léon Marchand, who has the potential to win medals in four individual events, bears much of the weight of France’s expectations. He is ready, he says, but adds, “it does feel weird.”`\
+https://nytimes.com/2024/07/27/world/olympics/leon-marchand-france-swimming-olympics.html
+
+**Saturday's MLB odds, best bets: Pitching matchups, playoff odds, props and more**\
+`See pitching matchups, playoff projections, win projections and more for Saturday's MLB games.`\
+https://nytimes.com/athletic/5660760/2024/07/27/mlb-odds-best-bets-projections-july-27/
+
+**Olympics Today: Saturday's guide to what to watch in Paris**\
+`The first day of medal events at the 2024 Paris Games is Saturday, potentially featuring a women’s swimming race for the ages.`\
+https://nytimes.com/athletic/5658808/2024/07/27/olympics-2024-watch-guide-day-2-swimming-beach-volleyball/
+
+**Quotation of the Day: Rising Star of Surfing is at Peace, and on Roll**\
+`Quotation of the Day for Saturday, July 27, 2024.`\
+https://nytimes.com/2024/07/27/pageoneplus/quotation-of-the-day-rising-star-of-surfing-is-at-peace-and-on-roll.html
+
 **Why Padres' Leodalis De Vries, who played with Xander Bogaerts, may be off-limits at the trade deadline**\
 `Xander Bogaerts got to play with the 17-year-old De Vries and thinks his future is bright. The Padres think so, too.`\
 https://nytimes.com/athletic/5660935/2024/07/26/padres-trade-deadline-leodalis-de-vries/
@@ -22,20 +38,4 @@ https://nytimes.com/athletic/5661905/2024/07/26/astros-dana-brown-trade-deadline
 **The Most Stylish Olympic Opening Ceremony Ever**\
 `Paris raised the fashion stakes for the XXXIII Olympiad, and even with the rain, the result transformed the Seine into a watery runway.`\
 https://nytimes.com/2024/07/26/style/the-most-stylish-olympic-opening-ceremony-ever.html
-
-**The Briefing: Liverpool 1-0 Real Betis - Slot's setup, need for a No 6 and early impressions**\
-`James Pearce addresses the main talking points from Liverpool's friendly victory over Real Betis`\
-https://nytimes.com/athletic/5655376/2024/07/26/liverpool-real-betis-analysis/
-
-**Paying Jordan Love this much is a big risk, which Packers are no strangers to with QBs**\
-`Green Bay made their quarterback the highest-paid in the league with a four-year, $220 million extension on Friday.`\
-https://nytimes.com/athletic/5639391/2024/07/26/jordan-love-packers-contract-extension/
-
-**It rained on NBC's opening ceremony parade. Will the viewers still come?**\
-`Paris Olympic organizers had grand plans for a sunset opening ceremony. It didn't quite go that way, but it was still a big spectacle.`\
-https://nytimes.com/athletic/5658972/2024/07/26/olympics-opening-ceremony-nbc-broadcast-review/
-
-**Mets ace Kodai Senga returns, then leaves with left calf strain**\
-`The strain will send Senga to the injured list. How long he’ll be out depends on the results of an MRI.`\
-https://nytimes.com/athletic/5661888/2024/07/26/mets-kodai-senga-calf-injury/
 
