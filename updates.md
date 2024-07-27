@@ -1,3 +1,15 @@
+**The great America-Australia relay rivalry gets another worthy chapter in Paris**\
+`On Saturday night, Australia and the U.S. each won one of the two 4x100-meter freestyle relays. And that feels right.`\
+https://nytimes.com/athletic/5663050/2024/07/27/2024-paris-olympics-swimming-relay-america-australia/
+
+**Phillies get Carlos Estévez in trade with Angels to boost bullpen: Sources**\
+`The Phillies fortified their bullpen Saturday evening by acquiring one of the best-available rental relievers, Angels closer Carlos Estévez.`\
+https://nytimes.com/athletic/5663218/2024/07/27/carlos-estevez-trade-phillies-angels/
+
+**Minnesota’s Governor, a Harris V.P. Contender, Calls Trump and Vance ‘Weird People’**\
+`Gov. Tim Walz took jabs at Trump and his vice-presidential pick, JD Vance, at a rally in St. Cloud, Minn., hours before the Republican duo were scheduled to arrive for their own campaign event.`\
+https://nytimes.com/2024/07/27/us/politics/walz-trump-vance-weird-people.html
+
 **MLB Trade Grades: Nick Mears, a Rockies unicorn, heads to Milwaukee**\
 `The Brewers, comfortably atop the NL Central, added Colorado Rockies right-hander Nick Mears to their bullpen for the stretch run.`\
 https://nytimes.com/athletic/5663153/2024/07/27/mlb-trade-grades-nick-mears-brewers-rockies/
