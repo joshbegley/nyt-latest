@@ -1,40 +1,40 @@
-**A New Wave**\
-`Michael February, a boundary-breaking surfer and the first Black South African on the World Surf League Championship Tour, embarks on a transformative journey.`\
-https://nytimes.com/video/opinion/100000009382183/a-new-wave.html
+**Chinese Swimmer Denies Cheating in First Public Comments on Doping Case**\
+`Zhang Yufei, one of 23 athletes who tested positive for a banned substance before the last Olympics, said China did not allow doping, and offered a window into the stress the accusations have caused.`\
+https://nytimes.com/2024/07/27/world/asia/china-doping-zhang-yufei.html
 
-**24 Hours at the Golden Apple**\
-`We document one day in a Chicago diner called the Golden Apple, starting at 5 a.m. and going until 5 a.m. the next morning.`\
-https://nytimes.com/2024/07/27/podcasts/24-hours-at-the-golden-apple.html
+**Broncos made concerted shift in the secondary — and early returns are promising**\
+`The Broncos have big plans for second-year cornerback Riley Moss.`\
+https://nytimes.com/athletic/5661144/2024/07/27/broncos-training-camp-secondary/
 
-**Durant set to play in Team USA's Paris Olympics opener**\
-`PARIS – Barring any last minute setbacks, Kevin Durant will make his 2024 debut with Team USA Sunday in game 1 of the Paris Olympics vs.`\
-https://nytimes.com/athletic/5662289/2024/07/27/kevin-durant-injury-team-usa-olympics/
+**Beloved veteran Kenny Clark has lofty goals after entering rarefied air with third Packers contract**\
+`Clark has joined the likes of Aaron Rodgers, David Bakhtiari and Jordy Nelson as players to secure third contracts from the Packers.`\
+https://nytimes.com/athletic/5660690/2024/07/27/kenny-clark-packers-third-contract/
 
-**The Olympics Have Arrived**\
-`The Games present untold opportunities to geek out on sports you haven’t thought about for several years, or ever.`\
-https://nytimes.com/2024/07/27/briefing/the-olympics-have-arrived.html
+**I Was a Kamala Harris Skeptic. Here’s How I Got Coconut-Pilled.**\
+`Harris’s success and setbacks could make her the ideal candidate against a man who admits no mistakes, has no humility and is utterly unrelatable.`\
+https://nytimes.com/2024/07/27/opinion/kamala-harris-campaign-skeptic.html
 
-**When athletes win Olympic gold medals in Paris, they'll get a piece of the Eiffel Tower**\
-`Paris 2024 is significant because, when athletes win gold, they will take home a piece of the Eiffel Tower.`\
-https://nytimes.com/athletic/5661154/2024/07/27/paris-olympics-gold-medals-eiffel-tower-louis-vuitton/
+**The Police Killing of Sonya Massey Argues for Alternatives to Reform**\
+`Until we narrow the scope of what police officers can do, we’ll continue to see officers bring violence into situations that don’t require it.`\
+https://nytimes.com/2024/07/27/opinion/sonya-massey-illinois-police-reform.html
 
-**The trade deadline that blindsided Pete Crow-Armstrong**\
-`Crow-Armstrong might be the Cubs' best hope to salvage their 2021 sell-off.`\
-https://nytimes.com/athletic/5661940/2024/07/27/pete-crow-armstrong-2021-trade-deadline/
+**How Kamala Harris Can Win**\
+`She will need a message that reconnects the Democratic Party with the working-class voters it has alienated in recent decades.`\
+https://nytimes.com/2024/07/27/opinion/kamala-harris-strategy.html
 
-**Here’s the latest on the presidential race.**\
-`By Simon J. Levien`\
-https://nytimes.com/live/2024/07/27/us/harris-trump-biden-election/heres-the-latest-on-the-presidential-race
+**Kamala Harris and the Audacity of Desperation**\
+`With the surge of support for her candidacy, you can sense an effort to overcome divisions on the left and to recover the unity of 2020.`\
+https://nytimes.com/2024/07/27/opinion/kamala-harris-democrats.html
 
-**Wordle Review No. 1,135, Sunday, July 28, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/27/crosswords/wordle-review-1135.html
+**JD Vance, Purr-fectly Dreadful**\
+`Women should bat JD around like a ball of twine.`\
+https://nytimes.com/2024/07/27/opinion/jd-vance-cat-ladies.html
 
-**The Connections Companion No. 413, July 28, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/27/crosswords/connections-companion-413.html
+**A.I. May Save Us, or May Construct Viruses to Kill Us**\
+`Managing artificial intelligence without stifling it will be one of our biggest challenges as we adopt the most revolutionary technology since fire.`\
+https://nytimes.com/2024/07/27/opinion/ai-advances-risks.html
 
-**Team USA scouting report: Serbia's Bogdan Bogdanović discusses looming showdown**\
-`As Team USA shows cracks, Serbia gets the first crack at them in Olympic play. Here's what one player thinks of the matchup.`\
-https://nytimes.com/athletic/5660830/2024/07/27/usa-serbia-olympic-basketball-bogdan-bogdanovic/
+**Reflecting on Biden’s Exit and His Legacy**\
+`Readers express their gratitude and frustration.`\
+https://nytimes.com/2024/07/27/opinion/joe-biden-legacy.html
 
