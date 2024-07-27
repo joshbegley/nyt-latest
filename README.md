@@ -1,3 +1,11 @@
+**Phillies get Carlos Estévez in trade with Angels to boost bullpen: Sources**\
+`The Phillies fortified their bullpen Saturday evening by acquiring one of the best-available rental relievers, Angels closer Carlos Estévez.`\
+https://nytimes.com/athletic/5663218/2024/07/27/carlos-estevez-trade-phillies-angels/
+
+**Minnesota’s Governor, a Harris V.P. Contender, Calls Trump and Vance ‘Weird People’**\
+`Gov. Tim Walz took jabs at Trump and his vice-presidential pick, JD Vance, at a rally in St. Cloud, Minn., hours before the Republican duo were scheduled to arrive for their own campaign event.`\
+https://nytimes.com/2024/07/27/us/politics/walz-trump-vance-weird-people.html
+
 **MLB Trade Grades: Nick Mears, a Rockies unicorn, heads to Milwaukee**\
 `The Brewers, comfortably atop the NL Central, added Colorado Rockies right-hander Nick Mears to their bullpen for the stretch run.`\
 https://nytimes.com/athletic/5663153/2024/07/27/mlb-trade-grades-nick-mears-brewers-rockies/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/27/us/california-school-embezzlement.html
 **Villa investigating Duran over alleged West Ham gesture**\
 `Aston Villa forward Jhon Duran faces disciplinary action after appearing to cross his arms to make an Irons-shaped gesture, amid ongoing interest from West Ham.`\
 https://nytimes.com/athletic/5663030/2024/07/27/aston-villa-investigating-jhon-duran/
-
-**Broncos QB race: Bo Nix rebounds from early mistake as derby ends first week**\
-`The rookie threw his first interception of training camp Saturday but followed it with some quality touchdown passes.`\
-https://nytimes.com/athletic/5662812/2024/07/27/broncos-bo-nix-qb-competition/
-
-**Bears camp: False starts hinder offense, Matt Eberflus looking for 'focus and finish'**\
-`The offense struggled to get in a rhythm Saturday after a slew of false starts, limiting Caleb Williams at padded practice No. 2.`\
-https://nytimes.com/athletic/5662871/2024/07/27/bears-training-camp-matt-eberflus/
 
