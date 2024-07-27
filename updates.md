@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5661917/2024/07/26/rays-trades-randy-arozarena-zach
 `\
 https://nytimes.com/athletic/5661917/2024/07/26/rays-trades-randy-arozarena-zach-eflin/
 
+**Payroll-shedding trades of Randy Arozarena and Zach Eflin in line with Rays’ philosophy**\
+`“We are a worse team today than we were 24 hours ago," Erik Neander said. "That’s not something we can shy away from.”
+`\
+https://nytimes.com/athletic/5661917/2024/07/26/rays-trades-randy-arozarena-zach-eflin/
+
 **Trump, Honing Attacks on Harris, Casts Her as a Far-Left Threat**\
 `Speaking to religious conservatives in Florida, former President Donald J. Trump accused Vice President Kamala Harris of wanting to use left-wing values to transform the United States.`\
 https://nytimes.com/2024/07/26/us/politics/trump-harris-turning-point-action.html
