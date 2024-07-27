@@ -1,3 +1,11 @@
+**Palmer, Cucurella and Gallagher given extended summer breaks**\
+`Chelsea have told Cole Palmer, Marc Cucurella and Conor Gallagher they do not have to join their pre-season tour of the United States and can begin training at Cobham in early August instead.`\
+https://nytimes.com/athletic/5662680/2024/07/27/chelsea-cole-palmer-break/
+
+**Liverpool considering sending Doak on loan**\
+`Ben Doak is attracting interest from a number of Premier League clubs as Liverpool consider sanctioning a loan move for him this season.`\
+https://nytimes.com/athletic/5662544/2024/07/27/ben-doak-loan-liverpool/
+
 **Cubs acquire former first rounder Nate Pearson from Blue Jays: Sources**\
 `Pearson was once the Blue Jays’ top pitching prospect and was projected to be a frontline starter. But injuries have derailed his career.`\
 https://nytimes.com/athletic/5662618/2024/07/27/nate-pearson-cubs-blue-jays-trade/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5662512/2024/07/27/samoa-boxing-coach-death-paris-o
 **‘All We Think of Is Him’: Putting Names and Faces to Bangladesh Carnage**\
 `The partial lifting of a communications blackout is providing a picture of the young victims of a brutal crackdown on protesters. Thousands of others have been swept into jails.`\
 https://nytimes.com/2024/07/27/world/asia/bangladesh-protest-victims.html
-
-**Howe holds 'positive talks' with Newcastle, no England approach**\
-`Eddie Howe has held &#8220;positive talks&#8221; with Newcastle United&#8217;s hierarchy and has reiterated that he wants &#8220;collaboration&#8221; on transfers, rather than the &#8220;final say&#8221;.`\
-https://nytimes.com/athletic/5662527/2024/07/27/eddie-howe-newcastle-england/
-
-**Liverpool's Carvalho determined to 'make a statement' on pre-season tour**\
-`Fabio Carvalho is determined to use Liverpool’s tour of America to force his way into Arne Slot’s plans for the coming season.`\
-https://nytimes.com/athletic/5662376/2024/07/27/liverpool-fabio-carvalho-future/
 
