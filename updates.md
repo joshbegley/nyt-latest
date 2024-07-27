@@ -1,3 +1,7 @@
+**Bears camp: False starts hinder offense, Matt Eberflus looking for 'focus and finish'**\
+`The offense struggled to get in a rhythm Saturday after a slew of false starts, limiting Caleb Williams at padded practice No. 2.`\
+https://nytimes.com/athletic/5662871/2024/07/27/bears-training-camp-matt-eberflus/
+
 **Harris Holds First Fund-Raiser as Democrats Rally: ‘We Are the Underdogs’**\
 `At the event, which her campaign said raised more than $1.4 million, Vice President Kamala Harris deployed a sharpened message against Donald J. Trump and his running mate, JD Vance.`\
 https://nytimes.com/2024/07/27/us/politics/harris-fundraiser-berkshires.html
