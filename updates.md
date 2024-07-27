@@ -1,3 +1,7 @@
+**FIFA suspends Canada's Priestman 1 year, docks team 6 points**\
+`FIFA suspended Canada women&#8217;s soccer coach Bev Priestman for one year, deducted six points from the team&#8217;s Olympic group stage total and issued a fine on Saturday in response to Canada flying a drone over New Zealand&#8217;s training sessions before the start of the Games.`\
+https://nytimes.com/athletic/5662610/2024/07/27/canada-soccer-spying-drone-bev-priestman-fifa/
+
 **Peter Thiel, Elated by the JD Vance Pick, Warms to Trump Again**\
 `Mr. Thiel, the Silicon Valley billionaire, is coming around to Donald Trump’s candidacy again after bumps in their relationship. But he thinks his money wouldn’t really help Trump.`\
 https://nytimes.com/2024/07/27/us/politics/peter-thiel-trump-jd-vance.html

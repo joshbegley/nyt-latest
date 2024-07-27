@@ -1,3 +1,7 @@
+**FIFA suspends Canada's Priestman 1 year, docks team 6 points**\
+`FIFA suspended Canada women&#8217;s soccer coach Bev Priestman for one year, deducted six points from the team&#8217;s Olympic group stage total and issued a fine on Saturday in response to Canada flying a drone over New Zealand&#8217;s training sessions before the start of the Games.`\
+https://nytimes.com/athletic/5662610/2024/07/27/canada-soccer-spying-drone-bev-priestman-fifa/
+
 **Peter Thiel, Elated by the JD Vance Pick, Warms to Trump Again**\
 `Mr. Thiel, the Silicon Valley billionaire, is coming around to Donald Trump’s candidacy again after bumps in their relationship. But he thinks his money wouldn’t really help Trump.`\
 https://nytimes.com/2024/07/27/us/politics/peter-thiel-trump-jd-vance.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5662331/2024/07/27/where-will-2024-olympic-surfing-
 **Chelsea set to sign goalkeeper Jorgensen from Villarreal**\
 `Chelsea are set to sign Villarreal goalkeeper Filip Jorgensen.`\
 https://nytimes.com/athletic/5662484/2024/07/27/chelsea-filip-jorgensen-transfer-medical/
-
-**Latino Leaders Set Aside Their Rocky Past With Kamala Harris on Immigration**\
-`Hispanic leaders and civil-rights groups are backing the vice president, despite their clashes with the Biden administration on border policy.`\
-https://nytimes.com/2024/07/27/us/politics/latino-kamala-harris-immigration.html
 
