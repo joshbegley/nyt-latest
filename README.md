@@ -1,3 +1,7 @@
+**Chelsea set to sign goalkeeper Jorgensen from Villarreal**\
+`Chelsea are set to sign Villarreal goalkeeper Filip Jorgensen.`\
+https://nytimes.com/athletic/5662484/2024/07/27/chelsea-filip-jorgensen-transfer-medical/
+
 **Latino Leaders Set Aside Their Rocky Past With Kamala Harris on Immigration**\
 `Hispanic leaders and civil-rights groups are backing the vice president, despite their clashes with the Biden administration on border policy.`\
 https://nytimes.com/2024/07/27/us/politics/latino-kamala-harris-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5661805/2024/07/27/seahawks-training-camp-red-zone-
 **Justin Herbert, offense get a chance to air it out at Chargers training camp**\
 `Also, Rashawn Slater raises some concern with an early exit from Friday's practice.`\
 https://nytimes.com/athletic/5662032/2024/07/27/justin-herbert-chargers-training-camp/
-
-**Can American men's gymnastics team give a waning U.S. sport a boost in Paris?**\
-`One of the strongest U.S. Olympic men's gymnastics teams in years competes in Paris at a vital time for the sport in America.`\
-https://nytimes.com/athletic/5646175/2024/07/27/olympics-usa-mens-gymnastics-ncaa-college/
 
