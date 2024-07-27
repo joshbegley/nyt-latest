@@ -1,3 +1,7 @@
+**Harris Holds First Fund-Raiser as Democrats Rally: ‘We Are the Underdogs’**\
+`At the event, which her campaign said raised more than $1.4 million, Vice President Kamala Harris deployed a sharpened message against Donald J. Trump and his running mate, JD Vance.`\
+https://nytimes.com/2024/07/27/us/politics/harris-fundraiser-berkshires.html
+
 **Team USA dominates 4x100 freestyle relay for first gold medal of Paris Games**\
 `Australia took home silver and Italy won bronze.`\
 https://nytimes.com/athletic/5662750/2024/07/27/usa-swimming-caeleb-dressel-freestyle-relay-paris-olympics/
