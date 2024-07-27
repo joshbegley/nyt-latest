@@ -1,3 +1,11 @@
+**Palmer, Cucurella and Gallagher given extended summer breaks**\
+`Chelsea have told Cole Palmer, Marc Cucurella and Conor Gallagher they do not have to join their pre-season tour of the United States and can begin training at Cobham in early August instead.`\
+https://nytimes.com/athletic/5662680/2024/07/27/chelsea-cole-palmer-break/
+
+**Liverpool considering sending Doak on loan**\
+`Ben Doak is attracting interest from a number of Premier League clubs as Liverpool consider sanctioning a loan move for him this season.`\
+https://nytimes.com/athletic/5662544/2024/07/27/ben-doak-loan-liverpool/
+
 **FIFA docks Canada women's soccer 6 points for drone spying**\
 `FIFA suspended Canada women&#8217;s soccer coach Bev Priestman for one year, deducted six points from the team&#8217;s Olympic group stage total and issued a fine on Saturday in response to Canada flying a drone over New Zealand&#8217;s training sessions before the start of the Games.`\
 https://nytimes.com/athletic/5662610/2024/07/27/canada-soccer-spying-drone-bev-priestman-fifa/
