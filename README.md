@@ -19,7 +19,7 @@ https://nytimes.com/2024/07/27/world/olympics/balance-beam-gymnastics.html
 https://nytimes.com/2024/07/27/world/middleeast/israel-evacuation-order-gaza.html
 
 **South Korea stung by Paris Olympics opening ceremony introduction as North Korea**\
-`South Korea is seeking a meeting with International Olympic Committee (IOC) president Thomas Bach after its athletes were wrongly introduced as North Korean during the opening ceremony for the Paris Olympics.`\
+`South Korea is seeking a meeting with International Olympic Committee (IOC) president Thomas Bach after its 143 athletes were wrongly introduced as North Korean during the opening ceremony for the Paris Olympics.`\
 https://nytimes.com/athletic/5662302/2024/07/27/south-korea-stung-by-introduction-at-paris-olympics-opening-ceremony-as-north-korea/
 
 **Angels fail to sign third-round pick, raising questions about pre-draft due diligence**\
