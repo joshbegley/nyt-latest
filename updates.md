@@ -1,3 +1,7 @@
+**Canada Olympic spying scandal: The unanswered questions and possible punishments**\
+`As the fall-out from espionage revelations continues, what could happen to those accused and how far does the scandal stretch?`\
+https://nytimes.com/athletic/5662218/2024/07/27/canada-spying-olympic-questions-punishments/
+
 **Firefighters Race to Contain Wildfires in California and Oregon**\
 `In California, the Park fire has charred more than 307,000 acres, becoming the country’s largest this year. The Durkee fire in Oregon has covered at least 288,000 acres.`\
 https://nytimes.com/2024/07/27/us/california-oregon-wildfires-smoke.html
