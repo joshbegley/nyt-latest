@@ -31,7 +31,7 @@ https://nytimes.com/2024/07/27/us/politics/las-vegas-man-charged-threats-federal
 https://nytimes.com/athletic/5662856/2024/07/27/uswnt-olympic-schedule-2024-paris/
 
 **Team USA dominates 4x100 freestyle relay for first gold medal of Paris Games**\
-`Italy took home silver and Australia bronze.`\
+`Australia took home silver and Italy won bronze.`\
 https://nytimes.com/athletic/5662750/2024/07/27/usa-swimming-caeleb-dressel-freestyle-relay-paris-olympics/
 
 **Yankees acquire Jazz Chisholm Jr. from Marlins**\
