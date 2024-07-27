@@ -1,3 +1,7 @@
+**Red Sox acquire Danny Jansen from Blue Jays**\
+`Jansen, 29, was the longest-tenured Blue Jay. He'll share time behind the plate in Boston with Connor Wong. `\
+https://nytimes.com/athletic/5663139/2024/07/27/danny-jansen-trade-red-sox-blue-jays/
+
 **Phillies get Carlos Estévez in trade with Angels to boost back of bullpen**\
 `The Phillies fortified their bullpen by acquiring one of the best-available rental relievers, but paid a steep price. `\
 https://nytimes.com/athletic/5663218/2024/07/27/carlos-estevez-trade-phillies-angels/
