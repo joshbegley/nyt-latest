@@ -1,3 +1,7 @@
+**Katie Ledecky’s relentless march toward history begins with a bronze in Paris.**\
+`Ledecky won her 11th Olympic medal, but was outpaced by Ariarne Titmus of Australia.`\
+https://nytimes.com/2024/07/27/world/olympics/katie-ledecky-medal.html
+
 **Man Charged in Death Threats to Trump Trial Judge and Prosecutor**\
 `A judge ordered Spencer Gear into custody, citing threats to the district attorney and judge in New York days after Donald Trump’s conviction in his hush-money case.`\
 https://nytimes.com/2024/07/27/us/politics/las-vegas-man-charged-threats-federal-officials.html

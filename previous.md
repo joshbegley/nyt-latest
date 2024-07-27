@@ -1,3 +1,7 @@
+**Katie Ledecky’s relentless march toward history begins with a bronze in Paris.**\
+`Ledecky won her 11th Olympic medal, but was outpaced by Ariarne Titmus of Australia.`\
+https://nytimes.com/2024/07/27/world/olympics/katie-ledecky-medal.html
+
 **Man Charged in Death Threats to Trump Trial Judge and Prosecutor**\
 `A judge ordered Spencer Gear into custody, citing threats to the district attorney and judge in New York days after Donald Trump’s conviction in his hush-money case.`\
 https://nytimes.com/2024/07/27/us/politics/las-vegas-man-charged-threats-federal-officials.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/27/us/politics/jd-vance-jennifer-aniston-childless-c
 **New Zealand 1 United States 4: Dead balls help clinical U.S. clinch record-breaking win**\
 `Jeff Rueter breaks down the main talking points from the USMNT's 4-1 win over New Zealand at the 2024 Olympic Games`\
 https://nytimes.com/athletic/5662593/2024/07/27/new-zealand-1-united-states-4-olympics-paris/
-
-**France wins first gold medal of Paris Games in men's rugby sevens**\
-`For the first time in 100 years, the last time the Olympics were held in Paris, the French team medaled at the Olympics in rugby.`\
-https://nytimes.com/athletic/5662738/2024/07/27/france-first-gold-medal-rugby-sevens-fiji/
 
