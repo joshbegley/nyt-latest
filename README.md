@@ -1,6 +1,6 @@
 **Packers, Jordan Love agree to 4-year, $220 million extension**\
 `Love threw for 4,159 yards, 32 touchdowns and 11 interceptions in 17 regular-season games.`\
-https://nytimes.com/athletic/5654084/2024/07/26/packers-jordan-love-contract-extension/
+https://nytimes.com/athletic/5654084/2024/07/26/jordan-love-deal-contract-green-bay-packers/
 
 **MLB Trade Grades: Can Mets' move for Ryne Stanek give them the bullpen boost they need?**\
 `The Mets are looking to provide stability in their bullpen and the acquisition of Ryne Stanek appears to be one way to address that. `\
