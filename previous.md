@@ -1,3 +1,15 @@
+**Despite Park Fire’s Rapid Spread, Some Residents Are Determined to Stay Put**\
+`In Butte County, Calif., some defied evacuation orders so they could protect their property from the fire that has quickly become the state’s largest this year.`\
+https://nytimes.com/2024/07/27/us/park-fires-california-evacuation-order.html
+
+**De Gea in talks to join Genoa**\
+`Former Manchester United goalkeeper David de Gea is in talks to join Genoa on a free transfer.`\
+https://nytimes.com/athletic/5662860/2024/07/27/david-de-gea-genoa/
+
+**What I'm hearing about the trade deadline: Orioles aren't done, Royals looking for a bat**\
+`Plus more on the Giants' plans with Michael Conforto and what the Dodgers may do after missing out on Randy Arozarena.`\
+https://nytimes.com/athletic/5662942/2024/07/27/trade-deadline-mlb-royals-orioles-giants/
+
 **Nadal, Alcaraz victorious in first doubles match together at Paris 2024**\
 `Both players are French Open champions at Roland Garros, with Nadal winning 14 and Alcaraz winning his first this year.`\
 https://nytimes.com/athletic/5662827/2024/07/27/nadal-alcaraz-doubles-tennis-paris-2024/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5662905/2024/07/27/yankees-marlins-jazz-chisholm-tr
 **Cardinals' decisions loom ahead of trade deadline: 3 players to watch**\
 `Dylan Carlson, once considered part of the Cardinals' future, may be better off with a change of scenery.`\
 https://nytimes.com/athletic/5662543/2024/07/27/cardninals-mlb-trade-deadline-dylan-carlson/
-
-**Lions training camp: What we learned from Week 1**\
-`Some things are starting to take shape as practice with pads begins next week.`\
-https://nytimes.com/athletic/5662705/2024/07/27/detroit-lions-training-camp-dan-campbell-brian-branch-jameson-williams/
-
-**Ariarne Titmus beats Summer McIntosh, Katie Ledecky for second straight gold in 400-meter free**\
-`Titmus has not lost this race in competition since 2019.`\
-https://nytimes.com/athletic/5662595/2024/07/27/katie-ledecky-ariarne-titmus-summer-mcintosh-400-meter-freestyle-swimming-paris-olympics/
-
-**JD Vance Hits Back at Jennifer Aniston, Defending ‘Childless Cat Ladies’ Remarks**\
-`The “Friends” actress, who has been open about her fertility struggles, recently criticized Mr. Vance’s 2021 comments on social media.`\
-https://nytimes.com/2024/07/27/us/politics/jd-vance-jennifer-aniston-childless-cat-lady.html
 

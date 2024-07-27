@@ -1,3 +1,15 @@
+**Despite Park Fire’s Rapid Spread, Some Residents Are Determined to Stay Put**\
+`In Butte County, Calif., some defied evacuation orders so they could protect their property from the fire that has quickly become the state’s largest this year.`\
+https://nytimes.com/2024/07/27/us/park-fires-california-evacuation-order.html
+
+**De Gea in talks to join Genoa**\
+`Former Manchester United goalkeeper David de Gea is in talks to join Genoa on a free transfer.`\
+https://nytimes.com/athletic/5662860/2024/07/27/david-de-gea-genoa/
+
+**What I'm hearing about the trade deadline: Orioles aren't done, Royals looking for a bat**\
+`Plus more on the Giants' plans with Michael Conforto and what the Dodgers may do after missing out on Randy Arozarena.`\
+https://nytimes.com/athletic/5662942/2024/07/27/trade-deadline-mlb-royals-orioles-giants/
+
 **Nadal, Alcaraz victorious in first doubles match together at Paris 2024**\
 `Both players are French Open champions at Roland Garros, with Nadal winning 14 and Alcaraz winning his first this year.`\
 https://nytimes.com/athletic/5662827/2024/07/27/nadal-alcaraz-doubles-tennis-paris-2024/
