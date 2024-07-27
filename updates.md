@@ -1,3 +1,7 @@
+**Phillies get Carlos Estévez in trade with Angels to boost back of bullpen**\
+`The Phillies fortified their bullpen by acquiring one of the best-available rental relievers, but paid a steep price. `\
+https://nytimes.com/athletic/5663218/2024/07/27/carlos-estevez-trade-phillies-angels/
+
 **The great America-Australia relay rivalry gets another worthy chapter in Paris**\
 `On Saturday night, Australia and the U.S. each won one of the two 4x100-meter freestyle relays. And that feels right.`\
 https://nytimes.com/athletic/5663050/2024/07/27/2024-paris-olympics-swimming-relay-america-australia/
