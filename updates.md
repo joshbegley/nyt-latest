@@ -1,3 +1,15 @@
+**Ariarne Titmus beats Katie Ledecky, Summer McIntosh for second straight gold in 400-meter free**\
+`Titmus has not lost this race in competition since 2019.`\
+https://nytimes.com/athletic/5662595/2024/07/27/katie-ledecky-ariarne-titmus-summer-mcintosh-400-meter-freestyle-swimming-paris-olympics/
+
+**JD Vance Hits Back at Jennifer Aniston, Defending ‘Childless Cat Ladies’ Remarks**\
+`The “Friends” actress, who has been open about her fertility struggles, recently criticized Mr. Vance’s 2021 comments on social media.`\
+https://nytimes.com/2024/07/27/us/politics/jd-vance-jennifer-aniston-childless-cat-lady.html
+
+**New Zealand 1 United States 4: Dead balls help clinical U.S. clinch record-breaking win**\
+`Jeff Rueter breaks down the main talking points from the USMNT's 4-1 win over New Zealand at the 2024 Olympic Games`\
+https://nytimes.com/athletic/5662593/2024/07/27/new-zealand-1-united-states-4-olympics-paris/
+
 **France wins first gold medal of Paris Games in men's rugby sevens**\
 `For the first time in 100 years, the last time the Olympics were held in Paris, the French team medaled at the Olympics in rugby.`\
 https://nytimes.com/athletic/5662738/2024/07/27/france-first-gold-medal-rugby-sevens-fiji/

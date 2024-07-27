@@ -1,4 +1,4 @@
-**Ariarne Titmus beats Katie Ledecky, Summer McIntosh for second straight gold in 400-meter free**\
+**Ariarne Titmus beats Summer McIntosh, Katie Ledecky for second straight gold in 400-meter free**\
 `Titmus has not lost this race in competition since 2019.`\
 https://nytimes.com/athletic/5662595/2024/07/27/katie-ledecky-ariarne-titmus-summer-mcintosh-400-meter-freestyle-swimming-paris-olympics/
 
