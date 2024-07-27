@@ -1,3 +1,7 @@
+**At the Olympic opening ceremony, a force of nature upset the plan but not the point**\
+`After years of coordination, Paris' audacious opening ceremony finally arrived. And then the rain came. And came. But no one seemed to mind.`\
+https://nytimes.com/athletic/5662021/2024/07/27/2024-paris-olympics-opening-ceremony-rain/
+
 **The trade deadline that blindsided Pete Crow-Armstrong**\
 `Crow-Armstrong might be the Cubs' best hope to salvage their 2021 sell-off.`\
 https://nytimes.com/athletic/5661940/2024/07/27/pete-crow-armstrong-2021-trade-deadline/

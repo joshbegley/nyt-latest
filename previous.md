@@ -30,7 +30,7 @@ https://nytimes.com/2024/07/27/world/europe/kamala-harris-foreign-policy.html
 `The Democrat talks about the election vibe shift and what a Kamala Harris win would mean for both parties.`\
 https://nytimes.com/2024/07/27/magazine/pete-buttigieg-interview-election-democrats.html
 
-**At the Olympic opening ceremony, a force of nature upset the plan but not the vibes**\
+**At the Olympic opening ceremony, a force of nature upset the plan but not the point**\
 `After years of coordination, Paris' audacious opening ceremony finally arrived. And then the rain came. And came. But no one seemed to mind.`\
 https://nytimes.com/athletic/5662021/2024/07/27/2024-paris-olympics-opening-ceremony-rain/
 
