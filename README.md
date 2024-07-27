@@ -1,3 +1,7 @@
+**Justin Herbert, offense get a chance to air it out at Chargers training camp**\
+`Also, Rashawn Slater raises some concern with an early exit from Friday's practice.`\
+https://nytimes.com/athletic/5662032/2024/07/27/justin-herbert-chargers-training-camp/
+
 **Can American men's gymnastics team give a waning U.S. sport a boost in Paris?**\
 `One of the strongest U.S. Olympic men's gymnastics teams in years competes in Paris at a vital time for the sport in America.`\
 https://nytimes.com/athletic/5646175/2024/07/27/olympics-usa-mens-gymnastics-ncaa-college/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/27/world/olympics/gymnastics-uneven-bars.html
 **Your Guide to Olympic Gymnastics: Balance Beam**\
 `Want to follow the women’s gymnastics competition in Paris, but don’t understand the skills or how they’re scored? Here’s a guide.`\
 https://nytimes.com/2024/07/27/world/olympics/balance-beam-gymnastics.html
-
-**New Israeli Evacuation Order in Gaza Displaces Palestinians Again**\
-`The Israeli military said its recent evacuations and operations in the Khan Younis area of southern Gaza have targeted a renewed Hamas insurgency.`\
-https://nytimes.com/2024/07/27/world/middleeast/israel-evacuation-order-gaza.html
 
