@@ -1,3 +1,7 @@
+**Victor Wembanyama's Olympic debut for France: What players and coaches thought**\
+`How did Victor Wembanyama's first Olympic game go? We asked his teammates, coach and oponents.`\
+https://nytimes.com/athletic/5662943/2024/07/27/victor-wembanyama-olympics-debut-france/
+
 **California School Official Who Embezzled $16.7 Million Gets Nearly 6 Years in Prison**\
 `Jorge Armando Contreras used his position at a school district in Orange County to fund a luxurious lifestyle, prosecutors said.`\
 https://nytimes.com/2024/07/27/us/california-school-embezzlement.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5662860/2024/07/27/david-de-gea-genoa/
 **What I'm hearing about the trade deadline: Orioles aren't done, Royals looking for a bat**\
 `Plus more on the Giants' plans with Michael Conforto and what the Dodgers may do after missing out on Randy Arozarena.`\
 https://nytimes.com/athletic/5662942/2024/07/27/trade-deadline-mlb-royals-orioles-giants/
-
-**Nadal, Alcaraz victorious in first doubles match together at Paris 2024**\
-`Both players are French Open champions at Roland Garros, with Nadal winning 14 and Alcaraz winning his first this year.`\
-https://nytimes.com/athletic/5662827/2024/07/27/nadal-alcaraz-doubles-tennis-paris-2024/
 
