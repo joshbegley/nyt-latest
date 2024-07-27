@@ -1,3 +1,11 @@
+**New Israeli Evacuation Order in Gaza Displaces Palestinians Again**\
+`The Israeli military said its recent evacuations and operations in the Khan Younis area of southern Gaza have targeted a renewed Hamas insurgency.`\
+https://nytimes.com/2024/07/27/world/middleeast/israel-evacuation-order-gaza.html
+
+**South Korea stung by Paris Olympics opening ceremony introduction as North Korea**\
+`South Korea is seeking a meeting with International Olympic Committee (IOC) president Thomas Bach after its athletes were wrongly introduced as North Korean during the opening ceremony for the Paris Olympics.`\
+https://nytimes.com/athletic/5662302/2024/07/27/south-korea-stung-by-introduction-at-paris-olympics-opening-ceremony-as-north-korea/
+
 **Angels fail to sign third-round pick, raising questions about pre-draft due diligence**\
 `Ryan Prager spurned the Angels, electing to return to Texas A&M. “We weren’t going to settle or take a situation that wasn’t the very best.”`\
 https://nytimes.com/athletic/5661952/2024/07/27/angels-ryan-prager-mlb-draft-unsigned/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/27/opinion/kamala-harris-campaign-skeptic.html
 **The Police Killing of Sonya Massey Argues for Alternatives to Reform**\
 `Until we narrow the scope of what police officers can do, we’ll continue to see officers bring violence into situations that don’t require it.`\
 https://nytimes.com/2024/07/27/opinion/sonya-massey-illinois-police-reform.html
-
-**How Kamala Harris Can Win**\
-`She will need a message that reconnects the Democratic Party with the working-class voters it has alienated in recent decades.`\
-https://nytimes.com/2024/07/27/opinion/kamala-harris-strategy.html
-
-**Kamala Harris and the Audacity of Desperation**\
-`With the surge of support for her candidacy, you can sense an effort to overcome divisions on the left and to recover the unity of 2020.`\
-https://nytimes.com/2024/07/27/opinion/kamala-harris-democrats.html
 
