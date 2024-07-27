@@ -1,3 +1,11 @@
+**South Korea Reports Leak From Its Military Intelligence Command**\
+`It’s highly unusual for the nation’s authorities to publicly acknowledge a leak from the command​, which is one of South Korea’s top two spy agencies.`\
+https://nytimes.com/2024/07/27/world/asia/south-korea-intelligence-leaks-north-korea.html
+
+**Your Guide to Olympic Gymnastics: Uneven Bars**\
+`Want to follow the women’s gymnastics competition in Paris, but don’t understand the skills or how they’re scored? Here’s a guide.`\
+https://nytimes.com/2024/07/27/world/olympics/gymnastics-uneven-bars.html
+
 **Your Guide to Olympic Gymnastics: Balance Beam**\
 `Want to follow the women’s gymnastics competition in Paris, but don’t understand the skills or how they’re scored? Here’s a guide.`\
 https://nytimes.com/2024/07/27/world/olympics/balance-beam-gymnastics.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/27/world/asia/china-doping-zhang-yufei.html
 **Broncos made concerted shift in the secondary — and early returns are promising**\
 `The Broncos have big plans for second-year cornerback Riley Moss.`\
 https://nytimes.com/athletic/5661144/2024/07/27/broncos-training-camp-secondary/
-
-**Beloved veteran Kenny Clark has lofty goals after entering rarefied air with third Packers contract**\
-`Clark has joined the likes of Aaron Rodgers, David Bakhtiari and Jordy Nelson as players to secure third contracts from the Packers.`\
-https://nytimes.com/athletic/5660690/2024/07/27/kenny-clark-packers-third-contract/
-
-**I Was a Kamala Harris Skeptic. Here’s How I Got Coconut-Pilled.**\
-`Harris’s success and setbacks could make her the ideal candidate against a man who admits no mistakes, has no humility and is utterly unrelatable.`\
-https://nytimes.com/2024/07/27/opinion/kamala-harris-campaign-skeptic.html
 

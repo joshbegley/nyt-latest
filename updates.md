@@ -1,3 +1,11 @@
+**South Korea Reports Leak From Its Military Intelligence Command**\
+`It’s highly unusual for the nation’s authorities to publicly acknowledge a leak from the command​, which is one of South Korea’s top two spy agencies.`\
+https://nytimes.com/2024/07/27/world/asia/south-korea-intelligence-leaks-north-korea.html
+
+**Your Guide to Olympic Gymnastics: Uneven Bars**\
+`Want to follow the women’s gymnastics competition in Paris, but don’t understand the skills or how they’re scored? Here’s a guide.`\
+https://nytimes.com/2024/07/27/world/olympics/gymnastics-uneven-bars.html
+
 **Your Guide to Olympic Gymnastics: Balance Beam**\
 `Want to follow the women’s gymnastics competition in Paris, but don’t understand the skills or how they’re scored? Here’s a guide.`\
 https://nytimes.com/2024/07/27/world/olympics/balance-beam-gymnastics.html
