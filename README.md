@@ -1,3 +1,7 @@
+**As hot stove heats up, Blue Jays' Yusei Kikuchi expects to be moved by deadline**\
+`Kikuchi made what could be his last start with the Blue Jays on Friday, as the left-hander is expected to be traded by the deadline.`\
+https://nytimes.com/athletic/5662108/2024/07/27/yusei-kikuchi-blue-jays-trade-scenarios/
+
 **The French Swimmer Who Is Carrying His Country on His Back**\
 `Léon Marchand, who has the potential to win medals in four individual events, bears much of the weight of France’s expectations. He is ready, he says, but adds, “it does feel weird.”`\
 https://nytimes.com/2024/07/27/world/olympics/leon-marchand-france-swimming-olympics.html
@@ -34,8 +38,4 @@ https://nytimes.com/2024/07/26/crosswords/daily-puzzle-2024-07-27.html
 **Astros' GM Dana Brown: Starting pitching remains top priority at trade deadline**\
 `Brown said the Astros are looking for a No. 3 or 4 starter, preferably one who is controllable beyond this season.`\
 https://nytimes.com/athletic/5661905/2024/07/26/astros-dana-brown-trade-deadline-starting-pitching/
-
-**The Most Stylish Olympic Opening Ceremony Ever**\
-`Paris raised the fashion stakes for the XXXIII Olympiad, and even with the rain, the result transformed the Seine into a watery runway.`\
-https://nytimes.com/2024/07/26/style/the-most-stylish-olympic-opening-ceremony-ever.html
 
