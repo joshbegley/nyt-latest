@@ -1,3 +1,7 @@
+**The great America-Australia relay rivalry gets another worthy chapter in Paris**\
+`On Saturday night, Australia and the U.S. each won one of the two 4x100-meter freestyle relays. And that feels right.`\
+https://nytimes.com/athletic/5663050/2024/07/27/2024-paris-olympics-swimming-relay-america-australia/
+
 **Phillies get Carlos Estévez in trade with Angels to boost bullpen: Sources**\
 `The Phillies fortified their bullpen Saturday evening by acquiring one of the best-available rental relievers, Angels closer Carlos Estévez.`\
 https://nytimes.com/athletic/5663218/2024/07/27/carlos-estevez-trade-phillies-angels/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5662943/2024/07/27/victor-wembanyama-olympics-debut
 **California School Official Who Embezzled $16.7 Million Gets Nearly 6 Years in Prison**\
 `Jorge Armando Contreras used his position at a school district in Orange County to fund a luxurious lifestyle, prosecutors said.`\
 https://nytimes.com/2024/07/27/us/california-school-embezzlement.html
-
-**Villa investigating Duran over alleged West Ham gesture**\
-`Aston Villa forward Jhon Duran faces disciplinary action after appearing to cross his arms to make an Irons-shaped gesture, amid ongoing interest from West Ham.`\
-https://nytimes.com/athletic/5663030/2024/07/27/aston-villa-investigating-jhon-duran/
 
