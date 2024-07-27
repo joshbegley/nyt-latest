@@ -18,6 +18,11 @@ https://nytimes.com/athletic/5661917/2024/07/26/rays-trades-randy-arozarena-zach
 `\
 https://nytimes.com/athletic/5661917/2024/07/26/rays-trades-randy-arozarena-zach-eflin/
 
+**Payroll-shedding trades of Randy Arozarena and Zach Eflin in line with Rays’ philosophy**\
+`“We are a worse team today than we were 24 hours ago," Erik Neander said. "That’s not something we can shy away from.”
+`\
+https://nytimes.com/athletic/5661917/2024/07/26/rays-trades-randy-arozarena-zach-eflin/
+
 **As hot stove heats up, Blue Jays' Yusei Kikuchi expects to be moved by deadline**\
 `Kikuchi made what could be his last start with the Blue Jays on Friday, as the left-hander is expected to be traded by the deadline.`\
 https://nytimes.com/athletic/5662108/2024/07/27/yusei-kikuchi-blue-jays-trade-scenarios/
