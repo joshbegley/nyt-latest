@@ -1,3 +1,15 @@
+**Ariarne Titmus beats Katie Ledecky, Summer McIntosh for second straight gold in 400-meter free**\
+`Titmus has not lost this race in competition since 2019.`\
+https://nytimes.com/athletic/5662595/2024/07/27/katie-ledecky-ariarne-titmus-summer-mcintosh-400-meter-freestyle-swimming-paris-olympics/
+
+**JD Vance Hits Back at Jennifer Aniston, Defending ‘Childless Cat Ladies’ Remarks**\
+`The “Friends” actress, who has been open about her fertility struggles, recently criticized Mr. Vance’s 2021 comments on social media.`\
+https://nytimes.com/2024/07/27/us/politics/jd-vance-jennifer-aniston-childless-cat-lady.html
+
+**New Zealand 1 United States 4: Dead balls help clinical U.S. clinch record-breaking win**\
+`Jeff Rueter breaks down the main talking points from the USMNT's 4-1 win over New Zealand at the 2024 Olympic Games`\
+https://nytimes.com/athletic/5662593/2024/07/27/new-zealand-1-united-states-4-olympics-paris/
+
 **France wins first gold medal of Paris Games in men's rugby sevens**\
 `For the first time in 100 years, the last time the Olympics were held in Paris, the French team medaled at the Olympics in rugby.`\
 https://nytimes.com/athletic/5662738/2024/07/27/france-first-gold-medal-rugby-sevens-fiji/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5662734/2024/07/27/kodai-senga-mets-out-regular-sea
 **Rocket From Lebanon Kills at Least 10 in Israeli-Controlled Golan Heights**\
 `It was the deadliest single attack from across Israel’s northern border in months of hostilities, according to the military. Israel blamed Iran-backed Hezbollah, which denied responsibility.`\
 https://nytimes.com/2024/07/27/world/middleeast/israel-golan-heights-lebanon-rocket.html
-
-**Belgian GP preview: Ferrari looks to capitalize at Spa, Checo's big chance**\
-`Plus: Can Max Verstappen win from the back half of the grid? `\
-https://nytimes.com/athletic/5662578/2024/07/27/f1-belgian-gp-preview-ferrari-verstappen-perez/
-
-**Palmer, Cucurella and Gallagher given extended summer breaks**\
-`Chelsea have told Cole Palmer, Marc Cucurella and Conor Gallagher they do not have to join their pre-season tour of the United States and can begin training at Cobham in early August instead.`\
-https://nytimes.com/athletic/5662680/2024/07/27/chelsea-cole-palmer-break/
-
-**Liverpool considering sending Doak on loan**\
-`Ben Doak is attracting interest from a number of Premier League clubs as Liverpool consider sanctioning a loan move for him this season.`\
-https://nytimes.com/athletic/5662544/2024/07/27/ben-doak-loan-liverpool/
 
