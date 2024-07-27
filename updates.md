@@ -1,3 +1,7 @@
+**Durant set to play in Team USA's Paris Olympics opener**\
+`PARIS – Barring any last minute setbacks, Kevin Durant will make his 2024 debut with Team USA Sunday in game 1 of the Paris Olympics vs.`\
+https://nytimes.com/athletic/5662289/2024/07/27/kevin-durant-injury-team-usa-olympics/
+
 **The Olympics Have Arrived**\
 `The Games present untold opportunities to geek out on sports you haven’t thought about for several years, or ever.`\
 https://nytimes.com/2024/07/27/briefing/the-olympics-have-arrived.html

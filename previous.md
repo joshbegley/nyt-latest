@@ -1,3 +1,7 @@
+**Durant set to play in Team USA's Paris Olympics opener**\
+`PARIS – Barring any last minute setbacks, Kevin Durant will make his 2024 debut with Team USA Sunday in game 1 of the Paris Olympics vs.`\
+https://nytimes.com/athletic/5662289/2024/07/27/kevin-durant-injury-team-usa-olympics/
+
 **The Olympics Have Arrived**\
 `The Games present untold opportunities to geek out on sports you haven’t thought about for several years, or ever.`\
 https://nytimes.com/2024/07/27/briefing/the-olympics-have-arrived.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/27/world/europe/kamala-harris-foreign-policy.html
 **Pete Buttigieg Thinks the Trump Fever Could Break**\
 `The Democrat talks about the election vibe shift and what a Kamala Harris win would mean for both parties.`\
 https://nytimes.com/2024/07/27/magazine/pete-buttigieg-interview-election-democrats.html
-
-**At the Olympic opening ceremony, a force of nature upset the plan but not the point**\
-`After years of coordination, Paris' audacious opening ceremony finally arrived. And then the rain came. And came. But no one seemed to mind.`\
-https://nytimes.com/athletic/5662021/2024/07/27/2024-paris-olympics-opening-ceremony-rain/
 
