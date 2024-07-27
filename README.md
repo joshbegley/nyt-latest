@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5660652/2024/07/27/drone-canada-soccer-olympics-spy
 `We explore how cricket became just the ticket for every serious multi-sport investor, how America fits in and where the sport is heading`\
 https://nytimes.com/athletic/5659059/2024/07/27/cricket-olympics-usa-india-investors/
 
-**Braves' losing skid reaches longest since 2017 as they fall to 3rd in NL East**\
+**Braves' losing skid reaches longest since 2017 as they fall to third in NL East**\
 `Charlie Morton said knowing how the Braves have scuffled made it extra frustrating to have a rough outing.`\
 https://nytimes.com/athletic/5662094/2024/07/27/braves-losing-streak-brian-snitker/
 
