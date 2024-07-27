@@ -1,3 +1,7 @@
+**MLB Trade Grades: Will Jazz Chisholm Jr. help fix the Yankees' struggles?**\
+`The Yankees hope Chisholm can help bolster a struggling lineup and fill a need at second base. Was the return they sent to Miami worth it?`\
+https://nytimes.com/athletic/5662923/2024/07/27/mlb-trade-grades-yankees-marlins-chisholm/
+
 **Victor Wembanyama's Olympic debut for France: What players and coaches thought**\
 `How did Victor Wembanyama's first Olympic game go? We asked his teammates, coach and oponents.`\
 https://nytimes.com/athletic/5662943/2024/07/27/victor-wembanyama-olympics-debut-france/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/27/us/park-fires-california-evacuation-order.html
 **De Gea in talks to join Genoa**\
 `Former Manchester United goalkeeper David de Gea is in talks to join Genoa on a free transfer.`\
 https://nytimes.com/athletic/5662860/2024/07/27/david-de-gea-genoa/
-
-**What I'm hearing about the trade deadline: Orioles aren't done, Royals looking for a bat**\
-`Plus more on the Giants' plans with Michael Conforto and what the Dodgers may do after missing out on Randy Arozarena.`\
-https://nytimes.com/athletic/5662942/2024/07/27/trade-deadline-mlb-royals-orioles-giants/
 
