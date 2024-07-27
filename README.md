@@ -10,6 +10,10 @@ https://nytimes.com/athletic/5662289/2024/07/27/kevin-durant-injury-team-usa-oly
 `The Games present untold opportunities to geek out on sports you haven’t thought about for several years, or ever.`\
 https://nytimes.com/2024/07/27/briefing/the-olympics-have-arrived.html
 
+**What are 2024 Olympic gold medals made of? Explaining the Eiffel Tower connection**\
+`Paris 2024 is significant because, when athletes win gold, they will take home a piece of the Eiffel Tower.`\
+https://nytimes.com/athletic/5661154/2024/07/27/paris-olympics-gold-medals-eiffel-tower-louis-vuitton/
+
 **The trade deadline that blindsided Pete Crow-Armstrong**\
 `Crow-Armstrong might be the Cubs' best hope to salvage their 2021 sell-off.`\
 https://nytimes.com/athletic/5661940/2024/07/27/pete-crow-armstrong-2021-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5660830/2024/07/27/usa-serbia-olympic-basketball-bo
 **Atletico reach agreement to sign Le Normand from Real Sociedad**\
 `Atletico Madrid have reached an agreement to sign Spain international defender Robin Le Normand from Real Sociedad.`\
 https://nytimes.com/athletic/5661067/2024/07/27/atletico-madrid-transfer-le-normand/
-
-**Kamala Harris Is Known Abroad for a Personal Touch, and Tough Talk**\
-`Heads of state and diplomats who have interacted with the presumptive Democratic presidential nominee say she uses humor, and talk of food, to help leaven hard discussions.`\
-https://nytimes.com/2024/07/27/world/europe/kamala-harris-foreign-policy.html
 
