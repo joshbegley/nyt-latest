@@ -1,3 +1,8 @@
+**Payroll-shedding trades of Randy Arozarena and Zach Eflin in line with Rays’ philosophy**\
+`“We are a worse team today than we were 24 hours ago," Erik Neander said. "That’s not something we can shy away from.”
+`\
+https://nytimes.com/athletic/5661917/2024/07/26/rays-trades-randy-arozarena-zach-eflin/
+
 **Level, Essentially**\
 `You’ll need good balance to take on Barbara Lin and Matthew Stock’s collaboration.`\
 https://nytimes.com/2024/07/26/crosswords/daily-puzzle-2024-07-27.html
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/5654084/2024/07/26/jordan-love-deal-contract-green-
 **MLB Trade Grades: Can Mets' move for Ryne Stanek give them the bullpen boost they need?**\
 `The Mets are looking to provide stability in their bullpen, and the acquisition of Stanek appears to be one way to address that. `\
 https://nytimes.com/athletic/5661793/2024/07/26/mlb-trade-grades-mets-mariners-stanek/
-
-**Blake Snell trade scenarios: Ranking the teams who might have the most interest in him**\
-`From the Dodgers to the Royals, a look at the teams that would match-up best for the Giants in a potential Snell deal.`\
-https://nytimes.com/athletic/5661210/2024/07/26/blake-snell-trade-scenarios-sf-giants/
 
