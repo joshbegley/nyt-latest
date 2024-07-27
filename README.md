@@ -11,7 +11,7 @@ https://nytimes.com/2024/07/27/nyregion/teen-boy-killed-subway-queens.html
 https://nytimes.com/athletic/5662734/2024/07/27/kodai-senga-mets-out-regular-season/
 
 **Rocket From Lebanon Kills at Least 10 in Israeli-Controlled Golan Heights**\
-`Israel blamed Iran-backed Hezbollah for the attack, but the Lebanese militant group denied responsibility.`\
+`It was the deadliest single attack from across Israel’s northern border in months of hostilities, according to the military. Israel blamed Iran-backed Hezbollah, which denied responsibility.`\
 https://nytimes.com/2024/07/27/world/middleeast/israel-golan-heights-lebanon-rocket.html
 
 **Belgian GP preview: Ferrari looks to capitalize at Spa, Checo's big chance**\
