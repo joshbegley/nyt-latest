@@ -1,3 +1,7 @@
+**Seahawks training camp: Plenty of intrigue in receiver-cornerback red zone battle**\
+`Seattle's offense has been sharp through three days, but the defense is making it work for everything, which is what Mike Macdonald wants.`\
+https://nytimes.com/athletic/5661805/2024/07/27/seahawks-training-camp-red-zone-battles/
+
 **Justin Herbert, offense get a chance to air it out at Chargers training camp**\
 `Also, Rashawn Slater raises some concern with an early exit from Friday's practice.`\
 https://nytimes.com/athletic/5662032/2024/07/27/justin-herbert-chargers-training-camp/

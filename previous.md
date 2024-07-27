@@ -1,3 +1,7 @@
+**Seahawks training camp: Plenty of intrigue in receiver-cornerback red zone battle**\
+`Seattle's offense has been sharp through three days, but the defense is making it work for everything, which is what Mike Macdonald wants.`\
+https://nytimes.com/athletic/5661805/2024/07/27/seahawks-training-camp-red-zone-battles/
+
 **Justin Herbert, offense get a chance to air it out at Chargers training camp**\
 `Also, Rashawn Slater raises some concern with an early exit from Friday's practice.`\
 https://nytimes.com/athletic/5662032/2024/07/27/justin-herbert-chargers-training-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/27/world/asia/south-korea-intelligence-leaks-north-k
 **Your Guide to Olympic Gymnastics: Uneven Bars**\
 `Want to follow the women’s gymnastics competition in Paris, but don’t understand the skills or how they’re scored? Here’s a guide.`\
 https://nytimes.com/2024/07/27/world/olympics/gymnastics-uneven-bars.html
-
-**Your Guide to Olympic Gymnastics: Balance Beam**\
-`Want to follow the women’s gymnastics competition in Paris, but don’t understand the skills or how they’re scored? Here’s a guide.`\
-https://nytimes.com/2024/07/27/world/olympics/balance-beam-gymnastics.html
 
