@@ -1,3 +1,7 @@
+**Raiders training camp: Confident secondary dominates as quarterback struggles continue**\
+`As the Raiders' passing game continued its slow start, the defensive secondary made lots of plays and looks to be gaining confidence.`\
+https://nytimes.com/athletic/5661544/2024/07/26/raiders-training-camp-secondary-qbs/
+
 **Why the Phillies traded for Austin Hays and how they view him, as focus shifts to bullpen**\
 `The Phillies think they can find a better use for Hays than the Orioles did. The focus now turns to the bullpen. They have scouted closers. `\
 https://nytimes.com/athletic/5661706/2024/07/26/phillies-austin-hays-trade-deadine-bullpen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5661699/2024/07/26/dodgers-freddie-freeman-family/
 **The best boats of the 2024 Olympic opening ceremony**\
 `The Seine entertained 85 boats carrying 205 delegations.`\
 https://nytimes.com/athletic/5661317/2024/07/26/olympics-opening-ceremony-boat-rankings/
-
-**Gail Lumet Buckley, Chronicler of Black Family History, Dies at 86**\
-`She wrote two books about multiple generations of her forebears, including her mother, Lena Horne.`\
-https://nytimes.com/2024/07/26/books/gail-lumet-buckley-dead.html
 
