@@ -1,3 +1,11 @@
+**Bullet or Fragment of One Struck Trump’s Ear, F.B.I. Says**\
+`The explanation was the most definitive to date after the bureau’s director had earlier suggested the former president might have been hit by shrapnel, igniting a political storm.`\
+https://nytimes.com/2024/07/26/us/politics/fbi-trump-bullet-ear.html
+
+**Zach Eflin gives Orioles a much-needed rotation boost at a minimal cost**\
+`The Orioles needed rotation stability and that's what they get in Eflin, and they didn't have to give up too much to get him.`\
+https://nytimes.com/athletic/5661791/2024/07/26/orioles-rays-zach-eflin-trade-analysis/
+
 **Elon Musk’s Transgender Daughter Says He Was ‘Cruel’ and ‘Uncaring’**\
 `Vivian Jenna Wilson’s remarks, in an exclusive interview with NBC News, were a response to Mr. Musk’s comments about her transgender identity.`\
 https://nytimes.com/2024/07/26/business/media/elon-musk-daughter-interview-nbc.html
