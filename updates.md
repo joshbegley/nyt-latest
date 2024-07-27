@@ -88,6 +88,11 @@ https://nytimes.com/athletic/5661917/2024/07/26/rays-trades-randy-arozarena-zach
 `\
 https://nytimes.com/athletic/5661917/2024/07/26/rays-trades-randy-arozarena-zach-eflin/
 
+**Payroll-shedding trades of Randy Arozarena and Zach Eflin in line with Rays’ philosophy**\
+`“We are a worse team today than we were 24 hours ago," Erik Neander said. "That’s not something we can shy away from.”
+`\
+https://nytimes.com/athletic/5661917/2024/07/26/rays-trades-randy-arozarena-zach-eflin/
+
 **Mets ace Kodai Senga returns, then leaves with left calf strain**\
 `The strain will send Senga to the injured list. How long he’ll be out depends on the results of an MRI.`\
 https://nytimes.com/athletic/5661888/2024/07/26/mets-kodai-senga-calf-injury/
