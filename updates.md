@@ -1,3 +1,7 @@
+**Can American men's gymnastics team give a waning U.S. sport a boost in Paris?**\
+`One of the strongest U.S. Olympic men's gymnastics teams in years competes in Paris at a vital time for the sport in America.`\
+https://nytimes.com/athletic/5646175/2024/07/27/olympics-usa-mens-gymnastics-ncaa-college/
+
 **Gretchen Walsh, 'bathtub swimmer' no more, arrives at her big Olympic moment**\
 `Gretchen Walsh spent years hearing that she could only excel in short-course pools. Now she is competing in Paris as a medal favorite.`\
 https://nytimes.com/athletic/5662314/2024/07/27/gretchen-walsh-2024-paris-olympics-swimming/
