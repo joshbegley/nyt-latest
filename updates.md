@@ -1,3 +1,7 @@
+**A New Wave**\
+`Michael February, a boundary-breaking surfer and the first Black South African on the World Surf League Championship Tour, embarks on a transformative journey.`\
+https://nytimes.com/video/opinion/100000009382183/a-new-wave.html
+
 **What are 2024 Olympic gold medals made of? Explaining the Eiffel Tower connection**\
 `Paris 2024 is significant because, when athletes win gold, they will take home a piece of the Eiffel Tower.`\
 https://nytimes.com/athletic/5661154/2024/07/27/paris-olympics-gold-medals-eiffel-tower-louis-vuitton/

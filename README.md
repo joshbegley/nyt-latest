@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5662289/2024/07/27/kevin-durant-injury-team-usa-oly
 `The Games present untold opportunities to geek out on sports you haven’t thought about for several years, or ever.`\
 https://nytimes.com/2024/07/27/briefing/the-olympics-have-arrived.html
 
-**What are 2024 Olympic gold medals made of? Explaining the Eiffel Tower connection**\
+**When athletes win Olympic gold medals in Paris, they'll get a piece of the Eiffel Tower**\
 `Paris 2024 is significant because, when athletes win gold, they will take home a piece of the Eiffel Tower.`\
 https://nytimes.com/athletic/5661154/2024/07/27/paris-olympics-gold-medals-eiffel-tower-louis-vuitton/
 
