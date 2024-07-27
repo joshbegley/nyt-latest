@@ -1,3 +1,7 @@
+**MLB Trade Grades: Nick Mears, a Rockies unicorn, heads to Milwaukee**\
+`The Brewers, comfortably atop the NL Central, acquired Colorado Rockies right-hander Nick Mears to add to their bullpen for the stretch run.`\
+https://nytimes.com/athletic/5663153/2024/07/27/mlb-trade-grades-nick-mears-brewers-rockies/
+
 **Olympic opening ceremony has total audience of 28.6 million viewers**\
 `NBCUniversal’s said the ceremony drew a total audience delivery of 28.6 million viewers.`\
 https://nytimes.com/athletic/5663150/2024/07/27/olympic-opening-ceremony-viewers/
