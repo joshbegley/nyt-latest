@@ -1,3 +1,15 @@
+**Liverpool's Carvalho determined to 'make a statement' on pre-season tour**\
+`Fabio Carvalho is determined to use Liverpool’s tour of America to force his way into Arne Slot’s plans for the coming season.`\
+https://nytimes.com/athletic/5662376/2024/07/27/liverpool-fabio-carvalho-future/
+
+**Italy flag bearer apologizes to wife after losing wedding ring in Seine**\
+`"It will remain forever in the riverbed of the city of love," Gianmarco Tamberi said of his lost wedding ring.`\
+https://nytimes.com/athletic/5662426/2024/07/27/italy-flag-bearer-wedding-ring-seine/
+
+**Meet the deadly Teahupo'o waves: Why Olympic surfing is in Tahiti**\
+`The origins of surfing date back to Tahiti's region, as it was invented by ancient Polynesians who later took the sport to Hawaii.`\
+https://nytimes.com/athletic/5662331/2024/07/27/where-will-2024-olympic-surfing-take-place/
+
 **Chelsea set to sign goalkeeper Jorgensen from Villarreal**\
 `Chelsea are set to sign Villarreal goalkeeper Filip Jorgensen.`\
 https://nytimes.com/athletic/5662484/2024/07/27/chelsea-filip-jorgensen-transfer-medical/
