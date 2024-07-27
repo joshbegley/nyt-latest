@@ -1,3 +1,7 @@
+**Blue Jays top prospect Ricky Tiedemann to have Tommy John surgery**\
+`Tiedemann has been limited to just 61 1/3 innings over the last two seasons and is likely to miss most — if not all — of next season.`\
+https://nytimes.com/athletic/5662716/2024/07/27/ricky-tiedemann-blue-jays-tommy-john-surgery/
+
 **15-Year-Old Dies in Queens, Likely From ‘Subway Surfing,’ Police Say**\
 `The teenage boy was found unconscious at a subway station in the Rockaways early Friday evening.`\
 https://nytimes.com/2024/07/27/nyregion/teen-boy-killed-subway-queens.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5662541/2024/07/27/garrett-crochet-white-sox-trade-
 **Multiple medical stoppages for ill fans during Torquay vs Plymouth**\
 `A pre-season friendly match between Devon rivals Torquay United and Plymouth Argyle twice had to be stopped on Saturday following multiple medical emergencies in the crowd at Plainmoor Stadium.`\
 https://nytimes.com/athletic/5662639/2024/07/27/torquay-plymouth-medical-emergencies/
-
-**FIFA docks Canada women's soccer 6 points for drone spying**\
-`FIFA suspended Canada women&#8217;s soccer coach Bev Priestman for one year, deducted six points from the team&#8217;s Olympic group stage total and issued a fine on Saturday in response to Canada flying a drone over New Zealand&#8217;s training sessions before the start of the Games.`\
-https://nytimes.com/athletic/5662610/2024/07/27/canada-soccer-spying-drone-bev-priestman-fifa/
 

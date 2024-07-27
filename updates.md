@@ -1,3 +1,15 @@
+**15-Year-Old Dies in Queens, Likely From ‘Subway Surfing,’ Police Say**\
+`The teenage boy was found unconscious at a subway station in the Rockaways early Friday evening.`\
+https://nytimes.com/2024/07/27/nyregion/teen-boy-killed-subway-queens.html
+
+**Mets' Senga likely to miss regular season**\
+`The injury occurred Friday night — in Senga’s first start of the season after being sidelined because of shoulder and triceps issues.`\
+https://nytimes.com/athletic/5662734/2024/07/27/kodai-senga-mets-out-regular-season/
+
+**Belgian GP preview: Ferrari looks to capitalize at Spa, Checo's big chance**\
+`Plus: Can Max Verstappen win from the back half of the grid? `\
+https://nytimes.com/athletic/5662578/2024/07/27/f1-belgian-gp-preview-ferrari-verstappen-perez/
+
 **Rocket From Lebanon Kills at Least 10 in Israeli-Controlled Golan Heights**\
 `Israel blamed Iran-backed Hezbollah for the attack, but the Lebanese militant group denied responsibility.`\
 https://nytimes.com/2024/07/27/world/middleeast/israel-golan-heights-lebanon-rocket.html
