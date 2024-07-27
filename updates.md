@@ -1,3 +1,7 @@
+**California School Official Who Embezzled $16.7 Million Gets Nearly 6 Years in Prison**\
+`Jorge Armando Contreras used his position at a school district in Orange County to fund a luxurious lifestyle, prosecutors said.`\
+https://nytimes.com/2024/07/27/us/california-school-embezzlement.html
+
 **Villa investigating Duran over alleged West Ham gesture**\
 `Aston Villa forward Jhon Duran faces disciplinary action after appearing to cross his arms to make an Irons-shaped gesture, amid ongoing interest from West Ham.`\
 https://nytimes.com/athletic/5663030/2024/07/27/aston-villa-investigating-jhon-duran/
