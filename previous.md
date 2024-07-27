@@ -1,3 +1,11 @@
+**Blinken and a Top Chinese Official in Talks on U.S.-China Tensions**\
+`The U.S. secretary of state pressed China’s top foreign policy official on Beijing’s support for Russia’s efforts to rebuild its military industries  during the Ukraine war.`\
+https://nytimes.com/2024/07/27/world/asia/blinken-wang-yi-china-united-states-tensions.html
+
+**Explained: Russia's Paris Olympics 'ban' and who's on the AIN team**\
+`How are Russian athletes able to compete in Paris despite their Olympic ban?`\
+https://nytimes.com/athletic/5662339/2024/07/27/ain-russia-belarus-paris-olympics-2024/
+
 **Seahawks training camp: Plenty of intrigue in receiver-cornerback red zone battle**\
 `Seattle's offense has been sharp through three days, but the defense is making it work for everything, which is what Mike Macdonald wants.`\
 https://nytimes.com/athletic/5661805/2024/07/27/seahawks-training-camp-red-zone-battles/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/27/world/olympics/gymnastics-vault.html
 **Your Guide to Olympic Gymnastics: Floor Exercise**\
 `Want to follow the women’s gymnastics competition in Paris, but don’t understand the skills or how they’re scored? Here’s a guide.`\
 https://nytimes.com/2024/07/27/world/olympics/gymnastics-floor-exercise.html
-
-**South Korea Reports Leak From Its Military Intelligence Command**\
-`It’s highly unusual for the nation’s authorities to publicly acknowledge a leak from the command​, which is one of South Korea’s top two spy agencies.`\
-https://nytimes.com/2024/07/27/world/asia/south-korea-intelligence-leaks-north-korea.html
-
-**Your Guide to Olympic Gymnastics: Uneven Bars**\
-`Want to follow the women’s gymnastics competition in Paris, but don’t understand the skills or how they’re scored? Here’s a guide.`\
-https://nytimes.com/2024/07/27/world/olympics/gymnastics-uneven-bars.html
 

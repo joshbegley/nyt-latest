@@ -1,3 +1,11 @@
+**Blinken and a Top Chinese Official in Talks on U.S.-China Tensions**\
+`The U.S. secretary of state pressed China’s top foreign policy official on Beijing’s support for Russia’s efforts to rebuild its military industries  during the Ukraine war.`\
+https://nytimes.com/2024/07/27/world/asia/blinken-wang-yi-china-united-states-tensions.html
+
+**Explained: Russia's Paris Olympics 'ban' and who's on the AIN team**\
+`How are Russian athletes able to compete in Paris despite their Olympic ban?`\
+https://nytimes.com/athletic/5662339/2024/07/27/ain-russia-belarus-paris-olympics-2024/
+
 **Seahawks training camp: Plenty of intrigue in receiver-cornerback red zone battle**\
 `Seattle's offense has been sharp through three days, but the defense is making it work for everything, which is what Mike Macdonald wants.`\
 https://nytimes.com/athletic/5661805/2024/07/27/seahawks-training-camp-red-zone-battles/
