@@ -1,3 +1,23 @@
+**Astros' GM Dana Brown: Starting pitching remains top priority at trade deadline**\
+`Brown said the Astros are looking for a No. 3 or 4 starter, preferably one who is controllable beyond this season.`\
+https://nytimes.com/athletic/5661905/2024/07/26/astros-dana-brown-trade-deadline-starting-pitching/
+
+**The Most Stylish Olympic Opening Ceremony Ever**\
+`Paris raised the fashion stakes for the XXXIII Olympiad, and even with the rain, the result transformed the Seine into a watery runway.`\
+https://nytimes.com/2024/07/26/style/the-most-stylish-olympic-opening-ceremony-ever.html
+
+**The Briefing: Liverpool 1-0 Real Betis - Slot's setup, need for a No 6 and early impressions**\
+`James Pearce addresses the main talking points from Liverpool's friendly victory over Real Betis`\
+https://nytimes.com/athletic/5655376/2024/07/26/liverpool-real-betis-analysis/
+
+**Paying Jordan Love this much is a big risk, which Packers are no strangers to with QBs**\
+`Green Bay made their quarterback the highest-paid in the league with a four-year, $220 million extension on Friday.`\
+https://nytimes.com/athletic/5639391/2024/07/26/jordan-love-packers-contract-extension/
+
+**It rained on NBC's opening ceremony parade. Will the viewers still come?**\
+`Paris Olympic organizers had grand plans for a sunset opening ceremony. It didn't quite go that way, but it was still a big spectacle.`\
+https://nytimes.com/athletic/5658972/2024/07/26/olympics-opening-ceremony-nbc-broadcast-review/
+
 **Why the Phillies traded for Austin Hays and how they view him, as focus shifts to bullpen**\
 `The Phillies think they can find a better use for Hays than the Orioles did. The focus now turns to the bullpen. They have scouted closers. `\
 https://nytimes.com/athletic/5661706/2024/07/26/phillies-austin-hays-trade-deadine-bullpen/

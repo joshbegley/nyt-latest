@@ -1,3 +1,23 @@
+**Astros' GM Dana Brown: Starting pitching remains top priority at trade deadline**\
+`Brown said the Astros are looking for a No. 3 or 4 starter, preferably one who is controllable beyond this season.`\
+https://nytimes.com/athletic/5661905/2024/07/26/astros-dana-brown-trade-deadline-starting-pitching/
+
+**The Most Stylish Olympic Opening Ceremony Ever**\
+`Paris raised the fashion stakes for the XXXIII Olympiad, and even with the rain, the result transformed the Seine into a watery runway.`\
+https://nytimes.com/2024/07/26/style/the-most-stylish-olympic-opening-ceremony-ever.html
+
+**The Briefing: Liverpool 1-0 Real Betis - Slot's setup, need for a No 6 and early impressions**\
+`James Pearce addresses the main talking points from Liverpool's friendly victory over Real Betis`\
+https://nytimes.com/athletic/5655376/2024/07/26/liverpool-real-betis-analysis/
+
+**Paying Jordan Love this much is a big risk, which Packers are no strangers to with QBs**\
+`Green Bay made their quarterback the highest-paid in the league with a four-year, $220 million extension on Friday.`\
+https://nytimes.com/athletic/5639391/2024/07/26/jordan-love-packers-contract-extension/
+
+**It rained on NBC's opening ceremony parade. Will the viewers still come?**\
+`Paris Olympic organizers had grand plans for a sunset opening ceremony. It didn't quite go that way, but it was still a big spectacle.`\
+https://nytimes.com/athletic/5658972/2024/07/26/olympics-opening-ceremony-nbc-broadcast-review/
+
 **Mets ace Kodai Senga returns, then leaves with left calf strain**\
 `Any additional time Senga misses would be critical to the Mets, who have been counting on the return of their ace.`\
 https://nytimes.com/athletic/5661888/2024/07/26/mets-kodai-senga-calf-injury/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5661210/2024/07/26/blake-snell-trade-scenarios-sf-g
 **Bullet or Fragment of One Struck Trump’s Ear, F.B.I. Says**\
 `The explanation was the most definitive to date after the bureau’s director had earlier suggested the former president might have been hit by shrapnel, igniting a political storm.`\
 https://nytimes.com/2024/07/26/us/politics/fbi-trump-bullet-ear.html
-
-**Zach Eflin gives Orioles a much-needed rotation boost at a minimal cost**\
-`The Orioles needed rotation stability and that's what they get in Eflin, and they didn't have to give up too much to get him.`\
-https://nytimes.com/athletic/5661791/2024/07/26/orioles-rays-zach-eflin-trade-analysis/
-
-**Mets add to bullpen with trade for Ryne Stanek**\
-`Stanek’s role is likely to come in the sixth and seventh innings. That’s still important for a bullpen that needs to get healthy.`\
-https://nytimes.com/athletic/5661783/2024/07/26/mets-trade-ryne-stanek/
-
-**Raiders training camp: Confident secondary dominates as quarterback struggles continue**\
-`As the Raiders' passing game continued its slow start, the defensive secondary made lots of plays and looks to be gaining confidence.`\
-https://nytimes.com/athletic/5661544/2024/07/26/raiders-training-camp-secondary-qbs/
-
-**Why the Phillies traded for Austin Hays and how they view him, as focus shifts to bullpen**\
-`The Phillies think they can find a better use for Hays than the Orioles did. The focus now turns to the bullpen. They have scouted closers. `\
-https://nytimes.com/athletic/5661706/2024/07/26/phillies-austin-hays-trade-deadine-bullpen/
-
-**Snoop Dogg, NBC’s New Voice of the People**\
-`The network hired the rapper for an expanded role on its broadcasts of the Summer Games in Paris after posting record-low viewership of the Tokyo competition.`\
-https://nytimes.com/2024/07/26/world/olympics/snoop-dogg-nbc-olympics.html
 
