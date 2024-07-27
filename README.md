@@ -1,3 +1,7 @@
+**Cubs acquire former first rounder Nate Pearson from Blue Jays: Sources**\
+`Pearson was once the Blue Jays’ top pitching prospect and was projected to be a frontline starter. But injuries have derailed his career.`\
+https://nytimes.com/athletic/5662618/2024/07/27/nate-pearson-cubs-blue-jays-trade/
+
 **Rosenthal: Garrett Crochet's reported stance on his playoff usage shouldn't deter teams from trading for him**\
 `Clubs continue to pursue the White Sox pitcher despite a reported refusal to pitch in the playoffs without a contract extension.`\
 https://nytimes.com/athletic/5662541/2024/07/27/garrett-crochet-white-sox-trade-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5662527/2024/07/27/eddie-howe-newcastle-england/
 **Liverpool's Carvalho determined to 'make a statement' on pre-season tour**\
 `Fabio Carvalho is determined to use Liverpool’s tour of America to force his way into Arne Slot’s plans for the coming season.`\
 https://nytimes.com/athletic/5662376/2024/07/27/liverpool-fabio-carvalho-future/
-
-**Italy flag bearer apologizes to wife after losing wedding ring in Seine**\
-`"It will remain forever in the riverbed of the city of love," Gianmarco Tamberi said of his lost wedding ring.`\
-https://nytimes.com/athletic/5662426/2024/07/27/italy-flag-bearer-wedding-ring-seine/
 
