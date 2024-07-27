@@ -1,3 +1,7 @@
+**Mets blast into NL's top wild-card spot. Is more help on the way?**\
+`New York has checked in on left-handed batters, including former Mets outfielder Michael Conforto.`\
+https://nytimes.com/athletic/5662105/2024/07/27/mets-mlb-trade-deadline-jd-martinez/
+
 **Justice Dept. Defends TikTok Law That Forces App’s Sale or Ban**\
 `In its first detailed response to a legal challenge, the agency said TikTok’s proposed changes wouldn’t prevent China from using it to collect U.S. users’ data or spread propaganda.`\
 https://nytimes.com/2024/07/27/technology/tiktok-ban-appeal-doj.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5660303/2024/07/27/hansi-flick-barcelona-la-liga/
 **Guardiola, his expiring contract and a question that is not going away any time soon**\
 `The Manchester City manager's future is likely to be a constant source of speculation until an announcement is made either way`\
 https://nytimes.com/athletic/5661675/2024/07/27/pep-guardiola-contract-manchester-city/
-
-**As hot stove heats up, Blue Jays' Yusei Kikuchi expects to be moved by deadline**\
-`Kikuchi made what could be his last start with the Blue Jays on Friday, as the left-hander is expected to be traded by the deadline.`\
-https://nytimes.com/athletic/5662108/2024/07/27/yusei-kikuchi-blue-jays-trade-scenarios/
 

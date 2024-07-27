@@ -1,3 +1,7 @@
+**Mets blast into NL's top wild-card spot. Is more help on the way?**\
+`New York has checked in on left-handed batters, including former Mets outfielder Michael Conforto.`\
+https://nytimes.com/athletic/5662105/2024/07/27/mets-mlb-trade-deadline-jd-martinez/
+
 **Justice Dept. Defends TikTok Law That Forces App’s Sale or Ban**\
 `In its first detailed response to a legal challenge, the agency said TikTok’s proposed changes wouldn’t prevent China from using it to collect U.S. users’ data or spread propaganda.`\
 https://nytimes.com/2024/07/27/technology/tiktok-ban-appeal-doj.html
