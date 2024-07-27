@@ -1,3 +1,11 @@
+**Elon Musk Shares Manipulated Harris Video, in Seeming Violation of X’s Policies**\
+`The billionaire owner of the social media platform X reposted a video that mimics Vice President Kamala Harris’s voice, without disclosing that it had been altered.`\
+https://nytimes.com/2024/07/27/us/politics/elon-musk-kamala-harris-deepfake.html
+
+**With precise passes and flying chest bumps, Lamar Jackson proves he's feeling better**\
+`The two-time MVP returned and showed no obvious effects from the illness that forced him to miss four of Baltimore's practices this week. `\
+https://nytimes.com/athletic/5663171/2024/07/27/lamar-jackson-ravens-training-camp-2024/
+
 **MLB Trade Grades: Phillies acquire Carlos Estévez with the World Series in mind**\
 `Both teams, Phillies and Angels, did exactly what they should do — one getting better right now and one getting better for the future. `\
 https://nytimes.com/athletic/5663234/2024/07/27/mlb-trade-grades-phillies-angels-estevez/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/5663234/2024/07/27/mlb-trade-grades-phillies-angels
 https://nytimes.com/athletic/5663139/2024/07/27/danny-jansen-trade-red-sox-blue-jays/
 
 **The great America-Australia relay rivalry gets another worthy chapter in Paris**\
-`On Saturday night, Australia and the U.S. each won one of the two 4x100-meter freestyle relays. And that feels right.`\
+`Saturday night, Australia and the U.S. each won one of the two 4x100-meter freestyle relays. And that feels right.`\
 https://nytimes.com/athletic/5663050/2024/07/27/2024-paris-olympics-swimming-relay-america-australia/
 
 **Phillies get Carlos Estévez in trade with Angels to boost back of bullpen**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5663150/2024/07/27/olympic-opening-ceremony-viewers
 **The Briefing: Chelsea 1 Celtic 4 - Defensive issues, goalkeeper dilemma and Mudryk vs Sterling**\
 `Simon Johnson addresses the key talking points from Chelsea's heavy pre-season friendly defeat by Celtic`\
 https://nytimes.com/athletic/5659065/2024/07/27/chelsea-celtic-friendly-anaysis/
-
-**The Big 5-0**\
-`Paolo Pasco puts solvers (us!) on the podium.`\
-https://nytimes.com/2024/07/27/crosswords/daily-puzzle-2024-07-28.html
-
-**MLB Trade Grades: Will Jazz Chisholm Jr. help fix the Yankees' struggles?**\
-`The Yankees hope Chisholm can help bolster a struggling lineup and fill a need at second base. Was the return they sent to Miami worth it?`\
-https://nytimes.com/athletic/5662923/2024/07/27/mlb-trade-grades-yankees-marlins-chisholm/
 
