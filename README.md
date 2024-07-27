@@ -1,3 +1,7 @@
+**The Briefing: Hull 0 Newcastle 2 - Isak and Murphy shine, but Eddie Howe's options look thin**\
+`Chris Waugh breaks down the main talking points from Newcastle's 2-0 win over Hull City`\
+https://nytimes.com/athletic/5659064/2024/07/27/hull-0-newcastle-2-howe-isak-murphy-transfers/
+
 **Trump Tells Christians ‘You Won’t Have to Vote Anymore’ If He’s Elected**\
 `Donald Trump, after lamenting that conservative Christians are not “big voters,” urged the religious right to turn out for him “just this time.”`\
 https://nytimes.com/2024/07/27/us/politics/trump-votes-christians.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5662328/2024/07/27/endrick-real-madrid-bernabeu/
 **Embattled Democrats Express New Hope With Harris at Top of Ticket**\
 `Incumbents who had feared President Biden would drag them down to defeat say the electoral environment has improved rapidly since he left the race.`\
 https://nytimes.com/2024/07/27/us/democrats-congress-biden-harris.html
-
-**Your Guide to Olympic Gymnastics: Vault**\
-`Want to follow the women’s gymnastics competition in Paris, but don’t understand the skills or how they’re scored? Here’s a guide.`\
-https://nytimes.com/2024/07/27/world/olympics/gymnastics-vault.html
 
