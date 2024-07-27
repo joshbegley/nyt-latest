@@ -1,3 +1,7 @@
+**MLB Trade Grades: Phillies acquire Carlos Estévez with the World Series in mind**\
+`Both teams, Phillies and Angels, did exactly what they should do — one getting better right now and one getting better for the future. `\
+https://nytimes.com/athletic/5663234/2024/07/27/mlb-trade-grades-phillies-angels-estevez/
+
 **Red Sox acquire Danny Jansen from Blue Jays**\
 `Jansen, 29, was the longest-tenured Blue Jay. He'll share time behind the plate in Boston with Connor Wong. `\
 https://nytimes.com/athletic/5663139/2024/07/27/danny-jansen-trade-red-sox-blue-jays/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/27/crosswords/daily-puzzle-2024-07-28.html
 **MLB Trade Grades: Will Jazz Chisholm Jr. help fix the Yankees' struggles?**\
 `The Yankees hope Chisholm can help bolster a struggling lineup and fill a need at second base. Was the return they sent to Miami worth it?`\
 https://nytimes.com/athletic/5662923/2024/07/27/mlb-trade-grades-yankees-marlins-chisholm/
-
-**Victor Wembanyama's Olympic debut for France: What players and coaches thought**\
-`How did Wembanyama's first Olympic game go? We asked his teammates, coach and opponents.`\
-https://nytimes.com/athletic/5662943/2024/07/27/victor-wembanyama-olympics-debut-france/
 
