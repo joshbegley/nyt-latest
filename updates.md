@@ -1,3 +1,7 @@
+**Team USA dominates 4x100 freestyle relay for first gold medal of Paris Games**\
+`Australia took home silver and Italy won bronze.`\
+https://nytimes.com/athletic/5662750/2024/07/27/usa-swimming-caeleb-dressel-freestyle-relay-paris-olympics/
+
 **Despite Park Fire’s Rapid Spread, Some Residents Are Determined to Stay Put**\
 `In Butte County, Calif., some defied evacuation orders so they could protect their property from the fire that has quickly become the state’s largest this year.`\
 https://nytimes.com/2024/07/27/us/park-fires-california-evacuation-order.html
