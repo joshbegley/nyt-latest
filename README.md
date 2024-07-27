@@ -1,3 +1,7 @@
+**The trade deadline that blindsided Pete Crow-Armstrong**\
+`Crow-Armstrong might be the Cubs' best hope to salvage their 2021 sell-off.`\
+https://nytimes.com/athletic/5661940/2024/07/27/pete-crow-armstrong-2021-trade-deadline/
+
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/07/27/us/harris-trump-biden-election/heres-the-latest-on-the-presidential-race
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5662021/2024/07/27/2024-paris-olympics-opening-cere
 **More Trains, but Few Answers, After Railway Sabotage in France**\
 `France’s national railway company said traffic was gradually returning to normal a day after arsonists disrupted three high-speed rail lines. No one has claimed responsibility for the attacks.`\
 https://nytimes.com/2024/07/27/world/europe/france-trains-arson-olympics.html
-
-**Spoiler Alert: Here’s a Guide to the Cameos in ‘Deadpool & Wolverine’**\
-`Ryan Reynolds and Hugh Jackman are the stars, but they get help from a host of actors you may know from other superhero movies.`\
-https://nytimes.com/2024/07/27/movies/deadpool-and-wolverine-cameos.html
 
