@@ -1,3 +1,23 @@
+**‘Maybe I’ve Gotten Worse’: Trump Makes Clear That Unity Is Over**\
+`At a rally in Minnesota on Saturday, former President Donald J. Trump once more escalated his attacks against Vice President Kamala Harris, painting her as extreme and mocking her demeanor.`\
+https://nytimes.com/2024/07/28/us/politics/trump-vance-unity-minnesota.html
+
+**Sunday's MLB odds, best bets: Pitching matchups, playoff odds, props and more**\
+`See pitching matchups, playoff projections, win projections and more for Sunday's MLB games.`\
+https://nytimes.com/athletic/5660772/2024/07/28/mlb-odds-best-bets-projections-july-28/
+
+**Dream Team dreaming: How great can this U.S. men's basketball team still be?**\
+`As their Olympic run begins, the U.S. men are chasing greatness. And perhaps an impossible standard set by the Dream Team.`\
+https://nytimes.com/athletic/5662720/2024/07/28/us-mens-basketball-olympics-dream-team-greatness/
+
+**Meet Carol Callan, the behind-the-scenes architect of the U.S. women's basketball dynasty**\
+`You might not have heard of Callan. But she has played a major role in creating the era of U.S. women's basketball dominance.`\
+https://nytimes.com/athletic/5662464/2024/07/28/carol-callan-us-womens-basketball-dynasty-architect/
+
+**Olympics Today: Sunday's guide for what to watch in Paris**\
+`Medal events in archery, kayaking, cycling, fencing, judo, shooting, skateboarding and swimming take place Sunday.`\
+https://nytimes.com/athletic/5661327/2024/07/28/olympics-2024-watch-guide-day-2-gymnastics-basketball/
+
 **MLB trade deadline roundup: All the deals from Thursday through Saturday**\
 `The action started Thursday and intensified from there, with both Florida teams sending dynamic players to American League contenders.`\
 https://nytimes.com/athletic/5659904/2024/07/27/mlb-trade-deadline-roundup/

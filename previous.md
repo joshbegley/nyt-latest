@@ -1,3 +1,23 @@
+**‘Maybe I’ve Gotten Worse’: Trump Makes Clear That Unity Is Over**\
+`At a rally in Minnesota on Saturday, former President Donald J. Trump once more escalated his attacks against Vice President Kamala Harris, painting her as extreme and mocking her demeanor.`\
+https://nytimes.com/2024/07/28/us/politics/trump-vance-unity-minnesota.html
+
+**Sunday's MLB odds, best bets: Pitching matchups, playoff odds, props and more**\
+`See pitching matchups, playoff projections, win projections and more for Sunday's MLB games.`\
+https://nytimes.com/athletic/5660772/2024/07/28/mlb-odds-best-bets-projections-july-28/
+
+**Dream Team dreaming: How great can this U.S. men's basketball team still be?**\
+`As their Olympic run begins, the U.S. men are chasing greatness. And perhaps an impossible standard set by the Dream Team.`\
+https://nytimes.com/athletic/5662720/2024/07/28/us-mens-basketball-olympics-dream-team-greatness/
+
+**Meet Carol Callan, the behind-the-scenes architect of the U.S. women's basketball dynasty**\
+`You might not have heard of Callan. But she has played a major role in creating the era of U.S. women's basketball dominance.`\
+https://nytimes.com/athletic/5662464/2024/07/28/carol-callan-us-womens-basketball-dynasty-architect/
+
+**Olympics Today: Sunday's guide for what to watch in Paris**\
+`Medal events in archery, kayaking, cycling, fencing, judo, shooting, skateboarding and swimming take place Sunday.`\
+https://nytimes.com/athletic/5661327/2024/07/28/olympics-2024-watch-guide-day-2-gymnastics-basketball/
+
 **MLB trade deadline roundup: All the deals from Thursday through Saturday**\
 `The action started Thursday and intensified from there, with both Florida teams sending dynamic players to American League contenders.`\
 https://nytimes.com/athletic/5659904/2024/07/27/mlb-trade-deadline-roundup/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5663259/2024/07/27/man-united-arsenal-friendly-anal
 **Trump, Appealing to Bitcoin Fans, Vows U.S. Will Be ‘Crypto Capital of the Planet’**\
 `Donald Trump, speaking at a Bitcoin conference, told cryptocurrency holders that he would end the “persecution” of their industry.`\
 https://nytimes.com/2024/07/27/us/politics/trump-bitcoin-crypto.html
-
-**Spencer Schwellenbach strikes out 11 Mets in Braves' shutout as rapid ascent continues**\
-`Braves manager Brian Snitker said he’s seen a lot of young pitchers do big things, but Schwellenbach’s outing ranked near the top.`\
-https://nytimes.com/athletic/5663422/2024/07/27/braves-spencer-schwellenbach-11-strikeouts/
-
-**The Briefing: Arsenal 2 Man United 1 - goals for Jesus and Martinelli, Nwaneri impresses again**\
-`James McNicholas addresses the key talking points from Arsenal's friendly win against Manchester United`\
-https://nytimes.com/athletic/5659074/2024/07/27/arsenal-man-united-friendly-analysis/
-
-**JD Vance Stumbles in His Debut as Democrats Go on Offense**\
-`In the 12 days since Ohio’s junior senator was tapped as the future of Donald J. Trump’s movement, old comments and a chorus of derision have blunted any sense of invulnerability.`\
-https://nytimes.com/2024/07/27/us/politics/jd-vance-trump.html
-
-**Who Is Eminem for in 2024?**\
-`A conversation about the Detroit rapper’s long and unlikely career as his 12th studio album reaches No. 1.`\
-https://nytimes.com/2024/07/27/arts/music/popcast-eminem.html
-
-**Padres firing 'on all cylinders' as winning streak reaches season-best 7 games**\
-`The Padres have outscored their opponents by a combined margin of 43-12 during this dominant stretch.`\
-https://nytimes.com/athletic/5662634/2024/07/27/padres-seven-game-winning-streak/
 
