@@ -1,3 +1,7 @@
+**49ers training camp: With first day in pads near, Dominick Puni's opportunity is here**\
+`An injury to Spencer Burford has helped open the door for Puni, the 49ers' third-round draft pick who might boost their pass protection.`\
+https://nytimes.com/athletic/5662902/2024/07/28/49ers-training-camp-dominick-puni/
+
 **Minteh impresses again as Brighton round off Japan tour with win**\
 `Brighton completed their two-match trip to Japan with a 4-2 victory against Tokyo Verdy.`\
 https://nytimes.com/athletic/5663771/2024/07/28/brighton-japan-tour-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5663739/2024/07/28/simone-biles-injury-gymnastics/
 **Jade Carey, 24**\
 `Carey was recruited to elite gymnastics for her vaulting abilities. Now she is a two-time Olympian.`\
 https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/jade-carey-24
-
-**Here are guides to the vault, bars, beam and floor exercise.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/here-are-guides-to-the-vault-bars-beam-and-floor
 
