@@ -1,3 +1,7 @@
+**Review: ‘The Righteous’ Brings Stirring Prayer to Santa Fe Opera**\
+`Gregory Spears and Tracy K. Smith’s new work about an ambitious minister’s rise in the 1980s is that rarity in contemporary music: an original story.`\
+https://nytimes.com/2024/07/28/arts/music/review-righteous-opera-music.html
+
 **Jill Biden, Jessica Chastain and Nick Jonas Toast Team U.S.A. in Paris**\
 `Athletes, actors, and journalists drank champagne and sampled from a raw bar at a party thrown by Ralph Lauren during the first weekend of the Paris Olympics.`\
 https://nytimes.com/2024/07/28/style/jill-biden-jessica-chastain-nick-jonas-olympics-usa.html
