@@ -1,3 +1,11 @@
+**The Leeds controversy over 'super away attendees' - what's happened and is it fair?**\
+`Some Leeds supporters are unhappy with the new policy around away season tickets`\
+https://nytimes.com/athletic/5657849/2024/07/28/leeds-away-season-ticket-super-away-attendees/
+
+**Mets continue to add pieces, acquire Jesse Winker from Nationals: reports**\
+`Winker ranked No. 30 overall and No. 21 among the available bats on The Athletic’s Top 50 Trade Deadline Big Board.`\
+https://nytimes.com/athletic/5663544/2024/07/28/jesse-winker-trade-mets-nationals/
+
 **Bellingham, Messi and the perils of burnout, incessant football and playing through injury**\
 `Matches, thousands of them — why FIFA are being accused of presiding over an international calendar that is “beyond saturation”`\
 https://nytimes.com/athletic/5658661/2024/07/28/bellingham-messi-injuries-fifpro-calendar-fifa/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5662464/2024/07/28/carol-callan-us-womens-basketbal
 **Olympics Today: Sunday's guide for what to watch in Paris**\
 `Medal events in archery, kayaking, cycling, fencing, judo, shooting, skateboarding and swimming take place Sunday.`\
 https://nytimes.com/athletic/5661327/2024/07/28/olympics-2024-watch-guide-day-2-gymnastics-basketball/
-
-**MLB trade deadline roundup: All the deals from Thursday through Saturday**\
-`The action started Thursday and intensified from there, with both Florida teams sending dynamic players to American League contenders.`\
-https://nytimes.com/athletic/5659904/2024/07/27/mlb-trade-deadline-roundup/
-
-**Beshear, a Potential Harris V.P. Pick, Rallies Democrats in Deep-Red Iowa**\
-`Gov. Andy Beshear of Kentucky has shown off his attack dog chops in recent days, offering a message of unity in a state dominated by Republicans — but where Democrats say they’ve seen fresh energy.`\
-https://nytimes.com/2024/07/27/us/politics/beshear-harris-vp-democrats-iowa.html
 
