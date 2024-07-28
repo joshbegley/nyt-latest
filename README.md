@@ -1,6 +1,14 @@
+**By the smallest of margins, Torri Huske beat her U.S. teammate and managed to heal an old heartbreak at the same time.**\
+`In third place at the turn, Huske powered to gold, edging her teammate — and world-record holder — Gretchen Walsh at the end by touching just ahead of her. `\
+https://nytimes.com/2024/07/28/world/olympics/torri-huske-gretchen-walsh.html
+
 **Want a reliever at MLB trade deadline? Be ready to pay: ‘It may take more than expected’**\
 `Deals for relievers are a staple of the trade deadline. But rising prices have prompted teams to pay a steeper price for bullpen help. `\
 https://nytimes.com/athletic/5664305/2024/07/28/mlb-trade-deadline-relievers-cost/
+
+**Jake Ciely's 2024 Fantasy Football Rankings: Post NFL Draft ranks update**\
+`Now that the dust has settled on the 2024 NFL Draft, Jake Ciely has updated his fantasys football rankings. `\
+https://nytimes.com/athletic/5454803/2024/07/28/2024-fantasy-football-rankings/
 
 **Remembering the Firebrand Irish Novelist Edna O’Brien**\
 `Her fiction delivered searing, candid portraits of Irish society through the prism of female friendship.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5664258/2024/07/28/buffalo-bills-training-camp-keon
 **12 Officials Sentenced for Roles in Devastating Libya Flood**\
 `The officials were punished nearly a year after two dams above the seaside city of Derna failed in a storm, killing thousands and destroying much of the area.`\
 https://nytimes.com/2024/07/28/world/middleeast/libya-flood-convictions.html
-
-**Varane joins Como after Manchester United exit**\
-`Raphael Varane has joined Italian club Como on a free transfer after leaving Manchester United.`\
-https://nytimes.com/athletic/5623202/2024/07/28/raphael-varane-como-transfer/
-
-**Behind a French Roar, Léon Marchand leaves the world’s best swimmers in his wake.**\
-`Marchand, who has been dubbed the “French Michael Phelps,” set the Olympic record in the men’s 400-meter individual medley final.`\
-https://nytimes.com/2024/07/28/world/olympics/leon-marchand-record.html
 
