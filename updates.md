@@ -1,3 +1,7 @@
+**James C. Scott, Iconoclastic Social Scientist, Dies at 87**\
+`In influential books, he questioned top-down government programs and extolled the power of the powerless, embracing a form of anarchism.`\
+https://nytimes.com/2024/07/28/books/james-scott-dead.html
+
 **Andy Murray and Dan Evans pull off ludicrous comeback in Olympic doubles**\
 `Murray and Evans will play Sander Gille and Joran Vliegen of Belgium or Arthur Fils and Ugo Humbert of France in the second round`\
 https://nytimes.com/athletic/5664211/2024/07/28/andy-murray-tennis-paris-olympics-dan-evans/
