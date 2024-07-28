@@ -1,3 +1,11 @@
+**Beshear, a Potential Harris V.P. Pick, Rallies Democrats in Deep-Red Iowa**\
+`Gov. Andy Beshear of Kentucky has shown off his attack dog chops in recent days, offering a message of unity in a state dominated by Republicans — but where Democrats say they’ve seen fresh energy.`\
+https://nytimes.com/2024/07/27/us/politics/beshear-harris-vp-democrats-iowa.html
+
+**Ederson on his Manchester City future: 'There isn't a decision yet'Ederson on his Manchester City future: 'There isn't a decision yet'**\
+`Ederson says no decision has been made about his Manchester City future amid interest from clubs in Saudi Arabia.`\
+https://nytimes.com/athletic/5663493/2024/07/27/ederson-manchester-city-furure/
+
 **The Briefing: Arsenal 2 Man United 1 - Hojlund and Yoro injuries, sharp Mount and Amad-Antony battle**\
 `Laurie Whitwell analyses the main talking points from Manchester United's friendly defeat by Arsenal`\
 https://nytimes.com/athletic/5663259/2024/07/27/man-united-arsenal-friendly-analysis/
