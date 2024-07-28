@@ -22,6 +22,10 @@ https://nytimes.com/2024/07/28/us/politics/harris-asian-american-black-woman.htm
 `After a few sluggish years under President Biden, liberal social media creators are seeing their messages resonate as Kamala Harris campaigns for the White House.`\
 https://nytimes.com/2024/07/28/technology/kamala-harris-memes.html
 
+**Colts' Josh Downs building chemistry (and telepathy) with Anthony Richardson**\
+`Downs and Richardson connected just nine times last season before the QB's season-ending injury. Now, they're making up for lost time.`\
+https://nytimes.com/athletic/5662868/2024/07/28/josh-downs-anthony-richardson-colts/
+
 **A Memoir That Delivers on Its Promise of ‘Sex, Drugs, and Opera’**\
 `In “Seeing Through,” the prolific composer Ricky Ian Gordon shares the heroes, monsters, obsessions and fetishes that drive his art and fuel a dizzying life.`\
 https://nytimes.com/2024/07/28/books/review/ricky-ian-gordon-seeing-through-memoir-opera.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/28/us/politics/far-right-miracle-cure-medbed.html
 **A Pedigreed Rail Magnate Is Pouring Millions Into Electing Donald Trump**\
 `Timothy Mellon, a reclusive heir to a storied fortune, is spending tens of millions to election Donald J. Trump. Precisely what he wants in return is one of many curiosities surrounding him.`\
 https://nytimes.com/2024/07/28/us/politics/donald-trump-2024-campaign-timothy-mellon.html
-
-**Romeo and Juliet, Plus Guns, Cults and Waco, Texas**\
-`An infamous 1993 siege provides the backdrop for Bret Anthony Johnston’s novel about star-crossed lovers.`\
-https://nytimes.com/2024/07/28/books/review/bret-anthony-johnston-we-burn-daylight.html
 
