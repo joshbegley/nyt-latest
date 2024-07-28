@@ -1,3 +1,7 @@
+**Lowetide: Will Oilers management tweak mean stronger European UFA presence?**\
+`As Chicago Blackhawks GM, Stan Bowman had an impressive track record in signing impact Europeans.`\
+https://nytimes.com/athletic/5662532/2024/07/28/oilers-management-european-ufas/
+
 **Padres bolster bullpen, send top pitching prospect to Rays for Jason Adam: source**\
 `The San Diego Padres addressed one of their more glaring needs Sunday by agreeing to acquire one of the top available right-handed relievers, Tampa Bay Rays setup man Jason Adam, in a trade that required surrendering one of their best prospects.`\
 https://nytimes.com/athletic/5663978/2024/07/28/jason-adam-dylan-lesko-padres-rays/
