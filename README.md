@@ -1,3 +1,7 @@
+**Who Is Eminem for in 2024?**\
+`A conversation about the Detroit rapper’s long and unlikely career as his 12th studio album reaches No. 1.`\
+https://nytimes.com/2024/07/27/arts/music/popcast-eminem.html
+
 **Padres firing 'on all cylinders' as winning streak reaches season-best seven games**\
 `The Padres have outscored their opponents by a combined margin of 43-12 during their dominant stretch.`\
 https://nytimes.com/athletic/5662634/2024/07/27/padres-seven-game-winning-streak/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5659073/2024/07/27/manchester-city-ac-milan-friendl
 **For Katie Ledecky, Olympics open with a complicated loss to her biggest rival**\
 `As Ariarne Titmus dealt Katie Ledecky another loss in the 400-meter freestyle, the American wasn't ready to examine her future in the event.`\
 https://nytimes.com/athletic/5663268/2024/07/27/katie-ledecky-olympics-ariarne-titmus-400-meter-freestyle/
-
-**Elon Musk Shares Manipulated Harris Video, in Seeming Violation of X’s Policies**\
-`The billionaire owner of the social media platform X reposted a video that mimics Vice President Kamala Harris’s voice, without disclosing that it had been altered.`\
-https://nytimes.com/2024/07/27/us/politics/elon-musk-kamala-harris-deepfake.html
 
