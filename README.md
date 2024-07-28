@@ -1,3 +1,7 @@
+**The Briefing: Arsenal 2 Man United 1 - Hojlund and Yoro injuries, sharp Mount and Amad-Antony battle**\
+`Laurie Whitwell analyses the main talking points from Manchester United's friendly defeat by Arsenal`\
+https://nytimes.com/athletic/5663259/2024/07/27/man-united-arsenal-friendly-analysis/
+
 **Trump, Appealing to Bitcoin Fans, Vows U.S. Will Be ‘Crypto Capital of the Planet’**\
 `Donald Trump, speaking at a Bitcoin conference, told cryptocurrency holders that he would end the “persecution” of their industry.`\
 https://nytimes.com/2024/07/27/us/politics/trump-bitcoin-crypto.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/27/us/battery-fire-traffic-nevada-california.html
 **MLB Trade Grades: Blue Jays move Danny Jansen to Boston for a trio of prospects**\
 `For Toronto, this is a no-brainer. As for the Red Sox, this move was a little less obvious. Time will tell how Jansen fits in.`\
 https://nytimes.com/athletic/5663337/2024/07/27/mlb-trade-grades-jansen-red-sox-blue-jays/
-
-**Echoes of the Fort McMurray Disaster as Fire Sweeps Into Jasper, Alberta**\
-`About a third of the buildings in the mountain resort town have burned, raising questions about preparedness and the role of climate change.`\
-https://nytimes.com/2024/07/27/world/canada/fire-jasper-alberta.html
 
