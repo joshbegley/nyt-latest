@@ -1,3 +1,11 @@
+**Melinda French Gates Is Ready to Take Sides**\
+`The billionaire philanthropist is turning 60, striking out on her own and getting political.`\
+https://nytimes.com/2024/07/28/magazine/melinda-french-gates-interview.html
+
+**Park Fire in Northern California Grows to 350,000 Acres**\
+`The fire, the largest active blaze in the United States, was only 10 percent contained on Saturday night. It was expected to burn for several more weeks.`\
+https://nytimes.com/2024/07/28/us/park-fire-california-oregon.html
+
 **Colts' Josh Downs building chemistry (and telepathy) with Anthony Richardson**\
 `Downs and Richardson connected just nine times last season before the QB's season-ending injury. Now, they're making up for lost time.`\
 https://nytimes.com/athletic/5662868/2024/07/28/josh-downs-anthony-richardson-colts/
