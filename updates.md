@@ -1,3 +1,11 @@
+**Lee Kiefer defends Olympic fencing gold in all-American women's foil final**\
+`Kiefer was borne into the sport, and into as close to a fencing royal family as America could produce.`\
+https://nytimes.com/athletic/5664493/2024/07/28/lee-kiefer-gold-medal-fencing-lauren-scruggs-olympics-america/
+
+**Monday Briefing: A Deadly Strike on the Israel-Lebanon Border**\
+`Plus, Venezuela’s election and the Olympics’ first weekend`\
+https://nytimes.com/2024/07/28/briefing/monday-briefing-a-deadly-strike-on-the-israel-lebanon-border.html
+
 **Australia keeps Olympic medal hopes alive with 6-5 win over Zambia**\
 `The goalscoring shootout in Group B has implications across the tournament.`\
 https://nytimes.com/athletic/5664529/2024/07/28/australia-zambia-olympics-goals/
