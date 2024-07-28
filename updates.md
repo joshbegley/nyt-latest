@@ -1,3 +1,11 @@
+**Rahm ends wait for first LIV win after Hatton misses putt**\
+`"I’m just relieved that it has happened," Rahm said about his first individual championship on the LIV Golf tour.`\
+https://nytimes.com/athletic/5664373/2024/07/28/jon-rahm-liv-win-england-hatton/
+
+**Gunman at Trump Rally Was Often a Step Ahead of the Secret Service**\
+`Text messages, obtained exclusively by The Times, indicate that some law enforcement officers were aware of Thomas Crooks earlier than previously known. And he was aware of them.`\
+https://nytimes.com/2024/07/28/us/politics/trump-shooting-thomas-crooks-secret-service.html
+
 **Cubs land All-Star 3B Isaac Paredes from Rays**\
 `The Cubs traded for the top hitter available, getting the standout infielder from the Rays. `\
 https://nytimes.com/athletic/5664380/2024/07/28/mlb-isaac-paredes-cubs-rays-trade/
