@@ -1,3 +1,7 @@
+**Edna O’Brien, Writer Who Gave Voice to Women’s Passions, Dies at 93**\
+`Her novels and short stories often explored the lives of willful women who loved men who were crass, unfaithful or already married.`\
+https://nytimes.com/2024/07/28/obituaries/edna-o-brien-dead.html
+
 **Canada's Priestman apologizes, will cooperate with spying investigation**\
 `“I want to take accountability, and I plan to fully cooperate with the investigation,” Priestman said.`\
 https://nytimes.com/athletic/5664202/2024/07/28/bev-priestman-statement-fifa-sanctions-olympics/
