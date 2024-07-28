@@ -1,3 +1,11 @@
+**A Watershed Moment for Venezuela**\
+`By Marian Carrasquero and Alejandro Cegarra`\
+https://nytimes.com/card/2024/07/28/world/americas/venezuela-election
+
+**Hamilton wins Belgian GP after Russell DQ**\
+`This is the first disqualification the grid has seen since the 2023 U.S. Grand Prix.`\
+https://nytimes.com/athletic/5664173/2024/07/28/george-russell-dq-belgian-grand-prix-lewis-hamilton/
+
 **Review: ‘The Righteous’ Brings Stirring Prayer to Santa Fe Opera**\
 `Gregory Spears and Tracy K. Smith’s new work about an ambitious minister’s rise in the 1980s is that rarity in contemporary music: an original story.`\
 https://nytimes.com/2024/07/28/arts/music/review-righteous-opera-music.html
