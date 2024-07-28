@@ -1,3 +1,7 @@
+**Here’s how Simone Biles and her American teammates stormed into the finals.**\
+`Biles needed tape on her lower leg after an awkward landing, but went on to a solid qualifying performance.`\
+https://nytimes.com/2024/07/28/world/olympics/simone-biles-team-usa-gymnastics.html
+
 **Blake Snell ups the ante with 15-K night — but what will Giants do at trade deadline?**\
 `Will Snell stay or go? It's becoming a fascinating conundrum for the Giants. His historic outing gave them something else to think about.`\
 https://nytimes.com/athletic/5663626/2024/07/28/blake-snell-sf-giants-trade-deadline/
