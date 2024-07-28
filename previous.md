@@ -1,3 +1,7 @@
+**Here are guides to the vault, bars, beam and floor.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/here-are-guides-to-the-vault-bars-beam-and-floor
+
 **Here’s the latest on the presidential race.**\
 `Democrats are increasing adopting a line of attack pioneered by Gov. Tim Walz of Minnesota, one of Kamala Harris’s top contenders: that Donald Trump and his Republican allies are “just plain weird.”`\
 https://nytimes.com/live/2024/07/28/us/harris-trump-election/heres-the-latest-on-the-presidential-race
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/28/opinion/jd-vance-nationalism.html
 **The Connections Companion No. 414, July 29, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/28/crosswords/connections-companion-414.html
-
-**Food as You Know It Is About to Change**\
-`Our food supply is more fragile than you think.`\
-https://nytimes.com/2024/07/28/opinion/food-climate-crisis-prices.html
 

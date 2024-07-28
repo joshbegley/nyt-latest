@@ -1,3 +1,7 @@
+**Here are guides to the vault, bars, beam and floor.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/here-are-guides-to-the-vault-bars-beam-and-floor
+
 **Here’s the latest on the presidential race.**\
 `Democrats are increasing adopting a line of attack pioneered by Gov. Tim Walz of Minnesota, one of Kamala Harris’s top contenders: that Donald Trump and his Republican allies are “just plain weird.”`\
 https://nytimes.com/live/2024/07/28/us/harris-trump-election/heres-the-latest-on-the-presidential-race
