@@ -1,3 +1,7 @@
+**Is Liverpool's £20m Van den Berg valuation realistic?**\
+`The defender hopes to stay at Anfield but he does not want to spend another season struggling for game time - and he is in demand`\
+https://nytimes.com/athletic/5662957/2024/07/28/van-den-berg-liverpool-mainz-valuation/
+
 **Corrections: July 28, 2024**\
 `Corrections that appeared in print on Sunday, July 28, 2024.`\
 https://nytimes.com/2024/07/28/pageoneplus/corrections-july-28-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5611733/2024/07/28/ineos-nice-haise-maurice-ratclif
 **‘Maybe I’ve Gotten Worse’: Trump Makes Clear That Unity Is Over**\
 `At a rally in Minnesota on Saturday, former President Donald J. Trump once more escalated his attacks against Vice President Kamala Harris, painting her as extreme and mocking her demeanor.`\
 https://nytimes.com/2024/07/28/us/politics/trump-vance-unity-minnesota.html
-
-**Sunday's MLB odds, best bets: Pitching matchups, playoff odds, props and more**\
-`See pitching matchups, playoff projections, win projections and more for Sunday's MLB games.`\
-https://nytimes.com/athletic/5660772/2024/07/28/mlb-odds-best-bets-projections-july-28/
 

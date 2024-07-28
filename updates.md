@@ -1,3 +1,7 @@
+**Is Liverpool's £20m Van den Berg valuation realistic?**\
+`The defender hopes to stay at Anfield but he does not want to spend another season struggling for game time - and he is in demand`\
+https://nytimes.com/athletic/5662957/2024/07/28/van-den-berg-liverpool-mainz-valuation/
+
 **Corrections: July 28, 2024**\
 `Corrections that appeared in print on Sunday, July 28, 2024.`\
 https://nytimes.com/2024/07/28/pageoneplus/corrections-july-28-2024.html
