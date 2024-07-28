@@ -1,3 +1,11 @@
+**Rosenthal: The Rays are running a clinic on how to sell at the trade deadline**\
+`After adding 14 prospects in six recent trades, the Rays likely aren't done yet. `\
+https://nytimes.com/athletic/5664725/2024/07/28/tampa-bay-rays-trade-deadline-sellers/
+
+**Adams Blocks Law That Bans Solitary Confinement in New York Jails**\
+`Mayor Eric Adams declared a state of emergency in New York City jails and suspended parts of a law banning solitary confinement, a day before it was to take effect.`\
+https://nytimes.com/2024/07/28/nyregion/adams-suspends-solitary-confinement-law.html
+
 **Quick Drive Around Town**\
 `Jeffrey Lease doubles down.`\
 https://nytimes.com/2024/07/28/crosswords/quick-drive-around-town.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/28/briefing/monday-briefing-a-deadly-strike-on-the-i
 **Australia keeps Olympic medal hopes alive with 6-5 win over Zambia**\
 `The goalscoring shootout in Group B has implications across the tournament.`\
 https://nytimes.com/athletic/5664529/2024/07/28/australia-zambia-olympics-goals/
-
-**Woo: What I'm hearing on Cardinals' Tommy Edman, Giovanny Gallegos ahead of trade deadline**\
-`The Cardinals intend to trade Gallegos after designating him for assignment on Sunday. `\
-https://nytimes.com/athletic/5664325/2024/07/28/cardinals-trade-deadline-tommy-edman-giovanny-gallegos/
-
-**By the smallest of margins, Torri Huske beat her U.S. teammate and managed to heal an old heartbreak at the same time.**\
-`In third place at the turn, Huske powered to gold, edging her teammate — and world-record holder — Gretchen Walsh at the end by touching just ahead of her. `\
-https://nytimes.com/2024/07/28/world/olympics/torri-huske-gretchen-walsh.html
 

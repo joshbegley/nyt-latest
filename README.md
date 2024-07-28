@@ -1,3 +1,7 @@
+**Kevin Durant takes all that fretting over his status and stuffs it in the hoop**\
+`In Team USA's Olympic debut, Kevin Durant finally made his debut. And it was worth the wait.`\
+https://nytimes.com/athletic/5664589/2024/07/28/kevin-durant-team-usa-basketball-2024-paris-olympics/
+
 **Rosenthal: The Rays are running a clinic on how to sell at the trade deadline**\
 `After adding 14 prospects in six recent trades, the Rays likely aren't done yet. `\
 https://nytimes.com/athletic/5664725/2024/07/28/tampa-bay-rays-trade-deadline-sellers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5664493/2024/07/28/lee-kiefer-gold-medal-fencing-la
 **Monday Briefing: A Deadly Strike on the Israel-Lebanon Border**\
 `Plus, Venezuela’s election and the Olympics’ first weekend`\
 https://nytimes.com/2024/07/28/briefing/monday-briefing-a-deadly-strike-on-the-israel-lebanon-border.html
-
-**Australia keeps Olympic medal hopes alive with 6-5 win over Zambia**\
-`The goalscoring shootout in Group B has implications across the tournament.`\
-https://nytimes.com/athletic/5664529/2024/07/28/australia-zambia-olympics-goals/
 
