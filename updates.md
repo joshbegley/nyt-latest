@@ -1,3 +1,7 @@
+**As F-16s Arrive, Ukraine Still Faces Steep Challenges in the Skies**\
+`Ukraine wants to deploy its first F-16 jets this summer, hoping to counter Russia’s dominance in the air. But stepped-up Russian bombing attacks on air bases complicate the effort.`\
+https://nytimes.com/2024/07/28/world/europe/ukraine-russia-f-16s.html
+
 **49ers training camp: With first day in pads near, Dominick Puni's opportunity is here**\
 `An injury to Spencer Burford has helped open the door for Puni, the 49ers' third-round draft pick who might boost their pass protection.`\
 https://nytimes.com/athletic/5662902/2024/07/28/49ers-training-camp-dominick-puni/
