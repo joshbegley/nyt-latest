@@ -1,3 +1,7 @@
+**Russia Punches Through Weakened Lines in Eastern Ukraine**\
+`Military analysts say Russian forces are increasingly investigating Ukrainian lines to identify weakened positions before attacking and breaking through.`\
+https://nytimes.com/2024/07/28/world/europe/ukraine-russia-battle-gains.html
+
 **At the N.R.A., a Battle Between the Old Guard and the New**\
 `The new chief executive is at odds with the new board president, just as the organization is arguing against a court-ordered monitor to oversee its finances.`\
 https://nytimes.com/2024/07/28/nyregion/nra-trial-leadership-fight.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/28/crosswords/spelling-bee-forum.html
 **Israel Returns Fire After Deadly Rocket From Lebanon Hits Soccer Field**\
 `The overnight strikes, a response to a rocket attack from Lebanon that killed 12 people in an Israeli-controlled town, stopped short of a major escalation, for now.`\
 https://nytimes.com/2024/07/28/world/middleeast/israel-lebanon-strike.html
-
-**Quotation of the Day: Israeli Evacuation Order Displaces Gazans Again**\
-`Quotation of the Day for Sunday, July 28, 2024.`\
-https://nytimes.com/2024/07/28/pageoneplus/quotation-of-the-day-israeli-evacuation-order-displaces-gazans-again.html
 

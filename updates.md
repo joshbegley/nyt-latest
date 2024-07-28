@@ -1,3 +1,7 @@
+**Russia Punches Through Weakened Lines in Eastern Ukraine**\
+`Military analysts say Russian forces are increasingly investigating Ukrainian lines to identify weakened positions before attacking and breaking through.`\
+https://nytimes.com/2024/07/28/world/europe/ukraine-russia-battle-gains.html
+
 **At the N.R.A., a Battle Between the Old Guard and the New**\
 `The new chief executive is at odds with the new board president, just as the organization is arguing against a court-ordered monitor to oversee its finances.`\
 https://nytimes.com/2024/07/28/nyregion/nra-trial-leadership-fight.html
