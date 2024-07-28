@@ -1,3 +1,7 @@
+**3 Men With White Supremacist Ties Sentenced in Plan to Attack Power Facility**\
+`Two of the men met through a neo-Nazi online forum and recruited other people to join their scheme, which was rooted in white supremacist ideology, prosecutors said.`\
+https://nytimes.com/2024/07/28/us/energy-grid-attack-plot-white-supremacy.html
+
 **14-year-old McKenna Whitham becomes youngest player to appear in top-level American soccer**\
 `Whitham beats the record set by Cavan Sullivan earlier this month.`\
 https://nytimes.com/athletic/5664928/2024/07/28/mckenna-whitham-youngest-top-level-american-soccer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5664589/2024/07/28/kevin-durant-team-usa-basketball
 **Steelers training camp: Russell Wilson ramping up, Justin Fields throws first pick**\
 `Wilson (calf injury) was a partial participant Sunday, and coach Mike Tomlin expects he'll work into some team periods this week.`\
 https://nytimes.com/athletic/5664672/2024/07/28/steelers-training-camp-russell-wilson-justin-field-interception/
-
-**Rosenthal: The Rays are running a clinic on how to sell at the trade deadline**\
-`After adding 14 prospects in six recent trades, the Rays likely aren't done yet. `\
-https://nytimes.com/athletic/5664725/2024/07/28/tampa-bay-rays-trade-deadline-sellers/
 
