@@ -1,6 +1,14 @@
+**Dodgers' River Ryan jumps into rotation conversation ahead of trade deadline**\
+`Dodgers rookie starters have a 3.04 ERA this season, second only to the Pirates.`\
+https://nytimes.com/athletic/5664749/2024/07/28/dodgers-river-ryan-trade-deadline/
+
 **From Believers to Bitcoin: 24 Hours in Trump’s Code-Switching Campaign**\
 `When Donald J. Trump tries to win over a crowd that is not inherently his own, the results can be awkward.`\
 https://nytimes.com/2024/07/28/us/politics/donald-trump-campaign-2024-bitcoin.html
+
+**Christian Barmore diagnosed with blood clots**\
+`Barmore totaled 8 1/2 sacks in a breakout campaign last season with the Patriots.`\
+https://nytimes.com/athletic/5664731/2024/07/28/patriots-christian-barmore-blood-clots/
 
 **Marlins' Xavier Edwards hits for cycle**\
 `Luis Arraez is the only other player to hit for the cycle in the Marlins’ 32 seasons.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/28/crosswords/quick-drive-around-town.html
 **Vance heads west this week, and Shapiro and Whitmer rally in Pennsylvania.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/07/28/us/harris-trump-election/vance-heads-west-this-week-and-shapiro-and-whitmer-rally-in-pennsylvania
-
-**USWNT 4-1 Germany: U.S. finds scoring groove to take top spot in Group B at 2024 Olympics**\
-`The U.S. heads to the top of Group B with the win. `\
-https://nytimes.com/athletic/5664613/2024/07/28/uswnt-germany-olympic-scoring/
-
-**Canada mount late comeback to keep Olympic dream alive**\
-`Vanessa Gilles scored 12 minutes into stoppage time to pull Canada back from the brink of elimination.`\
-https://nytimes.com/athletic/5664164/2024/07/28/canada-france-olympics/
 

@@ -1,3 +1,11 @@
+**Dodgers' River Ryan jumps into rotation conversation ahead of trade deadline**\
+`Dodgers rookie starters have a 3.04 ERA this season, second only to the Pirates.`\
+https://nytimes.com/athletic/5664749/2024/07/28/dodgers-river-ryan-trade-deadline/
+
+**Christian Barmore diagnosed with blood clots**\
+`Barmore totaled 8 1/2 sacks in a breakout campaign last season with the Patriots.`\
+https://nytimes.com/athletic/5664731/2024/07/28/patriots-christian-barmore-blood-clots/
+
 **From Believers to Bitcoin: 24 Hours in Trump’s Code-Switching Campaign**\
 `When Donald J. Trump tries to win over a crowd that is not inherently his own, the results can be awkward.`\
 https://nytimes.com/2024/07/28/us/politics/donald-trump-campaign-2024-bitcoin.html
