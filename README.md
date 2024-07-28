@@ -1,3 +1,11 @@
+**Blake Snell ups the ante with 15-K night — but what will the Giants do at the trade deadline?**\
+`Will Snell stay or go? It's becoming a fascinating conundrum for the Giants. His historic outing gave them something else to think about.`\
+https://nytimes.com/athletic/5663626/2024/07/28/blake-snell-sf-giants-trade-deadline/
+
+**Tottenham to sign South Korean winger Yang**\
+`Tottenham Hotspur have agreed a deal that will see South Korean winger Yang Min-hyuk join in January.`\
+https://nytimes.com/athletic/5663828/2024/07/28/tottenham-yang-min-hyuk-confirmed/
+
 **As F-16s Arrive, Ukraine Still Faces Steep Challenges in the Skies**\
 `Ukraine wants to deploy its first F-16 jets this summer, hoping to counter Russia’s dominance in the air. But stepped-up Russian bombing attacks on air bases complicate the effort.`\
 https://nytimes.com/2024/07/28/world/europe/ukraine-russia-f-16s.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/28/health/alzheimers-blood-test.html
 **Rams' deep TEs room features 'family' dynamic, new methods, young coach**\
 `The Rams are excited about their tight ends — the players are larger, the depth is deeper — and the possibilities they bring to the offense.`\
 https://nytimes.com/athletic/5661347/2024/07/28/la-rams-tight-ends-system-family/
-
-**What is a Yurchenko double pike?**\
-`The Yurchenko double pike, also known as the Biles II after Simone Biles, is the hardest vault in women’s gymnastics and one of only two involving a double flip.`\
-https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/what-is-a-yurchenko-double-pike
-
-**Simone Biles returns to Olympics with an injury scare and a dazzling show**\
-`Simone Biles injured her leg early in her return to Olympic gymnastics, but she stayed in the competition and put on a show from there.`\
-https://nytimes.com/athletic/5663739/2024/07/28/simone-biles-injury-gymnastics/
 
