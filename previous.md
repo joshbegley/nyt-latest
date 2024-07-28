@@ -1,3 +1,7 @@
+**Robert Downey Jr. Set to Return to Marvel as Dr. Doom**\
+`The actor announced his return to Marvel’s superhero movie franchise five years after ending his long run as Iron Man.`\
+https://nytimes.com/2024/07/28/arts/robert-downey-dr-doom-marvel.html
+
 **Léon Marchand sets new Olympic record, takes gold in 400-meter IM**\
 `Japan's Tomoyuki Matsushita took silver and American Carson Foster took bronze.`\
 https://nytimes.com/athletic/5663974/2024/07/28/leon-marchand-mens-swimming-france-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/28/obituaries/edna-o-brien-dead.html
 **Canada's Priestman apologizes, will cooperate with spying investigation**\
 `“I want to take accountability, and I plan to fully cooperate with the investigation,” Priestman said.`\
 https://nytimes.com/athletic/5664202/2024/07/28/bev-priestman-statement-fifa-sanctions-olympics/
-
-**Harris Campaign Says It Raised $200 Million Since Biden Dropped Out**\
-`The one-week total is more than President Biden’s haul in the first quarter of the year. About two-thirds came from first-time donors, according to the vice president’s campaign.`\
-https://nytimes.com/2024/07/28/us/politics/kamala-harris-fund-raising-week.html
 
