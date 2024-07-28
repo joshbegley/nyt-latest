@@ -1,3 +1,7 @@
+**Léon Marchand sets new Olympic record, takes gold in 400-meter IM**\
+`Japan's Tomoyuki Matsushita took silver and American Carson Foster took bronze.`\
+https://nytimes.com/athletic/5663974/2024/07/28/leon-marchand-mens-swimming-france-olympics/
+
 **A Village’s Anguish Over 12 Children Lost to a Rocket Strike**\
 `A stunned hush of collective mourning fell over Majdal Shams, in the Israeli-controlled Golan Heights, after the attack from Lebanon.`\
 https://nytimes.com/2024/07/28/world/middleeast/majdal-shams-attack-golan.html
