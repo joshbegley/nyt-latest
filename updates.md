@@ -1,3 +1,15 @@
+**An Olympics Scene Draws Scorn. Was It Really Referencing ‘The Last Supper’?**\
+`Some church leaders and politicians have condemned the performance from the opening ceremony for mocking Christianity. Art historians are divided.`\
+https://nytimes.com/2024/07/28/sports/olympics-opening-ceremony-last-supper-paris.html
+
+**Grilled Chicken With Corn and Lime-Basil Butter, a Fantastic Taste of Summer**\
+`With blueberry spoon cake for dessert, naturally.`\
+https://nytimes.com/2024/07/28/dining/grilled-chicken-with-corn-and-lime-basil-butter-a-fantastic-taste-of-summer.html
+
+**Negotiators Meet in Rome to Revive Push for Hostage Release and Cease-Fire in Gaza**\
+`The talks remain stuck over several key issues, including the extent to which Israeli troops should withdraw from Gaza during a truce.`\
+https://nytimes.com/2024/07/28/world/middleeast/negotiators-meet-in-rome-to-revive-push-for-hostage-release-and-cease-fire-in-gaza.html
+
 **Padres bolster bullpen, send top pitching prospect to Rays for Jason Adam: source**\
 `The San Diego Padres addressed a pressing need Sunday by agreeing to acquire one of the best available right-handed relievers, Tampa Bay Rays setup man Jason Adam, in a trade that required surrendering one of their best prospects.`\
 https://nytimes.com/athletic/5663978/2024/07/28/jason-adam-dylan-lesko-padres-rays/

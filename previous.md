@@ -1,3 +1,15 @@
+**An Olympics Scene Draws Scorn. Was It Really Referencing ‘The Last Supper’?**\
+`Some church leaders and politicians have condemned the performance from the opening ceremony for mocking Christianity. Art historians are divided.`\
+https://nytimes.com/2024/07/28/sports/olympics-opening-ceremony-last-supper-paris.html
+
+**Grilled Chicken With Corn and Lime-Basil Butter, a Fantastic Taste of Summer**\
+`With blueberry spoon cake for dessert, naturally.`\
+https://nytimes.com/2024/07/28/dining/grilled-chicken-with-corn-and-lime-basil-butter-a-fantastic-taste-of-summer.html
+
+**Negotiators Meet in Rome to Revive Push for Hostage Release and Cease-Fire in Gaza**\
+`The talks remain stuck over several key issues, including the extent to which Israeli troops should withdraw from Gaza during a truce.`\
+https://nytimes.com/2024/07/28/world/middleeast/negotiators-meet-in-rome-to-revive-push-for-hostage-release-and-cease-fire-in-gaza.html
+
 **Lowetide: Will Oilers management tweak mean stronger European UFA presence?**\
 `As Chicago Blackhawks GM, Stan Bowman had an impressive track record in signing impact Europeans.`\
 https://nytimes.com/athletic/5662532/2024/07/28/oilers-management-european-ufas/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5663860/2024/07/28/mlb-trade-grades-jesse-winker-me
 **Here’s how Simone Biles and her American teammates stormed into the finals.**\
 `Biles needed tape on her lower leg after an awkward landing, but went on to a solid qualifying performance.`\
 https://nytimes.com/2024/07/28/world/olympics/simone-biles-team-usa-gymnastics.html
-
-**Blake Snell ups the ante with 15-K night — but what will Giants do at trade deadline?**\
-`Will Snell stay or go? It's becoming a fascinating conundrum for the Giants. His historic outing gave them something else to think about.`\
-https://nytimes.com/athletic/5663626/2024/07/28/blake-snell-sf-giants-trade-deadline/
-
-**South Korean winger Yang to join Tottenham**\
-`Tottenham Hotspur have agreed a deal that will see South Korean winger Yang Min-hyuk join in January.`\
-https://nytimes.com/athletic/5663828/2024/07/28/tottenham-yang-min-hyuk-confirmed/
-
-**As F-16s Arrive, Ukraine Still Faces Steep Challenges in the Skies**\
-`Ukraine wants to deploy its first F-16 jets this summer, hoping to counter Russia’s dominance in the air. But stepped-up Russian bombing attacks on air bases complicate the effort.`\
-https://nytimes.com/2024/07/28/world/europe/ukraine-russia-f-16s.html
 
