@@ -1,3 +1,7 @@
+**Australia keeps Olympic medal hopes alive with 6-5 win over Zambia**\
+`The goalscoring shootout in Group B has implications across the tournament.`\
+https://nytimes.com/athletic/5664529/2024/07/28/australia-zambia-olympics-goals/
+
 **Woo: What I'm hearing on Cardinals' Tommy Edman, Giovanny Gallegos ahead of trade deadline**\
 `The Cardinals intend to trade Gallegos after designating him for assignment on Sunday. `\
 https://nytimes.com/athletic/5664325/2024/07/28/cardinals-trade-deadline-tommy-edman-giovanny-gallegos/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5664436/2024/07/28/phillies-trade-carlos-estevez/
 **MLB Trade Grades: Did Rays get enough for All-Star Isaac Paredes in trade with Cubs?**\
 `Paredes was considered perhaps the top bat on the market, and seeing him land with the last-place Cubs is a genuine surprise.`\
 https://nytimes.com/athletic/5664438/2024/07/28/mlb-trade-grades-isaac-paredes-rays-cubs/
-
-**Bills training camp: Keon Coleman makes a splash, no clear No. 2 running back**\
-`Plus, double duty for Cam Lewis, and more.`\
-https://nytimes.com/athletic/5664258/2024/07/28/buffalo-bills-training-camp-keon-coleman-cam-lewis/
 
