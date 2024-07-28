@@ -1,3 +1,7 @@
+**Here are guides to the vault, bars, beam and floor exercise.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/here-are-guides-to-the-vault-bars-beam-and-floor
+
 **Minteh impresses again as Brighton round off Japan tour with win**\
 `Brighton completed their two-match trip to Japan with a 4-2 victory against Tokyo Verdy.`\
 https://nytimes.com/athletic/5663771/2024/07/28/brighton-japan-tour-result/

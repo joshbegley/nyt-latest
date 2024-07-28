@@ -34,7 +34,7 @@ https://nytimes.com/athletic/5663739/2024/07/28/simone-biles-injury-gymnastics/
 `Carey was recruited to elite gymnastics for her vaulting abilities. Now she is a two-time Olympian.`\
 https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/jade-carey-24
 
-**Here are guides to the vault, bars, beam and floor.**\
+**Here are guides to the vault, bars, beam and floor exercise.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/here-are-guides-to-the-vault-bars-beam-and-floor
 
