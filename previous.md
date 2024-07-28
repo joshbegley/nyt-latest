@@ -1,8 +1,8 @@
-**Blake Snell ups the ante with 15-K night — but what will the Giants do at the trade deadline?**\
+**Blake Snell ups the ante with 15-K night — but what will Giants do at trade deadline?**\
 `Will Snell stay or go? It's becoming a fascinating conundrum for the Giants. His historic outing gave them something else to think about.`\
 https://nytimes.com/athletic/5663626/2024/07/28/blake-snell-sf-giants-trade-deadline/
 
-**Tottenham to sign South Korean winger Yang**\
+**South Korean winger Yang to join Tottenham**\
 `Tottenham Hotspur have agreed a deal that will see South Korean winger Yang Min-hyuk join in January.`\
 https://nytimes.com/athletic/5663828/2024/07/28/tottenham-yang-min-hyuk-confirmed/
 
