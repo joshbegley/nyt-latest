@@ -1,3 +1,7 @@
+**Who Is Eminem for in 2024?**\
+`A conversation about the Detroit rapper’s long and unlikely career as his 12th studio album reaches No. 1.`\
+https://nytimes.com/2024/07/27/arts/music/popcast-eminem.html
+
 **Padres firing 'on all cylinders' as winning streak reaches season-best seven games**\
 `The Padres have outscored their opponents by a combined margin of 43-12 during their dominant stretch.`\
 https://nytimes.com/athletic/5662634/2024/07/27/padres-seven-game-winning-streak/
