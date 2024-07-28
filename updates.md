@@ -1,3 +1,11 @@
+**Andy Murray and Dan Evans pull off ludicrous comeback in Olympic doubles**\
+`Murray and Evans will play Sander Gille and Joran Vliegen of Belgium or Arthur Fils and Ugo Humbert of France in the second round`\
+https://nytimes.com/athletic/5664211/2024/07/28/andy-murray-tennis-paris-olympics-dan-evans/
+
+**Torri Huske edges teammate Gretchen Walsh in dramatic 100-meter fly**\
+`Huske touched in 55.59 seconds after an incredible final 50 meters. She held off Walsh by 0.04 seconds.`\
+https://nytimes.com/athletic/5664018/2024/07/28/torri-huske-gretchen-walsh-olympics-swimming-gold-butterfly/
+
 **Rahm ends wait for first LIV win after Hatton misses putt**\
 `"I’m just relieved that it has happened," Rahm said about his first individual championship on the LIV Golf tour.`\
 https://nytimes.com/athletic/5664373/2024/07/28/jon-rahm-liv-win-england-hatton/
