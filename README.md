@@ -1,3 +1,11 @@
+**Belgian GP takeaways: Mercedes' bittersweet victory, Ferrari's frustration**\
+`Plus: Piastri on the hunt, Verstappen holds serve, and Ricciardo makes a move. `\
+https://nytimes.com/athletic/5664399/2024/07/28/f1-belgian-gp-takeaways-mercedes-ferrari-piastri/
+
+**Why the Phillies chose Carlos Estévez over others and other takeaways from deadline trades**\
+`There was healthy debate within the organization whether Philadelphia should target Estévez or another reliever, like Jason Adam.`\
+https://nytimes.com/athletic/5664436/2024/07/28/phillies-trade-carlos-estevez/
+
 **MLB Trade Grades: Did Rays get enough for All-Star Isaac Paredes in trade with Cubs?**\
 `Paredes was considered perhaps the top bat on the market, and seeing him land with the last-place Cubs is a genuine surprise.`\
 https://nytimes.com/athletic/5664438/2024/07/28/mlb-trade-grades-isaac-paredes-rays-cubs/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/28/books/james-scott-dead.html
 **Andy Murray and Dan Evans pull off ludicrous comeback in Olympic doubles**\
 `Murray and Evans will play Sander Gille and Joran Vliegen of Belgium or Arthur Fils and Ugo Humbert of France in the second round`\
 https://nytimes.com/athletic/5664211/2024/07/28/andy-murray-tennis-paris-olympics-dan-evans/
-
-**Torri Huske edges teammate Gretchen Walsh in dramatic 100-meter fly**\
-`Huske touched in 55.59 seconds after an incredible final 50 meters. She held off Walsh by 0.04 seconds.`\
-https://nytimes.com/athletic/5664018/2024/07/28/torri-huske-gretchen-walsh-olympics-swimming-gold-butterfly/
-
-**Rahm ends wait for first LIV win after Hatton misses putt**\
-`"I’m just relieved that it has happened," Rahm said about his first individual championship on the LIV Golf tour.`\
-https://nytimes.com/athletic/5664373/2024/07/28/jon-rahm-liv-win-england-hatton/
 
