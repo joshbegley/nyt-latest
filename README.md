@@ -1,3 +1,11 @@
+**Law: Padres pay heavily to Rays for bullpen upgrade in Jason Adam**\
+`Despite Dyan Lesko's struggles this season, his upside remains that of an above-average starter`\
+https://nytimes.com/athletic/5664070/2024/07/28/jason-adam-dylan-lesko-padres-rays-analysis/
+
+**Veiga not alarmed by Chelsea form: 'The most important thing is the process'**\
+`Chelsea defender Renato Veiga believes there is no reason to panic over the club’s disappointing start to pre-season and says they should only be judged once their Premier League campaign begins.`\
+https://nytimes.com/athletic/5663808/2024/07/28/chelsea-preseason-tour-renato-veiga/
+
 **Steven van de Velde brings yet another moral hazard to the Olympics**\
 `PARIS — There is no way to sugarcoat this.`\
 https://nytimes.com/athletic/5663866/2024/07/28/steven-van-de-velde-child-rapist-olympics-beach-volleyball/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/28/dining/grilled-chicken-with-corn-and-lime-basil-b
 **Negotiators Meet to Revive Push for Hostage Release and Cease-Fire in Gaza**\
 `The talks in Rome remain stuck over several key issues, including the extent to which Israeli troops should withdraw from Gaza during a truce.`\
 https://nytimes.com/2024/07/28/world/middleeast/negotiators-meet-in-rome-to-revive-push-for-hostage-release-and-cease-fire-in-gaza.html
-
-**Lowetide: Will Oilers management tweak mean stronger European UFA presence?**\
-`As Chicago Blackhawks GM, Stan Bowman had an impressive track record in signing impact Europeans.`\
-https://nytimes.com/athletic/5662532/2024/07/28/oilers-management-european-ufas/
-
-**Padres bolster bullpen, send top pitching prospect to Rays for Jason Adam: source**\
-`The San Diego Padres addressed a pressing need Sunday by agreeing to acquire one of the best available right-handed relievers, Tampa Bay Rays setup man Jason Adam, in a trade that required surrendering one of their best prospects.`\
-https://nytimes.com/athletic/5663978/2024/07/28/jason-adam-dylan-lesko-padres-rays/
 
