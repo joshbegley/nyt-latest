@@ -1,3 +1,11 @@
+**A Watershed Moment for Venezuela**\
+`By Marian Carrasquero and Alejandro Cegarra`\
+https://nytimes.com/card/2024/07/28/world/americas/venezuela-election
+
+**Hamilton wins Belgian GP after Russell DQ**\
+`This is the first disqualification the grid has seen since the 2023 U.S. Grand Prix.`\
+https://nytimes.com/athletic/5664173/2024/07/28/george-russell-dq-belgian-grand-prix-lewis-hamilton/
+
 **Review: ‘The Righteous’ Brings Stirring Prayer to Santa Fe Opera**\
 `Gregory Spears and Tracy K. Smith’s new work about an ambitious minister’s rise in the 1980s is that rarity in contemporary music: an original story.`\
 https://nytimes.com/2024/07/28/arts/music/review-righteous-opera-music.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5663808/2024/07/28/chelsea-preseason-tour-renato-ve
 **Steven van de Velde brings yet another moral hazard to the Olympics**\
 `PARIS — There is no way to sugarcoat this.`\
 https://nytimes.com/athletic/5663866/2024/07/28/steven-van-de-velde-child-rapist-olympics-beach-volleyball/
-
-**The Pulse: Spygate fallout continues**\
-`Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5664038/2024/07/28/canada-soccer-drones-opening-ceremony-memes-the-pulse/
-
-**Phillies improve bullpen with Carlos Estévez acquisition, Angels get strong return**\
-`The Phillies picked up a solid addition for the backend of their bullpen, but they paid a steep price for the privilege. `\
-https://nytimes.com/athletic/5664022/2024/07/28/carlos-estevez-phillies-angels-trade-analysis/
 
