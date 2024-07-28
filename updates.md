@@ -1,3 +1,15 @@
+**Minteh impresses again as Brighton round off Japan tour with win**\
+`Brighton completed their two-match trip to Japan with a 4-2 victory against Tokyo Verdy.`\
+https://nytimes.com/athletic/5663771/2024/07/28/brighton-japan-tour-result/
+
+**Adapting to the Heat**\
+`How to help your body adjust to higher temperatures.`\
+https://nytimes.com/2024/07/28/briefing/adapting-to-the-heat.html
+
+**Simone Biles returns to Olympics with an injury scare and a dazzling show**\
+`Simone Biles injured her leg early in her return to Olympic gymnastics, but she stayed in the competition and put on a show from there.`\
+https://nytimes.com/athletic/5663739/2024/07/28/simone-biles-injury-gymnastics/
+
 **Southampton in advanced talks to sign Brereton Diaz from Villarreal**\
 `Southampton are in advanced talks to sign Ben Brereton Diaz from Villarreal.`\
 https://nytimes.com/athletic/5663761/2024/07/28/southampton-ben-brereton-diaz/
