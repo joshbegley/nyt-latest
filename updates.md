@@ -1,3 +1,7 @@
+**Phillies improve bullpen with Carlos Estévez acquisition, Angels get strong return**\
+`The Phillies picked up a solid addition for the backend of their bullpen, but they paid a steep price for the privilege. `\
+https://nytimes.com/athletic/5664022/2024/07/28/carlos-estevez-phillies-angels-trade-analysis/
+
 **Chargers training camp, Day 4: Justin Herbert, Ladd McConkey rediscover rhythm**\
 `Could McConkey, the Chargers' second-round pick, develop into Herbert's trusted go-to receiver on third and fourth downs? `\
 https://nytimes.com/athletic/5663608/2024/07/28/chargers-training-camp-ladd-mcconkey-justin-herbert/
