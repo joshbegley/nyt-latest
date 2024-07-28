@@ -1,3 +1,7 @@
+**South Sudan 'disrespected' by national anthem mixup**\
+`South Sudan men&#8217;s basketball players said they felt disrespected after the wrong national anthem was played before the team&#8217;s Olympic debut Sunday.`\
+https://nytimes.com/athletic/5663803/2024/07/28/south-sudan-wrong-anthem-olympics-basketball/
+
 **MLB Trade Grades: Mets get balance, Nats get return on investment in Jesse Winker deal**\
 `The Nationals signed Jesse Winker for $2 million this offseason. He produced, and now garnered them a prospect in trade.    `\
 https://nytimes.com/athletic/5663860/2024/07/28/mlb-trade-grades-jesse-winker-mets-nationals/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/28/briefing/adapting-to-the-heat.html
 **Southampton in advanced talks to sign Brereton Diaz from Villarreal**\
 `Southampton are in advanced talks to sign Ben Brereton Diaz from Villarreal.`\
 https://nytimes.com/athletic/5663761/2024/07/28/southampton-ben-brereton-diaz/
-
-**MLB trade deadline primer: Top storylines, rumblings, best-available players**\
-`To set the stage for the run-in to Tuesday's deadline, here are the top storylines, the best-available players and the latest we're hearing.`\
-https://nytimes.com/athletic/5662579/2024/07/28/mlb-trade-deadline-2024-storylines-players-rumors/
 
