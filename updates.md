@@ -1,3 +1,7 @@
+**Trump, Appealing to Bitcoin Fans, Vows U.S. Will Be ‘Crypto Capital of the Planet’**\
+`Donald Trump, speaking at a Bitcoin conference, told cryptocurrency holders that he would end the “persecution” of their industry.`\
+https://nytimes.com/2024/07/27/us/politics/trump-bitcoin-crypto.html
+
 **Spencer Schwellenbach strikes out 11 Mets in Braves' shutout as rapid ascent continues**\
 `Braves manager Brian Snitker said he’s seen a lot of young pitchers do big things, but Schwellenbach’s outing ranked near the top.`\
 https://nytimes.com/athletic/5663422/2024/07/27/braves-spencer-schwellenbach-11-strikeouts/

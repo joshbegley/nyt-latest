@@ -1,3 +1,7 @@
+**Trump, Appealing to Bitcoin Fans, Vows U.S. Will Be ‘Crypto Capital of the Planet’**\
+`Donald Trump, speaking at a Bitcoin conference, told cryptocurrency holders that he would end the “persecution” of their industry.`\
+https://nytimes.com/2024/07/27/us/politics/trump-bitcoin-crypto.html
+
 **Spencer Schwellenbach strikes out 11 Mets in Braves' shutout as rapid ascent continues**\
 `Braves manager Brian Snitker said he’s seen a lot of young pitchers do big things, but Schwellenbach’s outing ranked near the top.`\
 https://nytimes.com/athletic/5663422/2024/07/27/braves-spencer-schwellenbach-11-strikeouts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5663337/2024/07/27/mlb-trade-grades-jansen-red-sox-
 **Echoes of the Fort McMurray Disaster as Fire Sweeps Into Jasper, Alberta**\
 `About a third of the buildings in the mountain resort town have burned, raising questions about preparedness and the role of climate change.`\
 https://nytimes.com/2024/07/27/world/canada/fire-jasper-alberta.html
-
-**Why the Mets should add a starter at the trade deadline**\
-`Kodai Senga is out for the year and Tylor Megill’s performance on Saturday highlighted the problem with counting on him in the rotation.`\
-https://nytimes.com/athletic/5663328/2024/07/27/mets-trade-deadline-starting-pitcher/
 
