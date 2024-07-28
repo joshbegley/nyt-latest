@@ -1,3 +1,7 @@
+**The Olympics Has a Bad Guy: Anyone in an Argentina Jersey**\
+`Grudges from the World Cup and rugby union have spilled over to the Games. But is this new sports feud even real?`\
+https://nytimes.com/2024/07/28/world/olympics/argentina-france-rugby-soccer.html
+
 **U.S. and Japan Announce Steps to Strengthen Their Military Ties**\
 `The two governments said the moves were a response to growing aggression by China, whose rapid military buildup has many leaders worried.`\
 https://nytimes.com/2024/07/28/world/asia/us-japan-military-alliance.html
