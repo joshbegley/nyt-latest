@@ -1,3 +1,7 @@
+**For Katie Ledecky, Olympics open with a complicated loss to her biggest rival**\
+`As Ariarne Titmus dealt Katie Ledecky another loss in the 400-meter freestyle, the American wasn't ready to examine her future in the event.`\
+https://nytimes.com/athletic/5663268/2024/07/27/katie-ledecky-olympics-ariarne-titmus-400-meter-freestyle/
+
 **Elon Musk Shares Manipulated Harris Video, in Seeming Violation of X’s Policies**\
 `The billionaire owner of the social media platform X reposted a video that mimics Vice President Kamala Harris’s voice, without disclosing that it had been altered.`\
 https://nytimes.com/2024/07/27/us/politics/elon-musk-kamala-harris-deepfake.html

@@ -1,3 +1,11 @@
+**The Move That May Take Sunisa Lee’s Name**\
+`Sunisa Lee has been practicing a new difficult element in her uneven bars routine. If she completes it at the Olympics, it will be named “The Lee.”`\
+https://nytimes.com/interactive/2024/07/27/world/olympics/suni-lee-gymnastics-bars.html
+
+**The Briefing: Man City 2 AC Milan 3 - Bobb makes his case, Rodri back-up and a rare Carson outing**\
+`Sam Lee addresses the main talking points from Manchester City's friendly defeat by AC Milan`\
+https://nytimes.com/athletic/5659073/2024/07/27/manchester-city-ac-milan-friendly/
+
 **For Katie Ledecky, Olympics open with a complicated loss to her biggest rival**\
 `As Ariarne Titmus dealt Katie Ledecky another loss in the 400-meter freestyle, the American wasn't ready to examine her future in the event.`\
 https://nytimes.com/athletic/5663268/2024/07/27/katie-ledecky-olympics-ariarne-titmus-400-meter-freestyle/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5663218/2024/07/27/carlos-estevez-trade-phillies-an
 **Minnesota’s Governor, a Harris V.P. Contender, Calls Trump and Vance ‘Weird People’**\
 `Gov. Tim Walz took jabs at Trump and his vice-presidential pick, JD Vance, at a rally in St. Cloud, Minn., hours before the Republican duo were scheduled to arrive for their own campaign event.`\
 https://nytimes.com/2024/07/27/us/politics/walz-trump-vance-weird-people.html
-
-**MLB Trade Grades: Nick Mears, a Rockies unicorn, heads to Milwaukee**\
-`The Brewers, comfortably atop the NL Central, added Colorado Rockies right-hander Nick Mears to their bullpen for the stretch run.`\
-https://nytimes.com/athletic/5663153/2024/07/27/mlb-trade-grades-nick-mears-brewers-rockies/
-
-**Olympic opening ceremony has total audience of 28.6 million viewers**\
-`NBCUniversal’s said the ceremony drew a total audience delivery of 28.6 million viewers.`\
-https://nytimes.com/athletic/5663150/2024/07/27/olympic-opening-ceremony-viewers/
 
