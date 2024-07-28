@@ -1,3 +1,11 @@
+**Beshear, a Potential Harris V.P. Pick, Rallies Democrats in Deep-Red Iowa**\
+`Gov. Andy Beshear of Kentucky has shown off his attack dog chops in recent days, offering a message of unity in a state dominated by Republicans — but where Democrats say they’ve seen fresh energy.`\
+https://nytimes.com/2024/07/27/us/politics/beshear-harris-vp-democrats-iowa.html
+
+**Ederson on his Manchester City future: 'There isn't a decision yet'Ederson on his Manchester City future: 'There isn't a decision yet'**\
+`Ederson says no decision has been made about his Manchester City future amid interest from clubs in Saudi Arabia.`\
+https://nytimes.com/athletic/5663493/2024/07/27/ederson-manchester-city-furure/
+
 **The Briefing: Arsenal 2 Man United 1 - Hojlund and Yoro injuries, sharp Mount and Amad-Antony battle**\
 `Laurie Whitwell analyses the main talking points from Manchester United's friendly defeat by Arsenal`\
 https://nytimes.com/athletic/5663259/2024/07/27/man-united-arsenal-friendly-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5662634/2024/07/27/padres-seven-game-winning-streak
 **Danny Jansen's trade to Red Sox cuts deep with Blue Jays, fan base**\
 `Jansen, the longest tenured Blue Jay now headed to Boston, wouldn't rule out returning as a free agent. “I'm never going to shut any doors.”`\
 https://nytimes.com/athletic/5663357/2024/07/27/danny-jansen-blue-jays-trade-impact/
-
-**Lithium Battery Fire Traps Drivers in Sweltering Heat on California Highway**\
-`Traffic was at a standstill for hours on a portion of I-15 near Baker, Calif., after a truck carrying lithium batteries overturned and caught fire.`\
-https://nytimes.com/2024/07/27/us/battery-fire-traffic-nevada-california.html
-
-**MLB Trade Grades: Blue Jays move Danny Jansen to Boston for a trio of prospects**\
-`For Toronto, this is a no-brainer. As for the Red Sox, this move was a little less obvious. Time will tell how Jansen fits in.`\
-https://nytimes.com/athletic/5663337/2024/07/27/mlb-trade-grades-jansen-red-sox-blue-jays/
 
