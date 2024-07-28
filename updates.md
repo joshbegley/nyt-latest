@@ -1,3 +1,7 @@
+**'The time is now': Twins clinch series behind dominant Bailey Ober as trade deadline nears**\
+`Rocco Baldelli wants fans to support the Twins, who are on pace for 90 wins and could use some reinforcements to catch the Guardians.`\
+https://nytimes.com/athletic/5664820/2024/07/28/twins-trade-deadline-dominant-bailey-ober/
+
 **Braves might need to trade for starter after Reynaldo López exits with injury**\
 `The Braves were known to be strongly pursuing an outfielder, but pitching could be moving up the priority list.`\
 https://nytimes.com/athletic/5664765/2024/07/28/braves-trade-deadline-reynaldo-lopez/
