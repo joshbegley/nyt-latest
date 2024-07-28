@@ -1,3 +1,7 @@
+**Yves du Manoir Stadium, only Paris Olympic venue in both 1924 and 2024, is worth the trip**\
+`After 100 years, one venue from the 1924 Paris Games is being used again for this Olympics. And it's packed with history.`\
+https://nytimes.com/athletic/5663308/2024/07/28/yves-du-manoir-stadium-2024-paris-olympics/
+
 **Melinda French Gates Is Ready to Take Sides**\
 `The billionaire philanthropist is turning 60, striking out on her own and getting political.`\
 https://nytimes.com/2024/07/28/magazine/melinda-french-gates-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/28/technology/kamala-harris-memes.html
 **Colts' Josh Downs building chemistry (and telepathy) with Anthony Richardson**\
 `Downs and Richardson connected just nine times last season before the QB's season-ending injury. Now, they're making up for lost time.`\
 https://nytimes.com/athletic/5662868/2024/07/28/josh-downs-anthony-richardson-colts/
-
-**A Memoir That Delivers on Its Promise of ‘Sex, Drugs, and Opera’**\
-`In “Seeing Through,” the prolific composer Ricky Ian Gordon shares the heroes, monsters, obsessions and fetishes that drive his art and fuel a dizzying life.`\
-https://nytimes.com/2024/07/28/books/review/ricky-ian-gordon-seeing-through-memoir-opera.html
 

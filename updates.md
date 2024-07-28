@@ -1,3 +1,7 @@
+**Yves du Manoir Stadium, only Paris Olympic venue in both 1924 and 2024, is worth the trip**\
+`After 100 years, one venue from the 1924 Paris Games is being used again for this Olympics. And it's packed with history.`\
+https://nytimes.com/athletic/5663308/2024/07/28/yves-du-manoir-stadium-2024-paris-olympics/
+
 **Melinda French Gates Is Ready to Take Sides**\
 `The billionaire philanthropist is turning 60, striking out on her own and getting political.`\
 https://nytimes.com/2024/07/28/magazine/melinda-french-gates-interview.html
