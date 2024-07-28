@@ -1,3 +1,11 @@
+**Simone Biles, 27**\
+`Simone Biles has won every all-around competition she has entered for more than a decade, a streak unmatched in the history of gymnastics.`\
+https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/simone-biles-27
+
+**Suni Lee, 21**\
+`Lee, the reigning Olympic all-around champion, earned the chance to defend her title despite a kidney disease that made it unclear whether she would ever compete again.`\
+https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/suni-lee-21
+
 **Hezly Rivera, 16**\
 `Rivera, the youngest member of the U.S. team, turned in a solid performance at the Olympic trials to qualify after multiple top gymnasts were injured.`\
 https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/hezly-rivera-16
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/28/us/politics/kamala-harris-vice-president-attorney
 **‘Iron Lady’ vs. Autocrat: Venezuela Faces Existential Vote for President**\
 `Sunday’s election could mark the end of a generation of rule by Venezuela’s socialist party. It could also usher in a period of profound uncertainty.`\
 https://nytimes.com/2024/07/28/world/americas/venezuela-election-maduro-gonzalez-machado.html
-
-**Kamala Harris’s Laugh Is a Campaign Issue. Our Comedy Critic Weighs in.**\
-`The Trump campaign sees Harris’s laugh as a vulnerability to exploit. But far from a liability, it is one of her most effective weapons.`\
-https://nytimes.com/2024/07/28/arts/kamala-harris-laugh.html
-
-**The Lesser-Known Side of Harris’s Identity: Asian American**\
-`Some Asian American leaders are rooting for Kamala Harris to become the first Asian American president. But she is not widely known as Asian American, reflecting the complexity of the identity.`\
-https://nytimes.com/2024/07/28/us/politics/harris-asian-american-black-woman.html
 

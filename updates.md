@@ -1,3 +1,11 @@
+**Simone Biles, 27**\
+`Simone Biles has won every all-around competition she has entered for more than a decade, a streak unmatched in the history of gymnastics.`\
+https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/simone-biles-27
+
+**Suni Lee, 21**\
+`Lee, the reigning Olympic all-around champion, earned the chance to defend her title despite a kidney disease that made it unclear whether she would ever compete again.`\
+https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/suni-lee-21
+
 **Hezly Rivera, 16**\
 `Rivera, the youngest member of the U.S. team, turned in a solid performance at the Olympic trials to qualify after multiple top gymnasts were injured.`\
 https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/hezly-rivera-16
