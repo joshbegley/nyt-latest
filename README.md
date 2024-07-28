@@ -1,3 +1,11 @@
+**Quotation of the Day: Israeli Evacuation Order Displaces Gazans Again**\
+`Quotation of the Day for Sunday, July 28, 2024.`\
+https://nytimes.com/2024/07/28/pageoneplus/quotation-of-the-day-israeli-evacuation-order-displaces-gazans-again.html
+
+**After Yankees trade for Jazz Chisholm Jr.: What's next?**\
+`New York has multiple needs as the trade deadline nears — starting pitchers and relievers, and they'll likely seek another reliable hitter.`\
+https://nytimes.com/athletic/5663576/2024/07/28/yankees-jazz-chisholm-jr-trade/
+
 **Is Liverpool's £20m Van den Berg valuation realistic?**\
 `The defender hopes to stay at Anfield but he does not want to spend another season struggling for game time - and he is in demand`\
 https://nytimes.com/athletic/5662957/2024/07/28/van-den-berg-liverpool-mainz-valuation/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5658661/2024/07/28/bellingham-messi-injuries-fifpro
 **After another disastrous loss, the focus is on what the Dodgers need at the trade deadline**\
 `The Dodgers are 10-11 in July despite being outscored by 29 runs. They could use reinforcements in several areas.`\
 https://nytimes.com/athletic/5663535/2024/07/28/dodgers-disastrous-houston-loss-trade-deadline-needs/
-
-**New-look Nice: What the French club's shakeup tells us about INEOS and Man Utd**\
-`INEOS has had to hire a new manager and sporting director at Nice — what does it tell us about its long-term plans?`\
-https://nytimes.com/athletic/5611733/2024/07/28/ineos-nice-haise-maurice-ratcliffe/
-
-**‘Maybe I’ve Gotten Worse’: Trump Makes Clear That Unity Is Over**\
-`At a rally in Minnesota on Saturday, former President Donald J. Trump once more escalated his attacks against Vice President Kamala Harris, painting her as extreme and mocking her demeanor.`\
-https://nytimes.com/2024/07/28/us/politics/trump-vance-unity-minnesota.html
 
