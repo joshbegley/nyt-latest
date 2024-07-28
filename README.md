@@ -1,3 +1,7 @@
+**Léon Marchand sets new Olympic record, takes gold in 400-meter IM**\
+`Japan's Tomoyuki Matsushita took silver and American Carson Foster took bronze.`\
+https://nytimes.com/athletic/5663974/2024/07/28/leon-marchand-mens-swimming-france-olympics/
+
 **A Village’s Anguish Over 12 Children Lost to a Rocket Strike**\
 `A stunned hush of collective mourning fell over Majdal Shams, in the Israeli-controlled Golan Heights, after the attack from Lebanon.`\
 https://nytimes.com/2024/07/28/world/middleeast/majdal-shams-attack-golan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5664202/2024/07/28/bev-priestman-statement-fifa-san
 **Harris Campaign Says It Raised $200 Million Since Biden Dropped Out**\
 `The one-week total is more than President Biden’s haul in the first quarter of the year. About two-thirds came from first-time donors, according to the vice president’s campaign.`\
 https://nytimes.com/2024/07/28/us/politics/kamala-harris-fund-raising-week.html
-
-**Kevin Durant shines in return as Team USA crushes Serbia in Olympics opener**\
-`Durant scored 21 points, all in the first half, and made his first eight shots in the Americans’ 110-84 win Sunday.`\
-https://nytimes.com/athletic/5664077/2024/07/28/usa-serbia-basketball-olympics-results/
 
