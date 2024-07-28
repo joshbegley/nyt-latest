@@ -1,3 +1,7 @@
+**Corrections: July 28, 2024**\
+`Corrections that appeared in print on Sunday, July 28, 2024.`\
+https://nytimes.com/2024/07/28/pageoneplus/corrections-july-28-2024.html
+
 **Brutal loss to Yankees highlights Red Sox's need for bullpen help at deadline**\
 `In a back-and-forth game, the cracks in the Red Sox's bullpen were glaring. Can they address those shortfalls before the deadline?`\
 https://nytimes.com/athletic/5663569/2024/07/28/red-sox-deadline-needs-yankees-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/28/us/politics/trump-vance-unity-minnesota.html
 **Sunday's MLB odds, best bets: Pitching matchups, playoff odds, props and more**\
 `See pitching matchups, playoff projections, win projections and more for Sunday's MLB games.`\
 https://nytimes.com/athletic/5660772/2024/07/28/mlb-odds-best-bets-projections-july-28/
-
-**Dream Team dreaming: How great can this U.S. men's basketball team still be?**\
-`As their Olympic run begins, the U.S. men are chasing greatness. And perhaps an impossible standard set by the Dream Team.`\
-https://nytimes.com/athletic/5662720/2024/07/28/us-mens-basketball-olympics-dream-team-greatness/
 
