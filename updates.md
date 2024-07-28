@@ -1,3 +1,7 @@
+**The Pulse: Spygate fallout continues**\
+`Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5664038/2024/07/28/canada-soccer-drones-opening-ceremony-memes-the-pulse/
+
 **Phillies improve bullpen with Carlos Estévez acquisition, Angels get strong return**\
 `The Phillies picked up a solid addition for the backend of their bullpen, but they paid a steep price for the privilege. `\
 https://nytimes.com/athletic/5664022/2024/07/28/carlos-estevez-phillies-angels-trade-analysis/
