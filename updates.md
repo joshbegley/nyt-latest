@@ -1,3 +1,11 @@
+**Jill Biden, Jessica Chastain and Nick Jonas Toast Team U.S.A. in Paris**\
+`Athletes, actors, and journalists drank champagne and sampled from a raw bar at a party thrown by Ralph Lauren during the first weekend of the Paris Olympics.`\
+https://nytimes.com/2024/07/28/style/jill-biden-jessica-chastain-nick-jonas-olympics-usa.html
+
+**Vance stumps in a reliably Republican part of Minnesota after a rocky start.**\
+`By Michael Gold`\
+https://nytimes.com/live/2024/07/28/us/harris-trump-election/vance-stumps-in-a-reliably-republican-part-of-minnesota-after-a-rocky-start
+
 **MLB Trade Grades: Rays do it again with strong return on Jason Adam deal**\
 `The Padres did what they do often — while the Rays did what they do best. `\
 https://nytimes.com/athletic/5664052/2024/07/28/mlb-trade-grades-jason-adam-padres-rays/

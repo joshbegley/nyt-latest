@@ -1,3 +1,11 @@
+**Jill Biden, Jessica Chastain and Nick Jonas Toast Team U.S.A. in Paris**\
+`Athletes, actors, and journalists drank champagne and sampled from a raw bar at a party thrown by Ralph Lauren during the first weekend of the Paris Olympics.`\
+https://nytimes.com/2024/07/28/style/jill-biden-jessica-chastain-nick-jonas-olympics-usa.html
+
+**Vance stumps in a reliably Republican part of Minnesota after a rocky start.**\
+`By Michael Gold`\
+https://nytimes.com/live/2024/07/28/us/harris-trump-election/vance-stumps-in-a-reliably-republican-part-of-minnesota-after-a-rocky-start
+
 **MLB Trade Grades: Rays do it again with strong return on Jason Adam deal**\
 `The Padres did what they do often — while the Rays did what they do best. `\
 https://nytimes.com/athletic/5664052/2024/07/28/mlb-trade-grades-jason-adam-padres-rays/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5664022/2024/07/28/carlos-estevez-phillies-angels-t
 **Chargers training camp, Day 4: Justin Herbert, Ladd McConkey rediscover rhythm**\
 `Could McConkey, the Chargers' second-round pick, develop into Herbert's trusted go-to receiver on third and fourth downs? `\
 https://nytimes.com/athletic/5663608/2024/07/28/chargers-training-camp-ladd-mcconkey-justin-herbert/
-
-**Wolves' Gonzalez suffers ACL injury at Paris Olympics**\
-`Wolverhampton Wanderers winger Enso Gonzalez faces an extended period on the sidelines after suffering an anterior cruciate knee ligament (ACL) injury during the men&#8217;s soccer tournament at the Paris Olympics.`\
-https://nytimes.com/athletic/5663962/2024/07/28/wolves-gonzalez-knee-injury/
-
-**An Olympics Scene Draws Scorn. Was It Really Referencing ‘The Last Supper’?**\
-`Some church leaders and politicians have condemned the performance from the opening ceremony for mocking Christianity. Art historians are divided.`\
-https://nytimes.com/2024/07/28/sports/olympics-opening-ceremony-last-supper-paris.html
 
