@@ -1,3 +1,11 @@
+**Marlins' Xavier Edwards hits for cycle**\
+`Luis Arraez is the only other player to hit for the cycle in the Marlins’ 32 seasons.`\
+https://nytimes.com/athletic/5664777/2024/07/28/marlins-xavier-edwards-cycle/
+
+**Steelers training camp: Russell Wilson ramping up, Justin Fields throws first pick**\
+`Wilson (calf injury) was a partial participant Sunday and coach Mike Tomlin expects he'll work into some team periods this week.`\
+https://nytimes.com/athletic/5664672/2024/07/28/steelers-training-camp-russell-wilson-justin-field-interception/
+
 **Kevin Durant takes all that fretting over his status and stuffs it in the hoop**\
 `In Team USA's Olympic debut, Kevin Durant finally made his debut. And it was worth the wait.`\
 https://nytimes.com/athletic/5664589/2024/07/28/kevin-durant-team-usa-basketball-2024-paris-olympics/
