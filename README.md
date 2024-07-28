@@ -1,3 +1,11 @@
+**Melinda French Gates Is Ready to Take Sides**\
+`The billionaire philanthropist is turning 60, striking out on her own and getting political.`\
+https://nytimes.com/2024/07/28/magazine/melinda-french-gates-interview.html
+
+**Park Fire in Northern California Grows to 350,000 Acres**\
+`The fire, the largest active blaze in the United States, was only 10 percent contained on Saturday night. It was expected to burn for several more weeks.`\
+https://nytimes.com/2024/07/28/us/park-fire-california-oregon.html
+
 **‘Deadpool & Wolverine’ Reverses Marvel’s Box Office Slump**\
 `The superhero sequel was on pace to collect about $200 million at North American theaters over the weekend, a record opening for an R-rated movie.`\
 https://nytimes.com/2024/07/28/business/deadpool-wolverine-marvel-box-office.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5662868/2024/07/28/josh-downs-anthony-richardson-co
 **A Memoir That Delivers on Its Promise of ‘Sex, Drugs, and Opera’**\
 `In “Seeing Through,” the prolific composer Ricky Ian Gordon shares the heroes, monsters, obsessions and fetishes that drive his art and fuel a dizzying life.`\
 https://nytimes.com/2024/07/28/books/review/ricky-ian-gordon-seeing-through-memoir-opera.html
-
-**Racked by Pain and Enraptured by a Right-Wing Miracle Cure**\
-`With Patriot Party News, Michael Chesebro found a sense of community, and a place where conspiracy theories could become real in the form of the “medbed.”`\
-https://nytimes.com/2024/07/28/us/politics/far-right-miracle-cure-medbed.html
-
-**A Pedigreed Rail Magnate Is Pouring Millions Into Electing Donald Trump**\
-`Timothy Mellon, a reclusive heir to a storied fortune, is spending tens of millions to election Donald J. Trump. Precisely what he wants in return is one of many curiosities surrounding him.`\
-https://nytimes.com/2024/07/28/us/politics/donald-trump-2024-campaign-timothy-mellon.html
 
