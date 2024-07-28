@@ -1,3 +1,11 @@
+**Southampton in advanced talks to sign Brereton Diaz from Villarreal**\
+`Southampton are in advanced talks to sign Ben Brereton Diaz from Villarreal.`\
+https://nytimes.com/athletic/5663761/2024/07/28/southampton-ben-brereton-diaz/
+
+**MLB trade deadline primer: Top storylines, rumblings, best-available players**\
+`To set the stage for the run-in to Tuesday's deadline, here are the top storylines, the best-available players and the latest we're hearing.`\
+https://nytimes.com/athletic/5662579/2024/07/28/mlb-trade-deadline-2024-storylines-players-rumors/
+
 **A Blood Test Accurately Diagnosed Alzheimer’s 90% of the Time, Study Finds**\
 `It was much more accurate than primary care doctors using cognitive tests and CT scans. The findings could speed the quest for an affordable and accessible way to diagnose patients with memory problems.`\
 https://nytimes.com/2024/07/28/health/alzheimers-blood-test.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/28/us/harris-trump-election/heres-the-latest-on
 **Cubs add to bullpen as trade deadline nears, but other relievers could be on the way out**\
 `Despite the addition of Nate Pearson, there's a chance the Cubs will trade one of these four relievers.`\
 https://nytimes.com/athletic/5663442/2024/07/28/cubs-trade-deadline-nate-pearson/
-
-**Election Live Updates: Harris V.P. Auditions Ramp Up, on Television and on the Trail**\
-`Democrats are increasingly adopting a line of attack pioneered by Gov. Tim Walz of Minnesota, a top contender to be Kamala Harris’s running mate: Donald J. Trump and his Republican allies are “just plain weird.”`\
-https://nytimes.com/live/2024/07/28/us/harris-trump-election
-
-**Hulk Hogan Is Not the Only Way to Be a Man**\
-`The Democratic Party must join the battle for the hearts and minds of young men.`\
-https://nytimes.com/2024/07/28/opinion/hulk-hogan-vance-harris.html
 
