@@ -1,9 +1,13 @@
+**MLB Trade Grades: Blue Jays move Danny Jansen to Boston for a trio of prospects**\
+`For Toronto, this is a no-brainer. As for the Red Sox, this move was a little less obvious. Time will tell how Jansen fits in.`\
+https://nytimes.com/athletic/5663337/2024/07/27/mlb-trade-grades-jansen-red-sox-blue-jays/
+
 **Echoes of the Fort McMurray Disaster as Fire Sweeps Into Jasper, Alberta**\
 `About a third of the buildings in the mountain resort town have burned, raising questions about preparedness and the role of climate change.`\
 https://nytimes.com/2024/07/27/world/canada/fire-jasper-alberta.html
 
 **Why the Mets should add a starter at the trade deadline**\
-`Kodai Senga is out for the year and Tyler Megill’s performance on Saturday highlighted the problem with counting on him in the rotation.`\
+`Kodai Senga is out for the year and Tylor Megill’s performance on Saturday highlighted the problem with counting on him in the rotation.`\
 https://nytimes.com/athletic/5663328/2024/07/27/mets-trade-deadline-starting-pitcher/
 
 **The Move That May Take Sunisa Lee’s Name**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5663234/2024/07/27/mlb-trade-grades-phillies-angels
 **Red Sox acquire Danny Jansen from Blue Jays**\
 `Jansen, 29, was the longest-tenured Blue Jay. He'll share time behind the plate in Boston with Connor Wong. `\
 https://nytimes.com/athletic/5663139/2024/07/27/danny-jansen-trade-red-sox-blue-jays/
-
-**The great America-Australia relay rivalry gets another worthy chapter in Paris**\
-`Saturday night, Australia and the U.S. each won one of the two 4x100-meter freestyle relays. And that feels right.`\
-https://nytimes.com/athletic/5663050/2024/07/27/2024-paris-olympics-swimming-relay-america-australia/
 

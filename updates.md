@@ -1,3 +1,11 @@
+**MLB Trade Grades: Blue Jays move Danny Jansen to Boston for a trio of prospects**\
+`For Toronto, this is a no-brainer. As for the Red Sox, this move was a little less obvious. Time will tell how Jansen fits in.`\
+https://nytimes.com/athletic/5663337/2024/07/27/mlb-trade-grades-jansen-red-sox-blue-jays/
+
+**Why the Mets should add a starter at the trade deadline**\
+`Kodai Senga is out for the year and Tylor Megill’s performance on Saturday highlighted the problem with counting on him in the rotation.`\
+https://nytimes.com/athletic/5663328/2024/07/27/mets-trade-deadline-starting-pitcher/
+
 **Echoes of the Fort McMurray Disaster as Fire Sweeps Into Jasper, Alberta**\
 `About a third of the buildings in the mountain resort town have burned, raising questions about preparedness and the role of climate change.`\
 https://nytimes.com/2024/07/27/world/canada/fire-jasper-alberta.html
