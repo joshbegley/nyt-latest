@@ -1,3 +1,7 @@
+**What’s on TV This Week: ‘Elizabeth Taylor: The Lost Tapes’ and ‘House of the Dragon’**\
+`HBO airs a new documentary. The “Game of Thrones” spinoff wraps up its second season.`\
+https://nytimes.com/2024/07/28/arts/television/whats-on-tv-this-week-elizabeth-taylor-the-lost-tapes-and-house-of-the-dragon.html
+
 **The Leeds controversy over 'super away attendees' - what's happened and is it fair?**\
 `Some Leeds supporters are unhappy with the new policy around away season tickets`\
 https://nytimes.com/athletic/5657849/2024/07/28/leeds-away-season-ticket-super-away-attendees/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5662720/2024/07/28/us-mens-basketball-olympics-drea
 **Meet Carol Callan, the behind-the-scenes architect of the U.S. women's basketball dynasty**\
 `You might not have heard of Callan. But she has played a major role in creating the era of U.S. women's basketball dominance.`\
 https://nytimes.com/athletic/5662464/2024/07/28/carol-callan-us-womens-basketball-dynasty-architect/
-
-**Olympics Today: Sunday's guide for what to watch in Paris**\
-`Medal events in archery, kayaking, cycling, fencing, judo, shooting, skateboarding and swimming take place Sunday.`\
-https://nytimes.com/athletic/5661327/2024/07/28/olympics-2024-watch-guide-day-2-gymnastics-basketball/
 
