@@ -1,3 +1,7 @@
+**Wolves' Gonzalez suffers ACL injury at Paris Olympics**\
+`Wolverhampton Wanderers winger Enso Gonzalez faces an extended period on the sidelines after suffering an anterior cruciate knee ligament (ACL) injury during the men&#8217;s soccer tournament at the Paris Olympics.`\
+https://nytimes.com/athletic/5663962/2024/07/28/wolves-gonzalez-knee-injury/
+
 **An Olympics Scene Draws Scorn. Was It Really Referencing ‘The Last Supper’?**\
 `Some church leaders and politicians have condemned the performance from the opening ceremony for mocking Christianity. Art historians are divided.`\
 https://nytimes.com/2024/07/28/sports/olympics-opening-ceremony-last-supper-paris.html

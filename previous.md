@@ -1,3 +1,7 @@
+**Wolves' Gonzalez suffers ACL injury at Paris Olympics**\
+`Wolverhampton Wanderers winger Enso Gonzalez faces an extended period on the sidelines after suffering an anterior cruciate knee ligament (ACL) injury during the men&#8217;s soccer tournament at the Paris Olympics.`\
+https://nytimes.com/athletic/5663962/2024/07/28/wolves-gonzalez-knee-injury/
+
 **An Olympics Scene Draws Scorn. Was It Really Referencing ‘The Last Supper’?**\
 `Some church leaders and politicians have condemned the performance from the opening ceremony for mocking Christianity. Art historians are divided.`\
 https://nytimes.com/2024/07/28/sports/olympics-opening-ceremony-last-supper-paris.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5663803/2024/07/28/south-sudan-wrong-anthem-olympic
 **MLB Trade Grades: Mets get balance, Nats get return on investment in Jesse Winker deal**\
 `The Nationals signed Jesse Winker for $2 million this offseason. He produced, and now garnered them a prospect in trade.    `\
 https://nytimes.com/athletic/5663860/2024/07/28/mlb-trade-grades-jesse-winker-mets-nationals/
-
-**Here’s how Simone Biles and her American teammates stormed into the finals.**\
-`Biles needed tape on her lower leg after an awkward landing, but went on to a solid qualifying performance.`\
-https://nytimes.com/2024/07/28/world/olympics/simone-biles-team-usa-gymnastics.html
 
