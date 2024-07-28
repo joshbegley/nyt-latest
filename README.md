@@ -1,3 +1,15 @@
+**Bellingham, Messi and the perils of burnout, incessant football and playing through injury**\
+`Matches, thousands of them — why FIFA are being accused of presiding over an international calendar that is “beyond saturation”`\
+https://nytimes.com/athletic/5658661/2024/07/28/bellingham-messi-injuries-fifpro-calendar-fifa/
+
+**After another disastrous loss, the focus is on what the Dodgers need at the trade deadline**\
+`The Dodgers are 10-11 in July despite being outscored by 29 runs. They could use reinforcements in several areas.`\
+https://nytimes.com/athletic/5663535/2024/07/28/dodgers-disastrous-houston-loss-trade-deadline-needs/
+
+**New-look Nice: What the French club's shakeup tells us about INEOS and Man Utd**\
+`INEOS has had to hire a new manager and sporting director at Nice — what does it tell us about its long-term plans?`\
+https://nytimes.com/athletic/5611733/2024/07/28/ineos-nice-haise-maurice-ratcliffe/
+
 **‘Maybe I’ve Gotten Worse’: Trump Makes Clear That Unity Is Over**\
 `At a rally in Minnesota on Saturday, former President Donald J. Trump once more escalated his attacks against Vice President Kamala Harris, painting her as extreme and mocking her demeanor.`\
 https://nytimes.com/2024/07/28/us/politics/trump-vance-unity-minnesota.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5659904/2024/07/27/mlb-trade-deadline-roundup/
 **Beshear, a Potential Harris V.P. Pick, Rallies Democrats in Deep-Red Iowa**\
 `Gov. Andy Beshear of Kentucky has shown off his attack dog chops in recent days, offering a message of unity in a state dominated by Republicans — but where Democrats say they’ve seen fresh energy.`\
 https://nytimes.com/2024/07/27/us/politics/beshear-harris-vp-democrats-iowa.html
-
-**Ederson on his Manchester City future: 'There isn't a decision yet'Ederson on his Manchester City future: 'There isn't a decision yet'**\
-`Ederson says no decision has been made about his Manchester City future amid interest from clubs in Saudi Arabia.`\
-https://nytimes.com/athletic/5663493/2024/07/27/ederson-manchester-city-furure/
-
-**The Briefing: Arsenal 2 Man United 1 - Hojlund and Yoro injuries, sharp Mount and Amad-Antony battle**\
-`Laurie Whitwell analyses the main talking points from Manchester United's friendly defeat by Arsenal`\
-https://nytimes.com/athletic/5663259/2024/07/27/man-united-arsenal-friendly-analysis/
-
-**Trump, Appealing to Bitcoin Fans, Vows U.S. Will Be ‘Crypto Capital of the Planet’**\
-`Donald Trump, speaking at a Bitcoin conference, told cryptocurrency holders that he would end the “persecution” of their industry.`\
-https://nytimes.com/2024/07/27/us/politics/trump-bitcoin-crypto.html
 
