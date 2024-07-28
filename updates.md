@@ -1,3 +1,7 @@
+**14-year-old McKenna Whitham becomes youngest player to appear in top-level American soccer**\
+`Whitham beats the record set by Cavan Sullivan earlier this month.`\
+https://nytimes.com/athletic/5664928/2024/07/28/mckenna-whitham-youngest-top-level-american-soccer/
+
 **'The time is now': Twins clinch series behind dominant Bailey Ober as trade deadline nears**\
 `Rocco Baldelli wants fans to support the Twins, who are on pace for 90 wins and could use some reinforcements to catch the Guardians.`\
 https://nytimes.com/athletic/5664820/2024/07/28/twins-trade-deadline-dominant-bailey-ober/

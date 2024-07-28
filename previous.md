@@ -1,3 +1,7 @@
+**14-year-old McKenna Whitham becomes youngest player to appear in top-level American soccer**\
+`Whitham beats the record set by Cavan Sullivan earlier this month.`\
+https://nytimes.com/athletic/5664928/2024/07/28/mckenna-whitham-youngest-top-level-american-soccer/
+
 **Braves might need to trade for starter after Reynaldo López exits with injury**\
 `The Braves were known to be strongly pursuing an outfielder, but pitching could be moving up the priority list.`\
 https://nytimes.com/athletic/5664765/2024/07/28/braves-trade-deadline-reynaldo-lopez/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5664672/2024/07/28/steelers-training-camp-russell-w
 **Rosenthal: The Rays are running a clinic on how to sell at the trade deadline**\
 `After adding 14 prospects in six recent trades, the Rays likely aren't done yet. `\
 https://nytimes.com/athletic/5664725/2024/07/28/tampa-bay-rays-trade-deadline-sellers/
-
-**Adams Blocks Law That Bans Solitary Confinement in New York Jails**\
-`Mayor Eric Adams declared a state of emergency in New York City jails and suspended parts of a law banning solitary confinement, a day before it was to take effect.`\
-https://nytimes.com/2024/07/28/nyregion/adams-suspends-solitary-confinement-law.html
 
