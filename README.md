@@ -1,3 +1,7 @@
+**Lowetide: Will Oilers management tweak mean stronger European UFA presence?**\
+`As Chicago Blackhawks GM, Stan Bowman had an impressive track record in signing impact Europeans.`\
+https://nytimes.com/athletic/5662532/2024/07/28/oilers-management-european-ufas/
+
 **Padres bolster bullpen, send top pitching prospect to Rays for Jason Adam: source**\
 `The San Diego Padres addressed one of their more glaring needs Sunday by agreeing to acquire one of the top available right-handed relievers, Tampa Bay Rays setup man Jason Adam, in a trade that required surrendering one of their best prospects.`\
 https://nytimes.com/athletic/5663978/2024/07/28/jason-adam-dylan-lesko-padres-rays/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5663828/2024/07/28/tottenham-yang-min-hyuk-confirme
 **As F-16s Arrive, Ukraine Still Faces Steep Challenges in the Skies**\
 `Ukraine wants to deploy its first F-16 jets this summer, hoping to counter Russia’s dominance in the air. But stepped-up Russian bombing attacks on air bases complicate the effort.`\
 https://nytimes.com/2024/07/28/world/europe/ukraine-russia-f-16s.html
-
-**49ers training camp: With first day in pads near, Dominick Puni's opportunity is here**\
-`An injury to Spencer Burford has helped open the door for Puni, the 49ers' third-round draft pick who might boost their pass protection.`\
-https://nytimes.com/athletic/5662902/2024/07/28/49ers-training-camp-dominick-puni/
 
