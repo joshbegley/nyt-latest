@@ -1,3 +1,11 @@
+**By the smallest of margins, Torri Huske beat her U.S. teammate and managed to heal an old heartbreak at the same time.**\
+`In third place at the turn, Huske powered to gold, edging her teammate — and world-record holder — Gretchen Walsh at the end by touching just ahead of her. `\
+https://nytimes.com/2024/07/28/world/olympics/torri-huske-gretchen-walsh.html
+
+**Jake Ciely's 2024 Fantasy Football Rankings: Post NFL Draft ranks update**\
+`Now that the dust has settled on the 2024 NFL Draft, Jake Ciely has updated his fantasys football rankings. `\
+https://nytimes.com/athletic/5454803/2024/07/28/2024-fantasy-football-rankings/
+
 **Want a reliever at MLB trade deadline? Be ready to pay: ‘It may take more than expected’**\
 `Deals for relievers are a staple of the trade deadline. But rising prices have prompted teams to pay a steeper price for bullpen help. `\
 https://nytimes.com/athletic/5664305/2024/07/28/mlb-trade-deadline-relievers-cost/
