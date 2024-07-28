@@ -1,3 +1,7 @@
+**Jordan Chiles had a huge day, then came the cruel reality of Olympic gymnastics**\
+`Jordan Chiles did just about everything right Sunday at the Olympics. But two of her teammates were just a little bit better.`\
+https://nytimes.com/athletic/5664213/2024/07/28/jordan-chiles-2024-paris-olympics-gymnastics-all-around/
+
 **It’s really a matter of math …**\
 `There are 10,000 athletes at the Paris Games, spread across 32 sports. In the space of 19 days, that field has to be whittled down to just 329 gold medals. So, ultimately, someone has to go out first.`\
 https://nytimes.com/2024/07/28/world/olympics/its-really-a-matter-of-math.html
@@ -33,8 +37,4 @@ https://nytimes.com/card/2024/07/28/world/americas/venezuela-election
 **Hamilton wins Belgian GP after Russell DQ**\
 `This is the first disqualification the grid has seen since the 2023 U.S. Grand Prix.`\
 https://nytimes.com/athletic/5664173/2024/07/28/george-russell-dq-belgian-grand-prix-lewis-hamilton/
-
-**Review: ‘The Righteous’ Brings Stirring Prayer to Santa Fe Opera**\
-`Gregory Spears and Tracy K. Smith’s new work about an ambitious minister’s rise in the 1980s is that rarity in contemporary music: an original story.`\
-https://nytimes.com/2024/07/28/arts/music/review-righteous-opera-music.html
 
