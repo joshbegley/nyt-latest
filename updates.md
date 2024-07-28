@@ -1,3 +1,7 @@
+**Padres firing 'on all cylinders' as winning streak reaches season-best 7 games**\
+`The Padres have outscored their opponents by a combined margin of 43-12 during this dominant stretch.`\
+https://nytimes.com/athletic/5662634/2024/07/27/padres-seven-game-winning-streak/
+
 **JD Vance Stumbles in His Debut as Democrats Go on Offense**\
 `In the 12 days since Ohio’s junior senator was tapped as the future of Donald J. Trump’s movement, old comments and a chorus of derision have blunted any sense of invulnerability.`\
 https://nytimes.com/2024/07/27/us/politics/jd-vance-trump.html
