@@ -1,3 +1,11 @@
+**What is a Yurchenko double pike?**\
+`The Yurchenko double pike, also known as the Biles II after Simone Biles, is the hardest vault in women’s gymnastics and one of only two involving a double flip.`\
+https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/what-is-a-yurchenko-double-pike
+
+**Simone Biles injures leg in return to Olympics, stays in competition**\
+`Simone Biles injured her leg on a tumbling pass in warmups for the floor routine in Sunday's women's qualification round but has stayed in.`\
+https://nytimes.com/athletic/5663739/2024/07/28/simone-biles-injury-gymnastics/
+
 **Jade Carey, 24**\
 `Carey was recruited to elite gymnastics for her vaulting abilities. Now she is a two-time Olympian.`\
 https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/jade-carey-24
