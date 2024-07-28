@@ -1,3 +1,7 @@
+**Danny Jansen's trade to Red Sox cuts deep with Blue Jays, fanbase**\
+`Jansen, the longest tenured Blue Jay now headed to Boston, wouldn't rule out returning as a free agent. “I'm never going to shut any doors.”`\
+https://nytimes.com/athletic/5663357/2024/07/27/danny-jansen-blue-jays-trade-impact/
+
 **Lithium Battery Fire Traps Drivers in Sweltering Heat on California Highway**\
 `Traffic was at a standstill for hours on a portion of I-15 near Baker, Calif., after a truck carrying lithium batteries overturned and caught fire.`\
 https://nytimes.com/2024/07/27/us/battery-fire-traffic-nevada-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/27/us/politics/elon-musk-kamala-harris-deepfake.html
 **With precise passes and flying chest bumps, Lamar Jackson proves he's feeling better**\
 `The two-time MVP returned and showed no obvious effects from the illness that forced him to miss four of Baltimore's practices this week. `\
 https://nytimes.com/athletic/5663171/2024/07/27/lamar-jackson-ravens-training-camp-2024/
-
-**MLB Trade Grades: Phillies acquire Carlos Estévez with the World Series in mind**\
-`Both teams, Phillies and Angels, did exactly what they should do — one getting better right now and one getting better for the future. `\
-https://nytimes.com/athletic/5663234/2024/07/27/mlb-trade-grades-phillies-angels-estevez/
 
