@@ -1,3 +1,19 @@
+**MLB Trade Grades: Did Rays get enough for All-Star Isaac Paredes in trade with Cubs?**\
+`Paredes was considered perhaps the top bat on the market, and seeing him land with the last-place Cubs is a genuine surprise.`\
+https://nytimes.com/athletic/5664438/2024/07/28/mlb-trade-grades-isaac-paredes-rays-cubs/
+
+**Bills training camp: Keon Coleman makes a splash, no clear No. 2 running back**\
+`Plus, double duty for Cam Lewis, and more.`\
+https://nytimes.com/athletic/5664258/2024/07/28/buffalo-bills-training-camp-keon-coleman-cam-lewis/
+
+**12 Officials Sentenced for Roles in Devastating Libya Flood**\
+`The officials were punished nearly a year after two dams above the seaside city of Derna failed in a storm, killing thousands and destroying much of the area.`\
+https://nytimes.com/2024/07/28/world/middleeast/libya-flood-convictions.html
+
+**Under a roaring crowd, Léon Marchand of France leaves the world’s best swimmers in his wake.**\
+`Marchand, who has been dubbed the “French Michael Phelps,” set the Olympic record in the men’s 400-meter individual medley final.`\
+https://nytimes.com/2024/07/28/world/olympics/leon-marchand-record.html
+
 **Varane joins Como after Manchester United exit**\
 `Raphael Varane has joined Italian club Como on a free transfer after leaving Manchester United.`\
 https://nytimes.com/athletic/5623202/2024/07/28/raphael-varane-como-transfer/
