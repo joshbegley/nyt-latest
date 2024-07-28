@@ -14,8 +14,8 @@ https://nytimes.com/2024/07/28/sports/olympics-opening-ceremony-last-supper-pari
 `With blueberry spoon cake for dessert, naturally.`\
 https://nytimes.com/2024/07/28/dining/grilled-chicken-with-corn-and-lime-basil-butter-a-fantastic-taste-of-summer.html
 
-**Negotiators Meet in Rome to Revive Push for Hostage Release and Cease-Fire in Gaza**\
-`The talks remain stuck over several key issues, including the extent to which Israeli troops should withdraw from Gaza during a truce.`\
+**Negotiators Meet to Revive Push for Hostage Release and Cease-Fire in Gaza**\
+`The talks in Rome remain stuck over several key issues, including the extent to which Israeli troops should withdraw from Gaza during a truce.`\
 https://nytimes.com/2024/07/28/world/middleeast/negotiators-meet-in-rome-to-revive-push-for-hostage-release-and-cease-fire-in-gaza.html
 
 **Lowetide: Will Oilers management tweak mean stronger European UFA presence?**\
