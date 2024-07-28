@@ -1,3 +1,7 @@
+**Woo: What I'm hearing on Cardinals' Tommy Edman, Giovanny Gallegos ahead of trade deadline**\
+`The Cardinals intend to trade Gallegos after designating him for assignment on Sunday. `\
+https://nytimes.com/athletic/5664325/2024/07/28/cardinals-trade-deadline-tommy-edman-giovanny-gallegos/
+
 **By the smallest of margins, Torri Huske beat her U.S. teammate and managed to heal an old heartbreak at the same time.**\
 `In third place at the turn, Huske powered to gold, edging her teammate — and world-record holder — Gretchen Walsh at the end by touching just ahead of her. `\
 https://nytimes.com/2024/07/28/world/olympics/torri-huske-gretchen-walsh.html
