@@ -1,3 +1,7 @@
+**Canada's drone use includes Chile training at Copa America, scrimmage against USMNT**\
+`Canada used a drone to monitor a Chile training session before their match at the men’s Copa America last month.`\
+https://nytimes.com/athletic/5660773/2024/07/28/canada-drone-use-chile-training/
+
 **Lee Kiefer defends Olympic fencing gold in all-American women's foil final**\
 `Kiefer was borne into the sport, and into as close to a fencing royal family as America could produce.`\
 https://nytimes.com/athletic/5664493/2024/07/28/lee-kiefer-gold-medal-fencing-lauren-scruggs-olympics-america/

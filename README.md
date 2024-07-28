@@ -1,3 +1,7 @@
+**Canada mount late comeback to keep Olympic dream alive**\
+`Canada kept their Olympic medal hopes alive with a dramatic comeback win over hosts France on Sunday evening.`\
+https://nytimes.com/athletic/5664164/2024/07/28/canada-france-olympics/
+
 **Canada's drone use includes Chile training at Copa America, scrimmage against USMNT**\
 `Canada used a drone to monitor a Chile training session before their match at the men’s Copa America last month.`\
 https://nytimes.com/athletic/5660773/2024/07/28/canada-drone-use-chile-training/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5454803/2024/07/28/2024-fantasy-football-rankings/
 **Remembering the Firebrand Irish Novelist Edna O’Brien**\
 `Her fiction delivered searing, candid portraits of Irish society through the prism of female friendship.`\
 https://nytimes.com/2024/07/28/books/review/edna-obrien-appreciation.html
-
-**Liverpool reject Marseille bid for Endo**\
-`Liverpool have rejected an offer of €14million (£11.`\
-https://nytimes.com/athletic/5664437/2024/07/28/marseille-endo-bid-liverpool/
 

@@ -1,3 +1,7 @@
+**Canada's drone use includes Chile training at Copa America, scrimmage against USMNT**\
+`Canada used a drone to monitor a Chile training session before their match at the men’s Copa America last month.`\
+https://nytimes.com/athletic/5660773/2024/07/28/canada-drone-use-chile-training/
+
 **Lee Kiefer defends Olympic fencing gold in all-American women's foil final**\
 `Kiefer was borne into the sport, and into as close to a fencing royal family as America could produce.`\
 https://nytimes.com/athletic/5664493/2024/07/28/lee-kiefer-gold-medal-fencing-lauren-scruggs-olympics-america/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/28/books/review/edna-obrien-appreciation.html
 **Liverpool reject Marseille bid for Endo**\
 `Liverpool have rejected an offer of €14million (£11.`\
 https://nytimes.com/athletic/5664437/2024/07/28/marseille-endo-bid-liverpool/
-
-**Belgian GP takeaways: Mercedes' bittersweet victory, Ferrari's frustration**\
-`Plus: Piastri on the hunt, Verstappen holds serve, and Ricciardo makes a move. `\
-https://nytimes.com/athletic/5664399/2024/07/28/f1-belgian-gp-takeaways-mercedes-ferrari-piastri/
 
