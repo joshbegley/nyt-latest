@@ -1,3 +1,15 @@
+**Bellingham, Messi and the perils of burnout, incessant football and playing through injury**\
+`Matches, thousands of them — why FIFA are being accused of presiding over an international calendar that is “beyond saturation”`\
+https://nytimes.com/athletic/5658661/2024/07/28/bellingham-messi-injuries-fifpro-calendar-fifa/
+
+**After another disastrous loss, the focus is on what the Dodgers need at the trade deadline**\
+`The Dodgers are 10-11 in July despite being outscored by 29 runs. They could use reinforcements in several areas.`\
+https://nytimes.com/athletic/5663535/2024/07/28/dodgers-disastrous-houston-loss-trade-deadline-needs/
+
+**New-look Nice: What the French club's shakeup tells us about INEOS and Man Utd**\
+`INEOS has had to hire a new manager and sporting director at Nice — what does it tell us about its long-term plans?`\
+https://nytimes.com/athletic/5611733/2024/07/28/ineos-nice-haise-maurice-ratcliffe/
+
 **‘Maybe I’ve Gotten Worse’: Trump Makes Clear That Unity Is Over**\
 `At a rally in Minnesota on Saturday, former President Donald J. Trump once more escalated his attacks against Vice President Kamala Harris, painting her as extreme and mocking her demeanor.`\
 https://nytimes.com/2024/07/28/us/politics/trump-vance-unity-minnesota.html
