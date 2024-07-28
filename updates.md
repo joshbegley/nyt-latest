@@ -1,3 +1,7 @@
+**MLB Trade Grades: Rays do it again with strong return on Jason Adam deal**\
+`The Padres did what they do often — while the Rays did what they do best. `\
+https://nytimes.com/athletic/5664052/2024/07/28/mlb-trade-grades-jason-adam-padres-rays/
+
 **Rafael Nadal sets up Olympic tennis clash with old rival Novak Djokovic in Paris**\
 `Rafael Nadal came through three sets on his favorite court to set up a match with Novak Djokovic at the 2024 Paris Olympics`\
 https://nytimes.com/athletic/5663994/2024/07/28/rafael-nadal-tennis-olympics-novak-djokovic/
