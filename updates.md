@@ -1,3 +1,7 @@
+**Spencer Schwellenbach strikes out 11 Mets in Braves' shutout as rapid ascent continues**\
+`Braves manager Brian Snitker said he’s seen a lot of young pitchers do big things, but Schwellenbach’s outing ranked near the top.`\
+https://nytimes.com/athletic/5663422/2024/07/27/braves-spencer-schwellenbach-11-strikeouts/
+
 **The Briefing: Arsenal 2 Man United 1 - goals for Jesus and Martinelli, Nwaneri impresses again**\
 `James McNicholas addresses the key talking points from Arsenal's friendly win against Manchester United`\
 https://nytimes.com/athletic/5659074/2024/07/27/arsenal-man-united-friendly-analysis/
