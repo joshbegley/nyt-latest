@@ -1,3 +1,11 @@
+**Kevin Durant shines in return as Team USA crushes Serbia in Olympics opener**\
+`Durant scored 21 points, all in the first half, and made his first eight shots in the Americans’ 110-84 win Sunday.`\
+https://nytimes.com/athletic/5664077/2024/07/28/usa-serbia-basketball-olympics-results/
+
+**Blue Jackets Sunday Gathering: Arbitration avoided after Kirill Marchenko signs**\
+`The Blue Jackets announced Sunday they've agreed to terms with Marchenko's agent on a three-year, $11.55 million contract.`\
+https://nytimes.com/athletic/5660396/2024/07/28/blue-jackets-marchenko-contract-evason/
+
 **A Watershed Moment for Venezuela**\
 `By Marian Carrasquero and Alejandro Cegarra`\
 https://nytimes.com/card/2024/07/28/world/americas/venezuela-election
