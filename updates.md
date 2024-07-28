@@ -1,3 +1,11 @@
+**Law: Padres pay heavily to Rays for bullpen upgrade in Jason Adam**\
+`Despite Dyan Lesko's struggles this season, his upside remains that of an above-average starter`\
+https://nytimes.com/athletic/5664070/2024/07/28/jason-adam-dylan-lesko-padres-rays-analysis/
+
+**Veiga not alarmed by Chelsea form: 'The most important thing is the process'**\
+`Chelsea defender Renato Veiga believes there is no reason to panic over the club’s disappointing start to pre-season and says they should only be judged once their Premier League campaign begins.`\
+https://nytimes.com/athletic/5663808/2024/07/28/chelsea-preseason-tour-renato-veiga/
+
 **Steven van de Velde brings yet another moral hazard to the Olympics**\
 `PARIS — There is no way to sugarcoat this.`\
 https://nytimes.com/athletic/5663866/2024/07/28/steven-van-de-velde-child-rapist-olympics-beach-volleyball/
