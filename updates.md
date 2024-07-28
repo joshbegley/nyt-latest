@@ -1,3 +1,7 @@
+**Elliott backs Carsley as England's next manager**\
+`Liverpool midfielder Harvey Elliott believes Lee Carsley is the perfect candidate to succeed Gareth Southgate as England manager.`\
+https://nytimes.com/athletic/5664274/2024/07/28/harvey-elliott-lee-carsley-england-manager/
+
 **Jordan Chiles had a huge day, then came the cruel reality of Olympic gymnastics**\
 `Jordan Chiles did just about everything right Sunday at the Olympics. But two of her teammates were just a little bit better.`\
 https://nytimes.com/athletic/5664213/2024/07/28/jordan-chiles-2024-paris-olympics-gymnastics-all-around/

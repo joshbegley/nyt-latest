@@ -1,3 +1,7 @@
+**Elliott backs Carsley as England's next manager**\
+`Liverpool midfielder Harvey Elliott believes Lee Carsley is the perfect candidate to succeed Gareth Southgate as England manager.`\
+https://nytimes.com/athletic/5664274/2024/07/28/harvey-elliott-lee-carsley-england-manager/
+
 **Jordan Chiles had a huge day, then came the cruel reality of Olympic gymnastics**\
 `Jordan Chiles did just about everything right Sunday at the Olympics. But two of her teammates were just a little bit better.`\
 https://nytimes.com/athletic/5664213/2024/07/28/jordan-chiles-2024-paris-olympics-gymnastics-all-around/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5660396/2024/07/28/blue-jackets-marchenko-contract-
 **A Watershed Moment for Venezuela**\
 `By Marian Carrasquero and Alejandro Cegarra`\
 https://nytimes.com/card/2024/07/28/world/americas/venezuela-election
-
-**Hamilton wins Belgian GP after Russell DQ**\
-`This is the first disqualification the grid has seen since the 2023 U.S. Grand Prix.`\
-https://nytimes.com/athletic/5664173/2024/07/28/george-russell-dq-belgian-grand-prix-lewis-hamilton/
 
