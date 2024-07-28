@@ -1,3 +1,7 @@
+**JD Vance Stumbles in His Debut as Democrats Go on Offense**\
+`In the 12 days since Ohio’s junior senator was tapped as the future of Donald J. Trump’s movement, old comments and a chorus of derision have blunted any sense of invulnerability.`\
+https://nytimes.com/2024/07/27/us/politics/jd-vance-trump.html
+
 **Who Is Eminem for in 2024?**\
 `A conversation about the Detroit rapper’s long and unlikely career as his 12th studio album reaches No. 1.`\
 https://nytimes.com/2024/07/27/arts/music/popcast-eminem.html

@@ -1,3 +1,7 @@
+**JD Vance Stumbles in His Debut as Democrats Go on Offense**\
+`In the 12 days since Ohio’s junior senator was tapped as the future of Donald J. Trump’s movement, old comments and a chorus of derision have blunted any sense of invulnerability.`\
+https://nytimes.com/2024/07/27/us/politics/jd-vance-trump.html
+
 **Who Is Eminem for in 2024?**\
 `A conversation about the Detroit rapper’s long and unlikely career as his 12th studio album reaches No. 1.`\
 https://nytimes.com/2024/07/27/arts/music/popcast-eminem.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/27/world/olympics/suni-lee-gymnastics-ba
 **The Briefing: Man City 2 AC Milan 3 - Bobb makes his case, Rodri back-up and a rare Carson outing**\
 `Sam Lee addresses the main talking points from Manchester City's friendly defeat by AC Milan`\
 https://nytimes.com/athletic/5659073/2024/07/27/manchester-city-ac-milan-friendly/
-
-**For Katie Ledecky, Olympics open with a complicated loss to her biggest rival**\
-`As Ariarne Titmus dealt Katie Ledecky another loss in the 400-meter freestyle, the American wasn't ready to examine her future in the event.`\
-https://nytimes.com/athletic/5663268/2024/07/27/katie-ledecky-olympics-ariarne-titmus-400-meter-freestyle/
 
