@@ -1,3 +1,11 @@
+**From Believers to Bitcoin: 24 Hours in Trump’s Code-Switching Campaign**\
+`When Donald J. Trump tries to win over a crowd that is not inherently his own, the results can be awkward.`\
+https://nytimes.com/2024/07/28/us/politics/donald-trump-campaign-2024-bitcoin.html
+
+**Steelers training camp: Russell Wilson ramping up, Justin Fields throws first pick**\
+`Wilson (calf injury) was a partial participant Sunday, and coach Mike Tomlin expects he'll work into some team periods this week.`\
+https://nytimes.com/athletic/5664672/2024/07/28/steelers-training-camp-russell-wilson-justin-field-interception/
+
 **Marlins' Xavier Edwards hits for cycle**\
 `Luis Arraez is the only other player to hit for the cycle in the Marlins’ 32 seasons.`\
 https://nytimes.com/athletic/5664777/2024/07/28/marlins-xavier-edwards-cycle/
