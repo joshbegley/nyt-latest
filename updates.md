@@ -1,3 +1,11 @@
+**What to Watch in the Olympic Women’s Gymnastics Competition**\
+`By Maggie Astor`\
+https://nytimes.com/2024/07/28/world/olympics/what-to-watch-in-the-olympic-womens-gymnastics-competition.html
+
+**Here’s the latest on women’s gymnastics qualifying.**\
+`By Juliet Macur`\
+https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/heres-the-latest-on-womens-gymnastics-qualifying
+
 **Man United left sweating over Hojlund and Yoro injuries**\
 `Manchester United are sweating over injuries to Rasmus Hojlund and Leny Yoro after both were forced off in the pre-season defeat to Arsenal in Los Angeles.`\
 https://nytimes.com/athletic/5663673/2024/07/28/hojlund-yoro-injury-manchester-united/

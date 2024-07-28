@@ -1,3 +1,11 @@
+**What to Watch in the Olympic Women’s Gymnastics Competition**\
+`By Maggie Astor`\
+https://nytimes.com/2024/07/28/world/olympics/what-to-watch-in-the-olympic-womens-gymnastics-competition.html
+
+**Here’s the latest on women’s gymnastics qualifying.**\
+`By Juliet Macur`\
+https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/heres-the-latest-on-womens-gymnastics-qualifying
+
 **Man United left sweating over Hojlund and Yoro injuries**\
 `Manchester United are sweating over injuries to Rasmus Hojlund and Leny Yoro after both were forced off in the pre-season defeat to Arsenal in Los Angeles.`\
 https://nytimes.com/athletic/5663673/2024/07/28/hojlund-yoro-injury-manchester-united/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/28/nyregion/metropolitan-diary.html
 **How the Shock of Catastrophic Floods Is Changing Farming in Vermont**\
 `A growing cohort of young farmers is experimenting with ways to mitigate the impact of flooding and other extreme weather.`\
 https://nytimes.com/2024/07/28/us/flooding-farming-vermont.html
-
-**Marina Abramovic Wants to Live, Laugh, Love**\
-`At 77, the famous performance artist is determined to endure past 100. She recently introduced some products she hopes will help.`\
-https://nytimes.com/2024/07/28/style/marina-abramovic-performance-for-the-oceans.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/07/28/crosswords/spelling-bee-forum.html
 
