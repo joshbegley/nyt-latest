@@ -1,3 +1,11 @@
+**Andy Murray and Dan Evans pull off ludicrous comeback in Olympic doubles**\
+`Murray and Evans will play Sander Gille and Joran Vliegen of Belgium or Arthur Fils and Ugo Humbert of France in the second round`\
+https://nytimes.com/athletic/5664211/2024/07/28/andy-murray-tennis-paris-olympics-dan-evans/
+
+**Torri Huske edges teammate Gretchen Walsh in dramatic 100-meter fly**\
+`Huske touched in 55.59 seconds after an incredible final 50 meters. She held off Walsh by 0.04 seconds.`\
+https://nytimes.com/athletic/5664018/2024/07/28/torri-huske-gretchen-walsh-olympics-swimming-gold-butterfly/
+
 **Rahm ends wait for first LIV win after Hatton misses putt**\
 `"I’m just relieved that it has happened," Rahm said about his first individual championship on the LIV Golf tour.`\
 https://nytimes.com/athletic/5664373/2024/07/28/jon-rahm-liv-win-england-hatton/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5663974/2024/07/28/leon-marchand-mens-swimming-fran
 **A Village’s Anguish Over 12 Children Lost to a Rocket Strike**\
 `A stunned hush of collective mourning fell over Majdal Shams, in the Israeli-controlled Golan Heights, after the attack from Lebanon.`\
 https://nytimes.com/2024/07/28/world/middleeast/majdal-shams-attack-golan.html
-
-**Video Shows Aftermath of Strike on Israeli-Controlled Golan Heights**\
-`Israel blamed Hezbollah, the Iranian-backed Lebanese military group, for an attack on a soccer field that killed 12 children and teenagers. Hezbollah has denied responsibility.`\
-https://nytimes.com/video/world/middleeast/100000009596906/israel-lebanon-strike-soccer.html
-
-**Jordan Chiles had a huge day, then came the cruel reality of Olympic gymnastics**\
-`Jordan Chiles did just about everything right Sunday at the Olympics. But two of her teammates were just a little bit better.`\
-https://nytimes.com/athletic/5664213/2024/07/28/jordan-chiles-2024-paris-olympics-gymnastics-all-around/
 
