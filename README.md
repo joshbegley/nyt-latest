@@ -1,3 +1,7 @@
+**As F-16s Arrive, Ukraine Still Faces Steep Challenges in the Skies**\
+`Ukraine wants to deploy its first F-16 jets this summer, hoping to counter Russia’s dominance in the air. But stepped-up Russian bombing attacks on air bases complicate the effort.`\
+https://nytimes.com/2024/07/28/world/europe/ukraine-russia-f-16s.html
+
 **49ers training camp: With first day in pads near, Dominick Puni's opportunity is here**\
 `An injury to Spencer Burford has helped open the door for Puni, the 49ers' third-round draft pick who might boost their pass protection.`\
 https://nytimes.com/athletic/5662902/2024/07/28/49ers-training-camp-dominick-puni/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/what-
 **Simone Biles returns to Olympics with an injury scare and a dazzling show**\
 `Simone Biles injured her leg early in her return to Olympic gymnastics, but she stayed in the competition and put on a show from there.`\
 https://nytimes.com/athletic/5663739/2024/07/28/simone-biles-injury-gymnastics/
-
-**Jade Carey, 24**\
-`Carey was recruited to elite gymnastics for her vaulting abilities. Now she is a two-time Olympian.`\
-https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/jade-carey-24
 
