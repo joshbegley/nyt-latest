@@ -1,3 +1,7 @@
+**South Sudan 'disrespected' by national anthem mixup**\
+`South Sudan men&#8217;s basketball players said they felt disrespected after the wrong national anthem was played before the team&#8217;s Olympic debut Sunday.`\
+https://nytimes.com/athletic/5663803/2024/07/28/south-sudan-wrong-anthem-olympics-basketball/
+
 **MLB Trade Grades: Mets get balance, Nats get return on investment in Jesse Winker deal**\
 `The Nationals signed Jesse Winker for $2 million this offseason. He produced, and now garnered them a prospect in trade.    `\
 https://nytimes.com/athletic/5663860/2024/07/28/mlb-trade-grades-jesse-winker-mets-nationals/
