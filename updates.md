@@ -1,3 +1,7 @@
+**Pérez’s brutal Belgian GP leaves Red Bull facing a decision ‘nobody wants to make’**\
+`The Mexican driver's slide from second to eighth came at a terrible team for a team trying to fend of a surging McLaren. `\
+https://nytimes.com/athletic/5664119/2024/07/28/sergio-perez-red-bull-future-belgian-gp-spa/
+
 **James C. Scott, Iconoclastic Social Scientist, Dies at 87**\
 `In influential books, he questioned top-down government programs and extolled the power of the powerless, embracing a form of anarchism.`\
 https://nytimes.com/2024/07/28/books/james-scott-dead.html

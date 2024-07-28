@@ -1,3 +1,7 @@
+**Pérez’s brutal Belgian GP leaves Red Bull facing a decision ‘nobody wants to make’**\
+`The Mexican driver's slide from second to eighth came at a terrible team for a team trying to fend of a surging McLaren. `\
+https://nytimes.com/athletic/5664119/2024/07/28/sergio-perez-red-bull-future-belgian-gp-spa/
+
 **James C. Scott, Iconoclastic Social Scientist, Dies at 87**\
 `In influential books, he questioned top-down government programs and extolled the power of the powerless, embracing a form of anarchism.`\
 https://nytimes.com/2024/07/28/books/james-scott-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/28/opinion/toxic-family-therapy.html
 **Robert Downey Jr. Set to Return to Marvel as Dr. Doom**\
 `The actor announced his return to Marvel’s superhero movie franchise five years after ending his long run as Iron Man.`\
 https://nytimes.com/2024/07/28/arts/robert-downey-dr-doom-marvel.html
-
-**Léon Marchand sets new Olympic record, takes gold in 400-meter IM**\
-`Japan's Tomoyuki Matsushita took silver and American Carson Foster took bronze.`\
-https://nytimes.com/athletic/5663974/2024/07/28/leon-marchand-mens-swimming-france-olympics/
 
