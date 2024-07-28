@@ -1,3 +1,7 @@
+**MLB Trade Grades: Mets get balance, Nats get return on investment in Jesse Winker deal**\
+`The Nationals signed Jesse Winker for $2 million this offseason. He produced, and now garnered them a prospect in trade.    `\
+https://nytimes.com/athletic/5663860/2024/07/28/mlb-trade-grades-jesse-winker-mets-nationals/
+
 **Here’s how Simone Biles and her American teammates stormed into the finals.**\
 `Biles needed tape on her lower leg after an awkward landing, but went on to a solid qualifying performance.`\
 https://nytimes.com/2024/07/28/world/olympics/simone-biles-team-usa-gymnastics.html
