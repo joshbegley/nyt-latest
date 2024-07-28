@@ -1,40 +1,40 @@
-**What to Watch in the Olympic Women’s Gymnastics Competition**\
-`By Maggie Astor`\
-https://nytimes.com/2024/07/28/world/olympics/what-to-watch-in-the-olympic-womens-gymnastics-competition.html
+**‘Deadpool & Wolverine’ Reverses Marvel’s Box Office Slump**\
+`The superhero sequel was on pace to collect about $200 million at North American theaters over the weekend, a record opening for an R-rated movie.`\
+https://nytimes.com/2024/07/28/business/deadpool-wolverine-marvel-box-office.html
 
-**Here’s the latest on women’s gymnastics qualifying.**\
-`By Juliet Macur`\
-https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/heres-the-latest-on-womens-gymnastics-qualifying
+**The Quiet Bond Kamala Harris Forged With Three V.P. Contenders**\
+`The vice president is considering several men who also served as state attorneys general. Those relationships could inform her crucial decision in the days ahead.`\
+https://nytimes.com/2024/07/28/us/politics/kamala-harris-vice-president-attorney-general.html
 
-**Man United left sweating over Hojlund and Yoro injuries**\
-`Manchester United are sweating over injuries to Rasmus Hojlund and Leny Yoro after both were forced off in the pre-season defeat to Arsenal in Los Angeles.`\
-https://nytimes.com/athletic/5663673/2024/07/28/hojlund-yoro-injury-manchester-united/
+**‘Iron Lady’ vs. Autocrat: Venezuela Faces Existential Vote for President**\
+`Sunday’s election could mark the end of a generation of rule by Venezuela’s socialist party. It could also usher in a period of profound uncertainty.`\
+https://nytimes.com/2024/07/28/world/americas/venezuela-election-maduro-gonzalez-machado.html
 
-**Russia Punches Through Weakened Lines in Eastern Ukraine**\
-`Military analysts say Russian forces are increasingly investigating Ukrainian lines to identify weakened positions before attacking and breaking through.`\
-https://nytimes.com/2024/07/28/world/europe/ukraine-russia-battle-gains.html
+**Kamala Harris’s Laugh Is a Campaign Issue. Our Comedy Critic Weighs in.**\
+`The Trump campaign sees Harris’s laugh as a vulnerability to exploit. But far from a liability, it is one of her most effective weapons.`\
+https://nytimes.com/2024/07/28/arts/kamala-harris-laugh.html
 
-**At the N.R.A., a Battle Between the Old Guard and the New**\
-`The new chief executive is at odds with the new board president, just as the organization is arguing against a court-ordered monitor to oversee its finances.`\
-https://nytimes.com/2024/07/28/nyregion/nra-trial-leadership-fight.html
+**The Lesser-Known Side of Harris’s Identity: Asian American**\
+`Some Asian American leaders are rooting for Kamala Harris to become the first Asian American president. But she is not widely known as Asian American, reflecting the complexity of the identity.`\
+https://nytimes.com/2024/07/28/us/politics/harris-asian-american-black-woman.html
 
-**Know What’s Funny About Getting Old? These Movies Do.**\
-`Star-studded with leading ladies, who are all a bit older, recent comedies like “The Fabulous Four” and “80 for Brady” are establishing a popular new genre.`\
-https://nytimes.com/2024/07/28/movies/older-actresses-comedies.html
+**Business Is Buzzing Again for the Meme Makers of the Left**\
+`After a few sluggish years under President Biden, liberal social media creators are seeing their messages resonate as Kamala Harris campaigns for the White House.`\
+https://nytimes.com/2024/07/28/technology/kamala-harris-memes.html
 
-**Hollywood’s Message to Red States: Our Movies Are for You**\
-`After a period of openly using movies to display progressive values, studios seem to be heeding a message from many ticket buyers: Just entertain us.`\
-https://nytimes.com/2024/07/28/business/media/hollywood-movies-red-state-audiences.html
+**A Memoir That Delivers on Its Promise of ‘Sex, Drugs, and Opera’**\
+`In “Seeing Through,” the prolific composer Ricky Ian Gordon shares the heroes, monsters, obsessions and fetishes that drive his art and fuel a dizzying life.`\
+https://nytimes.com/2024/07/28/books/review/ricky-ian-gordon-seeing-through-memoir-opera.html
 
-**Simone Biles Is Done Being Judged**\
-`Three years after she dropped out of the Tokyo Games with a mental block, she is back at the Olympics with a defiant attitude — and a sense of where she is in the air.`\
-https://nytimes.com/2024/07/28/world/olympics/simone-biles-olympic-gymnast.html
+**Racked by Pain and Enraptured by a Right-Wing Miracle Cure**\
+`With Patriot Party News, Michael Chesebro found a sense of community, and a place where conspiracy theories could become real in the form of the “medbed.”`\
+https://nytimes.com/2024/07/28/us/politics/far-right-miracle-cure-medbed.html
 
-**‘I Walked Right Into a Tree Branch, an Arm Extended Over the Sidewalk’**\
-`A block comes to life on a summer day, a Staten Island bird feeder and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2024/07/28/nyregion/metropolitan-diary.html
+**A Pedigreed Rail Magnate Is Pouring Millions Into Electing Donald Trump**\
+`Timothy Mellon, a reclusive heir to a storied fortune, is spending tens of millions to election Donald J. Trump. Precisely what he wants in return is one of many curiosities surrounding him.`\
+https://nytimes.com/2024/07/28/us/politics/donald-trump-2024-campaign-timothy-mellon.html
 
-**How the Shock of Catastrophic Floods Is Changing Farming in Vermont**\
-`A growing cohort of young farmers is experimenting with ways to mitigate the impact of flooding and other extreme weather.`\
-https://nytimes.com/2024/07/28/us/flooding-farming-vermont.html
+**Romeo and Juliet, Plus Guns, Cults and Waco, Texas**\
+`An infamous 1993 siege provides the backdrop for Bret Anthony Johnston’s novel about star-crossed lovers.`\
+https://nytimes.com/2024/07/28/books/review/bret-anthony-johnston-we-burn-daylight.html
 
