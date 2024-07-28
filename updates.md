@@ -1,3 +1,11 @@
+**Hezly Rivera, 16**\
+`Rivera, the youngest member of the U.S. team, turned in a solid performance at the Olympic trials to qualify after multiple top gymnasts were injured.`\
+https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/hezly-rivera-16
+
+**Jordan Chiles, 23**\
+`On and off the competition floor, Jordan Chiles is the sort of presence you can’t miss. Her performance has flourished since she moved to Texas to train with Simone Biles.`\
+https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/jordan-chiles-23
+
 **Yves du Manoir Stadium, only Paris Olympic venue in both 1924 and 2024, is worth the trip**\
 `After 100 years, one venue from the 1924 Paris Games is being used again for this Olympics. And it's packed with history.`\
 https://nytimes.com/athletic/5663308/2024/07/28/yves-du-manoir-stadium-2024-paris-olympics/
