@@ -1,3 +1,11 @@
+**Canada's Priestman apologizes, will cooperate with spying investigation**\
+`“I want to take accountability, and I plan to fully cooperate with the investigation,” Priestman said.`\
+https://nytimes.com/athletic/5664202/2024/07/28/bev-priestman-statement-fifa-sanctions-olympics/
+
+**Harris Campaign Says It Raised $200 Million Since Biden Dropped Out**\
+`The one-week total is more than President Biden’s haul in the first quarter of the year. About two-thirds came from first-time donors, according to the vice president’s campaign.`\
+https://nytimes.com/2024/07/28/us/politics/kamala-harris-fund-raising-week.html
+
 **Kevin Durant shines in return as Team USA crushes Serbia in Olympics opener**\
 `Durant scored 21 points, all in the first half, and made his first eight shots in the Americans’ 110-84 win Sunday.`\
 https://nytimes.com/athletic/5664077/2024/07/28/usa-serbia-basketball-olympics-results/

@@ -1,3 +1,11 @@
+**Canada's Priestman apologizes, will cooperate with spying investigation**\
+`“I want to take accountability, and I plan to fully cooperate with the investigation,” Priestman said.`\
+https://nytimes.com/athletic/5664202/2024/07/28/bev-priestman-statement-fifa-sanctions-olympics/
+
+**Harris Campaign Says It Raised $200 Million Since Biden Dropped Out**\
+`The one-week total is more than President Biden’s haul in the first quarter of the year. About two-thirds came from first-time donors, according to the vice president’s campaign.`\
+https://nytimes.com/2024/07/28/us/politics/kamala-harris-fund-raising-week.html
+
 **Kevin Durant shines in return as Team USA crushes Serbia in Olympics opener**\
 `Durant scored 21 points, all in the first half, and made his first eight shots in the Americans’ 110-84 win Sunday.`\
 https://nytimes.com/athletic/5664077/2024/07/28/usa-serbia-basketball-olympics-results/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/28/us/harris-trump-election/vance-stumps-in-a-r
 **MLB Trade Grades: Rays do it again with strong return on Jason Adam deal**\
 `The Padres did what they do often — while the Rays did what they do best. `\
 https://nytimes.com/athletic/5664052/2024/07/28/mlb-trade-grades-jason-adam-padres-rays/
-
-**Rafael Nadal sets up Olympic tennis clash with old rival Novak Djokovic in Paris**\
-`Rafael Nadal came through three sets on his favorite court to set up a match with Novak Djokovic at the 2024 Paris Olympics`\
-https://nytimes.com/athletic/5663994/2024/07/28/rafael-nadal-tennis-olympics-novak-djokovic/
-
-**Law: Padres pay heavily to Rays for bullpen upgrade in Jason Adam**\
-`Despite Dyan Lesko's struggles this season, his upside remains that of an above-average starter`\
-https://nytimes.com/athletic/5664070/2024/07/28/jason-adam-dylan-lesko-padres-rays-analysis/
 
