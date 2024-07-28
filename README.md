@@ -1,3 +1,11 @@
+**Echoes of the Fort McMurray Disaster as Fire Sweeps Into Jasper, Alberta**\
+`About a third of the buildings in the mountain resort town have burned, raising questions about preparedness and the role of climate change.`\
+https://nytimes.com/2024/07/27/world/canada/fire-jasper-alberta.html
+
+**Why the Mets should add a starter at the trade deadline**\
+`Kodai Senga is out for the year and Tyler Megill’s performance on Saturday highlighted the problem with counting on him in the rotation.`\
+https://nytimes.com/athletic/5663328/2024/07/27/mets-trade-deadline-starting-pitcher/
+
 **The Move That May Take Sunisa Lee’s Name**\
 `Sunisa Lee has been practicing a new difficult element in her uneven bars routine. If she completes it at the Olympics, it will be named “The Lee.”`\
 https://nytimes.com/interactive/2024/07/27/world/olympics/suni-lee-gymnastics-bars.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5663139/2024/07/27/danny-jansen-trade-red-sox-blue-
 **The great America-Australia relay rivalry gets another worthy chapter in Paris**\
 `Saturday night, Australia and the U.S. each won one of the two 4x100-meter freestyle relays. And that feels right.`\
 https://nytimes.com/athletic/5663050/2024/07/27/2024-paris-olympics-swimming-relay-america-australia/
-
-**Phillies get Carlos Estévez in trade with Angels to boost back of bullpen**\
-`The Phillies fortified their bullpen by acquiring one of the best-available rental relievers, but paid a steep price. `\
-https://nytimes.com/athletic/5663218/2024/07/27/carlos-estevez-trade-phillies-angels/
-
-**Minnesota’s Governor, a Harris V.P. Contender, Calls Trump and Vance ‘Weird People’**\
-`Gov. Tim Walz took jabs at Trump and his vice-presidential pick, JD Vance, at a rally in St. Cloud, Minn., hours before the Republican duo were scheduled to arrive for their own campaign event.`\
-https://nytimes.com/2024/07/27/us/politics/walz-trump-vance-weird-people.html
 
