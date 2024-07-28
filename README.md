@@ -1,3 +1,7 @@
+**The Pulse: Spygate fallout continues**\
+`Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5664038/2024/07/28/canada-soccer-drones-opening-ceremony-memes-the-pulse/
+
 **Phillies improve bullpen with Carlos Estévez acquisition, Angels get strong return**\
 `The Phillies picked up a solid addition for the backend of their bullpen, but they paid a steep price for the privilege. `\
 https://nytimes.com/athletic/5664022/2024/07/28/carlos-estevez-phillies-angels-trade-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5663978/2024/07/28/jason-adam-dylan-lesko-padres-ra
 **The Olympics Has a Bad Guy: Anyone in an Argentina Jersey**\
 `Grudges from the World Cup and rugby union have spilled over to the Games. But is this new sports feud even real?`\
 https://nytimes.com/2024/07/28/world/olympics/argentina-france-rugby-soccer.html
-
-**U.S. and Japan Announce Steps to Strengthen Their Military Ties**\
-`The two governments said the moves were a response to growing aggression by China, whose rapid military buildup has many leaders worried.`\
-https://nytimes.com/2024/07/28/world/asia/us-japan-military-alliance.html
 
