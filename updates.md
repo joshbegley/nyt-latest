@@ -1,3 +1,11 @@
+**Quotation of the Day: Israeli Evacuation Order Displaces Gazans Again**\
+`Quotation of the Day for Sunday, July 28, 2024.`\
+https://nytimes.com/2024/07/28/pageoneplus/quotation-of-the-day-israeli-evacuation-order-displaces-gazans-again.html
+
+**After Yankees trade for Jazz Chisholm Jr.: What's next?**\
+`New York has multiple needs as the trade deadline nears — starting pitchers and relievers, and they'll likely seek another reliable hitter.`\
+https://nytimes.com/athletic/5663576/2024/07/28/yankees-jazz-chisholm-jr-trade/
+
 **Is Liverpool's £20m Van den Berg valuation realistic?**\
 `The defender hopes to stay at Anfield but he does not want to spend another season struggling for game time - and he is in demand`\
 https://nytimes.com/athletic/5662957/2024/07/28/van-den-berg-liverpool-mainz-valuation/
