@@ -1,3 +1,7 @@
+**Review: ‘The Righteous’ Brings Stirring Prayer to Santa Fe Opera**\
+`Gregory Spears and Tracy K. Smith’s new work about an ambitious minister’s rise in the 1980s is that rarity in contemporary music: an original story.`\
+https://nytimes.com/2024/07/28/arts/music/review-righteous-opera-music.html
+
 **Jill Biden, Jessica Chastain and Nick Jonas Toast Team U.S.A. in Paris**\
 `Athletes, actors, and journalists drank champagne and sampled from a raw bar at a party thrown by Ralph Lauren during the first weekend of the Paris Olympics.`\
 https://nytimes.com/2024/07/28/style/jill-biden-jessica-chastain-nick-jonas-olympics-usa.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5664038/2024/07/28/canada-soccer-drones-opening-cer
 **Phillies improve bullpen with Carlos Estévez acquisition, Angels get strong return**\
 `The Phillies picked up a solid addition for the backend of their bullpen, but they paid a steep price for the privilege. `\
 https://nytimes.com/athletic/5664022/2024/07/28/carlos-estevez-phillies-angels-trade-analysis/
-
-**Chargers training camp, Day 4: Justin Herbert, Ladd McConkey rediscover rhythm**\
-`Could McConkey, the Chargers' second-round pick, develop into Herbert's trusted go-to receiver on third and fourth downs? `\
-https://nytimes.com/athletic/5663608/2024/07/28/chargers-training-camp-ladd-mcconkey-justin-herbert/
 
