@@ -1,3 +1,7 @@
+**Israel Returns Fire After Deadly Rocket From Lebanon Hits Soccer Field**\
+`The overnight strikes, a response to a rocket attack from Lebanon that killed 12 people in an Israeli-controlled town, stopped short of a major escalation, for now.`\
+https://nytimes.com/2024/07/28/world/middleeast/israel-lebanon-strike.html
+
 **Quotation of the Day: Israeli Evacuation Order Displaces Gazans Again**\
 `Quotation of the Day for Sunday, July 28, 2024.`\
 https://nytimes.com/2024/07/28/pageoneplus/quotation-of-the-day-israeli-evacuation-order-displaces-gazans-again.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5663544/2024/07/28/jesse-winker-trade-mets-national
 **Bellingham, Messi and the perils of burnout, incessant football and playing through injury**\
 `Matches, thousands of them — why FIFA are being accused of presiding over an international calendar that is “beyond saturation”`\
 https://nytimes.com/athletic/5658661/2024/07/28/bellingham-messi-injuries-fifpro-calendar-fifa/
-
-**After another disastrous loss, the focus is on what the Dodgers need at the trade deadline**\
-`The Dodgers are 10-11 in July despite being outscored by 29 runs. They could use reinforcements in several areas.`\
-https://nytimes.com/athletic/5663535/2024/07/28/dodgers-disastrous-houston-loss-trade-deadline-needs/
 

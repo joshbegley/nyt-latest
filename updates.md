@@ -1,3 +1,7 @@
+**Israel Returns Fire After Deadly Rocket From Lebanon Hits Soccer Field**\
+`The overnight strikes, a response to a rocket attack from Lebanon that killed 12 people in an Israeli-controlled town, stopped short of a major escalation, for now.`\
+https://nytimes.com/2024/07/28/world/middleeast/israel-lebanon-strike.html
+
 **Quotation of the Day: Israeli Evacuation Order Displaces Gazans Again**\
 `Quotation of the Day for Sunday, July 28, 2024.`\
 https://nytimes.com/2024/07/28/pageoneplus/quotation-of-the-day-israeli-evacuation-order-displaces-gazans-again.html
