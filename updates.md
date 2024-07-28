@@ -1,3 +1,11 @@
+**It’s really a matter of math …**\
+`There are 10,000 athletes at the Paris Games, spread across 32 sports. In the space of 19 days, that field has to be whittled down to just 329 gold medals. So, ultimately, someone has to go out first.`\
+https://nytimes.com/2024/07/28/world/olympics/its-really-a-matter-of-math.html
+
+**Jill Schary Robinson, Who Wrote of Her Hollywood Upbringing, Dies at 88**\
+`A screenwriter’s daughter, she grew up in the glittering world of privilege and its contradictions, which became rich material for her memoirs and novels.`\
+https://nytimes.com/2024/07/28/books/jill-schary-robinson-dead.html
+
 **Edna O’Brien, Writer Who Gave Voice to Women’s Passions, Dies at 93**\
 `Her novels and short stories often explored the lives of willful women who loved men who were crass, unfaithful or already married.`\
 https://nytimes.com/2024/07/28/obituaries/edna-o-brien-dead.html
