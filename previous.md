@@ -1,3 +1,7 @@
+**MLB trade deadline roundup: All the deals from Thursday through Saturday**\
+`The action started Thursday and intensified from there, with both Florida teams sending dynamic players to American League contenders.`\
+https://nytimes.com/athletic/5659904/2024/07/27/mlb-trade-deadline-roundup/
+
 **Beshear, a Potential Harris V.P. Pick, Rallies Democrats in Deep-Red Iowa**\
 `Gov. Andy Beshear of Kentucky has shown off his attack dog chops in recent days, offering a message of unity in a state dominated by Republicans — but where Democrats say they’ve seen fresh energy.`\
 https://nytimes.com/2024/07/27/us/politics/beshear-harris-vp-democrats-iowa.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/27/arts/music/popcast-eminem.html
 **Padres firing 'on all cylinders' as winning streak reaches season-best 7 games**\
 `The Padres have outscored their opponents by a combined margin of 43-12 during this dominant stretch.`\
 https://nytimes.com/athletic/5662634/2024/07/27/padres-seven-game-winning-streak/
-
-**Danny Jansen's trade to Red Sox cuts deep with Blue Jays, fan base**\
-`Jansen, the longest tenured Blue Jay now headed to Boston, wouldn't rule out returning as a free agent. “I'm never going to shut any doors.”`\
-https://nytimes.com/athletic/5663357/2024/07/27/danny-jansen-blue-jays-trade-impact/
 

@@ -1,3 +1,7 @@
+**MLB trade deadline roundup: All the deals from Thursday through Saturday**\
+`The action started Thursday and intensified from there, with both Florida teams sending dynamic players to American League contenders.`\
+https://nytimes.com/athletic/5659904/2024/07/27/mlb-trade-deadline-roundup/
+
 **Beshear, a Potential Harris V.P. Pick, Rallies Democrats in Deep-Red Iowa**\
 `Gov. Andy Beshear of Kentucky has shown off his attack dog chops in recent days, offering a message of unity in a state dominated by Republicans — but where Democrats say they’ve seen fresh energy.`\
 https://nytimes.com/2024/07/27/us/politics/beshear-harris-vp-democrats-iowa.html
