@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5664613/2024/07/28/uswnt-germany-olympic-scoring/
 
 **Canada mount late comeback to keep Olympic dream alive**\
-`Canada kept their Olympic medal hopes alive with a dramatic comeback win over hosts France on Sunday evening.`\
+`Vanessa Gilles scored 12 minutes into stoppage time to pull Canada back from the brink of elimination.`\
 https://nytimes.com/athletic/5664164/2024/07/28/canada-france-olympics/
 
 **Canada's drone use includes Chile training at Copa America, scrimmage against USMNT**\
