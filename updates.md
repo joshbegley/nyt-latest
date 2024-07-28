@@ -1,3 +1,7 @@
+**Rafael Nadal sets up Olympic tennis clash with old rival Novak Djokovic in Paris**\
+`Rafael Nadal came through three sets on his favorite court to set up a match with Novak Djokovic at the 2024 Paris Olympics`\
+https://nytimes.com/athletic/5663994/2024/07/28/rafael-nadal-tennis-olympics-novak-djokovic/
+
 **Law: Padres pay heavily to Rays for bullpen upgrade in Jason Adam**\
 `Despite Dyan Lesko's struggles this season, his upside remains that of an above-average starter`\
 https://nytimes.com/athletic/5664070/2024/07/28/jason-adam-dylan-lesko-padres-rays-analysis/
