@@ -1,3 +1,7 @@
+**What’s on TV This Week: ‘Elizabeth Taylor: The Lost Tapes’ and ‘House of the Dragon’**\
+`HBO airs a new documentary. The “Game of Thrones” spinoff wraps up its second season.`\
+https://nytimes.com/2024/07/28/arts/television/whats-on-tv-this-week-elizabeth-taylor-the-lost-tapes-and-house-of-the-dragon.html
+
 **The Leeds controversy over 'super away attendees' - what's happened and is it fair?**\
 `Some Leeds supporters are unhappy with the new policy around away season tickets`\
 https://nytimes.com/athletic/5657849/2024/07/28/leeds-away-season-ticket-super-away-attendees/
