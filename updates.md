@@ -1,3 +1,7 @@
+**Kevin Durant takes all that fretting over his status and stuffs it in the hoop**\
+`In Team USA's Olympic debut, Kevin Durant finally made his debut. And it was worth the wait.`\
+https://nytimes.com/athletic/5664589/2024/07/28/kevin-durant-team-usa-basketball-2024-paris-olympics/
+
 **Rosenthal: The Rays are running a clinic on how to sell at the trade deadline**\
 `After adding 14 prospects in six recent trades, the Rays likely aren't done yet. `\
 https://nytimes.com/athletic/5664725/2024/07/28/tampa-bay-rays-trade-deadline-sellers/
