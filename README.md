@@ -1,3 +1,11 @@
+**Minteh impresses again as Brighton round off Japan tour with win**\
+`Brighton completed their two-match trip to Japan with a 4-2 victory against Tokyo Verdy.`\
+https://nytimes.com/athletic/5663771/2024/07/28/brighton-japan-tour-result/
+
+**Adapting to the Heat**\
+`How to help your body adjust to higher temperatures.`\
+https://nytimes.com/2024/07/28/briefing/adapting-to-the-heat.html
+
 **Southampton in advanced talks to sign Brereton Diaz from Villarreal**\
 `Southampton are in advanced talks to sign Ben Brereton Diaz from Villarreal.`\
 https://nytimes.com/athletic/5663761/2024/07/28/southampton-ben-brereton-diaz/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/jade-
 **Here are guides to the vault, bars, beam and floor.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/here-are-guides-to-the-vault-bars-beam-and-floor
-
-**Here’s the latest on the presidential race.**\
-`Democrats are increasing adopting a line of attack pioneered by Gov. Tim Walz of Minnesota, one of Kamala Harris’s top contenders: that Donald Trump and his Republican allies are “just plain weird.”`\
-https://nytimes.com/live/2024/07/28/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Cubs add to bullpen as trade deadline nears, but other relievers could be on the way out**\
-`Despite the addition of Nate Pearson, there's a chance the Cubs will trade one of these four relievers.`\
-https://nytimes.com/athletic/5663442/2024/07/28/cubs-trade-deadline-nate-pearson/
 
