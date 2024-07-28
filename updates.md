@@ -1,3 +1,7 @@
+**Man United left sweating over Hojlund and Yoro injuries**\
+`Manchester United are sweating over injuries to Rasmus Hojlund and Leny Yoro after both were forced off in the pre-season defeat to Arsenal in Los Angeles.`\
+https://nytimes.com/athletic/5663673/2024/07/28/hojlund-yoro-injury-manchester-united/
+
 **Russia Punches Through Weakened Lines in Eastern Ukraine**\
 `Military analysts say Russian forces are increasingly investigating Ukrainian lines to identify weakened positions before attacking and breaking through.`\
 https://nytimes.com/2024/07/28/world/europe/ukraine-russia-battle-gains.html

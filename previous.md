@@ -1,3 +1,7 @@
+**Man United left sweating over Hojlund and Yoro injuries**\
+`Manchester United are sweating over injuries to Rasmus Hojlund and Leny Yoro after both were forced off in the pre-season defeat to Arsenal in Los Angeles.`\
+https://nytimes.com/athletic/5663673/2024/07/28/hojlund-yoro-injury-manchester-united/
+
 **Russia Punches Through Weakened Lines in Eastern Ukraine**\
 `Military analysts say Russian forces are increasingly investigating Ukrainian lines to identify weakened positions before attacking and breaking through.`\
 https://nytimes.com/2024/07/28/world/europe/ukraine-russia-battle-gains.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/28/style/marina-abramovic-performance-for-the-oceans
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/07/28/crosswords/spelling-bee-forum.html
-
-**Israel Returns Fire After Deadly Rocket From Lebanon Hits Soccer Field**\
-`The overnight strikes, a response to a rocket attack from Lebanon that killed 12 people in an Israeli-controlled town, stopped short of a major escalation, for now.`\
-https://nytimes.com/2024/07/28/world/middleeast/israel-lebanon-strike.html
 
