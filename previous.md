@@ -1,3 +1,11 @@
+**Braves might need to trade for starter after Reynaldo López exits with injury**\
+`The Braves were known to be strongly pursuing an outfielder, but pitching could be moving up the priority list.`\
+https://nytimes.com/athletic/5664765/2024/07/28/braves-trade-deadline-reynaldo-lopez/
+
+**Twins clinch series behind dominant Bailey Ober as trade deadline nears: 'The time is now'**\
+`Rocco Baldelli wants fans to support the Twins, who are on pace for 90 wins and could use some reinforcements to catch the Guardians.`\
+https://nytimes.com/athletic/5664820/2024/07/28/twins-trade-deadline-dominant-bailey-ober/
+
 **Dodgers' River Ryan jumps into rotation conversation ahead of trade deadline**\
 `Dodgers rookie starters have a 3.04 ERA this season, second only to the Pirates.`\
 https://nytimes.com/athletic/5664749/2024/07/28/dodgers-river-ryan-trade-deadline/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5664725/2024/07/28/tampa-bay-rays-trade-deadline-se
 **Adams Blocks Law That Bans Solitary Confinement in New York Jails**\
 `Mayor Eric Adams declared a state of emergency in New York City jails and suspended parts of a law banning solitary confinement, a day before it was to take effect.`\
 https://nytimes.com/2024/07/28/nyregion/adams-suspends-solitary-confinement-law.html
-
-**Quick Drive Around Town**\
-`Jeffrey Lease doubles down.`\
-https://nytimes.com/2024/07/28/crosswords/quick-drive-around-town.html
-
-**Vance heads west this week, and Shapiro and Whitmer rally in Pennsylvania.**\
-`By Anushka Patil`\
-https://nytimes.com/live/2024/07/28/us/harris-trump-election/vance-heads-west-this-week-and-shapiro-and-whitmer-rally-in-pennsylvania
 
