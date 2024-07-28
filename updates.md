@@ -1,3 +1,7 @@
+**3 Men With White Supremacist Ties Sentenced in Plan to Attack Power Facility**\
+`Two of the men met through a neo-Nazi online forum and recruited other people to join their scheme, which was rooted in white supremacist ideology, prosecutors said.`\
+https://nytimes.com/2024/07/28/us/energy-grid-attack-plot-white-supremacy.html
+
 **14-year-old McKenna Whitham becomes youngest player to appear in top-level American soccer**\
 `Whitham beats the record set by Cavan Sullivan earlier this month.`\
 https://nytimes.com/athletic/5664928/2024/07/28/mckenna-whitham-youngest-top-level-american-soccer/
