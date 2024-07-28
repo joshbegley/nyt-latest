@@ -1,3 +1,11 @@
+**Varane joins Como after Manchester United exit**\
+`Raphael Varane has joined Italian club Como on a free transfer after leaving Manchester United.`\
+https://nytimes.com/athletic/5623202/2024/07/28/raphael-varane-como-transfer/
+
+**Léon Marchand of France leaves the world’s best swimmers in his wake.**\
+`Marchand, who has been dubbed the “French Michael Phelps,” set the Olympic record in the men’s 400-meter individual medley final.`\
+https://nytimes.com/2024/07/28/world/olympics/leon-marchand-record.html
+
 **Pérez’s brutal Belgian GP leaves Red Bull facing a decision ‘nobody wants to make’**\
 `The Mexican driver's slide from second to eighth came at a terrible team for a team trying to fend of a surging McLaren. `\
 https://nytimes.com/athletic/5664119/2024/07/28/sergio-perez-red-bull-future-belgian-gp-spa/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5664380/2024/07/28/mlb-isaac-paredes-cubs-rays-trad
 **Elliott backs Carsley as England's next manager**\
 `Liverpool midfielder Harvey Elliott believes Lee Carsley is the perfect candidate to succeed Gareth Southgate as England manager.`\
 https://nytimes.com/athletic/5664274/2024/07/28/harvey-elliott-lee-carsley-england-manager/
-
-**Toxic Families: Is Breaking Away the Answer?**\
-`Responses to a Science Times article. Also: The joys of a foreign language; Donald Trump’s platform changes; a Long Island militia; understanding sloths.`\
-https://nytimes.com/2024/07/28/opinion/toxic-family-therapy.html
-
-**Robert Downey Jr. Set to Return to Marvel as Dr. Doom**\
-`The actor announced his return to Marvel’s superhero movie franchise five years after ending his long run as Iron Man.`\
-https://nytimes.com/2024/07/28/arts/robert-downey-dr-doom-marvel.html
 

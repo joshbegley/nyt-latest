@@ -1,3 +1,11 @@
+**Varane joins Como after Manchester United exit**\
+`Raphael Varane has joined Italian club Como on a free transfer after leaving Manchester United.`\
+https://nytimes.com/athletic/5623202/2024/07/28/raphael-varane-como-transfer/
+
+**Léon Marchand of France leaves the world’s best swimmers in his wake.**\
+`Marchand, who has been dubbed the “French Michael Phelps,” set the Olympic record in the men’s 400-meter individual medley final.`\
+https://nytimes.com/2024/07/28/world/olympics/leon-marchand-record.html
+
 **Pérez’s brutal Belgian GP leaves Red Bull facing a decision ‘nobody wants to make’**\
 `The Mexican driver's slide from second to eighth came at a terrible team for a team trying to fend of a surging McLaren. `\
 https://nytimes.com/athletic/5664119/2024/07/28/sergio-perez-red-bull-future-belgian-gp-spa/
