@@ -1,3 +1,7 @@
+**Padres bolster bullpen, send top pitching prospect to Rays for Jason Adam: source**\
+`The San Diego Padres addressed one of their more glaring needs Sunday by agreeing to acquire one of the top available right-handed relievers, Tampa Bay Rays setup man Jason Adam, in a trade that required surrendering one of their best prospects.`\
+https://nytimes.com/athletic/5663978/2024/07/28/jason-adam-dylan-lesko-padres-rays/
+
 **The Olympics Has a Bad Guy: Anyone in an Argentina Jersey**\
 `Grudges from the World Cup and rugby union have spilled over to the Games. But is this new sports feud even real?`\
 https://nytimes.com/2024/07/28/world/olympics/argentina-france-rugby-soccer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/28/world/europe/ukraine-russia-f-16s.html
 **49ers training camp: With first day in pads near, Dominick Puni's opportunity is here**\
 `An injury to Spencer Burford has helped open the door for Puni, the 49ers' third-round draft pick who might boost their pass protection.`\
 https://nytimes.com/athletic/5662902/2024/07/28/49ers-training-camp-dominick-puni/
-
-**Minteh impresses again as Brighton round off Japan tour with win**\
-`Brighton completed their two-match trip to Japan with a 4-2 victory against Tokyo Verdy.`\
-https://nytimes.com/athletic/5663771/2024/07/28/brighton-japan-tour-result/
 

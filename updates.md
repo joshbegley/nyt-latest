@@ -1,3 +1,7 @@
+**Padres bolster bullpen, send top pitching prospect to Rays for Jason Adam: source**\
+`The San Diego Padres addressed one of their more glaring needs Sunday by agreeing to acquire one of the top available right-handed relievers, Tampa Bay Rays setup man Jason Adam, in a trade that required surrendering one of their best prospects.`\
+https://nytimes.com/athletic/5663978/2024/07/28/jason-adam-dylan-lesko-padres-rays/
+
 **The Olympics Has a Bad Guy: Anyone in an Argentina Jersey**\
 `Grudges from the World Cup and rugby union have spilled over to the Games. But is this new sports feud even real?`\
 https://nytimes.com/2024/07/28/world/olympics/argentina-france-rugby-soccer.html
