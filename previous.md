@@ -1,3 +1,7 @@
+**Rams' deep TEs room features 'family' dynamic, new methods, young coach**\
+`The Rams are excited about their tight ends — the players are larger, the depth is deeper — and the possibilities they bring to the offense.`\
+https://nytimes.com/athletic/5661347/2024/07/28/la-rams-tight-ends-system-family/
+
 **What is a Yurchenko double pike?**\
 `The Yurchenko double pike, also known as the Biles II after Simone Biles, is the hardest vault in women’s gymnastics and one of only two involving a double flip.`\
 https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/what-is-a-yurchenko-double-pike
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/28/opinion/hulk-hogan-vance-harris.html
 **Travis Kelce enjoys return to ‘sanctuary’ of Chiefs camp after taxing 2023 season**\
 `Entering his 12th season, Kelce has been one of the most encouraging players on the practice fields in the first week of camp.`\
 https://nytimes.com/athletic/5663055/2024/07/28/travis-kelce-chiefs-training-camp/
-
-**14 Questions About Our Leaders’ Health**\
-`Voters deserve transparency.`\
-https://nytimes.com/2024/07/28/opinion/trump-biden-harris-health.html
 

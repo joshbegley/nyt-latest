@@ -1,3 +1,7 @@
+**Rams' deep TEs room features 'family' dynamic, new methods, young coach**\
+`The Rams are excited about their tight ends — the players are larger, the depth is deeper — and the possibilities they bring to the offense.`\
+https://nytimes.com/athletic/5661347/2024/07/28/la-rams-tight-ends-system-family/
+
 **What is a Yurchenko double pike?**\
 `The Yurchenko double pike, also known as the Biles II after Simone Biles, is the hardest vault in women’s gymnastics and one of only two involving a double flip.`\
 https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/what-is-a-yurchenko-double-pike
