@@ -1,3 +1,11 @@
+**Cubs land All-Star 3B Isaac Paredes from Rays**\
+`The Cubs traded for the top hitter available, getting the standout infielder from the Rays. `\
+https://nytimes.com/athletic/5664380/2024/07/28/mlb-isaac-paredes-cubs-rays-trade/
+
+**Toxic Families: Is Breaking Away the Answer?**\
+`Responses to a Science Times article. Also: The joys of a foreign language; Donald Trump’s platform changes; a Long Island militia; understanding sloths.`\
+https://nytimes.com/2024/07/28/opinion/toxic-family-therapy.html
+
 **Robert Downey Jr. Set to Return to Marvel as Dr. Doom**\
 `The actor announced his return to Marvel’s superhero movie franchise five years after ending his long run as Iron Man.`\
 https://nytimes.com/2024/07/28/arts/robert-downey-dr-doom-marvel.html
