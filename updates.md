@@ -1,3 +1,7 @@
+**Behind a French Roar, Léon Marchand leaves the world’s best swimmers in his wake.**\
+`Marchand, who has been dubbed the “French Michael Phelps,” set the Olympic record in the men’s 400-meter individual medley final.`\
+https://nytimes.com/2024/07/28/world/olympics/leon-marchand-record.html
+
 **Belgian GP takeaways: Mercedes' bittersweet victory, Ferrari's frustration**\
 `Plus: Piastri on the hunt, Verstappen holds serve, and Ricciardo makes a move. `\
 https://nytimes.com/athletic/5664399/2024/07/28/f1-belgian-gp-takeaways-mercedes-ferrari-piastri/

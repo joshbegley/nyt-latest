@@ -22,7 +22,7 @@ https://nytimes.com/2024/07/28/world/middleeast/libya-flood-convictions.html
 `Raphael Varane has joined Italian club Como on a free transfer after leaving Manchester United.`\
 https://nytimes.com/athletic/5623202/2024/07/28/raphael-varane-como-transfer/
 
-**Under a roaring crowd, Léon Marchand of France leaves the world’s best swimmers in his wake.**\
+**Behind a French Roar, Léon Marchand leaves the world’s best swimmers in his wake.**\
 `Marchand, who has been dubbed the “French Michael Phelps,” set the Olympic record in the men’s 400-meter individual medley final.`\
 https://nytimes.com/2024/07/28/world/olympics/leon-marchand-record.html
 
