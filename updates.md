@@ -1,3 +1,7 @@
+**Quick Drive Around Town**\
+`Jeffrey Lease doubles down.`\
+https://nytimes.com/2024/07/28/crosswords/quick-drive-around-town.html
+
 **Vance heads west this week, and Shapiro and Whitmer rally in Pennsylvania.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/07/28/us/harris-trump-election/vance-heads-west-this-week-and-shapiro-and-whitmer-rally-in-pennsylvania

@@ -1,3 +1,7 @@
+**Quick Drive Around Town**\
+`Jeffrey Lease doubles down.`\
+https://nytimes.com/2024/07/28/crosswords/quick-drive-around-town.html
+
 **Vance heads west this week, and Shapiro and Whitmer rally in Pennsylvania.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/07/28/us/harris-trump-election/vance-heads-west-this-week-and-shapiro-and-whitmer-rally-in-pennsylvania
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5664325/2024/07/28/cardinals-trade-deadline-tommy-e
 **By the smallest of margins, Torri Huske beat her U.S. teammate and managed to heal an old heartbreak at the same time.**\
 `In third place at the turn, Huske powered to gold, edging her teammate — and world-record holder — Gretchen Walsh at the end by touching just ahead of her. `\
 https://nytimes.com/2024/07/28/world/olympics/torri-huske-gretchen-walsh.html
-
-**Want a reliever at MLB trade deadline? Be ready to pay: ‘It may take more than expected’**\
-`Deals for relievers are a staple of the trade deadline. But rising prices have prompted teams to pay a steeper price for bullpen help. `\
-https://nytimes.com/athletic/5664305/2024/07/28/mlb-trade-deadline-relievers-cost/
 
