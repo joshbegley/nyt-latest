@@ -1,4 +1,4 @@
-**Kevin Durant stuns in Team USA's win vs. Serbia**\
+**Kevin Durant shines in return as Team USA crushes Serbia in Olympics opener**\
 `Durant scored 21 points, all in the first half, and made his first eight shots in the Americans’ 110-84 win Sunday.`\
 https://nytimes.com/athletic/5664077/2024/07/28/usa-serbia-basketball-olympics-results/
 
