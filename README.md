@@ -1,3 +1,7 @@
+**Chargers training camp, Day 4: Justin Herbert, Ladd McConkey rediscover rhythm**\
+`Could McConkey, the Chargers' second-round pick, develop into Herbert's trusted go-to receiver on third and fourth downs? `\
+https://nytimes.com/athletic/5663608/2024/07/28/chargers-training-camp-ladd-mcconkey-justin-herbert/
+
 **Wolves' Gonzalez suffers ACL injury at Paris Olympics**\
 `Wolverhampton Wanderers winger Enso Gonzalez faces an extended period on the sidelines after suffering an anterior cruciate knee ligament (ACL) injury during the men&#8217;s soccer tournament at the Paris Olympics.`\
 https://nytimes.com/athletic/5663962/2024/07/28/wolves-gonzalez-knee-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/28/world/asia/us-japan-military-alliance.html
 **South Sudan 'disrespected' by national anthem mixup**\
 `South Sudan men&#8217;s basketball players said they felt disrespected after the wrong national anthem was played before the team&#8217;s Olympic debut Sunday.`\
 https://nytimes.com/athletic/5663803/2024/07/28/south-sudan-wrong-anthem-olympics-basketball/
-
-**MLB Trade Grades: Mets get balance, Nats get return on investment in Jesse Winker deal**\
-`The Nationals signed Jesse Winker for $2 million this offseason. He produced, and now garnered them a prospect in trade.    `\
-https://nytimes.com/athletic/5663860/2024/07/28/mlb-trade-grades-jesse-winker-mets-nationals/
 
