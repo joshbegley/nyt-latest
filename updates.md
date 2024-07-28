@@ -1,3 +1,11 @@
+**Echoes of the Fort McMurray Disaster as Fire Sweeps Into Jasper, Alberta**\
+`About a third of the buildings in the mountain resort town have burned, raising questions about preparedness and the role of climate change.`\
+https://nytimes.com/2024/07/27/world/canada/fire-jasper-alberta.html
+
+**Why the Mets should add a starter at the trade deadline**\
+`Kodai Senga is out for the year and Tyler Megill’s performance on Saturday highlighted the problem with counting on him in the rotation.`\
+https://nytimes.com/athletic/5663328/2024/07/27/mets-trade-deadline-starting-pitcher/
+
 **The Move That May Take Sunisa Lee’s Name**\
 `Sunisa Lee has been practicing a new difficult element in her uneven bars routine. If she completes it at the Olympics, it will be named “The Lee.”`\
 https://nytimes.com/interactive/2024/07/27/world/olympics/suni-lee-gymnastics-bars.html
