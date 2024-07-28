@@ -1,3 +1,7 @@
+**Steven van de Velde brings yet another moral hazard to the Olympics**\
+`PARIS — There is no way to sugarcoat this.`\
+https://nytimes.com/athletic/5663866/2024/07/28/steven-van-de-velde-child-rapist-olympics-beach-volleyball/
+
 **The Pulse: Spygate fallout continues**\
 `Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5664038/2024/07/28/canada-soccer-drones-opening-ceremony-memes-the-pulse/

@@ -1,3 +1,7 @@
+**Steven van de Velde brings yet another moral hazard to the Olympics**\
+`PARIS — There is no way to sugarcoat this.`\
+https://nytimes.com/athletic/5663866/2024/07/28/steven-van-de-velde-child-rapist-olympics-beach-volleyball/
+
 **The Pulse: Spygate fallout continues**\
 `Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5664038/2024/07/28/canada-soccer-drones-opening-ceremony-memes-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5662532/2024/07/28/oilers-management-european-ufas/
 **Padres bolster bullpen, send top pitching prospect to Rays for Jason Adam: source**\
 `The San Diego Padres addressed a pressing need Sunday by agreeing to acquire one of the best available right-handed relievers, Tampa Bay Rays setup man Jason Adam, in a trade that required surrendering one of their best prospects.`\
 https://nytimes.com/athletic/5663978/2024/07/28/jason-adam-dylan-lesko-padres-rays/
-
-**The Olympics Has a Bad Guy: Anyone in an Argentina Jersey**\
-`Grudges from the World Cup and rugby union have spilled over to the Games. But is this new sports feud even real?`\
-https://nytimes.com/2024/07/28/world/olympics/argentina-france-rugby-soccer.html
 
