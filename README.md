@@ -3,7 +3,7 @@
 https://nytimes.com/2024/07/27/world/canada/fire-jasper-alberta.html
 
 **Why the Mets should add a starter at the trade deadline**\
-`Kodai Senga is out for the year and Tyler Megill’s performance on Saturday highlighted the problem with counting on him in the rotation.`\
+`Kodai Senga is out for the year and Tylor Megill’s performance on Saturday highlighted the problem with counting on him in the rotation.`\
 https://nytimes.com/athletic/5663328/2024/07/27/mets-trade-deadline-starting-pitcher/
 
 **The Move That May Take Sunisa Lee’s Name**\
