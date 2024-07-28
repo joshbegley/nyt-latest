@@ -1,3 +1,11 @@
+**The Move That May Take Sunisa Lee’s Name**\
+`Sunisa Lee has been practicing a new difficult element in her uneven bars routine. If she completes it at the Olympics, it will be named “The Lee.”`\
+https://nytimes.com/interactive/2024/07/27/world/olympics/suni-lee-gymnastics-bars.html
+
+**The Briefing: Man City 2 AC Milan 3 - Bobb makes his case, Rodri back-up and a rare Carson outing**\
+`Sam Lee addresses the main talking points from Manchester City's friendly defeat by AC Milan`\
+https://nytimes.com/athletic/5659073/2024/07/27/manchester-city-ac-milan-friendly/
+
 **For Katie Ledecky, Olympics open with a complicated loss to her biggest rival**\
 `As Ariarne Titmus dealt Katie Ledecky another loss in the 400-meter freestyle, the American wasn't ready to examine her future in the event.`\
 https://nytimes.com/athletic/5663268/2024/07/27/katie-ledecky-olympics-ariarne-titmus-400-meter-freestyle/
