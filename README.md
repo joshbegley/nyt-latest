@@ -1,4 +1,4 @@
-**Blake Snell ups the ante with 15-K night — but what will the Giants do at the trade deadline?**\
+**Blake Snell ups ante with 15-strikeout night — but what will Giants do at trade deadline?**\
 `Will Snell stay or go? It's becoming a fascinating conundrum for the Giants. His historic outing gave them something else to think about.`\
 https://nytimes.com/athletic/5663626/2024/07/28/blake-snell-sf-giants-trade-deadline/
 
