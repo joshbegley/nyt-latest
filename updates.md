@@ -1,3 +1,11 @@
+**The Leeds controversy over 'super away attendees' - what's happened and is it fair?**\
+`Some Leeds supporters are unhappy with the new policy around away season tickets`\
+https://nytimes.com/athletic/5657849/2024/07/28/leeds-away-season-ticket-super-away-attendees/
+
+**Mets continue to add pieces, acquire Jesse Winker from Nationals: reports**\
+`Winker ranked No. 30 overall and No. 21 among the available bats on The Athletic’s Top 50 Trade Deadline Big Board.`\
+https://nytimes.com/athletic/5663544/2024/07/28/jesse-winker-trade-mets-nationals/
+
 **Bellingham, Messi and the perils of burnout, incessant football and playing through injury**\
 `Matches, thousands of them — why FIFA are being accused of presiding over an international calendar that is “beyond saturation”`\
 https://nytimes.com/athletic/5658661/2024/07/28/bellingham-messi-injuries-fifpro-calendar-fifa/
