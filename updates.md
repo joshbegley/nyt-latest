@@ -1,3 +1,7 @@
+**USWNT 4-1 Germany: U.S. finds scoring groove to take top spot in Group B at 2024 Olympics**\
+`The U.S. heads to the top of Group B with the win. `\
+https://nytimes.com/athletic/5664613/2024/07/28/uswnt-germany-olympic-scoring/
+
 **Canada mount late comeback to keep Olympic dream alive**\
 `Canada kept their Olympic medal hopes alive with a dramatic comeback win over hosts France on Sunday evening.`\
 https://nytimes.com/athletic/5664164/2024/07/28/canada-france-olympics/

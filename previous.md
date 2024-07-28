@@ -1,3 +1,7 @@
+**USWNT 4-1 Germany: U.S. finds scoring groove to take top spot in Group B at 2024 Olympics**\
+`The U.S. heads to the top of Group B with the win. `\
+https://nytimes.com/athletic/5664613/2024/07/28/uswnt-germany-olympic-scoring/
+
 **Canada mount late comeback to keep Olympic dream alive**\
 `Canada kept their Olympic medal hopes alive with a dramatic comeback win over hosts France on Sunday evening.`\
 https://nytimes.com/athletic/5664164/2024/07/28/canada-france-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5664305/2024/07/28/mlb-trade-deadline-relievers-cos
 **Jake Ciely's 2024 Fantasy Football Rankings: Post NFL Draft ranks update**\
 `Now that the dust has settled on the 2024 NFL Draft, Jake Ciely has updated his fantasys football rankings. `\
 https://nytimes.com/athletic/5454803/2024/07/28/2024-fantasy-football-rankings/
-
-**Remembering the Firebrand Irish Novelist Edna O’Brien**\
-`Her fiction delivered searing, candid portraits of Irish society through the prism of female friendship.`\
-https://nytimes.com/2024/07/28/books/review/edna-obrien-appreciation.html
 
