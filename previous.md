@@ -1,3 +1,7 @@
+**U.S. and Japan Announce Steps to Strengthen Their Military Ties**\
+`The two governments said the moves were a response to growing aggression by China, whose rapid military buildup has many leaders worried.`\
+https://nytimes.com/2024/07/28/world/asia/us-japan-military-alliance.html
+
 **South Sudan 'disrespected' by national anthem mixup**\
 `South Sudan men&#8217;s basketball players said they felt disrespected after the wrong national anthem was played before the team&#8217;s Olympic debut Sunday.`\
 https://nytimes.com/athletic/5663803/2024/07/28/south-sudan-wrong-anthem-olympics-basketball/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5663771/2024/07/28/brighton-japan-tour-result/
 **Adapting to the Heat**\
 `How to help your body adjust to higher temperatures.`\
 https://nytimes.com/2024/07/28/briefing/adapting-to-the-heat.html
-
-**Southampton in advanced talks to sign Brereton Diaz from Villarreal**\
-`Southampton are in advanced talks to sign Ben Brereton Diaz from Villarreal.`\
-https://nytimes.com/athletic/5663761/2024/07/28/southampton-ben-brereton-diaz/
 
