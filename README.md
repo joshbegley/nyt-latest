@@ -1,3 +1,7 @@
+**A Blood Test Accurately Diagnosed Alzheimer’s 90% of the Time, Study Finds**\
+`It was much more accurate than primary care doctors using cognitive tests and CT scans. The findings could speed the quest for an affordable and accessible way to diagnose patients with memory problems.`\
+https://nytimes.com/2024/07/28/health/alzheimers-blood-test.html
+
 **Rams' deep TEs room features 'family' dynamic, new methods, young coach**\
 `The Rams are excited about their tight ends — the players are larger, the depth is deeper — and the possibilities they bring to the offense.`\
 https://nytimes.com/athletic/5661347/2024/07/28/la-rams-tight-ends-system-family/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/28/us/harris-trump-election
 **Hulk Hogan Is Not the Only Way to Be a Man**\
 `The Democratic Party must join the battle for the hearts and minds of young men.`\
 https://nytimes.com/2024/07/28/opinion/hulk-hogan-vance-harris.html
-
-**Travis Kelce enjoys return to ‘sanctuary’ of Chiefs camp after taxing 2023 season**\
-`Entering his 12th season, Kelce has been one of the most encouraging players on the practice fields in the first week of camp.`\
-https://nytimes.com/athletic/5663055/2024/07/28/travis-kelce-chiefs-training-camp/
 
