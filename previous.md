@@ -1,3 +1,7 @@
+**Padres firing 'on all cylinders' as winning streak reaches season-best seven games**\
+`The Padres have outscored their opponents by a combined margin of 43-12 during their dominant stretch.`\
+https://nytimes.com/athletic/5662634/2024/07/27/padres-seven-game-winning-streak/
+
 **Danny Jansen's trade to Red Sox cuts deep with Blue Jays, fan base**\
 `Jansen, the longest tenured Blue Jay now headed to Boston, wouldn't rule out returning as a free agent. “I'm never going to shut any doors.”`\
 https://nytimes.com/athletic/5663357/2024/07/27/danny-jansen-blue-jays-trade-impact/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5663268/2024/07/27/katie-ledecky-olympics-ariarne-t
 **Elon Musk Shares Manipulated Harris Video, in Seeming Violation of X’s Policies**\
 `The billionaire owner of the social media platform X reposted a video that mimics Vice President Kamala Harris’s voice, without disclosing that it had been altered.`\
 https://nytimes.com/2024/07/27/us/politics/elon-musk-kamala-harris-deepfake.html
-
-**With precise passes and flying chest bumps, Lamar Jackson proves he's feeling better**\
-`The two-time MVP returned and showed no obvious effects from the illness that forced him to miss four of Baltimore's practices this week. `\
-https://nytimes.com/athletic/5663171/2024/07/27/lamar-jackson-ravens-training-camp-2024/
 

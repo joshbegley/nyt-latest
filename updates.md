@@ -1,3 +1,7 @@
+**Padres firing 'on all cylinders' as winning streak reaches season-best seven games**\
+`The Padres have outscored their opponents by a combined margin of 43-12 during their dominant stretch.`\
+https://nytimes.com/athletic/5662634/2024/07/27/padres-seven-game-winning-streak/
+
 **Danny Jansen's trade to Red Sox cuts deep with Blue Jays, fan base**\
 `Jansen, the longest tenured Blue Jay now headed to Boston, wouldn't rule out returning as a free agent. “I'm never going to shut any doors.”`\
 https://nytimes.com/athletic/5663357/2024/07/27/danny-jansen-blue-jays-trade-impact/
