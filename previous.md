@@ -1,3 +1,11 @@
+**A Village’s Anguish Over 12 Children Lost to a Rocket Strike**\
+`A stunned hush of collective mourning fell over Majdal Shams, in the Israeli-controlled Golan Heights, after the attack from Lebanon.`\
+https://nytimes.com/2024/07/28/world/middleeast/majdal-shams-attack-golan.html
+
+**Video Shows Aftermath of Strike on Israeli-Controlled Golan Heights**\
+`Israel blamed Hezbollah, the Iranian-backed Lebanese military group, for an attack on a soccer field that killed 12 children and teenagers. Hezbollah has denied responsibility.`\
+https://nytimes.com/video/world/middleeast/100000009596906/israel-lebanon-strike-soccer.html
+
 **Elliott backs Carsley as England's next manager**\
 `Liverpool midfielder Harvey Elliott believes Lee Carsley is the perfect candidate to succeed Gareth Southgate as England manager.`\
 https://nytimes.com/athletic/5664274/2024/07/28/harvey-elliott-lee-carsley-england-manager/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/28/us/politics/kamala-harris-fund-raising-week.html
 **Kevin Durant shines in return as Team USA crushes Serbia in Olympics opener**\
 `Durant scored 21 points, all in the first half, and made his first eight shots in the Americans’ 110-84 win Sunday.`\
 https://nytimes.com/athletic/5664077/2024/07/28/usa-serbia-basketball-olympics-results/
-
-**Blue Jackets Sunday Gathering: Arbitration avoided after Kirill Marchenko signs**\
-`The Blue Jackets announced Sunday they've agreed to terms with Marchenko's agent on a three-year, $11.55 million contract.`\
-https://nytimes.com/athletic/5660396/2024/07/28/blue-jackets-marchenko-contract-evason/
-
-**A Watershed Moment for Venezuela**\
-`By Marian Carrasquero and Alejandro Cegarra`\
-https://nytimes.com/card/2024/07/28/world/americas/venezuela-election
 
