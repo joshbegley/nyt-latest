@@ -1,3 +1,7 @@
+**Brutal loss to Yankees highlights Red Sox's need for bullpen help at deadline**\
+`In a back-and-forth game, the cracks in the Red Sox's bullpen were glaring. Can they address those shortfalls before the deadline?`\
+https://nytimes.com/athletic/5663569/2024/07/28/red-sox-deadline-needs-yankees-loss/
+
 **What’s on TV This Week: ‘Elizabeth Taylor: The Lost Tapes’ and ‘House of the Dragon’**\
 `HBO airs a new documentary. The “Game of Thrones” spinoff wraps up its second season.`\
 https://nytimes.com/2024/07/28/arts/television/whats-on-tv-this-week-elizabeth-taylor-the-lost-tapes-and-house-of-the-dragon.html

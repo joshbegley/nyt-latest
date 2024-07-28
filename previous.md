@@ -1,3 +1,7 @@
+**Brutal loss to Yankees highlights Red Sox's need for bullpen help at deadline**\
+`In a back-and-forth game, the cracks in the Red Sox's bullpen were glaring. Can they address those shortfalls before the deadline?`\
+https://nytimes.com/athletic/5663569/2024/07/28/red-sox-deadline-needs-yankees-loss/
+
 **What’s on TV This Week: ‘Elizabeth Taylor: The Lost Tapes’ and ‘House of the Dragon’**\
 `HBO airs a new documentary. The “Game of Thrones” spinoff wraps up its second season.`\
 https://nytimes.com/2024/07/28/arts/television/whats-on-tv-this-week-elizabeth-taylor-the-lost-tapes-and-house-of-the-dragon.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5660772/2024/07/28/mlb-odds-best-bets-projections-j
 **Dream Team dreaming: How great can this U.S. men's basketball team still be?**\
 `As their Olympic run begins, the U.S. men are chasing greatness. And perhaps an impossible standard set by the Dream Team.`\
 https://nytimes.com/athletic/5662720/2024/07/28/us-mens-basketball-olympics-dream-team-greatness/
-
-**Meet Carol Callan, the behind-the-scenes architect of the U.S. women's basketball dynasty**\
-`You might not have heard of Callan. But she has played a major role in creating the era of U.S. women's basketball dominance.`\
-https://nytimes.com/athletic/5662464/2024/07/28/carol-callan-us-womens-basketball-dynasty-architect/
 
