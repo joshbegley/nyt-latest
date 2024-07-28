@@ -1,3 +1,7 @@
+**Lee Kiefer defends Olympic fencing gold in all-American women's foil final**\
+`Kiefer was born into the sport, and into as close to a fencing royal family as America could produce.`\
+https://nytimes.com/athletic/5664493/2024/07/28/lee-kiefer-gold-medal-fencing-lauren-scruggs-olympics-america/
+
 **Canada mount late comeback to keep Olympic dream alive**\
 `Vanessa Gilles scored 12 minutes into stoppage time to pull Canada back from the brink of elimination.`\
 https://nytimes.com/athletic/5664164/2024/07/28/canada-france-olympics/
