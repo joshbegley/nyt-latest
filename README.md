@@ -1,3 +1,7 @@
+**From Believers to Bitcoin: 24 Hours in Trump’s Code-Switching Campaign**\
+`When Donald J. Trump tries to win over a crowd that is not inherently his own, the results can be awkward.`\
+https://nytimes.com/2024/07/28/us/politics/donald-trump-campaign-2024-bitcoin.html
+
 **Marlins' Xavier Edwards hits for cycle**\
 `Luis Arraez is the only other player to hit for the cycle in the Marlins’ 32 seasons.`\
 https://nytimes.com/athletic/5664777/2024/07/28/marlins-xavier-edwards-cycle/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/5664777/2024/07/28/marlins-xavier-edwards-cycle/
 https://nytimes.com/athletic/5664589/2024/07/28/kevin-durant-team-usa-basketball-2024-paris-olympics/
 
 **Steelers training camp: Russell Wilson ramping up, Justin Fields throws first pick**\
-`Wilson (calf injury) was a partial participant Sunday and coach Mike Tomlin expects he'll work into some team periods this week.`\
+`Wilson (calf injury) was a partial participant Sunday, and coach Mike Tomlin expects he'll work into some team periods this week.`\
 https://nytimes.com/athletic/5664672/2024/07/28/steelers-training-camp-russell-wilson-justin-field-interception/
 
 **Rosenthal: The Rays are running a clinic on how to sell at the trade deadline**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5664613/2024/07/28/uswnt-germany-olympic-scoring/
 **Canada mount late comeback to keep Olympic dream alive**\
 `Vanessa Gilles scored 12 minutes into stoppage time to pull Canada back from the brink of elimination.`\
 https://nytimes.com/athletic/5664164/2024/07/28/canada-france-olympics/
-
-**Canada's drone use includes Chile training at Copa America, scrimmage against USMNT**\
-`Canada used a drone to monitor a Chile training session before their match at the men’s Copa America last month.`\
-https://nytimes.com/athletic/5660773/2024/07/28/canada-drone-use-chile-training/
 
