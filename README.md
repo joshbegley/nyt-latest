@@ -1,3 +1,7 @@
+**MLB Trade Grades: Mets get balance, Nats get return on investment in Jesse Winker deal**\
+`The Nationals signed Jesse Winker for $2 million this offseason. He produced, and now garnered them a prospect in trade.    `\
+https://nytimes.com/athletic/5663860/2024/07/28/mlb-trade-grades-jesse-winker-mets-nationals/
+
 **Here’s how Simone Biles and her American teammates stormed into the finals.**\
 `Biles needed tape on her lower leg after an awkward landing, but went on to a solid qualifying performance.`\
 https://nytimes.com/2024/07/28/world/olympics/simone-biles-team-usa-gymnastics.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5663761/2024/07/28/southampton-ben-brereton-diaz/
 **MLB trade deadline primer: Top storylines, rumblings, best-available players**\
 `To set the stage for the run-in to Tuesday's deadline, here are the top storylines, the best-available players and the latest we're hearing.`\
 https://nytimes.com/athletic/5662579/2024/07/28/mlb-trade-deadline-2024-storylines-players-rumors/
-
-**A Blood Test Accurately Diagnosed Alzheimer’s 90% of the Time, Study Finds**\
-`It was much more accurate than primary care doctors using cognitive tests and CT scans. The findings could speed the quest for an affordable and accessible way to diagnose patients with memory problems.`\
-https://nytimes.com/2024/07/28/health/alzheimers-blood-test.html
 
