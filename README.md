@@ -1,3 +1,7 @@
+**‘Maybe I’ve Gotten Worse’: Trump Makes Clear That Unity Is Over**\
+`At a rally in Minnesota on Saturday, former President Donald J. Trump once more escalated his attacks against Vice President Kamala Harris, painting her as extreme and mocking her demeanor.`\
+https://nytimes.com/2024/07/28/us/politics/trump-vance-unity-minnesota.html
+
 **Sunday's MLB odds, best bets: Pitching matchups, playoff odds, props and more**\
 `See pitching matchups, playoff projections, win projections and more for Sunday's MLB games.`\
 https://nytimes.com/athletic/5660772/2024/07/28/mlb-odds-best-bets-projections-july-28/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5663259/2024/07/27/man-united-arsenal-friendly-anal
 **Trump, Appealing to Bitcoin Fans, Vows U.S. Will Be ‘Crypto Capital of the Planet’**\
 `Donald Trump, speaking at a Bitcoin conference, told cryptocurrency holders that he would end the “persecution” of their industry.`\
 https://nytimes.com/2024/07/27/us/politics/trump-bitcoin-crypto.html
-
-**Spencer Schwellenbach strikes out 11 Mets in Braves' shutout as rapid ascent continues**\
-`Braves manager Brian Snitker said he’s seen a lot of young pitchers do big things, but Schwellenbach’s outing ranked near the top.`\
-https://nytimes.com/athletic/5663422/2024/07/27/braves-spencer-schwellenbach-11-strikeouts/
 
