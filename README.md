@@ -1,3 +1,11 @@
+**Cubs land All-Star 3B Isaac Paredes from Rays**\
+`The Cubs traded for the top hitter available, getting the standout infielder from the Rays. `\
+https://nytimes.com/athletic/5664380/2024/07/28/mlb-isaac-paredes-cubs-rays-trade/
+
+**Toxic Families: Is Breaking Away the Answer?**\
+`Responses to a Science Times article. Also: The joys of a foreign language; Donald Trump’s platform changes; a Long Island militia; understanding sloths.`\
+https://nytimes.com/2024/07/28/opinion/toxic-family-therapy.html
+
 **Robert Downey Jr. Set to Return to Marvel as Dr. Doom**\
 `The actor announced his return to Marvel’s superhero movie franchise five years after ending his long run as Iron Man.`\
 https://nytimes.com/2024/07/28/arts/robert-downey-dr-doom-marvel.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/28/world/olympics/its-really-a-matter-of-math.html
 **Jill Schary Robinson, Who Wrote of Her Hollywood Upbringing, Dies at 88**\
 `A screenwriter’s daughter, she grew up in the glittering world of privilege and its contradictions, which became rich material for her memoirs and novels.`\
 https://nytimes.com/2024/07/28/books/jill-schary-robinson-dead.html
-
-**Edna O’Brien, Writer Who Gave Voice to Women’s Passions, Dies at 93**\
-`Her novels and short stories often explored the lives of willful women who loved men who were crass, unfaithful or already married.`\
-https://nytimes.com/2024/07/28/obituaries/edna-o-brien-dead.html
-
-**Canada's Priestman apologizes, will cooperate with spying investigation**\
-`“I want to take accountability, and I plan to fully cooperate with the investigation,” Priestman said.`\
-https://nytimes.com/athletic/5664202/2024/07/28/bev-priestman-statement-fifa-sanctions-olympics/
 
