@@ -1,3 +1,11 @@
+**Hezly Rivera, 16**\
+`Rivera, the youngest member of the U.S. team, turned in a solid performance at the Olympic trials to qualify after multiple top gymnasts were injured.`\
+https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/hezly-rivera-16
+
+**Jordan Chiles, 23**\
+`On and off the competition floor, Jordan Chiles is the sort of presence you can’t miss. Her performance has flourished since she moved to Texas to train with Simone Biles.`\
+https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/jordan-chiles-23
+
 **Yves du Manoir Stadium, only Paris Olympic venue in both 1924 and 2024, is worth the trip**\
 `After 100 years, one venue from the 1924 Paris Games is being used again for this Olympics. And it's packed with history.`\
 https://nytimes.com/athletic/5663308/2024/07/28/yves-du-manoir-stadium-2024-paris-olympics/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/28/arts/kamala-harris-laugh.html
 **The Lesser-Known Side of Harris’s Identity: Asian American**\
 `Some Asian American leaders are rooting for Kamala Harris to become the first Asian American president. But she is not widely known as Asian American, reflecting the complexity of the identity.`\
 https://nytimes.com/2024/07/28/us/politics/harris-asian-american-black-woman.html
-
-**Business Is Buzzing Again for the Meme Makers of the Left**\
-`After a few sluggish years under President Biden, liberal social media creators are seeing their messages resonate as Kamala Harris campaigns for the White House.`\
-https://nytimes.com/2024/07/28/technology/kamala-harris-memes.html
-
-**Colts' Josh Downs building chemistry (and telepathy) with Anthony Richardson**\
-`Downs and Richardson connected just nine times last season before the QB's season-ending injury. Now, they're making up for lost time.`\
-https://nytimes.com/athletic/5662868/2024/07/28/josh-downs-anthony-richardson-colts/
 
