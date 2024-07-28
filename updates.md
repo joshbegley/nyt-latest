@@ -1,3 +1,7 @@
+**Want a reliever at MLB trade deadline? Be ready to pay: ‘It may take more than expected’**\
+`Deals for relievers are a staple of the trade deadline. But rising prices have prompted teams to pay a steeper price for bullpen help. `\
+https://nytimes.com/athletic/5664305/2024/07/28/mlb-trade-deadline-relievers-cost/
+
 **Remembering the Firebrand Irish Novelist Edna O’Brien**\
 `Her fiction delivered searing, candid portraits of Irish society through the prism of female friendship.`\
 https://nytimes.com/2024/07/28/books/review/edna-obrien-appreciation.html
