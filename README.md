@@ -1,3 +1,7 @@
+**Phillies improve bullpen with Carlos Estévez acquisition, Angels get strong return**\
+`The Phillies picked up a solid addition for the backend of their bullpen, but they paid a steep price for the privilege. `\
+https://nytimes.com/athletic/5664022/2024/07/28/carlos-estevez-phillies-angels-trade-analysis/
+
 **Chargers training camp, Day 4: Justin Herbert, Ladd McConkey rediscover rhythm**\
 `Could McConkey, the Chargers' second-round pick, develop into Herbert's trusted go-to receiver on third and fourth downs? `\
 https://nytimes.com/athletic/5663608/2024/07/28/chargers-training-camp-ladd-mcconkey-justin-herbert/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/28/world/olympics/argentina-france-rugby-soccer.html
 **U.S. and Japan Announce Steps to Strengthen Their Military Ties**\
 `The two governments said the moves were a response to growing aggression by China, whose rapid military buildup has many leaders worried.`\
 https://nytimes.com/2024/07/28/world/asia/us-japan-military-alliance.html
-
-**South Sudan 'disrespected' by national anthem mixup**\
-`South Sudan men&#8217;s basketball players said they felt disrespected after the wrong national anthem was played before the team&#8217;s Olympic debut Sunday.`\
-https://nytimes.com/athletic/5663803/2024/07/28/south-sudan-wrong-anthem-olympics-basketball/
 
