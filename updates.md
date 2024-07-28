@@ -1,3 +1,7 @@
+**Corrections: July 28, 2024**\
+`Corrections that appeared in print on Sunday, July 28, 2024.`\
+https://nytimes.com/2024/07/28/pageoneplus/corrections-july-28-2024.html
+
 **Brutal loss to Yankees highlights Red Sox's need for bullpen help at deadline**\
 `In a back-and-forth game, the cracks in the Red Sox's bullpen were glaring. Can they address those shortfalls before the deadline?`\
 https://nytimes.com/athletic/5663569/2024/07/28/red-sox-deadline-needs-yankees-loss/
