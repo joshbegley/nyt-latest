@@ -1,3 +1,7 @@
+**Rafael Nadal sets up Olympic tennis clash with old rival Novak Djokovic in Paris**\
+`Rafael Nadal came through three sets on his favorite court to set up a match with Novak Djokovic at the 2024 Paris Olympics`\
+https://nytimes.com/athletic/5663994/2024/07/28/rafael-nadal-tennis-olympics-novak-djokovic/
+
 **Law: Padres pay heavily to Rays for bullpen upgrade in Jason Adam**\
 `Despite Dyan Lesko's struggles this season, his upside remains that of an above-average starter`\
 https://nytimes.com/athletic/5664070/2024/07/28/jason-adam-dylan-lesko-padres-rays-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/28/sports/olympics-opening-ceremony-last-supper-pari
 **Grilled Chicken With Corn and Lime-Basil Butter, a Fantastic Taste of Summer**\
 `With blueberry spoon cake for dessert, naturally.`\
 https://nytimes.com/2024/07/28/dining/grilled-chicken-with-corn-and-lime-basil-butter-a-fantastic-taste-of-summer.html
-
-**Negotiators Meet to Revive Push for Hostage Release and Cease-Fire in Gaza**\
-`The talks in Rome remain stuck over several key issues, including the extent to which Israeli troops should withdraw from Gaza during a truce.`\
-https://nytimes.com/2024/07/28/world/middleeast/negotiators-meet-in-rome-to-revive-push-for-hostage-release-and-cease-fire-in-gaza.html
 
