@@ -1,3 +1,7 @@
+**Vance heads west this week, and Shapiro and Whitmer rally in Pennsylvania.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/07/28/us/harris-trump-election/vance-heads-west-this-week-and-shapiro-and-whitmer-rally-in-pennsylvania
+
 **Lee Kiefer defends Olympic fencing gold in all-American women's foil final**\
 `Kiefer was born into the sport, and into as close to a fencing royal family as America could produce.`\
 https://nytimes.com/athletic/5664493/2024/07/28/lee-kiefer-gold-medal-fencing-lauren-scruggs-olympics-america/
