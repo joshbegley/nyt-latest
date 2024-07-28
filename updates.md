@@ -1,3 +1,11 @@
+**Belgian GP takeaways: Mercedes' bittersweet victory, Ferrari's frustration**\
+`Plus: Piastri on the hunt, Verstappen holds serve, and Ricciardo makes a move. `\
+https://nytimes.com/athletic/5664399/2024/07/28/f1-belgian-gp-takeaways-mercedes-ferrari-piastri/
+
+**Why the Phillies chose Carlos Estévez over others and other takeaways from deadline trades**\
+`There was healthy debate within the organization whether Philadelphia should target Estévez or another reliever, like Jason Adam.`\
+https://nytimes.com/athletic/5664436/2024/07/28/phillies-trade-carlos-estevez/
+
 **MLB Trade Grades: Did Rays get enough for All-Star Isaac Paredes in trade with Cubs?**\
 `Paredes was considered perhaps the top bat on the market, and seeing him land with the last-place Cubs is a genuine surprise.`\
 https://nytimes.com/athletic/5664438/2024/07/28/mlb-trade-grades-isaac-paredes-rays-cubs/
