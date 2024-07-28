@@ -1,3 +1,7 @@
+**Danny Jansen's trade to Red Sox cuts deep with Blue Jays, fan base**\
+`Jansen, the longest tenured Blue Jay now headed to Boston, wouldn't rule out returning as a free agent. “I'm never going to shut any doors.”`\
+https://nytimes.com/athletic/5663357/2024/07/27/danny-jansen-blue-jays-trade-impact/
+
 **Danny Jansen's trade to Red Sox cuts deep with Blue Jays, fanbase**\
 `Jansen, the longest tenured Blue Jay now headed to Boston, wouldn't rule out returning as a free agent. “I'm never going to shut any doors.”`\
 https://nytimes.com/athletic/5663357/2024/07/27/danny-jansen-blue-jays-trade-impact/
