@@ -1,3 +1,7 @@
+**Jade Carey, 24**\
+`Carey was recruited to elite gymnastics for her vaulting abilities. Now she is a two-time Olympian.`\
+https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/jade-carey-24
+
 **Here are guides to the vault, bars, beam and floor.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/here-are-guides-to-the-vault-bars-beam-and-floor
