@@ -1,3 +1,11 @@
+**Chargers training camp, Day 4: Justin Herbert, Ladd McConkey rediscover rhythm**\
+`Could McConkey, the Chargers' second-round pick, develop into Herbert's trusted go-to receiver on third and fourth downs? `\
+https://nytimes.com/athletic/5663608/2024/07/28/chargers-training-camp-ladd-mcconkey-justin-herbert/
+
+**Negotiators Meet to Revive Push for Hostage Release and Cease-Fire in Gaza**\
+`The talks in Rome remain stuck over several key issues, including the extent to which Israeli troops should withdraw from Gaza during a truce.`\
+https://nytimes.com/2024/07/28/world/middleeast/negotiators-meet-in-rome-to-revive-push-for-hostage-release-and-cease-fire-in-gaza.html
+
 **Wolves' Gonzalez suffers ACL injury at Paris Olympics**\
 `Wolverhampton Wanderers winger Enso Gonzalez faces an extended period on the sidelines after suffering an anterior cruciate knee ligament (ACL) injury during the men&#8217;s soccer tournament at the Paris Olympics.`\
 https://nytimes.com/athletic/5663962/2024/07/28/wolves-gonzalez-knee-injury/
