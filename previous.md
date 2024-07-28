@@ -1,3 +1,11 @@
+**Remembering the Firebrand Irish Novelist Edna O’Brien**\
+`Her fiction delivered searing, candid portraits of Irish society through the prism of female friendship.`\
+https://nytimes.com/2024/07/28/books/review/edna-obrien-appreciation.html
+
+**Liverpool reject Marseille bid for Endo**\
+`Liverpool have rejected an offer of €14million (£11.`\
+https://nytimes.com/athletic/5664437/2024/07/28/marseille-endo-bid-liverpool/
+
 **Belgian GP takeaways: Mercedes' bittersweet victory, Ferrari's frustration**\
 `Plus: Piastri on the hunt, Verstappen holds serve, and Ricciardo makes a move. `\
 https://nytimes.com/athletic/5664399/2024/07/28/f1-belgian-gp-takeaways-mercedes-ferrari-piastri/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/28/world/olympics/leon-marchand-record.html
 **Pérez’s brutal Belgian GP leaves Red Bull facing a decision ‘nobody wants to make’**\
 `The Mexican driver's slide from second to eighth came at a terrible team for a team trying to fend of a surging McLaren. `\
 https://nytimes.com/athletic/5664119/2024/07/28/sergio-perez-red-bull-future-belgian-gp-spa/
-
-**James C. Scott, Iconoclastic Social Scientist, Dies at 87**\
-`In influential books, he questioned top-down government programs and extolled the power of the powerless, embracing a form of anarchism.`\
-https://nytimes.com/2024/07/28/books/james-scott-dead.html
-
-**Andy Murray and Dan Evans pull off ludicrous comeback in Olympic doubles**\
-`Murray and Evans will play Sander Gille and Joran Vliegen of Belgium or Arthur Fils and Ugo Humbert of France in the second round`\
-https://nytimes.com/athletic/5664211/2024/07/28/andy-murray-tennis-paris-olympics-dan-evans/
 

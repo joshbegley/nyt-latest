@@ -1,3 +1,11 @@
+**Remembering the Firebrand Irish Novelist Edna O’Brien**\
+`Her fiction delivered searing, candid portraits of Irish society through the prism of female friendship.`\
+https://nytimes.com/2024/07/28/books/review/edna-obrien-appreciation.html
+
+**Liverpool reject Marseille bid for Endo**\
+`Liverpool have rejected an offer of €14million (£11.`\
+https://nytimes.com/athletic/5664437/2024/07/28/marseille-endo-bid-liverpool/
+
 **Behind a French Roar, Léon Marchand leaves the world’s best swimmers in his wake.**\
 `Marchand, who has been dubbed the “French Michael Phelps,” set the Olympic record in the men’s 400-meter individual medley final.`\
 https://nytimes.com/2024/07/28/world/olympics/leon-marchand-record.html
