@@ -1,3 +1,7 @@
+**Jade Carey, 24**\
+`Carey was recruited to elite gymnastics for her vaulting abilities. Now she is a two-time Olympian.`\
+https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/jade-carey-24
+
 **Here are guides to the vault, bars, beam and floor.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/07/28/world/gymnastics-olympics-simone-biles/here-are-guides-to-the-vault-bars-beam-and-floor
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/28/podcasts/the-daily/jack-teich-kidnapping.html
 **Decoding JD Vance’s Brand of Nationalism**\
 `What do conservatives mean when they say that America is not “an idea”? The answer is key to understanding the 2024 election.`\
 https://nytimes.com/2024/07/28/opinion/jd-vance-nationalism.html
-
-**The Connections Companion No. 414, July 29, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/28/crosswords/connections-companion-414.html
 
