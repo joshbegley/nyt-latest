@@ -1,3 +1,7 @@
+**Spencer Schwellenbach strikes out 11 Mets in Braves' shutout as rapid ascent continues**\
+`Braves manager Brian Snitker said he’s seen a lot of young pitchers do big things, but Schwellenbach’s outing ranked near the top.`\
+https://nytimes.com/athletic/5663422/2024/07/27/braves-spencer-schwellenbach-11-strikeouts/
+
 **The Briefing: Arsenal 2 Man United 1 - goals for Jesus and Martinelli, Nwaneri impresses again**\
 `James McNicholas addresses the key talking points from Arsenal's friendly win against Manchester United`\
 https://nytimes.com/athletic/5659074/2024/07/27/arsenal-man-united-friendly-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/27/world/canada/fire-jasper-alberta.html
 **Why the Mets should add a starter at the trade deadline**\
 `Kodai Senga is out for the year and Tylor Megill’s performance on Saturday highlighted the problem with counting on him in the rotation.`\
 https://nytimes.com/athletic/5663328/2024/07/27/mets-trade-deadline-starting-pitcher/
-
-**The Move That May Take Sunisa Lee’s Name**\
-`Sunisa Lee has been practicing a new difficult element in her uneven bars routine. If she completes it at the Olympics, it will be named “The Lee.”`\
-https://nytimes.com/interactive/2024/07/27/world/olympics/suni-lee-gymnastics-bars.html
 

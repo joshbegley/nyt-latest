@@ -1,3 +1,7 @@
+**The Briefing: Arsenal 2 Man United 1 - goals for Jesus and Martinelli, Nwaneri impresses again**\
+`James McNicholas addresses the key talking points from Arsenal's friendly win against Manchester United`\
+https://nytimes.com/athletic/5659074/2024/07/27/arsenal-man-united-friendly-analysis/
+
 **Padres firing 'on all cylinders' as winning streak reaches season-best 7 games**\
 `The Padres have outscored their opponents by a combined margin of 43-12 during this dominant stretch.`\
 https://nytimes.com/athletic/5662634/2024/07/27/padres-seven-game-winning-streak/
