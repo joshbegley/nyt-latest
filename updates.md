@@ -1,3 +1,7 @@
+**Colts' Josh Downs building chemistry (and telepathy) with Anthony Richardson**\
+`Downs and Richardson connected just nine times last season before the QB's season-ending injury. Now, they're making up for lost time.`\
+https://nytimes.com/athletic/5662868/2024/07/28/josh-downs-anthony-richardson-colts/
+
 **‘Deadpool & Wolverine’ Reverses Marvel’s Box Office Slump**\
 `The superhero sequel was on pace to collect about $200 million at North American theaters over the weekend, a record opening for an R-rated movie.`\
 https://nytimes.com/2024/07/28/business/deadpool-wolverine-marvel-box-office.html
