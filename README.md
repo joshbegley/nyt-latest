@@ -1,7 +1,3 @@
-**Lithium Battery Fire Traps Drivers in Sweltering Heat on California Highway**\
-`Traffic was at a standstill for hours on a portion of I-15 near Baker, Calif., after a truck carrying lithium batteries overturned and caught fire.`\
-https://nytimes.com/2024/07/27/us/battery-fire-traffic-nevada-california.html
-
 **MLB Trade Grades: Blue Jays move Danny Jansen to Boston for a trio of prospects**\
 `For Toronto, this is a no-brainer. As for the Red Sox, this move was a little less obvious. Time will tell how Jansen fits in.`\
 https://nytimes.com/athletic/5663337/2024/07/27/mlb-trade-grades-jansen-red-sox-blue-jays/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5663171/2024/07/27/lamar-jackson-ravens-training-ca
 **MLB Trade Grades: Phillies acquire Carlos Estévez with the World Series in mind**\
 `Both teams, Phillies and Angels, did exactly what they should do — one getting better right now and one getting better for the future. `\
 https://nytimes.com/athletic/5663234/2024/07/27/mlb-trade-grades-phillies-angels-estevez/
+
+**Red Sox acquire Danny Jansen from Blue Jays**\
+`Jansen, 29, was the longest-tenured Blue Jay. He'll share time behind the plate in Boston with Connor Wong. `\
+https://nytimes.com/athletic/5663139/2024/07/27/danny-jansen-trade-red-sox-blue-jays/
 
