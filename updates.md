@@ -1,3 +1,7 @@
+**What I'm hearing about the MLB trade deadline: Phillies still looking for more relief help**\
+`Plus more on the starting pitching market and what the White Sox may do next. `\
+https://nytimes.com/athletic/5666289/2024/07/29/trade-deadline-mlb-pitching-erick-fedde/
+
 **Wild sign Brock Faber to largest extension in franchise history**\
 `Faber's $8.5 million annual average value is also the largest for a defenseman in Wild history.`\
 https://nytimes.com/athletic/5650780/2024/07/29/wild-brock-faber-contract/
