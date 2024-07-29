@@ -1,3 +1,7 @@
+**Scoop City: Love, Tagovailoa join the $50M club**\
+`Looking at the QB contracts, training camp insights and the career of Julius Peppers`\
+https://nytimes.com/athletic/5660728/2024/07/29/50-million-club-scoop-city/
+
 **Olympic Ceremony Put a Changing France on Full Display**\
 `Aya Nakamura, the French Malian singer, did more than open the Games. She redefined what it means to be French.`\
 https://nytimes.com/2024/07/29/world/europe/olympic-ceremony-france-singer-aya-nakamura.html
