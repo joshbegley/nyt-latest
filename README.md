@@ -1,3 +1,19 @@
+**Three Meteor Showers Are Active: How and When to Watch Fireball Season**\
+`The Southern Delta Aquarids and the Alpha Capricornids are reaching their peak this week. The Perseids, one of the best shows of the year, are also ramping up.`\
+https://nytimes.com/2024/07/29/science/meteor-shower-aquarids-capricornids-perseids.html
+
+**Biden Calls for Supreme Court Reforms**\
+`The president outlined his proposals for major changes to the Supreme Court, including imposing term limits and creating an enforceable code of ethics on the justices.`\
+https://nytimes.com/video/us/politics/100000009599200/biden-supreme-court-reforms.html
+
+**The Justice Department will monitor voting in Arizona on Tuesday.**\
+`By Tim Balk`\
+https://nytimes.com/live/2024/07/29/us/harris-trump-election/the-justice-department-will-monitor-voting-in-arizona-on-tuesday
+
+**Gabriel Medina celebrates highest Olympic surfing score in style**\
+`Medina finished with a total score of 17.40 to defeat Japan's Kanoa Igarashi.`\
+https://nytimes.com/athletic/5666912/2024/07/29/olympics-surfing-gabriel-medina-high-score/
+
 **Eagles training camp: Why Nolan Smith wanted to 'be by my lonesome' in offseason**\
 `Plus, notes from training camp, including an update on Tyler Steen's injury and Saquon Barkley's excused absence.`\
 https://nytimes.com/athletic/5666067/2024/07/29/eagles-training-camp-nolan-smith-offseason/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/07/29/briefing/biden-supreme-court-venezuela-election.h
 **Ryan Murphy surprised with poolside gender reveal after race**\
 `"We both thought it was going to be a boy," Murphy said. "Everything is going to be dedicated to that little girl.”`\
 https://nytimes.com/athletic/5666815/2024/07/29/ryan-murphy-olympics-swim-gender-reveal/
-
-**Judge Lets N.R.A. Keep Its Independence but Pushes for Reforms**\
-`In a ruling on Monday, a New York judge said he wanted further assurances that the gun rights group would change its administrative practices.`\
-https://nytimes.com/2024/07/29/nyregion/nra-monitor-ruling-lapierre.html
-
-**Lions training camp: Taylor Decker's extension, rookie corners growing together and more**\
-`Plus, Jameson Williams slows down to focus on his development. `\
-https://nytimes.com/athletic/5666399/2024/07/29/lions-training-camp-taylor-decker-contract-jameson-williams-cornerbacks/
-
-**MLB Trade Grades: What is Seattle getting in 39-year-old Justin Turner?**\
-`Turner used to deliver one of the most professional at-bats in the majors. He isn't that guy anymore, but at this cost, was he a good add?`\
-https://nytimes.com/athletic/5666777/2024/07/29/mlb-trade-grades-justin-turner-mariners-blue-jays/
-
-**The Tradwife Life Is Nothing New**\
-`And it isn’t appealing or aspirational for many modern women.`\
-https://nytimes.com/live/2024/07/22/opinion/thepoint/hannah-neeleman-tradwife
 
