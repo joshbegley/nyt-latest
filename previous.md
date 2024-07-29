@@ -1,10 +1,10 @@
+**Fatal Police Shooting of Woman in New Jersey Is Under Investigation**\
+`A woman was shot to death by a police officer responding to a report of a mental health crisis in Fort Lee, N.J., early Sunday morning.`\
+https://nytimes.com/2024/07/29/nyregion/nj-fort-lee-police-shooting.html
+
 **What happens if the Seine isn't clean enough for Olympic triathlon swimming?**\
 `With the Olympic triathlons set for Tuesday and Wednesday, the clock is ticking to get the Seine cleaned up. Here's the latest.`\
 https://nytimes.com/athletic/5666012/2024/07/29/triathlon-seine-clean-pollution-paris-olympics-2024/
-
-**Tennis Briefing: Why is the Olympic singles so strange? What's going on outside of Paris?**\
-`Everything that happened in tennis last week, as the sport split itself between Paris and the rest of the world`\
-https://nytimes.com/athletic/5665479/2024/07/29/tennis-briefing-olympic-singles-draw-rules/
 
 **How Tyus Jones can help boost the Suns' hopes for contention**\
 `Jones doesn't fix all of Phoenix’s problems, but he should help maximize the Suns' offensive potential.`\
