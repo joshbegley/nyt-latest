@@ -1,3 +1,11 @@
+**Why Carlos Sainz is going to Williams — and where it leaves Alpine and Sauber for 2025**\
+`Sainz now gets to sit at the heart of a rebuild he believes in, while those who lost out on him are left with lesser options. `\
+https://nytimes.com/athletic/5666388/2024/07/29/carlos-sainz-williams-alpine-sauber-f1/
+
+**MLB Trade Grades: Who gains in Red Sox-Pirates swap of former first-round picks?**\
+`Quinn Priester was the 18th pick by the Pirates in 2019. Nick Yorke went at 17 to the Red Sox the next year. Now both get a fresh start. `\
+https://nytimes.com/athletic/5666439/2024/07/29/mlb-trade-grades-yorke-priester-red-sox-pirates/
+
 **Bills training camp: Marquez Valdes-Scantling's spot on shaky ground, and more**\
 `Plus, Dorian Williams looking much improved, and some challenges with new starting center Connor McGovern.`\
 https://nytimes.com/athletic/5666297/2024/07/29/buffalo-bills-training-camp-tyrell-shavers-marquez-valdes-scantling/

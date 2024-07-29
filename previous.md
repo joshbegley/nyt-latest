@@ -1,3 +1,7 @@
+**Why Carlos Sainz is going to Williams — and where it leaves Alpine and Sauber for 2025**\
+`Sainz now gets to sit at the heart of a rebuild he believes in, while those who lost out on him are left with lesser options. `\
+https://nytimes.com/athletic/5666388/2024/07/29/carlos-sainz-williams-alpine-sauber-f1/
+
 **Bills training camp: Marquez Valdes-Scantling's spot on shaky ground, and more**\
 `Plus, Dorian Williams looking much improved, and some challenges with new starting center Connor McGovern.`\
 https://nytimes.com/athletic/5666297/2024/07/29/buffalo-bills-training-camp-tyrell-shavers-marquez-valdes-scantling/
@@ -5,6 +9,10 @@ https://nytimes.com/athletic/5666297/2024/07/29/buffalo-bills-training-camp-tyre
 **No, Wall Street, The Treasury Isn’t Rigging the Economy for Democrats**\
 `Some financiers are seeing partisan corruption where it doesn’t exist.`\
 https://nytimes.com/2024/07/29/opinion/treasury-janet-yellen-roubini.html
+
+**MLB Trade Grades: Who gains in Red Sox-Pirates swap of former first-round picks?**\
+`Quinn Priester was the 18th pick by the Pirates in 2019. Nick Yorke went at 17 to the Red Sox the next year. Now both get a fresh start. `\
+https://nytimes.com/athletic/5666439/2024/07/29/mlb-trade-grades-yorke-priester-red-sox-pirates/
 
 **Colts DE Samson Ebukam suffers season-ending Achilles injury**\
 `Ebukam led the Colts in sacks last season with 9.5. `\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5666289/2024/07/29/trade-deadline-mlb-pitching-phil
 **Wild sign Brock Faber to largest extension in franchise history**\
 `Faber's $8.5 million annual average value is also the largest for a defenseman in Wild history.`\
 https://nytimes.com/athletic/5650780/2024/07/29/wild-brock-faber-contract/
-
-**Min Jin Lee Looks Back at ‘Pachinko’**\
-`The second in a series of conversations with authors appearing on our “Best Books of the 21st Century” list.`\
-https://nytimes.com/2024/07/29/books/review/min-jin-lee-pachinko-podcast.html
-
-**Aides in Congress Create Dissent Channel to Protest Support for Israel**\
-`An anonymous group of junior staff members has modeled its effort on an internal State Department messaging system, hoping to create an outlet for calls for a cease-fire in the war in Gaza.`\
-https://nytimes.com/2024/07/29/us/politics/israel-congress-staff-dissent-channel.html
 
