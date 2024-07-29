@@ -1,3 +1,11 @@
+**Red Sox acquire Quinn Priester for Nick Yorke in swap with Pirates of former first-round picks**\
+`Acquiring Priester adds to the Red Sox's young pitching depth, while Yorke heads to Pittsburgh where his path to the big leagues is clearer.`\
+https://nytimes.com/athletic/5666351/2024/07/29/red-sox-pirates-quinn-priester-nick-yorke-trade/
+
+**Riccardo Calafiori to Arsenal: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Riccardo Calafiori's move from Bologna to Arsenal`\
+https://nytimes.com/athletic/5620074/2024/07/29/riccardo-calafiori-arsenal-transfer-ratings/
+
 **Cardinals get Fedde in three-way deal with White Sox, Dodgers**\
 `The Dodgers will receive utility player Tommy Edman and pitcher Michael Kopech while the White Sox will receive prospects.`\
 https://nytimes.com/athletic/5666322/2024/07/29/cardinals-dodgers-white-sox-trade-edman-fedde/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/29/us/politics/kamala-harris-2020-positions.html
 **Britain’s Labour Government Says It Inherited a $28 Billion Budget Hole**\
 `Rachel Reeves, the chancellor of the Exchequer, cut some infrastructure funding and pensions benefits, adding that more “difficult decisions” would come later this year.`\
 https://nytimes.com/2024/07/29/business/britain-budget-spending-rachel-reeves.html
-
-**Fatal Police Shooting of Woman in New Jersey Is Under Investigation**\
-`A woman was shot to death by a police officer responding to a report of a mental health crisis in Fort Lee, N.J., early Sunday morning.`\
-https://nytimes.com/2024/07/29/nyregion/nj-fort-lee-police-shooting.html
-
-**What happens if the Seine isn't clean enough for Olympic triathlon swimming?**\
-`With the Olympic triathlons set for Tuesday and Wednesday, the clock is ticking to get the Seine cleaned up. Here's the latest.`\
-https://nytimes.com/athletic/5666012/2024/07/29/triathlon-seine-clean-pollution-paris-olympics-2024/
 
