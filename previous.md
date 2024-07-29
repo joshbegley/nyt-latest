@@ -1,3 +1,7 @@
+**Red Sox may option Vaughn Grissom after rehab, still seeking righty infield bat**\
+`Grissom has been injured much of the year and may not be at his best — or the Red Sox's best option at second — when his rehab clock is up.`\
+https://nytimes.com/athletic/5667006/2024/07/29/red-sox-vaughn-grissom-infield-needs/
+
 **Astros near deal with Blue Jays to add Yusei Kikuchi to beleaguered rotation: sources**\
 `By Ken Rosenthal, Kaitlyn McGrath and Chandler Rome
 HOUSTON — The Astros supplemented their injury-ravaged starting rotation with one of the best rental starters available on the trade market.`\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5667092/2024/07/29/diamond-comcast-tv-deal-12-mlb-t
 **Do You Want This Rat Merch? The Mayor Hopes So.**\
 `A new initiative encourages New Yorkers to join an “elite squad of dedicated anti-rat activists.”`\
 https://nytimes.com/2024/07/29/style/rat-pack-nyc-eric-adams.html
-
-**'I want to stay': Yankees' Nestor Cortes responds to trade speculation**\
-`Cortes said his agent informed him he's being mentioned in trade discussions. He's also monitoring rumors on social media.`\
-https://nytimes.com/athletic/5667062/2024/07/29/yankees-nestor-cortes-trade-speculation/
 

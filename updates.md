@@ -1,3 +1,7 @@
+**Red Sox may option Vaughn Grissom after rehab, still seeking righty infield bat**\
+`Grissom has been injured much of the year and may not be at his best — or the Red Sox's best option at second — when his rehab clock is up.`\
+https://nytimes.com/athletic/5667006/2024/07/29/red-sox-vaughn-grissom-infield-needs/
+
 **Astros near deal with Blue Jays to add Yusei Kikuchi to beleaguered rotation: sources**\
 `By Ken Rosenthal, Kaitlyn McGrath and Chandler Rome
 HOUSTON — The Astros supplemented their injury-ravaged starting rotation with one of the best rental starters available on the trade market.`\
