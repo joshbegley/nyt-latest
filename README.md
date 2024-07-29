@@ -1,3 +1,7 @@
+**MLB Trade Grades: What does Michael Lorenzen add for the Royals?**\
+`The Royals already have a strong rotation, so what does the Lorenzen addition do for them? `\
+https://nytimes.com/athletic/5665985/2024/07/29/mlb-trade-grades-michael-lorenzen-royals-rangers/
+
 **How One Man Lost $740,000 to Scammers Targeting His Retirement Savings**\
 `Criminals on the internet are increasingly going after Americans over the age of 60 because they are viewed as having the largest piles of savings.`\
 https://nytimes.com/2024/07/29/business/retirement-savings-scams.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5664731/2024/07/29/patriots-christian-barmore-blood
 **A Super Fast Sheet-Pan Chicken Dinner**\
 `Yasmin Fahr’s garlicky chicken with blistered tomatoes needs only 15 minutes under the broiler to yield a sunny, flavorful dinner.`\
 https://nytimes.com/2024/07/29/dining/a-super-fast-sheet-pan-chicken-dinner.html
-
-**Lowetide: 3 defence trade targets who can solve Oilers' major roster issue**\
-`There is still time for the Oilers to make a bold move on the blue line before September's training camp.`\
-https://nytimes.com/athletic/5664221/2024/07/29/edmonton-oilers-trade-targets-defence-andersson/
 
