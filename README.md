@@ -1,3 +1,7 @@
+**Floods Sweep Dolly Parton’s Dollywood Theme Park**\
+`Flash floods rushed through portions of the park on Sunday. Dollywood was expected to reopen on Monday.`\
+https://nytimes.com/2024/07/29/us/dollywood-flooding-tennessee.html
+
 **F.D.A. Approves Blood Test for Colon Cancer Detection**\
 `While not a perfect alternative to colonoscopies or fecal tests, experts hope the test could lead to more people getting screened for colorectal cancers.`\
 https://nytimes.com/2024/07/29/health/colon-cancer-blood-test-shield.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/29/world/israel-gaza-war-lebanon-hezbollah/what
 **Kamala Harris and the Race for Congress**\
 `We cover the state of consequential congressional races.`\
 https://nytimes.com/2024/07/29/briefing/kamala-harris-congress-elections.html
-
-**Lions fans: Help us with our guide to Ford Field's game day experience**\
-`The Athletic will be publishing stadium guides for all 32 NFL teams just ahead of the Week 1 kickoff, and we’d like Lions fans to answer a few questions about the Ford Field game day experience.`\
-https://nytimes.com/athletic/5664607/2024/07/29/lions-stadium-fan-survey/
 
