@@ -6,7 +6,7 @@ https://nytimes.com/2024/07/29/briefing/biden-supreme-court-venezuela-election.h
 `"We both thought it was going to be a boy," Murphy said. "Everything is going to be dedicated to that little girl.”`\
 https://nytimes.com/athletic/5666815/2024/07/29/ryan-murphy-olympics-swim-gender-reveal/
 
-**N.R.A. Avoids Financial Oversight but Faces Pressure to Reform**\
+**Judge Lets N.R.A. Keep Its Independence but Pushes for Reforms**\
 `In a ruling on Monday, a New York judge said he wanted further assurances that the gun rights group would change its administrative practices.`\
 https://nytimes.com/2024/07/29/nyregion/nra-monitor-ruling-lapierre.html
 
