@@ -1,3 +1,7 @@
+**Why Arsenal signed Riccardo Calafiori**\
+`A breakout star of Euro 2024, Arsenal had been tracking the Italian for months - and Arteta was the driving force behind their pursuit`\
+https://nytimes.com/athletic/5664664/2024/07/29/arsenal-riccardo-calafiori-signing-transfer-arteta/
+
 **Arsenal complete Calafiori signing**\
 `Arsenal have completed the signing of Riccardo Calafiori from Bologna.`\
 https://nytimes.com/athletic/5661264/2024/07/29/arsenal-riccardo-calafiori-transfer/
