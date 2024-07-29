@@ -1,3 +1,7 @@
+**What I'm hearing about the MLB trade deadline: Phillies still looking for more relief help**\
+`Plus more on the starting pitching market and what the White Sox may do next. `\
+https://nytimes.com/athletic/5666289/2024/07/29/trade-deadline-mlb-pitching-erick-fedde/
+
 **Wild sign Brock Faber to largest extension in franchise history**\
 `Faber's $8.5 million annual average value is also the largest for a defenseman in Wild history.`\
 https://nytimes.com/athletic/5650780/2024/07/29/wild-brock-faber-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5620074/2024/07/29/riccardo-calafiori-arsenal-trans
 **Cardinals get Fedde in three-way deal with White Sox, Dodgers**\
 `The Dodgers will receive utility player Tommy Edman and pitcher Michael Kopech while the White Sox will receive prospects.`\
 https://nytimes.com/athletic/5666322/2024/07/29/cardinals-dodgers-white-sox-trade-edman-fedde/
-
-**Judge John Hodgman on Proper Top-Sheet Direction**\
-`Can a spouse be compelled to make the bed the right way?`\
-https://nytimes.com/2024/07/29/magazine/judge-john-hodgman-on-proper-top-sheet-direction.html
 
