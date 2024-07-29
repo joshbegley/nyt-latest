@@ -1,3 +1,7 @@
+**Trump: ‘You Won’t Have to Vote Anymore’**\
+`On Trump’s comments to Christian voters and claims about his demeaning those with disabilities. Also: Retirement; coming out; youths in need; driver data.`\
+https://nytimes.com/2024/07/29/opinion/donald-trump-voting-disabilities.html
+
 **Why Arsenal signed Riccardo Calafiori**\
 `A breakout star of Euro 2024, Arsenal had been tracking the Italian for months - and Arteta was the driving force behind their pursuit`\
 https://nytimes.com/athletic/5664664/2024/07/29/arsenal-riccardo-calafiori-signing-transfer-arteta/
