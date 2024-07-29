@@ -1,3 +1,7 @@
+**Trump: ‘You Won’t Have to Vote Anymore’**\
+`On Trump’s comments to Christian voters and claims about his demeaning those with disabilities. Also: Retirement; coming out; youths in need; driver data.`\
+https://nytimes.com/2024/07/29/opinion/donald-trump-voting-disabilities.html
+
 **Why Arsenal signed Riccardo Calafiori**\
 `A breakout star of Euro 2024, Arsenal had been tracking the Italian for months - and Arteta was the driving force behind their pursuit`\
 https://nytimes.com/athletic/5664664/2024/07/29/arsenal-riccardo-calafiori-signing-transfer-arteta/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5666004/2024/07/29/adam-peaty-covid-paris-olympics/
 **MLB Trade Grades: What does Michael Lorenzen add for the Royals?**\
 `The Royals already have a strong rotation, so what does the Lorenzen addition do for them? `\
 https://nytimes.com/athletic/5665985/2024/07/29/mlb-trade-grades-michael-lorenzen-royals-rangers/
-
-**How One Man Lost $740,000 to Scammers Targeting His Retirement Savings**\
-`Criminals on the internet are increasingly going after Americans over the age of 60 because they are viewed as having the largest piles of savings.`\
-https://nytimes.com/2024/07/29/business/retirement-savings-scams.html
 
