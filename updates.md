@@ -1,3 +1,11 @@
+**Astros' failure to lock down sweep illustrates what they need at the trade deadline**\
+`Dana Brown spoke to multiple outlets about adding pitching at the trade deadline, then the Astros again showed why that should be his focus.`\
+https://nytimes.com/athletic/5664884/2024/07/28/astros-failure-to-lock-down-sweep-illustrates-what-they-need-at-the-trade-deadline/
+
+**Rangers acquire catcher Carson Kelly from Tigers for two minor leaguers**\
+`In Detroit, trading Kelly should open the door for prospect Dillon Dingler. In Texas, Kelly should provide an offensive boost.`\
+https://nytimes.com/athletic/5664935/2024/07/28/rangers-trade-carson-kelly-tigers/
+
 **3 Men With White Supremacist Ties Sentenced in Plan to Attack Power Facility**\
 `Two of the men met through a neo-Nazi online forum and recruited other people to join their scheme, which was rooted in white supremacist ideology, prosecutors said.`\
 https://nytimes.com/2024/07/28/us/energy-grid-attack-plot-white-supremacy.html
