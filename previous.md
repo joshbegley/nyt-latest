@@ -1,3 +1,15 @@
+**Iran, women and the ongoing struggle for football 'freedom'**\
+`Women may now be visible at some matches in Iran but major restrictions remain and the battle for equality continues`\
+https://nytimes.com/athletic/5646953/2024/07/29/iran-women-and-the-ongoing-struggle-for-football-freedom/
+
+**Red Sox 2-7 since All-Star break, need to 'figure it out fast' before trade deadline**\
+`The Red Sox still believe in their team despite the slow start after the break. "We’ve got time to piece it back together and show up.”`\
+https://nytimes.com/athletic/5665183/2024/07/29/red-sox-struggles-trade-deadline/
+
+**Liverpool's CEO on life after Klopp, stadium expansion, PSR and U.S. tour**\
+`The Athletic sits down with Liverpool's CEO for a wide-ranging interview`\
+https://nytimes.com/athletic/5652585/2024/07/29/billy-hogan-liverpool-interview/
+
 **Why Barca's interest in Williams and Olmo is more complex than it seems**\
 `The Athletic has reported on Barca's interest in the Spain duo, but how should we be reading the situation?`\
 https://nytimes.com/athletic/5658391/2024/07/29/barcelona-transfers-williams-olmo/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5664071/2024/07/29/us-womens-basketball-2024-paris-
 **Why Some Olympic Swimmers Think About Math in the Pool**\
 `In a sport where gold and silver can be separated by a fraction of a second, many of the world’s top swimmers now scour data for even the smallest edge.`\
 https://nytimes.com/2024/07/29/world/olympics/olympics-swimming-data-analytics.html
-
-**Why Global Investors Are Watching What Japan Does Next**\
-`Officials at Japan’s central bank are considering when to raise interest rates, as their counterparts in the United States plan to cut them, which could rattle markets around the world.`\
-https://nytimes.com/2024/07/29/business/japan-markets-yen.html
-
-**Germans Combat Climate Change From Their Balconies**\
-`Plug-and-play solar panels are popping up in yards and on balcony railings across Germany, driven by bargain prices and looser regulations.`\
-https://nytimes.com/2024/07/29/business/germany-solar-panels-climate-change.html
-
-**Monday's MLB odds, best bets: Pitching matchups, playoff odds, props and more**\
-`See pitching matchups, playoff projections, win projections and more for Monday's MLB games.`\
-https://nytimes.com/athletic/5660791/2024/07/29/mlb-odds-best-bets-projections-july-29/
 

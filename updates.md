@@ -1,3 +1,15 @@
+**Iran, women and the ongoing struggle for football 'freedom'**\
+`Women may now be visible at some matches in Iran but major restrictions remain and the battle for equality continues`\
+https://nytimes.com/athletic/5646953/2024/07/29/iran-women-and-the-ongoing-struggle-for-football-freedom/
+
+**Red Sox 2-7 since All-Star break, need to 'figure it out fast' before trade deadline**\
+`The Red Sox still believe in their team despite the slow start after the break. "We’ve got time to piece it back together and show up.”`\
+https://nytimes.com/athletic/5665183/2024/07/29/red-sox-struggles-trade-deadline/
+
+**Liverpool's CEO on life after Klopp, stadium expansion, PSR and U.S. tour**\
+`The Athletic sits down with Liverpool's CEO for a wide-ranging interview`\
+https://nytimes.com/athletic/5652585/2024/07/29/billy-hogan-liverpool-interview/
+
 **Why Barca's interest in Williams and Olmo is more complex than it seems**\
 `The Athletic has reported on Barca's interest in the Spain duo, but how should we be reading the situation?`\
 https://nytimes.com/athletic/5658391/2024/07/29/barcelona-transfers-williams-olmo/
