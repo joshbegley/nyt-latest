@@ -1,3 +1,7 @@
+**Fencing Feud Highlights Ukrainian-Russian Animosity at Olympics**\
+`The war has torn apart old alliances and heightened the acrimony. A Ukrainian fencer is competing after her refusal to shake hands with a Russian rival got her barred from the world championships.`\
+https://nytimes.com/2024/07/29/world/olympics/ukraine-russia-fencing-kharlan.html
+
 **Elon Musk Says Robotaxis Are Tesla’s Future. Experts Have Doubts.**\
 `Tesla says self-driving taxis will power its growth, but the company hasn’t said when such a service would be ready or how much it would increase profits.`\
 https://nytimes.com/2024/07/29/business/elon-musk-tesla-robotaxi.html
