@@ -1,3 +1,7 @@
+**The Olympic Flame Isn’t a Flame at All**\
+`Two torches may have lit it to open the Paris Games, but that’s not a fire in the cauldron.`\
+https://nytimes.com/2024/07/29/world/olympics/flame-cauldron-balloon.html
+
 **The Pulse: A surprise U.S. juggernaut**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/5665254/2024/07/29/uswnt-olympics-soccer-basketball-kevin-durant-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/29/health/colon-cancer-blood-test-shield.html
 **Tatum ‘will play’ for Team USA vs. South Sudan after Sunday benching, Kerr says**\
 `PARIS – Team USA coach Steve Kerr said Jayson Tatum “will play” Wednesday against South Sudan, notable because the three-time first-team All-NBA star was a healthy scratch in the Americans’ win over Serbia.`\
 https://nytimes.com/athletic/5665454/2024/07/29/jayson-tatum-olympics-basketball/
-
-**Bengals fans: Help us with our guide to Paycor Stadium's game day experience**\
-`Let us know about your experiences at Bengals games.`\
-https://nytimes.com/athletic/5655993/2024/07/29/bengals-stadium-fan-survey/
 
