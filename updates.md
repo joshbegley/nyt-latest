@@ -1,3 +1,15 @@
+**Arsenal complete Calafiori signing**\
+`Arsenal have completed the signing of Riccardo Calafiori from Bologna.`\
+https://nytimes.com/athletic/5661264/2024/07/29/arsenal-riccardo-calafiori-transfer/
+
+**Biles, Chiles to lead U.S. gymnastics team in Olympic final**\
+`Sunisa Lee will compete on floor in place of reigning Olympic champion Jade Carey, who has been dealing with an illness.`\
+https://nytimes.com/athletic/5666038/2024/07/29/simone-biles-us-gymnastics-team-lineup-paris-olympics/
+
+**Harris Should Pick Walz, and Then Put Shapiro and Kelly to Work**\
+`All three men can help her, in different ways.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/harris-walz-kelly-shapiro
+
 **Canada appealing 6-point deduction for drone spying**\
 `A hearing is "likely to take place" on Tuesday and the final decision "should be issued at around midday" Wednesday, per CAS.`\
 https://nytimes.com/athletic/5665976/2024/07/29/canada-soccer-olympics-appeal-drone-penalty/

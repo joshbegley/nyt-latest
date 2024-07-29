@@ -1,3 +1,15 @@
+**Arsenal complete Calafiori signing**\
+`Arsenal have completed the signing of Riccardo Calafiori from Bologna.`\
+https://nytimes.com/athletic/5661264/2024/07/29/arsenal-riccardo-calafiori-transfer/
+
+**Biles, Chiles to lead U.S. gymnastics team in Olympic final**\
+`Sunisa Lee will compete on floor in place of reigning Olympic champion Jade Carey, who has been dealing with an illness.`\
+https://nytimes.com/athletic/5666038/2024/07/29/simone-biles-us-gymnastics-team-lineup-paris-olympics/
+
+**Harris Should Pick Walz, and Then Put Shapiro and Kelly to Work**\
+`All three men can help her, in different ways.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/harris-walz-kelly-shapiro
+
 **Canada appealing 6-point deduction for drone spying**\
 `A hearing is "likely to take place" on Tuesday and the final decision "should be issued at around midday" Wednesday, per CAS.`\
 https://nytimes.com/athletic/5665976/2024/07/29/canada-soccer-olympics-appeal-drone-penalty/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/29/business/retirement-savings-scams.html
 **Venezuela’s Election Gives a Boost to the Autocrats**\
 `A declaration of victory by the Maduro regime is another case of how democracy is backsliding in Latin America.`\
 https://nytimes.com/2024/07/29/opinion/international-world/venezuela-election-democracy-maduro.html
-
-**Trump Agrees to Be Interviewed by F.B.I. in Its Investigation Into Gunman**\
-`The F.B.I. also provided the most comprehensive portrait to date of the shooter, revealing that he carefully concealed more than two dozen online purchases of weapons and explosives using aliases.`\
-https://nytimes.com/2024/07/29/us/politics/trump-fbi-interview-assassination-attempt.html
-
-**Tottenham's Gil joins Girona on season-long loan**\
-`Tottenham Hotspur winger Bryan Gil has joined Girona on a season-long loan deal for the 2024-25 season.`\
-https://nytimes.com/athletic/5662509/2024/07/29/bryan-gil-girona-loan-transfer-tottenham/
-
-**Former MLB pitcher Reyes Moronta dies at 31**\
-`The León Braves, a Mexican League team where Moronta pitched earlier this season, confirmed his death on X.`\
-https://nytimes.com/athletic/5665186/2024/07/29/reyes-moronta-death-mlb/
 
