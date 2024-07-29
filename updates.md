@@ -1,3 +1,15 @@
+**Evans: Inside the atmosphere at LIV Golf UK, from the party to the golf**\
+`Tens of thousands poured into JCB Golf & Country Club for the tour's first event outside of London. Not all of them had the same purpose.`\
+https://nytimes.com/athletic/5664569/2024/07/29/liv-golf-uk-party-rahm/
+
+**Monday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/07/29/briefing/israel-lebanon-harris-trump.html
+
+**Pope says he never received explanation for Euro 2024 omission**\
+`Nick Pope claims he was never given an explanation for his England omission and is determined to reclaim a spot in the national squad.`\
+https://nytimes.com/athletic/5664706/2024/07/29/nick-pope-england-omission/
+
 **Injury concerns, Chermiti and Iroegbunam shine, O'Brien on way? Everton's plans taking shape**\
 `Sean Dyche's squad is stretched but the manager has seen plenty of positives in pre-season - and another signing is close`\
 https://nytimes.com/athletic/5663027/2024/07/29/everton-pre-season-sean-dyche/
