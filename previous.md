@@ -1,3 +1,7 @@
+**Japan's Horigome defends street skate gold**\
+`Horigome pulled off a legendary trick to stun the crowd and score a 97.08 to vault into first place with a total score of 281.14.`\
+https://nytimes.com/athletic/5666121/2024/07/29/skateboarding-olympics-eaton-huston-horigome/
+
 **Former Top BBC Anchor Charged with Making Indecent Images of Children**\
 `Huw Edwards, who led the BBC’s coverage of major events, including King Charles III’s coronation, has been charged with three offenses, the police said on Monday.`\
 https://nytimes.com/2024/07/29/world/europe/huw-edwards-former-bbc-anchor-charged-making-indecent-images-of-children.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5666038/2024/07/29/simone-biles-us-gymnastics-team-
 **Harris Should Pick Walz, and Then Put Shapiro and Kelly to Work**\
 `All three men can help her, in different ways.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/harris-walz-kelly-shapiro
-
-**Canada appealing 6-point deduction for drone spying**\
-`A hearing is "likely to take place" on Tuesday and the final decision "should be issued at around midday" Wednesday, per CAS.`\
-https://nytimes.com/athletic/5665976/2024/07/29/canada-soccer-olympics-appeal-drone-penalty/
 

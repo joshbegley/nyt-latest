@@ -1,3 +1,7 @@
+**Japan's Horigome defends street skate gold**\
+`Horigome pulled off a legendary trick to stun the crowd and score a 97.08 to vault into first place with a total score of 281.14.`\
+https://nytimes.com/athletic/5666121/2024/07/29/skateboarding-olympics-eaton-huston-horigome/
+
 **Former Top BBC Anchor Charged with Making Indecent Images of Children**\
 `Huw Edwards, who led the BBC’s coverage of major events, including King Charles III’s coronation, has been charged with three offenses, the police said on Monday.`\
 https://nytimes.com/2024/07/29/world/europe/huw-edwards-former-bbc-anchor-charged-making-indecent-images-of-children.html
