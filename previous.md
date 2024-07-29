@@ -1,3 +1,23 @@
+**Commanders getting into 'game mode' as pads come on for first time in camp**\
+`Dan Quinn and Washington's coaches emphasized the line of scrimmage and run game on day one in pads. `\
+https://nytimes.com/athletic/5666443/2024/07/29/commanders-austin-ekeler-bobby-wagner-training-camp/
+
+**Aaron Rodgers' frustration shows on a bad day for the offense: Jets training camp observations**\
+`Plus, a snapping issue at center, Lazard's new role, a bigger Kinlaw, and the latest on Reddick.`\
+https://nytimes.com/athletic/5666615/2024/07/29/aaron-rodgers-frustration-offense-tippmann-snaps-jets-training-camp-report/
+
+**‘A Good Girl’s Guide to Murder’ Puts a Teen on the Case**\
+`Based on the book series by Holly Jackson, the Netflix series is a British murder mystery with a greener-than-usual detective.`\
+https://nytimes.com/2024/07/29/arts/television/a-good-girls-guide-to-murder-netflix.html
+
+**Israel and Hamas trade blame for the failure to reach a cease-fire deal.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/07/29/world/israel-gaza-war-lebanon-hezbollah/israel-and-hamas-trade-blame-for-the-failure-to-reach-a-cease-fire-deal
+
+**U.S. National Debt Tops $35 Trillion for First Time**\
+`The presidential candidates have offered few ideas for reducing the debt burden as red ink continues to mount.`\
+https://nytimes.com/2024/07/29/us/politics/national-debt-35-trillion.html
+
 **3 Arrested in Gang-Related Murder of Rapper in Florida**\
 `The authorities said five people traveled from Jacksonville to Tampa in to “locate and kill” the rapper known as Julio Foolio. Three of them are in custody on murder charges.`\
 https://nytimes.com/2024/07/29/us/julio-foolio-murder-arrests.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5666222/2024/07/29/rafael-nadal-olympics-tennis-ret
 **Giants camp: Can a rookie 'Turbo' charge RB room? Did Dru Phillips already win slot CB job?**\
 `UDFA Dante Miller is living up to his "Turbo" nickname as he continues to impress with his speed and quickness. `\
 https://nytimes.com/athletic/5666485/2024/07/29/new-york-giants-dante-miller-turbo-dru-phillips/
-
-**Charges Dropped Against Police Officer Who Shot a Man in the Back**\
-`New Jersey prosecutors say they discovered photographs showing Khalif Cooper with a gun on the day he was shot and paralyzed. The grand jury did not see them.`\
-https://nytimes.com/2024/07/29/nyregion/paterson-nj-police-shooting-charges-dropped.html
-
-**Is the Seine Clean Enough to Swim? Olympic Triathletes Wait on Testers.**\
-`Water-quality results recorded before dawn on Tuesday will determine if the men’s triathlon race will take place hours later.`\
-https://nytimes.com/2024/07/29/world/olympics/seine-olympics-triathlon.html
-
-**Ten things we learned about the Panthers: 2 WRs making plays, Sam Franklin out a while**\
-`Jonathan Mingo and Terrace Marshall are making plays in the passing game, but the Panthers lost Sam Franklin to a broken foot.`\
-https://nytimes.com/athletic/5666387/2024/07/29/carolina-panthers-camp-analysis-bryce-young-receivers/
-
-**Local Depressive Bisexual Experiences Quarter-Life Crisis**\
-`The protagonist of Madison Newbound’s debut novel, “Misrecognition,” returns to her hometown after a breakup with her power-imbalanced polycule.`\
-https://nytimes.com/2024/07/29/books/review/madison-newbound-misrecognition.html
-
-**Sergio Pérez to keep Red Bull F1 seat after talks over future**\
-`Pérez’s position at Red Bull has faced heavy scrutiny in recent weeks as he's gone through a dip in performance.`\
-https://nytimes.com/athletic/5666568/2024/07/29/sergio-perez-red-bull-seat-safe-future/
 
