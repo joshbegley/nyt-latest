@@ -1,3 +1,11 @@
+**Francine Pascal, Creator of ‘Sweet Valley High’ Book Series, Dies at 92**\
+`The series and its many spinoffs have sold more than 200 million copies and revolutionized the world of young adult publishing.`\
+https://nytimes.com/2024/07/29/books/francine-pascal-dead.html
+
+**Stephen Nedoroscik beat the odds to have an Olympic moment, and then he nailed it**\
+`Stephen Nedoroscik is a specialist in a waning sport. But he earned his way onto Team USA and, on Monday, soared when they needed him most.`\
+https://nytimes.com/athletic/5666950/2024/07/29/stephen-nedoroscik-pommel-horse-gymnastics-olympics-paris-2024/
+
 **Bryce Harper to debut cleats bearing baseball card grading labels**\
 `Harper again forges new ground with his footwear`\
 https://nytimes.com/athletic/5666836/2024/07/29/bryce-harper-cleats-psa-phillies/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000009599200/biden-supreme-court-reform
 **The Justice Department will monitor voting in Arizona on Tuesday.**\
 `By Tim Balk`\
 https://nytimes.com/live/2024/07/29/us/harris-trump-election/the-justice-department-will-monitor-voting-in-arizona-on-tuesday
-
-**Gabriel Medina celebrates highest Olympic surfing score in style**\
-`Medina finished with a total score of 17.40 to defeat Japan's Kanoa Igarashi.`\
-https://nytimes.com/athletic/5666912/2024/07/29/olympics-surfing-gabriel-medina-high-score/
-
-**Eagles training camp: Why Nolan Smith wanted to 'be by my lonesome' in offseason**\
-`Plus, notes from training camp, including an update on Tyler Steen's injury and Saquon Barkley's excused absence.`\
-https://nytimes.com/athletic/5666067/2024/07/29/eagles-training-camp-nolan-smith-offseason/
 
