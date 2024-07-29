@@ -1,3 +1,11 @@
+**What happens if the Seine isn't clean enough for Olympic triathlon swimming?**\
+`With the Olympic triathlons set for Tuesday and Wednesday, the clock is ticking to get the Seine cleaned up. Here's the latest.`\
+https://nytimes.com/athletic/5666012/2024/07/29/triathlon-seine-clean-pollution-paris-olympics-2024/
+
+**Tennis Briefing: Why is the Olympic singles so strange? What's going on outside of Paris?**\
+`Everything that happened in tennis last week, as the sport split itself between Paris and the rest of the world`\
+https://nytimes.com/athletic/5665479/2024/07/29/tennis-briefing-olympic-singles-draw-rules/
+
 **How Tyus Jones can help boost the Suns' hopes for contention**\
 `Jones doesn't fix all of Phoenix’s problems, but he should help maximize the Suns' offensive potential.`\
 https://nytimes.com/athletic/5665184/2024/07/29/tyus-jones-phoenix-suns-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/29/opinion/donald-trump-voting-disabilities.html
 **Why Arsenal signed Riccardo Calafiori**\
 `A breakout star of Euro 2024, Arsenal had been tracking the Italian for months - and Arteta was the driving force behind their pursuit`\
 https://nytimes.com/athletic/5664664/2024/07/29/arsenal-riccardo-calafiori-signing-transfer-arteta/
-
-**Arsenal complete Calafiori signing**\
-`Arsenal have completed the signing of Riccardo Calafiori from Bologna.`\
-https://nytimes.com/athletic/5661264/2024/07/29/arsenal-riccardo-calafiori-transfer/
-
-**Biles, Chiles to lead U.S. gymnastics team in Olympic final**\
-`Sunisa Lee will compete on floor in place of reigning Olympic champion Jade Carey, who has been dealing with an illness.`\
-https://nytimes.com/athletic/5666038/2024/07/29/simone-biles-us-gymnastics-team-lineup-paris-olympics/
 
