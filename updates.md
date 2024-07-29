@@ -1,3 +1,7 @@
+**Trump Agrees to Be Interviewed by F.B.I. in Its Investigation Into Gunman**\
+`The F.B.I. also provided the most comprehensive portrait to date of the shooter, revealing that he carefully concealed more than two dozen online purchases of weapons and explosives using aliases.`\
+https://nytimes.com/2024/07/29/us/politics/trump-fbi-interview-assassination-attempt.html
+
 **Tottenham's Gil joins Girona on season-long loan**\
 `Tottenham Hotspur winger Bryan Gil has joined Girona on a season-long loan deal for the 2024-25 season.`\
 https://nytimes.com/athletic/5662509/2024/07/29/bryan-gil-girona-loan-transfer-tottenham/

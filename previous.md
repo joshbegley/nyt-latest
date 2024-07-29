@@ -1,3 +1,7 @@
+**Trump Agrees to Be Interviewed by F.B.I. in Its Investigation Into Gunman**\
+`The F.B.I. also provided the most comprehensive portrait to date of the shooter, revealing that he carefully concealed more than two dozen online purchases of weapons and explosives using aliases.`\
+https://nytimes.com/2024/07/29/us/politics/trump-fbi-interview-assassination-attempt.html
+
 **Tottenham's Gil joins Girona on season-long loan**\
 `Tottenham Hotspur winger Bryan Gil has joined Girona on a season-long loan deal for the 2024-25 season.`\
 https://nytimes.com/athletic/5662509/2024/07/29/bryan-gil-girona-loan-transfer-tottenham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5665898/2024/07/29/michael-lorenzen-trade-rangers-r
 **Carlos Sainz announces Williams F1 switch**\
 `Carlos Sainz has announced he will join Williams for the 2025 Formula One season, putting an end to months of speculation about his future.`\
 https://nytimes.com/athletic/5665688/2024/07/29/carlos-sainz-williams-f1/
-
-**How a Crisis for Vultures Led to a Human Disaster: Half a Million Deaths**\
-`The birds were accidentally poisoned in India. New research on what happened next shows how wildlife collapse can be deadly for people.`\
-https://nytimes.com/2024/07/29/climate/vultures-india-poisoning.html
 
