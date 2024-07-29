@@ -1,3 +1,7 @@
+**Sinead O’Connor Died of Pulmonary Disease and Asthma, Death Report Says**\
+`A death certificate filed last week revealed the natural causes behind the death last July of Ms. O’Connor, the Irish singer and activist.`\
+https://nytimes.com/2024/07/29/world/europe/sinead-oconnor-cause-of-death.html
+
 **Staley: Caitlin Clark might have made USWNT with current play**\
 `In 13 games since the roster announcement on June 11, Clark averaged 17.9 points, 10.4 assists and 6.7 rebounds per game.`\
 https://nytimes.com/athletic/5665564/2024/07/29/caitlin-clark-olympic-team-dawn-staley/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5659021/2024/07/29/bears-stadium-fan-survey/
 **Cowboys fans: Help us with our guide to AT&T Stadium's game day experience**\
 `The Athletic will be publishing stadium guides for all 32 NFL teams just ahead of the Week 1 kickoff, and we’d like Cowboys fans to answer a few questions about the AT&amp;T Stadium game day experience.`\
 https://nytimes.com/athletic/5661217/2024/07/29/cowboys-stadium-fan-survey/
-
-**Olympic women's basketball: Nigeria pulls off shocker vs. Australia**\
-`Nigeria, with no WNBA players, beat an Australia team with six active WNBA pros and three-time MVP Lauren Jackson.`\
-https://nytimes.com/athletic/5665529/2024/07/29/nigeria-australia-olympics-womens-basketball/
 
