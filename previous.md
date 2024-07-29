@@ -1,3 +1,15 @@
+**Titans fans: Help us with our guide to Nissan Stadium's game day experience**\
+`The Athletic will be publishing stadium guides for all 32 NFL teams just ahead of the Week 1 kickoff, and we’d like Titans fans to answer a few questions about the Nissan Stadium game day experience.`\
+https://nytimes.com/athletic/5654159/2024/07/29/titans-stadium-fan-survey/
+
+**Bears fans: Help us with our guide to Soldier Field’s game day experience**\
+`The Athletic will be publishing stadium guides for all 32 NFL teams just ahead of the Week 1 kickoff, and we’d like Bears fans to answer a few questions about the Soldier Field game day experience.`\
+https://nytimes.com/athletic/5659021/2024/07/29/bears-stadium-fan-survey/
+
+**Cowboys fans: Help us with our guide to AT&T Stadium's game day experience**\
+`We invite all Cowboys fans to share their thoughts about the AT&T Stadium game day experience.`\
+https://nytimes.com/athletic/5661217/2024/07/29/cowboys-stadium-fan-survey/
+
 **Olympic women's basketball: Nigeria pulls off shocker vs. Australia**\
 `Nigeria, with no WNBA players, beat an Australia team with six active WNBA pros and three-time MVP Lauren Jackson.`\
 https://nytimes.com/athletic/5665529/2024/07/29/nigeria-australia-olympics-womens-basketball/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5664043/2024/07/29/jaguars-stadium-fan-survey/
 **Packers fans: Help us with our guide to Lambeau Field's game day experience**\
 `Let us know about your experiences at Packers games.`\
 https://nytimes.com/athletic/5656021/2024/07/29/packers-stadium-fan-survey/
-
-**What to Eat on a Burning Planet**\
-`The future of the food supply is uncertain. Let’s look at solutions.`\
-https://nytimes.com/2024/07/29/opinion/what-to-eat-on-a-burning-planet.html
-
-**The Olympic Flame Isn’t a Flame at All**\
-`Two torches may have lit it to open the Paris Games, but that’s not a fire in the cauldron.`\
-https://nytimes.com/2024/07/29/world/olympics/flame-cauldron-balloon.html
-
-**The Pulse: A surprise U.S. juggernaut**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
-https://nytimes.com/athletic/5665254/2024/07/29/uswnt-olympics-soccer-basketball-kevin-durant-pulse/
 
