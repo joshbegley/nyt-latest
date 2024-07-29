@@ -1,3 +1,7 @@
+**Colts owner Jim Irsay provides health update, advocates for Anthony Richardson to keep running**\
+`Irsay made his first public appearance in months and said he is feeling "great."`\
+https://nytimes.com/athletic/5664964/2024/07/28/indianapolis-colts-jim-irsay-training-camp-anthony-richardson/
+
 **MLB Trade Grades: Rangers aim to stay competitive in adding Carson Kelly**\
 `Despite a losing record, the defending-champ Rangers are trying to stay in the hunt. Is that the smart thing to do? `\
 https://nytimes.com/athletic/5664974/2024/07/28/mlb-trade-grades-rangers-tigers-carson-kelly/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5664765/2024/07/28/braves-trade-deadline-reynaldo-l
 **'The time is now': Twins clinch series behind dominant Bailey Ober as trade deadline nears**\
 `Rocco Baldelli wants fans to support the Twins, who are on pace for 90 wins and could use some reinforcements to catch the Guardians.`\
 https://nytimes.com/athletic/5664820/2024/07/28/twins-trade-deadline-dominant-bailey-ober/
-
-**Dodgers' River Ryan jumps into rotation conversation ahead of trade deadline**\
-`Dodgers rookie starters have a 3.04 ERA this season, second only to the Pirates.`\
-https://nytimes.com/athletic/5664749/2024/07/28/dodgers-river-ryan-trade-deadline/
 
