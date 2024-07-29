@@ -1,3 +1,19 @@
+**Shapiro and Whitmer tell Harris supporters that Trump is ‘so scared of her.’**\
+`By Jonathan Weisman`\
+https://nytimes.com/live/2024/07/29/us/harris-trump-election/shapiro-and-whitmer-tell-harris-supporters-that-trump-is-so-scared-of-her
+
+**Tech Bro Elegy: How Did JD Vance Get Here?**\
+`He’s hiding who he really represents behind a can of Mountain Dew.`\
+https://nytimes.com/2024/07/29/opinion/vance-trump-cryptocurrency.html
+
+**Cardinals dazzle with Erick Fedde acquisition, while Dodgers, White Sox fill needs**\
+`The Cardinals get one of the top starters on the market without giving up much in return, while the Dodgers and White Sox nab useful pieces.`\
+https://nytimes.com/athletic/5667160/2024/07/29/erick-fedde-cardinals-dodgers-white-sox-trade-analysis/
+
+**Roy Cooper Is Said to Withdraw From Harris’s Vice-Presidential Field**\
+`Mr. Cooper, the governor of North Carolina, had been seen as one of the half-dozen top candidates to join the Democratic presidential ticket. It was not immediately clear why he withdrew.`\
+https://nytimes.com/2024/07/29/us/politics/roy-cooper-kamala-harris-vp.html
+
 **Francine Pascal, Creator of ‘Sweet Valley High’ Book Series, Dies at 92**\
 `The series and its many spinoffs have sold more than 200 million copies and revolutionized the world of young adult publishing.`\
 https://nytimes.com/2024/07/29/books/francine-pascal-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5667027/2024/07/29/49ers-brock-purdy-interceptions-
 **El Chapo’s Son Abducted Fellow Cartel Leader to the U.S., Officials Now Say**\
 `U.S. officials say Joaquín Guzmán López, a son of El Chapo, forced Ismael Zambada García onto a plane bound for Texas, in a case that landed the two Sinaloa cartel leaders in custody last week.`\
 https://nytimes.com/2024/07/29/world/americas/sinalo-cartel-el-mayo-joaquin-guzman-lopez.html
-
-**Browns GM shares thoughts on Chubb, Cooper's contract and the future stadium**\
-`Plus, Berry discusses Deshaun Watson's progression and the importance of Cleveland having roster depth. `\
-https://nytimes.com/athletic/5666866/2024/07/29/browns-andrew-berry-deshaun-watson-amari-cooper-nick-chubb/
-
-**Three Meteor Showers Are Active: How and When to Watch Fireball Season**\
-`The Southern Delta Aquarids and the Alpha Capricornids are reaching their peak this week. The Perseids, one of the best shows of the year, are also ramping up.`\
-https://nytimes.com/2024/07/29/science/meteor-shower-aquarids-capricornids-perseids.html
-
-**Biden Calls for Supreme Court Reforms**\
-`The president outlined his proposals for major changes to the Supreme Court, including imposing term limits and creating an enforceable code of ethics on the justices.`\
-https://nytimes.com/video/us/politics/100000009599200/biden-supreme-court-reforms.html
-
-**The Justice Department will monitor voting in Arizona on Tuesday.**\
-`By Tim Balk`\
-https://nytimes.com/live/2024/07/29/us/harris-trump-election/the-justice-department-will-monitor-voting-in-arizona-on-tuesday
 

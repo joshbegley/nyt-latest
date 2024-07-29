@@ -1,3 +1,19 @@
+**Shapiro and Whitmer tell Harris supporters that Trump is ‘so scared of her.’**\
+`By Jonathan Weisman`\
+https://nytimes.com/live/2024/07/29/us/harris-trump-election/shapiro-and-whitmer-tell-harris-supporters-that-trump-is-so-scared-of-her
+
+**Tech Bro Elegy: How Did JD Vance Get Here?**\
+`He’s hiding who he really represents behind a can of Mountain Dew.`\
+https://nytimes.com/2024/07/29/opinion/vance-trump-cryptocurrency.html
+
+**Cardinals dazzle with Erick Fedde acquisition, while Dodgers, White Sox fill needs**\
+`The Cardinals get one of the top starters on the market without giving up much in return, while the Dodgers and White Sox nab useful pieces.`\
+https://nytimes.com/athletic/5667160/2024/07/29/erick-fedde-cardinals-dodgers-white-sox-trade-analysis/
+
+**Roy Cooper Is Said to Withdraw From Harris’s Vice-Presidential Field**\
+`Mr. Cooper, the governor of North Carolina, had been seen as one of the half-dozen top candidates to join the Democratic presidential ticket. It was not immediately clear why he withdrew.`\
+https://nytimes.com/2024/07/29/us/politics/roy-cooper-kamala-harris-vp.html
+
 **49ers’ first padded practice is a bang for defense, bust for Brock Purdy**\
 `Purdy has been able to overcome steady pressure early in 49ers training camp. On Monday he couldn't, especially in the red zone.`\
 https://nytimes.com/athletic/5667027/2024/07/29/49ers-brock-purdy-interceptions-training-camp/
