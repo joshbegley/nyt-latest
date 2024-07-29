@@ -1,3 +1,7 @@
+**A Trump-Supporting Sheriff’s Stand Against Kari Lake in Arizona**\
+`Mark Lamb, a right-wing immigration hard-liner, once might have been the archetypal Republican Senate candidate in the border state. But he’s the underdog in Tuesday’s primary.`\
+https://nytimes.com/2024/07/29/us/politics/kari-lake-mark-lamb-arizona.html
+
 **Commanders getting into 'game mode' as pads come on for first time in camp**\
 `Dan Quinn and Washington's coaches emphasized the line of scrimmage and run game on day one in pads. `\
 https://nytimes.com/athletic/5666443/2024/07/29/commanders-austin-ekeler-bobby-wagner-training-camp/
@@ -19,7 +23,7 @@ https://nytimes.com/live/2024/07/29/world/israel-gaza-war-lebanon-hezbollah/isra
 https://nytimes.com/2024/07/29/us/politics/national-debt-35-trillion.html
 
 **3 Arrested in Gang-Related Murder of Rapper in Florida**\
-`The authorities said five people traveled from Jacksonville to Tampa in to “locate and kill” the rapper known as Julio Foolio. Three of them are in custody on murder charges.`\
+`The authorities said five people traveled from Jacksonville to Tampa to “locate and kill” the rapper known as Julio Foolio. Three of them are in custody on murder charges.`\
 https://nytimes.com/2024/07/29/us/julio-foolio-murder-arrests.html
 
 **MLB Trade Grades: Who got the best of Dodgers-White Sox-Cardinals three-team deal?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5666471/2024/07/29/caleb-williams-bears-training-ca
 **Rafael Nadal got closer to the tennis swansong he wants. Is it as close as he gets?**\
 `All the ingredients were there for a big moment at Roland Garros. Just the tennis eluded one of the greats of the sport`\
 https://nytimes.com/athletic/5666222/2024/07/29/rafael-nadal-olympics-tennis-retirement/
-
-**Giants camp: Can a rookie 'Turbo' charge RB room? Did Dru Phillips already win slot CB job?**\
-`UDFA Dante Miller is living up to his "Turbo" nickname as he continues to impress with his speed and quickness. `\
-https://nytimes.com/athletic/5666485/2024/07/29/new-york-giants-dante-miller-turbo-dru-phillips/
 
