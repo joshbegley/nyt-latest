@@ -1,3 +1,7 @@
+**Turkey’s president says his country could enter Israel to help the Palestinians.**\
+`By Ben Hubbard and Safak Timur`\
+https://nytimes.com/live/2024/07/29/world/israel-gaza-war-lebanon-hezbollah/turkey-israel-erdogan
+
 **Chiefs fans: Help us with our guide to Arrowhead Stadium’s game day experience**\
 `The Athletic will be publishing stadium guides for all 32 NFL teams just ahead of the Week 1 kickoff, and we’d like Chiefs fans to answer a few questions about the Arrowhead Stadium game day experience.`\
 https://nytimes.com/athletic/5659297/2024/07/29/chiefs-stadium-fan-survey/
