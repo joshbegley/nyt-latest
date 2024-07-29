@@ -1,3 +1,11 @@
+**Republicans and Democrats Name Members of Trump Assassination Inquiry**\
+`House leaders picked 13 lawmakers with background in national security and law enforcement, including a Republican who trafficked in conspiracy theories about the Jan. 6, 2021, attack.`\
+https://nytimes.com/2024/07/29/us/politics/trump-assassination-task-force.html
+
+**Blue Jays trade veteran bat Justin Turner to Mariners**\
+`For the second time in a week, the Mariners and Blue Jays have made a match on a trade, this time with Turner heading west.`\
+https://nytimes.com/athletic/5666779/2024/07/29/justin-turner-blue-jays-mariners-trade/
+
 **A Trump-Supporting Sheriff’s Stand Against Kari Lake in Arizona**\
 `Mark Lamb, a right-wing immigration hard-liner, once might have been the archetypal Republican Senate candidate in the border state. But he’s the underdog in Tuesday’s primary.`\
 https://nytimes.com/2024/07/29/us/politics/kari-lake-mark-lamb-arizona.html

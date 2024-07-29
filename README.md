@@ -1,3 +1,7 @@
+**Map: 4.9-Magnitude Earthquake Strikes Southern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/07/29/us/quake-tracker-california-barstow.html
+
 **Republicans and Democrats Name Members of Trump Assassination Inquiry**\
 `House leaders picked 13 lawmakers with background in national security and law enforcement, including a Republican who trafficked in conspiracy theories about the Jan. 6, 2021, attack.`\
 https://nytimes.com/2024/07/29/us/politics/trump-assassination-task-force.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/29/us/politics/national-debt-35-trillion.html
 **3 Arrested in Gang-Related Murder of Rapper in Florida**\
 `The authorities said five people traveled from Jacksonville to Tampa to “locate and kill” the rapper known as Julio Foolio. Three of them are in custody on murder charges.`\
 https://nytimes.com/2024/07/29/us/julio-foolio-murder-arrests.html
-
-**MLB Trade Grades: Who got the best of Dodgers-White Sox-Cardinals three-team deal?**\
-`The trade sent Erick Fedde to the Cardinals, Tommy Edman to the Dodgers, and Miguel Vargas to the White Sox, among others.`\
-https://nytimes.com/athletic/5666588/2024/07/29/mlb-trade-grades-dodgers-white-sox-cardinals-fedde/
 
