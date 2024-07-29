@@ -1,3 +1,7 @@
+**Local Depressive Bisexual Experiences Quarter-Life Crisis**\
+`The protagonist of Madison Newbound’s debut novel, “Misrecognition,” returns to her hometown after a breakup with her power-imbalanced polycule.`\
+https://nytimes.com/2024/07/29/books/review/madison-newbound-misrecognition.html
+
 **Sergio Pérez to keep Red Bull F1 seat after talks over future**\
 `Pérez’s position at Red Bull has faced heavy scrutiny in recent weeks as he's gone through a dip in performance.`\
 https://nytimes.com/athletic/5666568/2024/07/29/sergio-perez-red-bull-seat-safe-future/

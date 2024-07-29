@@ -1,3 +1,7 @@
+**Local Depressive Bisexual Experiences Quarter-Life Crisis**\
+`The protagonist of Madison Newbound’s debut novel, “Misrecognition,” returns to her hometown after a breakup with her power-imbalanced polycule.`\
+https://nytimes.com/2024/07/29/books/review/madison-newbound-misrecognition.html
+
 **Sergio Pérez to keep Red Bull F1 seat after talks over future**\
 `Pérez’s position at Red Bull has faced heavy scrutiny in recent weeks as he's gone through a dip in performance.`\
 https://nytimes.com/athletic/5666568/2024/07/29/sergio-perez-red-bull-seat-safe-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5666440/2024/07/29/erick-fedde-trade-cardinals-post
 **Teenager Accused of Derailing Train and Posting Crash Footage Online**\
 `Investigators said a 17-year-old charged with intentionally causing a freight train derailment in Nebraska had recorded the crash, which he then posted on YouTube.`\
 https://nytimes.com/2024/07/29/us/nebraska-teen-charged-train-crash.html
-
-**Canadian sensation Summer McIntosh wins first Olympic gold in 400-meter IM**\
-`McIntosh is the world record-holder and two-time world champion in the event and was considered the heavy favorite coming into Paris.`\
-https://nytimes.com/athletic/5665678/2024/07/29/summer-mcintosh-olympic-swimming-canada-gold-medal/
 
