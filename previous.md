@@ -1,3 +1,7 @@
+**Lions, LT Taylor Decker agree to 3-year, $60 million extension**\
+`Taylor Decker is one of the faces of the franchise.`\
+https://nytimes.com/athletic/5665843/2024/07/29/detroit-lions-taylor-decker-contract-extension/
+
 **At Least 8 People Stabbed in English Seaside Town**\
 `They were injured in a knife attack in Southport, near the northern English city of Liverpool.`\
 https://nytimes.com/2024/07/29/world/europe/southport-stabbing-uk.html
