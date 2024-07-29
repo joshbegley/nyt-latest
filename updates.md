@@ -1,3 +1,11 @@
+**Olympic women's basketball: Nigeria pulls off shocker vs. Australia**\
+`Nigeria, with no WNBA players, beat an Australia team with six active WNBA pros and three-time MVP Lauren Jackson.`\
+https://nytimes.com/athletic/5665529/2024/07/29/nigeria-australia-olympics-womens-basketball/
+
+**Jacob Zuma, Ex-President of South Africa, Is Expelled From A.N.C.**\
+`The African National Congress severed ties with its former leader over his decision to become the leading voice of an opposition party in the last election.`\
+https://nytimes.com/2024/07/29/world/africa/jacob-zuma-expelled-anc.html
+
 **Heavy Rain in Tennessee Floods Parton’s Dollywood Theme Park**\
 `Thunderstorms and heavy rain in eastern Tennessee flooded Dolly Parton’s theme park on Sunday, causing a road to collapse at the entrance to the park, according to the police.`\
 https://nytimes.com/video/weather/100000009597687/tennessee-floods-dollywood.html
