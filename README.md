@@ -1,3 +1,19 @@
+**Judge John Hodgman on What Constitutes a ‘Baked Good’**\
+`Does mac and cheese count — if you bake it?`\
+https://nytimes.com/2024/07/29/magazine/judge-john-hodgman-on-what-constitutes-a-baked-good.html
+
+**Some Nations Denounce Venezuelan Election Results, Demanding More Transparency**\
+`The United States and many Latin American countries said President Nicolás Maduro cannot claim victory without the full release of vote counts.`\
+https://nytimes.com/2024/07/29/world/americas/countries-concern-venezuela-election-results.html
+
+**Texans' Denico Autry suspended 6 games for banned substance**\
+`The 34-year-old defensive lineman is coming off one of his most productive seasons where he logged a career-high 11 1/2 sacks in 2023.`\
+https://nytimes.com/athletic/5666293/2024/07/29/denico-autry-suspension-texans/
+
+**Why the Kamala Harris of Four Years Ago Could Haunt Her in 2024**\
+`She ran to the left as progressive ideas dominated the last competitive Democratic primary. Now, in a tough general election, Republicans are digging up her old stances.`\
+https://nytimes.com/2024/07/29/us/politics/kamala-harris-2020-positions.html
+
 **Britain’s Labour Government Says It Inherited a $28 Billion Budget Hole**\
 `Rachel Reeves, the chancellor of the Exchequer, cut some infrastructure funding and pensions benefits, adding that more “difficult decisions” would come later this year.`\
 https://nytimes.com/2024/07/29/business/britain-budget-spending-rachel-reeves.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5666121/2024/07/29/skateboarding-olympics-eaton-hus
 **Former Top BBC Anchor Charged with Making Indecent Images of Children**\
 `Huw Edwards, who led the BBC’s coverage of major events, including King Charles III’s coronation, has been charged with three offenses, the police said on Monday.`\
 https://nytimes.com/2024/07/29/world/europe/huw-edwards-former-bbc-anchor-charged-making-indecent-images-of-children.html
-
-**Review: Grand Opera Makes a Comeback With ‘Le Prophète’**\
-`Meyerbeer, one of the 19th century’s most popular composers, is out of fashion today. But his work is receiving a rare revival at Bard College.`\
-https://nytimes.com/2024/07/29/arts/music/le-prophete-bard-review.html
-
-**Full Time: U.S. trio powers knockouts bid**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
-https://nytimes.com/athletic/5666045/2024/07/29/uswnt-germany-olympics-canada-drones-full-time/
-
-**White House warns Israel against escalation after rocket attack.**\
-`By Peter Baker`\
-https://nytimes.com/live/2024/07/29/world/israel-gaza-war-lebanon-hezbollah/white-house-warns-israel-against-escalation-after-rocket-attack
-
-**Trump: ‘You Won’t Have to Vote Anymore’**\
-`On Trump’s comments to Christian voters and claims about his demeaning those with disabilities. Also: Retirement; coming out; youths in need; driver data.`\
-https://nytimes.com/2024/07/29/opinion/donald-trump-voting-disabilities.html
 
