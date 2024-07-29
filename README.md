@@ -1,4 +1,8 @@
-**Venezuela Election Gives a Boost to the Autocrats**\
+**How One Man Lost $740,000 to Scammers Targeting His Retirement Savings**\
+`Criminals on the internet are increasingly going after Americans over the age of 60 because they are viewed as having the largest piles of savings.`\
+https://nytimes.com/2024/07/29/business/retirement-savings-scams.html
+
+**Venezuela’s Election Gives a Boost to the Autocrats**\
 `A declaration of victory by the Maduro regime is another case of how democracy is backsliding in Latin America.`\
 https://nytimes.com/2024/07/29/opinion/international-world/venezuela-election-democracy-maduro.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/29/dining/a-super-fast-sheet-pan-chicken-dinner.html
 **Lowetide: 3 defence trade targets who can solve Oilers' major roster issue**\
 `There is still time for the Oilers to make a bold move on the blue line before September's training camp.`\
 https://nytimes.com/athletic/5664221/2024/07/29/edmonton-oilers-trade-targets-defence-andersson/
-
-**Rangers trade Michael Lorenzen to Royals**\
-`Lorenzen will join his fourth team in the past calendar year. `\
-https://nytimes.com/athletic/5665898/2024/07/29/michael-lorenzen-trade-rangers-royals/
 
