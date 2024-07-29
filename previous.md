@@ -1,3 +1,7 @@
+**Democrats Could Regret Calling Trump and His Supporters ‘Weird’**\
+`It’s silly and counterproductive.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/trump-democrats-weird
+
 **Why Carlos Sainz is going to Williams — and where it leaves Alpine and Sauber for 2025**\
 `Sainz now gets to sit at the heart of a rebuild he believes in, while those who lost out on him are left with lesser options. `\
 https://nytimes.com/athletic/5666388/2024/07/29/carlos-sainz-williams-alpine-sauber-f1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5665678/2024/07/29/summer-mcintosh-olympic-swimming
 **What I'm hearing about the MLB trade deadline: Phillies still looking for more relief help**\
 `Plus more on the starting pitching market and what the White Sox may do next. `\
 https://nytimes.com/athletic/5666289/2024/07/29/trade-deadline-mlb-pitching-phillies-athletics/
-
-**Wild sign Brock Faber to largest extension in franchise history**\
-`Faber's $8.5 million annual average value is also the largest for a defenseman in Wild history.`\
-https://nytimes.com/athletic/5650780/2024/07/29/wild-brock-faber-contract/
 

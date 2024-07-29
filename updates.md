@@ -1,3 +1,7 @@
+**Democrats Could Regret Calling Trump and His Supporters ‘Weird’**\
+`It’s silly and counterproductive.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/trump-democrats-weird
+
 **Why Carlos Sainz is going to Williams — and where it leaves Alpine and Sauber for 2025**\
 `Sainz now gets to sit at the heart of a rebuild he believes in, while those who lost out on him are left with lesser options. `\
 https://nytimes.com/athletic/5666388/2024/07/29/carlos-sainz-williams-alpine-sauber-f1/
