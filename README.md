@@ -1,3 +1,19 @@
+**Staley: Caitlin Clark might have made USWNT with current play**\
+`In 13 games since the roster announcement on June 11, Clark averaged 17.9 points, 10.4 assists and 6.7 rebounds per game.`\
+https://nytimes.com/athletic/5665564/2024/07/29/caitlin-clark-olympic-team-dawn-staley/
+
+**Raiders fans: Help us with our guide to Allegiant Stadium’s game day experience**\
+`We invite all Raiders fans to share their thoughts about the Allegiant Stadium game day experience.`\
+https://nytimes.com/athletic/5660589/2024/07/29/raiders-stadium-fan-survey/
+
+**Broncos fans: Help us with our guide to Empower Field's game day experience**\
+`The Athletic will be publishing stadium guides for all 32 NFL teams just ahead of the Week 1 kickoff, and we’d like Broncos fans to answer a few questions about the Empower Field at Mile High game day experience.`\
+https://nytimes.com/athletic/5656012/2024/07/29/broncos-stadium-fan-survey/
+
+**Saints fans: Help us with our guide to Caesars Superdome's game day experience**\
+`The Athletic will be publishing stadium guides for all 32 NFL teams just ahead of the Week 1 kickoff, and we’d like Saints fans to answer a few questions about the Caesars Superdome game day experience.`\
+https://nytimes.com/athletic/5652961/2024/07/29/saints-stadium-fan-survey/
+
 **Turkey’s President Says His Country Could Enter Israel to Help Palestinians**\
 `It was unclear whether the comments reflected any concrete plans, but they drew a strong response from Israel.`\
 https://nytimes.com/2024/07/29/world/middleeast/turkey-israel-erdogan.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5661217/2024/07/29/cowboys-stadium-fan-survey/
 **Olympic women's basketball: Nigeria pulls off shocker vs. Australia**\
 `Nigeria, with no WNBA players, beat an Australia team with six active WNBA pros and three-time MVP Lauren Jackson.`\
 https://nytimes.com/athletic/5665529/2024/07/29/nigeria-australia-olympics-womens-basketball/
-
-**Jacob Zuma, Ex-President of South Africa, Is Expelled From A.N.C.**\
-`The African National Congress severed ties with its former leader over his decision to become the leading voice of an opposition party in the last election.`\
-https://nytimes.com/2024/07/29/world/africa/jacob-zuma-expelled-anc.html
-
-**Heavy Rain in Tennessee Floods Parton’s Dollywood Theme Park**\
-`Thunderstorms and heavy rain in eastern Tennessee flooded Dolly Parton’s theme park on Sunday, causing a road to collapse at the entrance to the park, according to the police.`\
-https://nytimes.com/video/weather/100000009597687/tennessee-floods-dollywood.html
-
-**As he departs for Tampa, Cubs praise Christopher Morel's personality: 'He’s an example for all of us'**\
-`Even if it didn’t coincide with many wins, Morel's time in Chicago will likely be remembered fondly by teammates and fans.`\
-https://nytimes.com/athletic/5665195/2024/07/29/cubs-christopher-morel-trade-rays/
-
-**Ackman’s Wait for His Long-Awaited Fund Offering**\
-`The billionaire financier’s U.S.-listed investment vehicle is facing a delay in pricing its I.P.O., the latest speed bump in its journey to the public markets.`\
-https://nytimes.com/2024/07/29/business/dealbook/ackman-pershing-square-ipo.html
 
