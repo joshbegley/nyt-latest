@@ -1,3 +1,11 @@
+**Former Top BBC Anchor Charged with Making Indecent Images of Children**\
+`Huw Edwards, who led the BBC’s coverage of major events, including King Charles III’s coronation, has been charged with three offenses, the police said on Monday.`\
+https://nytimes.com/2024/07/29/world/europe/huw-edwards-former-bbc-anchor-charged-making-indecent-images-of-children.html
+
+**Review: Grand Opera Makes a Comeback With ‘Le Prophète’**\
+`Meyerbeer, one of the 19th century’s most popular composers, is out of fashion today. But his work is receiving a rare revival at Bard College.`\
+https://nytimes.com/2024/07/29/arts/music/le-prophete-bard-review.html
+
 **Full Time: U.S. trio powers knockouts bid**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter. `\
 https://nytimes.com/athletic/5666045/2024/07/29/uswnt-germany-olympics-canada-drones-full-time/
