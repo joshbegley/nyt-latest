@@ -1,3 +1,11 @@
+**Juan Soto on Yankees' 'exciting' trade deadline: 'It's kind of like you're expecting something'**\
+`The Yankees should want to maximize their time with Soto, who might not return to the Yankees next year, and beef up their roster.`\
+https://nytimes.com/athletic/5667215/2024/07/29/yankees-juan-soto-trade-deadline-reaction/
+
+**The Republicans Who Want to Make America Have Babies Again**\
+`JD Vance has long spoken about his concerns about the falling birthrate — and it’s not just him.`\
+https://nytimes.com/2024/07/29/us/politics/republicans-birthrate-jd-vance.html
+
 **Chargers training camp, Day 5: Joe Alt holds his own in first padded practice**\
 `Alt "acquitted himself well," according to coach Jim Harbaugh, in his first padded battles against Joey Bosa and Khalil Mack.`\
 https://nytimes.com/athletic/5667100/2024/07/29/chargers-joe-alt-training-camp-pads/
