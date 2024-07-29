@@ -1,3 +1,15 @@
+**Lowetide: 3 defence trade targets who can solve Oilers' major roster issue**\
+`There is still time for the Oilers to make a bold move on the blue line before September's training camp.`\
+https://nytimes.com/athletic/5664221/2024/07/29/edmonton-oilers-trade-targets-defence-andersson/
+
+**Rangers trade Michael Lorenzen to Royals**\
+`Lorenzen will join his fourth team in the past calendar year. `\
+https://nytimes.com/athletic/5665898/2024/07/29/michael-lorenzen-trade-rangers-royals/
+
+**Carlos Sainz announces Williams F1 switch**\
+`Carlos Sainz has announced he will join Williams for the 2025 Formula One season, putting an end to months of speculation about his future.`\
+https://nytimes.com/athletic/5665688/2024/07/29/carlos-sainz-williams-f1/
+
 **How a Crisis for Vultures Led to a Human Disaster: Half a Million Deaths**\
 `The birds were accidentally poisoned in India. New research on what happened next shows how wildlife collapse can be deadly for people.`\
 https://nytimes.com/2024/07/29/climate/vultures-india-poisoning.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5665843/2024/07/29/detroit-lions-taylor-decker-cont
 **At Least 8 People Stabbed in English Seaside Town**\
 `They were injured in a knife attack in Southport, near the northern English city of Liverpool.`\
 https://nytimes.com/2024/07/29/world/europe/southport-stabbing-uk.html
-
-**How Well Do You Know These Works of the Harlem Renaissance?**\
-`Try this short quiz about the vibrant cultural movement that came together a century ago — and continues to be influential.`\
-https://nytimes.com/interactive/2024/07/29/books/review/harlem-books-quiz.html
-
-**Scoop City: Love, Tagovailoa join the $50M club**\
-`Looking at the QB contracts, training camp insights and the career of Julius Peppers`\
-https://nytimes.com/athletic/5660728/2024/07/29/50-million-club-scoop-city/
-
-**Olympic Ceremony Put a Changing France on Full Display**\
-`Aya Nakamura, the French Malian singer, did more than open the Games. She redefined what it means to be French.`\
-https://nytimes.com/2024/07/29/world/europe/olympic-ceremony-france-singer-aya-nakamura.html
 

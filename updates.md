@@ -1,3 +1,15 @@
+**Lowetide: 3 defence trade targets who can solve Oilers' major roster issue**\
+`There is still time for the Oilers to make a bold move on the blue line before September's training camp.`\
+https://nytimes.com/athletic/5664221/2024/07/29/edmonton-oilers-trade-targets-defence-andersson/
+
+**Rangers trade Michael Lorenzen to Royals**\
+`Lorenzen will join his fourth team in the past calendar year. `\
+https://nytimes.com/athletic/5665898/2024/07/29/michael-lorenzen-trade-rangers-royals/
+
+**Carlos Sainz announces Williams F1 switch**\
+`Carlos Sainz has announced he will join Williams for the 2025 Formula One season, putting an end to months of speculation about his future.`\
+https://nytimes.com/athletic/5665688/2024/07/29/carlos-sainz-williams-f1/
+
 **Olympic Ceremony Put a Changing France on Full Display**\
 `Aya Nakamura, the French Malian singer, did more than open the Games. She redefined what it means to be French.`\
 https://nytimes.com/2024/07/29/world/europe/olympic-ceremony-france-singer-aya-nakamura.html
