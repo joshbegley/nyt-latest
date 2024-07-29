@@ -1,4 +1,9 @@
 **Astros near deal with Blue Jays to add Yusei Kikuchi to beleaguered rotation: sources**\
+`By Ken Rosenthal, Kaitlyn McGrath and Chandler Rome
+HOUSTON — The Astros supplemented their injury-ravaged starting rotation with one of the best rental starters available on the trade market.`\
+https://nytimes.com/athletic/5667017/2024/07/29/yusei-kikuchi-blue-jays-trade/
+
+**Astros near deal with Blue Jays to add Yusei Kikuchi to beleaguered rotation: sources**\
 `HOUSTON — The Astros supplemented their injury-ravaged starting rotation with one of the best rental starters available on the trade market.`\
 https://nytimes.com/athletic/5667017/2024/07/29/yusei-kikuchi-blue-jays-trade/
 
