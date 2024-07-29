@@ -1,3 +1,7 @@
+**Rangers trade Michael Lorenzen to Royals**\
+`Lorenzen will join his fourth team in the past calendar year. `\
+https://nytimes.com/athletic/5665898/2024/07/29/michael-lorenzen-trade-rangers-royals/
+
 **How a Crisis for Vultures Led to a Human Disaster: Half a Million Deaths**\
 `The birds were accidentally poisoned in India. New research on what happened next shows how wildlife collapse can be deadly for people.`\
 https://nytimes.com/2024/07/29/climate/vultures-india-poisoning.html
