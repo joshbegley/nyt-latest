@@ -1,3 +1,7 @@
+**Olympics broadcaster drops commentator after 'outrageous' sexist remark**\
+`An Olympics broadcaster has dropped one of its commentators after a sexist remark made during commentary of the swimming competition in Paris.`\
+https://nytimes.com/athletic/5665325/2024/07/29/eurosport-commentator-swimming-bob-ballard/
+
 **Takeaways From Venezuela’s Marred Election**\
 `Stark irregularities and suppression efforts could plunge the country back into instability and economic decline.`\
 https://nytimes.com/2024/07/29/world/americas/venezuela-election-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/29/learning/word-of-the-day-ditty.html
 **Yankees trade deadline notes: Spencer Jones, Jazz Chisholm Jr., Gleyber Torres**\
 `The Chisholm deal is the only trade the Yankees have made with Tuesday's deadline nearing. Here are other things we kept an eye on Sunday.`\
 https://nytimes.com/athletic/5665198/2024/07/29/yankees-trade-deadline-spencer-jones-jazz-chisholm-gleyber-torres/
-
-**Evans: Inside the atmosphere at LIV Golf UK, from the party to the golf**\
-`Tens of thousands poured into JCB Golf & Country Club for the tour's first event outside of London. Not all of them had the same purpose.`\
-https://nytimes.com/athletic/5664569/2024/07/29/liv-golf-uk-party-rahm/
 
