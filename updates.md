@@ -1,3 +1,7 @@
+**Olympic Ceremony Put a Changing France on Full Display**\
+`Aya Nakamura, the French Malian singer, did more than open the Games. She redefined what it means to be French.`\
+https://nytimes.com/2024/07/29/world/europe/olympic-ceremony-france-singer-aya-nakamura.html
+
 **Rangers trade Michael Lorenzen to Royals**\
 `Lorenzen will join his fourth team in the past calendar year. `\
 https://nytimes.com/athletic/5665898/2024/07/29/michael-lorenzen-trade-rangers-royals/
