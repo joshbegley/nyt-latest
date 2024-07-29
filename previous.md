@@ -1,3 +1,7 @@
+**How Tyus Jones can help boost the Suns' hopes for contention**\
+`Jones doesn't fix all of Phoenix’s problems, but he should help maximize the Suns' offensive potential.`\
+https://nytimes.com/athletic/5665184/2024/07/29/tyus-jones-phoenix-suns-nba/
+
 **Japan's Horigome defends street skate gold**\
 `Horigome pulled off a legendary trick to stun the crowd and score a 97.08 to vault into first place with a total score of 281.14.`\
 https://nytimes.com/athletic/5666121/2024/07/29/skateboarding-olympics-eaton-huston-horigome/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5661264/2024/07/29/arsenal-riccardo-calafiori-trans
 **Biles, Chiles to lead U.S. gymnastics team in Olympic final**\
 `Sunisa Lee will compete on floor in place of reigning Olympic champion Jade Carey, who has been dealing with an illness.`\
 https://nytimes.com/athletic/5666038/2024/07/29/simone-biles-us-gymnastics-team-lineup-paris-olympics/
-
-**Harris Should Pick Walz, and Then Put Shapiro and Kelly to Work**\
-`All three men can help her, in different ways.`\
-https://nytimes.com/live/2024/07/22/opinion/thepoint/harris-walz-kelly-shapiro
 
