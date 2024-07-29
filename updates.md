@@ -1,3 +1,15 @@
+**Israel’s Security Cabinet Approves Military Response to Rocket Attack From Lebanon**\
+`Fears linger as Lebanon awaits Israeli retaliation for a strike that killed 12 children and teenagers.`\
+https://nytimes.com/live/2024/07/29/world/israel-gaza-war-lebanon-hezbollah
+
+**The risk of all-out war between Israel and Lebanon has been ramping up.**\
+`By Patrick Kingsley and Euan Ward`\
+https://nytimes.com/live/2024/07/29/world/israel-gaza-war-lebanon-hezbollah/the-risk-of-all-out-war-between-israel-and-lebanon-has-been-ramping-up
+
+**Israeli politicians have pushed for a strong response to the strike.**\
+`By Isabel Kershner and Euan Ward`\
+https://nytimes.com/live/2024/07/29/world/israel-gaza-war-lebanon-hezbollah/israeli-politicians-have-pushed-for-a-strong-response-to-the-strike
+
 **Browns training camp check: Deshaun Watson update, injury concerns, roster competition**\
 `We take our first temperature check of camp knowing that many things won't be known until at least a few weeks into the regular season.`\
 https://nytimes.com/athletic/5664404/2024/07/29/browns-training-camp-deshaun-watson-nick-chubb/
