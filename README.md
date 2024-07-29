@@ -1,3 +1,7 @@
+**Venezuela Election Gives a Boost to the Autocrats**\
+`A declaration of victory by the Maduro regime is another case of how democracy is backsliding in Latin America.`\
+https://nytimes.com/2024/07/29/opinion/international-world/venezuela-election-democracy-maduro.html
+
 **Trump Agrees to Be Interviewed by F.B.I. in Its Investigation Into Gunman**\
 `The F.B.I. also provided the most comprehensive portrait to date of the shooter, revealing that he carefully concealed more than two dozen online purchases of weapons and explosives using aliases.`\
 https://nytimes.com/2024/07/29/us/politics/trump-fbi-interview-assassination-attempt.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5664221/2024/07/29/edmonton-oilers-trade-targets-de
 **Rangers trade Michael Lorenzen to Royals**\
 `Lorenzen will join his fourth team in the past calendar year. `\
 https://nytimes.com/athletic/5665898/2024/07/29/michael-lorenzen-trade-rangers-royals/
-
-**Carlos Sainz announces Williams F1 switch**\
-`Carlos Sainz has announced he will join Williams for the 2025 Formula One season, putting an end to months of speculation about his future.`\
-https://nytimes.com/athletic/5665688/2024/07/29/carlos-sainz-williams-f1/
 
