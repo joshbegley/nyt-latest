@@ -1,3 +1,11 @@
+**Is the Seine Clean Enough to Swim? Olympic Triathletes Wait on Testers.**\
+`Water-quality results recorded before dawn on Tuesday will determine if the men’s triathlon race will take place hours later.`\
+https://nytimes.com/2024/07/29/world/olympics/seine-olympics-triathlon.html
+
+**Ten things we learned about the Panthers: 2 WRs making plays, Sam Franklin out a while**\
+`Jonathan Mingo and Terrace Marshall are making plays in the passing game, but the Panthers lost Sam Franklin to a broken foot.`\
+https://nytimes.com/athletic/5666387/2024/07/29/carolina-panthers-camp-analysis-bryce-young-receivers/
+
 **Teenager Accused of Derailing Train and Posting Crash Video Online**\
 `Investigators said a 17-year-old charged with intentionally causing a freight train derailment in Nebraska had recorded the crash, which he then posted on YouTube.`\
 https://nytimes.com/2024/07/29/us/nebraska-teen-charged-train-crash.html
