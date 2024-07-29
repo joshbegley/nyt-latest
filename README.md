@@ -1,3 +1,15 @@
+**Evans: Inside the atmosphere at LIV Golf UK, from the party to the golf**\
+`Tens of thousands poured into JCB Golf & Country Club for the tour's first event outside of London. Not all of them had the same purpose.`\
+https://nytimes.com/athletic/5664569/2024/07/29/liv-golf-uk-party-rahm/
+
+**Monday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/07/29/briefing/israel-lebanon-harris-trump.html
+
+**Pope says he never received explanation for Euro 2024 omission**\
+`Nick Pope claims he was never given an explanation for his England omission and is determined to reclaim a spot in the national squad.`\
+https://nytimes.com/athletic/5664706/2024/07/29/nick-pope-england-omission/
+
 **Injury concerns, Chermiti and Iroegbunam shine, O'Brien on way? Everton's plans taking shape**\
 `Sean Dyche's squad is stretched but the manager has seen plenty of positives in pre-season - and another signing is close`\
 https://nytimes.com/athletic/5663027/2024/07/29/everton-pre-season-sean-dyche/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5652585/2024/07/29/billy-hogan-liverpool-interview/
 **Why Barca's interest in Williams and Olmo is more complex than it seems**\
 `The Athletic has reported on Barca's interest in the Spain duo, but how should we be reading the situation?`\
 https://nytimes.com/athletic/5658391/2024/07/29/barcelona-transfers-williams-olmo/
-
-**Slow starts, set pieces, striking options: One big issue for each Premier League club to solve**\
-`Is it an open midfield, a lopsided flank or lack of options up front? Here we bring you one problem for each Premier League club to fix`\
-https://nytimes.com/athletic/5660598/2024/07/29/premier-league-club-problems-pre-season/
-
-**Dortmund, the weapons firm and a bitterly divisive deal: 'It felt like my love was cheating'**\
-`How Borussia Dortmund's weapons sponsor provoked a debate over Germany's future military role`\
-https://nytimes.com/athletic/5568273/2024/07/29/dortmund-rheinmetall/
-
-**Stam on returning to management, Ten Hag, Zirkzee and the treble**\
-`The former Manchester United defender reflects on his playing and managerial career — and says he hopes to return to the dugout in England`\
-https://nytimes.com/athletic/5659146/2024/07/29/jaap-stam-interview-manchester-united/
 
