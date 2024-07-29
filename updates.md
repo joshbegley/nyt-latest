@@ -1,3 +1,7 @@
+**Lions fans: Help us with our guide to Ford Field's game day experience**\
+`The Athletic will be publishing stadium guides for all 32 NFL teams just ahead of the Week 1 kickoff, and we’d like Lions fans to answer a few questions about the Ford Field game day experience.`\
+https://nytimes.com/athletic/5664607/2024/07/29/lions-stadium-fan-survey/
+
 **Israel’s Security Cabinet Approves Military Response to Rocket Attack From Lebanon**\
 `Fears linger as Lebanon awaits Israeli retaliation for a strike that killed 12 children and teenagers.`\
 https://nytimes.com/live/2024/07/29/world/israel-gaza-war-lebanon-hezbollah

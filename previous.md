@@ -1,3 +1,7 @@
+**Lions fans: Help us with our guide to Ford Field's game day experience**\
+`The Athletic will be publishing stadium guides for all 32 NFL teams just ahead of the Week 1 kickoff, and we’d like Lions fans to answer a few questions about the Ford Field game day experience.`\
+https://nytimes.com/athletic/5664607/2024/07/29/lions-stadium-fan-survey/
+
 **Israel’s Security Cabinet Approves Military Response to Rocket Attack From Lebanon**\
 `Fears linger as Lebanon awaits Israeli retaliation for a strike that killed 12 children and teenagers.`\
 https://nytimes.com/live/2024/07/29/world/israel-gaza-war-lebanon-hezbollah
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5663534/2024/07/29/ravens-training-camp-stock-repor
 **For Tyler Adams' injury saga to end, Bournemouth, USMNT and the player must work together**\
 `Were the right decisions made over Adams playing Copa America this summer, and how can he best avoid another long injury layoff?`\
 https://nytimes.com/athletic/5658890/2024/07/29/tyler-adams-injury-bournemouth-usmnt/
-
-**Stalkers, Disease and Doubt: A Gymnast’s Hard Road Back to the Games**\
-`Sunisa Lee, the all-around women’s champion at the Tokyo Olympics, overcame personal strife, family expectations and serious illness to get to Paris.`\
-https://nytimes.com/2024/07/29/world/olympics/suni-lee-gymnastics-kidney-disease.html
 
