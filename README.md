@@ -1,3 +1,11 @@
+**El Chapo’s Son Abducted Fellow Cartel Leader to the U.S., Officials Now Say**\
+`U.S. officials say Joaquín Guzmán López, a son of El Chapo, forced Ismael Zambada García onto a plane bound for Texas, in a case that landed the two Sinaloa cartel leaders in custody last week.`\
+https://nytimes.com/2024/07/29/world/americas/sinalo-cartel-el-mayo-joaquin-guzman-lopez.html
+
+**Browns GM shares thoughts on Chubb, Cooper's contract and the future stadium**\
+`Plus, Andrew Berry discusses Deshaun Watson's progression and the importance of Cleveland having roster depth. `\
+https://nytimes.com/athletic/5666866/2024/07/29/browns-andrew-berry-deshaun-watson-amari-cooper-nick-chubb/
+
 **Three Meteor Showers Are Active: How and When to Watch Fireball Season**\
 `The Southern Delta Aquarids and the Alpha Capricornids are reaching their peak this week. The Perseids, one of the best shows of the year, are also ramping up.`\
 https://nytimes.com/2024/07/29/science/meteor-shower-aquarids-capricornids-perseids.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/29/us/tim-walz-minnesota-kamala-harris.html
 **Wolfgang Rihm, Prolific Contemporary Classical Music Composer, Dies at 72**\
 `Likened to a “court composer” for Germany, he wrote more than 500 pieces and was considered one of the most original and independent musical voices in Europe.`\
 https://nytimes.com/2024/07/29/arts/music/wolfgang-rihm-dead.html
-
-**Biden Pushed for Major Changes to the Supreme Court**\
-`Also, Maduro was declared the winner in a disputed election. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2024/07/29/briefing/biden-supreme-court-venezuela-election.html
-
-**Ryan Murphy surprised with poolside gender reveal after race**\
-`"We both thought it was going to be a boy," Murphy said. "Everything is going to be dedicated to that little girl.”`\
-https://nytimes.com/athletic/5666815/2024/07/29/ryan-murphy-olympics-swim-gender-reveal/
 
