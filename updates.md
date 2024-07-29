@@ -1,3 +1,19 @@
+**The Tradwife Life Is Nothing New**\
+`And it isn’t appealing or aspirational for many modern women.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/hannah-neeleman-tradwife
+
+**How the Current Supreme Court Would Look Under Biden’s Term-Limit Plan**\
+`If President Biden’s proposed 18-year term limit had been in place during the most recent four administrations, the court’s 6-to-3 conservative split would be reversed.`\
+https://nytimes.com/interactive/2024/07/29/us/politics/supreme-court-biden-term-limits.html
+
+**Tuesday Briefing: Less Than 100 Days to Go**\
+`Plus, results in Venezuela’s tainted election and the new math of swimming`\
+https://nytimes.com/2024/07/29/briefing/harris-maduro-golan.html
+
+**The Science Behind Olympic Greatness, Revealed Through Motion**\
+`How do skateboarders seemingly defy gravity? How do gymnasts flip in the air? They have skill — and, as a Times interactive explored, an understanding of the laws of motion, physics and energy.`\
+https://nytimes.com/2024/07/29/insider/the-science-behind-olympic-greatness-revealed-through-motion.html
+
 **Matthew Judon, Davon Godchaux and a drama-filled Patriots practice**\
 `Judon launched what looked to be a public holdout on Monday, seemingly trying to negotiate a new deal as the Pats practiced in pads.`\
 https://nytimes.com/athletic/5666523/2024/07/29/patriots-matthew-judon-davon-godchaux/
