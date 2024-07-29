@@ -1,3 +1,7 @@
+**Biden to Call for Changes to Supreme Court During Austin Visit**\
+`In his first public engagement since ending his campaign, President Biden will propose overhauling a court that has become increasingly politicized and subject to ethics complaints.`\
+https://nytimes.com/2024/07/29/us/politics/biden-supreme-court-austin-texas.html
+
 **This Week in Mets: The margins are thin for the Mets**\
 `Many times in Mets’ franchise history the difference between a successful season and a failure was a single regular-season game.`\
 https://nytimes.com/athletic/5665137/2024/07/29/mets-mlb-trade-deadline-outlook/

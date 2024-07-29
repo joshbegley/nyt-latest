@@ -1,3 +1,7 @@
+**Biden to Call for Changes to Supreme Court During Austin Visit**\
+`In his first public engagement since ending his campaign, President Biden will propose overhauling a court that has become increasingly politicized and subject to ethics complaints.`\
+https://nytimes.com/2024/07/29/us/politics/biden-supreme-court-austin-texas.html
+
 **This Week in Mets: The margins are thin for the Mets**\
 `Many times in Mets’ franchise history the difference between a successful season and a failure was a single regular-season game.`\
 https://nytimes.com/athletic/5665137/2024/07/29/mets-mlb-trade-deadline-outlook/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/29/style/thrift-store-clothing-secondhand.html
 **Echoes of Roe v. Wade in Decision Granting Immunity to Trump**\
 `Critics say the immunity ruling is flawed for reasons similar to those the court gave for overturning Roe, which had established a right to abortion.`\
 https://nytimes.com/2024/07/29/us/trump-immunity-roe-v-wade.html
-
-**The Woman Who Beat the Boys of the French New Wave to the Punch**\
-`A new biography surveys the prolific and pioneering career of the filmmaker Agnès Varda.`\
-https://nytimes.com/2024/07/29/books/review/carrie-rickey-complicated-passion.html
 
