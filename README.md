@@ -1,3 +1,7 @@
+**Gabriel Medina celebrates highest Olympic surfing score in style**\
+`Medina finished with a total score of 17.40 to defeat Japan's Kanoa Igarashi.`\
+https://nytimes.com/athletic/5666912/2024/07/29/olympics-surfing-gabriel-medina-high-score/
+
 **Eagles training camp: Why Nolan Smith wanted to 'be by my lonesome' in offseason**\
 `Plus, notes from training camp, including an update on Tyler Steen's injury and Saquon Barkley's excused absence.`\
 https://nytimes.com/athletic/5666067/2024/07/29/eagles-training-camp-nolan-smith-offseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5666399/2024/07/29/lions-training-camp-taylor-decke
 **MLB Trade Grades: What is Seattle getting in 39-year-old Justin Turner?**\
 `Turner used to deliver one of the most professional at-bats in the majors. He isn't that guy anymore, but at this cost, was he a good add?`\
 https://nytimes.com/athletic/5666777/2024/07/29/mlb-trade-grades-justin-turner-mariners-blue-jays/
-
-**The Tradwife Life Is Nothing New**\
-`And it isn’t appealing or aspirational for many modern women.`\
-https://nytimes.com/live/2024/07/22/opinion/thepoint/hannah-neeleman-tradwife
 
