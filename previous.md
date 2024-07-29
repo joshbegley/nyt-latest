@@ -1,3 +1,7 @@
+**Canada appealing 6-point deduction for drone spying**\
+`A hearing is "likely to take place" on Tuesday and the final decision "should be issued at around midday" Wednesday, per CAS.`\
+https://nytimes.com/athletic/5665976/2024/07/29/canada-soccer-olympics-appeal-drone-penalty/
+
 **Israeli Troops Held for Questioning in Prisoner Abuse Investigation**\
 `At least nine reservists were detained at a military base holding thousands of Gazans, prompting ultranationalists to break into the base in protest.`\
 https://nytimes.com/2024/07/29/world/middleeast/prisoner-abuse-israeli-troops-questioned.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5662509/2024/07/29/bryan-gil-girona-loan-transfer-t
 **Former MLB pitcher Reyes Moronta dies at 31**\
 `The León Braves, a Mexican League team where Moronta pitched earlier this season, confirmed his death on X.`\
 https://nytimes.com/athletic/5665186/2024/07/29/reyes-moronta-death-mlb/
-
-**Two More New York Theaters to Share Space**\
-`The prestigious downtown nonprofit Soho Rep will share space with Playwrights Horizons in Midtown Manhattan while figuring out a longer-term plan.`\
-https://nytimes.com/2024/07/29/theater/soho-rep-theater-real-estate.html
 

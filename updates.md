@@ -1,3 +1,7 @@
+**Canada appealing 6-point deduction for drone spying**\
+`A hearing is "likely to take place" on Tuesday and the final decision "should be issued at around midday" Wednesday, per CAS.`\
+https://nytimes.com/athletic/5665976/2024/07/29/canada-soccer-olympics-appeal-drone-penalty/
+
 **Israeli Troops Held for Questioning in Prisoner Abuse Investigation**\
 `At least nine reservists were detained at a military base holding thousands of Gazans, prompting ultranationalists to break into the base in protest.`\
 https://nytimes.com/2024/07/29/world/middleeast/prisoner-abuse-israeli-troops-questioned.html
