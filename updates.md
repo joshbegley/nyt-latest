@@ -1,3 +1,7 @@
+**USWNT is coming into its own under head coach Emma Hayes, but it's just the beginning**\
+`The USWNT's offense has found a scoring groove thanks to a trio of budding talent`\
+https://nytimes.com/athletic/5665110/2024/07/29/uswnt-emma-hayes-dominant-knockout-olympics/
+
 **Triathlon training cancelled for second successive day over water quality concerns**\
 `Training ahead of the Olympics triathlon competition was cancelled for a second successive day because of concerns over the water quality in the Seine.`\
 https://nytimes.com/athletic/5665295/2024/07/29/olympics-triathlon-training-cancelled-seine-pollution/
