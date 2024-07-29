@@ -1,3 +1,15 @@
+**Why Barca's interest in Williams and Olmo is more complex than it seems**\
+`The Athletic has reported on Barca's interest in the Spain duo, but how should we be reading the situation?`\
+https://nytimes.com/athletic/5658391/2024/07/29/barcelona-transfers-williams-olmo/
+
+**Slow starts, set pieces, striking options: One big issue for each Premier League club to solve**\
+`Is it an open midfield, a lopsided flank or lack of options up front? Here we bring you one problem for each Premier League club to fix`\
+https://nytimes.com/athletic/5660598/2024/07/29/premier-league-club-problems-pre-season/
+
+**Dortmund, the weapons firm and a bitterly divisive deal: 'It felt like my love was cheating'**\
+`How Borussia Dortmund's weapons sponsor provoked a debate over Germany's future military role`\
+https://nytimes.com/athletic/5568273/2024/07/29/dortmund-rheinmetall/
+
 **Stam on returning to management, Ten Hag, Zirkzee and the treble**\
 `The former Manchester United defender reflects on his playing and managerial career — and says he hopes to return to the dugout in England`\
 https://nytimes.com/athletic/5659146/2024/07/29/jaap-stam-interview-manchester-united/
