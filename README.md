@@ -1,3 +1,15 @@
+**Israel’s Security Cabinet Approves Military Response to Rocket Attack From Lebanon**\
+`Fears linger as Lebanon awaits Israeli retaliation for a strike that killed 12 children and teenagers.`\
+https://nytimes.com/live/2024/07/29/world/israel-gaza-war-lebanon-hezbollah
+
+**The risk of all-out war between Israel and Lebanon has been ramping up.**\
+`By Patrick Kingsley and Euan Ward`\
+https://nytimes.com/live/2024/07/29/world/israel-gaza-war-lebanon-hezbollah/the-risk-of-all-out-war-between-israel-and-lebanon-has-been-ramping-up
+
+**Israeli politicians have pushed for a strong response to the strike.**\
+`By Isabel Kershner and Euan Ward`\
+https://nytimes.com/live/2024/07/29/world/israel-gaza-war-lebanon-hezbollah/israeli-politicians-have-pushed-for-a-strong-response-to-the-strike
+
 **Browns training camp check: Deshaun Watson update, injury concerns, roster competition**\
 `We take our first temperature check of camp knowing that many things won't be known until at least a few weeks into the regular season.`\
 https://nytimes.com/athletic/5664404/2024/07/29/browns-training-camp-deshaun-watson-nick-chubb/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5658890/2024/07/29/tyler-adams-injury-bournemouth-u
 **Stalkers, Disease and Doubt: A Gymnast’s Hard Road Back to the Games**\
 `Sunisa Lee, the all-around women’s champion at the Tokyo Olympics, overcame personal strife, family expectations and serious illness to get to Paris.`\
 https://nytimes.com/2024/07/29/world/olympics/suni-lee-gymnastics-kidney-disease.html
-
-**A Radical Reboot of Nuclear Energy**\
-`A multibillion-dollar effort to build the first in a new generation of American nuclear power plants is underway outside a small town in Wyoming.`\
-https://nytimes.com/2024/07/29/podcasts/the-daily/nuclear-energy.html
-
-**Bills fans: Help us with our guide to Highmark Stadium's game day experience**\
-`The Athletic will be publishing stadium guides for all 32 NFL teams just ahead of the Week 1 kickoff, and we’d like Bills fans to answer a few questions about the Highmark Stadium game day experience.`\
-https://nytimes.com/athletic/5664562/2024/07/29/bills-stadium-fan-survey/
-
-**Inside the Bears' packed QBs room, where it's all about supporting Caleb Williams**\
-`Tyson Bagent, Brett Rypien and Austin Reed give insight on how the Bears' new offensive staff is coaching up the quarterbacks in camp.`\
-https://nytimes.com/athletic/5662481/2024/07/29/caleb-williams-bears-quarterbacks/
 
