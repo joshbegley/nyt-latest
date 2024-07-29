@@ -1,5 +1,5 @@
 **Cardinals get Fedde in three-way deal with White Sox, Dodgers**\
-`The Dodgers will receive utility player Tommy Edman while `\
+`The Dodgers will receive utility player Tommy Edman while the White Sox will receive prospects.`\
 https://nytimes.com/athletic/5666322/2024/07/29/cardinals-dodgers-white-sox-trade-edman-fedde/
 
 **Judge John Hodgman on Proper Top-Sheet Direction**\
@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5665566/2024/07/29/team-usa-serbia-kevin-durant-leb
 `Does mac and cheese count — if you bake it?`\
 https://nytimes.com/2024/07/29/magazine/judge-john-hodgman-on-what-constitutes-a-baked-good.html
 
-**Some Nations Denounce Venezuelan Election Results, Demanding More Transparency**\
+**Nations Denounce Venezuelan Election, Demanding Transparency**\
 `The United States and many Latin American countries said President Nicolás Maduro cannot claim victory without the full release of vote counts.`\
 https://nytimes.com/2024/07/29/world/americas/countries-concern-venezuela-election-results.html
 
