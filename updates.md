@@ -1,3 +1,7 @@
+**Teenager Accused of Derailing Train and Posting Crash Video Online**\
+`Investigators said a 17-year-old charged with intentionally causing a freight train derailment in Nebraska had recorded the crash, which he then posted on YouTube.`\
+https://nytimes.com/2024/07/29/us/nebraska-teen-charged-train-crash.html
+
 **Local Depressive Bisexual Experiences Quarter-Life Crisis**\
 `The protagonist of Madison Newbound’s debut novel, “Misrecognition,” returns to her hometown after a breakup with her power-imbalanced polycule.`\
 https://nytimes.com/2024/07/29/books/review/madison-newbound-misrecognition.html

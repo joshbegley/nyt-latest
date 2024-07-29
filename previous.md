@@ -34,7 +34,7 @@ https://nytimes.com/athletic/5666343/2024/07/29/indianapolis-colts-samson-ebukam
 `If the Cardinals make it to the postseason, is Fedde a front-line option for them?`\
 https://nytimes.com/athletic/5666440/2024/07/29/erick-fedde-trade-cardinals-postseason-starter/
 
-**Teenager Accused of Derailing Train and Posting Crash Footage Online**\
+**Teenager Accused of Derailing Train and Posting Crash Video Online**\
 `Investigators said a 17-year-old charged with intentionally causing a freight train derailment in Nebraska had recorded the crash, which he then posted on YouTube.`\
 https://nytimes.com/2024/07/29/us/nebraska-teen-charged-train-crash.html
 
