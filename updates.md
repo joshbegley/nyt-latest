@@ -1,3 +1,11 @@
+**Bills training camp: Marquez Valdes-Scantling's spot on shaky ground, and more**\
+`Plus, Dorian Williams looking much improved, and some challenges with new starting center Connor McGovern.`\
+https://nytimes.com/athletic/5666297/2024/07/29/buffalo-bills-training-camp-tyrell-shavers-marquez-valdes-scantling/
+
+**No, Wall Street, The Treasury Isn’t Rigging the Economy for Democrats**\
+`Some financiers are seeing partisan corruption where it doesn’t exist.`\
+https://nytimes.com/2024/07/29/opinion/treasury-janet-yellen-roubini.html
+
 **Colts DE Samson Ebukam suffers season-ending Achilles injury**\
 `Ebukam led the Colts in sacks last season with 9.5. `\
 https://nytimes.com/athletic/5666343/2024/07/29/indianapolis-colts-samson-ebukam-achilles/
