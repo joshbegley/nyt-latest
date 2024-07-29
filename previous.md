@@ -1,3 +1,27 @@
+**The Pulse: A surprise U.S. juggernaut**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/5665254/2024/07/29/uswnt-olympics-soccer-basketball-kevin-durant-pulse/
+
+**Colts fans: Help us with our guide to Lucas Oil Stadium's game day experience**\
+`Let us know about your experiences at Colts games.`\
+https://nytimes.com/athletic/5661019/2024/07/29/colts-stadium-fan-survey/
+
+**Bucs fans: Help us with our guide to Raymond James Stadium's game day experience**\
+`The Athletic will be publishing stadium guides for all 32 NFL teams just ahead of the Week 1 kickoff, and we’d like Buccaneers fans to answer a few questions about the Raymond James Stadium game day experience.`\
+https://nytimes.com/athletic/5662655/2024/07/29/bucs-stadium-fan-survey/
+
+**Dolphins fans: Help us with our guide to Hard Rock Stadium's game day experience**\
+`Let us know about your experiences at Dolphins games.`\
+https://nytimes.com/athletic/5661036/2024/07/29/dolphins-stadium-fan-survey/
+
+**Panthers fans: Help us with our guide to Bank of America Stadium's game day experience**\
+`We invite all Panthers fans to share their thoughts about the Bank of America Stadium game day experience.`\
+https://nytimes.com/athletic/5661188/2024/07/29/panthers-stadium-fan-survey/
+
+**Here’s the latest on a busy campaign week.**\
+`By Kellen Browning and Maggie Astor`\
+https://nytimes.com/live/2024/07/29/us/harris-trump-election/heres-the-latest-on-a-busy-campaign-week
+
 **Floods Sweep Dolly Parton’s Dollywood Theme Park**\
 `Flash floods rushed through portions of the park on Sunday. Dollywood was expected to reopen on Monday.`\
 https://nytimes.com/2024/07/29/us/dollywood-flooding-tennessee.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5665454/2024/07/29/jayson-tatum-olympics-basketball
 **Bengals fans: Help us with our guide to Paycor Stadium's game day experience**\
 `Let us know about your experiences at Bengals games.`\
 https://nytimes.com/athletic/5655993/2024/07/29/bengals-stadium-fan-survey/
-
-**Browns fans: Help us with our guide to Cleveland Browns Stadium's game day experience**\
-`Let us know about your experiences at Browns games.`\
-https://nytimes.com/athletic/5664145/2024/07/29/browns-stadium-fan-survey/
-
-**Common bond: The night Larry Fitzgerald's son met Cardinals rookie Marvin Harrison Jr.**\
-`A chance meeting between the sons of legendary receivers made for some quality pay-it-forward advice.`\
-https://nytimes.com/athletic/5654962/2024/07/29/marvin-harrison-jr-larry-fitzgerald-arizona-cardinals/
-
-**49ers' top 6 training camp competitions, including backup QB and starting RG**\
-`Two starting spots — as well as the roles of kick and punt returner — are up for grabs this summer. Here's where the competitions stand.`\
-https://nytimes.com/athletic/5663071/2024/07/29/49ers-training-camp-competitions/
-
-**Ravens fans: Help us with our guide to M&T Bank Stadium's game day experience**\
-`Let us know about your experiences at Ravens games. `\
-https://nytimes.com/athletic/5664168/2024/07/29/ravens-stadium-fan-survey/
-
-**What is the Golan Heights?**\
-`By Alissa J. Rubin`\
-https://nytimes.com/live/2024/07/29/world/israel-gaza-war-lebanon-hezbollah/what-is-golan-heights
-
-**Kamala Harris and the Race for Congress**\
-`We cover the state of consequential congressional races.`\
-https://nytimes.com/2024/07/29/briefing/kamala-harris-congress-elections.html
 
