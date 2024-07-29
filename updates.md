@@ -1,3 +1,11 @@
+**Giants camp: Can a rookie 'Turbo' charge RB room? Did Dru Phillips already win slot CB job?**\
+`UDFA Dante Miller is living up to his "Turbo" nickname as he continues to impress with his speed and quickness. `\
+https://nytimes.com/athletic/5666485/2024/07/29/new-york-giants-dante-miller-turbo-dru-phillips/
+
+**Charges Dropped Against Police Officer Who Shot a Man in the Back**\
+`New Jersey prosecutors say they discovered photographs showing Khalif Cooper with a gun on the day he was shot and paralyzed. The grand jury did not see them.`\
+https://nytimes.com/2024/07/29/nyregion/paterson-nj-police-shooting-charges-dropped.html
+
 **Is the Seine Clean Enough to Swim? Olympic Triathletes Wait on Testers.**\
 `Water-quality results recorded before dawn on Tuesday will determine if the men’s triathlon race will take place hours later.`\
 https://nytimes.com/2024/07/29/world/olympics/seine-olympics-triathlon.html

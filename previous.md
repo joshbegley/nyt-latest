@@ -1,3 +1,11 @@
+**Giants camp: Can a rookie 'Turbo' charge RB room? Did Dru Phillips already win slot CB job?**\
+`UDFA Dante Miller is living up to his "Turbo" nickname as he continues to impress with his speed and quickness. `\
+https://nytimes.com/athletic/5666485/2024/07/29/new-york-giants-dante-miller-turbo-dru-phillips/
+
+**Charges Dropped Against Police Officer Who Shot a Man in the Back**\
+`New Jersey prosecutors say they discovered photographs showing Khalif Cooper with a gun on the day he was shot and paralyzed. The grand jury did not see them.`\
+https://nytimes.com/2024/07/29/nyregion/paterson-nj-police-shooting-charges-dropped.html
+
 **Is the Seine Clean Enough to Swim? Olympic Triathletes Wait on Testers.**\
 `Water-quality results recorded before dawn on Tuesday will determine if the men’s triathlon race will take place hours later.`\
 https://nytimes.com/2024/07/29/world/olympics/seine-olympics-triathlon.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5666297/2024/07/29/buffalo-bills-training-camp-tyre
 **No, Wall Street, The Treasury Isn’t Rigging the Economy for Democrats**\
 `Some financiers are seeing partisan corruption where it doesn’t exist.`\
 https://nytimes.com/2024/07/29/opinion/treasury-janet-yellen-roubini.html
-
-**MLB Trade Grades: Who gains in Red Sox-Pirates swap of former first-round picks?**\
-`Quinn Priester was the 18th pick by the Pirates in 2019. Nick Yorke went at 17 to the Red Sox the next year. Now both get a fresh start. `\
-https://nytimes.com/athletic/5666439/2024/07/29/mlb-trade-grades-yorke-priester-red-sox-pirates/
-
-**Colts DE Samson Ebukam suffers season-ending Achilles injury**\
-`Ebukam led the Colts in sacks last season with 9.5. `\
-https://nytimes.com/athletic/5666343/2024/07/29/indianapolis-colts-samson-ebukam-achilles/
 
