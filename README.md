@@ -1,3 +1,7 @@
+**Cubs address third-base problem with Isaac Paredes acquisition**\
+`The Cubs get an upgrade at third by reuniting with an old friend. The Rays get three more young players, but are they acquiring too many?`\
+https://nytimes.com/athletic/5665014/2024/07/28/isaac-paredes-cubs-rays-trade-analysis/
+
 **Colts owner Jim Irsay gives health update, advocates for Anthony Richardson to keep running**\
 `Irsay made his first public appearance in months and said he is feeling "great."`\
 https://nytimes.com/athletic/5664964/2024/07/28/indianapolis-colts-jim-irsay-training-camp-anthony-richardson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5664928/2024/07/28/mckenna-whitham-youngest-top-lev
 **Braves might need to trade for starter after Reynaldo López exits with injury**\
 `The Braves were known to be strongly pursuing an outfielder, but pitching could be moving up the priority list.`\
 https://nytimes.com/athletic/5664765/2024/07/28/braves-trade-deadline-reynaldo-lopez/
-
-**'The time is now': Twins clinch series behind dominant Bailey Ober as trade deadline nears**\
-`Rocco Baldelli wants fans to support the Twins, who are on pace for 90 wins and could use some reinforcements to catch the Guardians.`\
-https://nytimes.com/athletic/5664820/2024/07/28/twins-trade-deadline-dominant-bailey-ober/
 
