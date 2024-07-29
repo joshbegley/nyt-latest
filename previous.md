@@ -1,3 +1,7 @@
+**Venezuela Awaits Result in Pivotal Election That Could Oust Autocrat**\
+`Sunday’s vote could end a generation of control by Venezuela’s socialist party. It could also usher in a period of profound uncertainty.`\
+https://nytimes.com/2024/07/28/world/americas/venezuela-election-results.html
+
 **Astros' failure to lock down sweep illustrates what they need at the trade deadline**\
 `Dana Brown spoke to multiple outlets about adding pitching at the trade deadline, then the Astros again showed why that should be his focus.`\
 https://nytimes.com/athletic/5664884/2024/07/28/astros-failure-to-lock-down-sweep-illustrates-what-they-need-at-the-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/28/us/politics/donald-trump-campaign-2024-bitcoin.ht
 **Christian Barmore diagnosed with blood clots**\
 `Barmore totaled 8 1/2 sacks in a breakout campaign last season with the Patriots.`\
 https://nytimes.com/athletic/5664731/2024/07/28/patriots-christian-barmore-blood-clots/
-
-**Marlins' Xavier Edwards hits for cycle**\
-`Luis Arraez is the only other player to hit for the cycle in the Marlins’ 32 seasons.`\
-https://nytimes.com/athletic/5664777/2024/07/28/marlins-xavier-edwards-cycle/
 

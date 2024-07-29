@@ -1,3 +1,7 @@
+**Venezuela Awaits Result in Pivotal Election That Could Oust Autocrat**\
+`Sunday’s vote could end a generation of control by Venezuela’s socialist party. It could also usher in a period of profound uncertainty.`\
+https://nytimes.com/2024/07/28/world/americas/venezuela-election-results.html
+
 **Astros' failure to lock down sweep illustrates what they need at the trade deadline**\
 `Dana Brown spoke to multiple outlets about adding pitching at the trade deadline, then the Astros again showed why that should be his focus.`\
 https://nytimes.com/athletic/5664884/2024/07/28/astros-failure-to-lock-down-sweep-illustrates-what-they-need-at-the-trade-deadline/
