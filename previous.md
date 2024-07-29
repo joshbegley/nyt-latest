@@ -1,8 +1,12 @@
+**Biden Pushed for Major Changes to the Supreme Court**\
+`Also, Maduro was declared the winner in a disputed election. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/07/29/briefing/biden-supreme-court-venezuela-election.html
+
 **Ryan Murphy surprised with poolside gender reveal after race**\
 `"We both thought it was going to be a boy," Murphy said. "Everything is going to be dedicated to that little girl.”`\
 https://nytimes.com/athletic/5666815/2024/07/29/ryan-murphy-olympics-swim-gender-reveal/
 
-**N.R.A. Avoids Financial Oversight but Faces Pressure to Reform**\
+**Judge Lets N.R.A. Keep Its Independence but Pushes for Reforms**\
 `In a ruling on Monday, a New York judge said he wanted further assurances that the gun rights group would change its administrative practices.`\
 https://nytimes.com/2024/07/29/nyregion/nra-monitor-ruling-lapierre.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/29/insider/the-science-behind-olympic-greatness-reve
 **Matthew Judon, Davon Godchaux and a drama-filled Patriots practice**\
 `Judon launched what looked to be a public holdout on Monday, seemingly trying to negotiate a new deal as the Pats practiced in pads.`\
 https://nytimes.com/athletic/5666523/2024/07/29/patriots-matthew-judon-davon-godchaux/
-
-**Artificial Intelligence Gives Weather Forecasters a New Edge**\
-`The brainy machines are predicting global weather patterns with new speed and precision, doing in minutes and seconds what once took hours.`\
-https://nytimes.com/interactive/2024/07/29/science/ai-weather-forecast-hurricane.html
 

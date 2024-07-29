@@ -1,3 +1,11 @@
+**Biden Pushed for Major Changes to the Supreme Court**\
+`Also, Maduro was declared the winner in a disputed election. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/07/29/briefing/biden-supreme-court-venezuela-election.html
+
+**Judge Lets N.R.A. Keep Its Independence but Pushes for Reforms**\
+`In a ruling on Monday, a New York judge said he wanted further assurances that the gun rights group would change its administrative practices.`\
+https://nytimes.com/2024/07/29/nyregion/nra-monitor-ruling-lapierre.html
+
 **Ryan Murphy surprised with poolside gender reveal after race**\
 `"We both thought it was going to be a boy," Murphy said. "Everything is going to be dedicated to that little girl.”`\
 https://nytimes.com/athletic/5666815/2024/07/29/ryan-murphy-olympics-swim-gender-reveal/
