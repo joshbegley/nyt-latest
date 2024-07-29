@@ -1,3 +1,7 @@
+**Eagles training camp: Why Nolan Smith wanted to 'be by my lonesome' in offseason**\
+`Plus, notes from training camp, including an update on Tyler Steen's injury and Saquon Barkley's excused absence.`\
+https://nytimes.com/athletic/5666067/2024/07/29/eagles-training-camp-nolan-smith-offseason/
+
 **Seahawks training camp: Defense dominates Day 1 in pads**\
 `"The defense got after us a little bit today," Tyler Lockett said after the first-team offense failed to score in Monday's practice.`\
 https://nytimes.com/athletic/5666933/2024/07/29/seahawks-training-camp-defense-dominates-day-1-in-pads/
