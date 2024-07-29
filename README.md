@@ -30,8 +30,8 @@ https://nytimes.com/athletic/5667092/2024/07/29/diamond-comcast-tv-deal-12-mlb-t
 `A new initiative encourages New Yorkers to join an “elite squad of dedicated anti-rat activists.”`\
 https://nytimes.com/2024/07/29/style/rat-pack-nyc-eric-adams.html
 
-**Yankees' Nestor Cortes responds to trade speculation: 'I want to stay'**\
-`Cortes said his agent informed him that he's being mentioned in trade discussions. He's also monitoring rumors on social media.`\
+**'I want to stay': Yankees' Nestor Cortes responds to trade speculation**\
+`Cortes said his agent informed him he's being mentioned in trade discussions. He's also monitoring rumors on social media.`\
 https://nytimes.com/athletic/5667062/2024/07/29/yankees-nestor-cortes-trade-speculation/
 
 **Guardians acquire Lane Thomas from Nationals to boost offense**\
