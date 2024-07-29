@@ -1,4 +1,4 @@
-**Red Sox acquire Quinn Priester for Nick Yorke in swap with Pirates of former first-round picks**\
+**Red Sox acquire Quinn Priester for Nick Yorke in swap with Pirates**\
 `Acquiring Priester adds to the Red Sox's young pitching depth, while Yorke heads to Pittsburgh where his path to the big leagues is clearer.`\
 https://nytimes.com/athletic/5666351/2024/07/29/red-sox-pirates-quinn-priester-nick-yorke-trade/
 
