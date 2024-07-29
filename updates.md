@@ -1,3 +1,7 @@
+**USWNT is coming into its own under head coach Emma Hayes - but it's just the beginning**\
+`The USWNT's offense has found a scoring groove thanks to a trio of budding talent`\
+https://nytimes.com/athletic/5665110/2024/07/29/uswnt-emma-hayes-dominant-knockout-olympics/
+
 **USWNT is coming into its own under head coach Emma Hayes, but it's just the beginning**\
 `The USWNT's offense has found a scoring groove thanks to a trio of budding talent`\
 https://nytimes.com/athletic/5665110/2024/07/29/uswnt-emma-hayes-dominant-knockout-olympics/
