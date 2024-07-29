@@ -27,7 +27,7 @@ https://nytimes.com/live/2024/07/29/us/harris-trump-election/heres-the-latest-on
 https://nytimes.com/2024/07/29/us/dollywood-flooding-tennessee.html
 
 **F.D.A. Approves Blood Test for Colon Cancer Detection**\
-`While not a perfect alternative to colonoscopies or fecal tests, experts hope the test could lead to more people getting screened for colorectal cancers.`\
+`While not a perfect alternative to colonoscopies, experts hope the test could lead to more people getting screened for colorectal cancers.`\
 https://nytimes.com/2024/07/29/health/colon-cancer-blood-test-shield.html
 
 **Tatum ‘will play’ for Team USA vs. South Sudan after Sunday benching, Kerr says**\
