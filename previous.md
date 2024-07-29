@@ -1,3 +1,11 @@
+**Judge John Hodgman on Proper Top-Sheet Direction**\
+`Can a spouse be compelled to make the bed the right way?`\
+https://nytimes.com/2024/07/29/magazine/judge-john-hodgman-on-proper-top-sheet-direction.html
+
+**The Bounce: Three takeaways from Team USA's win vs. Serbia**\
+`Jason Jones catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5665566/2024/07/29/team-usa-serbia-kevin-durant-lebron-james-stephen-curry-nikola-jokic-nba-bounce/
+
 **Judge John Hodgman on What Constitutes a ‘Baked Good’**\
 `Does mac and cheese count — if you bake it?`\
 https://nytimes.com/2024/07/29/magazine/judge-john-hodgman-on-what-constitutes-a-baked-good.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5666012/2024/07/29/triathlon-seine-clean-pollution-
 **How Tyus Jones can help boost the Suns' hopes for contention**\
 `Jones doesn't fix all of Phoenix’s problems, but he should help maximize the Suns' offensive potential.`\
 https://nytimes.com/athletic/5665184/2024/07/29/tyus-jones-phoenix-suns-nba/
-
-**Japan's Horigome defends street skate gold**\
-`Horigome pulled off a legendary trick to stun the crowd and score a 97.08 to vault into first place with a total score of 281.14.`\
-https://nytimes.com/athletic/5666121/2024/07/29/skateboarding-olympics-eaton-huston-horigome/
-
-**Former Top BBC Anchor Charged with Making Indecent Images of Children**\
-`Huw Edwards, who led the BBC’s coverage of major events, including King Charles III’s coronation, has been charged with three offenses, the police said on Monday.`\
-https://nytimes.com/2024/07/29/world/europe/huw-edwards-former-bbc-anchor-charged-making-indecent-images-of-children.html
 

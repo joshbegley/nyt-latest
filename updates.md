@@ -1,3 +1,11 @@
+**Judge John Hodgman on Proper Top-Sheet Direction**\
+`Can a spouse be compelled to make the bed the right way?`\
+https://nytimes.com/2024/07/29/magazine/judge-john-hodgman-on-proper-top-sheet-direction.html
+
+**The Bounce: Three takeaways from Team USA's win vs. Serbia**\
+`Jason Jones catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5665566/2024/07/29/team-usa-serbia-kevin-durant-lebron-james-stephen-curry-nikola-jokic-nba-bounce/
+
 **Judge John Hodgman on What Constitutes a ‘Baked Good’**\
 `Does mac and cheese count — if you bake it?`\
 https://nytimes.com/2024/07/29/magazine/judge-john-hodgman-on-what-constitutes-a-baked-good.html
