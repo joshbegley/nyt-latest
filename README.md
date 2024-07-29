@@ -1,3 +1,11 @@
+**MLB Trade Grades: Rangers aim to stay competitive in adding Carson Kelly**\
+`Despite a losing record, the defending-champ Rangers are trying to stay in the hunt. Is that the smart thing to do? `\
+https://nytimes.com/athletic/5664974/2024/07/28/mlb-trade-grades-rangers-tigers-carson-kelly/
+
+**Dodgers engaged in talks with Cardinals for utilityman Tommy Edman: sources**\
+`The Los Angeles Dodgers are in discussions with the St.`\
+https://nytimes.com/athletic/5665010/2024/07/28/dodgers-cardinals-tommy-edman-trade-discussions/
+
 **Venezuela Awaits Result in Pivotal Election That Could Oust Autocrat**\
 `Sunday’s vote could end a generation of control by Venezuela’s socialist party. It could also usher in a period of profound uncertainty.`\
 https://nytimes.com/2024/07/28/world/americas/venezuela-election-results.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5664820/2024/07/28/twins-trade-deadline-dominant-ba
 **Dodgers' River Ryan jumps into rotation conversation ahead of trade deadline**\
 `Dodgers rookie starters have a 3.04 ERA this season, second only to the Pirates.`\
 https://nytimes.com/athletic/5664749/2024/07/28/dodgers-river-ryan-trade-deadline/
-
-**From Believers to Bitcoin: 24 Hours in Trump’s Code-Switching Campaign**\
-`When Donald J. Trump tries to win over a crowd that is not inherently his own, the results can be awkward.`\
-https://nytimes.com/2024/07/28/us/politics/donald-trump-campaign-2024-bitcoin.html
-
-**Christian Barmore diagnosed with blood clots**\
-`Barmore totaled 8 1/2 sacks in a breakout campaign last season with the Patriots.`\
-https://nytimes.com/athletic/5664731/2024/07/28/patriots-christian-barmore-blood-clots/
 
