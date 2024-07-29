@@ -1,3 +1,11 @@
+**Team USA's biggest advantage in Olympic win over Japan: They have A'ja and Stewie**\
+`Team USA started off their Olympic run with a breezy win over Japan that showed just how tough their big advantage will be to overcome.`\
+https://nytimes.com/athletic/5667021/2024/07/29/us-womens-basketball-olympics-japan-aja-wilson-breanna-stewart/
+
+**Erica Ash of ‘Mad TV’ and ‘Survivor’s Remorse’ Dies at 46**\
+`Erica Ash started out on sketch comedy shows in the 2000s before appearing in movies like “Scary Movie V” and the satirical reality show “Real Husbands of Hollywood.”`\
+https://nytimes.com/2024/07/29/arts/television/erica-ash-dead.html
+
 **Grealish was 'heartbroken' by England Euro 2024 omission**\
 `Jack Grealish says his exclusion from the England squad for the summer&#8217;s European Championship left him “heartbroken” and that the experience was the toughest of his football career.`\
 https://nytimes.com/athletic/5667104/2024/07/29/jack-grealish-england-euros-manchester-city/
@@ -22,19 +30,11 @@ https://nytimes.com/athletic/5667092/2024/07/29/diamond-comcast-tv-deal-12-mlb-t
 `A new initiative encourages New Yorkers to join an “elite squad of dedicated anti-rat activists.”`\
 https://nytimes.com/2024/07/29/style/rat-pack-nyc-eric-adams.html
 
-**Yankees' Nestor Cortes responds to trade speculation: 'I want to stay'**\
-`Cortes said his agent informed him that he's being mentioned in trade discussions. He's also monitoring rumors on social media.`\
+**'I want to stay': Yankees' Nestor Cortes responds to trade speculation**\
+`Cortes said his agent informed him he's being mentioned in trade discussions. He's also monitoring rumors on social media.`\
 https://nytimes.com/athletic/5667062/2024/07/29/yankees-nestor-cortes-trade-speculation/
 
 **Guardians acquire Lane Thomas from Nationals to boost offense**\
 `The Guardians have been looking for pitching but also needed to boost the offense, something Thomas should provide.`\
 https://nytimes.com/athletic/5667261/2024/07/29/guardians-nationals-lane-thomas-trade/
-
-**Juan Soto on Yankees' 'exciting' trade deadline: 'It's kind of like you're expecting something'**\
-`The Yankees should want to maximize their time with Soto, who might not return to the Yankees next year, and beef up their roster.`\
-https://nytimes.com/athletic/5667215/2024/07/29/yankees-juan-soto-trade-deadline-reaction/
-
-**The Republicans Who Want to Make America Have Babies Again**\
-`JD Vance has long spoken about his concerns about the falling birthrate — and it’s not just him.`\
-https://nytimes.com/2024/07/29/us/politics/republicans-birthrate-jd-vance.html
 
