@@ -1,3 +1,11 @@
+**Wiley is a fast and flashy full-back - with flaws to iron out after transfer to Chelsea**\
+`Wiley is another Chelsea signing with an eye on the future — he's part of the US squad at the Olympics and heading to Strasbourg on loan`\
+https://nytimes.com/athletic/5662422/2024/07/29/caleb-wiley-chelsea-transfer-usmnt-olympics/
+
+**What we learned from Brighton's tour of Japan**\
+`New faces and new tactical approaches were both on show as Brighton played two friendlies in Japan under their new head coach`\
+https://nytimes.com/athletic/5660126/2024/07/29/brighton-japan-pre-season-hurzeler-minteh-cozier-duberry/
+
 **Iran, women and the ongoing struggle for football 'freedom'**\
 `Women may now be visible at some matches in Iran but major restrictions remain and the battle for equality continues`\
 https://nytimes.com/athletic/5646953/2024/07/29/iran-women-and-the-ongoing-struggle-for-football-freedom/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5659146/2024/07/29/jaap-stam-interview-manchester-u
 **Pediatricians Warn Against Overuse of Tongue-Tie Surgeries**\
 `In a new report, the American Academy of Pediatrics said that breastfeeding problems were rarely caused by infant tongue-ties.`\
 https://nytimes.com/2024/07/29/health/tongue-tie-releases-aap.html
-
-**As Team USA women go for eighth-straight gold, one question mark lurks**\
-`Team USA has everything going for it in the Olympic women's basketball tournament. Except one thing coach Cheryl Reeve is very aware of.`\
-https://nytimes.com/athletic/5664071/2024/07/29/us-womens-basketball-2024-paris-olympics-experience/
-
-**Why Some Olympic Swimmers Think About Math in the Pool**\
-`In a sport where gold and silver can be separated by a fraction of a second, many of the world’s top swimmers now scour data for even the smallest edge.`\
-https://nytimes.com/2024/07/29/world/olympics/olympics-swimming-data-analytics.html
 
