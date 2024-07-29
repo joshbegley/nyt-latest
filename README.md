@@ -1,3 +1,27 @@
+**Pediatricians Warn Against Overuse of Tongue-Tie Surgeries**\
+`In a new report, the American Academy of Pediatrics said that breastfeeding problems were rarely caused by infant tongue-ties.`\
+https://nytimes.com/2024/07/29/health/tongue-tie-releases-aap.html
+
+**Why Some Olympic Swimmers Think About Math in the Pool**\
+`In a sport where gold and silver can be separated by a fraction of a second, many of the world’s top swimmers now scour data for even the smallest edge.`\
+https://nytimes.com/2024/07/29/world/olympics/olympics-swimming-data-analytics.html
+
+**Why Global Investors Are Watching What Japan Does Next**\
+`Officials at Japan’s central bank are considering when to raise interest rates, as their counterparts in the United States plan to cut them, which could rattle markets around the world.`\
+https://nytimes.com/2024/07/29/business/japan-markets-yen.html
+
+**Germans Combat Climate Change From Their Balconies**\
+`Plug-and-play solar panels are popping up in yards and on balcony railings across Germany, driven by bargain prices and looser regulations.`\
+https://nytimes.com/2024/07/29/business/germany-solar-panels-climate-change.html
+
+**Monday's MLB odds, best bets: Pitching matchups, playoff odds, props and more**\
+`See pitching matchups, playoff projections, win projections and more for Monday's MLB games.`\
+https://nytimes.com/athletic/5660791/2024/07/29/mlb-odds-best-bets-projections-july-29/
+
+**Japan Wanted Higher Inflation. It’s Here, and It Hurts.**\
+`Japan’s economy is faltering after a rise in prices led consumers to cut back on spending.`\
+https://nytimes.com/2024/07/29/business/japan-inflation-rates.html
+
 **MLB trade deadline roundup: All the deals from Sunday**\
 `The Padres were involved in a swap that showed how expensive it is to get a reliever, the Cubs swapped third basemen and more.`\
 https://nytimes.com/athletic/5663580/2024/07/28/mlb-trade-deadline-roundup-sunday/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/07/28/arts/television/house-of-the-dragon-recap-episode
 **Cubs address third-base problem with Isaac Paredes acquisition**\
 `The Cubs get an upgrade at third by reuniting with an old friend. The Rays get three more young players, but are they acquiring too many?`\
 https://nytimes.com/athletic/5665014/2024/07/28/isaac-paredes-cubs-rays-trade-analysis/
-
-**Colts owner Jim Irsay gives health update, advocates for Anthony Richardson to keep running**\
-`Irsay made his first public appearance in months and said he is feeling "great."`\
-https://nytimes.com/athletic/5664964/2024/07/28/indianapolis-colts-jim-irsay-training-camp-anthony-richardson/
-
-**MLB Trade Grades: Rangers aim to stay competitive in adding Carson Kelly**\
-`Despite a losing record, the defending-champ Rangers are trying to stay in the hunt. Is that the smart thing to do? `\
-https://nytimes.com/athletic/5664974/2024/07/28/mlb-trade-grades-rangers-tigers-carson-kelly/
-
-**Yankees, Dodgers show interest in Cardinals utilityman Tommy Edman: sources**\
-`The Los Angeles Dodgers are in discussions with the St.`\
-https://nytimes.com/athletic/5665010/2024/07/28/dodgers-cardinals-tommy-edman-trade-discussions/
-
-**Venezuela Awaits Result in Pivotal Election That Could Oust Autocrat**\
-`Sunday’s vote could end a generation of control by Venezuela’s socialist party. It could also usher in a period of profound uncertainty.`\
-https://nytimes.com/2024/07/28/world/americas/venezuela-election-results.html
-
-**Astros' failure to lock down sweep illustrates what they need at the trade deadline**\
-`Dana Brown spoke to multiple outlets about adding pitching at the trade deadline, then the Astros again showed why that should be his focus.`\
-https://nytimes.com/athletic/5664884/2024/07/28/astros-failure-to-lock-down-sweep-illustrates-what-they-need-at-the-trade-deadline/
-
-**Rangers acquire catcher Carson Kelly from Tigers for two minor leaguers**\
-`In Detroit, trading Kelly should open the door for prospect Dillon Dingler. In Texas, Kelly should provide an offensive boost.`\
-https://nytimes.com/athletic/5664935/2024/07/28/rangers-trade-carson-kelly-tigers/
 
