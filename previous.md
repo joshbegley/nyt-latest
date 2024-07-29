@@ -1,3 +1,19 @@
+**Diamond, Comcast reach deal to end dispute, get 12 MLB teams back on the air**\
+`Effective Aug. 1, Xfinity customers will again be able to watch MLB, NBA and NHL teams via Bally Sports, but will pay a higher price.`\
+https://nytimes.com/athletic/5667092/2024/07/29/diamond-comcast-tv-deal-12-mlb-teams/
+
+**Do You Want This Rat Merch? The Mayor Hopes So.**\
+`A new initiative encourages New Yorkers to join an “elite squad of dedicated anti-rat activists.”`\
+https://nytimes.com/2024/07/29/style/rat-pack-nyc-eric-adams.html
+
+**Yankees' Nestor Cortes responds to trade speculation: 'I want to stay'**\
+`Cortes said his agent informed him that he's being mentioned in trade discussions. He's also monitoring rumors on social media.`\
+https://nytimes.com/athletic/5667062/2024/07/29/yankees-nestor-cortes-trade-speculation/
+
+**Guardians acquire Lane Thomas from Nationals to boost offense**\
+`The Guardians have been looking for pitching but also needed to boost the offense, something Thomas should provide.`\
+https://nytimes.com/athletic/5667261/2024/07/29/guardians-nationals-lane-thomas-trade/
+
 **Juan Soto on Yankees' 'exciting' trade deadline: 'It's kind of like you're expecting something'**\
 `The Yankees should want to maximize their time with Soto, who might not return to the Yankees next year, and beef up their roster.`\
 https://nytimes.com/athletic/5667215/2024/07/29/yankees-juan-soto-trade-deadline-reaction/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/07/29/opinion/vance-trump-cryptocurrency.html
 **Cardinals dazzle with Erick Fedde acquisition, while Dodgers, White Sox fill needs**\
 `The Cardinals get one of the top starters on the market without giving up much in return, while the Dodgers and White Sox nab useful pieces.`\
 https://nytimes.com/athletic/5667160/2024/07/29/erick-fedde-cardinals-dodgers-white-sox-trade-analysis/
-
-**Roy Cooper Is Said to Withdraw From Harris’s Vice-Presidential Field**\
-`Mr. Cooper, the governor of North Carolina, had been seen as one of the half-dozen top candidates to join the Democratic presidential ticket. It was not immediately clear why he withdrew.`\
-https://nytimes.com/2024/07/29/us/politics/roy-cooper-kamala-harris-vp.html
-
-**Francine Pascal, Creator of ‘Sweet Valley High’ Book Series, Dies at 92**\
-`The series and its many spinoffs have sold more than 200 million copies and revolutionized the world of young adult publishing.`\
-https://nytimes.com/2024/07/29/books/francine-pascal-dead.html
-
-**Stephen Nedoroscik beat the odds to have an Olympic moment, and then he nailed it**\
-`Stephen Nedoroscik is a specialist in a waning sport. But he earned his way onto Team USA and, on Monday, soared when they needed him most.`\
-https://nytimes.com/athletic/5666950/2024/07/29/stephen-nedoroscik-pommel-horse-gymnastics-olympics-paris-2024/
-
-**Bryce Harper to debut cleats bearing baseball card grading labels**\
-`Harper again forges new ground with his footwear`\
-https://nytimes.com/athletic/5666836/2024/07/29/bryce-harper-cleats-psa-phillies/
 
