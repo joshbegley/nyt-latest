@@ -1,3 +1,11 @@
+**Francine Pascal, Creator of ‘Sweet Valley High’ Book Series, Dies at 92**\
+`The series and its many spinoffs have sold more than 200 million copies and revolutionized the world of young adult publishing.`\
+https://nytimes.com/2024/07/29/books/francine-pascal-dead.html
+
+**Stephen Nedoroscik beat the odds to have an Olympic moment, and then he nailed it**\
+`Stephen Nedoroscik is a specialist in a waning sport. But he earned his way onto Team USA and, on Monday, soared when they needed him most.`\
+https://nytimes.com/athletic/5666950/2024/07/29/stephen-nedoroscik-pommel-horse-gymnastics-olympics-paris-2024/
+
 **Bryce Harper to debut cleats bearing baseball card grading labels**\
 `Harper again forges new ground with his footwear`\
 https://nytimes.com/athletic/5666836/2024/07/29/bryce-harper-cleats-psa-phillies/
