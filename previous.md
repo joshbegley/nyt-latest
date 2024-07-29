@@ -1,3 +1,7 @@
+**Seahawks training camp: Defense dominates Day 1 in pads**\
+`"The defense got after us a little bit today," Tyler Lockett said after the first-team offense failed to score in Monday's practice.`\
+https://nytimes.com/athletic/5666933/2024/07/29/seahawks-training-camp-defense-dominates-day-1-in-pads/
+
 **One Word Has Elevated Minnesota’s Governor to the Democrats’ V.P. Wish List**\
 `“These guys are just weird,” Gov. Tim Walz, a former schoolteacher, has said of the opposition.`\
 https://nytimes.com/2024/07/29/us/tim-walz-minnesota-kamala-harris.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/22/opinion/thepoint/hannah-neeleman-tradwife
 **How the Current Supreme Court Would Look Under Biden’s Term-Limit Plan**\
 `If President Biden’s proposed 18-year term limit had been in place during the most recent four administrations, the court’s 6-to-3 conservative split would be reversed.`\
 https://nytimes.com/interactive/2024/07/29/us/politics/supreme-court-biden-term-limits.html
-
-**Tuesday Briefing: Less Than 100 Days to Go**\
-`Plus, results in Venezuela’s tainted election and the new math of swimming`\
-https://nytimes.com/2024/07/29/briefing/harris-maduro-golan.html
 

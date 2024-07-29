@@ -1,3 +1,7 @@
+**Seahawks training camp: Defense dominates Day 1 in pads**\
+`"The defense got after us a little bit today," Tyler Lockett said after the first-team offense failed to score in Monday's practice.`\
+https://nytimes.com/athletic/5666933/2024/07/29/seahawks-training-camp-defense-dominates-day-1-in-pads/
+
 **One Word Has Elevated Minnesota’s Governor to the Democrats’ V.P. Wish List**\
 `“These guys are just weird,” Gov. Tim Walz, a former schoolteacher, has said of the opposition.`\
 https://nytimes.com/2024/07/29/us/tim-walz-minnesota-kamala-harris.html
