@@ -36,5 +36,5 @@ https://nytimes.com/athletic/5666038/2024/07/29/simone-biles-us-gymnastics-team-
 
 **Harris Should Pick Walz, and Then Put Shapiro and Kelly to Work**\
 `All three men can help her, in different ways.`\
-https://nytimes.com/live/2024/07/22/opinion/thepoint/harris-walz-kelly-shapiro
+https://nytimes.com/2024/07/22/opinion/harris-walz-kelly-shapiro.html
 
