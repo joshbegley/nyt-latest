@@ -1,3 +1,7 @@
+**N.R.A. Avoids Financial Oversight but Faces Pressure to Reform**\
+`In a ruling on Monday, a New York judge said he wanted further assurances that the gun rights group would change its administrative practices.`\
+https://nytimes.com/2024/07/29/nyregion/nra-monitor-ruling-lapierre.html
+
 **Lions training camp: Taylor Decker's extension, rookie corners growing together and more**\
 `Plus, Jameson Williams slows down to focus on his development. `\
 https://nytimes.com/athletic/5666399/2024/07/29/lions-training-camp-taylor-decker-contract-jameson-williams-cornerbacks/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/29/science/ai-weather-forecast-hurricane
 **Map: 4.9-Magnitude Earthquake Strikes Southern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/07/29/us/quake-tracker-california-barstow.html
-
-**Republicans and Democrats Name Members of Trump Assassination Inquiry**\
-`House leaders picked 13 lawmakers with background in national security and law enforcement, including a Republican who trafficked in conspiracy theories about the Jan. 6, 2021, attack.`\
-https://nytimes.com/2024/07/29/us/politics/trump-assassination-task-force.html
 
