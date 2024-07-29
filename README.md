@@ -1,3 +1,7 @@
+**Chargers training camp, Day 5: Joe Alt holds his own in first padded practice**\
+`Alt "acquitted himself well," according to coach Jim Harbaugh, in his first padded battles against Joey Bosa and Khalil Mack.`\
+https://nytimes.com/athletic/5667100/2024/07/29/chargers-joe-alt-training-camp-pads/
+
 **Shapiro and Whitmer tell Harris supporters that Trump is ‘so scared of her.’**\
 `By Jonathan Weisman`\
 https://nytimes.com/live/2024/07/29/us/harris-trump-election/shapiro-and-whitmer-tell-harris-supporters-that-trump-is-so-scared-of-her
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5667113/2024/07/29/john-elway-broncos-josh-allen/
 **49ers’ first padded practice is a bang for defense, bust for Brock Purdy**\
 `Purdy has been able to overcome steady pressure early in 49ers training camp. On Monday he couldn't, especially in the red zone.`\
 https://nytimes.com/athletic/5667027/2024/07/29/49ers-brock-purdy-interceptions-training-camp/
-
-**El Chapo’s Son Abducted Fellow Cartel Leader to the U.S., Officials Now Say**\
-`U.S. officials say Joaquín Guzmán López, a son of El Chapo, forced Ismael Zambada García onto a plane bound for Texas, in a case that landed the two Sinaloa cartel leaders in custody last week.`\
-https://nytimes.com/2024/07/29/world/americas/sinalo-cartel-el-mayo-joaquin-guzman-lopez.html
 
