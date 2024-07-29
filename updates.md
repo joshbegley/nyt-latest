@@ -1,3 +1,7 @@
+**Chargers training camp, Day 5: Joe Alt holds his own in first padded practice**\
+`Alt "acquitted himself well," according to coach Jim Harbaugh, in his first padded battles against Joey Bosa and Khalil Mack.`\
+https://nytimes.com/athletic/5667100/2024/07/29/chargers-joe-alt-training-camp-pads/
+
 **Shapiro and Whitmer tell Harris supporters that Trump is ‘so scared of her.’**\
 `By Jonathan Weisman`\
 https://nytimes.com/live/2024/07/29/us/harris-trump-election/shapiro-and-whitmer-tell-harris-supporters-that-trump-is-so-scared-of-her

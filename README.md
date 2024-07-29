@@ -1,3 +1,11 @@
+**Juan Soto on Yankees' 'exciting' trade deadline: 'It's kind of like you're expecting something'**\
+`The Yankees should want to maximize their time with Soto, who might not return to the Yankees next year, and beef up their roster.`\
+https://nytimes.com/athletic/5667215/2024/07/29/yankees-juan-soto-trade-deadline-reaction/
+
+**The Republicans Who Want to Make America Have Babies Again**\
+`JD Vance has long spoken about his concerns about the falling birthrate — and it’s not just him.`\
+https://nytimes.com/2024/07/29/us/politics/republicans-birthrate-jd-vance.html
+
 **Chargers training camp, Day 5: Joe Alt holds his own in first padded practice**\
 `Alt "acquitted himself well," according to coach Jim Harbaugh, in his first padded battles against Joey Bosa and Khalil Mack.`\
 https://nytimes.com/athletic/5667100/2024/07/29/chargers-joe-alt-training-camp-pads/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5666950/2024/07/29/stephen-nedoroscik-pommel-horse-
 **Bryce Harper to debut cleats bearing baseball card grading labels**\
 `Harper again forges new ground with his footwear`\
 https://nytimes.com/athletic/5666836/2024/07/29/bryce-harper-cleats-psa-phillies/
-
-**John Elway bemoans not drafting Josh Allen**\
-`The Broncos, in need of franchise QB two years after Peyton Manning's retirement, instead drafted pass rusher Bradley Chubb.`\
-https://nytimes.com/athletic/5667113/2024/07/29/john-elway-broncos-josh-allen/
-
-**49ers’ first padded practice is a bang for defense, bust for Brock Purdy**\
-`Purdy has been able to overcome steady pressure early in 49ers training camp. On Monday he couldn't, especially in the red zone.`\
-https://nytimes.com/athletic/5667027/2024/07/29/49ers-brock-purdy-interceptions-training-camp/
 
