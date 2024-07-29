@@ -1,3 +1,7 @@
+**Olympics broadcaster drops commentator after 'outrageous' sexist remark**\
+`An Olympics broadcaster has dropped one of its commentators after a sexist remark made during commentary of the swimming competition in Paris.`\
+https://nytimes.com/athletic/5665325/2024/07/29/eurosport-commentator-swimming-bob-ballard/
+
 **Takeaways From Venezuela’s Marred Election**\
 `Stark irregularities and suppression efforts could plunge the country back into instability and economic decline.`\
 https://nytimes.com/2024/07/29/world/americas/venezuela-election-takeaways.html
