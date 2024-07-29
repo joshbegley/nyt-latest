@@ -1,3 +1,7 @@
+**Injury concerns, Chermiti and Iroegbunam shine, O'Brien on way? Everton's plans taking shape**\
+`Sean Dyche's squad is stretched but the manager has seen plenty of positives in pre-season - and another signing is close`\
+https://nytimes.com/athletic/5663027/2024/07/29/everton-pre-season-sean-dyche/
+
 **Wiley is a fast and flashy full-back - with flaws to iron out after transfer to Chelsea**\
 `Wiley is another Chelsea signing with an eye on the future — he's part of the US squad at the Olympics and heading to Strasbourg on loan`\
 https://nytimes.com/athletic/5662422/2024/07/29/caleb-wiley-chelsea-transfer-usmnt-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5568273/2024/07/29/dortmund-rheinmetall/
 **Stam on returning to management, Ten Hag, Zirkzee and the treble**\
 `The former Manchester United defender reflects on his playing and managerial career — and says he hopes to return to the dugout in England`\
 https://nytimes.com/athletic/5659146/2024/07/29/jaap-stam-interview-manchester-united/
-
-**Pediatricians Warn Against Overuse of Tongue-Tie Surgeries**\
-`In a new report, the American Academy of Pediatrics said that breastfeeding problems were rarely caused by infant tongue-ties.`\
-https://nytimes.com/2024/07/29/health/tongue-tie-releases-aap.html
 
