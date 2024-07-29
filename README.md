@@ -1,40 +1,40 @@
-**Harris Looks to Maintain Momentum as ‘Honeymoon Phase’ Winds Down**\
-`Democrats could formally make Kamala Harris their nominee this week, as she narrows her running mate choices and attacks her rivals, Donald Trump and JD Vance, while they hit the trail.`\
-https://nytimes.com/2024/07/29/us/politics/harris-nomination-vice-president.html
+**For the Big Ten, an expanded CFP redefines success around the league**\
+`If the 12-team CFP format had been in place during the past decade, the Big Ten would have placed 29 teams into the field.`\
+https://nytimes.com/athletic/5664398/2024/07/29/big-ten-expanded-college-football-playoff/
 
-**The Important Unanswered Question About Kamala Harris**\
-`After a strong first week, it’s time to turn to the voters who count the most.`\
-https://nytimes.com/live/2024/07/22/opinion/thepoint/kamala-harris-campaign-atlanta
+**Olympics broadcaster drops commentator after 'outrageous' sexist remark**\
+`An Olympics broadcaster has dropped one of its commentators after a sexist remark made during commentary of the swimming competition in Paris.`\
+https://nytimes.com/athletic/5665325/2024/07/29/eurosport-commentator-swimming-bob-ballard/
 
-**How ‘House of the Dragon’ Turns Fiery Fantasy Into TV Reality**\
-`For the “Game of Thrones” prequel series, the producers had to figure out how to make the title beasts believably bigger, badder and more prominent.`\
-https://nytimes.com/2024/07/29/arts/television/house-of-the-dragon.html
+**Takeaways From Venezuela’s Marred Election**\
+`Stark irregularities and suppression efforts could plunge the country back into instability and economic decline.`\
+https://nytimes.com/2024/07/29/world/americas/venezuela-election-takeaways.html
 
-**Displaced by Park Fire, Some Wonder if They’ll Have a Home to Return to**\
-`Many who fled the fire in California have been anxiously waiting to hear whether their houses are still standing. Others are grappling with news of homes and barns leveled by flames.`\
-https://nytimes.com/2024/07/29/us/park-fire-california-wildfire-evacuation.html
+**USWNT is coming into its own under head coach Emma Hayes - but it's just the beginning**\
+`The USWNT's offense has found a scoring groove thanks to a trio of budding talent`\
+https://nytimes.com/athletic/5665110/2024/07/29/uswnt-emma-hayes-dominant-knockout-olympics/
 
-**Why Does My Teenager Insist on Wearing Used Clothes?**\
-`Our fashion critic offers guidance to a reader seeking to refine their daughter’s thrifty wardrobe while respecting her fashion choices.`\
-https://nytimes.com/2024/07/29/style/thrift-store-clothing-secondhand.html
+**Triathlon training cancelled for second successive day over water quality concerns**\
+`Training ahead of the Olympics triathlon competition was cancelled for a second successive day because of concerns over the water quality in the Seine.`\
+https://nytimes.com/athletic/5665295/2024/07/29/olympics-triathlon-training-cancelled-seine-pollution/
 
-**Echoes of Roe v. Wade in Decision Granting Immunity to Trump**\
-`Critics say the immunity ruling is flawed for reasons similar to those the court gave for overturning Roe, which had established a right to abortion.`\
-https://nytimes.com/2024/07/29/us/trump-immunity-roe-v-wade.html
+**Quotation of the Day: First Up, First Out**\
+`Quotation of the Day for Monday, July 29, 2024.`\
+https://nytimes.com/2024/07/29/pageoneplus/quotation-of-the-day-first-up-first-out.html
 
-**The Woman Who Beat the Boys of the French New Wave to the Punch**\
-`A new biography surveys the prolific and pioneering career of the filmmaker Agnès Varda.`\
-https://nytimes.com/2024/07/29/books/review/carrie-rickey-complicated-passion.html
+**Think N.Y.C.’s Roads Are Crowded? Good Luck on the Sidewalks.**\
+`A researcher has measured how “claustrophobic” New York’s sidewalks are by gathering data on all of the people, benches, trash cans, bus shelters, bicycle racks and clutter in the way.`\
+https://nytimes.com/2024/07/29/nyregion/street-wars-crowded-sidewalks-times-square.html
 
-**Harris vs. Trump Is Taking Shape. And Then There’s Vance.**\
-`It’s a whole new era in presidential politics. Right?`\
-https://nytimes.com/2024/07/29/opinion/kamala-harris-trump-2024.html
+**New York’s Preparations for a Bird Flu Pandemic Rely on a Single Drug**\
+`New York State’s stockpile of antiviral medications for flu contains only one drug, Tamiflu, leaving no fallback plan.`\
+https://nytimes.com/2024/07/29/nyregion/bird-flu-tamiflu-baloxavir.html
 
-**What Has Happened to My Party Haunts Me**\
-`Republicans once proudly proclaimed their reverence for the Constitution; in Milwaukee, they crowned as their leader a man who attempted to subvert it.`\
-https://nytimes.com/2024/07/29/opinion/trump-vance-republican-party.html
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/29/crosswords/spelling-bee-forum.html
 
-**How ‘Twisters’ Failed Us and Our Burning Planet**\
-`When art changes opinions or opens hearts, it changes the world as profoundly as any legislation does.`\
-https://nytimes.com/2024/07/29/opinion/twisters-failed-climate-change.html
+**Word of the Day: ditty**\
+`This word has appeared in 40 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/07/29/learning/word-of-the-day-ditty.html
 
