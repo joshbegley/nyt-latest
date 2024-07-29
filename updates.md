@@ -1,3 +1,7 @@
+**For the Big Ten, an expanded CFP redefines success around the league**\
+`If the 12-team CFP format had been in place during the past decade, the Big Ten would have placed 29 teams into the field.`\
+https://nytimes.com/athletic/5664398/2024/07/29/big-ten-expanded-college-football-playoff/
+
 **Olympics broadcaster drops commentator after 'outrageous' sexist remark**\
 `An Olympics broadcaster has dropped one of its commentators after a sexist remark made during commentary of the swimming competition in Paris.`\
 https://nytimes.com/athletic/5665325/2024/07/29/eurosport-commentator-swimming-bob-ballard/
