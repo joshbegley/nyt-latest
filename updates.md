@@ -1,3 +1,11 @@
+**The Giants could buy and sell. If they do, these should be their acquisition targets**\
+`The Giants could amass prospects in deals involving top players like Blake Snell and then flip them for established major leaguers.`\
+https://nytimes.com/athletic/5665268/2024/07/29/sf-giants-trade-deadline-buyer-seller-targets/
+
+**Red Sox acquire Quinn Priester for Nick Yorke in swap with Pirates**\
+`Acquiring Priester adds to the Red Sox's young pitching depth, while Yorke heads to Pittsburgh where his path to the big leagues is clearer.`\
+https://nytimes.com/athletic/5666351/2024/07/29/red-sox-pirates-quinn-priester-nick-yorke-trade/
+
 **Red Sox acquire Quinn Priester for Nick Yorke in swap with Pirates of former first-round picks**\
 `Acquiring Priester adds to the Red Sox's young pitching depth, while Yorke heads to Pittsburgh where his path to the big leagues is clearer.`\
 https://nytimes.com/athletic/5666351/2024/07/29/red-sox-pirates-quinn-priester-nick-yorke-trade/
