@@ -1,3 +1,7 @@
+**Word of the Day: ditty**\
+`This word has appeared in 40 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/07/29/learning/word-of-the-day-ditty.html
+
 **Yankees trade deadline notes: Spencer Jones, Jazz Chisholm Jr., Gleyber Torres**\
 `The Chisholm deal is the only trade the Yankees have made with Tuesday's deadline nearing. Here are other things we kept an eye on Sunday.`\
 https://nytimes.com/athletic/5665198/2024/07/29/yankees-trade-deadline-spencer-jones-jazz-chisholm-gleyber-torres/
