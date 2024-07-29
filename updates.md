@@ -1,3 +1,11 @@
+**49ers’ first padded practice is a bang for defense, bust for Brock Purdy**\
+`Purdy has been able to overcome steady pressure early on in 49ers training camp. On Monday he couldn't, especially in the red zone.`\
+https://nytimes.com/athletic/5667027/2024/07/29/49ers-brock-purdy-interceptions-training-camp/
+
+**Browns GM shares thoughts on Chubb, Cooper's contract and the future stadium**\
+`Plus, Berry discusses Deshaun Watson's progression and the importance of Cleveland having roster depth. `\
+https://nytimes.com/athletic/5666866/2024/07/29/browns-andrew-berry-deshaun-watson-amari-cooper-nick-chubb/
+
 **El Chapo’s Son Abducted Fellow Cartel Leader to the U.S., Officials Now Say**\
 `U.S. officials say Joaquín Guzmán López, a son of El Chapo, forced Ismael Zambada García onto a plane bound for Texas, in a case that landed the two Sinaloa cartel leaders in custody last week.`\
 https://nytimes.com/2024/07/29/world/americas/sinalo-cartel-el-mayo-joaquin-guzman-lopez.html
