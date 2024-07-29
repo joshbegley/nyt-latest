@@ -1,3 +1,19 @@
+**Grealish was 'heartbroken' by England Euro 2024 omission**\
+`Jack Grealish says his exclusion from the England squad for the summer&#8217;s European Championship left him “heartbroken” and that the experience was the toughest of his football career.`\
+https://nytimes.com/athletic/5667104/2024/07/29/jack-grealish-england-euros-manchester-city/
+
+**Raiders training camp: OC Luke Getsy remains optimistic despite sluggish offense**\
+`Gardner Minshew and the offense struggled again Monday, but the Raiders coaches see it as just part of the training camp process.`\
+https://nytimes.com/athletic/5667157/2024/07/29/raiders-training-camp-luke-getsy-offense/
+
+**Photos of the California Park Fire**\
+`The fire, which has been burning since last Wednesday, is already one of the largest in the state’s history.`\
+https://nytimes.com/2024/07/29/us/photos-of-the-california-park-fire.html
+
+**Netanyahu Vows ‘Severe’ Response to Deadly Rocket Attack Tied to Hezbollah**\
+`Fears linger among Lebanese civilians after a strike killed 12 children and teenagers in the Israeli-controlled Golan Heights.`\
+https://nytimes.com/2024/07/29/world/middleeast/israel-hezbollah-lebanon.html
+
 **Diamond, Comcast reach deal to end dispute, get 12 MLB teams back on the air**\
 `Effective Aug. 1, Xfinity customers will again be able to watch MLB, NBA and NHL teams via Bally Sports, but will pay a higher price.`\
 https://nytimes.com/athletic/5667092/2024/07/29/diamond-comcast-tv-deal-12-mlb-teams/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5667215/2024/07/29/yankees-juan-soto-trade-deadline
 **The Republicans Who Want to Make America Have Babies Again**\
 `JD Vance has long spoken about his concerns about the falling birthrate — and it’s not just him.`\
 https://nytimes.com/2024/07/29/us/politics/republicans-birthrate-jd-vance.html
-
-**Chargers training camp, Day 5: Joe Alt holds his own in first padded practice**\
-`Alt "acquitted himself well," according to coach Jim Harbaugh, in his first padded battles against Joey Bosa and Khalil Mack.`\
-https://nytimes.com/athletic/5667100/2024/07/29/chargers-joe-alt-training-camp-pads/
-
-**Shapiro and Whitmer tell Harris supporters that Trump is ‘so scared of her.’**\
-`By Jonathan Weisman`\
-https://nytimes.com/live/2024/07/29/us/harris-trump-election/shapiro-and-whitmer-tell-harris-supporters-that-trump-is-so-scared-of-her
-
-**Tech Bro Elegy: How Did JD Vance Get Here?**\
-`He’s hiding who he really represents behind a can of Mountain Dew.`\
-https://nytimes.com/2024/07/29/opinion/vance-trump-cryptocurrency.html
-
-**Cardinals dazzle with Erick Fedde acquisition, while Dodgers, White Sox fill needs**\
-`The Cardinals get one of the top starters on the market without giving up much in return, while the Dodgers and White Sox nab useful pieces.`\
-https://nytimes.com/athletic/5667160/2024/07/29/erick-fedde-cardinals-dodgers-white-sox-trade-analysis/
 

@@ -1,3 +1,19 @@
+**Grealish was 'heartbroken' by England Euro 2024 omission**\
+`Jack Grealish says his exclusion from the England squad for the summer&#8217;s European Championship left him “heartbroken” and that the experience was the toughest of his football career.`\
+https://nytimes.com/athletic/5667104/2024/07/29/jack-grealish-england-euros-manchester-city/
+
+**Raiders training camp: OC Luke Getsy remains optimistic despite sluggish offense**\
+`Gardner Minshew and the offense struggled again Monday, but the Raiders coaches see it as just part of the training camp process.`\
+https://nytimes.com/athletic/5667157/2024/07/29/raiders-training-camp-luke-getsy-offense/
+
+**Photos of the California Park Fire**\
+`The fire, which has been burning since last Wednesday, is already one of the largest in the state’s history.`\
+https://nytimes.com/2024/07/29/us/photos-of-the-california-park-fire.html
+
+**Netanyahu Vows ‘Severe’ Response to Deadly Rocket Attack Tied to Hezbollah**\
+`Fears linger among Lebanese civilians after a strike killed 12 children and teenagers in the Israeli-controlled Golan Heights.`\
+https://nytimes.com/2024/07/29/world/middleeast/israel-hezbollah-lebanon.html
+
 **Diamond, Comcast reach deal to end dispute, get 12 MLB teams back on the air**\
 `Effective Aug. 1, Xfinity customers will again be able to watch MLB, NBA and NHL teams via Bally Sports, but will pay a higher price.`\
 https://nytimes.com/athletic/5667092/2024/07/29/diamond-comcast-tv-deal-12-mlb-teams/
