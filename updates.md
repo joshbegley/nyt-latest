@@ -1,3 +1,7 @@
+**Cubs address third-base problem with Isaac Paredes acquisition**\
+`The Cubs get an upgrade at third by reuniting with an old friend. The Rays get three more young players, but are they acquiring too many?`\
+https://nytimes.com/athletic/5665014/2024/07/28/isaac-paredes-cubs-rays-trade-analysis/
+
 **Yankees, Dodgers show interest in Cardinals utilityman Tommy Edman: sources**\
 `The Los Angeles Dodgers are in discussions with the St.`\
 https://nytimes.com/athletic/5665010/2024/07/28/dodgers-cardinals-tommy-edman-trade-discussions/
