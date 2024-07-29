@@ -1,7 +1,3 @@
-**Staley: Caitlin Clark might have made USWNT with current play**\
-`In 13 games since the roster announcement on June 11, Clark averaged 17.9 points, 10.4 assists and 6.7 rebounds per game.`\
-https://nytimes.com/athletic/5665564/2024/07/29/caitlin-clark-olympic-team-dawn-staley/
-
 **Raiders fans: Help us with our guide to Allegiant Stadium’s game day experience**\
 `We invite all Raiders fans to share their thoughts about the Allegiant Stadium game day experience.`\
 https://nytimes.com/athletic/5660589/2024/07/29/raiders-stadium-fan-survey/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5661217/2024/07/29/cowboys-stadium-fan-survey/
 **Olympic women's basketball: Nigeria pulls off shocker vs. Australia**\
 `Nigeria, with no WNBA players, beat an Australia team with six active WNBA pros and three-time MVP Lauren Jackson.`\
 https://nytimes.com/athletic/5665529/2024/07/29/nigeria-australia-olympics-womens-basketball/
+
+**Jacob Zuma, Ex-President of South Africa, Is Expelled From A.N.C.**\
+`The African National Congress severed ties with its former leader over his decision to become the leading voice of an opposition party in the last election.`\
+https://nytimes.com/2024/07/29/world/africa/jacob-zuma-expelled-anc.html
 
