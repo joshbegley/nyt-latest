@@ -1,3 +1,7 @@
+**Roy Cooper Is Said to Withdraw From Harris’s Vice-Presidential Field**\
+`Mr. Cooper, the governor of North Carolina, had been seen as one of the half-dozen top candidates to join the Democratic presidential ticket. It was not immediately clear why he withdrew.`\
+https://nytimes.com/2024/07/29/us/politics/roy-cooper-kamala-harris-vp.html
+
 **Francine Pascal, Creator of ‘Sweet Valley High’ Book Series, Dies at 92**\
 `The series and its many spinoffs have sold more than 200 million copies and revolutionized the world of young adult publishing.`\
 https://nytimes.com/2024/07/29/books/francine-pascal-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/29/science/meteor-shower-aquarids-capricornids-perse
 **Biden Calls for Supreme Court Reforms**\
 `The president outlined his proposals for major changes to the Supreme Court, including imposing term limits and creating an enforceable code of ethics on the justices.`\
 https://nytimes.com/video/us/politics/100000009599200/biden-supreme-court-reforms.html
-
-**The Justice Department will monitor voting in Arizona on Tuesday.**\
-`By Tim Balk`\
-https://nytimes.com/live/2024/07/29/us/harris-trump-election/the-justice-department-will-monitor-voting-in-arizona-on-tuesday
 

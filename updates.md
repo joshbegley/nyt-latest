@@ -1,3 +1,7 @@
+**49ers’ first padded practice is a bang for defense, bust for Brock Purdy**\
+`Purdy has been able to overcome steady pressure early in 49ers training camp. On Monday he couldn't, especially in the red zone.`\
+https://nytimes.com/athletic/5667027/2024/07/29/49ers-brock-purdy-interceptions-training-camp/
+
 **Francine Pascal, Creator of ‘Sweet Valley High’ Book Series, Dies at 92**\
 `The series and its many spinoffs have sold more than 200 million copies and revolutionized the world of young adult publishing.`\
 https://nytimes.com/2024/07/29/books/francine-pascal-dead.html
