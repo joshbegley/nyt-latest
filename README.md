@@ -1,3 +1,7 @@
+**Turkey’s president says his country could enter Israel to help the Palestinians.**\
+`By Ben Hubbard and Safak Timur`\
+https://nytimes.com/live/2024/07/29/world/israel-gaza-war-lebanon-hezbollah/turkey-israel-erdogan
+
 **Chiefs fans: Help us with our guide to Arrowhead Stadium’s game day experience**\
 `The Athletic will be publishing stadium guides for all 32 NFL teams just ahead of the Week 1 kickoff, and we’d like Chiefs fans to answer a few questions about the Arrowhead Stadium game day experience.`\
 https://nytimes.com/athletic/5659297/2024/07/29/chiefs-stadium-fan-survey/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5665195/2024/07/29/cubs-christopher-morel-trade-ray
 **Ackman’s Wait for His Long-Awaited Fund Offering**\
 `The billionaire financier’s U.S.-listed investment vehicle is facing a delay in pricing its I.P.O., the latest speed bump in its journey to the public markets.`\
 https://nytimes.com/2024/07/29/business/dealbook/ackman-pershing-square-ipo.html
-
-**Jaguars fans: Help us with our guide to EverBank Stadium’s game day experience**\
-`The Athletic will be publishing stadium guides for all 32 NFL teams just ahead of the Week 1 kickoff, and we’d like Jaguars fans to answer a few questions about the EverBank Stadium game day experience.`\
-https://nytimes.com/athletic/5664043/2024/07/29/jaguars-stadium-fan-survey/
 
