@@ -1,3 +1,7 @@
+**MLB trade deadline roundup: All the deals from Sunday**\
+`The Padres were involved in a swap that showed how expensive it is to get a reliever, the Cubs swapped third basemen and more.`\
+https://nytimes.com/athletic/5663580/2024/07/28/mlb-trade-deadline-roundup-sunday/
+
 **Giants sweep Rockies, make final case to see season through: "We all believe in each other"**\
 `The Giants won't play again until after the trade deadline. Did they do enough against the Rockies to prevent a sell-off?`\
 https://nytimes.com/athletic/5665078/2024/07/28/sf-giants-sweep-rockies-trade-deadline/
