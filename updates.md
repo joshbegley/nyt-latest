@@ -1,3 +1,7 @@
+**‘House of the Dragon’ Season 2, Episode 7 Recap: Soothing the Savage Beasts**\
+`Not everyone gets to have a dragon. But maybe more people get to have dragons than everyone thought?`\
+https://nytimes.com/2024/07/28/arts/television/house-of-the-dragon-recap-episode-7.html
+
 **Cubs address third-base problem with Isaac Paredes acquisition**\
 `The Cubs get an upgrade at third by reuniting with an old friend. The Rays get three more young players, but are they acquiring too many?`\
 https://nytimes.com/athletic/5665014/2024/07/28/isaac-paredes-cubs-rays-trade-analysis/
