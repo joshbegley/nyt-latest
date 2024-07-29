@@ -1,3 +1,7 @@
+**For the Big Ten, an expanded CFP redefines success around the league**\
+`If the 12-team CFP format had been in place during the past decade, the Big Ten would have placed 29 teams into the field.`\
+https://nytimes.com/athletic/5664398/2024/07/29/big-ten-expanded-college-football-playoff/
+
 **Olympics broadcaster drops commentator after 'outrageous' sexist remark**\
 `An Olympics broadcaster has dropped one of its commentators after a sexist remark made during commentary of the swimming competition in Paris.`\
 https://nytimes.com/athletic/5665325/2024/07/29/eurosport-commentator-swimming-bob-ballard/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/29/crosswords/spelling-bee-forum.html
 **Word of the Day: ditty**\
 `This word has appeared in 40 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/07/29/learning/word-of-the-day-ditty.html
-
-**Yankees trade deadline notes: Spencer Jones, Jazz Chisholm Jr., Gleyber Torres**\
-`The Chisholm deal is the only trade the Yankees have made with Tuesday's deadline nearing. Here are other things we kept an eye on Sunday.`\
-https://nytimes.com/athletic/5665198/2024/07/29/yankees-trade-deadline-spencer-jones-jazz-chisholm-gleyber-torres/
 
