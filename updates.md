@@ -1,3 +1,7 @@
+**Floods Sweep Dolly Parton’s Dollywood Theme Park**\
+`Flash floods rushed through portions of the park on Sunday. Dollywood was expected to reopen on Monday.`\
+https://nytimes.com/2024/07/29/us/dollywood-flooding-tennessee.html
+
 **F.D.A. Approves Blood Test for Colon Cancer Detection**\
 `While not a perfect alternative to colonoscopies or fecal tests, experts hope the test could lead to more people getting screened for colorectal cancers.`\
 https://nytimes.com/2024/07/29/health/colon-cancer-blood-test-shield.html
