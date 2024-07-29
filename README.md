@@ -1,9 +1,13 @@
+**49ers’ first padded practice is a bang for defense, bust for Brock Purdy**\
+`Purdy has been able to overcome steady pressure early on in 49ers training camp. On Monday he couldn't, especially in the red zone.`\
+https://nytimes.com/athletic/5667027/2024/07/29/49ers-brock-purdy-interceptions-training-camp/
+
 **El Chapo’s Son Abducted Fellow Cartel Leader to the U.S., Officials Now Say**\
 `U.S. officials say Joaquín Guzmán López, a son of El Chapo, forced Ismael Zambada García onto a plane bound for Texas, in a case that landed the two Sinaloa cartel leaders in custody last week.`\
 https://nytimes.com/2024/07/29/world/americas/sinalo-cartel-el-mayo-joaquin-guzman-lopez.html
 
 **Browns GM shares thoughts on Chubb, Cooper's contract and the future stadium**\
-`Plus, Andrew Berry discusses Deshaun Watson's progression and the importance of Cleveland having roster depth. `\
+`Plus, Berry discusses Deshaun Watson's progression and the importance of Cleveland having roster depth. `\
 https://nytimes.com/athletic/5666866/2024/07/29/browns-andrew-berry-deshaun-watson-amari-cooper-nick-chubb/
 
 **Three Meteor Showers Are Active: How and When to Watch Fireball Season**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5666933/2024/07/29/seahawks-training-camp-defense-d
 **One Word Has Elevated Minnesota’s Governor to the Democrats’ V.P. Wish List**\
 `“These guys are just weird,” Gov. Tim Walz, a former schoolteacher, has said of the opposition.`\
 https://nytimes.com/2024/07/29/us/tim-walz-minnesota-kamala-harris.html
-
-**Wolfgang Rihm, Prolific Contemporary Classical Music Composer, Dies at 72**\
-`Likened to a “court composer” for Germany, he wrote more than 500 pieces and was considered one of the most original and independent musical voices in Europe.`\
-https://nytimes.com/2024/07/29/arts/music/wolfgang-rihm-dead.html
 
