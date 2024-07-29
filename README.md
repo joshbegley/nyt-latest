@@ -1,3 +1,11 @@
+**What is the Golan Heights?**\
+`By Alissa J. Rubin`\
+https://nytimes.com/live/2024/07/29/world/israel-gaza-war-lebanon-hezbollah/what-is-golan-heights
+
+**Kamala Harris and the Race for Congress**\
+`We cover the state of consequential congressional races.`\
+https://nytimes.com/2024/07/29/briefing/kamala-harris-congress-elections.html
+
 **Lions fans: Help us with our guide to Ford Field's game day experience**\
 `The Athletic will be publishing stadium guides for all 32 NFL teams just ahead of the Week 1 kickoff, and we’d like Lions fans to answer a few questions about the Ford Field game day experience.`\
 https://nytimes.com/athletic/5664607/2024/07/29/lions-stadium-fan-survey/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5664723/2024/07/29/jj-mccarthy-vikings-michigan-par
 **What will the Blackhawks lineup look like this year? And in three years? Lazerus mailbag, Part II**\
 `Also in the mailbag: Laurent Brossoit's chances of another extension and expectations for Luke Richardson.`\
 https://nytimes.com/athletic/5664832/2024/07/29/blackhawks-lineup-projection-mailbag/
-
-**Ravens stock report: Who stood out, who didn't during first week of camp**\
-`Wide receiver Rashod Bateman and cornerback Jalyn Armour-Davis are among the Baltimore players who boosted their stock one week into camp. `\
-https://nytimes.com/athletic/5663534/2024/07/29/ravens-training-camp-stock-report/
-
-**For Tyler Adams' injury saga to end, Bournemouth, USMNT and the player must work together**\
-`Were the right decisions made over Adams playing Copa America this summer, and how can he best avoid another long injury layoff?`\
-https://nytimes.com/athletic/5658890/2024/07/29/tyler-adams-injury-bournemouth-usmnt/
 
