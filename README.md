@@ -1,7 +1,3 @@
-**Artificial Intelligence Gives Weather Forecasters a New Edge**\
-`The brainy machines are predicting global weather patterns with new speed and precision, doing in minutes and seconds what once took hours.`\
-https://nytimes.com/interactive/2024/07/29/science/ai-weather-forecast-hurricane.html
-
 **Map: 4.9-Magnitude Earthquake Strikes Southern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/07/29/us/quake-tracker-california-barstow.html
@@ -37,4 +33,8 @@ https://nytimes.com/live/2024/07/29/world/israel-gaza-war-lebanon-hezbollah/isra
 **U.S. National Debt Tops $35 Trillion for First Time**\
 `The presidential candidates have offered few ideas for reducing the debt burden as red ink continues to mount.`\
 https://nytimes.com/2024/07/29/us/politics/national-debt-35-trillion.html
+
+**3 Arrested in Gang-Related Murder of Rapper in Florida**\
+`The authorities said five people traveled from Jacksonville to Tampa to “locate and kill” the rapper known as Julio Foolio. Three of them are in custody on murder charges.`\
+https://nytimes.com/2024/07/29/us/julio-foolio-murder-arrests.html
 

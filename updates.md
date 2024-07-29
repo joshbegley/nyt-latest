@@ -1,3 +1,11 @@
+**Artificial Intelligence Gives Weather Forecasters a New Edge**\
+`The brainy machines are predicting global weather patterns with new speed and precision, doing in minutes and seconds what once took hours.`\
+https://nytimes.com/interactive/2024/07/29/science/ai-weather-forecast-hurricane.html
+
+**Map: 4.9-Magnitude Earthquake Strikes Southern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/07/29/us/quake-tracker-california-barstow.html
+
 **Republicans and Democrats Name Members of Trump Assassination Inquiry**\
 `House leaders picked 13 lawmakers with background in national security and law enforcement, including a Republican who trafficked in conspiracy theories about the Jan. 6, 2021, attack.`\
 https://nytimes.com/2024/07/29/us/politics/trump-assassination-task-force.html
