@@ -1,3 +1,11 @@
+**What is the Golan Heights?**\
+`By Alissa J. Rubin`\
+https://nytimes.com/live/2024/07/29/world/israel-gaza-war-lebanon-hezbollah/what-is-golan-heights
+
+**Kamala Harris and the Race for Congress**\
+`We cover the state of consequential congressional races.`\
+https://nytimes.com/2024/07/29/briefing/kamala-harris-congress-elections.html
+
 **Lions fans: Help us with our guide to Ford Field's game day experience**\
 `The Athletic will be publishing stadium guides for all 32 NFL teams just ahead of the Week 1 kickoff, and we’d like Lions fans to answer a few questions about the Ford Field game day experience.`\
 https://nytimes.com/athletic/5664607/2024/07/29/lions-stadium-fan-survey/
