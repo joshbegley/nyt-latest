@@ -1,3 +1,19 @@
+**Three Meteor Showers Are Active: How and When to Watch Fireball Season**\
+`The Southern Delta Aquarids and the Alpha Capricornids are reaching their peak this week. The Perseids, one of the best shows of the year, are also ramping up.`\
+https://nytimes.com/2024/07/29/science/meteor-shower-aquarids-capricornids-perseids.html
+
+**Biden Calls for Supreme Court Reforms**\
+`The president outlined his proposals for major changes to the Supreme Court, including imposing term limits and creating an enforceable code of ethics on the justices.`\
+https://nytimes.com/video/us/politics/100000009599200/biden-supreme-court-reforms.html
+
+**The Justice Department will monitor voting in Arizona on Tuesday.**\
+`By Tim Balk`\
+https://nytimes.com/live/2024/07/29/us/harris-trump-election/the-justice-department-will-monitor-voting-in-arizona-on-tuesday
+
+**Gabriel Medina celebrates highest Olympic surfing score in style**\
+`Medina finished with a total score of 17.40 to defeat Japan's Kanoa Igarashi.`\
+https://nytimes.com/athletic/5666912/2024/07/29/olympics-surfing-gabriel-medina-high-score/
+
 **Eagles training camp: Why Nolan Smith wanted to 'be by my lonesome' in offseason**\
 `Plus, notes from training camp, including an update on Tyler Steen's injury and Saquon Barkley's excused absence.`\
 https://nytimes.com/athletic/5666067/2024/07/29/eagles-training-camp-nolan-smith-offseason/
