@@ -1,3 +1,7 @@
+**Word of the Day: ditty**\
+`This word has appeared in 40 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/07/29/learning/word-of-the-day-ditty.html
+
 **Yankees trade deadline notes: Spencer Jones, Jazz Chisholm Jr., Gleyber Torres**\
 `The Chisholm deal is the only trade the Yankees have made with Tuesday's deadline nearing. Here are other things we kept an eye on Sunday.`\
 https://nytimes.com/athletic/5665198/2024/07/29/yankees-trade-deadline-spencer-jones-jazz-chisholm-gleyber-torres/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5646953/2024/07/29/iran-women-and-the-ongoing-strug
 **Red Sox 2-7 since All-Star break, need to 'figure it out fast' before trade deadline**\
 `The Red Sox still believe in their team despite the slow start after the break. "We’ve got time to piece it back together and show up.”`\
 https://nytimes.com/athletic/5665183/2024/07/29/red-sox-struggles-trade-deadline/
-
-**Liverpool's CEO on life after Klopp, stadium expansion, PSR and U.S. tour**\
-`The Athletic sits down with Liverpool's CEO for a wide-ranging interview`\
-https://nytimes.com/athletic/5652585/2024/07/29/billy-hogan-liverpool-interview/
 
