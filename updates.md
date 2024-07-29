@@ -1,3 +1,7 @@
+**MLB Trade Grades: What is Seattle getting in 39-year-old Justin Turner?**\
+`Turner used to deliver one of the most professional at-bats in the majors. He isn't that guy anymore, but at this cost, was he a good add?`\
+https://nytimes.com/athletic/5666777/2024/07/29/mlb-trade-grades-justin-turner-mariners-blue-jays/
+
 **The Tradwife Life Is Nothing New**\
 `And it isn’t appealing or aspirational for many modern women.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/hannah-neeleman-tradwife
