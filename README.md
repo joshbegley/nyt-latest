@@ -1,3 +1,11 @@
+**Bills training camp: Marquez Valdes-Scantling's spot on shaky ground, and more**\
+`Plus, Dorian Williams looking much improved, and some challenges with new starting center Connor McGovern.`\
+https://nytimes.com/athletic/5666297/2024/07/29/buffalo-bills-training-camp-tyrell-shavers-marquez-valdes-scantling/
+
+**No, Wall Street, The Treasury Isn’t Rigging the Economy for Democrats**\
+`Some financiers are seeing partisan corruption where it doesn’t exist.`\
+https://nytimes.com/2024/07/29/opinion/treasury-janet-yellen-roubini.html
+
 **Colts DE Samson Ebukam suffers season-ending Achilles injury**\
 `Ebukam led the Colts in sacks last season with 9.5. `\
 https://nytimes.com/athletic/5666343/2024/07/29/indianapolis-colts-samson-ebukam-achilles/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/29/books/review/min-jin-lee-pachinko-podcast.html
 **Aides in Congress Create Dissent Channel to Protest Support for Israel**\
 `An anonymous group of junior staff members has modeled its effort on an internal State Department messaging system, hoping to create an outlet for calls for a cease-fire in the war in Gaza.`\
 https://nytimes.com/2024/07/29/us/politics/israel-congress-staff-dissent-channel.html
-
-**Paris Olympics: Who Leads the Medal Count?**\
-`Which country is doing best at the Paris Olympics? It depends on who’s counting medals — and how.`\
-https://nytimes.com/interactive/2024/07/29/upshot/olympics-medal-table-paris.html
-
-**U.S. wins bronze in men's gymnastics behind Nedoroscik's clutch performance**\
-`The bronze is Team USA's first medal in men's gymnastics in 16 years.`\
-https://nytimes.com/athletic/5666340/2024/07/29/mens-gymnastics-olympics-results-usa-medal-stephen-nedoroscik/
 
