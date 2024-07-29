@@ -1,6 +1,14 @@
+**Stam on returning to management, Ten Hag, Zirkzee and the treble**\
+`The former Manchester United defender reflects on his playing and managerial career — and says he hopes to return to the dugout in England`\
+https://nytimes.com/athletic/5659146/2024/07/29/jaap-stam-interview-manchester-united/
+
 **Pediatricians Warn Against Overuse of Tongue-Tie Surgeries**\
 `In a new report, the American Academy of Pediatrics said that breastfeeding problems were rarely caused by infant tongue-ties.`\
 https://nytimes.com/2024/07/29/health/tongue-tie-releases-aap.html
+
+**As Team USA women go for eighth-straight gold, one question mark lurks**\
+`Team USA has everything going for it in the Olympic women's basketball tournament. Except one thing coach Cheryl Reeve is very aware of.`\
+https://nytimes.com/athletic/5664071/2024/07/29/us-womens-basketball-2024-paris-olympics-experience/
 
 **Why Some Olympic Swimmers Think About Math in the Pool**\
 `In a sport where gold and silver can be separated by a fraction of a second, many of the world’s top swimmers now scour data for even the smallest edge.`\
@@ -22,19 +30,11 @@ https://nytimes.com/athletic/5660791/2024/07/29/mlb-odds-best-bets-projections-j
 `Japan’s economy is faltering after a rise in prices led consumers to cut back on spending.`\
 https://nytimes.com/2024/07/29/business/japan-inflation-rates.html
 
+**Olympics Today: Monday's guide for what to watch in Paris**\
+`It’s a busy Day 3. Let’s take a splash to highlight what to watch.`\
+https://nytimes.com/athletic/5664264/2024/07/29/olympics-2024-watch-guide-day-3-swimming-basketball/
+
 **MLB trade deadline roundup: All the deals from Sunday**\
 `The Padres were involved in a swap that showed how expensive it is to get a reliever, the Cubs swapped third basemen and more.`\
 https://nytimes.com/athletic/5663580/2024/07/28/mlb-trade-deadline-roundup-sunday/
-
-**Giants sweep Rockies, make final case to see season through: "We all believe in each other"**\
-`The Giants won't play again until after the trade deadline. Did they do enough against the Rockies to prevent a sell-off?`\
-https://nytimes.com/athletic/5665078/2024/07/28/sf-giants-sweep-rockies-trade-deadline/
-
-**‘House of the Dragon’ Season 2, Episode 7 Recap: Soothing the Savage Beasts**\
-`Not everyone gets to have a dragon. But maybe more people get to have dragons than everyone thought?`\
-https://nytimes.com/2024/07/28/arts/television/house-of-the-dragon-recap-episode-7.html
-
-**Cubs address third-base problem with Isaac Paredes acquisition**\
-`The Cubs get an upgrade at third by reuniting with an old friend. The Rays get three more young players, but are they acquiring too many?`\
-https://nytimes.com/athletic/5665014/2024/07/28/isaac-paredes-cubs-rays-trade-analysis/
 
