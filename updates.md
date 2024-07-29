@@ -1,3 +1,11 @@
+**A Trump-Supporting Sheriff’s Stand Against Kari Lake in Arizona**\
+`Mark Lamb, a right-wing immigration hard-liner, once might have been the archetypal Republican Senate candidate in the border state. But he’s the underdog in Tuesday’s primary.`\
+https://nytimes.com/2024/07/29/us/politics/kari-lake-mark-lamb-arizona.html
+
+**3 Arrested in Gang-Related Murder of Rapper in Florida**\
+`The authorities said five people traveled from Jacksonville to Tampa to “locate and kill” the rapper known as Julio Foolio. Three of them are in custody on murder charges.`\
+https://nytimes.com/2024/07/29/us/julio-foolio-murder-arrests.html
+
 **Commanders getting into 'game mode' as pads come on for first time in camp**\
 `Dan Quinn and Washington's coaches emphasized the line of scrimmage and run game on day one in pads. `\
 https://nytimes.com/athletic/5666443/2024/07/29/commanders-austin-ekeler-bobby-wagner-training-camp/
