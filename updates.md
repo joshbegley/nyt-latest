@@ -1,3 +1,7 @@
+**One Word Has Elevated Minnesota’s Governor to the Democrats’ V.P. Wish List**\
+`“These guys are just weird,” Gov. Tim Walz, a former schoolteacher, has said of the opposition.`\
+https://nytimes.com/2024/07/29/us/tim-walz-minnesota-kamala-harris.html
+
 **Wolfgang Rihm, Prolific Contemporary Classical Music Composer, Dies at 72**\
 `Likened to a “court composer” for Germany, he wrote more than 500 pieces and was considered one of the most original and independent musical voices in Europe.`\
 https://nytimes.com/2024/07/29/arts/music/wolfgang-rihm-dead.html
