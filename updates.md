@@ -1,3 +1,15 @@
+**The Windup: Trades flying before tomorrow's deadline**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5666023/2024/07/29/mlb-trade-deadline-the-windup/
+
+**Peaty tests positive for Covid-19 day after Olympic silver medal**\
+`Team GB has confirmed that swimmer Adam Peaty has tested positive for Covid-19 following his silver medal in the men&#8217;s 100m breaststroke on Sunday.`\
+https://nytimes.com/athletic/5666004/2024/07/29/adam-peaty-covid-paris-olympics/
+
+**MLB Trade Grades: What does Michael Lorenzen add for the Royals?**\
+`The Royals already have a strong rotation, so what does the Lorenzen addition do for them? `\
+https://nytimes.com/athletic/5665985/2024/07/29/mlb-trade-grades-michael-lorenzen-royals-rangers/
+
 **How One Man Lost $740,000 to Scammers Targeting His Retirement Savings**\
 `Criminals on the internet are increasingly going after Americans over the age of 60 because they are viewed as having the largest piles of savings.`\
 https://nytimes.com/2024/07/29/business/retirement-savings-scams.html
