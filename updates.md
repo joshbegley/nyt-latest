@@ -1,3 +1,11 @@
+**MLB Trade Grades: Rangers aim to stay competitive in adding Carson Kelly**\
+`Despite a losing record, the defending-champ Rangers are trying to stay in the hunt. Is that the smart thing to do? `\
+https://nytimes.com/athletic/5664974/2024/07/28/mlb-trade-grades-rangers-tigers-carson-kelly/
+
+**Dodgers engaged in talks with Cardinals for utilityman Tommy Edman: sources**\
+`The Los Angeles Dodgers are in discussions with the St.`\
+https://nytimes.com/athletic/5665010/2024/07/28/dodgers-cardinals-tommy-edman-trade-discussions/
+
 **3 Men With White Supremacist Ties Sentenced in Plan to Attack Power Station**\
 `Two of the men met through a neo-Nazi online forum and recruited other people to join their scheme, which was rooted in white supremacist ideology, prosecutors said.`\
 https://nytimes.com/2024/07/28/us/energy-grid-attack-plot-white-supremacy.html
