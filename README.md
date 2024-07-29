@@ -1,3 +1,11 @@
+**The Windup: Trades flying before tomorrow's deadline**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5666023/2024/07/29/mlb-trade-deadline-the-windup/
+
+**Peaty tests positive for Covid-19 day after Olympic silver medal**\
+`Team GB has confirmed that swimmer Adam Peaty has tested positive for Covid-19 following his silver medal in the men&#8217;s 100m breaststroke on Sunday.`\
+https://nytimes.com/athletic/5666004/2024/07/29/adam-peaty-covid-paris-olympics/
+
 **MLB Trade Grades: What does Michael Lorenzen add for the Royals?**\
 `The Royals already have a strong rotation, so what does the Lorenzen addition do for them? `\
 https://nytimes.com/athletic/5665985/2024/07/29/mlb-trade-grades-michael-lorenzen-royals-rangers/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/29/theater/soho-rep-theater-real-estate.html
 **NJ/NY Gotham FC complete signing of Chelsea's Jess Carter**\
 `NWSL club NJ/NY Gotham FC have completed the signing of England international Jess Carter from Chelsea.`\
 https://nytimes.com/athletic/5665932/2024/07/29/jess-carter-gotham-transfer-chelsea/
-
-**Christian Barmore diagnosed with blood clots**\
-`Barmore totaled 8 1/2 sacks in a breakout campaign last season with the Patriots.`\
-https://nytimes.com/athletic/5664731/2024/07/29/patriots-christian-barmore-blood-clots/
-
-**A Super Fast Sheet-Pan Chicken Dinner**\
-`Yasmin Fahr’s garlicky chicken with blistered tomatoes needs only 15 minutes under the broiler to yield a sunny, flavorful dinner.`\
-https://nytimes.com/2024/07/29/dining/a-super-fast-sheet-pan-chicken-dinner.html
 
