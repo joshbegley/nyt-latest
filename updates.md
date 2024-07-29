@@ -1,3 +1,11 @@
+**How One Man Lost $740,000 to Scammers Targeting His Retirement Savings**\
+`Criminals on the internet are increasingly going after Americans over the age of 60 because they are viewed as having the largest piles of savings.`\
+https://nytimes.com/2024/07/29/business/retirement-savings-scams.html
+
+**Venezuela’s Election Gives a Boost to the Autocrats**\
+`A declaration of victory by the Maduro regime is another case of how democracy is backsliding in Latin America.`\
+https://nytimes.com/2024/07/29/opinion/international-world/venezuela-election-democracy-maduro.html
+
 **Trump Agrees to Be Interviewed by F.B.I. in Its Investigation Into Gunman**\
 `The F.B.I. also provided the most comprehensive portrait to date of the shooter, revealing that he carefully concealed more than two dozen online purchases of weapons and explosives using aliases.`\
 https://nytimes.com/2024/07/29/us/politics/trump-fbi-interview-assassination-attempt.html
