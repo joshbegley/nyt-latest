@@ -1,3 +1,7 @@
+**Wolfgang Rihm, Prolific Contemporary Classical Music Composer, Dies at 72**\
+`Likened to a “court composer” for Germany, he wrote more than 500 pieces and was considered one of the most original and independent musical voices in Europe.`\
+https://nytimes.com/2024/07/29/arts/music/wolfgang-rihm-dead.html
+
 **Biden Pushed for Major Changes to the Supreme Court**\
 `Also, Maduro was declared the winner in a disputed election. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/07/29/briefing/biden-supreme-court-venezuela-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/29/briefing/harris-maduro-golan.html
 **The Science Behind Olympic Greatness, Revealed Through Motion**\
 `How do skateboarders seemingly defy gravity? How do gymnasts flip in the air? They have skill — and, as a Times interactive explored, an understanding of the laws of motion, physics and energy.`\
 https://nytimes.com/2024/07/29/insider/the-science-behind-olympic-greatness-revealed-through-motion.html
-
-**Matthew Judon, Davon Godchaux and a drama-filled Patriots practice**\
-`Judon launched what looked to be a public holdout on Monday, seemingly trying to negotiate a new deal as the Pats practiced in pads.`\
-https://nytimes.com/athletic/5666523/2024/07/29/patriots-matthew-judon-davon-godchaux/
 
