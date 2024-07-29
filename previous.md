@@ -1,5 +1,5 @@
-**Turkey’s president says his country could enter Israel to help the Palestinians.**\
-`By Ben Hubbard and Safak Timur`\
+**Turkey’s President Says His Country Could Enter Israel to Help Palestinians**\
+`It was unclear whether the comments reflected any concrete plans, but they drew a strong response from Israel.`\
 https://nytimes.com/2024/07/29/world/middleeast/turkey-israel-erdogan.html
 
 **Chiefs fans: Help us with our guide to Arrowhead Stadium’s game day experience**\
