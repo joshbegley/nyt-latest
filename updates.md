@@ -1,3 +1,7 @@
+**Sergio Pérez to keep Red Bull F1 seat after talks over future**\
+`Pérez’s position at Red Bull has faced heavy scrutiny in recent weeks as he's gone through a dip in performance.`\
+https://nytimes.com/athletic/5666568/2024/07/29/sergio-perez-red-bull-seat-safe-future/
+
 **Democrats Could Regret Calling Trump and His Supporters ‘Weird’**\
 `It’s silly and counterproductive.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/trump-democrats-weird
