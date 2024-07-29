@@ -1,3 +1,7 @@
+**Matthew Judon, Davon Godchaux and a drama-filled Patriots practice**\
+`Judon launched what looked to be a public holdout on Monday, seemingly trying to negotiate a new deal as the Pats practiced in pads.`\
+https://nytimes.com/athletic/5666523/2024/07/29/patriots-matthew-judon-davon-godchaux/
+
 **Artificial Intelligence Gives Weather Forecasters a New Edge**\
 `The brainy machines are predicting global weather patterns with new speed and precision, doing in minutes and seconds what once took hours.`\
 https://nytimes.com/interactive/2024/07/29/science/ai-weather-forecast-hurricane.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/29/arts/television/a-good-girls-guide-to-murder-netf
 **Israel and Hamas trade blame for the failure to reach a cease-fire deal.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/07/29/world/israel-gaza-war-lebanon-hezbollah/israel-and-hamas-trade-blame-for-the-failure-to-reach-a-cease-fire-deal
-
-**U.S. National Debt Tops $35 Trillion for First Time**\
-`The presidential candidates have offered few ideas for reducing the debt burden as red ink continues to mount.`\
-https://nytimes.com/2024/07/29/us/politics/national-debt-35-trillion.html
 
