@@ -1,3 +1,9 @@
+**Game, Set, Match: Novak Djokovic sees off Rafael Nadal at Paris Olympics**\
+`In their 60th meeting, the Serbian showed no quarter in his pursuit of an Olympic gold medal`\
+https://nytimes.com/athletic/5665535/2024/07/29/rafael-nadal-novak-djokovic-olympics-tennis/
+
+**How to Clean a Fan**\
+
 **Seahawks fans: Help us with our guide to Lumen Field's game day experience**\
 `The Athletic will be publishing stadium guides for all 32 NFL teams just ahead of the Week 1 kickoff, and we’d like Seahawks fans to answer a few questions about the Lumen Field game day experience.`\
 https://nytimes.com/athletic/5662631/2024/07/29/seahawks-stadium-fan-survey/
