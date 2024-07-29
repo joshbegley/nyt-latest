@@ -1,3 +1,7 @@
+**Triathlon training cancelled for second successive day over water quality concerns**\
+`Training ahead of the Olympics triathlon competition was cancelled for a second successive day because of concerns over the water quality in the Seine.`\
+https://nytimes.com/athletic/5665295/2024/07/29/olympics-triathlon-training-cancelled-seine-pollution/
+
 **Quotation of the Day: First Up, First Out**\
 `Quotation of the Day for Monday, July 29, 2024.`\
 https://nytimes.com/2024/07/29/pageoneplus/quotation-of-the-day-first-up-first-out.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/29/briefing/israel-lebanon-harris-trump.html
 **Pope says he never received explanation for Euro 2024 omission**\
 `Nick Pope claims he was never given an explanation for his England omission and is determined to reclaim a spot in the national squad.`\
 https://nytimes.com/athletic/5664706/2024/07/29/nick-pope-england-omission/
-
-**Injury concerns, Chermiti and Iroegbunam shine, O'Brien on way? Everton's plans taking shape**\
-`Sean Dyche's squad is stretched but the manager has seen plenty of positives in pre-season - and another signing is close`\
-https://nytimes.com/athletic/5663027/2024/07/29/everton-pre-season-sean-dyche/
 
