@@ -1,3 +1,7 @@
+**Lions training camp: Taylor Decker's extension, rookie corners growing together and more**\
+`Plus, Jameson Williams slows down to focus on his development. `\
+https://nytimes.com/athletic/5666399/2024/07/29/lions-training-camp-taylor-decker-contract-jameson-williams-cornerbacks/
+
 **MLB Trade Grades: What is Seattle getting in 39-year-old Justin Turner?**\
 `Turner used to deliver one of the most professional at-bats in the majors. He isn't that guy anymore, but at this cost, was he a good add?`\
 https://nytimes.com/athletic/5666777/2024/07/29/mlb-trade-grades-justin-turner-mariners-blue-jays/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/29/us/quake-tracker-california-barstow.h
 **Republicans and Democrats Name Members of Trump Assassination Inquiry**\
 `House leaders picked 13 lawmakers with background in national security and law enforcement, including a Republican who trafficked in conspiracy theories about the Jan. 6, 2021, attack.`\
 https://nytimes.com/2024/07/29/us/politics/trump-assassination-task-force.html
-
-**Blue Jays trade veteran bat Justin Turner to Mariners**\
-`For the second time in a week, the Mariners and Blue Jays have made a match on a trade, this time with Turner heading west.`\
-https://nytimes.com/athletic/5666779/2024/07/29/justin-turner-blue-jays-mariners-trade/
 
