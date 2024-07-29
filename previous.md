@@ -1,40 +1,40 @@
-**Biden to Call for Changes to Supreme Court During Austin Visit**\
-`In his first public engagement since ending his campaign, President Biden will propose overhauling a court that has become increasingly politicized and subject to ethics complaints.`\
-https://nytimes.com/2024/07/29/us/politics/biden-supreme-court-austin-texas.html
+**Stalkers, Disease and Doubt: A Gymnast’s Hard Road Back to the Games**\
+`Sunisa Lee, the all-around women’s champion at the Tokyo Olympics, overcame personal strife, family expectations and serious illness to get to Paris.`\
+https://nytimes.com/2024/07/29/world/olympics/suni-lee-gymnastics-kidney-disease.html
 
-**This Week in Mets: The margins are thin for the Mets**\
-`Many times in Mets’ franchise history the difference between a successful season and a failure was a single regular-season game.`\
-https://nytimes.com/athletic/5665137/2024/07/29/mets-mlb-trade-deadline-outlook/
+**A Radical Reboot of Nuclear Energy**\
+`A multibillion-dollar effort to build the first in a new generation of American nuclear power plants is underway outside a small town in Wyoming.`\
+https://nytimes.com/2024/07/29/podcasts/the-daily/nuclear-energy.html
 
-**C. Notes: Reds would do well to take note of what Rays did off the field this series**\
-`It is a seller’s market and the Reds, now in a virtual tie for last place in the National League Central, would be wise to take advantage.`\
-https://nytimes.com/athletic/5664793/2024/07/29/c-notes-reds-trade-deadline-selling/
+**Bills fans: Help us with our guide to Highmark Stadium's game day experience**\
+`The Athletic will be publishing stadium guides for all 32 NFL teams just ahead of the Week 1 kickoff, and we’d like Bills fans to answer a few questions about the Highmark Stadium game day experience.`\
+https://nytimes.com/athletic/5664562/2024/07/29/bills-stadium-fan-survey/
 
-**Everton players subjected to Dyche's infamous 'Gaffer's Day' sessions**\
-`Everton’s players were subjected to two gruelling sessions, known as &#8216;Gaffer’s Day&#8217;, last week as they stepped up preparations for the new season.`\
-https://nytimes.com/athletic/5665365/2024/07/29/sean-dyche-everton-gaffers-days/
+**Inside the Bears' packed QBs room, where it's all about supporting Caleb Williams**\
+`Tyson Bagent, Brett Rypien and Austin Reed give insight on how the Bears' new offensive staff is coaching up the quarterbacks in camp.`\
+https://nytimes.com/athletic/5662481/2024/07/29/caleb-williams-bears-quarterbacks/
 
-**Harris Looks to Maintain Momentum as ‘Honeymoon Phase’ Winds Down**\
-`Democrats could formally make Kamala Harris their nominee this week, as she narrows her running mate choices and attacks her rivals, Donald Trump and JD Vance, while they hit the trail.`\
-https://nytimes.com/2024/07/29/us/politics/harris-nomination-vice-president.html
+**Biden’s Plan to Overhaul Supreme Court, and Venezuela’s Tainted Election**\
+`Plus, a deadly attack raises Mideast tensions.`\
+https://nytimes.com/2024/07/29/podcasts/bidens-supreme-court-venezuela-election.html
 
-**The Important Unanswered Question About Kamala Harris**\
-`After a strong first week, it’s time to turn to the voters who count the most.`\
-https://nytimes.com/live/2024/07/22/opinion/thepoint/kamala-harris-campaign-atlanta
+**Patriots fans: Help us with our guide to Gillette Stadium’s game day experience**\
+`We invite all Patriots fans to share their thoughts about the Gillette Stadium game-day experience.`\
+https://nytimes.com/athletic/5660579/2024/07/29/patriots-stadium-fan-survey/
 
-**How ‘House of the Dragon’ Turns Fiery Fantasy Into TV Reality**\
-`For the “Game of Thrones” prequel series, the producers had to figure out how to make the title beasts believably bigger, badder and more prominent.`\
-https://nytimes.com/2024/07/29/arts/television/house-of-the-dragon.html
+**Giants fans: Help us with our guide to MetLife Stadium's game day experience**\
+`Let us know about your experiences at Giants games.`\
+https://nytimes.com/athletic/5661031/2024/07/29/giants-stadium-fan-survey/
 
-**Displaced by Park Fire, Some Wonder if They’ll Have a Home to Return to**\
-`Many who fled the fire in California have been anxiously waiting to hear whether their houses are still standing. Others are grappling with news of homes and barns leveled by flames.`\
-https://nytimes.com/2024/07/29/us/park-fire-california-wildfire-evacuation.html
+**Wordle Review No. 1,137, Tuesday, July 30, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/29/crosswords/wordle-review-1137.html
 
-**Why Does My Teenager Insist on Wearing Used Clothes?**\
-`Our fashion critic offers guidance to a reader seeking to refine their daughter’s thrifty wardrobe while respecting her fashion choices.`\
-https://nytimes.com/2024/07/29/style/thrift-store-clothing-secondhand.html
+**The Connections Companion No. 415, July 30, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/29/crosswords/connections-companion-415.html
 
-**Echoes of Roe v. Wade in Decision Granting Immunity to Trump**\
-`Critics say the immunity ruling is flawed for reasons similar to those the court gave for overturning Roe, which had established a right to abortion.`\
-https://nytimes.com/2024/07/29/us/trump-immunity-roe-v-wade.html
+**What's it like to play beach volleyball in the Eiffel Tower's shadow? 'Iconic'**\
+`Of all the spectacular venues at the Paris Olympics, maybe none top the experience of playing beach volleyball under the Eiffel Tower.`\
+https://nytimes.com/athletic/5664816/2024/07/29/beach-volleyball-eiffel-tower-2024-paris-olympics/
 
