@@ -1,3 +1,7 @@
+**Takeaways From Venezuela’s Marred Election**\
+`Stark irregularities and suppression efforts could plunge the country back into instability and economic decline.`\
+https://nytimes.com/2024/07/29/world/americas/venezuela-election-takeaways.html
+
 **USWNT is coming into its own under head coach Emma Hayes - but it's just the beginning**\
 `The USWNT's offense has found a scoring groove thanks to a trio of budding talent`\
 https://nytimes.com/athletic/5665110/2024/07/29/uswnt-emma-hayes-dominant-knockout-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5665198/2024/07/29/yankees-trade-deadline-spencer-j
 **Evans: Inside the atmosphere at LIV Golf UK, from the party to the golf**\
 `Tens of thousands poured into JCB Golf & Country Club for the tour's first event outside of London. Not all of them had the same purpose.`\
 https://nytimes.com/athletic/5664569/2024/07/29/liv-golf-uk-party-rahm/
-
-**Monday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2024/07/29/briefing/israel-lebanon-harris-trump.html
 
