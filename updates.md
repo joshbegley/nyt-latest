@@ -1,3 +1,7 @@
+**Triathlon training cancelled for second successive day over water quality concerns**\
+`Training ahead of the Olympics triathlon competition was cancelled for a second successive day because of concerns over the water quality in the Seine.`\
+https://nytimes.com/athletic/5665295/2024/07/29/olympics-triathlon-training-cancelled-seine-pollution/
+
 **Quotation of the Day: First Up, First Out**\
 `Quotation of the Day for Monday, July 29, 2024.`\
 https://nytimes.com/2024/07/29/pageoneplus/quotation-of-the-day-first-up-first-out.html
