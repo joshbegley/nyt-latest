@@ -1,3 +1,7 @@
+**Colts owner Jim Irsay gives health update, advocates for Anthony Richardson to keep running**\
+`Irsay made his first public appearance in months and said he is feeling "great."`\
+https://nytimes.com/athletic/5664964/2024/07/28/indianapolis-colts-jim-irsay-training-camp-anthony-richardson/
+
 **Colts owner Jim Irsay provides health update, advocates for Anthony Richardson to keep running**\
 `Irsay made his first public appearance in months and said he is feeling "great."`\
 https://nytimes.com/athletic/5664964/2024/07/28/indianapolis-colts-jim-irsay-training-camp-anthony-richardson/
