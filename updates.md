@@ -1,3 +1,11 @@
+**Tottenham's Gil joins Girona on season-long loan**\
+`Tottenham Hotspur winger Bryan Gil has joined Girona on a season-long loan deal for the 2024-25 season.`\
+https://nytimes.com/athletic/5662509/2024/07/29/bryan-gil-girona-loan-transfer-tottenham/
+
+**Christian Barmore diagnosed with blood clots**\
+`Barmore totaled 8 1/2 sacks in a breakout campaign last season with the Patriots.`\
+https://nytimes.com/athletic/5664731/2024/07/29/patriots-christian-barmore-blood-clots/
+
 **Former MLB pitcher Reyes Moronta dies at 31**\
 `The León Braves, a Mexican League team where Moronta pitched earlier this season, confirmed his death on X.`\
 https://nytimes.com/athletic/5665186/2024/07/29/reyes-moronta-death-mlb/
