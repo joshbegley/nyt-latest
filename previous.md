@@ -1,3 +1,15 @@
+**Think N.Y.C.’s Roads Are Crowded? Good Luck on the Sidewalks.**\
+`A researcher has measured how “claustrophobic” New York’s sidewalks are by gathering data on all of the people, benches, trash cans, bus shelters, bicycle racks and clutter in the way.`\
+https://nytimes.com/2024/07/29/nyregion/street-wars-crowded-sidewalks-times-square.html
+
+**New York’s Preparations for a Bird Flu Pandemic Rely on a Single Drug**\
+`New York State’s stockpile of antiviral medications for flu contains only one drug, Tamiflu, leaving no fallback plan.`\
+https://nytimes.com/2024/07/29/nyregion/bird-flu-tamiflu-baloxavir.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/29/crosswords/spelling-bee-forum.html
+
 **Word of the Day: ditty**\
 `This word has appeared in 40 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/07/29/learning/word-of-the-day-ditty.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5663027/2024/07/29/everton-pre-season-sean-dyche/
 **Wiley is a fast and flashy full-back - with flaws to iron out after transfer to Chelsea**\
 `Wiley is another Chelsea signing with an eye on the future — he's part of the US squad at the Olympics and heading to Strasbourg on loan`\
 https://nytimes.com/athletic/5662422/2024/07/29/caleb-wiley-chelsea-transfer-usmnt-olympics/
-
-**What we learned from Brighton's tour of Japan**\
-`New faces and new tactical approaches were both on show as Brighton played two friendlies in Japan under their new head coach`\
-https://nytimes.com/athletic/5660126/2024/07/29/brighton-japan-pre-season-hurzeler-minteh-cozier-duberry/
-
-**Iran, women and the ongoing struggle for football 'freedom'**\
-`Women may now be visible at some matches in Iran but major restrictions remain and the battle for equality continues`\
-https://nytimes.com/athletic/5646953/2024/07/29/iran-women-and-the-ongoing-struggle-for-football-freedom/
-
-**Red Sox 2-7 since All-Star break, need to 'figure it out fast' before trade deadline**\
-`The Red Sox still believe in their team despite the slow start after the break. "We’ve got time to piece it back together and show up.”`\
-https://nytimes.com/athletic/5665183/2024/07/29/red-sox-struggles-trade-deadline/
 

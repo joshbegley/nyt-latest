@@ -1,3 +1,15 @@
+**Think N.Y.C.’s Roads Are Crowded? Good Luck on the Sidewalks.**\
+`A researcher has measured how “claustrophobic” New York’s sidewalks are by gathering data on all of the people, benches, trash cans, bus shelters, bicycle racks and clutter in the way.`\
+https://nytimes.com/2024/07/29/nyregion/street-wars-crowded-sidewalks-times-square.html
+
+**New York’s Preparations for a Bird Flu Pandemic Rely on a Single Drug**\
+`New York State’s stockpile of antiviral medications for flu contains only one drug, Tamiflu, leaving no fallback plan.`\
+https://nytimes.com/2024/07/29/nyregion/bird-flu-tamiflu-baloxavir.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/29/crosswords/spelling-bee-forum.html
+
 **Word of the Day: ditty**\
 `This word has appeared in 40 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/07/29/learning/word-of-the-day-ditty.html
