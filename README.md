@@ -1,3 +1,7 @@
+**Eagles training camp: Why Nolan Smith wanted to 'be by my lonesome' in offseason**\
+`Plus, notes from training camp, including an update on Tyler Steen's injury and Saquon Barkley's excused absence.`\
+https://nytimes.com/athletic/5666067/2024/07/29/eagles-training-camp-nolan-smith-offseason/
+
 **Seahawks training camp: Defense dominates Day 1 in pads**\
 `"The defense got after us a little bit today," Tyler Lockett said after the first-team offense failed to score in Monday's practice.`\
 https://nytimes.com/athletic/5666933/2024/07/29/seahawks-training-camp-defense-dominates-day-1-in-pads/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5666777/2024/07/29/mlb-trade-grades-justin-turner-m
 **The Tradwife Life Is Nothing New**\
 `And it isn’t appealing or aspirational for many modern women.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/hannah-neeleman-tradwife
-
-**How the Current Supreme Court Would Look Under Biden’s Term-Limit Plan**\
-`If President Biden’s proposed 18-year term limit had been in place during the most recent four administrations, the court’s 6-to-3 conservative split would be reversed.`\
-https://nytimes.com/interactive/2024/07/29/us/politics/supreme-court-biden-term-limits.html
 
