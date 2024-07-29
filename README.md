@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5664964/2024/07/28/indianapolis-colts-jim-irsay-tra
 `Despite a losing record, the defending-champ Rangers are trying to stay in the hunt. Is that the smart thing to do? `\
 https://nytimes.com/athletic/5664974/2024/07/28/mlb-trade-grades-rangers-tigers-carson-kelly/
 
-**Dodgers engaged in talks with Cardinals for utilityman Tommy Edman: sources**\
+**Cardinals utilityman Tommy Edman draws interest from Dodgers, Yankees: sources**\
 `The Los Angeles Dodgers are in discussions with the St.`\
 https://nytimes.com/athletic/5665010/2024/07/28/dodgers-cardinals-tommy-edman-trade-discussions/
 
