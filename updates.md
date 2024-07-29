@@ -1,3 +1,7 @@
+**White House warns Israel against escalation after rocket attack.**\
+`By Peter Baker`\
+https://nytimes.com/live/2024/07/29/world/israel-gaza-war-lebanon-hezbollah/white-house-warns-israel-against-escalation-after-rocket-attack
+
 **Trump: ‘You Won’t Have to Vote Anymore’**\
 `On Trump’s comments to Christian voters and claims about his demeaning those with disabilities. Also: Retirement; coming out; youths in need; driver data.`\
 https://nytimes.com/2024/07/29/opinion/donald-trump-voting-disabilities.html
