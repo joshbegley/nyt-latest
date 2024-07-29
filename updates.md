@@ -1,3 +1,7 @@
+**Chiefs fans: Help us with our guide to Arrowhead Stadium’s game day experience**\
+`The Athletic will be publishing stadium guides for all 32 NFL teams just ahead of the Week 1 kickoff, and we’d like Chiefs fans to answer a few questions about the Arrowhead Stadium game day experience.`\
+https://nytimes.com/athletic/5659297/2024/07/29/chiefs-stadium-fan-survey/
+
 **Titans fans: Help us with our guide to Nissan Stadium's game day experience**\
 `The Athletic will be publishing stadium guides for all 32 NFL teams just ahead of the Week 1 kickoff, and we’d like Titans fans to answer a few questions about the Nissan Stadium game day experience.`\
 https://nytimes.com/athletic/5654159/2024/07/29/titans-stadium-fan-survey/
