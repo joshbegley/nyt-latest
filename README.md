@@ -1,3 +1,7 @@
+**Why Arsenal signed Riccardo Calafiori**\
+`A breakout star of Euro 2024, Arsenal had been tracking the Italian for months - and Arteta was the driving force behind their pursuit`\
+https://nytimes.com/athletic/5664664/2024/07/29/arsenal-riccardo-calafiori-signing-transfer-arteta/
+
 **Arsenal complete Calafiori signing**\
 `Arsenal have completed the signing of Riccardo Calafiori from Bologna.`\
 https://nytimes.com/athletic/5661264/2024/07/29/arsenal-riccardo-calafiori-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5665985/2024/07/29/mlb-trade-grades-michael-lorenze
 **How One Man Lost $740,000 to Scammers Targeting His Retirement Savings**\
 `Criminals on the internet are increasingly going after Americans over the age of 60 because they are viewed as having the largest piles of savings.`\
 https://nytimes.com/2024/07/29/business/retirement-savings-scams.html
-
-**Venezuela’s Election Gives a Boost to the Autocrats**\
-`A declaration of victory by the Maduro regime is another case of how democracy is backsliding in Latin America.`\
-https://nytimes.com/2024/07/29/opinion/international-world/venezuela-election-democracy-maduro.html
 
