@@ -1,3 +1,7 @@
+**The Olympic Flame Isn’t a Flame at All**\
+`Two torches may have lit it to open the Paris Games, but that’s not a fire in the cauldron.`\
+https://nytimes.com/2024/07/29/world/olympics/flame-cauldron-balloon.html
+
 **F.D.A. Approves Blood Test for Colon Cancer Detection**\
 `While not a perfect alternative to colonoscopies, experts hope the test could lead to more people getting screened for colorectal cancers.`\
 https://nytimes.com/2024/07/29/health/colon-cancer-blood-test-shield.html
