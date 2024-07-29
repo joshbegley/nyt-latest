@@ -1,3 +1,15 @@
+**MLB Trade Grades: Who got the best of Dodgers-White Sox-Cardinals three-team deal?**\
+`The trade sent Erick Fedde to the Cardinals, Tommy Edman to the Dodgers, and Miguel Vargas to the White Sox, among others.`\
+https://nytimes.com/athletic/5666588/2024/07/29/mlb-trade-grades-dodgers-white-sox-cardinals-fedde/
+
+**Bears camp: Early impressions of Caleb Williams and how he views his progress**\
+`We heard from Williams for the first time since practices began. He discussed where he stands and what he needs to work on.`\
+https://nytimes.com/athletic/5666471/2024/07/29/caleb-williams-bears-training-cam/
+
+**Rafael Nadal got closer to the tennis swansong he wants. Is it as close as he gets?**\
+`All the ingredients were there for a big moment at Roland Garros. Just the tennis eluded one of the greats of the sport`\
+https://nytimes.com/athletic/5666222/2024/07/29/rafael-nadal-olympics-tennis-retirement/
+
 **Giants camp: Can a rookie 'Turbo' charge RB room? Did Dru Phillips already win slot CB job?**\
 `UDFA Dante Miller is living up to his "Turbo" nickname as he continues to impress with his speed and quickness. `\
 https://nytimes.com/athletic/5666485/2024/07/29/new-york-giants-dante-miller-turbo-dru-phillips/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5666568/2024/07/29/sergio-perez-red-bull-seat-safe-
 **Democrats Could Regret Calling Trump and His Supporters ‘Weird’**\
 `It’s silly and counterproductive.`\
 https://nytimes.com/live/2024/07/22/opinion/thepoint/trump-democrats-weird
-
-**Why Carlos Sainz is going to Williams — and where it leaves Alpine and Sauber for 2025**\
-`Sainz now gets to sit at the heart of a rebuild he believes in, while those who lost out on him are left with lesser options. `\
-https://nytimes.com/athletic/5666388/2024/07/29/carlos-sainz-williams-alpine-sauber-f1/
-
-**Bills training camp: Marquez Valdes-Scantling's spot on shaky ground, and more**\
-`Plus, Dorian Williams looking much improved, and some challenges with new starting center Connor McGovern.`\
-https://nytimes.com/athletic/5666297/2024/07/29/buffalo-bills-training-camp-tyrell-shavers-marquez-valdes-scantling/
-
-**No, Wall Street, The Treasury Isn’t Rigging the Economy for Democrats**\
-`Some financiers are seeing partisan corruption where it doesn’t exist.`\
-https://nytimes.com/2024/07/29/opinion/treasury-janet-yellen-roubini.html
 
