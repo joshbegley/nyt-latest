@@ -1,3 +1,7 @@
+**3 Arrested in Gang-Related Murder of Rapper in Florida**\
+`The authorities said five people traveled from Jacksonville to Tampa in to “locate and kill” the rapper known as Julio Foolio. Three of them are in custody on murder charges.`\
+https://nytimes.com/2024/07/29/us/julio-foolio-murder-arrests.html
+
 **MLB Trade Grades: Who got the best of Dodgers-White Sox-Cardinals three-team deal?**\
 `The trade sent Erick Fedde to the Cardinals, Tommy Edman to the Dodgers, and Miguel Vargas to the White Sox, among others.`\
 https://nytimes.com/athletic/5666588/2024/07/29/mlb-trade-grades-dodgers-white-sox-cardinals-fedde/
