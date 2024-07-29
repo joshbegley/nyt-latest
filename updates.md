@@ -1,3 +1,11 @@
+**El Chapo’s Son Abducted Fellow Cartel Leader to the U.S., Officials Now Say**\
+`U.S. officials say Joaquín Guzmán López, a son of El Chapo, forced Ismael Zambada García onto a plane bound for Texas, in a case that landed the two Sinaloa cartel leaders in custody last week.`\
+https://nytimes.com/2024/07/29/world/americas/sinalo-cartel-el-mayo-joaquin-guzman-lopez.html
+
+**Browns GM shares thoughts on Chubb, Cooper's contract and the future stadium**\
+`Plus, Andrew Berry discusses Deshaun Watson's progression and the importance of Cleveland having roster depth. `\
+https://nytimes.com/athletic/5666866/2024/07/29/browns-andrew-berry-deshaun-watson-amari-cooper-nick-chubb/
+
 **Three Meteor Showers Are Active: How and When to Watch Fireball Season**\
 `The Southern Delta Aquarids and the Alpha Capricornids are reaching their peak this week. The Perseids, one of the best shows of the year, are also ramping up.`\
 https://nytimes.com/2024/07/29/science/meteor-shower-aquarids-capricornids-perseids.html
