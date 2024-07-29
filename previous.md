@@ -1,3 +1,11 @@
+**Teenager Accused of Derailing Train and Posting Crash Footage Online**\
+`Investigators said a 17-year-old charged with intentionally causing a freight train derailment in Nebraska had recorded the crash, which he then posted on YouTube.`\
+https://nytimes.com/2024/07/29/us/nebraska-teen-charged-train-crash.html
+
+**Canadian sensation Summer McIntosh wins first Olympic gold in 400-meter IM**\
+`McIntosh is the world record-holder and two-time world champion in the event and was considered the heavy favorite coming into Paris.`\
+https://nytimes.com/athletic/5665678/2024/07/29/summer-mcintosh-olympic-swimming-canada-gold-medal/
+
 **What I'm hearing about the MLB trade deadline: Phillies still looking for more relief help**\
 `Plus more on the starting pitching market and what the White Sox may do next. `\
 https://nytimes.com/athletic/5666289/2024/07/29/trade-deadline-mlb-pitching-erick-fedde/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5665268/2024/07/29/sf-giants-trade-deadline-buyer-s
 **Red Sox acquire Quinn Priester for Nick Yorke in swap with Pirates**\
 `Acquiring Priester adds to the Red Sox's young pitching depth, while Yorke heads to Pittsburgh where his path to the big leagues is clearer.`\
 https://nytimes.com/athletic/5666351/2024/07/29/red-sox-pirates-quinn-priester-nick-yorke-trade/
-
-**Riccardo Calafiori to Arsenal: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate Riccardo Calafiori's move from Bologna to Arsenal`\
-https://nytimes.com/athletic/5620074/2024/07/29/riccardo-calafiori-arsenal-transfer-ratings/
-
-**Cardinals get Fedde in three-way deal with White Sox, Dodgers**\
-`The Dodgers will receive utility player Tommy Edman and pitcher Michael Kopech while the White Sox will receive prospects.`\
-https://nytimes.com/athletic/5666322/2024/07/29/cardinals-dodgers-white-sox-trade-edman-fedde/
 

@@ -1,3 +1,11 @@
+**Teenager Accused of Derailing Train and Posting Crash Footage Online**\
+`Investigators said a 17-year-old charged with intentionally causing a freight train derailment in Nebraska had recorded the crash, which he then posted on YouTube.`\
+https://nytimes.com/2024/07/29/us/nebraska-teen-charged-train-crash.html
+
+**Canadian sensation Summer McIntosh wins first Olympic gold in 400-meter IM**\
+`McIntosh is the world record-holder and two-time world champion in the event and was considered the heavy favorite coming into Paris.`\
+https://nytimes.com/athletic/5665678/2024/07/29/summer-mcintosh-olympic-swimming-canada-gold-medal/
+
 **What I'm hearing about the MLB trade deadline: Phillies still looking for more relief help**\
 `Plus more on the starting pitching market and what the White Sox may do next. `\
 https://nytimes.com/athletic/5666289/2024/07/29/trade-deadline-mlb-pitching-erick-fedde/
