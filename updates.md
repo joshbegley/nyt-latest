@@ -1,3 +1,7 @@
+**Full Time: U.S. trio powers knockouts bid**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
+https://nytimes.com/athletic/5666045/2024/07/29/uswnt-germany-olympics-canada-drones-full-time/
+
 **White House warns Israel against escalation after rocket attack.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/07/29/world/israel-gaza-war-lebanon-hezbollah/white-house-warns-israel-against-escalation-after-rocket-attack
