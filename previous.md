@@ -1,3 +1,7 @@
+**Ravens fans: Help us with our guide to M&T Bank Stadium's game day experience**\
+`Let us know about your experiences at Ravens games. `\
+https://nytimes.com/athletic/5664168/2024/07/29/ravens-stadium-fan-survey/
+
 **What is the Golan Heights?**\
 `By Alissa J. Rubin`\
 https://nytimes.com/live/2024/07/29/world/israel-gaza-war-lebanon-hezbollah/what-is-golan-heights
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5664126/2024/07/29/guardians-phillies-series-win-tr
 **How J.J. McCarthy’s parents nurtured his meteoric rise to the NFL**\
 `Jim and Megan McCarthy took a non-traditional approach to helping their son achieve his dreams: They allowed him to be a kid.`\
 https://nytimes.com/athletic/5664723/2024/07/29/jj-mccarthy-vikings-michigan-parents/
-
-**What will the Blackhawks lineup look like this year? And in three years? Lazerus mailbag, Part II**\
-`Also in the mailbag: Laurent Brossoit's chances of another extension and expectations for Luke Richardson.`\
-https://nytimes.com/athletic/5664832/2024/07/29/blackhawks-lineup-projection-mailbag/
 
