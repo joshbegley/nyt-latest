@@ -1,3 +1,7 @@
+**U.S. wins bronze in men's gymnastics behind Nedoroscik's clutch performance**\
+`The bronze is Team USA's first medal in men's gymnastics in 16 years.`\
+https://nytimes.com/athletic/5666340/2024/07/29/mens-gymnastics-olympics-results-usa-medal-stephen-nedoroscik/
+
 **The Giants could buy and sell. If they do, these should be their acquisition targets**\
 `The Giants could amass prospects in deals involving top players like Blake Snell and then flip them for established major leaguers.`\
 https://nytimes.com/athletic/5665268/2024/07/29/sf-giants-trade-deadline-buyer-seller-targets/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/29/world/americas/countries-concern-venezuela-electi
 **Texans' Denico Autry suspended 6 games for banned substance**\
 `The 34-year-old defensive lineman is coming off one of his most productive seasons where he logged a career-high 11 1/2 sacks in 2023.`\
 https://nytimes.com/athletic/5666293/2024/07/29/denico-autry-suspension-texans/
-
-**Why the Kamala Harris of Four Years Ago Could Haunt Her in 2024**\
-`She ran to the left as progressive ideas dominated the last competitive Democratic primary. Now, in a tough general election, Republicans are digging up her old stances.`\
-https://nytimes.com/2024/07/29/us/politics/kamala-harris-2020-positions.html
 
