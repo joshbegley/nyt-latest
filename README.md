@@ -1,3 +1,7 @@
+**Colts DE Samson Ebukam suffers season-ending Achilles injury**\
+`Ebukam led the Colts in sacks last season with 9.5. `\
+https://nytimes.com/athletic/5666343/2024/07/29/indianapolis-colts-samson-ebukam-achilles/
+
 **Eno's take on Erick Fedde trade: Is Cardinals' new righty a postseason starter?**\
 `If the Cardinals make it to the postseason, is Fedde a front-line option for them?`\
 https://nytimes.com/athletic/5666440/2024/07/29/erick-fedde-trade-cardinals-postseason-starter/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/29/upshot/olympics-medal-table-paris.htm
 **U.S. wins bronze in men's gymnastics behind Nedoroscik's clutch performance**\
 `The bronze is Team USA's first medal in men's gymnastics in 16 years.`\
 https://nytimes.com/athletic/5666340/2024/07/29/mens-gymnastics-olympics-results-usa-medal-stephen-nedoroscik/
-
-**The Giants could buy and sell. If they do, these should be their acquisition targets**\
-`The Giants could amass prospects in deals involving top players like Blake Snell and then flip them for established major leaguers.`\
-https://nytimes.com/athletic/5665268/2024/07/29/sf-giants-trade-deadline-buyer-seller-targets/
 
