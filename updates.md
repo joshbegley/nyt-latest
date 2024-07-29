@@ -1,3 +1,7 @@
+**Israeli Troops Held for Questioning in Prisoner Abuse Investigation**\
+`At least nine reservists were detained at a military base holding thousands of Gazans, prompting ultranationalists to break into the base in protest.`\
+https://nytimes.com/2024/07/29/world/middleeast/prisoner-abuse-israeli-troops-questioned.html
+
 **The Windup: Trades flying before tomorrow's deadline**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5666023/2024/07/29/mlb-trade-deadline-the-windup/

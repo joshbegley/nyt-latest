@@ -1,3 +1,7 @@
+**Israeli Troops Held for Questioning in Prisoner Abuse Investigation**\
+`At least nine reservists were detained at a military base holding thousands of Gazans, prompting ultranationalists to break into the base in protest.`\
+https://nytimes.com/2024/07/29/world/middleeast/prisoner-abuse-israeli-troops-questioned.html
+
 **The Windup: Trades flying before tomorrow's deadline**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5666023/2024/07/29/mlb-trade-deadline-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5665186/2024/07/29/reyes-moronta-death-mlb/
 **Two More New York Theaters to Share Space**\
 `The prestigious downtown nonprofit Soho Rep will share space with Playwrights Horizons in Midtown Manhattan while figuring out a longer-term plan.`\
 https://nytimes.com/2024/07/29/theater/soho-rep-theater-real-estate.html
-
-**NJ/NY Gotham FC complete signing of Chelsea's Jess Carter**\
-`NWSL club NJ/NY Gotham FC have completed the signing of England international Jess Carter from Chelsea.`\
-https://nytimes.com/athletic/5665932/2024/07/29/jess-carter-gotham-transfer-chelsea/
 
