@@ -1,3 +1,7 @@
+**Yankees trade deadline notes: Spencer Jones, Jazz Chisholm Jr., Gleyber Torres**\
+`The Chisholm deal is the only trade the Yankees have made with Tuesday’s deadline nearing. Here are other things we kept an eye on Sunday.`\
+https://nytimes.com/athletic/5665198/2024/07/29/yankees-trade-deadline-spencer-jones-jazz-chisholm-gleyber-torres/
+
 **Evans: Inside the atmosphere at LIV Golf UK, from the party to the golf**\
 `Tens of thousands poured into JCB Golf & Country Club for the tour's first event outside of London. Not all of them had the same purpose.`\
 https://nytimes.com/athletic/5664569/2024/07/29/liv-golf-uk-party-rahm/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5665183/2024/07/29/red-sox-struggles-trade-deadline
 **Liverpool's CEO on life after Klopp, stadium expansion, PSR and U.S. tour**\
 `The Athletic sits down with Liverpool's CEO for a wide-ranging interview`\
 https://nytimes.com/athletic/5652585/2024/07/29/billy-hogan-liverpool-interview/
-
-**Why Barca's interest in Williams and Olmo is more complex than it seems**\
-`The Athletic has reported on Barca's interest in the Spain duo, but how should we be reading the situation?`\
-https://nytimes.com/athletic/5658391/2024/07/29/barcelona-transfers-williams-olmo/
 
