@@ -1,3 +1,7 @@
+**Cardinals get Fedde in three-way deal with White Sox, Dodgers**\
+`The Dodgers will receive utility player Tommy Edman while `\
+https://nytimes.com/athletic/5666322/2024/07/29/cardinals-dodgers-white-sox-trade-edman-fedde/
+
 **Judge John Hodgman on Proper Top-Sheet Direction**\
 `Can a spouse be compelled to make the bed the right way?`\
 https://nytimes.com/2024/07/29/magazine/judge-john-hodgman-on-proper-top-sheet-direction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/29/nyregion/nj-fort-lee-police-shooting.html
 **What happens if the Seine isn't clean enough for Olympic triathlon swimming?**\
 `With the Olympic triathlons set for Tuesday and Wednesday, the clock is ticking to get the Seine cleaned up. Here's the latest.`\
 https://nytimes.com/athletic/5666012/2024/07/29/triathlon-seine-clean-pollution-paris-olympics-2024/
-
-**How Tyus Jones can help boost the Suns' hopes for contention**\
-`Jones doesn't fix all of Phoenix’s problems, but he should help maximize the Suns' offensive potential.`\
-https://nytimes.com/athletic/5665184/2024/07/29/tyus-jones-phoenix-suns-nba/
 
