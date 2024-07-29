@@ -1,3 +1,7 @@
+**Giants sweep Rockies, make final case to see season through: "We all believe in each other"**\
+`The Giants won't play again until after the trade deadline. Did they do enough against the Rockies to prevent a sell-off?`\
+https://nytimes.com/athletic/5665078/2024/07/28/sf-giants-sweep-rockies-trade-deadline/
+
 **‘House of the Dragon’ Season 2, Episode 7 Recap: Soothing the Savage Beasts**\
 `Not everyone gets to have a dragon. But maybe more people get to have dragons than everyone thought?`\
 https://nytimes.com/2024/07/28/arts/television/house-of-the-dragon-recap-episode-7.html
