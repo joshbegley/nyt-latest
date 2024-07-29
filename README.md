@@ -1,3 +1,7 @@
+**Full Time: U.S. trio powers knockouts bid**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
+https://nytimes.com/athletic/5666045/2024/07/29/uswnt-germany-olympics-canada-drones-full-time/
+
 **White House warns Israel against escalation after rocket attack.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/07/29/world/israel-gaza-war-lebanon-hezbollah/white-house-warns-israel-against-escalation-after-rocket-attack
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/29/world/middleeast/prisoner-abuse-israeli-troops-qu
 **The Windup: Trades flying before tomorrow's deadline**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5666023/2024/07/29/mlb-trade-deadline-the-windup/
-
-**Peaty tests positive for Covid-19 day after Olympic silver medal**\
-`Team GB has confirmed that swimmer Adam Peaty has tested positive for Covid-19 following his silver medal in the men&#8217;s 100m breaststroke on Sunday.`\
-https://nytimes.com/athletic/5666004/2024/07/29/adam-peaty-covid-paris-olympics/
 
