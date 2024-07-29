@@ -1,3 +1,7 @@
+**3 Men With White Supremacist Ties Sentenced in Plan to Attack Power Station**\
+`Two of the men met through a neo-Nazi online forum and recruited other people to join their scheme, which was rooted in white supremacist ideology, prosecutors said.`\
+https://nytimes.com/2024/07/28/us/energy-grid-attack-plot-white-supremacy.html
+
 **Venezuela Awaits Result in Pivotal Election That Could Oust Autocrat**\
 `Sunday’s vote could end a generation of control by Venezuela’s socialist party. It could also usher in a period of profound uncertainty.`\
 https://nytimes.com/2024/07/28/world/americas/venezuela-election-results.html
