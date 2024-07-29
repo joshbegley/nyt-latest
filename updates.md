@@ -1,3 +1,7 @@
+**Wolfgang Rihm, Prolific Contemporary Classical Music Composer, Dies at 72**\
+`Likened to a “court composer” for Germany, he wrote more than 500 pieces and was considered one of the most original and independent musical voices in Europe.`\
+https://nytimes.com/2024/07/29/arts/music/wolfgang-rihm-dead.html
+
 **Biden Pushed for Major Changes to the Supreme Court**\
 `Also, Maduro was declared the winner in a disputed election. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/07/29/briefing/biden-supreme-court-venezuela-election.html
