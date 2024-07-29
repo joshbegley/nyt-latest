@@ -1,3 +1,7 @@
+**N.R.A. Avoids Financial Oversight but Faces Pressure to Reform**\
+`In a ruling on Monday, a New York judge said he wanted further assurances that the gun rights group would change its administrative practices.`\
+https://nytimes.com/2024/07/29/nyregion/nra-monitor-ruling-lapierre.html
+
 **Lions training camp: Taylor Decker's extension, rookie corners growing together and more**\
 `Plus, Jameson Williams slows down to focus on his development. `\
 https://nytimes.com/athletic/5666399/2024/07/29/lions-training-camp-taylor-decker-contract-jameson-williams-cornerbacks/

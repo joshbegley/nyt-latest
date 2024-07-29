@@ -1,3 +1,7 @@
+**Ryan Murphy surprised with poolside gender reveal after race**\
+`"We both thought it was going to be a boy," Murphy said. "Everything is going to be dedicated to that little girl.”`\
+https://nytimes.com/athletic/5666815/2024/07/29/ryan-murphy-olympics-swim-gender-reveal/
+
 **N.R.A. Avoids Financial Oversight but Faces Pressure to Reform**\
 `In a ruling on Monday, a New York judge said he wanted further assurances that the gun rights group would change its administrative practices.`\
 https://nytimes.com/2024/07/29/nyregion/nra-monitor-ruling-lapierre.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5666523/2024/07/29/patriots-matthew-judon-davon-god
 **Artificial Intelligence Gives Weather Forecasters a New Edge**\
 `The brainy machines are predicting global weather patterns with new speed and precision, doing in minutes and seconds what once took hours.`\
 https://nytimes.com/interactive/2024/07/29/science/ai-weather-forecast-hurricane.html
-
-**Map: 4.9-Magnitude Earthquake Strikes Southern California**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2024/07/29/us/quake-tracker-california-barstow.html
 
