@@ -1,3 +1,7 @@
+**Astros near deal with Blue Jays to add Yusei Kikuchi to beleaguered rotation: sources**\
+`HOUSTON — The Astros supplemented their injury-ravaged starting rotation with one of the best rental starters available on the trade market.`\
+https://nytimes.com/athletic/5667017/2024/07/29/yusei-kikuchi-blue-jays-trade/
+
 **Team USA's biggest advantage in Olympic win over Japan: They have A'ja and Stewie**\
 `Team USA started off their Olympic run with a breezy win over Japan that showed just how tough their big advantage will be to overcome.`\
 https://nytimes.com/athletic/5667021/2024/07/29/us-womens-basketball-olympics-japan-aja-wilson-breanna-stewart/
