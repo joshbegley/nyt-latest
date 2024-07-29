@@ -1,3 +1,7 @@
+**F.D.A. Approves Blood Test for Colon Cancer Detection**\
+`While not a perfect alternative to colonoscopies, experts hope the test could lead to more people getting screened for colorectal cancers.`\
+https://nytimes.com/2024/07/29/health/colon-cancer-blood-test-shield.html
+
 **The Pulse: A surprise U.S. juggernaut**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/5665254/2024/07/29/uswnt-olympics-soccer-basketball-kevin-durant-pulse/
