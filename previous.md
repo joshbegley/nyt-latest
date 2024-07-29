@@ -1,3 +1,7 @@
+**Quotation of the Day: First Up, First Out**\
+`Quotation of the Day for Monday, July 29, 2024.`\
+https://nytimes.com/2024/07/29/pageoneplus/quotation-of-the-day-first-up-first-out.html
+
 **Think N.Y.C.’s Roads Are Crowded? Good Luck on the Sidewalks.**\
 `A researcher has measured how “claustrophobic” New York’s sidewalks are by gathering data on all of the people, benches, trash cans, bus shelters, bicycle racks and clutter in the way.`\
 https://nytimes.com/2024/07/29/nyregion/street-wars-crowded-sidewalks-times-square.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5664706/2024/07/29/nick-pope-england-omission/
 **Injury concerns, Chermiti and Iroegbunam shine, O'Brien on way? Everton's plans taking shape**\
 `Sean Dyche's squad is stretched but the manager has seen plenty of positives in pre-season - and another signing is close`\
 https://nytimes.com/athletic/5663027/2024/07/29/everton-pre-season-sean-dyche/
-
-**Wiley is a fast and flashy full-back - with flaws to iron out after transfer to Chelsea**\
-`Wiley is another Chelsea signing with an eye on the future — he's part of the US squad at the Olympics and heading to Strasbourg on loan`\
-https://nytimes.com/athletic/5662422/2024/07/29/caleb-wiley-chelsea-transfer-usmnt-olympics/
 

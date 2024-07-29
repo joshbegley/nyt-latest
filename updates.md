@@ -1,3 +1,7 @@
+**Quotation of the Day: First Up, First Out**\
+`Quotation of the Day for Monday, July 29, 2024.`\
+https://nytimes.com/2024/07/29/pageoneplus/quotation-of-the-day-first-up-first-out.html
+
 **Think N.Y.C.’s Roads Are Crowded? Good Luck on the Sidewalks.**\
 `A researcher has measured how “claustrophobic” New York’s sidewalks are by gathering data on all of the people, benches, trash cans, bus shelters, bicycle racks and clutter in the way.`\
 https://nytimes.com/2024/07/29/nyregion/street-wars-crowded-sidewalks-times-square.html
