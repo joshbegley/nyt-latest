@@ -1,3 +1,11 @@
+**Science Goes to the Olympics**\
+`Six Olympic athletes described the delicate mechanics behind their chosen event. Here’s how they do what they do.`\
+https://nytimes.com/interactive/2024/07/29/science/paris-olympics-science.html
+
+**It’s Silicon Valley vs. Silicon Valley as Political Fights Escalate**\
+`Elon Musk, Reid Hoffman and other tech billionaires, many of whom are part of the “PayPal Mafia,” are openly brawling with one another over politics as tensions rise.`\
+https://nytimes.com/2024/07/29/technology/silicon-valley-politics-elon-musk-reid-hoffman.html
+
 **Lions, LT Taylor Decker agree to 3-year, $60 million extension**\
 `Taylor Decker is one of the faces of the franchise.`\
 https://nytimes.com/athletic/5665843/2024/07/29/detroit-lions-taylor-decker-contract-extension/
