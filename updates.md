@@ -1,3 +1,7 @@
+**Britain’s Labour Government Says It Inherited a $28 Billion Budget Hole**\
+`Rachel Reeves, the chancellor of the Exchequer, cut some infrastructure funding and pensions benefits, adding that more “difficult decisions” would come later this year.`\
+https://nytimes.com/2024/07/29/business/britain-budget-spending-rachel-reeves.html
+
 **Fatal Police Shooting of Woman in New Jersey Is Under Investigation**\
 `A woman was shot to death by a police officer responding to a report of a mental health crisis in Fort Lee, N.J., early Sunday morning.`\
 https://nytimes.com/2024/07/29/nyregion/nj-fort-lee-police-shooting.html
