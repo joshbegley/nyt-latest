@@ -27,7 +27,7 @@ https://nytimes.com/athletic/5654159/2024/07/29/titans-stadium-fan-survey/
 https://nytimes.com/athletic/5659021/2024/07/29/bears-stadium-fan-survey/
 
 **Cowboys fans: Help us with our guide to AT&T Stadium's game day experience**\
-`We invite all Cowboys fans to share their thoughts about the AT&T Stadium game day experience.`\
+`The Athletic will be publishing stadium guides for all 32 NFL teams just ahead of the Week 1 kickoff, and we’d like Cowboys fans to answer a few questions about the AT&amp;T Stadium game day experience.`\
 https://nytimes.com/athletic/5661217/2024/07/29/cowboys-stadium-fan-survey/
 
 **Olympic women's basketball: Nigeria pulls off shocker vs. Australia**\
