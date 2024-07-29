@@ -1,3 +1,7 @@
+**The Giants could buy and sell. If they do, these should be their acquisition targets**\
+`The Giants could amass prospects in deals involving top players like Blake Snell and then flip them for established major leaguers.`\
+https://nytimes.com/athletic/5665268/2024/07/29/sf-giants-trade-deadline-buyer-seller-targets/
+
 **Red Sox acquire Quinn Priester for Nick Yorke in swap with Pirates**\
 `Acquiring Priester adds to the Red Sox's young pitching depth, while Yorke heads to Pittsburgh where his path to the big leagues is clearer.`\
 https://nytimes.com/athletic/5666351/2024/07/29/red-sox-pirates-quinn-priester-nick-yorke-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5666293/2024/07/29/denico-autry-suspension-texans/
 **Why the Kamala Harris of Four Years Ago Could Haunt Her in 2024**\
 `She ran to the left as progressive ideas dominated the last competitive Democratic primary. Now, in a tough general election, Republicans are digging up her old stances.`\
 https://nytimes.com/2024/07/29/us/politics/kamala-harris-2020-positions.html
-
-**Britain’s Labour Government Says It Inherited a $28 Billion Budget Hole**\
-`Rachel Reeves, the chancellor of the Exchequer, cut some infrastructure funding and pensions benefits, adding that more “difficult decisions” would come later this year.`\
-https://nytimes.com/2024/07/29/business/britain-budget-spending-rachel-reeves.html
 
