@@ -1,3 +1,11 @@
+**Wild sign Brock Faber to largest extension in franchise history**\
+`Faber's $8.5 million annual average value is also the largest for a defenseman in Wild history.`\
+https://nytimes.com/athletic/5650780/2024/07/29/wild-brock-faber-contract/
+
+**Min Jin Lee Looks Back at ‘Pachinko’**\
+`The second in a series of conversations with authors appearing on our “Best Books of the 21st Century” list.`\
+https://nytimes.com/2024/07/29/books/review/min-jin-lee-pachinko-podcast.html
+
 **Aides in Congress Create Dissent Channel to Protest Support for Israel**\
 `An anonymous group of junior staff members has modeled its effort on an internal State Department messaging system, hoping to create an outlet for calls for a cease-fire in the war in Gaza.`\
 https://nytimes.com/2024/07/29/us/politics/israel-congress-staff-dissent-channel.html
