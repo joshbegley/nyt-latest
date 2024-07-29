@@ -1,4 +1,12 @@
 **Cardinals get Fedde in three-way deal with White Sox, Dodgers**\
+`The Dodgers will receive utility player Tommy Edman while the White Sox will receive prospects.`\
+https://nytimes.com/athletic/5666322/2024/07/29/cardinals-dodgers-white-sox-trade-edman-fedde/
+
+**Nations Denounce Venezuelan Election, Demanding Transparency**\
+`The United States and many Latin American countries said President Nicolás Maduro cannot claim victory without the full release of vote counts.`\
+https://nytimes.com/2024/07/29/world/americas/countries-concern-venezuela-election-results.html
+
+**Cardinals get Fedde in three-way deal with White Sox, Dodgers**\
 `The Dodgers will receive utility player Tommy Edman while `\
 https://nytimes.com/athletic/5666322/2024/07/29/cardinals-dodgers-white-sox-trade-edman-fedde/
 

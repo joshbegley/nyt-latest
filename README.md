@@ -1,5 +1,5 @@
 **Cardinals get Fedde in three-way deal with White Sox, Dodgers**\
-`The Dodgers will receive utility player Tommy Edman while the White Sox will receive prospects.`\
+`The Dodgers will receive utility player Tommy Edman and pitcher Michael Kopech while the White Sox will receive prospects.`\
 https://nytimes.com/athletic/5666322/2024/07/29/cardinals-dodgers-white-sox-trade-edman-fedde/
 
 **Judge John Hodgman on Proper Top-Sheet Direction**\
