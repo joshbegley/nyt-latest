@@ -1,3 +1,7 @@
+**Guardians to acquire Alex Cobb from Giants to fortify their rotation: Sources**\
+`The Cleveland Guardians added a veteran presence to their rotation, acquiring right-hander Alex Cobb from the San Francisco Giants for left-handed pitching prospect Jacob Bresnahan and a player to be named later, league sources confirmed to The Athletic.`\
+https://nytimes.com/athletic/5669385/2024/07/30/guardians-sf-giants-alex-cobb-trade/
+
 **Astros acquire reliever Caleb Ferguson in trade with Yankees: Sources**\
 `The Yankees traded reliever Caleb Ferguson to the Astros for international bonus pool money and a minor leaguer, according to sources.`\
 https://nytimes.com/athletic/5669408/2024/07/30/caleb-ferguson-astros-yankees-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/30/nyregion/adams-randy-mastro-nyc-city-council.html
 **Simone Biles, Team USA gymnastics golden once again**\
 `Italy took silver, and Brazil won bronze.`\
 https://nytimes.com/athletic/5668946/2024/07/30/olympics-gymnastics-womens-team-final-result-simone-biles/
-
-**MLB Trade Grades: How much does Lucas Sims boost the Red Sox bullpen?**\
-`The Red Sox bullpen was a strength early in the season — and an undeniable problem in recent weeks. Sims is a much-needed bandage.`\
-https://nytimes.com/athletic/5669169/2024/07/30/mlb-trade-grades-red-sox-reds-lucas-sims/
 
