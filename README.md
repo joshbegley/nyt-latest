@@ -18,7 +18,7 @@ https://nytimes.com/athletic/5668717/2024/07/30/tierna-davidson-injury-uswnt-aus
 `As part of The Athletic 500, we analyse and rate Ben Brereton Diaz's move to Southampton`\
 https://nytimes.com/athletic/5665362/2024/07/30/ben-brereton-diaz-southampton-transfer-ratings/
 
-**'I'm getting cheated on this court': The rule that ended Coco Gauff's Olympics**\
+**The tennis rule that helped to end Coco Gauff's Olympics run**\
 `Facing break point, a disputed umpiring decision changed the trajectory of the US Open champion's Olympic campaign`\
 https://nytimes.com/athletic/5668359/2024/07/30/coco-gauff-olympics-tennis-umpire-call-rule/
 

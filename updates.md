@@ -1,3 +1,7 @@
+**Chelsea to appoint Delroy Ebanks as new academy recruitment chief**\
+`Chelsea are set to appoint Newcastle United scout Delroy Ebanks as their head of academy recruitment as an overhaul of the youth structure at Stamford Bridge approaches completion.`\
+https://nytimes.com/athletic/5668259/2024/07/30/chelsea-delroy-ebanks-newcastle/
+
 **‘I Was a Childless Cat Lady’: Women Respond to JD Vance**\
 `Women decry his 2021 comment about “miserable” childless women. Also: Clearing homeless encampments; food and gas prices; wildfire names.`\
 https://nytimes.com/2024/07/30/opinion/jd-vance-childless-cat-ladies.html
