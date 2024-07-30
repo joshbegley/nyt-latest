@@ -1,4 +1,4 @@
-**Trump Invitation to Conference for Black Journalists Sets Off Debate**\
+**Trump Invitation to Conference for Black Journalists Sets Off Intense Debate**\
 `The National Association of Black Journalists has a history of inviting presidential candidates to speak, but many of its members are bristling at Donald Trump’s scheduled session.`\
 https://nytimes.com/2024/07/30/business/media/trump-nabj-black-journalists.html
 
