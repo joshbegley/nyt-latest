@@ -1,3 +1,7 @@
+**Napoli and Chelsea continue talks over Lukaku transfer, Osimhen loan**\
+`Napoli are in ongoing discussions with Chelsea to sign Romelu Lukaku, while dialogue between the clubs also continues about a deal for Victor Osimhen to head in the opposite direction.`\
+https://nytimes.com/athletic/5648308/2024/07/30/romelu-lukaku-napoli-transfer-chelsea-osimhen/
+
 **Deadly Landslides Hit India**\
 `The landslides left behind destruction in Kerala, where some people worked to clear a pile of uprooted trees as muddy waters flowed around a village.`\
 https://nytimes.com/video/world/asia/100000009599770/india-landslide-kerala.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5665446/2024/07/30/amanda-staveley-tottenham/
 **Word of the Day: sluggish**\
 `This word has appeared in 245 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/07/30/learning/word-of-the-day-sluggish.html
-
-**Braves' Grant Holmes won't forget his gem of a first MLB start and a moment with his dad**\
-`Holmes, a 28-year-old rookie, got his first seven outs via strikeout on an emotional day. `\
-https://nytimes.com/athletic/5667952/2024/07/30/braves-grant-holmes-strikeouts/
 
