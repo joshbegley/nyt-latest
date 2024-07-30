@@ -1,3 +1,11 @@
+**How YouTube Took Over Our Television Screens**\
+`The platform first known for viral videos now attracts more viewers on TVs than Netflix, Disney+ or Amazon Prime Video.`\
+https://nytimes.com/2024/07/30/technology/youtube-streaming-tv.html
+
+**Dillon Brooks, international villain, talks Team Canada and FIBA/NBA differences**\
+`The Houston Rockets instigator has found that the international style of play fits what he does best. `\
+https://nytimes.com/athletic/5668728/2024/07/30/dillon-brooks-canada-olympics/
+
 **Gaza’s Only Humanitarian Zone Has Shrunk by a Fifth Recently**\
 `Israel’s military has redrawn the zone’s borders twice, accusing Hamas of using it to regroup and launch missiles.`\
 https://nytimes.com/2024/07/30/world/middleeast/gaza-humanitarian-zone-israel.html

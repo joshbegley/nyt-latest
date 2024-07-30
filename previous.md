@@ -1,3 +1,11 @@
+**How YouTube Took Over Our Television Screens**\
+`The platform first known for viral videos now attracts more viewers on TVs than Netflix, Disney+ or Amazon Prime Video.`\
+https://nytimes.com/2024/07/30/technology/youtube-streaming-tv.html
+
+**Dillon Brooks, international villain, talks Team Canada and FIBA/NBA differences**\
+`The Houston Rockets instigator has found that the international style of play fits what he does best. `\
+https://nytimes.com/athletic/5668728/2024/07/30/dillon-brooks-canada-olympics/
+
 **Gaza’s Only Humanitarian Zone Has Shrunk by a Fifth Recently**\
 `Israel’s military has redrawn the zone’s borders twice, accusing Hamas of using it to regroup and launch missiles.`\
 https://nytimes.com/2024/07/30/world/middleeast/gaza-humanitarian-zone-israel.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/30/dining/kenny-ziggys-deli-lost-at-sea.html
 **Is Decaffeinated Coffee Bad for You?**\
 `Some worry that a chemical used to strip caffeine from coffee beans can increase the risk of cancer. Experts explain if you should be concerned.`\
 https://nytimes.com/2024/07/30/well/decaf-coffee-chemicals-safety.html
-
-**Luguentz Dort, RJ Barrett shine and other takeaways from Canada's win over Australia**\
-`With Shai Gilgeous-Alexander in foul trouble, Canada's secondary players found a way to thrive. `\
-https://nytimes.com/athletic/5668681/2024/07/30/canada-basketball-olympics-luguentz-dort-rj-barrett/
-
-**Meta Reaches $1.4 Billion Settlement With Texas Over Privacy Violations**\
-`The parent company of Facebook and Instagram faced allegations that it had collected facial identification information on millions of users in violation of a state law.`\
-https://nytimes.com/2024/07/30/technology/meta-texas-privacy-settlement.html
 
