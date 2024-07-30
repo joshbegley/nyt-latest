@@ -1,3 +1,7 @@
+**France Aligns With Morocco on Western Sahara, Angering Algeria**\
+`President Emmanuel Macron wrote to King Mohammed VI that France approved a plan for the disputed territory’s autonomy under Moroccan sovereignty.`\
+https://nytimes.com/2024/07/30/world/europe/france-morocco-western-sahara.html
+
 **Bangladesh Accuses Tens of Thousands of Crimes in Sweep to Break Protesters**\
 `Charges include vandalism, arson, theft, trespassing and damage to state property. A rights group called it a witch hunt, following an initial crackdown in which more than 200 people were killed.`\
 https://nytimes.com/2024/07/30/world/asia/bangladesh-protests-charges-crime.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5667198/2024/07/30/brock-purdy-tom-brady-49ers/
 **Sex Harassment Suit Is Fourth This Year for a Top Adams Adviser**\
 `The latest allegations against Timothy Pearson, a confidant of Mayor Eric Adams, were made by a high-ranking official in the New York Police Department.`\
 https://nytimes.com/2024/07/30/nyregion/nypd-pearson-adams-lawsuit.html
-
-**Books by Rachel Kushner and Richard Powers Are Among Booker Prize Nominees**\
-`There are six American novels in the running for the prestigious British literary award, but only two by U.K. authors.`\
-https://nytimes.com/2024/07/30/books/booker-prize-2024-longlist.html
 
