@@ -1,3 +1,15 @@
+**Who Is Shujun Wang, the Queens Man Accused of Spying for China?**\
+`Mr. Wang is on stand trial this week in Brooklyn federal court. He vigorously disputes the charges against him.`\
+https://nytimes.com/2024/07/30/nyregion/shujun-wang-china-spying.html
+
+**Brad Lander, New York City’s Comptroller, Will Run Against Mayor Adams**\
+`Mr. Lander, a progressive Democrat from Brooklyn, is the most prominent candidate to challenge Mayor Eric Adams in next year’s primary.`\
+https://nytimes.com/2024/07/30/nyregion/brad-lander-mayor-adams.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/30/crosswords/spelling-bee-forum.html
+
 **The Transfer DealSheet: United right-back update, Arsenal post-Calafiori plans**\
 `Welcome to the latest edition of the Transfer DealSheet, your guide to everything going on in the world of transfers`\
 https://nytimes.com/athletic/5665438/2024/07/30/manchester-united-transfer-latest-arsenal-liverpool-real-madrid-barcelona/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5666017/2024/07/30/seine-river-water-quality-olympi
 **Yusei Kikuchi arrives at an enormous cost and is already under immense pressure**\
 `The three prospects shipped away for Kikuchi are ranked within the top 12 of the Astros' farm system.`\
 https://nytimes.com/athletic/5667921/2024/07/30/yusei-kikuchi-astros/
-
-**Landslides in Southern India Kill at Least 23**\
-`Rescue workers struggled to reach isolated villages in the state of Kerala, where bridges and roads were swept away after days of heavy rain.`\
-https://nytimes.com/2024/07/30/world/asia/india-landslides-kerala-rain.html
-
-**Giants trade Jorge Soler and Luke Jackson, but larger fire sale not expected**\
-`Though their first move was a "sell," the Giants expect to do a blend of buying and selling ahead of Tuesday's trade deadline.`\
-https://nytimes.com/athletic/5667928/2024/07/30/sf-giants-jorge-soler-luke-jackson-trade/
-
-**MLB Trade Grades: With Jorge Soler deal, Braves get the gang back together**\
-`Soler is valuable to the Braves because of his bat. But with Marcell Ozuna already in the fold, Soler isn't a perfect fit.`\
-https://nytimes.com/athletic/5667899/2024/07/30/mlb-trade-grades-jorge-soler-braves-giants/
 

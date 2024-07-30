@@ -1,3 +1,15 @@
+**Who Is Shujun Wang, the Queens Man Accused of Spying for China?**\
+`Mr. Wang is on stand trial this week in Brooklyn federal court. He vigorously disputes the charges against him.`\
+https://nytimes.com/2024/07/30/nyregion/shujun-wang-china-spying.html
+
+**Brad Lander, New York City’s Comptroller, Will Run Against Mayor Adams**\
+`Mr. Lander, a progressive Democrat from Brooklyn, is the most prominent candidate to challenge Mayor Eric Adams in next year’s primary.`\
+https://nytimes.com/2024/07/30/nyregion/brad-lander-mayor-adams.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/30/crosswords/spelling-bee-forum.html
+
 **The Transfer DealSheet: United right-back update, Arsenal post-Calafiori plans**\
 `Welcome to the latest edition of the Transfer DealSheet, your guide to everything going on in the world of transfers`\
 https://nytimes.com/athletic/5665438/2024/07/30/manchester-united-transfer-latest-arsenal-liverpool-real-madrid-barcelona/
