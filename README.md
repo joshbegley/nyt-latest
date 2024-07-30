@@ -1,3 +1,11 @@
+**Hong Kong Taunts Italy With Pineapple Pizza After Olympics Fencing Win**\
+`After a fencer from Hong Kong beat an Italian for a gold medal, Pizza Hut’s offer of free pineapple toppings in Hong Kong was the city’s second jab at Italy.`\
+https://nytimes.com/2024/07/30/world/olympics/hong-kong-italy-fencing-pineapple-pizza.html
+
+**The Stranger in Seattle Gets a New Owner, With Plans for Expansion**\
+`Noisy Creek, a new media company, has bought The Stranger and The Portland Mercury, two of the country’s best known alternative weeklies.`\
+https://nytimes.com/2024/07/30/business/media/the-stranger-seattle-new-owner.html
+
 **England Women announce USWNT, Germany friendlies**\
 `England Women have announced four home friendlies for later this year including games against Germany and the USWNT.`\
 https://nytimes.com/athletic/5668335/2024/07/30/england-uswnt-germany-friendly/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5668338/2024/07/30/coco-gauff-olympics-tennis-donna
 **For the Pistons to surprise this season, growth on defense is a must**\
 `Detroit addressed offense this summer. Great. What about the other side of the court?`\
 https://nytimes.com/athletic/5667947/2024/07/30/pistons-defense-bickerstaff-cunningham/
-
-**Inside Silicon Valley’s Political Rift**\
-`The election has pit former colleagues and sometime allies against each other, as the tech industry’s libertarian wing puts its money and influence to work.`\
-https://nytimes.com/2024/07/30/business/dealbook/silicon-valley-politics.html
-
-**'We want to continue to build': 1-on-1 with Abbotsford Canucks coach Manny Malhotra**\
-`Last week, The Athletic caught up with Malhotra to discuss putting his stamp on the team, Henrik and Daniel Sedin and more.`\
-https://nytimes.com/athletic/5666611/2024/07/30/abbotsford-canucks-coach-manny-malhotra/
 
