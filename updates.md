@@ -1,3 +1,23 @@
+**Greenberg: Did White Sox GM Chris Getz whiff in his first big trade-deadline deal?**\
+`Getz, at the center of a three-team swap, didn't exactly wow people with the Sox's return. Not in a seller's market. Not with so many needs.`\
+https://nytimes.com/athletic/5667568/2024/07/30/chicago-white-sox-trade-deadline-chris-getz/
+
+**Rock stars, tradition and transfer trickery - how Villa's viral kit video came together**\
+`Villa's kit launch video has racked up four millions views in a week - it involves rock stars, a trip to Hollywood and Unai Emery`\
+https://nytimes.com/athletic/5665310/2024/07/30/aston-villa-ozzy-osbourne-geezer-butler-new-kit/
+
+**How Real Madrid's physical trainer is helping NASA with the Artemis moon programme**\
+`Nicknamed 'The Sergeant' for his unforgiving fitness methods, Pintus has visited NASA to advise them on peak human performance`\
+https://nytimes.com/athletic/5665452/2024/07/30/real-madrid-nasa-artemis-pintus/
+
+**James has the chance to prove he should retain the Chelsea captaincy**\
+`James had the armband last season but fitness and disciplinary issues have contributed to an element of doubt about whether he keeps it`\
+https://nytimes.com/athletic/5665861/2024/07/30/reece-james-chelsea-captain-maresca/
+
+**What really happens when you win an Olympic medal: 'I did not know how crazy it would be'**\
+`Commiserate the losers? Make yourself presentable? Interview by the Eiffel Tower? What do you do when you win an Olympic medal?`\
+https://nytimes.com/athletic/5666338/2024/07/30/what-really-happens-when-you-win-an-olympic-medal/
+
 **Tuesday's MLB odds, best bets: Pitching matchups, playoff odds, props and more**\
 `See pitching matchups, playoff projections, win projections and more for Tuesday's MLB games.`\
 https://nytimes.com/athletic/5666860/2024/07/30/mlb-odds-best-bets-projections-july-30/
