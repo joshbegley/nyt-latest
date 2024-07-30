@@ -1,3 +1,11 @@
+**Ralph Nader Assails Law Firm’s Vow to Exclude Some Campus Protesters**\
+`In a letter to Sullivan & Cromwell, Mr. Nader and two other prominent lawyers condemned its efforts to screen job applicants for their participation in antiwar protests.`\
+https://nytimes.com/2024/07/30/business/sullivan-cromwell-israel-protests.html
+
+**Gerrit Cole scratched from Tuesday start with fatigue, Will Warren to make MLB debut**\
+`Cole, who's been battling a stomach bug, was held out of Tuesday's start due to fatigue.`\
+https://nytimes.com/athletic/5669793/2024/07/30/gerrit-cole-scratched-will-warren-mlb-debut/
+
 **Bills training camp: Cole Bishop injury leaves Buffalo thin at safety, and more**\
 `Plus, Josh Allen's trust in Khalil Shakir stays strong, #Puntapalooza2024 rages on, and more.`\
 https://nytimes.com/athletic/5669483/2024/07/30/buffalo-bills-training-camp-cole-bishop-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5669749/2024/07/30/mlb-trade-grades-dejong-royals-w
 **A's grade out well in two deadline deals with Royals and Mets**\
 `The A's made two separate deals, acquiring two starters, a reliever and an outfielder for Lucas Erceg and Paul Blackburn.`\
 https://nytimes.com/athletic/5669757/2024/07/30/oakland-athletics-lucas-erceg-paul-blackburn-trade-analysis/
-
-**Atletico Madrid in advanced discussions with Chelsea over Gallagher deal**\
-`Atletico Madrid are in advanced discussions with Chelsea over a deal for midfielder Conor Gallagher.`\
-https://nytimes.com/athletic/5668072/2024/07/30/chelsea-conor-gallagher-atletico-transfer/
-
-**Asylum Officers’ Union Opposes Biden Border Restrictions**\
-`The group, which represents some officers in charge of carrying out President Biden’s asylum measure, said in a court filing that the policy illegally limited migrants’ protections.`\
-https://nytimes.com/2024/07/30/us/politics/asylum-officers-union-biden-border-restrictions.html
 
