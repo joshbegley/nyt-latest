@@ -1,3 +1,11 @@
+**Endangered Wild Stallion Is Euthanized After Being Struck by Vehicle**\
+`The horse, a 10-year-old stallion named Bullwinkle, was one of only 200 Banker horses, a breed on the Outer Banks in North Carolina that descended from horses brought over by Spanish explorers.`\
+https://nytimes.com/2024/07/29/us/wild-horse-bullwinkle-outer-banks-euthanized.html
+
+**Notre Dame AD 'all in' on continuing rivalry with USC**\
+`Notre Dame AD Pete Bevacqua wants to keep the school's annual rivalry game with USC after Lincoln Riley last week pondered its possible end.`\
+https://nytimes.com/athletic/5667319/2024/07/29/notre-dame-usc-football-series/
+
 **Endorse Digitally**\
 `Jeffrey Martinovic and Will Nediger host a crossword.`\
 https://nytimes.com/2024/07/29/crosswords/daily-puzzle-2024-07-30.html
