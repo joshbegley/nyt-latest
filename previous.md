@@ -1,3 +1,11 @@
+**How U.S. Olympic women's gymnastics became a true team in an often-solo sport**\
+`In a sport that pits you against each other and also on the same side, the U.S. women's gymnastics squad has come together in Paris.`\
+https://nytimes.com/athletic/5668144/2024/07/30/womens-gymnastics-team-olympics-gold-simone-biles/
+
+**Rams observations: QB Matthew Stafford is ‘fine,’ held out of first padded practice**\
+`Sean McVay said it was a planned off day for the Rams' starting QB and he'll practice Tuesday and onward.`\
+https://nytimes.com/athletic/5667804/2024/07/30/la-rams-matthew-stafford-practice/
+
 **'Worth the risk': Behind the scenes of Brock Faber's extension and what it means for Wild**\
 `It was a "dream come true" for the 21-year-old defenseman, who signed an eight-year, $68 million extension with his hometown club.`\
 https://nytimes.com/athletic/5666841/2024/07/30/wild-brock-faber-extension/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/30/podcasts/political-ad-harris-venezuela.html
 **Chiefs camp: Steve Spagnuolo's defense out for more takeaways this year**\
 `Hoping to force more than the 17 turnovers they recorded last year, the Chiefs have put an emphasis on punching the ball out.`\
 https://nytimes.com/athletic/5666795/2024/07/30/chiefs-training-camp-defense-takeaways/
-
-**Wordle Review No. 1,138, Wednesday, July 31, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/30/crosswords/wordle-review-1138.html
-
-**The Connections Companion No. 416, July 31, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/30/crosswords/connections-companion-416.html
 

@@ -1,3 +1,11 @@
+**How U.S. Olympic women's gymnastics became a true team in an often-solo sport**\
+`In a sport that pits you against each other and also on the same side, the U.S. women's gymnastics squad has come together in Paris.`\
+https://nytimes.com/athletic/5668144/2024/07/30/womens-gymnastics-team-olympics-gold-simone-biles/
+
+**Rams observations: QB Matthew Stafford is ‘fine,’ held out of first padded practice**\
+`Sean McVay said it was a planned off day for the Rams' starting QB and he'll practice Tuesday and onward.`\
+https://nytimes.com/athletic/5667804/2024/07/30/la-rams-matthew-stafford-practice/
+
 **'Worth the risk': Behind the scenes of Brock Faber's extension and what it means for Wild**\
 `It was a "dream come true" for the 21-year-old defenseman, who signed an eight-year, $68 million extension with his hometown club.`\
 https://nytimes.com/athletic/5666841/2024/07/30/wild-brock-faber-extension/
