@@ -1,3 +1,7 @@
+**Quarterback roundtable: The Top 5 overall, SuperFlex pairings, QBs to avoid and more**\
+`The Athletic fantasy football crew weigh in on the quarterback position, sharing their Top 5 rankings, SuperFlex draft strategy and more.`\
+https://nytimes.com/athletic/5666218/2024/07/30/fantasy-football-2024-quarterback-roundtable-superflex-top5/
+
 **Blue Jays' goodbyes to teammates at deadline a reminder of season gone wrong**\
 `The Blue Jays set out this season to win a World Series. Their selloff is a stark reminder of how badly that plan failed.`\
 https://nytimes.com/athletic/5667750/2024/07/30/blue-jays-trade-deadline-selloff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5665310/2024/07/30/aston-villa-ozzy-osbourne-geezer
 **How Real Madrid's physical trainer is helping NASA with the Artemis moon programme**\
 `Nicknamed 'The Sergeant' for his unforgiving fitness methods, Pintus has visited NASA to advise them on peak human performance`\
 https://nytimes.com/athletic/5665452/2024/07/30/real-madrid-nasa-artemis-pintus/
-
-**James has the chance to prove he should retain the Chelsea captaincy**\
-`James had the armband last season but fitness and disciplinary issues have contributed to an element of doubt about whether he keeps it`\
-https://nytimes.com/athletic/5665861/2024/07/30/reece-james-chelsea-captain-maresca/
 
