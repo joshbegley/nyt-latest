@@ -1,3 +1,7 @@
+**Landslides in Southern India Kill at Least 23**\
+`Rescue workers struggled to reach isolated villages in the state of Kerala, where bridges and roads were swept away after days of heavy rain.`\
+https://nytimes.com/2024/07/30/world/asia/india-landslides-kerala-rain.html
+
 **MLB Trade Grades: With Jorge Soler deal, Braves get the gang back together**\
 `Soler is valuable to the Braves because of his bat. But with Marcell Ozuna already in the fold, Soler isn't a perfect fit.`\
 https://nytimes.com/athletic/5667899/2024/07/30/mlb-trade-grades-jorge-soler-braves-giants/

@@ -1,3 +1,7 @@
+**Landslides in Southern India Kill at Least 23**\
+`Rescue workers struggled to reach isolated villages in the state of Kerala, where bridges and roads were swept away after days of heavy rain.`\
+https://nytimes.com/2024/07/30/world/asia/india-landslides-kerala-rain.html
+
 **MLB Trade Grades: With Jorge Soler deal, Braves get the gang back together**\
 `Soler is valuable to the Braves because of his bat. But with Marcell Ozuna already in the fold, Soler isn't a perfect fit.`\
 https://nytimes.com/athletic/5667899/2024/07/30/mlb-trade-grades-jorge-soler-braves-giants/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5650166/2024/07/30/arsenal-calafiori-transfer-profi
 **Greenberg: Did White Sox GM Chris Getz whiff in his first big trade-deadline deal?**\
 `Getz, at the center of a three-team swap, didn't exactly wow people with the Sox's return. Not in a seller's market. Not with so many needs.`\
 https://nytimes.com/athletic/5667568/2024/07/30/chicago-white-sox-trade-deadline-chris-getz/
-
-**Rock stars, tradition and transfer trickery - how Villa's viral kit video came together**\
-`Villa's kit launch video has racked up four millions views in a week - it involves rock stars, a trip to Hollywood and Unai Emery`\
-https://nytimes.com/athletic/5665310/2024/07/30/aston-villa-ozzy-osbourne-geezer-butler-new-kit/
 
