@@ -1,3 +1,15 @@
+**Gaza’s Only Humanitarian Zone Has Shrunk by a Fifth Recently**\
+`Israel’s military has redrawn the zone’s borders twice, accusing Hamas of using it to regroup and launch missiles.`\
+https://nytimes.com/2024/07/30/world/middleeast/gaza-humanitarian-zone-israel.html
+
+**Is A.I. Unstoppable? Some Hollywood Craftspeople Fear the Answer Is Yes.**\
+`Actors and writers won strict limits on artificial intelligence in last year’s contract negotiations, but other workers face a growing challenge.`\
+https://nytimes.com/2024/07/30/business/economy/artificial-intelligence-hollywood-unions.html
+
+**‘Kleo’ Review: Spy vs. a Lot of Other Spies**\
+`The archly humorous, high-body-count Netflix series about an ex-Stasi assassin is like “Killing Eve” with a more discernible heartbeat.`\
+https://nytimes.com/2024/07/30/arts/television/kleo-review.html
+
 **Elliott: 'This is my time to kick on at Liverpool - I have to be more selfish'**\
 `The attacking midfielder has been a Liverpool player for five years now — he says it is time for him to step up in the Arne Slot era`\
 https://nytimes.com/athletic/5667152/2024/07/30/harvey-elliott-liverpool-arne-slot-calvin-harris/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5668681/2024/07/30/canada-basketball-olympics-lugue
 **Meta Reaches $1.4 Billion Settlement With Texas Over Privacy Violations**\
 `The parent company of Facebook and Instagram faced allegations that it had collected facial identification information on millions of users in violation of a state law.`\
 https://nytimes.com/2024/07/30/technology/meta-texas-privacy-settlement.html
-
-**U.S. Accuses Norfolk Southern of Delaying Amtrak Trains**\
-`A complaint filed in federal court said Norfolk Southern had “regularly” failed to follow federal law requiring that it give preference to Amtrak passenger trains.`\
-https://nytimes.com/2024/07/30/business/economy/norfolk-southern-amtrak.html
-
-**Venezuela’s Power Struggle Deepens, With Dueling Rallies Planned**\
-`After both President Nicolás Maduro and the opposition claimed victory in the presidential election, both sides called on supporters to take to the streets.`\
-https://nytimes.com/2024/07/30/world/americas/venezuela-rallies-election-results.html
-
-**Tiny Love Stories: ‘I Make No Apologies’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/07/30/style/tiny-modern-love-stories-i-make-no-apologies.html
 
