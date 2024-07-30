@@ -1,3 +1,7 @@
+**Brewers make deal with Reds to add righty Frankie Montas to injury-plagued rotation**\
+`The NL Central-leading Milwaukee Brewers bolstered their starting rotation on Monday night by dealing with a division rival, acquiring righthander Frankie Montas from the Cincinnati Reds in exchange for young outfielder Joey Wiemer and veteran righty Jakob Junis, league sources confirmed to The Athletic.`\
+https://nytimes.com/athletic/5667645/2024/07/29/brewers-make-deal-with-reds-to-add-righty-frankie-montas-to-injury-plagued-rotation/
+
 **MLB Trade Grades: Pirates are buyers, but did they overpay for Jalen Beeks?**\
 `Giving up Luis Peralta, the younger brother of Brewers All-Star Freddy Peralta, is an unfortunate cost.`\
 https://nytimes.com/athletic/5667620/2024/07/29/mlb-trade-grades-pirates-are-buyers-but-did-they-overpay-for-jalen-beeks/
