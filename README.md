@@ -1,3 +1,7 @@
+**Titans' Arden Key facing 6-game suspension for banned substance**\
+`Key, 28, is embarking on his seventh season as a pro and second with the Titans.`\
+https://nytimes.com/athletic/5668913/2024/07/30/titans-arden-key-suspension/
+
 **105 is college football's new key roster number. What will it change?**\
 `The new system allows schools flexibility to decide how many scholarships within the roster limit they want to give out.`\
 https://nytimes.com/athletic/5668459/2024/07/30/ncaa-roster-caps-house-settlement-scholarships/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/30/climate/understanding-the-new-era-of-fire.html
 **Contra Returns as a Cocktail Bar With Stilton-Stuffed Chicken Wings**\
 `After closing their restaurant a year ago, Jeremiah Stone and Fabián von Hauske Valtierra are back with the drinks expert Dave Arnold for Bar Contra, serving snacks and cocktails.`\
 https://nytimes.com/2024/07/30/dining/bar-contra-nyc.html
-
-**After Days Lost at Sea, They Needed a Pastrami Sandwich**\
-`A pair of scuba divers were dramatically rescued from the Gulf of Mexico. They knew what their first stop after the ordeal would be.`\
-https://nytimes.com/2024/07/30/dining/kenny-ziggys-deli-lost-at-sea.html
 
