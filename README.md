@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5667319/2024/07/29/notre-dame-ad-wants-to-keep-riva
 
 **Pirates acquire left-hander Jalen Beeks to boost backend of the bullpen**\
 `The Pirates get some much-needed bullpen help from an unlikely source — the Colorado Rockies.`\
-https://nytimes.com/athletic/5667548/2024/07/29/pirates-acquire-left-hander-jalen-beeks-to-boost-backend-of-the-bullpen/
+https://nytimes.com/athletic/5667548/2024/07/29/jalen-beeks-pirates-rockies-trade/
 
 **‘Six Characters’ Review: Making the Case Against a White-Centric Theater**\
 `At Lincoln Center Theater, Phillip Howze’s daring new play offers a hefty critique but takes aim at more targets than it can accommodate.`\
