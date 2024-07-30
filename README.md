@@ -1,3 +1,11 @@
+**Astros acquire reliever Caleb Ferguson in trade with Yankees: Sources**\
+`The Yankees traded reliever Caleb Ferguson to the Astros for international bonus pool money and a minor leaguer, according to sources.`\
+https://nytimes.com/athletic/5669408/2024/07/30/caleb-ferguson-astros-yankees-trade/
+
+**U.S. men's Olympic team heads to quarterfinals for the first time since 2000**\
+`The United States finished the group stage second behind hosts France.`\
+https://nytimes.com/athletic/5669346/2024/07/30/united-states-guinea-olympics-quarterfinals/
+
 **Rangers sign Ryan Lindgren to one-year contract, avoiding arbitration**\
 `The New York Rangers signed restricted free agent Ryan Lindgren to a one-year deal for $4.`\
 https://nytimes.com/athletic/5669175/2024/07/30/ny-rangers-ryan-lindgren-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5668946/2024/07/30/olympics-gymnastics-womens-team-
 **MLB Trade Grades: How much does Lucas Sims boost the Red Sox bullpen?**\
 `The Red Sox bullpen was a strength early in the season — and an undeniable problem in recent weeks. Sims is a much-needed bandage.`\
 https://nytimes.com/athletic/5669169/2024/07/30/mlb-trade-grades-red-sox-reds-lucas-sims/
-
-**Harris Plans to Campaign Next Week With Her Running Mate**\
-`The draft travel schedule, according to two people briefed on her plans, suggests that Vice President Kamala Harris will name her running mate a little earlier than her team had planned.`\
-https://nytimes.com/2024/07/30/us/politics/kamala-harris-vp-timing.html
-
-**Israel’s Five Wars**\
-`Whatever comes next in Lebanon is a piece in a much larger battle.`\
-https://nytimes.com/2024/07/30/opinion/israel.html
 
