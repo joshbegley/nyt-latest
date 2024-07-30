@@ -1,7 +1,3 @@
-**Chelsea to appoint Delroy Ebanks as new academy recruitment chief**\
-`Chelsea are set to appoint Newcastle United scout Delroy Ebanks as their head of academy recruitment as an overhaul of the youth structure at Stamford Bridge approaches completion.`\
-https://nytimes.com/athletic/5668259/2024/07/30/chelsea-delroy-ebanks-newcastle/
-
 **‘I Was a Childless Cat Lady’: Women Respond to JD Vance**\
 `Women decry his 2021 comment about “miserable” childless women. Also: Clearing homeless encampments; food and gas prices; wildfire names.`\
 https://nytimes.com/2024/07/30/opinion/jd-vance-childless-cat-ladies.html
@@ -18,7 +14,7 @@ https://nytimes.com/athletic/5668717/2024/07/30/tierna-davidson-injury-uswnt-aus
 `As part of The Athletic 500, we analyse and rate Ben Brereton Diaz's move to Southampton`\
 https://nytimes.com/athletic/5665362/2024/07/30/ben-brereton-diaz-southampton-transfer-ratings/
 
-**The tennis rule that helped to end Coco Gauff's Olympics run**\
+**Explaining the tennis rule that helped to end Coco Gauff's Olympics run**\
 `Facing break point, a disputed umpiring decision changed the trajectory of the US Open champion's Olympic campaign`\
 https://nytimes.com/athletic/5668359/2024/07/30/coco-gauff-olympics-tennis-umpire-call-rule/
 
@@ -37,4 +33,8 @@ https://nytimes.com/2024/07/30/well/move/exercise-boost-mood.html
 **How the Kids Online Safety Act Was Dragged Into a Political War**\
 `The Senate was set to pass the Kids Online Safety Act on Tuesday, but the legislation faces an uphill battle in the House because of censorship concerns.`\
 https://nytimes.com/2024/07/30/technology/kosa-child-online-safety.html
+
+**Team GB rugby sevens player withdrawn amid investigation into alleged racist message**\
+`A Team GB rugby sevens player was stood down ahead of the final day of competition at the Paris Olympics as the British Olympic Association (BOA) investigates an alleged racist message sent on WhatsApp.`\
+https://nytimes.com/athletic/5668625/2024/07/30/amy-wilson-hardy-olympics-sevens/
 
