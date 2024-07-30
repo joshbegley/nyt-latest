@@ -1,3 +1,19 @@
+**Eno's take on Trevor Rogers trade: Orioles gain innings but fastball velocity is worrisome**\
+`Rogers' fastball is down about 2 1/2 mph from his heyday. Will Baltimore use him as a back-end starter or use him out of the bullpen?`\
+https://nytimes.com/athletic/5669194/2024/07/30/trevor-rogers-trade-orioles-analysis/
+
+**Adams Nominates Mastro, Setting Up a Showdown With the Council**\
+`Mayor Eric Adams is moving forward with nominating Randy Mastro as New York City’s top lawyer, despite opposition from the City Council.`\
+https://nytimes.com/2024/07/30/nyregion/adams-randy-mastro-nyc-city-council.html
+
+**Simone Biles, Team USA gymnastics golden once again**\
+`Italy took silver, and Brazil won bronze.`\
+https://nytimes.com/athletic/5668946/2024/07/30/olympics-gymnastics-womens-team-final-result-simone-biles/
+
+**MLB Trade Grades: How much does Lucas Sims boost the Red Sox bullpen?**\
+`The Red Sox bullpen was a strength early in the season — and an undeniable problem in recent weeks. Sims is a much-needed bandage.`\
+https://nytimes.com/athletic/5669169/2024/07/30/mlb-trade-grades-red-sox-reds-lucas-sims/
+
 **Harris Plans to Campaign Next Week With Her Running Mate**\
 `The draft travel schedule, according to two people briefed on her plans, suggests that Vice President Kamala Harris will name her running mate a little earlier than her team had planned.`\
 https://nytimes.com/2024/07/30/us/politics/kamala-harris-vp-timing.html
