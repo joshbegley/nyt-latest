@@ -1,3 +1,7 @@
+**Giannis Antetokounmpo, on verge of Olympic elimination, has no words for the latest loss**\
+`Antetokounmpo put 27 points and 11 boards were herculean, but he's carrying a heavy load for an undermanned Greek team.`\
+https://nytimes.com/athletic/5668405/2024/07/30/giannis-antetokounmpo-olympics-greece/
+
 **France Aligns With Morocco on Western Sahara, Angering Algeria**\
 `President Emmanuel Macron wrote to King Mohammed VI that France approved a plan for the disputed territory’s autonomy under Moroccan sovereignty.`\
 https://nytimes.com/2024/07/30/world/europe/france-morocco-western-sahara.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5668335/2024/07/30/england-uswnt-germany-friendly/
 **Brock Purdy was ready for Tom Brady; now he's ready to fulfill his 49ers destiny**\
 `Purdy on the future: "I can't let off the gas pedal just thinking ... I'm possibly going to make money down the road if this all goes well."`\
 https://nytimes.com/athletic/5667198/2024/07/30/brock-purdy-tom-brady-49ers/
-
-**Sex Harassment Suit Is Fourth This Year for a Top Adams Adviser**\
-`The latest allegations against Timothy Pearson, a confidant of Mayor Eric Adams, were made by a high-ranking official in the New York Police Department.`\
-https://nytimes.com/2024/07/30/nyregion/nypd-pearson-adams-lawsuit.html
 
