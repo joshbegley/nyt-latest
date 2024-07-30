@@ -2,6 +2,10 @@
 `Rescue workers struggled to reach isolated villages in the state of Kerala, where bridges and roads were swept away after days of heavy rain.`\
 https://nytimes.com/2024/07/30/world/asia/india-landslides-kerala-rain.html
 
+**Giants trade Jorge Soler and Luke Jackson, but larger fire sale not expected**\
+`Though their first move was a "sell", the Giants expect to do a blend of buying and selling ahead of Tuesday's trade deadline.`\
+https://nytimes.com/athletic/5667928/2024/07/30/sf-giants-jorge-soler-luke-jackson-trade/
+
 **MLB Trade Grades: With Jorge Soler deal, Braves get the gang back together**\
 `Soler is valuable to the Braves because of his bat. But with Marcell Ozuna already in the fold, Soler isn't a perfect fit.`\
 https://nytimes.com/athletic/5667899/2024/07/30/mlb-trade-grades-jorge-soler-braves-giants/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5667826/2024/07/30/braves-giants-jorge-soler-trade/
 **Riccardo Calafiori, Arsenal's new defender who got lifts from De Rossi and models his game on Stones**\
 `From the shadow of the Vatican City to the Emirates — via a star turn at Euro 2024 — Arsenal's signing has overcome rejection and adversity`\
 https://nytimes.com/athletic/5650166/2024/07/30/arsenal-calafiori-transfer-profile/
-
-**Greenberg: Did White Sox GM Chris Getz whiff in his first big trade-deadline deal?**\
-`Getz, at the center of a three-team swap, didn't exactly wow people with the Sox's return. Not in a seller's market. Not with so many needs.`\
-https://nytimes.com/athletic/5667568/2024/07/30/chicago-white-sox-trade-deadline-chris-getz/
 

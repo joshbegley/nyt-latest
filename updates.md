@@ -1,3 +1,7 @@
+**Giants trade Jorge Soler and Luke Jackson, but larger fire sale not expected**\
+`Though their first move was a "sell", the Giants expect to do a blend of buying and selling ahead of Tuesday's trade deadline.`\
+https://nytimes.com/athletic/5667928/2024/07/30/sf-giants-jorge-soler-luke-jackson-trade/
+
 **Landslides in Southern India Kill at Least 23**\
 `Rescue workers struggled to reach isolated villages in the state of Kerala, where bridges and roads were swept away after days of heavy rain.`\
 https://nytimes.com/2024/07/30/world/asia/india-landslides-kerala-rain.html
