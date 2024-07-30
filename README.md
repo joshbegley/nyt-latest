@@ -19,7 +19,7 @@ https://nytimes.com/2024/07/30/world/europe/france-morocco-western-sahara.html
 https://nytimes.com/2024/07/30/world/asia/bangladesh-protests-charges-crime.html
 
 **Disney Comes for ‘Deadpool’**\
-`Schlocky, overwrought movies used to be the Deadpool signature. But with “Deadpool & Wolverine,” and Disney’s push into the Marvel Universe, that thread is lost.`\
+`Making fun of schlocky, overwrought superhero movies used to be the Deadpool signature. But with “Deadpool & Wolverine,” and Disney’s push into the Marvel Universe, that thread is lost.`\
 https://nytimes.com/2024/07/30/movies/deadpool-wolverine-disney-marvel.html
 
 **Southampton complete Brereton Diaz transfer from Villarreal**\
