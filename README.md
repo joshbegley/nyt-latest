@@ -1,3 +1,11 @@
+**Until Saturday: Realigned teams rarely win big**\
+`Welcome to Until Saturday, the five-star college football newsletter: What can we learn from past realignment moves? `\
+https://nytimes.com/athletic/5665038/2024/07/30/until-saturday-realignment-history-college-football/
+
+**Trump Again Says That Christians ‘Won’t Have to Vote Anymore’ if They Vote for Him**\
+`The former president, in an interview on Fox News, brushed aside multiple requests to walk back or clarify his statement.`\
+https://nytimes.com/2024/07/30/us/politics/trump-christians-vote-ingraham.html
+
 **Heat Will Intensify Across the U.S. This Week**\
 `Summer heat will once again engulf much of the country, bringing above-average temperatures, setting daily records and increasing wildfire risk.`\
 https://nytimes.com/2024/07/30/weather/us-heat-forecast.html
@@ -11,7 +19,7 @@ https://nytimes.com/athletic/5668433/2024/07/30/olympic-egyptian-fencer-pregnant
 https://nytimes.com/athletic/5666098/2024/07/30/nfl-stadium-guides-fan-survey/
 
 **K-State's speedy Avery Johnson wants to prove he can also beat you with his arm**\
-`Kansas State is ready for the Avery Johnson show, and Johnson is committed to shining not just with his feet but his arm. `\
+`Kansas State is ready for the Avery Johnson show, and Johnson is committed to shining not just with his feet but also with his arm. `\
 https://nytimes.com/athletic/5668522/2024/07/30/avery-johnson-kansas-state-football/
 
 **Scoop City: Differing offseason approaches in Detroit and Dallas**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5668405/2024/07/30/giannis-antetokounmpo-olympics-g
 **France Aligns With Morocco on Western Sahara, Angering Algeria**\
 `President Emmanuel Macron wrote to King Mohammed VI that France approved a plan for the disputed territory’s autonomy under Moroccan sovereignty.`\
 https://nytimes.com/2024/07/30/world/europe/france-morocco-western-sahara.html
-
-**After Protest Crackdown, Bangladesh Accuses Tens of Thousands of Crimes**\
-`Charges include vandalism, arson, theft, trespassing and damage to state property. A rights group called it a witch hunt, following an initial sweep during which more than 200 people were killed.`\
-https://nytimes.com/2024/07/30/world/asia/bangladesh-protests-charges-crime.html
-
-**Disney Comes for ‘Deadpool’**\
-`Making fun of schlocky, overwrought superhero movies used to be the Deadpool signature. But with “Deadpool & Wolverine,” and Disney’s push into the Marvel Universe, that thread is lost.`\
-https://nytimes.com/2024/07/30/movies/deadpool-wolverine-disney-marvel.html
 
