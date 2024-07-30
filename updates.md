@@ -1,3 +1,11 @@
+**Michele Kang to donate $4 million to U.S. women's rugby**\
+`The donation comes hours after the U.S. women claimed bronze for the country's first Olympic medal in rugby sevens.`\
+https://nytimes.com/athletic/5669739/2024/07/30/us-womens-rugby-michele-kang/
+
+**Israel Struck Beirut as ‘Axis of Resistance’ Leaders Attended Iran Inauguration**\
+`Iranian officials condemned the attack and warned that Hezbollah and Lebanon had the right to retaliate against Israel.`\
+https://nytimes.com/2024/07/30/world/middleeast/israel-beirut-iran-pezeshkian-inauguration.html
+
 **Anita Dunn to Leave White House in First Departure Since Biden’s Withdrawal**\
 `Ms. Dunn, the president’s senior adviser, will consult for a super PAC supporting Vice President Kamala Harris’s fledgling presidential campaign.`\
 https://nytimes.com/2024/07/30/us/politics/anita-dunn-leaving-white-house-kamala-harris.html
