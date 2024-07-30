@@ -1,3 +1,7 @@
+**England Women announce USWNT, Germany friendlies**\
+`England Women have announced four home friendlies for later this year including games against Germany and the USWNT.`\
+https://nytimes.com/athletic/5668335/2024/07/30/england-uswnt-germany-friendly/
+
 **Brock Purdy was ready for Tom Brady; now he's ready to fulfill his 49ers destiny**\
 `Purdy on the future: "I can't let off the gas pedal just thinking ... I'm possibly going to make money down the road if this all goes well."`\
 https://nytimes.com/athletic/5667198/2024/07/30/brock-purdy-tom-brady-49ers/
