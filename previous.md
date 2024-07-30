@@ -1,6 +1,14 @@
+**Eno's take on Yusei Kikuchi: Astros land lefty with excellent stuff who's had some bad luck**\
+`Kikuchi's ERA isn't anything special, but he could be the best starter who changes teams at the deadline. Why? Because he throws gas.`\
+https://nytimes.com/athletic/5667488/2024/07/29/yusei-kikuchi-trade-astros-blue-jays-stuff/
+
 **Lamar Jackson 'feeling wonderful,' says desire to win a Super Bowl burns hotter than ever**\
 `Jackson doesn't "just want to be labeled as MVP here and there. I want to be a champion,” the 27-year-old said. `\
 https://nytimes.com/athletic/5667186/2024/07/29/lamar-jackson-baltimore-ravens-super-bowl/
+
+**Dodgers swing trade with Rays for a familiar face in Amed Rosario**\
+`The Los Angeles Dodgers are reuniting with Amed Rosario for the second consecutive trade deadline as the club has agreed to acquire the utility man from the Tampa Bay Rays.`\
+https://nytimes.com/athletic/5667475/2024/07/29/dodgers-rays-trade-amed-rosario/
 
 **Braves focused on trading for hitter after Reynaldo López elbow exam shows no damage**\
 `Manager Brian Snitker indicated there are no plans to put López on the injured list: "Everything came back good."`\
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5667006/2024/07/29/red-sox-vaughn-grissom-infield-n
 `By Ken Rosenthal, Kaitlyn McGrath and Chandler Rome
 HOUSTON — The Astros supplemented their injury-ravaged starting rotation with one of the best rental starters available on the trade market.`\
 https://nytimes.com/athletic/5667017/2024/07/29/yusei-kikuchi-blue-jays-trade/
-
-**Team USA's biggest advantage in Olympic win over Japan: They have A'ja and Stewie**\
-`Team USA started off their Olympic run with a breezy win over Japan that showed just how tough their big advantage will be to overcome.`\
-https://nytimes.com/athletic/5667021/2024/07/29/us-womens-basketball-olympics-japan-aja-wilson-breanna-stewart/
-
-**Erica Ash of ‘Mad TV’ and ‘Survivor’s Remorse’ Dies at 46**\
-`Erica Ash started out on sketch comedy shows in the 2000s before appearing in movies like “Scary Movie V” and the satirical reality show “Real Husbands of Hollywood.”`\
-https://nytimes.com/2024/07/29/arts/television/erica-ash-dead.html
 

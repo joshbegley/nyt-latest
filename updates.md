@@ -1,3 +1,11 @@
+**Eno's take on Yusei Kikuchi: Astros land lefty with excellent stuff who's had some bad luck**\
+`Kikuchi's ERA isn't anything special, but he could be the best starter who changes teams at the deadline. Why? Because he throws gas.`\
+https://nytimes.com/athletic/5667488/2024/07/29/yusei-kikuchi-trade-astros-blue-jays-stuff/
+
+**Dodgers swing trade with Rays for a familiar face in Amed Rosario**\
+`The Los Angeles Dodgers are reuniting with Amed Rosario for the second consecutive trade deadline as the club has agreed to acquire the utility man from the Tampa Bay Rays.`\
+https://nytimes.com/athletic/5667475/2024/07/29/dodgers-rays-trade-amed-rosario/
+
 **Lamar Jackson 'feeling wonderful,' says desire to win a Super Bowl burns hotter than ever**\
 `Jackson doesn't "just want to be labeled as MVP here and there. I want to be a champion,” the 27-year-old said. `\
 https://nytimes.com/athletic/5667186/2024/07/29/lamar-jackson-baltimore-ravens-super-bowl/

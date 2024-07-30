@@ -1,3 +1,7 @@
+**‘Six Characters’ Review: Making the Case Against a White-Centric Theater**\
+`At Lincoln Center Theater, Phillip Howze’s daring new play offers a hefty critique but takes aim at more targets than it can accommodate.`\
+https://nytimes.com/2024/07/29/theater/six-characters-review-howze.html
+
 **Eno's take on Yusei Kikuchi: Astros land lefty with excellent stuff who's had some bad luck**\
 `Kikuchi's ERA isn't anything special, but he could be the best starter who changes teams at the deadline. Why? Because he throws gas.`\
 https://nytimes.com/athletic/5667488/2024/07/29/yusei-kikuchi-trade-astros-blue-jays-stuff/
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/5667014/2024/07/29/cardinals-mlb-trade-deadline-eri
 **Red Sox may option Vaughn Grissom after rehab, still seeking righty infield bat**\
 `Grissom has been injured much of the year and may not be at his best — or the Red Sox's best option at second — when his rehab clock is up.`\
 https://nytimes.com/athletic/5667006/2024/07/29/red-sox-vaughn-grissom-infield-needs/
-
-**Astros near deal with Blue Jays to add Yusei Kikuchi to beleaguered rotation: sources**\
-`By Ken Rosenthal, Kaitlyn McGrath and Chandler Rome
-HOUSTON — The Astros supplemented their injury-ravaged starting rotation with one of the best rental starters available on the trade market.`\
-https://nytimes.com/athletic/5667017/2024/07/29/yusei-kikuchi-blue-jays-trade/
 
