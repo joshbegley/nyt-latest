@@ -1,3 +1,7 @@
+**Riots at Israeli Army Bases Show Growing Divisions Over War in Gaza**\
+`Right-wing demonstrators forced their way inside two military facilities after nine soldiers were held on suspicion of abusing a Palestinian man.`\
+https://nytimes.com/live/2024/07/30/world/israel-gaza-war-lebanon-hezbollah
+
 **Ukraine Ramps Up Mobilization, Hoping to Bolster Battlefield Strength**\
 `Large numbers of conscripts will arrive at the front in the coming weeks, soldiers and military analysts said, but some are poorly trained or out of shape.`\
 https://nytimes.com/2024/07/30/world/europe/ukraine-war-troops-russia-mobilization.html
