@@ -1,3 +1,7 @@
+**Steve Kerr and Team USA's next Olympic task: It's time to get Stephen Curry going**\
+`With South Sudan up next for Team USA, now it's time for Steve Kerr to get his beloved Golden State Warriors co-worker, Steph Curry, going.`\
+https://nytimes.com/athletic/5666025/2024/07/30/stephen-curry-team-usa-steve-kerr-basketball-olympics/
+
 **Napoli and Chelsea continue talks over Lukaku transfer, Osimhen loan**\
 `Napoli are in ongoing discussions with Chelsea to sign Romelu Lukaku, while dialogue between the clubs also continues about a deal for Victor Osimhen to head in the opposite direction.`\
 https://nytimes.com/athletic/5648308/2024/07/30/romelu-lukaku-napoli-transfer-chelsea-osimhen/
