@@ -1,3 +1,7 @@
+**With another lopsided loss, the Phillies have encountered some summer adversity**\
+`"I feel like the energy in the clubhouse has been different ever since the Dodgers series," said Nick Castellanos.`\
+https://nytimes.com/athletic/5667683/2024/07/29/phillies-summer-adversity-lopsided-loss/
+
 **MLB trade deadline roundup: All the trades from Monday**\
 `Here's everything you need to know about who switched teams on Monday. `\
 https://nytimes.com/athletic/5666082/2024/07/29/mlb-trade-deadline-roundup-monday/
