@@ -1,7 +1,3 @@
-**Keep Sahm and Carry On**\
-`A recession indicator may soon be triggered, but don’t panic.`\
-https://nytimes.com/2024/07/30/opinion/sahm-rule-unemployment-recession.html
-
 **It’s Not Too Late for Change in Venezuela**\
 `If Maduro is forced to release polling data, he might have to admit defeat.`\
 https://nytimes.com/2024/07/22/opinion/venezuela-maduro-election.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5669408/2024/07/30/caleb-ferguson-astros-yankees-tr
 **U.S. men's Olympic team heads to quarterfinals for the first time since 2000**\
 `The United States finished the group stage second behind hosts France.`\
 https://nytimes.com/athletic/5669346/2024/07/30/united-states-guinea-olympics-quarterfinals/
+
+**Rangers sign Ryan Lindgren to one-year contract, avoiding arbitration**\
+`The New York Rangers signed restricted free agent Ryan Lindgren to a one-year deal for $4.`\
+https://nytimes.com/athletic/5669175/2024/07/30/ny-rangers-ryan-lindgren-contract/
 
