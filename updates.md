@@ -1,3 +1,19 @@
+**Team GB rugby sevens player withdrawn amid investigation into alleged racist message**\
+`A Team GB rugby sevens player was stood down ahead of the final day of competition at the Paris Olympics as the British Olympic Association (BOA) investigates an alleged racist message sent on WhatsApp.`\
+https://nytimes.com/athletic/5668625/2024/07/30/amy-wilson-hardy-olympics-sevens/
+
+**Until Saturday: Realigned teams rarely win big**\
+`Welcome to Until Saturday, the five-star college football newsletter: What can we learn from past realignment moves? `\
+https://nytimes.com/athletic/5665038/2024/07/30/until-saturday-realignment-history-college-football/
+
+**Trump Again Says That Christians ‘Won’t Have to Vote Anymore’ if They Vote for Him**\
+`The former president, in an interview on Fox News, brushed aside multiple requests to walk back or clarify his statement.`\
+https://nytimes.com/2024/07/30/us/politics/trump-christians-vote-ingraham.html
+
+**K-State's speedy Avery Johnson wants to prove he can also beat you with his arm**\
+`Kansas State is ready for the Avery Johnson show, and Johnson is committed to shining not just with his feet but also with his arm. `\
+https://nytimes.com/athletic/5668522/2024/07/30/avery-johnson-kansas-state-football/
+
 **Heat Will Intensify Across the U.S. This Week**\
 `Summer heat will once again engulf much of the country, bringing above-average temperatures, setting daily records and increasing wildfire risk.`\
 https://nytimes.com/2024/07/30/weather/us-heat-forecast.html
