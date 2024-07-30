@@ -1,3 +1,11 @@
+**Dynasty league sleepers: Cedric Tillman, Deneric Prince and more intriguing stashes**\
+`Jeff Haverlack identifies seven players currently valued at a cut-rate price who he believes could pay dynasty league dividends soon.`\
+https://nytimes.com/athletic/5667796/2024/07/30/dynasty-league-sleepers-cedric-tillman-deneric-prince-and-more-intriguing-stashes/
+
+**Labor Abuses Abroad**\
+`We explain why, despite scrutiny, serious labor abuses still lurk in major companies’ supply chains.`\
+https://nytimes.com/2024/07/30/briefing/labor-abuse-supply-chain.html
+
 **How U.S. Olympic women's gymnastics became a true team in an often-solo sport**\
 `In a sport that pits you against each other and also on the same side, the U.S. women's gymnastics squad has come together in Paris.`\
 https://nytimes.com/athletic/5668144/2024/07/30/womens-gymnastics-team-olympics-gold-simone-biles/
