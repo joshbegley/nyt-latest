@@ -1,3 +1,7 @@
+**Tigers trade reliever Andrew Chafin to Rangers**\
+`The reliever will add a much-needed left-handed presence to the Rangers' bullpen.`\
+https://nytimes.com/athletic/5669550/2024/07/30/andrew-chafin-rangers-tigers-trade/
+
 **Bears camp: The Caleb Williams-Rome Odunze connection, Hall of Fame plans and more**\
 `Williams' touchdown pass to Odunze was a highlight Tuesday. Second-year defensive tackle Zacch Pickens is OK as the forgotten man.`\
 https://nytimes.com/athletic/5669440/2024/07/30/bears-training-camp-caleb-williams-rome-odunze/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/30/business/economy/amazon-labor-union-election.html
 **Keep Sahm and Carry On**\
 `A recession indicator may soon be triggered, but don’t panic.`\
 https://nytimes.com/2024/07/30/opinion/sahm-rule-unemployment-recession.html
-
-**It’s Not Too Late for Change in Venezuela**\
-`If Maduro is forced to release polling data, he might have to admit defeat.`\
-https://nytimes.com/2024/07/22/opinion/venezuela-maduro-election.html
 
