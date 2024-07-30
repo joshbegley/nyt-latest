@@ -1,3 +1,15 @@
+**Disney Comes for ‘Deadpool’**\
+`Schlocky, overwrought movies used to be the Deadpool signature. But with “Deadpool & Wolverine,” and Disney’s push into the Marvel Universe, that thread is lost.`\
+https://nytimes.com/2024/07/30/movies/deadpool-wolverine-disney-marvel.html
+
+**Southampton complete Brereton Diaz transfer from Villarreal**\
+`Southampton have completed the signing of Ben Brereton Diaz from Villarreal.`\
+https://nytimes.com/athletic/5668453/2024/07/30/ben-brereton-diaz-southampton-transfer/
+
+**‘Is Friendship Becoming Obsolete?’: The Week 6 Winner of Our Summer Reading Contest**\
+`Alex Cox, 16, writes about the importance of human connection, especially for older people, in the age of artificial intelligence.`\
+https://nytimes.com/2024/07/30/learning/is-friendship-becoming-obsolete-the-week-6-winner-of-our-summer-reading-contest.html
+
 **Hong Kong Taunts Italy With Pineapple Pizza After Olympics Fencing Win**\
 `After a fencer from Hong Kong beat an Italian for a gold medal, Pizza Hut’s offer of free pineapple toppings in Hong Kong was the city’s second jab at Italy.`\
 https://nytimes.com/2024/07/30/world/olympics/hong-kong-italy-fencing-pineapple-pizza.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/30/books/booker-prize-2024-longlist.html
 **Ten players who must step up in Kalen DeBoer's first Alabama camp**\
 `With Kalen DeBoer's first Alabama training camp fast approaching, who among the Crimson Tide need to step up in 2024?`\
 https://nytimes.com/athletic/5667904/2024/07/30/alabama-crimson-tide-camp-preview/
-
-**Judge John Hodgman on Whether ‘Cujo’ is Scary or Not**\
-`Do you have to read the book before deciding?`\
-https://nytimes.com/2024/07/30/magazine/judge-john-hodgman-on-whether-cujo-is-scary-or-not.html
-
-**Coco Gauff loses to Donna Vekic at Olympics after line call controversy**\
-`The world No 2 and American world No 1 was the victim of a disputed line call at a key point in the second set`\
-https://nytimes.com/athletic/5668338/2024/07/30/coco-gauff-olympics-tennis-donna-vekic/
-
-**For the Pistons to surprise this season, growth on defense is a must**\
-`Detroit addressed offense this summer. Great. What about the other side of the court?`\
-https://nytimes.com/athletic/5667947/2024/07/30/pistons-defense-bickerstaff-cunningham/
 
