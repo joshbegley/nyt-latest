@@ -1,14 +1,6 @@
-**'We want to continue to build': 1-on-1 with Abbotsford Canucks coach Manny Malhotra**\
-`Last week, The Athletic caught up with Malhotra to discuss putting his stamp on the team, Henrik and Daniel Sedin and more.`\
-https://nytimes.com/athletic/5666611/2024/07/30/abbotsford-canucks-coach-manny-malhotra/
-
 **Harris will campaign with Megan Thee Stallion in Atlanta tonight.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/07/30/us/harris-trump-election/harris-will-campaign-with-megan-thee-stallion-in-atlanta-tonight
-
-**'It's a dream': Joseph brothers couldn't pass up opportunity to play together with Blues**\
-`Mathieu and P.O. Joseph provide behind-the-scenes details of how they both joined the Blues this summer and their road to St. Louis.`\
-https://nytimes.com/athletic/5614918/2024/07/30/blues-mathieu-pierre-olivier-joseph-nhl/
 
 **Live Election Updates: Harris Looks to Swing Democrats’ Outlook in Georgia**\
 `Kamala Harris will hold a rally in Atlanta tonight with some star power: The rapper Megan Thee Stallion is joining her. Senator JD Vance will be in Nevada, another state that will be fiercely contested.`\
@@ -37,4 +29,12 @@ https://nytimes.com/2024/07/30/world/europe/southport-stabbing-uk-suspect.html
 **Team USA has ‘appropriate fear’ of rematch with South Sudan**\
 `PARIS – Team USA may be favored by about 30 points to beat South Sudan on Wednesday at the Olympics, but is nevertheless leery of an upset.`\
 https://nytimes.com/athletic/5668242/2024/07/30/usa-basketball-south-sudan-olympics/
+
+**Who are the Druse in the Golan Heights?**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/07/30/world/israel-gaza-war-lebanon-hezbollah/druse-golan-heights-israel
+
+**The Israeli military sends troops to protect a base against attacks by angry citizens.**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2024/07/30/world/israel-gaza-war-lebanon-hezbollah/the-israeli-military-sends-troops-to-protect-a-base-against-attacks-by-angry-citizens
 
