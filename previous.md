@@ -1,3 +1,15 @@
+**Amad keen on extending Man Utd deal after summer talks with Ten Hag**\
+`Amad has said he is “very happy” at Manchester United and would like to stay at the club for the rest of his career.`\
+https://nytimes.com/athletic/5669912/2024/07/30/amad-manchester-united-ten-hag-contract/
+
+**Are Israel and Hezbollah Headed for a Dangerous Escalation?**\
+`Israel’s attack on Beirut, in response to a deadly strike from Lebanon, could lead to open warfare.`\
+https://nytimes.com/live/2024/07/30/opinion/thepoint/israel-hezbollah-attack-beirut
+
+**Pirates add Bryan De La Cruz, Isiah Kiner-Falefa in multiple deals**\
+`The Pirates added to their offense in two separate trades with Miami and Toronto on Tuesday.`\
+https://nytimes.com/athletic/5669856/2024/07/30/bryan-de-la-cruz-pirates-marlins-trade/
+
 **How Team U.S.A. Won the Olympic Women’s Gymnastics Gold**\
 `See frame-by-frame analyses of the skills that allowed Simone Biles, Sunisa Lee, Jade Carey and Jordan Chiles to claim the top of the podium in Paris with a combined 171.296 points.`\
 https://nytimes.com/interactive/2024/07/30/sports/olympics/olympics-usa-womens-gymnastics-gold.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5669793/2024/07/30/gerrit-cole-scratched-will-warre
 **Bills training camp: Cole Bishop injury leaves Buffalo thin at safety, and more**\
 `Plus, Josh Allen's trust in Khalil Shakir stays strong, #Puntapalooza2024 rages on, and more.`\
 https://nytimes.com/athletic/5669483/2024/07/30/buffalo-bills-training-camp-cole-bishop-injury/
-
-**Michele Kang to donate $4 million to U.S. women's rugby**\
-`The donation comes hours after the U.S. women claimed bronze for the country's first Olympic medal in rugby sevens.`\
-https://nytimes.com/athletic/5669739/2024/07/30/us-womens-rugby-michele-kang/
-
-**Israel Struck Beirut as ‘Axis of Resistance’ Leaders Attended Iran Inauguration**\
-`Iranian officials condemned the attack and warned that Hezbollah and Lebanon had the right to retaliate against Israel.`\
-https://nytimes.com/2024/07/30/world/middleeast/israel-beirut-iran-pezeshkian-inauguration.html
-
-**Anita Dunn to Leave White House in First Departure Since Biden’s Withdrawal**\
-`Ms. Dunn, the president’s senior adviser, will consult for a super PAC supporting Vice President Kamala Harris’s fledgling presidential campaign.`\
-https://nytimes.com/2024/07/30/us/politics/anita-dunn-leaving-white-house-kamala-harris.html
 
