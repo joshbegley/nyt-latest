@@ -1,3 +1,7 @@
+**How Did the Park Fire Get So Big, So Fast?**\
+`The blaze has been fed largely by exceptionally dry vegetation following more than a month of extreme heat in California.`\
+https://nytimes.com/2024/07/30/climate/park-fire-california-heat.html
+
 **2024 Is the Year of ‘The Power Broker’**\
 `Our critic tackled its nearly 1,200 pages — and thinks you should too.`\
 https://nytimes.com/2024/07/30/podcasts/2024-is-the-year-of-the-power-broker.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/30/opinion/harris-trump-polls.html
 **Races to Watch in Arizona’s Primary Elections Today**\
 `Before Kari Lake can take on Representative Ruben Gallego for a Senate seat, she must win her Republican race. And two House races set up by the primaries will be hotly contested in the fall.`\
 https://nytimes.com/2024/07/30/us/politics/arizona-primary-races.html
-
-**Kamala Harris’s V.P. Scorecard**\
-`The vice president is narrowing her choices. How do the top contenders match up on political skills that matter most?`\
-https://nytimes.com/2024/07/30/us/politics/kamala-harris-vp-pick.html
 

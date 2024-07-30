@@ -1,3 +1,7 @@
+**How Did the Park Fire Get So Big, So Fast?**\
+`The blaze has been fed largely by exceptionally dry vegetation following more than a month of extreme heat in California.`\
+https://nytimes.com/2024/07/30/climate/park-fire-california-heat.html
+
 **2024 Is the Year of ‘The Power Broker’**\
 `Our critic tackled its nearly 1,200 pages — and thinks you should too.`\
 https://nytimes.com/2024/07/30/podcasts/2024-is-the-year-of-the-power-broker.html
