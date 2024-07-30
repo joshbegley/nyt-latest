@@ -1,3 +1,11 @@
+**Michele Kang to donate $4 million to U.S. women's rugby**\
+`The donation comes hours after the U.S. women claimed bronze for the country's first Olympic medal in rugby sevens.`\
+https://nytimes.com/athletic/5669739/2024/07/30/us-womens-rugby-michele-kang/
+
+**Israel Struck Beirut as ‘Axis of Resistance’ Leaders Attended Iran Inauguration**\
+`Iranian officials condemned the attack and warned that Hezbollah and Lebanon had the right to retaliate against Israel.`\
+https://nytimes.com/2024/07/30/world/middleeast/israel-beirut-iran-pezeshkian-inauguration.html
+
 **Anita Dunn to Leave White House in First Departure Since Biden’s Withdrawal**\
 `Ms. Dunn, the president’s senior adviser, will consult for a super PAC supporting Vice President Kamala Harris’s fledgling presidential campaign.`\
 https://nytimes.com/2024/07/30/us/politics/anita-dunn-leaving-white-house-kamala-harris.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/30/us/politics/asylum-officers-union-biden-border-re
 **Read the Letter to Sullivan & Cromwell**\
 `A letter to Joseph Shenker, the senior chair at Sullivan & Cromwell, criticizing the law firm’s approach to student protestors.`\
 https://nytimes.com/interactive/2024/07/30/business/sullivan-letter.html
-
-**MLB Trade Grades: Mets make a solid, if unexciting pickup in Paul Blackburn**\
-`The Mets traded one prospect to get the back-end starter, a reliever performing well in the low minors. `\
-https://nytimes.com/athletic/5669750/2024/07/30/mlb-trade-grades-paul-blackburn-mets-athletics/
-
-**Antidoping Agency Acknowledges Concern Over Use of Tainted Food as Excuse**\
-`After a spate of positive tests for performance-enhancing drugs by athletes, the World Anti-Doping Agency is investigating why China and other countries are citing contaminated food as an explanation.`\
-https://nytimes.com/2024/07/30/us/politics/antidoping-agency-tainted-food-olympics-china.html
 
