@@ -1,3 +1,7 @@
+**Judge John Hodgman on Whether ‘Cujo’ is Scary or Not**\
+`Do you have to read the book before deciding?`\
+https://nytimes.com/2024/07/30/magazine/judge-john-hodgman-on-whether-cujo-is-scary-or-not.html
+
 **Coco Gauff loses to Donna Vekic at Olympics after line call controversy**\
 `The world No 2 and American world No 1 was the victim of a disputed line call at a key point in the second set`\
 https://nytimes.com/athletic/5668338/2024/07/30/coco-gauff-olympics-tennis-donna-vekic/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/30/nyregion/second-avenue-subway-expansion.html
 **Ukraine Ramps Up Mobilization, Hoping to Bolster Battlefield Strength**\
 `Large numbers of conscripts will arrive at the front in the coming weeks, soldiers and military analysts said, but some are poorly trained or out of shape.`\
 https://nytimes.com/2024/07/30/world/europe/ukraine-war-troops-russia-mobilization.html
-
-**Why Are There Fears of War in the South China Sea?**\
-`China claims most of the strategic waterway and is trying to push out neighbors like the Philippines. Any deadly mistake could risk war.`\
-https://nytimes.com/article/south-china-sea-philippines.html
 
