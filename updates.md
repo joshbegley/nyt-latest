@@ -1,3 +1,19 @@
+**U.S. women's rugby wins bronze on last-second try**\
+`It was the sweetest of turnarounds for the American women, how had lost a tough semifinal New Zealand in the afternoon.`\
+https://nytimes.com/athletic/5669076/2024/07/30/olympics-rugby-womens-usa-bronze-medal/
+
+**Kamala Harris Is Dressing to Be President**\
+`With very little time to prepare for the campaign trail, the vice president is sticking to her suits — a political move of its own.`\
+https://nytimes.com/2024/07/30/style/kamala-harris-presidential-style.html
+
+**Red Sox acquire reliever Lucas Sims from Reds for prospect**\
+`The Red Sox's bullpen has been hit hard by injuries, adds a former first round pick to the mix.`\
+https://nytimes.com/athletic/5669106/2024/07/30/lucas-sims-red-sox-reds-trade/
+
+**Yankees acquire reliever Mark Leiter Jr. from Cubs**\
+`The Cubs will receive infield prospect Ben Cowles and relief prospect Jack Neely in return.`\
+https://nytimes.com/athletic/5669057/2024/07/30/yankees-cubs-trade-mark-leiter/
+
 **Ackman Scales Back Multibillion-Dollar I.P.O.**\
 `An investment fund from William Ackman aims to raise around $2 billion, according to a regulatory filing, a fraction of what was originally envisioned.`\
 https://nytimes.com/2024/07/30/business/bill-ackman-pershing-square-ipo.html
