@@ -1,3 +1,7 @@
+**After Protest Crackdown, Bangladesh Accuses Tens of Thousands of Crimes**\
+`Charges include vandalism, arson, theft, trespassing and damage to state property. A rights group called it a witch hunt, following an initial sweep during which more than 200 people were killed.`\
+https://nytimes.com/2024/07/30/world/asia/bangladesh-protests-charges-crime.html
+
 **K-State's speedy Avery Johnson wants to prove he can also beat you with his arm**\
 `Kansas State is ready for the Avery Johnson show, and Johnson is committed to shining not just with his feet but his arm. `\
 https://nytimes.com/athletic/5668522/2024/07/30/avery-johnson-kansas-state-football/
