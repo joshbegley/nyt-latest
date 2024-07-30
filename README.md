@@ -1,3 +1,7 @@
+**Josh Shapiro, a V.P. Contender, Criticized U.S. Steel Takeover and Defended His Tax Cuts**\
+`The proposed acquisition of the American company by Japan’s Nippon Steel has become a sensitive political matter, with both President Biden and Donald J. Trump decrying the deal.`\
+https://nytimes.com/2024/07/30/us/politics/shapiro-vice-president-taxes.html
+
 **‘Hillbilly Elegy’ Sales Surge After JD Vance Joins Trump Campaign**\
 `The book has sold more than 750,000 copies since July 15, his publisher said.`\
 https://nytimes.com/2024/07/30/books/hillbilly-elegy-sales-surge-after-jd-vance-joins-trump-campaign.html
@@ -6,7 +10,7 @@ https://nytimes.com/2024/07/30/books/hillbilly-elegy-sales-surge-after-jd-vance-
 `From olives encased in Jell-O cubes to giant ravioli, iconoclastic takes on Italian classics are shaping the menus at a new wave of restaurants.`\
 https://nytimes.com/2024/07/30/t-magazine/italian-food-restaurants-ny.html
 
-**How Kamala Harris Faces a Faster, Uglier Version of the Internet**\
+**Kamala Harris Faces a Faster, Uglier Version of the Internet**\
 `Politicians have long faced racist and sexist attacks online. But Ms. Harris is being attacked on more platforms, with new technologies and in front of bigger audiences than Barack Obama and Hillary Clinton were.`\
 https://nytimes.com/2024/07/30/technology/kamala-harris-toxic-internet-politics.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/30/world/olympics-gymnastics-simone-biles/jorda
 **Titans' Arden Key facing 6-game suspension for banned substance**\
 `Key, 28, is embarking on his seventh season as a pro and second with the Titans.`\
 https://nytimes.com/athletic/5668913/2024/07/30/titans-arden-key-suspension/
-
-**105 is college football's new key roster number. What will it change?**\
-`The new system allows schools flexibility to decide how many scholarships within the roster limit they want to give out.`\
-https://nytimes.com/athletic/5668459/2024/07/30/ncaa-roster-caps-house-settlement-scholarships/
 
