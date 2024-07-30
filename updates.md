@@ -1,3 +1,7 @@
+**49ers training camp: Deommodore Lenoir's secondary struck back vs. Brock Purdy**\
+`A hot start from Purdy featured two long touchdowns, but Lenoir and the defense notched the last laugh on Tuesday.`\
+https://nytimes.com/athletic/5669565/2024/07/30/49ers-training-camp-deommodore-lenoir-brock-purdy/
+
 **MLB Trade Grades: In Jack Flaherty, Dodgers get their impact arm**\
 `Once again, Los Angeles made the deadline's biggest splash in the starting pitching market at the last minute. `\
 https://nytimes.com/athletic/5670102/2024/07/30/mlb-trade-grades-dodgers-tigers-jack-flaherty/
