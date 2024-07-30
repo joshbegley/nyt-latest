@@ -1,3 +1,11 @@
+**Amanda Staveley exclusive: Leaving Newcastle, living with Huntington's and what comes next**\
+`In her first interview since leaving St James' Park, George Caulkin hears why Staveley believes her exit is 'painful' but necessary`\
+https://nytimes.com/athletic/5635448/2024/07/30/amanda-staveley-newcastle-interview/
+
+**Staveley open to investing in new club after Newcastle exit**\
+`Amanda Staveley says she is open to investing in another football club following her exit from Newcastle United.`\
+https://nytimes.com/athletic/5665446/2024/07/30/amanda-staveley-tottenham/
+
 **Word of the Day: sluggish**\
 `This word has appeared in 245 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/07/30/learning/word-of-the-day-sluggish.html
