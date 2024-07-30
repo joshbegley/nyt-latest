@@ -1,3 +1,19 @@
+**The V.P.’s Search for a V.P.**\
+`What Kamala Harris is looking for in a running mate.`\
+https://nytimes.com/2024/07/30/podcasts/the-daily/kamala-harris-vp.html
+
+**Trump Ad Attacks Harris, and Protests Erupt in Venezuela**\
+`Plus, the skyrocketing toll of cybercrime.`\
+https://nytimes.com/2024/07/30/podcasts/political-ad-harris-venezuela.html
+
+**Wordle Review No. 1,138, Wednesday, July 31, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/30/crosswords/wordle-review-1138.html
+
+**The Connections Companion No. 416, July 31, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/30/crosswords/connections-companion-416.html
+
 **What to Watch for as Simone Biles Leads U.S. in Quest for Team Gold**\
 `The women’s team was a favorite to win in Tokyo but ended up with silver after Biles withdrew. Now the gymnasts are seeking redemption in Paris.`\
 https://nytimes.com/2024/07/30/world/olympics/simone-biles-gymnastics-watch-finals.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/07/30/opinion/ezra-klein-podcast-gretchen-whitmer.html
 **This 15-Minute Shrimp Dish Will Transport You to Spain**\
 `You won’t even need to leave your yard with this menu, book-ended with escalivada, a traditional Catalan vegetable dish, and a refreshing peach sorbet from David Tanis.`\
 https://nytimes.com/2024/07/30/dining/garlic-shrimp-recipe.html
-
-**Are Ultraprocessed Foods Actually Worse?**\
-`Ultraprocessed foods are ubiquitous, making up a whopping 73 percent of the U.`\
-https://nytimes.com/video/well/eat/100000009590509/are-ultraprocessed-foods-actually-worse.html
-
-**Biden Is Right: End Lifetime Tenure on the Supreme Court**\
-`He deserves credit for being the first president to join the movement.`\
-https://nytimes.com/live/2024/07/22/opinion/thepoint/biden-supreme-court-term-limits
-
-**Trump’s First Major Ad Attacking Harris Hits Her on Immigration**\
-`The spot, running on television in six battleground states, reflects an effort by the former president to center immigration that predates Kamala Harris’s rise to the top of the Democratic ticket.`\
-https://nytimes.com/2024/07/30/us/politics/trump-campaign-ad-harris-immigration.html
-
-**What the Polls Tell Us About Harris vs. Trump**\
-`There are two things giving the vice president a lift in the short term: unity and energy.`\
-https://nytimes.com/2024/07/30/opinion/harris-trump-polls.html
 

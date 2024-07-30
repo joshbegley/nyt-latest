@@ -1,3 +1,19 @@
+**The V.P.’s Search for a V.P.**\
+`What Kamala Harris is looking for in a running mate.`\
+https://nytimes.com/2024/07/30/podcasts/the-daily/kamala-harris-vp.html
+
+**Trump Ad Attacks Harris, and Protests Erupt in Venezuela**\
+`Plus, the skyrocketing toll of cybercrime.`\
+https://nytimes.com/2024/07/30/podcasts/political-ad-harris-venezuela.html
+
+**Wordle Review No. 1,138, Wednesday, July 31, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/30/crosswords/wordle-review-1138.html
+
+**The Connections Companion No. 416, July 31, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/07/30/crosswords/connections-companion-416.html
+
 **What to Watch for as Simone Biles Leads U.S. in Quest for Team Gold**\
 `The women’s team was a favorite to win in Tokyo but ended up with silver after Biles withdrew. Now the gymnasts are seeking redemption in Paris.`\
 https://nytimes.com/2024/07/30/world/olympics/simone-biles-gymnastics-watch-finals.html
