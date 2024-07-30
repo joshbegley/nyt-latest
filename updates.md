@@ -1,3 +1,7 @@
+**Dissident Group Wins Amazon Union Leadership Vote**\
+`The Amazon Labor Union has been divided over strategy and governance issues after winning a representation vote at a Staten Island warehouse in 2022.`\
+https://nytimes.com/2024/07/30/business/economy/amazon-labor-union-election.html
+
 **Keep Sahm and Carry On**\
 `A recession indicator may soon be triggered, but don’t panic.`\
 https://nytimes.com/2024/07/30/opinion/sahm-rule-unemployment-recession.html

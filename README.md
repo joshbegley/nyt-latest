@@ -1,3 +1,7 @@
+**'Instinct is no' for Jets' Aaron Rodgers to play in preseason, Robert Saleh says**\
+`Rodgers is recovering from a torn Achilles tendon that ended his first season with the Jets after just four snaps.`\
+https://nytimes.com/athletic/5669474/2024/07/30/jets-aaron-rodgers-preseason-games/
+
 **Dissident Group Wins Amazon Union Leadership Vote**\
 `The Amazon Labor Union has been divided over strategy and governance issues after winning a representation vote at a Staten Island warehouse in 2022.`\
 https://nytimes.com/2024/07/30/business/economy/amazon-labor-union-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/30/business/media/trump-nabj-black-journalists.html
 **Guardians to acquire Alex Cobb from Giants to fortify their rotation: Sources**\
 `The Cleveland Guardians added a veteran presence to their rotation, acquiring right-hander Alex Cobb from the San Francisco Giants for left-handed pitching prospect Jacob Bresnahan and a player to be named later, league sources confirmed to The Athletic.`\
 https://nytimes.com/athletic/5669385/2024/07/30/guardians-sf-giants-alex-cobb-trade/
-
-**Astros acquire reliever Caleb Ferguson in trade with Yankees: Sources**\
-`In need of bullpen depth, the Astros landed on Ferguson, whom they acquired for international bonus pool money and a minor leaguer.`\
-https://nytimes.com/athletic/5669408/2024/07/30/caleb-ferguson-astros-yankees-trade/
 
