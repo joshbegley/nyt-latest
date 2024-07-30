@@ -1,3 +1,7 @@
+**MLB Trade Grades: Could Guardians, Nats both have done better in Lane Thomas deal?**\
+`This appears to be a deal that underwhelms for both sides.`\
+https://nytimes.com/athletic/5667372/2024/07/29/mlb-trade-grades-guardians-nationals-lane-thomas/
+
 **Twins games to return to air after Diamond-Comcast deal — but it'll (eventually) cost you**\
 `The good news: The Twins will soon be back on the air for Comcast customers. The bad news: The new plan will cost an additional $20 a month.`\
 https://nytimes.com/athletic/5667248/2024/07/29/twins-games-diamond-comcast-deal-cost-increase/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5667157/2024/07/29/raiders-training-camp-luke-getsy
 **Photos of the California Park Fire**\
 `The fire, which has been burning since last Wednesday, is already one of the largest in the state’s history.`\
 https://nytimes.com/2024/07/29/us/photos-of-the-california-park-fire.html
-
-**Netanyahu Vows ‘Severe’ Response to Deadly Rocket Attack Tied to Hezbollah**\
-`Fears linger among Lebanese civilians after a strike killed 12 children and teenagers in the Israeli-controlled Golan Heights.`\
-https://nytimes.com/2024/07/29/world/middleeast/israel-hezbollah-lebanon.html
 
