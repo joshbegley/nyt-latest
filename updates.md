@@ -1,3 +1,7 @@
+**MLB Trade Grades: Brewers make head-scratcher in Frankie Montas deal with Reds**\
+`The Brewers paid to acquire a starting pitcher in Frankie Montas. They may have given up a better one in Jakob Junis. `\
+https://nytimes.com/athletic/5667672/2024/07/29/mlb-trade-grades-frankie-montas-brewers-reds/
+
 **Lane Thomas fills significant need, but Guardians pay hefty price to Nationals**\
 `Thomas hasn't repeated his breakout season this year, but he still represents a big upgrade for Cleveland.`\
 https://nytimes.com/athletic/5667615/2024/07/29/lane-thomas-guardians-nationals-trade-analysis/

@@ -1,3 +1,7 @@
+**MLB Trade Grades: Brewers make head-scratcher in Frankie Montas deal with Reds**\
+`The Brewers paid to acquire a starting pitcher in Frankie Montas. They may have given up a better one in Jakob Junis. `\
+https://nytimes.com/athletic/5667672/2024/07/29/mlb-trade-grades-frankie-montas-brewers-reds/
+
 **Lane Thomas fills significant need, but Guardians pay hefty price to Nationals**\
 `Thomas hasn't repeated his breakout season this year, but he still represents a big upgrade for Cleveland.`\
 https://nytimes.com/athletic/5667615/2024/07/29/lane-thomas-guardians-nationals-trade-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/29/us/william-calley-dead.html
 **MLB Trade Grades: Astros gain stability but pay high price for Yusei Kikuchi pickup**\
 `For a few months of Yusei Kikuchi, the Astros may have given up three likely major leaguers.`\
 https://nytimes.com/athletic/5667471/2024/07/29/mlb-trade-grades-yusei-kikuchi-blue-jays-astros/
-
-**Notre Dame AD 'all in' on continuing rivalry with USC**\
-`Notre Dame AD Pete Bevacqua wants to keep the school's annual rivalry game with USC after Lincoln Riley last week pondered its possible end.`\
-https://nytimes.com/athletic/5667319/2024/07/29/notre-dame-usc-football-series/
 
