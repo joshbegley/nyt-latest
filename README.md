@@ -1,3 +1,7 @@
+**Bangladesh Accuses Tens of Thousands of Crimes in Sweep to Break Protesters**\
+`Charges include vandalism, arson, theft, trespassing and damage to state property. A rights group called it a witch hunt, following an initial crackdown in which more than 200 people were killed.`\
+https://nytimes.com/2024/07/30/world/asia/bangladesh-protests-charges-crime.html
+
 **Disney Comes for ‘Deadpool’**\
 `Schlocky, overwrought movies used to be the Deadpool signature. But with “Deadpool & Wolverine,” and Disney’s push into the Marvel Universe, that thread is lost.`\
 https://nytimes.com/2024/07/30/movies/deadpool-wolverine-disney-marvel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/30/nyregion/nypd-pearson-adams-lawsuit.html
 **Books by Rachel Kushner and Richard Powers Are Among Booker Prize Nominees**\
 `There are six American novels in the running for the prestigious British literary award, but only two by U.K. authors.`\
 https://nytimes.com/2024/07/30/books/booker-prize-2024-longlist.html
-
-**Ten players who must step up in Kalen DeBoer's first Alabama camp**\
-`With Kalen DeBoer's first Alabama training camp fast approaching, who among the Crimson Tide need to step up in 2024?`\
-https://nytimes.com/athletic/5667904/2024/07/30/alabama-crimson-tide-camp-preview/
 
