@@ -1,3 +1,19 @@
+**Rodgers, Wilson search for chemistry on another long day for Jets offense: Training camp observations**\
+`FLORHAM PARK, N.`\
+https://nytimes.com/athletic/5669416/2024/07/30/aaron-rodgers-garrett-wilson-jets-offense-struggles-training-camp-practice-report/
+
+**Jill Ellis files lawsuit against former San Diego Wave employee for defamation**\
+`The complaint requests a jury trial, for damages in an amount to be determined by that trial, and injunctive relief against Alvarado.`\
+https://nytimes.com/athletic/5669210/2024/07/30/san-diego-wave-jill-ellis-lawsuit/
+
+**Project 2025 Director Steps Down Amid Trump Criticism**\
+`Paul Dans oversaw the project for the Heritage Foundation, a conservative think tank behind the proposal to reshape the federal government. Vice President Kamala Harris has used it to attack the former president.`\
+https://nytimes.com/2024/07/30/us/politics/project-2025-director-steps-down.html
+
+**Twins finally make a trade, acquire reliever Trevor Richards from Blue Jays: Sources**\
+`The Twins finally got on the board, trading for Blue Jays right-hander reliever Trevor Richards, according to multiple major-league sources.`\
+https://nytimes.com/athletic/5669594/2024/07/30/trevor-richards-twins-bluejays-trade/
+
 **MLB Trade Grade: Can Alex Cobb return to form with the Guardians?**\
 `Alex Cobb's health has been an issue this season, but the Guardians are hoping he can rediscover his form in time for the playoffs.`\
 https://nytimes.com/athletic/5669489/2024/07/30/mlb-trade-grade-alex-cobb-giants-guardians/
