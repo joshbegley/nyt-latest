@@ -1,3 +1,7 @@
+**Braves' Grant Holmes won't forget his gem of a first MLB start, and a moment with dad**\
+`Holmes, a 28-year-old rookie, got his his first seven outs via strikeout on an emotional day. `\
+https://nytimes.com/athletic/5667952/2024/07/30/braves-grant-holmes-strikeouts/
+
 **Men's Olympic triathlon postponed as Seine remains unsafe**\
 `The last-minute postponement comes after Paris officials have promised for years the race would be race ready.`\
 https://nytimes.com/athletic/5666017/2024/07/30/seine-river-water-quality-olympic-triathlon-postponed/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5650307/2024/07/30/james-ward-prowse-west-ham-julen
 **Manchester United and Old Trafford: Should the club build a new 100,000-capacity stadium?**\
 `Our writers discuss the pros and cons of Manchester United moving to a new purpose-built ground next to Old Trafford `\
 https://nytimes.com/athletic/5666476/2024/07/30/manchester-united-new-stadium-roundtable/
-
-**Olympic Men’s Triathlon Postponed Because of Pollution in the Seine**\
-`Water-quality tests early Tuesday showed that the river running through Paris was unsafe for swimming, organizers said.`\
-https://nytimes.com/2024/07/30/world/olympics/seine-olympics-triathlon-postponed.html
 

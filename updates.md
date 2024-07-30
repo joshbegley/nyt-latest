@@ -1,3 +1,7 @@
+**Braves' Grant Holmes won't forget his gem of a first MLB start, and a moment with dad**\
+`Holmes, a 28-year-old rookie, got his his first seven outs via strikeout on an emotional day. `\
+https://nytimes.com/athletic/5667952/2024/07/30/braves-grant-holmes-strikeouts/
+
 **Men's Olympic triathlon postponed as Seine remains unsafe**\
 `The last-minute postponement comes after Paris officials have promised for years the race would be race ready.`\
 https://nytimes.com/athletic/5666017/2024/07/30/seine-river-water-quality-olympic-triathlon-postponed/
