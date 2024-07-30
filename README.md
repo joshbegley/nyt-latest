@@ -30,7 +30,7 @@ https://nytimes.com/live/2024/07/30/world/israel-gaza-war-lebanon-hezbollah/the-
 `The eight Palestinian athletes at the Games represent not only a homeland but a cause. But for those in Gaza, a scarcity of electricity has made it nearly impossible to keep up with the outside world.`\
 https://nytimes.com/2024/07/30/world/middleeast/palestinians-gaza-olympics.html
 
-**Riots at Israeli Army Base Show Growing Divisions Over War in Gaza**\
+**Riots at Israeli Army Bases Show Growing Divisions Over War in Gaza**\
 `Right-wing demonstrators forced their way inside two military facilities after nine soldiers were held on suspicion of abusing a Palestinian man.`\
 https://nytimes.com/live/2024/07/30/world/israel-gaza-war-lebanon-hezbollah
 
