@@ -1,3 +1,7 @@
+**Word of the Day: sluggish**\
+`This word has appeared in 245 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/07/30/learning/word-of-the-day-sluggish.html
+
 **Yusei Kikuchi arrives at an enormous cost and is already under immense pressure**\
 `The three prospects shipped away for Kikuchi are ranked within the top 12 of the Astros' farm system.`\
 https://nytimes.com/athletic/5667921/2024/07/30/yusei-kikuchi-astros/
