@@ -1,3 +1,12 @@
+**'Instinct is no' for Jets' Aaron Rodgers to play in preseason, Robert Saleh says**\
+`Rodgers is recovering from a torn Achilles tendon that ended his first season with the Jets after just four snaps.`\
+https://nytimes.com/athletic/5669474/2024/07/30/jets-aaron-rodgers-preseason-games/
+
+**Royals swing deadline deals to add Paul DeJong and Lucas Erceg: Sources**\
+`By Johnny Flores, Melissa Lockard and Aaron Gleeman
+The Kansas City Royals struck quickly on Tuesday afternoon, swinging a pair of separate deals in rapid succession to bring in reliever Lucas Erceg from the Oakland Athletics and shortstop Paul DeJong from the Chicago White Sox, league sources told The Athletic ahead of baseball’s trade deadline.`\
+https://nytimes.com/athletic/5666925/2024/07/30/lucas-erceg-paul-dejong-oyals-athletics-white-soxtrade/
+
 **Dissident Group Wins Amazon Union Leadership Vote**\
 `The Amazon Labor Union has been divided over strategy and governance issues after winning a representation vote at a Staten Island warehouse in 2022.`\
 https://nytimes.com/2024/07/30/business/economy/amazon-labor-union-election.html

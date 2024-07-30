@@ -1,3 +1,7 @@
+**'Instinct is no' for Jets' Aaron Rodgers to play in preseason, Robert Saleh says**\
+`Rodgers is recovering from a torn Achilles tendon that ended his first season with the Jets after just four snaps.`\
+https://nytimes.com/athletic/5669474/2024/07/30/jets-aaron-rodgers-preseason-games/
+
 **Dissident Group Wins Amazon Union Leadership Vote**\
 `The Amazon Labor Union has been divided over strategy and governance issues after winning a representation vote at a Staten Island warehouse in 2022.`\
 https://nytimes.com/2024/07/30/business/economy/amazon-labor-union-election.html
@@ -14,9 +18,10 @@ https://nytimes.com/2024/07/22/opinion/venezuela-maduro-election.html
 `The United States pulled away, winning ahead of Italy, which won its first team medal since 1928, and Brazil, which claimed its first team medal ever.`\
 https://nytimes.com/2024/07/30/world/olympics/gymnastics-team-final-simone-biles.html
 
-**Royals acquire Lucas Erceg as Athletics take advantage of reliever market: Sources**\
-`In a surprising deadline twist, the A’s are dealing reliever Lucas Erceg to the Kansas City Royals, league sources told The Athletic.`\
-https://nytimes.com/athletic/5666925/2024/07/30/lucas-erceg-royals-athletics-trade/
+**Royals swing deadline deals to add Paul DeJong and Lucas Erceg: Sources**\
+`By Johnny Flores, Melissa Lockard and Aaron Gleeman
+The Kansas City Royals struck quickly on Tuesday afternoon, swinging a pair of separate deals in rapid succession to bring in reliever Lucas Erceg from the Oakland Athletics and shortstop Paul DeJong from the Chicago White Sox, league sources told The Athletic ahead of baseball’s trade deadline.`\
+https://nytimes.com/athletic/5666925/2024/07/30/lucas-erceg-paul-dejong-oyals-athletics-white-soxtrade/
 
 **Falcons' Arthur Blank defends Michael Penix Jr. pick: 'We're independent thinkers'**\
 `The Falcons didn't want a repeat of the QB problem they had after trading Matt Ryan. Blank said fans will eventually understand the move.`\
@@ -33,8 +38,4 @@ https://nytimes.com/2024/07/30/business/media/trump-nabj-black-journalists.html
 **Guardians to acquire Alex Cobb from Giants to fortify their rotation: Sources**\
 `The Cleveland Guardians added a veteran presence to their rotation, acquiring right-hander Alex Cobb from the San Francisco Giants for left-handed pitching prospect Jacob Bresnahan and a player to be named later, league sources confirmed to The Athletic.`\
 https://nytimes.com/athletic/5669385/2024/07/30/guardians-sf-giants-alex-cobb-trade/
-
-**Astros acquire reliever Caleb Ferguson in trade with Yankees: Sources**\
-`In need of bullpen depth, the Astros landed on Ferguson, whom they acquired for international bonus pool money and a minor leaguer.`\
-https://nytimes.com/athletic/5669408/2024/07/30/caleb-ferguson-astros-yankees-trade/
 
