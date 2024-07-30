@@ -1,3 +1,11 @@
+**MLB Trade Grades: Can Eloy Jiménez find a fresh start — and his old self — in Baltimore?**\
+`Baltimore has decided to roll the dice and spend some money to see if they can get Jiménez right — or at least hot in the postseason.`\
+https://nytimes.com/athletic/5670167/2024/07/30/mlb-trade-grades-eloy-jimenez-orioles/
+
+**Marseille submit new Eddie Nketiah bid worth close to €20m**\
+`Marseille have stepped up their efforts to sign Eddie Nketiah from Arsenal after submitting an improved proposal for the striker on Tuesday.`\
+https://nytimes.com/athletic/5670214/2024/07/30/eddie-nketiah-marseille-arsenal/
+
 **49ers training camp: Deommodore Lenoir's secondary struck back vs. Brock Purdy**\
 `A hot start from Purdy featured two long touchdowns, but Lenoir and the defense notched the last laugh on Tuesday.`\
 https://nytimes.com/athletic/5669565/2024/07/30/49ers-training-camp-deommodore-lenoir-brock-purdy/

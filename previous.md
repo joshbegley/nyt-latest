@@ -1,6 +1,14 @@
+**MLB Trade Grades: Can Eloy Jiménez find a fresh start — and his old self — in Baltimore?**\
+`Baltimore has decided to roll the dice and spend some money to see if they can get Jiménez right — or at least hot in the postseason.`\
+https://nytimes.com/athletic/5670167/2024/07/30/mlb-trade-grades-eloy-jimenez-orioles/
+
 **49ers training camp: Deommodore Lenoir's secondary struck back vs. Brock Purdy**\
 `A hot start from Purdy featured two long touchdowns, but Lenoir and the defense notched the last laugh on Tuesday.`\
 https://nytimes.com/athletic/5669565/2024/07/30/49ers-training-camp-deommodore-lenoir-brock-purdy/
+
+**Marseille submit new Eddie Nketiah bid worth close to €20m**\
+`Marseille have stepped up their efforts to sign Eddie Nketiah from Arsenal after submitting an improved proposal for the striker on Tuesday.`\
+https://nytimes.com/athletic/5670214/2024/07/30/eddie-nketiah-marseille-arsenal/
 
 **MLB Trade Grades: In Jack Flaherty, Dodgers get their impact arm**\
 `Once again, Los Angeles made the deadline's biggest splash in the starting pitching market at the last minute. `\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5670056/2024/07/30/mlb-trade-grades-twins-blue-jays
 **Steelers training camp: New-look offense bullies defense on Day 1 in pads**\
 `The Steelers have invested heavily up front, and it showed on Tuesday. Meanwhile, Russell Wilson is getting closer to returning to practice.`\
 https://nytimes.com/athletic/5669260/2024/07/30/steelers-training-camp-offensive-line/
-
-**Romeo Doubs vs. Jaire Alexander and 10 more observations from Packers camp**\
-`On his list of top NFL wide receivers, Alexander put Doubs second behind Davante Adams.`\
-https://nytimes.com/athletic/5669499/2024/07/30/romeo-doubs-jaire-alexander-packers-camp/
-
-**Why 2024 Is So San Francisco**\
-`The city’s leaders are forged in a mix of wealth, diversity and a good bit of political nastiness.`\
-https://nytimes.com/2024/07/30/us/politics/harris-trump-san-francisco-voting-election.html
 
