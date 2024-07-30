@@ -1,3 +1,7 @@
+**Rangers sign Ryan Lindgren to one-year contract, avoiding arbitration**\
+`The New York Rangers signed restricted free agent Ryan Lindgren to a one-year deal for $4.`\
+https://nytimes.com/athletic/5669175/2024/07/30/ny-rangers-ryan-lindgren-contract/
+
 **MLB Trade Grades: Baltimore gives up a lot for Trevor Rogers — was it worth it?**\
 `With left-handed starters in short supply, the Orioles made a move for Trevor Rogers and their return headed back to Miami was notable. `\
 https://nytimes.com/athletic/5669215/2024/07/30/mlb-trade-grades-trevor-rogers-orioles-marlins/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/30/us/politics/kamala-harris-vp-timing.html
 **Israel’s Five Wars**\
 `Whatever comes next in Lebanon is a piece in a much larger battle.`\
 https://nytimes.com/2024/07/30/opinion/israel.html
-
-**Heavy Rain Triggers Deadly Landslides in Southern India**\
-`A major search-and-rescue operation is underway after days of torrential rain caused landslides in Kerala, India.`\
-https://nytimes.com/video/world/asia/100000009600660/india-landslides-kerala.html
 
