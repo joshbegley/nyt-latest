@@ -1,3 +1,15 @@
+**Panthers stock report: Who's up, down and holding steady after first week?**\
+`Second-year WR Jonathan Mingo off to good start and LT Ikem Ekwonu is making improvement after a difficult second season.`\
+https://nytimes.com/athletic/5669345/2024/07/30/carolina-panthers-stock-report-training-camp/
+
+**Norah O’Donnell to Step Down as Anchor of ‘CBS Evening News’**\
+`Ms. O’Donnell told colleagues that she had signed “a long-term commitment” to CBS News that will involve a new role that will include “big interviews.”`\
+https://nytimes.com/2024/07/30/technology/norah-odonnell-cbs-evening-news.html
+
+**Flames sign G Wolf to 2-year, $850,000 AAV deal**\
+`Wolf is expected to become more of an NHL regular next season after the Flames traded Jacob Markstrom.`\
+https://nytimes.com/athletic/5669340/2024/07/30/flames-dustin-wolf-contract/
+
 **'Instinct is no' for Jets' Aaron Rodgers to play in preseason, Robert Saleh says**\
 `Rodgers is recovering from a torn Achilles tendon that ended his first season with the Jets after just four snaps.`\
 https://nytimes.com/athletic/5669474/2024/07/30/jets-aaron-rodgers-preseason-games/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5666925/2024/07/30/lucas-erceg-royals-athletics-tra
 **Falcons' Arthur Blank defends Michael Penix Jr. pick: 'We're independent thinkers'**\
 `The Falcons didn't want a repeat of the QB problem they had after trading Matt Ryan. Blank said fans will eventually understand the move.`\
 https://nytimes.com/athletic/5669010/2024/07/30/arthur-blank-falcons-michael-penix-jr/
-
-**Restaurant Review: This Outstanding Yemeni Kitchen Began With an Escape From War**\
-`Yemenat, in Bay Ridge, Brooklyn, offers Yemeni delights rarely found in New York City.`\
-https://nytimes.com/2024/07/30/dining/yemenat-restaurant-review-bay-ridge-brooklyn.html
-
-**Trump Invitation to Conference for Black Journalists Sets Off Intense Debate**\
-`The National Association of Black Journalists has a history of inviting presidential candidates to speak, but many of its members are bristling at Donald Trump’s scheduled session.`\
-https://nytimes.com/2024/07/30/business/media/trump-nabj-black-journalists.html
-
-**Guardians to acquire Alex Cobb from Giants to fortify their rotation: Sources**\
-`The Cleveland Guardians added a veteran presence to their rotation, acquiring right-hander Alex Cobb from the San Francisco Giants for left-handed pitching prospect Jacob Bresnahan and a player to be named later, league sources confirmed to The Athletic.`\
-https://nytimes.com/athletic/5669385/2024/07/30/guardians-sf-giants-alex-cobb-trade/
 
