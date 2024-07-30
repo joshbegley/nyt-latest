@@ -1,3 +1,7 @@
+**MLB Trade Grades: With Jorge Soler deal, Braves get the gang back together**\
+`Soler is valuable to the Braves because of his bat. But with Marcell Ozuna already in the fold, Soler isn't a perfect fit.`\
+https://nytimes.com/athletic/5667899/2024/07/30/mlb-trade-grades-jorge-soler-braves-giants/
+
 **Quarterback roundtable: The Top 5 overall, SuperFlex pairings, QBs to avoid and more**\
 `The Athletic fantasy football crew weigh in on the quarterback position, sharing their Top 5 rankings, SuperFlex draft strategy and more.`\
 https://nytimes.com/athletic/5666218/2024/07/30/fantasy-football-2024-quarterback-roundtable-superflex-top5/

@@ -1,3 +1,7 @@
+**MLB Trade Grades: With Jorge Soler deal, Braves get the gang back together**\
+`Soler is valuable to the Braves because of his bat. But with Marcell Ozuna already in the fold, Soler isn't a perfect fit.`\
+https://nytimes.com/athletic/5667899/2024/07/30/mlb-trade-grades-jorge-soler-braves-giants/
+
 **Quarterback roundtable: The Top 5 overall, SuperFlex pairings, QBs to avoid and more**\
 `The Athletic fantasy football crew weigh in on the quarterback position, sharing their Top 5 rankings, SuperFlex draft strategy and more.`\
 https://nytimes.com/athletic/5666218/2024/07/30/fantasy-football-2024-quarterback-roundtable-superflex-top5/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5667568/2024/07/30/chicago-white-sox-trade-deadline
 **Rock stars, tradition and transfer trickery - how Villa's viral kit video came together**\
 `Villa's kit launch video has racked up four millions views in a week - it involves rock stars, a trip to Hollywood and Unai Emery`\
 https://nytimes.com/athletic/5665310/2024/07/30/aston-villa-ozzy-osbourne-geezer-butler-new-kit/
-
-**How Real Madrid's physical trainer is helping NASA with the Artemis moon programme**\
-`Nicknamed 'The Sergeant' for his unforgiving fitness methods, Pintus has visited NASA to advise them on peak human performance`\
-https://nytimes.com/athletic/5665452/2024/07/30/real-madrid-nasa-artemis-pintus/
 
