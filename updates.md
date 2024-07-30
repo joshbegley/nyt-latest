@@ -1,3 +1,11 @@
+**Barton pleads not guilty to alleged malicious communications towards Aluko**\
+`Joey Barton will appear before Liverpool Crown Court next month after pleading not guilty to charges of alleged malicious communications online towards Eni Aluko.`\
+https://nytimes.com/athletic/5668131/2024/07/30/joey-barton-trial-aluko/
+
+**Brighton's Gross close to completing Borussia Dortmund move**\
+`Brighton and Hove Albion midfielder Pascal Gross is close to completing a move to Borussia Dortmund.`\
+https://nytimes.com/athletic/5668154/2024/07/30/dortmund-brighton-pascal-gross-transfer/
+
 **Fernandez apologises to Chelsea squad in person after Argentina chant**\
 `Enzo Fernandez has issued a personal apology to his Chelsea team-mates after joining the club’s pre-season tour on Monday .`\
 https://nytimes.com/athletic/5668196/2024/07/30/chelsea-enzo-fernandez-apology-argentina-chant/

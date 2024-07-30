@@ -1,3 +1,11 @@
+**Barton pleads not guilty to alleged malicious communications towards Aluko**\
+`Joey Barton will appear before Liverpool Crown Court next month after pleading not guilty to charges of alleged malicious communications online towards Eni Aluko.`\
+https://nytimes.com/athletic/5668131/2024/07/30/joey-barton-trial-aluko/
+
+**Brighton's Gross close to completing Borussia Dortmund move**\
+`Brighton and Hove Albion midfielder Pascal Gross is close to completing a move to Borussia Dortmund.`\
+https://nytimes.com/athletic/5668154/2024/07/30/dortmund-brighton-pascal-gross-transfer/
+
 **U.S. Pledges $500 Million in New Military Aid to the Philippines, as China Asserts Sea Claims**\
 `Secretary of State Antony J. Blinken and Defense Secretary Lloyd J. Austin III warned Beijing against engaging in hostilities with U.S. allies in the South and East China Seas.`\
 https://nytimes.com/2024/07/30/world/asia/us-philippines-military-aid-china.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5668196/2024/07/30/chelsea-enzo-fernandez-apology-a
 **Xavi Simons set to rejoin RB Leipzig on loan transfer from PSG**\
 `Xavi Simons is set rejoin RB Leipzig on loan from Paris Saint-Germain for the 2024-25 campaign.`\
 https://nytimes.com/athletic/5665436/2024/07/30/xavi-simons-rb-leipzig-loan-psg/
-
-**Dynasty league sleepers: Cedric Tillman, Deneric Prince and more intriguing stashes**\
-`Jeff Haverlack identifies seven players currently valued at a cut-rate price who he believes could pay dynasty league dividends soon.`\
-https://nytimes.com/athletic/5667796/2024/07/30/dynasty-league-sleepers-cedric-tillman-deneric-prince-and-more-intriguing-stashes/
-
-**Labor Abuses Abroad**\
-`We explain why, despite scrutiny, serious labor abuses still lurk in major companies’ supply chains.`\
-https://nytimes.com/2024/07/30/briefing/labor-abuse-supply-chain.html
 
