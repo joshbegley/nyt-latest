@@ -1,3 +1,11 @@
+**Where the Mets stand in their hunt for pitching**\
+`Jose Buttó could move into the rotation, but some solid mid-tier starters, including the Tampa Bay Rays’ Zack Littell, remain on the market.`\
+https://nytimes.com/athletic/5667722/2024/07/29/mets-mlb-trade-deadline-pitching/
+
+**Liberal ‘White Dudes’ Rally for Harris: ‘It’s Like a Rainbow of Beige’**\
+`A video call with 60,000 self-professed “White Dudes for Harris” showed the breadth of Democratic support for her candidacy, and the ways the party is learning to make fun of itself.`\
+https://nytimes.com/2024/07/29/us/politics/kamala-harris-white-dudes.html
+
 **What is the Yankees' biggest trade deadline need? 3 questions**\
 `The Yankees have stood pat since trading for Jazz Chisholm Jr. Could they have more up their sleeves? Here are some options.`\
 https://nytimes.com/athletic/5667743/2024/07/29/yankees-trade-deadline-need-questions/
