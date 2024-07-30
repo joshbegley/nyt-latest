@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘I Make No Apologies’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/07/30/style/tiny-modern-love-stories-i-make-no-apologies.html
+
 **Explaining the tennis rule that helped to end Coco Gauff's Olympics run**\
 `Facing break point, a disputed umpiring decision changed the trajectory of the US Open champion's Olympic campaign`\
 https://nytimes.com/athletic/5668359/2024/07/30/coco-gauff-olympics-tennis-umpire-call-rule/
