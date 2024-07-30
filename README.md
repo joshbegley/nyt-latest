@@ -1,3 +1,11 @@
+**Is Olympic pool's depth hurting swimmers? As world records hold, mystery rolls on**\
+`A shallower-than-normal pool has everyone asking whether it's affecting the times of the world's best swimmers at the Paris Olympics.`\
+https://nytimes.com/athletic/5669136/2024/07/30/olympics-swimming-pool-depth-world-record-paris/
+
+**Raiders training camp: Short-handed offensive line hangs in there as pads come on**\
+`Injuries on the offensive line have made things even harder on the struggling quarterback duo of Aidan O'Connell and Gardner Minshew.`\
+https://nytimes.com/athletic/5669641/2024/07/30/raiders-training-camp-offensive-line-2/
+
 **MLB Trade Grades: With Trevor Richards, the Twins finally enter the trade fray**\
 `Richards is a veteran who will give the Twins some much-needed bullpen depth. How much of an impact will he make?`\
 https://nytimes.com/athletic/5670056/2024/07/30/mlb-trade-grades-twins-blue-jays-richards/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5669969/2024/07/30/mlb-trade-grades-bryan-de-la-cru
 **Cards send Dylan Carlson to Rays**\
 `After acquiring Erick Fedde and Tommy Pham, Cardinals’ president of baseball operations John Mozeliak turned his focus to the bullpen.`\
 https://nytimes.com/athletic/5669306/2024/07/30/cardinals-rays-trade-dylan-carlson-shawn-armstrong/
-
-**At 17, She’s Already Conquered Some of the World’s Big Swims**\
-`While attention has been on the Paris Olympics, Maya Merhige, a high school senior, swam from England to France, completing the triple crown in open-water swimming.`\
-https://nytimes.com/2024/07/30/world/english-channel-marathon-swim.html
-
-**Red Sox acquire Luis García from the Angels, add another arm to the bullpen mix**\
-`The Red Sox add another reliever just before the trade deadline passed.`\
-https://nytimes.com/athletic/5670036/2024/07/30/red-sox-angels-luis-garcia-trade/
 
