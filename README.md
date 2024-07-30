@@ -1,3 +1,7 @@
+**Dissident Group Wins Amazon Union Leadership Vote**\
+`The Amazon Labor Union has been divided over strategy and governance issues after winning a representation vote at a Staten Island warehouse in 2022.`\
+https://nytimes.com/2024/07/30/business/economy/amazon-labor-union-election.html
+
 **Keep Sahm and Carry On**\
 `A recession indicator may soon be triggered, but don’t panic.`\
 https://nytimes.com/2024/07/30/opinion/sahm-rule-unemployment-recession.html
@@ -31,10 +35,6 @@ https://nytimes.com/2024/07/30/business/media/trump-nabj-black-journalists.html
 https://nytimes.com/athletic/5669385/2024/07/30/guardians-sf-giants-alex-cobb-trade/
 
 **Astros acquire reliever Caleb Ferguson in trade with Yankees: Sources**\
-`The Yankees traded Ferguson to the Astros for international bonus pool money and a minor leaguer, according to sources.`\
+`In need of bullpen depth, the Astros landed on Ferguson, whom they acquired for international bonus pool money and a minor leaguer.`\
 https://nytimes.com/athletic/5669408/2024/07/30/caleb-ferguson-astros-yankees-trade/
-
-**U.S. men's Olympic team heads to quarterfinals for the first time since 2000**\
-`The United States finished the group stage second behind hosts France.`\
-https://nytimes.com/athletic/5669346/2024/07/30/united-states-guinea-olympics-quarterfinals/
 
