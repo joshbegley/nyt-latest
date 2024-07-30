@@ -1,3 +1,19 @@
+**Rodgers, Wilson search for chemistry on another long day for Jets offense: Training camp observations**\
+`FLORHAM PARK, N.`\
+https://nytimes.com/athletic/5669416/2024/07/30/aaron-rodgers-garrett-wilson-jets-offense-struggles-training-camp-practice-report/
+
+**Jill Ellis files lawsuit against former San Diego Wave employee for defamation**\
+`The complaint requests a jury trial, for damages in an amount to be determined by that trial, and injunctive relief against Alvarado.`\
+https://nytimes.com/athletic/5669210/2024/07/30/san-diego-wave-jill-ellis-lawsuit/
+
+**Project 2025 Director Steps Down Amid Trump Criticism**\
+`Paul Dans oversaw the project for the Heritage Foundation, a conservative think tank behind the proposal to reshape the federal government. Vice President Kamala Harris has used it to attack the former president.`\
+https://nytimes.com/2024/07/30/us/politics/project-2025-director-steps-down.html
+
+**Twins finally make a trade, acquire reliever Trevor Richards from Blue Jays: Sources**\
+`The Twins finally got on the board, trading for Blue Jays right-hander reliever Trevor Richards, according to multiple major-league sources.`\
+https://nytimes.com/athletic/5669594/2024/07/30/trevor-richards-twins-bluejays-trade/
+
 **MLB Trade Grade: Can Alex Cobb return to form with the Guardians?**\
 `Alex Cobb's health has been an issue this season, but the Guardians are hoping he can rediscover his form in time for the playoffs.`\
 https://nytimes.com/athletic/5669489/2024/07/30/mlb-trade-grade-alex-cobb-giants-guardians/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5669599/2024/07/30/mariners-marlins-jt-chargois-tra
 **Tigers trade reliever Andrew Chafin to Rangers**\
 `The reliever will add a much-needed left-handed presence to the Rangers' bullpen.`\
 https://nytimes.com/athletic/5669550/2024/07/30/andrew-chafin-rangers-tigers-trade/
-
-**Bears camp: The Caleb Williams-Rome Odunze connection, Hall of Fame plans and more**\
-`Williams' touchdown pass to Odunze was a highlight Tuesday. Second-year defensive tackle Zacch Pickens is OK as the forgotten man.`\
-https://nytimes.com/athletic/5669440/2024/07/30/bears-training-camp-caleb-williams-rome-odunze/
-
-**Israel Targets Hezbollah Commander in Beirut Strike, Military Says**\
-`Israel carried out a strike in the suburbs of Beirut, on Tuesday night, saying that it had targeted Fuad Shukr, a senior Hezbollah official, whom it blamed for an assault that killed 12 children and teenagers in the Israeli-controlled Golan Heights this weekend.`\
-https://nytimes.com/video/world/middleeast/100000009600954/israel-targets-beirut.html
-
-**Family of Ohio Man Fatally Shot by Deputy to Receive $7 Million**\
-`Franklin County on Tuesday approved a settlement for the family of Casey Goodson Jr., who was fatally shot by a sheriff’s deputy in 2020.`\
-https://nytimes.com/2024/07/30/us/casey-goodson-franklin-county-settlement.html
-
-**Panthers stock report: Who's up, down and holding steady after first week?**\
-`Second-year WR Jonathan Mingo off to good start and LT Ikem Ekwonu is making improvement after a difficult second season.`\
-https://nytimes.com/athletic/5669345/2024/07/30/carolina-panthers-stock-report-training-camp/
 
