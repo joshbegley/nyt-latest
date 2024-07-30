@@ -14,4 +14,4 @@ https://nytimes.com/2024/07/30/arts/music/amplifier-newsletter-olympics-celine-d
 `A day after a knife attack that killed three children, the community of Southport was grappling with the violence that had visited the town.`\
 https://nytimes.com/2024/07/30/world/europe/uk-southport-knife-attack-victims.html
 
-**Here’s the latest on the attack near Beirut.**\
+**Here’s the latest on the attack in Beirut.**\
