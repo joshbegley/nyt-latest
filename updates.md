@@ -1,3 +1,7 @@
+**Inside Silicon Valley’s Political Rift**\
+`The election has pit former colleagues and sometime allies against each other, as the tech industry’s libertarian wing puts its money and influence to work.`\
+https://nytimes.com/2024/07/30/business/dealbook/silicon-valley-politics.html
+
 **'We want to continue to build': 1-on-1 with Abbotsford Canucks coach Manny Malhotra**\
 `Last week, The Athletic caught up with Malhotra to discuss putting his stamp on the team, Henrik and Daniel Sedin and more.`\
 https://nytimes.com/athletic/5666611/2024/07/30/abbotsford-canucks-coach-manny-malhotra/
