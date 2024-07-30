@@ -1,3 +1,11 @@
+**Keep Sahm and Carry On**\
+`A recession indicator may soon be triggered, but don’t panic.`\
+https://nytimes.com/2024/07/30/opinion/sahm-rule-unemployment-recession.html
+
+**Astros acquire reliever Caleb Ferguson in trade with Yankees: Sources**\
+`In need of bullpen depth, the Astros landed on Ferguson, whom they acquired for international bonus pool money and a minor leaguer.`\
+https://nytimes.com/athletic/5669408/2024/07/30/caleb-ferguson-astros-yankees-trade/
+
 **It’s Not Too Late for Change in Venezuela**\
 `If Maduro is forced to release polling data, he might have to admit defeat.`\
 https://nytimes.com/2024/07/22/opinion/venezuela-maduro-election.html
