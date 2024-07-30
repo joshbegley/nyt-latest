@@ -1,9 +1,13 @@
+**Cleveland Guardians strike on trade market, Lane Thomas' new teammates are relieved**\
+`“That’s a crazy monkey off the back,” Tanner Bibee said. “I don’t think a lot of people really know how much that clears the mental."`\
+https://nytimes.com/athletic/5667702/2024/07/29/cleveland-guardians-trade-market-lane-thomas/
+
 **With another lopsided loss, the Phillies have encountered some summer adversity**\
 `"I feel like the energy in the clubhouse has been different ever since the Dodgers series," said Nick Castellanos.`\
 https://nytimes.com/athletic/5667683/2024/07/29/phillies-summer-adversity-lopsided-loss/
 
 **MLB trade deadline roundup: All the trades from Monday**\
-`Here's everything you need to know about who switched teams on Monday. `\
+`Here's everything you need to know about who switched teams Monday. `\
 https://nytimes.com/athletic/5666082/2024/07/29/mlb-trade-deadline-roundup-monday/
 
 **White Sox lose 15th game in a row**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/29/us/wild-horse-bullwinkle-outer-banks-euthanized.h
 **Endorse Digitally**\
 `Jeffrey Martinovic and Will Nediger host a crossword.`\
 https://nytimes.com/2024/07/29/crosswords/daily-puzzle-2024-07-30.html
-
-**MLB Trade Grades: Was the Amed Rosario-Dodgers reunion a good match?**\
-`Rosario is back where he seemingly belongs in Los Angeles, but did the Rays get enough value for dealing him? `\
-https://nytimes.com/athletic/5667549/2024/07/29/mlb-trade-grades-amed-rosario-dodgers-rays/
 
