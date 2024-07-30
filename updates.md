@@ -1,3 +1,7 @@
+**How Kamala Harris Faces a Faster, Uglier Version of the Internet**\
+`Politicians have long faced racist and sexist attacks online. But Ms. Harris is being attacked on more platforms, with new technologies and in front of bigger audiences than Barack Obama and Hillary Clinton were.`\
+https://nytimes.com/2024/07/30/technology/kamala-harris-toxic-internet-politics.html
+
 **Jake O'Brien to Everton: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Jake O'Brien's move to Everton.`\
 https://nytimes.com/athletic/5665357/2024/07/30/jake-obrien-to-everton-transfer-ratings/
