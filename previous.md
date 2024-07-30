@@ -22,6 +22,10 @@ https://nytimes.com/2024/07/30/climate/solar-panels-robots-maximo-construction.h
 `The vice president released an ad called “Fearless” that focuses on her time as a prosecutor, while a spot from the former president attacked her as soft on immigration.`\
 https://nytimes.com/2024/07/30/us/politics/kamala-harris-ad.html
 
+**Fernandez apologises to Chelsea squad in person after Argentina chant**\
+`Enzo Fernandez has issued a personal apology to his Chelsea team-mates after joining the club’s pre-season tour on Monday .`\
+https://nytimes.com/athletic/5668196/2024/07/30/chelsea-enzo-fernandez-apology-argentina-chant/
+
 **Xavi Simons set to rejoin RB Leipzig on loan transfer from PSG**\
 `Xavi Simons is set rejoin RB Leipzig on loan from Paris Saint-Germain for the 2024-25 campaign.`\
 https://nytimes.com/athletic/5665436/2024/07/30/xavi-simons-rb-leipzig-loan-psg/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5667796/2024/07/30/dynasty-league-sleepers-cedric-t
 **Labor Abuses Abroad**\
 `We explain why, despite scrutiny, serious labor abuses still lurk in major companies’ supply chains.`\
 https://nytimes.com/2024/07/30/briefing/labor-abuse-supply-chain.html
-
-**How U.S. Olympic women's gymnastics became a true team in an often-solo sport**\
-`In a sport that pits you against each other and also on the same side, the U.S. women's gymnastics squad has come together in Paris.`\
-https://nytimes.com/athletic/5668144/2024/07/30/womens-gymnastics-team-olympics-gold-simone-biles/
 

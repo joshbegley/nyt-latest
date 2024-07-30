@@ -1,3 +1,7 @@
+**Fernandez apologises to Chelsea squad in person after Argentina chant**\
+`Enzo Fernandez has issued a personal apology to his Chelsea team-mates after joining the club’s pre-season tour on Monday .`\
+https://nytimes.com/athletic/5668196/2024/07/30/chelsea-enzo-fernandez-apology-argentina-chant/
+
 **U.S. Pledges $500 Million in New Military Aid to the Philippines, as China Asserts Sea Claims**\
 `Secretary of State Antony J. Blinken and Defense Secretary Lloyd J. Austin III warned Beijing against engaging in hostilities with U.S. allies in the South and East China Seas.`\
 https://nytimes.com/2024/07/30/world/asia/us-philippines-military-aid-china.html
