@@ -1,3 +1,7 @@
+**A's grade out well in two deadline deals with Royals and Mets**\
+`The A's made two separate deals, acquiring two starters, a reliever and an outfielder for Lucas Erceg and Paul Blackburn.`\
+https://nytimes.com/athletic/5669757/2024/07/30/oakland-athletics-lucas-erceg-paul-blackburn-trade-analysis/
+
 **Asylum Officers’ Union Opposes Biden Border Restrictions**\
 `The group, which represents some officers in charge of carrying out President Biden’s asylum measure, said in a court filing that the policy illegally limited migrants’ protections.`\
 https://nytimes.com/2024/07/30/us/politics/asylum-officers-union-biden-border-restrictions.html
@@ -33,9 +37,4 @@ https://nytimes.com/2024/07/30/briefing/hezbollah-venezuela-booker.html
 **Wisconsin offense remains imperfect as fall camp begins: 10 Badgers takeaways**\
 `Head coach Luke Fickell is stressing the importance of discipline as he gears his team up for the 2024 season.`\
 https://nytimes.com/athletic/5669625/2024/07/30/wisconsin-college-football-preseason-practice-notes/
-
-**Andy Murray and Dan Evans pull off another Paris Olympic tennis great escape**\
-`How many more times will Andy Murray put tennis fans through the wringer at this year&#8217;s Olympics?
-At 7-9 in a match tiebreak, it was written that Andy Murray&#8217;s tennis career had come to a close in Paris.`\
-https://nytimes.com/athletic/5669589/2024/07/30/andy-murray-olympics-tennis-doubles-advances-daniel-evans/
 
