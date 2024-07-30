@@ -1,3 +1,7 @@
+**Acting Head of Secret Service ‘Ashamed’ That Roof at Trump Rally Was Unwatched**\
+`Ronald Rowe Jr. said communications problems between the Secret Service and local law enforcement led to a failure to protect former President Donald Trump during a shooting on July 13.`\
+https://nytimes.com/2024/07/30/us/politics/secret-service-trump-shooting-senate.html
+
 **Josh Shapiro, a V.P. Contender, Criticized U.S. Steel Takeover and Defended His Tax Cuts**\
 `The proposed acquisition of the American company by Japan’s Nippon Steel has become a sensitive political matter, with both President Biden and Donald J. Trump decrying the deal.`\
 https://nytimes.com/2024/07/30/us/politics/shapiro-vice-president-taxes.html
