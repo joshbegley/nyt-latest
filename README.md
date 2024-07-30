@@ -35,6 +35,6 @@ https://nytimes.com/athletic/5669122/2024/07/30/mlb-trade-grades-isiah-kiner-fal
 https://nytimes.com/athletic/5669872/2024/07/30/mlb-trade-grades-chargois-mariners-marlins/
 
 **Tigers righty Jack Flaherty traded to Dodgers: Source**\
-`For the second time in two years, right-hander Jack Flaherty is on the move at the trade deadline.`\
+`The Dodgers sent two prospects to Detroit for the righty starter, who has a 2.95 ERA and averages 11.2 strikeouts per nine innings.`\
 https://nytimes.com/athletic/5666488/2024/07/30/tigers-dodgers-jack-flaherty-trade/
 
