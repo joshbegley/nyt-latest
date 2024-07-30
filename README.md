@@ -1,3 +1,11 @@
+**Scoop City: Differing offseason approaches in Detroit and Dallas**\
+`A look at the approaches taken by Detroit and Dallas this offseason, as well as the pass rush groups across the NFL`\
+https://nytimes.com/athletic/5668545/2024/07/30/cowboys-lions-offseason-scoop-city/
+
+**Where the Padres stand with their pitching needs as trade deadline day dawns**\
+`San Diego spent Monday, the eve of the trade deadline, pursuing both starting pitching and more relief pitching.`\
+https://nytimes.com/athletic/5668472/2024/07/30/padres-pitching-needs-mlb-trade-deadline/
+
 **Giannis Antetokounmpo, on verge of Olympic elimination, has no words for the latest loss**\
 `Antetokounmpo put 27 points and 11 boards were herculean, but he's carrying a heavy load for an undermanned Greek team.`\
 https://nytimes.com/athletic/5668405/2024/07/30/giannis-antetokounmpo-olympics-greece/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/30/world/olympics/hong-kong-italy-fencing-pineapple-
 **The Stranger in Seattle Gets a New Owner, With Plans for Expansion**\
 `Noisy Creek, a new media company, has bought The Stranger and The Portland Mercury, two of the country’s best known alternative weeklies.`\
 https://nytimes.com/2024/07/30/business/media/the-stranger-seattle-new-owner.html
-
-**England Women announce USWNT, Germany friendlies**\
-`England Women have announced four home friendlies for later this year including games against Germany and the USWNT.`\
-https://nytimes.com/athletic/5668335/2024/07/30/england-uswnt-germany-friendly/
-
-**Brock Purdy was ready for Tom Brady; now he's ready to fulfill his 49ers destiny**\
-`Purdy on the future: "I can't let off the gas pedal just thinking ... I'm possibly going to make money down the road if this all goes well."`\
-https://nytimes.com/athletic/5667198/2024/07/30/brock-purdy-tom-brady-49ers/
 
