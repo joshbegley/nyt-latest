@@ -1,3 +1,7 @@
+**Diamondbacks acquire Josh Bell, who had been placed on waivers by Marlins: Source**\
+`One day before the trade deadline, the Arizona Diamondbacks watched as first baseman Christian Walker had to leave a game against the Washington Nationals early with an oblique strain.`\
+https://nytimes.com/athletic/5669235/2024/07/30/diamondbacks-marlins-josh-bell-trade/
+
 **Eno's take on Trevor Rogers trade: Orioles gain innings but fastball velocity is worrisome**\
 `Rogers' fastball is down about 2 1/2 mph from his heyday. Will Baltimore use him as a back-end starter or use him out of the bullpen?`\
 https://nytimes.com/athletic/5669194/2024/07/30/trevor-rogers-trade-orioles-analysis/
