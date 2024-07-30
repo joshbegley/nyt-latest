@@ -1,3 +1,7 @@
+**Twins games to return to air after Diamond-Comcast deal — but it'll (eventually) cost you**\
+`The good news: The Twins will soon be back on the air for Comcast customers. The bad news: The new plan will cost an additional $20 a month.`\
+https://nytimes.com/athletic/5667248/2024/07/29/twins-games-diamond-comcast-deal-cost-increase/
+
 **Cardinals' trade for Erick Fedde and Tommy Pham addresses two pressing needs**\
 `John Mozeliak said the Cardinals might keep adding: "We're still going to be actively calling and kicking things around."`\
 https://nytimes.com/athletic/5667014/2024/07/29/cardinals-mlb-trade-deadline-erick-fedde/
@@ -34,8 +38,4 @@ https://nytimes.com/2024/07/29/us/photos-of-the-california-park-fire.html
 **Netanyahu Vows ‘Severe’ Response to Deadly Rocket Attack Tied to Hezbollah**\
 `Fears linger among Lebanese civilians after a strike killed 12 children and teenagers in the Israeli-controlled Golan Heights.`\
 https://nytimes.com/2024/07/29/world/middleeast/israel-hezbollah-lebanon.html
-
-**Diamond, Comcast reach deal to end dispute, get 12 MLB teams back on the air**\
-`Effective Aug. 1, Xfinity customers will again be able to watch MLB, NBA and NHL teams via Bally Sports, but will pay a higher price.`\
-https://nytimes.com/athletic/5667092/2024/07/29/diamond-comcast-tv-deal-12-mlb-teams/
 

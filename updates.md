@@ -1,3 +1,7 @@
+**Twins games to return to air after Diamond-Comcast deal — but it'll (eventually) cost you**\
+`The good news: The Twins will soon be back on the air for Comcast customers. The bad news: The new plan will cost an additional $20 a month.`\
+https://nytimes.com/athletic/5667248/2024/07/29/twins-games-diamond-comcast-deal-cost-increase/
+
 **Cardinals' trade for Erick Fedde and Tommy Pham addresses two pressing needs**\
 `John Mozeliak said the Cardinals might keep adding: "We're still going to be actively calling and kicking things around."`\
 https://nytimes.com/athletic/5667014/2024/07/29/cardinals-mlb-trade-deadline-erick-fedde/
