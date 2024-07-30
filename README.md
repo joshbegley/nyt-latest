@@ -1,3 +1,7 @@
+**Deadly Landslides Hit India**\
+`The landslides left behind destruction in Kerala, where some people worked to clear a pile of uprooted trees as muddy waters flowed around a village.`\
+https://nytimes.com/video/world/asia/100000009599770/india-landslide-kerala.html
+
 **Jon Stewart Recaps a Pretty Eventful Week in Politics**\
 `“In the span of a week, Democrats have gone from the despair of a certain Trump presidency to the joy of a statistical tie,” Stewart said on “The Daily Show.”`\
 https://nytimes.com/2024/07/30/arts/television/jon-stewart-kamala-harris.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/30/learning/word-of-the-day-sluggish.html
 **Braves' Grant Holmes won't forget his gem of a first MLB start and a moment with his dad**\
 `Holmes, a 28-year-old rookie, got his first seven outs via strikeout on an emotional day. `\
 https://nytimes.com/athletic/5667952/2024/07/30/braves-grant-holmes-strikeouts/
-
-**Men's Olympic triathlon postponed as Seine remains unsafe**\
-`The last-minute postponement comes after Paris officials have promised for years the race would be race ready.`\
-https://nytimes.com/athletic/5666017/2024/07/30/seine-river-water-quality-olympic-triathlon-postponed/
 
