@@ -1,3 +1,15 @@
+**Man Charged in Fatal Shooting of 13-Year-Old Boy in Brooklyn**\
+`The man, Sheik Koureichi, was accused of aiding in the killing of Troy Gill, who was shot in February while walking home in Crown Heights after a basketball game.`\
+https://nytimes.com/2024/07/30/nyregion/brooklyn-shooting-troy-gill.html
+
+**Yankees get reliever Enyel De Los Santos from Padres**\
+`The 28-year-old comes with two markers the Yankees look for: Strikeouts and team control.`\
+https://nytimes.com/athletic/5670094/2024/07/30/yankees-acquire-reliever-enyel-de-los-santos-from-the-padres/
+
+**Why 2024 Is So San Francisco**\
+`The city’s leaders are forged in a mix of wealth, diversity and a good bit of political nastiness.`\
+https://nytimes.com/2024/07/30/us/politics/harris-trump-san-francisco-voting-election.html
+
 **Is Olympic pool's depth hurting swimmers? As world records hold, mystery rolls on**\
 `A shallower-than-normal pool has everyone asking whether it's affecting the times of the world's best swimmers at the Paris Olympics.`\
 https://nytimes.com/athletic/5669136/2024/07/30/olympics-swimming-pool-depth-world-record-paris/
