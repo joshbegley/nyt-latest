@@ -1,3 +1,7 @@
+**Bills training camp: Cole Bishop injury leaves Buffalo thin at safety, and more**\
+`Plus, Josh Allen's trust in Khalil Shakir stays strong, #Puntapalooza2024 rages on, and more.`\
+https://nytimes.com/athletic/5669483/2024/07/30/buffalo-bills-training-camp-cole-bishop-injury/
+
 **Michele Kang to donate $4 million to U.S. women's rugby**\
 `The donation comes hours after the U.S. women claimed bronze for the country's first Olympic medal in rugby sevens.`\
 https://nytimes.com/athletic/5669739/2024/07/30/us-womens-rugby-michele-kang/

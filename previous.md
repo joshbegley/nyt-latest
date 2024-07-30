@@ -1,3 +1,7 @@
+**Bills training camp: Cole Bishop injury leaves Buffalo thin at safety, and more**\
+`Plus, Josh Allen's trust in Khalil Shakir stays strong, #Puntapalooza2024 rages on, and more.`\
+https://nytimes.com/athletic/5669483/2024/07/30/buffalo-bills-training-camp-cole-bishop-injury/
+
 **Michele Kang to donate $4 million to U.S. women's rugby**\
 `The donation comes hours after the U.S. women claimed bronze for the country's first Olympic medal in rugby sevens.`\
 https://nytimes.com/athletic/5669739/2024/07/30/us-womens-rugby-michele-kang/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5668072/2024/07/30/chelsea-conor-gallagher-atletico
 **Asylum Officers’ Union Opposes Biden Border Restrictions**\
 `The group, which represents some officers in charge of carrying out President Biden’s asylum measure, said in a court filing that the policy illegally limited migrants’ protections.`\
 https://nytimes.com/2024/07/30/us/politics/asylum-officers-union-biden-border-restrictions.html
-
-**Read the Letter to Sullivan & Cromwell**\
-`A letter to Joseph Shenker, the senior chair at Sullivan & Cromwell, criticizing the law firm’s approach to student protestors.`\
-https://nytimes.com/interactive/2024/07/30/business/sullivan-letter.html
 
