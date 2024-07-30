@@ -1,3 +1,7 @@
+**Red Sox rebound in a big way, crushing Mariners ace as trade deadline approaches**\
+`The Red Sox displayed the intangible fortitude that has been a trademark all season. Will the team get reinforcements before the deadline?`\
+https://nytimes.com/athletic/5667721/2024/07/29/red-sox-rout-mariners-logan-gilbert/
+
 **Cleveland Guardians strike on trade market, Lane Thomas' new teammates are relieved**\
 `“That’s a crazy monkey off the back,” Tanner Bibee said. “I don’t think a lot of people really know how much that clears the mental."`\
 https://nytimes.com/athletic/5667702/2024/07/29/cleveland-guardians-trade-market-lane-thomas/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5667620/2024/07/29/mlb-trade-grades-pirates-are-buy
 **Endangered Wild Stallion Is Euthanized After Being Struck by Vehicle**\
 `The horse, a 10-year-old stallion named Bullwinkle, was one of only 200 Banker horses, a breed on the Outer Banks in North Carolina that descended from horses brought over by Spanish explorers.`\
 https://nytimes.com/2024/07/29/us/wild-horse-bullwinkle-outer-banks-euthanized.html
-
-**Endorse Digitally**\
-`Jeffrey Martinovic and Will Nediger host a crossword.`\
-https://nytimes.com/2024/07/29/crosswords/daily-puzzle-2024-07-30.html
 
