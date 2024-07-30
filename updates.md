@@ -1,3 +1,19 @@
+**How Team U.S.A. Won the Olympic Women’s Gymnastics Gold**\
+`See frame-by-frame analyses of the skills that allowed Simone Biles, Sunisa Lee, Jade Carey and Jordan Chiles to claim the top of the podium in Paris with a combined 171.296 points.`\
+https://nytimes.com/interactive/2024/07/30/sports/olympics/olympics-usa-womens-gymnastics-gold.html
+
+**Israel Struck a Suburb in Beirut**\
+`Also, Harris plans to campaign with her V.P. pick next week. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/07/30/briefing/israel-beirut-strike-kamala-harris-vp.html
+
+**Bella Hadid Responds to Backlash Over Adidas Ad Campaign**\
+`The supermodel said she was “shocked” and would not have participated in the ad if she had known its full context.`\
+https://nytimes.com/2024/07/30/style/bella-hadid-adidas-ad-olympics.html
+
+**MLB Trade Grades: With Tanner Scott deal, Padres stock up while Marlins cash in**\
+`The Padres are building a fierce bullpen. The Marlins are stocking up on prospects. Is this a deal where everybody wins? `\
+https://nytimes.com/athletic/5669896/2024/07/30/mlb-trade-grades-tanner-scott-marlins-padres/
+
 **Ralph Nader Assails Law Firm’s Vow to Exclude Some Campus Protesters**\
 `In a letter to Sullivan & Cromwell, Mr. Nader and two other prominent lawyers condemned its efforts to screen job applicants for their participation in antiwar protests.`\
 https://nytimes.com/2024/07/30/business/sullivan-cromwell-israel-protests.html
