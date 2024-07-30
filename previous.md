@@ -1,3 +1,7 @@
+**Lamar Jackson 'feeling wonderful,' says desire to win a Super Bowl burns hotter than ever**\
+`Jackson doesn't "just want to be labeled as MVP here and there. I want to be a champion,” the 27-year-old said. `\
+https://nytimes.com/athletic/5667186/2024/07/29/lamar-jackson-baltimore-ravens-super-bowl/
+
 **Braves focused on trading for hitter after Reynaldo López elbow exam shows no damage**\
 `Manager Brian Snitker indicated there are no plans to put López on the injured list: "Everything came back good."`\
 https://nytimes.com/athletic/5667330/2024/07/29/braves-trade-deadline-reynaldo-lopez-2/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5667021/2024/07/29/us-womens-basketball-olympics-ja
 **Erica Ash of ‘Mad TV’ and ‘Survivor’s Remorse’ Dies at 46**\
 `Erica Ash started out on sketch comedy shows in the 2000s before appearing in movies like “Scary Movie V” and the satirical reality show “Real Husbands of Hollywood.”`\
 https://nytimes.com/2024/07/29/arts/television/erica-ash-dead.html
-
-**Grealish was 'heartbroken' by England Euro 2024 omission**\
-`Jack Grealish says his exclusion from the England squad for the summer&#8217;s European Championship left him “heartbroken” and that the experience was the toughest of his football career.`\
-https://nytimes.com/athletic/5667104/2024/07/29/jack-grealish-england-euros-manchester-city/
 

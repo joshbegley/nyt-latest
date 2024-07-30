@@ -1,3 +1,7 @@
+**Lamar Jackson 'feeling wonderful,' says desire to win a Super Bowl burns hotter than ever**\
+`Jackson doesn't "just want to be labeled as MVP here and there. I want to be a champion,” the 27-year-old said. `\
+https://nytimes.com/athletic/5667186/2024/07/29/lamar-jackson-baltimore-ravens-super-bowl/
+
 **Braves focused on trading for hitter after Reynaldo López elbow exam shows no damage**\
 `Manager Brian Snitker indicated there are no plans to put López on the injured list: "Everything came back good."`\
 https://nytimes.com/athletic/5667330/2024/07/29/braves-trade-deadline-reynaldo-lopez-2/
