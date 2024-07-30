@@ -8,7 +8,7 @@ https://nytimes.com/2024/07/30/world/middleeast/fuad-shukr-hezbollah-israel-stri
 
 **MLB Trade Grades: With Lucas Erceg trade, Royals plan for present and future**\
 `The Royals gave up three decent young players for Erceg, but they will also control him through 2029. `\
-https://nytimes.com/athletic/5669500/2024/07/30/mlb-trade-grades-with-lucas-erceg-trade-royals-plan-for-present-and-future/
+https://nytimes.com/athletic/5669500/2024/07/30/mlb-trade-grades-lucas-erceg-royals-as/
 
 **Richard Crawford, Leading Scholar of American Music, Dies at 89**\
 `American Music was a marginal subfield in the 1960s when he began his research as a student, and then as a faculty member, at the University of Michigan.`\

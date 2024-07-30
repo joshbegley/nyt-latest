@@ -1,3 +1,7 @@
+**MLB Trade Grades: With Lucas Erceg trade, Royals plan for present and future**\
+`The Royals gave up three decent young players for Erceg, but they will also control him through 2029. `\
+https://nytimes.com/athletic/5669500/2024/07/30/mlb-trade-grades-lucas-erceg-royals-as/
+
 **How Authoritarian Governments Rig Elections to Stay in Power**\
 `Nicolás Maduro, was declared the winner of Venezuela’s presidential election despite widespread irregularities. Here are some tools autocrats like Mr. Maduro use to stay in power.`\
 https://nytimes.com/2024/07/30/world/europe/authoritarian-governments-vote-rigging-venezuela-maduro.html
