@@ -1,3 +1,15 @@
+**Endorse Digitally**\
+`Jeffrey Martinovic and Will Nediger host a crossword.`\
+https://nytimes.com/2024/07/29/crosswords/daily-puzzle-2024-07-30.html
+
+**MLB Trade Grades: Was the Amed Rosario-Dodgers reunion a good match?**\
+`Rosario is back where he seemingly belongs in Los Angeles, but did the Rays get enough value for dealing him? `\
+https://nytimes.com/athletic/5667549/2024/07/29/mlb-trade-grades-amed-rosario-dodgers-rays/
+
+**Red Sox, Pirates both take on risk with big upside in Nick Yorke, Quinn Priester swap**\
+`Both Boston and Pittsburgh were dealing from areas of strength in a rare deal of young players who could both take off with their new clubs.`\
+https://nytimes.com/athletic/5667544/2024/07/29/red-sox-pirates-quinn-priester-nick-york-trade-analysis/
+
 **William Calley, Convicted of Mass Murder in My Lai Massacre, Dies at 80**\
 `Hundreds of Vietnamese civilians died at the hands of American soldiers, but Lieutenant Calley was the only one found guilty.`\
 https://nytimes.com/2024/07/29/us/william-calley-dead.html

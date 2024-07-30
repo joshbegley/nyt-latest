@@ -1,3 +1,15 @@
+**Endorse Digitally**\
+`Jeffrey Martinovic and Will Nediger host a crossword.`\
+https://nytimes.com/2024/07/29/crosswords/daily-puzzle-2024-07-30.html
+
+**MLB Trade Grades: Was the Amed Rosario-Dodgers reunion a good match?**\
+`Rosario is back where he seemingly belongs in Los Angeles, but did the Rays get enough value for dealing him? `\
+https://nytimes.com/athletic/5667549/2024/07/29/mlb-trade-grades-amed-rosario-dodgers-rays/
+
+**Red Sox, Pirates both take on risk with big upside in Nick Yorke, Quinn Priester swap**\
+`Both Boston and Pittsburgh were dealing from areas of strength in a rare deal of young players who could both take off with their new clubs.`\
+https://nytimes.com/athletic/5667544/2024/07/29/red-sox-pirates-quinn-priester-nick-york-trade-analysis/
+
 **William Calley, Convicted of Mass Murder in My Lai Massacre, Dies at 80**\
 `Hundreds of Vietnamese civilians died at the hands of American soldiers, but Lieutenant Calley was the only one found guilty.`\
 https://nytimes.com/2024/07/29/us/william-calley-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5667488/2024/07/29/yusei-kikuchi-trade-astros-blue-
 **Lamar Jackson 'feeling wonderful,' says desire to win a Super Bowl burns hotter than ever**\
 `Jackson doesn't "just want to be labeled as MVP here and there. I want to be a champion,” the 27-year-old said. `\
 https://nytimes.com/athletic/5667186/2024/07/29/lamar-jackson-baltimore-ravens-super-bowl/
-
-**Dodgers swing trade with Rays for a familiar face in Amed Rosario**\
-`The Los Angeles Dodgers are reuniting with Amed Rosario for the second consecutive trade deadline as the club has agreed to acquire the utility man from the Tampa Bay Rays.`\
-https://nytimes.com/athletic/5667475/2024/07/29/dodgers-rays-trade-amed-rosario/
-
-**Braves focused on trading for hitter after Reynaldo López elbow exam shows no damage**\
-`Manager Brian Snitker indicated there are no plans to put López on the injured list: "Everything came back good."`\
-https://nytimes.com/athletic/5667330/2024/07/29/braves-trade-deadline-reynaldo-lopez-2/
-
-**Seattle’s ‘Belltown Hellcat’ Is Arrested and Barred From Instagram**\
-`After months of roaring around the city in a souped-up Dodge Charger, drawing furious complaints and unpaid fines, Miles Hudson was led out of court on Monday in handcuffs.`\
-https://nytimes.com/2024/07/29/us/seattle-belltown-hellcat-jail.html
 
