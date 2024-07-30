@@ -1,3 +1,7 @@
+**Elliott: 'This is my time to kick on at Liverpool - I have to be more selfish'**\
+`The attacking midfielder has been a Liverpool player for five years now — he says it is time for him to step up in the Arne Slot era`\
+https://nytimes.com/athletic/5667152/2024/07/30/harvey-elliott-liverpool-arne-slot-calvin-harris/
+
 **Understanding the New Era of Fire**\
 `Wildfires, driven by climate change, have become more intense and frequent, but scientists are still trying to understand larger patterns.`\
 https://nytimes.com/2024/07/30/climate/understanding-the-new-era-of-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/30/world/americas/venezuela-rallies-election-results
 **Tiny Love Stories: ‘I Make No Apologies’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/07/30/style/tiny-modern-love-stories-i-make-no-apologies.html
-
-**Chelsea to appoint Delroy Ebanks as new academy recruitment chief**\
-`Chelsea are set to appoint Newcastle United scout Delroy Ebanks as their head of academy recruitment as an overhaul of the youth structure at Stamford Bridge approaches completion.`\
-https://nytimes.com/athletic/5668259/2024/07/30/chelsea-delroy-ebanks-newcastle/
 

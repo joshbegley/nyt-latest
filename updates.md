@@ -1,3 +1,7 @@
+**Elliott: 'This is my time to kick on at Liverpool - I have to be more selfish'**\
+`The attacking midfielder has been a Liverpool player for five years now — he says it is time for him to step up in the Arne Slot era`\
+https://nytimes.com/athletic/5667152/2024/07/30/harvey-elliott-liverpool-arne-slot-calvin-harris/
+
 **Understanding the New Era of Fire**\
 `Wildfires, driven by climate change, have become more intense and frequent, but scientists are still trying to understand larger patterns.`\
 https://nytimes.com/2024/07/30/climate/understanding-the-new-era-of-fire.html
