@@ -1,3 +1,11 @@
+**MLB Trade Grades: In Jack Flaherty, Dodgers get their impact arm**\
+`Once again, Los Angeles made the deadline's biggest splash in the starting pitching market at the last minute. `\
+https://nytimes.com/athletic/5670102/2024/07/30/mlb-trade-grades-dodgers-tigers-jack-flaherty/
+
+**Giants add outfielder/first baseman Mark Canha in trade with Tigers**\
+`Right as the buzzer for Tuesday&#8217;s MLB trade deadline rang, the San Francisco Giants acquired from the Detroit Tigers a player very familiar with their organization in outfielder/first baseman Mark Canha.`\
+https://nytimes.com/athletic/5670071/2024/07/30/sf-giants-tigers-mark-canha-trade/
+
 **Man Charged in Fatal Shooting of 13-Year-Old Boy in Brooklyn**\
 `The man, Sheik Koureichi, was accused of aiding in the killing of Troy Gill, who was shot in February while walking home in Crown Heights after a basketball game.`\
 https://nytimes.com/2024/07/30/nyregion/brooklyn-shooting-troy-gill.html

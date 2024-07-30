@@ -1,3 +1,7 @@
+**MLB Trade Grades: In Jack Flaherty, Dodgers get their impact arm**\
+`Once again, Los Angeles made the deadline's biggest splash in the starting pitching market at the last minute. `\
+https://nytimes.com/athletic/5670102/2024/07/30/mlb-trade-grades-dodgers-tigers-jack-flaherty/
+
 **Man Charged in Fatal Shooting of 13-Year-Old Boy in Brooklyn**\
 `The man, Sheik Koureichi, was accused of aiding in the killing of Troy Gill, who was shot in February while walking home in Crown Heights after a basketball game.`\
 https://nytimes.com/2024/07/30/nyregion/brooklyn-shooting-troy-gill.html
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/5669499/2024/07/30/romeo-doubs-jaire-alexander-pack
 `The city’s leaders are forged in a mix of wealth, diversity and a good bit of political nastiness.`\
 https://nytimes.com/2024/07/30/us/politics/harris-trump-san-francisco-voting-election.html
 
-**Giants add outfielder Mark Canha in trade with Tigers**\
-`The San Francisco Giants are set to acquire outfielder Mark Canha from the Detroit Tigers for minor league right-hander Eric Silva, a league source told The Athletic on Tuesday.`\
+**Giants add outfielder/first baseman Mark Canha in trade with Tigers**\
+`Right as the buzzer for Tuesday&#8217;s MLB trade deadline rang, the San Francisco Giants acquired from the Detroit Tigers a player very familiar with their organization in outfielder/first baseman Mark Canha.`\
 https://nytimes.com/athletic/5670071/2024/07/30/sf-giants-tigers-mark-canha-trade/
-
-**Eagles training camp: Rookie Quinyon Mitchell's brimming competitiveness impresses**\
-`The cornerback has gotten the attention of star receiver A.J. Brown.`\
-https://nytimes.com/athletic/5668382/2024/07/30/philadelphia-eagles-training-camp-quinyon-mitchell/
 
