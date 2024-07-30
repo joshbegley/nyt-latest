@@ -1,3 +1,7 @@
+**What to Watch for as Simone Biles Leads U.S. in Quest for Team Gold**\
+`The women’s team was a favorite to win in Tokyo but ended up with silver after Biles withdrew. Now the gymnasts are seeking redemption in Paris.`\
+https://nytimes.com/2024/07/30/world/olympics/simone-biles-gymnastics-watch-finals.html
+
 **How Did the Park Fire Get So Big, So Fast?**\
 `The blaze has been fed largely by exceptionally dry vegetation following more than a month of extreme heat in California.`\
 https://nytimes.com/2024/07/30/climate/park-fire-california-heat.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/30/us/politics/trump-campaign-ad-harris-immigration.
 **What the Polls Tell Us About Harris vs. Trump**\
 `There are two things giving the vice president a lift in the short term: unity and energy.`\
 https://nytimes.com/2024/07/30/opinion/harris-trump-polls.html
-
-**Races to Watch in Arizona’s Primary Elections Today**\
-`Before Kari Lake can take on Representative Ruben Gallego for a Senate seat, she must win her Republican race. And two House races set up by the primaries will be hotly contested in the fall.`\
-https://nytimes.com/2024/07/30/us/politics/arizona-primary-races.html
 

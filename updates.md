@@ -1,3 +1,7 @@
+**What to Watch for as Simone Biles Leads U.S. in Quest for Team Gold**\
+`The women’s team was a favorite to win in Tokyo but ended up with silver after Biles withdrew. Now the gymnasts are seeking redemption in Paris.`\
+https://nytimes.com/2024/07/30/world/olympics/simone-biles-gymnastics-watch-finals.html
+
 **How Did the Park Fire Get So Big, So Fast?**\
 `The blaze has been fed largely by exceptionally dry vegetation following more than a month of extreme heat in California.`\
 https://nytimes.com/2024/07/30/climate/park-fire-california-heat.html
