@@ -1,3 +1,7 @@
+**Braves focused on trading for hitter after Reynaldo López elbow exam shows no damage**\
+`Manager Brian Snitker indicated there are no plans to put López on the injured list: "Everything came back good."`\
+https://nytimes.com/athletic/5667330/2024/07/29/braves-trade-deadline-reynaldo-lopez-2/
+
 **Seattle’s ‘Belltown Hellcat’ Is Arrested and Barred From Instagram**\
 `After months of roaring around the city in a souped-up Dodge Charger, drawing furious complaints and unpaid fines, Miles Hudson was led out of court on Monday in handcuffs.`\
 https://nytimes.com/2024/07/29/us/seattle-belltown-hellcat-jail.html
@@ -34,8 +38,4 @@ https://nytimes.com/2024/07/29/arts/television/erica-ash-dead.html
 **Grealish was 'heartbroken' by England Euro 2024 omission**\
 `Jack Grealish says his exclusion from the England squad for the summer&#8217;s European Championship left him “heartbroken” and that the experience was the toughest of his football career.`\
 https://nytimes.com/athletic/5667104/2024/07/29/jack-grealish-england-euros-manchester-city/
-
-**Raiders training camp: OC Luke Getsy remains optimistic despite sluggish offense**\
-`Gardner Minshew and the offense struggled again Monday, but the Raiders coaches see it as just part of the training camp process.`\
-https://nytimes.com/athletic/5667157/2024/07/29/raiders-training-camp-luke-getsy-offense/
 
