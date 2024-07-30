@@ -1,3 +1,11 @@
+**Men's Olympic triathlon postponed as Seine remains unsafe**\
+`The last-minute postponement comes after Paris officials have promised for years the race would be race ready.`\
+https://nytimes.com/athletic/5666017/2024/07/30/seine-river-water-quality-olympic-triathlon-postponed/
+
+**Yusei Kikuchi arrives at an enormous cost and already under immense pressure**\
+`The three prospects shipped away for Kikuchi are ranked within the top 12 of the Astros farm system.`\
+https://nytimes.com/athletic/5667921/2024/07/30/yusei-kikuchi-astros/
+
 **Landslides in Southern India Kill at Least 23**\
 `Rescue workers struggled to reach isolated villages in the state of Kerala, where bridges and roads were swept away after days of heavy rain.`\
 https://nytimes.com/2024/07/30/world/asia/india-landslides-kerala-rain.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5666476/2024/07/30/manchester-united-new-stadium-ro
 **Olympic Men’s Triathlon Postponed Because of Pollution in the Seine**\
 `Water-quality tests early Tuesday showed that the river running through Paris was unsafe for swimming, organizers said.`\
 https://nytimes.com/2024/07/30/world/olympics/seine-olympics-triathlon-postponed.html
-
-**Braves trade for Jorge Soler, reuniting with their 2021 World Series MVP**\
-`The Braves are getting the band back together, trading with the San Francisco Giants to bring back slugger Jorge Soler and reliever Luke Jackson, who both were big parts of their 2021 World Series champion team.`\
-https://nytimes.com/athletic/5667826/2024/07/30/braves-giants-jorge-soler-trade/
-
-**Riccardo Calafiori, Arsenal's new defender who got lifts from De Rossi and models his game on Stones**\
-`From the shadow of the Vatican City to the Emirates — via a star turn at Euro 2024 — Arsenal's signing has overcome rejection and adversity`\
-https://nytimes.com/athletic/5650166/2024/07/30/arsenal-calafiori-transfer-profile/
 
