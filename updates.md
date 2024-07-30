@@ -1,3 +1,7 @@
+**Eno's take on Yusei Kikuchi trade: Astros land lefty starter with excellent stuff**\
+`Kikuchi's ERA isn't anything special, but he could be the best starter who changes teams at the deadline. Why? Because he throws gas.`\
+https://nytimes.com/athletic/5667488/2024/07/29/yusei-kikuchi-trade-astros-blue-jays-stuff/
+
 **‘Six Characters’ Review: Making the Case Against a White-Centric Theater**\
 `At Lincoln Center Theater, Phillip Howze’s daring new play offers a hefty critique but takes aim at more targets than it can accommodate.`\
 https://nytimes.com/2024/07/29/theater/six-characters-review-howze.html
