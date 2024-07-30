@@ -1,3 +1,7 @@
+**MLB Trade Grades: Pirates are buyers, but did they overpay for Jalen Beeks?**\
+`Giving up Luis Peralta, the younger brother of Brewers All-Star Freddy Peralta, is an unfortunate cost.`\
+https://nytimes.com/athletic/5667620/2024/07/29/mlb-trade-grades-pirates-are-buyers-but-did-they-overpay-for-jalen-beeks/
+
 **Endangered Wild Stallion Is Euthanized After Being Struck by Vehicle**\
 `The horse, a 10-year-old stallion named Bullwinkle, was one of only 200 Banker horses, a breed on the Outer Banks in North Carolina that descended from horses brought over by Spanish explorers.`\
 https://nytimes.com/2024/07/29/us/wild-horse-bullwinkle-outer-banks-euthanized.html
