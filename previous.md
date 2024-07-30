@@ -1,3 +1,7 @@
+**Restaurant Review: This Outstanding Yemeni Kitchen Began With an Escape From War**\
+`Yemenat, in Bay Ridge, Brooklyn, offers Yemeni delights rarely found in New York City.`\
+https://nytimes.com/2024/07/30/dining/yemenat-restaurant-review-bay-ridge-brooklyn.html
+
 **Trump Invitation to Conference for Black Journalists Sets Off Intense Debate**\
 `The National Association of Black Journalists has a history of inviting presidential candidates to speak, but many of its members are bristling at Donald Trump’s scheduled session.`\
 https://nytimes.com/2024/07/30/business/media/trump-nabj-black-journalists.html
@@ -7,7 +11,7 @@ https://nytimes.com/2024/07/30/business/media/trump-nabj-black-journalists.html
 https://nytimes.com/athletic/5669385/2024/07/30/guardians-sf-giants-alex-cobb-trade/
 
 **Astros acquire reliever Caleb Ferguson in trade with Yankees: Sources**\
-`The Yankees traded reliever Caleb Ferguson to the Astros for international bonus pool money and a minor leaguer, according to sources.`\
+`The Yankees traded Ferguson to the Astros for international bonus pool money and a minor leaguer, according to sources.`\
 https://nytimes.com/athletic/5669408/2024/07/30/caleb-ferguson-astros-yankees-trade/
 
 **U.S. men's Olympic team heads to quarterfinals for the first time since 2000**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5669194/2024/07/30/trevor-rogers-trade-orioles-anal
 **Diamondbacks acquire Josh Bell, who had been placed on waivers by Marlins: Source**\
 `One day before the trade deadline, the Arizona Diamondbacks watched as first baseman Christian Walker had to leave a game against the Washington Nationals early with an oblique strain.`\
 https://nytimes.com/athletic/5669235/2024/07/30/diamondbacks-marlins-josh-bell-trade/
-
-**Adams Nominates Mastro, Setting Up a Showdown With the Council**\
-`Mayor Eric Adams is moving forward with nominating Randy Mastro as New York City’s top lawyer, despite opposition from the City Council.`\
-https://nytimes.com/2024/07/30/nyregion/adams-randy-mastro-nyc-city-council.html
 

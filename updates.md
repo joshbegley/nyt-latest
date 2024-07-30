@@ -1,3 +1,11 @@
+**Restaurant Review: This Outstanding Yemeni Kitchen Began With an Escape From War**\
+`Yemenat, in Bay Ridge, Brooklyn, offers Yemeni delights rarely found in New York City.`\
+https://nytimes.com/2024/07/30/dining/yemenat-restaurant-review-bay-ridge-brooklyn.html
+
+**Astros acquire reliever Caleb Ferguson in trade with Yankees: Sources**\
+`The Yankees traded Ferguson to the Astros for international bonus pool money and a minor leaguer, according to sources.`\
+https://nytimes.com/athletic/5669408/2024/07/30/caleb-ferguson-astros-yankees-trade/
+
 **Trump Invitation to Conference for Black Journalists Sets Off Intense Debate**\
 `The National Association of Black Journalists has a history of inviting presidential candidates to speak, but many of its members are bristling at Donald Trump’s scheduled session.`\
 https://nytimes.com/2024/07/30/business/media/trump-nabj-black-journalists.html
