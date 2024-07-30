@@ -1,3 +1,11 @@
+**Manchester United and Old Trafford: Should the club build a new 100,000-capacity stadium?**\
+`Our writers discuss the pros and cons of Manchester United moving to a new purpose-built ground next to Old Trafford `\
+https://nytimes.com/athletic/5666476/2024/07/30/manchester-united-new-stadium-roundtable/
+
+**Olympic Men’s Triathlon Postponed Because of Pollution in the Seine**\
+`Water-quality tests early Tuesday showed that the river running through Paris was unsafe for swimming, organizers said.`\
+https://nytimes.com/2024/07/30/world/olympics/seine-olympics-triathlon-postponed.html
+
 **Braves trade for Jorge Soler, reuniting with their 2021 World Series MVP**\
 `The Braves are getting the band back together, trading with the San Francisco Giants to bring back slugger Jorge Soler and reliever Luke Jackson, who both were big parts of their 2021 World Series champion team.`\
 https://nytimes.com/athletic/5667826/2024/07/30/braves-giants-jorge-soler-trade/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5666338/2024/07/30/what-really-happens-when-you-win
 **Tuesday's MLB odds, best bets: Pitching matchups, playoff odds, props and more**\
 `See pitching matchups, playoff projections, win projections and more for Tuesday's MLB games.`\
 https://nytimes.com/athletic/5666860/2024/07/30/mlb-odds-best-bets-projections-july-30/
-
-**Tuesday Briefing**\
-`President Biden’s call to change the Supreme Court.`\
-https://nytimes.com/2024/07/30/briefing/biden-court-venezuela-olympics.html
-
-**After Furious Battles, Ukraine Loses a Pair of Hard-Won Villages**\
-`“It was like a fight between two packs of dogs,” said an officer, describing the struggle for one of the areas, Urozhaine. But “there came a moment when it made no sense to keep people there.”`\
-https://nytimes.com/2024/07/30/world/europe/russia-urozhaine-staromaiorske-ukraine.html
 
