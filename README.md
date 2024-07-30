@@ -4,7 +4,7 @@ https://nytimes.com/2024/07/30/world/europe/authoritarian-governments-vote-riggi
 
 **Who Is Fuad Shukr, Target of the Israeli Strike on Beirut?**\
 `He is also wanted for his role in a 1983 attack in Beirut that killed some 300 American and French soldiers.`\
-https://nytimes.com/2024/07/30/world/middleeast/who-is-fuad-shukr-target-of-the-israeli-strike-on-beirut.html
+https://nytimes.com/2024/07/30/world/middleeast/fuad-shukr-hezbollah-israel-strike.html
 
 **MLB Trade Grades: With Lucas Erceg trade, Royals plan for present and future**\
 `The Royals gave up three decent young players for Erceg, but they will also control him through 2029. `\
