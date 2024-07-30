@@ -1,3 +1,7 @@
+**Ukraine Is Conscripting Thousands More Troops. But Are They Ready?**\
+`Large numbers of recruits will arrive at the front in the coming weeks, soldiers and military analysts said, but some are poorly trained or out of shape.`\
+https://nytimes.com/2024/07/30/world/europe/ukraine-war-troops-russia-mobilization.html
+
 **Judge John Hodgman on Whether ‘Cujo’ is Scary or Not**\
 `Do you have to read the book before deciding?`\
 https://nytimes.com/2024/07/30/magazine/judge-john-hodgman-on-whether-cujo-is-scary-or-not.html
