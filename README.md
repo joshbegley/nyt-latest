@@ -2,8 +2,8 @@
 `Troyes, the French club owned by the City Football Group, have been reinstated into Ligue 2 following Bordeaux&#8217;s administrative relegation.`\
 https://nytimes.com/athletic/5668984/2024/07/30/troyes-cfg-relegation-bordeaux-french-football/
 
-**Explosion erupts in Beirut’s southern suburbs, officials say**\
-`By Euan Ward`\
+**Israel strikes Beirut, saying it targeted commander of village assault.**\
+`By Euan Ward and Adam Rasgon`\
 https://nytimes.com/live/2024/07/30/world/israel-gaza-war-lebanon-hezbollah/explosion-erupts-in-beiruts-southern-suburbs-officials-say
 
 **Senate Passes Child Online Safety Bill, Sending It to an Uncertain House Fate**\
