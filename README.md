@@ -26,7 +26,7 @@ https://nytimes.com/athletic/5668154/2024/07/30/dortmund-brighton-pascal-gross-t
 `Secretary of State Antony J. Blinken and Defense Secretary Lloyd J. Austin III warned Beijing against engaging in hostilities with U.S. allies in the South and East China Seas.`\
 https://nytimes.com/2024/07/30/world/asia/us-philippines-military-aid-china.html
 
-**Intense Heat Settles Over Parts of Britain**\
+**Parts of U.K. Brace for the Hottest Day of the Year**\
 `Temperatures were expected to reach near 90 degrees on Tuesday, unusually warm for the region. The government issued a health alert for vulnerable groups.`\
 https://nytimes.com/2024/07/30/weather/uk-heat.html
 
