@@ -1,3 +1,15 @@
+**Jake O'Brien to Everton: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Jake O'Brien's move to Everton.`\
+https://nytimes.com/athletic/5665357/2024/07/30/jake-obrien-to-everton-transfer-ratings/
+
+**At 27, Simone Biles is the most decorated gymnast in history.**\
+`Biles has won every all-around competition she has entered for more than a decade, a streak unmatched in the sport.`\
+https://nytimes.com/live/2024/07/30/world/olympics-gymnastics-simone-biles/at-27-simone-biles-is-the-most-decorated-gymnast-in-history
+
+**Everton complete Jake O'Brien signing from Lyon**\
+`Everton have completed the signing of defender Jake O&#8217;Brien from Lyon on a four-year contract.`\
+https://nytimes.com/athletic/5662780/2024/07/30/jake-obrien-everton-transfers/
+
 **Jade Carey won gold in the floor exercise at the Tokyo Olympics.**\
 `Carey, 24, was recruited to elite gymnastics for her vaulting abilities. Now she is a two-time Olympian.`\
 https://nytimes.com/live/2024/07/30/world/olympics-gymnastics-simone-biles/jade-carey-won-gold-in-the-floor-exercise-at-the-tokyo-olympics
