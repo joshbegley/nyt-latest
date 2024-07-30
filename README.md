@@ -1,3 +1,7 @@
+**2024 Is the Year of ‘The Power Broker’**\
+`Our critic tackled its nearly 1,200 pages — and thinks you should too.`\
+https://nytimes.com/2024/07/30/podcasts/2024-is-the-year-of-the-power-broker.html
+
 **Is the Labor Market About to Crack? It’s the Key Question for the Fed.**\
 `Central bankers are paying more attention to the strength of the job market as inflation cools. But it’s a tough time to gauge its resilience.`\
 https://nytimes.com/2024/07/30/business/economy/labor-market-federal-reserve.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/30/us/politics/arizona-primary-races.html
 **Kamala Harris’s V.P. Scorecard**\
 `The vice president is narrowing her choices. How do the top contenders match up on political skills that matter most?`\
 https://nytimes.com/2024/07/30/us/politics/kamala-harris-vp-pick.html
-
-**What Happened to Venezuela’s Democracy?**\
-`A movement started by Hugo Chávez, promising power to the people, became an authoritarian regime, one that opponents say just stole an election.`\
-https://nytimes.com/2024/07/30/world/americas/venezuela-election-maduro-chavez.html
 
