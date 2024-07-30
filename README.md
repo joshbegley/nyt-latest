@@ -1,3 +1,7 @@
+**Team GB rugby sevens player withdrawn amid investigation into alleged racist message**\
+`A Team GB rugby sevens player was stood down ahead of the final day of competition at the Paris Olympics as the British Olympic Association (BOA) investigates an alleged racist message sent on WhatsApp.`\
+https://nytimes.com/athletic/5668625/2024/07/30/amy-wilson-hardy-olympics-sevens/
+
 **Until Saturday: Realigned teams rarely win big**\
 `Welcome to Until Saturday, the five-star college football newsletter: What can we learn from past realignment moves? `\
 https://nytimes.com/athletic/5665038/2024/07/30/until-saturday-realignment-history-college-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5668472/2024/07/30/padres-pitching-needs-mlb-trade-
 **Giannis Antetokounmpo, on verge of Olympic elimination, has no words for the latest loss**\
 `Antetokounmpo put 27 points and 11 boards were herculean, but he's carrying a heavy load for an undermanned Greek team.`\
 https://nytimes.com/athletic/5668405/2024/07/30/giannis-antetokounmpo-olympics-greece/
-
-**France Aligns With Morocco on Western Sahara, Angering Algeria**\
-`President Emmanuel Macron wrote to King Mohammed VI that France approved a plan for the disputed territory’s autonomy under Moroccan sovereignty.`\
-https://nytimes.com/2024/07/30/world/europe/france-morocco-western-sahara.html
 
