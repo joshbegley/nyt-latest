@@ -1,3 +1,7 @@
+**Yankees get reliever Enyel De Los Santos from Padres**\
+`The 28-year-old comes with two markers the Yankees look for: Strikeouts and team control.`\
+https://nytimes.com/athletic/5670094/2024/07/30/yankees-acquire-reliever-enyel-de-los-santos-from-the-padres/
+
 **Is Olympic pool's depth hurting swimmers? As world records hold, mystery rolls on**\
 `A shallower-than-normal pool has everyone asking whether it's affecting the times of the world's best swimmers at the Paris Olympics.`\
 https://nytimes.com/athletic/5669136/2024/07/30/olympics-swimming-pool-depth-world-record-paris/
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/5669260/2024/07/30/steelers-training-camp-offensive
 `On his list of top NFL wide receivers, Alexander put Doubs second behind Davante Adams.`\
 https://nytimes.com/athletic/5669499/2024/07/30/romeo-doubs-jaire-alexander-packers-camp/
 
-**Why 2024 is so San Francisco**\
+**Why 2024 Is So San Francisco**\
 `The city’s leaders are forged in a mix of wealth, diversity and a good bit of political nastiness.`\
 https://nytimes.com/2024/07/30/us/politics/harris-trump-san-francisco-voting-election.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5668382/2024/07/30/philadelphia-eagles-training-cam
 **MLB Trade Grades: Bryan De La Cruz brings Pirates power they badly need**\
 `De La Cruz strikes out a lot, doesn’t walk much, and gets on base less than 30 percent of the time. But beggars can’t be choosers.`\
 https://nytimes.com/athletic/5669969/2024/07/30/mlb-trade-grades-bryan-de-la-cruz-pirates-marlins/
-
-**Cards send Dylan Carlson to Rays**\
-`After acquiring Erick Fedde and Tommy Pham, Cardinals’ president of baseball operations John Mozeliak turned his focus to the bullpen.`\
-https://nytimes.com/athletic/5669306/2024/07/30/cardinals-rays-trade-dylan-carlson-shawn-armstrong/
 
