@@ -1,3 +1,7 @@
+**Xavi Simons set to rejoin RB Leipzig on loan transfer from PSG**\
+`Xavi Simons is set rejoin RB Leipzig on loan from Paris Saint-Germain for the 2024-25 campaign.`\
+https://nytimes.com/athletic/5665436/2024/07/30/xavi-simons-rb-leipzig-loan-psg/
+
 **Dynasty league sleepers: Cedric Tillman, Deneric Prince and more intriguing stashes**\
 `Jeff Haverlack identifies seven players currently valued at a cut-rate price who he believes could pay dynasty league dividends soon.`\
 https://nytimes.com/athletic/5667796/2024/07/30/dynasty-league-sleepers-cedric-tillman-deneric-prince-and-more-intriguing-stashes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5666330/2024/07/30/flyers-rebuild-nhl-konecny-michk
 **The V.P.’s Search for a V.P.**\
 `What Kamala Harris is looking for in a running mate.`\
 https://nytimes.com/2024/07/30/podcasts/the-daily/kamala-harris-vp.html
-
-**Bev Priestman, the Canada coach at the centre of the Olympics spying scandal**\
-`The Canada head coach was sent home and suspended. It’s an Olympics experience which could not be more different from her 2021 Games`\
-https://nytimes.com/athletic/5667118/2024/07/30/bev-priestman-canada-olympics-spying/
 
