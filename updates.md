@@ -1,3 +1,7 @@
+**105 is college football's new key roster number. What will it change?**\
+`The new system allows schools flexibility to decide how many scholarships within the roster limit they want to give out.`\
+https://nytimes.com/athletic/5668459/2024/07/30/ncaa-roster-caps-house-settlement-scholarships/
+
 **How YouTube Took Over Our Television Screens**\
 `The platform first known for viral videos now attracts more viewers on TVs than Netflix, Disney+ or Amazon Prime Video.`\
 https://nytimes.com/2024/07/30/technology/youtube-streaming-tv.html
