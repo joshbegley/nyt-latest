@@ -1,3 +1,23 @@
+**Greenberg: Did White Sox GM Chris Getz whiff in his first big trade-deadline deal?**\
+`Getz, at the center of a three-team swap, didn't exactly wow people with the Sox's return. Not in a seller's market. Not with so many needs.`\
+https://nytimes.com/athletic/5667568/2024/07/30/chicago-white-sox-trade-deadline-chris-getz/
+
+**Rock stars, tradition and transfer trickery - how Villa's viral kit video came together**\
+`Villa's kit launch video has racked up four millions views in a week - it involves rock stars, a trip to Hollywood and Unai Emery`\
+https://nytimes.com/athletic/5665310/2024/07/30/aston-villa-ozzy-osbourne-geezer-butler-new-kit/
+
+**How Real Madrid's physical trainer is helping NASA with the Artemis moon programme**\
+`Nicknamed 'The Sergeant' for his unforgiving fitness methods, Pintus has visited NASA to advise them on peak human performance`\
+https://nytimes.com/athletic/5665452/2024/07/30/real-madrid-nasa-artemis-pintus/
+
+**James has the chance to prove he should retain the Chelsea captaincy**\
+`James had the armband last season but fitness and disciplinary issues have contributed to an element of doubt about whether he keeps it`\
+https://nytimes.com/athletic/5665861/2024/07/30/reece-james-chelsea-captain-maresca/
+
+**What really happens when you win an Olympic medal: 'I did not know how crazy it would be'**\
+`Commiserate the losers? Make yourself presentable? Interview by the Eiffel Tower? What do you do when you win an Olympic medal?`\
+https://nytimes.com/athletic/5666338/2024/07/30/what-really-happens-when-you-win-an-olympic-medal/
+
 **Tuesday's MLB odds, best bets: Pitching matchups, playoff odds, props and more**\
 `See pitching matchups, playoff projections, win projections and more for Tuesday's MLB games.`\
 https://nytimes.com/athletic/5666860/2024/07/30/mlb-odds-best-bets-projections-july-30/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/07/30/world/olympics/katie-ledecky-1500.html
 **Reds win the game, lose a popular player in the clubhouse with the Frankie Montas trade**\
 `Montas became the leader of the Reds' rotation the moment he stepped into the clubhouse, so today was emotional for everyone.`\
 https://nytimes.com/athletic/5667771/2024/07/30/reds-frankie-montas-trade/
-
-**Olympics Today: Tuesday's guide for what to watch in Paris (and Tahiti)**\
-`A gold medal in the team event would be the fifth of Biles' career.`\
-https://nytimes.com/athletic/5665073/2024/07/30/olympics-2024-watch-guide-day-4-gymnastics-basketball/
-
-**China, Citing Tainted Burgers, Cleared Swimmers in a New Doping Dispute**\
-`Two Chinese athletes, one of whom was named to the Olympic team in Paris, tested positive in 2022 for a banned steroid. China blamed contaminated food, as it had after previous positive tests.`\
-https://nytimes.com/2024/07/30/us/politics/china-swimmers-doping-food.html
-
-**Quotation of the Day: Netanyahu Vows ‘Severe’ Reaction to Rocket Strike**\
-`Quotation of the Day for Tuesday, July 30, 2024.`\
-https://nytimes.com/2024/07/30/pageoneplus/quotation-of-the-day-netanyahu-vows-severe-reaction-to-rocket-strike.html
-
-**Corrections: July 30, 2024**\
-`Corrections that appeared in print on Tuesday, July 30, 2024.`\
-https://nytimes.com/2024/07/30/pageoneplus/corrections-july-30-2024.html
-
-**Jack Flaherty was scratched from his start. Does a deadline deal loom?**\
-`DETROIT — Jack Flaherty watched Monday’s 8-4 loss to the Cleveland Guardians from his usual spot on the dugout bench.`\
-https://nytimes.com/athletic/5667646/2024/07/29/tigers-jack-flaherty-scratch/
 
