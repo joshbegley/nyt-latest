@@ -1,3 +1,15 @@
+**A's grade out well in two deadline deals with Royals and Mets**\
+`The A's made two separate deals, acquiring two starters, a reliever and an outfielder for Lucas Erceg and Paul Blackburn.`\
+https://nytimes.com/athletic/5669757/2024/07/30/oakland-athletics-lucas-erceg-paul-blackburn-trade-analysis/
+
+**Asylum Officers’ Union Opposes Biden Border Restrictions**\
+`The group, which represents some officers in charge of carrying out President Biden’s asylum measure, said in a court filing that the policy illegally limited migrants’ protections.`\
+https://nytimes.com/2024/07/30/us/politics/asylum-officers-union-biden-border-restrictions.html
+
+**Read the Letter to Sullivan & Cromwell**\
+`A letter to Joseph Shenker, the senior chair at Sullivan & Cromwell, criticizing the law firm’s approach to student protestors.`\
+https://nytimes.com/interactive/2024/07/30/business/sullivan-letter.html
+
 **MLB Trade Grades: Mets make a solid, if unexciting pickup in Paul Blackburn**\
 `The Mets traded one prospect to get the back-end starter, a reliever performing well in the low minors. `\
 https://nytimes.com/athletic/5669750/2024/07/30/mlb-trade-grades-paul-blackburn-mets-athletics/
