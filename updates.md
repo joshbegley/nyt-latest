@@ -1,3 +1,7 @@
+**Yusei Kikuchi arrives at an enormous cost and is already under immense pressure**\
+`The three prospects shipped away for Kikuchi are ranked within the top 12 of the Astros' farm system.`\
+https://nytimes.com/athletic/5667921/2024/07/30/yusei-kikuchi-astros/
+
 **Braves' Grant Holmes won't forget his gem of a first MLB start, and a moment with dad**\
 `Holmes, a 28-year-old rookie, got his his first seven outs via strikeout on an emotional day. `\
 https://nytimes.com/athletic/5667952/2024/07/30/braves-grant-holmes-strikeouts/
