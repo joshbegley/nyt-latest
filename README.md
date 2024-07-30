@@ -1,3 +1,7 @@
+**MLB Trade Grades: Astros gain stability but pay high price for Yusei Kikuchi pickup**\
+`For a few months of Yusei Kikuchi, the Astros may have given up three likely major leaguers.`\
+https://nytimes.com/athletic/5667471/2024/07/29/mlb-trade-grades-yusei-kikuchi-blue-jays-astros/
+
 **Notre Dame AD 'all in' on continuing rivalry with USC**\
 `Notre Dame AD Pete Bevacqua wants to keep the school's annual rivalry game with USC after Lincoln Riley last week pondered its possible end.`\
 https://nytimes.com/athletic/5667319/2024/07/29/notre-dame-ad-wants-to-keep-rivalry-game-with-usc-alive-were-all-in/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/29/us/seattle-belltown-hellcat-jail.html
 **MLB Trade Grades: Could Guardians, Nats both have done better in Lane Thomas deal?**\
 `This appears to be a deal that underwhelms for both sides.`\
 https://nytimes.com/athletic/5667372/2024/07/29/mlb-trade-grades-guardians-nationals-lane-thomas/
-
-**Twins games to return to air after Diamond-Comcast deal — but it'll (eventually) cost you**\
-`The good news: The Twins will soon be back on the air for Comcast customers. The bad news: The new plan will cost an additional $20 a month.`\
-https://nytimes.com/athletic/5667248/2024/07/29/twins-games-diamond-comcast-deal-cost-increase/
 
