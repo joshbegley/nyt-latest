@@ -1,3 +1,11 @@
+**Josh Shapiro, a V.P. Contender, Criticized U.S. Steel Takeover and Defended His Tax Cuts**\
+`The proposed acquisition of the American company by Japan’s Nippon Steel has become a sensitive political matter, with both President Biden and Donald J. Trump decrying the deal.`\
+https://nytimes.com/2024/07/30/us/politics/shapiro-vice-president-taxes.html
+
+**Kamala Harris Faces a Faster, Uglier Version of the Internet**\
+`Politicians have long faced racist and sexist attacks online. But Ms. Harris is being attacked on more platforms, with new technologies and in front of bigger audiences than Barack Obama and Hillary Clinton were.`\
+https://nytimes.com/2024/07/30/technology/kamala-harris-toxic-internet-politics.html
+
 **‘Hillbilly Elegy’ Sales Surge After JD Vance Joins Trump Campaign**\
 `The book has sold more than 750,000 copies since July 15, his publisher said.`\
 https://nytimes.com/2024/07/30/books/hillbilly-elegy-sales-surge-after-jd-vance-joins-trump-campaign.html
