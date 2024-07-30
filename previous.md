@@ -1,3 +1,7 @@
+**Trump Invitation to Conference for Black Journalists Sets Off Intense Debate**\
+`The National Association of Black Journalists has a history of inviting presidential candidates to speak, but many of its members are bristling at Donald Trump’s scheduled session.`\
+https://nytimes.com/2024/07/30/business/media/trump-nabj-black-journalists.html
+
 **Guardians to acquire Alex Cobb from Giants to fortify their rotation: Sources**\
 `The Cleveland Guardians added a veteran presence to their rotation, acquiring right-hander Alex Cobb from the San Francisco Giants for left-handed pitching prospect Jacob Bresnahan and a player to be named later, league sources confirmed to The Athletic.`\
 https://nytimes.com/athletic/5669385/2024/07/30/guardians-sf-giants-alex-cobb-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5669235/2024/07/30/diamondbacks-marlins-josh-bell-t
 **Adams Nominates Mastro, Setting Up a Showdown With the Council**\
 `Mayor Eric Adams is moving forward with nominating Randy Mastro as New York City’s top lawyer, despite opposition from the City Council.`\
 https://nytimes.com/2024/07/30/nyregion/adams-randy-mastro-nyc-city-council.html
-
-**Simone Biles, Team USA gymnastics golden once again**\
-`Italy took silver, and Brazil won bronze.`\
-https://nytimes.com/athletic/5668946/2024/07/30/olympics-gymnastics-womens-team-final-result-simone-biles/
 
