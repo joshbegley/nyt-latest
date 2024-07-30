@@ -1,3 +1,15 @@
+**Creator of ‘Baby Reindeer’ Calls Show ‘Emotionally True’ but ‘Fictionalized’**\
+`Richard Gadd, the show’s creator, said in a court filing that Fiona Harvey, who is suing Netflix for defamation, harassed him in real life but that the show is a dramatic retelling.`\
+https://nytimes.com/2024/07/30/arts/television/richard-gadd-baby-reindeer-lawsuit.html
+
+**Trump vs. ‘America’s Border Czar’**\
+`Republicans’ first anti-Harris advertisement is about as subtle as Trump.`\
+https://nytimes.com/2024/07/22/opinion/kamala-harris-immigration-trump.html
+
+**After Biden’s Withdrawal, Other Aged Leaders Get Some Serious Side-Eye**\
+`Most of the world’s oldest leaders — in their 80s and even one in his 90s — are in Africa, which happens to have the youngest population of any continent.`\
+https://nytimes.com/2024/07/30/world/africa/biden-biya-world-oldest-leaders.html
+
 **Troyes’ reinstated in Ligue 2 after Bordeaux lose professional status**\
 `Troyes, the French club owned by the City Football Group, have been reinstated into Ligue 2 following Bordeaux&#8217;s administrative relegation.`\
 https://nytimes.com/athletic/5668984/2024/07/30/troyes-cfg-relegation-bordeaux-french-football/
