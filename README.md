@@ -2,10 +2,6 @@
 `Rogers' fastball is down about 2 1/2 mph from his heyday. Will Baltimore use him as a back-end starter or use him out of the bullpen?`\
 https://nytimes.com/athletic/5669194/2024/07/30/trevor-rogers-trade-orioles-analysis/
 
-**Diamondbacks acquire Josh Bell, who had been placed on waivers by Marlins: Source**\
-`One day before the trade deadline, the Arizona Diamondbacks watched as first baseman Christian Walker had to leave a game against the Washington Nationals early with an oblique strain.`\
-https://nytimes.com/athletic/5669235/2024/07/30/diamondbacks-marlins-josh-bell-trade/
-
 **Adams Nominates Mastro, Setting Up a Showdown With the Council**\
 `Mayor Eric Adams is moving forward with nominating Randy Mastro as New York City’s top lawyer, despite opposition from the City Council.`\
 https://nytimes.com/2024/07/30/nyregion/adams-randy-mastro-nyc-city-council.html
@@ -37,4 +33,9 @@ https://nytimes.com/athletic/5669146/2024/07/30/mlb-trade-grades-mark-leiter-cub
 **Chelsea squad 'together' after Fernandez apology for racist chant - Maresca**\
 `Enzo Maresca insists the bond between Chelsea players is back to normal after Enzo Fernandez issued a personal apology to the squad on Monday for singing a racist song on international duty with Argentina.`\
 https://nytimes.com/athletic/5669099/2024/07/30/enzo-fernandez-chelsea-enzo-maresca/
+
+**Orioles add to starting rotation, acquire lefty Trevor Rogers from Marlins: Source**\
+`By Kamila Hinkson, Ken Rosenthal and Levi Weaver
+The Baltimore Orioles have acquired left-handed starter Trevor Rogers from the Miami Marlins, The Athletic’s Ken Rosenthal has confirmed.`\
+https://nytimes.com/athletic/5669127/2024/07/30/orioles-add-to-rotation-acquire-lefty-trevor-rogers-from-marlins-source/
 
