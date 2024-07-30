@@ -1,3 +1,15 @@
+**Lara Trump Compares Harris to a Fashion Designer’s Faux ‘Trash Bag’**\
+`It was the latest in a series of vicious personal attacks Republicans have lobbed at the vice president since Democrats coalesced around her as their presidential nominee.`\
+https://nytimes.com/2024/07/30/us/politics/lara-trump-kamala-harris-trash-bag.html
+
+**What Does It Mean to Slice Steak Against the Grain?**\
+`It’s arguably the most important part of enjoying steak, but it can be hard to do if you don’t know where the grain is.`\
+https://nytimes.com/2024/07/30/dining/how-to-cut-steak-against-the-grain.html
+
+**Israel strikes Beirut, targeting Hezbollah commander it blamed for village assault.**\
+`By Adam Rasgon, Ronen Bergman and Euan Ward`\
+https://nytimes.com/live/2024/07/30/world/israel-gaza-war-lebanon-hezbollah/explosion-erupts-in-beiruts-southern-suburbs-officials-say
+
 **Creator of ‘Baby Reindeer’ Calls Show ‘Emotionally True’ but ‘Fictionalized’**\
 `Richard Gadd, the show’s creator, said in a court filing that Fiona Harvey, who is suing Netflix for defamation, harassed him in real life but that the show is a dramatic retelling.`\
 https://nytimes.com/2024/07/30/arts/television/richard-gadd-baby-reindeer-lawsuit.html
