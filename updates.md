@@ -1,3 +1,11 @@
+**MLB trade deadline roundup: All the trades from Monday**\
+`Here's everything you need to know about who switched teams on Monday. `\
+https://nytimes.com/athletic/5666082/2024/07/29/mlb-trade-deadline-roundup-monday/
+
+**White Sox lose 15th game in a row**\
+`Despite holding a five-run lead heading into the eighth, the White Sox extended their losing streak with an 8-5 defeat by the Royals.`\
+https://nytimes.com/athletic/5667074/2024/07/29/white-sox-franchise-loss-record/
+
 **MLB Trade Grades: Brewers make head-scratcher in Frankie Montas deal with Reds**\
 `The Brewers paid to acquire a starting pitcher in Frankie Montas. They may have given up a better one in Jakob Junis. `\
 https://nytimes.com/athletic/5667672/2024/07/29/mlb-trade-grades-frankie-montas-brewers-reds/
