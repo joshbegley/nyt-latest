@@ -1,7 +1,3 @@
-**Heavy Rain Triggers Deadly Landslides in Southern India**\
-`A major search-and-rescue operation is underway after days of torrential rain caused landslides in Kerala, India.`\
-https://nytimes.com/video/world/asia/100000009600660/india-landslides-kerala.html
-
 **Chelsea squad 'together' after Fernandez apology for racist chant - Maresca**\
 `Enzo Maresca insists the bond between Chelsea players is back to normal after Enzo Fernandez issued a personal apology to the squad on Monday for singing a racist song on international duty with Argentina.`\
 https://nytimes.com/athletic/5669099/2024/07/30/enzo-fernandez-chelsea-enzo-maresca/
