@@ -1,3 +1,7 @@
+**Lane Thomas fills significant need, but Guardians pay hefty price to Nationals**\
+`Thomas hasn't repeated his breakout season this year, but he still represents a big upgrade for Cleveland.`\
+https://nytimes.com/athletic/5667615/2024/07/29/lane-thomas-guardians-nationals-trade-analysis/
+
 **Brewers make deal with Reds to add righty Frankie Montas to injury-plagued rotation**\
 `The NL Central-leading Milwaukee Brewers bolstered their starting rotation on Monday night by dealing with a division rival, acquiring righthander Frankie Montas from the Cincinnati Reds in exchange for young outfielder Joey Wiemer and veteran righty Jakob Junis, league sources confirmed to The Athletic.`\
 https://nytimes.com/athletic/5667645/2024/07/29/frankie-montas-trade-brewers/
