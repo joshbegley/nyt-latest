@@ -1,3 +1,15 @@
+**In Venezuela, Covering the Fallout of a Tainted Election**\
+`Anatoly Kurmanaev, who lived in Venezuela for years, is in Caracas reporting on the protests that have erupted there after Nicolás Maduro was declared the winner of a flawed election.`\
+https://nytimes.com/2024/07/30/insider/in-venezuela-covering-the-fallout-of-a-tainted-election.html
+
+**MLB Trade Grades: Paul DeJong will find a new home — and position — in Kansas City**\
+`Few teams need a shortstop less than the Royals, but DeJong can bolster their bench and help elsewhere in the infield.`\
+https://nytimes.com/athletic/5669749/2024/07/30/mlb-trade-grades-dejong-royals-white-sox/
+
+**Atletico Madrid in advanced discussions with Chelsea over Gallagher deal**\
+`Atletico Madrid are in advanced discussions with Chelsea over a deal for midfielder Conor Gallagher.`\
+https://nytimes.com/athletic/5668072/2024/07/30/chelsea-conor-gallagher-atletico-transfer/
+
 **A's grade out well in two deadline deals with Royals and Mets**\
 `The A's made two separate deals, acquiring two starters, a reliever and an outfielder for Lucas Erceg and Paul Blackburn.`\
 https://nytimes.com/athletic/5669757/2024/07/30/oakland-athletics-lucas-erceg-paul-blackburn-trade-analysis/

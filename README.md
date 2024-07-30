@@ -1,3 +1,11 @@
+**Anita Dunn to Leave White House in First Departure Since Biden’s Withdrawal**\
+`Ms. Dunn, the president’s senior adviser, will consult for a super PAC supporting Vice President Kamala Harris’s fledgling presidential campaign.`\
+https://nytimes.com/2024/07/30/us/politics/anita-dunn-leaving-white-house-kamala-harris.html
+
+**MLB Trade Grades: Can Andrew Chafin give Rangers the lefty presence they need?**\
+`Chafin, in the midst of a bounce-back season, goes to the Rangers in exchange for a pair of interesting righty arms. `\
+https://nytimes.com/athletic/5669835/2024/07/30/mlb-trade-grades-andrew-chafin-tigers-rangers/
+
 **In Venezuela, Covering the Fallout of a Tainted Election**\
 `Anatoly Kurmanaev, who lived in Venezuela for years, is in Caracas reporting on the protests that have erupted there after Nicolás Maduro was declared the winner of a flawed election.`\
 https://nytimes.com/2024/07/30/insider/in-venezuela-covering-the-fallout-of-a-tainted-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5669750/2024/07/30/mlb-trade-grades-paul-blackburn-
 **Antidoping Agency Acknowledges Concern Over Use of Tainted Food as Excuse**\
 `After a spate of positive tests for performance-enhancing drugs by athletes, the World Anti-Doping Agency is investigating why China and other countries are citing contaminated food as an explanation.`\
 https://nytimes.com/2024/07/30/us/politics/antidoping-agency-tainted-food-olympics-china.html
-
-**After Dramatic Surrender, Son of El Chapo Pleads Not Guilty to Drug Charges**\
-`Joaquín Guzmán López gave himself up to U.S. authorities last week along with a former associate of his father’s.`\
-https://nytimes.com/2024/07/30/us/el-chapo-son-plea.html
-
-**Microsoft Profit Jumps 10%, but Cloud Computing Grows Less Than Expected**\
-`The tech giant’s revenue also grew 15 percent, but Wall Street is watching whether its investment in A.I. is paying off for its cloud computing business.`\
-https://nytimes.com/2024/07/30/technology/microsoft-earnings-profit.html
 

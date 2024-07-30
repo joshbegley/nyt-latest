@@ -1,6 +1,18 @@
+**In Venezuela, Covering the Fallout of a Tainted Election**\
+`Anatoly Kurmanaev, who lived in Venezuela for years, is in Caracas reporting on the protests that have erupted there after Nicolás Maduro was declared the winner of a flawed election.`\
+https://nytimes.com/2024/07/30/insider/in-venezuela-covering-the-fallout-of-a-tainted-election.html
+
+**MLB Trade Grades: Paul DeJong will find a new home — and position — in Kansas City**\
+`Few teams need a shortstop less than the Royals, but DeJong can bolster their bench and help elsewhere in the infield.`\
+https://nytimes.com/athletic/5669749/2024/07/30/mlb-trade-grades-dejong-royals-white-sox/
+
 **A's grade out well in two deadline deals with Royals and Mets**\
 `The A's made two separate deals, acquiring two starters, a reliever and an outfielder for Lucas Erceg and Paul Blackburn.`\
 https://nytimes.com/athletic/5669757/2024/07/30/oakland-athletics-lucas-erceg-paul-blackburn-trade-analysis/
+
+**Atletico Madrid in advanced discussions with Chelsea over Gallagher deal**\
+`Atletico Madrid are in advanced discussions with Chelsea over a deal for midfielder Conor Gallagher.`\
+https://nytimes.com/athletic/5668072/2024/07/30/chelsea-conor-gallagher-atletico-transfer/
 
 **Asylum Officers’ Union Opposes Biden Border Restrictions**\
 `The group, which represents some officers in charge of carrying out President Biden’s asylum measure, said in a court filing that the policy illegally limited migrants’ protections.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/30/us/el-chapo-son-plea.html
 **Microsoft Profit Jumps 10%, but Cloud Computing Grows Less Than Expected**\
 `The tech giant’s revenue also grew 15 percent, but Wall Street is watching whether its investment in A.I. is paying off for its cloud computing business.`\
 https://nytimes.com/2024/07/30/technology/microsoft-earnings-profit.html
-
-**Commanders camp: Jayden Daniels, Jahan Dotson and the offense have pass-happy day**\
-`The roughly 1,500 season ticket holders who flocked to Washington’s third consecutive open practice witnessed some on-field excitement. `\
-https://nytimes.com/athletic/5669367/2024/07/30/commanders-offense-jayden-daniels-jahan-dotson/
-
-**Wednesday Briefing: Israel Targets a Hezbollah Commander**\
-`Plus, deadly street clashes in Venezuela and the Booker Prize longlist`\
-https://nytimes.com/2024/07/30/briefing/hezbollah-venezuela-booker.html
-
-**Wisconsin offense remains imperfect as fall camp begins: 10 Badgers takeaways**\
-`Head coach Luke Fickell is stressing the importance of discipline as he gears his team up for the 2024 season.`\
-https://nytimes.com/athletic/5669625/2024/07/30/wisconsin-college-football-preseason-practice-notes/
 
