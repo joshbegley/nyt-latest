@@ -1,3 +1,11 @@
+**Understanding the New Era of Fire**\
+`Wildfires, driven by climate change, have become more intense and frequent, but scientists are still trying to understand larger patterns.`\
+https://nytimes.com/2024/07/30/climate/understanding-the-new-era-of-fire.html
+
+**Contra Returns as a Cocktail Bar With Stilton-Stuffed Chicken Wings**\
+`After closing their restaurant a year ago, Jeremiah Stone and Fabián von Hauske Valtierra are back with the drinks expert Dave Arnold for Bar Contra, serving snacks and cocktails.`\
+https://nytimes.com/2024/07/30/dining/bar-contra-nyc.html
+
 **After Days Lost at Sea, They Needed a Pastrami Sandwich**\
 `A pair of scuba divers were dramatically rescued from the Gulf of Mexico. They knew what their first stop after the ordeal would be.`\
 https://nytimes.com/2024/07/30/dining/kenny-ziggys-deli-lost-at-sea.html
