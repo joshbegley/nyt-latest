@@ -1,3 +1,7 @@
+**'Lopetegui's modern methods are exciting - they suit me and West Ham'**\
+`The West Ham midfielder reflects on his first season at the club, life under Lopetegui and his search for a record-equalling free-kick goal`\
+https://nytimes.com/athletic/5650307/2024/07/30/james-ward-prowse-west-ham-julen-lopetegui/
+
 **Manchester United and Old Trafford: Should the club build a new 100,000-capacity stadium?**\
 `Our writers discuss the pros and cons of Manchester United moving to a new purpose-built ground next to Old Trafford `\
 https://nytimes.com/athletic/5666476/2024/07/30/manchester-united-new-stadium-roundtable/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5665861/2024/07/30/reece-james-chelsea-captain-mare
 **What really happens when you win an Olympic medal: 'I did not know how crazy it would be'**\
 `Commiserate the losers? Make yourself presentable? Interview by the Eiffel Tower? What do you do when you win an Olympic medal?`\
 https://nytimes.com/athletic/5666338/2024/07/30/what-really-happens-when-you-win-an-olympic-medal/
-
-**Tuesday's MLB odds, best bets: Pitching matchups, playoff odds, props and more**\
-`See pitching matchups, playoff projections, win projections and more for Tuesday's MLB games.`\
-https://nytimes.com/athletic/5666860/2024/07/30/mlb-odds-best-bets-projections-july-30/
 

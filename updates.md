@@ -1,3 +1,7 @@
+**'Lopetegui's modern methods are exciting - they suit me and West Ham'**\
+`The West Ham midfielder reflects on his first season at the club, life under Lopetegui and his search for a record-equalling free-kick goal`\
+https://nytimes.com/athletic/5650307/2024/07/30/james-ward-prowse-west-ham-julen-lopetegui/
+
 **Manchester United and Old Trafford: Should the club build a new 100,000-capacity stadium?**\
 `Our writers discuss the pros and cons of Manchester United moving to a new purpose-built ground next to Old Trafford `\
 https://nytimes.com/athletic/5666476/2024/07/30/manchester-united-new-stadium-roundtable/
