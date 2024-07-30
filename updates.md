@@ -1,3 +1,7 @@
+**What is the Yankees' biggest trade deadline need? 3 questions**\
+`The Yankees have stood pat since trading for Jazz Chisholm Jr. Could they have more up their sleeves? Here are some options.`\
+https://nytimes.com/athletic/5667743/2024/07/29/yankees-trade-deadline-need-questions/
+
 **Red Sox rebound in a big way, crushing Mariners ace as trade deadline approaches**\
 `The Red Sox displayed the intangible fortitude that has been a trademark all season. Will the team get reinforcements before the deadline?`\
 https://nytimes.com/athletic/5667721/2024/07/29/red-sox-rout-mariners-logan-gilbert/

@@ -1,3 +1,7 @@
+**Liberal ‘White Dudes’ Rally for Harris: ‘It’s Like a Rainbow of Beige’**\
+`A video call with 60,000 self-professed “White Dudes for Harris” showed the breadth of Democratic support for her candidacy, and the ways the party is learning to make fun of itself.`\
+https://nytimes.com/2024/07/29/us/politics/kamala-harris-white-dudes.html
+
 **What is the Yankees' biggest trade deadline need? 3 questions**\
 `The Yankees have stood pat since trading for Jazz Chisholm Jr. Could they have more up their sleeves? Here are some options.`\
 https://nytimes.com/athletic/5667743/2024/07/29/yankees-trade-deadline-need-questions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5667615/2024/07/29/lane-thomas-guardians-nationals-
 **Brewers make deal with Reds to add righty Frankie Montas to injury-plagued rotation**\
 `The NL Central-leading Milwaukee Brewers bolstered their starting rotation on Monday night by dealing with a division rival, acquiring righthander Frankie Montas from the Cincinnati Reds in exchange for young outfielder Joey Wiemer and veteran righty Jakob Junis, league sources confirmed to The Athletic.`\
 https://nytimes.com/athletic/5667645/2024/07/29/frankie-montas-trade-brewers/
-
-**MLB Trade Grades: Pirates are buyers, but did they overpay for Jalen Beeks?**\
-`Giving up Luis Peralta, the younger brother of Brewers All-Star Freddy Peralta, is an unfortunate cost.`\
-https://nytimes.com/athletic/5667620/2024/07/29/mlb-trade-grades-pirates-are-buyers-but-did-they-overpay-for-jalen-beeks/
 
