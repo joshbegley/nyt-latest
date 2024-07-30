@@ -1,40 +1,40 @@
-**‘I Am So Sorry’: Meeting the Man I Put on Death Row**\
-`“I regret deeply that we followed the easiest path.”`\
-https://nytimes.com/video/opinion/100000009574772/deathy-penalty-texas.html
+**Is the Labor Market About to Crack? It’s the Key Question for the Fed.**\
+`Central bankers are paying more attention to the strength of the job market as inflation cools. But it’s a tough time to gauge its resilience.`\
+https://nytimes.com/2024/07/30/business/economy/labor-market-federal-reserve.html
 
-**Steve Kerr and Team USA's next Olympic task: It's time to get Stephen Curry going**\
-`With South Sudan up next for Team USA, now it's time for Steve Kerr to get his beloved Golden State Warriors co-worker, Steph Curry, going.`\
-https://nytimes.com/athletic/5666025/2024/07/30/stephen-curry-team-usa-steve-kerr-basketball-olympics/
+**What Democrats Can Learn From Gretchen Whitmer**\
+`The governor of Michigan on why her promises to fix roads and Roe resonate with voters.`\
+https://nytimes.com/2024/07/30/opinion/ezra-klein-podcast-gretchen-whitmer.html
 
-**Napoli and Chelsea continue talks over Lukaku transfer, Osimhen loan**\
-`Napoli are in ongoing discussions with Chelsea to sign Romelu Lukaku, while dialogue between the clubs also continues about a deal for Victor Osimhen to head in the opposite direction.`\
-https://nytimes.com/athletic/5648308/2024/07/30/romelu-lukaku-napoli-transfer-chelsea-osimhen/
+**This 15-Minute Shrimp Dish Will Transport You to Spain**\
+`You won’t even need to leave your yard with this menu, book-ended with escalivada, a traditional Catalan vegetable dish, and a refreshing peach sorbet from David Tanis.`\
+https://nytimes.com/2024/07/30/dining/garlic-shrimp-recipe.html
 
-**Deadly Landslides Hit India**\
-`The landslides left behind destruction in Kerala, where some people worked to clear a pile of uprooted trees as muddy waters flowed around a village.`\
-https://nytimes.com/video/world/asia/100000009599770/india-landslide-kerala.html
+**Are Ultraprocessed Foods Actually Worse?**\
+`Ultraprocessed foods are ubiquitous, making up a whopping 73 percent of the U.`\
+https://nytimes.com/video/well/eat/100000009590509/are-ultraprocessed-foods-actually-worse.html
 
-**Jon Stewart Recaps a Pretty Eventful Week in Politics**\
-`“In the span of a week, Democrats have gone from the despair of a certain Trump presidency to the joy of a statistical tie,” Stewart said on “The Daily Show.”`\
-https://nytimes.com/2024/07/30/arts/television/jon-stewart-kamala-harris.html
+**Biden Is Right: End Lifetime Tenure on the Supreme Court**\
+`He deserves credit for being the first president to join the movement.`\
+https://nytimes.com/live/2024/07/22/opinion/thepoint/biden-supreme-court-term-limits
 
-**Who Is Shujun Wang, the Queens Man Accused of Spying for China?**\
-`Mr. Wang is on trial this week in Brooklyn federal court. He vigorously disputes the charges against him.`\
-https://nytimes.com/2024/07/30/nyregion/shujun-wang-china-spying.html
+**Trump’s First Major Ad Attacking Harris Hits Her on Immigration**\
+`The spot, running on television in six battleground states, reflects an effort by the former president to center immigration that predates Kamala Harris’s rise to the top of the Democratic ticket.`\
+https://nytimes.com/2024/07/30/us/politics/trump-campaign-ad-harris-immigration.html
 
-**Brad Lander, New York City’s Comptroller, Will Run Against Mayor Adams**\
-`Mr. Lander, a progressive Democrat from Brooklyn, is the most prominent candidate to challenge Mayor Eric Adams in next year’s primary.`\
-https://nytimes.com/2024/07/30/nyregion/brad-lander-mayor-adams.html
+**What the Polls Tell Us About Harris vs. Trump**\
+`There are two things giving the vice president a lift in the short term: unity and energy.`\
+https://nytimes.com/2024/07/30/opinion/harris-trump-polls.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/07/30/crosswords/spelling-bee-forum.html
+**Races to Watch in Arizona’s Primary Elections Today**\
+`Before Kari Lake can take on Representative Ruben Gallego for a Senate seat, she must win her Republican race. And two House races set up by the primaries will be hotly contested in the fall.`\
+https://nytimes.com/2024/07/30/us/politics/arizona-primary-races.html
 
-**The Transfer DealSheet: United right-back update, Arsenal post-Calafiori plans**\
-`Welcome to the latest edition of the Transfer DealSheet, your guide to everything going on in the world of transfers`\
-https://nytimes.com/athletic/5665438/2024/07/30/manchester-united-transfer-latest-arsenal-liverpool-real-madrid-barcelona/
+**Kamala Harris’s V.P. Scorecard**\
+`The vice president is narrowing her choices. How do the top contenders match up on political skills that matter most?`\
+https://nytimes.com/2024/07/30/us/politics/kamala-harris-vp-pick.html
 
-**Amanda Staveley exclusive: Leaving Newcastle, living with Huntington's and what comes next**\
-`In her first interview since leaving St James' Park, George Caulkin hears why Staveley believes her exit is 'painful' but necessary`\
-https://nytimes.com/athletic/5635448/2024/07/30/amanda-staveley-newcastle-interview/
+**What Happened to Venezuela’s Democracy?**\
+`A movement started by Hugo Chávez, promising power to the people, became an authoritarian regime, one that opponents say just stole an election.`\
+https://nytimes.com/2024/07/30/world/americas/venezuela-election-maduro-chavez.html
 
