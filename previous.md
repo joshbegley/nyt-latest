@@ -1,3 +1,7 @@
+**Blue Jays' goodbyes to teammates at deadline a reminder of season gone wrong**\
+`The Blue Jays set out this season to win a World Series. Their selloff is a stark reminder of how badly that plan failed.`\
+https://nytimes.com/athletic/5667750/2024/07/30/blue-jays-trade-deadline-selloff/
+
 **'Lopetegui's modern methods are exciting - they suit me and West Ham'**\
 `The West Ham midfielder reflects on his first season at the club, life under Lopetegui and his search for a record-equalling free-kick goal`\
 https://nytimes.com/athletic/5650307/2024/07/30/james-ward-prowse-west-ham-julen-lopetegui/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5665452/2024/07/30/real-madrid-nasa-artemis-pintus/
 **James has the chance to prove he should retain the Chelsea captaincy**\
 `James had the armband last season but fitness and disciplinary issues have contributed to an element of doubt about whether he keeps it`\
 https://nytimes.com/athletic/5665861/2024/07/30/reece-james-chelsea-captain-maresca/
-
-**What really happens when you win an Olympic medal: 'I did not know how crazy it would be'**\
-`Commiserate the losers? Make yourself presentable? Interview by the Eiffel Tower? What do you do when you win an Olympic medal?`\
-https://nytimes.com/athletic/5666338/2024/07/30/what-really-happens-when-you-win-an-olympic-medal/
 

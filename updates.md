@@ -1,3 +1,7 @@
+**Blue Jays' goodbyes to teammates at deadline a reminder of season gone wrong**\
+`The Blue Jays set out this season to win a World Series. Their selloff is a stark reminder of how badly that plan failed.`\
+https://nytimes.com/athletic/5667750/2024/07/30/blue-jays-trade-deadline-selloff/
+
 **'Lopetegui's modern methods are exciting - they suit me and West Ham'**\
 `The West Ham midfielder reflects on his first season at the club, life under Lopetegui and his search for a record-equalling free-kick goal`\
 https://nytimes.com/athletic/5650307/2024/07/30/james-ward-prowse-west-ham-julen-lopetegui/
