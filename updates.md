@@ -1,3 +1,7 @@
+**Disney Comes for ‘Deadpool’**\
+`Making fun of schlocky, overwrought superhero movies used to be the Deadpool signature. But with “Deadpool & Wolverine,” and Disney’s push into the Marvel Universe, that thread is lost.`\
+https://nytimes.com/2024/07/30/movies/deadpool-wolverine-disney-marvel.html
+
 **Scoop City: Differing offseason approaches in Detroit and Dallas**\
 `A look at the approaches taken by Detroit and Dallas this offseason, as well as the pass rush groups across the NFL`\
 https://nytimes.com/athletic/5668545/2024/07/30/cowboys-lions-offseason-scoop-city/

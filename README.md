@@ -1,3 +1,7 @@
+**K-State's speedy Avery Johnson wants to prove he can also beat you with his arm**\
+`Kansas State is ready for the Avery Johnson show, and Johnson is committed to shining not just with his feet but his arm. `\
+https://nytimes.com/athletic/5668522/2024/07/30/avery-johnson-kansas-state-football/
+
 **Scoop City: Differing offseason approaches in Detroit and Dallas**\
 `A look at the approaches taken by Detroit and Dallas this offseason, as well as the pass rush groups across the NFL`\
 https://nytimes.com/athletic/5668545/2024/07/30/cowboys-lions-offseason-scoop-city/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/30/learning/is-friendship-becoming-obsolete-the-week
 **Hong Kong Taunts Italy With Pineapple Pizza After Olympics Fencing Win**\
 `After a fencer from Hong Kong beat an Italian for a gold medal, Pizza Hut’s offer of free pineapple toppings in Hong Kong was the city’s second jab at Italy.`\
 https://nytimes.com/2024/07/30/world/olympics/hong-kong-italy-fencing-pineapple-pizza.html
-
-**The Stranger in Seattle Gets a New Owner, With Plans for Expansion**\
-`Noisy Creek, a new media company, has bought The Stranger and The Portland Mercury, two of the country’s best known alternative weeklies.`\
-https://nytimes.com/2024/07/30/business/media/the-stranger-seattle-new-owner.html
 
