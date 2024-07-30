@@ -2,7 +2,7 @@
 `Baltimore has decided to roll the dice and spend some money to see if they can get Jiménez right — or at least hot in the postseason.`\
 https://nytimes.com/athletic/5670167/2024/07/30/mlb-trade-grades-eloy-jimenez-orioles/
 
-**49ers training camp: Deommodore Lenoir's secondary struck back vs. Brock Purdy**\
+**49ers training camp: Deommodore Lenoir's secondary strikes back vs. Brock Purdy**\
 `A hot start from Purdy featured two long touchdowns, but Lenoir and the defense notched the last laugh Tuesday.`\
 https://nytimes.com/athletic/5669565/2024/07/30/49ers-training-camp-deommodore-lenoir-brock-purdy/
 
