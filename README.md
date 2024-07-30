@@ -1,3 +1,19 @@
+**Man Charged in Fatal Shooting of 13-Year-Old Boy in Brooklyn**\
+`The man, Sheik Koureichi, was accused of aiding in the killing of Troy Gill, who was shot in February while walking home in Crown Heights after a basketball game.`\
+https://nytimes.com/2024/07/30/nyregion/brooklyn-shooting-troy-gill.html
+
+**Yankees get reliever Enyel De Los Santos from Padres**\
+`The 28-year-old comes with two markers the Yankees look for: Strikeouts and team control.`\
+https://nytimes.com/athletic/5670094/2024/07/30/yankees-acquire-reliever-enyel-de-los-santos-from-the-padres/
+
+**Is Olympic pool's depth hurting swimmers? As world records hold, mystery rolls on**\
+`A shallower-than-normal pool has everyone asking whether it's affecting the times of the world's best swimmers at the Paris Olympics.`\
+https://nytimes.com/athletic/5669136/2024/07/30/olympics-swimming-pool-depth-world-record-paris/
+
+**Raiders training camp: Short-handed offensive line hangs in there as pads come on**\
+`Injuries on the offensive line have made things even harder on the struggling quarterback duo of Aidan O'Connell and Gardner Minshew.`\
+https://nytimes.com/athletic/5669641/2024/07/30/raiders-training-camp-offensive-line-2/
+
 **MLB Trade Grades: With Trevor Richards, the Twins finally enter the trade fray**\
 `Richards is a veteran who will give the Twins some much-needed bullpen depth. How much of an impact will he make?`\
 https://nytimes.com/athletic/5670056/2024/07/30/mlb-trade-grades-twins-blue-jays-richards/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5670071/2024/07/30/sf-giants-tigers-mark-canha-trad
 **Eagles training camp: Rookie Quinyon Mitchell's brimming competitiveness impresses**\
 `The cornerback has gotten the attention of star receiver A.J. Brown.`\
 https://nytimes.com/athletic/5668382/2024/07/30/philadelphia-eagles-training-camp-quinyon-mitchell/
-
-**MLB Trade Grades: Bryan De La Cruz brings Pirates power they badly need**\
-`De La Cruz strikes out a lot, doesn’t walk much, and gets on base less than 30 percent of the time. But beggars can’t be choosers.`\
-https://nytimes.com/athletic/5669969/2024/07/30/mlb-trade-grades-bryan-de-la-cruz-pirates-marlins/
-
-**Cards send Dylan Carlson to Rays**\
-`After acquiring Erick Fedde and Tommy Pham, Cardinals’ president of baseball operations John Mozeliak turned his focus to the bullpen.`\
-https://nytimes.com/athletic/5669306/2024/07/30/cardinals-rays-trade-dylan-carlson-shawn-armstrong/
-
-**At 17, She’s Already Conquered Some of the World’s Big Swims**\
-`While attention has been on the Paris Olympics, Maya Merhige, a high school senior, swam from England to France, completing the triple crown in open-water swimming.`\
-https://nytimes.com/2024/07/30/world/english-channel-marathon-swim.html
-
-**Red Sox acquire Luis García from the Angels, add another arm to the bullpen mix**\
-`The Red Sox add another reliever just before the trade deadline passed.`\
-https://nytimes.com/athletic/5670036/2024/07/30/red-sox-angels-luis-garcia-trade/
 
