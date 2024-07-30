@@ -1,3 +1,11 @@
+**‘Hillbilly Elegy’ Sales Surge After JD Vance Joins Trump Campaign**\
+`The book has sold more than 750,000 copies since July 15, his publisher said.`\
+https://nytimes.com/2024/07/30/books/hillbilly-elegy-sales-surge-after-jd-vance-joins-trump-campaign.html
+
+**Why Is New York Italian Food Getting So Delightfully Weird?**\
+`From olives encased in Jell-O cubes to giant ravioli, iconoclastic takes on Italian classics are shaping the menus at a new wave of restaurants.`\
+https://nytimes.com/2024/07/30/t-magazine/italian-food-restaurants-ny.html
+
 **How Kamala Harris Faces a Faster, Uglier Version of the Internet**\
 `Politicians have long faced racist and sexist attacks online. But Ms. Harris is being attacked on more platforms, with new technologies and in front of bigger audiences than Barack Obama and Hillary Clinton were.`\
 https://nytimes.com/2024/07/30/technology/kamala-harris-toxic-internet-politics.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5668913/2024/07/30/titans-arden-key-suspension/
 **105 is college football's new key roster number. What will it change?**\
 `The new system allows schools flexibility to decide how many scholarships within the roster limit they want to give out.`\
 https://nytimes.com/athletic/5668459/2024/07/30/ncaa-roster-caps-house-settlement-scholarships/
-
-**How YouTube Took Over Our Television Screens**\
-`The platform first known for viral videos now attracts more viewers on TVs than Netflix, Disney+ or Amazon Prime Video.`\
-https://nytimes.com/2024/07/30/technology/youtube-streaming-tv.html
-
-**Dillon Brooks, international villain, talks Team Canada and FIBA/NBA differences**\
-`The Houston Rockets instigator has found that the international style of play fits what he does best. `\
-https://nytimes.com/athletic/5668728/2024/07/30/dillon-brooks-canada-olympics/
 

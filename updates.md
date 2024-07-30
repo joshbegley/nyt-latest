@@ -1,3 +1,11 @@
+**‘Hillbilly Elegy’ Sales Surge After JD Vance Joins Trump Campaign**\
+`The book has sold more than 750,000 copies since July 15, his publisher said.`\
+https://nytimes.com/2024/07/30/books/hillbilly-elegy-sales-surge-after-jd-vance-joins-trump-campaign.html
+
+**Why Is New York Italian Food Getting So Delightfully Weird?**\
+`From olives encased in Jell-O cubes to giant ravioli, iconoclastic takes on Italian classics are shaping the menus at a new wave of restaurants.`\
+https://nytimes.com/2024/07/30/t-magazine/italian-food-restaurants-ny.html
+
 **How Kamala Harris Faces a Faster, Uglier Version of the Internet**\
 `Politicians have long faced racist and sexist attacks online. But Ms. Harris is being attacked on more platforms, with new technologies and in front of bigger audiences than Barack Obama and Hillary Clinton were.`\
 https://nytimes.com/2024/07/30/technology/kamala-harris-toxic-internet-politics.html
