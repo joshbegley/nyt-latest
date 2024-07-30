@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘I Make No Apologies’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/07/30/style/tiny-modern-love-stories-i-make-no-apologies.html
+
 **Chelsea to appoint Delroy Ebanks as new academy recruitment chief**\
 `Chelsea are set to appoint Newcastle United scout Delroy Ebanks as their head of academy recruitment as an overhaul of the youth structure at Stamford Bridge approaches completion.`\
 https://nytimes.com/athletic/5668259/2024/07/30/chelsea-delroy-ebanks-newcastle/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/30/dining/five-weeknight-tomato-dishes.html
 **How to Optimize Your Workout to Boost Your Mood**\
 `Physical activity can brighten your outlook and calm your nerves — if you do it strategically.`\
 https://nytimes.com/2024/07/30/well/move/exercise-boost-mood.html
-
-**How the Kids Online Safety Act Was Dragged Into a Political War**\
-`The Senate was set to pass the Kids Online Safety Act on Tuesday, but the legislation faces an uphill battle in the House because of censorship concerns.`\
-https://nytimes.com/2024/07/30/technology/kosa-child-online-safety.html
 
