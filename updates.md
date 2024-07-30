@@ -1,3 +1,7 @@
+**Rangers sign Ryan Lindgren to one-year contract, avoiding arbitration**\
+`The New York Rangers signed restricted free agent Ryan Lindgren to a one-year deal for $4.`\
+https://nytimes.com/athletic/5669175/2024/07/30/ny-rangers-ryan-lindgren-contract/
+
 **MLB Trade Grades: Baltimore gives up a lot for Trevor Rogers — was it worth it?**\
 `With left-handed starters in short supply, the Orioles made a move for Trevor Rogers and their return headed back to Miami was notable. `\
 https://nytimes.com/athletic/5669215/2024/07/30/mlb-trade-grades-trevor-rogers-orioles-marlins/
