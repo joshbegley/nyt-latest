@@ -1,3 +1,7 @@
+**Braves focused on trading for hitter after Reynaldo López elbow exam shows no damage**\
+`Manager Brian Snitker indicated there are no plans to put López on the injured list: "Everything came back good."`\
+https://nytimes.com/athletic/5667330/2024/07/29/braves-trade-deadline-reynaldo-lopez-2/
+
 **Seattle’s ‘Belltown Hellcat’ Is Arrested and Barred From Instagram**\
 `After months of roaring around the city in a souped-up Dodge Charger, drawing furious complaints and unpaid fines, Miles Hudson was led out of court on Monday in handcuffs.`\
 https://nytimes.com/2024/07/29/us/seattle-belltown-hellcat-jail.html
