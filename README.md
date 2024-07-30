@@ -1,3 +1,11 @@
+**MLB trade deadline roundup: All the trades from Monday**\
+`Here's everything you need to know about who switched teams on Monday. `\
+https://nytimes.com/athletic/5666082/2024/07/29/mlb-trade-deadline-roundup-monday/
+
+**White Sox lose 15th game in a row**\
+`Despite holding a five-run lead heading into the eighth, the White Sox extended their losing streak with an 8-5 defeat by the Royals.`\
+https://nytimes.com/athletic/5667074/2024/07/29/white-sox-franchise-loss-record/
+
 **MLB Trade Grades: Brewers make head-scratcher in Frankie Montas deal with Reds**\
 `The Brewers paid to acquire a starting pitcher in Frankie Montas. They may have given up a better one in Jakob Junis. `\
 https://nytimes.com/athletic/5667672/2024/07/29/mlb-trade-grades-frankie-montas-brewers-reds/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5667549/2024/07/29/mlb-trade-grades-amed-rosario-do
 **Red Sox, Pirates both take on risk with big upside in Nick Yorke, Quinn Priester swap**\
 `Both Boston and Pittsburgh were dealing from areas of strength in a rare deal of young players who could both take off with their new clubs.`\
 https://nytimes.com/athletic/5667544/2024/07/29/red-sox-pirates-quinn-priester-nick-york-trade-analysis/
-
-**William Calley, Convicted of Mass Murder in My Lai Massacre, Dies at 80**\
-`Hundreds of Vietnamese civilians died at the hands of American soldiers, but Lieutenant Calley was the only one found guilty.`\
-https://nytimes.com/2024/07/29/us/william-calley-dead.html
-
-**MLB Trade Grades: Astros gain stability but pay high price for Yusei Kikuchi pickup**\
-`For a few months of Yusei Kikuchi, the Astros may have given up three likely major leaguers.`\
-https://nytimes.com/athletic/5667471/2024/07/29/mlb-trade-grades-yusei-kikuchi-blue-jays-astros/
 
