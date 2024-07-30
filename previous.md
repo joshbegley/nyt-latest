@@ -1,3 +1,15 @@
+**MLB trade deadline takeaways 2024: Ranking the winners, losers and snoozers**\
+`The trade deadline went well for the Orioles, Tigers, Dodgers and Marlins. But contenders like the Guardians and Astros could have done more`\
+https://nytimes.com/athletic/5670253/2024/07/30/mlb-trade-deadline-takeaways-2024-winners-losers-snoozers/
+
+**Harris, Rallying Thousands in Georgia, Challenges Trump to ‘Say It to My Face’**\
+`Speaking to the campaign’s largest crowd to date, Kamala Harris acknowledged the realities of the race, but vowed to contest and win a state Democrats had begun to fear was off the map.`\
+https://nytimes.com/2024/07/30/us/politics/kamala-harris-atlanta-rally-trump.html
+
+**The Guardians made sensible trade deadline moves, but they're taking big pitching risks**\
+`In trading for Alex Cobb, Cleveland acquired another pitcher they hope can return from injury after not pitching in the majors all season.`\
+https://nytimes.com/athletic/5667058/2024/07/30/guardians-trade-deadline-moves-pitching-risks/
+
 **The Beirut suburb that Israel targeted has long seen conflict.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/07/30/world/israel-gaza-war-lebanon-hezbollah/the-beirut-suburb-that-israel-targeted-has-long-seen-conflict
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5670167/2024/07/30/mlb-trade-grades-eloy-jimenez-or
 **49ers training camp: Deommodore Lenoir's secondary strikes back vs. Brock Purdy**\
 `A hot start from Purdy featured two long touchdowns, but Lenoir and the defense notched the last laugh Tuesday.`\
 https://nytimes.com/athletic/5669565/2024/07/30/49ers-training-camp-deommodore-lenoir-brock-purdy/
-
-**Marseille submit new Eddie Nketiah bid worth close to €20m**\
-`Marseille have stepped up their efforts to sign Eddie Nketiah from Arsenal after submitting an improved proposal for the striker on Tuesday.`\
-https://nytimes.com/athletic/5670214/2024/07/30/eddie-nketiah-marseille-arsenal/
-
-**MLB Trade Grades: In Jack Flaherty, Dodgers get their impact arm**\
-`Once again, Los Angeles made the deadline's biggest splash in the starting pitching market at the last minute. `\
-https://nytimes.com/athletic/5670102/2024/07/30/mlb-trade-grades-dodgers-tigers-jack-flaherty/
-
-**Man Charged in Fatal Shooting of 13-Year-Old Boy in Brooklyn**\
-`The man, Sheik Koureichi, was accused of aiding in the killing of Troy Gill, who was shot in February while walking home in Crown Heights after a basketball game.`\
-https://nytimes.com/2024/07/30/nyregion/brooklyn-shooting-troy-gill.html
 
