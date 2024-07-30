@@ -1,3 +1,7 @@
+**105 is college football's new key roster number. What will it change?**\
+`The new system allows schools flexibility to decide how many scholarships within the roster limit they want to give out.`\
+https://nytimes.com/athletic/5668459/2024/07/30/ncaa-roster-caps-house-settlement-scholarships/
+
 **How YouTube Took Over Our Television Screens**\
 `The platform first known for viral videos now attracts more viewers on TVs than Netflix, Disney+ or Amazon Prime Video.`\
 https://nytimes.com/2024/07/30/technology/youtube-streaming-tv.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/30/dining/bar-contra-nyc.html
 **After Days Lost at Sea, They Needed a Pastrami Sandwich**\
 `A pair of scuba divers were dramatically rescued from the Gulf of Mexico. They knew what their first stop after the ordeal would be.`\
 https://nytimes.com/2024/07/30/dining/kenny-ziggys-deli-lost-at-sea.html
-
-**Is Decaffeinated Coffee Bad for You?**\
-`Some worry that a chemical used to strip caffeine from coffee beans can increase the risk of cancer. Experts explain if you should be concerned.`\
-https://nytimes.com/2024/07/30/well/decaf-coffee-chemicals-safety.html
 
