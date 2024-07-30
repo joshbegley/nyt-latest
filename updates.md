@@ -1,3 +1,7 @@
+**49ers training camp: Deommodore Lenoir's secondary strikes back vs. Brock Purdy**\
+`A hot start from Purdy featured two long touchdowns, but Lenoir and the defense notched the last laugh Tuesday.`\
+https://nytimes.com/athletic/5669565/2024/07/30/49ers-training-camp-deommodore-lenoir-brock-purdy/
+
 **49ers training camp: Deommodore Lenoir's secondary struck back vs. Brock Purdy**\
 `A hot start from Purdy featured two long touchdowns, but Lenoir and the defense notched the last laugh Tuesday.`\
 https://nytimes.com/athletic/5669565/2024/07/30/49ers-training-camp-deommodore-lenoir-brock-purdy/
