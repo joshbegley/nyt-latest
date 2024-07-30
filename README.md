@@ -1,3 +1,7 @@
+**MLB trade deadline takeaways 2024: Ranking the winners, losers and snoozers**\
+`The trade deadline went well for the Orioles, Tigers, Dodgers and Marlins. But contenders like the Guardians and Astros could have done more`\
+https://nytimes.com/athletic/5670253/2024/07/30/mlb-trade-deadline-takeaways-2024-winners-losers-snoozers/
+
 **Harris, Rallying Thousands in Georgia, Challenges Trump to ‘Say It to My Face’**\
 `Speaking to the campaign’s largest crowd to date, Kamala Harris acknowledged the realities of the race, but vowed to contest and win a state Democrats had begun to fear was off the map.`\
 https://nytimes.com/2024/07/30/us/politics/kamala-harris-atlanta-rally-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5670167/2024/07/30/mlb-trade-grades-eloy-jimenez-or
 **49ers training camp: Deommodore Lenoir's secondary strikes back vs. Brock Purdy**\
 `A hot start from Purdy featured two long touchdowns, but Lenoir and the defense notched the last laugh Tuesday.`\
 https://nytimes.com/athletic/5669565/2024/07/30/49ers-training-camp-deommodore-lenoir-brock-purdy/
-
-**Marseille submit new Eddie Nketiah bid worth close to €20m**\
-`Marseille have stepped up their efforts to sign Eddie Nketiah from Arsenal after submitting an improved proposal for the striker on Tuesday.`\
-https://nytimes.com/athletic/5670214/2024/07/30/eddie-nketiah-marseille-arsenal/
 
