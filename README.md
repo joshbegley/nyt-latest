@@ -1,3 +1,15 @@
+**U.S. women's rugby wins bronze on last-second try**\
+`It was the sweetest of turnarounds for the American women, how had lost a tough semifinal New Zealand in the afternoon.`\
+https://nytimes.com/athletic/5669076/2024/07/30/olympics-rugby-womens-usa-bronze-medal/
+
+**Kamala Harris Is Dressing to Be President**\
+`With very little time to prepare for the campaign trail, the vice president is sticking to her suits — a political move of its own.`\
+https://nytimes.com/2024/07/30/style/kamala-harris-presidential-style.html
+
+**Red Sox acquire reliever Lucas Sims from Reds for prospect**\
+`The Red Sox's bullpen has been hit hard by injuries, adds a former first round pick to the mix.`\
+https://nytimes.com/athletic/5669106/2024/07/30/lucas-sims-red-sox-reds-trade/
+
 **Ackman Scales Back Multibillion-Dollar I.P.O.**\
 `An investment fund from William Ackman aims to raise around $2 billion, according to a regulatory filing, a fraction of what was originally envisioned.`\
 https://nytimes.com/2024/07/30/business/bill-ackman-pershing-square-ipo.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/30/us/politics/harris-trump-democrats-georgia.html
 **Lara Trump Compares Harris to a Fashion Designer’s Faux ‘Trash Bag’**\
 `It was the latest in a series of vicious personal attacks Republicans have lobbed at the vice president since Democrats coalesced around her as their presidential nominee.`\
 https://nytimes.com/2024/07/30/us/politics/lara-trump-kamala-harris-trash-bag.html
-
-**What Does It Mean to Slice Steak Against the Grain?**\
-`It’s arguably the most important part of enjoying steak, but it can be hard to do if you don’t know where the grain is.`\
-https://nytimes.com/2024/07/30/dining/how-to-cut-steak-against-the-grain.html
-
-**Creator of ‘Baby Reindeer’ Calls Show ‘Emotionally True’ but ‘Fictionalized’**\
-`Richard Gadd, the show’s creator, said in a court filing that Fiona Harvey, who is suing Netflix for defamation, harassed him in real life but that the show is a dramatic retelling.`\
-https://nytimes.com/2024/07/30/arts/television/richard-gadd-baby-reindeer-lawsuit.html
-
-**Trump vs. ‘America’s Border Czar’**\
-`Republicans’ first anti-Harris advertisement is about as subtle as Trump.`\
-https://nytimes.com/2024/07/22/opinion/kamala-harris-immigration-trump.html
 
