@@ -1,3 +1,7 @@
+**How Victor Wembanyama helped (big) France survive a scare against (small) Japan**\
+`The Japanese lost their best player, Lakers forward Rui Hachimura, in the fourth but didn't give up the fight.`\
+https://nytimes.com/athletic/5669180/2024/07/30/france-japan-basketball-result-olympics-victor-wembanyama/
+
 **Eno's take on Trevor Rogers trade: Orioles gain innings but fastball velocity is worrisome**\
 `Rogers' fastball is down about 2 1/2 mph from his heyday. Will Baltimore use him as a back-end starter or use him out of the bullpen?`\
 https://nytimes.com/athletic/5669194/2024/07/30/trevor-rogers-trade-orioles-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000009600660/india-landslides-kerala.htm
 **MLB Trade Grades: Mark Leiter Jr. gives Yankees bullpen a new look at reasonable cost**\
 `The Yankees got a reliever under control through 2026, and didn't give up impact prospects. In the current relief market, that's a win. `\
 https://nytimes.com/athletic/5669146/2024/07/30/mlb-trade-grades-mark-leiter-cubs-yankees/
-
-**Chelsea squad 'together' after Fernandez apology for racist chant - Maresca**\
-`Enzo Maresca insists the bond between Chelsea players is back to normal after Enzo Fernandez issued a personal apology to the squad on Monday for singing a racist song on international duty with Argentina.`\
-https://nytimes.com/athletic/5669099/2024/07/30/enzo-fernandez-chelsea-enzo-maresca/
 
