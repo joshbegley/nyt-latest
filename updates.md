@@ -1,3 +1,7 @@
+**Explaining the tennis rule that helped to end Coco Gauff's Olympics run**\
+`Facing break point, a disputed umpiring decision changed the trajectory of the US Open champion's Olympic campaign`\
+https://nytimes.com/athletic/5668359/2024/07/30/coco-gauff-olympics-tennis-umpire-call-rule/
+
 **Chelsea to appoint Delroy Ebanks as new academy recruitment chief**\
 `Chelsea are set to appoint Newcastle United scout Delroy Ebanks as their head of academy recruitment as an overhaul of the youth structure at Stamford Bridge approaches completion.`\
 https://nytimes.com/athletic/5668259/2024/07/30/chelsea-delroy-ebanks-newcastle/
