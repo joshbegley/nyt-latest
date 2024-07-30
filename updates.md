@@ -1,3 +1,19 @@
+**Brock Purdy was ready for Tom Brady; now he's ready to fulfill his 49ers destiny**\
+`Purdy on the future: "I can't let off the gas pedal just thinking ... I'm possibly going to make money down the road if this all goes well."`\
+https://nytimes.com/athletic/5667198/2024/07/30/brock-purdy-tom-brady-49ers/
+
+**Sex Harassment Suit Is Fourth This Year for a Top Adams Adviser**\
+`The latest allegations against Timothy Pearson, a confidant of Mayor Eric Adams, were made by a high-ranking official in the New York Police Department.`\
+https://nytimes.com/2024/07/30/nyregion/nypd-pearson-adams-lawsuit.html
+
+**Books by Rachel Kushner and Richard Powers Are Among Booker Prize Nominees**\
+`There are six American novels in the running for the prestigious British literary award, but only two by U.K. authors.`\
+https://nytimes.com/2024/07/30/books/booker-prize-2024-longlist.html
+
+**Ten players who must step up in Kalen DeBoer's first Alabama camp**\
+`With Kalen DeBoer's first Alabama training camp fast approaching, who among the Crimson Tide need to step up in 2024?`\
+https://nytimes.com/athletic/5667904/2024/07/30/alabama-crimson-tide-camp-preview/
+
 **Ukraine Is Conscripting Thousands More Troops. But Are They Ready?**\
 `Large numbers of recruits will arrive at the front in the coming weeks, soldiers and military analysts said, but some are poorly trained or out of shape.`\
 https://nytimes.com/2024/07/30/world/europe/ukraine-war-troops-russia-mobilization.html
