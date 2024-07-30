@@ -1,3 +1,7 @@
+**‘I Am So Sorry’: Meeting the Man I Put on Death Row**\
+`“I regret deeply that we followed the easiest path.”`\
+https://nytimes.com/video/opinion/100000009574772/deathy-penalty-texas.html
+
 **Steve Kerr and Team USA's next Olympic task: It's time to get Stephen Curry going**\
 `With South Sudan up next for Team USA, now it's time for Steve Kerr to get his beloved Golden State Warriors co-worker, Steph Curry, going.`\
 https://nytimes.com/athletic/5666025/2024/07/30/stephen-curry-team-usa-steve-kerr-basketball-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5665438/2024/07/30/manchester-united-transfer-lates
 **Amanda Staveley exclusive: Leaving Newcastle, living with Huntington's and what comes next**\
 `In her first interview since leaving St James' Park, George Caulkin hears why Staveley believes her exit is 'painful' but necessary`\
 https://nytimes.com/athletic/5635448/2024/07/30/amanda-staveley-newcastle-interview/
-
-**Staveley open to investing in new club after Newcastle exit**\
-`Amanda Staveley says she is open to investing in another football club following her exit from Newcastle United.`\
-https://nytimes.com/athletic/5665446/2024/07/30/amanda-staveley-tottenham/
 
