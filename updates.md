@@ -1,3 +1,7 @@
+**Ackman Scales Back Multibillion-Dollar I.P.O.**\
+`An investment fund from William Ackman aims to raise around $2 billion, according to a regulatory filing, a fraction of what was originally envisioned.`\
+https://nytimes.com/2024/07/30/business/bill-ackman-pershing-square-ipo.html
+
 **“What I Saw Made Me Ashamed,” Says Secret Service Acting Director**\
 `Ronald L. Rowe Jr., acting director of the U.S. Secret Service, pointed to problems with communications between law enforcement agencies and the Secret Service as the root cause of the failure to protect former President Donald Trump during the shooting on July 13.`\
 https://nytimes.com/video/us/politics/100000009600408/senate-judiciary-committee-trump-assassination-attempt.html
