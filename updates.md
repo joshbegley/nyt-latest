@@ -1,3 +1,11 @@
+**Giants add outfielder Mark Canha in trade with Tigers**\
+`The San Francisco Giants are set to acquire outfielder Mark Canha from the Detroit Tigers for minor league right-hander Eric Silva, a league source told The Athletic on Tuesday.`\
+https://nytimes.com/athletic/5670071/2024/07/30/sf-giants-tigers-mark-canha-trade/
+
+**Eagles training camp: Rookie Quinyon Mitchell's brimming competitiveness impresses**\
+`The cornerback has gotten the attention of star receiver A.J. Brown.`\
+https://nytimes.com/athletic/5668382/2024/07/30/philadelphia-eagles-training-camp-quinyon-mitchell/
+
 **MLB Trade Grades: Bryan De La Cruz brings Pirates power they badly need**\
 `De La Cruz strikes out a lot, doesn’t walk much, and gets on base less than 30 percent of the time. But beggars can’t be choosers.`\
 https://nytimes.com/athletic/5669969/2024/07/30/mlb-trade-grades-bryan-de-la-cruz-pirates-marlins/
