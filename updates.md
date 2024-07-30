@@ -1,3 +1,7 @@
+**Dissident Group Wins Amazon Union Leadership Vote**\
+`The Amazon Labor Union has been divided over strategy and governance issues after winning a representation vote at a Staten Island warehouse in 2022.`\
+https://nytimes.com/2024/07/30/business/economy/amazon-labor-union-election.html
+
 **Argentina to play France in Olympic men's football quarter-finals**\
 `Two-time gold medalists Argentina will play hosts France in the quarter-finals of the Olympic men&#8217;s football at Paris 2024.`\
 https://nytimes.com/athletic/5669443/2024/07/30/argentina-france-olympic-football-quarterfinals/

@@ -1,3 +1,19 @@
+**MLB Trade Grade: Can Alex Cobb return to form with the Guardians?**\
+`Alex Cobb's health has been an issue this season, but the Guardians are hoping he can rediscover his form in time for the playoffs.`\
+https://nytimes.com/athletic/5669489/2024/07/30/mlb-trade-grade-alex-cobb-giants-guardians/
+
+**Without Samson Ebukam, Colts need Laiatu Latu to be a force right away. He looks up to the challenge**\
+`On the first day of padded practice, the 2024 first-round pick looked like the star the Colts drafted him to be. `\
+https://nytimes.com/athletic/5669463/2024/07/30/indianapolis-colts-laiatu-latu-training-camp/
+
+**Mets trade for A's starter Paul Blackburn, bolstering an ailing rotation**\
+`The New York Mets supplemented their rotation by acquiring right-handed starter Paul Blackburn in a trade with the Oakland Athletics, a league source confirmed to The Athletic.`\
+https://nytimes.com/athletic/5669624/2024/07/30/mets-trade-for-as-starter-paul-blackburn-bolstering-an-ailing-rotation/
+
+**Argentina to play France in Olympic men's football quarter-finals**\
+`Two-time gold medalists Argentina will play hosts France in the quarter-finals of the Olympic men&#8217;s football at Paris 2024.`\
+https://nytimes.com/athletic/5669443/2024/07/30/argentina-france-olympic-football-quarterfinals/
+
 **Mariners set to acquire righty JT Chargois from Marlins: source**\
 `The Seattle Mariners on Tuesday agreed to acquire right-handed reliever JT Chargois from the Miami Marlins in exchange for minor league right-hander Will Schomberg, league sources told The Athletic.`\
 https://nytimes.com/athletic/5669599/2024/07/30/mariners-marlins-jt-chargois-trade/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/07/30/us/casey-goodson-franklin-county-settlement.html
 **Panthers stock report: Who's up, down and holding steady after first week?**\
 `Second-year WR Jonathan Mingo off to good start and LT Ikem Ekwonu is making improvement after a difficult second season.`\
 https://nytimes.com/athletic/5669345/2024/07/30/carolina-panthers-stock-report-training-camp/
-
-**Norah O’Donnell to Step Down as Anchor of ‘CBS Evening News’**\
-`Ms. O’Donnell told colleagues that she had signed “a long-term commitment” to CBS News that will involve a new role that will include “big interviews.”`\
-https://nytimes.com/2024/07/30/technology/norah-odonnell-cbs-evening-news.html
-
-**Flames sign G Wolf to 2-year, $850,000 AAV deal**\
-`Wolf is expected to become more of an NHL regular next season after the Flames traded Jacob Markstrom.`\
-https://nytimes.com/athletic/5669340/2024/07/30/flames-dustin-wolf-contract/
-
-**'Instinct is no' for Jets' Aaron Rodgers to play in preseason, Robert Saleh says**\
-`Rodgers is recovering from a torn Achilles tendon that ended his first season with the Jets after just four snaps.`\
-https://nytimes.com/athletic/5669474/2024/07/30/jets-aaron-rodgers-preseason-games/
-
-**Dissident Group Wins Amazon Union Leadership Vote**\
-`The Amazon Labor Union has been divided over strategy and governance issues after winning a representation vote at a Staten Island warehouse in 2022.`\
-https://nytimes.com/2024/07/30/business/economy/amazon-labor-union-election.html
 
