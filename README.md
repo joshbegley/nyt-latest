@@ -1,3 +1,7 @@
+**NFL stadium guides: Share your best beer, food and tailgating options for all 32 teams**\
+`We're looking for recommendations from the experts — fans who attend NFL games — about the game day experience across the league.`\
+https://nytimes.com/athletic/5666098/2024/07/30/nfl-stadium-guides-fan-survey/
+
 **K-State's speedy Avery Johnson wants to prove he can also beat you with his arm**\
 `Kansas State is ready for the Avery Johnson show, and Johnson is committed to shining not just with his feet but his arm. `\
 https://nytimes.com/athletic/5668522/2024/07/30/avery-johnson-kansas-state-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5668453/2024/07/30/ben-brereton-diaz-southampton-tr
 **‘Is Friendship Becoming Obsolete?’: The Week 6 Winner of Our Summer Reading Contest**\
 `Alex Cox, 16, writes about the importance of human connection, especially for older people, in the age of artificial intelligence.`\
 https://nytimes.com/2024/07/30/learning/is-friendship-becoming-obsolete-the-week-6-winner-of-our-summer-reading-contest.html
-
-**Hong Kong Taunts Italy With Pineapple Pizza After Olympics Fencing Win**\
-`After a fencer from Hong Kong beat an Italian for a gold medal, Pizza Hut’s offer of free pineapple toppings in Hong Kong was the city’s second jab at Italy.`\
-https://nytimes.com/2024/07/30/world/olympics/hong-kong-italy-fencing-pineapple-pizza.html
 
