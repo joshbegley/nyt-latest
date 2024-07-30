@@ -1,3 +1,7 @@
+**Inside Silicon Valley’s Political Rift**\
+`The election has pit former colleagues and sometime allies against each other, as the tech industry’s libertarian wing puts its money and influence to work.`\
+https://nytimes.com/2024/07/30/business/dealbook/silicon-valley-politics.html
+
 **'We want to continue to build': 1-on-1 with Abbotsford Canucks coach Manny Malhotra**\
 `Last week, The Athletic caught up with Malhotra to discuss putting his stamp on the team, Henrik and Daniel Sedin and more.`\
 https://nytimes.com/athletic/5666611/2024/07/30/abbotsford-canucks-coach-manny-malhotra/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5667845/2024/07/30/mlb-trade-deadline-day-questions
 **Southport Stabbing: What We Know About the U.K. Knife Attack and Suspect**\
 `A third child has died and five more are in critical condition after a “ferocious” attack at a Taylor Swift-themed dance class on Monday. “These were just little kids,” Ms. Swift said in a statement.`\
 https://nytimes.com/2024/07/30/world/europe/southport-stabbing-uk-suspect.html
-
-**Team USA has ‘appropriate fear’ of rematch with South Sudan**\
-`PARIS – Team USA may be favored by about 30 points to beat South Sudan on Wednesday at the Olympics, but is nevertheless leery of an upset.`\
-https://nytimes.com/athletic/5668242/2024/07/30/usa-basketball-south-sudan-olympics/
 
