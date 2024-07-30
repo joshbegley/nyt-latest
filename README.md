@@ -1,3 +1,7 @@
+**Argentina to play France in Olympic men's football quarter-finals**\
+`Two-time gold medalists Argentina will play hosts France in the quarter-finals of the Olympic men&#8217;s football at Paris 2024.`\
+https://nytimes.com/athletic/5669443/2024/07/30/argentina-france-olympic-football-quarterfinals/
+
 **Mariners set to acquire righty JT Chargois from Marlins: source**\
 `The Seattle Mariners on Tuesday agreed to acquire right-handed reliever JT Chargois from the Miami Marlins in exchange for minor league right-hander Will Schomberg, league sources told The Athletic.`\
 https://nytimes.com/athletic/5669599/2024/07/30/mariners-marlins-jt-chargois-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5669340/2024/07/30/flames-dustin-wolf-contract/
 **'Instinct is no' for Jets' Aaron Rodgers to play in preseason, Robert Saleh says**\
 `Rodgers is recovering from a torn Achilles tendon that ended his first season with the Jets after just four snaps.`\
 https://nytimes.com/athletic/5669474/2024/07/30/jets-aaron-rodgers-preseason-games/
-
-**Dissident Group Wins Amazon Union Leadership Vote**\
-`The Amazon Labor Union has been divided over strategy and governance issues after winning a representation vote at a Staten Island warehouse in 2022.`\
-https://nytimes.com/2024/07/30/business/economy/amazon-labor-union-election.html
 
