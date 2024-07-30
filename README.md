@@ -1,3 +1,11 @@
+**This Is What Happens When Tigers Try to Sneak Up on Small Bears**\
+`Videos in India show that sloth bears seem unaware of being stalked by the ferocious felines. When the tigers try to strike, the bears often get the better of them.`\
+https://nytimes.com/2024/07/30/science/sloth-bears-tigers-india.html
+
+**Five Weeknight Tomato Dishes**\
+`Put summer’s crown jewel to work in a simple meatball pan sauce, a luxurious tangle of garlicky pasta or a beloved dumpling salad.`\
+https://nytimes.com/2024/07/30/dining/five-weeknight-tomato-dishes.html
+
 **How to Optimize Your Workout to Boost Your Mood**\
 `Physical activity can brighten your outlook and calm your nerves — if you do it strategically.`\
 https://nytimes.com/2024/07/30/well/move/exercise-boost-mood.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5668433/2024/07/30/olympic-egyptian-fencer-pregnant
 **NFL stadium guides: Share your best beer, food and tailgating options for all 32 teams**\
 `We're looking for recommendations from the experts — fans who attend NFL games — about the game day experience across the league.`\
 https://nytimes.com/athletic/5666098/2024/07/30/nfl-stadium-guides-fan-survey/
-
-**K-State's speedy Avery Johnson wants to prove he can also beat you with his arm**\
-`Kansas State is ready for the Avery Johnson show, and Johnson is committed to shining not just with his feet but also with his arm. `\
-https://nytimes.com/athletic/5668522/2024/07/30/avery-johnson-kansas-state-football/
-
-**Scoop City: Differing offseason approaches in Detroit and Dallas**\
-`A look at the approaches taken by Detroit and Dallas this offseason, as well as the pass rush groups across the NFL`\
-https://nytimes.com/athletic/5668545/2024/07/30/cowboys-lions-offseason-scoop-city/
 
