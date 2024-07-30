@@ -1,3 +1,23 @@
+**“What I Saw Made Me Ashamed,” Says Secret Service Acting Director**\
+`Ronald L. Rowe Jr., acting director of the U.S. Secret Service, pointed to problems with communications between law enforcement agencies and the Secret Service as the root cause of the failure to protect former President Donald Trump during the shooting on July 13.`\
+https://nytimes.com/video/us/politics/100000009600408/senate-judiciary-committee-trump-assassination-attempt.html
+
+**Yankees acquire reliever Mark Leiter Jr. from Cubs**\
+`The Cubs will receive outfield prospect Ben Cowles and relief prospect Jack Neely in return.`\
+https://nytimes.com/athletic/5669057/2024/07/30/yankees-cubs-trade-mark-leiter/
+
+**LAFC sign O'Brien on loan from Nottingham Forest**\
+`LAFC have signed Lewis O&#8217;Brien on loan from Nottingham Forest with an option to make the deal permanent.`\
+https://nytimes.com/athletic/5669046/2024/07/30/lewis-obrien-lafc-nottingham-forest/
+
+**Bears' Caleb Williams won't play vs. Texans in Hall of Fame game**\
+`The Hall of Fame game is less than a week after the first padded practice.`\
+https://nytimes.com/athletic/5668800/2024/07/30/caleb-williams-2024-hall-of-fame-game-bears-texans/
+
+**With Harris, Georgia Democrats Say They See a ‘Fighting Chance’**\
+`Vice President Kamala Harris will rally in the battleground state on Tuesday as crucial parts of the party’s base, particularly Black voters, are re-energized. But excitement still has to be translated into votes.`\
+https://nytimes.com/2024/07/30/us/politics/harris-trump-democrats-georgia.html
+
 **Lara Trump Compares Harris to a Fashion Designer’s Faux ‘Trash Bag’**\
 `It was the latest in a series of vicious personal attacks Republicans have lobbed at the vice president since Democrats coalesced around her as their presidential nominee.`\
 https://nytimes.com/2024/07/30/us/politics/lara-trump-kamala-harris-trash-bag.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/07/22/opinion/kamala-harris-immigration-trump.html
 **After Biden’s Withdrawal, Other Aged Leaders Get Some Serious Side-Eye**\
 `Most of the world’s oldest leaders — in their 80s and even one in his 90s — are in Africa, which happens to have the youngest population of any continent.`\
 https://nytimes.com/2024/07/30/world/africa/biden-biya-world-oldest-leaders.html
-
-**Troyes’ reinstated in Ligue 2 after Bordeaux lose professional status**\
-`Troyes, the French club owned by the City Football Group, have been reinstated into Ligue 2 following Bordeaux&#8217;s administrative relegation.`\
-https://nytimes.com/athletic/5668984/2024/07/30/troyes-cfg-relegation-bordeaux-french-football/
-
-**Israel strikes Beirut, targeting Hezbollah commander it blamed for village assault.**\
-`By Adam Rasgon, Ronen Bergman and Euan Ward`\
-https://nytimes.com/live/2024/07/30/world/israel-gaza-war-lebanon-hezbollah/explosion-erupts-in-beiruts-southern-suburbs-officials-say
-
-**Senate Passes Child Online Safety Bill, Sending It to an Uncertain House Fate**\
-`The legislation would impose stricter privacy rules and safeguards for children on the internet and social media, but concerns about free speech and fierce industry lobbying pose challenges.`\
-https://nytimes.com/2024/07/30/us/politics/senate-child-online-safety-bill-house.html
-
-**Sunisa Lee is the reigning Olympic all-around champion.**\
-`Lee earned the chance to defend her title despite a kidney disease that made it unclear whether she would ever compete again.`\
-https://nytimes.com/live/2024/07/30/world/olympics-gymnastics-simone-biles/sunisa-lee-is-the-reigning-olympic-all-around-champion
-
-**Bournemouth complete Dean Huijsen transfer from Juventus**\
-`Bournemouth have completed the signing of defender Dean Huijsen from Juventus.`\
-https://nytimes.com/athletic/5666233/2024/07/30/dean-huijsen-bournemouth-transfer-juventus/
 
