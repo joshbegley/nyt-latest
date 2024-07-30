@@ -1,3 +1,7 @@
+**Titans' Arden Key facing 6-game suspension for banned substance**\
+`Key, 28, is embarking on his seventh season as a pro and second with the Titans.`\
+https://nytimes.com/athletic/5668913/2024/07/30/titans-arden-key-suspension/
+
 **105 is college football's new key roster number. What will it change?**\
 `The new system allows schools flexibility to decide how many scholarships within the roster limit they want to give out.`\
 https://nytimes.com/athletic/5668459/2024/07/30/ncaa-roster-caps-house-settlement-scholarships/
