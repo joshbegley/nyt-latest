@@ -1,3 +1,7 @@
+**For the Pistons to surprise this season, growth on defense is a must**\
+`Detroit addressed offense this summer. Great. What about the other side of the court?`\
+https://nytimes.com/athletic/5667947/2024/07/30/pistons-defense-bickerstaff-cunningham/
+
 **Inside Silicon Valley’s Political Rift**\
 `The election has pit former colleagues and sometime allies against each other, as the tech industry’s libertarian wing puts its money and influence to work.`\
 https://nytimes.com/2024/07/30/business/dealbook/silicon-valley-politics.html
