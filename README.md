@@ -1,3 +1,7 @@
+**49ers training camp: Deommodore Lenoir's secondary struck back vs. Brock Purdy**\
+`A hot start from Purdy featured two long touchdowns, but Lenoir and the defense notched the last laugh on Tuesday.`\
+https://nytimes.com/athletic/5669565/2024/07/30/49ers-training-camp-deommodore-lenoir-brock-purdy/
+
 **MLB Trade Grades: In Jack Flaherty, Dodgers get their impact arm**\
 `Once again, Los Angeles made the deadline's biggest splash in the starting pitching market at the last minute. `\
 https://nytimes.com/athletic/5670102/2024/07/30/mlb-trade-grades-dodgers-tigers-jack-flaherty/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5669499/2024/07/30/romeo-doubs-jaire-alexander-pack
 **Why 2024 Is So San Francisco**\
 `The city’s leaders are forged in a mix of wealth, diversity and a good bit of political nastiness.`\
 https://nytimes.com/2024/07/30/us/politics/harris-trump-san-francisco-voting-election.html
-
-**Giants add outfielder/first baseman Mark Canha in trade with Tigers**\
-`Right as the buzzer for Tuesday&#8217;s MLB trade deadline rang, the San Francisco Giants acquired from the Detroit Tigers a player very familiar with their organization in outfielder/first baseman Mark Canha.`\
-https://nytimes.com/athletic/5670071/2024/07/30/sf-giants-tigers-mark-canha-trade/
 
