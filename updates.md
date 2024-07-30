@@ -1,3 +1,7 @@
+**Orioles acquire Eloy Jiménez from White Sox, who hang onto Garrett Crochet: Source**\
+`After all the will-they-won’t-they on the White Sox dealing Luis Robert Jr, here’s a fun surprise: it’s Eloy Jiménez who is departing, league sources told The Athletic.`\
+https://nytimes.com/athletic/5669981/2024/07/30/orioles-acquire-eloy-jimenez-from-white-sox-who-hang-onto-garrett-crochet-source/
+
 **Amad keen on extending Man Utd deal after summer talks with Ten Hag**\
 `Amad has said he is “very happy” at Manchester United and would like to stay at the club for the rest of his career.`\
 https://nytimes.com/athletic/5669912/2024/07/30/amad-manchester-united-ten-hag-contract/
