@@ -1,3 +1,11 @@
+**William Calley, Convicted of Mass Murder in My Lai Massacre, Dies at 80**\
+`Hundreds of Vietnamese civilians died at the hands of American soldiers, but Lieutenant Calley was the only one found guilty.`\
+https://nytimes.com/2024/07/29/us/william-calley-dead.html
+
+**Pirates acquire left-hander Jalen Beeks to boost back end of the bullpen**\
+`The Pirates get some much-needed bullpen help from an unlikely source — the Colorado Rockies.`\
+https://nytimes.com/athletic/5667548/2024/07/29/jalen-beeks-pirates-rockies-trade/
+
 **MLB Trade Grades: Astros gain stability but pay high price for Yusei Kikuchi pickup**\
 `For a few months of Yusei Kikuchi, the Astros may have given up three likely major leaguers.`\
 https://nytimes.com/athletic/5667471/2024/07/29/mlb-trade-grades-yusei-kikuchi-blue-jays-astros/

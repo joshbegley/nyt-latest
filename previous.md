@@ -1,3 +1,7 @@
+**William Calley, Convicted of Mass Murder in My Lai Massacre, Dies at 80**\
+`Hundreds of Vietnamese civilians died at the hands of American soldiers, but Lieutenant Calley was the only one found guilty.`\
+https://nytimes.com/2024/07/29/us/william-calley-dead.html
+
 **MLB Trade Grades: Astros gain stability but pay high price for Yusei Kikuchi pickup**\
 `For a few months of Yusei Kikuchi, the Astros may have given up three likely major leaguers.`\
 https://nytimes.com/athletic/5667471/2024/07/29/mlb-trade-grades-yusei-kikuchi-blue-jays-astros/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/5667471/2024/07/29/mlb-trade-grades-yusei-kikuchi-b
 `Notre Dame AD Pete Bevacqua wants to keep the school's annual rivalry game with USC after Lincoln Riley last week pondered its possible end.`\
 https://nytimes.com/athletic/5667319/2024/07/29/notre-dame-ad-wants-to-keep-rivalry-game-with-usc-alive-were-all-in/
 
-**Pirates acquire left-hander Jalen Beeks to boost backend of the bullpen**\
+**Pirates acquire left-hander Jalen Beeks to boost back end of the bullpen**\
 `The Pirates get some much-needed bullpen help from an unlikely source — the Colorado Rockies.`\
 https://nytimes.com/athletic/5667548/2024/07/29/jalen-beeks-pirates-rockies-trade/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5667330/2024/07/29/braves-trade-deadline-reynaldo-l
 **Seattle’s ‘Belltown Hellcat’ Is Arrested and Barred From Instagram**\
 `After months of roaring around the city in a souped-up Dodge Charger, drawing furious complaints and unpaid fines, Miles Hudson was led out of court on Monday in handcuffs.`\
 https://nytimes.com/2024/07/29/us/seattle-belltown-hellcat-jail.html
-
-**MLB Trade Grades: Could Guardians, Nats both have done better in Lane Thomas deal?**\
-`This appears to be a deal that underwhelms for both sides.`\
-https://nytimes.com/athletic/5667372/2024/07/29/mlb-trade-grades-guardians-nationals-lane-thomas/
 
