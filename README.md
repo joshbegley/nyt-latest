@@ -1,7 +1,3 @@
-**Endangered Wild Stallion Is Euthanized After Being Struck by Vehicle**\
-`The horse, a 10-year-old stallion named Bullwinkle, was one of only 200 Banker horses, a breed on the Outer Banks in North Carolina that descended from horses brought over by Spanish explorers.`\
-https://nytimes.com/2024/07/29/us/wild-horse-bullwinkle-outer-banks-euthanized.html
-
 **Endorse Digitally**\
 `Jeffrey Martinovic and Will Nediger host a crossword.`\
 https://nytimes.com/2024/07/29/crosswords/daily-puzzle-2024-07-30.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/07/29/theater/six-characters-review-howze.html
 **Eno's take on Yusei Kikuchi trade: Astros land lefty starter with excellent stuff**\
 `Kikuchi's ERA isn't anything special, but he could be the best starter who changes teams at the deadline. Why? Because he throws gas.`\
 https://nytimes.com/athletic/5667488/2024/07/29/yusei-kikuchi-trade-astros-blue-jays-stuff/
+
+**Lamar Jackson 'feeling wonderful,' says desire to win a Super Bowl burns hotter than ever**\
+`Jackson doesn't "just want to be labeled as MVP here and there. I want to be a champion,” the 27-year-old said. `\
+https://nytimes.com/athletic/5667186/2024/07/29/lamar-jackson-baltimore-ravens-super-bowl/
 
