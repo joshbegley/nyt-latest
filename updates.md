@@ -1,3 +1,7 @@
+**K-State's speedy Avery Johnson wants to prove he can also beat you with his arm**\
+`Kansas State is ready for the Avery Johnson show, and Johnson is committed to shining not just with his feet but his arm. `\
+https://nytimes.com/athletic/5668522/2024/07/30/avery-johnson-kansas-state-football/
+
 **Disney Comes for ‘Deadpool’**\
 `Making fun of schlocky, overwrought superhero movies used to be the Deadpool signature. But with “Deadpool & Wolverine,” and Disney’s push into the Marvel Universe, that thread is lost.`\
 https://nytimes.com/2024/07/30/movies/deadpool-wolverine-disney-marvel.html
