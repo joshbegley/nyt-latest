@@ -1,3 +1,7 @@
+**Cardinals' trade for Erick Fedde and Tommy Pham addresses two pressing needs**\
+`John Mozeliak said the Cardinals might keep adding: "We're still going to be actively calling and kicking things around."`\
+https://nytimes.com/athletic/5667014/2024/07/29/cardinals-mlb-trade-deadline-erick-fedde/
+
 **Red Sox may option Vaughn Grissom after rehab, still seeking righty infield bat**\
 `Grissom has been injured much of the year and may not be at his best — or the Red Sox's best option at second — when his rehab clock is up.`\
 https://nytimes.com/athletic/5667006/2024/07/29/red-sox-vaughn-grissom-infield-needs/
@@ -34,8 +38,4 @@ https://nytimes.com/2024/07/29/world/middleeast/israel-hezbollah-lebanon.html
 **Diamond, Comcast reach deal to end dispute, get 12 MLB teams back on the air**\
 `Effective Aug. 1, Xfinity customers will again be able to watch MLB, NBA and NHL teams via Bally Sports, but will pay a higher price.`\
 https://nytimes.com/athletic/5667092/2024/07/29/diamond-comcast-tv-deal-12-mlb-teams/
-
-**Do You Want This Rat Merch? The Mayor Hopes So.**\
-`A new initiative encourages New Yorkers to join an “elite squad of dedicated anti-rat activists.”`\
-https://nytimes.com/2024/07/29/style/rat-pack-nyc-eric-adams.html
 

@@ -1,3 +1,7 @@
+**Cardinals' trade for Erick Fedde and Tommy Pham addresses two pressing needs**\
+`John Mozeliak said the Cardinals might keep adding: "We're still going to be actively calling and kicking things around."`\
+https://nytimes.com/athletic/5667014/2024/07/29/cardinals-mlb-trade-deadline-erick-fedde/
+
 **Red Sox may option Vaughn Grissom after rehab, still seeking righty infield bat**\
 `Grissom has been injured much of the year and may not be at his best — or the Red Sox's best option at second — when his rehab clock is up.`\
 https://nytimes.com/athletic/5667006/2024/07/29/red-sox-vaughn-grissom-infield-needs/
