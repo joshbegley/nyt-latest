@@ -1,3 +1,11 @@
+**Giannis Antetokounmpo, on verge of Olympic elimination, has no words for the latest loss**\
+`Antetokounmpo put 27 points and 11 boards were herculean, but he's carrying a heavy load for an undermanned Greek team.`\
+https://nytimes.com/athletic/5668405/2024/07/30/giannis-antetokounmpo-olympics-greece/
+
+**France Aligns With Morocco on Western Sahara, Angering Algeria**\
+`President Emmanuel Macron wrote to King Mohammed VI that France approved a plan for the disputed territory’s autonomy under Moroccan sovereignty.`\
+https://nytimes.com/2024/07/30/world/europe/france-morocco-western-sahara.html
+
 **Bangladesh Accuses Tens of Thousands of Crimes in Sweep to Break Protesters**\
 `Charges include vandalism, arson, theft, trespassing and damage to state property. A rights group called it a witch hunt, following an initial crackdown in which more than 200 people were killed.`\
 https://nytimes.com/2024/07/30/world/asia/bangladesh-protests-charges-crime.html
