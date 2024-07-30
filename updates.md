@@ -1,3 +1,15 @@
+**How Authoritarian Governments Rig Elections to Stay in Power**\
+`Nicolás Maduro, was declared the winner of Venezuela’s presidential election despite widespread irregularities. Here are some tools autocrats like Mr. Maduro use to stay in power.`\
+https://nytimes.com/2024/07/30/world/europe/authoritarian-governments-vote-rigging-venezuela-maduro.html
+
+**Who Is Fuad Shukr, Target of the Israeli Strike on Beirut?**\
+`He is also wanted for his role in a 1983 attack in Beirut that killed some 300 American and French soldiers.`\
+https://nytimes.com/2024/07/30/world/middleeast/fuad-shukr-hezbollah-israel-strike.html
+
+**MLB Trade Grades: With Lucas Erceg trade, Royals plan for present and future**\
+`The Royals gave up three decent young players for Erceg, but they will also control him through 2029. `\
+https://nytimes.com/athletic/5669500/2024/07/30/mlb-trade-grades-with-lucas-erceg-trade-royals-plan-for-present-and-future/
+
 **Richard Crawford, Leading Scholar of American Music, Dies at 89**\
 `American Music was a marginal subfield in the 1960s when he began his research as a student, and then as a faculty member, at the University of Michigan.`\
 https://nytimes.com/2024/07/30/arts/music/richard-crawford-dead.html
