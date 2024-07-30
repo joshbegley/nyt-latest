@@ -1,3 +1,19 @@
+**MLB Trade Grades: Bryan De La Cruz brings Pirates power they badly need**\
+`De La Cruz strikes out a lot, doesn’t walk much, and gets on base less than 30 percent of the time. But beggars can’t be choosers.`\
+https://nytimes.com/athletic/5669969/2024/07/30/mlb-trade-grades-bryan-de-la-cruz-pirates-marlins/
+
+**Cards send Dylan Carlson to Rays**\
+`After acquiring Erick Fedde and Tommy Pham, Cardinals’ president of baseball operations John Mozeliak turned his focus to the bullpen.`\
+https://nytimes.com/athletic/5669306/2024/07/30/cardinals-rays-trade-dylan-carlson-shawn-armstrong/
+
+**At 17, She’s Already Conquered Some of the World’s Big Swims**\
+`While attention has been on the Paris Olympics, Maya Merhige, a high school senior, swam from England to France, completing the triple crown in open-water swimming.`\
+https://nytimes.com/2024/07/30/world/english-channel-marathon-swim.html
+
+**Red Sox acquire Luis García from the Angels, add another arm to the bullpen mix**\
+`The Red Sox add another reliever just before the trade deadline passed.`\
+https://nytimes.com/athletic/5670036/2024/07/30/red-sox-acquire-luis-garcia-from-the-angels-add-another-arm-to-the-bullpen-mix/
+
 **Phillies trade for lefty Tanner Banks to boost pitching depth: Sources**\
 `Banks, 32, will likely slot into the middle of the Phillies bullpen as a multi-inning reliever.`\
 https://nytimes.com/athletic/5670001/2024/07/30/tanner-banks-phillies-whitesox-trade/
@@ -14,27 +30,11 @@ https://nytimes.com/athletic/5668120/2024/07/30/kelechi-iheanacho-sevilla-transf
 `Kiner-Falefa has hit well above the league average while playing strong defense all over the infield, and the Blue Jays are cashing in. `\
 https://nytimes.com/athletic/5669122/2024/07/30/mlb-trade-grades-isiah-kiner-falefa-pirates-blue-jays/
 
-**Tigers righty Jack Flaherty traded to Dodgers: Source**\
-`For the second time in two years, right-hander Jack Flaherty is on the move at the trade deadline.`\
-https://nytimes.com/athletic/5666488/2024/07/30/tigers-dodgers-jack-flaherty-trade/
-
 **MLB Trade Grades: JT Chargois makes a return to Seattle to help carry the load**\
 `The Mariners' bullpen has been a problem. Can the veteran reliever's return to Seattle help their cause? `\
 https://nytimes.com/athletic/5669872/2024/07/30/mlb-trade-grades-chargois-mariners-marlins/
 
-**Orioles acquire Eloy Jiménez from White Sox, who hang onto Garrett Crochet: Source**\
-`After all the will-they-won’t-they on the White Sox dealing Luis Robert Jr, here’s a fun surprise: it’s Eloy Jiménez who is departing, league sources told The Athletic.`\
-https://nytimes.com/athletic/5669981/2024/07/30/orioles-acquire-eloy-jimenez-from-white-sox-who-hang-onto-garrett-crochet-source/
-
-**Amad keen on extending Man Utd deal after summer talks with Ten Hag**\
-`Amad has said he is “very happy” at Manchester United and would like to stay at the club for the rest of his career.`\
-https://nytimes.com/athletic/5669912/2024/07/30/amad-manchester-united-ten-hag-contract/
-
-**Are Israel and Hezbollah Headed for a Dangerous Escalation?**\
-`Israel’s attack on Beirut, in response to a deadly strike from Lebanon, could lead to open warfare.`\
-https://nytimes.com/live/2024/07/30/opinion/thepoint/israel-hezbollah-attack-beirut
-
-**Pirates add Bryan De La Cruz, Isiah Kiner-Falefa in multiple deals**\
-`The Pirates added to their offense in two separate trades with Miami and Toronto on Tuesday.`\
-https://nytimes.com/athletic/5669856/2024/07/30/bryan-de-la-cruz-pirates-marlins-trade/
+**Tigers righty Jack Flaherty traded to Dodgers: Source**\
+`For the second time in two years, right-hander Jack Flaherty is on the move at the trade deadline.`\
+https://nytimes.com/athletic/5666488/2024/07/30/tigers-dodgers-jack-flaherty-trade/
 
