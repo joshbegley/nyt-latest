@@ -6,8 +6,8 @@ https://nytimes.com/article/south-china-sea-philippines.html
 `Here are seven things to watch leading up to the trade deadline. Which teams are the most desperate to make a move?`\
 https://nytimes.com/athletic/5667845/2024/07/30/mlb-trade-deadline-day-questions/
 
-**3rd Child Dies After U.K. Knife Attack**\
-`Seven other people are in critical condition after a “ferocious” attack at a Taylor Swift-themed dance class on Monday. “These were just little kids,” Ms. Swift said in a statement.`\
+**Southport Stabbing: What We Know About the U.K. Knife Attack and Suspect**\
+`A third child has died and five more are in critical condition after a “ferocious” attack at a Taylor Swift-themed dance class on Monday. “These were just little kids,” Ms. Swift said in a statement.`\
 https://nytimes.com/2024/07/30/world/europe/southport-stabbing-uk-suspect.html
 
 **Team USA has ‘appropriate fear’ of rematch with South Sudan**\
