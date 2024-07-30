@@ -1,3 +1,23 @@
+**Troyes’ reinstated in Ligue 2 after Bordeaux lose professional status**\
+`Troyes, the French club owned by the City Football Group, have been reinstated into Ligue 2 following Bordeaux&#8217;s administrative relegation.`\
+https://nytimes.com/athletic/5668984/2024/07/30/troyes-cfg-relegation-bordeaux-french-football/
+
+**Israel strikes Beirut, saying it targeted commander of village assault.**\
+`By Euan Ward and Adam Rasgon`\
+https://nytimes.com/live/2024/07/30/world/israel-gaza-war-lebanon-hezbollah/explosion-erupts-in-beiruts-southern-suburbs-officials-say
+
+**Senate Passes Child Online Safety Bill, Sending It to an Uncertain House Fate**\
+`The legislation would impose stricter privacy rules and safeguards for children on the internet and social media, but concerns about free speech and fierce industry lobbying pose challenges.`\
+https://nytimes.com/2024/07/30/us/politics/senate-child-online-safety-bill-house.html
+
+**Sunisa Lee is the reigning Olympic all-around champion.**\
+`Lee earned the chance to defend her title despite a kidney disease that made it unclear whether she would ever compete again.`\
+https://nytimes.com/live/2024/07/30/world/olympics-gymnastics-simone-biles/sunisa-lee-is-the-reigning-olympic-all-around-champion
+
+**Bournemouth complete Dean Huijsen transfer from Juventus**\
+`Bournemouth have completed the signing of defender Dean Huijsen from Juventus.`\
+https://nytimes.com/athletic/5666233/2024/07/30/dean-huijsen-bournemouth-transfer-juventus/
+
 **Acting Head of Secret Service ‘Ashamed’ That Roof at Trump Rally Was Unwatched**\
 `Ronald Rowe Jr. said communications problems between the Secret Service and local law enforcement led to a failure to protect former President Donald Trump during a shooting on July 13.`\
 https://nytimes.com/2024/07/30/us/politics/secret-service-trump-shooting-senate.html
