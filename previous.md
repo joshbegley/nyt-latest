@@ -1,3 +1,11 @@
+**How to Optimize Your Workout to Boost Your Mood**\
+`Physical activity can brighten your outlook and calm your nerves — if you do it strategically.`\
+https://nytimes.com/2024/07/30/well/move/exercise-boost-mood.html
+
+**How the Kids Online Safety Act Was Dragged Into a Political War**\
+`The Senate was set to pass the Kids Online Safety Act on Tuesday, but the legislation faces an uphill battle in the House because of censorship concerns.`\
+https://nytimes.com/2024/07/30/technology/kosa-child-online-safety.html
+
 **Team GB rugby sevens player withdrawn amid investigation into alleged racist message**\
 `A Team GB rugby sevens player was stood down ahead of the final day of competition at the Paris Olympics as the British Olympic Association (BOA) investigates an alleged racist message sent on WhatsApp.`\
 https://nytimes.com/athletic/5668625/2024/07/30/amy-wilson-hardy-olympics-sevens/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5668522/2024/07/30/avery-johnson-kansas-state-footb
 **Scoop City: Differing offseason approaches in Detroit and Dallas**\
 `A look at the approaches taken by Detroit and Dallas this offseason, as well as the pass rush groups across the NFL`\
 https://nytimes.com/athletic/5668545/2024/07/30/cowboys-lions-offseason-scoop-city/
-
-**Where the Padres stand with their pitching needs as trade deadline day dawns**\
-`San Diego spent Monday, the eve of the trade deadline, pursuing both starting pitching and more relief pitching.`\
-https://nytimes.com/athletic/5668472/2024/07/30/padres-pitching-needs-mlb-trade-deadline/
-
-**Giannis Antetokounmpo, on verge of Olympic elimination, has no words for the latest loss**\
-`Antetokounmpo put 27 points and 11 boards were herculean, but he's carrying a heavy load for an undermanned Greek team.`\
-https://nytimes.com/athletic/5668405/2024/07/30/giannis-antetokounmpo-olympics-greece/
 

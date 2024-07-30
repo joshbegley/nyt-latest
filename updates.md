@@ -1,3 +1,11 @@
+**How to Optimize Your Workout to Boost Your Mood**\
+`Physical activity can brighten your outlook and calm your nerves — if you do it strategically.`\
+https://nytimes.com/2024/07/30/well/move/exercise-boost-mood.html
+
+**How the Kids Online Safety Act Was Dragged Into a Political War**\
+`The Senate was set to pass the Kids Online Safety Act on Tuesday, but the legislation faces an uphill battle in the House because of censorship concerns.`\
+https://nytimes.com/2024/07/30/technology/kosa-child-online-safety.html
+
 **Team GB rugby sevens player withdrawn amid investigation into alleged racist message**\
 `A Team GB rugby sevens player was stood down ahead of the final day of competition at the Paris Olympics as the British Olympic Association (BOA) investigates an alleged racist message sent on WhatsApp.`\
 https://nytimes.com/athletic/5668625/2024/07/30/amy-wilson-hardy-olympics-sevens/
