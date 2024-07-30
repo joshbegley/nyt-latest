@@ -1,3 +1,11 @@
+**Hong Kong Taunts Italy With Pineapple Pizza After Olympics Fencing Win**\
+`After a fencer from Hong Kong beat an Italian for a gold medal, Pizza Hut’s offer of free pineapple toppings in Hong Kong was the city’s second jab at Italy.`\
+https://nytimes.com/2024/07/30/world/olympics/hong-kong-italy-fencing-pineapple-pizza.html
+
+**The Stranger in Seattle Gets a New Owner, With Plans for Expansion**\
+`Noisy Creek, a new media company, has bought The Stranger and The Portland Mercury, two of the country’s best known alternative weeklies.`\
+https://nytimes.com/2024/07/30/business/media/the-stranger-seattle-new-owner.html
+
 **England Women announce USWNT, Germany friendlies**\
 `England Women have announced four home friendlies for later this year including games against Germany and the USWNT.`\
 https://nytimes.com/athletic/5668335/2024/07/30/england-uswnt-germany-friendly/
