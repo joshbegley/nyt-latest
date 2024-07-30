@@ -1,3 +1,15 @@
+**Guardians to acquire Alex Cobb from Giants to fortify their rotation: Sources**\
+`The Cleveland Guardians added a veteran presence to their rotation, acquiring right-hander Alex Cobb from the San Francisco Giants for left-handed pitching prospect Jacob Bresnahan and a player to be named later, league sources confirmed to The Athletic.`\
+https://nytimes.com/athletic/5669385/2024/07/30/guardians-sf-giants-alex-cobb-trade/
+
+**Astros acquire reliever Caleb Ferguson in trade with Yankees: Sources**\
+`The Yankees traded reliever Caleb Ferguson to the Astros for international bonus pool money and a minor leaguer, according to sources.`\
+https://nytimes.com/athletic/5669408/2024/07/30/caleb-ferguson-astros-yankees-trade/
+
+**U.S. men's Olympic team heads to quarterfinals for the first time since 2000**\
+`The United States finished the group stage second behind hosts France.`\
+https://nytimes.com/athletic/5669346/2024/07/30/united-states-guinea-olympics-quarterfinals/
+
 **Rangers sign Ryan Lindgren to one-year contract, avoiding arbitration**\
 `The New York Rangers signed restricted free agent Ryan Lindgren to a one-year deal for $4.`\
 https://nytimes.com/athletic/5669175/2024/07/30/ny-rangers-ryan-lindgren-contract/
