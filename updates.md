@@ -1,3 +1,7 @@
+**Ukraine Ramps Up Mobilization, Hoping to Bolster Battlefield Strength**\
+`Large numbers of conscripts will arrive at the front in the coming weeks, soldiers and military analysts said, but some are poorly trained or out of shape.`\
+https://nytimes.com/2024/07/30/world/europe/ukraine-war-troops-russia-mobilization.html
+
 **Southport Stabbing: What We Know About the U.K. Knife Attack and Suspect**\
 `A third child has died and five more are in critical condition after a “ferocious” attack at a Taylor Swift-themed dance class on Monday. “These were just little kids,” Ms. Swift said in a statement.`\
 https://nytimes.com/2024/07/30/world/europe/southport-stabbing-uk-suspect.html

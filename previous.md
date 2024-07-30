@@ -1,3 +1,7 @@
+**Ukraine Ramps Up Mobilization, Hoping to Bolster Battlefield Strength**\
+`Large numbers of conscripts will arrive at the front in the coming weeks, soldiers and military analysts said, but some are poorly trained or out of shape.`\
+https://nytimes.com/2024/07/30/world/europe/ukraine-war-troops-russia-mobilization.html
+
 **Why Are There Fears of War in the South China Sea?**\
 `China claims most of the strategic waterway and is trying to push out neighbors like the Philippines. Any deadly mistake could risk war.`\
 https://nytimes.com/article/south-china-sea-philippines.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/30/world/israel-gaza-war-lebanon-hezbollah
 **Barton pleads not guilty to alleged malicious communications towards Aluko**\
 `Joey Barton will appear before Liverpool Crown Court next month after pleading not guilty to charges of alleged malicious communications online towards Eni Aluko.`\
 https://nytimes.com/athletic/5668131/2024/07/30/joey-barton-trial-aluko/
-
-**Brighton's Gross close to completing Borussia Dortmund move**\
-`Brighton and Hove Albion midfielder Pascal Gross is close to completing a move to Borussia Dortmund.`\
-https://nytimes.com/athletic/5668154/2024/07/30/dortmund-brighton-pascal-gross-transfer/
 
