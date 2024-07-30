@@ -1,3 +1,7 @@
+**Bangladesh Accuses Tens of Thousands of Crimes in Sweep to Break Protesters**\
+`Charges include vandalism, arson, theft, trespassing and damage to state property. A rights group called it a witch hunt, following an initial crackdown in which more than 200 people were killed.`\
+https://nytimes.com/2024/07/30/world/asia/bangladesh-protests-charges-crime.html
+
 **Disney Comes for ‘Deadpool’**\
 `Schlocky, overwrought movies used to be the Deadpool signature. But with “Deadpool & Wolverine,” and Disney’s push into the Marvel Universe, that thread is lost.`\
 https://nytimes.com/2024/07/30/movies/deadpool-wolverine-disney-marvel.html
