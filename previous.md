@@ -3,7 +3,7 @@
 https://nytimes.com/2024/07/30/world/asia/india-landslides-kerala-rain.html
 
 **Giants trade Jorge Soler and Luke Jackson, but larger fire sale not expected**\
-`Though their first move was a "sell", the Giants expect to do a blend of buying and selling ahead of Tuesday's trade deadline.`\
+`Though their first move was a "sell," the Giants expect to do a blend of buying and selling ahead of Tuesday's trade deadline.`\
 https://nytimes.com/athletic/5667928/2024/07/30/sf-giants-jorge-soler-luke-jackson-trade/
 
 **MLB Trade Grades: With Jorge Soler deal, Braves get the gang back together**\

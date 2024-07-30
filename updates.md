@@ -1,4 +1,8 @@
 **Giants trade Jorge Soler and Luke Jackson, but larger fire sale not expected**\
+`Though their first move was a "sell," the Giants expect to do a blend of buying and selling ahead of Tuesday's trade deadline.`\
+https://nytimes.com/athletic/5667928/2024/07/30/sf-giants-jorge-soler-luke-jackson-trade/
+
+**Giants trade Jorge Soler and Luke Jackson, but larger fire sale not expected**\
 `Though their first move was a "sell", the Giants expect to do a blend of buying and selling ahead of Tuesday's trade deadline.`\
 https://nytimes.com/athletic/5667928/2024/07/30/sf-giants-jorge-soler-luke-jackson-trade/
 
