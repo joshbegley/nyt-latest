@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5669099/2024/07/30/enzo-fernandez-chelsea-enzo-mare
 
 **Orioles add to starting rotation, acquire lefty Trevor Rogers from Marlins: Source**\
 `By Kamila Hinkson, Ken Rosenthal and Levi Weaver
-The Baltimore Orioles have acquired left-handed reliever Trevor Rogers from the Miami Marlins, The Athletic’s Ken Rosenthal has confirmed.`\
+The Baltimore Orioles have acquired left-handed starter Trevor Rogers from the Miami Marlins, The Athletic’s Ken Rosenthal has confirmed.`\
 https://nytimes.com/athletic/5669127/2024/07/30/orioles-add-to-rotation-acquire-lefty-trevor-rogers-from-marlins-source/
 
 **Eric Staal retires after 18 NHL seasons**\
