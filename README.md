@@ -1,3 +1,11 @@
+**Amanda Staveley exclusive: Leaving Newcastle, living with Huntington's and what comes next**\
+`In her first interview since leaving St James' Park, George Caulkin hears why Staveley believes her exit is 'painful' but necessary`\
+https://nytimes.com/athletic/5635448/2024/07/30/amanda-staveley-newcastle-interview/
+
+**Staveley open to investing in new club after Newcastle exit**\
+`Amanda Staveley says she is open to investing in another football club following her exit from Newcastle United.`\
+https://nytimes.com/athletic/5665446/2024/07/30/amanda-staveley-tottenham/
+
 **Word of the Day: sluggish**\
 `This word has appeared in 245 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/07/30/learning/word-of-the-day-sluggish.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5667899/2024/07/30/mlb-trade-grades-jorge-soler-bra
 **Quarterback roundtable: The Top 5 overall, SuperFlex pairings, QBs to avoid and more**\
 `The Athletic fantasy football crew weigh in on the quarterback position, sharing their Top 5 rankings, SuperFlex draft strategy and more.`\
 https://nytimes.com/athletic/5666218/2024/07/30/fantasy-football-2024-quarterback-roundtable-superflex-top5/
-
-**Blue Jays' goodbyes to teammates at deadline a reminder of season gone wrong**\
-`The Blue Jays set out this season to win a World Series. Their selloff is a stark reminder of how badly that plan failed.`\
-https://nytimes.com/athletic/5667750/2024/07/30/blue-jays-trade-deadline-selloff/
-
-**'Lopetegui's modern methods are exciting - they suit me and West Ham'**\
-`The West Ham midfielder reflects on his first season at the club, life under Lopetegui and his search for a record-equalling free-kick goal`\
-https://nytimes.com/athletic/5650307/2024/07/30/james-ward-prowse-west-ham-julen-lopetegui/
 
