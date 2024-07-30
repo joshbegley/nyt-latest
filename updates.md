@@ -1,3 +1,15 @@
+**Harris Plans to Campaign Next Week With Her Running Mate**\
+`The draft travel schedule, according to two people briefed on her plans, suggests that Vice President Kamala Harris will name her running mate a little earlier than her team had planned.`\
+https://nytimes.com/2024/07/30/us/politics/kamala-harris-vp-timing.html
+
+**Israel’s Five Wars**\
+`Whatever comes next in Lebanon is a piece in a much larger battle.`\
+https://nytimes.com/2024/07/30/opinion/israel.html
+
+**MLB Trade Grades: Mark Leiter Jr. gives Yankees bullpen a new look at reasonable cost**\
+`The Yankees got a reliever under control through 2026, and didn't give up impact prospects. In the current relief market, that's a win. `\
+https://nytimes.com/athletic/5669146/2024/07/30/mlb-trade-grades-mark-leiter-cubs-yankees/
+
 **Heavy Rain Triggers Deadly Landslides in Southern India**\
 `A major search-and-rescue operation is underway after days of torrential rain caused landslides in Kerala, India.`\
 https://nytimes.com/video/world/asia/100000009600660/india-landslides-kerala.html
