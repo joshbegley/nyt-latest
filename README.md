@@ -1,3 +1,7 @@
+**For the Pistons to surprise this season, growth on defense is a must**\
+`Detroit addressed offense this summer. Great. What about the other side of the court?`\
+https://nytimes.com/athletic/5667947/2024/07/30/pistons-defense-bickerstaff-cunningham/
+
 **Inside Silicon Valley’s Political Rift**\
 `The election has pit former colleagues and sometime allies against each other, as the tech industry’s libertarian wing puts its money and influence to work.`\
 https://nytimes.com/2024/07/30/business/dealbook/silicon-valley-politics.html
@@ -33,8 +37,4 @@ https://nytimes.com/article/south-china-sea-philippines.html
 **Seven things to watch on MLB trade deadline day: Will an ace get dealt?**\
 `Here are seven things to watch leading up to the trade deadline. Which teams are the most desperate to make a move?`\
 https://nytimes.com/athletic/5667845/2024/07/30/mlb-trade-deadline-day-questions/
-
-**Southport Stabbing: What We Know About the U.K. Knife Attack and Suspect**\
-`A third child has died and five more are in critical condition after a “ferocious” attack at a Taylor Swift-themed dance class on Monday. “These were just little kids,” Ms. Swift said in a statement.`\
-https://nytimes.com/2024/07/30/world/europe/southport-stabbing-uk-suspect.html
 
