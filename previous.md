@@ -22,7 +22,7 @@ https://nytimes.com/athletic/5667743/2024/07/29/yankees-trade-deadline-need-ques
 `The Red Sox displayed the intangible fortitude that has been a trademark all season. Will the team get reinforcements before the deadline?`\
 https://nytimes.com/athletic/5667721/2024/07/29/red-sox-rout-mariners-logan-gilbert/
 
-**Cleveland Guardians strike on trade market, Lane Thomas' new teammates are relieved**\
+**Guardians strike on trade market, and Lane Thomas' new teammates are relieved**\
 `“That’s a crazy monkey off the back,” Tanner Bibee said. “I don’t think a lot of people really know how much that clears the mental."`\
 https://nytimes.com/athletic/5667702/2024/07/29/cleveland-guardians-trade-market-lane-thomas/
 
