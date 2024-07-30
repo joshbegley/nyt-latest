@@ -1,3 +1,7 @@
+**MLB Trade Grades: Astros gain stability but pay high price for Yusei Kikuchi pickup**\
+`For a few months of Yusei Kikuchi, the Astros may have given up three likely major leaguers.`\
+https://nytimes.com/athletic/5667471/2024/07/29/mlb-trade-grades-yusei-kikuchi-blue-jays-astros/
+
 **Notre Dame AD 'all in' on continuing rivalry with USC**\
 `Notre Dame AD Pete Bevacqua wants to keep the school's annual rivalry game with USC after Lincoln Riley last week pondered its possible end.`\
 https://nytimes.com/athletic/5667319/2024/07/29/notre-dame-ad-wants-to-keep-rivalry-game-with-usc-alive-were-all-in/
