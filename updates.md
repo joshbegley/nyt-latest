@@ -1,3 +1,11 @@
+**Padres trade everyone they have left for two more relievers, Tanner Scott and Bryan Hoeing**\
+`In two deadline deals, the Padres cleaned out an already thin system to add to their bullpen.`\
+https://nytimes.com/athletic/5670298/2024/07/30/padres-marlins-tanner-scott-trade-analysis/
+
+**Eno's take on Jack Flaherty trade: Dodgers should benefit if righty hits his 'magic number'**\
+`It might sound too simple, but the Dodgers' new starter by way of Detroit has much more success when his fastball hits a certain velocity.`\
+https://nytimes.com/athletic/5670266/2024/07/30/dodgers-jack-flaherty-trade-velocity/
+
 **49ers training camp: Deommodore Lenoir's secondary strikes back vs. Brock Purdy**\
 `A hot start from Purdy featured two long touchdowns, but Lenoir and the defense notched the last laugh Tuesday.`\
 https://nytimes.com/athletic/5669565/2024/07/30/49ers-training-camp-deommodore-lenoir-brock-purdy/

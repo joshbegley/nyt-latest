@@ -1,3 +1,11 @@
+**Padres trade everyone they have left for two more relievers, Tanner Scott and Bryan Hoeing**\
+`In two deadline deals, the Padres cleaned out an already thin system to add to their bullpen.`\
+https://nytimes.com/athletic/5670298/2024/07/30/padres-marlins-tanner-scott-trade-analysis/
+
+**Eno's take on Jack Flaherty trade: Dodgers should benefit if righty hits his 'magic number'**\
+`It might sound too simple, but the Dodgers' new starter by way of Detroit has much more success when his fastball hits a certain velocity.`\
+https://nytimes.com/athletic/5670266/2024/07/30/dodgers-jack-flaherty-trade-velocity/
+
 **MLB Trade Grades: Can Eloy Jiménez find a fresh start — and his old self — in Baltimore?**\
 `Baltimore has decided to roll the dice and spend some money to see if they can get Jiménez right — or at least hot in the postseason.`\
 https://nytimes.com/athletic/5670167/2024/07/30/mlb-trade-grades-eloy-jimenez-orioles/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5669136/2024/07/30/olympics-swimming-pool-depth-wor
 **Raiders training camp: Short-handed offensive line hangs in there as pads come on**\
 `Injuries on the offensive line have made things even harder on the struggling quarterback duo of Aidan O'Connell and Gardner Minshew.`\
 https://nytimes.com/athletic/5669641/2024/07/30/raiders-training-camp-offensive-line-2/
-
-**MLB Trade Grades: With Trevor Richards, the Twins finally enter the trade fray**\
-`Richards is a veteran who will give the Twins some much-needed bullpen depth. How much of an impact will he make?`\
-https://nytimes.com/athletic/5670056/2024/07/30/mlb-trade-grades-twins-blue-jays-richards/
-
-**Steelers training camp: New-look offense bullies defense on Day 1 in pads**\
-`The Steelers have invested heavily up front, and it showed on Tuesday. Meanwhile, Russell Wilson is getting closer to returning to practice.`\
-https://nytimes.com/athletic/5669260/2024/07/30/steelers-training-camp-offensive-line/
 
