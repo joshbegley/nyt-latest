@@ -1,3 +1,15 @@
+**Heat Will Intensify Across the U.S. This Week**\
+`Summer heat will once again engulf much of the country, bringing above-average temperatures, setting daily records and increasing wildfire risk.`\
+https://nytimes.com/2024/07/30/weather/us-heat-forecast.html
+
+**Olympic fencer shares she competed 7 months pregnant**\
+`Hafez entered the Olympics as the 29th-ranked sabre in the world and Egypt's top competitor.`\
+https://nytimes.com/athletic/5668433/2024/07/30/olympic-egyptian-fencer-pregnant/
+
+**NFL stadium guides: Share your best beer, food and tailgating options for all 32 teams**\
+`We're looking for recommendations from the experts — fans who attend NFL games — about the game day experience across the league.`\
+https://nytimes.com/athletic/5666098/2024/07/30/nfl-stadium-guides-fan-survey/
+
 **After Protest Crackdown, Bangladesh Accuses Tens of Thousands of Crimes**\
 `Charges include vandalism, arson, theft, trespassing and damage to state property. A rights group called it a witch hunt, following an initial sweep during which more than 200 people were killed.`\
 https://nytimes.com/2024/07/30/world/asia/bangladesh-protests-charges-crime.html
