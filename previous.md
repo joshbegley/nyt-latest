@@ -1,3 +1,7 @@
+**Seattle’s ‘Belltown Hellcat’ Is Arrested and Barred From Instagram**\
+`After months of roaring around the city in a souped-up Dodge Charger, drawing furious complaints and unpaid fines, Miles Hudson was led out of court on Monday in handcuffs.`\
+https://nytimes.com/2024/07/29/us/seattle-belltown-hellcat-jail.html
+
 **MLB Trade Grades: Could Guardians, Nats both have done better in Lane Thomas deal?**\
 `This appears to be a deal that underwhelms for both sides.`\
 https://nytimes.com/athletic/5667372/2024/07/29/mlb-trade-grades-guardians-nationals-lane-thomas/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5667104/2024/07/29/jack-grealish-england-euros-manc
 **Raiders training camp: OC Luke Getsy remains optimistic despite sluggish offense**\
 `Gardner Minshew and the offense struggled again Monday, but the Raiders coaches see it as just part of the training camp process.`\
 https://nytimes.com/athletic/5667157/2024/07/29/raiders-training-camp-luke-getsy-offense/
-
-**Photos of the California Park Fire**\
-`The fire, which has been burning since last Wednesday, is already one of the largest in the state’s history.`\
-https://nytimes.com/2024/07/29/us/photos-of-the-california-park-fire.html
 

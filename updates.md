@@ -1,3 +1,7 @@
+**Seattle’s ‘Belltown Hellcat’ Is Arrested and Barred From Instagram**\
+`After months of roaring around the city in a souped-up Dodge Charger, drawing furious complaints and unpaid fines, Miles Hudson was led out of court on Monday in handcuffs.`\
+https://nytimes.com/2024/07/29/us/seattle-belltown-hellcat-jail.html
+
 **MLB Trade Grades: Could Guardians, Nats both have done better in Lane Thomas deal?**\
 `This appears to be a deal that underwhelms for both sides.`\
 https://nytimes.com/athletic/5667372/2024/07/29/mlb-trade-grades-guardians-nationals-lane-thomas/
