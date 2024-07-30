@@ -1,3 +1,11 @@
+**Braves trade for Jorge Soler, reuniting with their 2021 World Series MVP**\
+`The Braves are getting the band back together, trading with the San Francisco Giants to bring back slugger Jorge Soler and reliever Luke Jackson, who both were big parts of their 2021 World Series champion team.`\
+https://nytimes.com/athletic/5667826/2024/07/30/braves-giants-jorge-soler-trade/
+
+**Riccardo Calafiori, Arsenal's new defender who got lifts from De Rossi and models his game on Stones**\
+`From the shadow of the Vatican City to the Emirates — via a star turn at Euro 2024 — Arsenal's signing has overcome rejection and adversity`\
+https://nytimes.com/athletic/5650166/2024/07/30/arsenal-calafiori-transfer-profile/
+
 **Greenberg: Did White Sox GM Chris Getz whiff in his first big trade-deadline deal?**\
 `Getz, at the center of a three-team swap, didn't exactly wow people with the Sox's return. Not in a seller's market. Not with so many needs.`\
 https://nytimes.com/athletic/5667568/2024/07/30/chicago-white-sox-trade-deadline-chris-getz/
