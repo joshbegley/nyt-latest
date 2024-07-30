@@ -1,3 +1,7 @@
+**Who Is Shujun Wang, the Queens Man Accused of Spying for China?**\
+`Mr. Wang is on trial this week in Brooklyn federal court. He vigorously disputes the charges against him.`\
+https://nytimes.com/2024/07/30/nyregion/shujun-wang-china-spying.html
+
 **‘I Am So Sorry’: Meeting the Man I Put on Death Row**\
 `“I regret deeply that we followed the easiest path.”`\
 https://nytimes.com/video/opinion/100000009574772/deathy-penalty-texas.html
