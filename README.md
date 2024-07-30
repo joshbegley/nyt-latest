@@ -1,3 +1,11 @@
+**“What I Saw Made Me Ashamed,” Says Secret Service Acting Director**\
+`Ronald L. Rowe Jr., acting director of the U.S. Secret Service, pointed to problems with communications between law enforcement agencies and the Secret Service as the root cause of the failure to protect former President Donald Trump during the shooting on July 13.`\
+https://nytimes.com/video/us/politics/100000009600408/senate-judiciary-committee-trump-assassination-attempt.html
+
+**Yankees acquire reliever Mark Leiter Jr. from Cubs**\
+`The Cubs will receive outfield prospect Ben Cowles and relief prospect Jack Neely in return.`\
+https://nytimes.com/athletic/5669057/2024/07/30/yankees-cubs-trade-mark-leiter/
+
 **LAFC sign O'Brien on loan from Nottingham Forest**\
 `LAFC have signed Lewis O&#8217;Brien on loan from Nottingham Forest with an option to make the deal permanent.`\
 https://nytimes.com/athletic/5669046/2024/07/30/lewis-obrien-lafc-nottingham-forest/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/22/opinion/kamala-harris-immigration-trump.html
 **After Biden’s Withdrawal, Other Aged Leaders Get Some Serious Side-Eye**\
 `Most of the world’s oldest leaders — in their 80s and even one in his 90s — are in Africa, which happens to have the youngest population of any continent.`\
 https://nytimes.com/2024/07/30/world/africa/biden-biya-world-oldest-leaders.html
-
-**Troyes’ reinstated in Ligue 2 after Bordeaux lose professional status**\
-`Troyes, the French club owned by the City Football Group, have been reinstated into Ligue 2 following Bordeaux&#8217;s administrative relegation.`\
-https://nytimes.com/athletic/5668984/2024/07/30/troyes-cfg-relegation-bordeaux-french-football/
-
-**Israel strikes Beirut, targeting Hezbollah commander it blamed for village assault.**\
-`By Adam Rasgon, Ronen Bergman and Euan Ward`\
-https://nytimes.com/live/2024/07/30/world/israel-gaza-war-lebanon-hezbollah/explosion-erupts-in-beiruts-southern-suburbs-officials-say
 
