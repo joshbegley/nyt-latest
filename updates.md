@@ -1,3 +1,11 @@
+**Men's Olympic triathlon postponed as Seine remains unsafe**\
+`The last-minute postponement comes after Paris officials have promised for years the race would be race ready.`\
+https://nytimes.com/athletic/5666017/2024/07/30/seine-river-water-quality-olympic-triathlon-postponed/
+
+**Yusei Kikuchi arrives at an enormous cost and already under immense pressure**\
+`The three prospects shipped away for Kikuchi are ranked within the top 12 of the Astros farm system.`\
+https://nytimes.com/athletic/5667921/2024/07/30/yusei-kikuchi-astros/
+
 **Giants trade Jorge Soler and Luke Jackson, but larger fire sale not expected**\
 `Though their first move was a "sell," the Giants expect to do a blend of buying and selling ahead of Tuesday's trade deadline.`\
 https://nytimes.com/athletic/5667928/2024/07/30/sf-giants-jorge-soler-luke-jackson-trade/
