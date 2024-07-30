@@ -1,3 +1,7 @@
+**How Victor Wembanyama helped (big) France survive a scare against (small) Japan**\
+`The Japanese lost their best player, Lakers forward Rui Hachimura, in the fourth but didn't give up the fight.`\
+https://nytimes.com/athletic/5669180/2024/07/30/france-japan-basketball-result-olympics-victor-wembanyama/
+
 **Diamondbacks acquire Josh Bell, who had been placed on waivers by Marlins: Source**\
 `One day before the trade deadline, the Arizona Diamondbacks watched as first baseman Christian Walker had to leave a game against the Washington Nationals early with an oblique strain.`\
 https://nytimes.com/athletic/5669235/2024/07/30/diamondbacks-marlins-josh-bell-trade/
