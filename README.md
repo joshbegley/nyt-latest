@@ -1,3 +1,7 @@
+**How Kamala Harris Faces a Faster, Uglier Version of the Internet**\
+`Politicians have long faced racist and sexist attacks online. But Ms. Harris is being attacked on more platforms, with new technologies and in front of bigger audiences than Barack Obama and Hillary Clinton were.`\
+https://nytimes.com/2024/07/30/technology/kamala-harris-toxic-internet-politics.html
+
 **Jake O'Brien to Everton: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Jake O'Brien's move to Everton.`\
 https://nytimes.com/athletic/5665357/2024/07/30/jake-obrien-to-everton-transfer-ratings/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/30/technology/youtube-streaming-tv.html
 **Dillon Brooks, international villain, talks Team Canada and FIBA/NBA differences**\
 `The Houston Rockets instigator has found that the international style of play fits what he does best. `\
 https://nytimes.com/athletic/5668728/2024/07/30/dillon-brooks-canada-olympics/
-
-**Gaza’s Only Humanitarian Zone Has Shrunk by a Fifth Recently**\
-`Israel’s military has redrawn the zone’s borders twice, accusing Hamas of using it to regroup and launch missiles.`\
-https://nytimes.com/2024/07/30/world/middleeast/gaza-humanitarian-zone-israel.html
 
