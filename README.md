@@ -1,3 +1,7 @@
+**Where the Mets stand in their hunt for pitching**\
+`Jose Buttó could move into the rotation, but some solid mid-tier starters, including the Tampa Bay Rays’ Zack Littell, remain on the market.`\
+https://nytimes.com/athletic/5667722/2024/07/29/mets-mlb-trade-deadline-pitching/
+
 **Liberal ‘White Dudes’ Rally for Harris: ‘It’s Like a Rainbow of Beige’**\
 `A video call with 60,000 self-professed “White Dudes for Harris” showed the breadth of Democratic support for her candidacy, and the ways the party is learning to make fun of itself.`\
 https://nytimes.com/2024/07/29/us/politics/kamala-harris-white-dudes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5667672/2024/07/29/mlb-trade-grades-frankie-montas-
 **Lane Thomas fills significant need, but Guardians pay hefty price to Nationals**\
 `Thomas hasn't repeated his breakout season this year, but he still represents a big upgrade for Cleveland.`\
 https://nytimes.com/athletic/5667615/2024/07/29/lane-thomas-guardians-nationals-trade-analysis/
-
-**Brewers make deal with Reds to add righty Frankie Montas to injury-plagued rotation**\
-`The NL Central-leading Milwaukee Brewers bolstered their starting rotation on Monday night by dealing with a division rival, acquiring righthander Frankie Montas from the Cincinnati Reds in exchange for young outfielder Joey Wiemer and veteran righty Jakob Junis, league sources confirmed to The Athletic.`\
-https://nytimes.com/athletic/5667645/2024/07/29/frankie-montas-trade-brewers/
 
