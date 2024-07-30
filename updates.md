@@ -1,3 +1,23 @@
+**Who are the Druse in the Golan Heights?**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/07/30/world/israel-gaza-war-lebanon-hezbollah/druse-golan-heights-israel
+
+**The Israeli military sends troops to protect a base against attacks by angry citizens.**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2024/07/30/world/israel-gaza-war-lebanon-hezbollah/the-israeli-military-sends-troops-to-protect-a-base-against-attacks-by-angry-citizens
+
+**For Many Palestinians, the Olympics Are Easy to Root for but Hard to Actually Watch**\
+`The eight Palestinian athletes at the Games represent not only a homeland but a cause. But for those in Gaza, a scarcity of electricity has made it nearly impossible to keep up with the outside world.`\
+https://nytimes.com/2024/07/30/world/middleeast/palestinians-gaza-olympics.html
+
+**Riots at Israeli Army Base Show Growing Divisions Over War in Gaza**\
+`Right-wing demonstrators forced their way inside two military facilities after nine soldiers were held on suspicion of abusing a Palestinian man.`\
+https://nytimes.com/live/2024/07/30/world/israel-gaza-war-lebanon-hezbollah
+
+**Parts of U.K. Brace for the Hottest Day of the Year**\
+`Temperatures were expected to reach near 90 degrees on Tuesday, unusually warm for the region. The government issued a health alert for vulnerable groups.`\
+https://nytimes.com/2024/07/30/weather/uk-heat.html
+
 **Barton pleads not guilty to alleged malicious communications towards Aluko**\
 `Joey Barton will appear before Liverpool Crown Court next month after pleading not guilty to charges of alleged malicious communications online towards Eni Aluko.`\
 https://nytimes.com/athletic/5668131/2024/07/30/joey-barton-trial-aluko/
