@@ -1,3 +1,11 @@
+**Notre Dame AD 'all in' on continuing rivalry with USC**\
+`Notre Dame AD Pete Bevacqua wants to keep the school's annual rivalry game with USC after Lincoln Riley last week pondered its possible end.`\
+https://nytimes.com/athletic/5667319/2024/07/29/notre-dame-ad-wants-to-keep-rivalry-game-with-usc-alive-were-all-in/
+
+**Pirates acquire left-hander Jalen Beeks to boost backend of the bullpen**\
+`The Pirates get some much-needed bullpen help from an unlikely source — the Colorado Rockies.`\
+https://nytimes.com/athletic/5667548/2024/07/29/jalen-beeks-pirates-rockies-trade/
+
 **Eno's take on Yusei Kikuchi trade: Astros land lefty starter with excellent stuff**\
 `Kikuchi's ERA isn't anything special, but he could be the best starter who changes teams at the deadline. Why? Because he throws gas.`\
 https://nytimes.com/athletic/5667488/2024/07/29/yusei-kikuchi-trade-astros-blue-jays-stuff/
