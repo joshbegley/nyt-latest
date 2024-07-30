@@ -1,3 +1,11 @@
+**Mets knock around rookie Simeon Woods Richardson, hand Twins worst loss since mid-May**\
+`The Twins were walloped by the Mets, Ryan Jeffers snapped a homerless drought and Jose Miranda was OK after being hit in the head.`\
+https://nytimes.com/athletic/5667780/2024/07/29/twins-simeon-woods-richardson-mets/
+
+**Cubs pitcher Jameson Taillon waiting for answers in final hours ahead of trade deadline**\
+`The Cubs are playing for 2025 and Jameson Taillon could be attractive in a marketplace crowded by teams looking for starting pitching`\
+https://nytimes.com/athletic/5667718/2024/07/29/cubs-pitcher-jameson-taillon-trade-deadline/
+
 **Where the Mets stand in their hunt for pitching**\
 `Jose Buttó could move into the rotation, but some solid mid-tier starters, including the Tampa Bay Rays’ Zack Littell, remain on the market.`\
 https://nytimes.com/athletic/5667722/2024/07/29/mets-mlb-trade-deadline-pitching/

@@ -1,3 +1,11 @@
+**Mets knock around rookie Simeon Woods Richardson, hand Twins worst loss since mid-May**\
+`The Twins were walloped by the Mets, Ryan Jeffers snapped a homerless drought and Jose Miranda was OK after being hit in the head.`\
+https://nytimes.com/athletic/5667780/2024/07/29/twins-simeon-woods-richardson-mets/
+
+**Cubs pitcher Jameson Taillon waiting for answers in final hours ahead of trade deadline**\
+`The Cubs are playing for 2025 and Jameson Taillon could be attractive in a marketplace crowded by teams looking for starting pitching`\
+https://nytimes.com/athletic/5667718/2024/07/29/cubs-pitcher-jameson-taillon-trade-deadline/
+
 **Where the Mets stand in their hunt for pitching**\
 `Jose Buttó could move into the rotation, but some solid mid-tier starters, including the Tampa Bay Rays’ Zack Littell, remain on the market.`\
 https://nytimes.com/athletic/5667722/2024/07/29/mets-mlb-trade-deadline-pitching/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5666082/2024/07/29/mlb-trade-deadline-roundup-monda
 **White Sox lose 15th game in a row**\
 `Despite holding a five-run lead heading into the eighth, the White Sox extended their losing streak with an 8-5 defeat by the Royals.`\
 https://nytimes.com/athletic/5667074/2024/07/29/white-sox-franchise-loss-record/
-
-**MLB Trade Grades: Brewers make head-scratcher in Frankie Montas deal with Reds**\
-`The Brewers paid to acquire a starting pitcher in Frankie Montas. They may have given up a better one in Jakob Junis. `\
-https://nytimes.com/athletic/5667672/2024/07/29/mlb-trade-grades-frankie-montas-brewers-reds/
-
-**Lane Thomas fills significant need, but Guardians pay hefty price to Nationals**\
-`Thomas hasn't repeated his breakout season this year, but he still represents a big upgrade for Cleveland.`\
-https://nytimes.com/athletic/5667615/2024/07/29/lane-thomas-guardians-nationals-trade-analysis/
 
