@@ -1,3 +1,11 @@
+**'We want to continue to build': 1-on-1 with Abbotsford Canucks coach Manny Malhotra**\
+`Last week, The Athletic caught up with Malhotra to discuss putting his stamp on the team, Henrik and Daniel Sedin and more.`\
+https://nytimes.com/athletic/5666611/2024/07/30/abbotsford-canucks-coach-manny-malhotra/
+
+**'It's a dream': Joseph brothers couldn't pass up opportunity to play together with Blues**\
+`Mathieu and P.O. Joseph provide behind-the-scenes details of how they both joined the Blues this summer and their road to St. Louis.`\
+https://nytimes.com/athletic/5614918/2024/07/30/blues-mathieu-pierre-olivier-joseph-nhl/
+
 **Who are the Druse in the Golan Heights?**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/07/30/world/israel-gaza-war-lebanon-hezbollah/druse-golan-heights-israel
