@@ -1,3 +1,7 @@
+**MLB Trade Grades: Baltimore gives up a lot for Trevor Rogers — was it worth it?**\
+`With left-handed starters in short supply, the Orioles made a move for Trevor Rogers and their return headed back to Miami was notable. `\
+https://nytimes.com/athletic/5669215/2024/07/30/mlb-trade-grades-trevor-rogers-orioles-marlins/
+
 **How Victor Wembanyama helped (big) France survive a scare against (small) Japan**\
 `The Japanese lost their best player, Lakers forward Rui Hachimura, in the fourth but didn't give up the fight.`\
 https://nytimes.com/athletic/5669180/2024/07/30/france-japan-basketball-result-olympics-victor-wembanyama/

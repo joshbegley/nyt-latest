@@ -1,3 +1,7 @@
+**MLB Trade Grades: Baltimore gives up a lot for Trevor Rogers — was it worth it?**\
+`With left-handed starters in short supply, the Orioles made a move for Trevor Rogers and their return headed back to Miami was notable. `\
+https://nytimes.com/athletic/5669215/2024/07/30/mlb-trade-grades-trevor-rogers-orioles-marlins/
+
 **How Victor Wembanyama helped (big) France survive a scare against (small) Japan**\
 `The Japanese lost their best player, Lakers forward Rui Hachimura, in the fourth but didn't give up the fight.`\
 https://nytimes.com/athletic/5669180/2024/07/30/france-japan-basketball-result-olympics-victor-wembanyama/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/30/opinion/israel.html
 **Heavy Rain Triggers Deadly Landslides in Southern India**\
 `A major search-and-rescue operation is underway after days of torrential rain caused landslides in Kerala, India.`\
 https://nytimes.com/video/world/asia/100000009600660/india-landslides-kerala.html
-
-**MLB Trade Grades: Mark Leiter Jr. gives Yankees bullpen a new look at reasonable cost**\
-`The Yankees got a reliever under control through 2026, and didn't give up impact prospects. In the current relief market, that's a win. `\
-https://nytimes.com/athletic/5669146/2024/07/30/mlb-trade-grades-mark-leiter-cubs-yankees/
 
