@@ -1,3 +1,7 @@
+**Jon Stewart Recaps a Pretty Eventful Week in Politics**\
+`“In the span of a week, Democrats have gone from the despair of a certain Trump presidency to the joy of a statistical tie,” Stewart said on “The Daily Show.”`\
+https://nytimes.com/2024/07/30/arts/television/jon-stewart-kamala-harris.html
+
 **Who Is Shujun Wang, the Queens Man Accused of Spying for China?**\
 `Mr. Wang is on stand trial this week in Brooklyn federal court. He vigorously disputes the charges against him.`\
 https://nytimes.com/2024/07/30/nyregion/shujun-wang-china-spying.html

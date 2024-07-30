@@ -1,3 +1,7 @@
+**Jon Stewart Recaps a Pretty Eventful Week in Politics**\
+`“In the span of a week, Democrats have gone from the despair of a certain Trump presidency to the joy of a statistical tie,” Stewart said on “The Daily Show.”`\
+https://nytimes.com/2024/07/30/arts/television/jon-stewart-kamala-harris.html
+
 **Who Is Shujun Wang, the Queens Man Accused of Spying for China?**\
 `Mr. Wang is on stand trial this week in Brooklyn federal court. He vigorously disputes the charges against him.`\
 https://nytimes.com/2024/07/30/nyregion/shujun-wang-china-spying.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5667952/2024/07/30/braves-grant-holmes-strikeouts/
 **Men's Olympic triathlon postponed as Seine remains unsafe**\
 `The last-minute postponement comes after Paris officials have promised for years the race would be race ready.`\
 https://nytimes.com/athletic/5666017/2024/07/30/seine-river-water-quality-olympic-triathlon-postponed/
-
-**Yusei Kikuchi arrives at an enormous cost and is already under immense pressure**\
-`The three prospects shipped away for Kikuchi are ranked within the top 12 of the Astros' farm system.`\
-https://nytimes.com/athletic/5667921/2024/07/30/yusei-kikuchi-astros/
 
