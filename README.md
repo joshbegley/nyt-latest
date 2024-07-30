@@ -1,3 +1,15 @@
+**The Beirut suburb that Israel targeted has long seen conflict.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/07/30/world/israel-gaza-war-lebanon-hezbollah/the-beirut-suburb-that-israel-targeted-has-long-seen-conflict
+
+**MLB Trade Grades: Mark Canha, Kevin Kiermaier and more last-minute deadline deals**\
+`A look at trades for Gregory Soto, Tanner Banks, Dylan Carlson, and other deals that came together at the last minute. `\
+https://nytimes.com/athletic/5670213/2024/07/30/mlb-trade-grades-mark-canha-kevin-kiermaier-and-more-last-minute-deadline-deals/
+
+**Bears lock up receiver DJ Moore with 4-year, $110 million extension: Sources**\
+`Moore gets the biggest deal in Bears history with $82.6 million guaranteed, trailing only Justin Jefferson and A.J. Brown among receivers.`\
+https://nytimes.com/athletic/5670349/2024/07/30/dj-moore-bears-contract-extension/
+
 **Padres trade everyone they have left for two more relievers, Tanner Scott and Bryan Hoeing**\
 `In two deadline deals, the Padres cleaned out an already thin system to add to their bullpen.`\
 https://nytimes.com/athletic/5670298/2024/07/30/padres-marlins-tanner-scott-trade-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5670102/2024/07/30/mlb-trade-grades-dodgers-tigers-
 **Man Charged in Fatal Shooting of 13-Year-Old Boy in Brooklyn**\
 `The man, Sheik Koureichi, was accused of aiding in the killing of Troy Gill, who was shot in February while walking home in Crown Heights after a basketball game.`\
 https://nytimes.com/2024/07/30/nyregion/brooklyn-shooting-troy-gill.html
-
-**Yankees get reliever Enyel De Los Santos from Padres**\
-`The 28-year-old comes with two markers the Yankees look for: Strikeouts and team control.`\
-https://nytimes.com/athletic/5670094/2024/07/30/yankees-acquire-reliever-enyel-de-los-santos-from-the-padres/
-
-**Is Olympic pool's depth hurting swimmers? As world records hold, mystery rolls on**\
-`A shallower-than-normal pool has everyone asking whether it's affecting the times of the world's best swimmers at the Paris Olympics.`\
-https://nytimes.com/athletic/5669136/2024/07/30/olympics-swimming-pool-depth-world-record-paris/
-
-**Raiders training camp: Short-handed offensive line hangs in there as pads come on**\
-`Injuries on the offensive line have made things even harder on the struggling quarterback duo of Aidan O'Connell and Gardner Minshew.`\
-https://nytimes.com/athletic/5669641/2024/07/30/raiders-training-camp-offensive-line-2/
 
