@@ -1,3 +1,11 @@
+**Argentina to play France in Olympic men's football quarter-finals**\
+`Two-time gold medalists Argentina will play hosts France in the quarter-finals of the Olympic men&#8217;s football at Paris 2024.`\
+https://nytimes.com/athletic/5669443/2024/07/30/argentina-france-olympic-football-quarterfinals/
+
+**Mariners set to acquire righty JT Chargois from Marlins: source**\
+`The Seattle Mariners on Tuesday agreed to acquire right-handed reliever JT Chargois from the Miami Marlins in exchange for minor league right-hander Will Schomberg, league sources told The Athletic.`\
+https://nytimes.com/athletic/5669599/2024/07/30/mariners-marlins-jt-chargois-trade/
+
 **Tigers trade reliever Andrew Chafin to Rangers**\
 `The reliever will add a much-needed left-handed presence to the Rangers' bullpen.`\
 https://nytimes.com/athletic/5669550/2024/07/30/andrew-chafin-rangers-tigers-trade/
