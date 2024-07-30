@@ -1,3 +1,12 @@
+**Chelsea squad 'together' after Fernandez apology for racist chant - Maresca**\
+`Enzo Maresca insists the bond between Chelsea players is back to normal after Enzo Fernandez issued a personal apology to the squad on Monday for singing a racist song on international duty with Argentina.`\
+https://nytimes.com/athletic/5669099/2024/07/30/enzo-fernandez-chelsea-enzo-maresca/
+
+**Orioles add to starting rotation, acquire lefty Trevor Rogers from Marlins: Source**\
+`By Kamila Hinkson, Ken Rosenthal and Levi Weaver
+The Baltimore Orioles have acquired left-handed reliever Trevor Rogers from the Miami Marlins, The Athletic’s Ken Rosenthal has confirmed.`\
+https://nytimes.com/athletic/5669127/2024/07/30/orioles-add-to-rotation-acquire-lefty-trevor-rogers-from-marlins-source/
+
 **Eric Staal retires after 18 NHL seasons**\
 `The team will also retire Staal's No. 12 at a date to be determined during the 2024-25 season.`\
 https://nytimes.com/athletic/5669082/2024/07/30/eric-staal-nhl-hurricanes-retirement/
