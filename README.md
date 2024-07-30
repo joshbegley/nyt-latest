@@ -1,40 +1,40 @@
-**Mets knock around rookie Simeon Woods Richardson, hand Twins worst loss since mid-May**\
-`The Twins were walloped by the Mets, Ryan Jeffers snapped a homerless drought and Jose Miranda was OK after being hit in the head.`\
-https://nytimes.com/athletic/5667780/2024/07/29/twins-simeon-woods-richardson-mets/
+**Tuesday's MLB odds, best bets: Pitching matchups, playoff odds, props and more**\
+`See pitching matchups, playoff projections, win projections and more for Tuesday's MLB games.`\
+https://nytimes.com/athletic/5666860/2024/07/30/mlb-odds-best-bets-projections-july-30/
 
-**Cubs pitcher Jameson Taillon waiting for answers in final hours ahead of trade deadline**\
-`The Cubs are playing for 2025 and Jameson Taillon could be attractive in a marketplace crowded by teams looking for starting pitching`\
-https://nytimes.com/athletic/5667718/2024/07/29/cubs-pitcher-jameson-taillon-trade-deadline/
+**Tuesday Briefing**\
+`President Biden’s call to change the Supreme Court.`\
+https://nytimes.com/2024/07/30/briefing/biden-court-venezuela-olympics.html
 
-**Where the Mets stand in their hunt for pitching**\
-`Jose Buttó could move into the rotation, but some solid mid-tier starters, including the Tampa Bay Rays’ Zack Littell, remain on the market.`\
-https://nytimes.com/athletic/5667722/2024/07/29/mets-mlb-trade-deadline-pitching/
+**After Furious Battles, Ukraine Loses a Pair of Hard-Won Villages**\
+`“It was like a fight between two packs of dogs,” said an officer, describing the struggle for one of the areas, Urozhaine. But “there came a moment when it made no sense to keep people there.”`\
+https://nytimes.com/2024/07/30/world/europe/russia-urozhaine-staromaiorske-ukraine.html
 
-**Liberal ‘White Dudes’ Rally for Harris: ‘It’s Like a Rainbow of Beige’**\
-`A video call with 60,000 self-professed “White Dudes for Harris” showed the breadth of Democratic support for her candidacy, and the ways the party is learning to make fun of itself.`\
-https://nytimes.com/2024/07/29/us/politics/kamala-harris-white-dudes.html
+**In the 1,500, There’s Katie Ledecky and Then There’s Everyone Else**\
+`Ledecky has not lost a 1,500-meter freestyle race in 14 years. Even her rivals admit they hit the water knowing they’re racing for second.`\
+https://nytimes.com/2024/07/30/world/olympics/katie-ledecky-1500.html
 
-**What is the Yankees' biggest trade deadline need? 3 questions**\
-`The Yankees have stood pat since trading for Jazz Chisholm Jr. Could they have more up their sleeves? Here are some options.`\
-https://nytimes.com/athletic/5667743/2024/07/29/yankees-trade-deadline-need-questions/
+**Reds win the game, lose a popular player in the clubhouse with the Frankie Montas trade**\
+`Montas became the leader of the Reds' rotation the moment he stepped into the clubhouse, so today was emotional for everyone.`\
+https://nytimes.com/athletic/5667771/2024/07/30/reds-frankie-montas-trade/
 
-**Red Sox rebound in a big way, crushing Mariners ace as trade deadline approaches**\
-`The Red Sox displayed the intangible fortitude that has been a trademark all season. Will the team get reinforcements before the deadline?`\
-https://nytimes.com/athletic/5667721/2024/07/29/red-sox-rout-mariners-logan-gilbert/
+**Olympics Today: Tuesday's guide for what to watch in Paris (and Tahiti)**\
+`A gold medal in the team event would be the fifth of Biles' career.`\
+https://nytimes.com/athletic/5665073/2024/07/30/olympics-2024-watch-guide-day-4-gymnastics-basketball/
 
-**Guardians strike on trade market, and Lane Thomas' new teammates are relieved**\
-`“That’s a crazy monkey off the back,” Tanner Bibee said. “I don’t think a lot of people really know how much that clears the mental."`\
-https://nytimes.com/athletic/5667702/2024/07/29/cleveland-guardians-trade-market-lane-thomas/
+**China, Citing Tainted Burgers, Cleared Swimmers in a New Doping Dispute**\
+`Two Chinese athletes, one of whom was named to the Olympic team in Paris, tested positive in 2022 for a banned steroid. China blamed contaminated food, as it had after previous positive tests.`\
+https://nytimes.com/2024/07/30/us/politics/china-swimmers-doping-food.html
 
-**With another lopsided loss, the Phillies have encountered some summer adversity**\
-`"I feel like the energy in the clubhouse has been different ever since the Dodgers series," said Nick Castellanos.`\
-https://nytimes.com/athletic/5667683/2024/07/29/phillies-summer-adversity-lopsided-loss/
+**Quotation of the Day: Netanyahu Vows ‘Severe’ Reaction to Rocket Strike**\
+`Quotation of the Day for Tuesday, July 30, 2024.`\
+https://nytimes.com/2024/07/30/pageoneplus/quotation-of-the-day-netanyahu-vows-severe-reaction-to-rocket-strike.html
 
-**MLB trade deadline roundup: All the trades from Monday**\
-`Here's everything you need to know about who switched teams Monday. `\
-https://nytimes.com/athletic/5666082/2024/07/29/mlb-trade-deadline-roundup-monday/
+**Corrections: July 30, 2024**\
+`Corrections that appeared in print on Tuesday, July 30, 2024.`\
+https://nytimes.com/2024/07/30/pageoneplus/corrections-july-30-2024.html
 
-**White Sox lose 15th game in a row**\
-`Despite holding a five-run lead heading into the eighth, the White Sox extended their losing streak with an 8-5 defeat by the Royals.`\
-https://nytimes.com/athletic/5667074/2024/07/29/white-sox-franchise-loss-record/
+**Jack Flaherty was scratched from his start. Does a deadline deal loom?**\
+`DETROIT — Jack Flaherty watched Monday’s 8-4 loss to the Cleveland Guardians from his usual spot on the dugout bench.`\
+https://nytimes.com/athletic/5667646/2024/07/29/tigers-jack-flaherty-scratch/
 
