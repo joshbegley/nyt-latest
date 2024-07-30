@@ -1,3 +1,27 @@
+**U.S. Pledges $500 Million in New Military Aid to the Philippines, as China Asserts Sea Claims**\
+`Secretary of State Antony J. Blinken and Defense Secretary Lloyd J. Austin III warned Beijing against engaging in hostilities with U.S. allies in the South and East China Seas.`\
+https://nytimes.com/2024/07/30/world/asia/us-philippines-military-aid-china.html
+
+**Intense Heat Settles Over Parts of Britain**\
+`Temperatures were expected to reach near 90 degrees on Tuesday, unusually warm for the region. The government issued a health alert for vulnerable groups.`\
+https://nytimes.com/2024/07/30/weather/uk-heat.html
+
+**Key USMNT players with uncertain club futures - what they need to do ahead of World Cup**\
+`Several USMNT players on the fringes at their clubs must get game time in run-up to World Cup`\
+https://nytimes.com/athletic/5655744/2024/07/30/usmnt-players-club-fringes-world-cup-2026/
+
+**Broncos rookie progress report: Troy Franklin, Kris Abrams-Draine making noise**\
+`Plus, why Audric Estimé's first week of training camp was particularly encouraging for Denver.`\
+https://nytimes.com/athletic/5666675/2024/07/30/broncos-rookie-progress-training-camp/
+
+**Robots Are Coming, and They’re on a Mission: Install Solar Panels**\
+`Energy companies say a labor shortage is one big obstacle to installing more solar power. They’re turning to machines to speed things up.`\
+https://nytimes.com/2024/07/30/climate/solar-panels-robots-maximo-construction.html
+
+**With Dueling Ads, Harris and Trump Both Try to Define Her as a Candidate**\
+`The vice president released an ad called “Fearless” that focuses on her time as a prosecutor, while a spot from the former president attacked her as soft on immigration.`\
+https://nytimes.com/2024/07/30/us/politics/kamala-harris-ad.html
+
 **Xavi Simons set to rejoin RB Leipzig on loan transfer from PSG**\
 `Xavi Simons is set rejoin RB Leipzig on loan from Paris Saint-Germain for the 2024-25 campaign.`\
 https://nytimes.com/athletic/5665436/2024/07/30/xavi-simons-rb-leipzig-loan-psg/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/07/30/briefing/labor-abuse-supply-chain.html
 **How U.S. Olympic women's gymnastics became a true team in an often-solo sport**\
 `In a sport that pits you against each other and also on the same side, the U.S. women's gymnastics squad has come together in Paris.`\
 https://nytimes.com/athletic/5668144/2024/07/30/womens-gymnastics-team-olympics-gold-simone-biles/
-
-**Rams observations: QB Matthew Stafford is ‘fine,’ held out of first padded practice**\
-`Sean McVay said it was a planned off day for the Rams' starting QB and he'll practice Tuesday and onward.`\
-https://nytimes.com/athletic/5667804/2024/07/30/la-rams-matthew-stafford-practice/
-
-**'Worth the risk': Behind the scenes of Brock Faber's extension and what it means for Wild**\
-`It was a "dream come true" for the 21-year-old defenseman, who signed an eight-year, $68 million extension with his hometown club.`\
-https://nytimes.com/athletic/5666841/2024/07/30/wild-brock-faber-extension/
-
-**Hollinger: Numbers say LeBron and company can be better. Here's how**\
-`As expected, the Americans have a talent advantage, but a couple trend lines from this summer warrant scrutiny.`\
-https://nytimes.com/athletic/5666651/2024/07/30/team-usa-mens-basketball-olympics-lebron-james-stats/
-
-**Rangers mailbag, Part 1: Lafrenière to top power play?**\
-`With nearly two months until training camp, now is a good time to dig into some of your offseason Rangers questions.`\
-https://nytimes.com/athletic/5666179/2024/07/30/ny-rangers-alexis-lafreniere-power-play/
-
-**Signs abound that Flyers rebuild might not have to last much longer**\
-`Matvei Michkov's arrival and Travis Konecny's extension are the surest signs of how the Flyers view the rebuild.`\
-https://nytimes.com/athletic/5666330/2024/07/30/flyers-rebuild-nhl-konecny-michkov/
-
-**The V.P.’s Search for a V.P.**\
-`What Kamala Harris is looking for in a running mate.`\
-https://nytimes.com/2024/07/30/podcasts/the-daily/kamala-harris-vp.html
 
