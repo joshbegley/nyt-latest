@@ -7,7 +7,7 @@ https://nytimes.com/2024/07/30/business/bill-ackman-pershing-square-ipo.html
 https://nytimes.com/video/us/politics/100000009600408/senate-judiciary-committee-trump-assassination-attempt.html
 
 **Yankees acquire reliever Mark Leiter Jr. from Cubs**\
-`The Cubs will receive outfield prospect Ben Cowles and relief prospect Jack Neely in return.`\
+`The Cubs will receive infield prospect Ben Cowles and relief prospect Jack Neely in return.`\
 https://nytimes.com/athletic/5669057/2024/07/30/yankees-cubs-trade-mark-leiter/
 
 **LAFC sign O'Brien on loan from Nottingham Forest**\
