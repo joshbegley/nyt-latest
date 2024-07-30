@@ -1,3 +1,19 @@
+**Richard Crawford, Leading Scholar of American Music, Dies at 89**\
+`American Music was a marginal subfield in the 1960s when he began his research as a student, and then as a faculty member, at the University of Michigan.`\
+https://nytimes.com/2024/07/30/arts/music/richard-crawford-dead.html
+
+**Padres acquire top reliever on market Tanner Scott from Marlins: Sources**\
+`Left-handed reliever Tanner Scott is headed to the San Diego Padres, league sources told The Athletic.`\
+https://nytimes.com/athletic/5666846/2024/07/30/tanner-scott-padres-marlins-trade/
+
+**Could Buttigieg Be Harris’s V.P. Pick? His Donors Hope So.**\
+`Wealthy Democrats who support Pete Buttigieg are working behind the scenes to help him win a spot on Kamala Harris’s ticket.`\
+https://nytimes.com/2024/07/30/us/politics/pete-buttigieg-kamala-harris-running-mate.html
+
+**Tom Porton, Hall of Fame Teacher on a Humanitarian Mission, Dies at 74**\
+`At James Monroe High School in the Bronx, he inspired students to embrace the arts and to be engaged with the world, through AIDS programs and other community service projects.`\
+https://nytimes.com/2024/07/30/nyregion/tom-porton-dead.html
+
 **Rodgers, Wilson search for chemistry on another long day for Jets offense: Training camp observations**\
 `FLORHAM PARK, N.`\
 https://nytimes.com/athletic/5669416/2024/07/30/aaron-rodgers-garrett-wilson-jets-offense-struggles-training-camp-practice-report/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5669489/2024/07/30/mlb-trade-grade-alex-cobb-giants
 **Without Samson Ebukam, Colts need Laiatu Latu to be a force right away. He looks up to the challenge**\
 `On the first day of padded practice, the 2024 first-round pick looked like the star the Colts drafted him to be. `\
 https://nytimes.com/athletic/5669463/2024/07/30/indianapolis-colts-laiatu-latu-training-camp/
-
-**Mets trade for A's starter Paul Blackburn, bolstering an ailing rotation**\
-`The New York Mets supplemented their rotation by acquiring right-handed starter Paul Blackburn in a trade with the Oakland Athletics, a league source confirmed to The Athletic.`\
-https://nytimes.com/athletic/5669624/2024/07/30/mets-trade-for-as-starter-paul-blackburn-bolstering-an-ailing-rotation/
-
-**Argentina to play France in Olympic men's football quarter-finals**\
-`Two-time gold medalists Argentina will play hosts France in the quarter-finals of the Olympic men&#8217;s football at Paris 2024.`\
-https://nytimes.com/athletic/5669443/2024/07/30/argentina-france-olympic-football-quarterfinals/
-
-**Mariners set to acquire righty JT Chargois from Marlins: source**\
-`The Seattle Mariners on Tuesday agreed to acquire right-handed reliever JT Chargois from the Miami Marlins in exchange for minor league right-hander Will Schomberg, league sources told The Athletic.`\
-https://nytimes.com/athletic/5669599/2024/07/30/mariners-marlins-jt-chargois-trade/
-
-**Tigers trade reliever Andrew Chafin to Rangers**\
-`The reliever will add a much-needed left-handed presence to the Rangers' bullpen.`\
-https://nytimes.com/athletic/5669550/2024/07/30/andrew-chafin-rangers-tigers-trade/
 

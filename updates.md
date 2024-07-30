@@ -1,3 +1,19 @@
+**Richard Crawford, Leading Scholar of American Music, Dies at 89**\
+`American Music was a marginal subfield in the 1960s when he began his research as a student, and then as a faculty member, at the University of Michigan.`\
+https://nytimes.com/2024/07/30/arts/music/richard-crawford-dead.html
+
+**Padres acquire top reliever on market Tanner Scott from Marlins: Sources**\
+`Left-handed reliever Tanner Scott is headed to the San Diego Padres, league sources told The Athletic.`\
+https://nytimes.com/athletic/5666846/2024/07/30/tanner-scott-padres-marlins-trade/
+
+**Could Buttigieg Be Harris’s V.P. Pick? His Donors Hope So.**\
+`Wealthy Democrats who support Pete Buttigieg are working behind the scenes to help him win a spot on Kamala Harris’s ticket.`\
+https://nytimes.com/2024/07/30/us/politics/pete-buttigieg-kamala-harris-running-mate.html
+
+**Tom Porton, Hall of Fame Teacher on a Humanitarian Mission, Dies at 74**\
+`At James Monroe High School in the Bronx, he inspired students to embrace the arts and to be engaged with the world, through AIDS programs and other community service projects.`\
+https://nytimes.com/2024/07/30/nyregion/tom-porton-dead.html
+
 **Rodgers, Wilson search for chemistry on another long day for Jets offense: Training camp observations**\
 `FLORHAM PARK, N.`\
 https://nytimes.com/athletic/5669416/2024/07/30/aaron-rodgers-garrett-wilson-jets-offense-struggles-training-camp-practice-report/
