@@ -1,3 +1,15 @@
+**Creator of ‘Baby Reindeer’ Calls Show ‘Emotionally True’ but ‘Fictionalized’**\
+`Richard Gadd, the show’s creator, said in a court filing that Fiona Harvey, who is suing Netflix for defamation, harassed him in real life but that the show is a dramatic retelling.`\
+https://nytimes.com/2024/07/30/arts/television/richard-gadd-baby-reindeer-lawsuit.html
+
+**Trump vs. ‘America’s Border Czar’**\
+`Republicans’ first anti-Harris advertisement is about as subtle as Trump.`\
+https://nytimes.com/2024/07/22/opinion/kamala-harris-immigration-trump.html
+
+**After Biden’s Withdrawal, Other Aged Leaders Get Some Serious Side-Eye**\
+`Most of the world’s oldest leaders — in their 80s and even one in his 90s — are in Africa, which happens to have the youngest population of any continent.`\
+https://nytimes.com/2024/07/30/world/africa/biden-biya-world-oldest-leaders.html
+
 **Troyes’ reinstated in Ligue 2 after Bordeaux lose professional status**\
 `Troyes, the French club owned by the City Football Group, have been reinstated into Ligue 2 following Bordeaux&#8217;s administrative relegation.`\
 https://nytimes.com/athletic/5668984/2024/07/30/troyes-cfg-relegation-bordeaux-french-football/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/30/us/politics/secret-service-trump-shooting-senate.
 **Josh Shapiro, a V.P. Contender, Criticized U.S. Steel Takeover and Defended His Tax Cuts**\
 `The proposed acquisition of the American company by Japan’s Nippon Steel has become a sensitive political matter, with both President Biden and Donald J. Trump decrying the deal.`\
 https://nytimes.com/2024/07/30/us/politics/shapiro-vice-president-taxes.html
-
-**‘Hillbilly Elegy’ Sales Surge After JD Vance Joins Trump Campaign**\
-`The book has sold more than 750,000 copies since July 15, his publisher said.`\
-https://nytimes.com/2024/07/30/books/hillbilly-elegy-sales-surge-after-jd-vance-joins-trump-campaign.html
-
-**Why Is New York Italian Food Getting So Delightfully Weird?**\
-`From olives encased in Jell-O cubes to giant ravioli, iconoclastic takes on Italian classics are shaping the menus at a new wave of restaurants.`\
-https://nytimes.com/2024/07/30/t-magazine/italian-food-restaurants-ny.html
-
-**Kamala Harris Faces a Faster, Uglier Version of the Internet**\
-`Politicians have long faced racist and sexist attacks online. But Ms. Harris is being attacked on more platforms, with new technologies and in front of bigger audiences than Barack Obama and Hillary Clinton were.`\
-https://nytimes.com/2024/07/30/technology/kamala-harris-toxic-internet-politics.html
 
