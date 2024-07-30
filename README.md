@@ -1,11 +1,3 @@
-**Asylum Officers’ Union Opposes Biden Border Restrictions**\
-`The group, which represents some officers in charge of carrying out President Biden’s asylum measure, said in a court filing that the policy illegally limited migrants’ protections.`\
-https://nytimes.com/2024/07/30/us/politics/asylum-officers-union-biden-border-restrictions.html
-
-**Read the document**\
-`A letter to Joseph Shenker, the senior chair at Sullivan & Cromwell, criticizing the law firm’s approach to student protestors.`\
-https://nytimes.com/interactive/2024/07/30/business/sullivan-letter.html
-
 **MLB Trade Grades: Mets make a solid, if unexciting pickup in Paul Blackburn**\
 `The Mets traded one prospect to get the back-end starter, a reliever performing well in the low minors. `\
 https://nytimes.com/athletic/5669750/2024/07/30/mlb-trade-grades-paul-blackburn-mets-athletics/
@@ -38,4 +30,12 @@ https://nytimes.com/athletic/5669625/2024/07/30/wisconsin-college-football-prese
 `How many more times will Andy Murray put tennis fans through the wringer at this year&#8217;s Olympics?
 At 7-9 in a match tiebreak, it was written that Andy Murray&#8217;s tennis career had come to a close in Paris.`\
 https://nytimes.com/athletic/5669589/2024/07/30/andy-murray-olympics-tennis-doubles-advances-daniel-evans/
+
+**How Authoritarian Governments Rig Elections to Stay in Power**\
+`Nicolás Maduro, was declared the winner of Venezuela’s presidential election despite widespread irregularities. Here are some tools autocrats like Mr. Maduro use to stay in power.`\
+https://nytimes.com/2024/07/30/world/europe/authoritarian-governments-vote-rigging-venezuela-maduro.html
+
+**Who Is Fuad Shukr, Target of the Israeli Strike on Beirut?**\
+`He is also wanted for his role in a 1983 attack in Beirut that killed some 300 American and French soldiers.`\
+https://nytimes.com/2024/07/30/world/middleeast/fuad-shukr-hezbollah-israel-strike.html
 
