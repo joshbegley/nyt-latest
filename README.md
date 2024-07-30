@@ -1,3 +1,7 @@
+**MLB Trade Grades: Pirates are buyers, but did they overpay for Jalen Beeks?**\
+`Giving up Luis Peralta, the younger brother of Brewers All-Star Freddy Peralta, is an unfortunate cost.`\
+https://nytimes.com/athletic/5667620/2024/07/29/mlb-trade-grades-pirates-are-buyers-but-did-they-overpay-for-jalen-beeks/
+
 **Endangered Wild Stallion Is Euthanized After Being Struck by Vehicle**\
 `The horse, a 10-year-old stallion named Bullwinkle, was one of only 200 Banker horses, a breed on the Outer Banks in North Carolina that descended from horses brought over by Spanish explorers.`\
 https://nytimes.com/2024/07/29/us/wild-horse-bullwinkle-outer-banks-euthanized.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5667548/2024/07/29/jalen-beeks-pirates-rockies-trad
 **‘Six Characters’ Review: Making the Case Against a White-Centric Theater**\
 `At Lincoln Center Theater, Phillip Howze’s daring new play offers a hefty critique but takes aim at more targets than it can accommodate.`\
 https://nytimes.com/2024/07/29/theater/six-characters-review-howze.html
-
-**Eno's take on Yusei Kikuchi trade: Astros land lefty starter with excellent stuff**\
-`Kikuchi's ERA isn't anything special, but he could be the best starter who changes teams at the deadline. Why? Because he throws gas.`\
-https://nytimes.com/athletic/5667488/2024/07/29/yusei-kikuchi-trade-astros-blue-jays-stuff/
 
