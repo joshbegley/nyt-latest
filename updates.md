@@ -1,3 +1,11 @@
+**Scoop City: Differing offseason approaches in Detroit and Dallas**\
+`A look at the approaches taken by Detroit and Dallas this offseason, as well as the pass rush groups across the NFL`\
+https://nytimes.com/athletic/5668545/2024/07/30/cowboys-lions-offseason-scoop-city/
+
+**Where the Padres stand with their pitching needs as trade deadline day dawns**\
+`San Diego spent Monday, the eve of the trade deadline, pursuing both starting pitching and more relief pitching.`\
+https://nytimes.com/athletic/5668472/2024/07/30/padres-pitching-needs-mlb-trade-deadline/
+
 **Giannis Antetokounmpo, on verge of Olympic elimination, has no words for the latest loss**\
 `Antetokounmpo put 27 points and 11 boards were herculean, but he's carrying a heavy load for an undermanned Greek team.`\
 https://nytimes.com/athletic/5668405/2024/07/30/giannis-antetokounmpo-olympics-greece/
