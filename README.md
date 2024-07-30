@@ -1,3 +1,11 @@
+**Understanding the New Era of Fire**\
+`Wildfires, driven by climate change, have become more intense and frequent, but scientists are still trying to understand larger patterns.`\
+https://nytimes.com/2024/07/30/climate/understanding-the-new-era-of-fire.html
+
+**Contra Returns as a Cocktail Bar With Stilton-Stuffed Chicken Wings**\
+`After closing their restaurant a year ago, Jeremiah Stone and Fabián von Hauske Valtierra are back with the drinks expert Dave Arnold for Bar Contra, serving snacks and cocktails.`\
+https://nytimes.com/2024/07/30/dining/bar-contra-nyc.html
+
 **After Days Lost at Sea, They Needed a Pastrami Sandwich**\
 `A pair of scuba divers were dramatically rescued from the Gulf of Mexico. They knew what their first stop after the ordeal would be.`\
 https://nytimes.com/2024/07/30/dining/kenny-ziggys-deli-lost-at-sea.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/30/style/tiny-modern-love-stories-i-make-no-apologie
 **Chelsea to appoint Delroy Ebanks as new academy recruitment chief**\
 `Chelsea are set to appoint Newcastle United scout Delroy Ebanks as their head of academy recruitment as an overhaul of the youth structure at Stamford Bridge approaches completion.`\
 https://nytimes.com/athletic/5668259/2024/07/30/chelsea-delroy-ebanks-newcastle/
-
-**‘I Was a Childless Cat Lady’: Women Respond to JD Vance**\
-`Women decry his 2021 comment about “miserable” childless women. Also: Clearing homeless encampments; food and gas prices; wildfire names.`\
-https://nytimes.com/2024/07/30/opinion/jd-vance-childless-cat-ladies.html
-
-**Olympics Live Updates: Simone Biles Leads a Strong U.S. Gymnastics Team Into Finals**\
-`After a disappointing silver medal finish in Tokyo, Biles and her teammates are once again heavy favorites in the team competition.`\
-https://nytimes.com/live/2024/07/30/world/olympics-gymnastics-simone-biles
 
