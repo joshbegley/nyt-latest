@@ -1,3 +1,11 @@
+**Marta's Olympics could end with painful red card, but the Brazilian icon's legacy is so much more**\
+`Marta will go down as one of the greatest to ever play. How a legendary career possibly ends in Olympic heartbreak`\
+https://nytimes.com/athletic/5671350/2024/07/31/marta-brazil-olympics-legacy/
+
+**Former President of Guinea Convicted in Stadium Massacre and Rapes**\
+`The West African country’s former military leader and some of his top aides were found guilty of crimes against humanity committed during and after a pro-democracy demonstration in 2009.`\
+https://nytimes.com/2024/07/31/world/africa/guinea-moussa-dadis-camara-guilty.html
+
 **Biden Administration Begins Paying Farmers Who Faced Discrimination**\
 `The thousands of payouts, which will total $2 billion, follow years of delays and lawsuits that frustrated struggling Black farmers.`\
 https://nytimes.com/2024/07/31/business/biden-black-farmers-payments.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5672268/2024/07/31/big-ten-basketball-tournament-la
 **Trump Is ‘Weird,’ Vance Is ‘Creepy.’ Finally, the Democrats Start Name-Calling.**\
 `The insults are delightfully petty and supremely satisfying.`\
 https://nytimes.com/2024/07/31/opinion/trump-vance-weird-creepy.html
-
-**Some Republicans Embrace Conspiracy Theories on Trump Assassination**\
-`Right-wing lawmakers and candidates have made baseless suggestions that the shooting was orchestrated by Democrats or government actors who targeted former President Donald J. Trump.`\
-https://nytimes.com/2024/07/31/us/politics/trump-assassination-republicans-conspiracy-theories.html
-
-**The Debate Over Gender-Affirming Care**\
-`Responses to a Pamela Paul column that criticized such care as ineffective. Also: Scrutinizing the candidates; Project 2025; Hillary Clinton’s advice for Kamala Harris.`\
-https://nytimes.com/2024/07/31/opinion/gender-affirming-care.html
 
