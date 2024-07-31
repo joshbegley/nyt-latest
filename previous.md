@@ -1,3 +1,7 @@
+**Can I Ask Straight Women to Stop Calling Their Pals ‘Girlfriends’?**\
+`The magazine’s Ethicist columnist on the quirks of common language — namely the myriad ways to refer to friends and lovers.`\
+https://nytimes.com/2024/07/31/magazine/straight-women-girlfriends-ethics.html
+
 **Israel Can Still Avoid Regional War and Pursue a Cease-Fire**\
 `Can Netanyahu claim victory and push for a Gaza deal?`\
 https://nytimes.com/live/2024/07/30/opinion/thepoint/israel-assassination-haniyeh
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/dining/one-pan-recipes-that-are-ripe-for-summer.h
 **Lyric Opera of Chicago Appoints Orchestra Veteran as New Leader**\
 `John Mangum, who helped guide the Houston Symphony through the turmoil of the pandemic, will serve as the company’s next general director.`\
 https://nytimes.com/2024/07/31/arts/music/lyric-opera-of-chicago-john-mangum.html
-
-**Venezuela’s Election Was Deeply Flawed. Here’s How.**\
-`From voter intimidation to refusing to provide paper tallies to verify the result claimed by the government, the election was riddled with problems.`\
-https://nytimes.com/2024/07/31/world/americas/venezuela-election-vote-flaws.html
 

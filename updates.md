@@ -1,3 +1,7 @@
+**Can I Ask Straight Women to Stop Calling Their Pals ‘Girlfriends’?**\
+`The magazine’s Ethicist columnist on the quirks of common language — namely the myriad ways to refer to friends and lovers.`\
+https://nytimes.com/2024/07/31/magazine/straight-women-girlfriends-ethics.html
+
 **Israel Can Still Avoid Regional War and Pursue a Cease-Fire**\
 `Can Netanyahu claim victory and push for a Gaza deal?`\
 https://nytimes.com/live/2024/07/30/opinion/thepoint/israel-assassination-haniyeh
