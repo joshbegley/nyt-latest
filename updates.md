@@ -1,3 +1,7 @@
+**Dodgers land biggest deadline prize in Jack Flaherty, Tigers get upside but also risk**\
+`The Dodgers got a great fit for their rotation in Flaherty. The Tigers are getting back big upside with Thayron Liranzo but also big risk.`\
+https://nytimes.com/athletic/5670552/2024/07/30/jack-flaherty-dodgers-tigers-trade-analysis/
+
 **MLB Trade Deadline Roundup: All the trades from (*Monday night through) Tuesday**\
 `Let's look at all the deals that came in during the final hours of the MLB trading period.`\
 https://nytimes.com/athletic/5667782/2024/07/30/mlb-trade-deadline-roundup-tuesday/
