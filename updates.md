@@ -1,3 +1,7 @@
+**A Salzburg Festival Tradition Deserves a Wider Audience**\
+`Robert Carsen’s take on “Jedermann,” a play staged at the festival every year, stands head and shoulders above other recent stagings of the work.`\
+https://nytimes.com/2024/07/31/theater/jedermann-salzburg-festival-tradition.html
+
 **Guatemala's Ruano Oliva wins first gold medal in country's history**\
 `Ruano Oliva's gold also marks a remarkable comeback for the 29-year-old. In 2021, she finished 26th out of 26 competitors in the event.`\
 https://nytimes.com/athletic/5671986/2024/07/31/adriana-ruano-oliva-olympics-womens-trap-shooting-guatemala-first-gold/
