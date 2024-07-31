@@ -1,3 +1,7 @@
+**Brentford's Thiago out until 'late 2024' with injury, Toney's status in doubt**\
+`Brentford&#8217;s record signing Igor Thiago has been ruled out until &#8220;late 2024&#8221; due to a knee injury.`\
+https://nytimes.com/athletic/5671793/2024/07/31/igor-thiago-injury-ivan-toney-brentford-future/
+
 **The Election of Divorced Men vs. All the Single Ladies**\
 `2024 and the voter gender divide.`\
 https://nytimes.com/2024/07/31/opinion/kamala-harris-trump-vance.html
