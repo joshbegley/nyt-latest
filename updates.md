@@ -1,3 +1,19 @@
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/07/31/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Live Election Updates: Trump Looks to Counter a Rejuvenated Democratic Rival**\
+`With Kamala Harris experiencing a surge of interest as she prepares to name a running mate, Donald Trump and JD Vance will be busy on the campaign trail, honing their attacks.`\
+https://nytimes.com/live/2024/07/31/us/harris-trump-election
+
+**El Ghazi nearing Cardiff move amid money owed by Mainz**\
+`Anwar El Ghazi is nearing a move to Cardiff City after leaving Mainz last year.`\
+https://nytimes.com/athletic/5665344/2024/07/31/anwar-el-ghazi-cardiff-transfer/
+
+**More Than 100 Silicon Valley Investors Pledge to Support Kamala Harris**\
+`The group, including Democratic donors such as Reid Hoffman and Vinod Khosla, has been organized under an effort called VCsForKamala.`\
+https://nytimes.com/2024/07/31/technology/silicon-valley-investors-support-kamala-harris.html
+
 **U.K. Police Officers Injured in Far-Right Riot After Deadly Stabbing**\
 `A day after a knife attack in Southport, northwestern England, left three young girls dead, unrest driven in part by disinformation online erupted on the town’s streets.`\
 https://nytimes.com/2024/07/31/world/europe/uk-stabbing-southport-riot-police.html

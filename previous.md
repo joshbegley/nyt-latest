@@ -1,3 +1,19 @@
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/07/31/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Live Election Updates: Trump Looks to Counter a Rejuvenated Democratic Rival**\
+`With Kamala Harris experiencing a surge of interest as she prepares to name a running mate, Donald Trump and JD Vance will be busy on the campaign trail, honing their attacks.`\
+https://nytimes.com/live/2024/07/31/us/harris-trump-election
+
+**El Ghazi nearing Cardiff move amid money owed by Mainz**\
+`Anwar El Ghazi is nearing a move to Cardiff City after leaving Mainz last year.`\
+https://nytimes.com/athletic/5665344/2024/07/31/anwar-el-ghazi-cardiff-transfer/
+
+**More Than 100 Silicon Valley Investors Pledge to Support Kamala Harris**\
+`The group, including Democratic donors such as Reid Hoffman and Vinod Khosla, has been organized under an effort called VCsForKamala.`\
+https://nytimes.com/2024/07/31/technology/silicon-valley-investors-support-kamala-harris.html
+
 **U.K. Police Officers Injured in Far-Right Riot After Deadly Stabbing**\
 `A day after a knife attack in Southport, northwestern England, left three young girls dead, unrest driven in part by disinformation online erupted on the town’s streets.`\
 https://nytimes.com/2024/07/31/world/europe/uk-stabbing-southport-riot-police.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5671185/2024/07/31/mets-trade-deadline-analysis-2/
 **Mbappe becomes majority owner of Ligue 2 club Caen as takeover approved**\
 `Real Madrid striker Kylian Mbappe has become the majority owner at Ligue 2 club Caen via his Coalition Capital investment fund.`\
 https://nytimes.com/athletic/5671395/2024/07/31/kylian-mbappe-owner-caen/
-
-**Andre Johnson in awe of Hall of Fame honor, even as others saw it coming**\
-`The receiver excelled during a 14-year career primarily with the Texans, impressing Kyle Shanahan, Mike McDaniel and others along the way.`\
-https://nytimes.com/athletic/5663987/2024/07/31/andre-johnson-texans-hall-of-fame/
-
-**Utah Jazz summer league observations: What I liked and what concerned me**\
-`Cody Williams can play but he needs strength. Keyonte George can dominate but can be inefficient. We examine seven Jazz youngsters' summers.`\
-https://nytimes.com/athletic/5666914/2024/07/31/utah-jazz-summer-league/
-
-**Why the Top Gymnast in France Is Competing for Algeria**\
-`A bitter fight with the French gymnastics federation threatened the Olympic hopes of Kaylia Nemour. Dual nationality offered a way out.`\
-https://nytimes.com/2024/07/31/world/olympics/kaylia-nemour-olympics-gymnastics-france-algeria.html
-
-**Do Ultraprocessed Foods Harm Your Brain?**\
-`Recent research, including a new study on red meat, has linked these foods to an increased risk of dementia. Experts are trying to understand why.`\
-https://nytimes.com/2024/07/31/well/eat/ultraprocessed-foods-brain-health.html
 
