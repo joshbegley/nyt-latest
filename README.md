@@ -1,3 +1,7 @@
+**Strong currents, blistering heat and a thrilling finish make for a wild triathlon.**\
+`Alex Yee overcame a big lead to pull of a dramatic comeback to win the men’s race.`\
+https://nytimes.com/2024/07/31/world/olympics/triathlon-alex-yee.html
+
 **Some Israelis celebrate, while others brace for retaliation.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/some-israelis-celebrate-while-others-brace-for-retaliation
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/technology/personaltech/smartphone-sleep-features
 **A Test for Life Versus Non-Life**\
 `In a new book, physicist Sara Walker argues that assembly theory can explain what life is, and even help scientists create new forms of it.`\
 https://nytimes.com/2024/07/31/science/assembly-theory-life-sara-walker.html
-
-**Can I Confront the Woman Who Stole My Late Sister’s Evening Gowns?**\
-`A grieving reader was shocked when dresses that her sister had set aside for her were taken by a friend just days after her sister’s death.`\
-https://nytimes.com/2024/07/31/style/family-bequests.html
 
