@@ -1,3 +1,11 @@
+**142 Picture Prompts to Inspire Student Writing**\
+`A school year’s worth of short, accessible image-driven posts that invite a variety of kinds of writing.`\
+https://nytimes.com/2024/07/31/learning/142-picture-prompts-to-inspire-student-writing.html
+
+**Review: In ‘Pamela Palmer,’ a Blonde, a Gumshoe and an Existential Mystery**\
+`David Ives’s new play at the Williamstown Theater Festival is less a whodunit than a who done what.`\
+https://nytimes.com/2024/07/31/theater/pamela-palmer-review-williamstown-theater-festival.html
+
 **‘20th Hijacker’ Seeks Transfer From Federal Supermax to French Prison**\
 `After 20 years in a supermax prison in Colorado, the only person to be convicted in connection with the 9/11 attacks wants to serve his life sentence in his homeland.`\
 https://nytimes.com/2024/07/31/us/politics/zacarias-moussaoui-france-prison.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/31/world/americas/venezuela-election-carter-center-d
 **'Buffon', a Ramos lookalike and a 'lucky charm': The youngsters on tour with Madrid**\
 `Madrid have brought 12 youngsters with them to the United States - here's who they are and what their futures look like`\
 https://nytimes.com/athletic/5671989/2024/07/31/real-madrid-academy-youngsters-preseason/
-
-**Violence Breaks Out in English Town After Deadly Stabbing**\
-`Far-right protesters attacked a mosque in Southport, England, in response to a stabbing spree at a dance class that killed three girls. Dozens of police officers were injured in the riot, which was fueled in part by online disinformation about the attacker’s identity.`\
-https://nytimes.com/video/world/europe/100000009602586/southport-uk-riot-girls-stabbing.html
-
-**Scoop City: A Chicago star gets paid**\
-`A look at DJ Moore's extension, Brock Purdy's career and the Colts' approach to Anthony Richardson in year two.`\
-https://nytimes.com/athletic/5672260/2024/07/31/dj-moore-extension-scoop-city/
 
