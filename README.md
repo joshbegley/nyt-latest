@@ -1,3 +1,7 @@
+**U.K. Police Officers Injured in Far-Right Riot After Deadly Stabbing**\
+`A day after a knife attack in Southport, northwestern England, left three young girls dead, unrest driven in part by disinformation online erupted on the town’s streets.`\
+https://nytimes.com/2024/07/31/world/europe/uk-stabbing-southport-riot-police.html
+
 **Boeing Names Robert Ortberg as Its Chief Executive**\
 `The company has been under pressure to improve quality and safety after a panel blew away from a 737 Max plane during an Alaska Airlines flight in January.`\
 https://nytimes.com/2024/07/31/business/boeing-kelly-ortberg-ceo.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/world/olympics/kaylia-nemour-olympics-gymnastics-
 **Do Ultraprocessed Foods Harm Your Brain?**\
 `Recent research, including a new study on red meat, has linked these foods to an increased risk of dementia. Experts are trying to understand why.`\
 https://nytimes.com/2024/07/31/well/eat/ultraprocessed-foods-brain-health.html
-
-**Malik Nabers practice diary: The Giants' plan for him, his 'long-lost brother' and cutting knee pads**\
-`Nabers on his often chippy battles with CB Deonte Banks: "That’s my dog. Me and him are like twins. That’s like my long-lost brother."`\
-https://nytimes.com/athletic/5670810/2024/07/31/new-york-giants-malik-nabers-practice-diary-training-camp/
 
