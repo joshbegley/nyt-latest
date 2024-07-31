@@ -27,7 +27,7 @@ https://nytimes.com/2024/07/31/crosswords/spelling-bee-forum.html
 https://nytimes.com/2024/07/31/world/middleeast/ismail-haniyeh-dead.html
 
 **Here’s the latest on the assassination.**\
-`By Farnaz Fassihi, Patrick Kingsley, Adam Rasgon and Ronen Bergman`\
+`By Patrick Kingsley, Farnaz Fassihi, Adam Rasgon and Ronen Bergman`\
 https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/heres-the-latest-on-the-assassination
 
 **Live Updates: A Top Hamas Leader Is Killed in Iran**\
