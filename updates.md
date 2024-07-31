@@ -1,3 +1,11 @@
+**Full of Oneself**\
+`Jackson and Ben Matz make their collaborative debut.`\
+https://nytimes.com/2024/07/30/crosswords/daily-puzzle-2024-07-31.html
+
+**Notes on Wilfredo Lara, Jacob Bresnahan and other prospects in smaller deadline trades**\
+`The Marlins, Giants, Cubs, Angels and Phillies all landed prospects worth noting in smaller deals.`\
+https://nytimes.com/athletic/5670753/2024/07/30/trade-deadline-prospect-analysis/
+
 **Why the Phillies decided to move on from Gregory Soto and what they see in Tanner Banks**\
 `The Phillies were never sure they could trust Soto, whom they dealt to Baltimore just before the deadline. They believe Banks is an upgrade.`\
 https://nytimes.com/athletic/5670671/2024/07/30/gregory-soto-phillies-trade-tanner-banks/

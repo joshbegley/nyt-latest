@@ -1,3 +1,11 @@
+**Full of Oneself**\
+`Jackson and Ben Matz make their collaborative debut.`\
+https://nytimes.com/2024/07/30/crosswords/daily-puzzle-2024-07-31.html
+
+**Notes on Wilfredo Lara, Jacob Bresnahan and other prospects in smaller deadline trades**\
+`The Marlins, Giants, Cubs, Angels and Phillies all landed prospects worth noting in smaller deals.`\
+https://nytimes.com/athletic/5670753/2024/07/30/trade-deadline-prospect-analysis/
+
 **Why the Phillies decided to move on from Gregory Soto and what they see in Tanner Banks**\
 `The Phillies were never sure they could trust Soto, whom they dealt to Baltimore just before the deadline. They believe Banks is an upgrade.`\
 https://nytimes.com/athletic/5670671/2024/07/30/gregory-soto-phillies-trade-tanner-banks/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5670274/2024/07/30/qinwen-zheng-emma-navarro-olympi
 **Tampa Bay Rays get county approval for new stadium project**\
 `The Rays' new ballpark would have a fixed roof and would be scheduled to open for the 2028 season.`\
 https://nytimes.com/athletic/5670701/2024/07/30/tampa-bay-rays-new-ballpark-county-approval/
-
-**Chargers training camp, Day 6: Joshua Palmer, DJ Chark have a statement practice**\
-`The Chargers have a big void to fill after cutting ties with Keenan Allen and Mike Williams. Are Palmer and Chark up to the task? `\
-https://nytimes.com/athletic/5670620/2024/07/30/chargers-training-camp-joshua-palmer-dj-chark/
-
-**Cubs' Jed Hoyer looked to 2025 with trades and wants more questions answered**\
-`Hoyer will be paying attention to how the offense performs the rest of the way so he can get a good idea of how it stands going into 2025.`\
-https://nytimes.com/athletic/5670609/2024/07/30/jed-hoyer-cubs-trade-deadline-reaction/
 
