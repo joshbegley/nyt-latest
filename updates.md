@@ -1,3 +1,7 @@
+**Word of the Day: purportedly**\
+`This word has appeared in 124 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/07/31/learning/word-of-the-day-purportedly.html
+
 **Yankees back Clay Holmes after another blown save: ‘That’s our closer’**\
 `The Yankees battled back to beat the Phillies 7-6 in 12 innings Tuesday night.`\
 https://nytimes.com/athletic/5671162/2024/07/31/yankees-closer-clay-holmes-blown-save-phillies/

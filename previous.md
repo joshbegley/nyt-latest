@@ -1,3 +1,7 @@
+**Word of the Day: purportedly**\
+`This word has appeared in 124 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/07/31/learning/word-of-the-day-purportedly.html
+
 **Yankees back Clay Holmes after another blown save: ‘That’s our closer’**\
 `The Yankees battled back to beat the Phillies 7-6 in 12 innings Tuesday night.`\
 https://nytimes.com/athletic/5671162/2024/07/31/yankees-closer-clay-holmes-blown-save-phillies/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5670879/2024/07/31/mlb-scouting-notebook-fantasy-ba
 **Twins’ failed trade deadline has roots in ownership’s decision to slash payroll**\
 `The Twins entered advanced discussions with the Blue Jays to land a top trade target in Yusei Kikuchi only to get priced out in the end.`\
 https://nytimes.com/athletic/5671013/2024/07/31/twins-failed-trade-deadline/
-
-**What Ethan Nwaneri's pre-season reveals about his readiness for Arsenal's first team**\
-`The 17-year-old's strengths and weaknesses as he seeks the thumbs up from Arteta for 2024-25`\
-https://nytimes.com/athletic/5668113/2024/07/31/ethan-nwaneri-arsenal-first-team/
 
