@@ -1,3 +1,15 @@
+**Broncos WR Josh Reynolds 'something else' while connecting with Bo Nix**\
+`The free agent from the Lions gives Sean Payton the type of big body he wants in Denver's receiving corps.`\
+https://nytimes.com/athletic/5672668/2024/07/31/broncos-camp-josh-reynolds/
+
+**Bill Ackman Abruptly Withdraws Planned I.P.O.**\
+`The announcement came a day after he had scaled back the expected size of the offering.`\
+https://nytimes.com/2024/07/31/business/bill-ackman-pershing-square-ipo.html
+
+**Canada reach Olympic quarter-finals despite spying scandal points deduction**\
+`Canada have qualified for the quarterfinals of the Olympic women’s soccer competition — despite the defending champions being deducted six points for spying on opponents earlier in the group stage.`\
+https://nytimes.com/athletic/5671599/2024/07/31/olympics-canada-women-soccer-colombia/
+
 **The Apple of One Business Reporter’s Eye**\
 `Since 2022, Tripp Mickle has covered news surrounding one of the biggest technology companies in Silicon Valley.`\
 https://nytimes.com/2024/07/31/insider/apple-beat.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/31/us/politics/assassinations-middle-east-biden.html
 **Musk-Backed Super PAC Shakes Up Pro-Trump Field Program**\
 `The group, America PAC, is in some disarray for now as it overhauls its program to turn out voters for Donald J. Trump.`\
 https://nytimes.com/2024/07/31/us/politics/trump-musk-super-pac.html
-
-**Man Gets 20 Years for Fatally Stabbing Teenager on River Tubing Trip**\
-`Nicolae Miu, 54, was sentenced on Wednesday for killing a 17-year-old and wounding four others on a Wisconsin river in 2022, the authorities said.`\
-https://nytimes.com/2024/07/31/us/apple-river-stabbing-nicolae-miu-sentencing.html
-
-**Astros designate reliever Rafael Montero for assignment**\
-`Montero accrued minus-0.4 wins above replacement after signing the contract.`\
-https://nytimes.com/athletic/5672822/2024/07/31/astros-dfa-rafael-montero/
-
-**Meta Says It Will Continue Spending, as Growth Surges**\
-`The company has been investing in artificial intelligence technologies, as well as building the immersive world of the metaverse.`\
-https://nytimes.com/2024/07/31/technology/meta-earnings-artificial-intelligence.html
 

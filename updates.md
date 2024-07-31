@@ -1,3 +1,15 @@
+**Broncos WR Josh Reynolds 'something else' while connecting with Bo Nix**\
+`The free agent from the Lions gives Sean Payton the type of big body he wants in Denver's receiving corps.`\
+https://nytimes.com/athletic/5672668/2024/07/31/broncos-camp-josh-reynolds/
+
+**Bill Ackman Abruptly Withdraws Planned I.P.O.**\
+`The announcement came a day after he had scaled back the expected size of the offering.`\
+https://nytimes.com/2024/07/31/business/bill-ackman-pershing-square-ipo.html
+
+**Canada reach Olympic quarter-finals despite spying scandal points deduction**\
+`Canada have qualified for the quarterfinals of the Olympic women’s soccer competition — despite the defending champions being deducted six points for spying on opponents earlier in the group stage.`\
+https://nytimes.com/athletic/5671599/2024/07/31/olympics-canada-women-soccer-colombia/
+
 **The Apple of One Business Reporter’s Eye**\
 `Since 2022, Tripp Mickle has covered news surrounding one of the biggest technology companies in Silicon Valley.`\
 https://nytimes.com/2024/07/31/insider/apple-beat.html
