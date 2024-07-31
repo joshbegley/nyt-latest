@@ -1,3 +1,7 @@
+**Strong currents, blistering heat and a thrilling finish make for a wild triathlon.**\
+`Alex Yee overcame a big lead to pull of a dramatic comeback to win the men’s race.`\
+https://nytimes.com/2024/07/31/world/olympics/triathlon-alex-yee.html
+
 **Some Israelis celebrate, while others brace for retaliation.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/some-israelis-celebrate-while-others-brace-for-retaliation
