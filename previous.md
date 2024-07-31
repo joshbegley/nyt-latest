@@ -2,8 +2,8 @@
 `Marta will go down as one of the greatest to ever play. How a legendary career possibly ends in Olympic heartbreak`\
 https://nytimes.com/athletic/5671350/2024/07/31/marta-brazil-olympics-legacy/
 
-**Former President of Guinea Convicted in Stadium Massacre and Rapes**\
-`The West African country’s former military leader and some of his top aides were found guilty of crimes against humanity committed during and after a pro-democracy demonstration in 2009.`\
+**Former President of Guinea Convicted of Ordering Massacre in Stadium**\
+`The West African country’s former military leader and some of his top aides were found guilty of crimes against humanity for mass murder and rapes committed during and after a pro-democracy demonstration in 2009.`\
 https://nytimes.com/2024/07/31/world/africa/guinea-moussa-dadis-camara-guilty.html
 
 **Biden Administration Begins Paying Farmers Who Faced Discrimination**\
