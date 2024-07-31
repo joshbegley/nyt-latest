@@ -1,3 +1,7 @@
+**‘We’re All Living the Olympics Through TikTok Now’**\
+`In NBC’s quest to provide wall-to-wall coverage of the Paris Games, the TV network has aimed to dominate a different device: your phone.`\
+https://nytimes.com/2024/07/31/style/living-the-olympics-through-tiktok.html
+
 **12 Medals and Counting: Ledecky Ties for Most Decorated U.S. Female Olympian**\
 `Katie Ledecky won gold in the 1,500 freestyle final, bringing her medal count up to 12, matching the record for U.S. women across Olympic sports.`\
 https://nytimes.com/interactive/2024/07/31/sports/olympics/katie-ledecky-us-olympics-swimming.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5673115/2024/07/31/dallas-cowboys-standouts-bland-d
 **Fact-Checking Trump’s Remarks on Race**\
 `The former president falsely accused Vice President Kamala Harris of “only promoting” her Indian heritage, among other inaccurate claims. Here’s a fact check.`\
 https://nytimes.com/2024/07/31/us/politics/trump-nabj-fact-check.html
-
-**Léon Marchand is the superstar and French sports hero these Olympics needed**\
-`Every epic needs a hero who descends from another world with abilities we can't quite comprehend. For these Olympics, it's Léon Marchand.`\
-https://nytimes.com/athletic/5673096/2024/07/31/leon-marchand-olympics-swimming-france-superstar-gold/
 
