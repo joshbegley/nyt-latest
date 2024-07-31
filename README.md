@@ -1,3 +1,11 @@
+**Back-to-Back Assassinations in Middle East Scramble Biden’s Hopes for Peace**\
+`President Biden had anticipated using his remaining time in office to finally bring an end to the war in Gaza. But that was Monday.`\
+https://nytimes.com/2024/07/31/us/politics/assassinations-middle-east-biden.html
+
+**Musk-Backed Super PAC Shakes Up Pro-Trump Field Program**\
+`The group, America PAC, is in some disarray for now as it overhauls its program to turn out voters for Donald J. Trump.`\
+https://nytimes.com/2024/07/31/us/politics/trump-musk-super-pac.html
+
 **Man Gets 20 Years for Fatally Stabbing Teenager on River Tubing Trip**\
 `Nicolae Miu, 54, was sentenced on Wednesday for killing a 17-year-old and wounding four others on a Wisconsin river in 2022, the authorities said.`\
 https://nytimes.com/2024/07/31/us/apple-river-stabbing-nicolae-miu-sentencing.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/31/arts/television/colin-jost-jeopardy-spinoff-host.
 **After Vance’s Rough Debut, Trump Downplays Importance of V.P. Choice**\
 `Donald Trump was asked about his selection of a vice president during an appearance before the National Association of Black Journalists on Wednesday.`\
 https://nytimes.com/live/2024/07/31/us/harris-trump-election/after-vances-rough-debut-trump-downplays-importance-of-vp-choice
-
-**To the surprise of no one, Katie Ledecky once again laps the competition.**\
-`Katie Ledecky comfortably won the 1,500-meter freestyle, beating her winning time from the Tokyo Games by more than seven seconds.`\
-https://nytimes.com/2024/07/31/world/olympics/katie-ledecky-1500.html
-
-**In Juan Soto's only guaranteed season, Cashman discusses why Yankees didn't go all in at the deadline**\
-`The Yankees GM met with the media on the morning after the trade deadline to go over the team's recent moves.`\
-https://nytimes.com/athletic/5671039/2024/07/31/yankees-trade-deadline-juan-soto-cashman/
 
