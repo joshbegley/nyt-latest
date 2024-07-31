@@ -1,3 +1,7 @@
+**The stock market grew turbulent this month as investors began to position for a rate cut.**\
+`Wall Street isn’t expecting the Fed to start lowering rates uxpecting the Federal Reserve to keep rates steady for now, but start lowering rates in September.`\
+https://nytimes.com/live/2024/07/31/business/fed-meeting-interest-rates/the-stock-market-grew-turbulent-this-month-as-investors-began-to-position-for-a-rate-cut
+
 **Lowetide: Why the Oilers' active summer brings back a flood of memories**\
 `Oilers fans don't care at all about how the Stanley Cup is won, only that it happens again.`\
 https://nytimes.com/athletic/5668474/2024/07/31/edmonton-oilers-offseason-memories/

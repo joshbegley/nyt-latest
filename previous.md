@@ -1,3 +1,7 @@
+**The stock market grew turbulent this month as investors began to position for a rate cut.**\
+`Wall Street isn’t expecting the Fed to start lowering rates uxpecting the Federal Reserve to keep rates steady for now, but start lowering rates in September.`\
+https://nytimes.com/live/2024/07/31/business/fed-meeting-interest-rates/the-stock-market-grew-turbulent-this-month-as-investors-began-to-position-for-a-rate-cut
+
 **Lowetide: Why the Oilers' active summer brings back a flood of memories**\
 `Oilers fans don't care at all about how the Stanley Cup is won, only that it happens again.`\
 https://nytimes.com/athletic/5668474/2024/07/31/edmonton-oilers-offseason-memories/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5652448/2024/07/31/daphne-van-domselaar-arsenal-sig
 **Diogo Jota interview: Slot's first impressions, injuries - and his summer with Ronaldo**\
 `Portuguese attacker had a frustrating end to last season and summer but is determined to make up for lost time `\
 https://nytimes.com/athletic/5669095/2024/07/31/diogo-jota-liverpool-slot-ronaldo/
-
-**Manchester City fined more than £2m for late kick-offs**\
-`Manchester City have been fined more than £2million by the Premier League relating to kick-off and restart obligations.`\
-https://nytimes.com/athletic/5672084/2024/07/31/manchester-city-kick-offs-fine/
 
