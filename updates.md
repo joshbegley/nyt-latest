@@ -1,3 +1,7 @@
+**Wednesday Briefing**\
+`The killing of a top Hamas leader in Iran.`\
+https://nytimes.com/2024/07/31/world/europe/hamas-iran-southport-booker.html
+
 **Twins’ failed trade deadline has roots in ownership’s decision to slash payroll**\
 `The Twins entered advanced discussions with the Blue Jays to land a top trade target in Yusei Kikuchi only to get priced out in the end.`\
 https://nytimes.com/athletic/5671013/2024/07/31/twins-failed-trade-deadline/
