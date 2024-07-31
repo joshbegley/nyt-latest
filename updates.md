@@ -1,3 +1,7 @@
+**Boar’s Head Recalls 7 Million More Pounds of Meat Amid Listeria Outbreak**\
+`The announcement came less than a week after Boar’s Head recalled more than 200,000 pounds of meat during an outbreak that has killed two and sickened nearly three dozen.`\
+https://nytimes.com/2024/07/30/business/boars-head-deli-recall-listeria.html
+
 **What We Know About Ismail Haniyeh, the Hamas Political Leader Killed in Tehran**\
 `He was central to the group’s high-stakes negotiations and diplomacy.`\
 https://nytimes.com/2024/07/30/world/middleeast/ismail-haniyeh-hamas-iran.html
