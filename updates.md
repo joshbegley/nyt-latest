@@ -1,3 +1,11 @@
+**Some Republicans Embrace Conspiracy Theories on Trump Assassination**\
+`Right-wing lawmakers and candidates have made baseless suggestions that the shooting was orchestrated by Democrats or government actors who targeted former President Donald J. Trump.`\
+https://nytimes.com/2024/07/31/us/politics/trump-assassination-republicans-conspiracy-theories.html
+
+**The Debate Over Gender-Affirming Care**\
+`Responses to a Pamela Paul column that criticized such care as ineffective. Also: Scrutinizing the candidates; Project 2025; Hillary Clinton’s advice for Kamala Harris.`\
+https://nytimes.com/2024/07/31/opinion/gender-affirming-care.html
+
 **Bill Belichick adds fantasy football show to upcoming media slate**\
 `The show will feature Belichick giving team-by-team and game-by-game breakdowns each week of the 2024 NFL season.`\
 https://nytimes.com/athletic/5672238/2024/07/31/bill-belichick-fantasy-football-show/
