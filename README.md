@@ -1,3 +1,11 @@
+**Some Republicans Embrace Conspiracy Theories on Trump Assassination**\
+`Right-wing lawmakers and candidates have made baseless suggestions that the shooting was orchestrated by Democrats or government actors who targeted former President Donald J. Trump.`\
+https://nytimes.com/2024/07/31/us/politics/trump-assassination-republicans-conspiracy-theories.html
+
+**The Debate Over Gender-Affirming Care**\
+`Responses to a Pamela Paul column that criticized such care as ineffective. Also: Scrutinizing the candidates; Project 2025; Hillary Clinton’s advice for Kamala Harris.`\
+https://nytimes.com/2024/07/31/opinion/gender-affirming-care.html
+
 **Bill Belichick adds fantasy football show to upcoming media slate**\
 `The show will feature Belichick giving team-by-team and game-by-game breakdowns each week of the 2024 NFL season.`\
 https://nytimes.com/athletic/5672238/2024/07/31/bill-belichick-fantasy-football-show/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/31/world/middleeast/israel-army-bases-riots.html
 **The stock market grew turbulent this month as investors began to position for a rate cut.**\
 `Wall Street is expecting the Federal Reserve to keep rates steady for now, but start lowering them in September.`\
 https://nytimes.com/live/2024/07/31/business/fed-meeting-interest-rates/the-stock-market-grew-turbulent-this-month-as-investors-began-to-position-for-a-rate-cut
-
-**Lowetide: Why the Oilers' active summer brings back a flood of memories**\
-`Oilers fans don't care at all about how the Stanley Cup is won, only that it happens again.`\
-https://nytimes.com/athletic/5668474/2024/07/31/edmonton-oilers-offseason-memories/
-
-**Penguins mailbag: Trades, Sidney Crosby, Big Three's future**\
-`Why hasn't Crosby signed a new contract with the Penguins yet?`\
-https://nytimes.com/athletic/5672115/2024/07/31/penguins-sidney-crosby-contract-trades/
 
