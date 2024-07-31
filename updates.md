@@ -1,3 +1,7 @@
+**Underwater Robot Reveals ‘Enigmatic’ Shapes on the Bottom of Antarctic Ice**\
+`The new images of the melting underside of an ice shelf could help scientists better forecast how the continent is contributing to rising sea levels.`\
+https://nytimes.com/2024/07/31/climate/antarctic-glacier-underside.html
+
 **Missouri Man Is Freed After 1991 Murder Conviction Is Overturned**\
 `Christopher Dunn, who spent more than three decades in prison, was released one week after the Missouri attorney general blocked a judge’s order for his immediate release.`\
 https://nytimes.com/2024/07/31/us/christopher-dunn-prison-release-missouri.html
