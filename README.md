@@ -7,7 +7,7 @@ https://nytimes.com/2024/07/31/us/politics/uaw-kamala-harris.html
 https://nytimes.com/athletic/5672505/2024/07/31/olympics-gymnastics-pommel-horse-frederick-richard-paul-juda/
 
 **The Hottest Item at the Olympics Is a Chocolate Muffin**\
-`On a quest to fuel himself with thousands of calories a day, an Olympic swimmer found an unexpected delight and shared it with the world.`\
+`On a quest to fuel himself with thousands of calories a day, the Olympic swimmer Henrik Christiansen found an unexpected delight and shared it with the world.`\
 https://nytimes.com/2024/07/31/world/olympics/olympic-chocolate-muffin-henrik-christiansen.html
 
 **Why MLB's trade deadline is unlikely to move later in the season anytime soon**\
