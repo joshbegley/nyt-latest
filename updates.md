@@ -1,3 +1,23 @@
+**Bill Belichick adds fantasy football show to upcoming media slate**\
+`The show will feature Belichick giving team-by-team and game-by-game breakdowns each week of the 2024 NFL season.`\
+https://nytimes.com/athletic/5672238/2024/07/31/bill-belichick-fantasy-football-show/
+
+**Venezuelan Election Denounced by International Monitoring Group**\
+`The Carter Center, a leading pro-democracy organization, says Venezuela’s election violated the country’s own laws and was undemocratic.`\
+https://nytimes.com/2024/07/31/world/americas/venezuela-election-carter-center-democracy.html
+
+**'Buffon', a Ramos lookalike and a 'lucky charm': The youngsters on tour with Madrid**\
+`Madrid have brought 12 youngsters with them to the United States - here's who they are and what their futures look like`\
+https://nytimes.com/athletic/5671989/2024/07/31/real-madrid-academy-youngsters-preseason/
+
+**Violence Breaks Out in English Town After Deadly Stabbing**\
+`Far-right protesters attacked a mosque in Southport, England, in response to a stabbing spree at a dance class that killed three girls. Dozens of police officers were injured in the riot, which was fueled in part by online disinformation about the attacker’s identity.`\
+https://nytimes.com/video/world/europe/100000009602586/southport-uk-riot-girls-stabbing.html
+
+**Scoop City: A Chicago star gets paid**\
+`A look at DJ Moore's extension, Brock Purdy's career and the Colts' approach to Anthony Richardson in year two.`\
+https://nytimes.com/athletic/5672260/2024/07/31/dj-moore-extension-scoop-city/
+
 **The stock market grew turbulent this month as investors began to position for a rate cut.**\
 `Wall Street is expecting the Federal Reserve to keep rates steady for now, but start lowering them in September.`\
 https://nytimes.com/live/2024/07/31/business/fed-meeting-interest-rates/the-stock-market-grew-turbulent-this-month-as-investors-began-to-position-for-a-rate-cut
