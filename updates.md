@@ -1,3 +1,19 @@
+**Mets trade deadline takeaways: Why David Stearns said 'we're happy'**\
+`Huascar Brazobán improved a revamped bullpen as the Mets navigated a market in which astronomical asking prices were the norm.`\
+https://nytimes.com/athletic/5670606/2024/07/30/mets-trade-deadline-paul-blackburn/
+
+**Top prospect Holliday set to rejoin Orioloes**\
+`Holliday is expected to be added back to the active roster in the near future. `\
+https://nytimes.com/athletic/5670712/2024/07/30/jackson-holliday-baltimore-orioles-return/
+
+**‘Job’ Review: The Psychopath Will See You Now**\
+`A patient, a shrink and a gun are the raw ingredients of a chic, sadistic Broadway thriller.`\
+https://nytimes.com/2024/07/30/theater/job-review-broadway.html
+
+**Navarro blasts opponent Zheng after Olympic loss: 'I didn't respect her as a competitor'**\
+`Emma Navarro lost in three sets 7-6 (7), 6-7 (4), 6-1 to China's Qinwen Zheng in the third round of the Paris Olympics.`\
+https://nytimes.com/athletic/5670274/2024/07/30/qinwen-zheng-emma-navarro-olympics-tennis/
+
 **Cubs' Jed Hoyer looked to 2025 with trades and wants more questions answered in next 2 months**\
 `Hoyer will be paying attention to how the offense performs the rest of the way so he can get a good idea of how it stands going into 2025.`\
 https://nytimes.com/athletic/5670609/2024/07/30/jed-hoyer-cubs-trade-deadline-reaction/

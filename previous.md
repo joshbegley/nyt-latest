@@ -1,3 +1,19 @@
+**Mets trade deadline takeaways: Why David Stearns said 'we're happy'**\
+`Huascar Brazobán improved a revamped bullpen as the Mets navigated a market in which astronomical asking prices were the norm.`\
+https://nytimes.com/athletic/5670606/2024/07/30/mets-trade-deadline-paul-blackburn/
+
+**Top prospect Holliday set to rejoin Orioloes**\
+`Holliday is expected to be added back to the active roster in the near future. `\
+https://nytimes.com/athletic/5670712/2024/07/30/jackson-holliday-baltimore-orioles-return/
+
+**‘Job’ Review: The Psychopath Will See You Now**\
+`A patient, a shrink and a gun are the raw ingredients of a chic, sadistic Broadway thriller.`\
+https://nytimes.com/2024/07/30/theater/job-review-broadway.html
+
+**Navarro blasts opponent Zheng after Olympic loss: 'I didn't respect her as a competitor'**\
+`Emma Navarro lost in three sets 7-6 (7), 6-7 (4), 6-1 to China's Qinwen Zheng in the third round of the Paris Olympics.`\
+https://nytimes.com/athletic/5670274/2024/07/30/qinwen-zheng-emma-navarro-olympics-tennis/
+
 **Tampa Bay Rays get county approval for new stadium project**\
 `The Rays' new ballpark would have a fixed roof and would be scheduled to open for the 2028 season.`\
 https://nytimes.com/athletic/5670701/2024/07/30/tampa-bay-rays-new-ballpark-county-approval/
@@ -21,20 +37,4 @@ https://nytimes.com/video/us/politics/100000009601943/kamala-harris-atlanta-2024
 **Their Parents Fled War. Now South Sudan’s Young Team Is in the Olympics.**\
 `War, famine and floods have beleaguered the world’s youngest nation. The arrival of its men’s basketball team at the Paris Olympics is set to offer a modicum of hope.`\
 https://nytimes.com/2024/07/30/world/africa/olympics-basketball-south-sudan.html
-
-**Dodgers land biggest deadline prize in Jack Flaherty, Tigers get upside but also risk**\
-`The Dodgers got a great fit for their rotation in Flaherty. The Tigers are getting back big upside with Thayron Liranzo but also big risk.`\
-https://nytimes.com/athletic/5670552/2024/07/30/jack-flaherty-dodgers-tigers-trade-analysis/
-
-**MLB Trade Deadline Roundup: All the trades from (*Monday night through) Tuesday**\
-`Let's look at all the deals that came in during the final hours of the MLB trading period.`\
-https://nytimes.com/athletic/5667782/2024/07/30/mlb-trade-deadline-roundup-tuesday/
-
-**Seahawks camp: DK Metcalf bests Devon Witherspoon as offense bounces back**\
-`After the defense dominated the first day in pads, Metcalf and the offense bounced back, highlighted by a one-handed touchdown.`\
-https://nytimes.com/athletic/5670447/2024/07/30/seahawks-dk-metcalf-devon-witherspoon/
-
-**No, You Can’t Beat an Olympic Table Tennis Player**\
-`An N.B.A. star’s trash talk was good-natured but typical, elite players said. They say they play along with it … to a point.`\
-https://nytimes.com/2024/07/30/sports/table-tennis-anthony-edwards.html
 
