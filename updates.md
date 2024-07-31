@@ -1,3 +1,7 @@
+**Strikes in Iran and Lebanon Raise Risk of Escalation, but All-Out War Is Not Inevitable**\
+`The scale of the reaction from Iran and its regional proxies to the attacks on two of Israel’s largest foes could determine whether the low-level regional battle tips into a full-scale conflict.`\
+https://nytimes.com/2024/07/31/world/middleeast/iran-lebanon-israel-war-assassination.html
+
 **Don’t Let Your Smartphone Keep You Up at Night**\
 `These features to let you wind down for bed, mute notifications and stay on a regular sleep schedule may help you get more rest.`\
 https://nytimes.com/2024/07/31/technology/personaltech/smartphone-sleep-features.html
