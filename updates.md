@@ -1,3 +1,11 @@
+**Rosenthal: In a busy MLB trade deadline, quantity of deals overshadowed quality of players**\
+`There were 60 trades made in the final six days of the deadline, but not many stars changing teams.`\
+https://nytimes.com/athletic/5673041/2024/07/31/mlb-trade-deadline-recap-rosenthal/
+
+**Trump Questioned Harris’s Racial Identity**\
+`Also, assassinations of Hezbollah and Hamas leaders stir fears in the Middle East. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/07/31/briefing/trump-harris-interview-assassination-iran.html
+
 **This Is What Happens When Black Women Challenge Trump**\
 `In an interview on Wednesday, his facade crumbled into outright antagonism.`\
 https://nytimes.com/live/2024/07/30/opinion/thepoint/trump-nabj-black-women-harris

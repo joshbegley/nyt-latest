@@ -1,3 +1,11 @@
+**Anna Netrebko, Shunned in U.S. Over Putin Support, to Sing in Palm Beach**\
+`The star soprano, who lost work at American opera companies after Russia invaded Ukraine, will sing at a gala for Palm Beach Opera, her first American engagement since 2019.`\
+https://nytimes.com/2024/07/31/arts/music/anna-netrebko-palm-beach.html
+
+**Trump Says He Would Pardon Jan. 6 Rioters Who Attacked Police**\
+`Hundreds of people have been convicted in the storming of the Capitol in 2021, including those who assaulted officers.`\
+https://nytimes.com/2024/07/31/us/politics/trump-jan-6-pardons-nabj.html
+
 **Rosenthal: In a busy MLB trade deadline, quantity of deals overshadowed quality of players**\
 `There were 60 trades made in the final six days of the deadline, but not many stars changing teams.`\
 https://nytimes.com/athletic/5673041/2024/07/31/mlb-trade-deadline-recap-rosenthal/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/31/business/economy/michigan-supreme-court-minimum-w
 **After a defensive interview, Trump retreated to Truth Social for approval.**\
 `By Shawn McCreesh`\
 https://nytimes.com/live/2024/07/31/us/harris-trump-election/after-a-defensive-interview-trump-retreated-to-truth-social-for-approval
-
-**Monitoreo de la tormenta tropical Carlotta, en vivo**\
-`Consulta la trayectoria probable y las horas de llegada de los vientos de Carlotta.`\
-https://nytimes.com/interactive/2024/07/31/weather/carlotta-mapa-trayectoria.html
-
-**Why Are So Many Americans Choosing to Not Have Children?**\
-`It’s probably not selfishness, experts say. Even young adults who want children see an increasing number of obstacles.`\
-https://nytimes.com/2024/07/31/health/fertility-births-vance.html
 
