@@ -1,3 +1,7 @@
+**Biden Administration Begins Paying Farmers Who Faced Discrimination**\
+`The thousands of payouts, which will total $2 billion, follow years of delays and lawsuits that frustrated struggling Black farmers.`\
+https://nytimes.com/2024/07/31/business/biden-black-farmers-payments.html
+
 **Fofana on Fernandez: 'I know he is not racist. But he must learn from this'**\
 `Wesley Fofana is convinced Chelsea team-mate Enzo Fernandez is not a racist and says the fallout from his singing of an offensive chant is a thing of the past.`\
 https://nytimes.com/athletic/5671293/2024/07/31/wesley-fofana-enzo-fernandez-chelsea/
