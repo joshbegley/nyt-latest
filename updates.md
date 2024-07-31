@@ -1,3 +1,11 @@
+**Iran Has Accused Israel of Assassinations on Its Soil Before**\
+`Iran has blamed Israel for a series of targeted killings carried out within its borders.`\
+https://nytimes.com/2024/07/31/world/middleeast/iran-israel-assassinations.html
+
+**Live Updates: A Top Hamas Leader Is Killed in Iran**\
+`Hamas accused Israel of killing Ismail Haniyeh, who was in Tehran for the inauguration of Iran’s new president. He was a key player in negotiations to stop the fighting in Gaza.`\
+https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran
+
 **A Top Hamas Leader Assassinated in Iran**\
 `Ismail Haniyeh was in Tehran to attend the inauguration of Iran’s new president.`\
 https://nytimes.com/video/world/middleeast/100000009602248/haniyeh-hamas-iran-assassination.html
