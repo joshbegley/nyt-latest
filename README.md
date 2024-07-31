@@ -26,7 +26,7 @@ https://nytimes.com/2024/07/31/us/politics/trump-assassination-republicans-consp
 `Responses to a Pamela Paul column that criticized such care as ineffective. Also: Scrutinizing the candidates; Project 2025; Hillary Clinton’s advice for Kamala Harris.`\
 https://nytimes.com/2024/07/31/opinion/gender-affirming-care.html
 
-**Bill Belichick adds fantasy football show to upcoming media slate**\
+**Bill Belichick adds weekly football analysis show to upcoming media slate**\
 `The show will feature Belichick giving team-by-team and game-by-game breakdowns each week of the 2024 NFL season.`\
 https://nytimes.com/athletic/5672238/2024/07/31/bill-belichick-fantasy-football-show/
 
