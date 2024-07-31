@@ -1,3 +1,11 @@
+**Ledecky sets Olympic record in 1500M freestyle**\
+`Katie Ledecky has not lost this race in more than 14 years, and she owns the 20 fastest times in world history in the event.`\
+https://nytimes.com/athletic/5672462/2024/07/31/katie-ledecky-gold-olympics-1500-meters/
+
+**USWNT 2 Australia 1: Korbin Albert's helps U.S. head to Olympic quarterfinal undefeated**\
+`Here's how the U.S. wrapped its Olympic group stage.`\
+https://nytimes.com/athletic/5670984/2024/07/31/uswnt-australia-korbin-albert-olympics/
+
 **Simone Biles reveals U.S. women's gymnastics team’s throwback nickname**\
 `Take a look back at the previous U.S. women's Olympic gymnastics teams that earned medals and nicknames.`\
 https://nytimes.com/athletic/5672406/2024/07/31/usa-gymnastics-team-nicknames-history/

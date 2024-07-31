@@ -7,11 +7,11 @@ https://nytimes.com/athletic/5672406/2024/07/31/usa-gymnastics-team-nicknames-hi
 https://nytimes.com/athletic/5672606/2024/07/31/bears-dj-moore-contract-reaction/
 
 **Ledecky sets Olympic record in 1500M freestyle**\
-`Katie Ledecky needs one more to tie Soviet gymnast Larisa Latynina for the most gold medals for any female Olympian.`\
+`Katie Ledecky has not lost this race in more than 14 years, and she owns the 20 fastest times in world history in the event.`\
 https://nytimes.com/athletic/5672462/2024/07/31/katie-ledecky-gold-olympics-1500-meters/
 
 **USWNT 2 Australia 1: Korbin Albert's helps U.S. head to Olympic quarterfinal undefeated**\
-`Here's how the U.S. wrapped the Olympic group stage.`\
+`Here's how the U.S. wrapped its Olympic group stage.`\
 https://nytimes.com/athletic/5670984/2024/07/31/uswnt-australia-korbin-albert-olympics/
 
 **Two Al Jazeera Journalists Were Killed in Israeli Airstrike on Gaza**\
