@@ -1,3 +1,7 @@
+**Ismail Haniyeh, a Top Hamas Leader, Is Dead at 62**\
+`Mr. Haniyeh, the militant group’s exiled political chief, was Hamas’s top negotiator in cease-fire talks to end the nearly 10-month-old war in Gaza.`\
+https://nytimes.com/2024/07/31/world/middleeast/ismail-haniyeh-dead.html
+
 **Here’s the latest on the assassination.**\
 `By Farnaz Fassihi, Patrick Kingsley, Adam Rasgon and Ronen Bergman`\
 https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/heres-the-latest-on-the-assassination
