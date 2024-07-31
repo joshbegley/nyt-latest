@@ -1,3 +1,7 @@
+**Ismail Haniyeh, a top Hamas leader, has been killed, Iran says.**\
+`By Farnaz Fassihi and Ronen Bergman`\
+https://nytimes.com/live/2024/07/30/world/israel-gaza-war-lebanon-hezbollah/ismail-haniyeh-a-top-hamas-leader-has-been-killed-iran-says
+
 **Boar’s Head Recalls 7 Million More Pounds of Meat Amid Listeria Outbreak**\
 `The announcement came less than a week after Boar’s Head recalled more than 200,000 pounds of meat during an outbreak that has killed two and sickened more than two dozen.`\
 https://nytimes.com/2024/07/30/business/boars-head-deli-recall-listeria.html
