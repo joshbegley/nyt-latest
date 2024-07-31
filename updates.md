@@ -1,3 +1,15 @@
+**Padres’ A.J. Preller invites scrutiny about job security after emptying farm at trade deadline**\
+`Before targeting bullpen upgrades, team sources said the Padres explored adding the likes of Jazz Chisholm and Randy Arozarena.`\
+https://nytimes.com/athletic/5671191/2024/07/31/padres-aj-preller-invites/
+
+**'One of the top moments of my career': Tommy Pham returns with pinch hit grand slam**\
+`"We have a chance to do something special still," Pham said. He lit up the stadium and the dugout in an 8-1 victory.`\
+https://nytimes.com/athletic/5670846/2024/07/31/tommy-pham-cardinals-grand-slam-trade/
+
+**Quotation of the Day: Scammers Target Older Americans, and All Their Retirement Savings**\
+`Quotation of the Day for Wednesday, July 31, 2024.`\
+https://nytimes.com/2024/07/31/pageoneplus/quotation-of-the-day-scammers-target-older-americans-and-all-their-retirement-savings.html
+
 **Corrections: July 31, 2024**\
 `Corrections that appeared in print on Wednesday, July 31, 2024.`\
 https://nytimes.com/2024/07/31/pageoneplus/corrections-july-31-2024.html

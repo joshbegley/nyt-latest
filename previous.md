@@ -1,3 +1,15 @@
+**Padres’ A.J. Preller invites scrutiny about job security after emptying farm at trade deadline**\
+`Before targeting bullpen upgrades, team sources said the Padres explored adding the likes of Jazz Chisholm and Randy Arozarena.`\
+https://nytimes.com/athletic/5671191/2024/07/31/padres-aj-preller-invites/
+
+**'One of the top moments of my career': Tommy Pham returns with pinch hit grand slam**\
+`"We have a chance to do something special still," Pham said. He lit up the stadium and the dugout in an 8-1 victory.`\
+https://nytimes.com/athletic/5670846/2024/07/31/tommy-pham-cardinals-grand-slam-trade/
+
+**Quotation of the Day: Scammers Target Older Americans, and All Their Retirement Savings**\
+`Quotation of the Day for Wednesday, July 31, 2024.`\
+https://nytimes.com/2024/07/31/pageoneplus/quotation-of-the-day-scammers-target-older-americans-and-all-their-retirement-savings.html
+
 **Corrections: July 31, 2024**\
 `Corrections that appeared in print on Wednesday, July 31, 2024.`\
 https://nytimes.com/2024/07/31/pageoneplus/corrections-july-31-2024.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5668113/2024/07/31/ethan-nwaneri-arsenal-first-team
 **Why Jake O'Brien's return to the Premier League shouldn't alarm Crystal Palace fans**\
 `Palace supporters may see centre-back Jake O'Brien as ‘the one who got away’ following his move to Everton, but there’s more to it than that`\
 https://nytimes.com/athletic/5656543/2024/07/31/jake-obrien-crystal-palace-lyon-everton-textor/
-
-**The tragedy of Ahmed Refaat - and the questions that remain over his death**\
-`Refaat died leaving a trail of questions that shine a light on the actions of a variety of influential people and institutions in Egypt`\
-https://nytimes.com/athletic/5658228/2024/07/31/ahmed-refaat-death-egypt-mohamed-salah/
-
-**Jorge Soler trade could crowd outfield in 2025, but Braves says that's a good problem**\
-`Alex Anthopoulos said Soler was at the top of their list of possible outfield bats as they prepped for this trade deadline.`\
-https://nytimes.com/athletic/5671072/2024/07/31/braves-trade-deadline-outfield/
-
-**Liverpool's No 6 debate: What does Slot want and who could fill the role?**\
-`Questions remain on whether Endo is the right answer long term — and whether Liverpool can challenge for honours without strengthening`\
-https://nytimes.com/athletic/5668493/2024/07/31/liverpool-transfer-no6-targets/
 
