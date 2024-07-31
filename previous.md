@@ -1,3 +1,11 @@
+**Williams expected to stay at Athletic Bilbao despite Barcelona interest**\
+`The Spain winger has a release clause in the region of €55million but now appears set to stay at Athletic`\
+https://nytimes.com/athletic/5638499/2024/07/31/nico-williams-barcelona-athletic-bilbao/
+
+**The Angels didn't embrace a rebuild, or seemingly any plan for their future**\
+`The prospects the Angels got are solid, but the reality is that the team needed more out of this trade deadline and didn’t get it.`\
+https://nytimes.com/athletic/5671231/2024/07/31/angels-mlb-trade-deadline-rebuild-plan-future/
+
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/07/31/us/harris-trump-election/heres-the-latest-on-the-presidential-race
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5671115/2024/07/31/canada-soccer-cas-appeal-decisio
 **MLB trade deadline grades for all 30 teams: Savvy sellers, bold buyers get high marks**\
 `The Marlins and Rays dominated the deadline with smart selling. The Mariners and Padres aggressively filled key needs. And the Rockies ...`\
 https://nytimes.com/athletic/5666972/2024/07/31/mlb-trade-deadline-grades-2024/
-
-**The Mets' deadline was disappointing. Why that's perfectly OK**\
-`Even if David Stearns and the Mets wanted to do more, the paths to do so were painful.`\
-https://nytimes.com/athletic/5671185/2024/07/31/mets-trade-deadline-analysis-2/
-
-**Mbappe becomes majority owner of Ligue 2 club Caen as takeover approved**\
-`Real Madrid striker Kylian Mbappe has become the majority owner at Ligue 2 club Caen via his Coalition Capital investment fund.`\
-https://nytimes.com/athletic/5671395/2024/07/31/kylian-mbappe-owner-caen/
 

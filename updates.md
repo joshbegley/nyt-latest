@@ -1,3 +1,11 @@
+**Williams expected to stay at Athletic Bilbao despite Barcelona interest**\
+`The Spain winger has a release clause in the region of €55million but now appears set to stay at Athletic`\
+https://nytimes.com/athletic/5638499/2024/07/31/nico-williams-barcelona-athletic-bilbao/
+
+**The Angels didn't embrace a rebuild, or seemingly any plan for their future**\
+`The prospects the Angels got are solid, but the reality is that the team needed more out of this trade deadline and didn’t get it.`\
+https://nytimes.com/athletic/5671231/2024/07/31/angels-mlb-trade-deadline-rebuild-plan-future/
+
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/07/31/us/harris-trump-election/heres-the-latest-on-the-presidential-race
