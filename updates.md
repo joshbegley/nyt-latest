@@ -1,3 +1,7 @@
+**Here's how the Tigers' return for Jack Flaherty came together**\
+`The Tigers traded Jack Flaherty to the Dodgers for catcher Thayron Liranzo and shortstop Trey Sweeney on Tuesday. `\
+https://nytimes.com/athletic/5670921/2024/07/30/tigers-trade-return-jack-flaherty/
+
 **Astros trade deadline takeaways: Kikuchi's price, the search for offense and bullpen depth**\
 `Some feel that the Astros gave up too much for their new lefty starter. Houston also acquired a reliever but didn't add to their lineup.`\
 https://nytimes.com/athletic/5670908/2024/07/30/astros-trade-deadline-yusei-kikuchi-price/

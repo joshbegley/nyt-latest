@@ -1,3 +1,7 @@
+**Here's how the Tigers' return for Jack Flaherty came together**\
+`The Tigers traded Jack Flaherty to the Dodgers for catcher Thayron Liranzo and shortstop Trey Sweeney on Tuesday. `\
+https://nytimes.com/athletic/5670921/2024/07/30/tigers-trade-return-jack-flaherty/
+
 **Astros trade deadline takeaways: Kikuchi's price, the search for offense and bullpen depth**\
 `Some feel that the Astros gave up too much for their new lefty starter. Houston also acquired a reliever but didn't add to their lineup.`\
 https://nytimes.com/athletic/5670908/2024/07/30/astros-trade-deadline-yusei-kikuchi-price/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/30/opinion/thepoint/kamala-harris-atlanta-energ
 **Yankees backed out of trade for Jack Flaherty because of medical concerns: Sources**\
 `Since returning from a back issue that forced him to miss a start, Flaherty has 1.53 ERA in 17 2/3 innings over three outings`\
 https://nytimes.com/athletic/5670855/2024/07/30/yankes-jack-flaherty-trade-tigers/
-
-**How the Cubs lined up with the Rays for an Isaac Paredes trade: What's the catch?**\
-`A look at why the Cubs targeted their new third baseman, despite how doing so meant dealing with a shrewd organization in Tampa Bay.`\
-https://nytimes.com/athletic/5670774/2024/07/30/cubs-rays-isaac-parades-trade/
 
