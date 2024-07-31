@@ -1,3 +1,7 @@
+**Pentagon Data Shows High Suicide Rates Among Troops Exposed to Blasts**\
+`A military report on suicide rates broken down by occupation finds the highest rates among categories of troops that often work and train around weapons blasts.`\
+https://nytimes.com/2024/07/31/us/military-suicide-rates-report.html
+
 **Irresistible force of Nadalcaraz falls at the Olympics to an immovable object**\
 `Two of the best tennis players then and now finally know the feeling they inflict on so many: that the opponent is playing a different sport`\
 https://nytimes.com/athletic/5672470/2024/07/31/nadalcaraz-olympics-tennis-doubles/

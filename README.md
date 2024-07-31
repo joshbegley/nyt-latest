@@ -1,3 +1,7 @@
+**Two Al Jazeera Journalists Were Killed in Israeli Airstrike on Gaza**\
+`A reporter and a cameraman were working from or near the house of Ismail Haniyeh, the Hamas political chief who was assassinated on Tuesday.`\
+https://nytimes.com/2024/07/31/world/middleeast/al-jazeera-journalists-killed-airstrike-gaza.html
+
 **Pentagon Data Shows High Suicide Rates Among Troops Exposed to Blasts**\
 `A military report on suicide rates broken down by occupation finds the highest rates among categories of troops that often work and train around weapons blasts.`\
 https://nytimes.com/2024/07/31/us/military-suicide-rates-report.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5672506/2024/07/31/saudi-arabia-2034-world-cup-plan
 **Marchand wins gold, sets record in 200M butterfly**\
 `Léon Marchand set an Olympic record with a time of 1:51.21 in an incredible come-from-behind win over Hungary's Kristóf Milák. `\
 https://nytimes.com/athletic/5672403/2024/07/31/leon-marchand-france-olympics-swimming/
-
-**Powell says a rate cut ‘could be on the table’ at the Fed’s next meeting.**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/07/31/business/fed-meeting-interest-rates/powell-says-a-rate-cut-could-be-on-the-table-at-the-feds-next-meeting
 
