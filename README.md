@@ -1,3 +1,11 @@
+**Some Israelis celebrate, while others brace for retaliation.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/some-israelis-celebrate-while-others-brace-for-retaliation
+
+**Dudline? Why MLB's trade deadline fell flat this season**\
+`With so many teams chasing a wild-card berth, trades for big names were a rarity at this deadline. Will that trend continue? `\
+https://nytimes.com/athletic/5671823/2024/07/31/dudline-mlb-trade-deadline-falls-flat/
+
 **Jamaica's Shericka Jackson won't race 100m at Olympics**\
 `Richardson will still have to deal with Jamaica’s legendary sprinter Shelly-Ann Fraser-Price, who is in her fifth and likely final Olympics.`\
 https://nytimes.com/athletic/5671587/2024/07/31/jamaica-shericka-jackson-100-meter-olympics/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/31/science/assembly-theory-life-sara-walker.html
 **Can I Confront the Woman Who Stole My Late Sister’s Evening Gowns?**\
 `A grieving reader was shocked when dresses that her sister had set aside for her were taken by a friend just days after her sister’s death.`\
 https://nytimes.com/2024/07/31/style/family-bequests.html
-
-**A look into Dylan Raiola's offseason prep from the coaches and teammates who joined him**\
-`“He’s obsessed with trying to be really, really, really good,” Nebraska OC Marcus Satterfield said of the true freshman QB.`\
-https://nytimes.com/athletic/5671664/2024/07/31/dylan-raiola-nebraska-college-football-quarterback-offseason/
-
-**The Athletic FC: A player's death and unanswered questions**\
-`Today we detail the tragic story of Ahmed Refaat, the Egyptian footballer who died months after suffering a heart attack on the pitch`\
-https://nytimes.com/athletic/5671590/2024/07/31/athletic-newsletter-ahmed-refaat/
 
