@@ -1,3 +1,11 @@
+**Scotland Yard Will Review Email Deletions in News Corp Hacking Scandal**\
+`A preliminary inquiry threatens to reopen a tumultuous chapter in U.K. news media history. It could entangle The Washington Post’s publisher and other former News Corp figures.`\
+https://nytimes.com/2024/07/31/business/media/scotland-yard-email-news-corp-hacking.html
+
+**Michigan Court Clears Way for Higher Wages, Overruling Legislature**\
+`The ruling, raising the minimum wage and phasing out a lower wage for tipped workers, said legislators had acted improperly in dodging a referendum.`\
+https://nytimes.com/2024/07/31/business/economy/michigan-supreme-court-minimum-wage.html
+
 **After a defensive interview, Trump retreated to Truth Social for approval.**\
 `By Shawn McCreesh`\
 https://nytimes.com/live/2024/07/31/us/harris-trump-election/after-a-defensive-interview-trump-retreated-to-truth-social-for-approval
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/photo-shows
 **Tracking Tropical Storm Carlotta**\
 `See the likely path and wind arrival times for Carlotta.`\
 https://nytimes.com/interactive/2024/07/31/weather/carlotta-map-path-tracker.html
-
-**Thursday Briefing: Fears of a Wider Middle East War**\
-`Plus, an analysis of Venezuela’s vote and the Olympics’s slow pool`\
-https://nytimes.com/2024/07/31/briefing/haniyeh-venezuela-trump.html
-
-**Trump Downplays Importance of Choosing a Running Mate**\
-`During an interview at a gathering of the National Association of Black Journalists in Chicago, former President Donald J. Trump said that “the choice of a vice president makes no difference.”`\
-https://nytimes.com/video/us/elections/100000009603998/nabj-trump-vance-chicago.html
 

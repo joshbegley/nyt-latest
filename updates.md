@@ -1,3 +1,11 @@
+**Scotland Yard Will Review Email Deletions in News Corp Hacking Scandal**\
+`A preliminary inquiry threatens to reopen a tumultuous chapter in U.K. news media history. It could entangle The Washington Post’s publisher and other former News Corp figures.`\
+https://nytimes.com/2024/07/31/business/media/scotland-yard-email-news-corp-hacking.html
+
+**Michigan Court Clears Way for Higher Wages, Overruling Legislature**\
+`The ruling, raising the minimum wage and phasing out a lower wage for tipped workers, said legislators had acted improperly in dodging a referendum.`\
+https://nytimes.com/2024/07/31/business/economy/michigan-supreme-court-minimum-wage.html
+
 **After a defensive interview, Trump retreated to Truth Social for approval.**\
 `By Shawn McCreesh`\
 https://nytimes.com/live/2024/07/31/us/harris-trump-election/after-a-defensive-interview-trump-retreated-to-truth-social-for-approval
