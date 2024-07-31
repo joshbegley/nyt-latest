@@ -1,3 +1,11 @@
+**Cardinals check necessary boxes at trade deadline. Now they'll hope it's enough**\
+`John Mozeliak said the trades make the Cardinals better, then added: "Doesn't matter what I think, right? Go out and prove it."`\
+https://nytimes.com/athletic/5670360/2024/07/30/cardinals-mlb-trade-deadline-analysis/
+
+**Nearly 1,000 Native Children Died at Boarding Schools, Interior Dept. Finds**\
+`An investigative report, which also documents widespread sexual and physical abuse in a program of forced assimilation, calls on the federal government to apologize and “chart a road to healing.”`\
+https://nytimes.com/2024/07/30/us/politics/native-american-boarding-schools.html
+
 **Full of Oneself**\
 `Jackson and Ben Matz make their collaborative debut.`\
 https://nytimes.com/2024/07/30/crosswords/daily-puzzle-2024-07-31.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5670712/2024/07/30/jackson-holliday-baltimore-oriol
 **‘Job’ Review: The Psychopath Will See You Now**\
 `A patient, a shrink and a gun are the raw ingredients of a chic, sadistic Broadway thriller.`\
 https://nytimes.com/2024/07/30/theater/job-review-broadway.html
-
-**Navarro blasts opponent Zheng after Olympic loss: 'I didn't respect her as a competitor'**\
-`Emma Navarro lost in three sets 7-6 (7), 6-7 (4), 6-1 to China's Qinwen Zheng in the third round of the Paris Olympics.`\
-https://nytimes.com/athletic/5670274/2024/07/30/qinwen-zheng-emma-navarro-olympics-tennis/
-
-**Tampa Bay Rays get county approval for new stadium project**\
-`The Rays' new ballpark would have a fixed roof and would be scheduled to open for the 2028 season.`\
-https://nytimes.com/athletic/5670701/2024/07/30/tampa-bay-rays-new-ballpark-county-approval/
 

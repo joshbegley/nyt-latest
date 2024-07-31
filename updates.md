@@ -1,3 +1,11 @@
+**Cardinals check necessary boxes at trade deadline. Now they'll hope it's enough**\
+`John Mozeliak said the trades make the Cardinals better, then added: "Doesn't matter what I think, right? Go out and prove it."`\
+https://nytimes.com/athletic/5670360/2024/07/30/cardinals-mlb-trade-deadline-analysis/
+
+**Nearly 1,000 Native Children Died at Boarding Schools, Interior Dept. Finds**\
+`An investigative report, which also documents widespread sexual and physical abuse in a program of forced assimilation, calls on the federal government to apologize and “chart a road to healing.”`\
+https://nytimes.com/2024/07/30/us/politics/native-american-boarding-schools.html
+
 **Full of Oneself**\
 `Jackson and Ben Matz make their collaborative debut.`\
 https://nytimes.com/2024/07/30/crosswords/daily-puzzle-2024-07-31.html
