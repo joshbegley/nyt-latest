@@ -1,3 +1,11 @@
+**The Election of Divorced Men vs. All the Single Ladies**\
+`2024 and the voter gender divide.`\
+https://nytimes.com/2024/07/31/opinion/kamala-harris-trump-vance.html
+
+**Team K League 3 Tottenham 4: Last season's issues linger, and a glimpse of Yang Min-hyuk**\
+`Spurs made it four pre-season wins out of four, but their victory in Seoul showed there is still work to be done`\
+https://nytimes.com/athletic/5668486/2024/07/31/team-k-league-3-tottenham-4-son-yang-min-hyuk/
+
 **Strikes in Iran and Lebanon Raise Risk of Escalation, but All-Out War Is Not Inevitable**\
 `The scale of the reaction from Iran and its regional proxies to the attacks on two of Israel’s largest foes could determine whether the low-level regional battle tips into a full-scale conflict.`\
 https://nytimes.com/2024/07/31/world/middleeast/iran-lebanon-israel-war-assassination.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5660577/2024/07/31/kalen-deboer-alabama-football-cr
 **California Progressives Are Making Homelessness Worse**\
 `Removing the state’s encampments won’t fix the problem.`\
 https://nytimes.com/2024/07/31/opinion/california-homelessness-progressives.html
-
-**Iceland Braces for Another Volcanic Blast. Should We Worry?**\
-`The Icelandic Meteorological Office has warned of an eruption “in the coming days.”`\
-https://nytimes.com/2024/07/31/world/europe/iceland-volcano-eruption.html
-
-**The Briefing: Urawa Red Diamonds 1 Newcastle 4 - Has Isak got even better and what's behind Jacob Murphy's fast start?**\
-`George Caulkin breaks down some of the key moments from Newcastle's opening game in Japan`\
-https://nytimes.com/athletic/5668463/2024/07/31/urawa-red-diamonds-newcastle-result-analysis/
 
