@@ -1,3 +1,7 @@
+**‘We Just Need a Break’: Another Flood in Vermont Wears Out Residents**\
+`Dozens of homes were destroyed and damaged in the latest wave of extreme rainfall in the state, officials said.`\
+https://nytimes.com/2024/07/31/us/vermont-floods-storms.html
+
 **Gallagher rejects Chelsea contract offer amid Atletico Madrid interest**\
 `Conor Gallagher has rejected a late contract offer from Chelsea with Atletico Madrid in advanced discussions over signing the midfielder.`\
 https://nytimes.com/athletic/5673173/2024/07/31/gallagher-chelsea-reject-contract-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/30/opinion/thepoint/trump-nabj-black-women-harr
 **Trump Questions Harris’s Ethnicity at N.A.B.J. Conference**\
 `Former President Donald J. Trump appeared at the National Association of Black Journalists conference where he questioned Vice President Kamala Harris’s ethnicity, downplayed the role of the vice president and repeated his openness to pardon Jan. 6th rioters.`\
 https://nytimes.com/video/us/elections/100000009603431/trump-nabj.html
-
-**After Boar’s Head Recall, Bodegas Confront Life Without Liverwurst**\
-`Cold cuts linked to a nationwide listeria outbreak have vanished from bodega and deli counters across New York City. For some shops, business is down, too.`\
-https://nytimes.com/2024/07/31/nyregion/boars-head-recall-listeria-outbreak-delis.html
 
