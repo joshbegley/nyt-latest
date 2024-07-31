@@ -1,6 +1,6 @@
 **‘We’re All Living the Olympics Through TikTok Now’**\
 `In NBC’s quest to provide wall-to-wall coverage of the Paris Games, the TV network has aimed to dominate a different device: your phone.`\
-https://nytimes.com/2024/07/31/style/living-the-olympics-through-tiktok.html
+https://nytimes.com/2024/07/31/style/nbc-olympics-influencers.html
 
 **12 Medals and Counting: Ledecky Ties for Most Decorated U.S. Female Olympian**\
 `Katie Ledecky won gold in the 1,500 freestyle final, bringing her medal count up to 12, matching the record for U.S. women across Olympic sports.`\
