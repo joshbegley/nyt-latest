@@ -1,3 +1,11 @@
+**The Apple of One Business Reporter’s Eye**\
+`Since 2022, Tripp Mickle has covered news surrounding one of the biggest technology companies in Silicon Valley.`\
+https://nytimes.com/2024/07/31/insider/apple-beat.html
+
+**Breaking down the Blue Jays' 14 trade deadline acquisitions**\
+`The Blue Jays added 14 new players at the deadline. Who are they, and when are they expected to impact the Blue Jays' roster?`\
+https://nytimes.com/athletic/5672583/2024/07/31/blue-jays-trade-deadline-acquisition-analysis/
+
 **Alma Powell, 86, Esteemed Military Spouse of a Revered Statesman, Dies**\
 `Her quiet, elegant manner added to the mystique behind her husband, Colin Powell, and she figured strongly into his decision not to run for president in 1996.`\
 https://nytimes.com/2024/07/31/us/politics/alma-powell-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5672822/2024/07/31/astros-dfa-rafael-montero/
 **Meta Says It Will Continue Spending, as Growth Surges**\
 `The company has been investing in artificial intelligence technologies, as well as building the immersive world of the metaverse.`\
 https://nytimes.com/2024/07/31/technology/meta-earnings-artificial-intelligence.html
-
-**Rate Cut ‘Could Be on the Table’ at Next Fed Meeting, Powell Says**\
-`Jerome H. Powell, the Federal Reserve chair, suggested an interest rate cut could be on the horizon after the central bank held rates steady at its most recent meeting.`\
-https://nytimes.com/video/business/economy/100000009603765/federal-reserve-interest-rates.html
-
-**Thoughts on Ryan Williams, transfers and more as Alabama opens practice**\
-`Kalen DeBoer's thoughts on Williams, the summer transfers and more after Alabama's first practice.`\
-https://nytimes.com/athletic/5672562/2024/07/31/alabama-football-practice-ryan-williams/
 
