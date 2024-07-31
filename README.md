@@ -30,7 +30,7 @@ https://nytimes.com/athletic/5671793/2024/07/31/igor-thiago-injury-ivan-toney-br
 `2024 and the voter gender divide.`\
 https://nytimes.com/2024/07/31/opinion/kamala-harris-trump-vance.html
 
-**Team K League 3 Tottenham 4: Last season's issues linger, and a glimpse of Yang Min-hyuk**\
+**Team K League 3 Tottenham 4: Last season's issues linger - and a glimpse of Yang Min-hyuk**\
 `Spurs made it four pre-season wins out of four, but their victory in Seoul showed there is still work to be done`\
 https://nytimes.com/athletic/5668486/2024/07/31/team-k-league-3-tottenham-4-son-yang-min-hyuk/
 
