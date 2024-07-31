@@ -26,7 +26,7 @@ https://nytimes.com/athletic/5673224/2024/07/31/raiders-kickoff-rules-jack-jones
 `.`\
 https://nytimes.com/2024/07/31/world/middleeast/assassination-of-a-top-hamas-leader-spurs-rallies-worldwide.html
 
-**Braves upbeat after delivering a homer-filled win in Jorge Soler's debut**\
+**Braves upbeat after delivering a homer-filled win in Jorge Soler's return**\
 `Alex Anthopoulos explained why it was important to send a signal to the clubhouse with some big deadline moves. `\
 https://nytimes.com/athletic/5673247/2024/07/31/braves-jorge-soler-matt-olson/
 
