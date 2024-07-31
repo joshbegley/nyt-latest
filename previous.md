@@ -1,3 +1,15 @@
+**Border Arrests in July Drop to Low Under Biden**\
+`The total is expected to come in under 60,000 for the month, a precipitous fall from a peak of 250,000 in December, after President Biden imposed stricter border measures.`\
+https://nytimes.com/2024/07/31/us/politics/border-arrests-crossings-july.html
+
+**When It Comes to Trump, Harris Tries Lightening Up**\
+`The vice president is keen to lead her party past the Trump-related burnout of years past and strike an ebullient tone.`\
+https://nytimes.com/2024/07/31/us/politics/kamala-harris-trump-democrats.html
+
+**Jack Jones, Daniel Carlson and the Raiders' (secret?) plans for the new kickoff rules**\
+`Jones has been practicing kickoffs at Raiders training camp, but apparently special teams coach Tom McMahon hasn't seen it. (Wink.)`\
+https://nytimes.com/athletic/5673224/2024/07/31/raiders-kickoff-rules-jack-jones-daniel-carlson/
+
 **Assassination of a top Hamas leader spurs rallies worldwide.**\
 `.`\
 https://nytimes.com/2024/07/31/world/middleeast/assassination-of-a-top-hamas-leader-spurs-rallies-worldwide.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/31/world/middleeast/israel-hamas-hezbollah-iran.html
 **Sonya Massey’s Killing Is Black America’s Sorrow**\
 `Her death is the manifestation of a societal sickness that devalues Black life.`\
 https://nytimes.com/2024/07/31/opinion/sonya-massey.html
-
-**Bryce Harper, Phillies stay steady as slumps drag on: 'Turn the page to August'**\
-`Harper has one hit in his last 30 at-bats. The Phillies have lost 11 of their last 15 games. Maybe it's a good time for an off day. `\
-https://nytimes.com/athletic/5672965/2024/07/31/bryce-harper-phillies-slump/
-
-**Learning to fly: 49ers QB Joshua Dobbs making strides after rocky start to camp**\
-`Rookie Ricky Pearsall stood out in Wednesday’s practice in part because the 49ers are missing so many wide receivers.`\
-https://nytimes.com/athletic/5673107/2024/07/31/josh-dobbs-49ers-training-camp-airplane-flying/
-
-**‘We Just Need a Break’: Another Flood in Vermont Wears Out Residents**\
-`Dozens of homes were destroyed and damaged in the latest wave of extreme rainfall in the state, officials said.`\
-https://nytimes.com/2024/07/31/us/vermont-floods-storms.html
 
