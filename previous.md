@@ -1,3 +1,7 @@
+**Yankees back Clay Holmes after another blown save: ‘That’s our closer’**\
+`The Yankees battled back to beat the Phillies 7-6 in 12 innings on Tuesday night.`\
+https://nytimes.com/athletic/5671162/2024/07/31/yankees-closer-clay-holmes-blown-save-phillies/
+
 **Padres’ A.J. Preller invites scrutiny about job security after emptying farm at trade deadline**\
 `Before targeting bullpen upgrades, team sources said the Padres explored adding the likes of Jazz Chisholm and Randy Arozarena.`\
 https://nytimes.com/athletic/5671191/2024/07/31/padres-aj-preller-invites/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5671013/2024/07/31/twins-failed-trade-deadline/
 **What Ethan Nwaneri's pre-season reveals about his readiness for Arsenal's first team**\
 `The 17-year-old's strengths and weaknesses as he seeks the thumbs up from Arteta for 2024-25`\
 https://nytimes.com/athletic/5668113/2024/07/31/ethan-nwaneri-arsenal-first-team/
-
-**Why Jake O'Brien's return to the Premier League shouldn't alarm Crystal Palace fans**\
-`Palace supporters may see centre-back Jake O'Brien as ‘the one who got away’ following his move to Everton, but there’s more to it than that`\
-https://nytimes.com/athletic/5656543/2024/07/31/jake-obrien-crystal-palace-lyon-everton-textor/
 

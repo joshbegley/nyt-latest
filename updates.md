@@ -1,3 +1,7 @@
+**Yankees back Clay Holmes after another blown save: ‘That’s our closer’**\
+`The Yankees battled back to beat the Phillies 7-6 in 12 innings on Tuesday night.`\
+https://nytimes.com/athletic/5671162/2024/07/31/yankees-closer-clay-holmes-blown-save-phillies/
+
 **'One of the top moments of my career': Tommy Pham returns with pinch hit grand slam**\
 `"We have a chance to do something special still," Pham said. He lit up the Cardinals' stadium and dugout in an 8-1 victory.`\
 https://nytimes.com/athletic/5670846/2024/07/31/tommy-pham-cardinals-grand-slam-trade/
