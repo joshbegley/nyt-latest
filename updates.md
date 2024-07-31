@@ -1,3 +1,7 @@
+**How the Cubs lined up with the Rays for an Isaac Paredes trade: What's the catch?**\
+`A look at why the Cubs targeted their new third baseman, despite how doing so meant dealing with a shrewd organization in Tampa Bay.`\
+https://nytimes.com/athletic/5670774/2024/07/30/cubs-rays-isaac-parades-trade/
+
 **Cardinals check necessary boxes at trade deadline. Now they'll hope it's enough**\
 `John Mozeliak said the trades make the Cardinals better, then added: "Doesn't matter what I think, right? Go out and prove it."`\
 https://nytimes.com/athletic/5670360/2024/07/30/cardinals-mlb-trade-deadline-analysis/
