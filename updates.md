@@ -1,3 +1,15 @@
+**Venezuela’s Election Was Deeply Flawed. Here’s How.**\
+`From voter intimidation to refusing to provide paper tallies to verify the result claimed by the government, the election was riddled with problems.`\
+https://nytimes.com/2024/07/31/world/americas/venezuela-election-vote-flaws.html
+
+**In Chicago, 3 Shows That Keep the Audience in Mind and Engaged**\
+`Musical adaptations of “Midnight in the Garden of Good and Evil” and “The Lord of the Rings” as well as a new Samuel D. Hunter play were on our critic’s itinerary.`\
+https://nytimes.com/2024/07/31/theater/midnight-in-the-garden-chicago.html
+
+**Washington Prepares for the ‘Super Bowl of Tax’**\
+`Even with control of the White House and Congress up in the air, lawmakers and lobbyists are gearing up for a big debate next year over expiring measures in former President Donald Trump’s tax law.`\
+https://nytimes.com/2024/07/31/us/politics/tax-code-congress.html
+
 **Seven NHL teams that will shed bad contracts and gain major cap relief in 2025**\
 `Which teams have inefficient deals expiring at the end of 2024-05? What impact could that have on their spending and ability to improve?`\
 https://nytimes.com/athletic/5670089/2024/07/31/nhl-teams-contracts-salary-cap-2025/
