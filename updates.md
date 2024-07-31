@@ -1,3 +1,11 @@
+**Simone Biles reveals U.S. women's gymnastics team’s throwback nickname**\
+`Take a look back at the previous U.S. women's Olympic gymnastics teams that earned medals and nicknames.`\
+https://nytimes.com/athletic/5672406/2024/07/31/usa-gymnastics-team-nicknames-history/
+
+**Bears' DJ Moore on his new contract, Caleb Williams and Popeyes**\
+`Moore is thrilled with his four-year contract extension and happy to be part of the foundation in Chicago.`\
+https://nytimes.com/athletic/5672606/2024/07/31/bears-dj-moore-contract-reaction/
+
 **Ledecky sets Olympic record in 1500M freestyle**\
 `Katie Ledecky needs one more to tie Soviet gymnast Larisa Latynina for the most gold medals for any female Olympian.`\
 https://nytimes.com/athletic/5672462/2024/07/31/katie-ledecky-gold-olympics-1500-meters/
