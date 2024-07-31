@@ -1,3 +1,7 @@
+**The stock market grew turbulent this month as investors began to position for a rate cut.**\
+`Wall Street is expecting the Federal Reserve to keep rates steady for now, but start lowering them in September.`\
+https://nytimes.com/live/2024/07/31/business/fed-meeting-interest-rates/the-stock-market-grew-turbulent-this-month-as-investors-began-to-position-for-a-rate-cut
+
 **In Lebanon, an Israeli strike and the prospect of war leave many unsettled.**\
 `By Euan Ward and Hwaida Saad`\
 https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/in-lebanon-an-israeli-strike-and-the-prospect-of-war-leave-many-unsettled
