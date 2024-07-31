@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5670879/2024/07/31/mlb-scouting-notebook-fantasy-baseball-jeffrey-springs/
 
 **Twins’ failed trade deadline has roots in ownership’s decision to slash payroll**\
-`The Twins entered advanced discussions with the Blue Jays to land a top trade target in Yusei Kikuchi only to get priced out in the end`\
+`The Twins entered advanced discussions with the Blue Jays to land a top trade target in Yusei Kikuchi only to get priced out in the end.`\
 https://nytimes.com/athletic/5671013/2024/07/31/twins-failed-trade-deadline/
 
 **What Ethan Nwaneri's pre-season reveals about his readiness for Arsenal's first team**\
