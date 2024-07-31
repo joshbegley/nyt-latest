@@ -1,3 +1,15 @@
+**Dance Leads the Way as Art Meets Sport at the Cultural Olympiad**\
+`A program of arts events shown in conjunction with the 2024 Olympic and Paralympic Games looks at the relationship between art and sport.`\
+https://nytimes.com/2024/07/31/arts/dance/cultural-olympiad-dominique-hervieu.html
+
+**One-Pan Recipes That Are Ripe for Summer**\
+`Sheet-pan chicken with spicy corn, roasted fish with cherry tomatoes and shrimp enchiladas verde showcase summer’s flavors with minimal cleanup.`\
+https://nytimes.com/2024/07/31/dining/one-pan-recipes-that-are-ripe-for-summer.html
+
+**Lyric Opera of Chicago Appoints Orchestra Veteran as New Leader**\
+`John Mangum, who helped guide the Houston Symphony through the turmoil of the pandemic, will serve as the company’s next general director.`\
+https://nytimes.com/2024/07/31/arts/music/lyric-opera-of-chicago-john-mangum.html
+
 **Venezuela’s Election Was Deeply Flawed. Here’s How.**\
 `From voter intimidation to refusing to provide paper tallies to verify the result claimed by the government, the election was riddled with problems.`\
 https://nytimes.com/2024/07/31/world/americas/venezuela-election-vote-flaws.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5669028/2024/07/31/sf-giants-trade-deadline-analysi
 **Drones Target Sudan Army Base During Top General’s Visit**\
 `For 15 months, Gen. Abdel Fattah al-Burhan has been leading a war for control of the country against his rival, Lt. Gen. Mohamed Hamdan, the head of the paramilitary Rapid Support Forces.`\
 https://nytimes.com/2024/07/31/world/africa/sudan-assasination-attempt-general-burhan.html
-
-**The strikes add another hurdle to already troubled cease-fire talks.**\
-`By Aaron Boxerman and Adam Rasgon`\
-https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/hamas-cease-fire-talks-gaza-israel
-
-**World leaders fear a longer war in Gaza and escalation elsewhere.**\
-`T`\
-https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/world-leaders-fear-a-longer-war-in-gaza-and-escalation-elsewhere
-
-**After Haniyeh’s Death, Who Are Hamas’s Most Prominent Leaders?**\
-`Ismail Haniyeh, who was killed in Iran, was among the most senior members of Hamas’s leadership. Here is a look at others.`\
-https://nytimes.com/2024/07/31/world/middleeast/hamas-leaders-haniyeh-sinwar-meshal.html
 
