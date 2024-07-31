@@ -1,3 +1,7 @@
+**Olympic triathlon will take place amid water quality concerns in the Seine**\
+`Officials previously postponed the men's event due to elevated bacteria levels in the water.`\
+https://nytimes.com/athletic/5670270/2024/07/31/olympic-triathlon-seine-water-quality/
+
 **Word of the Day: purportedly**\
 `This word has appeared in 124 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/07/31/learning/word-of-the-day-purportedly.html

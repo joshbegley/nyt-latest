@@ -1,3 +1,7 @@
+**Olympic triathlon will take place amid water quality concerns in the Seine**\
+`Officials previously postponed the men's event due to elevated bacteria levels in the water.`\
+https://nytimes.com/athletic/5670270/2024/07/31/olympic-triathlon-seine-water-quality/
+
 **Word of the Day: purportedly**\
 `This word has appeared in 124 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/07/31/learning/word-of-the-day-purportedly.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/world/europe/hamas-iran-southport-booker.html
 **MLB scouting notebook: Jeffrey Springs returns to Rays rotation, Seranthony Domínguez's fit in Baltimore and more**\
 `Andrea Arcadipane breaks down Jeffrey Springs' long-awaited return from UCL surgery, in addition to some other trade deadline notes.`\
 https://nytimes.com/athletic/5670879/2024/07/31/mlb-scouting-notebook-fantasy-baseball-jeffrey-springs/
-
-**Twins’ failed trade deadline has roots in ownership’s decision to slash payroll**\
-`The Twins entered advanced discussions with the Blue Jays to land a top trade target in Yusei Kikuchi only to get priced out in the end.`\
-https://nytimes.com/athletic/5671013/2024/07/31/twins-failed-trade-deadline/
 
