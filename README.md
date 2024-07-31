@@ -1,3 +1,11 @@
+**Saudi Arabia unveils 2034 World Cup plans: 11 new stadiums, five cities**\
+`Saudi Arabia plans to build 11 new stadiums as part of its bid to host the 2034 men&#8217;s World Cup.`\
+https://nytimes.com/athletic/5672506/2024/07/31/saudi-arabia-2034-world-cup-plans/
+
+**Marchand wins gold, sets record in 200M butterfly**\
+`Léon Marchand set an Olympic record with a time of 1:51.21 in an incredible come-from-behind win over Hungary's Kristóf Milák. `\
+https://nytimes.com/athletic/5672403/2024/07/31/leon-marchand-france-olympics-swimming/
+
 **Powell says a rate cut ‘could be on the table’ at the Fed’s next meeting.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/07/31/business/fed-meeting-interest-rates/powell-says-a-rate-cut-could-be-on-the-table-at-the-feds-next-meeting
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/31/dining/easy-tomato-watermelon-salad.html
 **Arrests of Drug Kingpins Won’t Solve the Addiction Crisis**\
 `It’s important to punish traffickers, but the U.S. still needs better treatment and prevention efforts.`\
 https://nytimes.com/live/2024/07/30/opinion/thepoint/drug-cartel-arrests
-
-**Stanley Simon, Bronx Leader Brought Down by Corruption, Is Dead at 93**\
-`After delivering improvements to the Bronx as borough president, he, along with others, was convicted in the 1980s Wedtech scandal and went to prison.`\
-https://nytimes.com/2024/07/31/nyregion/stanley-simon-dead.html
-
-**Cashman: Yankees still wanted Jack Flaherty**\
-`“I would have brought Jack Flaherty in if I could have matched up,” Cashman said Wednesday, “and I had difficulty matching up."`\
-https://nytimes.com/athletic/5672427/2024/07/31/brian-cashman-says-yankees-would-have-traded-for-jack-flaherty-despite-report-of-health-concerns/
 
