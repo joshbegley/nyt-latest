@@ -1,3 +1,7 @@
+**Cubs' Jed Hoyer looked to 2025 with trades and wants more questions answered in next 2 months**\
+`Hoyer will be paying attention to how the offense performs the rest of the way so he can get a good idea of how it stands going into 2025.`\
+https://nytimes.com/athletic/5670609/2024/07/30/jed-hoyer-cubs-trade-deadline-reaction/
+
 **Tampa Bay Rays get county approval for new stadium project**\
 `The Rays' new ballpark would have a fixed roof and would be scheduled to open for the 2028 season.`\
 https://nytimes.com/athletic/5670701/2024/07/30/tampa-bay-rays-new-ballpark-county-approval/
