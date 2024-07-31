@@ -1,3 +1,7 @@
+**Ledecky sets Olympic record in 1500M freestyle**\
+`Katie Ledecky needs one more to tie Soviet gymnast Larisa Latynina for the most gold medals for any female Olympian.`\
+https://nytimes.com/athletic/5672462/2024/07/31/katie-ledecky-gold-olympics-1500-meters/
+
 **USWNT 2 Australia 1: Korbin Albert's helps U.S. head to Olympic quarterfinal undefeated**\
 `Here's how the U.S. wrapped the Olympic group stage.`\
 https://nytimes.com/athletic/5670984/2024/07/31/uswnt-australia-korbin-albert-olympics/
