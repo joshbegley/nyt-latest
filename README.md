@@ -1,3 +1,7 @@
+**Corrections: July 31, 2024**\
+`Corrections that appeared in print on Wednesday, July 31, 2024.`\
+https://nytimes.com/2024/07/31/pageoneplus/corrections-july-31-2024.html
+
 **To Stop War in Lebanon, the U.S. Must Tell Israel ‘No’**\
 `Only a firm warning that the U.S. will not support an Israeli attack on Hezbollah will avoid a wider war.`\
 https://nytimes.com/2024/07/31/opinion/israel-hezbollah-war-hamas-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5671072/2024/07/31/braves-trade-deadline-outfield/
 **Liverpool's No 6 debate: What does Slot want and who could fill the role?**\
 `Questions remain on whether Endo is the right answer long term — and whether Liverpool can challenge for honours without strengthening`\
 https://nytimes.com/athletic/5668493/2024/07/31/liverpool-transfer-no6-targets/
-
-**Business of Football: The £200m loan key to Everton's future, pointless World Cup bid books**\
-`Matt Slater tells you what he's hearing from the business of football`\
-https://nytimes.com/athletic/5668312/2024/07/31/everton-future-world-cup-sheffield-united/
 
