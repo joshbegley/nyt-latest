@@ -1,3 +1,7 @@
+**Here’s the latest on the assassination.**\
+`By Patrick Kingsley, Farnaz Fassihi, Adam Rasgon and Ronen Bergman`\
+https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/heres-the-latest-on-the-assassination
+
 **Dean Huijsen to Bournemouth: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Dean Huijsen's move to Bournemouth`\
 https://nytimes.com/athletic/5666088/2024/07/31/dean-huijsen-to-bournemouth-the-athletic-500-transfer-ratings/
