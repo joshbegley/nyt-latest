@@ -1,3 +1,7 @@
+**Mbappe becomes majority owner of Ligue 2 club Caen as takeover approved**\
+`Real Madrid striker Kylian Mbappe has become the majority owner at Ligue 2 club Caen via his Coalition Capital investment fund.`\
+https://nytimes.com/athletic/5671395/2024/07/31/kylian-mbappe-owner-caen/
+
 **Andre Johnson in awe of Hall of Fame honor, even as others saw it coming**\
 `The receiver excelled during a 14-year career primarily with the Texans, impressing Kyle Shanahan, Mike McDaniel and others along the way.`\
 https://nytimes.com/athletic/5663987/2024/07/31/andre-johnson-texans-hall-of-fame/

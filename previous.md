@@ -1,3 +1,7 @@
+**Mbappe becomes majority owner of Ligue 2 club Caen as takeover approved**\
+`Real Madrid striker Kylian Mbappe has become the majority owner at Ligue 2 club Caen via his Coalition Capital investment fund.`\
+https://nytimes.com/athletic/5671395/2024/07/31/kylian-mbappe-owner-caen/
+
 **Andre Johnson in awe of Hall of Fame honor, even as others saw it coming**\
 `The receiver excelled during a 14-year career primarily with the Texans, impressing Kyle Shanahan, Mike McDaniel and others along the way.`\
 https://nytimes.com/athletic/5663987/2024/07/31/andre-johnson-texans-hall-of-fame/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/business/china-national-internet-id.html
 **Simone Biles, after Olympic team gold, takes apparent dig at ex-teammate’s criticism**\
 `In an Instagram post, Simone Biles appeared to take a dig at MyKayla Skinner, who had questioned the team’s talent and work ethic. `\
 https://nytimes.com/athletic/5671386/2024/07/31/simone-biles-after-olympic-team-gold-takes-apparent-dig-at-ex-teammates-criticism/
-
-**Observing Rams QB Matthew Stafford through an entire practice — his first in pads of 2024**\
-`After sitting out the first padded practice Monday, Matthew Stafford was back on the field Tuesday, taking reps with the first-team offense.`\
-https://nytimes.com/athletic/5670928/2024/07/31/la-rams-matthew-stafford-quarterback-observations/
 
