@@ -1,3 +1,7 @@
+**Corrections: July 31, 2024**\
+`Corrections that appeared in print on Wednesday, July 31, 2024.`\
+https://nytimes.com/2024/07/31/pageoneplus/corrections-july-31-2024.html
+
 **To Stop War in Lebanon, the U.S. Must Tell Israel ‘No’**\
 `Only a firm warning that the U.S. will not support an Israeli attack on Hezbollah will avoid a wider war.`\
 https://nytimes.com/2024/07/31/opinion/israel-hezbollah-war-hamas-gaza.html
