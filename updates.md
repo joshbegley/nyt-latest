@@ -1,3 +1,7 @@
+**Israel Can Still Avoid Regional War and Pursue a Cease-Fire**\
+`Can Netanyahu claim victory and push for a Gaza deal?`\
+https://nytimes.com/live/2024/07/30/opinion/thepoint/israel-assassination-haniyeh
+
 **Justice Dept. Watchdog Finds That Barr Did Not Order Protesters Cleared in 2020**\
 `The inquiry, which called the attorney general’s response “chaotic and disorganized,” covered Donald J. Trump’s polarizing decision to walk through Lafayette Park for a photo opportunity at a nearby church.`\
 https://nytimes.com/2024/07/31/us/politics/barr-trump-lafayette-square-justice-department.html

@@ -1,3 +1,7 @@
+**Israel Can Still Avoid Regional War and Pursue a Cease-Fire**\
+`Can Netanyahu claim victory and push for a Gaza deal?`\
+https://nytimes.com/live/2024/07/30/opinion/thepoint/israel-assassination-haniyeh
+
 **Justice Dept. Watchdog Finds That Barr Did Not Order Protesters Cleared in 2020**\
 `The inquiry, which called the attorney general’s response “chaotic and disorganized,” covered Donald J. Trump’s polarizing decision to walk through Lafayette Park for a photo opportunity at a nearby church.`\
 https://nytimes.com/2024/07/31/us/politics/barr-trump-lafayette-square-justice-department.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/arts/music/lyric-opera-of-chicago-john-mangum.htm
 **Venezuela’s Election Was Deeply Flawed. Here’s How.**\
 `From voter intimidation to refusing to provide paper tallies to verify the result claimed by the government, the election was riddled with problems.`\
 https://nytimes.com/2024/07/31/world/americas/venezuela-election-vote-flaws.html
-
-**In Chicago, 3 Shows That Keep the Audience in Mind and Engaged**\
-`Musical adaptations of “Midnight in the Garden of Good and Evil” and “The Lord of the Rings” as well as a new Samuel D. Hunter play were on our critic’s itinerary.`\
-https://nytimes.com/2024/07/31/theater/midnight-in-the-garden-chicago.html
 
