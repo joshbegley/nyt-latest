@@ -27,7 +27,7 @@ https://nytimes.com/athletic/5665344/2024/07/31/anwar-el-ghazi-cardiff-transfer/
 https://nytimes.com/2024/07/31/technology/silicon-valley-investors-support-kamala-harris.html
 
 **U.K. Police Officers Injured in Far-Right Riot After Deadly Stabbing**\
-`A day after a knife attack in Southport, northwestern England, left three young girls dead, unrest driven in part by disinformation online erupted on the town’s streets.`\
+`A day after an attacker with a knife killed three girls in Southport, northwestern England, violence driven in part by disinformation erupted in the town.`\
 https://nytimes.com/2024/07/31/world/europe/uk-stabbing-southport-riot-police.html
 
 **Boeing Names Kelly Ortberg as Its Chief Executive**\

@@ -1,3 +1,7 @@
+**U.K. Police Officers Injured in Far-Right Riot After Deadly Stabbing**\
+`A day after an attacker with a knife killed three girls in Southport, northwestern England, violence driven in part by disinformation erupted in the town.`\
+https://nytimes.com/2024/07/31/world/europe/uk-stabbing-southport-riot-police.html
+
 **Why Microsoft’s Earnings Miss Won’t Stall the A.I. Boom**\
 `Investors are worried about how much companies are spending on artificial intelligence, but the tech giant is sure that its efforts will pay off.`\
 https://nytimes.com/2024/07/31/business/dealbook/microsoft-ai-spending-tech-stocks.html
