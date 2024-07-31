@@ -1,3 +1,15 @@
+**Irresistible force of Nadalcaraz falls at the Olympics to an immovable object**\
+`Two of the best tennis players then and now finally know the feeling they inflict on so many: that the opponent is playing a different sport`\
+https://nytimes.com/athletic/5672470/2024/07/31/nadalcaraz-olympics-tennis-doubles/
+
+**Iran’s Leader Orders Attack on Israel for Haniyeh Killing, Officials Say**\
+`Iran’s supreme leader, Ayatollah Ali Khamenei, ordered retaliation after a humiliating security failure, as Iran once again balances showing strength against the risk of escalation.`\
+https://nytimes.com/2024/07/31/world/middleeast/iran-orders-attack-israel.html
+
+**Patriots, DT Davon Godchaux agree to 2-year extension**\
+`The Patriots continued their offseason theme of extending or re-signing their own players, agreeing to a deal with the defensive tackle.`\
+https://nytimes.com/athletic/5672512/2024/07/31/patriots-davon-godchaux-contract-extension/
+
 **Election Results Presented by Venezuela’s Opposition Suggest Maduro Lost Decisively**\
 `The Times analyzed partial voting tallies collected by the opposition. They cast further doubt on Nicolás Maduro’s declared victory.`\
 https://nytimes.com/2024/07/31/world/americas/venezuela-maduro-election-results.html
