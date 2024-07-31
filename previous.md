@@ -1,3 +1,11 @@
+**U.K. Police Officers Injured in Far-Right Riot After Deadly Stabbing**\
+`A day after a knife attack in Southport, northwestern England, left three young girls dead, unrest driven in part by disinformation online erupted on the town’s streets.`\
+https://nytimes.com/2024/07/31/world/europe/uk-stabbing-southport-riot-police.html
+
+**Boeing Names Robert Ortberg as Its Chief Executive**\
+`The company has been under pressure to improve quality and safety after a panel blew away from a 737 Max plane during an Alaska Airlines flight in January.`\
+https://nytimes.com/2024/07/31/business/boeing-kelly-ortberg-ceo.html
+
 **CAS denies Canada's appeal in Olympic drone spying scandal**\
 `The Court of Arbitration for Sport on Wednesday upheld a six-point Olympic tournament deduction for the Canadian women’s soccer team in a drone spying scandal, affirming FIFA’s choice to heavily limit the reigning gold medalist as questions arose about its tactics to prepare for a repeat.`\
 https://nytimes.com/athletic/5671115/2024/07/31/canada-soccer-cas-appeal-decision-olympics/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/31/world/olympics/kaylia-nemour-olympics-gymnastics-
 **Do Ultraprocessed Foods Harm Your Brain?**\
 `Recent research, including a new study on red meat, has linked these foods to an increased risk of dementia. Experts are trying to understand why.`\
 https://nytimes.com/2024/07/31/well/eat/ultraprocessed-foods-brain-health.html
-
-**Malik Nabers practice diary: The Giants' plan for him, his 'long-lost brother' and cutting knee pads**\
-`Nabers on his often chippy battles with CB Deonte Banks: "That’s my dog. Me and him are like twins. That’s like my long-lost brother."`\
-https://nytimes.com/athletic/5670810/2024/07/31/new-york-giants-malik-nabers-practice-diary-training-camp/
-
-**The Pulse: Simone Biles is so back**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
-https://nytimes.com/athletic/5671233/2024/07/31/simone-biles-olympic-gymnastics-rugby-the-pulse/
 
