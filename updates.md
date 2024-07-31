@@ -1,3 +1,7 @@
+**Léon Marchand is the superstar and French sports hero these Olympics needed**\
+`Every epic needs a hero who descends from another world with abilities we can't quite comprehend. For these Olympics, it's Léon Marchand.`\
+https://nytimes.com/athletic/5673096/2024/07/31/leon-marchand-olympics-swimming-france-superstar-gold/
+
 **Sonya Massey’s Killing Is Black America’s Sorrow**\
 `Her death is the manifestation of a societal sickness that devalues Black life.`\
 https://nytimes.com/2024/07/31/opinion/sonya-massey.html

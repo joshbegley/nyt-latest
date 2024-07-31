@@ -1,3 +1,7 @@
+**Léon Marchand is the superstar and French sports hero these Olympics needed**\
+`Every epic needs a hero who descends from another world with abilities we can't quite comprehend. For these Olympics, it's Léon Marchand.`\
+https://nytimes.com/athletic/5673096/2024/07/31/leon-marchand-olympics-swimming-france-superstar-gold/
+
 **Sonya Massey’s Killing Is Black America’s Sorrow**\
 `Her death is the manifestation of a societal sickness that devalues Black life.`\
 https://nytimes.com/2024/07/31/opinion/sonya-massey.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/arts/music/anna-netrebko-palm-beach.html
 **Trump Says He Would Pardon Jan. 6 Rioters Who Attacked Police**\
 `Hundreds of people have been convicted in the storming of the Capitol in 2021, including those who assaulted officers.`\
 https://nytimes.com/2024/07/31/us/politics/trump-jan-6-pardons-nabj.html
-
-**Rosenthal: In a busy MLB trade deadline, quantity of deals overshadowed quality of players**\
-`There were 60 trades made in the final six days of the deadline, but not many stars changing teams.`\
-https://nytimes.com/athletic/5673041/2024/07/31/mlb-trade-deadline-recap-rosenthal/
 
