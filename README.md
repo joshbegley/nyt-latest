@@ -1,3 +1,7 @@
+**Wednesday Briefing**\
+`The killing of a top Hamas leader in Iran.`\
+https://nytimes.com/2024/07/31/world/europe/hamas-iran-southport-booker.html
+
 **MLB scouting notebook: Jeffrey Springs returns to Rays rotation, Seranthony Domínguez's fit in Baltimore and more**\
 `Andrea Arcadipane breaks down Jeffrey Springs' long-awaited return from UCL surgery, in addition to some other trade deadline notes.`\
 https://nytimes.com/athletic/5670879/2024/07/31/mlb-scouting-notebook-fantasy-baseball-jeffrey-springs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5668312/2024/07/31/everton-future-world-cup-sheffie
 **How two Wrexham stars ended up in the biggest movie of the year**\
 `Two Wrexham players appearing in a Hollywood blockbuster is just the latest sign of how crazy life has become since their celeb takeover`\
 https://nytimes.com/athletic/5668087/2024/07/31/wrexham-in-deadpool-wolverine-paul-mullin-and-ollie-palmers-cameos-explained/
-
-**Immobile, Calafiori and Che Adams: Serie A's done deals - and others that might still happen**\
-`Chelsea are in talks with Napoli over Lukaku and the possibility of Osimhen moving the other way, while Bologna could move for Hummels`\
-https://nytimes.com/athletic/5668062/2024/07/31/serie-a-transfers-osimhen-lukaku-calafiori/
 
