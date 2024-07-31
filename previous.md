@@ -1,6 +1,14 @@
+**Twins’ failed trade deadline has roots in ownership’s decision to slash payroll**\
+`The Twins entered advanced discussions with the Blue Jays to land a top trade target in Yusei Kikuchi only to get priced out in the end`\
+https://nytimes.com/athletic/5671013/2024/07/31/twins-failed-trade-deadline/
+
 **What Ethan Nwaneri's pre-season reveals about his readiness for Arsenal's first team**\
 `The 17-year-old's strengths and weaknesses as he seeks the thumbs up from Arteta for 2024-25`\
 https://nytimes.com/athletic/5668113/2024/07/31/ethan-nwaneri-arsenal-first-team/
+
+**Why Jake O'Brien's return to the Premier League shouldn't alarm Crystal Palace fans**\
+`Palace supporters may see centre-back Jake O'Brien as ‘the one who got away’ following his move to Everton, but there’s more to it than that`\
+https://nytimes.com/athletic/5656543/2024/07/31/jake-obrien-crystal-palace-lyon-everton-textor/
 
 **The tragedy of Ahmed Refaat - and the questions that remain over his death**\
 `Refaat died leaving a trail of questions that shine a light on the actions of a variety of influential people and institutions in Egypt`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5668062/2024/07/31/serie-a-transfers-osimhen-lukaku
 **Mastantuono: The 16-year-old Argentinian wonderkid with interest from Madrid**\
 `Madrid appear to be in pole position for the signature of teenage star for River Plate`\
 https://nytimes.com/athletic/5668344/2024/07/31/franco-mastantuono-real-madrid-transfer-argentina/
-
-**Japan Raises Interest Rates for Second Time Since 2007**\
-`The closely watched move by the Bank of Japan could bolster the country’s beleaguered currency.`\
-https://nytimes.com/2024/07/31/business/bank-of-japan-interest-rate.html
-
-**Wednesday's MLB odds, best bets: Playoff projections, pitching matchups, player props**\
-`See pitching matchups, playoff projections, win projections and more for Wednesday's MLB games.`\
-https://nytimes.com/athletic/5669592/2024/07/31/mlb-odds-best-bets-projections-july-31/
 

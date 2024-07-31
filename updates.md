@@ -1,3 +1,11 @@
+**Twins’ failed trade deadline has roots in ownership’s decision to slash payroll**\
+`The Twins entered advanced discussions with the Blue Jays to land a top trade target in Yusei Kikuchi only to get priced out in the end`\
+https://nytimes.com/athletic/5671013/2024/07/31/twins-failed-trade-deadline/
+
+**Why Jake O'Brien's return to the Premier League shouldn't alarm Crystal Palace fans**\
+`Palace supporters may see centre-back Jake O'Brien as ‘the one who got away’ following his move to Everton, but there’s more to it than that`\
+https://nytimes.com/athletic/5656543/2024/07/31/jake-obrien-crystal-palace-lyon-everton-textor/
+
 **What Ethan Nwaneri's pre-season reveals about his readiness for Arsenal's first team**\
 `The 17-year-old's strengths and weaknesses as he seeks the thumbs up from Arteta for 2024-25`\
 https://nytimes.com/athletic/5668113/2024/07/31/ethan-nwaneri-arsenal-first-team/
