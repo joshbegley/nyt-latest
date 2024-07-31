@@ -1,6 +1,6 @@
 **Reds trade deadline takeaways: Impacts on the rotation, Jakob Junis' role and more**\
 `What impact will the Reds' trade acquisitions have on the rotation, the bullpen and other areas of the organization?`\
-https://nytimes.com/athletic/5670828/2024/07/30/reds-trade-deadline-takeaways-impact-on-the-rotation-jakob-junis-role-and-more/
+https://nytimes.com/athletic/5670828/2024/07/30/reds-trade-deadline-rotation-jakob-junis/
 
 **In Atlanta, Harris Has Dance-Party Energy**\
 `Republicans should keep underestimating what they can’t understand.`\
