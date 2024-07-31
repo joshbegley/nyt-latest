@@ -1,3 +1,7 @@
+**Justice Dept. Watchdog Finds That Barr Did Not Order Protesters Cleared in 2020**\
+`The inquiry, which called the attorney general’s response “chaotic and disorganized,” covered Donald J. Trump’s polarizing decision to walk through Lafayette Park for a photo opportunity at a nearby church.`\
+https://nytimes.com/2024/07/31/us/politics/barr-trump-lafayette-square-justice-department.html
+
 **The Windup: Dull deadline signals exciting stretch run**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5672133/2024/07/31/mlb-trade-deadline-jazz-chisholm-the-windup/
