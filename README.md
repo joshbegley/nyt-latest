@@ -1,3 +1,7 @@
+**Pentagon Data Shows High Suicide Rates Among Troops Exposed to Blasts**\
+`A military report on suicide rates broken down by occupation finds the highest rates among categories of troops that often work and train around weapons blasts.`\
+https://nytimes.com/2024/07/31/us/military-suicide-rates-report.html
+
 **Irresistible force of Nadalcaraz falls at the Olympics to an immovable object**\
 `Two of the best tennis players then and now finally know the feeling they inflict on so many: that the opponent is playing a different sport`\
 https://nytimes.com/athletic/5672470/2024/07/31/nadalcaraz-olympics-tennis-doubles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5672403/2024/07/31/leon-marchand-france-olympics-sw
 **Powell says a rate cut ‘could be on the table’ at the Fed’s next meeting.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/07/31/business/fed-meeting-interest-rates/powell-says-a-rate-cut-could-be-on-the-table-at-the-feds-next-meeting
-
-**U.N. rights monitors describe ‘deplorable conditions’ of Palestinians detained by Israel.**\
-`By Nick Cumming-Bruce`\
-https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/un-rights-monitors-describe-deplorable-conditions-of-palestinians-detained-by-israel
 
