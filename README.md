@@ -1,3 +1,7 @@
+**12 Medals and Counting: Ledecky Ties for Most Decorated U.S. Female Olympian**\
+`Katie Ledecky won gold in the 1,500 freestyle final, bringing her medal count up to 12, matching the record for U.S. women across Olympic sports.`\
+https://nytimes.com/interactive/2024/07/31/sports/olympics/katie-ledecky-us-olympics-swimming.html
+
 **Canada advances despite spying scandal: 'They take six points and we got nine'**\
 `Canada won all three games to advance to the 2024 Olympic quarterfinals.`\
 https://nytimes.com/athletic/5673311/2024/07/31/canada-womens-soccer-advance-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/us/politics/trump-nabj-fact-check.html
 **Léon Marchand is the superstar and French sports hero these Olympics needed**\
 `Every epic needs a hero who descends from another world with abilities we can't quite comprehend. For these Olympics, it's Léon Marchand.`\
 https://nytimes.com/athletic/5673096/2024/07/31/leon-marchand-olympics-swimming-france-superstar-gold/
-
-**Iran and Hamas Blame Israel for Killing of Top Official and Vow to Strike Back**\
-`The deadly strike on Ismail Haniyeh in Tehran threatened to further inflame the region and derail negotiations aimed at reaching a cease-fire in Gaza.`\
-https://nytimes.com/2024/07/31/world/middleeast/israel-hamas-hezbollah-iran.html
 
