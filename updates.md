@@ -1,3 +1,11 @@
+**Tyler Guyton to Tyron Billy-Johnson: 10 Cowboys who have stood out in training camp**\
+`Three pass catchers have looked impressive — so Dallas first-round pick. Eyes remain on the progress of Trey Lance and Mazi Smith. `\
+https://nytimes.com/athletic/5673115/2024/07/31/dallas-cowboys-standouts-bland-diggs-tolbert-guyton/
+
+**Fact-Checking Trump’s Remarks on Race**\
+`The former president falsely accused Vice President Kamala Harris of “only promoting” her Indian heritage, among other inaccurate claims. Here’s a fact check.`\
+https://nytimes.com/2024/07/31/us/politics/trump-nabj-fact-check.html
+
 **Léon Marchand is the superstar and French sports hero these Olympics needed**\
 `Every epic needs a hero who descends from another world with abilities we can't quite comprehend. For these Olympics, it's Léon Marchand.`\
 https://nytimes.com/athletic/5673096/2024/07/31/leon-marchand-olympics-swimming-france-superstar-gold/
