@@ -1,3 +1,7 @@
+**To Stop War in Lebanon, the U.S. Must Tell Israel ‘No’**\
+`Only a firm warning that the U.S. will not support an Israeli attack on Hezbollah will avoid a wider war.`\
+https://nytimes.com/2024/07/31/opinion/israel-hezbollah-war-hamas-gaza.html
+
 **Wednesday Briefing**\
 `The killing of a top Hamas leader in Iran.`\
 https://nytimes.com/2024/07/31/world/europe/hamas-iran-southport-booker.html
