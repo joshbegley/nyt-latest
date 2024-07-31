@@ -1,3 +1,15 @@
+**Irresistible force of Nadalcaraz falls at the Olympics to an immovable object**\
+`Two of the best tennis players then and now finally know the feeling they inflict on so many: that the opponent is playing a different sport`\
+https://nytimes.com/athletic/5672470/2024/07/31/nadalcaraz-olympics-tennis-doubles/
+
+**Iran’s Leader Orders Attack on Israel for Haniyeh Killing, Officials Say**\
+`Iran’s supreme leader, Ayatollah Ali Khamenei, ordered retaliation after a humiliating security failure, as Iran once again balances showing strength against the risk of escalation.`\
+https://nytimes.com/2024/07/31/world/middleeast/iran-orders-attack-israel.html
+
+**Patriots, DT Davon Godchaux agree to 2-year extension**\
+`The Patriots continued their offseason theme of extending or re-signing their own players, agreeing to a deal with the defensive tackle.`\
+https://nytimes.com/athletic/5672512/2024/07/31/patriots-davon-godchaux-contract-extension/
+
 **Election Results Presented by Venezuela’s Opposition Suggest Maduro Lost Decisively**\
 `The Times analyzed partial voting tallies collected by the opposition. They cast further doubt on Nicolás Maduro’s declared victory.`\
 https://nytimes.com/2024/07/31/world/americas/venezuela-maduro-election-results.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/31/business/fed-meeting-interest-rates/powell-s
 **U.N. rights monitors describe ‘deplorable conditions’ of Palestinians detained by Israel.**\
 `By Nick Cumming-Bruce`\
 https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/un-rights-monitors-describe-deplorable-conditions-of-palestinians-detained-by-israel
-
-**Autoworkers Union Endorses Kamala Harris for President**\
-`The United Automobile Workers had backed President Biden but did not immediately endorse the vice president. Ms. Harris will rally with U.A.W. members in Detroit next week.`\
-https://nytimes.com/2024/07/31/us/politics/uaw-kamala-harris.html
-
-**Americans struggle on pommel horse in all-around**\
-`Richard fell off the pommel horse, a disastrous mistake that him out of contention after just one rotation. He scored just a 12.733.`\
-https://nytimes.com/athletic/5672505/2024/07/31/olympics-gymnastics-pommel-horse-frederick-richard-paul-juda/
-
-**The Hottest Item at the Olympics Is a Chocolate Muffin**\
-`On a quest to fuel himself with thousands of calories a day, the Olympic swimmer Henrik Christiansen found an unexpected delight and shared it with the world.`\
-https://nytimes.com/2024/07/31/world/olympics/olympic-chocolate-muffin-henrik-christiansen.html
 
