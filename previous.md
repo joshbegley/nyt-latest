@@ -1,3 +1,7 @@
+**Wesley Fofana is back and determined: 'We have everything it takes to win titles'**\
+`After two years of injuries, the French defender is itching to prove Chelsea's doubters wrong`\
+https://nytimes.com/athletic/5671443/2024/07/31/wesley-fofana-chelsea-preseason/
+
 **142 Picture Prompts to Inspire Student Writing**\
 `A school year’s worth of short, accessible image-driven posts that invite a variety of kinds of writing.`\
 https://nytimes.com/2024/07/31/learning/142-picture-prompts-to-inspire-student-writing.html
@@ -26,15 +30,11 @@ https://nytimes.com/2024/07/31/us/politics/trump-assassination-republicans-consp
 `Responses to a Pamela Paul column that criticized such care as ineffective. Also: Scrutinizing the candidates; Project 2025; Hillary Clinton’s advice for Kamala Harris.`\
 https://nytimes.com/2024/07/31/opinion/gender-affirming-care.html
 
-**Bill Belichick adds fantasy football show to upcoming media slate**\
+**Bill Belichick adds weekly football analysis show to upcoming media slate**\
 `The show will feature Belichick giving team-by-team and game-by-game breakdowns each week of the 2024 NFL season.`\
 https://nytimes.com/athletic/5672238/2024/07/31/bill-belichick-fantasy-football-show/
 
 **Venezuelan Election Denounced by International Monitoring Group**\
 `The Carter Center, a leading pro-democracy organization, says Venezuela’s election violated the country’s own laws and was undemocratic.`\
 https://nytimes.com/2024/07/31/world/americas/venezuela-election-carter-center-democracy.html
-
-**'Buffon', a Ramos lookalike and a 'lucky charm': The youngsters on tour with Madrid**\
-`Madrid have brought 12 youngsters with them to the United States - here's who they are and what their futures look like`\
-https://nytimes.com/athletic/5671989/2024/07/31/real-madrid-academy-youngsters-preseason/
 
