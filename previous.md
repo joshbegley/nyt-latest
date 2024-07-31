@@ -1,3 +1,7 @@
+**MLB Trade Deadline Roundup: All the trades from (*Monday night through) Tuesday**\
+`Let's look at all the deals that came in during the final hours of the MLB trading period.`\
+https://nytimes.com/athletic/5667782/2024/07/30/mlb-trade-deadline-roundup-tuesday/
+
 **Seahawks camp: DK Metcalf bests Devon Witherspoon as offense bounces back**\
 `After the defense dominated the first day in pads, Metcalf and the offense bounced back, highlighted by a one-handed touchdown.`\
 https://nytimes.com/athletic/5670447/2024/07/30/seahawks-dk-metcalf-devon-witherspoon/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/30/world/israel-gaza-war-lebanon-hezbollah/the-
 **MLB Trade Grades: Mark Canha, Kevin Kiermaier and more last-minute deadline deals**\
 `A look at trades for Gregory Soto, Tanner Banks, Dylan Carlson, and other deals that came together at the last minute. `\
 https://nytimes.com/athletic/5670213/2024/07/30/mlb-trade-grades-mark-canha-kevin-kiermaier-and-more-last-minute-deadline-deals/
-
-**Bears lock up receiver DJ Moore with 4-year, $110 million extension: Sources**\
-`Moore gets the biggest deal in Bears history with $82.6 million guaranteed, trailing only Justin Jefferson and A.J. Brown among receivers.`\
-https://nytimes.com/athletic/5670349/2024/07/30/dj-moore-bears-contract-extension/
 
