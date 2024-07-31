@@ -1,3 +1,11 @@
+**After Vance’s Rough Debut, Trump Downplays Importance of V.P. Choice**\
+`Donald Trump was asked about his selection of a vice president during an appearance before the National Association of Black Journalists on Wednesday.`\
+https://nytimes.com/live/2024/07/31/us/harris-trump-election/after-vances-rough-debut-trump-downplays-importance-of-vp-choice
+
+**To the surprise of no one, Katie Ledecky once again laps the competition.**\
+`Katie Ledecky comfortably won the 1,500-meter freestyle, beating her winning time from the Tokyo Games by more than seven seconds.`\
+https://nytimes.com/2024/07/31/world/olympics/katie-ledecky-1500.html
+
 **Simone Biles reveals U.S. women's gymnastics team’s throwback nickname**\
 `Take a look back at the previous U.S. women's Olympic gymnastics teams that earned medals and nicknames.`\
 https://nytimes.com/athletic/5672406/2024/07/31/usa-gymnastics-team-nicknames-history/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5672470/2024/07/31/nadalcaraz-olympics-tennis-doubl
 **Iran’s Leader Orders Attack on Israel for Haniyeh Killing, Officials Say**\
 `Iran’s supreme leader, Ayatollah Ali Khamenei, ordered retaliation after a humiliating security failure, as Iran once again balances showing strength against the risk of escalation.`\
 https://nytimes.com/2024/07/31/world/middleeast/iran-orders-attack-israel.html
-
-**Patriots, DT Davon Godchaux agree to 2-year extension**\
-`The Patriots continued their offseason theme of extending or re-signing their own players, agreeing to a deal with the defensive tackle.`\
-https://nytimes.com/athletic/5672512/2024/07/31/patriots-davon-godchaux-contract-extension/
-
-**Election Results Presented by Venezuela’s Opposition Suggest Maduro Lost Decisively**\
-`The Times analyzed partial voting tallies collected by the opposition. They cast further doubt on Nicolás Maduro’s declared victory.`\
-https://nytimes.com/2024/07/31/world/americas/venezuela-maduro-election-results.html
 
