@@ -1,3 +1,7 @@
+**Alpine names Oliver Oakes as new team principal**\
+`Alpine has named Oliver Oakes as its new Formula One team principal, taking over from Bruno Famin.`\
+https://nytimes.com/athletic/5671394/2024/07/31/oliver-oakes-alpine-f1/
+
 **Former Top BBC Anchor Pleads Guilty to Making Indecent Images of Children**\
 `Huw Edwards, who was one of the BBC’s top television anchors, admitted to offenses in a London court on Wednesday.`\
 https://nytimes.com/2024/07/31/world/europe/huw-edwards-bbc-guilty.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/31/opinion/dmv-inequality.html
 **How did Toledo land a 4-star WR? Kamren Flowers picks Rockets after 'honest' recruitment**\
 `Flowers is the second blue-chipper of the 2025 cycle to commit to a Group of 5 school — joining Memphis-bound quarterback Antwann Hill.`\
 https://nytimes.com/athletic/5669623/2024/07/31/recruiting-toledo-kamren-flowers/
-
-**Cats Are Better Than Dogs**\
-`Yes, you must earn their affection. But the payoff is huge.`\
-https://nytimes.com/interactive/2024/07/31/opinion/cats-vs-dogs.html
 

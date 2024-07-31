@@ -1,3 +1,7 @@
+**Alpine names Oliver Oakes as new team principal**\
+`Alpine has named Oliver Oakes as its new Formula One team principal, taking over from Bruno Famin.`\
+https://nytimes.com/athletic/5671394/2024/07/31/oliver-oakes-alpine-f1/
+
 **Former Top BBC Anchor Pleads Guilty to Making Indecent Images of Children**\
 `Huw Edwards, who was one of the BBC’s top television anchors, admitted to offenses in a London court on Wednesday.`\
 https://nytimes.com/2024/07/31/world/europe/huw-edwards-bbc-guilty.html
