@@ -1,3 +1,7 @@
+**Los Angeles Says It Will Not Join Newsom’s Push to Clear Encampments**\
+`Leaders of Los Angeles County, where more than 75,000 homeless people live, voted on Tuesday to reaffirm that they would not criminalize homelessness.`\
+https://nytimes.com/2024/07/30/us/los-angeles-homeless-newsom.html
+
 **MLB trade deadline takeaways 2024: Ranking the winners, losers and snoozers**\
 `The trade deadline went well for the Orioles, Tigers, Dodgers and Marlins. But contenders like the Guardians and Astros could have done more`\
 https://nytimes.com/athletic/5670253/2024/07/30/mlb-trade-deadline-takeaways-2024-winners-losers-snoozers/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/5670253/2024/07/30/mlb-trade-deadline-takeaways-202
 https://nytimes.com/2024/07/30/us/politics/kamala-harris-atlanta-rally-trump.html
 
 **The Guardians made sensible trade deadline moves, but they're taking big pitching risks**\
-`In trading for Alex Cobb, Cleveland acquired another pitcher they hope can return from injury after not pitching in the majors all season.`\
+`In trading for Alex Cobb, Cleveland acquired another pitcher it hopes can return from injury after not pitching in the majors all season.`\
 https://nytimes.com/athletic/5667058/2024/07/30/guardians-trade-deadline-moves-pitching-risks/
 
 **The Beirut suburb that Israel targeted has long seen conflict.**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5670266/2024/07/30/dodgers-jack-flaherty-trade-velo
 **MLB Trade Grades: Can Eloy Jiménez find a fresh start — and his old self — in Baltimore?**\
 `Baltimore has decided to roll the dice and spend some money to see if they can get Jiménez right — or at least hot in the postseason.`\
 https://nytimes.com/athletic/5670167/2024/07/30/mlb-trade-grades-eloy-jimenez-orioles/
-
-**49ers training camp: Deommodore Lenoir's secondary strikes back vs. Brock Purdy**\
-`A hot start from Purdy featured two long touchdowns, but Lenoir and the defense notched the last laugh Tuesday.`\
-https://nytimes.com/athletic/5669565/2024/07/30/49ers-training-camp-deommodore-lenoir-brock-purdy/
 

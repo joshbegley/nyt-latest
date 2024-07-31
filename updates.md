@@ -1,3 +1,11 @@
+**Los Angeles Says It Will Not Join Newsom’s Push to Clear Encampments**\
+`Leaders of Los Angeles County, where more than 75,000 homeless people live, voted on Tuesday to reaffirm that they would not criminalize homelessness.`\
+https://nytimes.com/2024/07/30/us/los-angeles-homeless-newsom.html
+
+**The Guardians made sensible trade deadline moves, but they're taking big pitching risks**\
+`In trading for Alex Cobb, Cleveland acquired another pitcher it hopes can return from injury after not pitching in the majors all season.`\
+https://nytimes.com/athletic/5667058/2024/07/30/guardians-trade-deadline-moves-pitching-risks/
+
 **MLB trade deadline takeaways 2024: Ranking the winners, losers and snoozers**\
 `The trade deadline went well for the Orioles, Tigers, Dodgers and Marlins. But contenders like the Guardians and Astros could have done more`\
 https://nytimes.com/athletic/5670253/2024/07/30/mlb-trade-deadline-takeaways-2024-winners-losers-snoozers/
