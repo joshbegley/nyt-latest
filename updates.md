@@ -1,3 +1,7 @@
+**Giants takeaways: Assessing the trade deadline impacts after another deflating loss**\
+`Blake Snell isn't going anywhere and it will be the front office's worst nightmare if the Giants go nowhere fast, too.`\
+https://nytimes.com/athletic/5671247/2024/07/31/giants-takeaways-another-deflating-loss/
+
 **For Domestic Abuse Victims, Child Welfare Scrutiny Adds Further Trauma**\
 `New York parents who report abuse to protect themselves and their families often become the targets of child welfare investigators. A lawsuit is trying to change that.`\
 https://nytimes.com/2024/07/31/nyregion/domestic-violence-victims-child-welfare-surveillance.html
