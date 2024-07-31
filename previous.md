@@ -1,3 +1,7 @@
+**A Top Hamas Leader Assassinated in Iran**\
+`Ismail Haniyeh was in Tehran to attend the inauguration of Iran’s new president.`\
+https://nytimes.com/video/world/middleeast/100000009602248/haniyeh-hamas-iran-assassination.html
+
 **Giants takeaways: Assessing the trade deadline impacts after another deflating loss**\
 `Blake Snell isn't going anywhere and it will be the front office's worst nightmare if the Giants go nowhere fast, too.`\
 https://nytimes.com/athletic/5671247/2024/07/31/giants-takeaways-another-deflating-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/learning/word-of-the-day-purportedly.html
 **Yankees back Clay Holmes after another blown save: ‘That’s our closer’**\
 `The Yankees battled back to beat the Phillies 7-6 in 12 innings Tuesday night.`\
 https://nytimes.com/athletic/5671162/2024/07/31/yankees-closer-clay-holmes-blown-save-phillies/
-
-**Padres’ A.J. Preller invites scrutiny after emptying farm at trade deadline**\
-`Before targeting bullpen upgrades, team sources said the Padres explored adding the likes of Jazz Chisholm and Randy Arozarena.`\
-https://nytimes.com/athletic/5671191/2024/07/31/padres-aj-preller-scrutiny/
 
