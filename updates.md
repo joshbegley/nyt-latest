@@ -1,3 +1,11 @@
+**Breaking down a Giants' trade deadline that left everyone unsatisfied**\
+`The Giants' deadline was uninspiring but If you wanted them to improve for next season, they probably did, if only in the abstract.`\
+https://nytimes.com/athletic/5669028/2024/07/31/sf-giants-trade-deadline-analysis/
+
+**Drones Target Sudan Army Base During Top General’s Visit**\
+`For 15 months, Gen. Abdel Fattah al-Burhan has been leading a war for control of the country against his rival, Lt. Gen. Mohamed Hamdan, the head of the paramilitary Rapid Support Forces.`\
+https://nytimes.com/2024/07/31/world/africa/sudan-assasination-attempt-general-burhan.html
+
 **The strikes add another hurdle to already troubled cease-fire talks.**\
 `By Aaron Boxerman and Adam Rasgon`\
 https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/hamas-cease-fire-talks-gaza-israel
