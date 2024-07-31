@@ -1,4 +1,16 @@
-**Reds trade deadline takeaways: Impacts on the rotation, Jakob Junis' role and more**\
+**Analyzing the major deals of the MLB trade deadline with insights from Keith Law**\
+`How did the return packages look in the biggest deals at this year's trade deadline?`\
+https://nytimes.com/athletic/5668980/2024/07/30/mlb-trade-deadline-2024-every-deal-analysis-keith-law/
+
+**The Briefing: Man City 2 Barcelona 2: Grealish's goal and Flick's first test**\
+`Sam Lee and Laia Cervello Herrero address the key talking points from Manchester City's friendly against Barcelona`\
+https://nytimes.com/athletic/5668451/2024/07/30/barcelona-manchester-city-friendly-orlando/
+
+**Man Pleads Guilty to Threatening to Kill Marjorie Taylor Greene**\
+`Sean Patrick Cirillo called Ms. Greene’s office and told staff members about his plans to kill the politician, the F.B.I. said. He faces a maximum of five years in prison.`\
+https://nytimes.com/2024/07/30/us/marjorie-taylor-greene-threats.html
+
+**Reds trade deadline takeaways: Impact on the rotation, Jakob Junis' role and more**\
 `What impact will the Reds' trade acquisitions have on the rotation, the bullpen and other areas of the organization?`\
 https://nytimes.com/athletic/5670828/2024/07/30/reds-trade-deadline-rotation-jakob-junis/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/30/us/politics/native-american-boarding-schools.html
 **Full of Oneself**\
 `Jackson and Ben Matz make their collaborative debut.`\
 https://nytimes.com/2024/07/30/crosswords/daily-puzzle-2024-07-31.html
-
-**Notes on Wilfredo Lara, Jacob Bresnahan and other prospects in smaller deadline trades**\
-`The Marlins, Giants, Cubs, Angels and Phillies all landed prospects worth noting in smaller deals.`\
-https://nytimes.com/athletic/5670753/2024/07/30/trade-deadline-prospect-analysis/
-
-**Why the Phillies decided to move on from Gregory Soto and what they see in Tanner Banks**\
-`The Phillies were never sure they could trust Soto, whom they dealt to Baltimore just before the deadline. They believe Banks is an upgrade.`\
-https://nytimes.com/athletic/5670671/2024/07/30/gregory-soto-phillies-trade-tanner-banks/
-
-**Giants 'Hard Knocks' finale: Team rebuffs big trade offer before drafting Malik Nabers**\
-`The Colts offered GM Joe Schoen a first-round pick and two seconds to move up, but the Giants weren't interested. `\
-https://nytimes.com/athletic/5669211/2024/07/30/giants-hard-knocks-takeaways-nfl-draft-malik-nabers/
 
