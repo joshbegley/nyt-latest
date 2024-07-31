@@ -7,7 +7,7 @@ https://nytimes.com/2024/07/31/world/middleeast/assassination-of-a-top-hamas-lea
 https://nytimes.com/athletic/5673247/2024/07/31/braves-jorge-soler-matt-olson/
 
 **Tyler Guyton to Tyron Billy-Johnson: 10 Cowboys who have stood out in training camp**\
-`Three pass catchers have looked impressive — so Dallas first-round pick. Eyes remain on the progress of Trey Lance and Mazi Smith. `\
+`Three pass catchers have looked impressive — so has Dallas' first-round pick. Eyes remain on the progress of Trey Lance and Mazi Smith. `\
 https://nytimes.com/athletic/5673115/2024/07/31/dallas-cowboys-standouts-bland-diggs-tolbert-guyton/
 
 **Fact-Checking Trump’s Remarks on Race**\
