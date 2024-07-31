@@ -1,3 +1,11 @@
+**MLB trade deadline grades for all 30 teams: Savvy sellers, bold buyers get high marks**\
+`The Marlins and Rays dominated the deadline with smart selling. The Mariners and Padres aggressively filled key needs. And the Rockies ...`\
+https://nytimes.com/athletic/5666972/2024/07/31/mlb-trade-deadline-grades-2024/
+
+**The Mets' deadline was disappointing. Why that's perfectly OK**\
+`Even if David Stearns and the Mets wanted to do more, the paths to do so were painful.`\
+https://nytimes.com/athletic/5671185/2024/07/31/mets-trade-deadline-analysis-2/
+
 **Mbappe becomes majority owner of Ligue 2 club Caen as takeover approved**\
 `Real Madrid striker Kylian Mbappe has become the majority owner at Ligue 2 club Caen via his Coalition Capital investment fund.`\
 https://nytimes.com/athletic/5671395/2024/07/31/kylian-mbappe-owner-caen/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5671233/2024/07/31/simone-biles-olympic-gymnastics-
 **Could these two La Masia-made midfielders solve Barca's Busquets problem?**\
 `Barca have struggled to replace Busquets since he left. These two players could mean they don't have to go back into the market`\
 https://nytimes.com/athletic/5671252/2024/07/31/barcelona-casado-bernal-sergio-busquets/
-
-**China Wants to Start a National Internet ID System**\
-`The government said the proposal would protect online privacy. Critics said it could further concentrate government control over the internet.`\
-https://nytimes.com/2024/07/31/business/china-national-internet-id.html
-
-**Simone Biles, after Olympic team gold, takes apparent dig at ex-teammate’s criticism**\
-`In an Instagram post, Simone Biles appeared to take a dig at MyKayla Skinner, who had questioned the team’s talent and work ethic. `\
-https://nytimes.com/athletic/5671386/2024/07/31/simone-biles-after-olympic-team-gold-takes-apparent-dig-at-ex-teammates-criticism/
 
