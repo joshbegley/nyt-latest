@@ -1,3 +1,11 @@
+**Iceland Braces for Another Volcanic Blast. Should We Worry?**\
+`The Icelandic Meteorological Office has warned of an eruption “in the coming days.”`\
+https://nytimes.com/2024/07/31/world/europe/iceland-volcano-eruption.html
+
+**The Briefing: Urawa Red Diamonds 1 Newcastle 4: Has Isak got even better and what's behind Jacob Murphy's fast start?**\
+`George Caulkin breaks down some of the key moments from Newcastle's opening game in Japan`\
+https://nytimes.com/athletic/5668463/2024/07/31/urawa-red-diamonds-newcastle-result-analysis/
+
 **Why Microsoft’s Earnings Miss Won’t Stall the A.I. Boom**\
 `Investors are worried about how much companies are spending on artificial intelligence, but the tech giant is sure that its efforts will pay off.`\
 https://nytimes.com/2024/07/31/business/dealbook/microsoft-ai-spending-tech-stocks.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/31/technology/silicon-valley-investors-support-kamal
 **U.K. Police Officers Injured in Far-Right Riot After Deadly Stabbing**\
 `A day after an attacker with a knife killed three girls in Southport, northwestern England, violence driven in part by disinformation erupted in the town.`\
 https://nytimes.com/2024/07/31/world/europe/uk-stabbing-southport-riot-police.html
-
-**Boeing Names Kelly Ortberg as Its Chief Executive**\
-`The company has been under pressure to improve quality and safety after a panel blew away from a 737 Max plane during an Alaska Airlines flight in January.`\
-https://nytimes.com/2024/07/31/business/boeing-kelly-ortberg-ceo.html
-
-**CAS denies Canada's appeal in Olympic drone spying scandal**\
-`The Court of Arbitration for Sport on Wednesday upheld a six-point Olympic tournament deduction for the Canadian women’s soccer team in a drone spying scandal, affirming FIFA’s choice to heavily limit the reigning gold medalist as questions arose about its tactics to prepare for a repeat.`\
-https://nytimes.com/athletic/5671115/2024/07/31/canada-soccer-cas-appeal-decision-olympics/
 
