@@ -1,3 +1,7 @@
+**Beaugrand wins home triathlon gold for France in Paris**\
+`PARIS – The dawn rain slowed to a drizzle just before 8am on Wednesday morning in Paris, just as 46 fittest women in the world trotted onto the Pont Alexandre III, descended a flight of stairs onto a floating dock and dove into the Seine, bacteria be damned.`\
+https://nytimes.com/athletic/5671320/2024/07/31/olympic-triathlon-result-cassandre-beaugrand/
+
 **Dean Huijsen to Bournemouth: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Dean Huijsen's move to Bournemouth`\
 https://nytimes.com/athletic/5666088/2024/07/31/dean-huijsen-to-bournemouth-the-athletic-500-transfer-ratings/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/heres-the-l
 **Live Updates: A Top Hamas Leader Is Killed in Iran**\
 `Hamas accused Israel of killing Ismail Haniyeh, who was in Tehran for the inauguration of Iran’s new president. He was a key player in negotiations to stop the fighting in Gaza.`\
 https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran
-
-**Olympic triathlon will take place amid Seine water quality concerns**\
-`Officials previously postponed the men's event due to elevated bacteria levels in the water.`\
-https://nytimes.com/athletic/5670270/2024/07/31/olympic-triathlon-seine-water-quality/
 
