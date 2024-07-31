@@ -1,3 +1,19 @@
+**Don’t Hate On the D.M.V.**\
+`There is no express lane for rich people here.`\
+https://nytimes.com/interactive/2024/07/31/opinion/dmv-inequality.html
+
+**How did Toledo land a 4-star WR? Kamren Flowers picks Rockets after 'honest' recruitment**\
+`Flowers is the second blue-chipper of the 2025 cycle to commit to a Group of 5 school — joining Memphis-bound quarterback Antwann Hill.`\
+https://nytimes.com/athletic/5669623/2024/07/31/recruiting-toledo-kamren-flowers/
+
+**Cats Are Better Than Dogs**\
+`Yes, you must earn their affection. But the payoff is huge.`\
+https://nytimes.com/interactive/2024/07/31/opinion/cats-vs-dogs.html
+
+**A Little Hypocrisy Is Healthy**\
+`When our ideals meet reality sometimes we have to adjust.`\
+https://nytimes.com/interactive/2024/07/31/opinion/forgive-hypocrisy.html
+
 **The Market Doesn’t Always Get It Right**\
 `Wisdom rooted in experience and expertise should mean something.`\
 https://nytimes.com/interactive/2024/07/31/opinion/markets-education-media.html
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2024/07/31/opinion/political-violence-history-di
 **At Home With - Kecia Lewis**\
 `A Tony Award winner makes a home away from home in Manhattan.`\
 https://nytimes.com/interactive/2024/07/31/realestate/kecia-lewis-tony-winner-nyc-home.html
-
-**For Kamala Harris, the Hard Part Starts Now**\
-`Ms. Harris must affirmatively define herself before Mr. Trump and his allies can define her.`\
-https://nytimes.com/2024/07/31/opinion/kamala-harris-campaign.html
-
-**Book Club: Read ‘My Brilliant Friend’ With the Book Review**\
-`In August, the Book Review Book Club will read and discuss “My Brilliant Friend,” the first book in Elena Ferrante’s Neapolitan quartet.`\
-https://nytimes.com/2024/07/31/books/review/my-brilliant-friend-elena-ferrante-book-club-announcement.html
-
-**What to Watch as the Fed Meets on Wednesday**\
-`The Federal Reserve is expected to leave interest rates unchanged but could set up for a cut later this year.`\
-https://nytimes.com/2024/07/31/business/economy/fed-meeting-interest-rates.html
-
-**‘Earthalujah!’: A Rebel Pastor Preaches for the Planet**\
-`As part of its crusade against consumerism, an unorthodox New York church urges action to preserve the Earth.`\
-https://nytimes.com/2024/07/31/climate/rev-billy-talen-earth-church.html
 
