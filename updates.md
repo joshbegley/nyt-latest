@@ -1,3 +1,11 @@
+**Monitoreo de la tormenta tropical Carlotta, en vivo**\
+`Consulta la trayectoria probable y las horas de llegada de los vientos de Carlotta.`\
+https://nytimes.com/interactive/2024/07/31/weather/carlotta-mapa-trayectoria.html
+
+**Why Are So Many Americans Choosing to Not Have Children?**\
+`It’s probably not selfishness, experts say. Even young adults who want children see an increasing number of obstacles.`\
+https://nytimes.com/2024/07/31/health/fertility-births-vance.html
+
 **Seeking Your First Job After College? Share Your Story.**\
 `The New York Times wants to hear from recent college graduates, other young job seekers and hiring managers about this year’s job market.`\
 https://nytimes.com/2024/07/31/business/economy/job-hunt-college-graduates.html
