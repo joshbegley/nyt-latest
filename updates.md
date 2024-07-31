@@ -1,3 +1,11 @@
+**Seven NHL teams that will shed bad contracts and gain major cap relief in 2025**\
+`Which teams have inefficient deals expiring at the end of 2024-05? What impact could that have on their spending and ability to improve?`\
+https://nytimes.com/athletic/5670089/2024/07/31/nhl-teams-contracts-salary-cap-2025/
+
+**Trump to Address National Association of Black Journalists**\
+`Donald Trump, whose appearance at the conference has divided the group’s members, is expected to take questions. Vice President Kamala Harris was also invited.`\
+https://nytimes.com/2024/07/31/us/politics/trump-nabj.html
+
 **Breaking down a Giants' trade deadline that left everyone unsatisfied**\
 `The Giants' deadline was uninspiring but If you wanted them to improve for next season, they probably did, if only in the abstract.`\
 https://nytimes.com/athletic/5669028/2024/07/31/sf-giants-trade-deadline-analysis/
