@@ -18,7 +18,7 @@ https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/heres-the-l
 `Hamas accused Israel of killing Ismail Haniyeh, who was in Tehran for the inauguration of Iran’s new president. He was a key player in cease-fire negotiations.`\
 https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran
 
-**Olympic triathlon will take place amid water quality concerns in the Seine**\
+**Olympic triathlon will take place amid Seine water quality concerns**\
 `Officials previously postponed the men's event due to elevated bacteria levels in the water.`\
 https://nytimes.com/athletic/5670270/2024/07/31/olympic-triathlon-seine-water-quality/
 
