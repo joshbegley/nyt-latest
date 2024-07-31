@@ -1,3 +1,15 @@
+**Assassination of a top Hamas leader spurs rallies worldwide.**\
+`.`\
+https://nytimes.com/2024/07/31/world/middleeast/assassination-of-a-top-hamas-leader-spurs-rallies-worldwide.html
+
+**Braves upbeat after delivering a homer-filled win in Jorge Soler's debut**\
+`Alex Anthopoulos explained why it was important to send a signal to the clubhouse with some big deadline moves. `\
+https://nytimes.com/athletic/5673247/2024/07/31/braves-jorge-soler-matt-olson/
+
+**Tyler Guyton to Tyron Billy-Johnson: 10 Cowboys who have stood out in training camp**\
+`Three pass catchers have looked impressive — so has Dallas' first-round pick. Eyes remain on the progress of Trey Lance and Mazi Smith. `\
+https://nytimes.com/athletic/5673115/2024/07/31/dallas-cowboys-standouts-bland-diggs-tolbert-guyton/
+
 **Learning to fly: 49ers QB Joshua Dobbs making strides after rocky start to camp**\
 `Rookie Ricky Pearsall stood out in Wednesday’s practice in part because the 49ers are missing so many wide receivers.`\
 https://nytimes.com/athletic/5673107/2024/07/31/josh-dobbs-49ers-training-camp-airplane-flying/
