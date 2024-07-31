@@ -1,3 +1,11 @@
+**Giants 'Hard Knocks' finale: Team rebuffs big trade offer before drafting Malik Nabers**\
+`The Colts offered GM Joe Schoen a first-round pick and two seconds to move up, but the Giants weren't interested. `\
+https://nytimes.com/athletic/5669211/2024/07/30/giants-hard-knocks-takeaways-nfl-draft-malik-nabers/
+
+**Vance Knocks Harris as a ‘Wacky San Francisco Liberal’ in Nevada**\
+`Mr. Vance honed his attacks against the vice president in two of the battleground state’s Democratic strongholds, Las Vegas and Reno, in his first trip to the Southwest since joining the ticket.`\
+https://nytimes.com/2024/07/30/us/politics/jd-vance-kamala-harris.html
+
 **Cubs' Jed Hoyer looked to 2025 with trades and wants more questions answered**\
 `Hoyer will be paying attention to how the offense performs the rest of the way so he can get a good idea of how it stands going into 2025.`\
 https://nytimes.com/athletic/5670609/2024/07/30/jed-hoyer-cubs-trade-deadline-reaction/

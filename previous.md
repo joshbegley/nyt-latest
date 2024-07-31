@@ -1,3 +1,11 @@
+**Giants 'Hard Knocks' finale: Team rebuffs big trade offer before drafting Malik Nabers**\
+`The Colts offered GM Joe Schoen a first-round pick and two seconds to move up, but the Giants weren't interested. `\
+https://nytimes.com/athletic/5669211/2024/07/30/giants-hard-knocks-takeaways-nfl-draft-malik-nabers/
+
+**Vance Knocks Harris as a ‘Wacky San Francisco Liberal’ in Nevada**\
+`Mr. Vance honed his attacks against the vice president in two of the battleground state’s Democratic strongholds, Las Vegas and Reno, in his first trip to the Southwest since joining the ticket.`\
+https://nytimes.com/2024/07/30/us/politics/jd-vance-kamala-harris.html
+
 **Mets trade deadline takeaways: Why David Stearns said 'we're happy'**\
 `Huascar Brazobán improved a revamped bullpen as the Mets navigated a market in which astronomical asking prices were the norm.`\
 https://nytimes.com/athletic/5670606/2024/07/30/mets-trade-deadline-paul-blackburn/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5670609/2024/07/30/jed-hoyer-cubs-trade-deadline-re
 **Israel Says It Killed Hezbollah Commander in Airstrike Near Beirut**\
 `The strike was in retaliation for a deadly rocket attack this weekend in the Golan Heights. At least three civilians were killed and 74 others wounded on Tuesday, Lebanese officials said.`\
 https://nytimes.com/2024/07/30/world/middleeast/israel-hezbollah-lebanon.html
-
-**‘Say It to My Face’: Harris Rallies in Georgia with Challenge to Trump**\
-`The vice president, speaking to thousands in Atlanta, poked fun at the former president’s reluctance to commit to a debate with her.`\
-https://nytimes.com/video/us/politics/100000009601943/kamala-harris-atlanta-2024-election.html
-
-**Their Parents Fled War. Now South Sudan’s Young Team Is in the Olympics.**\
-`War, famine and floods have beleaguered the world’s youngest nation. The arrival of its men’s basketball team at the Paris Olympics is set to offer a modicum of hope.`\
-https://nytimes.com/2024/07/30/world/africa/olympics-basketball-south-sudan.html
 
