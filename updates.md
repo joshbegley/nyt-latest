@@ -1,3 +1,11 @@
+**The strikes add another hurdle to already troubled cease-fire talks.**\
+`By Aaron Boxerman and Adam Rasgon`\
+https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/hamas-cease-fire-talks-gaza-israel
+
+**Strong currents, blistering heat and a thrilling finish make for a wild triathlon.**\
+`Alex Yee overcame a big deficit to pull off a dramatic comeback to win the men’s race.`\
+https://nytimes.com/2024/07/31/world/olympics/triathlon-alex-yee.html
+
 **World leaders fear a longer war in Gaza and escalation elsewhere.**\
 `T`\
 https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/world-leaders-fear-a-longer-war-in-gaza-and-escalation-elsewhere
