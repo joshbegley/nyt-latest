@@ -1,3 +1,7 @@
+**Bryce Harper, Phillies stay steady as slumps drag on: 'Turn the page to August'**\
+`Harper has one hit in his last 30 at-bats. The Phillies have lost 11 of their last 15 games. Maybe it's a good time for an off day. `\
+https://nytimes.com/athletic/5672965/2024/07/31/bryce-harper-phillies-slump/
+
 **‘We Just Need a Break’: Another Flood in Vermont Wears Out Residents**\
 `Dozens of homes were destroyed and damaged in the latest wave of extreme rainfall in the state, officials said.`\
 https://nytimes.com/2024/07/31/us/vermont-floods-storms.html

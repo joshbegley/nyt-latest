@@ -1,3 +1,7 @@
+**Bryce Harper, Phillies stay steady as slumps drag on: 'Turn the page to August'**\
+`Harper has one hit in his last 30 at-bats. The Phillies have lost 11 of their last 15 games. Maybe it's a good time for an off day. `\
+https://nytimes.com/athletic/5672965/2024/07/31/bryce-harper-phillies-slump/
+
 **‘We Just Need a Break’: Another Flood in Vermont Wears Out Residents**\
 `Dozens of homes were destroyed and damaged in the latest wave of extreme rainfall in the state, officials said.`\
 https://nytimes.com/2024/07/31/us/vermont-floods-storms.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/briefing/trump-harris-interview-assassination-ira
 **This Is What Happens When Black Women Challenge Trump**\
 `In an interview on Wednesday, his facade crumbled into outright antagonism.`\
 https://nytimes.com/live/2024/07/30/opinion/thepoint/trump-nabj-black-women-harris
-
-**Trump Questions Harris’s Ethnicity at N.A.B.J. Conference**\
-`Former President Donald J. Trump appeared at the National Association of Black Journalists conference where he questioned Vice President Kamala Harris’s ethnicity, downplayed the role of the vice president and repeated his openness to pardon Jan. 6th rioters.`\
-https://nytimes.com/video/us/elections/100000009603431/trump-nabj.html
 
