@@ -1,3 +1,7 @@
+**Cubs' Jed Hoyer looked to 2025 with trades and wants more questions answered next 2 months**\
+`Hoyer will be paying attention to how the offense performs the rest of the way so he can get a good idea of how it stands going into 2025.`\
+https://nytimes.com/athletic/5670609/2024/07/30/jed-hoyer-cubs-trade-deadline-reaction/
+
 **Israel Says It Killed Hezbollah Commander in Airstrike Near Beirut**\
 `The strike was in retaliation for a deadly rocket attack this weekend in the Golan Heights. At least three civilians were killed and 74 others wounded on Tuesday, Lebanese officials said.`\
 https://nytimes.com/2024/07/30/world/middleeast/israel-hezbollah-lebanon.html

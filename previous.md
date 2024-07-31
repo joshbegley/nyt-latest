@@ -1,3 +1,7 @@
+**Cubs' Jed Hoyer looked to 2025 with trades and wants more questions answered next 2 months**\
+`Hoyer will be paying attention to how the offense performs the rest of the way so he can get a good idea of how it stands going into 2025.`\
+https://nytimes.com/athletic/5670609/2024/07/30/jed-hoyer-cubs-trade-deadline-reaction/
+
 **Israel Says It Killed Hezbollah Commander in Airstrike Near Beirut**\
 `The strike was in retaliation for a deadly rocket attack this weekend in the Golan Heights. At least three civilians were killed and 74 others wounded on Tuesday, Lebanese officials said.`\
 https://nytimes.com/2024/07/30/world/middleeast/israel-hezbollah-lebanon.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5670292/2024/07/30/simone-biles-olympics-gymnastics
 **Los Angeles Says It Will Not Join Newsom’s Push to Clear Encampments**\
 `Leaders of Los Angeles County, where more than 75,000 homeless people live, voted on Tuesday to reaffirm that they would not criminalize homelessness.`\
 https://nytimes.com/2024/07/30/us/los-angeles-homeless-newsom.html
-
-**MLB trade deadline takeaways 2024: Ranking the winners, losers and snoozers**\
-`The trade deadline went well for the O's, Tigers, Dodgers and Marlins. But contenders like the Guardians and Astros could have done more.`\
-https://nytimes.com/athletic/5670253/2024/07/30/mlb-trade-deadline-takeaways-2024-winners-losers-snoozers/
 
