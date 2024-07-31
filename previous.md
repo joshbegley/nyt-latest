@@ -1,3 +1,7 @@
+**QB advanced passing stats that matter for fantasy football 2024, and the one signal-caller who checks every box**\
+`John Laghezza runs the advanced analytics to reveal the QBs excelling the most in the passing stats that matter for fantasy football.`\
+https://nytimes.com/athletic/5664300/2024/07/31/qb-advanced-stats-fantasy-football-2024/
+
 **Risk of Escalation in Middle East Grows but Is Not Foregone Conclusion**\
 `Qatar, a main mediator in Gaza truce talks, said high-profile assassinations risk plunging the region deeper into chaos. But analysts say warring parties have little appetite for a wider war.`\
 https://nytimes.com/2024/07/31/world/middleeast/hamas-killing-iran-israel-lebanon-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/podcasts/the-daily/israel-hezbollah-lebanon.html
 **Wordle Review No. 1,139, Thursday, August 1, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/31/crosswords/wordle-review-1139.html
-
-**The Connections Companion No. 417, August 1, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/31/crosswords/connections-companion-417.html
 
