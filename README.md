@@ -1,3 +1,7 @@
+**Man Gets 20 Years for Fatally Stabbing Teenager on River Tubing Trip**\
+`Nicolae Miu, 54, was sentenced on Wednesday for killing a 17-year-old and wounding four others on a Wisconsin river in 2022, the authorities said.`\
+https://nytimes.com/2024/07/31/us/apple-river-stabbing-nicolae-miu-sentencing.html
+
 **Astros designate reliever Rafael Montero for assignment**\
 `Montero accrued minus-0.4 wins above replacement after signing the contract.`\
 https://nytimes.com/athletic/5672822/2024/07/31/astros-dfa-rafael-montero/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/world/olympics/katie-ledecky-1500.html
 **In Juan Soto's only guaranteed season, Cashman discusses why Yankees didn't go all in at the deadline**\
 `The Yankees GM met with the media on the morning after the trade deadline to go over the team's recent moves.`\
 https://nytimes.com/athletic/5671039/2024/07/31/yankees-trade-deadline-juan-soto-cashman/
-
-**Simone Biles reveals U.S. women's gymnastics team’s throwback nickname**\
-`Take a look back at the previous U.S. women's Olympic gymnastics teams that earned medals and nicknames.`\
-https://nytimes.com/athletic/5672406/2024/07/31/usa-gymnastics-team-nicknames-history/
 
