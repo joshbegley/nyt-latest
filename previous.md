@@ -1,9 +1,13 @@
+**Seahawks camp: DK Metcalf bests Devon Witherspoon as the offense bounces back**\
+`After the defense dominated the first day in pads, Metcalf and the offense bounced back, highlighted by a one-handed touchdown.`\
+https://nytimes.com/athletic/5670447/2024/07/30/seahawks-dk-metcalf-devon-witherspoon/
+
 **No, You Can’t Beat an Olympic Table Tennis Player**\
 `An N.B.A. star’s trash talk was good-natured but typical, elite players said. They say they play along with it … to a point.`\
 https://nytimes.com/2024/07/30/sports/table-tennis-anthony-edwards.html
 
 **The night Simone Biles was the center of gravity at the Olympics once again**\
-`On Tuesday in Paris, the full force of Simone Biles was back at the Olympics. No one could stop her, and no one could turn away.`\
+`On Tuesday in Paris, the full force of Biles was back at the Olympics. No one could stop her, and no one could turn away.`\
 https://nytimes.com/athletic/5670292/2024/07/30/simone-biles-olympics-gymnastics-team-gold-medal/
 
 **Los Angeles Says It Will Not Join Newsom’s Push to Clear Encampments**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5670213/2024/07/30/mlb-trade-grades-mark-canha-kevi
 **Bears lock up receiver DJ Moore with 4-year, $110 million extension: Sources**\
 `Moore gets the biggest deal in Bears history with $82.6 million guaranteed, trailing only Justin Jefferson and A.J. Brown among receivers.`\
 https://nytimes.com/athletic/5670349/2024/07/30/dj-moore-bears-contract-extension/
-
-**Padres trade everyone they have left for two more relievers, Tanner Scott and Bryan Hoeing**\
-`In two deadline deals, the Padres cleaned out an already thin system to add to their bullpen.`\
-https://nytimes.com/athletic/5670298/2024/07/30/padres-marlins-tanner-scott-trade-analysis/
 
