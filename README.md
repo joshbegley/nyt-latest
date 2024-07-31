@@ -1,3 +1,7 @@
+**Underwater Robot Reveals ‘Enigmatic’ Shapes on the Bottom of Antarctic Ice**\
+`The new images of the melting underside of an ice shelf could help scientists better forecast how the continent is contributing to rising sea levels.`\
+https://nytimes.com/2024/07/31/climate/antarctic-glacier-underside.html
+
 **Missouri Man Is Freed After 1991 Murder Conviction Is Overturned**\
 `Christopher Dunn, who spent more than three decades in prison, was released one week after the Missouri attorney general blocked a judge’s order for his immediate release.`\
 https://nytimes.com/2024/07/31/us/christopher-dunn-prison-release-missouri.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5671293/2024/07/31/wesley-fofana-enzo-fernandez-che
 **Review: In ‘Pamela Palmer,’ a Blonde, a Gumshoe and an Existential Mystery**\
 `David Ives’s new play at the Williamstown Theater Festival is less a whodunit than a who done what.`\
 https://nytimes.com/2024/07/31/theater/pamela-palmer-review-williamstown-theater-festival.html
-
-**‘20th Hijacker’ Seeks Transfer From Federal Supermax to French Prison**\
-`After 20 years in a supermax prison in Colorado, the only person to be convicted in connection with the 9/11 attacks wants to serve his life sentence in his homeland.`\
-https://nytimes.com/2024/07/31/us/politics/zacarias-moussaoui-france-prison.html
 
