@@ -1,3 +1,11 @@
+**World leaders fear a longer war in Gaza and escalation elsewhere.**\
+`T`\
+https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/world-leaders-fear-a-longer-war-in-gaza-and-escalation-elsewhere
+
+**After Haniyeh’s Death, Who Are Hamas’s Most Prominent Leaders?**\
+`Ismail Haniyeh, who was killed in Iran, was among the most senior members of Hamas’s leadership. Here is a look at others.`\
+https://nytimes.com/2024/07/31/world/middleeast/hamas-leaders-haniyeh-sinwar-meshal.html
+
 **Orioles buy low on Trevor Rogers, but still need more pitching**\
 `Keith Law weighs in on the deal, saying he completely sure what the Orioles are seeing in Rogers.`\
 https://nytimes.com/athletic/5669373/2024/07/31/orioles-marlins-trevor-rogers-trade-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5671793/2024/07/31/igor-thiago-injury-ivan-toney-br
 **The Election of Divorced Men vs. All the Single Ladies**\
 `2024 and the voter gender divide.`\
 https://nytimes.com/2024/07/31/opinion/kamala-harris-trump-vance.html
-
-**Team K League 3 Tottenham 4: Last season's issues linger, and a glimpse of Yang Min-hyuk**\
-`Spurs made it four pre-season wins out of four, but their victory in Seoul showed there is still work to be done`\
-https://nytimes.com/athletic/5668486/2024/07/31/team-k-league-3-tottenham-4-son-yang-min-hyuk/
-
-**Strikes in Iran and Lebanon Raise Risk of Escalation, but All-Out War Is Not Inevitable**\
-`The scale of the reaction from Iran and its regional proxies to the attacks on two of Israel’s largest foes could determine whether the low-level regional battle tips into a full-scale conflict.`\
-https://nytimes.com/2024/07/31/world/middleeast/iran-lebanon-israel-war-assassination.html
 

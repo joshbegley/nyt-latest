@@ -1,3 +1,11 @@
+**World leaders fear a longer war in Gaza and escalation elsewhere.**\
+`T`\
+https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/world-leaders-fear-a-longer-war-in-gaza-and-escalation-elsewhere
+
+**After Haniyeh’s Death, Who Are Hamas’s Most Prominent Leaders?**\
+`Ismail Haniyeh, who was killed in Iran, was among the most senior members of Hamas’s leadership. Here is a look at others.`\
+https://nytimes.com/2024/07/31/world/middleeast/hamas-leaders-haniyeh-sinwar-meshal.html
+
 **Orioles buy low on Trevor Rogers, but still need more pitching**\
 `Keith Law weighs in on the deal, saying he completely sure what the Orioles are seeing in Rogers.`\
 https://nytimes.com/athletic/5669373/2024/07/31/orioles-marlins-trevor-rogers-trade-analysis/
