@@ -1,3 +1,7 @@
+**Van Domselaar joins Arsenal from Villa**\
+`Arsenal have completed the signing of goalkeeper Daphne van Domselaar from Aston Villa.`\
+https://nytimes.com/athletic/5648516/2024/07/31/daphne-van-domselaar-arsenal-transfer/
+
 **What to Know About the Deadly Landslides in Southern India**\
 `The death toll has risen to at least 126 in Kerala State after heavy rain sent huge mudslides through an area known as a tourist destination.`\
 https://nytimes.com/2024/07/31/world/asia/india-kerala-landslides.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5668458/2024/07/31/2024-hall-of-fame-game-bears-tex
 **Why fans booed Embiid in Team USA's win over Serbia**\
 `French GM Boris Diaw told The Athletic in March that Embiid "wanted to play for France."`\
 https://nytimes.com/athletic/5667181/2024/07/31/joel-embiid-booed-olympics-usa-france/
-
-**Will Israel and Hezbollah Go to War?**\
-`Tensions are on a knife edge after Israel carried out a strike on the Hezbollah leader allegedly behind an attack in the Golan Heights.`\
-https://nytimes.com/2024/07/31/podcasts/the-daily/israel-hezbollah-lebanon.html
 
