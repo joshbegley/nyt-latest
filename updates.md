@@ -1,3 +1,7 @@
+**Seeking Your First Job After College? Share Your Story.**\
+`The New York Times wants to hear from recent college graduates, other young job seekers and hiring managers about this year’s job market.`\
+https://nytimes.com/2024/07/31/business/economy/job-hunt-college-graduates.html
+
 **Accused Sept. 11 Plotters Agree to Plead Guilty at Guantánamo Bay**\
 `Word of the deal emerged in a letter from prosecutors to family members of victims of the attacks.`\
 https://nytimes.com/2024/07/31/us/politics/sept-11-guilty-plea.html

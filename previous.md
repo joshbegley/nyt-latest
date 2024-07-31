@@ -1,3 +1,7 @@
+**Seeking Your First Job After College? Share Your Story.**\
+`The New York Times wants to hear from recent college graduates, other young job seekers and hiring managers about this year’s job market.`\
+https://nytimes.com/2024/07/31/business/economy/job-hunt-college-graduates.html
+
 **Accused Sept. 11 Plotters Agree to Plead Guilty at Guantánamo Bay**\
 `Word of the deal emerged in a letter from prosecutors to family members of victims of the attacks.`\
 https://nytimes.com/2024/07/31/us/politics/sept-11-guilty-plea.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/business/bill-ackman-pershing-square-ipo.html
 **Canada reach Olympic quarter-finals despite spying scandal points deduction**\
 `Canada have qualified for the quarterfinals of the Olympic women’s soccer competition — despite the defending champions being deducted six points for spying on opponents earlier in the group stage.`\
 https://nytimes.com/athletic/5671599/2024/07/31/olympics-canada-women-soccer-colombia/
-
-**The Apple of One Business Reporter’s Eye**\
-`Since 2022, Tripp Mickle has covered news surrounding one of the biggest technology companies in Silicon Valley.`\
-https://nytimes.com/2024/07/31/insider/apple-beat.html
 
