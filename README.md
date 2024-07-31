@@ -1,3 +1,11 @@
+**Powell says a rate cut ‘could be on the table’ at the Fed’s next meeting.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/07/31/business/fed-meeting-interest-rates/powell-says-a-rate-cut-could-be-on-the-table-at-the-feds-next-meeting
+
+**U.N. rights monitors describe ‘deplorable conditions’ of Palestinians detained by Israel.**\
+`By Nick Cumming-Bruce`\
+https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/un-rights-monitors-describe-deplorable-conditions-of-palestinians-detained-by-israel
+
 **Autoworkers Union Endorses Kamala Harris for President**\
 `The United Automobile Workers had backed President Biden but did not immediately endorse the vice president. Ms. Harris will rally with U.A.W. members in Detroit next week.`\
 https://nytimes.com/2024/07/31/us/politics/uaw-kamala-harris.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/31/nyregion/stanley-simon-dead.html
 **Cashman: Yankees still wanted Jack Flaherty**\
 `“I would have brought Jack Flaherty in if I could have matched up,” Cashman said Wednesday, “and I had difficulty matching up."`\
 https://nytimes.com/athletic/5672427/2024/07/31/brian-cashman-says-yankees-would-have-traded-for-jack-flaherty-despite-report-of-health-concerns/
-
-**Death by Firing Squad Is a Legal Punishment, South Carolina’s Top Court Rules**\
-`The ruling said that because death row prisoners can choose from three methods of execution, none could be considered a cruel or unusual punishment.`\
-https://nytimes.com/2024/07/31/us/firing-squad-death-penalty.html
-
-**What’s in Our Queue? ‘My Fair Lady’ and More**\
-`I’m a reporter covering the cryptocurrency industry from San Francisco. Here are five things I’ve enjoyed recently.`\
-https://nytimes.com/interactive/2024/07/31/arts/editors-recommendations-my-fair-lady.html
 
