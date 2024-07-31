@@ -1,13 +1,17 @@
+**Dodgers trade deadline takeaways: Landing an impact starter, the 3-team deal and more**\
+`Given the going rate for pitchers this week, the Dodgers appear to have done well for themselves.`\
+https://nytimes.com/athletic/5670887/2024/07/30/dodgers-trade-deadline-jack-flaherty/
+
 **Here's how the Tigers' return for Jack Flaherty came together**\
-`The Tigers traded Jack Flaherty to the Dodgers for catcher Thayron Liranzo and shortstop Trey Sweeney on Tuesday. `\
+`The Tigers traded Flaherty to the Dodgers for catcher Thayron Liranzo and shortstop Trey Sweeney on Tuesday. `\
 https://nytimes.com/athletic/5670921/2024/07/30/tigers-trade-return-jack-flaherty-thayron-liranzo-trey-sweeney/
 
 **Astros trade deadline takeaways: Kikuchi's price, the search for offense and bullpen depth**\
 `Some feel that the Astros gave up too much for their new lefty starter. Houston also acquired a reliever but didn't add to their lineup.`\
 https://nytimes.com/athletic/5670908/2024/07/30/astros-trade-deadline-yusei-kikuchi-price/
 
-**Ismail Haniyeh, a top Hamas leader, has been killed, Iran says.**\
-`By Farnaz Fassihi and Ronen Bergman`\
+**Here’s the latest on the assassination.**\
+`By Farnaz Fassihi, Ronen Bergman and Adam Rasgon`\
 https://nytimes.com/live/2024/07/30/world/israel-gaza-war-lebanon-hezbollah/ismail-haniyeh-a-top-hamas-leader-has-been-killed-iran-says
 
 **Boar’s Head Recalls 7 Million More Pounds of Meat Amid Listeria Outbreak**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5670828/2024/07/30/reds-trade-deadline-rotation-jak
 **In Atlanta, Harris Has Dance-Party Energy**\
 `Republicans should keep underestimating what they can’t understand.`\
 https://nytimes.com/live/2024/07/30/opinion/thepoint/kamala-harris-atlanta-energy
-
-**Yankees backed out of trade for Jack Flaherty because of medical concerns: Sources**\
-`Since returning from a back issue that forced him to miss a start, Flaherty has 1.53 ERA in 17 2/3 innings over three outings`\
-https://nytimes.com/athletic/5670855/2024/07/30/yankes-jack-flaherty-trade-tigers/
 

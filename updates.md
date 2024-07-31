@@ -1,3 +1,15 @@
+**Dodgers trade deadline takeaways: Landing an impact starter, the 3-team deal and more**\
+`Given the going rate for pitchers this week, the Dodgers appear to have done well for themselves.`\
+https://nytimes.com/athletic/5670887/2024/07/30/dodgers-trade-deadline-jack-flaherty/
+
+**Here's how the Tigers' return for Jack Flaherty came together**\
+`The Tigers traded Flaherty to the Dodgers for catcher Thayron Liranzo and shortstop Trey Sweeney on Tuesday. `\
+https://nytimes.com/athletic/5670921/2024/07/30/tigers-trade-return-jack-flaherty-thayron-liranzo-trey-sweeney/
+
+**Here’s the latest on the assassination.**\
+`By Farnaz Fassihi, Ronen Bergman and Adam Rasgon`\
+https://nytimes.com/live/2024/07/30/world/israel-gaza-war-lebanon-hezbollah/ismail-haniyeh-a-top-hamas-leader-has-been-killed-iran-says
+
 **Here's how the Tigers' return for Jack Flaherty came together**\
 `The Tigers traded Jack Flaherty to the Dodgers for catcher Thayron Liranzo and shortstop Trey Sweeney on Tuesday. `\
 https://nytimes.com/athletic/5670921/2024/07/30/tigers-trade-return-jack-flaherty-thayron-liranzo-trey-sweeney/
