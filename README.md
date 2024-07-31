@@ -1,3 +1,7 @@
+**Fact-Checking Trump’s Remarks on Race**\
+`The former president falsely accused Vice President Kamala Harris of “only promoting” her Indian heritage, among other inaccurate claims. Here’s a fact check.`\
+https://nytimes.com/2024/07/31/us/politics/trump-nabj-fact-check.html
+
 **Léon Marchand is the superstar and French sports hero these Olympics needed**\
 `Every epic needs a hero who descends from another world with abilities we can't quite comprehend. For these Olympics, it's Léon Marchand.`\
 https://nytimes.com/athletic/5673096/2024/07/31/leon-marchand-olympics-swimming-france-superstar-gold/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/us/wildfires-california-colorado-park-alexander.h
 **Anna Netrebko, Shunned in U.S. Over Putin Support, to Sing in Palm Beach**\
 `The star soprano, who lost work at American opera companies after Russia invaded Ukraine, will sing at a gala for Palm Beach Opera, her first American engagement since 2019.`\
 https://nytimes.com/2024/07/31/arts/music/anna-netrebko-palm-beach.html
-
-**Trump Says He Would Pardon Jan. 6 Rioters Who Attacked Police**\
-`Hundreds of people have been convicted in the storming of the Capitol in 2021, including those who assaulted officers.`\
-https://nytimes.com/2024/07/31/us/politics/trump-jan-6-pardons-nabj.html
 
