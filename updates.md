@@ -1,3 +1,11 @@
+**Some Israelis celebrate, while others brace for retaliation.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/some-israelis-celebrate-while-others-brace-for-retaliation
+
+**Dudline? Why MLB's trade deadline fell flat this season**\
+`With so many teams chasing a wild-card berth, trades for big names were a rarity at this deadline. Will that trend continue? `\
+https://nytimes.com/athletic/5671823/2024/07/31/dudline-mlb-trade-deadline-falls-flat/
+
 **Jamaica's Shericka Jackson won't race 100m at Olympics**\
 `Richardson will still have to deal with Jamaica’s legendary sprinter Shelly-Ann Fraser-Price, who is in her fifth and likely final Olympics.`\
 https://nytimes.com/athletic/5671587/2024/07/31/jamaica-shericka-jackson-100-meter-olympics/
