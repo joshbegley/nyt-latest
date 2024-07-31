@@ -1,3 +1,11 @@
+**Tampa Bay Rays get county approval for new stadium project**\
+`The Rays' new ballpark would have a fixed roof and would be scheduled to open for the 2028 season.`\
+https://nytimes.com/athletic/5670701/2024/07/30/tampa-bay-rays-new-ballpark-county-approval/
+
+**Chargers training camp, Day 6: Joshua Palmer, DJ Chark have a statement practice**\
+`The Chargers have a big void to fill after cutting ties with Keenan Allen and Mike Williams. Are Palmer and Chark up to the task? `\
+https://nytimes.com/athletic/5670620/2024/07/30/chargers-training-camp-joshua-palmer-dj-chark/
+
 **Cubs' Jed Hoyer looked to 2025 with trades and wants more questions answered next 2 months**\
 `Hoyer will be paying attention to how the offense performs the rest of the way so he can get a good idea of how it stands going into 2025.`\
 https://nytimes.com/athletic/5670609/2024/07/30/jed-hoyer-cubs-trade-deadline-reaction/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5670447/2024/07/30/seahawks-dk-metcalf-devon-wither
 **No, You Can’t Beat an Olympic Table Tennis Player**\
 `An N.B.A. star’s trash talk was good-natured but typical, elite players said. They say they play along with it … to a point.`\
 https://nytimes.com/2024/07/30/sports/table-tennis-anthony-edwards.html
-
-**The night Simone Biles was the center of gravity at the Olympics once again**\
-`On Tuesday in Paris, the full force of Biles was back at the Olympics. No one could stop her, and no one could turn away.`\
-https://nytimes.com/athletic/5670292/2024/07/30/simone-biles-olympics-gymnastics-team-gold-medal/
-
-**Los Angeles Says It Will Not Join Newsom’s Push to Clear Encampments**\
-`Leaders of Los Angeles County, where more than 75,000 homeless people live, voted on Tuesday to reaffirm that they would not criminalize homelessness.`\
-https://nytimes.com/2024/07/30/us/los-angeles-homeless-newsom.html
 

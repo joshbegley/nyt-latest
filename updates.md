@@ -1,3 +1,11 @@
+**Tampa Bay Rays get county approval for new stadium project**\
+`The Rays' new ballpark would have a fixed roof and would be scheduled to open for the 2028 season.`\
+https://nytimes.com/athletic/5670701/2024/07/30/tampa-bay-rays-new-ballpark-county-approval/
+
+**Chargers training camp, Day 6: Joshua Palmer, DJ Chark have a statement practice**\
+`The Chargers have a big void to fill after cutting ties with Keenan Allen and Mike Williams. Are Palmer and Chark up to the task? `\
+https://nytimes.com/athletic/5670620/2024/07/30/chargers-training-camp-joshua-palmer-dj-chark/
+
 **Cubs' Jed Hoyer looked to 2025 with trades and wants more questions answered next 2 months**\
 `Hoyer will be paying attention to how the offense performs the rest of the way so he can get a good idea of how it stands going into 2025.`\
 https://nytimes.com/athletic/5670609/2024/07/30/jed-hoyer-cubs-trade-deadline-reaction/
