@@ -1,3 +1,7 @@
+**Unrest at Army Bases Highlights a Long Battle for Israel’s Soul**\
+`After Israeli soldiers were detained on suspicion of abusing a Palestinian, riots broke out that symbolize a wider struggle over Israel’s future that has divided the country.`\
+https://nytimes.com/2024/07/31/world/middleeast/israel-army-bases-riots.html
+
 **The stock market grew turbulent this month as investors began to position for a rate cut.**\
 `Wall Street isn’t expecting the Fed to start lowering rates uxpecting the Federal Reserve to keep rates steady for now, but start lowering rates in September.`\
 https://nytimes.com/live/2024/07/31/business/fed-meeting-interest-rates/the-stock-market-grew-turbulent-this-month-as-investors-began-to-position-for-a-rate-cut
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/movies/kneecap-film-ireland.html
 **Daphne van Domselaar: 'I’m ready to show my best and work hard for that starting spot'**\
 `After swapping Villa for Arsenal, the ’keeper talks to The Athletic about her Euros breakthrough, playing from the back and her love of Lego`\
 https://nytimes.com/athletic/5652448/2024/07/31/daphne-van-domselaar-arsenal-signing/
-
-**Diogo Jota interview: Slot's first impressions, injuries - and his summer with Ronaldo**\
-`Portuguese attacker had a frustrating end to last season and summer but is determined to make up for lost time `\
-https://nytimes.com/athletic/5669095/2024/07/31/diogo-jota-liverpool-slot-ronaldo/
 
