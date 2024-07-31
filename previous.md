@@ -1,3 +1,7 @@
+**USWNT 2 Australia 1: Korbin Albert's helps U.S. head to Olympic quarterfinal undefeated**\
+`Here's how the U.S. wrapped the Olympic group stage.`\
+https://nytimes.com/athletic/5670984/2024/07/31/uswnt-australia-korbin-albert-olympics/
+
 **Two Al Jazeera Journalists Were Killed in Israeli Airstrike on Gaza**\
 `A reporter and a cameraman were working from or near the house of Ismail Haniyeh, the Hamas political chief who was assassinated on Tuesday.`\
 https://nytimes.com/2024/07/31/world/middleeast/al-jazeera-journalists-killed-airstrike-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/30/opinion/thepoint/melania-trump-donald-trump
 **Saudi Arabia unveils 2034 World Cup plans: 11 new stadiums, five cities**\
 `Saudi Arabia plans to build 11 new stadiums as part of its bid to host the 2034 men&#8217;s World Cup.`\
 https://nytimes.com/athletic/5672506/2024/07/31/saudi-arabia-2034-world-cup-plans/
-
-**Marchand wins gold, sets record in 200M butterfly**\
-`Léon Marchand set an Olympic record with a time of 1:51.21 in an incredible come-from-behind win over Hungary's Kristóf Milák. `\
-https://nytimes.com/athletic/5672403/2024/07/31/leon-marchand-france-olympics-swimming/
 
