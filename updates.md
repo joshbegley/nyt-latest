@@ -1,3 +1,7 @@
+**Cubs' Jed Hoyer looked to 2025 with trades and wants more questions answered**\
+`Hoyer will be paying attention to how the offense performs the rest of the way so he can get a good idea of how it stands going into 2025.`\
+https://nytimes.com/athletic/5670609/2024/07/30/jed-hoyer-cubs-trade-deadline-reaction/
+
 **Mets trade deadline takeaways: Why David Stearns said 'we're happy'**\
 `Huascar Brazobán improved a revamped bullpen as the Mets navigated a market in which astronomical asking prices were the norm.`\
 https://nytimes.com/athletic/5670606/2024/07/30/mets-trade-deadline-paul-blackburn/
