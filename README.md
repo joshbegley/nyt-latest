@@ -1,3 +1,7 @@
+**Broncos WR Josh Reynolds 'something else' while connecting with Bo Nix**\
+`The free agent from the Lions gives Sean Payton the type of big body he wants in Denver's receiving corps.`\
+https://nytimes.com/athletic/5672668/2024/07/31/broncos-camp-josh-reynolds/
+
 **Bill Ackman Abruptly Withdraws Planned I.P.O.**\
 `The announcement came a day after he had scaled back the expected size of the offering.`\
 https://nytimes.com/2024/07/31/business/bill-ackman-pershing-square-ipo.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/us/politics/assassinations-middle-east-biden.html
 **Musk-Backed Super PAC Shakes Up Pro-Trump Field Program**\
 `The group, America PAC, is in some disarray for now as it overhauls its program to turn out voters for Donald J. Trump.`\
 https://nytimes.com/2024/07/31/us/politics/trump-musk-super-pac.html
-
-**Man Gets 20 Years for Fatally Stabbing Teenager on River Tubing Trip**\
-`Nicolae Miu, 54, was sentenced on Wednesday for killing a 17-year-old and wounding four others on a Wisconsin river in 2022, the authorities said.`\
-https://nytimes.com/2024/07/31/us/apple-river-stabbing-nicolae-miu-sentencing.html
 
