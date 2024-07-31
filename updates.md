@@ -1,3 +1,7 @@
+**Missouri Man Is Freed After 1991 Murder Conviction Is Overturned**\
+`Christopher Dunn, who spent more than three decades in prison, was released one week after the Missouri attorney general blocked a judge’s order for his immediate release.`\
+https://nytimes.com/2024/07/31/us/christopher-dunn-prison-release-missouri.html
+
 **Drop your questions here for the fantasy football mailbag**\
 `Drop your questions here for the fantasy football mailbag.`\
 https://nytimes.com/athletic/5672263/2024/07/31/drop-your-questions-here-for-the-fantasy-football-mailbag-16/
