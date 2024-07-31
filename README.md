@@ -1,3 +1,11 @@
+**Breaking down a Giants' trade deadline that left everyone unsatisfied**\
+`The Giants' deadline was uninspiring but If you wanted them to improve for next season, they probably did, if only in the abstract.`\
+https://nytimes.com/athletic/5669028/2024/07/31/sf-giants-trade-deadline-analysis/
+
+**Drones Target Sudan Army Base During Top General’s Visit**\
+`For 15 months, Gen. Abdel Fattah al-Burhan has been leading a war for control of the country against his rival, Lt. Gen. Mohamed Hamdan, the head of the paramilitary Rapid Support Forces.`\
+https://nytimes.com/2024/07/31/world/africa/sudan-assasination-attempt-general-burhan.html
+
 **The strikes add another hurdle to already troubled cease-fire talks.**\
 `By Aaron Boxerman and Adam Rasgon`\
 https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/hamas-cease-fire-talks-gaza-israel
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/some-israel
 **Dudline? Why MLB's trade deadline fell flat this season**\
 `With so many teams chasing a wild-card berth, trades for big names were a rarity at this deadline. Will that trend continue? `\
 https://nytimes.com/athletic/5671823/2024/07/31/dudline-mlb-trade-deadline-falls-flat/
-
-**Jamaica's Shericka Jackson won't race 100m at Olympics**\
-`Richardson will still have to deal with Jamaica’s legendary sprinter Shelly-Ann Fraser-Price, who is in her fifth and likely final Olympics.`\
-https://nytimes.com/athletic/5671587/2024/07/31/jamaica-shericka-jackson-100-meter-olympics/
-
-**Brentford's Thiago out until 'late 2024' with injury, Toney's status in doubt**\
-`Brentford&#8217;s record signing Igor Thiago has been ruled out until &#8220;late 2024&#8221; due to a knee injury.`\
-https://nytimes.com/athletic/5671793/2024/07/31/igor-thiago-injury-ivan-toney-brentford-future/
 
