@@ -1,3 +1,11 @@
+**Lowetide: Why the Oilers' active summer brings back a flood of memories**\
+`Oilers fans don't care at all about how the Stanley Cup is won, only that it happens again.`\
+https://nytimes.com/athletic/5668474/2024/07/31/edmonton-oilers-offseason-memories/
+
+**Penguins mailbag: Trades, Sidney Crosby, Big Three's future**\
+`Why hasn't Crosby signed a new contract with the Penguins yet?`\
+https://nytimes.com/athletic/5672115/2024/07/31/penguins-sidney-crosby-contract-trades/
+
 **West Ham in advanced talks to sign Leeds forward Summerville**\
 `West Ham United are in advanced talks to sign Leeds United forward Crysencio Summerville.`\
 https://nytimes.com/athletic/5611572/2024/07/31/crysencio-summerville-west-ham-transfer-news/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5669095/2024/07/31/diogo-jota-liverpool-slot-ronald
 **Manchester City fined more than £2m for late kick-offs**\
 `Manchester City have been fined more than £2million by the Premier League relating to kick-off and restart obligations.`\
 https://nytimes.com/athletic/5672084/2024/07/31/manchester-city-kick-offs-fine/
-
-**Can I Ask Straight Women to Stop Calling Their Pals ‘Girlfriends’?**\
-`The magazine’s Ethicist columnist on the quirks of common language — namely the myriad ways to refer to friends and lovers.`\
-https://nytimes.com/2024/07/31/magazine/straight-women-girlfriends-ethics.html
-
-**Israel Can Still Avoid Regional War and Pursue a Cease-Fire**\
-`Can Netanyahu claim victory and push for a Gaza deal?`\
-https://nytimes.com/live/2024/07/30/opinion/thepoint/israel-assassination-haniyeh
 

@@ -1,3 +1,11 @@
+**Lowetide: Why the Oilers' active summer brings back a flood of memories**\
+`Oilers fans don't care at all about how the Stanley Cup is won, only that it happens again.`\
+https://nytimes.com/athletic/5668474/2024/07/31/edmonton-oilers-offseason-memories/
+
+**Penguins mailbag: Trades, Sidney Crosby, Big Three's future**\
+`Why hasn't Crosby signed a new contract with the Penguins yet?`\
+https://nytimes.com/athletic/5672115/2024/07/31/penguins-sidney-crosby-contract-trades/
+
 **West Ham in advanced talks to sign Leeds forward Summerville**\
 `West Ham United are in advanced talks to sign Leeds United forward Crysencio Summerville.`\
 https://nytimes.com/athletic/5611572/2024/07/31/crysencio-summerville-west-ham-transfer-news/
