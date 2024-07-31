@@ -1,3 +1,7 @@
+**Jonah Jackson, Alaric Jackson facing injuries**\
+`The Rams' left guard and left tackle are both out — for various times — after training camp injuries.`\
+https://nytimes.com/athletic/5672961/2024/07/31/la-rams-offensive-line-injuries/
+
 **Fires Burning at ‘Full Tilt’ Across the Western U.S. Stretch Resources**\
 `At least one person was killed this week by a wildfire in Colorado, and experts say hot, dry conditions are likely to spark more blazes.`\
 https://nytimes.com/2024/07/31/us/wildfires-california-colorado-park-alexander.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/nyregion/boars-head-recall-listeria-outbreak-deli
 **Scotland Yard Will Review Email Deletions in News Corp Hacking Scandal**\
 `A preliminary inquiry threatens to reopen a tumultuous chapter in U.K. news media history. It could entangle The Washington Post’s publisher and other former News Corp figures.`\
 https://nytimes.com/2024/07/31/business/media/scotland-yard-email-news-corp-hacking.html
-
-**Michigan Court Clears Way for Higher Wages, Overruling Legislature**\
-`The ruling, raising the minimum wage and phasing out a lower wage for tipped workers, said legislators had acted improperly in dodging a referendum.`\
-https://nytimes.com/2024/07/31/business/economy/michigan-supreme-court-minimum-wage.html
 

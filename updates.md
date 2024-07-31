@@ -1,3 +1,7 @@
+**Jonah Jackson, Alaric Jackson facing injuries**\
+`The Rams' left guard and left tackle are both out — for various times — after training camp injuries.`\
+https://nytimes.com/athletic/5672961/2024/07/31/la-rams-offensive-line-injuries/
+
 **Fires Burning at ‘Full Tilt’ Across the Western U.S. Stretch Resources**\
 `At least one person was killed this week by a wildfire in Colorado, and experts say hot, dry conditions are likely to spark more blazes.`\
 https://nytimes.com/2024/07/31/us/wildfires-california-colorado-park-alexander.html
