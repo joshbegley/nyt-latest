@@ -1,3 +1,11 @@
+**The Apple of One Business Reporter’s Eye**\
+`Since 2022, Tripp Mickle has covered news surrounding one of the biggest technology companies in Silicon Valley.`\
+https://nytimes.com/2024/07/31/insider/apple-beat.html
+
+**Breaking down the Blue Jays' 14 trade deadline acquisitions**\
+`The Blue Jays added 14 new players at the deadline. Who are they, and when are they expected to impact the Blue Jays' roster?`\
+https://nytimes.com/athletic/5672583/2024/07/31/blue-jays-trade-deadline-acquisition-analysis/
+
 **Alma Powell, 86, Esteemed Military Spouse of a Revered Statesman, Dies**\
 `Her quiet, elegant manner added to the mystique behind her husband, Colin Powell, and she figured strongly into his decision not to run for president in 1996.`\
 https://nytimes.com/2024/07/31/us/politics/alma-powell-dead.html
