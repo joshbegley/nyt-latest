@@ -1,3 +1,15 @@
+**Astros designate reliever Rafael Montero for assignment**\
+`Montero accrued minus-0.4 wins above replacement after signing the contract.`\
+https://nytimes.com/athletic/5672822/2024/07/31/astros-dfa-rafael-montero/
+
+**Meta Says It Will Continue Spending, as Growth Surges**\
+`The company has been investing in artificial intelligence technologies, as well as building the immersive world of the metaverse.`\
+https://nytimes.com/2024/07/31/technology/meta-earnings-artificial-intelligence.html
+
+**Rate Cut ‘Could Be on the Table’ at Next Fed Meeting, Powell Says**\
+`Jerome H. Powell, the Federal Reserve chair, suggested an interest rate cut could be on the horizon after the central bank held rates steady at its most recent meeting.`\
+https://nytimes.com/video/business/economy/100000009603765/federal-reserve-interest-rates.html
+
 **Thoughts on Ryan Williams, transfers and more as Alabama opens practice**\
 `Kalen DeBoer's thoughts on Williams, the summer transfers and more after Alabama's first practice.`\
 https://nytimes.com/athletic/5672562/2024/07/31/alabama-football-practice-ryan-williams/

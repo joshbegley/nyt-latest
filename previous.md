@@ -1,3 +1,15 @@
+**Astros designate reliever Rafael Montero for assignment**\
+`Montero accrued minus-0.4 wins above replacement after signing the contract.`\
+https://nytimes.com/athletic/5672822/2024/07/31/astros-dfa-rafael-montero/
+
+**Meta Says It Will Continue Spending, as Growth Surges**\
+`The company has been investing in artificial intelligence technologies, as well as building the immersive world of the metaverse.`\
+https://nytimes.com/2024/07/31/technology/meta-earnings-artificial-intelligence.html
+
+**Rate Cut ‘Could Be on the Table’ at Next Fed Meeting, Powell Says**\
+`Jerome H. Powell, the Federal Reserve chair, suggested an interest rate cut could be on the horizon after the central bank held rates steady at its most recent meeting.`\
+https://nytimes.com/video/business/economy/100000009603765/federal-reserve-interest-rates.html
+
 **Thoughts on Ryan Williams, transfers and more as Alabama opens practice**\
 `Kalen DeBoer's thoughts on Williams, the summer transfers and more after Alabama's first practice.`\
 https://nytimes.com/athletic/5672562/2024/07/31/alabama-football-practice-ryan-williams/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5671039/2024/07/31/yankees-trade-deadline-juan-soto
 **Simone Biles reveals U.S. women's gymnastics team’s throwback nickname**\
 `Take a look back at the previous U.S. women's Olympic gymnastics teams that earned medals and nicknames.`\
 https://nytimes.com/athletic/5672406/2024/07/31/usa-gymnastics-team-nicknames-history/
-
-**Bears' DJ Moore on his new contract, Caleb Williams and Popeyes**\
-`Moore is thrilled with his four-year contract extension and happy to be part of the foundation in Chicago.`\
-https://nytimes.com/athletic/5672606/2024/07/31/bears-dj-moore-contract-reaction/
-
-**Ledecky sets Olympic record in 1500M freestyle**\
-`Katie Ledecky has not lost this race in more than 14 years, and she owns the 20 fastest times in world history in the event.`\
-https://nytimes.com/athletic/5672462/2024/07/31/katie-ledecky-gold-olympics-1500-meters/
-
-**USWNT 2 Australia 1: Korbin Albert's helps U.S. head to Olympic quarterfinal undefeated**\
-`Here's how the U.S. wrapped its Olympic group stage.`\
-https://nytimes.com/athletic/5670984/2024/07/31/uswnt-australia-korbin-albert-olympics/
 
