@@ -1,3 +1,7 @@
+**Arizona Republican Who Said 2020 Election Was Not Stolen Loses Primary**\
+`Stephen Richer, the Maricopa County recorder in Phoenix, was widely criticized by Republicans for defending the state’s voting system against false claims about the 2020 election.`\
+https://nytimes.com/2024/07/31/us/arizona-stephen-richer-maricopa-county-election.html
+
 **Beaugrand wins home triathlon gold for France in Paris**\
 `PARIS – The dawn rain slowed to a drizzle just before 8am on Wednesday morning in Paris, just as 46 fittest women in the world trotted onto the Pont Alexandre III, descended a flight of stairs onto a floating dock and dove into the Seine, bacteria be damned.`\
 https://nytimes.com/athletic/5671320/2024/07/31/olympic-triathlon-result-cassandre-beaugrand/
