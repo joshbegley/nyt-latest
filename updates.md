@@ -1,3 +1,7 @@
+**Colin Jost Will Host the New ‘Jeopardy!’ Pop Culture Spinoff**\
+`“Pop Culture Jeopardy!” is expected to begin production in August and will stream only on Amazon Prime Video.`\
+https://nytimes.com/2024/07/31/arts/television/colin-jost-jeopardy-spinoff-host.html
+
 **After Vance’s Rough Debut, Trump Downplays Importance of V.P. Choice**\
 `Donald Trump was asked about his selection of a vice president during an appearance before the National Association of Black Journalists on Wednesday.`\
 https://nytimes.com/live/2024/07/31/us/harris-trump-election/after-vances-rough-debut-trump-downplays-importance-of-vp-choice

@@ -1,3 +1,7 @@
+**Colin Jost Will Host the New ‘Jeopardy!’ Pop Culture Spinoff**\
+`“Pop Culture Jeopardy!” is expected to begin production in August and will stream only on Amazon Prime Video.`\
+https://nytimes.com/2024/07/31/arts/television/colin-jost-jeopardy-spinoff-host.html
+
 **After Vance’s Rough Debut, Trump Downplays Importance of V.P. Choice**\
 `Donald Trump was asked about his selection of a vice president during an appearance before the National Association of Black Journalists on Wednesday.`\
 https://nytimes.com/live/2024/07/31/us/harris-trump-election/after-vances-rough-debut-trump-downplays-importance-of-vp-choice
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/us/military-suicide-rates-report.html
 **Irresistible force of Nadalcaraz falls at the Olympics to an immovable object**\
 `Two of the best tennis players then and now finally know the feeling they inflict on so many: that the opponent is playing a different sport`\
 https://nytimes.com/athletic/5672470/2024/07/31/nadalcaraz-olympics-tennis-doubles/
-
-**Iran’s Leader Orders Attack on Israel for Haniyeh Killing, Officials Say**\
-`Iran’s supreme leader, Ayatollah Ali Khamenei, ordered retaliation after a humiliating security failure, as Iran once again balances showing strength against the risk of escalation.`\
-https://nytimes.com/2024/07/31/world/middleeast/iran-orders-attack-israel.html
 
