@@ -18,13 +18,13 @@ https://nytimes.com/2024/07/31/us/politics/trump-nabj-fact-check.html
 `Every epic needs a hero who descends from another world with abilities we can't quite comprehend. For these Olympics, it's Léon Marchand.`\
 https://nytimes.com/athletic/5673096/2024/07/31/leon-marchand-olympics-swimming-france-superstar-gold/
 
-**Sonya Massey’s Killing Is Black America’s Sorrow**\
-`Her death is the manifestation of a societal sickness that devalues Black life.`\
-https://nytimes.com/2024/07/31/opinion/sonya-massey.html
-
 **Iran and Hamas Blame Israel for Killing of Top Official and Vow to Strike Back**\
 `The deadly strike on Ismail Haniyeh in Tehran threatened to further inflame the region and derail negotiations aimed at reaching a cease-fire in Gaza.`\
 https://nytimes.com/2024/07/31/world/middleeast/israel-hamas-hezbollah-iran.html
+
+**Sonya Massey’s Killing Is Black America’s Sorrow**\
+`Her death is the manifestation of a societal sickness that devalues Black life.`\
+https://nytimes.com/2024/07/31/opinion/sonya-massey.html
 
 **Bryce Harper, Phillies stay steady as slumps drag on: 'Turn the page to August'**\
 `Harper has one hit in his last 30 at-bats. The Phillies have lost 11 of their last 15 games. Maybe it's a good time for an off day. `\
