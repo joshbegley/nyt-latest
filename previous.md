@@ -1,40 +1,40 @@
-**Trolls Used Her Face to Make Fake Porn. There Was Nothing She Could Do.**\
-`Sabrina Javellana was a rising star in local politics — until deepfakes derailed her life.`\
-https://nytimes.com/2024/07/31/magazine/sabrina-javellana-florida-politics-ai-porn.html
+**The Market Doesn’t Always Get It Right**\
+`Wisdom rooted in experience and expertise should mean something.`\
+https://nytimes.com/interactive/2024/07/31/opinion/markets-education-media.html
 
-**Move Over Hot Chicken, There’s a Hotter Chicken in Town**\
-`A thrilling, tingling spicy dish, with roots in southwestern China, is closer than you may think.`\
-https://nytimes.com/2024/07/31/magazine/lazi-ji-recipe.html
+**A conversation with Notre Dame offensive coordinator Mike Denbrock on the eve of camp**\
+`Denbrock, who had the nation's No. 1 offense last year at LSU, is back for his third tour at Notre Dame. `\
+https://nytimes.com/athletic/5668683/2024/07/31/notre-dame-mike-donbrock-offensive-coordinator/
 
-**Trump’s Ideas Threaten the Foundation of America’s Economy**\
-`Policy proposals from Donald Trump and his circle threaten the huge advantages the United States enjoys from the Treasury market.`\
-https://nytimes.com/2024/07/31/opinion/trump-threat-treasury-market.html
+**Five questions as Michigan opens first preseason camp under Sherrone Moore**\
+`Can Jack Tuttle shake up the QB race? He’s been a backup most of his career but has a shot to win a wide-open competition.`\
+https://nytimes.com/athletic/5670076/2024/07/31/michigan-football-sherrone-moore-preseason-camp/
 
-**In Hawaii, Weaving New Life Into a Nearly Vanished Art Form**\
-`The age-old practice of turning tree leaves into mats has been revived on the islands. “It teaches you how to weave relationships, past and present,” one master artisan says.`\
-https://nytimes.com/2024/07/31/arts/design/hawaii-weaving-trees-leaves.html
+**Harris Created a Huge Wave of Energy. How Long Can Democrats Ride It?**\
+`Democrats are buzzing, but sustaining the momentum is the next challenge. “How long does the honeymoon last?” one Republican pollster asked. “Who knows.”`\
+https://nytimes.com/2024/07/31/us/politics/kamala-harris-democrats-campaign.html
 
-**At Sundance Lab, Movie Economics Can’t Be Ignored This Year**\
-`Funding is a perennial problem for the indie filmmakers who workshop their latest works here. But now Sundance itself is feeling the financial pressure.`\
-https://nytimes.com/2024/07/31/movies/sundance-filmmakers.html
+**We’re Less Divided Than You Think**\
+`It’s been worse, and that should help guide where we go from here.`\
+https://nytimes.com/interactive/2024/07/31/opinion/political-violence-history-division.html
 
-**Elaine May Is the GOAT of Improv Comedy**\
-`Our critic on an unconventional new biography, “Miss May Does Not Exist.”`\
-https://nytimes.com/2024/07/31/podcasts/elaine-may-is-the-goat-of-improv-comedy.html
+**At Home With - Kecia Lewis**\
+`A Tony Award winner makes a home away from home in Manhattan.`\
+https://nytimes.com/interactive/2024/07/31/realestate/kecia-lewis-tony-winner-nyc-home.html
 
-**This week in recruiting: Auburn surges, Tennessee makes moves in Georgia, setbacks for Oregon**\
-`TCU and UCF continue to battle for the top spot in the Big 12, but Baylor is entering the mix with a strong recent push.`\
-https://nytimes.com/athletic/5669344/2024/07/31/college-football-recruiting-auburn-tennessee-oregon/
+**For Kamala Harris, the Hard Part Starts Now**\
+`Ms. Harris must affirmatively define herself before Mr. Trump and his allies can define her.`\
+https://nytimes.com/2024/07/31/opinion/kamala-harris-campaign.html
 
-**How did Yankees fare at trade deadline? 3 takeaways**\
-`The Yankees did enough to keep pace in the American League but did not separate themselves.`\
-https://nytimes.com/athletic/5670457/2024/07/31/yankees-trade-deadline-takeaways-jazz-chisholm/
+**Book Club: Read ‘My Brilliant Friend’ With the Book Review**\
+`In August, the Book Review Book Club will read and discuss “My Brilliant Friend,” the first book in Elena Ferrante’s Neapolitan quartet.`\
+https://nytimes.com/2024/07/31/books/review/my-brilliant-friend-elena-ferrante-book-club-announcement.html
 
-**At 95, He Has Learned How to Use Nostalgia**\
-`Stan Herman, New York’s godfather of fashion, knows what makes life worth living for.`\
-https://nytimes.com/explain/2024/aging-career-ambition/stan-herman-fashion-designer
+**What to Watch as the Fed Meets on Wednesday**\
+`The Federal Reserve is expected to leave interest rates unchanged but could set up for a cut later this year.`\
+https://nytimes.com/2024/07/31/business/economy/fed-meeting-interest-rates.html
 
-**They Translated the Books of Others. Now They’re Writing Their Own.**\
-`Recognized literary translators — Jennifer Croft, Anton Hur, Bruna Dantas Lobato among them — are making the jump to publishing rosters as authors themselves.`\
-https://nytimes.com/2024/07/31/books/translators-debut-novels.html
+**‘Earthalujah!’: A Rebel Pastor Preaches for the Planet**\
+`As part of its crusade against consumerism, an unorthodox New York church urges action to preserve the Earth.`\
+https://nytimes.com/2024/07/31/climate/rev-billy-talen-earth-church.html
 
