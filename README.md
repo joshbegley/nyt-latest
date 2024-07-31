@@ -1,3 +1,11 @@
+**Thoughts on Ryan Williams, transfers and more as Alabama opens practice**\
+`Kalen DeBoer's thoughts on Williams, the summer transfers and more after Alabama's first practice.`\
+https://nytimes.com/athletic/5672562/2024/07/31/alabama-football-practice-ryan-williams/
+
+**McClaren leaves Man Utd coaching staff to become Jamaica head coach**\
+`Steve McClaren has left his role as first-team coach at Manchester United to take over as Jamaica head coach.`\
+https://nytimes.com/athletic/5672304/2024/07/31/steve-mcclaren-leaves-manchester-united/
+
 **Colin Jost Will Host the New ‘Jeopardy!’ Pop Culture Spinoff**\
 `“Pop Culture Jeopardy!” is expected to begin production in August and will stream only on Amazon Prime Video.`\
 https://nytimes.com/2024/07/31/arts/television/colin-jost-jeopardy-spinoff-host.html
@@ -9,6 +17,10 @@ https://nytimes.com/live/2024/07/31/us/harris-trump-election/after-vances-rough-
 **To the surprise of no one, Katie Ledecky once again laps the competition.**\
 `Katie Ledecky comfortably won the 1,500-meter freestyle, beating her winning time from the Tokyo Games by more than seven seconds.`\
 https://nytimes.com/2024/07/31/world/olympics/katie-ledecky-1500.html
+
+**In Juan Soto's only guaranteed season, Cashman discusses why Yankees didn't go all in at the deadline**\
+`The Yankees GM met with the media on the morning after the trade deadline to go over the team's recent moves.`\
+https://nytimes.com/athletic/5671039/2024/07/31/yankees-trade-deadline-juan-soto-cashman/
 
 **Simone Biles reveals U.S. women's gymnastics team’s throwback nickname**\
 `Take a look back at the previous U.S. women's Olympic gymnastics teams that earned medals and nicknames.`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5672462/2024/07/31/katie-ledecky-gold-olympics-1500
 **USWNT 2 Australia 1: Korbin Albert's helps U.S. head to Olympic quarterfinal undefeated**\
 `Here's how the U.S. wrapped its Olympic group stage.`\
 https://nytimes.com/athletic/5670984/2024/07/31/uswnt-australia-korbin-albert-olympics/
-
-**Two Al Jazeera Journalists Were Killed in Israeli Airstrike on Gaza**\
-`A reporter and a cameraman were working from or near the house of Ismail Haniyeh, the Hamas political chief who was assassinated on Tuesday.`\
-https://nytimes.com/2024/07/31/world/middleeast/al-jazeera-journalists-killed-airstrike-gaza.html
-
-**Pentagon Data Shows High Suicide Rates Among Troops Exposed to Blasts**\
-`A military report on suicide rates broken down by occupation finds the highest rates among categories of troops that often work and train around weapons blasts.`\
-https://nytimes.com/2024/07/31/us/military-suicide-rates-report.html
-
-**Irresistible force of Nadalcaraz falls at the Olympics to an immovable object**\
-`Two of the best tennis players then and now finally know the feeling they inflict on so many: that the opponent is playing a different sport`\
-https://nytimes.com/athletic/5672470/2024/07/31/nadalcaraz-olympics-tennis-doubles/
 
