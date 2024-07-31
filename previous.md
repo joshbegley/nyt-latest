@@ -1,3 +1,15 @@
+**What We Know About Ismail Haniyeh, the Hamas Political Leader Killed in Tehran**\
+`He was central to the group’s high-stakes negotiations and diplomacy.`\
+https://nytimes.com/2024/07/30/world/middleeast/ismail-haniyeh-hamas-iran.html
+
+**Olympic Triathlons in Seine Will Go Ahead, Organizers Say**\
+`The races were scheduled for Wednesday morning. The men’s event was postponed on Tuesday after tests showed the river was not safe for swimming.`\
+https://nytimes.com/2024/07/30/world/olympics/olympics-triathlon-seine-paris.html
+
+**Blue Jays try to make most of 'disappointing' season by retooling at deadline**\
+`The Blue Jays ended up in a strong position in a seller's market and they acquired 11 players with the intent on competing again next year.`\
+https://nytimes.com/athletic/5670995/2024/07/30/blue-jays-trade-deadline-strategy/
+
 **Dodgers trade deadline takeaways: Landing an impact starter, the 3-team deal and more**\
 `Given the going rate for pitchers this week, the Dodgers appear to have done well for themselves.`\
 https://nytimes.com/athletic/5670887/2024/07/30/dodgers-trade-deadline-jack-flaherty/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5668980/2024/07/30/mlb-trade-deadline-2024-every-de
 **The Briefing: Man City 2 Barcelona 2: Grealish's goal and Flick's first test**\
 `Sam Lee and Laia Cervello Herrero address the key talking points from Manchester City's friendly against Barcelona`\
 https://nytimes.com/athletic/5668451/2024/07/30/barcelona-manchester-city-friendly-orlando/
-
-**Man Pleads Guilty to Threatening to Kill Marjorie Taylor Greene**\
-`Sean Patrick Cirillo called Ms. Greene’s office and told staff members about his plans to kill the politician, the F.B.I. said. He faces a maximum of five years in prison.`\
-https://nytimes.com/2024/07/30/us/marjorie-taylor-greene-threats.html
-
-**Reds trade deadline takeaways: Impact on the rotation, Jakob Junis' role and more**\
-`What impact will the Reds' trade acquisitions have on the rotation, the bullpen and other areas of the organization?`\
-https://nytimes.com/athletic/5670828/2024/07/30/reds-trade-deadline-rotation-jakob-junis/
-
-**In Atlanta, Harris Has Dance-Party Energy**\
-`Republicans should keep underestimating what they can’t understand.`\
-https://nytimes.com/live/2024/07/30/opinion/thepoint/kamala-harris-atlanta-energy
 
