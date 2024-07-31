@@ -1,7 +1,3 @@
-**Drop your questions here for the fantasy football mailbag**\
-`Drop your questions here for the fantasy football mailbag.`\
-https://nytimes.com/athletic/5672263/2024/07/31/drop-your-questions-here-for-the-fantasy-football-mailbag-16/
-
 **Marta's Olympics could end with painful red card, but the Brazilian icon's legacy is so much more**\
 `Marta will go down as one of the greatest to ever play. How a legendary career possibly ends in Olympic heartbreak`\
 https://nytimes.com/athletic/5671350/2024/07/31/marta-brazil-olympics-legacy/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/07/31/us/politics/zacarias-moussaoui-france-prison.html
 **Big Ten heading to Vegas for men's, women's tourneys within next four years**\
 `The Pac-12, the former home of USC, UCLA, Oregon and Washington, staged its men’s tournament at T-Mobile Arena from 2017 to 2024.`\
 https://nytimes.com/athletic/5672268/2024/07/31/big-ten-basketball-tournament-las-vegas/
+
+**Trump Is ‘Weird,’ Vance Is ‘Creepy.’ Finally, the Democrats Start Name-Calling.**\
+`The insults are delightfully petty and supremely satisfying.`\
+https://nytimes.com/2024/07/31/opinion/trump-vance-weird-creepy.html
 
