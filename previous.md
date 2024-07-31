@@ -1,3 +1,11 @@
+**Orioles buy low on Trevor Rogers, but still need more pitching**\
+`Keith Law weighs in on the deal, saying he completely sure what the Orioles are seeing in Rogers.`\
+https://nytimes.com/athletic/5669373/2024/07/31/orioles-marlins-trevor-rogers-trade-analysis/
+
+**Inside how Canucks coaches are preparing to improve on last season's success**\
+`Based on conversations with Canucks coaches in the past week, here's a look at what Rick Tocchet's upcoming summer conference will entail.`\
+https://nytimes.com/athletic/5671152/2024/07/31/canucks-coach-nhl-season/
+
 **Strong currents, blistering heat and a thrilling finish make for a wild triathlon.**\
 `Alex Yee overcame a big lead to pull of a dramatic comeback to win the men’s race.`\
 https://nytimes.com/2024/07/31/world/olympics/triathlon-alex-yee.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5668486/2024/07/31/team-k-league-3-tottenham-4-son-
 **Strikes in Iran and Lebanon Raise Risk of Escalation, but All-Out War Is Not Inevitable**\
 `The scale of the reaction from Iran and its regional proxies to the attacks on two of Israel’s largest foes could determine whether the low-level regional battle tips into a full-scale conflict.`\
 https://nytimes.com/2024/07/31/world/middleeast/iran-lebanon-israel-war-assassination.html
-
-**Don’t Let Your Smartphone Keep You Up at Night**\
-`These features to let you wind down for bed, mute notifications and stay on a regular sleep schedule may help you get more rest.`\
-https://nytimes.com/2024/07/31/technology/personaltech/smartphone-sleep-features.html
-
-**A Test for Life Versus Non-Life**\
-`In a new book, physicist Sara Walker argues that assembly theory can explain what life is, and even help scientists create new forms of it.`\
-https://nytimes.com/2024/07/31/science/assembly-theory-life-sara-walker.html
 

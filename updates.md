@@ -1,3 +1,11 @@
+**Orioles buy low on Trevor Rogers, but still need more pitching**\
+`Keith Law weighs in on the deal, saying he completely sure what the Orioles are seeing in Rogers.`\
+https://nytimes.com/athletic/5669373/2024/07/31/orioles-marlins-trevor-rogers-trade-analysis/
+
+**Inside how Canucks coaches are preparing to improve on last season's success**\
+`Based on conversations with Canucks coaches in the past week, here's a look at what Rick Tocchet's upcoming summer conference will entail.`\
+https://nytimes.com/athletic/5671152/2024/07/31/canucks-coach-nhl-season/
+
 **Strong currents, blistering heat and a thrilling finish make for a wild triathlon.**\
 `Alex Yee overcame a big lead to pull of a dramatic comeback to win the men’s race.`\
 https://nytimes.com/2024/07/31/world/olympics/triathlon-alex-yee.html
