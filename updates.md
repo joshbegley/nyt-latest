@@ -1,3 +1,11 @@
+**Saudi Arabia unveils 2034 World Cup plans: 11 new stadiums, five cities**\
+`Saudi Arabia plans to build 11 new stadiums as part of its bid to host the 2034 men&#8217;s World Cup.`\
+https://nytimes.com/athletic/5672506/2024/07/31/saudi-arabia-2034-world-cup-plans/
+
+**Marchand wins gold, sets record in 200M butterfly**\
+`Léon Marchand set an Olympic record with a time of 1:51.21 in an incredible come-from-behind win over Hungary's Kristóf Milák. `\
+https://nytimes.com/athletic/5672403/2024/07/31/leon-marchand-france-olympics-swimming/
+
 **Powell says a rate cut ‘could be on the table’ at the Fed’s next meeting.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/07/31/business/fed-meeting-interest-rates/powell-says-a-rate-cut-could-be-on-the-table-at-the-feds-next-meeting
