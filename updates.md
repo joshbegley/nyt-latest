@@ -1,3 +1,11 @@
+**Guatemala's Ruano Oliva wins first gold medal in country's history**\
+`Ruano Oliva's gold also marks a remarkable comeback for the 29-year-old. In 2021, she finished 26th out of 26 competitors in the event.`\
+https://nytimes.com/athletic/5671986/2024/07/31/adriana-ruano-oliva-olympics-womens-trap-shooting-guatemala-first-gold/
+
+**Three Great Documentaries to Stream**\
+`This month’s picks include an all-archival film about the atomic bomb, a portrait of a Hollywood star and inventor, and a profile of a hospital chaplain.`\
+https://nytimes.com/2024/07/31/movies/documentaries-streaming.html
+
 **Dance Leads the Way as Art Meets Sport at the Cultural Olympiad**\
 `A program of arts events shown in conjunction with the 2024 Olympic and Paralympic Games looks at the relationship between art and sport.`\
 https://nytimes.com/2024/07/31/arts/dance/cultural-olympiad-dominique-hervieu.html
