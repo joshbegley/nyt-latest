@@ -1,3 +1,7 @@
+**Man Gets 20 Years for Fatally Stabbing Teenager on River Tubing Trip**\
+`Nicolae Miu, 54, was sentenced on Wednesday for killing a 17-year-old and wounding four others on a Wisconsin river in 2022, the authorities said.`\
+https://nytimes.com/2024/07/31/us/apple-river-stabbing-nicolae-miu-sentencing.html
+
 **Astros designate reliever Rafael Montero for assignment**\
 `Montero accrued minus-0.4 wins above replacement after signing the contract.`\
 https://nytimes.com/athletic/5672822/2024/07/31/astros-dfa-rafael-montero/
