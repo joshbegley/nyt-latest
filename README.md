@@ -1,3 +1,7 @@
+**Reds trade deadline takeaways: Impacts on the rotation, Jakob Junis' role and more**\
+`What impact will the Reds' trade acquisitions have on the rotation, the bullpen and other areas of the organization?`\
+https://nytimes.com/athletic/5670828/2024/07/30/reds-trade-deadline-takeaways-impact-on-the-rotation-jakob-junis-role-and-more/
+
 **In Atlanta, Harris Has Dance-Party Energy**\
 `Republicans should keep underestimating what they can’t understand.`\
 https://nytimes.com/live/2024/07/30/opinion/thepoint/kamala-harris-atlanta-energy
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5670671/2024/07/30/gregory-soto-phillies-trade-tann
 **Giants 'Hard Knocks' finale: Team rebuffs big trade offer before drafting Malik Nabers**\
 `The Colts offered GM Joe Schoen a first-round pick and two seconds to move up, but the Giants weren't interested. `\
 https://nytimes.com/athletic/5669211/2024/07/30/giants-hard-knocks-takeaways-nfl-draft-malik-nabers/
-
-**Vance Knocks Harris as a ‘Wacky San Francisco Liberal’ in Nevada**\
-`Mr. Vance honed his attacks against the vice president in two of the battleground state’s Democratic strongholds, Las Vegas and Reno, in his first trip to the Southwest since joining the ticket.`\
-https://nytimes.com/2024/07/30/us/politics/jd-vance-kamala-harris.html
 
