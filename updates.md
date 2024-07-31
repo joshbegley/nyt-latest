@@ -1,3 +1,23 @@
+**Anger, apathy and remorse: Gazans react to the death of Ismail Haniyeh.**\
+`By Bilal Shbair and Hiba Yazbek`\
+https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/anger-apathy-and-remorse-gazans-react-to-the-death-of-ismail-haniyeh
+
+**Live Updates: Federal Reserve Meeting**\
+`The Federal Reserve is expected to leave interest rates unchanged but could set up for a cut later this year.`\
+https://nytimes.com/live/2024/07/31/business/fed-meeting-interest-rates
+
+**These Irish Rappers Know Their Movie Will Make People Angry**\
+`Kneecap’s Irish nationalist rap has drawn ire from pro-British politicians and commentators. A new film dramatizing the group’s story looks set to do the same.`\
+https://nytimes.com/2024/07/31/movies/kneecap-film-ireland.html
+
+**Diogo Jota interview: Slot's first impressions, injuries - and his summer with Ronaldo**\
+`Portuguese attacker had a frustrating end to last season and summer but is determined to make up for lost time `\
+https://nytimes.com/athletic/5669095/2024/07/31/diogo-jota-liverpool-slot-ronaldo/
+
+**Manchester City fined more than £2m for late kick-offs**\
+`Manchester City have been fined more than £2million by the Premier League relating to kick-off and restart obligations.`\
+https://nytimes.com/athletic/5672084/2024/07/31/manchester-city-kick-offs-fine/
+
 **Can I Ask Straight Women to Stop Calling Their Pals ‘Girlfriends’?**\
 `The magazine’s Ethicist columnist on the quirks of common language — namely the myriad ways to refer to friends and lovers.`\
 https://nytimes.com/2024/07/31/magazine/straight-women-girlfriends-ethics.html

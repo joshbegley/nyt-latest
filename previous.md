@@ -1,3 +1,23 @@
+**Anger, apathy and remorse: Gazans react to the death of Ismail Haniyeh.**\
+`By Bilal Shbair and Hiba Yazbek`\
+https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/anger-apathy-and-remorse-gazans-react-to-the-death-of-ismail-haniyeh
+
+**Live Updates: Federal Reserve Meeting**\
+`The Federal Reserve is expected to leave interest rates unchanged but could set up for a cut later this year.`\
+https://nytimes.com/live/2024/07/31/business/fed-meeting-interest-rates
+
+**These Irish Rappers Know Their Movie Will Make People Angry**\
+`Kneecap’s Irish nationalist rap has drawn ire from pro-British politicians and commentators. A new film dramatizing the group’s story looks set to do the same.`\
+https://nytimes.com/2024/07/31/movies/kneecap-film-ireland.html
+
+**Diogo Jota interview: Slot's first impressions, injuries - and his summer with Ronaldo**\
+`Portuguese attacker had a frustrating end to last season and summer but is determined to make up for lost time `\
+https://nytimes.com/athletic/5669095/2024/07/31/diogo-jota-liverpool-slot-ronaldo/
+
+**Manchester City fined more than £2m for late kick-offs**\
+`Manchester City have been fined more than £2million by the Premier League relating to kick-off and restart obligations.`\
+https://nytimes.com/athletic/5672084/2024/07/31/manchester-city-kick-offs-fine/
+
 **Can I Ask Straight Women to Stop Calling Their Pals ‘Girlfriends’?**\
 `The magazine’s Ethicist columnist on the quirks of common language — namely the myriad ways to refer to friends and lovers.`\
 https://nytimes.com/2024/07/31/magazine/straight-women-girlfriends-ethics.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5672133/2024/07/31/mlb-trade-deadline-jazz-chisholm
 **A Salzburg Festival Tradition Deserves a Wider Audience**\
 `Robert Carsen’s take on “Jedermann,” a play staged at the festival every year, stands head and shoulders above other recent stagings of the work.`\
 https://nytimes.com/2024/07/31/theater/jedermann-salzburg-festival-tradition.html
-
-**Guatemala's Ruano Oliva wins first gold medal in country's history**\
-`Ruano Oliva's gold also marks a remarkable comeback for the 29-year-old. In 2021, she finished 26th out of 26 competitors in the event.`\
-https://nytimes.com/athletic/5671986/2024/07/31/adriana-ruano-oliva-olympics-womens-trap-shooting-guatemala-first-gold/
-
-**Three Great Documentaries to Stream**\
-`This month’s picks include an all-archival film about the atomic bomb, a portrait of a Hollywood star and inventor, and a profile of a hospital chaplain.`\
-https://nytimes.com/2024/07/31/movies/documentaries-streaming.html
-
-**Dance Leads the Way as Art Meets Sport at the Cultural Olympiad**\
-`A program of arts events shown in conjunction with the 2024 Olympic and Paralympic Games looks at the relationship between art and sport.`\
-https://nytimes.com/2024/07/31/arts/dance/cultural-olympiad-dominique-hervieu.html
-
-**One-Pan Recipes That Are Ripe for Summer**\
-`Sheet-pan chicken with spicy corn, roasted fish with cherry tomatoes and shrimp enchiladas verde showcase summer’s flavors with minimal cleanup.`\
-https://nytimes.com/2024/07/31/dining/one-pan-recipes-that-are-ripe-for-summer.html
-
-**Lyric Opera of Chicago Appoints Orchestra Veteran as New Leader**\
-`John Mangum, who helped guide the Houston Symphony through the turmoil of the pandemic, will serve as the company’s next general director.`\
-https://nytimes.com/2024/07/31/arts/music/lyric-opera-of-chicago-john-mangum.html
 
