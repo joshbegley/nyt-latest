@@ -1,3 +1,7 @@
+**Kalen DeBoer's focus on people is his distinguishing trait, which led him to Alabama**\
+`DeBoer is entering his first season with Alabama, and his history and resume show he has a plan that will pay off.`\
+https://nytimes.com/athletic/5660577/2024/07/31/kalen-deboer-alabama-football-crimson-tide-sec/
+
 **California Progressives Are Making Homelessness Worse**\
 `Removing the state’s encampments won’t fix the problem.`\
 https://nytimes.com/2024/07/31/opinion/california-homelessness-progressives.html

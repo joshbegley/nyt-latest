@@ -1,3 +1,7 @@
+**Kalen DeBoer's focus on people is his distinguishing trait, which led him to Alabama**\
+`DeBoer is entering his first season with Alabama, and his history and resume show he has a plan that will pay off.`\
+https://nytimes.com/athletic/5660577/2024/07/31/kalen-deboer-alabama-football-crimson-tide-sec/
+
 **California Progressives Are Making Homelessness Worse**\
 `Removing the state’s encampments won’t fix the problem.`\
 https://nytimes.com/2024/07/31/opinion/california-homelessness-progressives.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/31/us/harris-trump-election
 **El Ghazi nearing Cardiff move amid money owed by Mainz**\
 `Anwar El Ghazi is nearing a move to Cardiff City after leaving Mainz last year.`\
 https://nytimes.com/athletic/5665344/2024/07/31/anwar-el-ghazi-cardiff-transfer/
-
-**More Than 100 Silicon Valley Investors Pledge to Support Kamala Harris**\
-`The group, including Democratic donors such as Reid Hoffman and Vinod Khosla, has been organized under an effort called VCsForKamala.`\
-https://nytimes.com/2024/07/31/technology/silicon-valley-investors-support-kamala-harris.html
 
