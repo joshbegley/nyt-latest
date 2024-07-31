@@ -22,6 +22,10 @@ https://nytimes.com/2024/07/31/world/middleeast/israel-hamas-hezbollah-iran.html
 `Harper has one hit in his last 30 at-bats. The Phillies have lost 11 of their last 15 games. Maybe it's a good time for an off day. `\
 https://nytimes.com/athletic/5672965/2024/07/31/bryce-harper-phillies-slump/
 
+**Learning to fly: 49ers QB Joshua Dobbs making strides after rocky start to camp**\
+`Rookie Ricky Pearsall stood out in Wednesday’s practice in part because the 49ers are missing so many wide receivers.`\
+https://nytimes.com/athletic/5673107/2024/07/31/josh-dobbs-49ers-training-camp-airplane-flying/
+
 **‘We Just Need a Break’: Another Flood in Vermont Wears Out Residents**\
 `Dozens of homes were destroyed and damaged in the latest wave of extreme rainfall in the state, officials said.`\
 https://nytimes.com/2024/07/31/us/vermont-floods-storms.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5673173/2024/07/31/gallagher-chelsea-reject-contrac
 **Jonah Jackson, Alaric Jackson facing injuries**\
 `The Rams' left guard and left tackle are both out — for various times — after training camp injuries.`\
 https://nytimes.com/athletic/5672961/2024/07/31/la-rams-offensive-line-injuries/
-
-**Fires Burning at ‘Full Tilt’ Across the Western U.S. Stretch Resources**\
-`At least one person was killed this week by a wildfire in Colorado, and experts say hot, dry conditions are likely to spark more blazes.`\
-https://nytimes.com/2024/07/31/us/wildfires-california-colorado-park-alexander.html
 

@@ -1,3 +1,7 @@
+**Learning to fly: 49ers QB Joshua Dobbs making strides after rocky start to camp**\
+`Rookie Ricky Pearsall stood out in Wednesday’s practice in part because the 49ers are missing so many wide receivers.`\
+https://nytimes.com/athletic/5673107/2024/07/31/josh-dobbs-49ers-training-camp-airplane-flying/
+
 **Tyler Guyton to Tyron Billy-Johnson: 10 Cowboys who have stood out in training camp**\
 `Three pass catchers have looked impressive — so Dallas first-round pick. Eyes remain on the progress of Trey Lance and Mazi Smith. `\
 https://nytimes.com/athletic/5673115/2024/07/31/dallas-cowboys-standouts-bland-diggs-tolbert-guyton/
