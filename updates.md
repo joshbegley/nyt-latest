@@ -1,3 +1,7 @@
+**Jamaica's Shericka Jackson won't race 100m at Olympics**\
+`Richardson will still have to deal with Jamaica’s legendary sprinter Shelly-Ann Fraser-Price, who is in her fifth and likely final Olympics.`\
+https://nytimes.com/athletic/5671587/2024/07/31/jamaica-shericka-jackson-100-meter-olympics/
+
 **Brentford's Thiago out until 'late 2024' with injury, Toney's status in doubt**\
 `Brentford&#8217;s record signing Igor Thiago has been ruled out until &#8220;late 2024&#8221; due to a knee injury.`\
 https://nytimes.com/athletic/5671793/2024/07/31/igor-thiago-injury-ivan-toney-brentford-future/
