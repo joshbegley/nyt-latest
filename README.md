@@ -1,3 +1,7 @@
+**Missouri Man Is Freed After 1991 Murder Conviction Is Overturned**\
+`Christopher Dunn, who spent more than three decades in prison, was released one week after the Missouri attorney general blocked a judge’s order for his immediate release.`\
+https://nytimes.com/2024/07/31/us/christopher-dunn-prison-release-missouri.html
+
 **Drop your questions here for the fantasy football mailbag**\
 `Drop your questions here for the fantasy football mailbag.`\
 https://nytimes.com/athletic/5672263/2024/07/31/drop-your-questions-here-for-the-fantasy-football-mailbag-16/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/theater/pamela-palmer-review-williamstown-theater
 **‘20th Hijacker’ Seeks Transfer From Federal Supermax to French Prison**\
 `After 20 years in a supermax prison in Colorado, the only person to be convicted in connection with the 9/11 attacks wants to serve his life sentence in his homeland.`\
 https://nytimes.com/2024/07/31/us/politics/zacarias-moussaoui-france-prison.html
-
-**Big Ten heading to Vegas for men's, women's tourneys within next four years**\
-`The Pac-12, the former home of USC, UCLA, Oregon and Washington, staged its men’s tournament at T-Mobile Arena from 2017 to 2024.`\
-https://nytimes.com/athletic/5672268/2024/07/31/big-ten-basketball-tournament-las-vegas/
 
