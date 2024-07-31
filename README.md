@@ -1,3 +1,19 @@
+**Observing Rams QB Matthew Stafford through an entire practice — his first in pads of 2024**\
+`After sitting out the first padded practice Monday, Matthew Stafford was back on the field Tuesday, taking reps with the first-team offense.`\
+https://nytimes.com/athletic/5670928/2024/07/31/la-rams-matthew-stafford-quarterback-observations/
+
+**Yee wins men's Olympic triathlon gold with dramatic comeback**\
+`Alex Yee of Great Britain won a brilliant and dramatic gold medal in the triathlon as the men finally got to compete in one of the most anticipated and controversial races at the Paris Olympic Games.`\
+https://nytimes.com/athletic/5671396/2024/07/31/olympic-triathlon-result-men-alex-yee/
+
+**The Fallout from Venezuela’s Election**\
+`Protesters are on the streets, exasperated by a generation of leaders they can’t get rid of.`\
+https://nytimes.com/2024/07/31/briefing/venezuela-election-nicolas-maduro-protests.html
+
+**Haniyeh’s Death Will Shake but Not Destroy Hamas, Analysts Say**\
+`Hamas will need to scramble to replace Ismael Haniyeh following his killing in Tehran, analysts say, but the group has recovered from past assassinations of its political and military leaders.`\
+https://nytimes.com/2024/07/31/world/middleeast/hamas-haniyeh-death.html
+
 **Van Domselaar joins Arsenal from Villa**\
 `Arsenal have completed the signing of goalkeeper Daphne van Domselaar from Aston Villa.`\
 https://nytimes.com/athletic/5648516/2024/07/31/daphne-van-domselaar-arsenal-transfer/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5670312/2024/07/31/jayson-tatum-team-usa-benching/
 **Hamas Leader Killed in Iran, and the Toll of Native Boarding Schools**\
 `Plus, highlights from the Olympics.`\
 https://nytimes.com/2024/07/31/podcasts/hamas-iran-israel-hezbollah.html
-
-**Minnesota Vikings training camp: What we’ve learned from Week 1**\
-`From rookie quarterback J.J. McCarthy to veteran running back Aaron Jones, several players have stood out — for good and bad reasons.`\
-https://nytimes.com/athletic/5670224/2024/07/31/minnesota-vikings-training-camp/
-
-**Mark Andrews, Isaiah Likely show why Ravens should use more 12 personnel groupings**\
-`How will OC Todd Monken utilize the two tight ends this season? Plus, should Baltimore be concerned about its OLB position? `\
-https://nytimes.com/athletic/5670353/2024/07/31/ravens-training-camp-mark-andrews-isaiah-likely/
-
-**2024 Hall of Fame Game: How to watch Texans vs. Bears in NFL preseason opener**\
-`Bears QB Caleb Williams won't play, and Texans QB C.J. Stroud might not, either, but at least it's the start of the 2024 preseason.`\
-https://nytimes.com/athletic/5668458/2024/07/31/2024-hall-of-fame-game-bears-texans-how-to-watch/
-
-**Why fans booed Embiid in Team USA's win over Serbia**\
-`French GM Boris Diaw told The Athletic in March that Embiid "wanted to play for France."`\
-https://nytimes.com/athletic/5667181/2024/07/31/joel-embiid-booed-olympics-usa-france/
 
