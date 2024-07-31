@@ -1,3 +1,7 @@
+**The Briefing: Urawa Red Diamonds 1 Newcastle 4 - Has Isak got even better and what's behind Jacob Murphy's fast start?**\
+`George Caulkin breaks down some of the key moments from Newcastle's opening game in Japan`\
+https://nytimes.com/athletic/5668463/2024/07/31/urawa-red-diamonds-newcastle-result-analysis/
+
 **Iceland Braces for Another Volcanic Blast. Should We Worry?**\
 `The Icelandic Meteorological Office has warned of an eruption “in the coming days.”`\
 https://nytimes.com/2024/07/31/world/europe/iceland-volcano-eruption.html
