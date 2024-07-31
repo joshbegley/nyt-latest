@@ -1,3 +1,7 @@
+**Dean Huijsen to Bournemouth: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Dean Huijsen's move to Bournemouth`\
+https://nytimes.com/athletic/5666088/2024/07/31/dean-huijsen-to-bournemouth-the-athletic-500-transfer-ratings/
+
 **Iran Has Accused Israel of Assassinations on Its Soil Before**\
 `Iran has blamed Israel for a series of targeted killings carried out within its borders.`\
 https://nytimes.com/2024/07/31/world/middleeast/iran-israel-assassinations.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran
 **Olympic triathlon will take place amid Seine water quality concerns**\
 `Officials previously postponed the men's event due to elevated bacteria levels in the water.`\
 https://nytimes.com/athletic/5670270/2024/07/31/olympic-triathlon-seine-water-quality/
-
-**Word of the Day: purportedly**\
-`This word has appeared in 124 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/07/31/learning/word-of-the-day-purportedly.html
 
