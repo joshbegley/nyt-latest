@@ -1,3 +1,11 @@
+**Monitoreo de la tormenta tropical Carlotta, en vivo**\
+`Consulta la trayectoria probable y las horas de llegada de los vientos de Carlotta.`\
+https://nytimes.com/interactive/2024/07/31/weather/carlotta-mapa-trayectoria.html
+
+**Why Are So Many Americans Choosing to Not Have Children?**\
+`It’s probably not selfishness, experts say. Even young adults who want children see an increasing number of obstacles.`\
+https://nytimes.com/2024/07/31/health/fertility-births-vance.html
+
 **Seeking Your First Job After College? Share Your Story.**\
 `The New York Times wants to hear from recent college graduates, other young job seekers and hiring managers about this year’s job market.`\
 https://nytimes.com/2024/07/31/business/economy/job-hunt-college-graduates.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/elections/100000009603998/nabj-trump-vance-chicago.
 **Broncos WR Josh Reynolds 'something else' while connecting with Bo Nix**\
 `The free agent from the Lions gives Sean Payton the type of big body he wants in Denver's receiving corps.`\
 https://nytimes.com/athletic/5672668/2024/07/31/broncos-camp-josh-reynolds/
-
-**Bill Ackman Abruptly Withdraws Planned I.P.O.**\
-`The announcement came a day after he had scaled back the expected size of the offering.`\
-https://nytimes.com/2024/07/31/business/bill-ackman-pershing-square-ipo.html
-
-**Canada reach Olympic quarter-finals despite spying scandal points deduction**\
-`Canada have qualified for the quarterfinals of the Olympic women’s soccer competition — despite the defending champions being deducted six points for spying on opponents earlier in the group stage.`\
-https://nytimes.com/athletic/5671599/2024/07/31/olympics-canada-women-soccer-colombia/
 
