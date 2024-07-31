@@ -1,3 +1,15 @@
+**Dance Leads the Way as Art Meets Sport at the Cultural Olympiad**\
+`A program of arts events shown in conjunction with the 2024 Olympic and Paralympic Games looks at the relationship between art and sport.`\
+https://nytimes.com/2024/07/31/arts/dance/cultural-olympiad-dominique-hervieu.html
+
+**One-Pan Recipes That Are Ripe for Summer**\
+`Sheet-pan chicken with spicy corn, roasted fish with cherry tomatoes and shrimp enchiladas verde showcase summer’s flavors with minimal cleanup.`\
+https://nytimes.com/2024/07/31/dining/one-pan-recipes-that-are-ripe-for-summer.html
+
+**Lyric Opera of Chicago Appoints Orchestra Veteran as New Leader**\
+`John Mangum, who helped guide the Houston Symphony through the turmoil of the pandemic, will serve as the company’s next general director.`\
+https://nytimes.com/2024/07/31/arts/music/lyric-opera-of-chicago-john-mangum.html
+
 **Venezuela’s Election Was Deeply Flawed. Here’s How.**\
 `From voter intimidation to refusing to provide paper tallies to verify the result claimed by the government, the election was riddled with problems.`\
 https://nytimes.com/2024/07/31/world/americas/venezuela-election-vote-flaws.html
