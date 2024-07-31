@@ -1,3 +1,7 @@
+**This Easy Tomato-Watermelon Salad Will Help You Beat the Heat**\
+`This simple, colorful salad from Melissa Clark features a mix of salted tomatoes, juicy watermelon and crisp anchovy bread crumbs.`\
+https://nytimes.com/2024/07/31/dining/easy-tomato-watermelon-salad.html
+
 **Arrests of Drug Kingpins Won’t Solve the Addiction Crisis**\
 `It’s important to punish traffickers, but the U.S. still needs better treatment and prevention efforts.`\
 https://nytimes.com/live/2024/07/30/opinion/thepoint/drug-cartel-arrests
