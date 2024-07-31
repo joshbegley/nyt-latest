@@ -1,3 +1,7 @@
+**Kenneth Grange, Industrial Designer of Modern Life, Dies at 95**\
+`His cameras, food mixers and lamps, and even taxis and trains, were widely celebrated objects of post-World War II design.`\
+https://nytimes.com/2024/07/31/obituaries/kenneth-grange-dead.html
+
 **Back-to-Back Assassinations in Middle East Scramble Biden’s Hopes for Peace**\
 `President Biden had anticipated using his remaining time in office to finally bring an end to the war in Gaza. But that was Monday.`\
 https://nytimes.com/2024/07/31/us/politics/assassinations-middle-east-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5672304/2024/07/31/steve-mcclaren-leaves-manchester
 **Colin Jost Will Host the New ‘Jeopardy!’ Pop Culture Spinoff**\
 `“Pop Culture Jeopardy!” is expected to begin production in August and will stream only on Amazon Prime Video.`\
 https://nytimes.com/2024/07/31/arts/television/colin-jost-jeopardy-spinoff-host.html
-
-**After Vance’s Rough Debut, Trump Downplays Importance of V.P. Choice**\
-`Donald Trump was asked about his selection of a vice president during an appearance before the National Association of Black Journalists on Wednesday.`\
-https://nytimes.com/live/2024/07/31/us/harris-trump-election/after-vances-rough-debut-trump-downplays-importance-of-vp-choice
 

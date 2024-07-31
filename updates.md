@@ -1,3 +1,7 @@
+**Kenneth Grange, Industrial Designer of Modern Life, Dies at 95**\
+`His cameras, food mixers and lamps, and even taxis and trains, were widely celebrated objects of post-World War II design.`\
+https://nytimes.com/2024/07/31/obituaries/kenneth-grange-dead.html
+
 **Back-to-Back Assassinations in Middle East Scramble Biden’s Hopes for Peace**\
 `President Biden had anticipated using his remaining time in office to finally bring an end to the war in Gaza. But that was Monday.`\
 https://nytimes.com/2024/07/31/us/politics/assassinations-middle-east-biden.html
