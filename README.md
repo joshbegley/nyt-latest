@@ -1,3 +1,11 @@
+**Autoworkers Union Endorses Kamala Harris for President**\
+`The United Automobile Workers had backed President Biden but did not immediately endorse the vice president. Ms. Harris will rally with U.A.W. members in Detroit next week.`\
+https://nytimes.com/2024/07/31/us/politics/uaw-kamala-harris.html
+
+**Americans struggle on pommel horse in all-around**\
+`Richard fell off the pommel horse, a disastrous mistake that him out of contention after just one rotation. He scored just a 12.733.`\
+https://nytimes.com/athletic/5672505/2024/07/31/olympics-gymnastics-pommel-horse-frederick-richard-paul-juda/
+
 **The Hottest Item at the Olympics Is a Chocolate Muffin**\
 `On a quest to fuel himself with thousands of calories a day, an Olympic swimmer found an unexpected delight and shared it with the world.`\
 https://nytimes.com/2024/07/31/world/olympics/olympic-chocolate-muffin-henrik-christiansen.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/31/us/firing-squad-death-penalty.html
 **What’s in Our Queue? ‘My Fair Lady’ and More**\
 `I’m a reporter covering the cryptocurrency industry from San Francisco. Here are five things I’ve enjoyed recently.`\
 https://nytimes.com/interactive/2024/07/31/arts/editors-recommendations-my-fair-lady.html
-
-**Underwater Robot Reveals ‘Enigmatic’ Shapes on the Bottom of Antarctic Ice**\
-`The new images of the melting underside of an ice shelf could help scientists better forecast how the continent is contributing to rising sea levels.`\
-https://nytimes.com/2024/07/31/climate/antarctic-glacier-underside.html
-
-**Missouri Man Is Freed After 1991 Murder Conviction Is Overturned**\
-`Christopher Dunn, who spent more than three decades in prison, was released one week after the Missouri attorney general blocked a judge’s order for his immediate release.`\
-https://nytimes.com/2024/07/31/us/christopher-dunn-prison-release-missouri.html
 
