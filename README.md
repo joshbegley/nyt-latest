@@ -1,3 +1,11 @@
+**Here’s the latest on the assassination.**\
+`By Farnaz Fassihi, Patrick Kingsley, Adam Rasgon and Ronen Bergman`\
+https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/heres-the-latest-on-the-assassination
+
+**Live Updates: A Top Hamas Leader Is Killed in Iran**\
+`Hamas accused Israel of killing Ismail Haniyeh, who was in Tehran for the inauguration of Iran’s new president. He was a key player in cease-fire negotiations.`\
+https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran
+
 **Olympic triathlon will take place amid water quality concerns in the Seine**\
 `Officials previously postponed the men's event due to elevated bacteria levels in the water.`\
 https://nytimes.com/athletic/5670270/2024/07/31/olympic-triathlon-seine-water-quality/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/31/pageoneplus/corrections-july-31-2024.html
 **To Stop War in Lebanon, the U.S. Must Tell Israel ‘No’**\
 `Only a firm warning that the U.S. will not support an Israeli attack on Hezbollah will avoid a wider war.`\
 https://nytimes.com/2024/07/31/opinion/israel-hezbollah-war-hamas-gaza.html
-
-**Wednesday Briefing**\
-`The killing of a top Hamas leader in Iran.`\
-https://nytimes.com/2024/07/31/world/europe/hamas-iran-southport-booker.html
-
-**MLB scouting notebook: Jeffrey Springs returns to Rays rotation, Seranthony Domínguez's fit in Baltimore and more**\
-`Andrea Arcadipane breaks down Jeffrey Springs' long-awaited return from UCL surgery, in addition to some other trade deadline notes.`\
-https://nytimes.com/athletic/5670879/2024/07/31/mlb-scouting-notebook-fantasy-baseball-jeffrey-springs/
 
