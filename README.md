@@ -1,3 +1,7 @@
+**Israel Says It Killed Hezbollah Commander in Airstrike Near Beirut**\
+`The strike was in retaliation for a deadly rocket attack this weekend in the Golan Heights. At least three civilians were killed and 74 others wounded on Tuesday, Lebanese officials said.`\
+https://nytimes.com/2024/07/30/world/middleeast/israel-hezbollah-lebanon.html
+
 **‘Say It to My Face’: Harris Rallies in Georgia with Challenge to Trump**\
 `The vice president, speaking to thousands in Atlanta, poked fun at the former president’s reluctance to commit to a debate with her.`\
 https://nytimes.com/video/us/politics/100000009601943/kamala-harris-atlanta-2024-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/30/us/los-angeles-homeless-newsom.html
 **MLB trade deadline takeaways 2024: Ranking the winners, losers and snoozers**\
 `The trade deadline went well for the O's, Tigers, Dodgers and Marlins. But contenders like the Guardians and Astros could have done more.`\
 https://nytimes.com/athletic/5670253/2024/07/30/mlb-trade-deadline-takeaways-2024-winners-losers-snoozers/
-
-**Harris, Rallying Thousands in Georgia, Challenges Trump to ‘Say It to My Face’**\
-`Speaking to the campaign’s largest crowd to date, Kamala Harris acknowledged the realities of the race, but vowed to contest and win a state Democrats had begun to fear was off the map.`\
-https://nytimes.com/2024/07/30/us/politics/kamala-harris-atlanta-rally-trump.html
 
