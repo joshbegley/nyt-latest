@@ -1,3 +1,7 @@
+**Drop your questions here for the fantasy football mailbag**\
+`Drop your questions here for the fantasy football mailbag.`\
+https://nytimes.com/athletic/5672263/2024/07/31/drop-your-questions-here-for-the-fantasy-football-mailbag-16/
+
 **Former President of Guinea Convicted of Ordering Massacre in Stadium**\
 `The West African country’s former military leader and some of his top aides were found guilty of crimes against humanity for mass murder and rapes committed during and after a pro-democracy demonstration in 2009.`\
 https://nytimes.com/2024/07/31/world/africa/guinea-moussa-dadis-camara-guilty.html
