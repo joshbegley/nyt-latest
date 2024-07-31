@@ -1,3 +1,7 @@
+**Boar’s Head Recalls 7 Million More Pounds of Meat Amid Listeria Outbreak**\
+`The announcement came less than a week after Boar’s Head recalled more than 200,000 pounds of meat during an outbreak that has killed two and sickened more than two dozen.`\
+https://nytimes.com/2024/07/30/business/boars-head-deli-recall-listeria.html
+
 **Analyzing the major deals of the MLB trade deadline with insights from Keith Law**\
 `How did the return packages look in the biggest deals at this year's trade deadline?`\
 https://nytimes.com/athletic/5668980/2024/07/30/mlb-trade-deadline-2024-every-deal-analysis-keith-law/

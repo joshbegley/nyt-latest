@@ -1,3 +1,7 @@
+**Boar’s Head Recalls 7 Million More Pounds of Meat Amid Listeria Outbreak**\
+`The announcement came less than a week after Boar’s Head recalled more than 200,000 pounds of meat during an outbreak that has killed two and sickened more than two dozen.`\
+https://nytimes.com/2024/07/30/business/boars-head-deli-recall-listeria.html
+
 **Analyzing the major deals of the MLB trade deadline with insights from Keith Law**\
 `How did the return packages look in the biggest deals at this year's trade deadline?`\
 https://nytimes.com/athletic/5668980/2024/07/30/mlb-trade-deadline-2024-every-deal-analysis-keith-law/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5670360/2024/07/30/cardinals-mlb-trade-deadline-ana
 **Nearly 1,000 Native Children Died at Boarding Schools, Interior Dept. Finds**\
 `An investigative report, which also documents widespread sexual and physical abuse in a program of forced assimilation, calls on the federal government to apologize and “chart a road to healing.”`\
 https://nytimes.com/2024/07/30/us/politics/native-american-boarding-schools.html
-
-**Full of Oneself**\
-`Jackson and Ben Matz make their collaborative debut.`\
-https://nytimes.com/2024/07/30/crosswords/daily-puzzle-2024-07-31.html
 
