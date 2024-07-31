@@ -1,3 +1,7 @@
+**Iran Has Accused Israel of Assassinations on Its Soil Before**\
+`Iran has blamed Israel for a series of targeted killings carried out within its borders.`\
+https://nytimes.com/2024/07/31/world/middleeast/iran-israel-assassinations.html
+
 **A Top Hamas Leader Assassinated in Iran**\
 `Ismail Haniyeh was in Tehran to attend the inauguration of Iran’s new president.`\
 https://nytimes.com/video/world/middleeast/100000009602248/haniyeh-hamas-iran-assassination.html
@@ -23,7 +27,7 @@ https://nytimes.com/2024/07/31/world/middleeast/ismail-haniyeh-dead.html
 https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/heres-the-latest-on-the-assassination
 
 **Live Updates: A Top Hamas Leader Is Killed in Iran**\
-`Hamas accused Israel of killing Ismail Haniyeh, who was in Tehran for the inauguration of Iran’s new president. He was a key player in cease-fire negotiations.`\
+`Hamas accused Israel of killing Ismail Haniyeh, who was in Tehran for the inauguration of Iran’s new president. He was a key player in negotiations to stop the fighting in Gaza.`\
 https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran
 
 **Olympic triathlon will take place amid Seine water quality concerns**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5670270/2024/07/31/olympic-triathlon-seine-water-qu
 **Word of the Day: purportedly**\
 `This word has appeared in 124 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/07/31/learning/word-of-the-day-purportedly.html
-
-**Yankees back Clay Holmes after another blown save: ‘That’s our closer’**\
-`The Yankees battled back to beat the Phillies 7-6 in 12 innings Tuesday night.`\
-https://nytimes.com/athletic/5671162/2024/07/31/yankees-closer-clay-holmes-blown-save-phillies/
 
