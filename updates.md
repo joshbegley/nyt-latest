@@ -1,3 +1,7 @@
+**Astros trade deadline takeaways: Kikuchi's price, the search for offense and bullpen depth**\
+`Some feel that the Astros gave up too much for their new lefty starter. Houston also acquired a reliever but didn't add to their lineup.`\
+https://nytimes.com/athletic/5670908/2024/07/30/astros-trade-deadline-yusei-kikuchi-price/
+
 **Ismail Haniyeh, a top Hamas leader, has been killed, Iran says.**\
 `By Farnaz Fassihi and Ronen Bergman`\
 https://nytimes.com/live/2024/07/30/world/israel-gaza-war-lebanon-hezbollah/ismail-haniyeh-a-top-hamas-leader-has-been-killed-iran-says
