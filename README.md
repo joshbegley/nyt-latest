@@ -1,6 +1,6 @@
 **This Is What Happens When Black Women Challenge Trump**\
 `In an interview on Wednesday, his facade crumbled into outright antagonism.`\
-https://nytimes.com/live/2024/07/30/opinion/thepoint/this-is-what-happens-when-black-women-challenge-trump
+https://nytimes.com/live/2024/07/30/opinion/thepoint/trump-nabj-black-women-harris
 
 **Trump Questions Harris’s Ethnicity at N.A.B.J. Conference**\
 `Former President Donald J. Trump appeared at the National Association of Black Journalists conference where he questioned Vice President Kamala Harris’s ethnicity, downplayed the role of the vice president and repeated his openness to pardon Jan. 6th rioters.`\
