@@ -1,3 +1,23 @@
+**Arrests of Drug Kingpins Won’t Solve the Addiction Crisis**\
+`It’s important to punish traffickers, but the U.S. still needs better treatment and prevention efforts.`\
+https://nytimes.com/live/2024/07/30/opinion/thepoint/drug-cartel-arrests
+
+**Stanley Simon, Bronx Leader Brought Down by Corruption, Is Dead at 93**\
+`After delivering improvements to the Bronx as borough president, he, along with others, was convicted in the 1980s Wedtech scandal and went to prison.`\
+https://nytimes.com/2024/07/31/nyregion/stanley-simon-dead.html
+
+**Cashman: Yankees still wanted Jack Flaherty**\
+`“I would have brought Jack Flaherty in if I could have matched up,” Cashman said Wednesday, “and I had difficulty matching up."`\
+https://nytimes.com/athletic/5672427/2024/07/31/brian-cashman-says-yankees-would-have-traded-for-jack-flaherty-despite-report-of-health-concerns/
+
+**Death by Firing Squad Is a Legal Punishment, South Carolina’s Top Court Rules**\
+`The ruling said that because death row prisoners can choose from three methods of execution, none could be considered a cruel or unusual punishment.`\
+https://nytimes.com/2024/07/31/us/firing-squad-death-penalty.html
+
+**What’s in Our Queue? ‘My Fair Lady’ and More**\
+`I’m a reporter covering the cryptocurrency industry from San Francisco. Here are five things I’ve enjoyed recently.`\
+https://nytimes.com/interactive/2024/07/31/arts/editors-recommendations-my-fair-lady.html
+
 **Underwater Robot Reveals ‘Enigmatic’ Shapes on the Bottom of Antarctic Ice**\
 `The new images of the melting underside of an ice shelf could help scientists better forecast how the continent is contributing to rising sea levels.`\
 https://nytimes.com/2024/07/31/climate/antarctic-glacier-underside.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5671350/2024/07/31/marta-brazil-olympics-legacy/
 **Former President of Guinea Convicted of Ordering Massacre in Stadium**\
 `The West African country’s former military leader and some of his top aides were found guilty of crimes against humanity for mass murder and rapes committed during and after a pro-democracy demonstration in 2009.`\
 https://nytimes.com/2024/07/31/world/africa/guinea-moussa-dadis-camara-guilty.html
-
-**Biden Administration Begins Paying Farmers Who Faced Discrimination**\
-`The thousands of payouts, which will total $2 billion, follow years of delays and lawsuits that frustrated struggling Black farmers.`\
-https://nytimes.com/2024/07/31/business/biden-black-farmers-payments.html
-
-**Wesley Fofana is back and determined: 'We have everything it takes to win titles'**\
-`After two years of injuries, the French defender is itching to prove Chelsea's doubters wrong`\
-https://nytimes.com/athletic/5671443/2024/07/31/wesley-fofana-chelsea-preseason/
-
-**142 Picture Prompts to Inspire Student Writing**\
-`A school year’s worth of short, accessible image-driven posts that invite a variety of kinds of writing.`\
-https://nytimes.com/2024/07/31/learning/142-picture-prompts-to-inspire-student-writing.html
-
-**Fofana on Fernandez: 'I know he is not racist. But he must learn from this'**\
-`Wesley Fofana is convinced Chelsea team-mate Enzo Fernandez is not a racist and says the fallout from his singing of an offensive chant is a thing of the past.`\
-https://nytimes.com/athletic/5671293/2024/07/31/wesley-fofana-enzo-fernandez-chelsea/
-
-**Review: In ‘Pamela Palmer,’ a Blonde, a Gumshoe and an Existential Mystery**\
-`David Ives’s new play at the Williamstown Theater Festival is less a whodunit than a who done what.`\
-https://nytimes.com/2024/07/31/theater/pamela-palmer-review-williamstown-theater-festival.html
 
