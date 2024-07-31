@@ -1,3 +1,7 @@
+**'One of the top moments of my career': Tommy Pham returns with pinch hit grand slam**\
+`"We have a chance to do something special still," Pham said. He lit up the Cardinals' stadium and dugout in an 8-1 victory.`\
+https://nytimes.com/athletic/5670846/2024/07/31/tommy-pham-cardinals-grand-slam-trade/
+
 **Padres’ A.J. Preller invites scrutiny about job security after emptying farm at trade deadline**\
 `Before targeting bullpen upgrades, team sources said the Padres explored adding the likes of Jazz Chisholm and Randy Arozarena.`\
 https://nytimes.com/athletic/5671191/2024/07/31/padres-aj-preller-invites/
