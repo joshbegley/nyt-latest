@@ -1,3 +1,15 @@
+**Autoworkers Union Endorses Kamala Harris for President**\
+`The United Automobile Workers had backed President Biden but did not immediately endorse the vice president. Ms. Harris will rally with U.A.W. members in Detroit next week.`\
+https://nytimes.com/2024/07/31/us/politics/uaw-kamala-harris.html
+
+**Americans struggle on pommel horse in all-around**\
+`Richard fell off the pommel horse, a disastrous mistake that him out of contention after just one rotation. He scored just a 12.733.`\
+https://nytimes.com/athletic/5672505/2024/07/31/olympics-gymnastics-pommel-horse-frederick-richard-paul-juda/
+
+**The Hottest Item at the Olympics Is a Chocolate Muffin**\
+`On a quest to fuel himself with thousands of calories a day, the Olympic swimmer Henrik Christiansen found an unexpected delight and shared it with the world.`\
+https://nytimes.com/2024/07/31/world/olympics/olympic-chocolate-muffin-henrik-christiansen.html
+
 **The Hottest Item at the Olympics Is a Chocolate Muffin**\
 `On a quest to fuel himself with thousands of calories a day, an Olympic swimmer found an unexpected delight and shared it with the world.`\
 https://nytimes.com/2024/07/31/world/olympics/olympic-chocolate-muffin-henrik-christiansen.html
