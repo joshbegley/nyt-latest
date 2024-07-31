@@ -1,3 +1,11 @@
+**142 Picture Prompts to Inspire Student Writing**\
+`A school year’s worth of short, accessible image-driven posts that invite a variety of kinds of writing.`\
+https://nytimes.com/2024/07/31/learning/142-picture-prompts-to-inspire-student-writing.html
+
+**Review: In ‘Pamela Palmer,’ a Blonde, a Gumshoe and an Existential Mystery**\
+`David Ives’s new play at the Williamstown Theater Festival is less a whodunit than a who done what.`\
+https://nytimes.com/2024/07/31/theater/pamela-palmer-review-williamstown-theater-festival.html
+
 **‘20th Hijacker’ Seeks Transfer From Federal Supermax to French Prison**\
 `After 20 years in a supermax prison in Colorado, the only person to be convicted in connection with the 9/11 attacks wants to serve his life sentence in his homeland.`\
 https://nytimes.com/2024/07/31/us/politics/zacarias-moussaoui-france-prison.html
