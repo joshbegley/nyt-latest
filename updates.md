@@ -1,3 +1,7 @@
+**Canada advances despite spying scandal: 'They take six points and we got nine'**\
+`Canada won all three games to advance to the 2024 Olympic quarterfinals.`\
+https://nytimes.com/athletic/5673311/2024/07/31/canada-womens-soccer-advance-olympics/
+
 **Border Arrests in July Drop to Low Under Biden**\
 `The total is expected to come in under 60,000 for the month, a precipitous fall from a peak of 250,000 in December, after President Biden imposed stricter border measures.`\
 https://nytimes.com/2024/07/31/us/politics/border-arrests-crossings-july.html

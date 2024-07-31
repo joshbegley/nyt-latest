@@ -1,3 +1,7 @@
+**Canada advances despite spying scandal: 'They take six points and we got nine'**\
+`Canada won all three games to advance to the 2024 Olympic quarterfinals.`\
+https://nytimes.com/athletic/5673311/2024/07/31/canada-womens-soccer-advance-olympics/
+
 **Border Arrests in July Drop to Low Under Biden**\
 `The total is expected to come in under 60,000 for the month, a precipitous fall from a peak of 250,000 in December, after President Biden imposed stricter border measures.`\
 https://nytimes.com/2024/07/31/us/politics/border-arrests-crossings-july.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5673096/2024/07/31/leon-marchand-olympics-swimming-
 **Iran and Hamas Blame Israel for Killing of Top Official and Vow to Strike Back**\
 `The deadly strike on Ismail Haniyeh in Tehran threatened to further inflame the region and derail negotiations aimed at reaching a cease-fire in Gaza.`\
 https://nytimes.com/2024/07/31/world/middleeast/israel-hamas-hezbollah-iran.html
-
-**Sonya Massey’s Killing Is Black America’s Sorrow**\
-`Her death is the manifestation of a societal sickness that devalues Black life.`\
-https://nytimes.com/2024/07/31/opinion/sonya-massey.html
 
