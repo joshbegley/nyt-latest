@@ -1,3 +1,7 @@
+**Why Microsoft’s Earnings Miss Won’t Stall the A.I. Boom**\
+`Investors are worried about how much companies are spending on artificial intelligence, but the tech giant is sure that its efforts will pay off.`\
+https://nytimes.com/2024/07/31/business/dealbook/microsoft-ai-spending-tech-stocks.html
+
 **Williams expected to stay at Athletic Bilbao despite Barcelona interest**\
 `The Spain winger has a release clause in the region of €55million but now appears set to stay at Athletic`\
 https://nytimes.com/athletic/5638499/2024/07/31/nico-williams-barcelona-athletic-bilbao/
@@ -26,15 +30,11 @@ https://nytimes.com/2024/07/31/technology/silicon-valley-investors-support-kamal
 `A day after a knife attack in Southport, northwestern England, left three young girls dead, unrest driven in part by disinformation online erupted on the town’s streets.`\
 https://nytimes.com/2024/07/31/world/europe/uk-stabbing-southport-riot-police.html
 
-**Boeing Names Robert Ortberg as Its Chief Executive**\
+**Boeing Names Kelly Ortberg as Its Chief Executive**\
 `The company has been under pressure to improve quality and safety after a panel blew away from a 737 Max plane during an Alaska Airlines flight in January.`\
 https://nytimes.com/2024/07/31/business/boeing-kelly-ortberg-ceo.html
 
 **CAS denies Canada's appeal in Olympic drone spying scandal**\
 `The Court of Arbitration for Sport on Wednesday upheld a six-point Olympic tournament deduction for the Canadian women’s soccer team in a drone spying scandal, affirming FIFA’s choice to heavily limit the reigning gold medalist as questions arose about its tactics to prepare for a repeat.`\
 https://nytimes.com/athletic/5671115/2024/07/31/canada-soccer-cas-appeal-decision-olympics/
-
-**MLB trade deadline grades for all 30 teams: Savvy sellers, bold buyers get high marks**\
-`The Marlins and Rays dominated the deadline with smart selling. The Mariners and Padres aggressively filled key needs. And the Rockies ...`\
-https://nytimes.com/athletic/5666972/2024/07/31/mlb-trade-deadline-grades-2024/
 

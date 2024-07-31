@@ -1,3 +1,11 @@
+**Why Microsoft’s Earnings Miss Won’t Stall the A.I. Boom**\
+`Investors are worried about how much companies are spending on artificial intelligence, but the tech giant is sure that its efforts will pay off.`\
+https://nytimes.com/2024/07/31/business/dealbook/microsoft-ai-spending-tech-stocks.html
+
+**Boeing Names Kelly Ortberg as Its Chief Executive**\
+`The company has been under pressure to improve quality and safety after a panel blew away from a 737 Max plane during an Alaska Airlines flight in January.`\
+https://nytimes.com/2024/07/31/business/boeing-kelly-ortberg-ceo.html
+
 **Williams expected to stay at Athletic Bilbao despite Barcelona interest**\
 `The Spain winger has a release clause in the region of €55million but now appears set to stay at Athletic`\
 https://nytimes.com/athletic/5638499/2024/07/31/nico-williams-barcelona-athletic-bilbao/
