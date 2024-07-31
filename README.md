@@ -1,3 +1,7 @@
+**Fires Burning at ‘Full Tilt’ Across the Western U.S. Stretch Resources**\
+`At least one person was killed this week by a wildfire in Colorado, and experts say hot, dry conditions are likely to spark more blazes.`\
+https://nytimes.com/2024/07/31/us/wildfires-california-colorado-park-alexander.html
+
 **Anna Netrebko, Shunned in U.S. Over Putin Support, to Sing in Palm Beach**\
 `The star soprano, who lost work at American opera companies after Russia invaded Ukraine, will sing at a gala for Palm Beach Opera, her first American engagement since 2019.`\
 https://nytimes.com/2024/07/31/arts/music/anna-netrebko-palm-beach.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/business/media/scotland-yard-email-news-corp-hack
 **Michigan Court Clears Way for Higher Wages, Overruling Legislature**\
 `The ruling, raising the minimum wage and phasing out a lower wage for tipped workers, said legislators had acted improperly in dodging a referendum.`\
 https://nytimes.com/2024/07/31/business/economy/michigan-supreme-court-minimum-wage.html
-
-**After a defensive interview, Trump retreated to Truth Social for approval.**\
-`By Shawn McCreesh`\
-https://nytimes.com/live/2024/07/31/us/harris-trump-election/after-a-defensive-interview-trump-retreated-to-truth-social-for-approval
 
