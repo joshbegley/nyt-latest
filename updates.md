@@ -1,3 +1,11 @@
+**After Vance’s Rough Debut, Trump Downplays Importance of V.P. Choice**\
+`Donald Trump was asked about his selection of a vice president during an appearance before the National Association of Black Journalists on Wednesday.`\
+https://nytimes.com/live/2024/07/31/us/harris-trump-election/after-vances-rough-debut-trump-downplays-importance-of-vp-choice
+
+**To the surprise of no one, Katie Ledecky once again laps the competition.**\
+`Katie Ledecky comfortably won the 1,500-meter freestyle, beating her winning time from the Tokyo Games by more than seven seconds.`\
+https://nytimes.com/2024/07/31/world/olympics/katie-ledecky-1500.html
+
 **Ledecky sets Olympic record in 1500M freestyle**\
 `Katie Ledecky has not lost this race in more than 14 years, and she owns the 20 fastest times in world history in the event.`\
 https://nytimes.com/athletic/5672462/2024/07/31/katie-ledecky-gold-olympics-1500-meters/
