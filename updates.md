@@ -1,3 +1,15 @@
+**How two Wrexham stars ended up in the biggest movie of the year**\
+`Two Wrexham players appearing in a Hollywood blockbuster is just the latest sign of how crazy life has become since their celeb takeover`\
+https://nytimes.com/athletic/5668087/2024/07/31/wrexham-in-deadpool-wolverine-paul-mullin-and-ollie-palmers-cameos-explained/
+
+**Mastantuono: The 16-year-old Argentinian wonderkid with interest from Madrid**\
+`Madrid appear to be in pole position for the signature of teenage star for River Plate`\
+https://nytimes.com/athletic/5668344/2024/07/31/franco-mastantuono-real-madrid-transfer-argentina/
+
+**Olympics Today: Wednesday's guide to what to watch in Paris**\
+`Frederick Richard and Paul Juda return to Bercy Arena on Wednesday for the men's individual all-around final.`\
+https://nytimes.com/athletic/5667348/2024/07/31/olympics-2024-watch-guide-day-5-gymnastics-soccer-swimming/
+
 **Japan Raises Interest Rates for Second Time Since 2007**\
 `The closely watched move by the Bank of Japan could bolster the country’s beleaguered currency.`\
 https://nytimes.com/2024/07/31/business/bank-of-japan-interest-rate.html
