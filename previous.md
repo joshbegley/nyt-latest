@@ -1,3 +1,11 @@
+**Risk of Escalation in Middle East Grows but Is Not Foregone Conclusion**\
+`Qatar, a main mediator in Gaza truce talks, said high-profile assassinations risk plunging the region deeper into chaos. But analysts say warring parties have little appetite for a wider war.`\
+https://nytimes.com/2024/07/31/world/middleeast/hamas-killing-iran-israel-lebanon-war.html
+
+**Jayson Tatum’s Olympics DNP is latest detour on quest to become face of NBA**\
+`When Jayson Tatum was benched for the Team USA Olympics opener, it sparked debate about his place in the league's hierarchy. `\
+https://nytimes.com/athletic/5670312/2024/07/31/jayson-tatum-team-usa-benching/
+
 **Hamas Leader Killed in Iran, and the Toll of Native Boarding Schools**\
 `Plus, highlights from the Olympics.`\
 https://nytimes.com/2024/07/31/podcasts/hamas-iran-israel-hezbollah.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/31/crosswords/wordle-review-1139.html
 **The Connections Companion No. 417, August 1, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/07/31/crosswords/connections-companion-417.html
-
-**The Thai Women Punching Their Way Out of Poverty**\
-`Boxing is a national passion in Thailand, offering a path to the Olympics and lucrative careers in a country with one of the world’s widest income divides.`\
-https://nytimes.com/2024/07/31/world/olympics/thai-women-boxing-olympics.html
-
-**Alpine names Oliver Oakes as new team principal**\
-`Alpine has named Oliver Oakes as its new Formula One team principal, taking over from Bruno Famin.`\
-https://nytimes.com/athletic/5671394/2024/07/31/oliver-oakes-alpine-f1/
 

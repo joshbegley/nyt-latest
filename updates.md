@@ -1,3 +1,11 @@
+**Risk of Escalation in Middle East Grows but Is Not Foregone Conclusion**\
+`Qatar, a main mediator in Gaza truce talks, said high-profile assassinations risk plunging the region deeper into chaos. But analysts say warring parties have little appetite for a wider war.`\
+https://nytimes.com/2024/07/31/world/middleeast/hamas-killing-iran-israel-lebanon-war.html
+
+**Jayson Tatum’s Olympics DNP is latest detour on quest to become face of NBA**\
+`When Jayson Tatum was benched for the Team USA Olympics opener, it sparked debate about his place in the league's hierarchy. `\
+https://nytimes.com/athletic/5670312/2024/07/31/jayson-tatum-team-usa-benching/
+
 **Hamas Leader Killed in Iran, and the Toll of Native Boarding Schools**\
 `Plus, highlights from the Olympics.`\
 https://nytimes.com/2024/07/31/podcasts/hamas-iran-israel-hezbollah.html
