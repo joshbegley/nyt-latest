@@ -1,3 +1,23 @@
+**Twins trade deadline takeaways: Payroll-fueled frustration and Trevor Richards**\
+`In need of rotation help, the Twins ended up settling for an inexpensive middle reliever as ownership's payroll cuts hurt again.`\
+https://nytimes.com/athletic/5670091/2024/07/31/twins-trade-deadline-takeaways/
+
+**Beyond ‘Born That Way’**\
+`Sexual orientation doesn’t always come down to genetics.`\
+https://nytimes.com/interactive/2024/07/31/opinion/born-this-way-queerness-genetics.html
+
+**A.I. Is Actually Our Friend**\
+`Machines are no match for the human brain.`\
+https://nytimes.com/interactive/2024/07/31/opinion/ai-fears.html
+
+**It’s Better to Be Good Than Right**\
+`Theology is meaningless in the absence of character.`\
+https://nytimes.com/interactive/2024/07/31/opinion/church-scandals-religion.html
+
+**Natural Childbirth Isn’t Best**\
+`Health, safety and happiness are crucial for new parents.`\
+https://nytimes.com/interactive/2024/07/31/opinion/natural-parenting-childbirth-science.html
+
 **Don’t Hate On the D.M.V.**\
 `There is no express lane for rich people here.`\
 https://nytimes.com/interactive/2024/07/31/opinion/dmv-inequality.html
@@ -17,24 +37,4 @@ https://nytimes.com/interactive/2024/07/31/opinion/forgive-hypocrisy.html
 **The Market Doesn’t Always Get It Right**\
 `Wisdom rooted in experience and expertise should mean something.`\
 https://nytimes.com/interactive/2024/07/31/opinion/markets-education-media.html
-
-**A conversation with Notre Dame offensive coordinator Mike Denbrock on the eve of camp**\
-`Denbrock, who had the nation's No. 1 offense last year at LSU, is back for his third tour at Notre Dame. `\
-https://nytimes.com/athletic/5668683/2024/07/31/notre-dame-mike-donbrock-offensive-coordinator/
-
-**Five questions as Michigan opens first preseason camp under Sherrone Moore**\
-`Can Jack Tuttle shake up the QB race? He’s been a backup most of his career but has a shot to win a wide-open competition.`\
-https://nytimes.com/athletic/5670076/2024/07/31/michigan-football-sherrone-moore-preseason-camp/
-
-**Harris Created a Huge Wave of Energy. How Long Can Democrats Ride It?**\
-`Democrats are buzzing, but sustaining the momentum is the next challenge. “How long does the honeymoon last?” one Republican pollster asked. “Who knows.”`\
-https://nytimes.com/2024/07/31/us/politics/kamala-harris-democrats-campaign.html
-
-**We’re Less Divided Than You Think**\
-`It’s been worse, and that should help guide where we go from here.`\
-https://nytimes.com/interactive/2024/07/31/opinion/political-violence-history-division.html
-
-**At Home With - Kecia Lewis**\
-`A Tony Award winner makes a home away from home in Manhattan.`\
-https://nytimes.com/interactive/2024/07/31/realestate/kecia-lewis-tony-winner-nyc-home.html
 
