@@ -1,3 +1,11 @@
+**China Wants to Start a National Internet ID System**\
+`The government said the proposal would protect online privacy. Critics said it could further concentrate government control over the internet.`\
+https://nytimes.com/2024/07/31/business/china-national-internet-id.html
+
+**Simone Biles, after Olympic team gold, takes apparent dig at ex-teammate’s criticism**\
+`In an Instagram post, Simone Biles appeared to take a dig at MyKayla Skinner, who had questioned the team’s talent and work ethic. `\
+https://nytimes.com/athletic/5671386/2024/07/31/simone-biles-after-olympic-team-gold-takes-apparent-dig-at-ex-teammates-criticism/
+
 **Observing Rams QB Matthew Stafford through an entire practice — his first in pads of 2024**\
 `After sitting out the first padded practice Monday, Matthew Stafford was back on the field Tuesday, taking reps with the first-team offense.`\
 https://nytimes.com/athletic/5670928/2024/07/31/la-rams-matthew-stafford-quarterback-observations/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5664300/2024/07/31/qb-advanced-stats-fantasy-footba
 **Risk of Escalation in Middle East Grows but Is Not Foregone Conclusion**\
 `Qatar, a main mediator in Gaza truce talks, said high-profile assassinations risk plunging the region deeper into chaos. But analysts say warring parties have little appetite for a wider war.`\
 https://nytimes.com/2024/07/31/world/middleeast/hamas-killing-iran-israel-lebanon-war.html
-
-**Jayson Tatum’s Olympics DNP is latest detour on quest to become face of NBA**\
-`When Jayson Tatum was benched for the Team USA Olympics opener, it sparked debate about his place in the league's hierarchy. `\
-https://nytimes.com/athletic/5670312/2024/07/31/jayson-tatum-team-usa-benching/
-
-**Hamas Leader Killed in Iran, and the Toll of Native Boarding Schools**\
-`Plus, highlights from the Olympics.`\
-https://nytimes.com/2024/07/31/podcasts/hamas-iran-israel-hezbollah.html
 
