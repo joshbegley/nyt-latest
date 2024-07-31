@@ -1,3 +1,7 @@
+**Why the Phillies decided to move on from Gregory Soto and what they see in Tanner Banks**\
+`The Phillies were never sure they could trust Soto, whom they dealt to Baltimore just before the deadline. They believe Banks is an upgrade.`\
+https://nytimes.com/athletic/5670671/2024/07/30/gregory-soto-phillies-trade-tanner-banks/
+
 **Giants 'Hard Knocks' finale: Team rebuffs big trade offer before drafting Malik Nabers**\
 `The Colts offered GM Joe Schoen a first-round pick and two seconds to move up, but the Giants weren't interested. `\
 https://nytimes.com/athletic/5669211/2024/07/30/giants-hard-knocks-takeaways-nfl-draft-malik-nabers/
