@@ -1,3 +1,7 @@
+**A Salzburg Festival Tradition Deserves a Wider Audience**\
+`Robert Carsen’s take on “Jedermann,” a play staged at the festival every year, stands head and shoulders above other recent stagings of the work.`\
+https://nytimes.com/2024/07/31/theater/jedermann-salzburg-festival-tradition.html
+
 **Guatemala's Ruano Oliva wins first gold medal in country's history**\
 `Ruano Oliva's gold also marks a remarkable comeback for the 29-year-old. In 2021, she finished 26th out of 26 competitors in the event.`\
 https://nytimes.com/athletic/5671986/2024/07/31/adriana-ruano-oliva-olympics-womens-trap-shooting-guatemala-first-gold/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/us/politics/tax-code-congress.html
 **Seven NHL teams that will shed bad contracts and gain major cap relief in 2025**\
 `Which teams have inefficient deals expiring at the end of 2024-05? What impact could that have on their spending and ability to improve?`\
 https://nytimes.com/athletic/5670089/2024/07/31/nhl-teams-contracts-salary-cap-2025/
-
-**Trump to Address National Association of Black Journalists**\
-`Donald Trump, whose appearance at the conference has divided the group’s members, is expected to take questions. Vice President Kamala Harris was also invited.`\
-https://nytimes.com/2024/07/31/us/politics/trump-nabj.html
 
