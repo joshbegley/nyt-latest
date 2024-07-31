@@ -1,3 +1,7 @@
+**To Stop War in Lebanon, the U.S. Must Tell Israel ‘No’**\
+`Only a firm warning that the U.S. will not support an Israeli attack on Hezbollah will avoid a wider war.`\
+https://nytimes.com/2024/07/31/opinion/israel-hezbollah-war-hamas-gaza.html
+
 **Wednesday Briefing**\
 `The killing of a top Hamas leader in Iran.`\
 https://nytimes.com/2024/07/31/world/europe/hamas-iran-southport-booker.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5668493/2024/07/31/liverpool-transfer-no6-targets/
 **Business of Football: The £200m loan key to Everton's future, pointless World Cup bid books**\
 `Matt Slater tells you what he's hearing from the business of football`\
 https://nytimes.com/athletic/5668312/2024/07/31/everton-future-world-cup-sheffield-united/
-
-**How two Wrexham stars ended up in the biggest movie of the year**\
-`Two Wrexham players appearing in a Hollywood blockbuster is just the latest sign of how crazy life has become since their celeb takeover`\
-https://nytimes.com/athletic/5668087/2024/07/31/wrexham-in-deadpool-wolverine-paul-mullin-and-ollie-palmers-cameos-explained/
 
