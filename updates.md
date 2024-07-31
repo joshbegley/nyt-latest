@@ -1,3 +1,11 @@
+**Marta's Olympics could end with painful red card, but the Brazilian icon's legacy is so much more**\
+`Marta will go down as one of the greatest to ever play. How a legendary career possibly ends in Olympic heartbreak`\
+https://nytimes.com/athletic/5671350/2024/07/31/marta-brazil-olympics-legacy/
+
+**Former President of Guinea Convicted in Stadium Massacre and Rapes**\
+`The West African country’s former military leader and some of his top aides were found guilty of crimes against humanity committed during and after a pro-democracy demonstration in 2009.`\
+https://nytimes.com/2024/07/31/world/africa/guinea-moussa-dadis-camara-guilty.html
+
 **Biden Administration Begins Paying Farmers Who Faced Discrimination**\
 `The thousands of payouts, which will total $2 billion, follow years of delays and lawsuits that frustrated struggling Black farmers.`\
 https://nytimes.com/2024/07/31/business/biden-black-farmers-payments.html
