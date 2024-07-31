@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5672606/2024/07/31/bears-dj-moore-contract-reaction
 https://nytimes.com/athletic/5672462/2024/07/31/katie-ledecky-gold-olympics-1500-meters/
 
 **USWNT 2 Australia 1: Korbin Albert's helps U.S. head to Olympic quarterfinal undefeated**\
-`Here's how the U.S. wrapped the Olympic group stage.`\
+`Here's how the U.S. wrapped its Olympic group stage.`\
 https://nytimes.com/athletic/5670984/2024/07/31/uswnt-australia-korbin-albert-olympics/
 
 **Two Al Jazeera Journalists Were Killed in Israeli Airstrike on Gaza**\
