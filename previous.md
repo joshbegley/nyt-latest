@@ -1,3 +1,11 @@
+**Facing Harris’s Momentum, Trump Allies Plan $45 Million Ground Game**\
+`A new super PAC was formed to supplement the Trump-Vance campaign’s efforts to mobilize voters in swing states.`\
+https://nytimes.com/2024/07/30/us/politics/trump-super-pac-voter-turnout.html
+
+**Kari Lake Wins Senate Primary to Face Ruben Gallego in November**\
+`The Republican firebrand and fierce Trump ally prevailed over Mark Lamb, while Representative Ruben Gallego was unopposed in the Democratic primary.`\
+https://nytimes.com/2024/07/30/us/politics/kari-lake-ruben-gallego.html
+
 **What We Know About Ismail Haniyeh, the Hamas Political Leader Killed in Tehran**\
 `He was central to the group’s high-stakes negotiations and diplomacy.`\
 https://nytimes.com/2024/07/30/world/middleeast/ismail-haniyeh-hamas-iran.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/30/world/israel-gaza-war-lebanon-hezbollah/isma
 **Boar’s Head Recalls 7 Million More Pounds of Meat Amid Listeria Outbreak**\
 `The announcement came less than a week after Boar’s Head recalled more than 200,000 pounds of meat during an outbreak that has killed two and sickened nearly three dozen.`\
 https://nytimes.com/2024/07/30/business/boars-head-deli-recall-listeria.html
-
-**Analyzing the major deals of the MLB trade deadline with insights from Keith Law**\
-`How did the return packages look in the biggest deals at this year's trade deadline?`\
-https://nytimes.com/athletic/5668980/2024/07/30/mlb-trade-deadline-2024-every-deal-analysis-keith-law/
-
-**The Briefing: Man City 2 Barcelona 2: Grealish's goal and Flick's first test**\
-`Sam Lee and Laia Cervello Herrero address the key talking points from Manchester City's friendly against Barcelona`\
-https://nytimes.com/athletic/5668451/2024/07/30/barcelona-manchester-city-friendly-orlando/
 
