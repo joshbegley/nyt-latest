@@ -1,3 +1,7 @@
+**Twins trade deadline takeaways: Payroll-fueled frustration and Trevor Richards**\
+`In need of rotation help, the Twins ended up settling for an inexpensive middle reliever as ownership's payroll cuts hurt again.`\
+https://nytimes.com/athletic/5670091/2024/07/31/twins-trade-deadline-takeaways/
+
 **Beyond ‘Born That Way’**\
 `Sexual orientation doesn’t always come down to genetics.`\
 https://nytimes.com/interactive/2024/07/31/opinion/born-this-way-queerness-genetics.html
@@ -11,7 +15,7 @@ https://nytimes.com/interactive/2024/07/31/opinion/ai-fears.html
 https://nytimes.com/interactive/2024/07/31/opinion/church-scandals-religion.html
 
 **Natural Childbirth Isn’t Best**\
-`The Problem With the Natural Childbirth Movement`\
+`Health, safety and happiness are crucial for new parents.`\
 https://nytimes.com/interactive/2024/07/31/opinion/natural-parenting-childbirth-science.html
 
 **Don’t Hate On the D.M.V.**\
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/31/opinion/forgive-hypocrisy.html
 **The Market Doesn’t Always Get It Right**\
 `Wisdom rooted in experience and expertise should mean something.`\
 https://nytimes.com/interactive/2024/07/31/opinion/markets-education-media.html
-
-**A conversation with Notre Dame offensive coordinator Mike Denbrock on the eve of camp**\
-`Denbrock, who had the nation's No. 1 offense last year at LSU, is back for his third tour at Notre Dame. `\
-https://nytimes.com/athletic/5668683/2024/07/31/notre-dame-mike-donbrock-offensive-coordinator/
 
