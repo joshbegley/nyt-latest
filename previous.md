@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5670292/2024/07/30/simone-biles-olympics-gymnastics
 https://nytimes.com/2024/07/30/us/los-angeles-homeless-newsom.html
 
 **MLB trade deadline takeaways 2024: Ranking the winners, losers and snoozers**\
-`The trade deadline went well for the Orioles, Tigers, Dodgers and Marlins. But contenders like the Guardians and Astros could have done more`\
+`The trade deadline went well for the O's, Tigers, Dodgers and Marlins. But contenders like the Guardians and Astros could have done more.`\
 https://nytimes.com/athletic/5670253/2024/07/30/mlb-trade-deadline-takeaways-2024-winners-losers-snoozers/
 
 **Harris, Rallying Thousands in Georgia, Challenges Trump to ‘Say It to My Face’**\

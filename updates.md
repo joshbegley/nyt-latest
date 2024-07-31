@@ -1,3 +1,7 @@
+**MLB trade deadline takeaways 2024: Ranking the winners, losers and snoozers**\
+`The trade deadline went well for the O's, Tigers, Dodgers and Marlins. But contenders like the Guardians and Astros could have done more.`\
+https://nytimes.com/athletic/5670253/2024/07/30/mlb-trade-deadline-takeaways-2024-winners-losers-snoozers/
+
 **Dodgers land biggest deadline prize in Jack Flaherty, Tigers get upside but also risk**\
 `The Dodgers got a great fit for their rotation in Flaherty. The Tigers are getting back big upside with Thayron Liranzo but also big risk.`\
 https://nytimes.com/athletic/5670552/2024/07/30/jack-flaherty-dodgers-tigers-trade-analysis/
