@@ -1,3 +1,15 @@
+**This Is What Happens When Black Women Challenge Trump**\
+`In an interview on Wednesday, his facade crumbled into outright antagonism.`\
+https://nytimes.com/live/2024/07/30/opinion/thepoint/trump-nabj-black-women-harris
+
+**Trump Questions Harris’s Ethnicity at N.A.B.J. Conference**\
+`Former President Donald J. Trump appeared at the National Association of Black Journalists conference where he questioned Vice President Kamala Harris’s ethnicity, downplayed the role of the vice president and repeated his openness to pardon Jan. 6th rioters.`\
+https://nytimes.com/video/us/elections/100000009603431/trump-nabj.html
+
+**After Boar’s Head Recall, Bodegas Confront Life Without Liverwurst**\
+`Cold cuts linked to a nationwide listeria outbreak have vanished from bodega and deli counters across New York City. For some shops, business is down, too.`\
+https://nytimes.com/2024/07/31/nyregion/boars-head-recall-listeria-outbreak-delis.html
+
 **Scotland Yard Will Review Email Deletions in News Corp Hacking Scandal**\
 `A preliminary inquiry threatens to reopen a tumultuous chapter in U.K. news media history. It could entangle The Washington Post’s publisher and other former News Corp figures.`\
 https://nytimes.com/2024/07/31/business/media/scotland-yard-email-news-corp-hacking.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/31/business/economy/job-hunt-college-graduates.html
 **Accused Sept. 11 Plotters Agree to Plead Guilty at Guantánamo Bay**\
 `Word of the deal emerged in a letter from prosecutors to family members of victims of the attacks.`\
 https://nytimes.com/2024/07/31/us/politics/sept-11-guilty-plea.html
-
-**Scientists Keep Finding Heavy Metals in Dark Chocolate. Should You Worry?**\
-`New research adds to the evidence that certain cocoa products contain lead and cadmium.`\
-https://nytimes.com/2024/07/31/well/eat/dark-chocolate-heavy-metals.html
-
-**Photo shows the building in Tehran where Haniyeh was killed, official says.**\
-`By Farnaz Fassihi and Christiaan Triebert`\
-https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/photo-shows-the-building-in-tehran-where-haniyeh-was-killed-official-says
-
-**Tracking Tropical Storm Carlotta**\
-`See the likely path and wind arrival times for Carlotta.`\
-https://nytimes.com/interactive/2024/07/31/weather/carlotta-map-path-tracker.html
 
