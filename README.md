@@ -1,3 +1,7 @@
+**The strikes add another hurdle to already troubled cease-fire talks.**\
+`By Aaron Boxerman and Adam Rasgon`\
+https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/hamas-cease-fire-talks-gaza-israel
+
 **World leaders fear a longer war in Gaza and escalation elsewhere.**\
 `T`\
 https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/world-leaders-fear-a-longer-war-in-gaza-and-escalation-elsewhere
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/5669373/2024/07/31/orioles-marlins-trevor-rogers-tr
 https://nytimes.com/athletic/5671152/2024/07/31/canucks-coach-nhl-season/
 
 **Strong currents, blistering heat and a thrilling finish make for a wild triathlon.**\
-`Alex Yee overcame a big lead to pull of a dramatic comeback to win the men’s race.`\
+`Alex Yee overcame a big deficit to pull off a dramatic comeback to win the men’s race.`\
 https://nytimes.com/2024/07/31/world/olympics/triathlon-alex-yee.html
 
 **Some Israelis celebrate, while others brace for retaliation.**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5671587/2024/07/31/jamaica-shericka-jackson-100-met
 **Brentford's Thiago out until 'late 2024' with injury, Toney's status in doubt**\
 `Brentford&#8217;s record signing Igor Thiago has been ruled out until &#8220;late 2024&#8221; due to a knee injury.`\
 https://nytimes.com/athletic/5671793/2024/07/31/igor-thiago-injury-ivan-toney-brentford-future/
-
-**The Election of Divorced Men vs. All the Single Ladies**\
-`2024 and the voter gender divide.`\
-https://nytimes.com/2024/07/31/opinion/kamala-harris-trump-vance.html
 
