@@ -1,6 +1,14 @@
+**What Ethan Nwaneri's pre-season reveals about his readiness for Arsenal's first team**\
+`The 17-year-old's strengths and weaknesses as he seeks the thumbs up from Arteta for 2024-25`\
+https://nytimes.com/athletic/5668113/2024/07/31/ethan-nwaneri-arsenal-first-team/
+
 **The tragedy of Ahmed Refaat - and the questions that remain over his death**\
 `Refaat died leaving a trail of questions that shine a light on the actions of a variety of influential people and institutions in Egypt`\
 https://nytimes.com/athletic/5658228/2024/07/31/ahmed-refaat-death-egypt-mohamed-salah/
+
+**Jorge Soler trade could crowd outfield in 2025, but Braves says that's a good problem**\
+`Alex Anthopoulos said Soler was at the top of their list of possible outfield bats as they prepped for this trade deadline.`\
+https://nytimes.com/athletic/5671072/2024/07/31/braves-trade-deadline-outfield/
 
 **Liverpool's No 6 debate: What does Slot want and who could fill the role?**\
 `Questions remain on whether Endo is the right answer long term — and whether Liverpool can challenge for honours without strengthening`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/31/business/bank-of-japan-interest-rate.html
 **Wednesday's MLB odds, best bets: Playoff projections, pitching matchups, player props**\
 `See pitching matchups, playoff projections, win projections and more for Wednesday's MLB games.`\
 https://nytimes.com/athletic/5669592/2024/07/31/mlb-odds-best-bets-projections-july-31/
-
-**What’s It Like Traveling to China These Days?**\
-`China has been rolling out new visa-free programs and promising to make travel easier for foreigners. But challenges remain.`\
-https://nytimes.com/2024/07/31/world/asia/china-travel-visas-explained.html
-
-**Why Chinese Propaganda Loves Foreign Travel Bloggers**\
-`Videos by influencers documenting their trips have been widely promoted on Chinese media — if they tell a certain story.`\
-https://nytimes.com/2024/07/31/world/asia/china-propaganda-travel-influencers.html
 

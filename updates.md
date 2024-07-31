@@ -1,3 +1,11 @@
+**What Ethan Nwaneri's pre-season reveals about his readiness for Arsenal's first team**\
+`The 17-year-old's strengths and weaknesses as he seeks the thumbs up from Arteta for 2024-25`\
+https://nytimes.com/athletic/5668113/2024/07/31/ethan-nwaneri-arsenal-first-team/
+
+**Jorge Soler trade could crowd outfield in 2025, but Braves says that's a good problem**\
+`Alex Anthopoulos said Soler was at the top of their list of possible outfield bats as they prepped for this trade deadline.`\
+https://nytimes.com/athletic/5671072/2024/07/31/braves-trade-deadline-outfield/
+
 **The tragedy of Ahmed Refaat - and the questions that remain over his death**\
 `Refaat died leaving a trail of questions that shine a light on the actions of a variety of influential people and institutions in Egypt`\
 https://nytimes.com/athletic/5658228/2024/07/31/ahmed-refaat-death-egypt-mohamed-salah/
