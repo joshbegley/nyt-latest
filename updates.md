@@ -1,3 +1,15 @@
+**Election Results Presented by Venezuela’s Opposition Suggest Maduro Lost Decisively**\
+`The Times analyzed partial voting tallies collected by the opposition. They cast further doubt on Nicolás Maduro’s declared victory.`\
+https://nytimes.com/2024/07/31/world/americas/venezuela-maduro-election-results.html
+
+**PSG agree deal to sign Joao Neves, Renato Sanches to join Benfica on loan**\
+`Paris Saint-Germain have agreed a deal to sign Benfica midfielder Joao Neves.`\
+https://nytimes.com/athletic/5662828/2024/07/31/psg-joao-neves-benfica-transfer/
+
+**Melania Trump Speaks, Indirectly, and It Speaks Volumes**\
+`Why does she stay?`\
+https://nytimes.com/live/2024/07/30/opinion/thepoint/melania-trump-donald-trump
+
 **Saudi Arabia unveils 2034 World Cup plans: 11 new stadiums, five cities**\
 `Saudi Arabia plans to build 11 new stadiums as part of its bid to host the 2034 men&#8217;s World Cup.`\
 https://nytimes.com/athletic/5672506/2024/07/31/saudi-arabia-2034-world-cup-plans/

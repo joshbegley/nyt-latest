@@ -1,3 +1,15 @@
+**Election Results Presented by Venezuela’s Opposition Suggest Maduro Lost Decisively**\
+`The Times analyzed partial voting tallies collected by the opposition. They cast further doubt on Nicolás Maduro’s declared victory.`\
+https://nytimes.com/2024/07/31/world/americas/venezuela-maduro-election-results.html
+
+**PSG agree deal to sign Joao Neves, Renato Sanches to join Benfica on loan**\
+`Paris Saint-Germain have agreed a deal to sign Benfica midfielder Joao Neves.`\
+https://nytimes.com/athletic/5662828/2024/07/31/psg-joao-neves-benfica-transfer/
+
+**Melania Trump Speaks, Indirectly, and It Speaks Volumes**\
+`Why does she stay?`\
+https://nytimes.com/live/2024/07/30/opinion/thepoint/melania-trump-donald-trump
+
 **Saudi Arabia unveils 2034 World Cup plans: 11 new stadiums, five cities**\
 `Saudi Arabia plans to build 11 new stadiums as part of its bid to host the 2034 men&#8217;s World Cup.`\
 https://nytimes.com/athletic/5672506/2024/07/31/saudi-arabia-2034-world-cup-plans/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5672505/2024/07/31/olympics-gymnastics-pommel-horse
 **The Hottest Item at the Olympics Is a Chocolate Muffin**\
 `On a quest to fuel himself with thousands of calories a day, the Olympic swimmer Henrik Christiansen found an unexpected delight and shared it with the world.`\
 https://nytimes.com/2024/07/31/world/olympics/olympic-chocolate-muffin-henrik-christiansen.html
-
-**Why MLB's trade deadline is unlikely to move later in the season anytime soon**\
-`Yes, this deadline was a bit of a letdown, but that doesn't mean it should be changed to mid-August.`\
-https://nytimes.com/athletic/5672359/2024/07/31/mlb-trade-deadline-timing-cba/
-
-**This Easy Tomato-Watermelon Salad Will Help You Beat the Heat**\
-`This simple, colorful salad from Melissa Clark features a mix of salted tomatoes, juicy watermelon and crisp anchovy bread crumbs.`\
-https://nytimes.com/2024/07/31/dining/easy-tomato-watermelon-salad.html
-
-**Arrests of Drug Kingpins Won’t Solve the Addiction Crisis**\
-`It’s important to punish traffickers, but the U.S. still needs better treatment and prevention efforts.`\
-https://nytimes.com/live/2024/07/30/opinion/thepoint/drug-cartel-arrests
 
