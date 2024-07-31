@@ -1,3 +1,11 @@
+**Simone Biles reveals U.S. women's gymnastics team’s throwback nickname**\
+`Take a look back at the previous U.S. women's Olympic gymnastics teams that earned medals and nicknames.`\
+https://nytimes.com/athletic/5672406/2024/07/31/usa-gymnastics-team-nicknames-history/
+
+**Bears' DJ Moore on his new contract, Caleb Williams and Popeyes**\
+`Moore is thrilled with his four-year contract extension and happy to be part of the foundation in Chicago.`\
+https://nytimes.com/athletic/5672606/2024/07/31/bears-dj-moore-contract-reaction/
+
 **Ledecky sets Olympic record in 1500M freestyle**\
 `Katie Ledecky needs one more to tie Soviet gymnast Larisa Latynina for the most gold medals for any female Olympian.`\
 https://nytimes.com/athletic/5672462/2024/07/31/katie-ledecky-gold-olympics-1500-meters/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5672512/2024/07/31/patriots-davon-godchaux-contract
 **Election Results Presented by Venezuela’s Opposition Suggest Maduro Lost Decisively**\
 `The Times analyzed partial voting tallies collected by the opposition. They cast further doubt on Nicolás Maduro’s declared victory.`\
 https://nytimes.com/2024/07/31/world/americas/venezuela-maduro-election-results.html
-
-**PSG agree deal to sign Joao Neves, Renato Sanches to join Benfica on loan**\
-`Paris Saint-Germain have agreed a deal to sign Benfica midfielder Joao Neves.`\
-https://nytimes.com/athletic/5662828/2024/07/31/psg-joao-neves-benfica-transfer/
-
-**Melania Trump Speaks, Indirectly, and It Speaks Volumes**\
-`Why does she stay?`\
-https://nytimes.com/live/2024/07/30/opinion/thepoint/melania-trump-donald-trump
 
