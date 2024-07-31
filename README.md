@@ -2,6 +2,10 @@
 `Refaat died leaving a trail of questions that shine a light on the actions of a variety of influential people and institutions in Egypt`\
 https://nytimes.com/athletic/5658228/2024/07/31/ahmed-refaat-death-egypt-mohamed-salah/
 
+**Jorge Soler trade could crowd outfield in 2025, but Braves says that's a good problem**\
+`Alex Anthopoulos said Soler was at the top of their list of possible outfield bats as they prepped for this trade deadline.`\
+https://nytimes.com/athletic/5671072/2024/07/31/braves-trade-deadline-outfield/
+
 **Liverpool's No 6 debate: What does Slot want and who could fill the role?**\
 `Questions remain on whether Endo is the right answer long term — and whether Liverpool can challenge for honours without strengthening`\
 https://nytimes.com/athletic/5668493/2024/07/31/liverpool-transfer-no6-targets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5669592/2024/07/31/mlb-odds-best-bets-projections-j
 **What’s It Like Traveling to China These Days?**\
 `China has been rolling out new visa-free programs and promising to make travel easier for foreigners. But challenges remain.`\
 https://nytimes.com/2024/07/31/world/asia/china-travel-visas-explained.html
-
-**Why Chinese Propaganda Loves Foreign Travel Bloggers**\
-`Videos by influencers documenting their trips have been widely promoted on Chinese media — if they tell a certain story.`\
-https://nytimes.com/2024/07/31/world/asia/china-propaganda-travel-influencers.html
 
