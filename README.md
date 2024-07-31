@@ -1,3 +1,7 @@
+**Strikes in Iran and Lebanon Raise Risk of Escalation, but All-Out War Is Not Inevitable**\
+`The scale of the reaction from Iran and its regional proxies to the attacks on two of Israel’s largest foes could determine whether the low-level regional battle tips into a full-scale conflict.`\
+https://nytimes.com/2024/07/31/world/middleeast/iran-lebanon-israel-war-assassination.html
+
 **Don’t Let Your Smartphone Keep You Up at Night**\
 `These features to let you wind down for bed, mute notifications and stay on a regular sleep schedule may help you get more rest.`\
 https://nytimes.com/2024/07/31/technology/personaltech/smartphone-sleep-features.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/world/europe/iceland-volcano-eruption.html
 **The Briefing: Urawa Red Diamonds 1 Newcastle 4 - Has Isak got even better and what's behind Jacob Murphy's fast start?**\
 `George Caulkin breaks down some of the key moments from Newcastle's opening game in Japan`\
 https://nytimes.com/athletic/5668463/2024/07/31/urawa-red-diamonds-newcastle-result-analysis/
-
-**Why Microsoft’s Earnings Miss Won’t Stall the A.I. Boom**\
-`Investors are worried about how much companies are spending on artificial intelligence, but the tech giant is sure that its efforts will pay off.`\
-https://nytimes.com/2024/07/31/business/dealbook/microsoft-ai-spending-tech-stocks.html
 
