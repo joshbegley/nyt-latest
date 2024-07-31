@@ -1,3 +1,7 @@
+**Yankees backed out of trade for Jack Flaherty because of medical concerns: Sources**\
+`Since returning from a back issue that forced him to miss a start, Flaherty has 1.53 ERA in 17 2/3 innings over three outings`\
+https://nytimes.com/athletic/5670855/2024/07/30/yankes-jack-flaherty-trade-tigers/
+
 **How the Cubs lined up with the Rays for an Isaac Paredes trade: What's the catch?**\
 `A look at why the Cubs targeted their new third baseman, despite how doing so meant dealing with a shrewd organization in Tampa Bay.`\
 https://nytimes.com/athletic/5670774/2024/07/30/cubs-rays-isaac-parades-trade/
