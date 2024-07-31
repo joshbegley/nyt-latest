@@ -1,3 +1,7 @@
+**The Windup: Dull deadline signals exciting stretch run**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5672133/2024/07/31/mlb-trade-deadline-jazz-chisholm-the-windup/
+
 **A Salzburg Festival Tradition Deserves a Wider Audience**\
 `Robert Carsen’s take on “Jedermann,” a play staged at the festival every year, stands head and shoulders above other recent stagings of the work.`\
 https://nytimes.com/2024/07/31/theater/jedermann-salzburg-festival-tradition.html

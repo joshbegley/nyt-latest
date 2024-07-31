@@ -1,3 +1,7 @@
+**The Windup: Dull deadline signals exciting stretch run**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5672133/2024/07/31/mlb-trade-deadline-jazz-chisholm-the-windup/
+
 **A Salzburg Festival Tradition Deserves a Wider Audience**\
 `Robert Carsen’s take on “Jedermann,” a play staged at the festival every year, stands head and shoulders above other recent stagings of the work.`\
 https://nytimes.com/2024/07/31/theater/jedermann-salzburg-festival-tradition.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/theater/midnight-in-the-garden-chicago.html
 **Washington Prepares for the ‘Super Bowl of Tax’**\
 `Even with control of the White House and Congress up in the air, lawmakers and lobbyists are gearing up for a big debate next year over expiring measures in former President Donald Trump’s tax law.`\
 https://nytimes.com/2024/07/31/us/politics/tax-code-congress.html
-
-**Seven NHL teams that will shed bad contracts and gain major cap relief in 2025**\
-`Which teams have inefficient deals expiring at the end of 2024-05? What impact could that have on their spending and ability to improve?`\
-https://nytimes.com/athletic/5670089/2024/07/31/nhl-teams-contracts-salary-cap-2025/
 
