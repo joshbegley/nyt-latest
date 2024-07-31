@@ -1,3 +1,15 @@
+**For Domestic Abuse Victims, Child Welfare Scrutiny Adds Further Trauma**\
+`New York parents who report abuse to protect themselves and their families often become the targets of child welfare investigators. A lawsuit is trying to change that.`\
+https://nytimes.com/2024/07/31/nyregion/domestic-violence-victims-child-welfare-surveillance.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/07/31/crosswords/spelling-bee-forum.html
+
+**Olympic triathlon will take place amid Seine water quality concerns**\
+`Officials previously postponed the men's event due to elevated bacteria levels in the water.`\
+https://nytimes.com/athletic/5670270/2024/07/31/olympic-triathlon-seine-water-quality/
+
 **Ismail Haniyeh, a Top Hamas Leader, Is Dead at 62**\
 `Mr. Haniyeh, the militant group’s exiled political chief, was Hamas’s top negotiator in cease-fire talks to end the nearly 10-month-old war in Gaza.`\
 https://nytimes.com/2024/07/31/world/middleeast/ismail-haniyeh-dead.html
