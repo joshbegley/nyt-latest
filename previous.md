@@ -1,3 +1,7 @@
+**After a defensive interview, Trump retreated to Truth Social for approval.**\
+`By Shawn McCreesh`\
+https://nytimes.com/live/2024/07/31/us/harris-trump-election/after-a-defensive-interview-trump-retreated-to-truth-social-for-approval
+
 **Monitoreo de la tormenta tropical Carlotta, en vivo**\
 `Consulta la trayectoria probable y las horas de llegada de los vientos de Carlotta.`\
 https://nytimes.com/interactive/2024/07/31/weather/carlotta-mapa-trayectoria.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/briefing/haniyeh-venezuela-trump.html
 **Trump Downplays Importance of Choosing a Running Mate**\
 `During an interview at a gathering of the National Association of Black Journalists in Chicago, former President Donald J. Trump said that “the choice of a vice president makes no difference.”`\
 https://nytimes.com/video/us/elections/100000009603998/nabj-trump-vance-chicago.html
-
-**Broncos WR Josh Reynolds 'something else' while connecting with Bo Nix**\
-`The free agent from the Lions gives Sean Payton the type of big body he wants in Denver's receiving corps.`\
-https://nytimes.com/athletic/5672668/2024/07/31/broncos-camp-josh-reynolds/
 

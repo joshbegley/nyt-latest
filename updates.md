@@ -1,3 +1,7 @@
+**After a defensive interview, Trump retreated to Truth Social for approval.**\
+`By Shawn McCreesh`\
+https://nytimes.com/live/2024/07/31/us/harris-trump-election/after-a-defensive-interview-trump-retreated-to-truth-social-for-approval
+
 **Monitoreo de la tormenta tropical Carlotta, en vivo**\
 `Consulta la trayectoria probable y las horas de llegada de los vientos de Carlotta.`\
 https://nytimes.com/interactive/2024/07/31/weather/carlotta-mapa-trayectoria.html
