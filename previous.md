@@ -1,3 +1,7 @@
+**Gallagher rejects Chelsea contract offer amid Atletico Madrid interest**\
+`Conor Gallagher has rejected a late contract offer from Chelsea with Atletico Madrid in advanced discussions over signing the midfielder.`\
+https://nytimes.com/athletic/5673173/2024/07/31/gallagher-chelsea-reject-contract-transfer/
+
 **Jonah Jackson, Alaric Jackson facing injuries**\
 `The Rams' left guard and left tackle are both out — for various times — after training camp injuries.`\
 https://nytimes.com/athletic/5672961/2024/07/31/la-rams-offensive-line-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/elections/100000009603431/trump-nabj.html
 **After Boar’s Head Recall, Bodegas Confront Life Without Liverwurst**\
 `Cold cuts linked to a nationwide listeria outbreak have vanished from bodega and deli counters across New York City. For some shops, business is down, too.`\
 https://nytimes.com/2024/07/31/nyregion/boars-head-recall-listeria-outbreak-delis.html
-
-**Scotland Yard Will Review Email Deletions in News Corp Hacking Scandal**\
-`A preliminary inquiry threatens to reopen a tumultuous chapter in U.K. news media history. It could entangle The Washington Post’s publisher and other former News Corp figures.`\
-https://nytimes.com/2024/07/31/business/media/scotland-yard-email-news-corp-hacking.html
 

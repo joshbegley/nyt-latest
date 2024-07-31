@@ -1,3 +1,7 @@
+**Gallagher rejects Chelsea contract offer amid Atletico Madrid interest**\
+`Conor Gallagher has rejected a late contract offer from Chelsea with Atletico Madrid in advanced discussions over signing the midfielder.`\
+https://nytimes.com/athletic/5673173/2024/07/31/gallagher-chelsea-reject-contract-transfer/
+
 **Jonah Jackson, Alaric Jackson facing injuries**\
 `The Rams' left guard and left tackle are both out — for various times — after training camp injuries.`\
 https://nytimes.com/athletic/5672961/2024/07/31/la-rams-offensive-line-injuries/
