@@ -1,3 +1,7 @@
+**Fofana on Fernandez: 'I know he is not racist. But he must learn from this'**\
+`Wesley Fofana is convinced Chelsea team-mate Enzo Fernandez is not a racist and says the fallout from his singing of an offensive chant is a thing of the past.`\
+https://nytimes.com/athletic/5671293/2024/07/31/wesley-fofana-enzo-fernandez-chelsea/
+
 **Wesley Fofana is back and determined: 'We have everything it takes to win titles'**\
 `After two years of injuries, the French defender is itching to prove Chelsea's doubters wrong`\
 https://nytimes.com/athletic/5671443/2024/07/31/wesley-fofana-chelsea-preseason/
