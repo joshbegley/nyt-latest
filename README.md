@@ -1,3 +1,7 @@
+**CAS denies Canada's appeal in Olympic drone spying scandal**\
+`The Court of Arbitration for Sport on Wednesday upheld a six-point Olympic tournament deduction for the Canadian women’s soccer team in a drone spying scandal, affirming FIFA’s choice to heavily limit the reigning gold medalist as questions arose about its tactics to prepare for a repeat.`\
+https://nytimes.com/athletic/5671115/2024/07/31/canada-soccer-cas-appeal-decision-olympics/
+
 **MLB trade deadline grades for all 30 teams: Savvy sellers, bold buyers get high marks**\
 `The Marlins and Rays dominated the deadline with smart selling. The Mariners and Padres aggressively filled key needs. And the Rockies ...`\
 https://nytimes.com/athletic/5666972/2024/07/31/mlb-trade-deadline-grades-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5670810/2024/07/31/new-york-giants-malik-nabers-pra
 **The Pulse: Simone Biles is so back**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/5671233/2024/07/31/simone-biles-olympic-gymnastics-rugby-the-pulse/
-
-**Could these two La Masia-made midfielders solve Barca's Busquets problem?**\
-`Barca have struggled to replace Busquets since he left. These two players could mean they don't have to go back into the market`\
-https://nytimes.com/athletic/5671252/2024/07/31/barcelona-casado-bernal-sergio-busquets/
 
