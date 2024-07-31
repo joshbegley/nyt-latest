@@ -1,4 +1,4 @@
-**Seahawks camp: DK Metcalf bests Devon Witherspoon as the offense bounces back**\
+**Seahawks camp: DK Metcalf bests Devon Witherspoon as offense bounces back**\
 `After the defense dominated the first day in pads, Metcalf and the offense bounced back, highlighted by a one-handed touchdown.`\
 https://nytimes.com/athletic/5670447/2024/07/30/seahawks-dk-metcalf-devon-witherspoon/
 
