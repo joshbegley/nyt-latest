@@ -1,3 +1,7 @@
+**How the Cubs lined up with the Rays for an Isaac Paredes trade: What's the catch?**\
+`A look at why the Cubs targeted their new third baseman, despite how doing so meant dealing with a shrewd organization in Tampa Bay.`\
+https://nytimes.com/athletic/5670774/2024/07/30/cubs-rays-isaac-parades-trade/
+
 **Cardinals check necessary boxes at trade deadline. Now they'll hope it's enough**\
 `John Mozeliak said the trades make the Cardinals better, then added: "Doesn't matter what I think, right? Go out and prove it."`\
 https://nytimes.com/athletic/5670360/2024/07/30/cardinals-mlb-trade-deadline-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5670606/2024/07/30/mets-trade-deadline-paul-blackbu
 **Top prospect Holliday set to rejoin Orioloes**\
 `Holliday is expected to be added back to the active roster in the near future. `\
 https://nytimes.com/athletic/5670712/2024/07/30/jackson-holliday-baltimore-orioles-return/
-
-**‘Job’ Review: The Psychopath Will See You Now**\
-`A patient, a shrink and a gun are the raw ingredients of a chic, sadistic Broadway thriller.`\
-https://nytimes.com/2024/07/30/theater/job-review-broadway.html
 
