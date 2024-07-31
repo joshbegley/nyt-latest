@@ -1,3 +1,11 @@
+**Assassination of a top Hamas leader spurs rallies worldwide.**\
+`.`\
+https://nytimes.com/2024/07/31/world/middleeast/assassination-of-a-top-hamas-leader-spurs-rallies-worldwide.html
+
+**Braves upbeat after delivering a homer-filled win in Jorge Soler's debut**\
+`Alex Anthopoulos explained why it was important to send a signal to the clubhouse with some big deadline moves. `\
+https://nytimes.com/athletic/5673247/2024/07/31/braves-jorge-soler-matt-olson/
+
 **Tyler Guyton to Tyron Billy-Johnson: 10 Cowboys who have stood out in training camp**\
 `Three pass catchers have looked impressive — so Dallas first-round pick. Eyes remain on the progress of Trey Lance and Mazi Smith. `\
 https://nytimes.com/athletic/5673115/2024/07/31/dallas-cowboys-standouts-bland-diggs-tolbert-guyton/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5673107/2024/07/31/josh-dobbs-49ers-training-camp-a
 **‘We Just Need a Break’: Another Flood in Vermont Wears Out Residents**\
 `Dozens of homes were destroyed and damaged in the latest wave of extreme rainfall in the state, officials said.`\
 https://nytimes.com/2024/07/31/us/vermont-floods-storms.html
-
-**Gallagher rejects Chelsea contract offer amid Atletico Madrid interest**\
-`Conor Gallagher has rejected a late contract offer from Chelsea with Atletico Madrid in advanced discussions over signing the midfielder.`\
-https://nytimes.com/athletic/5673173/2024/07/31/gallagher-chelsea-reject-contract-transfer/
-
-**Jonah Jackson, Alaric Jackson facing injuries**\
-`The Rams' left guard and left tackle are both out — for various times — after training camp injuries.`\
-https://nytimes.com/athletic/5672961/2024/07/31/la-rams-offensive-line-injuries/
 
