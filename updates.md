@@ -1,3 +1,11 @@
+**Back-to-Back Assassinations in Middle East Scramble Biden’s Hopes for Peace**\
+`President Biden had anticipated using his remaining time in office to finally bring an end to the war in Gaza. But that was Monday.`\
+https://nytimes.com/2024/07/31/us/politics/assassinations-middle-east-biden.html
+
+**Musk-Backed Super PAC Shakes Up Pro-Trump Field Program**\
+`The group, America PAC, is in some disarray for now as it overhauls its program to turn out voters for Donald J. Trump.`\
+https://nytimes.com/2024/07/31/us/politics/trump-musk-super-pac.html
+
 **Man Gets 20 Years for Fatally Stabbing Teenager on River Tubing Trip**\
 `Nicolae Miu, 54, was sentenced on Wednesday for killing a 17-year-old and wounding four others on a Wisconsin river in 2022, the authorities said.`\
 https://nytimes.com/2024/07/31/us/apple-river-stabbing-nicolae-miu-sentencing.html
