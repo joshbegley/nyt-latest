@@ -1,3 +1,7 @@
+**Two Al Jazeera Journalists Were Killed in Israeli Airstrike on Gaza**\
+`A reporter and a cameraman were working from or near the house of Ismail Haniyeh, the Hamas political chief who was assassinated on Tuesday.`\
+https://nytimes.com/2024/07/31/world/middleeast/al-jazeera-journalists-killed-airstrike-gaza.html
+
 **Pentagon Data Shows High Suicide Rates Among Troops Exposed to Blasts**\
 `A military report on suicide rates broken down by occupation finds the highest rates among categories of troops that often work and train around weapons blasts.`\
 https://nytimes.com/2024/07/31/us/military-suicide-rates-report.html
