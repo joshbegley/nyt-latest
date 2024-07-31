@@ -1,3 +1,7 @@
+**In Atlanta, Harris Has Dance-Party Energy**\
+`Republicans should keep underestimating what they can’t understand.`\
+https://nytimes.com/live/2024/07/30/opinion/thepoint/kamala-harris-atlanta-energy
+
 **Yankees backed out of trade for Jack Flaherty because of medical concerns: Sources**\
 `Since returning from a back issue that forced him to miss a start, Flaherty has 1.53 ERA in 17 2/3 innings over three outings`\
 https://nytimes.com/athletic/5670855/2024/07/30/yankes-jack-flaherty-trade-tigers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5669211/2024/07/30/giants-hard-knocks-takeaways-nfl
 **Vance Knocks Harris as a ‘Wacky San Francisco Liberal’ in Nevada**\
 `Mr. Vance honed his attacks against the vice president in two of the battleground state’s Democratic strongholds, Las Vegas and Reno, in his first trip to the Southwest since joining the ticket.`\
 https://nytimes.com/2024/07/30/us/politics/jd-vance-kamala-harris.html
-
-**Mets trade deadline takeaways: Why David Stearns said 'we're happy'**\
-`Huascar Brazobán improved a revamped bullpen as the Mets navigated a market in which astronomical asking prices were the norm.`\
-https://nytimes.com/athletic/5670606/2024/07/30/mets-trade-deadline-paul-blackburn/
 
