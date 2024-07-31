@@ -1,3 +1,15 @@
+**Venezuela’s Election Was Deeply Flawed. Here’s How.**\
+`From voter intimidation to refusing to provide paper tallies to verify the result claimed by the government, the election was riddled with problems.`\
+https://nytimes.com/2024/07/31/world/americas/venezuela-election-vote-flaws.html
+
+**In Chicago, 3 Shows That Keep the Audience in Mind and Engaged**\
+`Musical adaptations of “Midnight in the Garden of Good and Evil” and “The Lord of the Rings” as well as a new Samuel D. Hunter play were on our critic’s itinerary.`\
+https://nytimes.com/2024/07/31/theater/midnight-in-the-garden-chicago.html
+
+**Washington Prepares for the ‘Super Bowl of Tax’**\
+`Even with control of the White House and Congress up in the air, lawmakers and lobbyists are gearing up for a big debate next year over expiring measures in former President Donald Trump’s tax law.`\
+https://nytimes.com/2024/07/31/us/politics/tax-code-congress.html
+
 **Seven NHL teams that will shed bad contracts and gain major cap relief in 2025**\
 `Which teams have inefficient deals expiring at the end of 2024-05? What impact could that have on their spending and ability to improve?`\
 https://nytimes.com/athletic/5670089/2024/07/31/nhl-teams-contracts-salary-cap-2025/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/world-leade
 **After Haniyeh’s Death, Who Are Hamas’s Most Prominent Leaders?**\
 `Ismail Haniyeh, who was killed in Iran, was among the most senior members of Hamas’s leadership. Here is a look at others.`\
 https://nytimes.com/2024/07/31/world/middleeast/hamas-leaders-haniyeh-sinwar-meshal.html
-
-**Orioles buy low on Trevor Rogers, but still need more pitching**\
-`Keith Law weighs in on the deal, saying he completely sure what the Orioles are seeing in Rogers.`\
-https://nytimes.com/athletic/5669373/2024/07/31/orioles-marlins-trevor-rogers-trade-analysis/
-
-**Inside how Canucks coaches are preparing to improve on last season's success**\
-`Based on conversations with Canucks coaches in the past week, here's a look at what Rick Tocchet's upcoming summer conference will entail.`\
-https://nytimes.com/athletic/5671152/2024/07/31/canucks-coach-nhl-season/
-
-**Strong currents, blistering heat and a thrilling finish make for a wild triathlon.**\
-`Alex Yee overcame a big deficit to pull off a dramatic comeback to win the men’s race.`\
-https://nytimes.com/2024/07/31/world/olympics/triathlon-alex-yee.html
 
