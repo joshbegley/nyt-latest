@@ -1,3 +1,11 @@
+**Sonya Massey’s Killing Is Black America’s Sorrow**\
+`Her death is the manifestation of a societal sickness that devalues Black life.`\
+https://nytimes.com/2024/07/31/opinion/sonya-massey.html
+
+**Iran and Hamas Blame Israel for Killing of Top Official and Vow to Strike Back**\
+`The deadly strike on Ismail Haniyeh in Tehran threatened to further inflame the region and derail negotiations aimed at reaching a cease-fire in Gaza.`\
+https://nytimes.com/2024/07/31/world/middleeast/israel-hamas-hezbollah-iran.html
+
 **Bryce Harper, Phillies stay steady as slumps drag on: 'Turn the page to August'**\
 `Harper has one hit in his last 30 at-bats. The Phillies have lost 11 of their last 15 games. Maybe it's a good time for an off day. `\
 https://nytimes.com/athletic/5672965/2024/07/31/bryce-harper-phillies-slump/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/07/31/us/politics/trump-jan-6-pardons-nabj.html
 **Rosenthal: In a busy MLB trade deadline, quantity of deals overshadowed quality of players**\
 `There were 60 trades made in the final six days of the deadline, but not many stars changing teams.`\
 https://nytimes.com/athletic/5673041/2024/07/31/mlb-trade-deadline-recap-rosenthal/
-
-**Trump Questioned Harris’s Racial Identity**\
-`Also, assassinations of Hezbollah and Hamas leaders stir fears in the Middle East. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/07/31/briefing/trump-harris-interview-assassination-iran.html
-
-**This Is What Happens When Black Women Challenge Trump**\
-`In an interview on Wednesday, his facade crumbled into outright antagonism.`\
-https://nytimes.com/live/2024/07/30/opinion/thepoint/trump-nabj-black-women-harris
 
