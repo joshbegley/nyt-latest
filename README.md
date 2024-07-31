@@ -1,3 +1,7 @@
+**How two Wrexham stars ended up in the biggest movie of the year**\
+`Two Wrexham players appearing in a Hollywood blockbuster is just the latest sign of how crazy life has become since their celeb takeover`\
+https://nytimes.com/athletic/5668087/2024/07/31/wrexham-in-deadpool-wolverine-paul-mullin-and-ollie-palmers-cameos-explained/
+
 **Mastantuono: The 16-year-old Argentinian wonderkid with interest from Madrid**\
 `Madrid appear to be in pole position for the signature of teenage star for River Plate`\
 https://nytimes.com/athletic/5668344/2024/07/31/franco-mastantuono-real-madrid-transfer-argentina/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/business/india-trucking-highways-infrastructure.h
 **War Gives Palestinian Olympians a New Role: Athlete-Diplomats**\
 `The Israel-Hamas war has given the eight Palestinians competing in Paris Olympics a higher profile than usual.`\
 https://nytimes.com/2024/07/31/world/olympics/palestine-athletes-olympics-paris.html
-
-**Facing Harris’s Momentum, Trump Allies Plan $45 Million Ground Game**\
-`A new super PAC was formed to supplement the Trump-Vance campaign’s efforts to mobilize voters in swing states.`\
-https://nytimes.com/2024/07/30/us/politics/trump-super-pac-voter-turnout.html
 
