@@ -1,3 +1,7 @@
+**Arizona Republican Who Said 2020 Election Was Not Stolen Loses Primary**\
+`Stephen Richer, the Maricopa County recorder in Phoenix, was widely criticized by Republicans for defending the state’s voting system against false claims about the 2020 election.`\
+https://nytimes.com/2024/07/31/us/arizona-stephen-richer-maricopa-county-election.html
+
 **Beaugrand wins home triathlon gold for France in Paris**\
 `PARIS – The dawn rain slowed to a drizzle just before 8am on Wednesday morning in Paris, just as 46 fittest women in the world trotted onto the Pont Alexandre III, descended a flight of stairs onto a floating dock and dove into the Seine, bacteria be damned.`\
 https://nytimes.com/athletic/5671320/2024/07/31/olympic-triathlon-result-cassandre-beaugrand/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/world/middleeast/ismail-haniyeh-dead.html
 **Here’s the latest on the assassination.**\
 `By Patrick Kingsley, Farnaz Fassihi, Adam Rasgon and Ronen Bergman`\
 https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/heres-the-latest-on-the-assassination
-
-**Live Updates: A Top Hamas Leader Is Killed in Iran**\
-`Hamas accused Israel of killing Ismail Haniyeh, who was in Tehran for the inauguration of Iran’s new president. He was a key player in negotiations to stop the fighting in Gaza.`\
-https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran
 
