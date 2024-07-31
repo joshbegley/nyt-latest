@@ -1,3 +1,7 @@
+**Former Top BBC Anchor Pleads Guilty to Making Indecent Images of Children**\
+`Huw Edwards, who was one of the BBC’s top television anchors, admitted to offenses in a London court on Wednesday.`\
+https://nytimes.com/2024/07/31/world/europe/huw-edwards-bbc-guilty.html
+
 **A Scavenger Hunt on the High Seas, With Rubber Ducks as the Reward**\
 `Scavenger hunts for rubber ducks hidden by cruise passengers have spawned a duck-loving community of “quackers.”`\
 https://nytimes.com/2024/07/31/travel/rubber-ducks-cruises.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5669623/2024/07/31/recruiting-toledo-kamren-flowers
 **Cats Are Better Than Dogs**\
 `Yes, you must earn their affection. But the payoff is huge.`\
 https://nytimes.com/interactive/2024/07/31/opinion/cats-vs-dogs.html
-
-**A Little Hypocrisy Is Healthy**\
-`When our ideals meet reality sometimes we have to adjust.`\
-https://nytimes.com/interactive/2024/07/31/opinion/forgive-hypocrisy.html
 

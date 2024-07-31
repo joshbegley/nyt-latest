@@ -1,3 +1,7 @@
+**Former Top BBC Anchor Pleads Guilty to Making Indecent Images of Children**\
+`Huw Edwards, who was one of the BBC’s top television anchors, admitted to offenses in a London court on Wednesday.`\
+https://nytimes.com/2024/07/31/world/europe/huw-edwards-bbc-guilty.html
+
 **A Scavenger Hunt on the High Seas, With Rubber Ducks as the Reward**\
 `Scavenger hunts for rubber ducks hidden by cruise passengers have spawned a duck-loving community of “quackers.”`\
 https://nytimes.com/2024/07/31/travel/rubber-ducks-cruises.html
