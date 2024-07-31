@@ -1,3 +1,7 @@
+**Yankees backed out of trade for Jack Flaherty because of medical concerns: Sources**\
+`Since returning from a back issue that forced him to miss a start, Flaherty has 1.53 ERA in 17 2/3 innings over three outings`\
+https://nytimes.com/athletic/5670855/2024/07/30/yankes-jack-flaherty-trade-tigers/
+
 **How the Cubs lined up with the Rays for an Isaac Paredes trade: What's the catch?**\
 `A look at why the Cubs targeted their new third baseman, despite how doing so meant dealing with a shrewd organization in Tampa Bay.`\
 https://nytimes.com/athletic/5670774/2024/07/30/cubs-rays-isaac-parades-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/30/us/politics/jd-vance-kamala-harris.html
 **Mets trade deadline takeaways: Why David Stearns said 'we're happy'**\
 `Huascar Brazobán improved a revamped bullpen as the Mets navigated a market in which astronomical asking prices were the norm.`\
 https://nytimes.com/athletic/5670606/2024/07/30/mets-trade-deadline-paul-blackburn/
-
-**Top prospect Holliday set to rejoin Orioloes**\
-`Holliday is expected to be added back to the active roster in the near future. `\
-https://nytimes.com/athletic/5670712/2024/07/30/jackson-holliday-baltimore-orioles-return/
 
