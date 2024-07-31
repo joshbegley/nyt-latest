@@ -1,3 +1,11 @@
+**Alma Powell, 86, Esteemed Military Spouse of a Revered Statesman, Dies**\
+`Her quiet, elegant manner added to the mystique behind her husband, Colin Powell, and she figured strongly into his decision not to run for president in 1996.`\
+https://nytimes.com/2024/07/31/us/politics/alma-powell-dead.html
+
+**Floyd Layne, 95, Basketball Player Tarnished by Gambling Scandal, Dies**\
+`He helped City College win two national championships in 1950 before pleading guilty in a point-shaving scheme. He later became City’s basketball coach and a mentor.`\
+https://nytimes.com/2024/07/31/sports/basketball/floyd-layne-dead.html
+
 **Kenneth Grange, Industrial Designer of Modern Life, Dies at 95**\
 `His cameras, food mixers and lamps, and even taxis and trains, were widely celebrated objects of post-World War II design.`\
 https://nytimes.com/2024/07/31/obituaries/kenneth-grange-dead.html

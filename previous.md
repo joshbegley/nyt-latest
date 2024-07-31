@@ -1,3 +1,11 @@
+**Alma Powell, 86, Esteemed Military Spouse of a Revered Statesman, Dies**\
+`Her quiet, elegant manner added to the mystique behind her husband, Colin Powell, and she figured strongly into his decision not to run for president in 1996.`\
+https://nytimes.com/2024/07/31/us/politics/alma-powell-dead.html
+
+**Floyd Layne, 95, Basketball Player Tarnished by Gambling Scandal, Dies**\
+`He helped City College win two national championships in 1950 before pleading guilty in a point-shaving scheme. He later became City’s basketball coach and a mentor.`\
+https://nytimes.com/2024/07/31/sports/basketball/floyd-layne-dead.html
+
 **Kenneth Grange, Industrial Designer of Modern Life, Dies at 95**\
 `His cameras, food mixers and lamps, and even taxis and trains, were widely celebrated objects of post-World War II design.`\
 https://nytimes.com/2024/07/31/obituaries/kenneth-grange-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/business/economy/100000009603765/federal-reserve-inter
 **Thoughts on Ryan Williams, transfers and more as Alabama opens practice**\
 `Kalen DeBoer's thoughts on Williams, the summer transfers and more after Alabama's first practice.`\
 https://nytimes.com/athletic/5672562/2024/07/31/alabama-football-practice-ryan-williams/
-
-**McClaren leaves Man Utd coaching staff to become Jamaica head coach**\
-`Steve McClaren has left his role as first-team coach at Manchester United to take over as Jamaica head coach.`\
-https://nytimes.com/athletic/5672304/2024/07/31/steve-mcclaren-leaves-manchester-united/
-
-**Colin Jost Will Host the New ‘Jeopardy!’ Pop Culture Spinoff**\
-`“Pop Culture Jeopardy!” is expected to begin production in August and will stream only on Amazon Prime Video.`\
-https://nytimes.com/2024/07/31/arts/television/colin-jost-jeopardy-spinoff-host.html
 
