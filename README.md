@@ -1,3 +1,7 @@
+**Ismail Haniyeh, a top Hamas leader, has been killed, Iran says.**\
+`By Farnaz Fassihi and Ronen Bergman`\
+https://nytimes.com/live/2024/07/30/world/israel-gaza-war-lebanon-hezbollah/ismail-haniyeh-a-top-hamas-leader-has-been-killed-iran-says
+
 **Boar’s Head Recalls 7 Million More Pounds of Meat Amid Listeria Outbreak**\
 `The announcement came less than a week after Boar’s Head recalled more than 200,000 pounds of meat during an outbreak that has killed two and sickened more than two dozen.`\
 https://nytimes.com/2024/07/30/business/boars-head-deli-recall-listeria.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5670774/2024/07/30/cubs-rays-isaac-parades-trade/
 **Cardinals check necessary boxes at trade deadline. Now they'll hope it's enough**\
 `John Mozeliak said the trades make the Cardinals better, then added: "Doesn't matter what I think, right? Go out and prove it."`\
 https://nytimes.com/athletic/5670360/2024/07/30/cardinals-mlb-trade-deadline-analysis/
-
-**Nearly 1,000 Native Children Died at Boarding Schools, Interior Dept. Finds**\
-`An investigative report, which also documents widespread sexual and physical abuse in a program of forced assimilation, calls on the federal government to apologize and “chart a road to healing.”`\
-https://nytimes.com/2024/07/30/us/politics/native-american-boarding-schools.html
 
