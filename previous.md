@@ -1,3 +1,15 @@
+**‘20th Hijacker’ Seeks Transfer From Federal Supermax to French Prison**\
+`After 20 years in a supermax prison in Colorado, the only person to be convicted in connection with the 9/11 attacks wants to serve his life sentence in his homeland.`\
+https://nytimes.com/2024/07/31/us/politics/zacarias-moussaoui-france-prison.html
+
+**Big Ten heading to Vegas for men's, women's tourneys within next four years**\
+`The Pac-12, the former home of USC, UCLA, Oregon and Washington, staged its men’s tournament at T-Mobile Arena from 2017 to 2024.`\
+https://nytimes.com/athletic/5672268/2024/07/31/big-ten-basketball-tournament-las-vegas/
+
+**Trump Is ‘Weird,’ Vance Is ‘Creepy.’ Finally, the Democrats Start Name-Calling.**\
+`The insults are delightfully petty and supremely satisfying.`\
+https://nytimes.com/2024/07/31/opinion/trump-vance-weird-creepy.html
+
 **Some Republicans Embrace Conspiracy Theories on Trump Assassination**\
 `Right-wing lawmakers and candidates have made baseless suggestions that the shooting was orchestrated by Democrats or government actors who targeted former President Donald J. Trump.`\
 https://nytimes.com/2024/07/31/us/politics/trump-assassination-republicans-conspiracy-theories.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/europe/100000009602586/southport-uk-riot-girls-s
 **Scoop City: A Chicago star gets paid**\
 `A look at DJ Moore's extension, Brock Purdy's career and the Colts' approach to Anthony Richardson in year two.`\
 https://nytimes.com/athletic/5672260/2024/07/31/dj-moore-extension-scoop-city/
-
-**In Lebanon, an Israeli strike and the prospect of war leave many unsettled.**\
-`By Euan Ward and Hwaida Saad`\
-https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/in-lebanon-an-israeli-strike-and-the-prospect-of-war-leave-many-unsettled
-
-**Unrest at Army Bases Highlights a Long Battle for Israel’s Soul**\
-`After Israeli soldiers were detained on suspicion of abusing a Palestinian, riots broke out that symbolize a wider struggle over Israel’s future that has divided the country.`\
-https://nytimes.com/2024/07/31/world/middleeast/israel-army-bases-riots.html
-
-**The stock market grew turbulent this month as investors began to position for a rate cut.**\
-`Wall Street is expecting the Federal Reserve to keep rates steady for now, but start lowering them in September.`\
-https://nytimes.com/live/2024/07/31/business/fed-meeting-interest-rates/the-stock-market-grew-turbulent-this-month-as-investors-began-to-position-for-a-rate-cut
 

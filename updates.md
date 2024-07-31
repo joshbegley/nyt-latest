@@ -1,3 +1,15 @@
+**‘20th Hijacker’ Seeks Transfer From Federal Supermax to French Prison**\
+`After 20 years in a supermax prison in Colorado, the only person to be convicted in connection with the 9/11 attacks wants to serve his life sentence in his homeland.`\
+https://nytimes.com/2024/07/31/us/politics/zacarias-moussaoui-france-prison.html
+
+**Big Ten heading to Vegas for men's, women's tourneys within next four years**\
+`The Pac-12, the former home of USC, UCLA, Oregon and Washington, staged its men’s tournament at T-Mobile Arena from 2017 to 2024.`\
+https://nytimes.com/athletic/5672268/2024/07/31/big-ten-basketball-tournament-las-vegas/
+
+**Trump Is ‘Weird,’ Vance Is ‘Creepy.’ Finally, the Democrats Start Name-Calling.**\
+`The insults are delightfully petty and supremely satisfying.`\
+https://nytimes.com/2024/07/31/opinion/trump-vance-weird-creepy.html
+
 **Some Republicans Embrace Conspiracy Theories on Trump Assassination**\
 `Right-wing lawmakers and candidates have made baseless suggestions that the shooting was orchestrated by Democrats or government actors who targeted former President Donald J. Trump.`\
 https://nytimes.com/2024/07/31/us/politics/trump-assassination-republicans-conspiracy-theories.html
