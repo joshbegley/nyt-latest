@@ -1,3 +1,15 @@
+**Fires Burning at ‘Full Tilt’ Across the Western U.S. Stretch Resources**\
+`At least one person was killed this week by a wildfire in Colorado, and experts say hot, dry conditions are likely to spark more blazes.`\
+https://nytimes.com/2024/07/31/us/wildfires-california-colorado-park-alexander.html
+
+**Anna Netrebko, Shunned in U.S. Over Putin Support, to Sing in Palm Beach**\
+`The star soprano, who lost work at American opera companies after Russia invaded Ukraine, will sing at a gala for Palm Beach Opera, her first American engagement since 2019.`\
+https://nytimes.com/2024/07/31/arts/music/anna-netrebko-palm-beach.html
+
+**Trump Says He Would Pardon Jan. 6 Rioters Who Attacked Police**\
+`Hundreds of people have been convicted in the storming of the Capitol in 2021, including those who assaulted officers.`\
+https://nytimes.com/2024/07/31/us/politics/trump-jan-6-pardons-nabj.html
+
 **Rosenthal: In a busy MLB trade deadline, quantity of deals overshadowed quality of players**\
 `There were 60 trades made in the final six days of the deadline, but not many stars changing teams.`\
 https://nytimes.com/athletic/5673041/2024/07/31/mlb-trade-deadline-recap-rosenthal/
