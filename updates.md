@@ -1,3 +1,7 @@
+**What to Know About the Deadly Landslides in Southern India**\
+`The death toll has risen to at least 126 in Kerala State after heavy rain sent huge mudslides through an area known as a tourist destination.`\
+https://nytimes.com/2024/07/31/world/asia/india-kerala-landslides.html
+
 **QB advanced passing stats that matter for fantasy football 2024, and the one signal-caller who checks every box**\
 `John Laghezza runs the advanced analytics to reveal the QBs excelling the most in the passing stats that matter for fantasy football.`\
 https://nytimes.com/athletic/5664300/2024/07/31/qb-advanced-stats-fantasy-football-2024/

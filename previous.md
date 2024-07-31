@@ -1,3 +1,7 @@
+**What to Know About the Deadly Landslides in Southern India**\
+`The death toll has risen to at least 126 in Kerala State after heavy rain sent huge mudslides through an area known as a tourist destination.`\
+https://nytimes.com/2024/07/31/world/asia/india-kerala-landslides.html
+
 **QB advanced passing stats that matter for fantasy football 2024, and the one signal-caller who checks every box**\
 `John Laghezza runs the advanced analytics to reveal the QBs excelling the most in the passing stats that matter for fantasy football.`\
 https://nytimes.com/athletic/5664300/2024/07/31/qb-advanced-stats-fantasy-football-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5667181/2024/07/31/joel-embiid-booed-olympics-usa-f
 **Will Israel and Hezbollah Go to War?**\
 `Tensions are on a knife edge after Israel carried out a strike on the Hezbollah leader allegedly behind an attack in the Golan Heights.`\
 https://nytimes.com/2024/07/31/podcasts/the-daily/israel-hezbollah-lebanon.html
-
-**Wordle Review No. 1,139, Thursday, August 1, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/07/31/crosswords/wordle-review-1139.html
 
