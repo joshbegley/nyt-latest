@@ -1,3 +1,7 @@
+**California Progressives Are Making Homelessness Worse**\
+`Removing the state’s encampments won’t fix the problem.`\
+https://nytimes.com/2024/07/31/opinion/california-homelessness-progressives.html
+
 **Iceland Braces for Another Volcanic Blast. Should We Worry?**\
 `The Icelandic Meteorological Office has warned of an eruption “in the coming days.”`\
 https://nytimes.com/2024/07/31/world/europe/iceland-volcano-eruption.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5665344/2024/07/31/anwar-el-ghazi-cardiff-transfer/
 **More Than 100 Silicon Valley Investors Pledge to Support Kamala Harris**\
 `The group, including Democratic donors such as Reid Hoffman and Vinod Khosla, has been organized under an effort called VCsForKamala.`\
 https://nytimes.com/2024/07/31/technology/silicon-valley-investors-support-kamala-harris.html
-
-**U.K. Police Officers Injured in Far-Right Riot After Deadly Stabbing**\
-`A day after an attacker with a knife killed three girls in Southport, northwestern England, violence driven in part by disinformation erupted in the town.`\
-https://nytimes.com/2024/07/31/world/europe/uk-stabbing-southport-riot-police.html
 
