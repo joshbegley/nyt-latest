@@ -1,3 +1,7 @@
+**Anger, apathy and remorse: Gazans react to the death of Ismail Haniyeh.**\
+`By Bilal Shbair and Hiba Yazbek`\
+https://nytimes.com/live/2024/07/31/world/israel-gaza-war-hamas-iran/anger-apathy-and-remorse-gazans-react-to-the-death-of-ismail-haniyeh
+
 **Live Updates: Federal Reserve Meets as Investors Focus on Rate Cuts to Come**\
 `The Federal Reserve is expected to leave interest rates unchanged but could set up for a cut later this year.`\
 https://nytimes.com/live/2024/07/31/business/fed-meeting-interest-rates
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5672133/2024/07/31/mlb-trade-deadline-jazz-chisholm
 **A Salzburg Festival Tradition Deserves a Wider Audience**\
 `Robert Carsen’s take on “Jedermann,” a play staged at the festival every year, stands head and shoulders above other recent stagings of the work.`\
 https://nytimes.com/2024/07/31/theater/jedermann-salzburg-festival-tradition.html
-
-**Guatemala's Ruano Oliva wins first gold medal in country's history**\
-`Ruano Oliva's gold also marks a remarkable comeback for the 29-year-old. In 2021, she finished 26th out of 26 competitors in the event.`\
-https://nytimes.com/athletic/5671986/2024/07/31/adriana-ruano-oliva-olympics-womens-trap-shooting-guatemala-first-gold/
 
