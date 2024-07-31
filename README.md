@@ -1,3 +1,7 @@
+**A Scavenger Hunt on the High Seas, With Rubber Ducks as the Reward**\
+`Scavenger hunts for rubber ducks hidden by cruise passengers have spawned a duck-loving community of “quackers.”`\
+https://nytimes.com/2024/07/31/travel/rubber-ducks-cruises.html
+
 **Twins trade deadline takeaways: Payroll-fueled frustration and Trevor Richards**\
 `In need of rotation help, the Twins ended up settling for an inexpensive middle reliever as ownership's payroll cuts hurt again.`\
 https://nytimes.com/athletic/5670091/2024/07/31/twins-trade-deadline-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/31/opinion/cats-vs-dogs.html
 **A Little Hypocrisy Is Healthy**\
 `When our ideals meet reality sometimes we have to adjust.`\
 https://nytimes.com/interactive/2024/07/31/opinion/forgive-hypocrisy.html
-
-**The Market Doesn’t Always Get It Right**\
-`Wisdom rooted in experience and expertise should mean something.`\
-https://nytimes.com/interactive/2024/07/31/opinion/markets-education-media.html
 
