@@ -1,3 +1,19 @@
+**Don’t Hate On the D.M.V.**\
+`There is no express lane for rich people here.`\
+https://nytimes.com/interactive/2024/07/31/opinion/dmv-inequality.html
+
+**How did Toledo land a 4-star WR? Kamren Flowers picks Rockets after 'honest' recruitment**\
+`Flowers is the second blue-chipper of the 2025 cycle to commit to a Group of 5 school — joining Memphis-bound quarterback Antwann Hill.`\
+https://nytimes.com/athletic/5669623/2024/07/31/recruiting-toledo-kamren-flowers/
+
+**Cats Are Better Than Dogs**\
+`Yes, you must earn their affection. But the payoff is huge.`\
+https://nytimes.com/interactive/2024/07/31/opinion/cats-vs-dogs.html
+
+**A Little Hypocrisy Is Healthy**\
+`When our ideals meet reality sometimes we have to adjust.`\
+https://nytimes.com/interactive/2024/07/31/opinion/forgive-hypocrisy.html
+
 **The Market Doesn’t Always Get It Right**\
 `Wisdom rooted in experience and expertise should mean something.`\
 https://nytimes.com/interactive/2024/07/31/opinion/markets-education-media.html
