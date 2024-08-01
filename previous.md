@@ -1,6 +1,14 @@
+**The Brieifing: Man United 3 Real Betis 2 - Will Yoro injury mean further transfers? Amad dazzles**\
+`Amad shone in San Diego but there are more injury concerns for Manchester United and Erik ten Hag`\
+https://nytimes.com/athletic/5673776/2024/08/01/man-united-3-2-real-betis-yoro-injury-amad/
+
 **Word of the Day: satirist**\
 `This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/01/learning/word-of-the-day-satirist.html
+
+**Fantasy football snake draft strategy, where roster format makes all the difference**\
+`Michael Salfino walks you through snake draft strategy for Flex10 and Flex9 fantasy league formats, explaining why they are very different.`\
+https://nytimes.com/athletic/5672805/2024/08/01/fantasy-football-snake-draft-strategy-where-roster-format-makes-all-the-difference/
 
 **The Gaza War Has Never Been Confined to Gaza**\
 `With the assassination of a Hamas leader in Tehran, regional war looms ever closer.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/01/briefing/middle-east-biden-harris-race.html
 **Can Gouda’s Cheesemakers Stall a Sinking Future?**\
 `The small city where the renowned Dutch cheese is made is subsiding as sea levels rise. Experts say the industry may not survive there, even with the ingenuity of the country’s water managers.`\
 https://nytimes.com/2024/08/01/world/europe/netherlands-gouda-climate.html
-
-**Myles Peart-Harris: 'I'm ready to play for Brentford in the Premier League'**\
-`The Brentford midfielder believes loans at Forest Green and Portsmouth have done the trick - he now wants to prove himself to Thomas Frank`\
-https://nytimes.com/athletic/5652888/2024/08/01/myles-peart-harris-brentford/
-
-**Spurs want an energetic No 8 - but it may be time to widen the search**\
-`Having long admired Conor Gallagher and Jacob Ramsey, a move for either now looks less likely - can they fill the void?`\
-https://nytimes.com/athletic/5665327/2024/08/01/tottenham-transfers-midfield-gallagher-ramsey/
 

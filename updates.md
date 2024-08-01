@@ -1,3 +1,11 @@
+**The Brieifing: Man United 3 Real Betis 2 - Will Yoro injury mean further transfers? Amad dazzles**\
+`Amad shone in San Diego but there are more injury concerns for Manchester United and Erik ten Hag`\
+https://nytimes.com/athletic/5673776/2024/08/01/man-united-3-2-real-betis-yoro-injury-amad/
+
+**Fantasy football snake draft strategy, where roster format makes all the difference**\
+`Michael Salfino walks you through snake draft strategy for Flex10 and Flex9 fantasy league formats, explaining why they are very different.`\
+https://nytimes.com/athletic/5672805/2024/08/01/fantasy-football-snake-draft-strategy-where-roster-format-makes-all-the-difference/
+
 **Word of the Day: satirist**\
 `This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/01/learning/word-of-the-day-satirist.html
