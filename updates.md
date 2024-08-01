@@ -1,3 +1,11 @@
+**Taylor Fritz's marathon Olympic day at Roland Garros: 3 matches in 9 hours**\
+`Fritz couldn't remember the last time he had a day like this. But it's been a while. Maybe back in his early junior days.`\
+https://nytimes.com/athletic/5671801/2024/08/01/taylor-fritz-three-matches-olympics-roland-garros/
+
+**The Briefing: Real Madrid 0 AC Milan 1 - Endrick's first start, Chukwueze's winner**\
+`AC Milan beat Real Madrid 1-0 as Carlo Ancelotti's side get their pre-season tour of the United States under way`\
+https://nytimes.com/athletic/5673804/2024/08/01/real-madrid-ac-milan-endrick-result-analysis/
+
 **Armed With Saran Wrap, She Sinks in the Muck to Save the Planet**\
 `A dogged paleoecologist named Dorothy Peteet is digging through the salt marshes of New York in the hope of preserving the city’s best natural defense against climate change.`\
 https://nytimes.com/2024/08/01/nyregion/jamaica-bay-marsh-new-york-city.html

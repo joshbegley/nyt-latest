@@ -1,3 +1,7 @@
+**Taylor Fritz's marathon Olympic day at Roland Garros: 3 matches in 9 hours**\
+`Fritz couldn't remember the last time he had a day like this. But it's been a while. Maybe back in his early junior days.`\
+https://nytimes.com/athletic/5671801/2024/08/01/taylor-fritz-three-matches-olympics-roland-garros/
+
 **Armed With Saran Wrap, She Sinks in the Muck to Save the Planet**\
 `A dogged paleoecologist named Dorothy Peteet is digging through the salt marshes of New York in the hope of preserving the city’s best natural defense against climate change.`\
 https://nytimes.com/2024/08/01/nyregion/jamaica-bay-marsh-new-york-city.html
@@ -9,6 +13,10 @@ https://nytimes.com/2024/08/01/crosswords/spelling-bee-forum.html
 **An Office Tower Sold for $8.5 Million. It Was Once Worth 40 Times That.**\
 `The sale price of 135 West 50th Street in Midtown, which is only 35 percent full, was a sign of how much the pandemic upended the market for office buildings in New York City.`\
 https://nytimes.com/2024/08/01/nyregion/manhattan-office-building-auction.html
+
+**The Briefing: Real Madrid 0 AC Milan 1 - Endrick's first start, Chukwueze's winner**\
+`AC Milan beat Real Madrid 1-0 as Carlo Ancelotti's side get their pre-season tour of the United States under way`\
+https://nytimes.com/athletic/5673804/2024/08/01/real-madrid-ac-milan-endrick-result-analysis/
 
 **Quotation of the Day: Can You Beat the Olympians at Table Tennis? Stop Asking.**\
 `Quotation of the Day for Thursday, August 1, 2024.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5671691/2024/08/01/barcelona-laporta-president-vict
 **The Brieifing: Man United 3 Real Betis 2 - Will Yoro injury mean further transfers? Amad dazzles**\
 `Amad shone in San Diego but there are more injury concerns for Manchester United and Erik ten Hag`\
 https://nytimes.com/athletic/5673776/2024/08/01/man-united-3-2-real-betis-yoro-injury-amad/
-
-**Word of the Day: satirist**\
-`This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/08/01/learning/word-of-the-day-satirist.html
-
-**Fantasy football snake draft strategy, where roster format makes all the difference**\
-`Michael Salfino walks you through snake draft strategy for Flex10 and Flex9 fantasy league formats, explaining why they are very different.`\
-https://nytimes.com/athletic/5672805/2024/08/01/fantasy-football-snake-draft-strategy-where-roster-format-makes-all-the-difference/
 
