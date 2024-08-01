@@ -1,3 +1,7 @@
+**Branson Robinson trending well at Georgia practice, receivers 'have potential'**\
+`Georgia opened practice Thursday, and head coach Kirby Smart and several players shared their thoughts on the team.`\
+https://nytimes.com/athletic/5675207/2024/08/01/georgia-football-takeaways-branson-robinson/
+
 **Ledecky becomes most decorated U.S. female Olympian**\
 `No female swimmer of any nationality has won more than 12 Olympic medals until Team USA's Katie Ledecky.`\
 https://nytimes.com/athletic/5674917/2024/08/01/katie-ledecky-medals-olympics-swimming/
