@@ -1,3 +1,7 @@
+**Here’s the latest on the presidential race.**\
+`By Nicholas Nehamas and Simon J. Levien`\
+https://nytimes.com/live/2024/08/01/us/trump-harris-election-news/heres-the-latest-on-the-presidential-race
+
 **Wheatley to leave Red Bull and join Audi F1**\
 `Red Bull has announced that Jonathan Wheatley, its Formula One sporting director, will leave after 18 years to become Audi’s team principal.`\
 https://nytimes.com/athletic/5674225/2024/08/01/jonathan-wheatley-red-bull-audi-f1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5670509/2024/08/01/49ers-isaac-yiadom-training-camp
 **Cubs, Motorola sign multiyear sponsorship deal for the team's first jersey patch**\
 `The Cubs will unveil their classic pinstripe jerseys with the “official smartphone” patch at Thursday’s home game against St. Louis.`\
 https://nytimes.com/athletic/5673025/2024/08/01/chicago-cubs-motorola-patch-sponsorship-deal/
-
-**Why is Team USA struggling in the Olympic gold-medal count? Look to the pool**\
-`Team USA is off to a slow start in the overall Olympic gold-medal count. A less-than-stellar week in the pool is a big part of the reason.`\
-https://nytimes.com/athletic/5674125/2024/08/01/team-usa-gold-medal-count-olympics-paris-swimming/
 
