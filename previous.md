@@ -1,3 +1,7 @@
+**Abraham Hamadeh Wins G.O.P. House Primary in Arizona**\
+`In an unusual twist, Donald J. Trump had endorsed both Mr. Hamadeh and his rival, Blake Masters, effectively declaring that he had no preference in the primary race.`\
+https://nytimes.com/2024/07/31/us/politics/abraham-hamedah-blake-masters.html
+
 **‘We’re All Living the Olympics Through TikTok Now’**\
 `In NBC’s quest to provide wall-to-wall coverage of the Paris Games, the TV network has aimed to dominate a different device: your phone.`\
 https://nytimes.com/2024/07/31/style/nbc-olympics-influencers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5673247/2024/07/31/braves-jorge-soler-matt-olson/
 **Tyler Guyton to Tyron Billy-Johnson: 10 Cowboys who have stood out in training camp**\
 `Three pass catchers have looked impressive — so has Dallas' first-round pick. Eyes remain on the progress of Trey Lance and Mazi Smith. `\
 https://nytimes.com/athletic/5673115/2024/07/31/dallas-cowboys-standouts-bland-diggs-tolbert-guyton/
-
-**Fact-Checking Trump’s Remarks on Race**\
-`The former president falsely accused Vice President Kamala Harris of “only promoting” her Indian heritage, among other inaccurate claims. Here’s a fact check.`\
-https://nytimes.com/2024/07/31/us/politics/trump-nabj-fact-check.html
 

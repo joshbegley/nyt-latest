@@ -1,3 +1,7 @@
+**Abraham Hamadeh Wins G.O.P. House Primary in Arizona**\
+`In an unusual twist, Donald J. Trump had endorsed both Mr. Hamadeh and his rival, Blake Masters, effectively declaring that he had no preference in the primary race.`\
+https://nytimes.com/2024/07/31/us/politics/abraham-hamedah-blake-masters.html
+
 **Braves upbeat after delivering a homer-filled win in Jorge Soler's return**\
 `Alex Anthopoulos explained why it was important to send a signal to the clubhouse with some big deadline moves. `\
 https://nytimes.com/athletic/5673247/2024/07/31/braves-jorge-soler-matt-olson/
