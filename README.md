@@ -1,3 +1,7 @@
+**Trump Escalates Race Attacks on Harris, Worrying Some Republicans**\
+`A day after telling Black journalists that Vice President Kamala Harris had recently decided to become “a Black person,” Mr. Trump shared a photo of Ms. Harris in traditional Indian clothing.`\
+https://nytimes.com/2024/08/01/us/politics/trump-kamala-harris-race.html
+
 **With Hostage Swap, Biden Scores a Win as His Term Nears Its End**\
 `The prisoner exchange offered a measure of validation for President Biden soon after he abandoned his bid for re-election.`\
 https://nytimes.com/2024/08/01/us/politics/biden-hostage-swap.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/01/us/mr-beast-youtube-inappropriate-language.html
 **Head of an Elite New York School Resigns After Turmoil Over Gaza War**\
 `Joe Algrant will step down as the head of Ethical Culture Fieldston School following a year marked by infighting among parents, students, faculty and alumni.`\
 https://nytimes.com/2024/08/01/nyregion/ethical-culture-fieldston-school-resignation.html
-
-**Kane Wommack's sweatsuit and a new-look defense: Alabama camp notes**\
-`Alabama defenders are acclimating to new defensive coordinator Kane Wommack's scheme. Who's standing out so far?`\
-https://nytimes.com/athletic/5675529/2024/08/01/alabama-football-training-camp-update-defense/
 
