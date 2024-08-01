@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5673422/2024/07/31/leon-marchand-katie-ledecky-olym
 `The vice president’s calibrated rebuttal was perhaps an early indication of how she will respond to racist and crude attacks from Donald Trump.`\
 https://nytimes.com/2024/07/31/us/politics/kamala-harris-donald-trump-black-voters.html
 
-**Rafael Montero's departure from Astros delivers an end to Jim Crane's messy 2022 winter**\
+**Rafael Montero's departure from Astros delivers end to Jim Crane's messy 2022 winter**\
 `Montero was the second high-salaried player let go by the Astros this summer.`\
 https://nytimes.com/athletic/5673404/2024/07/31/astros-rafael-montero-dfa-jim-crane-contract/
 
