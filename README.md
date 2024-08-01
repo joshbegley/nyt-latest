@@ -1,3 +1,15 @@
+**Who Is the Russian Assassin Freed as Part of a Sweeping Prisoner Exchange?**\
+`Vadim Krasikov was sentenced to life in prison in Germany for a brazen assassination in a downtown park in Berlin. Now he is free.`\
+https://nytimes.com/2024/08/01/world/europe/russia-krasikov-prisoner-swap.html
+
+**How Golf and Physics Are Raising the Limits in Shot-Put**\
+`Ryan Crouser, an American, has combined radar technology borrowed from golf and an innovative technique to take aim at his third straight Olympic gold.`\
+https://nytimes.com/2024/08/01/world/olympics/ryan-crouser-shotput-team-usa-trackman.html
+
+**How Did Roses Get Their Thorns?**\
+`The “prickles,” as botanists call them, evolved in roses and other plants thanks to a single gene, a new study found.`\
+https://nytimes.com/2024/08/01/science/how-did-roses-get-their-thorns.html
+
 **Trump’s Attack on Harris’s Racial Identity**\
 `Readers criticize the ex-president’s comments before a group of Black journalists. Also: “White Dudes for Harris”; Republicans with elite college degrees.`\
 https://nytimes.com/2024/08/01/opinion/donald-trump-kamala-harris-race.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5674916/2024/08/01/sf-giants-jerar-encarnacion-call
 **Full Time: U.S. advances and Canada stuns**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter. `\
 https://nytimes.com/athletic/5674807/2024/08/01/olympics-uswnt-canada-drones-quarterfinals-full-time/
-
-**The Best Movies and TV Shows Coming to Amazon, Disney+, Hulu and More in August**\
-`“Batman: Caped Crusader,” “Homicide: Life on the Street,” “OceanXplorers” and “Only Murders in the Building” will be streaming.`\
-https://nytimes.com/2024/08/01/arts/television/august-streaming-movies-tv-shows.html
-
-**Trump boasted this year that he could get Gershkovich released if re-elected.**\
-`By Neil MacFarquhar`\
-https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/trump-gershkovich-release
-
-**Biden Welcomes Relatives of Released Hostages to White House**\
-`President Biden, who negotiated the Russia prisoner release, delivered remarks surrounded by relatives of freed American hostages.`\
-https://nytimes.com/video/embedded/us/politics/100000009605521/biden-russia-hostage-release-prisoner-swap.html
 
