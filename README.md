@@ -1,3 +1,11 @@
+**Spurs want an energetic No 8 - but it may be time to widen the search**\
+`Having long admired Conor Gallagher and Jacob Ramsey, a move for either now looks less likely - can they fill the void?`\
+https://nytimes.com/athletic/5665327/2024/08/01/tottenham-transfers-midfield-gallagher-ramsey/
+
+**Why Chelsea's goalkeepers will be crucial to Enzo Maresca's system working**\
+`Enzo Maresca's system places particular demands on goalkeepers, which makes them crucial to any Chelsea success`\
+https://nytimes.com/athletic/5671414/2024/08/01/chelsea-enzo-maresca-goalkeepers-tactics/
+
 **Charlie Stillitano, football's Mr Fixer and confidante to Ferguson, Mourinho and Ancelotti**\
 `Mention Charlie Stillitano's name to Jose Mourinho, Carlo Ancelotti or Sir Alex Ferguson and they cannot wait to heap praise on him`\
 https://nytimes.com/athletic/5667538/2024/08/01/charlie-stillitano-profile-ferguson-mourinho-ancelotti/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5671931/2024/08/01/uefa-champions-league-automated-
 **Thursday's MLB odds, best bets: Playoff projections, pitching matchups, props and more**\
 `See pitching matchups, playoff projections, win projections and more for Thursday's MLB games.`\
 https://nytimes.com/athletic/5672610/2024/08/01/mlb-odds-best-bets-projections-august-1/
-
-**Track Keeps Banning Drug Cheats. It Worries That Other Sports Are Not.**\
-`Track and field’s antidoping arm, the Athletics Integrity Unit, has announced a string of cases in recent months. Is that the sign of a problem, or proof that its approach is working?`\
-https://nytimes.com/2024/08/01/sports/olympics-track-field-doping.html
-
-**In an Italian Village, a Mayor Walks Off the Wine and Everyone Joins In**\
-`Luciano Fregonese, the mayor of a town in Italy known for Prosecco, started walking to counter the calories he consumed at social obligations. His jaunts have become a sensation.`\
-https://nytimes.com/2024/08/01/world/europe/italy-walking-mayor.html
 
