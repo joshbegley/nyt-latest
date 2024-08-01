@@ -1,3 +1,7 @@
+**Simone Biles soars to second Olympic all-around gold medal**\
+`Brazil's Rebeca Andrade took silver.`\
+https://nytimes.com/athletic/5674700/2024/08/01/gymnastics-all-around-final-simone-biles-olympics-2024/
+
 **A New Republican Group Targets Robert F. Kennedy Jr. as Liberal**\
 `The super PAC’s emergence suggests that Republicans are worried his independent candidacy could hurt former President Donald J. Trump in November.`\
 https://nytimes.com/2024/08/01/us/politics/republicans-target-robert-f-kennedy-jr.html
