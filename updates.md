@@ -1,3 +1,7 @@
+**Jack Flaherty reports to Dodgers with a revamped career and renewed expectations**\
+`Flaherty will make his Dodgers debut on Saturday hoping to show the form that once made him a Cy Young contender.`\
+https://nytimes.com/athletic/5673510/2024/07/31/dodgers-jack-flaherty-rotation/
+
 **Iran’s Options for Retaliation Risk Escalating Middle East Crisis**\
 `The killing of Hamas’s political leader in Tehran was a humiliating security failure for the Iranian government.`\
 https://nytimes.com/2024/07/31/us/politics/iran-retaliation-risk-middle-east.html
