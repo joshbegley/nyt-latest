@@ -1,3 +1,7 @@
+**'It was bad': Clayton Kershaw's struggles seal Dodgers' first full losing month in 6 years**\
+`Kershaw — in his second big-league start since shoulder surgery — failed to get a strikeout for the first time in 423 regular-season starts.`\
+https://nytimes.com/athletic/5673766/2024/08/01/clayton-kershaw-struggles-dodgers/
+
 **Thursday Briefing**\
 `Fears of escalation in the Middle East.`\
 https://nytimes.com/2024/08/01/briefing/middle-east-biden-harris-race.html

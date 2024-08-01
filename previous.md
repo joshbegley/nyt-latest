@@ -1,3 +1,7 @@
+**'It was bad': Clayton Kershaw's struggles seal Dodgers' first full losing month in 6 years**\
+`Kershaw — in his second big-league start since shoulder surgery — failed to get a strikeout for the first time in 423 regular-season starts.`\
+https://nytimes.com/athletic/5673766/2024/08/01/clayton-kershaw-struggles-dodgers/
+
 **Thursday Briefing**\
 `Fears of escalation in the Middle East.`\
 https://nytimes.com/2024/08/01/briefing/middle-east-biden-harris-race.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5671640/2024/08/01/olympic-village/
 **Shopping for Ten Hag: A defensive midfielder to complement Kobbie Mainoo**\
 `Matching with Mainoo is a tricky task, but there are options that can help United in the immediate seasons to come`\
 https://nytimes.com/athletic/5646015/2024/08/01/man-united-midfielder-transfer-ten-hag/
-
-**Donna Vekic wanted to quit tennis in May. She's one win from an Olympic medal**\
-`The Croatian wanted out of tennis. Now she's in the best form of her life — thanks to the power of the reset`\
-https://nytimes.com/athletic/5671489/2024/08/01/donna-vekic-tennis-olympics/
 
