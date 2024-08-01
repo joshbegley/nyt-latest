@@ -1,3 +1,7 @@
+**Inigo Martinez's Barcelona situation is a case study in uncertainty at the club**\
+`He was asked to take a salary cut last year as Barca struggled to register him with La Liga. Now he is in limbo again`\
+https://nytimes.com/athletic/5674283/2024/08/01/barcelona-transfers-inigo-martinez-registration-salary/
+
 **Georgia dismisses Rara Thomas in aftermath of arrest**\
 `Thomas caught 23 passes for 383 yards with one touchdown last season. He missed the final three games because of a foot injury.`\
 https://nytimes.com/athletic/5669883/2024/08/01/georgia-football-rara-thomas/
