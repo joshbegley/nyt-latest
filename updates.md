@@ -1,3 +1,7 @@
+**Chargers training camp, Day 7: Kristian Fulton leads pass-breakup party for defense**\
+`Fulton: "I just want to prove that I know I’m a top corner in this league."`\
+https://nytimes.com/athletic/5673695/2024/07/31/chargers-training-camp-kristian-fulton/
+
 **Trump Remarks on Harris Evoke a Haunting and Unsettling History**\
 `White America has long sought to define racial categories — and who can belong to them.`\
 https://nytimes.com/2024/07/31/us/politics/trump-harris-race.html
