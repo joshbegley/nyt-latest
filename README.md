@@ -1,3 +1,7 @@
+**In a 911 Call, Sonya Massey’s Mother Asked That Police Not Hurt Her**\
+`A day before an officer shot and killed her daughter, Donna Massey told a dispatcher that she was having mental health issues and asked that they not send “combative” police.`\
+https://nytimes.com/2024/08/01/us/sonya-massey-911-calls.html
+
 **McLaren team principal Stella signs multi-year contract extension**\
 `McLaren has announced a multi-year contract extension for Formula One team principal Andrea Stella.`\
 https://nytimes.com/athletic/5674781/2024/08/01/andrea-stella-mclaren-f1-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/01/climate/democratic-vp-candidates-climate.html
 **‘War Game’ Review: It Can’t Happen Here (Right?)**\
 `This nail-biter of a documentary imagines it is Jan. 6, 2025, and armed supporters of the losing candidate are hatching a coup and maybe a civil war. What will the nation’s leaders do?`\
 https://nytimes.com/2024/08/01/movies/war-game-documentary-review.html
-
-**Leading soccer nations deny drone use after claim by Canada coach Priestman**\
-`Priestman has been suspended from soccer for a year for her involvement in the Canada drone scandal.`\
-https://nytimes.com/athletic/5674369/2024/08/01/canada-drones-priestman-womens-soccer/
 
