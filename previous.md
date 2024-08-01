@@ -15,7 +15,7 @@ https://nytimes.com/2024/08/01/climate/democratic-vp-candidates-climate.html
 https://nytimes.com/2024/08/01/movies/war-game-documentary-review.html
 
 **Leading soccer nations deny drone use after claim by Canada coach Priestman**\
-`The French, German and Zambian national women’s football teams have denied using drones to spy on opposition training sessions.`\
+`Priestman has been suspended from soccer for a year for her involvement in the Canada drone scandal.`\
 https://nytimes.com/athletic/5674369/2024/08/01/canada-drones-priestman-womens-soccer/
 
 **Enzo Maresca interview: 'I am 100 per cent sure we are on the right path'**\

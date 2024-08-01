@@ -1,3 +1,19 @@
+**The Bounce: Five notes from Team USA's 2-0 start**\
+`Zach Harper and Shams Charania catch you up on league-wide news.`\
+https://nytimes.com/athletic/5674709/2024/08/01/team-usa-lebron-james-kevin-durant-south-sudan-olympics-vince-carter-nba-the-bounce/
+
+**Sunisa Lee is the reigning Olympic all-around champion.**\
+`Lee earned the chance to defend her title despite a kidney disease that made it unclear whether she would ever compete again.`\
+https://nytimes.com/live/2024/08/01/world/olympics-gymnastics-simone-biles/sunisa-lee-is-the-reigning-olympic-all-around-champion
+
+**Italian Boxer Quits Bout, Sparking Furor Over Gender at Olympics**\
+`The Italian, Angela Carini, stopped fighting only 46 seconds into her bout against Imane Khelif of Algeria.`\
+https://nytimes.com/2024/08/01/world/olympics/boxer-quits-gender-angela-carini-imane-khelif.html
+
+**A Pattern of Lavish Spending at a Leading L.G.B.T.Q. Nonprofit**\
+`GLAAD paid for its chief executive to fly first-class, rent a Cape Cod house and remodel her home office. It may have violated I.R.S. rules.`\
+https://nytimes.com/2024/08/01/business/glaad-ceo-spending.html
+
 **Ismaila Sarr to Crystal Palace: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Ismaila Sarr's move back to England with Crystal Palace`\
 https://nytimes.com/athletic/5650994/2024/08/01/ismaila-sarr-to-crystal-palace-the-athletic-500-transfer-ratings/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5674369/2024/08/01/canada-drones-priestman-womens-s
 **Enzo Maresca interview: 'I am 100 per cent sure we are on the right path'**\
 `The new Chelsea boss on comparisons with Pep Guardiola, what he'll demand from Cole Palmer, and what it would take to get him to sing`\
 https://nytimes.com/athletic/5674021/2024/08/01/chelsea-enzo-maresca-interview/
-
-**Frank Gore to join 49ers' Hall of Fame**\
-`Gore will be inducted on Sept. 8 and honored in a halftime ceremony at the team's "Monday Night Football" opener against the Jets.`\
-https://nytimes.com/athletic/5673682/2024/08/01/frank-gore-49ers-hall-of-fame/
-
-**Whitmer, Buttigieg and the Veeps Who Might Have Been**\
-`There’s only so much trailblazing Kamala Harris can be expected to do.`\
-https://nytimes.com/2024/08/01/opinion/vice-president-whitmer-buttigieg.html
-
-**Who Are the Most Prominent People Released in the Swap?**\
-`The prisoners released on Thursday include a Wall Street Journal reporter, an editor working for Radio Free Europe/Radio Liberty and a former U.S. Marine who had served in Iraq.`\
-https://nytimes.com/2024/08/01/world/europe/russia-prisoner-swap-who-whelan-gershkovich.html
-
-**Schumer Promises Year-End Judicial Push as Courts Gain New Political Importance**\
-`Pushing for an overhaul of the Supreme Court is a new priority as Democrats try to match Trump-era judicial confirmations, the Senate majority leader says.`\
-https://nytimes.com/2024/08/01/us/politics/schumer-supreme-court-justices.html
 

@@ -1,3 +1,7 @@
+**Leading soccer nations deny drone use after claim by Canada coach Priestman**\
+`Priestman has been suspended from soccer for a year for her involvement in the Canada drone scandal.`\
+https://nytimes.com/athletic/5674369/2024/08/01/canada-drones-priestman-womens-soccer/
+
 **Ismaila Sarr to Crystal Palace: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Ismaila Sarr's move back to England with Crystal Palace`\
 https://nytimes.com/athletic/5650994/2024/08/01/ismaila-sarr-to-crystal-palace-the-athletic-500-transfer-ratings/
