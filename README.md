@@ -2,10 +2,6 @@
 `White's jacked-up physique caught fans' attention, but much of his offseason worked revolved around the dozen horses on his farm.`\
 https://nytimes.com/athletic/5672141/2024/08/01/raiders-zamir-white-horses-training-camp/
 
-**'He will be a player' - Nico O'Reilly is latest Man City academy star to impress Pep Guardiola**\
-`Guardiola has already talked up the possibility of him replacing Rodri, generally considered the impossible job around the club`\
-https://nytimes.com/athletic/5672985/2024/08/01/nico-oreilly-man-city-tour-pep-guardiola/
-
 **Meet Anna Karolina Schmiedlova, the surprise tennis package of the Paris Olympics**\
 `The politically outspoken Slovak is guaranteed to play for one of the most unlikely medals at the 2024 Paris Olympics, in any sport`\
 https://nytimes.com/athletic/5672809/2024/08/01/anna-karolina-schmiedlova-tennis-player-profile-olympics/
@@ -34,7 +30,11 @@ https://nytimes.com/2024/08/01/movies/harold-and-the-purple-crayon-review.html
 `In this obvious satire set amid the 1918 influenza, a wealthy, muckraking reporter hires a new chef who disrupts the estate’s hierarchy.`\
 https://nytimes.com/2024/08/01/movies/coup-review.html
 
-**Randy Gradishar's induction gives 'Orange Crush' defense rightful place in Hall of Fame**\
-`Gradishar had to wait 35 years but now gets to represent the iconic defense: "I don't know that there are words to describe it."`\
-https://nytimes.com/athletic/5665763/2024/08/01/randy-gradishar-broncos-hall-of-fame/
+**The Threat of More War**\
+`We examine the contradictions in the Middle East.`\
+https://nytimes.com/2024/08/01/briefing/the-threat-of-more-war.html
+
+**NBC's Olympics coverage enjoying a viewership surge, though there's a caveat**\
+`NBC is getting an Olympic-sized viewership surge, but a new way of reporting is making comparisons to past years apples-to-baguettes.`\
+https://nytimes.com/athletic/5672021/2024/08/01/nbc-olympics-coverage-paris-viewership/
 
