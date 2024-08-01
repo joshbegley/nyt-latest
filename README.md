@@ -1,3 +1,7 @@
+**Why is Team USA struggling in the Olympic gold-medal count? Look to the pool**\
+`Team USA is off to a slow start in the overall Olympic gold-medal count. A less-than-stellar week in the pool is a big part of the reason.`\
+https://nytimes.com/athletic/5674125/2024/08/01/team-usa-gold-medal-count-olympics-paris-swimming/
+
 **Meta’s Lesson in Allaying Wall Street’s A.I. Fears**\
 `The tech giant is doubling down on its huge spending on artificial intelligence — but not at the expense of profits.`\
 https://nytimes.com/2024/08/01/business/dealbook/meta-ai-wall-street.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5672141/2024/08/01/raiders-zamir-white-horses-train
 **'He will be a player' - Nico O'Reilly is latest Man City academy star to impress Pep Guardiola**\
 `Guardiola has already talked up the possibility of him replacing Rodri, generally considered the impossible job around the club`\
 https://nytimes.com/athletic/5672985/2024/08/01/nico-oreilly-man-city-tour-pep-guardiola/
-
-**Meet Anna Karolina Schmiedlova, the surprise tennis package of the Paris Olympics**\
-`The politically outspoken Slovak is guaranteed to play for one of the most unlikely medals at the 2024 Paris Olympics, in any sport`\
-https://nytimes.com/athletic/5672809/2024/08/01/anna-karolina-schmiedlova-tennis-player-profile-olympics/
 
