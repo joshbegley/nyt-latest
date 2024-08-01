@@ -1,3 +1,7 @@
+**Bengals camp (literally) heats up as injuries, young playmakers make headlines**\
+`Scorching heat took its toll on some players Thursday but it didn't stop Andrei Iosivas and Charlie Jones from shining.`\
+https://nytimes.com/athletic/5675660/2024/08/01/bengals-camp-heat-iosivas-charlie-jones/
+
 **The Two Weeks That Changed Kamala Harris’s Vice Presidency**\
 `Two trips Harris took last year set the stage for the ascent that is happening now.`\
 https://nytimes.com/2024/08/01/us/politics/kamala-harris-black-racial-identity.html
