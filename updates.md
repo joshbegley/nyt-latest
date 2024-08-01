@@ -1,3 +1,27 @@
+**To Challenge Trump Directly, Give Him a Platform**\
+`By Zeynep Tufekci`\
+https://nytimes.com/live/2024/07/30/opinion/thepoint/trump-platform-nabj
+
+**The swap is the latest use of hostage diplomacy tactics.**\
+`By Neil MacFarquhar`\
+https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/the-swap-is-the-latest-use-of-hostage-diplomacy-tactics
+
+**Turkey Aims to Cull Its Stray Dogs. Critics Say It’s About Politics.**\
+`Turkey’s new law aimed at moving millions of stray dogs to shelters, and allowing some to be euthanized, has both cultural and political implications.`\
+https://nytimes.com/2024/08/01/world/europe/turkey-stray-dog-law.html
+
+**4 Key Takeaways From The Times’s Reporting on Spending at GLAAD**\
+`The C.E.O.’s luxurious business travel and other spending may have violated the L.G.B.T.Q. group’s policies as well as Internal Revenue Service rules.`\
+https://nytimes.com/2024/08/01/business/glaad-spending-takeaways.html
+
+**Who Was Freed in the Prisoner Swap Between Russia and the West?**\
+`Here’s a list of the 24 prisoners who were exchanged on Thursday and their backgrounds.`\
+https://nytimes.com/2024/08/01/world/europe/russia-prisoner-swap-detainees.html
+
+**Kaylia Nemour of Algeria could win Africa’s first gymnastics gold.**\
+`By Laura Cappelle`\
+https://nytimes.com/live/2024/08/01/world/olympics-gymnastics-simone-biles/kaylia-nemour-of-algeria-could-win-africas-first-gymnastics-gold
+
 **Where Potential Democratic V.P. Candidates Stand on Climate**\
 `Possible contenders to join the Harris ticket include three governors, a senator concerned by extreme heat and drought, and the current Transportation Secretary.`\
 https://nytimes.com/2024/08/01/climate/democratic-vp-candidates-climate.html
