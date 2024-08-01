@@ -1,3 +1,7 @@
+**Aleksei Navalny’s widow says the release of political prisoners is a ‘huge victory.’**\
+`By Neil MacFarquhar`\
+https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/navalny-yulia-nal
+
 **Bengals camp (literally) heats up as injuries, young playmakers make headlines**\
 `Scorching heat took its toll on some players Thursday but it didn't stop Andrei Iosivas and Charlie Jones from shining.`\
 https://nytimes.com/athletic/5675660/2024/08/01/bengals-camp-heat-iosivas-charlie-jones/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/01/us/politics/harris-biden-russia-prisoners-america
 **Air Force Finds Mechanical and Crew Failures in Fatal Osprey Crash Last Year**\
 `An investigation determined that missed warning signals and the “catastrophic failure” of a gearbox led to the crash off the coast of Japan in November.`\
 https://nytimes.com/2024/08/01/us/politics/air-force-osprey-crash-japan.html
-
-**Families of 9/11 Victims React to News of Accused Plotters’ Plea Deal**\
-`While family members differed in their support of the death penalty, many expressed frustration that the case had lingered for so long.`\
-https://nytimes.com/2024/08/01/nyregion/sept-11-families-plea.html
 
