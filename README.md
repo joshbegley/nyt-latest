@@ -1,3 +1,11 @@
+**Charlie Stillitano, football's Mr Fixer and confidante to Ferguson, Mourinho and Ancelotti**\
+`Mention Charlie Stillitano's name to Jose Mourinho, Carlo Ancelotti or Sir Alex Ferguson and they cannot wait to heap praise on him`\
+https://nytimes.com/athletic/5667538/2024/08/01/charlie-stillitano-profile-ferguson-mourinho-ancelotti/
+
+**The numbers game: 124 stats you need to know for fantasy football 2024**\
+`Theo Gremminger goes deep, offering up 124 numbers that managers should know for fantasy football 2024.`\
+https://nytimes.com/athletic/5670017/2024/08/01/124-stats-to-know-fantasy-football-2024/
+
 **Cardboard beds, no curtains, inedible food... welcome to the Olympic village**\
 `Athletes may be the Games' star attractions but they are not treated like royalty in Paris`\
 https://nytimes.com/athletic/5671640/2024/08/01/olympic-village/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/01/sports/olympics-track-field-doping.html
 **In an Italian Village, a Mayor Walks Off the Wine and Everyone Joins In**\
 `Luciano Fregonese, the mayor of a town in Italy known for Prosecco, started walking to counter the calories he consumed at social obligations. His jaunts have become a sensation.`\
 https://nytimes.com/2024/08/01/world/europe/italy-walking-mayor.html
-
-**Olympics Today: Thursday's guide to what to watch in Paris**\
-`Day 6 of the Paris Games is full of stars — from Simone Biles to A&#8217;ja Wilson to Katie Ledecky.`\
-https://nytimes.com/athletic/5671103/2024/08/01/olympics-2024-watch-guide-day-6-gymnastics-swimming/
-
-**This Cowgirl’s Saddles Are Beautiful. The Wait Time Is Six Years.**\
-`Nancy Martiny’s ornate pieces, which sell for $5,000 and up, are meant to be ridden by working cowboys and cowgirls like herself.`\
-https://nytimes.com/2024/08/01/business/nancy-martiny-saddlemaker-horses-idaho.html
 
