@@ -1,3 +1,7 @@
+**Brighton's Gross completes Dortmund move**\
+`Borussia Dortmund have completed the signing of midfielder Pascal Gross from Brighton.`\
+https://nytimes.com/athletic/5669259/2024/08/01/pascal-gross-borussia-dortmund-transfer/
+
 **Liverpool's Elliott praised by Slot after pre-season win vs Arsenal**\
 `Liverpool head coach Arne Slot saluted the creative spark provided by Harvey Elliott after Liverpool beat Arsenal 2-1 in a pre-season friendly in Philadelphia.`\
 https://nytimes.com/athletic/5673915/2024/08/01/liverpool-harvey-elliott-arne-slot/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/01/pageoneplus/quotation-of-the-day-can-you-beat-the
 **Corrections: Aug. 1, 2024**\
 `Corrections that appeared in print on Thursday, Aug. 1, 2024.`\
 https://nytimes.com/2024/08/01/pageoneplus/corrections-aug-1-2024.html
-
-**Manchester United injury blow as Yoro out for three months and Hojlund to miss six weeks**\
-`Manchester United expect Leny Yoro to miss around three months with a foot injury, while Rasmus Hojlund is expected to be out for around six weeks with a hamstring injury.`\
-https://nytimes.com/athletic/5673820/2024/08/01/leny-yoro-injury-manchester-united-hojlund/
 
