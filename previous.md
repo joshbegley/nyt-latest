@@ -1,3 +1,7 @@
+**Arrest Warrant Issued for ‘Power Rangers’ Actor Hector David Rivera**\
+`Mr. Rivera, whose stage name is Hector David Jr., was charged with battery in Idaho after a video showed him pushing an older man who used a walker, the police said.`\
+https://nytimes.com/2024/07/31/arts/television/power-ranger-hector-rivera-charged.html
+
 **Chargers training camp, Day 7: Kristian Fulton leads pass-breakup party for defense**\
 `Fulton: "I just want to prove that I know I’m a top corner in this league."`\
 https://nytimes.com/athletic/5673695/2024/07/31/chargers-training-camp-kristian-fulton/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/world/americas/us-green-beret-venezuela-maduro-ar
 **Jameson Taillon on not getting traded, rumor season and what the Cubs are missing**\
 `Taillon: "Winning games in the big leagues takes everything being very buttoned-up and dialed. Every aspect of every game."`\
 https://nytimes.com/athletic/5673532/2024/07/31/jameson-taillon-cubs-trade-deadline-interview/
-
-**Many a Gymgoer’s Goal**\
-`Rajeswari Rajamani makes her New York Times Crossword debut.`\
-https://nytimes.com/2024/07/31/crosswords/daily-puzzle-2024-08-01.html
 

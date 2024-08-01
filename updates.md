@@ -1,3 +1,7 @@
+**Arrest Warrant Issued for ‘Power Rangers’ Actor Hector David Rivera**\
+`Mr. Rivera, whose stage name is Hector David Jr., was charged with battery in Idaho after a video showed him pushing an older man who used a walker, the police said.`\
+https://nytimes.com/2024/07/31/arts/television/power-ranger-hector-rivera-charged.html
+
 **Chargers training camp, Day 7: Kristian Fulton leads pass-breakup party for defense**\
 `Fulton: "I just want to prove that I know I’m a top corner in this league."`\
 https://nytimes.com/athletic/5673695/2024/07/31/chargers-training-camp-kristian-fulton/
