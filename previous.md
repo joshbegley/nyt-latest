@@ -34,7 +34,7 @@ https://nytimes.com/2024/08/01/us/politics/jd-vance-simone-biles.html
 `Quarterbacks Tyler Van Dyke and Braedyn Locke continue to rotate in a competition for the starting job.`\
 https://nytimes.com/athletic/5675285/2024/08/01/wisconsin-college-football-darrion-dupree-camp/
 
-**Intel, Struggling to Turn Itself Around, Will Cut More Than 15,000 Jobs**\
+**Intel Will Cut Over 15,000 Jobs Amid Struggles to Turn Itself Around**\
 `The Silicon Valley chip maker also reported a net loss and declining revenue in the latest quarter.`\
 https://nytimes.com/2024/08/01/technology/intel-layoffs-quarterly-report.html
 

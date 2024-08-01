@@ -1,3 +1,7 @@
+**Intel Will Cut Over 15,000 Jobs Amid Struggles to Turn Itself Around**\
+`The Silicon Valley chip maker also reported a net loss and declining revenue in the latest quarter.`\
+https://nytimes.com/2024/08/01/technology/intel-layoffs-quarterly-report.html
+
 **Amazon Reports $148 Billion in Second Quarter Sales**\
 `The e-commerce giant’s stock dipped about 5 percent in after-hours trading after lower-than-expected guidance.`\
 https://nytimes.com/2024/08/01/technology/amazon-earnings-q2.html
