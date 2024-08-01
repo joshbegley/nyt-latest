@@ -1,3 +1,15 @@
+**Former MSU coach Mel Tucker sues school, alleging 'unlawful termination'**\
+`The suit claims MSU conducted an "improper, biased, and sham investigation" designed to fire Tucker amid sexual harrassment allegations.`\
+https://nytimes.com/athletic/5674896/2024/08/01/mel-tucker-lawsuit-michigan-state-college-football/
+
+**Pierogi at the Roller Rink**\
+`It’s the Where to Eat: Catskills edition.`\
+https://nytimes.com/2024/08/01/dining/pierogi-at-the-roller-rink.html
+
+**Germany released a prisoner who was particularly crucial to the swap.**\
+`By Christopher F. Schuetze`\
+https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/germany-released-a-prisoner-who-was-particularly-crucial-to-the-swap
+
 **Would Kamala Harris Be the First Gen X President?**\
 `She was born in 1964.`\
 https://nytimes.com/live/2024/07/30/opinion/thepoint/kamala-harris-gen-x
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/01/arts/design/nyc-galleries-august.html
 **Released Reporter Was Caught in Oppression His Parents Had Fled**\
 `Evan Gershkovich was raised in New Jersey by parents who left the Soviet Union to escape antisemitism and a lack of opportunity.`\
 https://nytimes.com/2024/08/01/world/europe/russia-evan-gershkovich-family.html
-
-**Fulham make £20m bid for McTominay**\
-`Fulham have made a £20million bid for Manchester United&#8217;s Scott McTominay.`\
-https://nytimes.com/athletic/5650294/2024/08/01/scott-mctominay-manchester-united-fulham-transfer/
-
-**Douglass wins first gold medal in 200-meter breaststroke**\
-`Douglass won silver as part of the U.S. women’s 4x100-meter freestyle relay over the weekend.`\
-https://nytimes.com/athletic/5674956/2024/08/01/kate-douglass-200-meter-breaststroke-olympics/
-
-**Jubilation Inside The Wall Street Journal After Gershkovich is Freed**\
-`“I cannot even begin to describe the immense happiness and relief that this news brings,” the paper’s editor wrote to the staff.`\
-https://nytimes.com/2024/08/01/business/media/wsj-evan-gershkovich-freed.html
 
