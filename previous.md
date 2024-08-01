@@ -1,3 +1,7 @@
+**What should the Knicks and Julius Randle expect in contract extension negotiations?**\
+`Do the Knicks secure Randle for the long term? Or do they enter the season with his future uncertain?`\
+https://nytimes.com/athletic/5672708/2024/08/01/knicks-julius-randle-contract-negotiations/
+
 **Ten intriguing players who should get a shot to shine after the MLB trade deadline**\
 `There's playing time to be had on teams that are mostly trying to figure out who can be part of their next good squad.`\
 https://nytimes.com/athletic/5669055/2024/08/01/mlb-players-to-watch-post-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5669948/2024/08/01/falcons-running-game-zac-robinso
 **One-man mock for the first round of fantasy football 2024 PPR drafts**\
 `Gary Davenport shares his pick-by-pick choices for the top 12 selections of a 2024 fantasy football PPR league, including two Jets players.`\
 https://nytimes.com/athletic/5672885/2024/08/01/one-man-mock-first-round-fantasy-football-2024-ppr-drafts/
-
-**What's the future of NIL collectives after the House v. NCAA settlement?**\
-`The settlement is meant to implement regulations on third-party NIL payments, specifically eliminating pay-for-play. But will it work?`\
-https://nytimes.com/athletic/5672150/2024/08/01/nil-collectives-ncaa-lawsuit-settlement/
 

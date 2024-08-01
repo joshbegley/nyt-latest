@@ -1,3 +1,7 @@
+**What should the Knicks and Julius Randle expect in contract extension negotiations?**\
+`Do the Knicks secure Randle for the long term? Or do they enter the season with his future uncertain?`\
+https://nytimes.com/athletic/5672708/2024/08/01/knicks-julius-randle-contract-negotiations/
+
 **Ten intriguing players who should get a shot to shine after the MLB trade deadline**\
 `There's playing time to be had on teams that are mostly trying to figure out who can be part of their next good squad.`\
 https://nytimes.com/athletic/5669055/2024/08/01/mlb-players-to-watch-post-trade-deadline/
