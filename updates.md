@@ -1,3 +1,7 @@
+**Harris Has Made Up Ground in Nevada. But the Road Ahead Is Steep.**\
+`Polls show Democrats’ chances have improved in Nevada since Vice President Kamala Harris was elevated. But she could face an uphill battle to win over undecided voters who had tuned out completely.`\
+https://nytimes.com/2024/08/01/us/politics/kamala-harris-nevada-trump.html
+
 **A lawyer tried to visit a Russian held in Brooklyn. He was already gone.**\
 `Vadim Konoshchenok’s attorney went to find him at a federal detention center in Brooklyn, but no one could say where he was.`\
 https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/a-lawyer-tried-to-visit-a-russian-held-in-brooklyn-he-was-already-gone
