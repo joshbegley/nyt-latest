@@ -1,3 +1,7 @@
+**Seven Commanders roster questions to ponder one week into camp**\
+`Will Washington keep three QBs on the final 53-man roster, and how will the WR and CB rooms shake out?`\
+https://nytimes.com/athletic/5675558/2024/08/01/washington-commanders-roster-training-camp/
+
 **Titans' Hopkins to miss 4-6 weeks with knee strain**\
 `Hopkins, 32, played in all 17 games last season for the Titans, catching 75 passes for 1,057 yards and seven touchdowns.`\
 https://nytimes.com/athletic/5675730/2024/08/01/deandre-hopkins-titans-knee-injury/
