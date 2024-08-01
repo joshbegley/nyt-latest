@@ -1,3 +1,19 @@
+**Bookmaker for Ohtani Interpreter Plans to Plead Guilty to Federal Charges**\
+`Mathew Bowyer, a Southern California resident, was under investigation when the authorities discovered that one of his gambling clients was the interpreter for the baseball star Shohei Ohtani.`\
+https://nytimes.com/2024/08/01/us/ohtani-interpreter-bookie-gambling.html
+
+**Punkie Johnson Announces She Is Leaving ‘Saturday Night Live’**\
+`Johnson told a stand-up audience she was leaving “Saturday Night Live” before confirming her departure in an Instagram video the next day.`\
+https://nytimes.com/2024/08/01/arts/television/punkie-johnson-saturday-night-live.html
+
+**Israel Confirms Death of Hamas Commander Amid Funerals for 2 Senior Militants**\
+`The Israeli military said it had killed Muhammad Deif, who it called a planner of the Oct. 7 attack on Israel, which would make him the third Iranian-backed militant leader slain in recent days.`\
+https://nytimes.com/2024/08/01/world/middleeast/israel-hamas-muhammad-deif.html
+
+**The Trolls Don’t Understand Harris’s Life Story**\
+`It reflects her conscious choices, and those of her mother.`\
+https://nytimes.com/live/2024/07/30/opinion/thepoint/harris-life-story-blackness
+
 **Russia Freed Evan Gershkovich in a Major Prisoner Swap**\
 `Also, a Hamas leader was killed by a bomb planted months ago. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/08/01/briefing/russia-freed-evan-gershkovich-lin-manuel-miranda.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/08/01/us/politics/kamala-harris-trump-race.html
 **Katie Ledecky’s 13th Olympic medal is a silver, but one for the record books.**\
 `No female American Olympian has won more medals than Ledecky, who swam the third leg for the Americans’ 4x200 freestyle relay team that finished second behind Australia.`\
 https://nytimes.com/2024/08/01/world/olympics/katie-ledecky-record.html
-
-**Djokovic fears meniscus tear injury has recurred ahead of Olympic tennis semifinal**\
-`Djokovic said he felt a sharp pain in his right knee against Stefanos Tsitsipas, which stayed with him for a few games`\
-https://nytimes.com/athletic/5675453/2024/08/01/djokovic-knee-injury-paris-olympics/
-
-**The ‘Bridge of Spies’ was central to a history of prisoner swaps.**\
-`By Neil MacFarquhar`\
-https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/the-bridge-of-spies-was-central-to-a-history-of-prisoner-swaps
-
-**Migrant Killed in Brooklyn Was Targeted by a Parks Worker, Police Say**\
-`The police charged the worker, who had a seasonal cleaning job, with fatally shooting a Venezuelan migrant at a Brooklyn park where some homeless migrants spend the night.`\
-https://nytimes.com/2024/08/01/nyregion/park-shooting-migrant-nyc.html
-
-**Four top-10 round MLB Draft picks fail to sign, including two second-round picks**\
-`Four top-10 round picks failed to sign, including supplemental second round picks Tyler Bell and Chris Levonas.`\
-https://nytimes.com/athletic/5675458/2024/08/01/top-2024-mlb-draft-picks-failed-to-sign/
 
