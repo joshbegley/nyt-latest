@@ -1,3 +1,7 @@
+**Inigo Martinez's Barcelona situation is a case study in uncertainty at the club**\
+`He was asked to take a salary cut last year as Barca struggled to register him with La Liga. Now he is in limbo again`\
+https://nytimes.com/athletic/5674283/2024/08/01/barcelona-transfers-inigo-martinez-registration-salary/
+
 **Georgia dismisses Rara Thomas in aftermath of arrest**\
 `Thomas caught 23 passes for 383 yards with one touchdown last season. He missed the final three games because of a foot injury.`\
 https://nytimes.com/athletic/5669883/2024/08/01/georgia-football-rara-thomas/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/01/spicy-mapo-tofu-scramble-and-citrusy-sumac-roaste
 **The Wall Street Journal Kept Gershkovich’s Detention Front and Center**\
 `The Journal staged several events in his honor and set up a part of its website to call attention to the plight of the journalist during his lengthy detention in Russia.`\
 https://nytimes.com/2024/08/01/technology/wsj-reporter-evan-gershkovich.html
-
-**Utah Supreme Court Upholds a Block on a Strict Abortion Ban**\
-`Utah cannot enforce its near-total ban on abortion while a challenge to the law proceeds in the courts, the State Supreme Court ruled on Thursday.`\
-https://nytimes.com/2024/08/01/us/utah-abortion-ban.html
 
