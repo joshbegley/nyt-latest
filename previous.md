@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5673358/2024/08/01/jayson-tatum-joel-embiid-team-usa-olympics-bench/
 
 **Bank of England Cuts Interest Rates for First Time Since 2020**\
-`Policymakers lowered rates to 5 percent but warned that future rates cuts would come slowly.`\
+`Central bank policymakers lowered rates to 5 percent amid lower inflation in Britain, but they warned that future rate cuts would come slowly.`\
 https://nytimes.com/2024/08/01/business/bank-of-england-interest-rates.html
 
 **Who is Muhammad Deif?**\

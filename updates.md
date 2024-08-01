@@ -1,3 +1,7 @@
+**Bank of England Cuts Interest Rates for First Time Since 2020**\
+`Central bank policymakers lowered rates to 5 percent amid lower inflation in Britain, but they warned that future rate cuts would come slowly.`\
+https://nytimes.com/2024/08/01/business/bank-of-england-interest-rates.html
+
 **NBA stars Jayson Tatum, Joel Embiid get rare 'humbling' experience on Team USA**\
 `On a roster of full of stars, some stars have to sit every night at the Olympics. It's been a "humbling experience" for many on Team USA.`\
 https://nytimes.com/athletic/5673358/2024/08/01/jayson-tatum-joel-embiid-team-usa-olympics-bench/
