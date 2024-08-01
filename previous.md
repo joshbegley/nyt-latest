@@ -1,3 +1,7 @@
+**What Is the ‘It’ Water Bottle for Back-to-School Shopping?**\
+`The mighty Stanley’s reign appears to be ending, with Owala, Lululemon and Hydro Flask all competing for affection — and cachet — among teens and tweens.`\
+https://nytimes.com/2024/08/01/style/back-to-school-owala-stanley-cup.html
+
 **Meet the Scientist Who Wants to Alter Earth’s Atmosphere**\
 `Critics say even researching the idea is dangerous.`\
 https://nytimes.com/2024/08/01/climate/newsletter-keith-geoengineering.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5675016/2024/08/01/summer-mcintosh-olympics-200-met
 **Until Saturday: Who's leading medal chase in Paris?**\
 `Welcome to Until Saturday, the five-star college football newsletter: Every four years, we see our schools represented in the Olympics.`\
 https://nytimes.com/athletic/5674266/2024/08/01/olympic-medals-paris-ncaa-until-saturday/
-
-**A New Republican Group Targets Robert F. Kennedy Jr. as Liberal**\
-`The super PAC’s emergence suggests that Republicans are worried his independent candidacy could hurt former President Donald J. Trump in November.`\
-https://nytimes.com/2024/08/01/us/politics/republicans-target-robert-f-kennedy-jr.html
 

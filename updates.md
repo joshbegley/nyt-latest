@@ -1,3 +1,7 @@
+**What Is the ‘It’ Water Bottle for Back-to-School Shopping?**\
+`The mighty Stanley’s reign appears to be ending, with Owala, Lululemon and Hydro Flask all competing for affection — and cachet — among teens and tweens.`\
+https://nytimes.com/2024/08/01/style/back-to-school-owala-stanley-cup.html
+
 **Meet the Scientist Who Wants to Alter Earth’s Atmosphere**\
 `Critics say even researching the idea is dangerous.`\
 https://nytimes.com/2024/08/01/climate/newsletter-keith-geoengineering.html
