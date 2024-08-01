@@ -1,3 +1,7 @@
+**The Windup: MLB's three biggest storylines up next**\
+`Today's baseball news.`\
+https://nytimes.com/athletic/5674678/2024/08/01/mlb-news-the-windup/
+
 **First Famine Declared in War-Torn Darfur Region of Sudan**\
 `Experts who monitor global hunger rarely make an official declaration of famine, but they just sounded the alarm for more than half a million people who have fled the fighting in Sudan’s civil war.`\
 https://nytimes.com/2024/08/01/world/africa/famine-declared-darfur-sudan-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5674529/2024/08/01/gordon-hayward-retirement-nba/
 **Here are the latest developments.**\
 `By Anton Troianovski, Mark Mazzetti and Ben Hubbard`\
 https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/evan-gershkovich-prisoner-exchange
-
-**Live Updates: Russia Releases Evan Gershkovich in Sweeping Prisoner Swap, Turkish Officials Say**\
-`The Wall Street Journal reporter and others were being freed in a prisoner swap in Turkey in the most far-reaching exchange between Russia and the West in decades.`\
-https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us
 
