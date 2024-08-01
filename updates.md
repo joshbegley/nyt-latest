@@ -1,3 +1,7 @@
+**Jacob Trouba Q&A: On trade rumors, upcoming season and his first art gallery**\
+`Trouba spoke with The Athletic about the creation of the gallery, the Rangers' Eastern Conference final loss to Florida and more.`\
+https://nytimes.com/athletic/5673498/2024/08/01/rangers-jacob-trouba-nhl-trade/
+
 **Bueckers signs NIL deal with new Unrivaled league**\
 `Bueckers, who is entering her fifth season at UConn, is expected to join an Unrivaled team after her first WNBA season.`\
 https://nytimes.com/athletic/5674203/2024/08/01/paige-bueckers-unrivaled-nil-deal/
