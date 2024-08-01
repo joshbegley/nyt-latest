@@ -8,7 +8,7 @@ https://nytimes.com/2024/08/01/movies/netflix-expiring-august.html
 
 **The Joyful Release of Evan Gershkovich Came at a High Price**\
 `Putin exploited the detention of innocents to win back real criminals.`\
-https://nytimes.com/live/2024/07/30/opinion/thepoint/the-joyful-release-of-evan-gershkovich-came-at-a-high-price
+https://nytimes.com/2024/07/30/opinion/evan-gershkovich-release.html
 
 **Source: Giants to call up Triple-A masher Jerar Encarnación in roster makeover**\
 `Encarnación began his season with Oaxaca in the Mexican League and didn't stop raking after joining the Giants on a minor-league contract.`\
