@@ -1,3 +1,7 @@
+**When Simone Biles needed it most, the GOAT came out and cemented a legend**\
+`Like all the GOATs, Simone Biles saved her best for last Thursday at the Olympics.`\
+https://nytimes.com/athletic/5674406/2024/08/01/simone-biles-olympics-all-around-gold-goat/
+
 **Trump Escalates Race Attacks on Harris, Worrying Some Republicans**\
 `A day after telling Black journalists that Vice President Kamala Harris had recently decided to become “a Black person,” Mr. Trump shared a photo of Ms. Harris in traditional Indian clothing.`\
 https://nytimes.com/2024/08/01/us/politics/trump-kamala-harris-race.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/01/us/politics/american-bar-association-democracy.ht
 **MrBeast Acknowledges ‘Inappropriate Language’ in Earlier Videos**\
 `A representative for the popular YouTuber said that he was “trying to be funny” and made “bad jokes” in older videos of him that have resurfaced.`\
 https://nytimes.com/2024/08/01/us/mr-beast-youtube-inappropriate-language.html
-
-**Head of an Elite New York School Resigns After Turmoil Over Gaza War**\
-`Joe Algrant will step down as the head of Ethical Culture Fieldston School following a year marked by infighting among parents, students, faculty and alumni.`\
-https://nytimes.com/2024/08/01/nyregion/ethical-culture-fieldston-school-resignation.html
 
