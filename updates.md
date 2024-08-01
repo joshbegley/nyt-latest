@@ -1,3 +1,19 @@
+**Bookmaker for Ohtani Interpreter Plans to Plead Guilty to Federal Charges**\
+`Mathew Bowyer, a Southern California resident, was under investigation when the authorities discovered that one of his gambling clients was the interpreter for the baseball star Shohei Ohtani.`\
+https://nytimes.com/2024/08/01/us/ohtani-interpreter-bookie-gambling.html
+
+**Punkie Johnson Announces She Is Leaving ‘Saturday Night Live’**\
+`Johnson told a stand-up audience she was leaving “Saturday Night Live” before confirming her departure in an Instagram video the next day.`\
+https://nytimes.com/2024/08/01/arts/television/punkie-johnson-saturday-night-live.html
+
+**Israel Confirms Death of Hamas Commander Amid Funerals for 2 Senior Militants**\
+`The Israeli military said it had killed Muhammad Deif, who it called a planner of the Oct. 7 attack on Israel, which would make him the third Iranian-backed militant leader slain in recent days.`\
+https://nytimes.com/2024/08/01/world/middleeast/israel-hamas-muhammad-deif.html
+
+**The Trolls Don’t Understand Harris’s Life Story**\
+`It reflects her conscious choices, and those of her mother.`\
+https://nytimes.com/live/2024/07/30/opinion/thepoint/harris-life-story-blackness
+
 **Migrant Killed in Brooklyn Was Targeted by a Parks Worker, Police Say**\
 `The police charged the worker, who had a seasonal cleaning job, with fatally shooting a Venezuelan migrant at a Brooklyn park where some homeless migrants spend the night.`\
 https://nytimes.com/2024/08/01/nyregion/park-shooting-migrant-nyc.html

@@ -1,3 +1,15 @@
+**Plea Deal in 9/11 Case Is Announced in War Court**\
+`The accused mastermind of the plot, Khalid Shaikh Mohammed, appeared at a session as the agreement was disclosed. A sentencing hearing could begin next year.`\
+https://nytimes.com/2024/08/01/us/politics/sept11-plea-agreement.html
+
+**Greg Joseph gets a leg up on Anders Carlson in Packers' kicking competition**\
+`The seventh-year veteran has made 29 of 31 kicks during open practice so far during camp after spending the last three season in Minnesota.`\
+https://nytimes.com/athletic/5675228/2024/08/01/greg-joseph-anders-carlson-packers-kickers/
+
+**Harris Campaign Looks Poised to Beat Trump’s July Cash Haul**\
+`The Trump campaign reported raising $139 million along with allied groups. The vice president’s campaign previously reported $200 million raised in the seven days after President Biden dropped out.`\
+https://nytimes.com/2024/08/01/us/politics/harris-trump-fundraising-july.html
+
 **Bookmaker for Ohtani Interpreter Plans to Plead Guilty to Federal Charges**\
 `Mathew Bowyer, a Southern California resident, was under investigation when the authorities discovered that one of his gambling clients was the interpreter for the baseball star Shohei Ohtani.`\
 https://nytimes.com/2024/08/01/us/ohtani-interpreter-bookie-gambling.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5675511/2024/08/01/angels-mike-trout-second-meniscu
 **How Simone Biles Won the Olympic Women’s Gymnastics All-Around Gold**\
 `The most difficult vault in the world and an explosive floor routine brought Biles her second all-around win, while her teammate Sunisa Lee picked up the bronze and Rebeca Andrade of Brazil took silver.`\
 https://nytimes.com/interactive/2024/08/01/sports/olympics/biles-lee-andrade-olympic-gymnastics.html
-
-**Newcastle agree deal to sign Osula**\
-`Newcastle United have agreed a deal to sign William Osula from Sheffield United.`\
-https://nytimes.com/athletic/5674909/2024/08/01/newcastle-william-osula-transfer/
-
-**As Trump Attacks Her Identity, Harris Responds on Her Own Terms**\
-`Vice President Kamala Harris condemned former President Donald J. Trump’s remarks. But she also made it clear she would not engage in a debate with a white man critiquing her Blackness.`\
-https://nytimes.com/2024/08/01/us/politics/kamala-harris-trump-race.html
-
-**Katie Ledecky’s 13th Olympic medal is a silver, but one for the record books.**\
-`No female American Olympian has won more medals than Ledecky, who swam the third leg for the Americans’ 4x200 freestyle relay team that finished second behind Australia.`\
-https://nytimes.com/2024/08/01/world/olympics/katie-ledecky-record.html
 
