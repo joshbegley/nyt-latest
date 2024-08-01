@@ -1,3 +1,7 @@
+**Vance’s Links to the Project 2025 Leader Complicate Trump’s Attempts at Distance**\
+`Donald Trump disavowed the set of conservative plans after it became a popular target for Democrats, but his running mate, JD Vance, wrote a foreword for a forthcoming book by its principal architect.`\
+https://nytimes.com/2024/07/31/us/politics/project-2025-vance-trump.html
+
 **Abraham Hamadeh Wins G.O.P. House Primary in Arizona**\
 `In an unusual twist, Donald J. Trump had endorsed both Mr. Hamadeh and his rival, Blake Masters, effectively declaring that he had no preference in the primary race.`\
 https://nytimes.com/2024/07/31/us/politics/abraham-hamedah-blake-masters.html
@@ -10,7 +14,7 @@ https://nytimes.com/2024/07/31/style/nbc-olympics-influencers.html
 `Katie Ledecky won gold in the 1,500 freestyle final, bringing her medal count up to 12, matching the record for U.S. women across Olympic sports.`\
 https://nytimes.com/interactive/2024/07/31/sports/olympics/katie-ledecky-us-olympics-swimming.html
 
-**Canada advances despite spying scandal: 'They take six points and we got nine'**\
+**Canada soccer advances despite spying scandal: 'They take six points and we got nine'**\
 `Canada won all three games to advance to the 2024 Olympic quarterfinals.`\
 https://nytimes.com/athletic/5673311/2024/07/31/canada-womens-soccer-advance-olympics/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/world/middleeast/assassination-of-a-top-hamas-lea
 **Braves upbeat after delivering a homer-filled win in Jorge Soler's return**\
 `Alex Anthopoulos explained why it was important to send a signal to the clubhouse with some big deadline moves. `\
 https://nytimes.com/athletic/5673247/2024/07/31/braves-jorge-soler-matt-olson/
-
-**Tyler Guyton to Tyron Billy-Johnson: 10 Cowboys who have stood out in training camp**\
-`Three pass catchers have looked impressive — so has Dallas' first-round pick. Eyes remain on the progress of Trey Lance and Mazi Smith. `\
-https://nytimes.com/athletic/5673115/2024/07/31/dallas-cowboys-standouts-bland-diggs-tolbert-guyton/
 
