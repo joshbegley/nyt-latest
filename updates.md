@@ -1,3 +1,7 @@
+**Wheatley to leave Red Bull and join Audi F1**\
+`Red Bull has announced that Jonathan Wheatley, its Formula One sporting director, will leave after 18 years to become Audi’s team principal.`\
+https://nytimes.com/athletic/5674225/2024/08/01/jonathan-wheatley-red-bull-audi-f1/
+
 **South Korea Offers Aid to Flood-Stricken North Korea**\
 `If accepted, the help could lead to the first official dialogue in years between the two Koreas, which have recently been sending each other trash balloons and propaganda.`\
 https://nytimes.com/2024/08/01/world/asia/south-korea-north-korea-flood-aid.html
