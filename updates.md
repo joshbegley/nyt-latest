@@ -1,3 +1,23 @@
+**A New Republican Group Targets Robert F. Kennedy Jr. as Liberal**\
+`The super PAC’s emergence suggests that Republicans are worried his independent candidacy could hurt former President Donald J. Trump in November.`\
+https://nytimes.com/2024/08/01/us/politics/republicans-target-robert-f-kennedy-jr.html
+
+**Biden’s Title IX Rule Goes Into Effect in 24 States as Legal Challenges Continue**\
+`The regulations, which broaden sex discrimination to include gender identity and sexual orientation, remain blocked by lawsuits across much of the country.`\
+https://nytimes.com/2024/08/01/us/politics/biden-title-ix-gender-sex-discrimination.html
+
+**The Dangerous Game That Iran Is Playing**\
+`President Biden and his successor may face the most fateful decision of their presidencies over Iran.`\
+https://nytimes.com/2024/08/01/opinion/iran-israel-war.html
+
+**Simone Biles soars to second Olympic all-around gold medal**\
+`Brazil's Rebeca Andrade took bronze.`\
+https://nytimes.com/athletic/5674700/2024/08/01/gymnastics-all-around-final-simone-biles-olympics-2024/
+
+**Two Russians released by Slovenia had acted as undercover spies.**\
+`By Andrew Higgins`\
+https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/russia-prisoner-exchange-slovenia
+
 **Harris Has Made Up Ground in Nevada. But the Road Ahead Is Steep.**\
 `Polls show Democrats’ chances have improved in Nevada since Vice President Kamala Harris was elevated. But she could face an uphill battle to win over undecided voters who had tuned out completely.`\
 https://nytimes.com/2024/08/01/us/politics/kamala-harris-nevada-trump.html
