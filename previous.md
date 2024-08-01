@@ -1,3 +1,11 @@
+**Don Lemon Sues Elon Musk Over Canceled X Deal**\
+`The former CNN reporter said in a lawsuit that X had refused to pay him after a testy interview with its billionaire owner.`\
+https://nytimes.com/2024/08/01/technology/don-lemon-elon-musk-lawsuit.html
+
+**Olympic spying is just the latest example of Canada Soccer failing its players**\
+`Canada has a long list of shortcomings with putting players first`\
+https://nytimes.com/athletic/5673725/2024/08/01/canada-soccer-spying-olympics-world-cup/
+
 **Several Senate Republicans criticize the strategy, but not the substance, of Trump’s comments on Harris.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/08/01/us/trump-harris-election-news/several-senate-republicans-criticize-the-strategy-but-not-the-substance-of-trumps-comments-on-harris
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5674332/2024/08/01/mets-trade-deadline-scouts-execu
 **Bucs' Tristan Wirfs becomes highest-paid OL in NFL history with new deal: Sources**\
 `Wirfs, 25, is a three-time Pro Bowler, 2021 first-team All-Pro and 2022 second-team All-Pro tackle.`\
 https://nytimes.com/athletic/5674352/2024/08/01/tristan-wirfs-buccaneers-contract/
-
-**Submit questions for Matt Gelb's Phillies mailbag**\
-`The Phillies enter August with a 6 1/2-game lead over the Braves in the division, but they've lost 11 of their last 15. What's on your mind?`\
-https://nytimes.com/athletic/5674371/2024/08/01/phillies-questions-submit/
-
-**Judge John Hodgman on the Right Way to Clean a Mouse Trap**\
-`The dishwasher beckons — but should you answer its call?`\
-https://nytimes.com/2024/08/01/magazine/judge-john-hodgman-on-the-right-way-to-clean-a-mouse-trap.html
 

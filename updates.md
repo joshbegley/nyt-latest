@@ -1,3 +1,11 @@
+**Don Lemon Sues Elon Musk Over Canceled X Deal**\
+`The former CNN reporter said in a lawsuit that X had refused to pay him after a testy interview with its billionaire owner.`\
+https://nytimes.com/2024/08/01/technology/don-lemon-elon-musk-lawsuit.html
+
+**Olympic spying is just the latest example of Canada Soccer failing its players**\
+`Canada has a long list of shortcomings with putting players first`\
+https://nytimes.com/athletic/5673725/2024/08/01/canada-soccer-spying-olympics-world-cup/
+
 **Several Senate Republicans criticize the strategy, but not the substance, of Trump’s comments on Harris.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/08/01/us/trump-harris-election-news/several-senate-republicans-criticize-the-strategy-but-not-the-substance-of-trumps-comments-on-harris
