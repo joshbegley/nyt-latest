@@ -1,3 +1,7 @@
+**Vance attacks Harris as a ‘phony’ who ‘grew up in Canada.’**\
+`Hours after Donald Trump questioned Kamala Harris’s racial identity, his running mate, Senator JD Vance, mocked her for having once lived in Canada.`\
+https://nytimes.com/live/2024/07/31/us/harris-trump-election/vance-harris-canada
+
 **Rafael Devers delivers while trade additions play key roles in Red Sox walk-off win**\
 `The Red Sox got contributions from their newest acquisition as Rafael Devers helped orchestrate a walk-off win on a hot Boston day.`\
 https://nytimes.com/athletic/5673593/2024/07/31/red-sox-walk-off-mariners-rafael-devers/
