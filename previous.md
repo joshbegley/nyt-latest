@@ -1,3 +1,7 @@
+**Harris Responds to Trump’s Comments About Her Identity: ‘Divisiveness and Disrespect’**\
+`The vice president’s calibrated rebuttal was perhaps an early indication of how she will respond to racist and crude attacks from Donald Trump.`\
+https://nytimes.com/2024/07/31/us/politics/kamala-harris-donald-trump-black-voters.html
+
 **Rafael Montero's departure from Astros delivers an end to Jim Crane's messy 2022 winter**\
 `Montero was the second high-salaried player let go by the Astros this summer.`\
 https://nytimes.com/athletic/5673404/2024/07/31/astros-rafael-montero-dfa-jim-crane-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/us/politics/border-arrests-crossings-july.html
 **When It Comes to Trump, Harris Tries a Sunnier Tone**\
 `The vice president is keen to lead her party past the Trump-related burnout of years past and strike an ebullient tone.`\
 https://nytimes.com/2024/07/31/us/politics/kamala-harris-trump-democrats.html
-
-**Jack Jones, Daniel Carlson and the Raiders' (secret?) plans for the new kickoff rules**\
-`Jones has been practicing kickoffs at Raiders training camp, but apparently special teams coach Tom McMahon hasn't seen it. (Wink.)`\
-https://nytimes.com/athletic/5673224/2024/07/31/raiders-kickoff-rules-jack-jones-daniel-carlson/
 
