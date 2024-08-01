@@ -1,3 +1,7 @@
+**With Hostage Swap, Biden Scores a Win as His Term Nears Its End**\
+`The prisoner exchange offered a measure of validation for President Biden soon after he abandoned his bid for re-election.`\
+https://nytimes.com/2024/08/01/us/politics/biden-hostage-swap.html
+
 **How 2024 Became a Crypto Election**\
 `Will libertarian derp get a government bailout?`\
 https://nytimes.com/2024/08/01/opinion/crypto-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/01/nyregion/ethical-culture-fieldston-school-resigna
 **Kane Wommack's sweatsuit and a new-look defense: Alabama camp notes**\
 `Alabama defenders are acclimating to new defensive coordinator Kane Wommack's scheme. Who's standing out so far?`\
 https://nytimes.com/athletic/5675529/2024/08/01/alabama-football-training-camp-update-defense/
-
-**How an Olympic boxing dispute embroiled arguments about gender in sport**\
-`The contentious topic of gender in sport has made its way into a debate about how boxing is run at the Olympics, turning a murky administrative fight into the latest stage for combative arguments about how women should be allowed to compete.`\
-https://nytimes.com/athletic/5675415/2024/08/01/olympic-womens-boxing-dispute-imane-khelif/
 
