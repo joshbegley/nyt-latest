@@ -1,3 +1,19 @@
+**Intel, Struggling to Turn Itself Around, Will Cut More Than 15,000 Jobs**\
+`The Silicon Valley chip maker also reported a net loss and declining revenue in the latest quarter.`\
+https://nytimes.com/2024/08/01/technology/intel-struggling-to-turn-itself-around-will-cut-more-than-15000-jobs.html
+
+**Trent Williams and Brandon Aiyuk have all the leverage, 49ers will have to bend**\
+`If 49ers management hoped that nobody would notice the absences of Williams and Aiyuk, well, the opposite has happened. It's glaring.`\
+https://nytimes.com/athletic/5673755/2024/08/01/trent-williams-brandon-aiyuk-49ers/
+
+**Major Inmate Swap Frees Dissidents and U.S. Journalists From Russian Prisons**\
+`The Wall Street Journal reporter Evan Gershkovich was among 24 people released in a seven-nation, painstakingly negotiated deal that President Biden hailed as a triumph of diplomacy.`\
+https://nytimes.com/2024/08/01/world/europe/russia-gershkovich-prisoner-swap.html
+
+**For Suni Lee, a triumphant Olympic medal caps an improbable comeback**\
+`Suni Lee almost wasn't even able to try for these Olympics. Now, she's once again on the individual all-around podium.`\
+https://nytimes.com/athletic/5675306/2024/08/01/suni-lee-bronze-all-around-olympics-medal/
+
 **Trump Elevates False, Fringe Attacks on Harris to Center of His Campaign**\
 `Rivals and critics have for years accused Kamala Harris of shifting her personal identity for political advantage, with those attacks escalating dramatically online since she became the Democratic standard-bearer.`\
 https://nytimes.com/2024/08/01/us/politics/trump-harris-race.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5675224/2024/08/01/adp-stock-watch-risers-fallers-f
 **‘Cowboy Cartel’ Tells a Galloping Story**\
 `With a made-for-TV plot, this documentary series explores a ploy by Mexican drug cartels to launder money through the world of horseracing.`\
 https://nytimes.com/2024/08/01/arts/television/cowboy-cartel-apple-tv-plus.html
-
-**Opportunities for Tyrell Shavers, Damar Hamlin open up at training camp**\
-`Plus, Matt Milano is looking closer to his pre-injury form.`\
-https://nytimes.com/athletic/5675120/2024/08/01/buffalo-bills-camp-tyrell-shavers-matt-milano/
-
-**Former MSU coach Mel Tucker sues school, alleging 'unlawful termination'**\
-`The suit claims MSU conducted an "improper, biased, and sham investigation" designed to fire Tucker amid sexual harrassment allegations.`\
-https://nytimes.com/athletic/5674896/2024/08/01/mel-tucker-lawsuit-michigan-state-college-football/
-
-**'The one at the same level as us': Nadal, Gauff and Djokovic on Andy Murray**\
-`Andy Murray's impact on tennis went way beyond the court - 27 players, coaches, and his brother explain what he meant to the sport`\
-https://nytimes.com/athletic/5586730/2024/08/01/andy-murray-tennis-retirement-player-tributes-djokovic-nadal-gauff/
-
-**Pierogi at the Roller Rink**\
-`It’s the Where to Eat: Catskills edition.`\
-https://nytimes.com/2024/08/01/dining/pierogi-at-the-roller-rink.html
 
