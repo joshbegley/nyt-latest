@@ -1,3 +1,7 @@
+**Trump Remarks on Harris Evoke a Haunting and Unsettling History**\
+`White America has long sought to define racial categories — and who can belong to them.`\
+https://nytimes.com/2024/07/31/us/politics/trump-harris-race.html
+
 **Vance attacks Harris as a ‘phony’ who ‘grew up in Canada.’**\
 `Hours after Donald Trump questioned Kamala Harris’s racial identity, his running mate, Senator JD Vance, mocked her for having once lived in Canada.`\
 https://nytimes.com/live/2024/07/31/us/harris-trump-election/vance-harris-canada
