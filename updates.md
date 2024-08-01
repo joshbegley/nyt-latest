@@ -1,3 +1,7 @@
+**Aleksei Navalny’s widow says the release of political prisoners is a ‘huge victory.’**\
+`By Neil MacFarquhar`\
+https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/navalny-yulia-nal
+
 **Bengals camp (literally) heats up as injuries, young playmakers make headlines**\
 `Scorching heat took its toll on some players Thursday but it didn't stop Andrei Iosivas and Charlie Jones from shining.`\
 https://nytimes.com/athletic/5675660/2024/08/01/bengals-camp-heat-iosivas-charlie-jones/
