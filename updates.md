@@ -1,3 +1,7 @@
+**Word of the Day: satirist**\
+`This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/01/learning/word-of-the-day-satirist.html
+
 **Live Updates: Iran Holds Funeral for Assassinated Senior Hamas Leader**\
 `The country’s supreme leader, Ayatollah Ali Khamenei, led the funeral prayers for Ismail Haniyeh, whose death has amplified fears of a wider regional war.`\
 https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza

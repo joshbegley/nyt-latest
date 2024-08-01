@@ -1,3 +1,7 @@
+**Word of the Day: satirist**\
+`This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/01/learning/word-of-the-day-satirist.html
+
 **The Gaza War Has Never Been Confined to Gaza**\
 `With the assassination of a Hamas leader in Tehran, regional war looms ever closer.`\
 https://nytimes.com/2024/08/01/opinion/gaza-hamas-war-israel-palestinians.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5652888/2024/08/01/myles-peart-harris-brentford/
 **Spurs want an energetic No 8 - but it may be time to widen the search**\
 `Having long admired Conor Gallagher and Jacob Ramsey, a move for either now looks less likely - can they fill the void?`\
 https://nytimes.com/athletic/5665327/2024/08/01/tottenham-transfers-midfield-gallagher-ramsey/
-
-**Why Chelsea's goalkeepers will be crucial to Enzo Maresca's system working**\
-`Enzo Maresca's system places particular demands on goalkeepers, which makes them crucial to any Chelsea success`\
-https://nytimes.com/athletic/5671414/2024/08/01/chelsea-enzo-maresca-goalkeepers-tactics/
 
