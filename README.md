@@ -11,7 +11,7 @@ https://nytimes.com/interactive/2024/08/01/opinion/harris-2024-focus-group.html
 https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza/here-is-the-latest-on-the-ismail-haniyeh-assassination
 
 **Live Updates: Iran Holds Funeral for Assassinated Senior Hamas Leader**\
-`The country’s supreme leader, Ayatollah Ali Khamenei, will lead the funeral prayers for Ismail Haniyeh, whose death has amplified fears of a wider regional war.`\
+`The country’s supreme leader, Ayatollah Ali Khamenei, led the funeral prayers for Ismail Haniyeh, whose death has amplified fears of a wider regional war.`\
 https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza
 
 **'It was bad': Clayton Kershaw's struggles seal Dodgers' first full losing month in 6 years**\
