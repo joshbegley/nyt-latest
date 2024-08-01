@@ -1,3 +1,7 @@
+**Bomb Smuggled Into Tehran Guesthouse Months Ago Killed Hamas Leader**\
+`An explosive device hidden in a heavily guarded complex where Ismail Haniyeh was known to stay in Iran was what killed him, according to a Times investigation.`\
+https://nytimes.com/2024/08/01/world/middleeast/how-hamas-leader-haniyeh-killed-iran-bomb.html
+
 **John Dickerson and Maurice DuBois Named Anchors of ‘CBS Evening News’**\
 `The pair are part of a broader shake-up at the show, which includes the addition of Lonnie Quinn as a regular weather anchor.`\
 https://nytimes.com/2024/08/01/business/media/john-dickerson-maurice-dubois-cbs-evening-news.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/01/world/asia/south-korea-north-korea-flood-aid.html
 **U.K. Stabbing Suspect Is Named as Judge Lifts Reporting Restrictions**\
 `A judge allowed the naming of the 17-year-old charged with three counts of murder and 10 of attempted murder, lifting Britain’s reporting restrictions to help counter misinformation, he said.`\
 https://nytimes.com/2024/08/01/world/europe/southport-stabbings-suspect-axel-rudakubana.html
-
-**If D.O.T. Gets Its Way, Families Will Sit Together on Flights for Free**\
-`A new federal policy would require airlines to seat families together on flights, without incurring any extra fees.`\
-https://nytimes.com/2024/08/01/travel/transportation-department-family-seating-rule.html
 
