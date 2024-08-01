@@ -1,3 +1,15 @@
+**Meta’s Lesson in Allaying Wall Street’s A.I. Fears**\
+`The tech giant is doubling down on its huge spending on artificial intelligence — but not at the expense of profits.`\
+https://nytimes.com/2024/08/01/business/dealbook/meta-ai-wall-street.html
+
+**Iheanacho joins Sevilla on free transfer**\
+`Sevilla have confirmed the signing of Kelechi Iheanacho on a free transfer.`\
+https://nytimes.com/athletic/5674139/2024/08/01/kelechi-iheanacho-joins-sevilla/
+
+**The Athletic FC: Introducing U.S. soccer's Mr Fixer**\
+`Today we meet a man who is known by some of the most powerful figures in the game as Mr Fixer.`\
+https://nytimes.com/athletic/5674051/2024/08/01/athletic-newsletter-stillitano-ten-hag/
+
 **With Strife at Home, Security Concerns Grow for Israeli Olympians in Paris**\
 `Concerns for the Israeli team — which has been shrouded in protection at every Games since 1972 — have substantially increased since the Oct. 7 terrorist attacks and the war in Gaza.`\
 https://nytimes.com/2024/08/01/world/middleeast/olympics-paris-israel-security.html

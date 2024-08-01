@@ -1,3 +1,15 @@
+**Meta’s Lesson in Allaying Wall Street’s A.I. Fears**\
+`The tech giant is doubling down on its huge spending on artificial intelligence — but not at the expense of profits.`\
+https://nytimes.com/2024/08/01/business/dealbook/meta-ai-wall-street.html
+
+**Iheanacho joins Sevilla on free transfer**\
+`Sevilla have confirmed the signing of Kelechi Iheanacho on a free transfer.`\
+https://nytimes.com/athletic/5674139/2024/08/01/kelechi-iheanacho-joins-sevilla/
+
+**The Athletic FC: Introducing U.S. soccer's Mr Fixer**\
+`Today we meet a man who is known by some of the most powerful figures in the game as Mr Fixer.`\
+https://nytimes.com/athletic/5674051/2024/08/01/athletic-newsletter-stillitano-ten-hag/
+
 **With Strife at Home, Security Concerns Grow for Israeli Olympians in Paris**\
 `Concerns for the Israeli team — which has been shrouded in protection at every Games since 1972 — have substantially increased since the Oct. 7 terrorist attacks and the war in Gaza.`\
 https://nytimes.com/2024/08/01/world/middleeast/olympics-paris-israel-security.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5672985/2024/08/01/nico-oreilly-man-city-tour-pep-g
 **Meet Anna Karolina Schmiedlova, the surprise tennis package of the Paris Olympics**\
 `The politically outspoken Slovak is guaranteed to play for one of the most unlikely medals at the 2024 Paris Olympics, in any sport`\
 https://nytimes.com/athletic/5672809/2024/08/01/anna-karolina-schmiedlova-tennis-player-profile-olympics/
-
-**‘Rob Peace’ Review: Risking the Future to Remedy the Past**\
-`The actor Chiwetel Ejiofor directs a cohesive ensemble — featuring Mary J. Blige, Michael Kelly, Mare Winningham, Camila Cabello and Jay Will — in a heart-wrenching tale based on a true story.`\
-https://nytimes.com/2024/08/01/movies/rob-peace-review.html
-
-**‘Sebastian’ Review: Sex Speaks Louder Than Words**\
-`For inspiration, a writer moonlights as an escort in this drama from Mikko Makela.`\
-https://nytimes.com/2024/08/01/movies/sebastian-review.html
-
-**‘Peak Season’ Review: Continental Divides**\
-`In this modest second feature, a disillusioned business-school graduate, taking a breather in high-altitude Wyoming, meets a rugged fly-fishing instructor.`\
-https://nytimes.com/2024/08/01/movies/peak-season-review.html
 
