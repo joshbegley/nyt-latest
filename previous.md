@@ -1,3 +1,23 @@
+**Meet the Scientist Who Wants to Alter Earth’s Atmosphere**\
+`Critics say even researching the idea is dangerous.`\
+https://nytimes.com/2024/08/01/climate/newsletter-keith-geoengineering.html
+
+**Turkey Revels in the Role It Played in Prisoner Swap**\
+`Turkey has frustrated its NATO allies by often refusing to get tough with Russia, but its good relations with Moscow may have helped it participate in the exchange.`\
+https://nytimes.com/2024/08/01/world/europe/turkey-prisoner-swap.html
+
+**Hezbollah leader threatens retaliation against Israel, saying conflict is in a ‘new phase.’**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza/hezbollah-leader-threatens-retaliation-against-israel-saying-conflict-is-in-a-new-phase
+
+**Senate Rejects Bipartisan Tax Deal**\
+`The legislation would have restored prized tax breaks for businesses and expanded the child tax credit. It had passed the House with broad bipartisan support.`\
+https://nytimes.com/2024/08/01/us/politics/senate-tax-bill.html
+
+**Craig Shakespeare: Former Leicester manager dies aged 60**\
+`Former Leicester City manager Craig Shakespeare has passed away at the age of 60.`\
+https://nytimes.com/athletic/5675090/2024/08/01/craig-shakespeare-leicester/
+
 **The Key to Great Grilled Salmon? Do Less.**\
 `No sticking, no flipping: These two methods ensure stress-free, flawless grilled salmon any night of the week.`\
 https://nytimes.com/article/how-to-grill-salmon.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5674266/2024/08/01/olympic-medals-paris-ncaa-until-
 **A New Republican Group Targets Robert F. Kennedy Jr. as Liberal**\
 `The super PAC’s emergence suggests that Republicans are worried his independent candidacy could hurt former President Donald J. Trump in November.`\
 https://nytimes.com/2024/08/01/us/politics/republicans-target-robert-f-kennedy-jr.html
-
-**Biden’s Title IX Rule Goes Into Effect in 24 States as Legal Challenges Continue**\
-`The regulations, which broaden sex discrimination to include gender identity and sexual orientation, remain blocked by lawsuits across much of the country.`\
-https://nytimes.com/2024/08/01/us/politics/biden-title-ix-gender-sex-discrimination.html
-
-**The Dangerous Game That Iran Is Playing**\
-`President Biden and his successor may face the most fateful decision of their presidencies over Iran.`\
-https://nytimes.com/2024/08/01/opinion/iran-israel-war.html
-
-**Simone Biles soars to second Olympic all-around gold medal**\
-`Brazil's Rebeca Andrade took silver.`\
-https://nytimes.com/athletic/5674700/2024/08/01/gymnastics-all-around-final-simone-biles-olympics-2024/
-
-**Two Russians released by Slovenia had acted as undercover spies.**\
-`By Andrew Higgins`\
-https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/russia-prisoner-exchange-slovenia
-
-**Harris Has Made Up Ground in Nevada. But the Road Ahead Is Steep.**\
-`Polls show Democrats’ chances have improved in Nevada since Vice President Kamala Harris was elevated. But she could face an uphill battle to win over undecided voters who had tuned out completely.`\
-https://nytimes.com/2024/08/01/us/politics/kamala-harris-nevada-trump.html
 

@@ -1,3 +1,23 @@
+**Meet the Scientist Who Wants to Alter Earth’s Atmosphere**\
+`Critics say even researching the idea is dangerous.`\
+https://nytimes.com/2024/08/01/climate/newsletter-keith-geoengineering.html
+
+**Turkey Revels in the Role It Played in Prisoner Swap**\
+`Turkey has frustrated its NATO allies by often refusing to get tough with Russia, but its good relations with Moscow may have helped it participate in the exchange.`\
+https://nytimes.com/2024/08/01/world/europe/turkey-prisoner-swap.html
+
+**Hezbollah leader threatens retaliation against Israel, saying conflict is in a ‘new phase.’**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza/hezbollah-leader-threatens-retaliation-against-israel-saying-conflict-is-in-a-new-phase
+
+**Senate Rejects Bipartisan Tax Deal**\
+`The legislation would have restored prized tax breaks for businesses and expanded the child tax credit. It had passed the House with broad bipartisan support.`\
+https://nytimes.com/2024/08/01/us/politics/senate-tax-bill.html
+
+**Craig Shakespeare: Former Leicester manager dies aged 60**\
+`Former Leicester City manager Craig Shakespeare has passed away at the age of 60.`\
+https://nytimes.com/athletic/5675090/2024/08/01/craig-shakespeare-leicester/
+
 **Canada's McIntosh wins gold in 200-meter butterfly**\
 `Canadian teenage phenom Summer McIntosh’s winning time of 2:03.03 set an Olympic record.`\
 https://nytimes.com/athletic/5675016/2024/08/01/summer-mcintosh-olympics-200-meter-butterfly/
