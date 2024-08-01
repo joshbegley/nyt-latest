@@ -1,10 +1,18 @@
+**If D.O.T. Gets Its Way, Families Will Sit Together on Flights for Free**\
+`A new federal policy would require airlines to seat families together on flights, without incurring any extra fees.`\
+https://nytimes.com/2024/08/01/travel/transportation-department-family-seating-rule.html
+
+**Janet Evans watches Katie Ledecky and sees Olympic-sized what if**\
+`When Janet Evans swam, the women's 1,500-meter freestyle wasn't an option. On Wednesday, she wondered what could've been.`\
+https://nytimes.com/athletic/5674035/2024/08/01/janet-evans-katie-ledecky-olympics-1500-meter-freestyle/
+
 **Padres trade deadline takeaways: A new superpen, rotation gamble, prospect remnants**\
 `San Diego’s recent play — they are 9-2 since the All-Star break — encouraged A.J. Preller to make aggressive purchases before the deadline.`\
 https://nytimes.com/athletic/5668992/2024/08/01/padres-trade-deadline-takeaways/
 
 **Zheng Qinwen dashes Iga Swiatek's dreams of Olympic gold at Roland Garros**\
 `It is only the four-time French Open champion's third defeat at Roland Garros in five years`\
-https://nytimes.com/athletic/5674172/2024/08/01/zheng-qinwen-reaches-olympic-final-beating-iga-swiatek-at-roland-garros/
+https://nytimes.com/athletic/5674172/2024/08/01/iga-swiatek-olympics-tennis-zheng-qinwen/
 
 **How journeyman Isaac Yiadom is riding 'eff it' mentality to big role with 49ers**\
 `The 49ers are Yiadom's sixth team in seven NFL seasons but he feels like a new player after his resurgence with the Saints.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5674139/2024/08/01/kelechi-iheanacho-joins-sevilla/
 **The Athletic FC: Introducing U.S. soccer's Mr Fixer**\
 `Today we meet a man who is known by some of the most powerful figures in the game as Mr Fixer.`\
 https://nytimes.com/athletic/5674051/2024/08/01/athletic-newsletter-stillitano-ten-hag/
-
-**With Strife at Home, Security Concerns Grow for Israeli Olympians in Paris**\
-`Concerns for the Israeli team — which has been shrouded in protection at every Games since 1972 — have substantially increased since the Oct. 7 terrorist attacks and the war in Gaza.`\
-https://nytimes.com/2024/08/01/world/middleeast/olympics-paris-israel-security.html
-
-**NBA stars Jayson Tatum, Joel Embiid get rare 'humbling' experience on Team USA**\
-`On a roster of full of stars, some stars have to sit every night at the Olympics. It's been a "humbling experience" for many on Team USA.`\
-https://nytimes.com/athletic/5673358/2024/08/01/jayson-tatum-joel-embiid-team-usa-olympics-bench/
 
