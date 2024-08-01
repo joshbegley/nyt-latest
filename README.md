@@ -1,3 +1,7 @@
+**To Challenge Trump Directly, Give Him a Platform**\
+`By Zeynep Tufekci`\
+https://nytimes.com/live/2024/07/30/opinion/thepoint/trump-platform-nabj
+
 **The swap is the latest use of hostage diplomacy tactics.**\
 `By Neil MacFarquhar`\
 https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/the-swap-is-the-latest-use-of-hostage-diplomacy-tactics
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5674709/2024/08/01/team-usa-lebron-james-kevin-dura
 **Sunisa Lee is the reigning Olympic all-around champion.**\
 `Lee earned the chance to defend her title despite a kidney disease that made it unclear whether she would ever compete again.`\
 https://nytimes.com/live/2024/08/01/world/olympics-gymnastics-simone-biles/sunisa-lee-is-the-reigning-olympic-all-around-champion
-
-**Italian Boxer Quits Bout, Sparking Furor Over Gender at Olympics**\
-`The Italian, Angela Carini, stopped fighting only 46 seconds into her matchup against Imane Khelif of Algeria, who had been barred from a women’s event last year.`\
-https://nytimes.com/2024/08/01/world/olympics/boxer-quits-gender-angela-carini-imane-khelif.html
 
