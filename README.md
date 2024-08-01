@@ -1,3 +1,11 @@
+**Ledecky becomes most decorated U.S. female Olympian**\
+`No female swimmer of any nationality has won more than 12 Olympic medals until Team USA's Katie Ledecky.`\
+https://nytimes.com/athletic/5674917/2024/08/01/katie-ledecky-medals-olympics-swimming/
+
+**Trump Claims Judge Has Ties to Harris and Seeks to Toss Him Off Case**\
+`The daughter of the judge in Donald J. Trump’s Manhattan criminal trial has worked as a consultant for Democratic candidates, though her relationship to the vice president is unclear.`\
+https://nytimes.com/2024/08/01/nyregion/trump-merchan-hush-money-case.html
+
 **ADP watch: T.J. Hockenson on the rise, Kyren Williams falling, and more player value movement**\
 `Dane Martinez looks at the recent ADP data to identify the players who are rising or falling, like Kyren Williams, in July fantasy drafts.`\
 https://nytimes.com/athletic/5675224/2024/08/01/adp-stock-watch-risers-fallers-fantasy-football-2024/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/germany-releas
 **Would Kamala Harris Be the First Gen X President?**\
 `She was born in 1964.`\
 https://nytimes.com/live/2024/07/30/opinion/thepoint/kamala-harris-gen-x
-
-**Murray's tennis career ends in Olympic doubles defeat**\
-`Andy Murray&#8217;s tennis career ended the way it does for everybody else: a ball that bounced where he didn&#8217;t want it to bounce.`\
-https://nytimes.com/athletic/5675075/2024/08/01/andy-murray-tennis-career-olympics-last-match/
-
-**Rescuers say an Israeli strike on a Gaza school compound killed at least 15 people, including children.**\
-`By Anushka Patil`\
-https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza/rescuers-say-an-israeli-strike-on-a-gaza-school-compound-killed-at-least-15-people-including-children
 
