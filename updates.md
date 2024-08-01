@@ -1,3 +1,7 @@
+**Braves upbeat after delivering a homer-filled win in Jorge Soler's return**\
+`Alex Anthopoulos explained why it was important to send a signal to the clubhouse with some big deadline moves. `\
+https://nytimes.com/athletic/5673247/2024/07/31/braves-jorge-soler-matt-olson/
+
 **‘We’re All Living the Olympics Through TikTok Now’**\
 `In NBC’s quest to provide wall-to-wall coverage of the Paris Games, the TV network has aimed to dominate a different device: your phone.`\
 https://nytimes.com/2024/07/31/style/nbc-olympics-influencers.html
