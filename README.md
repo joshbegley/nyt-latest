@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5675285/2024/08/01/wisconsin-college-football-darri
 
 **Intel, Struggling to Turn Itself Around, Will Cut More Than 15,000 Jobs**\
 `The Silicon Valley chip maker also reported a net loss and declining revenue in the latest quarter.`\
-https://nytimes.com/2024/08/01/technology/intel-struggling-to-turn-itself-around-will-cut-more-than-15000-jobs.html
+https://nytimes.com/2024/08/01/technology/intel-layoffs-quarterly-report.html
 
 **Trent Williams and Brandon Aiyuk have all the leverage, 49ers will have to bend**\
 `If 49ers management hoped that nobody would notice the absences of Williams and Aiyuk, well, the opposite has happened. It's glaring.`\
