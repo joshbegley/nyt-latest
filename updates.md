@@ -1,3 +1,15 @@
+**Goodbye Pascal Gross - the player who defined Brighton's Premier League improvement**\
+`Compensating for losing Gross, the club's craftsman and assist machine, will not be easy`\
+https://nytimes.com/athletic/5668145/2024/08/01/pascal-gross-farewell-assists/
+
+**Fulham in advanced talks for Villarreal defender Cuenca**\
+`Fulham are in advanced talks to sign Villarreal centre-back Jorge Cuenca.`\
+https://nytimes.com/athletic/5673881/2024/08/01/jorge-cuenca-fulham-transfers/
+
+**The Briefing: Chelsea 3 Club America 0: Dewsbury-Hall to replace Gallagher? Fernandez booed, Guiu shines**\
+`Enzo Maresca first win as Chelsea manager came against Club America - The Athletic's Simon Johnson analysed the action in Atlanta`\
+https://nytimes.com/athletic/5673585/2024/08/01/chelsea-club-america-dewsbury-hall-gallagher-fernandez-guiu/
+
 **Brighton's Gross completes Dortmund move**\
 `Borussia Dortmund have completed the signing of midfielder Pascal Gross from Brighton.`\
 https://nytimes.com/athletic/5669259/2024/08/01/pascal-gross-borussia-dortmund-transfer/
