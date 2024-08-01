@@ -1,3 +1,19 @@
+**Air Force Finds Mechanical and Crew Failures in Fatal Osprey Crash Last Year**\
+`An investigation determined that missed warning signals and the “catastrophic failure” of a gearbox led to the crash off the coast of Japan in November.`\
+https://nytimes.com/2024/08/01/us/politics/air-force-osprey-crash-japan.html
+
+**Families of 9/11 Victims React to News of Accused Plotters’ Plea Deal**\
+`While family members differed in their support of the death penalty, many expressed frustration that the case had lingered for so long.`\
+https://nytimes.com/2024/08/01/nyregion/sept-11-families-plea.html
+
+**Bipartisan Legal Group Urges Lawyers to Defend Against ‘Rising Authoritarianism’**\
+`An American Bar Association task force of prominent legal thinkers gestures at former President Trump without naming him.`\
+https://nytimes.com/2024/08/01/us/politics/american-bar-association-democracy.html
+
+**MrBeast Acknowledges ‘Inappropriate Language’ in Earlier Videos**\
+`A representative for the popular YouTuber said that he was “trying to be funny” and made “bad jokes” in older videos of him that have resurfaced.`\
+https://nytimes.com/2024/08/01/us/mr-beast-youtube-inappropriate-language.html
+
 **Head of an Elite New York School Resigns After Turmoil Over Gaza War**\
 `Joe Algrant will step down as the head of Ethical Culture Fieldston School following a year marked by infighting among parents, students, faculty and alumni.`\
 https://nytimes.com/2024/08/01/nyregion/ethical-culture-fieldston-school-resignation.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/the-loved-ones
 **Plea Deal in 9/11 Case Is Announced in War Court**\
 `The accused mastermind of the plot, Khalid Shaikh Mohammed, appeared at a session as the agreement was disclosed. A sentencing hearing could begin next year.`\
 https://nytimes.com/2024/08/01/us/politics/sept11-plea-agreement.html
-
-**Greg Joseph gets a leg up on Anders Carlson in Packers' kicking competition**\
-`The seventh-year veteran has made 29 of 31 kicks during open practice so far during camp after spending the last three seasons in Minnesota.`\
-https://nytimes.com/athletic/5675228/2024/08/01/greg-joseph-anders-carlson-packers-kickers/
-
-**Harris Campaign Looks Poised to Beat Trump’s July Cash Haul**\
-`The Trump campaign reported raising $139 million along with allied groups. The vice president’s campaign previously reported $200 million raised in the seven days after President Biden dropped out.`\
-https://nytimes.com/2024/08/01/us/politics/harris-trump-fundraising-july.html
-
-**Bookmaker for Ohtani Interpreter Plans to Plead Guilty to Federal Charges**\
-`Mathew Bowyer, a Southern California resident, was under investigation when the authorities discovered that one of his gambling clients was the interpreter for the baseball star Shohei Ohtani.`\
-https://nytimes.com/2024/08/01/us/ohtani-interpreter-bookie-gambling.html
-
-**Punkie Johnson Announces She Is Leaving ‘Saturday Night Live’**\
-`Johnson told a stand-up audience she was leaving “Saturday Night Live” before confirming her departure in an Instagram video the next day.`\
-https://nytimes.com/2024/08/01/arts/television/punkie-johnson-saturday-night-live.html
 
