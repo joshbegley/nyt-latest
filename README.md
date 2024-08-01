@@ -1,3 +1,7 @@
+**The Two Weeks That Changed Kamala Harris’s Vice Presidency**\
+`Two trips Harris took last year set the stage for the ascent that is happening now.`\
+https://nytimes.com/2024/08/01/us/politics/kamala-harris-black-racial-identity.html
+
 **When Simone Biles needed it most, the GOAT came out and cemented a legend**\
 `Like all the GOATs, Simone Biles saved her best for last Thursday at the Olympics.`\
 https://nytimes.com/athletic/5674406/2024/08/01/simone-biles-olympics-all-around-gold-goat/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/01/nyregion/sept-11-families-plea.html
 **Bipartisan Legal Group Urges Lawyers to Defend Against ‘Rising Authoritarianism’**\
 `An American Bar Association task force of prominent legal thinkers gestures at former President Trump without naming him.`\
 https://nytimes.com/2024/08/01/us/politics/american-bar-association-democracy.html
-
-**MrBeast Acknowledges ‘Inappropriate Language’ in Earlier Videos**\
-`A representative for the popular YouTuber said that he was “trying to be funny” and made “bad jokes” in older videos of him that have resurfaced.`\
-https://nytimes.com/2024/08/01/us/mr-beast-youtube-inappropriate-language.html
 
