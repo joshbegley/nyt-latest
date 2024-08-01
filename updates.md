@@ -1,3 +1,7 @@
+**Many a Gymgoer’s Goal**\
+`Rajeswari Rajamani makes her New York Times Crossword debut.`\
+https://nytimes.com/2024/07/31/crosswords/daily-puzzle-2024-08-01.html
+
 **Jack Flaherty reports to Dodgers with a revamped career and renewed expectations**\
 `Flaherty will make his Dodgers debut on Saturday hoping to show the form that once made him a Cy Young contender.`\
 https://nytimes.com/athletic/5673510/2024/07/31/dodgers-jack-flaherty-rotation/
