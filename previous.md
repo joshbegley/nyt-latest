@@ -1,3 +1,11 @@
+**In a 911 Call, Sonya Massey’s Mother Asked That Police Not Hurt Her**\
+`A day before an officer shot and killed her daughter, Donna Massey told a dispatcher that she was having mental health issues and asked that they not send “combative” police.`\
+https://nytimes.com/2024/08/01/us/sonya-massey-911-calls.html
+
+**McLaren team principal Stella signs multi-year contract extension**\
+`McLaren has announced a multi-year contract extension for Formula One team principal Andrea Stella.`\
+https://nytimes.com/athletic/5674781/2024/08/01/andrea-stella-mclaren-f1-extension/
+
 **The Bounce: Five notes from Team USA's 2-0 start**\
 `Zach Harper and Shams Charania catch you up on league-wide news.`\
 https://nytimes.com/athletic/5674709/2024/08/01/team-usa-lebron-james-kevin-durant-south-sudan-olympics-vince-carter-nba-the-bounce/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/5674709/2024/08/01/team-usa-lebron-james-kevin-dura
 https://nytimes.com/live/2024/08/01/world/olympics-gymnastics-simone-biles/sunisa-lee-is-the-reigning-olympic-all-around-champion
 
 **Italian Boxer Quits Bout, Sparking Furor Over Gender at Olympics**\
-`The Italian, Angela Carini, stopped fighting only 46 seconds into her preliminary round matchup against Imane Khelif of Algeria.`\
+`The Italian, Angela Carini, stopped fighting only 46 seconds into her matchup against Imane Khelif of Algeria, who had been barred from a women’s event last year.`\
 https://nytimes.com/2024/08/01/world/olympics/boxer-quits-gender-angela-carini-imane-khelif.html
 
 **A Pattern of Lavish Spending at a Leading L.G.B.T.Q. Nonprofit**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/01/climate/democratic-vp-candidates-climate.html
 **‘War Game’ Review: It Can’t Happen Here (Right?)**\
 `This nail-biter of a documentary imagines it is Jan. 6, 2025, and armed supporters of the losing candidate are hatching a coup and maybe a civil war. What will the nation’s leaders do?`\
 https://nytimes.com/2024/08/01/movies/war-game-documentary-review.html
-
-**Leading soccer nations deny drone use after claim by Canada coach Priestman**\
-`Priestman has been suspended from soccer for a year for her involvement in the Canada drone scandal.`\
-https://nytimes.com/athletic/5674369/2024/08/01/canada-drones-priestman-womens-soccer/
-
-**Enzo Maresca interview: 'I am 100 per cent sure we are on the right path'**\
-`The new Chelsea boss on comparisons with Pep Guardiola, what he'll demand from Cole Palmer, and what it would take to get him to sing`\
-https://nytimes.com/athletic/5674021/2024/08/01/chelsea-enzo-maresca-interview/
 

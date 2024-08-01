@@ -1,3 +1,15 @@
+**In a 911 Call, Sonya Massey’s Mother Asked That Police Not Hurt Her**\
+`A day before an officer shot and killed her daughter, Donna Massey told a dispatcher that she was having mental health issues and asked that they not send “combative” police.`\
+https://nytimes.com/2024/08/01/us/sonya-massey-911-calls.html
+
+**McLaren team principal Stella signs multi-year contract extension**\
+`McLaren has announced a multi-year contract extension for Formula One team principal Andrea Stella.`\
+https://nytimes.com/athletic/5674781/2024/08/01/andrea-stella-mclaren-f1-extension/
+
+**Italian Boxer Quits Bout, Sparking Furor Over Gender at Olympics**\
+`The Italian, Angela Carini, stopped fighting only 46 seconds into her matchup against Imane Khelif of Algeria, who had been barred from a women’s event last year.`\
+https://nytimes.com/2024/08/01/world/olympics/boxer-quits-gender-angela-carini-imane-khelif.html
+
 **The Bounce: Five notes from Team USA's 2-0 start**\
 `Zach Harper and Shams Charania catch you up on league-wide news.`\
 https://nytimes.com/athletic/5674709/2024/08/01/team-usa-lebron-james-kevin-durant-south-sudan-olympics-vince-carter-nba-the-bounce/
