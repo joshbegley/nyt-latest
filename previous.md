@@ -1,3 +1,15 @@
+**Utah Supreme Court Upholds a Block on a Strict Abortion Ban**\
+`Utah cannot enforce its near-total ban on abortion while a challenge to the law proceeds in the courts, the State Supreme Court ruled on Thursday.`\
+https://nytimes.com/2024/08/01/us/utah-abortion-ban.html
+
+**Cody Bellinger’s post-deadline finish will frame how the Cubs start their long offseason**\
+`When the Cubs return to Wrigley on Thursday, the scene will not be what they envisioned when they re-signed Bellinger in spring training.`\
+https://nytimes.com/athletic/5673711/2024/08/01/cody-bellinger-cubs-post-trade-deadline/
+
+**Veteran Hayward announces retirement from NBA**\
+`The longtime forward spent his final season with the Hornets and Thunder.`\
+https://nytimes.com/athletic/5674529/2024/08/01/gordon-hayward-retirement-nba/
+
 **Here are the latest developments.**\
 `By Anton Troianovski, Mark Mazzetti and Ben Hubbard`\
 https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/evan-gershkovich-prisoner-exchange
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/08/01/us/trump-harris-election-news/several-senate
 **Giants 'Hard Knocks' takeaways: Did the team reveal too much?**\
 `Whatever privacy the Giants’ front office sacrificed, viewers gained from a closer look at the roster-building process.`\
 https://nytimes.com/athletic/5673475/2024/08/01/giants-hard-knocks-takeaways-joe-schoen/
-
-**Lin-Manuel Miranda’s Next Project: A ‘Warriors’ Album With Eisa Davis**\
-`The recording, inspired by Walter Hill’s 1979 film about a gang making a perilous trek through New York City, will be available on Oct. 18.`\
-https://nytimes.com/2024/08/01/theater/lin-manuel-miranda-warriors-album.html
-
-**Bennington to Revive Dance Program of Philadelphia Arts School**\
-`Bennington College raised nearly $1.3 million to absorb the dance program of the University of the Arts, which shuttered suddenly in June.`\
-https://nytimes.com/2024/08/01/arts/bennington-dance-conservatory-of-philadelphia-arts-school.html
-
-**NCAA launches NIL deal transparency platform: Will athletes, agents buy in?**\
-`In January, the Division I Council adopted new rules requiring athletes to disclose to their schools any NIL agreement exceeding $600.`\
-https://nytimes.com/athletic/5668716/2024/08/01/ncaa-nil-assist-platform-contract-information/
 

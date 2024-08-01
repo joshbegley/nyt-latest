@@ -1,3 +1,15 @@
+**Utah Supreme Court Upholds a Block on a Strict Abortion Ban**\
+`Utah cannot enforce its near-total ban on abortion while a challenge to the law proceeds in the courts, the State Supreme Court ruled on Thursday.`\
+https://nytimes.com/2024/08/01/us/utah-abortion-ban.html
+
+**Cody Bellinger’s post-deadline finish will frame how the Cubs start their long offseason**\
+`When the Cubs return to Wrigley on Thursday, the scene will not be what they envisioned when they re-signed Bellinger in spring training.`\
+https://nytimes.com/athletic/5673711/2024/08/01/cody-bellinger-cubs-post-trade-deadline/
+
+**Veteran Hayward announces retirement from NBA**\
+`The longtime forward spent his final season with the Hornets and Thunder.`\
+https://nytimes.com/athletic/5674529/2024/08/01/gordon-hayward-retirement-nba/
+
 **Here are the latest developments.**\
 `By Anton Troianovski, Mark Mazzetti and Ben Hubbard`\
 https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/evan-gershkovich-prisoner-exchange
