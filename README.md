@@ -1,3 +1,19 @@
+**Fulham make £20m bid for McTominay**\
+`Fulham have made a £20million bid for Manchester United&#8217;s Scott McTominay.`\
+https://nytimes.com/athletic/5650294/2024/08/01/scott-mctominay-manchester-united-fulham-transfer/
+
+**Douglass win first gold medal in 200-meter breaststroke**\
+`Douglass won silver as part of the U.S. women’s 4x100-meter freestyle relay over the weekend.`\
+https://nytimes.com/athletic/5674956/2024/08/01/american-kate-douglass-win-first-olympic-gold-medal-in-200-meter-breaststroke/
+
+**Jubilation Inside The Wall Street Journal After Gershkovich is Freed**\
+`“I cannot even begin to describe the immense happiness and relief that this news brings,” the paper’s editor wrote to the staff.`\
+https://nytimes.com/2024/08/01/business/media/wall-street-journal-evan-gershkovich.html
+
+**On Turning Black**\
+`Pitting the interests of minority groups against one another seems to be part of Trump’s re-election strategy.`\
+https://nytimes.com/2024/08/01/opinion/trump-harris-black-indian.html
+
 **Five observations from Ohio State's opening day of preseason practice**\
 `A murky QB battle and an electric receiving corps remained leading storylines as the Buckeyes went through their first practice of August.`\
 https://nytimes.com/athletic/5674870/2024/08/01/ohio-state-football-preseason-practice-observations/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/08/01/climate/newsletter-keith-geoengineering.html
 **Turkey Revels in the Role It Played in Prisoner Swap**\
 `Turkey has frustrated its NATO allies by often refusing to get tough with Russia, but its good relations with Moscow may have helped it participate in the exchange.`\
 https://nytimes.com/2024/08/01/world/europe/turkey-prisoner-swap.html
-
-**Hezbollah leader threatens retaliation against Israel, saying conflict is in a ‘new phase.’**\
-`By Euan Ward`\
-https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza/hezbollah-leader-threatens-retaliation-against-israel-saying-conflict-is-in-a-new-phase
-
-**Senate Rejects Bipartisan Tax Deal**\
-`The legislation would have restored prized tax breaks for businesses and expanded the child tax credit. It had passed the House with broad bipartisan support.`\
-https://nytimes.com/2024/08/01/us/politics/senate-tax-bill.html
-
-**Craig Shakespeare: Former Leicester manager dies aged 60**\
-`Former Leicester City manager Craig Shakespeare has passed away at the age of 60.`\
-https://nytimes.com/athletic/5675090/2024/08/01/craig-shakespeare-leicester/
-
-**The Key to Great Grilled Salmon? Do Less.**\
-`No sticking, no flipping: These two methods ensure stress-free, flawless grilled salmon any night of the week.`\
-https://nytimes.com/article/how-to-grill-salmon.html
 
