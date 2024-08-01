@@ -1,3 +1,11 @@
+**The Key to Great Grilled Salmon? Do Less.**\
+`No sticking, no flipping: These two methods ensure stress-free, flawless grilled salmon any night of the week.`\
+https://nytimes.com/article/how-to-grill-salmon.html
+
+**As Misery Multiplies, Pakistanis Rise Up Against the Ruling Elite**\
+`Unrest over a range of economic and security issues threatens to deepen the political turmoil that has plagued Pakistan for years.`\
+https://nytimes.com/2024/08/01/world/asia/pakistan-protests-politics.html
+
 **Canada's McIntosh wins gold in 200-meter butterfly**\
 `Summer McIntosh’s winning time of 2:03.03 set an Olympic record.`\
 https://nytimes.com/athletic/5675016/2024/08/01/summer-mcintosh-olympics-200-meter-butterfly/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/russia-prisone
 **Harris Has Made Up Ground in Nevada. But the Road Ahead Is Steep.**\
 `Polls show Democrats’ chances have improved in Nevada since Vice President Kamala Harris was elevated. But she could face an uphill battle to win over undecided voters who had tuned out completely.`\
 https://nytimes.com/2024/08/01/us/politics/kamala-harris-nevada-trump.html
-
-**A lawyer tried to visit a Russian held in Brooklyn. He was already gone.**\
-`Vadim Konoshchenok’s attorney went to find him at a federal detention center in Brooklyn, but no one could say where he was.`\
-https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/a-lawyer-tried-to-visit-a-russian-held-in-brooklyn-he-was-already-gone
-
-**Once Backed by the N.R.A., Tim Walz Now Champions Tighter Gun Controls**\
-`The Minnesota governor, under consideration to be Vice President Kamala Harris’s running mate, began to push for new restrictions after a 2018 mass shooting.`\
-https://nytimes.com/2024/08/01/us/nra-tim-walz-guns.html
 
