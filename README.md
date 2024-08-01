@@ -1,3 +1,11 @@
+**Meet the Scientist Who Wants to Alter Earth’s Atmosphere**\
+`Critics say even researching the idea is dangerous.`\
+https://nytimes.com/2024/08/01/climate/newsletter-keith-geoengineering.html
+
+**Turkey Revels in the Role It Played in Prisoner Swap**\
+`Turkey has frustrated its NATO allies by often refusing to get tough with Russia, but its good relations with Moscow may have helped it participate in the exchange.`\
+https://nytimes.com/2024/08/01/world/europe/turkey-prisoner-swap.html
+
 **Hezbollah leader threatens retaliation against Israel, saying conflict is in a ‘new phase.’**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza/hezbollah-leader-threatens-retaliation-against-israel-saying-conflict-is-in-a-new-phase
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5674266/2024/08/01/olympic-medals-paris-ncaa-until-
 **A New Republican Group Targets Robert F. Kennedy Jr. as Liberal**\
 `The super PAC’s emergence suggests that Republicans are worried his independent candidacy could hurt former President Donald J. Trump in November.`\
 https://nytimes.com/2024/08/01/us/politics/republicans-target-robert-f-kennedy-jr.html
-
-**Biden’s Title IX Rule Goes Into Effect in 24 States as Legal Challenges Continue**\
-`The regulations, which broaden sex discrimination to include gender identity and sexual orientation, remain blocked by lawsuits across much of the country.`\
-https://nytimes.com/2024/08/01/us/politics/biden-title-ix-gender-sex-discrimination.html
-
-**The Dangerous Game That Iran Is Playing**\
-`President Biden and his successor may face the most fateful decision of their presidencies over Iran.`\
-https://nytimes.com/2024/08/01/opinion/iran-israel-war.html
 
