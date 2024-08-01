@@ -1,3 +1,23 @@
+**The ‘Bridge of Spies’ was central to a history of prisoner swaps.**\
+`By Neil MacFarquhar`\
+https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/the-bridge-of-spies-was-central-to-a-history-of-prisoner-swaps
+
+**Migrant Killed in Brooklyn Was Targeted by a Parks Worker, Police Say**\
+`The police charged the worker, who had a seasonal cleaning job, with fatally shooting a Venezuelan migrant at a Brooklyn park where some homeless migrants spend the night.`\
+https://nytimes.com/2024/08/01/nyregion/park-shooting-migrant-nyc.html
+
+**Four top-10 round MLB Draft picks fail to sign, including two second-round picks**\
+`Four top-10 round picks failed to sign, including supplemental second round picks Tyler Bell and Chris Levonas.`\
+https://nytimes.com/athletic/5675458/2024/08/01/top-2024-mlb-draft-picks-failed-to-sign/
+
+**Griner says prisoner swap between U.S., Russia is 'huge win'**\
+`"It's a great day," Griner said. "I am head over heels happy for the families right now."`\
+https://nytimes.com/athletic/5675404/2024/08/01/prisoner-swap-russia-brittney-griner-paul-whelan/
+
+**Airlines are suspending some flights to the Middle East, citing rising tensions.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza/flights-cancel-israel-lebanon
+
 **Mexican Drug Lord Appears in Court After His Kidnapping to the U.S.**\
 `Ismael Zambada García, known as El Mayo, faced an initial hearing before a federal judge in Texas, a consequential moment in the history of the drug war.`\
 https://nytimes.com/2024/08/01/us/el-mayo-sinaloa-cartel-hearing.html
