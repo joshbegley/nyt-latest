@@ -1,3 +1,15 @@
+**Keanu Reeves and Alex Winter to Star on Broadway in ‘Waiting for Godot’**\
+`They played slacker buddies in three “Bill & Ted” films, and next year they plan to reunite for Beckett’s classic tragicomedy.`\
+https://nytimes.com/2024/08/01/theater/keanu-reeves-broadway-godot.html
+
+**What to Cook Before You’re OOO**\
+`Tomato-basil fried rice, salt and pepper zucchini and snap pea salad are ready for whatever veggies and herbs need using up.`\
+https://nytimes.com/2024/08/01/dining/what-to-cook-before-youre-ooo.html
+
+**Randy Kehler, 80, Dies; Peace Activist Inspired Release of Pentagon Papers**\
+`Daniel Ellsberg was so moved by Mr. Kehler’s opposition to the Vietnam War that he decided to leak documents that changed the course of the conflict.`\
+https://nytimes.com/2024/08/01/us/politics/randy-kehler-dead.html
+
 **To Challenge Trump Directly, Give Him a Platform**\
 `By Zeynep Tufekci`\
 https://nytimes.com/live/2024/07/30/opinion/thepoint/trump-platform-nabj
