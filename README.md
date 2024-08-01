@@ -1,3 +1,7 @@
+**A lawyer tried to visit a Russian held in Brooklyn. He was already gone.**\
+`Vadim Konoshchenok’s attorney went to find him at a federal detention center in Brooklyn, but no one could say where he was.`\
+https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/a-lawyer-tried-to-visit-a-russian-held-in-brooklyn-he-was-already-gone
+
 **Once Backed by the N.R.A., Tim Walz Now Champions Tighter Gun Controls**\
 `The Minnesota governor, under consideration to be Vice President Kamala Harris’s running mate, began to push for new restrictions after a 2018 mass shooting.`\
 https://nytimes.com/2024/08/01/us/nra-tim-walz-guns.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/01/opinion/trump-kamala-harris-pronounce.html
 **Stream These 12 Movies Before They Leave Netflix in August**\
 `A ton of great titles are leaving for U.S. subscribers by the end of this month. Catch them while you can.`\
 https://nytimes.com/2024/08/01/movies/netflix-expiring-august.html
-
-**The Joyful Release of Evan Gershkovich Came at a High Price**\
-`Putin exploited the detention of innocents to win back real criminals.`\
-https://nytimes.com/2024/07/30/opinion/evan-gershkovich-release.html
 
