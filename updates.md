@@ -1,3 +1,7 @@
+**When Simone Biles needed it most, the GOAT came out and cemented a legend**\
+`Like all the GOATs, Simone Biles saved her best for last Thursday at the Olympics.`\
+https://nytimes.com/athletic/5674406/2024/08/01/simone-biles-olympics-all-around-gold-goat/
+
 **Trump Escalates Race Attacks on Harris, Worrying Some Republicans**\
 `A day after telling Black journalists that Vice President Kamala Harris had recently decided to become “a Black person,” Mr. Trump shared a photo of Ms. Harris in traditional Indian clothing.`\
 https://nytimes.com/2024/08/01/us/politics/trump-kamala-harris-race.html
