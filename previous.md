@@ -1,3 +1,7 @@
+**Jota Silva to Nottingham Forest: The Athletic 500 transfer ratings**\
+`The 25-year-old Portuguese enters the Premier League on the back of the most successful season of his career`\
+https://nytimes.com/athletic/5672308/2024/08/01/jota-silva-to-nottingham-forest-transfer-ratings/
+
 **Adam Driver Is to Star Off Broadway as a Country-Western Singer**\
 `The actor will return to the stage this fall in a revival of Kenneth Lonergan’s “Hold On to Me Darling.”`\
 https://nytimes.com/2024/08/01/theater/adam-driver-off-broadway.html
@@ -6,9 +10,9 @@ https://nytimes.com/2024/08/01/theater/adam-driver-off-broadway.html
 `This round of recipes goes all in on big flavors.`\
 https://nytimes.com/2024/08/01/spicy-mapo-tofu-scramble-and-citrusy-sumac-roasted-fish.html
 
-**The Wall Street Journal kept Gershkovich’s detention front and center.**\
+**The Wall Street Journal Kept Gershkovich’s Detention Front and Center**\
 `The Journal staged several events in his honor and set up a part of its website to call attention to the plight of the journalist during his lengthy detention in Russia.`\
-https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/wsj-reporter-evan-gershkovich
+https://nytimes.com/2024/08/01/technology/wsj-reporter-evan-gershkovich.html
 
 **Utah Supreme Court Upholds a Block on a Strict Abortion Ban**\
 `Utah cannot enforce its near-total ban on abortion while a challenge to the law proceeds in the courts, the State Supreme Court ruled on Thursday.`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us
 **Thousands attend Hamas leader’s funeral in Tehran, including Iran’s supreme leader.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza/thousands-attend-hamas-leaders-funeral-in-tehran-including-irans-supreme-leader
-
-**Don Lemon Sues Elon Musk Over Canceled X Deal**\
-`The former CNN reporter said in a lawsuit that X had refused to pay him after a testy interview with its billionaire owner.`\
-https://nytimes.com/2024/08/01/technology/don-lemon-elon-musk-lawsuit.html
 

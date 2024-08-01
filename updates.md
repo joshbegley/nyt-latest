@@ -1,3 +1,11 @@
+**Jota Silva to Nottingham Forest: The Athletic 500 transfer ratings**\
+`The 25-year-old Portuguese enters the Premier League on the back of the most successful season of his career`\
+https://nytimes.com/athletic/5672308/2024/08/01/jota-silva-to-nottingham-forest-transfer-ratings/
+
+**The Wall Street Journal Kept Gershkovich’s Detention Front and Center**\
+`The Journal staged several events in his honor and set up a part of its website to call attention to the plight of the journalist during his lengthy detention in Russia.`\
+https://nytimes.com/2024/08/01/technology/wsj-reporter-evan-gershkovich.html
+
 **Live Updates: Russia Releases Evan Gershkovich in Sweeping Prisoner Swap, Turkish Officials Say**\
 `The Wall Street Journal reporter and others were being freed in a prisoner swap in Turkey in the most far-reaching exchange between Russia and the West in decades.`\
 https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us
