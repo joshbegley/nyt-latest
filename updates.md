@@ -1,3 +1,11 @@
+**Second Inmate Sentenced in Beating Death of Whitey Bulger**\
+`Prosecutors said the inmate, Paul J. DeCologero, acted as a lookout in 2018 during the fatal beating of the notorious Boston underworld figure.`\
+https://nytimes.com/2024/08/01/us/whitey-bulger-decologero-sentencing.html
+
+**Who Is the Russian Assassin Freed as Part of a Sweeping Prisoner Swap?**\
+`Vadim Krasikov was sentenced to life in prison in Germany for a brazen assassination in a downtown park in Berlin. Now he is free.`\
+https://nytimes.com/2024/08/01/world/europe/russia-krasikov-prisoner-swap.html
+
 **Who Is the Russian Assassin Freed as Part of a Sweeping Prisoner Exchange?**\
 `Vadim Krasikov was sentenced to life in prison in Germany for a brazen assassination in a downtown park in Berlin. Now he is free.`\
 https://nytimes.com/2024/08/01/world/europe/russia-krasikov-prisoner-swap.html

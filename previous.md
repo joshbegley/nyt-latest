@@ -1,4 +1,8 @@
-**Who Is the Russian Assassin Freed as Part of a Sweeping Prisoner Exchange?**\
+**Second Inmate Sentenced in Beating Death of Whitey Bulger**\
+`Prosecutors said the inmate, Paul J. DeCologero, acted as a lookout in 2018 during the fatal beating of the notorious Boston underworld figure.`\
+https://nytimes.com/2024/08/01/us/whitey-bulger-decologero-sentencing.html
+
+**Who Is the Russian Assassin Freed as Part of a Sweeping Prisoner Swap?**\
 `Vadim Krasikov was sentenced to life in prison in Germany for a brazen assassination in a downtown park in Berlin. Now he is free.`\
 https://nytimes.com/2024/08/01/world/europe/russia-krasikov-prisoner-swap.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/30/opinion/evan-gershkovich-release.html
 **Source: Giants to call up Triple-A masher Jerar Encarnación in roster makeover**\
 `Encarnación began his season with Oaxaca in the Mexican League and didn't stop raking after joining the Giants on a minor-league contract.`\
 https://nytimes.com/athletic/5674916/2024/08/01/sf-giants-jerar-encarnacion-call-up/
-
-**Full Time: U.S. advances and Canada stuns**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
-https://nytimes.com/athletic/5674807/2024/08/01/olympics-uswnt-canada-drones-quarterfinals-full-time/
 
