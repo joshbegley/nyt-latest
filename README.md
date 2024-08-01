@@ -1,3 +1,7 @@
+**Jacob Trouba Q&A: On trade rumors, upcoming season and his first art gallery**\
+`Trouba spoke with The Athletic about the creation of the gallery, the Rangers' Eastern Conference final loss to Florida and more.`\
+https://nytimes.com/athletic/5673498/2024/08/01/rangers-jacob-trouba-nhl-trade/
+
 **Bueckers signs NIL deal with new Unrivaled league**\
 `Bueckers, who is entering her fifth season at UConn, is expected to join an Unrivaled team after her first WNBA season.`\
 https://nytimes.com/athletic/5674203/2024/08/01/paige-bueckers-unrivaled-nil-deal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5668992/2024/08/01/padres-trade-deadline-takeaways/
 **Zheng Qinwen dashes Iga Swiatek's dreams of Olympic gold at Roland Garros**\
 `It is only the four-time French Open champion's third defeat at Roland Garros in five years`\
 https://nytimes.com/athletic/5674172/2024/08/01/zheng-qinwen-reaches-olympic-final-beating-iga-swiatek-at-roland-garros/
-
-**How journeyman Isaac Yiadom is riding 'eff it' mentality to big role with 49ers**\
-`The 49ers are Yiadom's sixth team in seven NFL seasons but he feels like a new player after his resurgence with the Saints.`\
-https://nytimes.com/athletic/5670509/2024/08/01/49ers-isaac-yiadom-training-camp/
 
