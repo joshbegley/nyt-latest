@@ -1,3 +1,7 @@
+**Jameson Taillon on not getting traded, rumor season and what the Cubs are missing**\
+`Taillon: "Winning games in the big leagues takes everything being very buttoned-up and dialed. Every aspect of every game."`\
+https://nytimes.com/athletic/5673532/2024/07/31/jameson-taillon-cubs-trade-deadline-interview/
+
 **Many a Gymgoer’s Goal**\
 `Rajeswari Rajamani makes her New York Times Crossword debut.`\
 https://nytimes.com/2024/07/31/crosswords/daily-puzzle-2024-08-01.html

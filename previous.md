@@ -1,3 +1,7 @@
+**Jameson Taillon on not getting traded, rumor season and what the Cubs are missing**\
+`Taillon: "Winning games in the big leagues takes everything being very buttoned-up and dialed. Every aspect of every game."`\
+https://nytimes.com/athletic/5673532/2024/07/31/jameson-taillon-cubs-trade-deadline-interview/
+
 **Many a Gymgoer’s Goal**\
 `Rajeswari Rajamani makes her New York Times Crossword debut.`\
 https://nytimes.com/2024/07/31/crosswords/daily-puzzle-2024-08-01.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5672533/2024/07/31/us-3x3-basketball-olympic-losses
 **Abraham Hamadeh Wins G.O.P. House Primary in Arizona**\
 `In an unusual twist, Donald J. Trump had endorsed both Mr. Hamadeh and his rival, Blake Masters, effectively declaring that he had no preference in the primary race.`\
 https://nytimes.com/2024/07/31/us/politics/abraham-hamedah-blake-masters.html
-
-**‘We’re All Living the Olympics Through TikTok Now’**\
-`In NBC’s quest to provide wall-to-wall coverage of the Paris Games, the TV network has aimed to dominate a different device: your phone.`\
-https://nytimes.com/2024/07/31/style/nbc-olympics-influencers.html
 
