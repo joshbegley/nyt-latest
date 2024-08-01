@@ -1,3 +1,11 @@
+**Josh Shapiro, Potential Harris V.P. Pick, Cancels Weekend Fund-Raisers**\
+`The Pennsylvania governor had been scheduled to headline events in the Hamptons for his own campaign committee. Vice President Kamala Harris is expected to announce her running mate selection by Tuesday.`\
+https://nytimes.com/2024/08/01/us/politics/josh-shapiro-potential-harris-vp-pick-cancels-weekend-fund-raisers.html
+
+**For the first time, start of World Series could be moved if league championships end early**\
+`The World Series is scheduled for Oct. 25, though it could be bumped up three days to Oct. 22 if the pennants are decided quickly.`\
+https://nytimes.com/athletic/5675110/2024/08/01/mlb-world-series-postseason-schedule/
+
 **What Is the ‘It’ Water Bottle for Back-to-School Shopping?**\
 `The mighty Stanley’s reign appears to be ending, with Owala, Lululemon and Hydro Flask all competing for affection — and cachet — among teens and tweens.`\
 https://nytimes.com/2024/08/01/style/back-to-school-owala-stanley-cup.html
@@ -29,12 +37,4 @@ https://nytimes.com/article/how-to-grill-salmon.html
 **As Misery Multiplies, Pakistanis Rise Up Against the Ruling Elite**\
 `Unrest over a range of economic and security issues threatens to deepen the political turmoil that has plagued Pakistan for years.`\
 https://nytimes.com/2024/08/01/world/asia/pakistan-protests-politics.html
-
-**Canada's McIntosh wins gold in 200-meter butterfly**\
-`Canadian teenage phenom Summer McIntosh’s winning time of 2:03.03 set an Olympic record.`\
-https://nytimes.com/athletic/5675016/2024/08/01/summer-mcintosh-olympics-200-meter-butterfly/
-
-**Until Saturday: Who's leading medal chase in Paris?**\
-`Welcome to Until Saturday, the five-star college football newsletter: Every four years, we see our schools represented in the Olympics.`\
-https://nytimes.com/athletic/5674266/2024/08/01/olympic-medals-paris-ncaa-until-saturday/
 

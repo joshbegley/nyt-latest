@@ -1,3 +1,11 @@
+**Josh Shapiro, Potential Harris V.P. Pick, Cancels Weekend Fund-Raisers**\
+`The Pennsylvania governor had been scheduled to headline events in the Hamptons for his own campaign committee. Vice President Kamala Harris is expected to announce her running mate selection by Tuesday.`\
+https://nytimes.com/2024/08/01/us/politics/josh-shapiro-potential-harris-vp-pick-cancels-weekend-fund-raisers.html
+
+**For the first time, start of World Series could be moved if league championships end early**\
+`The World Series is scheduled for Oct. 25, though it could be bumped up three days to Oct. 22 if the pennants are decided quickly.`\
+https://nytimes.com/athletic/5675110/2024/08/01/mlb-world-series-postseason-schedule/
+
 **What Is the ‘It’ Water Bottle for Back-to-School Shopping?**\
 `The mighty Stanley’s reign appears to be ending, with Owala, Lululemon and Hydro Flask all competing for affection — and cachet — among teens and tweens.`\
 https://nytimes.com/2024/08/01/style/back-to-school-owala-stanley-cup.html
