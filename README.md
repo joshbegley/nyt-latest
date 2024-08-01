@@ -1,3 +1,7 @@
+**The Threat of More War**\
+`We examine the contradictions in the Middle East.`\
+https://nytimes.com/2024/08/01/briefing/the-threat-of-more-war.html
+
 **NBC's Olympics coverage enjoying a viewership surge, though there's a caveat**\
 `NBC is getting an Olympic-sized viewership surge, but a new way of reporting is making comparisons to past years apples-to-baguettes.`\
 https://nytimes.com/athletic/5672021/2024/08/01/nbc-olympics-coverage-paris-viewership/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/01/crosswords/wordle-review-1140.html
 **The Connections Companion No. 418, August 2, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/08/01/crosswords/connections-companion-418.html
-
-**Nottingham Forest sign Portugal winger Jota Silva**\
-`Nottingham Forest have completed the signing of Portuguese forward Jota Silva from Vitoria Guimaraes.`\
-https://nytimes.com/athletic/5674000/2024/08/01/jota-silva-notitngham-forest-transfer/
 
