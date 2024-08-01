@@ -1,3 +1,11 @@
+**Head of an Elite New York School Resigns After Turmoil Over Gaza War**\
+`Joe Algrant will step down as the head of Ethical Culture Fieldston School following a year marked by infighting among parents, students, faculty and alumni.`\
+https://nytimes.com/2024/08/01/nyregion/ethical-culture-fieldston-school-resignation.html
+
+**Kane Wommack's sweatsuit and a new-look defense: Alabama camp notes**\
+`Alabama defenders are acclimating to new defensive coordinator Kane Wommack's scheme. Who's standing out so far?`\
+https://nytimes.com/athletic/5675529/2024/08/01/ballcaps-sweatsuits-and-a-new-look-defense-alabama-training-camp-update/
+
 **How an Olympic boxing dispute embroiled arguments about gender in sport**\
 `The contentious topic of gender in sport has made its way into a debate about how boxing is run at the Olympics, turning a murky administrative fight into the latest stage for combative arguments about how women should be allowed to compete.`\
 https://nytimes.com/athletic/5675415/2024/08/01/olympic-womens-boxing-dispute-imane-khelif/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/01/us/ohtani-interpreter-bookie-gambling.html
 **Punkie Johnson Announces She Is Leaving ‘Saturday Night Live’**\
 `Johnson told a stand-up audience she was leaving “Saturday Night Live” before confirming her departure in an Instagram video the next day.`\
 https://nytimes.com/2024/08/01/arts/television/punkie-johnson-saturday-night-live.html
-
-**Israel Confirms Death of Hamas Commander Amid Funerals for 2 Senior Militants**\
-`The Israeli military said it had killed Muhammad Deif, who it called a planner of the Oct. 7 attack on Israel, which would make him the third Iranian-backed militant leader slain in recent days.`\
-https://nytimes.com/2024/08/01/world/middleeast/israel-hamas-muhammad-deif.html
-
-**The Trolls Don’t Understand Harris’s Life Story**\
-`It reflects her conscious choices, and those of her mother.`\
-https://nytimes.com/live/2024/07/30/opinion/thepoint/harris-life-story-blackness
 

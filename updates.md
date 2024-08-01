@@ -1,3 +1,11 @@
+**Head of an Elite New York School Resigns After Turmoil Over Gaza War**\
+`Joe Algrant will step down as the head of Ethical Culture Fieldston School following a year marked by infighting among parents, students, faculty and alumni.`\
+https://nytimes.com/2024/08/01/nyregion/ethical-culture-fieldston-school-resignation.html
+
+**Kane Wommack's sweatsuit and a new-look defense: Alabama camp notes**\
+`Alabama defenders are acclimating to new defensive coordinator Kane Wommack's scheme. Who's standing out so far?`\
+https://nytimes.com/athletic/5675529/2024/08/01/ballcaps-sweatsuits-and-a-new-look-defense-alabama-training-camp-update/
+
 **How an Olympic boxing dispute embroiled arguments about gender in sport**\
 `The contentious topic of gender in sport has made its way into a debate about how boxing is run at the Olympics, turning a murky administrative fight into the latest stage for combative arguments about how women should be allowed to compete.`\
 https://nytimes.com/athletic/5675415/2024/08/01/olympic-womens-boxing-dispute-imane-khelif/
