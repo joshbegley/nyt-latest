@@ -1,3 +1,11 @@
+**Rafael Devers delivers while trade additions play key roles in Red Sox walk-off win**\
+`The Red Sox got contributions from their newest acquisition as Rafael Devers helped orchestrate a walk-off win on a hot Boston day.`\
+https://nytimes.com/athletic/5673593/2024/07/31/red-sox-walk-off-mariners-rafael-devers/
+
+**Thunderstorms in Omaha Leave Thousands Without Power**\
+`Two tornadoes were also reported near the city, which was battered by winds of up to 80 m.p.h. on Wednesday. Other parts of the Midwest were under severe thunderstorm warnings.`\
+https://nytimes.com/2024/07/31/us/storms-omaha-nebraska.html
+
 **Team USA have found their best lineup**\
 `Steve Kerr's rotation has been under scrutiny so far, but he may have found just the right mix after two games.`\
 https://nytimes.com/athletic/5673519/2024/07/31/team-usa-mens-basketball-starting-lineup/
