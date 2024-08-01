@@ -1,3 +1,7 @@
+**First Famine Declared in War-Torn Darfur Region of Sudan**\
+`Experts who monitor global hunger rarely make an official declaration of famine, but they just sounded the alarm for more than half a million people who have fled the fighting in Sudan’s civil war.`\
+https://nytimes.com/2024/08/01/world/africa/famine-declared-darfur-sudan-war.html
+
 **Jota Silva to Nottingham Forest: The Athletic 500 transfer ratings**\
 `The 25-year-old Portuguese enters the Premier League on the back of the most successful season of his career`\
 https://nytimes.com/athletic/5672308/2024/08/01/jota-silva-to-nottingham-forest-transfer-ratings/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/evan-gershkovi
 **Live Updates: Russia Releases Evan Gershkovich in Sweeping Prisoner Swap, Turkish Officials Say**\
 `The Wall Street Journal reporter and others were being freed in a prisoner swap in Turkey in the most far-reaching exchange between Russia and the West in decades.`\
 https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us
-
-**Thousands attend Hamas leader’s funeral in Tehran, including Iran’s supreme leader.**\
-`By Lara Jakes`\
-https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza/thousands-attend-hamas-leaders-funeral-in-tehran-including-irans-supreme-leader
 
