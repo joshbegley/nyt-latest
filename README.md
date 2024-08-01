@@ -1,3 +1,7 @@
+**Tigers trade deadline takeaways: Tarik Skubal was 'not close' to getting moved and more**\
+`Leftover thoughts on Skubal, Detroit's pitching acquisitions and the plan for the rest of the season. `\
+https://nytimes.com/athletic/5673066/2024/08/01/tigers-trade-deadline-takeaways-tarik-skubal-not-moving/
+
 **What should the Knicks and Julius Randle expect in contract extension negotiations?**\
 `Do the Knicks secure Randle for the long term? Or do they enter the season with his future uncertain?`\
 https://nytimes.com/athletic/5672708/2024/08/01/knicks-julius-randle-contract-negotiations/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5672541/2024/08/01/sec-football-standings-tiebreake
 **How a Bruce Lee quote is shaping the way the Falcons think about their new run game**\
 `The Falcons are likely to scale back what had been the staple of their running game the last three seasons.`\
 https://nytimes.com/athletic/5669948/2024/08/01/falcons-running-game-zac-robinson-bruce-lee/
-
-**One-man mock for the first round of fantasy football 2024 PPR drafts**\
-`Gary Davenport shares his pick-by-pick choices for the top 12 selections of a 2024 fantasy football PPR league, including two Jets players.`\
-https://nytimes.com/athletic/5672885/2024/08/01/one-man-mock-first-round-fantasy-football-2024-ppr-drafts/
 
