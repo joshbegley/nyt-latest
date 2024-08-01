@@ -1,3 +1,11 @@
+**Released Reporter Was Caught in Oppression His Parents Had Fled**\
+`Evan Gershkovich was raised in New Jersey by parents who left the Soviet Union to escape antisemitism and a lack of opportunity.`\
+https://nytimes.com/2024/08/01/world/europe/russia-evan-gershkovich-family.html
+
+**Douglass wins first gold medal in 200-meter breaststroke**\
+`Douglass won silver as part of the U.S. women’s 4x100-meter freestyle relay over the weekend.`\
+https://nytimes.com/athletic/5674956/2024/08/01/kate-douglass-200-meter-breaststroke-olympics/
+
 **Fulham make £20m bid for McTominay**\
 `Fulham have made a £20million bid for Manchester United&#8217;s Scott McTominay.`\
 https://nytimes.com/athletic/5650294/2024/08/01/scott-mctominay-manchester-united-fulham-transfer/
