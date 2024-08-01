@@ -1,11 +1,3 @@
-**Who Was Freed in the Prisoner Swap Between Russia and the West?**\
-`Here’s a list of the 24 prisoners who were exchanged on Thursday and their backgrounds.`\
-https://nytimes.com/2024/08/01/world/europe/russia-prisoner-swap-detainees.html
-
-**Kaylia Nemour of Algeria could win Africa’s first gymnastics gold.**\
-`By Laura Cappelle`\
-https://nytimes.com/live/2024/08/01/world/olympics-gymnastics-simone-biles/kaylia-nemour-of-algeria-could-win-africas-first-gymnastics-gold
-
 **In a 911 Call, Sonya Massey’s Mother Asked That Police Not Hurt Her**\
 `A day before an officer shot and killed her daughter, Donna Massey told a dispatcher that she was having mental health issues and asked that they not send “combative” police.`\
 https://nytimes.com/2024/08/01/us/sonya-massey-911-calls.html
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/5650994/2024/08/01/ismaila-sarr-to-crystal-palace-t
 **Palace complete signing of Sarr from Marseille**\
 `Crystal Palace have completed the signing of Ismaila Sarr from Marseille.`\
 https://nytimes.com/athletic/5660176/2024/08/01/crystal-palace-sign-ismaila-sarr/
+
+**Where Potential Democratic V.P. Candidates Stand on Climate**\
+`Possible contenders to join the Harris ticket include three governors, a senator concerned by extreme heat and drought, and the current Transportation Secretary.`\
+https://nytimes.com/2024/08/01/climate/democratic-vp-candidates-climate.html
+
+**‘War Game’ Review: It Can’t Happen Here (Right?)**\
+`This nail-biter of a documentary imagines it is Jan. 6, 2025, and armed supporters of the losing candidate are hatching a coup and maybe a civil war. What will the nation’s leaders do?`\
+https://nytimes.com/2024/08/01/movies/war-game-documentary-review.html
 

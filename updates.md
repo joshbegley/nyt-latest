@@ -1,3 +1,11 @@
+**Where Potential Democratic V.P. Candidates Stand on Climate**\
+`Possible contenders to join the Harris ticket include three governors, a senator concerned by extreme heat and drought, and the current Transportation Secretary.`\
+https://nytimes.com/2024/08/01/climate/democratic-vp-candidates-climate.html
+
+**‘War Game’ Review: It Can’t Happen Here (Right?)**\
+`This nail-biter of a documentary imagines it is Jan. 6, 2025, and armed supporters of the losing candidate are hatching a coup and maybe a civil war. What will the nation’s leaders do?`\
+https://nytimes.com/2024/08/01/movies/war-game-documentary-review.html
+
 **Who Was Freed in the Prisoner Swap Between Russia and the West?**\
 `Here’s a list of the 24 prisoners who were exchanged on Thursday and their backgrounds.`\
 https://nytimes.com/2024/08/01/world/europe/russia-prisoner-swap-detainees.html

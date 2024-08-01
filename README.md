@@ -1,3 +1,23 @@
+**The swap is the latest use of hostage diplomacy tactics.**\
+`By Neil MacFarquhar`\
+https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/the-swap-is-the-latest-use-of-hostage-diplomacy-tactics
+
+**Turkey Aims to Cull Its Stray Dogs. Critics Say It’s About Politics.**\
+`Turkey’s new law aimed at moving millions of stray dogs to shelters, and allowing some to be euthanized, has both cultural and political implications.`\
+https://nytimes.com/2024/08/01/world/europe/turkey-stray-dog-law.html
+
+**4 Key Takeaways From The Times’s Reporting on Spending at GLAAD**\
+`The C.E.O.’s luxurious business travel and other spending may have violated the L.G.B.T.Q. group’s policies as well as Internal Revenue Service rules.`\
+https://nytimes.com/2024/08/01/business/glaad-spending-takeaways.html
+
+**Who Was Freed in the Prisoner Swap Between Russia and the West?**\
+`Here’s a list of the 24 prisoners who were exchanged on Thursday and their backgrounds.`\
+https://nytimes.com/2024/08/01/world/europe/russia-prisoner-swap-detainees.html
+
+**Kaylia Nemour of Algeria could win Africa’s first gymnastics gold.**\
+`By Laura Cappelle`\
+https://nytimes.com/live/2024/08/01/world/olympics-gymnastics-simone-biles/kaylia-nemour-of-algeria-could-win-africas-first-gymnastics-gold
+
 **In a 911 Call, Sonya Massey’s Mother Asked That Police Not Hurt Her**\
 `A day before an officer shot and killed her daughter, Donna Massey told a dispatcher that she was having mental health issues and asked that they not send “combative” police.`\
 https://nytimes.com/2024/08/01/us/sonya-massey-911-calls.html
@@ -17,24 +37,4 @@ https://nytimes.com/live/2024/08/01/world/olympics-gymnastics-simone-biles/sunis
 **Italian Boxer Quits Bout, Sparking Furor Over Gender at Olympics**\
 `The Italian, Angela Carini, stopped fighting only 46 seconds into her matchup against Imane Khelif of Algeria, who had been barred from a women’s event last year.`\
 https://nytimes.com/2024/08/01/world/olympics/boxer-quits-gender-angela-carini-imane-khelif.html
-
-**A Pattern of Lavish Spending at a Leading L.G.B.T.Q. Nonprofit**\
-`GLAAD paid for its chief executive to fly first-class, rent a Cape Cod house and remodel her home office. It may have violated I.R.S. rules.`\
-https://nytimes.com/2024/08/01/business/glaad-ceo-spending.html
-
-**Ismaila Sarr to Crystal Palace: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate Ismaila Sarr's move back to England with Crystal Palace`\
-https://nytimes.com/athletic/5650994/2024/08/01/ismaila-sarr-to-crystal-palace-the-athletic-500-transfer-ratings/
-
-**Palace complete signing of Sarr from Marseille**\
-`Crystal Palace have completed the signing of Ismaila Sarr from Marseille.`\
-https://nytimes.com/athletic/5660176/2024/08/01/crystal-palace-sign-ismaila-sarr/
-
-**Where Potential Democratic V.P. Candidates Stand on Climate**\
-`Possible contenders to join the Harris ticket include three governors, a senator concerned by extreme heat and drought, and the current Transportation Secretary.`\
-https://nytimes.com/2024/08/01/climate/democratic-vp-candidates-climate.html
-
-**‘War Game’ Review: It Can’t Happen Here (Right?)**\
-`This nail-biter of a documentary imagines it is Jan. 6, 2025, and armed supporters of the losing candidate are hatching a coup and maybe a civil war. What will the nation’s leaders do?`\
-https://nytimes.com/2024/08/01/movies/war-game-documentary-review.html
 
