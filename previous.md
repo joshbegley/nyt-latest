@@ -1,3 +1,11 @@
+**Adam Driver Is to Star Off Broadway as a Country-Western Singer**\
+`The actor will return to the stage this fall in a revival of Kenneth Lonergan’s “Hold On to Me Darling.”`\
+https://nytimes.com/2024/08/01/theater/adam-driver-off-broadway.html
+
+**Spicy Mapo Tofu Scramble and Citrusy Sumac Roasted Fish**\
+`This round of recipes goes all in on big flavors.`\
+https://nytimes.com/2024/08/01/spicy-mapo-tofu-scramble-and-citrusy-sumac-roasted-fish.html
+
 **The Wall Street Journal kept Gershkovich’s detention front and center.**\
 `The Journal staged several events in his honor and set up a part of its website to call attention to the plight of the journalist during his lengthy detention in Russia.`\
 https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/wsj-reporter-evan-gershkovich
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza/thousan
 **Don Lemon Sues Elon Musk Over Canceled X Deal**\
 `The former CNN reporter said in a lawsuit that X had refused to pay him after a testy interview with its billionaire owner.`\
 https://nytimes.com/2024/08/01/technology/don-lemon-elon-musk-lawsuit.html
-
-**Olympic spying is just the latest example of Canada Soccer failing its players**\
-`Canada has a long list of shortcomings with putting players first`\
-https://nytimes.com/athletic/5673725/2024/08/01/canada-soccer-spying-olympics-world-cup/
-
-**Several Senate Republicans criticize the strategy, but not the substance, of Trump’s comments on Harris.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/08/01/us/trump-harris-election-news/several-senate-republicans-criticize-the-strategy-but-not-the-substance-of-trumps-comments-on-harris
 

@@ -1,3 +1,11 @@
+**Adam Driver Is to Star Off Broadway as a Country-Western Singer**\
+`The actor will return to the stage this fall in a revival of Kenneth Lonergan’s “Hold On to Me Darling.”`\
+https://nytimes.com/2024/08/01/theater/adam-driver-off-broadway.html
+
+**Spicy Mapo Tofu Scramble and Citrusy Sumac Roasted Fish**\
+`This round of recipes goes all in on big flavors.`\
+https://nytimes.com/2024/08/01/spicy-mapo-tofu-scramble-and-citrusy-sumac-roasted-fish.html
+
 **The Wall Street Journal kept Gershkovich’s detention front and center.**\
 `The Journal staged several events in his honor and set up a part of its website to call attention to the plight of the journalist during his lengthy detention in Russia.`\
 https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/wsj-reporter-evan-gershkovich
