@@ -1,3 +1,15 @@
+**Armed With Saran Wrap, She Sinks in the Muck to Save the Planet**\
+`A dogged paleoecologist named Dorothy Peteet is digging through the salt marshes of New York in the hope of preserving the city’s best natural defense against climate change.`\
+https://nytimes.com/2024/08/01/nyregion/jamaica-bay-marsh-new-york-city.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/01/crosswords/spelling-bee-forum.html
+
+**An Office Tower Sold for $8.5 Million. It Was Once Worth 40 Times That.**\
+`The sale price of 135 West 50th Street in Midtown, which is only 35 percent full, was a sign of how much the pandemic upended the market for office buildings in New York City.`\
+https://nytimes.com/2024/08/01/nyregion/manhattan-office-building-auction.html
+
 **Quotation of the Day: Can You Beat the Olympians at Table Tennis? Stop Asking.**\
 `Quotation of the Day for Thursday, August 1, 2024.`\
 https://nytimes.com/2024/08/01/pageoneplus/quotation-of-the-day-can-you-beat-the-olympians-at-table-tennis-stop-asking.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/01/learning/word-of-the-day-satirist.html
 **Fantasy football snake draft strategy, where roster format makes all the difference**\
 `Michael Salfino walks you through snake draft strategy for Flex10 and Flex9 fantasy league formats, explaining why they are very different.`\
 https://nytimes.com/athletic/5672805/2024/08/01/fantasy-football-snake-draft-strategy-where-roster-format-makes-all-the-difference/
-
-**The Gaza War Has Never Been Confined to Gaza**\
-`With the assassination of a Hamas leader in Tehran, regional war looms ever closer.`\
-https://nytimes.com/2024/08/01/opinion/gaza-hamas-war-israel-palestinians.html
-
-**What 14 Voters Would Ask Kamala Harris if She Were on Truth Serum**\
-`The group discusses President Biden’s decision to withdraw from the race, Kamala Harris’s candidacy, her possible picks for vice president and more.`\
-https://nytimes.com/interactive/2024/08/01/opinion/harris-2024-focus-group.html
-
-**Here is the latest on the Ismail Haniyeh assassination.**\
-`By Farnaz Fassihi and Qasim Nauman`\
-https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza/here-is-the-latest-on-the-ismail-haniyeh-assassination
 
