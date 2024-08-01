@@ -1,3 +1,11 @@
+**Harris Remembers Congresswoman Sheila Jackson Lee**\
+`Vice President Kamala Harris eulogized the long-serving congresswoman from Texas during a memorial service on Thursday.`\
+https://nytimes.com/video/us/politics/100000009606654/harris-sheila-jackson-lee.html
+
+**The loved ones of some released Russian dissidents had no prior knowledge of the swap.**\
+`By Valerie Hopkins, Ekaterina Bodyagina and Alina Lobzina`\
+https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/the-loved-ones-of-some-released-russian-dissidents-had-no-prior-knowledge-of-the-swap
+
 **Plea Deal in 9/11 Case Is Announced in War Court**\
 `The accused mastermind of the plot, Khalid Shaikh Mohammed, appeared at a session as the agreement was disclosed. A sentencing hearing could begin next year.`\
 https://nytimes.com/2024/08/01/us/politics/sept11-plea-agreement.html

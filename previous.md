@@ -1,3 +1,11 @@
+**Harris Remembers Congresswoman Sheila Jackson Lee**\
+`Vice President Kamala Harris eulogized the long-serving congresswoman from Texas during a memorial service on Thursday.`\
+https://nytimes.com/video/us/politics/100000009606654/harris-sheila-jackson-lee.html
+
+**The loved ones of some released Russian dissidents had no prior knowledge of the swap.**\
+`By Valerie Hopkins, Ekaterina Bodyagina and Alina Lobzina`\
+https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/the-loved-ones-of-some-released-russian-dissidents-had-no-prior-knowledge-of-the-swap
+
 **Plea Deal in 9/11 Case Is Announced in War Court**\
 `The accused mastermind of the plot, Khalid Shaikh Mohammed, appeared at a session as the agreement was disclosed. A sentencing hearing could begin next year.`\
 https://nytimes.com/2024/08/01/us/politics/sept11-plea-agreement.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/30/opinion/thepoint/harris-life-story-blackness
 **Russia Freed Evan Gershkovich in a Major Prisoner Swap**\
 `Also, a Hamas leader was killed by a bomb planted months ago. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/08/01/briefing/russia-freed-evan-gershkovich-lin-manuel-miranda.html
-
-**Angels' Mike Trout to miss rest of season with another meniscus tear**\
-`The Angels expect Trout to have a normal offseason and be ready for spring training.`\
-https://nytimes.com/athletic/5675511/2024/08/01/angels-mike-trout-second-meniscus-tear/
-
-**How Simone Biles Won the Olympic Women’s Gymnastics All-Around Gold**\
-`The most difficult vault in the world and an explosive floor routine brought Biles her second all-around win, while her teammate Sunisa Lee picked up the bronze and Rebeca Andrade of Brazil took silver.`\
-https://nytimes.com/interactive/2024/08/01/sports/olympics/biles-lee-andrade-olympic-gymnastics.html
 
