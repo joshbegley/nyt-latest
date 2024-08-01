@@ -12,7 +12,7 @@ https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/trump-gershkov
 
 **Biden Welcomes Relatives of Released Hostages to White House**\
 `President Biden, who negotiated the Russia prisoner release, delivered remarks surrounded by relatives of freed American hostages.`\
-https://nytimes.com/video/us/politics/100000009605521/biden-russia-hostage-release-prisoner-swap.html
+https://nytimes.com/video/embedded/us/politics/100000009605521/biden-russia-hostage-release-prisoner-swap.html
 
 **Keanu Reeves and Alex Winter to Star on Broadway in ‘Waiting for Godot’**\
 `They played slacker buddies in three “Bill & Ted” films, and next year they plan to reunite for Beckett’s classic tragicomedy.`\
