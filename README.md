@@ -1,3 +1,15 @@
+**Goodbye Pascal Gross - the player who defined Brighton's Premier League improvement**\
+`Compensating for losing Gross, the club's craftsman and assist machine, will not be easy`\
+https://nytimes.com/athletic/5668145/2024/08/01/pascal-gross-farewell-assists/
+
+**Fulham in advanced talks for Villarreal defender Cuenca**\
+`Fulham are in advanced talks to sign Villarreal centre-back Jorge Cuenca.`\
+https://nytimes.com/athletic/5673881/2024/08/01/jorge-cuenca-fulham-transfers/
+
+**The Briefing: Chelsea 3 Club America 0: Dewsbury-Hall to replace Gallagher? Fernandez booed, Guiu shines**\
+`Enzo Maresca first win as Chelsea manager came against Club America - The Athletic's Simon Johnson analysed the action in Atlanta`\
+https://nytimes.com/athletic/5673585/2024/08/01/chelsea-club-america-dewsbury-hall-gallagher-fernandez-guiu/
+
 **Brighton's Gross completes Dortmund move**\
 `Borussia Dortmund have completed the signing of midfielder Pascal Gross from Brighton.`\
 https://nytimes.com/athletic/5669259/2024/08/01/pascal-gross-borussia-dortmund-transfer/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/01/crosswords/spelling-bee-forum.html
 **An Office Tower Sold for $8.5 Million. It Was Once Worth 40 Times That.**\
 `The sale price of 135 West 50th Street in Midtown, which is only 35 percent full, was a sign of how much the pandemic upended the market for office buildings in New York City.`\
 https://nytimes.com/2024/08/01/nyregion/manhattan-office-building-auction.html
-
-**The Briefing: Real Madrid 0 AC Milan 1 - Endrick's first start, Chukwueze's winner**\
-`AC Milan beat Real Madrid 1-0 as Carlo Ancelotti's side get their pre-season tour of the United States under way`\
-https://nytimes.com/athletic/5673804/2024/08/01/real-madrid-ac-milan-endrick-result-analysis/
-
-**Quotation of the Day: Can You Beat the Olympians at Table Tennis? Stop Asking.**\
-`Quotation of the Day for Thursday, August 1, 2024.`\
-https://nytimes.com/2024/08/01/pageoneplus/quotation-of-the-day-can-you-beat-the-olympians-at-table-tennis-stop-asking.html
-
-**Corrections: Aug. 1, 2024**\
-`Corrections that appeared in print on Thursday, Aug. 1, 2024.`\
-https://nytimes.com/2024/08/01/pageoneplus/corrections-aug-1-2024.html
 

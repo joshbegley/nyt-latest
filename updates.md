@@ -1,3 +1,7 @@
+**Brighton's Gross completes Dortmund move**\
+`Borussia Dortmund have completed the signing of midfielder Pascal Gross from Brighton.`\
+https://nytimes.com/athletic/5669259/2024/08/01/pascal-gross-borussia-dortmund-transfer/
+
 **Liverpool's Elliott praised by Slot after pre-season win vs Arsenal**\
 `Liverpool head coach Arne Slot saluted the creative spark provided by Harvey Elliott after Liverpool beat Arsenal 2-1 in a pre-season friendly in Philadelphia.`\
 https://nytimes.com/athletic/5673915/2024/08/01/liverpool-harvey-elliott-arne-slot/
