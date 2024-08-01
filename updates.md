@@ -1,3 +1,15 @@
+**The Best Movies and TV Shows Coming to Amazon, Disney+, Hulu and More in August**\
+`“Batman: Caped Crusader,” “Homicide: Life on the Street,” “OceanXplorers” and “Only Murders in the Building” will be streaming.`\
+https://nytimes.com/2024/08/01/arts/television/august-streaming-movies-tv-shows.html
+
+**Trump boasted this year that he could get Gershkovich released if re-elected.**\
+`By Neil MacFarquhar`\
+https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/trump-gershkovich-release
+
+**Biden Welcomes Relatives of Released Hostages to White House**\
+`President Biden, who negotiated the Russia prisoner release, delivered remarks surrounded by relatives of freed American hostages.`\
+https://nytimes.com/video/us/politics/100000009605521/biden-russia-hostage-release-prisoner-swap.html
+
 **Keanu Reeves and Alex Winter to Star on Broadway in ‘Waiting for Godot’**\
 `They played slacker buddies in three “Bill & Ted” films, and next year they plan to reunite for Beckett’s classic tragicomedy.`\
 https://nytimes.com/2024/08/01/theater/keanu-reeves-broadway-godot.html
