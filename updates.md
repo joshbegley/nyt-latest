@@ -1,3 +1,7 @@
+**The Threat of More War**\
+`We examine the contradictions in the Middle East.`\
+https://nytimes.com/2024/08/01/briefing/the-threat-of-more-war.html
+
 **NBC's Olympics coverage enjoying a viewership surge, though there's a caveat**\
 `NBC is getting an Olympic-sized viewership surge, but a new way of reporting is making comparisons to past years apples-to-baguettes.`\
 https://nytimes.com/athletic/5672021/2024/08/01/nbc-olympics-coverage-paris-viewership/
