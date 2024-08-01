@@ -1,3 +1,11 @@
+**After a stint with his rival, Kyle Ford is back at USC with unfinished business**\
+`Ford is entering his sixth season of college football in 2024 and is back at USC, the school that started it all for him. `\
+https://nytimes.com/athletic/5674280/2024/08/01/kyle-ford-usc-ucla-receiver-transfer-college-football/
+
+**Capturing the Wonders of Mushrooms Through Dance**\
+`Plus: Long Island beach houses, Greek housewares and more recommendations from T Magazine.`\
+https://nytimes.com/2024/08/01/t-magazine/dance-heginbotham-john-cage-mushrooms.html
+
 **Jacob Trouba Q&A: On trade rumors, upcoming season and his first art gallery**\
 `Trouba spoke with The Athletic about the creation of the gallery, the Rangers' Eastern Conference final loss to Florida and more.`\
 https://nytimes.com/athletic/5673498/2024/08/01/rangers-jacob-trouba-nhl-trade/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/01/travel/transportation-department-family-seating-r
 **Janet Evans watches Katie Ledecky and sees Olympic-sized what if**\
 `When Janet Evans swam, the women's 1,500-meter freestyle wasn't an option. On Wednesday, she wondered what could've been.`\
 https://nytimes.com/athletic/5674035/2024/08/01/janet-evans-katie-ledecky-olympics-1500-meter-freestyle/
-
-**Padres trade deadline takeaways: A new superpen, rotation gamble, prospect remnants**\
-`San Diego’s recent play — they are 9-2 since the All-Star break — encouraged A.J. Preller to make aggressive purchases before the deadline.`\
-https://nytimes.com/athletic/5668992/2024/08/01/padres-trade-deadline-takeaways/
-
-**Zheng Qinwen dashes Iga Swiatek's dreams of Olympic gold at Roland Garros**\
-`It is only the four-time French Open champion's third defeat at Roland Garros in five years`\
-https://nytimes.com/athletic/5674172/2024/08/01/zheng-qinwen-reaches-olympic-final-beating-iga-swiatek-at-roland-garros/
 
