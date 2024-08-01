@@ -4,7 +4,7 @@ https://nytimes.com/2024/08/01/nyregion/ethical-culture-fieldston-school-resigna
 
 **Kane Wommack's sweatsuit and a new-look defense: Alabama camp notes**\
 `Alabama defenders are acclimating to new defensive coordinator Kane Wommack's scheme. Who's standing out so far?`\
-https://nytimes.com/athletic/5675529/2024/08/01/ballcaps-sweatsuits-and-a-new-look-defense-alabama-training-camp-update/
+https://nytimes.com/athletic/5675529/2024/08/01/alabama-football-training-camp-update-defense/
 
 **How an Olympic boxing dispute embroiled arguments about gender in sport**\
 `The contentious topic of gender in sport has made its way into a debate about how boxing is run at the Olympics, turning a murky administrative fight into the latest stage for combative arguments about how women should be allowed to compete.`\
