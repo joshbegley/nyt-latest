@@ -1,3 +1,7 @@
+**Israel Confirms Death of Hamas Commander Amid Funerals for 2 Senior Militants**\
+`The Israeli military said it had killed Muhammad Deif, who it called a planner of the Oct. 7 attack on Israel, which would make him the third Iranian-backed militant leader slain in recent days.`\
+https://nytimes.com/2024/08/01/world/middleeast/israel-hamas-muhammad-deif.html
+
 **The Trolls Don’t Understand Harris’s Life Story**\
 `It reflects her conscious choices, and those of her mother.`\
 https://nytimes.com/live/2024/07/30/opinion/thepoint/harris-life-story-blackness
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5675453/2024/08/01/djokovic-knee-injury-paris-olymp
 **The ‘Bridge of Spies’ was central to a history of prisoner swaps.**\
 `By Neil MacFarquhar`\
 https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/the-bridge-of-spies-was-central-to-a-history-of-prisoner-swaps
-
-**Migrant Killed in Brooklyn Was Targeted by a Parks Worker, Police Say**\
-`The police charged the worker, who had a seasonal cleaning job, with fatally shooting a Venezuelan migrant at a Brooklyn park where some homeless migrants spend the night.`\
-https://nytimes.com/2024/08/01/nyregion/park-shooting-migrant-nyc.html
 
