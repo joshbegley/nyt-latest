@@ -1,10 +1,14 @@
+**MrBeast Acknowledges ‘Inappropriate Language’ in Earlier Videos**\
+`A representative for the popular YouTuber said that he was “trying to be funny” and made “bad jokes” in older videos of him that have resurfaced.`\
+https://nytimes.com/2024/08/01/us/mr-beast-youtube-inappropriate-language.html
+
 **Head of an Elite New York School Resigns After Turmoil Over Gaza War**\
 `Joe Algrant will step down as the head of Ethical Culture Fieldston School following a year marked by infighting among parents, students, faculty and alumni.`\
 https://nytimes.com/2024/08/01/nyregion/ethical-culture-fieldston-school-resignation.html
 
 **Kane Wommack's sweatsuit and a new-look defense: Alabama camp notes**\
 `Alabama defenders are acclimating to new defensive coordinator Kane Wommack's scheme. Who's standing out so far?`\
-https://nytimes.com/athletic/5675529/2024/08/01/ballcaps-sweatsuits-and-a-new-look-defense-alabama-training-camp-update/
+https://nytimes.com/athletic/5675529/2024/08/01/alabama-football-training-camp-update-defense/
 
 **How an Olympic boxing dispute embroiled arguments about gender in sport**\
 `The contentious topic of gender in sport has made its way into a debate about how boxing is run at the Olympics, turning a murky administrative fight into the latest stage for combative arguments about how women should be allowed to compete.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/01/us/politics/harris-trump-fundraising-july.html
 **Bookmaker for Ohtani Interpreter Plans to Plead Guilty to Federal Charges**\
 `Mathew Bowyer, a Southern California resident, was under investigation when the authorities discovered that one of his gambling clients was the interpreter for the baseball star Shohei Ohtani.`\
 https://nytimes.com/2024/08/01/us/ohtani-interpreter-bookie-gambling.html
-
-**Punkie Johnson Announces She Is Leaving ‘Saturday Night Live’**\
-`Johnson told a stand-up audience she was leaving “Saturday Night Live” before confirming her departure in an Instagram video the next day.`\
-https://nytimes.com/2024/08/01/arts/television/punkie-johnson-saturday-night-live.html
 

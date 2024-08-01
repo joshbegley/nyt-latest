@@ -1,3 +1,11 @@
+**MrBeast Acknowledges ‘Inappropriate Language’ in Earlier Videos**\
+`A representative for the popular YouTuber said that he was “trying to be funny” and made “bad jokes” in older videos of him that have resurfaced.`\
+https://nytimes.com/2024/08/01/us/mr-beast-youtube-inappropriate-language.html
+
+**Kane Wommack's sweatsuit and a new-look defense: Alabama camp notes**\
+`Alabama defenders are acclimating to new defensive coordinator Kane Wommack's scheme. Who's standing out so far?`\
+https://nytimes.com/athletic/5675529/2024/08/01/alabama-football-training-camp-update-defense/
+
 **Head of an Elite New York School Resigns After Turmoil Over Gaza War**\
 `Joe Algrant will step down as the head of Ethical Culture Fieldston School following a year marked by infighting among parents, students, faculty and alumni.`\
 https://nytimes.com/2024/08/01/nyregion/ethical-culture-fieldston-school-resignation.html
