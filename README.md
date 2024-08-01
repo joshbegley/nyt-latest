@@ -1,40 +1,40 @@
-**Meet a Federal Air Marshal. She May Have Been Sitting Next to You on a Flight.**\
-`Working for a federal agency shrouded in mystery, Esther Fausett shared what she could about her career in in-flight law enforcement.`\
-https://nytimes.com/2024/08/01/travel/federal-air-marshal.html
+**Stitch by Stitch, Pacita Abad Crossed Continents and Cultures**\
+`The Filipino American artist is having her first retrospective at MoMA PS1 as the mainstream art world finally catches up to her work. “You will regret missing it,” our critic says.`\
+https://nytimes.com/2024/08/01/arts/design/stitch-by-stitch-pacita-abad-crossed-continents-and-cultures.html
 
-**This Scientist Wants to Block the Sun to Cool the Earth**\
-`David Keith has an audacious plan to slow down global warming. Critics say it poses grave risks.`\
-https://nytimes.com/2024/08/01/climate/david-keith-solar-geoengineering.html
+**‘Weird and Daunting’: 7,000 Readers Told Us How It Felt to Focus**\
+`A review of an experiment that gave “permission” to stop and look.`\
+https://nytimes.com/2024/08/01/upshot/experiment-focus-painting-art.html
 
-**A 10-Minute Workout for People Who Don’t Like Working Out**\
-`It’s hard to get motivated when you dread exercise. Here’s how to get started.`\
-https://nytimes.com/2024/08/01/well/move/workout-10-minutes-motivation.html
+**Celebrity Coffee Is the Next Celebrity Tequila**\
+`Household names like Tom Hanks, Rudy Giuliani and the Weeknd are betting big on brew. Here’s what we thought of seven celebrity coffee brands.`\
+https://nytimes.com/2024/08/01/dining/celebrity-coffee.html
 
-**Colts stock report: WR Alec Pierce making more plays than rookie Adonai Mitchell**\
-`A new entry into the free safety battle could indicate the Colts will need to look to the free-agent market to fortify the position. `\
-https://nytimes.com/athletic/5672724/2024/08/01/indianapolis-colts-stock-report-alec-pierce-adonai-mitchell-training-camp/
+**10 Wines From California, $20 to $40, to Drink Right Now**\
+`These bottles, from small producers, often cost a little more than their European counterparts, but they are superb with singular identities.`\
+https://nytimes.com/2024/08/01/dining/drinks/californian-wines.html
 
-**Muhammad Deif, a Top Hamas Commander, Is Dead, Israel Says**\
-`Mr. Deif, who had survived several previous Israeli assassination attempts, was the No. 2 Hamas leader in Gaza. Israel said it killed him in a strike last month in southern Gaza.`\
-https://nytimes.com/2024/07/17/world/middleeast/muhammad-deif-hamas-death.html
+**Some Final Notes From the ‘Voice of God’**\
+`Milton Nascimento, a musical deity in Brazil, collaborates with the bassist, vocalist and producer Esperanza Spalding on an album that contemplates age’s effect on art.`\
+https://nytimes.com/2024/08/01/arts/music/milton-nascimento-esperanza-spalding.html
 
-**Rising WWE star Bron Breakker's gridiron past at the newest FBS program**\
-`As a recruit, Bronson Rechsteiner was impressed by the chip-on-the-shoulder feel of Kennesaw State. Now the WWE is betting big on him.`\
-https://nytimes.com/athletic/5673113/2024/08/01/bron-breakker-wrestling-kennesaw-state-football/
+**For DeMarvion Overshown and Marshawn Kneeland, big opportunity — and pressure — awaits**\
+`Overshown is coming off an ACL injury and Kneeland is the Cowboys' second-round pick. Expectations are high for the two defenders.`\
+https://nytimes.com/athletic/5671334/2024/08/01/dallas-cowboys-demarvion-overshown-marshawn-kneeland-defense/
 
-**South Sudan is on the rise, just as Luol Deng envisioned it**\
-`Luol Deng invested in his home country, and he invested in basketball. The result is one of the Olympics' best stories of success.`\
-https://nytimes.com/athletic/5673546/2024/08/01/south-sudan-basketball-olympics-luol-deng/
+**Trumps of the Tropics: Brazil’s Far Right Plots Its Return**\
+`Bolsonaristas are (still) taking their cues from America’s MAGA movement.`\
+https://nytimes.com/2024/08/01/magazine/brazil-bolsonaro-trump.html
 
-**What to Watch as Simone Biles Seeks Gold in All-Around Final**\
-`Biles is the favorite to win Thursday and become only the third woman to win two Olympic all-around titles.`\
-https://nytimes.com/2024/08/01/world/olympics/simone-biles-gymnastics-watch-all-around.html
+**Patriots stock report: Who's rising and who's falling after the first week?**\
+`After a week of training camp, we examine some players who are outperforming expectations and a few who are headed in the wrong direction.`\
+https://nytimes.com/athletic/5673059/2024/08/01/patriots-training-camp-thornton-smith-schuster/
 
-**Gustavsson leaves Australia Women soccer role after Olympic exit**\
-`Tony Gustavsson has left his role as head coach of the Australia Women’s national team following their group-stage exit at the Olympics.`\
-https://nytimes.com/athletic/5673946/2024/08/01/tony-gustavsson-australia-manager-olympics/
+**New York City’s Most Expensive Neighborhoods**\
+`Overall, prices and the number of sales remained relatively flat over a year, though a few neighborhoods saw big changes with just a handful of sales.`\
+https://nytimes.com/2024/08/01/realestate/new-york-citys-most-expensive-neighborhoods.html
 
-**Goodbye Pascal Gross - the player who defined Brighton's Premier League improvement**\
-`Compensating for losing Gross, the club's craftsman and assist machine, will not be easy`\
-https://nytimes.com/athletic/5668145/2024/08/01/pascal-gross-farewell-assists/
+**Panthers have a history with Clemson ... except when it comes to draft picks**\
+`The Panthers played their home games at Clemson in their inaugural season. They still have never drafted a player from the school.`\
+https://nytimes.com/athletic/5673050/2024/08/01/carolina-panthers-clemson-draft-picks/
 
