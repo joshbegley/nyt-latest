@@ -1,3 +1,7 @@
+**U.K. Stabbing Suspect Is Named as Judge Lifts Reporting Restrictions**\
+`A judge allowed the naming of the 17-year-old charged with three counts of murder and 10 of attempted murder, lifting Britain’s reporting restrictions on identifying children under 18 in criminal cases.`\
+https://nytimes.com/2024/08/01/world/europe/southport-stabbings-suspect-axel-rudakubana.html
+
 **If D.O.T. Gets Its Way, Families Will Sit Together on Flights for Free**\
 `A new federal policy would require airlines to seat families together on flights, without incurring any extra fees.`\
 https://nytimes.com/2024/08/01/travel/transportation-department-family-seating-rule.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/01/business/dealbook/meta-ai-wall-street.html
 **Iheanacho joins Sevilla on free transfer**\
 `Sevilla have confirmed the signing of Kelechi Iheanacho on a free transfer.`\
 https://nytimes.com/athletic/5674139/2024/08/01/kelechi-iheanacho-joins-sevilla/
-
-**The Athletic FC: Introducing U.S. soccer's Mr Fixer**\
-`Today we meet a man who is known by some of the most powerful figures in the game as Mr Fixer.`\
-https://nytimes.com/athletic/5674051/2024/08/01/athletic-newsletter-stillitano-ten-hag/
 
