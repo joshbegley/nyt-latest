@@ -1,3 +1,11 @@
+**Canada's McIntosh wins gold in 200-meter butterfly**\
+`Summer McIntosh’s winning time of 2:03.03 set an Olympic record.`\
+https://nytimes.com/athletic/5675016/2024/08/01/summer-mcintosh-olympics-200-meter-butterfly/
+
+**Until Saturday: Who's leading medal chase in Paris?**\
+`Welcome to Until Saturday, the five-star college football newsletter: Every four years, we see our schools represented in the Olympics.`\
+https://nytimes.com/athletic/5674266/2024/08/01/olympic-medals-paris-ncaa-until-saturday/
+
 **Simone Biles soars to second Olympic all-around gold medal**\
 `Brazil's Rebeca Andrade took silver.`\
 https://nytimes.com/athletic/5674700/2024/08/01/gymnastics-all-around-final-simone-biles-olympics-2024/

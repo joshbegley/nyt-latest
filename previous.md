@@ -1,3 +1,11 @@
+**Canada's McIntosh wins gold in 200-meter butterfly**\
+`Summer McIntosh’s winning time of 2:03.03 set an Olympic record.`\
+https://nytimes.com/athletic/5675016/2024/08/01/summer-mcintosh-olympics-200-meter-butterfly/
+
+**Until Saturday: Who's leading medal chase in Paris?**\
+`Welcome to Until Saturday, the five-star college football newsletter: Every four years, we see our schools represented in the Olympics.`\
+https://nytimes.com/athletic/5674266/2024/08/01/olympic-medals-paris-ncaa-until-saturday/
+
 **A New Republican Group Targets Robert F. Kennedy Jr. as Liberal**\
 `The super PAC’s emergence suggests that Republicans are worried his independent candidacy could hurt former President Donald J. Trump in November.`\
 https://nytimes.com/2024/08/01/us/politics/republicans-target-robert-f-kennedy-jr.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/a-lawyer-tried
 **Once Backed by the N.R.A., Tim Walz Now Champions Tighter Gun Controls**\
 `The Minnesota governor, under consideration to be Vice President Kamala Harris’s running mate, began to push for new restrictions after a 2018 mass shooting.`\
 https://nytimes.com/2024/08/01/us/nra-tim-walz-guns.html
-
-**Second Inmate Sentenced in Beating Death of Whitey Bulger**\
-`Prosecutors said the inmate, Paul J. DeCologero, acted as a lookout in 2018 during the fatal beating of the notorious Boston underworld figure.`\
-https://nytimes.com/2024/08/01/us/whitey-bulger-decologero-sentencing.html
-
-**Who Is the Russian Assassin Freed as Part of a Sweeping Prisoner Swap?**\
-`Vadim Krasikov was sentenced to life in prison in Germany for a brazen assassination in a downtown park in Berlin. Now he is free.`\
-https://nytimes.com/2024/08/01/world/europe/russia-krasikov-prisoner-swap.html
 
