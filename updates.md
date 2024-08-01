@@ -1,3 +1,11 @@
+**Amazon Reports $148 Billion in Second Quarter Sales**\
+`The e-commerce giant’s stock dipped about 5 percent in after-hours trading after lower-than-expected guidance.`\
+https://nytimes.com/2024/08/01/technology/amazon-earnings-q2.html
+
+**Kamala Harris remembers Sheila Jackson Lee as a ‘fierce champion for justice.’**\
+`By Nicholas Nehamas`\
+https://nytimes.com/live/2024/08/01/us/trump-harris-election-news/kamala-harris-remembers-sheila-jackson-lee-as-a-fierce-champion-for-justice
+
 **U.S. women's basketball bests Belgium in biggest test of Olympic group play**\
 `As has come to be expected with this group, A’ja Wilson and Breanna Stewart were the fulcrums around which everything successful functioned.`\
 https://nytimes.com/athletic/5675095/2024/08/01/usa-belgium-womens-basketball-olympics-results/
