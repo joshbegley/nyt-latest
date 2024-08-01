@@ -1,3 +1,7 @@
+**Golf Course Atop Ancient Native American Earthworks to Be Removed**\
+`After reaching a settlement with an Ohio country club to acquire its lease on the Octagon Earthworks, the state historical society intends to open the site as a public park.`\
+https://nytimes.com/2024/08/01/arts/design/octagon-earthworks-ohio-golf-course.html
+
 **Inigo Martinez's Barcelona situation is a case study in uncertainty at the club**\
 `He was asked to take a salary cut last year as Barca struggled to register him with La Liga. Now he is in limbo again`\
 https://nytimes.com/athletic/5674283/2024/08/01/barcelona-transfers-inigo-martinez-registration-salary/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/01/theater/adam-driver-off-broadway.html
 **Spicy Mapo Tofu Scramble and Citrusy Sumac Roasted Fish**\
 `This round of recipes goes all in on big flavors.`\
 https://nytimes.com/2024/08/01/spicy-mapo-tofu-scramble-and-citrusy-sumac-roasted-fish.html
-
-**The Wall Street Journal Kept Gershkovich’s Detention Front and Center**\
-`The Journal staged several events in his honor and set up a part of its website to call attention to the plight of the journalist during his lengthy detention in Russia.`\
-https://nytimes.com/2024/08/01/technology/wsj-reporter-evan-gershkovich.html
 
