@@ -1,3 +1,19 @@
+**Intel, Struggling to Turn Itself Around, Will Cut More Than 15,000 Jobs**\
+`The Silicon Valley chip maker also reported a net loss and declining revenue in the latest quarter.`\
+https://nytimes.com/2024/08/01/technology/intel-struggling-to-turn-itself-around-will-cut-more-than-15000-jobs.html
+
+**Trent Williams and Brandon Aiyuk have all the leverage, 49ers will have to bend**\
+`If 49ers management hoped that nobody would notice the absences of Williams and Aiyuk, well, the opposite has happened. It's glaring.`\
+https://nytimes.com/athletic/5673755/2024/08/01/trent-williams-brandon-aiyuk-49ers/
+
+**Major Inmate Swap Frees Dissidents and U.S. Journalists From Russian Prisons**\
+`The Wall Street Journal reporter Evan Gershkovich was among 24 people released in a seven-nation, painstakingly negotiated deal that President Biden hailed as a triumph of diplomacy.`\
+https://nytimes.com/2024/08/01/world/europe/russia-gershkovich-prisoner-swap.html
+
+**For Suni Lee, a triumphant Olympic medal caps an improbable comeback**\
+`Suni Lee almost wasn't even able to try for these Olympics. Now, she's once again on the individual all-around podium.`\
+https://nytimes.com/athletic/5675306/2024/08/01/suni-lee-bronze-all-around-olympics-medal/
+
 **Trump Elevates False, Fringe Attacks on Harris to Center of His Campaign**\
 `Rivals and critics have for years accused Kamala Harris of shifting her personal identity for political advantage, with those attacks escalating dramatically online since she became the Democratic standard-bearer.`\
 https://nytimes.com/2024/08/01/us/politics/trump-harris-race.html
