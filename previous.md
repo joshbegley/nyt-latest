@@ -7,7 +7,7 @@ https://nytimes.com/article/how-to-grill-salmon.html
 https://nytimes.com/2024/08/01/world/asia/pakistan-protests-politics.html
 
 **Canada's McIntosh wins gold in 200-meter butterfly**\
-`Summer McIntosh’s winning time of 2:03.03 set an Olympic record.`\
+`Canadian teenage phenom Summer McIntosh’s winning time of 2:03.03 set an Olympic record.`\
 https://nytimes.com/athletic/5675016/2024/08/01/summer-mcintosh-olympics-200-meter-butterfly/
 
 **Until Saturday: Who's leading medal chase in Paris?**\

@@ -1,3 +1,7 @@
+**Canada's McIntosh wins gold in 200-meter butterfly**\
+`Canadian teenage phenom Summer McIntosh’s winning time of 2:03.03 set an Olympic record.`\
+https://nytimes.com/athletic/5675016/2024/08/01/summer-mcintosh-olympics-200-meter-butterfly/
+
 **The Key to Great Grilled Salmon? Do Less.**\
 `No sticking, no flipping: These two methods ensure stress-free, flawless grilled salmon any night of the week.`\
 https://nytimes.com/article/how-to-grill-salmon.html
