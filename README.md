@@ -1,3 +1,7 @@
+**John Dickerson and Maurice DuBois Named Anchors of ‘CBS Evening News’**\
+`The pair are part of a broader shake-up at the show, which includes the addition of Lonnie Quinn as a regular weather anchor.`\
+https://nytimes.com/2024/08/01/business/media/john-dickerson-maurice-dubois-cbs-evening-news.html
+
 **After a stint with his rival, Kyle Ford is back at USC with unfinished business**\
 `Ford is entering his sixth season of college football in 2024 and is back at USC, the school that started it all for him. `\
 https://nytimes.com/athletic/5674280/2024/08/01/kyle-ford-usc-ucla-receiver-transfer-college-football/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/01/world/europe/southport-stabbings-suspect-axel-rud
 **If D.O.T. Gets Its Way, Families Will Sit Together on Flights for Free**\
 `A new federal policy would require airlines to seat families together on flights, without incurring any extra fees.`\
 https://nytimes.com/2024/08/01/travel/transportation-department-family-seating-rule.html
-
-**Janet Evans watches Katie Ledecky and sees Olympic-sized what if**\
-`When Janet Evans swam, the women's 1,500-meter freestyle wasn't an option. On Wednesday, she wondered what could've been.`\
-https://nytimes.com/athletic/5674035/2024/08/01/janet-evans-katie-ledecky-olympics-1500-meter-freestyle/
 

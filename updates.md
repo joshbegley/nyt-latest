@@ -1,3 +1,11 @@
+**After a stint with his rival, Kyle Ford is back at USC with unfinished business**\
+`Ford is entering his sixth season of college football in 2024 and is back at USC, the school that started it all for him. `\
+https://nytimes.com/athletic/5674280/2024/08/01/kyle-ford-usc-ucla-receiver-transfer-college-football/
+
+**Capturing the Wonders of Mushrooms Through Dance**\
+`Plus: Long Island beach houses, Greek housewares and more recommendations from T Magazine.`\
+https://nytimes.com/2024/08/01/t-magazine/dance-heginbotham-john-cage-mushrooms.html
+
 **U.K. Stabbing Suspect Is Named as Judge Lifts Reporting Restrictions**\
 `A judge allowed the naming of the 17-year-old charged with three counts of murder and 10 of attempted murder, lifting Britain’s reporting restrictions to help counter misinformation, he said.`\
 https://nytimes.com/2024/08/01/world/europe/southport-stabbings-suspect-axel-rudakubana.html
