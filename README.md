@@ -1,3 +1,7 @@
+**Trump Remarks on Harris Evoke a Haunting and Unsettling History**\
+`White America has long sought to define racial categories — and who can belong to them.`\
+https://nytimes.com/2024/07/31/us/politics/trump-harris-race.html
+
 **Vance attacks Harris as a ‘phony’ who ‘grew up in Canada.’**\
 `Hours after Donald Trump questioned Kamala Harris’s racial identity, his running mate, Senator JD Vance, mocked her for having once lived in Canada.`\
 https://nytimes.com/live/2024/07/31/us/harris-trump-election/vance-harris-canada
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/crosswords/daily-puzzle-2024-08-01.html
 **Jack Flaherty reports to Dodgers with a revamped career and renewed expectations**\
 `Flaherty will make his Dodgers debut on Saturday hoping to show the form that once made him a Cy Young contender.`\
 https://nytimes.com/athletic/5673510/2024/07/31/dodgers-jack-flaherty-rotation/
-
-**Iran’s Options for Retaliation Risk Escalating Middle East Crisis**\
-`The killing of Hamas’s political leader in Tehran was a humiliating security failure for the Iranian government.`\
-https://nytimes.com/2024/07/31/us/politics/iran-retaliation-risk-middle-east.html
 
