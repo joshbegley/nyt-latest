@@ -1,3 +1,7 @@
+**Here’s the latest on the presidential race.**\
+`By Nicholas Nehamas and Simon J. Levien`\
+https://nytimes.com/live/2024/08/01/us/trump-harris-election-news/heres-the-latest-on-the-presidential-race
+
 **Wheatley to leave Red Bull and join Audi F1**\
 `Red Bull has announced that Jonathan Wheatley, its Formula One sporting director, will leave after 18 years to become Audi’s team principal.`\
 https://nytimes.com/athletic/5674225/2024/08/01/jonathan-wheatley-red-bull-audi-f1/
