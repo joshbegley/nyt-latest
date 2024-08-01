@@ -1,3 +1,23 @@
+**Who Is the Russian Assassin Freed as Part of a Sweeping Prisoner Exchange?**\
+`Vadim Krasikov was sentenced to life in prison in Germany for a brazen assassination in a downtown park in Berlin. Now he is free.`\
+https://nytimes.com/2024/08/01/world/europe/russia-krasikov-prisoner-swap.html
+
+**How Golf and Physics Are Raising the Limits in Shot-Put**\
+`Ryan Crouser, an American, has combined radar technology borrowed from golf and an innovative technique to take aim at his third straight Olympic gold.`\
+https://nytimes.com/2024/08/01/world/olympics/ryan-crouser-shotput-team-usa-trackman.html
+
+**How Did Roses Get Their Thorns?**\
+`The “prickles,” as botanists call them, evolved in roses and other plants thanks to a single gene, a new study found.`\
+https://nytimes.com/2024/08/01/science/how-did-roses-get-their-thorns.html
+
+**Trump’s Attack on Harris’s Racial Identity**\
+`Readers criticize the ex-president’s comments before a group of Black journalists. Also: “White Dudes for Harris”; Republicans with elite college degrees.`\
+https://nytimes.com/2024/08/01/opinion/donald-trump-kamala-harris-race.html
+
+**Blinken speaks to three released Americans: ‘They all sounded strong of voice.’**\
+`By Edward Wong`\
+https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/blinken-speaks-to-three-released-americans-they-all-sounded-strong-of-voice
+
 **Keanu Reeves and Alex Winter to Star in ‘Waiting for Godot’ on Broadway**\
 `They played slacker buddies in three “Bill & Ted” films, and next year they plan to reunite for Beckett’s classic tragicomedy.`\
 https://nytimes.com/2024/08/01/theater/keanu-reeves-broadway-godot.html
