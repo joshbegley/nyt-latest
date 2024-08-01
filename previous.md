@@ -1,40 +1,40 @@
-**Stitch by Stitch, Pacita Abad Crossed Continents and Cultures**\
-`The Filipino American artist is having her first retrospective at MoMA PS1 as the mainstream art world finally catches up to her work. “You will regret missing it,” our critic says.`\
-https://nytimes.com/2024/08/01/arts/design/stitch-by-stitch-pacita-abad-crossed-continents-and-cultures.html
+**Ten intriguing players who should get a shot to shine after the MLB trade deadline**\
+`There's playing time to be had on teams that are mostly trying to figure out who can be part of their next good squad.`\
+https://nytimes.com/athletic/5669055/2024/08/01/mlb-players-to-watch-post-trade-deadline/
 
-**‘Weird and Daunting’: 7,000 Readers Told Us How It Felt to Focus**\
-`A review of an experiment that gave “permission” to stop and look.`\
-https://nytimes.com/2024/08/01/upshot/experiment-focus-painting-art.html
+**Trump Promises Lower Interest Rates, but the President Doesn’t Control Those**\
+`The Federal Reserve sets interest rates, and it operates independently of the White House. But rates could come down as inflation cools.`\
+https://nytimes.com/2024/08/01/business/economy/trump-interest-rates-fed.html
 
-**Celebrity Coffee Is the Next Celebrity Tequila**\
-`Household names like Tom Hanks, Rudy Giuliani and the Weeknd are betting big on brew. Here’s what we thought of seven celebrity coffee brands.`\
-https://nytimes.com/2024/08/01/dining/celebrity-coffee.html
+**Elon Musk Blasts Venezuela’s Maduro in an Escalating War of Words**\
+`Mr. Musk, who has long criticized leftist politicians, called President Nicolás Maduro a “dictator” and compared him to a donkey.`\
+https://nytimes.com/2024/08/01/technology/elon-musk-maduro-venezuela.html
 
-**10 Wines From California, $20 to $40, to Drink Right Now**\
-`These bottles, from small producers, often cost a little more than their European counterparts, but they are superb with singular identities.`\
-https://nytimes.com/2024/08/01/dining/drinks/californian-wines.html
+**Big Ticket: N.Y.’s Top Sales and Listings in July**\
+`Take a look at some of the most high-profile real estate listings and sales in July in New York City.`\
+https://nytimes.com/interactive/2024/08/01/realestate/luxury/nyc-new-york-home-sales.html
 
-**Some Final Notes From the ‘Voice of God’**\
-`Milton Nascimento, a musical deity in Brazil, collaborates with the bassist, vocalist and producer Esperanza Spalding on an album that contemplates age’s effect on art.`\
-https://nytimes.com/2024/08/01/arts/music/milton-nascimento-esperanza-spalding.html
+**How ‘Brat’ Green Killed ‘Barbie’ Pink**\
+`Our take on the color of the summer.`\
+https://nytimes.com/2024/08/01/podcasts/how-brat-green-killed-barbie-pink.html
 
-**For DeMarvion Overshown and Marshawn Kneeland, big opportunity — and pressure — awaits**\
-`Overshown is coming off an ACL injury and Kneeland is the Cowboys' second-round pick. Expectations are high for the two defenders.`\
-https://nytimes.com/athletic/5671334/2024/08/01/dallas-cowboys-demarvion-overshown-marshawn-kneeland-defense/
+**Trump’s Plan for K-12 Schools Is Absolutely Bonkers**\
+`Can he do that?`\
+https://nytimes.com/live/2024/07/30/opinion/thepoint/trump-education-plan
 
-**Trumps of the Tropics: Brazil’s Far Right Plots Its Return**\
-`Bolsonaristas are (still) taking their cues from America’s MAGA movement.`\
-https://nytimes.com/2024/08/01/magazine/brazil-bolsonaro-trump.html
+**Emerson: SEC standings could get messy with 16 teams, but chaos can be fun**\
+`The SEC office and athletic directors want to get the tiebreakers as right as they can because there’s a good chance they’ll need them.`\
+https://nytimes.com/athletic/5672541/2024/08/01/sec-football-standings-tiebreakers/
 
-**Patriots stock report: Who's rising and who's falling after the first week?**\
-`After a week of training camp, we examine some players who are outperforming expectations and a few who are headed in the wrong direction.`\
-https://nytimes.com/athletic/5673059/2024/08/01/patriots-training-camp-thornton-smith-schuster/
+**How a Bruce Lee quote is shaping the way the Falcons think about their new run game**\
+`The Falcons are likely to scale back what had been the staple of their running game the last three seasons.`\
+https://nytimes.com/athletic/5669948/2024/08/01/falcons-running-game-zac-robinson-bruce-lee/
 
-**New York City’s Most Expensive Neighborhoods**\
-`Overall, prices and the number of sales remained relatively flat over a year, though a few neighborhoods saw big changes with just a handful of sales.`\
-https://nytimes.com/2024/08/01/realestate/new-york-citys-most-expensive-neighborhoods.html
+**One-man mock for the first round of fantasy football 2024 PPR drafts**\
+`Gary Davenport shares his pick-by-pick choices for the top 12 selections of a 2024 fantasy football PPR league, including two Jets players.`\
+https://nytimes.com/athletic/5672885/2024/08/01/one-man-mock-first-round-fantasy-football-2024-ppr-drafts/
 
-**Panthers have a history with Clemson ... except when it comes to draft picks**\
-`The Panthers played their home games at Clemson in their inaugural season. They still have never drafted a player from the school.`\
-https://nytimes.com/athletic/5673050/2024/08/01/carolina-panthers-clemson-draft-picks/
+**What's the future of NIL collectives after the House v. NCAA settlement?**\
+`The settlement is meant to implement regulations on third-party NIL payments, specifically eliminating pay-for-play. But will it work?`\
+https://nytimes.com/athletic/5672150/2024/08/01/nil-collectives-ncaa-lawsuit-settlement/
 
