@@ -1,3 +1,7 @@
+**Source: Giants to call up Triple-A masher Jerar Encarnación in roster makeover**\
+`Encarnación began his season with Oaxaca in the Mexican League and didn't stop raking after joining the Giants on a minor-league contract.`\
+https://nytimes.com/athletic/5674916/2024/08/01/sf-giants-jerar-encarnacion-call-up/
+
 **Full Time: U.S. advances and Canada stuns**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter. `\
 https://nytimes.com/athletic/5674807/2024/08/01/olympics-uswnt-canada-drones-quarterfinals-full-time/

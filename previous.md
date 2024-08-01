@@ -1,3 +1,7 @@
+**Source: Giants to call up Triple-A masher Jerar Encarnación in roster makeover**\
+`Encarnación began his season with Oaxaca in the Mexican League and didn't stop raking after joining the Giants on a minor-league contract.`\
+https://nytimes.com/athletic/5674916/2024/08/01/sf-giants-jerar-encarnacion-call-up/
+
 **Full Time: U.S. advances and Canada stuns**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter. `\
 https://nytimes.com/athletic/5674807/2024/08/01/olympics-uswnt-canada-drones-quarterfinals-full-time/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/30/opinion/thepoint/trump-platform-nabj
 **The swap is the latest use of hostage diplomacy tactics.**\
 `By Neil MacFarquhar`\
 https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/the-swap-is-the-latest-use-of-hostage-diplomacy-tactics
-
-**Turkey Aims to Cull Its Stray Dogs. Critics Say It’s About Politics.**\
-`Turkey’s new law aimed at moving millions of stray dogs to shelters, and allowing some to be euthanized, has both cultural and political implications.`\
-https://nytimes.com/2024/08/01/world/europe/turkey-stray-dog-law.html
 
