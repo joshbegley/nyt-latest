@@ -1,3 +1,7 @@
+**Léon Marchand, Katie Ledecky and a night worthy of Olympic swimming lore**\
+`We walk into sports arenas never quite knowing what we'll see, hoping we'll never forget it. On Wednesday, Olympic swimming delivered.`\
+https://nytimes.com/athletic/5673422/2024/07/31/leon-marchand-katie-ledecky-olympics-swimming-gold-medal/
+
 **Harris Responds to Trump’s Comments About Her Identity: ‘Divisiveness and Disrespect’**\
 `The vice president’s calibrated rebuttal was perhaps an early indication of how she will respond to racist and crude attacks from Donald Trump.`\
 https://nytimes.com/2024/07/31/us/politics/kamala-harris-donald-trump-black-voters.html

@@ -1,3 +1,7 @@
+**Léon Marchand, Katie Ledecky and a night worthy of Olympic swimming lore**\
+`We walk into sports arenas never quite knowing what we'll see, hoping we'll never forget it. On Wednesday, Olympic swimming delivered.`\
+https://nytimes.com/athletic/5673422/2024/07/31/leon-marchand-katie-ledecky-olympics-swimming-gold-medal/
+
 **Harris Responds to Trump’s Comments About Her Identity: ‘Divisiveness and Disrespect’**\
 `The vice president’s calibrated rebuttal was perhaps an early indication of how she will respond to racist and crude attacks from Donald Trump.`\
 https://nytimes.com/2024/07/31/us/politics/kamala-harris-donald-trump-black-voters.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5673311/2024/07/31/canada-womens-soccer-advance-oly
 **Border Arrests in July Drop to Low Under Biden**\
 `The total is expected to come in under 60,000 for the month, a precipitous fall from a peak of 250,000 in December, after President Biden imposed stricter border measures.`\
 https://nytimes.com/2024/07/31/us/politics/border-arrests-crossings-july.html
-
-**When It Comes to Trump, Harris Tries a Sunnier Tone**\
-`The vice president is keen to lead her party past the Trump-related burnout of years past and strike an ebullient tone.`\
-https://nytimes.com/2024/07/31/us/politics/kamala-harris-trump-democrats.html
 
