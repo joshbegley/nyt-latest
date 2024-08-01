@@ -1,3 +1,11 @@
+**Submit questions for Matt Gelb's Phillies mailbag**\
+`The Phillies enter August with a 6 1/2-game lead over the Braves in the division, but they've lost 11 of their last 15. What's on your mind?`\
+https://nytimes.com/athletic/5674371/2024/08/01/phillies-questions-submit/
+
+**Judge John Hodgman on the Right Way to Clean a Mouse Trap**\
+`The dishwasher beckons — but should you answer its call?`\
+https://nytimes.com/2024/08/01/magazine/judge-john-hodgman-on-the-right-way-to-clean-a-mouse-trap.html
+
 **Why are there still tickets available for the 2024 Paris Olympics?**\
 `You can still purchase tickets for many events — including the men's 100m final on Sunday. Are the prices too prohibitive? `\
 https://nytimes.com/athletic/5674243/2024/08/01/2024-paris-olympics-tickets-available/

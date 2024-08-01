@@ -1,3 +1,11 @@
+**Submit questions for Matt Gelb's Phillies mailbag**\
+`The Phillies enter August with a 6 1/2-game lead over the Braves in the division, but they've lost 11 of their last 15. What's on your mind?`\
+https://nytimes.com/athletic/5674371/2024/08/01/phillies-questions-submit/
+
+**Judge John Hodgman on the Right Way to Clean a Mouse Trap**\
+`The dishwasher beckons — but should you answer its call?`\
+https://nytimes.com/2024/08/01/magazine/judge-john-hodgman-on-the-right-way-to-clean-a-mouse-trap.html
+
 **Why are there still tickets available for the 2024 Paris Olympics?**\
 `You can still purchase tickets for many events — including the men's 100m final on Sunday. Are the prices too prohibitive? `\
 https://nytimes.com/athletic/5674243/2024/08/01/2024-paris-olympics-tickets-available/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5674203/2024/08/01/paige-bueckers-unrivaled-nil-dea
 **Here’s the latest on the presidential race.**\
 `By Nicholas Nehamas and Simon J. Levien`\
 https://nytimes.com/live/2024/08/01/us/trump-harris-election-news/heres-the-latest-on-the-presidential-race
-
-**Wheatley to leave Red Bull and join Audi F1**\
-`Red Bull has announced that Jonathan Wheatley, its Formula One sporting director, will leave after 18 years to become Audi’s team principal.`\
-https://nytimes.com/athletic/5674225/2024/08/01/jonathan-wheatley-red-bull-audi-f1/
-
-**South Korea Offers Aid to Flood-Stricken North Korea**\
-`If accepted, the help could lead to the first official dialogue in years between the two Koreas, which have recently been sending each other trash balloons and propaganda.`\
-https://nytimes.com/2024/08/01/world/asia/south-korea-north-korea-flood-aid.html
 
