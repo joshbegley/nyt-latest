@@ -1,3 +1,7 @@
+**Flood in Vermont Destroys Homes**\
+`One resident of Lyndonville described how a brook in his neighborhood overflowed, taking out several homes along with part of his front yard.`\
+https://nytimes.com/video/weather/100000009604463/vermont-flood-residents.html
+
 **Arrest Warrant Issued for ‘Power Rangers’ Actor Hector David Rivera**\
 `Mr. Rivera, whose stage name is Hector David Jr., was charged with battery in Idaho after a video showed him pushing an older man who used a walker, the police said.`\
 https://nytimes.com/2024/07/31/arts/television/power-ranger-hector-rivera-charged.html
