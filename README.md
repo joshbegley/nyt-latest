@@ -1,3 +1,7 @@
+**Why are there still tickets available for the 2024 Paris Olympics?**\
+`You can still purchase tickets for many events — including the men's 100m final on Sunday. Are the prices too prohibitive? `\
+https://nytimes.com/athletic/5674243/2024/08/01/2024-paris-olympics-tickets-available/
+
 **Bomb Smuggled Into Tehran Guesthouse Months Ago Killed Hamas Leader**\
 `An explosive device hidden in a heavily guarded complex where Ismail Haniyeh was known to stay in Iran was what killed him, according to a Times investigation.`\
 https://nytimes.com/2024/08/01/world/middleeast/how-hamas-leader-haniyeh-killed-iran-bomb.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5674225/2024/08/01/jonathan-wheatley-red-bull-audi-
 **South Korea Offers Aid to Flood-Stricken North Korea**\
 `If accepted, the help could lead to the first official dialogue in years between the two Koreas, which have recently been sending each other trash balloons and propaganda.`\
 https://nytimes.com/2024/08/01/world/asia/south-korea-north-korea-flood-aid.html
-
-**U.K. Stabbing Suspect Is Named as Judge Lifts Reporting Restrictions**\
-`A judge allowed the naming of the 17-year-old charged with three counts of murder and 10 of attempted murder, lifting Britain’s reporting restrictions to help counter misinformation, he said.`\
-https://nytimes.com/2024/08/01/world/europe/southport-stabbings-suspect-axel-rudakubana.html
 
