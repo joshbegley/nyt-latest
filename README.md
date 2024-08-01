@@ -1,3 +1,7 @@
+**Branson Robinson trending well at Georgia practice, receivers 'have potential'**\
+`Georgia opened practice Thursday, and head coach Kirby Smart and several players shared their thoughts on the team.`\
+https://nytimes.com/athletic/5675207/2024/08/01/georgia-football-takeaways-branson-robinson/
+
 **Ledecky becomes most decorated U.S. female Olympian**\
 `No female swimmer of any nationality has won more than 12 Olympic medals until Team USA's Katie Ledecky.`\
 https://nytimes.com/athletic/5674917/2024/08/01/katie-ledecky-medals-olympics-swimming/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/01/dining/pierogi-at-the-roller-rink.html
 **Germany released a prisoner who was particularly crucial to the swap.**\
 `By Christopher F. Schuetze`\
 https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/germany-released-a-prisoner-who-was-particularly-crucial-to-the-swap
-
-**Would Kamala Harris Be the First Gen X President?**\
-`She was born in 1964.`\
-https://nytimes.com/live/2024/07/30/opinion/thepoint/kamala-harris-gen-x
 
