@@ -1,3 +1,11 @@
+**Charlie Stillitano, football's Mr Fixer and confidante to Ferguson, Mourinho and Ancelotti**\
+`Mention Charlie Stillitano's name to Jose Mourinho, Carlo Ancelotti or Sir Alex Ferguson and they cannot wait to heap praise on him`\
+https://nytimes.com/athletic/5667538/2024/08/01/charlie-stillitano-profile-ferguson-mourinho-ancelotti/
+
+**The numbers game: 124 stats you need to know for fantasy football 2024**\
+`Theo Gremminger goes deep, offering up 124 numbers that managers should know for fantasy football 2024.`\
+https://nytimes.com/athletic/5670017/2024/08/01/124-stats-to-know-fantasy-football-2024/
+
 **Cardboard beds, no curtains, inedible food... welcome to the Olympic village**\
 `Athletes may be the Games' star attractions but they are not treated like royalty in Paris`\
 https://nytimes.com/athletic/5671640/2024/08/01/olympic-village/
