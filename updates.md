@@ -1,3 +1,7 @@
+**Bucs' Tristan Wirfs becomes highest-paid OL in NFL history with new deal: Sources**\
+`Wirfs, 25, is a three-time Pro Bowler, 2021 first-team All-Pro and 2022 second-team All-Pro tackle.`\
+https://nytimes.com/athletic/5674352/2024/08/01/tristan-wirfs-buccaneers-contract/
+
 **Submit questions for Matt Gelb's Phillies mailbag**\
 `The Phillies enter August with a 6 1/2-game lead over the Braves in the division, but they've lost 11 of their last 15. What's on your mind?`\
 https://nytimes.com/athletic/5674371/2024/08/01/phillies-questions-submit/
