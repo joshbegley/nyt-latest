@@ -1,7 +1,3 @@
-**6 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/08/01/books/review/new-books-recommendations.html
-
 **Golf Course Atop Ancient Native American Earthworks to Be Removed**\
 `After reaching a settlement with an Ohio country club to acquire its lease on the Octagon Earthworks, the state historical society intends to open the site as a public park.`\
 https://nytimes.com/2024/08/01/arts/design/octagon-earthworks-ohio-golf-course.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5672308/2024/08/01/jota-silva-to-nottingham-forest-
 **Adam Driver Is to Star Off Broadway as a Country-Western Singer**\
 `The actor will return to the stage this fall in a revival of Kenneth Lonergan’s “Hold On to Me Darling.”`\
 https://nytimes.com/2024/08/01/theater/adam-driver-off-broadway.html
+
+**Spicy Mapo Tofu Scramble and Citrusy Sumac Roasted Fish**\
+`This round of recipes goes all in on big flavors.`\
+https://nytimes.com/2024/08/01/spicy-mapo-tofu-scramble-and-citrusy-sumac-roasted-fish.html
 
