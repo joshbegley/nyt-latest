@@ -1,3 +1,15 @@
+**Plea Deal in 9/11 Case Is Announced in War Court**\
+`The accused mastermind of the plot, Khalid Shaikh Mohammed, appeared at a session as the agreement was disclosed. A sentencing hearing could begin next year.`\
+https://nytimes.com/2024/08/01/us/politics/sept11-plea-agreement.html
+
+**Greg Joseph gets a leg up on Anders Carlson in Packers' kicking competition**\
+`The seventh-year veteran has made 29 of 31 kicks during open practice so far during camp after spending the last three season in Minnesota.`\
+https://nytimes.com/athletic/5675228/2024/08/01/greg-joseph-anders-carlson-packers-kickers/
+
+**Harris Campaign Looks Poised to Beat Trump’s July Cash Haul**\
+`The Trump campaign reported raising $139 million along with allied groups. The vice president’s campaign previously reported $200 million raised in the seven days after President Biden dropped out.`\
+https://nytimes.com/2024/08/01/us/politics/harris-trump-fundraising-july.html
+
 **Bookmaker for Ohtani Interpreter Plans to Plead Guilty to Federal Charges**\
 `Mathew Bowyer, a Southern California resident, was under investigation when the authorities discovered that one of his gambling clients was the interpreter for the baseball star Shohei Ohtani.`\
 https://nytimes.com/2024/08/01/us/ohtani-interpreter-bookie-gambling.html
