@@ -1,3 +1,7 @@
+**Mexican Drug Lord Appears in Court After His Kidnapping to the U.S.**\
+`Ismael Zambada García, known as El Mayo, faced an initial hearing before a federal judge in Texas, a consequential moment in the history of the drug war.`\
+https://nytimes.com/2024/08/01/us/el-mayo-sinaloa-cartel-hearing.html
+
 **Browns' most competitive practice of camp features heavy dose of David Njoku**\
 `The offense opened things up in Thursday's practice session, as Deshaun Watson seemed to intentionally push the ball more downfield. `\
 https://nytimes.com/athletic/5675122/2024/08/01/cleveland-browns-nfl-training-camp-david-njoku/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/01/us/trump-harris-election-news/kamala-harris-
 **U.S. women's basketball bests Belgium in biggest test of Olympic group play**\
 `As has come to be expected with this group, A’ja Wilson and Breanna Stewart were the fulcrums around which everything successful functioned.`\
 https://nytimes.com/athletic/5675095/2024/08/01/usa-belgium-womens-basketball-olympics-results/
-
-**Israeli officials say Al Jazeera journalist killed in Gaza strike was a Hamas operative.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza/israeli-officials-say-al-jazeera-journalist-killed-in-gaza-strike-was-a-hamas-operative
 
