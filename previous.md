@@ -1,3 +1,7 @@
+**Team USA have found their best lineup**\
+`Steve Kerr's rotation has been under scrutiny so far, but he may have found just the right mix after two games.`\
+https://nytimes.com/athletic/5673519/2024/07/31/team-usa-mens-basketball-starting-lineup/
+
 **At long last, the Arizona Diamondbacks have found their stride — with much room to improve**\
 `The Diamondbacks have had to grind to get here, but after a strong July, they are among the hottest teams in baseball.`\
 https://nytimes.com/athletic/5673531/2024/07/31/diamondbacks-success-post-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/us/politics/kamala-harris-donald-trump-black-vote
 **Rafael Montero's departure from Astros delivers end to Jim Crane's messy 2022 winter**\
 `Montero was the second highest-salaried player let go by the Astros this summer.`\
 https://nytimes.com/athletic/5673404/2024/07/31/astros-rafael-montero-dfa-jim-crane-contract/
-
-**Vance’s Links to the Project 2025 Leader Complicate Trump’s Attempts at Distance**\
-`Donald Trump disavowed the set of conservative plans after it became a popular target for Democrats, but his running mate, JD Vance, wrote a foreword for a forthcoming book by its principal architect.`\
-https://nytimes.com/2024/07/31/us/politics/project-2025-vance-trump.html
 

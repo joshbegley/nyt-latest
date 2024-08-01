@@ -1,3 +1,7 @@
+**Team USA have found their best lineup**\
+`Steve Kerr's rotation has been under scrutiny so far, but he may have found just the right mix after two games.`\
+https://nytimes.com/athletic/5673519/2024/07/31/team-usa-mens-basketball-starting-lineup/
+
 **At long last, the Arizona Diamondbacks have found their stride — with much room to improve**\
 `The Diamondbacks have had to grind to get here, but after a strong July, they are among the hottest teams in baseball.`\
 https://nytimes.com/athletic/5673531/2024/07/31/diamondbacks-success-post-trade-deadline/
