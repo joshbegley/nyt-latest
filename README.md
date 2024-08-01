@@ -1,3 +1,7 @@
+**At long last, the Arizona Diamondbacks have found their stride — with much room to improve**\
+`The Diamondbacks have had to grind to get here, but after a strong July, they are among the hottest teams in baseball.`\
+https://nytimes.com/athletic/5673531/2024/07/31/diamondbacks-success-post-trade-deadline/
+
 **Ex-Green Beret Who Planned Failed 2020 Venezuela Coup Is Arrested by U.S.**\
 `Jordan Goudreau, 48, had taken credit for a failed coup attempt against Nicolás Maduro of Venezuela. He faces federal charges of illegal arms smuggling.`\
 https://nytimes.com/2024/07/31/world/americas/us-green-beret-venezuela-maduro-arrested.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5673404/2024/07/31/astros-rafael-montero-dfa-jim-cr
 **Vance’s Links to the Project 2025 Leader Complicate Trump’s Attempts at Distance**\
 `Donald Trump disavowed the set of conservative plans after it became a popular target for Democrats, but his running mate, JD Vance, wrote a foreword for a forthcoming book by its principal architect.`\
 https://nytimes.com/2024/07/31/us/politics/project-2025-vance-trump.html
-
-**U.S. 3x3 basketball teams are in a jam after two days**\
-`Both the U.S. men's and women's 3x3 basketball teams have put themselves in a big hole 48 hours into Olympic competition.`\
-https://nytimes.com/athletic/5672533/2024/07/31/us-3x3-basketball-olympic-losses/
 
