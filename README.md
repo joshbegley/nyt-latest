@@ -1,3 +1,7 @@
+**Flood in Vermont Destroys Homes**\
+`One resident of Lyndonville described how a brook in his neighborhood overflowed, taking out several homes along with part of his front yard.`\
+https://nytimes.com/video/weather/100000009604463/vermont-flood-residents.html
+
 **Arrest Warrant Issued for ‘Power Rangers’ Actor Hector David Rivera**\
 `Mr. Rivera, whose stage name is Hector David Jr., was charged with battery in Idaho after a video showed him pushing an older man who used a walker, the police said.`\
 https://nytimes.com/2024/07/31/arts/television/power-ranger-hector-rivera-charged.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5673531/2024/07/31/diamondbacks-success-post-trade-
 **Ex-Green Beret Who Planned Failed 2020 Venezuela Coup Is Arrested by U.S.**\
 `Jordan Goudreau, 48, had taken credit for a failed coup attempt against Nicolás Maduro of Venezuela. He faces federal charges of illegal arms smuggling.`\
 https://nytimes.com/2024/07/31/world/americas/us-green-beret-venezuela-maduro-arrested.html
-
-**Jameson Taillon on not getting traded, rumor season and what the Cubs are missing**\
-`Taillon: "Winning games in the big leagues takes everything being very buttoned-up and dialed. Every aspect of every game."`\
-https://nytimes.com/athletic/5673532/2024/07/31/jameson-taillon-cubs-trade-deadline-interview/
 
