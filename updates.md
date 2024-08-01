@@ -1,3 +1,19 @@
+**Would Kamala Harris Be the First Gen X President?**\
+`She was born in 1964.`\
+https://nytimes.com/live/2024/07/30/opinion/thepoint/kamala-harris-gen-x
+
+**Murray's tennis career ends in Olympic doubles defeat**\
+`Andy Murray&#8217;s tennis career ended the way it does for everybody else: a ball that bounced where he didn&#8217;t want it to bounce.`\
+https://nytimes.com/athletic/5675075/2024/08/01/andy-murray-tennis-career-olympics-last-match/
+
+**Rescuers say an Israeli strike on a Gaza school compound killed at least 15 people, including children.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza/rescuers-say-an-israeli-strike-on-a-gaza-school-compound-killed-at-least-15-people-including-children
+
+**Joe Engle, Groundbreaking Test Pilot and Astronaut, Dies at 91**\
+`He touched the edge of space in one aircraft, an X-15, and ventured beyond it in another, a NASA shuttle. But the moon, to his disappointment, became out of reach.`\
+https://nytimes.com/2024/08/01/science/space/joe-engle-dead.html
+
 **Chargers' Herbert injures right foot, expected to be ready by regular season**\
 `Herbert, 26, is coming off a 2023 season where he missed four games with a broken finger in his right hand.`\
 https://nytimes.com/athletic/5675143/2024/08/01/justin-herbert-foot-injury-chargers/

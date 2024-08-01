@@ -1,9 +1,21 @@
+**Would Kamala Harris Be the First Gen X President?**\
+`She was born in 1964.`\
+https://nytimes.com/live/2024/07/30/opinion/thepoint/kamala-harris-gen-x
+
+**Murray's tennis career ends in Olympic doubles defeat**\
+`Andy Murray&#8217;s tennis career ended the way it does for everybody else: a ball that bounced where he didn&#8217;t want it to bounce.`\
+https://nytimes.com/athletic/5675075/2024/08/01/andy-murray-tennis-career-olympics-last-match/
+
+**Rescuers say an Israeli strike on a Gaza school compound killed at least 15 people, including children.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza/rescuers-say-an-israeli-strike-on-a-gaza-school-compound-killed-at-least-15-people-including-children
+
 **Chargers' Herbert injures right foot, expected to be ready by regular season**\
 `Herbert, 26, is coming off a 2023 season where he missed four games with a broken finger in his right hand.`\
 https://nytimes.com/athletic/5675143/2024/08/01/justin-herbert-foot-injury-chargers/
 
-**Joe Engle, Groundbreaking Test Pilot and NASA Astronaut, Dies at 91**\
-`He trained under Chuck Yeager and flew an X-15 rocket plane to an altitude of 53 miles. He later commanded the space shuttles Columbia and Discovery.`\
+**Joe Engle, Groundbreaking Test Pilot and Astronaut, Dies at 91**\
+`He touched the edge of space in one aircraft, an X-15, and ventured beyond it in another, a NASA shuttle. But the moon, to his disappointment, became out of reach.`\
 https://nytimes.com/2024/08/01/science/space/joe-engle-dead.html
 
 **What to See in N.Y.C. Galleries in August**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5674956/2024/08/01/kate-douglass-200-meter-breastst
 **Jubilation Inside The Wall Street Journal After Gershkovich is Freed**\
 `“I cannot even begin to describe the immense happiness and relief that this news brings,” the paper’s editor wrote to the staff.`\
 https://nytimes.com/2024/08/01/business/media/wall-street-journal-evan-gershkovich.html
-
-**On Turning Black**\
-`Pitting the interests of minority groups against one another seems to be part of Trump’s re-election strategy.`\
-https://nytimes.com/2024/08/01/opinion/trump-harris-black-indian.html
-
-**Five observations from Ohio State's opening day of preseason practice**\
-`A murky QB battle and an electric receiving corps remained leading storylines as the Buckeyes went through their first practice of August.`\
-https://nytimes.com/athletic/5674870/2024/08/01/ohio-state-football-preseason-practice-observations/
-
-**Josh Shapiro, Potential Harris V.P. Pick, Cancels Weekend Fund-Raisers**\
-`The Pennsylvania governor had been scheduled to headline events in the Hamptons for his own campaign committee. Vice President Kamala Harris is expected to announce her running mate selection by Tuesday.`\
-https://nytimes.com/2024/08/01/us/politics/josh-shapiro-potential-harris-vp-pick-cancels-weekend-fund-raisers.html
 
