@@ -1,3 +1,7 @@
+**Jack Flaherty reports to Dodgers with a revamped career and renewed expectations**\
+`Flaherty will make his Dodgers debut on Saturday hoping to show the form that once made him a Cy Young contender.`\
+https://nytimes.com/athletic/5673510/2024/07/31/dodgers-jack-flaherty-rotation/
+
 **Iran’s Options for Retaliation Risk Escalating Middle East Crisis**\
 `The killing of Hamas’s political leader in Tehran was a humiliating security failure for the Iranian government.`\
 https://nytimes.com/2024/07/31/us/politics/iran-retaliation-risk-middle-east.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/style/nbc-olympics-influencers.html
 **12 Medals and Counting: Ledecky Ties for Most Decorated U.S. Female Olympian**\
 `Katie Ledecky won gold in the 1,500 freestyle final, bringing her medal count up to 12, matching the record for U.S. women across Olympic sports.`\
 https://nytimes.com/interactive/2024/07/31/sports/olympics/katie-ledecky-us-olympics-swimming.html
-
-**Canada soccer advances despite spying scandal: 'They take six points and we got nine'**\
-`Canada won all three games to advance to the 2024 Olympic quarterfinals.`\
-https://nytimes.com/athletic/5673311/2024/07/31/canada-womens-soccer-advance-olympics/
 
