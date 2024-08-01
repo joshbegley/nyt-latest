@@ -1,3 +1,27 @@
+**U.S. women's basketball bests Belgium in biggest test of Olympic group play**\
+`As has come to be expected with this group, A’ja Wilson and Breanna Stewart were the fulcrums around which everything successful functioned.`\
+https://nytimes.com/athletic/5675095/2024/08/01/usa-belgium-womens-basketball-olympics-results/
+
+**Israeli officials say Al Jazeera journalist killed in Gaza strike was a Hamas operative.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza/israeli-officials-say-al-jazeera-journalist-killed-in-gaza-strike-was-a-hamas-operative
+
+**Mayor Adams Wins Legal Battle Over Housing Voucher Expansion**\
+`A state judge ruled that the City Council did not have the legal authority to expand a housing voucher program.`\
+https://nytimes.com/2024/08/01/nyregion/mayor-adams-housing-vouchers.html
+
+**Vault + bars + beam + floor = gold for Simone Biles.**\
+`Here’s a look at how Simone Biles won the gymnastics all-around gold medal, one routine at a time.`\
+https://nytimes.com/2024/08/01/world/olympics/simone-biles-all-around.html
+
+**Russian state media portrays swap as a ‘big victory.’**\
+`By Ivan Nechepurenko`\
+https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/russian-state-media-portrays-swap-as-a-big-victory
+
+**JD Vance’s ‘Weakest Moment’ Remark About Simone Biles Draws New Scrutiny**\
+`The gymnast won a second Olympic all-around title on Thursday in Paris, three years after stepping away from competing because of a mental health issue.`\
+https://nytimes.com/2024/08/01/us/politics/jd-vance-simone-biles.html
+
 **Wisconsin preseason camp: 6 observations on QB play, freshman potential**\
 `Quarterbacks Tyler Van Dyke and Braedyn Locke continue to rotate in a competition for the starting job.`\
 https://nytimes.com/athletic/5675285/2024/08/01/wisconsin-college-football-darrion-dupree-camp/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5673755/2024/08/01/trent-williams-brandon-aiyuk-49e
 **Major Inmate Swap Frees Dissidents and U.S. Journalists From Russian Prisons**\
 `The Wall Street Journal reporter Evan Gershkovich was among 24 people released in a seven-nation, painstakingly negotiated deal that President Biden hailed as a triumph of diplomacy.`\
 https://nytimes.com/2024/08/01/world/europe/russia-gershkovich-prisoner-swap.html
-
-**For Suni Lee, a triumphant Olympic medal caps an improbable comeback**\
-`Suni Lee almost wasn't even able to try for these Olympics. Now, she's once again on the individual all-around podium.`\
-https://nytimes.com/athletic/5675306/2024/08/01/suni-lee-bronze-all-around-olympics-medal/
-
-**Trump Elevates False, Fringe Attacks on Harris to Center of His Campaign**\
-`Rivals and critics have for years accused Kamala Harris of shifting her personal identity for political advantage, with those attacks escalating dramatically online since she became the Democratic standard-bearer.`\
-https://nytimes.com/2024/08/01/us/politics/trump-harris-race.html
-
-**Branson Robinson trending well at Georgia practice, receivers 'have potential'**\
-`Georgia opened practice Thursday, and head coach Kirby Smart and several players shared their thoughts on the team.`\
-https://nytimes.com/athletic/5675207/2024/08/01/georgia-football-takeaways-branson-robinson/
-
-**Ledecky becomes most decorated U.S. female Olympian**\
-`No female swimmer of any nationality has won more than 12 Olympic medals until Team USA's Katie Ledecky.`\
-https://nytimes.com/athletic/5674917/2024/08/01/katie-ledecky-medals-olympics-swimming/
-
-**Trump Claims Judge Has Ties to Harris and Seeks to Toss Him Off Case**\
-`The daughter of the judge in Donald J. Trump’s Manhattan criminal trial has worked as a consultant for Democratic candidates, though her relationship to the vice president is unclear.`\
-https://nytimes.com/2024/08/01/nyregion/trump-merchan-hush-money-case.html
-
-**ADP watch: T.J. Hockenson on the rise, Kyren Williams falling, and more player value movement**\
-`Dane Martinez looks at the recent ADP data to identify the players who are rising or falling, like Kyren Williams, in July fantasy drafts.`\
-https://nytimes.com/athletic/5675224/2024/08/01/adp-stock-watch-risers-fallers-fantasy-football-2024/
 
