@@ -1,3 +1,7 @@
+**South Korea Offers Aid to Flood-Stricken North Korea**\
+`If accepted, the help could lead to the first official dialogue in years between the two Koreas, which have recently been sending each other trash balloons and propaganda.`\
+https://nytimes.com/2024/08/01/world/asia/south-korea-north-korea-flood-aid.html
+
 **U.K. Stabbing Suspect Is Named as Judge Lifts Reporting Restrictions**\
 `A judge allowed the naming of the 17-year-old charged with three counts of murder and 10 of attempted murder, lifting Britain’s reporting restrictions on identifying children under 18 in criminal cases.`\
 https://nytimes.com/2024/08/01/world/europe/southport-stabbings-suspect-axel-rudakubana.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5674125/2024/08/01/team-usa-gold-medal-count-olympi
 **Meta’s Lesson in Allaying Wall Street’s A.I. Fears**\
 `The tech giant is doubling down on its huge spending on artificial intelligence — but not at the expense of profits.`\
 https://nytimes.com/2024/08/01/business/dealbook/meta-ai-wall-street.html
-
-**Iheanacho joins Sevilla on free transfer**\
-`Sevilla have confirmed the signing of Kelechi Iheanacho on a free transfer.`\
-https://nytimes.com/athletic/5674139/2024/08/01/kelechi-iheanacho-joins-sevilla/
 
