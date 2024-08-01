@@ -1,3 +1,11 @@
+**Amazon Reports $148 Billion in Second Quarter Sales**\
+`The e-commerce giant’s stock dipped about 5 percent in after-hours trading after lower-than-expected guidance.`\
+https://nytimes.com/2024/08/01/technology/amazon-earnings-q2.html
+
+**Kamala Harris remembers Sheila Jackson Lee as a ‘fierce champion for justice.’**\
+`By Nicholas Nehamas`\
+https://nytimes.com/live/2024/08/01/us/trump-harris-election-news/kamala-harris-remembers-sheila-jackson-lee-as-a-fierce-champion-for-justice
+
 **U.S. women's basketball bests Belgium in biggest test of Olympic group play**\
 `As has come to be expected with this group, A’ja Wilson and Breanna Stewart were the fulcrums around which everything successful functioned.`\
 https://nytimes.com/athletic/5675095/2024/08/01/usa-belgium-womens-basketball-olympics-results/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5675285/2024/08/01/wisconsin-college-football-darri
 **Intel, Struggling to Turn Itself Around, Will Cut More Than 15,000 Jobs**\
 `The Silicon Valley chip maker also reported a net loss and declining revenue in the latest quarter.`\
 https://nytimes.com/2024/08/01/technology/intel-layoffs-quarterly-report.html
-
-**Trent Williams and Brandon Aiyuk have all the leverage, 49ers will have to bend**\
-`If 49ers management hoped that nobody would notice the absences of Williams and Aiyuk, well, the opposite has happened. It's glaring.`\
-https://nytimes.com/athletic/5673755/2024/08/01/trent-williams-brandon-aiyuk-49ers/
-
-**Major Inmate Swap Frees Dissidents and U.S. Journalists From Russian Prisons**\
-`The Wall Street Journal reporter Evan Gershkovich was among 24 people released in a seven-nation, painstakingly negotiated deal that President Biden hailed as a triumph of diplomacy.`\
-https://nytimes.com/2024/08/01/world/europe/russia-gershkovich-prisoner-swap.html
 
