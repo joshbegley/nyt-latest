@@ -1,3 +1,19 @@
+**Olympic golf has a pulse in Paris. Will it ever get louder? **\
+`Up to 30,000 people invaded Le Golf National for Round 1 on Thursday. It could even get bigger in Los Angeles in four years.`\
+https://nytimes.com/athletic/5675386/2024/08/01/olympic-golf-paris-crowd/
+
+**Sales of Macs and iPads Lead Apple’s Quarterly Revenue Up 5%**\
+`While iPhone sales dropped 1 percent, consumer interest in Apple’s flagship product is expected to pick up later this year.`\
+https://nytimes.com/2024/08/01/technology/apple-quarterly-revenue-up-5.html
+
+**Airlines are suspending some flights to the Middle East, citing rising tensions.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza/airlines-are-suspending-some-flights-to-the-middle-east-citing-rising-tensions
+
+**Friday Briefing: Evan Gershkovich Freed in a Prisoner Swap**\
+`Plus, how a Hamas leader was assassinated in Iran and a look inside the Olympic Village.`\
+https://nytimes.com/2024/08/01/briefing/gershkovich-deif-biles.html
+
 **Amazon Reports $148 Billion in Second Quarter Sales**\
 `The e-commerce giant’s stock dipped about 5 percent in after-hours trading after lower-than-expected guidance.`\
 https://nytimes.com/2024/08/01/technology/amazon-earnings-q2.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/08/01/nyregion/mayor-adams-housing-vouchers.html
 **Vault + bars + beam + floor = gold for Simone Biles.**\
 `Here’s a look at how Simone Biles won the gymnastics all-around gold medal, one routine at a time.`\
 https://nytimes.com/2024/08/01/world/olympics/simone-biles-all-around.html
-
-**Russian state media portrays swap as a ‘big victory.’**\
-`By Ivan Nechepurenko`\
-https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/russian-state-media-portrays-swap-as-a-big-victory
-
-**JD Vance’s ‘Weakest Moment’ Remark About Simone Biles Draws New Scrutiny**\
-`The gymnast won a second Olympic all-around title on Thursday in Paris, three years after stepping away from competing because of a mental health issue.`\
-https://nytimes.com/2024/08/01/us/politics/jd-vance-simone-biles.html
-
-**Wisconsin preseason camp: 6 observations on QB play, freshman potential**\
-`Quarterbacks Tyler Van Dyke and Braedyn Locke continue to rotate in a competition for the starting job.`\
-https://nytimes.com/athletic/5675285/2024/08/01/wisconsin-college-football-darrion-dupree-camp/
-
-**Intel Will Cut Over 15,000 Jobs Amid Struggles to Turn Itself Around**\
-`The Silicon Valley chip maker also reported a net loss and declining revenue in the latest quarter.`\
-https://nytimes.com/2024/08/01/technology/intel-layoffs-quarterly-report.html
 
