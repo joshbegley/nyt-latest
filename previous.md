@@ -1,3 +1,27 @@
+**Who Are the Most Prominent People Released in the Swap?**\
+`The prisoners released on Thursday include a Wall Street Journal reporter, an editor working for Radio Free Europe/Radio Liberty and a former U.S. Marine who had served in Iraq.`\
+https://nytimes.com/2024/08/01/world/europe/russia-prisoner-swap-who-whelan-gershkovich.html
+
+**Schumer Promises Year-End Judicial Push as Courts Gain New Political Importance**\
+`Pushing for an overhaul of the Supreme Court is a new priority as Democrats try to match Trump-era judicial confirmations, the Senate majority leader says.`\
+https://nytimes.com/2024/08/01/us/politics/schumer-supreme-court-justices.html
+
+**Secret Service’s Tech Flaws Helped Gunman Evade Detection at Trump Rally**\
+`Technologies that might have protected the former president failed because they were improperly deployed or because the Secret Service chose not to use them.`\
+https://nytimes.com/2024/08/01/us/politics/secret-service-technology-trump.html
+
+**Tiny Sprouts Spotted at the Stump of the Fallen Sycamore Gap Tree**\
+`Vandals last year chopped down the famed tree, which had stood on Hadrian’s Wall in England for nearly 200 years.`\
+https://nytimes.com/2024/08/01/world/europe/sycamore-gap-tree-sprouts.html
+
+**Russian Plane Lands in Turkey Amid Prisoner Swap**\
+`A plane with a Russian flag was seen landing in Ankara, Turkey, as a multi-country prisoner swap was taking place.`\
+https://nytimes.com/video/world/100000009605305/russia-us-prisioner-swap-turkey.html
+
+**6 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/08/01/books/review/new-books-recommendations.html
+
 **Golf Course Atop Ancient Native American Earthworks to Be Removed**\
 `After reaching a settlement with an Ohio country club to acquire its lease on the Octagon Earthworks, the state historical society intends to open the site as a public park.`\
 https://nytimes.com/2024/08/01/arts/design/octagon-earthworks-ohio-golf-course.html
@@ -6,35 +30,11 @@ https://nytimes.com/2024/08/01/arts/design/octagon-earthworks-ohio-golf-course.h
 `He was asked to take a salary cut last year as Barca struggled to register him with La Liga. Now he is in limbo again`\
 https://nytimes.com/athletic/5674283/2024/08/01/barcelona-transfers-inigo-martinez-registration-salary/
 
+**Missy Bo Kearns joins Villa from Liverpool**\
+`Aston Villa Women have completed the signing of Missy Bo Kearns from Liverpool for an undisclosed fee.`\
+https://nytimes.com/athletic/5674643/2024/08/01/missy-bo-kearns-aston-villa-liverpool/
+
 **Georgia dismisses Rara Thomas in aftermath of arrest**\
 `Thomas caught 23 passes for 383 yards with one touchdown last season. He missed the final three games because of a foot injury.`\
 https://nytimes.com/athletic/5669883/2024/08/01/georgia-football-rara-thomas/
-
-**Patriots' Judon rejoins practice amid contract dispute**\
-`Patriots coach Jerod Mayo downplayed the drama swirling around the team’s star pass rusher Thursday.`\
-https://nytimes.com/athletic/5674627/2024/08/01/matthew-judon-patriots-contract-practice/
-
-**Browns' Foreman rushed to hospital after injury**\
-`He rushed for 425 yards and four touchdowns in nine games last season for the Chicago Bears.`\
-https://nytimes.com/athletic/5674610/2024/08/01/browns-donta-foreman-injury/
-
-**The Windup: MLB's three biggest storylines up next**\
-`Today's baseball news.`\
-https://nytimes.com/athletic/5674678/2024/08/01/mlb-news-the-windup/
-
-**First Famine Declared in War-Torn Darfur Region of Sudan**\
-`Experts who monitor global hunger rarely make an official declaration of famine, but they just sounded the alarm for more than half a million people who have fled the fighting in Sudan’s civil war.`\
-https://nytimes.com/2024/08/01/world/africa/famine-declared-darfur-sudan-war.html
-
-**Jota Silva to Nottingham Forest: The Athletic 500 transfer ratings**\
-`The 25-year-old Portuguese enters the Premier League on the back of the most successful season of his career`\
-https://nytimes.com/athletic/5672308/2024/08/01/jota-silva-to-nottingham-forest-transfer-ratings/
-
-**Adam Driver Is to Star Off Broadway as a Country-Western Singer**\
-`The actor will return to the stage this fall in a revival of Kenneth Lonergan’s “Hold On to Me Darling.”`\
-https://nytimes.com/2024/08/01/theater/adam-driver-off-broadway.html
-
-**Spicy Mapo Tofu Scramble and Citrusy Sumac Roasted Fish**\
-`This round of recipes goes all in on big flavors.`\
-https://nytimes.com/2024/08/01/spicy-mapo-tofu-scramble-and-citrusy-sumac-roasted-fish.html
 
