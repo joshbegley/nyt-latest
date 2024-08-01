@@ -1,3 +1,7 @@
+**Iran’s Options for Retaliation Risk Escalating Middle East Crisis**\
+`The killing of Hamas’s political leader in Tehran was a humiliating security failure for the Iranian government.`\
+https://nytimes.com/2024/07/31/us/politics/iran-retaliation-risk-middle-east.html
+
 **Léon Marchand, Katie Ledecky and a night worthy of Olympic swimming lore**\
 `We walk into sports arenas never quite knowing what we'll see, hoping we'll never forget it. On Wednesday, Olympic swimming delivered.`\
 https://nytimes.com/athletic/5673422/2024/07/31/leon-marchand-katie-ledecky-olympics-swimming-gold-medal/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/07/31/sports/olympics/katie-ledecky-us-olym
 **Canada soccer advances despite spying scandal: 'They take six points and we got nine'**\
 `Canada won all three games to advance to the 2024 Olympic quarterfinals.`\
 https://nytimes.com/athletic/5673311/2024/07/31/canada-womens-soccer-advance-olympics/
-
-**Border Arrests in July Drop to Low Under Biden**\
-`The total is expected to come in under 60,000 for the month, a precipitous fall from a peak of 250,000 in December, after President Biden imposed stricter border measures.`\
-https://nytimes.com/2024/07/31/us/politics/border-arrests-crossings-july.html
 

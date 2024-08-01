@@ -1,3 +1,7 @@
+**Rafael Montero's departure from Astros delivers end to Jim Crane's messy 2022 winter**\
+`Montero was the second high-salaried player let go by the Astros this summer.`\
+https://nytimes.com/athletic/5673404/2024/07/31/astros-rafael-montero-dfa-jim-crane-contract/
+
 **Léon Marchand, Katie Ledecky and a night worthy of Olympic swimming lore**\
 `We walk into sports arenas never quite knowing what we'll see, hoping we'll never forget it. On Wednesday, Olympic swimming delivered.`\
 https://nytimes.com/athletic/5673422/2024/07/31/leon-marchand-katie-ledecky-olympics-swimming-gold-medal/
