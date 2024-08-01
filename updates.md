@@ -1,3 +1,7 @@
+**Scouts, executives weigh in on David Stearns' first trade deadline with the Mets**\
+`Evaluators from rival teams applauded the Mets' president of baseball operations for staying disciplined in a trade market lacking stars.`\
+https://nytimes.com/athletic/5674332/2024/08/01/mets-trade-deadline-scouts-executives-david-stearns/
+
 **Bucs' Tristan Wirfs becomes highest-paid OL in NFL history with new deal: Sources**\
 `Wirfs, 25, is a three-time Pro Bowler, 2021 first-team All-Pro and 2022 second-team All-Pro tackle.`\
 https://nytimes.com/athletic/5674352/2024/08/01/tristan-wirfs-buccaneers-contract/
