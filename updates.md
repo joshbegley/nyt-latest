@@ -1,3 +1,11 @@
+**Can Gouda’s Cheesemakers Stall a Sinking Future?**\
+`The small city where the renowned Dutch cheese is made is subsiding as sea levels rise. Experts say the industry may not survive there, even with the ingenuity of the country’s water managers.`\
+https://nytimes.com/2024/08/01/world/europe/netherlands-gouda-climate.html
+
+**Myles Peart-Harris: 'I'm ready to play for Brentford in the Premier League'**\
+`The Brentford midfielder believes loans at Forest Green and Portsmouth have done the trick - he now wants to prove himself to Thomas Frank`\
+https://nytimes.com/athletic/5652888/2024/08/01/myles-peart-harris-brentford/
+
 **Spurs want an energetic No 8 - but it may be time to widen the search**\
 `Having long admired Conor Gallagher and Jacob Ramsey, a move for either now looks less likely - can they fill the void?`\
 https://nytimes.com/athletic/5665327/2024/08/01/tottenham-transfers-midfield-gallagher-ramsey/
