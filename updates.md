@@ -1,3 +1,7 @@
+**Trump Elevates False, Fringe Attacks on Harris to Center of His Campaign**\
+`Rivals and critics have for years accused Kamala Harris of shifting her personal identity for political advantage, with those attacks escalating dramatically online since she became the Democratic standard-bearer.`\
+https://nytimes.com/2024/08/01/us/politics/trump-harris-race.html
+
 **Branson Robinson trending well at Georgia practice, receivers 'have potential'**\
 `Georgia opened practice Thursday, and head coach Kirby Smart and several players shared their thoughts on the team.`\
 https://nytimes.com/athletic/5675207/2024/08/01/georgia-football-takeaways-branson-robinson/

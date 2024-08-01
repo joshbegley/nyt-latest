@@ -1,3 +1,7 @@
+**Trump Elevates False, Fringe Attacks on Harris to Center of His Campaign**\
+`Rivals and critics have for years accused Kamala Harris of shifting her personal identity for political advantage, with those attacks escalating dramatically online since she became the Democratic standard-bearer.`\
+https://nytimes.com/2024/08/01/us/politics/trump-harris-race.html
+
 **Branson Robinson trending well at Georgia practice, receivers 'have potential'**\
 `Georgia opened practice Thursday, and head coach Kirby Smart and several players shared their thoughts on the team.`\
 https://nytimes.com/athletic/5675207/2024/08/01/georgia-football-takeaways-branson-robinson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5586730/2024/08/01/andy-murray-tennis-retirement-pl
 **Pierogi at the Roller Rink**\
 `It’s the Where to Eat: Catskills edition.`\
 https://nytimes.com/2024/08/01/dining/pierogi-at-the-roller-rink.html
-
-**Germany released a prisoner who was particularly crucial to the swap.**\
-`By Christopher F. Schuetze`\
-https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/germany-released-a-prisoner-who-was-particularly-crucial-to-the-swap
 
