@@ -1,3 +1,7 @@
+**Wheatley to leave Red Bull and join Audi F1**\
+`Red Bull has announced that Jonathan Wheatley, its Formula One sporting director, will leave after 18 years to become Audi’s team principal.`\
+https://nytimes.com/athletic/5674225/2024/08/01/jonathan-wheatley-red-bull-audi-f1/
+
 **South Korea Offers Aid to Flood-Stricken North Korea**\
 `If accepted, the help could lead to the first official dialogue in years between the two Koreas, which have recently been sending each other trash balloons and propaganda.`\
 https://nytimes.com/2024/08/01/world/asia/south-korea-north-korea-flood-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5673025/2024/08/01/chicago-cubs-motorola-patch-spon
 **Why is Team USA struggling in the Olympic gold-medal count? Look to the pool**\
 `Team USA is off to a slow start in the overall Olympic gold-medal count. A less-than-stellar week in the pool is a big part of the reason.`\
 https://nytimes.com/athletic/5674125/2024/08/01/team-usa-gold-medal-count-olympics-paris-swimming/
-
-**Meta’s Lesson in Allaying Wall Street’s A.I. Fears**\
-`The tech giant is doubling down on its huge spending on artificial intelligence — but not at the expense of profits.`\
-https://nytimes.com/2024/08/01/business/dealbook/meta-ai-wall-street.html
 
