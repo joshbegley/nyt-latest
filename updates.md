@@ -1,3 +1,15 @@
+**Armed With Saran Wrap, She Sinks in the Muck to Save the Planet**\
+`A dogged paleoecologist named Dorothy Peteet is digging through the salt marshes of New York in the hope of preserving the city’s best natural defense against climate change.`\
+https://nytimes.com/2024/08/01/nyregion/jamaica-bay-marsh-new-york-city.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/01/crosswords/spelling-bee-forum.html
+
+**An Office Tower Sold for $8.5 Million. It Was Once Worth 40 Times That.**\
+`The sale price of 135 West 50th Street in Midtown, which is only 35 percent full, was a sign of how much the pandemic upended the market for office buildings in New York City.`\
+https://nytimes.com/2024/08/01/nyregion/manhattan-office-building-auction.html
+
 **Quotation of the Day: Can You Beat the Olympians at Table Tennis? Stop Asking.**\
 `Quotation of the Day for Thursday, August 1, 2024.`\
 https://nytimes.com/2024/08/01/pageoneplus/quotation-of-the-day-can-you-beat-the-olympians-at-table-tennis-stop-asking.html
