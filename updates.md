@@ -1,3 +1,11 @@
+**Full Time: U.S. advances and Canada stuns**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
+https://nytimes.com/athletic/5674807/2024/08/01/olympics-uswnt-canada-drones-quarterfinals-full-time/
+
+**Biden Welcomes Relatives of Released Hostages to White House**\
+`President Biden, who negotiated the Russia prisoner release, delivered remarks surrounded by relatives of freed American hostages.`\
+https://nytimes.com/video/embedded/us/politics/100000009605521/biden-russia-hostage-release-prisoner-swap.html
+
 **The Best Movies and TV Shows Coming to Amazon, Disney+, Hulu and More in August**\
 `“Batman: Caped Crusader,” “Homicide: Life on the Street,” “OceanXplorers” and “Only Murders in the Building” will be streaming.`\
 https://nytimes.com/2024/08/01/arts/television/august-streaming-movies-tv-shows.html
