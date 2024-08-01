@@ -1,3 +1,19 @@
+**Air Force Finds Mechanical and Crew Failures in Fatal Osprey Crash Last Year**\
+`An investigation determined that missed warning signals and the “catastrophic failure” of a gearbox led to the crash off the coast of Japan in November.`\
+https://nytimes.com/2024/08/01/us/politics/air-force-osprey-crash-japan.html
+
+**Families of 9/11 Victims React to News of Accused Plotters’ Plea Deal**\
+`While family members differed in their support of the death penalty, many expressed frustration that the case had lingered for so long.`\
+https://nytimes.com/2024/08/01/nyregion/sept-11-families-plea.html
+
+**Bipartisan Legal Group Urges Lawyers to Defend Against ‘Rising Authoritarianism’**\
+`An American Bar Association task force of prominent legal thinkers gestures at former President Trump without naming him.`\
+https://nytimes.com/2024/08/01/us/politics/american-bar-association-democracy.html
+
+**MrBeast Acknowledges ‘Inappropriate Language’ in Earlier Videos**\
+`A representative for the popular YouTuber said that he was “trying to be funny” and made “bad jokes” in older videos of him that have resurfaced.`\
+https://nytimes.com/2024/08/01/us/mr-beast-youtube-inappropriate-language.html
+
 **Punkie Johnson Announces She Is Leaving ‘Saturday Night Live’**\
 `Johnson told a stand-up audience she was leaving “Saturday Night Live” before confirming her departure in an Instagram video the next day.`\
 https://nytimes.com/2024/08/01/arts/television/punkie-johnson-saturday-night-live.html
