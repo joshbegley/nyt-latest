@@ -1,3 +1,11 @@
+**South Korea Offers Aid to Flood-Stricken North Korea**\
+`If accepted, the help could lead to the first official dialogue in years between the two Koreas, which have recently been sending each other trash balloons and propaganda.`\
+https://nytimes.com/2024/08/01/world/asia/south-korea-north-korea-flood-aid.html
+
+**U.K. Stabbing Suspect Is Named as Judge Lifts Reporting Restrictions**\
+`A judge allowed the naming of the 17-year-old charged with three counts of murder and 10 of attempted murder, lifting Britain’s reporting restrictions on identifying children under 18 in criminal cases.`\
+https://nytimes.com/2024/08/01/world/europe/southport-stabbings-suspect-axel-rudakubana.html
+
 **If D.O.T. Gets Its Way, Families Will Sit Together on Flights for Free**\
 `A new federal policy would require airlines to seat families together on flights, without incurring any extra fees.`\
 https://nytimes.com/2024/08/01/travel/transportation-department-family-seating-rule.html
