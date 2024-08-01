@@ -1,3 +1,11 @@
+**Ledecky’s 13th Olympic medal is a silver, but one for the record books.**\
+`No female American Olympian has won more medals than Ledecky, who swam the third leg for the Americans’ 4x200 freestyle relay team that finished second behind Australia.`\
+https://nytimes.com/2024/08/01/world/olympics/katie-ledecky-record.html
+
+**Djokovic fears meniscus tear injury has recurred ahead of Olympic tennis semifinal**\
+`Djokovic said he felt a sharp pain in his right knee against Stefanos Tsitsipas, which stayed with him for a few games`\
+https://nytimes.com/athletic/5675453/2024/08/01/djokovic-knee-injury-paris-olympics/
+
 **The ‘Bridge of Spies’ was central to a history of prisoner swaps.**\
 `By Neil MacFarquhar`\
 https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/the-bridge-of-spies-was-central-to-a-history-of-prisoner-swaps
