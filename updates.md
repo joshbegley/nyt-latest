@@ -1,3 +1,7 @@
+**This Cowgirl’s Saddles Are Beautiful. The Wait Time Is Six Years.**\
+`Nancy Martiny’s ornate pieces, which sell for $5,000 and up, are meant to be ridden by working cowboys and cowgirls like herself.`\
+https://nytimes.com/2024/08/01/business/nancy-martiny-saddlemaker-horses-idaho.html
+
 **Flood in Vermont Destroys Homes**\
 `One resident of Lyndonville described how a brook in his neighborhood overflowed, taking out several homes along with part of his front yard.`\
 https://nytimes.com/video/weather/100000009604463/vermont-flood-residents.html

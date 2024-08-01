@@ -1,3 +1,7 @@
+**This Cowgirl’s Saddles Are Beautiful. The Wait Time Is Six Years.**\
+`Nancy Martiny’s ornate pieces, which sell for $5,000 and up, are meant to be ridden by working cowboys and cowgirls like herself.`\
+https://nytimes.com/2024/08/01/business/nancy-martiny-saddlemaker-horses-idaho.html
+
 **Flood in Vermont Destroys Homes**\
 `One resident of Lyndonville described how a brook in his neighborhood overflowed, taking out several homes along with part of his front yard.`\
 https://nytimes.com/video/weather/100000009604463/vermont-flood-residents.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5673519/2024/07/31/team-usa-mens-basketball-startin
 **At long last, the Arizona Diamondbacks have found their stride — with much room to improve**\
 `The Diamondbacks have had to grind to get here, but after a strong July, they are among the hottest teams in baseball.`\
 https://nytimes.com/athletic/5673531/2024/07/31/diamondbacks-success-post-trade-deadline/
-
-**Ex-Green Beret Who Planned Failed 2020 Venezuela Coup Is Arrested by U.S.**\
-`Jordan Goudreau, 48, had taken credit for a failed coup attempt against Nicolás Maduro of Venezuela. He faces federal charges of illegal arms smuggling.`\
-https://nytimes.com/2024/07/31/world/americas/us-green-beret-venezuela-maduro-arrested.html
 
