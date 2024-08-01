@@ -1,3 +1,7 @@
+**The Joyful Release of Evan Gershkovich Came at a High Price**\
+`Putin exploited the detention of innocents to win back real criminals.`\
+https://nytimes.com/live/2024/07/30/opinion/thepoint/the-joyful-release-of-evan-gershkovich-came-at-a-high-price
+
 **Source: Giants to call up Triple-A masher Jerar Encarnación in roster makeover**\
 `Encarnación began his season with Oaxaca in the Mexican League and didn't stop raking after joining the Giants on a minor-league contract.`\
 https://nytimes.com/athletic/5674916/2024/08/01/sf-giants-jerar-encarnacion-call-up/
