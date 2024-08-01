@@ -1,3 +1,7 @@
+**Liverpool's Elliott praised by Slot after pre-season win vs Arsenal**\
+`Liverpool head coach Arne Slot saluted the creative spark provided by Harvey Elliott after Liverpool beat Arsenal 2-1 in a pre-season friendly in Philadelphia.`\
+https://nytimes.com/athletic/5673915/2024/08/01/liverpool-harvey-elliott-arne-slot/
+
 **Logan Webb spins a shutout and reasserts a Giants rotation that cannot afford to falter**\
 `Webb did what he's done best since emerging as one of the league's best pitchers in 2021. He bailed everyone out.`\
 https://nytimes.com/athletic/5673853/2024/08/01/logan-webb-shutout-giants-rotation/
