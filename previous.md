@@ -1,3 +1,7 @@
+**Logan Webb spins a shutout and reasserts a Giants rotation that cannot afford to falter**\
+`Webb did what he's done best since emerging as one of the league's best pitchers in 2021. He bailed everyone out.`\
+https://nytimes.com/athletic/5673853/2024/08/01/logan-webb-shutout-giants-rotation/
+
 **Taylor Fritz's marathon Olympic day at Roland Garros: 3 matches in 9 hours**\
 `Fritz couldn't remember the last time he had a day like this. But it's been a while. Maybe back in his early junior days.`\
 https://nytimes.com/athletic/5671801/2024/08/01/taylor-fritz-three-matches-olympics-roland-garros/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5673820/2024/08/01/leny-yoro-injury-manchester-unit
 **The man who says he can fix Barcelona: Victor Font on Joan Laporta's presidency**\
 `He came second in Barca's presidential elections in 2021 and says waiting two more years until the next vote is 'not ideal'`\
 https://nytimes.com/athletic/5671691/2024/08/01/barcelona-laporta-president-victor-font/
-
-**The Brieifing: Man United 3 Real Betis 2 - Will Yoro injury mean further transfers? Amad dazzles**\
-`Amad shone in San Diego but there are more injury concerns for Manchester United and Erik ten Hag`\
-https://nytimes.com/athletic/5673776/2024/08/01/man-united-3-2-real-betis-yoro-injury-amad/
 
