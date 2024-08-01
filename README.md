@@ -1,3 +1,31 @@
+**ADP watch: T.J. Hockenson on the rise, Kyren Williams falling, and more player value movement**\
+`Dane Martinez looks at the recent ADP data to identify the players who are rising or falling, like Kyren Williams, in July fantasy drafts.`\
+https://nytimes.com/athletic/5675224/2024/08/01/adp-stock-watch-risers-fallers-fantasy-football-2024/
+
+**‘Cowboy Cartel’ Tells a Galloping Story**\
+`With a made-for-TV plot, this documentary series explores a ploy by Mexican drug cartels to launder money through the world of horseracing.`\
+https://nytimes.com/2024/08/01/arts/television/cowboy-cartel-apple-tv-plus.html
+
+**Opportunities for Tyrell Shavers, Damar Hamlin open up at training camp**\
+`Plus, Matt Milano is looking closer to his pre-injury form.`\
+https://nytimes.com/athletic/5675120/2024/08/01/buffalo-bills-camp-tyrell-shavers-matt-milano/
+
+**Former MSU coach Mel Tucker sues school, alleging 'unlawful termination'**\
+`The suit claims MSU conducted an "improper, biased, and sham investigation" designed to fire Tucker amid sexual harrassment allegations.`\
+https://nytimes.com/athletic/5674896/2024/08/01/mel-tucker-lawsuit-michigan-state-college-football/
+
+**'The one at the same level as us': Nadal, Gauff and Djokovic on Andy Murray**\
+`Andy Murray's impact on tennis went way beyond the court - 27 players, coaches, and his brother explain what he meant to the sport`\
+https://nytimes.com/athletic/5586730/2024/08/01/andy-murray-tennis-retirement-player-tributes-djokovic-nadal-gauff/
+
+**Pierogi at the Roller Rink**\
+`It’s the Where to Eat: Catskills edition.`\
+https://nytimes.com/2024/08/01/dining/pierogi-at-the-roller-rink.html
+
+**Germany released a prisoner who was particularly crucial to the swap.**\
+`By Christopher F. Schuetze`\
+https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/germany-released-a-prisoner-who-was-particularly-crucial-to-the-swap
+
 **Would Kamala Harris Be the First Gen X President?**\
 `She was born in 1964.`\
 https://nytimes.com/live/2024/07/30/opinion/thepoint/kamala-harris-gen-x
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/5675075/2024/08/01/andy-murray-tennis-career-olympi
 **Rescuers say an Israeli strike on a Gaza school compound killed at least 15 people, including children.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza/rescuers-say-an-israeli-strike-on-a-gaza-school-compound-killed-at-least-15-people-including-children
-
-**Chargers' Herbert injures right foot, expected to be ready by regular season**\
-`Herbert, 26, is coming off a 2023 season where he missed four games with a broken finger in his right hand.`\
-https://nytimes.com/athletic/5675143/2024/08/01/justin-herbert-foot-injury-chargers/
-
-**Joe Engle, Groundbreaking Test Pilot and Astronaut, Dies at 91**\
-`He touched the edge of space in one aircraft, an X-15, and ventured beyond it in another, a NASA shuttle. But the moon, to his disappointment, became out of reach.`\
-https://nytimes.com/2024/08/01/science/space/joe-engle-dead.html
-
-**What to See in N.Y.C. Galleries in August**\
-`This week in Newly Reviewed, Walker Mimms covers the overlooked artist Ker-Xavier Roussel, Fritz Scholder’s paintings and a group show in a modest office-like space.`\
-https://nytimes.com/2024/08/01/arts/design/nyc-galleries-august.html
-
-**Released Reporter Was Caught in Oppression His Parents Had Fled**\
-`Evan Gershkovich was raised in New Jersey by parents who left the Soviet Union to escape antisemitism and a lack of opportunity.`\
-https://nytimes.com/2024/08/01/world/europe/russia-evan-gershkovich-family.html
-
-**Fulham make £20m bid for McTominay**\
-`Fulham have made a £20million bid for Manchester United&#8217;s Scott McTominay.`\
-https://nytimes.com/athletic/5650294/2024/08/01/scott-mctominay-manchester-united-fulham-transfer/
-
-**Douglass wins first gold medal in 200-meter breaststroke**\
-`Douglass won silver as part of the U.S. women’s 4x100-meter freestyle relay over the weekend.`\
-https://nytimes.com/athletic/5674956/2024/08/01/kate-douglass-200-meter-breaststroke-olympics/
-
-**Jubilation Inside The Wall Street Journal After Gershkovich is Freed**\
-`“I cannot even begin to describe the immense happiness and relief that this news brings,” the paper’s editor wrote to the staff.`\
-https://nytimes.com/2024/08/01/business/media/wsj-evan-gershkovich-freed.html
 
