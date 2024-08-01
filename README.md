@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5673422/2024/07/31/leon-marchand-katie-ledecky-olym
 https://nytimes.com/2024/07/31/us/politics/kamala-harris-donald-trump-black-voters.html
 
 **Rafael Montero's departure from Astros delivers end to Jim Crane's messy 2022 winter**\
-`Montero was the second high-salaried player let go by the Astros this summer.`\
+`Montero was the second highest-salaried player let go by the Astros this summer.`\
 https://nytimes.com/athletic/5673404/2024/07/31/astros-rafael-montero-dfa-jim-crane-contract/
 
 **Vance’s Links to the Project 2025 Leader Complicate Trump’s Attempts at Distance**\
