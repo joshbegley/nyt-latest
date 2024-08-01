@@ -1,3 +1,19 @@
+**The Bounce: Five notes from Team USA's 2-0 start**\
+`Zach Harper and Shams Charania catch you up on league-wide news.`\
+https://nytimes.com/athletic/5674709/2024/08/01/team-usa-lebron-james-kevin-durant-south-sudan-olympics-vince-carter-nba-the-bounce/
+
+**Sunisa Lee is the reigning Olympic all-around champion.**\
+`Lee earned the chance to defend her title despite a kidney disease that made it unclear whether she would ever compete again.`\
+https://nytimes.com/live/2024/08/01/world/olympics-gymnastics-simone-biles/sunisa-lee-is-the-reigning-olympic-all-around-champion
+
+**Italian Boxer Quits Bout, Sparking Furor Over Gender at Olympics**\
+`The Italian, Angela Carini, stopped fighting only 46 seconds into her preliminary round matchup against Imane Khelif of Algeria.`\
+https://nytimes.com/2024/08/01/world/olympics/boxer-quits-gender-angela-carini-imane-khelif.html
+
+**A Pattern of Lavish Spending at a Leading L.G.B.T.Q. Nonprofit**\
+`GLAAD paid for its chief executive to fly first-class, rent a Cape Cod house and remodel her home office. It may have violated I.R.S. rules.`\
+https://nytimes.com/2024/08/01/business/glaad-ceo-spending.html
+
 **Leading soccer nations deny drone use after claim by Canada coach Priestman**\
 `Priestman has been suspended from soccer for a year for her involvement in the Canada drone scandal.`\
 https://nytimes.com/athletic/5674369/2024/08/01/canada-drones-priestman-womens-soccer/
