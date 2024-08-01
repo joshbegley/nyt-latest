@@ -1,3 +1,7 @@
+**Trump Escalates Race Attacks on Harris, Worrying Some Republicans**\
+`A day after telling Black journalists that Vice President Kamala Harris had recently decided to become “a Black person,” Mr. Trump shared a photo of Ms. Harris in traditional Indian clothing.`\
+https://nytimes.com/2024/08/01/us/politics/trump-kamala-harris-race.html
+
 **With Hostage Swap, Biden Scores a Win as His Term Nears Its End**\
 `The prisoner exchange offered a measure of validation for President Biden soon after he abandoned his bid for re-election.`\
 https://nytimes.com/2024/08/01/us/politics/biden-hostage-swap.html
