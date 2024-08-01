@@ -1,3 +1,35 @@
+**Zamir White goes from riding horses to the Raiders' new workhorse running back**\
+`White's jacked-up physique caught fans' attention, but much of his offseason worked revolved around the dozen horses on his farm.`\
+https://nytimes.com/athletic/5672141/2024/08/01/raiders-zamir-white-horses-training-camp/
+
+**Meet Anna Karolina Schmiedlova, the surprise tennis package of the Paris Olympics**\
+`The politically outspoken Slovak is guaranteed to play for one of the most unlikely medals at the 2024 Paris Olympics, in any sport`\
+https://nytimes.com/athletic/5672809/2024/08/01/anna-karolina-schmiedlova-tennis-player-profile-olympics/
+
+**‘Rob Peace’ Review: Risking the Future to Remedy the Past**\
+`The actor Chiwetel Ejiofor directs a cohesive ensemble — featuring Mary J. Blige, Michael Kelly, Mare Winningham, Camila Cabello and Jay Will — in a heart-wrenching tale based on a true story.`\
+https://nytimes.com/2024/08/01/movies/rob-peace-review.html
+
+**‘Sebastian’ Review: Sex Speaks Louder Than Words**\
+`For inspiration, a writer moonlights as an escort in this drama from Mikko Makela.`\
+https://nytimes.com/2024/08/01/movies/sebastian-review.html
+
+**‘Peak Season’ Review: Continental Divides**\
+`In this modest second feature, a disillusioned business-school graduate, taking a breather in high-altitude Wyoming, meets a rugged fly-fishing instructor.`\
+https://nytimes.com/2024/08/01/movies/peak-season-review.html
+
+**‘Kneecap’ Review: Beats Over Belfast**\
+`Members of the pioneering Irish-language rap group play versions of themselves in a gleefully chaotic film that casts them as tall-tale heroes.`\
+https://nytimes.com/2024/08/01/movies/kneecap-review.html
+
+**‘Harold and the Purple Crayon’ Review: He’s a Big Kid Now**\
+`Harold is an adult on a quest in this tale based on the beloved children’s book by Crockett Johnson.`\
+https://nytimes.com/2024/08/01/movies/harold-and-the-purple-crayon-review.html
+
+**‘Coup!’ Review: Pandemonium in a Pandemic — No, Not That One**\
+`In this obvious satire set amid the 1918 influenza, a wealthy, muckraking reporter hires a new chef who disrupts the estate’s hierarchy.`\
+https://nytimes.com/2024/08/01/movies/coup-review.html
+
 **The Threat of More War**\
 `We examine the contradictions in the Middle East.`\
 https://nytimes.com/2024/08/01/briefing/the-threat-of-more-war.html
@@ -5,36 +37,4 @@ https://nytimes.com/2024/08/01/briefing/the-threat-of-more-war.html
 **NBC's Olympics coverage enjoying a viewership surge, though there's a caveat**\
 `NBC is getting an Olympic-sized viewership surge, but a new way of reporting is making comparisons to past years apples-to-baguettes.`\
 https://nytimes.com/athletic/5672021/2024/08/01/nbc-olympics-coverage-paris-viewership/
-
-**Kim Yeji: The Paris Olympics' coolest athlete and a South Korean superstar**\
-`The internet’s new favourite Olympian, South Korean pistol shooter Kim Yeji, is one of the Paris Games’ most notable stars so far...`\
-https://nytimes.com/athletic/5672052/2024/08/01/kim-yeji-coolest-athlete-olympics-shooter/
-
-**Trump Falsely Questions Harris’s Race, and 9/11 Guilty Pleas**\
-`Plus, why so few world records in Paris?`\
-https://nytimes.com/2024/08/01/podcasts/trump-harris-9-11.html
-
-**What Chiefs receiver Nikko Remigio is doing to get noticed and make the roster**\
-`Remigio, who sticks to Patrick Mahomes as much as possible, has had an impressive camp as a slot receiver and kickoff returner.`\
-https://nytimes.com/athletic/5673147/2024/08/01/chiefs-nikko-remigio-training-camp/
-
-**Cardinals takeaways: How will their 3 trade deadline acquisitions fit in?**\
-`Erick Fedde, Tommy Pham and Shawn Armstrong arrive just in time to give the Cardinals "a certain energy," Oli Marmol said.`\
-https://nytimes.com/athletic/5672510/2024/08/01/cardinals-tommy-pham-trades/
-
-**The Long Shadow of Julian Assange’s Conviction**\
-`In June, the WikiLeaks founder agreed to a plea deal with the U.S. government. What does that mean for journalism?`\
-https://nytimes.com/2024/08/01/podcasts/the-daily/assanges-conviction-wikileaks.html
-
-**Rexrode: Jeffery Simmons' viral incident reminds us of what the Titans lost and must find**\
-`Simmons' excellence has overshadowed his occasional flare-ups, but this week's outburst cast light on the Titans' need for more leadership.`\
-https://nytimes.com/athletic/5673317/2024/08/01/tennessee-titans-jeffery-simmons-viral-outburst/
-
-**Wordle Review No. 1,140, Friday, August 2, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/08/01/crosswords/wordle-review-1140.html
-
-**The Connections Companion No. 418, August 2, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/08/01/crosswords/connections-companion-418.html
 
