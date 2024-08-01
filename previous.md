@@ -1,3 +1,7 @@
+**Gustavsson leaves Australia Women soccer role after Olympic exit**\
+`Tony Gustavsson has left his role as head coach of the Australia Women’s national team following their group-stage exit at the Olympics.`\
+https://nytimes.com/athletic/5673946/2024/08/01/tony-gustavsson-australia-manager-olympics/
+
 **Goodbye Pascal Gross - the player who defined Brighton's Premier League improvement**\
 `Compensating for losing Gross, the club's craftsman and assist machine, will not be easy`\
 https://nytimes.com/athletic/5668145/2024/08/01/pascal-gross-farewell-assists/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/01/nyregion/jamaica-bay-marsh-new-york-city.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/08/01/crosswords/spelling-bee-forum.html
-
-**An Office Tower Sold for $8.5 Million. It Was Once Worth 40 Times That.**\
-`The sale price of 135 West 50th Street in Midtown, which is only 35 percent full, was a sign of how much the pandemic upended the market for office buildings in New York City.`\
-https://nytimes.com/2024/08/01/nyregion/manhattan-office-building-auction.html
 

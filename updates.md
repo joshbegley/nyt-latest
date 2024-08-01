@@ -1,3 +1,7 @@
+**Gustavsson leaves Australia Women soccer role after Olympic exit**\
+`Tony Gustavsson has left his role as head coach of the Australia Women’s national team following their group-stage exit at the Olympics.`\
+https://nytimes.com/athletic/5673946/2024/08/01/tony-gustavsson-australia-manager-olympics/
+
 **Goodbye Pascal Gross - the player who defined Brighton's Premier League improvement**\
 `Compensating for losing Gross, the club's craftsman and assist machine, will not be easy`\
 https://nytimes.com/athletic/5668145/2024/08/01/pascal-gross-farewell-assists/
