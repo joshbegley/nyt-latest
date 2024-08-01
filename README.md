@@ -15,7 +15,7 @@ https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza/rescuer
 https://nytimes.com/athletic/5675143/2024/08/01/justin-herbert-foot-injury-chargers/
 
 **Joe Engle, Groundbreaking Test Pilot and Astronaut, Dies at 91**\
-`He touched the edge of space in one aircraft, an X-15, and ventured beyond it in another, a NASA shuttle. But the moon, to his disappointment, was out of reach.`\
+`He touched the edge of space in one aircraft, an X-15, and ventured beyond it in another, a NASA shuttle. But the moon, to his disappointment, became out of reach.`\
 https://nytimes.com/2024/08/01/science/space/joe-engle-dead.html
 
 **What to See in N.Y.C. Galleries in August**\
