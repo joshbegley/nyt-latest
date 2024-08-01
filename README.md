@@ -1,3 +1,7 @@
+**With Strife at Home, Security Concerns Grow for Israeli Olympians in Paris**\
+`Concerns for the Israeli team — which has been shrouded in protection at every Games since 1972 — have substantially increased since the Oct. 7 terrorist attacks and the war in Gaza.`\
+https://nytimes.com/2024/08/01/world/middleeast/olympics-paris-israel-security.html
+
 **NBA stars Jayson Tatum, Joel Embiid get rare 'humbling' experience on Team USA**\
 `On a roster of full of stars, some stars have to sit every night at the Olympics. It's been a "humbling experience" for many on Team USA.`\
 https://nytimes.com/athletic/5673358/2024/08/01/jayson-tatum-joel-embiid-team-usa-olympics-bench/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/01/movies/sebastian-review.html
 **‘Peak Season’ Review: Continental Divides**\
 `In this modest second feature, a disillusioned business-school graduate, taking a breather in high-altitude Wyoming, meets a rugged fly-fishing instructor.`\
 https://nytimes.com/2024/08/01/movies/peak-season-review.html
-
-**‘Kneecap’ Review: Beats Over Belfast**\
-`Members of the pioneering Irish-language rap group play versions of themselves in a gleefully chaotic film that casts them as tall-tale heroes.`\
-https://nytimes.com/2024/08/01/movies/kneecap-review.html
 
