@@ -1,3 +1,7 @@
+**Bueckers signs NIL deal with new Unrivaled league**\
+`Bueckers, who is entering her fifth season at UConn, is expected to join an Unrivaled team after her first WNBA season.`\
+https://nytimes.com/athletic/5674203/2024/08/01/paige-bueckers-unrivaled-nil-deal/
+
 **Here’s the latest on the presidential race.**\
 `By Nicholas Nehamas and Simon J. Levien`\
 https://nytimes.com/live/2024/08/01/us/trump-harris-election-news/heres-the-latest-on-the-presidential-race
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5674172/2024/08/01/zheng-qinwen-reaches-olympic-fin
 **How journeyman Isaac Yiadom is riding 'eff it' mentality to big role with 49ers**\
 `The 49ers are Yiadom's sixth team in seven NFL seasons but he feels like a new player after his resurgence with the Saints.`\
 https://nytimes.com/athletic/5670509/2024/08/01/49ers-isaac-yiadom-training-camp/
-
-**Cubs, Motorola sign multiyear sponsorship deal for the team's first jersey patch**\
-`The Cubs will unveil their classic pinstripe jerseys with the “official smartphone” patch at Thursday’s home game against St. Louis.`\
-https://nytimes.com/athletic/5673025/2024/08/01/chicago-cubs-motorola-patch-sponsorship-deal/
 

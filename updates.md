@@ -1,3 +1,7 @@
+**Bueckers signs NIL deal with new Unrivaled league**\
+`Bueckers, who is entering her fifth season at UConn, is expected to join an Unrivaled team after her first WNBA season.`\
+https://nytimes.com/athletic/5674203/2024/08/01/paige-bueckers-unrivaled-nil-deal/
+
 **Zheng Qinwen dashes Iga Swiatek's dreams of Olympic gold at Roland Garros**\
 `It is only the four-time French Open champion's third defeat at Roland Garros in five years`\
 https://nytimes.com/athletic/5674172/2024/08/01/zheng-qinwen-reaches-olympic-final-beating-iga-swiatek-at-roland-garros/
