@@ -1,7 +1,3 @@
-**Craig Shakespeare: Former Leicester manager dies aged 60**\
-`Former Leicester City manager Craig Shakespeare has passed away at the age of 60.`\
-https://nytimes.com/athletic/5675090/2024/08/01/craig-shakespeare-leicester/
-
 **The Key to Great Grilled Salmon? Do Less.**\
 `No sticking, no flipping: These two methods ensure stress-free, flawless grilled salmon any night of the week.`\
 https://nytimes.com/article/how-to-grill-salmon.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5674700/2024/08/01/gymnastics-all-around-final-simo
 **Two Russians released by Slovenia had acted as undercover spies.**\
 `By Andrew Higgins`\
 https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/russia-prisoner-exchange-slovenia
+
+**Harris Has Made Up Ground in Nevada. But the Road Ahead Is Steep.**\
+`Polls show Democrats’ chances have improved in Nevada since Vice President Kamala Harris was elevated. But she could face an uphill battle to win over undecided voters who had tuned out completely.`\
+https://nytimes.com/2024/08/01/us/politics/kamala-harris-nevada-trump.html
 
