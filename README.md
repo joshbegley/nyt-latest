@@ -1,3 +1,7 @@
+**Harris Has Made Up Ground in Nevada. But the Road Ahead Is Steep.**\
+`Polls show Democrats’ chances have improved in Nevada since Vice President Kamala Harris was elevated. But she could face an uphill battle to win over undecided voters who had tuned out completely.`\
+https://nytimes.com/2024/08/01/us/politics/kamala-harris-nevada-trump.html
+
 **A lawyer tried to visit a Russian held in Brooklyn. He was already gone.**\
 `Vadim Konoshchenok’s attorney went to find him at a federal detention center in Brooklyn, but no one could say where he was.`\
 https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/a-lawyer-tried-to-visit-a-russian-held-in-brooklyn-he-was-already-gone
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/blinken-speaks
 **What Trump Means When He Mispronounces ‘Kamala’**\
 `He says it doesn’t matter. History tells a different story.`\
 https://nytimes.com/2024/08/01/opinion/trump-kamala-harris-pronounce.html
-
-**Stream These 12 Movies Before They Leave Netflix in August**\
-`A ton of great titles are leaving for U.S. subscribers by the end of this month. Catch them while you can.`\
-https://nytimes.com/2024/08/01/movies/netflix-expiring-august.html
 
