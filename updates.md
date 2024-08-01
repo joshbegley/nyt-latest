@@ -1,3 +1,7 @@
+**Ex-Green Beret Who Planned Failed 2020 Venezuela Coup Is Arrested by U.S.**\
+`Jordan Goudreau, 48, had taken credit for a failed coup attempt against Nicolás Maduro of Venezuela. He faces federal charges of illegal arms smuggling.`\
+https://nytimes.com/2024/07/31/world/americas/us-green-beret-venezuela-maduro-arrested.html
+
 **Jameson Taillon on not getting traded, rumor season and what the Cubs are missing**\
 `Taillon: "Winning games in the big leagues takes everything being very buttoned-up and dialed. Every aspect of every game."`\
 https://nytimes.com/athletic/5673532/2024/07/31/jameson-taillon-cubs-trade-deadline-interview/
