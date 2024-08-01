@@ -1,3 +1,15 @@
+**Georgia dismisses Rara Thomas in aftermath of arrest**\
+`Thomas caught 23 passes for 383 yards with one touchdown last season. He missed the final three games because of a foot injury.`\
+https://nytimes.com/athletic/5669883/2024/08/01/georgia-football-rara-thomas/
+
+**Patriots' Judon rejoins practice amid contract dispute**\
+`Patriots coach Jerod Mayo downplayed the drama swirling around the team’s star pass rusher Thursday.`\
+https://nytimes.com/athletic/5674627/2024/08/01/matthew-judon-patriots-contract-practice/
+
+**Browns' Foreman rushed to hospital after injury**\
+`He rushed for 425 yards and four touchdowns in nine games last season for the Chicago Bears.`\
+https://nytimes.com/athletic/5674610/2024/08/01/browns-donta-foreman-injury/
+
 **The Windup: MLB's three biggest storylines up next**\
 `Today's baseball news.`\
 https://nytimes.com/athletic/5674678/2024/08/01/mlb-news-the-windup/

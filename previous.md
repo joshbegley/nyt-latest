@@ -1,3 +1,15 @@
+**Georgia dismisses Rara Thomas in aftermath of arrest**\
+`Thomas caught 23 passes for 383 yards with one touchdown last season. He missed the final three games because of a foot injury.`\
+https://nytimes.com/athletic/5669883/2024/08/01/georgia-football-rara-thomas/
+
+**Patriots' Judon rejoins practice amid contract dispute**\
+`Patriots coach Jerod Mayo downplayed the drama swirling around the team’s star pass rusher Thursday.`\
+https://nytimes.com/athletic/5674627/2024/08/01/matthew-judon-patriots-contract-practice/
+
+**Browns' Foreman rushed to hospital after injury**\
+`He rushed for 425 yards and four touchdowns in nine games last season for the Chicago Bears.`\
+https://nytimes.com/athletic/5674610/2024/08/01/browns-donta-foreman-injury/
+
 **The Windup: MLB's three biggest storylines up next**\
 `Today's baseball news.`\
 https://nytimes.com/athletic/5674678/2024/08/01/mlb-news-the-windup/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/01/technology/wsj-reporter-evan-gershkovich.html
 **Utah Supreme Court Upholds a Block on a Strict Abortion Ban**\
 `Utah cannot enforce its near-total ban on abortion while a challenge to the law proceeds in the courts, the State Supreme Court ruled on Thursday.`\
 https://nytimes.com/2024/08/01/us/utah-abortion-ban.html
-
-**Cody Bellinger’s post-deadline finish will frame how the Cubs start their long offseason**\
-`When the Cubs return to Wrigley on Thursday, the scene will not be what they envisioned when they re-signed Bellinger in spring training.`\
-https://nytimes.com/athletic/5673711/2024/08/01/cody-bellinger-cubs-post-trade-deadline/
-
-**Veteran Hayward announces retirement from NBA**\
-`The longtime forward spent his final season with the Hornets and Thunder.`\
-https://nytimes.com/athletic/5674529/2024/08/01/gordon-hayward-retirement-nba/
-
-**Here are the latest developments.**\
-`By Anton Troianovski, Mark Mazzetti and Ben Hubbard`\
-https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/evan-gershkovich-prisoner-exchange
 
