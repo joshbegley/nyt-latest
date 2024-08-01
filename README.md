@@ -1,3 +1,7 @@
+**Nottingham Forest sign Portugal winger Jota Silva**\
+`Nottingham Forest have completed the signing of Portuguese forward Jota Silva from Vitoria Guimaraes.`\
+https://nytimes.com/athletic/5674000/2024/08/01/jota-silva-notitngham-forest-transfer/
+
 **Tigers trade deadline takeaways: Tarik Skubal was 'not close' to getting moved and more**\
 `Leftover thoughts on Skubal, Detroit's pitching acquisitions and the plan for the rest of the season. `\
 https://nytimes.com/athletic/5673066/2024/08/01/tigers-trade-deadline-takeaways-tarik-skubal-not-moving/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/30/opinion/thepoint/trump-education-plan
 **Emerson: SEC standings could get messy with 16 teams, but chaos can be fun**\
 `The SEC office and athletic directors want to get the tiebreakers as right as they can because there’s a good chance they’ll need them.`\
 https://nytimes.com/athletic/5672541/2024/08/01/sec-football-standings-tiebreakers/
-
-**How a Bruce Lee quote is shaping the way the Falcons think about their new run game**\
-`The Falcons are likely to scale back what had been the staple of their running game the last three seasons.`\
-https://nytimes.com/athletic/5669948/2024/08/01/falcons-running-game-zac-robinson-bruce-lee/
 
