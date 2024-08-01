@@ -1,3 +1,7 @@
+**Scouts, executives weigh in on David Stearns' first trade deadline with the Mets**\
+`Evaluators from rival teams applauded the Mets' president of baseball operations for staying disciplined in a trade market lacking stars.`\
+https://nytimes.com/athletic/5674332/2024/08/01/mets-trade-deadline-scouts-executives-david-stearns/
+
 **Bucs' Tristan Wirfs becomes highest-paid OL in NFL history with new deal: Sources**\
 `Wirfs, 25, is a three-time Pro Bowler, 2021 first-team All-Pro and 2022 second-team All-Pro tackle.`\
 https://nytimes.com/athletic/5674352/2024/08/01/tristan-wirfs-buccaneers-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/01/t-magazine/dance-heginbotham-john-cage-mushrooms.
 **Jacob Trouba Q&A: On trade rumors, upcoming season and his first art gallery**\
 `Trouba spoke with The Athletic about the creation of the gallery, the Rangers' Eastern Conference final loss to Florida and more.`\
 https://nytimes.com/athletic/5673498/2024/08/01/rangers-jacob-trouba-nhl-trade/
-
-**Bueckers signs NIL deal with new Unrivaled league**\
-`Bueckers, who is entering her fifth season at UConn, is expected to join an Unrivaled team after her first WNBA season.`\
-https://nytimes.com/athletic/5674203/2024/08/01/paige-bueckers-unrivaled-nil-deal/
 
