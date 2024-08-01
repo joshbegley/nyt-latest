@@ -1,40 +1,40 @@
+**NBC's Olympics coverage enjoying a viewership surge, though there's a caveat**\
+`NBC is getting an Olympic-sized viewership surge, but a new way of reporting is making comparisons to past years apples-to-baguettes.`\
+https://nytimes.com/athletic/5672021/2024/08/01/nbc-olympics-coverage-paris-viewership/
+
+**Kim Yeji: The Paris Olympics' coolest athlete and a South Korean superstar**\
+`The internet’s new favourite Olympian, South Korean pistol shooter Kim Yeji, is one of the Paris Games’ most notable stars so far...`\
+https://nytimes.com/athletic/5672052/2024/08/01/kim-yeji-coolest-athlete-olympics-shooter/
+
+**Trump Falsely Questions Harris’s Race, and 9/11 Guilty Pleas**\
+`Plus, why so few world records in Paris?`\
+https://nytimes.com/2024/08/01/podcasts/trump-harris-9-11.html
+
+**What Chiefs receiver Nikko Remigio is doing to get noticed and make the roster**\
+`Remigio, who sticks to Patrick Mahomes as much as possible, has had an impressive camp as a slot receiver and kickoff returner.`\
+https://nytimes.com/athletic/5673147/2024/08/01/chiefs-nikko-remigio-training-camp/
+
+**Cardinals takeaways: How will their 3 trade deadline acquisitions fit in?**\
+`Erick Fedde, Tommy Pham and Shawn Armstrong arrive just in time to give the Cardinals "a certain energy," Oli Marmol said.`\
+https://nytimes.com/athletic/5672510/2024/08/01/cardinals-tommy-pham-trades/
+
+**The Long Shadow of Julian Assange’s Conviction**\
+`In June, the WikiLeaks founder agreed to a plea deal with the U.S. government. What does that mean for journalism?`\
+https://nytimes.com/2024/08/01/podcasts/the-daily/assanges-conviction-wikileaks.html
+
+**Rexrode: Jeffery Simmons' viral incident reminds us of what the Titans lost and must find**\
+`Simmons' excellence has overshadowed his occasional flare-ups, but this week's outburst cast light on the Titans' need for more leadership.`\
+https://nytimes.com/athletic/5673317/2024/08/01/tennessee-titans-jeffery-simmons-viral-outburst/
+
+**Wordle Review No. 1,140, Friday, August 2, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/08/01/crosswords/wordle-review-1140.html
+
+**The Connections Companion No. 418, August 2, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/08/01/crosswords/connections-companion-418.html
+
 **Nottingham Forest sign Portugal winger Jota Silva**\
 `Nottingham Forest have completed the signing of Portuguese forward Jota Silva from Vitoria Guimaraes.`\
 https://nytimes.com/athletic/5674000/2024/08/01/jota-silva-notitngham-forest-transfer/
-
-**Tigers trade deadline takeaways: Tarik Skubal was 'not close' to getting moved and more**\
-`Leftover thoughts on Skubal, Detroit's pitching acquisitions and the plan for the rest of the season. `\
-https://nytimes.com/athletic/5673066/2024/08/01/tigers-trade-deadline-takeaways-tarik-skubal-not-moving/
-
-**What should the Knicks and Julius Randle expect in contract extension negotiations?**\
-`Do the Knicks secure Randle for the long term? Or do they enter the season with his future uncertain?`\
-https://nytimes.com/athletic/5672708/2024/08/01/knicks-julius-randle-contract-negotiations/
-
-**Ten intriguing players who should get a shot to shine after the MLB trade deadline**\
-`There's playing time to be had on teams that are mostly trying to figure out who can be part of their next good squad.`\
-https://nytimes.com/athletic/5669055/2024/08/01/mlb-players-to-watch-post-trade-deadline/
-
-**Trump Promises Lower Interest Rates, but the President Doesn’t Control Those**\
-`The Federal Reserve sets interest rates, and it operates independently of the White House. But rates could come down as inflation cools.`\
-https://nytimes.com/2024/08/01/business/economy/trump-interest-rates-fed.html
-
-**Elon Musk Blasts Venezuela’s Maduro in an Escalating War of Words**\
-`Mr. Musk, who has long criticized leftist politicians, called President Nicolás Maduro a “dictator” and compared him to a donkey.`\
-https://nytimes.com/2024/08/01/technology/elon-musk-maduro-venezuela.html
-
-**Big Ticket: N.Y.’s Top Sales and Listings in July**\
-`Take a look at some of the most high-profile real estate listings and sales in July in New York City.`\
-https://nytimes.com/interactive/2024/08/01/realestate/luxury/nyc-new-york-home-sales.html
-
-**How ‘Brat’ Green Killed ‘Barbie’ Pink**\
-`Our take on the color of the summer.`\
-https://nytimes.com/2024/08/01/podcasts/how-brat-green-killed-barbie-pink.html
-
-**Trump’s Plan for K-12 Schools Is Absolutely Bonkers**\
-`Can he do that?`\
-https://nytimes.com/live/2024/07/30/opinion/thepoint/trump-education-plan
-
-**Emerson: SEC standings could get messy with 16 teams, but chaos can be fun**\
-`The SEC office and athletic directors want to get the tiebreakers as right as they can because there’s a good chance they’ll need them.`\
-https://nytimes.com/athletic/5672541/2024/08/01/sec-football-standings-tiebreakers/
 
