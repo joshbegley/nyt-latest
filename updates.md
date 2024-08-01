@@ -1,3 +1,7 @@
+**Titans' Hopkins to miss 4-6 weeks with knee strain**\
+`Hopkins, 32, played in all 17 games last season for the Titans, catching 75 passes for 1,057 yards and seven touchdowns.`\
+https://nytimes.com/athletic/5675730/2024/08/01/deandre-hopkins-titans-knee-injury/
+
 **Aleksei Navalny’s widow says the release of political prisoners is a ‘huge victory.’**\
 `By Neil MacFarquhar`\
 https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/navalny-yulia-nal

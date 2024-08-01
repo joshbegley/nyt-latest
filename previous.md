@@ -1,3 +1,7 @@
+**Titans' Hopkins to miss 4-6 weeks with knee strain**\
+`Hopkins, 32, played in all 17 games last season for the Titans, catching 75 passes for 1,057 yards and seven touchdowns.`\
+https://nytimes.com/athletic/5675730/2024/08/01/deandre-hopkins-titans-knee-injury/
+
 **Aleksei Navalny’s widow says the release of political prisoners is a ‘huge victory.’**\
 `By Neil MacFarquhar`\
 https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/navalny-yulia-nal
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/01/opinion/maga-tolkien-lotr.html
 **Harris Says She and Biden ‘Never Stopped’ Fighting for Release of Americans**\
 `The release of prisoners was a move by President Biden to secure his legacy. On Thursday, he and his White House made clear that Vice President Kamala Harris had been a partner in the effort.`\
 https://nytimes.com/2024/08/01/us/politics/harris-biden-russia-prisoners-americans.html
-
-**Air Force Finds Mechanical and Crew Failures in Fatal Osprey Crash Last Year**\
-`An investigation determined that missed warning signals and the “catastrophic failure” of a gearbox led to the crash off the coast of Japan in November.`\
-https://nytimes.com/2024/08/01/us/politics/air-force-osprey-crash-japan.html
 
