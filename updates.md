@@ -1,3 +1,7 @@
+**Mexican Drug Lord Appears in Court After His Kidnapping to the U.S.**\
+`Ismael Zambada García, known as El Mayo, faced an initial hearing before a federal judge in Texas, a consequential moment in the history of the drug war.`\
+https://nytimes.com/2024/08/01/us/el-mayo-sinaloa-cartel-hearing.html
+
 **Browns' most competitive practice of camp features heavy dose of David Njoku**\
 `The offense opened things up in Thursday's practice session, as Deshaun Watson seemed to intentionally push the ball more downfield. `\
 https://nytimes.com/athletic/5675122/2024/08/01/cleveland-browns-nfl-training-camp-david-njoku/
