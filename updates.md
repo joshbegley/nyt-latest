@@ -1,3 +1,11 @@
+**Who Was Freed in the Prisoner Swap Between Russia and the West?**\
+`Here’s a list of the 24 prisoners who were exchanged on Thursday and their backgrounds.`\
+https://nytimes.com/2024/08/01/world/europe/russia-prisoner-swap-detainees.html
+
+**Kaylia Nemour of Algeria could win Africa’s first gymnastics gold.**\
+`By Laura Cappelle`\
+https://nytimes.com/live/2024/08/01/world/olympics-gymnastics-simone-biles/kaylia-nemour-of-algeria-could-win-africas-first-gymnastics-gold
+
 **In a 911 Call, Sonya Massey’s Mother Asked That Police Not Hurt Her**\
 `A day before an officer shot and killed her daughter, Donna Massey told a dispatcher that she was having mental health issues and asked that they not send “combative” police.`\
 https://nytimes.com/2024/08/01/us/sonya-massey-911-calls.html
