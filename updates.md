@@ -1,3 +1,7 @@
+**Why are there still tickets available for the 2024 Paris Olympics?**\
+`You can still purchase tickets for many events — including the men's 100m final on Sunday. Are the prices too prohibitive? `\
+https://nytimes.com/athletic/5674243/2024/08/01/2024-paris-olympics-tickets-available/
+
 **Bomb Smuggled Into Tehran Guesthouse Months Ago Killed Hamas Leader**\
 `An explosive device hidden in a heavily guarded complex where Ismail Haniyeh was known to stay in Iran was what killed him, according to a Times investigation.`\
 https://nytimes.com/2024/08/01/world/middleeast/how-hamas-leader-haniyeh-killed-iran-bomb.html
