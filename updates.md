@@ -1,3 +1,7 @@
+**With Strife at Home, Security Concerns Grow for Israeli Olympians in Paris**\
+`Concerns for the Israeli team — which has been shrouded in protection at every Games since 1972 — have substantially increased since the Oct. 7 terrorist attacks and the war in Gaza.`\
+https://nytimes.com/2024/08/01/world/middleeast/olympics-paris-israel-security.html
+
 **Bank of England Cuts Interest Rates for First Time Since 2020**\
 `Central bank policymakers lowered rates to 5 percent amid lower inflation in Britain, but they warned that future rate cuts would come slowly.`\
 https://nytimes.com/2024/08/01/business/bank-of-england-interest-rates.html
