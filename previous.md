@@ -27,7 +27,7 @@ https://nytimes.com/athletic/5674529/2024/08/01/gordon-hayward-retirement-nba/
 https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/evan-gershkovich-prisoner-exchange
 
 **Live Updates: Russia Releases Evan Gershkovich in Sweeping Prisoner Swap, Turkish Officials Say**\
-`The Wall Street Journal reporter and others were freed in a prisoner swap in Turkey in the most far-reaching exchange between Russia and the West in decades.`\
+`The Wall Street Journal reporter and others were being freed in a prisoner swap in Turkey in the most far-reaching exchange between Russia and the West in decades.`\
 https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us
 
 **Thousands attend Hamas leader’s funeral in Tehran, including Iran’s supreme leader.**\

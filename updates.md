@@ -1,3 +1,7 @@
+**Live Updates: Russia Releases Evan Gershkovich in Sweeping Prisoner Swap, Turkish Officials Say**\
+`The Wall Street Journal reporter and others were being freed in a prisoner swap in Turkey in the most far-reaching exchange between Russia and the West in decades.`\
+https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us
+
 **Adam Driver Is to Star Off Broadway as a Country-Western Singer**\
 `The actor will return to the stage this fall in a revival of Kenneth Lonergan’s “Hold On to Me Darling.”`\
 https://nytimes.com/2024/08/01/theater/adam-driver-off-broadway.html
