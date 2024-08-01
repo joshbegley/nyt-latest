@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`Fears of escalation in the Middle East.`\
+https://nytimes.com/2024/08/01/briefing/middle-east-biden-harris-race.html
+
 **Can Gouda’s Cheesemakers Stall a Sinking Future?**\
 `The small city where the renowned Dutch cheese is made is subsiding as sea levels rise. Experts say the industry may not survive there, even with the ingenuity of the country’s water managers.`\
 https://nytimes.com/2024/08/01/world/europe/netherlands-gouda-climate.html

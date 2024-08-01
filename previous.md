@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`Fears of escalation in the Middle East.`\
+https://nytimes.com/2024/08/01/briefing/middle-east-biden-harris-race.html
+
 **Can Gouda’s Cheesemakers Stall a Sinking Future?**\
 `The small city where the renowned Dutch cheese is made is subsiding as sea levels rise. Experts say the industry may not survive there, even with the ingenuity of the country’s water managers.`\
 https://nytimes.com/2024/08/01/world/europe/netherlands-gouda-climate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5646015/2024/08/01/man-united-midfielder-transfer-t
 **Donna Vekic wanted to quit tennis in May. She's one win from an Olympic medal**\
 `The Croatian wanted out of tennis. Now she's in the best form of her life — thanks to the power of the reset`\
 https://nytimes.com/athletic/5671489/2024/08/01/donna-vekic-tennis-olympics/
-
-**Osimhen struggled last season - so how good is he?**\
-`Victor Osimhen starred as Napoli won the title, but struggled as they put together a terrible defence — so what went wrong?`\
-https://nytimes.com/athletic/5672120/2024/08/01/victor-osimhen-chelsea-transfer-napoli-analysis/
 
