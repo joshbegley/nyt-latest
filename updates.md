@@ -1,3 +1,7 @@
+**Punkie Johnson Announces She Is Leaving ‘Saturday Night Live’**\
+`Johnson told a stand-up audience she was leaving “Saturday Night Live” before confirming her departure in an Instagram video the next day.`\
+https://nytimes.com/2024/08/01/arts/television/punkie-johnson-saturday-night-live.html
+
 **MrBeast Acknowledges ‘Inappropriate Language’ in Earlier Videos**\
 `A representative for the popular YouTuber said that he was “trying to be funny” and made “bad jokes” in older videos of him that have resurfaced.`\
 https://nytimes.com/2024/08/01/us/mr-beast-youtube-inappropriate-language.html
