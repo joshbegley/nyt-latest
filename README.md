@@ -1,3 +1,7 @@
+**Full Time: U.S. advances and Canada stuns**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
+https://nytimes.com/athletic/5674807/2024/08/01/olympics-uswnt-canada-drones-quarterfinals-full-time/
+
 **The Best Movies and TV Shows Coming to Amazon, Disney+, Hulu and More in August**\
 `“Batman: Caped Crusader,” “Homicide: Life on the Street,” “OceanXplorers” and “Only Murders in the Building” will be streaming.`\
 https://nytimes.com/2024/08/01/arts/television/august-streaming-movies-tv-shows.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/the-swap-is-th
 **Turkey Aims to Cull Its Stray Dogs. Critics Say It’s About Politics.**\
 `Turkey’s new law aimed at moving millions of stray dogs to shelters, and allowing some to be euthanized, has both cultural and political implications.`\
 https://nytimes.com/2024/08/01/world/europe/turkey-stray-dog-law.html
-
-**4 Key Takeaways From The Times’s Reporting on Spending at GLAAD**\
-`The C.E.O.’s luxurious business travel and other spending may have violated the L.G.B.T.Q. group’s policies as well as Internal Revenue Service rules.`\
-https://nytimes.com/2024/08/01/business/glaad-spending-takeaways.html
 
