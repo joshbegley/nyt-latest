@@ -1,3 +1,11 @@
+**The Key to Great Grilled Salmon? Do Less.**\
+`No sticking, no flipping: These two methods ensure stress-free, flawless grilled salmon any night of the week.`\
+https://nytimes.com/article/how-to-grill-salmon.html
+
+**As Misery Multiplies, Pakistanis Rise Up Against the Ruling Elite**\
+`Unrest over a range of economic and security issues threatens to deepen the political turmoil that has plagued Pakistan for years.`\
+https://nytimes.com/2024/08/01/world/asia/pakistan-protests-politics.html
+
 **Canada's McIntosh wins gold in 200-meter butterfly**\
 `Summer McIntosh’s winning time of 2:03.03 set an Olympic record.`\
 https://nytimes.com/athletic/5675016/2024/08/01/summer-mcintosh-olympics-200-meter-butterfly/
