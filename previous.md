@@ -1,3 +1,11 @@
+**South Sudan is on the rise, just as Luol Deng envisioned it**\
+`Luol Deng invested in his home country, and he invested in basketball. The result is one of the Olympics' best stories of success.`\
+https://nytimes.com/athletic/5673546/2024/08/01/south-sudan-basketball-olympics-luol-deng/
+
+**What to Watch as Simone Biles Seeks Gold in All-Around Final**\
+`Biles is the favorite to win Thursday and become only the third woman to win two Olympic all-around titles.`\
+https://nytimes.com/2024/08/01/world/olympics/simone-biles-gymnastics-watch-all-around.html
+
 **Gustavsson leaves Australia Women soccer role after Olympic exit**\
 `Tony Gustavsson has left his role as head coach of the Australia Women’s national team following their group-stage exit at the Olympics.`\
 https://nytimes.com/athletic/5673946/2024/08/01/tony-gustavsson-australia-manager-olympics/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5673853/2024/08/01/logan-webb-shutout-giants-rotati
 **Taylor Fritz's marathon Olympic day at Roland Garros: 3 matches in 9 hours**\
 `Fritz couldn't remember the last time he had a day like this. But it's been a while. Maybe back in his early junior days.`\
 https://nytimes.com/athletic/5671801/2024/08/01/taylor-fritz-three-matches-olympics-roland-garros/
-
-**Armed With Saran Wrap, She Sinks in the Muck to Save the Planet**\
-`A dogged paleoecologist named Dorothy Peteet is digging through the salt marshes of New York in the hope of preserving the city’s best natural defense against climate change.`\
-https://nytimes.com/2024/08/01/nyregion/jamaica-bay-marsh-new-york-city.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/08/01/crosswords/spelling-bee-forum.html
 

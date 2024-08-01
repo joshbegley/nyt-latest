@@ -1,3 +1,11 @@
+**South Sudan is on the rise, just as Luol Deng envisioned it**\
+`Luol Deng invested in his home country, and he invested in basketball. The result is one of the Olympics' best stories of success.`\
+https://nytimes.com/athletic/5673546/2024/08/01/south-sudan-basketball-olympics-luol-deng/
+
+**What to Watch as Simone Biles Seeks Gold in All-Around Final**\
+`Biles is the favorite to win Thursday and become only the third woman to win two Olympic all-around titles.`\
+https://nytimes.com/2024/08/01/world/olympics/simone-biles-gymnastics-watch-all-around.html
+
 **Gustavsson leaves Australia Women soccer role after Olympic exit**\
 `Tony Gustavsson has left his role as head coach of the Australia Women’s national team following their group-stage exit at the Olympics.`\
 https://nytimes.com/athletic/5673946/2024/08/01/tony-gustavsson-australia-manager-olympics/
