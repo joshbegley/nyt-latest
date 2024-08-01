@@ -1,3 +1,7 @@
+**How an Olympic boxing dispute embroiled arguments about gender in sport**\
+`The contentious topic of gender in sport has made its way into a debate about how boxing is run at the Olympics, turning a murky administrative fight into the latest stage for combative arguments about how women should be allowed to compete.`\
+https://nytimes.com/athletic/5675415/2024/08/01/olympic-womens-boxing-dispute-imane-khelif/
+
 **Harris Remembers Congresswoman Sheila Jackson Lee**\
 `Vice President Kamala Harris eulogized the long-serving congresswoman from Texas during a memorial service on Thursday.`\
 https://nytimes.com/video/us/politics/100000009606654/harris-sheila-jackson-lee.html
@@ -11,7 +15,7 @@ https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/the-loved-ones
 https://nytimes.com/2024/08/01/us/politics/sept11-plea-agreement.html
 
 **Greg Joseph gets a leg up on Anders Carlson in Packers' kicking competition**\
-`The seventh-year veteran has made 29 of 31 kicks during open practice so far during camp after spending the last three season in Minnesota.`\
+`The seventh-year veteran has made 29 of 31 kicks during open practice so far during camp after spending the last three seasons in Minnesota.`\
 https://nytimes.com/athletic/5675228/2024/08/01/greg-joseph-anders-carlson-packers-kickers/
 
 **Harris Campaign Looks Poised to Beat Trump’s July Cash Haul**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/01/world/middleeast/israel-hamas-muhammad-deif.html
 **The Trolls Don’t Understand Harris’s Life Story**\
 `It reflects her conscious choices, and those of her mother.`\
 https://nytimes.com/live/2024/07/30/opinion/thepoint/harris-life-story-blackness
-
-**Russia Freed Evan Gershkovich in a Major Prisoner Swap**\
-`Also, a Hamas leader was killed by a bomb planted months ago. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2024/08/01/briefing/russia-freed-evan-gershkovich-lin-manuel-miranda.html
 
