@@ -1,3 +1,11 @@
+**Spurs want an energetic No 8 - but it may be time to widen the search**\
+`Having long admired Conor Gallagher and Jacob Ramsey, a move for either now looks less likely - can they fill the void?`\
+https://nytimes.com/athletic/5665327/2024/08/01/tottenham-transfers-midfield-gallagher-ramsey/
+
+**Why Chelsea's goalkeepers will be crucial to Enzo Maresca's system working**\
+`Enzo Maresca's system places particular demands on goalkeepers, which makes them crucial to any Chelsea success`\
+https://nytimes.com/athletic/5671414/2024/08/01/chelsea-enzo-maresca-goalkeepers-tactics/
+
 **Charlie Stillitano, football's Mr Fixer and confidante to Ferguson, Mourinho and Ancelotti**\
 `Mention Charlie Stillitano's name to Jose Mourinho, Carlo Ancelotti or Sir Alex Ferguson and they cannot wait to heap praise on him`\
 https://nytimes.com/athletic/5667538/2024/08/01/charlie-stillitano-profile-ferguson-mourinho-ancelotti/
