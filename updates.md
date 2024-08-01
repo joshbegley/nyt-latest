@@ -1,3 +1,11 @@
+**What Trump Means When He Mispronounces ‘Kamala’**\
+`He says it doesn’t matter. History tells a different story.`\
+https://nytimes.com/2024/08/01/opinion/trump-kamala-harris-pronounce.html
+
+**Stream These 12 Movies Before They Leave Netflix in August**\
+`A ton of great titles are leaving for U.S. subscribers by the end of this month. Catch them while you can.`\
+https://nytimes.com/2024/08/01/movies/netflix-expiring-august.html
+
 **The Joyful Release of Evan Gershkovich Came at a High Price**\
 `Putin exploited the detention of innocents to win back real criminals.`\
 https://nytimes.com/live/2024/07/30/opinion/thepoint/the-joyful-release-of-evan-gershkovich-came-at-a-high-price
