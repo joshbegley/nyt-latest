@@ -1,3 +1,7 @@
+**What to See in N.Y.C. Galleries in August**\
+`This week in Newly Reviewed, Walker Mimms covers the overlooked artist Ker-Xavier Roussel, Fritz Scholder’s paintings and a group show in a modest office-like space.`\
+https://nytimes.com/2024/08/01/arts/design/nyc-galleries-august.html
+
 **Released Reporter Was Caught in Oppression His Parents Had Fled**\
 `Evan Gershkovich was raised in New Jersey by parents who left the Soviet Union to escape antisemitism and a lack of opportunity.`\
 https://nytimes.com/2024/08/01/world/europe/russia-evan-gershkovich-family.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5675110/2024/08/01/mlb-world-series-postseason-sche
 **What Is the ‘It’ Water Bottle for Back-to-School Shopping?**\
 `The mighty Stanley’s reign appears to be ending, with Owala, Lululemon and Hydro Flask all competing for affection — and cachet — among teens and tweens.`\
 https://nytimes.com/2024/08/01/style/back-to-school-owala-stanley-cup.html
-
-**Meet the Scientist Who Wants to Alter Earth’s Atmosphere**\
-`Critics say even researching the idea is dangerous.`\
-https://nytimes.com/2024/08/01/climate/newsletter-keith-geoengineering.html
 
