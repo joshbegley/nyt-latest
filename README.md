@@ -1,3 +1,7 @@
+**Rafael Montero's departure from Astros delivers an end to Jim Crane's messy 2022 winter**\
+`Montero was the second high-salaried player let go by the Astros this summer.`\
+https://nytimes.com/athletic/5673404/2024/07/31/astros-rafael-montero-dfa-jim-crane-contract/
+
 **Vance’s Links to the Project 2025 Leader Complicate Trump’s Attempts at Distance**\
 `Donald Trump disavowed the set of conservative plans after it became a popular target for Democrats, but his running mate, JD Vance, wrote a foreword for a forthcoming book by its principal architect.`\
 https://nytimes.com/2024/07/31/us/politics/project-2025-vance-trump.html
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/5673311/2024/07/31/canada-womens-soccer-advance-oly
 `The total is expected to come in under 60,000 for the month, a precipitous fall from a peak of 250,000 in December, after President Biden imposed stricter border measures.`\
 https://nytimes.com/2024/07/31/us/politics/border-arrests-crossings-july.html
 
-**When It Comes to Trump, Harris Tries Lightening Up**\
+**When It Comes to Trump, Harris Tries a Sunnier Tone**\
 `The vice president is keen to lead her party past the Trump-related burnout of years past and strike an ebullient tone.`\
 https://nytimes.com/2024/07/31/us/politics/kamala-harris-trump-democrats.html
 
 **Jack Jones, Daniel Carlson and the Raiders' (secret?) plans for the new kickoff rules**\
 `Jones has been practicing kickoffs at Raiders training camp, but apparently special teams coach Tom McMahon hasn't seen it. (Wink.)`\
 https://nytimes.com/athletic/5673224/2024/07/31/raiders-kickoff-rules-jack-jones-daniel-carlson/
-
-**Assassination of a top Hamas leader spurs rallies worldwide.**\
-`.`\
-https://nytimes.com/2024/07/31/world/middleeast/assassination-of-a-top-hamas-leader-spurs-rallies-worldwide.html
 
