@@ -1,3 +1,7 @@
+**The Wall Street Journal kept Gershkovich’s detention front and center.**\
+`The Journal staged several events in his honor and set up a part of its website to call attention to the plight of the journalist during his lengthy detention in Russia.`\
+https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/wsj-reporter-evan-gershkovich
+
 **Utah Supreme Court Upholds a Block on a Strict Abortion Ban**\
 `Utah cannot enforce its near-total ban on abortion while a challenge to the law proceeds in the courts, the State Supreme Court ruled on Thursday.`\
 https://nytimes.com/2024/08/01/us/utah-abortion-ban.html
