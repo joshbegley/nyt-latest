@@ -1,3 +1,11 @@
+**Rafael Montero's departure from Astros delivers an end to Jim Crane's messy 2022 winter**\
+`Montero was the second high-salaried player let go by the Astros this summer.`\
+https://nytimes.com/athletic/5673404/2024/07/31/astros-rafael-montero-dfa-jim-crane-contract/
+
+**When It Comes to Trump, Harris Tries a Sunnier Tone**\
+`The vice president is keen to lead her party past the Trump-related burnout of years past and strike an ebullient tone.`\
+https://nytimes.com/2024/07/31/us/politics/kamala-harris-trump-democrats.html
+
 **U.S. 3x3 basketball teams are in a jam after two days**\
 `Both the U.S. men's and women's 3x3 basketball teams have put themselves in a big hole 48 hours into Olympic competition.`\
 https://nytimes.com/athletic/5672533/2024/07/31/us-3x3-basketball-olympic-losses/
