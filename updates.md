@@ -1,3 +1,7 @@
+**Katie Ledecky’s 13th Olympic medal is a silver, but one for the record books.**\
+`No female American Olympian has won more medals than Ledecky, who swam the third leg for the Americans’ 4x200 freestyle relay team that finished second behind Australia.`\
+https://nytimes.com/2024/08/01/world/olympics/katie-ledecky-record.html
+
 **Ledecky’s 13th Olympic medal is a silver, but one for the record books.**\
 `No female American Olympian has won more medals than Ledecky, who swam the third leg for the Americans’ 4x200 freestyle relay team that finished second behind Australia.`\
 https://nytimes.com/2024/08/01/world/olympics/katie-ledecky-record.html
