@@ -11,7 +11,7 @@ https://nytimes.com/2024/08/01/us/politics/biden-title-ix-gender-sex-discriminat
 https://nytimes.com/2024/08/01/opinion/iran-israel-war.html
 
 **Simone Biles soars to second Olympic all-around gold medal**\
-`Brazil's Rebeca Andrade took bronze.`\
+`Brazil's Rebeca Andrade took silver.`\
 https://nytimes.com/athletic/5674700/2024/08/01/gymnastics-all-around-final-simone-biles-olympics-2024/
 
 **Two Russians released by Slovenia had acted as undercover spies.**\
