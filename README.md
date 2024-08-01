@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Anton Troianovski, Mark Mazzetti and Ben Hubbard`\
+https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/evan-gershkovich-prisoner-exchange
+
+**Live Updates: Russia Releases Evan Gershkovich in Sweeping Prisoner Swap, Turkish Officials Say**\
+`The Wall Street Journal reporter and others were freed in a prisoner swap in Turkey in the most far-reaching exchange between Russia and the West in decades.`\
+https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us
+
 **Thousands attend Hamas leader’s funeral in Tehran, including Iran’s supreme leader.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza/thousands-attend-hamas-leaders-funeral-in-tehran-including-irans-supreme-leader
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/01/arts/bennington-dance-conservatory-of-philadelphi
 **NCAA launches NIL deal transparency platform: Will athletes, agents buy in?**\
 `In January, the Division I Council adopted new rules requiring athletes to disclose to their schools any NIL agreement exceeding $600.`\
 https://nytimes.com/athletic/5668716/2024/08/01/ncaa-nil-assist-platform-contract-information/
-
-**Productivity Surges 2.3%, Beating Forecasts**\
-`Output was up sharply in the second quarter, with the rise in goods produced far exceeding the increase in hours worked.`\
-https://nytimes.com/2024/08/01/business/economy/labor-productivity.html
-
-**Scouts, executives weigh in on David Stearns' first trade deadline with the Mets**\
-`Evaluators from rival teams applauded the Mets' president of baseball operations for staying disciplined in a trade market lacking stars.`\
-https://nytimes.com/athletic/5674332/2024/08/01/mets-trade-deadline-scouts-executives-david-stearns/
 

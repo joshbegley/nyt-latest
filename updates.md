@@ -1,3 +1,7 @@
+**Thousands attend Hamas leader’s funeral in Tehran, including Iran’s supreme leader.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza/thousands-attend-hamas-leaders-funeral-in-tehran-including-irans-supreme-leader
+
 **Don Lemon Sues Elon Musk Over Canceled X Deal**\
 `The former CNN reporter said in a lawsuit that X had refused to pay him after a testy interview with its billionaire owner.`\
 https://nytimes.com/2024/08/01/technology/don-lemon-elon-musk-lawsuit.html

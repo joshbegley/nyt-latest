@@ -1,3 +1,7 @@
+**Thousands attend Hamas leader’s funeral in Tehran, including Iran’s supreme leader.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza/thousands-attend-hamas-leaders-funeral-in-tehran-including-irans-supreme-leader
+
 **Don Lemon Sues Elon Musk Over Canceled X Deal**\
 `The former CNN reporter said in a lawsuit that X had refused to pay him after a testy interview with its billionaire owner.`\
 https://nytimes.com/2024/08/01/technology/don-lemon-elon-musk-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/01/business/economy/labor-productivity.html
 **Scouts, executives weigh in on David Stearns' first trade deadline with the Mets**\
 `Evaluators from rival teams applauded the Mets' president of baseball operations for staying disciplined in a trade market lacking stars.`\
 https://nytimes.com/athletic/5674332/2024/08/01/mets-trade-deadline-scouts-executives-david-stearns/
-
-**Bucs' Tristan Wirfs becomes highest-paid OL in NFL history with new deal: Sources**\
-`Wirfs, 25, is a three-time Pro Bowler, 2021 first-team All-Pro and 2022 second-team All-Pro tackle.`\
-https://nytimes.com/athletic/5674352/2024/08/01/tristan-wirfs-buccaneers-contract/
 
