@@ -1,3 +1,11 @@
+**Vance’s Links to the Project 2025 Leader Complicate Trump’s Attempts at Distance**\
+`Donald Trump disavowed the set of conservative plans after it became a popular target for Democrats, but his running mate, JD Vance, wrote a foreword for a forthcoming book by its principal architect.`\
+https://nytimes.com/2024/07/31/us/politics/project-2025-vance-trump.html
+
+**Canada soccer advances despite spying scandal: 'They take six points and we got nine'**\
+`Canada won all three games to advance to the 2024 Olympic quarterfinals.`\
+https://nytimes.com/athletic/5673311/2024/07/31/canada-womens-soccer-advance-olympics/
+
 **Abraham Hamadeh Wins G.O.P. House Primary in Arizona**\
 `In an unusual twist, Donald J. Trump had endorsed both Mr. Hamadeh and his rival, Blake Masters, effectively declaring that he had no preference in the primary race.`\
 https://nytimes.com/2024/07/31/us/politics/abraham-hamedah-blake-masters.html
