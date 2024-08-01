@@ -28,7 +28,7 @@ https://nytimes.com/athletic/5668992/2024/08/01/padres-trade-deadline-takeaways/
 
 **Zheng Qinwen dashes Iga Swiatek's dreams of Olympic gold at Roland Garros**\
 `It is only the four-time French Open champion's third defeat at Roland Garros in five years`\
-https://nytimes.com/athletic/5674172/2024/08/01/iga-swiatek-olympics-tennis-zheng-qinwen/
+https://nytimes.com/athletic/5674172/2024/08/01/zheng-qinwen-reaches-olympic-final-beating-iga-swiatek-at-roland-garros/
 
 **How journeyman Isaac Yiadom is riding 'eff it' mentality to big role with 49ers**\
 `The 49ers are Yiadom's sixth team in seven NFL seasons but he feels like a new player after his resurgence with the Saints.`\
