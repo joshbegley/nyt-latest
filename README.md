@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5674709/2024/08/01/team-usa-lebron-james-kevin-dura
 https://nytimes.com/live/2024/08/01/world/olympics-gymnastics-simone-biles/sunisa-lee-is-the-reigning-olympic-all-around-champion
 
 **Italian Boxer Quits Bout, Sparking Furor Over Gender at Olympics**\
-`The Italian, Angela Carini, stopped fighting only 46 seconds into her bout against Imane Khelif of Algeria.`\
+`The Italian, Angela Carini, stopped fighting only 46 seconds into her preliminary round matchup against Imane Khelif of Algeria.`\
 https://nytimes.com/2024/08/01/world/olympics/boxer-quits-gender-angela-carini-imane-khelif.html
 
 **A Pattern of Lavish Spending at a Leading L.G.B.T.Q. Nonprofit**\
