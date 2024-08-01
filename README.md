@@ -1,3 +1,7 @@
+**Once Backed by the N.R.A., Tim Walz Now Champions Tighter Gun Controls**\
+`The Minnesota governor, under consideration to be Vice President Kamala Harris’s running mate, began to push for new restrictions after a 2018 mass shooting.`\
+https://nytimes.com/2024/08/01/us/nra-tim-walz-guns.html
+
 **Second Inmate Sentenced in Beating Death of Whitey Bulger**\
 `Prosecutors said the inmate, Paul J. DeCologero, acted as a lookout in 2018 during the fatal beating of the notorious Boston underworld figure.`\
 https://nytimes.com/2024/08/01/us/whitey-bulger-decologero-sentencing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/01/movies/netflix-expiring-august.html
 **The Joyful Release of Evan Gershkovich Came at a High Price**\
 `Putin exploited the detention of innocents to win back real criminals.`\
 https://nytimes.com/2024/07/30/opinion/evan-gershkovich-release.html
-
-**Source: Giants to call up Triple-A masher Jerar Encarnación in roster makeover**\
-`Encarnación began his season with Oaxaca in the Mexican League and didn't stop raking after joining the Giants on a minor-league contract.`\
-https://nytimes.com/athletic/5674916/2024/08/01/sf-giants-jerar-encarnacion-call-up/
 
