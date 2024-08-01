@@ -1,3 +1,11 @@
+**Chargers' Herbert injures right foot, expected to be ready by regular season**\
+`Herbert, 26, is coming off a 2023 season where he missed four games with a broken finger in his right hand.`\
+https://nytimes.com/athletic/5675143/2024/08/01/justin-herbert-foot-injury-chargers/
+
+**Joe Engle, Groundbreaking Test Pilot and NASA Astronaut, Dies at 91**\
+`He trained under Chuck Yeager and flew an X-15 rocket plane to an altitude of 53 miles. He later commanded the space shuttles Columbia and Discovery.`\
+https://nytimes.com/2024/08/01/science/space/joe-engle-dead.html
+
 **What to See in N.Y.C. Galleries in August**\
 `This week in Newly Reviewed, Walker Mimms covers the overlooked artist Ker-Xavier Roussel, Fritz Scholder’s paintings and a group show in a modest office-like space.`\
 https://nytimes.com/2024/08/01/arts/design/nyc-galleries-august.html
