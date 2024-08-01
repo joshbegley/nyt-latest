@@ -1,3 +1,7 @@
+**Live Updates: Iran Holds Funeral for Assassinated Senior Hamas Leader**\
+`The country’s supreme leader, Ayatollah Ali Khamenei, led the funeral prayers for Ismail Haniyeh, whose death has amplified fears of a wider regional war.`\
+https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza
+
 **The Gaza War Has Never Been Confined to Gaza**\
 `With the assassination of a Hamas leader in Tehran, regional war looms ever closer.`\
 https://nytimes.com/2024/08/01/opinion/gaza-hamas-war-israel-palestinians.html
