@@ -1,3 +1,11 @@
+**Iran’s Options for Retaliation Risk Escalating Middle East Crisis**\
+`The killing of Hamas’s political leader in Tehran was a humiliating security failure for the Iranian government.`\
+https://nytimes.com/2024/07/31/us/politics/iran-retaliation-risk-middle-east.html
+
+**Rafael Montero's departure from Astros delivers end to Jim Crane's messy 2022 winter**\
+`Montero was the second highest-salaried player let go by the Astros this summer.`\
+https://nytimes.com/athletic/5673404/2024/07/31/astros-rafael-montero-dfa-jim-crane-contract/
+
 **Rafael Montero's departure from Astros delivers end to Jim Crane's messy 2022 winter**\
 `Montero was the second high-salaried player let go by the Astros this summer.`\
 https://nytimes.com/athletic/5673404/2024/07/31/astros-rafael-montero-dfa-jim-crane-contract/
