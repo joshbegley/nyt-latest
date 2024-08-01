@@ -1,3 +1,7 @@
+**First Famine Declared in War-Torn Darfur Region of Sudan**\
+`Experts who monitor global hunger rarely make an official declaration of famine, but they just sounded the alarm for more than half a million people who have fled the fighting in Sudan’s civil war.`\
+https://nytimes.com/2024/08/01/world/africa/famine-declared-darfur-sudan-war.html
+
 **Jota Silva to Nottingham Forest: The Athletic 500 transfer ratings**\
 `The 25-year-old Portuguese enters the Premier League on the back of the most successful season of his career`\
 https://nytimes.com/athletic/5672308/2024/08/01/jota-silva-to-nottingham-forest-transfer-ratings/
