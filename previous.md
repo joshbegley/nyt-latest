@@ -36,5 +36,5 @@ https://nytimes.com/athletic/5674956/2024/08/01/kate-douglass-200-meter-breastst
 
 **Jubilation Inside The Wall Street Journal After Gershkovich is Freed**\
 `“I cannot even begin to describe the immense happiness and relief that this news brings,” the paper’s editor wrote to the staff.`\
-https://nytimes.com/2024/08/01/business/media/wall-street-journal-evan-gershkovich.html
+https://nytimes.com/2024/08/01/business/media/wsj-evan-gershkovich-freed.html
 

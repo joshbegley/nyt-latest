@@ -1,3 +1,7 @@
+**Jubilation Inside The Wall Street Journal After Gershkovich is Freed**\
+`“I cannot even begin to describe the immense happiness and relief that this news brings,” the paper’s editor wrote to the staff.`\
+https://nytimes.com/2024/08/01/business/media/wsj-evan-gershkovich-freed.html
+
 **Would Kamala Harris Be the First Gen X President?**\
 `She was born in 1964.`\
 https://nytimes.com/live/2024/07/30/opinion/thepoint/kamala-harris-gen-x
