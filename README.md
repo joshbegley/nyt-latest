@@ -1,3 +1,7 @@
+**Several Senate Republicans criticize the strategy, but not the substance, of Trump’s comments on Harris.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/08/01/us/trump-harris-election-news/several-senate-republicans-criticize-the-strategy-but-not-the-substance-of-trumps-comments-on-harris
+
 **Giants 'Hard Knocks' takeaways: Did the team reveal too much?**\
 `Whatever privacy the Giants’ front office sacrificed, viewers gained from a closer look at the roster-building process.`\
 https://nytimes.com/athletic/5673475/2024/08/01/giants-hard-knocks-takeaways-joe-schoen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5674371/2024/08/01/phillies-questions-submit/
 **Judge John Hodgman on the Right Way to Clean a Mouse Trap**\
 `The dishwasher beckons — but should you answer its call?`\
 https://nytimes.com/2024/08/01/magazine/judge-john-hodgman-on-the-right-way-to-clean-a-mouse-trap.html
-
-**Why are there still tickets available for the 2024 Paris Olympics?**\
-`You can still purchase tickets for many events — including the men's 100m final on Sunday. Are the prices too prohibitive? `\
-https://nytimes.com/athletic/5674243/2024/08/01/2024-paris-olympics-tickets-available/
 
