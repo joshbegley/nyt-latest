@@ -1,3 +1,7 @@
+**Golf Course Atop Ancient Native American Earthworks to Be Removed**\
+`After reaching a settlement with an Ohio country club to acquire its lease on the Octagon Earthworks, the state historical society intends to open the site as a public park.`\
+https://nytimes.com/2024/08/01/arts/design/octagon-earthworks-ohio-golf-course.html
+
 **Inigo Martinez's Barcelona situation is a case study in uncertainty at the club**\
 `He was asked to take a salary cut last year as Barca struggled to register him with La Liga. Now he is in limbo again`\
 https://nytimes.com/athletic/5674283/2024/08/01/barcelona-transfers-inigo-martinez-registration-salary/
