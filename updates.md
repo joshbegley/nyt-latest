@@ -1,3 +1,7 @@
+**Keanu Reeves and Alex Winter to Star in ‘Waiting for Godot’ on Broadway**\
+`They played slacker buddies in three “Bill & Ted” films, and next year they plan to reunite for Beckett’s classic tragicomedy.`\
+https://nytimes.com/2024/08/01/theater/keanu-reeves-broadway-godot.html
+
 **The Joyful Release of Evan Gershkovich Came at a High Price**\
 `Putin exploited the detention of innocents to win back real criminals.`\
 https://nytimes.com/2024/07/30/opinion/evan-gershkovich-release.html

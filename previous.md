@@ -30,7 +30,7 @@ https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/trump-gershkov
 `President Biden, who negotiated the Russia prisoner release, delivered remarks surrounded by relatives of freed American hostages.`\
 https://nytimes.com/video/embedded/us/politics/100000009605521/biden-russia-hostage-release-prisoner-swap.html
 
-**Keanu Reeves and Alex Winter to Star on Broadway in ‘Waiting for Godot’**\
+**Keanu Reeves and Alex Winter to Star in ‘Waiting for Godot’ on Broadway**\
 `They played slacker buddies in three “Bill & Ted” films, and next year they plan to reunite for Beckett’s classic tragicomedy.`\
 https://nytimes.com/2024/08/01/theater/keanu-reeves-broadway-godot.html
 
