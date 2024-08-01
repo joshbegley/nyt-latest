@@ -1,3 +1,7 @@
+**Ex-Green Beret Who Planned Failed 2020 Venezuela Coup Is Arrested by U.S.**\
+`Jordan Goudreau, 48, had taken credit for a failed coup attempt against Nicolás Maduro of Venezuela. He faces federal charges of illegal arms smuggling.`\
+https://nytimes.com/2024/07/31/world/americas/us-green-beret-venezuela-maduro-arrested.html
+
 **Jameson Taillon on not getting traded, rumor season and what the Cubs are missing**\
 `Taillon: "Winning games in the big leagues takes everything being very buttoned-up and dialed. Every aspect of every game."`\
 https://nytimes.com/athletic/5673532/2024/07/31/jameson-taillon-cubs-trade-deadline-interview/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/31/us/politics/project-2025-vance-trump.html
 **U.S. 3x3 basketball teams are in a jam after two days**\
 `Both the U.S. men's and women's 3x3 basketball teams have put themselves in a big hole 48 hours into Olympic competition.`\
 https://nytimes.com/athletic/5672533/2024/07/31/us-3x3-basketball-olympic-losses/
-
-**Abraham Hamadeh Wins G.O.P. House Primary in Arizona**\
-`In an unusual twist, Donald J. Trump had endorsed both Mr. Hamadeh and his rival, Blake Masters, effectively declaring that he had no preference in the primary race.`\
-https://nytimes.com/2024/07/31/us/politics/abraham-hamedah-blake-masters.html
 
