@@ -1,3 +1,7 @@
+**Tigers trade deadline takeaways: Tarik Skubal was 'not close' to getting moved and more**\
+`Leftover thoughts on Skubal, Detroit's pitching acquisitions and the plan for the rest of the season. `\
+https://nytimes.com/athletic/5673066/2024/08/01/tigers-trade-deadline-takeaways-tarik-skubal-not-moving/
+
 **What should the Knicks and Julius Randle expect in contract extension negotiations?**\
 `Do the Knicks secure Randle for the long term? Or do they enter the season with his future uncertain?`\
 https://nytimes.com/athletic/5672708/2024/08/01/knicks-julius-randle-contract-negotiations/
