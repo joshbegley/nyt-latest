@@ -1,3 +1,7 @@
+**Liverpool's Elliott praised by Slot after pre-season win vs Arsenal**\
+`Liverpool head coach Arne Slot saluted the creative spark provided by Harvey Elliott after Liverpool beat Arsenal 2-1 in a pre-season friendly in Philadelphia.`\
+https://nytimes.com/athletic/5673915/2024/08/01/liverpool-harvey-elliott-arne-slot/
+
 **Logan Webb spins a shutout and reasserts a Giants rotation that cannot afford to falter**\
 `Webb did what he's done best since emerging as one of the league's best pitchers in 2021. He bailed everyone out.`\
 https://nytimes.com/athletic/5673853/2024/08/01/logan-webb-shutout-giants-rotation/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/01/pageoneplus/corrections-aug-1-2024.html
 **Manchester United injury blow as Yoro out for three months and Hojlund to miss six weeks**\
 `Manchester United expect Leny Yoro to miss around three months with a foot injury, while Rasmus Hojlund is expected to be out for around six weeks with a hamstring injury.`\
 https://nytimes.com/athletic/5673820/2024/08/01/leny-yoro-injury-manchester-united-hojlund/
-
-**The man who says he can fix Barcelona: Victor Font on Joan Laporta's presidency**\
-`He came second in Barca's presidential elections in 2021 and says waiting two more years until the next vote is 'not ideal'`\
-https://nytimes.com/athletic/5671691/2024/08/01/barcelona-laporta-president-victor-font/
 
