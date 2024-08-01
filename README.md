@@ -1,3 +1,19 @@
+**The Gaza War Has Never Been Confined to Gaza**\
+`With the assassination of a Hamas leader in Tehran, regional war looms ever closer.`\
+https://nytimes.com/2024/08/01/opinion/gaza-hamas-war-israel-palestinians.html
+
+**What 14 Voters Would Ask Kamala Harris if She Were on Truth Serum**\
+`The group discusses President Biden’s decision to withdraw from the race, Kamala Harris’s candidacy, her possible picks for vice president and more.`\
+https://nytimes.com/interactive/2024/08/01/opinion/harris-2024-focus-group.html
+
+**Here is the latest on the Ismail Haniyeh assassination.**\
+`By Farnaz Fassihi and Qasim Nauman`\
+https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza/here-is-the-latest-on-the-ismail-haniyeh-assassination
+
+**Live Updates: Iran Holds Funeral for Assassinated Senior Hamas Leader**\
+`The country’s supreme leader, Ayatollah Ali Khamenei, will lead the funeral prayers for Ismail Haniyeh, whose death has amplified fears of a wider regional war.`\
+https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza
+
 **'It was bad': Clayton Kershaw's struggles seal Dodgers' first full losing month in 6 years**\
 `Kershaw — in his second big-league start since shoulder surgery — failed to get a strikeout for the first time in 423 regular-season starts.`\
 https://nytimes.com/athletic/5673766/2024/08/01/clayton-kershaw-struggles-dodgers/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5665327/2024/08/01/tottenham-transfers-midfield-gal
 **Why Chelsea's goalkeepers will be crucial to Enzo Maresca's system working**\
 `Enzo Maresca's system places particular demands on goalkeepers, which makes them crucial to any Chelsea success`\
 https://nytimes.com/athletic/5671414/2024/08/01/chelsea-enzo-maresca-goalkeepers-tactics/
-
-**Charlie Stillitano, football's Mr Fixer and confidante to Ferguson, Mourinho and Ancelotti**\
-`Mention Charlie Stillitano's name to Jose Mourinho, Carlo Ancelotti or Sir Alex Ferguson and they cannot wait to heap praise on him`\
-https://nytimes.com/athletic/5667538/2024/08/01/charlie-stillitano-profile-ferguson-mourinho-ancelotti/
-
-**The numbers game: 124 stats you need to know for fantasy football 2024**\
-`Theo Gremminger goes deep, offering up 124 numbers that managers should know for fantasy football 2024.`\
-https://nytimes.com/athletic/5670017/2024/08/01/124-stats-to-know-fantasy-football-2024/
-
-**Cardboard beds, no curtains, inedible food... welcome to the Olympic village**\
-`Athletes may be the Games' star attractions but they are not treated like royalty in Paris`\
-https://nytimes.com/athletic/5671640/2024/08/01/olympic-village/
-
-**Shopping for Ten Hag: A defensive midfielder to complement Kobbie Mainoo**\
-`Matching with Mainoo is a tricky task, but there are options that can help United in the immediate seasons to come`\
-https://nytimes.com/athletic/5646015/2024/08/01/man-united-midfielder-transfer-ten-hag/
 
