@@ -1,3 +1,7 @@
+**Nottingham Forest sign Portugal winger Jota Silva**\
+`Nottingham Forest have completed the signing of Portuguese forward Jota Silva from Vitoria Guimaraes.`\
+https://nytimes.com/athletic/5674000/2024/08/01/jota-silva-notitngham-forest-transfer/
+
 **Tigers trade deadline takeaways: Tarik Skubal was 'not close' to getting moved and more**\
 `Leftover thoughts on Skubal, Detroit's pitching acquisitions and the plan for the rest of the season. `\
 https://nytimes.com/athletic/5673066/2024/08/01/tigers-trade-deadline-takeaways-tarik-skubal-not-moving/
