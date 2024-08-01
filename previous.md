@@ -1,3 +1,23 @@
+**Giants 'Hard Knocks' takeaways: Did the team reveal too much?**\
+`Whatever privacy the Giants’ front office sacrificed, viewers gained from a closer look at the roster-building process.`\
+https://nytimes.com/athletic/5673475/2024/08/01/giants-hard-knocks-takeaways-joe-schoen/
+
+**Lin-Manuel Miranda’s Next Project: A ‘Warriors’ Album With Eisa Davis**\
+`The recording, inspired by Walter Hill’s 1979 film about a gang making a perilous trek through New York City, will be available on Oct. 18.`\
+https://nytimes.com/2024/08/01/theater/lin-manuel-miranda-warriors-album.html
+
+**Bennington to Revive Dance Program of Philadelphia Arts School**\
+`Bennington College raised nearly $1.3 million to absorb the dance program of the University of the Arts, which shuttered suddenly in June.`\
+https://nytimes.com/2024/08/01/arts/bennington-dance-conservatory-of-philadelphia-arts-school.html
+
+**NCAA launches NIL deal transparency platform: Will athletes, agents buy in?**\
+`In January, the Division I Council adopted new rules requiring athletes to disclose to their schools any NIL agreement exceeding $600.`\
+https://nytimes.com/athletic/5668716/2024/08/01/ncaa-nil-assist-platform-contract-information/
+
+**Productivity Surges 2.3%, Beating Forecasts**\
+`Output was up sharply in the second quarter, with the rise in goods produced far exceeding the increase in hours worked.`\
+https://nytimes.com/2024/08/01/business/economy/labor-productivity.html
+
 **Scouts, executives weigh in on David Stearns' first trade deadline with the Mets**\
 `Evaluators from rival teams applauded the Mets' president of baseball operations for staying disciplined in a trade market lacking stars.`\
 https://nytimes.com/athletic/5674332/2024/08/01/mets-trade-deadline-scouts-executives-david-stearns/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/08/01/magazine/judge-john-hodgman-on-the-right-way-to-c
 **Why are there still tickets available for the 2024 Paris Olympics?**\
 `You can still purchase tickets for many events — including the men's 100m final on Sunday. Are the prices too prohibitive? `\
 https://nytimes.com/athletic/5674243/2024/08/01/2024-paris-olympics-tickets-available/
-
-**Bomb Smuggled Into Tehran Guesthouse Months Ago Killed Hamas Leader**\
-`An explosive device hidden in a heavily guarded complex where Ismail Haniyeh was known to stay in Iran was what killed him, according to a Times investigation.`\
-https://nytimes.com/2024/08/01/world/middleeast/how-hamas-leader-haniyeh-killed-iran-bomb.html
-
-**John Dickerson and Maurice DuBois Named Anchors of ‘CBS Evening News’**\
-`The pair are part of a broader shake-up at the show, which includes the addition of Lonnie Quinn as a regular weather anchor.`\
-https://nytimes.com/2024/08/01/business/media/john-dickerson-maurice-dubois-cbs-evening-news.html
-
-**After a stint with his rival, Kyle Ford is back at USC with unfinished business**\
-`Ford is entering his sixth season of college football in 2024 and is back at USC, the school that started it all for him. `\
-https://nytimes.com/athletic/5674280/2024/08/01/kyle-ford-usc-ucla-receiver-transfer-college-football/
-
-**Capturing the Wonders of Mushrooms Through Dance**\
-`Plus: Long Island beach houses, Greek housewares and more recommendations from T Magazine.`\
-https://nytimes.com/2024/08/01/t-magazine/dance-heginbotham-john-cage-mushrooms.html
-
-**Jacob Trouba Q&A: On trade rumors, upcoming season and his first art gallery**\
-`Trouba spoke with The Athletic about the creation of the gallery, the Rangers' Eastern Conference final loss to Florida and more.`\
-https://nytimes.com/athletic/5673498/2024/08/01/rangers-jacob-trouba-nhl-trade/
 
