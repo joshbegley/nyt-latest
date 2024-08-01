@@ -1,3 +1,7 @@
+**U.K. Stabbing Suspect Is Named as Judge Lifts Reporting Restrictions**\
+`A judge allowed the naming of the 17-year-old charged with three counts of murder and 10 of attempted murder, lifting Britain’s reporting restrictions to help counter misinformation, he said.`\
+https://nytimes.com/2024/08/01/world/europe/southport-stabbings-suspect-axel-rudakubana.html
+
 **Jacob Trouba Q&A: On trade rumors, upcoming season and his first art gallery**\
 `Trouba spoke with The Athletic about the creation of the gallery, the Rangers' Eastern Conference final loss to Florida and more.`\
 https://nytimes.com/athletic/5673498/2024/08/01/rangers-jacob-trouba-nhl-trade/
