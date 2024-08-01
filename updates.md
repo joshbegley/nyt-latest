@@ -1,3 +1,7 @@
+**Bomb Smuggled Into Tehran Guesthouse Months Ago Killed Hamas Leader**\
+`An explosive device hidden in a heavily guarded complex where Ismail Haniyeh was known to stay in Iran was what killed him, according to a Times investigation.`\
+https://nytimes.com/2024/08/01/world/middleeast/how-hamas-leader-haniyeh-killed-iran-bomb.html
+
 **John Dickerson and Maurice DuBois Named Anchors of ‘CBS Evening News’**\
 `The pair are part of a broader shake-up at the show, which includes the addition of Lonnie Quinn as a regular weather anchor.`\
 https://nytimes.com/2024/08/01/business/media/john-dickerson-maurice-dubois-cbs-evening-news.html
