@@ -1,3 +1,15 @@
+**How 2024 Became a Crypto Election**\
+`Will libertarian derp get a government bailout?`\
+https://nytimes.com/2024/08/01/opinion/crypto-trump.html
+
+**The Far Right Doesn’t Own ‘The Lord of the Rings’**\
+`MAGA misunderstands the fellowship of the ring.`\
+https://nytimes.com/2024/08/01/opinion/maga-tolkien-lotr.html
+
+**Harris Says She and Biden ‘Never Stopped’ Fighting for Release of Americans**\
+`The release of prisoners was a move by President Biden to secure his legacy. On Thursday, he and his White House made clear that Vice President Kamala Harris had been a partner in the effort.`\
+https://nytimes.com/2024/08/01/us/politics/harris-biden-russia-prisoners-americans.html
+
 **Air Force Finds Mechanical and Crew Failures in Fatal Osprey Crash Last Year**\
 `An investigation determined that missed warning signals and the “catastrophic failure” of a gearbox led to the crash off the coast of Japan in November.`\
 https://nytimes.com/2024/08/01/us/politics/air-force-osprey-crash-japan.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5675529/2024/08/01/alabama-football-training-camp-u
 **How an Olympic boxing dispute embroiled arguments about gender in sport**\
 `The contentious topic of gender in sport has made its way into a debate about how boxing is run at the Olympics, turning a murky administrative fight into the latest stage for combative arguments about how women should be allowed to compete.`\
 https://nytimes.com/athletic/5675415/2024/08/01/olympic-womens-boxing-dispute-imane-khelif/
-
-**Harris Remembers Congresswoman Sheila Jackson Lee**\
-`Vice President Kamala Harris eulogized the long-serving congresswoman from Texas during a memorial service on Thursday.`\
-https://nytimes.com/video/us/politics/100000009606654/harris-sheila-jackson-lee.html
-
-**The loved ones of some released Russian dissidents had no prior knowledge of the swap.**\
-`By Valerie Hopkins, Ekaterina Bodyagina and Alina Lobzina`\
-https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/the-loved-ones-of-some-released-russian-dissidents-had-no-prior-knowledge-of-the-swap
-
-**Plea Deal in 9/11 Case Is Announced in War Court**\
-`The accused mastermind of the plot, Khalid Shaikh Mohammed, appeared at a session as the agreement was disclosed. A sentencing hearing could begin next year.`\
-https://nytimes.com/2024/08/01/us/politics/sept11-plea-agreement.html
 
