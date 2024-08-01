@@ -1,3 +1,7 @@
+**The Wall Street Journal kept Gershkovich’s detention front and center.**\
+`The Journal staged several events in his honor and set up a part of its website to call attention to the plight of the journalist during his lengthy detention in Russia.`\
+https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/wsj-reporter-evan-gershkovich
+
 **Utah Supreme Court Upholds a Block on a Strict Abortion Ban**\
 `Utah cannot enforce its near-total ban on abortion while a challenge to the law proceeds in the courts, the State Supreme Court ruled on Thursday.`\
 https://nytimes.com/2024/08/01/us/utah-abortion-ban.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5673725/2024/08/01/canada-soccer-spying-olympics-wo
 **Several Senate Republicans criticize the strategy, but not the substance, of Trump’s comments on Harris.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/08/01/us/trump-harris-election-news/several-senate-republicans-criticize-the-strategy-but-not-the-substance-of-trumps-comments-on-harris
-
-**Giants 'Hard Knocks' takeaways: Did the team reveal too much?**\
-`Whatever privacy the Giants’ front office sacrificed, viewers gained from a closer look at the roster-building process.`\
-https://nytimes.com/athletic/5673475/2024/08/01/giants-hard-knocks-takeaways-joe-schoen/
 
