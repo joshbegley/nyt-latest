@@ -1,3 +1,11 @@
+**Chargers' Herbert injures right foot, expected to be ready by regular season**\
+`Herbert, 26, is coming off a 2023 season where he missed four games with a broken finger in his right hand.`\
+https://nytimes.com/athletic/5675143/2024/08/01/justin-herbert-foot-injury-chargers/
+
+**Joe Engle, Groundbreaking Test Pilot and NASA Astronaut, Dies at 91**\
+`He trained under Chuck Yeager and flew an X-15 rocket plane to an altitude of 53 miles. He later commanded the space shuttles Columbia and Discovery.`\
+https://nytimes.com/2024/08/01/science/space/joe-engle-dead.html
+
 **What to See in N.Y.C. Galleries in August**\
 `This week in Newly Reviewed, Walker Mimms covers the overlooked artist Ker-Xavier Roussel, Fritz Scholder’s paintings and a group show in a modest office-like space.`\
 https://nytimes.com/2024/08/01/arts/design/nyc-galleries-august.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5674870/2024/08/01/ohio-state-football-preseason-pr
 **Josh Shapiro, Potential Harris V.P. Pick, Cancels Weekend Fund-Raisers**\
 `The Pennsylvania governor had been scheduled to headline events in the Hamptons for his own campaign committee. Vice President Kamala Harris is expected to announce her running mate selection by Tuesday.`\
 https://nytimes.com/2024/08/01/us/politics/josh-shapiro-potential-harris-vp-pick-cancels-weekend-fund-raisers.html
-
-**For the first time, start of World Series could be moved if league championships end early**\
-`The World Series is scheduled for Oct. 25, though it could be bumped up three days to Oct. 22 if the pennants are decided quickly.`\
-https://nytimes.com/athletic/5675110/2024/08/01/mlb-world-series-postseason-schedule/
-
-**What Is the ‘It’ Water Bottle for Back-to-School Shopping?**\
-`The mighty Stanley’s reign appears to be ending, with Owala, Lululemon and Hydro Flask all competing for affection — and cachet — among teens and tweens.`\
-https://nytimes.com/2024/08/01/style/back-to-school-owala-stanley-cup.html
 
