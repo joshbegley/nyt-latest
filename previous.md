@@ -1,3 +1,7 @@
+**Five observations from Ohio State's opening day of preseason practice**\
+`A murky QB battle and an electric receiving corps remained leading storylines as the Buckeyes went through their first practice of August.`\
+https://nytimes.com/athletic/5674870/2024/08/01/ohio-state-football-preseason-practice-observations/
+
 **Josh Shapiro, Potential Harris V.P. Pick, Cancels Weekend Fund-Raisers**\
 `The Pennsylvania governor had been scheduled to headline events in the Hamptons for his own campaign committee. Vice President Kamala Harris is expected to announce her running mate selection by Tuesday.`\
 https://nytimes.com/2024/08/01/us/politics/josh-shapiro-potential-harris-vp-pick-cancels-weekend-fund-raisers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5675090/2024/08/01/craig-shakespeare-leicester/
 **The Key to Great Grilled Salmon? Do Less.**\
 `No sticking, no flipping: These two methods ensure stress-free, flawless grilled salmon any night of the week.`\
 https://nytimes.com/article/how-to-grill-salmon.html
-
-**As Misery Multiplies, Pakistanis Rise Up Against the Ruling Elite**\
-`Unrest over a range of economic and security issues threatens to deepen the political turmoil that has plagued Pakistan for years.`\
-https://nytimes.com/2024/08/01/world/asia/pakistan-protests-politics.html
 
