@@ -1,3 +1,7 @@
+**Zheng Qinwen dashes Iga Swiatek's dreams of Olympic gold at Roland Garros**\
+`It is only the four-time French Open champion's third defeat at Roland Garros in five years`\
+https://nytimes.com/athletic/5674172/2024/08/01/zheng-qinwen-reaches-olympic-final-beating-iga-swiatek-at-roland-garros/
+
 **Here’s the latest on the presidential race.**\
 `By Nicholas Nehamas and Simon J. Levien`\
 https://nytimes.com/live/2024/08/01/us/trump-harris-election-news/heres-the-latest-on-the-presidential-race
