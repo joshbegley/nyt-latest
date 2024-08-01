@@ -1,3 +1,19 @@
+**Quotation of the Day: Can You Beat the Olympians at Table Tennis? Stop Asking.**\
+`Quotation of the Day for Thursday, August 1, 2024.`\
+https://nytimes.com/2024/08/01/pageoneplus/quotation-of-the-day-can-you-beat-the-olympians-at-table-tennis-stop-asking.html
+
+**Corrections: Aug. 1, 2024**\
+`Corrections that appeared in print on Thursday, Aug. 1, 2024.`\
+https://nytimes.com/2024/08/01/pageoneplus/corrections-aug-1-2024.html
+
+**Manchester United injury blow as Yoro out for three months and Hojlund to miss six weeks**\
+`Manchester United expect Leny Yoro to miss around three months with a foot injury, while Rasmus Hojlund is expected to be out for around six weeks with a hamstring injury.`\
+https://nytimes.com/athletic/5673820/2024/08/01/leny-yoro-injury-manchester-united-hojlund/
+
+**The man who says he can fix Barcelona: Victor Font on Joan Laporta's presidency**\
+`He came second in Barca's presidential elections in 2021 and says waiting two more years until the next vote is 'not ideal'`\
+https://nytimes.com/athletic/5671691/2024/08/01/barcelona-laporta-president-victor-font/
+
 **The Brieifing: Man United 3 Real Betis 2 - Will Yoro injury mean further transfers? Amad dazzles**\
 `Amad shone in San Diego but there are more injury concerns for Manchester United and Erik ten Hag`\
 https://nytimes.com/athletic/5673776/2024/08/01/man-united-3-2-real-betis-yoro-injury-amad/
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2024/08/01/opinion/harris-2024-focus-group.html
 **Here is the latest on the Ismail Haniyeh assassination.**\
 `By Farnaz Fassihi and Qasim Nauman`\
 https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza/here-is-the-latest-on-the-ismail-haniyeh-assassination
-
-**Live Updates: Iran Holds Funeral for Assassinated Senior Hamas Leader**\
-`The country’s supreme leader, Ayatollah Ali Khamenei, led the funeral prayers for Ismail Haniyeh, whose death has amplified fears of a wider regional war.`\
-https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza
-
-**'It was bad': Clayton Kershaw's struggles seal Dodgers' first full losing month in 6 years**\
-`Kershaw — in his second big-league start since shoulder surgery — failed to get a strikeout for the first time in 423 regular-season starts.`\
-https://nytimes.com/athletic/5673766/2024/08/01/clayton-kershaw-struggles-dodgers/
-
-**Thursday Briefing**\
-`Fears of escalation in the Middle East.`\
-https://nytimes.com/2024/08/01/briefing/middle-east-biden-harris-race.html
-
-**Can Gouda’s Cheesemakers Stall a Sinking Future?**\
-`The small city where the renowned Dutch cheese is made is subsiding as sea levels rise. Experts say the industry may not survive there, even with the ingenuity of the country’s water managers.`\
-https://nytimes.com/2024/08/01/world/europe/netherlands-gouda-climate.html
 
