@@ -1,3 +1,7 @@
+**Bengals camp (literally) heats up as injuries, young playmakers make headlines**\
+`Scorching heat took its toll on some players Thursday but it didn't stop Andrei Iosivas and Charlie Jones from shining.`\
+https://nytimes.com/athletic/5675660/2024/08/01/bengals-camp-heat-iosivas-charlie-jones/
+
 **The Two Weeks That Changed Kamala Harris’s Vice Presidency**\
 `Two trips Harris took last year set the stage for the ascent that is happening now.`\
 https://nytimes.com/2024/08/01/us/politics/kamala-harris-black-racial-identity.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/01/us/politics/air-force-osprey-crash-japan.html
 **Families of 9/11 Victims React to News of Accused Plotters’ Plea Deal**\
 `While family members differed in their support of the death penalty, many expressed frustration that the case had lingered for so long.`\
 https://nytimes.com/2024/08/01/nyregion/sept-11-families-plea.html
-
-**Bipartisan Legal Group Urges Lawyers to Defend Against ‘Rising Authoritarianism’**\
-`An American Bar Association task force of prominent legal thinkers gestures at former President Trump without naming him.`\
-https://nytimes.com/2024/08/01/us/politics/american-bar-association-democracy.html
 
