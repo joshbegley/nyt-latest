@@ -1,3 +1,11 @@
+**Browns' most competitive practice of camp features heavy dose of David Njoku**\
+`The offense opened things up in Thursday's practice session, as Deshaun Watson seemed to intentionally push the ball more downfield. `\
+https://nytimes.com/athletic/5675122/2024/08/01/cleveland-browns-nfl-training-camp-david-njoku/
+
+**'Cannot get a bead off him:' One trait helping Broncos QB Bo Nix progress in camp**\
+`P.J. Locke calls the rookie QB a "good look-off guy" because of his ability to manipulate coverage with his eyes.`\
+https://nytimes.com/athletic/5675170/2024/08/01/bo-nix-broncos-camp-qb-battle/
+
 **Olympic golf has a pulse in Paris. Will it ever get louder? **\
 `Up to 30,000 people invaded Le Golf National for Round 1 on Thursday. It could even get bigger in Los Angeles in four years.`\
 https://nytimes.com/athletic/5675386/2024/08/01/olympic-golf-paris-crowd/

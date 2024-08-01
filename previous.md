@@ -1,6 +1,14 @@
+**Browns' most competitive practice of camp features heavy dose of David Njoku**\
+`The offense opened things up in Thursday's practice session, as Deshaun Watson seemed to intentionally push the ball more downfield. `\
+https://nytimes.com/athletic/5675122/2024/08/01/cleveland-browns-nfl-training-camp-david-njoku/
+
 **Olympic golf has a pulse in Paris. Will it ever get louder? **\
 `Up to 30,000 people invaded Le Golf National for Round 1 on Thursday. It could even get bigger in Los Angeles in four years.`\
 https://nytimes.com/athletic/5675386/2024/08/01/olympic-golf-paris-crowd/
+
+**'Cannot get a bead off him:' One trait helping Broncos QB Bo Nix progress in camp**\
+`P.J. Locke calls the rookie QB a "good look-off guy" because of his ability to manipulate coverage with his eyes.`\
+https://nytimes.com/athletic/5675170/2024/08/01/bo-nix-broncos-camp-qb-battle/
 
 **Sales of Macs and iPads Lead Apple’s Quarterly Revenue Up 5%**\
 `While iPhone sales dropped 1 percent, consumer interest in Apple’s flagship product is expected to pick up later this year.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5675095/2024/08/01/usa-belgium-womens-basketball-ol
 **Israeli officials say Al Jazeera journalist killed in Gaza strike was a Hamas operative.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza/israeli-officials-say-al-jazeera-journalist-killed-in-gaza-strike-was-a-hamas-operative
-
-**Mayor Adams Wins Legal Battle Over Housing Voucher Expansion**\
-`A state judge ruled that the City Council did not have the legal authority to expand a housing voucher program.`\
-https://nytimes.com/2024/08/01/nyregion/mayor-adams-housing-vouchers.html
-
-**Vault + bars + beam + floor = gold for Simone Biles.**\
-`Here’s a look at how Simone Biles won the gymnastics all-around gold medal, one routine at a time.`\
-https://nytimes.com/2024/08/01/world/olympics/simone-biles-all-around.html
 
