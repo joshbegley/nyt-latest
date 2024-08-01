@@ -1,3 +1,7 @@
+**Several Senate Republicans criticize the strategy, but not the substance, of Trump’s comments on Harris.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/08/01/us/trump-harris-election-news/several-senate-republicans-criticize-the-strategy-but-not-the-substance-of-trumps-comments-on-harris
+
 **Giants 'Hard Knocks' takeaways: Did the team reveal too much?**\
 `Whatever privacy the Giants’ front office sacrificed, viewers gained from a closer look at the roster-building process.`\
 https://nytimes.com/athletic/5673475/2024/08/01/giants-hard-knocks-takeaways-joe-schoen/
