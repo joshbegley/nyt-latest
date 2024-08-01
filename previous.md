@@ -1,6 +1,22 @@
+**NBA stars Jayson Tatum, Joel Embiid get rare 'humbling' experience on Team USA**\
+`On a roster of full of stars, some stars have to sit every night at the Olympics. It's been a "humbling experience" for many on Team USA.`\
+https://nytimes.com/athletic/5673358/2024/08/01/jayson-tatum-joel-embiid-team-usa-olympics-bench/
+
+**Bank of England Cuts Interest Rates for First Time Since 2020**\
+`Policymakers lowered rates to 5 percent but warned that future rates cuts would come slowly.`\
+https://nytimes.com/2024/08/01/business/bank-of-england-interest-rates.html
+
+**Who is Muhammad Deif?**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/08/01/world/israel-hamas-iran-haniyeh-gaza/who-is-muhammad-deif
+
 **Zamir White goes from riding horses to the Raiders' new workhorse running back**\
 `White's jacked-up physique caught fans' attention, but much of his offseason worked revolved around the dozen horses on his farm.`\
 https://nytimes.com/athletic/5672141/2024/08/01/raiders-zamir-white-horses-training-camp/
+
+**'He will be a player' - Nico O'Reilly is latest Man City academy star to impress Pep Guardiola**\
+`Guardiola has already talked up the possibility of him replacing Rodri, generally considered the impossible job around the club`\
+https://nytimes.com/athletic/5672985/2024/08/01/nico-oreilly-man-city-tour-pep-guardiola/
 
 **Meet Anna Karolina Schmiedlova, the surprise tennis package of the Paris Olympics**\
 `The politically outspoken Slovak is guaranteed to play for one of the most unlikely medals at the 2024 Paris Olympics, in any sport`\
@@ -21,20 +37,4 @@ https://nytimes.com/2024/08/01/movies/peak-season-review.html
 **‘Kneecap’ Review: Beats Over Belfast**\
 `Members of the pioneering Irish-language rap group play versions of themselves in a gleefully chaotic film that casts them as tall-tale heroes.`\
 https://nytimes.com/2024/08/01/movies/kneecap-review.html
-
-**‘Harold and the Purple Crayon’ Review: He’s a Big Kid Now**\
-`Harold is an adult on a quest in this tale based on the beloved children’s book by Crockett Johnson.`\
-https://nytimes.com/2024/08/01/movies/harold-and-the-purple-crayon-review.html
-
-**‘Coup!’ Review: Pandemonium in a Pandemic — No, Not That One**\
-`In this obvious satire set amid the 1918 influenza, a wealthy, muckraking reporter hires a new chef who disrupts the estate’s hierarchy.`\
-https://nytimes.com/2024/08/01/movies/coup-review.html
-
-**The Threat of More War**\
-`We examine the contradictions in the Middle East.`\
-https://nytimes.com/2024/08/01/briefing/the-threat-of-more-war.html
-
-**NBC's Olympics coverage enjoying a viewership surge, though there's a caveat**\
-`NBC is getting an Olympic-sized viewership surge, but a new way of reporting is making comparisons to past years apples-to-baguettes.`\
-https://nytimes.com/athletic/5672021/2024/08/01/nbc-olympics-coverage-paris-viewership/
 
