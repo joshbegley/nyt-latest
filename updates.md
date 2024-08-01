@@ -1,3 +1,7 @@
+**U.S. 3x3 basketball teams are in a jam after two days**\
+`Both the U.S. men's and women's 3x3 basketball teams have put themselves in a big hole 48 hours into Olympic competition.`\
+https://nytimes.com/athletic/5672533/2024/07/31/us-3x3-basketball-olympic-losses/
+
 **Vance’s Links to the Project 2025 Leader Complicate Trump’s Attempts at Distance**\
 `Donald Trump disavowed the set of conservative plans after it became a popular target for Democrats, but his running mate, JD Vance, wrote a foreword for a forthcoming book by its principal architect.`\
 https://nytimes.com/2024/07/31/us/politics/project-2025-vance-trump.html

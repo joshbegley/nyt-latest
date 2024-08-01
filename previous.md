@@ -2,6 +2,10 @@
 `Donald Trump disavowed the set of conservative plans after it became a popular target for Democrats, but his running mate, JD Vance, wrote a foreword for a forthcoming book by its principal architect.`\
 https://nytimes.com/2024/07/31/us/politics/project-2025-vance-trump.html
 
+**U.S. 3x3 basketball teams are in a jam after two days**\
+`Both the U.S. men's and women's 3x3 basketball teams have put themselves in a big hole 48 hours into Olympic competition.`\
+https://nytimes.com/athletic/5672533/2024/07/31/us-3x3-basketball-olympic-losses/
+
 **Abraham Hamadeh Wins G.O.P. House Primary in Arizona**\
 `In an unusual twist, Donald J. Trump had endorsed both Mr. Hamadeh and his rival, Blake Masters, effectively declaring that he had no preference in the primary race.`\
 https://nytimes.com/2024/07/31/us/politics/abraham-hamedah-blake-masters.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5673224/2024/07/31/raiders-kickoff-rules-jack-jones
 **Assassination of a top Hamas leader spurs rallies worldwide.**\
 `.`\
 https://nytimes.com/2024/07/31/world/middleeast/assassination-of-a-top-hamas-leader-spurs-rallies-worldwide.html
-
-**Braves upbeat after delivering a homer-filled win in Jorge Soler's return**\
-`Alex Anthopoulos explained why it was important to send a signal to the clubhouse with some big deadline moves. `\
-https://nytimes.com/athletic/5673247/2024/07/31/braves-jorge-soler-matt-olson/
 
