@@ -1,3 +1,7 @@
+**Trump questioned the physical appearance of Native American business rivals in the 1990s.**\
+`The former president’s remarks this week about the racial identity of Vice President Kamala Harris recalled when he challenged the tribal recognition of a casino rival.`\
+https://nytimes.com/live/2024/08/02/us/harris-trump-election/trump-native-americans-indians
+
 **A ‘Love Activist’ D.J. Opened the Olympics. Then Came a Wave of Hate.**\
 `The French D.J. Barbara Butch wanted to deliver a message of peace in the opening ceremony, but ended up getting savaged online.`\
 https://nytimes.com/2024/08/02/arts/music/barbara-butch-olympics-opening-ceremony.html
