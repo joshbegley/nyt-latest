@@ -1,3 +1,11 @@
+**Harris Begins Final Phase of Accelerated V.P. Search**\
+`The formal vetting process is finished, and the first major decision of Vice President Kamala Harris’s presidential campaign is just days away.`\
+https://nytimes.com/2024/08/01/us/politics/kamala-harris-vice-presidential-search-campaign-2024.html
+
+**N.F.L. Sunday Ticket Verdict Is Thrown Out by Judge**\
+`The decision, five weeks after a jury awarded $4.7 billion in damages in an antitrust case, is a reprieve for the league.`\
+https://nytimes.com/2024/08/01/business/nfl-sunday-ticket-damages-thrown-out.html
+
 **U.S. Recognizes Maduro’s Rival as Winner of Venezuelan Election**\
 `Secretary of State Antony J. Blinken said there was “overwhelming evidence” that Edmundo González had won, despite President Nicolás Maduro’s claim of victory.`\
 https://nytimes.com/2024/08/01/world/americas/venezuela-election-gonzalez-maduro.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5675755/2024/08/01/dodgers-freddie-freeman-son-upda
 **Kate Douglass always had the talent to win Olympic gold. Now the belief matches too**\
 `NANTERRE, France — There used to be a time, not all that long ago, when Kate Douglass surprised herself, when she did things in the pool that she didn&#8217;t know she was capable of doing.`\
 https://nytimes.com/athletic/5675731/2024/08/01/kate-douglass-olympics-gold-breaststroke-talent/
-
-**Gloria Johnson, Tennessee Democrat Who Faced Expulsion, Wins U.S. Senate Primary**\
-`The state lawmaker, who gained national attention for her role in a gun control protest, will challenge Senator Marsha Blackburn, a Republican.`\
-https://nytimes.com/2024/08/01/us/politics/gloria-johnson-senate.html
-
-**Seven Commanders roster questions to ponder one week into camp**\
-`Will Washington keep three QBs on the final 53-man roster, and how will the WR and CB rooms shake out?`\
-https://nytimes.com/athletic/5675558/2024/08/01/washington-commanders-roster-training-camp/
 
