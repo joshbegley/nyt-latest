@@ -1,3 +1,7 @@
+**‘Trap’ Review: Pop Goes the Thriller**\
+`Josh Hartnett stars as a father with a secret in this M. Night Shyamalan film set at a concert.`\
+https://nytimes.com/2024/08/02/movies/trap-review.html
+
 **Israel, Defiant, Appears to Have Gone Rogue, Risking a Regional War**\
 `Ignoring the efforts of President Biden and the condemnation of many allies, Prime Minister Benjamin Netanyahu is forcing the pace of the war and feeding the revolt of the far right.`\
 https://nytimes.com/2024/08/02/world/europe/israel-defiant-gaza-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5676778/2024/08/02/coby-mayo-orioles-prospect-promo
 **The U.K. Riots Were Fomented Online. Will Social Media Companies Act?**\
 `Prime Minister Keir Starmer called out social media groups for the misinformation on their platforms that sparked violent clashes this week. But holding them accountable is tough.`\
 https://nytimes.com/2024/08/02/business/uk-riots-social-media.html
-
-**Malacia out for two more months with knee injury - Ten Hag**\
-`Manchester United left-back Tyrell Malacia is set to remain on the sidelines for another two months, according to manager Erik ten Hag.`\
-https://nytimes.com/athletic/5676772/2024/08/02/tyrell-malacia-injury-man-utd/
 
