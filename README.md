@@ -1,3 +1,7 @@
+**Families of Hostages Despair as Hopes for Imminent Peace Deal Fade**\
+`The recent assassination of Ismail Haniyeh, the leader of Hamas’s political branch, halted negotiations for a cease-fire that would bring home the hostages held in Gaza.`\
+https://nytimes.com/2024/08/02/world/middleeast/israel-hamas-hostage-release-deal.html
+
 **Three simple reasons why the 2024 Giants have underperformed**\
 `The Giants are five games behind San Diego, who are in an enviable position. Three disappointing individual years have been the difference.`\
 https://nytimes.com/athletic/5675861/2024/08/02/three-simple-reasons-why-the-2024-giants-have-underperformed/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5676505/2024/08/02/carlo-ancelotti-real-madrid-club
 **The quirky stories that define Stephen Nedoroscik, Team USA's pommel horse hero**\
 `“Men’s gymnastics needed Stephen," said Matt Carbone, the owner of Nedoroscik's hometown gym.`\
 https://nytimes.com/athletic/5675559/2024/08/02/stephen-nedoroscik-usa-gymnastics-olympics-penn-state-pommel-horse/
-
-**NBC Sports 'likely' to introduce 'multiview' feature for Premier League coverage**\
-`NBC Sports are &#8220;likely&#8221; to enhance its Premier League coverage with the introduction of a new &#8220;multiview&#8221; feature, offering fans the ability to watch multiple games simultaneously.`\
-https://nytimes.com/athletic/5676492/2024/08/02/nbc-sports-premier-league-multiview/
 
