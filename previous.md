@@ -6,7 +6,7 @@ https://nytimes.com/2024/08/02/world/olympics/leon-marchand-gold-medals.html
 `Aranda brought Patterson on to bolster his Baylor staff amid significant changes within the program after consecutive losing seasons.`\
 https://nytimes.com/athletic/5677225/2024/08/02/gary-patterson-baylor-dave-aranda/
 
-**Harris’s brother-in-law, Uber’s chief lawyer, is taking a leave to join her campaign.**\
+**Harris’s brother-in-law, Uber’s chief lawyer, is taking a leave to advise her.**\
 `By Noam Scheiber, Kate Kelly and Kenneth P. Vogel`\
 https://nytimes.com/live/2024/08/02/us/harris-trump-election/harriss-brother-in-law-ubers-chief-lawyer-is-taking-a-leave-to-join-her-campaign
 

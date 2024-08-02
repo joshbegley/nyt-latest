@@ -1,3 +1,7 @@
+**Harris’s brother-in-law, Uber’s chief lawyer, is taking a leave to advise her.**\
+`By Noam Scheiber, Kate Kelly and Kenneth P. Vogel`\
+https://nytimes.com/live/2024/08/02/us/harris-trump-election/harriss-brother-in-law-ubers-chief-lawyer-is-taking-a-leave-to-join-her-campaign
+
 **It’s official: Léon Marchand owns the pool in France after winning his fourth gold medal.**\
 `After winning the 200 individual medley, Marchand joins Michael Phelps and Mark Spitz as the only male swimmers to win four gold medals at a single Olympics.`\
 https://nytimes.com/2024/08/02/world/olympics/leon-marchand-gold-medals.html
