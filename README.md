@@ -1,3 +1,11 @@
+**Friday Briefing**\
+`A sweeping prisoner swap between Russia and the West.`\
+https://nytimes.com/2024/08/02/briefing/prisoners-russia-biden-maduro-olympics.html
+
+**Biden and Harris Greet Americans Released From Russia**\
+`Three Americans — Evan Gershkovich, a reporter of The Wall Street Journal; Alsu Kurmasheva, an editor for RFE/RL; and Paul Whelan, a former U.S. Marine — were freed in a prisoner exchange with Russia.`\
+https://nytimes.com/video/us/100000009607011/gershkovich-biden-prisoner-exchange-russia.html
+
 **Private chef, mental coach and training in Miami - Rogers has readied his body and mind**\
 `The forward's start at Villa caught some by surprise — he's taken steps to make sure he is no flash in the pan `\
 https://nytimes.com/athletic/5671387/2024/08/02/how-morgan-rogers-is-preparing-for-first-full-season-at-aston-villa/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5641221/2024/08/02/louie-hinchliffe-team-gb-olympic
 **Son Heung-min and Tottenham's popularity in South Korea won't decline anytime soon**\
 `Son is still cherished in his homeland, but it is not a 'mania'. His face doesn't peer out from every billboard. The dynamic is more sincere`\
 https://nytimes.com/athletic/5674470/2024/08/02/son-heung-min-south-korea-tottenham/
-
-**A fantasy football mock draft using 2024’s most popular strategies — from ‘HeroRB’ to ‘Late-Round QB’**\
-`Renee Miller shares her own 12-team fantasy football mock draft, giving each team a strategy or personality archetype to execute.`\
-https://nytimes.com/athletic/5675624/2024/08/02/mock-draft-strategy-2024-hero-zero-rb-late-qb/
-
-**Inside the PFA's summer camp for free agents: 'It feels like I'm at a team already'**\
-`Where out-of-contract players, including Dwight Gayle and Ciaran Clark, go to get their pre-season training...`\
-https://nytimes.com/athletic/5674154/2024/08/02/pfa-summer-camp-for-free-agents/
 
