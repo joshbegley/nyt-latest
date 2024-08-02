@@ -1,3 +1,15 @@
+**Shapiro’s College-Era Criticism of Palestinians Draws Fresh Scrutiny**\
+`The Pennsylvania governor, a top contender to be Vice President Kamala Harris’s running mate, wrote in his college newspaper that Palestinians were “too battle-minded.”`\
+https://nytimes.com/2024/08/02/us/politics/josh-shapiro-palestinians-college.html
+
+**Alongside the Trump-Russia Inquiry, a Lesser-Known Look at Egyptian Influence**\
+`The Justice Department and special counsel Robert Mueller investigated whether a Trump adviser was part of an Egyptian plan, never proven, to funnel $10 million to the 2016 Trump campaign.`\
+https://nytimes.com/2024/08/02/us/politics/trump-mueller-egypt.html
+
+**Passenger Who Tried to Open Cockpit and Exit Door Gets 19 Months in Prison**\
+`Juan Rivas, who threatened flight attendants with a champagne bottle and a plastic knife, tried to open an exit door of an American Airlines plane, prosecutors said.`\
+https://nytimes.com/2024/08/02/us/american-airlines-nj-passenger-sentenced.html
+
 **What’s Uniting, and Dividing, Native Voters in Arizona**\
 `A usually solidly Democratic vote, Native American voters across the state say they feel increasingly left out of the conversation and are looking for change.`\
 https://nytimes.com/interactive/2024/08/02/us/elections/arizona-native-voters.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5677363/2024/08/02/raiders-training-camp-dj-glaze-d
 **Prisoner Deals Stoke Fears of Perverse ‘Incentive’ to Grab Americans**\
 `Hostile governments like Russia and Iran are often involved, and practical alternatives are hard to come by, experts say.`\
 https://nytimes.com/2024/08/02/us/politics/prisoner-deals-russia.html
-
-**The Veepstakes (Pennsylvania’s Version)**\
-`The question of whether Josh Shapiro can deliver the biggest, baddest swing state is complicated.`\
-https://nytimes.com/2024/08/02/us/politics/harris-vp-shapiro.html
-
-**Miami lands local 2025 DL recruit Donta Simpson**\
-`Simpson recently attended Miami's recruiting BBQ and landed an offer from Mario Cristobal. He's the 20th commitment in Miami's 2025 class`\
-https://nytimes.com/athletic/5677178/2024/08/02/miami-hurricanes-football-recruiting-commitment-donta-simpson/
-
-**Erick Fedde falters in Cardinals debut: 'Wanted it to be a special one'**\
-`Fedde surrendered 5 runs in a start marred by inconsistent command and the Cardinals offense missed several big chances.`\
-https://nytimes.com/athletic/5677209/2024/08/02/cardinals-mlb-erick-fedde-debut/
 

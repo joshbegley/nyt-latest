@@ -1,3 +1,15 @@
+**Shapiro’s College-Era Criticism of Palestinians Draws Fresh Scrutiny**\
+`The Pennsylvania governor, a top contender to be Vice President Kamala Harris’s running mate, wrote in his college newspaper that Palestinians were “too battle-minded.”`\
+https://nytimes.com/2024/08/02/us/politics/josh-shapiro-palestinians-college.html
+
+**Alongside the Trump-Russia Inquiry, a Lesser-Known Look at Egyptian Influence**\
+`The Justice Department and special counsel Robert Mueller investigated whether a Trump adviser was part of an Egyptian plan, never proven, to funnel $10 million to the 2016 Trump campaign.`\
+https://nytimes.com/2024/08/02/us/politics/trump-mueller-egypt.html
+
+**Passenger Who Tried to Open Cockpit and Exit Door Gets 19 Months in Prison**\
+`Juan Rivas, who threatened flight attendants with a champagne bottle and a plastic knife, tried to open an exit door of an American Airlines plane, prosecutors said.`\
+https://nytimes.com/2024/08/02/us/american-airlines-nj-passenger-sentenced.html
+
 **What’s Uniting, and Dividing, Native Voters in Arizona**\
 `A usually solidly Democratic vote, Native American voters across the state say they feel increasingly left out of the conversation and are looking for change.`\
 https://nytimes.com/interactive/2024/08/02/us/elections/arizona-native-voters.html
