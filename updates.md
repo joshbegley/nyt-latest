@@ -1,3 +1,7 @@
+**Word of the Day: defamatory**\
+`This word has appeared in 73 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/02/learning/word-of-the-day-defamatory.html
+
 **Friday Briefing**\
 `A sweeping prisoner swap between Russia and the West.`\
 https://nytimes.com/2024/08/02/briefing/prisoners-russia-biden-maduro-olympics.html
