@@ -1,3 +1,15 @@
+**Olympic champion Simone Biles posted on social media that she loves her ‘Black job.’**\
+`Biles is only the third woman gymnast to win the all-around competition twice at the Olympics.`\
+https://nytimes.com/2024/08/02/us/politics/simone-biles-black-job-trump.html
+
+**The Windup: On Mike Trout's season ending**\
+`Today's top baseball news.`\
+https://nytimes.com/athletic/5676770/2024/08/02/mike-trout-injury-the-windup/
+
+**Rangers mailbag, Part 2: Pospect timelines, Kakko's role, Trouba's future**\
+`Let's take stock of where the younger Rangers project in the upcoming season.`\
+https://nytimes.com/athletic/5676712/2024/08/02/ny-rangers-prospects/
+
 **Wall Street’s Turbulent Week Ends With Stocks Falling**\
 `A weaker-than-expected jobs report added to investors’ worries about the economy. Stocks fell sharply, and Treasury yields declined in expectation of a Federal Reserve rate cut.`\
 https://nytimes.com/2024/08/02/business/economy/stocks-drop-economy-jobs.html
