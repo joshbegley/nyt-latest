@@ -1,3 +1,11 @@
+**Flavor Flav helps Olympic discus thrower pay rent**\
+`U.S. discus thrower Veronica Fraley said she couldn't pay rent, so Flavor Flav and Alexis Ohanian started a wave of donations.`\
+https://nytimes.com/athletic/5676456/2024/08/02/veronica-fraley-flavor-flav-alexis-ohanian-olympics-rent/
+
+**Appeals Court Further Narrows Voting Rights Act’s Scope**\
+`Reversing decades of precedent, the U.S. Court of Appeals for the Fifth Circuit ruled in a Texas case that different minority groups cannot jointly claim that their votes have been diluted.`\
+https://nytimes.com/2024/08/02/us/texas-voting-rights-minorities.html
+
 **Olympic Officials Defend Algerian’s Eligibility in Boxing Controversy**\
 `Online fury and unclear rules have left organizers of the women’s boxing competition in Paris facing complex questions about fairness in women’s sports.`\
 https://nytimes.com/2024/08/02/world/olympics/boxing-imane-khelif-gender-athletes.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5676539/2024/08/02/uswnt-davidson-shaw-hayes-olympi
 **Parts of Florida Under State of Emergency as Storm Moves Toward the Gulf**\
 `The storm, which could become Tropical Storm Debby, is expected to bring significant amounts of rain to the coast.`\
 https://nytimes.com/2024/08/02/weather/florida-gulf-tropical-storm-state-emergency.html
-
-**Carlos Alcaraz annihilates Felix Auger-Aliassime to play for Olympic gold**\
-`Clay, grass, clay: the surface transition never really seen in tennis, until a succession of two Grand Slam tournaments and one Olympic Games in 2024.`\
-https://nytimes.com/athletic/5676498/2024/08/02/carlos-alcaraz-auger-aliassime-olympics-tennis/
-
-**Convicted Assassin Is a Russian Security Agent, Kremlin Acknowledges**\
-`Vadim Krasikov, who was returned to Russia in the big prisoner swap, received a hero’s welcome from President Putin, along with others who were freed.`\
-https://nytimes.com/2024/08/02/world/europe/vadim-krasikov-assassin-russia-fsb.html
 
