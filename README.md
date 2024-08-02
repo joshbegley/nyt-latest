@@ -1,6 +1,6 @@
 **Kamala Harris Hires Former Obama Advisers, Building Out Campaign**\
 `David Plouffe, who managed Barack Obama’s first presidential bid, is among the new senior staff announced on Friday, along with veterans of both Obama campaigns as well as Hillary Clinton’s 2016 run.`\
-https://nytimes.com/live/2024/08/02/us/harris-trump-election/kamala-harris-david-plouffe-obama
+https://nytimes.com/2024/08/02/us/politics/kamala-harris-david-plouffe-obama.html
 
 **Iceland’s New President Is a Feminist, and a Friend of Björk**\
 `Though the president’s role is mostly ceremonial, Halla Tómasdóttir said that she would seek to raise “the right questions” and bring attention to critical health issues.`\
