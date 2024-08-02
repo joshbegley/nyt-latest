@@ -1,4 +1,4 @@
-**The U.S. is sending more combat aircraft to the Middle East, officials say.**\
+**The U.S. is preparing to send more combat aircraft to the Middle East, officials say.**\
 `By Eric Schmitt`\
 https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/the-us-is-sending-more-combat-aircraft-to-the-middle-east-officials-say
 
