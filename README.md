@@ -1,40 +1,40 @@
-**‘Elizabeth Taylor: The Lost Tapes’ and the Moment Star Worship Curdled**\
-`The documentary blends audio interviews with footage from her life to provide a revealing look not so much at the actress, but at celebrity culture.`\
-https://nytimes.com/2024/08/02/movies/elizabeth-taylor-the-lost-tapes-celebrity-culture.html
+**Here’s the latest on the assassinations that have raised tensions in the Middle East.**\
+`By Adam Rasgon, Raja Abdulrahim and Victoria Kim`\
+https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/heres-the-latest-on-the-assassinations-that-have-raised-tensions-in-the-middle-east
 
-**Trump Cites Opportunity Zones as a Triumph. Their Success Is Middling.**\
-`A tax incentive, with bipartisan roots, aims to foster development in poor areas. It has fueled building, but it hasn’t always aided local residents.`\
-https://nytimes.com/2024/08/02/business/economy/opportunity-zones-trump-impact.html
+**6 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about. (Though one missing movie, “Trap,” was not screened early for critics.)`\
+https://nytimes.com/2024/08/02/movies/new-movies-this-week-critics.html
 
-**Picture Books That Cushion Kids’ Falls**\
-`In a world worth exploring, our reviewer argues, an occasional spill is the price of admission.`\
-https://nytimes.com/2024/08/02/books/review/mama-in-the-moon-doreen-cronin-brian-cronin-sometimes-we-fall-randall-de-seve-kate-gardiner.html
+**5 Ways to Make Friends (Without Joining a Book Club)**\
+`Experts share strategies for connecting that actually work.`\
+https://nytimes.com/2024/08/02/well/live/friends-community-connections.html
 
-**The Christian Case Against Trump**\
-`Evangelicals who have found the weaponization of Scripture distasteful are showing us that their vote is very much up for grabs.`\
-https://nytimes.com/2024/08/02/opinion/trump-christianity-fundamentalism-evangelical.html
+**The Zoom Election, Google DeepMind’s Math Olympiad and HatGPT Olympics Edition**\
+`Every presidential election has a defining technology.`\
+https://nytimes.com/2024/08/02/podcasts/hard-fork-zoom-election-deepmind-math-hatgpt-olympics.html
 
-**Making Money From News Aimed at Gen Z Is Easier Said Than Done**\
-`The Washington Post is creating a division to find valuable audiences in new places. The C.E.O.’s last company shows that’s a tough road.`\
-https://nytimes.com/2024/08/02/business/media/news-movement-will-lewis-washington-post.html
+**The Plan That Freed Evan Gershkovich Was Hatched Two Years Before His Arrest**\
+`The reporter’s arrest opened the possibility of freeing the opposition leader. The opposition leader’s death made it possible to free the reporter.`\
+https://nytimes.com/2024/08/02/opinion/evan-gershkovich-release.html
 
-**With Solitude and Untouched Nature, the Quieter Corners of the Adirondacks Beckon**\
-`New York’s Adirondack Park draws more than 12 million visitors each year, but most don’t venture far from the park’s population centers. Here’s where to go to avoid the crowds.`\
-https://nytimes.com/2024/08/02/travel/adirondacks-park-hamilton-warren-franklin.html
+**6 New Paperbacks to Read This Week**\
+`Selected paperbacks from the Book Review, including titles by Susan Casey, Yunte Huang, Caleb Azumah Nelson and more.`\
+https://nytimes.com/interactive/2024/08/02/books/review/new-paperbacks-nelson.html
 
-**A Genre-Twisting Novel by an Author Writing About an Author Writing About Exile**\
-`In “Unspeakable Home,” Ismet Prcic writes about a broken writer named Izzy Prcic, who is working on a book about his immigration, displacement and life struggles.`\
-https://nytimes.com/2024/08/02/books/review/unspeakable-home-ismet-prcic.html
+**5 Things to Do This Weekend**\
+`A selection of entertainment highlights this weekend, including the season finale of “House of the Dragon.”`\
+https://nytimes.com/interactive/2024/08/02/arts/weekend-editors-picks-house-of-the-dragon.html
 
-**It Was Supposed to Be a Garden Oasis, but It Led to Unexpected Dangers**\
-`In Helen Phillips’s near-future novel, “Hum,” a family’s dream vacation away from technology devolves into a misadventure with major consequences.`\
-https://nytimes.com/2024/08/02/books/review/hum-helen-phillips.html
+**At 97, This Conductor Is Modest and Extraordinary**\
+`When Herbert Blomstedt, the oldest major conductor active today, led the Vienna Philharmonic, age was only one factor in his remarkable artistry.`\
+https://nytimes.com/2024/08/02/arts/music/herbert-blomstedt-conductor.html
 
-**Sliders: How the Miami Marlins are plotting their post-trade deadline vision**\
-`Plus life as a deadline roster casualty, Teoscar Hernández's path to learning English and more. `\
-https://nytimes.com/athletic/5674459/2024/08/02/marlins-trade-deadline-teoscar-hernandez-sliders/
+**Don’t Listen to the Right. The Kamalanomenon Is Real.**\
+`There was Obama-level excitement at Harris’s Atlanta rally.`\
+https://nytimes.com/2024/08/02/opinion/kamala-harris-atlanta-rally.html
 
-**Noah Lyles is talking the talk ahead of the Olympics, now it's time to do the rest**\
-`It's been an epic runway to Paris for Lyles. He couldn't have scripted it better. Now it's time to put it all together.`\
-https://nytimes.com/athletic/5663468/2024/08/02/noah-lyles-olympics-100-200-meter-double/
+**The New York Times News Quiz, Aug. 2, 2024**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2024/08/02/briefing/trump-harris-olympics-haniyeh-quiz.html
 
