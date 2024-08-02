@@ -1,3 +1,11 @@
+**‘Trap’ Review: Pop Goes the Thriller**\
+`Josh Hartnett stars as a father with a secret in this M. Night Shyamalan film set at a concert.`\
+https://nytimes.com/2024/08/02/movies/trap-review.html
+
+**Netanyahu, Defiant, Appears to Have Gone Rogue, Risking a Regional War**\
+`Ignoring the efforts of President Biden and the condemnation of many allies, the Israeli prime minister is forcing the pace of the war and feeding the revolt of the far right.`\
+https://nytimes.com/2024/08/02/world/europe/israel-defiant-gaza-war.html
+
 **Israel, Defiant, Appears to Have Gone Rogue, Risking a Regional War**\
 `Ignoring the efforts of President Biden and the condemnation of many allies, Prime Minister Benjamin Netanyahu is forcing the pace of the war and feeding the revolt of the far right.`\
 https://nytimes.com/2024/08/02/world/europe/israel-defiant-gaza-war.html
