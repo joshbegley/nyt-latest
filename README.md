@@ -35,6 +35,6 @@ https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/heres
 https://nytimes.com/2024/08/02/movies/new-movies-this-week-critics.html
 
 **Hamas Leader Mourned in Qatar With Middle East on Edge**\
-`Mourners were gathering for the funeral of Ismail Haniyeh, the political leader of Hamas who was assassinated earlier this week. President Biden expressed deep concern, and called on Israel to agree to a cease-fire.`\
+`Mourners were gathering for the funeral of Ismail Haniyeh, the political leader of Hamas who was assassinated earlier this week. President Biden expressed deep concern about the situation in the region, and called on Israel to agree to a cease-fire in Gaza.`\
 https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza
 
