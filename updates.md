@@ -1,3 +1,15 @@
+**Spurs granted permission to hold 30 non-football events at stadium per year**\
+`Tottenham Hotspur have been granted permission to hold up to 30 non-football events at their stadium per calendar year.`\
+https://nytimes.com/athletic/5676363/2024/08/02/tottenham-hotspur-stadium-events/
+
+**Gary Neville acquires Peter Lim's stake in Salford**\
+`Gary Neville has bought out Peter Lim&#8217;s stake in Salford City, opening the door for a new strategic partner &#8220;to take the club forward&#8221;.`\
+https://nytimes.com/athletic/5676316/2024/08/02/gary-neville-peter-lim-salford/
+
+**Child care needs challenge women’s work force gains.**\
+`Participation in the labor force has surged among women in their prime working years. But for those with children under 5, the gains may have peaked.`\
+https://nytimes.com/live/2024/08/02/business/jobs-report-july/women-work-force-child-care
+
 **Vitor Roque at Barcelona: What's gone wrong with €30m striker they rushed to sign?**\
 `Barcelona's 19-year-old Brazilian striker has struggled since landing in the city last December. What might the future hold?`\
 https://nytimes.com/athletic/5676162/2024/08/02/vitor-roque-barcelona-transfer-summer-flick-xavi/

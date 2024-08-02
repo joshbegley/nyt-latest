@@ -1,3 +1,15 @@
+**Spurs granted permission to hold 30 non-football events at stadium per year**\
+`Tottenham Hotspur have been granted permission to hold up to 30 non-football events at their stadium per calendar year.`\
+https://nytimes.com/athletic/5676363/2024/08/02/tottenham-hotspur-stadium-events/
+
+**Gary Neville acquires Peter Lim's stake in Salford**\
+`Gary Neville has bought out Peter Lim&#8217;s stake in Salford City, opening the door for a new strategic partner &#8220;to take the club forward&#8221;.`\
+https://nytimes.com/athletic/5676316/2024/08/02/gary-neville-peter-lim-salford/
+
+**Child care needs challenge women’s work force gains.**\
+`Participation in the labor force has surged among women in their prime working years. But for those with children under 5, the gains may have peaked.`\
+https://nytimes.com/live/2024/08/02/business/jobs-report-july/women-work-force-child-care
+
 **Vitor Roque at Barcelona: What's gone wrong with €30m striker they rushed to sign?**\
 `Barcelona's 19-year-old Brazilian striker has struggled since landing in the city last December. What might the future hold?`\
 https://nytimes.com/athletic/5676162/2024/08/02/vitor-roque-barcelona-transfer-summer-flick-xavi/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/08/02/business/jobs-report-july/first-job-after-co
 **Live Updates: U.S. Job Market May Have Cooled in July**\
 `Economists expect the report to show that employers added 175,000 jobs. That would be a healthy number, but down from the 206,000 reported for June.`\
 https://nytimes.com/live/2024/08/02/business/jobs-report-july
-
-**The Athletic’s Friday football quiz question #15**\
-`Every week, we'll serve up a poser from our vault of football conundrums. It won't be easy (unless you're really good…)`\
-https://nytimes.com/athletic/5674764/2024/08/02/the-athletics-friday-football-quiz-question-15/
-
-**Queues for Ameobi, commercial value and 'massive potential': Why Newcastle are touring Japan**\
-`Newcastle are on pre-season tour in Japan — our reporter has been with them for every step of the trip`\
-https://nytimes.com/athletic/5676106/2024/08/02/newcastle-japan-tour-why/
-
-**Q&A: Raiders offensive coordinator Luke Getsy dishes on QB battle, Brock Bowers & more**\
-`The Raiders' new OC thinks the QB competition will work itself out and likes his group of dynamic players. "We want teams to feel our film."`\
-https://nytimes.com/athletic/5675368/2024/08/02/luke-getsy-raiders-offense/
 
