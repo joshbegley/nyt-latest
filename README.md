@@ -1,7 +1,3 @@
-**It’s official: Léon Marchand owns the pool in France after winning his fourth gold medal.**\
-`After winning the 200 individual medley, Marchand joins Michael Phelps and Mark Spitz as the only male swimmers to win four gold medals at a single Olympics.`\
-https://nytimes.com/2024/08/02/world/olympics/leon-marchand-gold-medals.html
-
 **Gary Patterson no longer with Baylor after offseason as Dave Aranda consultant**\
 `Aranda brought Patterson on to bolster his Baylor staff amid significant changes within the program after consecutive losing seasons.`\
 https://nytimes.com/athletic/5677225/2024/08/02/gary-patterson-baylor-dave-aranda/
@@ -37,4 +33,8 @@ https://nytimes.com/live/2024/07/30/opinion/thepoint/eric-adams-mayor-unpopulari
 **American Grant Fisher wins bronze in men's 10k; Ugandan Joshua Cheptegei sets Olympic record**\
 `Fisher is the fourth U.S. man in history to medal in the event.`\
 https://nytimes.com/athletic/5677169/2024/08/02/grant-fisher-joshua-cheptegei-olympic-10k/
+
+**How to Watch the Summer Olympics in 4K**\
+`You can watch those handsprings in ultra high definition.`\
+https://nytimes.com/interactive/2024/08/02/smarter-living/wirecutter/watch-olympics-4k.html
 
