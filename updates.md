@@ -1,3 +1,16 @@
+**The Pulse: Yes, she's wearing a diamond goat necklace**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/5675937/2024/08/02/simone-biles-suni-lee-nfl-kickoffs-the-pulse/
+
+**Ravens rookie Roger Rosengarten gets his turn at RT as O-line decisions near**\
+`The second-round pick got his first extended look as the starting right tackle. Plus, safety Kyle Hamilton excelling in one-on-one drills.`\
+https://nytimes.com/athletic/5675726/2024/08/02/ravens-training-camp-roger-rosengarten/
+
+**The key question facing NHL teams: How much cap space can they dedicate to core players?**\
+`Teams around the league will have to contemplate how many big contracts they can realistically dedicate to just a few of their players.
+`\
+https://nytimes.com/athletic/5672621/2024/08/02/nhl-salary-cap-core-players/
+
 **The key question facing NHL teams: How much cap space can they dedicate to core players?**\
 `Teams around the league will have to contemplate how many big contracts they can realistically dedicate to just a few of their players.
 `\
