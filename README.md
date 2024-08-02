@@ -1,6 +1,6 @@
 **Harris Begins Final Phase of Accelerated V.P. Search**\
 `The formal vetting process is finished, and the first major decision of Vice President Kamala Harris’s presidential campaign is just days away.`\
-https://nytimes.com/2024/08/01/us/politics/kamala-harris-vice-presidential-search-campaign-2024.html
+https://nytimes.com/2024/08/01/us/politics/kamala-harris-vp-search.html
 
 **N.F.L. Sunday Ticket Verdict Is Thrown Out by Judge**\
 `The decision, five weeks after a jury awarded $4.7 billion in damages in an antitrust case, is a reprieve for the league.`\
