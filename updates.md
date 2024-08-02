@@ -1,3 +1,7 @@
+**Lions tune up with scrimmage periods before joint practice with Giants**\
+`The Lions travel to New Jersey next week for joint practices and a preseason game against the Giants.`\
+https://nytimes.com/athletic/5677164/2024/08/02/detroit-lions-training-camp-joint-practice-giants/
+
 **Chelsea working to 'find solution' to Gallagher future - Maresca**\
 `Chelsea head coach Enzo Maresca says the club are working with Conor Gallagher to &#8220;find a solution&#8221; to the ongoing uncertainty surrounding the midfielder&#8217;s future at Stamford Bridge.`\
 https://nytimes.com/athletic/5677295/2024/08/02/conor-gallagher-chelsea-maresca/
