@@ -1,3 +1,7 @@
+**Russian Dissident Says He Was Traded Against His Will in Inmate Swap**\
+`Ilya Yashin, a prominent opposition politician, said he appreciated his freedom, but told his jailers he did not want it if it meant going into exile.`\
+https://nytimes.com/2024/08/02/world/europe/russian-dissident-involuntary-exile.html
+
 **U.S. sets world record in 4x400 mixed relay**\
 `The quartet of Vernon Norwood, Shamier Little, Bryce Deadmon and Kaylyn Brown logged a time of 3:07.41.`\
 https://nytimes.com/athletic/5677083/2024/08/02/team-usa-mixed-relay-world-record/
