@@ -22,7 +22,7 @@ https://nytimes.com/2024/08/02/arts/thomas-jolly-olympics-director-death-threats
 `The Justice Department said that TikTok illegally collected children’s data and knowingly allowed users under the age of 13 to create accounts.`\
 https://nytimes.com/2024/08/02/technology/tiktok-doj-child-privacy.html
 
-**Harris Has Votes Needed to Formally Be Nominee, D.N.C. Says**\
+**Harris Has Votes Needed to Be Democrats’ Nominee, D.N.C. Says**\
 `The party chair said she had won enough delegates to secure the nomination, setting up Kamala Harris to become the first Black woman and person of South Asian heritage to earn the top spot on a major political ticket for president.`\
 https://nytimes.com/2024/08/02/us/politics/kamala-harris-democrats-nominee-official.html
 

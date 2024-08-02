@@ -1,3 +1,7 @@
+**Trump Uses Timeworn Tactic to Stoke Suspicion About Harris**\
+`Politicians have long cast their opponents as outsiders. But Donald J. Trump has taken the strategy to the next level against Kamala Harris.`\
+https://nytimes.com/2024/08/02/us/trump-tactic-suspicion-harris.html
+
 **The Olympics’ No. 1 Fan**\
 `Is anyone as excited by the Paris Games as Antoine Griezmann? It doesn’t seem possible.`\
 https://nytimes.com/2024/08/02/world/europe/olympics-griezmann-france.html
