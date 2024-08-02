@@ -1,3 +1,15 @@
+**The quirky stories that define Stephen Nedoroscik, Team USA's pommel horse hero**\
+`“Men’s gymnastics needed Stephen," said Matt Carbone, the owner of Nedoroscik's hometown gym.`\
+https://nytimes.com/athletic/5675559/2024/08/02/stephen-nedoroscik-usa-gymnastics-olympics-penn-state-pommel-horse/
+
+**NBC Sports 'likely' to introduce 'multiview' feature for Premier League coverage**\
+`NBC Sports are &#8220;likely&#8221; to enhance its Premier League coverage with the introduction of a new &#8220;multiview&#8221; feature, offering fans the ability to watch multiple games simultaneously.`\
+https://nytimes.com/athletic/5676492/2024/08/02/nbc-sports-premier-league-multiview/
+
+**Hayes defends lack of USWNT rotation, says Davidson and Shaw could be fit**\
+`Shaw has yet to feature at the Games, while Davidson missed the final group match against Australia`\
+https://nytimes.com/athletic/5676539/2024/08/02/uswnt-davidson-shaw-hayes-olympics/
+
 **Parts of Florida Under State of Emergency as Storm Moves Toward the Gulf**\
 `The storm, which could become Tropical Storm Debby, is expected to bring significant amounts of rain to the coast.`\
 https://nytimes.com/2024/08/02/weather/florida-gulf-tropical-storm-state-emergency.html
