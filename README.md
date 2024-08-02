@@ -1,3 +1,11 @@
+**Private chef, mental coach and training in Miami - Rogers has readied his body and mind**\
+`The forward's start at Villa caught some by surprise — he's taken steps to make sure he is no flash in the pan `\
+https://nytimes.com/athletic/5671387/2024/08/02/how-morgan-rogers-is-preparing-for-first-full-season-at-aston-villa/
+
+**Everton have been busy in transfer market - could Phillips or Diarra be next?**\
+`Despite ownership turmoil, Everton have been active in the market and have room for loans - they are short in central defence and midfield`\
+https://nytimes.com/athletic/5671698/2024/08/02/everton-transfers-kalvin-phillips-habib-diarra/
+
 **Touchline-hugging, penalty-box breaking and experience: What Bogle brings to Leeds**\
 `Jayden Bogle arrived at Elland Road earlier this pre-season but already looks like he can make an impact at Leeds`\
 https://nytimes.com/athletic/5671377/2024/08/02/jayden-bogle-leeds-united-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5675624/2024/08/02/mock-draft-strategy-2024-hero-ze
 **Inside the PFA's summer camp for free agents: 'It feels like I'm at a team already'**\
 `Where out-of-contract players, including Dwight Gayle and Ciaran Clark, go to get their pre-season training...`\
 https://nytimes.com/athletic/5674154/2024/08/02/pfa-summer-camp-for-free-agents/
-
-**Fantasy baseball waiver wire: Hayden Birdsong, Matt Wallner and more adds; plus, two-start pitchers and stashes**\
-`John Laghezza mines the deep data to uncover the best of what the waiver wire has to offer, including the Twins' late-surging Matt Wallner.`\
-https://nytimes.com/athletic/5674412/2024/08/02/fantasy-baseball-waiver-wire-hayden-birdsong-matt-wallner-and-more-adds-plus-two-start-pitchers-and-stashes/
-
-**Inside Wrexham's 2024 U.S. tour: More rest, more excitement, more progress**\
-`How the club learnt from the mistakes of 2023 to make this summer's American tour a success both on and off the pitch`\
-https://nytimes.com/athletic/5671402/2024/08/02/inside-the-wrexham-us-tour-2024/
 
