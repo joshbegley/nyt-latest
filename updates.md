@@ -1,3 +1,7 @@
+**Collin Johnson, Brett Rypien star for Bears in weather-shortened Hall of Fame Game**\
+`Johnson and Rypien, two veterans, have quickly built a connection, but where do they fit on the Bears' roster?`\
+https://nytimes.com/athletic/5676063/2024/08/02/bears-collin-johnson-brett-rypien-hall-of-fame-game/
+
 **Word of the Day: defamatory**\
 `This word has appeared in 73 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/02/learning/word-of-the-day-defamatory.html
