@@ -11,7 +11,7 @@ https://nytimes.com/2024/08/02/us/politics/kamala-harris-democrats-nominee-offic
 https://nytimes.com/2024/08/02/us/politics/jd-vance-new-right-economics.html
 
 **Senior U.S. Diplomat Will Lead Kamala Harris’s Running Mate’s Team**\
-`Elizabeth M. Allen, who leads the State Department’s public diplomacy office, served as a top aide to Ms. Harris in 2020 and in the Obama White House.`\
+`Elizabeth M. Allen, who heads the State Department’s public diplomacy office, served as a top aide to Ms. Harris in 2020 and in the Obama White House.`\
 https://nytimes.com/2024/08/02/us/politics/elizabeth-allen-kamala-harris-campaign.html
 
 **An Autocrat’s Tool Backfires in Venezuela**\
