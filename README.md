@@ -13,7 +13,7 @@ https://nytimes.com/2024/08/02/podcasts/the-daily/foxnews-murdoch.html
 
 **A Major Prisoner Exchange, and U.S. Says Venezuelan Opposition Won**\
 `Plus, Simone Biles takes gold — again.`\
-https://nytimes.com/2024/08/02/podcasts/a-major-prisoner-exchange-and-us-says-venezuelan-opposition-won.html
+https://nytimes.com/2024/08/02/podcasts/gershkovich-russia-prisoner-exchange-venezuala-election.html
 
 **Wordle Review No. 1,141, Saturday, August 3, 2024**\
 `Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
