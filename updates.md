@@ -1,3 +1,11 @@
+**UCLA hopes to not be the forgotten member of the new Big Ten for long**\
+`UCLA’s apparent advantages such as location and population often become its weaknesses, especially when it comes to football.`\
+https://nytimes.com/athletic/5675212/2024/08/02/ucla-big-ten-revenue-realignment/
+
+**Talking Trump and Economics With Joseph Stiglitz in Sydney**\
+`His new book is about reimagining freedom for ‘progressive capitalism.’`\
+https://nytimes.com/2024/08/02/world/australia/joseph-stiglitz-trump-economics-neoliberalism.html
+
 **Talking Trump and Economics With Joseph Stiglitz in Sydney**\
 `The eminent economist describes Donald Trump and the MAGA movement as a response to the failure of nearly 40 years of neoliberalism.`\
 https://nytimes.com/2024/08/02/world/australia/joseph-stiglitz-trump-neoliberalism-failure.html
