@@ -30,11 +30,11 @@ https://nytimes.com/2024/08/02/us/politics/harris-campaign-fundraising-july.html
 `By Victoria Kim`\
 https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/biden-again-pushes-israel-to-agree-to-a-cease-fire-deal-with-hamas
 
-**Here’s the latest on the assassinations that have raised tensions in the Middle East.**\
-`By Adam Rasgon, Raja Abdulrahim and Victoria Kim`\
-https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/heres-the-latest-on-the-assassinations-that-have-raised-tensions-in-the-middle-east
-
 **6 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about. (Though one missing movie, “Trap,” was not screened early for critics.)`\
 https://nytimes.com/2024/08/02/movies/new-movies-this-week-critics.html
+
+**Here’s the latest on the assassinations that have raised tensions in the Middle East.**\
+`By Adam Rasgon, Raja Abdulrahim and Victoria Kim`\
+https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/heres-the-latest-on-the-assassinations-that-have-raised-tensions-in-the-middle-east
 
