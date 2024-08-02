@@ -1,3 +1,11 @@
+**How Katie Ledecky Won the Most Medals of Any U.S. Female Olympian**\
+`Katie Ledecky now stands alone as the most decorated female American Olympian, in any sport, with 13 medals. And she still has one more race to swim in France. Jenny Vrentas, a New York Times reporter covering sports, explains how Ledecky reached this milestone.`\
+https://nytimes.com/video/sports/100000009606617/how-katie-ledecky-won-the-most-medals-of-any-us-female-olympian.html
+
+**Diamondbacks hit Little League homer, back-to-back-to-back homers against Pirates**\
+`The Diamondbacks got the scoring started against the Pirates in a chaotic and unusual way. `\
+https://nytimes.com/athletic/5677401/2024/08/02/diamondbacks-early-chaotic-scoring/
+
 **Diamondbacks eke Little League homer, back-to-back-to-back homers against Pirates**\
 `The Diamondbacks got the scoring started against the Pirates in a chaotic and unusual way. `\
 https://nytimes.com/athletic/5677401/2024/08/02/diamondbacks-early-chaotic-scoring/
