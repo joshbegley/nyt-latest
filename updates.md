@@ -1,3 +1,7 @@
+**Trump Remarks on Harris’s Multiracial Identity Overlook a Growing Trend**\
+`Demographers say that a growing number of Americans identify as more than one race, and that the number will continue expanding in the decades ahead.`\
+https://nytimes.com/2024/08/01/us/trump-harris-black-asian-race.html
+
 **Judge overturns verdict in 'Sunday Ticket' lawsuit**\
 `In June, a jury in U.S. District Court ordered the NFL to pay billions in damages to "Sunday Ticket" subscribers.`\
 https://nytimes.com/athletic/5675803/2024/08/01/nfl-sunday-ticket-lawsuit-verdict-overturned/
