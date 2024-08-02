@@ -1,3 +1,15 @@
+**Does Anyone Have Leverage Over Nicolás Maduro?**\
+`The Biden administration recognized the autocrat’s rival as the winner of Sunday’s election in Venezuela. Yet President Maduro shows no sign of being willing to leave office.`\
+https://nytimes.com/2024/08/02/world/americas/venezuela-maduro-election-voters.html
+
+**Democrats Pushed Biden Aside. Is Eric Adams Next?**\
+`The mayor of New York is highly unpopular and already has a few challengers.`\
+https://nytimes.com/live/2024/07/30/opinion/thepoint/eric-adams-mayor-unpopularity
+
+**American Grant Fisher wins bronze in men's 10k; Ugandan Joshua Cheptegei sets Olympic record**\
+`Fisher is the fourth U.S. man in history to medal in the event.`\
+https://nytimes.com/athletic/5677169/2024/08/02/grant-fisher-joshua-cheptegei-olympic-10k/
+
 **How to Watch the Summer Olympics in 4K**\
 `You can watch those handsprings in ultra high definition.`\
 https://nytimes.com/interactive/2024/08/02/smarter-living/wirecutter/watch-olympics-4k.html
