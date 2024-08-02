@@ -1,3 +1,7 @@
+**Gloria Johnson, Tennessee Democrat Who Faced Expulsion, Wins U.S. Senate Primary**\
+`The state lawmaker, who gained national attention for her role in a gun control protest, will challenge Senator Marsha Blackburn, a Republican.`\
+https://nytimes.com/2024/08/01/us/politics/gloria-johnson-senate.html
+
 **Seven Commanders roster questions to ponder one week into camp**\
 `Will Washington keep three QBs on the final 53-man roster, and how will the WR and CB rooms shake out?`\
 https://nytimes.com/athletic/5675558/2024/08/01/washington-commanders-roster-training-camp/
