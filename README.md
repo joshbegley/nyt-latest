@@ -1,3 +1,7 @@
+**Trump Uses Timeworn Tactic to Stoke Suspicion About Harris**\
+`Politicians have long cast their opponents as outsiders. But Donald J. Trump has taken the strategy to the next level against Kamala Harris.`\
+https://nytimes.com/2024/08/02/us/trump-tactic-suspicion-harris.html
+
 **The Olympics’ No. 1 Fan**\
 `Is anyone as excited by the Paris Games as Antoine Griezmann? It doesn’t seem possible.`\
 https://nytimes.com/2024/08/02/world/europe/olympics-griezmann-france.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/02/us/politics/elizabeth-allen-kamala-harris-campaig
 **An Autocrat’s Tool Backfires in Venezuela**\
 `Nicolás Maduro claimed victory in his country’s election. But exit polls suggested the opposition leader won a landslide, setting off protests around the country.`\
 https://nytimes.com/2024/08/02/world/americas/an-autocrats-tool-backfires-in-venezuela.html
-
-**Kentucky football to vacate games, serve probation via resolution with NCAA**\
-`At least 11 football players received payment for work not performed between spring 2021 and March 2022, the school and NCAA agreed.`\
-https://nytimes.com/athletic/5676944/2024/08/02/kentucky-football-vacated-games-ncaa-investigation/
 
