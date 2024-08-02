@@ -1,3 +1,7 @@
+**The Harris Electorate**\
+`We examine who plans to vote for her.`\
+https://nytimes.com/2024/08/02/briefing/the-harris-electorate.html
+
 **What to See at the Edinburgh Fringe**\
 `Previous editions of the performing arts event launched shows like “Baby Reindeer” and “Fleabag.” Maybe there’s another breakout hit among this year’s more than 3,300 shows.`\
 https://nytimes.com/2024/08/02/theater/edinburgh-fringe-what-to-see.html
@@ -34,8 +38,4 @@ https://nytimes.com/2024/08/02/crosswords/wordle-review-1141.html
 **The Connections Companion No. 419, August 3, 2024**\
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/08/02/crosswords/connections-companion-419.html
-
-**A World Cup in America in the middle of summer? Have they seen the weather?**\
-`A summer of soccer in the U.S. has shown that FIFA need a weather plan for the Club World Cup and World Cup`\
-https://nytimes.com/athletic/5674585/2024/08/02/world-cup-2026-america-weather/
 
