@@ -1,3 +1,11 @@
+**Raiders training camp: Rookies DJ Glaze and Dylan Laube opening some eyes**\
+`Glaze has been holding his own against Raiders star Maxx Crosby, while Laube is seeing some first- and second-team reps. `\
+https://nytimes.com/athletic/5677363/2024/08/02/raiders-training-camp-rookies-dj-glaze-and-dylan-laube-opening-some-eyes/
+
+**Prisoner Deals Stoke Fears of Perverse ‘Incentive’ to Grab Americans**\
+`Hostile governments like Russia and Iran are often involved, and practical alternatives are hard to come by, experts say.`\
+https://nytimes.com/2024/08/02/us/politics/prisoner-deals-russia.html
+
 **The Veepstakes (Pennsylvania’s Version)**\
 `The question of whether Josh Shapiro can deliver the biggest, baddest swing state is complicated.`\
 https://nytimes.com/2024/08/02/us/politics/harris-vp-shapiro.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5677227/2024/08/02/tim-patrick-broncos-training-cam
 **Yvonne Furneaux, Cosmopolitan Actress in ‘La Dolce Vita,’ Dies at 98**\
 `An Oxford graduate who spoke five languages, she had an early career as a siren before finding critical acclaim in masterworks by Federico Fellini and Roman Polanski.`\
 https://nytimes.com/2024/08/02/movies/yvonne-furneaux-dead.html
-
-**Nottingham Forest in a 'good place' - Nuno**\
-`Nuno Espirito Santo says he is happy with Nottingham Forest’s progress on the pitch and in the transfer market — but wants to see the club continue their hard work on both fronts before the Premier League season kicks-off later this month.`\
-https://nytimes.com/athletic/5677326/2024/08/02/nuno-espirito-santo-forest-pre-season/
-
-**Lions tune up with scrimmage periods before joint practice with Giants**\
-`The Lions travel to New Jersey next week for joint practices and a preseason game against the Giants.`\
-https://nytimes.com/athletic/5677164/2024/08/02/detroit-lions-training-camp-joint-practice-giants/
 
