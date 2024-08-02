@@ -1,3 +1,11 @@
+**The Veepstakes (Pennsylvania’s Version)**\
+`The question of whether Josh Shapiro can deliver the biggest, baddest swing state is complicated.`\
+https://nytimes.com/2024/08/02/us/politics/harris-vp-shapiro.html
+
+**Miami lands local 2025 DL recruit Donta Simpson**\
+`Simpson recently attended Miami's recruiting BBQ and landed an offer from Mario Cristobal. He's the 20th commitment in Miami's 2025 class`\
+https://nytimes.com/athletic/5677178/2024/08/02/miami-hurricanes-football-recruiting-commitment-donta-simpson/
+
 **Erick Fedde falters in Cardinals debut: 'Wanted it to be a special one'**\
 `Fedde surrendered 5 runs in a start marred by inconsistent command and the Cardinals offense missed several big chances.`\
 https://nytimes.com/athletic/5677209/2024/08/02/cardinals-mlb-erick-fedde-debut/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5677326/2024/08/02/nuno-espirito-santo-forest-pre-s
 **Lions tune up with scrimmage periods before joint practice with Giants**\
 `The Lions travel to New Jersey next week for joint practices and a preseason game against the Giants.`\
 https://nytimes.com/athletic/5677164/2024/08/02/detroit-lions-training-camp-joint-practice-giants/
-
-**Chelsea working to 'find solution' to Gallagher future - Maresca**\
-`Chelsea head coach Enzo Maresca says the club are working with Conor Gallagher to &#8220;find a solution&#8221; to the ongoing uncertainty surrounding the midfielder&#8217;s future at Stamford Bridge.`\
-https://nytimes.com/athletic/5677295/2024/08/02/conor-gallagher-chelsea-maresca/
-
-**Joe Gomez's future at Liverpool remains in the balance after Newcastle approach**\
-`The centre-back came up as an option in a potential swap deal involving Anthony Gordon. Will he seek another Anfield exit route?`\
-https://nytimes.com/athletic/5675357/2024/08/02/joe-gomez-liverpool-newcastle-anthony-gordon-transfer/
 
