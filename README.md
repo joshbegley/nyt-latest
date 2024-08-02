@@ -1,3 +1,7 @@
+**U.S. sets world record in 4x400 mixed relay**\
+`The quartet of Vernon Norwood, Shamier Little, Bryce Deadmon and Kaylyn Brown logged a time of 3:07.41.`\
+https://nytimes.com/athletic/5677083/2024/08/02/team-usa-mixed-relay-world-record/
+
 **Russian Dissident Says He Was Traded Against His Will in Inmate Swap**\
 `Ilya Yashin, one of Russia’s most prominent opposition politicians, said he appreciated his freedom, but told his jailers he did not want it if it meant going into involuntary exile.`\
 https://nytimes.com/2024/08/02/world/europe/russian-dissident-involuntary-exile.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/02/opinion/joe-manchin-climate-change.html
 **Was I Wrong to Reveal That My Novel Was Inspired by an Adulterous Friend?**\
 `The magazine’s Ethicist columnist on character concerns, both in fiction and real life.`\
 https://nytimes.com/2024/08/02/magazine/novel-adulterous-friend-ethics.html
-
-**Haunting Image: First Photo Released of C.I.A. Prisoner at Black Site**\
-`Lawyers for a prisoner at Guantánamo Bay said the image emerged from a classification review that blacked out much of a legal brief.`\
-https://nytimes.com/2024/08/02/us/politics/cia-prisoner-photo-black-site.html
 
