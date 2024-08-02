@@ -1,3 +1,11 @@
+**Touchline-hugging, penalty-box breaking and experience: What Bogle brings to Leeds**\
+`Jayden Bogle arrived at Elland Road earlier this pre-season but already looks like he can make an impact at Leeds`\
+https://nytimes.com/athletic/5671377/2024/08/02/jayden-bogle-leeds-united-analysis/
+
+**A tour of Lopetegui's home town – the new West Ham head coach is forged by Basque traditions**\
+`Julen Lopetegui comes from a sporting family in an area a world away from the Premier League — can he add his steel to West Ham?`\
+https://nytimes.com/athletic/5668102/2024/08/02/julen-lopetegui-west-ham-basque-traditions/
+
 **Inside the sales pitch that took Liverpool and Manchester United to a U.S. college town**\
 `On Saturday evening, Columbia, with a population of less than 140,000, will host one of the sport's most famous rivalries`\
 https://nytimes.com/athletic/5672598/2024/08/02/liverpool-manchester-united-columbia-match/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5674412/2024/08/02/fantasy-baseball-waiver-wire-hay
 **Inside Wrexham's 2024 U.S. tour: More rest, more excitement, more progress**\
 `How the club learnt from the mistakes of 2023 to make this summer's American tour a success both on and off the pitch`\
 https://nytimes.com/athletic/5671402/2024/08/02/inside-the-wrexham-us-tour-2024/
-
-**Fantasy football mailbag: Six players worthy of HeroRB status, tips for fantasy first-timers and more**\
-`Jay Felicio shares his list of the six running backs he considers HeroRB worthy, and also offers tips for fantasy first-timers to follow.`\
-https://nytimes.com/athletic/5675542/2024/08/02/fantasy-football-mailbag-2024-tips-strategy-stacks/
-
-**After Two Weeks of Dating, Committed to Being by Each Other’s Side**\
-`Julia Liverton and Marco Santarlasci instantly clicked after meeting two years ago, and each knew after just a few months that they wanted to marry.`\
-https://nytimes.com/2024/08/02/style/julia-liverton-marco-santarlasci-wedding.html
 
