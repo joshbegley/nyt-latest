@@ -1,3 +1,11 @@
+**UCLA hopes to not be the forgotten member of the new Big Ten for long**\
+`UCLA’s apparent advantages such as location and population often become its weaknesses, especially when it comes to football.`\
+https://nytimes.com/athletic/5675212/2024/08/02/ucla-big-ten-revenue-realignment/
+
+**Talking Trump and Economics With Joseph Stiglitz in Sydney**\
+`His new book is about reimagining freedom for ‘progressive capitalism.’`\
+https://nytimes.com/2024/08/02/world/australia/joseph-stiglitz-trump-economics-neoliberalism.html
+
 **Talking Trump and Economics With Joseph Stiglitz in Sydney**\
 `The eminent economist describes Donald Trump and the MAGA movement as a response to the failure of nearly 40 years of neoliberalism.`\
 https://nytimes.com/2024/08/02/world/australia/joseph-stiglitz-trump-neoliberalism-failure.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/02/insider/in-tahitis-waters-an-ocean-photographer-f
 **Secret Bundlers, Sham Donations: Adams Is Faulted in Campaign Audit**\
 `A 900-page draft audit of Eric Adams’s 2021 mayoral campaign in New York City found widespread errors that could lead to fines or forfeiture of public matching funds.`\
 https://nytimes.com/2024/08/02/nyregion/adams-audit-campaign-investigation.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/08/02/crosswords/spelling-bee-forum.html
-
-**Archaeologists Find a 2,400-Year-Old ‘Pot of Gold’ in Turkey**\
-`An ancient hoard of Persian coins offers insights into the political landscape around the time of the Peloponnesian War.`\
-https://nytimes.com/2024/08/02/science/archaeology-turkey-daric.html
 
