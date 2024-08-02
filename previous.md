@@ -1,5 +1,5 @@
-**AnAutocrat’sTool Backfires in Venezuela**\
-`Nicolás Maduro claimed victory in his country’s election. But exit polls suggested the opposition leader won a landslide, setting off  protests around the country.`\
+**An Autocrat’s Tool Backfires in Venezuela**\
+`Nicolás Maduro claimed victory in his country’s election. But exit polls suggested the opposition leader won a landslide, setting off protests around the country.`\
 https://nytimes.com/2024/08/02/world/americas/an-autocrats-tool-backfires-in-venezuela.html
 
 **Kentucky football to vacate games, serve probation via resolution with NCAA**\
@@ -12,7 +12,7 @@ https://nytimes.com/athletic/5676796/2024/08/02/olympics-women-boxing-angela-car
 
 **Swiatek wins Olympic bronze after gold medal heartbreak**\
 `PARIS — Iga Swiatek, the world No.`\
-https://nytimes.com/athletic/5676910/2024/08/02/iga-swiatek-olympics/
+https://nytimes.com/athletic/5676910/2024/08/02/iga-swiatek-olympics-bronze/
 
 **Who’s Afraid of Being Black? Not Kamala, Beyoncé or Kendrick.**\
 `With her response to Donald Trump’s comments about her background, Kamala Harris showed that Blackness doesn’t need to be explained or defended — an idea underscored by her campaign theme song.`\
