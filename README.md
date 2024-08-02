@@ -1,3 +1,11 @@
+**Malacia out for two more months with knee injury - Ten Hag**\
+`Manchester United left-back Tyrell Malacia is set to remain on the sidelines for another two months, according to manager Erik ten Hag.`\
+https://nytimes.com/athletic/5676772/2024/08/02/tyrell-malacia-injury-man-utd/
+
+**Benjamin Luxon, British Baritone Thwarted by Hearing Loss, Dies at 87**\
+`A favorite of Benjamin Britten, he won acclaim in roles like Don Giovanni, Eugene Onegin and Falstaff until his affliction forced him to largely give up singing.`\
+https://nytimes.com/2024/08/02/arts/music/benjamin-luxon-dead.html
+
 **Olympic champion Simone Biles posted on social media that she loves her ‘Black job.’**\
 `Biles is only the third woman gymnast to win the all-around competition twice at the Olympics.`\
 https://nytimes.com/2024/08/02/us/politics/simone-biles-black-job-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/02/arts/music/playlist-charli-xcx-billie-eilish-gues
 **Postecoglou opens door to Spence staying at Spurs**\
 `Tottenham Hotspur head coach Ange Postecoglou has given Djed Spence hope of having a future at the club.`\
 https://nytimes.com/athletic/5676284/2024/08/02/djed-spence-tottenham-future-postecoglou/
-
-**Five Science Fiction Movies to Stream Now**\
-`In this month’s picks, crises occur both in outer space and in empty rooms.`\
-https://nytimes.com/2024/08/02/movies/science-fiction-movies-streaming.html
-
-**A Tomato Sandwich That’s Very Tomato**\
-`This recipe, a riff on pan con tomate, calls for rubbing garlicky toasts with a halved tomato before applying, yes, more tomato.`\
-https://nytimes.com/2024/08/02/dining/tomato-sandwich-recipe.html
 
