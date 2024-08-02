@@ -2,8 +2,8 @@
 `"I trained to go faster than the times I’m going. I know that," Dressel said.`\
 https://nytimes.com/athletic/5676953/2024/08/02/caeleb-dressel-50-meter-freestyle-paris-olympics/
 
-**Team GB's Whyte hospitalised after crash in BMX semi-final**\
-`Team GB BMX rider Kye Whyte has been taken to hospital after crashing out of the men&#8217;s semi-final race at the Paris Olympics.`\
+**Team GB's Whyte crashes out in BMX semi-final**\
+`Team GB BMX rider Kye Whyte suffered &#8220;no significant injuries&#8221; after crashing out of the men&#8217;s semi-final race at the Paris Olympics.`\
 https://nytimes.com/athletic/5677109/2024/08/02/kye-whyte-olympics-crash/
 
 **Notes on Ohio State's QB battle, the loaded secondary and linebacker shuffling**\
