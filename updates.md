@@ -1,3 +1,7 @@
+**A Big Oopsie for the Fed**\
+`The latest jobs numbers show the Fed has to make a significant interest rate cut, and soon.`\
+https://nytimes.com/live/2024/07/30/opinion/thepoint/krugman-jobs-fed
+
 **As the World Looks Elsewhere, Famine Descends on Darfur**\
 `There is little interest in stopping the civil war that is preventing delivery of food aid.`\
 https://nytimes.com/2024/07/30/opinion/famine-darfur-civil-war.html

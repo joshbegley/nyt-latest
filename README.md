@@ -1,3 +1,31 @@
+**MLB bullpen report: Trade deadline fallout, Paul Sewald's struggles persist and more**\
+`Greg Jewett runs through the MLB trade deadline bullpen fallout, illustrates the struggles of Arizona closer Paul Sewald and more.`\
+https://nytimes.com/athletic/5676639/2024/08/02/fantasy-baseball-bullpen-report-trade-deadline-paul-sewald/
+
+**Wall Street’s Turbulent Week Ends With Another Drop**\
+`A weaker-than-expected jobs report added to investors’ worries about the economy. Stocks fell sharply, and Treasury yields declined in expectation of a Federal Reserve rate cut.`\
+https://nytimes.com/2024/08/02/business/economy/stocks-drop-economy-jobs.html
+
+**Billie Eilish Joins Charli XCX’s Brat Summer, and 10 More New Songs**\
+`Hear tracks by MJ Lenderman, Miranda Lambert, ASAP Rocky featuring Jessica Pratt and others.`\
+https://nytimes.com/2024/08/02/arts/music/playlist-charli-xcx-billie-eilish-guess.html
+
+**Postecoglou opens door to Spence staying at Spurs**\
+`Tottenham Hotspur head coach Ange Postecoglou has given Djed Spence hope of having a future at the club.`\
+https://nytimes.com/athletic/5676284/2024/08/02/djed-spence-tottenham-future-postecoglou/
+
+**Five Science Fiction Movies to Stream Now**\
+`In this month’s picks, crises occur both in outer space and in empty rooms.`\
+https://nytimes.com/2024/08/02/movies/science-fiction-movies-streaming.html
+
+**A Tomato Sandwich That’s Very Tomato**\
+`This recipe, a riff on pan con tomate, calls for rubbing garlicky toasts with a halved tomato before applying, yes, more tomato.`\
+https://nytimes.com/2024/08/02/dining/tomato-sandwich-recipe.html
+
+**Lowetide: 4 key storylines for Oilers fans to follow the rest of this summer**\
+`It's time to digest what happened in free agency, trade and the draft and ponder the Oilers' possible future.`\
+https://nytimes.com/athletic/5674969/2024/08/02/oilers-summer-leon-draisaitl/
+
 **A Big Oopsie for the Fed**\
 `The latest jobs numbers show the Fed has to make a significant interest rate cut, and soon.`\
 https://nytimes.com/live/2024/07/30/opinion/thepoint/krugman-jobs-fed
@@ -9,32 +37,4 @@ https://nytimes.com/2024/08/02/world/middleeast/israel-hamas-hostage-release-dea
 **Three simple reasons why the 2024 Giants have underperformed**\
 `The Giants are five games behind San Diego, who are in an enviable position. Three disappointing individual years have been the difference.`\
 https://nytimes.com/athletic/5675861/2024/08/02/three-simple-reasons-why-the-2024-giants-have-underperformed/
-
-**Man Utd sign Sweden international Sandberg**\
-`Manchester United Women have completed the signing of Sweden defender Anna Sandberg from BK Hacken.`\
-https://nytimes.com/athletic/5676624/2024/08/02/anna-sandberg-manchester-united-transfer/
-
-**Flavor Flav helps Olympic discus thrower pay rent**\
-`U.S. discus thrower Veronica Fraley said she couldn't pay rent, so Flavor Flav and Alexis Ohanian started a wave of donations.`\
-https://nytimes.com/athletic/5676456/2024/08/02/veronica-fraley-flavor-flav-alexis-ohanian-olympics-rent/
-
-**Appeals Court Further Narrows Voting Rights Act’s Scope**\
-`Reversing decades of precedent, the U.S. Court of Appeals for the Fifth Circuit ruled in a Texas case that different minority groups cannot jointly claim that their votes have been diluted.`\
-https://nytimes.com/2024/08/02/us/texas-voting-rights-minorities.html
-
-**Olympic Officials Defend Algerian’s Eligibility in Boxing Controversy**\
-`Online fury and unclear rules have left organizers of the women’s boxing competition in Paris facing complex questions about fairness in women’s sports.`\
-https://nytimes.com/2024/08/02/world/olympics/boxing-imane-khelif-gender-athletes.html
-
-**Emile Smith Rowe to Fulham: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate Emile Smith Rowe's move from Arsenal to Fulham.`\
-https://nytimes.com/athletic/5644989/2024/08/02/emile-smith-rowe-to-fulham-transfer-ratings/
-
-**As the World Looks Elsewhere, Famine Descends on Darfur**\
-`There is little interest in stopping the civil war that is preventing delivery of food aid.`\
-https://nytimes.com/2024/07/30/opinion/famine-darfur-civil-war.html
-
-**Ancelotti says Real Madrid likely his last club job**\
-`Carlo Ancelotti says it is likely Real Madrid will be his last job in club management.`\
-https://nytimes.com/athletic/5676505/2024/08/02/carlo-ancelotti-real-madrid-club-future/
 
