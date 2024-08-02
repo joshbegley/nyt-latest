@@ -2,9 +2,9 @@
 `EL SEGUNDO, Calif.`\
 https://nytimes.com/athletic/5676045/2024/08/02/justin-herbert-injury-chargers-easton-stick/
 
-**The U.S. is preparing to send more combat aircraft to the Middle East, officials say.**\
-`By Eric Schmitt`\
-https://nytimes.com/2024/08/02/world/middleeast/the-us-is-sending-more-combat-aircraft-to-the-middle-east-officials-say.html
+**U.S. Poised to Send More Combat Aircraft to Middle East, Officials Say**\
+`How many planes to send is still being worked out, as are final approvals from senior officials including Defense Secretary Lloyd J. Austin III.`\
+https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/us-iran-israel-aircraft
 
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
