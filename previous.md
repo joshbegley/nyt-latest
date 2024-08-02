@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5676045/2024/08/02/justin-herbert-injury-chargers-e
 
 **U.S. Poised to Send More Combat Aircraft to Middle East, Officials Say**\
 `How many planes to send is still being worked out, as are final approvals from senior officials including Defense Secretary Lloyd J. Austin III.`\
-https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/us-iran-israel-aircraft
+https://nytimes.com/2024/08/02/world/middleeast/us-iran-israel-aircraft.html
 
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\

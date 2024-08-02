@@ -1,5 +1,9 @@
 **U.S. Poised to Send More Combat Aircraft to Middle East, Officials Say**\
 `How many planes to send is still being worked out, as are final approvals from senior officials including Defense Secretary Lloyd J. Austin III.`\
+https://nytimes.com/2024/08/02/world/middleeast/us-iran-israel-aircraft.html
+
+**U.S. Poised to Send More Combat Aircraft to Middle East, Officials Say**\
+`How many planes to send is still being worked out, as are final approvals from senior officials including Defense Secretary Lloyd J. Austin III.`\
 https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/us-iran-israel-aircraft
 
 **With Justin Herbert sidelined, Chargers backup Easton Stick returns to the spotlight**\
