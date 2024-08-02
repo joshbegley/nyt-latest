@@ -1,3 +1,7 @@
+**What to See at the Edinburgh Fringe**\
+`Previous editions of the performing arts event launched shows like “Baby Reindeer” and “Fleabag.” Maybe there’s another breakout hit among this year’s more than 3,300 shows.`\
+https://nytimes.com/2024/08/02/theater/edinburgh-fringe-what-to-see.html
+
 **Why tough Alabama kicker Will Reichard was the guy the Vikings simply couldn't pass up**\
 `Reichard has the makeup to be everything Vikings kickers haven't been: consistent, clutch and reliable. He has his late father to thank.`\
 https://nytimes.com/athletic/5675487/2024/08/02/will-reichard-vikings-alabama/
@@ -34,8 +38,4 @@ https://nytimes.com/2024/08/02/crosswords/connections-companion-419.html
 **A World Cup in America in the middle of summer? Have they seen the weather?**\
 `A summer of soccer in the U.S. has shown that FIFA need a weather plan for the Club World Cup and World Cup`\
 https://nytimes.com/athletic/5674585/2024/08/02/world-cup-2026-america-weather/
-
-**Want a Break From Being Human? Flap Your Wings and Squawk.**\
-`Some young people in China pretend to be birds on social media as way of escaping hustle culture. We can explain.`\
-https://nytimes.com/2024/08/02/world/asia/china-birds-social-media.html
 
