@@ -1,3 +1,7 @@
+**White Supremacist Gang Leader Among Three Killed in Fight at Nevada Prison**\
+`Nine prisoners were also injured in the fight on Tuesday, the Nevada Department of Corrections said.`\
+https://nytimes.com/2024/08/01/us/prison-fight-nevada-white-supremacist.html
+
 **Behind the Deal: Spies, a Killer, Secret Messages and Unseen Diplomacy**\
 `The negotiations that led to the prisoner swap and the freeing of Americans wrongfully held in Russia required patience and creativity, but gave both sides what they wanted most.`\
 https://nytimes.com/2024/08/01/us/politics/diplomacy-prisoner-swap-deal.html
