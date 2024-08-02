@@ -1,3 +1,11 @@
+**Harris Begins Final Phase of Accelerated V.P. Search**\
+`The formal vetting process is finished, and the first major decision of Vice President Kamala Harris’s presidential campaign is just days away.`\
+https://nytimes.com/2024/08/01/us/politics/kamala-harris-vp-search.html
+
+**N.F.L. Sunday Ticket Verdict Is Thrown Out by Judge**\
+`The decision, five weeks after a jury awarded $4.7 billion in damages in an antitrust case, is a reprieve for the league.`\
+https://nytimes.com/2024/08/01/business/nfl-sunday-ticket-damages-thrown-out.html
+
 **Kate Douglass always had the talent to win Olympic gold. Now the belief matches too**\
 `NANTERRE, France — There used to be a time, not all that long ago, when Kate Douglass surprised herself, when she did things in the pool that she didn&#8217;t know she was capable of doing.`\
 https://nytimes.com/athletic/5675731/2024/08/01/kate-douglass-olympics-gold-breaststroke-talent/
