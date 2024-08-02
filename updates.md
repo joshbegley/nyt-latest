@@ -1,3 +1,7 @@
+**Newcastle planning Gordon contract talks when forward back from break**\
+`Newcastle plan to open contract negotiations with Anthony Gordon when the forward returns from an extended break next week.`\
+https://nytimes.com/athletic/5671545/2024/08/02/anthony-gordon-contract-transfer-newcastle/
+
 **F1 summer report cards: McLaren beats Red Bull to the top of class**\
 `Which teams have impressed the most and who has room for improvement when class resumes at Zandvoort later this month?`\
 https://nytimes.com/athletic/5666867/2024/08/02/f1-team-midseason-ratings-report-cards/
