@@ -1,3 +1,15 @@
+**Olympic champion Simone Biles posted on social media that she loves her ‘Black job.’**\
+`Biles is only the third woman gymnast to win the all-around competition twice at the Olympics.`\
+https://nytimes.com/2024/08/02/us/politics/simone-biles-black-job-trump.html
+
+**The Windup: On Mike Trout's season ending**\
+`Today's top baseball news.`\
+https://nytimes.com/athletic/5676770/2024/08/02/mike-trout-injury-the-windup/
+
+**Rangers mailbag, Part 2: Pospect timelines, Kakko's role, Trouba's future**\
+`Let's take stock of where the younger Rangers project in the upcoming season.`\
+https://nytimes.com/athletic/5676712/2024/08/02/ny-rangers-prospects/
+
 **U.S. men out of Olympic soccer competition after 4-0 defeat by Morocco**\
 `How the U.S. men fared in their first Olympic soccer quarterfinal match in 24 years.`\
 https://nytimes.com/athletic/5676428/2024/08/02/us-men-morocco-olympic-soccer-quarterfinal/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/02/movies/science-fiction-movies-streaming.html
 **A Tomato Sandwich That’s Very Tomato**\
 `This recipe, a riff on pan con tomate, calls for rubbing garlicky toasts with a halved tomato before applying, yes, more tomato.`\
 https://nytimes.com/2024/08/02/dining/tomato-sandwich-recipe.html
-
-**Lowetide: 4 key storylines for Oilers fans to follow the rest of this summer**\
-`It's time to digest what happened in free agency, trade and the draft and ponder the Oilers' possible future.`\
-https://nytimes.com/athletic/5674969/2024/08/02/oilers-summer-leon-draisaitl/
-
-**A Big Oopsie for the Fed**\
-`The latest jobs numbers show the Fed has to make a significant interest rate cut, and soon.`\
-https://nytimes.com/live/2024/07/30/opinion/thepoint/krugman-jobs-fed
-
-**Families of Hostages Despair as Hopes for Imminent Peace Deal Fade**\
-`The recent assassination of Ismail Haniyeh, the leader of Hamas’s political branch, halted negotiations for a cease-fire that would bring home the hostages held in Gaza.`\
-https://nytimes.com/2024/08/02/world/middleeast/israel-hamas-hostage-release-deal.html
 
