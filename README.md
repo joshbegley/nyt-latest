@@ -1,3 +1,7 @@
+**Caeleb Dressel misses podium in 50 free, fails to reach 100 fly final**\
+`"I trained to go faster than the times I’m going. I know that," Dressel said.`\
+https://nytimes.com/athletic/5676953/2024/08/02/caeleb-dressel-50-meter-freestyle-paris-olympics/
+
 **Team GB's Whyte hospitalised after crash in BMX semi-final**\
 `Team GB BMX rider Kye Whyte has been taken to hospital after crashing out of the men&#8217;s semi-final race at the Paris Olympics.`\
 https://nytimes.com/athletic/5677109/2024/08/02/kye-whyte-olympics-crash/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/02/arts/music/barbara-butch-olympics-opening-ceremon
 **Tech Bosses Preach Patience as They Spend and Spend on A.I.**\
 `Big technology companies show no signs of slowing their spending on artificial intelligence, even though a payoff still looks a long way away.`\
 https://nytimes.com/2024/08/02/technology/tech-companies-ai-spending.html
-
-**Marchand wins gold in 200-meter IM, completes golden sweep in 4 events**\
-`Marchand joined Michael Phelps and Mark Spitz as the only men to win four individual gold medals in the same Games.`\
-https://nytimes.com/athletic/5676976/2024/08/02/leon-marchand-gold-200-meter-individual-medley-paris-olympics/
 
