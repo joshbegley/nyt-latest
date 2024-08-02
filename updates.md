@@ -1,3 +1,7 @@
+**Carlos Alcaraz annihilates Felix Auger-Aliassime to play for Olympic gold**\
+`Clay, grass, clay: the surface transition never really seen in tennis, until a succession of two Grand Slam tournaments and one Olympic Games in 2024.`\
+https://nytimes.com/athletic/5676498/2024/08/02/carlos-alcaraz-auger-aliassime-olympics-tennis/
+
 **The quirky stories that define Stephen Nedoroscik, Team USA's pommel horse hero**\
 `“Men’s gymnastics needed Stephen," said Matt Carbone, the owner of Nedoroscik's hometown gym.`\
 https://nytimes.com/athletic/5675559/2024/08/02/stephen-nedoroscik-usa-gymnastics-olympics-penn-state-pommel-horse/
