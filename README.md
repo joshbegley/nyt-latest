@@ -10,7 +10,7 @@ https://nytimes.com/2024/08/02/opinion/birthrate-jd-vance.html
 `Dr. Garber took over as interim president after Claudine Gay resigned in January. He will now serve as president through the 2026-27 academic year.`\
 https://nytimes.com/2024/08/02/us/harvard-president-alan-garber.html
 
-**Trump Uses Timeworn Tactic to Stoke Suspicion About Harris**\
+**Not One of Us: Trump Uses Old Tactic to Sow Suspicion About Harris**\
 `Politicians have long cast their opponents as outsiders. But Donald J. Trump has taken the strategy to the next level against Kamala Harris.`\
 https://nytimes.com/2024/08/02/us/trump-tactic-suspicion-harris.html
 

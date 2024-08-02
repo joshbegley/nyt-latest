@@ -1,3 +1,11 @@
+**Untitled (The Playlist)**\
+`Hear songs with no firm names from the Cure, D’Angelo, Kate Bollinger and more.`\
+https://nytimes.com/2024/08/02/arts/music/amplifier-newsletter-untitled-songs.html
+
+**Is It Weird to Care About the Birthrate?**\
+`Pro-natalism in the shadow of the culture war.`\
+https://nytimes.com/2024/08/02/opinion/birthrate-jd-vance.html
+
 **Alan Garber Will Stay On as Harvard’s President**\
 `Dr. Garber took over as interim president after Claudine Gay resigned in January. He will now serve as president through the 2026-27 academic year.`\
 https://nytimes.com/2024/08/02/us/harvard-president-alan-garber.html
