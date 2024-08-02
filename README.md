@@ -1,3 +1,11 @@
+**Untitled (The Playlist)**\
+`Hear songs with no firm names from the Cure, D’Angelo, Kate Bollinger and more.`\
+https://nytimes.com/2024/08/02/arts/music/amplifier-newsletter-untitled-songs.html
+
+**Is It Weird to Care About the Birthrate?**\
+`Pro-natalism in the shadow of the culture war.`\
+https://nytimes.com/2024/08/02/opinion/birthrate-jd-vance.html
+
 **Alan Garber Will Stay On as Harvard’s President**\
 `Dr. Garber took over as interim president after Claudine Gay resigned in January. He will now serve as president through the 2026-27 academic year.`\
 https://nytimes.com/2024/08/02/us/harvard-president-alan-garber.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/02/technology/tiktok-doj-child-privacy.html
 **Harris Has Votes Needed to Be Democrats’ Nominee, D.N.C. Says**\
 `The party chair said she had won enough delegates to secure the nomination, setting up Kamala Harris to become the first Black woman and person of South Asian heritage to earn the top spot on a major political ticket for president.`\
 https://nytimes.com/2024/08/02/us/politics/kamala-harris-democrats-nominee-official.html
-
-**JD Vance Pioneered ‘New Right’ Economics. Trump May Not Embrace It.**\
-`The vice-presidential nominee favors economic policies that help advance a socially conservative vision of American society — and that sometimes clash with Trump’s own plans.`\
-https://nytimes.com/2024/08/02/us/politics/jd-vance-new-right-economics.html
-
-**Senior U.S. Diplomat Will Lead Kamala Harris’s Running Mate’s Team**\
-`Elizabeth M. Allen, who heads the State Department’s public diplomacy office, served as a top aide to Ms. Harris in 2020 and in the Obama White House.`\
-https://nytimes.com/2024/08/02/us/politics/elizabeth-allen-kamala-harris-campaign.html
 
