@@ -1,3 +1,7 @@
+**How to Watch the Summer Olympics in 4K**\
+`You can watch those handsprings in ultra high definition.`\
+https://nytimes.com/interactive/2024/08/02/smarter-living/wirecutter/watch-olympics-4k.html
+
 **Djokovic sets up gold-medal match with Alcaraz**\
 `There they go again.`\
 https://nytimes.com/athletic/5677127/2024/08/02/djokovic-alcaraz-olympic-gold/
