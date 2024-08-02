@@ -1,3 +1,15 @@
+**Kentucky football to vacate games, serve probation via resolution with NCAA**\
+`At least 11 football players received payment for work not performed between spring 2021 and March 2022, the school and NCAA agreed.`\
+https://nytimes.com/athletic/5676944/2024/08/02/kentucky-football-vacated-games-ncaa-investigation/
+
+**Olympic boxer Angela Carini apologies to Imane Khelif**\
+`Angela Carini of Italy doesn&#8217;t like how the conversation about Olympic women&#8217;s boxing has turned.`\
+https://nytimes.com/athletic/5676796/2024/08/02/olympics-women-boxing-angela-carini-apologizes-imane-khelif/
+
+**Swiatek 'cried for three days' after Olympic heartbreak**\
+`PARIS — Iga Swiatek, the world No.`\
+https://nytimes.com/athletic/5676910/2024/08/02/iga-swiatek-olympics/
+
 **Who’s Afraid of Being Black? Not Kamala, Beyoncé or Kendrick.**\
 `With her response to Donald Trump’s comments about her background, Kamala Harris showed that Blackness doesn’t need to be explained or defended — an idea underscored by her campaign theme song.`\
 https://nytimes.com/2024/08/02/arts/music/kamala-harris-beyonce-kendrick-lamar.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5676907/2024/08/02/hall-of-fame-game-takeaways-scoo
 **Sarah Jessica Parker on Her Life in Publishing**\
 `Since 2016, the renowned actress has also worked in publishing, bringing her name and love of books to imprints at two companies. In this episode, she discusses what that work has meant to her.`\
 https://nytimes.com/2024/08/02/books/review/podcast-sarah-jessica-parker.html
-
-**Icon or Eyesore? Palm Springs to Move Divisive Marilyn Monroe Statue**\
-`A truce has been reached in a battle that pitted admirers of the city’s art museum against fans of a giant outdoor Marilyn Monroe sculpture.`\
-https://nytimes.com/2024/08/02/arts/design/marilyn-monroe-statue-palm-springs.html
-
-**Paris mayor supports Olympics opening ceremony director after death threats**\
-`The mayor of Paris has offered her &#8220;unwavering support&#8221; to the artistic director behind the Olympics opening ceremony after he was subjected to harassment online including death threats.`\
-https://nytimes.com/athletic/5676626/2024/08/02/paris-olympics-opening-ceremony-criticism/
-
-**See Where Countersnipers Could Have Stopped the Trump Rally Gunman**\
-`Where countersnipers were stationed — and where they were not — has emerged as a point of contention in assessing lapses that failed to prevent an assassination attempt.`\
-https://nytimes.com/interactive/2024/08/02/us/trump-shooting-crooks-snipers.html
 
