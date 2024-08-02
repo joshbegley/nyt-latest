@@ -1,3 +1,7 @@
+**Death of Black Man at Milwaukee Hyatt Is Ruled a Homicide**\
+`D’Vontaye Mitchell died after being held down by hotel staff members. An autopsy cited restraint asphyxia and the toxic effects of cocaine and methamphetamine as the cause of death.`\
+https://nytimes.com/2024/08/02/us/dvontaye-mitchell-homicide-death.html
+
 **Nothing lasts forever — except Teddy Riner, French Olympic judo superstar**\
 `PARIS — Emmanuel Macron trotted around the back of Champ-de-Mars Arena, kicking up gravel, coating his leather dress shoes in dust.`\
 https://nytimes.com/athletic/5677073/2024/08/02/teddy-riner-olympic-judo-gold-medal-france/
