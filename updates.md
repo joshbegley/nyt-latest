@@ -1,3 +1,7 @@
+**See Where Countersnipers Could Have Stopped the Trump Rally Gunman**\
+`Where countersnipers were stationed — and where they were not — has emerged as a point of contention in assessing lapses that failed to prevent an assassination attempt.`\
+https://nytimes.com/interactive/2024/08/02/us/trump-shooting-crooks-snipers.html
+
 **‘Trap’ Review: Pop Goes the Thriller**\
 `Josh Hartnett stars as a father with a secret in this M. Night Shyamalan film set at a concert.`\
 https://nytimes.com/2024/08/02/movies/trap-review.html

@@ -1,3 +1,7 @@
+**See Where Countersnipers Could Have Stopped the Trump Rally Gunman**\
+`Where countersnipers were stationed — and where they were not — has emerged as a point of contention in assessing lapses that failed to prevent an assassination attempt.`\
+https://nytimes.com/interactive/2024/08/02/us/trump-shooting-crooks-snipers.html
+
 **‘Trap’ Review: Pop Goes the Thriller**\
 `Josh Hartnett stars as a father with a secret in this M. Night Shyamalan film set at a concert.`\
 https://nytimes.com/2024/08/02/movies/trap-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5676831/2024/08/02/mets-mlb-questions/
 **Orioles calling up prospect Coby Mayo for major-league debut: Source**\
 `Mayo, the No. 18 prospect in the game, will be promoted Friday by the Orioles, a major-league source said. `\
 https://nytimes.com/athletic/5676778/2024/08/02/coby-mayo-orioles-prospect-promoted/
-
-**The U.K. Riots Were Fomented Online. Will Social Media Companies Act?**\
-`Prime Minister Keir Starmer called out social media groups for the misinformation on their platforms that sparked violent clashes this week. But holding them accountable is tough.`\
-https://nytimes.com/2024/08/02/business/uk-riots-social-media.html
 
