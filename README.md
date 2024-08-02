@@ -1,3 +1,7 @@
+**Trump questioned the physical appearance of Native American business rivals in the 1990s.**\
+`The former president’s remarks this week about the racial identity of Vice President Kamala Harris recalled when he challenged the tribal recognition of a casino rival.`\
+https://nytimes.com/live/2024/08/02/us/harris-trump-election/trump-native-americans-indians
+
 **A ‘Love Activist’ D.J. Opened the Olympics. Then Came a Wave of Hate.**\
 `The French D.J. Barbara Butch wanted to deliver a message of peace in the opening ceremony, but ended up getting savaged online.`\
 https://nytimes.com/2024/08/02/arts/music/barbara-butch-olympics-opening-ceremony.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/02/science/space/peter-theisinger-dead.html
 **Ippon! Teddy Riner thrills home crowd to grab his third Olympic gold medal.**\
 `Facing the No. 1-seeded judoka in the +100kg weight class, Kim Minjong of South Korea, Riner won his sixth Olympic medal.`\
 https://nytimes.com/2024/08/02/world/olympics/judo-teddy-riner.html
-
-**Kamala Harris Hires Former Obama Advisers, Building Out Campaign**\
-`David Plouffe, who managed Barack Obama’s first presidential bid, is among the new senior staff announced on Friday, along with veterans of both Obama campaigns as well as Hillary Clinton’s 2016 run.`\
-https://nytimes.com/2024/08/02/us/politics/kamala-harris-david-plouffe-obama.html
 
