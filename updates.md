@@ -1,3 +1,15 @@
+**Justin Timberlake, on Tour, Beams Into Sag Harbor to Plead Not Guilty**\
+`The singer’s arrest and prosecution on a drunken-driving charge has drawn the curious to the Hamptons and supplied the internet with meme fodder.`\
+https://nytimes.com/2024/08/02/nyregion/justin-timberlake-dwi-hearing-sag-harbor.html
+
+**Peter C. Theisinger, 78, Dies; Led Mars Rover Missions for NASA**\
+`He directed a team of engineers that built Spirit, Opportunity and Curiosity, mobile robots that offered astonishing glimpses into the planet’s ancient past.`\
+https://nytimes.com/2024/08/02/science/space/peter-theisinger-dead.html
+
+**Ippon! Teddy Riner thrills home crowd to grab his third Olympic gold medal.**\
+`Facing the No. 1-seeded judoka in the +100kg weight class, Kim Minjong of South Korea, Riner won his sixth Olympic medal.`\
+https://nytimes.com/2024/08/02/world/olympics/judo-teddy-riner.html
+
 **Kamala Harris Hires Former Obama Advisers, Building Out Campaign**\
 `David Plouffe, who managed Barack Obama’s first presidential bid, is among the new senior staff announced on Friday, along with veterans of both Obama campaigns as well as Hillary Clinton’s 2016 run.`\
 https://nytimes.com/2024/08/02/us/politics/kamala-harris-david-plouffe-obama.html
