@@ -1,9 +1,13 @@
+**Djokovic sets up gold-medal match with Alcaraz**\
+`There they go again.`\
+https://nytimes.com/athletic/5677127/2024/08/02/djokovic-alcaraz-olympic-gold/
+
 **Caeleb Dressel misses podium in 50 free, fails to reach 100 fly final**\
 `"I trained to go faster than the times I’m going. I know that," Dressel said.`\
 https://nytimes.com/athletic/5676953/2024/08/02/caeleb-dressel-50-meter-freestyle-paris-olympics/
 
-**Team GB's Whyte hospitalised after crash in BMX semi-final**\
-`Team GB BMX rider Kye Whyte has been taken to hospital after crashing out of the men&#8217;s semi-final race at the Paris Olympics.`\
+**Team GB's Whyte crashes out in BMX semi-final**\
+`Team GB BMX rider Kye Whyte suffered &#8220;no significant injuries&#8221; after crashing out of the men&#8217;s semi-final race at the Paris Olympics.`\
 https://nytimes.com/athletic/5677109/2024/08/02/kye-whyte-olympics-crash/
 
 **Notes on Ohio State's QB battle, the loaded secondary and linebacker shuffling**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/02/us/harris-trump-election/trump-native-americ
 **A ‘Love Activist’ D.J. Opened the Olympics. Then Came a Wave of Hate.**\
 `The French D.J. Barbara Butch wanted to deliver a message of peace in the opening ceremony, but ended up getting savaged online.`\
 https://nytimes.com/2024/08/02/arts/music/barbara-butch-olympics-opening-ceremony.html
-
-**Tech Bosses Preach Patience as They Spend and Spend on A.I.**\
-`Big technology companies show no signs of slowing their spending on artificial intelligence, even though a payoff still looks a long way away.`\
-https://nytimes.com/2024/08/02/technology/tech-companies-ai-spending.html
 
