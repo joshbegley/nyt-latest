@@ -1,3 +1,7 @@
+**Not One of Us: Trump Uses Old Tactic to Sow Suspicion About Harris**\
+`Politicians have long cast their opponents as outsiders. But Donald J. Trump has taken the strategy to the next level against Kamala Harris.`\
+https://nytimes.com/2024/08/02/us/trump-tactic-suspicion-harris.html
+
 **Untitled (The Playlist)**\
 `Hear songs with no firm names from the Cure, D’Angelo, Kate Bollinger and more.`\
 https://nytimes.com/2024/08/02/arts/music/amplifier-newsletter-untitled-songs.html
