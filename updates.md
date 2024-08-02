@@ -1,3 +1,19 @@
+**'I cannot stop smiling': Giannis loving Olympic experience, especially after Greece wins**\
+`After Greece earned its first Olympic basketball win in 16 years, Antetokounmpo gushed about his time in Paris and representing his country.`\
+https://nytimes.com/athletic/5676856/2024/08/02/giannis-antetokounmpo-olympics-greece-paris-experience/
+
+**The National Sports Collectors Convention takeaways**\
+`Kids are flocking to the trading card hobby and industry experts are taking notice `\
+https://nytimes.com/athletic/5672022/2024/08/02/what-we-saw-and-heard-at-the-national-sports-collectors-convention-as-trading-card-boom-continues/
+
+**How Does Your State Make Electricity?**\
+`There’s been a big shift in how America produces power. Each state has its own story.`\
+https://nytimes.com/interactive/2024/08/02/climate/electricity-generation-us-states.html
+
+**From Draft Dodgers, a Resistance Forms**\
+`By Daniel Berehulak and Hannah Beech`\
+https://nytimes.com/card/2024/08/02/world/asia/from-draft-dodgers-a-resistance-forms
+
 **Not One of Us: Trump Uses Old Tactic to Sow Suspicion About Harris**\
 `Politicians have long cast their opponents as outsiders. But Donald J. Trump has taken the strategy to the next level against Kamala Harris.`\
 https://nytimes.com/2024/08/02/us/trump-tactic-suspicion-harris.html
