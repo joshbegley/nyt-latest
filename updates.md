@@ -1,3 +1,11 @@
+**The Veepstakes (Pennsylvania’s Version)**\
+`The question of whether Josh Shapiro can deliver the biggest, baddest swing state is complicated.`\
+https://nytimes.com/2024/08/02/us/politics/harris-vp-shapiro.html
+
+**Miami lands local 2025 DL recruit Donta Simpson**\
+`Simpson recently attended Miami's recruiting BBQ and landed an offer from Mario Cristobal. He's the 20th commitment in Miami's 2025 class`\
+https://nytimes.com/athletic/5677178/2024/08/02/miami-hurricanes-football-recruiting-commitment-donta-simpson/
+
 **49ers training camp: Ricky Pearsall has impressed the staff over 3 practices**\
 `49ers coach Kyle Shanahan has been impressed early but is looking forward to watching Pearsall in one-on-one work Saturday.`\
 https://nytimes.com/athletic/5677202/2024/08/02/49ers-training-camp-ricky-pearsall/
