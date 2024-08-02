@@ -1,3 +1,15 @@
+**The Athletic’s Friday football quiz question #15**\
+`Every week, we'll serve up a poser from our vault of football conundrums. It won't be easy (unless you're really good…)`\
+https://nytimes.com/athletic/5674764/2024/08/02/the-athletics-friday-football-quiz-question-15/
+
+**Queues for Ameobi, commercial value and 'massive potential': Why Newcastle are touring Japan**\
+`Newcastle are on pre-season tour in Japan — our reporter has been with them for every step of the trip`\
+https://nytimes.com/athletic/5676106/2024/08/02/newcastle-japan-tour-why/
+
+**Q&A: Raiders offensive coordinator Luke Getsy dishes on QB battle, Brock Bowers & more**\
+`The Raiders' new OC thinks the QB competition will work itself out and likes his group of dynamic players. "We want teams to feel our film."`\
+https://nytimes.com/athletic/5675368/2024/08/02/luke-getsy-raiders-offense/
+
 **5 Children’s Movies to Stream Now**\
 `This month’s picks include a new SpongeBob SquarePants adventure and an Oscar-nominated film from Cartoon Saloon.`\
 https://nytimes.com/2024/08/02/movies/5-childrens-movies-to-stream-now.html
@@ -25,17 +37,4 @@ https://nytimes.com/2024/08/02/theater/edinburgh-fringe-what-to-see.html
 **Why tough Alabama kicker Will Reichard was the guy the Vikings simply couldn't pass up**\
 `Reichard has the makeup to be everything Vikings kickers haven't been: consistent, clutch and reliable. He has his late father to thank.`\
 https://nytimes.com/athletic/5675487/2024/08/02/will-reichard-vikings-alabama/
-
-**2024 Pro Football Hall of Fame induction: How to watch ceremony**\
-`Julius Peppers and Andre Johnson headline the Class of 2024 heading into the Pro Football Hall of Fame.`\
-https://nytimes.com/athletic/5671916/2024/08/02/2024-pro-football-hall-of-fame-induction-how-to-watch-ceremony-order-of-speeches/
-
-**Alex Morgan has designed her own USWNT exit by setting the next generation up for success**\
-`The U.S. can exist without Morgan, and that’s ultimately for the good`\
-https://nytimes.com/athletic/5675577/2024/08/02/uswnt-olympics-alex-morgan-not-on-team/
-
-**The key question facing NHL teams: How much cap space can they dedicate to core players?**\
-`Teams around the league will have to contemplate how many big contracts they can realistically dedicate to just a few of their players.
-`\
-https://nytimes.com/athletic/5672621/2024/08/02/nhl-salary-cap-core-players/
 
