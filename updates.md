@@ -1,3 +1,27 @@
+**F1 summer report cards: McLaren beats Red Bull to the top of class**\
+`Which teams have impressed the most and who has room for improvement when class resumes at Zandvoort later this month?`\
+https://nytimes.com/athletic/5666867/2024/08/02/f1-team-midseason-ratings-report-cards/
+
+**In Tahiti’s Waters, an Ocean Photographer Follows Big Waves**\
+`To capture images of surfers taking on the dangerous swells in Teahupo’o, Ben Thouard must suit up himself.`\
+https://nytimes.com/2024/08/02/insider/in-tahitis-waters-an-ocean-photographer-follows-big-waves.html
+
+**Secret Bundlers, Sham Donations: Adams Is Faulted in Campaign Audit**\
+`A 900-page draft audit of Eric Adams’s 2021 mayoral campaign in New York City found widespread errors that could lead to fines or forfeiture of public matching funds.`\
+https://nytimes.com/2024/08/02/nyregion/adams-audit-campaign-investigation.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/02/crosswords/spelling-bee-forum.html
+
+**Archaeologists Find a 2,400-Year-Old ‘Pot of Gold’ in Turkey**\
+`An ancient hoard of Persian coins offers insights into the political landscape around the time of the Peloponnesian War.`\
+https://nytimes.com/2024/08/02/science/archaeology-turkey-daric.html
+
+**Hotels in New York City Don’t Need Licenses. Should They?**\
+`New York’s hundreds of hotels are subject to less regulatory scrutiny than many other businesses. The industry is resisting City Council efforts to change that.`\
+https://nytimes.com/2024/08/02/nyregion/hotel-licenses-nyc.html
+
 **Collin Johnson, Brett Rypien star for Bears in weather-shortened Hall of Fame Game**\
 `Johnson and Rypien, two veterans, have quickly built a connection, but where do they fit on the Bears' roster?`\
 https://nytimes.com/athletic/5676063/2024/08/02/bears-collin-johnson-brett-rypien-hall-of-fame-game/
