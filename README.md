@@ -1,3 +1,7 @@
+**Convicted Assassin Is a Russian Security Agent, Kremlin Acknowledges**\
+`Vadim Krasikov, who was returned to Russia in the big prisoner swap, received a hero’s welcome from President Putin, along with others who were freed.`\
+https://nytimes.com/2024/08/02/world/europe/vadim-krasikov-assassin-russia-fsb.html
+
 **Emile Smith Rowe's move from Arsenal to Fulham: Frustration, new beginnings and hope**\
 `The England international is leaving his boyhood club and crossing London for a new start`\
 https://nytimes.com/athletic/5674149/2024/08/02/emile-smith-rowe-fulham-arsenal/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/02/us/harris-trump-election/heres-the-latest-on
 **The Athletic FC: Why Liverpool vs Man Utd will be played at University of South Carolina**\
 `One of the Premier League's great rivalries will be played out at the University of South Carolina - here's how the match came about.`\
 https://nytimes.com/athletic/5676325/2024/08/02/liverpool-vs-man-utd-south-carolina/
-
-**Newcastle open talks to sign Guehi from Palace**\
-`Newcastle United have opened negotiations with Crystal Palace over a move to sign Marc Guehi.`\
-https://nytimes.com/athletic/5676387/2024/08/02/newcastle-marc-guehi-transfer-crystal-palace/
 
