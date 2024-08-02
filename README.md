@@ -1,3 +1,7 @@
+**Trump Remarks on Harris’s Multiracial Identity Overlook a Growing Trend**\
+`Demographers say that a growing number of Americans identify as more than one race, and that the number will continue expanding in the decades ahead.`\
+https://nytimes.com/2024/08/01/us/trump-harris-black-asian-race.html
+
 **Judge overturns verdict in 'Sunday Ticket' lawsuit**\
 `In June, a jury in U.S. District Court ordered the NFL to pay billions in damages to "Sunday Ticket" subscribers.`\
 https://nytimes.com/athletic/5675803/2024/08/01/nfl-sunday-ticket-lawsuit-verdict-overturned/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5675660/2024/08/01/bengals-camp-heat-iosivas-charli
 **The Two Weeks That Changed Kamala Harris’s Vice Presidency**\
 `Two trips Harris took last year set the stage for the ascent that is happening now.`\
 https://nytimes.com/2024/08/01/us/politics/kamala-harris-black-racial-identity.html
-
-**When Simone Biles needed it most, the GOAT came out and cemented a legend**\
-`Like all the GOATs, Simone Biles saved her best for last Thursday at the Olympics.`\
-https://nytimes.com/athletic/5674406/2024/08/01/simone-biles-olympics-all-around-gold-goat/
 

@@ -1,3 +1,15 @@
+**Judge overturns verdict in 'Sunday Ticket' lawsuit**\
+`In June, a jury in U.S. District Court ordered the NFL to pay billions in damages to "Sunday Ticket" subscribers.`\
+https://nytimes.com/athletic/5675803/2024/08/01/nfl-sunday-ticket-lawsuit-verdict-overturned/
+
+**With Geno Smith out injured, Sam Howell flashes his talent ... and his flaws**\
+`With Smith missing practice, Howell got a chance with the starters, making big plays and big mistakes throughout the afternoon.`\
+https://nytimes.com/athletic/5675798/2024/08/01/geno-smith-injury-sam-howell/
+
+**Dodgers star Freddie Freeman's family issues update on son's health**\
+`Freddie Freeman's 3-year-old son is battling a severe case of Guillan-Barré syndrome, a rare neurological condition.`\
+https://nytimes.com/athletic/5675755/2024/08/01/dodgers-freddie-freeman-son-update/
+
 **Gloria Johnson, Tennessee Democrat Who Faced Expulsion, Wins U.S. Senate Primary**\
 `The state lawmaker, who gained national attention for her role in a gun control protest, will challenge Senator Marsha Blackburn, a Republican.`\
 https://nytimes.com/2024/08/01/us/politics/gloria-johnson-senate.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/01/us/politics/kamala-harris-black-racial-identity.h
 **When Simone Biles needed it most, the GOAT came out and cemented a legend**\
 `Like all the GOATs, Simone Biles saved her best for last Thursday at the Olympics.`\
 https://nytimes.com/athletic/5674406/2024/08/01/simone-biles-olympics-all-around-gold-goat/
-
-**Trump Escalates Race Attacks on Harris, Worrying Some Republicans**\
-`A day after telling Black journalists that Vice President Kamala Harris had recently decided to become “a Black person,” Mr. Trump shared a photo of Ms. Harris in traditional Indian clothing.`\
-https://nytimes.com/2024/08/01/us/politics/trump-kamala-harris-race.html
-
-**With Hostage Swap, Biden Scores a Win as His Term Nears Its End**\
-`The prisoner exchange offered a measure of validation for President Biden soon after he abandoned his bid for re-election.`\
-https://nytimes.com/2024/08/01/us/politics/biden-hostage-swap.html
-
-**How 2024 Became a Crypto Election**\
-`Will libertarian derp get a government bailout?`\
-https://nytimes.com/2024/08/01/opinion/crypto-trump.html
 

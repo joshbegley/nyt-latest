@@ -1,3 +1,15 @@
+**Judge overturns verdict in 'Sunday Ticket' lawsuit**\
+`In June, a jury in U.S. District Court ordered the NFL to pay billions in damages to "Sunday Ticket" subscribers.`\
+https://nytimes.com/athletic/5675803/2024/08/01/nfl-sunday-ticket-lawsuit-verdict-overturned/
+
+**With Geno Smith out injured, Sam Howell flashes his talent ... and his flaws**\
+`With Smith missing practice, Howell got a chance with the starters, making big plays and big mistakes throughout the afternoon.`\
+https://nytimes.com/athletic/5675798/2024/08/01/geno-smith-injury-sam-howell/
+
+**Dodgers star Freddie Freeman's family issues update on son's health**\
+`Freddie Freeman's 3-year-old son is battling a severe case of Guillan-Barré syndrome, a rare neurological condition.`\
+https://nytimes.com/athletic/5675755/2024/08/01/dodgers-freddie-freeman-son-update/
+
 **Gloria Johnson, Tennessee Democrat Who Faced Expulsion, Wins U.S. Senate Primary**\
 `The state lawmaker, who gained national attention for her role in a gun control protest, will challenge Senator Marsha Blackburn, a Republican.`\
 https://nytimes.com/2024/08/01/us/politics/gloria-johnson-senate.html
