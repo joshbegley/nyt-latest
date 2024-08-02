@@ -1,3 +1,7 @@
+**Joe Gomez's future at Liverpool remains in the balance after Newcastle approach**\
+`The centre-back came up as an option in a potential swap deal involving Anthony Gordon. Will he seek another Anfield exit route?`\
+https://nytimes.com/athletic/5675357/2024/08/02/joe-gomez-liverpool-newcastle-anthony-gordon-transfer/
+
 **Hamas Leader’s Funeral Comes Amid Fears His Killing May Block Cease-Fire Deal**\
 `Few Palestinians appeared to heed Hamas’s call for a “day of anger” to condemn the killing of Ismail Haniyeh and Israel’s bombardment of the enclave.`\
 https://nytimes.com/2024/08/02/world/middleeast/israel-hamas-haniyeh-funeral-qatar.html
