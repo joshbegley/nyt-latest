@@ -1,40 +1,40 @@
-**‘Elizabeth Taylor: The Lost Tapes’ and the Moment Star Worship Curdled**\
-`The documentary blends audio interviews with footage from her life to provide a revealing look not so much at the actress, but at celebrity culture.`\
-https://nytimes.com/2024/08/02/movies/elizabeth-taylor-the-lost-tapes-celebrity-culture.html
+**Man United submit opening offer for De Ligt and Mazraoui**\
+`Manchester United have submitted an opening double offer to sign Matthijs de Ligt and Noussair Mazraoui from Bayern Munich.`\
+https://nytimes.com/athletic/5676135/2024/08/02/man-utd-transfers-de-ligt-mazraoui/
 
-**Trump Cites Opportunity Zones as a Triumph. Their Success Is Middling.**\
-`A tax incentive, with bipartisan roots, aims to foster development in poor areas. It has fueled building, but it hasn’t always aided local residents.`\
-https://nytimes.com/2024/08/02/business/economy/opportunity-zones-trump-impact.html
+**In Aspen, a New Art Fair Follows the Money**\
+`How can an art fair lure customers and make sales in a down market? Pitching its tent next to billionaires is a start.`\
+https://nytimes.com/2024/08/02/arts/design/aspen-art-fair.html
 
-**Picture Books That Cushion Kids’ Falls**\
-`In a world worth exploring, our reviewer argues, an occasional spill is the price of admission.`\
-https://nytimes.com/2024/08/02/books/review/mama-in-the-moon-doreen-cronin-brian-cronin-sometimes-we-fall-randall-de-seve-kate-gardiner.html
+**Joe Biden Issues a Stinging Dissent**\
+`The Supreme Court is caught in a crisis of its own making.`\
+https://nytimes.com/2024/08/02/opinion/biden-supreme-court-reform-constitution.html
 
-**The Christian Case Against Trump**\
-`Evangelicals who have found the weaponization of Scripture distasteful are showing us that their vote is very much up for grabs.`\
-https://nytimes.com/2024/08/02/opinion/trump-christianity-fundamentalism-evangelical.html
+**Long After Surviving the Nazis, They Use A.I. to Remind the World**\
+`The Museum of Jewish Heritage is using artificial intelligence to create an installation where visitors can interact with people who directly experienced the Holocaust.`\
+https://nytimes.com/2024/08/02/arts/museum-of-jewish-heritage-ai-holocaust.html
 
-**Making Money From News Aimed at Gen Z Is Easier Said Than Done**\
-`The Washington Post is creating a division to find valuable audiences in new places. The C.E.O.’s last company shows that’s a tough road.`\
-https://nytimes.com/2024/08/02/business/media/news-movement-will-lewis-washington-post.html
+**The Gaza Conflict Enters ‘Uncharted Territory’**\
+`In the past, tit-for-tat duels between Israel and its enemies have often ended without escalation. That may no longer hold true.`\
+https://nytimes.com/2024/08/02/opinion/gaza-israel-war-hamas.html
 
-**With Solitude and Untouched Nature, the Quieter Corners of the Adirondacks Beckon**\
-`New York’s Adirondack Park draws more than 12 million visitors each year, but most don’t venture far from the park’s population centers. Here’s where to go to avoid the crowds.`\
-https://nytimes.com/2024/08/02/travel/adirondacks-park-hamilton-warren-franklin.html
+**Harris Campaign Says It Raised $310 Million in July, More Than Double Trump’s Haul**\
+`In the seven days after President Biden stepped down as the presumptive Democratic nominee, the Harris campaign raked in $200 million.`\
+https://nytimes.com/2024/08/02/us/politics/harris-campaign-fundraising-july.html
 
-**A Genre-Twisting Novel by an Author Writing About an Author Writing About Exile**\
-`In “Unspeakable Home,” Ismet Prcic writes about a broken writer named Izzy Prcic, who is working on a book about his immigration, displacement and life struggles.`\
-https://nytimes.com/2024/08/02/books/review/unspeakable-home-ismet-prcic.html
+**Biden again pushes Israel to agree to a cease-fire deal with Hamas.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/biden-again-pushes-israel-to-agree-to-a-cease-fire-deal-with-hamas
 
-**It Was Supposed to Be a Garden Oasis, but It Led to Unexpected Dangers**\
-`In Helen Phillips’s near-future novel, “Hum,” a family’s dream vacation away from technology devolves into a misadventure with major consequences.`\
-https://nytimes.com/2024/08/02/books/review/hum-helen-phillips.html
+**Here’s the latest on the assassinations that have raised tensions in the Middle East.**\
+`By Adam Rasgon, Raja Abdulrahim and Victoria Kim`\
+https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/heres-the-latest-on-the-assassinations-that-have-raised-tensions-in-the-middle-east
 
-**Sliders: How the Miami Marlins are plotting their post-trade deadline vision**\
-`Plus life as a deadline roster casualty, Teoscar Hernández's path to learning English and more. `\
-https://nytimes.com/athletic/5674459/2024/08/02/marlins-trade-deadline-teoscar-hernandez-sliders/
+**6 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about. (Though one missing movie, “Trap,” was not screened early for critics.)`\
+https://nytimes.com/2024/08/02/movies/new-movies-this-week-critics.html
 
-**Noah Lyles is talking the talk ahead of the Olympics, now it's time to do the rest**\
-`It's been an epic runway to Paris for Lyles. He couldn't have scripted it better. Now it's time to put it all together.`\
-https://nytimes.com/athletic/5663468/2024/08/02/noah-lyles-olympics-100-200-meter-double/
+**Hamas Leader Mourned in Qatar With Middle East on Edge**\
+`Mourners were gathering for the funeral of Ismail Haniyeh, the political leader of Hamas who was assassinated earlier this week. President Biden expressed deep concern about the situation in the region, and called on Israel to agree to a cease-fire in Gaza.`\
+https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza
 
