@@ -1,3 +1,7 @@
+**Kickoff rule debuts in Hall of Fame Game called early due to weather**\
+`The Bears and Texans kept their stars on the sideline, but there was plenty of scoring and chances to see the new kickoff rule in action.`\
+https://nytimes.com/athletic/5675973/2024/08/01/kickoff-rule-hall-of-fame-game/
+
 **White Supremacist Gang Leader Among Three Killed in Fight at Nevada Prison**\
 `Nine prisoners were also injured in the fight on Tuesday, the Nevada Department of Corrections said.`\
 https://nytimes.com/2024/08/01/us/prison-fight-nevada-white-supremacist.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/01/world/americas/venezuela-election-gonzalez-maduro
 **Congressional leaders praise exchange, though some question continued use of ‘hostage diplomacy.’**\
 `By Robert Jimison`\
 https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/congressional-leaders-praise-exchange-though-some-question-continued-use-of-hostage-diplomacy
-
-**2 Officers Shot on Lower East Side in Street Chase of Robbery Suspect**\
-`One officer was shot in the leg and the other in the groin after they responded to a report of an armed robbery at a mahjong parlor. Both are in stable condition.`\
-https://nytimes.com/2024/08/01/nyregion/shooting-nypd-robbery-manhattan.html
 

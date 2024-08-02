@@ -1,3 +1,7 @@
+**Kickoff rule debuts in Hall of Fame Game called early due to weather**\
+`The Bears and Texans kept their stars on the sideline, but there was plenty of scoring and chances to see the new kickoff rule in action.`\
+https://nytimes.com/athletic/5675973/2024/08/01/kickoff-rule-hall-of-fame-game/
+
 **White Supremacist Gang Leader Among Three Killed in Fight at Nevada Prison**\
 `Nine prisoners were also injured in the fight on Tuesday, the Nevada Department of Corrections said.`\
 https://nytimes.com/2024/08/01/us/prison-fight-nevada-white-supremacist.html
