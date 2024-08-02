@@ -1,3 +1,7 @@
+**Newcastle planning Gordon contract talks when forward back from break**\
+`Newcastle plan to open contract negotiations with Anthony Gordon when the forward returns from an extended break next week.`\
+https://nytimes.com/athletic/5671545/2024/08/02/anthony-gordon-contract-transfer-newcastle/
+
 **F1 summer report cards: McLaren beats Red Bull to the top of class**\
 `Which teams have impressed the most and who has room for improvement when class resumes at Zandvoort later this month?`\
 https://nytimes.com/athletic/5666867/2024/08/02/f1-team-midseason-ratings-report-cards/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/02/learning/word-of-the-day-defamatory.html
 **Friday Briefing**\
 `A sweeping prisoner swap between Russia and the West.`\
 https://nytimes.com/2024/08/02/briefing/prisoners-russia-biden-maduro-olympics.html
-
-**Biden and Harris Greet Americans Released From Russia**\
-`Three Americans — Evan Gershkovich, a reporter of The Wall Street Journal; Alsu Kurmasheva, an editor for RFE/RL; and Paul Whelan, a former U.S. Marine — were freed in a prisoner exchange with Russia.`\
-https://nytimes.com/video/us/100000009607011/gershkovich-biden-prisoner-exchange-russia.html
 
