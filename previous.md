@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5675559/2024/08/02/stephen-nedoroscik-usa-gymnastic
 `NBC Sports are &#8220;likely&#8221; to enhance its Premier League coverage with the introduction of a new &#8220;multiview&#8221; feature, offering fans the ability to watch multiple games simultaneously.`\
 https://nytimes.com/athletic/5676492/2024/08/02/nbc-sports-premier-league-multiview/
 
-**Hayes defends lack of USWNT rotation, says Davidson and Shaw could be fit**\
+**Hayes defends lack of USWNT rotation, says Davidson and Shaw could be fit for Olympic quarterfinal**\
 `Shaw has yet to feature at the Games, while Davidson missed the final group match against Australia`\
 https://nytimes.com/athletic/5676539/2024/08/02/uswnt-davidson-shaw-hayes-olympics/
 

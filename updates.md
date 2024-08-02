@@ -1,3 +1,7 @@
+**Hayes defends lack of USWNT rotation, says Davidson and Shaw could be fit for Olympic quarterfinal**\
+`Shaw has yet to feature at the Games, while Davidson missed the final group match against Australia`\
+https://nytimes.com/athletic/5676539/2024/08/02/uswnt-davidson-shaw-hayes-olympics/
+
 **Carlos Alcaraz annihilates Felix Auger-Aliassime to play for Olympic gold**\
 `Clay, grass, clay: the surface transition never really seen in tennis, until a succession of two Grand Slam tournaments and one Olympic Games in 2024.`\
 https://nytimes.com/athletic/5676498/2024/08/02/carlos-alcaraz-auger-aliassime-olympics-tennis/
