@@ -1,3 +1,7 @@
+**Parts of Florida Under State of Emergency as Storm Moves Toward the Gulf**\
+`The storm, which could become Tropical Storm Debby, is expected to bring significant amounts of rain to the coast.`\
+https://nytimes.com/2024/08/02/weather/florida-gulf-tropical-storm-state-emergency.html
+
 **Convicted Assassin Is a Russian Security Agent, Kremlin Acknowledges**\
 `Vadim Krasikov, who was returned to Russia in the big prisoner swap, received a hero’s welcome from President Putin, along with others who were freed.`\
 https://nytimes.com/2024/08/02/world/europe/vadim-krasikov-assassin-russia-fsb.html
