@@ -1,3 +1,7 @@
+**Talking Trump and Economics With Joseph Stiglitz in Sydney**\
+`The eminent economist describes Donald Trump and the MAGA movement as a response to the failure of nearly 40 years of neoliberalism.`\
+https://nytimes.com/2024/08/02/world/australia/joseph-stiglitz-trump-neoliberalism-failure.html
+
 **Chelsea’s Andrey Santos returns to Strasbourg in loan transfer**\
 `Chelsea midfielder Andrey Santos has returned to Ligue 1 club Strasbourg on a loan deal for the 2024-25 campaign.`\
 https://nytimes.com/athletic/5676092/2024/08/02/chelsea-andrey-santos-strasbourg-loan/
