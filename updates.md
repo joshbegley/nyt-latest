@@ -1,3 +1,15 @@
+**U.S. Recognizes Maduro’s Rival as Winner of Venezuelan Election**\
+`Secretary of State Antony J. Blinken said there was “overwhelming evidence” that Edmundo González had won, despite President Nicolás Maduro’s claim of victory.`\
+https://nytimes.com/2024/08/01/world/americas/venezuela-election-gonzalez-maduro.html
+
+**Congressional leaders praise exchange, though some question continued use of ‘hostage diplomacy.’**\
+`By Robert Jimison`\
+https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/congressional-leaders-praise-exchange-though-some-question-continued-use-of-hostage-diplomacy
+
+**2 Officers Shot on Lower East Side in Street Chase of Robbery Suspect**\
+`One officer was shot in the leg and the other in the groin after they responded to a report of an armed robbery at a mahjong parlor. Both are in stable condition.`\
+https://nytimes.com/2024/08/01/nyregion/shooting-nypd-robbery-manhattan.html
+
 **Trump Remarks on Harris’s Multiracial Identity Overlook a Growing Trend**\
 `Demographers say that a growing number of Americans identify as more than one race, and that the number will continue expanding in the decades ahead.`\
 https://nytimes.com/2024/08/01/us/trump-harris-black-asian-race.html
