@@ -1,3 +1,7 @@
+**Two Key Matchups Are Set in Arizona as Battle for House Control Heats Up**\
+`The tossup districts currently held by Republican Representatives David Schweikert and Juan Ciscomani will play a key role in the fight for control. They got their Democratic challengers this week.`\
+https://nytimes.com/2024/08/01/us/politics/arizona-house-races-ciscomani-shah.html
+
 **First Pass Friday: Why It Pays to Hang in There**\
 `Kate Chin Park offers a challenging puzzle.`\
 https://nytimes.com/2024/08/01/crosswords/first-pass-friday.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5675803/2024/08/01/nfl-sunday-ticket-lawsuit-verdic
 **With Geno Smith out injured, Sam Howell flashes his talent ... and his flaws**\
 `With Smith missing practice, Howell got a chance with the starters, making big plays and big mistakes throughout the afternoon.`\
 https://nytimes.com/athletic/5675798/2024/08/01/geno-smith-injury-sam-howell/
-
-**Dodgers star Freddie Freeman's family issues update on son's health**\
-`Freddie Freeman's 3-year-old son is battling a severe case of Guillan-Barré syndrome, a rare neurological condition.`\
-https://nytimes.com/athletic/5675755/2024/08/01/dodgers-freddie-freeman-son-update/
 
