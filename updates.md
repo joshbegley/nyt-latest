@@ -1,3 +1,7 @@
+**Who’s Afraid of Being Black? Not Kamala, Beyoncé or Kendrick.**\
+`With her response to Donald Trump’s comments about her background, Kamala Harris showed that Blackness doesn’t need to be explained or defended — an idea underscored by her campaign theme song.`\
+https://nytimes.com/2024/08/02/arts/music/kamala-harris-beyonce-kendrick-lamar.html
+
 **What to know about the latest report.**\
 `By Sydney Ember`\
 https://nytimes.com/live/2024/08/02/business/jobs-report-july/what-to-know-about-the-latest-report
