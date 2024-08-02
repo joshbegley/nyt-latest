@@ -1,3 +1,15 @@
+**The quirky stories that define Stephen Nedoroscik, Team USA's pommel horse hero**\
+`“Men’s gymnastics needed Stephen," said Matt Carbone, the owner of Nedoroscik's hometown gym.`\
+https://nytimes.com/athletic/5675559/2024/08/02/stephen-nedoroscik-usa-gymnastics-olympics-penn-state-pommel-horse/
+
+**NBC Sports 'likely' to introduce 'multiview' feature for Premier League coverage**\
+`NBC Sports are &#8220;likely&#8221; to enhance its Premier League coverage with the introduction of a new &#8220;multiview&#8221; feature, offering fans the ability to watch multiple games simultaneously.`\
+https://nytimes.com/athletic/5676492/2024/08/02/nbc-sports-premier-league-multiview/
+
+**Hayes defends lack of USWNT rotation, says Davidson and Shaw could be fit**\
+`Shaw has yet to feature at the Games, while Davidson missed the final group match against Australia`\
+https://nytimes.com/athletic/5676539/2024/08/02/uswnt-davidson-shaw-hayes-olympics/
+
 **Parts of Florida Under State of Emergency as Storm Moves Toward the Gulf**\
 `The storm, which could become Tropical Storm Debby, is expected to bring significant amounts of rain to the coast.`\
 https://nytimes.com/2024/08/02/weather/florida-gulf-tropical-storm-state-emergency.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/02/your-money/mortage-housing-land-contracts.html
 **Why You Should Be Taking a Hard Look at Your Investments Right Now**\
 `After big gains in stocks and mediocre returns for bonds, investors are taking on undue risk if they don’t rebalance their holdings, our columnist says.`\
 https://nytimes.com/2024/08/02/business/stocks-bonds-rebalancing-asset-allocation.html
-
-**With Justin Herbert sidelined, Chargers backup Easton Stick returns to the spotlight**\
-`EL SEGUNDO, Calif.`\
-https://nytimes.com/athletic/5676045/2024/08/02/justin-herbert-injury-chargers-easton-stick/
-
-**U.S. Poised to Send More Combat Aircraft to Middle East, Officials Say**\
-`How many planes to send is still being worked out, as are final approvals from senior officials including Defense Secretary Lloyd J. Austin III.`\
-https://nytimes.com/2024/08/02/world/middleeast/us-iran-israel-aircraft.html
-
-**Here’s the latest on the presidential race.**\
-`By Simon J. Levien`\
-https://nytimes.com/live/2024/08/02/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
