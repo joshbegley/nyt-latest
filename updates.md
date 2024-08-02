@@ -1,3 +1,11 @@
+**Diamondbacks eke Little League homer, back-to-back-to-back homers against Pirates**\
+`The Diamondbacks got the scoring started against the Pirates in a chaotic and unusual way. `\
+https://nytimes.com/athletic/5677401/2024/08/02/diamondbacks-early-chaotic-scoring/
+
+**Raiders rookies DJ Glaze and Dylan Laube opening some eyes at training camp**\
+`Glaze has been holding his own against Raiders star Maxx Crosby, while Laube is seeing some first- and second-team reps. `\
+https://nytimes.com/athletic/5677363/2024/08/02/raiders-training-camp-dj-glaze-dylan-laube/
+
 **Judge Awards Schiele Drawing to Heirs of Merchant Killed by the Nazis**\
 `The drawing of Schiele’s wife was the focus of a trial at which three parties, all with Jewish roots, argued whether it had been looted by the Nazis and from whom.`\
 https://nytimes.com/2024/08/02/arts/egon-schiele-drawing-heirs.html

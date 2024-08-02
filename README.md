@@ -6,7 +6,7 @@ https://nytimes.com/2024/08/02/arts/egon-schiele-drawing-heirs.html
 `The location of local snipers when Donald Trump was shot has become a point of deep dispute, with local officials suggesting that the Secret Service is trying to shift blame.`\
 https://nytimes.com/2024/08/02/us/politics/secret-service-trump-assassination-attempt.html
 
-**Diamondbacks eke Little League homer, back-to-back-to-back homers against Pirates**\
+**Diamondbacks hit Little League homer, back-to-back-to-back homers against Pirates**\
 `The Diamondbacks got the scoring started against the Pirates in a chaotic and unusual way. `\
 https://nytimes.com/athletic/5677401/2024/08/02/diamondbacks-early-chaotic-scoring/
 

@@ -6,7 +6,11 @@ https://nytimes.com/2024/08/02/arts/egon-schiele-drawing-heirs.html
 `The location of local snipers when Donald Trump was shot has become a point of deep dispute, with local officials suggesting that the Secret Service is trying to shift blame.`\
 https://nytimes.com/2024/08/02/us/politics/secret-service-trump-assassination-attempt.html
 
-**Raiders training camp: Rookies DJ Glaze and Dylan Laube opening some eyes**\
+**Diamondbacks eke Little League homer, back-to-back-to-back homers against Pirates**\
+`The Diamondbacks got the scoring started against the Pirates in a chaotic and unusual way. `\
+https://nytimes.com/athletic/5677401/2024/08/02/diamondbacks-early-chaotic-scoring/
+
+**Raiders rookies DJ Glaze and Dylan Laube opening some eyes at training camp**\
 `Glaze has been holding his own against Raiders star Maxx Crosby, while Laube is seeing some first- and second-team reps. `\
 https://nytimes.com/athletic/5677363/2024/08/02/raiders-training-camp-dj-glaze-dylan-laube/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5677202/2024/08/02/49ers-training-camp-ricky-pearsa
 **Highlights From the 2024 Paris Olympics**\
 `See our photographers’ best images from the Summer Games.`\
 https://nytimes.com/interactive/2024/08/02/world/olympics/paris-olympics-best-photos-2024.html
-
-**Mark Robinson tries to reframe his strict anti-abortion position in a new ad.**\
-`Mr. Robinson, the Republican nominee for governor in North Carolina who has called for a near-total abortion ban, spoke of his wife having an abortion decades ago and signaled his support for the state’s current 12-week ban.`\
-https://nytimes.com/live/2024/08/02/us/harris-trump-election/mark-robinson-abortion-north-carolina
 
