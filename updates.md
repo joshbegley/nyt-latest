@@ -1,3 +1,7 @@
+**A One-Man Team’s 10-Second Olympics**\
+`Winzar Kakiouea, a 100-meter runner, is the only competitor at the Paris Games from his Pacific island nation. His debut might be over in a flash.`\
+https://nytimes.com/2024/08/02/world/olympics/winzar-kaklouea-nauru-track.html
+
 **Man United submit opening offer for De Ligt and Mazraoui**\
 `Manchester United have submitted an opening double offer to sign Matthijs de Ligt and Noussair Mazraoui from Bayern Munich.`\
 https://nytimes.com/athletic/5676135/2024/08/02/man-utd-transfers-de-ligt-mazraoui/
