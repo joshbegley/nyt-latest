@@ -1,3 +1,11 @@
+**Vitor Roque at Barcelona: What's gone wrong with €30m striker they rushed to sign?**\
+`Barcelona's 19-year-old Brazilian striker has struggled since landing in the city last December. What might the future hold?`\
+https://nytimes.com/athletic/5676162/2024/08/02/vitor-roque-barcelona-transfer-summer-flick-xavi/
+
+**Chevron Moves Its Headquarters to Houston From California**\
+`The oil company, which already has extensive operations in Texas, has often been at odds with California’s elected leaders over the state’s climate and energy policies.`\
+https://nytimes.com/2024/08/02/business/energy-environment/chevron-headquarters-houston.html
+
 **Team USA warns Puerto Rico: 'We want the No. 1 seed'**\
 `PARIS – The star players and coaches on the U.`\
 https://nytimes.com/athletic/5676332/2024/08/02/team-usa-olympics-basketball-seeding/
