@@ -1,3 +1,7 @@
+**First Pass Friday: Why It Pays to Hang in There**\
+`Kate Chin Park offers a challenging puzzle.`\
+https://nytimes.com/2024/08/01/crosswords/first-pass-friday.html
+
 **Harris Begins Final Phase of Accelerated V.P. Search**\
 `The formal vetting process is finished, and the first major decision of Vice President Kamala Harris’s presidential campaign is just days away.`\
 https://nytimes.com/2024/08/01/us/politics/kamala-harris-vp-search.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5675798/2024/08/01/geno-smith-injury-sam-howell/
 **Dodgers star Freddie Freeman's family issues update on son's health**\
 `Freddie Freeman's 3-year-old son is battling a severe case of Guillan-Barré syndrome, a rare neurological condition.`\
 https://nytimes.com/athletic/5675755/2024/08/01/dodgers-freddie-freeman-son-update/
-
-**Kate Douglass always had the talent to win Olympic gold. Now the belief matches too**\
-`NANTERRE, France — There used to be a time, not all that long ago, when Kate Douglass surprised herself, when she did things in the pool that she didn&#8217;t know she was capable of doing.`\
-https://nytimes.com/athletic/5675731/2024/08/01/kate-douglass-olympics-gold-breaststroke-talent/
 
