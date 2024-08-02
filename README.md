@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5676770/2024/08/02/mike-trout-injury-the-windup/
 https://nytimes.com/athletic/5676712/2024/08/02/ny-rangers-prospects/
 
 **U.S. men out of Olympic soccer competition after 4-0 defeat by Morocco**\
-`How the U.S. men fared in their first Olympic soccer quarterfinal match in 24 years.`\
+`How the U.S. men fared in their first Olympic soccer quarterfinal match in 24 years`\
 https://nytimes.com/athletic/5676428/2024/08/02/us-men-morocco-olympic-soccer-quarterfinal/
 
 **MLB bullpen report: Trade deadline fallout, Paul Sewald's struggles persist and more**\
