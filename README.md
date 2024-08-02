@@ -1,5 +1,9 @@
+**A Triumphant Biden Welcomes 3 Freed Americans Home**\
+`A Biden aide hailed a complicated prisoner swap as an act of “vintage Joe Biden” diplomacy. As he greeted freed Americans, the president seemed intent on showing the world what that meant.`\
+https://nytimes.com/2024/08/02/us/politics/biden-greeting-freed-prisoners.html
+
 **Newcastle planning Gordon contract talks when forward back from break**\
-`Newcastle plan to open contract negotiations with Anthony Gordon when the forward returns from an extended break next week.`\
+`Newcastle United plan to open contract negotiations with Anthony Gordon when the forward returns from an extended break next week.`\
 https://nytimes.com/athletic/5671545/2024/08/02/anthony-gordon-contract-transfer-newcastle/
 
 **F1 summer report cards: McLaren beats Red Bull to the top of class**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5676063/2024/08/02/bears-collin-johnson-brett-rypie
 **Word of the Day: defamatory**\
 `This word has appeared in 73 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/02/learning/word-of-the-day-defamatory.html
-
-**Friday Briefing**\
-`A sweeping prisoner swap between Russia and the West.`\
-https://nytimes.com/2024/08/02/briefing/prisoners-russia-biden-maduro-olympics.html
 
