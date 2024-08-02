@@ -1,3 +1,7 @@
+**Israel, Defiant, Appears to Have Gone Rogue, Risking a Regional War**\
+`Ignoring the efforts of President Biden and the condemnation of many allies, Prime Minister Benjamin Netanyahu is forcing the pace of the war and feeding the revolt of the far right.`\
+https://nytimes.com/2024/08/02/world/europe/israel-defiant-gaza-war.html
+
 **Manfred Kirchheimer, ‘Indispensable’ New York Filmmaker, Dies at 93**\
 `For decades, he meticulously crafted short films and documentaries in relative obscurity. Then, in his 80s, he enjoyed a burst of productivity and acclaim.`\
 https://nytimes.com/2024/08/02/arts/manfred-kirchheimer-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/02/business/uk-riots-social-media.html
 **Malacia out for two more months with knee injury - Ten Hag**\
 `Manchester United left-back Tyrell Malacia is set to remain on the sidelines for another two months, according to manager Erik ten Hag.`\
 https://nytimes.com/athletic/5676772/2024/08/02/tyrell-malacia-injury-man-utd/
-
-**Benjamin Luxon, British Baritone Thwarted by Hearing Loss, Dies at 87**\
-`A favorite of Benjamin Britten, he won acclaim in roles like Don Giovanni, Eugene Onegin and Falstaff until his affliction forced him to largely give up singing.`\
-https://nytimes.com/2024/08/02/arts/music/benjamin-luxon-dead.html
 

@@ -1,3 +1,7 @@
+**Israel, Defiant, Appears to Have Gone Rogue, Risking a Regional War**\
+`Ignoring the efforts of President Biden and the condemnation of many allies, Prime Minister Benjamin Netanyahu is forcing the pace of the war and feeding the revolt of the far right.`\
+https://nytimes.com/2024/08/02/world/europe/israel-defiant-gaza-war.html
+
 **Manfred Kirchheimer, ‘Indispensable’ New York Filmmaker, Dies at 93**\
 `For decades, he meticulously crafted short films and documentaries in relative obscurity. Then, in his 80s, he enjoyed a burst of productivity and acclaim.`\
 https://nytimes.com/2024/08/02/arts/manfred-kirchheimer-dead.html
