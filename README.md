@@ -1,3 +1,7 @@
+**'I cannot stop smiling': Giannis loving Olympic experience, especially after Greece wins**\
+`After Greece earned its first Olympic basketball win in 16 years, Antetokounmpo gushed about his time in Paris and representing his country.`\
+https://nytimes.com/athletic/5676856/2024/08/02/giannis-antetokounmpo-olympics-greece-paris-experience/
+
 **The National Sports Collectors Convention takeaways**\
 `Kids are flocking to the trading card hobby and industry experts are taking notice `\
 https://nytimes.com/athletic/5672022/2024/08/02/what-we-saw-and-heard-at-the-national-sports-collectors-convention-as-trading-card-boom-continues/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/02/world/europe/olympics-griezmann-france.html
 **Read the lawsuit**\
 `The Justice Department said in its legal filing that TikTok had violated a leading child privacy law.`\
 https://nytimes.com/interactive/2024/08/02/technology/02tiktok-doj-document.html
-
-**Chinese badminton player gets engaged after winning gold**\
-`Huang Ya Qiong's boyfriend surprise her with a proposal after she won gold with her badminton mixed doubles partner Zheng Si Wei.`\
-https://nytimes.com/athletic/5676820/2024/08/02/china-badminton-proposal-huang-ya-qiong-gold-medal-mixed-doubles/
 
