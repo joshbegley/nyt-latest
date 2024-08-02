@@ -1,3 +1,16 @@
+**5 Children’s Movies to Stream Now**\
+`This month’s picks include a new SpongeBob SquarePants adventure and an Oscar-nominated film from Cartoon Saloon.`\
+https://nytimes.com/2024/08/02/movies/5-childrens-movies-to-stream-now.html
+
+**Slovakian swimmer Potocka collapses after swimming heat**\
+`Slovakian swimmer Tamara Potocka had to receive medical care after appearing to collapse following a heat at the Paris Olympics.`\
+https://nytimes.com/athletic/5676242/2024/08/02/swimmer-collapse-olympics/
+
+**The key question facing NHL teams: How much cap space can they dedicate to core players?**\
+`Teams around the league will have to contemplate how many big contracts they can realistically dedicate to just a few of their players.
+`\
+https://nytimes.com/athletic/5672621/2024/08/02/nhl-salary-cap-core-players/
+
 **The key question facing NHL teams: How much cap space can they dedicate to core players?**\
 `Teams around the league will have to contemplate how many big contracts they can realistically dedicate to just a few of their players.
 `\
