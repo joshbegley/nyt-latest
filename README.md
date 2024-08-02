@@ -1,3 +1,7 @@
+**How Katie Ledecky Won the Most Medals of Any U.S. Female Olympian**\
+`Katie Ledecky now stands alone as the most decorated female American Olympian, in any sport, with 13 medals. And she still has one more race to swim in France. Jenny Vrentas, a New York Times reporter covering sports, explains how Ledecky reached this milestone.`\
+https://nytimes.com/video/sports/100000009606617/how-katie-ledecky-won-the-most-medals-of-any-us-female-olympian.html
+
 **Judge Awards Schiele Drawing to Heirs of Merchant Killed by the Nazis**\
 `The drawing of Schiele’s wife was the focus of a trial at which three parties, all with Jewish roots, argued whether it had been looted by the Nazis and from whom.`\
 https://nytimes.com/2024/08/02/arts/egon-schiele-drawing-heirs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5677209/2024/08/02/cardinals-mlb-erick-fedde-debut/
 **49ers training camp: Ricky Pearsall has impressed the staff over 3 practices**\
 `49ers coach Kyle Shanahan has been impressed early but is looking forward to watching Pearsall in one-on-one work Saturday.`\
 https://nytimes.com/athletic/5677202/2024/08/02/49ers-training-camp-ricky-pearsall/
-
-**Highlights From the 2024 Paris Olympics**\
-`See our photographers’ best images from the Summer Games.`\
-https://nytimes.com/interactive/2024/08/02/world/olympics/paris-olympics-best-photos-2024.html
 
