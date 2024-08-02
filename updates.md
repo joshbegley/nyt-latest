@@ -1,3 +1,7 @@
+**Convicted Assassin Is a Russian Security Agent, Kremlin Acknowledges**\
+`Vadim Krasikov, who was returned to Russia in the big prisoner swap, received a hero’s welcome from President Putin, along with others who were freed.`\
+https://nytimes.com/2024/08/02/world/europe/vadim-krasikov-assassin-russia-fsb.html
+
 **Emile Smith Rowe's move from Arsenal to Fulham: Frustration, new beginnings and hope**\
 `The England international is leaving his boyhood club and crossing London for a new start`\
 https://nytimes.com/athletic/5674149/2024/08/02/emile-smith-rowe-fulham-arsenal/
