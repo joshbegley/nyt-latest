@@ -1,3 +1,7 @@
+**Collin Johnson, Brett Rypien star for Bears in weather-shortened Hall of Fame Game**\
+`Johnson and Rypien, two veterans, have quickly built a connection, but where do they fit on the Bears' roster?`\
+https://nytimes.com/athletic/5676063/2024/08/02/bears-collin-johnson-brett-rypien-hall-of-fame-game/
+
 **Word of the Day: defamatory**\
 `This word has appeared in 73 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/02/learning/word-of-the-day-defamatory.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5672598/2024/08/02/liverpool-manchester-united-colu
 **Inside Arsenal's U.S. tour: Calafiori scramble, 'young vs old' table tennis - and Justin Bieber**\
 `American trip combined intense training, off-field bonding and celebrity spotting... as well as vital transfer business`\
 https://nytimes.com/athletic/5674448/2024/08/02/arsenal-us-tour-calafiori-scramble-young-v-old-table-tennis-and-justin-bieber/
-
-**Not a 'typical sprinter' but Louie Hincliffe is Team GB's surprise 100m hope at the Olympics**\
-`The Sheffield sprinter being coached by Carl Lewis is quiet, unassuming and ready to take Paris by storm`\
-https://nytimes.com/athletic/5641221/2024/08/02/louie-hinchliffe-team-gb-olympics/
 
