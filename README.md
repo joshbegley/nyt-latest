@@ -1,3 +1,7 @@
+**Death of Black Man at Milwaukee Hyatt Is Ruled a Homicide**\
+`D’Vontaye Mitchell died after being held down by hotel staff members. An autopsy cited restraint asphyxia and the toxic effects of cocaine and methamphetamine as the cause of death.`\
+https://nytimes.com/2024/08/02/us/dvontaye-mitchell-homicide-death.html
+
 **Nothing lasts forever — except Teddy Riner, French Olympic judo superstar**\
 `PARIS — Emmanuel Macron trotted around the back of Champ-de-Mars Arena, kicking up gravel, coating his leather dress shoes in dust.`\
 https://nytimes.com/athletic/5677073/2024/08/02/teddy-riner-olympic-judo-gold-medal-france/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5677127/2024/08/02/djokovic-alcaraz-olympic-gold/
 **Caeleb Dressel misses podium in 50 free, fails to reach 100 fly final**\
 `"I trained to go faster than the times I’m going. I know that," Dressel said.`\
 https://nytimes.com/athletic/5676953/2024/08/02/caeleb-dressel-50-meter-freestyle-paris-olympics/
-
-**Team GB's Whyte crashes out in BMX semi-final**\
-`Team GB BMX rider Kye Whyte suffered &#8220;no significant injuries&#8221; after crashing out of the men&#8217;s semi-final race at the Paris Olympics.`\
-https://nytimes.com/athletic/5677109/2024/08/02/kye-whyte-olympics-crash/
 
