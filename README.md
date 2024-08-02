@@ -1,3 +1,23 @@
+**Emile Smith Rowe's move from Arsenal to Fulham: Frustration, new beginnings and hope**\
+`The England international is leaving his boyhood club and crossing London for a new start`\
+https://nytimes.com/athletic/5674149/2024/08/02/emile-smith-rowe-fulham-arsenal/
+
+**Smith Rowe completes Fulham move**\
+`Emile Smith Rowe has completed his move from Arsenal to Fulham.`\
+https://nytimes.com/athletic/5657662/2024/08/02/emile-smith-rowe-fulham-arsenal-transfer/
+
+**Summer Reading Contest, Week 9: What Got Your Attention in The Times This Week?**\
+`To participate, submit your response here by Aug. 9 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 21.`\
+https://nytimes.com/2024/08/02/learning/summer-reading-contest-week-9-what-got-your-attention-in-the-times-this-week.html
+
+**A Mortgage Alternative for Lower-Priced Homes Comes With Risks**\
+`Seller-financed loans known as “land contracts” don’t involve a bank and lack the consumer protections available with traditional home loans.`\
+https://nytimes.com/2024/08/02/your-money/mortage-housing-land-contracts.html
+
+**Why You Should Be Taking a Hard Look at Your Investments Right Now**\
+`After big gains in stocks and mediocre returns for bonds, investors are taking on undue risk if they don’t rebalance their holdings, our columnist says.`\
+https://nytimes.com/2024/08/02/business/stocks-bonds-rebalancing-asset-allocation.html
+
 **With Justin Herbert sidelined, Chargers backup Easton Stick returns to the spotlight**\
 `EL SEGUNDO, Calif.`\
 https://nytimes.com/athletic/5676045/2024/08/02/justin-herbert-injury-chargers-easton-stick/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5676325/2024/08/02/liverpool-vs-man-utd-south-carol
 **Newcastle open talks to sign Guehi from Palace**\
 `Newcastle United have opened negotiations with Crystal Palace over a move to sign Marc Guehi.`\
 https://nytimes.com/athletic/5676387/2024/08/02/newcastle-marc-guehi-transfer-crystal-palace/
-
-**Spurs granted permission to hold 30 non-football events at stadium per year**\
-`Tottenham Hotspur have been granted permission to hold up to 30 non-football events at their stadium per calendar year.`\
-https://nytimes.com/athletic/5676363/2024/08/02/tottenham-hotspur-stadium-events/
-
-**Gary Neville acquires Peter Lim's stake in Salford**\
-`Gary Neville has bought out Peter Lim&#8217;s stake in Salford City, opening the door for a new strategic partner &#8220;to take the club forward&#8221;.`\
-https://nytimes.com/athletic/5676316/2024/08/02/gary-neville-peter-lim-salford/
-
-**Child care needs challenge women’s work force gains.**\
-`Participation in the labor force has surged among women in their prime working years. But for those with children under 5, the gains may have peaked.`\
-https://nytimes.com/live/2024/08/02/business/jobs-report-july/women-work-force-child-care
-
-**Vitor Roque at Barcelona: What's gone wrong with €30m striker they rushed to sign?**\
-`Barcelona's 19-year-old Brazilian striker has struggled since landing in the city last December. What might the future hold?`\
-https://nytimes.com/athletic/5676162/2024/08/02/vitor-roque-barcelona-transfer-summer-flick-xavi/
-
-**Chevron, in Snub to California, to Move Its Headquarters to Houston**\
-`The oil company, which already has extensive operations in Texas, has often been at odds with California’s elected leaders over the state’s climate and energy policies.`\
-https://nytimes.com/2024/08/02/business/energy-environment/chevron-headquarters-houston.html
 
