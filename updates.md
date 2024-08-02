@@ -1,3 +1,15 @@
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/08/02/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**The Athletic FC: Why Liverpool vs Man Utd will be played at University of South Carolina**\
+`One of the Premier League's great rivalries will be played out at the University of South Carolina - here's how the match came about.`\
+https://nytimes.com/athletic/5676325/2024/08/02/liverpool-vs-man-utd-south-carolina/
+
+**Newcastle open talks to sign Guehi from Palace**\
+`Newcastle United have opened negotiations with Crystal Palace over a move to sign Marc Guehi.`\
+https://nytimes.com/athletic/5676387/2024/08/02/newcastle-marc-guehi-transfer-crystal-palace/
+
 **Spurs granted permission to hold 30 non-football events at stadium per year**\
 `Tottenham Hotspur have been granted permission to hold up to 30 non-football events at their stadium per calendar year.`\
 https://nytimes.com/athletic/5676363/2024/08/02/tottenham-hotspur-stadium-events/
