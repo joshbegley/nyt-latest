@@ -1,3 +1,7 @@
+**Israeli settlement activity has spiked over the last five years, E.U. reports.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/israeli-settlement-activity-has-spiked-over-the-last-five-years-eu-reports
+
 **Germany Grapples With ‘Difficult Decision’ in Prisoner Swap**\
 `By releasing a convicted assassin, Germany played a critical role in securing the freedom of 16 people held in Russia. But the decision has raised questions about political influence in legal cases.`\
 https://nytimes.com/2024/08/02/world/europe/russia-putin-germany-prison-swap-krasikov-gershkovich.html
@@ -18,7 +22,7 @@ https://nytimes.com/2024/08/02/us/politics/mining-cobalt-nickel-electric-vehicle
 `Despite a 3-0 record, Canada is probably still heading for a scary quarterfinal opponent.`\
 https://nytimes.com/athletic/5677056/2024/08/02/paris-olympics-mens-basketball-2024-canada-spain/
 
-**It’s official: Léon Marchand owns the pool in France after winning his fourth gold medal.**\
+**It’s official: Léon Marchand owns the pool after winning his fourth gold medal.**\
 `After winning the 200 individual medley, Marchand joins Michael Phelps and Mark Spitz as the only male swimmers to win four gold medals at a single Olympics.`\
 https://nytimes.com/2024/08/02/world/olympics/leon-marchand-gold-medals.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/02/us/harris-trump-election/harriss-brother-in-
 **Death of Black Man at Milwaukee Hyatt Is Ruled a Homicide**\
 `D’Vontaye Mitchell died after being held down by hotel staff members. An autopsy cited restraint asphyxia and the toxic effects of cocaine and methamphetamine as the cause of death.`\
 https://nytimes.com/2024/08/02/us/dvontaye-mitchell-homicide-death.html
-
-**Nothing lasts forever — except Teddy Riner, French Olympic judo superstar**\
-`PARIS — Emmanuel Macron trotted around the back of Champ-de-Mars Arena, kicking up gravel, coating his leather dress shoes in dust.`\
-https://nytimes.com/athletic/5677073/2024/08/02/teddy-riner-olympic-judo-gold-medal-france/
 
