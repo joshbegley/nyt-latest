@@ -6,8 +6,8 @@ https://nytimes.com/interactive/2024/08/02/world/olympics/paris-olympics-best-ph
 `Mr. Robinson, the Republican nominee for governor in North Carolina who has called for a near-total abortion ban, spoke of his wife having an abortion decades ago and signaled his support for the state’s current 12-week ban.`\
 https://nytimes.com/live/2024/08/02/us/harris-trump-election/mark-robinson-abortion-north-carolina
 
-**Broncos WR Tim Patrick details long climb of past two years: 'It's never been easy'**\
-`Patrick is back on the field after missing the past two seasons following camp injuries, striving to be "a better version of myself."`\
+**'It's never been easy': Broncos WR Tim Patrick details long climb of past 2 years**\
+`Patrick is back on the field after missing the past two seasons following camp injuries, striving to be "a better version" of himself.`\
 https://nytimes.com/athletic/5677227/2024/08/02/tim-patrick-broncos-training-camp/
 
 **Yvonne Furneaux, Cosmopolitan Actress in ‘La Dolce Vita,’ Dies at 98**\
