@@ -2,7 +2,7 @@
 `Investors are focusing on slowing U.S. economic growth as calls for the Fed to cut interest rates grow louder.`\
 https://nytimes.com/2024/08/02/business/dealbook/stocks-hard-landing-fed-rates.html
 
-**Team USA warn Puerto Rico: 'We want the No 1 seed'**\
+**Team USA warns Puerto Rico: 'We want the No 1 seed'**\
 `PARIS – The star players and coaches on the U.`\
 https://nytimes.com/athletic/5676332/2024/08/02/team-usa-olympics-basketball-seeding/
 
