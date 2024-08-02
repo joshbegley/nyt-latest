@@ -1,3 +1,23 @@
+**Israel and Turkey spar as Erdogan declares a day of mourning for Haniyeh.**\
+`By Safak Timur`\
+https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/israel-and-turkey-spar-as-erdogan-declares-a-day-of-mourning-for-haniyeh
+
+**Jorgensen to battle Sanchez for Chelsea No 1 spot**\
+`Filip Jorgensen says he is ready to battle Robert Sanchez to be the first choice goalkeeper at Chelsea.`\
+https://nytimes.com/athletic/5676740/2024/08/02/filip-jorgensen-chelsea-sanchez/
+
+**5.25%**\
+`The Federal Reserve left interest rates at a two-decade high, but all the attention was on what it will do next.`\
+https://nytimes.com/2024/08/02/business/5-25-fed-interest-rates.html
+
+**Submit your Mets questions for the Tim Britton and Will Sammon mailbag**\
+`Submit your Mets questions for the Tim Britton and Will Sammon mailbag.`\
+https://nytimes.com/athletic/5676831/2024/08/02/mets-mlb-questions/
+
+**Orioles calling up prospect Coby Mayo for major-league debut: Source**\
+`Mayo, the No. 18 prospect in the game, will be promoted Friday by the Orioles, a major-league source said. `\
+https://nytimes.com/athletic/5676778/2024/08/02/coby-mayo-orioles-prospect-promoted/
+
 **The U.K. Riots Were Fomented Online. Will Social Media Companies Act?**\
 `Prime Minister Keir Starmer called out social media groups for the misinformation on their platforms that sparked violent clashes this week. But holding them accountable is tough.`\
 https://nytimes.com/2024/08/02/business/uk-riots-social-media.html

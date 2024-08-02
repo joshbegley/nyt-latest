@@ -1,3 +1,23 @@
+**Israel and Turkey spar as Erdogan declares a day of mourning for Haniyeh.**\
+`By Safak Timur`\
+https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/israel-and-turkey-spar-as-erdogan-declares-a-day-of-mourning-for-haniyeh
+
+**Jorgensen to battle Sanchez for Chelsea No 1 spot**\
+`Filip Jorgensen says he is ready to battle Robert Sanchez to be the first choice goalkeeper at Chelsea.`\
+https://nytimes.com/athletic/5676740/2024/08/02/filip-jorgensen-chelsea-sanchez/
+
+**5.25%**\
+`The Federal Reserve left interest rates at a two-decade high, but all the attention was on what it will do next.`\
+https://nytimes.com/2024/08/02/business/5-25-fed-interest-rates.html
+
+**Submit your Mets questions for the Tim Britton and Will Sammon mailbag**\
+`Submit your Mets questions for the Tim Britton and Will Sammon mailbag.`\
+https://nytimes.com/athletic/5676831/2024/08/02/mets-mlb-questions/
+
+**Orioles calling up prospect Coby Mayo for major-league debut: Source**\
+`Mayo, the No. 18 prospect in the game, will be promoted Friday by the Orioles, a major-league source said. `\
+https://nytimes.com/athletic/5676778/2024/08/02/coby-mayo-orioles-prospect-promoted/
+
 **The U.K. Riots Were Fomented Online. Will Social Media Companies Act?**\
 `Prime Minister Keir Starmer called out social media groups for the misinformation on their platforms that sparked violent clashes this week. But holding them accountable is tough.`\
 https://nytimes.com/2024/08/02/business/uk-riots-social-media.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/08/02/us/politics/simone-biles-black-job-trump.html
 **The Windup: On Mike Trout's season ending**\
 `Today's top baseball news.`\
 https://nytimes.com/athletic/5676770/2024/08/02/mike-trout-injury-the-windup/
-
-**Rangers mailbag, Part 2: Pospect timelines, Kakko's role, Trouba's future**\
-`Let's take stock of where the younger Rangers project in the upcoming season.`\
-https://nytimes.com/athletic/5676712/2024/08/02/ny-rangers-prospects/
-
-**U.S. men out of Olympic soccer competition after 4-0 defeat by Morocco**\
-`How the U.S. men fared in their first Olympic soccer quarterfinal match in 24 years`\
-https://nytimes.com/athletic/5676428/2024/08/02/us-men-morocco-olympic-soccer-quarterfinal/
-
-**MLB bullpen report: Trade deadline fallout, Paul Sewald's struggles persist and more**\
-`Greg Jewett runs through the MLB trade deadline bullpen fallout, illustrates the struggles of Arizona closer Paul Sewald and more.`\
-https://nytimes.com/athletic/5676639/2024/08/02/fantasy-baseball-bullpen-report-trade-deadline-paul-sewald/
-
-**Wall Street’s Turbulent Week Ends With Stocks Falling**\
-`A weaker-than-expected jobs report added to investors’ worries about the economy. Stocks fell sharply, and Treasury yields declined in expectation of a Federal Reserve rate cut.`\
-https://nytimes.com/2024/08/02/business/economy/stocks-drop-economy-jobs.html
-
-**Billie Eilish Joins Charli XCX’s Brat Summer, and 10 More New Songs**\
-`Hear tracks by MJ Lenderman, Miranda Lambert, ASAP Rocky featuring Jessica Pratt and others.`\
-https://nytimes.com/2024/08/02/arts/music/playlist-charli-xcx-billie-eilish-guess.html
 
