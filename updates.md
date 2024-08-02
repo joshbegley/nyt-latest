@@ -1,3 +1,11 @@
+**A Triumphant Biden Welcomes 3 Freed Americans Home**\
+`A Biden aide hailed a complicated prisoner swap as an act of “vintage Joe Biden” diplomacy. As he greeted freed Americans, the president seemed intent on showing the world what that meant.`\
+https://nytimes.com/2024/08/02/us/politics/biden-greeting-freed-prisoners.html
+
+**Newcastle planning Gordon contract talks when forward back from break**\
+`Newcastle United plan to open contract negotiations with Anthony Gordon when the forward returns from an extended break next week.`\
+https://nytimes.com/athletic/5671545/2024/08/02/anthony-gordon-contract-transfer-newcastle/
+
 **Newcastle planning Gordon contract talks when forward back from break**\
 `Newcastle plan to open contract negotiations with Anthony Gordon when the forward returns from an extended break next week.`\
 https://nytimes.com/athletic/5671545/2024/08/02/anthony-gordon-contract-transfer-newcastle/
