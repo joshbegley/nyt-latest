@@ -1,3 +1,7 @@
+**Highlights From the 2024 Paris Olympics**\
+`See our photographers’ best images from the Summer Games.`\
+https://nytimes.com/interactive/2024/08/02/world/olympics/paris-olympics-best-photos-2024.html
+
 **Mark Robinson tries to reframe his strict anti-abortion position in a new ad.**\
 `Mr. Robinson, the Republican nominee for governor in North Carolina who has called for a near-total abortion ban, spoke of his wife having an abortion decades ago and signaled his support for the state’s current 12-week ban.`\
 https://nytimes.com/live/2024/08/02/us/harris-trump-election/mark-robinson-abortion-north-carolina

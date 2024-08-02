@@ -1,3 +1,7 @@
+**Highlights From the 2024 Paris Olympics**\
+`See our photographers’ best images from the Summer Games.`\
+https://nytimes.com/interactive/2024/08/02/world/olympics/paris-olympics-best-photos-2024.html
+
 **Mark Robinson tries to reframe his strict anti-abortion position in a new ad.**\
 `Mr. Robinson, the Republican nominee for governor in North Carolina who has called for a near-total abortion ban, spoke of his wife having an abortion decades ago and signaled his support for the state’s current 12-week ban.`\
 https://nytimes.com/live/2024/08/02/us/harris-trump-election/mark-robinson-abortion-north-carolina
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/02/world/middleeast/israel-hamas-haniyeh-funeral-qat
 **Israeli settlement activity has spiked over the last five years, E.U. reports.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/israeli-settlement-activity-has-spiked-over-the-last-five-years-eu-reports
-
-**Germany Grapples With ‘Difficult Decision’ in Prisoner Swap**\
-`By releasing a convicted assassin, Germany played a critical role in securing the freedom of 16 people held in Russia. But the decision has raised questions about political influence in legal cases.`\
-https://nytimes.com/2024/08/02/world/europe/russia-putin-germany-prison-swap-krasikov-gershkovich.html
 
