@@ -1,3 +1,7 @@
+**Erick Fedde falters in Cardinals debut: 'Wanted it to be a special one'**\
+`Fedde surrendered 5 runs in a start marred by inconsistent command and the Cardinals offense missed several big chances.`\
+https://nytimes.com/athletic/5677209/2024/08/02/cardinals-mlb-erick-fedde-debut/
+
 **49ers training camp: Ricky Pearsall has impressed the staff over 3 practices**\
 `49ers coach Kyle Shanahan has been impressed early but is looking forward to watch Pearsall in one-on-one work on Saturday.`\
 https://nytimes.com/athletic/5677202/2024/08/02/49ers-training-camp-ricky-pearsall/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5677295/2024/08/02/conor-gallagher-chelsea-maresca/
 **Joe Gomez's future at Liverpool remains in the balance after Newcastle approach**\
 `The centre-back came up as an option in a potential swap deal involving Anthony Gordon. Will he seek another Anfield exit route?`\
 https://nytimes.com/athletic/5675357/2024/08/02/joe-gomez-liverpool-newcastle-anthony-gordon-transfer/
-
-**Hamas Leader’s Funeral Comes Amid Fears His Killing May Block Cease-Fire Deal**\
-`Few Palestinians appeared to heed Hamas’s call for a “day of anger” to condemn the killing of Ismail Haniyeh and Israel’s bombardment of the enclave.`\
-https://nytimes.com/2024/08/02/world/middleeast/israel-hamas-haniyeh-funeral-qatar.html
 
