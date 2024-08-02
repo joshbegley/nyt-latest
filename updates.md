@@ -1,3 +1,7 @@
+**What’s Uniting, and Dividing, Native Voters in Arizona**\
+`A usually solidly Democratic vote, Native American voters across the state say they feel increasingly left out of the conversation and are looking for change.`\
+https://nytimes.com/interactive/2024/08/02/us/elections/arizona-native-voters.html
+
 **How Katie Ledecky Won the Most Medals of Any U.S. Female Olympian**\
 `Katie Ledecky now stands alone as the most decorated female American Olympian, in any sport, with 13 medals. And she still has one more race to swim in France. Jenny Vrentas, a New York Times reporter covering sports, explains how Ledecky reached this milestone.`\
 https://nytimes.com/video/sports/100000009606617/how-katie-ledecky-won-the-most-medals-of-any-us-female-olympian.html
