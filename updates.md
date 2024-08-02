@@ -1,3 +1,11 @@
+**A ‘Love Activist’ D.J. Opened the Olympics. Then Came a Wave of Hate.**\
+`The French D.J. Barbara Butch wanted to deliver a message of peace in the opening ceremony, but ended up getting savaged online.`\
+https://nytimes.com/2024/08/02/arts/music/barbara-butch-olympics-opening-ceremony.html
+
+**Tech Bosses Preach Patience as They Spend and Spend on A.I.**\
+`Big technology companies show no signs of slowing their spending on artificial intelligence, even though a payoff still looks a long way away.`\
+https://nytimes.com/2024/08/02/technology/tech-companies-ai-spending.html
+
 **Marchand wins gold in 200-meter IM, completes golden sweep in 4 events**\
 `Marchand joined Michael Phelps and Mark Spitz as the only men to win four individual gold medals in the same Games.`\
 https://nytimes.com/athletic/5676976/2024/08/02/leon-marchand-gold-200-meter-individual-medley-paris-olympics/
