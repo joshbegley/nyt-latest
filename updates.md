@@ -1,3 +1,15 @@
+**Kentucky football to vacate games, serve probation via resolution with NCAA**\
+`At least 11 football players received payment for work not performed between spring 2021 and March 2022, the school and NCAA agreed.`\
+https://nytimes.com/athletic/5676944/2024/08/02/kentucky-football-vacated-games-ncaa-investigation/
+
+**Olympic boxer Angela Carini apologies to Imane Khelif**\
+`Angela Carini of Italy doesn&#8217;t like how the conversation about Olympic women&#8217;s boxing has turned.`\
+https://nytimes.com/athletic/5676796/2024/08/02/olympics-women-boxing-angela-carini-apologizes-imane-khelif/
+
+**Swiatek 'cried for three days' after Olympic heartbreak**\
+`PARIS — Iga Swiatek, the world No.`\
+https://nytimes.com/athletic/5676910/2024/08/02/iga-swiatek-olympics/
+
 **Who’s Afraid of Being Black? Not Kamala, Beyoncé or Kendrick.**\
 `With her response to Donald Trump’s comments about her background, Kamala Harris showed that Blackness doesn’t need to be explained or defended — an idea underscored by her campaign theme song.`\
 https://nytimes.com/2024/08/02/arts/music/kamala-harris-beyonce-kendrick-lamar.html
