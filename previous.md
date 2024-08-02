@@ -1,3 +1,11 @@
+**Gary Patterson no longer with Baylor after offseason as Dave Aranda consultant**\
+`Aranda brought Patterson on to bolster his Baylor staff amid significant changes within the program after consecutive losing seasons.`\
+https://nytimes.com/athletic/5677225/2024/08/02/gary-patterson-baylor-dave-aranda/
+
+**Harris’s brother-in-law, Uber’s chief lawyer, is taking a leave to join her campaign.**\
+`By Noam Scheiber, Kate Kelly and Kenneth P. Vogel`\
+https://nytimes.com/live/2024/08/02/us/harris-trump-election/harriss-brother-in-law-ubers-chief-lawyer-is-taking-a-leave-to-join-her-campaign
+
 **Death of Black Man at Milwaukee Hyatt Is Ruled a Homicide**\
 `D’Vontaye Mitchell died after being held down by hotel staff members. An autopsy cited restraint asphyxia and the toxic effects of cocaine and methamphetamine as the cause of death.`\
 https://nytimes.com/2024/08/02/us/dvontaye-mitchell-homicide-death.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5677169/2024/08/02/grant-fisher-joshua-cheptegei-ol
 **How to Watch the Summer Olympics in 4K**\
 `You can watch those handsprings in ultra high definition.`\
 https://nytimes.com/interactive/2024/08/02/smarter-living/wirecutter/watch-olympics-4k.html
-
-**Djokovic sets up gold-medal match with Alcaraz**\
-`There they go again.`\
-https://nytimes.com/athletic/5677127/2024/08/02/djokovic-alcaraz-olympic-gold/
-
-**Caeleb Dressel misses podium in 50 free, fails to reach 100 fly final**\
-`"I trained to go faster than the times I’m going. I know that," Dressel said.`\
-https://nytimes.com/athletic/5676953/2024/08/02/caeleb-dressel-50-meter-freestyle-paris-olympics/
 
