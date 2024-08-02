@@ -1,3 +1,11 @@
+**Flavor Flav helps Olympic discus thrower pay rent**\
+`U.S. discus thrower Veronica Fraley said she couldn't pay rent, so Flavor Flav and Alexis Ohanian started a wave of donations.`\
+https://nytimes.com/athletic/5676456/2024/08/02/veronica-fraley-flavor-flav-alexis-ohanian-olympics-rent/
+
+**Appeals Court Further Narrows Voting Rights Act’s Scope**\
+`Reversing decades of precedent, the U.S. Court of Appeals for the Fifth Circuit ruled in a Texas case that different minority groups cannot jointly claim that their votes have been diluted.`\
+https://nytimes.com/2024/08/02/us/texas-voting-rights-minorities.html
+
 **Olympic Officials Defend Algerian’s Eligibility in Boxing Controversy**\
 `Online fury and unclear rules have left organizers of the women’s boxing competition in Paris facing complex questions about fairness in women’s sports.`\
 https://nytimes.com/2024/08/02/world/olympics/boxing-imane-khelif-gender-athletes.html
