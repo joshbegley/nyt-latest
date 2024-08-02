@@ -1,3 +1,15 @@
+**Nothing lasts forever — except Teddy Riner, French Olympic judo superstar**\
+`PARIS — Emmanuel Macron trotted around the back of Champ-de-Mars Arena, kicking up gravel, coating his leather dress shoes in dust.`\
+https://nytimes.com/athletic/5677073/2024/08/02/teddy-riner-olympic-judo-gold-medal-france/
+
+**Sha’Carri Richardson Is Ready for Her Moment**\
+`Three years after a failed drug test kept her out of the Olympics, Richardson (and her fans) are focused on only one thing: a gold medal in the 100 meters.`\
+https://nytimes.com/2024/08/02/world/olympics/shacarri-richardson-100m-track.html
+
+**Hamas’s leader is laid to rest in Qatar as his successors vow to carry on the fight against Israel.**\
+`By Anjana Sankar`\
+https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/hamass-leader-is-laid-to-rest-in-qatar-as-his-successors-vow-to-carry-on-the-fight-against-israel
+
 **Does Anyone Have Leverage Over Nicolás Maduro?**\
 `The Biden administration recognized the autocrat’s rival as the winner of Sunday’s election in Venezuela. Yet President Maduro shows no sign of being willing to leave office.`\
 https://nytimes.com/2024/08/02/world/americas/venezuela-maduro-election-voters.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5676953/2024/08/02/caeleb-dressel-50-meter-freestyl
 **Team GB's Whyte crashes out in BMX semi-final**\
 `Team GB BMX rider Kye Whyte suffered &#8220;no significant injuries&#8221; after crashing out of the men&#8217;s semi-final race at the Paris Olympics.`\
 https://nytimes.com/athletic/5677109/2024/08/02/kye-whyte-olympics-crash/
-
-**Notes on Ohio State's QB battle, the loaded secondary and linebacker shuffling**\
-`Also: Mitchell Melton is making waves at defensive end and Carson Hinzman is getting work at multiple positions on the offensive line.`\
-https://nytimes.com/athletic/5677061/2024/08/02/ohio-state-football-quarterbacks-training-camp/
-
-**U.S. sets world record in 4x400 mixed relay**\
-`The quartet of Vernon Norwood, Shamier Little, Bryce Deadmon and Kaylyn Brown logged a time of 3:07.41.`\
-https://nytimes.com/athletic/5677083/2024/08/02/team-usa-mixed-relay-world-record/
-
-**Russian Dissident Says He Was Traded Against His Will in Inmate Swap**\
-`Ilya Yashin, a prominent opposition politician, said he appreciated his freedom, but told his jailers he did not want it if it meant going into exile.`\
-https://nytimes.com/2024/08/02/world/europe/russian-dissident-involuntary-exile.html
 

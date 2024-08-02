@@ -1,3 +1,15 @@
+**Nothing lasts forever — except Teddy Riner, French Olympic judo superstar**\
+`PARIS — Emmanuel Macron trotted around the back of Champ-de-Mars Arena, kicking up gravel, coating his leather dress shoes in dust.`\
+https://nytimes.com/athletic/5677073/2024/08/02/teddy-riner-olympic-judo-gold-medal-france/
+
+**Sha’Carri Richardson Is Ready for Her Moment**\
+`Three years after a failed drug test kept her out of the Olympics, Richardson (and her fans) are focused on only one thing: a gold medal in the 100 meters.`\
+https://nytimes.com/2024/08/02/world/olympics/shacarri-richardson-100m-track.html
+
+**Hamas’s leader is laid to rest in Qatar as his successors vow to carry on the fight against Israel.**\
+`By Anjana Sankar`\
+https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/hamass-leader-is-laid-to-rest-in-qatar-as-his-successors-vow-to-carry-on-the-fight-against-israel
+
 **Does Anyone Have Leverage Over Nicolás Maduro?**\
 `The Biden administration recognized the autocrat’s rival as the winner of Sunday’s election in Venezuela. Yet President Maduro shows no sign of being willing to leave office.`\
 https://nytimes.com/2024/08/02/world/americas/venezuela-maduro-election-voters.html
