@@ -1,3 +1,15 @@
+**Does Anyone Have Leverage Over Nicolás Maduro?**\
+`The Biden administration recognized the autocrat’s rival as the winner of Sunday’s election in Venezuela. Yet President Maduro shows no sign of being willing to leave office.`\
+https://nytimes.com/2024/08/02/world/americas/venezuela-maduro-election-voters.html
+
+**Democrats Pushed Biden Aside. Is Eric Adams Next?**\
+`The mayor of New York is highly unpopular and already has a few challengers.`\
+https://nytimes.com/live/2024/07/30/opinion/thepoint/eric-adams-mayor-unpopularity
+
+**American Grant Fisher wins bronze in men's 10k; Ugandan Joshua Cheptegei sets Olympic record**\
+`Fisher is the fourth U.S. man in history to medal in the event.`\
+https://nytimes.com/athletic/5677169/2024/08/02/grant-fisher-joshua-cheptegei-olympic-10k/
+
 **How to Watch the Summer Olympics in 4K**\
 `You can watch those handsprings in ultra high definition.`\
 https://nytimes.com/interactive/2024/08/02/smarter-living/wirecutter/watch-olympics-4k.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5677083/2024/08/02/team-usa-mixed-relay-world-recor
 **Russian Dissident Says He Was Traded Against His Will in Inmate Swap**\
 `Ilya Yashin, a prominent opposition politician, said he appreciated his freedom, but told his jailers he did not want it if it meant going into exile.`\
 https://nytimes.com/2024/08/02/world/europe/russian-dissident-involuntary-exile.html
-
-**Former F.B.I. Agent Sentenced to Life Plus 20 Years for Sexually Abusing Child**\
-`Christopher Bauer, who was convicted in June, found work as an Alabama state trooper after he was forced out of the F.B.I., officials said.`\
-https://nytimes.com/2024/08/02/us/christopher-bauer-fbi-child-abuse-alabama.html
-
-**The Court Filing**\
-`The photo was declassified with the release of a 2019 filing by Ammar al-Baluchi’s legal team.`\
-https://nytimes.com/interactive/2024/08/02/us/ae-628-declassified-version.html
-
-**Trump questioned the physical appearance of Native American business rivals in the 1990s.**\
-`The former president’s remarks this week about the racial identity of Vice President Kamala Harris recalled when he challenged the tribal recognition of a casino rival.`\
-https://nytimes.com/live/2024/08/02/us/harris-trump-election/trump-native-americans-indians
 
