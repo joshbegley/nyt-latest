@@ -1,3 +1,15 @@
+**Immigration is a wild card, making job numbers harder to parse.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/08/02/business/jobs-report-july/jobs-report-immigration
+
+**Seeking your first job after college? Share your story.**\
+`The New York Times wants to hear from recent college graduates, other young job seekers and hiring managers about this year’s job market.`\
+https://nytimes.com/live/2024/08/02/business/jobs-report-july/first-job-after-college
+
+**Live Updates: U.S. Job Market May Have Cooled in July**\
+`Economists expect the report to show that employers added 175,000 jobs. That would be a healthy number, but down from the 206,000 reported for June.`\
+https://nytimes.com/live/2024/08/02/business/jobs-report-july
+
 **The Harris Electorate**\
 `We examine who plans to vote for her.`\
 https://nytimes.com/2024/08/02/briefing/the-harris-electorate.html
