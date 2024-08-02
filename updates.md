@@ -1,3 +1,11 @@
+**Touchline-hugging, penalty-box breaking and experience: What Bogle brings to Leeds**\
+`Jayden Bogle arrived at Elland Road earlier this pre-season but already looks like he can make an impact at Leeds`\
+https://nytimes.com/athletic/5671377/2024/08/02/jayden-bogle-leeds-united-analysis/
+
+**A tour of Lopetegui's home town – the new West Ham head coach is forged by Basque traditions**\
+`Julen Lopetegui comes from a sporting family in an area a world away from the Premier League — can he add his steel to West Ham?`\
+https://nytimes.com/athletic/5668102/2024/08/02/julen-lopetegui-west-ham-basque-traditions/
+
 **Inside the sales pitch that took Liverpool and Manchester United to a U.S. college town**\
 `On Saturday evening, Columbia, with a population of less than 140,000, will host one of the sport's most famous rivalries`\
 https://nytimes.com/athletic/5672598/2024/08/02/liverpool-manchester-united-columbia-match/
