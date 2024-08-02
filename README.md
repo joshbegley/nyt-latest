@@ -1,3 +1,7 @@
+**What’s Uniting, and Dividing, Native Voters in Arizona**\
+`A usually solidly Democratic vote, Native American voters across the state say they feel increasingly left out of the conversation and are looking for change.`\
+https://nytimes.com/interactive/2024/08/02/us/elections/arizona-native-voters.html
+
 **How Katie Ledecky Won the Most Medals of Any U.S. Female Olympian**\
 `Katie Ledecky now stands alone as the most decorated female American Olympian, in any sport, with 13 medals. And she still has one more race to swim in France. Jenny Vrentas, a New York Times reporter covering sports, explains how Ledecky reached this milestone.`\
 https://nytimes.com/video/sports/100000009606617/how-katie-ledecky-won-the-most-medals-of-any-us-female-olympian.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5677178/2024/08/02/miami-hurricanes-football-recrui
 **Erick Fedde falters in Cardinals debut: 'Wanted it to be a special one'**\
 `Fedde surrendered 5 runs in a start marred by inconsistent command and the Cardinals offense missed several big chances.`\
 https://nytimes.com/athletic/5677209/2024/08/02/cardinals-mlb-erick-fedde-debut/
-
-**49ers training camp: Ricky Pearsall has impressed the staff over 3 practices**\
-`49ers coach Kyle Shanahan has been impressed early but is looking forward to watching Pearsall in one-on-one work Saturday.`\
-https://nytimes.com/athletic/5677202/2024/08/02/49ers-training-camp-ricky-pearsall/
 
