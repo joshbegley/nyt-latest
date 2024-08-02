@@ -1,3 +1,27 @@
+**F1 summer report cards: McLaren beats Red Bull to the top of class**\
+`Which teams have impressed the most and who has room for improvement when class resumes at Zandvoort later this month?`\
+https://nytimes.com/athletic/5666867/2024/08/02/f1-team-midseason-ratings-report-cards/
+
+**In Tahiti’s Waters, an Ocean Photographer Follows Big Waves**\
+`To capture images of surfers taking on the dangerous swells in Teahupo’o, Ben Thouard must suit up himself.`\
+https://nytimes.com/2024/08/02/insider/in-tahitis-waters-an-ocean-photographer-follows-big-waves.html
+
+**Secret Bundlers, Sham Donations: Adams Is Faulted in Campaign Audit**\
+`A 900-page draft audit of Eric Adams’s 2021 mayoral campaign in New York City found widespread errors that could lead to fines or forfeiture of public matching funds.`\
+https://nytimes.com/2024/08/02/nyregion/adams-audit-campaign-investigation.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/02/crosswords/spelling-bee-forum.html
+
+**Archaeologists Find a 2,400-Year-Old ‘Pot of Gold’ in Turkey**\
+`An ancient hoard of Persian coins offers insights into the political landscape around the time of the Peloponnesian War.`\
+https://nytimes.com/2024/08/02/science/archaeology-turkey-daric.html
+
+**Hotels in New York City Don’t Need Licenses. Should They?**\
+`New York’s hundreds of hotels are subject to less regulatory scrutiny than many other businesses. The industry is resisting City Council efforts to change that.`\
+https://nytimes.com/2024/08/02/nyregion/hotel-licenses-nyc.html
+
 **Collin Johnson, Brett Rypien star for Bears in weather-shortened Hall of Fame Game**\
 `Johnson and Rypien, two veterans, have quickly built a connection, but where do they fit on the Bears' roster?`\
 https://nytimes.com/athletic/5676063/2024/08/02/bears-collin-johnson-brett-rypien-hall-of-fame-game/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/08/02/briefing/prisoners-russia-biden-maduro-olympics.h
 **Biden and Harris Greet Americans Released From Russia**\
 `Three Americans — Evan Gershkovich, a reporter of The Wall Street Journal; Alsu Kurmasheva, an editor for RFE/RL; and Paul Whelan, a former U.S. Marine — were freed in a prisoner exchange with Russia.`\
 https://nytimes.com/video/us/100000009607011/gershkovich-biden-prisoner-exchange-russia.html
-
-**Private chef, mental coach and training in Miami - Rogers has readied his body and mind**\
-`The forward's start at Villa caught some by surprise — he's taken steps to make sure he is no flash in the pan `\
-https://nytimes.com/athletic/5671387/2024/08/02/how-morgan-rogers-is-preparing-for-first-full-season-at-aston-villa/
-
-**Everton have been busy in transfer market - could Phillips or Diarra be next?**\
-`Despite ownership turmoil, Everton have been active in the market and have room for loans - they are short in central defence and midfield`\
-https://nytimes.com/athletic/5671698/2024/08/02/everton-transfers-kalvin-phillips-habib-diarra/
-
-**Touchline-hugging, penalty-box breaking and experience: What Bogle brings to Leeds**\
-`Jayden Bogle arrived at Elland Road earlier this pre-season but already looks like he can make an impact at Leeds`\
-https://nytimes.com/athletic/5671377/2024/08/02/jayden-bogle-leeds-united-analysis/
-
-**A tour of Lopetegui's home town – the new West Ham head coach is forged by Basque traditions**\
-`Julen Lopetegui comes from a sporting family in an area a world away from the Premier League — can he add his steel to West Ham?`\
-https://nytimes.com/athletic/5668102/2024/08/02/julen-lopetegui-west-ham-basque-traditions/
-
-**Inside the sales pitch that took Liverpool and Manchester United to a U.S. college town**\
-`On Saturday evening, Columbia, with a population of less than 140,000, will host one of the sport's most famous rivalries`\
-https://nytimes.com/athletic/5672598/2024/08/02/liverpool-manchester-united-columbia-match/
-
-**Inside Arsenal's U.S. tour: Calafiori scramble, 'young vs old' table tennis - and Justin Bieber**\
-`American trip combined intense training, off-field bonding and celebrity spotting... as well as vital transfer business`\
-https://nytimes.com/athletic/5674448/2024/08/02/arsenal-us-tour-calafiori-scramble-young-v-old-table-tennis-and-justin-bieber/
 
