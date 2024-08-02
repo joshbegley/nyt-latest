@@ -1,3 +1,11 @@
+**Private chef, mental coach and training in Miami - Rogers has readied his body and mind**\
+`The forward's start at Villa caught some by surprise — he's taken steps to make sure he is no flash in the pan `\
+https://nytimes.com/athletic/5671387/2024/08/02/how-morgan-rogers-is-preparing-for-first-full-season-at-aston-villa/
+
+**Everton have been busy in transfer market - could Phillips or Diarra be next?**\
+`Despite ownership turmoil, Everton have been active in the market and have room for loans - they are short in central defence and midfield`\
+https://nytimes.com/athletic/5671698/2024/08/02/everton-transfers-kalvin-phillips-habib-diarra/
+
 **Touchline-hugging, penalty-box breaking and experience: What Bogle brings to Leeds**\
 `Jayden Bogle arrived at Elland Road earlier this pre-season but already looks like he can make an impact at Leeds`\
 https://nytimes.com/athletic/5671377/2024/08/02/jayden-bogle-leeds-united-analysis/
