@@ -1,3 +1,7 @@
+**Hard Landing Concerns Jolt Global Markets**\
+`Investors are focusing on slowing U.S. economic growth as calls for the Fed to cut interest rates grow louder.`\
+https://nytimes.com/2024/08/02/business/dealbook/stocks-hard-landing-fed-rates.html
+
 **Team USA warn Puerto Rico: 'We want the No 1 seed'**\
 `PARIS – The star players and coaches on the U.`\
 https://nytimes.com/athletic/5676332/2024/08/02/team-usa-olympics-basketball-seeding/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/02/movies/5-childrens-movies-to-stream-now.html
 **Slovakian swimmer Potocka collapses after swimming heat**\
 `Slovakian swimmer Tamara Potocka had to receive medical care after suffering an asthma attack following a heat at the Paris Olympics.`\
 https://nytimes.com/athletic/5676242/2024/08/02/swimmer-collapse-olympics/
-
-**The Pulse: Yes, she's wearing a diamond goat necklace**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/5675937/2024/08/02/simone-biles-suni-lee-nfl-kickoffs-the-pulse/
 
