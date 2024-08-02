@@ -1,3 +1,7 @@
+**Behind the Deal: Spies, a Killer, Secret Messages and Unseen Diplomacy**\
+`The negotiations that led to the prisoner swap and the freeing of Americans wrongfully held in Russia required patience and creativity, but gave both sides what they wanted most.`\
+https://nytimes.com/2024/08/01/us/politics/diplomacy-prisoner-swap-deal.html
+
 **Lauren Scruggs Makes History as Americans Win Olympic Fencing Gold**\
 `After Scruggs, 21, became the first Black American woman to win an individual Olympic fencing medal, she clinched gold for the U.S. team.`\
 https://nytimes.com/2024/08/01/sports/lauren-scruggs-olympics-fencing.html
