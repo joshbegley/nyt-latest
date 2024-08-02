@@ -1,3 +1,15 @@
+**What to know about the latest report.**\
+`By Sydney Ember`\
+https://nytimes.com/live/2024/08/02/business/jobs-report-july/what-to-know-about-the-latest-report
+
+**Algerian Boxer Is Eligible, Olympic Spokesman Says**\
+`The chief spokesman for the International Olympic Committee condemned misinformation that cast doubt on the gender of Imane Khelif, an Algerian boxer in the women’s competition.`\
+https://nytimes.com/video/world/olympics/100000009607907/olympics-committee-algerian-boxer-khelif.html
+
+**Palestinians say funeral prayers for a slain Hamas leader, but anger is subdued.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/palestinians-say-funeral-prayers-for-a-slain-hamas-leader-but-anger-is-subdued
+
 **Protesting Hunger, Nigerians Warn, ‘Life Cannot Continue Like This’**\
 `Thousands turned out across Africa’s most populous country despite government attempts to prevent them. Demonstrations have left at least 13 people dead, Amnesty International says.`\
 https://nytimes.com/2024/08/02/world/africa/nigeria-protest-end-bad-governance.html

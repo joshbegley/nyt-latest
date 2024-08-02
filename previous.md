@@ -1,3 +1,15 @@
+**What to know about the latest report.**\
+`By Sydney Ember`\
+https://nytimes.com/live/2024/08/02/business/jobs-report-july/what-to-know-about-the-latest-report
+
+**Algerian Boxer Is Eligible, Olympic Spokesman Says**\
+`The chief spokesman for the International Olympic Committee condemned misinformation that cast doubt on the gender of Imane Khelif, an Algerian boxer in the women’s competition.`\
+https://nytimes.com/video/world/olympics/100000009607907/olympics-committee-algerian-boxer-khelif.html
+
+**Palestinians say funeral prayers for a slain Hamas leader, but anger is subdued.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/palestinians-say-funeral-prayers-for-a-slain-hamas-leader-but-anger-is-subdued
+
 **Protesting Hunger, Nigerians Warn, ‘Life Cannot Continue Like This’**\
 `Thousands turned out across Africa’s most populous country despite government attempts to prevent them. Demonstrations have left at least 13 people dead, Amnesty International says.`\
 https://nytimes.com/2024/08/02/world/africa/nigeria-protest-end-bad-governance.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2024/08/02/us/trump-shooting-crooks-snipers.html
 **‘Trap’ Review: Pop Goes the Thriller**\
 `Josh Hartnett stars as a father with a secret in this M. Night Shyamalan film set at a concert.`\
 https://nytimes.com/2024/08/02/movies/trap-review.html
-
-**Netanyahu, Defiant, Appears to Have Gone Rogue, Risking a Regional War**\
-`Ignoring the efforts of President Biden and the condemnation of many allies, the Israeli prime minister is forcing the pace of the war and feeding the revolt of the far right.`\
-https://nytimes.com/2024/08/02/world/europe/israel-defiant-gaza-war.html
-
-**Manfred Kirchheimer, ‘Indispensable’ New York Filmmaker, Dies at 93**\
-`For decades, he meticulously crafted short films and documentaries in relative obscurity. Then, in his 80s, he enjoyed a burst of productivity and acclaim.`\
-https://nytimes.com/2024/08/02/arts/manfred-kirchheimer-dead.html
-
-**Meet Félix Lebrun, France's 17-year-old table tennis Olympic medal hopeful**\
-`Léon Marchand and Teddy Riner aren't the only French stars at these Games. Don't forget about Félix Lebrun, 17-year-old table tennis ace.`\
-https://nytimes.com/athletic/5676134/2024/08/02/felix-lebrun-olympics-table-tennis-france/
 
