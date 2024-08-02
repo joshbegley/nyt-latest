@@ -4,7 +4,7 @@ https://nytimes.com/2024/08/01/us/politics/arizona-house-races-ciscomani-shah.ht
 
 **First Pass Friday: Why It Pays to Hang in There**\
 `Kate Chin Park offers a challenging puzzle.`\
-https://nytimes.com/2024/08/01/crosswords/first-pass-friday.html
+https://nytimes.com/2024/08/01/crosswords/daily-puzzle-2024-08-02.html
 
 **Harris Begins Final Phase of Accelerated V.P. Search**\
 `The formal vetting process is finished, and the first major decision of Vice President Kamala Harris’s presidential campaign is just days away.`\
