@@ -1,3 +1,11 @@
+**Mark Robinson tries to reframe his strict anti-abortion position in a new ad.**\
+`Mr. Robinson, the Republican nominee for governor in North Carolina who has called for a near-total abortion ban, spoke of his wife having an abortion decades ago and signaled his support for the state’s current 12-week ban.`\
+https://nytimes.com/live/2024/08/02/us/harris-trump-election/mark-robinson-abortion-north-carolina
+
+**Broncos WR Tim Patrick details long climb of past two years: 'It's never been easy'**\
+`Patrick is back on the field after missing the past two seasons following camp injuries, striving to be "a better version of myself."`\
+https://nytimes.com/athletic/5677227/2024/08/02/tim-patrick-broncos-training-camp/
+
 **Yvonne Furneaux, Cosmopolitan Actress in ‘La Dolce Vita,’ Dies at 98**\
 `An Oxford graduate who spoke five languages, she had an early career as a siren before finding critical acclaim in masterworks by Federico Fellini and Roman Polanski.`\
 https://nytimes.com/2024/08/02/movies/yvonne-furneaux-dead.html
