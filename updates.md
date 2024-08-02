@@ -1,3 +1,15 @@
+**The Harris Electorate**\
+`We examine who plans to vote for her.`\
+https://nytimes.com/2024/08/02/briefing/the-harris-electorate.html
+
+**What to See at the Edinburgh Fringe**\
+`Previous editions of the performing arts event launched shows like “Baby Reindeer” and “Fleabag.” Maybe there’s another breakout hit among this year’s more than 3,300 shows.`\
+https://nytimes.com/2024/08/02/theater/edinburgh-fringe-what-to-see.html
+
+**Why tough Alabama kicker Will Reichard was the guy the Vikings simply couldn't pass up**\
+`Reichard has the makeup to be everything Vikings kickers haven't been: consistent, clutch and reliable. He has his late father to thank.`\
+https://nytimes.com/athletic/5675487/2024/08/02/will-reichard-vikings-alabama/
+
 **Immigration is a wild card, making job numbers harder to parse.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/08/02/business/jobs-report-july/jobs-report-immigration
