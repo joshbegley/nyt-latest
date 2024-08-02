@@ -1,3 +1,7 @@
+**U.S. men out of Olympic soccer competition after 4-0 defeat by Morocco**\
+`How the U.S. men fared in their first Olympic soccer quarterfinal match in 24 years.`\
+https://nytimes.com/athletic/5676428/2024/08/02/us-men-morocco-olympic-soccer-quarterfinal/
+
 **MLB bullpen report: Trade deadline fallout, Paul Sewald's struggles persist and more**\
 `Greg Jewett runs through the MLB trade deadline bullpen fallout, illustrates the struggles of Arizona closer Paul Sewald and more.`\
 https://nytimes.com/athletic/5676639/2024/08/02/fantasy-baseball-bullpen-report-trade-deadline-paul-sewald/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/30/opinion/thepoint/krugman-jobs-fed
 **Families of Hostages Despair as Hopes for Imminent Peace Deal Fade**\
 `The recent assassination of Ismail Haniyeh, the leader of Hamas’s political branch, halted negotiations for a cease-fire that would bring home the hostages held in Gaza.`\
 https://nytimes.com/2024/08/02/world/middleeast/israel-hamas-hostage-release-deal.html
-
-**Three simple reasons why the 2024 Giants have underperformed**\
-`The Giants are five games behind San Diego, who are in an enviable position. Three disappointing individual years have been the difference.`\
-https://nytimes.com/athletic/5675861/2024/08/02/three-simple-reasons-why-the-2024-giants-have-underperformed/
 

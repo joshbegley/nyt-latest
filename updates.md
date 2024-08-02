@@ -1,3 +1,7 @@
+**U.S. men out of Olympic soccer competition after 4-0 defeat by Morocco**\
+`How the U.S. men fared in their first Olympic soccer quarterfinal match in 24 years.`\
+https://nytimes.com/athletic/5676428/2024/08/02/us-men-morocco-olympic-soccer-quarterfinal/
+
 **MLB bullpen report: Trade deadline fallout, Paul Sewald's struggles persist and more**\
 `Greg Jewett runs through the MLB trade deadline bullpen fallout, illustrates the struggles of Arizona closer Paul Sewald and more.`\
 https://nytimes.com/athletic/5676639/2024/08/02/fantasy-baseball-bullpen-report-trade-deadline-paul-sewald/
