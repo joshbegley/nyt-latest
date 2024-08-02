@@ -1,3 +1,19 @@
+**Judge Awards Schiele Drawing to Heirs of Merchant Killed by the Nazis**\
+`The drawing of Schiele’s wife was the focus of a trial at which three parties, all with Jewish roots, argued whether it had been looted by the Nazis and from whom.`\
+https://nytimes.com/2024/08/02/arts/egon-schiele-drawing-heirs.html
+
+**Secret Service Chief Admits Lack of Certainty on Sniper Locations at Trump Rally**\
+`The location of local snipers when Donald Trump was shot has become a point of deep dispute, with local officials suggesting that the Secret Service is trying to shift blame.`\
+https://nytimes.com/2024/08/02/us/politics/secret-service-trump-assassination-attempt.html
+
+**Raiders training camp: Rookies DJ Glaze and Dylan Laube opening some eyes**\
+`Glaze has been holding his own against Raiders star Maxx Crosby, while Laube is seeing some first- and second-team reps. `\
+https://nytimes.com/athletic/5677363/2024/08/02/raiders-training-camp-dj-glaze-dylan-laube/
+
+**Prisoner Deals Stoke Fears of Perverse ‘Incentive’ to Grab Americans**\
+`Hostile governments like Russia and Iran are often involved, and practical alternatives are hard to come by, experts say.`\
+https://nytimes.com/2024/08/02/us/politics/prisoner-deals-russia.html
+
 **The Veepstakes (Pennsylvania’s Version)**\
 `The question of whether Josh Shapiro can deliver the biggest, baddest swing state is complicated.`\
 https://nytimes.com/2024/08/02/us/politics/harris-vp-shapiro.html

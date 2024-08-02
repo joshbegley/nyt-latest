@@ -1,3 +1,19 @@
+**Judge Awards Schiele Drawing to Heirs of Merchant Killed by the Nazis**\
+`The drawing of Schiele’s wife was the focus of a trial at which three parties, all with Jewish roots, argued whether it had been looted by the Nazis and from whom.`\
+https://nytimes.com/2024/08/02/arts/egon-schiele-drawing-heirs.html
+
+**Secret Service Chief Admits Lack of Certainty on Sniper Locations at Trump Rally**\
+`The location of local snipers when Donald Trump was shot has become a point of deep dispute, with local officials suggesting that the Secret Service is trying to shift blame.`\
+https://nytimes.com/2024/08/02/us/politics/secret-service-trump-assassination-attempt.html
+
+**Raiders training camp: Rookies DJ Glaze and Dylan Laube opening some eyes**\
+`Glaze has been holding his own against Raiders star Maxx Crosby, while Laube is seeing some first- and second-team reps. `\
+https://nytimes.com/athletic/5677363/2024/08/02/raiders-training-camp-dj-glaze-dylan-laube/
+
+**Prisoner Deals Stoke Fears of Perverse ‘Incentive’ to Grab Americans**\
+`Hostile governments like Russia and Iran are often involved, and practical alternatives are hard to come by, experts say.`\
+https://nytimes.com/2024/08/02/us/politics/prisoner-deals-russia.html
+
 **The Veepstakes (Pennsylvania’s Version)**\
 `The question of whether Josh Shapiro can deliver the biggest, baddest swing state is complicated.`\
 https://nytimes.com/2024/08/02/us/politics/harris-vp-shapiro.html
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2024/08/02/world/olympics/paris-olympics-best-ph
 **Mark Robinson tries to reframe his strict anti-abortion position in a new ad.**\
 `Mr. Robinson, the Republican nominee for governor in North Carolina who has called for a near-total abortion ban, spoke of his wife having an abortion decades ago and signaled his support for the state’s current 12-week ban.`\
 https://nytimes.com/live/2024/08/02/us/harris-trump-election/mark-robinson-abortion-north-carolina
-
-**'It's never been easy': Broncos WR Tim Patrick details long climb of past 2 years**\
-`Patrick is back on the field after missing the past two seasons following camp injuries, striving to be "a better version" of himself.`\
-https://nytimes.com/athletic/5677227/2024/08/02/tim-patrick-broncos-training-camp/
-
-**Yvonne Furneaux, Cosmopolitan Actress in ‘La Dolce Vita,’ Dies at 98**\
-`An Oxford graduate who spoke five languages, she had an early career as a siren before finding critical acclaim in masterworks by Federico Fellini and Roman Polanski.`\
-https://nytimes.com/2024/08/02/movies/yvonne-furneaux-dead.html
-
-**Nottingham Forest in a 'good place' - Nuno**\
-`Nuno Espirito Santo says he is happy with Nottingham Forest’s progress on the pitch and in the transfer market — but wants to see the club continue their hard work on both fronts before the Premier League season kicks-off later this month.`\
-https://nytimes.com/athletic/5677326/2024/08/02/nuno-espirito-santo-forest-pre-season/
-
-**Lions tune up with scrimmage periods before joint practice with Giants**\
-`The Lions travel to New Jersey next week for joint practices and a preseason game against the Giants.`\
-https://nytimes.com/athletic/5677164/2024/08/02/detroit-lions-training-camp-joint-practice-giants/
 
