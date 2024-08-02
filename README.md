@@ -1,3 +1,7 @@
+**The U.S. is sending more combat aircraft to the Middle East, officials say.**\
+`By Eric Schmitt`\
+https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/the-us-is-sending-more-combat-aircraft-to-the-middle-east-officials-say
+
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/08/02/us/harris-trump-election/heres-the-latest-on-the-presidential-race
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/02/business/energy-environment/chevron-headquarters-
 **Hard Landing Concerns Jolt Global Markets**\
 `Investors are focusing on slowing U.S. economic growth as calls for the Fed to cut interest rates grow louder.`\
 https://nytimes.com/2024/08/02/business/dealbook/stocks-hard-landing-fed-rates.html
-
-**Team USA warns Puerto Rico: 'We want the No. 1 seed'**\
-`PARIS – The star players and coaches on the U.`\
-https://nytimes.com/athletic/5676332/2024/08/02/team-usa-olympics-basketball-seeding/
 
