@@ -1,3 +1,11 @@
+**5 Children’s Movies to Stream Now**\
+`This month’s picks include a new SpongeBob SquarePants adventure and an Oscar-nominated film from Cartoon Saloon.`\
+https://nytimes.com/2024/08/02/movies/5-childrens-movies-to-stream-now.html
+
+**Slovakian swimmer Potocka collapses after swimming heat**\
+`Slovakian swimmer Tamara Potocka had to receive medical care after appearing to collapse following a heat at the Paris Olympics.`\
+https://nytimes.com/athletic/5676242/2024/08/02/swimmer-collapse-olympics/
+
 **The Pulse: Yes, she's wearing a diamond goat necklace**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/5675937/2024/08/02/simone-biles-suni-lee-nfl-kickoffs-the-pulse/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5675577/2024/08/02/uswnt-olympics-alex-morgan-not-o
 `Teams around the league will have to contemplate how many big contracts they can realistically dedicate to just a few of their players.
 `\
 https://nytimes.com/athletic/5672621/2024/08/02/nhl-salary-cap-core-players/
-
-**The Secret Succession Fight That Will Determine the Future of Fox News**\
-`Rupert Murdoch is locked in a legal battle over the family’s media empire.`\
-https://nytimes.com/2024/08/02/podcasts/the-daily/foxnews-murdoch.html
-
-**A Major Prisoner Exchange, and U.S. Says Venezuelan Opposition Won**\
-`Plus, Simone Biles takes gold — again.`\
-https://nytimes.com/2024/08/02/podcasts/gershkovich-russia-prisoner-exchange-venezuala-election.html
 
