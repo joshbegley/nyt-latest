@@ -1,3 +1,7 @@
+**Alan Garber Will Stay On as Harvard’s President**\
+`Dr. Garber took over as interim president after Claudine Gay resigned in January. He will now serve as president through the 2026-27 academic year.`\
+https://nytimes.com/2024/08/02/us/harvard-president-alan-garber.html
+
 **Trump Uses Timeworn Tactic to Stoke Suspicion About Harris**\
 `Politicians have long cast their opponents as outsiders. But Donald J. Trump has taken the strategy to the next level against Kamala Harris.`\
 https://nytimes.com/2024/08/02/us/trump-tactic-suspicion-harris.html
@@ -22,7 +26,7 @@ https://nytimes.com/2024/08/02/arts/thomas-jolly-olympics-director-death-threats
 `The Justice Department said that TikTok illegally collected children’s data and knowingly allowed users under the age of 13 to create accounts.`\
 https://nytimes.com/2024/08/02/technology/tiktok-doj-child-privacy.html
 
-**Harris Has Votes Needed to Formally Be Nominee, D.N.C. Says**\
+**Harris Has Votes Needed to Be Democrats’ Nominee, D.N.C. Says**\
 `The party chair said she had won enough delegates to secure the nomination, setting up Kamala Harris to become the first Black woman and person of South Asian heritage to earn the top spot on a major political ticket for president.`\
 https://nytimes.com/2024/08/02/us/politics/kamala-harris-democrats-nominee-official.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/02/us/politics/jd-vance-new-right-economics.html
 **Senior U.S. Diplomat Will Lead Kamala Harris’s Running Mate’s Team**\
 `Elizabeth M. Allen, who heads the State Department’s public diplomacy office, served as a top aide to Ms. Harris in 2020 and in the Obama White House.`\
 https://nytimes.com/2024/08/02/us/politics/elizabeth-allen-kamala-harris-campaign.html
-
-**An Autocrat’s Tool Backfires in Venezuela**\
-`Nicolás Maduro claimed victory in his country’s election. But exit polls suggested the opposition leader won a landslide, setting off protests around the country.`\
-https://nytimes.com/2024/08/02/world/americas/an-autocrats-tool-backfires-in-venezuela.html
 

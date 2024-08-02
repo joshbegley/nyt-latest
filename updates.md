@@ -1,3 +1,11 @@
+**Alan Garber Will Stay On as Harvard’s President**\
+`Dr. Garber took over as interim president after Claudine Gay resigned in January. He will now serve as president through the 2026-27 academic year.`\
+https://nytimes.com/2024/08/02/us/harvard-president-alan-garber.html
+
+**Harris Has Votes Needed to Be Democrats’ Nominee, D.N.C. Says**\
+`The party chair said she had won enough delegates to secure the nomination, setting up Kamala Harris to become the first Black woman and person of South Asian heritage to earn the top spot on a major political ticket for president.`\
+https://nytimes.com/2024/08/02/us/politics/kamala-harris-democrats-nominee-official.html
+
 **Trump Uses Timeworn Tactic to Stoke Suspicion About Harris**\
 `Politicians have long cast their opponents as outsiders. But Donald J. Trump has taken the strategy to the next level against Kamala Harris.`\
 https://nytimes.com/2024/08/02/us/trump-tactic-suspicion-harris.html
