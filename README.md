@@ -6,7 +6,7 @@ https://nytimes.com/2024/08/02/arts/egon-schiele-drawing-heirs.html
 `The location of local snipers when Donald Trump was shot has become a point of deep dispute, with local officials suggesting that the Secret Service is trying to shift blame.`\
 https://nytimes.com/2024/08/02/us/politics/secret-service-trump-assassination-attempt.html
 
-**Raiders training camp: Rookies DJ Glaze and Dylan Laube opening some eyes**\
+**Raiders rookies DJ Glaze and Dylan Laube opening some eyes at training camp**\
 `Glaze has been holding his own against Raiders star Maxx Crosby, while Laube is seeing some first- and second-team reps. `\
 https://nytimes.com/athletic/5677363/2024/08/02/raiders-training-camp-dj-glaze-dylan-laube/
 
