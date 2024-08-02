@@ -1,3 +1,7 @@
+**Icon or Eyesore? Palm Springs to Move Divisive Marilyn Monroe Statue**\
+`A truce has been reached in a battle that pitted admirers of the city’s art museum against fans of a giant outdoor Marilyn Monroe sculpture.`\
+https://nytimes.com/2024/08/02/arts/design/marilyn-monroe-statue-palm-springs.html
+
 **Paris mayor supports Olympics opening ceremony director after death threats**\
 `The mayor of Paris has offered her &#8220;unwavering support&#8221; to the artistic director behind the Olympics opening ceremony after he was subjected to harassment online including death threats.`\
 https://nytimes.com/athletic/5676626/2024/08/02/paris-olympics-opening-ceremony-criticism/

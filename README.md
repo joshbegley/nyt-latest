@@ -1,3 +1,15 @@
+**Protesting Hunger, Nigerians Warn, ‘Life Cannot Continue Like This’**\
+`Thousands turned out across Africa’s most populous country despite government attempts to prevent them. Demonstrations have left at least 13 people dead, Amnesty International says.`\
+https://nytimes.com/2024/08/02/world/africa/nigeria-protest-end-bad-governance.html
+
+**Scoop City: How'd the new kickoff look?**\
+`Takeaways from the Hall of Fame game and more in today's NFL newsletter.`\
+https://nytimes.com/athletic/5676907/2024/08/02/hall-of-fame-game-takeaways-scoop-city/
+
+**Sarah Jessica Parker on Her Life in Publishing**\
+`Since 2016, the renowned actress has also worked in publishing, bringing her name and love of books to imprints at two companies. In this episode, she discusses what that work has meant to her.`\
+https://nytimes.com/2024/08/02/books/review/podcast-sarah-jessica-parker.html
+
 **Icon or Eyesore? Palm Springs to Move Divisive Marilyn Monroe Statue**\
 `A truce has been reached in a battle that pitted admirers of the city’s art museum against fans of a giant outdoor Marilyn Monroe sculpture.`\
 https://nytimes.com/2024/08/02/arts/design/marilyn-monroe-statue-palm-springs.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/02/arts/manfred-kirchheimer-dead.html
 **Meet Félix Lebrun, France's 17-year-old table tennis Olympic medal hopeful**\
 `Léon Marchand and Teddy Riner aren't the only French stars at these Games. Don't forget about Félix Lebrun, 17-year-old table tennis ace.`\
 https://nytimes.com/athletic/5676134/2024/08/02/felix-lebrun-olympics-table-tennis-france/
-
-**Israel and Turkey spar as Erdogan declares a day of mourning for Haniyeh.**\
-`By Safak Timur`\
-https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/israel-and-turkey-spar-as-erdogan-declares-a-day-of-mourning-for-haniyeh
-
-**Jorgensen to battle Sanchez for Chelsea No 1 spot**\
-`Filip Jorgensen says he is ready to battle Robert Sanchez to be the first choice goalkeeper at Chelsea.`\
-https://nytimes.com/athletic/5676740/2024/08/02/filip-jorgensen-chelsea-sanchez/
-
-**5.25%**\
-`The Federal Reserve left interest rates at a two-decade high, but all the attention was on what it will do next.`\
-https://nytimes.com/2024/08/02/business/5-25-fed-interest-rates.html
 
