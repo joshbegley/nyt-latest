@@ -1,3 +1,7 @@
+**Ancelotti says Real Madrid likely his last club job**\
+`Carlo Ancelotti says it is likely Real Madrid will be his last job in club management.`\
+https://nytimes.com/athletic/5676505/2024/08/02/carlo-ancelotti-real-madrid-club-future/
+
 **The quirky stories that define Stephen Nedoroscik, Team USA's pommel horse hero**\
 `“Men’s gymnastics needed Stephen," said Matt Carbone, the owner of Nedoroscik's hometown gym.`\
 https://nytimes.com/athletic/5675559/2024/08/02/stephen-nedoroscik-usa-gymnastics-olympics-penn-state-pommel-horse/
@@ -22,6 +26,10 @@ https://nytimes.com/athletic/5676498/2024/08/02/carlos-alcaraz-auger-aliassime-o
 `Vadim Krasikov, who was returned to Russia in the big prisoner swap, received a hero’s welcome from President Putin, along with others who were freed.`\
 https://nytimes.com/2024/08/02/world/europe/vadim-krasikov-assassin-russia-fsb.html
 
+**Why Gallagher is nearing Chelsea exit: Shorter contract offers and concerns over free move**\
+`Conor Gallagher is on the cusp of leaving Chelsea for Atletico Madrid — this is how his impending exit came about`\
+https://nytimes.com/athletic/5671384/2024/08/02/conor-gallagher-chelsea-atletico-madrid-transfer/
+
 **Emile Smith Rowe's move from Arsenal to Fulham: Frustration, new beginnings and hope**\
 `The England international is leaving his boyhood club and crossing London for a new start`\
 https://nytimes.com/athletic/5674149/2024/08/02/emile-smith-rowe-fulham-arsenal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5674149/2024/08/02/emile-smith-rowe-fulham-arsenal/
 **Smith Rowe completes Fulham move**\
 `Emile Smith Rowe has completed his move from Arsenal to Fulham.`\
 https://nytimes.com/athletic/5657662/2024/08/02/emile-smith-rowe-fulham-arsenal-transfer/
-
-**Summer Reading Contest, Week 9: What Got Your Attention in The Times This Week?**\
-`To participate, submit your response here by Aug. 9 at 9 a.m. Eastern. This week’s winners will be announced by Aug. 21.`\
-https://nytimes.com/2024/08/02/learning/summer-reading-contest-week-9-what-got-your-attention-in-the-times-this-week.html
-
-**A Mortgage Alternative for Lower-Priced Homes Comes With Risks**\
-`Seller-financed loans known as “land contracts” don’t involve a bank and lack the consumer protections available with traditional home loans.`\
-https://nytimes.com/2024/08/02/your-money/mortage-housing-land-contracts.html
 

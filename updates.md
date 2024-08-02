@@ -1,3 +1,11 @@
+**Ancelotti says Real Madrid likely his last club job**\
+`Carlo Ancelotti says it is likely Real Madrid will be his last job in club management.`\
+https://nytimes.com/athletic/5676505/2024/08/02/carlo-ancelotti-real-madrid-club-future/
+
+**Why Gallagher is nearing Chelsea exit: Shorter contract offers and concerns over free move**\
+`Conor Gallagher is on the cusp of leaving Chelsea for Atletico Madrid — this is how his impending exit came about`\
+https://nytimes.com/athletic/5671384/2024/08/02/conor-gallagher-chelsea-atletico-madrid-transfer/
+
 **Hayes defends lack of USWNT rotation, says Davidson and Shaw could be fit for Olympic quarterfinal**\
 `Shaw has yet to feature at the Games, while Davidson missed the final group match against Australia`\
 https://nytimes.com/athletic/5676539/2024/08/02/uswnt-davidson-shaw-hayes-olympics/
