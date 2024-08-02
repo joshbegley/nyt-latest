@@ -7,7 +7,7 @@ https://nytimes.com/live/2024/08/02/us/harris-trump-election/kamala-harris-david
 https://nytimes.com/2024/08/02/world/europe/iceland-president-halla-tomasdottir.html
 
 **Delaware Judge Questions Tesla About Vote on Elon Musk’s Tesla Pay**\
-`Lawyers for Tesla have asked a Delaware judge to reverse her decision to void a multibillion dollar pay package for Mr. Musk after shareholders approved it a second time in June.`\
+`Lawyers for Tesla have asked a Delaware judge to reverse her decision to void a multibillion-dollar pay package for Mr. Musk after shareholders approved it a second time in June.`\
 https://nytimes.com/2024/08/02/business/elon-musk-pay-delaware.html
 
 **Reflections About the Prisoner Swap**\
