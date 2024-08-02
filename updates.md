@@ -1,3 +1,11 @@
+**AnAutocrat’sTool Backfires in Venezuela**\
+`Nicolás Maduro claimed victory in his country’s election. But exit polls suggested the opposition leader won a landslide, setting off  protests around the country.`\
+https://nytimes.com/2024/08/02/world/americas/an-autocrats-tool-backfires-in-venezuela.html
+
+**Swiatek wins Olympic bronze after gold medal heartbreak**\
+`PARIS — Iga Swiatek, the world No.`\
+https://nytimes.com/athletic/5676910/2024/08/02/iga-swiatek-olympics/
+
 **Kentucky football to vacate games, serve probation via resolution with NCAA**\
 `At least 11 football players received payment for work not performed between spring 2021 and March 2022, the school and NCAA agreed.`\
 https://nytimes.com/athletic/5676944/2024/08/02/kentucky-football-vacated-games-ncaa-investigation/
