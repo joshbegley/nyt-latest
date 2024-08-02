@@ -1,3 +1,7 @@
+**Paris mayor supports Olympics opening ceremony director after death threats**\
+`The mayor of Paris has offered her &#8220;unwavering support&#8221; to the artistic director behind the Olympics opening ceremony after he was subjected to harassment online including death threats.`\
+https://nytimes.com/athletic/5676626/2024/08/02/paris-olympics-opening-ceremony-criticism/
+
 **See Where Countersnipers Could Have Stopped the Trump Rally Gunman**\
 `Where countersnipers were stationed — and where they were not — has emerged as a point of contention in assessing lapses that failed to prevent an assassination attempt.`\
 https://nytimes.com/interactive/2024/08/02/us/trump-shooting-crooks-snipers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/02/business/5-25-fed-interest-rates.html
 **Submit your Mets questions for the Tim Britton and Will Sammon mailbag**\
 `Submit your Mets questions for the Tim Britton and Will Sammon mailbag.`\
 https://nytimes.com/athletic/5676831/2024/08/02/mets-mlb-questions/
-
-**Orioles calling up prospect Coby Mayo for major-league debut: Source**\
-`Mayo, the No. 18 prospect in the game, will be promoted Friday by the Orioles, a major-league source said. `\
-https://nytimes.com/athletic/5676778/2024/08/02/coby-mayo-orioles-prospect-promoted/
 
