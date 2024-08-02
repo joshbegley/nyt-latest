@@ -1,3 +1,7 @@
+**Joe Gomez's future at Liverpool remains in the balance after Newcastle approach**\
+`The centre-back came up as an option in a potential swap deal involving Anthony Gordon. Will he seek another Anfield exit route?`\
+https://nytimes.com/athletic/5675357/2024/08/02/joe-gomez-liverpool-newcastle-anthony-gordon-transfer/
+
 **Hamas Leader’s Funeral Comes Amid Fears His Killing May Block Cease-Fire Deal**\
 `Few Palestinians appeared to heed Hamas’s call for a “day of anger” to condemn the killing of Ismail Haniyeh and Israel’s bombardment of the enclave.`\
 https://nytimes.com/2024/08/02/world/middleeast/israel-hamas-haniyeh-funeral-qatar.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/02/world/olympics/leon-marchand-gold-medals.html
 **Gary Patterson no longer with Baylor after offseason as Dave Aranda consultant**\
 `Aranda brought Patterson on to bolster his Baylor staff amid significant changes within the program after consecutive losing seasons.`\
 https://nytimes.com/athletic/5677225/2024/08/02/gary-patterson-baylor-dave-aranda/
-
-**Harris’s brother-in-law, Uber’s chief lawyer, is taking a leave to advise her.**\
-`By Noam Scheiber, Kate Kelly and Kenneth P. Vogel`\
-https://nytimes.com/live/2024/08/02/us/harris-trump-election/harriss-brother-in-law-ubers-chief-lawyer-is-taking-a-leave-to-join-her-campaign
 
