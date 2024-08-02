@@ -1,3 +1,7 @@
+**Inside the sales pitch that took Liverpool and Manchester United to a U.S. college town**\
+`On Saturday evening, Columbia, with a population of less than 140,000, will host one of the sport's most famous rivalries`\
+https://nytimes.com/athletic/5672598/2024/08/02/liverpool-manchester-united-columbia-match/
+
 **Inside Arsenal's U.S. tour: Calafiori scramble, 'young vs old' table tennis - and Justin Bieber**\
 `American trip combined intense training, off-field bonding and celebrity spotting... as well as vital transfer business`\
 https://nytimes.com/athletic/5674448/2024/08/02/arsenal-us-tour-calafiori-scramble-young-v-old-table-tennis-and-justin-bieber/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5675542/2024/08/02/fantasy-football-mailbag-2024-ti
 **After Two Weeks of Dating, Committed to Being by Each Other’s Side**\
 `Julia Liverton and Marco Santarlasci instantly clicked after meeting two years ago, and each knew after just a few months that they wanted to marry.`\
 https://nytimes.com/2024/08/02/style/julia-liverton-marco-santarlasci-wedding.html
-
-**Quote of the Day: What Can a City Do When Neo-Nazis March Its Streets?**\
-`Quotation of the Day for Friday, August 2, 2024.`\
-https://nytimes.com/2024/08/02/pageoneplus/quote-of-the-day-what-can-a-city-do-when-neo-nazis-march-its-streets.html
 
