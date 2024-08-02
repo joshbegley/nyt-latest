@@ -1,3 +1,7 @@
+**White Supremacist Gang Leader Among Three Killed in Fight at Nevada Prison**\
+`Nine prisoners were also injured in the fight on Tuesday, the Nevada Department of Corrections said.`\
+https://nytimes.com/2024/08/01/us/prison-fight-nevada-white-supremacist.html
+
 **Behind the Deal: Spies, a Killer, Secret Messages and Unseen Diplomacy**\
 `The negotiations that led to the prisoner swap and the freeing of Americans wrongfully held in Russia required patience and creativity, but gave both sides what they wanted most.`\
 https://nytimes.com/2024/08/01/us/politics/diplomacy-prisoner-swap-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/congressional-
 **2 Officers Shot on Lower East Side in Street Chase of Robbery Suspect**\
 `One officer was shot in the leg and the other in the groin after they responded to a report of an armed robbery at a mahjong parlor. Both are in stable condition.`\
 https://nytimes.com/2024/08/01/nyregion/shooting-nypd-robbery-manhattan.html
-
-**Trump Remarks on Harris’s Multiracial Identity Overlook a Growing Trend**\
-`Demographers say that a growing number of Americans identify as more than one race, and that the number will continue expanding in the decades ahead.`\
-https://nytimes.com/2024/08/01/us/trump-harris-black-asian-race.html
 
