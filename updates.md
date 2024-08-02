@@ -1,3 +1,11 @@
+**Three simple reasons why the 2024 Giants have underperformed**\
+`The Giants are five games behind San Diego, who are in an enviable position. Three disappointing individual years have been the difference.`\
+https://nytimes.com/athletic/5675861/2024/08/02/three-simple-reasons-why-the-2024-giants-have-underperformed/
+
+**Man Utd sign Sweden international Sandberg**\
+`Manchester United Women have completed the signing of Sweden defender Anna Sandberg from BK Hacken.`\
+https://nytimes.com/athletic/5676624/2024/08/02/anna-sandberg-manchester-united-transfer/
+
 **Flavor Flav helps Olympic discus thrower pay rent**\
 `U.S. discus thrower Veronica Fraley said she couldn't pay rent, so Flavor Flav and Alexis Ohanian started a wave of donations.`\
 https://nytimes.com/athletic/5676456/2024/08/02/veronica-fraley-flavor-flav-alexis-ohanian-olympics-rent/
