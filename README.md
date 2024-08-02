@@ -1,3 +1,7 @@
+**Word of the Day: defamatory**\
+`This word has appeared in 73 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/02/learning/word-of-the-day-defamatory.html
+
 **Friday Briefing**\
 `A sweeping prisoner swap between Russia and the West.`\
 https://nytimes.com/2024/08/02/briefing/prisoners-russia-biden-maduro-olympics.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5674448/2024/08/02/arsenal-us-tour-calafiori-scramb
 **Not a 'typical sprinter' but Louie Hincliffe is Team GB's surprise 100m hope at the Olympics**\
 `The Sheffield sprinter being coached by Carl Lewis is quiet, unassuming and ready to take Paris by storm`\
 https://nytimes.com/athletic/5641221/2024/08/02/louie-hinchliffe-team-gb-olympics/
-
-**Son Heung-min and Tottenham's popularity in South Korea won't decline anytime soon**\
-`Son is still cherished in his homeland, but it is not a 'mania'. His face doesn't peer out from every billboard. The dynamic is more sincere`\
-https://nytimes.com/athletic/5674470/2024/08/02/son-heung-min-south-korea-tottenham/
 
