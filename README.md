@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5676944/2024/08/02/kentucky-football-vacated-games-
 `Angela Carini of Italy doesn&#8217;t like how the conversation about Olympic women&#8217;s boxing has turned.`\
 https://nytimes.com/athletic/5676796/2024/08/02/olympics-women-boxing-angela-carini-apologizes-imane-khelif/
 
-**Swiatek 'cried for three days' after Olympic heartbreak**\
+**Swiatek wins Olympic bronze after gold medal heartbreak**\
 `PARIS — Iga Swiatek, the world No.`\
 https://nytimes.com/athletic/5676910/2024/08/02/iga-swiatek-olympics/
 
