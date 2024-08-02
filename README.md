@@ -1,3 +1,11 @@
+**Mark Robinson tries to reframe his strict anti-abortion position in a new ad.**\
+`Mr. Robinson, the Republican nominee for governor in North Carolina who has called for a near-total abortion ban, spoke of his wife having an abortion decades ago and signaled his support for the state’s current 12-week ban.`\
+https://nytimes.com/live/2024/08/02/us/harris-trump-election/mark-robinson-abortion-north-carolina
+
+**Broncos WR Tim Patrick details long climb of past two years: 'It's never been easy'**\
+`Patrick is back on the field after missing the past two seasons following camp injuries, striving to be "a better version of myself."`\
+https://nytimes.com/athletic/5677227/2024/08/02/tim-patrick-broncos-training-camp/
+
 **Yvonne Furneaux, Cosmopolitan Actress in ‘La Dolce Vita,’ Dies at 98**\
 `An Oxford graduate who spoke five languages, she had an early career as a siren before finding critical acclaim in masterworks by Federico Fellini and Roman Polanski.`\
 https://nytimes.com/2024/08/02/movies/yvonne-furneaux-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/israe
 **Germany Grapples With ‘Difficult Decision’ in Prisoner Swap**\
 `By releasing a convicted assassin, Germany played a critical role in securing the freedom of 16 people held in Russia. But the decision has raised questions about political influence in legal cases.`\
 https://nytimes.com/2024/08/02/world/europe/russia-putin-germany-prison-swap-krasikov-gershkovich.html
-
-**Silver says NBA could soon expand to Europe**\
-`Adam Silver said Friday that the NBA is considering its next move. `\
-https://nytimes.com/athletic/5676839/2024/08/02/nba-expansion-commissioner-adam-silver-europe/
-
-**Harris Won Enough Votes to Be the Democratic Nominee**\
-`Also, the Middle East is on edge as Israel braces for retaliation. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/08/02/briefing/harris-democratic-nominee-middle-east-israel.html
 
