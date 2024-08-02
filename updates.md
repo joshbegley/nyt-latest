@@ -1,3 +1,11 @@
+**The U.K. Riots Were Fomented Online. Will Social Media Companies Act?**\
+`Prime Minister Keir Starmer called out social media groups for the misinformation on their platforms that sparked violent clashes this week. But holding them accountable is tough.`\
+https://nytimes.com/2024/08/02/business/uk-riots-social-media.html
+
+**U.S. men out of Olympic soccer competition after 4-0 defeat by Morocco**\
+`How the U.S. men fared in their first Olympic soccer quarterfinal match in 24 years`\
+https://nytimes.com/athletic/5676428/2024/08/02/us-men-morocco-olympic-soccer-quarterfinal/
+
 **Olympic Champion Simone Biles Posted on Social Media That She Loves her ‘Black Job’**\
 `Biles is only the third woman gymnast to win the all-around competition twice at the Olympics.`\
 https://nytimes.com/2024/08/02/us/politics/simone-biles-black-job-trump.html

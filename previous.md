@@ -1,3 +1,7 @@
+**The U.K. Riots Were Fomented Online. Will Social Media Companies Act?**\
+`Prime Minister Keir Starmer called out social media groups for the misinformation on their platforms that sparked violent clashes this week. But holding them accountable is tough.`\
+https://nytimes.com/2024/08/02/business/uk-riots-social-media.html
+
 **Malacia out for two more months with knee injury - Ten Hag**\
 `Manchester United left-back Tyrell Malacia is set to remain on the sidelines for another two months, according to manager Erik ten Hag.`\
 https://nytimes.com/athletic/5676772/2024/08/02/tyrell-malacia-injury-man-utd/
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/5676770/2024/08/02/mike-trout-injury-the-windup/
 https://nytimes.com/athletic/5676712/2024/08/02/ny-rangers-prospects/
 
 **U.S. men out of Olympic soccer competition after 4-0 defeat by Morocco**\
-`How the U.S. men fared in their first Olympic soccer quarterfinal match in 24 years.`\
+`How the U.S. men fared in their first Olympic soccer quarterfinal match in 24 years`\
 https://nytimes.com/athletic/5676428/2024/08/02/us-men-morocco-olympic-soccer-quarterfinal/
 
 **MLB bullpen report: Trade deadline fallout, Paul Sewald's struggles persist and more**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/02/business/economy/stocks-drop-economy-jobs.html
 **Billie Eilish Joins Charli XCX’s Brat Summer, and 10 More New Songs**\
 `Hear tracks by MJ Lenderman, Miranda Lambert, ASAP Rocky featuring Jessica Pratt and others.`\
 https://nytimes.com/2024/08/02/arts/music/playlist-charli-xcx-billie-eilish-guess.html
-
-**Postecoglou opens door to Spence staying at Spurs**\
-`Tottenham Hotspur head coach Ange Postecoglou has given Djed Spence hope of having a future at the club.`\
-https://nytimes.com/athletic/5676284/2024/08/02/djed-spence-tottenham-future-postecoglou/
 
