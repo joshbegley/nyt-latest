@@ -1,7 +1,3 @@
-**A One-Man Team’s 10-Second Olympics**\
-`Winzar Kakiouea, a 100-meter runner, is the only competitor at the Paris Games from his Pacific island nation. His debut might be over in a flash.`\
-https://nytimes.com/2024/08/02/world/olympics/winzar-kaklouea-nauru-track.html
-
 **Man United submit opening offer for De Ligt and Mazraoui**\
 `Manchester United have submitted an opening double offer to sign Matthijs de Ligt and Noussair Mazraoui from Bayern Munich.`\
 https://nytimes.com/athletic/5676135/2024/08/02/man-utd-transfers-de-ligt-mazraoui/
@@ -37,4 +33,8 @@ https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/heres
 **6 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about. (Though one missing movie, “Trap,” was not screened early for critics.)`\
 https://nytimes.com/2024/08/02/movies/new-movies-this-week-critics.html
+
+**Hamas Leader Mourned in Qatar With Middle East on Edge**\
+`Mourners were gathering for the funeral of Ismail Haniyeh, the political leader of Hamas who was assassinated earlier this week. President Biden expressed deep concern about the situation in the region, and called on Israel to agree to a cease-fire in Gaza.`\
+https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza
 
