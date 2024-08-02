@@ -1,3 +1,7 @@
+**Emile Smith Rowe to Fulham: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Emile Smith Rowe's move from Arsenal to Fulham.`\
+https://nytimes.com/athletic/5644989/2024/08/02/emile-smith-rowe-to-fulham-transfer-ratings/
+
 **As the World Looks Elsewhere, Famine Descends on Darfur**\
 `There is little interest in stopping the civil war that is preventing delivery of food aid.`\
 https://nytimes.com/live/2024/07/30/opinion/thepoint/famine-darfur-civil-war
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/02/world/europe/vadim-krasikov-assassin-russia-fsb.h
 **Why Gallagher is nearing Chelsea exit: Shorter contract offers and concerns over free move**\
 `Conor Gallagher is on the cusp of leaving Chelsea for Atletico Madrid — this is how his impending exit came about`\
 https://nytimes.com/athletic/5671384/2024/08/02/conor-gallagher-chelsea-atletico-madrid-transfer/
-
-**Emile Smith Rowe's move from Arsenal to Fulham: Frustration, new beginnings and hope**\
-`The England international is leaving his boyhood club and crossing London for a new start`\
-https://nytimes.com/athletic/5674149/2024/08/02/emile-smith-rowe-fulham-arsenal/
 

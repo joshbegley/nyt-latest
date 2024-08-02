@@ -1,3 +1,7 @@
+**Emile Smith Rowe to Fulham: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Emile Smith Rowe's move from Arsenal to Fulham.`\
+https://nytimes.com/athletic/5644989/2024/08/02/emile-smith-rowe-to-fulham-transfer-ratings/
+
 **As the World Looks Elsewhere, Famine Descends on Darfur**\
 `There is little interest in stopping the civil war that is preventing delivery of food aid.`\
 https://nytimes.com/live/2024/07/30/opinion/thepoint/famine-darfur-civil-war
