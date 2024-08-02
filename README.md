@@ -1,3 +1,11 @@
+**Vitor Roque at Barcelona: What's gone wrong with €30m striker they rushed to sign?**\
+`Barcelona's 19-year-old Brazilian striker has struggled since landing in the city last December. What might the future hold?`\
+https://nytimes.com/athletic/5676162/2024/08/02/vitor-roque-barcelona-transfer-summer-flick-xavi/
+
+**Chevron Moves Its Headquarters to Houston From California**\
+`The oil company, which already has extensive operations in Texas, has often been at odds with California’s elected leaders over the state’s climate and energy policies.`\
+https://nytimes.com/2024/08/02/business/energy-environment/chevron-headquarters-houston.html
+
 **Hard Landing Concerns Jolt Global Markets**\
 `Investors are focusing on slowing U.S. economic growth as calls for the Fed to cut interest rates grow louder.`\
 https://nytimes.com/2024/08/02/business/dealbook/stocks-hard-landing-fed-rates.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5676106/2024/08/02/newcastle-japan-tour-why/
 **Q&A: Raiders offensive coordinator Luke Getsy dishes on QB battle, Brock Bowers & more**\
 `The Raiders' new OC thinks the QB competition will work itself out and likes his group of dynamic players. "We want teams to feel our film."`\
 https://nytimes.com/athletic/5675368/2024/08/02/luke-getsy-raiders-offense/
-
-**5 Children’s Movies to Stream Now**\
-`This month’s picks include a new SpongeBob SquarePants adventure and an Oscar-nominated film from Cartoon Saloon.`\
-https://nytimes.com/2024/08/02/movies/5-childrens-movies-to-stream-now.html
-
-**Slovakian swimmer Potocka collapses after swimming heat**\
-`Slovakian swimmer Tamara Potocka had to receive medical care after suffering an asthma attack following a heat at the Paris Olympics.`\
-https://nytimes.com/athletic/5676242/2024/08/02/swimmer-collapse-olympics/
 
