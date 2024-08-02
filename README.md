@@ -1,3 +1,7 @@
+**How to Watch the Summer Olympics in 4K**\
+`You can watch those handsprings in ultra high definition.`\
+https://nytimes.com/interactive/2024/08/02/smarter-living/wirecutter/watch-olympics-4k.html
+
 **Djokovic sets up gold-medal match with Alcaraz**\
 `There they go again.`\
 https://nytimes.com/athletic/5677127/2024/08/02/djokovic-alcaraz-olympic-gold/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/08/02/us/ae-628-declassified-version.html
 **Trump questioned the physical appearance of Native American business rivals in the 1990s.**\
 `The former president’s remarks this week about the racial identity of Vice President Kamala Harris recalled when he challenged the tribal recognition of a casino rival.`\
 https://nytimes.com/live/2024/08/02/us/harris-trump-election/trump-native-americans-indians
-
-**A ‘Love Activist’ D.J. Opened the Olympics. Then Came a Wave of Hate.**\
-`The French D.J. Barbara Butch wanted to deliver a message of peace in the opening ceremony, but ended up getting savaged online.`\
-https://nytimes.com/2024/08/02/arts/music/barbara-butch-olympics-opening-ceremony.html
 
