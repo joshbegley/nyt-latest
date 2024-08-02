@@ -1,3 +1,7 @@
+**As the World Looks Elsewhere, Famine Descends on Darfur**\
+`There is little interest in stopping the civil war that is preventing delivery of food aid.`\
+https://nytimes.com/2024/07/30/opinion/famine-darfur-civil-war.html
+
 **Families of Hostages Despair as Hopes for Imminent Peace Deal Fade**\
 `The recent assassination of Ismail Haniyeh, the leader of Hamas’s political branch, halted negotiations for a cease-fire that would bring home the hostages held in Gaza.`\
 https://nytimes.com/2024/08/02/world/middleeast/israel-hamas-hostage-release-deal.html

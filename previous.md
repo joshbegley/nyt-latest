@@ -28,7 +28,7 @@ https://nytimes.com/athletic/5644989/2024/08/02/emile-smith-rowe-to-fulham-trans
 
 **As the World Looks Elsewhere, Famine Descends on Darfur**\
 `There is little interest in stopping the civil war that is preventing delivery of food aid.`\
-https://nytimes.com/live/2024/07/30/opinion/thepoint/famine-darfur-civil-war
+https://nytimes.com/2024/07/30/opinion/famine-darfur-civil-war.html
 
 **Ancelotti says Real Madrid likely his last club job**\
 `Carlo Ancelotti says it is likely Real Madrid will be his last job in club management.`\
