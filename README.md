@@ -14,6 +14,10 @@ https://nytimes.com/athletic/5676539/2024/08/02/uswnt-davidson-shaw-hayes-olympi
 `The storm, which could become Tropical Storm Debby, is expected to bring significant amounts of rain to the coast.`\
 https://nytimes.com/2024/08/02/weather/florida-gulf-tropical-storm-state-emergency.html
 
+**Carlos Alcaraz annihilates Felix Auger-Aliassime to play for Olympic gold**\
+`Clay, grass, clay: the surface transition never really seen in tennis, until a succession of two Grand Slam tournaments and one Olympic Games in 2024.`\
+https://nytimes.com/athletic/5676498/2024/08/02/carlos-alcaraz-auger-aliassime-olympics-tennis/
+
 **Convicted Assassin Is a Russian Security Agent, Kremlin Acknowledges**\
 `Vadim Krasikov, who was returned to Russia in the big prisoner swap, received a hero’s welcome from President Putin, along with others who were freed.`\
 https://nytimes.com/2024/08/02/world/europe/vadim-krasikov-assassin-russia-fsb.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/02/learning/summer-reading-contest-week-9-what-got-y
 **A Mortgage Alternative for Lower-Priced Homes Comes With Risks**\
 `Seller-financed loans known as “land contracts” don’t involve a bank and lack the consumer protections available with traditional home loans.`\
 https://nytimes.com/2024/08/02/your-money/mortage-housing-land-contracts.html
-
-**Why You Should Be Taking a Hard Look at Your Investments Right Now**\
-`After big gains in stocks and mediocre returns for bonds, investors are taking on undue risk if they don’t rebalance their holdings, our columnist says.`\
-https://nytimes.com/2024/08/02/business/stocks-bonds-rebalancing-asset-allocation.html
 
