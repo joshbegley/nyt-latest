@@ -1,3 +1,11 @@
+**The U.S. is preparing to send more combat aircraft to the Middle East, officials say.**\
+`By Eric Schmitt`\
+https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/the-us-is-sending-more-combat-aircraft-to-the-middle-east-officials-say
+
+**Chevron, in Snub to California, to Move Its Headquarters to Houston**\
+`The oil company, which already has extensive operations in Texas, has often been at odds with California’s elected leaders over the state’s climate and energy policies.`\
+https://nytimes.com/2024/08/02/business/energy-environment/chevron-headquarters-houston.html
+
 **The U.S. is sending more combat aircraft to the Middle East, officials say.**\
 `By Eric Schmitt`\
 https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/the-us-is-sending-more-combat-aircraft-to-the-middle-east-officials-say

@@ -1,4 +1,4 @@
-**The U.S. is sending more combat aircraft to the Middle East, officials say.**\
+**The U.S. is preparing to send more combat aircraft to the Middle East, officials say.**\
 `By Eric Schmitt`\
 https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/the-us-is-sending-more-combat-aircraft-to-the-middle-east-officials-say
 
@@ -30,7 +30,7 @@ https://nytimes.com/live/2024/08/02/business/jobs-report-july/women-work-force-c
 `Barcelona's 19-year-old Brazilian striker has struggled since landing in the city last December. What might the future hold?`\
 https://nytimes.com/athletic/5676162/2024/08/02/vitor-roque-barcelona-transfer-summer-flick-xavi/
 
-**Chevron Moves Its Headquarters to Houston From California**\
+**Chevron, in Snub to California, to Move Its Headquarters to Houston**\
 `The oil company, which already has extensive operations in Texas, has often been at odds with California’s elected leaders over the state’s climate and energy policies.`\
 https://nytimes.com/2024/08/02/business/energy-environment/chevron-headquarters-houston.html
 
