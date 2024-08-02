@@ -1,3 +1,19 @@
+**Marchand wins gold in 200-meter IM, completes golden sweep in 4 events**\
+`Marchand joined Michael Phelps and Mark Spitz as the only men to win four individual gold medals in the same Games.`\
+https://nytimes.com/athletic/5676976/2024/08/02/leon-marchand-gold-200-meter-individual-medley-paris-olympics/
+
+**Joe Manchin Is Forcing an Agonizing Trade-Off on Climate Change**\
+`His bill moving through the Senate would deliver a win for both renewable energy and fossil fuels.`\
+https://nytimes.com/2024/08/02/opinion/joe-manchin-climate-change.html
+
+**Was I Wrong to Reveal That My Novel Was Inspired by an Adulterous Friend?**\
+`The magazine’s Ethicist columnist on character concerns, both in fiction and real life.`\
+https://nytimes.com/2024/08/02/magazine/novel-adulterous-friend-ethics.html
+
+**Haunting Image: First Photo Released of C.I.A. Prisoner at Black Site**\
+`Lawyers for a prisoner at Guantánamo Bay said the image emerged from a classification review that blacked out much of a legal brief.`\
+https://nytimes.com/2024/08/02/us/politics/cia-prisoner-photo-black-site.html
+
 **Justin Timberlake, on Tour, Beams Into Sag Harbor to Plead Not Guilty**\
 `The singer’s arrest and prosecution on a drunken-driving charge has drawn the curious to the Hamptons and supplied the internet with meme fodder.`\
 https://nytimes.com/2024/08/02/nyregion/justin-timberlake-dwi-hearing-sag-harbor.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/08/02/world/europe/iceland-president-halla-tomasdottir.
 **Delaware Judge Questions Tesla About Vote on Elon Musk’s Tesla Pay**\
 `Lawyers for Tesla have asked a Delaware judge to reverse her decision to void a multibillion-dollar pay package for Mr. Musk after shareholders approved it a second time in June.`\
 https://nytimes.com/2024/08/02/business/elon-musk-pay-delaware.html
-
-**Reflections About the Prisoner Swap**\
-`Readers worry about encouraging hostage-taking and speculate about Vladimir Putin’s thinking. Also: JD Vance; a female president; America at the Olympics.`\
-https://nytimes.com/2024/08/02/opinion/prisoner-swap-russia.html
-
-**'I cannot stop smiling': Giannis loving Olympic experience, especially after Greece wins**\
-`After Greece earned its first Olympic basketball win in 16 years, Antetokounmpo gushed about his time in Paris and representing his country.`\
-https://nytimes.com/athletic/5676856/2024/08/02/giannis-antetokounmpo-olympics-greece-paris-experience/
-
-**The National Sports Collectors Convention takeaways**\
-`Kids are flocking to the trading card hobby and industry experts are taking notice `\
-https://nytimes.com/athletic/5672022/2024/08/02/what-we-saw-and-heard-at-the-national-sports-collectors-convention-as-trading-card-boom-continues/
-
-**How Does Your State Make Electricity?**\
-`There’s been a big shift in how America produces power. Each state has its own story.`\
-https://nytimes.com/interactive/2024/08/02/climate/electricity-generation-us-states.html
 
