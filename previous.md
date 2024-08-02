@@ -1,3 +1,7 @@
+**Olympic Officials Defend Algerian’s Eligibility in Boxing Controversy**\
+`Online fury and unclear rules have left organizers of the women’s boxing competition in Paris facing complex questions about fairness in women’s sports.`\
+https://nytimes.com/2024/08/02/world/olympics/boxing-imane-khelif-gender-athletes.html
+
 **Emile Smith Rowe to Fulham: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Emile Smith Rowe's move from Arsenal to Fulham.`\
 https://nytimes.com/athletic/5644989/2024/08/02/emile-smith-rowe-to-fulham-transfer-ratings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5676498/2024/08/02/carlos-alcaraz-auger-aliassime-o
 **Convicted Assassin Is a Russian Security Agent, Kremlin Acknowledges**\
 `Vadim Krasikov, who was returned to Russia in the big prisoner swap, received a hero’s welcome from President Putin, along with others who were freed.`\
 https://nytimes.com/2024/08/02/world/europe/vadim-krasikov-assassin-russia-fsb.html
-
-**Why Gallagher is nearing Chelsea exit: Shorter contract offers and concerns over free move**\
-`Conor Gallagher is on the cusp of leaving Chelsea for Atletico Madrid — this is how his impending exit came about`\
-https://nytimes.com/athletic/5671384/2024/08/02/conor-gallagher-chelsea-atletico-madrid-transfer/
 

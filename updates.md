@@ -1,3 +1,7 @@
+**Olympic Officials Defend Algerian’s Eligibility in Boxing Controversy**\
+`Online fury and unclear rules have left organizers of the women’s boxing competition in Paris facing complex questions about fairness in women’s sports.`\
+https://nytimes.com/2024/08/02/world/olympics/boxing-imane-khelif-gender-athletes.html
+
 **Emile Smith Rowe to Fulham: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Emile Smith Rowe's move from Arsenal to Fulham.`\
 https://nytimes.com/athletic/5644989/2024/08/02/emile-smith-rowe-to-fulham-transfer-ratings/
