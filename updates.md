@@ -1,3 +1,7 @@
+**Wall Street’s Turbulent Week Ends With Stocks Falling**\
+`A weaker-than-expected jobs report added to investors’ worries about the economy. Stocks fell sharply, and Treasury yields declined in expectation of a Federal Reserve rate cut.`\
+https://nytimes.com/2024/08/02/business/economy/stocks-drop-economy-jobs.html
+
 **U.S. men out of Olympic soccer competition after 4-0 defeat by Morocco**\
 `How the U.S. men fared in their first Olympic soccer quarterfinal match in 24 years.`\
 https://nytimes.com/athletic/5676428/2024/08/02/us-men-morocco-olympic-soccer-quarterfinal/
