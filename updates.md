@@ -1,3 +1,7 @@
+**Hamas Leader’s Funeral Comes Amid Fears His Killing May Block Cease-Fire Deal**\
+`Few Palestinians appeared to heed Hamas’s call for a “day of anger” to condemn the killing of Ismail Haniyeh and Israel’s bombardment of the enclave.`\
+https://nytimes.com/2024/08/02/world/middleeast/israel-hamas-haniyeh-funeral-qatar.html
+
 **Israeli settlement activity has spiked over the last five years, E.U. reports.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/israeli-settlement-activity-has-spiked-over-the-last-five-years-eu-reports

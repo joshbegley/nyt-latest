@@ -1,3 +1,7 @@
+**Hamas Leader’s Funeral Comes Amid Fears His Killing May Block Cease-Fire Deal**\
+`Few Palestinians appeared to heed Hamas’s call for a “day of anger” to condemn the killing of Ismail Haniyeh and Israel’s bombardment of the enclave.`\
+https://nytimes.com/2024/08/02/world/middleeast/israel-hamas-haniyeh-funeral-qatar.html
+
 **Israeli settlement activity has spiked over the last five years, E.U. reports.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/israeli-settlement-activity-has-spiked-over-the-last-five-years-eu-reports
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5677225/2024/08/02/gary-patterson-baylor-dave-arand
 **Harris’s brother-in-law, Uber’s chief lawyer, is taking a leave to advise her.**\
 `By Noam Scheiber, Kate Kelly and Kenneth P. Vogel`\
 https://nytimes.com/live/2024/08/02/us/harris-trump-election/harriss-brother-in-law-ubers-chief-lawyer-is-taking-a-leave-to-join-her-campaign
-
-**Death of Black Man at Milwaukee Hyatt Is Ruled a Homicide**\
-`D’Vontaye Mitchell died after being held down by hotel staff members. An autopsy cited restraint asphyxia and the toxic effects of cocaine and methamphetamine as the cause of death.`\
-https://nytimes.com/2024/08/02/us/dvontaye-mitchell-homicide-death.html
 
