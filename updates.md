@@ -1,3 +1,7 @@
+**Team USA warn Puerto Rico: 'We want the No 1 seed'**\
+`PARIS – The star players and coaches on the U.`\
+https://nytimes.com/athletic/5676332/2024/08/02/team-usa-olympics-basketball-seeding/
+
 **Immigration is a wild card, making job numbers harder to parse.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/08/02/business/jobs-report-july/jobs-report-immigration
