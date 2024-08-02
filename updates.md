@@ -1,3 +1,7 @@
+**49ers training camp: Ricky Pearsall has impressed the staff over 3 practices**\
+`49ers coach Kyle Shanahan has been impressed early but is looking forward to watch Pearsall in one-on-one work on Saturday.`\
+https://nytimes.com/athletic/5677202/2024/08/02/49ers-training-camp-ricky-pearsall/
+
 **'It's never been easy': Broncos WR Tim Patrick details long climb of past 2 years**\
 `Patrick is back on the field after missing the past two seasons following camp injuries, striving to be "a better version" of himself.`\
 https://nytimes.com/athletic/5677227/2024/08/02/tim-patrick-broncos-training-camp/
