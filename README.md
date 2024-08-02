@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5677209/2024/08/02/cardinals-mlb-erick-fedde-debut/
 
 **49ers training camp: Ricky Pearsall has impressed the staff over 3 practices**\
-`49ers coach Kyle Shanahan has been impressed early but is looking forward to watch Pearsall in one-on-one work on Saturday.`\
+`49ers coach Kyle Shanahan has been impressed early but is looking forward to watching Pearsall in one-on-one work Saturday.`\
 https://nytimes.com/athletic/5677202/2024/08/02/49ers-training-camp-ricky-pearsall/
 
 **Highlights From the 2024 Paris Olympics**\
