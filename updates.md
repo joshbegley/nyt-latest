@@ -1,3 +1,11 @@
+**Yvonne Furneaux, Cosmopolitan Actress in ‘La Dolce Vita,’ Dies at 98**\
+`An Oxford graduate who spoke five languages, she had an early career as a siren before finding critical acclaim in masterworks by Federico Fellini and Roman Polanski.`\
+https://nytimes.com/2024/08/02/movies/yvonne-furneaux-dead.html
+
+**Nottingham Forest in a 'good place' - Nuno**\
+`Nuno Espirito Santo says he is happy with Nottingham Forest’s progress on the pitch and in the transfer market — but wants to see the club continue their hard work on both fronts before the Premier League season kicks-off later this month.`\
+https://nytimes.com/athletic/5677326/2024/08/02/nuno-espirito-santo-forest-pre-season/
+
 **Lions tune up with scrimmage periods before joint practice with Giants**\
 `The Lions travel to New Jersey next week for joint practices and a preseason game against the Giants.`\
 https://nytimes.com/athletic/5677164/2024/08/02/detroit-lions-training-camp-joint-practice-giants/
