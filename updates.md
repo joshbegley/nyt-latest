@@ -1,3 +1,11 @@
+**Manfred Kirchheimer, ‘Indispensable’ New York Filmmaker, Dies at 93**\
+`For decades, he meticulously crafted short films and documentaries in relative obscurity. Then, in his 80s, he enjoyed a burst of productivity and acclaim.`\
+https://nytimes.com/2024/08/02/arts/manfred-kirchheimer-dead.html
+
+**Meet Félix Lebrun, France's 17-year-old table tennis Olympic medal hopeful**\
+`Léon Marchand and Teddy Riner aren't the only French stars at these Games. Don't forget about Félix Lebrun, 17-year-old table tennis ace.`\
+https://nytimes.com/athletic/5676134/2024/08/02/felix-lebrun-olympics-table-tennis-france/
+
 **Israel and Turkey spar as Erdogan declares a day of mourning for Haniyeh.**\
 `By Safak Timur`\
 https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/israel-and-turkey-spar-as-erdogan-declares-a-day-of-mourning-for-haniyeh

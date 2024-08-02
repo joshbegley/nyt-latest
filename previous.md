@@ -1,3 +1,11 @@
+**Manfred Kirchheimer, ‘Indispensable’ New York Filmmaker, Dies at 93**\
+`For decades, he meticulously crafted short films and documentaries in relative obscurity. Then, in his 80s, he enjoyed a burst of productivity and acclaim.`\
+https://nytimes.com/2024/08/02/arts/manfred-kirchheimer-dead.html
+
+**Meet Félix Lebrun, France's 17-year-old table tennis Olympic medal hopeful**\
+`Léon Marchand and Teddy Riner aren't the only French stars at these Games. Don't forget about Félix Lebrun, 17-year-old table tennis ace.`\
+https://nytimes.com/athletic/5676134/2024/08/02/felix-lebrun-olympics-table-tennis-france/
+
 **Israel and Turkey spar as Erdogan declares a day of mourning for Haniyeh.**\
 `By Safak Timur`\
 https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/israel-and-turkey-spar-as-erdogan-declares-a-day-of-mourning-for-haniyeh
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5676772/2024/08/02/tyrell-malacia-injury-man-utd/
 **Benjamin Luxon, British Baritone Thwarted by Hearing Loss, Dies at 87**\
 `A favorite of Benjamin Britten, he won acclaim in roles like Don Giovanni, Eugene Onegin and Falstaff until his affliction forced him to largely give up singing.`\
 https://nytimes.com/2024/08/02/arts/music/benjamin-luxon-dead.html
-
-**Olympic Champion Simone Biles Posted on Social Media That She Loves her ‘Black Job’**\
-`Biles is only the third woman gymnast to win the all-around competition twice at the Olympics.`\
-https://nytimes.com/2024/08/02/us/politics/simone-biles-black-job-trump.html
-
-**The Windup: On Mike Trout's season ending**\
-`Today's top baseball news.`\
-https://nytimes.com/athletic/5676770/2024/08/02/mike-trout-injury-the-windup/
 
