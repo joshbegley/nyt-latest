@@ -1,3 +1,7 @@
+**As the World Looks Elsewhere, Famine Descends on Darfur**\
+`There is little interest in stopping the civil war that is preventing delivery of food aid.`\
+https://nytimes.com/live/2024/07/30/opinion/thepoint/famine-darfur-civil-war
+
 **Ancelotti says Real Madrid likely his last club job**\
 `Carlo Ancelotti says it is likely Real Madrid will be his last job in club management.`\
 https://nytimes.com/athletic/5676505/2024/08/02/carlo-ancelotti-real-madrid-club-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5671384/2024/08/02/conor-gallagher-chelsea-atletico
 **Emile Smith Rowe's move from Arsenal to Fulham: Frustration, new beginnings and hope**\
 `The England international is leaving his boyhood club and crossing London for a new start`\
 https://nytimes.com/athletic/5674149/2024/08/02/emile-smith-rowe-fulham-arsenal/
-
-**Smith Rowe completes Fulham move**\
-`Emile Smith Rowe has completed his move from Arsenal to Fulham.`\
-https://nytimes.com/athletic/5657662/2024/08/02/emile-smith-rowe-fulham-arsenal-transfer/
 
