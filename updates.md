@@ -1,3 +1,7 @@
+**Reflections About the Prisoner Swap**\
+`Readers worry about encouraging hostage-taking and speculate about Vladimir Putin’s thinking. Also: JD Vance; a female president; America at the Olympics.`\
+https://nytimes.com/2024/08/02/opinion/prisoner-swap-russia.html
+
 **'I cannot stop smiling': Giannis loving Olympic experience, especially after Greece wins**\
 `After Greece earned its first Olympic basketball win in 16 years, Antetokounmpo gushed about his time in Paris and representing his country.`\
 https://nytimes.com/athletic/5676856/2024/08/02/giannis-antetokounmpo-olympics-greece-paris-experience/
