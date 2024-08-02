@@ -1,3 +1,7 @@
+**What Ten Hag said in pre-season press conference - and what he might have meant**\
+`Erik ten Hag sat down with media on Thursday night — The Athletic was in attendance to listen to the United manager`\
+https://nytimes.com/athletic/5676050/2024/08/02/erik-ten-hag-manchester-united-latest/
+
 **A Triumphant Biden Welcomes 3 Freed Americans Home**\
 `A Biden aide hailed a complicated prisoner swap as an act of “vintage Joe Biden” diplomacy. As he greeted freed Americans, the president seemed intent on showing the world what that meant.`\
 https://nytimes.com/2024/08/02/us/politics/biden-greeting-freed-prisoners.html
