@@ -1,3 +1,7 @@
+**Kate Douglass always had the talent to win Olympic gold. Now the belief matches too**\
+`NANTERRE, France — There used to be a time, not all that long ago, when Kate Douglass surprised herself, when she did things in the pool that she didn&#8217;t know she was capable of doing.`\
+https://nytimes.com/athletic/5675731/2024/08/01/kate-douglass-olympics-gold-breaststroke-talent/
+
 **U.S. Recognizes Maduro’s Rival as Winner of Venezuelan Election**\
 `Secretary of State Antony J. Blinken said there was “overwhelming evidence” that Edmundo González had won, despite President Nicolás Maduro’s claim of victory.`\
 https://nytimes.com/2024/08/01/world/americas/venezuela-election-gonzalez-maduro.html
