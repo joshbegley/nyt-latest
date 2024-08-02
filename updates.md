@@ -1,3 +1,11 @@
+**With Justin Herbert sidelined, Chargers backup Easton Stick returns to the spotlight**\
+`EL SEGUNDO, Calif.`\
+https://nytimes.com/athletic/5676045/2024/08/02/justin-herbert-injury-chargers-easton-stick/
+
+**The U.S. is preparing to send more combat aircraft to the Middle East, officials say.**\
+`By Eric Schmitt`\
+https://nytimes.com/2024/08/02/world/middleeast/the-us-is-sending-more-combat-aircraft-to-the-middle-east-officials-say.html
+
 **The U.S. is preparing to send more combat aircraft to the Middle East, officials say.**\
 `By Eric Schmitt`\
 https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/the-us-is-sending-more-combat-aircraft-to-the-middle-east-officials-say

@@ -1,6 +1,10 @@
+**With Justin Herbert sidelined, Chargers backup Easton Stick returns to the spotlight**\
+`EL SEGUNDO, Calif.`\
+https://nytimes.com/athletic/5676045/2024/08/02/justin-herbert-injury-chargers-easton-stick/
+
 **The U.S. is preparing to send more combat aircraft to the Middle East, officials say.**\
 `By Eric Schmitt`\
-https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/the-us-is-sending-more-combat-aircraft-to-the-middle-east-officials-say
+https://nytimes.com/2024/08/02/world/middleeast/the-us-is-sending-more-combat-aircraft-to-the-middle-east-officials-say.html
 
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5676162/2024/08/02/vitor-roque-barcelona-transfer-s
 **Chevron, in Snub to California, to Move Its Headquarters to Houston**\
 `The oil company, which already has extensive operations in Texas, has often been at odds with California’s elected leaders over the state’s climate and energy policies.`\
 https://nytimes.com/2024/08/02/business/energy-environment/chevron-headquarters-houston.html
-
-**Hard Landing Concerns Jolt Global Markets**\
-`Investors are focusing on slowing U.S. economic growth as calls for the Fed to cut interest rates grow louder.`\
-https://nytimes.com/2024/08/02/business/dealbook/stocks-hard-landing-fed-rates.html
 
