@@ -1,3 +1,7 @@
+**Want a Break From Being Human? Flap Your Wings and Squawk.**\
+`Some young people in China pretend to be birds on social media as way of escaping hustle culture. We can explain.`\
+https://nytimes.com/2024/08/02/world/asia/china-birds-social-media.html
+
 **A One-Man Team’s 10-Second Olympics**\
 `Winzar Kakiouea, a 100-meter runner, is the only competitor at the Paris Games from his Pacific island nation. His debut might be over in a flash.`\
 https://nytimes.com/2024/08/02/world/olympics/winzar-kaklouea-nauru-track.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/biden
 **6 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about. (Though one missing movie, “Trap,” was not screened early for critics.)`\
 https://nytimes.com/2024/08/02/movies/new-movies-this-week-critics.html
-
-**Here’s the latest on the assassinations that have raised tensions in the Middle East.**\
-`By Adam Rasgon, Raja Abdulrahim and Victoria Kim`\
-https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/heres-the-latest-on-the-assassinations-that-have-raised-tensions-in-the-middle-east
 

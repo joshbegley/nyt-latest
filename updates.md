@@ -1,3 +1,7 @@
+**Want a Break From Being Human? Flap Your Wings and Squawk.**\
+`Some young people in China pretend to be birds on social media as way of escaping hustle culture. We can explain.`\
+https://nytimes.com/2024/08/02/world/asia/china-birds-social-media.html
+
 **A One-Man Team’s 10-Second Olympics**\
 `Winzar Kakiouea, a 100-meter runner, is the only competitor at the Paris Games from his Pacific island nation. His debut might be over in a flash.`\
 https://nytimes.com/2024/08/02/world/olympics/winzar-kaklouea-nauru-track.html
