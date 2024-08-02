@@ -1,3 +1,7 @@
+**The U.S. is sending more combat aircraft to the Middle East, officials say.**\
+`By Eric Schmitt`\
+https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/the-us-is-sending-more-combat-aircraft-to-the-middle-east-officials-say
+
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/08/02/us/harris-trump-election/heres-the-latest-on-the-presidential-race
