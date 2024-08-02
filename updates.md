@@ -1,3 +1,7 @@
+**First Pass Friday: Why It Pays to Hang in There**\
+`Kate Chin Park offers a challenging puzzle.`\
+https://nytimes.com/2024/08/01/crosswords/daily-puzzle-2024-08-02.html
+
 **Two Key Matchups Are Set in Arizona as Battle for House Control Heats Up**\
 `The tossup districts currently held by Republican Representatives David Schweikert and Juan Ciscomani will play a key role in the fight for control. They got their Democratic challengers this week.`\
 https://nytimes.com/2024/08/01/us/politics/arizona-house-races-ciscomani-shah.html
