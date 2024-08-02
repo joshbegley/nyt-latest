@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5676772/2024/08/02/tyrell-malacia-injury-man-utd/
 `A favorite of Benjamin Britten, he won acclaim in roles like Don Giovanni, Eugene Onegin and Falstaff until his affliction forced him to largely give up singing.`\
 https://nytimes.com/2024/08/02/arts/music/benjamin-luxon-dead.html
 
-**Olympic champion Simone Biles posted on social media that she loves her ‘Black job.’**\
+**Olympic Champion Simone Biles Posted on Social Media That She Loves her ‘Black Job’**\
 `Biles is only the third woman gymnast to win the all-around competition twice at the Olympics.`\
 https://nytimes.com/2024/08/02/us/politics/simone-biles-black-job-trump.html
 

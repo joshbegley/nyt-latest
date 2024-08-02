@@ -1,3 +1,7 @@
+**Olympic Champion Simone Biles Posted on Social Media That She Loves her ‘Black Job’**\
+`Biles is only the third woman gymnast to win the all-around competition twice at the Olympics.`\
+https://nytimes.com/2024/08/02/us/politics/simone-biles-black-job-trump.html
+
 **Malacia out for two more months with knee injury - Ten Hag**\
 `Manchester United left-back Tyrell Malacia is set to remain on the sidelines for another two months, according to manager Erik ten Hag.`\
 https://nytimes.com/athletic/5676772/2024/08/02/tyrell-malacia-injury-man-utd/
