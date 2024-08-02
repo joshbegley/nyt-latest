@@ -1,3 +1,11 @@
+**Why tough Alabama kicker Will Reichard was the guy the Vikings simply couldn't pass up**\
+`Reichard has the makeup to be everything Vikings kickers haven't been: consistent, clutch and reliable. He has his late father to thank.`\
+https://nytimes.com/athletic/5675487/2024/08/02/will-reichard-vikings-alabama/
+
+**2024 Pro Football Hall of Fame induction: How to watch ceremony**\
+`Julius Peppers and Andre Johnson headline the Class of 2024 heading into the Pro Football Hall of Fame.`\
+https://nytimes.com/athletic/5671916/2024/08/02/2024-pro-football-hall-of-fame-induction-how-to-watch-ceremony-order-of-speeches/
+
 **Alex Morgan has designed her own USWNT exit by setting the next generation up for success**\
 `The U.S. can exist without Morgan, and that’s ultimately for the good`\
 https://nytimes.com/athletic/5675577/2024/08/02/uswnt-olympics-alex-morgan-not-on-team/
@@ -23,19 +31,11 @@ https://nytimes.com/2024/08/02/crosswords/wordle-review-1141.html
 `Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
 https://nytimes.com/2024/08/02/crosswords/connections-companion-419.html
 
+**A World Cup in America in the middle of summer? Have they seen the weather?**\
+`A summer of soccer in the U.S. has shown that FIFA need a weather plan for the Club World Cup and World Cup`\
+https://nytimes.com/athletic/5674585/2024/08/02/world-cup-2026-america-weather/
+
 **Want a Break From Being Human? Flap Your Wings and Squawk.**\
 `Some young people in China pretend to be birds on social media as way of escaping hustle culture. We can explain.`\
 https://nytimes.com/2024/08/02/world/asia/china-birds-social-media.html
-
-**A One-Man Team’s 10-Second Olympics**\
-`Winzar Kakiouea, a 100-meter runner, is the only competitor at the Paris Games from his Pacific island nation. His debut might be over in a flash.`\
-https://nytimes.com/2024/08/02/world/olympics/winzar-kaklouea-nauru-track.html
-
-**Man United submit opening offer for De Ligt and Mazraoui**\
-`Manchester United have submitted an opening double offer to sign Matthijs de Ligt and Noussair Mazraoui from Bayern Munich.`\
-https://nytimes.com/athletic/5676135/2024/08/02/man-utd-transfers-de-ligt-mazraoui/
-
-**In Aspen, a New Art Fair Follows the Money**\
-`How can an art fair lure customers and make sales in a down market? Pitching its tent next to billionaires is a start.`\
-https://nytimes.com/2024/08/02/arts/design/aspen-art-fair.html
 
