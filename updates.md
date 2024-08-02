@@ -1,3 +1,7 @@
+**'It's never been easy': Broncos WR Tim Patrick details long climb of past 2 years**\
+`Patrick is back on the field after missing the past two seasons following camp injuries, striving to be "a better version" of himself.`\
+https://nytimes.com/athletic/5677227/2024/08/02/tim-patrick-broncos-training-camp/
+
 **Highlights From the 2024 Paris Olympics**\
 `See our photographers’ best images from the Summer Games.`\
 https://nytimes.com/interactive/2024/08/02/world/olympics/paris-olympics-best-photos-2024.html
