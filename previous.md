@@ -1,3 +1,7 @@
+**Chelsea’s Andrey Santos returns to Strasbourg in loan transfer**\
+`Chelsea midfielder Andrey Santos has returned to Ligue 1 club Strasbourg on a loan deal for the 2024-25 campaign.`\
+https://nytimes.com/athletic/5676092/2024/08/02/chelsea-andrey-santos-strasbourg-loan/
+
 **What Ten Hag said in pre-season press conference - and what he might have meant**\
 `Erik ten Hag sat down with media on Thursday night — The Athletic was in attendance to listen to the United manager`\
 https://nytimes.com/athletic/5676050/2024/08/02/erik-ten-hag-manchester-united-latest/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/02/science/archaeology-turkey-daric.html
 **Hotels in New York City Don’t Need Licenses. Should They?**\
 `New York’s hundreds of hotels are subject to less regulatory scrutiny than many other businesses. The industry is resisting City Council efforts to change that.`\
 https://nytimes.com/2024/08/02/nyregion/hotel-licenses-nyc.html
-
-**Collin Johnson, Brett Rypien star for Bears in weather-shortened Hall of Fame Game**\
-`Johnson and Rypien, two veterans, have quickly built a connection, but where do they fit on the Bears' roster?`\
-https://nytimes.com/athletic/5676063/2024/08/02/bears-collin-johnson-brett-rypien-hall-of-fame-game/
 

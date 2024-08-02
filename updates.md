@@ -1,3 +1,7 @@
+**Chelsea’s Andrey Santos returns to Strasbourg in loan transfer**\
+`Chelsea midfielder Andrey Santos has returned to Ligue 1 club Strasbourg on a loan deal for the 2024-25 campaign.`\
+https://nytimes.com/athletic/5676092/2024/08/02/chelsea-andrey-santos-strasbourg-loan/
+
 **What Ten Hag said in pre-season press conference - and what he might have meant**\
 `Erik ten Hag sat down with media on Thursday night — The Athletic was in attendance to listen to the United manager`\
 https://nytimes.com/athletic/5676050/2024/08/02/erik-ten-hag-manchester-united-latest/
