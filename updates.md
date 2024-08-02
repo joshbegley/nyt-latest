@@ -1,3 +1,7 @@
+**As the World Looks Elsewhere, Famine Descends on Darfur**\
+`There is little interest in stopping the civil war that is preventing delivery of food aid.`\
+https://nytimes.com/live/2024/07/30/opinion/thepoint/famine-darfur-civil-war
+
 **Ancelotti says Real Madrid likely his last club job**\
 `Carlo Ancelotti says it is likely Real Madrid will be his last job in club management.`\
 https://nytimes.com/athletic/5676505/2024/08/02/carlo-ancelotti-real-madrid-club-future/
