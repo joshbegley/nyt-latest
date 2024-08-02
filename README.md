@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5676428/2024/08/02/us-men-morocco-olympic-soccer-qu
 `Greg Jewett runs through the MLB trade deadline bullpen fallout, illustrates the struggles of Arizona closer Paul Sewald and more.`\
 https://nytimes.com/athletic/5676639/2024/08/02/fantasy-baseball-bullpen-report-trade-deadline-paul-sewald/
 
-**Wall Street’s Turbulent Week Ends With Another Drop**\
+**Wall Street’s Turbulent Week Ends With Stocks Falling**\
 `A weaker-than-expected jobs report added to investors’ worries about the economy. Stocks fell sharply, and Treasury yields declined in expectation of a Federal Reserve rate cut.`\
 https://nytimes.com/2024/08/02/business/economy/stocks-drop-economy-jobs.html
 
