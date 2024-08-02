@@ -1,3 +1,7 @@
+**A Big Oopsie for the Fed**\
+`The latest jobs numbers show the Fed has to make a significant interest rate cut, and soon.`\
+https://nytimes.com/live/2024/07/30/opinion/thepoint/krugman-jobs-fed
+
 **Families of Hostages Despair as Hopes for Imminent Peace Deal Fade**\
 `The recent assassination of Ismail Haniyeh, the leader of Hamas’s political branch, halted negotiations for a cease-fire that would bring home the hostages held in Gaza.`\
 https://nytimes.com/2024/08/02/world/middleeast/israel-hamas-hostage-release-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/07/30/opinion/famine-darfur-civil-war.html
 **Ancelotti says Real Madrid likely his last club job**\
 `Carlo Ancelotti says it is likely Real Madrid will be his last job in club management.`\
 https://nytimes.com/athletic/5676505/2024/08/02/carlo-ancelotti-real-madrid-club-future/
-
-**The quirky stories that define Stephen Nedoroscik, Team USA's pommel horse hero**\
-`“Men’s gymnastics needed Stephen," said Matt Carbone, the owner of Nedoroscik's hometown gym.`\
-https://nytimes.com/athletic/5675559/2024/08/02/stephen-nedoroscik-usa-gymnastics-olympics-penn-state-pommel-horse/
 
