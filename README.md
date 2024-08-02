@@ -1,3 +1,15 @@
+**Harris Won Enough Votes to Be the Democratic Nominee**\
+`Also, the Middle East is on edge as Israel braces for retaliation. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/08/02/briefing/harris-democratic-nominee-middle-east-israel.html
+
+**Agency Votes to Replace Official Accused of Rushing Start of Seabed Mining**\
+`The international agency charged with regulating seabed mining elected a U.N. environmental regulator to replace a leader accused of too-close industry ties.`\
+https://nytimes.com/2024/08/02/us/politics/mining-cobalt-nickel-electric-vehicle-batteries.html
+
+**Andrew Nembhard leads Canada basketball to perfect group stage in win over Spain**\
+`Despite a 3-0 record, Canada is probably still heading for a scary quarterfinal opponent.`\
+https://nytimes.com/athletic/5677056/2024/08/02/paris-olympics-mens-basketball-2024-canada-spain/
+
 **It’s official: Léon Marchand owns the pool in France after winning his fourth gold medal.**\
 `After winning the 200 individual medley, Marchand joins Michael Phelps and Mark Spitz as the only male swimmers to win four gold medals at a single Olympics.`\
 https://nytimes.com/2024/08/02/world/olympics/leon-marchand-gold-medals.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/02/world/olympics/shacarri-richardson-100m-track.htm
 **Hamas’s leader is laid to rest in Qatar as his successors vow to carry on the fight against Israel.**\
 `By Anjana Sankar`\
 https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/hamass-leader-is-laid-to-rest-in-qatar-as-his-successors-vow-to-carry-on-the-fight-against-israel
-
-**Does Anyone Have Leverage Over Nicolás Maduro?**\
-`The Biden administration recognized the autocrat’s rival as the winner of Sunday’s election in Venezuela. Yet President Maduro shows no sign of being willing to leave office.`\
-https://nytimes.com/2024/08/02/world/americas/venezuela-maduro-election-voters.html
-
-**Democrats Pushed Biden Aside. Is Eric Adams Next?**\
-`The mayor of New York is highly unpopular and already has a few challengers.`\
-https://nytimes.com/live/2024/07/30/opinion/thepoint/eric-adams-mayor-unpopularity
-
-**American Grant Fisher wins bronze in men's 10k; Ugandan Joshua Cheptegei sets Olympic record**\
-`Fisher is the fourth U.S. man in history to medal in the event.`\
-https://nytimes.com/athletic/5677169/2024/08/02/grant-fisher-joshua-cheptegei-olympic-10k/
 
