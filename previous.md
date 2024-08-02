@@ -1,3 +1,19 @@
+**U.S. Sues TikTok Over Child Privacy Violations**\
+`The Justice Department said that TikTok illegally collected children’s data and knowingly allowed users under the age of 13 to create accounts.`\
+https://nytimes.com/2024/08/02/technology/tiktok-doj-child-privacy.html
+
+**Harris Has Votes Needed to Formally Be Nominee, D.N.C. Says**\
+`The party chair said she had won enough delegates to secure the nomination, setting up Kamala Harris to become the first Black woman and person of South Asian heritage to earn the top spot on a major political ticket for president.`\
+https://nytimes.com/2024/08/02/us/politics/kamala-harris-democrats-nominee-official.html
+
+**JD Vance Pioneered ‘New Right’ Economics. Trump May Not Embrace It.**\
+`The vice-presidential nominee favors economic policies that help advance a socially conservative vision of American society — and that sometimes clash with Trump’s own plans.`\
+https://nytimes.com/2024/08/02/us/politics/jd-vance-new-right-economics.html
+
+**Senior U.S. Diplomat Will Lead Kamala Harris’s Running Mate’s Team**\
+`Elizabeth M. Allen, who heads the State Department’s public diplomacy office, served as a top aide to Ms. Harris in 2020 and in the Obama White House.`\
+https://nytimes.com/2024/08/02/us/politics/elizabeth-allen-kamala-harris-campaign.html
+
 **An Autocrat’s Tool Backfires in Venezuela**\
 `Nicolás Maduro claimed victory in his country’s election. But exit polls suggested the opposition leader won a landslide, setting off protests around the country.`\
 https://nytimes.com/2024/08/02/world/americas/an-autocrats-tool-backfires-in-venezuela.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/08/02/arts/music/kamala-harris-beyonce-kendrick-lamar.h
 **What to know about the latest report.**\
 `By Sydney Ember`\
 https://nytimes.com/live/2024/08/02/business/jobs-report-july/what-to-know-about-the-latest-report
-
-**Algerian Boxer Is Eligible, Olympic Spokesman Says**\
-`The chief spokesman for the International Olympic Committee condemned misinformation that cast doubt on the gender of Imane Khelif, an Algerian boxer in the women’s competition.`\
-https://nytimes.com/video/world/olympics/100000009607907/olympics-committee-algerian-boxer-khelif.html
-
-**Palestinians say funeral prayers for a slain Hamas leader, but anger is subdued.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/live/2024/08/02/world/israel-hamas-iran-hezbollah-gaza/palestinians-say-funeral-prayers-for-a-slain-hamas-leader-but-anger-is-subdued
-
-**Protesting Hunger, Nigerians Warn, ‘Life Cannot Continue Like This’**\
-`Thousands turned out across Africa’s most populous country despite government attempts to prevent them. Demonstrations have left at least 13 people dead, Amnesty International says.`\
-https://nytimes.com/2024/08/02/world/africa/nigeria-protest-end-bad-governance.html
-
-**Scoop City: How'd the new kickoff look?**\
-`Takeaways from the Hall of Fame game and more in today's NFL newsletter.`\
-https://nytimes.com/athletic/5676907/2024/08/02/hall-of-fame-game-takeaways-scoop-city/
 
