@@ -58,6 +58,11 @@ https://nytimes.com/athletic/5672621/2024/08/02/nhl-salary-cap-core-players/
 `\
 https://nytimes.com/athletic/5672621/2024/08/02/nhl-salary-cap-core-players/
 
+**The key question facing NHL teams: How much cap space can they dedicate to core players?**\
+`Teams around the league will have to contemplate how many big contracts they can realistically dedicate to just a few of their players.
+`\
+https://nytimes.com/athletic/5672621/2024/08/02/nhl-salary-cap-core-players/
+
 **Why tough Alabama kicker Will Reichard was the guy the Vikings simply couldn't pass up**\
 `Reichard has the makeup to be everything Vikings kickers haven't been: consistent, clutch and reliable. He has his late father to thank.`\
 https://nytimes.com/athletic/5675487/2024/08/02/will-reichard-vikings-alabama/
