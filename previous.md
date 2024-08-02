@@ -1,3 +1,11 @@
+**Former F.B.I. Agent Sentenced to Life Plus 20 Years for Sexually Abusing Child**\
+`Christopher Bauer, who was convicted in June, found work as an Alabama state trooper after he was forced out of the F.B.I., officials said.`\
+https://nytimes.com/2024/08/02/us/christopher-bauer-fbi-child-abuse-alabama.html
+
+**The Court Filing**\
+`The photo was declassified with the release of a 2019 filing by Ammar al-Baluchi’s legal team.`\
+https://nytimes.com/interactive/2024/08/02/us/ae-628-declassified-version.html
+
 **Trump questioned the physical appearance of Native American business rivals in the 1990s.**\
 `The former president’s remarks this week about the racial identity of Vice President Kamala Harris recalled when he challenged the tribal recognition of a casino rival.`\
 https://nytimes.com/live/2024/08/02/us/harris-trump-election/trump-native-americans-indians
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/02/us/politics/cia-prisoner-photo-black-site.html
 **Justin Timberlake, on Tour, Beams Into Sag Harbor to Plead Not Guilty**\
 `The singer’s arrest and prosecution on a drunken-driving charge has drawn the curious to the Hamptons and supplied the internet with meme fodder.`\
 https://nytimes.com/2024/08/02/nyregion/justin-timberlake-dwi-hearing-sag-harbor.html
-
-**Peter C. Theisinger, 78, Dies; Led Mars Rover Missions for NASA**\
-`He directed a team of engineers that built Spirit, Opportunity and Curiosity, mobile robots that offered astonishing glimpses into the planet’s ancient past.`\
-https://nytimes.com/2024/08/02/science/space/peter-theisinger-dead.html
-
-**Ippon! Teddy Riner thrills home crowd to grab his third Olympic gold medal.**\
-`Facing the No. 1-seeded judoka in the +100kg weight class, Kim Minjong of South Korea, Riner won his sixth Olympic medal.`\
-https://nytimes.com/2024/08/02/world/olympics/judo-teddy-riner.html
 

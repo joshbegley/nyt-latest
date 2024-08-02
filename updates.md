@@ -1,3 +1,11 @@
+**Former F.B.I. Agent Sentenced to Life Plus 20 Years for Sexually Abusing Child**\
+`Christopher Bauer, who was convicted in June, found work as an Alabama state trooper after he was forced out of the F.B.I., officials said.`\
+https://nytimes.com/2024/08/02/us/christopher-bauer-fbi-child-abuse-alabama.html
+
+**The Court Filing**\
+`The photo was declassified with the release of a 2019 filing by Ammar al-Baluchi’s legal team.`\
+https://nytimes.com/interactive/2024/08/02/us/ae-628-declassified-version.html
+
 **Trump questioned the physical appearance of Native American business rivals in the 1990s.**\
 `The former president’s remarks this week about the racial identity of Vice President Kamala Harris recalled when he challenged the tribal recognition of a casino rival.`\
 https://nytimes.com/live/2024/08/02/us/harris-trump-election/trump-native-americans-indians
