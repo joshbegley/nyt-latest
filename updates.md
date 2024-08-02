@@ -1,3 +1,15 @@
+**Protesting Hunger, Nigerians Warn, ‘Life Cannot Continue Like This’**\
+`Thousands turned out across Africa’s most populous country despite government attempts to prevent them. Demonstrations have left at least 13 people dead, Amnesty International says.`\
+https://nytimes.com/2024/08/02/world/africa/nigeria-protest-end-bad-governance.html
+
+**Scoop City: How'd the new kickoff look?**\
+`Takeaways from the Hall of Fame game and more in today's NFL newsletter.`\
+https://nytimes.com/athletic/5676907/2024/08/02/hall-of-fame-game-takeaways-scoop-city/
+
+**Sarah Jessica Parker on Her Life in Publishing**\
+`Since 2016, the renowned actress has also worked in publishing, bringing her name and love of books to imprints at two companies. In this episode, she discusses what that work has meant to her.`\
+https://nytimes.com/2024/08/02/books/review/podcast-sarah-jessica-parker.html
+
 **Icon or Eyesore? Palm Springs to Move Divisive Marilyn Monroe Statue**\
 `A truce has been reached in a battle that pitted admirers of the city’s art museum against fans of a giant outdoor Marilyn Monroe sculpture.`\
 https://nytimes.com/2024/08/02/arts/design/marilyn-monroe-statue-palm-springs.html
