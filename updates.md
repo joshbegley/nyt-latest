@@ -38,6 +38,11 @@ https://nytimes.com/athletic/5672621/2024/08/02/nhl-salary-cap-core-players/
 `\
 https://nytimes.com/athletic/5672621/2024/08/02/nhl-salary-cap-core-players/
 
+**The key question facing NHL teams: How much cap space can they dedicate to core players?**\
+`Teams around the league will have to contemplate how many big contracts they can realistically dedicate to just a few of their players.
+`\
+https://nytimes.com/athletic/5672621/2024/08/02/nhl-salary-cap-core-players/
+
 **Alex Morgan has designed her own USWNT exit by setting the next generation up for success**\
 `The U.S. can exist without Morgan, and that’s ultimately for the good`\
 https://nytimes.com/athletic/5675577/2024/08/02/uswnt-olympics-alex-morgan-not-on-team/
