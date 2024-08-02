@@ -1,3 +1,7 @@
+**Lauren Scruggs Makes History as Americans Win Olympic Fencing Gold**\
+`After Scruggs, 21, became the first Black American woman to win an individual Olympic fencing medal, she clinched gold for the U.S. team.`\
+https://nytimes.com/2024/08/01/sports/lauren-scruggs-olympics-fencing.html
+
 **Two Key Matchups Are Set in Arizona as Battle for House Control Heats Up**\
 `The tossup districts currently held by Republican Representatives David Schweikert and Juan Ciscomani will play a key role in the fight for control. They got their Democratic challengers this week.`\
 https://nytimes.com/2024/08/01/us/politics/arizona-house-races-ciscomani-shah.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/01/us/trump-harris-black-asian-race.html
 **Judge overturns verdict in 'Sunday Ticket' lawsuit**\
 `In June, a jury in U.S. District Court ordered the NFL to pay billions in damages to "Sunday Ticket" subscribers.`\
 https://nytimes.com/athletic/5675803/2024/08/01/nfl-sunday-ticket-lawsuit-verdict-overturned/
-
-**With Geno Smith out injured, Sam Howell flashes his talent ... and his flaws**\
-`With Smith missing practice, Howell got a chance with the starters, making big plays and big mistakes throughout the afternoon.`\
-https://nytimes.com/athletic/5675798/2024/08/01/geno-smith-injury-sam-howell/
 

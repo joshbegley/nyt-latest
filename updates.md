@@ -1,3 +1,7 @@
+**Lauren Scruggs Makes History as Americans Win Olympic Fencing Gold**\
+`After Scruggs, 21, became the first Black American woman to win an individual Olympic fencing medal, she clinched gold for the U.S. team.`\
+https://nytimes.com/2024/08/01/sports/lauren-scruggs-olympics-fencing.html
+
 **First Pass Friday: Why It Pays to Hang in There**\
 `Kate Chin Park offers a challenging puzzle.`\
 https://nytimes.com/2024/08/01/crosswords/daily-puzzle-2024-08-02.html
