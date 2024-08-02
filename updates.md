@@ -1,3 +1,7 @@
+**Chelsea working to 'find solution' to Gallagher future - Maresca**\
+`Chelsea head coach Enzo Maresca says the club are working with Conor Gallagher to &#8220;find a solution&#8221; to the ongoing uncertainty surrounding the midfielder&#8217;s future at Stamford Bridge.`\
+https://nytimes.com/athletic/5677295/2024/08/02/conor-gallagher-chelsea-maresca/
+
 **Joe Gomez's future at Liverpool remains in the balance after Newcastle approach**\
 `The centre-back came up as an option in a potential swap deal involving Anthony Gordon. Will he seek another Anfield exit route?`\
 https://nytimes.com/athletic/5675357/2024/08/02/joe-gomez-liverpool-newcastle-anthony-gordon-transfer/
