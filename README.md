@@ -1,3 +1,7 @@
+**The Pulse: Yes, she's wearing a diamond goat necklace**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/5675937/2024/08/02/simone-biles-suni-lee-nfl-kickoffs-the-pulse/
+
 **Ravens rookie Roger Rosengarten gets his turn at RT as O-line decisions near**\
 `The second-round pick got his first extended look as the starting right tackle. Plus, safety Kyle Hamilton excelling in one-on-one drills.`\
 https://nytimes.com/athletic/5675726/2024/08/02/ravens-training-camp-roger-rosengarten/
@@ -34,8 +38,4 @@ https://nytimes.com/2024/08/02/podcasts/the-daily/foxnews-murdoch.html
 **A Major Prisoner Exchange, and U.S. Says Venezuelan Opposition Won**\
 `Plus, Simone Biles takes gold — again.`\
 https://nytimes.com/2024/08/02/podcasts/gershkovich-russia-prisoner-exchange-venezuala-election.html
-
-**Wordle Review No. 1,141, Saturday, August 3, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/08/02/crosswords/wordle-review-1141.html
 
