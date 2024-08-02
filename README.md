@@ -1,3 +1,15 @@
+**U.S. Recognizes Maduro’s Rival as Winner of Venezuelan Election**\
+`Secretary of State Antony J. Blinken said there was “overwhelming evidence” that Edmundo González had won, despite President Nicolás Maduro’s claim of victory.`\
+https://nytimes.com/2024/08/01/world/americas/venezuela-election-gonzalez-maduro.html
+
+**Congressional leaders praise exchange, though some question continued use of ‘hostage diplomacy.’**\
+`By Robert Jimison`\
+https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/congressional-leaders-praise-exchange-though-some-question-continued-use-of-hostage-diplomacy
+
+**2 Officers Shot on Lower East Side in Street Chase of Robbery Suspect**\
+`One officer was shot in the leg and the other in the groin after they responded to a report of an armed robbery at a mahjong parlor. Both are in stable condition.`\
+https://nytimes.com/2024/08/01/nyregion/shooting-nypd-robbery-manhattan.html
+
 **Trump Remarks on Harris’s Multiracial Identity Overlook a Growing Trend**\
 `Demographers say that a growing number of Americans identify as more than one race, and that the number will continue expanding in the decades ahead.`\
 https://nytimes.com/2024/08/01/us/trump-harris-black-asian-race.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5675558/2024/08/01/washington-commanders-roster-tra
 **Titans' Hopkins to miss 4-6 weeks with knee strain**\
 `Hopkins, 32, played in all 17 games last season for the Titans, catching 75 passes for 1,057 yards and seven touchdowns.`\
 https://nytimes.com/athletic/5675730/2024/08/01/deandre-hopkins-titans-knee-injury/
-
-**Aleksei Navalny’s widow says the release of political prisoners is a ‘huge victory.’**\
-`By Neil MacFarquhar`\
-https://nytimes.com/live/2024/08/01/world/russia-prisoner-swap-us/navalny-yulia-nal
-
-**Bengals camp (literally) heats up as injuries, young playmakers make headlines**\
-`Scorching heat took its toll on some players Thursday but it didn't stop Andrei Iosivas and Charlie Jones from shining.`\
-https://nytimes.com/athletic/5675660/2024/08/01/bengals-camp-heat-iosivas-charlie-jones/
-
-**The Two Weeks That Changed Kamala Harris’s Vice Presidency**\
-`Two trips Harris took last year set the stage for the ascent that is happening now.`\
-https://nytimes.com/2024/08/01/us/politics/kamala-harris-black-racial-identity.html
 
