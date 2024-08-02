@@ -1,3 +1,15 @@
+**Kamala Harris Hires Former Obama Advisers, Building Out Campaign**\
+`David Plouffe, who managed Barack Obama’s first presidential bid, is among the new senior staff announced on Friday, along with veterans of both Obama campaigns as well as Hillary Clinton’s 2016 run.`\
+https://nytimes.com/live/2024/08/02/us/harris-trump-election/kamala-harris-david-plouffe-obama
+
+**Iceland’s New President Is a Feminist, and a Friend of Björk**\
+`Though the president’s role is mostly ceremonial, Halla Tómasdóttir said that she would seek to raise “the right questions” and bring attention to critical health issues.`\
+https://nytimes.com/2024/08/02/world/europe/iceland-president-halla-tomasdottir.html
+
+**Delaware Judge Questions Tesla About Vote on Elon Musk’s Tesla Pay**\
+`Lawyers for Tesla have asked a Delaware judge to reverse her decision to void a multibillion dollar pay package for Mr. Musk after shareholders approved it a second time in June.`\
+https://nytimes.com/2024/08/02/business/elon-musk-pay-delaware.html
+
 **Reflections About the Prisoner Swap**\
 `Readers worry about encouraging hostage-taking and speculate about Vladimir Putin’s thinking. Also: JD Vance; a female president; America at the Olympics.`\
 https://nytimes.com/2024/08/02/opinion/prisoner-swap-russia.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/02/arts/music/amplifier-newsletter-untitled-songs.ht
 **Is It Weird to Care About the Birthrate?**\
 `Pro-natalism in the shadow of the culture war.`\
 https://nytimes.com/2024/08/02/opinion/birthrate-jd-vance.html
-
-**Alan Garber Will Stay On as Harvard’s President**\
-`Dr. Garber took over as interim president after Claudine Gay resigned in January. He will now serve as president through the 2026-27 academic year.`\
-https://nytimes.com/2024/08/02/us/harvard-president-alan-garber.html
-
-**Not One of Us: Trump Uses Old Tactic to Sow Suspicion About Harris**\
-`Politicians have long cast their opponents as outsiders. But Donald J. Trump has taken the strategy to the next level against Kamala Harris.`\
-https://nytimes.com/2024/08/02/us/trump-tactic-suspicion-harris.html
-
-**The Olympics’ No. 1 Fan**\
-`Is anyone as excited by the Paris Games as Antoine Griezmann? It doesn’t seem possible.`\
-https://nytimes.com/2024/08/02/world/europe/olympics-griezmann-france.html
 
