@@ -23,6 +23,11 @@ https://nytimes.com/athletic/5672621/2024/08/02/nhl-salary-cap-core-players/
 `\
 https://nytimes.com/athletic/5672621/2024/08/02/nhl-salary-cap-core-players/
 
+**The key question facing NHL teams: How much cap space can they dedicate to core players?**\
+`Teams around the league will have to contemplate how many big contracts they can realistically dedicate to just a few of their players.
+`\
+https://nytimes.com/athletic/5672621/2024/08/02/nhl-salary-cap-core-players/
+
 **The Harris Electorate**\
 `We examine who plans to vote for her.`\
 https://nytimes.com/2024/08/02/briefing/the-harris-electorate.html
