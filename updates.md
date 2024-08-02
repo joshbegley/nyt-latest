@@ -1,3 +1,11 @@
+**Friday Briefing**\
+`A sweeping prisoner swap between Russia and the West.`\
+https://nytimes.com/2024/08/02/briefing/prisoners-russia-biden-maduro-olympics.html
+
+**Biden and Harris Greet Americans Released From Russia**\
+`Three Americans — Evan Gershkovich, a reporter of The Wall Street Journal; Alsu Kurmasheva, an editor for RFE/RL; and Paul Whelan, a former U.S. Marine — were freed in a prisoner exchange with Russia.`\
+https://nytimes.com/video/us/100000009607011/gershkovich-biden-prisoner-exchange-russia.html
+
 **Private chef, mental coach and training in Miami - Rogers has readied his body and mind**\
 `The forward's start at Villa caught some by surprise — he's taken steps to make sure he is no flash in the pan `\
 https://nytimes.com/athletic/5671387/2024/08/02/how-morgan-rogers-is-preparing-for-first-full-season-at-aston-villa/
