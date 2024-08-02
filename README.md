@@ -1,3 +1,7 @@
+**Team USA warn Puerto Rico: 'We want the No 1 seed'**\
+`PARIS – The star players and coaches on the U.`\
+https://nytimes.com/athletic/5676332/2024/08/02/team-usa-olympics-basketball-seeding/
+
 **Immigration is a wild card, making job numbers harder to parse.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/08/02/business/jobs-report-july/jobs-report-immigration
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5676242/2024/08/02/swimmer-collapse-olympics/
 **The Pulse: Yes, she's wearing a diamond goat necklace**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/5675937/2024/08/02/simone-biles-suni-lee-nfl-kickoffs-the-pulse/
-
-**Ravens rookie Roger Rosengarten gets his turn at RT as O-line decisions near**\
-`The second-round pick got his first extended look as the starting right tackle. Plus, safety Kyle Hamilton excelling in one-on-one drills.`\
-https://nytimes.com/athletic/5675726/2024/08/02/ravens-training-camp-roger-rosengarten/
 
