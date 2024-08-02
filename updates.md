@@ -1,3 +1,20 @@
+**Why tough Alabama kicker Will Reichard was the guy the Vikings simply couldn't pass up**\
+`Reichard has the makeup to be everything Vikings kickers haven't been: consistent, clutch and reliable. He has his late father to thank.`\
+https://nytimes.com/athletic/5675487/2024/08/02/will-reichard-vikings-alabama/
+
+**2024 Pro Football Hall of Fame induction: How to watch ceremony**\
+`Julius Peppers and Andre Johnson headline the Class of 2024 heading into the Pro Football Hall of Fame.`\
+https://nytimes.com/athletic/5671916/2024/08/02/2024-pro-football-hall-of-fame-induction-how-to-watch-ceremony-order-of-speeches/
+
+**The key question facing NHL teams: How much cap space can they dedicate to core players?**\
+`Teams around the league will have to contemplate how many big contracts they can realistically dedicate to just a few of their players.
+`\
+https://nytimes.com/athletic/5672621/2024/08/02/nhl-salary-cap-core-players/
+
+**A World Cup in America in the middle of summer? Have they seen the weather?**\
+`A summer of soccer in the U.S. has shown that FIFA need a weather plan for the Club World Cup and World Cup`\
+https://nytimes.com/athletic/5674585/2024/08/02/world-cup-2026-america-weather/
+
 **The key question facing NHL teams: How much cap space can they dedicate to core players?**\
 `Teams around the league will have to contemplate how many big contracts they can realistically dedicate to just a few of their players.
 `\
