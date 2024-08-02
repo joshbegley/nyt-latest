@@ -1,3 +1,11 @@
+**Three simple reasons why the 2024 Giants have underperformed**\
+`The Giants are five games behind San Diego, who are in an enviable position. Three disappointing individual years have been the difference.`\
+https://nytimes.com/athletic/5675861/2024/08/02/three-simple-reasons-why-the-2024-giants-have-underperformed/
+
+**Man Utd sign Sweden international Sandberg**\
+`Manchester United Women have completed the signing of Sweden defender Anna Sandberg from BK Hacken.`\
+https://nytimes.com/athletic/5676624/2024/08/02/anna-sandberg-manchester-united-transfer/
+
 **Flavor Flav helps Olympic discus thrower pay rent**\
 `U.S. discus thrower Veronica Fraley said she couldn't pay rent, so Flavor Flav and Alexis Ohanian started a wave of donations.`\
 https://nytimes.com/athletic/5676456/2024/08/02/veronica-fraley-flavor-flav-alexis-ohanian-olympics-rent/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5675559/2024/08/02/stephen-nedoroscik-usa-gymnastic
 **NBC Sports 'likely' to introduce 'multiview' feature for Premier League coverage**\
 `NBC Sports are &#8220;likely&#8221; to enhance its Premier League coverage with the introduction of a new &#8220;multiview&#8221; feature, offering fans the ability to watch multiple games simultaneously.`\
 https://nytimes.com/athletic/5676492/2024/08/02/nbc-sports-premier-league-multiview/
-
-**Hayes defends lack of USWNT rotation, says Davidson and Shaw could be fit for Olympic quarterfinal**\
-`Shaw has yet to feature at the Games, while Davidson missed the final group match against Australia`\
-https://nytimes.com/athletic/5676539/2024/08/02/uswnt-davidson-shaw-hayes-olympics/
-
-**Parts of Florida Under State of Emergency as Storm Moves Toward the Gulf**\
-`The storm, which could become Tropical Storm Debby, is expected to bring significant amounts of rain to the coast.`\
-https://nytimes.com/2024/08/02/weather/florida-gulf-tropical-storm-state-emergency.html
 
