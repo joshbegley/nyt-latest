@@ -1,3 +1,7 @@
+**Russian Dissident Says He Was Traded Against His Will in Inmate Swap**\
+`Ilya Yashin, one of Russia’s most prominent opposition politicians, said he appreciated his freedom, but told his jailers he did not want it if it meant going into involuntary exile.`\
+https://nytimes.com/2024/08/02/world/europe/russian-dissident-involuntary-exile.html
+
 **Former F.B.I. Agent Sentenced to Life Plus 20 Years for Sexually Abusing Child**\
 `Christopher Bauer, who was convicted in June, found work as an Alabama state trooper after he was forced out of the F.B.I., officials said.`\
 https://nytimes.com/2024/08/02/us/christopher-bauer-fbi-child-abuse-alabama.html
