@@ -1,3 +1,7 @@
+**Lions tune up with scrimmage periods before joint practice with Giants**\
+`The Lions travel to New Jersey next week for joint practices and a preseason game against the Giants.`\
+https://nytimes.com/athletic/5677164/2024/08/02/detroit-lions-training-camp-joint-practice-giants/
+
 **Chelsea working to 'find solution' to Gallagher future - Maresca**\
 `Chelsea head coach Enzo Maresca says the club are working with Conor Gallagher to &#8220;find a solution&#8221; to the ongoing uncertainty surrounding the midfielder&#8217;s future at Stamford Bridge.`\
 https://nytimes.com/athletic/5677295/2024/08/02/conor-gallagher-chelsea-maresca/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/02/us/politics/mining-cobalt-nickel-electric-vehicle
 **Andrew Nembhard leads Canada basketball to perfect group stage in win over Spain**\
 `Despite a 3-0 record, Canada is probably still heading for a scary quarterfinal opponent.`\
 https://nytimes.com/athletic/5677056/2024/08/02/paris-olympics-mens-basketball-2024-canada-spain/
-
-**It’s official: Léon Marchand owns the pool after winning his fourth gold medal.**\
-`After winning the 200 individual medley, Marchand joins Michael Phelps and Mark Spitz as the only male swimmers to win four gold medals at a single Olympics.`\
-https://nytimes.com/2024/08/02/world/olympics/leon-marchand-gold-medals.html
 
