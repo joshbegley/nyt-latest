@@ -1,3 +1,7 @@
+**Families of Hostages Despair as Hopes for Imminent Peace Deal Fade**\
+`The recent assassination of Ismail Haniyeh, the leader of Hamas’s political branch, halted negotiations for a cease-fire that would bring home the hostages held in Gaza.`\
+https://nytimes.com/2024/08/02/world/middleeast/israel-hamas-hostage-release-deal.html
+
 **Three simple reasons why the 2024 Giants have underperformed**\
 `The Giants are five games behind San Diego, who are in an enviable position. Three disappointing individual years have been the difference.`\
 https://nytimes.com/athletic/5675861/2024/08/02/three-simple-reasons-why-the-2024-giants-have-underperformed/
