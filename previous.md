@@ -1,3 +1,11 @@
+**Team GB's Whyte hospitalised after crash in BMX semi-final**\
+`Team GB BMX rider Kye Whyte has been taken to hospital after crashing out of the men&#8217;s semi-final race at the Paris Olympics.`\
+https://nytimes.com/athletic/5677109/2024/08/02/kye-whyte-olympics-crash/
+
+**Notes on Ohio State's QB battle, the loaded secondary and linebacker shuffling**\
+`Also: Mitchell Melton is making waves at defensive end and Carson Hinzman is getting work at multiple positions on the offensive line.`\
+https://nytimes.com/athletic/5677061/2024/08/02/ohio-state-football-quarterbacks-training-camp/
+
 **U.S. sets world record in 4x400 mixed relay**\
 `The quartet of Vernon Norwood, Shamier Little, Bryce Deadmon and Kaylyn Brown logged a time of 3:07.41.`\
 https://nytimes.com/athletic/5677083/2024/08/02/team-usa-mixed-relay-world-record/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/02/technology/tech-companies-ai-spending.html
 **Marchand wins gold in 200-meter IM, completes golden sweep in 4 events**\
 `Marchand joined Michael Phelps and Mark Spitz as the only men to win four individual gold medals in the same Games.`\
 https://nytimes.com/athletic/5676976/2024/08/02/leon-marchand-gold-200-meter-individual-medley-paris-olympics/
-
-**Joe Manchin Is Forcing an Agonizing Trade-Off on Climate Change**\
-`His bill moving through the Senate would deliver a win for both renewable energy and fossil fuels.`\
-https://nytimes.com/2024/08/02/opinion/joe-manchin-climate-change.html
-
-**Was I Wrong to Reveal That My Novel Was Inspired by an Adulterous Friend?**\
-`The magazine’s Ethicist columnist on character concerns, both in fiction and real life.`\
-https://nytimes.com/2024/08/02/magazine/novel-adulterous-friend-ethics.html
 

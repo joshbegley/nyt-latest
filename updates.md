@@ -1,3 +1,11 @@
+**Team GB's Whyte hospitalised after crash in BMX semi-final**\
+`Team GB BMX rider Kye Whyte has been taken to hospital after crashing out of the men&#8217;s semi-final race at the Paris Olympics.`\
+https://nytimes.com/athletic/5677109/2024/08/02/kye-whyte-olympics-crash/
+
+**Notes on Ohio State's QB battle, the loaded secondary and linebacker shuffling**\
+`Also: Mitchell Melton is making waves at defensive end and Carson Hinzman is getting work at multiple positions on the offensive line.`\
+https://nytimes.com/athletic/5677061/2024/08/02/ohio-state-football-quarterbacks-training-camp/
+
 **Russian Dissident Says He Was Traded Against His Will in Inmate Swap**\
 `Ilya Yashin, a prominent opposition politician, said he appreciated his freedom, but told his jailers he did not want it if it meant going into exile.`\
 https://nytimes.com/2024/08/02/world/europe/russian-dissident-involuntary-exile.html
