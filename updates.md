@@ -1,3 +1,11 @@
+**Malacia out for two more months with knee injury - Ten Hag**\
+`Manchester United left-back Tyrell Malacia is set to remain on the sidelines for another two months, according to manager Erik ten Hag.`\
+https://nytimes.com/athletic/5676772/2024/08/02/tyrell-malacia-injury-man-utd/
+
+**Benjamin Luxon, British Baritone Thwarted by Hearing Loss, Dies at 87**\
+`A favorite of Benjamin Britten, he won acclaim in roles like Don Giovanni, Eugene Onegin and Falstaff until his affliction forced him to largely give up singing.`\
+https://nytimes.com/2024/08/02/arts/music/benjamin-luxon-dead.html
+
 **Olympic champion Simone Biles posted on social media that she loves her ‘Black job.’**\
 `Biles is only the third woman gymnast to win the all-around competition twice at the Olympics.`\
 https://nytimes.com/2024/08/02/us/politics/simone-biles-black-job-trump.html
