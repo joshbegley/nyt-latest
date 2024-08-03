@@ -1,3 +1,7 @@
+**3 Sheriff’s Deputies Shot in Florida**\
+`One is in critical condition, and no suspect has been apprehended since the officers were shot while responding to a call at a house in Eustis, a city north of Orlando.`\
+https://nytimes.com/2024/08/03/us/shooting-florida-deputies.html
+
 **Nottingham Forest's Jota Silva: From Sunday football to Portugal's national team**\
 `The 25-year-old winger worked his way through the Portuguese leagues to become Forest's first attacking signing of the summer`\
 https://nytimes.com/athletic/5676816/2024/08/03/jota-silva-nottingham-forest-portugal/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/02/world/asia/to-lam-vietnam-leader.html
 **Three goals for the Blue Jays in the final 2 months of the season**\
 `With 52 games remaining, the Blue Jays should focus on three goals, including letting their youngsters play.`\
 https://nytimes.com/athletic/5677575/2024/08/02/blue-jays-three-goals/
-
-**Giants' Blake Snell throws first no-hitter of career vs. Reds**\
-`It was the 18th no-hitter in Giants history, and the 13th time Cincinnati has been no-hit.`\
-https://nytimes.com/athletic/5677557/2024/08/02/blake-snell-no-hitter-giants-reds/
 
