@@ -1,3 +1,19 @@
+**Everything You Need to Know to Make the Best Steak**\
+`In the final installment of her YouTube series, Sohla El-Waylly helps demystify how to prepare three types of beef: ground, short rib and rib-eye.`\
+https://nytimes.com/article/how-to-cook-steak.html
+
+**Summerville completes West Ham transfer from Leeds**\
+`West Ham United have completed the signing of Crysencio Summerville from Leeds United.`\
+https://nytimes.com/athletic/5674187/2024/08/03/crysencio-summerville-west-ham-transfer/
+
+**Killing of Hamas Leader Creates a New Rift Between the U.S. and Israel**\
+`President Biden has expressed concern that the circumstances of the assassination have thrown cease-fire talks into doubt, but Prime Minister Benjamin Netanyahu of Israel rejects that idea, officials say.`\
+https://nytimes.com/2024/08/03/us/politics/us-israel-hamas-assassination.html
+
+**Ryan Crouser cements shot put dominance with third straight Olympic gold**\
+`His throw of 22.90 meters secured his spot as the G.O.A.T. of shot put.`\
+https://nytimes.com/athletic/5678457/2024/08/03/ryan-crouser-shot-put-olympics-gold/
+
 **Cuenca joins Fulham from Villarreal**\
 `Fulham have completed the signing of Jorge Cuenca from Villarreal for an undisclosed fee.`\
 https://nytimes.com/athletic/5678489/2024/08/03/jorge-cuenca-fulham-transfer/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/08/03/world/europe/southport-stabbing-uk-riots.html
 **Shapiro Faces Scrutiny Over Sexual Harassment Complaint Against Aide**\
 `The case has attracted renewed criticism now that Josh Shapiro, the governor of Pennsylvania, is on the short list to be Kamala Harris’s running mate.`\
 https://nytimes.com/2024/08/03/us/politics/shapiro-aide-sexual-harassment.html
-
-**U.S. men's basketball thwarts Puerto Rico to secure No. 1 seed**\
-`Team USA beat Puerto Rico 104-83 behind 26 points from Anthony Edwards on Saturday to finish 3-0 in pool play.`\
-https://nytimes.com/athletic/5678149/2024/08/03/team-usa-puerto-rico-olympics-basketball/
-
-**Hearing Set to Discuss Next Steps in Trump’s Federal Election Case**\
-`The case was on hold during the appeals process, which culminated in a sweeping Supreme Court ruling on presidential immunity. Now the judge must decide which acts in the indictment qualify.`\
-https://nytimes.com/2024/08/03/us/politics/trump-federal-election-case-hearing.html
-
-**Simone Biles’s gold-medal-winning Yurchenko double pike, frame by frame.**\
-`Biles won her second Olympic vault title — eight years after her first in Rio — with her signature Yurchenko double pike and then a vault called a Cheng.`\
-https://nytimes.com/2024/08/03/world/olympics/simone-biles-vault.html
-
-**Liverpool won't rush decision over Clark's future**\
-`Liverpool are in no rush to make a decision on Bobby Clark&#8217;s future in the face of strong interest from Red Bull Salzburg.`\
-https://nytimes.com/athletic/5678343/2024/08/03/liverpool-bobby-clark-transfer-future/
 

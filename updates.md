@@ -1,3 +1,19 @@
+**Everything You Need to Know to Make the Best Steak**\
+`In the final installment of her YouTube series, Sohla El-Waylly helps demystify how to prepare three types of beef: ground, short rib and rib-eye.`\
+https://nytimes.com/article/how-to-cook-steak.html
+
+**Summerville completes West Ham transfer from Leeds**\
+`West Ham United have completed the signing of Crysencio Summerville from Leeds United.`\
+https://nytimes.com/athletic/5674187/2024/08/03/crysencio-summerville-west-ham-transfer/
+
+**Killing of Hamas Leader Creates a New Rift Between the U.S. and Israel**\
+`President Biden has expressed concern that the circumstances of the assassination have thrown cease-fire talks into doubt, but Prime Minister Benjamin Netanyahu of Israel rejects that idea, officials say.`\
+https://nytimes.com/2024/08/03/us/politics/us-israel-hamas-assassination.html
+
+**Ryan Crouser cements shot put dominance with third straight Olympic gold**\
+`His throw of 22.90 meters secured his spot as the G.O.A.T. of shot put.`\
+https://nytimes.com/athletic/5678457/2024/08/03/ryan-crouser-shot-put-olympics-gold/
+
 **Tyreek Hill, Dolphins agree to $90M extension**\
 `Hill will get $106.5 million fully guaranteed over the next four seasons, the most fully guaranteed money ever for a wide receiver.`\
 https://nytimes.com/athletic/5678460/2024/08/03/tyreek-hill-dolphins-extension/
