@@ -1,3 +1,11 @@
+**Building a 100,000-seater stadium: The challenges and benefits**\
+`Manchester United are planning to build a 100,000-seater stadium — but how difficult is that?`\
+https://nytimes.com/athletic/5674259/2024/08/03/manchester-united-new-stadium/
+
+**Bombs Rain Down in Myanmar as Junta Evades Sanctions to Buy Jet Fuel**\
+`The military has stepped up a campaign of airstrikes, and killed more civilians, to fend off rebel advances.`\
+https://nytimes.com/2024/08/03/world/asia/myanmar-airstrikes-sanctions-evasion.html
+
 **Marcell Jacobs Has Waited a Long Time to Prove the Doubters Wrong**\
 `When the Italian sprinter came from nowhere to win 100-meter gold in Tokyo, whispers spread about his sudden rise. In Paris, he hopes to silence them for good.`\
 https://nytimes.com/2024/08/03/world/olympics/marcell-jacobs-100-meters-italy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5677557/2024/08/02/blake-snell-no-hitter-giants-red
 **Yankees appear to bench Gleyber Torres for baserunning blunder**\
 `Gleyber Torres failed to hustle on a 110.7 mph single and was later removed defensively. `\
 https://nytimes.com/athletic/5677509/2024/08/02/yankees-appear-to-bench-gleyber-torres-for-baserunning-blunder/
-
-**Foggy**\
-`Rich Norris’s themeless puzzle shouldn’t be missed.`\
-https://nytimes.com/2024/08/02/crosswords/daily-puzzle-2024-08-03.html
-
-**McKays join USC-backed NIL collective, furthering alignment goal**\
-`USC's patchwork NIL collective setup took a step closer toward unification when Jeff and J.K. McKay joined the school-back House of Victory.`\
-https://nytimes.com/athletic/5677402/2024/08/02/mckay-additions-take-uscs-nil-efforts-a-step-closer-toward-alignment/
 
