@@ -1,3 +1,11 @@
+**Cristeta Comerford, White House Chef to 5 Presidents, Retires**\
+`Ms. Comerford, known as “Cheffie” and the first woman and person of color to serve as White House executive chef, reflects on three decades of feeding first families.`\
+https://nytimes.com/2024/08/03/us/politics/cristeta-comerford-white-house-chef.html
+
+**Israeli conducts deadly airstrikes on West Bank.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/08/03/world/israel-hamas-iran-hezbollah-gaza/israeli-conducts-deadly-airstrikes-on-west-bank
+
 **The Briefing: Tottenham 1-2 Bayern Munich - Spurs need another centre-forward but young players impress again**\
 `Tottenham ended their pre-season tour to Japan and South Korea with a 2-1 defeat to Bayern Munich in Seoul. We analyse the talking points`\
 https://nytimes.com/athletic/5676511/2024/08/03/tottenham-bayern-result-striker-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5677991/2024/08/03/australia-olympic-gold-mens-tenn
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/08/03/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Saying the Quiet Part Out Loud**\
-`Two billionaire Democratic donors have publicly pressured Vice President Kamala Harris to replace the F.T.C. chair, Lina Khan. Wall Street insiders are worried that could backfire.`\
-https://nytimes.com/2024/08/03/business/dealbook/saying-the-quiet-part-out-loud.html
-
-**The Briefing: Yokohama F Marinos 2-0 Newcastle - Would Guehi's arrival be a positive?**\
-`Newcastle fell to a 2-0 loss against Yokohama F Marinos in their game on Saturday — this is George Caulkin's analysis`\
-https://nytimes.com/athletic/5676509/2024/08/03/newcastle-yokohama-analysis-report-result/
 
