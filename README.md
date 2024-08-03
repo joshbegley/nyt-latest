@@ -1,3 +1,7 @@
+**Doug Emhoff, Husband of Kamala Harris, Acknowledges Long-Ago Affair**\
+`The relationship with a teacher at his children’s elementary school occurred when he was married to his first wife, years before he met Ms. Harris.`\
+https://nytimes.com/2024/08/03/us/politics/doug-emhoff-affair.html
+
 **Can Harris Win Back Arab American Voters? The Door May Be Cracked Open.**\
 `Vice President Kamala Harris has not strayed from President Biden on Israel policy, but she has taken a stronger tone on the suffering of Palestinians.`\
 https://nytimes.com/2024/08/03/us/politics/harris-israel-arab-american-voters.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5678737/2024/08/03/wisconsin-preseason-camp-scrimma
 **Blue Jays notes: Vladimir Guerrero Jr. stays hot, former Jays impacting new clubs, more**\
 `The Blue Jays share some of their process on stopping a red-hot Judge as Guerrero goes through his own hot streak. `\
 https://nytimes.com/athletic/5678495/2024/08/03/blue-jays-talk-how-to-stop-aaron-judge/
-
-**Real Madrid's Palacios to undergo surgery for cruciate ligament tear**\
-`Cesar Palacios will undergo surgery after sustaining a cruciate ligament tear in his first-team debut for Real Madrid.`\
-https://nytimes.com/athletic/5678590/2024/08/03/cesar-palacios-real-madrid-injury/
 
