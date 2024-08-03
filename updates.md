@@ -1,3 +1,11 @@
+**Cuenca joins Fulham from Villarreal**\
+`Fulham have completed the signing of Jorge Cuenca from Villarreal for an undisclosed fee.`\
+https://nytimes.com/athletic/5678489/2024/08/03/jorge-cuenca-fulham-transfer/
+
+**Violent Protests Grip English Cities in Wake of Knife Attack at Dance Class**\
+`Tensions have grown in some communities across Britain since a stabbing in the northern town of Southport on Monday, while  misinformation over the identity of the attacker has swirled online.`\
+https://nytimes.com/2024/08/03/world/europe/southport-stabbing-uk-riots.html
+
 **Tyreek Hill, Dolphins agree to 3-year, $90M extension**\
 `Hill will get $106.5 million fully guaranteed over the next four seasons, the most fully guaranteed money ever for a wide receiver.`\
 https://nytimes.com/athletic/5678460/2024/08/03/tyreek-hill-dolphins-extension/

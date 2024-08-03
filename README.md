@@ -22,7 +22,7 @@ https://nytimes.com/2024/08/03/world/europe/southport-stabbing-uk-riots.html
 `The case has attracted renewed criticism now that Josh Shapiro, the governor of Pennsylvania, is on the short list to be Kamala Harris’s running mate.`\
 https://nytimes.com/2024/08/03/us/politics/shapiro-aide-sexual-harassment.html
 
-**U.S. men's basketball thwarts Puerto Rico, secures No. 1 seed for quarterfinals**\
+**U.S. men's basketball thwarts Puerto Rico to secure No. 1 seed**\
 `Team USA beat Puerto Rico 104-83 behind 26 points from Anthony Edwards on Saturday to finish 3-0 in pool play.`\
 https://nytimes.com/athletic/5678149/2024/08/03/team-usa-puerto-rico-olympics-basketball/
 
