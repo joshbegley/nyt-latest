@@ -1,3 +1,7 @@
+**Tyreek Hill, Dolphins agree to 3-year, $90M extension**\
+`Hill will get $106.5 million fully guaranteed over the next four seasons, the most fully guaranteed money ever for a wide receiver.`\
+https://nytimes.com/athletic/5678460/2024/08/03/tyreek-hill-dolphins-extension/
+
 **Khelif clinches Olympic boxing medal amid media frenzy**\
 `VILLEPINTE, France — Following days of furor surrounding the Olympic eligibility of women’s boxer Imane Khelif, the Algerian’s quarterfinal bout against Hungary’s Anna Luca Hamori went on as planned Saturday.`\
 https://nytimes.com/athletic/5678275/2024/08/03/imane-khelif-olympics-boxing-medal/
