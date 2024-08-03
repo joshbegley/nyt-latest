@@ -1,3 +1,7 @@
+**Protests Again Rock Bangladesh, Weeks After a Deadly Crackdown**\
+`As curfews and restrictions on communication were loosened, anger over the deadly suppression of previous protests began flaring up once more.`\
+https://nytimes.com/2024/08/03/world/asia/bangladesh-protests-students.html
+
 **An anxious calm hangs over Israel.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/08/03/world/israel-hamas-iran-hezbollah-gaza/an-anxious-calm-hangs-over-israel
