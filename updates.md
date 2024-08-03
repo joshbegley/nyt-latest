@@ -1,3 +1,7 @@
+**Canada's gold medal defense ends against Germany, but players aren't leaving empty-handed**\
+`The reigning Olympic champions head home without a chance for a medal, but they won't leave empty-handed.`\
+https://nytimes.com/athletic/5678775/2024/08/03/canada-loss-olympic-womens-soccer-quarterfinal/
+
 **Blue Jays notes: Vladimir Guerrero Jr. stays hot, former Jays impacting new clubs, more**\
 `The Blue Jays share some of their process on stopping a red-hot Judge as Guerrero goes through his own hot streak. `\
 https://nytimes.com/athletic/5678495/2024/08/03/blue-jays-talk-how-to-stop-aaron-judge/
