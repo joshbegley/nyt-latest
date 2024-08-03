@@ -1,3 +1,7 @@
+**A red card and a scuffle: France and Argentina play out latest chapter of rivalry at Olympics**\
+`A tense match between France and Argentina at the Olympic Games boiled over on Friday night, culminating in a red card and a France win`\
+https://nytimes.com/athletic/5677415/2024/08/03/france-argentina-rivalry-olympics/
+
 **Twins and Royce Lewis, powered by ice cream, hand White Sox 18th straight loss**\
 `Lewis hit his 29th homer in 101 career games for the Twins, and then he got pulled aside for an increasingly frequent drug test.`\
 https://nytimes.com/athletic/5677462/2024/08/03/twins-royce-lewis-white-sox/

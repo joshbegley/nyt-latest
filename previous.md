@@ -1,3 +1,7 @@
+**A red card and a scuffle: France and Argentina play out latest chapter of rivalry at Olympics**\
+`A tense match between France and Argentina at the Olympic Games boiled over on Friday night, culminating in a red card and a France win`\
+https://nytimes.com/athletic/5677415/2024/08/03/france-argentina-rivalry-olympics/
+
 **Twins and Royce Lewis, powered by ice cream, hand White Sox 18th straight loss**\
 `Lewis hit his 29th homer in 101 career games for the Twins, and then he got pulled aside for an increasingly frequent drug test.`\
 https://nytimes.com/athletic/5677462/2024/08/03/twins-royce-lewis-white-sox/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/03/us/shooting-florida-deputies.html
 **Nottingham Forest's Jota Silva: From Sunday football to Portugal's national team**\
 `The 25-year-old winger worked his way through the Portuguese leagues to become Forest's first attacking signing of the summer`\
 https://nytimes.com/athletic/5676816/2024/08/03/jota-silva-nottingham-forest-portugal/
-
-**Building a 100,000-seater stadium: The challenges and benefits**\
-`Manchester United are planning to build a 100,000-seater stadium — but how difficult is that?`\
-https://nytimes.com/athletic/5674259/2024/08/03/manchester-united-new-stadium/
 
