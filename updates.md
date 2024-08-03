@@ -1,3 +1,11 @@
+**Wisconsin preseason camp: 5 observations from a 75-plus-play scrimmage**\
+`Tyler Van Dyke and Braedyn Locke are still jockeying for position with the starting QB job, and RB Tawee Walker continues to impress.`\
+https://nytimes.com/athletic/5678737/2024/08/03/wisconsin-preseason-camp-scrimmage/
+
+**Blue Jays notes: Trying to stop Aaron Judge, Vladimir Guerrero Jr. stays hot, former Jays impacting new clubs**\
+`The Blue Jays share some of their process on stopping a red-hot Aaron Judge as Vladimir Guerrero Jr. goes through his own hot streak. `\
+https://nytimes.com/athletic/5678495/2024/08/03/blue-jays-talk-how-to-stop-aaron-judge/
+
 **Real Madrid's Palacios to undergo surgery for cruciate ligament tear**\
 `Cesar Palacios will undergo surgery after sustaining a cruciate ligament tear in his first-team debut for Real Madrid.`\
 https://nytimes.com/athletic/5678590/2024/08/03/cesar-palacios-real-madrid-injury/
