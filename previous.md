@@ -1,3 +1,7 @@
+**Dodgers continue to slide with loss to Athletics: 'Got to get back to winning'**\
+`Treading water has instead meant taking on water for a struggling Dodgers team.`\
+https://nytimes.com/athletic/5677700/2024/08/03/dodgers-lose-oakland-athletics/
+
 **Brisbee: The unlikeliness and timing of Blake Snell's no-hitter, and the fun of it**\
 `With his gem in the 3-0 victory in Cincinnati, Snell became a forever Giant.`\
 https://nytimes.com/athletic/5677595/2024/08/03/blake-snell-no-hitter-giants-timing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5677415/2024/08/03/france-argentina-rivalry-olympic
 **Twins and Royce Lewis, powered by ice cream, hand White Sox 18th straight loss**\
 `Lewis hit his 29th homer in 101 career games for the Twins, and then he got pulled aside for an increasingly frequent drug test.`\
 https://nytimes.com/athletic/5677462/2024/08/03/twins-royce-lewis-white-sox/
-
-**Mets starter Paul Blackburn meets teammates, dazzles in debut on same day**\
-`Blackburn pitched six innings of one-run ball in a 5-1 Mets victory over the Angels.`\
-https://nytimes.com/athletic/5677701/2024/08/03/mets-paul-blackburn-debut-angels/
 

@@ -1,3 +1,7 @@
+**Dodgers continue to slide with loss to Athletics: 'Got to get back to winning'**\
+`Treading water has instead meant taking on water for a struggling Dodgers team.`\
+https://nytimes.com/athletic/5677700/2024/08/03/dodgers-lose-oakland-athletics/
+
 **Brisbee: The unlikeliness and timing of Blake Snell's no-hitter, and the fun of it**\
 `With his gem in the 3-0 victory in Cincinnati, Snell became a forever Giant.`\
 https://nytimes.com/athletic/5677595/2024/08/03/blake-snell-no-hitter-giants-timing/
