@@ -1,3 +1,7 @@
+**Harris Fuels Hope and Skepticism With Georgia’s South Asian Voters**\
+`In Georgia, a critical swing state President Biden won by less than 12,000 votes in 2020, Kamala Harris’ political identity has prompted renewed interest among Asian Americans, the fastest-growing group of eligible voters in the United States.`\
+https://nytimes.com/video/world/americas/100000009598875/harris-voters-south-asian-georgia.html
+
 **Simone Manuel is friends with the water again and back on the Olympic stage**\
 `Three years ago, Simone Manuel was struggling with overtraining. Today, she starts a rejuvenated quest for an individual medal in Paris.`\
 https://nytimes.com/athletic/5676615/2024/08/03/simone-manuel-olympics-swimming-overtraining/
