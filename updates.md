@@ -1,3 +1,7 @@
+**Canada's gold medal defense ends against Germany, but players aren't leaving empty-handed**\
+`The reigning Olympic champions head home without a chance for a medal, but they're leaving with their heads held high.`\
+https://nytimes.com/athletic/5678775/2024/08/03/canada-loss-olympic-womens-soccer-quarterfinal/
+
 **Unrest Erupts Across Britain in Wake of Deadly Knife Attack**\
 `Far-right activists scuffled with the police and counterprotesters across England after a stabbing at a dance class in Southport on Monday.`\
 https://nytimes.com/video/world/europe/100000009609850/uk-riots-southport-stabbing.html
