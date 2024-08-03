@@ -1,3 +1,11 @@
+**Rams RT Rob Havenstein is ‘week to week’**\
+`The Rams now have three starting offensive linemen sidelined and each is considered week to week, Sean McVay said.`\
+https://nytimes.com/athletic/5678726/2024/08/03/la-rams-rob-havenstein-injury-update/
+
+**Weather, Man!**\
+`Scott Hogan and Katie Hale’s puzzle brings the heat (and humidity).`\
+https://nytimes.com/2024/08/03/crosswords/daily-puzzle-2024-08-04.html
+
 **Wisconsin preseason camp: 5 observations from a 75-plus-play scrimmage**\
 `Tyler Van Dyke and Braedyn Locke are still jockeying for position with the starting QB job, and RB Tawee Walker continues to impress.`\
 https://nytimes.com/athletic/5678737/2024/08/03/wisconsin-preseason-camp-scrimmage/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5678477/2024/08/03/usa-mixed-medley-relay-gold-pari
 **Musetti wins men's singles bronze over Auger-Aliassime**\
 `Musetti's bronze medal continues a banner year for the 22-year-old.`\
 https://nytimes.com/athletic/5678569/2024/08/03/lorenzo-musetti-bronze-oylmpics-tennis/
-
-**Ina Jaffe, Dogged and Award-Winning NPR Reporter, Dies at 75**\
-`Ms. Jaffe spent decades covering politics and aging in America, and she was the first editor of the NPR program “Weekend Edition Saturday.”`\
-https://nytimes.com/2024/08/03/business/media/ina-jaffe-npr-dead.html
-
-**Julien Alfred stuns Sha'Carri Richardson to win 100m**\
-`Alfred, one of the best sprinters in the world, was simply too fast to chase down from behind, even for Richardson’s terrific closing speed.`\
-https://nytimes.com/athletic/5678570/2024/08/03/julien-alfred-shacarri-richardson-womens-100-meter-results-olympics/
 
