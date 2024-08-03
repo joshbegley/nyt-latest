@@ -1,3 +1,11 @@
+**Collyer, Amass and Wheatley: The young United trio hoping to follow Mainoo pathway**\
+`Manchester United's youngsters are hoping to take their opportunities during the tour of the U.S.`\
+https://nytimes.com/athletic/5677445/2024/08/03/manchester-united-youngsters-collyer-amass-wheatley/
+
+**Vicario and Postecoglou agree that keeper's problems last season will make him better**\
+`After a superb start at Spurs, ’keeper Vicario came under scrutiny in the second half of last season. He and his manager explain the fallout`\
+https://nytimes.com/athletic/5676151/2024/08/03/ange-postecoglou-guglielmo-vicario-corners/
+
 **Dodgers continue to slide with loss to Athletics: 'Got to get back to winning'**\
 `Treading water has instead meant taking on water for a struggling Dodgers team.`\
 https://nytimes.com/athletic/5677700/2024/08/03/dodgers-lose-oakland-athletics/
