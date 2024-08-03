@@ -1,3 +1,19 @@
+**Man Who Killed 4 After Dispute Over Stimulus Check Gets 145 Years in Prison**\
+`Malik Halfacre, 28, wounded his girlfriend and killed four of her family members in Indianapolis in 2021 after a dispute with her over money, prosecutors said.`\
+https://nytimes.com/2024/08/03/us/indianapolis-stimulus-shooting-sentence.html
+
+**How JD Vance Thinks About Power**\
+`Mr. Vance has been blunt about wanting to break norms and test constitutional limits to execute his ideas: “We have to get pretty wild, pretty far out there.”`\
+https://nytimes.com/2024/08/03/us/politics/jd-vance-donald-trump-2024-campaign.html
+
+**Who Are the Far-Right Groups Behind the U.K. Riots?**\
+`After a deadly stabbing at a children’s event in northwestern England, an array of online influencers, anti-Muslim extremists and fascist groups have stoked the unrest, experts say.`\
+https://nytimes.com/2024/08/03/world/europe/uk-stabbing-riots-protesters.html
+
+**Israel conducts deadly airstrikes on West Bank.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/08/03/world/israel-hamas-iran-hezbollah-gaza/israeli-conducts-deadly-airstrikes-on-west-bank
+
 **Cristeta Comerford, White House Chef to 5 Presidents, Retires**\
 `Ms. Comerford, known as “Cheffie” and the first woman and person of color to serve as White House executive chef, reflects on three decades of feeding first families.`\
 https://nytimes.com/2024/08/03/us/politics/cristeta-comerford-white-house-chef.html
