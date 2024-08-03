@@ -14,7 +14,7 @@ https://nytimes.com/2024/08/03/business/media/ina-jaffe-npr-dead.html
 `Alfred, one of the best sprinters in the world, was simply too fast to chase down from behind, even for Richardson’s terrific closing speed.`\
 https://nytimes.com/athletic/5678570/2024/08/03/julien-alfred-shacarri-richardson-womens-100-meter-results-olympics/
 
-**Ledecky ties record for most golds by female Olympians with 800m free win**\
+**Ledecky ties record for most golds by a female Olympian**\
 `Ledecky's win marks the first time a woman ever won four gold medals in the same event.`\
 https://nytimes.com/athletic/5678493/2024/08/03/katie-ledecky-most-gold-medals-olympics/
 

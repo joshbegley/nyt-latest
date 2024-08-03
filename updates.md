@@ -1,3 +1,7 @@
+**U.S. sets world record, edges China for gold in 4x100m mixed medley**\
+`The Americans did not medal in the mixed medley relay in Tokyo when the event made its Olympic debut.`\
+https://nytimes.com/athletic/5678477/2024/08/03/usa-mixed-medley-relay-gold-paris-olympics/
+
 **Crysencio Summerville to West Ham: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at Crysencio Summerville's move from Leeds to West Ham`\
 https://nytimes.com/athletic/5672157/2024/08/03/crysencio-summerville-west-ham-transfer-rating/
