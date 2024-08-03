@@ -1,3 +1,7 @@
+**Brisbee: The unlikeliness and timing of Blake Snell's no-hitter, and the fun of it**\
+`With his gem in the 3-0 victory in Cincinnati, Snell became a forever Giant.`\
+https://nytimes.com/athletic/5677595/2024/08/03/blake-snell-no-hitter-giants-timing/
+
 **Street Sheds Transformed New York City Dining. Many Will Soon Disappear.**\
 `New requirements for the city’s outdoor dining program are being met with concern by restaurant owners.`\
 https://nytimes.com/2024/08/03/nyregion/nyc-outdoor-dining-deadline.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5677462/2024/08/03/twins-royce-lewis-white-sox/
 **Mets starter Paul Blackburn meets teammates, dazzles in debut on same day**\
 `Blackburn pitched six innings of one-run ball in a 5-1 Mets victory over the Angels.`\
 https://nytimes.com/athletic/5677701/2024/08/03/mets-paul-blackburn-debut-angels/
-
-**'It was so good': Astros' plan for Yusei Kikuchi gets off to impressive start**\
-`Friday was a beginning — and perhaps the birth of a new style.`\
-https://nytimes.com/athletic/5677686/2024/08/03/yusei-kikuchi-astros-debut/
 
