@@ -1,3 +1,27 @@
+**Building a 100,000-seater stadium: The challenges and benefits**\
+`Manchester United are planning to build a 100,000-seater stadium — but how difficult is that?`\
+https://nytimes.com/athletic/5674259/2024/08/03/manchester-united-new-stadium/
+
+**Bombs Rain Down in Myanmar as Junta Evades Sanctions to Buy Jet Fuel**\
+`The military has stepped up a campaign of airstrikes, and killed more civilians, to fend off rebel advances.`\
+https://nytimes.com/2024/08/03/world/asia/myanmar-airstrikes-sanctions-evasion.html
+
+**Marcell Jacobs Has Waited a Long Time to Prove the Doubters Wrong**\
+`When the Italian sprinter came from nowhere to win 100-meter gold in Tokyo, whispers spread about his sudden rise. In Paris, he hopes to silence them for good.`\
+https://nytimes.com/2024/08/03/world/olympics/marcell-jacobs-100-meters-italy.html
+
+**Iran Arrests Dozens in Search for Suspects in Killing of Hamas Leader**\
+`Iran has begun a sweeping investigation into the assassination of Ismail Haniyeh, with its intensity a sign of how damaging and shocking the security failure was.`\
+https://nytimes.com/2024/08/03/world/middleeast/iran-security-response-hamas-assassination.html
+
+**It’s the Paris Olympics’ biggest day. How to prepare for — and survive — 31 gold medal events**\
+`Every Sunday in the fall, Scott Hanson hosts seven hours of television without a commercial.`\
+https://nytimes.com/athletic/5677453/2024/08/03/paris-olympics-2024-august-3-schedule/
+
+**Olympics Today: Saturday's guide to what to watch in Paris**\
+`We&#8217;ve reached the most action-packed day of the Paris Olympics.`\
+https://nytimes.com/athletic/5675995/2024/08/03/olympics-watch-guide-day-8-swimming-gymnastics-track/
+
 **To Lam Confirmed as Vietnam’s Top Leader Until at Least 2026**\
 `Mr. Lam had been filling the post of general secretary temporarily since the death of his predecessor in July. Now he is in position to consolidate power.`\
 https://nytimes.com/2024/08/02/world/asia/to-lam-vietnam-leader.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5677557/2024/08/02/blake-snell-no-hitter-giants-red
 **Yankees appear to bench Gleyber Torres for baserunning blunder**\
 `Gleyber Torres failed to hustle on a 110.7 mph single and was later removed defensively. `\
 https://nytimes.com/athletic/5677509/2024/08/02/yankees-appear-to-bench-gleyber-torres-for-baserunning-blunder/
-
-**Foggy**\
-`Rich Norris’s themeless puzzle shouldn’t be missed.`\
-https://nytimes.com/2024/08/02/crosswords/daily-puzzle-2024-08-03.html
-
-**McKays join USC-backed NIL collective, furthering alignment goal**\
-`USC's patchwork NIL collective setup took a step closer toward unification when Jeff and J.K. McKay joined the school-back House of Victory.`\
-https://nytimes.com/athletic/5677402/2024/08/02/mckay-additions-take-uscs-nil-efforts-a-step-closer-toward-alignment/
-
-**Maui Wildfire Plaintiffs Reach $4 Billion Settlement as Anniversary Nears**\
-`Hawaiian Electric is expected to pay the largest share — nearly $2 billion — but avoided a heftier price tag that could have forced the utility into bankruptcy.`\
-https://nytimes.com/2024/08/02/us/maui-wildfire-hawaii-settlement.html
-
-**Lakers unveil statue honoring Kobe Bryant, daughter Gianna**\
-`The sculpture appeared to be modeled after a photo of the two sitting courtside together at a Lakers game in 2019.`\
-https://nytimes.com/athletic/5677444/2024/08/02/kobe-bryant-gianna-statue-lakers/
-
-**Meta in Talks to Use Voices of Judi Dench, Awkwafina and Others for A.I.**\
-`If deals are struck, Meta may incorporate the actors’ voices into a digital assistant product called MetaAI, people with knowledge of the effort said.`\
-https://nytimes.com/2024/08/02/technology/meta-ai-celebrity-voices.html
-
-**Defense Secretary Revokes Plea Deal for Accused Sept. 11 Plotters**\
-`Defense Secretary Lloyd J. Austin III assumed direct oversight of the case and effectively put the death penalty back on the table.`\
-https://nytimes.com/2024/08/02/us/politics/911-plotters-plea-deal.html
 

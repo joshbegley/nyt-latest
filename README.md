@@ -27,8 +27,8 @@ https://nytimes.com/athletic/5675995/2024/08/03/olympics-watch-guide-day-8-swimm
 https://nytimes.com/2024/08/02/world/asia/to-lam-vietnam-leader.html
 
 **Three goals for the Blue Jays in the season's final two months**\
-`With 52 games remaining, there are three alternate goals the Blue Jays should focus on, including letting their youngsters play.`\
-https://nytimes.com/athletic/5677575/2024/08/02/three-goals-for-the-blue-jays-in-the-seasons-final-two-months/
+`With 52 games remaining, the Blue Jays should focus on three goals, including letting their youngsters play.`\
+https://nytimes.com/athletic/5677575/2024/08/02/blue-jays-three-goals/
 
 **Giants' Blake Snell throws first no-hitter of career vs. Reds**\
 `It was the 18th no-hitter in Giants history, and the 13th time Cincinnati has been no-hit.`\
