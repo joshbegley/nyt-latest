@@ -1,5 +1,9 @@
-**Terrorist Attack on Crowded Beach in Somalia Kills at Least 32**\
-`Gunmen and a suicide bomber struck at a popular seafront area in one of the deadliest such assaults in the country in months. The Islamist militant group Al Shabab claimed responsibility.`\
+**The Best Conversations**\
+`Whether we’re participating in them or listening to them, the goal is to forget about the outcome and just connect.`\
+https://nytimes.com/2024/08/03/briefing/the-best-conversations.html
+
+**Terrorist Attack on Crowded Beachfront in Somalia Kills at Least 32**\
+`Gunmen and a suicide bomber struck a seaside hotel in one of the deadliest such assaults in the country in months. The Islamist militant group Al Shabab claimed responsibility.`\
 https://nytimes.com/2024/08/03/world/africa/terrorist-attack-somalia-al-shabab.html
 
 **Canadian Doctors Warn Against Private Medicine as a Cure for the System’s Ills**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/03/magazine/vince-vaughn-interview.html
 **‘I’m Definitely Re-engaged:’ Harris Fuels Energy Among Georgia’s South Asian Voters**\
 `In Georgia, a critical swing state President Biden won by less than 12,000 votes in 2020, Kamala Harris’ political identity has prompted renewed interest among Asian Americans, the fastest-growing group of eligible voters in the United States.`\
 https://nytimes.com/2024/08/03/video/kamala-harris-georgia-south-asia.html
-
-**Whirlwind Harris Veepstakes Reaches Its Most Eager Phase Yet**\
-`With Kamala Harris expected to announce her running mate by Tuesday, contenders are making last-ditch efforts to showcase what they could bring to the ticket and keep themselves in the public eye.`\
-https://nytimes.com/2024/08/03/us/politics/harris-vice-president-selection.html
 
