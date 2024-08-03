@@ -1,3 +1,7 @@
+**Behind McKenzie Long's Olympic moment, a mother's love and a profound grief**\
+`The fabric was so soft and official.`\
+https://nytimes.com/athletic/5624774/2024/08/03/mckenzie-long-olympics-200-meter-mother-grief/
+
 **Couto joins Dortmund on season-long loan from Man City**\
 `Borussia Dortmund have completed the signing of Yan Couto on a season-long loan from Manchester City.`\
 https://nytimes.com/athletic/5676176/2024/08/03/yan-couto-transfer-dortmund-manchester-city-news/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/03/us/san-francisco-homeless-london-breed.html
 **Fires Have Burned 4.5 Million Acres So Far in 2024, Blanketing Much of North America in Smoke**\
 `More than 90 large fires are raging across the United States, intensifying this year’s fire season. The forecast shows no sign of letting up.`\
 https://nytimes.com/2024/08/03/weather/wildfire-smoke-california-northwest.html
-
-**Not Even the Inside of Your Fridge Is Safe From Decorating**\
-`Some artists use canvas; others, refrigerators. Welcome to fridgescaping.`\
-https://nytimes.com/2024/08/03/style/fridgescaping-fridge-decorating-tiktok.html
 
