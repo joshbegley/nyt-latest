@@ -1,3 +1,7 @@
+**Cuenca joins Fulham from Villarreal**\
+`Fulham have completed the signing of Jorge Cuenca from Villarreal for an undisclosed fee.`\
+https://nytimes.com/athletic/5678489/2024/08/03/jorge-cuenca-fulham-transfer/
+
 **Tyreek Hill, Dolphins agree to 3-year, $90M extension**\
 `Hill will get $106.5 million fully guaranteed over the next four seasons, the most fully guaranteed money ever for a wide receiver.`\
 https://nytimes.com/athletic/5678460/2024/08/03/tyreek-hill-dolphins-extension/
@@ -12,7 +16,7 @@ https://nytimes.com/2024/08/03/world/olympics/olympics-boxer-medal-imane-khelif-
 
 **Violent Protests Grip English Cities in Wake of Knife Attack at Dance Class**\
 `Tensions have grown in some communities across Britain since a stabbing in the northern town of Southport on Monday, while  misinformation over the identity of the attacker has swirled online.`\
-https://nytimes.com/2024/08/03/world/europe/britain-stabbing-protests-violence-immigration.html
+https://nytimes.com/2024/08/03/world/europe/southport-stabbing-uk-riots.html
 
 **Shapiro Faces Scrutiny Over Sexual Harassment Complaint Against Aide**\
 `The case has attracted renewed criticism now that Josh Shapiro, the governor of Pennsylvania, is on the short list to be Kamala Harris’s running mate.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/03/world/olympics/simone-biles-vault.html
 **Liverpool won't rush decision over Clark's future**\
 `Liverpool are in no rush to make a decision on Bobby Clark&#8217;s future in the face of strong interest from Red Bull Salzburg.`\
 https://nytimes.com/athletic/5678343/2024/08/03/liverpool-bobby-clark-transfer-future/
-
-**Game, Set, Match: Zheng Qinwen beats Donna Vekic to win Olympic gold**\
-`The Chinese No 6 seed earned her country's first Olympic tennis medal in singles with a clean, efficient display`\
-https://nytimes.com/athletic/5678238/2024/08/03/zheng-qinwen-donna-vekic-olympic-gold-tennis-singles-women/
 
