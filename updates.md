@@ -1,3 +1,11 @@
+**Brisbee: The unlikeliness and timing of Blake Snell's no-hitter, and the fun of it**\
+`With his gem in the 3-0 victory in Cincinnati, Snell became a forever Giant.`\
+https://nytimes.com/athletic/5677595/2024/08/03/blake-snell-no-hitter-giants-timing/
+
+**Tensions boiled over when France and Argentina met for first time since racist chants**\
+`A tense match between France and Argentina at the Olympic Games boiled over on Friday night, culminating in a red card and a France win`\
+https://nytimes.com/athletic/5677415/2024/08/03/france-argentina-rivalry-olympics/
+
 **Street Sheds Transformed New York City Dining. Many Will Soon Disappear.**\
 `New requirements for the city’s outdoor dining program are being met with concern by restaurant owners.`\
 https://nytimes.com/2024/08/03/nyregion/nyc-outdoor-dining-deadline.html
