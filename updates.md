@@ -1,3 +1,11 @@
+**Kamala Harris’s Life in Canada Was Marked by a Yearning for Home**\
+`Ms. Harris went north as a 12-year-old when her mother was recruited to conduct breast-cancer research, but California was always on her mind. The experience of a Canadian friend inspired her to become a prosecutor.`\
+https://nytimes.com/2024/08/03/world/canada/kamala-harris-montreal.html
+
+**Barcelona striker Victor is impressing in pre-season - and posing questions**\
+`Pau Victor has impressed for Barcelona during pre-season — leading to questions over his squad role this season`\
+https://nytimes.com/athletic/5677740/2024/08/03/pau-victor-barcelona-vitor-roque/
+
 **Why Josh Shapiro Would Make Such a Difference for Kamala Harris**\
 `Governor Josh Shapiro would send a signal that Vice President Harris is not captive to the left and that she puts experience ahead of ideology.`\
 https://nytimes.com/2024/08/03/opinion/kamala-harris-josh-shapiro.html
