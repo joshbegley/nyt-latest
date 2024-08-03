@@ -1,3 +1,7 @@
+**Meta in Talks to Use Voices of Judi Dench, Awkwafina and Others for A.I.**\
+`If deals are struck, Meta may incorporate the actors’ voices into a digital assistant product called MetaAI, people with knowledge of the effort said.`\
+https://nytimes.com/2024/08/02/technology/meta-ai-celebrity-voices.html
+
 **Bizarre Little League homer starts string of 4 straight dingers for D-Backs**\
 `The Diamondbacks got the scoring started against the Pirates in a chaotic and unusual way. `\
 https://nytimes.com/athletic/5677401/2024/08/02/diamondbacks-early-chaotic-scoring/

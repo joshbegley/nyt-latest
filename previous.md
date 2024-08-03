@@ -1,3 +1,7 @@
+**Meta in Talks to Use Voices of Judi Dench, Awkwafina and Others for A.I.**\
+`If deals are struck, Meta may incorporate the actors’ voices into a digital assistant product called MetaAI, people with knowledge of the effort said.`\
+https://nytimes.com/2024/08/02/technology/meta-ai-celebrity-voices.html
+
 **Defense Secretary Revokes Plea Deal for Accused Sept. 11 Plotters**\
 `Defense Secretary Lloyd J. Austin III assumed direct oversight of the case and effectively put the death penalty back on the table.`\
 https://nytimes.com/2024/08/02/us/politics/911-plotters-plea-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/02/arts/egon-schiele-drawing-heirs.html
 **Secret Service Chief Admits Lack of Certainty on Sniper Locations at Trump Rally**\
 `The location of local snipers when Donald Trump was shot has become a point of deep dispute, with local officials suggesting that the Secret Service is trying to shift blame.`\
 https://nytimes.com/2024/08/02/us/politics/secret-service-trump-assassination-attempt.html
-
-**Bizarre Little League homer starts string of 4 straight dingers for D-Backs**\
-`The Diamondbacks got the scoring started against the Pirates in a chaotic and unusual way. `\
-https://nytimes.com/athletic/5677401/2024/08/02/diamondbacks-early-chaotic-scoring/
 
