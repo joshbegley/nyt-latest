@@ -10,6 +10,10 @@ https://nytimes.com/2024/08/03/world/olympics/high-jump-athletes.html
 `"It was a tough decision, but it is all about comfort level," Joel Embiid said of playing for Team USA.`\
 https://nytimes.com/athletic/5678508/2024/08/03/joel-embiid-team-use-france-olympics/
 
+**Crysencio Summerville to West Ham: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at Crysencio Summerville's move from Leeds to West Ham`\
+https://nytimes.com/athletic/5672157/2024/08/03/crysencio-summerville-to-west-ham-the-athletic-500-transfer-ratings/
+
 **Oregon adds 5-star safety Trey McNutt to 2025 recruiting class**\
 `The Ducks are on pace to sign three consecutive top-10 recruiting classes for the first time in school history.`\
 https://nytimes.com/athletic/5647036/2024/08/03/oregon-recruiting-trey-mcnutt-ohio-state/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/03/us/politics/us-israel-hamas-assassination.html
 **Ryan Crouser cements shot put dominance with third straight Olympic gold**\
 `His throw of 22.90 meters secured his spot as the G.O.A.T. of shot put.`\
 https://nytimes.com/athletic/5678457/2024/08/03/ryan-crouser-shot-put-olympics-gold/
-
-**Cuenca joins Fulham from Villarreal**\
-`Fulham have completed the signing of Jorge Cuenca from Villarreal for an undisclosed fee.`\
-https://nytimes.com/athletic/5678489/2024/08/03/jorge-cuenca-fulham-transfer/
 
