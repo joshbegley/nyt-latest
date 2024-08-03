@@ -1,3 +1,7 @@
+**A 22-minute nightmare for Phillies opens more wounds as skid continues**\
+`Mariners 10, Phillies 2. A low point for the team that still, somehow, owns the best record in the National League.`\
+https://nytimes.com/athletic/5677718/2024/08/03/phillies-lose-mariners/
+
 **Vince Vaughn Turned This Interview Into Self-Help**\
 `I went in expecting a swaggering, overconfident guy. I found something much more interesting.`\
 https://nytimes.com/2024/08/03/magazine/vince-vaughn-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/03/style/fridgescaping-fridge-decorating-tiktok.html
 **Why Are Your Property Taxes Higher Than Your Neighbor’s?**\
 `Property taxes for condominiums in New York City are calculated differently from taxes in other dwellings.`\
 https://nytimes.com/2024/08/03/realestate/why-are-your-property-taxes-higher-than-your-neighbors.html
-
-**Harold Makes the World With His Purple Crayon. Who Made Harold?**\
-`Before there was a feature film or a book, there was Crockett Johnson.`\
-https://nytimes.com/2024/08/03/books/review/harold-and-the-purple-crayon.html
 
