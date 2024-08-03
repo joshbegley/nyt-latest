@@ -1,3 +1,7 @@
+**A 22-minute nightmare for Phillies opens more wounds as skid continues**\
+`Mariners 10, Phillies 2. A low point for the team that still, somehow, owns the best record in the National League.`\
+https://nytimes.com/athletic/5677718/2024/08/03/phillies-lose-mariners/
+
 **Vince Vaughn Turned This Interview Into Self-Help**\
 `I went in expecting a swaggering, overconfident guy. I found something much more interesting.`\
 https://nytimes.com/2024/08/03/magazine/vince-vaughn-interview.html
