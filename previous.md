@@ -1,3 +1,7 @@
+**Khelif clinches Olympic boxing medal amid media frenzy**\
+`VILLEPINTE, France — Following days of furor surrounding the Olympic eligibility of women’s boxer Imane Khelif, the Algerian’s quarterfinal bout against Hungary’s Anna Luca Hamori went on as planned Saturday.`\
+https://nytimes.com/athletic/5678275/2024/08/03/imane-khelif-olympics-boxing-medal/
+
 **Algerian Boxer at Center of Olympic Eligibility Fight Clinches Medal**\
 `Imane Khelif advanced to the semifinals, ensuring she will leave the Paris Games with at least a bronze medal.`\
 https://nytimes.com/2024/08/03/world/olympics/olympics-boxer-medal-imane-khelif-algeria.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5678238/2024/08/03/zheng-qinwen-donna-vekic-olympic
 **Stephen Nedoroscik's legend grows with Olympic bronze on pommel horse**\
 `Ireland’s Rhys McClenaghan won the gold and Kazakhstan's Nurmiman Kurbanov grabbed the silver.`\
 https://nytimes.com/athletic/5678307/2024/08/03/stephen-nedoroscik-bronze-olympics-pommel-horse-final/
-
-**Atletico in talks with City over Alvarez transfer**\
-`Atletico Madrid are in talks with Manchester City over a possible move for Julian Alvarez.`\
-https://nytimes.com/athletic/5678245/2024/08/03/julian-alvarez-atletico-madrid-man-city-transfer/
 

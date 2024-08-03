@@ -1,3 +1,7 @@
+**Khelif clinches Olympic boxing medal amid media frenzy**\
+`VILLEPINTE, France — Following days of furor surrounding the Olympic eligibility of women’s boxer Imane Khelif, the Algerian’s quarterfinal bout against Hungary’s Anna Luca Hamori went on as planned Saturday.`\
+https://nytimes.com/athletic/5678275/2024/08/03/imane-khelif-olympics-boxing-medal/
+
 **Algerian Boxer at Center of Olympic Eligibility Fight Clinches Medal**\
 `Imane Khelif advanced to the semifinals, ensuring she will leave the Paris Games with at least a bronze medal.`\
 https://nytimes.com/2024/08/03/world/olympics/olympics-boxer-medal-imane-khelif-algeria.html
