@@ -1,3 +1,7 @@
+**Shapiro Faces Scrutiny Over Sexual Harassment Complaint Against Aide**\
+`The case has attracted renewed criticism now that Josh Shapiro, the governor of Pennsylvania, is on the short list to be Kamala Harris’s running mate.`\
+https://nytimes.com/2024/08/03/us/politics/shapiro-aide-sexual-harassment.html
+
 **U.S. men's basketball thwarts Puerto Rico, secures No. 1 seed for quarterfinals**\
 `Team USA beat Puerto Rico 104-83 behind 26 points from Anthony Edwards on Saturday to finish 3-0 in pool play.`\
 https://nytimes.com/athletic/5678149/2024/08/03/team-usa-puerto-rico-olympics-basketball/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5678148/2024/08/03/olympics-false-start-rules-track
 **Alexander Waugh, Literary Scion of a Literary Dynasty, Dies at 60**\
 `The brother, son and grandson of famous English writers, he carved out his own space as a composer, critic, columnist and historian.`\
 https://nytimes.com/2024/08/03/books/alexander-waugh-dead.html
-
-**Chelsea 'can't relax' in Conference League, Gusto insists**\
-`Malo Gusto has warned his Chelsea team-mates that they cannot take their place in the UEFA Conference League this season for granted.`\
-https://nytimes.com/athletic/5677810/2024/08/03/chelsea-conference-league-malo-gusto/
 
