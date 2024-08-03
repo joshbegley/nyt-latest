@@ -1,3 +1,7 @@
+**To Lam Confirmed as Vietnam’s Top Leader Until at Least 2026**\
+`Mr. Lam had been filling the post of general secretary temporarily since the death of his predecessor in July. Now he is in position to consolidate power.`\
+https://nytimes.com/2024/08/02/world/asia/to-lam-vietnam-leader.html
+
 **Three goals for the Blue Jays in the season's final two months**\
 `With 52 games remaining, there are three alternate goals the Blue Jays should focus on, including letting their youngsters play.`\
 https://nytimes.com/athletic/5677575/2024/08/02/three-goals-for-the-blue-jays-in-the-seasons-final-two-months/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/02/technology/meta-ai-celebrity-voices.html
 **Defense Secretary Revokes Plea Deal for Accused Sept. 11 Plotters**\
 `Defense Secretary Lloyd J. Austin III assumed direct oversight of the case and effectively put the death penalty back on the table.`\
 https://nytimes.com/2024/08/02/us/politics/911-plotters-plea-deal.html
-
-**Aerosmith Retires From Touring, Citing Steven Tyler’s Vocal Injury**\
-`Last year, the band’s frontman, Steven Tyler, suffered a vocal injury during a show, and the farewell tour was postponed. The band announced its retirement on Friday, saying a full recovery was not possible.`\
-https://nytimes.com/2024/08/02/arts/music/aerosmith-retirement-tour-steven-tyler.html
 

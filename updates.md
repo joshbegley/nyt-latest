@@ -1,3 +1,11 @@
+**Three goals for the Blue Jays in the season's final two months**\
+`With 52 games remaining, there are three alternate goals the Blue Jays should focus on, including letting their youngsters play.`\
+https://nytimes.com/athletic/5677575/2024/08/02/three-goals-for-the-blue-jays-in-the-seasons-final-two-months/
+
+**Lakers unveil statue honoring Kobe Bryant, daughter Gianna**\
+`The sculpture appeared to be modeled after a photo of the two sitting courtside together at a Lakers game in 2019.`\
+https://nytimes.com/athletic/5677444/2024/08/02/kobe-bryant-gianna-statue-lakers/
+
 **Giants' Blake Snell throws first no-hitter of career vs. Reds**\
 `It was the 18th no-hitter in Giants history, and the 13th time Cincinnati has been no-hit.`\
 https://nytimes.com/athletic/5677557/2024/08/02/blake-snell-no-hitter-giants-reds/
