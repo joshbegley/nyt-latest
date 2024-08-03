@@ -1,3 +1,11 @@
+**Chargers training camp, Day 9: Chris Rumph II making strong case for 53-man**\
+`The Chargers’ edge rusher room is already "stacked." Rumph could add depth and protection in case of injury to Joey Bosa or Khalil Mack.`\
+https://nytimes.com/athletic/5677725/2024/08/03/chargers-training-camp-chris-rumph-ii/
+
+**Taylor Fritz and Tommy Paul win Olympic bronze tennis medal for Team USA**\
+`Taylor Fritz and Tommy Paul built on Rajeev Ram and Austin Krajicek&#8217;s Olympic silver medal in men&#8217;s tennis doubles, by beating Czech pair Tomas Machac and Adam Pavlasek 6-3, 6-4 for the bronze on Court Philippe-Chatrier at Roland Garros on Saturday afternoon.`\
+https://nytimes.com/athletic/5678160/2024/08/03/taylor-fritz-tommy-paul-olympics-tennis-bronze-medal/
+
 **A Times Russia Reporter Reflects on Evan Gershkovich’s Release**\
 `Gershkovich, a reporter for The Wall Street Journal, was freed on Thursday after 16 months in a Russian prison. Anton Troianovski, The Times’s Moscow bureau chief, shared how he covered the moment.`\
 https://nytimes.com/2024/08/03/insider/prisoner-swap-evan-gershkovich.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/08/03/world/israel-hamas-iran-hezbollah-gaza/israe
 **The Briefing: Tottenham 1-2 Bayern Munich - Spurs need another centre-forward but young players impress again**\
 `Tottenham ended their pre-season tour to Japan and South Korea with a 2-1 defeat to Bayern Munich in Seoul. We analyse the talking points`\
 https://nytimes.com/athletic/5676511/2024/08/03/tottenham-bayern-result-striker-transfer/
-
-**IOC’s Bach dismisses boxing controversy as ‘culture war'**\
-`Thomas Bach, the president of the International Olympic Committee, told reporters on Saturday that two women in the boxing tournament who have had their eligibility questioned did not have differences in sex development.`\
-https://nytimes.com/athletic/5677931/2024/08/03/olympics-boxing-womens-khelif-lin-thomas-bach-comments/
-
-**Simone Biles no longer worries about being judged, on or off the competition floor.**\
-`By Juliet Macur`\
-https://nytimes.com/live/2024/08/03/world/olympics-simone-biles-vault-gymnastics/simone-biles-no-longer-worries-about-being-judged-on-or-off-the-competition-floor
 
