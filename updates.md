@@ -1,3 +1,7 @@
+**Couto joins Dortmund on season-long loan from Man City**\
+`Borussia Dortmund have completed the signing of Yan Couto on a season-long loan from Manchester City.`\
+https://nytimes.com/athletic/5676176/2024/08/03/yan-couto-transfer-dortmund-manchester-city-news/
+
 **A 22-minute nightmare for Phillies opens more wounds as skid continues**\
 `Mariners 10, Phillies 2. A low point for the team that still, somehow, owns the best record in the National League.`\
 https://nytimes.com/athletic/5677718/2024/08/03/phillies-lose-mariners/
