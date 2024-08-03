@@ -1,3 +1,7 @@
+**Doug Emhoff, Husband of Kamala Harris, Acknowledges Long-Ago Affair**\
+`The relationship with a teacher at his children’s elementary school occurred when he was married to his first wife, years before he met Ms. Harris.`\
+https://nytimes.com/2024/08/03/us/politics/doug-emhoff-affair.html
+
 **Can Harris Win Back Arab American Voters? The Door May Be Cracked Open.**\
 `Vice President Kamala Harris has not strayed from President Biden on Israel policy, but she has taken a stronger tone on the suffering of Palestinians.`\
 https://nytimes.com/2024/08/03/us/politics/harris-israel-arab-american-voters.html
