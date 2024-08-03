@@ -1,3 +1,31 @@
+**Why Josh Shapiro Would Make Such a Difference for Kamala Harris**\
+`Governor Josh Shapiro would send a signal that Vice President Harris is not captive to the left and that she puts experience ahead of ideology.`\
+https://nytimes.com/2024/08/03/opinion/kamala-harris-josh-shapiro.html
+
+**The Radical Message of ‘Sweet Valley High’**\
+`Twins, one good and one bad. Choose your adventure. Or be both at the same time.`\
+https://nytimes.com/2024/08/03/opinion/sweet-valley-high-childhood-awakening.html
+
+**‘An End to the Trump Story’: Three Columnists Size Up Harris and Her V.P. Options**\
+`What three columnists are thinking about possible Democratic presidential tickets and the state of the race between Harris and Trump.`\
+https://nytimes.com/2024/08/03/opinion/kamala-harris-vp-pick.html
+
+**Dogs Are the Best! But They Highlight Our Hypocrisy.**\
+`While we increasingly pamper our dogs, we blithely accept the torture of the pigs we eat.`\
+https://nytimes.com/2024/08/03/opinion/dogs-pets-animal-abuse.html
+
+**Can the Harris Sugar High Last? Yes.**\
+`Michelle Goldberg on the power of emotion in politics.`\
+https://nytimes.com/2024/08/03/opinion/kamala-harris-president-support.html
+
+**Why Silicon Valley Should Get Behind Kamala Harris**\
+`Kamala Harris’s presidency could support the technological innovation our economy needs.`\
+https://nytimes.com/2024/08/03/opinion/kamala-harris-innovation-technology.html
+
+**Kamala Harris on Center Stage**\
+`Readers discuss “White Dudes,” her laugh, her previous positions and a columnist’s mixed emotions.`\
+https://nytimes.com/2024/08/03/opinion/kamala-harris.html
+
 **The Best Conversations**\
 `Whether we’re participating in them or listening to them, the goal is to forget about the outcome and just connect.`\
 https://nytimes.com/2024/08/03/briefing/the-best-conversations.html
@@ -9,32 +37,4 @@ https://nytimes.com/2024/08/03/world/africa/terrorist-attack-somalia-al-shabab.h
 **Canadian Doctors Warn Against Private Medicine as a Cure for the System’s Ills**\
 `The Canadian Medical Association has called for a ban on payments for procedures long covered by public systems and is warning about contracting services out.`\
 https://nytimes.com/2024/08/03/world/canada/canada-private-health-care.html
-
-**Wordle Review No. 1,142, Sunday, August 4, 2024**\
-`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/08/03/crosswords/wordle-review-1142.html
-
-**The Connections Companion No. 420, August 4, 2024**\
-`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
-https://nytimes.com/2024/08/03/crosswords/connections-companion-420.html
-
-**Behind McKenzie Long's Olympic moment, a mother's love and a profound grief**\
-`The fabric was so soft and official.`\
-https://nytimes.com/athletic/5624774/2024/08/03/mckenzie-long-olympics-200-meter-mother-grief/
-
-**Couto joins Dortmund on season-long loan from Man City**\
-`Borussia Dortmund have completed the signing of Yan Couto on a season-long loan from Manchester City.`\
-https://nytimes.com/athletic/5676176/2024/08/03/yan-couto-transfer-dortmund-manchester-city-news/
-
-**A 22-minute nightmare for Phillies opens more wounds as skid continues**\
-`Mariners 10, Phillies 2. A low point for the team that still, somehow, owns the best record in the National League.`\
-https://nytimes.com/athletic/5677718/2024/08/03/phillies-lose-mariners/
-
-**Vince Vaughn Turned This Interview Into Self-Help**\
-`I went in expecting a swaggering, overconfident guy. I found something much more interesting.`\
-https://nytimes.com/2024/08/03/magazine/vince-vaughn-interview.html
-
-**‘I’m Definitely Re-engaged:’ Harris Fuels Energy Among Georgia’s South Asian Voters**\
-`In Georgia, a critical swing state President Biden won by less than 12,000 votes in 2020, Kamala Harris’ political identity has prompted renewed interest among Asian Americans, the fastest-growing group of eligible voters in the United States.`\
-https://nytimes.com/2024/08/03/video/kamala-harris-georgia-south-asia.html
 
