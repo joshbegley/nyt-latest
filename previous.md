@@ -1,3 +1,11 @@
+**Algerian Boxer at Center of Olympic Eligibility Fight Clinches Medal**\
+`Imane Khelif advanced to the semifinals, ensuring she will leave the Paris Games with at least a bronze medal.`\
+https://nytimes.com/2024/08/03/world/olympics/olympics-boxer-medal-imane-khelif-algeria.html
+
+**Violent Protests Grip English Cities in Wake of Knife Attack at Dance Class**\
+`Tensions have grown in some communities across Britain since a stabbing in the northern town of Southport on Monday, while  misinformation over the identity of the attacker has swirled online.`\
+https://nytimes.com/2024/08/03/world/europe/britain-stabbing-protests-violence-immigration.html
+
 **Shapiro Faces Scrutiny Over Sexual Harassment Complaint Against Aide**\
 `The case has attracted renewed criticism now that Josh Shapiro, the governor of Pennsylvania, is on the short list to be Kamala Harris’s running mate.`\
 https://nytimes.com/2024/08/03/us/politics/shapiro-aide-sexual-harassment.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5678307/2024/08/03/stephen-nedoroscik-bronze-olympi
 **Atletico in talks with City over Alvarez transfer**\
 `Atletico Madrid are in talks with Manchester City over a possible move for Julian Alvarez.`\
 https://nytimes.com/athletic/5678245/2024/08/03/julian-alvarez-atletico-madrid-man-city-transfer/
-
-**False starts on the track at the Olympic Games: what are the rules?**\
-`Three sprinters were disqualified in the early rounds of the men's 100m in Paris — including an 18-year-old from Mozambique`\
-https://nytimes.com/athletic/5678148/2024/08/03/olympics-false-start-rules-track-explained/
-
-**Alexander Waugh, Literary Scion of a Literary Dynasty, Dies at 60**\
-`The brother, son and grandson of famous English writers, he carved out his own space as a composer, critic, columnist and historian.`\
-https://nytimes.com/2024/08/03/books/alexander-waugh-dead.html
 

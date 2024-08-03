@@ -1,3 +1,11 @@
+**Algerian Boxer at Center of Olympic Eligibility Fight Clinches Medal**\
+`Imane Khelif advanced to the semifinals, ensuring she will leave the Paris Games with at least a bronze medal.`\
+https://nytimes.com/2024/08/03/world/olympics/olympics-boxer-medal-imane-khelif-algeria.html
+
+**Violent Protests Grip English Cities in Wake of Knife Attack at Dance Class**\
+`Tensions have grown in some communities across Britain since a stabbing in the northern town of Southport on Monday, while  misinformation over the identity of the attacker has swirled online.`\
+https://nytimes.com/2024/08/03/world/europe/britain-stabbing-protests-violence-immigration.html
+
 **Shapiro Faces Scrutiny Over Sexual Harassment Complaint Against Aide**\
 `The case has attracted renewed criticism now that Josh Shapiro, the governor of Pennsylvania, is on the short list to be Kamala Harris’s running mate.`\
 https://nytimes.com/2024/08/03/us/politics/shapiro-aide-sexual-harassment.html
