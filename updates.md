@@ -1,3 +1,7 @@
+**Berkshire’s Cash Stockpile Soars as It Cuts Its Stake in Apple**\
+`The conglomerate reported nearly $277 billion in cash in the second quarter. And while it sold about 390 million shares in Apple, it still owned about 400 million.`\
+https://nytimes.com/2024/08/03/business/berkshire-hathaway-buffett-earnings.html
+
 **Why the Chicago Cubs have to be thinking bigger with their rotation**\
 `The Cubs' rock-solid starting staff in 2024 shouldn't preclude them from reinforcing the rotation via trade or free-agent signings. `\
 https://nytimes.com/athletic/5677245/2024/08/03/chicago-cubs-have-to-think-bigger-with-rotation/

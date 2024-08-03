@@ -1,3 +1,7 @@
+**Berkshire’s Cash Stockpile Soars as It Cuts Its Stake in Apple**\
+`The conglomerate reported nearly $277 billion in cash in the second quarter. And while it sold about 390 million shares in Apple, it still owned about 400 million.`\
+https://nytimes.com/2024/08/03/business/berkshire-hathaway-buffett-earnings.html
+
 **Why the Chicago Cubs have to be thinking bigger with their rotation**\
 `The Cubs' rock-solid starting staff in 2024 shouldn't preclude them from reinforcing the rotation via trade or free-agent signings. `\
 https://nytimes.com/athletic/5677245/2024/08/03/chicago-cubs-have-to-think-bigger-with-rotation/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/03/world/europe/uk-stabbing-riots-protesters.html
 **Cristeta Comerford, White House Chef to 5 Presidents, Retires**\
 `Ms. Comerford, known as “Cheffie” and the first woman and person of color to serve as White House executive chef, reflects on three decades of feeding first families.`\
 https://nytimes.com/2024/08/03/us/politics/cristeta-comerford-white-house-chef.html
-
-**Israel conducts deadly airstrikes on West Bank.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/live/2024/08/03/world/israel-hamas-iran-hezbollah-gaza/israeli-conducts-deadly-airstrikes-on-west-bank
 
