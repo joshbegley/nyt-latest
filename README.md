@@ -1,3 +1,7 @@
+**An anxious calm hangs over Israel.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/08/03/world/israel-hamas-iran-hezbollah-gaza/an-anxious-calm-hangs-over-israel
+
 **Kamala Harris’s Life in Canada Was Marked by a Yearning for Home**\
 `Ms. Harris went north as a 12-year-old when her mother was recruited to conduct breast-cancer research, but California was always on her mind. The experience of a Canadian friend inspired her to become a prosecutor.`\
 https://nytimes.com/2024/08/03/world/canada/kamala-harris-montreal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/03/opinion/kamala-harris-innovation-technology.html
 **Kamala Harris on Center Stage**\
 `Readers discuss “White Dudes,” her laugh, her previous positions and a columnist’s mixed emotions.`\
 https://nytimes.com/2024/08/03/opinion/kamala-harris.html
-
-**The Best Conversations**\
-`Whether we’re participating in them or listening to them, the goal is to forget about the outcome and just connect.`\
-https://nytimes.com/2024/08/03/briefing/the-best-conversations.html
 
