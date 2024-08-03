@@ -1,3 +1,15 @@
+**Canadian Doctors Warn Against Private Medicine as a Cure for the System’s Ills**\
+`The Canadian Medical Association has called for a ban on payments for procedures long covered by public systems and is warning about contracting services out.`\
+https://nytimes.com/2024/08/03/world/canada/canada-private-health-care.html
+
+**Wordle Review No. 1,142, Sunday, August 4, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/08/03/crosswords/wordle-review-1142.html
+
+**The Connections Companion No. 420, August 4, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/08/03/crosswords/connections-companion-420.html
+
 **Behind McKenzie Long's Olympic moment, a mother's love and a profound grief**\
 `The fabric was so soft and official.`\
 https://nytimes.com/athletic/5624774/2024/08/03/mckenzie-long-olympics-200-meter-mother-grief/
