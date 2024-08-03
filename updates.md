@@ -1,3 +1,7 @@
+**The Pentagon promises to help defend Israel.**\
+`By Victoria Kim and Eric Schmitt`\
+https://nytimes.com/live/2024/08/03/world/israel-hamas-iran-hezbollah-gaza/the-pentagon-promises-to-help-defend-israel
+
 **What to Watch as Simone Biles Seeks Gold in Vault**\
 `Biles, who will be competing against her teammate Jade Carey and Brazil’s Rebeca Andrade, is looking to add her seventh Olympic gold medal and 10th over all.`\
 https://nytimes.com/2024/08/03/world/olympics/simone-biles-gymnastic-watch-vault.html

@@ -1,3 +1,7 @@
+**The Pentagon promises to help defend Israel.**\
+`By Victoria Kim and Eric Schmitt`\
+https://nytimes.com/live/2024/08/03/world/israel-hamas-iran-hezbollah-gaza/the-pentagon-promises-to-help-defend-israel
+
 **What to Watch as Simone Biles Seeks Gold in Vault**\
 `Biles, who will be competing against her teammate Jade Carey and Brazil’s Rebeca Andrade, is looking to add her seventh Olympic gold medal and 10th over all.`\
 https://nytimes.com/2024/08/03/world/olympics/simone-biles-gymnastic-watch-vault.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/03/insider/murdoch-family.html
 **A Brooklyn Enclave’s Uneasy Peace With 4,000 New Migrant Neighbors**\
 `A pair of shootings deepened quality-of-life concerns among Brooklyn neighbors of a giant office development being used to shelter migrants from Africa and Latin America.`\
 https://nytimes.com/2024/08/03/nyregion/migrant-shelter-brooklyn-killings.html
-
-**Equestrian Is Having an Uncomfortable Moment. Its Olympic Horses Are Not.**\
-`Accusations of mistreatment cast a shadow over dressage and other events. Can cooling tents and locally sourced hay change the narrative?`\
-https://nytimes.com/2024/08/03/world/olympics/equestrian-is-having-an-uncomfortable-moment-its-olympic-horses-are-not.html
 
