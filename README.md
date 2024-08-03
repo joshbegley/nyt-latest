@@ -1,3 +1,7 @@
+**Tyreek Hill, Dolphins agree to 3-year, $90M extension**\
+`Hill will get $106.5 million fully guaranteed over the next four seasons, the most fully guaranteed money ever for a wide receiver.`\
+https://nytimes.com/athletic/5678460/2024/08/03/tyreek-hill-dolphins-extension/
+
 **Khelif clinches Olympic boxing medal amid media frenzy**\
 `VILLEPINTE, France — Following days of furor surrounding the Olympic eligibility of women’s boxer Imane Khelif, the Algerian’s quarterfinal bout against Hungary’s Anna Luca Hamori went on as planned Saturday.`\
 https://nytimes.com/athletic/5678275/2024/08/03/imane-khelif-olympics-boxing-medal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5678343/2024/08/03/liverpool-bobby-clark-transfer-f
 **Game, Set, Match: Zheng Qinwen beats Donna Vekic to win Olympic gold**\
 `The Chinese No 6 seed earned her country's first Olympic tennis medal in singles with a clean, efficient display`\
 https://nytimes.com/athletic/5678238/2024/08/03/zheng-qinwen-donna-vekic-olympic-gold-tennis-singles-women/
-
-**Stephen Nedoroscik's legend grows with Olympic bronze on pommel horse**\
-`Ireland’s Rhys McClenaghan won the gold and Kazakhstan's Nurmiman Kurbanov grabbed the silver.`\
-https://nytimes.com/athletic/5678307/2024/08/03/stephen-nedoroscik-bronze-olympics-pommel-horse-final/
 
