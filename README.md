@@ -1,3 +1,7 @@
+**Terrorist Attack on Crowded Beach in Somalia Kills at Least 32**\
+`Gunmen and a suicide bomber struck at a popular seafront area in one of the deadliest such assaults in the country in months. The Islamist militant group Al Shabab claimed responsibility.`\
+https://nytimes.com/2024/08/03/world/africa/terrorist-attack-somalia-al-shabab.html
+
 **Canadian Doctors Warn Against Private Medicine as a Cure for the System’s Ills**\
 `The Canadian Medical Association has called for a ban on payments for procedures long covered by public systems and is warning about contracting services out.`\
 https://nytimes.com/2024/08/03/world/canada/canada-private-health-care.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/03/video/kamala-harris-georgia-south-asia.html
 **Whirlwind Harris Veepstakes Reaches Its Most Eager Phase Yet**\
 `With Kamala Harris expected to announce her running mate by Tuesday, contenders are making last-ditch efforts to showcase what they could bring to the ticket and keep themselves in the public eye.`\
 https://nytimes.com/2024/08/03/us/politics/harris-vice-president-selection.html
-
-**‘House of the Dragon’: All the Dragons and Their Riders So Far**\
-`The dragons are amassing, and just like their humans, they have histories and personalities, too. Here’s a rundown of who’s riding whom.`\
-https://nytimes.com/2024/08/03/arts/television/house-of-the-dragon-season-2-finale-hbo.html
 
