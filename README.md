@@ -1,9 +1,13 @@
+**Ina Jaffe, Dogged and Award-Winning NPR Reporter, Dies at 75**\
+`Ms. Jaffe spent decades covering politics and aging in America, and she was the first editor of the NPR program “Weekend Edition Saturday.”`\
+https://nytimes.com/2024/08/03/business/media/ina-jaffe-npr-dead.html
+
 **Julien Alfred stuns Sha'Carri Richardson to win 100m**\
 `Alfred, one of the best sprinters in the world, was simply too fast to chase down from behind, even for Richardson’s terrific closing speed.`\
 https://nytimes.com/athletic/5678570/2024/08/03/julien-alfred-shacarri-richardson-womens-100-meter-results-olympics/
 
 **Ledecky ties record for most golds by female Olympians with 800m free win**\
-`Ledecky has now won 14 total Olympic medals across four Games.`\
+`Ledecky's win marks the first time a woman ever won four gold medals in the same event.`\
 https://nytimes.com/athletic/5678493/2024/08/03/katie-ledecky-most-gold-medals-olympics/
 
 **Anton van Dalen, Whose Art Examined an Evolving Neighborhood, Dies at 85**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5647036/2024/08/03/oregon-recruiting-trey-mcnutt-oh
 **Crysencio Summerville has gone. The only way to judge this is by what Leeds do next**\
 `Farke says Leeds have to "pay for a few sins in the past" - so can they still build a squad to challenge for promotion?`\
 https://nytimes.com/athletic/5673979/2024/08/03/leeds-replace-crysencio-summerville-transfer/
-
-**Everything You Need to Know to Make the Best Steak**\
-`In the final installment of her YouTube series, Sohla El-Waylly helps demystify how to prepare three types of beef: ground, short rib and rib-eye.`\
-https://nytimes.com/article/how-to-cook-steak.html
 
