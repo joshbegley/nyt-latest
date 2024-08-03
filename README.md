@@ -1,3 +1,7 @@
+**Atletico sign striker Sorloth from Villarreal**\
+`Atletico Madrid have completed the signing of striker Alexander Sorloth from Villarreal.`\
+https://nytimes.com/athletic/5671929/2024/08/03/alexander-sorloth-atletico-madrid-transfer/
+
 **Is the Men’s 100 Meters Still a Can’t-Miss Olympic Moment?**\
 `Lacking star power and tense rivalries, the event is not even be the most anticipated 100-meter race at the Paris Games.`\
 https://nytimes.com/2024/08/03/world/olympics/mens-100-meters-noah-lyles.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/03/world/olympics-simone-biles-vault-gymnastics
 **Long Johns, Forensics and a Bound Russian Killer: Inside the Big Prisoner Swap**\
 `The complex choreography caught some prisoners being freed in their robes and slippers, unaware of their fates, and required forensic experts to make positive identifications.`\
 https://nytimes.com/2024/08/03/world/europe/russia-prisoner-swap.html
-
-**Kansas man who destroyed Jackie Robinson statue sentenced to 15 years in prison**\
-`The man responsible for stealing a Jackie Robinson statue from a youth baseball league in Wichita, Kan.`\
-https://nytimes.com/athletic/5678229/2024/08/03/jackie-robinson-statue-prison-sentence/
 
