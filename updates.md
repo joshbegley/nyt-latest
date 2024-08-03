@@ -1,3 +1,11 @@
+**Quotation of the Day: In Ten Seconds, One-Man Team Could Be Done**\
+`Quotation of the Day for Saturday, August 3, 2024.`\
+https://nytimes.com/2024/08/03/pageoneplus/quotation-of-the-day-in-ten-seconds-one-man-team-could-be-done.html
+
+**Corrections: Aug. 3, 2024**\
+`Corrections that appeared in print on Saturday, Aug. 3, 2024.`\
+https://nytimes.com/2024/08/03/pageoneplus/corrections-aug-3-2024.html
+
 **Trump Agrees to a Fox News Debate with Harris on Sept. 4**\
 `According to Mr. Trump’s post on social media, the debate will take place in Pennsylvania, a crucial battleground state.`\
 https://nytimes.com/2024/08/03/us/03pol-debate-trump-harris-fox-news.html

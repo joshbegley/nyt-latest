@@ -1,3 +1,11 @@
+**Quotation of the Day: In Ten Seconds, One-Man Team Could Be Done**\
+`Quotation of the Day for Saturday, August 3, 2024.`\
+https://nytimes.com/2024/08/03/pageoneplus/quotation-of-the-day-in-ten-seconds-one-man-team-could-be-done.html
+
+**Corrections: Aug. 3, 2024**\
+`Corrections that appeared in print on Saturday, Aug. 3, 2024.`\
+https://nytimes.com/2024/08/03/pageoneplus/corrections-aug-3-2024.html
+
 **Trump Agrees to a Fox News Debate with Harris on Sept. 4**\
 `According to Mr. Trump’s post on social media, the debate will take place in Pennsylvania, a crucial battleground state.`\
 https://nytimes.com/2024/08/03/us/03pol-debate-trump-harris-fox-news.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/03/world/middleeast/iran-security-response-hamas-ass
 **It’s the Paris Olympics’ biggest day. How to prepare for — and survive — 31 gold medal events**\
 `Every Sunday in the fall, Scott Hanson hosts seven hours of television without a commercial.`\
 https://nytimes.com/athletic/5677453/2024/08/03/paris-olympics-2024-august-3-schedule/
-
-**Olympics Today: Saturday's guide to what to watch in Paris**\
-`We&#8217;ve reached the most action-packed day of the Paris Olympics.`\
-https://nytimes.com/athletic/5675995/2024/08/03/olympics-watch-guide-day-8-swimming-gymnastics-track/
-
-**To Lam Confirmed as Vietnam’s Top Leader Until at Least 2026**\
-`Mr. Lam had been filling the post of general secretary temporarily since the death of his predecessor in July. Now he is in position to consolidate power.`\
-https://nytimes.com/2024/08/02/world/asia/to-lam-vietnam-leader.html
 
