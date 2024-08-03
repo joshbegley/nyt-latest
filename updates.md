@@ -1,3 +1,7 @@
+**Hearing Set to Discuss Next Steps in Trump’s Federal Election Case**\
+`The case was on hold during the appeals process, which culminated in a sweeping Supreme Court ruling on presidential immunity. Now the judge must decide which acts in the indictment qualify.`\
+https://nytimes.com/2024/08/03/us/politics/trump-federal-election-case-hearing.html
+
 **Simone Biles’s gold-medal-winning Yurchenko double pike, frame by frame.**\
 `Biles won her second Olympic vault title — eight years after her first in Rio — with her signature Yurchenko double pike and then a vault called a Cheng.`\
 https://nytimes.com/2024/08/03/world/olympics/simone-biles-vault.html
