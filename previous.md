@@ -1,3 +1,7 @@
+**USWNT 1 Japan 0: Trinity Rodman's extra time goal lifts a tired U.S. team to the Olympic semifinals**\
+`How the USWNT's quarterfinal match against Japan played out`\
+https://nytimes.com/athletic/5676563/2024/08/03/uswnt-japan-olympics-quarterfinal/
+
 **Simone Biles vaults to her third gold medal of the Paris Olympics**\
 `Brazil's Rebeca Andrade placed second to snag silver while American Jade Carey took bronze.`\
 https://nytimes.com/athletic/5678217/2024/08/03/simone-biles-vault-olympics-jade-carey-results/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5678229/2024/08/03/jackie-robinson-statue-prison-se
 **“My New Go-To Brownie Recipe”**\
 `Lidey Heuck’s easy and versatile brownie recipe is already racking up stars and raves.`\
 https://nytimes.com/2024/08/03/dining/my-new-go-to-brownie-recipe.html
-
-**At 27, Simone Biles is the most decorated U.S. gymnast in Olympic history.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/08/03/world/olympics-simone-biles-vault-gymnastics/simone-biles-gold-medals-olympics
 

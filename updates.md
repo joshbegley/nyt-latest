@@ -1,3 +1,7 @@
+**USWNT 1 Japan 0: Trinity Rodman's extra time goal lifts a tired U.S. team to the Olympic semifinals**\
+`How the USWNT's quarterfinal match against Japan played out`\
+https://nytimes.com/athletic/5676563/2024/08/03/uswnt-japan-olympics-quarterfinal/
+
 **Simone Biles vaults to her third gold medal of the Paris Olympics**\
 `Brazil's Rebeca Andrade placed second to snag silver while American Jade Carey took bronze.`\
 https://nytimes.com/athletic/5678217/2024/08/03/simone-biles-vault-olympics-jade-carey-results/
