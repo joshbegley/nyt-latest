@@ -1,3 +1,11 @@
+**Wisconsin preseason camp: 5 observations from a 75-plus-play scrimmage**\
+`Tyler Van Dyke and Braedyn Locke are still jockeying for position with the starting QB job, and RB Tawee Walker continues to impress.`\
+https://nytimes.com/athletic/5678737/2024/08/03/wisconsin-preseason-camp-scrimmage/
+
+**Blue Jays notes: Trying to stop Aaron Judge, Vladimir Guerrero Jr. stays hot, former Jays impacting new clubs**\
+`The Blue Jays share some of their process on stopping a red-hot Aaron Judge as Vladimir Guerrero Jr. goes through his own hot streak. `\
+https://nytimes.com/athletic/5678495/2024/08/03/blue-jays-talk-how-to-stop-aaron-judge/
+
 **Real Madrid's Palacios to undergo surgery for cruciate ligament tear**\
 `Cesar Palacios will undergo surgery after sustaining a cruciate ligament tear in his first-team debut for Real Madrid.`\
 https://nytimes.com/athletic/5678590/2024/08/03/cesar-palacios-real-madrid-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/03/business/media/ina-jaffe-npr-dead.html
 **Julien Alfred stuns Sha'Carri Richardson to win 100m**\
 `Alfred, one of the best sprinters in the world, was simply too fast to chase down from behind, even for Richardson’s terrific closing speed.`\
 https://nytimes.com/athletic/5678570/2024/08/03/julien-alfred-shacarri-richardson-womens-100-meter-results-olympics/
-
-**Ledecky ties record for most golds by a female Olympian**\
-`Ledecky's win marks the first time a woman ever won four gold medals in the same event.`\
-https://nytimes.com/athletic/5678493/2024/08/03/katie-ledecky-most-gold-medals-olympics/
-
-**Anton van Dalen, Whose Art Examined an Evolving Neighborhood, Dies at 85**\
-`He traced the dramatic transformation of the Lower East Side from his building, where he lived for 50 years. He also assisted the cartoonist Saul Steinberg.`\
-https://nytimes.com/2024/08/03/arts/anton-van-dalen-dead.html
 
