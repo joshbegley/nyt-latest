@@ -1,3 +1,7 @@
+**Lawyer Who Tried to Set Off Bomb Outside of Chinese Embassy Pleads Guilty**\
+`Christopher Rodriguez tried to detonate a bag of explosives at the embassy in Washington, D.C., by firing a rifle at it but missed, prosecutors said.`\
+https://nytimes.com/2024/08/03/us/florida-attorney-chinese-embassy-guilty.html
+
 **Canada's gold medal defense ends against Germany, but players aren't leaving empty-handed**\
 `The reigning Olympic champions head home without a chance for a medal, but they won't leave empty-handed.`\
 https://nytimes.com/athletic/5678775/2024/08/03/canada-loss-olympic-womens-soccer-quarterfinal/
