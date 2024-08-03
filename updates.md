@@ -1,3 +1,7 @@
+**“My New Go-To Brownie Recipe”**\
+`Lidey Heuck’s easy and versatile brownie recipe is already racking up stars and raves.`\
+https://nytimes.com/2024/08/03/dining/my-new-go-to-brownie-recipe.html
+
 **At 27, Simone Biles is the most decorated U.S. gymnast in Olympic history.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/08/03/world/olympics-simone-biles-vault-gymnastics/simone-biles-gold-medals-olympics
