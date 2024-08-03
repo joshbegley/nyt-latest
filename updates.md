@@ -1,3 +1,15 @@
+**Simone Biles’s gold-medal-winning Yurchenko double pike, frame by frame.**\
+`Biles won her second Olympic vault title — eight years after her first in Rio — with her signature Yurchenko double pike and then a vault called a Cheng.`\
+https://nytimes.com/2024/08/03/world/olympics/simone-biles-vault.html
+
+**Liverpool won't rush decision over Clark's future**\
+`Liverpool are in no rush to make a decision on Bobby Clark&#8217;s future in the face of strong interest from Red Bull Salzburg.`\
+https://nytimes.com/athletic/5678343/2024/08/03/liverpool-bobby-clark-transfer-future/
+
+**Game, Set, Match: Zheng Qinwen beats Donna Vekic to win Olympic gold**\
+`The Chinese No 6 seed earned her country's first Olympic tennis medal in singles with a clean, efficient display`\
+https://nytimes.com/athletic/5678238/2024/08/03/zheng-qinwen-donna-vekic-olympic-gold-tennis-singles-women/
+
 **USWNT 1 Japan 0: Trinity Rodman's extra time goal lifts a tired U.S. team to the Olympic semifinals**\
 `How the USWNT's quarterfinal match against Japan played out`\
 https://nytimes.com/athletic/5676563/2024/08/03/uswnt-japan-olympics-result-takeaways-trinity-rodman/

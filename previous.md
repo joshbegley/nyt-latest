@@ -1,3 +1,15 @@
+**Simone Biles’s gold-medal-winning Yurchenko double pike, frame by frame.**\
+`Biles won her second Olympic vault title — eight years after her first in Rio — with her signature Yurchenko double pike and then a vault called a Cheng.`\
+https://nytimes.com/2024/08/03/world/olympics/simone-biles-vault.html
+
+**Liverpool won't rush decision over Clark's future**\
+`Liverpool are in no rush to make a decision on Bobby Clark&#8217;s future in the face of strong interest from Red Bull Salzburg.`\
+https://nytimes.com/athletic/5678343/2024/08/03/liverpool-bobby-clark-transfer-future/
+
+**Game, Set, Match: Zheng Qinwen beats Donna Vekic to win Olympic gold**\
+`The Chinese No 6 seed earned her country's first Olympic tennis medal in singles with a clean, efficient display`\
+https://nytimes.com/athletic/5678238/2024/08/03/zheng-qinwen-donna-vekic-olympic-gold-tennis-singles-women/
+
 **Stephen Nedoroscik's legend grows with Olympic bronze on pommel horse**\
 `Ireland’s Rhys McClenaghan won the gold and Kazakhstan's Nurmiman Kurbanov grabbed the silver.`\
 https://nytimes.com/athletic/5678307/2024/08/03/stephen-nedoroscik-bronze-olympics-pommel-horse-final/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5671929/2024/08/03/alexander-sorloth-atletico-madri
 **Is the Men’s 100 Meters Still a Can’t-Miss Olympic Moment?**\
 `Lacking star power and tense rivalries, the event is not even be the most anticipated 100-meter race at the Paris Games.`\
 https://nytimes.com/2024/08/03/world/olympics/mens-100-meters-noah-lyles.html
-
-**USWNT 1 Japan 0: Trinity Rodman's extra time goal lifts a tired U.S. team to the Olympic semifinals**\
-`How the USWNT's quarterfinal match against Japan played out`\
-https://nytimes.com/athletic/5676563/2024/08/03/uswnt-japan-olympics-result-takeaways-trinity-rodman/
-
-**Simone Biles vaults to her third gold medal of the Paris Olympics**\
-`Brazil's Rebeca Andrade placed second to snag silver while American Jade Carey took bronze.`\
-https://nytimes.com/athletic/5678217/2024/08/03/simone-biles-vault-olympics-jade-carey-results/
-
-**Relive the Biggest Little Swims in Paris**\
-`Miniature swimming visualizations highlight the greatest performances in the pool at the 2024 Olympics.`\
-https://nytimes.com/interactive/2024/08/03/sports/olympics/paris-2024-little-swimmers.html
 
