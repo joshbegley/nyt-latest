@@ -1,3 +1,7 @@
+**Oregon adds 5-star safety Trey McNutt to 2025 recruiting class**\
+`The Ducks are on pace to sign three consecutive top-10 recruiting classes for the first time in school history.`\
+https://nytimes.com/athletic/5647036/2024/08/03/oregon-recruiting-trey-mcnutt-ohio-state/
+
 **Crysencio Summerville has gone. The only way to judge this is by what Leeds do next**\
 `Farke says Leeds have to "pay for a few sins in the past" - so can they still build a squad to challenge for promotion?`\
 https://nytimes.com/athletic/5673979/2024/08/03/leeds-replace-crysencio-summerville-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5678275/2024/08/03/imane-khelif-olympics-boxing-med
 **Algerian Boxer at Center of Olympic Eligibility Fight Clinches Medal**\
 `Imane Khelif advanced to the semifinals, ensuring she will leave the Paris Games with at least a bronze medal.`\
 https://nytimes.com/2024/08/03/world/olympics/olympics-boxer-medal-imane-khelif-algeria.html
-
-**Violent Protests Grip English Cities in Wake of Knife Attack at Dance Class**\
-`Tensions have grown in some communities across Britain since a stabbing in the northern town of Southport on Monday, while  misinformation over the identity of the attacker has swirled online.`\
-https://nytimes.com/2024/08/03/world/europe/southport-stabbing-uk-riots.html
 
