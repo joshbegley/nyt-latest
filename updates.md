@@ -1,3 +1,7 @@
+**Terrorist Attack on Crowded Beach in Somalia Kills at Least 32**\
+`Gunmen and a suicide bomber struck at a popular seafront area in one of the deadliest such assaults in the country in months. The Islamist militant group Al Shabab claimed responsibility.`\
+https://nytimes.com/2024/08/03/world/africa/terrorist-attack-somalia-al-shabab.html
+
 **Canadian Doctors Warn Against Private Medicine as a Cure for the System’s Ills**\
 `The Canadian Medical Association has called for a ban on payments for procedures long covered by public systems and is warning about contracting services out.`\
 https://nytimes.com/2024/08/03/world/canada/canada-private-health-care.html
