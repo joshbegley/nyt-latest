@@ -1,3 +1,7 @@
+**Giants' Blake Snell throws first no-hitter of career vs. Reds**\
+`It was the 18th no-hitter in Giants history, and the 13th time Cincinnati has been no-hit.`\
+https://nytimes.com/athletic/5677557/2024/08/02/blake-snell-no-hitter-giants-reds/
+
 **Yankees appear to bench Gleyber Torres for baserunning blunder**\
 `Gleyber Torres failed to hustle on a 110.7 mph single and was later removed defensively. `\
 https://nytimes.com/athletic/5677509/2024/08/02/yankees-appear-to-bench-gleyber-torres-for-baserunning-blunder/

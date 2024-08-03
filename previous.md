@@ -1,3 +1,7 @@
+**Giants' Blake Snell throws first no-hitter of career vs. Reds**\
+`It was the 18th no-hitter in Giants history, and the 13th time Cincinnati has been no-hit.`\
+https://nytimes.com/athletic/5677557/2024/08/02/blake-snell-no-hitter-giants-reds/
+
 **Yankees appear to bench Gleyber Torres for baserunning blunder**\
 `Gleyber Torres failed to hustle on a 110.7 mph single and was later removed defensively. `\
 https://nytimes.com/athletic/5677509/2024/08/02/yankees-appear-to-bench-gleyber-torres-for-baserunning-blunder/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/02/us/politics/josh-shapiro-palestinians-college.htm
 **Alongside the Trump-Russia Inquiry, a Lesser-Known Look at Egyptian Influence**\
 `The Justice Department and special counsel Robert Mueller investigated whether a Trump adviser was part of an Egyptian plan, never proven, to funnel $10 million to the 2016 Trump campaign.`\
 https://nytimes.com/2024/08/02/us/politics/trump-mueller-egypt.html
-
-**Passenger Who Tried to Open Cockpit and Exit Door Gets 19 Months in Prison**\
-`Juan Rivas, who threatened flight attendants with a champagne bottle and a plastic knife, tried to open an exit door of an American Airlines plane, prosecutors said.`\
-https://nytimes.com/2024/08/02/us/american-airlines-nj-passenger-sentenced.html
 

@@ -1,3 +1,7 @@
+**Three goals for the Blue Jays in the season's final two months**\
+`With 52 games remaining, there are three alternate goals the Blue Jays should focus on, including letting their youngsters play.`\
+https://nytimes.com/athletic/5677575/2024/08/02/three-goals-for-the-blue-jays-in-the-seasons-final-two-months/
+
 **Giants' Blake Snell throws first no-hitter of career vs. Reds**\
 `It was the 18th no-hitter in Giants history, and the 13th time Cincinnati has been no-hit.`\
 https://nytimes.com/athletic/5677557/2024/08/02/blake-snell-no-hitter-giants-reds/
@@ -18,6 +22,10 @@ https://nytimes.com/athletic/5677402/2024/08/02/mckay-additions-take-uscs-nil-ef
 `Hawaiian Electric is expected to pay the largest share — nearly $2 billion — but avoided a heftier price tag that could have forced the utility into bankruptcy.`\
 https://nytimes.com/2024/08/02/us/maui-wildfire-hawaii-settlement.html
 
+**Lakers unveil statue honoring Kobe Bryant, daughter Gianna**\
+`The sculpture appeared to be modeled after a photo of the two sitting courtside together at a Lakers game in 2019.`\
+https://nytimes.com/athletic/5677444/2024/08/02/kobe-bryant-gianna-statue-lakers/
+
 **Meta in Talks to Use Voices of Judi Dench, Awkwafina and Others for A.I.**\
 `If deals are struck, Meta may incorporate the actors’ voices into a digital assistant product called MetaAI, people with knowledge of the effort said.`\
 https://nytimes.com/2024/08/02/technology/meta-ai-celebrity-voices.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/02/us/politics/911-plotters-plea-deal.html
 **Aerosmith Retires From Touring, Citing Steven Tyler’s Vocal Injury**\
 `Last year, the band’s frontman, Steven Tyler, suffered a vocal injury during a show, and the farewell tour was postponed. The band announced its retirement on Friday, saying a full recovery was not possible.`\
 https://nytimes.com/2024/08/02/arts/music/aerosmith-retirement-tour-steven-tyler.html
-
-**Shapiro’s College-Era Criticism of Palestinians Draws Fresh Scrutiny**\
-`The Pennsylvania governor, a top contender to be Vice President Kamala Harris’s running mate, wrote in his college newspaper that Palestinians were “too battle-minded.”`\
-https://nytimes.com/2024/08/02/us/politics/josh-shapiro-palestinians-college.html
-
-**Alongside the Trump-Russia Inquiry, a Lesser-Known Look at Egyptian Influence**\
-`The Justice Department and special counsel Robert Mueller investigated whether a Trump adviser was part of an Egyptian plan, never proven, to funnel $10 million to the 2016 Trump campaign.`\
-https://nytimes.com/2024/08/02/us/politics/trump-mueller-egypt.html
 
