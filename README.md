@@ -1,3 +1,7 @@
+**Unrest Erupts Across Britain in Wake of Deadly Knife Attack**\
+`Far-right activists scuffled with the police and counterprotesters across England after a stabbing at a dance class in Southport on Monday.`\
+https://nytimes.com/video/world/europe/100000009609850/uk-riots-southport-stabbing.html
+
 **Lawyer Who Tried to Set Off Bomb Outside of Chinese Embassy Pleads Guilty**\
 `Christopher Rodriguez tried to detonate a bag of explosives at the embassy in Washington, D.C., by firing a rifle at it but missed, prosecutors said.`\
 https://nytimes.com/2024/08/03/us/florida-attorney-chinese-embassy-guilty.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5678590/2024/08/03/cesar-palacios-real-madrid-injur
 **Israel strikes a school compound in Gaza, where rescuers report multiple people killed.**\
 `By Anjana Sankar`\
 https://nytimes.com/live/2024/08/03/world/israel-hamas-iran-hezbollah-gaza/israel-strike-gaza-school
-
-**St. Lucia gets its first gold medal, thanks to the world’s fastest woman.**\
-`Julien Alfred beat Sha’Carri Richardson of the United States by 15-hundredths of a second to win St. Lucia’s first Olympic medal.`\
-https://nytimes.com/2024/08/03/world/olympics/julien-alfred-shacarri-richardson-100-meters.html
 
