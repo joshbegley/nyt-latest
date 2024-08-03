@@ -1,3 +1,15 @@
+**Mets starter Paul Blackburn meets teammates, dazzles in debut on same day**\
+`Blackburn pitched six innings of one-run ball in a 5-1 Mets victory over the Angels.`\
+https://nytimes.com/athletic/5677701/2024/08/03/mets-paul-blackburn-debut-angels/
+
+**'It was so good': Astros' plan for Yusei Kikuchi gets off to impressive start**\
+`Friday was a beginning — and perhaps the birth of a new style.`\
+https://nytimes.com/athletic/5677686/2024/08/03/yusei-kikuchi-astros-debut/
+
+**Trump Agrees to a Fox News Debate With Harris on Sept. 4**\
+`According to Mr. Trump’s post on social media, the debate will take place in Pennsylvania, a crucial battleground state.`\
+https://nytimes.com/2024/08/03/us/trump-harris-debate-fox-news.html
+
 **Nick Sogard, with Red Sox family ties, notches big hit in MLB debut**\
 `Despite the family pedigree, it's been a winding road to the majors for Sogard, a 12th-round pick.`\
 https://nytimes.com/athletic/5677652/2024/08/03/nick-sogard-red-sox-debut/

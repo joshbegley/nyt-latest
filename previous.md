@@ -1,3 +1,11 @@
+**Mets starter Paul Blackburn meets teammates, dazzles in debut on same day**\
+`Blackburn pitched six innings of one-run ball in a 5-1 Mets victory over the Angels.`\
+https://nytimes.com/athletic/5677701/2024/08/03/mets-paul-blackburn-debut-angels/
+
+**'It was so good': Astros' plan for Yusei Kikuchi gets off to impressive start**\
+`Friday was a beginning — and perhaps the birth of a new style.`\
+https://nytimes.com/athletic/5677686/2024/08/03/yusei-kikuchi-astros-debut/
+
 **Nick Sogard, with Red Sox family ties, notches big hit in MLB debut**\
 `Despite the family pedigree, it's been a winding road to the majors for Sogard, a 12th-round pick.`\
 https://nytimes.com/athletic/5677652/2024/08/03/nick-sogard-red-sox-debut/
@@ -10,9 +18,9 @@ https://nytimes.com/2024/08/03/pageoneplus/quotation-of-the-day-in-ten-seconds-o
 `Corrections that appeared in print on Saturday, Aug. 3, 2024.`\
 https://nytimes.com/2024/08/03/pageoneplus/corrections-aug-3-2024.html
 
-**Trump Agrees to a Fox News Debate with Harris on Sept. 4**\
+**Trump Agrees to a Fox News Debate With Harris on Sept. 4**\
 `According to Mr. Trump’s post on social media, the debate will take place in Pennsylvania, a crucial battleground state.`\
-https://nytimes.com/2024/08/03/us/03pol-debate-trump-harris-fox-news.html
+https://nytimes.com/2024/08/03/us/trump-harris-debate-fox-news.html
 
 **3 Sheriff’s Deputies Shot in Florida**\
 `One is in critical condition, and no suspect has been apprehended since the officers were shot while responding to a call at a house in Eustis, a city north of Orlando.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5674259/2024/08/03/manchester-united-new-stadium/
 **Bombs Rain Down in Myanmar as Junta Evades Sanctions to Buy Jet Fuel**\
 `The military has stepped up a campaign of airstrikes, and killed more civilians, to fend off rebel advances.`\
 https://nytimes.com/2024/08/03/world/asia/myanmar-airstrikes-sanctions-evasion.html
-
-**Marcell Jacobs Has Waited a Long Time to Prove the Doubters Wrong**\
-`When the Italian sprinter came from nowhere to win 100-meter gold in Tokyo, whispers spread about his sudden rise. In Paris, he hopes to silence them for good.`\
-https://nytimes.com/2024/08/03/world/olympics/marcell-jacobs-100-meters-italy.html
-
-**Iran Arrests Dozens in Search for Suspects in Killing of Hamas Leader**\
-`Iran has begun a sweeping investigation into the assassination of Ismail Haniyeh, with its intensity a sign of how damaging and shocking the security failure was.`\
-https://nytimes.com/2024/08/03/world/middleeast/iran-security-response-hamas-assassination.html
 
