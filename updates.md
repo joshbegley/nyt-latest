@@ -1,3 +1,7 @@
+**To Lam Confirmed as Vietnam’s Top Leader Until at Least 2026**\
+`Mr. Lam had been filling the post of general secretary temporarily since the death of his predecessor in July. Now he is in position to consolidate power.`\
+https://nytimes.com/2024/08/02/world/asia/to-lam-vietnam-leader.html
+
 **Three goals for the Blue Jays in the season's final two months**\
 `With 52 games remaining, there are three alternate goals the Blue Jays should focus on, including letting their youngsters play.`\
 https://nytimes.com/athletic/5677575/2024/08/02/three-goals-for-the-blue-jays-in-the-seasons-final-two-months/
