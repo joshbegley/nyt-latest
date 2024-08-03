@@ -1,3 +1,7 @@
+**Simone Manuel is friends with the water again and back on the Olympic stage**\
+`Three years ago, Simone Manuel was struggling with overtraining. Today, she starts a rejuvenated quest for an individual medal in Paris.`\
+https://nytimes.com/athletic/5676615/2024/08/03/simone-manuel-olympics-swimming-overtraining/
+
 **The Pentagon promises to help defend Israel.**\
 `By Victoria Kim and Eric Schmitt`\
 https://nytimes.com/live/2024/08/03/world/israel-hamas-iran-hezbollah-gaza/the-pentagon-promises-to-help-defend-israel

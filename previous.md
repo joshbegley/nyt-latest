@@ -1,3 +1,7 @@
+**Simone Manuel is friends with the water again and back on the Olympic stage**\
+`Three years ago, Simone Manuel was struggling with overtraining. Today, she starts a rejuvenated quest for an individual medal in Paris.`\
+https://nytimes.com/athletic/5676615/2024/08/03/simone-manuel-olympics-swimming-overtraining/
+
 **The Pentagon promises to help defend Israel.**\
 `By Victoria Kim and Eric Schmitt`\
 https://nytimes.com/live/2024/08/03/world/israel-hamas-iran-hezbollah-gaza/the-pentagon-promises-to-help-defend-israel
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/03/nyregion/nyc-outdoor-dining-deadline.html
 **Inside the ‘Shakespearean Drama’ of the Murdoch Family**\
 `The reporters Jim Rutenberg and Jonathan Mahler, experts on the Murdoch empire, reflect on the revelation and implications of a clandestine legal battle.`\
 https://nytimes.com/2024/08/03/insider/murdoch-family.html
-
-**A Brooklyn Enclave’s Uneasy Peace With 4,000 New Migrant Neighbors**\
-`A pair of shootings deepened quality-of-life concerns among Brooklyn neighbors of a giant office development being used to shelter migrants from Africa and Latin America.`\
-https://nytimes.com/2024/08/03/nyregion/migrant-shelter-brooklyn-killings.html
 
