@@ -1,3 +1,7 @@
+**What to Watch as Simone Biles Seeks Gold in Vault**\
+`Biles, who will be competing against her teammate Jade Carey and Brazil’s Rebeca Andrade, is looking to add her seventh Olympic gold medal and 10th over all.`\
+https://nytimes.com/2024/08/03/world/olympics/simone-biles-gymnastic-watch-vault.html
+
 **Olympics mixed relay triathlon training cancelled over water quality concerns**\
 `Training ahead of the final Olympics triathlon event in Paris has been cancelled over more concerns over the water quality in the River Seine.`\
 https://nytimes.com/athletic/5677826/2024/08/03/olympics-triathlon-water-mixed-relay/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/03/nyregion/migrant-shelter-brooklyn-killings.html
 **Equestrian Is Having an Uncomfortable Moment. Its Olympic Horses Are Not.**\
 `Accusations of mistreatment cast a shadow over dressage and other events. Can cooling tents and locally sourced hay change the narrative?`\
 https://nytimes.com/2024/08/03/world/olympics/equestrian-is-having-an-uncomfortable-moment-its-olympic-horses-are-not.html
-
-**How a ‘Dirty Gospel’ Minister Spends His Sundays**\
-`The Reverend Vince Anderson, a mainstay of the Brooklyn music scene, fills his day with worship in two languages, the Mets and a full hour of watering his 92 houseplants.`\
-https://nytimes.com/2024/08/03/nyregion/reverend-vince-anderson.html
 
