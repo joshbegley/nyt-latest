@@ -1,3 +1,7 @@
+**What to Watch as Simone Biles Seeks Gold in Vault**\
+`Biles, who will be competing against her teammate Jade Carey and Brazil’s Rebeca Andrade, is looking to add her seventh Olympic gold medal and 10th over all.`\
+https://nytimes.com/2024/08/03/world/olympics/simone-biles-gymnastic-watch-vault.html
+
 **Olympics mixed relay triathlon training cancelled over water quality concerns**\
 `Training ahead of the final Olympics triathlon event in Paris has been cancelled over more concerns over the water quality in the River Seine.`\
 https://nytimes.com/athletic/5677826/2024/08/03/olympics-triathlon-water-mixed-relay/
