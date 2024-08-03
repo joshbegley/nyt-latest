@@ -1,3 +1,7 @@
+**Unrest Erupts Across Britain in Wake of Deadly Knife Attack**\
+`Far-right activists scuffled with the police and counterprotesters across England after a stabbing at a dance class in Southport on Monday.`\
+https://nytimes.com/video/world/europe/100000009609850/uk-riots-southport-stabbing.html
+
 **Lawyer Who Tried to Set Off Bomb Outside of Chinese Embassy Pleads Guilty**\
 `Christopher Rodriguez tried to detonate a bag of explosives at the embassy in Washington, D.C., by firing a rifle at it but missed, prosecutors said.`\
 https://nytimes.com/2024/08/03/us/florida-attorney-chinese-embassy-guilty.html
