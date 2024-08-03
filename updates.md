@@ -1,3 +1,11 @@
+**Ina Jaffe, Dogged and Award-Winning NPR Reporter, Dies at 75**\
+`Ms. Jaffe spent decades covering politics and aging in America, and she was the first editor of the NPR program “Weekend Edition Saturday.”`\
+https://nytimes.com/2024/08/03/business/media/ina-jaffe-npr-dead.html
+
+**Ledecky ties record for most golds by female Olympians with 800m free win**\
+`Ledecky's win marks the first time a woman ever won four gold medals in the same event.`\
+https://nytimes.com/athletic/5678493/2024/08/03/katie-ledecky-most-gold-medals-olympics/
+
 **Julien Alfred stuns Sha'Carri Richardson to win 100m**\
 `Alfred, one of the best sprinters in the world, was simply too fast to chase down from behind, even for Richardson’s terrific closing speed.`\
 https://nytimes.com/athletic/5678570/2024/08/03/julien-alfred-shacarri-richardson-womens-100-meter-results-olympics/
