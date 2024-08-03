@@ -1,3 +1,11 @@
+**Julien Alfred stuns Sha'Carri Richardson to win 100m**\
+`Alfred, one of the best sprinters in the world, was simply too fast to chase down from behind, even for Richardson’s terrific closing speed.`\
+https://nytimes.com/athletic/5678570/2024/08/03/julien-alfred-shacarri-richardson-womens-100-meter-results-olympics/
+
+**Ledecky ties record for most golds by female Olympians with 800m free win**\
+`Ledecky has now won 14 total Olympic medals across four Games.`\
+https://nytimes.com/athletic/5678493/2024/08/03/katie-ledecky-most-gold-medals-olympics/
+
 **Anton van Dalen, Whose Art Examined an Evolving Neighborhood, Dies at 85**\
 `He traced the dramatic transformation of the Lower East Side from his building, where he lived for 50 years. He also assisted the cartoonist Saul Steinberg.`\
 https://nytimes.com/2024/08/03/arts/anton-van-dalen-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5673979/2024/08/03/leeds-replace-crysencio-summervi
 **Everything You Need to Know to Make the Best Steak**\
 `In the final installment of her YouTube series, Sohla El-Waylly helps demystify how to prepare three types of beef: ground, short rib and rib-eye.`\
 https://nytimes.com/article/how-to-cook-steak.html
-
-**Summerville completes West Ham transfer from Leeds**\
-`West Ham United have completed the signing of Crysencio Summerville from Leeds United.`\
-https://nytimes.com/athletic/5674187/2024/08/03/crysencio-summerville-west-ham-transfer/
-
-**Killing of Hamas Leader Creates a New Rift Between the U.S. and Israel**\
-`President Biden has expressed concern that the circumstances of the assassination have thrown cease-fire talks into doubt, but Prime Minister Benjamin Netanyahu of Israel rejects that idea, officials say.`\
-https://nytimes.com/2024/08/03/us/politics/us-israel-hamas-assassination.html
 
