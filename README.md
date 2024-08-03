@@ -1,4 +1,4 @@
-**Olympics mixed relay training cancelled over water quality concerns**\
+**Olympics mixed relay triathlon training cancelled over water quality concerns**\
 `Training ahead of the final Olympics triathlon event in Paris has been cancelled over more concerns over the water quality in the River Seine.`\
 https://nytimes.com/athletic/5677826/2024/08/03/olympics-triathlon-water-mixed-relay/
 
