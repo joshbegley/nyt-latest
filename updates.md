@@ -1,3 +1,7 @@
+**Embiid chose U.S. over France since 'these guys wanted me'**\
+`"It was a tough decision, but it is all about comfort level," Joel Embiid said of playing for Team USA.`\
+https://nytimes.com/athletic/5678508/2024/08/03/joel-embiid-team-use-france-olympics/
+
 **Canada eliminated from Paris Olympics after shootout defeat vs Germany**\
 `Canada have been knocked out of the Paris Olympic women&#8217;s football quarterfinal after being defeated by Germany on penalties following a 0-0 draw.`\
 https://nytimes.com/athletic/5678382/2024/08/03/canada-germany-result-paris-olympics/
