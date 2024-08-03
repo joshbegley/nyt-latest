@@ -1,3 +1,11 @@
+**Cristeta Comerford, White House Chef to 5 Presidents, Retires**\
+`Ms. Comerford, known as “Cheffie” and the first woman and person of color to serve as White House executive chef, reflects on three decades of feeding first families.`\
+https://nytimes.com/2024/08/03/us/politics/cristeta-comerford-white-house-chef.html
+
+**Israeli conducts deadly airstrikes on West Bank.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/08/03/world/israel-hamas-iran-hezbollah-gaza/israeli-conducts-deadly-airstrikes-on-west-bank
+
 **The Briefing: Tottenham 1-2 Bayern Munich - Spurs need another centre-forward but young players impress again**\
 `Tottenham ended their pre-season tour to Japan and South Korea with a 2-1 defeat to Bayern Munich in Seoul. We analyse the talking points`\
 https://nytimes.com/athletic/5676511/2024/08/03/tottenham-bayern-result-striker-transfer/
