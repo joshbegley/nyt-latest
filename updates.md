@@ -1,3 +1,7 @@
+**Alexander Waugh, Literary Scion of a Literary Dynasty, Dies at 60**\
+`The brother, son and grandson of famous English writers, he carved out his own space as a composer, critic, columnist and historian.`\
+https://nytimes.com/2024/08/03/books/alexander-waugh-dead.html
+
 **Chelsea 'can't relax' in Conference League, Gusto insists**\
 `Malo Gusto has warned his Chelsea team-mates that they cannot take their place in the UEFA Conference League this season for granted.`\
 https://nytimes.com/athletic/5677810/2024/08/03/chelsea-conference-league-malo-gusto/
