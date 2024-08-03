@@ -1,3 +1,15 @@
+**Summer McIntosh beats loaded 200-meter IM field to win gold**\
+`American Alex Walsh, who originally finished third, was disqualified for an illegal turn from backstroke to breaststroke.`\
+https://nytimes.com/athletic/5678428/2024/08/03/200-meter-individual-medley-paris-olympics/
+
+**Scribble, Snuggle, Soar: Making the Most of High Jump’s Downtime**\
+`The high jump often presents competitors with an abundance of down time. Two rivals fill it in very different ways.`\
+https://nytimes.com/2024/08/03/world/olympics/high-jump-athletes.html
+
+**Embiid chose U.S. over France since 'these guys wanted me'**\
+`"It was a tough decision, but it is all about comfort level," Joel Embiid said of playing for Team USA.`\
+https://nytimes.com/athletic/5678508/2024/08/03/joel-embiid-team-use-france-olympics/
+
 **Oregon adds 5-star safety Trey McNutt to 2025 recruiting class**\
 `The Ducks are on pace to sign three consecutive top-10 recruiting classes for the first time in school history.`\
 https://nytimes.com/athletic/5647036/2024/08/03/oregon-recruiting-trey-mcnutt-ohio-state/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5678457/2024/08/03/ryan-crouser-shot-put-olympics-g
 **Cuenca joins Fulham from Villarreal**\
 `Fulham have completed the signing of Jorge Cuenca from Villarreal for an undisclosed fee.`\
 https://nytimes.com/athletic/5678489/2024/08/03/jorge-cuenca-fulham-transfer/
-
-**Tyreek Hill, Dolphins agree to restructured deal**\
-`Hill will get $106.5 million fully guaranteed over the next four seasons, the most fully guaranteed money ever for a wide receiver.`\
-https://nytimes.com/athletic/5678460/2024/08/03/tyreek-hill-dolphins-contract/
-
-**Khelif clinches Olympic boxing medal amid media frenzy**\
-`VILLEPINTE, France — Following days of furor surrounding the Olympic eligibility of women’s boxer Imane Khelif, the Algerian’s quarterfinal bout against Hungary’s Anna Luca Hamori went on as planned Saturday.`\
-https://nytimes.com/athletic/5678275/2024/08/03/imane-khelif-olympics-boxing-medal/
-
-**Algerian Boxer at Center of Olympic Eligibility Fight Clinches Medal**\
-`Imane Khelif advanced to the semifinals, ensuring she will leave the Paris Games with at least a bronze medal.`\
-https://nytimes.com/2024/08/03/world/olympics/olympics-boxer-medal-imane-khelif-algeria.html
 
