@@ -1,3 +1,15 @@
+**Stephen Nedoroscik's legend grows with Olympic bronze on pommel horse**\
+`Ireland’s Rhys McClenaghan won the gold and Kazakhstan's Nurmiman Kurbanov grabbed the silver.`\
+https://nytimes.com/athletic/5678307/2024/08/03/stephen-nedoroscik-bronze-olympics-pommel-horse-final/
+
+**Atletico in talks with City over Alvarez transfer**\
+`Atletico Madrid are in talks with Manchester City over a possible move for Julian Alvarez.`\
+https://nytimes.com/athletic/5678245/2024/08/03/julian-alvarez-atletico-madrid-man-city-transfer/
+
+**False starts on the track at the Olympic Games: what are the rules?**\
+`Three sprinters were disqualified in the early rounds of the men's 100m in Paris — including an 18-year-old from Mozambique`\
+https://nytimes.com/athletic/5678148/2024/08/03/olympics-false-start-rules-track-explained/
+
 **Alexander Waugh, Literary Scion of a Literary Dynasty, Dies at 60**\
 `The brother, son and grandson of famous English writers, he carved out his own space as a composer, critic, columnist and historian.`\
 https://nytimes.com/2024/08/03/books/alexander-waugh-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5678217/2024/08/03/simone-biles-vault-olympics-jade
 **Relive the Biggest Little Swims in Paris**\
 `Miniature swimming visualizations highlight the greatest performances in the pool at the 2024 Olympics.`\
 https://nytimes.com/interactive/2024/08/03/sports/olympics/paris-2024-little-swimmers.html
-
-**If ‘The Lord of the Rings’ Is a Cautionary Tale, It Was Lost on JD Vance**\
-`He seems to have missed J.R.R. Tolkien’s main point.`\
-https://nytimes.com/2024/08/03/opinion/jd-vance-lord-of-the-rings.html
-
-**USA Rowing begins its climb back in Paris, with bigger goals for L.A. 2028**\
-`Two medals at the Paris Olympics constitutes progress for USA Rowing. But they have a lot loftier goals for Los Angeles in 2028.`\
-https://nytimes.com/athletic/5678185/2024/08/03/usa-rowing-2024-paris-olympics-mens-eight-bronze/
-
-**Tulsa Creates Commission on Reparations for Race Massacre**\
-`The group will develop a plan to carry out reparations and study how they can be made to survivors of the 1921 massacre and their descendants.`\
-https://nytimes.com/2024/08/03/us/tulsa-race-massacre-reparations-oklahoma.html
 
