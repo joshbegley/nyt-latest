@@ -1,3 +1,11 @@
+**Mets starter Paul Blackburn meets teammates, dazzles in debut on same day**\
+`Blackburn pitched six innings of one-run ball in a 5-1 Mets victory over the Angels.`\
+https://nytimes.com/athletic/5677701/2024/08/03/mets-paul-blackburn-debut-angels/
+
+**'It was so good': Astros' plan for Yusei Kikuchi gets off to impressive start**\
+`Friday was a beginning — and perhaps the birth of a new style.`\
+https://nytimes.com/athletic/5677686/2024/08/03/yusei-kikuchi-astros-debut/
+
 **Nick Sogard, with Red Sox family ties, notches big hit in MLB debut**\
 `Despite the family pedigree, it's been a winding road to the majors for Sogard, a 12th-round pick.`\
 https://nytimes.com/athletic/5677652/2024/08/03/nick-sogard-red-sox-debut/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5674259/2024/08/03/manchester-united-new-stadium/
 **Bombs Rain Down in Myanmar as Junta Evades Sanctions to Buy Jet Fuel**\
 `The military has stepped up a campaign of airstrikes, and killed more civilians, to fend off rebel advances.`\
 https://nytimes.com/2024/08/03/world/asia/myanmar-airstrikes-sanctions-evasion.html
-
-**Marcell Jacobs Has Waited a Long Time to Prove the Doubters Wrong**\
-`When the Italian sprinter came from nowhere to win 100-meter gold in Tokyo, whispers spread about his sudden rise. In Paris, he hopes to silence them for good.`\
-https://nytimes.com/2024/08/03/world/olympics/marcell-jacobs-100-meters-italy.html
-
-**Iran Arrests Dozens in Search for Suspects in Killing of Hamas Leader**\
-`Iran has begun a sweeping investigation into the assassination of Ismail Haniyeh, with its intensity a sign of how damaging and shocking the security failure was.`\
-https://nytimes.com/2024/08/03/world/middleeast/iran-security-response-hamas-assassination.html
 
