@@ -18,9 +18,9 @@ https://nytimes.com/2024/08/03/pageoneplus/quotation-of-the-day-in-ten-seconds-o
 `Corrections that appeared in print on Saturday, Aug. 3, 2024.`\
 https://nytimes.com/2024/08/03/pageoneplus/corrections-aug-3-2024.html
 
-**Trump Agrees to a Fox News Debate with Harris on Sept. 4**\
+**Trump Agrees to a Fox News Debate With Harris on Sept. 4**\
 `According to Mr. Trump’s post on social media, the debate will take place in Pennsylvania, a crucial battleground state.`\
-https://nytimes.com/2024/08/03/us/03pol-debate-trump-harris-fox-news.html
+https://nytimes.com/2024/08/03/us/trump-harris-debate-fox-news.html
 
 **3 Sheriff’s Deputies Shot in Florida**\
 `One is in critical condition, and no suspect has been apprehended since the officers were shot while responding to a call at a house in Eustis, a city north of Orlando.`\
