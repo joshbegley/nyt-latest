@@ -1,3 +1,7 @@
+**Jackie Fox Saw the Dark Side of Rock. Now She’s Playing Her Own Way.**\
+`The teenage bassist of the Runaways cut her music career short in 1977. Rather than retell her story, she’s reimagined it as a board game, Rock Hard: 1977.`\
+https://nytimes.com/2024/08/03/arts/music/jackie-fox-runaways-rock-hard-1977-game.html
+
 **Lyles learns lesson in Olympics 100m heats**\
 `In his Olympic debut in the 100-meter dash, Noah Lyles ran 10.04, his slowest time in over a year.`\
 https://nytimes.com/athletic/5678043/2024/08/03/olympics-mens-100m-heats-noah-lyles-hinchcliffe-kerley/
