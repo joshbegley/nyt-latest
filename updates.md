@@ -1,3 +1,7 @@
+**Vince Vaughn Turned This Interview Into Self-Help**\
+`I went in expecting a swaggering, overconfident guy. I found something much more interesting.`\
+https://nytimes.com/2024/08/03/magazine/vince-vaughn-interview.html
+
 **‘I’m Definitely Re-engaged:’ Harris Fuels Energy Among Georgia’s South Asian Voters**\
 `In Georgia, a critical swing state President Biden won by less than 12,000 votes in 2020, Kamala Harris’ political identity has prompted renewed interest among Asian Americans, the fastest-growing group of eligible voters in the United States.`\
 https://nytimes.com/2024/08/03/video/kamala-harris-georgia-south-asia.html
