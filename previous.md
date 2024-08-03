@@ -1,3 +1,11 @@
+**Simone Biles no longer worries about being judged, on or off the competition floor.**\
+`By Juliet Macur`\
+https://nytimes.com/live/2024/08/03/world/olympics-simone-biles-vault-gymnastics/simone-biles-no-longer-worries-about-being-judged-on-or-off-the-competition-floor
+
+**Raheem Morris' Super Bowl pedigree, energy have Falcons excited about future**\
+`Morris has his sights set on immediate success but is already putting plans together to ensure a bright future. `\
+https://nytimes.com/athletic/5668694/2024/08/03/atlanta-falcons-raheem-morris-training-camp/
+
 **Jackie Fox Saw the Dark Side of Rock. Now She’s Playing Her Own Way.**\
 `The teenage bassist of the Runaways cut her music career short in 1977. Rather than retell her story, she’s reimagined it as a board game, Rock Hard: 1977.`\
 https://nytimes.com/2024/08/03/arts/music/jackie-fox-runaways-rock-hard-1977-game.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/03/books/read-like-wind-recommendations.html
 **Protests Again Rock Bangladesh, Weeks After a Deadly Crackdown**\
 `As curfews and restrictions on communication were loosened, anger over the deadly suppression of previous protests began flaring up once more.`\
 https://nytimes.com/2024/08/03/world/asia/bangladesh-protests-students.html
-
-**An anxious calm hangs over Israel.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/08/03/world/israel-hamas-iran-hezbollah-gaza/an-anxious-calm-hangs-over-israel
-
-**Kamala Harris’s Life in Canada Was Marked by a Yearning for Home**\
-`Ms. Harris went north as a 12-year-old when her mother was recruited to conduct breast-cancer research, but California was always on her mind. The experience of a Canadian friend inspired her to become a prosecutor.`\
-https://nytimes.com/2024/08/03/world/canada/kamala-harris-montreal.html
 
