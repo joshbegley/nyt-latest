@@ -1,3 +1,7 @@
+**Luol Deng criticizes officiating after South Sudan's loss to Serbia**\
+`"As soon as our guys play their style, we're getting (called for fouls) every time," Deng said.`\
+https://nytimes.com/athletic/5678758/2024/08/03/south-sudan-serbia-officiating-comments/
+
 **Niners growing more impressed with 'steady Eddie' Dominick Puni with every practice**\
 `The 49ers had their longest — and feistiest — practice of the summer, with running back Jordan Mason at the center of the rough stuff.`\
 https://nytimes.com/athletic/5678821/2024/08/03/49ers-training-camp-dominick-puni-2/

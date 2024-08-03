@@ -1,3 +1,7 @@
+**Luol Deng criticizes officiating after South Sudan's loss to Serbia**\
+`"As soon as our guys play their style, we're getting (called for fouls) every time," Deng said.`\
+https://nytimes.com/athletic/5678758/2024/08/03/south-sudan-serbia-officiating-comments/
+
 **Niners growing more impressed with 'steady Eddie' Dominick Puni with every practice**\
 `The 49ers had their longest — and feistiest — practice of the summer, with running back Jordan Mason at the center of the rough stuff.`\
 https://nytimes.com/athletic/5678821/2024/08/03/49ers-training-camp-dominick-puni-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5678726/2024/08/03/la-rams-rob-havenstein-injury-up
 **Weather, Man!**\
 `Scott Hogan and Katie Hale’s puzzle brings the heat (and humidity).`\
 https://nytimes.com/2024/08/03/crosswords/daily-puzzle-2024-08-04.html
-
-**Wisconsin preseason camp: 5 observations from a 75-plus-play scrimmage**\
-`Tyler Van Dyke and Braedyn Locke are still jockeying for position with the starting QB job, and RB Tawee Walker continues to impress.`\
-https://nytimes.com/athletic/5678737/2024/08/03/wisconsin-preseason-camp-scrimmage/
 
