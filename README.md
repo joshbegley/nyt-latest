@@ -1,5 +1,5 @@
-**49ers growing more impressed with 'steady Eddie' Dominick Puni with every practice**\
-`The 49ers had their longest — and feistiest — practice of the summer with running back Jordan Mason at the center of the rough stuff.`\
+**Niners growing more impressed with 'steady Eddie' Dominick Puni with every practice**\
+`The 49ers had their longest — and feistiest — practice of the summer, with running back Jordan Mason at the center of the rough stuff.`\
 https://nytimes.com/athletic/5678821/2024/08/03/49ers-training-camp-dominick-puni-2/
 
 **Doug Emhoff, Husband of Kamala Harris, Acknowledges Long-Ago Affair**\
