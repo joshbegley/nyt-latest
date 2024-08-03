@@ -1,3 +1,7 @@
+**Real Madrid's Palacios to undergo surgery for cruciate ligament tear**\
+`Cesar Palacios will undergo surgery after sustaining a cruciate ligament tear in his first-team debut for Real Madrid.`\
+https://nytimes.com/athletic/5678590/2024/08/03/cesar-palacios-real-madrid-injury/
+
 **Israel strikes a school compound in Gaza, where rescuers report multiple people killed.**\
 `By Anjana Sankar`\
 https://nytimes.com/live/2024/08/03/world/israel-hamas-iran-hezbollah-gaza/israel-strike-gaza-school
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5678493/2024/08/03/katie-ledecky-most-gold-medals-o
 **Anton van Dalen, Whose Art Examined an Evolving Neighborhood, Dies at 85**\
 `He traced the dramatic transformation of the Lower East Side from his building, where he lived for 50 years. He also assisted the cartoonist Saul Steinberg.`\
 https://nytimes.com/2024/08/03/arts/anton-van-dalen-dead.html
-
-**Crysencio Summerville to West Ham: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500 series, we look at Crysencio Summerville's move from Leeds to West Ham`\
-https://nytimes.com/athletic/5672157/2024/08/03/crysencio-summerville-west-ham-rating/
 

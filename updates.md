@@ -1,3 +1,7 @@
+**Real Madrid's Palacios to undergo surgery for cruciate ligament tear**\
+`Cesar Palacios will undergo surgery after sustaining a cruciate ligament tear in his first-team debut for Real Madrid.`\
+https://nytimes.com/athletic/5678590/2024/08/03/cesar-palacios-real-madrid-injury/
+
 **Israel strikes a school compound in Gaza, where rescuers report multiple people killed.**\
 `By Anjana Sankar`\
 https://nytimes.com/live/2024/08/03/world/israel-hamas-iran-hezbollah-gaza/israel-strike-gaza-school
