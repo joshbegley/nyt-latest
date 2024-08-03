@@ -1,3 +1,7 @@
+**“My New Go-To Brownie Recipe”**\
+`Lidey Heuck’s easy and versatile brownie recipe is already racking up stars and raves.`\
+https://nytimes.com/2024/08/03/dining/my-new-go-to-brownie-recipe.html
+
 **At 27, Simone Biles is the most decorated U.S. gymnast in Olympic history.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/08/03/world/olympics-simone-biles-vault-gymnastics/simone-biles-gold-medals-olympics
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/03/us/indianapolis-stimulus-shooting-sentence.html
 **How JD Vance Thinks About Power**\
 `Mr. Vance has been blunt about wanting to break norms and test constitutional limits to execute his ideas: “We have to get pretty wild, pretty far out there.”`\
 https://nytimes.com/2024/08/03/us/politics/jd-vance-donald-trump-2024-campaign.html
-
-**Who Are the Far-Right Groups Behind the U.K. Riots?**\
-`After a deadly stabbing at a children’s event in northwestern England, an array of online influencers, anti-Muslim extremists and fascist groups have stoked the unrest, experts say.`\
-https://nytimes.com/2024/08/03/world/europe/uk-stabbing-riots-protesters.html
 
