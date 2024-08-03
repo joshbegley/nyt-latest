@@ -1,3 +1,7 @@
+**McKays join USC-backed NIL collective, furthering alignment goal**\
+`USC's patchwork NIL collective setup took a step closer toward unification when Jeff and J.K. McKay joined the school-back House of Victory.`\
+https://nytimes.com/athletic/5677402/2024/08/02/mckay-additions-take-uscs-nil-efforts-a-step-closer-toward-alignment/
+
 **Maui Wildfire Plaintiffs Reach $4 Billion Settlement as Anniversary Nears**\
 `Hawaiian Electric is expected to pay the largest share — nearly $2 billion — but avoided a heftier price tag that could have forced the utility into bankruptcy.`\
 https://nytimes.com/2024/08/02/us/maui-wildfire-hawaii-settlement.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/08/02/us/elections/arizona-native-voters.ht
 **How Katie Ledecky Won the Most Medals of Any U.S. Female Olympian**\
 `Katie Ledecky now stands alone as the most decorated female American Olympian, in any sport, with 13 medals. And she still has one more race to swim in France. Jenny Vrentas, a New York Times reporter covering sports, explains how Ledecky reached this milestone.`\
 https://nytimes.com/video/sports/100000009606617/how-katie-ledecky-won-the-most-medals-of-any-us-female-olympian.html
-
-**Judge Awards Schiele Drawing to Heirs of Merchant Killed by the Nazis**\
-`The drawing of Schiele’s wife was the focus of a trial at which three parties, all with Jewish roots, argued whether it had been looted by the Nazis and from whom.`\
-https://nytimes.com/2024/08/02/arts/egon-schiele-drawing-heirs.html
 

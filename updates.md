@@ -1,3 +1,7 @@
+**McKays join USC-backed NIL collective, furthering alignment goal**\
+`USC's patchwork NIL collective setup took a step closer toward unification when Jeff and J.K. McKay joined the school-back House of Victory.`\
+https://nytimes.com/athletic/5677402/2024/08/02/mckay-additions-take-uscs-nil-efforts-a-step-closer-toward-alignment/
+
 **Maui Wildfire Plaintiffs Reach $4 Billion Settlement as Anniversary Nears**\
 `Hawaiian Electric is expected to pay the largest share — nearly $2 billion — but avoided a heftier price tag that could have forced the utility into bankruptcy.`\
 https://nytimes.com/2024/08/02/us/maui-wildfire-hawaii-settlement.html
