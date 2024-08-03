@@ -1,8 +1,20 @@
+**Man Who Killed 4 After Dispute Over Stimulus Check Gets 145 Years in Prison**\
+`Malik Halfacre, 28, wounded his girlfriend and killed four of her family members in Indianapolis in 2021 after a dispute with her over money, prosecutors said.`\
+https://nytimes.com/2024/08/03/us/indianapolis-stimulus-shooting-sentence.html
+
+**How JD Vance Thinks About Power**\
+`Mr. Vance has been blunt about wanting to break norms and test constitutional limits to execute his ideas: “We have to get pretty wild, pretty far out there.”`\
+https://nytimes.com/2024/08/03/us/politics/jd-vance-donald-trump-2024-campaign.html
+
+**Who Are the Far-Right Groups Behind the U.K. Riots?**\
+`After a deadly stabbing at a children’s event in northwestern England, an array of online influencers, anti-Muslim extremists and fascist groups have stoked the unrest, experts say.`\
+https://nytimes.com/2024/08/03/world/europe/uk-stabbing-riots-protesters.html
+
 **Cristeta Comerford, White House Chef to 5 Presidents, Retires**\
 `Ms. Comerford, known as “Cheffie” and the first woman and person of color to serve as White House executive chef, reflects on three decades of feeding first families.`\
 https://nytimes.com/2024/08/03/us/politics/cristeta-comerford-white-house-chef.html
 
-**Israeli conducts deadly airstrikes on West Bank.**\
+**Israel conducts deadly airstrikes on West Bank.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/08/03/world/israel-hamas-iran-hezbollah-gaza/israeli-conducts-deadly-airstrikes-on-west-bank
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5668694/2024/08/03/atlanta-falcons-raheem-morris-tr
 **Jackie Fox Saw the Dark Side of Rock. Now She’s Playing Her Own Way.**\
 `The teenage bassist of the Runaways cut her music career short in 1977. Rather than retell her story, she’s reimagined it as a board game, Rock Hard: 1977.`\
 https://nytimes.com/2024/08/03/arts/music/jackie-fox-runaways-rock-hard-1977-game.html
-
-**Lyles learns lesson in Olympics 100m heats**\
-`In his Olympic debut in the 100-meter dash, Noah Lyles ran 10.04, his slowest time in over a year.`\
-https://nytimes.com/athletic/5678043/2024/08/03/olympics-mens-100m-heats-noah-lyles-hinchcliffe-kerley/
-
-**Australia consigns Team USA to silver in men's tennis doubles after match tiebreak**\
-`Team USA had to settle for Olympic silver in tennis, as Australia&#8217;s Matthew Ebden and John Peers beat Rajeev Ram and Austin Krajicek 6-7(6), 7-6(1), 10-8 at Roland Garros Saturday.`\
-https://nytimes.com/athletic/5677991/2024/08/03/australia-olympic-gold-mens-tennis-doubles-team-usa/
-
-**Here’s the latest on the presidential race.**\
-`By Simon J. Levien`\
-https://nytimes.com/live/2024/08/03/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
