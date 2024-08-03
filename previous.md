@@ -1,3 +1,7 @@
+**When Elder Care Is All in the Stepfamily**\
+`Adult children are less likely to assist an aging stepparent, studies show. A growing “step gap” in senior care worries experts.`\
+https://nytimes.com/2024/08/03/health/stepchildren-eldercare.html
+
 **Man Who Killed 4 After Dispute Over Stimulus Check Gets 145 Years in Prison**\
 `Malik Halfacre, 28, wounded his girlfriend and killed four of her family members in Indianapolis in 2021 after a dispute with her over money, prosecutors said.`\
 https://nytimes.com/2024/08/03/us/indianapolis-stimulus-shooting-sentence.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/03/world/olympics-simone-biles-vault-gymnastics
 **Raheem Morris' Super Bowl pedigree, energy have Falcons excited about future**\
 `Morris has his sights set on immediate success but is already putting plans together to ensure a bright future. `\
 https://nytimes.com/athletic/5668694/2024/08/03/atlanta-falcons-raheem-morris-training-camp/
-
-**Jackie Fox Saw the Dark Side of Rock. Now She’s Playing Her Own Way.**\
-`The teenage bassist of the Runaways cut her music career short in 1977. Rather than retell her story, she’s reimagined it as a board game, Rock Hard: 1977.`\
-https://nytimes.com/2024/08/03/arts/music/jackie-fox-runaways-rock-hard-1977-game.html
 

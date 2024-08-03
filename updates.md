@@ -1,3 +1,7 @@
+**When Elder Care Is All in the Stepfamily**\
+`Adult children are less likely to assist an aging stepparent, studies show. A growing “step gap” in senior care worries experts.`\
+https://nytimes.com/2024/08/03/health/stepchildren-eldercare.html
+
 **Man Who Killed 4 After Dispute Over Stimulus Check Gets 145 Years in Prison**\
 `Malik Halfacre, 28, wounded his girlfriend and killed four of her family members in Indianapolis in 2021 after a dispute with her over money, prosecutors said.`\
 https://nytimes.com/2024/08/03/us/indianapolis-stimulus-shooting-sentence.html
