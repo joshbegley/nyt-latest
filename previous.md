@@ -1,3 +1,7 @@
+**Can Harris Win Back Arab American Voters? The Door May Be Cracked Open.**\
+`Vice President Kamala Harris has not strayed from President Biden on Israel policy, but she has taken a stronger tone on the suffering of Palestinians.`\
+https://nytimes.com/2024/08/03/us/politics/harris-israel-arab-american-voters.html
+
 **Unrest Erupts Across Britain in Wake of Deadly Knife Attack**\
 `Far-right activists scuffled with the police and counterprotesters across England after a stabbing at a dance class in Southport on Monday.`\
 https://nytimes.com/video/world/europe/100000009609850/uk-riots-southport-stabbing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5678495/2024/08/03/blue-jays-talk-how-to-stop-aaron
 **Real Madrid's Palacios to undergo surgery for cruciate ligament tear**\
 `Cesar Palacios will undergo surgery after sustaining a cruciate ligament tear in his first-team debut for Real Madrid.`\
 https://nytimes.com/athletic/5678590/2024/08/03/cesar-palacios-real-madrid-injury/
-
-**Israel strikes a school compound in Gaza, where rescuers report multiple people killed.**\
-`By Anjana Sankar`\
-https://nytimes.com/live/2024/08/03/world/israel-hamas-iran-hezbollah-gaza/israel-strike-gaza-school
 

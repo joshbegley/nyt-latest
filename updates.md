@@ -1,3 +1,7 @@
+**Can Harris Win Back Arab American Voters? The Door May Be Cracked Open.**\
+`Vice President Kamala Harris has not strayed from President Biden on Israel policy, but she has taken a stronger tone on the suffering of Palestinians.`\
+https://nytimes.com/2024/08/03/us/politics/harris-israel-arab-american-voters.html
+
 **Canada's gold medal defense ends against Germany, but players aren't leaving empty-handed**\
 `The reigning Olympic champions head home without a chance for a medal, but they're leaving with their heads held high.`\
 https://nytimes.com/athletic/5678775/2024/08/03/canada-loss-olympic-womens-soccer-quarterfinal/
