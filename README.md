@@ -1,3 +1,7 @@
+**Is the Men’s 100 Meters Still a Can’t-Miss Olympic Moment?**\
+`Lacking star power and tense rivalries, the event is not even be the most anticipated 100-meter race at the Paris Games.`\
+https://nytimes.com/2024/08/03/world/olympics/mens-100-meters-noah-lyles.html
+
 **USWNT 1 Japan 0: Trinity Rodman's extra time goal lifts a tired U.S. team to the Olympic semifinals**\
 `How the USWNT's quarterfinal match against Japan played out`\
 https://nytimes.com/athletic/5676563/2024/08/03/uswnt-japan-olympics-quarterfinal/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/03/world/europe/russia-prisoner-swap.html
 **Kansas man who destroyed Jackie Robinson statue sentenced to 15 years in prison**\
 `The man responsible for stealing a Jackie Robinson statue from a youth baseball league in Wichita, Kan.`\
 https://nytimes.com/athletic/5678229/2024/08/03/jackie-robinson-statue-prison-sentence/
-
-**“My New Go-To Brownie Recipe”**\
-`Lidey Heuck’s easy and versatile brownie recipe is already racking up stars and raves.`\
-https://nytimes.com/2024/08/03/dining/my-new-go-to-brownie-recipe.html
 
