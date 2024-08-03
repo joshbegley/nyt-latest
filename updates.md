@@ -1,3 +1,15 @@
+**Oregon adds 5-star safety Trey McNutt to 2025 recruiting class**\
+`The Ducks are on pace to sign three consecutive top-10 recruiting classes for the first time in school history.`\
+https://nytimes.com/athletic/5647036/2024/08/03/oregon-recruiting-trey-mcnutt-ohio-state/
+
+**Crysencio Summerville has gone. The only way to judge this is by what Leeds do next**\
+`Farke says Leeds have to "pay for a few sins in the past" - so can they still build a squad to challenge for promotion?`\
+https://nytimes.com/athletic/5673979/2024/08/03/leeds-replace-crysencio-summerville-transfer/
+
+**Tyreek Hill, Dolphins agree to restructured deal**\
+`Hill will get $106.5 million fully guaranteed over the next four seasons, the most fully guaranteed money ever for a wide receiver.`\
+https://nytimes.com/athletic/5678460/2024/08/03/tyreek-hill-dolphins-contract/
+
 **Tyreek Hill, Dolphins agree to restructured deal**\
 `Hill will get $106.5 million fully guaranteed over the next four seasons, the most fully guaranteed money ever for a wide receiver.`\
 https://nytimes.com/athletic/5678460/2024/08/03/tyreek-hill-dolphins-extension/
