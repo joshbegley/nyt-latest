@@ -1,3 +1,11 @@
+**The Briefing: Tottenham 1-2 Bayern Munich - Spurs need another centre-forward but young players impress again**\
+`Tottenham ended their pre-season tour to Japan and South Korea with a 2-1 defeat to Bayern Munich in Seoul. We analyse the talking points`\
+https://nytimes.com/athletic/5676511/2024/08/03/tottenham-bayern-result-striker-transfer/
+
+**IOC’s Bach dismisses boxing controversy as ‘culture war'**\
+`Thomas Bach, the president of the International Olympic Committee, told reporters on Saturday that two women in the boxing tournament who have had their eligibility questioned did not have differences in sex development.`\
+https://nytimes.com/athletic/5677931/2024/08/03/olympics-boxing-womens-khelif-lin-thomas-bach-comments/
+
 **Simone Biles no longer worries about being judged, on or off the competition floor.**\
 `By Juliet Macur`\
 https://nytimes.com/live/2024/08/03/world/olympics-simone-biles-vault-gymnastics/simone-biles-no-longer-worries-about-being-judged-on-or-off-the-competition-floor
