@@ -1,3 +1,7 @@
+**Crysencio Summerville to West Ham: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at Crysencio Summerville's move from Leeds to West Ham`\
+https://nytimes.com/athletic/5672157/2024/08/03/crysencio-summerville-west-ham-transfer-rating/
+
 **Musetti wins men's singles bronze over Auger-Aliassime**\
 `Musetti's bronze medal continues a banner year for the 22-year-old.`\
 https://nytimes.com/athletic/5678569/2024/08/03/lorenzo-musetti-bronze-oylmpics-tennis/
