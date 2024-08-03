@@ -1,3 +1,27 @@
+**Street Sheds Transformed New York City Dining. Many Will Soon Disappear.**\
+`New requirements for the city’s outdoor dining program are being met with concern by restaurant owners.`\
+https://nytimes.com/2024/08/03/nyregion/nyc-outdoor-dining-deadline.html
+
+**Inside the ‘Shakespearean Drama’ of the Murdoch Family**\
+`The reporters Jim Rutenberg and Jonathan Mahler, experts on the Murdoch empire, reflect on the revelation and implications of a clandestine legal battle.`\
+https://nytimes.com/2024/08/03/insider/murdoch-family.html
+
+**A Brooklyn Enclave’s Uneasy Peace With 4,000 New Migrant Neighbors**\
+`A pair of shootings deepened quality-of-life concerns among Brooklyn neighbors of a giant office development being used to shelter migrants from Africa and Latin America.`\
+https://nytimes.com/2024/08/03/nyregion/migrant-shelter-brooklyn-killings.html
+
+**Equestrian Is Having an Uncomfortable Moment. Its Olympic Horses Are Not.**\
+`Accusations of mistreatment cast a shadow over dressage and other events. Can cooling tents and locally sourced hay change the narrative?`\
+https://nytimes.com/2024/08/03/world/olympics/equestrian-is-having-an-uncomfortable-moment-its-olympic-horses-are-not.html
+
+**How a ‘Dirty Gospel’ Minister Spends His Sundays**\
+`The Reverend Vince Anderson, a mainstay of the Brooklyn music scene, fills his day with worship in two languages, the Mets and a full hour of watering his 92 houseplants.`\
+https://nytimes.com/2024/08/03/nyregion/reverend-vince-anderson.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/03/crosswords/spelling-bee-forum.html
+
 **A red card and a scuffle: France and Argentina play out latest chapter of rivalry at Olympics**\
 `A tense match between France and Argentina at the Olympic Games boiled over on Friday night, culminating in a red card and a France win`\
 https://nytimes.com/athletic/5677415/2024/08/03/france-argentina-rivalry-olympics/

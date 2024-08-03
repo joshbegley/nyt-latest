@@ -1,3 +1,27 @@
+**Street Sheds Transformed New York City Dining. Many Will Soon Disappear.**\
+`New requirements for the city’s outdoor dining program are being met with concern by restaurant owners.`\
+https://nytimes.com/2024/08/03/nyregion/nyc-outdoor-dining-deadline.html
+
+**Inside the ‘Shakespearean Drama’ of the Murdoch Family**\
+`The reporters Jim Rutenberg and Jonathan Mahler, experts on the Murdoch empire, reflect on the revelation and implications of a clandestine legal battle.`\
+https://nytimes.com/2024/08/03/insider/murdoch-family.html
+
+**A Brooklyn Enclave’s Uneasy Peace With 4,000 New Migrant Neighbors**\
+`A pair of shootings deepened quality-of-life concerns among Brooklyn neighbors of a giant office development being used to shelter migrants from Africa and Latin America.`\
+https://nytimes.com/2024/08/03/nyregion/migrant-shelter-brooklyn-killings.html
+
+**Equestrian Is Having an Uncomfortable Moment. Its Olympic Horses Are Not.**\
+`Accusations of mistreatment cast a shadow over dressage and other events. Can cooling tents and locally sourced hay change the narrative?`\
+https://nytimes.com/2024/08/03/world/olympics/equestrian-is-having-an-uncomfortable-moment-its-olympic-horses-are-not.html
+
+**How a ‘Dirty Gospel’ Minister Spends His Sundays**\
+`The Reverend Vince Anderson, a mainstay of the Brooklyn music scene, fills his day with worship in two languages, the Mets and a full hour of watering his 92 houseplants.`\
+https://nytimes.com/2024/08/03/nyregion/reverend-vince-anderson.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/03/crosswords/spelling-bee-forum.html
+
 **A red card and a scuffle: France and Argentina play out latest chapter of rivalry at Olympics**\
 `A tense match between France and Argentina at the Olympic Games boiled over on Friday night, culminating in a red card and a France win`\
 https://nytimes.com/athletic/5677415/2024/08/03/france-argentina-rivalry-olympics/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5677701/2024/08/03/mets-paul-blackburn-debut-angels
 **'It was so good': Astros' plan for Yusei Kikuchi gets off to impressive start**\
 `Friday was a beginning — and perhaps the birth of a new style.`\
 https://nytimes.com/athletic/5677686/2024/08/03/yusei-kikuchi-astros-debut/
-
-**Nick Sogard, with Red Sox family ties, notches big hit in MLB debut**\
-`Despite the family pedigree, it's been a winding road to the majors for Sogard, a 12th-round pick.`\
-https://nytimes.com/athletic/5677652/2024/08/03/nick-sogard-red-sox-debut/
-
-**Quotation of the Day: In Ten Seconds, One-Man Team Could Be Done**\
-`Quotation of the Day for Saturday, August 3, 2024.`\
-https://nytimes.com/2024/08/03/pageoneplus/quotation-of-the-day-in-ten-seconds-one-man-team-could-be-done.html
-
-**Corrections: Aug. 3, 2024**\
-`Corrections that appeared in print on Saturday, Aug. 3, 2024.`\
-https://nytimes.com/2024/08/03/pageoneplus/corrections-aug-3-2024.html
-
-**Trump Agrees to a Fox News Debate With Harris on Sept. 4**\
-`According to Mr. Trump’s post on social media, the debate will take place in Pennsylvania, a crucial battleground state.`\
-https://nytimes.com/2024/08/03/us/trump-harris-debate-fox-news.html
-
-**3 Sheriff’s Deputies Shot in Florida**\
-`One is in critical condition, and no suspect has been apprehended since the officers were shot while responding to a call at a house in Eustis, a city north of Orlando.`\
-https://nytimes.com/2024/08/03/us/shooting-florida-deputies.html
-
-**Nottingham Forest's Jota Silva: From Sunday football to Portugal's national team**\
-`The 25-year-old winger worked his way through the Portuguese leagues to become Forest's first attacking signing of the summer`\
-https://nytimes.com/athletic/5676816/2024/08/03/jota-silva-nottingham-forest-portugal/
 

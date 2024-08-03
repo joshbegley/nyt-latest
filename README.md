@@ -22,7 +22,7 @@ https://nytimes.com/2024/08/03/nyregion/reverend-vince-anderson.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/08/03/crosswords/spelling-bee-forum.html
 
-**A red card and a scuffle: France and Argentina play out latest chapter of rivalry at Olympics**\
+**Tensions boiled over when France and Argentina met for first time since racist chants**\
 `A tense match between France and Argentina at the Olympic Games boiled over on Friday night, culminating in a red card and a France win`\
 https://nytimes.com/athletic/5677415/2024/08/03/france-argentina-rivalry-olympics/
 
