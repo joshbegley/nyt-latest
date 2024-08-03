@@ -1,3 +1,7 @@
+**Simone Biles vaults to her third gold medal of the Paris Olympics**\
+`Brazil's Rebeca Andrade placed second to snag silver while American Jade Carey took bronze.`\
+https://nytimes.com/athletic/5678217/2024/08/03/simone-biles-vault-olympics-jade-carey-results/
+
 **Relive the Biggest Little Swims in Paris**\
 `Miniature swimming visualizations highlight the greatest performances in the pool at the 2024 Olympics.`\
 https://nytimes.com/interactive/2024/08/03/sports/olympics/paris-2024-little-swimmers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/03/dining/my-new-go-to-brownie-recipe.html
 **At 27, Simone Biles is the most decorated U.S. gymnast in Olympic history.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/08/03/world/olympics-simone-biles-vault-gymnastics/simone-biles-gold-medals-olympics
-
-**Berkshire’s Cash Stockpile Soars as It Cuts Its Stake in Apple**\
-`The conglomerate reported nearly $277 billion in cash in the second quarter. And while it sold about 390 million shares in Apple, it still owned about 400 million.`\
-https://nytimes.com/2024/08/03/business/berkshire-hathaway-buffett-earnings.html
 

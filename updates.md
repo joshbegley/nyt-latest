@@ -1,3 +1,7 @@
+**Simone Biles vaults to her third gold medal of the Paris Olympics**\
+`Brazil's Rebeca Andrade placed second to snag silver while American Jade Carey took bronze.`\
+https://nytimes.com/athletic/5678217/2024/08/03/simone-biles-vault-olympics-jade-carey-results/
+
 **Relive the Biggest Little Swims in Paris**\
 `Miniature swimming visualizations highlight the greatest performances in the pool at the 2024 Olympics.`\
 https://nytimes.com/interactive/2024/08/03/sports/olympics/paris-2024-little-swimmers.html
