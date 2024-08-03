@@ -1,3 +1,7 @@
+**Musetti wins men's singles bronze over Auger-Aliassime**\
+`Musetti's bronze medal continues a banner year for the 22-year-old.`\
+https://nytimes.com/athletic/5678569/2024/08/03/lorenzo-musetti-bronze-oylmpics-tennis/
+
 **Ina Jaffe, Dogged and Award-Winning NPR Reporter, Dies at 75**\
 `Ms. Jaffe spent decades covering politics and aging in America, and she was the first editor of the NPR program “Weekend Edition Saturday.”`\
 https://nytimes.com/2024/08/03/business/media/ina-jaffe-npr-dead.html

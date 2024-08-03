@@ -1,3 +1,7 @@
+**Musetti wins men's singles bronze over Auger-Aliassime**\
+`Musetti's bronze medal continues a banner year for the 22-year-old.`\
+https://nytimes.com/athletic/5678569/2024/08/03/lorenzo-musetti-bronze-oylmpics-tennis/
+
 **Ina Jaffe, Dogged and Award-Winning NPR Reporter, Dies at 75**\
 `Ms. Jaffe spent decades covering politics and aging in America, and she was the first editor of the NPR program “Weekend Edition Saturday.”`\
 https://nytimes.com/2024/08/03/business/media/ina-jaffe-npr-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5672157/2024/08/03/crysencio-summerville-to-west-ha
 **Oregon adds 5-star safety Trey McNutt to 2025 recruiting class**\
 `The Ducks are on pace to sign three consecutive top-10 recruiting classes for the first time in school history.`\
 https://nytimes.com/athletic/5647036/2024/08/03/oregon-recruiting-trey-mcnutt-ohio-state/
-
-**Crysencio Summerville has gone. The only way to judge this is by what Leeds do next**\
-`Farke says Leeds have to "pay for a few sins in the past" - so can they still build a squad to challenge for promotion?`\
-https://nytimes.com/athletic/5673979/2024/08/03/leeds-replace-crysencio-summerville-transfer/
 
