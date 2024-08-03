@@ -1,3 +1,7 @@
+**Three goals for the Blue Jays in the season's final two months**\
+`With 52 games remaining, the Blue Jays should focus on three goals, including letting their youngsters play.`\
+https://nytimes.com/athletic/5677575/2024/08/02/blue-jays-three-goals/
+
 **Building a 100,000-seater stadium: The challenges and benefits**\
 `Manchester United are planning to build a 100,000-seater stadium — but how difficult is that?`\
 https://nytimes.com/athletic/5674259/2024/08/03/manchester-united-new-stadium/
