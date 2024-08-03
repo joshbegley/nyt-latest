@@ -1,3 +1,7 @@
+**Canada's gold medal defense ends against Germany, but players aren't leaving empty-handed**\
+`The reigning Olympic champions head home without a chance for a medal, but they won't leave empty-handed.`\
+https://nytimes.com/athletic/5678775/2024/08/03/canada-loss-olympic-womens-soccer-quarterfinal/
+
 **Tracking Tropical Storm Debby**\
 `See the likely path and wind arrival times for Debby.`\
 https://nytimes.com/interactive/2024/08/03/weather/debby-map-path-tracker.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/03/world/olympics/julien-alfred-shacarri-richardson-
 **Canada eliminated from Paris Olympics after shootout defeat vs Germany**\
 `Canada have been knocked out of the Paris Olympic women&#8217;s football quarterfinal after being defeated by Germany on penalties following a 0-0 draw.`\
 https://nytimes.com/athletic/5678382/2024/08/03/canada-germany-result-paris-olympics/
-
-**U.S. sets world record, edges China for gold in 4x100m mixed medley**\
-`The Americans did not medal in the mixed medley relay in Tokyo when the event made its Olympic debut.`\
-https://nytimes.com/athletic/5678477/2024/08/03/usa-mixed-medley-relay-gold-paris-olympics/
 
