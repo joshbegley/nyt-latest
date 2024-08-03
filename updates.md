@@ -1,3 +1,11 @@
+**Julien Alfred stuns Sha'Carri Richardson to win 100m**\
+`Alfred, one of the best sprinters in the world, was simply too fast to chase down from behind, even for Richardson’s terrific closing speed.`\
+https://nytimes.com/athletic/5678570/2024/08/03/julien-alfred-shacarri-richardson-womens-100-meter-results-olympics/
+
+**Ledecky ties record for most golds by female Olympians with 800m free win**\
+`Ledecky has now won 14 total Olympic medals across four Games.`\
+https://nytimes.com/athletic/5678493/2024/08/03/katie-ledecky-most-gold-medals-olympics/
+
 **Anton van Dalen, Whose Art Examined an Evolving Neighborhood, Dies at 85**\
 `He traced the dramatic transformation of the Lower East Side from his building, where he lived for 50 years. He also assisted the cartoonist Saul Steinberg.`\
 https://nytimes.com/2024/08/03/arts/anton-van-dalen-dead.html
