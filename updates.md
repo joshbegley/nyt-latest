@@ -1,3 +1,7 @@
+**Olympics mixed relay triathlon training cancelled over water quality concerns**\
+`Training ahead of the final Olympics triathlon event in Paris has been cancelled over more concerns over the water quality in the River Seine.`\
+https://nytimes.com/athletic/5677826/2024/08/03/olympics-triathlon-water-mixed-relay/
+
 **Collyer, Amass and Wheatley: The young United trio hoping to follow Mainoo pathway**\
 `Manchester United's youngsters are hoping to take their opportunities during the tour of the U.S.`\
 https://nytimes.com/athletic/5677445/2024/08/03/manchester-united-youngsters-collyer-amass-wheatley/
