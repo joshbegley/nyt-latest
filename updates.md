@@ -1,3 +1,7 @@
+**Foggy**\
+`Rich Norris’s themeless puzzle shouldn’t be missed.`\
+https://nytimes.com/2024/08/02/crosswords/daily-puzzle-2024-08-03.html
+
 **McKays join USC-backed NIL collective, furthering alignment goal**\
 `USC's patchwork NIL collective setup took a step closer toward unification when Jeff and J.K. McKay joined the school-back House of Victory.`\
 https://nytimes.com/athletic/5677402/2024/08/02/mckay-additions-take-uscs-nil-efforts-a-step-closer-toward-alignment/
