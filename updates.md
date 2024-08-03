@@ -1,3 +1,7 @@
+**Tyreek Hill, Dolphins agree to $90M extension**\
+`Hill will get $106.5 million fully guaranteed over the next four seasons, the most fully guaranteed money ever for a wide receiver.`\
+https://nytimes.com/athletic/5678460/2024/08/03/tyreek-hill-dolphins-extension/
+
 **U.S. men's basketball thwarts Puerto Rico to secure No. 1 seed**\
 `Team USA beat Puerto Rico 104-83 behind 26 points from Anthony Edwards on Saturday to finish 3-0 in pool play.`\
 https://nytimes.com/athletic/5678149/2024/08/03/team-usa-puerto-rico-olympics-basketball/
