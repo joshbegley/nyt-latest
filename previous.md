@@ -1,3 +1,7 @@
+**Anton van Dalen, Whose Art Examined an Evolving Neighborhood, Dies at 85**\
+`He traced the dramatic transformation of the Lower East Side from his building, where he lived for 50 years. He also assisted the cartoonist Saul Steinberg.`\
+https://nytimes.com/2024/08/03/arts/anton-van-dalen-dead.html
+
 **Summer McIntosh beats loaded 200-meter IM field to win gold**\
 `American Alex Walsh, who originally finished third, was disqualified for an illegal turn from backstroke to breaststroke.`\
 https://nytimes.com/athletic/5678428/2024/08/03/200-meter-individual-medley-paris-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5674187/2024/08/03/crysencio-summerville-west-ham-t
 **Killing of Hamas Leader Creates a New Rift Between the U.S. and Israel**\
 `President Biden has expressed concern that the circumstances of the assassination have thrown cease-fire talks into doubt, but Prime Minister Benjamin Netanyahu of Israel rejects that idea, officials say.`\
 https://nytimes.com/2024/08/03/us/politics/us-israel-hamas-assassination.html
-
-**Ryan Crouser cements shot put dominance with third straight Olympic gold**\
-`His throw of 22.90 meters secured his spot as the G.O.A.T. of shot put.`\
-https://nytimes.com/athletic/5678457/2024/08/03/ryan-crouser-shot-put-olympics-gold/
 

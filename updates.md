@@ -1,3 +1,7 @@
+**Anton van Dalen, Whose Art Examined an Evolving Neighborhood, Dies at 85**\
+`He traced the dramatic transformation of the Lower East Side from his building, where he lived for 50 years. He also assisted the cartoonist Saul Steinberg.`\
+https://nytimes.com/2024/08/03/arts/anton-van-dalen-dead.html
+
 **Summer McIntosh beats loaded 200-meter IM field to win gold**\
 `American Alex Walsh, who originally finished third, was disqualified for an illegal turn from backstroke to breaststroke.`\
 https://nytimes.com/athletic/5678428/2024/08/03/200-meter-individual-medley-paris-olympics/
