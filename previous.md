@@ -1,3 +1,7 @@
+**Nick Sogard, with Red Sox family ties, notches big hit in MLB debut**\
+`Despite the family pedigree, it's been a winding road to the majors for Sogard, a 12th-round pick.`\
+https://nytimes.com/athletic/5677652/2024/08/03/nick-sogard-red-sox-debut/
+
 **Quotation of the Day: In Ten Seconds, One-Man Team Could Be Done**\
 `Quotation of the Day for Saturday, August 3, 2024.`\
 https://nytimes.com/2024/08/03/pageoneplus/quotation-of-the-day-in-ten-seconds-one-man-team-could-be-done.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/03/world/olympics/marcell-jacobs-100-meters-italy.ht
 **Iran Arrests Dozens in Search for Suspects in Killing of Hamas Leader**\
 `Iran has begun a sweeping investigation into the assassination of Ismail Haniyeh, with its intensity a sign of how damaging and shocking the security failure was.`\
 https://nytimes.com/2024/08/03/world/middleeast/iran-security-response-hamas-assassination.html
-
-**It’s the Paris Olympics’ biggest day. How to prepare for — and survive — 31 gold medal events**\
-`Every Sunday in the fall, Scott Hanson hosts seven hours of television without a commercial.`\
-https://nytimes.com/athletic/5677453/2024/08/03/paris-olympics-2024-august-3-schedule/
 
