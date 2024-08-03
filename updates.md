@@ -1,3 +1,7 @@
+**I Thought I Disliked These Authors. I Was Happy to Be Wrong.**\
+`Italo Calvino? Not so bad! May Sarton? Pretty good!`\
+https://nytimes.com/2024/08/03/books/read-like-wind-recommendations.html
+
 **Protests Again Rock Bangladesh, Weeks After a Deadly Crackdown**\
 `As curfews and restrictions on communication were loosened, anger over the deadly suppression of previous protests began flaring up once more.`\
 https://nytimes.com/2024/08/03/world/asia/bangladesh-protests-students.html
