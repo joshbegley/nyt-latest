@@ -1,3 +1,15 @@
+**Relive the Biggest Little Swims in Paris**\
+`Miniature swimming visualizations highlight the greatest performances in the pool at the 2024 Olympics.`\
+https://nytimes.com/interactive/2024/08/03/sports/olympics/paris-2024-little-swimmers.html
+
+**If ‘The Lord of the Rings’ Is a Cautionary Tale, It Was Lost on JD Vance**\
+`He seems to have missed J.R.R. Tolkien’s main point.`\
+https://nytimes.com/2024/08/03/opinion/jd-vance-lord-of-the-rings.html
+
+**USA Rowing begins its climb back in Paris, with bigger goals for L.A. 2028**\
+`Two medals at the Paris Olympics constitutes progress for USA Rowing. But they have a lot loftier goals for Los Angeles in 2028.`\
+https://nytimes.com/athletic/5678185/2024/08/03/usa-rowing-2024-paris-olympics-mens-eight-bronze/
+
 **Tulsa Creates Commission on Reparations for Race Massacre**\
 `The group will develop a plan to carry out reparations and study how they can be made to survivors of the 1921 massacre and their descendants.`\
 https://nytimes.com/2024/08/03/us/tulsa-race-massacre-reparations-oklahoma.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/08/03/world/olympics-simone-biles-vault-gymnastics
 **Berkshire’s Cash Stockpile Soars as It Cuts Its Stake in Apple**\
 `The conglomerate reported nearly $277 billion in cash in the second quarter. And while it sold about 390 million shares in Apple, it still owned about 400 million.`\
 https://nytimes.com/2024/08/03/business/berkshire-hathaway-buffett-earnings.html
-
-**Why the Chicago Cubs have to be thinking bigger with their rotation**\
-`The Cubs' rock-solid starting staff in 2024 shouldn't preclude them from reinforcing the rotation via trade or free-agent signings. `\
-https://nytimes.com/athletic/5677245/2024/08/03/chicago-cubs-have-to-think-bigger-with-rotation/
-
-**Chargers training camp, Day 9: Chris Rumph II making strong case for 53-man**\
-`The Chargers’ edge rusher room is already "stacked." Rumph could add depth and protection in case of injury to Joey Bosa or Khalil Mack.`\
-https://nytimes.com/athletic/5677725/2024/08/03/chargers-training-camp-chris-rumph-ii/
-
-**Taylor Fritz and Tommy Paul win Olympic bronze tennis medal for Team USA**\
-`Taylor Fritz and Tommy Paul built on Rajeev Ram and Austin Krajicek&#8217;s Olympic silver medal in men&#8217;s tennis doubles, by beating Czech pair Tomas Machac and Adam Pavlasek 6-3, 6-4 for the bronze on Court Philippe-Chatrier at Roland Garros on Saturday afternoon.`\
-https://nytimes.com/athletic/5678160/2024/08/03/taylor-fritz-tommy-paul-olympics-tennis-bronze-medal/
 
