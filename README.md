@@ -28,7 +28,7 @@ https://nytimes.com/2024/08/03/arts/anton-van-dalen-dead.html
 
 **Crysencio Summerville to West Ham: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at Crysencio Summerville's move from Leeds to West Ham`\
-https://nytimes.com/athletic/5672157/2024/08/03/crysencio-summerville-west-ham-transfer-rating/
+https://nytimes.com/athletic/5672157/2024/08/03/crysencio-summerville-to-west-ham-the-athletic-500-transfer-ratings/
 
 **Summer McIntosh beats loaded 200-meter IM field to win gold**\
 `American Alex Walsh, who originally finished third, was disqualified for an illegal turn from backstroke to breaststroke.`\
