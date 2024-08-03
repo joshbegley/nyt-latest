@@ -1,3 +1,11 @@
+**Canada eliminated from Paris Olympics after shootout defeat vs Germany**\
+`Canada have been knocked out of the Paris Olympic women&#8217;s football quarterfinal after being defeated by Germany on penalties following a 0-0 draw.`\
+https://nytimes.com/athletic/5678382/2024/08/03/canada-germany-result-paris-olympics/
+
+**Ledecky ties record for most golds by a female Olympian**\
+`Ledecky's win marks the first time a woman ever won four gold medals in the same event.`\
+https://nytimes.com/athletic/5678493/2024/08/03/katie-ledecky-most-gold-medals-olympics/
+
 **U.S. sets world record, edges China for gold in 4x100m mixed medley**\
 `The Americans did not medal in the mixed medley relay in Tokyo when the event made its Olympic debut.`\
 https://nytimes.com/athletic/5678477/2024/08/03/usa-mixed-medley-relay-gold-paris-olympics/

@@ -1,3 +1,7 @@
+**Canada eliminated from Paris Olympics after shootout defeat vs Germany**\
+`Canada have been knocked out of the Paris Olympic women&#8217;s football quarterfinal after being defeated by Germany on penalties following a 0-0 draw.`\
+https://nytimes.com/athletic/5678382/2024/08/03/canada-germany-result-paris-olympics/
+
 **U.S. sets world record, edges China for gold in 4x100m mixed medley**\
 `The Americans did not medal in the mixed medley relay in Tokyo when the event made its Olympic debut.`\
 https://nytimes.com/athletic/5678477/2024/08/03/usa-mixed-medley-relay-gold-paris-olympics/
@@ -14,7 +18,7 @@ https://nytimes.com/2024/08/03/business/media/ina-jaffe-npr-dead.html
 `Alfred, one of the best sprinters in the world, was simply too fast to chase down from behind, even for Richardson’s terrific closing speed.`\
 https://nytimes.com/athletic/5678570/2024/08/03/julien-alfred-shacarri-richardson-womens-100-meter-results-olympics/
 
-**Ledecky ties record for most golds by female Olympians with 800m free win**\
+**Ledecky ties record for most golds by a female Olympian**\
 `Ledecky's win marks the first time a woman ever won four gold medals in the same event.`\
 https://nytimes.com/athletic/5678493/2024/08/03/katie-ledecky-most-gold-medals-olympics/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5678428/2024/08/03/200-meter-individual-medley-pari
 **Scribble, Snuggle, Soar: Making the Most of High Jump’s Downtime**\
 `The high jump often presents competitors with an abundance of down time. Two rivals fill it in very different ways.`\
 https://nytimes.com/2024/08/03/world/olympics/high-jump-athletes.html
-
-**Embiid chose U.S. over France since 'these guys wanted me'**\
-`"It was a tough decision, but it is all about comfort level," Joel Embiid said of playing for Team USA.`\
-https://nytimes.com/athletic/5678508/2024/08/03/joel-embiid-team-use-france-olympics/
 
