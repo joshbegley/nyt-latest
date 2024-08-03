@@ -1,3 +1,7 @@
+**Yankees appear to bench Gleyber Torres for baserunning blunder**\
+`Gleyber Torres failed to hustle on a 110.7 mph single and was later removed defensively. `\
+https://nytimes.com/athletic/5677509/2024/08/02/yankees-appear-to-bench-gleyber-torres-for-baserunning-blunder/
+
 **Foggy**\
 `Rich Norris’s themeless puzzle shouldn’t be missed.`\
 https://nytimes.com/2024/08/02/crosswords/daily-puzzle-2024-08-03.html
