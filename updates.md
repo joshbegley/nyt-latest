@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Debby**\
+`See the likely path and wind arrival times for Debby.`\
+https://nytimes.com/interactive/2024/08/03/weather/debby-map-path-tracker.html
+
 **Rams RT Rob Havenstein is ‘week to week’**\
 `The Rams now have three starting offensive linemen sidelined and each is considered week to week, Sean McVay said.`\
 https://nytimes.com/athletic/5678726/2024/08/03/la-rams-rob-havenstein-injury-update/
