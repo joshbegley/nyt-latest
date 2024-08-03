@@ -1,4 +1,8 @@
 **Luol Deng criticizes officiating after South Sudan's loss to Serbia**\
+`"Everybody knows there's a huge disrespect to African basketball," Deng said.`\
+https://nytimes.com/athletic/5678758/2024/08/03/south-sudan-serbia-officiating-comments/
+
+**Luol Deng criticizes officiating after South Sudan's loss to Serbia**\
 `"As soon as our guys play their style, we're getting (called for fouls) every time," Deng said.`\
 https://nytimes.com/athletic/5678758/2024/08/03/south-sudan-serbia-officiating-comments/
 
