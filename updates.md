@@ -1,3 +1,11 @@
+**Defense Secretary Revokes Plea Deal for Accused Sept. 11 Plotters**\
+`Defense Secretary Lloyd J. Austin III assumed direct oversight of the case and effectively put the death penalty back on the table.`\
+https://nytimes.com/2024/08/02/us/politics/911-plotters-plea-deal.html
+
+**Aerosmith Retires From Touring, Citing Steven Tyler’s Vocal Injury**\
+`Last year, the band’s frontman, Steven Tyler, suffered a vocal injury during a show, and the farewell tour was postponed. The band announced its retirement on Friday, saying a full recovery was not possible.`\
+https://nytimes.com/2024/08/02/arts/music/aerosmith-retirement-tour-steven-tyler.html
+
 **Shapiro’s College-Era Criticism of Palestinians Draws Fresh Scrutiny**\
 `The Pennsylvania governor, a top contender to be Vice President Kamala Harris’s running mate, wrote in his college newspaper that Palestinians were “too battle-minded.”`\
 https://nytimes.com/2024/08/02/us/politics/josh-shapiro-palestinians-college.html
