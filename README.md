@@ -1,3 +1,7 @@
+**Nottingham Forest's Jota Silva: From Sunday football to Portugal's national team**\
+`The 25-year-old winger worked his way through the Portuguese leagues to become Forest's first attacking signing of the summer`\
+https://nytimes.com/athletic/5676816/2024/08/03/jota-silva-nottingham-forest-portugal/
+
 **Building a 100,000-seater stadium: The challenges and benefits**\
 `Manchester United are planning to build a 100,000-seater stadium — but how difficult is that?`\
 https://nytimes.com/athletic/5674259/2024/08/03/manchester-united-new-stadium/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5677575/2024/08/02/blue-jays-three-goals/
 **Giants' Blake Snell throws first no-hitter of career vs. Reds**\
 `It was the 18th no-hitter in Giants history, and the 13th time Cincinnati has been no-hit.`\
 https://nytimes.com/athletic/5677557/2024/08/02/blake-snell-no-hitter-giants-reds/
-
-**Yankees appear to bench Gleyber Torres for baserunning blunder**\
-`Gleyber Torres failed to hustle on a 110.7 mph single and was later removed defensively. `\
-https://nytimes.com/athletic/5677509/2024/08/02/yankees-appear-to-bench-gleyber-torres-for-baserunning-blunder/
 
