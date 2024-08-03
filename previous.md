@@ -28,7 +28,7 @@ https://nytimes.com/2024/08/03/world/olympics/mens-100-meters-noah-lyles.html
 
 **USWNT 1 Japan 0: Trinity Rodman's extra time goal lifts a tired U.S. team to the Olympic semifinals**\
 `How the USWNT's quarterfinal match against Japan played out`\
-https://nytimes.com/athletic/5676563/2024/08/03/uswnt-japan-olympics-quarterfinal/
+https://nytimes.com/athletic/5676563/2024/08/03/uswnt-japan-olympics-result-takeaways-trinity-rodman/
 
 **Simone Biles vaults to her third gold medal of the Paris Olympics**\
 `Brazil's Rebeca Andrade placed second to snag silver while American Jade Carey took bronze.`\

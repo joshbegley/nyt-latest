@@ -1,3 +1,7 @@
+**USWNT 1 Japan 0: Trinity Rodman's extra time goal lifts a tired U.S. team to the Olympic semifinals**\
+`How the USWNT's quarterfinal match against Japan played out`\
+https://nytimes.com/athletic/5676563/2024/08/03/uswnt-japan-olympics-result-takeaways-trinity-rodman/
+
 **Stephen Nedoroscik's legend grows with Olympic bronze on pommel horse**\
 `Ireland’s Rhys McClenaghan won the gold and Kazakhstan's Nurmiman Kurbanov grabbed the silver.`\
 https://nytimes.com/athletic/5678307/2024/08/03/stephen-nedoroscik-bronze-olympics-pommel-horse-final/
