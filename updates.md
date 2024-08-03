@@ -1,3 +1,7 @@
+**Tyreek Hill, Dolphins agree to restructured deal**\
+`Hill will get $106.5 million fully guaranteed over the next four seasons, the most fully guaranteed money ever for a wide receiver.`\
+https://nytimes.com/athletic/5678460/2024/08/03/tyreek-hill-dolphins-extension/
+
 **Everything You Need to Know to Make the Best Steak**\
 `In the final installment of her YouTube series, Sohla El-Waylly helps demystify how to prepare three types of beef: ground, short rib and rib-eye.`\
 https://nytimes.com/article/how-to-cook-steak.html

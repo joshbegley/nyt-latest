@@ -18,7 +18,7 @@ https://nytimes.com/athletic/5678457/2024/08/03/ryan-crouser-shot-put-olympics-g
 `Fulham have completed the signing of Jorge Cuenca from Villarreal for an undisclosed fee.`\
 https://nytimes.com/athletic/5678489/2024/08/03/jorge-cuenca-fulham-transfer/
 
-**Tyreek Hill, Dolphins agree to $90M extension**\
+**Tyreek Hill, Dolphins agree to restructured deal**\
 `Hill will get $106.5 million fully guaranteed over the next four seasons, the most fully guaranteed money ever for a wide receiver.`\
 https://nytimes.com/athletic/5678460/2024/08/03/tyreek-hill-dolphins-extension/
 
