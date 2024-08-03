@@ -1,3 +1,7 @@
+**A Times Russia Reporter Reflects on Evan Gershkovich’s Release**\
+`Gershkovich, a reporter for The Wall Street Journal, was freed on Thursday after 16 months in a Russian prison. Anton Troianovski, The Times’s Moscow bureau chief, shared how he covered the moment.`\
+https://nytimes.com/2024/08/03/insider/prisoner-swap-evan-gershkovich.html
+
 **When Elder Care Is All in the Stepfamily**\
 `Adult children are less likely to assist an aging stepparent, studies show. A growing “step gap” in senior care worries experts.`\
 https://nytimes.com/2024/08/03/health/stepchildren-eldercare.html

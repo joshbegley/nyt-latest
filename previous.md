@@ -1,3 +1,7 @@
+**A Times Russia Reporter Reflects on Evan Gershkovich’s Release**\
+`Gershkovich, a reporter for The Wall Street Journal, was freed on Thursday after 16 months in a Russian prison. Anton Troianovski, The Times’s Moscow bureau chief, shared how he covered the moment.`\
+https://nytimes.com/2024/08/03/insider/prisoner-swap-evan-gershkovich.html
+
 **When Elder Care Is All in the Stepfamily**\
 `Adult children are less likely to assist an aging stepparent, studies show. A growing “step gap” in senior care worries experts.`\
 https://nytimes.com/2024/08/03/health/stepchildren-eldercare.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5677931/2024/08/03/olympics-boxing-womens-khelif-li
 **Simone Biles no longer worries about being judged, on or off the competition floor.**\
 `By Juliet Macur`\
 https://nytimes.com/live/2024/08/03/world/olympics-simone-biles-vault-gymnastics/simone-biles-no-longer-worries-about-being-judged-on-or-off-the-competition-floor
-
-**Raheem Morris' Super Bowl pedigree, energy have Falcons excited about future**\
-`Morris has his sights set on immediate success but is already putting plans together to ensure a bright future. `\
-https://nytimes.com/athletic/5668694/2024/08/03/atlanta-falcons-raheem-morris-training-camp/
 
