@@ -1,3 +1,7 @@
+**3 Sheriff’s Deputies Shot in Florida**\
+`One is in critical condition, and no suspect has been apprehended since the officers were shot while responding to a call at a house in Eustis, a city north of Orlando.`\
+https://nytimes.com/2024/08/03/us/shooting-florida-deputies.html
+
 **Three goals for the Blue Jays in the final 2 months of the season**\
 `With 52 games remaining, the Blue Jays should focus on three goals, including letting their youngsters play.`\
 https://nytimes.com/athletic/5677575/2024/08/02/blue-jays-three-goals/
