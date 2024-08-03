@@ -1,3 +1,7 @@
+**Is the Men’s 100 Meters Still a Can’t-Miss Olympic Moment?**\
+`Lacking star power and tense rivalries, the event is not even be the most anticipated 100-meter race at the Paris Games.`\
+https://nytimes.com/2024/08/03/world/olympics/mens-100-meters-noah-lyles.html
+
 **USWNT 1 Japan 0: Trinity Rodman's extra time goal lifts a tired U.S. team to the Olympic semifinals**\
 `How the USWNT's quarterfinal match against Japan played out`\
 https://nytimes.com/athletic/5676563/2024/08/03/uswnt-japan-olympics-quarterfinal/
