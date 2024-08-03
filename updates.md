@@ -1,3 +1,15 @@
+**Stephen Nedoroscik's legend grows with Olympic bronze on pommel horse**\
+`Ireland’s Rhys McClenaghan won the gold and Kazakhstan's Nurmiman Kurbanov grabbed the silver.`\
+https://nytimes.com/athletic/5678307/2024/08/03/stephen-nedoroscik-bronze-olympics-pommel-horse-final/
+
+**Atletico in talks with City over Alvarez transfer**\
+`Atletico Madrid are in talks with Manchester City over a possible move for Julian Alvarez.`\
+https://nytimes.com/athletic/5678245/2024/08/03/julian-alvarez-atletico-madrid-man-city-transfer/
+
+**False starts on the track at the Olympic Games: what are the rules?**\
+`Three sprinters were disqualified in the early rounds of the men's 100m in Paris — including an 18-year-old from Mozambique`\
+https://nytimes.com/athletic/5678148/2024/08/03/olympics-false-start-rules-track-explained/
+
 **Alexander Waugh, Literary Scion of a Literary Dynasty, Dies at 60**\
 `The brother, son and grandson of famous English writers, he carved out his own space as a composer, critic, columnist and historian.`\
 https://nytimes.com/2024/08/03/books/alexander-waugh-dead.html
