@@ -1,3 +1,7 @@
+**St. Lucia gets its first gold medal, thanks to the world’s fastest woman.**\
+`Julien Alfred beat Sha’Carri Richardson of the United States by 15-hundredths of a second to win St. Lucia’s first Olympic medal.`\
+https://nytimes.com/2024/08/03/world/olympics/julien-alfred-shacarri-richardson-100-meters.html
+
 **Canada eliminated from Paris Olympics after shootout defeat vs Germany**\
 `Canada have been knocked out of the Paris Olympic women&#8217;s football quarterfinal after being defeated by Germany on penalties following a 0-0 draw.`\
 https://nytimes.com/athletic/5678382/2024/08/03/canada-germany-result-paris-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5672157/2024/08/03/crysencio-summerville-to-west-ha
 **Summer McIntosh beats loaded 200-meter IM field to win gold**\
 `American Alex Walsh, who originally finished third, was disqualified for an illegal turn from backstroke to breaststroke.`\
 https://nytimes.com/athletic/5678428/2024/08/03/200-meter-individual-medley-paris-olympics/
-
-**Scribble, Snuggle, Soar: Making the Most of High Jump’s Downtime**\
-`The high jump often presents competitors with an abundance of down time. Two rivals fill it in very different ways.`\
-https://nytimes.com/2024/08/03/world/olympics/high-jump-athletes.html
 
