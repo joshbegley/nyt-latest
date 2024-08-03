@@ -1,3 +1,7 @@
+**Maui Wildfire Plaintiffs Reach $4 Billion Settlement as Anniversary Nears**\
+`Hawaiian Electric is expected to pay the largest share — nearly $2 billion — but avoided a heftier price tag that could have forced the utility into bankruptcy.`\
+https://nytimes.com/2024/08/02/us/maui-wildfire-hawaii-settlement.html
+
 **Meta in Talks to Use Voices of Judi Dench, Awkwafina and Others for A.I.**\
 `If deals are struck, Meta may incorporate the actors’ voices into a digital assistant product called MetaAI, people with knowledge of the effort said.`\
 https://nytimes.com/2024/08/02/technology/meta-ai-celebrity-voices.html
