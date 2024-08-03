@@ -1,3 +1,7 @@
+**Hearing Set to Discuss Next Steps in Trump’s Federal Election Case**\
+`The case was on hold during the appeals process, which culminated in a sweeping Supreme Court ruling on presidential immunity. Now the judge must decide which acts in the indictment qualify.`\
+https://nytimes.com/2024/08/03/us/politics/trump-federal-election-case-hearing.html
+
 **Simone Biles’s gold-medal-winning Yurchenko double pike, frame by frame.**\
 `Biles won her second Olympic vault title — eight years after her first in Rio — with her signature Yurchenko double pike and then a vault called a Cheng.`\
 https://nytimes.com/2024/08/03/world/olympics/simone-biles-vault.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5677810/2024/08/03/chelsea-conference-league-malo-g
 **Atletico sign striker Sorloth from Villarreal**\
 `Atletico Madrid have completed the signing of striker Alexander Sorloth from Villarreal.`\
 https://nytimes.com/athletic/5671929/2024/08/03/alexander-sorloth-atletico-madrid-transfer/
-
-**Is the Men’s 100 Meters Still a Can’t-Miss Olympic Moment?**\
-`Lacking star power and tense rivalries, the event is not even be the most anticipated 100-meter race at the Paris Games.`\
-https://nytimes.com/2024/08/03/world/olympics/mens-100-meters-noah-lyles.html
 
