@@ -1,3 +1,15 @@
+**Canadian Doctors Warn Against Private Medicine as a Cure for the System’s Ills**\
+`The Canadian Medical Association has called for a ban on payments for procedures long covered by public systems and is warning about contracting services out.`\
+https://nytimes.com/2024/08/03/world/canada/canada-private-health-care.html
+
+**Wordle Review No. 1,142, Sunday, August 4, 2024**\
+`Scroll down to reveal letters from today’s word, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/08/03/crosswords/wordle-review-1142.html
+
+**The Connections Companion No. 420, August 4, 2024**\
+`Scroll down to reveal a hint for each category of today’s Connections, or head to the comments for community hints and conversation.`\
+https://nytimes.com/2024/08/03/crosswords/connections-companion-420.html
+
 **Behind McKenzie Long's Olympic moment, a mother's love and a profound grief**\
 `The fabric was so soft and official.`\
 https://nytimes.com/athletic/5624774/2024/08/03/mckenzie-long-olympics-200-meter-mother-grief/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/03/us/politics/harris-vice-president-selection.html
 **‘House of the Dragon’: All the Dragons and Their Riders So Far**\
 `The dragons are amassing, and just like their humans, they have histories and personalities, too. Here’s a rundown of who’s riding whom.`\
 https://nytimes.com/2024/08/03/arts/television/house-of-the-dragon-season-2-finale-hbo.html
-
-**Should Harris Talk Much About Her Racial Identity? Many Voters Say No.**\
-`Even as Trump plays up racial divisions, many Americans said they would rather not dwell on race or identity. “We can all see that you’re Black.”`\
-https://nytimes.com/2024/08/03/us/kamala-harris-race-trump.html
-
-**San Francisco Takes Harder Line Against Homeless Camps, Defying Its Reputation**\
-`Mayor London Breed has told city officials to issue citations and encourage homeless people to leave town by offering free bus tickets.`\
-https://nytimes.com/2024/08/03/us/san-francisco-homeless-london-breed.html
-
-**Fires Have Burned 4.5 Million Acres So Far in 2024, Blanketing Much of North America in Smoke**\
-`More than 90 large fires are raging across the United States, intensifying this year’s fire season. The forecast shows no sign of letting up.`\
-https://nytimes.com/2024/08/03/weather/wildfire-smoke-california-northwest.html
 
