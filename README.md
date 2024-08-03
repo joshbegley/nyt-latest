@@ -1,3 +1,7 @@
+**U.S. men's basketball thwarts Puerto Rico, secures No. 1 seed for quarterfinals**\
+`Team USA beat Puerto Rico 104-83 behind 26 points from Anthony Edwards on Saturday to finish 3-0 in pool play.`\
+https://nytimes.com/athletic/5678149/2024/08/03/team-usa-puerto-rico-olympics-basketball/
+
 **Hearing Set to Discuss Next Steps in Trump’s Federal Election Case**\
 `The case was on hold during the appeals process, which culminated in a sweeping Supreme Court ruling on presidential immunity. Now the judge must decide which acts in the indictment qualify.`\
 https://nytimes.com/2024/08/03/us/politics/trump-federal-election-case-hearing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/03/books/alexander-waugh-dead.html
 **Chelsea 'can't relax' in Conference League, Gusto insists**\
 `Malo Gusto has warned his Chelsea team-mates that they cannot take their place in the UEFA Conference League this season for granted.`\
 https://nytimes.com/athletic/5677810/2024/08/03/chelsea-conference-league-malo-gusto/
-
-**Atletico sign striker Sorloth from Villarreal**\
-`Atletico Madrid have completed the signing of striker Alexander Sorloth from Villarreal.`\
-https://nytimes.com/athletic/5671929/2024/08/03/alexander-sorloth-atletico-madrid-transfer/
 
