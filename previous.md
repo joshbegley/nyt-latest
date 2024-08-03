@@ -30,7 +30,7 @@ https://nytimes.com/athletic/5675995/2024/08/03/olympics-watch-guide-day-8-swimm
 `Mr. Lam had been filling the post of general secretary temporarily since the death of his predecessor in July. Now he is in position to consolidate power.`\
 https://nytimes.com/2024/08/02/world/asia/to-lam-vietnam-leader.html
 
-**Three goals for the Blue Jays in the season's final two months**\
+**Three goals for the Blue Jays in the final 2 months of the season**\
 `With 52 games remaining, the Blue Jays should focus on three goals, including letting their youngsters play.`\
 https://nytimes.com/athletic/5677575/2024/08/02/blue-jays-three-goals/
 
