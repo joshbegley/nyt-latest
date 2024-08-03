@@ -1,3 +1,15 @@
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/08/03/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Saying the Quiet Part Out Loud**\
+`Two billionaire Democratic donors have publicly pressured Vice President Kamala Harris to replace the F.T.C. chair, Lina Khan. Wall Street insiders are worried that could backfire.`\
+https://nytimes.com/2024/08/03/business/dealbook/saying-the-quiet-part-out-loud.html
+
+**The Briefing: Yokohama F Marinos 2-0 Newcastle - Would Guehi's arrival be a positive?**\
+`Newcastle fell to a 2-0 loss against Yokohama F Marinos in their game on Saturday — this is George Caulkin's analysis`\
+https://nytimes.com/athletic/5676509/2024/08/03/newcastle-yokohama-analysis-report-result/
+
 **I Thought I Disliked These Authors. I Was Happy to Be Wrong.**\
 `Italo Calvino? Not so bad! May Sarton? Pretty good!`\
 https://nytimes.com/2024/08/03/books/read-like-wind-recommendations.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/03/opinion/sweet-valley-high-childhood-awakening.htm
 **‘An End to the Trump Story’: Three Columnists Size Up Harris and Her V.P. Options**\
 `What three columnists are thinking about possible Democratic presidential tickets and the state of the race between Harris and Trump.`\
 https://nytimes.com/2024/08/03/opinion/kamala-harris-vp-pick.html
-
-**Barcelona striker Victor is impressing in pre-season - and posing questions**\
-`Pau Victor has impressed for Barcelona during pre-season — leading to questions over his squad role this season`\
-https://nytimes.com/athletic/5677740/2024/08/03/pau-victor-barcelona-vitor-roque/
-
-**Dogs Are the Best! But They Highlight Our Hypocrisy.**\
-`While we increasingly pamper our dogs, we blithely accept the torture of the pigs we eat.`\
-https://nytimes.com/2024/08/03/opinion/dogs-pets-animal-abuse.html
-
-**Can the Harris Sugar High Last? Yes.**\
-`Michelle Goldberg on the power of emotion in politics.`\
-https://nytimes.com/2024/08/03/opinion/kamala-harris-president-support.html
 
