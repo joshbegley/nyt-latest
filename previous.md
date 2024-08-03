@@ -1,3 +1,7 @@
+**Canada eliminated from Paris Olympics after shootout defeat vs Germany**\
+`Canada have been knocked out of the Paris Olympic women&#8217;s football quarterfinal after being defeated by Germany on penalties following a 0-0 draw.`\
+https://nytimes.com/athletic/5678382/2024/08/03/canada-germany-result-paris-olympics/
+
 **U.S. sets world record, edges China for gold in 4x100m mixed medley**\
 `The Americans did not medal in the mixed medley relay in Tokyo when the event made its Olympic debut.`\
 https://nytimes.com/athletic/5678477/2024/08/03/usa-mixed-medley-relay-gold-paris-olympics/
@@ -24,7 +28,7 @@ https://nytimes.com/2024/08/03/arts/anton-van-dalen-dead.html
 
 **Crysencio Summerville to West Ham: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at Crysencio Summerville's move from Leeds to West Ham`\
-https://nytimes.com/athletic/5672157/2024/08/03/crysencio-summerville-west-ham-transfer-rating/
+https://nytimes.com/athletic/5672157/2024/08/03/crysencio-summerville-to-west-ham-the-athletic-500-transfer-ratings/
 
 **Summer McIntosh beats loaded 200-meter IM field to win gold**\
 `American Alex Walsh, who originally finished third, was disqualified for an illegal turn from backstroke to breaststroke.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5678428/2024/08/03/200-meter-individual-medley-pari
 **Scribble, Snuggle, Soar: Making the Most of High Jump’s Downtime**\
 `The high jump often presents competitors with an abundance of down time. Two rivals fill it in very different ways.`\
 https://nytimes.com/2024/08/03/world/olympics/high-jump-athletes.html
-
-**Embiid chose U.S. over France since 'these guys wanted me'**\
-`"It was a tough decision, but it is all about comfort level," Joel Embiid said of playing for Team USA.`\
-https://nytimes.com/athletic/5678508/2024/08/03/joel-embiid-team-use-france-olympics/
 
