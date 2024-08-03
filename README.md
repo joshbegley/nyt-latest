@@ -1,3 +1,7 @@
+**Maui Wildfire Plaintiffs Reach $4 Billion Settlement as Anniversary Nears**\
+`Hawaiian Electric is expected to pay the largest share — nearly $2 billion — but avoided a heftier price tag that could have forced the utility into bankruptcy.`\
+https://nytimes.com/2024/08/02/us/maui-wildfire-hawaii-settlement.html
+
 **Meta in Talks to Use Voices of Judi Dench, Awkwafina and Others for A.I.**\
 `If deals are struck, Meta may incorporate the actors’ voices into a digital assistant product called MetaAI, people with knowledge of the effort said.`\
 https://nytimes.com/2024/08/02/technology/meta-ai-celebrity-voices.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/sports/100000009606617/how-katie-ledecky-won-the-most-
 **Judge Awards Schiele Drawing to Heirs of Merchant Killed by the Nazis**\
 `The drawing of Schiele’s wife was the focus of a trial at which three parties, all with Jewish roots, argued whether it had been looted by the Nazis and from whom.`\
 https://nytimes.com/2024/08/02/arts/egon-schiele-drawing-heirs.html
-
-**Secret Service Chief Admits Lack of Certainty on Sniper Locations at Trump Rally**\
-`The location of local snipers when Donald Trump was shot has become a point of deep dispute, with local officials suggesting that the Secret Service is trying to shift blame.`\
-https://nytimes.com/2024/08/02/us/politics/secret-service-trump-assassination-attempt.html
 
