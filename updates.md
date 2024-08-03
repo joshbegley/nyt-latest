@@ -1,3 +1,11 @@
+**Tulsa Creates Commission on Reparations for Race Massacre**\
+`The group will develop a plan to carry out reparations and study how they can be made to survivors of the 1921 massacre and their descendants.`\
+https://nytimes.com/2024/08/03/us/tulsa-race-massacre-reparations-oklahoma.html
+
+**Vaulting propelled Jade Carey to the next level.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/08/03/world/olympics-simone-biles-vault-gymnastics/jade-carey-gold-olympics-gymnastics
+
 **Long Johns, Forensics and a Bound Russian Killer: Inside the Big Prisoner Swap**\
 `The complex choreography caught some prisoners being freed in their robes and slippers, unaware of their fates, and required forensic experts to make positive identifications.`\
 https://nytimes.com/2024/08/03/world/europe/russia-prisoner-swap.html
