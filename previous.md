@@ -1,40 +1,40 @@
-**Harris Fuels Hope and Skepticism With Georgia’s South Asian Voters**\
+**‘I’m Definitely Re-engaged:’ Harris Fuels Energy Among Georgia’s South Asian Voters**\
 `In Georgia, a critical swing state President Biden won by less than 12,000 votes in 2020, Kamala Harris’ political identity has prompted renewed interest among Asian Americans, the fastest-growing group of eligible voters in the United States.`\
-https://nytimes.com/video/world/americas/100000009598875/harris-voters-south-asian-georgia.html
+https://nytimes.com/2024/08/03/video/kamala-harris-georgia-south-asia.html
 
-**Simone Manuel is friends with the water again and back on the Olympic stage**\
-`Three years ago, Simone Manuel was struggling with overtraining. Today, she starts a rejuvenated quest for an individual medal in Paris.`\
-https://nytimes.com/athletic/5676615/2024/08/03/simone-manuel-olympics-swimming-overtraining/
+**Whirlwind Harris Veepstakes Reaches Its Most Eager Phase Yet**\
+`With Kamala Harris expected to announce her running mate by Tuesday, contenders are making last-ditch efforts to showcase what they could bring to the ticket and keep themselves in the public eye.`\
+https://nytimes.com/2024/08/03/us/politics/harris-vice-president-selection.html
 
-**The Pentagon promises to help defend Israel.**\
-`By Victoria Kim and Eric Schmitt`\
-https://nytimes.com/live/2024/08/03/world/israel-hamas-iran-hezbollah-gaza/the-pentagon-promises-to-help-defend-israel
+**‘House of the Dragon’: All the Dragons and Their Riders So Far**\
+`The dragons are amassing, and just like their humans, they have histories and personalities, too. Here’s a rundown of who’s riding whom.`\
+https://nytimes.com/2024/08/03/arts/television/house-of-the-dragon-season-2-finale-hbo.html
 
-**What to Watch as Simone Biles Seeks Gold in Vault**\
-`Biles, who will be competing against her teammate Jade Carey and Brazil’s Rebeca Andrade, is looking to add her seventh Olympic gold medal and 10th over all.`\
-https://nytimes.com/2024/08/03/world/olympics/simone-biles-gymnastic-watch-vault.html
+**Should Harris Talk Much About Her Racial Identity? Many Voters Say No.**\
+`Even as Trump plays up racial divisions, many Americans said they would rather not dwell on race or identity. “We can all see that you’re Black.”`\
+https://nytimes.com/2024/08/03/us/kamala-harris-race-trump.html
 
-**Olympics mixed relay triathlon training cancelled over water quality concerns**\
-`Training ahead of the final Olympics triathlon event in Paris has been cancelled over more concerns over the water quality in the River Seine.`\
-https://nytimes.com/athletic/5677826/2024/08/03/olympics-triathlon-water-mixed-relay/
+**San Francisco Takes Harder Line Against Homeless Camps, Defying Its Reputation**\
+`Mayor London Breed has told city officials to issue citations and encourage homeless people to leave town by offering free bus tickets.`\
+https://nytimes.com/2024/08/03/us/san-francisco-homeless-london-breed.html
 
-**Collyer, Amass and Wheatley: The young United trio hoping to follow Mainoo pathway**\
-`Manchester United's youngsters are hoping to take their opportunities during the tour of the U.S.`\
-https://nytimes.com/athletic/5677445/2024/08/03/manchester-united-youngsters-collyer-amass-wheatley/
+**Fires Have Burned 4.5 Million Acres So Far in 2024, Blanketing Much of North America in Smoke**\
+`More than 90 large fires are raging across the United States, intensifying this year’s fire season. The forecast shows no sign of letting up.`\
+https://nytimes.com/2024/08/03/weather/wildfire-smoke-california-northwest.html
 
-**Vicario and Postecoglou agree that keeper's problems last season will make him better**\
-`After a superb start at Spurs, ’keeper Vicario came under scrutiny in the second half of last season. He and his manager explain the fallout`\
-https://nytimes.com/athletic/5676151/2024/08/03/ange-postecoglou-guglielmo-vicario-corners/
+**Not Even the Inside of Your Fridge Is Safe From Decorating**\
+`Some artists use canvas; others, refrigerators. Welcome to fridgescaping.`\
+https://nytimes.com/2024/08/03/style/fridgescaping-fridge-decorating-tiktok.html
 
-**Dodgers continue to slide with loss to Athletics: 'Got to get back to winning'**\
-`Treading water has instead meant taking on water for a struggling Dodgers team.`\
-https://nytimes.com/athletic/5677700/2024/08/03/dodgers-lose-oakland-athletics/
+**Why Are Your Property Taxes Higher Than Your Neighbor’s?**\
+`Property taxes for condominiums in New York City are calculated differently from taxes in other dwellings.`\
+https://nytimes.com/2024/08/03/realestate/why-are-your-property-taxes-higher-than-your-neighbors.html
 
-**Brisbee: The unlikeliness and timing of Blake Snell's no-hitter, and the fun of it**\
-`With his gem in the 3-0 victory in Cincinnati, Snell became a forever Giant.`\
-https://nytimes.com/athletic/5677595/2024/08/03/blake-snell-no-hitter-giants-timing/
+**Harold Makes the World With His Purple Crayon. Who Made Harold?**\
+`Before there was a feature film or a book, there was Crockett Johnson.`\
+https://nytimes.com/2024/08/03/books/review/harold-and-the-purple-crayon.html
 
-**Street Sheds Transformed New York City Dining. Many Will Soon Disappear.**\
-`New requirements for the city’s outdoor dining program are being met with concern by restaurant owners.`\
-https://nytimes.com/2024/08/03/nyregion/nyc-outdoor-dining-deadline.html
+**He Broke Into a Bank (With Permission). Then He Rented It for $1 a Month.**\
+`After an unconventional negotiation with his building manager, an artist transformed what was once a bank into a studio.`\
+https://nytimes.com/2024/08/03/realestate/vacant-bank-art-studio-brooklyn.html
 
