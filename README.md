@@ -7,7 +7,7 @@ https://nytimes.com/video/world/europe/100000009609850/uk-riots-southport-stabbi
 https://nytimes.com/2024/08/03/us/florida-attorney-chinese-embassy-guilty.html
 
 **Canada's gold medal defense ends against Germany, but players aren't leaving empty-handed**\
-`The reigning Olympic champions head home without a chance for a medal, but they won't leave empty-handed.`\
+`The reigning Olympic champions head home without a chance for a medal, but they're leaving with their heads held high.`\
 https://nytimes.com/athletic/5678775/2024/08/03/canada-loss-olympic-womens-soccer-quarterfinal/
 
 **Tracking Tropical Storm Debby**\
