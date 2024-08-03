@@ -1,3 +1,7 @@
+**Lyles learns lesson in Olympics 100m heats**\
+`In his Olympic debut in the 100-meter dash, Noah Lyles ran 10.04, his slowest time in over a year.`\
+https://nytimes.com/athletic/5678043/2024/08/03/olympics-mens-100m-heats-noah-lyles-hinchcliffe-kerley/
+
 **Australia consigns Team USA to silver in men's tennis doubles after match tiebreak**\
 `Team USA had to settle for Olympic silver in tennis, as Australia&#8217;s Matthew Ebden and John Peers beat Rajeev Ram and Austin Krajicek 6-7(6), 7-6(1), 10-8 at Roland Garros Saturday.`\
 https://nytimes.com/athletic/5677991/2024/08/03/australia-olympic-gold-mens-tennis-doubles-team-usa/
