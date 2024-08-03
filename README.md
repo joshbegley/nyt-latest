@@ -1,3 +1,11 @@
+**Killing of Hamas Leader Creates a New Rift Between the U.S. and Israel**\
+`President Biden has expressed concern that the circumstances of the assassination have thrown cease-fire talks into doubt, but Prime Minister Benjamin Netanyahu of Israel rejects that idea, officials say.`\
+https://nytimes.com/2024/08/03/us/politics/us-israel-hamas-assassination.html
+
+**Ryan Crouser cements shot put dominance with third straight Olympic gold**\
+`His throw of 22.90 meters secured his spot as the G.O.A.T. of shot put.`\
+https://nytimes.com/athletic/5678457/2024/08/03/ryan-crouser-shot-put-olympics-gold/
+
 **Cuenca joins Fulham from Villarreal**\
 `Fulham have completed the signing of Jorge Cuenca from Villarreal for an undisclosed fee.`\
 https://nytimes.com/athletic/5678489/2024/08/03/jorge-cuenca-fulham-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5678149/2024/08/03/team-usa-puerto-rico-olympics-ba
 **Hearing Set to Discuss Next Steps in Trump’s Federal Election Case**\
 `The case was on hold during the appeals process, which culminated in a sweeping Supreme Court ruling on presidential immunity. Now the judge must decide which acts in the indictment qualify.`\
 https://nytimes.com/2024/08/03/us/politics/trump-federal-election-case-hearing.html
-
-**Simone Biles’s gold-medal-winning Yurchenko double pike, frame by frame.**\
-`Biles won her second Olympic vault title — eight years after her first in Rio — with her signature Yurchenko double pike and then a vault called a Cheng.`\
-https://nytimes.com/2024/08/03/world/olympics/simone-biles-vault.html
-
-**Liverpool won't rush decision over Clark's future**\
-`Liverpool are in no rush to make a decision on Bobby Clark&#8217;s future in the face of strong interest from Red Bull Salzburg.`\
-https://nytimes.com/athletic/5678343/2024/08/03/liverpool-bobby-clark-transfer-future/
 
