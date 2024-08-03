@@ -1,3 +1,7 @@
+**Trump Agrees to a Fox News Debate with Harris on Sept. 4**\
+`According to Mr. Trump’s post on social media, the debate will take place in Pennsylvania, a crucial battleground state.`\
+https://nytimes.com/2024/08/03/us/03pol-debate-trump-harris-fox-news.html
+
 **3 Sheriff’s Deputies Shot in Florida**\
 `One is in critical condition, and no suspect has been apprehended since the officers were shot while responding to a call at a house in Eustis, a city north of Orlando.`\
 https://nytimes.com/2024/08/03/us/shooting-florida-deputies.html
