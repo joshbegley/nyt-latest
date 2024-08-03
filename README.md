@@ -1,3 +1,7 @@
+**49ers growing more impressed with 'steady Eddie' Dominick Puni with every practice**\
+`The 49ers had their longest — and feistiest — practice of the summer with running back Jordan Mason at the center of the rough stuff.`\
+https://nytimes.com/athletic/5678821/2024/08/03/49ers-training-camp-dominick-puni-2/
+
 **Doug Emhoff, Husband of Kamala Harris, Acknowledges Long-Ago Affair**\
 `The relationship with a teacher at his children’s elementary school occurred when he was married to his first wife, years before he met Ms. Harris.`\
 https://nytimes.com/2024/08/03/us/politics/doug-emhoff-affair.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/03/crosswords/daily-puzzle-2024-08-04.html
 **Wisconsin preseason camp: 5 observations from a 75-plus-play scrimmage**\
 `Tyler Van Dyke and Braedyn Locke are still jockeying for position with the starting QB job, and RB Tawee Walker continues to impress.`\
 https://nytimes.com/athletic/5678737/2024/08/03/wisconsin-preseason-camp-scrimmage/
-
-**Blue Jays notes: Vladimir Guerrero Jr. stays hot, former Jays impacting new clubs, more**\
-`The Blue Jays share some of their process on stopping a red-hot Judge as Guerrero goes through his own hot streak. `\
-https://nytimes.com/athletic/5678495/2024/08/03/blue-jays-talk-how-to-stop-aaron-judge/
 
