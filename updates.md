@@ -1,3 +1,7 @@
+**Australia consigns Team USA to silver in men's tennis doubles after match tiebreak**\
+`Team USA had to settle for Olympic silver in tennis, as Australia&#8217;s Matthew Ebden and John Peers beat Rajeev Ram and Austin Krajicek 6-7(6), 7-6(1), 10-8 at Roland Garros Saturday.`\
+https://nytimes.com/athletic/5677991/2024/08/03/australia-olympic-gold-mens-tennis-doubles-team-usa/
+
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/08/03/us/harris-trump-election/heres-the-latest-on-the-presidential-race
