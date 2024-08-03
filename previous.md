@@ -1,3 +1,7 @@
+**Why the Chicago Cubs have to be thinking bigger with their rotation**\
+`The Cubs' rock-solid starting staff in 2024 shouldn't preclude them from reinforcing the rotation via trade or free-agent signings. `\
+https://nytimes.com/athletic/5677245/2024/08/03/chicago-cubs-have-to-think-bigger-with-rotation/
+
 **Chargers training camp, Day 9: Chris Rumph II making strong case for 53-man**\
 `The Chargers’ edge rusher room is already "stacked." Rumph could add depth and protection in case of injury to Joey Bosa or Khalil Mack.`\
 https://nytimes.com/athletic/5677725/2024/08/03/chargers-training-camp-chris-rumph-ii/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/03/us/politics/cristeta-comerford-white-house-chef.h
 **Israel conducts deadly airstrikes on West Bank.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/08/03/world/israel-hamas-iran-hezbollah-gaza/israeli-conducts-deadly-airstrikes-on-west-bank
-
-**The Briefing: Tottenham 1-2 Bayern Munich - Spurs need another centre-forward but young players impress again**\
-`Tottenham ended their pre-season tour to Japan and South Korea with a 2-1 defeat to Bayern Munich in Seoul. We analyse the talking points`\
-https://nytimes.com/athletic/5676511/2024/08/03/tottenham-bayern-result-striker-transfer/
 
