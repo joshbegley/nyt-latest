@@ -1,3 +1,11 @@
+**Long Johns, Forensics and a Bound Russian Killer: Inside the Big Prisoner Swap**\
+`The complex choreography caught some prisoners being freed in their robes and slippers, unaware of their fates, and required forensic experts to make positive identifications.`\
+https://nytimes.com/2024/08/03/world/europe/russia-prisoner-swap.html
+
+**Kansas man who destroyed Jackie Robinson statue sentenced to 15 years in prison**\
+`The man responsible for stealing a Jackie Robinson statue from a youth baseball league in Wichita, Kan.`\
+https://nytimes.com/athletic/5678229/2024/08/03/jackie-robinson-statue-prison-sentence/
+
 **“My New Go-To Brownie Recipe”**\
 `Lidey Heuck’s easy and versatile brownie recipe is already racking up stars and raves.`\
 https://nytimes.com/2024/08/03/dining/my-new-go-to-brownie-recipe.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/03/insider/prisoner-swap-evan-gershkovich.html
 **When Elder Care Is All in the Stepfamily**\
 `Adult children are less likely to assist an aging stepparent, studies show. A growing “step gap” in senior care worries experts.`\
 https://nytimes.com/2024/08/03/health/stepchildren-eldercare.html
-
-**Man Who Killed 4 After Dispute Over Stimulus Check Gets 145 Years in Prison**\
-`Malik Halfacre, 28, wounded his girlfriend and killed four of her family members in Indianapolis in 2021 after a dispute with her over money, prosecutors said.`\
-https://nytimes.com/2024/08/03/us/indianapolis-stimulus-shooting-sentence.html
-
-**How JD Vance Thinks About Power**\
-`Mr. Vance has been blunt about wanting to break norms and test constitutional limits to execute his ideas: “We have to get pretty wild, pretty far out there.”`\
-https://nytimes.com/2024/08/03/us/politics/jd-vance-donald-trump-2024-campaign.html
 

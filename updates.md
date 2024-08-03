@@ -1,3 +1,11 @@
+**Long Johns, Forensics and a Bound Russian Killer: Inside the Big Prisoner Swap**\
+`The complex choreography caught some prisoners being freed in their robes and slippers, unaware of their fates, and required forensic experts to make positive identifications.`\
+https://nytimes.com/2024/08/03/world/europe/russia-prisoner-swap.html
+
+**Kansas man who destroyed Jackie Robinson statue sentenced to 15 years in prison**\
+`The man responsible for stealing a Jackie Robinson statue from a youth baseball league in Wichita, Kan.`\
+https://nytimes.com/athletic/5678229/2024/08/03/jackie-robinson-statue-prison-sentence/
+
 **“My New Go-To Brownie Recipe”**\
 `Lidey Heuck’s easy and versatile brownie recipe is already racking up stars and raves.`\
 https://nytimes.com/2024/08/03/dining/my-new-go-to-brownie-recipe.html
