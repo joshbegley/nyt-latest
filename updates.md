@@ -1,3 +1,7 @@
+**Nottingham Forest's Jota Silva: From Sunday football to Portugal's national team**\
+`The 25-year-old winger worked his way through the Portuguese leagues to become Forest's first attacking signing of the summer`\
+https://nytimes.com/athletic/5676816/2024/08/03/jota-silva-nottingham-forest-portugal/
+
 **Three goals for the Blue Jays in the season's final two months**\
 `With 52 games remaining, the Blue Jays should focus on three goals, including letting their youngsters play.`\
 https://nytimes.com/athletic/5677575/2024/08/02/blue-jays-three-goals/
