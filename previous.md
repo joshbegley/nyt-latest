@@ -1,3 +1,7 @@
+**Twins and Royce Lewis, powered by ice cream, hand White Sox 18th straight loss**\
+`Lewis hit his 29th homer in 101 career games for the Twins, and then he got pulled aside for an increasingly frequent drug test.`\
+https://nytimes.com/athletic/5677462/2024/08/03/twins-royce-lewis-white-sox/
+
 **Mets starter Paul Blackburn meets teammates, dazzles in debut on same day**\
 `Blackburn pitched six innings of one-run ball in a 5-1 Mets victory over the Angels.`\
 https://nytimes.com/athletic/5677701/2024/08/03/mets-paul-blackburn-debut-angels/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5676816/2024/08/03/jota-silva-nottingham-forest-por
 **Building a 100,000-seater stadium: The challenges and benefits**\
 `Manchester United are planning to build a 100,000-seater stadium — but how difficult is that?`\
 https://nytimes.com/athletic/5674259/2024/08/03/manchester-united-new-stadium/
-
-**Bombs Rain Down in Myanmar as Junta Evades Sanctions to Buy Jet Fuel**\
-`The military has stepped up a campaign of airstrikes, and killed more civilians, to fend off rebel advances.`\
-https://nytimes.com/2024/08/03/world/asia/myanmar-airstrikes-sanctions-evasion.html
 
