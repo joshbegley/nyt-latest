@@ -1,3 +1,11 @@
+**The Best Conversations**\
+`Whether we’re participating in them or listening to them, the goal is to forget about the outcome and just connect.`\
+https://nytimes.com/2024/08/03/briefing/the-best-conversations.html
+
+**Terrorist Attack on Crowded Beachfront in Somalia Kills at Least 32**\
+`Gunmen and a suicide bomber struck a seaside hotel in one of the deadliest such assaults in the country in months. The Islamist militant group Al Shabab claimed responsibility.`\
+https://nytimes.com/2024/08/03/world/africa/terrorist-attack-somalia-al-shabab.html
+
 **Terrorist Attack on Crowded Beach in Somalia Kills at Least 32**\
 `Gunmen and a suicide bomber struck at a popular seafront area in one of the deadliest such assaults in the country in months. The Islamist militant group Al Shabab claimed responsibility.`\
 https://nytimes.com/2024/08/03/world/africa/terrorist-attack-somalia-al-shabab.html
