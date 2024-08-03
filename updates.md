@@ -1,3 +1,7 @@
+**At 27, Simone Biles is the most decorated U.S. gymnast in Olympic history.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/08/03/world/olympics-simone-biles-vault-gymnastics/simone-biles-gold-medals-olympics
+
 **Berkshire’s Cash Stockpile Soars as It Cuts Its Stake in Apple**\
 `The conglomerate reported nearly $277 billion in cash in the second quarter. And while it sold about 390 million shares in Apple, it still owned about 400 million.`\
 https://nytimes.com/2024/08/03/business/berkshire-hathaway-buffett-earnings.html
