@@ -1,3 +1,7 @@
+**U.S. men's basketball thwarts Puerto Rico, secures No. 1 seed for quarterfinals**\
+`Team USA beat Puerto Rico 104-83 behind 26 points from Anthony Edwards on Saturday to finish 3-0 in pool play.`\
+https://nytimes.com/athletic/5678149/2024/08/03/team-usa-puerto-rico-olympics-basketball/
+
 **Hearing Set to Discuss Next Steps in Trump’s Federal Election Case**\
 `The case was on hold during the appeals process, which culminated in a sweeping Supreme Court ruling on presidential immunity. Now the judge must decide which acts in the indictment qualify.`\
 https://nytimes.com/2024/08/03/us/politics/trump-federal-election-case-hearing.html
