@@ -1,3 +1,11 @@
+**The Briefing: Tottenham 1-2 Bayern Munich - Spurs need another centre-forward but young players impress again**\
+`Tottenham ended their pre-season tour to Japan and South Korea with a 2-1 defeat to Bayern Munich in Seoul. We analyse the talking points`\
+https://nytimes.com/athletic/5676511/2024/08/03/tottenham-bayern-result-striker-transfer/
+
+**IOC’s Bach dismisses boxing controversy as ‘culture war'**\
+`Thomas Bach, the president of the International Olympic Committee, told reporters on Saturday that two women in the boxing tournament who have had their eligibility questioned did not have differences in sex development.`\
+https://nytimes.com/athletic/5677931/2024/08/03/olympics-boxing-womens-khelif-lin-thomas-bach-comments/
+
 **Simone Biles no longer worries about being judged, on or off the competition floor.**\
 `By Juliet Macur`\
 https://nytimes.com/live/2024/08/03/world/olympics-simone-biles-vault-gymnastics/simone-biles-no-longer-worries-about-being-judged-on-or-off-the-competition-floor
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/03/business/dealbook/saying-the-quiet-part-out-loud.
 **The Briefing: Yokohama F Marinos 2-0 Newcastle - Would Guehi's arrival be a positive?**\
 `Newcastle fell to a 2-0 loss against Yokohama F Marinos in their game on Saturday — this is George Caulkin's analysis`\
 https://nytimes.com/athletic/5676509/2024/08/03/newcastle-yokohama-analysis-report-result/
-
-**I Thought I Disliked These Authors. I Was Happy to Be Wrong.**\
-`Italo Calvino? Not so bad! May Sarton? Pretty good!`\
-https://nytimes.com/2024/08/03/books/read-like-wind-recommendations.html
-
-**Protests Again Rock Bangladesh, Weeks After a Deadly Crackdown**\
-`As curfews and restrictions on communication were loosened, anger over the deadly suppression of previous protests began flaring up once more.`\
-https://nytimes.com/2024/08/03/world/asia/bangladesh-protests-students.html
 
