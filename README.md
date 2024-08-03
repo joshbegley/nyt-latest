@@ -1,7 +1,3 @@
-**U.S. sets world record, edges China for gold in 4x100m mixed medley**\
-`The Americans did not medal in the mixed medley relay in Tokyo when the event made its Olympic debut.`\
-https://nytimes.com/athletic/5678477/2024/08/03/usa-mixed-medley-relay-gold-paris-olympics/
-
 **Musetti wins men's singles bronze over Auger-Aliassime**\
 `Musetti's bronze medal continues a banner year for the 22-year-old.`\
 https://nytimes.com/athletic/5678569/2024/08/03/lorenzo-musetti-bronze-oylmpics-tennis/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/08/03/world/olympics/high-jump-athletes.html
 **Embiid chose U.S. over France since 'these guys wanted me'**\
 `"It was a tough decision, but it is all about comfort level," Joel Embiid said of playing for Team USA.`\
 https://nytimes.com/athletic/5678508/2024/08/03/joel-embiid-team-use-france-olympics/
+
+**Oregon adds 5-star safety Trey McNutt to 2025 recruiting class**\
+`The Ducks are on pace to sign three consecutive top-10 recruiting classes for the first time in school history.`\
+https://nytimes.com/athletic/5647036/2024/08/03/oregon-recruiting-trey-mcnutt-ohio-state/
 
