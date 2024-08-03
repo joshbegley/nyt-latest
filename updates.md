@@ -1,3 +1,7 @@
+**Blue Jays notes: Vladimir Guerrero Jr. stays hot, former Jays impacting new clubs, more**\
+`The Blue Jays share some of their process on stopping a red-hot Judge as Guerrero goes through his own hot streak. `\
+https://nytimes.com/athletic/5678495/2024/08/03/blue-jays-talk-how-to-stop-aaron-judge/
+
 **Tracking Tropical Storm Debby**\
 `See the likely path and wind arrival times for Debby.`\
 https://nytimes.com/interactive/2024/08/03/weather/debby-map-path-tracker.html

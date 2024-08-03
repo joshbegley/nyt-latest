@@ -14,8 +14,8 @@ https://nytimes.com/2024/08/03/crosswords/daily-puzzle-2024-08-04.html
 `Tyler Van Dyke and Braedyn Locke are still jockeying for position with the starting QB job, and RB Tawee Walker continues to impress.`\
 https://nytimes.com/athletic/5678737/2024/08/03/wisconsin-preseason-camp-scrimmage/
 
-**Blue Jays notes: Trying to stop Aaron Judge, Vladimir Guerrero Jr. stays hot, former Jays impacting new clubs**\
-`The Blue Jays share some of their process on stopping a red-hot Aaron Judge as Vladimir Guerrero Jr. goes through his own hot streak. `\
+**Blue Jays notes: Vladimir Guerrero Jr. stays hot, former Jays impacting new clubs, more**\
+`The Blue Jays share some of their process on stopping a red-hot Judge as Guerrero goes through his own hot streak. `\
 https://nytimes.com/athletic/5678495/2024/08/03/blue-jays-talk-how-to-stop-aaron-judge/
 
 **Real Madrid's Palacios to undergo surgery for cruciate ligament tear**\
