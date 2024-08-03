@@ -1,3 +1,7 @@
+**Protests Again Rock Bangladesh, Weeks After a Deadly Crackdown**\
+`As curfews and restrictions on communication were loosened, anger over the deadly suppression of previous protests began flaring up once more.`\
+https://nytimes.com/2024/08/03/world/asia/bangladesh-protests-students.html
+
 **An anxious calm hangs over Israel.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/08/03/world/israel-hamas-iran-hezbollah-gaza/an-anxious-calm-hangs-over-israel
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/03/opinion/kamala-harris-president-support.html
 **Why Silicon Valley Should Get Behind Kamala Harris**\
 `Kamala Harris’s presidency could support the technological innovation our economy needs.`\
 https://nytimes.com/2024/08/03/opinion/kamala-harris-innovation-technology.html
-
-**Kamala Harris on Center Stage**\
-`Readers discuss “White Dudes,” her laugh, her previous positions and a columnist’s mixed emotions.`\
-https://nytimes.com/2024/08/03/opinion/kamala-harris.html
 
