@@ -1,3 +1,7 @@
+**Harris’s Brother-in-Law, a Corporate Executive, Emerges as a Close Adviser**\
+`Tony West, the top lawyer for Uber, is weighing in on polling and running mates. His presence has made some liberals anxious.`\
+https://nytimes.com/2024/08/04/us/politics/kamala-harris-tony-west.html
+
 **An effort to vaccinate Gazans against polio faces hurdles, including the heat.**\
 `By Vivian Yee`\
 https://nytimes.com/live/2024/08/04/world/israel-hamas-hezbollah-iran-gaza/an-effort-to-vaccinate-gazans-against-polio-faces-hurdles-including-the-heat
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/04/world/olympics-gymnastics-bars/sunisa-lee-vi
 **Kaylia Nemour of Algeria could win Africa’s first Olympic medal in women’s gymnastics.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/08/04/world/olympics-gymnastics-bars/kaylia-nemour-of-algeria-could-win-africas-first-olympic-medal-in-womens-gymnastics
-
-**Monitoreo de la tormenta tropical Debby, en vivo**\
-`Consulta la trayectoria probable y las horas de llegada de los vientos de Debby.`\
-https://nytimes.com/interactive/2024/08/04/weather/debby-mapa-trayectoria.html
 
