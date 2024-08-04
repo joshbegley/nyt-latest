@@ -1,3 +1,7 @@
+**Kaylia Nemour of Algeria could win Africa’s first Olympic medal in women’s gymnastics.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/08/04/world/olympics-gymnastics-bars/kaylia-nemour-of-algeria-could-win-africas-first-olympic-medal-in-womens-gymnastics
+
 **Monitoreo de la tormenta tropical Debby, en vivo**\
 `Consulta la trayectoria probable y las horas de llegada de los vientos de Debby.`\
 https://nytimes.com/interactive/2024/08/04/weather/debby-mapa-trayectoria.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5679291/2024/08/04/uswnt-olympics-boxing-gender-the
 **Bangladesh Back Under Curfew After Protests Leave Dozens Dead**\
 `Expanded student protests this weekend, after more than 200 people were killed in a government crackdown in July, have plunged the country into a particularly dangerous phase.`\
 https://nytimes.com/2024/08/04/world/asia/bangladesh-protests-curfew.html
-
-**Here’s the latest on the presidential race.**\
-`By Neil Vigdor, Jonathan Weisman and Reid J. Epstein`\
-https://nytimes.com/live/2024/08/04/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
