@@ -1,3 +1,7 @@
+**5-Year-Old Killed After Bounce House Goes Airborne in Maryland**\
+`Children were inside the play structure at a baseball game when it was carried 15 to 20 feet in air the by the wind. One child died and another was injured.`\
+https://nytimes.com/2024/08/04/us/boy-killed-bounce-house.html
+
 **Robert F. Kennedy Jr. Admits He Left a Dead Bear in Central Park**\
 `Mr. Kennedy, an independent presidential candidate, confessed to dropping off the bear cub 10 years ago and making it appear that a bike had hit the animal.`\
 https://nytimes.com/2024/08/04/us/politics/robert-f-kennedy-jr-bear-central-park.html
