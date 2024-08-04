@@ -1,3 +1,7 @@
+**Scottie Scheffler and the golden Olympic moment that can stand the test of time**\
+`Scheffler does not let himself be occupied by thoughts of legacy or star power. Instead he wins, rallying from 6 strokes down in Paris.`\
+https://nytimes.com/athletic/5680335/2024/08/04/scottie-scheffler-olympics-golf/
+
 **Chicago White Sox reach new level of futility, extend losing streak to 20 games**\
 `With their latest loss, the White Sox fell to 60 games under .500 for the first time in franchise history.`\
 https://nytimes.com/athletic/5679688/2024/08/04/chicago-white-sox-20-game-losing-streak/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5679863/2024/08/04/astros-lance-mccullers-jr-to-mis
 **Kansas Man Who Stole Jackie Robinson Statue Is Sentenced to 15 Years**\
 `Ricky Alderete confessed to the theft and apologized to the founder of the organization that erected the statue, League 42, in July.`\
 https://nytimes.com/2024/08/04/us/jackie-robinson-statue-theft-sentenced.html
-
-**Can Léon Marchand reach Michael Phelps levels? These Olympics 'only the beginning'**\
-`Michael Phelps' 23 gold medals may be untouchable. But Léon Marchand, at 22, has the whole world paying attention to him.`\
-https://nytimes.com/athletic/5680200/2024/08/04/leon-marchand-michael-phelps-olympics-swimming/
 
