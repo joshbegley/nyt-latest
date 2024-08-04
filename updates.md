@@ -1,3 +1,7 @@
+**Meet the Nations That Have Never Won an Olympic Medal (and Two That Just Did)**\
+`Gold medals in track and field brought St. Lucia and Dominica into an exclusive club of nations. But for 66 other countries and territories, the wait for an Olympic medal goes on, and on, and on.`\
+https://nytimes.com/2024/08/03/world/olympics/country-without-medals.html
+
 **Luol Deng criticizes officiating after South Sudan's loss to Serbia**\
 `"Everybody knows there's a huge disrespect to African basketball," Deng said.`\
 https://nytimes.com/athletic/5678758/2024/08/03/south-sudan-serbia-officiating-comments/
