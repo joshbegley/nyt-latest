@@ -1,3 +1,7 @@
+**White Sox just one loss away from 20th straight defeat: by the numbers**\
+`With Saturday’s 6-2 loss to the Twins, the White Sox now have the longest losing streak in baseball since 2021, when the Orioles also dropped 19 straight.`\
+https://nytimes.com/athletic/5679125/2024/08/03/white-sox-19th-straight-loss/
+
 **Penn State media day: Sorting through wide receivers and other takeaways**\
 `While no team captains have been named, head coach James Franklin said he's seeing this group of players become more vocal.`\
 https://nytimes.com/athletic/5679012/2024/08/03/penn-state-media-day-takeaways/
