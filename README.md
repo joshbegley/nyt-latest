@@ -1,3 +1,11 @@
+**The Soul of Soil**\
+`The dirt beneath our feet is a bigger, bolder world than you think.`\
+https://nytimes.com/2024/08/04/opinion/soil-earth-life.html
+
+**U.K. Police Brace for More Unrest After Southport Stabbing**\
+`Protests spiraled into violent riots in Liverpool, Leeds, Manchester and Belfast over the weekend, with dozens arrested and more demonstrations slated for the coming days.`\
+https://nytimes.com/2024/08/04/world/europe/uk-protests-southport-stabbing.html
+
 **The Pulse: USWNT's perilous Olympic marathon**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/5679291/2024/08/04/uswnt-olympics-boxing-gender-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5679470/2024/08/04/what-is-repechage-track-and-fiel
 **Packers set to get key player back and more from Lambeau Field practice**\
 `More than 60,000 fans turned out to see Saturday practice on Green Bay's Family Night.`\
 https://nytimes.com/athletic/5679209/2024/08/04/packers-lambeau-field-practice-zach-tom/
-
-**Young Browns players worth watching as training camp returns home**\
-`With the first preseason game approaching, which of Cleveland's younger players could make a real push toward earning a roster spot?`\
-https://nytimes.com/athletic/5678509/2024/08/04/browns-training-camp-competitions/
-
-**How the Cubs plan to get the most out of Nate Pearson**\
-`Pearson is a top-tier talent, and the Cubs are hoping to fully unlock his potential.`\
-https://nytimes.com/athletic/5678655/2024/08/04/how-the-cubs-plan-to-get-the-most-out-of-nate-pearson/
 
