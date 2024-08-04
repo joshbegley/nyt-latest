@@ -1,3 +1,7 @@
+**The Pulse: USWNT's perilous Olympic marathon**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/5679291/2024/08/04/uswnt-olympics-boxing-gender-the-pulse/
+
 **Bangladesh Back Under Curfew After Protests Leave Over a Dozen Dead**\
 `Expanded student protests this weekend, after more than 200 people were killed in a government crackdown in July, have plunged the country into a particularly dangerous phase.`\
 https://nytimes.com/2024/08/04/world/asia/bangladesh-protests-curfew.html
