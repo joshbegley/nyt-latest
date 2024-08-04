@@ -1,3 +1,7 @@
+**Robert F. Kennedy Jr. Admits He Left a Dead Bear in Central Park**\
+`Mr. Kennedy, an independent presidential candidate, confessed to dropping off the bear cub 10 years ago and making it appear that a bike had hit the animal.`\
+https://nytimes.com/2024/08/04/us/politics/robert-f-kennedy-jr-bear-central-park.html
+
 **Dodgers star Freddie Freeman’s youngest son discharged from hospital**\
 `The Freemans believe the issue stemmed from a viral infection Maximus suffered during last month’s All-Star game.`\
 https://nytimes.com/athletic/5680459/2024/08/04/dodgers-freddie-freeman-son-discharge/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5680302/2024/08/04/belgium-claire-michel-triathlon-
 **Oysters and Martinis at Rashid Johnson’s Pool Party in The Hamptons**\
 `The artist, and his wife, Sheree Hovsepian, hosted a party at their East Hampton home on Saturday to benefit Creative Time, a public art nonprofit that is celebrating its 50th anniversary.`\
 https://nytimes.com/2024/08/04/style/rashid-johnson-sheree-hovsepian-hamptons-party.html
-
-**Monday Briefing: A Tense Wait in Israel**\
-`Plus, philanthropy with a dark twist.`\
-https://nytimes.com/2024/08/04/briefing/israel-hamas-hezbollah-myanmar-harris.html
 
