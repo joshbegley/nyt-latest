@@ -1,3 +1,7 @@
+**Steve McMichael was right where he needed to be while witnessing his Hall of Fame moment**\
+`McMichael, who spent 13 seasons with the Bears, was enshrined in the Pro Football Hall of Fame from the comfort of his home.`\
+https://nytimes.com/athletic/5678873/2024/08/03/steve-mcmichael-hall-of-fame-induction/
+
 **Meet the Nations That Have Never Won an Olympic Medal (and Two That Just Did)**\
 `Gold medals in track and field brought St. Lucia and Dominica into an exclusive club of nations. But for 66 other countries and territories, the wait for an Olympic medal goes on, and on, and on.`\
 https://nytimes.com/2024/08/03/world/olympics/country-without-medals.html
