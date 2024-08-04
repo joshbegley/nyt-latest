@@ -1,3 +1,7 @@
+**The Pulse: USWNT's perilous Olympic marathon**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/5679291/2024/08/04/uswnt-olympics-boxing-gender-the-pulse/
+
 **Bangladesh Back Under Curfew After Protests Leave Over a Dozen Dead**\
 `Expanded student protests this weekend, after more than 200 people were killed in a government crackdown in July, have plunged the country into a particularly dangerous phase.`\
 https://nytimes.com/2024/08/04/world/asia/bangladesh-protests-curfew.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5678509/2024/08/04/browns-training-camp-competition
 **How the Cubs plan to get the most out of Nate Pearson**\
 `Pearson is a top-tier talent, and the Cubs are hoping to fully unlock his potential.`\
 https://nytimes.com/athletic/5678655/2024/08/04/how-the-cubs-plan-to-get-the-most-out-of-nate-pearson/
-
-**In Kamala Harris’s Blackness, I See My Own**\
-`Multiracial people have long been a Rorschach test: We bear the anxiety, rage and confusion that others feel about the amorphous construction we call race.`\
-https://nytimes.com/2024/08/04/opinion/kamala-harris-biracial.html
 
