@@ -1,3 +1,7 @@
+**Jimmy Carter Said to Have Plans to Vote for Kamala Harris**\
+`The former president, whose 100th birthday is Oct. 1, seems to have found some new motivation in the 2024 election.`\
+https://nytimes.com/2024/08/04/us/politics/jimmy-carter-vote-for-kamala.html
+
 **Fantasy baseball notebook: Trade deadline winners, and the best rotation trios in baseball**\
 `Derek VanRiper shares the highlights from the past week-plus of the Rates & Barrels podcast, including a look at MLB's top starter trios.`\
 https://nytimes.com/athletic/5646216/2024/08/04/fantasy-baseball-notebook-trade-deadline-winners-and-the-best-rotation-trios-in-baseball/
