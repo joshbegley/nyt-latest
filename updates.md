@@ -1,3 +1,7 @@
+**Oysters and Martinis at Rashid Johnson’s Pool Party in The Hamptons**\
+`The artist, and his wife, Sheree Hovsepian, hosted a party at their East Hampton home on Saturday to benefit Creative Time, a public art nonprofit that is celebrating its 50th anniversary.`\
+https://nytimes.com/2024/08/04/style/rashid-johnson-sheree-hovsepian-hamptons-party.html
+
 **After a photo finish, Noah Lyles waits, and waits, and then claims the title of world’s fastest man.**\
 `By Talya Minsberg, Ben Shpigel, Gabriela Bhaskar and Daniel Berehulak`\
 https://nytimes.com/live/2024/07/27/world/olympics-paris-photos/noah-lyles-100-meters
