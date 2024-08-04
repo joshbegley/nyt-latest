@@ -1,3 +1,7 @@
+**White Sox just one loss away from 20th straight defeat: by the numbers**\
+`With Saturday’s 6-2 loss to the Twins, the White Sox now have the longest losing streak in baseball since 2021, when the Orioles also dropped 19 straight.`\
+https://nytimes.com/athletic/5679125/2024/08/03/white-sox-19th-straight-loss/
+
 **Penn State media day: Sorting through wide receivers and other takeaways**\
 `While no team captains have been named, head coach James Franklin said he's seeing this group of players become more vocal.`\
 https://nytimes.com/athletic/5679012/2024/08/03/penn-state-media-day-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/03/us/politics/doug-emhoff-affair.html
 **Can Harris Win Back Arab American Voters? The Door May Be Cracked Open.**\
 `Vice President Kamala Harris has not strayed from President Biden on Israel policy, but she has taken a stronger tone on the suffering of Palestinians.`\
 https://nytimes.com/2024/08/03/us/politics/harris-israel-arab-american-voters.html
-
-**Unrest Erupts Across Britain in Wake of Deadly Knife Attack**\
-`Far-right activists scuffled with the police and counterprotesters across England after a stabbing at a dance class in Southport on Monday.`\
-https://nytimes.com/video/world/europe/100000009609850/uk-riots-southport-stabbing.html
 
