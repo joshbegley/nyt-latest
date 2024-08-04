@@ -1,3 +1,7 @@
+**Review: Death Drives a New ‘Tristan’ at Wagner’s Festival**\
+`Thorleifur Orn Arnarsson’s production of “Tristan und Isolde” at the Bayreuth Festival in Germany is an excellently conducted puzzle of grim symbols.`\
+https://nytimes.com/2024/08/04/arts/music/tristan-und-isolde-bayreuth-review.html
+
 **Scottie Scheffler wins Olympic gold medal, Tommy Fleetwood takes silver**\
 `Scheffler made four-straight birdies on the back nine to tie the course record at Le Golf National and add to his 2024 record.`\
 https://nytimes.com/athletic/5679733/2024/08/04/olympic-golf-scheffler-fleetwood-gold/
