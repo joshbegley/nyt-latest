@@ -1,3 +1,7 @@
+**Meet the Nations That Have Never Won an Olympic Medal (and Two That Just Did)**\
+`Gold medals in track and field brought St. Lucia and Dominica into an exclusive club of nations. But for 66 other countries and territories, the wait for an Olympic medal goes on, and on, and on.`\
+https://nytimes.com/2024/08/03/world/olympics/country-without-medals.html
+
 **Luol Deng criticizes officiating after South Sudan's loss to Serbia**\
 `"Everybody knows there's a huge disrespect to African basketball," Deng said.`\
 https://nytimes.com/athletic/5678758/2024/08/03/south-sudan-serbia-officiating-comments/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/08/03/weather/debby-map-path-tracker.html
 **Rams RT Rob Havenstein is ‘week to week’**\
 `The Rams now have three starting offensive linemen sidelined and each is considered week to week, Sean McVay said.`\
 https://nytimes.com/athletic/5678726/2024/08/03/la-rams-rob-havenstein-injury-update/
-
-**Weather, Man!**\
-`Scott Hogan and Katie Hale’s puzzle brings the heat (and humidity).`\
-https://nytimes.com/2024/08/03/crosswords/daily-puzzle-2024-08-04.html
 
