@@ -1,3 +1,7 @@
+**Hamas May Emerge Battered, but Not Beaten, From Israel’s Latest Blows**\
+`The assassinations of two Hamas leaders may be a short-term setback, analysts say, not enough to prevent the group from re-emerging intact — and possibly more radicalized.`\
+https://nytimes.com/2024/08/04/world/middleeast/hamas-israel-gaza-future.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/08/04/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/04/world/olympics/china-swimming-doping-medals.html
 **How One Harlem Block Became a Symbol of Urban Despair and Hope**\
 `In a hub for drugs and disarray, some see New York at its worst. Others see a community doing its best to help.`\
 https://nytimes.com/2024/08/04/nyregion/harlem-drug-addiction-onpoint-neighbors.html
-
-**‘The Construction Worker Smiled and Lowered His Flag’**\
-`An impromptu starting line in Brooklyn, loose change on a sidewalk and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2024/08/04/nyregion/metropolitan-diary.html
 
