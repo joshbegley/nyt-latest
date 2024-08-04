@@ -1,3 +1,7 @@
+**The making of West Ham's Crysencio Summerville - 'He has the fire inside him'**\
+`Opponents knew how to 'make him angry', but the coaches who helped shape West Ham's new signing Summerville explain his talents`\
+https://nytimes.com/athletic/5674443/2024/08/04/who-is-crysencio-summerville/
+
 **War Shatters Dating Scene for Women in Ukraine**\
 `While the pursuit of love might seem secondary to dealing with the horrors and privations of the war, many Ukrainians say they need romantic relationships to help them cope.`\
 https://nytimes.com/2024/08/04/world/europe/ukraine-war-dating.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/03/us/politics/trump-rally-georgia.html
 **How Julien Alfred Beat Sha’Carri Richardson for Gold**\
 `The gold medalist, Julien Alfred of St. Lucia, averaged 23 miles per hour to finish the race in 10.72 seconds, 0.15 seconds ahead of Sha’Carri Richardson of the United States.`\
 https://nytimes.com/interactive/2024/08/03/sports/olympics/womens-100-julien-alfred-shacarri-richardson.html
-
-**White Sox just one loss away from 20th straight defeat: by the numbers**\
-`With Saturday’s 6-2 loss to the Twins, the White Sox now have the longest losing streak in baseball since 2021, when the Orioles also dropped 19 straight.`\
-https://nytimes.com/athletic/5679125/2024/08/03/white-sox-19th-straight-loss/
 

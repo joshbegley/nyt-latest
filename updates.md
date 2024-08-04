@@ -1,3 +1,7 @@
+**The making of West Ham's Crysencio Summerville - 'He has the fire inside him'**\
+`Opponents knew how to 'make him angry', but the coaches who helped shape West Ham's new signing Summerville explain his talents`\
+https://nytimes.com/athletic/5674443/2024/08/04/who-is-crysencio-summerville/
+
 **War Shatters Dating Scene for Women in Ukraine**\
 `While the pursuit of love might seem secondary to dealing with the horrors and privations of the war, many Ukrainians say they need romantic relationships to help them cope.`\
 https://nytimes.com/2024/08/04/world/europe/ukraine-war-dating.html
