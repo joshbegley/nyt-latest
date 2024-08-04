@@ -3,8 +3,8 @@
 https://nytimes.com/athletic/5678977/2024/08/03/metlife-evacuation-real-madrid-barcelona/
 
 **At number retirement ceremony, Jim Leyland's human touch was on display**\
-`Leyland displayed the same human touch that made him a beloved figure in Detroit.`\
-https://nytimes.com/athletic/5678950/2024/08/03/jim-leylands-human-touch-was-on-display-once-more/
+`Saturday, Leyland displayed the same human touch that made him a beloved figure in Detroit.`\
+https://nytimes.com/athletic/5678950/2024/08/03/jim-leyland-number-retirement/
 
 **Steve McMichael was right where he needed to be while witnessing his Hall of Fame moment**\
 `McMichael, who spent 13 seasons with the Bears, was enshrined in the Pro Football Hall of Fame from the comfort of his home.`\
