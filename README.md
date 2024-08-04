@@ -1,3 +1,7 @@
+**Golf Cart Politics: Florida Retirees Flaunt Loyalties to Trump and Harris**\
+`In The Villages, Florida’s retirement mecca, pro-Trump residents have been galvanized by a surprising showing of support for Kamala Harris.`\
+https://nytimes.com/2024/08/04/us/florida-villages-trump-harris.html
+
 **What we learned during the first week of USC training camp**\
 `The offensive line will be under the microscope. The spring portal window came and went without USC adding any transfers along the line.`\
 https://nytimes.com/athletic/5679109/2024/08/04/usc-football-training-camp-takeaways-week-1/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/04/briefing/olympics-swimming-doping.html
 **Team USA looks ahead to familiar faces in Olympics bracket**\
 `PARIS – The focus for Team USA may be on Brazil, a team they haven’t seen this summer, but awaiting the American stars in an Olympic semifinal will be a very familiar face.`\
 https://nytimes.com/athletic/5679493/2024/08/04/team-usa-olympics-bracket/
-
-**What is repechage? Explaining Olympic track's new rule that a U.S. hurdler is embracing**\
-`It&#8217;s not often that a new wrinkle is introduced into Olympic sports, especially one that can become a complete game-changer for athletes.`\
-https://nytimes.com/athletic/5679470/2024/08/04/what-is-repechage-track-and-field-freddie-crittenden/
 
