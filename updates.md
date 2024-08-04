@@ -1,3 +1,19 @@
+**War Shatters Dating Scene for Women in Ukraine**\
+`While the pursuit of love might seem secondary to dealing with the horrors and privations of the war, many Ukrainians say they need romantic relationships to help them cope.`\
+https://nytimes.com/2024/08/04/world/europe/ukraine-war-dating.html
+
+**Takeaways From Our Investigation Into Banned A.I. Chips in China**\
+`The Times found an active trade in Nvidia chips in China despite U.S. national security restrictions, as well as unreported incidents of how the technology had been used to further defense research.`\
+https://nytimes.com/2024/08/04/technology/china-ai-microchips-takeaways.html
+
+**The Office Ties That Bind**\
+`How guilty should you feel about leaving the boss who gave you your first big break?`\
+https://nytimes.com/2024/08/04/business/work-friend-boss-loyalty.html
+
+**With Smugglers and Front Companies, China Is Skirting American A.I. Bans**\
+`The U.S. is trying to stop China from getting Nvidia microchips to advance its military. The private sector is fighting back.`\
+https://nytimes.com/2024/08/04/technology/china-ai-microchips.html
+
 **Harris to Interview V.P. Contenders in Final Test of Chemistry**\
 `At least three candidates — Senator Mark Kelly of Arizona, Gov. Tim Walz of Minnesota and Gov. Josh Shapiro of Pennsylvania — are scheduled to meet with Vice President Kamala Harris on Sunday.`\
 https://nytimes.com/2024/08/03/us/politics/harris-running-mate-kelly-walz-shapiro.html
