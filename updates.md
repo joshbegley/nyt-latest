@@ -1,3 +1,7 @@
+**Harris’s Brother-in-Law, a Corporate Executive, Emerges as a Close Adviser**\
+`Tony West, the top lawyer for Uber, is weighing in on polling and running mates. His presence has made some liberals anxious.`\
+https://nytimes.com/2024/08/04/us/politics/kamala-harris-tony-west.html
+
 **An effort to vaccinate Gazans against polio faces hurdles, including the heat.**\
 `By Vivian Yee`\
 https://nytimes.com/live/2024/08/04/world/israel-hamas-hezbollah-iran-gaza/an-effort-to-vaccinate-gazans-against-polio-faces-hurdles-including-the-heat
