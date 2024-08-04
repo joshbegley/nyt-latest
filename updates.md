@@ -1,3 +1,11 @@
+**Twins send White Sox to 19th loss in a row; Carlos Correa talks injury, trade deadline**\
+`Correa had asked for pitching help at the trade deadline, but the front office didn't heed his advice.`\
+https://nytimes.com/athletic/5678836/2024/08/04/twins-white-sox-carlos-correa/
+
+**With Liam Hendriks, Trevor Story progressing, Red Sox need to avoid August swoon**\
+`The Red Sox have one of the toughest second-half schedules in baseball, and the path to the postseason remains uncertain.`\
+https://nytimes.com/athletic/5679213/2024/08/04/red-sox-rangers-liam-hendriks-trevor-story/
+
 **Quotation of the Day: At a Mountain Retreat, Wine, Barbecued Lamb and Talk of Global Warming**\
 `Quotation of the Day for Sunday, August 4, 2024.`\
 https://nytimes.com/2024/08/04/pageoneplus/quotation-of-the-day-at-a-mountain-retreat-wine-barbecued-lamb-and-talk-of-global-warming.html

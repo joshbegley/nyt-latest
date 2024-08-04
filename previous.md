@@ -1,3 +1,7 @@
+**Twins send White Sox to 19th loss in a row; Carlos Correa talks injury, trade deadline**\
+`Correa had asked for pitching help at the trade deadline, but the front office didn't heed his advice.`\
+https://nytimes.com/athletic/5678836/2024/08/04/twins-white-sox-carlos-correa/
+
 **Quotation of the Day: At a Mountain Retreat, Wine, Barbecued Lamb and Talk of Global Warming**\
 `Quotation of the Day for Sunday, August 4, 2024.`\
 https://nytimes.com/2024/08/04/pageoneplus/quotation-of-the-day-at-a-mountain-retreat-wine-barbecued-lamb-and-talk-of-global-warming.html
@@ -5,6 +9,10 @@ https://nytimes.com/2024/08/04/pageoneplus/quotation-of-the-day-at-a-mountain-re
 **Corrections: Aug. 4, 2024**\
 `Corrections that appeared in print on Sunday, Aug. 4, 2024.`\
 https://nytimes.com/2024/08/04/pageoneplus/corrections-aug-4-2024.html
+
+**With Liam Hendriks, Trevor Story progressing, Red Sox need to avoid August swoon**\
+`The Red Sox have one of the toughest second-half schedules in baseball, and the path to the postseason remains uncertain.`\
+https://nytimes.com/athletic/5679213/2024/08/04/red-sox-rangers-liam-hendriks-trevor-story/
 
 **The cross-border hostilities came amid fears of a broader war**\
 `TK TK`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/04/world/olympics/paris-vibe-tourists.html
 **The making of West Ham's Crysencio Summerville - 'He has the fire inside him'**\
 `Opponents knew how to 'make him angry', but the coaches who helped shape West Ham's new signing Summerville explain his talents`\
 https://nytimes.com/athletic/5674443/2024/08/04/who-is-crysencio-summerville/
-
-**War Shatters Dating Scene for Women in Ukraine**\
-`While the pursuit of love might seem secondary to dealing with the horrors and privations of the war, many Ukrainians say they need romantic relationships to help them cope.`\
-https://nytimes.com/2024/08/04/world/europe/ukraine-war-dating.html
-
-**Takeaways From Our Investigation Into Banned A.I. Chips in China**\
-`The Times found an active trade in Nvidia chips in China despite U.S. national security restrictions, as well as unreported incidents of how the technology had been used to further defense research.`\
-https://nytimes.com/2024/08/04/technology/china-ai-microchips-takeaways.html
 
