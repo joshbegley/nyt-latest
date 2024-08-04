@@ -3,7 +3,7 @@
 https://nytimes.com/2024/08/04/us/florida-preparation-debby-idalia.html
 
 **5-Year-Old Killed After Bounce House Goes Airborne in Maryland**\
-`Children were inside the play structure at a baseball game when it was carried 15 to 20 feet in air the by the wind. One child died and another was injured.`\
+`Children were inside the play structure at a baseball game when it was carried 15 to 20 feet in the air the by the wind. One child died and another was injured.`\
 https://nytimes.com/2024/08/04/us/boy-killed-bounce-house.html
 
 **Robert F. Kennedy Jr. Admits He Left a Dead Bear in Central Park**\
