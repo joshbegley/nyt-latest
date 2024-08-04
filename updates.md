@@ -1,3 +1,7 @@
+**Trump Says Georgia’s Governor Is Hampering His Efforts to Win There**\
+`At a rally in Atlanta, former President Donald J. Trump said the battleground state’s governor and its top election official wanted him “to lose” and falsely claimed that he’d won the state twice.`\
+https://nytimes.com/2024/08/03/us/politics/trump-rally-georgia.html
+
 **How Julien Alfred Beat Sha’Carri Richardson for Gold**\
 `The gold medalist, Julien Alfred of St. Lucia, averaged 23 miles per hour to finish the race in 10.72 seconds, 0.15 seconds ahead of Sha’Carri Richardson of the United States.`\
 https://nytimes.com/interactive/2024/08/03/sports/olympics/womens-100-julien-alfred-shacarri-richardson.html
