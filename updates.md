@@ -1,3 +1,7 @@
+**Novak Djokovic knew he would win Olympic gold - he just didn't know when**\
+`The Serbian had to play one of the matches of his career to win the one thing he craved above all else`\
+https://nytimes.com/athletic/5680103/2024/08/04/novak-djokovic-olympic-gold-tennis/
+
 **Noah Lyles wins men's 100m Olympic gold**\
 `Noah Lyles’ mouth wrote the check. His feet just cashed it.`\
 https://nytimes.com/athletic/5680003/2024/08/04/noah-lyles-100m-gold-olympics-photo-finish/
