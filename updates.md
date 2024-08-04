@@ -1,3 +1,7 @@
+**Man United could use Sancho and Fernandes as strikers - Ten Hag**\
+`Erik ten Hag is considering using Jadon Sancho and Bruno Fernandes as strikers to help solve Manchester United&#8217;s attacking issues.`\
+https://nytimes.com/athletic/5679409/2024/08/04/manchester-united-strikers-ten-hag/
+
 **Katie Ledecky, her Olympic legacy secure, seems to have so much left in the tank**\
 `On Saturday, Katie Ledecky didn't commit to coming back for L.A. But it's hard to imagine her not wanting to get back in the pool.`\
 https://nytimes.com/athletic/5679410/2024/08/04/katie-ledecky-olympics-swimming-800-free-gold/

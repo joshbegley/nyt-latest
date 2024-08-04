@@ -10,6 +10,10 @@ https://nytimes.com/2024/08/04/world/asia/landslide-flood-china.html
 `The assassinations of two Hamas leaders may be a short-term setback, analysts say, not enough to prevent the group from re-emerging intact — and possibly more radicalized.`\
 https://nytimes.com/2024/08/04/world/middleeast/hamas-israel-gaza-future.html
 
+**Man United could use Sancho and Fernandes as strikers - Ten Hag**\
+`Erik ten Hag is considering using Jadon Sancho and Bruno Fernandes as strikers to help solve Manchester United&#8217;s attacking issues.`\
+https://nytimes.com/athletic/5679409/2024/08/04/manchester-united-strikers-ten-hag/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/08/04/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/04/world/israel-hamas-hezbollah-iran-gaza/one-d
 **Taking Note of History in the Making**\
 `Hours after the attempted assassination on former President Donald J. Trump, a Times editor outlined upcoming coverage of the event for the newspaper.`\
 https://nytimes.com/2024/08/04/insider/trump-assassination-news.html
-
-**These Birds Have Their Own Beach. Their Human Neighbors Want In.**\
-`Every summer, a neighborhood in Queens loses its beach to piping plovers, an endangered shorebird. Some residents want it back.`\
-https://nytimes.com/2024/08/04/nyregion/queens-beach-endangered-birds.html
 
