@@ -1,3 +1,11 @@
+**Tropical Storm Debby Could Bring ‘Historic’ Rainfall to Southeast**\
+`Forecasters are warning of serious flooding in parts of Florida, Georgia and South Carolina this week as the storm moves along the coast.`\
+https://nytimes.com/2024/08/04/weather/tropical-storm-debby-rain.html
+
+**Suni Lee snags bronze on bars for third medal of Paris Olympics**\
+`Algeria’s Kaylia Nemour took the gold with a monster routine that had the Bercy Arena alternating between gasping and cheering.`\
+https://nytimes.com/athletic/5679634/2024/08/04/suni-lee-bars-bronze-gymnastics-olympics-results/
+
 **Sunisa Lee vies for her third medal in Paris, on the uneven bars.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/08/04/world/olympics-gymnastics-bars/sunisa-lee-vies-for-her-third-medal-in-paris-on-the-uneven-bars
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5679109/2024/08/04/usc-football-training-camp-takea
 **The Soul of Soil**\
 `The dirt beneath our feet is a bigger, bolder world than you think.`\
 https://nytimes.com/2024/08/04/opinion/soil-earth-life.html
-
-**U.K. Police Brace for More Unrest After Knife Attack at Dance Class**\
-`Protests spiraled into violent riots in Liverpool, Leeds, Manchester and Belfast over the weekend, with dozens arrested and more demonstrations planned.`\
-https://nytimes.com/2024/08/04/world/europe/uk-protests-southport-stabbing.html
-
-**The Pulse: USWNT's perilous Olympic marathon**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
-https://nytimes.com/athletic/5679291/2024/08/04/uswnt-olympics-boxing-gender-the-pulse/
 
