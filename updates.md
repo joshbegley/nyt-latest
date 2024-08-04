@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/04/crosswords/spelling-bee-forum.html
+
 **Man Utd 0 Liverpool 3 - Is Carvalho playing his way into Slot's plans? Will Bradley influence Trent's role?**\
 `A Liverpool team lacking lots of their international stars defeated Manchester United, it creates a lot of intriguing questions`\
 https://nytimes.com/athletic/5678782/2024/08/04/liverpool-man-utd-result-analysis/

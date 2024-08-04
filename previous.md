@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/04/crosswords/spelling-bee-forum.html
+
 **Liverpool turn down £15m offer for Carvalho from Southampton**\
 `Liverpool have rejected a bid from Southampton worth up to £15million to sign Fabio Carvalho.`\
 https://nytimes.com/athletic/5678035/2024/08/04/liverpool-fabio-carvalho-southampton-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/04/nyregion/harlem-drug-addiction-onpoint-neighbors.
 **‘The Construction Worker Smiled and Lowered His Flag’**\
 `An impromptu starting line in Brooklyn, loose change on a sidewalk and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2024/08/04/nyregion/metropolitan-diary.html
-
-**'This is my season - I just can’t wait to prove it,' says Mateo Joseph**\
-`Age 20, Mateo Joseph is confident he can be Leeds' main striker this season`\
-https://nytimes.com/athletic/5676166/2024/08/04/mateo-joseph-this-is-my-season/
 
