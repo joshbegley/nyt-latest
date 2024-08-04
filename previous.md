@@ -1,3 +1,7 @@
+**Monitoreo de la tormenta tropical Debby, en vivo**\
+`Consulta la trayectoria probable y las horas de llegada de los vientos de Debby.`\
+https://nytimes.com/interactive/2024/08/04/weather/debby-mapa-trayectoria.html
+
 **Sunisa Lee navigated stalkers, disease and doubt to return to the Olympics.**\
 `By Juliet Macur`\
 https://nytimes.com/live/2024/08/01/world/olympics-gymnastics-simone-biles/sunisa-lee-navigated-stalkers-disease-and-doubt-to-return-to-the-olympics
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/04/world/asia/bangladesh-protests-curfew.html
 **Here’s the latest on the presidential race.**\
 `By Neil Vigdor, Jonathan Weisman and Reid J. Epstein`\
 https://nytimes.com/live/2024/08/04/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Gardner Minshew makes his move, and thoughts on the first week of Raiders camp**\
-`Minshew had a strong practice on Saturday and Aidan O'Connell struggled as Las Vegas' QB competition continues.`\
-https://nytimes.com/athletic/5678723/2024/08/04/gardner-minshew-raiders-camp/
 
