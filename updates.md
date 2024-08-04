@@ -1,3 +1,7 @@
+**Bangladesh Back Under Curfew After Protests Leave Over a Dozen Dead**\
+`Expanded student protests this weekend, after more than 200 people were killed in a government crackdown in July, have plunged the country into a particularly dangerous phase.`\
+https://nytimes.com/2024/08/04/world/asia/bangladesh-protests-curfew.html
+
 **Here’s the latest on the presidential race.**\
 `By Neil Vigdor, Jonathan Weisman and Reid J. Epstein`\
 https://nytimes.com/live/2024/08/04/us/harris-trump-election/heres-the-latest-on-the-presidential-race

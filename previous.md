@@ -1,3 +1,7 @@
+**Bangladesh Back Under Curfew After Protests Leave Over a Dozen Dead**\
+`Expanded student protests this weekend, after more than 200 people were killed in a government crackdown in July, have plunged the country into a particularly dangerous phase.`\
+https://nytimes.com/2024/08/04/world/asia/bangladesh-protests-curfew.html
+
 **Here’s the latest on the presidential race.**\
 `By Neil Vigdor, Jonathan Weisman and Reid J. Epstein`\
 https://nytimes.com/live/2024/08/04/us/harris-trump-election/heres-the-latest-on-the-presidential-race
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5678655/2024/08/04/how-the-cubs-plan-to-get-the-mos
 **In Kamala Harris’s Blackness, I See My Own**\
 `Multiracial people have long been a Rorschach test: We bear the anxiety, rage and confusion that others feel about the amorphous construction we call race.`\
 https://nytimes.com/2024/08/04/opinion/kamala-harris-biracial.html
-
-**The Sunday Read: ‘Online Dating After 50 Can Be Miserable. But It’s Also Liberating.’**\
-`You know so much more about yourself and your desires when you’re older that dating apps — even with all their frustrations — can bring unanticipated pleasure.`\
-https://nytimes.com/2024/08/04/podcasts/the-daily/online-dating-after-50.html
 
