@@ -1,3 +1,7 @@
+**Florida Prepares for Landfall as Tropical Storm Debby Strengthens**\
+`Debby was expected to hit Florida as a hurricane-strength storm late Sunday. Officials issued evacuation orders and made emergency preparations along the coast.`\
+https://nytimes.com/2024/08/04/us/florida-tropical-storm-debby.html
+
 **What to Watch as Sunisa Lee Competes in Uneven Bars Final**\
 `Lee, the all-around champion from the Tokyo Olympics, is the only American in the competition after Simone Biles failed to qualify.`\
 https://nytimes.com/2024/08/04/world/olympics/sunisa-lee-watch-bars.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/04/books/review/the-bookshop-evan-friss.html
 **It’s Lights Out at a Cosmic Restaurant**\
 `Palomar Observatory bids farewell to a tradition of napkin rings, cowbells and astronomical table conversation.`\
 https://nytimes.com/2024/08/04/science/space/astronomy-palomar-restaurant.html
-
-**The Nazis Came for France Once. Not Everyone There Was Upset About It.**\
-`In “Paris 1944,” Patrick Bishop tells the story of the German occupation during World War II, with equal attention to French resisters and collaborators.`\
-https://nytimes.com/2024/08/04/books/review/paris-1944-patrick-bishop.html
 

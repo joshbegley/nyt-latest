@@ -1,3 +1,7 @@
+**Florida Prepares for Landfall as Tropical Storm Debby Strengthens**\
+`Debby was expected to hit Florida as a hurricane-strength storm late Sunday. Officials issued evacuation orders and made emergency preparations along the coast.`\
+https://nytimes.com/2024/08/04/us/florida-tropical-storm-debby.html
+
 **What to Watch as Sunisa Lee Competes in Uneven Bars Final**\
 `Lee, the all-around champion from the Tokyo Olympics, is the only American in the competition after Simone Biles failed to qualify.`\
 https://nytimes.com/2024/08/04/world/olympics/sunisa-lee-watch-bars.html
