@@ -1,3 +1,7 @@
+**Boxer Ngamba secures first medal for refugee team with quarterfinal win**\
+`The Cameroonian-born boxer competes under the refugee flag because she is gay and cannot return home since homosexuality is outlawed.`\
+https://nytimes.com/athletic/5679686/2024/08/04/cindy-ngamba-refugee-boxing-olympics-medal/
+
 **Harris’s Brother-in-Law, a Corporate Executive, Emerges as a Close Adviser**\
 `Tony West, the top lawyer for Uber, is weighing in on polling and running mates. His presence has made some liberals anxious.`\
 https://nytimes.com/2024/08/04/us/politics/kamala-harris-tony-west.html
