@@ -1,3 +1,7 @@
+**Liverpool turn down £15m offer for Carvalho from Southampton**\
+`Liverpool have rejected a bid from Southampton worth up to £15million to sign Fabio Carvalho.`\
+https://nytimes.com/athletic/5678035/2024/08/04/liverpool-fabio-carvalho-southampton-transfer/
+
 **Man Utd 0 Liverpool 3 - Carvalho and Kelleher impress, will Bradley influence Trent's role?**\
 `A Liverpool team lacking lots of their international stars defeated Manchester United, it creates a lot of intriguing questions`\
 https://nytimes.com/athletic/5678782/2024/08/04/liverpool-man-utd-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/04/nyregion/metropolitan-diary.html
 **'This is my season - I just can’t wait to prove it,' says Mateo Joseph**\
 `Age 20, Mateo Joseph is confident he can be Leeds' main striker this season`\
 https://nytimes.com/athletic/5676166/2024/08/04/mateo-joseph-this-is-my-season/
-
-**Dodgers encouraged by Jack Flaherty's debut and get good news about their future**\
-`Flaherty delivered just the second quality start L.A. pitchers have logged in the last 38 days. Some injured Dodgers could return soon.`\
-https://nytimes.com/athletic/5679277/2024/08/04/dodgers-jack-flaherty/
 
