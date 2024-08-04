@@ -1,3 +1,11 @@
+**Belgian Triathlon Team Drops Out After Athlete Falls Sick**\
+`The athlete, Claire Michel, who swam in the Seine River during the women’s triathlon last week, was taken to a clinic in the Olympic Village on Sunday for treatment.`\
+https://nytimes.com/2024/08/04/sports/belgium-triathlon-withdraws-seine.html
+
+**Greetings, People of Earth**\
+`Humans encounter nonhuman intelligences and try to make sense of them.`\
+https://nytimes.com/2024/08/04/podcasts/greetings-people-of-earth.html
+
 **Fantasy baseball notebook: Trade deadline winners, and the best rotation trios in baseball**\
 `Derek VanRiper shares the highlights from the past week-plus of the Rates & Barrels podcast, including a look at MLB's top starter trios.`\
 https://nytimes.com/athletic/5646216/2024/08/04/fantasy-baseball-notebook-trade-deadline-winners-and-the-best-rotation-trios-in-baseball/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/04/us/politics/robert-f-kennedy-jr-bear-central-park
 **Dodgers star Freddie Freeman’s youngest son discharged from hospital**\
 `The Freemans believe the issue stemmed from a viral infection Maximus suffered during last month’s All-Star game.`\
 https://nytimes.com/athletic/5680459/2024/08/04/dodgers-freddie-freeman-son-discharge/
-
-**Shares the Same View**\
-`Andy Walker makes his New York Times debut.`\
-https://nytimes.com/2024/08/04/crosswords/daily-puzzle-2024-08-05.html
-
-**How the 9/11 Plea Deal Came Undone**\
-`A case that had mostly drifted from public consciousness in 12 years of proceedings is back in the spotlight and no closer to trial.`\
-https://nytimes.com/2024/08/04/us/politics/sept-11-plea-agreement.html
 
