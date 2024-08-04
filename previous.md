@@ -1,3 +1,7 @@
+**Noah Lyles wins men's 100m Olympic gold**\
+`Noah Lyles’ mouth wrote the check. His feet just cashed it.`\
+https://nytimes.com/athletic/5680003/2024/08/04/noah-lyles-100m-gold-olympics-photo-finish/
+
 **Biden’s Proposed Supreme Court Reforms**\
 `The effort is “100 percent politically motivated,” a reader writes; others support the proposals. Also: Solitary confinement; table tennis; interest rates.`\
 https://nytimes.com/2024/08/04/opinion/biden-supreme-court-reforms.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5679884/2024/08/04/team-usa-vs-germany-olympic-wome
 **Lowetide: Why Oilers' farm team will fill a vital role in 2024-25**\
 `With several players on entry deals who are developing well and could see the NHL, it should be an exciting year for the Oilers and Condors.`\
 https://nytimes.com/athletic/5678293/2024/08/04/oilers-nhl-ahl-2024-25/
-
-**Sara Errani, Jasmine Paolini win women's doubles gold medal for Italy**\
-`Italy&#8217;s Sara Errani completed a career Golden Slam by winning Olympic gold in the women&#8217;s doubles tennis event with Jasmine Paolini.`\
-https://nytimes.com/athletic/5679944/2024/08/04/errani-paolini-gold-medal-womens-doubles/
 
