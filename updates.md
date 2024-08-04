@@ -1,3 +1,7 @@
+**Man Utd 0 Liverpool 3 - Is Carvalho playing his way into Slot's plans? Will Bradley influence Trent's role?**\
+`A Liverpool team lacking lots of their international stars defeated Manchester United, it creates a lot of intriguing questions`\
+https://nytimes.com/athletic/5678782/2024/08/04/liverpool-man-utd-result-analysis/
+
 **Liverpool turn down £15m offer for Carvalho from Southampton**\
 `Liverpool have rejected a bid from Southampton worth up to £15million to sign Fabio Carvalho.`\
 https://nytimes.com/athletic/5678035/2024/08/04/liverpool-fabio-carvalho-southampton-transfer/
