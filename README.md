@@ -1,6 +1,6 @@
 **Noah Lyles wins men's 100m Olympic gold**\
 `Noah Lyles’ mouth wrote the check. His feet just cashed it.`\
-https://nytimes.com/athletic/5680003/2024/08/04/noah-lyles-100m-olympics-results/
+https://nytimes.com/athletic/5680003/2024/08/04/noah-lyles-100m-gold-olympics-photo-finish/
 
 **Biden’s Proposed Supreme Court Reforms**\
 `The effort is “100 percent politically motivated,” a reader writes; others support the proposals. Also: Solitary confinement; table tennis; interest rates.`\
