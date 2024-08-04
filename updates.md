@@ -1,3 +1,11 @@
+**Bobby Finke sets world record, wins gold in 1500-meter freestyle**\
+`Finke's time of 14:30.67 set a new world record in the men's 1500 free.`\
+https://nytimes.com/athletic/5679806/2024/08/04/bobby-finke-1500-meter-freestyle-world-record-olympics-paris/
+
+**How Two Russian ‘Illegals’ Went Deep Undercover With Their Children**\
+`A couple planted as sleeper spies in Slovenia posed as an Argentine art dealer and an entrepreneur. They were caught in December 2022 and sent to Moscow in a sweeping prisoner exchange last week.`\
+https://nytimes.com/2024/08/04/world/europe/russia-undercover-prisoner-swap.html
+
 **Israeli Strike on Gaza Shelter Kills at Least 25 and Injures Dozens**\
 `An Israeli airstrike in Gaza City killed at least 25 people, according to a Palestinian emergency agency and local media outlets. Israel said it targeted Hamas “command and control centers.”`\
 https://nytimes.com/2024/08/04/world/middleeast/israel-gaza-strike-shelter.html

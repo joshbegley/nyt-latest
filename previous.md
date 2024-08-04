@@ -1,3 +1,11 @@
+**Bobby Finke sets world record, wins gold in 1500-meter freestyle**\
+`Finke's time of 14:30.67 set a new world record in the men's 1500 free.`\
+https://nytimes.com/athletic/5679806/2024/08/04/bobby-finke-1500-meter-freestyle-world-record-olympics-paris/
+
+**How Two Russian ‘Illegals’ Went Deep Undercover With Their Children**\
+`A couple planted as sleeper spies in Slovenia posed as an Argentine art dealer and an entrepreneur. They were caught in December 2022 and sent to Moscow in a sweeping prisoner exchange last week.`\
+https://nytimes.com/2024/08/04/world/europe/russia-undercover-prisoner-swap.html
+
 **Israeli Strike on Gaza Shelter Kills at Least 25 and Injures Dozens**\
 `An Israeli airstrike in Gaza City killed at least 25 people, according to a Palestinian emergency agency and local media outlets. Israel said it targeted Hamas “command and control centers.”`\
 https://nytimes.com/2024/08/04/world/middleeast/israel-gaza-strike-shelter.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/04/arts/television/joe-rogan-standup-netflix.html
 **Boxer Ngamba secures first medal for refugee team with quarterfinal win**\
 `The Cameroonian-born boxer competes under the refugee flag because she is gay and cannot return home since homosexuality is outlawed.`\
 https://nytimes.com/athletic/5679686/2024/08/04/cindy-ngamba-refugee-boxing-olympics-medal/
-
-**Harris’s Brother-in-Law, a Corporate Executive, Emerges as a Close Adviser**\
-`Tony West, the top lawyer for Uber, is weighing in on polling and running mates. His presence has made some liberals anxious.`\
-https://nytimes.com/2024/08/04/us/politics/kamala-harris-tony-west.html
-
-**An effort to vaccinate Gazans against polio faces hurdles, including the heat.**\
-`By Vivian Yee`\
-https://nytimes.com/live/2024/08/04/world/israel-hamas-hezbollah-iran-gaza/an-effort-to-vaccinate-gazans-against-polio-faces-hurdles-including-the-heat
 
