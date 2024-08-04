@@ -1,3 +1,11 @@
+**Harris to Interview V.P. Contenders in Final Test of Chemistry**\
+`At least three candidates — Senator Mark Kelly of Arizona, Gov. Tim Walz of Minnesota and Gov. Josh Shapiro of Pennsylvania — are scheduled to meet with Vice President Kamala Harris on Sunday.`\
+https://nytimes.com/2024/08/03/us/politics/harris-running-mate-kelly-walz-shapiro.html
+
+**Braves' clubhouse has remained strong as Atlanta's resurgence has made NL East a race**\
+`Charlie Morton has been around for a while and believes the Braves' clubhouse chemistry isn't just for show. `\
+https://nytimes.com/athletic/5679168/2024/08/03/braves-resurgence-has-made-nl-east-a-race/
+
 **Trump Says Georgia’s Governor Is Hampering His Efforts to Win There**\
 `At a rally in Atlanta, former President Donald J. Trump said the battleground state’s governor and its top election official wanted him “to lose” and falsely claimed that he’d won the state twice.`\
 https://nytimes.com/2024/08/03/us/politics/trump-rally-georgia.html

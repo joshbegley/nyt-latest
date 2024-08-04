@@ -1,3 +1,11 @@
+**Harris to Interview V.P. Contenders in Final Test of Chemistry**\
+`At least three candidates — Senator Mark Kelly of Arizona, Gov. Tim Walz of Minnesota and Gov. Josh Shapiro of Pennsylvania — are scheduled to meet with Vice President Kamala Harris on Sunday.`\
+https://nytimes.com/2024/08/03/us/politics/harris-running-mate-kelly-walz-shapiro.html
+
+**Braves' clubhouse has remained strong as Atlanta's resurgence has made NL East a race**\
+`Charlie Morton has been around for a while and believes the Braves' clubhouse chemistry isn't just for show. `\
+https://nytimes.com/athletic/5679168/2024/08/03/braves-resurgence-has-made-nl-east-a-race/
+
 **Trump Says Georgia’s Governor Is Hampering His Efforts to Win There**\
 `At a rally in Atlanta, former President Donald J. Trump said the battleground state’s governor and its top election official wanted him “to lose” and falsely claimed that he’d won the state twice.`\
 https://nytimes.com/2024/08/03/us/politics/trump-rally-georgia.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5678873/2024/08/03/steve-mcmichael-hall-of-fame-ind
 **Meet the Nations That Have Never Won an Olympic Medal (and Two That Just Did)**\
 `Gold medals in track and field brought St. Lucia and Dominica into an exclusive club of nations. But for 66 other countries and territories, the wait for an Olympic medal goes on, and on, and on.`\
 https://nytimes.com/2024/08/03/world/olympics/country-without-medals.html
-
-**Luol Deng criticizes officiating after South Sudan's loss to Serbia**\
-`"Everybody knows there's a huge disrespect to African basketball," Deng said.`\
-https://nytimes.com/athletic/5678758/2024/08/03/south-sudan-serbia-officiating-comments/
-
-**Niners growing more impressed with 'steady Eddie' Dominick Puni with every practice**\
-`The 49ers had their longest — and feistiest — practice of the summer, with running back Jordan Mason at the center of the rough stuff.`\
-https://nytimes.com/athletic/5678821/2024/08/03/49ers-training-camp-dominick-puni-2/
 
