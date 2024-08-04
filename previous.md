@@ -1,3 +1,7 @@
+**KBBQ to make ASAP**\
+`Eric Kim’s new recipe for Korean BBQ steak relies on a “pitch-perfect” marinade, “salty, sweet and savory in just the right ways.”`\
+https://nytimes.com/2024/08/04/dining/kbbq-to-make-asap.html
+
 **Tropical Storm Debby Could Bring ‘Historic’ Rainfall to Southeast**\
 `Forecasters are warning of serious flooding in parts of Florida, Georgia and South Carolina this week as the storm moves along the coast.`\
 https://nytimes.com/2024/08/04/weather/tropical-storm-debby-rain.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/04/us/florida-villages-trump-harris.html
 **What we learned during the first week of USC training camp**\
 `The offensive line will be under the microscope. The spring portal window came and went without USC adding any transfers along the line.`\
 https://nytimes.com/athletic/5679109/2024/08/04/usc-football-training-camp-takeaways-week-1/
-
-**The Soul of Soil**\
-`The dirt beneath our feet is a bigger, bolder world than you think.`\
-https://nytimes.com/2024/08/04/opinion/soil-earth-life.html
 

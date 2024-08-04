@@ -1,3 +1,7 @@
+**KBBQ to make ASAP**\
+`Eric Kim’s new recipe for Korean BBQ steak relies on a “pitch-perfect” marinade, “salty, sweet and savory in just the right ways.”`\
+https://nytimes.com/2024/08/04/dining/kbbq-to-make-asap.html
+
 **Tropical Storm Debby Could Bring ‘Historic’ Rainfall to Southeast**\
 `Forecasters are warning of serious flooding in parts of Florida, Georgia and South Carolina this week as the storm moves along the coast.`\
 https://nytimes.com/2024/08/04/weather/tropical-storm-debby-rain.html
