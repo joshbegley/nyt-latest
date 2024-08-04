@@ -1,3 +1,7 @@
+**Quotation of the Day: At a Mountain Retreat, Wine, Barbecued Lamb and Talk of Global Warming**\
+`Quotation of the Day for Sunday, August 4, 2024.`\
+https://nytimes.com/2024/08/04/pageoneplus/quotation-of-the-day-at-a-mountain-retreat-wine-barbecued-lamb-and-talk-of-global-warming.html
+
 **Corrections: Aug. 4, 2024**\
 `Corrections that appeared in print on Sunday, Aug. 4, 2024.`\
 https://nytimes.com/2024/08/04/pageoneplus/corrections-aug-4-2024.html
