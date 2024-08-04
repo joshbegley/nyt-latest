@@ -1,3 +1,7 @@
+**Corrections: Aug. 4, 2024**\
+`Corrections that appeared in print on Sunday, Aug. 4, 2024.`\
+https://nytimes.com/2024/08/04/pageoneplus/corrections-aug-4-2024.html
+
 **The cross-border hostilities came amid fears of a broader war**\
 `TK TK`\
 https://nytimes.com/live/2024/08/04/world/israel-hamas-hezbollah-iran-gaza/the-cross-border-hostilities-came-amid-fears-of-a-broader-war
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/04/technology/china-ai-microchips-takeaways.html
 **The Office Ties That Bind**\
 `How guilty should you feel about leaving the boss who gave you your first big break?`\
 https://nytimes.com/2024/08/04/business/work-friend-boss-loyalty.html
-
-**Questions and answers: The Olympic women’s boxing gender controversy**\
-`Forty-six seconds was all the world needed to sidetrack the 2024 Olympics into a heated controversy about the gender of two boxers.`\
-https://nytimes.com/athletic/5678780/2024/08/04/olympic-boxing-gender-controversy/
 

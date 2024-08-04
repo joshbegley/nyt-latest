@@ -1,3 +1,7 @@
+**Corrections: Aug. 4, 2024**\
+`Corrections that appeared in print on Sunday, Aug. 4, 2024.`\
+https://nytimes.com/2024/08/04/pageoneplus/corrections-aug-4-2024.html
+
 **The cross-border hostilities came amid fears of a broader war**\
 `TK TK`\
 https://nytimes.com/live/2024/08/04/world/israel-hamas-hezbollah-iran-gaza/the-cross-border-hostilities-came-amid-fears-of-a-broader-war
