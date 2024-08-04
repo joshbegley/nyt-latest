@@ -1,3 +1,11 @@
+**Man Utd 0 Liverpool 3 - Carvalho and Kelleher impress, will Bradley influence Trent's role?**\
+`A Liverpool team lacking lots of their international stars defeated Manchester United, it creates a lot of intriguing questions`\
+https://nytimes.com/athletic/5678782/2024/08/04/liverpool-man-utd-result-analysis/
+
+**Phillies find another way to lose and the challenges keep mounting**\
+`The latest setback in Seattle demonstrated how impossible it feels for Philadelphia to win a game.`\
+https://nytimes.com/athletic/5679346/2024/08/04/phillies-lose-to-mariners/
+
 **One dead, three injured in stabbing attack near Tel Aviv.**\
 `Officials called the Sunday morning attack “complex and difficult,” with the victims in separate but nearby locations. A 70-year-old woman was killed.`\
 https://nytimes.com/live/2024/08/04/world/israel-hamas-hezbollah-iran-gaza/one-dead-three-injured-in-stabbing-attack-near-tel-aviv
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5676166/2024/08/04/mateo-joseph-this-is-my-season/
 **Dodgers encouraged by Jack Flaherty's debut and get good news about their future**\
 `Flaherty delivered just the second quality start L.A. pitchers have logged in the last 38 days. Some injured Dodgers could return soon.`\
 https://nytimes.com/athletic/5679277/2024/08/04/dodgers-jack-flaherty/
-
-**Why a Black-and-White Feminist Film Was Bigger Than ‘Barbie’ in Italy**\
-`“There’s Still Tomorrow” tells a story of a feminism that everyone can agree on and enjoy.`\
-https://nytimes.com/2024/08/04/opinion/theres-still-tomorrow-paola-cortellesi.html
-
-**Twins send White Sox to 19th loss in a row; Carlos Correa talks injury, trade deadline**\
-`Correa had asked for pitching help at the trade deadline, but the front office didn't heed his advice.`\
-https://nytimes.com/athletic/5678836/2024/08/04/twins-white-sox-carlos-correa/
 
