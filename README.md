@@ -1,3 +1,11 @@
+**A weekend ride through Paris. Prizes for the first three finishers.**\
+`The Olympic road cycling events, open for all to watch, end in a sprint to the finish.`\
+https://nytimes.com/2024/08/04/world/olympics/road-cycling.html
+
+**Watford accept £25m offer from Rennes for Asprilla**\
+`Watford have accepted an offer from Rennes for midfielder Yaser Asprilla.`\
+https://nytimes.com/athletic/5660354/2024/08/04/yaser-asprilla-transfer-watford-rennes/
+
 **Team USA WBB earns 58th consecutive Olympic win**\
 `Team USA is guaranteed to be a top-two seed and will begin the knockout rounds Wednesday.`\
 https://nytimes.com/athletic/5679884/2024/08/04/team-usa-vs-germany-olympic-womens-basketball/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5679645/2024/08/04/leon-marchand-olympic-golds-tech
 **Kristen Faulkner stuns with gold in Olympic women's road race**\
 `The last time an American woman won the event was at the 1984 Games when Connie Carpenter-Phinney placed first.`\
 https://nytimes.com/athletic/5679833/2024/08/04/kristen-faulkner-gold-olympics-road-cycling/
-
-**Inside the Obama-Shapiro Relationship**\
-`The speaking style of Gov. Josh Shapiro of Pennsylvania, a potential vice presidential pick, can sound suspiciously similar to President Obama’s. But the real connection between the two men is deeper than commonly known.`\
-https://nytimes.com/2024/08/04/us/politics/obama-josh-shapiro-relationship.html
-
-**Review: Death Drives a New ‘Tristan’ at Wagner’s Festival**\
-`Thorleifur Orn Arnarsson’s production of “Tristan und Isolde” at the Bayreuth Festival in Germany is an excellently conducted puzzle of grim symbols.`\
-https://nytimes.com/2024/08/04/arts/music/tristan-und-isolde-bayreuth-review.html
 
