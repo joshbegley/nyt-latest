@@ -1,3 +1,7 @@
+**U.S. sets world record in medley relay to close out swimming with most gold**\
+`Regan Smith, Lilly King, Gretchen Walsh and Torri Huske finished in 3:49.63 and beat the rest of the field by more than three seconds.`\
+https://nytimes.com/athletic/5680015/2024/08/04/usa-medley-relay-gold-swimming-paris-olympics/
+
 **U.S. sets world record in medley relay to close out swimming with gold**\
 `Regan Smith, Lilly King, Gretchen Walsh and Torri Huske finished in 3:49.63 and beat the rest of the field by more than three seconds.`\
 https://nytimes.com/athletic/5680015/2024/08/04/usa-medley-relay-gold-swimming-paris-olympics/
