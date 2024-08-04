@@ -1,3 +1,7 @@
+**Questions and answers: The Olympic women’s boxing gender controversy**\
+`Forty-six seconds was all the world needed to sidetrack the 2024 Olympics into a heated controversy about the gender of two boxers.`\
+https://nytimes.com/athletic/5678780/2024/08/04/olympic-boxing-gender-controversy/
+
 **War Shatters Dating Scene for Women in Ukraine**\
 `While the pursuit of love might seem secondary to dealing with the horrors and privations of the war, many Ukrainians say they need romantic relationships to help them cope.`\
 https://nytimes.com/2024/08/04/world/europe/ukraine-war-dating.html

@@ -10,6 +10,10 @@ https://nytimes.com/2024/08/04/technology/china-ai-microchips-takeaways.html
 `How guilty should you feel about leaving the boss who gave you your first big break?`\
 https://nytimes.com/2024/08/04/business/work-friend-boss-loyalty.html
 
+**Questions and answers: The Olympic women’s boxing gender controversy**\
+`Forty-six seconds was all the world needed to sidetrack the 2024 Olympics into a heated controversy about the gender of two boxers.`\
+https://nytimes.com/athletic/5678780/2024/08/04/olympic-boxing-gender-controversy/
+
 **With Smugglers and Front Companies, China Is Skirting American A.I. Bans**\
 `The U.S. is trying to stop China from getting Nvidia microchips to advance its military. The private sector is fighting back.`\
 https://nytimes.com/2024/08/04/technology/china-ai-microchips.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/08/03/sports/olympics/womens-100-julien-alf
 **White Sox just one loss away from 20th straight defeat: by the numbers**\
 `With Saturday’s 6-2 loss to the Twins, the White Sox now have the longest losing streak in baseball since 2021, when the Orioles also dropped 19 straight.`\
 https://nytimes.com/athletic/5679125/2024/08/03/white-sox-19th-straight-loss/
-
-**Penn State media day: Sorting through wide receivers and other takeaways**\
-`While no team captains have been named, head coach James Franklin said he's seeing this group of players become more vocal.`\
-https://nytimes.com/athletic/5679012/2024/08/03/penn-state-media-day-takeaways/
 
