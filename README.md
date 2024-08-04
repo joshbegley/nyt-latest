@@ -1,3 +1,7 @@
+**Israeli Strike on Gaza Shelter Kills at Least 25 and Injures Dozens**\
+`An Israeli airstrike in Gaza City killed at least 25 people, according to a Palestinian emergency agency and local media outlets. Israel said it targeted Hamas “command and control centers.”`\
+https://nytimes.com/2024/08/04/world/middleeast/israel-gaza-strike-shelter.html
+
 **What makes Leon Marchand a superstar? He's smaller, lighter and unbelievable underwater**\
 `France’s golden boy has changed the face of swimming. There’s more than one way to win an Olympic gold. Or four...`\
 https://nytimes.com/athletic/5679645/2024/08/04/leon-marchand-olympic-golds-technique-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/04/us/politics/kamala-harris-tony-west.html
 **An effort to vaccinate Gazans against polio faces hurdles, including the heat.**\
 `By Vivian Yee`\
 https://nytimes.com/live/2024/08/04/world/israel-hamas-hezbollah-iran-gaza/an-effort-to-vaccinate-gazans-against-polio-faces-hurdles-including-the-heat
-
-**Game, Set, Match: Novak Djokovic beats Carlos Alcaraz for Olympic gold in Paris**\
-`An epic Olympic men's singles final befitted the intensity of the two competitors, as the Serbian finally claimed the title that eluded him`\
-https://nytimes.com/athletic/5679444/2024/08/04/novak-djokovic-gold-olympics-tennis-carlos-alcaraz/
 
