@@ -1,3 +1,15 @@
+**Team USA WBB earns 58th consecutive Olympic win**\
+`Team USA is guaranteed to be a top-two seed and will begin the knockout rounds Wednesday.`\
+https://nytimes.com/athletic/5679884/2024/08/04/team-usa-vs-germany-olympic-womens-basketball/
+
+**Lowetide: Why Oilers' farm team will fill a vital role in 2024-25**\
+`With several players on entry deals who are developing well and could see the NHL, it should be an exciting year for the Oilers and Condors.`\
+https://nytimes.com/athletic/5678293/2024/08/04/oilers-nhl-ahl-2024-25/
+
+**Sara Errani and Jasmine Paolini win women's doubles gold medal for Italy**\
+`Italy&#8217;s Sara Errani completed a career Golden Slam by winning Olympic gold in the women&#8217;s doubles with Jasmine Paolini.`\
+https://nytimes.com/athletic/5679944/2024/08/04/errani-paolini-gold-medal-womens-doubles/
+
 **Israeli Strike on Gaza Shelter Kills at Least 30 and Injures Dozens**\
 `An Israeli airstrike in Gaza City killed at least 30 people, according to a Palestinian emergency agency and local media outlets. Israel said it targeted Hamas “command and control centers.”`\
 https://nytimes.com/2024/08/04/world/middleeast/israel-gaza-strike-shelter.html

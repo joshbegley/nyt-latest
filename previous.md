@@ -1,3 +1,15 @@
+**Team USA WBB earns 58th consecutive Olympic win**\
+`Team USA is guaranteed to be a top-two seed and will begin the knockout rounds Wednesday.`\
+https://nytimes.com/athletic/5679884/2024/08/04/team-usa-vs-germany-olympic-womens-basketball/
+
+**Lowetide: Why Oilers' farm team will fill a vital role in 2024-25**\
+`With several players on entry deals who are developing well and could see the NHL, it should be an exciting year for the Oilers and Condors.`\
+https://nytimes.com/athletic/5678293/2024/08/04/oilers-nhl-ahl-2024-25/
+
+**Sara Errani and Jasmine Paolini win women's doubles gold medal for Italy**\
+`Italy&#8217;s Sara Errani completed a career Golden Slam by winning Olympic gold in the women&#8217;s doubles with Jasmine Paolini.`\
+https://nytimes.com/athletic/5679944/2024/08/04/errani-paolini-gold-medal-womens-doubles/
+
 **Bobby Finke sets world record, wins gold in 1500-meter freestyle**\
 `Finke's time of 14:30.67 set a new world record in the men's 1500 free.`\
 https://nytimes.com/athletic/5679806/2024/08/04/bobby-finke-1500-meter-freestyle-world-record-olympics-paris/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/04/us/politics/obama-josh-shapiro-relationship.html
 **Review: Death Drives a New ‘Tristan’ at Wagner’s Festival**\
 `Thorleifur Orn Arnarsson’s production of “Tristan und Isolde” at the Bayreuth Festival in Germany is an excellently conducted puzzle of grim symbols.`\
 https://nytimes.com/2024/08/04/arts/music/tristan-und-isolde-bayreuth-review.html
-
-**Scottie Scheffler wins Olympic gold medal, Tommy Fleetwood takes silver**\
-`Scheffler made four-straight birdies on the back nine to tie the course record at Le Golf National and add to his 2024 record.`\
-https://nytimes.com/athletic/5679733/2024/08/04/olympic-golf-scheffler-fleetwood-gold/
-
-**In His Stand-Up Special, Joe Rogan Plays Dumb**\
-`On his podcast, Rogan indulges his own obsessions and eccentricities. But in “Burn the Boats,” his Netflix comedy special, contempt for the crowd is a theme.`\
-https://nytimes.com/2024/08/04/arts/television/joe-rogan-standup-netflix.html
-
-**Boxer Ngamba secures first medal for refugee team with quarterfinal win**\
-`The Cameroonian-born boxer competes under the refugee flag because she is gay and cannot return home since homosexuality is outlawed.`\
-https://nytimes.com/athletic/5679686/2024/08/04/cindy-ngamba-refugee-boxing-olympics-medal/
 
