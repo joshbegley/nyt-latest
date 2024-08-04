@@ -1,3 +1,7 @@
+**Penn State media day: Sorting through wide receivers and other takeaways**\
+`While no team captains have been named, head coach James Franklin said he's seeing this group of players become more vocal.`\
+https://nytimes.com/athletic/5679012/2024/08/03/penn-state-media-day-takeaways/
+
 **LeBron's (and Sam's) Olympics men's basketball knockout-round power rankings**\
 `With the cream of the crop — USA, Canada, Germany — moving on, the games should be more exciting in the single-elimination stage.`\
 https://nytimes.com/athletic/5678735/2024/08/03/lebron-james-olympics-team-usa/
