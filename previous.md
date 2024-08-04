@@ -1,3 +1,7 @@
+**At Olympic track and field, gold isn't the only way to measure success**\
+`SAINT-DENIS, France — There was no decision for Joe Kovacs to make.`\
+https://nytimes.com/athletic/5678383/2024/08/04/olympics-track-and-field-joe-kovacs-shacarri-richardson/
+
 **The Briefing: Real Madrid 1 Barcelona 2 - Victor scores twice as Flick's young players star in Clasico**\
 `After a thunderstorm caused an hour delay in the first half, Pau Victor inspired Barcelona to a victory against Real Madrid in New York`\
 https://nytimes.com/athletic/5679315/2024/08/04/barcelona-clasico-real-madrid-new-york-victory/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/04/books/review/paris-1944-patrick-bishop.html
 **Giants stock report: Who's trending up, who's down heading into preseason?**\
 `While a starting spot is Dane Belton's to lose, the deck seems stacked against WR Darius Slayton.`\
 https://nytimes.com/athletic/5677515/2024/08/04/new-york-giants-training-camp-evan-neal-darius-slayton/
-
-**Has the Long Friendship of Bill Gates and Warren Buffett Reached Its Final Act?**\
-`Growing tensions between the two billionaires, over issues both substantive and stylistic, have roiled the world of philanthropy.`\
-https://nytimes.com/2024/08/04/business/bill-gates-warren-buffett-friendship.html
 
