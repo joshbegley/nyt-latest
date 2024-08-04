@@ -1,3 +1,11 @@
+**Belgian Triathlon Team Drops Out After Athlete Falls Sick**\
+`The athlete, Claire Michel, who swam in the Seine River during the women’s triathlon last week, was taken to a clinic in the Olympic Village on Sunday for treatment.`\
+https://nytimes.com/2024/08/04/sports/belgium-triathlon-withdraws-seine.html
+
+**Greetings, People of Earth**\
+`Humans encounter nonhuman intelligences and try to make sense of them.`\
+https://nytimes.com/2024/08/04/podcasts/greetings-people-of-earth.html
+
 **Jimmy Carter Said to Have Plans to Vote for Kamala Harris**\
 `The former president, whose 100th birthday is Oct. 1, seems to have found some new motivation in the 2024 election.`\
 https://nytimes.com/2024/08/04/us/politics/jimmy-carter-vote-for-kamala.html
