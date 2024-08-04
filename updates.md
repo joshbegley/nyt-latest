@@ -1,3 +1,11 @@
+**A weekend ride through Paris. Prizes for the first three finishers.**\
+`The Olympic road cycling events, open for all to watch, end in a sprint to the finish.`\
+https://nytimes.com/2024/08/04/world/olympics/road-cycling.html
+
+**Watford accept £25m offer from Rennes for Asprilla**\
+`Watford have accepted an offer from Rennes for midfielder Yaser Asprilla.`\
+https://nytimes.com/athletic/5660354/2024/08/04/yaser-asprilla-transfer-watford-rennes/
+
 **Sara Errani, Jasmine Paolini win women's doubles gold medal for Italy**\
 `Italy&#8217;s Sara Errani completed a career Golden Slam by winning Olympic gold in the women&#8217;s doubles tennis event with Jasmine Paolini.`\
 https://nytimes.com/athletic/5679944/2024/08/04/errani-paolini-gold-medal-womens-doubles/
