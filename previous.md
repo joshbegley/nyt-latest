@@ -1,3 +1,7 @@
+**Team USA looks ahead to familiar faces in Olympics bracket**\
+`PARIS – The focus for Team USA may be on Brazil, a team they haven’t seen this summer, but awaiting the American stars in an Olympic semifinal will be a very familiar face.`\
+https://nytimes.com/athletic/5679493/2024/08/04/team-usa-olympics-bracket/
+
 **What is repechage? Explaining Olympic track's new rule that a U.S. hurdler is embracing**\
 `It&#8217;s not often that a new wrinkle is introduced into Olympic sports, especially one that can become a complete game-changer for athletes.`\
 https://nytimes.com/athletic/5679470/2024/08/04/what-is-repechage-track-and-field-freddie-crittenden/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/04/crosswords/connections-companion-421.html
 **Wordle Review No. 1,143**\
 `Scroll down for hints and conversation about the puzzle for Monday, August 5, 2024.`\
 https://nytimes.com/2024/08/04/crosswords/wordle-review-1143.html
-
-**After My Brother’s Overdose Death, Misinformed People Added to Our Grief**\
-`You cannot overdose on fentanyl by touching a person who overdosed.`\
-https://nytimes.com/2024/08/04/opinion/fentanyl-secondhand-exposure-myth.html
 
