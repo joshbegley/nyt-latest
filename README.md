@@ -1,3 +1,7 @@
+**Monday Briefing: A Tense Wait in Israel**\
+`Plus, philanthropy with a dark twist.`\
+https://nytimes.com/2024/08/04/briefing/israel-hamas-hezbollah-myanmar-harris.html
+
 **Sherrone Moore faces Level II violation in draft of Stalions case allegations**\
 `Moore could face penalties for allegedly deleting texts he exchanged with Stalions. The messages were recovered and provided to the NCAA.`\
 https://nytimes.com/athletic/5680182/2024/08/04/sherrone-moore-michigan-connor-stalions-violations/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000009610545/bangladesh-protests-governm
 **Israeli Strike Kills Dozens at Gaza Shelter**\
 `An Israeli airstrike on a school functioning as a shelter in Gaza City killed at least 30 people, according to a Palestinian emergency agency and local media outlets.`\
 https://nytimes.com/video/world/middleeast/100000009610600/israel-strike-gaza-city-shelter.html
-
-**Team USA sets world record in medley relay to close out swimming with most golds**\
-`Regan Smith, Lilly King, Gretchen Walsh and Torri Huske finished in 3:49.63 and beat the rest of the field by more than three seconds.`\
-https://nytimes.com/athletic/5680015/2024/08/04/usa-medley-relay-gold-swimming-paris-olympics/
 
