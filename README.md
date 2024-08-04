@@ -1,3 +1,7 @@
+**Penn State media day: Sorting through wide receivers and other takeaways**\
+`While no team captains have been named, head coach James Franklin said he's seeing this group of players become more vocal.`\
+https://nytimes.com/athletic/5679012/2024/08/03/penn-state-media-day-takeaways/
+
 **Real Madrid-Barcelona delayed due to severe weather**\
 `MetLife Stadium staff advised fans to exit their seats and seek covered shelter.`\
 https://nytimes.com/athletic/5678977/2024/08/03/metlife-evacuation-real-madrid-barcelona/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/03/us/politics/harris-israel-arab-american-voters.ht
 **Unrest Erupts Across Britain in Wake of Deadly Knife Attack**\
 `Far-right activists scuffled with the police and counterprotesters across England after a stabbing at a dance class in Southport on Monday.`\
 https://nytimes.com/video/world/europe/100000009609850/uk-riots-southport-stabbing.html
-
-**LeBron's (and Sam's) Olympics men's basketball knockout-round power rankings**\
-`With the cream of the crop — USA, Canada, Germany — moving on, the games should be more exciting in the single-elimination stage.`\
-https://nytimes.com/athletic/5678735/2024/08/03/lebron-james-olympics-team-usa/
 
