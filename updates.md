@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Debby**\
+`See the likely path and wind arrival times for Debby.`\
+https://nytimes.com/interactive/2024/08/03/weather/debby-map-path-tracker.html
+
 **At number retirement ceremony, Jim Leyland's human touch was on display**\
 `Leyland displayed the same human touch that made him a beloved figure in Detroit.`\
 https://nytimes.com/athletic/5678950/2024/08/03/jim-leylands-human-touch-was-on-display-once-more/
