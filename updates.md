@@ -1,3 +1,11 @@
+**Katie Ledecky, her Olympic legacy secure, seems to have so much left in the tank**\
+`On Saturday, Katie Ledecky didn't commit to coming back for L.A. But it's hard to imagine her not wanting to get back in the pool.`\
+https://nytimes.com/athletic/5679410/2024/08/04/katie-ledecky-olympics-swimming-800-free-gold/
+
+**At Least 4 Dead and Dozens Missing After Landslide and Flood in China**\
+`Hundreds of people were forced to leave their homes in a mountainous part of Sichuan Province. An expressway bridge collapsed amid heavy rains.`\
+https://nytimes.com/2024/08/04/world/asia/landslide-flood-china.html
+
 **Hamas May Emerge Battered, but Not Beaten, From Israel’s Latest Blows**\
 `The assassinations of two Hamas leaders may be a short-term setback, analysts say, not enough to prevent the group from re-emerging intact — and possibly more radicalized.`\
 https://nytimes.com/2024/08/04/world/middleeast/hamas-israel-gaza-future.html
