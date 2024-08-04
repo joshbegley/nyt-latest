@@ -1,3 +1,7 @@
+**'This is my season - I just can’t wait to prove it,' says Mateo Joseph**\
+`Age 20, Mateo Joseph is confident he can be Leeds' main striker this season`\
+https://nytimes.com/athletic/5676166/2024/08/04/mateo-joseph-this-is-my-season/
+
 **Dodgers encouraged by Jack Flaherty's debut and get good news about their future**\
 `Flaherty delivered just the second quality start L.A. pitchers have logged in the last 38 days. Some injured Dodgers could return soon.`\
 https://nytimes.com/athletic/5679277/2024/08/04/dodgers-jack-flaherty/
