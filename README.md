@@ -1,3 +1,7 @@
+**Chicago White Sox reach new level of futility, extend losing streak to 20 games**\
+`With their latest loss, the White Sox fell to 60 games under .500 for the first time in franchise history.`\
+https://nytimes.com/athletic/5679688/2024/08/04/chicago-white-sox-20-game-losing-streak/
+
 **After a photo finish, Noah Lyles waits, and waits, and then claims the title of world’s fastest man.**\
 `By Talya Minsberg, Ben Shpigel, Gabriela Bhaskar and Daniel Berehulak`\
 https://nytimes.com/live/2024/07/27/world/olympics-paris-photos/noah-lyles-100-meters
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/04/us/jackie-robinson-statue-theft-sentenced.html
 **Can Léon Marchand reach Michael Phelps levels? These Olympics 'only the beginning'**\
 `Michael Phelps' 23 gold medals may be untouchable. But Léon Marchand, at 22, has the whole world paying attention to him.`\
 https://nytimes.com/athletic/5680200/2024/08/04/leon-marchand-michael-phelps-olympics-swimming/
-
-**Novak Djokovic knew he would win Olympic gold - he just didn't know when**\
-`The Serbian had to play one of the matches of his career to win the one thing he craved above all else`\
-https://nytimes.com/athletic/5680103/2024/08/04/novak-djokovic-olympic-gold-tennis/
 
