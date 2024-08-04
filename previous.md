@@ -14,8 +14,8 @@ https://nytimes.com/athletic/5678782/2024/08/04/liverpool-man-utd-result-analysi
 `The latest setback in Seattle demonstrated how impossible it feels for Philadelphia to win a game.`\
 https://nytimes.com/athletic/5679346/2024/08/04/phillies-lose-to-mariners/
 
-**One dead, three injured in stabbing attack near Tel Aviv.**\
-`Officials called the Sunday morning attack “complex and difficult,” with the victims in separate but nearby locations. A 70-year-old woman was killed.`\
+**Two dead, two injured in stabbing attack near Tel Aviv.**\
+`Officials called the Sunday morning attack “complex and difficult,” with the victims in separate but nearby locations. A 70-year-old woman and a man were killed.`\
 https://nytimes.com/live/2024/08/04/world/israel-hamas-hezbollah-iran-gaza/one-dead-three-injured-in-stabbing-attack-near-tel-aviv
 
 **Taking Note of History in the Making**\

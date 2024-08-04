@@ -1,3 +1,7 @@
+**Two dead, two injured in stabbing attack near Tel Aviv.**\
+`Officials called the Sunday morning attack “complex and difficult,” with the victims in separate but nearby locations. A 70-year-old woman and a man were killed.`\
+https://nytimes.com/live/2024/08/04/world/israel-hamas-hezbollah-iran-gaza/one-dead-three-injured-in-stabbing-attack-near-tel-aviv
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/08/04/crosswords/spelling-bee-forum.html
