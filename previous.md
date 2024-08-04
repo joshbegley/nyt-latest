@@ -1,3 +1,7 @@
+**Bobby Finke and the race that extended American Olympic swimming history**\
+`In one epic, world-record race Sunday night in Paris, Bobby Finke helped extend two benchmark streaks in American Olympic swimming history.`\
+https://nytimes.com/athletic/5680313/2024/08/04/bobby-finke-olympic-swimming-american-history/
+
 **Belgium withdraws from Olympic mixed relay triathlon after athlete falls ill**\
 `The mixed relay triathlon is scheduled for Monday at 2 a.m. ET (8 a.m. in Paris).`\
 https://nytimes.com/athletic/5680302/2024/08/04/belgium-claire-michel-triathlon-seine-river/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5680103/2024/08/04/novak-djokovic-olympic-gold-tenn
 **Noah Lyles wins men's 100m Olympic gold**\
 `Noah Lyles’ mouth wrote the check. His feet just cashed it.`\
 https://nytimes.com/athletic/5680003/2024/08/04/noah-lyles-100m-gold-olympics-photo-finish/
-
-**Biden’s Proposed Supreme Court Reforms**\
-`The effort is “100 percent politically motivated,” a reader writes; others support the proposals. Also: Solitary confinement; table tennis; interest rates.`\
-https://nytimes.com/2024/08/04/opinion/biden-supreme-court-reforms.html
 

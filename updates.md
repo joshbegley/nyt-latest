@@ -1,3 +1,7 @@
+**Bobby Finke and the race that extended American Olympic swimming history**\
+`In one epic, world-record race Sunday night in Paris, Bobby Finke helped extend two benchmark streaks in American Olympic swimming history.`\
+https://nytimes.com/athletic/5680313/2024/08/04/bobby-finke-olympic-swimming-american-history/
+
 **Belgium withdraws from Olympic mixed relay triathlon after athlete falls ill**\
 `The mixed relay triathlon is scheduled for Monday at 2 a.m. ET (8 a.m. in Paris).`\
 https://nytimes.com/athletic/5680302/2024/08/04/belgium-claire-michel-triathlon-seine-river/
