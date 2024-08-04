@@ -1,3 +1,7 @@
+**49ers training camp: Brock Purdy has graduated to the next level of preparation**\
+`The quarterback has been able to challenge himself in new ways this training camp as he prepares for the 2024 season.`\
+https://nytimes.com/athletic/5680228/2024/08/04/brock-purdy-49ers-training-camp/
+
 **5-Year-Old Killed After Bounce House Goes Airborne in Maryland**\
 `Children were inside the play structure at a baseball game when it was carried 15 to 20 feet in the air the by the wind. One child died and another was injured.`\
 https://nytimes.com/2024/08/04/us/boy-killed-bounce-house.html
