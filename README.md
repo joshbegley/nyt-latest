@@ -1,3 +1,7 @@
+**After a photo finish, Noah Lyles waits, and waits, and then claims the title of world’s fastest man.**\
+`By Ben Shpigel, Daniel Berehulak and Gabriela Bhaskar`\
+https://nytimes.com/live/2024/07/27/world/olympics-paris-photos/noah-lyles-100-meters
+
 **Bobby Finke and the race that extended American Olympic swimming history**\
 `In one epic, world-record race Sunday night in Paris, Bobby Finke helped extend two benchmark streaks in American Olympic swimming history.`\
 https://nytimes.com/athletic/5680313/2024/08/04/bobby-finke-olympic-swimming-american-history/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5680200/2024/08/04/leon-marchand-michael-phelps-oly
 **Novak Djokovic knew he would win Olympic gold - he just didn't know when**\
 `The Serbian had to play one of the matches of his career to win the one thing he craved above all else`\
 https://nytimes.com/athletic/5680103/2024/08/04/novak-djokovic-olympic-gold-tennis/
-
-**Noah Lyles wins men's 100m Olympic gold**\
-`Noah Lyles’ mouth wrote the check. His feet just cashed it.`\
-https://nytimes.com/athletic/5680003/2024/08/04/noah-lyles-100m-gold-olympics-photo-finish/
 
