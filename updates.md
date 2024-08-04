@@ -1,3 +1,15 @@
+**The cross-border hostilities came amid fears of a broader war**\
+`TK TK`\
+https://nytimes.com/live/2024/08/04/world/israel-hamas-hezbollah-iran-gaza/the-cross-border-hostilities-came-amid-fears-of-a-broader-war
+
+**Hezbollah says the Israeli airstrikes caused civilian casualties.**\
+`By Vivek Shankar`\
+https://nytimes.com/live/2024/08/04/world/israel-hamas-hezbollah-iran-gaza/hezbollah-says-the-israeli-airstrikes-caused-civilian-casualties
+
+**Wrexham's final dress rehearsal all goes to plan before long-awaited return to League One**\
+`Twelve years ago Fleetwood broke Wrexham hearts. On Saturday, they got a small slice of revenge in their final friendly before new season`\
+https://nytimes.com/athletic/5678036/2024/08/04/wrexham-fleetwood-league-one/
+
 **Braves' clubhouse has remained strong as Atlanta's resurgence makes NL East a race**\
 `Charlie Morton has been around for a while and believes the Braves' clubhouse chemistry isn't just for show. `\
 https://nytimes.com/athletic/5679168/2024/08/03/braves-resurgence-has-made-nl-east-a-race/

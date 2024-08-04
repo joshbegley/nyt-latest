@@ -1,3 +1,15 @@
+**The cross-border hostilities came amid fears of a broader war**\
+`TK TK`\
+https://nytimes.com/live/2024/08/04/world/israel-hamas-hezbollah-iran-gaza/the-cross-border-hostilities-came-amid-fears-of-a-broader-war
+
+**Hezbollah says the Israeli airstrikes caused civilian casualties.**\
+`By Vivek Shankar`\
+https://nytimes.com/live/2024/08/04/world/israel-hamas-hezbollah-iran-gaza/hezbollah-says-the-israeli-airstrikes-caused-civilian-casualties
+
+**Wrexham's final dress rehearsal all goes to plan before long-awaited return to League One**\
+`Twelve years ago Fleetwood broke Wrexham hearts. On Saturday, they got a small slice of revenge in their final friendly before new season`\
+https://nytimes.com/athletic/5678036/2024/08/04/wrexham-fleetwood-league-one/
+
 **Calafiori's Arsenal signing awakens a long-dormant Italian connection**\
 `Calafiori's arrival feels momentous for those of an Italo-Arsenal persuasion`\
 https://nytimes.com/athletic/5674460/2024/08/04/riccardo-calafiori-italy-arsenal-transfer/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/04/business/work-friend-boss-loyalty.html
 **Questions and answers: The Olympic women’s boxing gender controversy**\
 `Forty-six seconds was all the world needed to sidetrack the 2024 Olympics into a heated controversy about the gender of two boxers.`\
 https://nytimes.com/athletic/5678780/2024/08/04/olympic-boxing-gender-controversy/
-
-**With Smugglers and Front Companies, China Is Skirting American A.I. Bans**\
-`The U.S. is trying to stop China from getting Nvidia microchips to advance its military. The private sector is fighting back.`\
-https://nytimes.com/2024/08/04/technology/china-ai-microchips.html
-
-**Harris to Interview V.P. Contenders in Final Test of Chemistry**\
-`At least three candidates — Senator Mark Kelly of Arizona, Gov. Tim Walz of Minnesota and Gov. Josh Shapiro of Pennsylvania — are scheduled to meet with Vice President Kamala Harris on Sunday.`\
-https://nytimes.com/2024/08/03/us/politics/harris-running-mate-kelly-walz-shapiro.html
-
-**Braves' clubhouse has remained strong as Atlanta's resurgence makes NL East a race**\
-`Charlie Morton has been around for a while and believes the Braves' clubhouse chemistry isn't just for show. `\
-https://nytimes.com/athletic/5679168/2024/08/03/braves-resurgence-has-made-nl-east-a-race/
 
