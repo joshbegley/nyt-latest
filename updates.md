@@ -1,3 +1,15 @@
+**Israel’s prime minister said it was already ‘in a multi-front war against Iran’s evil axis.’**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/08/04/world/israel-hamas-hezbollah-iran-gaza/israels-prime-minister-said-it-was-already-in-a-multi-front-war-against-irans-evil-axis
+
+**Golf Cart Politics: Florida Retirees Flaunt Loyalties to Trump and Harris**\
+`In The Villages, Florida’s retirement mecca, pro-Trump residents have been galvanized by a surprising showing of support for Kamala Harris.`\
+https://nytimes.com/2024/08/04/us/florida-villages-trump-harris.html
+
+**Bangladesh Back Under Curfew After Protests Leave Dozens Dead**\
+`Expanded student protests this weekend, after more than 200 people were killed in a government crackdown in July, have plunged the country into a particularly dangerous phase.`\
+https://nytimes.com/2024/08/04/world/asia/bangladesh-protests-curfew.html
+
 **What we learned during the first week of USC training camp**\
 `The offensive line will be under the microscope. The spring portal window came and went without USC adding any transfers along the line.`\
 https://nytimes.com/athletic/5679109/2024/08/04/usc-football-training-camp-takeaways-week-1/

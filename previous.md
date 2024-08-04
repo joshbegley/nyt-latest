@@ -1,3 +1,11 @@
+**Israel’s prime minister said it was already ‘in a multi-front war against Iran’s evil axis.’**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/08/04/world/israel-hamas-hezbollah-iran-gaza/israels-prime-minister-said-it-was-already-in-a-multi-front-war-against-irans-evil-axis
+
+**Golf Cart Politics: Florida Retirees Flaunt Loyalties to Trump and Harris**\
+`In The Villages, Florida’s retirement mecca, pro-Trump residents have been galvanized by a surprising showing of support for Kamala Harris.`\
+https://nytimes.com/2024/08/04/us/florida-villages-trump-harris.html
+
 **What we learned during the first week of USC training camp**\
 `The offensive line will be under the microscope. The spring portal window came and went without USC adding any transfers along the line.`\
 https://nytimes.com/athletic/5679109/2024/08/04/usc-football-training-camp-takeaways-week-1/
@@ -14,7 +22,7 @@ https://nytimes.com/2024/08/04/world/europe/uk-protests-southport-stabbing.html
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/5679291/2024/08/04/uswnt-olympics-boxing-gender-the-pulse/
 
-**Bangladesh Back Under Curfew After Protests Leave Over a Dozen Dead**\
+**Bangladesh Back Under Curfew After Protests Leave Dozens Dead**\
 `Expanded student protests this weekend, after more than 200 people were killed in a government crackdown in July, have plunged the country into a particularly dangerous phase.`\
 https://nytimes.com/2024/08/04/world/asia/bangladesh-protests-curfew.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5678723/2024/08/04/gardner-minshew-raiders-camp/
 **A Doping Scandal**\
 `How the Olympic drug testing system is supposed to function — and why it may not be working.`\
 https://nytimes.com/2024/08/04/briefing/olympics-swimming-doping.html
-
-**Team USA looks ahead to familiar faces in Olympics bracket**\
-`PARIS – The focus for Team USA may be on Brazil, a team they haven’t seen this summer, but awaiting the American stars in an Olympic semifinal will be a very familiar face.`\
-https://nytimes.com/athletic/5679493/2024/08/04/team-usa-olympics-bracket/
-
-**What is repechage? Explaining Olympic track's new rule that a U.S. hurdler is embracing**\
-`It&#8217;s not often that a new wrinkle is introduced into Olympic sports, especially one that can become a complete game-changer for athletes.`\
-https://nytimes.com/athletic/5679470/2024/08/04/what-is-repechage-track-and-field-freddie-crittenden/
 
