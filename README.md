@@ -1,3 +1,7 @@
+**What is repechage? Explaining Olympic track's new rule that a U.S. hurdler is embracing**\
+`It&#8217;s not often that a new wrinkle is introduced into Olympic sports, especially one that can become a complete game-changer for athletes.`\
+https://nytimes.com/athletic/5679470/2024/08/04/what-is-repechage-track-and-field-freddie-crittenden/
+
 **Packers set to get key player back and more from Lambeau Field practice**\
 `More than 60,000 fans turned out to see Saturday practice on Green Bay's Family Night.`\
 https://nytimes.com/athletic/5679209/2024/08/04/packers-lambeau-field-practice-zach-tom/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/04/crosswords/wordle-review-1143.html
 **After My Brother’s Overdose Death, Misinformed People Added to Our Grief**\
 `You cannot overdose on fentanyl by touching a person who overdosed.`\
 https://nytimes.com/2024/08/04/opinion/fentanyl-secondhand-exposure-myth.html
-
-**This Is How the World’s Favorite Scent Disappears**\
-`Vanilla substitutes exist, but there is no replacing the symphonic complexities of the real thing.`\
-https://nytimes.com/2024/08/04/opinion/vanilla-cooking-climate-change.html
 
