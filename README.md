@@ -1,3 +1,7 @@
+**How Julien Alfred Beat Sha’Carri Richardson for Gold**\
+`The gold medalist, Julien Alfred of St. Lucia, averaged 23 miles per hour to finish the race in 10.72 seconds, 0.15 seconds ahead of Sha’Carri Richardson of the United States.`\
+https://nytimes.com/interactive/2024/08/03/sports/olympics/womens-100-julien-alfred-shacarri-richardson.html
+
 **White Sox just one loss away from 20th straight defeat: by the numbers**\
 `With Saturday’s 6-2 loss to the Twins, the White Sox now have the longest losing streak in baseball since 2021, when the Orioles also dropped 19 straight.`\
 https://nytimes.com/athletic/5679125/2024/08/03/white-sox-19th-straight-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5678821/2024/08/03/49ers-training-camp-dominick-pun
 **Doug Emhoff, Husband of Kamala Harris, Acknowledges Long-Ago Affair**\
 `The relationship with a teacher at his children’s elementary school occurred when he was married to his first wife, years before he met Ms. Harris.`\
 https://nytimes.com/2024/08/03/us/politics/doug-emhoff-affair.html
-
-**Can Harris Win Back Arab American Voters? The Door May Be Cracked Open.**\
-`Vice President Kamala Harris has not strayed from President Biden on Israel policy, but she has taken a stronger tone on the suffering of Palestinians.`\
-https://nytimes.com/2024/08/03/us/politics/harris-israel-arab-american-voters.html
 
