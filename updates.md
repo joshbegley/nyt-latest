@@ -1,3 +1,7 @@
+**Israeli Strike on Gaza Shelter Kills at Least 25 and Injures Dozens**\
+`An Israeli airstrike in Gaza City killed at least 25 people, according to a Palestinian emergency agency and local media outlets. Israel said it targeted Hamas “command and control centers.”`\
+https://nytimes.com/2024/08/04/world/middleeast/israel-gaza-strike-shelter.html
+
 **What makes Leon Marchand a superstar? He's smaller, lighter and unbelievable underwater**\
 `France’s golden boy has changed the face of swimming. There’s more than one way to win an Olympic gold. Or four...`\
 https://nytimes.com/athletic/5679645/2024/08/04/leon-marchand-olympic-golds-technique-analysis/
