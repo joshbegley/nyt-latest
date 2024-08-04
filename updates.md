@@ -1,3 +1,7 @@
+**Kaylia Nemour of Algeria could win Africa’s first Olympic medal in women’s gymnastics.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/08/04/world/olympics-gymnastics-bars/kaylia-nemour-of-algeria-could-win-africas-first-olympic-medal-in-womens-gymnastics
+
 **Monitoreo de la tormenta tropical Debby, en vivo**\
 `Consulta la trayectoria probable y las horas de llegada de los vientos de Debby.`\
 https://nytimes.com/interactive/2024/08/04/weather/debby-mapa-trayectoria.html
