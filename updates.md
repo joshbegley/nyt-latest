@@ -1,3 +1,15 @@
+**Game, Set, Match: Novak Djokovic beats Carlos Alcaraz for Olympic gold in Paris**\
+`An epic Olympic men's singles final befitted the intensity of the two competitors, as the Serbian finally claimed all that eluded him`\
+https://nytimes.com/athletic/5679444/2024/08/04/novak-djokovic-gold-olympics-tennis-carlos-alcaraz/
+
+**Behind the Biggest Prisoner Swap Since the Cold War**\
+`The recent prisoner exchange between Russia and the U.S. — the biggest and most complex since the Cold War — was a diplomatic chess game that required patience and creativity. Mark Mazzetti, an investigative reporter for The New York Times, explains.`\
+https://nytimes.com/video/world/100000009608295/behind-the-biggest-prisoner-swap-since-the-cold-war.html
+
+**Ukraine Has Received F-16 Fighter Jets, Zelensky Says**\
+`President Volodymyr Zelensky did not say whether the jets had already flown combat missions. A shortage of trained pilots and a limited number of jets will constrain their immediate impact.`\
+https://nytimes.com/2024/08/04/world/europe/ukraine-f-16-fighter-jets.html
+
 **KBBQ to make ASAP**\
 `Eric Kim’s new recipe for Korean BBQ steak relies on a “pitch-perfect” marinade, “salty, sweet and savory in just the right ways.”`\
 https://nytimes.com/2024/08/04/dining/kbbq-to-make-asap.html
