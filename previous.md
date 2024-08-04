@@ -1,3 +1,7 @@
+**In a Corner of Florida, a Gathering Storm Stirs Familiar Feelings**\
+`Many on the state’s northwestern coast felt they knew what to expect from Debby, which is forecast to make landfall as a hurricane, after a much stronger storm hit the area last year.`\
+https://nytimes.com/2024/08/04/us/florida-preparation-debby-idalia.html
+
 **5-Year-Old Killed After Bounce House Goes Airborne in Maryland**\
 `Children were inside the play structure at a baseball game when it was carried 15 to 20 feet in air the by the wind. One child died and another was injured.`\
 https://nytimes.com/2024/08/04/us/boy-killed-bounce-house.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/07/27/world/olympics-paris-photos/noah-lyles-100-m
 **Bobby Finke and the race that extended American Olympic swimming history**\
 `In one epic, world-record race Sunday night in Paris, Bobby Finke helped extend two benchmark streaks in American Olympic swimming history.`\
 https://nytimes.com/athletic/5680313/2024/08/04/bobby-finke-olympic-swimming-american-history/
-
-**Belgium withdraws from Olympic mixed relay triathlon after athlete falls ill**\
-`The mixed relay triathlon is scheduled for Monday at 2 a.m. ET (8 a.m. in Paris).`\
-https://nytimes.com/athletic/5680302/2024/08/04/belgium-claire-michel-triathlon-seine-river/
 
