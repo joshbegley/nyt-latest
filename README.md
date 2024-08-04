@@ -1,3 +1,15 @@
+**Astros pitcher Lance McCullers Jr. not expected to return this season**\
+`Other than to accentuate the team's lack of rotation depth, McCullers' absence does not dramatically impact the 2024 Astros.`\
+https://nytimes.com/athletic/5679863/2024/08/04/astros-lance-mccullers-jr-to-miss-2024/
+
+**Kansas Man Who Stole Jackie Robinson Statue Is Sentenced to 15 Years**\
+`Ricky Alderete confessed to the theft and apologized to the founder of the organization that erected the statue, League 42, in July.`\
+https://nytimes.com/2024/08/04/us/jackie-robinson-statue-theft-sentenced.html
+
+**Can Léon Marchand reach Michael Phelps levels? These Olympics 'only the beginning'**\
+`Michael Phelps' 23 gold medals may be untouchable. But Léon Marchand, at 22, has the whole world paying attention to him.`\
+https://nytimes.com/athletic/5680200/2024/08/04/leon-marchand-michael-phelps-olympics-swimming/
+
 **Novak Djokovic knew he would win Olympic gold - he just didn't know when**\
 `The Serbian had to play one of the matches of his career to win the one thing he craved above all else`\
 https://nytimes.com/athletic/5680103/2024/08/04/novak-djokovic-olympic-gold-tennis/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5680015/2024/08/04/usa-medley-relay-gold-swimming-p
 **What’s Rattling Trump: The Size of Harris’s Crowds**\
 `The numbers game is everything to Donald J. Trump. Vice President Kamala Harris’s first big rally appears to have gotten under his skin.`\
 https://nytimes.com/2024/08/04/us/politics/whats-rattling-trump-the-size-of-harriss-crowds.html
-
-**A weekend ride through Paris. Prizes for the first three finishers.**\
-`The Olympic road cycling events, open for all to watch, end in a sprint to the finish.`\
-https://nytimes.com/2024/08/04/world/olympics/road-cycling.html
-
-**Watford accept £25m offer from Rennes for Asprilla**\
-`Watford have accepted an offer from Rennes for midfielder Yaser Asprilla.`\
-https://nytimes.com/athletic/5660354/2024/08/04/yaser-asprilla-transfer-watford-rennes/
-
-**Team USA WBB earns 58th consecutive Olympic win**\
-`Team USA is guaranteed to be a top-two seed and will begin the knockout rounds Wednesday.`\
-https://nytimes.com/athletic/5679884/2024/08/04/team-usa-vs-germany-olympic-womens-basketball/
 
