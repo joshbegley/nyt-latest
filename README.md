@@ -1,3 +1,7 @@
+**Biden’s Proposed Supreme Court Reforms**\
+`The effort is “100 percent politically motivated,” a reader writes; others support the proposals. Also: Solitary confinement; table tennis; interest rates.`\
+https://nytimes.com/2024/08/04/opinion/biden-supreme-court-reforms.html
+
 **Scores of People Are Killed in Renewed Bangladesh Protests**\
 `After student protests in July were met with a deadly government crackdown, a revival on Sunday plunged Bangladesh further into violence, leaving at least 70 people dead.`\
 https://nytimes.com/video/world/asia/100000009610545/bangladesh-protests-government.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5678293/2024/08/04/oilers-nhl-ahl-2024-25/
 **Sara Errani, Jasmine Paolini win women's doubles gold medal for Italy**\
 `Italy&#8217;s Sara Errani completed a career Golden Slam by winning Olympic gold in the women&#8217;s doubles tennis event with Jasmine Paolini.`\
 https://nytimes.com/athletic/5679944/2024/08/04/errani-paolini-gold-medal-womens-doubles/
-
-**Bobby Finke sets world record, wins gold in 1500-meter freestyle**\
-`Finke's time of 14:30.67 set a new world record in the men's 1500 free.`\
-https://nytimes.com/athletic/5679806/2024/08/04/bobby-finke-1500-meter-freestyle-world-record-olympics-paris/
 
