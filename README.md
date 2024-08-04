@@ -1,3 +1,7 @@
+**Novak Djokovic knew he would win Olympic gold - he just didn't know when**\
+`The Serbian had to play one of the matches of his career to win the one thing he craved above all else`\
+https://nytimes.com/athletic/5680103/2024/08/04/novak-djokovic-olympic-gold-tennis/
+
 **Noah Lyles wins men's 100m Olympic gold**\
 `Noah Lyles’ mouth wrote the check. His feet just cashed it.`\
 https://nytimes.com/athletic/5680003/2024/08/04/noah-lyles-100m-gold-olympics-photo-finish/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5660354/2024/08/04/yaser-asprilla-transfer-watford-
 **Team USA WBB earns 58th consecutive Olympic win**\
 `Team USA is guaranteed to be a top-two seed and will begin the knockout rounds Wednesday.`\
 https://nytimes.com/athletic/5679884/2024/08/04/team-usa-vs-germany-olympic-womens-basketball/
-
-**Lowetide: Why Oilers' farm team will fill a vital role in 2024-25**\
-`With several players on entry deals who are developing well and could see the NHL, it should be an exciting year for the Oilers and Condors.`\
-https://nytimes.com/athletic/5678293/2024/08/04/oilers-nhl-ahl-2024-25/
 
