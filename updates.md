@@ -1,3 +1,7 @@
+**Sara Errani, Jasmine Paolini win women's doubles gold medal for Italy**\
+`Italy&#8217;s Sara Errani completed a career Golden Slam by winning Olympic gold in the women&#8217;s doubles tennis event with Jasmine Paolini.`\
+https://nytimes.com/athletic/5679944/2024/08/04/errani-paolini-gold-medal-womens-doubles/
+
 **Team USA WBB earns 58th consecutive Olympic win**\
 `Team USA is guaranteed to be a top-two seed and will begin the knockout rounds Wednesday.`\
 https://nytimes.com/athletic/5679884/2024/08/04/team-usa-vs-germany-olympic-womens-basketball/

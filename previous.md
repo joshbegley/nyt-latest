@@ -6,8 +6,8 @@ https://nytimes.com/athletic/5679884/2024/08/04/team-usa-vs-germany-olympic-wome
 `With several players on entry deals who are developing well and could see the NHL, it should be an exciting year for the Oilers and Condors.`\
 https://nytimes.com/athletic/5678293/2024/08/04/oilers-nhl-ahl-2024-25/
 
-**Sara Errani and Jasmine Paolini win women's doubles gold medal for Italy**\
-`Italy&#8217;s Sara Errani completed a career Golden Slam by winning Olympic gold in the women&#8217;s doubles with Jasmine Paolini.`\
+**Sara Errani, Jasmine Paolini win women's doubles gold medal for Italy**\
+`Italy&#8217;s Sara Errani completed a career Golden Slam by winning Olympic gold in the women&#8217;s doubles tennis event with Jasmine Paolini.`\
 https://nytimes.com/athletic/5679944/2024/08/04/errani-paolini-gold-medal-womens-doubles/
 
 **Bobby Finke sets world record, wins gold in 1500-meter freestyle**\
