@@ -1,3 +1,11 @@
+**Inside the Obama-Shapiro Relationship**\
+`The speaking style of Gov. Josh Shapiro of Pennsylvania, a potential vice presidential pick, can sound suspiciously similar to President Obama’s. But the real connection between the two men is deeper than commonly known.`\
+https://nytimes.com/2024/08/04/us/politics/inside-the-obama-shapiro-relationship.html
+
+**Review: Death Drives a New ‘Tristan’ at Wagner’s Festival**\
+`Thorleifur Orn Arnarsson’s production of “Tristan und Isolde” at the Bayreuth Festival in Germany is an excellently conducted puzzle of grim symbols.`\
+https://nytimes.com/2024/08/04/arts/music/tristan-und-isolde-bayreuth-review.html
+
 **Scottie Scheffler wins Olympic gold medal, Tommy Fleetwood takes silver**\
 `Scheffler made four-straight birdies on the back nine to tie the course record at Le Golf National and add to his 2024 record.`\
 https://nytimes.com/athletic/5679733/2024/08/04/olympic-golf-scheffler-fleetwood-gold/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/100000009608295/behind-the-biggest-prisoner-swap
 **Ukraine Has Received F-16 Fighter Jets, Zelensky Says**\
 `President Volodymyr Zelensky did not say whether the jets had already flown combat missions. A shortage of trained pilots and a limited number of jets will constrain their immediate impact.`\
 https://nytimes.com/2024/08/04/world/europe/ukraine-f-16-fighter-jets.html
-
-**KBBQ to make ASAP**\
-`Eric Kim’s new recipe for Korean BBQ steak relies on a “pitch-perfect” marinade, “salty, sweet and savory in just the right ways.”`\
-https://nytimes.com/2024/08/04/dining/kbbq-to-make-asap.html
-
-**Tropical Storm Debby Could Bring ‘Historic’ Rainfall to Southeast**\
-`Forecasters are warning of serious flooding in parts of Florida, Georgia and South Carolina this week as the storm moves along the coast.`\
-https://nytimes.com/2024/08/04/weather/tropical-storm-debby-rain.html
 
