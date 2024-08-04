@@ -34,7 +34,7 @@ https://nytimes.com/2024/08/04/technology/china-ai-microchips.html
 `At least three candidates — Senator Mark Kelly of Arizona, Gov. Tim Walz of Minnesota and Gov. Josh Shapiro of Pennsylvania — are scheduled to meet with Vice President Kamala Harris on Sunday.`\
 https://nytimes.com/2024/08/03/us/politics/harris-running-mate-kelly-walz-shapiro.html
 
-**Braves' clubhouse has remained strong as Atlanta's resurgence has made NL East a race**\
+**Braves' clubhouse has remained strong as Atlanta's resurgence makes NL East a race**\
 `Charlie Morton has been around for a while and believes the Braves' clubhouse chemistry isn't just for show. `\
 https://nytimes.com/athletic/5679168/2024/08/03/braves-resurgence-has-made-nl-east-a-race/
 
