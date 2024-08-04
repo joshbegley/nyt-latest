@@ -1,3 +1,11 @@
+**Scottie Scheffler wins Olympic gold medal, Tommy Fleetwood takes silver**\
+`Scheffler made four-straight birdies on the back nine to tie the course record at Le Golf National and add to his 2024 record.`\
+https://nytimes.com/athletic/5679733/2024/08/04/olympic-golf-scheffler-fleetwood-gold/
+
+**In His Stand-Up Special, Joe Rogan Plays Dumb**\
+`On his podcast, Rogan indulges his own obsessions and eccentricities. But in “Burn the Boats,” his Netflix comedy special, contempt for the crowd is a theme.`\
+https://nytimes.com/2024/08/04/arts/television/joe-rogan-standup-netflix.html
+
 **Boxer Ngamba secures first medal for refugee team with quarterfinal win**\
 `The Cameroonian-born boxer competes under the refugee flag because she is gay and cannot return home since homosexuality is outlawed.`\
 https://nytimes.com/athletic/5679686/2024/08/04/cindy-ngamba-refugee-boxing-olympics-medal/
