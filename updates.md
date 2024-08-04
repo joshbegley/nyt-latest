@@ -1,3 +1,7 @@
+**Hamas May Emerge Battered, but Not Beaten, From Israel’s Latest Blows**\
+`The assassinations of two Hamas leaders may be a short-term setback, analysts say, not enough to prevent the group from re-emerging intact — and possibly more radicalized.`\
+https://nytimes.com/2024/08/04/world/middleeast/hamas-israel-gaza-future.html
+
 **Two dead, two injured in stabbing attack near Tel Aviv.**\
 `Officials called the Sunday morning attack “complex and difficult,” with the victims in separate but nearby locations. The suspected attacker also died.`\
 https://nytimes.com/live/2024/08/04/world/israel-hamas-hezbollah-iran-gaza/one-dead-three-injured-in-stabbing-attack-near-tel-aviv
