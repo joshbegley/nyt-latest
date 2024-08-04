@@ -1,3 +1,11 @@
+**Jimmy Carter Said to Have Plans to Vote for Kamala Harris**\
+`The former president, who will turn 100 on Oct. 1, seems to have found some new motivation in the 2024 election.`\
+https://nytimes.com/2024/08/04/us/politics/jimmy-carter-vote-for-kamala.html
+
+**China snaps U.S. men's streak in Olympic medley relay**\
+`Chinese swimmers have faced questions about a doping scandal from the Tokyo Games three years ago.`\
+https://nytimes.com/athletic/5680125/2024/08/04/china-gold-medal-medley-relay-olympic-swimming/
+
 **49ers training camp: Brock Purdy has graduated to the next level of preparation**\
 `The quarterback has been able to challenge himself in new ways this training camp as he prepares for the 2024 season.`\
 https://nytimes.com/athletic/5680228/2024/08/04/brock-purdy-49ers-training-camp/
