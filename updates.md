@@ -1,3 +1,7 @@
+**Sunisa Lee navigated stalkers, disease and doubt to return to the Olympics.**\
+`By Juliet Macur`\
+https://nytimes.com/live/2024/08/01/world/olympics-gymnastics-simone-biles/sunisa-lee-navigated-stalkers-disease-and-doubt-to-return-to-the-olympics
+
 **Israel’s prime minister said it was already ‘in a multi-front war against Iran’s evil axis.’**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/08/04/world/israel-hamas-hezbollah-iran-gaza/israels-prime-minister-said-it-was-already-in-a-multi-front-war-against-irans-evil-axis
