@@ -1,3 +1,7 @@
+**Biden’s Proposed Supreme Court Reforms**\
+`The effort is “100 percent politically motivated,” a reader writes; others support the proposals. Also: Solitary confinement; table tennis; interest rates.`\
+https://nytimes.com/2024/08/04/opinion/biden-supreme-court-reforms.html
+
 **Scores of People Are Killed in Renewed Bangladesh Protests**\
 `After student protests in July were met with a deadly government crackdown, a revival on Sunday plunged Bangladesh further into violence, leaving at least 70 people dead.`\
 https://nytimes.com/video/world/asia/100000009610545/bangladesh-protests-government.html
