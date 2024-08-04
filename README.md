@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Neil Vigdor, Jonathan Weisman and Reid J. Epstein`\
+https://nytimes.com/live/2024/08/04/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Gardner Minshew makes his move, and thoughts on the first week of Raiders camp**\
+`Minshew had a strong practice on Saturday and Aidan O'Connell struggled as Las Vegas' QB competition continues.`\
+https://nytimes.com/athletic/5678723/2024/08/04/gardner-minshew-raiders-camp/
+
 **A Doping Scandal**\
 `How the Olympic drug testing system is supposed to function — and why it may not be working.`\
 https://nytimes.com/2024/08/04/briefing/olympics-swimming-doping.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/04/opinion/kamala-harris-biracial.html
 **The Sunday Read: ‘Online Dating After 50 Can Be Miserable. But It’s Also Liberating.’**\
 `You know so much more about yourself and your desires when you’re older that dating apps — even with all their frustrations — can bring unanticipated pleasure.`\
 https://nytimes.com/2024/08/04/podcasts/the-daily/online-dating-after-50.html
-
-**‘I Just Have Some Questions’: An Interview With Justice Gorsuch**\
-`The justice talks about everything from his indictment of the regulatory state to the rights of Native Americans.`\
-https://nytimes.com/2024/08/04/opinion/neil-gorsuch-supreme-court.html
-
-**The Connections Companion No. 421**\
-`Scroll down for hints and conversation about the puzzle for Monday, Aug. 5, 2024.`\
-https://nytimes.com/2024/08/04/crosswords/connections-companion-421.html
 
