@@ -1,3 +1,11 @@
+**Scores of People Are Killed in Renewed Bangladesh Protests**\
+`After student protests in July were met with a deadly government crackdown, a revival on Sunday plunged Bangladesh further into violence, leaving at least 70 people dead.`\
+https://nytimes.com/video/world/asia/100000009610545/bangladesh-protests-government.html
+
+**Israeli Strike Kills Dozens at Gaza Shelter**\
+`An Israeli airstrike on a school functioning as a shelter in Gaza City killed at least 30 people, according to a Palestinian emergency agency and local media outlets.`\
+https://nytimes.com/video/world/middleeast/100000009610600/israel-strike-gaza-city-shelter.html
+
 **Team USA sets world record in medley relay to close out swimming with most golds**\
 `Regan Smith, Lilly King, Gretchen Walsh and Torri Huske finished in 3:49.63 and beat the rest of the field by more than three seconds.`\
 https://nytimes.com/athletic/5680015/2024/08/04/usa-medley-relay-gold-swimming-paris-olympics/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5679944/2024/08/04/errani-paolini-gold-medal-womens
 **Bobby Finke sets world record, wins gold in 1500-meter freestyle**\
 `Finke's time of 14:30.67 set a new world record in the men's 1500 free.`\
 https://nytimes.com/athletic/5679806/2024/08/04/bobby-finke-1500-meter-freestyle-world-record-olympics-paris/
-
-**How Two Russian ‘Illegals’ Went Deep Undercover With Their Children**\
-`A couple planted as sleeper spies in Slovenia posed as an Argentine art dealer and an entrepreneur. They were caught in December 2022 and sent to Moscow in a sweeping prisoner exchange last week.`\
-https://nytimes.com/2024/08/04/world/europe/russia-undercover-prisoner-swap.html
-
-**Israeli Strike on Gaza Shelter Kills at Least 30 and Injures Dozens**\
-`An Israeli airstrike in Gaza City killed at least 30 people, according to a Palestinian emergency agency and local media outlets. Israel said it targeted Hamas “command and control centers.”`\
-https://nytimes.com/2024/08/04/world/middleeast/israel-gaza-strike-shelter.html
 
