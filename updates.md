@@ -1,3 +1,7 @@
+**Dodgers star Freddie Freeman’s youngest son discharged from hospital**\
+`The Freemans believe the issue stemmed from a viral infection Maximus suffered during last month’s All-Star game.`\
+https://nytimes.com/athletic/5680459/2024/08/04/dodgers-freddie-freeman-son-discharge/
+
 **Shares the Same View**\
 `Andy Walker makes his New York Times debut.`\
 https://nytimes.com/2024/08/04/crosswords/daily-puzzle-2024-08-05.html
