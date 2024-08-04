@@ -1,3 +1,11 @@
+**Jimmy Carter Said to Have Plans to Vote for Kamala Harris**\
+`The former president, who will turn 100 on Oct. 1, seems to have found some new motivation in the 2024 election.`\
+https://nytimes.com/2024/08/04/us/politics/jimmy-carter-vote-for-kamala.html
+
+**China snaps U.S. men's streak in Olympic medley relay**\
+`Chinese swimmers have faced questions about a doping scandal from the Tokyo Games three years ago.`\
+https://nytimes.com/athletic/5680125/2024/08/04/china-gold-medal-medley-relay-olympic-swimming/
+
 **49ers training camp: Brock Purdy has graduated to the next level of preparation**\
 `The quarterback has been able to challenge himself in new ways this training camp as he prepares for the 2024 season.`\
 https://nytimes.com/athletic/5680228/2024/08/04/brock-purdy-49ers-training-camp/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/04/us/politics/sept-11-plea-agreement.html
 **Scottie Scheffler and the golden Olympic moment that can stand the test of time**\
 `Scheffler does not let himself be occupied by thoughts of legacy or star power. Instead he wins, rallying from 6 strokes down in Paris.`\
 https://nytimes.com/athletic/5680335/2024/08/04/scottie-scheffler-olympics-golf/
-
-**Chicago White Sox reach new level of futility, extend losing streak to 20 games**\
-`With their latest loss, the White Sox fell to 60 games under .500 for the first time in franchise history.`\
-https://nytimes.com/athletic/5679688/2024/08/04/chicago-white-sox-20-game-losing-streak/
-
-**After a photo finish, Noah Lyles waits, and waits, and then claims the title of world’s fastest man.**\
-`By Talya Minsberg, Ben Shpigel, Gabriela Bhaskar and Daniel Berehulak`\
-https://nytimes.com/live/2024/07/27/world/olympics-paris-photos/noah-lyles-100-meters
 
