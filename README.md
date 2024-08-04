@@ -1,3 +1,7 @@
+**Dodgers encouraged by Jack Flaherty's debut and get good news about their future**\
+`Flaherty delivered just the second quality start L.A. pitchers have logged in the last 38 days. Some injured Dodgers could return soon.`\
+https://nytimes.com/athletic/5679277/2024/08/04/dodgers-jack-flaherty/
+
 **Why a Black-and-White Feminist Film Was Bigger Than ‘Barbie’ in Italy**\
 `“There’s Still Tomorrow” tells a story of a feminism that everyone can agree on and enjoy.`\
 https://nytimes.com/2024/08/04/opinion/theres-still-tomorrow-paola-cortellesi.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5678036/2024/08/04/wrexham-fleetwood-league-one/
 **Calafiori's Arsenal signing awakens a long-dormant Italian connection**\
 `Calafiori's arrival feels momentous for those of an Italo-Arsenal persuasion`\
 https://nytimes.com/athletic/5674460/2024/08/04/riccardo-calafiori-italy-arsenal-transfer/
-
-**The Olympic Flame Melts Parisian Cool**\
-`There are people walking around the world’s fashion capital with fluffy cockerels on their heads. This is not normal.`\
-https://nytimes.com/2024/08/04/world/olympics/paris-vibe-tourists.html
 
