@@ -1,3 +1,7 @@
+**An effort to vaccinate Gazans against polio faces hurdles, including the heat.**\
+`By Vivian Yee`\
+https://nytimes.com/live/2024/08/04/world/israel-hamas-hezbollah-iran-gaza/an-effort-to-vaccinate-gazans-against-polio-faces-hurdles-including-the-heat
+
 **Game, Set, Match: Novak Djokovic beats Carlos Alcaraz for Olympic gold in Paris**\
 `An epic Olympic men's singles final befitted the intensity of the two competitors, as the Serbian finally claimed all that eluded him`\
 https://nytimes.com/athletic/5679444/2024/08/04/novak-djokovic-gold-olympics-tennis-carlos-alcaraz/
