@@ -1,3 +1,7 @@
+**What makes Leon Marchand a superstar? He's smaller, lighter and unbelievable underwater**\
+`France’s golden boy has changed the face of swimming. There’s more than one way to win an Olympic gold. Or four...`\
+https://nytimes.com/athletic/5679645/2024/08/04/leon-marchand-olympic-golds-technique-analysis/
+
 **Kristen Faulkner stuns with gold in Olympic women's road race**\
 `The last time an American woman won the event was at the 1984 Games when Connie Carpenter-Phinney placed first.`\
 https://nytimes.com/athletic/5679833/2024/08/04/kristen-faulkner-gold-olympics-road-cycling/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/04/world/israel-hamas-hezbollah-iran-gaza/an-ef
 **Game, Set, Match: Novak Djokovic beats Carlos Alcaraz for Olympic gold in Paris**\
 `An epic Olympic men's singles final befitted the intensity of the two competitors, as the Serbian finally claimed the title that eluded him`\
 https://nytimes.com/athletic/5679444/2024/08/04/novak-djokovic-gold-olympics-tennis-carlos-alcaraz/
-
-**Behind the Biggest Prisoner Swap Since the Cold War**\
-`The recent prisoner exchange between Russia and the U.S. — the biggest and most complex since the Cold War — was a diplomatic chess game that required patience and creativity. Mark Mazzetti, an investigative reporter for The New York Times, explains.`\
-https://nytimes.com/video/world/100000009608295/behind-the-biggest-prisoner-swap-since-the-cold-war.html
 
