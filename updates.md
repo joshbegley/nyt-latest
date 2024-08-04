@@ -1,3 +1,7 @@
+**What we learned during the first week of USC training camp**\
+`The offensive line will be under the microscope. The spring portal window came and went without USC adding any transfers along the line.`\
+https://nytimes.com/athletic/5679109/2024/08/04/usc-football-training-camp-takeaways-week-1/
+
 **The Soul of Soil**\
 `The dirt beneath our feet is a bigger, bolder world than you think.`\
 https://nytimes.com/2024/08/04/opinion/soil-earth-life.html
