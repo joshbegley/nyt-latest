@@ -1,6 +1,6 @@
 **Inside the Obama-Shapiro Relationship**\
 `The speaking style of Gov. Josh Shapiro of Pennsylvania, a potential vice presidential pick, can sound suspiciously similar to President Obama’s. But the real connection between the two men is deeper than commonly known.`\
-https://nytimes.com/2024/08/04/us/politics/inside-the-obama-shapiro-relationship.html
+https://nytimes.com/2024/08/04/us/politics/obama-josh-shapiro-relationship.html
 
 **Review: Death Drives a New ‘Tristan’ at Wagner’s Festival**\
 `Thorleifur Orn Arnarsson’s production of “Tristan und Isolde” at the Bayreuth Festival in Germany is an excellently conducted puzzle of grim symbols.`\
