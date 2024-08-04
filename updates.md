@@ -1,3 +1,7 @@
+**At number retirement ceremony, Jim Leyland's human touch was on display**\
+`Saturday, Leyland displayed the same human touch that made him a beloved figure in Detroit.`\
+https://nytimes.com/athletic/5678950/2024/08/03/jim-leyland-number-retirement/
+
 **Real Madrid-Barcelona delayed due to severe weather**\
 `MetLife Stadium staff advised fans to exit their seats and seek covered shelter.`\
 https://nytimes.com/athletic/5678977/2024/08/03/metlife-evacuation-real-madrid-barcelona/
