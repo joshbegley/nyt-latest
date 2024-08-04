@@ -1,3 +1,11 @@
+**Calafiori's Arsenal signing awakens a long-dormant Italian connection**\
+`Calafiori's arrival feels momentous for those of an Italo-Arsenal persuasion`\
+https://nytimes.com/athletic/5674460/2024/08/04/riccardo-calafiori-italy-arsenal-transfer/
+
+**The Olympic Flame Melts Parisian Cool**\
+`There are people walking around the world’s fashion capital with fluffy cockerels on their heads. This is not normal.`\
+https://nytimes.com/2024/08/04/world/olympics/paris-vibe-tourists.html
+
 **The making of West Ham's Crysencio Summerville - 'He has the fire inside him'**\
 `Opponents knew how to 'make him angry', but the coaches who helped shape West Ham's new signing Summerville explain his talents`\
 https://nytimes.com/athletic/5674443/2024/08/04/who-is-crysencio-summerville/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/03/us/politics/harris-running-mate-kelly-walz-shapir
 **Braves' clubhouse has remained strong as Atlanta's resurgence has made NL East a race**\
 `Charlie Morton has been around for a while and believes the Braves' clubhouse chemistry isn't just for show. `\
 https://nytimes.com/athletic/5679168/2024/08/03/braves-resurgence-has-made-nl-east-a-race/
-
-**Trump Says Georgia’s Governor Is Hampering His Efforts to Win There**\
-`At a rally in Atlanta, former President Donald J. Trump said the battleground state’s governor and its top election official wanted him “to lose” and falsely claimed that he’d won the state twice.`\
-https://nytimes.com/2024/08/03/us/politics/trump-rally-georgia.html
-
-**How Julien Alfred Beat Sha’Carri Richardson for Gold**\
-`The gold medalist, Julien Alfred of St. Lucia, averaged 23 miles per hour to finish the race in 10.72 seconds, 0.15 seconds ahead of Sha’Carri Richardson of the United States.`\
-https://nytimes.com/interactive/2024/08/03/sports/olympics/womens-100-julien-alfred-shacarri-richardson.html
 

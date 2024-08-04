@@ -1,3 +1,11 @@
+**Calafiori's Arsenal signing awakens a long-dormant Italian connection**\
+`Calafiori's arrival feels momentous for those of an Italo-Arsenal persuasion`\
+https://nytimes.com/athletic/5674460/2024/08/04/riccardo-calafiori-italy-arsenal-transfer/
+
+**The Olympic Flame Melts Parisian Cool**\
+`There are people walking around the world’s fashion capital with fluffy cockerels on their heads. This is not normal.`\
+https://nytimes.com/2024/08/04/world/olympics/paris-vibe-tourists.html
+
 **The making of West Ham's Crysencio Summerville - 'He has the fire inside him'**\
 `Opponents knew how to 'make him angry', but the coaches who helped shape West Ham's new signing Summerville explain his talents`\
 https://nytimes.com/athletic/5674443/2024/08/04/who-is-crysencio-summerville/
