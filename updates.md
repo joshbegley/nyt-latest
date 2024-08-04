@@ -1,3 +1,7 @@
+**A Doping Scandal**\
+`How the Olympic drug testing system is supposed to function — and why it may not be working.`\
+https://nytimes.com/2024/08/04/briefing/olympics-swimming-doping.html
+
 **Team USA looks ahead to familiar faces in Olympics bracket**\
 `PARIS – The focus for Team USA may be on Brazil, a team they haven’t seen this summer, but awaiting the American stars in an Olympic semifinal will be a very familiar face.`\
 https://nytimes.com/athletic/5679493/2024/08/04/team-usa-olympics-bracket/
