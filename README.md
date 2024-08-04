@@ -1,3 +1,7 @@
+**49ers training camp: Brock Purdy has graduated to the next level of preparation**\
+`The quarterback has been able to challenge himself in new ways this training camp as he prepares for the 2024 season.`\
+https://nytimes.com/athletic/5680228/2024/08/04/brock-purdy-49ers-training-camp/
+
 **In a Corner of Florida, a Gathering Storm Stirs Familiar Feelings**\
 `Many on the state’s northwestern coast felt they knew what to expect from Debby, which is forecast to make landfall as a hurricane, after a much stronger storm hit the area last year.`\
 https://nytimes.com/2024/08/04/us/florida-preparation-debby-idalia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5679688/2024/08/04/chicago-white-sox-20-game-losing
 **After a photo finish, Noah Lyles waits, and waits, and then claims the title of world’s fastest man.**\
 `By Talya Minsberg, Ben Shpigel, Gabriela Bhaskar and Daniel Berehulak`\
 https://nytimes.com/live/2024/07/27/world/olympics-paris-photos/noah-lyles-100-meters
-
-**Bobby Finke and the race that extended American Olympic swimming history**\
-`In one epic, world-record race Sunday night in Paris, Bobby Finke helped extend two benchmark streaks in American Olympic swimming history.`\
-https://nytimes.com/athletic/5680313/2024/08/04/bobby-finke-olympic-swimming-american-history/
 
