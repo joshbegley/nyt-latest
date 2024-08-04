@@ -1,3 +1,11 @@
+**Man Utd 0 Liverpool 3 - Carvalho and Kelleher impress, will Bradley influence Trent's role?**\
+`A Liverpool team lacking lots of their international stars defeated Manchester United, it creates a lot of intriguing questions`\
+https://nytimes.com/athletic/5678782/2024/08/04/liverpool-man-utd-result-analysis/
+
+**Phillies find another way to lose and the challenges keep mounting**\
+`The latest setback in Seattle demonstrated how impossible it feels for Philadelphia to win a game.`\
+https://nytimes.com/athletic/5679346/2024/08/04/phillies-lose-to-mariners/
+
 **One dead, three injured in stabbing attack near Tel Aviv.**\
 `Officials called the Sunday morning attack “complex and difficult,” with the victims in separate but nearby locations. A 70-year-old woman was killed.`\
 https://nytimes.com/live/2024/08/04/world/israel-hamas-hezbollah-iran-gaza/one-dead-three-injured-in-stabbing-attack-near-tel-aviv
