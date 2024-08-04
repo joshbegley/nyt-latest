@@ -1,3 +1,7 @@
+**5-Year-Old Killed After Bounce House Goes Airborne in Maryland**\
+`Children were inside the play structure at a baseball game when it was carried 15 to 20 feet in the air the by the wind. One child died and another was injured.`\
+https://nytimes.com/2024/08/04/us/boy-killed-bounce-house.html
+
 **In a Corner of Florida, a Gathering Storm Stirs Familiar Feelings**\
 `Many on the state’s northwestern coast felt they knew what to expect from Debby, which is forecast to make landfall as a hurricane, after a much stronger storm hit the area last year.`\
 https://nytimes.com/2024/08/04/us/florida-preparation-debby-idalia.html
