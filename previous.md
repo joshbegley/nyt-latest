@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5678782/2024/08/04/liverpool-man-utd-result-analysi
 https://nytimes.com/athletic/5679346/2024/08/04/phillies-lose-to-mariners/
 
 **Two dead, two injured in stabbing attack near Tel Aviv.**\
-`Officials called the Sunday morning attack “complex and difficult,” with the victims in separate but nearby locations. A 70-year-old woman and a man were killed.`\
+`Officials called the Sunday morning attack “complex and difficult,” with the victims in separate but nearby locations. The suspected attacker also died.`\
 https://nytimes.com/live/2024/08/04/world/israel-hamas-hezbollah-iran-gaza/one-dead-three-injured-in-stabbing-attack-near-tel-aviv
 
 **Taking Note of History in the Making**\
