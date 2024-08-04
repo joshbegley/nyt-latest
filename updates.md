@@ -1,3 +1,7 @@
+**Chicago White Sox reach new level of futility, extend losing streak to 20 games**\
+`With their latest loss, the White Sox fell to 60 games under .500 for the first time in franchise history.`\
+https://nytimes.com/athletic/5679688/2024/08/04/chicago-white-sox-20-game-losing-streak/
+
 **Oysters and Martinis at Rashid Johnson’s Pool Party in The Hamptons**\
 `The artist, and his wife, Sheree Hovsepian, hosted a party at their East Hampton home on Saturday to benefit Creative Time, a public art nonprofit that is celebrating its 50th anniversary.`\
 https://nytimes.com/2024/08/04/style/rashid-johnson-sheree-hovsepian-hamptons-party.html
