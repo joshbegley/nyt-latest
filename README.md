@@ -1,3 +1,7 @@
+**What we learned during the first week of USC training camp**\
+`The offensive line will be under the microscope. The spring portal window came and went without USC adding any transfers along the line.`\
+https://nytimes.com/athletic/5679109/2024/08/04/usc-football-training-camp-takeaways-week-1/
+
 **The Soul of Soil**\
 `The dirt beneath our feet is a bigger, bolder world than you think.`\
 https://nytimes.com/2024/08/04/opinion/soil-earth-life.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5679493/2024/08/04/team-usa-olympics-bracket/
 **What is repechage? Explaining Olympic track's new rule that a U.S. hurdler is embracing**\
 `It&#8217;s not often that a new wrinkle is introduced into Olympic sports, especially one that can become a complete game-changer for athletes.`\
 https://nytimes.com/athletic/5679470/2024/08/04/what-is-repechage-track-and-field-freddie-crittenden/
-
-**Packers set to get key player back and more from Lambeau Field practice**\
-`More than 60,000 fans turned out to see Saturday practice on Green Bay's Family Night.`\
-https://nytimes.com/athletic/5679209/2024/08/04/packers-lambeau-field-practice-zach-tom/
 
