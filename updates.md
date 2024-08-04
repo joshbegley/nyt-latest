@@ -1,3 +1,7 @@
+**After a photo finish, Noah Lyles waits, and waits, and then claims the title of world’s fastest man.**\
+`By Talya Minsberg, Ben Shpigel, Gabriela Bhaskar and Daniel Berehulak`\
+https://nytimes.com/live/2024/07/27/world/olympics-paris-photos/noah-lyles-100-meters
+
 **Bobby Finke and the race that extended American Olympic swimming history**\
 `In one epic, world-record race Sunday night in Paris, Bobby Finke helped extend two benchmark streaks in American Olympic swimming history.`\
 https://nytimes.com/athletic/5680313/2024/08/04/bobby-finke-olympic-swimming-american-history/
