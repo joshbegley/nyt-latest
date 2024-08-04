@@ -1,40 +1,40 @@
-**Florida Prepares for Landfall as Tropical Storm Debby Strengthens**\
-`Debby was expected to hit Florida as a hurricane-strength storm late Sunday. Officials issued evacuation orders and made emergency preparations along the coast.`\
-https://nytimes.com/2024/08/04/us/florida-tropical-storm-debby.html
+**Packers set to get key player back and more from Lambeau Field practice**\
+`More than 60,000 fans turned out to see Saturday practice on Green Bay's Family Night.`\
+https://nytimes.com/athletic/5679209/2024/08/04/packers-lambeau-field-practice-zach-tom/
 
-**What to Watch as Sunisa Lee Competes in Uneven Bars Final**\
-`Lee, the all-around champion from the Tokyo Olympics, is the only American in the competition after Simone Biles failed to qualify.`\
-https://nytimes.com/2024/08/04/world/olympics/sunisa-lee-watch-bars.html
+**Young Browns players worth watching as training camp returns home**\
+`With the first preseason game approaching, which of Cleveland's younger players could make a real push toward earning a roster spot?`\
+https://nytimes.com/athletic/5678509/2024/08/04/browns-training-camp-competitions/
 
-**At Olympic track and field, gold isn't the only way to measure success**\
-`SAINT-DENIS, France — There was no decision for Joe Kovacs to make.`\
-https://nytimes.com/athletic/5678383/2024/08/04/olympics-track-and-field-joe-kovacs-shacarri-richardson/
+**How the Cubs plan to get the most out of Nate Pearson**\
+`Pearson is a top-tier talent, and the Cubs are hoping to fully unlock his potential.`\
+https://nytimes.com/athletic/5678655/2024/08/04/how-the-cubs-plan-to-get-the-most-out-of-nate-pearson/
 
-**The Briefing: Real Madrid 1 Barcelona 2 - Victor scores twice as Flick's young players star in Clasico**\
-`After a thunderstorm caused an hour delay in the first half, Pau Victor inspired Barcelona to a victory against Real Madrid in New York`\
-https://nytimes.com/athletic/5679315/2024/08/04/barcelona-clasico-real-madrid-new-york-victory/
+**In Kamala Harris’s Blackness, I See My Own**\
+`Multiracial people have long been a Rorschach test: We bear the anxiety, rage and confusion that others feel about the amorphous construction we call race.`\
+https://nytimes.com/2024/08/04/opinion/kamala-harris-biracial.html
 
-**The Life and Death of a Political Meme**\
-`Speed and novelty are two essential elements when it comes to out-memeing a political opponent.`\
-https://nytimes.com/2024/08/04/style/harris-trump-political-memes.html
+**The Sunday Read: ‘Online Dating After 50 Can Be Miserable. But It’s Also Liberating.’**\
+`You know so much more about yourself and your desires when you’re older that dating apps — even with all their frustrations — can bring unanticipated pleasure.`\
+https://nytimes.com/2024/08/04/podcasts/the-daily/online-dating-after-50.html
 
-**A Battle Over a Farm, a Mosque and the Moral High Ground**\
-`A proposed “Muslim-friendly” community near Minneapolis was called segregationist. The backlash was called Islamophobic. Who gets to define inclusion?`\
-https://nytimes.com/2024/08/04/us/minnesota-farm-lino-lakes-mosque.html
+**‘I Just Have Some Questions’: An Interview With Justice Gorsuch**\
+`The justice talks about everything from his indictment of the regulatory state to the rights of Native Americans.`\
+https://nytimes.com/2024/08/04/opinion/neil-gorsuch-supreme-court.html
 
-**How Could Maduro’s Reign in Venezuela End?**\
-`History has shown that authoritarians often fall when security forces betray them. What does that mean for Venezuela and Nicolás Maduro?`\
-https://nytimes.com/2024/08/04/world/americas/maduro-regime-venezuela.html
+**The Connections Companion No. 421**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 5, 2024.`\
+https://nytimes.com/2024/08/04/crosswords/connections-companion-421.html
 
-**Trying to Save a Concrete ‘Monument to Corruption’**\
-`An icon of socialist modernist architecture in the capital of the former Soviet republic that is now Moldova has been at the center of a tussle between corrupt developers and preservationists.`\
-https://nytimes.com/2024/08/04/world/europe/moldova-national.html
+**Wordle Review No. 1,143**\
+`Scroll down for hints and conversation about the puzzle for Monday, August 5, 2024.`\
+https://nytimes.com/2024/08/04/crosswords/wordle-review-1143.html
 
-**Browsing Is a Pleasure in This History of the Bookstore**\
-`“People feel differently about their bookstore than they do about their grocery store or electronics store,” writes Evan Friss, in praise of a retail ritual battered by the internet.`\
-https://nytimes.com/2024/08/04/books/review/the-bookshop-evan-friss.html
+**After My Brother’s Overdose Death, Misinformed People Added to Our Grief**\
+`You cannot overdose on fentanyl by touching a person who overdosed.`\
+https://nytimes.com/2024/08/04/opinion/fentanyl-secondhand-exposure-myth.html
 
-**It’s Lights Out at a Cosmic Restaurant**\
-`Palomar Observatory bids farewell to a tradition of napkin rings, cowbells and astronomical table conversation.`\
-https://nytimes.com/2024/08/04/science/space/astronomy-palomar-restaurant.html
+**This Is How the World’s Favorite Scent Disappears**\
+`Vanilla substitutes exist, but there is no replacing the symphonic complexities of the real thing.`\
+https://nytimes.com/2024/08/04/opinion/vanilla-cooking-climate-change.html
 
