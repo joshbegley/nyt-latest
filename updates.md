@@ -1,3 +1,15 @@
+**What makes Leon Marchand a superstar? He's smaller, lighter and unbelievable underwater**\
+`France’s golden boy has changed the face of swimming. There’s more than one way to win an Olympic gold. Or four...`\
+https://nytimes.com/athletic/5679645/2024/08/04/leon-marchand-olympic-golds-technique-analysis/
+
+**Kristen Faulkner stuns with gold in Olympic women's road race**\
+`The last time an American woman won the event was at the 1984 Games when Connie Carpenter-Phinney placed first.`\
+https://nytimes.com/athletic/5679833/2024/08/04/kristen-faulkner-gold-olympics-road-cycling/
+
+**Game, Set, Match: Novak Djokovic beats Carlos Alcaraz for Olympic gold in Paris**\
+`An epic Olympic men's singles final befitted the intensity of the two competitors, as the Serbian finally claimed the title that eluded him`\
+https://nytimes.com/athletic/5679444/2024/08/04/novak-djokovic-gold-olympics-tennis-carlos-alcaraz/
+
 **Inside the Obama-Shapiro Relationship**\
 `The speaking style of Gov. Josh Shapiro of Pennsylvania, a potential vice presidential pick, can sound suspiciously similar to President Obama’s. But the real connection between the two men is deeper than commonly known.`\
 https://nytimes.com/2024/08/04/us/politics/obama-josh-shapiro-relationship.html
