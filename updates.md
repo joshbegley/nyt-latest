@@ -1,3 +1,11 @@
+**Sunisa Lee vies for her third medal in Paris, on the uneven bars.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/08/04/world/olympics-gymnastics-bars/sunisa-lee-vies-for-her-third-medal-in-paris-on-the-uneven-bars
+
+**U.K. Police Brace for More Unrest After Knife Attack at Dance Class**\
+`Protests spiraled into violent riots in Liverpool, Leeds, Manchester and Belfast over the weekend, with dozens arrested and more demonstrations planned.`\
+https://nytimes.com/2024/08/04/world/europe/uk-protests-southport-stabbing.html
+
 **Kaylia Nemour of Algeria could win Africa’s first Olympic medal in women’s gymnastics.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/08/04/world/olympics-gymnastics-bars/kaylia-nemour-of-algeria-could-win-africas-first-olympic-medal-in-womens-gymnastics
