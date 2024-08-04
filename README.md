@@ -1,3 +1,7 @@
+**Boxer Ngamba secures first medal for refugee team with quarterfinal win**\
+`The Cameroonian-born boxer competes under the refugee flag because she is gay and cannot return home since homosexuality is outlawed.`\
+https://nytimes.com/athletic/5679686/2024/08/04/cindy-ngamba-refugee-boxing-olympics-medal/
+
 **Harris’s Brother-in-Law, a Corporate Executive, Emerges as a Close Adviser**\
 `Tony West, the top lawyer for Uber, is weighing in on polling and running mates. His presence has made some liberals anxious.`\
 https://nytimes.com/2024/08/04/us/politics/kamala-harris-tony-west.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5679634/2024/08/04/suni-lee-bars-bronze-gymnastics-
 **Sunisa Lee vies for her third medal in Paris, on the uneven bars.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/08/04/world/olympics-gymnastics-bars/sunisa-lee-vies-for-her-third-medal-in-paris-on-the-uneven-bars
-
-**Kaylia Nemour of Algeria could win Africa’s first Olympic medal in women’s gymnastics.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/08/04/world/olympics-gymnastics-bars/kaylia-nemour-of-algeria-could-win-africas-first-olympic-medal-in-womens-gymnastics
 
