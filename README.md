@@ -1,3 +1,7 @@
+**Quotation of the Day: At a Mountain Retreat, Wine, Barbecued Lamb and Talk of Global Warming**\
+`Quotation of the Day for Sunday, August 4, 2024.`\
+https://nytimes.com/2024/08/04/pageoneplus/quotation-of-the-day-at-a-mountain-retreat-wine-barbecued-lamb-and-talk-of-global-warming.html
+
 **Corrections: Aug. 4, 2024**\
 `Corrections that appeared in print on Sunday, Aug. 4, 2024.`\
 https://nytimes.com/2024/08/04/pageoneplus/corrections-aug-4-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/04/world/europe/ukraine-war-dating.html
 **Takeaways From Our Investigation Into Banned A.I. Chips in China**\
 `The Times found an active trade in Nvidia chips in China despite U.S. national security restrictions, as well as unreported incidents of how the technology had been used to further defense research.`\
 https://nytimes.com/2024/08/04/technology/china-ai-microchips-takeaways.html
-
-**The Office Ties That Bind**\
-`How guilty should you feel about leaving the boss who gave you your first big break?`\
-https://nytimes.com/2024/08/04/business/work-friend-boss-loyalty.html
 
