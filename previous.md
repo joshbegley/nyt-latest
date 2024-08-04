@@ -1,3 +1,11 @@
+**Belgium withdraws from Olympic mixed relay triathlon after athlete falls ill**\
+`The mixed relay triathlon is scheduled for Monday at 2 a.m. ET (8 a.m. in Paris).`\
+https://nytimes.com/athletic/5680302/2024/08/04/belgium-claire-michel-triathlon-seine-river/
+
+**Oysters and Martinis at Rashid Johnson’s Pool Party in The Hamptons**\
+`The artist, and his wife, Sheree Hovsepian, hosted a party at their East Hampton home on Saturday to benefit Creative Time, a public art nonprofit that is celebrating its 50th anniversary this year.`\
+https://nytimes.com/2024/08/04/style/rashid-johnson-sheree-hovsepian-hamptons-party.html
+
 **Monday Briefing: A Tense Wait in Israel**\
 `Plus, philanthropy with a dark twist.`\
 https://nytimes.com/2024/08/04/briefing/israel-hamas-hezbollah-myanmar-harris.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5680003/2024/08/04/noah-lyles-100m-gold-olympics-ph
 **Biden’s Proposed Supreme Court Reforms**\
 `The effort is “100 percent politically motivated,” a reader writes; others support the proposals. Also: Solitary confinement; table tennis; interest rates.`\
 https://nytimes.com/2024/08/04/opinion/biden-supreme-court-reforms.html
-
-**Scores of People Are Killed in Renewed Bangladesh Protests**\
-`After student protests in July were met with a deadly government crackdown, a revival on Sunday plunged Bangladesh further into violence, leaving at least 70 people dead.`\
-https://nytimes.com/video/world/asia/100000009610545/bangladesh-protests-government.html
-
-**Israeli Strike Kills Dozens at Gaza Shelter**\
-`An Israeli airstrike on a school functioning as a shelter in Gaza City killed at least 30 people, according to a Palestinian emergency agency and local media outlets.`\
-https://nytimes.com/video/world/middleeast/100000009610600/israel-strike-gaza-city-shelter.html
 

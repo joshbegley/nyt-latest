@@ -1,3 +1,11 @@
+**Belgium withdraws from Olympic mixed relay triathlon after athlete falls ill**\
+`The mixed relay triathlon is scheduled for Monday at 2 a.m. ET (8 a.m. in Paris).`\
+https://nytimes.com/athletic/5680302/2024/08/04/belgium-claire-michel-triathlon-seine-river/
+
+**Oysters and Martinis at Rashid Johnson’s Pool Party in The Hamptons**\
+`The artist, and his wife, Sheree Hovsepian, hosted a party at their East Hampton home on Saturday to benefit Creative Time, a public art nonprofit that is celebrating its 50th anniversary this year.`\
+https://nytimes.com/2024/08/04/style/rashid-johnson-sheree-hovsepian-hamptons-party.html
+
 **Monday Briefing: A Tense Wait in Israel**\
 `Plus, philanthropy with a dark twist.`\
 https://nytimes.com/2024/08/04/briefing/israel-hamas-hezbollah-myanmar-harris.html
