@@ -1,3 +1,11 @@
+**U.S. sets world record in medley relay to close out swimming with gold**\
+`Regan Smith, Lilly King, Gretchen Walsh and Torri Huske finished in 3:49.63 and beat the rest of the field by more than three seconds.`\
+https://nytimes.com/athletic/5680015/2024/08/04/usa-medley-relay-gold-swimming-paris-olympics/
+
+**What’s Rattling Trump: The Size of Harris’s Crowds**\
+`The numbers game is everything to Donald J. Trump. Vice President Kamala Harris’s first big rally appears to have gotten under his skin.`\
+https://nytimes.com/2024/08/04/us/politics/whats-rattling-trump-the-size-of-harriss-crowds.html
+
 **A weekend ride through Paris. Prizes for the first three finishers.**\
 `The Olympic road cycling events, open for all to watch, end in a sprint to the finish.`\
 https://nytimes.com/2024/08/04/world/olympics/road-cycling.html

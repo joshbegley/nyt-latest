@@ -1,3 +1,11 @@
+**U.S. sets world record in medley relay to close out swimming with gold**\
+`Regan Smith, Lilly King, Gretchen Walsh and Torri Huske finished in 3:49.63 and beat the rest of the field by more than three seconds.`\
+https://nytimes.com/athletic/5680015/2024/08/04/usa-medley-relay-gold-swimming-paris-olympics/
+
+**What’s Rattling Trump: The Size of Harris’s Crowds**\
+`The numbers game is everything to Donald J. Trump. Vice President Kamala Harris’s first big rally appears to have gotten under his skin.`\
+https://nytimes.com/2024/08/04/us/politics/whats-rattling-trump-the-size-of-harriss-crowds.html
+
 **A weekend ride through Paris. Prizes for the first three finishers.**\
 `The Olympic road cycling events, open for all to watch, end in a sprint to the finish.`\
 https://nytimes.com/2024/08/04/world/olympics/road-cycling.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/04/world/europe/russia-undercover-prisoner-swap.html
 **Israeli Strike on Gaza Shelter Kills at Least 30 and Injures Dozens**\
 `An Israeli airstrike in Gaza City killed at least 30 people, according to a Palestinian emergency agency and local media outlets. Israel said it targeted Hamas “command and control centers.”`\
 https://nytimes.com/2024/08/04/world/middleeast/israel-gaza-strike-shelter.html
-
-**What makes Leon Marchand a superstar? He's smaller, lighter and unbelievable underwater**\
-`France’s golden boy has changed the face of swimming. There’s more than one way to win an Olympic gold. Or four...`\
-https://nytimes.com/athletic/5679645/2024/08/04/leon-marchand-olympic-golds-technique-analysis/
-
-**Kristen Faulkner stuns with gold in Olympic women's road race**\
-`The last time an American woman won the event was at the 1984 Games when Connie Carpenter-Phinney placed first.`\
-https://nytimes.com/athletic/5679833/2024/08/04/kristen-faulkner-gold-olympics-road-cycling/
 
