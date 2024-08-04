@@ -1,3 +1,7 @@
+**LeBron's (and Sam's) Olympics men's basketball knockout-round power rankings**\
+`With the cream of the crop — USA, Canada, Germany — moving on, the games should be more exciting in the single-elimination stage.`\
+https://nytimes.com/athletic/5678735/2024/08/03/lebron-james-olympics-team-usa/
+
 **At number retirement ceremony, Jim Leyland's human touch was on display**\
 `Saturday, Leyland displayed the same touch that made him a beloved figure in Detroit.`\
 https://nytimes.com/athletic/5678950/2024/08/03/jim-leyland-number-retirement/
