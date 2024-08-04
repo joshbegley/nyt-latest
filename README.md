@@ -1,3 +1,27 @@
+**One dead, three injured in stabbing attack near Tel Aviv.**\
+`Officials called the Sunday morning attack “complex and difficult,” with the victims in separate but nearby locations. A 70-year-old woman was killed.`\
+https://nytimes.com/live/2024/08/04/world/israel-hamas-hezbollah-iran-gaza/one-dead-three-injured-in-stabbing-attack-near-tel-aviv
+
+**Taking Note of History in the Making**\
+`Hours after the attempted assassination on former President Donald J. Trump, a Times editor outlined upcoming coverage of the event for the newspaper.`\
+https://nytimes.com/2024/08/04/insider/trump-assassination-news.html
+
+**These Birds Have Their Own Beach. Their Human Neighbors Want In.**\
+`Every summer, a neighborhood in Queens loses its beach to piping plovers, an endangered shorebird. Some residents want it back.`\
+https://nytimes.com/2024/08/04/nyregion/queens-beach-endangered-birds.html
+
+**Chinese Swimming’s Olympic Haul: More Medals, More Questions**\
+`A meet overshadowed by questions about doping produced more medals, but fewer golds, than China’s swimmers won at the Tokyo Games.`\
+https://nytimes.com/2024/08/04/world/olympics/china-swimming-doping-medals.html
+
+**How One Harlem Block Became a Symbol of Urban Despair and Hope**\
+`In a hub for drugs and disarray, some see New York at its worst. Others see a community doing its best to help.`\
+https://nytimes.com/2024/08/04/nyregion/harlem-drug-addiction-onpoint-neighbors.html
+
+**‘The Construction Worker Smiled and Lowered His Flag’**\
+`An impromptu starting line in Brooklyn, loose change on a sidewalk and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/08/04/nyregion/metropolitan-diary.html
+
 **'This is my season - I just can’t wait to prove it,' says Mateo Joseph**\
 `Age 20, Mateo Joseph is confident he can be Leeds' main striker this season`\
 https://nytimes.com/athletic/5676166/2024/08/04/mateo-joseph-this-is-my-season/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/08/04/opinion/theres-still-tomorrow-paola-cortellesi.ht
 **Twins send White Sox to 19th loss in a row; Carlos Correa talks injury, trade deadline**\
 `Correa had asked for pitching help at the trade deadline, but the front office didn't heed his advice.`\
 https://nytimes.com/athletic/5678836/2024/08/04/twins-white-sox-carlos-correa/
-
-**Quotation of the Day: At a Mountain Retreat, Wine, Barbecued Lamb and Talk of Global Warming**\
-`Quotation of the Day for Sunday, August 4, 2024.`\
-https://nytimes.com/2024/08/04/pageoneplus/quotation-of-the-day-at-a-mountain-retreat-wine-barbecued-lamb-and-talk-of-global-warming.html
-
-**Corrections: Aug. 4, 2024**\
-`Corrections that appeared in print on Sunday, Aug. 4, 2024.`\
-https://nytimes.com/2024/08/04/pageoneplus/corrections-aug-4-2024.html
-
-**With Liam Hendriks, Trevor Story progressing, Red Sox need to avoid August swoon**\
-`The Red Sox have one of the toughest second-half schedules in baseball, and the path to the postseason remains uncertain.`\
-https://nytimes.com/athletic/5679213/2024/08/04/red-sox-rangers-liam-hendriks-trevor-story/
-
-**The cross-border hostilities came amid fears of a broader war**\
-`TK TK`\
-https://nytimes.com/live/2024/08/04/world/israel-hamas-hezbollah-iran-gaza/the-cross-border-hostilities-came-amid-fears-of-a-broader-war
-
-**Hezbollah says the Israeli airstrikes caused civilian casualties.**\
-`By Vivek Shankar`\
-https://nytimes.com/live/2024/08/04/world/israel-hamas-hezbollah-iran-gaza/hezbollah-says-the-israeli-airstrikes-caused-civilian-casualties
-
-**Wrexham's final dress rehearsal all goes to plan before long-awaited return to League One**\
-`Twelve years ago Fleetwood broke Wrexham hearts. On Saturday, they got a small slice of revenge in their final friendly before new season`\
-https://nytimes.com/athletic/5678036/2024/08/04/wrexham-fleetwood-league-one/
 
