@@ -1,3 +1,7 @@
+**The Briefing: Real Madrid 1 Barcelona 2 - Victor scores twice as Flick's young players star in Clasico**\
+`After a thunderstorm caused an hour delay in the first half, Pau Victor inspired Barcelona to a victory against Real Madrid in New York`\
+https://nytimes.com/athletic/5679315/2024/08/04/barcelona-clasico-real-madrid-new-york-victory/
+
 **The Life and Death of a Political Meme**\
 `Speed and novelty are two essential elements when it comes to out-memeing a political opponent.`\
 https://nytimes.com/2024/08/04/style/harris-trump-political-memes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5677515/2024/08/04/new-york-giants-training-camp-ev
 **Has the Long Friendship of Bill Gates and Warren Buffett Reached Its Final Act?**\
 `Growing tensions between the two billionaires, over issues both substantive and stylistic, have roiled the world of philanthropy.`\
 https://nytimes.com/2024/08/04/business/bill-gates-warren-buffett-friendship.html
-
-**As Hundreds of Churches Sit Empty, Some Become Malls and Restaurants**\
-`With vaulted ceilings and stained glass windows, the architectural features of churches have become huge draws for business owners.`\
-https://nytimes.com/2024/08/04/business/church-development-reuse.html
 
