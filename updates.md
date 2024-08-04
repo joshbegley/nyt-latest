@@ -1,3 +1,7 @@
+**Dodgers encouraged by Jack Flaherty's debut and get good news about their future**\
+`Flaherty delivered just the second quality start L.A. pitchers have logged in the last 38 days. Some injured Dodgers could return soon.`\
+https://nytimes.com/athletic/5679277/2024/08/04/dodgers-jack-flaherty/
+
 **Why a Black-and-White Feminist Film Was Bigger Than ‘Barbie’ in Italy**\
 `“There’s Still Tomorrow” tells a story of a feminism that everyone can agree on and enjoy.`\
 https://nytimes.com/2024/08/04/opinion/theres-still-tomorrow-paola-cortellesi.html
