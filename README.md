@@ -1,3 +1,11 @@
+**Real Madrid-Barcelona delayed due to severe weather**\
+`MetLife Stadium staff advised fans to exit their seats and seek covered shelter.`\
+https://nytimes.com/athletic/5678977/2024/08/03/metlife-evacuation-real-madrid-barcelona/
+
+**At number retirement ceremony, Jim Leyland's human touch was on display**\
+`Leyland displayed the same human touch that made him a beloved figure in Detroit.`\
+https://nytimes.com/athletic/5678950/2024/08/03/jim-leylands-human-touch-was-on-display-once-more/
+
 **Steve McMichael was right where he needed to be while witnessing his Hall of Fame moment**\
 `McMichael, who spent 13 seasons with the Bears, was enshrined in the Pro Football Hall of Fame from the comfort of his home.`\
 https://nytimes.com/athletic/5678873/2024/08/03/steve-mcmichael-hall-of-fame-induction/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000009609850/uk-riots-southport-stabbi
 **Lawyer Who Tried to Set Off Bomb Outside of Chinese Embassy Pleads Guilty**\
 `Christopher Rodriguez tried to detonate a bag of explosives at the embassy in Washington, D.C., by firing a rifle at it but missed, prosecutors said.`\
 https://nytimes.com/2024/08/03/us/florida-attorney-chinese-embassy-guilty.html
-
-**Canada's gold medal defense ends against Germany, but players aren't leaving empty-handed**\
-`The reigning Olympic champions head home without a chance for a medal, but they're leaving with their heads held high.`\
-https://nytimes.com/athletic/5678775/2024/08/03/canada-loss-olympic-womens-soccer-quarterfinal/
-
-**Tracking Tropical Storm Debby**\
-`See the likely path and wind arrival times for Debby.`\
-https://nytimes.com/interactive/2024/08/03/weather/debby-map-path-tracker.html
 
