@@ -1,3 +1,7 @@
+**The Briefing: Real Madrid 1 Barcelona 2 - Victor scores twice as Flick's young players star in Clasico**\
+`After a thunderstorm caused an hour delay in the first half, Pau Victor inspired Barcelona to a victory against Real Madrid in New York`\
+https://nytimes.com/athletic/5679315/2024/08/04/barcelona-clasico-real-madrid-new-york-victory/
+
 **The Life and Death of a Political Meme**\
 `Speed and novelty are two essential elements when it comes to out-memeing a political opponent.`\
 https://nytimes.com/2024/08/04/style/harris-trump-political-memes.html
