@@ -1,3 +1,7 @@
+**Braves' clubhouse has remained strong as Atlanta's resurgence makes NL East a race**\
+`Charlie Morton has been around for a while and believes the Braves' clubhouse chemistry isn't just for show. `\
+https://nytimes.com/athletic/5679168/2024/08/03/braves-resurgence-has-made-nl-east-a-race/
+
 **Calafiori's Arsenal signing awakens a long-dormant Italian connection**\
 `Calafiori's arrival feels momentous for those of an Italo-Arsenal persuasion`\
 https://nytimes.com/athletic/5674460/2024/08/04/riccardo-calafiori-italy-arsenal-transfer/
