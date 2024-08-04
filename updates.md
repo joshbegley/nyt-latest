@@ -1,3 +1,11 @@
+**Tropical Storm Debby Could Bring ‘Historic’ Rainfall to Southeast**\
+`Forecasters are warning of serious flooding in parts of Florida, Georgia and South Carolina this week as the storm moves along the coast.`\
+https://nytimes.com/2024/08/04/weather/tropical-storm-debby-rain.html
+
+**Suni Lee snags bronze on bars for third medal of Paris Olympics**\
+`Algeria’s Kaylia Nemour took the gold with a monster routine that had the Bercy Arena alternating between gasping and cheering.`\
+https://nytimes.com/athletic/5679634/2024/08/04/suni-lee-bars-bronze-gymnastics-olympics-results/
+
 **Sunisa Lee vies for her third medal in Paris, on the uneven bars.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/08/04/world/olympics-gymnastics-bars/sunisa-lee-vies-for-her-third-medal-in-paris-on-the-uneven-bars
