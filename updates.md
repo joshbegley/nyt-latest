@@ -1,3 +1,7 @@
+**Why a Black-and-White Feminist Film Was Bigger Than ‘Barbie’ in Italy**\
+`“There’s Still Tomorrow” tells a story of a feminism that everyone can agree on and enjoy.`\
+https://nytimes.com/2024/08/04/opinion/theres-still-tomorrow-paola-cortellesi.html
+
 **Twins send White Sox to 19th loss in a row; Carlos Correa talks injury, trade deadline**\
 `Correa had asked for pitching help at the trade deadline, but the front office didn't heed his advice.`\
 https://nytimes.com/athletic/5678836/2024/08/04/twins-white-sox-carlos-correa/
