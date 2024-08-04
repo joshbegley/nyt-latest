@@ -1,3 +1,7 @@
+**'This is my season - I just can’t wait to prove it,' says Mateo Joseph**\
+`Age 20, Mateo Joseph is confident he can be Leeds' main striker this season`\
+https://nytimes.com/athletic/5676166/2024/08/04/mateo-joseph-this-is-my-season/
+
 **Dodgers encouraged by Jack Flaherty's debut and get good news about their future**\
 `Flaherty delivered just the second quality start L.A. pitchers have logged in the last 38 days. Some injured Dodgers could return soon.`\
 https://nytimes.com/athletic/5679277/2024/08/04/dodgers-jack-flaherty/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/04/world/israel-hamas-hezbollah-iran-gaza/hezbo
 **Wrexham's final dress rehearsal all goes to plan before long-awaited return to League One**\
 `Twelve years ago Fleetwood broke Wrexham hearts. On Saturday, they got a small slice of revenge in their final friendly before new season`\
 https://nytimes.com/athletic/5678036/2024/08/04/wrexham-fleetwood-league-one/
-
-**Calafiori's Arsenal signing awakens a long-dormant Italian connection**\
-`Calafiori's arrival feels momentous for those of an Italo-Arsenal persuasion`\
-https://nytimes.com/athletic/5674460/2024/08/04/riccardo-calafiori-italy-arsenal-transfer/
 
