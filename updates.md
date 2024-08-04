@@ -1,4 +1,8 @@
 **At number retirement ceremony, Jim Leyland's human touch was on display**\
+`Saturday, Leyland displayed the same touch that made him a beloved figure in Detroit.`\
+https://nytimes.com/athletic/5678950/2024/08/03/jim-leyland-number-retirement/
+
+**At number retirement ceremony, Jim Leyland's human touch was on display**\
 `Saturday, Leyland displayed the same human touch that made him a beloved figure in Detroit.`\
 https://nytimes.com/athletic/5678950/2024/08/03/jim-leyland-number-retirement/
 
