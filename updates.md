@@ -1,3 +1,11 @@
+**Shares the Same View**\
+`Andy Walker makes his New York Times debut.`\
+https://nytimes.com/2024/08/04/crosswords/daily-puzzle-2024-08-05.html
+
+**How the 9/11 Plea Deal Came Undone**\
+`A case that had mostly drifted from public consciousness in 12 years of proceedings is back in the spotlight and no closer to trial.`\
+https://nytimes.com/2024/08/04/us/politics/sept-11-plea-agreement.html
+
 **Scottie Scheffler and the golden Olympic moment that can stand the test of time**\
 `Scheffler does not let himself be occupied by thoughts of legacy or star power. Instead he wins, rallying from 6 strokes down in Paris.`\
 https://nytimes.com/athletic/5680335/2024/08/04/scottie-scheffler-olympics-golf/
