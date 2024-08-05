@@ -1,3 +1,7 @@
+**Scoop City: Preseason Week 1 Watch Guide**\
+`The full schedule for Week 1 of the NFL preseason, with notes along the way.`\
+https://nytimes.com/athletic/5681477/2024/08/05/preseason-week-1-watch-guide-scoop-city/
+
 **Here’s what to know about the market meltdown.**\
 `A rout that began in Asia continued in Europe, and U.S. stocks are set to fall sharply. Japan’s benchmark index logged its worst single-day point decline.`\
 https://nytimes.com/live/2024/08/05/business/stocks-market-crash-economy/heres-what-to-know-about-the-market-meltdown
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/05/world/europe/russia-prisoner-swap-ilya-yashin.htm
 **Can the Higgs Boson Shine on Broadway?**\
 `A musical about particle physics is under development, with David Henry Hwang, the playwright behind “M. Butterfly.”`\
 https://nytimes.com/2024/08/05/science/higgs-boson-musical.html
-
-**49ers sophomore report card: Where things stand with Ji'Ayir Brown and the 2023 class**\
-`With Brown and Dee Winters leading the way, the early indication is that this year's second-year class is better overall than last year's.`\
-https://nytimes.com/athletic/5680414/2024/08/05/49ers-sophomores-jiayir-brown-jake-moody/
 
