@@ -1,3 +1,11 @@
+**U.N. Clears Half the Aid Workers Accused of Taking Part in the Oct. 7 Attack**\
+`Israel accused 19 UNRWA employees of playing a role in the Hamas-led raids that set off the war. Investigators cleared 10. The other nine were fired.`\
+https://nytimes.com/2024/08/05/world/middleeast/unrwa-oct-7-attack.html
+
+**Ex-Police Chief Will Be Charged After Raid on Kansas Newspaper, Prosecutors Say**\
+`The former chief, Gideon Cody, will be charged with interference with the judicial process, a felony, after he ordered the raid on The Marion County Record last year, prosecutors said.`\
+https://nytimes.com/2024/08/05/us/marion-police-kansas-newspaper-raid.html
+
 **Russian emissary visits Tehran at a tense moment as Iran asks for military aid.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/08/05/world/israel-iran-hezbollah-gaza/russian-emissary-visits-tehran-at-a-tense-moment-as-iran-asks-for-military-aid

@@ -1,3 +1,11 @@
+**U.N. Clears Half the Aid Workers Accused of Taking Part in the Oct. 7 Attack**\
+`Israel accused 19 UNRWA employees of playing a role in the Hamas-led raids that set off the war. Investigators cleared 10. The other nine were fired.`\
+https://nytimes.com/2024/08/05/world/middleeast/unrwa-oct-7-attack.html
+
+**Ex-Police Chief Will Be Charged After Raid on Kansas Newspaper, Prosecutors Say**\
+`The former chief, Gideon Cody, will be charged with interference with the judicial process, a felony, after he ordered the raid on The Marion County Record last year, prosecutors said.`\
+https://nytimes.com/2024/08/05/us/marion-police-kansas-newspaper-raid.html
+
 **Russian emissary visits Tehran at a tense moment as Iran asks for military aid.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/08/05/world/israel-iran-hezbollah-gaza/russian-emissary-visits-tehran-at-a-tense-moment-as-iran-asks-for-military-aid
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/08/05/arts/dance/breaking-paris-olympics.ht
 **Study Puts a $43 Billion Yearly Price Tag on Cancer Screening**\
 `The estimate focused on five cancers for which there is medically recommended screening — breast, cervical, colorectal, lung and prostate — and found that colonoscopies accounted for most of the costs.`\
 https://nytimes.com/2024/08/05/health/cancer-screening-tests-cost.html
-
-**Debby came ashore in North Florida but flooded the Gulf Coast farther south.**\
-`By Patricia Mazzei, Isabelle Taft and Elisabeth Parker`\
-https://nytimes.com/live/2024/weather/hurricane-debby-florida-storm/hurricane-debby-flood-florida-gulf-coast
-
-**My Favorite Simone Biles Moment Wasn’t When She Won Gold**\
-`Just because she makes winning look easy does not mean that it is.`\
-https://nytimes.com/2024/07/30/opinion/olympics-gymnastics-simone-biles.html
 
