@@ -1,3 +1,11 @@
+**After 2 a.m. run for girlfriend, Lyles coasts through 200m first round**\
+`Anyone hoping for some humility from Noah Lyles will appreciate the story he told Monday.`\
+https://nytimes.com/athletic/5682415/2024/08/05/noah-lyles-200m-olympics-first-round/
+
+**Violent U.K. Riots Pose Challenge to Keir Starmer’s New Government**\
+`The new Labour government’s strong law-and-order approach to the violence has mostly spared it from criticism, even from the Conservatives, who only recently left power. But challenges remain.`\
+https://nytimes.com/2024/08/05/world/europe/uk-riots-starmer.html
+
 **Hip-Hop Arrives at the Paris Olympics With Breaking’s Debut**\
 `Breaking spread across the globe in the decades after it originated in the streets of New York City. Its roots will be on display in Paris, if you know what to look for.`\
 https://nytimes.com/interactive/2024/08/05/arts/dance/breaking-paris-olympics.html
@@ -12,7 +20,7 @@ https://nytimes.com/live/2024/weather/hurricane-debby-florida-storm/hurricane-de
 
 **My Favorite Simone Biles Moment Wasn’t When She Won Gold**\
 `Just because she makes winning look easy does not mean that it is.`\
-https://nytimes.com/live/2024/07/30/opinion/thepoint/olympics-gymnastics-simone-biles
+https://nytimes.com/2024/07/30/opinion/olympics-gymnastics-simone-biles.html
 
 **Raiders training camp: Spotlight on the QBs intensifies, DJ Glaze steps up at RT**\
 `The Raiders’ preseason opener Saturday could shed some light on the QB competition, while an unlikely rookie is stepping up on the O-line.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/05/world/americas/mexico-journalist-killed-celaya.ht
 **Kennedy Fights to Stay on Ballot, but Everyone’s Talking About the Bear**\
 `Robert F. Kennedy Jr.’s disclosure that he had left a cub’s carcass in Central Park overshadowed his court battle to remain on New York State’s ballot this fall.`\
 https://nytimes.com/2024/08/05/nyregion/rfk-jr-bear-dumping-ny-ballot.html
-
-**She Thought Her Grip Was Unbreakable. Bangladeshis Would Prove Otherwise.**\
-`Prime Minister Sheikh Hasina, who once brought democratic hope to Bangladesh, turned increasingly autocratic and met her downfall in a crackdown on protesters.`\
-https://nytimes.com/2024/08/05/world/asia/bangladesh-protest-sheikh-hasina.html
-
-**Facing Mass Protests, Bangladesh Leader Quits, Setting Up Power Struggle**\
-`Demonstrators defied a curfew, expecting another in a series of bloody crackdowns, but instead Prime Minister Sheikh Hasina fled.`\
-https://nytimes.com/2024/08/05/world/asia/bangladesh-protests-hasina-resigns.html
 
