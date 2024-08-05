@@ -1,3 +1,11 @@
+**How Noah Lyles became Olympic 100m champion: A 300-page textbook, biomechanics and a stickman**\
+`Lyles is renowned as a strong finisher, but it was the work he put in on his start with a 75-year-old former Olympian that proved decisive`\
+https://nytimes.com/athletic/5680407/2024/08/05/lyles-100m-mann-stickman-biomechanics-start/
+
+**Manchester United's U.S. tour: Ten Hag support, new-look coaching staff, rock paper scissors**\
+`The Dutch manager has benefited from a show of unity from the new hierarchy with a revamped backroom staff helping to reinvigorate the squad`\
+https://nytimes.com/athletic/5680551/2024/08/05/manchester-united-us-tour-ten-hag/
+
 **This N.Y.C. Tourist Hub Has Become Trash-Strewn Chaos for Everyone**\
 `Eighth Avenue in Manhattan connects Broadway’s theaters to the Knicks at Madison Square Garden. But it is also crowded, dirty and sometimes dangerous.`\
 https://nytimes.com/2024/08/05/nyregion/street-wars-eighth-avenue.html
