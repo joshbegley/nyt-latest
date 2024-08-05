@@ -1,3 +1,7 @@
+**Live Updates: Bangladesh Protesters Call for Mass March After Deadly Crackdown**\
+`A student movement that began a month ago has turned into a broader challenge to Prime Minister Sheikh Hasina’s increasingly authoritarian rule.`\
+https://nytimes.com/live/2024/08/05/world/bangladesh-protests
+
 **Malick Yalcouye, Brighton's new 18-year-old midfielder with the talent to reach the top**\
 `Fabian Hurzeler, Brighton's new head coach, believes the midfielder has 'lots of potential to develop into a top-class player'`\
 https://nytimes.com/athletic/5668069/2024/08/05/malick-yalcouye-brighton-signing-analysis/
