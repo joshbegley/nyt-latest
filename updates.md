@@ -1,3 +1,7 @@
+**I Want to Free My Mother’s Killer From Death Row**\
+`We’re good at convicting and punishing people, but we need to learn how to forgive.`\
+https://nytimes.com/video/opinion/100000009574778/death-penalty-louisiana.html
+
 **U.S. wins mixed relay triathlon silver after photo finish drama**\
 `Taylor Knibb helped lead the United States to a dramatic silver medal in the mixed relay triathlon on Monday morning in Paris — but only after a photo finish at the line that initially saw them announced in third.`\
 https://nytimes.com/athletic/5681029/2024/08/05/triathlon-olympics-relay-result-photo-finish/

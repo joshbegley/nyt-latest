@@ -1,3 +1,7 @@
+**I Want to Free My Mother’s Killer From Death Row**\
+`We’re good at convicting and punishing people, but we need to learn how to forgive.`\
+https://nytimes.com/video/opinion/100000009574778/death-penalty-louisiana.html
+
 **U.S. wins mixed relay triathlon silver after photo finish drama**\
 `Taylor Knibb helped lead the United States to a dramatic silver medal in the mixed relay triathlon on Monday morning in Paris — but only after a photo finish at the line that initially saw them announced in third.`\
 https://nytimes.com/athletic/5681029/2024/08/05/triathlon-olympics-relay-result-photo-finish/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/05/nyregion/robin-davis-child-abuse-trial.html
 **MS-13 Killed Her Sister. That Was Just the Beginning of Her Pain.**\
 `After Kelsey Cuevas lost her sister Kayla, a driver ran over their mother at the site of Kayla’s memorial. The driver is set to be sentenced to probation.`\
 https://nytimes.com/2024/08/05/nyregion/ms-13-gang-long-island.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/08/05/crosswords/spelling-bee-forum.html
 
