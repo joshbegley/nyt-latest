@@ -1,40 +1,40 @@
+**The Choreographer Bringing Hope to the Stage and Beyond**\
+`Rachid Ouramdane, who presented a major new dance as part of the Cultural Olympiad, directs the Théâtre National de Chaillot in Paris. How does he do it all?`\
+https://nytimes.com/2024/08/05/arts/dance/rachid-ouramdane-cultural-olympiad-chaillot.html
+
+**I Want to Free My Mother’s Killer From Death Row**\
+`We’re good at convicting and punishing people, but we need to learn how to forgive.`\
+https://nytimes.com/2024/08/05/opinion/death-penalty-louisiana.html
+
+**The Latest Frontier in Housing Inequity? Pet Friendliness.**\
+`For renters, pet fees and breed and size restrictions make it hard to keep their families together in a tough market. Some lawmakers are listening.`\
+https://nytimes.com/2024/08/05/realestate/housing-inequity-pet-friendliness-laws.html
+
+**If You Can Do It, You Can Do It at Night**\
+`Travel adventures, from goat hikes to snorkeling, get even better when they’re done under the stars.`\
+https://nytimes.com/2024/08/05/travel/astrotourism-snorkeling-hiking-photography.html
+
+**Amarius Mims becoming the biggest story in Bengals’ camp**\
+`The 6-foot-8, 250-pound rookie first-round pick is stirring early optimism and could start in Week 1.`\
+https://nytimes.com/athletic/5680418/2024/08/05/amarius-mims-bengals-camp/
+
+**How Much Alcohol Is Too Much for a Driver?**\
+`Experts argue the U.S. drunk-driving limit is too high.`\
+https://nytimes.com/2024/08/05/well/eat/bac-limit-drunk-driving.html
+
+**A Poet Who Considers Timeless Topics, and Finds Ways to Make Them New**\
+`In his latest collection, the Pulitzer winner Carl Phillips relies on sinuous language to evoke love, heartache and the passing of the years.`\
+https://nytimes.com/2024/08/05/books/review/carl-phillips-scattered-snows-to-the-north-poems.html
+
+**Recruiting in Hawaii: The challenges — and perks — of mining the Aloha State**\
+`Utah leads the way among power-conference schools with 13 signees from Hawaii over the last 10 recruiting cycles.`\
+https://nytimes.com/athletic/5666586/2024/08/05/college-football-recruiting-hawaii/
+
+**As the unrest intensifies, all eyes are on Bangladesh’s army.**\
+`The military has a history of coups and counter coups. But in this showdown, it has seemed uncomfortable with the police crackdown on protesters.`\
+https://nytimes.com/2024/08/05/world/asia/bangladesh-army-protests.html
+
 **I Want to Free My Mother’s Killer From Death Row**\
 `We’re good at convicting and punishing people, but we need to learn how to forgive.`\
 https://nytimes.com/video/opinion/100000009574778/death-penalty-louisiana.html
-
-**U.S. wins mixed relay triathlon silver after photo finish drama**\
-`Taylor Knibb helped lead the United States to a dramatic silver medal in the mixed relay triathlon on Monday morning in Paris — but only after a photo finish at the line that initially saw them announced in third.`\
-https://nytimes.com/athletic/5681029/2024/08/05/triathlon-olympics-relay-result-photo-finish/
-
-**Corrections: Aug. 5, 2024**\
-`Corrections appearing in print on Monday, Aug. 5, 2024.`\
-https://nytimes.com/2024/08/05/pageoneplus/corrections-aug-5-2024.html
-
-**Here’s what to know about the storm and where it’s going.**\
-`By Isabelle Taft`\
-https://nytimes.com/live/2024/weather/hurricane-debby-florida/heres-what-to-know-about-the-storm-and-where-its-going
-
-**Live Updates: Hurricane Debby to Strike Florida’s Big Bend Region**\
-`The Category 1 storm is forecast to make landfall near the same stretch of coastline where Hurricane Idalia came ashore last year as a more powerful Category 3.`\
-https://nytimes.com/live/2024/weather/hurricane-debby-florida
-
-**How Noah Lyles became Olympic 100m champion: A 300-page textbook, biomechanics and a stickman**\
-`Lyles is renowned as a strong finisher, but it was the work he put in on his start with a 75-year-old former Olympian that proved decisive`\
-https://nytimes.com/athletic/5680407/2024/08/05/lyles-100m-mann-stickman-biomechanics-start/
-
-**This N.Y.C. Tourist Hub Has Become Trash-Strewn Chaos for Everyone**\
-`Eighth Avenue in Manhattan connects Broadway’s theaters to the Knicks at Madison Square Garden. But it is also crowded, dirty and sometimes dangerous.`\
-https://nytimes.com/2024/08/05/nyregion/street-wars-eighth-avenue.html
-
-**How 2024 Became the Zoom Election**\
-`Hastily assembled mega-rallies conducted over Zoom are raising millions to elect Kamala Harris, giving the videoconferencing app an unexpected role in this year’s campaign.`\
-https://nytimes.com/2024/08/05/technology/how-2024-became-the-zoom-election.html
-
-**He Took His 68-Year-Old Secret to Court and Finally Confronted His Ghost**\
-`Robin Davis spent a long career in finance and philanthropy haunted by what had happened to him as a boy. Could an unusual trial on Long Island help him find peace?`\
-https://nytimes.com/2024/08/05/nyregion/robin-davis-child-abuse-trial.html
-
-**MS-13 Killed Her Sister. That Was Just the Beginning of Her Pain.**\
-`After Kelsey Cuevas lost her sister Kayla, a driver ran over their mother at the site of Kayla’s memorial. The driver is set to be sentenced to probation.`\
-https://nytimes.com/2024/08/05/nyregion/ms-13-gang-long-island.html
 
