@@ -1,3 +1,7 @@
+**Myanmar Rebels Claim Regional Military Base in Major Victory**\
+`The seizure of the military’s northeastern command post gives the resistance control of a city and airport on a crucial trade corridor to China.`\
+https://nytimes.com/2024/08/05/world/asia/myanmar-rebels-lashio.html
+
 **How Mike Macdonald's impact has been seen in Seahawks defense at training camp**\
 `The new head coach has Seattle's defense adopting the versatile scheme that worked with the Ravens.`\
 https://nytimes.com/athletic/5679867/2024/08/05/seahawks-camp-defense-mike-macdonald/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5681188/2024/08/05/leeds-jonathan-rowe-transfer-nor
 **Elon Musk Revives Lawsuit Against OpenAI and Sam Altman**\
 `The Tesla chief executive has renewed claims that the A.I. start-up put profits and commercial interests ahead of the public good.`\
 https://nytimes.com/2024/08/05/technology/elon-musk-openai-lawsuit.html
-
-**Stephen Curry, LeBron James and the 'too small' action that unlocks Team USA's offense**\
-`Stephen Curry hasn't been shooting the ball well in these Olympics, but he's found other ways to help get Team USA's offense going.`\
-https://nytimes.com/athletic/5681139/2024/08/05/stephen-curry-lebron-james-too-small-team-usa-offense/
 
