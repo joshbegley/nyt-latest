@@ -1,3 +1,19 @@
+**Myanmar Rebels Claim Regional Military Base in Major Victory**\
+`The seizure of the military’s northeastern command post gives the resistance control of a city and airport on a crucial trade corridor to China.`\
+https://nytimes.com/2024/08/05/world/asia/myanmar-rebels-lashio.html
+
+**How Mike Macdonald's impact has been seen in Seahawks defense at training camp**\
+`The new head coach has Seattle's defense adopting the versatile scheme that worked with the Ravens.`\
+https://nytimes.com/athletic/5679867/2024/08/05/seahawks-camp-defense-mike-macdonald/
+
+**Here’s the latest on the presidential race.**\
+`By Nick Corasaniti`\
+https://nytimes.com/live/2024/08/05/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**What might the Sharks' lineup look like on opening night?**\
+`Things are bound to improve for the new-look Sharks, and they have some options with their forward lines.`\
+https://nytimes.com/athletic/5674656/2024/08/05/sharks-lineup-roster-2024-25/
+
 **Pentagon Hands Over Bases in Niger as Extremism Spreads in the Sahel**\
 `Relations between the two countries soured after a coup last year. Now the United States is scrambling to find new security partners.`\
 https://nytimes.com/2024/08/05/us/politics/us-military-withdrawal-niger.html
