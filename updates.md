@@ -1,3 +1,7 @@
+**Pentagon Hands Over Bases in Niger as Extremism Spreads in the Sahel**\
+`Relations between the two countries soured after a coup last year. Now the United States is scrambling to find new security partners.`\
+https://nytimes.com/2024/08/05/us/politics/us-military-withdrawal-niger.html
+
 **Stephen Curry, LeBron James and the 'too small' action that unlocks Team USA's offense**\
 `Stephen Curry hasn't been shooting the ball well in these Olympics, but he's found other ways to help get Team USA's offense going.`\
 https://nytimes.com/athletic/5681139/2024/08/05/stephen-curry-lebron-james-too-small-team-usa-offense/
