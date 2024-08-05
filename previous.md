@@ -1,3 +1,7 @@
+**Here’s what to know about the market meltdown.**\
+`A rout that began in Asia continued in Europe, and U.S. stocks are set to fall sharply. Japan’s benchmark index logged its worst single-day point decline.`\
+https://nytimes.com/live/2024/08/05/business/stocks-market-crash-economy/heres-what-to-know-about-the-market-meltdown
+
 **How the Warriors fit into the Lauri Markkanen deadlines and scenarios**\
 `What does Markkanen really want? That's the biggest unknown as the clock ticks toward the first deadline in this complicated situation.`\
 https://nytimes.com/athletic/5678958/2024/08/05/warriors-lauri-markkanen-trade-deadlines-scenarios/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/05/science/higgs-boson-musical.html
 **49ers sophomore report card: Where things stand with Ji'Ayir Brown and the 2023 class**\
 `With Brown and Dee Winters leading the way, the early indication is that this year's second-year class is better overall than last year's.`\
 https://nytimes.com/athletic/5680414/2024/08/05/49ers-sophomores-jiayir-brown-jake-moody/
-
-**The Author of ‘Red, White and Royal Blue’ Is Back, With More Spice and No Shame**\
-`Casey McQuiston’s debut proved that queer romance can be a hit. In their latest novel, “The Pairing,” sex doesn’t only sell; it’s also “beautiful and really soul affirming.”`\
-https://nytimes.com/2024/08/05/books/casey-mcquiston-the-pairing.html
 
