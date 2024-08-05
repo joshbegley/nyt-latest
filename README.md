@@ -1,3 +1,7 @@
+**America’s High Drunk-Driving Limit**\
+`We explore why it matters and whether the limit might change.`\
+https://nytimes.com/2024/08/05/briefing/drunk-driving-limit.html
+
 **Jorge Cuenca to Fulham: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we break down Jorge Cuenca's move from Villarreal to Fulham`\
 https://nytimes.com/athletic/5673966/2024/08/05/jorge-cuenca-to-fulham-the-athletic-500-transfer-ratings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5680055/2024/08/05/mavericks-fan-survey-results-202
 **She Used to Be Friends With JD Vance**\
 `Why a friend of Donald Trump’s running mate from law school decided to speak out against him.`\
 https://nytimes.com/2024/08/05/podcasts/the-daily/vance-friend-sofia-nelson.html
-
-**'I worked my ass off': Is Packers' AJ Dillon primed for a bounce-back season?**\
-`Dillon is no stranger to his current situation because he was once on the other end of it.`\
-https://nytimes.com/athletic/5679560/2024/08/05/aj-dillon-packers-bounceback/
 
