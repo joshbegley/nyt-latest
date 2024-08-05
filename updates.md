@@ -1,3 +1,7 @@
+**Mexican Reporter Gunned Down, Even With a Security Detail at His Side**\
+`Alejandro Martínez had received so many threats that the Mexican government appointed him protection. On Sunday, he was shot and killed and his bodyguards wounded.`\
+https://nytimes.com/2024/08/05/world/americas/mexico-journalist-killed-celaya.html
+
 **Kennedy Fights to Stay on Ballot, but Everyone’s Talking About the Bear**\
 `Robert F. Kennedy Jr.’s disclosure that he had left a cub’s carcass in Central Park overshadowed his court battle to remain on New York State’s ballot this fall.`\
 https://nytimes.com/2024/08/05/nyregion/rfk-jr-bear-dumping-ny-ballot.html

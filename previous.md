@@ -1,3 +1,7 @@
+**Mexican Reporter Gunned Down, Even With a Security Detail at His Side**\
+`Alejandro Martínez had received so many threats that the Mexican government appointed him protection. On Sunday, he was shot and killed and his bodyguards wounded.`\
+https://nytimes.com/2024/08/05/world/americas/mexico-journalist-killed-celaya.html
+
 **Kennedy Fights to Stay on Ballot, but Everyone’s Talking About the Bear**\
 `Robert F. Kennedy Jr.’s disclosure that he had left a cub’s carcass in Central Park overshadowed his court battle to remain on New York State’s ballot this fall.`\
 https://nytimes.com/2024/08/05/nyregion/rfk-jr-bear-dumping-ny-ballot.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5682316/2024/08/05/oriel-romeu-returns-girona/
 **Jenna Ellis, Former Trump Lawyer, Will Cooperate in Arizona Election Fraud Case**\
 `Ms. Ellis is the first of 18 defendants to reach a deal with prosecutors in a case that charges them with trying to overturn Arizona’s election results in 2020.`\
 https://nytimes.com/2024/08/05/us/jenna-ellis-trump-arizona-election-fraud.html
-
-**Second Gentleman Merchandise? The Harris Campaign Leans In.**\
-`An old photo of Doug Emhoff caught the internet’s attention, and Kamala Harris’s staff seized a fund-raising opportunity.`\
-https://nytimes.com/2024/08/05/style/doug-emhoff-dunit-merchandise.html
 
