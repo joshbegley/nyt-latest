@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5589595/2024/08/05/manuel-ugarte-manchester-united/
 https://nytimes.com/athletic/5682121/2024/08/05/iba-olympic-boxing-controversy-imane-khelif/
 
 **Google Violated Antitrust Laws in Online Search, Judge Rules**\
-`The ruling by Judge Amit P. Mehta was the first antitrust decision of the modern internet era in a case against a technology giant.`\
+`The landmark ruling by Judge Amit P. Mehta was the first antitrust decision of the modern internet era in a case against a technology giant.`\
 https://nytimes.com/2024/08/05/technology/google-antitrust-ruling.html
 
 **SuperFlex league draft strategy: When to take your second QB, when to stack and where to find value**\
