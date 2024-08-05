@@ -1,3 +1,7 @@
+**Giants QB Daniel Jones, GM Joe Schoen involved in fights at joint practice with Lions**\
+`There were so many fights Monday, it was hard to keep track of how many there actually were. `\
+https://nytimes.com/athletic/5681909/2024/08/05/new-york-giants-detroit-lions-joint-practice-fights-daniel-jones/
+
 **The Stock Market Dropped, but Don’t Freak Out**\
 `For the amateur investor, it makes sense to play the long game.`\
 https://nytimes.com/2024/08/05/opinion/stock-market-drop.html
@@ -28,13 +32,9 @@ https://nytimes.com/2024/08/05/us/politics/kamala-harris-donald-trump-2024-campa
 
 **Crowds swarm prime minister’s residence after Bangladesh leader flees.**\
 `By Eve Sampson`\
-https://nytimes.com/live/2024/08/05/world/bangladesh-protests/crowds-swarm-prime-ministers-residence-after-bangladesh-leader-flees
+https://nytimes.com/2024/08/05/world/asia/bangladesh-protests-looting-prime-minister-residence.html
 
 **Barbara Howar, Irreverent Memoirist of Washington Society, Dies at 89**\
 `She was already a prominent hostess in the nation’s capital when her uninhibited, best-selling 1973 memoir, “Laughing All the Way,” made her a star.`\
 https://nytimes.com/2024/08/05/books/barbara-howar-dead.html
-
-**Trojans bolster line with 4-star OT Carde Smith**\
-`The Trojans have commitments from 12 blue-chip prospects in the 2025 cycle — only three from California.`\
-https://nytimes.com/athletic/5681940/2024/08/05/usc-football-recruiting-carde-smith/
 
