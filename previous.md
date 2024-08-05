@@ -19,7 +19,7 @@ https://nytimes.com/2024/08/05/business/stock-market-advice.html
 https://nytimes.com/2024/08/05/business/nvidia-stocks.html
 
 **Traders Wonder if the Fed Could Make an Emergency Rate Cut as Markets Tumble**\
-`The Federal Reserve only cuts rates outside of regularly scheduled meetings in extreme cases. Some investors think this could merit an emergency move, though others doubt it.`\
+`The Federal Reserve only cuts rates outside of scheduled meetings in extreme cases. Some investors think this could merit an emergency move, though others doubt it.`\
 https://nytimes.com/2024/08/05/business/stock-market-fed-rate-cut.html
 
 **Rams' Puka Nacua sidelined with knee injury**\

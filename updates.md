@@ -1,3 +1,7 @@
+**Traders Wonder if the Fed Could Make an Emergency Rate Cut as Markets Tumble**\
+`The Federal Reserve only cuts rates outside of scheduled meetings in extreme cases. Some investors think this could merit an emergency move, though others doubt it.`\
+https://nytimes.com/2024/08/05/business/stock-market-fed-rate-cut.html
+
 **Bitcoin and other cryptocurrencies plunge, mirroring global markets.**\
 `The precipitous falls show that digital currencies remain vulnerable to the same broader economic forces that affect technology stocks and risky investments.`\
 https://nytimes.com/2024/08/05/business/bitcoin-stock-market.html
