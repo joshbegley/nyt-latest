@@ -1,3 +1,7 @@
+**Bloomberg Disciplines Journalists Over Prisoner Swap Article**\
+`The news organization said it had broken an embargo about the news in a violation of its editorial standards.`\
+https://nytimes.com/2024/08/05/business/media/bloomberg-russia-prisoner-swap-gershkovich.html
+
 **Vance Is Touring the Same Battleground States as Harris This Week**\
 `The Republican vice-presidential nominee will hold events that overlap with the stops Vice President Kamala Harris has planned, sometimes even in the same city.`\
 https://nytimes.com/2024/08/05/us/politics/jd-vance-kamala-harris-campaign-schedule.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/weather/hurricane-debby-florida-storm/hurricane-de
 **Former Trump Adviser Kellyanne Conway Lobbies for Ukrainian Interests**\
 `The former campaign aide indicated in a Justice Department filing that she will be paid $50,000 a month by an oligarch to seek support for Ukraine.`\
 https://nytimes.com/2024/08/05/us/politics/kellyanne-conway-ukraine-lobbying.html
-
-**Until Saturday: Who’s overrated, underrated in Coaches Poll**\
-`Welcome to Until Saturday, the five-star college football newsletter: Michigan's overrated, Missouri's underrated in Coaches Poll.`\
-https://nytimes.com/athletic/5681158/2024/08/05/college-football-coaches-poll-until-saturday/
 

@@ -1,3 +1,7 @@
+**Vance Is Touring the Same Battleground States as Harris This Week**\
+`The Republican vice-presidential nominee will hold events that overlap with the stops Vice President Kamala Harris has planned, sometimes even in the same city.`\
+https://nytimes.com/2024/08/05/us/politics/jd-vance-kamala-harris-campaign-schedule.html
+
 **A couple’s carport looked dry right after Debby. Then the Steinhatchee River rose.**\
 `By Valerie Crowder`\
 https://nytimes.com/live/2024/weather/hurricane-debby-florida-storm/debby-steinhatchee
