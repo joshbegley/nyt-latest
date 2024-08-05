@@ -1,3 +1,11 @@
+**Olympic swimming takeways: The U.S. has work to do, and Léon Marchand arrives**\
+`Swimming is in the books at the 2024 Paris Olympics. Here's our takeaways from the week at La Défense Arena.`\
+https://nytimes.com/athletic/5681101/2024/08/05/swimming-2024-paris-olympics-leon-marchand-katie-ledecky-takeaways/
+
+**Newcastle submit bid for Palace defender Guehi**\
+`Newcastle United have submitted an opening bid for Crystal Palace defender Marc Guehi.`\
+https://nytimes.com/athletic/5676461/2024/08/05/marc-guehi-newcastle-united/
+
 **Virginia Man Threatened to Kill Kamala Harris, Authorities Say**\
 `Frank Carillo, 66, also made threats against President Biden and Christopher A. Wray, the F.B.I. director, according to federal prosecutors.`\
 https://nytimes.com/2024/08/05/us/politics/virginia-man-charged-harris-threat.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5671294/2024/08/05/niclas-fullkrug-to-west-ham-the-
 **The Sahm Rule points to a recession. Here’s what the rule maker thinks.**\
 `Claudia Sahm, the economist who devised a key indicator, says the economy is not in a recession, but notes it could be soon if policymakers don’t act.`\
 https://nytimes.com/live/2024/08/05/business/stocks-market-crash-economy/the-sahm-rule-points-to-a-recession-heres-what-the-rule-maker-thinks
-
-**Debby Drenches Florida in Slow Crawl Northeast**\
-`The storm made landfall near Steinhatchee, Fla., as a Category 1 hurricane before weakening back into a tropical storm.`\
-https://nytimes.com/video/us/100000009611543/tropical-storm-hurricane-debby-florida.html
-
-**Notre Dame starting OT out for season with injury**\
-`Notre Dame announced Monday that projected starting left tackle Charles Jagusah tore his right pectoralis muscle and will miss the season.`\
-https://nytimes.com/athletic/5681917/2024/08/05/charles-jagusah-notre-dame-injury-season/
 

@@ -1,3 +1,11 @@
+**Olympic swimming takeways: The U.S. has work to do, and Léon Marchand arrives**\
+`Swimming is in the books at the 2024 Paris Olympics. Here's our takeaways from the week at La Défense Arena.`\
+https://nytimes.com/athletic/5681101/2024/08/05/swimming-2024-paris-olympics-leon-marchand-katie-ledecky-takeaways/
+
+**Newcastle submit bid for Palace defender Guehi**\
+`Newcastle United have submitted an opening bid for Crystal Palace defender Marc Guehi.`\
+https://nytimes.com/athletic/5676461/2024/08/05/marc-guehi-newcastle-united/
+
 **Virginia Man Threatened to Kill Kamala Harris, Authorities Say**\
 `Frank Carillo, 66, also made threats against President Biden and Christopher A. Wray, the F.B.I. director, according to federal prosecutors.`\
 https://nytimes.com/2024/08/05/us/politics/virginia-man-charged-harris-threat.html
