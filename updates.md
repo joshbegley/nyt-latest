@@ -1,3 +1,19 @@
+**Malick Yalcouye, Brighton's new 18-year-old midfielder with the talent to reach the top**\
+`Fabian Hurzeler, Brighton's new head coach, believes the midfielder has 'lots of potential to develop into a top-class player'`\
+https://nytimes.com/athletic/5668069/2024/08/05/malick-yalcouye-brighton-signing-analysis/
+
+**The government’s lethal response brings new risks.**\
+`By Saif Hasnat and Mujib Mashal`\
+https://nytimes.com/live/2024/08/05/world/bangladesh-protests/the-governments-lethal-response-brings-new-risks
+
+**Here are the latest developments.**\
+`By Mujib Mashal and Saif Hasnat`\
+https://nytimes.com/live/2024/08/05/world/bangladesh-protests/here-are-the-latest-developments
+
+**Live Updates: Bangladesh Protesters Call for Mass March After Deadly Crackdown**\
+`A student movement that began a month ago has turned into a broader challenge of Prime Minister Sheikh Hasina’s increasingly authoritarian rule.`\
+https://nytimes.com/live/2024/08/05/world/bangladesh-protests
+
 **The five games Arsenal failed to score in last season: What lessons can be learned**\
 `Why were Arsenal goalless in these games — and how can that particular small margin be improved next season`\
 https://nytimes.com/athletic/5646944/2024/08/05/arsenal-five-games-failed-score-2023-2024/
