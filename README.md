@@ -1,3 +1,15 @@
+**Stephen Curry, LeBron James and the 'too small' action that unlocks Team USA's offense**\
+`Stephen Curry hasn't been shooting the ball well in these Olympics, but he's found other ways to help get Team USA's offense going.`\
+https://nytimes.com/athletic/5681139/2024/08/05/stephen-curry-lebron-james-and-the-too-small-action-that-unlocks-team-usas-offense/
+
+**Tennis Briefing: How Machac and Siniakova won gold - and tension between prestige and points**\
+`How the Olympic tennis showed that doubles can be treated as a different sport, not a poor relation to singles`\
+https://nytimes.com/athletic/5679500/2024/08/05/tennis-briefing-machac-and-siniakovas-doubles-relationship-washington-open-winners/
+
+**Rebeca Andrade rose from poverty in Brazil to Olympic podiums in Paris.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/08/05/world/olympics-gymnastics-beam-floor-biles/rebeca-andrade-rose-from-poverty-in-brazil-to-olympic-podiums-in-paris
+
 **At 27, Simone Biles is the most decorated U.S. gymnast in Olympic history.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/08/05/world/olympics-gymnastics-beam-floor-biles/at-27-simone-biles-is-the-most-decorated-us-gymnast-in-olympic-history
@@ -26,12 +38,3 @@ https://nytimes.com/athletic/5680625/2024/08/05/dodgers-kike-hernandez-river-rya
 `Arne Slot says Liverpool have “their eye open to see what’s available” in the transfer market — but insists it is hard to improve the squad he inherited from Jurgen Klopp.`\
 https://nytimes.com/athletic/5681122/2024/08/05/arne-slot-liverpool-transfer-news/
 
-**Sunisa Lee vies for her fourth medal in Paris, on the balance beam.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/08/05/world/olympics-gymnastics-beam-floor-biles/sunisa-lee-vies-for-her-fourth-medal-in-paris-on-the-balance-beam
-
-**Netanyahu’s Spat with Biden Echoes Dispute With Israel’s Security Chiefs**\
-`Senior Israeli security officials have grown frustrated with Prime Minister Benjamin Netanyahu over his perceived resistance to a swift cease-fire deal with Hamas.`\
-https://nytimes.com/live/2024/08/05/world/israel-iran-hezbollah-gaza
-
-**Diplomatic efforts aim to cool tensions in the region, and other news.**\
