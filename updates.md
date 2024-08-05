@@ -1,3 +1,7 @@
+**CrowdStrike Hits Back in Heated Spat With Delta Over Global Tech Outage**\
+`The cybersecurity company said the airline should take the blame after it struggled to rebound from a software outage that caused disruptions worldwide.`\
+https://nytimes.com/2024/08/05/business/dealbook/crowdstrike-delta-tech-outage.html
+
 **The prime minister’s crackdown rained carnage on Bangladesh.**\
 `By Mujib Mashal`\
 https://nytimes.com/live/2024/08/05/world/bangladesh-protests/the-prime-ministers-crackdown-rained-carnage-on-bangladesh
