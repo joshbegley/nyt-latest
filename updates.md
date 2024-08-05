@@ -1,3 +1,7 @@
+**Crowds swarm prime minister’s residence after Bangladesh leader flees**\
+`Looters made off with furniture, bedding and potted plants`\
+https://nytimes.com/2024/08/05/world/asia/bangladesh-protests-looting-prime-minister-residence.html
+
 **Giants QB Daniel Jones, GM Joe Schoen involved in fights at joint practice with Lions**\
 `There were so many fights Monday, it was hard to keep track of how many there actually were. `\
 https://nytimes.com/athletic/5681909/2024/08/05/new-york-giants-detroit-lions-joint-practice-fights-daniel-jones/

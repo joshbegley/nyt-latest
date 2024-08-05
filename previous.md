@@ -30,8 +30,8 @@ https://nytimes.com/athletic/5681917/2024/08/05/charles-jagusah-notre-dame-injur
 `This presidential campaign is playing out in fast forward. Strategists in both parties say speed is likely to benefit Vice President Kamala Harris.`\
 https://nytimes.com/2024/08/05/us/politics/kamala-harris-donald-trump-2024-campaign.html
 
-**Crowds swarm prime minister’s residence after Bangladesh leader flees.**\
-`By Eve Sampson`\
+**Crowds swarm prime minister’s residence after Bangladesh leader flees**\
+`Looters made off with furniture, bedding and potted plants`\
 https://nytimes.com/2024/08/05/world/asia/bangladesh-protests-looting-prime-minister-residence.html
 
 **Barbara Howar, Irreverent Memoirist of Washington Society, Dies at 89**\
