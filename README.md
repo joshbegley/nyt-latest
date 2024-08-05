@@ -1,3 +1,11 @@
+**Adin Ross Gives Trump a Cybertruck, a Rolex and Access to a Heavily Male Audience**\
+`The 23-year-old internet celebrity is enormously popular with a testosterone-heavy demographic that the former president sees as critical to his re-election chances.`\
+https://nytimes.com/2024/08/05/us/politics/trump-adin-ross-livestream-gifts.html
+
+**Sanchez considering return to Udinese**\
+`Chile forward Alexis Sanchez is considering an offer from his former club Udinese.`\
+https://nytimes.com/athletic/5682593/2024/08/05/alexis-sanchez-udinese/
+
 **Bloomberg Disciplines Journalists Over Prisoner Swap Article**\
 `The news organization said it had broken an embargo about the news in a violation of its editorial standards.`\
 https://nytimes.com/2024/08/05/business/media/bloomberg-russia-prisoner-swap-gershkovich.html
@@ -18,8 +26,8 @@ https://nytimes.com/2024/08/05/briefing/stocks-tumbled-over-fears-of-a-us-econom
 `Some city leaders are challenging the re-election of an Indian American congressman.`\
 https://nytimes.com/live/2024/07/30/opinion/thepoint/detroit-district-black-seat
 
-**U.N. Clears Half the Aid Workers Accused of Taking Part in the Oct. 7 Attack**\
-`Israel accused 19 UNRWA employees of playing a role in the Hamas-led raids that set off the war. Investigators cleared 10. The other nine were fired.`\
+**U.N. Fires Nine Aid Workers Accused of Taking Part in Oct. 7 Attack, but Clears 10 Others**\
+`Israel accused 19 UNRWA employees of playing a role in the Hamas-led raids that set off the war. Investigators cleared 10 for lack of evidence, but said the other nine “may have been involved.”`\
 https://nytimes.com/2024/08/05/world/middleeast/unrwa-oct-7-attack.html
 
 **Ex-Police Chief Will Be Charged After Raid on Kansas Newspaper, Prosecutors Say**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/05/us/marion-police-kansas-newspaper-raid.html
 **Russian emissary visits Tehran at a tense moment as Iran asks for military aid.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/08/05/world/israel-iran-hezbollah-gaza/russian-emissary-visits-tehran-at-a-tense-moment-as-iran-asks-for-military-aid
-
-**Cedar Key, Fla., walloped by Idalia last year, faces another recovery after Debby.**\
-`By Abigail Geiger`\
-https://nytimes.com/live/2024/weather/hurricane-debby-florida-storm/hurricane-debby-cedar-key-florida-idalia
-
-**Former Trump Adviser Kellyanne Conway Lobbies for Ukrainian Interests**\
-`The former campaign aide indicated in a Justice Department filing that she will be paid $50,000 a month by an oligarch to seek support for Ukraine.`\
-https://nytimes.com/2024/08/05/us/politics/kellyanne-conway-ukraine-lobbying.html
 
