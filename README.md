@@ -1,3 +1,11 @@
+**Raiders training camp: Spotlight on the QBs intensifies, DJ Glaze steps up at RT**\
+`The Raiders’ preseason opener Saturday could shed some light on the QB competition, while an unlikely rookie is stepping up on the O-line.`\
+https://nytimes.com/athletic/5682045/2024/08/05/raiders-aidan-oconnell-gardner-minshew-dj-glaze/
+
+**Tuesday Briefing: Global Markets Fell**\
+`Plus, LeBron James at the Olympics.`\
+https://nytimes.com/2024/08/05/briefing/06ambriefing-asia-global-stocks-bangladesh-harris.html
+
 **Mexican Reporter Gunned Down, Even With a Security Detail at His Side**\
 `Alejandro Martínez had received so many threats that the Mexican government appointed him protection. On Sunday, he was shot and killed and his bodyguards wounded.`\
 https://nytimes.com/2024/08/05/world/americas/mexico-journalist-killed-celaya.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/05/world/olympics/imane-khelif-lin-yuting-testing-bo
 **Sifan Hassan begins Olympic treble with silver in 5,000 meters**\
 `With the 5,000 out of the way, Hassan will shift her attention to the 10,000 meters, which will take place on Friday night.`\
 https://nytimes.com/athletic/5682267/2024/08/05/sifan-hassan-womens-5000-meters/
-
-**Romeu returns to Girona on loan from Barcelona**\
-`Oriol Romeu has joined Girona on a season-long loan deal for 2024-25, the club have confirmed.`\
-https://nytimes.com/athletic/5682316/2024/08/05/oriel-romeu-returns-girona/
-
-**Jenna Ellis, Former Trump Lawyer, Will Cooperate in Arizona Election Fraud Case**\
-`Ms. Ellis is the first of 18 defendants to reach a deal with prosecutors in a case that charges them with trying to overturn Arizona’s election results in 2020.`\
-https://nytimes.com/2024/08/05/us/jenna-ellis-trump-arizona-election-fraud.html
 
