@@ -1,3 +1,11 @@
+**Tropical Storm Debby Barrels Toward Florida**\
+`Tropical Storm Debby brought lashing winds and rain, as the storm was expected to rapidly gain strength and make landfall as a hurricane over Florida’s Big Bend coast.`\
+https://nytimes.com/video/us/100000009610974/florida-tropical-storm-debby.html
+
+**Brandon Marsh and the baseball gods help the Phillies snag a much-needed win**\
+`"I literally had my arms out and the baseball gods put the ball right in my glove," Marsh said of his miracle catch. Whatever it takes.`\
+https://nytimes.com/athletic/5680769/2024/08/04/brandon-marsh-catch-phillies-win-mariners/
+
 **Jesse Minter's vision comes to life in dominant joint practice vs. Rams**\
 `The edge rushers shined as the defense forced Matthew Stafford and company into a day full of turnovers.`\
 https://nytimes.com/athletic/5680699/2024/08/04/chargers-defense-joint-practice-rams/
