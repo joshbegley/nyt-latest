@@ -1,3 +1,7 @@
+**2024 Presidential Election Calendar**\
+`Here are important dates and voting deadlines for the 2024 election.`\
+https://nytimes.com/interactive/2024/08/05/us/elections/2024-election-calendar.html
+
 **Trump’s Surreal Summer, in Photos**\
 `Six images that tell the story of Trump’s wild summer.`\
 https://nytimes.com/2024/08/05/us/politics/trump-summer-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/05/briefing/stocks-tumbled-over-fears-of-a-us-econom
 **U.S. Troops in Iraq Are Wounded in Rocket Attack on Air Base**\
 `The attack late Monday resembled previous ones carried out by Iraqi armed groups, backed by Iran, which have targeted the base repeatedly over the past year.`\
 https://nytimes.com/2024/08/05/world/middleeast/iraq-us-troops-iran-attack.html
-
-**Adin Ross Gives Trump a Cybertruck, a Rolex and Access to a Heavily Male Audience**\
-`The 23-year-old internet celebrity is enormously popular with a testosterone-heavy demographic that the former president sees as critical to his bid for office.`\
-https://nytimes.com/2024/08/05/us/politics/trump-adin-ross-livestream-gifts.html
 
