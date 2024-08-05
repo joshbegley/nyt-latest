@@ -1,3 +1,11 @@
+**Laurie Hernandez is NBC's breakout broadcasting star of the Paris Olympics**\
+`With her recent connection to the sport, Laurie Hernandez on gymnastics has been a major plus for NBC's broadcast.`\
+https://nytimes.com/athletic/5678207/2024/08/05/laurie-hernandez-nbc-gymnastics-paris-olympics/
+
+**C. Notes: Reds' Hunter Greene progressing from All-Star to Cy Young Award candidate**\
+`Former Reds catcher Curt Casali was impressed by Greene's latest effort, which gave Greene a 0.35 ERA in his last four starts.`\
+https://nytimes.com/athletic/5680330/2024/08/05/reds-hunter-greene-cy-young-award-potential/
+
 **Traffic Stop Data Can Shape Policy. It’s Often Missing.**\
 `Areas with good data often have policy debates that are not possible in places where poor data makes it hard to know what’s going on.`\
 https://nytimes.com/2024/08/05/upshot/traffic-stops-police-data.html
