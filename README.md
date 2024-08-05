@@ -1,3 +1,7 @@
+**Vance Is Touring the Same Battleground States as Harris This Week**\
+`The Republican vice-presidential nominee will hold events that overlap with the stops Vice President Kamala Harris has planned, sometimes even in the same city.`\
+https://nytimes.com/2024/08/05/us/politics/jd-vance-kamala-harris-campaign-schedule.html
+
 **A couple’s carport looked dry right after Debby. Then the Steinhatchee River rose.**\
 `By Valerie Crowder`\
 https://nytimes.com/live/2024/weather/hurricane-debby-florida-storm/debby-steinhatchee
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/05/us/politics/kellyanne-conway-ukraine-lobbying.htm
 **Until Saturday: Who’s overrated, underrated in Coaches Poll**\
 `Welcome to Until Saturday, the five-star college football newsletter: Michigan's overrated, Missouri's underrated in Coaches Poll.`\
 https://nytimes.com/athletic/5681158/2024/08/05/college-football-coaches-poll-until-saturday/
-
-**After 2 a.m. run for girlfriend, Lyles coasts through 200m first round**\
-`Anyone hoping for some humility from Noah Lyles will appreciate the story he told Monday.`\
-https://nytimes.com/athletic/5682415/2024/08/05/noah-lyles-200m-olympics-first-round/
 
