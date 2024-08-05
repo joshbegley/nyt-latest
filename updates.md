@@ -1,3 +1,7 @@
+**Chargers DC Jesse Minter's vision comes to life in dominant joint practice vs. Rams**\
+`The edge rushers shined as the defense forced Matthew Stafford and company into a day full of turnovers.`\
+https://nytimes.com/athletic/5680699/2024/08/04/chargers-defense-joint-practice-rams/
+
 **How Noah Lyles Won the Men’s 100-Meter Gold by a Fraction**\
 `Noah Lyles of the United States beat Jamaica’s Kishane Thompson by five-thousandths of a second to win gold in the 100-meter final.`\
 https://nytimes.com/interactive/2024/08/04/sports/olympics/mens-100-noah-lyles-kishane-thompson.html
