@@ -1,3 +1,7 @@
+**Manchester United's U.S. tour: Ten Hag support, a new look coaching staff, and rock paper scissors**\
+`The Dutch manager has benefited from a show of unity from the new hierarchy with a revamped backroom staff helping to reinvigorate the squad`\
+https://nytimes.com/athletic/5680551/2024/08/05/manchester-united-us-tour-ten-hag/
+
 **Word of the Day: labyrinthine**\
 `This word has appeared in 61 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/05/learning/word-of-the-day-labyrinthine.html
