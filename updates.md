@@ -1,3 +1,7 @@
+**USWNT's Emma Hayes says all players trained ahead of Olympics semifinal: 'It's a great sign'**\
+`Several players were dealing with knocks heading into the semifinal.`\
+https://nytimes.com/athletic/5681488/2024/08/05/uswnt-emma-hayes-players-training/
+
 **PSG confirm Neves signing from Benfica**\
 `Paris Saint-Germain have confirmed the signing of Joao Neves from Benfica.`\
 https://nytimes.com/athletic/5681394/2024/08/05/joao-neves-psg-transfer/
