@@ -1,3 +1,11 @@
+**Here’s what to know about the storm and where it’s going.**\
+`By Isabelle Taft`\
+https://nytimes.com/live/2024/weather/hurricane-debby-florida/heres-what-to-know-about-the-storm-and-where-its-going
+
+**Live Updates: Hurricane Debby to Strike Florida’s Big Bend Region**\
+`The Category 1 storm is forecast to make landfall near the same stretch of coastline where Hurricane Idalia came ashore last year as a more powerful Category 3.`\
+https://nytimes.com/live/2024/weather/hurricane-debby-florida
+
 **How Noah Lyles became Olympic 100m champion: A 300-page textbook, biomechanics and a stickman**\
 `Lyles is renowned as a strong finisher, but it was the work he put in on his start with a 75-year-old former Olympian that proved decisive`\
 https://nytimes.com/athletic/5680407/2024/08/05/lyles-100m-mann-stickman-biomechanics-start/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/05/learning/word-of-the-day-labyrinthine.html
 **Manchester United's U.S. tour: Ten Hag support, new-look coaching staff, rock paper scissors**\
 `The Dutch manager has benefited from a show of unity from the new hierarchy with a revamped backroom staff helping to reinvigorate the squad`\
 https://nytimes.com/athletic/5680551/2024/08/05/manchester-united-us-tour-ten-hag/
-
-**Samsung Employees Return to Work After Strike Fails to Win Concessions**\
-`The indefinite strike, the first in the electronics company’s history, comprised only a sliver of its labor force and lasted less than a month.`\
-https://nytimes.com/2024/08/05/business/samsung-workers-end-strike.html
-
-**Markets Around the World Are Jolted by Fears of Slowing U.S. Growth**\
-`A rout that began in Asia continued in Europe, and U.S. stocks are set to fall. Japan’s benchmark index logged its worst single-day point decline.`\
-https://nytimes.com/2024/08/05/business/global-stocks.html
 
