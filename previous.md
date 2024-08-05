@@ -1,4 +1,12 @@
-**The prime minister’s crackdown rained carnage on Bangladesh.**\
+**How the Warriors fit into the Lauri Markkanen deadlines and scenarios**\
+`What does Markkanen really want? That's the biggest unknown as the clock ticks toward the first deadline in this complicated situation.`\
+https://nytimes.com/athletic/5678958/2024/08/05/warriors-lauri-markkanen-trade-deadlines-scenarios/
+
+**Middlesbrough in advanced talks to sign Man City's Hamilton**\
+`Middlesbrough are in advanced talks to sign Micah Hamilton from Manchester City.`\
+https://nytimes.com/athletic/5681454/2024/08/05/micah-hamilton-middlesbrough-man-city/
+
+**How the prime minister’s crackdown weakened her grip on power.**\
 `By Mujib Mashal`\
 https://nytimes.com/live/2024/08/05/world/bangladesh-protests/the-prime-ministers-crackdown-rained-carnage-on-bangladesh
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5680414/2024/08/05/49ers-sophomores-jiayir-brown-ja
 **The Author of ‘Red, White and Royal Blue’ Is Back, With More Spice and No Shame**\
 `Casey McQuiston’s debut proved that queer romance can be a hit. In their latest novel, “The Pairing,” sex doesn’t only sell; it’s also “beautiful and really soul affirming.”`\
 https://nytimes.com/2024/08/05/books/casey-mcquiston-the-pairing.html
-
-**Pope Francis Names New Leader for Boston Archdiocese**\
-`Bishop Richard Henning will succeed Cardinal Seán P. O’Malley, one of the pope’s most trusted allies, who is retiring.`\
-https://nytimes.com/2024/08/05/us/pope-francis-boston-archdiocese-archbishop-henning.html
-
-**Here’s what to watch in the floor exercise final.**\
-`By Maggie Astor and Juliet Macur`\
-https://nytimes.com/live/2024/08/05/world/olympics-gymnastics-beam-floor-biles/heres-what-to-watch-in-the-floor-final
 

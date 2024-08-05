@@ -1,3 +1,15 @@
+**How the Warriors fit into the Lauri Markkanen deadlines and scenarios**\
+`What does Markkanen really want? That's the biggest unknown as the clock ticks toward the first deadline in this complicated situation.`\
+https://nytimes.com/athletic/5678958/2024/08/05/warriors-lauri-markkanen-trade-deadlines-scenarios/
+
+**Middlesbrough in advanced talks to sign Man City's Hamilton**\
+`Middlesbrough are in advanced talks to sign Micah Hamilton from Manchester City.`\
+https://nytimes.com/athletic/5681454/2024/08/05/micah-hamilton-middlesbrough-man-city/
+
+**How the prime minister’s crackdown weakened her grip on power.**\
+`By Mujib Mashal`\
+https://nytimes.com/live/2024/08/05/world/bangladesh-protests/the-prime-ministers-crackdown-rained-carnage-on-bangladesh
+
 **CrowdStrike Hits Back in Heated Spat With Delta Over Global Tech Outage**\
 `The cybersecurity company said the airline should take the blame after it struggled to rebound from a software outage that caused disruptions worldwide.`\
 https://nytimes.com/2024/08/05/business/dealbook/crowdstrike-delta-tech-outage.html
