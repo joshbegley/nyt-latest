@@ -1,4 +1,8 @@
 **Adin Ross Gives Trump a Cybertruck, a Rolex and Access to a Heavily Male Audience**\
+`The 23-year-old internet celebrity is enormously popular with a testosterone-heavy demographic that the former president sees as critical to his bid for office.`\
+https://nytimes.com/2024/08/05/us/politics/trump-adin-ross-livestream-gifts.html
+
+**Adin Ross Gives Trump a Cybertruck, a Rolex and Access to a Heavily Male Audience**\
 `The 23-year-old internet celebrity is enormously popular with a testosterone-heavy demographic that the former president sees as critical to his re-election chances.`\
 https://nytimes.com/2024/08/05/us/politics/trump-adin-ross-livestream-gifts.html
 
