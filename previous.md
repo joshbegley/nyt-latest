@@ -1,3 +1,7 @@
+**Advice: When the Stock Market Drops, Stay Calm and Do Nothing**\
+`There is no reason to think that you can predict what will happen in the markets in the next few hours or in the near future. It’s better not to try.`\
+https://nytimes.com/2024/08/05/business/stock-market-advice.html
+
 **Nvidia tumbles after reports of a chip delay.**\
 `The A.I. chip maker’s shares fell in early trading, but the stock pared some of its losses.`\
 https://nytimes.com/live/2024/08/05/business/stocks-market-crash-economy/nvidia-stocks
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5681477/2024/08/05/preseason-week-1-watch-guide-sco
 **Here’s what to know about the market meltdown.**\
 `A rout that began in Asia continued in Europe, and U.S. stocks are set to fall sharply. Japan’s benchmark index logged its worst single-day point decline.`\
 https://nytimes.com/live/2024/08/05/business/stocks-market-crash-economy/heres-what-to-know-about-the-market-meltdown
-
-**Kawakami: How the Warriors fit into the Lauri Markkanen deadlines and scenarios**\
-`What does Markkanen really want? That's the biggest unknown as the clock ticks toward the first deadline in this complicated situation.`\
-https://nytimes.com/athletic/5678958/2024/08/05/warriors-lauri-markkanen-trade-deadlines-scenarios/
 

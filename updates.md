@@ -1,3 +1,7 @@
+**Advice: When the Stock Market Drops, Stay Calm and Do Nothing**\
+`There is no reason to think that you can predict what will happen in the markets in the next few hours or in the near future. It’s better not to try.`\
+https://nytimes.com/2024/08/05/business/stock-market-advice.html
+
 **Nvidia tumbles after reports of a chip delay.**\
 `The A.I. chip maker’s shares fell in early trading, but the stock pared some of its losses.`\
 https://nytimes.com/live/2024/08/05/business/stocks-market-crash-economy/nvidia-stocks
