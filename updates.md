@@ -1,3 +1,15 @@
+**Thousands of users have reported online brokerage outages as stocks tumbled.**\
+`Most of the outages had been resolved by midday on Monday, but investors were frustrated by their inability to trade stocks during a morning of global market volatility.`\
+https://nytimes.com/2024/08/05/business/charles-schwab-fidelity-online-brokerage-outages.html
+
+**Fantasy football 2024 All-Overvalued team: Kyren Williams, Deebo Samuel and more**\
+`Gary Davenport compiles a fantasy team of players who are all overvalued in 2024 fantasy drafts, including San Francisco's Deebo Samuel.`\
+https://nytimes.com/athletic/5681811/2024/08/05/fantasy-football-2024-all-overvalued-team-kyren-williams-deebo-samuel-and-more/
+
+**The Bounce: Is Lauri Markkanen the NBA's next big trade chip?**\
+`Zach Harper and Shams Charania catch you up on leaguewide news.`\
+https://nytimes.com/athletic/5681398/2024/08/05/lauri-markkanen-jazz-team-usa-olympics-nba-the-bounce/
+
 **A Republican State A.G. Fights to Keep Exonerated Prisoners Behind Bars**\
 `In Missouri, Attorney General Andrew Bailey is in a tough primary fight against a Trump lawyer who says Bailey is soft on crime.`\
 https://nytimes.com/2024/08/05/us/missouri-andrew-bailey-exonerated.html

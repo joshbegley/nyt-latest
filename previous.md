@@ -1,3 +1,15 @@
+**Thousands of users have reported online brokerage outages as stocks tumbled.**\
+`Most of the outages had been resolved by midday on Monday, but investors were frustrated by their inability to trade stocks during a morning of global market volatility.`\
+https://nytimes.com/2024/08/05/business/charles-schwab-fidelity-online-brokerage-outages.html
+
+**Fantasy football 2024 All-Overvalued team: Kyren Williams, Deebo Samuel and more**\
+`Gary Davenport compiles a fantasy team of players who are all overvalued in 2024 fantasy drafts, including San Francisco's Deebo Samuel.`\
+https://nytimes.com/athletic/5681811/2024/08/05/fantasy-football-2024-all-overvalued-team-kyren-williams-deebo-samuel-and-more/
+
+**The Bounce: Is Lauri Markkanen the NBA's next big trade chip?**\
+`Zach Harper and Shams Charania catch you up on leaguewide news.`\
+https://nytimes.com/athletic/5681398/2024/08/05/lauri-markkanen-jazz-team-usa-olympics-nba-the-bounce/
+
 **A Republican State A.G. Fights to Keep Exonerated Prisoners Behind Bars**\
 `In Missouri, Attorney General Andrew Bailey is in a tough primary fight against a Trump lawyer who says Bailey is soft on crime.`\
 https://nytimes.com/2024/08/05/us/missouri-andrew-bailey-exonerated.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/05/science/tsung-dao-lee-dead.html
 **Chelsea's Gilchrist agrees Sheffield United loan**\
 `Chelsea defender Alfie Gilchrist has agreed to join Sheffield United on a season-long loan.`\
 https://nytimes.com/athletic/5681642/2024/08/05/alfie-gilchrist-chelsea-sheffield-united/
-
-**Tracking Tropical Storm Fabio**\
-`See the likely path for Fabio.`\
-https://nytimes.com/interactive/2024/08/05/weather/fabio-map-path-tracker.html
-
-**West Ham confirm Fullkrug signing**\
-`West Ham United have confirmed the signing of Niclas Fullkrug from Borussia Dortmund.`\
-https://nytimes.com/athletic/5668178/2024/08/05/niclas-fullkrug-west-ham-transfer/
-
-**Barnes interview: 'It was a turbulent start - but I'm in the best place now'**\
-`The winger’s debut season at St James’ was one of upheaval and challenges. He's now ready to show his talent and final-third pedigree`\
-https://nytimes.com/athletic/5660140/2024/08/05/harvey-barnes-newcastle-interview/
 
