@@ -1,3 +1,19 @@
+**Jenna Ellis, Former Trump Lawyer, Will Cooperate in Arizona Election Fraud Case**\
+`Ms. Ellis is the first of 18 defendants to reach a deal with prosecutors in a case that charges them with trying to overturn Arizona’s election results in 2020.`\
+https://nytimes.com/2024/08/05/us/jenna-ellis-trump-arizona-election-fraud.html
+
+**Second Gentleman Merchandise? The Harris Campaign Leans In.**\
+`An old photo of Doug Emhoff caught the internet’s attention, and Kamala Harris’s staff seized a fund-raising opportunity.`\
+https://nytimes.com/2024/08/05/style/doug-emhoff-dunit-merchandise.html
+
+**U.S. Antitrust Ruling Against Google Is Just the Start**\
+`The federal government has more lawsuits in the pipeline trying to rein in the tech giants, including another antitrust case against Google that goes to trial next month.`\
+https://nytimes.com/2024/08/05/technology/antitrust-google-amazon-apple-meta.html
+
+**Jordan Chiles and the bow that capped Olympic gymnastics on a perfect note**\
+`On Monday at the Paris Olympics, Jordan Chiles got the individual Olympic medal she's long deserved, and capped it with a memorable gesture.`\
+https://nytimes.com/athletic/5682070/2024/08/05/jordan-chiles-olympics-simone-biles-rebeca-andrade-gymnastics/
+
 **Submit your questions for Pete Sampson’s Notre Dame football mailbag**\
 `What's on your mind about the Irish with preseason football camp underway?`\
 https://nytimes.com/athletic/5682252/2024/08/05/notre-dame-football-mailbag-questions-12/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5681994/2024/08/05/rebeca-andrade-simone-biles-olym
 **Supreme Court Rejects Long-Shot Challenge to Trump Hush Money Case**\
 `Missouri sought to sue New York under the court’s “original jurisdiction,” which sometimes allows suits between states to be brought directly to the justices.`\
 https://nytimes.com/2024/08/05/us/politics/supreme-court-trump-hush-money.html
-
-**U.S. et al. v. Google: Read the Ruling**\
-`Google acted illegally to maintain a monopoly in online search, a federal judge ruled on Monday. The landmark decision strikes at the power of tech giants in the modern internet era and may fundamentally alter the way they do business.`\
-https://nytimes.com/interactive/2024/08/05/technology/google-antitrust-ruling.html
-
-**Josh Allen ends on high note, Christian Benford vs. Kaiir Elam, and more from Bills camp**\
-`Plus, rookie defensive end Javon Solomon is showing flashes.`\
-https://nytimes.com/athletic/5681961/2024/08/05/bills-training-camp-josh-allen-christian-benford-kaiir-elam/
-
-**Lorenza de’ Medici, Who Elevated Italian Cooking, Is Dead at 97**\
-`A descendant of a storied family, she was an author, TV host and cooking school director who showed that Italian cuisine was about more than tomatoes, pizza and pasta.`\
-https://nytimes.com/2024/08/05/dining/lorenza-de-medici-dead.html
-
-**If that was it for Simone Biles' Olympic career, let's all appreciate what we just saw**\
-`Whatever Simone Biles decides to do next, her legacy will be one of gymnastics excellence and, more importantly, courage off the mat.`\
-https://nytimes.com/athletic/5682089/2024/08/05/simone-biles-olympics-gymnastics-career-retirement-legacy/
 
