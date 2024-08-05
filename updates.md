@@ -1,3 +1,7 @@
+**Why Is Iran Expected to Attack Israel? What to Know About the Crisis.**\
+`Iran has vowed to retaliate for the killing of a senior Hamas leader in Tehran last week in an attack for which it has blamed Israel.`\
+https://nytimes.com/2024/08/05/world/middleeast/iran-israel-attack-strikes-why.html
+
 **To Become the G.O.A.T., Simone Biles First Had to Be a Turtle**\
 `She sealed her legacy with four medals at the Paris Games. She created it by being herself and going at her own pace.`\
 https://nytimes.com/2024/08/05/world/olympics/simone-biles-gymnastics-goat-paris.html

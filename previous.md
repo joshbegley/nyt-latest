@@ -2,9 +2,9 @@
 `She sealed her legacy with four medals at the Paris Games. She created it by being herself and going at her own pace.`\
 https://nytimes.com/2024/08/05/world/olympics/simone-biles-gymnastics-goat-paris.html
 
-**Why Is Iran Expected to Attack Israel? What to Know About the Crisis**\
+**Why Is Iran Expected to Attack Israel? What to Know About the Crisis.**\
 `Iran has vowed to retaliate for the killing of a senior Hamas leader in Tehran last week in an attack for which it has blamed Israel.`\
-https://nytimes.com/live/2024/08/05/world/israel-iran-hezbollah-gaza/iran-israel-attack-strikes-why
+https://nytimes.com/2024/08/05/world/middleeast/iran-israel-attack-strikes-why.html
 
 **Tracking Tropical Storm Emilia**\
 `See the likely path and wind arrival times for Emilia.`\
