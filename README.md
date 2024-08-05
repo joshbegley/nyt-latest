@@ -1,3 +1,11 @@
+**Xavi Simons rejoins RB Leipzig on loan from PSG**\
+`Xavi Simons has rejoined RB Leipzig on loan from Paris Saint-Germain.`\
+https://nytimes.com/athletic/5671347/2024/08/05/xavi-simons-rb-leipzig-transfer/
+
+**Britain’s Weekend of Violence: What We Know**\
+`The country begins a new week on edge after anti-immigrant riots, fanned by disinformation from the far right, broke out in cities across Britain.`\
+https://nytimes.com/2024/08/05/world/europe/uk-riots-protests.html
+
 **Laurie Hernandez is NBC's breakout broadcasting star of the Paris Olympics**\
 `With her recent connection to the sport, Laurie Hernandez on gymnastics has been a major plus for NBC's broadcast.`\
 https://nytimes.com/athletic/5678207/2024/08/05/laurie-hernandez-nbc-gymnastics-paris-olympics/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/05/arts/music/marianna-martines-lincoln-center-festi
 **$1.6 Million Homes in California**\
 `A midcentury-modern home in Pasadena, a Mediterranean-style house in Albany and a three-bedroom retreat in Monterey.`\
 https://nytimes.com/2024/08/05/realestate/million-dollar-homes-california.html
-
-**Braves' weekend woes: 3 takeaways as Max Fried struggles, Marcell Ozuna stays hot**\
-`In hindsight, the Braves might wish they’d asked Fried to make one minor-league rehab start.`\
-https://nytimes.com/athletic/5680417/2024/08/05/braves-max-fried-marcel-ozuna/
-
-**Flavor Flav Wants You to Watch More Water Polo**\
-`The rapper has become a self-appointed hype man and benefactor to the U.S. women’s team in Paris. He plans to keep the poolside party going into 2028.`\
-https://nytimes.com/2024/08/05/world/olympics/flavor-flav-water-polo.html
 
