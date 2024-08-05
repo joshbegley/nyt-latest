@@ -1,3 +1,7 @@
+**Samsung Employees Return to Work After Strike Fails to Win Concessions**\
+`The indefinite strike, the first in the electronics company’s history, comprised only a fraction of its labor force and lasted less than a month.`\
+https://nytimes.com/2024/08/05/world/asia/samsung-workers-end-strike.html
+
 **Markets Around the World Are Rattled by Fears of Slowing U.S. Growth**\
 `Stocks in Asia tumbled, led by Japan, where declines triggered “circuit breakers” meant to calm rapid moves. European and U.S. markets were set for declines.`\
 https://nytimes.com/2024/08/05/business/global-stocks.html
