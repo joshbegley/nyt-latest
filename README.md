@@ -1,3 +1,7 @@
+**Manchester City's push to be America's Premier League team of choice**\
+`From the Ohio State Fair to Times Square, England's champions are on a recruitment drive`\
+https://nytimes.com/athletic/5678898/2024/08/05/manchester-city-us-premier-league-team/
+
 **Mondo Duplantis: Breaking down the biomechanics behind the best-ever pole vaulter**\
 `There will be fewer more predictable events to watch in Paris than the men's pole vault, yet slightly paradoxically, few more watchable`\
 https://nytimes.com/athletic/5646961/2024/08/05/mondo-duplantis-biomechanics-pole-vault/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5679259/2024/08/05/olympics-2024-watch-guide-day-10
 **‘House of the Dragon’ Season 2 Finale Recap: Hold Your Fire**\
 `There may be time yet to avoid mass burning and bloodshed, but it is running out very quick.`\
 https://nytimes.com/2024/08/04/arts/television/house-of-the-dragon-recap-season-2-finale.html
-
-**Brandon Marsh and the baseball gods help the Phillies snag a much-needed win**\
-`"I literally had my arms out and the baseball gods put the ball right in my glove," Marsh said of his miracle catch. Whatever it takes.`\
-https://nytimes.com/athletic/5680769/2024/08/04/brandon-marsh-catch-phillies-win-mariners/
 
