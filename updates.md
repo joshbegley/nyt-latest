@@ -1,3 +1,7 @@
+**Mondo Duplantis: Breaking down the biomechanics behind the best-ever pole vaulter**\
+`There will be fewer more predictable events to watch in Paris than the men's pole vault, yet slightly paradoxically, few more watchable`\
+https://nytimes.com/athletic/5646961/2024/08/05/mondo-duplantis-biomechanics-pole-vault/
+
 **France need a manager who believes in them after another missed opportunity**\
 `Women's football is a sport France has long struggled to fall in love with and a disappointing home Olympics is another opportunity missed`\
 https://nytimes.com/athletic/5678988/2024/08/05/france-women-coach/

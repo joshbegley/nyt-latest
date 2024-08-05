@@ -1,3 +1,7 @@
+**Mondo Duplantis: Breaking down the biomechanics behind the best-ever pole vaulter**\
+`There will be fewer more predictable events to watch in Paris than the men's pole vault, yet slightly paradoxically, few more watchable`\
+https://nytimes.com/athletic/5646961/2024/08/05/mondo-duplantis-biomechanics-pole-vault/
+
 **France need a manager who believes in them after another missed opportunity**\
 `Women's football is a sport France has long struggled to fall in love with and a disappointing home Olympics is another opportunity missed`\
 https://nytimes.com/athletic/5678988/2024/08/05/france-women-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/04/arts/television/house-of-the-dragon-recap-season-
 **Brandon Marsh and the baseball gods help the Phillies snag a much-needed win**\
 `"I literally had my arms out and the baseball gods put the ball right in my glove," Marsh said of his miracle catch. Whatever it takes.`\
 https://nytimes.com/athletic/5680769/2024/08/04/brandon-marsh-catch-phillies-win-mariners/
-
-**The Willful Amnesia Behind Trump’s Attacks on Harris’s Identity**\
-`Suggesting that there is something contrived about a mixed-race person identifying as Black assumes that the choice wasn’t already made for her.`\
-https://nytimes.com/2024/08/04/magazine/kamala-harris-black-identity-history.html
 
