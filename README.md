@@ -1,3 +1,7 @@
+**CrowdStrike Hits Back in Heated Spat With Delta Over Global Tech Outage**\
+`The cybersecurity company said the airline should take the blame after it struggled to rebound a software outage that caused disruptions worldwide.`\
+https://nytimes.com/2024/08/05/business/dealbook/crowdstrike-delta-tech-outage.html
+
 **He Was Freed From a Brutal Russian Jail. Here’s Why He Wanted to Stay.**\
 `The dissident Ilya Yashin calls his release in a prisoner swap last week an ‘illegal expulsion’ by Russia that damages his ability to be heard at home.`\
 https://nytimes.com/2024/08/05/world/europe/russia-prisoner-swap-ilya-yashin.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/05/world/asia/myanmar-rebels-lashio.html
 **How Mike Macdonald's impact has been seen in Seahawks defense at training camp**\
 `The new head coach has Seattle's defense adopting the versatile scheme that worked with the Ravens.`\
 https://nytimes.com/athletic/5679867/2024/08/05/seahawks-camp-defense-mike-macdonald/
-
-**Here’s the latest on the presidential race.**\
-`By Nick Corasaniti`\
-https://nytimes.com/live/2024/08/05/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
