@@ -1,3 +1,7 @@
+**My Favorite Simone Biles Moment Wasn’t When She Won Gold**\
+`Just because she makes winning look easy does not mean that it is.`\
+https://nytimes.com/live/2024/07/30/opinion/thepoint/olympics-gymnastics-simone-biles
+
 **Raiders training camp: Spotlight on the QBs intensifies, DJ Glaze steps up at RT**\
 `The Raiders’ preseason opener Saturday could shed some light on the QB competition, while an unlikely rookie is stepping up on the O-line.`\
 https://nytimes.com/athletic/5682045/2024/08/05/raiders-aidan-oconnell-gardner-minshew-dj-glaze/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5682333/2024/08/05/chiefs-harrison-butker-contract-
 **A Chaotic News Conference Offers Little Clarity on a Boxing Dispute**\
 `Two Olympians whose eligibility to compete as women at the Paris Games has come under scrutiny will fight for medals on Tuesday.`\
 https://nytimes.com/2024/08/05/world/olympics/imane-khelif-lin-yuting-testing-boxing.html
-
-**Sifan Hassan begins Olympic treble with silver in 5,000 meters**\
-`With the 5,000 out of the way, Hassan will shift her attention to the 10,000 meters, which will take place on Friday night.`\
-https://nytimes.com/athletic/5682267/2024/08/05/sifan-hassan-womens-5000-meters/
 
