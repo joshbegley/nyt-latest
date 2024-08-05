@@ -1,3 +1,7 @@
+**Russian emissary visits Tehran at a tense moment as Iran asks for military aid.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/08/05/world/israel-iran-hezbollah-gaza/russian-emissary-visits-tehran-at-a-tense-moment-as-iran-asks-for-military-aid
+
 **Cedar Key, Fla., walloped by Idalia last year, faces another recovery after Debby.**\
 `By Abigail Geiger`\
 https://nytimes.com/live/2024/weather/hurricane-debby-florida-storm/hurricane-debby-cedar-key-florida-idalia

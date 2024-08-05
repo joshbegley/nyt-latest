@@ -1,3 +1,7 @@
+**Russian emissary visits Tehran at a tense moment as Iran asks for military aid.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/08/05/world/israel-iran-hezbollah-gaza/russian-emissary-visits-tehran-at-a-tense-moment-as-iran-asks-for-military-aid
+
 **Cedar Key, Fla., walloped by Idalia last year, faces another recovery after Debby.**\
 `By Abigail Geiger`\
 https://nytimes.com/live/2024/weather/hurricane-debby-florida-storm/hurricane-debby-cedar-key-florida-idalia
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/weather/hurricane-debby-florida-storm/hurricane-de
 **My Favorite Simone Biles Moment Wasn’t When She Won Gold**\
 `Just because she makes winning look easy does not mean that it is.`\
 https://nytimes.com/2024/07/30/opinion/olympics-gymnastics-simone-biles.html
-
-**Raiders training camp: Spotlight on the QBs intensifies, DJ Glaze steps up at RT**\
-`The Raiders’ preseason opener Saturday could shed some light on the QB competition, while an unlikely rookie is stepping up on the O-line.`\
-https://nytimes.com/athletic/5682045/2024/08/05/raiders-aidan-oconnell-gardner-minshew-dj-glaze/
 
