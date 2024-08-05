@@ -1,3 +1,11 @@
+**Debby came ashore in North Florida but flooded the Gulf Coast farther south.**\
+`By Patricia Mazzei, Isabelle Taft and Elisabeth Parker`\
+https://nytimes.com/live/2024/weather/hurricane-debby-florida-storm/hurricane-debby-flood-florida-gulf-coast
+
+**My Favorite Simone Biles Moment Wasn’t When She Won Gold**\
+`Just because she makes winning look easy does not mean that it is.`\
+https://nytimes.com/live/2024/07/30/opinion/thepoint/olympics-gymnastics-simone-biles
+
 **Raiders training camp: Spotlight on the QBs intensifies, DJ Glaze steps up at RT**\
 `The Raiders’ preseason opener Saturday could shed some light on the QB competition, while an unlikely rookie is stepping up on the O-line.`\
 https://nytimes.com/athletic/5682045/2024/08/05/raiders-aidan-oconnell-gardner-minshew-dj-glaze/
