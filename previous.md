@@ -1,3 +1,7 @@
+**Fighting Malaria: The Role of Two Groups**\
+`The W.H.O. and the Gates Foundation respond to a Science article. Also: A revoked 9/11 plea deal; a debate on Fox; mispronouncing “Kamala”; climate-themed movies.`\
+https://nytimes.com/2024/08/05/opinion/fighting-malaria.html
+
 **USMNT's Ream traveling to complete Charlotte FC transfer**\
 `Fulham defender Tim Ream is traveling to the United States to complete a permanent transfer to Major League Soccer side Charlotte FC.`\
 https://nytimes.com/athletic/5681583/2024/08/05/charlotte-fc-tim-ream-fulham-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/05/world/middleeast/iran-israel-attack-strikes-why.h
 **Tracking Tropical Storm Emilia**\
 `See the likely path and wind arrival times for Emilia.`\
 https://nytimes.com/interactive/2024/08/05/weather/map-emilia-path-tracker.html
-
-**The Director of ‘Deadpool & Wolverine’ on Those Spoilery Surprises**\
-`Shawn Levy explains the thinking behind specific cameos, what was saved from discarded scripts and how they made that end-credits tribute to Fox.`\
-https://nytimes.com/2024/08/05/movies/deadpool-and-wolverine-shawn-levy.html
 
