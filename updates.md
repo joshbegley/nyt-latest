@@ -1,3 +1,7 @@
+**The Windup: From trade candidate to no-hitter**\
+`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
+https://nytimes.com/athletic/5681805/2024/08/05/blake-snell-no-hitter-white-sox-losing-streak-the-windup/
+
 **Tsung-Dao Lee, 97, Physicist Who Challenged a Law of Nature, Dies**\
 `At 31, he and a colleague won the 1957 Nobel Prize in Physics for discovering that subatomic particles, contrary to what scientists thought, are always symmetrical.`\
 https://nytimes.com/2024/08/05/science/tsung-dao-lee-dead.html
