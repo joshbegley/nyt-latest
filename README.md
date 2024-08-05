@@ -1,3 +1,7 @@
+**A Race at Warp Speed: For Harris, There Are Advantages in a Late Start**\
+`This presidential campaign is playing out in fast forward. Strategists in both parties say speed is likely to benefit Vice President Kamala Harris.`\
+https://nytimes.com/2024/08/05/us/politics/kamala-harris-donald-trump-2024-campaign.html
+
 **Crowds swarm prime minister’s residence after Bangladesh leader flees.**\
 `By Eve Sampson`\
 https://nytimes.com/live/2024/08/05/world/bangladesh-protests/crowds-swarm-prime-ministers-residence-after-bangladesh-leader-flees
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/05/opinion/david-rosenberg-recession.html
 **Lincoln Center’s Rebranded Orchestra Settles Into Its Debut Season**\
 `Compared with previous seasons, recent concerts by the Festival Orchestra of Lincoln Center were refreshingly casual, but also more mixed.`\
 https://nytimes.com/2024/08/05/arts/music/festival-orchestra-of-lincoln-center.html
-
-**Thousands of users have reported online brokerage outages as stocks tumbled.**\
-`Most of the outages had been resolved by midday on Monday, but investors were frustrated by their inability to trade stocks during a morning of global market volatility.`\
-https://nytimes.com/2024/08/05/business/charles-schwab-fidelity-online-brokerage-outages.html
 
