@@ -1,5 +1,9 @@
+**X to Close Flagship San Francisco Office**\
+`Elon Musk, X’s owner, has clashed with California’s leaders and has said the social media platform would move its headquarters to Texas.`\
+https://nytimes.com/2024/08/05/technology/x-twitter-san-francisco-office.html
+
 **Rebeca Andrade beats Simone Biles and gets a well-earned Olympic moment**\
-`After years of finishing behind Simone Biles in international competition, Rebeca Andrade got her moment Monday at the Paris Olympics.`\
+`After years of mostly finishing behind Simone Biles in international competition, Rebeca Andrade got her moment Monday at the Olympics.`\
 https://nytimes.com/athletic/5681994/2024/08/05/rebeca-andrade-simone-biles-olympics-gymnastics-gold/
 
 **Supreme Court Rejects Long-Shot Challenge to Trump Hush Money Case**\
@@ -33,8 +37,4 @@ https://nytimes.com/card/2024/08/05/arts/dance/jodi-melnick-sara-mearns
 **Manchester United switch midfielder search away from Ugarte**\
 `Manchester United are switching the focus of their search to sign a new midfielder away from Manuel Ugarte and on to other candidates.`\
 https://nytimes.com/athletic/5589595/2024/08/05/manuel-ugarte-manchester-united/
-
-**IBA digs in on Olympic boxing controversy in news conference**\
-`PARIS — The International Boxing Association, the organization whose decision to disqualify Imane Khelif of Algeria and Lin Yu-ting of Taiwan from the 2023 world championships is at the heart of a firestorm engulfing the Olympic tournament, hosted a news conference on Monday “dedicated to the detailed explanation of the reasons for the disqualification” of the two fighters.`\
-https://nytimes.com/athletic/5682121/2024/08/05/iba-olympic-boxing-controversy-imane-khelif/
 

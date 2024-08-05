@@ -1,9 +1,13 @@
+**Rebeca Andrade beats Simone Biles and gets a well-earned Olympic moment**\
+`After years of finishing behind Simone Biles in international competition, Rebeca Andrade got her moment Monday at the Paris Olympics.`\
+https://nytimes.com/athletic/5681994/2024/08/05/rebeca-andrade-simone-biles-olympics-gymnastics-gold/
+
 **Supreme Court Rejects Long-Shot Challenge to Trump Hush Money Case**\
 `Missouri sought to sue New York under the court’s “original jurisdiction,” which sometimes allows suits between states to be brought directly to the justices.`\
 https://nytimes.com/2024/08/05/us/politics/supreme-court-trump-hush-money.html
 
 **U.S. et al. v. Google: Read the Ruling**\
-`Google acted illegally to maintain a monopoly in online search, a federal judge ruled on Monday. The landmark decision strikes at the power of tech giants in the modern internet era and that may fundamentally alter the way they do business.`\
+`Google acted illegally to maintain a monopoly in online search, a federal judge ruled on Monday. The landmark decision strikes at the power of tech giants in the modern internet era and may fundamentally alter the way they do business.`\
 https://nytimes.com/interactive/2024/08/05/technology/google-antitrust-ruling.html
 
 **Josh Allen ends on high note, Christian Benford vs. Kaiir Elam, and more from Bills camp**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5589595/2024/08/05/manuel-ugarte-manchester-united/
 **IBA digs in on Olympic boxing controversy in news conference**\
 `PARIS — The International Boxing Association, the organization whose decision to disqualify Imane Khelif of Algeria and Lin Yu-ting of Taiwan from the 2023 world championships is at the heart of a firestorm engulfing the Olympic tournament, hosted a news conference on Monday “dedicated to the detailed explanation of the reasons for the disqualification” of the two fighters.`\
 https://nytimes.com/athletic/5682121/2024/08/05/iba-olympic-boxing-controversy-imane-khelif/
-
-**Google Violated Antitrust Laws in Online Search, Judge Rules**\
-`The landmark ruling by Judge Amit P. Mehta was the first antitrust decision of the modern internet era in a case against a technology giant.`\
-https://nytimes.com/2024/08/05/technology/google-antitrust-ruling.html
 
