@@ -1,3 +1,7 @@
+**‘Yo Gabba GabbaLand!’ Revives a Cult Kids Show**\
+`This reboot features the same characters and still emphasizes music and dance while seeking to “make the world of Gabba an actual place,” a creator said.`\
+https://nytimes.com/2024/08/05/arts/television/yo-gabba-gabbaland-revives-a-cult-kids-show.html
+
 **Lions' Terrion Arnold evaluated for concussion**\
 `The rookie was drafted to help bolster one of the worst passing defenses in the NFL.`\
 https://nytimes.com/athletic/5681912/2024/08/05/terrion-arnold-concussion-lions-giants-practice/

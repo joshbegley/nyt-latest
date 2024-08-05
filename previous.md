@@ -1,3 +1,7 @@
+**‘Yo Gabba GabbaLand!’ Revives a Cult Kids Show**\
+`This reboot features the same characters and still emphasizes music and dance while seeking to “make the world of Gabba an actual place,” a creator said.`\
+https://nytimes.com/2024/08/05/arts/television/yo-gabba-gabbaland-revives-a-cult-kids-show.html
+
 **Lions' Terrion Arnold evaluated for concussion**\
 `The rookie was drafted to help bolster one of the worst passing defenses in the NFL.`\
 https://nytimes.com/athletic/5681912/2024/08/05/terrion-arnold-concussion-lions-giants-practice/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/08/05/us/politics/chairman-wyden-to-harlan-
 **Justice Thomas Failed to Reveal More Private Flights, Senator Says**\
 `Senator Ron Wyden sent a letter to the wealthy conservative donor Harlan Crow’s lawyer after records showed undisclosed flights between Hawaii and New Zealand with the Supreme Court justice in 2010.`\
 https://nytimes.com/2024/08/05/us/politics/clarence-thomas-harlan-crow-private-jet.html
-
-**The Windup: From trade candidate to no-hitter**\
-`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
-https://nytimes.com/athletic/5681805/2024/08/05/blake-snell-no-hitter-white-sox-losing-streak-the-windup/
 
