@@ -1,3 +1,7 @@
+**Lions' Terrion Arnold evaluated for concussion**\
+`The rookie was drafted to help bolster one of the worst passing defenses in the NFL.`\
+https://nytimes.com/athletic/5681912/2024/08/05/terrion-arnold-concussion-lions-giants-practice/
+
 **The Economist Who Predicted What Could Well Be the Next Recession**\
 `David Rosenberg has a history of making calls many don’t want to hear.`\
 https://nytimes.com/2024/08/05/opinion/david-rosenberg-recession.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/05/us/politics/clarence-thomas-harlan-crow-private-j
 **The Windup: From trade candidate to no-hitter**\
 `Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
 https://nytimes.com/athletic/5681805/2024/08/05/blake-snell-no-hitter-white-sox-losing-streak-the-windup/
-
-**Tsung-Dao Lee, 97, Physicist Who Challenged a Law of Nature, Dies**\
-`At 31, he and a colleague won the 1957 Nobel Prize in Physics for discovering that subatomic particles, contrary to what scientists thought, are not always symmetrical.`\
-https://nytimes.com/2024/08/05/science/tsung-dao-lee-dead.html
 
