@@ -1,3 +1,7 @@
+**Harris Faces Party Divisions as She Chooses a Running Mate**\
+`The vice president conducted interviews with potential candidates over the weekend and has fielded concerns from donors and activists over the choice.`\
+https://nytimes.com/2024/08/04/us/politics/kamala-harris-vp-democrats-divided.html
+
 **Chargers DC Jesse Minter's vision comes to life in dominant joint practice vs. Rams**\
 `The edge rushers shined as the defense forced Matthew Stafford and company into a day full of turnovers.`\
 https://nytimes.com/athletic/5680699/2024/08/04/chargers-defense-joint-practice-rams/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/5680699/2024/08/04/chargers-defense-joint-practice-
 https://nytimes.com/interactive/2024/08/04/sports/olympics/mens-100-noah-lyles-kishane-thompson.html
 
 **WR Puka Nacua exits tough turnover-filled day for Rams offense against Chargers**\
-`A test against the Chargers added to the walking wounded but Sean McVay said injuries cannot be an excuse this season.`\
+`A test against the Chargers added to the walking wounded, but Sean McVay said injuries cannot be an excuse this season.`\
 https://nytimes.com/athletic/5680524/2024/08/04/puka-nacua-rams-offense/
 
 **Red Sox top Rangers ahead of key Royals series: 'Every game now means something more'**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/04/us/politics/jimmy-carter-vote-for-kamala.html
 **China snaps U.S. men's streak in Olympic medley relay**\
 `Chinese swimmers have faced questions about a doping scandal from the Tokyo Games three years ago.`\
 https://nytimes.com/athletic/5680125/2024/08/04/china-gold-medal-medley-relay-olympic-swimming/
-
-**49ers training camp: Brock Purdy has graduated to the next level of preparation**\
-`The quarterback has been able to challenge himself in new ways this training camp as he prepares for the 2024 season.`\
-https://nytimes.com/athletic/5680228/2024/08/04/brock-purdy-49ers-training-camp/
 

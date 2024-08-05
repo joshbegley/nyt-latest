@@ -1,3 +1,11 @@
+**Harris Faces Party Divisions as She Chooses a Running Mate**\
+`The vice president conducted interviews with potential candidates over the weekend and has fielded concerns from donors and activists over the choice.`\
+https://nytimes.com/2024/08/04/us/politics/kamala-harris-vp-democrats-divided.html
+
+**WR Puka Nacua exits tough turnover-filled day for Rams offense against Chargers**\
+`A test against the Chargers added to the walking wounded, but Sean McVay said injuries cannot be an excuse this season.`\
+https://nytimes.com/athletic/5680524/2024/08/04/puka-nacua-rams-offense/
+
 **Chargers DC Jesse Minter's vision comes to life in dominant joint practice vs. Rams**\
 `The edge rushers shined as the defense forced Matthew Stafford and company into a day full of turnovers.`\
 https://nytimes.com/athletic/5680699/2024/08/04/chargers-defense-joint-practice-rams/
