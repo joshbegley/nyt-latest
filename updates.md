@@ -1,3 +1,7 @@
+**‘House of the Dragon’ Season 2 Finale Recap: Hold Your Fire**\
+`There may be time yet to avoid mass burning and bloodshed, but it is running out very quick.`\
+https://nytimes.com/2024/08/04/arts/television/house-of-the-dragon-recap-season-2-finale.html
+
 **Tropical Storm Debby Barrels Toward Florida**\
 `Tropical Storm Debby brought lashing winds and rain, as the storm was expected to rapidly gain strength and make landfall as a hurricane over Florida’s Big Bend coast.`\
 https://nytimes.com/video/us/100000009610974/florida-tropical-storm-debby.html
