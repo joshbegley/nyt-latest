@@ -1,3 +1,11 @@
+**Hip-Hop Arrives at the Paris Olympics With Breaking’s Debut**\
+`Breaking spread across the globe in the decades after it originated in the streets of New York City. Its roots will be on display in Paris, if you know what to look for.`\
+https://nytimes.com/interactive/2024/08/05/arts/dance/breaking-paris-olympics.html
+
+**Study Puts a $43 Billion Yearly Price Tag on Cancer Screening**\
+`The estimate focused on five cancers for which there is medically recommended screening — breast, cervical, colorectal, lung and prostate — and found that colonoscopies accounted for most of the costs.`\
+https://nytimes.com/2024/08/05/health/cancer-screening-tests-cost.html
+
 **Debby came ashore in North Florida but flooded the Gulf Coast farther south.**\
 `By Patricia Mazzei, Isabelle Taft and Elisabeth Parker`\
 https://nytimes.com/live/2024/weather/hurricane-debby-florida-storm/hurricane-debby-flood-florida-gulf-coast
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/05/world/asia/bangladesh-protest-sheikh-hasina.html
 **Facing Mass Protests, Bangladesh Leader Quits, Setting Up Power Struggle**\
 `Demonstrators defied a curfew, expecting another in a series of bloody crackdowns, but instead Prime Minister Sheikh Hasina fled.`\
 https://nytimes.com/2024/08/05/world/asia/bangladesh-protests-hasina-resigns.html
-
-**Great Britain's Keely Hodgkinson wins gold in 800m final**\
-`This is Hodgkison’s first major international championship, having won silver in the Tokyo Games and in the 2022/2023 World Championships.`\
-https://nytimes.com/athletic/5682337/2024/08/05/great-keely-hodgkinson-great-britain-gold/
-
-**Chiefs make Butker NFL's highest-paid kicker**\
-`This deal, which runs through 2028, will pay Butker an annual salary of $6.4 million with $17.8 million guaranteed.`\
-https://nytimes.com/athletic/5682333/2024/08/05/chiefs-harrison-butker-contract-extension/
 
