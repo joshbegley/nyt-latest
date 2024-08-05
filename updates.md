@@ -1,3 +1,15 @@
+**X to Close Flagship San Francisco Office**\
+`Elon Musk, X’s owner, has clashed with California’s leaders and has said the social media platform would move its headquarters to Texas.`\
+https://nytimes.com/2024/08/05/technology/x-twitter-san-francisco-office.html
+
+**Rebeca Andrade beats Simone Biles and gets a well-earned Olympic moment**\
+`After years of mostly finishing behind Simone Biles in international competition, Rebeca Andrade got her moment Monday at the Olympics.`\
+https://nytimes.com/athletic/5681994/2024/08/05/rebeca-andrade-simone-biles-olympics-gymnastics-gold/
+
+**If that was it for Simone Biles' Olympic career, let's all appreciate what we just saw**\
+`Whatever Simone Biles decides to do next, her legacy will be one of gymnastics excellence and, more importantly, courage off the mat.`\
+https://nytimes.com/athletic/5682089/2024/08/05/simone-biles-olympics-gymnastics-career-retirement-legacy/
+
 **Rebeca Andrade beats Simone Biles and gets a well-earned Olympic moment**\
 `After years of finishing behind Simone Biles in international competition, Rebeca Andrade got her moment Monday at the Paris Olympics.`\
 https://nytimes.com/athletic/5681994/2024/08/05/rebeca-andrade-simone-biles-olympics-gymnastics-gold/
