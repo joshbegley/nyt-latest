@@ -1,3 +1,15 @@
+**A Republican State A.G. Fights to Keep Exonerated Prisoners Behind Bars**\
+`In Missouri, Attorney General Andrew Bailey is in a tough primary fight against a Trump lawyer who says Bailey is soft on crime.`\
+https://nytimes.com/2024/08/05/us/missouri-andrew-bailey-exonerated.html
+
+**Read the Letter to Harlan Crow**\
+`Senator Ron Wyden, Democrat of Oregon, wrote a letter to Harlan Crow asking for details about private travel with Justice Clarence Thomas.`\
+https://nytimes.com/interactive/2024/08/05/us/politics/chairman-wyden-to-harlan-crow-08-05-24.html
+
+**Broncos plan to release safety Caden Sterns**\
+`The Denver Broncos on Monday morning informed safety Caden Sterns they plan to release him, a source with knowledge of the move confirmed.`\
+https://nytimes.com/athletic/5681848/2024/08/05/denver-broncos-release-caden-sterns/
+
 **Justice Thomas Failed to Reveal More Private Flights, Senator Says**\
 `Senator Ron Wyden sent a letter to the wealthy conservative donor Harlan Crow’s lawyer after records showed undisclosed flights between Hawaii and New Zealand with the Supreme Court justice in 2010.`\
 https://nytimes.com/2024/08/05/us/politics/clarence-thomas-harlan-crow-private-jet.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5668178/2024/08/05/niclas-fullkrug-west-ham-transfe
 **Barnes interview: 'It was a turbulent start - but I'm in the best place now'**\
 `The winger’s debut season at St James’ was one of upheaval and challenges. He's now ready to show his talent and final-third pedigree`\
 https://nytimes.com/athletic/5660140/2024/08/05/harvey-barnes-newcastle-interview/
-
-**Denver Broncos plan to release Caden Sterns in latest shakeup at safety**\
-`The safety position continues to be in flux for the Broncos`\
-https://nytimes.com/athletic/5681700/2024/08/05/broncos-plan-to-release-caden-sterns/
-
-**A Family Reunion Menu Over 150 Years in the Making**\
-`The food at the Coleman-Richards reunion in Fayette County, Ky., offers a look at the family’s ties to America and Liberia.`\
-https://nytimes.com/2024/08/05/dining/kentucky-family-reunion-menu.html
-
-**The Next Month in the Economy Could Be Crucial for the Presidential Election**\
-`Former President Trump is trying to stoke economic angst, while Vice President Harris projects optimism.`\
-https://nytimes.com/2024/08/05/business/markets-politics-election.html
 
