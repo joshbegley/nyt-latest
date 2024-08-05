@@ -1,3 +1,11 @@
+**At 27, Simone Biles is the most decorated U.S. gymnast in Olympic history.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/08/05/world/olympics-gymnastics-beam-floor-biles/at-27-simone-biles-is-the-most-decorated-us-gymnast-in-olympic-history
+
+**Padres takeaways: How is Mike Shildt deploying his upgraded bullpen?**\
+`A.J. Preller once again swung big, landing not one but two impact arms and assembling the kind of bullpen you might see in a video game.`\
+https://nytimes.com/athletic/5679254/2024/08/05/padres-takeaways-upgraded-bullpen-use/
+
 **How Raiders' Antonio Pierce built camaraderie by testing his coaches' conditioning levels**\
 `Pierce had all 28 coaches on staff do a conditioning test similar to the players, with a topless Rob Ryan delivering the most laughs. `\
 https://nytimes.com/athletic/5680115/2024/08/05/raiders-coaches-conditioning-test-antonio-pierce/
