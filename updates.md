@@ -1,3 +1,11 @@
+**Xavi Simons rejoins RB Leipzig on loan from PSG**\
+`Xavi Simons has rejoined RB Leipzig on loan from Paris Saint-Germain.`\
+https://nytimes.com/athletic/5671347/2024/08/05/xavi-simons-rb-leipzig-transfer/
+
+**Britain’s Weekend of Violence: What We Know**\
+`The country begins a new week on edge after anti-immigrant riots, fanned by disinformation from the far right, broke out in cities across Britain.`\
+https://nytimes.com/2024/08/05/world/europe/uk-riots-protests.html
+
 **Laurie Hernandez is NBC's breakout broadcasting star of the Paris Olympics**\
 `With her recent connection to the sport, Laurie Hernandez on gymnastics has been a major plus for NBC's broadcast.`\
 https://nytimes.com/athletic/5678207/2024/08/05/laurie-hernandez-nbc-gymnastics-paris-olympics/
