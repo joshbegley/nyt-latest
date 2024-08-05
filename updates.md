@@ -1,3 +1,7 @@
+**U.S. Troops in Iraq Are Wounded in Rocket Attack on Air Base**\
+`The attack late Monday resembled previous ones carried out by Iraqi armed groups, backed by Iran, which have targeted the base repeatedly over the past year.`\
+https://nytimes.com/2024/08/05/world/middleeast/iraq-us-troops-iran-attack.html
+
 **Adin Ross Gives Trump a Cybertruck, a Rolex and Access to a Heavily Male Audience**\
 `The 23-year-old internet celebrity is enormously popular with a testosterone-heavy demographic that the former president sees as critical to his bid for office.`\
 https://nytimes.com/2024/08/05/us/politics/trump-adin-ross-livestream-gifts.html
