@@ -1,3 +1,11 @@
+**Bangladesh Prime Minister Flees Country After Weeks of Protests**\
+`Prime Minister Sheikh Hasina resigned and fled Bangladesh under intense pressure from a growing protest movement enraged by her government’s deadly crackdowns.`\
+https://nytimes.com/video/world/asia/100000009612983/bangladesh-protests-hasina-resigns.html
+
+**David Lynch Says He Has Emphysema**\
+`The director, 78, confirmed the diagnosis in a social media post after revealing in a magazine interview that he would be limited to directing remotely.`\
+https://nytimes.com/2024/08/05/us/david-lynch-emphysema-twin-peaks.html
+
 **49ers have discussed Aiyuk trade: Source**\
 `Aiyuk trade talks have heated up as the 49ers completed their second week of training camp no closer to a deal with their star receiver.`\
 https://nytimes.com/athletic/5682632/2024/08/05/49ers-brandon-aiyuk-trade-talks/
