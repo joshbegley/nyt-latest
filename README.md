@@ -1,3 +1,15 @@
+**49ers have discussed Aiyuk trade: Source**\
+`Aiyuk trade talks have heated up as the 49ers completed their second week of training camp no closer to a deal with their star receiver.`\
+https://nytimes.com/athletic/5682632/2024/08/05/49ers-brandon-aiyuk-trade-talks/
+
+**As Israel Braces for Iran’s Retaliation, Diplomats Work to Avoid Wider War**\
+`President Biden convened his national security team and spoke with King Abdullah II of Jordan, and foreign ministers from Islamic countries plan to gather in Saudi Arabia on Wednesday.`\
+https://nytimes.com/2024/08/05/world/middleeast/israel-hamas-iran-retaliation.html
+
+**Giants send message with scrappy practice vs. Lions: They'll be a grittier team in 2024**\
+`That dawg mentality so embraced by Giants coach Brian Daboll was evident throughout his roster on Monday.`\
+https://nytimes.com/athletic/5682503/2024/08/05/new-york-giants-detroit-lions-joint-practice-fights/
+
 **Stocks Tumbled Over Fears of a U.S. Economic Slowdown**\
 `Also, a judge ruled that Google violated antitrust laws and Bangladesh’s leader resigned`\
 https://nytimes.com/2024/08/05/briefing/stocks-tumbled-over-fears-of-a-us-economic-slowdown.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/05/us/politics/jd-vance-kamala-harris-campaign-sched
 **A couple’s carport looked dry right after Debby. Then the Steinhatchee River rose.**\
 `By Valerie Crowder`\
 https://nytimes.com/live/2024/weather/hurricane-debby-florida-storm/debby-steinhatchee
-
-**Should a Detroit Congressional District Be a ‘Black Seat’?**\
-`Some city leaders are challenging the re-election of an Indian American congressman.`\
-https://nytimes.com/live/2024/07/30/opinion/thepoint/detroit-district-black-seat
-
-**U.N. Fires Nine Aid Workers Accused of Taking Part in Oct. 7 Attack, but Clears 10 Others**\
-`Israel accused 19 UNRWA employees of playing a role in the Hamas-led raids that set off the war. Investigators cleared 10 for lack of evidence, but said the other nine “may have been involved.”`\
-https://nytimes.com/2024/08/05/world/middleeast/unrwa-oct-7-attack.html
-
-**Ex-Police Chief Will Be Charged After Raid on Kansas Newspaper, Prosecutors Say**\
-`The former chief, Gideon Cody, will be charged with interference with the judicial process, a felony, after he ordered the raid on The Marion County Record last year, prosecutors said.`\
-https://nytimes.com/2024/08/05/us/marion-police-kansas-newspaper-raid.html
 
