@@ -1,3 +1,15 @@
+**U.S. et al. v. Google: Read the Ruling**\
+`Google acted illegally to maintain a monopoly in online search, a federal judge ruled on Monday. The landmark decision strikes at the power of tech giants in the modern internet era and that may fundamentally alter the way they do business.`\
+https://nytimes.com/interactive/2024/08/05/technology/google-antitrust-ruling.html
+
+**Josh Allen ends on high note, Christian Benford vs. Kaiir Elam, and more from Bills camp**\
+`Plus, rookie defensive end Javon Solomon is showing flashes.`\
+https://nytimes.com/athletic/5681961/2024/08/05/bills-training-camp-josh-allen-christian-benford-kaiir-elam/
+
+**Lorenza de’ Medici, Who Elevated Italian Cooking, Is Dead at 97**\
+`A descendant of a storied family, she was an author, TV host and cooking school director who showed that Italian cuisine was about more than tomatoes, pizza and pasta.`\
+https://nytimes.com/2024/08/05/dining/lorenza-de-medici-dead.html
+
 **If that was it for Simone Biles' Olympic career, let's all appreciate what we just saw**\
 `Whatever Simone Biles decides to do next, her legacy will be one of gymnastics excellence and, more importantly, courage off the mat.`\
 https://nytimes.com/athletic/5682089/2024/08/05/if-that-was-it-for-simone-biles-olympic-career-lets-all-appreciate-what-we-just-saw/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/05/technology/google-antitrust-ruling.html
 **SuperFlex league draft strategy: When to take your second QB, when to stack and where to find value**\
 `Michael Waterloo offers his advice on QB draft strategy for SuperFlex leagues, and shares his list of bargain QBs he'll be targeting.`\
 https://nytimes.com/athletic/5673098/2024/08/05/superflex-draft-strategy-fantasy-football-2024/
-
-**Walter Arlen, Holocaust Refugee and Belated Composer, Is Dead at 103**\
-`After fleeing Vienna, he was a music critic and teacher before returning to composing in the 1980s. His memories of Nazi barbarism inspired his music.`\
-https://nytimes.com/2024/08/05/arts/music/walter-arlen-dead.html
-
-**Olympic swimming takeways: The U.S. has work to do, and Léon Marchand arrives**\
-`Swimming is in the books at the 2024 Paris Olympics. Here's our takeaways from the week at La Défense Arena.`\
-https://nytimes.com/athletic/5681101/2024/08/05/swimming-2024-paris-olympics-leon-marchand-katie-ledecky-takeaways/
-
-**Newcastle submit bid for Palace defender Guehi**\
-`Newcastle United have submitted an opening bid for Crystal Palace defender Marc Guehi.`\
-https://nytimes.com/athletic/5676461/2024/08/05/marc-guehi-newcastle-united/
 

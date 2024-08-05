@@ -1,3 +1,15 @@
+**U.S. et al. v. Google: Read the Ruling**\
+`Google acted illegally to maintain a monopoly in online search, a federal judge ruled on Monday. The landmark decision strikes at the power of tech giants in the modern internet era and that may fundamentally alter the way they do business.`\
+https://nytimes.com/interactive/2024/08/05/technology/google-antitrust-ruling.html
+
+**Josh Allen ends on high note, Christian Benford vs. Kaiir Elam, and more from Bills camp**\
+`Plus, rookie defensive end Javon Solomon is showing flashes.`\
+https://nytimes.com/athletic/5681961/2024/08/05/bills-training-camp-josh-allen-christian-benford-kaiir-elam/
+
+**Lorenza de’ Medici, Who Elevated Italian Cooking, Is Dead at 97**\
+`A descendant of a storied family, she was an author, TV host and cooking school director who showed that Italian cuisine was about more than tomatoes, pizza and pasta.`\
+https://nytimes.com/2024/08/05/dining/lorenza-de-medici-dead.html
+
 **Google Violated Antitrust Laws in Online Search, Judge Rules**\
 `The landmark ruling by Judge Amit P. Mehta was the first antitrust decision of the modern internet era in a case against a technology giant.`\
 https://nytimes.com/2024/08/05/technology/google-antitrust-ruling.html
