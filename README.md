@@ -1,3 +1,15 @@
+**How Mike Macdonald's impact has been seen in Seahawks defense at training camp**\
+`The new head coach has Seattle's defense adopting the versatile scheme that worked with the Ravens.`\
+https://nytimes.com/athletic/5679867/2024/08/05/seahawks-camp-defense-mike-macdonald/
+
+**Here’s the latest on the presidential race.**\
+`By Nick Corasaniti`\
+https://nytimes.com/live/2024/08/05/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**What might the Sharks' lineup look like on opening night?**\
+`Things are bound to improve for the new-look Sharks, and they have some options with their forward lines.`\
+https://nytimes.com/athletic/5674656/2024/08/05/sharks-lineup-roster-2024-25/
+
 **Pentagon Hands Over Bases in Niger as Extremism Spreads in the Sahel**\
 `Relations between the two countries soured after a coup last year. Now the United States is scrambling to find new security partners.`\
 https://nytimes.com/2024/08/05/us/politics/us-military-withdrawal-niger.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/05/technology/elon-musk-openai-lawsuit.html
 **Stephen Curry, LeBron James and the 'too small' action that unlocks Team USA's offense**\
 `Stephen Curry hasn't been shooting the ball well in these Olympics, but he's found other ways to help get Team USA's offense going.`\
 https://nytimes.com/athletic/5681139/2024/08/05/stephen-curry-lebron-james-too-small-team-usa-offense/
-
-**Tennis Briefing: How Machac and Siniakova won gold - and tension between prestige and points**\
-`How the Olympic tennis showed that doubles can be treated as a different sport, not a poor relation to singles`\
-https://nytimes.com/athletic/5679500/2024/08/05/tennis-briefing-machac-and-siniakovas-doubles-relationship-washington-open-winners/
-
-**Rebeca Andrade rose from poverty in Brazil to Olympic podiums in Paris.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/08/05/world/olympics-gymnastics-beam-floor-biles/rebeca-andrade-rose-from-poverty-in-brazil-to-olympic-podiums-in-paris
-
-**At 27, Simone Biles is the most decorated U.S. gymnast in Olympic history.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/08/05/world/olympics-gymnastics-beam-floor-biles/at-27-simone-biles-is-the-most-decorated-us-gymnast-in-olympic-history
 
