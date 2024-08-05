@@ -22,10 +22,6 @@ https://nytimes.com/2024/08/05/us/missouri-andrew-bailey-exonerated.html
 `Senator Ron Wyden, Democrat of Oregon, wrote a letter to Harlan Crow asking for details about private travel with Justice Clarence Thomas.`\
 https://nytimes.com/interactive/2024/08/05/us/politics/chairman-wyden-to-harlan-crow-08-05-24.html
 
-**Broncos plan to release safety Caden Sterns**\
-`The Denver Broncos on Monday morning informed safety Caden Sterns they plan to release him, a source with knowledge of the move confirmed.`\
-https://nytimes.com/athletic/5681848/2024/08/05/denver-broncos-release-caden-sterns/
-
 **Justice Thomas Failed to Reveal More Private Flights, Senator Says**\
 `Senator Ron Wyden sent a letter to the wealthy conservative donor Harlan Crow’s lawyer after records showed undisclosed flights between Hawaii and New Zealand with the Supreme Court justice in 2010.`\
 https://nytimes.com/2024/08/05/us/politics/clarence-thomas-harlan-crow-private-jet.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5681805/2024/08/05/blake-snell-no-hitter-white-sox-
 **Tsung-Dao Lee, 97, Physicist Who Challenged a Law of Nature, Dies**\
 `At 31, he and a colleague won the 1957 Nobel Prize in Physics for discovering that subatomic particles, contrary to what scientists thought, are always symmetrical.`\
 https://nytimes.com/2024/08/05/science/tsung-dao-lee-dead.html
+
+**Chelsea's Gilchrist agrees Sheffield United loan**\
+`Chelsea defender Alfie Gilchrist has agreed to join Sheffield United on a season-long loan.`\
+https://nytimes.com/athletic/5681642/2024/08/05/alfie-gilchrist-chelsea-sheffield-united/
 

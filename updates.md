@@ -1,3 +1,7 @@
+**Chelsea's Gilchrist agrees Sheffield United loan**\
+`Chelsea defender Alfie Gilchrist has agreed to join Sheffield United on a season-long loan.`\
+https://nytimes.com/athletic/5681642/2024/08/05/alfie-gilchrist-chelsea-sheffield-united/
+
 **Lincoln Center’s Rebranded Orchestra Settles Into Its Debut Season**\
 `Compared with previous seasons, recent concerts by the Festival Orchestra of Lincoln Center were refreshingly casual, but also more mixed.`\
 https://nytimes.com/2024/08/05/arts/music/festival-orchestra-of-lincoln-center.html
