@@ -1,3 +1,11 @@
+**The Economist Who Predicted What Could Well Be the Next Recession**\
+`David Rosenberg has a history of making calls many don’t want to hear.`\
+https://nytimes.com/2024/08/05/opinion/david-rosenberg-recession.html
+
+**Tsung-Dao Lee, 97, Physicist Who Challenged a Law of Nature, Dies**\
+`At 31, he and a colleague won the 1957 Nobel Prize in Physics for discovering that subatomic particles, contrary to what scientists thought, are not always symmetrical.`\
+https://nytimes.com/2024/08/05/science/tsung-dao-lee-dead.html
+
 **Chelsea's Gilchrist agrees Sheffield United loan**\
 `Chelsea defender Alfie Gilchrist has agreed to join Sheffield United on a season-long loan.`\
 https://nytimes.com/athletic/5681642/2024/08/05/alfie-gilchrist-chelsea-sheffield-united/
