@@ -1,3 +1,7 @@
+**Justice Thomas Failed to Reveal More Private Flights, Senator Says**\
+`Senator Ron Wyden sent a letter to the wealthy conservative donor Harlan Crow’s lawyer after records showed undisclosed flights between Hawaii and New Zealand with the Supreme Court justice in 2010.`\
+https://nytimes.com/2024/08/05/us/politics/clarence-thomas-harlan-crow-private-jet.html
+
 **The Windup: From trade candidate to no-hitter**\
 `Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
 https://nytimes.com/athletic/5681805/2024/08/05/blake-snell-no-hitter-white-sox-losing-streak-the-windup/
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/5681700/2024/08/05/broncos-plan-to-release-caden-st
 `The food at the Coleman-Richards reunion in Fayette County, Ky., offers a look at the family’s ties to America and Liberia.`\
 https://nytimes.com/2024/08/05/dining/kentucky-family-reunion-menu.html
 
-**The Next Month in the Economy Could be Crucial for the Presidential Election**\
+**The Next Month in the Economy Could Be Crucial for the Presidential Election**\
 `Former President Trump is trying to stoke economic angst, while Vice President Harris projects optimism.`\
 https://nytimes.com/2024/08/05/business/markets-politics-election.html
-
-**Fighting Malaria: The Role of Two Groups**\
-`The W.H.O. and the Gates Foundation respond to a Science article. Also: A revoked 9/11 plea deal; a debate on Fox; mispronouncing “Kamala”; climate-themed movies.`\
-https://nytimes.com/2024/08/05/opinion/fighting-malaria.html
 
