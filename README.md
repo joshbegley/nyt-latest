@@ -1,3 +1,11 @@
+**Tropical Storm Debby Barrels Toward Florida**\
+`Tropical Storm Debby brought lashing winds and rain, as the storm was expected to rapidly gain strength and make landfall as a hurricane over Florida’s Big Bend coast.`\
+https://nytimes.com/video/us/100000009610974/florida-tropical-storm-debby.html
+
+**Brandon Marsh and the baseball gods help the Phillies snag a much-needed win**\
+`"I literally had my arms out and the baseball gods put the ball right in my glove," Marsh said of his miracle catch. Whatever it takes.`\
+https://nytimes.com/athletic/5680769/2024/08/04/brandon-marsh-catch-phillies-win-mariners/
+
 **The Willful Amnesia Behind Trump’s Attacks on Harris’s Identity**\
 `Suggesting that there is something contrived about a mixed-race person identifying as Black assumes that the choice wasn’t already made for her.`\
 https://nytimes.com/2024/08/04/magazine/kamala-harris-black-identity-history.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/04/sports/belgium-triathlon-withdraws-seine.html
 **Greetings, People of Earth**\
 `Humans encounter nonhuman intelligences and try to make sense of them.`\
 https://nytimes.com/2024/08/04/podcasts/greetings-people-of-earth.html
-
-**Fantasy baseball notebook: Trade deadline winners, and the best rotation trios in baseball**\
-`Derek VanRiper shares the highlights from the past week-plus of the Rates & Barrels podcast, including a look at MLB's top starter trios.`\
-https://nytimes.com/athletic/5646216/2024/08/04/fantasy-baseball-notebook-trade-deadline-winners-and-the-best-rotation-trios-in-baseball/
-
-**Jimmy Carter Said to Have Plans to Vote for Kamala Harris**\
-`The former president, whose 100th birthday is Oct. 1, seems to have found some new motivation in the 2024 election.`\
-https://nytimes.com/2024/08/04/us/politics/jimmy-carter-vote-for-kamala.html
 
