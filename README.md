@@ -1,3 +1,7 @@
+**The Windup: From trade candidate to no-hitter**\
+`Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
+https://nytimes.com/athletic/5681805/2024/08/05/blake-snell-no-hitter-white-sox-losing-streak-the-windup/
+
 **Tsung-Dao Lee, 97, Physicist Who Challenged a Law of Nature, Dies**\
 `At 31, he and a colleague won the 1957 Nobel Prize in Physics for discovering that subatomic particles, contrary to what scientists thought, are always symmetrical.`\
 https://nytimes.com/2024/08/05/science/tsung-dao-lee-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/05/business/markets-politics-election.html
 **Fighting Malaria: The Role of Two Groups**\
 `The W.H.O. and the Gates Foundation respond to a Science article. Also: A revoked 9/11 plea deal; a debate on Fox; mispronouncing “Kamala”; climate-themed movies.`\
 https://nytimes.com/2024/08/05/opinion/fighting-malaria.html
-
-**USMNT's Ream traveling to complete Charlotte FC transfer**\
-`Fulham defender Tim Ream is traveling to the United States to complete a permanent transfer to Major League Soccer side Charlotte FC.`\
-https://nytimes.com/athletic/5681583/2024/08/05/charlotte-fc-tim-ream-fulham-transfer/
 
