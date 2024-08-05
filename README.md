@@ -22,7 +22,7 @@ https://nytimes.com/live/2024/08/05/us/harris-trump-election/heres-the-latest-on
 `Things are bound to improve for the new-look Sharks, and they have some options with their forward lines.`\
 https://nytimes.com/athletic/5674656/2024/08/05/sharks-lineup-roster-2024-25/
 
-**Pentagon Hands Over Bases in Niger as Extremism Spreads in the Sahel**\
+**Pentagon Hands Over Last Base in Niger as Extremism Spreads in the Sahel**\
 `Relations between the two countries soured after a coup last year. Now the United States is scrambling to find new security partners.`\
 https://nytimes.com/2024/08/05/us/politics/us-military-withdrawal-niger.html
 
