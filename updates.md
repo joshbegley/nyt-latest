@@ -1,3 +1,15 @@
+**Sifan Hassan begins Olympic treble with silver in 5,000 meters**\
+`With the 5,000 out of the way, Hassan will shift her attention to the 10,000 meters, which will take place on Friday night.`\
+https://nytimes.com/athletic/5682267/2024/08/05/sifan-hassan-womens-5000-meters/
+
+**Romeu returns to Girona on loan from Barcelona**\
+`Oriol Romeu has joined Girona on a season-long loan deal for 2024-25, the club have confirmed.`\
+https://nytimes.com/athletic/5682316/2024/08/05/oriel-romeu-returns-girona/
+
+**Mondo Duplantis wins Olympic pole vault gold again**\
+`Duplantis is the first back-to-back gold medal winner in the Olympics since American Bob Richards, who won in the 1952 and 1956.`\
+https://nytimes.com/athletic/5682112/2024/08/05/mondo-duplantis-pole-vault-final-sam-kendricks/
+
 **Jenna Ellis, Former Trump Lawyer, Will Cooperate in Arizona Election Fraud Case**\
 `Ms. Ellis is the first of 18 defendants to reach a deal with prosecutors in a case that charges them with trying to overturn Arizona’s election results in 2020.`\
 https://nytimes.com/2024/08/05/us/jenna-ellis-trump-arizona-election-fraud.html

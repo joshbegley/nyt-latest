@@ -1,3 +1,11 @@
+**Sifan Hassan begins Olympic treble with silver in 5,000 meters**\
+`With the 5,000 out of the way, Hassan will shift her attention to the 10,000 meters, which will take place on Friday night.`\
+https://nytimes.com/athletic/5682267/2024/08/05/sifan-hassan-womens-5000-meters/
+
+**Romeu returns to Girona on loan from Barcelona**\
+`Oriol Romeu has joined Girona on a season-long loan deal for 2024-25, the club have confirmed.`\
+https://nytimes.com/athletic/5682316/2024/08/05/oriel-romeu-returns-girona/
+
 **Jenna Ellis, Former Trump Lawyer, Will Cooperate in Arizona Election Fraud Case**\
 `Ms. Ellis is the first of 18 defendants to reach a deal with prosecutors in a case that charges them with trying to overturn Arizona’s election results in 2020.`\
 https://nytimes.com/2024/08/05/us/jenna-ellis-trump-arizona-election-fraud.html
@@ -18,6 +26,10 @@ https://nytimes.com/athletic/5682070/2024/08/05/jordan-chiles-olympics-simone-bi
 `What's on your mind about the Irish with preseason football camp underway?`\
 https://nytimes.com/athletic/5682252/2024/08/05/notre-dame-football-mailbag-questions-12/
 
+**Mondo Duplantis wins Olympic pole vault gold again**\
+`Duplantis is the first back-to-back gold medal winner in the Olympics since American Bob Richards, who won in the 1952 and 1956.`\
+https://nytimes.com/athletic/5682112/2024/08/05/mondo-duplantis-pole-vault-final-sam-kendricks/
+
 **Usha Vance Defends JD Vance’s ‘Childless Cat Ladies’ Claim as a ‘Quip’**\
 `Usha Vance said in a Fox News interview that her husband, who is Donald J. Trump’s running mate, had been trying to make a “substantive” point through jest.`\
 https://nytimes.com/2024/08/05/us/politics/usha-vance-childless-cat-lady.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/05/us/politics/usha-vance-childless-cat-lady.html
 **The Economy Is Looking Pre-Recessionary**\
 `Will a sluggish Fed snatch defeat from the jaws of victory?`\
 https://nytimes.com/2024/08/05/opinion/interest-rates-federal-reserve.html
-
-**X to Close Flagship San Francisco Office**\
-`Elon Musk, X’s owner, has clashed with California’s leaders and has said the social media platform would move its headquarters to Texas.`\
-https://nytimes.com/2024/08/05/technology/x-twitter-san-francisco-office.html
-
-**Rebeca Andrade beats Simone Biles and gets a well-earned Olympic moment**\
-`After years of mostly finishing behind Simone Biles in international competition, Rebeca Andrade got her moment Monday at the Olympics.`\
-https://nytimes.com/athletic/5681994/2024/08/05/rebeca-andrade-simone-biles-olympics-gymnastics-gold/
-
-**Supreme Court Rejects Long-Shot Challenge to Trump Hush Money Case**\
-`Missouri sought to sue New York under the court’s “original jurisdiction,” which sometimes allows suits between states to be brought directly to the justices.`\
-https://nytimes.com/2024/08/05/us/politics/supreme-court-trump-hush-money.html
 
