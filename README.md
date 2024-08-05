@@ -1,3 +1,7 @@
+**Pope Francis Names New Leader for Boston Archdiocese**\
+`Bishop Richard Henning will succeed Cardinal Seán P. O’Malley, one of the pope’s most trusted allies, who is retiring.`\
+https://nytimes.com/2024/08/05/us/pope-francis-boston-archdiocese-archbishop-henning.html
+
 **Here’s what to watch in the floor exercise final.**\
 `By Maggie Astor and Juliet Macur`\
 https://nytimes.com/live/2024/08/05/world/olympics-gymnastics-beam-floor-biles/heres-what-to-watch-in-the-floor-final
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/05/business/dealbook/stocks-bitcoin-markets-meltdown
 **Simone Biles finishes fifth in Olympic beam final after fall; Alice D'Amato wins gold**\
 `Simone Biles fell off the balance beam Monday in the Olympic final, finishing in fourth place and ending a perfect streak of golds.`\
 https://nytimes.com/athletic/5681192/2024/08/05/simone-biles-olympics-balance-beam-final-alice-damato/
-
-**St. Louis Cardinals takeaways: How outfield plans will look while team looks to 'turn it around'**\
-`"If we're gonna turn it around, we have to turn it around now," Miles Mikolas said after a tough series against the Cubs.`\
-https://nytimes.com/athletic/5680567/2024/08/05/cardinals-wild-card-victor-scott/
 
