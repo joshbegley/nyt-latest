@@ -1,3 +1,11 @@
+**Here’s what to watch in the floor final.**\
+`By Maggie Astor and Juliet Macur`\
+https://nytimes.com/live/2024/08/05/world/olympics-gymnastics-beam-floor-biles/heres-what-to-watch-in-the-floor-final
+
+**Key things to watch as Debby moves through the Southeast in the next day.**\
+`By Judson Jones`\
+https://nytimes.com/live/2024/weather/hurricane-debby-florida-storm/key-things-to-watch-as-debby-moves-through-the-southeast-in-the-next-day
+
 **Myanmar Rebels Claim Regional Military Base in Major Victory**\
 `The seizure of the military’s northeastern command post gives the resistance control of a city and airport on a crucial trade corridor to China.`\
 https://nytimes.com/2024/08/05/world/asia/myanmar-rebels-lashio.html

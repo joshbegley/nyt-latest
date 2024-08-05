@@ -1,3 +1,11 @@
+**Here’s what to watch in the floor final.**\
+`By Maggie Astor and Juliet Macur`\
+https://nytimes.com/live/2024/08/05/world/olympics-gymnastics-beam-floor-biles/heres-what-to-watch-in-the-floor-final
+
+**Key things to watch as Debby moves through the Southeast in the next day.**\
+`By Judson Jones`\
+https://nytimes.com/live/2024/weather/hurricane-debby-florida-storm/key-things-to-watch-as-debby-moves-through-the-southeast-in-the-next-day
+
 **Myanmar Rebels Claim Regional Military Base in Major Victory**\
 `The seizure of the military’s northeastern command post gives the resistance control of a city and airport on a crucial trade corridor to China.`\
 https://nytimes.com/2024/08/05/world/asia/myanmar-rebels-lashio.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5681192/2024/08/05/simone-biles-olympics-balance-be
 **St. Louis Cardinals takeaways: How outfield plans will look while team looks to 'turn it around'**\
 `"If we're gonna turn it around, we have to turn it around now," Miles Mikolas said after a tough series against the Cubs.`\
 https://nytimes.com/athletic/5680567/2024/08/05/cardinals-wild-card-victor-scott/
-
-**Leeds interested in Norwich's Jonathan Rowe**\
-`Leeds United are targeting Norwich City winger Jonathan Rowe as they seek a replacement for Crysencio Summerville.`\
-https://nytimes.com/athletic/5681188/2024/08/05/leeds-jonathan-rowe-transfer-norwich/
-
-**Elon Musk Revives Lawsuit Against OpenAI and Sam Altman**\
-`The Tesla chief executive has renewed claims that the A.I. start-up put profits and commercial interests ahead of the public good.`\
-https://nytimes.com/2024/08/05/technology/elon-musk-openai-lawsuit.html
 
