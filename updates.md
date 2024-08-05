@@ -1,3 +1,7 @@
+**The Weird Authoritarian Book Blurbed by JD Vance**\
+`A MAGA-world celebration of Francisco Franco and Joseph McCarthy.`\
+https://nytimes.com/2024/08/05/opinion/jd-vance-fascism-unhumans.html
+
 **Bangladesh Prime Minister Flees Country After Weeks of Protests**\
 `Prime Minister Sheikh Hasina resigned and fled Bangladesh under intense pressure from a growing protest movement enraged by her government’s deadly crackdowns.`\
 https://nytimes.com/video/world/asia/100000009612983/bangladesh-protests-hasina-resigns.html

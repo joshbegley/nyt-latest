@@ -1,3 +1,7 @@
+**The Weird Authoritarian Book Blurbed by JD Vance**\
+`A MAGA-world celebration of Francisco Franco and Joseph McCarthy.`\
+https://nytimes.com/2024/08/05/opinion/jd-vance-fascism-unhumans.html
+
 **Bangladesh Prime Minister Flees Country After Weeks of Protests**\
 `Prime Minister Sheikh Hasina resigned and fled Bangladesh under intense pressure from a growing protest movement enraged by her government’s deadly crackdowns.`\
 https://nytimes.com/video/world/asia/100000009612983/bangladesh-protests-hasina-resigns.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/05/us/politics/trump-adin-ross-livestream-gifts.html
 **Sanchez considering return to Udinese**\
 `Chile forward Alexis Sanchez is considering an offer from his former club Udinese.`\
 https://nytimes.com/athletic/5682593/2024/08/05/alexis-sanchez-udinese-transfer/
-
-**Bloomberg Disciplines Journalists Over Prisoner Swap Article**\
-`The news organization said it had broken an embargo about the news in a violation of its editorial standards.`\
-https://nytimes.com/2024/08/05/business/media/bloomberg-russia-prisoner-swap-gershkovich.html
 
