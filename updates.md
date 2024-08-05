@@ -1,3 +1,11 @@
+**The Market Meltdown Intensifies**\
+`Fears of a hard landing are rocking global stocks again as stocks, oil and cryptocurrencies sell off.`\
+https://nytimes.com/2024/08/05/business/dealbook/stocks-bitcoin-markets-meltdown.html
+
+**Simone Biles finishes fifth in Olympic beam final after fall; Alice D'Amato wins gold**\
+`Simone Biles fell off the balance beam Monday in the Olympic final, finishing in fourth place and ending a perfect streak of golds.`\
+https://nytimes.com/athletic/5681192/2024/08/05/simone-biles-olympics-balance-beam-final-alice-damato/
+
 **St. Louis Cardinals takeaways: How outfield plans will look while team looks to 'turn it around'**\
 `"If we're gonna turn it around, we have to turn it around now," Miles Mikolas said after a tough series against the Cubs.`\
 https://nytimes.com/athletic/5680567/2024/08/05/cardinals-wild-card-victor-scott/

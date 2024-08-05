@@ -1,3 +1,11 @@
+**The Market Meltdown Intensifies**\
+`Fears of a hard landing are rocking global stocks again as stocks, oil and cryptocurrencies sell off.`\
+https://nytimes.com/2024/08/05/business/dealbook/stocks-bitcoin-markets-meltdown.html
+
+**Simone Biles finishes fifth in Olympic beam final after fall; Alice D'Amato wins gold**\
+`Simone Biles fell off the balance beam Monday in the Olympic final, finishing in fourth place and ending a perfect streak of golds.`\
+https://nytimes.com/athletic/5681192/2024/08/05/simone-biles-olympics-balance-beam-final-alice-damato/
+
 **St. Louis Cardinals takeaways: How outfield plans will look while team looks to 'turn it around'**\
 `"If we're gonna turn it around, we have to turn it around now," Miles Mikolas said after a tough series against the Cubs.`\
 https://nytimes.com/athletic/5680567/2024/08/05/cardinals-wild-card-victor-scott/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/08/05/world/olympics-gymnastics-beam-floor-biles/a
 **Padres takeaways: How is Mike Shildt deploying his upgraded bullpen?**\
 `A.J. Preller once again swung big, landing not one but two impact arms and assembling the kind of bullpen you might see in a video game.`\
 https://nytimes.com/athletic/5679254/2024/08/05/padres-takeaways-upgraded-bullpen-use/
-
-**How Raiders' Antonio Pierce built camaraderie by testing his coaches' conditioning levels**\
-`Pierce had all 28 coaches on staff do a conditioning test similar to the players, with a topless Rob Ryan delivering the most laughs. `\
-https://nytimes.com/athletic/5680115/2024/08/05/raiders-coaches-conditioning-test-antonio-pierce/
-
-**Twins talking to WCCO and KFAN with radio contract set to expire: Sources**\
-`WCCO has been the Twins' radio home for 53 of the team’s 64 years in Minnesota, but KFAN is a viable alternative with long-term upside.`\
-https://nytimes.com/athletic/5678086/2024/08/05/twins-radio-contract-talks-wcco-kfan/
 
