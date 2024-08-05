@@ -11,7 +11,7 @@ https://nytimes.com/2024/08/05/theater/edinburgh-fringe-photos.html
 https://nytimes.com/live/2024/08/05/world/olympics-gymnastics-beam-floor-biles/jordan-chiles-is-a-vivid-presence-on-and-off-the-competition-floor
 
 **CrowdStrike Hits Back in Heated Spat With Delta Over Global Tech Outage**\
-`The cybersecurity company said the airline should take the blame after it struggled to rebound a software outage that caused disruptions worldwide.`\
+`The cybersecurity company said the airline should take the blame after it struggled to rebound from a software outage that caused disruptions worldwide.`\
 https://nytimes.com/2024/08/05/business/dealbook/crowdstrike-delta-tech-outage.html
 
 **He Was Freed From a Brutal Russian Jail. Here’s Why He Wanted to Stay.**\
