@@ -11,7 +11,7 @@ https://nytimes.com/live/2024/08/05/world/bangladesh-protests/the-governments-le
 https://nytimes.com/live/2024/08/05/world/bangladesh-protests/here-are-the-latest-developments
 
 **Live Updates: Bangladesh Protesters Call for Mass March After Deadly Crackdown**\
-`A student movement that began a month ago has turned into a broader challenge of Prime Minister Sheikh Hasina’s increasingly authoritarian rule.`\
+`A student movement that began a month ago has turned into a broader challenge to Prime Minister Sheikh Hasina’s increasingly authoritarian rule.`\
 https://nytimes.com/live/2024/08/05/world/bangladesh-protests
 
 **The five games Arsenal failed to score in last season: What lessons can be learned**\
