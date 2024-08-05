@@ -1,3 +1,23 @@
+**Chelsea's Gilchrist agrees Sheffield United loan**\
+`Chelsea defender Alfie Gilchrist has agreed to join Sheffield United on a season-long loan.`\
+https://nytimes.com/athletic/5681642/2024/08/05/alfie-gilchrist-chelsea-sheffield-united/
+
+**Tracking Tropical Storm Fabio**\
+`See the likely path and wind arrival times for Fabio.`\
+https://nytimes.com/interactive/2024/08/05/weather/fabio-map-path-tracker.html
+
+**West Ham confirm Fullkrug signing**\
+`West Ham United have confirmed the signing of Niclas Fullkrug from Borussia Dortmund.`\
+https://nytimes.com/athletic/5668178/2024/08/05/niclas-fullkrug-west-ham-transfer/
+
+**Denver Broncos plan to release Caden Sterns in latest shakeup at safety**\
+`The safety position continues to be in flux for the Broncos`\
+https://nytimes.com/athletic/5681700/2024/08/05/broncos-plan-to-release-caden-sterns/
+
+**A Family Reunion Menu Over 150 Years in the Making**\
+`The food at the Coleman-Richards reunion in Fayette County, Ky., offers a look at the family’s ties to America and Liberia.`\
+https://nytimes.com/2024/08/05/dining/kentucky-family-reunion-menu.html
+
 **The Next Month in the Economy Could be Crucial for the Presidential Election**\
 `Former President Trump is trying to stoke economic angst, while Vice President Harris projects optimism.`\
 https://nytimes.com/2024/08/05/business/markets-politics-election.html
