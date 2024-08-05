@@ -1,3 +1,7 @@
+**Trump’s Surreal Summer, in Photos**\
+`Six images that tell the story of Trump’s wild summer.`\
+https://nytimes.com/2024/08/05/us/politics/trump-summer-photos.html
+
 **JD Vance Just Blurbed a Book Arguing That Progressives Are Subhuman**\
 `A MAGA-world celebration of Francisco Franco and Joseph McCarthy.`\
 https://nytimes.com/2024/08/05/opinion/jd-vance-fascism-unhumans.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/05/world/middleeast/iraq-us-troops-iran-attack.html
 **Adin Ross Gives Trump a Cybertruck, a Rolex and Access to a Heavily Male Audience**\
 `The 23-year-old internet celebrity is enormously popular with a testosterone-heavy demographic that the former president sees as critical to his bid for office.`\
 https://nytimes.com/2024/08/05/us/politics/trump-adin-ross-livestream-gifts.html
-
-**Sanchez considering return to Udinese**\
-`Chile forward Alexis Sanchez is considering an offer from his former club Udinese.`\
-https://nytimes.com/athletic/5682593/2024/08/05/alexis-sanchez-udinese-transfer/
 
