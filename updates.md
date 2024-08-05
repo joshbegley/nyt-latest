@@ -1,3 +1,7 @@
+**Where the Nuggets stand in the Western Conference after an eventful offseason**\
+`If the last two years have proven anything it's this: Nikola Jokić represents the Nuggets' floor while Jamal Murray is the Nuggets' ceiling.`\
+https://nytimes.com/athletic/5680130/2024/08/05/denver-nuggets-nikola-jokic-jamal-murray/
+
 **America’s High Drunk-Driving Limit**\
 `We explore why it matters and whether the limit might change.`\
 https://nytimes.com/2024/08/05/briefing/drunk-driving-limit.html
