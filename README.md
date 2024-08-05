@@ -1,3 +1,7 @@
+**USWNT's Emma Hayes says all players trained ahead of Olympics semifinal: 'It's a great sign'**\
+`Several players were dealing with knocks heading into the semifinal.`\
+https://nytimes.com/athletic/5681488/2024/08/05/uswnt-emma-hayes-players-training/
+
 **PSG confirm Neves signing from Benfica**\
 `Paris Saint-Germain have confirmed the signing of Joao Neves from Benfica.`\
 https://nytimes.com/athletic/5681394/2024/08/05/joao-neves-psg-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/05/world/olympics-gymnastics-beam-floor-biles/j
 **CrowdStrike Hits Back in Heated Spat With Delta Over Global Tech Outage**\
 `The cybersecurity company said the airline should take the blame after it struggled to rebound from a software outage that caused disruptions worldwide.`\
 https://nytimes.com/2024/08/05/business/dealbook/crowdstrike-delta-tech-outage.html
-
-**He Was Freed From a Brutal Russian Jail. Here’s Why He Wanted to Stay.**\
-`The dissident Ilya Yashin calls his release in a prisoner swap last week an ‘illegal expulsion’ by Russia that damages his ability to be heard at home.`\
-https://nytimes.com/2024/08/05/world/europe/russia-prisoner-swap-ilya-yashin.html
 
