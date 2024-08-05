@@ -1,3 +1,15 @@
+**Protesters defied the risk of fresh violence to drive Hasina from power.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/08/05/world/bangladesh-protests/protesters-defied-the-risk-of-fresh-violence-to-drive-hasina-from-power
+
+**Diplomacy intensifies as fears of a wider regional war loom.**\
+`By Vivian Nereim`\
+https://nytimes.com/live/2024/08/05/world/israel-iran-hezbollah-gaza/diplomacy-intensifies-as-fears-of-a-wider-regional-war-loom
+
+**Nvidia Tumbles After Reports of Chip Delay**\
+`The A.I. chip maker’s shares fell in early trading, but the stock pared some of its losses.`\
+https://nytimes.com/2024/08/05/business/nvidia-stocks.html
+
 **Advice: When the Stock Market Drops, Stay Calm and Do Nothing**\
 `There is no reason to think that you can predict what will happen in the markets in the next few hours or in the near future. It’s better not to try.`\
 https://nytimes.com/2024/08/05/business/stock-market-advice.html
