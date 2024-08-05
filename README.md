@@ -1,3 +1,7 @@
+**Stocks Tumbled Over Fears of a U.S. Economic Slowdown**\
+`Also, a judge ruled that Google violated antitrust laws and Bangladesh’s leader resigned`\
+https://nytimes.com/2024/08/05/briefing/stocks-tumbled-over-fears-of-a-us-economic-slowdown.html
+
 **U.S. Troops in Iraq Are Wounded in Rocket Attack on Air Base**\
 `The attack late Monday resembled previous ones carried out by Iraqi armed groups, backed by Iran, which have targeted the base repeatedly over the past year.`\
 https://nytimes.com/2024/08/05/world/middleeast/iraq-us-troops-iran-attack.html
@@ -21,10 +25,6 @@ https://nytimes.com/2024/08/05/us/politics/jd-vance-kamala-harris-campaign-sched
 **A couple’s carport looked dry right after Debby. Then the Steinhatchee River rose.**\
 `By Valerie Crowder`\
 https://nytimes.com/live/2024/weather/hurricane-debby-florida-storm/debby-steinhatchee
-
-**Stocks Tumbled Over Fears of a U.S. Economic Slowdown**\
-`Also, a judge ruled that Google violated antitrust laws and Bangladesh’s leader resigned`\
-https://nytimes.com/2024/08/05/briefing/stocks-tumbled-over-fears-of-a-us-economic-slowdown.html
 
 **Should a Detroit Congressional District Be a ‘Black Seat’?**\
 `Some city leaders are challenging the re-election of an Indian American congressman.`\
