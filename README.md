@@ -1,3 +1,11 @@
+**Bangladesh Prime Minister Flees Country After Weeks of Protests**\
+`Prime Minister Sheikh Hasina resigned and fled Bangladesh under intense pressure from a growing protest movement enraged by her government’s deadly crackdowns.`\
+https://nytimes.com/video/world/asia/100000009612983/bangladesh-protests-hasina-resigns.html
+
+**David Lynch Says He Has Emphysema**\
+`The director, 78, confirmed the diagnosis in a social media post after revealing in a magazine interview that he would be limited to directing remotely.`\
+https://nytimes.com/2024/08/05/us/david-lynch-emphysema-twin-peaks.html
+
 **49ers have discussed Aiyuk trade: Source**\
 `Aiyuk trade talks have heated up as the 49ers completed their second week of training camp no closer to a deal with their star receiver.`\
 https://nytimes.com/athletic/5682632/2024/08/05/49ers-brandon-aiyuk-trade-talks/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5682593/2024/08/05/alexis-sanchez-udinese-transfer/
 **Bloomberg Disciplines Journalists Over Prisoner Swap Article**\
 `The news organization said it had broken an embargo about the news in a violation of its editorial standards.`\
 https://nytimes.com/2024/08/05/business/media/bloomberg-russia-prisoner-swap-gershkovich.html
-
-**Vance Is Touring the Same Battleground States as Harris This Week**\
-`The Republican vice-presidential nominee will hold events that overlap with the stops Vice President Kamala Harris has planned, sometimes even in the same city.`\
-https://nytimes.com/2024/08/05/us/politics/jd-vance-kamala-harris-campaign-schedule.html
-
-**A couple’s carport looked dry right after Debby. Then the Steinhatchee River rose.**\
-`By Valerie Crowder`\
-https://nytimes.com/live/2024/weather/hurricane-debby-florida-storm/debby-steinhatchee
 
