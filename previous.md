@@ -1,3 +1,11 @@
+**Debby Drenches Florida in Slow Crawl Northeast**\
+`The storm made landfall near Steinhatchee, Fla., as a Category 1 hurricane before weakening back into a tropical storm.`\
+https://nytimes.com/video/us/100000009611543/tropical-storm-hurricane-debby-florida.html
+
+**Notre Dame starting OT out for season with injury**\
+`Notre Dame announced Monday that projected starting left tackle Charles Jagusah tore his right pectoralis muscle and will miss the season.`\
+https://nytimes.com/athletic/5681917/2024/08/05/charles-jagusah-notre-dame-injury-season/
+
 **A Race at Warp Speed: For Harris, There Are Advantages in a Late Start**\
 `This presidential campaign is playing out in fast forward. Strategists in both parties say speed is likely to benefit Vice President Kamala Harris.`\
 https://nytimes.com/2024/08/05/us/politics/kamala-harris-donald-trump-2024-campaign.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/05/arts/television/yo-gabba-gabbaland-revives-a-cult
 **Lions' Terrion Arnold evaluated for concussion**\
 `The rookie was drafted to help bolster one of the worst passing defenses in the NFL.`\
 https://nytimes.com/athletic/5681912/2024/08/05/terrion-arnold-concussion-lions-giants-practice/
-
-**The Economist Who Predicted What Could Well Be the Next Recession**\
-`David Rosenberg has a history of making calls many don’t want to hear.`\
-https://nytimes.com/2024/08/05/opinion/david-rosenberg-recession.html
-
-**Lincoln Center’s Rebranded Orchestra Settles Into Its Debut Season**\
-`Compared with previous seasons, recent concerts by the Festival Orchestra of Lincoln Center were refreshingly casual, but also more mixed.`\
-https://nytimes.com/2024/08/05/arts/music/festival-orchestra-of-lincoln-center.html
 

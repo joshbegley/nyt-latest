@@ -1,3 +1,11 @@
+**Debby Drenches Florida in Slow Crawl Northeast**\
+`The storm made landfall near Steinhatchee, Fla., as a Category 1 hurricane before weakening back into a tropical storm.`\
+https://nytimes.com/video/us/100000009611543/tropical-storm-hurricane-debby-florida.html
+
+**Notre Dame starting OT out for season with injury**\
+`Notre Dame announced Monday that projected starting left tackle Charles Jagusah tore his right pectoralis muscle and will miss the season.`\
+https://nytimes.com/athletic/5681917/2024/08/05/charles-jagusah-notre-dame-injury-season/
+
 **A Race at Warp Speed: For Harris, There Are Advantages in a Late Start**\
 `This presidential campaign is playing out in fast forward. Strategists in both parties say speed is likely to benefit Vice President Kamala Harris.`\
 https://nytimes.com/2024/08/05/us/politics/kamala-harris-donald-trump-2024-campaign.html
