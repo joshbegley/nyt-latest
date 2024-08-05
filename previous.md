@@ -1,3 +1,23 @@
+**This N.Y.C. Tourist Hub Has Become Trash-Strewn Chaos for Everyone**\
+`Eighth Avenue in Manhattan connects Broadway’s theaters to the Knicks at Madison Square Garden. But it is also crowded, dirty and sometimes dangerous.`\
+https://nytimes.com/2024/08/05/nyregion/street-wars-eighth-avenue.html
+
+**How 2024 Became the Zoom Election**\
+`Hastily assembled mega-rallies conducted over Zoom are raising millions to elect Kamala Harris, giving the videoconferencing app an unexpected role in this year’s campaign.`\
+https://nytimes.com/2024/08/05/technology/how-2024-became-the-zoom-election.html
+
+**He Took His 68-Year-Old Secret to Court and Finally Confronted His Ghost**\
+`Robin Davis spent a long career in finance and philanthropy haunted by what had happened to him as a boy. Could an unusual trial on Long Island help him find peace?`\
+https://nytimes.com/2024/08/05/nyregion/robin-davis-child-abuse-trial.html
+
+**MS-13 Killed Her Sister. That Was Just the Beginning of Her Pain.**\
+`After Kelsey Cuevas lost her sister Kayla, a driver ran over their mother at the site of Kayla’s memorial. The driver is set to be sentenced to probation.`\
+https://nytimes.com/2024/08/05/nyregion/ms-13-gang-long-island.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/05/crosswords/spelling-bee-forum.html
+
 **Word of the Day: labyrinthine**\
 `This word has appeared in 61 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/05/learning/word-of-the-day-labyrinthine.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/08/05/business/global-stocks.html
 **What’s on TV This Week: ‘Pretty Woman’ and ‘Don’t Forget the Lyrics!’**\
 `HBO airs the classic rom-com. And the competitive singing show broadcasts its season finale.`\
 https://nytimes.com/2024/08/05/arts/television/whats-on-tv-pretty-woman-dont-forget-lyrics.html
-
-**Malick Yalcouye, Brighton's new 18-year-old midfielder with the talent to reach the top**\
-`Fabian Hurzeler, Brighton's new head coach, believes the midfielder has 'lots of potential to develop into a top-class player'`\
-https://nytimes.com/athletic/5668069/2024/08/05/malick-yalcouye-brighton-signing-analysis/
-
-**The government’s lethal response brings new risks.**\
-`By Saif Hasnat and Mujib Mashal`\
-https://nytimes.com/live/2024/08/05/world/bangladesh-protests/the-governments-lethal-response-brings-new-risks
-
-**Here are the latest developments.**\
-`By Mujib Mashal and Saif Hasnat`\
-https://nytimes.com/live/2024/08/05/world/bangladesh-protests/here-are-the-latest-developments
-
-**Live Updates: Police Block Bangladesh Protesters After Deadly Crackdown**\
-`A student movement that began a month ago has turned into a broader challenge to Prime Minister Sheikh Hasina’s increasingly authoritarian rule.`\
-https://nytimes.com/live/2024/08/05/world/bangladesh-protests
-
-**The five games Arsenal failed to score in last season: What lessons can be learned**\
-`Why were Arsenal goalless in these games — and how can that particular small margin be improved next season`\
-https://nytimes.com/athletic/5646944/2024/08/05/arsenal-five-games-failed-score-2023-2024/
 
