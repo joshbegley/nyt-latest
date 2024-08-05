@@ -1,3 +1,7 @@
+**Pope Francis Names New Leader for Boston Archdiocese**\
+`Bishop Richard Henning will succeed Cardinal Seán P. O’Malley, one of the pope’s most trusted allies, who is retiring.`\
+https://nytimes.com/2024/08/05/us/pope-francis-boston-archdiocese-archbishop-henning.html
+
 **Pentagon Hands Over Last Base in Niger as Extremism Spreads in the Sahel**\
 `Relations between the two countries soured after a coup last year. Now the United States is scrambling to find new security partners.`\
 https://nytimes.com/2024/08/05/us/politics/us-military-withdrawal-niger.html
