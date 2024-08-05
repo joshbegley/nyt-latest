@@ -1,3 +1,7 @@
+**Markets Around the World Are Rattled by Fears of Slowing U.S. Growth**\
+`Stocks in Asia tumbled, led by Japan, where declines triggered “circuit breakers” meant to calm rapid moves. European and U.S. markets were set for declines.`\
+https://nytimes.com/2024/08/05/business/global-stocks.html
+
 **What’s on TV This Week: ‘Pretty Woman’ and ‘Don’t Forget the Lyrics!’**\
 `HBO airs the classic rom-com. And the competitive singing show broadcasts its season finale.`\
 https://nytimes.com/2024/08/05/arts/television/whats-on-tv-pretty-woman-dont-forget-lyrics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/05/world/olympics/olympics-norway-track-summer-sport
 **Leon Marchand, the king of the Paris Olympics - and the club where it all began**\
 `Leon Marchand's swimming career began in a swimming pool in Toulouse. This summer, he is one of the stars of the Olympic Games`\
 https://nytimes.com/athletic/5679725/2024/08/05/leon-marchand-olympic-games-swimming-paris/
-
-**Monday Briefing**\
-`Kamala Harris’s search for a running mate.`\
-https://nytimes.com/2024/08/05/briefing/kamala-harris-britain-riots-israel.html
 
