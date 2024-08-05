@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5682632/2024/08/05/49ers-brandon-aiyuk-trade-talks/
 https://nytimes.com/2024/08/05/world/middleeast/israel-hamas-iran-retaliation.html
 
 **Giants send message with scrappy practice vs. Lions: They'll be a grittier team in 2024**\
-`That dawg mentality so embraced by Giants coach Brian Daboll was evident throughout his roster on Monday.`\
+`That dawg mentality so embraced by Giants coach Brian Daboll was evident throughout his roster Monday.`\
 https://nytimes.com/athletic/5682503/2024/08/05/new-york-giants-detroit-lions-joint-practice-fights/
 
 **Stocks Tumbled Over Fears of a U.S. Economic Slowdown**\
