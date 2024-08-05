@@ -1,3 +1,7 @@
+**The Willful Amnesia Behind Trump’s Attacks on Harris’s Identity**\
+`Suggesting that there is something contrived about a mixed-race person identifying as Black assumes that the choice wasn’t already made for her.`\
+https://nytimes.com/2024/08/04/magazine/kamala-harris-black-identity-history.html
+
 **Harris Faces Party Divisions as She Chooses a Running Mate**\
 `The vice president conducted interviews with potential candidates over the weekend and has fielded concerns from donors and activists over the choice.`\
 https://nytimes.com/2024/08/04/us/politics/kamala-harris-vp-democrats-divided.html
