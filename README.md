@@ -1,3 +1,7 @@
+**Newcastle submit bid for Palace defender Guehi**\
+`Newcastle United have submitted an opening bid for Crystal Palace defender Marc Guehi.`\
+https://nytimes.com/athletic/5676461/2024/08/05/marc-guehi-newcastle-united/
+
 **Virginia Man Threatened to Kill Kamala Harris, Authorities Say**\
 `Frank Carillo, 66, also made threats against President Biden and Christopher A. Wray, the F.B.I. director, according to federal prosecutors.`\
 https://nytimes.com/2024/08/05/us/politics/virginia-man-charged-harris-threat.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/05/business/stocks-market-crash-economy/the-sah
 **Debby Drenches Florida in Slow Crawl Northeast**\
 `The storm made landfall near Steinhatchee, Fla., as a Category 1 hurricane before weakening back into a tropical storm.`\
 https://nytimes.com/video/us/100000009611543/tropical-storm-hurricane-debby-florida.html
-
-**Notre Dame starting OT out for season with injury**\
-`Notre Dame announced Monday that projected starting left tackle Charles Jagusah tore his right pectoralis muscle and will miss the season.`\
-https://nytimes.com/athletic/5681917/2024/08/05/charles-jagusah-notre-dame-injury-season/
 

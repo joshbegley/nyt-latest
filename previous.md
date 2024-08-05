@@ -1,3 +1,15 @@
+**Virginia Man Threatened to Kill Kamala Harris, Authorities Say**\
+`Frank Carillo, 66, also made threats against President Biden and Christopher A. Wray, the F.B.I. director, according to federal prosecutors.`\
+https://nytimes.com/2024/08/05/us/politics/virginia-man-charged-harris-threat.html
+
+**George Saunders Reflects on His Novel ‘Lincoln in the Bardo’**\
+`The third in a series of conversations with authors appearing on our “Best Books of the 21st Century” list.`\
+https://nytimes.com/2024/08/05/books/review/podcast-george-saunders-lincoln-in-the-bardo.html
+
+**Giants week in review: A 5-hitter, a no-hitter and a homer that landed in the Posey seats**\
+`Blake Snell and Logan Webb had an historic week, while the Giants inched back towards .500. Can they finally reach that plateau?`\
+https://nytimes.com/athletic/5681353/2024/08/05/sf-giants-weekly-review-blake-snell-logan-webb/
+
 **Giants QB Daniel Jones, GM Joe Schoen involved in fights at joint practice with Lions**\
 `There were so many fights Monday, it was hard to keep track of how many there actually were. `\
 https://nytimes.com/athletic/5681909/2024/08/05/new-york-giants-detroit-lions-joint-practice-fights-daniel-jones/
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/100000009611543/tropical-storm-hurricane-debby-flor
 **Notre Dame starting OT out for season with injury**\
 `Notre Dame announced Monday that projected starting left tackle Charles Jagusah tore his right pectoralis muscle and will miss the season.`\
 https://nytimes.com/athletic/5681917/2024/08/05/charles-jagusah-notre-dame-injury-season/
-
-**A Race at Warp Speed: For Harris, There Are Advantages in a Late Start**\
-`This presidential campaign is playing out in fast forward. Strategists in both parties say speed is likely to benefit Vice President Kamala Harris.`\
-https://nytimes.com/2024/08/05/us/politics/kamala-harris-donald-trump-2024-campaign.html
-
-**Crowds Swarm Prime Minister’s Residence after Bangladesh Leader Flees**\
-`Looters made off with furniture, bedding and potted plants`\
-https://nytimes.com/2024/08/05/world/asia/bangladesh-protests-looting-prime-minister-residence.html
-
-**Barbara Howar, Irreverent Memoirist of Washington Society, Dies at 89**\
-`She was already a prominent hostess in the nation’s capital when her uninhibited, best-selling 1973 memoir, “Laughing All the Way,” made her a star.`\
-https://nytimes.com/2024/08/05/books/barbara-howar-dead.html
 
