@@ -1,3 +1,7 @@
+**A Race at Warp Speed: For Harris, There Are Advantages in a Late Start**\
+`This presidential campaign is playing out in fast forward. Strategists in both parties say speed is likely to benefit Vice President Kamala Harris.`\
+https://nytimes.com/2024/08/05/us/politics/kamala-harris-donald-trump-2024-campaign.html
+
 **Crowds swarm prime minister’s residence after Bangladesh leader flees.**\
 `By Eve Sampson`\
 https://nytimes.com/live/2024/08/05/world/bangladesh-protests/crowds-swarm-prime-ministers-residence-after-bangladesh-leader-flees
