@@ -1,3 +1,15 @@
+**Submit your questions for Pete Sampson’s Notre Dame football mailbag**\
+`What's on your mind about the Irish with preseason football camp underway?`\
+https://nytimes.com/athletic/5682252/2024/08/05/notre-dame-football-mailbag-questions-12/
+
+**Usha Vance Defends JD Vance’s ‘Childless Cat Ladies’ Claim as a ‘Quip’**\
+`Usha Vance said in a Fox News interview that her husband, who is Donald J. Trump’s running mate, had been trying to make a “substantive” point through jest.`\
+https://nytimes.com/2024/08/05/us/politics/usha-vance-childless-cat-lady.html
+
+**The Economy Is Looking Pre-Recessionary**\
+`Will a sluggish Fed snatch defeat from the jaws of victory?`\
+https://nytimes.com/2024/08/05/opinion/interest-rates-federal-reserve.html
+
 **X to Close Flagship San Francisco Office**\
 `Elon Musk, X’s owner, has clashed with California’s leaders and has said the social media platform would move its headquarters to Texas.`\
 https://nytimes.com/2024/08/05/technology/x-twitter-san-francisco-office.html
