@@ -1,3 +1,11 @@
+**The prime minister’s crackdown rained carnage on Bangladesh.**\
+`By Mujib Mashal`\
+https://nytimes.com/live/2024/08/05/world/bangladesh-protests/the-prime-ministers-crackdown-rained-carnage-on-bangladesh
+
+**Out and About at the Edinburgh Fringe**\
+`The streets of the Scottish capital are packed as thousands of performers seek to entertain and entice.`\
+https://nytimes.com/2024/08/05/theater/edinburgh-fringe-photos.html
+
 **Jordan Chiles is a vivid presence on and off the competition floor.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/08/05/world/olympics-gymnastics-beam-floor-biles/jordan-chiles-is-a-vivid-presence-on-and-off-the-competition-floor
