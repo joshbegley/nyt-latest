@@ -1,3 +1,11 @@
+**Preseason Coaches Poll released: Who's overrated and underrated?**\
+`Georgia and Ohio State are No. 1 and 2, respectively, and the SEC and Big Ten dominate the Top 25.`\
+https://nytimes.com/athletic/5681893/2024/08/05/college-football-preseason-top-25-coaches-poll/
+
+**Niclas Fullkrug to West Ham: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Niclas Fullkrug's move to West Ham United`\
+https://nytimes.com/athletic/5671294/2024/08/05/niclas-fullkrug-to-west-ham-the-athletic-500-transfer-ratings/
+
 **The Sahm Rule points to a recession. Here’s what the rule maker thinks.**\
 `Claudia Sahm, the economist who devised a key indicator, says the economy is not in a recession, but notes it could be soon if policymakers don’t act.`\
 https://nytimes.com/live/2024/08/05/business/stocks-market-crash-economy/the-sahm-rule-points-to-a-recession-heres-what-the-rule-maker-thinks
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5681940/2024/08/05/usc-football-recruiting-carde-sm
 **NFL reinstates Broncos DL after year-long betting suspension**\
 `The NFL on Monday reinstated Broncos defensive end Eyioma Uwazurike one year after he was indefinitely suspended for violating league gambling rules, the team announced.`\
 https://nytimes.com/athletic/5681923/2024/08/05/nfl-broncos-eyioma-uwazurike-betting-suspension/
-
-**How 100-Year-Old Ella Jenkins Revolutionized Children’s Music**\
-`Over seven decades, she brought a world of genres and ideas to songs for the young. On her centennial, what she would really like to do is perform again.`\
-https://nytimes.com/2024/08/05/arts/music/ella-jenkins-childrens-music-centennial.html
-
-**‘Yo Gabba GabbaLand!’ Revives a Cult Kids Show**\
-`This reboot features the same characters and still emphasizes music and dance while seeking to “make the world of Gabba an actual place,” a creator said.`\
-https://nytimes.com/2024/08/05/arts/television/yo-gabba-gabbaland-revives-a-cult-kids-show.html
 
