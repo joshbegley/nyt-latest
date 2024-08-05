@@ -1,3 +1,15 @@
+**He Was Freed From a Brutal Russian Jail. Here’s Why He Wanted to Stay.**\
+`The dissident Ilya Yashin calls his release in a prisoner swap last week an ‘illegal expulsion’ by Russia that damages his ability to be heard at home.`\
+https://nytimes.com/2024/08/05/world/europe/russia-prisoner-swap-ilya-yashin.html
+
+**Can the Higgs Boson Shine on Broadway?**\
+`A musical about particle physics is under development, with David Henry Hwang, the playwright behind “M. Butterfly.”`\
+https://nytimes.com/2024/08/05/science/higgs-boson-musical.html
+
+**49ers sophomore report card: Where things stand with Ji'Ayir Brown and the 2023 class**\
+`With Brown and Dee Winters leading the way, the early indication is that this year's second-year class is better overall than last year's.`\
+https://nytimes.com/athletic/5680414/2024/08/05/49ers-sophomores-jiayir-brown-jake-moody/
+
 **The Author of ‘Red, White and Royal Blue’ Is Back, With More Spice and No Shame**\
 `Casey McQuiston’s debut proved that queer romance can be a hit. In their latest novel, “The Pairing,” sex doesn’t only sell; it’s also “beautiful and really soul affirming.”`\
 https://nytimes.com/2024/08/05/books/casey-mcquiston-the-pairing.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5679867/2024/08/05/seahawks-camp-defense-mike-macdo
 **Here’s the latest on the presidential race.**\
 `By Nick Corasaniti`\
 https://nytimes.com/live/2024/08/05/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**What might the Sharks' lineup look like on opening night?**\
-`Things are bound to improve for the new-look Sharks, and they have some options with their forward lines.`\
-https://nytimes.com/athletic/5674656/2024/08/05/sharks-lineup-roster-2024-25/
-
-**Pentagon Hands Over Last Base in Niger as Extremism Spreads in the Sahel**\
-`Relations between the two countries soured after a coup last year. Now the United States is scrambling to find new security partners.`\
-https://nytimes.com/2024/08/05/us/politics/us-military-withdrawal-niger.html
-
-**The Market Meltdown Intensifies**\
-`Fears of a hard landing are rocking global stocks again as stocks, oil and cryptocurrencies sell off.`\
-https://nytimes.com/2024/08/05/business/dealbook/stocks-bitcoin-markets-meltdown.html
 
