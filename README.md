@@ -24,7 +24,7 @@ https://nytimes.com/2024/08/05/dining/lorenza-de-medici-dead.html
 
 **If that was it for Simone Biles' Olympic career, let's all appreciate what we just saw**\
 `Whatever Simone Biles decides to do next, her legacy will be one of gymnastics excellence and, more importantly, courage off the mat.`\
-https://nytimes.com/athletic/5682089/2024/08/05/if-that-was-it-for-simone-biles-olympic-career-lets-all-appreciate-what-we-just-saw/
+https://nytimes.com/athletic/5682089/2024/08/05/simone-biles-olympics-gymnastics-career-retirement-legacy/
 
 **Yoro undergoes surgery on foot injury**\
 `Manchester United&#8217;s summer signing Leny Yoro has successfully undergone surgery on a foot injury, the club confirmed on Monday.`\
