@@ -1,3 +1,15 @@
+**49ers have discussed Aiyuk trade: Source**\
+`Aiyuk trade talks have heated up as the 49ers completed their second week of training camp no closer to a deal with their star receiver.`\
+https://nytimes.com/athletic/5682632/2024/08/05/49ers-brandon-aiyuk-trade-talks/
+
+**As Israel Braces for Iran’s Retaliation, Diplomats Work to Avoid Wider War**\
+`President Biden convened his national security team and spoke with King Abdullah II of Jordan, and foreign ministers from Islamic countries plan to gather in Saudi Arabia on Wednesday.`\
+https://nytimes.com/2024/08/05/world/middleeast/israel-hamas-iran-retaliation.html
+
+**Giants send message with scrappy practice vs. Lions: They'll be a grittier team in 2024**\
+`That dawg mentality so embraced by Giants coach Brian Daboll was evident throughout his roster on Monday.`\
+https://nytimes.com/athletic/5682503/2024/08/05/new-york-giants-detroit-lions-joint-practice-fights/
+
 **U.S. Troops in Iraq Are Wounded in Rocket Attack on Air Base**\
 `The attack late Monday resembled previous ones carried out by Iraqi armed groups, backed by Iran, which have targeted the base repeatedly over the past year.`\
 https://nytimes.com/2024/08/05/world/middleeast/iraq-us-troops-iran-attack.html
