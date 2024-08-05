@@ -1,3 +1,7 @@
+**How Noah Lyles became Olympic 100m champion: A 300-page textbook, biomechanics and a stickman**\
+`Lyles is renowned as a strong finisher, but it was the work he put in on his start with a 75-year-old former Olympian that proved decisive`\
+https://nytimes.com/athletic/5680407/2024/08/05/lyles-100m-mann-stickman-biomechanics-start/
+
 **This N.Y.C. Tourist Hub Has Become Trash-Strewn Chaos for Everyone**\
 `Eighth Avenue in Manhattan connects Broadway’s theaters to the Knicks at Madison Square Garden. But it is also crowded, dirty and sometimes dangerous.`\
 https://nytimes.com/2024/08/05/nyregion/street-wars-eighth-avenue.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/05/business/samsung-workers-end-strike.html
 **Markets Around the World Are Rattled by Fears of Slowing U.S. Growth**\
 `Stocks in Asia tumbled, led by Japan, where declines triggered “circuit breakers” meant to calm rapid moves. European and U.S. markets were set for declines.`\
 https://nytimes.com/2024/08/05/business/global-stocks.html
-
-**What’s on TV This Week: ‘Pretty Woman’ and ‘Don’t Forget the Lyrics!’**\
-`HBO airs the classic rom-com. And the competitive singing show broadcasts its season finale.`\
-https://nytimes.com/2024/08/05/arts/television/whats-on-tv-pretty-woman-dont-forget-lyrics.html
 
