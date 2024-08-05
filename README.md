@@ -1,3 +1,7 @@
+**The Next Month in the Economy Could be Crucial for the Presidential Election**\
+`Former President Trump is trying to stoke economic angst, while Vice President Harris projects optimism.`\
+https://nytimes.com/2024/08/05/business/markets-politics-election.html
+
 **Fighting Malaria: The Role of Two Groups**\
 `The W.H.O. and the Gates Foundation respond to a Science article. Also: A revoked 9/11 plea deal; a debate on Fox; mispronouncing “Kamala”; climate-themed movies.`\
 https://nytimes.com/2024/08/05/opinion/fighting-malaria.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/05/world/olympics/simone-biles-gymnastics-goat-paris
 **Why Is Iran Expected to Attack Israel? What to Know About the Crisis.**\
 `Iran has vowed to retaliate for the killing of a senior Hamas leader in Tehran last week in an attack for which it has blamed Israel.`\
 https://nytimes.com/2024/08/05/world/middleeast/iran-israel-attack-strikes-why.html
-
-**Tracking Tropical Storm Emilia**\
-`See the likely path and wind arrival times for Emilia.`\
-https://nytimes.com/interactive/2024/08/05/weather/map-emilia-path-tracker.html
 
