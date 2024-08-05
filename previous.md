@@ -1,3 +1,23 @@
+**USMNT's Ream traveling to complete Charlotte FC transfer**\
+`Fulham defender Tim Ream is traveling to the United States to complete a permanent transfer to Major League Soccer side Charlotte FC.`\
+https://nytimes.com/athletic/5681583/2024/08/05/charlotte-fc-tim-ream-fulham-transfer/
+
+**Pelosi Says She Pushed Biden to Step Aside Because of Need to Defeat Trump**\
+`A new book by the former speaker details her clashes with the former president, but it was written before her most recent exercise of political might: helping persuade President Biden to end his re-election bid.`\
+https://nytimes.com/2024/08/05/us/politics/pelosi-book-trump-biden.html
+
+**Booker disagrees with Lyles but says 100m win 'great for America'**\
+`Last year, Lyles noted how NBA title winners shouldn't be called "'world champions."`\
+https://nytimes.com/athletic/5681491/2024/08/05/noah-lyles-nba-comment-devin-booker-olympics/
+
+**When Will the F.D.A. Crack Down on Stem Cell Clinics?**\
+`The agency has done little to put an end to dangerous medical scams.`\
+https://nytimes.com/live/2024/07/30/opinion/thepoint/fda-stem-cell-clinics
+
+**Atletico close to agreeing deal for Man City's Alvarez**\
+`Atletico Madrid are close to striking a deal with Manchester City to sign forward Julian Alvarez.`\
+https://nytimes.com/athletic/5678762/2024/08/05/julian-alvarez-transfer-atletico/
+
 **To Become the G.O.A.T., Simone Biles First Had to Be a Turtle**\
 `She sealed her legacy with four medals at the Paris Games. She created it by being herself and going at her own pace.`\
 https://nytimes.com/2024/08/05/world/olympics/simone-biles-gymnastics-goat-paris.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/08/05/movies/deadpool-and-wolverine-shawn-levy.html
 **Hetty Lui McKinnon Has a New Dumpling Salad Recipe**\
 `This time with smashed cucumbers and an umami-rich peanut sauce.`\
 https://nytimes.com/2024/08/05/dining/hetty-lui-mckinnon-has-a-new-dumpling-salad-recipe.html
-
-**Can You Find the 12 Book Titles Hidden in This Text?**\
-`This puzzle challenges you to find the names of a dozen medical thrillers tucked within a very short story.`\
-https://nytimes.com/interactive/2024/08/05/books/review/medical-thrillers-quiz.html
-
-**Can Stress Really Give You a Round ‘Cortisol Face’?**\
-`Online influencers claim the hormone can change the shape of your face. But experts say that misconstrues how cortisol works.`\
-https://nytimes.com/2024/08/05/well/tiktok-cortisol-face-stress.html
-
-**Bitcoin and other cryptocurrencies plunge, mirroring global markets.**\
-`The precipitous falls show that digital currencies remain vulnerable to the same broader economic forces that affect technology stocks and risky investments.`\
-https://nytimes.com/2024/08/05/business/bitcoin-stock-market.html
-
-**Protesters defied the risk of fresh violence to drive Hasina from power.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/08/05/world/bangladesh-protests/protesters-defied-the-risk-of-fresh-violence-to-drive-hasina-from-power
-
-**Diplomacy intensifies as fears of a wider regional war loom.**\
-`By Vivian Nereim`\
-https://nytimes.com/live/2024/08/05/world/israel-iran-hezbollah-gaza/diplomacy-intensifies-as-fears-of-a-wider-regional-war-loom
 

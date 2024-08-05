@@ -1,3 +1,23 @@
+**USMNT's Ream traveling to complete Charlotte FC transfer**\
+`Fulham defender Tim Ream is traveling to the United States to complete a permanent transfer to Major League Soccer side Charlotte FC.`\
+https://nytimes.com/athletic/5681583/2024/08/05/charlotte-fc-tim-ream-fulham-transfer/
+
+**Pelosi Says She Pushed Biden to Step Aside Because of Need to Defeat Trump**\
+`A new book by the former speaker details her clashes with the former president, but it was written before her most recent exercise of political might: helping persuade President Biden to end his re-election bid.`\
+https://nytimes.com/2024/08/05/us/politics/pelosi-book-trump-biden.html
+
+**Booker disagrees with Lyles but says 100m win 'great for America'**\
+`Last year, Lyles noted how NBA title winners shouldn't be called "'world champions."`\
+https://nytimes.com/athletic/5681491/2024/08/05/noah-lyles-nba-comment-devin-booker-olympics/
+
+**When Will the F.D.A. Crack Down on Stem Cell Clinics?**\
+`The agency has done little to put an end to dangerous medical scams.`\
+https://nytimes.com/live/2024/07/30/opinion/thepoint/fda-stem-cell-clinics
+
+**Atletico close to agreeing deal for Man City's Alvarez**\
+`Atletico Madrid are close to striking a deal with Manchester City to sign forward Julian Alvarez.`\
+https://nytimes.com/athletic/5678762/2024/08/05/julian-alvarez-transfer-atletico/
+
 **Why Is Iran Expected to Attack Israel? What to Know About the Crisis.**\
 `Iran has vowed to retaliate for the killing of a senior Hamas leader in Tehran last week in an attack for which it has blamed Israel.`\
 https://nytimes.com/2024/08/05/world/middleeast/iran-israel-attack-strikes-why.html
