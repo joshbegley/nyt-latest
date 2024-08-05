@@ -1,3 +1,15 @@
+**Stephen Curry, LeBron James and the 'too small' action that unlocks Team USA's offense**\
+`Stephen Curry hasn't been shooting the ball well in these Olympics, but he's found other ways to help get Team USA's offense going.`\
+https://nytimes.com/athletic/5681139/2024/08/05/stephen-curry-lebron-james-and-the-too-small-action-that-unlocks-team-usas-offense/
+
+**Tennis Briefing: How Machac and Siniakova won gold - and tension between prestige and points**\
+`How the Olympic tennis showed that doubles can be treated as a different sport, not a poor relation to singles`\
+https://nytimes.com/athletic/5679500/2024/08/05/tennis-briefing-machac-and-siniakovas-doubles-relationship-washington-open-winners/
+
+**Rebeca Andrade rose from poverty in Brazil to Olympic podiums in Paris.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/08/05/world/olympics-gymnastics-beam-floor-biles/rebeca-andrade-rose-from-poverty-in-brazil-to-olympic-podiums-in-paris
+
 **At 27, Simone Biles is the most decorated U.S. gymnast in Olympic history.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/08/05/world/olympics-gymnastics-beam-floor-biles/at-27-simone-biles-is-the-most-decorated-us-gymnast-in-olympic-history
