@@ -1,3 +1,7 @@
+**The Author of ‘Red, White and Royal Blue’ Is Back, With More Spice and No Shame**\
+`Casey McQuiston’s debut proved that queer romance can be a hit. In their latest novel, “The Pairing,” sex doesn’t only sell; it’s also “beautiful and really soul affirming.”`\
+https://nytimes.com/2024/08/05/books/casey-mcquiston-the-pairing.html
+
 **Pope Francis Names New Leader for Boston Archdiocese**\
 `Bishop Richard Henning will succeed Cardinal Seán P. O’Malley, one of the pope’s most trusted allies, who is retiring.`\
 https://nytimes.com/2024/08/05/us/pope-francis-boston-archdiocese-archbishop-henning.html
