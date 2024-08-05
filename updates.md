@@ -1,3 +1,7 @@
+**A couple’s carport looked dry right after Debby. Then the Steinhatchee River rose.**\
+`By Valerie Crowder`\
+https://nytimes.com/live/2024/weather/hurricane-debby-florida-storm/debby-steinhatchee
+
 **Stocks Tumbled Over Fears of a U.S. Economic Slowdown**\
 `Also, a judge ruled that Google violated antitrust laws and Bangladesh’s leader resigned`\
 https://nytimes.com/2024/08/05/briefing/stocks-tumbled-over-fears-of-a-us-economic-slowdown.html

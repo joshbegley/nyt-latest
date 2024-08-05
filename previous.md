@@ -1,3 +1,7 @@
+**A couple’s carport looked dry right after Debby. Then the Steinhatchee River rose.**\
+`By Valerie Crowder`\
+https://nytimes.com/live/2024/weather/hurricane-debby-florida-storm/debby-steinhatchee
+
 **Stocks Tumbled Over Fears of a U.S. Economic Slowdown**\
 `Also, a judge ruled that Google violated antitrust laws and Bangladesh’s leader resigned`\
 https://nytimes.com/2024/08/05/briefing/stocks-tumbled-over-fears-of-a-us-economic-slowdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5681158/2024/08/05/college-football-coaches-poll-un
 **After 2 a.m. run for girlfriend, Lyles coasts through 200m first round**\
 `Anyone hoping for some humility from Noah Lyles will appreciate the story he told Monday.`\
 https://nytimes.com/athletic/5682415/2024/08/05/noah-lyles-200m-olympics-first-round/
-
-**Violent U.K. Riots Pose Challenge to Keir Starmer’s New Government**\
-`The new Labour government’s strong law-and-order approach to the violence has mostly spared it from criticism, even from the Conservatives, who only recently left power. But challenges remain.`\
-https://nytimes.com/2024/08/05/world/europe/uk-riots-starmer.html
 
