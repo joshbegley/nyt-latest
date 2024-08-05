@@ -1,3 +1,11 @@
+**St. Louis Cardinals takeaways: How outfield plans will look while team looks to 'turn it around'**\
+`"If we're gonna turn it around, we have to turn it around now," Miles Mikolas said after a tough series against the Cubs.`\
+https://nytimes.com/athletic/5680567/2024/08/05/cardinals-wild-card-victor-scott/
+
+**Leeds interested in Norwich's Jonathan Rowe**\
+`Leeds United are targeting Norwich City winger Jonathan Rowe as they seek a replacement for Crysencio Summerville.`\
+https://nytimes.com/athletic/5681188/2024/08/05/leeds-jonathan-rowe-transfer-norwich/
+
 **Elon Musk Revives Lawsuit Against OpenAI and Sam Altman**\
 `The Tesla chief executive has renewed claims that the A.I. start-up put profits and commercial interests ahead of the public good.`\
 https://nytimes.com/2024/08/05/technology/elon-musk-openai-lawsuit.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5680115/2024/08/05/raiders-coaches-conditioning-tes
 **Twins talking to WCCO and KFAN with radio contract set to expire: Sources**\
 `WCCO has been the Twins' radio home for 53 of the team’s 64 years in Minnesota, but KFAN is a viable alternative with long-term upside.`\
 https://nytimes.com/athletic/5678086/2024/08/05/twins-radio-contract-talks-wcco-kfan/
-
-**What we've learned about the Broncos after two weeks of training camp**\
-`Bo Nix has made clear progress in quest to become the Broncos' first rookie Week 1 starting QB in more than 30 years.`\
-https://nytimes.com/athletic/5678541/2024/08/05/broncos-camp-takeaways/
-
-**Three Dodgers takeaways: 'We’ve got more guys coming than we have spots' edition**\
-`Freddie Freeman, Mookie Betts and Max Muncy might be back soon, leaving the Dodgers with a roster puzzle to solve.  `\
-https://nytimes.com/athletic/5680625/2024/08/05/dodgers-kike-hernandez-river-ryan/
 
