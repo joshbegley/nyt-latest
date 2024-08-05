@@ -1,3 +1,7 @@
+**Jordan Chiles is a vivid presence on and off the competition floor.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/08/05/world/olympics-gymnastics-beam-floor-biles/jordan-chiles-is-a-vivid-presence-on-and-off-the-competition-floor
+
 **CrowdStrike Hits Back in Heated Spat With Delta Over Global Tech Outage**\
 `The cybersecurity company said the airline should take the blame after it struggled to rebound a software outage that caused disruptions worldwide.`\
 https://nytimes.com/2024/08/05/business/dealbook/crowdstrike-delta-tech-outage.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/weather/hurricane-debby-florida-storm/key-things-t
 **Myanmar Rebels Claim Regional Military Base in Major Victory**\
 `The seizure of the military’s northeastern command post gives the resistance control of a city and airport on a crucial trade corridor to China.`\
 https://nytimes.com/2024/08/05/world/asia/myanmar-rebels-lashio.html
-
-**How Mike Macdonald's impact has been seen in Seahawks defense at training camp**\
-`The new head coach has Seattle's defense adopting the versatile scheme that worked with the Ravens.`\
-https://nytimes.com/athletic/5679867/2024/08/05/seahawks-camp-defense-mike-macdonald/
 
