@@ -1,3 +1,7 @@
+**How a score inquiry led to gymnast Jordan Chiles' Olympic bronze**\
+`At first, the judges flashed a 13.666, which slotted her into fifth place, but Chiles' coaches thought something was amiss with her score.`\
+https://nytimes.com/athletic/5681493/2024/08/05/jordan-chiles-gymnastics-floor-final-inquiry-explained/
+
 **USMNT's Ream traveling to complete Charlotte FC transfer**\
 `Fulham defender Tim Ream is traveling to the United States to complete a permanent transfer to Major League Soccer side Charlotte FC.`\
 https://nytimes.com/athletic/5681583/2024/08/05/charlotte-fc-tim-ream-fulham-transfer/

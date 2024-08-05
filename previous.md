@@ -10,6 +10,10 @@ https://nytimes.com/2024/08/05/us/politics/pelosi-book-trump-biden.html
 `Last year, Lyles noted how NBA title winners shouldn't be called "'world champions."`\
 https://nytimes.com/athletic/5681491/2024/08/05/noah-lyles-nba-comment-devin-booker-olympics/
 
+**How a score inquiry led to gymnast Jordan Chiles' Olympic bronze**\
+`At first, the judges flashed a 13.666, which slotted her into fifth place, but Chiles' coaches thought something was amiss with her score.`\
+https://nytimes.com/athletic/5681493/2024/08/05/jordan-chiles-gymnastics-floor-final-inquiry-explained/
+
 **When Will the F.D.A. Crack Down on Stem Cell Clinics?**\
 `The agency has done little to put an end to dangerous medical scams.`\
 https://nytimes.com/live/2024/07/30/opinion/thepoint/fda-stem-cell-clinics
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/08/05/weather/map-emilia-path-tracker.html
 **The Director of ‘Deadpool & Wolverine’ on Those Spoilery Surprises**\
 `Shawn Levy explains the thinking behind specific cameos, what was saved from discarded scripts and how they made that end-credits tribute to Fox.`\
 https://nytimes.com/2024/08/05/movies/deadpool-and-wolverine-shawn-levy.html
-
-**Hetty Lui McKinnon Has a New Dumpling Salad Recipe**\
-`This time with smashed cucumbers and an umami-rich peanut sauce.`\
-https://nytimes.com/2024/08/05/dining/hetty-lui-mckinnon-has-a-new-dumpling-salad-recipe.html
 
