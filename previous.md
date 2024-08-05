@@ -1,40 +1,40 @@
-**The Choreographer Bringing Hope to the Stage and Beyond**\
-`Rachid Ouramdane, who presented a major new dance as part of the Cultural Olympiad, directs the Théâtre National de Chaillot in Paris. How does he do it all?`\
-https://nytimes.com/2024/08/05/arts/dance/rachid-ouramdane-cultural-olympiad-chaillot.html
+**Traffic Stop Data Can Shape Policy. It’s Often Missing.**\
+`Areas with good data often have policy debates that are not possible in places where poor data makes it hard to know what’s going on.`\
+https://nytimes.com/2024/08/05/upshot/traffic-stops-police-data.html
 
-**I Want to Free My Mother’s Killer From Death Row**\
-`We’re good at convicting and punishing people, but we need to learn how to forgive.`\
-https://nytimes.com/2024/08/05/opinion/death-penalty-louisiana.html
+**In Missouri, Cori Bush Fights for Survival Against an AIPAC-Backed Democrat**\
+`The ultraliberal congresswoman and member of the “squad” is facing a primary on Tuesday against Wesley Bell, a progressive prosecutor whose campaign has been financed by pro-Israel groups.`\
+https://nytimes.com/2024/08/05/us/politics/missouri-cori-bush-bell-aipac-israel-democrats.html
 
-**The Latest Frontier in Housing Inequity? Pet Friendliness.**\
-`For renters, pet fees and breed and size restrictions make it hard to keep their families together in a tough market. Some lawmakers are listening.`\
-https://nytimes.com/2024/08/05/realestate/housing-inequity-pet-friendliness-laws.html
+**Population Growth Isn’t a Progressive Issue. It Should Be.**\
+`There’s more to the issue than what JD Vance says.`\
+https://nytimes.com/2024/08/05/opinion/birthrate-jd-vance-progressives.html
 
-**If You Can Do It, You Can Do It at Night**\
-`Travel adventures, from goat hikes to snorkeling, get even better when they’re done under the stars.`\
-https://nytimes.com/2024/08/05/travel/astrotourism-snorkeling-hiking-photography.html
+**Kamala Harris Makes Quite an Entrance**\
+`Has everything totally switched?`\
+https://nytimes.com/2024/08/05/opinion/kamala-harris-trump-birthrate.html
 
-**Amarius Mims becoming the biggest story in Bengals’ camp**\
-`The 6-foot-8, 250-pound rookie first-round pick is stirring early optimism and could start in Week 1.`\
-https://nytimes.com/athletic/5680418/2024/08/05/amarius-mims-bengals-camp/
+**An 18th-Century Phenom Arrives at Lincoln Center**\
+`The Festival Orchestra of Lincoln Center will play Marianna Martines’s Symphony in C, a milestone for a composer whose music mostly fell silent after her death.`\
+https://nytimes.com/2024/08/05/arts/music/marianna-martines-lincoln-center-festival-orchestra.html
 
-**How Much Alcohol Is Too Much for a Driver?**\
-`Experts argue the U.S. drunk-driving limit is too high.`\
-https://nytimes.com/2024/08/05/well/eat/bac-limit-drunk-driving.html
+**$1.6 Million Homes in California**\
+`A midcentury-modern home in Pasadena, a Mediterranean-style house in Albany and a three-bedroom retreat in Monterey.`\
+https://nytimes.com/2024/08/05/realestate/million-dollar-homes-california.html
 
-**A Poet Who Considers Timeless Topics, and Finds Ways to Make Them New**\
-`In his latest collection, the Pulitzer winner Carl Phillips relies on sinuous language to evoke love, heartache and the passing of the years.`\
-https://nytimes.com/2024/08/05/books/review/carl-phillips-scattered-snows-to-the-north-poems.html
+**Braves' weekend woes: 3 takeaways as Max Fried struggles, Marcell Ozuna stays hot**\
+`In hindsight, the Braves might wish they’d asked Fried to make one minor-league rehab start.`\
+https://nytimes.com/athletic/5680417/2024/08/05/braves-max-fried-marcel-ozuna/
 
-**Recruiting in Hawaii: The challenges — and perks — of mining the Aloha State**\
-`Utah leads the way among power-conference schools with 13 signees from Hawaii over the last 10 recruiting cycles.`\
-https://nytimes.com/athletic/5666586/2024/08/05/college-football-recruiting-hawaii/
+**Flavor Flav Wants You to Watch More Water Polo**\
+`The rapper has become a self-appointed hype man and benefactor to the U.S. women’s team in Paris. He plans to keep the poolside party going into 2028.`\
+https://nytimes.com/2024/08/05/world/olympics/flavor-flav-water-polo.html
 
-**As the unrest intensifies, all eyes are on Bangladesh’s army.**\
-`The military has a history of coups and counter coups. But in this showdown, it has seemed uncomfortable with the police crackdown on protesters.`\
-https://nytimes.com/2024/08/05/world/asia/bangladesh-army-protests.html
+**A Bright New Voice in Fiction, With a Knack for Dark Turns**\
+`Zach Williams makes his impressive debut with an unnerving and surreal collection of stories.`\
+https://nytimes.com/2024/08/05/books/review/zach-williams-beautiful-days.html
 
-**I Want to Free My Mother’s Killer From Death Row**\
-`We’re good at convicting and punishing people, but we need to learn how to forgive.`\
-https://nytimes.com/video/opinion/100000009574778/death-penalty-louisiana.html
+**‘House of the Dragon’: 5 Questions as We Look Ahead to Season 3**\
+`Where is that wagon going? And who were those unfamiliar dragons? The Season 2 finale left viewers with many cliffhangers and much to ponder.`\
+https://nytimes.com/2024/08/05/arts/television/house-of-the-dragon-questions-season-3.html
 
