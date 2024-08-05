@@ -1,3 +1,7 @@
+**Bitcoin and other cryptocurrencies plunge, mirroring global markets.**\
+`The precipitous falls show that digital currencies remain vulnerable to the same broader economic forces that affect technology stocks and risky investments.`\
+https://nytimes.com/2024/08/05/business/bitcoin-stock-market.html
+
 **Protesters defied the risk of fresh violence to drive Hasina from power.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/08/05/world/bangladesh-protests/protesters-defied-the-risk-of-fresh-violence-to-drive-hasina-from-power
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5680645/2024/08/05/knicks-elite-julius-randle-futur
 **USWNT's Emma Hayes says all players trained ahead of Olympics semifinal: 'It's a great sign'**\
 `Several players were dealing with knocks heading into the semifinal.`\
 https://nytimes.com/athletic/5681488/2024/08/05/uswnt-emma-hayes-players-training/
-
-**PSG confirm Neves signing from Benfica**\
-`Paris Saint-Germain have confirmed the signing of Joao Neves from Benfica.`\
-https://nytimes.com/athletic/5681394/2024/08/05/joao-neves-psg-transfer/
 

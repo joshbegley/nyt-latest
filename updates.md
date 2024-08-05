@@ -1,3 +1,7 @@
+**Bitcoin and other cryptocurrencies plunge, mirroring global markets.**\
+`The precipitous falls show that digital currencies remain vulnerable to the same broader economic forces that affect technology stocks and risky investments.`\
+https://nytimes.com/2024/08/05/business/bitcoin-stock-market.html
+
 **Protesters defied the risk of fresh violence to drive Hasina from power.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/08/05/world/bangladesh-protests/protesters-defied-the-risk-of-fresh-violence-to-drive-hasina-from-power
