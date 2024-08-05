@@ -1,3 +1,11 @@
+**U.S. wins mixed relay triathlon silver after photo finish drama**\
+`Taylor Knibb helped lead the United States to a dramatic silver medal in the mixed relay triathlon on Monday morning in Paris — but only after a photo finish at the line that initially saw them announced in third.`\
+https://nytimes.com/athletic/5681029/2024/08/05/triathlon-olympics-relay-result-photo-finish/
+
+**Corrections: Aug. 5, 2024**\
+`Corrections appearing in print on Monday, Aug. 5, 2024.`\
+https://nytimes.com/2024/08/05/pageoneplus/corrections-aug-5-2024.html
+
 **Here’s what to know about the storm and where it’s going.**\
 `By Isabelle Taft`\
 https://nytimes.com/live/2024/weather/hurricane-debby-florida/heres-what-to-know-about-the-storm-and-where-its-going
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/05/nyregion/ms-13-gang-long-island.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/08/05/crosswords/spelling-bee-forum.html
-
-**Word of the Day: labyrinthine**\
-`This word has appeared in 61 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/08/05/learning/word-of-the-day-labyrinthine.html
-
-**Manchester United's U.S. tour: Ten Hag support, new-look coaching staff, rock paper scissors**\
-`The Dutch manager has benefited from a show of unity from the new hierarchy with a revamped backroom staff helping to reinvigorate the squad`\
-https://nytimes.com/athletic/5680551/2024/08/05/manchester-united-us-tour-ten-hag/
 
