@@ -1,3 +1,11 @@
+**The prime minister’s crackdown rained carnage on Bangladesh.**\
+`By Mujib Mashal`\
+https://nytimes.com/live/2024/08/05/world/bangladesh-protests/the-prime-ministers-crackdown-rained-carnage-on-bangladesh
+
+**Out and About at the Edinburgh Fringe**\
+`The streets of the Scottish capital are packed as thousands of performers seek to entertain and entice.`\
+https://nytimes.com/2024/08/05/theater/edinburgh-fringe-photos.html
+
 **Jordan Chiles is a vivid presence on and off the competition floor.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/08/05/world/olympics-gymnastics-beam-floor-biles/jordan-chiles-is-a-vivid-presence-on-and-off-the-competition-floor
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/05/us/pope-francis-boston-archdiocese-archbishop-hen
 **Here’s what to watch in the floor exercise final.**\
 `By Maggie Astor and Juliet Macur`\
 https://nytimes.com/live/2024/08/05/world/olympics-gymnastics-beam-floor-biles/heres-what-to-watch-in-the-floor-final
-
-**Key things to watch as Debby moves through the Southeast in the next day.**\
-`By Judson Jones`\
-https://nytimes.com/live/2024/weather/hurricane-debby-florida-storm/key-things-to-watch-as-debby-moves-through-the-southeast-in-the-next-day
-
-**Myanmar Rebels Claim Regional Military Base in Major Victory**\
-`The seizure of the military’s northeastern command post gives the resistance control of a city and airport on a crucial trade corridor to China.`\
-https://nytimes.com/2024/08/05/world/asia/myanmar-rebels-lashio.html
 
