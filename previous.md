@@ -1,3 +1,15 @@
+**Nvidia tumbles after reports of a chip delay.**\
+`The A.I. chip maker’s shares fell in early trading, but the stock pared some of its losses.`\
+https://nytimes.com/live/2024/08/05/business/stocks-market-crash-economy/nvidia-stocks
+
+**Traders Wonder if the Fed Could Make an Emergency Rate Cut as Markets Tumble**\
+`The Federal Reserve only cuts rates outside of regularly scheduled meetings in extreme cases. Some investors think this could merit an emergency move, though others doubt it.`\
+https://nytimes.com/2024/08/05/business/stock-market-fed-rate-cut.html
+
+**Rams' Puka Nacua sidelined with knee injury**\
+`Nacua joins starting offensive linemen Rob Havenstein, Alaric Jackson and Jonah Jackson among the Rams' players sidelined during camp.`\
+https://nytimes.com/athletic/5681476/2024/08/05/la-rams-puka-nacua-knee-injury/
+
 **Tracking Tropical Storm Daniel**\
 `See the likely path and wind arrival times for Daniel.`\
 https://nytimes.com/interactive/2024/08/05/weather/daniel-map-path-tracker.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/08/05/business/stocks-market-crash-economy/heres-w
 **Kawakami: How the Warriors fit into the Lauri Markkanen deadlines and scenarios**\
 `What does Markkanen really want? That's the biggest unknown as the clock ticks toward the first deadline in this complicated situation.`\
 https://nytimes.com/athletic/5678958/2024/08/05/warriors-lauri-markkanen-trade-deadlines-scenarios/
-
-**Middlesbrough in advanced talks to sign Man City's Hamilton**\
-`Middlesbrough are in advanced talks to sign Micah Hamilton from Manchester City.`\
-https://nytimes.com/athletic/5681454/2024/08/05/micah-hamilton-middlesbrough-man-city/
-
-**How the prime minister’s crackdown weakened her grip on power.**\
-`By Mujib Mashal`\
-https://nytimes.com/live/2024/08/05/world/bangladesh-protests/the-prime-ministers-crackdown-rained-carnage-on-bangladesh
-
-**Out and About at the Edinburgh Fringe**\
-`The streets of the Scottish capital are packed as thousands of performers seek to entertain and entice.`\
-https://nytimes.com/2024/08/05/theater/edinburgh-fringe-photos.html
 
