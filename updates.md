@@ -1,3 +1,7 @@
+**Markets Around the World Are Jolted by Fears of Slowing U.S. Growth**\
+`A rout that began in Asia continued in Europe, and U.S. stocks are set to fall. Japan’s benchmark index logged its worst single-day point decline.`\
+https://nytimes.com/2024/08/05/business/global-stocks.html
+
 **How Noah Lyles became Olympic 100m champion: A 300-page textbook, biomechanics and a stickman**\
 `Lyles is renowned as a strong finisher, but it was the work he put in on his start with a 75-year-old former Olympian that proved decisive`\
 https://nytimes.com/athletic/5680407/2024/08/05/lyles-100m-mann-stickman-biomechanics-start/

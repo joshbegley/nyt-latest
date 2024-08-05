@@ -34,7 +34,7 @@ https://nytimes.com/athletic/5680551/2024/08/05/manchester-united-us-tour-ten-ha
 `The indefinite strike, the first in the electronics company’s history, comprised only a sliver of its labor force and lasted less than a month.`\
 https://nytimes.com/2024/08/05/business/samsung-workers-end-strike.html
 
-**Markets Around the World Are Rattled by Fears of Slowing U.S. Growth**\
-`Stocks in Asia tumbled, led by Japan, where declines triggered “circuit breakers” meant to calm rapid moves. European and U.S. markets were set for declines.`\
+**Markets Around the World Are Jolted by Fears of Slowing U.S. Growth**\
+`A rout that began in Asia continued in Europe, and U.S. stocks are set to fall. Japan’s benchmark index logged its worst single-day point decline.`\
 https://nytimes.com/2024/08/05/business/global-stocks.html
 
