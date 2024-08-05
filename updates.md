@@ -1,3 +1,7 @@
+**Pentagon Hands Over Last Base in Niger as Extremism Spreads in the Sahel**\
+`Relations between the two countries soured after a coup last year. Now the United States is scrambling to find new security partners.`\
+https://nytimes.com/2024/08/05/us/politics/us-military-withdrawal-niger.html
+
 **Here’s what to watch in the floor exercise final.**\
 `By Maggie Astor and Juliet Macur`\
 https://nytimes.com/live/2024/08/05/world/olympics-gymnastics-beam-floor-biles/heres-what-to-watch-in-the-floor-final
