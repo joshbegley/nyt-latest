@@ -1,3 +1,7 @@
+**Somehow, Aaron Judge is having a better 2024 than 2022 season: 4 takeaways**\
+`"We're watching greatness," Yankees manager Aaron Boone said of Judge's prowess.`\
+https://nytimes.com/athletic/5679902/2024/08/05/yankees-aaron-judge-success-takeaways/
+
 **Xavi Simons rejoins RB Leipzig on loan from PSG**\
 `Xavi Simons has rejoined RB Leipzig on loan from Paris Saint-Germain.`\
 https://nytimes.com/athletic/5671347/2024/08/05/xavi-simons-rb-leipzig-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/05/opinion/kamala-harris-trump-birthrate.html
 **An 18th-Century Phenom Arrives at Lincoln Center**\
 `The Festival Orchestra of Lincoln Center will play Marianna Martines’s Symphony in C, a milestone for a composer whose music mostly fell silent after her death.`\
 https://nytimes.com/2024/08/05/arts/music/marianna-martines-lincoln-center-festival-orchestra.html
-
-**$1.6 Million Homes in California**\
-`A midcentury-modern home in Pasadena, a Mediterranean-style house in Albany and a three-bedroom retreat in Monterey.`\
-https://nytimes.com/2024/08/05/realestate/million-dollar-homes-california.html
 
