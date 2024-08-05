@@ -1,3 +1,7 @@
+**The Next Month in the Economy Could be Crucial for the Presidential Election**\
+`Former President Trump is trying to stoke economic angst, while Vice President Harris projects optimism.`\
+https://nytimes.com/2024/08/05/business/markets-politics-election.html
+
 **Fighting Malaria: The Role of Two Groups**\
 `The W.H.O. and the Gates Foundation respond to a Science article. Also: A revoked 9/11 plea deal; a debate on Fox; mispronouncing “Kamala”; climate-themed movies.`\
 https://nytimes.com/2024/08/05/opinion/fighting-malaria.html
