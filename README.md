@@ -1,3 +1,7 @@
+**Chargers DC Jesse Minter's vision comes to life in dominant joint practice vs. Rams**\
+`The edge rushers shined as the defense forced Matthew Stafford and company into a day full of turnovers.`\
+https://nytimes.com/athletic/5680699/2024/08/04/chargers-defense-joint-practice-rams/
+
 **How Noah Lyles Won the Men’s 100-Meter Gold by a Fraction**\
 `Noah Lyles of the United States beat Jamaica’s Kishane Thompson by five-thousandths of a second to win gold in the 100-meter final.`\
 https://nytimes.com/interactive/2024/08/04/sports/olympics/mens-100-noah-lyles-kishane-thompson.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5680125/2024/08/04/china-gold-medal-medley-relay-ol
 **49ers training camp: Brock Purdy has graduated to the next level of preparation**\
 `The quarterback has been able to challenge himself in new ways this training camp as he prepares for the 2024 season.`\
 https://nytimes.com/athletic/5680228/2024/08/04/brock-purdy-49ers-training-camp/
-
-**In a Corner of Florida, a Gathering Storm Stirs Familiar Feelings**\
-`Many on the state’s northwestern coast felt they knew what to expect from Debby, which is forecast to make landfall as a hurricane, after a much stronger storm hit the area last year.`\
-https://nytimes.com/2024/08/04/us/florida-preparation-debby-idalia.html
 
