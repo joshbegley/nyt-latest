@@ -1,3 +1,11 @@
+**Here’s what to know about the storm and where it’s going.**\
+`By Isabelle Taft`\
+https://nytimes.com/live/2024/weather/hurricane-debby-florida/heres-what-to-know-about-the-storm-and-where-its-going
+
+**Live Updates: Hurricane Debby to Strike Florida’s Big Bend Region**\
+`The Category 1 storm is forecast to make landfall near the same stretch of coastline where Hurricane Idalia came ashore last year as a more powerful Category 3.`\
+https://nytimes.com/live/2024/weather/hurricane-debby-florida
+
 **Markets Around the World Are Jolted by Fears of Slowing U.S. Growth**\
 `A rout that began in Asia continued in Europe, and U.S. stocks are set to fall. Japan’s benchmark index logged its worst single-day point decline.`\
 https://nytimes.com/2024/08/05/business/global-stocks.html
