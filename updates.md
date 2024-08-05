@@ -1,3 +1,7 @@
+**Lions' Terrion Arnold evaluated for concussion**\
+`The rookie was drafted to help bolster one of the worst passing defenses in the NFL.`\
+https://nytimes.com/athletic/5681912/2024/08/05/terrion-arnold-concussion-lions-giants-practice/
+
 **The Economist Who Predicted What Could Well Be the Next Recession**\
 `David Rosenberg has a history of making calls many don’t want to hear.`\
 https://nytimes.com/2024/08/05/opinion/david-rosenberg-recession.html
