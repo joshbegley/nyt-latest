@@ -1,3 +1,19 @@
+**What to watch in the beam and floor finals.**\
+`xxx balance beam and floor finals.`\
+https://nytimes.com/live/2024/08/05/world/olympics-gymnastics-beam-floor-biles/what-to-watch-in-the-beam-and-floor-finals
+
+**Cubs' Pete Crow-Armstrong is starting to tap into his considerable offensive talent**\
+`The past few weeks have seen Crow-Armstrong's swing-and-miss drop considerably and his hard contact jump. That's an easy recipe for success.`\
+https://nytimes.com/athletic/5679949/2024/08/05/cubs-pete-crow-armstrong-offense-potential/
+
+**Astros takeaways: A possible youth movement, first base options and Ryan Pressly's return**\
+`GM Dana Brown suggests the Astros could see Shay Whitcomb and/or Zach Dezenzo this season.`\
+https://nytimes.com/athletic/5680485/2024/08/05/astros-shay-whitcomb-zach-dezenzo-potential/
+
+**Vikings stock report: Who's up, down and holding steady?**\
+`Several undrafted rookies look like good bets to make the 53-man roster, while two highly drafted DBs could be on their way out.`\
+https://nytimes.com/athletic/5679837/2024/08/05/minnesota-vikings-preseason-week-1/
+
 **What are Ravens' potential roster concerns after 2 weeks of training camp?**\
 `Should Baltimore look to upgrade at backup QB, and is there a veteran receiver or pass rusher the team should consider signing?`\
 https://nytimes.com/athletic/5678405/2024/08/05/ravens-training-camp-roster-concerns/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5679560/2024/08/05/aj-dillon-packers-bounceback/
 **Chiefs hope to extend Creed Humphrey, Trey Smith and keep roster's core intact**\
 `After entering the league together in 2021, Humphrey and Smith are both entering the final year of their rookie contracts.`\
 https://nytimes.com/athletic/5680591/2024/08/05/chiefs-creed-humphrey-trey-smith-extensions/
-
-**Is there still room for Dak Prescott to improve? 'I feel younger than I ever have'**\
-`Cowboys coach Mike McCarthy says his quarterback is "just going to keep getting better."`\
-https://nytimes.com/athletic/5680223/2024/08/05/dak-prescott-dallas-cowboys-camp/
-
-**The Connections Companion No. 422**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 6, 2024.`\
-https://nytimes.com/2024/08/05/crosswords/connections-companion-422.html
-
-**Wordle Review No. 1,144**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, August 6, 2024.`\
-https://nytimes.com/2024/08/05/crosswords/wordle-review-1144.html
-
-**Democrats Divided Over V.P. Field, and Israel Braces for Retaliation**\
-`Plus, your Olympics weekend wrap-up.`\
-https://nytimes.com/2024/08/05/podcasts/democrats-divided-over-vp-field-and-israel-braces-for-retaliation.html
 

@@ -1,3 +1,19 @@
+**What to watch in the beam and floor finals.**\
+`xxx balance beam and floor finals.`\
+https://nytimes.com/live/2024/08/05/world/olympics-gymnastics-beam-floor-biles/what-to-watch-in-the-beam-and-floor-finals
+
+**Cubs' Pete Crow-Armstrong is starting to tap into his considerable offensive talent**\
+`The past few weeks have seen Crow-Armstrong's swing-and-miss drop considerably and his hard contact jump. That's an easy recipe for success.`\
+https://nytimes.com/athletic/5679949/2024/08/05/cubs-pete-crow-armstrong-offense-potential/
+
+**Astros takeaways: A possible youth movement, first base options and Ryan Pressly's return**\
+`GM Dana Brown suggests the Astros could see Shay Whitcomb and/or Zach Dezenzo this season.`\
+https://nytimes.com/athletic/5680485/2024/08/05/astros-shay-whitcomb-zach-dezenzo-potential/
+
+**Vikings stock report: Who's up, down and holding steady?**\
+`Several undrafted rookies look like good bets to make the 53-man roster, while two highly drafted DBs could be on their way out.`\
+https://nytimes.com/athletic/5679837/2024/08/05/minnesota-vikings-preseason-week-1/
+
 **What are Ravens' potential roster concerns after 2 weeks of training camp?**\
 `Should Baltimore look to upgrade at backup QB, and is there a veteran receiver or pass rusher the team should consider signing?`\
 https://nytimes.com/athletic/5678405/2024/08/05/ravens-training-camp-roster-concerns/
