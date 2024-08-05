@@ -1,3 +1,7 @@
+**Live Updates: Police Block Bangladesh Protesters After Deadly Crackdown**\
+`A student movement that began a month ago has turned into a broader challenge to Prime Minister Sheikh Hasina’s increasingly authoritarian rule.`\
+https://nytimes.com/live/2024/08/05/world/bangladesh-protests
+
 **Manchester United's U.S. tour: Ten Hag support, a new look coaching staff, and rock paper scissors**\
 `The Dutch manager has benefited from a show of unity from the new hierarchy with a revamped backroom staff helping to reinvigorate the squad`\
 https://nytimes.com/athletic/5680551/2024/08/05/manchester-united-us-tour-ten-hag/
