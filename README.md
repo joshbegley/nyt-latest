@@ -1,3 +1,11 @@
+**WR Puka Nacua exits tough turnover-filled day for Rams offense against Chargers**\
+`A test against the Chargers added to the walking wounded but Sean McVay said injuries cannot be an excuse this season.`\
+https://nytimes.com/athletic/5680524/2024/08/04/puka-nacua-rams-offense/
+
+**Red Sox top Rangers ahead of key Royals series: 'Every game now means something more'**\
+`It was an emotional game Nick Pivetta, who worked through early struggles and Wilyer Abreu, who was playing in honor of his grandmother.`\
+https://nytimes.com/athletic/5680601/2024/08/04/red-sox-series-win-rangers/
+
 **Belgian Triathlon Team Drops Out After Athlete Falls Sick**\
 `The athlete, Claire Michel, who swam in the Seine River during the women’s triathlon last week, was taken to a clinic in the Olympic Village on Sunday for treatment.`\
 https://nytimes.com/2024/08/04/sports/belgium-triathlon-withdraws-seine.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/04/us/florida-preparation-debby-idalia.html
 **5-Year-Old Killed After Bounce House Goes Airborne in Maryland**\
 `Children were inside the play structure at a baseball game when it was carried 15 to 20 feet in the air the by the wind. One child died and another was injured.`\
 https://nytimes.com/2024/08/04/us/boy-killed-bounce-house.html
-
-**Robert F. Kennedy Jr. Admits He Left a Dead Bear in Central Park**\
-`Mr. Kennedy, an independent presidential candidate, confessed to dropping off the bear cub 10 years ago and making it appear that a bike had hit the animal.`\
-https://nytimes.com/2024/08/04/us/politics/robert-f-kennedy-jr-bear-central-park.html
-
-**Dodgers star Freddie Freeman’s youngest son discharged from hospital**\
-`The Freemans believe the issue stemmed from a viral infection Maximus suffered during last month’s All-Star game.`\
-https://nytimes.com/athletic/5680459/2024/08/04/dodgers-freddie-freeman-son-discharge/
 
