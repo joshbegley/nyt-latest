@@ -1,3 +1,15 @@
+**Cedar Key, Fla., walloped by Idalia last year, faces another recovery after Debby.**\
+`By Abigail Geiger`\
+https://nytimes.com/live/2024/weather/hurricane-debby-florida-storm/hurricane-debby-cedar-key-florida-idalia
+
+**Former Trump Adviser Kellyanne Conway Lobbies for Ukrainian Interests**\
+`The former campaign aide indicated in a Justice Department filing that she will be paid $50,000 a month by an oligarch to seek support for Ukraine.`\
+https://nytimes.com/2024/08/05/us/politics/kellyanne-conway-ukraine-lobbying.html
+
+**Until Saturday: Who’s overrated, underrated in Coaches Poll**\
+`Welcome to Until Saturday, the five-star college football newsletter: Michigan's overrated, Missouri's underrated in Coaches Poll.`\
+https://nytimes.com/athletic/5681158/2024/08/05/college-football-coaches-poll-until-saturday/
+
 **After 2 a.m. run for girlfriend, Lyles coasts through 200m first round**\
 `Anyone hoping for some humility from Noah Lyles will appreciate the story he told Monday.`\
 https://nytimes.com/athletic/5682415/2024/08/05/noah-lyles-200m-olympics-first-round/

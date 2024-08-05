@@ -1,3 +1,15 @@
+**Cedar Key, Fla., walloped by Idalia last year, faces another recovery after Debby.**\
+`By Abigail Geiger`\
+https://nytimes.com/live/2024/weather/hurricane-debby-florida-storm/hurricane-debby-cedar-key-florida-idalia
+
+**Former Trump Adviser Kellyanne Conway Lobbies for Ukrainian Interests**\
+`The former campaign aide indicated in a Justice Department filing that she will be paid $50,000 a month by an oligarch to seek support for Ukraine.`\
+https://nytimes.com/2024/08/05/us/politics/kellyanne-conway-ukraine-lobbying.html
+
+**Until Saturday: Who’s overrated, underrated in Coaches Poll**\
+`Welcome to Until Saturday, the five-star college football newsletter: Michigan's overrated, Missouri's underrated in Coaches Poll.`\
+https://nytimes.com/athletic/5681158/2024/08/05/college-football-coaches-poll-until-saturday/
+
 **After 2 a.m. run for girlfriend, Lyles coasts through 200m first round**\
 `Anyone hoping for some humility from Noah Lyles will appreciate the story he told Monday.`\
 https://nytimes.com/athletic/5682415/2024/08/05/noah-lyles-200m-olympics-first-round/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/07/30/opinion/olympics-gymnastics-simone-biles.html
 **Raiders training camp: Spotlight on the QBs intensifies, DJ Glaze steps up at RT**\
 `The Raiders’ preseason opener Saturday could shed some light on the QB competition, while an unlikely rookie is stepping up on the O-line.`\
 https://nytimes.com/athletic/5682045/2024/08/05/raiders-aidan-oconnell-gardner-minshew-dj-glaze/
-
-**Tuesday Briefing: Global Markets Fell**\
-`Plus, LeBron James at the Olympics.`\
-https://nytimes.com/2024/08/05/briefing/06ambriefing-asia-global-stocks-bangladesh-harris.html
-
-**Mexican Reporter Gunned Down, Even With a Security Detail at His Side**\
-`Alejandro Martínez had received so many threats that the Mexican government appointed him protection. On Sunday, he was shot and killed and his bodyguards wounded.`\
-https://nytimes.com/2024/08/05/world/americas/mexico-journalist-killed-celaya.html
-
-**Kennedy Fights to Stay on Ballot, but Everyone’s Talking About the Bear**\
-`Robert F. Kennedy Jr.’s disclosure that he had left a cub’s carcass in Central Park overshadowed his court battle to remain on New York State’s ballot this fall.`\
-https://nytimes.com/2024/08/05/nyregion/rfk-jr-bear-dumping-ny-ballot.html
 
