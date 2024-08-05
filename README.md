@@ -1,3 +1,7 @@
+**Jorge Cuenca to Fulham: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we break down Jorge Cuenca's move from Villarreal to Fulham`\
+https://nytimes.com/athletic/5673966/2024/08/05/jorge-cuenca-to-fulham-the-athletic-500-transfer-ratings/
+
 **What to watch in the beam and floor finals.**\
 `xxx balance beam and floor finals.`\
 https://nytimes.com/live/2024/08/05/world/olympics-gymnastics-beam-floor-biles/what-to-watch-in-the-beam-and-floor-finals
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/05/podcasts/the-daily/vance-friend-sofia-nelson.html
 **'I worked my ass off': Is Packers' AJ Dillon primed for a bounce-back season?**\
 `Dillon is no stranger to his current situation because he was once on the other end of it.`\
 https://nytimes.com/athletic/5679560/2024/08/05/aj-dillon-packers-bounceback/
-
-**Chiefs hope to extend Creed Humphrey, Trey Smith and keep roster's core intact**\
-`After entering the league together in 2021, Humphrey and Smith are both entering the final year of their rookie contracts.`\
-https://nytimes.com/athletic/5680591/2024/08/05/chiefs-creed-humphrey-trey-smith-extensions/
 
