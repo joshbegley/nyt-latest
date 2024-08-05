@@ -1,3 +1,11 @@
+**Crowds swarm prime minister’s residence after Bangladesh leader flees.**\
+`By Eve Sampson`\
+https://nytimes.com/live/2024/08/05/world/bangladesh-protests/crowds-swarm-prime-ministers-residence-after-bangladesh-leader-flees
+
+**Barbara Howar, Irreverent Memoirist of Washington Society, Dies at 89**\
+`She was already a prominent hostess in the nation’s capital when her uninhibited, best-selling 1973 memoir, “Laughing All the Way,” made her a star.`\
+https://nytimes.com/2024/08/05/books/barbara-howar-dead.html
+
 **Trojans bolster line with 4-star OT Carde Smith**\
 `The Trojans have commitments from 12 blue-chip prospects in the 2025 cycle — only three from California.`\
 https://nytimes.com/athletic/5681940/2024/08/05/usc-football-recruiting-carde-smith/
